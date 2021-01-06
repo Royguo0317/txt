@@ -1,27 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 不到1月20号你千万千万不要有任何的决定！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/724081/)
+## 川普将于1月6日在华盛顿的集会上发表讲话
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/724215/)
 
-新闻简述：郭先生在2021年1月4日的GTV直播中说，共产党在备战，因为知道它挡不住全世界灭共的步伐。他也告诫所有人在1月20日之前“千万千万不要有任何的决定”，暗示1月20日之前任何事情都有可能发生，并且爆料革命是这场大戏的主角，对这场戏有一定的掌控力。
-视频来源：[https://gtv.org/video/id=5ff32a75f579a75e0bc3ee01](https://gtv.org/video/id=5ff32a75f579a75e0bc3ee01) (00:49:15-00:50:11, 00:50:33-00:50:55)
-**中英文对照全文**
+翻译：康州盘古农场-Bruce
 
-The Whistleblower Movement has come to this day. Why is the CCP now shouting for preparing for the war, preparing for the war?! Its “preparing for the war” means that it knows that even in the situation when it owns the whole world’s presidents, it still can’t stop the tide of talking down the CCP! Let alone the assumed situation is impossible, it is absolutely impossible!
+校对：康州盘古农场-烟波浩淼
 
-爆料革命到今天，为啥共产党现在大量喊备战、备战呢？！它这备战它知道就是任何情况下全世界都是它的总统啦，它也挡不住全世界灭共的步伐！何况那是不可能的、那是绝对不可能的对吧！
+审核：康州盘古农场-V
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-6.png)2021年1月4日，美国总统唐纳德·川普在美国佐治亚州道尔顿地区机场举行的共和党全国委员会胜利集会上发表讲话。(亚历克斯·王（Alex Wong）/Getty图片社)
+美国总统唐纳德·川普计划于1月6日在华盛顿的一次集会上发表讲话。
 
-After seeing Tom Cotton’s Twitter, I was super happy. Yesterday afternoon, I told Mr. Giuliani and Mr. Bannon, “Tom Cotton will definitely quit.” They said, “Impossible.” I was right again – pure luck, right? Don’t make any decisions before January 20th! I say it again, don’t make any decisions before January 20th! So, brothers and sisters and those who are watching the show in the audience, don’t be too involved in the show and feel too desperate. Don’t be like that! Not to mention, in the end, we are one of the leading actors in this show! We still need to bring the show back!
+计划在美国国会大厦举行几场大型活动，以抗议支持川普，反对他的许多支持者认为的窃取选举。
 
-你看这个 Tom Cotton 的推特以后我特别开心。我昨天下午跟朱利安尼、班农先生我还说，我说：Tom Cotton 他一定会退出的。他说：不可能。又让我说准啦，蒙的蒙的，是吧？！不到1月20号你们都不要有任何的决定！我再说一遍，不到1月20号，你千万千万不要有任何的决定！所以说兄弟姐妹们，咱们现在在台底下看戏的人，啊，别被一场戏给左右啦，要死要活的，那可千万别这样！何况最终这个唱戏的主角咱们还是其中之一啦！咱们还得把这戏给扳回来呢！
+川普计划于上午11点在椭圆公园举行的 “拯救美国集会 “上发言。
 
-*【感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/718110/](https://gnews.org/zh-hans/718110/)】*
+“庞大的人群！”总统在推特中写道。
 
-翻译：【Cyndi】校对：【Isaiah4031】字幕：【相机过热啊】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+组织者预计最多有150万人参加集会。在白宫南部占地52英亩的椭圆公园，在川普预定演讲前4小时开门。
 
-喜马拉雅玫瑰园小队出品
+拯救美国集会由 “美国妇女优先”组织主办。该组织表示，它支持 “美国优先议程”
 
-*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
+组织者之一艾米·克雷默周二在推特上说，这次活动将是 “有史以来最大的集会”。
+
+川普说，汇聚在华盛顿的人们 “不想看到选举胜利被胆大妄为的激进左派民主党人窃取”，并补充说：”我们的国家已经受够了，他们不会再忍受了！”
+
+川普和他的团队以及其他一些共和党人说，关键战场州的选举结果被不公平地认证为民主党总统候选人乔·拜登。他们指出选举和选民舞弊的指控和证据，并认为选举结果应该被取消认证。
+
+拜登和许多民主党人以及一些共和党人说，选举已经结束，拜登赢了。
+
+国会周三在华盛顿集会附近开会，统计选举团的选票。在该系统下，选民为选举人名单投下选票，尽管他们实际上为总统候选人打了勾。在一个州获得最多选票的候选人的政党让其选民为该候选人投下选票，并将其送往华盛顿。联合会议要统计这些选票。
+
+有七个州送来了所谓的决斗选民，或者说是两张不同的选票，一张给拜登，一张给川普，尽管拜登是所有七个州的认证获胜者。
+
+密歇根州共和党全国无任所选人麦肖恩·马多克（Meshawn Maddock）上个月在一份声明中说：”对密歇根州人民和美国宪法来说，如果选举有争议或争议，我们有责任再送一份选民名单–这显然是密歇根州人民和美国宪法的责任。”
+
+共和党人现在的努力主要围绕着在联席会议期间取得胜利的两条可能路径。一是反对来自有争议州的选举人票，这将引发两院的辩论和投票。由于反对票需要多数票，预计不会得到支持。民主党控制着众议院，参议院的共和党领导层对计划中的挑战提出了批评。27名共和党参议员已经站出来反对这些努力。
+
+第二条道路涉及副总统迈克·彭斯，他将以参议院主席的身份主持会议。支持者说，彭斯可以拒绝来自发生舞弊的州的选举人票。彭斯没有表示他是否同意这种推理方式。众议院议长南希·佩洛西(Nancy Pelosi)和其他批评者说，彭斯的作用比较“狭窄”。
+
+佩洛西周二在一封信中告诉同事，拜登的胜利 “将在国会开会时得到认可”。
+
+她补充道：”明天是关于保证对我们民主制度的信任。作为国会议员，我们都有责任坚持这样的原则：人民是主权的，他们拥有通过投票箱选择领导人的权力。”
+
+原文作者：扎卡里·斯蒂伯（Zachary Stieber）
+
+发布时间：2021年1月6日
+
+文章链接：[https://www.theepochtimes.com/trump-to-speak-at-rally-in-washington-on-jan-6\_3645541.html](https://www.theepochtimes.com/trump-to-speak-at-rally-in-washington-on-jan-6_3645541.html)
 
 0

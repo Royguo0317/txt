@@ -1,29 +1,98 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [危机中的重生] 1月6日美国总统大选之决战时刻系列报导(4)
-` 旧金山-金喜准农场` [轉載自GNews](https://gnews.org/zh-hans/723976/)
+## 会计，财报，审计入门基础与介绍（九）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/723909/)
 
-**大选之关键时刻看彭斯**
+![]()![](https://gnews.org/wp-content/uploads/2020/12/WX20201228-134452@2x.png)Picture Source: https://www.groomassocies.com
+在第九篇中是继详细展示财务审计所涉及资产负债表中各项目内容后的具体量化分析步骤与逻辑流程。有助于投资人或审计师依照逻辑且合理的量化程序对于财务报表中的资产负债表进行检阅。
 
-撰稿：空山新雨8298
-![]()![](https://gnews.org/wp-content/uploads/2021/01/ap202996171900491jpg.jpeg)
-彭斯是这次大选舞弊的一个关键人士，今天我们就单说一下这位政治人士。
+一Common-size analysis of the Balance Sheet 包含每一项占总资产的百分比
 
-迈克尔·理查德·彭斯（Michael Richard Pence）出生：1959年6月7日（年龄61岁），印第安纳州哥伦布。一位美国政治人士，现任美国第48任现任副总统。 从2013年至2017年，他是印第安纳州的第50位州长，从2001年至2013年，他在美国众议院担任了六个任期。
+二Balance Sheet Ratio 仅包含资产负债表中的项目
 
-这次美国大选前所未有达到登峰造极的地步，这也就是2020年11月3日下届总统难产的主要原因，要想扭转这个局面，今天2021年1月6日是一个关键日，今天是彭斯作为参议院议长有权拒绝6摇摆州的选举认证（大选作弊）而退回各州议会决定，这样拜登就没达到当选的270票。
+三Liquidity Ratio 短期债务偿付能力
+![]()![](https://gnews.org/wp-content/uploads/2021/01/表1.png)
+四Solvency Ratio 长期债务偿付能力
+![]()![](https://gnews.org/wp-content/uploads/2021/01/表2.png)
+五Classification of Cash Flow and Non-cash Activities
 
-川普总统发推和今日演讲中一再说，副总统有权拒绝作弊的选举人票。彭斯也在这几日的演讲中承诺“我和几百万美国人一样对选举违规有担忧”，并保证6日“有机会在国会表达，听取证据”。彭斯如做出正确抉择，将决定大选结果和他本人政治命运。有的时候一个关键人物的关键举动将改变历史的轨迹。
+1.运营活动Operating Activities:
 
-但彭斯总统是一个谨慎胆小循规蹈矩的人，而且非常在乎他的清名，邪恶力量看到这就是彭斯的软肋，对他的名声进行了威胁，彭斯退却了，他准备放弃他的职责，于1月5日去以色列访问（休假），以避开这个关键日。但在川普总统和他进行了2个小时的白宫谈心后，他改变了想法，取消了计划。
+2.Create Revenue（Inventory， Service，………）
 
-彭斯是一位虔诚的基督教徒，如果他逃避自己的职责，美国有可能因为这此大选舞弊而抗争升级，爆发国内战争，会有许多人将会为美国的民主自由而牺牲生命，这是一个沉重的代价，这不符合基督大爱精神。
+3.Cash Receipts and any payments that related to Dealing security or Trading security
 
-他目前的摇摆态度主要是他太在乎自己的羽毛，太计较自己的得失，我们希望他能够明白他是人不是神，神都有忏悔的事情更何况他只是一个人！如果他能明白这个道理，忘掉自己的过往，看淡个人得失，按照基督精神，按照神的旨意，做正确的事，他将成为挽救美国于危难的英雄，和川普总统并肩而立留下历史英名。
+4.投资活动Investing Activities：
 
-不管如何他都会在美国历史乃至世界史上留下自己的名字，抑或英雄抑或历史罪人，如何他真正地爱惜自己的羽毛，那就勇敢地站起来，履行自己的职责，救美国于危难之中！
+5.Purchase and Selling Long-term Asset and other investment
 
-愿上帝保佑美国！
+6.Property, Plant, Equipment
 
-+2
+7.资产的出售损失不计入在内，影响收入，但是不影响现金流
+
+8.融资活动Financing Activities：
+
+9.Include Obtaining or Repaying capital
+
+10.Non-Cash Transaction: Does not involve an inflow or outflow of cash
+
+11.由于可能影响公司的资本 / 资产结构
+
+12.因此任何重大非现金交易都应在单独在附录或现金流补充表中给与披露
+
+13.Separate Note / Supplement Schedule
+
+14.Non-monetary Asset非货币资产互换
+
+15.Common Stock for dividend
+
+16.Convertible Bond
+
+17.Convertible Preferred Stock
+
+六Summary of differences Between IFRS and US GAAP
+![]()![](https://gnews.org/wp-content/uploads/2021/01/表3.png)
+七Direct and Indirect Methods for Reporting Chas flow from Operating Activities
+
+1.Chas Flow From Operating Activities：
+
+2.Net Amount of Cash Flow provided from operating activities
+
+3.Direct Method：（更受欢迎对于IFRS / US GAAP / 分析师 / 贷方）
+
+4.Specific Cash Inflows and Outflows / Result in reported cash flow from operating activities
+
+5.US GAAP虽然鼓励直接法，但仍要求净收入和现金流之间的对账（相当于间接法）
+
+6.主要争论优势Primary Argument
+
+7.直接方法提供了具体的运营活动现金付款和收款的来源
+
+8.Provide Information on specific sources of operating cash receipt and payment
+
+9.Indirect Method：How Cash Flow can be obtained from reported Net Income as the result of a series of adjustment
+
+八Indirect-Format Cash flow statement Prepared under IFRS
+
+Operating Activities 要求被体现，而且要求从净收入开始（Net Income）
+
+九Direct-format cash Flow Statement Prepared under IFRS
+
+Investing / Financing Section 要求被体现
+
+十Illustration of Cash Flow statement prepared under US GAAP
+
+Operating Activities 要求体现Indirect-Format
+
+十一Linkages with the Balance Sheet
+![]()![](https://gnews.org/wp-content/uploads/2021/01/表4.png)
+十二Linkages with the Income Statement
+![]()![](https://gnews.org/wp-content/uploads/2021/01/表5.png)
+Author：搞笑排行榜
+
+Original opinion article by Himalaya G-farm Vancouver
+
+2021/01/06
+
+0

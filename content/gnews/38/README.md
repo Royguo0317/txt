@@ -1,33 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [危机中的重生] 1月6日美国总统大选之决战时刻系列报导(7)
-` 旧金山-金喜准农场` [轉載自GNews](https://gnews.org/zh-hans/723754/)
+## [危机中的重生] 1月6日美国总统大选之决战时刻系列报导(9)
+` 旧金山-金喜准农场` [轉載自GNews](https://gnews.org/zh-hans/723828/)
 
-撰稿：文真真 Summer
+**川普总统的支持者，美国爱国者突发占领国会议会，现场精彩时刻照片分享**
 
-【**突发新闻**】**川普支持者聚集国会大厦并冲入议会大厦。人民站出来了！**
+图片收集：小雯
 
-![](https://lh3.googleusercontent.com/TMut2ctezZtUXMbwbAypgexn3nYBO-bZSPii1C-GzwC1IeWQxi8GAayESFhRNWjGASq3CvTE1UA_NgXs5DC1DUzJboZILGCU1gF9HJOaPkI1Qz4yRupWavE2Esmldw1XEL9b_WTi)
+**大选舞弊的叛国者：这就是人民审判你。**
+![](https://lh4.googleusercontent.com/bwb4VqkEJ0azg0TsnRK067aMS9z7ifFZHamdDwD1ApmCzUt8g-h4CqOqnzB8YWwzZx6VBNo-rZTZ-d5fizI9Fppt9gfpL0Ldn_rgqcQK0nbkittOQ6xP0rlGX-dYroaMjayvxjQR)![](https://lh3.googleusercontent.com/TMut2ctezZtUXMbwbAypgexn3nYBO-bZSPii1C-GzwC1IeWQxi8GAayESFhRNWjGASq3CvTE1UA_NgXs5DC1DUzJboZILGCU1gF9HJOaPkI1Qz4yRupWavE2Esmldw1XEL9b_WTi)
+![](https://lh4.googleusercontent.com/bwyUCxJQFjA7sPjJwcLLhKcqhEssgOykNnofX01KtxZxvG1u8xa3KDvdeqLifOL1WmaDxYGHB3v07u7CAI5qSx3Q0BVdvC1QwPMl-k-v7pQhabfISaFU5R9Nq8kEwA4YUODvXmA5)
 
-**文贵**：彭斯已经被特勤人员从安全通道撤离
-**路德**：议会休会，相当于瘫痪。
-
-**文贵**：这一段时间，接下来最关键的是验证选票。朱利安尼很明白。如果证明你是假的，川普总统这段时间就想干什么就干什么。川普总统签署的一个法令。已经不是正常时期。
-昨天Georgia 三个：共和党派黑客进去改最后结果；过程是监控的；国会乱下去；十天特别议会
-
-郭文贵精彩点评：
-
-**中国的伟大：人民能忍耐
-美国的伟大：文明，有法可依**
-
-文贵：现场谁组织的？事实上美国第三党，叫MAGA，已经诞生了。美国宗教信仰的力量。我们正在见证历史。共和党已经和川普决裂了。
-
-**文贵：**这招儿很险。看现场的组织。一定会有人开枪。
-**路德：**彭斯政治生涯结束。
-
-**文贵：**很多所谓世界精英，见完面就觉得，就是这样的人们在控制全世界吗？Elon Musk和他坐一起三次，就更爱你自己。
-
-**郭文贵：**“很多所谓世界精英，见完面就觉得，就是这样的人们在控制全世界吗？”
-
-0
+![](https://lh6.googleusercontent.com/7gNk894VBIMJ5-HXWed0x543OzuEMMUKc7iwtlo1Nrgwn8whMz05ZEd6PUHumthv_tzeGhlpRDuWoAsdWMW0DKZqM3Cvu2Pmf59wqXcjRylZt1E7zzgFze6PkwPieEW8tlSs83Dz)
+![](https://lh5.googleusercontent.com/3L-ZbLbbInQN4eMIqin4b26zeF2gArR-hlqf8AzgDTYJrbdc-TetNTgPuTiMiCubVc4RfeUa5TBrEi9IbhtUppA7qcQZhLgliI2mkFBYYtxCywKCgGoHfPb4zAyAKNIHKbQc9gvx)![](https://lh4.googleusercontent.com/GykBz4uHPUSGXI1O-463hs8NUjgjyGroVjzl1YVwHr51mcsZ1Jhpu8Sjw7dpo1ZrXgBjF0R5SetEgIVSvThpi4g2yw1EYamLScrb61--JBgSgXNkKVfSIYju5P5ewCOg91S0Ji8j)
++2

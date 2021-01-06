@@ -1,45 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选实况】1/6/2021 朱利安尼先生推文：爱国者们请和平表达观点
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723867/)
+## 【热点播报】一位进入国会山的示威者被枪击
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/723943/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/rudygiulianidonaldtrumpukraine.jpg)来源：DON EMMERT/AFP/GETTY IMAGES
-川普总统私人律师、前纽约市长朱利安尼先生推文：“对于所有挑战选举欺诈的爱国者，川普总统希望您和平表达自己的观点，我们是崇尚‘法律与秩序’的一方，您站在正确的一边，无论从历史上看还是从法律上看。请您表示对所有人的尊重。”
+香草山写作组 村北
 
+美东时间一月六日因副总统彭斯在国会拒绝驳回拜登的选举人团，川普总统的支持者占领了国会山，迫使国会休会。下午两点，示威者在国会议院逗留的过程中，一名女性示威者被开枪击中。据称，开抢者是国会山的保卫人员。该女子可能被击中脖子或胸部。推特上的视频中显示该倒地女子口鼻和身下很快出现了大量血液。
 
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-06-at-4.13.18-PM.png)
 
-> To all those patriots challenging the fraudulent election , 
-> 
-> POTUS wants you to EXPRESS YOUR OPINION PEACEFULLY,
-> 
-> We are the law and order party,
-> 
-> You are on the right side of the law and history.
-> 
-> Act with respect for all.
-> — Rudy W. Giuliani (@RudyGiuliani) [January 6, 2021](https://twitter.com/RudyGiuliani/status/1346907496875757575?ref_src=twsrc%5Etfw)
+据郭文贵先生在GTV直播解释，国会山的状况瘫痪了国会，很有可能触发戒严法，将所有三权分立的局面打破，使川普总统的白宫成为美国唯一的权力中心，对美国和人类社会将来的命运意义深远。
 
 
 
-俄亥俄州众议员Jim Jordan也呼吁大家冷静：“停止暴力。请支持首都警察。”
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-> Stop the violence. Support Capitol Police.
-> — Rep. Jim Jordan (@Jim\_Jordan) [January 6, 2021](https://twitter.com/Jim_Jordan/status/1346909940812664834?ref_src=twsrc%5Etfw)
-
-
-
-爱荷华州资深参议员Chuck Grassley的团队发推报平安：“谢谢大家的关心。参议员Grassley现在在一个安全的地方。”
-
-
-
-> Thank you for your concern. Senator [@ChuckGrassley](https://twitter.com/ChuckGrassley?ref_src=twsrc%5Etfw) is in a secure location.
-> — Sen. Grassley Press (@GrassleyPress) [January 6, 2021](https://twitter.com/GrassleyPress/status/1346915858409517056?ref_src=twsrc%5Etfw)
-
-
-
-译者：卡拉马佐夫姐姐【㊙️翻Gnews原创组】
-
-+1
+0

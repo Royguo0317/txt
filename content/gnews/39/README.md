@@ -1,31 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【危机中的重生】彭斯副总统的模棱两可态度激起民意反弹，汹涌人潮剑指国会山
-` 旧金山-金喜准农场` [轉載自GNews](https://gnews.org/zh-hans/723712/)
+## 【大选实况】1/6/2021 朱利安尼先生推文：爱国者们请和平表达观点
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723867/)
 
-新闻和图片搜集：Sharon, 理工男-文起，小雯 ，文舞 编撰：平民游侠
-
-彭斯副总统的声明显然没有表明要拒绝选举结果的意愿。这导致民众不满情绪高涨。很多推特用户直接给予了很不客气的评论。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Screenshot-from-2021-01-06-11-12-36.png)
-If you believe there’s fraud, you’re obligated to do everything in your power to protect the integrity of our election. Period. If you don’t believe there was fraud, be a man & say so. There’s no in between, as this day will define you. WE NEED YOU TO FIGHT FOR INTEGRITY AND THIS ELECTION — FORGET THE FUTURE AT THIS POINT, WE NEED TO FIX THE 2020 ELECTION OR WE ARE NO LONGER THE AMERICA AS WE ONCE KNEW!!!! DO YOUR SWORN DUTY TODAY AND SAVE OUR COUNTRY & OUR FREEDOM!!!! 如果您认为存在欺诈行为，则有义务尽其所能保护我们选举的完整性。 如果您不相信有欺诈行为，那就当个男人并说吧。 两者之间没有区别，因为这一天将定义您。 我们需要您为诚信和这次选举而战-在这个时刻忘记未来，我们需要确定2020年的选举，否则美国就不复存在了!!!! 您今天是否要履行职责，并拯救我们的国家和我们的自由！！！
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Screenshot-from-2021-01-06-12-04-49.png)
-Now we know for certain… He’s the enemy. Thanks for destroying my last hope there is good in government.
-
-现在我们确定谁是我们的敌人了。你毁掉了我对政府的最后希望。
-
-—————————————————————————————————————–
-
-华盛顿挺川群众正在涌向国会山，试图进入议会大楼，与警察发生小规模冲突。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/index.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/01/23423.jpeg)
-——————————————————————————————————————–
-
-华盛顿市长Muriel Bowser宣布实行宵禁。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Screenshot_20210106-114539_Twitter.jpeg)
-美国的历史将真的改变了！
-
-人民不答应大选舞弊冲进国会，参众两院全部撤离，选票认证会议中断。事实上从这一刻起，美国已经出现了第三大党 MAGA，走在最前面的是美国宗教信仰的力量。人民不认可民主党和共和党建制派！这就是民意的力量！这就是美国政局的重建！
+![]()![](https://gnews.org/wp-content/uploads/2021/01/rudygiulianidonaldtrumpukraine.jpg)来源：DON EMMERT/AFP/GETTY IMAGES
+川普总统私人律师、前纽约市长朱利安尼先生推文：“对于所有挑战选举欺诈的爱国者，川普总统希望您和平表达自己的观点，我们是崇尚‘法律与秩序’的一方，您站在正确的一边，无论从历史上看还是从法律上看。请您表示对所有人的尊重。”
 
 
+
+> To all those patriots challenging the fraudulent election , 
+> 
+> POTUS wants you to EXPRESS YOUR OPINION PEACEFULLY,
+> 
+> We are the law and order party,
+> 
+> You are on the right side of the law and history.
+> 
+> Act with respect for all.
+> — Rudy W. Giuliani (@RudyGiuliani) [January 6, 2021](https://twitter.com/RudyGiuliani/status/1346907496875757575?ref_src=twsrc%5Etfw)
+
+
+
+俄亥俄州众议员Jim Jordan也呼吁大家冷静：“停止暴力。请支持首都警察。”
+
+
+
+> Stop the violence. Support Capitol Police.
+> — Rep. Jim Jordan (@Jim\_Jordan) [January 6, 2021](https://twitter.com/Jim_Jordan/status/1346909940812664834?ref_src=twsrc%5Etfw)
+
+
+
+爱荷华州资深参议员Chuck Grassley的团队发推报平安：“谢谢大家的关心。参议员Grassley现在在一个安全的地方。”
+
+
+
+> Thank you for your concern. Senator [@ChuckGrassley](https://twitter.com/ChuckGrassley?ref_src=twsrc%5Etfw) is in a secure location.
+> — Sen. Grassley Press (@GrassleyPress) [January 6, 2021](https://twitter.com/GrassleyPress/status/1346915858409517056?ref_src=twsrc%5Etfw)
+
+
+
+译者：卡拉马佐夫姐姐【㊙️翻Gnews原创组】
 
 +1

@@ -1,20 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选实况】国会山一片混乱：100余人冲进国会大厦后，有一人中枪
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723901/)
+## 【大选实况】1/6/2021 Ted Cruz推文：任何暴力行为，尤其是对抗执法行为，都应受到充分起诉
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723963/)
 
-![Demonstrators enter the U.S. Capitol after breaching security fencing during a protest in Washington, D.C., U.S., on Wednesday, Jan. 6, 2021. The U.S. Capitol was placed under lockdown and Vice President Mike Pence left the floor of Congress as hundreds of protesters swarmed past barricades surrounding the building where lawmakers were debating Joe Biden's victory in the Electoral College.]()![Demonstrators enter the U.S. Capitol after breaching security fencing during a protest in Washington, D.C., U.S., on Wednesday, Jan. 6, 2021. The U.S. Capitol was placed under lockdown and Vice President Mike Pence left the floor of Congress as hundreds of protesters swarmed past barricades surrounding the building where lawmakers were debating Joe Biden's victory in the Electoral College.](https://www.hindustantimes.com/rf/image_size_960x540/HT/p2/2021/01/07/Pictures/protests-presidential-result-session-election-congress-confirms_d1ec8bfa-505f-11eb-8a1e-473a39b025b8.jpg)来源: Bloomberg
-据新闻网站zerohedge报道，在100余人冲进国会大厦之后，有一人中枪，还有1000余人在国会大厦外和平抗议，彭斯副总统目前在一个安全的地方，首都在今晚六点之后宣布戒严。
-
-
-
-新闻来源
-
-[One Person Shot After Protesters Storm Capitol; Trump Urges “Stay Peaceful”](https://www.zerohedge.com/political/capitol-hill-staffers-ordered-evacuate-after-protesters-breach-security)
-
-翻译报道：卡拉马佐夫姐姐【㊙️翻Gnews原创组】
+![Sen. Ted Cruz]()![Sen. Ted Cruz](https://nypost.com/wp-content/uploads/sites/2/2021/01/210102-ted-cruz-election.jpg?quality=90&amp;strip=all&amp;w=618&amp;h=410&amp;crop=1)来源：Olivier Douliery/Pool/AFP via Getty Images
+1月6日下午近两点钟，得克萨斯州参议员Ted Cruz推文：“暴力永远是不可接受的，哪怕激情再高。任何暴力行为，尤其是对抗执法的行为，都应受到充分起诉。愿上帝保佑首都的警察和尊敬的执法人员，他们展现出极大的勇气，确保我们所有人的安全。”
 
 
+
+> Violence is always unacceptable. Even when passions run high.
+> 
+> Anyone engaged in violence—especially against law enforcement—should be fully prosecuted. 
+> 
+> God bless the Capitol Police and the honorable men & women of law enforcement who show great courage keeping all of us safe.
+> — Ted Cruz (@tedcruz) [January 6, 2021](https://twitter.com/tedcruz/status/1346906229189341184?ref_src=twsrc%5Etfw)
+
+
+
+参议员Ted Cruz另外一条推文说到，“那些冲进国会大厦的人需要立即停止！宪法保护的是和平抗议，但是暴力（无论是左派还是右派）总是错误的！那些从事暴力活动的人恰恰正在伤害他们自己所支持的东西（法律与秩序）。”
+
+
+
+> Those storming the Capitol need to stop NOW. 
+> 
+> The Constitution protects peaceful protest, but violence—from Left or Right— is ALWAYS wrong.
+> 
+> And those engaged in violence are hurting the cause they say they support.
+> — Ted Cruz (@tedcruz) [January 6, 2021](https://twitter.com/tedcruz/status/1346911179042484230?ref_src=twsrc%5Etfw)
+
+
+
+译者：卡拉马佐夫姐姐【㊙️翻Gnews原创组】
 
 0

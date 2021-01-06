@@ -1,98 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 会计，财报，审计入门基础与介绍（九）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/723909/)
+## 山东舰总设计师被查处，爆出海军贪腐和航母真实战斗力
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/724067/)
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/WX20201228-134452@2x.png)Picture Source: https://www.groomassocies.com
-在第九篇中是继详细展示财务审计所涉及资产负债表中各项目内容后的具体量化分析步骤与逻辑流程。有助于投资人或审计师依照逻辑且合理的量化程序对于财务报表中的资产负债表进行检阅。
+俄罗斯莫斯科喀秋莎农场 DongDong
 
-一Common-size analysis of the Balance Sheet 包含每一项占总资产的百分比
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/maxresdefault-6.jpg)Youtube
+2021年1月4日，元旦刚刚过去，中纪委网站就公布了原山东舰总设计师胡问鸣违纪违法，开除党籍的处分决定[1]。事实上，早在2020年5月12日中船重工集团原一把手胡问鸣便公开落马接受纪委双规调查，如今只是最终调查结果落地而已[2]。
 
-二Balance Sheet Ratio 仅包含资产负债表中的项目
+航母被认为是中共国力的代表，作为国产航母山东舰总设计师的胡问鸣被外界认为工作有魄力、专业能力出众，按照中共内部的潜规则，对国防事业做出重大贡献者，即便有些小瑕疵，也是可以谅解的。况且，胡在2019年09月已经“退休”。但因胡前副手孙波于2018年6月被双规，据传是因为泄露中国首艘国产航母机密文件给外国情报[3]，或许胡牵涉到孙波案件之中，外界估计胡问鸣的案件亦或会牵涉到前海军上将吴胜利。
 
-三Liquidity Ratio 短期债务偿付能力
-![]()![](https://gnews.org/wp-content/uploads/2021/01/表1.png)
-四Solvency Ratio 长期债务偿付能力
-![]()![](https://gnews.org/wp-content/uploads/2021/01/表2.png)
-五Classification of Cash Flow and Non-cash Activities
+从徐才厚、郭伯雄等军虎案可知，军工贪腐领域涉及巨额资金。山东舰若涉腐败，就会向上峰故意隐瞒中国航母的质量，即便是总指挥胡问鸣也背不起这个锅。
 
-1.运营活动Operating Activities:
+实际上，在吴胜利卸任次年2018年，就有举报信息传出，在一艘航母项目上的产品价格审计，足够再打造二艘还绰绰有余，吴胜利在山东舰上有操作，并且“吞了一大笔”。
 
-2.Create Revenue（Inventory， Service，………）
+山东舰原先称为002号舰，2017年底初次试水就发现冒黑烟的现象。从军事行动角度来说，对手或许无需打开雷达，从高空就能发现山东舰的位置。胡在回答记者提问时，故意用专业术语转移观众注意力，并信誓旦旦表示山东舰吨位大、停放飞机多，暗示已达到国际先进水平，试图掩盖山东舰的真实战斗力[4]。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Snipaste_2021-01-07_05-56-53.png)
+中共国产航母山东号12月17日开始服役。图为其2018年5月下水测试。(Getty Images)
 
-3.Cash Receipts and any payments that related to Dealing security or Trading security
+但国际军事专家认为，中共海军可能永远也追不上美国。山东号于2019年12月26日行经台湾海峡，与同期下水测试的美国第二艘福特级核动力航母肯尼迪号相比，山东号被国际媒体讥为“海上漂浮的纸老虎”[5]。
 
-4.投资活动Investing Activities：
+例如，山东号就是俄制辽宁号的翻版，有着相同的弱点：既不是核动力，也不具备攸关整体战力的舰载机起飞弹射装置。再例如，山东号在无燃料补给情况下，最多只能在太平洋上航行6天。若要长途航行，必须再给山东号配一艘专门的燃料补给舰。届时，对手无需直接攻击山东号，只需打掉燃料补给舰，山东号就只能永远漂浮在太平洋上。
 
-5.Purchase and Selling Long-term Asset and other investment
+管中窥豹，中共国军队腐败堪称世界任何军队之最。据报道，中共国军队在江泽民时期已腐败不堪，中共国军队高官甚至派遣军舰到海外载运家电和汽车走私入口。身兼军委主席的江泽民曾下令军队停止经商，但遭到军方抵制，或者改头换面，继续变相经商。
 
-6.Property, Plant, Equipment
+上行下效，直到2018年6月才强行停止了军队有偿服务，换句话说，也就是停止军队经商，军队经商是导致中共国军队腐败的根源。与此同时，军头们占山为王，买官卖官，吃拿卡要，重大国防建设项目变相成为敛财工具。外媒一次次提出疑问，腐败的党军战斗力有多强？真的像战狼外交部所宣称的那样么？
 
-7.资产的出售损失不计入在内，影响收入，但是不影响现金流
+从山东号总设计师被查处，到海军前总司令吴胜利故意提高航母造价，再到故意夸大航母战斗能力，以及曾经的郭伯雄、徐才厚案件，得出一个简单的结论：中共军人心中没有信仰、没有民族和国家、只有个人利益。在那里，真正的爱国者是会被打压、被牺牲、被耻笑的，这种党军就是乌合之众，毫无战斗力，是一吹就倒的“纸老虎”！
 
-8.融资活动Financing Activities：
+参考链接:
 
-9.Include Obtaining or Repaying capital
+[1] [原中国船舶重工集团董事长胡问鸣被开除党籍，曾任首艘国产航母山东舰研制总指挥](https://www.sohu.com/a/442307023_120914498)
 
-10.Non-Cash Transaction: Does not involve an inflow or outflow of cash
+[2] [陈思敏：山东舰的锅背不起胡问鸣或供出吴胜利](https://www.epochtimes.com/gb/20/6/28/n12217098.htm)
 
-11.由于可能影响公司的资本 / 资产结构
+[3] [中船重工一把手胡问鸣被退休 前副手已落马](https://www.epochtimes.com/gb/19/9/5/n11501495.htm)
 
-12.因此任何重大非现金交易都应在单独在附录或现金流补充表中给与披露
+[4] [独家！央视记者带您近距离探访国产航母 研制总指挥披露最新进展](http://m.news.cctv.com/2017/08/03/ARTIoxESWOCRQCrQJP3Q4b5Q170803.shtml)
 
-13.Separate Note / Supplement Schedule
-
-14.Non-monetary Asset非货币资产互换
-
-15.Common Stock for dividend
-
-16.Convertible Bond
-
-17.Convertible Preferred Stock
-
-六Summary of differences Between IFRS and US GAAP
-![]()![](https://gnews.org/wp-content/uploads/2021/01/表3.png)
-七Direct and Indirect Methods for Reporting Chas flow from Operating Activities
-
-1.Chas Flow From Operating Activities：
-
-2.Net Amount of Cash Flow provided from operating activities
-
-3.Direct Method：（更受欢迎对于IFRS / US GAAP / 分析师 / 贷方）
-
-4.Specific Cash Inflows and Outflows / Result in reported cash flow from operating activities
-
-5.US GAAP虽然鼓励直接法，但仍要求净收入和现金流之间的对账（相当于间接法）
-
-6.主要争论优势Primary Argument
-
-7.直接方法提供了具体的运营活动现金付款和收款的来源
-
-8.Provide Information on specific sources of operating cash receipt and payment
-
-9.Indirect Method：How Cash Flow can be obtained from reported Net Income as the result of a series of adjustment
-
-八Indirect-Format Cash flow statement Prepared under IFRS
-
-Operating Activities 要求被体现，而且要求从净收入开始（Net Income）
-
-九Direct-format cash Flow Statement Prepared under IFRS
-
-Investing / Financing Section 要求被体现
-
-十Illustration of Cash Flow statement prepared under US GAAP
-
-Operating Activities 要求体现Indirect-Format
-
-十一Linkages with the Balance Sheet
-![]()![](https://gnews.org/wp-content/uploads/2021/01/表4.png)
-十二Linkages with the Income Statement
-![]()![](https://gnews.org/wp-content/uploads/2021/01/表5.png)
-Author：搞笑排行榜
-
-Original opinion article by Himalaya G-farm Vancouver
-
-2021/01/06
+[5] [“山东号”过台海 曝中共战力难敌美舰](https://www.epochtimes.com/gb/19/12/30/n11753936.htm)
 
 0

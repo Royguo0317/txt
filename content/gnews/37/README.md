@@ -1,31 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【三篇专栏】旧文重发：川普会以组建新党作为获胜筹码吗？
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/723790/)
+## 【大选实况】国会山一片混乱：100余人冲进国会大厦后，有一人中枪
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723901/)
 
-**作者： 三票先生**
-
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/三票专栏.png)
+![Demonstrators enter the U.S. Capitol after breaching security fencing during a protest in Washington, D.C., U.S., on Wednesday, Jan. 6, 2021. The U.S. Capitol was placed under lockdown and Vice President Mike Pence left the floor of Congress as hundreds of protesters swarmed past barricades surrounding the building where lawmakers were debating Joe Biden's victory in the Electoral College.]()![Demonstrators enter the U.S. Capitol after breaching security fencing during a protest in Washington, D.C., U.S., on Wednesday, Jan. 6, 2021. The U.S. Capitol was placed under lockdown and Vice President Mike Pence left the floor of Congress as hundreds of protesters swarmed past barricades surrounding the building where lawmakers were debating Joe Biden's victory in the Electoral College.](https://www.hindustantimes.com/rf/image_size_960x540/HT/p2/2021/01/07/Pictures/protests-presidential-result-session-election-congress-confirms_d1ec8bfa-505f-11eb-8a1e-473a39b025b8.jpg)来源: Bloomberg
+据新闻网站zerohedge报道，在100余人冲进国会大厦之后，有一人中枪，还有1000余人在国会大厦外和平抗议，彭斯副总统目前在一个安全的地方，首都在今晚六点之后宣布戒严。
 
 
 
+新闻来源
 
-美国大选进入了激烈的媒体战和法律战。媒体已经几乎被左派完全控制，有些貌似右派的媒体也是首鼠两端双边押注，拜登已经自行宣布获胜，主流媒体先入为主宣布拜登胜选为拜登造势，甚至有多国首脑向拜登祝贺，川普处于明显劣势。法律方面，由于美国的法律程序严谨复杂，本次大选民主党和中共做假程度既广又深，拜登一方又花重金聘请500名顶级律师准备与川普进行诉讼，虽然从道义上和法理上川普占有优势，否能取胜尚存变数。
+[One Person Shot After Protesters Storm Capitol; Trump Urges “Stay Peaceful”](https://www.zerohedge.com/political/capitol-hill-staffers-ordered-evacuate-after-protesters-breach-security)
 
-**川普还有一个方法作为谈判筹码争取获胜**，就是利用民意脱离共和党筹建新党，比如平民党。本次大选川普获得了7100万选票，和拜登的做假不同，这些选票是真实的选票，超过了奥巴马2008年创造的6940万普选票（应该也是有假票）的历史记录，如果算上被废弃的、隐瞒的、篡改的、支持他而没有去投票的、投了拜登又想改投川普的等等，川普的支持者应该有7500万-8000万之间。这是一个巨大的民意，在左媒控制舆论、越左越政治正确的情况下，这些支持者绝大部分都是川普的铁粉，川普竞选集会现场的热烈气氛也说明了这一点。从2016年川普第一次参选起，川普就没有获得共和党建制派的支持，实际上川普已经和共和党建制派貌合神离同床异梦，继续留在共和党已经没有意义。如果川普筹建新党，川普的这些近8000万铁粉就是新党的民意基础，共和党的民众基础将被抽干，共和党可能会面临分崩离析的局面。由于拜登和民主党高层丑闻的暴露，可以预期会有相当部分民主党人转靠新党。
+翻译报道：卡拉马佐夫姐姐【㊙️翻Gnews原创组】
 
-除了民意，川普筹建新党的其他条件也基本具备。从立党理念来看，班农的有全球影响力的平民主义就是现成的指导思想，纳瓦罗的理论是其制定经济政策和贸易政策的基础。老将朱利安尼、中坚彭斯彭培奥、新秀汤姆科顿、接受班农平民主义思想的一大批年轻共和党人将是新党的管理骨干。从经济基础上看，川普本来就是在相当程度上依靠广大平民的小额捐款，在民主社会靠平民捐款而在政治上获胜的案例比比皆是，台湾的民进党就是这样逐步走上执政地位的，毕竟民主社会最终是靠选票说话。从媒体来看，新兴的媒体如Parler、Gtv、Gnews等都是很好的平台。
 
-如果川普筹建以平民主义为理念的新党，将会彻底改变美国的政治格局。在川普之前，美国两党政治已经逐渐权贵化精英化，脱离了民众基础。权贵和精英掌握着话语权和实际的行政权，虽然民众有选票但是民众只能在权贵和精英中选择，在坏的政客中选择一个相对不坏的，没有其他选择余地。这就造成了权贵和精英会牺牲平民的利益，比如和极权政体勾兑搞全球化，造成产业空心化、失业率增加，平民利益受损而华尔街的权贵精英获利。由于媒体也基本为权贵精英掌控，平民没有发声的渠道，目前连相对自由的自媒体也被权贵精英左右。平民主义新党的建立，将使平民有一个提出政治诉求、选出自己利益的代理人、影响政治决策、发出自己声音的政治渠道，一扫华盛顿官场的陈腐陋习，真正回归美国《独立宣言》以及后来林肯提出的民有、民享、民治的治国理念。组建新党只是导致了民主党和共和党的分裂，并不会导致美国分裂，相反美国会有一个强大的平民主义新党，美国会变得更加强大！
 
-当然川普为本次大选筹建新党已经来不及，但**可以作为一个谈判筹码**，挟民意以逼诸侯。民主共和两党因为担忧本党的分裂，被新党釜底抽薪，做出让步是很有可能的。但是如果万一败选，筹建新党就是一个可以操作的方案，在两年后的国会中期选举中争取议会的席位，四年后冲刺总统宝座。目前那些内心里支持川普但在民意、理念和建制派利益之间徘徊、不敢公开支持川普的政治人物，就会公开加入新党而支持川普，不排除立即就有很多国会议员宣布加入新党，新党的民意基础为他们提供了一个不同于旧党的快速上升通道，新党甚至有可能立即在议会里与民主共和两党分庭抗礼。
-
-由于郭文贵先生领导的爆料革命对美国政界、华尔街、硅谷、媒体等权贵精英同极权国家勾兑、牺牲平民利益的爆料，美国成立新党的民意基础已经形成并且有燎原之势。不管胜选还是败选，筹建平民主义新党都是川普的有利选项。这是一件值得观察和期待的重大历史事件。
-
-[【世事解评】川普会以组建新党作为获胜筹码吗 – GNEWS](https://gnews.org/zh-hans/538523/)
-
-+1
+0
