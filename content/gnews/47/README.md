@@ -1,19 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 宾州参议院以“有可疑行为”为由要求延迟选举人票的认证
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/722983/)
+## 【大选实况】01/06/2021 美东时间早9:17 Tom Fitton推文：选举政变
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723177/)
 
-摘译自[washingtonexaminer](https://www.washingtonexaminer.com/news/trump-senate-pennsylvania-delay-electoral-votes)新闻
+Tom Fitton推文：选举政变：左派及其盟友（有意无意地）违反宪法，并在更改邮寄投票规则时违法——计数非法选票会导致对拜登当选的认证无效。证据表明川普总统已经合法胜出
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture-16.jpg)
+推文链接：[https://twitter.com/tomfitton/status/1346823188303515648?s=21](https://twitter.com/tomfitton/status/1346823188303515648?s=21)
 
-翻译：tiger64 (德国慕尼黑感恩农场)
-
-
-
-特朗普总统周二晚间表示，宾夕法尼亚州参议院要求周三推迟对该州的选举人票进行核证，这表明选举过程中存在争议之处。 在致参议院多数党领袖米奇·麦康奈尔和众议院少数党领袖凯文·麦卡锡的信中，议员们在选举过程中引用了“非法违规行为”，指责宾夕法尼亚州州长汤姆·沃尔夫，州务卿凯西·博克瓦尔和“流氓”州最高法院违背权力平衡背离州立法机关。 议员们说，明智的做法是等到美国最高法院完成针对唐纳德·J·特朗普和布科瓦尔的案件进行听证，尽管地区法院在10月已经驳回过此案件。该案件着眼于调查在冠状病毒大流行期间进行的选票，包括取消对邮寄选票的签名核对要求，是否违反宪法。 信中写道：“我们要求您推迟对选举人团的认证，以便我们追求的联邦选举诚信的正当程序得到保证。”
-
-特朗普在推特上写道，“宾夕法尼亚州的大新闻！”
-![source: twitter]()![source: twitter](https://gnews.org/wp-content/uploads/2021/01/image-57.png)source: twitter
-国会定于周三认证选举结果。大约有十几名共和党参议员表示，他们将反对有利于总统当选人拜登的选票认证。
+By【秘密翻譯組 G-Translators – 北美組】
 
 0

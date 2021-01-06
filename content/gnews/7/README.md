@@ -1,17 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【决战48小时】要创建属于新中国联邦自己的制度
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/723019/)
+## 【大选实况】01/06/2021 朱利安尼推特：六天后能得到关于总统大选的答案
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723303/)
 
-- 编辑：文顺、Victor Torres
-- 听写：Goodgo
+![Trump, Lying, Insists Rudy Giuliani Acted Alone on Ukraine | Vanity Fair]()![Trump, Lying, Insists Rudy Giuliani Acted Alone on Ukraine | Vanity Fair](https://media.vanityfair.com/photos/5d8b8fcbfb266600089efad8/5:3/w_1940,h_1163,c_limit/rudygiulianidonaldtrumpukraine.jpg)来源：DON EMMERT/AFP/GETTY IMAGES.
+【大选实况】01/06/2021美东时间早12:00朱利安尼推特：这次 “拯救美国 “游行是为了要求检查机器和选票，而这些机器和选票都是骗子们所隐瞒的。  如果这是一场干净的选举 为什么他们要隐藏证据？六天后我们就能得到答案。
 
 
-**西班牙2021年1月6日电/西喜社/——**1月6日，郭先生就未来新中国的制度表示要创建属于新中国联邦自己的制度。
 
-郭先生说：“新中国联邦要摆脱民主国家的的缺点——选举人制度，科技和选举要结合起来是非常高效的，但不会跟任何国家的制度相同。”
+> This Save America March is to demand an examination of the machines and the ballots the crooks are concealing. If it was a clean election why are they hiding the proof?. In 6 days we can get the answer.
+> — Rudy W. Giuliani (@RudyGiuliani) [January 6, 2021](https://twitter.com/RudyGiuliani/status/1346862851240165382?ref_src=twsrc%5Etfw)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
-0
+
+译者：Skagen【㊙️翻Gnews原创组】
+
++1

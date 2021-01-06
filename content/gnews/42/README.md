@@ -1,13 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选实况】01/06/2021 美东时间早9:17 Tom Fitton推文：选举政变
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723177/)
+## [危机中的重生] 1月6日美国总统大选之决战时刻系列报导 3
+` 旧金山-金喜准农场` [轉載自GNews](https://gnews.org/zh-hans/723230/)
 
-Tom Fitton推文：选举政变：左派及其盟友（有意无意地）违反宪法，并在更改邮寄投票规则时违法——计数非法选票会导致对拜登当选的认证无效。证据表明川普总统已经合法胜出
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture-16.jpg)
-推文链接：[https://twitter.com/tomfitton/status/1346823188303515648?s=21](https://twitter.com/tomfitton/status/1346823188303515648?s=21)
+撰写：**战刀** 旧金山 金喜准农场
 
-By【秘密翻譯組 G-Translators – 北美組】
+**郭文贵：今天，大家都需要川普会赢！**
 
-0
+文贵先生说, “今天是世界终极之战 ,但很多人并没有意识到这个事情,今天这场2020大选只有爆料革命, 在三年前就强调了， 这是关键的一个月；这是决定生死的时刻 ；今天, 大家都需要川普会赢！”
+![Why no-one should be surprised Donald Trump won the election | The  Independent | The Independent]()![Why no-one should be surprised Donald Trump won the election | The  Independent | The Independent](https://static.independent.co.uk/s3fs-public/thumbnails/image/2016/11/09/04/trump-0.jpg)
+“但我想告诉大家，今天还是不可能出最终的结果。从二战到今天,人类有太多的幻想和美好的希望 ,漠视了挑战黑暗 ,在这个时候 黑暗和挑战一直在伴随着我们人类,人类始终是选择了漠视 或者不去正视解决人类生存的问题。2020年的美国总统大选已经是第3次世界大战的正式开启, 是超限战，宗教战, 包括一切和14亿中国人的命运决战 。”
+
+这场终极之战将影响到我们中国人是否成为奴才,还是成为民主自由的世界公民,还是中国以民为主的政权选择 ,今天的终极之战我们会学到看到很多东西,非常残酷 ，白宫和华盛顿在一次次的交易都在进行中,当我们现在就在镜头前的这一刻,可能有人在另外的半球还在睡眠中,人类正在面临生死存亡的选择,现在从太空中所有太空武器 ，海里潜水装备和武器遍布五大洋七大洲 ，我们都在面临到人类生死选择的关键时刻 ,我们爆料革命新中国联邦 正在承担重要的角色 。”
+
+**“我们正在战斗中 ，川普总统一定会赢！”**
+
+
+
++1
