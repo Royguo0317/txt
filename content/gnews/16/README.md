@@ -1,25 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【危机中的重生】1月6日美国总统大选之决战时刻系列报导 5
-` 旧金山-金喜准农场` [轉載自GNews](https://gnews.org/zh-hans/723520/)
+## 世界各地藏人公开选举西藏流亡政府新领导人
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/723748/)
 
-撰稿：MiJohn
+俄罗斯莫斯科喀秋莎农场 银河
 
+编辑上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1405469032_08.jpg)archive.dalailama.ru
+自由亚洲电台1月4日报道，世界各地的流亡藏人自1月3日起开始新一届西藏流亡政府大选的投票日活动。
 
+哈佛大学毕业的法律学者洛桑森格自2011年以来已连续两届担任藏人中央政府司政，将于2021年5月任期结束后离职。洛桑森格表示，”我们以此向北京传达明确信号，西藏虽然处于被占领状态，但流亡藏人是自由的。如果有选择的机会和条件，我们选择民主。”
 
-**佐治亚州州参议员竞选选情胶着，结果将决定哪个党控制州参议院 **
+生活在26个国家约8万名藏人报名参加2021年选举。印度，作为西藏流亡人口最大的聚集地，在达兰萨拉开设了16个投票站。其他国家的选举也在同步进行。值得关注的是来自《西藏在线杂志》报道，据尼泊尔人权组织(Human Rights Organization of Nepal)消息，在尼泊尔有5名藏人因为投票活动被拘捕，因为投票的时间正好赶上中共国中联部副部长郭业洲对尼伯尔的访问。在该组织向警察局提出申诉后，被捕藏人于同日被释放。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/2017-04-04-Guwahati-GG04_DSC5991.jpg)ru.dalailama.com
+此次为首轮投票，将选出角逐政府领导人职位的两名候选人 。第二轮最终选举将于4月举行，获胜者将成为西藏中央政府下一任领袖，任期5年。
 
-截至今早2021年1月6日，星期三，美东时间9:29 am, 据 《第一美国新闻》（One America News）报道，乔治亚州的两个至关重要的选举将决定哪个党控制参议院。 计票的进行中，随着数字的不断更新，选民一直密切关注结果。
+中共政府不承认成立于1959年的藏人流亡政府。自2010年以来，中共拒绝与藏人领袖达赖喇嘛的代表进行任何对话。
 
-目前，这两场竞选都很接近而难分胜负；但是早期的报道显示，参议员大卫·普度（R. Perdue）仅落后0.2％，而参议员凯利·洛夫勒（Kelly Loeffler）（R）仅落后1％多一点。
+这次选举意义重大。美国总统川普签署了《2020西藏政策与支持法案》（Tibetan Policy and Support Act ，TPSA），强调美国将在西藏主要城市拉萨（Lhasa）设立美国领事馆、呼吁保护西藏环境，提议中共政府与达赖喇嘛进行平等对话。
 
-同时，佐治亚州迪卡伯县（Dekalb County)的报道显示，人们在进行海量数以千计的手工计票方面付出了巨大的努力。 据报道，由于无法解释的技术问题，必须手动重新计算19000多张选票。
+西藏流亡政府主席洛桑桑杰在接受路透社时表示，“通过TPSA，国会已经响亮而明确地发出了它的信息，即西藏仍然是美国的优先事项，美国将继续坚定地支持达赖喇嘛和西藏流亡政府（Central Tibetan Administration，CTA）”，这是西藏自由斗争的胜利。
 
-佐治亚州州务卿表示，预期最晚到今天下午才能得出结果。
+参考链接：
 
-![](https://lh5.googleusercontent.com/NpFfICYwAJgP9p8auK6XFrnAY2IBOTyo9VOPDFWs7QDb0LQORKoFH_OrntxJig47bMchmF_04XZjvKjVlCEnSMoHsbuXypkd_bXLXHxA8ZZCjjoPNQE7vUhWXW-YdJ9wVN0gcZUP)
+[https://www.rfa.org/english/news/tibet/election-01042021200854.html](https://www.rfa.org/english/news/tibet/election-01042021200854.html)
 
-\*图片为《纽约时报》即时计票中
-
-+2
+0

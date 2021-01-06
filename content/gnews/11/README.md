@@ -1,29 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世界各地藏人公开选举西藏流亡政府新领导人
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/723748/)
+## [危机中的重生] 1月6日美国总统大选之决战时刻系列报导(9)
+` 旧金山-金喜准农场` [轉載自GNews](https://gnews.org/zh-hans/723828/)
 
-俄罗斯莫斯科喀秋莎农场 银河
+**川普总统的支持者，美国爱国者突发占领国会议会，现场精彩时刻照片分享**
 
-编辑上传 星河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1405469032_08.jpg)archive.dalailama.ru
-自由亚洲电台1月4日报道，世界各地的流亡藏人自1月3日起开始新一届西藏流亡政府大选的投票日活动。
+图片收集：小雯
 
-哈佛大学毕业的法律学者洛桑森格自2011年以来已连续两届担任藏人中央政府司政，将于2021年5月任期结束后离职。洛桑森格表示，”我们以此向北京传达明确信号，西藏虽然处于被占领状态，但流亡藏人是自由的。如果有选择的机会和条件，我们选择民主。”
+**大选舞弊的叛国者：这就是人民审判你。**
+![](https://lh4.googleusercontent.com/bwb4VqkEJ0azg0TsnRK067aMS9z7ifFZHamdDwD1ApmCzUt8g-h4CqOqnzB8YWwzZx6VBNo-rZTZ-d5fizI9Fppt9gfpL0Ldn_rgqcQK0nbkittOQ6xP0rlGX-dYroaMjayvxjQR)![](https://lh3.googleusercontent.com/TMut2ctezZtUXMbwbAypgexn3nYBO-bZSPii1C-GzwC1IeWQxi8GAayESFhRNWjGASq3CvTE1UA_NgXs5DC1DUzJboZILGCU1gF9HJOaPkI1Qz4yRupWavE2Esmldw1XEL9b_WTi)
+![](https://lh4.googleusercontent.com/bwyUCxJQFjA7sPjJwcLLhKcqhEssgOykNnofX01KtxZxvG1u8xa3KDvdeqLifOL1WmaDxYGHB3v07u7CAI5qSx3Q0BVdvC1QwPMl-k-v7pQhabfISaFU5R9Nq8kEwA4YUODvXmA5)
 
-生活在26个国家约8万名藏人报名参加2021年选举。印度，作为西藏流亡人口最大的聚集地，在达兰萨拉开设了16个投票站。其他国家的选举也在同步进行。值得关注的是来自《西藏在线杂志》报道，据尼泊尔人权组织(Human Rights Organization of Nepal)消息，在尼泊尔有5名藏人因为投票活动被拘捕，因为投票的时间正好赶上中共国中联部副部长郭业洲对尼伯尔的访问。在该组织向警察局提出申诉后，被捕藏人于同日被释放。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/2017-04-04-Guwahati-GG04_DSC5991.jpg)ru.dalailama.com
-此次为首轮投票，将选出角逐政府领导人职位的两名候选人 。第二轮最终选举将于4月举行，获胜者将成为西藏中央政府下一任领袖，任期5年。
-
-中共政府不承认成立于1959年的藏人流亡政府。自2010年以来，中共拒绝与藏人领袖达赖喇嘛的代表进行任何对话。
-
-这次选举意义重大。美国总统川普签署了《2020西藏政策与支持法案》（Tibetan Policy and Support Act ，TPSA），强调美国将在西藏主要城市拉萨（Lhasa）设立美国领事馆、呼吁保护西藏环境，提议中共政府与达赖喇嘛进行平等对话。
-
-西藏流亡政府主席洛桑桑杰在接受路透社时表示，“通过TPSA，国会已经响亮而明确地发出了它的信息，即西藏仍然是美国的优先事项，美国将继续坚定地支持达赖喇嘛和西藏流亡政府（Central Tibetan Administration，CTA）”，这是西藏自由斗争的胜利。
-
-参考链接：
-
-[https://www.rfa.org/english/news/tibet/election-01042021200854.html](https://www.rfa.org/english/news/tibet/election-01042021200854.html)
-
-0
+![](https://lh6.googleusercontent.com/7gNk894VBIMJ5-HXWed0x543OzuEMMUKc7iwtlo1Nrgwn8whMz05ZEd6PUHumthv_tzeGhlpRDuWoAsdWMW0DKZqM3Cvu2Pmf59wqXcjRylZt1E7zzgFze6PkwPieEW8tlSs83Dz)
+![](https://lh5.googleusercontent.com/3L-ZbLbbInQN4eMIqin4b26zeF2gArR-hlqf8AzgDTYJrbdc-TetNTgPuTiMiCubVc4RfeUa5TBrEi9IbhtUppA7qcQZhLgliI2mkFBYYtxCywKCgGoHfPb4zAyAKNIHKbQc9gvx)![](https://lh4.googleusercontent.com/GykBz4uHPUSGXI1O-463hs8NUjgjyGroVjzl1YVwHr51mcsZ1Jhpu8Sjw7dpo1ZrXgBjF0R5SetEgIVSvThpi4g2yw1EYamLScrb61--JBgSgXNkKVfSIYju5P5ewCOg91S0Ji8j)
++2
