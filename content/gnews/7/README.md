@@ -1,20 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅速递】突发！川普总统的支持者冲进国会大厦
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723794/)
+## 【大选实况】1/6/2021 朱利安尼先生推文：爱国者们请和平表达观点
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723867/)
 
-作者：Skagen【㊙️翻Gnews原创组】
-责编：沙拉猫
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture-24.jpg)图片来源：[伊丽亚·沙夫推特](https://twitter.com/ElijahSchaffer)
-**2021年1月6号美东时间下午2：18《刀锋电视》记者伊丽亚·沙夫推特报道：川普总统支持者已经冲进了国会大厦，拆掉了4层安全围栏，并试图占领大厦，与联邦警察对抗。**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/rudygiulianidonaldtrumpukraine.jpg)来源：DON EMMERT/AFP/GETTY IMAGES
+川普总统私人律师、前纽约市长朱利安尼先生推文：“对于所有挑战选举欺诈的爱国者，川普总统希望您和平表达自己的观点，我们是崇尚‘法律与秩序’的一方，您站在正确的一边，无论从历史上看还是从法律上看。请您表示对所有人的尊重。”
 
-郭先生在GTV直播时马上切换画面，并让路德先生进行现场解说。郭先生认为这是美国爱国者觉醒，向美国国会施加压力。
 
-这件事的历史意义在于：第一，三权独立的局面将改变，权力将暂时集中于总统一人。第二，从这一刻起，美国政治版图将产生改变，除共和党建制派和民主党外，一只新的政治力量将出现，它的背后推动力就是支持川普的力量，标志着川普总统与共和党建制派的分道扬镳。
 
-新中国联邦作为川普总统的最核心支持力量，将期待美国人民在川普总统的带领下实现让美国再次伟大的目标！也期待着对新中国联邦最有利的结果！
+> To all those patriots challenging the fraudulent election , 
+> 
+> POTUS wants you to EXPRESS YOUR OPINION PEACEFULLY,
+> 
+> We are the law and order party,
+> 
+> You are on the right side of the law and history.
+> 
+> Act with respect for all.
+> — Rudy W. Giuliani (@RudyGiuliani) [January 6, 2021](https://twitter.com/RudyGiuliani/status/1346907496875757575?ref_src=twsrc%5Etfw)
 
-（本文仅代表作者个人观点）
 
-+2
+
+俄亥俄州众议员Jim Jordan也呼吁大家冷静：“停止暴力。请支持首都警察。”
+
+
+
+> Stop the violence. Support Capitol Police.
+> — Rep. Jim Jordan (@Jim\_Jordan) [January 6, 2021](https://twitter.com/Jim_Jordan/status/1346909940812664834?ref_src=twsrc%5Etfw)
+
+
+
+爱荷华州资深参议员Chuck Grassley的团队发推报平安：“谢谢大家的关心。参议员Grassley现在在一个安全的地方。”
+
+
+
+> Thank you for your concern. Senator [@ChuckGrassley](https://twitter.com/ChuckGrassley?ref_src=twsrc%5Etfw) is in a secure location.
+> — Sen. Grassley Press (@GrassleyPress) [January 6, 2021](https://twitter.com/GrassleyPress/status/1346915858409517056?ref_src=twsrc%5Etfw)
+
+
+
+译者：卡拉马佐夫姐姐【㊙️翻Gnews原创组】
+
++1

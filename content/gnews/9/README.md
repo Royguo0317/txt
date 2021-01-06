@@ -1,27 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 不到1月20号你千万千万不要有任何的决定！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/724081/)
+## 川普在华盛顿集会上：“我们永远不会让步，我们不会再接受它”
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/724240/)
 
-新闻简述：郭先生在2021年1月4日的GTV直播中说，共产党在备战，因为知道它挡不住全世界灭共的步伐。他也告诫所有人在1月20日之前“千万千万不要有任何的决定”，暗示1月20日之前任何事情都有可能发生，并且爆料革命是这场大戏的主角，对这场戏有一定的掌控力。
-视频来源：[https://gtv.org/video/id=5ff32a75f579a75e0bc3ee01](https://gtv.org/video/id=5ff32a75f579a75e0bc3ee01) (00:49:15-00:50:11, 00:50:33-00:50:55)
-**中英文对照全文**
+翻译：康州盘古农场-黎明的光芒
 
-The Whistleblower Movement has come to this day. Why is the CCP now shouting for preparing for the war, preparing for the war?! Its “preparing for the war” means that it knows that even in the situation when it owns the whole world’s presidents, it still can’t stop the tide of talking down the CCP! Let alone the assumed situation is impossible, it is absolutely impossible!
+校对：康州盘古农场-烟波浩淼
 
-爆料革命到今天，为啥共产党现在大量喊备战、备战呢？！它这备战它知道就是任何情况下全世界都是它的总统啦，它也挡不住全世界灭共的步伐！何况那是不可能的、那是绝对不可能的对吧！
+编辑：康州盘古农场-V
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-8.png)
+唐纳德·川普总统周三在华盛顿发表讲话，宣布他不会承认（败选）。
 
-After seeing Tom Cotton’s Twitter, I was super happy. Yesterday afternoon, I told Mr. Giuliani and Mr. Bannon, “Tom Cotton will definitely quit.” They said, “Impossible.” I was right again – pure luck, right? Don’t make any decisions before January 20th! I say it again, don’t make any decisions before January 20th! So, brothers and sisters and those who are watching the show in the audience, don’t be too involved in the show and feel too desperate. Don’t be like that! Not to mention, in the end, we are one of the leading actors in this show! We still need to bring the show back!
+川普说：”我们永远不会认输。它不会发生……我们不会再接受它。当（选举）涉及偷窃时，你不会让步。” 川普还说：”我们不会再接受了……我们将停止（他们）偷窃。
 
-你看这个 Tom Cotton 的推特以后我特别开心。我昨天下午跟朱利安尼、班农先生我还说，我说：Tom Cotton 他一定会退出的。他说：不可能。又让我说准啦，蒙的蒙的，是吧？！不到1月20号你们都不要有任何的决定！我再说一遍，不到1月20号，你千万千万不要有任何的决定！所以说兄弟姐妹们，咱们现在在台底下看戏的人，啊，别被一场戏给左右啦，要死要活的，那可千万别这样！何况最终这个唱戏的主角咱们还是其中之一啦！咱们还得把这戏给扳回来呢！
+川普还说，一些激进的左派民主党人和 “假新闻媒体 “正试图从他手中偷走选举。”这就是他们已经做了什么，他们正在做什么。”
 
-*【感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/718110/](https://gnews.org/zh-hans/718110/)】*
+这番话是在国会联席会议预定召开前一小时发表的，议员们将在那里统计选举人票。数十名共和党参众两院议员承诺反对对关键州的认证，这很可能会在进行简单的多数投票之前将这一过程拖延许多小时。
 
-翻译：【Cyndi】校对：【Isaiah4031】字幕：【相机过热啊】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+与此同时，副总统迈克·彭斯面临压力，要求他不要宣读乔·拜登在关键州的选举团选票。
 
-喜马拉雅玫瑰园小队出品
+一些法律专家表示，他们不认为彭斯或者其他任何一位副总统在国会联席会议期间有多大的权力，称他的角色主要是礼仪性的。彭斯以副总统的身份，担任参议院主席。
 
-*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
+但川普和他的竞选团队都宣称，彭斯在联合会议期间确实拥有一定程度的权力。
+
+“各州希望纠正他们的投票，他们现在知道这些投票是基于违规和欺诈行为，加上腐败的过程从未获得立法批准，”川普在推特上写道。”迈克·彭斯要做的就是把他们送回州，我们就赢了。做吧，迈克，这是一个需要极大勇气的时刻！”
+
+而根据总统的声明，彭斯方面也认同联合会议期间 “副总统有权力采取行动”。这些话是在声明中驳斥了匿名来源的《纽约时报》报道，称彭斯告诉川普他没有权力。
+
+川普周二晚间发表讲话说：“《纽约时报》关于彭斯副总统今天向我发表的声明的报道是假新闻……我和副总统完全同意。”
+
+针对选举人票提出的选举人团挑战，预计将面临民主党和共和党的打击。据报道，参议院多数党人米奇·麦康奈尔(Mitch McConnell)就此举向共和党参议员发出警告，而参议院第二号共和党人、南达科他州的约翰·图恩(John Thune)则表示，他们挑战各州选举结果的努力将会被 “像中枪的狗一样倒下”。
+
+无论1月6日发生了什么，川普对人们发表的关于不认输的言论将意味着，他可能想继续提高人们对11月3日的选举以及佐治亚州的参议院第二轮选举涉嫌选举舞弊的认识，直到1月20日，即就职典礼日。
+
+作者：杰克·菲利普斯
+
+日期：1/6/2021
+
+原文链接：
+
+[https://www.theepochtimes.com/trump-at-dc-rally-we-will-never-concede-we-will-not-take-it-anymore\_3646010.html](https://www.theepochtimes.com/trump-at-dc-rally-we-will-never-concede-we-will-not-take-it-anymore_3646010.html)
 
 0

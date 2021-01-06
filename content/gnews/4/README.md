@@ -1,23 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】一位进入国会山的示威者被枪击
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/723943/)
+## 【大选实况】1/6/2021 Ted Cruz推文：任何暴力行为，尤其是对抗执法行为，都应受到充分起诉
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723963/)
 
-香草山写作组 村北
-
-美东时间一月六日因副总统彭斯在国会拒绝驳回拜登的选举人团，川普总统的支持者占领了国会山，迫使国会休会。下午两点，示威者在国会议院逗留的过程中，一名女性示威者被开枪击中。据称，开抢者是国会山的保卫人员。该女子可能被击中脖子或胸部。推特上的视频中显示该倒地女子口鼻和身下很快出现了大量血液。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-06-at-4.13.18-PM.png)
-
-据郭文贵先生在GTV直播解释，国会山的状况瘫痪了国会，很有可能触发戒严法，将所有三权分立的局面打破，使川普总统的白宫成为美国唯一的权力中心，对美国和人类社会将来的命运意义深远。
+![Sen. Ted Cruz]()![Sen. Ted Cruz](https://nypost.com/wp-content/uploads/sites/2/2021/01/210102-ted-cruz-election.jpg?quality=90&amp;strip=all&amp;w=618&amp;h=410&amp;crop=1)来源：Olivier Douliery/Pool/AFP via Getty Images
+1月6日下午近两点钟，得克萨斯州参议员Ted Cruz推文：“暴力永远是不可接受的，哪怕激情再高。任何暴力行为，尤其是对抗执法的行为，都应受到充分起诉。愿上帝保佑首都的警察和尊敬的执法人员，他们展现出极大的勇气，确保我们所有人的安全。”
 
 
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+> Violence is always unacceptable. Even when passions run high.
+> 
+> Anyone engaged in violence—especially against law enforcement—should be fully prosecuted. 
+> 
+> God bless the Capitol Police and the honorable men & women of law enforcement who show great courage keeping all of us safe.
+> — Ted Cruz (@tedcruz) [January 6, 2021](https://twitter.com/tedcruz/status/1346906229189341184?ref_src=twsrc%5Etfw)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+参议员Ted Cruz另外一条推文说到，“那些冲进国会大厦的人需要立即停止！宪法保护的是和平抗议，但是暴力（无论是左派还是右派）总是错误的！那些从事暴力活动的人恰恰正在伤害他们自己所支持的东西（法律与秩序）。”
+
+
+
+> Those storming the Capitol need to stop NOW. 
+> 
+> The Constitution protects peaceful protest, but violence—from Left or Right— is ALWAYS wrong.
+> 
+> And those engaged in violence are hurting the cause they say they support.
+> — Ted Cruz (@tedcruz) [January 6, 2021](https://twitter.com/tedcruz/status/1346911179042484230?ref_src=twsrc%5Etfw)
+
+
+
+译者：卡拉马佐夫姐姐【㊙️翻Gnews原创组】
 
 0

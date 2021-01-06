@@ -1,35 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《经济学人》等大外宣试图将马云失踪原因洗白
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/724006/)
+## 不到1月20号你千万千万不要有任何的决定！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/724081/)
 
-*加拿大多伦多枫叶农场 Kent*
+新闻简述：郭先生在2021年1月4日的GTV直播中说，共产党在备战，因为知道它挡不住全世界灭共的步伐。他也告诫所有人在1月20日之前“千万千万不要有任何的决定”，暗示1月20日之前任何事情都有可能发生，并且爆料革命是这场大戏的主角，对这场戏有一定的掌控力。
+视频来源：[https://gtv.org/video/id=5ff32a75f579a75e0bc3ee01](https://gtv.org/video/id=5ff32a75f579a75e0bc3ee01) (00:49:15-00:50:11, 00:50:33-00:50:55)
+**中英文对照全文**
 
-*校对、发稿 文锦*
-![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图364.png) 
-新闻周刊《经济学人》（The Economist）称近来马云被中共盯上并失踪的事，是由于中共为了加大反垄断监管和促进良性竞争，大众一片哗然。
+The Whistleblower Movement has come to this day. Why is the CCP now shouting for preparing for the war, preparing for the war?! Its “preparing for the war” means that it knows that even in the situation when it owns the whole world’s presidents, it still can’t stop the tide of talking down the CCP! Let alone the assumed situation is impossible, it is absolutely impossible!
 
-据《国家脉搏》2021年1月5日报道，马云曾经是中共国最有受欢迎以及最具影响力的企业家之一，他及其商业帝国一直对中共俯首称臣，多家新闻媒体近日来一直在报道他的失踪。
+爆料革命到今天，为啥共产党现在大量喊备战、备战呢？！它这备战它知道就是任何情况下全世界都是它的总统啦，它也挡不住全世界灭共的步伐！何况那是不可能的、那是绝对不可能的对吧！
 
-《经济学人》，它和大多数全球主义机构一样长期活跃于中共国，也像大多数中共的内外宣传媒体一样，正在为现代纳粹党中共将马云消失的事情找借口。
+After seeing Tom Cotton’s Twitter, I was super happy. Yesterday afternoon, I told Mr. Giuliani and Mr. Bannon, “Tom Cotton will definitely quit.” They said, “Impossible.” I was right again – pure luck, right? Don’t make any decisions before January 20th! I say it again, don’t make any decisions before January 20th! So, brothers and sisters and those who are watching the show in the audience, don’t be too involved in the show and feel too desperate. Don’t be like that! Not to mention, in the end, we are one of the leading actors in this show! We still need to bring the show back!
 
-1月2日，《经济学人》发表的文章再次尝试为中共洗白：
+你看这个 Tom Cotton 的推特以后我特别开心。我昨天下午跟朱利安尼、班农先生我还说，我说：Tom Cotton 他一定会退出的。他说：不可能。又让我说准啦，蒙的蒙的，是吧？！不到1月20号你们都不要有任何的决定！我再说一遍，不到1月20号，你千万千万不要有任何的决定！所以说兄弟姐妹们，咱们现在在台底下看戏的人，啊，别被一场戏给左右啦，要死要活的，那可千万别这样！何况最终这个唱戏的主角咱们还是其中之一啦！咱们还得把这戏给扳回来呢！
 
-“中共国处于监管的前沿，12月24日有消息称，信托机构正在调查阿里巴巴，该公司由中共国最著名的企业家马云创办，直到几周前还是其最有价值的上市公司。人们很容易将对马云的镇压看作是共产党残酷权力的又一次展示，这可能是一部分原因，然而主要原因是因为中共国的反垄断监管机构正致力于促进公平竞争、打击垄断。”
+*【感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/718110/](https://gnews.org/zh-hans/718110/)】*
 
-路透社本周报道，阿里巴巴创始人马云在过去两个月里没有出现在公众视野中，包括错过了一档电视节目的最后一集，而他本应作为评委出现在节目中，在中共国监管部门对其庞大的商业帝国进行打压的情况下，这加剧了社交媒体对他下落的猜测。
+翻译：【Cyndi】校对：【Isaiah4031】字幕：【相机过热啊】视频解码：【恒久忍耐】编辑：【Isaiah4031】
 
-这位中共国知名度最高的企业家自10月底在上海举行的一个论坛上发表演讲抨击中共国的监管体系，这让他深陷泥潭，中共领导不会轻易让这个事情就这么过去，这也导致了阿里巴巴旗下的蚂蚁集团金融科技部门370亿美元的IPO被暂停，马云也一直没有再出现在公开场合。
+喜马拉雅玫瑰园小队出品
 
-2020年11月，《经济学人》曾发表文章对即将到来的中共国共产党成立100周年表示祝贺， 和大多数西方新闻机构一样，《经济学人》也接受了中共的赞助旅行以换取 “有利的报道”。
-
-《国家脉搏》上周报导了《福布斯》、《金融时报》、《新闻周刊》、彭博社、路透社、ABC新闻、《经济学人》、《华尔街日报》、法新社、《时代》杂志、《洛杉矶时报》、《山丘》、BBC和《大西洋》如何被列入《外国代理人登记法》文件中，揭示了建制派媒体与中美交流基金会（CUSEF）之间长达10多年的关系。
-
-中美交流基金会是一个中共资助的项目，它以美国媒体、政治家和大学为目标，提出资助政策研究、高层对话和交流项目，中美交流基金会及其在美国的游说伙伴将他们的工作描述为：“在全球最重要媒体上发表有利的研究，政策，报告以及高层对话和交流项目内容, 组织和安排人员到中共国进行 ‘相互了解的商务旅行’,这包括招募顶级记者前往中共国，然后挑选，促使产生出有效，以及有利报道的机会。”
-
-中共对全球媒体的控制和影响已经很深，人们越来越没办法在铺天盖地的假新闻中找到真相，希望人们总是抱有怀疑的目光，深入思考，听取不同声音，保持清醒，坚守人类最简单而纯粹的普世价值，相互尊重、相互理解。
-
-*[原文链接](https://thenationalpulse.com/analysis/the-economist-refers-to-chinese-businessman-disappearance-as-regulation-and-boosting-competition/)*
+*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
 
 0

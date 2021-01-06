@@ -1,49 +1,98 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国议员要求中共国解释新冠病毒来自实验室的说法
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/723911/)
+## 会计，财报，审计入门基础与介绍（九）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/723909/)
 
-新闻来源：The National Pulse《国家脉动》； 作者：； 发布时间：2021年1月4日
+![]()![](https://gnews.org/wp-content/uploads/2020/12/WX20201228-134452@2x.png)Picture Source: https://www.groomassocies.com
+在第九篇中是继详细展示财务审计所涉及资产负债表中各项目内容后的具体量化分析步骤与逻辑流程。有助于投资人或审计师依照逻辑且合理的量化程序对于财务报表中的资产负债表进行检阅。
 
-翻译/简评：Marialu；校对/审核：万人往；Page：拱卒
+一Common-size analysis of the Balance Sheet 包含每一项占总资产的百分比
 
-[!\[\]()!\[\](https://spark.adobe.com/page/wM0j3FCQB5XLQ/images/3551c941-6e58-4021-b681-f48db891270b.jpg?asset_id=d132b25b-80a7-4df4-b05a-f6823e568a70&amp;img_etag=%2209ab5144ef14fb346a55bae1093120af%22&amp;size=2560)](https://spark.adobe.com/page/wM0j3FCQB5XLQ/images/3551c941-6e58-4021-b681-f48db891270b.jpg?asset_id=d132b25b-80a7-4df4-b05a-f6823e568a70&amp;img_etag=%2209ab5144ef14fb346a55bae1093120af%22&amp;size=1024)
+二Balance Sheet Ratio 仅包含资产负债表中的项目
 
-**简评：**
+三Liquidity Ratio 短期债务偿付能力
+![]()![](https://gnews.org/wp-content/uploads/2021/01/表1.png)
+四Solvency Ratio 长期债务偿付能力
+![]()![](https://gnews.org/wp-content/uploads/2021/01/表2.png)
+五Classification of Cash Flow and Non-cash Activities
 
-在美国副国家安全顾问博明声称新冠病毒最可信的起源是武汉病毒研究所之后，英国议员们也强烈要求中共澄清事实，就新冠病毒实验室理论做出回答。英国保守党资深议员汤姆·图根哈特（Tom Tugendhat）和托比亚斯·埃尔伍德(Tobias Ellwood) 呼吁英国政府展开调查，以回应博明坚称”的越来越多的证据”指出新冠病毒源自中共实验室。外交特别委员会主席图根达特抨击中共政府试图掩盖真相，他指出：“中共国如何处理这场大流行病的做法极其令人担忧。他们在信息共享方面一直非常缓慢——无论是关于疫情或其起源。他们把吹哨人关起来，他们有掩盖病毒泄漏的危险。”国防特别委员会主席埃尔伍德表示，英国需要联合美国，共同向中共”要求答案”。他指出：”中共国继续压制任何敢于大声疾呼的地方声音，并持续删除所有网络评论，这表明中共当局有事情隐瞒。”
+1.运营活动Operating Activities:
 
-如今全球被中共病毒感染人数超过8461万，死亡人数超过183.7万。血债血还，到算总账的时候，不是八国联军，而是八十国，乃至一百八十国联合起来向中共要真相，要求中共老实交代病毒起源问题。
+2.Create Revenue（Inventory， Service，………）
 
-中共是一个极不负责任的政党，从1949年到现在，对待老百姓如奴隶，只顾自己的政权，暗箱操作、毫无底线、以黑治国、以警治国。中共知道大势已去，竭力利用宣传机器蒙骗百姓，掩盖真相，鼓吹病毒来自美国或其他国家，”甩锅”给他国。我们强烈呼吁世界各国不要被中共所谓的”世界命运共同体”所蒙蔽。中共一向是好话说尽，坏事做绝，现在还在搅混水，其目的就是要搞垮世界经济。现在只有尽快解体中共，才能让世界人民有一个自由、安全的生存环境，世界经济才能走上正轨。
+3.Cash Receipts and any payments that related to Dealing security or Trading security
 
-**原文翻译：**
+4.投资活动Investing Activities：
 
-# **英国高级国防官员要求中共国就新冠病毒实验室理论做出回答**
+5.Purchase and Selling Long-term Asset and other investment
 
-英国外交和国防议会委员会的主席们响应了美国的呼吁，要求调查新冠病毒的起源，特别调查中共在其中所起的作用。
+6.Property, Plant, Equipment
 
-保守党资深议员汤姆·图根哈特（Tom Tugendhat）和托比亚斯·埃尔伍德(Tobias Ellwood) 呼吁英国政府展开调查，以回应美国国家安全顾问马修·波廷格（或中文名：博明）（Matthew Pottinger）坚称” 的越来越多的证据”指出新冠病毒源自中共实验室。
+7.资产的出售损失不计入在内，影响收入，但是不影响现金流
 
-外交事务特别委员会主席图根达特形容这些指控”极其严重”，然后抨击中共政府的掩盖行动：
+8.融资活动Financing Activities：
 
-”中共国在国际上如何处理（应对）这场大流行病的做法极其令人担忧，他们在分享信息方面一直非常缓慢——无论是关于疫情或其起源。他们把举报者（吹哨人）关起来，现在看来他们有掩盖（病毒）泄漏的危险。”
+9.Include Obtaining or Repaying capital
 
-国防特别委员会主席埃尔伍德表示，英国需要和美国一起向中共”要求答案”。
+10.Non-Cash Transaction: Does not involve an inflow or outflow of cash
 
-他指出：”中共国继续压制（噤声）任何敢于表达意见的地方声音，并持续删除所有网上评论，这表明当局有事情要隐瞒。”
+11.由于可能影响公司的资本 / 资产结构
 
-[原文链接](https://thenationalpulse.com/breaking/british-ministers-covid-origin/)
+12.因此任何重大非现金交易都应在单独在附录或现金流补充表中给与披露
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+13.Separate Note / Supplement Schedule
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+14.Non-monetary Asset非货币资产互换
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+15.Common Stock for dividend
 
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/wM0j3FCQB5XLQ/)
+16.Convertible Bond
 
-[!\[\]()!\[\](https://spark.adobe.com/page/wM0j3FCQB5XLQ/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/wM0j3FCQB5XLQ/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+17.Convertible Preferred Stock
+
+六Summary of differences Between IFRS and US GAAP
+![]()![](https://gnews.org/wp-content/uploads/2021/01/表3.png)
+七Direct and Indirect Methods for Reporting Chas flow from Operating Activities
+
+1.Chas Flow From Operating Activities：
+
+2.Net Amount of Cash Flow provided from operating activities
+
+3.Direct Method：（更受欢迎对于IFRS / US GAAP / 分析师 / 贷方）
+
+4.Specific Cash Inflows and Outflows / Result in reported cash flow from operating activities
+
+5.US GAAP虽然鼓励直接法，但仍要求净收入和现金流之间的对账（相当于间接法）
+
+6.主要争论优势Primary Argument
+
+7.直接方法提供了具体的运营活动现金付款和收款的来源
+
+8.Provide Information on specific sources of operating cash receipt and payment
+
+9.Indirect Method：How Cash Flow can be obtained from reported Net Income as the result of a series of adjustment
+
+八Indirect-Format Cash flow statement Prepared under IFRS
+
+Operating Activities 要求被体现，而且要求从净收入开始（Net Income）
+
+九Direct-format cash Flow Statement Prepared under IFRS
+
+Investing / Financing Section 要求被体现
+
+十Illustration of Cash Flow statement prepared under US GAAP
+
+Operating Activities 要求体现Indirect-Format
+
+十一Linkages with the Balance Sheet
+![]()![](https://gnews.org/wp-content/uploads/2021/01/表4.png)
+十二Linkages with the Income Statement
+![]()![](https://gnews.org/wp-content/uploads/2021/01/表5.png)
+Author：搞笑排行榜
+
+Original opinion article by Himalaya G-farm Vancouver
+
+2021/01/06
 
 0

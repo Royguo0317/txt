@@ -1,44 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 「突发」1/6川普支持者占领美国国会
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/723789/)
+## 【大选实况】1/6/2021 Cruz推文：怒怼搅浑水左派政治新星
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/724011/)
 
-编辑：wenwu 素材来源：旧金山（筹备）准农场
+![]()![](https://cdn.hpm.io/wp-content/uploads/2018/04/18143521/OROURKE_CRUZ-1-1000x670.jpg)来源：houstonpublicmedia.org
+1月6日下午三点多，得克萨斯州参议员Ted Cruz与得克萨斯州极左民主党新星、2020年总统参选者Beto O’Rourke互怼。（O’Rourke曾在2018年中期选举中对阵Ted Cruz参选德州参议员，然而Ted Cruz最终小幅胜出。）
 
-今日川普呼吁副总统彭斯推翻拜登的选举人团选票。据Douglas Braff在Saraacarter.com在当天的报道，美国副总统彭斯发表声明拒绝美国总统川普的呼吁，推翻2020年美国总统当选人拜登的大选胜利。在外等待的川普支持者生气的冲进了国会大楼。
+对于国会山的目前的一片混乱，O’Rourke揶揄Ted Cruz道：“还不是因为你煽动叛乱，给了这些‘恐怖主义者’和他们‘未遂的政变’以灵感。”
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/01/image1-16.jpg)
-- ![]()![](https://gnews.org/wp-content/uploads/2021/01/image3-1.jpg)
-- ![]()![](https://gnews.org/wp-content/uploads/2021/01/image2-5.jpg)
-- ![]()![](https://gnews.org/wp-content/uploads/2021/01/image0-1-17.jpg)
-
-FOX和CNN相继报道川普支持者在1月6日国会开票当天闯进了国会大楼。据ONA报道有一名女士的胸口中枪
-国家是由人民交税养活的。如今美国国会无视大选舞弊，加上GA参议员选举的欺诈选票让美国大选舞弊大戏再演绎一遍，美国人气炸了。今天在国会面前能聚集数十万公民已经证明美国人不是傻瓜，和要求真相的心情。
-
-今日爆料革命的开创者郭文贵先生也相当关注1月6日美国国会大选的进展。郭文贵先生在GTV.org的个人直播账户中看到美国人冲进国会大楼后，表示：
-
-1. 2020/1/20 总统大选出结果被打破了；
-2. 认证选票、和平过渡都取决川普总统，总统行政权力最大化；
-3. 国会被美国川普总统支持者占领，参众两院的运转不会在近期恢复；
-4. 川普可能提出验票和解散国会的总统行政命令；
-5. 美国第三党的成立，这背后力量是来自梵蒂冈宗教的秩序主义者“Party of LAW&ORDER”
-6. 今日国会有人会开枪（如图，ONA已报道）
+Ted Cruz回呛道：“别再挑拨离间、散布仇恨了，停止使用恶意言论（例如虚假鲁莽地指控‘煽动叛乱’）。停止对不同意你的半个国家表示蔑视。暴力是错误的。我们可以做得更好。我们是一个国家。”并在推文最后引用了美国国徽上的一句拉丁文，意思是“合众为一”。
 
 
 
+> Stop stoking division. 
+> 
+> Stop spreading hatred. 
+> 
+> Stop using malicious rhetoric (such as false & reckless charges of “sedition”).
+> 
+> Stop showing contempt for the half of the country that disagrees with you.
+> 
+> Violence is wrong. We can do better. We are one Nation. [#EPluribusUnum](https://twitter.com/hashtag/EPluribusUnum?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/Kikh4dW46u](https://t.co/Kikh4dW46u)
+> — Ted Cruz (@tedcruz) [January 6, 2021](https://twitter.com/tedcruz/status/1346927158384414725?ref_src=twsrc%5Etfw)
 
-> I am asking for everyone at the U.S. Capitol to remain peaceful. No violence! Remember, WE are the Party of Law & Order – respect the Law and our great men and women in Blue. Thank you!
-> — Donald J. Trump (@realDonaldTrump) [January 6, 2021](https://twitter.com/realDonaldTrump/status/1346912780700577792?ref_src=twsrc%5Etfw)
 
 
-美国总统川普于今日当支持者闯入国会大楼后发推
-美国总统川普于下午3点13分钟在推特上表示：支持川普的蓝色大军是属于“Party of Law&Order”,我们希望在国会大楼里是和平，没有暴力。
+评：目前国会山的混乱，是两派激烈斗争的前线，回顾历史，这场景与历史上的那些关键节点发生的冲突或是革命何其相似。这会是计入史册的一天，而现在已经有人受伤。许多人都在呼吁大家冷静，因为局面越来越不好控制，人们在那样的情况下通常也会身不由己。而Beto O’Rourke这时候非但不帮忙，反而冷嘲热讽，挑拨离间，说目前在国会山的示威者是“恐怖主义者”试图“未遂政变”，这只能加深美国的分裂。
 
-从CNN假媒体报道国会大楼就说明已经输了。如果主流媒体报道川普支持者在国会大楼是暴徒行为。那么230法案就必须实施了。推特更只让转推川普下午4点18分钟的推特,该视频只有1分钟左右，内容大致为：我明白你们很生气，对国会很失望，但我希望你们和平，和平的回家。
+译者：卡拉马佐夫姐姐【㊙️翻Gnews原创组】
 
-今日见证美国民心，看到了美国人对选举真相的追求，让人热血沸腾。美国川普总统一定会和他的支持者共进退，如同香港的战士和香港共进退一般！不同的是美国川普总统在新中国联邦和美国信仰的支持下一定会赢。
-
-新闻来源： [https://saraacarter.com/breaking-pence-defies-trumps-calls-to-overturn-bidens-victory/](https://saraacarter.com/breaking-pence-defies-trumps-calls-to-overturn-bidens-victory/)
-
-+2
+0
