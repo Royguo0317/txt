@@ -1,15 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【决战48小时】美国人民支持的不是个人，而是不愿意走共产主义的道路
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/722897/)
+## 【大选实况】01/05/2021 美东时间晚11:05 参议员Marsha Blackburn推文：美国公民和人权律师John Clancey在“国安法”下被捕
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723152/)
 
-- 编辑：文顺、Victor Torres
-- 听写：Goodgo
+参议员Marsha Blackburn推文：美国公民和人权律师John Clancey在“国安法”下被捕，这表现出了中共给与自身的巨大权力，来拘捕和控告被他们视为“颠覆性力量”的任何人。北京把所有的人都掌控在他们的独裁之下。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture-15.jpg)
+推文链接：[https://twitter.com/marshablackburn/status/1346669190653030400?s=21](https://twitter.com/marshablackburn/status/1346669190653030400?s=21)
+
+By【秘密翻譯組 G-Translators – 北美組】
 
 
-**西班牙2021年1月6日电/西喜社/——**1月6日，郭先生在《决战48小时》直播中分析表示，美国人民支持的不是川普总统，也不是任何个人，而是不愿意走共产主义的道路。
 
-郭先生说：“美国人民被共产主义吓怕了。”
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
-+1
+0

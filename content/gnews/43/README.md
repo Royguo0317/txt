@@ -1,37 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 评：熊蕾为中共病毒洗地的谬论
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/722484/)
+## 川普总统在推特发布有关宾州的重大新闻——州参议员因“可疑活动”要求推迟选举认证！
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/722765/)
 
-撰稿: Runaway
+卡珊德拉·费尔班克斯 / 2021年1月5日
+翻译： 康州盘古农场 – Antsee-GTV
+校对： 康州盘古农场 – 柠檬
+审核：康州盘古农场—Truemanman
+![]()![](https://gnews.org/wp-content/uploads/2021/01/图片33.png)
+川普总统周二晚在推特上发布了重大新闻，宾夕法尼亚州参议院议员写信要求推迟选举认证，以等待最高法院的裁决。
 
-编辑：五饼二鱼
+这封信是写给米奇·麦康奈尔（Mitch McConnell）的，信中写道：“在与我们的同僚们交谈之后，大多数州参议员对2020年大选期间在本州发生的许多前后矛盾之处都感到困惑。”
 
-近日大陆网络流传一篇新华社中国特稿社副社长熊蕾撰写的文章，题为《我始终对新冠病毒（SARS-CoV-2）的来源持有怀疑，不吐不快》。文中描述了她曾经做过的一份调查，涉及美国哈佛大学上世纪90年代在中国安徽进行的所谓基因研究项目，在该项目研究中采集了大量的基因样本，以及哮喘和呼吸道疾病患者的生物信息，并由此质疑美国与SARS及SARS-CoV-2的爆发有关。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/熊蕾.png)图片来源网络
-笔者找到了文中提及的熊蕾和汪延2001年发表在《了望》周刊上的题为《令人生疑的国际基因合作研究项目报道》，该文当时质疑的是参与调查的农民的知情权、同意权是否被忽视？国外研究机构获得资金、药企获利，中国百姓的权益和国家利益谁来保护？中方为何如此热心这样的国际合作？问得好!
+这封信由临时议长杰克·科曼（Jake Corman），多数党领袖金·沃德（Kim Ward），参议员朱迪·沃德（JudyWard）和参议员克里斯汀·菲利普斯·希尔（KristinPhillips-Hill）所签署。
 
-在这篇20年前的报道中提及了负责该基因合作研究的的负责人，是美国哈佛大学公共卫生学院副教授、流行病学家徐希平，中方合作伙伴之一的安徽医科大学是徐希平的母校，安医大与哈佛合作成立了安医大生物医学研究所，资金由美国国家健康研究院（NIH）提供。同时参与合作的还有北京医科大学（现为北京大学医学部）和安庆市。
 
-而网络信息显示徐希平是教育部选拔公派出国的留学生，同时也是中科院“百人计划”教授，美《科学》杂志2000年公布NIH基金（RO1）资助排名，徐希平居全美第四、哈佛第一。在北京大学医学部、安徽医科大学、中国科学技术大学、南方医科大学分别建立了分子生物学、分子遗传学等与国际规范接轨的实验室，并建立了一批相关领域多学科合作的科研队伍。用徐希平自己的话“个人的命运同国家的命运是在一起的”，要“打造中国医药产业界的华为”。
 
-熊蕾也许并不明白徐希平背景的含义以及其背后的国家战略，就是利用美国的资金和技术，为中共的统治阶层服务。当时NIH负责基础和应用研究，特别是传染病，例如HIV / AIDS、呼吸道感染、疟疾以及埃博拉和寨卡等新兴疾病，以及有关移植和免疫相关疾病研究的，正是现在大名鼎鼎的Fauci博士。所以当初的所谓国际基因合作研究项目究竟是为谁服务岂不是一目了然。
+> BIG NEWS IN PENNSYLVANIA! [pic.twitter.com/7JqTWYUgOr](https://t.co/7JqTWYUgOr)
+> — Donald J. Trump (@realDonaldTrump) [January 6, 2021](https://twitter.com/realDonaldTrump/status/1346652589673345024?ref_src=twsrc%5Etfw)
 
-另据NEWSWEEK专栏作家章家敦发表的文章称，北京正在以多种方式建立其庞大的DNA数据库，通过收购美国公司来获取美国人的基因。截止去年，共有23家中国关联公司获得了对美国人进行基因检测的资格。所以究竟是谁在非法采集大量的基因样本？
 
-海外大外宣在转载熊蕾的这篇文章时，纷纷冠以中共“红色特工”之女前缀，以此强调其情报背景，就是为应对此前美国副国家安全顾问博明的发言称新冠病毒源头可能就在中国的实验室。
 
-闫博士的两份科学报告早已明确指出，中共病毒是以中共军方拥有的舟山蝙蝠病毒ZC45为骨架，通过人为的基因改造技术在刺突蛋白中引入弗林酶切位点，使病毒具有了更强的传染性。用什么暗示啊、比喻啊试图混淆视听都是徒劳无益的真相只有一个，那把冒烟的枪就在那里摆着呢。
+【推文：宾夕法尼亚州的重大新闻！-唐纳德·J·川普（@realDonaldTrump）2021年1月6日】
 
-（本文纯属个人观点）
+参议员们说：“由于宾夕法尼亚州州长汤姆·沃尔夫（Tom Wolf），州务卿凯西·博克瓦尔（Kathy Boockvar），和无赖的州最高法院，认可了太多违法行为，州立法机构被美国和宾州宪法所赋予对举行选举的时间，地点和方式拥有的制衡权力被剥夺。”
 
-信息来源
+信中继续阐述了宾夕法尼亚州最高法院如何超越其权限允许在大选结束后的三天内（继续）接受邮寄选票并纳入统计，允许没有邮戳的选票被纳入计数，并规定邮寄选票上的签名不需要验证。
 
-[https://www.chinaqw.com/node2/node116/node425/node427/node429/userobject6ai23024.html](https://www.chinaqw.com/node2/node116/node425/node427/node429/userobject6ai23024.html)
+此外，信中提到州务卿博克瓦尔盗用法定权力，允许在关键的民主党地区安置不安全的投票箱，鼓励某些县（非全部）该党派和候选人代表团将含有不合格缺陷的选票投递至此，并允许这些选票被“修正”。
 
-[https://www.newsweek.com/china-wants-your-dna-its-no-good-opinion-1550998](https://www.newsweek.com/china-wants-your-dna-its-no-good-opinion-1550998)
+信中还指出，费城经过认证的共和党监票员被禁止监督投票的进行。
 
-[https://baike.baidu.com/item/%E5%BE%90%E5%B8%8C%E5%B9%B3/17515873](https://baike.baidu.com/item/%E5%BE%90%E5%B8%8C%E5%B9%B3/17515873)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/澳喜图标.png)
+“由于这些不一致和有疑问的行为，我们认为宾夕法尼亚州的选举结果不应该得到州务卿的认证。”，参议员宣称。
+“（尊敬的）国会议员们，我们请求考虑到美国最高法院将在未来几天对川普诉博克瓦尔案进行听证的实际情况，给予更多些时间。 我们请求国会延迟对选举人团结果的认证，以便我们依据正当程序寻求本州选举的公正。”
+
+原文链接： [https://www.thegatewaypundit.com/2021/01/breaking-president-trump-tweets-big-news-pennsylvania-state-senators-ask-election-certification-delayed-due-questionable-activities/](https://www.thegatewaypundit.com/2021/01/breaking-president-trump-tweets-big-news-pennsylvania-state-senators-ask-election-certification-delayed-due-questionable-activities/)
+
 0
