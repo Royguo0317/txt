@@ -1,67 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Veritas项目:中央外联宣传中心（OAC）执行长承认该组织在富尔顿县同一地址登记了数千名无家可归者进行投票（视频）
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/718677/)
+## 午夜倾泻的拜登选票令其舞弊行为昭然若揭
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/718862/)
 
-翻译：康州盘古农场-Bruce
-校对：康州盘古农场-黎明的光芒
-审核：康州盘古农场-V
-![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_7538-1.jpg)图片：www.thegatewaypundit.com
-詹姆斯·欧基夫（James O’Keefe）再次出击!
+加拿大蒙特利尔战友团 Tao
+校对 文锦 上传 云起时
+![]()![](https://gnews.org/wp-content/uploads/2021/01/twitter10.jpg)图片来源：Twitter
+据《国家脉动》(The National Pulse)新闻网报道，在11月3日大选后的午夜，很多州的投票系统中被“倾泻”进了巨量的可疑选票，一些著名的数据统计学专家和博士团队对这些激增的选票进行了详细的分析并发布了报告。报告的结论是每一次的选票“倾泻”都让拜登获利，使其选票数量急剧增加。
 
-周一晚间，“Veritas项目”发布了一段秘密视频，其中一位中央外联宣传中心（OAC）行政主管承认她的组织在富尔顿县的同一地址登记了数千名无家可归者投票。
+该报告分析了投票系统中所有单次的选票“倾泻”，并且只关注两位总统候选人的选票数量差超过25000张的情况。
 
-佐治亚州的法律规定，一个人必须在自己居住的地方投票，而允许别人在选民登记时使用虚假声明是非法的，最高可判处10年监禁。
+分析报告的摘要中说“在分析了所有这些选票“倾泻”的案例之后，我们得出的结论是，所有这些选票的“倾泻”事件都让拜登的选票数量陡增，而一次让川普总统选票陡增的情况也没有出现。”
 
-Veritas在双参（议员）决战选举的前一天晚上发布了这段视频，其中的赌注不能再高了。
+报告中对选票数据的分析不仅包含川普总统输掉的州，也包括了赢下的州。有几个州发生了不止一次的选票“倾泻”，但每次都是拜登获利。
 
-趋势。骄傲的男孩领袖恩里克·塔里奥在离开华盛顿地区机场时被捕，在阻止偷窃集会的路上……更新：被指控燃烧“黑名贵（BLM）”的旗帜，然后拥有两个枪弹夹。
+报告中的表格一详细记录了这些州的选票“倾泻”的次数和时间：
+![]()![](https://gnews.org/wp-content/uploads/2021/01/359.png)
+上述表格中仅仅记录了票数差超过25000的选票“倾泻”案例。其中宾夕法尼亚州和弗吉尼亚州例外，因为这两个州超过25000的案例太多了，我们把宾州的基准线提高到了60000，而弗吉尼亚州的基准线则提高到了100000.
 
-民主党人正试图窃取佐治亚州的两个参议院席位，以便他们能够控制参议院。
+在数据统计上，如果样本数值超过了标准方差的十倍，那么这个样本出现的概率只有10的23次方分之1。这在统计学上被认为不可能出现。
 
-而我们在11月的选举中也看到了，民主党人用无数的方法来塞满选票箱，进行作弊。
+但是几乎在每个被分析的州都出现了这样的“不可能”，选票“倾泻”造成了拜登的选票陡增。举例来说，密歇根州的一次选票“倾泻”让拜登净得135290张选票，如果没有选举舞弊，这种情况发生的概率是10的117次方分之1，相当于连续14次双色球中大奖。
 
-“因此，我们服务的大多数人都没有地址，但是，如果他们登记投票，并获得佐治亚州身份证，我们允许他们使用我们的地址， “中央外联宣传中心的执行主任金伯利·帕克说。”我们确实允许他们使用华盛顿街201号（佐治亚州，亚特兰大）。”
+评论：2020年美国大选的数据经不起任何的分析和调查，川普总统由于领先得太多，以至于拜登不得不在选票造假上火力全开，因此留下了太多的证据和漏洞。如果参众两院最终宣布这次选举结果有效，那只能说明美国的民主已不复存在，七千万川普总统的支持者绝对不会善罢甘休。
 
-“根本无法告诉你有多少人的身份证上有这个地址””委员会成员们干的风生水起……（一开始）还以为我们做的事情不会很顺利呢……”
+[原文链接](https://thenationalpulse.com/news/suspicious-biden-ballot-dumps/)
 
-观看：
-
-
-
-> BREAKING: [@CentralOAC](https://twitter.com/CentralOAC?ref_src=twsrc%5Etfw) Exec Admits Org Registers Thousands Of Homeless To Vote At Same Address In Fulton Co.
-> 
-> "Can't even begin to tell you how many people have that address on their ID"
-> 
-> "Board members got wind…thought we’re doing things not on the up and up…"[#GAVoterFraud](https://twitter.com/hashtag/GAVoterFraud?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/5j2uJ2XV4T](https://t.co/5j2uJ2XV4T)
-> — James O'Keefe (@JamesOKeefeIII) [January 5, 2021](https://twitter.com/JamesOKeefeIII/status/1346271086783197185?ref_src=twsrc%5Etfw)
-
-
-
-*突发：@CentralOAC 行政人员承认该组织用富尔顿公司的同一地址为数千无家可归者登记投票。*
-*“甚至无法告诉您有多少人的身份证上是同样的地址”*
-*“*委员会成员们干的风生水起……（一开始）还以为我们做的事情不会很顺利呢……*”*
-
-在Veritas项目视频发布后，中央外联宣传中心惊慌失措地删除了他们的推特账户。
-
-他们想隐藏什么？
-
-
-
-> BREAKING: [@CentralOAC](https://twitter.com/CentralOAC?ref_src=twsrc%5Etfw) has now DELETED their Twitter account following [@Project\_Veritas](https://twitter.com/Project_Veritas?ref_src=twsrc%5Etfw) [#GAVoterFraud](https://twitter.com/hashtag/GAVoterFraud?src=hash&amp;ref_src=twsrc%5Etfw) release tonight exposing their illegal registering of thousands of Atlanta homeless to vote at the same address!
-> 
-> What are they trying to hide? We already got it all on tape! [pic.twitter.com/YncsG4qYdc](https://t.co/YncsG4qYdc)
-> — James O'Keefe (@JamesOKeefeIII) [January 5, 2021](https://twitter.com/JamesOKeefeIII/status/1346303972479385601?ref_src=twsrc%5Etfw)
-
-
-
-*突发：@CentralOAC现在已经删除了其Twitter帐户，@Project\_Veritas #GAVoterFraud今晚发布，揭露他们非法登记的成千上万的亚特兰大无家可归者在同一地址投票！*
-
-*他们想隐藏什么？我们已经把所有东西都录音了！*
-
-原文作者：克里斯蒂娜·莱拉（Cristina Laila）
-发布时间：2021年1月4日 下午10:56
-文章链接：https://www.thegatewaypundit.com/2021/01/breaking-project-veritas-central-oac-exec-admits-org-registers-thousands-homeless-vote-address-fulton-county-video/
-
-0
++1
