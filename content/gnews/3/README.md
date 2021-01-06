@@ -1,19 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【决战48小时】Gcoin将是主流数字货币，谁都挡不住
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/722996/)
+## 【大选实况】01/06/2021 朱利安尼推特：六天后能得到关于总统大选的答案
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723303/)
 
-- 编辑：文顺、Victor Torres
-- 听写：Goodgo
+![Trump, Lying, Insists Rudy Giuliani Acted Alone on Ukraine | Vanity Fair]()![Trump, Lying, Insists Rudy Giuliani Acted Alone on Ukraine | Vanity Fair](https://media.vanityfair.com/photos/5d8b8fcbfb266600089efad8/5:3/w_1940,h_1163,c_limit/rudygiulianidonaldtrumpukraine.jpg)来源：DON EMMERT/AFP/GETTY IMAGES.
+【大选实况】01/06/2021美东时间早12:00朱利安尼推特：这次 “拯救美国 “游行是为了要求检查机器和选票，而这些机器和选票都是骗子们所隐瞒的。  如果这是一场干净的选举 为什么他们要隐藏证据？六天后我们就能得到答案。
 
 
-**西班牙2021年1月6日电/西喜社/——**“Gcoin必然会成为世界虚拟货币的主力，成为美国金融改革的主力，只是早晚的问题。”郭先生说：“Gcoin将是主流数字货币，谁都挡不住。”
 
-1月6日，郭先生在《决战48小时》直播中分析Gcoin未来广阔的发展前景。
+> This Save America March is to demand an examination of the machines and the ballots the crooks are concealing. If it was a clean election why are they hiding the proof?. In 6 days we can get the answer.
+> — Rudy W. Giuliani (@RudyGiuliani) [January 6, 2021](https://twitter.com/RudyGiuliani/status/1346862851240165382?ref_src=twsrc%5Etfw)
 
-郭先生分析说：“总统上来是否会整治金融系统，是否会有变革，不是川普总统的事。美国没有美元就什么都没有，面对今天数字时代、5G时代，美元想要强大，不变化是不可能的。”
 
-郭先生说：“扎克伯格要卖命支持拜登，就是为了把货币被美国认可。”对于拜登上台后的Gcoin走向，郭先生说：“拜登上来前半年会威胁一下我们，但也会认可我们。”
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
-0
+
+译者：Skagen【㊙️翻Gnews原创组】
+
++1
