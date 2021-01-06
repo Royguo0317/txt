@@ -1,67 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Veritas项目:中央外联宣传中心（OAC）执行长承认该组织在富尔顿县同一地址登记了数千名无家可归者进行投票（视频）
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/718677/)
+## 1/4/2021 宾州参议员致信参议院多数党领袖麦康奈尔, 称该州选举结果有问题不应被认证
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/722429/)
 
-翻译：康州盘古农场-Bruce
-校对：康州盘古农场-黎明的光芒
-审核：康州盘古农场-V
-![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_7538-1.jpg)图片：www.thegatewaypundit.com
-詹姆斯·欧基夫（James O’Keefe）再次出击!
+## **【[英文原信件](https://twitter.com/realDonaldTrump/status/1346652589673345024?s=20)】【[中文翻译](https://gnews.org/wp-content/uploads/2021/01/2021年1月4日宾州参议员致信参议院多数党领袖麦康奈尔.pdf)】**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1200px-Coat_of_arms_of_Pennsylvania.svg_.png)
+**2021年1月4日，**
 
-周一晚间，“Veritas项目”发布了一段秘密视频，其中一位中央外联宣传中心（OAC）行政主管承认她的组织在富尔顿县的同一地址登记了数千名无家可归者投票。
+尊敬的米奇·麦康纳 (Mitch McConnell)，美国参议院多数党领袖
+华盛顿特区 罗素参议院办公楼317号，邮编20510
 
-佐治亚州的法律规定，一个人必须在自己居住的地方投票，而允许别人在选民登记时使用虚假声明是非法的，最高可判处10年监禁。
+尊敬的凯文·麦卡锡 (Kevin McCarthy)，美国众议院共和党领袖，
+华盛顿特区 雷伯恩大厦2468号 邮编 20515
 
-Veritas在双参（议员）决战选举的前一天晚上发布了这段视频，其中的赌注不能再高了。
+尊敬的领袖麦康纳 (Mitch McConnell) 和领袖麦卡锡 (Kevin McCarthy):
 
-趋势。骄傲的男孩领袖恩里克·塔里奥在离开华盛顿地区机场时被捕，在阻止偷窃集会的路上……更新：被指控燃烧“黑名贵（BLM）”的旗帜，然后拥有两个枪弹夹。
+作为宾夕法尼亚州参议院的成员，我们相信选举过程的公正性。在与我们的同事交谈后，大多数州参议院议员对2020年选举期间我们的联邦发生的许多不一致感到困扰。
 
-民主党人正试图窃取佐治亚州的两个参议院席位，以便他们能够控制参议院。
+由于宾夕法尼亚州州长汤姆·沃尔夫 (Tom Wolf)、国务卿凯西·布克瓦 (Kathy Boockvar) 以及无赖的州最高法院的无数违法行为，州立法机关的权力平衡被剥夺，而州立法机关根据美国和宾夕法尼亚州的宪法，设定了举行选举的时间、地点和方式。
 
-而我们在11月的选举中也看到了，民主党人用无数的方法来塞满选票箱，进行作弊。
+2019年第77号法案签署成为法律并提供了以下明确规定:
+•所有邮寄选票必须在选举之夜的晚上8点前收到
+•投票站的官员必须验证选民的签名
+•县选举委员会可以在选举日上午8点后开始对缺席选票和邮寄选票进行预拉票
+•候选人和政党选出的投票观察员被允许观察缺席和邮寄选票的拉票过程
+•没有规定投箱或“固化”选票
 
-“因此，我们服务的大多数人都没有地址，但是，如果他们登记投票，并获得佐治亚州身份证，我们允许他们使用我们的地址， “中央外联宣传中心的执行主任金伯利·帕克说。”我们确实允许他们使用华盛顿街201号（佐治亚州，亚特兰大）。”
+可是在2020年大选前7周，宾夕法尼亚州最高法院越界裁决:
+•邮寄选票可以在三天后收到并统计
+•邮寄没有邮戳的选票将被统计
+•邮寄选票上的签名不需要核实
 
-“根本无法告诉你有多少人的身份证上有这个地址””委员会成员们干的风生水起……（一开始）还以为我们做的事情不会很顺利呢……”
+国务卿凯西·布克瓦 (Kathy Boockvar)也通过以下方式篡夺了立法权:
+•允许在关键的民主地区出现大量不安全的投寄箱
+•在选举前一天，鼓励一些县(不是所有县)通知政党和候选人代表，通过邮件发送的选民的选票中含有取消资格的缺陷，并允许他们“纠正”这些缺陷。
 
-观看：
+除了这些不一致之处，费城的共和党投票观察员也被禁止监督拉票过程。在法院下令允许这些投票观察员观察之后，他们被“围堵”在离拉票地点很远的地方，无法监督投票活动。
 
+立法者要求进行独立调查的要求被政府忽视了。
 
+由于这些前后矛盾且有问题的活动，我们认为宾夕法尼亚州的选举结果不应该得到国务卿的证实。
 
-> BREAKING: [@CentralOAC](https://twitter.com/CentralOAC?ref_src=twsrc%5Etfw) Exec Admits Org Registers Thousands Of Homeless To Vote At Same Address In Fulton Co.
-> 
-> "Can't even begin to tell you how many people have that address on their ID"
-> 
-> "Board members got wind…thought we’re doing things not on the up and up…"[#GAVoterFraud](https://twitter.com/hashtag/GAVoterFraud?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/5j2uJ2XV4T](https://t.co/5j2uJ2XV4T)
-> — James O'Keefe (@JamesOKeefeIII) [January 5, 2021](https://twitter.com/JamesOKeefeIII/status/1346271086783197185?ref_src=twsrc%5Etfw)
+成员们，鉴于美国最高法院将在未来几天听审特朗普与布克瓦的案件，我们需要更多的时间。因为我们在我们的联邦追求选举的完整性，所以我们需要你们延迟选举团的认证以允许法定诉讼程序。
 
+此致
 
+敬礼
 
-*突发：@CentralOAC 行政人员承认该组织用富尔顿公司的同一地址为数千无家可归者登记投票。*
-*“甚至无法告诉您有多少人的身份证上是同样的地址”*
-*“*委员会成员们干的风生水起……（一开始）还以为我们做的事情不会很顺利呢……*”*
+宾夕法尼亚参议院的成员们
 
-在Veritas项目视频发布后，中央外联宣传中心惊慌失措地删除了他们的推特账户。
+抄送：美国共和党参议员
+美国共和党众议院成员
 
-他们想隐藏什么？
+[**下载：2021年1月4日宾州参议员致信参议院多数党领袖麦康奈尔**](https://gnews.org/wp-content/uploads/2021/01/2021年1月4日宾州参议员致信参议院多数党领袖麦康奈尔.pdf)[下载](https://gnews.org/wp-content/uploads/2021/01/2021年1月4日宾州参议员致信参议院多数党领袖麦康奈尔.pdf)
 
+#### **By【秘密翻译组G-Translators – 大拇哥】**
 
-
-> BREAKING: [@CentralOAC](https://twitter.com/CentralOAC?ref_src=twsrc%5Etfw) has now DELETED their Twitter account following [@Project\_Veritas](https://twitter.com/Project_Veritas?ref_src=twsrc%5Etfw) [#GAVoterFraud](https://twitter.com/hashtag/GAVoterFraud?src=hash&amp;ref_src=twsrc%5Etfw) release tonight exposing their illegal registering of thousands of Atlanta homeless to vote at the same address!
-> 
-> What are they trying to hide? We already got it all on tape! [pic.twitter.com/YncsG4qYdc](https://t.co/YncsG4qYdc)
-> — James O'Keefe (@JamesOKeefeIII) [January 5, 2021](https://twitter.com/JamesOKeefeIII/status/1346303972479385601?ref_src=twsrc%5Etfw)
-
-
-
-*突发：@CentralOAC现在已经删除了其Twitter帐户，@Project\_Veritas #GAVoterFraud今晚发布，揭露他们非法登记的成千上万的亚特兰大无家可归者在同一地址投票！*
-
-*他们想隐藏什么？我们已经把所有东西都录音了！*
-
-原文作者：克里斯蒂娜·莱拉（Cristina Laila）
-发布时间：2021年1月4日 下午10:56
-文章链接：https://www.thegatewaypundit.com/2021/01/breaking-project-veritas-central-oac-exec-admits-org-registers-thousands-homeless-vote-address-fulton-county-video/
-
-0
++1

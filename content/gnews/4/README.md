@@ -1,15 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 1/5/2021 川普总统行政令: 应对中国公司开发或控制的应用程序或其他软件给美国带来的威胁
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/719448/)
+## 【决战48小时】川普当选是推动灭共的关键一块多米诺骨牌
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/722931/)
 
-## **【[行政令英文原文](https://www.whitehouse.gov/presidential-actions/executive-order-addressing-threat-posed-applications-software-developed-controlled-chinese-companies/)】【[中文翻译](https://gnews.org/wp-content/uploads/2021/01/川普行政令-21年1月5号.pdf)】**
-![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-01-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-02-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-03-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-04-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-05-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-06-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-07-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-08-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-09-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-10-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-11-scaled.jpg)
-[**2021年1月5日 川普总统行政令: 应对中国公司开发或控制的应用程序或其他软件给美国带来的威胁**](https://gnews.org/wp-content/uploads/2021/01/川普行政令-21年1月5号.pdf)[下载](https://gnews.org/wp-content/uploads/2021/01/川普行政令-21年1月5号.pdf)
-
-#### **By【秘密翻译组 G-Translators – 北美组】**
+- 编辑：文顺、Victor Torres
+- 听写：Goodgo
 
 
+**西班牙2021年1月6日电/西喜社/——**1月6日，郭先生在《决战48小时》直播中表示，美国大选是推动灭共的关键一块多米诺骨牌。
+
+郭先生说：“定海神针的支持是（灭共的）开始，川普总统的力量和能力都决定了之后的走向。起伏会有，沼泽地的力量会决定乾坤。”郭先生还说：“新中国联邦和爆料革命让美国人意识到，病毒来自中共实验室。战友抗议也让世界意识到中共不是中国人。”
+
+郭先生表示，任何人都挡不住我们集体灭共，但不要抱有任何幻想，共产党因川普当选而瞬间灭亡是不可能的。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
 0

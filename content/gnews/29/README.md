@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】初选大搜捕︱国安处动员千警拘捕53名民主派指涉颠覆国家政权 冻结160万
-` 粵語組` [轉載自GNews](https://gnews.org/zh-hans/722697/)
+## 【大选实况】1/6/2021 美东时间早 8:20 Sidney Powell转发并回复Eric Trump推文
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/722808/)
 
-编撰：恩典
+完全同意，但问题是我们现在知道无论大家如何努力工作 魔鬼已经#捣毁了选举体系 那些正在奋力毁掉#美国的人们最起码没有给他们自己买#选举保险 这都和他们的权力和金钱有关。
 
-审核：荔枝
+后附Eric Trump推文：对那些没有站出来反对这场选举舞弊的每一个共和党参议员 / 国会议员，我都会亲自努力将其打败 – 他们会在下一次选举中落选。
 
-上傅：文粤
-![]()![](https://gnews.org/wp-content/uploads/2021/01/t_04d7ae0c7f6a43b0b6dbedb02e256211_name_20210106_ccm_03.png)图片：苹果日报
-民主派去年提出「35+公民投票初选计划」，希望在去年立法会选举夺得逾半数席位，外界一度认为计划有望成功，但立法会选举其后遭特区政府「巧立名目」以疫情严峻为由取消，至今仍然选举无期。政府却疑展开大报复、大清算行动！警方国安处今晨动员约一千名警员，在全港大举搜捕至少53名民主派人士，包括多名前立法会议员及原准备参加去年立法会选举的人士。国安处警员指众人响应法律学者戴耀廷提出的「揽炒十部曲」，企图争取当选立法会议员后联手否决政府预算案，迫使行政长官林郑月娥辞职，涉嫌触犯《港版国安法》中颠覆国家政权的罪行。 「颠覆国家政权罪」一旦罪成最高可判无期徒刑（终身监禁），当局以此为由，采取史无前例的民主派大搜捕行动，又指不排除郁更多人被捕。此举令人质疑此举是为「灭声」，赶绝民主派包括温和派人士。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/t_0dace776e3824076a624b7b357a657fe_name_111.png)图片：苹果日报
-战友评论：
 
-假借国安之名，行打压异己全面管制之实；ㄧ再操弄恶法既无法获得港人民心的认同，无助于香港社会的稳定，更使香港做为国际金融中心的优势，一去不复返了。
 
-警方国安处今晨（6日）动员约一千名警员，在全港大举搜捕至少53名民主派人士，包括多名前立法会议员及原准备参加去年立法会选举的人士,被指涉颠覆国家政权罪名。
+> Agreed in spirit but the problem is we know now it doesn’t matter how hard you work
+> The Evil have [#rigged](https://twitter.com/hashtag/rigged?src=hash&amp;ref_src=twsrc%5Etfw) the voting system 
+> Those working to destroy the [#Republic](https://twitter.com/hashtag/Republic?src=hash&amp;ref_src=twsrc%5Etfw) have at the very least gotten themselves [#ElectionInsurance](https://twitter.com/hashtag/ElectionInsurance?src=hash&amp;ref_src=twsrc%5Etfw) 
+> It’s about their power & money [https://t.co/IxP1Kk8V6K](https://t.co/IxP1Kk8V6K)
+> — Sidney Powell 🇺🇸⭐⭐⭐ #Kraken (@SidneyPowell1) [January 6, 2021](https://twitter.com/SidneyPowell1/status/1346808853300719617?ref_src=twsrc%5Etfw)
 
-对于香港今日来讲没有更黑暗、只有最黑暗，差不多全部民主派人士一网打尽，今次的世纪大抓捕行动，为什么选这日子呢？巧合就是同美国国会当地时间周三（6日）会就选举人团确认败登当选下任总统进行表决同一时间，和（6日）DC挺川普大游行行动。而且今天全世界主流媒体很多头条报导香港大拘捕恶行，包括（CNN、纽约时报、BBC、日报等媒体），这次中共大肆宣传香港拘捕事件空前盛大可见一斑。
 
-今天全民主派人士被拘捕对香港人来讲难以自信的事实，对终审法院首席法官马道立（5日）讲：政治问题「我不敢讲」、社会要记住有司法独立的讽刺。
 
-以上观点仅代表笔者本人
+推特链接：[https://twitter.com/SidneyPowell1/status/1346808853300719617](https://twitter.com/SidneyPowell1/status/1346808853300719617)
 
-新闻来源：[苹果日报](https://hk.appledaily.com/breaking/20210106/JSJPIIZ6WNGBZHMPVDF76T3ODM/)
+**By【秘密翻译组 G-Translators – 北美组】**
 
 0

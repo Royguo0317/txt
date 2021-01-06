@@ -1,31 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【国内速评】“适龄男性公民都要登记兵役”下的疑云密布
-` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/723069/)
+## 1/5/2021 川普总统行政令: 应对中国公司开发或控制的应用程序或其他软件给美国带来的威胁
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/719448/)
 
-喜马拉雅-国内新闻组：文漪 素材：特朗靠谱 封面：麦田67号 校对：圣斗士(沙加)
+## **【[行政令英文原文](https://www.whitehouse.gov/presidential-actions/executive-order-addressing-threat-posed-applications-software-developed-controlled-chinese-companies/)】【[中文翻译](https://gnews.org/wp-content/uploads/2021/01/川普行政令-21年1月5号.pdf)】**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-01-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-02-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-03-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-04-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-05-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-06-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-07-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-08-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-09-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-10-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-11-scaled.jpg)
+[**2021年1月5日 川普总统行政令: 应对中国公司开发或控制的应用程序或其他软件给美国带来的威胁**](https://gnews.org/wp-content/uploads/2021/01/川普行政令-21年1月5号.pdf)[下载](https://gnews.org/wp-content/uploads/2021/01/川普行政令-21年1月5号.pdf)
 
-1月5日，各大网站公布了一则“2021年兵役登记工作展开网络登记”的新闻，引起了全网热议。新闻指出，2021年12月31日前年满18岁的男性公民（2003年1月1日至12月31日之间出生），均应参加此次登记。2021年12月31日前未超过24周岁的男性公民，没有参加兵役登记的，应进行补登。兵役登记时间为1月1日起至6月30日。
-
-尽管中共“强调”兵役登记和服兵役是两回事，如果打算报名服兵役，则需要自愿填写其他表格。但是此新闻在网上和各个微信群的传播，还是引起了许多网友的猜疑，都在说2021年是有什么大事要发生吗？
-
-猜疑一：兵役登记，就是截至到当年年底，年满十八岁的男性公民都应当进行登记，其中引起猜疑的是明确规定18岁以上24岁以下的公民没有登记过的需要补登记。
-
-猜疑二：一年一次的征兵工作从2021年起改为一年两次，这不是相当于“增兵”吗？要做什么？
-
-猜疑三：对高校毕业生的征兵年龄从22周岁放宽至24周岁，这释放了什么信号？
-
-猜疑四： 2021年新修订的《国防法》提到“拒不履行国防义务，拒绝、逃避兵役”等行为，要进行联合惩戒，拒不履行后果可能严重的将面临以下法律惩处：不能参加公务员、事业单位和国有（国有控股）企业等单位招聘，不能出国（境），不能取得毕业证，不能办理高校入学、升学手续，不能办理身份证、户口簿、驾驶证，不能办理银行贷款，不能购买机票、高铁票，不能享受社会保障，所在单位作为违法失信记录记入个人档案等。
-
-2021年面对国外各种经济制裁的压力，国内就业、养老、房价、疫情等生存的压力，此时抛出《国防法》，规定适龄男性青年必须依法全部登记，下一步会发生什么呢？战争真的要来了吗？中共国的老百姓正面临着病毒肆虐、经济下滑、物价飞涨和各种制裁的接踵而来，如果此时再来一场战争，进而引发粮食危机、人道灾难和衍生的次生灾难，你们准备好了吗？
-
-一切疑问都是徒劳，2021年，只有灭共才是唯一的出路，已经觉醒和正在觉醒的全世界人民团结起来，消灭这个邪恶的政党，解救14亿共产奴隶，全世界才有希望！
-
-文章仅代表个人观点。
-
-新闻链接：[http://www.jcnews.com.cn/xw/jdxw/202101/t20210105\_960574.html](http://www.jcnews.com.cn/xw/jdxw/202101/t20210105_960574.html)
+#### **By【秘密翻译组 G-Translators – 北美组】**
 
 
 
-+1
+0
