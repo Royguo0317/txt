@@ -1,67 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Veritas项目:中央外联宣传中心（OAC）执行长承认该组织在富尔顿县同一地址登记了数千名无家可归者进行投票（视频）
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/718677/)
+## 【灭共有我】一个醒悟的中国人
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/718995/)
 
-翻译：康州盘古农场-Bruce
-校对：康州盘古农场-黎明的光芒
-审核：康州盘古农场-V
-![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_7538-1.jpg)图片：www.thegatewaypundit.com
-詹姆斯·欧基夫（James O’Keefe）再次出击!
+作者：Zoe, 文柳
 
-周一晚间，“Veritas项目”发布了一段秘密视频，其中一位中央外联宣传中心（OAC）行政主管承认她的组织在富尔顿县的同一地址登记了数千名无家可归者投票。
+编辑：翼族
+![]()![](https://gnews.org/wp-content/uploads/2021/01/a11.jpg)
+图片来源：墨尔本雅典娜农场设计组
 
-佐治亚州的法律规定，一个人必须在自己居住的地方投票，而允许别人在选民登记时使用虚假声明是非法的，最高可判处10年监禁。
+一年前，我在YouTube上无意看到了郭先生的视频，他讲述了关于中共高层领导的腐败以及他们的乱伦情况。当时我并不觉得特别惊讶，作为一个中国人，我们早已经习惯了政府高官的腐败，习惯了一人拥有无数情妇和私生子的现状，这真的不是个秘密。
 
-Veritas在双参（议员）决战选举的前一天晚上发布了这段视频，其中的赌注不能再高了。
+我和绝大多数中国老百姓一样，幻想着有一天公平和正义会来临，但随着观看郭先生的节目越来越多，我终于醒悟了，只要是共产党当权的话，那一天是不会来临的。以前我们总认为髙层政府会改变地方政府，现在终于明白其实上层领导和高层政府更加得腐败，他们出台政策进行所谓的反腐倡廉，看上去是改革的作为，但其实都是为了他们自己的政治利益和打击与他们不一致的政治势力，并不是为国家和老百姓着想。
 
-趋势。骄傲的男孩领袖恩里克·塔里奥在离开华盛顿地区机场时被捕，在阻止偷窃集会的路上……更新：被指控燃烧“黑名贵（BLM）”的旗帜，然后拥有两个枪弹夹。
+在中共最高领导层的眼里，老百姓猪狗不如，他们用法律的手段绑架百姓，用洗脑的方式蒙骗百姓，用武力的方式残暴对待百姓，他们可以随意活摘法轮功学员的器官，为了拆迁他们可以不惜动用公安和军队去打压百姓，甚至杀害百姓。上访者受到摧残，到城市来卖农产品的老农民被拳打脚踢，共产党的眼里根本没有人民，救死扶伤成了笑柄，尊老爱幼成了口号。
 
-民主党人正试图窃取佐治亚州的两个参议院席位，以便他们能够控制参议院。
+中共控制媒体和言论，利用所谓的专家忽悠百姓，今天说吃菜有助于健康，明天说菜有害于健康，老百姓根本无法了解真相。中国人民从小就开始接受洗脑教育，很多人不能分辨是非，像傻子一样被中共忽悠来忽悠去，因为中共希望中国人都变成无脑之士，希望中国人只吃草却挤出奶以供他们享用，希望中国人像机器一样被操控。中国人慢慢成为自愿被他们绑架的肉票和玩偶，成为反西方反民主反自由的小粉红和老粉红。
 
-而我们在11月的选举中也看到了，民主党人用无数的方法来塞满选票箱，进行作弊。
+我生活在澳洲可以自由的呼吸和自由的发声，虽然享受着蓝天白云和良好西方福利制度，可是依旧摆脱不了一些共产党教育下的旧思维，我很苦恼，我为自己和仍在睡梦中的国人感到悲哀，不知哪里错了。自从听了郭先生的直播演讲后终于如梦初醒，被洗脑了几十年的我有如醍醐灌顶，郭先生引领的爆料革命如同一团火，照亮了世界，照亮了宇宙，照亮了处于黑暗的中国，也照亮了我内心的深处。
 
-“因此，我们服务的大多数人都没有地址，但是，如果他们登记投票，并获得佐治亚州身份证，我们允许他们使用我们的地址， “中央外联宣传中心的执行主任金伯利·帕克说。”我们确实允许他们使用华盛顿街201号（佐治亚州，亚特兰大）。”
+郭文贵先生的勇敢和无我，前无古人后无来者，他的行为唤醒了无数正义的人，感动了天，感到了地，也感动了我们越来越多的跟随者。
 
-“根本无法告诉你有多少人的身份证上有这个地址””委员会成员们干的风生水起……（一开始）还以为我们做的事情不会很顺利呢……”
+（文章内容仅代表作者观点）
 
-观看：
-
-
-
-> BREAKING: [@CentralOAC](https://twitter.com/CentralOAC?ref_src=twsrc%5Etfw) Exec Admits Org Registers Thousands Of Homeless To Vote At Same Address In Fulton Co.
-> 
-> "Can't even begin to tell you how many people have that address on their ID"
-> 
-> "Board members got wind…thought we’re doing things not on the up and up…"[#GAVoterFraud](https://twitter.com/hashtag/GAVoterFraud?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/5j2uJ2XV4T](https://t.co/5j2uJ2XV4T)
-> — James O'Keefe (@JamesOKeefeIII) [January 5, 2021](https://twitter.com/JamesOKeefeIII/status/1346271086783197185?ref_src=twsrc%5Etfw)
-
-
-
-*突发：@CentralOAC 行政人员承认该组织用富尔顿公司的同一地址为数千无家可归者登记投票。*
-*“甚至无法告诉您有多少人的身份证上是同样的地址”*
-*“*委员会成员们干的风生水起……（一开始）还以为我们做的事情不会很顺利呢……*”*
-
-在Veritas项目视频发布后，中央外联宣传中心惊慌失措地删除了他们的推特账户。
-
-他们想隐藏什么？
-
-
-
-> BREAKING: [@CentralOAC](https://twitter.com/CentralOAC?ref_src=twsrc%5Etfw) has now DELETED their Twitter account following [@Project\_Veritas](https://twitter.com/Project_Veritas?ref_src=twsrc%5Etfw) [#GAVoterFraud](https://twitter.com/hashtag/GAVoterFraud?src=hash&amp;ref_src=twsrc%5Etfw) release tonight exposing their illegal registering of thousands of Atlanta homeless to vote at the same address!
-> 
-> What are they trying to hide? We already got it all on tape! [pic.twitter.com/YncsG4qYdc](https://t.co/YncsG4qYdc)
-> — James O'Keefe (@JamesOKeefeIII) [January 5, 2021](https://twitter.com/JamesOKeefeIII/status/1346303972479385601?ref_src=twsrc%5Etfw)
-
-
-
-*突发：@CentralOAC现在已经删除了其Twitter帐户，@Project\_Veritas #GAVoterFraud今晚发布，揭露他们非法登记的成千上万的亚特兰大无家可归者在同一地址投票！*
-
-*他们想隐藏什么？我们已经把所有东西都录音了！*
-
-原文作者：克里斯蒂娜·莱拉（Cristina Laila）
-发布时间：2021年1月4日 下午10:56
-文章链接：https://www.thegatewaypundit.com/2021/01/breaking-project-veritas-central-oac-exec-admits-org-registers-thousands-homeless-vote-address-fulton-county-video/
-
-0
++1

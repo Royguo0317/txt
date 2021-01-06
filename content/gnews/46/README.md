@@ -1,46 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国核武器引发担忧
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/717251/)
+## Veritas项目:中央外联宣传中心（OAC）执行长承认该组织在富尔顿县同一地址登记了数千名无家可归者进行投票（视频）
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/718677/)
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/01/xi-removebg-preview.jpg)
+翻译：康州盘古农场-Bruce
+校对：康州盘古农场-黎明的光芒
+审核：康州盘古农场-V
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_7538-1.jpg)图片：www.thegatewaypundit.com
+詹姆斯·欧基夫（James O’Keefe）再次出击!
 
+周一晚间，“Veritas项目”发布了一段秘密视频，其中一位中央外联宣传中心（OAC）行政主管承认她的组织在富尔顿县的同一地址登记了数千名无家可归者投票。
 
-**2021年1月4日，美国国务卿蓬佩奥先生和美国总统军控特使Billingslea先生在Newsweek公共发表了一篇观点性文章，题为《中（共）国的核武建设应该让西方国家感到担忧》。**
+佐治亚州的法律规定，一个人必须在自己居住的地方投票，而允许别人在选民登记时使用虚假声明是非法的，最高可判处10年监禁。
 
-**文章主要内容翻译如下。**
+Veritas在双参（议员）决战选举的前一天晚上发布了这段视频，其中的赌注不能再高了。
 
-**COVID-19（中共病毒疫情）告诉世界，中共的谎言会产生巨大而可怕的后果。在美国、我们的盟友和我们的伙伴再次呼吁对病毒进行透明化的同时，我们也敦促北京对另一个危险做出坦白, 这就是中（共）国不透明且具有威胁性的核武器集结。**
+趋势。骄傲的男孩领袖恩里克·塔里奥在离开华盛顿地区机场时被捕，在阻止偷窃集会的路上……更新：被指控燃烧“黑名贵（BLM）”的旗帜，然后拥有两个枪弹夹。
 
-**今天，拥有世界上增长最快的核武库的中（共）国，不允许透露它拥有多少核武器，计划发展多少核武器，或者计划用这些武器做什么。它是联合国安全理事会五个常任理事国中透明度最低的国家。**
+民主党人正试图窃取佐治亚州的两个参议院席位，以便他们能够控制参议院。
 
-**尽管北京对其核活动讳莫如深，但我们知道中（共）国正在追求陆、空、海三合一的核能力，而且它正在迅速发展和更新其能力。习近平总书记拥护这种建设。2012年上任后不久，他将中国的核武器司令部描述为 “支持中国的大国地位”。随后，他将该司令部升格为一个名为 “人民解放军火箭军 “的独立军种，这是他在2049年之前建设 “世界级 “军队计划的一部分。**
+而我们在11月的选举中也看到了，民主党人用无数的方法来塞满选票箱，进行作弊。
 
-**卫星图像显示了解放军向这一目标的推进，2019年北京的阅兵式上展示了具有核能力的导弹。这次展示绵延近3英里–比10年前的同一段长了近10倍，当然也只是总武器库的一小部分。阅兵式还展示了东风-41导弹，它可以在30分钟内打击美国海岸。解放军将在不久的将来把这种导弹部署在发射井和移动平台上，我们预计–如果目前的趋势保持不变—中（共）国将在未来十年内把其核武库总量至少增加一倍。**
+“因此，我们服务的大多数人都没有地址，但是，如果他们登记投票，并获得佐治亚州身份证，我们允许他们使用我们的地址， “中央外联宣传中心的执行主任金伯利·帕克说。”我们确实允许他们使用华盛顿街201号（佐治亚州，亚特兰大）。”
 
-**解放军在其海岸附近部署了一千多枚战区射程弹道导弹。这些武器中有许多具有双重能力，这意味着它们可以装备核弹头和常规弹头。它们的目的是针对东亚的美军，恐吓和胁迫美国的盟友。**
+“根本无法告诉你有多少人的身份证上有这个地址””委员会成员们干的风生水起……（一开始）还以为我们做的事情不会很顺利呢……”
 
-**中国在2018年和2019年发射的弹道导弹数量都超过了世界其他国家的总和。2020年，中国试射了220多枚弹道导弹，超过了前两年任何一年的总量。商业卫星图显示了中（共）国核武器试验场罗布淖尔的全年活动。**
-
-**与武器现代化相配合，北京的核态势越来越咄咄逼人，甚至威胁到无核邻国，并破坏了人们对其所谓 “不首先使用 “政策的信心。国防部的报告还显示，有证据表明解放军正在转向 “预警即发射 “的态势。**
-
-**我们已经要求中（共）国政府提高透明度，并与美国和俄罗斯一起制定一项涵盖所有类别核武器的新军控协议。美国已经为减少核危险尽了自己的责任；现在是中（共）国停止装腔作势，开始负责任地行事的时候了。**
-
-**在过去的四年里，川普政府唤醒了世界对中（共）国的挑战的认识。我们已经向盟友、伙伴甚至俄罗斯政府最高层通报了中（共）国的核武建设情况。**
-
-**历史给我们上了宝贵的一课，告诉我们最好的前进方向。美国、苏联和其他国家很早就认识到，大国必须负责任地对待世界上最危险的武器。今天，任何自称伟大的国家也必须如此。**
-
-**本文中所表达的观点是作者本人的观点。**
+观看：
 
 
 
-**译者议，中共过去在天安门城楼前耀武扬威的阅兵式上显摆的武器装备，不论是不是模型、中共的脑残口炮党们经常愚蠢至极地发出海底部署核武器、喜马拉雅山下狂炸地球的“豪言壮语”，现在都成了美国和全世界追责和制裁中共的“证据”。这下子，中共“皇帝的新装”和旧袍都被认可了，该如何是好？**
+> BREAKING: [@CentralOAC](https://twitter.com/CentralOAC?ref_src=twsrc%5Etfw) Exec Admits Org Registers Thousands Of Homeless To Vote At Same Address In Fulton Co.
+> 
+> "Can't even begin to tell you how many people have that address on their ID"
+> 
+> "Board members got wind…thought we’re doing things not on the up and up…"[#GAVoterFraud](https://twitter.com/hashtag/GAVoterFraud?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/5j2uJ2XV4T](https://t.co/5j2uJ2XV4T)
+> — James O'Keefe (@JamesOKeefeIII) [January 5, 2021](https://twitter.com/JamesOKeefeIII/status/1346271086783197185?ref_src=twsrc%5Etfw)
 
-**诚愿所有国人同胞，如果头脑没有爆炸，为了自己、家人、自己的家园和这个世界上无数善良的人们，请回头是岸吧。**
 
-**文章出处**
 
-[https://www.newsweek.com/chinas-nuclear-madness-opinion-1558342](https://www.newsweek.com/chinas-nuclear-madness-opinion-1558342)
+*突发：@CentralOAC 行政人员承认该组织用富尔顿公司的同一地址为数千无家可归者登记投票。*
+*“甚至无法告诉您有多少人的身份证上是同样的地址”*
+*“*委员会成员们干的风生水起……（一开始）还以为我们做的事情不会很顺利呢……*”*
+
+在Veritas项目视频发布后，中央外联宣传中心惊慌失措地删除了他们的推特账户。
+
+他们想隐藏什么？
+
+
+
+> BREAKING: [@CentralOAC](https://twitter.com/CentralOAC?ref_src=twsrc%5Etfw) has now DELETED their Twitter account following [@Project\_Veritas](https://twitter.com/Project_Veritas?ref_src=twsrc%5Etfw) [#GAVoterFraud](https://twitter.com/hashtag/GAVoterFraud?src=hash&amp;ref_src=twsrc%5Etfw) release tonight exposing their illegal registering of thousands of Atlanta homeless to vote at the same address!
+> 
+> What are they trying to hide? We already got it all on tape! [pic.twitter.com/YncsG4qYdc](https://t.co/YncsG4qYdc)
+> — James O'Keefe (@JamesOKeefeIII) [January 5, 2021](https://twitter.com/JamesOKeefeIII/status/1346303972479385601?ref_src=twsrc%5Etfw)
+
+
+
+*突发：@CentralOAC现在已经删除了其Twitter帐户，@Project\_Veritas #GAVoterFraud今晚发布，揭露他们非法登记的成千上万的亚特兰大无家可归者在同一地址投票！*
+
+*他们想隐藏什么？我们已经把所有东西都录音了！*
+
+原文作者：克里斯蒂娜·莱拉（Cristina Laila）
+发布时间：2021年1月4日 下午10:56
+文章链接：https://www.thegatewaypundit.com/2021/01/breaking-project-veritas-central-oac-exec-admits-org-registers-thousands-homeless-vote-address-fulton-county-video/
 
 0
