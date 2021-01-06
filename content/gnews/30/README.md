@@ -1,93 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登提名高级官员曾参与中美交流基金会赞助的访华之旅
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/718117/)
+## Veritas项目:中央外联宣传中心（OAC）执行长承认该组织在富尔顿县同一地址登记了数千名无家可归者进行投票（视频）
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/718677/)
 
-新闻来源：The National Pulse《国家脉动》； 作者：Natalie Winters； 发布时间：2021年1月2日
+翻译：康州盘古农场-Bruce
+校对：康州盘古农场-黎明的光芒
+审核：康州盘古农场-V
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_7538-1.jpg)图片：www.thegatewaypundit.com
+詹姆斯·欧基夫（James O’Keefe）再次出击!
 
-翻译/简评：MikeHua；校对：X-Wing飞得更高；审核：万人往；Page：小雨
+周一晚间，“Veritas项目”发布了一段秘密视频，其中一位中央外联宣传中心（OAC）行政主管承认她的组织在富尔顿县的同一地址登记了数千名无家可归者投票。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/bafa5e54-061f-4b93-bb0d-b61dd28a9986.jpg?asset_id=976de62a-5258-4682-bcb7-043d625cd4ae&amp;img_etag=%223ef7a6217ec140085c58a84552e4369a%22&amp;size=1024)](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/bafa5e54-061f-4b93-bb0d-b61dd28a9986.jpg?asset_id=976de62a-5258-4682-bcb7-043d625cd4ae&amp;img_etag=%223ef7a6217ec140085c58a84552e4369a%22&amp;size=1024)
+佐治亚州的法律规定，一个人必须在自己居住的地方投票，而允许别人在选民登记时使用虚假声明是非法的，最高可判处10年监禁。
 
-**简评：**
+Veritas在双参（议员）决战选举的前一天晚上发布了这段视频，其中的赌注不能再高了。
 
-大量的奥巴马政府官员在退休后为三瓜俩枣给中共站台，替中共吆喝，出卖美国的国家利益，政治的丑恶在这些人身上体现得淋漓尽致。这些人并不只局限于奥巴马政府，或者整个民主党，共和党也不乏这样肮脏的政客。本文曝光了被乔•拜登提名的重要内阁成员曾经参与亲北京团体赞助的访华旅行，甚至和大外宣机构共同发布报告。
+趋势。骄傲的男孩领袖恩里克·塔里奥在离开华盛顿地区机场时被捕，在阻止偷窃集会的路上……更新：被指控燃烧“黑名贵（BLM）”的旗帜，然后拥有两个枪弹夹。
 
-这些人的存在是美国政治生态的一部分，自然界并不是所有动物都是雄鹰或狮子，还有沼泽地和鳄鱼，每个部分都是生态的一环。如何利用这个生态圈有利于我们中国人民，有利于中华民族的未来。爆料革命和新中国联邦的智慧、勇气、实力足以让这次美国大选所带来的危机矛头指向中共。新中国联邦作为拯救美国的重大贡献者将会成为最大的赢家，让共产党彻底消失！
+民主党人正试图窃取佐治亚州的两个参议院席位，以便他们能够控制参议院。
 
-**原文翻译：**
+而我们在11月的选举中也看到了，民主党人用无数的方法来塞满选票箱，进行作弊。
 
-## 拜登“挑选”的领导团队参与了亲北京组织赞助的访华之旅，并共同撰写报告
+“因此，我们服务的大多数人都没有地址，但是，如果他们登记投票，并获得佐治亚州身份证，我们允许他们使用我们的地址， “中央外联宣传中心的执行主任金伯利·帕克说。”我们确实允许他们使用华盛顿街201号（佐治亚州，亚特兰大）。”
 
-**《国家脉动》今天曝光，拜登团队选择的高级政府官员同时运行着一个组织，该组织曾经参与中共大外宣机构领导的计划，甚至和大外宣机构共同发布报告。**
+“根本无法告诉你有多少人的身份证上有这个地址””委员会成员们干的风生水起……（一开始）还以为我们做的事情不会很顺利呢……”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/d5ebb7f5-4c26-417f-891f-19d9127cca17.png?asset_id=3c56bb01-c45a-4377-a953-c2071362913a&amp;img_etag=%22daf96e992581c05c70634f4971731efa%22&amp;size=1024)](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/d5ebb7f5-4c26-417f-891f-19d9127cca17.png?asset_id=3c56bb01-c45a-4377-a953-c2071362913a&amp;img_etag=%22daf96e992581c05c70634f4971731efa%22&amp;size=1024)
+观看：
 
-据报道以及多份跨11年的记录指出，基于华盛顿的“美国进步中心” (Center for American Progress, CAP)——通常被指出“紧密站队”奥巴马—拜登政府——多次参与中美交流基金会(China-United States Exchange Foundation, CUSEF)赞助的访华旅行。
 
-现在，该组织的领导人是拜登钦点美国行政管理和预算局 (United States Office of Management and Budget)局长的人选，假设虚假选举结果被认证，乔•拜登当选总统的话。
 
-CUSEF由中共统战部门“最高监督机构”的副主席创立，该组织被“美中经济与安全评估委员会”(United States-China Economic and Security Review Commission)认定为试图“收买和消除可能对反对中共政策和中共霸权，中共统治的源头”并“影响海外华人社区、外国政府部门以及任何个人以让他们采取行动或者站队支持北京政权”。
+> BREAKING: [@CentralOAC](https://twitter.com/CentralOAC?ref_src=twsrc%5Etfw) Exec Admits Org Registers Thousands Of Homeless To Vote At Same Address In Fulton Co.
+> 
+> "Can't even begin to tell you how many people have that address on their ID"
+> 
+> "Board members got wind…thought we’re doing things not on the up and up…"[#GAVoterFraud](https://twitter.com/hashtag/GAVoterFraud?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/5j2uJ2XV4T](https://t.co/5j2uJ2XV4T)
+> — James O'Keefe (@JamesOKeefeIII) [January 5, 2021](https://twitter.com/JamesOKeefeIII/status/1346271086783197185?ref_src=twsrc%5Etfw)
 
-由西方游说公司支持，CUSEF完成了“有效地向媒体、关键影响人员和意见领袖以及公众散布中共国正面信息”，司法部外国代理人登记法 (Foreign Agents Registration Act, FARA)的档案显示。
 
-《国家脉动》此前揭露了CUSEF和主流媒体公司以及其他美国政客的联系，这解释了为什么中共宣传机构从来没有报道拜登和CAP的关系。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/33449aa7-b783-4b63-8964-2580b4f058aa.jpg?asset_id=65ce3030-8ec1-4d9f-85b4-5379197093e9&amp;img_etag=%2273453320b1304bde805faab597787c07%22&amp;size=1024)](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/33449aa7-b783-4b63-8964-2580b4f058aa.jpg?asset_id=65ce3030-8ec1-4d9f-85b4-5379197093e9&amp;img_etag=%2273453320b1304bde805faab597787c07%22&amp;size=1024)
+*突发：@CentralOAC 行政人员承认该组织用富尔顿公司的同一地址为数千无家可归者登记投票。*
+*“甚至无法告诉您有多少人的身份证上是同样的地址”*
+*“*委员会成员们干的风生水起……（一开始）还以为我们做的事情不会很顺利呢……*”*
 
-**年度代表团**
+在Veritas项目视频发布后，中央外联宣传中心惊慌失措地删除了他们的推特账户。
 
-自2009年开始，CAP在CUSEF项目下向中共国派遣访问代表团。
+他们想隐藏什么？
 
-与中共政府有联系组织的手册显示，CAP代表团讨论了“大量的问题，包括地缘政治合作、军事合作、气候变化、能源安全、贸易平衡和全球金融危机”。
 
-“两国必须互相承诺和下决心，在未来建立正面、合作和全面的中美关系”，代表团领袖总结发言道，奥巴马顾问、克林顿政府幕僚长约翰•波德斯塔 (John Podesta)出席。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/cfe80222-27d5-4c7f-b52d-0edde03193b2.png?asset_id=d1d59dab-6f05-4b7c-bf9f-367a0a13bf6a&amp;img_etag=%225514ccaafedee04ca3b05827e500bc2c%22&amp;size=1024)](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/cfe80222-27d5-4c7f-b52d-0edde03193b2.png?asset_id=d1d59dab-6f05-4b7c-bf9f-367a0a13bf6a&amp;img_etag=%225514ccaafedee04ca3b05827e500bc2c%22&amp;size=1024)*2009 CUSEF宣传材料*
+> BREAKING: [@CentralOAC](https://twitter.com/CentralOAC?ref_src=twsrc%5Etfw) has now DELETED their Twitter account following [@Project\_Veritas](https://twitter.com/Project_Veritas?ref_src=twsrc%5Etfw) [#GAVoterFraud](https://twitter.com/hashtag/GAVoterFraud?src=hash&amp;ref_src=twsrc%5Etfw) release tonight exposing their illegal registering of thousands of Atlanta homeless to vote at the same address!
+> 
+> What are they trying to hide? We already got it all on tape! [pic.twitter.com/YncsG4qYdc](https://t.co/YncsG4qYdc)
+> — James O'Keefe (@JamesOKeefeIII) [January 5, 2021](https://twitter.com/JamesOKeefeIII/status/1346303972479385601?ref_src=twsrc%5Etfw)
 
-2011年的照片显示代表团在中国共产党的“人民大会堂”出席会议。一个中共驻外大使馆对此活动的报道描述了当时中共官员如何“敦促美国正确处理台湾问题，以及将重心放在中共关心的事情上”。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/941da38c-3333-485a-8ee0-2340c95442a0.png?asset_id=e71de8a5-f39e-4c22-b8a9-30b5a7eb94ef&amp;img_etag=%222461da6b16211a6bb6a2335a0aa24fc4%22&amp;size=2560)](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/941da38c-3333-485a-8ee0-2340c95442a0.png?asset_id=e71de8a5-f39e-4c22-b8a9-30b5a7eb94ef&amp;img_etag=%222461da6b16211a6bb6a2335a0aa24fc4%22&amp;size=1024)*波德斯塔在2011年*
 
-CUSEF同时在他们网站上鼓吹2016年“来自CAP的专家代表团访问了北京”，经常是在波德斯塔（Podesta）的领导下，波德斯塔是CAP的主席。同时与会的有中共解放军总参谋长和其他中共领导人，还有洛杉矶市市长埃里克•加塞蒂 (Eric Garcetti)。
+*突发：@CentralOAC现在已经删除了其Twitter帐户，@Project\_Veritas #GAVoterFraud今晚发布，揭露他们非法登记的成千上万的亚特兰大无家可归者在同一地址投票！*
 
-一份摘要指出:“随着美国大选开始，许多人对这次及时的访问特别感兴趣。”
+*他们想隐藏什么？我们已经把所有东西都录音了！*
 
-![]()![](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/fff6352f-109a-4c16-9330-e5f2cd23fb3f.png?asset_id=18c7586f-5c1e-40fb-8280-679f037a694f&amp;img_etag=%2205d1bb21185c5f4c07708609a03a22c9%22&amp;size=1024)*2016年代表团和中共解放军官员*
-
-**共同作者**
-
-2013年代表团访华之后，CAP和CUSEF共同发布了一份110页的报告，关于未来中美关系，敦促更加紧密的经济联系和军事合作。
-
-“两国官员和专家都需要更加有效地就中美关系的重要性和两国旨在防止问题和实现目标的新型关系进行民间对话”，回忆录鼓励称。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/90ed9516-2dd9-41d6-b2a5-915f0e52f2ae.jpg?asset_id=ecd58a7a-f295-4394-bbe9-a9d9ed723cec&amp;img_etag=%228f945366c807f53af7b8e46748051e59%22&amp;size=1024)](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/90ed9516-2dd9-41d6-b2a5-915f0e52f2ae.jpg?asset_id=ecd58a7a-f295-4394-bbe9-a9d9ed723cec&amp;img_etag=%228f945366c807f53af7b8e46748051e59%22&amp;size=1024)*CAP和CUSEF共同作者*
-
-该报告还显示，奥巴马—拜登政府的遗老在14人的代表团里分量颇重，报道指出所有参与人员“都对九月的对话有重要贡献”。
-
-副总统拜登的前副国家安全顾问朱丽安•史密斯(Julianne Smith)，美国卫生与公众服务部高级顾问莱斯利•达克(Leslie Dach)，奥巴马2012竞选团队亚洲政策副主任妮娜•八吉安(Nina Hachigian)，和其他奥巴马政府遗老都在代表团名单里。
-
-但是CAP和拜登的关系更深：CAP的现任主席和资金团队主席尼拉•坦登(Neera Tanden)近期被民主党总统竞选人乔•拜登提名为美国行政管理和预算局局长，假如虚假的选举结果被认证，乔•拜登当选的话。
-
-**暴利的游说**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/3a77a6bc-468b-43bb-bea6-8e5f9211e2c6.jpg?asset_id=0fd4898e-0bd4-42e7-ac21-b3231675664e&amp;img_etag=%222199311126f20647b0ad0f77f947b120%22&amp;size=1024)](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/3a77a6bc-468b-43bb-bea6-8e5f9211e2c6.jpg?asset_id=0fd4898e-0bd4-42e7-ac21-b3231675664e&amp;img_etag=%222199311126f20647b0ad0f77f947b120%22&amp;size=1024)
-
-由波德斯塔的兄弟托尼创立的游说公司——波德斯塔集团——也在2017年与CUSEF签署了一份暴利的游说合同。为了每年获得30万美元，这家目前已经停止运行的公司保证游说两院的政府官员支持“中美关系”。
-
-最新的报道会进一步引发中国共产党被拜登政府优先对待的关注，并且引起人们怀疑北京政府操控2020大选以便让他们喜欢的人当选。
-
-[原文链接](https://thenationalpulse.com/exclusive/biden-omb-director-think-tank/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-[点击saprk adobe版](https://spark.adobe.com/page/QRkGCWt3uaAuM/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/QRkGCWt3uaAuM/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+原文作者：克里斯蒂娜·莱拉（Cristina Laila）
+发布时间：2021年1月4日 下午10:56
+文章链接：https://www.thegatewaypundit.com/2021/01/breaking-project-veritas-central-oac-exec-admits-org-registers-thousands-homeless-vote-address-fulton-county-video/
 
 0

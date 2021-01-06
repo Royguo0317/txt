@@ -1,31 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵：你不知道路德的节目有多伟大、多重要！
-` Isaiah4031` [轉載自GNews](https://gnews.org/zh-hans/717944/)
+## War Room 631 总结
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/718312/)
 
-在《我是音雄》的跨年晚会上，郭文贵先生在祝贺一个成功逃到西方的家庭的时候，高度评价了路德和路德的节目。他说路德是中共防护墙造成的信息“肠梗阻”上唯一的一个能获得真正信息的通道，他的重要性人们还没有充分意识到，但是未来会越来越会明白。
-视频来源: [https://gtv.org/video/id=5feec374f579a75e0bbf37b2](https://gtv.org/video/id=5feec374f579a75e0bbf37b2) (00:16:43-00:18:22)
-**中英文对照文本**
+- 编辑：Ranting
+- 作者：Jenny Ball
 
-Let me tell you about Lude Media. I have told Mr. Lude from the very beginning that “You don’t know how great and important your show is.” I have been telling him this all the time. I have probably said this to him the most. This is because the important thing is that many people say they are not aware of this. After the CCP built the firewall, when people don’t know the truth, its blocking of human nature and the danger caused by this are immeasurable. Especially when the virus comes, you won’t know how to deal with it at all. You [can] only hear one voice, but it is too weak. Everyone is different, which makes it [the virus] very scary. Rather, Mr. Lude is the only [media to tell the truth]. When I talked with Mr. Lude in private, I asked “Do you know my plan?” The CCP has built a firewall, which blocks all of the information, which forms a message “intestinal obstruction”.
 
-我跟你说路德社的节目，我一开始就给路德先生说，我说你不知道，你这个节目有多伟大、多重要。我总是这么告诉他，我说这话可能跟他说是最多的。因为最重要的很多人老说没有意识到，共产党建了防火墙以后，当你不知道真相以后，它对人性的这种封杀和对这种带来的危险是不可估量的。就特别病毒来的时候，你根本不知道怎么应对，你只听一个声音，那就太微。因为每个人都是不一样的，那太可怕了。而路德先生是、是我们唯一个。我跟路德先生私下聊天时，我说你知道，我的计划就是什么？共产党建了个防火墙，然后把所有信息全屏蔽了。那么它就形成了个信息肠梗阻。
+**总统刚刚发推文：副总统有权拒绝欺诈性选举人。**
 
-I said, “Mr. Lude, my plan is to let you become the only person standing there just like the only crack in the most blocked intestinal obstruction. That is called the Lude Media.” It [the CCP] certainly blocks everyone [from getting information], but it also blocks itself. We let Mr. Lude become the only one in the crack of the intestinal obstruction, spreading the truth every day.
+明天一切妖魔鬼怪都会出来。我们要专注于重要的事情。
 
-我说：路德先生，我的计划就是让你成为肠梗阻的、最堵的那个缝的，唯一站在那个人，那就叫路德访谈。它当然把大家给屏蔽了，它就把自己给屏蔽了，我们就让路德先生将成为唯一的一个在肠梗阻的门上，天天传播真相。
+分两步朱利安尼市长将展示选举欺诈的细节：
 
-Someone like you that is predestined, with real wisdom and is blessed, can avoid the disasters because of the Lude Media. The significance of the Lude Media cannot be realized today or tomorrow. After taking down the CCP, when these fellow fighters come out and leave the Mainland China, or when people like you get the truth and save their whole families, you will understand better and better in the future that the Lude Media is saving lives, safeguarding your wealth, and even helping you make a fortune. It can also help you continue your incense [protect your offsprings]. How significant this is!
+- 第一，他们在六到八个州进行了非法选举，宪法规定，州立法者是制定规则的人，这些规则不能更改，这些州都是非法选举，那些非法选票应被取消资格；
+- 第二，有大量选民欺诈，我们有欺诈行为的证据。宾夕法尼亚州是最严重的例子，他们有800,000张非法选票，这在统计上是不可能的。他们将所有共和党监票人赶出去，在没有人监督时弄出687,000张。还有65,000名未成年人参加投票。10,000张死人投票， 这是大规模的选民欺诈，足以推翻选举结果，将胜出者交还给川普。
 
-当有缘人，当像你这样的人，真正的有智慧的人，有福报的人，就能躲开灾难，这就是路德访谈[的作用]。路德访谈未来的意义不是今天和明天能说，灭共之后，当这些战友走出来，离开大陆以后或者像你这样的人得到了事实，救了全家以后，你未来越来越会明白，路德访谈救命、保财还让你能发大财，还能让你延续香火，这事不是一般的大。
 
-*【感谢新加坡狮城农场 Himalaya Singapore提供中文文本于[https://gnews.org/zh-hans/712375/](https://gnews.org/zh-hans/712375/)】*
+朱利安尼市长要给他们展示数字，明天看数学计算，一是一，二是二，这里没有灰色区域。
 
-翻译：【Cyndi】校对：【BruhM】【Isaiah4031】字幕：【相机过热啊】视频剪辑：【恒久忍耐】编辑：【Isaiah4031】
+未成年选民很容易证明，只要看一下记录，上面清楚地表明了他们的出生日期。他们从驾驶证的记录中获得的信息，他们主要是年轻人，他们拥有初级驾驶执照或驾驶执照，一些州驾照许可会低至15岁。因此，他们将这些名单放入选民登记册，并用其进行投票。
 
-喜马拉雅玫瑰园小队出品
+他们以为没有人会检查这些记录，因为他们作弊15年之久，从来没有人检查选民记录。
 
-*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
+**班农先生**：这很严重。他们在首页文章中登出总统电话的整个对话，看起来就像越战时期的标题和结尾格式，但没有登出川普谈话时列举的各种欺诈数据。为什么？因为他们无法反驳这些收据。数字不会撒谎，尤其是你能够证明它们。
+
+**《人民权威日报》（People’s Pundit Daily****）高级编辑理查德·巴里斯（Richard Baris****）**：人们不想去为珀德（Perdue）和凯莉·洛夫勒（Kelly Loeffler）（Kelly Loeffler）投票，因为人们非常气愤，共和党人也气愤，独立人士投票支持川普的人们也气愤，他们想要他们两个为选举公正而战，大力的抗争，我们已经三次集会敦促他们，人们不明白，为什么邮寄选票和现场投票要区别对待？这是常识，即使民主党人，他们有很多人也不买账，相信佐治亚州川普胜选被偷的人是大多数。
+
+但自11月3日以来，尽管新闻报道，选举的一切都未改变。例如，富尔顿县有法院任命的监督员，但那人不是在角落里打瞌睡，就是在看手机。而且这样的监票情况不仅在富尔顿这样，而是无处不在，两党共同监票完全是胡说八道。
+
+人们应该阅读纳瓦罗的调查报告，特别是我们提供给他的日期和时间，与该报告中的数字对照，查看乔治亚州的情况。差别的唯一区别是时间人口统计，他们没有改变， 翻转结果绝对不可能。高度不可能！我会说“不”，但是在佐治亚州，太多让我无法用正常统计逻辑去理解。
+
+**约翰·弗雷德里克（John Fredericks****）：**参议员竞选将十分艰难，问题是：
+
+- 多猫腻投票机的问题。在3大共和党地区，这些机器无法扫描，监票人员告诉选民将选票放进信封，当机器修好后，他们会帮着人们投票，这很值得怀疑。
+- 两党共同监票完全是宣传，与11月3日相同，还是相同的人，在做相同的事。
+
+
+我们需要110万的选民，基本上是60％投川普，而40％反川普。如果保持现在趋势的话，将有850,000人在选举日投票，但是真的无法预计。我们期望三点以后有大量投票率。如果发生这种情况，可以达到百万人。我认为珀德会落选，洛夫勒获胜，因为她说她将在1月6日支持总统。但是珀德在投票开始2小时后才在推特上发文表示态度。
+
+**肖恩·帕内尔（Sean Parnell****）**上尉美国前国会候选人：任何有良知的人都不能认证宾夕法尼亚州的选举结果。我们的审计发现，仅在我所在地区，就有63,000的非法投票，这就意味着投票人数比实际选民多。
+
+整个宾夕法尼亚州西部有120,000张非法选票，整个州有200,000非法选票。如果还没有完全更新空缺制，那么为什么在11月24日认证有200,000多非法选票的选举结果？怎么能通过这么多需要核查选票的结果呢？
+
+今天宣誓就职的众议院和参议院，都是由共和党人控制。他们要成为领导人而不是政客。要站起来抗议。参议院有传票权，传票是宾夕法尼亚州的州务卿，特别要质问她有关非法选票的问题：
+
+- 问为什么阿勒格尼县有12万选民短缺？
+- 问为什么数据库中缺少该选举地图文件？
+- 特别要问她为什么授予左翼团体对州选举系统管理的访问权限？
+
+
+请代表联邦的人民提出这些问题，因为我们需要澄清事实，我们需要答案！
+
+**如果想取得胜利，那就集中精力。集中精力就是打电话给立法者们，给他们施加压力**。
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
 0
