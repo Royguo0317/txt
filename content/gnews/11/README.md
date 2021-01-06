@@ -1,17 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [危机中的重生] 1月6日美国总统大选之决战时刻系列报导(9)
-` 旧金山-金喜准农场` [轉載自GNews](https://gnews.org/zh-hans/723828/)
+## 中共国对印太地区的军事侵略
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/724008/)
 
-**川普总统的支持者，美国爱国者突发占领国会议会，现场精彩时刻照片分享**
+新闻来源：U.S. DEPARTMENT of STATE 《美国国务院》； 作者：美国国务院； 发布时间：2020年12月3日
 
-图片收集：小雯
+翻译/简评：狙击手维克多；校对/审核：万人往；Page：小雨
 
-**大选舞弊的叛国者：这就是人民审判你。**
-![](https://lh4.googleusercontent.com/bwb4VqkEJ0azg0TsnRK067aMS9z7ifFZHamdDwD1ApmCzUt8g-h4CqOqnzB8YWwzZx6VBNo-rZTZ-d5fizI9Fppt9gfpL0Ldn_rgqcQK0nbkittOQ6xP0rlGX-dYroaMjayvxjQR)![](https://lh3.googleusercontent.com/TMut2ctezZtUXMbwbAypgexn3nYBO-bZSPii1C-GzwC1IeWQxi8GAayESFhRNWjGASq3CvTE1UA_NgXs5DC1DUzJboZILGCU1gF9HJOaPkI1Qz4yRupWavE2Esmldw1XEL9b_WTi)
-![](https://lh4.googleusercontent.com/bwyUCxJQFjA7sPjJwcLLhKcqhEssgOykNnofX01KtxZxvG1u8xa3KDvdeqLifOL1WmaDxYGHB3v07u7CAI5qSx3Q0BVdvC1QwPMl-k-v7pQhabfISaFU5R9Nq8kEwA4YUODvXmA5)
+[!\[\]()!\[\](https://spark.adobe.com/page/bm5jiDLZKOy67/images/cf0ccfdd-9d7c-422d-b596-a61ef2970580.jpg?asset_id=ac64b37e-ee89-496b-84d4-812faa0185af&amp;img_etag=%2202d44dab8f68e33b658c1a269b9cad09%22&amp;size=2560)](https://spark.adobe.com/page/bm5jiDLZKOy67/images/cf0ccfdd-9d7c-422d-b596-a61ef2970580.jpg?asset_id=ac64b37e-ee89-496b-84d4-812faa0185af&amp;img_etag=%2202d44dab8f68e33b658c1a269b9cad09%22&amp;size=1024)
 
-![](https://lh6.googleusercontent.com/7gNk894VBIMJ5-HXWed0x543OzuEMMUKc7iwtlo1Nrgwn8whMz05ZEd6PUHumthv_tzeGhlpRDuWoAsdWMW0DKZqM3Cvu2Pmf59wqXcjRylZt1E7zzgFze6PkwPieEW8tlSs83Dz)
-![](https://lh5.googleusercontent.com/3L-ZbLbbInQN4eMIqin4b26zeF2gArR-hlqf8AzgDTYJrbdc-TetNTgPuTiMiCubVc4RfeUa5TBrEi9IbhtUppA7qcQZhLgliI2mkFBYYtxCywKCgGoHfPb4zAyAKNIHKbQc9gvx)![](https://lh4.googleusercontent.com/GykBz4uHPUSGXI1O-463hs8NUjgjyGroVjzl1YVwHr51mcsZ1Jhpu8Sjw7dpo1ZrXgBjF0R5SetEgIVSvThpi4g2yw1EYamLScrb61--JBgSgXNkKVfSIYju5P5ewCOg91S0Ji8j)
-+2
+#### **简评：**
+
+近些年，“霸凌”成了中共国社会的高频词汇。“强权即公理”本是几十年前中共党宣对“帝国主义铁蹄”的描述，现在竟成了中共国社会内部以强凌弱的日常写照，同时也是中共国外交政策的纪实描述——这是合理的。从小被当成“狗崽子”的习，长大以后也崇拜“强权即公理”，以至于“战狼外交”大行其道。
+
+谭嗣同曾说：“幸而中国之兵不强也，向使海军如英法，陆军如俄德【…】，彼白人、红人、黑人、棕色人，将为准噶尔，欲尚存瞧类焉得乎？”（幸亏清国的军事不够强大，如果海军如英法、陆军如俄德，【…】全世界的白人黑人红人棕人，全都会像准噶尔人一样，连人种都被我们灭掉）。
+
+国人受中共洗脑毒害百年，他们的自尊玻璃心与民族狂热并存，这种文化和心态既不可能铸造出真正伟大的国家，也与三千多年的文明传承不相匹配。北洋水师亦曾飞扬跋扈，甲午一败，致使中国此后百年几乎没有海军。百年建军，一朝覆灭——这是昂贵又耗时的海军的作战特点，今日的中共国还要重复百年前的错误吗？
+
+文贵先生庄严提出，新中国联邦要与世界缔约“千年和平”，这才是真正强大的内心，真正伟大的智慧啊！
+
+#### **原文翻译：**
+
+# 中共国对印太地区的军事侵略
+
+**关于中共国对印太地区的军事侵略**
+
+大部分印太地区国家都正在遭受来自中国共产党的军事和经济霸凌，后者提出非法的海域主张、威胁海上航道、破坏周边地区稳定。这种掠夺性行为增加了误判与冲突的风险，美国将与东南亚盟友及其他合作伙伴一道，捍卫印太地区的自由与开放。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/bm5jiDLZKOy67/images/eff159f8-3268-4882-9a47-f65c2f00540f.jpg?asset_id=d14c58c9-59a6-4fe5-a95e-6a855a554c6b&amp;img_etag=%223996addc0454f64a950dc4c90e361967%22&amp;size=1024)](https://spark.adobe.com/page/bm5jiDLZKOy67/images/eff159f8-3268-4882-9a47-f65c2f00540f.jpg?asset_id=d14c58c9-59a6-4fe5-a95e-6a855a554c6b&amp;img_etag=%223996addc0454f64a950dc4c90e361967%22&amp;size=1024)
+
+*“中共国愈加频繁地利用其人造岛礁对周边国家进行骚扰，以削减东南亚沿海国家的海上石油、天然气开采和渔业工作。” — 史达伟 （主理国务卿）*
+
+**建立海外军事基地**
+
+在“一带一路”计划的倡议下，中共国持续海外军事扩张，以保障其经济利益和国家安全。具体而言，中共国正在建立全球物流系统，建设基础设施以便在更远距离投放中共军队，并维持其军事存在。中共国经常滥用东道国港口的商业条款，以商业行为掩盖军事行为，从而掩盖其建设海外设施的真实目的。例如，中共国官员多年以来一直表示，中共国永不寻求海外基地，然而2017年，他们在吉布提正式宣布设立海外基地。中共国将其在吉布提的设施称为后勤基地，尽管驻扎在当地的解放军海军陆战队已经装备了装甲车和火炮。
+
+在中共国实体陆续获得对各国港口及其他设施的访问权和控制权的过程中，各国发现自己可能在无意中支持了中共国的军事扩张行为，从而也支持了北京的修正主义地缘政治目标。例如，有媒体详细阐述了中共国与柬埔寨之间达成的秘密军事协议。中共国在柬埔寨的军事存在可能威胁东盟地位和地区稳定。此外，它还可能破坏和平解决争端、促进海域安全与保障、航行及飞行自由的前景。
+
+迄今为止，中共国军事扩张的影响在南中国海最为强烈，尽管习主席于2015年明确承诺不将南沙群岛军事化，但中共国仍在南海建立了多个基地。目前，北京正利用这些据点增加对东南亚沿海国家的恐吓与胁迫，破坏这些国家根据国际法行驶主权的努力。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/bm5jiDLZKOy67/images/096c06a1-db15-479c-83da-184f9fcdf33c.jpg?asset_id=53e32823-0d1b-44a3-9e1b-8bc8184df66d&amp;img_etag=%22395b4ecf03911a4b59b286c7e458b35b%22&amp;size=1024)](https://spark.adobe.com/page/bm5jiDLZKOy67/images/096c06a1-db15-479c-83da-184f9fcdf33c.jpg?asset_id=53e32823-0d1b-44a3-9e1b-8bc8184df66d&amp;img_etag=%22395b4ecf03911a4b59b286c7e458b35b%22&amp;size=1024)
+
+*“世界不会容许中共国将南中国海视为其海洋帝国版图的一部分。”——迈克•彭佩奥（国务卿）*
+
+**盗取南中国海自然资源**
+
+针对中共国对南中国海大部分区域的海上资源的非法主张，多个国家均已表示谴责。北京则利用恐吓手段破坏东南亚沿海国家在南中国海的主权，包括强制将其从海上资源区域驱离、胁迫船只脱离航线、确定单边统治、剥夺渔民生计等。中共国正寻求以“强权即公理”取代国际法规。中共国将其单方面意愿强加于该地区的行为是没有法律依据的，2009年，中共国官方正式宣布其“九段线”的领土主张，但没有提供任何恰当的法律依据。2016年7月12日，根据1982年《联合国海洋法公约》成立的仲裁庭一致裁定：中共国在南中国海的大部分海事主张不具有国际法律依据，仲裁庭拒绝接受，中共国是该《公约》的缔约国之一。
+
+不会容许中共国将南中国海视为其海洋帝国版图的一部分。美国将以国际法规定的权利和义务为基础，与东南亚盟友及其他合作伙伴们站在一起，维护它们对海上资源的国家主权。美国将与国际社会一道，捍卫海洋自由，拒绝将“强权即公理”强加到南中国海及更广泛地区的任何行为。
+
+[原文链接](https://www.state.gov/chinas-military-aggression-in-the-indo-pacific-region/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/bm5jiDLZKOy67/)
+[!\[\]()!\[\](https://spark.adobe.com/page/bm5jiDLZKOy67/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/bm5jiDLZKOy67/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+0

@@ -1,45 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选实况】1/6/2021 朱利安尼先生推文：爱国者们请和平表达观点
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723867/)
+## 【大选实况】1/6/2021 Ted Cruz推文：任何暴力行为，尤其是对抗执法行为，都应受到充分起诉
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723963/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/rudygiulianidonaldtrumpukraine.jpg)来源：DON EMMERT/AFP/GETTY IMAGES
-川普总统私人律师、前纽约市长朱利安尼先生推文：“对于所有挑战选举欺诈的爱国者，川普总统希望您和平表达自己的观点，我们是崇尚‘法律与秩序’的一方，您站在正确的一边，无论从历史上看还是从法律上看。请您表示对所有人的尊重。”
+![Sen. Ted Cruz]()![Sen. Ted Cruz](https://nypost.com/wp-content/uploads/sites/2/2021/01/210102-ted-cruz-election.jpg?quality=90&amp;strip=all&amp;w=618&amp;h=410&amp;crop=1)来源：Olivier Douliery/Pool/AFP via Getty Images
+1月6日下午近两点钟，得克萨斯州参议员Ted Cruz推文：“暴力永远是不可接受的，哪怕激情再高。任何暴力行为，尤其是对抗执法的行为，都应受到充分起诉。愿上帝保佑首都的警察和尊敬的执法人员，他们展现出极大的勇气，确保我们所有人的安全。”
 
 
 
-> To all those patriots challenging the fraudulent election , 
+> Violence is always unacceptable. Even when passions run high.
 > 
-> POTUS wants you to EXPRESS YOUR OPINION PEACEFULLY,
+> Anyone engaged in violence—especially against law enforcement—should be fully prosecuted. 
 > 
-> We are the law and order party,
+> God bless the Capitol Police and the honorable men & women of law enforcement who show great courage keeping all of us safe.
+> — Ted Cruz (@tedcruz) [January 6, 2021](https://twitter.com/tedcruz/status/1346906229189341184?ref_src=twsrc%5Etfw)
+
+
+
+参议员Ted Cruz另外一条推文说到，“那些冲进国会大厦的人需要立即停止！宪法保护的是和平抗议，但是暴力（无论是左派还是右派）总是错误的！那些从事暴力活动的人恰恰正在伤害他们自己所支持的东西（法律与秩序）。”
+
+
+
+> Those storming the Capitol need to stop NOW. 
 > 
-> You are on the right side of the law and history.
+> The Constitution protects peaceful protest, but violence—from Left or Right— is ALWAYS wrong.
 > 
-> Act with respect for all.
-> — Rudy W. Giuliani (@RudyGiuliani) [January 6, 2021](https://twitter.com/RudyGiuliani/status/1346907496875757575?ref_src=twsrc%5Etfw)
-
-
-
-俄亥俄州众议员Jim Jordan也呼吁大家冷静：“停止暴力。请支持首都警察。”
-
-
-
-> Stop the violence. Support Capitol Police.
-> — Rep. Jim Jordan (@Jim\_Jordan) [January 6, 2021](https://twitter.com/Jim_Jordan/status/1346909940812664834?ref_src=twsrc%5Etfw)
-
-
-
-爱荷华州资深参议员Chuck Grassley的团队发推报平安：“谢谢大家的关心。参议员Grassley现在在一个安全的地方。”
-
-
-
-> Thank you for your concern. Senator [@ChuckGrassley](https://twitter.com/ChuckGrassley?ref_src=twsrc%5Etfw) is in a secure location.
-> — Sen. Grassley Press (@GrassleyPress) [January 6, 2021](https://twitter.com/GrassleyPress/status/1346915858409517056?ref_src=twsrc%5Etfw)
+> And those engaged in violence are hurting the cause they say they support.
+> — Ted Cruz (@tedcruz) [January 6, 2021](https://twitter.com/tedcruz/status/1346911179042484230?ref_src=twsrc%5Etfw)
 
 
 
 译者：卡拉马佐夫姐姐【㊙️翻Gnews原创组】
 
-+1
+0

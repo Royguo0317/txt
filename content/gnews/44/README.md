@@ -1,19 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评粤语快报】01.05：川普制裁中共支付系统 姆努钦致电纽交所继续中共公司退市行动
-` 粵語組` [轉載自GNews](https://gnews.org/zh-hans/723331/)
+## 【大选实况】1/6/21 Sidney Powell 发推喊话凯文. 麦卡锡和其他国会共和党委员
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723558/)
 
-制作团队：【喜马拉雅粤语组】西林、文雀、文恩
-
-上传：流光飞舞
-
-
-
-摘要:
-
-川普制裁包括支付宝、微信支付、QQ钱包等8家中共支付系统，姆努钦致电纽交所继续执行中共电信公司退市行动，梵蒂冈教廷与灭共关系
-
-[【路德时评】原视频链接](https://youtu.be/OGb7NavSaAQ)
+Sidney Powell 推文：凯文. 麦卡锡和其他国会的共和党委员会领袖们，你们是否清楚充分地向你们的共和党同僚解释清楚？如果你们今天和今天之后不为川普投票，你们的职业生涯就结束了
+![]()![](https://gnews.org/wp-content/uploads/2021/01/PHOTO-2021-01-06-12-11-06.jpg.jpeg)
+By： 【秘密翻译组 G-Translators – 北美组】
 
 0

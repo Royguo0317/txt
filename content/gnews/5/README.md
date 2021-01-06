@@ -1,33 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [危机中的重生] 1月6日美国总统大选之决战时刻系列报导(7)
-` 旧金山-金喜准农场` [轉載自GNews](https://gnews.org/zh-hans/723754/)
+## 【大选实况】国会山一片混乱：100余人冲进国会大厦后，有一人中枪
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723901/)
 
-撰稿：文真真 Summer
+![Demonstrators enter the U.S. Capitol after breaching security fencing during a protest in Washington, D.C., U.S., on Wednesday, Jan. 6, 2021. The U.S. Capitol was placed under lockdown and Vice President Mike Pence left the floor of Congress as hundreds of protesters swarmed past barricades surrounding the building where lawmakers were debating Joe Biden's victory in the Electoral College.]()![Demonstrators enter the U.S. Capitol after breaching security fencing during a protest in Washington, D.C., U.S., on Wednesday, Jan. 6, 2021. The U.S. Capitol was placed under lockdown and Vice President Mike Pence left the floor of Congress as hundreds of protesters swarmed past barricades surrounding the building where lawmakers were debating Joe Biden's victory in the Electoral College.](https://www.hindustantimes.com/rf/image_size_960x540/HT/p2/2021/01/07/Pictures/protests-presidential-result-session-election-congress-confirms_d1ec8bfa-505f-11eb-8a1e-473a39b025b8.jpg)来源: Bloomberg
+据新闻网站zerohedge报道，在100余人冲进国会大厦之后，有一人中枪，还有1000余人在国会大厦外和平抗议，彭斯副总统目前在一个安全的地方，首都在今晚六点之后宣布戒严。
 
-【**突发新闻**】**川普支持者聚集国会大厦并冲入议会大厦。人民站出来了！**
 
-![](https://lh3.googleusercontent.com/TMut2ctezZtUXMbwbAypgexn3nYBO-bZSPii1C-GzwC1IeWQxi8GAayESFhRNWjGASq3CvTE1UA_NgXs5DC1DUzJboZILGCU1gF9HJOaPkI1Qz4yRupWavE2Esmldw1XEL9b_WTi)
 
-**文贵**：彭斯已经被特勤人员从安全通道撤离
-**路德**：议会休会，相当于瘫痪。
+新闻来源
 
-**文贵**：这一段时间，接下来最关键的是验证选票。朱利安尼很明白。如果证明你是假的，川普总统这段时间就想干什么就干什么。川普总统签署的一个法令。已经不是正常时期。
-昨天Georgia 三个：共和党派黑客进去改最后结果；过程是监控的；国会乱下去；十天特别议会
+[One Person Shot After Protesters Storm Capitol; Trump Urges “Stay Peaceful”](https://www.zerohedge.com/political/capitol-hill-staffers-ordered-evacuate-after-protesters-breach-security)
 
-郭文贵精彩点评：
+翻译报道：卡拉马佐夫姐姐【㊙️翻Gnews原创组】
 
-**中国的伟大：人民能忍耐
-美国的伟大：文明，有法可依**
 
-文贵：现场谁组织的？事实上美国第三党，叫MAGA，已经诞生了。美国宗教信仰的力量。我们正在见证历史。共和党已经和川普决裂了。
-
-**文贵：**这招儿很险。看现场的组织。一定会有人开枪。
-**路德：**彭斯政治生涯结束。
-
-**文贵：**很多所谓世界精英，见完面就觉得，就是这样的人们在控制全世界吗？Elon Musk和他坐一起三次，就更爱你自己。
-
-**郭文贵：**“很多所谓世界精英，见完面就觉得，就是这样的人们在控制全世界吗？”
 
 0

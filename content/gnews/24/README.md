@@ -1,75 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年1月5日 农场联盟答疑摘要（第一部分）
-` eyer` [轉載自GNews](https://gnews.org/zh-hans/723620/)
+## [危机中的重生] 1月6日美国总统大选之决战时刻系列报导(9)
+` 旧金山-金喜准农场` [轉載自GNews](https://gnews.org/zh-hans/723828/)
 
-供稿：喜马拉雅大使馆摘要组
+**川普总统的支持者，美国爱国者突发占领国会议会，现场精彩时刻照片分享**
 
-战友问：之初投资凤凰农场借款时被退款，购买Gdollar被退款后是否有再投资的机会？
-长岛答：请加入农场后与负责人沟通协调，我会再与各农场沟通，对原凤凰农场投资被退款的战友做统计；购买Gdollar被退款就算了，不能再购买了。
+图片收集：小雯
 
-战友问：在凤凰农场购买Gclub时17日就汇款成功，排号是739号，这个排号是否有插队的情况？6字开头的卡号什么时候换1字头？
-长岛答：应该是当时购买的人数较多，只要拿到卡号就没问题，反正是第一千名以前的。我刚与工程师再次沟通，会尽快处理。
+**大选舞弊的叛国者：这就是人民审判你。**
+![](https://lh4.googleusercontent.com/bwb4VqkEJ0azg0TsnRK067aMS9z7ifFZHamdDwD1ApmCzUt8g-h4CqOqnzB8YWwzZx6VBNo-rZTZ-d5fizI9Fppt9gfpL0Ldn_rgqcQK0nbkittOQ6xP0rlGX-dYroaMjayvxjQR)![](https://lh3.googleusercontent.com/TMut2ctezZtUXMbwbAypgexn3nYBO-bZSPii1C-GzwC1IeWQxi8GAayESFhRNWjGASq3CvTE1UA_NgXs5DC1DUzJboZILGCU1gF9HJOaPkI1Qz4yRupWavE2Esmldw1XEL9b_WTi)
+![](https://lh4.googleusercontent.com/bwyUCxJQFjA7sPjJwcLLhKcqhEssgOykNnofX01KtxZxvG1u8xa3KDvdeqLifOL1WmaDxYGHB3v07u7CAI5qSx3Q0BVdvC1QwPMl-k-v7pQhabfISaFU5R9Nq8kEwA4YUODvXmA5)
 
-战友问：汇给安红、老江提供的账号的汇款什么时候对账，如何申请退款？凤凰农场的借款何时退款？
-长岛答：先填表格，退款如何去操作还不清楚，在表格中备注说明，目前正在对账环节。凤凰农场的借款账单、流水单还没拿全，正采取法律手段，暂时一毛钱应该都不能动。
-
-战友问：买Gclub用支票付款方式产生的订单对账不方便？
-长岛答：香草山农场都是这样操作的，没有发生问题。用支票支付产生订单，用订单号去电汇，一定备注好订单号，如果有问题，农场会统计汇报一下。
-
-战友问：我在VOG、凤凰农场、硅谷农场都有借款，多个投资的合同最终能否合并成一个合同号码？
-长岛答：会的，以后会这样操作。
-
-战友问：Gnews投稿编辑部是否成立？个人账号如何发表文章？
-长岛答：各农场成立统一审核发布小组，任何投稿都要经过审核程序才能发表；以后会设立面向社会人士的发稿联络部，非农场人员也可以投稿，但文稿也需要审核才能发表。
-
-战友问：老班长和长岛哥在联盟工作汇报中提到的VOG代理协议是什么？VOG及附属服务器都有哪些需要退出？
-长岛答：VOG最早签订的只有一页内容的协议；原来在VOG做义工建立的服务器或者凤凰农场下面建立的服务器都需要退出。
-
-战友问：新中国联邦电视台、VOG云办公楼服务器需要退出吗？
-长岛答：要退出，这些服务器都要撤掉的。
-
-战友问：郭先生直播说会公告Gdollar、Gcoin的代理说明，现在是否有公告？
-长岛答：目前没有。
-
-战友问：VOG的三个表内容需要修改联系谁？
-长岛答：联系木兰。
-
-战友问：七星会准农场何时变为正式农场？
-长岛答：目前处于联盟接管状态，针对借款和管理做一些调查，时间待定。
-
-战友问：VOG汇款时被退款有统计要起诉，现在什么情况？
-长岛答：具体情况不了解，VOG现在属于sara控制的公司，起诉是否有发生或者推进都不了解。
-
-战友问：投资VOG被银行强行退款的战友是否有机会再投资？
-长岛答：之前的借款已经结束，之后会针对VOG和凤凰农场的战友可能会开放一些机会，等待通知。
-
-战友问：VOG统计过战友被喝茶的情况，这些信息是否安全？
-长岛答：sara仍没有交接这些信息，你可以把这些信息发到联盟邮箱，有专人收集。
-
-战友问：凤凰农场借款有多少钱交到了联盟总部？多久能退款？
-长岛答：账接收了一部分，但钱没有上交。退款的期限没有办法明确回复。
-
-战友问：意大利准农场登记借款，和正式农场有什么区别？
-长岛答：意大利准农场还处于考察阶段，但不影响G系列投资登记。
-
-战友问：VOG投资的八千勇士概念以后是不是不存在了？
-长岛答：不存在了。
-
-战友问：5月汇支票购买Gdollar时没有保留存根怎么填表？
-长岛答：先填表登记姓名、账号等基本信息，支票还未入账。
-
-战友问：已买Gclub，会有Gcoin配额吗？
-长岛答：有。
-
-战友问：Gcoin开放购买时，如果VOG和凤凰农场的投资没有对好账，是否有相应配额？
-木兰：有的，不影响购买，但要如实登记。
-
-战友问：Gdollar汇款完成，对账结束后的如何处理？Gcoin上市时间是否有推迟？
-长岛答：支票部分可选择转借款或者退回。Gcoin上市时间不确定。
-
-战友问：墙内战友可以提前为购买Gcoin做哪些准备？
-长岛答：个人有海外账户把钱转出，操作会相对简单。
-
-0
+![](https://lh6.googleusercontent.com/7gNk894VBIMJ5-HXWed0x543OzuEMMUKc7iwtlo1Nrgwn8whMz05ZEd6PUHumthv_tzeGhlpRDuWoAsdWMW0DKZqM3Cvu2Pmf59wqXcjRylZt1E7zzgFze6PkwPieEW8tlSs83Dz)
+![](https://lh5.googleusercontent.com/3L-ZbLbbInQN4eMIqin4b26zeF2gArR-hlqf8AzgDTYJrbdc-TetNTgPuTiMiCubVc4RfeUa5TBrEi9IbhtUppA7qcQZhLgliI2mkFBYYtxCywKCgGoHfPb4zAyAKNIHKbQc9gvx)![](https://lh4.googleusercontent.com/GykBz4uHPUSGXI1O-463hs8NUjgjyGroVjzl1YVwHr51mcsZ1Jhpu8Sjw7dpo1ZrXgBjF0R5SetEgIVSvThpi4g2yw1EYamLScrb61--JBgSgXNkKVfSIYju5P5ewCOg91S0Ji8j)
++2

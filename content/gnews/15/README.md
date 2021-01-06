@@ -1,31 +1,98 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【三篇专栏】旧文重发：川普会以组建新党作为获胜筹码吗？
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/723790/)
+## 会计，财报，审计入门基础与介绍（九）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/723909/)
 
-**作者： 三票先生**
+![]()![](https://gnews.org/wp-content/uploads/2020/12/WX20201228-134452@2x.png)Picture Source: https://www.groomassocies.com
+在第九篇中是继详细展示财务审计所涉及资产负债表中各项目内容后的具体量化分析步骤与逻辑流程。有助于投资人或审计师依照逻辑且合理的量化程序对于财务报表中的资产负债表进行检阅。
 
+一Common-size analysis of the Balance Sheet 包含每一项占总资产的百分比
 
+二Balance Sheet Ratio 仅包含资产负债表中的项目
 
+三Liquidity Ratio 短期债务偿付能力
+![]()![](https://gnews.org/wp-content/uploads/2021/01/表1.png)
+四Solvency Ratio 长期债务偿付能力
+![]()![](https://gnews.org/wp-content/uploads/2021/01/表2.png)
+五Classification of Cash Flow and Non-cash Activities
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/三票专栏.png)
+1.运营活动Operating Activities:
 
+2.Create Revenue（Inventory， Service，………）
 
+3.Cash Receipts and any payments that related to Dealing security or Trading security
 
+4.投资活动Investing Activities：
 
-美国大选进入了激烈的媒体战和法律战。媒体已经几乎被左派完全控制，有些貌似右派的媒体也是首鼠两端双边押注，拜登已经自行宣布获胜，主流媒体先入为主宣布拜登胜选为拜登造势，甚至有多国首脑向拜登祝贺，川普处于明显劣势。法律方面，由于美国的法律程序严谨复杂，本次大选民主党和中共做假程度既广又深，拜登一方又花重金聘请500名顶级律师准备与川普进行诉讼，虽然从道义上和法理上川普占有优势，否能取胜尚存变数。
+5.Purchase and Selling Long-term Asset and other investment
 
-**川普还有一个方法作为谈判筹码争取获胜**，就是利用民意脱离共和党筹建新党，比如平民党。本次大选川普获得了7100万选票，和拜登的做假不同，这些选票是真实的选票，超过了奥巴马2008年创造的6940万普选票（应该也是有假票）的历史记录，如果算上被废弃的、隐瞒的、篡改的、支持他而没有去投票的、投了拜登又想改投川普的等等，川普的支持者应该有7500万-8000万之间。这是一个巨大的民意，在左媒控制舆论、越左越政治正确的情况下，这些支持者绝大部分都是川普的铁粉，川普竞选集会现场的热烈气氛也说明了这一点。从2016年川普第一次参选起，川普就没有获得共和党建制派的支持，实际上川普已经和共和党建制派貌合神离同床异梦，继续留在共和党已经没有意义。如果川普筹建新党，川普的这些近8000万铁粉就是新党的民意基础，共和党的民众基础将被抽干，共和党可能会面临分崩离析的局面。由于拜登和民主党高层丑闻的暴露，可以预期会有相当部分民主党人转靠新党。
+6.Property, Plant, Equipment
 
-除了民意，川普筹建新党的其他条件也基本具备。从立党理念来看，班农的有全球影响力的平民主义就是现成的指导思想，纳瓦罗的理论是其制定经济政策和贸易政策的基础。老将朱利安尼、中坚彭斯彭培奥、新秀汤姆科顿、接受班农平民主义思想的一大批年轻共和党人将是新党的管理骨干。从经济基础上看，川普本来就是在相当程度上依靠广大平民的小额捐款，在民主社会靠平民捐款而在政治上获胜的案例比比皆是，台湾的民进党就是这样逐步走上执政地位的，毕竟民主社会最终是靠选票说话。从媒体来看，新兴的媒体如Parler、Gtv、Gnews等都是很好的平台。
+7.资产的出售损失不计入在内，影响收入，但是不影响现金流
 
-如果川普筹建以平民主义为理念的新党，将会彻底改变美国的政治格局。在川普之前，美国两党政治已经逐渐权贵化精英化，脱离了民众基础。权贵和精英掌握着话语权和实际的行政权，虽然民众有选票但是民众只能在权贵和精英中选择，在坏的政客中选择一个相对不坏的，没有其他选择余地。这就造成了权贵和精英会牺牲平民的利益，比如和极权政体勾兑搞全球化，造成产业空心化、失业率增加，平民利益受损而华尔街的权贵精英获利。由于媒体也基本为权贵精英掌控，平民没有发声的渠道，目前连相对自由的自媒体也被权贵精英左右。平民主义新党的建立，将使平民有一个提出政治诉求、选出自己利益的代理人、影响政治决策、发出自己声音的政治渠道，一扫华盛顿官场的陈腐陋习，真正回归美国《独立宣言》以及后来林肯提出的民有、民享、民治的治国理念。组建新党只是导致了民主党和共和党的分裂，并不会导致美国分裂，相反美国会有一个强大的平民主义新党，美国会变得更加强大！
+8.融资活动Financing Activities：
 
-当然川普为本次大选筹建新党已经来不及，但**可以作为一个谈判筹码**，挟民意以逼诸侯。民主共和两党因为担忧本党的分裂，被新党釜底抽薪，做出让步是很有可能的。但是如果万一败选，筹建新党就是一个可以操作的方案，在两年后的国会中期选举中争取议会的席位，四年后冲刺总统宝座。目前那些内心里支持川普但在民意、理念和建制派利益之间徘徊、不敢公开支持川普的政治人物，就会公开加入新党而支持川普，不排除立即就有很多国会议员宣布加入新党，新党的民意基础为他们提供了一个不同于旧党的快速上升通道，新党甚至有可能立即在议会里与民主共和两党分庭抗礼。
+9.Include Obtaining or Repaying capital
 
-由于郭文贵先生领导的爆料革命对美国政界、华尔街、硅谷、媒体等权贵精英同极权国家勾兑、牺牲平民利益的爆料，美国成立新党的民意基础已经形成并且有燎原之势。不管胜选还是败选，筹建平民主义新党都是川普的有利选项。这是一件值得观察和期待的重大历史事件。
+10.Non-Cash Transaction: Does not involve an inflow or outflow of cash
 
-[【世事解评】川普会以组建新党作为获胜筹码吗 – GNEWS](https://gnews.org/zh-hans/538523/)
+11.由于可能影响公司的资本 / 资产结构
 
-+1
+12.因此任何重大非现金交易都应在单独在附录或现金流补充表中给与披露
+
+13.Separate Note / Supplement Schedule
+
+14.Non-monetary Asset非货币资产互换
+
+15.Common Stock for dividend
+
+16.Convertible Bond
+
+17.Convertible Preferred Stock
+
+六Summary of differences Between IFRS and US GAAP
+![]()![](https://gnews.org/wp-content/uploads/2021/01/表3.png)
+七Direct and Indirect Methods for Reporting Chas flow from Operating Activities
+
+1.Chas Flow From Operating Activities：
+
+2.Net Amount of Cash Flow provided from operating activities
+
+3.Direct Method：（更受欢迎对于IFRS / US GAAP / 分析师 / 贷方）
+
+4.Specific Cash Inflows and Outflows / Result in reported cash flow from operating activities
+
+5.US GAAP虽然鼓励直接法，但仍要求净收入和现金流之间的对账（相当于间接法）
+
+6.主要争论优势Primary Argument
+
+7.直接方法提供了具体的运营活动现金付款和收款的来源
+
+8.Provide Information on specific sources of operating cash receipt and payment
+
+9.Indirect Method：How Cash Flow can be obtained from reported Net Income as the result of a series of adjustment
+
+八Indirect-Format Cash flow statement Prepared under IFRS
+
+Operating Activities 要求被体现，而且要求从净收入开始（Net Income）
+
+九Direct-format cash Flow Statement Prepared under IFRS
+
+Investing / Financing Section 要求被体现
+
+十Illustration of Cash Flow statement prepared under US GAAP
+
+Operating Activities 要求体现Indirect-Format
+
+十一Linkages with the Balance Sheet
+![]()![](https://gnews.org/wp-content/uploads/2021/01/表4.png)
+十二Linkages with the Income Statement
+![]()![](https://gnews.org/wp-content/uploads/2021/01/表5.png)
+Author：搞笑排行榜
+
+Original opinion article by Himalaya G-farm Vancouver
+
+2021/01/06
+
+0
