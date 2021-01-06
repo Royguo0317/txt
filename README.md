@@ -14,141 +14,138 @@
 
 ---
 
-### [【香港要闻】最少52名参与民主派初选人士被捕涉违国安法【即时快讯】](/content/gnews/1/README.md)
+### [【决战48小时】要创建属于新中国联邦自己的制度](/content/gnews/1/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【决战48小时】川普当选是推动灭共的关键一块多米诺骨牌](/content/gnews/2/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【香港要闻】最少52名参与民主派初选人士被捕涉违国安法【即时快讯】](/content/gnews/3/README.md)
  ` 粵語組`
 
-### [1/5/2021 川普总统行政令: 应对中国公司开发或控制的应用程序或其他软件给美国带来的威胁](/content/gnews/2/README.md)
+### [1/5/2021 川普总统行政令: 应对中国公司开发或控制的应用程序或其他软件给美国带来的威胁](/content/gnews/4/README.md)
  ` 秘密翻译组G-Translators`
 
-### [《路德时评》深度揭示梵蒂冈教廷与灭共联系之三，及美国制裁中共8家支付公司](/content/gnews/3/README.md)
- ` 香柏树`
+### [【危机中的重生】1月6日美国总统大选之决战时刻系列报导 2](/content/gnews/5/README.md)
+ ` 旧金山-金喜站`
 
-### [纳瓦罗爆重磅新闻-对中共支付软件等的禁用](/content/gnews/4/README.md)
- ` 喜馬拉雅的文雅 Himalaya Wenya`
-
-### [一安提法组织在参议员霍利住所外抗议，惊吓其妻子与婴儿](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共续命加大劳动密集型产品出口](/content/gnews/6/README.md)
- ` Himalaya Australia`
-
-### [“滑稽”的美国大选之1月6日－天时地利人和](/content/gnews/7/README.md)
- ` 经济金融组`
-
-### [『般若波罗蜜多心经』经题涵义](/content/gnews/8/README.md)
- ` G-NEWS TAIWAN`
-
-### [重大转折：威斯康星州宣布週四早上取消选举人团票](/content/gnews/9/README.md)
- ` gnewscanada`
-
-### [班农先生采访梵蒂冈大主教：全球大重置是方济各和拜登之流与中共同流合污的一场无法挽回的灾难](/content/gnews/10/README.md)
- ` 经济金融组`
-
-### [2021-1-6 康州盘古农场本日新闻热点](/content/gnews/11/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [葡萄牙护士接种辉瑞Covid疫苗后两天死亡](/content/gnews/12/README.md)
- ` 经济金融组`
-
-### [【G时评】地球村七常委妄图奴役全球 ——大重置的前世今生](/content/gnews/13/README.md)
- ` 墨尔本雅典娜农场`
-
-### [汤姆-科顿出乎意料地反对霍利和克鲁兹在参议院拒绝选举团结果的努力](/content/gnews/14/README.md)
- ` 经济金融组`
-
-### [病毒变种英国感染剧增70% 多国疫情告急](/content/gnews/15/README.md)
- ` gnewscanada`
-
-### [美国驻华使领馆：中共的核疯狂](/content/gnews/16/README.md)
- ` 经济金融组`
-
-### [超过100名州议员要求彭斯推迟10天对选举人投票认证](/content/gnews/17/README.md)
- ` HimalayaRussia`
-
-### [三七二十一敬爱的习近平总书记已经137小时没有视频打卡了](/content/gnews/18/README.md)
- ` NewFOC`
-
-### [【点睛要闻】超级新病毒在中共国多个城市出现](/content/gnews/19/README.md)
- ` 秘密翻译组G-Translators`
-
-### [辟谣中共的“2020年中国832个贫困县整体脱贫” —— 只要CCP还在，中国就别想脱贫！](/content/gnews/20/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [我对“国”的理解](/content/gnews/21/README.md)
- ` Himalaya Australia`
-
-### [川普总统《关于应对中国公司开发或控制的应用程序和其他软件所带来的威胁的行政令》](/content/gnews/22/README.md)
- ` 喜馬拉雅的文雅 Himalaya Wenya`
-
-### [运-20首次起降南沙永暑礁——政治信号大于实战需要！](/content/gnews/23/README.md)
- ` 快慢机`
-
-### [特朗普发布2020总结 强调前所未有的胜利（玫瑰看新闻一月一日）](/content/gnews/24/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [谨防中共利用疫情维稳，形成封闭式次生灾害](/content/gnews/25/README.md)
- ` Himalaya Australia`
-
-### [视频01/03/2021 参议员吉姆·乔丹和国会议员莫·布鲁克斯在福克斯新闻的采访【精选汇总】](/content/gnews/26/README.md)
- ` 秘密翻译组G-Translators`
-
-### [《大重置》第三部分：中共特色资本主义](/content/gnews/27/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [细看中共假惺惺为毒针处死痛失出逃时机的陈虎将军发布的挽歌](/content/gnews/28/README.md)
- ` NewFOC`
-
-### [凌晨，环卫工人冻死在路边](/content/gnews/29/README.md)
- ` Himalaya Australia`
-
-### [视频01/03/2021 章家敦在美国媒体極限新聞的采访【精选汇总】](/content/gnews/30/README.md)
- ` 秘密翻译组G-Translators`
-
-### [大重置第一部分：世界各个领域因中共病毒而将要发生的大洗牌](/content/gnews/31/README.md)
- ` gnewscanada`
-
-### [大重置第三部分：中共国特色资本主义](/content/gnews/32/README.md)
- ` gnewscanada`
-
-### [大选信息分析梳理](/content/gnews/33/README.md)
- ` Himalaya Australia`
-
-### [中共为拜登胜选支招的文件被曝光（二）：关注优先事项](/content/gnews/34/README.md)
- ` gnewscanada`
-
-### [世卫首次赴武汉调查 成员中出现武汉病毒所合伙人](/content/gnews/35/README.md)
- ` G-NEWS TAIWAN`
-
-### [午夜倾泻的拜登选票令其舞弊行为昭然若揭](/content/gnews/36/README.md)
- ` gnewscanada`
-
-### [州议员正式要求彭斯推迟计算选票](/content/gnews/37/README.md)
- ` 喜馬拉雅的文雅 Himalaya Wenya`
-
-### [多米尼投票机来自中共国？](/content/gnews/38/README.md)
- ` HimalayaRussia`
-
-### [中共为拜登胜选支招的文件被曝光（一）：乔叔2020](/content/gnews/39/README.md)
- ` gnewscanada`
-
-### [【灭共有我】一个醒悟的中国人](/content/gnews/40/README.md)
- ` 墨尔本雅典娜农场`
-
-### [突发新闻：乔治亚州安全密钥的程序错误引发紧急备用投票机使用](/content/gnews/41/README.md)
+### [【国内速评】“适龄男性公民都要登记兵役”下的疑云密布](/content/gnews/6/README.md)
  ` XMLYG777`
 
-### [英国的航母打击群已初具规模](/content/gnews/42/README.md)
+### [宾州参议院以“有可疑行为”为由要求延迟选举人票的认证](/content/gnews/7/README.md)
+ ` 喜马拉雅德国慕尼黑感恩农场`
+
+### [【香港要闻】无视《基本法》赋予议员否决权 李桂华以「驾车打劫论」作比喻 恶指议员图瘫痪政府即违《国安法》](/content/gnews/8/README.md)
+ ` 粵語組`
+
+### [【大选实况】01/05/2021 美东时间晚9:41 Sidney Powell转发Dr. Dave Janda推文：太棒啦！爱国者们站出来拯救美国啦](/content/gnews/9/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【战友心声】新年伊始，墙内有银行暗中取消最低还款额政策](/content/gnews/10/README.md)
+ ` 纽约香草山农场`
+
+### [石家庄会是下一个武汉吗？](/content/gnews/11/README.md)
+ ` XMLYG777`
+
+### [[三票专栏] 十权一统 统于一党（16）看中共的极权统治——社团篇](/content/gnews/12/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [不顾安全与否，中共国加速疫苗生产，已有18家企业陆续开展新冠疫苗产能建设](/content/gnews/13/README.md)
+ ` XMLYG777`
+
+### [【决战48小时】美国人民支持的不是个人，而是不愿意走共产主义的道路](/content/gnews/14/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [视频国语【香港快讯】1.06 53名本港民主人士被捕 60万选民忧被清算 台湾声援被捕人士](/content/gnews/15/README.md)
+ ` 粵語組`
+
+### [【决战48小时】乔治亚州的两个参议员位置非常重要](/content/gnews/16/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【盘古相聚】19: 罗马教廷(2)——梵蒂冈档案馆、耶稣会、瑞士近卫队](/content/gnews/17/README.md)
+ ` 纽约香草山农场`
+
+### [【疫情快讯】因疫情严峻，河北大学限定学生两日内离校！](/content/gnews/18/README.md)
+ ` XMLYG777`
+
+### [【文雍漫谈】“权威发布”变谎言 自行删除为哪般](/content/gnews/19/README.md)
+ ` 美国纽约七星会农场（原名：为子孙爱七哥农场）`
+
+### [中共禁止烧煤取暖，老百姓冬天陷入困境](/content/gnews/20/README.md)
  ` Himalaya Australia`
 
-### [摘牌决定被撤只是小意思，习近平目标是征服全世界](/content/gnews/43/README.md)
- ` 恩典农场`
+### [快报：预计华盛顿地区冲突不可避免](/content/gnews/21/README.md)
+ ` 首尔喜韩农场`
 
-### [薄甜甜透过亨特怂恿拜登竞选总统](/content/gnews/44/README.md)
+### [【大选实况】1/6/2021 美东时间早 8:20 Sidney Powell转发并回复Eric Trump推文](/content/gnews/22/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【决战48小时】美国大选是决定人类命运的终极之战](/content/gnews/23/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [朱利安尼详解1月6日将发生的情况：“可能有很多不同的方式”](/content/gnews/24/README.md)
  ` gnewscanada`
 
-### [150多位跨国企业CEO联署 要求让拜登当总统](/content/gnews/45/README.md)
- ` gnewscanada`
-
-### [Veritas项目:中央外联宣传中心（OAC）执行长承认该组织在富尔顿县同一地址登记了数千名无家可归者进行投票（视频）](/content/gnews/46/README.md)
+### [川普总统在推特发布有关宾州的重大新闻——州参议员因“可疑活动”要求推迟选举认证！](/content/gnews/25/README.md)
  ` 康州盘古喜马拉雅农场`
+
+### [1/6/2021 财经快讯：继中共国三电信公司退市后，三桶油可能成为下一退市目标](/content/gnews/26/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频朱利安尼详解1月6日: 这次选举很可能最终会落在众议院手中, 甚至很可能进入最高法院](/content/gnews/27/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频朱利安尼详解1月6日: 参议院议长彭斯能对选举人票反对意见做出最终决定。倘若其决定导致双方均未达到多数票的话, 就要立即交由参众两院来做决定](/content/gnews/28/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【香港要闻】初选大搜捕︱国安处动员千警拘捕53名民主派指涉颠覆国家政权 冻结160万](/content/gnews/29/README.md)
+ ` 粵語組`
+
+### [视频朱利安尼详解1月6日: 如果两位候选人都没有获得270票, 那么总统的选择权就会交给众议院, 在众议院, 川普总统其实是有优势的](/content/gnews/30/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频朱利安尼详解1月6日: 若各有一名众议员和参议员反对选举人票结果的话, 两院议员则需回到各自的议院针对该州的选票是否合法, 哪一组选举人才是正当选举人进行2小时的辩论](/content/gnews/31/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频1/6/2021 Jack Posobiec为大选活动造势激情演讲](/content/gnews/32/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [《每日快报 -彭斯副总统乔治亚最新演讲，承诺1月6日听取证据，揭露真相的决心 &#8211; 2021.01.06》](/content/gnews/33/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [视频朱利安尼详解1月6日: 若两组选举日分别投票给川普和拜登,则两组选举人都将被递交参议院议长, 副总统彭斯](/content/gnews/34/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [谈谈参议员特德·克鲁兹（Ted Cruz）](/content/gnews/35/README.md)
+ ` Himalaya Australia`
+
+### [评：熊蕾为中共病毒洗地的谬论](/content/gnews/36/README.md)
+ ` Himalaya Australia`
+
+### [北京秘密调查新冠病毒起源 美联社指习近平负责行动（玫瑰看新闻2020.01.06第31期）](/content/gnews/37/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [郭文贵先生今日动态（2021年1月5日）](/content/gnews/38/README.md)
+ ` Fightforthetrue`
+
+### [1/4/2021 宾州参议员致信参议院多数党领袖麦康奈尔, 称该州选举结果有问题不应被认证](/content/gnews/39/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [欧盟顶风作案，再次准备与中共国利益勾兑](/content/gnews/40/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [彭斯：高莫特为推翻大选结果的诉讼对象是国会，不是我](/content/gnews/41/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [视频爱国者们露营的，住宾馆的齐聚华盛顿挺川普](/content/gnews/42/README.md)
+ ` Himalaya Australia`
+
+### [【战友观点】爆料革命是新信仰运动的倡导者与推动者](/content/gnews/43/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [“我是音雄”跨年节目上的圣诞愿望：愿2021年CCP会下台，和病毒一起消失！](/content/gnews/44/README.md)
+ ` 喜马拉雅德国慕尼黑感恩农场`
+
+### [快讯：Dominion公司计划起诉鲍威尔律师，不排除川普总统](/content/gnews/45/README.md)
+ ` 经济金融组`
 

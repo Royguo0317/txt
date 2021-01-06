@@ -1,21 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 纳瓦罗爆重磅新闻-对中共支付软件等的禁用
-` 喜馬拉雅的文雅 Himalaya Wenya` [轉載自GNews](https://gnews.org/zh-hans/718565/)
+## 1/5/2021 川普总统行政令: 应对中国公司开发或控制的应用程序或其他软件给美国带来的威胁
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/719448/)
 
-1月5日，半小时前美国经济和制造业主任皮特-纳瓦罗博士发推时称：
+## **【[行政令英文原文](https://www.whitehouse.gov/presidential-actions/executive-order-addressing-threat-posed-applications-software-developed-controlled-chinese-companies/)】【[中文翻译](https://gnews.org/wp-content/uploads/2021/01/川普行政令-21年1月5号.pdf)】**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-01-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-02-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-03-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-04-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-05-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-06-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-07-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-08-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-09-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-10-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-11-scaled.jpg)
+[**2021年1月5日 川普总统行政令: 应对中国公司开发或控制的应用程序或其他软件给美国带来的威胁**](https://gnews.org/wp-content/uploads/2021/01/川普行政令-21年1月5号.pdf)[下载](https://gnews.org/wp-content/uploads/2021/01/川普行政令-21年1月5号.pdf)
 
-*爆炸性新闻：以下这些公司被添加到了TikTok海外抖音和微信被禁软件的行列。*
+#### **By【秘密翻译组 G-Translators – 北美组】**
 
-*支付宝、CamScanner、QQ钱包、SHAREit、腾讯QQ、VMate、微信支付、WPS Office。*
 
-*中共国利用这些软件窃取你们的信息、IP地址和身份。
-@美国总统 保护你们。*
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/01/peter-breaking-news.png)
-
-[https://twitter.com/RealPNavarro/status/1346604391663599618?s=20](https://twitter.com/RealPNavarro/status/1346604391663599618?s=20)
-纳瓦罗先生在美国白宫正式公布这一新的对中共的制裁行政令时，已经迫不及待地把好消息先公布出来，这八个软件中，除了即时聊天软件，主要是金融支付工具，美国正在把和中共国有任何资金往来的缝隙堵死。
-
-+2
+0
