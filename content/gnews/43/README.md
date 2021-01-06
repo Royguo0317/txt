@@ -1,20 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【疫情快讯】因疫情严峻，河北大学限定学生两日内离校！
-` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/722874/)
+## 【大选实况】01/05/2021 美东时间晚11:05 参议员Marsha Blackburn推文：美国公民和人权律师John Clancey在“国安法”下被捕
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723152/)
 
-喜马拉雅-国内新闻/素材：Meilen美伦 校对：加文gavin
+参议员Marsha Blackburn推文：美国公民和人权律师John Clancey在“国安法”下被捕，这表现出了中共给与自身的巨大权力，来拘捕和控告被他们视为“颠覆性力量”的任何人。北京把所有的人都掌控在他们的独裁之下。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture-15.jpg)
+推文链接：[https://twitter.com/marshablackburn/status/1346669190653030400?s=21](https://twitter.com/marshablackburn/status/1346669190653030400?s=21)
 
-据央视新闻2021年1月5日下午报道，鉴于疫情形势严峻，河北大学从今日起开始放假，学生将在未来两天内陆续离开学校。此前学校为了完成相关教学任务，国庆和元旦期间都安排了教学活动，本次寒假后，预计2月27日开学。
-
-中共之前一直在宣传、歌颂抗疫如何的成功，眼下却是手忙脚乱，封锁社区、学校放假都是如此突然，没有任何预兆，总是让民众措手不及！这也是中共一贯压制真相，直到纸包不住火，不得已而曝光所导致的必然后果。河北公开报道疫情大爆发后，短短几天时间省内多地区紧急封锁并启动战时状态，可见河北本轮疫情爆发之迅猛，也验证了疫情一直没有被控制的事实。
-
-同胞们，不要看官媒漂亮的报道，一定要多观察，通过留意身边社区生活的变化来确认现实。河北大学紧急放假，还是通过央视新闻来报道的，这说明疫情非常严峻。不要听了官媒报道就麻痹大意，疫情从未远去，今冬更凶猛。戴口罩、勤洗手、保持2米以上社交距离等防护措施仍然必不可少！
-（本文仅代表个人观点）
-
-新闻来源：
-[http://mbd.baidu.com/newspage/data/dtlandingwise?sourceFrom=reyi&nid=dt\_4752391166581047047](https://mbd.baidu.com/newspage/data/dtlandingwise?sourceFrom=reyi&amp;nid=dt_4752391166581047047)
+By【秘密翻譯組 G-Translators – 北美組】
 
 
 

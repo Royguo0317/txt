@@ -1,25 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选实况】1/6/2021 美东时间早 8:20 Sidney Powell转发并回复Eric Trump推文
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/722808/)
+## 宾州参议院以“有可疑行为”为由要求延迟选举人票的认证
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/722983/)
 
-完全同意，但问题是我们现在知道无论大家如何努力工作 魔鬼已经#捣毁了选举体系 那些正在奋力毁掉#美国的人们最起码没有给他们自己买#选举保险 这都和他们的权力和金钱有关。
+摘译自[washingtonexaminer](https://www.washingtonexaminer.com/news/trump-senate-pennsylvania-delay-electoral-votes)新闻
 
-后附Eric Trump推文：对那些没有站出来反对这场选举舞弊的每一个共和党参议员 / 国会议员，我都会亲自努力将其打败 – 他们会在下一次选举中落选。
-
-
-
-> Agreed in spirit but the problem is we know now it doesn’t matter how hard you work
-> The Evil have [#rigged](https://twitter.com/hashtag/rigged?src=hash&amp;ref_src=twsrc%5Etfw) the voting system 
-> Those working to destroy the [#Republic](https://twitter.com/hashtag/Republic?src=hash&amp;ref_src=twsrc%5Etfw) have at the very least gotten themselves [#ElectionInsurance](https://twitter.com/hashtag/ElectionInsurance?src=hash&amp;ref_src=twsrc%5Etfw) 
-> It’s about their power & money [https://t.co/IxP1Kk8V6K](https://t.co/IxP1Kk8V6K)
-> — Sidney Powell 🇺🇸⭐⭐⭐ #Kraken (@SidneyPowell1) [January 6, 2021](https://twitter.com/SidneyPowell1/status/1346808853300719617?ref_src=twsrc%5Etfw)
+翻译：tiger64 (德国慕尼黑感恩农场)
 
 
 
-推特链接：[https://twitter.com/SidneyPowell1/status/1346808853300719617](https://twitter.com/SidneyPowell1/status/1346808853300719617)
+特朗普总统周二晚间表示，宾夕法尼亚州参议院要求周三推迟对该州的选举人票进行核证，这表明选举过程中存在争议之处。 在致参议院多数党领袖米奇·麦康奈尔和众议院少数党领袖凯文·麦卡锡的信中，议员们在选举过程中引用了“非法违规行为”，指责宾夕法尼亚州州长汤姆·沃尔夫，州务卿凯西·博克瓦尔和“流氓”州最高法院违背权力平衡背离州立法机关。 议员们说，明智的做法是等到美国最高法院完成针对唐纳德·J·特朗普和布科瓦尔的案件进行听证，尽管地区法院在10月已经驳回过此案件。该案件着眼于调查在冠状病毒大流行期间进行的选票，包括取消对邮寄选票的签名核对要求，是否违反宪法。 信中写道：“我们要求您推迟对选举人团的认证，以便我们追求的联邦选举诚信的正当程序得到保证。”
 
-**By【秘密翻译组 G-Translators – 北美组】**
+特朗普在推特上写道，“宾夕法尼亚州的大新闻！”
+![source: twitter]()![source: twitter](https://gnews.org/wp-content/uploads/2021/01/image-57.png)source: twitter
+国会定于周三认证选举结果。大约有十几名共和党参议员表示，他们将反对有利于总统当选人拜登的选票认证。
 
 0

@@ -1,13 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选实况】01/06/2021 美东时间早9:17 Tom Fitton推文：选举政变
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723177/)
+## 【精华版粤语配音】班农战斗室 625-626期：竞选问题也可以用RICO法案进行调查！
+` 粵語組` [轉載自GNews](https://gnews.org/zh-hans/723429/)
 
-Tom Fitton推文：选举政变：左派及其盟友（有意无意地）违反宪法，并在更改邮寄投票规则时违法——计数非法选票会导致对拜登当选的认证无效。证据表明川普总统已经合法胜出
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture-16.jpg)
-推文链接：[https://twitter.com/tomfitton/status/1346823188303515648?s=21](https://twitter.com/tomfitton/status/1346823188303515648?s=21)
+制作单位：喜马拉雅大使馆—粤语组
 
-By【秘密翻譯組 G-Translators – 北美組】
+素材来源：WarroomPandemic
+
+片段选取：秘密翻译组
+
+字幕翻译：秘密翻译组
+
+视频剪辑：coco22
+
+视频配音：Tina 、NancyTT、sad3mom、wikimbao文包
+
+上传：文粤
+
+
+
+概要：
+
+1.麦康纳尔试图向参议员们施压
+
+2.根据美国宪法，州立法团有对选票的合法性有最终的决定权
+
+3.冠博士解读中共推广的CCP抗疫模式是及其糟糕的
 
 0

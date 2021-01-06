@@ -1,15 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选实况】01/05/2021 美东时间晚11:05 参议员Marsha Blackburn推文：美国公民和人权律师John Clancey在“国安法”下被捕
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723152/)
+## 突发：来自争议战场州的117位议员要求副总统彭斯推迟对大选投票结果的认证
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/723431/)
 
-参议员Marsha Blackburn推文：美国公民和人权律师John Clancey在“国安法”下被捕，这表现出了中共给与自身的巨大权力，来拘捕和控告被他们视为“颠覆性力量”的任何人。北京把所有的人都掌控在他们的独裁之下。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture-15.jpg)
-推文链接：[https://twitter.com/marshablackburn/status/1346669190653030400?s=21](https://twitter.com/marshablackburn/status/1346669190653030400?s=21)
+翻译： 康州盘古农场 – Antsee-GTV
 
-By【秘密翻譯組 G-Translators – 北美組】
+校对： 康州盘古农场 – 烟波浩淼
 
+编辑： 康州盘古农场 – V
+![]()![](https://gnews.org/wp-content/uploads/2021/01/mp-1.png)
+超过100位来自关键争议州的议员要求副总统迈克·彭斯（Mike Pence）把对大选选票的认证推迟10天。
 
+州议员们要求更多时间来调查选举欺诈和违规行为，以决定是否应取消对乔·拜登的选举结果认证。
+
+《宪法》(ArticleII Clause1 Section2) 第二条第一款第二节赋予州议会全权选择将哪些选举人提交国会。
+
+议员们在给彭斯的一封信中写道：“我们各自的州立法机构打算通过彻底地调查以确定选举是否应认证或取消认证选举（结果），以履行我们的誓言。” “必须为立法机构召开会议和为议员们履行宪法职责提供更多时间。”
+
+**《新闻快讯****just the news》****[报道](https://justthenews.com/politics-policy/elections/more-100-state-legislators-ask-pence-delay-certification-electoral-votes)****：**
+
+*尽管彭斯说过他**支持那些担心**11月选举进程的议员们，但他没有表示是否打算推迟威斯康星州，密歇根州，乔治亚州，亚利桑那州和宾夕法尼亚州的选票计数，或者是否这种操作在最高法院看来符合宪法。*
+
+*尽管如此，州议会议员们在第**11小时的来信又增加了共和党人挑战乔·拜登所宣称的选举胜利的势头。*
+
+*由**88位州共和党议员签署给彭斯的一封信写道：“我们写信请您听从我们的合理要求，让我们的国家有更多的时间对2020年大选进行复审，将1月6日开始的选举人团计票推迟10天，让我们各自州的委员会可以召开会议，调查，并作为委员会投票决定是否认证选举结果。” “如宪法所规定的，该行动可以在就职日之前完成。”*
+
+*随信附录列举出了战场州的违规和违法行为，在这些州川普对拜登获胜的选举结果发起了挑战。*
+
+*议员们写道，该附录**“提供了证据，表明是采取了协调一致和结构化的多个州的行动，破坏了维护选举完整性的各州法律。”*
+
+*这封信是由一个名为**Got Freedom的501（c4）机构组织的。州议员们周末与川普进行了私人通话，向总统简要介绍了他们的担忧。该机构说，随后，议员们要求机构为他们组织一封可多人签署的信件。*
+
+川普竞选律师詹娜·埃利斯（Jenna Ellis）星期一晚上建议，副总统迈克·彭斯（Mike Pence）可以在周三国会开会时推迟对乔·拜登（Joe Biden）的选举结果进行核证，转而向州议会发送要求。
+
+詹娜·埃利斯（Jenna Ellis）在接受《新闻快讯》的采访时说，彭斯只需将问题抛给争议州的州立法机构，（要求）在决战双方的候选人中明确予以认证。
+
+“迈克·彭斯可以做的事情，实际上他也应该这么做，就是当这六个州的代表有两个竞争者时，将问题直接抛回州立法机构，他可以向州提出这个问题并说， 好吧，州议员们，你们知道，我宣誓要维护《宪法》(ArticleII Section1.2)的规定，该条规定了州议会指导选举代表们的选举方式。 因此，请告诉我，这两个提名中哪个是依据你们州议会的方式所指定的？” 珍娜·埃利斯在与大卫·布罗迪（David Brody）一同出席《新闻快讯》采访时说。
+
+原文作者：克里斯蒂娜·莱拉
+
+发布时间：2021年1月5日下午6:03分
+
+原文链接：
+
+[NEW: 117 State Legislators From Contested Battleground States Ask VP Pence to Delay Certification of Electoral Votes (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/01/new-117-state-legislators-contested-battleground-states-ask-vp-pence-delay-certification-electoral-votes/)
 
 0

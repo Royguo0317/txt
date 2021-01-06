@@ -1,19 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评粤语快报】01.05：川普制裁中共支付系统 姆努钦致电纽交所继续中共公司退市行动
-` 粵語組` [轉載自GNews](https://gnews.org/zh-hans/723331/)
+## 【大选实况】1/6/2021 Zreohedge美东时间12:58pm ：彭斯表态
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723575/)
 
-制作团队：【喜马拉雅粤语组】西林、文雀、文恩
-
-上传：流光飞舞
-
-
-
-摘要:
-
-川普制裁包括支付宝、微信支付、QQ钱包等8家中共支付系统，姆努钦致电纽交所继续执行中共电信公司退市行动，梵蒂冈教廷与灭共关系
-
-[【路德时评】原视频链接](https://youtu.be/OGb7NavSaAQ)
+\*彭斯：我无权决定选举票数
+\*彭斯：我无权单方面决定投票
+\*彭斯：认证由当选官员决定
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture-20.jpg)[https://twitter.com/zerohedge/status/1346878863494811648](https://twitter.com/zerohedge/status/1346878863494811648)
+By： 【秘密翻譯組 G-Translators – 北美組】
 
 0
