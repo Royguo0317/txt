@@ -1,27 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 不到1月20号你千万千万不要有任何的决定！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/724081/)
+## [危机中的重生] 1月6日美国总统大选之决战时刻系列报导(11)
+` 旧金山-金喜准农场` [轉載自GNews](https://gnews.org/zh-hans/724189/)
 
-新闻简述：郭先生在2021年1月4日的GTV直播中说，共产党在备战，因为知道它挡不住全世界灭共的步伐。他也告诫所有人在1月20日之前“千万千万不要有任何的决定”，暗示1月20日之前任何事情都有可能发生，并且爆料革命是这场大戏的主角，对这场戏有一定的掌控力。
-视频来源：[https://gtv.org/video/id=5ff32a75f579a75e0bc3ee01](https://gtv.org/video/id=5ff32a75f579a75e0bc3ee01) (00:49:15-00:50:11, 00:50:33-00:50:55)
-**中英文对照全文**
+**新中国联邦已成为了影响世界的一股重要力量，影响着整盘国际大棋局**
 
-The Whistleblower Movement has come to this day. Why is the CCP now shouting for preparing for the war, preparing for the war?! Its “preparing for the war” means that it knows that even in the situation when it owns the whole world’s presidents, it still can’t stop the tide of talking down the CCP! Let alone the assumed situation is impossible, it is absolutely impossible!
+撰文：文真真 Summer 图片1：Jin Wang，图片2：天機
 
-爆料革命到今天，为啥共产党现在大量喊备战、备战呢？！它这备战它知道就是任何情况下全世界都是它的总统啦，它也挡不住全世界灭共的步伐！何况那是不可能的、那是绝对不可能的对吧！
-
-After seeing Tom Cotton’s Twitter, I was super happy. Yesterday afternoon, I told Mr. Giuliani and Mr. Bannon, “Tom Cotton will definitely quit.” They said, “Impossible.” I was right again – pure luck, right? Don’t make any decisions before January 20th! I say it again, don’t make any decisions before January 20th! So, brothers and sisters and those who are watching the show in the audience, don’t be too involved in the show and feel too desperate. Don’t be like that! Not to mention, in the end, we are one of the leading actors in this show! We still need to bring the show back!
-
-你看这个 Tom Cotton 的推特以后我特别开心。我昨天下午跟朱利安尼、班农先生我还说，我说：Tom Cotton 他一定会退出的。他说：不可能。又让我说准啦，蒙的蒙的，是吧？！不到1月20号你们都不要有任何的决定！我再说一遍，不到1月20号，你千万千万不要有任何的决定！所以说兄弟姐妹们，咱们现在在台底下看戏的人，啊，别被一场戏给左右啦，要死要活的，那可千万别这样！何况最终这个唱戏的主角咱们还是其中之一啦！咱们还得把这戏给扳回来呢！
-
-*【感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/718110/](https://gnews.org/zh-hans/718110/)】*
-
-翻译：【Cyndi】校对：【Isaiah4031】字幕：【相机过热啊】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-
-喜马拉雅玫瑰园小队出品
-
-*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
+1月6日，郭先生和新中国联邦的战友们在美国国会表决的决战48小时中，一同见证了美国的历史时刻。在6日早上彭斯副总统没有勇气担负他的历史责任把决定权推给国会，而在5日开始的乔治亚中的两个参议院席位又被舞弊偷走之后，站在川普总统身后的除了国会中的一些爱国者之外，只有8千万坚定的挺川人民。而此时，他们感到已经无从选择。以MAGA组织为重要组成部分的拯救美国的游行人群，6日早上已经聚集华盛顿。忍无可忍的人民在见证某些国会议员的谎话连篇后，进入了国会，想要告诉世界，美国人民的总统是要体现民意的。不代表民意的立法机构，就不配也不能作为美国人民的立法机构。
+![President Trump and Mr. Miles Guo]()![President Trump and Mr. Miles Guo](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10223812/Trump-Miles.jpg)**郭文贵：新中国联邦 — 国际大棋局中担当着举足轻重的角色**
+文贵先生道出了人民进入国会的深层意义：从此刻起，川普总统已经没有回头路了——要在监狱，地狱或者成为新的华盛顿之间做出选择！大家有的没有注意到：很多的共和党人已经是实质上的民主党派了。这就是CCP的伎俩。美国社会，政治也好，好莱坞也好，媒体也好，他们跟随的是资本。 川普拥有民意，但是没有（最大的）资本支持，如果要长期坚持下去，要把经济强大下去。有人提议和共产党勾兑来换取经济利益，我们已经见过川普过去四年被CCP玩弄。接下来会不会继续和中国共产党勾兑？还是和美国国内资本勾兑？
+文贵对此的解读是：接下来资本一定会重新洗牌。在二战后的资本重组的过程中，中国共产党甚至斯大林都是靠不上边儿的。而这次历史的重大转折时刻，新中国联邦已经是影响世界的重要力量，是国际大旗的一子。下面我们会变成布雷顿体系之一**\***。我们的新中国联邦以及我们二年多来一次又一次国际事件中积累的信用，（我们的实力）一步步在升级。有可能美国的政治力量会有新生力量产生，可能多个派别，这会让我们有很多的选择，对我们新中国联邦是有利的。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13170025/stock-photo-usa-and-china-trade-war-us-of-america-and-chinese-flags-crashed-containers-on-sky-at-sun.jpg)
+**（\* 笔者认为郭先生指的是Bretton Woods system二战后以美元为中心的国际货币体系，保留解读错误的可能）**
 
 0

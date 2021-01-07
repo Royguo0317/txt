@@ -1,32 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普敦促蓬佩奥将Antifa归类为恐怖组织
-` pmzy` [轉載自GNews](https://gnews.org/zh-hans/724990/)
+## 双背叛的“彭厮”
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/725267/)
 
-翻译：文顾 审核：pmzy
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Antifa-in-Portland-640x480-640x480-1.jpg)
-川普总统正在敦促国务卿蓬佩奥将安提法（Antifa）组织定为恐怖组织，以防止其成员进入该国。
+蒙特利尔皇家山战友团 laotou
 
-在给蓬佩奥的备忘录中，川普总统特朗普总统指示国务卿、代理总检察长杰弗里•罗森（Jeffrey A. Rosen）和国土安全部部长乍得•沃尔夫（Chad Wolf）一起，考虑将安提法（Antifa）列为恐怖组织。川普写道：
+校对 上传 小鸥
+![]()![](https://gnews.org/wp-content/uploads/2021/01/pence-2.jpg)图片来自 nytimes.com
+彭斯在2017年背叛了弗林将军，今天他又背叛了川普总统和美国！《门道专家》1月6日最新报道：
 
+今天早些时候，我们说了，美国副总统彭斯将在今天给出结果，是被冠以国家英雄，还是叛国者？我们现在知道了答案。
 
-> 我们政府的基本宗旨之一是确保公民的安全。与创建和平和繁荣社区的目的相一致，联邦法律确保只有那些将遵守所有美国公民的法律管辖的人，可以获得移民福利。
+今天下午，当总统在首都对着百万爱国者发表讲话时，彭斯也发表了他的备忘录，解释了为什么他忽视腐败和选举舞弊，这些腐败和舞弊行为（企图）从川普总统、他的老板和美国人民那里偷走选举：文章链接了这个 报道【1】
 
+彭斯擅长在美国人背后捅刀子，他在川普总统政府早期就有过先例，当时他与暗势力勾结，哄骗了迈克尔·弗林将军的辞职。彭斯在整个虚构的事件中（的角色），就是为了除掉弗林将军：文章链接了从前的报道【2】
 
+彭斯出于某种原因让一些憎恨川普总统的人作为他的员工：文章链接了从前的报道【3】
 
-> ……可靠的报道表明，被称为 “Antifa “的运动对我们社区最近发生的一些无法无天的事件，负有直接或间接的责任。并利用悲剧来推进激进、左派、无政府主义和经常为暴力的议程。事实上，安提法（Antifa）组织长期以来一直利用其他允许的示威活动从事违法犯罪行为，以推进其激进议程。
+彭斯在中共病毒危机期间获得了领导国家的机会，美国的情况如何？彭斯和腐败政客有没有侵犯了（公民的）自由？从那以后，彭斯和福奇一直在带领美国走下坡：文章链接了从前的报道【4】
 
+在今天的过程中，彭斯刺伤了美国和川普总统的后背，并证实了世界历史上最荒唐和腐败的选举。他试图从合法的赢家、川普总统和美国人民那里偷走这个选举。
 
-信中随后列举了多起与自诩为 “反法西斯 “运动直接相关的威胁、人身攻击和破坏事件。特朗普写道：”司法部已经公开证实，安提法（Antifa）和类似组织的行动符合国内恐怖主义的标准。”川普继续说道：”**司法部已经公开证实，安提法（Antifa）和类似组织的行动符合国内恐怖主义的标准**“。
+迈克·彭斯永远不会被忘记，改称“彭厮”吧，他的政治生命结束了。
 
+原文链接：https://www.thegatewaypundit.com/2021/01/pence-stabbed-betrayed-general-flynn-2017-today-betrayed-president-trump-america/
 
-> 安提法（Antifa）组织煽动的暴力，如向警察投掷弹丸和燃烧装置、焚烧车辆，以及无视当地宵禁而暴力对抗警察，对人的生命和我们国家的结构都是危险的。
+参考链接：
 
+【1】https://www.thegatewaypundit.com/2021/01/breaking-pence-releases-statement-ahead-certification-electoral-college-says-will-not-block-bidens-electors/
 
-“**这些暴力行为损害了和平抗议者的权利，破坏了这个国家人民的生命、自由和财产**，”川普最后说，”特别是那些最脆弱的人。”
+【2】https://www.thegatewaypundit.com/2017/02/breaking-mike-flynn-resigns-trumps-national-security-adviser/
 
-新闻来源：BREITBART
-原文链接：[https://www.breitbart.com/politics/2021/01/06/trump-urges-mike-pompeo-to-classify-antifa-as-terrorist-group/](https://www.breitbart.com/politics/2021/01/06/trump-urges-mike-pompeo-to-classify-antifa-as-terrorist-group/)
+【3】https://www.thegatewaypundit.com/2019/04/huge-former-wife-of-vp-pence-chief-of-staff-joshua-pitcock-was-working-for-strzok-on-general-flynn-investigation/
 
-+1
+【4】https://www.thegatewaypundit.com/2020/06/predictable-liberal-hack-attacks-trump-holding-campaign-rallies-not-black-lives-matter-antifa-mobs-terrorizing-american-cities-video/
+
++2

@@ -1,51 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国民兵联盟将不惜一切代价阻止拜登上台 保卫川普
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/724176/)
+## 国会被”攻占”川普呼吁人们和平回家
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/724245/)
 
-俄罗斯莫斯科喀秋莎农场   小杜
+撰稿：Jenny
 
-编辑上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GettyImages-1294914692.jpg)Wins TV
-美国民兵组织向华府发出通牒，如果1月16日联邦政府各机构不能阻止拜登上台，将不惜一切采取行动保卫川普总统。
+视频剪辑：文远
+选自推特
+川普发推呼吁人们结束和平示威回家。
 
-该联盟由美国7个主要的民兵组织组成，其中包括最大的右翼民兵组织—誓言守护者。民兵组织没有条规，推翻政府也不是他们的目的，他们唯有一个统一的信念：守护宪法，保卫并坚守美国的立国根本。
+他说：“我知道你很痛苦、很受伤。我们有一场被偷窃了的选举，那是一场我们取得压倒性的胜利的选举，每一个人都知道，尤其是我们的对手。
 
-对于2020美国大选充满史无前例的选举欺诈指控，民兵联盟在其官网发起了“为美国而战的爱国者行动”的声明。
+“但是，你现在必须回家。我们一定要保持和平，我们一定要遵守法律和秩序，我们一定要尊重我们伟大的守法的公民们，我们不希望任何人受伤，这是一个艰难的时刻，我们身处如未有过的艰难时刻，这样的事情从未出现过，他们可以就这么轻易的从你，我，我们的国家把这一切拿走，这是一场支离破碎的“选举，但是我们不能落入这些人的陷阱中。我们必须保持和平。回家吧，我们爱你们，你很特别，你已经看到了，那些人是如何行动的，很糟糕很魔鬼般的疯狂，我知道你们的感受，但是，回家去吧，平平安安的回家去吧。”
 
-该声明称：美国现在受到了来自国内腐败的民主党人和国外共产主义势力的双重攻击，国家处在危难关头。从某些过高的税种、贿赂选票以及虚假的自由；到政府对公民个人生活的彻底侵犯；及针对无数为了权利金钱牺牲民主意志的违宪、违法行为，他们将捍卫宪法，守护国家的立国根本，不惜一切代价阻止拜登成为总统。
+[据《大纪元》报道](https://www.epochtimes.com/gb/21/1/4/n12664729.htm)，彭斯当天主持国会认证下一届总统，但是在会议进行约2小时，抗议者冲入国会大厦， 与警察爆发冲突。认证总统的程序暂停。川普呼吁保持和平，首都市长下令宵禁。
 
-如果在1月16日以前，国家都未能阻止拜登内阁上台，他们会在1月16日开始全国范围内的、分阶段的行动，不允许拜登在1月20日举行就职典礼。
+目前，国会山戒严，国会大厦已被封锁；彭斯走出国会大厦，众议员辩论时突然离开会场。彭斯被护送转移。
 
-该组织表示爱国者不会开第一枪，但如果有任何反对力量首先对爱国者行动出击，无论是开枪还是人身攻击，都会带来正式的宣战。一旦内战发生，他们将致力于实现以下三个目标：
+白宫发言人麦肯纳尼（Kayleigh McEnany）发推文说，按照总统川普的指示，国民警卫队正在赶赴DC的路上。
 
-1.确保川普政府安全；
-
-2.追捕和起诉所有叛国的民主党人，由军事法庭审判和定罪；
-
-3.关闭所有受民主人士影响的腐败的主流媒体、广播以及其他社交媒体和网站，限制反美的言论自由，这是美国宪法第一修正案所涵盖的内容。
-
-在完成上述三个具体目标后，他们会停火。如果有人用笔将宪法废除，就会有人用枪把宪法恢复。无论在选举制度上如何伪装的程序正当，始终不能违背其重要的核心，这就是民意！
-
-美国民兵组织网站
-
-[http://www.militia.me/](http://www.militia.me/)
-
-[http://pafa2021.com/](http://pafa2021.com/)
+林伍德发推：该视频很好的解释了宪法，行使和平集会《第一修正案》。
 
 
 
-参考链接：
+视频来自推特，互联网。
 
-[https://news.creaders.net/us/2021/01/04/2306891.html](https://news.creaders.net/us/2021/01/04/2306891.html)
-
-[https://www.bannedbook.org/bnews/cbnews/20210105/1461302.html](https://www.bannedbook.org/bnews/cbnews/20210105/1461302.html)
-
-[https://www.163.com/dy/article/FVIRKS6V0543BD8I.html](https://www.163.com/dy/article/FVIRKS6V0543BD8I.html)
-
-[https://www.independent.co.uk/news/world/americas/us-election-2020/oath-keepers-militia-donald-trump-joe-biden-2020-election-b1723323.html](https://www.independent.co.uk/news/world/americas/us-election-2020/oath-keepers-militia-donald-trump-joe-biden-2020-election-b1723323.html)
-
-[https://oathkeepers.org/2021/01/oath-keepers-deploying-to-dc-to-protect-events-speakers-attendees-on-jan-5-6-time-to-stand/](https://oathkeepers.org/2021/01/oath-keepers-deploying-to-dc-to-protect-events-speakers-attendees-on-jan-5-6-time-to-stand/)
-
-+2
+部分消息原因大纪元：https://www.epochtimes.com/gb/21/1/4/n12664729.htm
+![]()![](https://gnews.org/wp-content/uploads/2021/01/澳喜图标.png)
+0
