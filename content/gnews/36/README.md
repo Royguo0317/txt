@@ -1,70 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 决战时刻48小时系列：Facebook和Twitter封锁了川普总统的帐户
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/725482/)
+## 习近平“隐身”担忧逼宫 特朗普继续制裁共企
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/725967/)
 
-作者：玫瑰天空
+**作者：埃德蒙**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/image0-42.jpg)
+北京时间1月6日，手术成功的习近平继续保持“隐身”模式，他的同事们开始陆续露面。1月4日，李克强主持召开国务院常务会议的画面出现在央视新闻联播。1月6日，政治局常委王沪宁出席全国宣传部长会议。据了解，习近平身边的“深喉”们正在继续向路德社透露习的最新情况。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_1422.jpg)
+**习团队准备迎接贺锦丽访华**
 
-**Twitter**在周三从唐纳德**·**特朗普总统的账户中删除了三条推文，并在混迹和隐藏在支持川普的爱国者人群中的暴民席卷美国国会大厦之后暂停了川普总统的账号使用为期**12**个小时。
+“习近平已经六十多岁了，他经过手术后需要卧床休息十几天，目前还是无法露面，只能签发一些文件。尽管疑神疑鬼的习近平抓了一批被怀疑泄露他行踪的人，但是他的机密信息仍然能够随时传递出来。”自媒体人路德说。
 
-该公司还警告称，进一步违反其规则**“**将导致特朗普的**Twitter**帐户[永久停权](https://twitter.com/TwitterSafety/status/1346970432017031178)**”**。
+路德表示，习近平的团队人员正在准备迎接月底的贺锦丽访华。“到底是按照副总统还是参议员的规格接待，取决于美国大选的最终结果。”路德说。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/0711.jpg)
+分析人士指出，从习近平的各种讲话可以看出，他的野心很大。习近平动辄就要给全世界指明发展方向，经常高喊要“构建人类命运共同体”，他并不是“发神经”，而是他内心世界的真实展现。文革期间的红卫兵，就曾经幻想在未来的第三次世界大战中，要“饮马顿河边，驰骋欧罗巴，攻克华盛顿”。据习近平身边人透露，习近平之所以近年来和梵蒂冈教廷的一些人眉来眼去，是为了一些“宏大计划”。“习近平的目标是，在对内控制十四亿奴隶、对外与普京结盟的基础上，通过操纵方济各上台控制梵蒂冈教廷，通过扶持拜登上台控制美国。全世界目前有两大力量，一个是美国的显性力量，一个是梵蒂冈教廷为代表的隐性意识形态力量。但随着爆料革命的出现和发展，习近平的世界梦和拜登的总统梦都将被击碎。”路德社博士团某成员说。
 
-其中一条推文包括特朗普的视频，川普鼓励了他的支持者。他说，法律和秩序是必要的，他爱他的支持者。
+**特朗普制裁八家支付系****统**
 
-**Facebook**和**YouTube**还从特朗普的帐户中删除了该视频。**Facebook**表示，由于两项违反政策的规定，将禁止总统的账户发布**24**小时。
+美国时间1月5日，特朗普总统发布最新制裁命令，要求美国商务部45天之内必须禁止支付宝、茄子快传、QQ钱包、微信支付等八家公司的支付业务。美国将继续评估其他对美国构成安全风险的应用软件，一旦被列入名单，参与控制、运行该软件的人员及子公司将被禁止在美国管辖范围内交易。
 
-显然，目前一些人想借此机会制造国会山混乱暴力事件，流血事件并嫁祸于川普的支持者以及进一步谋划谴责他本人。这样就可以对川普总统采取他们的一系列应对行动。
+有关文件显示，这些支付系统不仅会被清退出美国，它们的swift账号将被取消，到时候所有的美元和外币交易都将被禁止。“这是对中共国金融系统采取制裁行动的开始，未来还会有更多中共国银行等金融机构被列入制裁名单。美国这一举措再次验证了此前路德社的情报。”路德说。
 
+与此同时，美国财政部长姆努钦致电纽交所总裁，要求继续执行特朗普总统关于中共国三家电信运营商退市的制裁命令。吊诡的是，就在几天前，纽交所撤销了要求三家中国电信运营商停牌的决定。
 
+对此，美国当地媒体Zerohedge认为，当时纽交所认为拜登当选的可能性比较大，上台后会取消特朗普总统的13959号行政命令，撤销停牌决定是为了避免折腾。路德社则认为，这恰恰说明中共在纽交所的影响力很大，可以让美方的决定撤回。
 
-> We've assessed two policy violations against President Trump's Page which will result in a 24-hour feature block, meaning he will lose the ability to post on the platform during that time.
-> — Facebook Newsroom (@fbnewsroom) [January 7, 2021](https://twitter.com/fbnewsroom/status/1346994037786619905?ref_src=twsrc%5Etfw)
+“中共的力量确实不能小觑，脱钩不是光靠特朗普总统的命令就能实现的。姆努钦本来是亲共派，这次要求纽交所继续执行退市命令，很可能是因为美国的政治风向在发生扭转，姆努钦也不得不屈服。不论中共怎么努力，中概股必然退市。”路德认为。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_1424.png)
+**美、共****冲突已上升为灵性战争**
 
+梵蒂冈前驻美大使维加诺接受班农的采访，是最近路德社持续关注的内容。维加诺在采访中说，现任教皇方济各对自封为天主教徒，以有悖常理、反人类、反基督教的地狱般纲领推行全球化的拜登的支持是“显而易见”的。
 
+“方济各对秉持传统价值观的特朗普总统及支持特朗普的天主教徒的敌意也是显而易见的。他已经将特朗普视为主要对手和推行人类世界大重启计划的最大障碍。”维加诺说。
 
-**“**我们已经评估了针对特朗普总统的两项政策违规行为，这将导致**24**小时的功能阻止，这意味着他将失去在此期间在平台上发布信息的能力。**”**
+路德表示，就像“深层政府”在政治领域所做的一样，梵蒂冈已经被方济各的“深层教会”所控制。为了恢复正统的天主教会，必须将天主教会领袖参与共济会、全球主义计划，以及参与腐败和犯罪的事实揭露出来。“特别是前教皇本笃十六世辞职真相、方济各如何当选教皇的事实、以及方济各不再使用只忠于法律的瑞士雇佣军等背后的阴谋。”路德说。
 
+接受班农采访的维加诺大主教是梵蒂冈的实权派人物，相当于教廷的“纪委书记”，还负责梵蒂冈的财务工作。由于他在梵蒂冈经营了几十年，不仅掌握了梵蒂冈上千年来的情报信息，还对有关神秘力量的资料涉猎很深。路德认为，这次采访说明，美国与中共的冲突既是正义与邪恶的战争，也是宗教和灵性层面的战争。“中共信仰无神论，就是要将人性中的恶无限放大，甚至利用人的罪性作孽，极其邪恶，这让西方宗教体系看清了中共的本质。”路德社嘉宾艾丽女士说。
 
+另据郭文贵先生透露，近日大批中国军人便衣进入北京。这些军人是奉命“勤王”，还是要“逼宫”呢？还需卧床一阵子的习近平虽然很想露面稳住局面，以防朝中有人作乱，但碍于身体状况只能继续“隐身”。未来的十几天，一切皆有可能。
 
-> They’re deleting his tweets now. [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) if you can see this, get on Parler or equivalent immediately. We need to hear from you. [pic.twitter.com/ICoUqOO9HR](https://t.co/ICoUqOO9HR)
-> — Raheem Kassam (@RaheemKassam) [January 6, 2021](https://twitter.com/RaheemKassam/status/1346965732249251840?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> BREAKING: Trump supporters have breached the Capitol building, tearing down 4 layers of security fencing and are attempting to occupy the building — fighting federal police who are overrun 
-> 
-> This is the craziest thing I’ve ever seen in my life. Thousands, police can’t stop them [pic.twitter.com/VVdTUwV5YN](https://t.co/VVdTUwV5YN)
-> — ELIJAH SCHAFFER (@ElijahSchaffer) [January 6, 2021](https://twitter.com/ElijahSchaffer/status/1346881968819105792?ref_src=twsrc%5Etfw)
-
-
-
-**BREAKING**：特朗普的支持者违反了国会大厦，拆除了**4**层安全栅栏，并试图占领该建筑物**–**与超支的联邦警察作战 这是我一生中见过的最疯狂的事情。成千上万的警察无法阻止他们。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/0712.jpg)
-
-
-> My theory? The DemonRats hired them with Soros $$ to come and dress like Trump supporters to infiltrate. They were given what door to come in that would be easy access to them and thus others who were on the steps of the Capital thought it was OK
-> — War Room Pandemic Posse Member 4 Trump (@FrancisFaustina) [January 7, 2021](https://twitter.com/FrancisFaustina/status/1347000586101731333?ref_src=twsrc%5Etfw)
-
-
-
-**“**我的理论？** DemonRats**与**Soros**雇用了他们**$$**来穿得像特朗普的支持者一样渗透。他们被告知通过哪个门将很容易进入国会大门，因此其他人认为也可以这样做**”**
-
-
-
-> The moment we realized that this is a staged psyop [pic.twitter.com/Ckk4XtMeWB](https://t.co/Ckk4XtMeWB)
-> — MpD (@IndigoLeo10) [January 6, 2021](https://twitter.com/IndigoLeo10/status/1346941327720796166?ref_src=twsrc%5Etfw)
-
-
-
-社交媒体出现两种声音，分裂成两个阵营：挺川派和反川派。但是，很多民众可以发现很多暴徒渗透进入了川普总统支持者人群蓄意制造暴力事端。
-
-**Q**扮演的角色也正在慢慢浮出水面**……**他们到底代表了谁？！渗透进去的暴徒制造一系列暴力事件旨在推翻川普总统主张的选举欺诈和挑战选票作假的一系列行动，并借此机会让真正的**MAGA**爱国者噤声。当然也包括让川普总统本人噤声，正如推特和脸书此时此刻所做的。
-
-接下来我们来关注美国的真正爱国者们会怎么做。美国的爱国者是否会就此认输，他们是否会放弃对真实民意的追求和对国家安全的保护。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/0713.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/0714.jpg)
 0

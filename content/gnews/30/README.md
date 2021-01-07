@@ -1,38 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蒂芙尼护士接种辉瑞新冠疫苗后，一度晕倒！种种迹象让人质疑？（二）
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/725471/)
+## 中共国房企融资今年即将步入偿债高峰期
+` 纽约香草山农场香` [轉載自GNews](https://gnews.org/zh-hans/726036/)
 
-撰稿：Baizi
+作者：不言
 
-审稿：yumi 编辑：MG1
-![]()![](https://gnews.org/wp-content/uploads/2021/01/701.png)截图来源：https://www.youtube.com/watch?v=wxGR3y0gE\_0
-前面第一篇文章我提到2020年12月17日，Tiffany Dover在接受了辉瑞新冠疫苗注射后的17分钟晕倒在地，并在清醒后接受了媒体的采访。随后各大主流媒体都纷纷报道此事件，似乎口径一致，都在说Tiffany Dover的现场晕倒是由于有迷走神经反应过度所致，与疫苗本身无关。是不是真与辉瑞新冠疫苗注射无关，我们看结果。到底Tiffany Dover在17日注射疫苗后发生了什么？
+近来，多家研究机构统计显示，新年中共国房企融资暴涨。其中中原地产研究中心统计，开年6天房企美元融资已经超过45亿美元(约合291亿人民币)。
 
-对于Tiffany Dover现场晕厥的事件，由于是直播报道，整个事件很快就在全世界的社交媒体上发酵，尽管Tiffany Dover本人当日接受媒体采访时做了解释，从各种社交媒体的留言来看，不少人都提出了与我上一篇文章相似的质疑。特别是17日之后，Tiffany Dover经常使用的脸书和Instagram账号的一些不寻常的举动。为了跟踪事件，我找到了Tiffany Dover的脸书，并从她的发文里查看事发后的留言（Comments），截止到本文完成，总共有1.9万条留言，但至今没有一条Tiffany Dover本人的回复或回应。而她自2020年12月12日有过一次状态（Status）更新后就再没发布任何的文字、图片或视频，貌似她在社交媒体上突然消失了一样！
-![]()![](https://gnews.org/wp-content/uploads/2021/01/702-1.png)截图来源：https://www.facebook.com/tiffany.dover.520
-此外，我在较早的留言里看到了一些关注Tiffany Dover脸书状况的留言和截图，Tiffany Dover的脸书在事发后曾一度不能浏览，在 24小时后，又恢复正常，却有大约1000条的留言被删除，更有人发现在她的脸书恢复浏览后，她的工作单位信息被去掉了。有留言者质疑如果这是Tiffany Dover本人控制的脸书，她既然不想再被公众关注，为何不把留言功能去掉然后把脸书设置为私人 (private) 账号？ 再回到她公开的Instagram账号，这里有大量Tiffany Dover发布的图片，从发布的日期可以看出她大概平均2-3天就有新的内容发布。可从2020年12月15日起至今无一更新。这让关注这个事件的人对于她的健康状况越来越不确定。特别是有人竟然在网上查到了Tiffany Dover的死亡记录。。。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/703.png)截图来源：https://www.bitchute.com/video/as1rvnNFNaQQ/![]()![](https://gnews.org/wp-content/uploads/2021/01/704.png)截图来源：https://web.archive.org/web/20201220134350/https://www.searchquarry.com/namesearch/results?trackstat=homepage-&fname=Tiffany%20&lname=Dover&recordtype=Death&state=AL
-一个账号名为“Sergeant Major”的人士在BITCHUTE上发表了一篇名为“TIFFANY PONTES DOVER FAINTS IN 17 MINS, DEAD IN 10 HOURS [2020-12-24] (VIDEO)”的文章，他上传的一个视频，除了引用了Tiffany Dover当天晕倒的视频内容外，还在视频里展示了对Tiffany Dover在网站www.searchquarry.com的死亡记录搜索，死亡人从几个方面的信息都与Tiffany Dover具有一致性，包括姓名、年龄、所在地和与之有关的亲人名字。文章还提到，不久之后与 “Tiffany Dover“人名相关的死亡记录在同一个网站上均无法查找。于是我也动手去这个网站做了搜索，有意思的是正如文章所说的只要是搜索“Tiffany Dover”，一律没有结果。当我尝试把名字改成Tiffan Dover，竟然搜出了不少结果出来。因此所有关于 “Tiffany Dover “人名的死亡记录都被后台有意的去掉了，这又是为什么呢？与此同时，更有人在另一个网站ancestry.com也搜到了Tiffany Dover的死亡记录！
-![]()![](https://gnews.org/wp-content/uploads/2021/01/705.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/706.png)截图来源：www.searchquarry.com
-如果Tiffany Dover死亡记录真的存在，那它意味着什么？是否还有人愿意冒险去打辉瑞的新冠疫苗？为了证实Tiffany Dover还活着，而且健康没有问题，于是Tiffany Dover所就职的医院CHI Memorial发布了一个视频，到底Tiffany Dover是以一个什么样的姿态 “出现 “在视频里？留待下回再说！
+当下融资暴涨的主要原因是房企在努力自救，加大融资避免可能的政策风险（预计2021年房企偿债规模或破万亿大关）。面对房企偿债压力继续攀升的困境，尤其是中共推出融资新规的影响下，房企又必须主动降低负债率。在这样夹击的结果之下，中小型房企将率先感受到债市的紧张压力。
 
-本文仅代表个人观点
+2020年上半年，受中共病毒疫情因素影响，中共综合运用多种货币政策工具开启了疯狂印钞模式。随即房企为了生存开始疯狂融资，如1月海外债融资规模超1200亿元，3月信用债发行规模超千亿元，均为全年最高值。下半年，房地产金融监管不断强化，“三道红线”监管新规流出，行业资金呈现出紧平衡状态，9月及10月房企信用债、海外债融资规模才有所下降。12月统计数据显示，40家典型上市房企共完成融资金额折合人民币共计983.48亿元，环比下降9.86%，其中，股权融资占比进一步加大。全年来看，据克而瑞研究中心监测数据不完全统计，2020年95家典型房企融资总量为15220.80亿元，同比微升0.1%。
 
-参考链接：
-” TIFFANY PONTES DOVER FAINTS IN 17 MINS, DEAD IN 10 HOURS [2020-12-24](VIDEO)“ https://www.bitchute.com/video/as1rvnNFNaQQ/
-“faints after receiving covid tiffany dover faints minutes after taking the new covid 19 vaccine”
-https://www.youtube.com/watch?v=FG0J0HyIhl4
-” Critical care nurse at CHI Memorial explains her fainting after COVID-19 vaccine “
-https://www.youtube.com/watch?v=tOH7XLHl2mo&t=7s
-“Nurse faints after getting COVID vaccine “
-https://www.youtube.com/watch?v=nhb1zIYXUP8
-“Tiffany Dover biography: 13 things about Chattanooga, Tennessee nurse”
-https://conandaily.com/2020/12/19/tiffany-dover-biography-13-things-about-chattanooga-tennessee-nurse/
-“Nurse Tiffany Pontes Dover found on Ancestry dot com! Confirmed”
-https://www.youtube.com/watch?fbclid=IwAR1GwL37FsqnLi9Ts4Ogk3R-NTA01-8gUjipP3gmwXlmz2wOF7pGMf60\_cQ&v=X5VuIm0P8Qs&feature=youtu.be
-“We found 4 results for Tiffany Dover in Alabama! Choose a Result Below“
-https://web.archive.org/web/20201220134350/https://www.searchquarry.com/namesearch/results?trackstat=homepage-&fname=Tiffany%20&lname=Dover&recordtype=Death&state=AL
-![]()![](https://gnews.org/wp-content/uploads/2021/01/澳喜图标.png)
-0
+具体来看，贝壳研究院的统计数据显示，2020年房企境内外债券融资累计约12132亿元人民币，规模创历史新高，累计同比增长3%，累计增幅较2019年同期收窄10个百分点。自2018年房企债券融资规模连续两年增速收窄，金融调控效果显现。其中，境外债券融资规模约4519亿元，同比减少18.3%，境外规模占比约37%，较2019年下降10个百分点，与2018年占比相近；境内债市表现出较强韧性，融资规模约7613亿元，同比增加21.3%，境内债券规模占比63%。
+
+正是这些债务的累积效应，以及中共全面对放弃开始打压，不论是“三条红线”还是其他政策，都如同紧箍咒一样在驱赶着房地产企业加大融资。
+
+经过多年的融资扩张，近年来，房企迎来偿债高峰，业内预计，2021年偿债规模或破万亿大关，房企资金压力可想而知。贝壳研究院的统计数据也显示，2020年房企偿债规模约9154亿，同比增长28.7%；2021年到期债务规模(不含2021年将发行的超短期债券)预计将达12448亿元，同比增长36%，历史性突破万亿大关，房企偿债压力继续攀升。同时中指研究院统计显示，2021年，房地产行业包括海外债券在内的债券偿还总规模将达10909亿元，其中，海外债券偿还规模为4083亿元，公司债券需偿还规模为3744亿元；2022年，房地产行业需偿还规模将回落至7856亿元水平；2023年，这一规模将大致维持在8000亿元水平。
+
+去年8月20日中共住建部、央行召开重点房企座谈会，会后网传“三道红线”盛传，对房企的金融监管严厉程度拉升至新高度。12月31日，中共央行、银保监会调整房地产银行业金融机构贷款比例，对银行业金融机构建立房地产贷款集中度管理制度，将监管升级延续至年末。这些动作已经表明了中共的立场，打压房地产开启计划经济已无异议。
+
+而房地产将直接影响地方财政。据中共中指研究院发布的报告显示：2020年，全国300城市土地出让金总额为5.9万亿元，同比增加16％。其中上海、杭州、广州、南京四城超过2000亿，北京、武汉、宁波、佛山、成都、重庆、苏州、西安、深圳、天津等破1000亿，福州、无锡、青岛、郑州、东莞则超过700亿。
+
+2019年，全国仅有15个城市一般预算收入超过1000亿元。一般预算收入，相当于狭义的财政收入，为税收收入与非税收入之和，非税收入主要包括行政收费、罚没收入等。也就是说大多数城市的卖地收入已经超过了狭义上的财政收入，成为地方主要的财政来源。由于分税制的存在，税收收入需要中央、省、市进行分成，而土地出让金则100％归地方所有。
+
+2020年，土地收入最高的城市：首先是上海，位列全国首位,2700多亿的卖地收入，超过了吉林＋甘肃＋海南全年的主体税收收入之和；广州则跻身第二，广州卖地收入高达2500多亿，相比去年增长50％，创下历史新高。
+
+不仅上海、广州，北京深圳卖地收入同样大幅增长，深圳相比去年更是翻倍。2020年，深圳卖地收入虽然刚破1000亿，这是2016年之后首次破千亿，创下近几年新高。
+
+北京、上海这些地方财力充沛，都在疯狂提高土地收入，可见中共国经济实际情况有多么的差。最突出的是深圳作为计划单列市，主要与中央进行税收分成，可支配财力相对较多，而广州等地，省级、中央都要进行分成，不得不依赖土地财政维持支出。深圳2020年却加大土地供应，当年土地供应357公顷，超额完成计划的121％，为历年来新高。由此可见这个占据中共国制造业半壁江山的地区，实际情况有多残留。
+
+除去这几个财政并没有完全依靠的城市之外。温州、昆明、福州、杭州、太原、合肥、武汉、广州、西安、南京、佛山、郑州等12个城市从2019年土地财政依赖度就超过了100％
+
+杭州这个代表中共国另一个制造业中心的省会城市，卖地收入曾连续多年位居全国首位，从2016年至今，杭州卖地收入累计超过1万亿。2020年，杭州卖地收入虽然有所下滑，但仍旧保持在2000亿的高位，这是杭州连续第4年卖地收入超过2000亿元。与之相比，杭州2019年的一般预算收入为1966亿元。以此衡量土地财政依赖度，杭州接近140％，位居全国最前列。
+
+当今天房企疯狂举债的同时，背后隐藏着整个中共国的财政收入的困局。美国最近对中共企业尤其是金融的制裁的开始，必将打破中共整个金融的骗局。一旦这些债务，尤其是外债被大面积赎回之时，整个中共国将从房地产开始、到地方、再到中央全面爆发危机。
+
+文章内容仅代表作者观点
+
++1

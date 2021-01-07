@@ -1,39 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生评价路德先生的为人和在凤凰农场解散一事上的果敢和判断力
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/725477/)
+## 【香港要闻】《港版国安法》成滥捕「万能 key」
+` 经济金融组` [轉載自GNews](https://gnews.org/zh-hans/725959/)
 
-新闻简述：在《我是音雄》的跨年晚会上，郭文贵先生高度评价了路德的性格、对爆料革命的投入和在凤凰农场解散的关键时刻做出的果敢决定。
-视频来源：[https://www.youtube.com/watch?v=e2GEspG80xs](https://www.youtube.com/watch?v=e2GEspG80xs) (06:00:02-06:02:45)
-**中英文对照全文**
+————**7.1 实施至今　93 人被捕　**
 
-You just mentioned the Phoenix [farm]. Talking about Phoenix, I must say something about Mr. Lude. This is indeed God’s will, which I truly believe! At midnight on that day, while I talked with our scientist (Dr. Li-Meng Yan), Lude was waiting for me anxiously, saying, “We need to talk, we need to have a telephone conversation.” After the call, Mr. Lude became very serious! He said, “We cannot do it in this way, and we need to do it this and that way…” and gave me instructions. I said, “Okay, let’s talk about it tomorrow.” The next day, he texted me, “I suggest that you dismantle it [the Phoenix Farm].” He called Sara, which I did not know. Sara sent me the message [about dismantling the farm]. This is how the Phoenix Farm was dismantled. Sara took the initiative. It is Lude who figured out the whole thing.
+蒐集：爱听歌的猫
+编撰：爱听歌的猫
+审稿：文仁
 
-刚才你谈到凤凰。谈到凤凰，我必须说路德先生。这真的就是天命，我很信呐！我跟路德先生就是个凌晨和科学家讲话，路德也很着急等着，“咱得说话，咱得通话”。通完以后，路德先生就特别认真啦：“这事郭先生，咱们这事，你不能这么干。咱得怎么、怎么着…” 他给我指示，跟我说。我说：“是嘛！咱明天再说。” 第二天，他给我发信息说：“我建议你应该把这个解散了。” 他跟 Sara 通电话，我都不知道，Sara 就把信息发给我。就这么给，就是凤凰就解散。这 Sara 主动的。是路波切看清了整个事实。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/2-12.png)
 
-I always joke with Lude. He has two cutest sides, one of which is that he is the first person in our Whistleblower Movement who can read my mind. We seldom talk to each other and sometimes we don’t have even one call for a month. The two of us really talk the least. You can use it as a proof. Our conversations are also the shortest. You all know me. This is the one side.
+自港区国安法 7 月 1 日生效以来，【立场新闻】就此做了一个整理，发现至今已有 93 人因涉嫌从事危害国家安全的行为和活动而被警方被拘捕；被捕者包括多名曾参与去年立法会初选的人士、一传媒高层、已解散组织「学生动源」成员、前众志成员，以至单单举起「光复香港 时代革命」标语的示威者。另外，消息指有约 30 人在海外被通缉。
 
-我老爱跟路波切开玩笑。他有两个最可爱的一面，我可以说爆料革命当中能读懂我的第一个人就是路德。这种，而且我们俩讲的话是很少有的，有时候一个月都不通一次话，我们俩真的是讲话是最少的，你可以用他来证明。但是我们俩讲话最短的还是，大家也都了解我，这是一个。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/3-9.png)注: 7 月 1 日驾驶电单车的 23 岁男子分别被控告煽动分裂国家及恐怖活动罪。部份被捕或被通缉人士未知控罪。
 
-The other side is that Mr. Lude has really devoted himself to the Whistleblower Movement whole-heartedly, with his whole family, including his children and his wife, and everything in his life. Since I got to know him till today, he has been staying at home and only doing some shopping and eating [while not working]. More importantly, in that critical moment, Mr. Lude did such a decisive thing. This is what everyone can see! In our Whistleblower Movement and among our fellow fighters, he is far from ordinary.
+最高可判终身监禁
 
-第二个，爆料革命当中，路德先生真的是全身心，全家带着孩子、老婆，这生命一切。从我认识到现在，就在家，到这个买点东西回去吃饭。而且在关键的时刻，路德先生他做出了这样的事情。这是让我们大家能看到啊，我们爆料革命当中，战友当中，真的是，不是一般的。
+港区国安法条文订明，四大罪行包括「分裂国家罪」、「颠覆国家政权罪」、「恐怖活动罪」，以及「勾结外国或者境外势力危害国家安全罪」，最高刑罚均可判处无期徒刑，即终身监禁。
 
-Lao Ban Zhang called me first and then Chang Dao Ge called, telling me the situation of Phoenix City [where the GTV headquarter was]. Then many fellow fighters sent me messages, which I forwarded to Mr. Lude right away. Then Lude asked to talk to me. After our conversation, he told Sara, and then Sara took the initiative to return the Phoenix [headquarter to us]. As a result, it avoided a major legal issue, and even avoided a big trap set up by the CCP toward the Whistleblower Movement. Mr. Lude may share this in detail with all of you someday.
+就「分裂国家罪」、「颠覆国家政权罪」、「恐怖活动罪」，条文订明，对「首要分子或者罪行重大的」，处无期徒刑或者 10年以上有期徒刑；对「积极参加的」，处 3 年以上 10 年以下有期徒刑；对其他参加的，处 3 年以下有期徒刑、拘役或者管制。
 
-这是老班长先给我打电话，是长岛哥给我打电话，给我说了凤凰城的情况。然后很多战友给我发了信息，我第一个就发个转发路德先生，然后路德就要跟我通话。通话以后，他给 Sara 说的。Sara 就主动退还凤凰城。结果避免了一场重大的法律，甚至是一种，爆料革命的一种巨大的共产党的设置的圈套当中。这个路德先生哪一天可以好好跟大家讲一讲。
+就「勾结外国或者境外势力危害国家安全罪」，处 3 年以上 10 年以下有期徒刑；「罪行重大」的，处无期徒刑或者10年以上有期徒刑。
 
-You did not really see it clearly regarding the Phoenix Farm and the cobra and swallow (special agents) released by the CCP and the scheme behind all this. The setup behind it indeed can turn over all of us, including I Am Sing-Ro. This is really insidious! However, God helped us in this very moment, and Lao Ban Zhang and Chang Dao Ge provided the feedback from our fellow fighters timely and accurately. Then Mr. Lude, who is absolutely faithful to the core interest of our Whistleblower Movement with no consideration of himself whatsoever, made such a brave decision right away. And after the decision was made, we found afterwards that it was me who was indecisive and put personal feelings before the friendship of our fellow fighters in the Whistleblower Movement. It’s my fault. So in the end, I assume all of the responsibilities to avoid the worst situation.
+部分拘捕名单
 
-你们并没有看清楚凤凰农场和共产党放的蛇，放的燕子的，它背后的局。真可以包括你《我是音雄》，把我们大家是一勺给烩了的，这真的是很阴险、很阴险的。但是就是在这个时候，老天帮了我们，而且我们的老班长、长岛哥及时的、准确地提供了一些战友们反馈的信息。然后路德先生绝对是站着爆料革命核心利益上，没有考虑任何自己一点事情，马上做出果敢的决定。而且做完以后，我们后来发现，是七哥优柔寡断，是七哥这个个人感情大于了咱们的爆料革命的革命友情，这是我是错的。那最后呢，我承担一切责任，然后把这事情避免了最坏的程度。
+2021 年 1 月 6 日/53 人
 
-*【感谢新加坡狮城农场 Himalaya Singapore提供中文文本于[https://gnews.org/zh-hans/712375/](https://gnews.org/zh-hans/712375/)】*
+警方出动一千警力，搜捕 53 名曾协调及参与去年立法会初选人士。警方国安处高级警司李桂华指控其涉嫌策划「35+」、「揽炒瘫痪香港」，涉嫌干犯「颠覆国家政权」罪，又多番质疑初选有不良目的。
 
-翻译：【Cyndi】 校对：【Isaiah4031】 字幕：【相机过热啊】编辑：【Isaiah4031】
+![]()![](https://gnews.org/wp-content/uploads/2021/01/4-9.png)图片来源：立场新闻
 
-喜马拉雅玫瑰园小队出品
+![]()![](https://gnews.org/wp-content/uploads/2021/01/5-1.png)图片来源：立场新闻
 
-*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
+点评：
 
-+1
+不论是人民对国会审查程序的暴力阻挠，或是政府对于民主派人士的抓捕，都是对民主价值的打击。这些顿挫，更证实民主政治的发展与巩固，需要以民为本、以法治为基础。美国共和党多位资深大老，选择站出来严厉谴责那些煽动与坐视暴力的少数政治人物，而不是藉由鼓噪人民换取政治利益。
+
+就初选「35+」事件，资深自媒体人吴志森指出，不论你是提倡者、组织者，参与者，协调者，评论的，提出异议的，甚至当天有份参与投票的都害怕，令香港的民主运动从活跃的、积极的，到被动参与的民主派支持者，通通以拘捕方式震慑社会，令大家完全不敢提出任何异见声音。
+
+《港版国安法》成港共政府滥捕「万能 key」，以「分裂国家罪」、「颠覆国家政权罪」、「恐怖活动罪」等重罪在香港没有逻辑、不成条文地大规模地抓捕，全面扑灭民主派的力量。无论是本土派的力量、传统的泛民议员；本土派、温和派或激进派，公民党还是民主党都是《港版国安法》无一幸免。
+
+资料来源：
+
+立场新闻
+[https://www.thestandnews.com/politics/%E6%9A%B4%E6%94%BF%E6%83%A1%E6%B3%95-%E6%B8%AF%E5%8D%80%E5%9C%8B%E5%AE%89%E6%B3%95-7-1-%E5%AF%A6%E6%96%BD%E8%87%B3%E4%BB%8A-21-%E4%BA%BA%E8%A2%AB%E6%8D%95-6-%E4%BA%BA%E9%81%AD%E9%80%9A%E7%B7%9D-%E7%BD%AA%E5%90%8D%E4%B8%80%E8%A6%BD/](https://www.thestandnews.com/politics/%E6%9A%B4%E6%94%BF%E6%83%A1%E6%B3%95-%E6%B8%AF%E5%8D%80%E5%9C%8B%E5%AE%89%E6%B3%95-7-1-%E5%AF%A6%E6%96%BD%E8%87%B3%E4%BB%8A-21-%E4%BA%BA%E8%A2%AB%E6%8D%95-6-%E4%BA%BA%E9%81%AD%E9%80%9A%E7%B7%9D-%E7%BD%AA%E5%90%8D%E4%B8%80%E8%A6%BD/)
+
+自媒体吴志森【心直口快】
+
+
+
+0

@@ -1,38 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选实况】1/6/2021 彭斯背着川普与民主党合谋，部署国民警卫队对付和平示威者
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/725424/)
+## 【大选实况】1/7/2021 哪六位参议员继续反对大选舞弊认证
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/725662/)
 
-![7th circuit court struck down Mike Pence's discriminatory bans on Syrian refugees]()![7th circuit court struck down Mike Pence's discriminatory bans on Syrian refugees](https://images.dailykos.com/images/307619/story_image/Mike_Pence_discrimination_Mike-Pence-Anti-Gay-Cruader-Donkey-Hotey.jpg?1475606962)来源：www.dailykos.com/
-据《国家档案》（National File）推特账号1月6号晚五点多报道，国防部部长办公室周三确认，公告副总统彭斯和国会领导人参议院多数党领导人Mitch McConnell, 参议院少数党领导人Chuck Schumer, 众议院发言人Nancy Pelosi, 众议院多数党领导人Steny Hoyer, 和参谋长联席会议主席Mark Milley通话密谋，授权国民警卫队在华盛顿区部署，针对支持川普的抗议者。
+![六位英雄参议员反对大选结果认证]()![六位英雄参议员反对大选结果认证](https://dynaimage.cdn.cnn.com/cnn/digital-images/org/e7965058-faf9-4840-811a-2dc010ffeea0.jpg)来源：CNN
+1月6日美东时间晚10点多，Twitter大咖3Days3Nights说，参议院已经休会到明天。反对AZ选举人的议案6-93被击败。
 
-该密谋通话川普总统被排斥在外。彭斯周三给国会的信中称不会否决选举人团的选举认证。这样就可能清除了拜登被认证为总统的最后障碍。
+以下是支持川普的6个不是叛徒的共和党议员。密苏里州参议员 Josh Hawley, 阿拉斯加州参议员Tommy Tuberville, 密西西比州参议员Cindy Hyde-Smith, 堪萨斯州的Roger Marshall (R-Kan.) and 路易斯安那州参议员John Kennedy和德克萨斯州参议员Ted Cruz一起反对大选结果认证。
 
-
-
-> READ: Pence's letter to Congress saying he won't reject election result [https://t.co/CTJcM0QyFr](https://t.co/CTJcM0QyFr) [pic.twitter.com/OXPdXqVUXr](https://t.co/OXPdXqVUXr)
-> — The Hill (@thehill) [January 6, 2021](https://twitter.com/thehill/status/1346952709224734720?ref_src=twsrc%5Etfw)
+推主若有所指地说，如果川普不解密，预计明天也会有类似的结果。现在要问问自己，川普为什么要等待？
 
 
 
+> Senate in recess until tomorrow. Objection to AZ defeated 6-93. 
+> 
+> Here are the 6 that supported Trump that aren’t traitors. 
+> 
+> Cruz 
+> Hawley 
+> Hyde-Smith 
+> Kennedy 
+> Marshall 
+> Tuberville
+> 
+> Expect similar results tomorrow if Trump doesn’t DECLAS. Now ask yourself why Trump is waiting?
+> — 🇺🇸 3Days3Nights 🇺🇸 (@3days3nights) [January 7, 2021](https://twitter.com/3days3nights/status/1347021390344548354?ref_src=twsrc%5Etfw)
 
 
-《门户专家》（Gateway Pundit) 1月6号下午5:40 发文称，2017年彭斯背叛了福林将军（General Flynn），今天彭斯背叛了川普总统和美国。
 
-历史将铭记这一天，副总统彭斯是国家英雄还是叛国者，现在我们有了答案。作为大结局的今天，副总统彭斯从背后刺中了川普总统和美国人民，让世界历史上最滑稽、怪诞、腐败的选举有效。推特很快封杀了这个报道。
+据《门户专家》（Gateway Pundit) 1月6号下午6:36报道，根据一个在国会现场的前FBI雇员证实，至少一个大巴载有安提法成员，他们混入了集会。
 
-评：
+彭斯宣布不会阻止拜登的选举人之后，在国会大楼爆发了混乱。有多个证人看到一些穿黑衣的人催促人们往前冲，同时开始在人群中喊反政府口号。
 
-曾为彭斯副总统反共的激情演讲感动振奋，而他在此次大选中的表现，不仅使人感到失望，更使人感到愤怒，对拜登阵营大量的舞弊，他没有任何公开的批评。更严重的是，圣诞前夜他没有否决争议州选举人票，致使Amistad 诉讼生效，愤怒的林伍德大律师称其为叛徒。
+据华盛顿时报（The Washington Times）1月6号报道，脸部识别公司称安提法（Antifa) 混入冲击国会的抗议者。一个退役军官告诉华盛顿时报，XRVision公司用脸部识别软件锁定了参议院里面的两个人是费城安提法成员。
 
-今天副总统彭斯再次让我们感到失望，他没有响应美国总统川普的呼吁，力挽狂澜，推翻拜登的当选结果。他本可成为一位令人敬仰的勇士，而却成为历史上最大的叛徒，也许他的政治生涯也就从此结束。因此看一个人，不能看他说些什么，要看他做些什么，这也在爆料革命中一再被验证。
-
+1月6号下午两点多推特公司封杀川普的一个号召抗议者和平回家的视频之后，下午将近四点川普总统的另外两个视频被彻底删除。
 
 
-译者：DG、XO酱 【㊙️翻Gnews原创组】
 
-评论：Ermat
+
+
+
+
+参考链接：
+
+[Former FBI Agent on the Ground at US Capitol Says at Least One Bus Load of Antifa Thugs Infiltrated Trump Demonstration](https://www.thegatewaypundit.com/2021/01/breaking-report-former-fbi-agent-ground-us-capitol-says-least-one-bus-load-antifa-thugs-infiltrated-trump-demonstration/)
+
+[Facial recognition firm claims antifa infiltrated Trump protesters who stormed Capitol](https://www.washingtontimes.com/news/2021/jan/6/xrvision-firm-claims-antifa-infiltrated-protesters/)
+
+
+
+翻译报道：DG、XO酱【㊙️秘翻Gnews原创组】
 
 （本文仅代表作者观点）
 
