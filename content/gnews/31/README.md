@@ -1,21 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 华盛顿时报：经面部识别系统确认本周三袭击美国国会大厦的并非川普总统支持者而是极左暴力集团“antifa”组织的成员
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/726238/)
+## 时隔一年李文亮医生家属仍被“维稳”，同事们被边控
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/727155/)
 
-**【日本大阪方舟农场】**翻译&编辑：樱花树上摘苹果 校对：miumiu law
+新闻来源：Breitbart《布赖特巴特》； 作者：约翰·海沃德（JohnHayward）； 发布时间：2021年1月5日
 
-**“Indisputable photographic evidence that antifa violently broke into Congress today to inflict harm & do damage. NOT @realDonaldTrump supporters.**
+*翻译/简评：随波逐流；校对：SilverSpurs7；审核：万人往；Page：拱卒*
 
-**Do not be fooled. Trump supporters are peaceful. It was antifa that created the violence in our cities over the past several months.”**
+[!\[\]()!\[\](https://spark.adobe.com/page/9OMqOPtYVhMJH/images/a201ecc3-be40-4646-b734-925090421c7f.jpg?asset_id=ed9d07b2-7b4a-45e5-b112-b412d3b7dc18&amp;img_etag=%2241c5f527864eab4322d362b1f273ac7b%22&amp;size=2560)](https://spark.adobe.com/page/9OMqOPtYVhMJH/images/a201ecc3-be40-4646-b734-925090421c7f.jpg?asset_id=ed9d07b2-7b4a-45e5-b112-b412d3b7dc18&amp;img_etag=%2241c5f527864eab4322d362b1f273ac7b%22&amp;size=1024)
 
-**— Lin Wood (@LLinWood) January 6, 2021**
+捷克布拉格市一堵墙上张贴着中国武汉眼科医生李文亮的遗像。（2020年3月13日）
 
-以上是林伍德律师1月6日在社交媒体平台Parler上发出的推文，他针对周三美国国会大厦发生的一切，阐述了自己的观点，推文指出“无可争辩的摄影证据证明是“antifa”组织成员暴力闯进了国会并造成了伤害和破坏。”并发出提醒：“别被骗了。川普的支持者是和平的。在过去的几个月中，正是“antifa”组织对我们的城市实施了暴力。”同日美国《华盛顿时报》发表了一篇报道，报道中提到川普总统的支持者发现“antifa”组织成员混进了川普总统支持者的队伍，闯进了国会大厦并进行了破坏。一位退休的军官告诉《华盛顿时报》，基于AI技术分析视频内容的一家美国初创公司XRVision，使用其面部识别系统对两名费城“antifa”组织成员与参议院内部的两名男子进行了匹配。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/図1.1.png)
-XRVision表示，两个人中有一个是“antifa”组织成员，他身上印有斯大林主义支持者样式的纹身。“antifa”组织伸张暴力，无视政府，并希望用斯大林主义能够终结美国；另一位在之前的黑名贵（BLM）运动的抗议中也被目击过。
+**简评：**
 
-参考链接：原文引自华盛顿时报网页版[https://www.washingtontimes.com/news/2021/jan/6/xrvision-firm-claims-antifa-infiltrated-protesters/](https://www.washingtontimes.com/news/2021/jan/6/xrvision-firm-claims-antifa-infiltrated-protesters/)
+每当国家出现负面事件的时候，中共从来不是先解决问题、告知真相，而是解决提出问题的人。而这次因怕全世界知道“中共病毒”真相并向其追责，他们更是竭力封锁消息。据自由亚洲电台（RFA）报道，发出新冠疫情早期预警的吹哨人李文亮医生去世一年后，他的家人们仍处于政府的“维稳”监控之中，并被施压不准与媒体接触。而另一位批评政府处理疫情不力和隐瞒疫情的医生艾芬于去年3月消失于公众视野，几个月前复出的艾芬告诉RFA，她因视力问题被故意误诊，从而导致视网膜脱落，并不被允许再做医生。现在他们工作过的武汉市中心医院所有医生的护照和旅行证件都因“维稳”计划被收缴。但民众仍在网上悼念这位民间英雄，同时发泄对当局的不满情绪。
+
+中共的“以黑治国、以假治国”做法将中共的“假恶丑”发挥到了极致。因为他们的恶行，引发了造成全球迄今为止接近两百万人死亡的新冠大流行。如今，他们又试图用这些手法搞弱美国、搞乱美国、搞死美国，甚至操纵美国大选，真正让全世界认清了其真实面目。这个邪恶政权如不清除，将会逐步侵蚀到世界各个角落，生根发芽，威胁到全人类的安全。
+
+**原文翻译：**
+
+# **报告：武汉市中心医院医生及其家属受到监控，被禁止出行**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/9OMqOPtYVhMJH/images/4d519568-151b-4def-8551-2defde036f4b.png?asset_id=d6b79676-0057-4e2a-956f-63d8f3e35243&amp;img_etag=%2295822df4d1c1b30259f1116db5ddd190%22&amp;size=2560)](https://spark.adobe.com/page/9OMqOPtYVhMJH/images/4d519568-151b-4def-8551-2defde036f4b.png?asset_id=d6b79676-0057-4e2a-956f-63d8f3e35243&amp;img_etag=%2295822df4d1c1b30259f1116db5ddd190%22&amp;size=1024)
+
+美联社照片/张坚
+
+**据自由亚洲电台（RFA）报道，吹哨人李文亮因发出关于冠状病毒的早期预警而遭到中共残酷的禁言和惩罚，他最终因感染新冠病毒去世。在他去世一年后，他的家人仍处于中共国政府的严密监视中。**
+
+RFA援引武汉市所在地湖北省卫生行政部门的一位官员的话说，李文亮的遗孀、孩子和年迈的父母仍受到“维稳”监控：
+
+*一位只给出姓氏的刘姓官员告诉RFA，面对当局的无情压力，李文亮的遗孀将他们的两个孩子带回了她在湖北省的老家生活。*
+
+*刘某说，当局还给李文亮年迈的父母施加了巨大压力，阻止他们与媒体对话。李文亮的父母至今无法从儿子英年早逝的打击中恢复过来*。
+
+李文亮于2020年2月死于新冠病毒感染，在这之前一个月，他在社交媒体上发帖警告湖北其他医生关于一种神秘的新疾病的传播，这种疾病的特点让人联想到SARS病毒。李文亮和其他七人在武汉因“散布谣言”而被捕，并受到有辱人格的惩罚。
+
+李文亮后来因试图发出警报而成为民间英雄，李文亮死后，公众中明显地蔓延对中共国专制政府的愤怒情绪，特别是在中共笨拙地试图隐瞒他的死亡之后。中共将李文亮追认为英勇的共产党烈士。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/9OMqOPtYVhMJH/images/ae108354-3224-4d74-8749-8b5c964bca18.jpg?asset_id=394108da-12f3-436f-87eb-4eb83cd21a7e&amp;img_etag=%228c9ae805e2941e4d242c03b84adc31a5%22&amp;size=2560)](https://spark.adobe.com/page/9OMqOPtYVhMJH/images/ae108354-3224-4d74-8749-8b5c964bca18.jpg?asset_id=394108da-12f3-436f-87eb-4eb83cd21a7e&amp;img_etag=%228c9ae805e2941e4d242c03b84adc31a5%22&amp;size=1024)
+
+李文亮同事，同是吹哨人的艾芬医生称遭误诊右眼失明
+
+根据RFA的消息，中共仍在迫害另一名武汉吹哨人艾芬医生。在批评共产党领导层对大流行病的处理不当以及对这种病毒的危险性撒谎之后，艾芬在3月份无缘无故从公众视野中消失了。
+
+RFA表示，艾芬“在视力出现问题后被误诊”，视力受到永久性损害，并且不再被允许担任医生。
+
+艾芬几个月前复出，但不愿公开批评中共国政府。她对RFA表示，她被确诊患有轻度白内障，但实际上有更严重的问题，导致了视网膜脱落。艾芬认为她是被一家与中共国警察和军方有关的医疗公司故意误诊的。
+
+她说：“他们知道我的眼睛有问题，但没有告诉我；他们只是看着我的视网膜脱落。我要求他们在手术前做扫描，但实际上他们给我做了一个假扫描。”
+
+RFA在李文亮工作过的武汉市中心医院采访了一位匿名医生，而艾芬曾是这里的急诊室主任，这个匿名医生说，作为“维稳”计划的一部分，该院所有医生的护照和旅行证件都被收缴了。
+
+周日，中共国社交媒体用户纪念中共国官员对李文亮的“错误”做法一周年，标注了他被带到武汉派出所并受到官方训诫的日期，派出所称他的关于冠状病毒的警告“严重破坏社会秩序”。
+
+一位访客在李文亮的微博页面上写道：“兄弟，去年同一天你被训诫。你被冤枉了，人们会记住你。”《南华早报》将李文亮的微博页面形容为发泄公众不满的网上“哭墙”。
+
+[原文链接](https://www.breitbart.com/national-security/2021/01/05/report-wuhan-central-hospital-doctors-and-families-monitored-kept-from-travel/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/9OMqOPtYVhMJH/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/9OMqOPtYVhMJH/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/9OMqOPtYVhMJH/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 +1

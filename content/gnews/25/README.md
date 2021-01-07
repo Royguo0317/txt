@@ -1,9 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 1/6/2021 Tucker Carlson: 非民主会让这个国家变得更加不稳定, 更加危险
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/726352/)
+## 加拿大汽车销售遭中共病毒疫情严重打击
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/727248/)
 
-By： 【秘密翻译组 G-Translators – 精翻组】
+*加拿大草原三省战友之家 文莱*
 
-0
+*校对、发稿 文锦*
+![]()![](https://gnews.org/wp-content/uploads/2021/01/15-Feb-downward-chart-360.jpg)图片来源：Design Engineering
+据Bloomberg2021年1月6日报道，DesRosiers汽车咨询公司表示，2020年加拿大售出154万辆汽车和卡车，比2019年下降19.7%，降至2009年以来的最低水平。这家咨询公司表示，2020年12月的汽车销量与2019年同月相比下降了2.6%，使经销商处于1982年以来最大的年度跌幅之中。但是情况可能会更糟，因为在中共病毒大流行开始之际，4月份的销售下降了75%。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210105170116-5ff4e5c292a8870e822c761ajpeg.jpg)图片来源： BayToday.ca
+DesRosiers管理合伙人安德鲁·金（Andrew King）说，去年汽车市场的跌宕起伏曾令人瞠目结舌，但并不像春季时许多业内人士所担心的那样糟糕。去年，越来越多的消费者转向乘用车，因此轻型卡车在加拿大所有汽车和卡车的销售中创下了创纪录的79.9%。
+
+福特去年在加拿大售出239,368辆汽车，尽管比2019年将少了近50,000辆的销售，但仍保持着其作为最畅销汽车制造商的地位。
+
+*简评：*
+
+中共发起的超限生化战正在世界上衍生着各种各样的次生灾难，加拿大汽车销售业在2020年中遭受了多年来最大的打击。但是全世界政客不追究病毒真相，却大力宣传疫苗，包括加拿大某些地区的蛮横管控，致使民众消费观发生转变。消费体系的改变加上经济下行、高失业率以及生化病毒的威胁，不明真相的群众将因未知的恐惧而改变一些消费观念。
+
+*[原文链接](https://www.bnnbloomberg.ca/canadian-auto-sales-fell-19-7-in-2020-from-a-year-earlier-lowest-level-in-a-decade-1.1544778)*
+
++4

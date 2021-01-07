@@ -1,27 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国评估将安提法列为恐怖组织
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/726598/)
+## 中共国士兵战时将配备“自毁”装置
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/727541/)
 
-- 编辑:Victor Torres
-- 素材：文惜
+新闻来源：《ZeroHedge 零对冲》； 作者：Tyler Durden； 发布时间：2021年1月5日
 
+翻译/简评：Victory；校对：SilverSpurs7；审核：万人往；Page：DoReMi Rose
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+[!\[\]()!\[\](https://spark.adobe.com/page/y72WBamqfdVy4/images/1facf6d7-d2e1-4de1-bdef-1d921282a737.jpg?asset_id=59bfd902-1ca2-4589-90ff-80e477b901d0&amp;img_etag=%22dc3616b005aba7dcc7cd4c0b80b36650%22&amp;size=2560)](https://spark.adobe.com/page/y72WBamqfdVy4/images/1facf6d7-d2e1-4de1-bdef-1d921282a737.jpg?asset_id=59bfd902-1ca2-4589-90ff-80e477b901d0&amp;img_etag=%22dc3616b005aba7dcc7cd4c0b80b36650%22&amp;size=1024)(Image by The Pixelman from Pixabay)
 
-**西班牙2021年1月7日电/西喜社—**
+**简评：**
 
-1月5日，美国白宫颁布《关于基于有组织犯罪活动不允许与安提法(Antifa)有联系的人入境的备忘录》,要求评估将其列为恐怖组织及“已查明外国犯罪组织成员”。
+中共国的士兵们，相信你们会看清共匪才是中国人民的敌人。中共的行为总比最邪恶的恐怖组织更甚，而它们会以冠冕堂皇的口号蛊惑人心。听说中共军方的高管被以反腐名义抓捕时，很多都跪地求饶，哭天抢地。而他们却给士兵安装自爆装置，维护所谓“尊严”。事实上，它们从没把士兵当人，只是用所谓“国家”、“民族”等口号，骗这些老百姓的孩子当炮灰，维护它们世代的邪恶统治。朝鲜战争就是例子。
 
-可靠的报告表明，被称为 “安提法(Antifa) “的运动对美国社会最近发生的一些违法事件负有直接或间接责任，并利用悲剧来推进激进、左派、无政府主义和经常性的暴力议程。 事实上，它长期以来一直利用原本允许的示威活动进行违法犯罪行为，以推进其激进议程。
+在科幻电影中，只有机器人才会被安装自毁装置；在现实世界里，只有恐怖分子才会身绑炸弹要与“敌人”同归于尽。而中共士兵的装备中被安装这种所谓维护尊严的自杀式装置，甚至可能被指挥官远程启动“引爆”，将士兵的生命视同机器，不尊重生命，完全丧失了人性！
 
-安提法组织所煽动的暴力—如向警察投掷弹丸和燃烧装置、焚烧车辆、无视当地宵禁而暴力对抗警察—对人的生命和国家的结构都是危险的。 这些暴力行为损害了和平抗议者的权利，破坏了这个国家人民的生命、自由和财产，特别是那些最脆弱的人。
+我们对比下美国，美军会尽可能保证士兵的生命安全。按照国际法，职业军人在战场弹药耗尽，受伤失去战斗能力时，最好的选择就是投降，避免毫无意义的伤亡。生命是无价的，士兵被俘也是为国家做出的巨大牺牲，所以美军将士即使被俘都会被视为英雄。
 
-司法部已经公开确认，安提法和类似组织的行动符合国内恐怖主义的标准
+**原文翻译：**
 
-备忘录要求国务卿应与司法部长和国土安全部部长协商，审查从司法部和其他当局收到的信息，以评估是否将安提法组织列为恐怖组织及“已查明外国犯罪组织成员”。
+## 中共国士兵装备具有“自毁模式”的数字化作战装置
 
-新闻来源：[https://www.whitehouse.gov/presidential-actions/memorandum-inadmissibility-persons-affiliated-antifa-based-organized-criminal-activity/?fbclid=IwAR0LHoOrwVDeTcWnqR9Tbutffb6wh55A\_KtAQ9KsYtwlR5C6uZmEs99ChB](https://www.whitehouse.gov/presidential-actions/memorandum-inadmissibility-persons-affiliated-antifa-based-organized-criminal-activity/?fbclid=IwAR0LHoOrwVDeTcWnqR9Tbutffb6wh55A_KtAQ9KsYtwlR5C6uZmEs99ChB)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+新德里电视台透露，西藏军区的中共国士兵很快就会在作战装备中嵌入新数字系统。
+
+中共国士兵将在头盔上配备卫星天线，新的夜视镜和手臂上的数字控制终端。他们还将装备先进的防弹衣、新型导航装置、个人电台、摄像模块、音频转换器、信息处理和电源模块。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/y72WBamqfdVy4/images/34c12bf2-42e6-4d65-83ac-4ecc9b24cb82.png?asset_id=702b41f7-11b3-4d94-bc08-fbc56a6dd81d&amp;img_etag=%224964be2ced9204733129a2124b83ee37%22&amp;size=1024)](https://spark.adobe.com/page/y72WBamqfdVy4/images/34c12bf2-42e6-4d65-83ac-4ecc9b24cb82.png?asset_id=702b41f7-11b3-4d94-bc08-fbc56a6dd81d&amp;img_etag=%224964be2ced9204733129a2124b83ee37%22&amp;size=1024)
+
+虽然这些升级听起来没有什么特别之处，但也提到了新的作战装备将配备“自毁模式”。
+
+更重要的是，这套系统配备了自毁装置。如果士兵受了重伤，但又不想被俘，启动自毁装置，不仅可以维护士兵的尊严，而且敌人也无法获取该系统的任何信息。LU媒体报道直言不讳地写道：“另一种自毁方式是在营级指挥所。如果指挥员在屏幕上发现个别士兵距离其它部队较远，但命令无法传达。如果你是一名士兵，也会启动自毁功能。”——新德里电视台
+
+有人提到，自毁模式甚至可以由指挥官远程启动，让士兵“维护军人尊严”，防止信息泄露。
+
+很多网友都很愤怒，士兵会配备炸弹，可以由上级引爆。有网友说：“这东西不是人肉炸弹吗？”
+
+网友们还表示：“这也太无情了。离队伍远一点，就被指挥官引爆。这是为以后的行动准备的典型控制术。他们怕士兵逃跑、装死、造反。”
+
+另一位网友说：“过去，共产党军队要求每个士兵为自己保留一颗手榴弹。在他被俘之前，引爆手榴弹并与敌人同归于尽。这也叫‘光荣弹’。”
+
+[原文链接](https://www.zerohedge.com/technology/chinese-soldiers-outfitted-digital-combat-device-has-self-destruction-mode)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/y72WBamqfdVy4/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/y72WBamqfdVy4/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/y72WBamqfdVy4/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+
 0

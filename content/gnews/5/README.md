@@ -1,58 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选实况】1/7/2021 哪六位参议员继续反对大选舞弊认证
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/725662/)
+## 美国交通部长赵小兰此时辞职为哪般？
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/727596/)
 
-![六位英雄参议员反对大选结果认证]()![六位英雄参议员反对大选结果认证](https://dynaimage.cdn.cnn.com/cnn/digital-images/org/e7965058-faf9-4840-811a-2dc010ffeea0.jpg)来源：CNN
-1月6日美东时间晚10点多，Twitter大咖3Days3Nights说，参议院已经休会到明天。反对AZ选举人的议案6-93被击败。
+*加拿大多伦多枫叶农场 文锦*
 
-以下是支持川普的6个不是叛徒的共和党议员。密苏里州参议员 Josh Hawley, 阿拉斯加州参议员Tommy Tuberville, 密西西比州参议员Cindy Hyde-Smith, 堪萨斯州的Roger Marshall (R-Kan.) and 路易斯安那州参议员John Kennedy和德克萨斯州参议员Ted Cruz一起反对大选结果认证。
+*校对 小鸥 上传 文锦*
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GBFBQK6JFBCXPMZPET3KNFG55Y.jpg)图片来源： FOX23
+2021年1月7日，与中共关系紧密的美国交通部长赵小兰（Elaine Chao）宣布辞职。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图365.png)
+她在推特发文：为美国运输部服务是一生的荣幸。
 
-推主若有所指地说，如果川普不解密，预计明天也会有类似的结果。现在要问问自己，川普为什么要等待？
+亲爱的交通部同事们。
 
+昨天，我国经历了一次创伤性的、完全可以避免的事件，因为总统的支持者在总统的一次集会后冲进了国会大厦。我相信你们中的许多人也是如此，这给我带来了深深的困扰，我根本无法将其抛开。
 
+我为能够一起为国家取得的许多成就感到非常自豪，我永远不会忘记你们对这个部门和美国的承诺。我希望你们中的许多人将继续推进我们的愿景，通过这个部门和其他部门改善美国人的生活。
 
-> Senate in recess until tomorrow. Objection to AZ defeated 6-93. 
-> 
-> Here are the 6 that supported Trump that aren’t traitors. 
-> 
-> Cruz 
-> Hawley 
-> Hyde-Smith 
-> Kennedy 
-> Marshall 
-> Tuberville
-> 
-> Expect similar results tomorrow if Trump doesn’t DECLAS. Now ask yourself why Trump is waiting?
-> — 🇺🇸 3Days3Nights 🇺🇸 (@3days3nights) [January 7, 2021](https://twitter.com/3days3nights/status/1347021390344548354?ref_src=twsrc%5Etfw)
+今天，我宣布辞去美国交通部长的职务，于2020（应为2021，原文有误）年1月11日星期一生效。我们将帮助我宣布的继任者彼得·巴蒂吉格(Pete Buttigieg)市长，承担起管理部门的责任。衷心祝愿你们每一个人。
 
+真诚的,
 
+赵小兰
 
-据《门户专家》（Gateway Pundit) 1月6号下午6:36报道，根据一个在国会现场的前FBI雇员证实，至少一个大巴载有安提法成员，他们混入了集会。
+2021年1月7日 下午1：36
 
-彭斯宣布不会阻止拜登的选举人之后，在国会大楼爆发了混乱。有多个证人看到一些穿黑衣的人催促人们往前冲，同时开始在人群中喊反政府口号。
+注：彼得·巴蒂吉格（Peter Buttigieg）是印第安纳州南本德（South Bend）的前市长，民主党拜登指派的交通部长。
 
-据华盛顿时报（The Washington Times）1月6号报道，脸部识别公司称安提法（Antifa) 混入冲击国会的抗议者。一个退役军官告诉华盛顿时报，XRVision公司用脸部识别软件锁定了参议院里面的两个人是费城安提法成员。
+**评：**
 
-1月6号下午两点多推特公司封杀川普的一个号召抗议者和平回家的视频之后，下午将近四点川普总统的另外两个视频被彻底删除。
+经历了1月6日国会大厦的惊心动魄，主流媒体还在颠倒是非、煽风点火，赵小兰也声称冲进国会山的人是川普的支持者，明显是一起带风向。这一点通过今天各大党媒齐齐引用并赞同她的观点也可以看出。
 
+各项证据已经表明冲进国会大厦制造事端及暴力冲突的是中共背后操纵的安提法（Antifa），作案手法就是“掺沙子”，与中共在八九六四、香港反送中的抹黑、栽赃和平示威者做法如出一辙。赵小兰借辞职声明不忘支持中共、安提法，妄图泯灭真相。
 
+赵小兰还指出要与拜登阵营的交通部长交接，说明她与其丈夫、美国参议院多数党（共和党）领袖麦康奈尔一样支持与中共勾兑的拜登。
 
+另外，赵小兰在此时跳船，宣布辞职，可能已经看到美国下届总统当选、中共倒台后自己可能会接受正义审判的前景。
 
+在推文留言中，不少要求她丈夫麦康奈尔也辞职的呼声，可见夫妇俩声名狼藉，大家都巴不得这对与中共沆瀣一气、道貌岸然的政客不要再祸害百姓了。
 
+*[原文链接](https://twitter.com/SecElaineChao/status/1347250653802983431)*
 
-
-参考链接：
-
-[Former FBI Agent on the Ground at US Capitol Says at Least One Bus Load of Antifa Thugs Infiltrated Trump Demonstration](https://www.thegatewaypundit.com/2021/01/breaking-report-former-fbi-agent-ground-us-capitol-says-least-one-bus-load-antifa-thugs-infiltrated-trump-demonstration/)
-
-[Facial recognition firm claims antifa infiltrated Trump protesters who stormed Capitol](https://www.washingtontimes.com/news/2021/jan/6/xrvision-firm-claims-antifa-infiltrated-protesters/)
-
-
-
-翻译报道：DG、XO酱【㊙️秘翻Gnews原创组】
-
-（本文仅代表作者观点）
-
-0
++1

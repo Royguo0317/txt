@@ -1,58 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 被国会警察射杀的手无寸铁的支持川普者（女性）已经死亡
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/726084/)
+## 1/7/2021 财经快讯：中共国有资产管理公司前负责人被判处死刑； 纽约证交所将三家中国电信公司退市
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/727066/)
 
-翻译：康州盘古农场-Mike Li
+![]()![](https://gnews.org/wp-content/uploads/2021/01/NYSE-1.png)Image source: https://www.sohu.com/
+1.（路透社）-纽约证交所（NYSE）周三表示，将取消三家中国电信公司的名单. 在此之前,纽约证交所已经周四宣布了计划将中国移动有限公司、中国电信股份有限公司和中国联通香港有限公司退市。但是周一，在与美国财政部外国资产控制办公室的监管机构协商后，该公司做了一次 U 转，并决定继续将其上市。https://www.reuters.com/article/us-china-usa-telecom-idUSKBN29B1TR2
 
-校对：康州盘古农场-LemonGTV
+2. 中共华融资产管理有限公司前董事长赖晓民 (58)周二因受贿被判处死刑, 是近年来对经济犯罪最严 的厉 惩罚之一， 此案判决会自动向中国最高法院提出上诉。华融是 20 世纪 90 年代从银行购买不良贷款的四家实体之一，帮助国有金融业复苏。这些资产管理公司扩展到银行、保险、房地产金融等领域。https://ca.movies.yahoo.com/former-head-china-state-asset-110406843.html
 
-编辑：康州盘古农场-Rose
+3. 1 月 6 日，中共人民银行宣布实施 “碳峰值”和“碳中和”决策，完善绿色金融政策和激励机制。虽然绿色债券无疑是绿色融资中最重要的力量之一，但国内贴标的绿色债券市场已增长到约 1200 亿美元，使其成为世界第二大绿色债券市场。https://finance.sina.com.cn/roll/2021-01-07/doc-iiznezxt0949269.shtml
 
-作者：卡桑德拉·费尔班克斯
+4. 沙特阿拉伯决定在 2 月和 3 月大幅减产石油。沙特能源部长阿卜杜勒阿齐兹·本·萨勒曼亲王周二表示，沙特阿拉伯每天将额外减少 100 万桶石油。 这远远超过了俄罗斯和哈萨克斯坦在每个月允许的 7.5 万桶/日的总和。 该组的其余部分将保持输出稳定。https://www.newsmax.com/t/newsmax/article/1004341/8
 
-发布时间：2021年1月6日下午5点11分
+5. 国家外汇管理局（SAFE）最近注意到人民币兑美元本周大幅升值至 6.45以上。 为防止进一步的跨境资金流动异常风险，国家外汇管理局已加大力度，将严格控制热钱的流入和流出。https://finance.sina.com.cn/roll/2021-01-07/doc-iiznctkf0531210.shtml
 
-在国会大厦内川普支持者被警察开枪打死。
+By 【秘密翻译组金融团队-Mr. Y】
 
-这名手无寸铁的女子是被一名警员透过关着门的窗户射杀的。
-
-NBC报道今天在美国国会大厦内被枪击的女子已经死亡
-
-[pic.twitter.com/oIk39WWzn](https://pic.twitter.com/oIk39WWzn)
-
-– 每日来电（@DailyCaller）2021年1月6日。
-
-一名目击者描述了离开大楼后发生的事情。
-
-难以置信不可思议的视频
-
-这个人就在被国会山警察残忍枪杀的女人旁边。
-
-可能是任何人，完全不能接受！！！
-
-[pic.twitter.com/dk0AneW3B9](https://pic.twitter.com/dk0AneW3B9)。
-
-- 助理格罗珀（@AsstGroyper）2021年1月6日。
-
-
-被枪杀的这名女士似乎站在一群试图进入会议室的人后面。警察封锁了大门，试图将爱国者抗议者挡在门外，然后拔出了武器。他们向她开枪并打死了她。
-
-**警告：下面的视频非常真实而且难以接受：**
-
-华盛顿特区国会警察今天处决了一名川普的支持者，她在国会大厦和平地抗议。
-
-- 迈克-库德雷（@MichaelCoudrey）2021年1月6日。
-
-
-天啊！这是警察在国会大厦内开枪射击的视频，看起来像是杀死了一个支持川普的女士#WashingtonDC [pic.twitter.com/wVjg7g1mav](https://pic.twitter.com/wVjg7g1mav)。
-
-– 卢克·鲁德科夫斯基（@Lukewearechange）2021年1月6日。
-
-[pic.twitter.com/ZpzejGQSeD](https://pic.twitter.com/ZpzejGQSeD)
-– 泰勒-汉森（@TaylerUSA）2021年1月6日。
-
-文章链接：[https://www.thegatewaypundit.com/2021/01/pro-trump-woman-shot-capitol-police-died-executed/](https://www.thegatewaypundit.com/2021/01/pro-trump-woman-shot-capitol-police-died-executed/)
-
-0
++1
