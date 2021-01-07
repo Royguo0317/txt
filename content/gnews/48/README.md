@@ -1,21 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选实况】1/6/2021 推特公司封杀川普呼吁抗议者和平回家的视频
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/724441/)
+## [危機中的重生] 1月6日美國總統大選之決戰時刻系列報導(10)
+` 旧金山-金喜准农场` [轉載自GNews](https://gnews.org/zh-hans/724980/)
 
-![r/censorship - Twitter Censorship]()![r/censorship - Twitter Censorship](https://preview.redd.it/57yfmxfbdia21.jpg?width=960&amp;crop=smart&amp;auto=webp&amp;s=5a317ac0ce63c9b8e576273a0bae2ac14d2f7263)
-来源：Reddit
+```
+大選之關鍵時刻看彭斯
 
-据Breitbart 1月6号下午5点左右推特账号报道，推特公司封杀了川普的一个视频，视频中号召国会山的抗议者平静的分散回家。推特用户不能点赞，不能转推，也不能回复这个视频，理由是“引发暴力风险”。
-
-
-
-> Twitter censored a video from President Donald Trump calling on protesters at the U.S. capitol building to peacefully disperse and go home. Twitter users were prevented from liking, retweeting, or replying to the tweet because of a “risk of violence.” [https://t.co/2zz23J0jmu](https://t.co/2zz23J0jmu)
-> — Breitbart News (@BreitbartNews) [January 6, 2021](https://twitter.com/BreitbartNews/status/1346946371744657413?ref_src=twsrc%5Etfw)
+撰稿：空山新雨8298
 
 
+彭斯是這次大選舞弊的一個關鍵人士，今天我們就單說一下這位政治人士。
 
-翻译报道：DG 【㊙️翻Gnews原创组】
+邁克爾·理查德·彭斯（Michael Richard Pence）出生：1959年6月7日（年齡61歲），印第安納州哥倫布。一位美國政治人士，現任美國第48任現任副總統。從2013年至2017年，他是印第安納州的第50位州長，從2001年至2013年，他在美國眾議院擔任了六個任期。
+
+這次美國大選前所未有達到登峰造極的地步，這也就是2020年11月3日下屆總統難產的主要原因，要想扭轉這個局面，今天2021年1月6日是一個關鍵日，今天是彭斯作為參議院議長有權拒絕6搖擺州的選舉認證（大選作弊）而退回各州議會決定，這樣拜登就沒達到當選的270票。
+
+川普總統發推和今日演講中一再說，副總統有權拒絕作弊的選舉人票。彭斯也在這幾日的演講中承諾“我和幾百萬美國人一樣對選舉違規有擔憂”，並保證6日“有機會在國會表達，聽取證據”。彭斯如做出正確抉擇，將決定大選結果和他本人政治命運。有的時候一個關鍵人物的關鍵舉動將改變歷史的軌跡。
+
+但彭斯總統是一個謹慎膽小循規蹈矩的人，而且非常在乎他的清名，邪惡力量看到這就是彭斯的軟肋，對他的名聲進行了威脅，彭斯退卻了，他準備放棄他的職責，於1月5日去以色列訪問（休假），以避開這個關鍵日。但在川普總統和他進行了2個小時的白宮談心後，他改變了想法，取消了計劃。
+
+彭斯是一位虔誠的基督教徒，如果他逃避自己的職責，美國有可能因為這此大選舞弊而抗爭升級，爆發國內戰爭，會有許多人將會為美國的民主自由而犧牲生命，這是一個沉重的代價，這不符合基督大愛精神。
+
+他目前的搖擺態度主要是他太在乎自己的羽毛，太計較自己的得失，我們希望他能夠明白他是人不是神，神都有懺悔的事情更何況他只是一個人！如果他能明白這個道理，忘掉自己的過往，看淡個人得失，按照基督精神，按照神的旨意，做正確的事，他將成為挽救美國於危難的英雄，和川普總統並肩而立留下歷史英名
+
+不管如何他都會在美國歷史乃至世界史上留下自己的名字，抑或英雄抑或歷史罪人，如何他真正地愛惜自己的羽毛，那就勇敢地站起來，履行自己的職責，救美國於危難之中！
+
+願上帝保佑美國！
+```
+
 
 0

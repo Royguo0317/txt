@@ -1,55 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 决战48小时系列：美国国会极端时刻撼动全球各界政要人士
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/725092/)
+## 决战时刻48小时系列：Facebook和Twitter封锁了川普总统的帐户
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/725482/)
 
 作者：玫瑰天空
 
-美国本地时间**1**月**6**日下午，数百名抗议者聚集在美国首都华盛顿特区，为支持特朗普进行示威活动，以向正在进行的国会联席会议施压。尽管川普总统呼吁所有人保持和平，但是，依然有另有图谋的暴力行为制造者混迹在爱国者人群之中。
+**Twitter**在周三从唐纳德**·**特朗普总统的账户中删除了三条推文，并在混迹和隐藏在支持川普的爱国者人群中的暴民席卷美国国会大厦之后暂停了川普总统的账号使用为期**12**个小时。
 
-随后，示威游行转向暴力倾向，部分示威者进入美国国会区域，并攻破了国会大厦，议员们已被紧急疏散。美国多个盟国领导人就此表态。
+该公司还警告称，进一步违反其规则**“**将导致特朗普的**Twitter**帐户[永久停权](https://twitter.com/TwitterSafety/status/1346970432017031178)**”**。
 
-新中国联邦爆料革命在文贵先生带领下在这期间开启**“**决战时刻**”48**小时持续行动和直播关注。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/0701.jpg)
-幕后发生的一切也许不是我们可以想象和预知的，但是每一位新中国联邦人都身在其中，伴随着新中国联邦一起创造着历史性地关键时刻。历史性的时刻，新中国联邦人站在正义一边！期待未来为贵先生会我们揭秘今时今日还不能分享的幕后发生的精彩故事和惊险时刻！
+![]()![](https://gnews.org/wp-content/uploads/2021/01/0711.jpg)
 
-文贵先生直播中精彩瞬间无数，文贵先生直播中说：**“**美国民意民心支持的不仅仅是川普总统，而是被共产主义吓怕了。**”“**共产党最想灭的川普总统结果他帮了川普总统！**”“**跟随我们的情怀和信仰！**”“**一定是川普赢！**”**
-![]()![](https://gnews.org/wp-content/uploads/2021/01/0702.jpg)
-此刻，世界多国首脑也就此发表了各自看法和态度！
+其中一条推文包括特朗普的视频，川普鼓励了他的支持者。他说，法律和秩序是必要的，他爱他的支持者。
 
-据多方媒体报道：
+**Facebook**和**YouTube**还从特朗普的帐户中删除了该视频。**Facebook**表示，由于两项违反政策的规定，将禁止总统的账户发布**24**小时。
 
-英国首相鲍里斯形容国会山的场景是**“**可耻的**”**
+显然，目前一些人想借此机会制造国会山混乱暴力事件，流血事件并嫁祸于川普的支持者以及进一步谋划谴责他本人。这样就可以对川普总统采取他们的一系列应对行动。
 
-约翰逊刚刚发推称美国国会的场面是“可耻的”。在推文中，约翰逊称：＂美国国会的可耻场面。美国在世界各地主张民主，现在至关重要的是实现和平有序的权力交接。＂
 
-而就在不久前，拜登发表讲话，呼吁停止暴力活动。
 
-加拿大总理特鲁多：在**“**一分钟不落**”**地关注
+> We've assessed two policy violations against President Trump's Page which will result in a 24-hour feature block, meaning he will lose the ability to post on the platform during that time.
+> — Facebook Newsroom (@fbnewsroom) [January 7, 2021](https://twitter.com/fbnewsroom/status/1346994037786619905?ref_src=twsrc%5Etfw)
 
-外媒消息，加拿大总理特鲁多刚刚就美国国会骚乱表态，称加拿大政府正密切关注事态，“一分钟不落”。
 
-北约秘书长：华盛顿特区发生令人震惊的一幕
 
-北约秘书长延斯·斯托尔滕贝格刚刚发推称，华盛顿特区发生令人震惊的一幕。这次民主选举的结果必须得到尊重。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/0703.png)
-挪威首相：华盛顿特区的场面令人难以置信！
+**“**我们已经评估了针对特朗普总统的两项政策违规行为，这将导致**24**小时的功能阻止，这意味着他将失去在此期间在平台上发布信息的能力。**”**
 
-美国有线电视新闻网（CNN）刚刚消息称，挪威首相索尔贝格发推对美国局势表示“难以置信”。
 
-“华盛顿特区的场面令人难以置信，这是对民主完全不可接受的攻击。现在，制止这一情况的重任落在了特朗普总统身上。” 索尔贝格写道。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/0704.png)
-欧洲议会议长：美国国会大厦场景**“**令人深感担忧**”**！
 
-美国有线电视新闻网（CNN）刚刚消息称，欧洲议会议长萨索利发推，“今晚在美国国会大厦发生的场景令人深感担忧。民主党的投票必须得到尊重。我们确信，美国将确保民主制度得到保护。”
-![]()![](https://gnews.org/wp-content/uploads/2021/01/0706.png)
-西班牙首相桑切斯：拜登将会克服这段紧张时期，团结美国人民
+> They’re deleting his tweets now. [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) if you can see this, get on Parler or equivalent immediately. We need to hear from you. [pic.twitter.com/ICoUqOO9HR](https://t.co/ICoUqOO9HR)
+> — Raheem Kassam (@RaheemKassam) [January 6, 2021](https://twitter.com/RaheemKassam/status/1346965732249251840?ref_src=twsrc%5Etfw)
 
-西班牙首相桑切斯刚刚发推称，正在关注来自华盛顿国会山的消息。他称当选总统拜登将会克服这段紧张时期，团结美国人民。
 
-各国首脑此刻的态度也是各怀心腹事，惴惴不安，选站哪边也许是个世界多国都要面对的难题。后续随着事态发展，还有哪些国家首脑会加入选边表态行列或者改变态度，还需我们持续关注！
 
-[援引原文](https://www.google.co.jp/search?q=%E7%BE%8E%E5%9C%8B%E5%9C%8B%E6%9C%83%E9%A8%B7%E4%BA%82%EF%BC%8C%E5%A4%9A%E5%80%8B%E7%9B%9F%E5%9C%8B%E9%A0%98%E5%B0%8E%E4%BA%BA%E8%A1%A8%E6%85%8B&amp;ie=UTF-8&amp;oe=UTF-8&amp;hl=zh-hant-jp&amp;client=safari)
 
-+1
+
+> BREAKING: Trump supporters have breached the Capitol building, tearing down 4 layers of security fencing and are attempting to occupy the building — fighting federal police who are overrun 
+> 
+> This is the craziest thing I’ve ever seen in my life. Thousands, police can’t stop them [pic.twitter.com/VVdTUwV5YN](https://t.co/VVdTUwV5YN)
+> — ELIJAH SCHAFFER (@ElijahSchaffer) [January 6, 2021](https://twitter.com/ElijahSchaffer/status/1346881968819105792?ref_src=twsrc%5Etfw)
+
+
+
+**BREAKING**：特朗普的支持者违反了国会大厦，拆除了**4**层安全栅栏，并试图占领该建筑物**–**与超支的联邦警察作战 这是我一生中见过的最疯狂的事情。成千上万的警察无法阻止他们。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/0712.jpg)
+
+
+> My theory? The DemonRats hired them with Soros $$ to come and dress like Trump supporters to infiltrate. They were given what door to come in that would be easy access to them and thus others who were on the steps of the Capital thought it was OK
+> — War Room Pandemic Posse Member 4 Trump (@FrancisFaustina) [January 7, 2021](https://twitter.com/FrancisFaustina/status/1347000586101731333?ref_src=twsrc%5Etfw)
+
+
+
+**“**我的理论？** DemonRats**与**Soros**雇用了他们**$$**来穿得像特朗普的支持者一样渗透。他们被告知通过哪个门将很容易进入国会大门，因此其他人认为也可以这样做**”**
+
+
+
+> The moment we realized that this is a staged psyop [pic.twitter.com/Ckk4XtMeWB](https://t.co/Ckk4XtMeWB)
+> — MpD (@IndigoLeo10) [January 6, 2021](https://twitter.com/IndigoLeo10/status/1346941327720796166?ref_src=twsrc%5Etfw)
+
+
+
+社交媒体出现两种声音，分裂成两个阵营：挺川派和反川派。但是，很多民众可以发现很多暴徒渗透进入了川普总统支持者人群蓄意制造暴力事端。
+
+**Q**扮演的角色也正在慢慢浮出水面**……**他们到底代表了谁？！渗透进去的暴徒制造一系列暴力事件旨在推翻川普总统主张的选举欺诈和挑战选票作假的一系列行动，并借此机会让真正的**MAGA**爱国者噤声。当然也包括让川普总统本人噤声，正如推特和脸书此时此刻所做的。
+
+接下来我们来关注美国的真正爱国者们会怎么做。美国的爱国者是否会就此认输，他们是否会放弃对真实民意的追求和对国家安全的保护。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/0713.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/0714.jpg)
+0

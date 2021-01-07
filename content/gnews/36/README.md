@@ -1,25 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP-Virus Pandemic Daily Updates EP336(JAN 06) &#8211; GNEWS
-` 新闻译制组` [轉載自GNews](https://gnews.org/zh-hans/724897/)
+## 支持川普总统的选民发声：一个新的共和党正在崛起
+` 旧金山-金喜准农场` [轉載自GNews](https://gnews.org/zh-hans/725216/)
 
-President Trump tweeted: The “Surrender Caucus” within the Republican Party will go down in infamy as weak and ineffective “guardians” of our Nation, who were willing to accept the certification of fraudulent presidential numbers!
+视频翻译制作：葡萄树， 校对上传：迷迭香， 旧金山金喜准农场
 
-The razor fences around a locked-down community in Shenyang were like the ones in concentration camps.
+我告诉你们，我在这群人中看到的勇气，在国会山上并没有被代表。
+我的朋友们，我现在要告诉你们，有一个新的共和党正在崛起。
+ 我们伟大的国父们确保，同意被政府管理的人在政府中应该有发言权。
+但我的朋友们，民主党人的所有欺诈行为，他们在这次选举中已经做了。
+ 那些躲藏起来，不愿战斗的共和党人，他们试图压制你的声音。
+毫无疑问，他们不想让你们的声音被听到
+但我的朋友们，我留意这些民众，我可以自信的说，这些民众有狮子的声音。
+我可以自信地说，这群民众有狮子的发声力（投票愿望）。
+有一个新的共和党正在崛起，它将代表这个国家，去华盛顿特区战斗。
+我要告诉你们，我看到我的许多朋友，他们在国会和我在一起奋起， 即将回到国会山，
+今天12点，我们将争夺选举。
 
-The PLA’s medical teams entered Shenyang City. This illustrates how serious the pandemic is.
-
-Sanitation workers in Communist China, who should be paid 650 RMB/month, haven’t received their salaries for eight months.
-
-The US Department of State tweeted: The CCP undermines the international rule of law, detailing how the CCP’s actions upend global institutions to serve their own ambitions.
-
-If infection is not taken in the UK, national health service capacity may be overwhelmed within 21 days.
-
-More and more lawmakers planned to object to the electoral college results.
-
-Iranian naval vessels had seized a South Korean-flagged tanker and its crew in the Gulf.
-
-
-
-0
++1
