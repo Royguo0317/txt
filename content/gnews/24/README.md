@@ -1,33 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普：这是为美国再次伟大而奋斗的开始！！！
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/727249/)
+## 突发新闻：众议员弗农·琼斯（VERNON JONES）从民主党转投共和党
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/727311/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+翻译：康州盘古农场-Bruce
 
-编辑上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/12851046-16x9-xlarge.jpg)Abc.net
-叛徒迈克·彭斯在美国东部时间凌晨3:40认证了选举结果。
+校对：康州盘古农场-烟波浩淼
 
-川普总统通过白宫副办公厅主任丹·斯卡维诺（Dan Scavino）对选举认证作出回应：“1月20日将有一个有序的过渡。”
+审核：康州盘古农场-Antsee-GTV
 
-川普总统的Twitter、Facebook和Instagram仍处于限制状态。
+![VJ]()![VJ](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-08-at-00.36.48.png)
 
-川普总统说，虽然他“完全不同意”选举结果，但会出现“权力的和平过渡”。
+民主党长期的众议院议员弗农·琼斯（Vernon Jones）今天上午宣布，他将离开乔·拜登和南希·佩洛西的政党，转而加入共和党。
 
-川普总统没有认输！
+这一消息是他在华盛顿白宫外的椭圆公园的演讲台上发表演讲时宣布的。
 
-声明内容如下：
-
-尽管我完全不同意选举结果，事实也证明了这一点，但1月20日将有一个有序的过渡。我一直说，我们将继续努力，确保只计算合法选票。虽然这代表着总统历史上最伟大的第一个任期的结束，但这只是我们为美国再次伟大而奋斗的开始！
-
-参考链接：
+60岁的琼斯刚才在推特上说。
 
 
 
-> [“There Will Be an Orderly Transition on January 20th” – BREAKING: President Trump Issues Statement Responding to Electoral Certification](https://www.thegatewaypundit.com/2021/01/breaking-president-trump-issues-statement-responding-electoral-certification/)
+> Moments ago, I announced that I am officially joining the Republican Party. 
+> 
+> Now more than ever, the Republican Party is in desperate need of leaders that know how to fight. 
+> 
+> I know how to fight.
+> — Vernon Jones (@RepVernonJones) [January 6, 2021](https://twitter.com/RepVernonJones/status/1346836180860608524?ref_src=twsrc%5Etfw)
 
 
 
-0
+*弗农**·**琼斯**@RepVernonJones*
+
+*片刻之前**，我宣布，我正式加入共和党。*
+
+*现在共和党比以往任何时候都更需要懂得**如何**战斗的领导人。*
+
+*我知道如何战斗。*
+
+*上午**9**：**09**·**2021**年**1**月**6**日*
+
+琼斯因在佐治亚州支持川普总统和其他共和党候选人引起了民主党同僚的愤怒。
+
+原文作者：《国家脉动》工作人员
+
+发布时间：2021年1月6日
+
+文章链接：[https://thenationalpulse.com/breaking/breaking-rep-vernon-jones-defects-from-democrat-to-republican-party/](https://thenationalpulse.com/breaking/breaking-rep-vernon-jones-defects-from-democrat-to-republican-party/)
+
++3

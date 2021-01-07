@@ -1,51 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国内经济真相
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/726938/)
+## 《路德时评》深度揭示梵蒂冈教廷与灭共联系之五，及解读川普总统的声明
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/727094/)
 
-Transcript 文本:
+直播视频：
 
-Hello honorable fellow fighters! Today is January 2, 2021. Have you worked out? Have you spread the truth about the CCP virus and the Hong Kong crisis? In 2021, I just heard things about the domestic real estate, about the few remaining export-oriented factories in the coastal areas, the power bill, and then the so-called power shortage, and then about the real estates not being allowed to sell even when people want to, and about banks almost going bankruptcy now.
 
-尊敬的战友们好！2021年1月2号，你们健身了吗？你们传播CCP病毒、香港危机真相了吗？刚刚的2021年听说国内房地产，还有一些在沿海仅剩的所谓对外加工厂，电费，然后现在是所谓的电慌，然后现在房地产想卖也不让卖，银行现在简直是完蛋了。
 
-Brothers and sisters, and the domestic fellow fighters, I can understand the messages you sent out. There are some words that I, Miles, cannot directly say. I believe you understand better than me and you know better than me regarding the situations around you in China. What is the current situation now? It is not just lack of food and flour. Is the real estate valuable? Is it possible for it to be valuable? Brothers and sisters? Then it is normal to lose electricity. Fighting for coal, now they are fighting for coal. Didn’t they [the CCP] brag that they will fight with Australia. They have killed all private entrepreneurs as well as arrested all those who have been doing coal business their whole life? Without the coal mines of those private entrepreneurs, without the coal mines in Australia, what do you [the CCP] still have? You, the CCP has nothing but the “pickled cucumber” [non-functioning penis], what else do you [the CCP] have? Right? What is the use of making a fake “dildo” economy?
+《路德时评》2021年1月7日早间节目主要内容：
 
-兄弟姐妹们，国内的战友们，你们发出的信息我都能理解，七哥有些话是不能直说的，我相信你们比我们明白，国内你周边的情况你比我们清楚，到了啥情况了？这已经不是没粮、没面，你现在房地产能值钱吗？可能值钱吗？兄弟姐妹们？然后没电那是正常的，抢煤..现在又开始弄煤了，不是吹狼蛋嘛跟澳大利亚、跟这PK，把私人企业家全弄死了，把那些一辈子当煤老板的全都抓起来了，没有私人企业家的煤矿、没有澳洲的煤矿，你有啥本事？你共产党？你除了是养你那个“咸黄瓜”，你有啥本事？是不是？，弄得假擀面杖子经济有啥用啊？
+一、川普总统发布声明寓意为何？
 
-So brothers and sisters, this is an inevitable result. It won’t work without this. Can the banks be good? How could the banks be good? Can you withdraw money [from the bank]? Is it possible to go abroad? Are you allowed to go abroad? Can you take your money abroad? Can you spend your money abroad? Alipay and Red Packet in WeChat will not exist in the future. All of them are under the control of the party. The CCP is now playing with a lot of virtual currency. This time I heard that the so-called Central Working Conference clearly regards the virtual currency as a sharp weapon when the country is at risk. Treating it as a sharp weapon means cheating the ordinary Chinese for money. Therefore, brothers and sisters, don’t listen to their bullshit.
+美国时间1月6日国会认证程序完成，川普总统在认证会上发言说：“尽管我完全不同意选举的结果，事实也证明了我的观点，但1月20日将会有一个有序的过渡。我一直说我们会继续我们的…努力确保只统计合法选票。虽然这代表着总统历史上最伟大的第一个任期的结束，但这只是我们让美国再次伟大之战的开始!”
 
-所以说兄弟姐妹们它是个必然的结果，没这都不行了，你银行能好吗？银行怎么可能好？能让你取钱吗？可能吗？出国？能让你出国吗？你把钱能带出去吗？能让你在海外花钱吗？没有支付宝了、未来没有微信红包了，都是党控制的，共产党现在玩大量的虚拟货币，这次我听说所谓的中央工作会议，明确的把虚拟货币当成国家安危之时的利器，当利器那就是把老百姓的钱骗走了，所以兄弟姐妹们别听他们胡说八道。
 
-Additionally, many of our Chinese compatriots ask whether President Trump won or lost and are waiting for China’s economy to get better. Brothers and sisters, please don’t be naive. The New York stock market will kick out the CCP [companies] without hesitation. Do you think they can come back? Whichever party is coming into power…100% that it will be President Trump. Whichever party is coming into power, please stop dreaming, the biggest victims of the war between the U.S. and the CCP are our compatriots. Do you think the CCP is still capable of making trade rampage around the world just like what the China’s economy looked in the past three decades? Trading anywhere in the world with no one who dares to stop them? Does China really have a GDP of 13 trillion or 14 trillion a year? Impossible!
 
-另外一个，现在很多咱们中国同胞现在都在问，美国川普总统赢了或者输了，等着中国经济会好，兄弟姐妹们千万别天真了，那纽约股市把共产党说移走就移走，你觉得还能回来吗？哪个党上来..那100%是川普，哪个党上来..你不要做梦了，美国人和老共之间的战争，最大受害者是咱们同胞，你说中共能把中国经济还像过去30年一样，在全世界的贸易横冲直撞？无人敢挡？一年真的中国有13万亿、14万亿的GDP？不可能。
+> Statement by President Donald J. Trump on the Electoral Certification: 
+> 
+> “Even though I totally disagree with the outcome of the election, and the facts bear me out, nevertheless there will be an orderly transition on January 20th. I have always said we would continue our…
+> — Dan Scavino🇺🇸🦅 (@DanScavino) [January 7, 2021](https://twitter.com/DanScavino/status/1347103015493361664?ref_src=twsrc%5Etfw)
 
-The expert said that it is impossible for China to reach the 13 trillion GDP – the line of life and death – in the next decade or the next two decades. Even if the CCP were still there and achieved 13 trillion GDP, it would still be impossible for it to survive for 2 years. This is God’s will. We are not only taking down the CCP by the U.S., by the insiders of the CCP, but also taking down the CCP with the help of God. What is the current situation of the domestic food stock? Think about it, my fellow fighters, what is the current situation of the supply chain? Look at it by yourself. Hence, for those fellow fighters who have fled the CCP, please show your gratitude to God. Those fellow fighters who have fled the CCP after listening to the Lude Media and the Whistleblower Movement (WM), please be thankful to the WM and the Lude Media. This is not a joke, my brothers and sisters. For those who have stayed in the Western countries, please have a long-term plan.
 
-专家说了中国的GDP想再跨越，13万亿的生死线的可能性，未来10年、20年是不可能的，就是共产党还在的情况下，说共产党在这13万亿 GDP 的情况下，能活两年的可能性几乎没有，这就是天意。我们不但以美灭共、以共灭共，现在老天还帮我们灭共，国内的现在粮食是什么情况？战友们去想一想，整个供应链到了什么情况？大家去看一看，所以说能逃出来的战友们感谢上天吧，听了我们的路德访谈、听了爆料革命，跑出来的战友们感谢爆料革命吧，感谢路德访谈吧，这不是开玩笑的兄弟姐妹们，现在在西方呆下来的战友们，一定要有长期计划。
 
-With respect to the situation of the pandemic in these several days, we feel it is more difficult and tougher in 2021 than in 2020, and even more threatening to life. Europe, Asia, our country that has been kidnapped by the CCP, and the U.S. have all shifted the focus toward the election of President Trump. After the election, the biggest problem will be the pandemic. What are the changes that the new virus has brought in? Now every country is providing reliefs. I can tell you that in half a year or one year, what reliefs can they provide? Will it be affordable? So, staying at home and staying alive is more important than anything else.
+1、宪法没有认定参众两院投票的程序，现在有六位参议员每次都提出质疑选举人票的合法性，但是每次都无功而返，共和党参议员并没有在辩论中直接出示非常有力的证据，大多停留在口头辩论，最后从法律上认证拜登当选，如果按照此结果，川普总统在1月20日就要进行交接；
 
-另外一个，这几天的疫情，大家觉得2021年…2021年要比2020年困难的多、艰难的多 ，甚至是对生命的威胁大的多得多。从欧洲、亚洲，被中共绑架下的咱们的祖国还有美国，所有大家焦点都移到川普总统大选，等川普总统大选完，你最大的问题就是疫情。新型病毒造成什么样的改变？现在是各国都在救济，我可以告诉大家再有个半年一年，各国拿啥救济？它救济得起吗？所以呆在家里，活着比啥都重要。
+2、目前只从法律层面认定拜登当选总统，但是这是一场战争，现在所有关于此次大选的计划都已成为既成事实，该是反击的时候了；
 
-From today to tomorrow, many people in Washington D.C. will not sleep. You will see many people skip sleeping. Last night, from 3 o’clock to 5 o’clock you saw the economy [in China] was wailing. The messages I got from America from 7 o’clock to 9 o’clock were all focused on Washington D.C., about the 48-hour fight. My brothers and sisters in arms, this kind of restlessness and uncertainty in the world’s economy and politics has never happened before. I asked many people and they said that you could not find this kind of global restlessness in history, and it has never happened under the common destiny of the world.
+3、班农先生采访大主教时提到，对于人类社会来说，法律只是其中一个层面；
 
-从今天、明天这两天，华盛顿很多人会不睡觉的，你会看到很多人不睡觉的。昨天晚上3点到5点的时候看到，国内的哀嚎一片经济。7点到9点之间看到整个美国发来的信息，都是聚集华盛顿，大战48小时。兄弟姐妹们这种不安定、不确定，全球的这种经济和全球的政治，从来没有发生过。我问过很多人，在历史上也找不着这种让全球不安全，在全球共同的命运下从来没发生过。
+4、人类宗教历史的两次重大变革，一次是耶稣的降生，第二次是马丁·路德的宗教改革，他们当时都敢于打破常规，重新将人类文明带回正轨，此时的川普总统也需要打破常规再次让美国伟大；
 
-Therefore, fellow fighters, please stay alive in 2021. Please be united and cherish your health and your family. Please love your family. The other day I saw a fellow fighter saying… our fellow fighter in Spanish said that he/she will send a gift to his/her mother and father. This is really really great. Please take good care of your family. Family is the most important thing now. Then please take care of your fellow fighters. Your fellow fighters are gifts from God. Please treasure your brothers-in-arms. Then every farm should take the opportunity to unite our fellow fighters and help our fellow fighters to grow stronger and bigger. Anything else is just bullshit. The New Federal State of China will succeed, the WM will be powerful, and the CCP will be taken down. God is pushing us to take down the CCP. Just now many American friends told me, “Miles, after this battle in Washington is ended, we will spare no pains to take down the CCP with you!”
+5、路德社这几天一直在解读班农先生专访维加诺大主教的发言内容，建立人类文明除了法律层面还有宗教层面，现在的“大重启”就是要挑战基督文明；
 
-所以说2021年战友们好好的活着，要团结、要珍惜自己的健康和家人，好好的爱家人吧。我那天看到战友们说..咱们西班牙的战友，要给妈妈、爸爸送礼物。这个特别特别好。好好的关爱家人吧，家人现在是最重要的。然后关爱战友吧，战友现在是天赐的礼物，珍惜战友吧。然后各农场之间借着这次机会，把战友凝聚好，帮助好战友做强做大，其它都是瞎扯的。新中国联邦想不成功都不行，爆料革命想不强大、想不灭共都不行，天在推着我们灭共。刚才很多美国朋友说：Miles，现在真的是打完这一仗，华盛顿，我们要全力以赴跟你去，灭共！
+6、这一系列事情的发生证明从法律层面已经无法解决，需要进入到更高曾层面才能解决，回顾川普总统早在2017年就颁布行政命令允许教会评论政治；
 
-*视频来源：[https://gtv.org/getter/5ff0931187fabe2daf2f597d](https://gtv.org/getter/5ff0931187fabe2daf2f597d)*
+7、从法律层面来看，川普总统还有13天时间继续执行总统权力，现在的中共必须背水一战，川普总统在这13天只要做几件事中共就能在72小时结束，国家情报总监关于此次美国大选的调查报告也还没出来；
 
-*【感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/709945/](https://gnews.org/zh-hans/709945/)】*
+8、爆料革命的目标就是灭共，支持川普总统就是因为他是坚定的灭共者。
 
-*翻译：【Cyndi】校对:【BruhM】【Isaiah4031】字幕：【v%】 视频解码:【恒久忍耐】 编辑：【Mark】*
+二、章家敦重磅推特
 
-*喜马拉雅玫瑰园小队出品*
+章家敦美东时间1月7日早7:48发推[2]：去年，中共政权以各种方式在美国街头煽动暴力。甚至有未经证实的报道说，中共特工于5，6月间在华盛顿策划暴乱。北京方面正在利用其所有的联络点来颠覆我们的社会，推翻我们的政府。
 
-*以上翻译整理仅代表作者个人观点，不代表GNEWS或他人立场。*
 
-+2
+
+> Last year, [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s regime, in various ways, incited violence on [#American](https://twitter.com/hashtag/American?src=hash&amp;ref_src=twsrc%5Etfw) streets. There are even unconfirmed reports that [#Chinese](https://twitter.com/hashtag/Chinese?src=hash&amp;ref_src=twsrc%5Etfw) agents in May and June rioted in DC. Beijing is using all of its points of contact to destabilize our society and overthrow our government. [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/H3syvrOFw0](https://t.co/H3syvrOFw0)
+> — Gordon G. Chang (@GordonGChang) [January 7, 2021](https://twitter.com/GordonGChang/status/1347163173368045570?ref_src=twsrc%5Etfw)
+
+
+
+1、从章家敦先生的推特信息来看，中共关于干涉美国大选的所有计划都已经落实到行动上，既成事实一旦形成，等待的就是法律的审判；
+
+2、维加诺大主教在采访中反复强调深层政府和深层教会的深度勾结，通过各种途径要推翻川普总统和正义力量，最危险的是那些没有暴露和没有提到的人，连川普总统的副手彭斯都暴露了；
+
+3、真正的超限战就是让所有最核心的敌人都暴露出来，所以文贵先生从3月份开始就非常担心川普总统的生命安危，他身边没有暴露的力量极大地威胁他的个人安危；
+
+4、维加诺大主教在采访中提及要推翻深层政府和深层教会必须要做三件事：
+
+（1）知道全球化计划是什么，以及它对伪基督王国的重要性；
+
+（2）坚决谴责这个邪恶的计划，要求长老会及信徒保卫它，打破该计划；
+
+（3）必须祈祷，祈求上帝赐予我们每一个人力量去反抗；
+
+5、路德社此前提到灭共需要三个远超中共的实力，一个是经济实力，一个是影形的政治影响力，再一个是民意，梵蒂冈教廷在前两方面都远远超过中共，一旦民意达到就万事俱备，文贵先生与班农先生这几年靠真正的实力才能发动爆料革命。
+
+点击观看往期《路德时评》节目总结文章
+
+参考文章：
+
+[1]https://twitter.com/DanScavino/status/1347103015493361664
+
+[2]https://twitter.com/GordonGChang/status/1347163173368045570
+
+文章撰写：【重生】  编辑：【香柏树】
+
++1

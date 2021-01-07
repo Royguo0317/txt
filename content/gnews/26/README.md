@@ -1,53 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 纳瓦罗在《国家脉动》发表大选舞弊的第二份报告
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/727219/)
+## 【世事解评】文明被侮辱：彭斯宣布拜登当选总统
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/727268/)
 
-*新闻来源：《国家脉动》； 作者：NATALIE WINTERS； 发布时间：2021年1月5日*
+作者：香草山写作组 Wilson
 
-*翻译/简评：Dreamer文童；校对/审核：万人往；Page：Daoiii*
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Je8DXMMPr37Xl/images/9d64e859-ad86-4b7c-997c-b4fd50054578.jpg?asset_id=cf3382ee-9fdd-4089-a75c-41037c928ea5&amp;img_etag=%22ce0f3af825ac817feb3bda5e7ff8f8ea%22&amp;size=2560)](https://spark.adobe.com/page/Je8DXMMPr37Xl/images/9d64e859-ad86-4b7c-997c-b4fd50054578.jpg?asset_id=cf3382ee-9fdd-4089-a75c-41037c928ea5&amp;img_etag=%22ce0f3af825ac817feb3bda5e7ff8f8ea%22&amp;size=1024)
 
-***简评：***
 
-**去年12月，彼得·纳瓦罗发布了一份名为《完美的欺骗》（Immaculate Deception）的报告，通过数据分析，详细介绍了六个关键战场州的六种选举舞弊行为，包括：选民舞弊、不当的投票、有争议的程序违规、违法平等保护条款、投票机不规则以及严重数据异常。1月5日，纳瓦罗在《国家脉动》独家首发第二份报告《偷窃的艺术》（Art of the Steal），继续用翔实的数据（122份参考资料）揭示民主党如何窃取总统选举。该报告主要介绍民主党如何利用双管齐下的“填满投票箱”（Stuff the Ballot Box）大策略将六个关键战场州的选票从川普手中转移至拜登。**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/MOS0931-【世事解评】文明被侮辱：彭斯宣布拜登当选总统.-2.jpg)
 
-**俗话说，事实胜于雄辩。在2020年美国选举舞弊这件事情上，无论某些政客如何巧舌如簧般地狡辩，面对真相却哑口无言。比如，佐治亚州州务卿至今仍然坚称其组织了一场“完美的选举”，但当面对铁证如山的事实时，却显得如此苍白无力。美国人民有独立思考和明辨是非的能力，他们能够透过政客们虚伪的表演，看清选举舞弊的真实情况，包括法律诉讼中呈现出的证据、公开听证会上的证人证言，以及纳瓦罗的两篇翔实的学术报告。一旦美国的爱国者们看清楚民主党如何利用“偷窃的艺术”实施“完美的欺骗”，他们会用实际行动支持2020年总统选举的真正获胜者——川普总统。1月6日华盛顿挺川集会上山呼海啸般的呼声，就是例证！**
+据[GNews报道](https://gnews.org/zh-hans/726533/)，美东时间1月7日凌晨3点半，副总统彭斯以参议院议长兼国会联席会议主持人身份宣布，拜登获得306张选举人票，川普获得232票，拜登/贺锦丽当选第46届美国正、副总统。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/MOS0931-【世事解评】文明被侮辱：彭斯宣布拜登当选总统.-1.jpg)
+已经被推特封锁帐号的川普总统，随即通过白宫副幕僚长丹‧斯卡维诺发出声明：“尽管我完全不同意选举结果，且事实将为我作证，但是1月20日的过渡将是有序的。 我一直强调将继续战斗，确保只计算合法的选票。这代表着（美国）总统历史上最伟大的第一任期的结束，但对‘美国再次伟大’而言，这仅仅是我们战斗的开始！”
 
-***原文翻译：***
+川普声明的意思就是不认输，要反击。
 
-# **必看：彼得·纳瓦罗博士在《国家脉动》独家发表其最新报告**
+早在本次大选之前，反对川普的众院议长洛佩西就说：无论投票结果如何，拜登都将入住白宫。也就是说，掌控美国最高权力机构的议长及其背后的势力预定了46届美国总统。
 
-彼得·纳瓦罗（Peter Navarro）博士发布了一份全新的综合报告——《偷窃的艺术》（Art of the Steal），详细介绍民主党和“共和党有用的傻瓜”如何从川普总统手中窃取选举。
+要知道，美国宪法规定总统选举必须“程序和过程”合法，含意就是真实的一人一票选总统，才能表明这个国家是人民的。劣迹斑斑的拜登被预定为第46届总统，今天，国会参众两院绝大多数议员无视拜登窃取大选的事实，认定罪犯拜登当选“总统”，完成了整套预定程序。
 
-贸易与制造业政策办公室主任兼川普总统的顾问纳瓦罗发布了这份长达32页的文件，作为其《完美的欺骗》（Immaculate Deception）报告的续篇。
+仅就法论法，这样的认定不论是程序、过程还是结果，皆完全非法。至此，国会彻底沦为立法、犯法的非法组织。可以肯定的是，被宪法赋予推翻暴政权利的美国人民，不会容忍如此明目张胆的犯罪，即使付出血的代价。
 
-该报告的观点认为：“民主党及其政治操作人员在共和党‘有用的傻瓜’的无意帮助下，从唐纳德·J·川普手中窃取了总统选举。”
+不可否认的是，美国是以基督教立国的国家，而美国三权分立的政治制度，基于《圣经》的三个启示：“耶和华审判(司法)我们，耶和华给我们设律法(立法)，耶和华是我们的王(行政)”。
 
-在反川普行动者部署的策略中，有“填满投票箱”策略，“带着足够多的非法缺席选票和邮寄选票逃离六个关键战场州（亚利桑那州、佐治亚州、密歇根州、内华达州、宾夕法尼亚州和威斯康星州），将川普的决定性胜利变成拜登所谓的狭隘且非法的获胜。”
+美国的宪法相当简单，所有条文内容不足4页纸，而且一成不变，是因为这部宪法是为有信仰和契约精神的人制定的。参与宪法修订的美国第一任副总统、第二任总统约翰·亚当斯直言：没有任何武装政府有能力应对不受道德与信仰约束的人类，我们的宪法只为有道德、有宗教信仰的人制定，它完全不适用于对其他任何人的治理。
 
-该报告的另一个关键点是努力“降低对选票的审查程度——有效地将选举‘警察’赶出巡视区域。”
+美国的大选舞弊丛生，表面上看是因为这部宪法过于简单和疏漏，实质上是参与大选游戏的人大量变成了无德无信的人，相反，虔诚的基督徒川普和正直的选民不幸变成了弱势群体。
 
-《偷窃的艺术》（2021年1月5日最终版）在Scribd下载，如下：
+以基督教为基础的西方文明成就了美国的“卓异主义”，为美国带来了繁荣，使美国人成为世界上最光釆的人。如果拜登入主白宫，美国的光环将立即褪去。
 
-          (function() { var scribd = document.createElement("script"); scribd.type = "text/javascript"; scribd.async = true; scribd.src = "https://www.scribd.com/javascripts/embed\_code/inject.js"; var s = document.getElementsByTagName("script")[0]; s.parentNode.insertBefore(scribd, s); })()        
+“世俗化”、拜金主义和大量移民涌入形成的多元化，削弱了美国的传统价值，尤其是邪恶的中共，为了达到统治世界的目的，利用全球化的机会，使用卑劣的蓝金黄手段控制美国的资本和媒体，和西方统治精英结成肮脏的利益共同体，共同破坏基督教文明，造成了美国的司法、议会、行政体系的全面腐败。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Je8DXMMPr37Xl/images/d23ab75c-288c-45ef-b741-0133221a3a32.png?asset_id=5e93a4d4-2180-4109-a973-99b595b7bc7e&amp;img_etag=%22514e3555ac8de5870ec5a6d4038b600a%22&amp;size=2560)](https://spark.adobe.com/page/Je8DXMMPr37Xl/images/d23ab75c-288c-45ef-b741-0133221a3a32.png?asset_id=5e93a4d4-2180-4109-a973-99b595b7bc7e&amp;img_etag=%22514e3555ac8de5870ec5a6d4038b600a%22&amp;size=1024)
+据悉，贺锦丽定于1月28日访问中共国，向一年来毒死近40万美国人的主子请安述职。难以想象，美国人民会接受这样的担任国家领导人。
 
-视频地址：[https://rumble.com/vcgyhn-raheem-kassam-interviews-dr.-peter-navarro-must-watchnew-election-fraud-rep.html](https://rumble.com/vcgyhn-raheem-kassam-interviews-dr.-peter-navarro-must-watchnew-election-fraud-rep.html)
+即使美国的腐败已经深入美国体制的骨髓，川普代表的正义力量最终取得胜利仍然毫无悬念，因为支持川普的基本盘是自尊体面的劳动阶层，这样的人群在任何历史时期都是社会的中坚。这个人群之所以支持川普，是因为他们继承并珍视传统价值，有一致的、坚定的信仰，这也注定正邪之间的决战不可避免。
 
-[原文链接](https://thenationalpulse.com/exclusive/navarro-report-election-fraud/)
+今天美国国会的行为，无疑是对这个人群的非法侵犯，是对来之不易的文明的践踏和侮辱，这些人将为此付出代价，其中部分人必将被钉在历史的耻辱柱上。
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+（文章仅代表作者个人观点。）
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/Je8DXMMPr37Xl/)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Je8DXMMPr37Xl/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/Je8DXMMPr37Xl/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 +2

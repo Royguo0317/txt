@@ -1,23 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大汽车销售遭中共病毒疫情严重打击
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/727248/)
+## 熊蕾文章——阴谋开始的信号：疫苗
+` XMLYG777` [轉載自GNews](https://gnews.org/zh-hans/727242/)
 
-*加拿大草原三省战友之家 文莱*
+喜马拉雅国内新闻组：铜豌豆 校对：文迹～见证神迹
 
-*校对、发稿 文锦*
-![]()![](https://gnews.org/wp-content/uploads/2021/01/15-Feb-downward-chart-360.jpg)图片来源：Design Engineering
-据Bloomberg2021年1月6日报道，DesRosiers汽车咨询公司表示，2020年加拿大售出154万辆汽车和卡车，比2019年下降19.7%，降至2009年以来的最低水平。这家咨询公司表示，2020年12月的汽车销量与2019年同月相比下降了2.6%，使经销商处于1982年以来最大的年度跌幅之中。但是情况可能会更糟，因为在中共病毒大流行开始之际，4月份的销售下降了75%。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210105170116-5ff4e5c292a8870e822c761ajpeg.jpg)图片来源： BayToday.ca
-DesRosiers管理合伙人安德鲁·金（Andrew King）说，去年汽车市场的跌宕起伏曾令人瞠目结舌，但并不像春季时许多业内人士所担心的那样糟糕。去年，越来越多的消费者转向乘用车，因此轻型卡车在加拿大所有汽车和卡车的销售中创下了创纪录的79.9%。
+2021年1月3日路德社晚间报道了新华社中共国特稿社副社长熊蕾写的一篇煽动民族仇恨的文章。从中共曾经发出过的类似文章的历史记录来分析，这篇文章很可能是对巨型跨国制药集团和美国国家卫生院里共产党安插的定时炸弹们发出的攻击信号。
 
-福特去年在加拿大售出239,368辆汽车，尽管比2019年将少了近50,000辆的销售，但仍保持着其作为最畅销汽车制造商的地位。
+从这篇文章成稿的时间来看，文章不是近期才写出来的，早在2020年2月16日类似内容的一篇题为《熊蕾：哈佛大学在安徽猎取基因事件再回顾》的文章就在观察者网站发布了出来，并经过了昆仑策网站的转发。很明显，当时哈佛大学是被警告的主要目标。6天之后，宣扬国际共产主义的Greanville Post网站用英文发表了相同内容的同一篇文章。
 
-*简评：*
+8天之后哈佛大学举白旗：2020年2月24日，哈佛大学表态，来自哈佛大学的科学家们和来自中国的科学家们应该携手共同努力抗击新冠病毒。更加让人感到震惊的是，在接下来的两天时间里，加拿大全球研究（Global Research）网站 援引了德国施普林格出版社（Springer）的一篇类似内容的论文 ，伊斯兰世界的国际什叶派新闻联盟（Shafaqna）用英文发表了熊蕾的同一篇文章 。
 
-中共发起的超限生化战正在世界上衍生着各种各样的次生灾难，加拿大汽车销售业在2020年中遭受了多年来最大的打击。但是全世界政客不追究病毒真相，却大力宣传疫苗，包括加拿大某些地区的蛮横管控，致使民众消费观发生转变。消费体系的改变加上经济下行、高失业率以及生化病毒的威胁，不明真相的群众将因未知的恐惧而改变一些消费观念。
+如果说上一次中共发了熊蕾的文章是在向哈佛大学秀肌肉，那么这一次他们秀肌肉的对象又是谁？在熊蕾的文章中，除了多次提到哈佛大学以外，10次提到了美国国家卫生院（National Institutes of Health，简称： NIH），6次提到了吉利德科学公司（Gilead Science）。为什么这么做？在中共病毒肆虐、全世界人渴望得到疫苗和治疗药物的这个关键时刻，美国川普总统在疫苗发放这项工作上正在积极推动。然而，让人不安的是，闫丽梦博士和郭文贵先生在采访和视频中曾多次表达担忧：武汉冠状病毒是中共实验生产出来的生物武器，有效疫苗的可能性微乎其微。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/2.jpeg)
+熊蕾文章所代表的这股势力所指向的，不是简简单单鼓噪民粹主义那么简单。这篇文章会不会是一个惊天阴谋开始的序曲？跟中共有巨大利益瓜葛的跨国大制药集团，联合安东尼·福奇（Anthony Fauci）的美国国家过敏和传染病研究所（National Institute of Allergy and Infectious Diseases，简称：NIAID)， 会不会按照中共所发出的信号谋事？他们是不是准备在疫苗问题上给美国川普总统团队下绊马索？
 
-*[原文链接](https://www.bnnbloomberg.ca/canadian-auto-sales-fell-19-7-in-2020-from-a-year-earlier-lowest-level-in-a-decade-1.1544778)*
+早在2020年1月31日，当川普总统当机立断实施断航的时候，福奇博士做的唯一一件事情就是：反对。
 
-+4
+参考的消息来源：
+1.[http://www.kunlunce.com/ssjj/guojipinglun/2020-02-16/140570.html](http://www.kunlunce.com/ssjj/guojipinglun/2020-02-16/140570.html)
+
+1. [https://www.greanvillepost.com/2020/02/22/xiong-lei-review-of-harvards-genetic-hunt-in-anhui/](https://www.greanvillepost.com/2020/02/22/xiong-lei-review-of-harvards-genetic-hunt-in-anhui/)
+2. [https://news.harvard.edu/gazette/story/2020/02/harvard-and-china-collaborate-on-coronavirus-therapies/](https://news.harvard.edu/gazette/story/2020/02/harvard-and-china-collaborate-on-coronavirus-therapies/)
+3. [https://www.globalresearch.ca/harvard-genetic-research-team-collected-and-transferred-china-blood-and-dna-samples-back-to-the-us/5704728](https://www.globalresearch.ca/harvard-genetic-research-team-collected-and-transferred-china-blood-and-dna-samples-back-to-the-us/5704728)
+[5.https://link.springer.com/chapter/10.1007/978-3-319-64731-9\_9](http://5.https://link.springer.com/chapter/10.1007/978-3-319-64731-9_9)
+4. [https://en.shafaqna.com/135435/harvard-genetic-research-team-collected-and-transferred-china-blood-and-dna-samples-back-to-the-us/](https://en.shafaqna.com/135435/harvard-genetic-research-team-collected-and-transferred-china-blood-and-dna-samples-back-to-the-us/)
+
+
+[熊蕾：哈佛大学在安徽猎取基因事件再回顾](http://熊蕾：哈佛大学在安徽猎取基因事件再回顾)
+熊蕾：哈佛大学在安徽猎取基因事件再回顾
+The Greanville Post
+Patrice de Bergeracpas
+[Xiong Lei: Review of Harvard’s Genetic Hunt in Anhui](http://Xiong%20Lei:%20Review%20of%20Harvard’s%20Genetic%20Hunt%20in%20Anhui)
+After  the end of SARS, in August 2003, my colleague Wen Chihua, and Wang Yan  of the Anhui Branch, went to Anhui, straight to the rural area of  Zongyang County, Anqing City, and interviewed a person who was injured  when blood samples were taken. Farmer, and a village doctor. Later, the  investigation report of the three of us was published in…
+
+Harvard Gazette
+Harvard Gazette
+[Scientists from Harvard, China to unite against coronavirus](http://Scientists%20from%20Harvard,%20China%20to%20unite%20against%20coronavirus)
+With nearly 78,000 cases and more than 2,300 deaths from the novel coronavirus, Harvard University scientists will join forces with colleagues from China to improve diagnostics, develop vaccines to prevent new infections, and antiviral therapies to treat existing ones.
+
+Global Research
+Zhao Yandong
+[Harvard Genetic Research Team Collected and Transferred China Blood…](http://Harvard%20Genetic%20Research%20Team%20Collected%20and%20Transferred%20China%20Blood…)
+Introduction. . We bring to the attention of  Global Research readers, excerpts from an important study entitled “An International Collaborative Genetic Research Project Conducted in China”  which has a bearing on our understanding of China’s  coronavirus epidemic. At this juncture of the CoVid-19 pandemic there is no firm evidence that the viru…
+
+SpringerLink
+[An International Collaborative Genetic Research Project Conducted in C](http://An%20International%20Collaborative%20Genetic%20Research%20Project%20Conducted%20in%20C)
+In 1995, a research team from a renowned US university started collecting blood samples from villagers living in Anhui province, China, with the cooperation of local research institutes and the…
+
+1
+
+0
