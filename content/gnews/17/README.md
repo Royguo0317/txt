@@ -1,38 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蒂芙尼护士接种辉瑞新冠疫苗后，一度晕倒！种种迹象让人质疑？（二）
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/725471/)
+## 习近平“隐身”担忧逼宫 特朗普继续制裁共企
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/725967/)
 
-撰稿：Baizi
+**作者：埃德蒙**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/image0-42.jpg)
+北京时间1月6日，手术成功的习近平继续保持“隐身”模式，他的同事们开始陆续露面。1月4日，李克强主持召开国务院常务会议的画面出现在央视新闻联播。1月6日，政治局常委王沪宁出席全国宣传部长会议。据了解，习近平身边的“深喉”们正在继续向路德社透露习的最新情况。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_1422.jpg)
+**习团队准备迎接贺锦丽访华**
 
-审稿：yumi 编辑：MG1
-![]()![](https://gnews.org/wp-content/uploads/2021/01/701.png)截图来源：https://www.youtube.com/watch?v=wxGR3y0gE\_0
-前面第一篇文章我提到2020年12月17日，Tiffany Dover在接受了辉瑞新冠疫苗注射后的17分钟晕倒在地，并在清醒后接受了媒体的采访。随后各大主流媒体都纷纷报道此事件，似乎口径一致，都在说Tiffany Dover的现场晕倒是由于有迷走神经反应过度所致，与疫苗本身无关。是不是真与辉瑞新冠疫苗注射无关，我们看结果。到底Tiffany Dover在17日注射疫苗后发生了什么？
+“习近平已经六十多岁了，他经过手术后需要卧床休息十几天，目前还是无法露面，只能签发一些文件。尽管疑神疑鬼的习近平抓了一批被怀疑泄露他行踪的人，但是他的机密信息仍然能够随时传递出来。”自媒体人路德说。
 
-对于Tiffany Dover现场晕厥的事件，由于是直播报道，整个事件很快就在全世界的社交媒体上发酵，尽管Tiffany Dover本人当日接受媒体采访时做了解释，从各种社交媒体的留言来看，不少人都提出了与我上一篇文章相似的质疑。特别是17日之后，Tiffany Dover经常使用的脸书和Instagram账号的一些不寻常的举动。为了跟踪事件，我找到了Tiffany Dover的脸书，并从她的发文里查看事发后的留言（Comments），截止到本文完成，总共有1.9万条留言，但至今没有一条Tiffany Dover本人的回复或回应。而她自2020年12月12日有过一次状态（Status）更新后就再没发布任何的文字、图片或视频，貌似她在社交媒体上突然消失了一样！
-![]()![](https://gnews.org/wp-content/uploads/2021/01/702-1.png)截图来源：https://www.facebook.com/tiffany.dover.520
-此外，我在较早的留言里看到了一些关注Tiffany Dover脸书状况的留言和截图，Tiffany Dover的脸书在事发后曾一度不能浏览，在 24小时后，又恢复正常，却有大约1000条的留言被删除，更有人发现在她的脸书恢复浏览后，她的工作单位信息被去掉了。有留言者质疑如果这是Tiffany Dover本人控制的脸书，她既然不想再被公众关注，为何不把留言功能去掉然后把脸书设置为私人 (private) 账号？ 再回到她公开的Instagram账号，这里有大量Tiffany Dover发布的图片，从发布的日期可以看出她大概平均2-3天就有新的内容发布。可从2020年12月15日起至今无一更新。这让关注这个事件的人对于她的健康状况越来越不确定。特别是有人竟然在网上查到了Tiffany Dover的死亡记录。。。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/703.png)截图来源：https://www.bitchute.com/video/as1rvnNFNaQQ/![]()![](https://gnews.org/wp-content/uploads/2021/01/704.png)截图来源：https://web.archive.org/web/20201220134350/https://www.searchquarry.com/namesearch/results?trackstat=homepage-&fname=Tiffany%20&lname=Dover&recordtype=Death&state=AL
-一个账号名为“Sergeant Major”的人士在BITCHUTE上发表了一篇名为“TIFFANY PONTES DOVER FAINTS IN 17 MINS, DEAD IN 10 HOURS [2020-12-24] (VIDEO)”的文章，他上传的一个视频，除了引用了Tiffany Dover当天晕倒的视频内容外，还在视频里展示了对Tiffany Dover在网站www.searchquarry.com的死亡记录搜索，死亡人从几个方面的信息都与Tiffany Dover具有一致性，包括姓名、年龄、所在地和与之有关的亲人名字。文章还提到，不久之后与 “Tiffany Dover“人名相关的死亡记录在同一个网站上均无法查找。于是我也动手去这个网站做了搜索，有意思的是正如文章所说的只要是搜索“Tiffany Dover”，一律没有结果。当我尝试把名字改成Tiffan Dover，竟然搜出了不少结果出来。因此所有关于 “Tiffany Dover “人名的死亡记录都被后台有意的去掉了，这又是为什么呢？与此同时，更有人在另一个网站ancestry.com也搜到了Tiffany Dover的死亡记录！
-![]()![](https://gnews.org/wp-content/uploads/2021/01/705.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/706.png)截图来源：www.searchquarry.com
-如果Tiffany Dover死亡记录真的存在，那它意味着什么？是否还有人愿意冒险去打辉瑞的新冠疫苗？为了证实Tiffany Dover还活着，而且健康没有问题，于是Tiffany Dover所就职的医院CHI Memorial发布了一个视频，到底Tiffany Dover是以一个什么样的姿态 “出现 “在视频里？留待下回再说！
+路德表示，习近平的团队人员正在准备迎接月底的贺锦丽访华。“到底是按照副总统还是参议员的规格接待，取决于美国大选的最终结果。”路德说。
 
-本文仅代表个人观点
+分析人士指出，从习近平的各种讲话可以看出，他的野心很大。习近平动辄就要给全世界指明发展方向，经常高喊要“构建人类命运共同体”，他并不是“发神经”，而是他内心世界的真实展现。文革期间的红卫兵，就曾经幻想在未来的第三次世界大战中，要“饮马顿河边，驰骋欧罗巴，攻克华盛顿”。据习近平身边人透露，习近平之所以近年来和梵蒂冈教廷的一些人眉来眼去，是为了一些“宏大计划”。“习近平的目标是，在对内控制十四亿奴隶、对外与普京结盟的基础上，通过操纵方济各上台控制梵蒂冈教廷，通过扶持拜登上台控制美国。全世界目前有两大力量，一个是美国的显性力量，一个是梵蒂冈教廷为代表的隐性意识形态力量。但随着爆料革命的出现和发展，习近平的世界梦和拜登的总统梦都将被击碎。”路德社博士团某成员说。
 
-参考链接：
-” TIFFANY PONTES DOVER FAINTS IN 17 MINS, DEAD IN 10 HOURS [2020-12-24](VIDEO)“ https://www.bitchute.com/video/as1rvnNFNaQQ/
-“faints after receiving covid tiffany dover faints minutes after taking the new covid 19 vaccine”
-https://www.youtube.com/watch?v=FG0J0HyIhl4
-” Critical care nurse at CHI Memorial explains her fainting after COVID-19 vaccine “
-https://www.youtube.com/watch?v=tOH7XLHl2mo&t=7s
-“Nurse faints after getting COVID vaccine “
-https://www.youtube.com/watch?v=nhb1zIYXUP8
-“Tiffany Dover biography: 13 things about Chattanooga, Tennessee nurse”
-https://conandaily.com/2020/12/19/tiffany-dover-biography-13-things-about-chattanooga-tennessee-nurse/
-“Nurse Tiffany Pontes Dover found on Ancestry dot com! Confirmed”
-https://www.youtube.com/watch?fbclid=IwAR1GwL37FsqnLi9Ts4Ogk3R-NTA01-8gUjipP3gmwXlmz2wOF7pGMf60\_cQ&v=X5VuIm0P8Qs&feature=youtu.be
-“We found 4 results for Tiffany Dover in Alabama! Choose a Result Below“
-https://web.archive.org/web/20201220134350/https://www.searchquarry.com/namesearch/results?trackstat=homepage-&fname=Tiffany%20&lname=Dover&recordtype=Death&state=AL
-![]()![](https://gnews.org/wp-content/uploads/2021/01/澳喜图标.png)
+**特朗普制裁八家支付系****统**
+
+美国时间1月5日，特朗普总统发布最新制裁命令，要求美国商务部45天之内必须禁止支付宝、茄子快传、QQ钱包、微信支付等八家公司的支付业务。美国将继续评估其他对美国构成安全风险的应用软件，一旦被列入名单，参与控制、运行该软件的人员及子公司将被禁止在美国管辖范围内交易。
+
+有关文件显示，这些支付系统不仅会被清退出美国，它们的swift账号将被取消，到时候所有的美元和外币交易都将被禁止。“这是对中共国金融系统采取制裁行动的开始，未来还会有更多中共国银行等金融机构被列入制裁名单。美国这一举措再次验证了此前路德社的情报。”路德说。
+
+与此同时，美国财政部长姆努钦致电纽交所总裁，要求继续执行特朗普总统关于中共国三家电信运营商退市的制裁命令。吊诡的是，就在几天前，纽交所撤销了要求三家中国电信运营商停牌的决定。
+
+对此，美国当地媒体Zerohedge认为，当时纽交所认为拜登当选的可能性比较大，上台后会取消特朗普总统的13959号行政命令，撤销停牌决定是为了避免折腾。路德社则认为，这恰恰说明中共在纽交所的影响力很大，可以让美方的决定撤回。
+
+“中共的力量确实不能小觑，脱钩不是光靠特朗普总统的命令就能实现的。姆努钦本来是亲共派，这次要求纽交所继续执行退市命令，很可能是因为美国的政治风向在发生扭转，姆努钦也不得不屈服。不论中共怎么努力，中概股必然退市。”路德认为。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_1424.png)
+**美、共****冲突已上升为灵性战争**
+
+梵蒂冈前驻美大使维加诺接受班农的采访，是最近路德社持续关注的内容。维加诺在采访中说，现任教皇方济各对自封为天主教徒，以有悖常理、反人类、反基督教的地狱般纲领推行全球化的拜登的支持是“显而易见”的。
+
+“方济各对秉持传统价值观的特朗普总统及支持特朗普的天主教徒的敌意也是显而易见的。他已经将特朗普视为主要对手和推行人类世界大重启计划的最大障碍。”维加诺说。
+
+路德表示，就像“深层政府”在政治领域所做的一样，梵蒂冈已经被方济各的“深层教会”所控制。为了恢复正统的天主教会，必须将天主教会领袖参与共济会、全球主义计划，以及参与腐败和犯罪的事实揭露出来。“特别是前教皇本笃十六世辞职真相、方济各如何当选教皇的事实、以及方济各不再使用只忠于法律的瑞士雇佣军等背后的阴谋。”路德说。
+
+接受班农采访的维加诺大主教是梵蒂冈的实权派人物，相当于教廷的“纪委书记”，还负责梵蒂冈的财务工作。由于他在梵蒂冈经营了几十年，不仅掌握了梵蒂冈上千年来的情报信息，还对有关神秘力量的资料涉猎很深。路德认为，这次采访说明，美国与中共的冲突既是正义与邪恶的战争，也是宗教和灵性层面的战争。“中共信仰无神论，就是要将人性中的恶无限放大，甚至利用人的罪性作孽，极其邪恶，这让西方宗教体系看清了中共的本质。”路德社嘉宾艾丽女士说。
+
+另据郭文贵先生透露，近日大批中国军人便衣进入北京。这些军人是奉命“勤王”，还是要“逼宫”呢？还需卧床一阵子的习近平虽然很想露面稳住局面，以防朝中有人作乱，但碍于身体状况只能继续“隐身”。未来的十几天，一切皆有可能。
+
 0

@@ -1,39 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 双背叛的“彭厮”
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/725267/)
+## 谭德塞对中共拖延专家组入境感到“失望” 华春莹回应双方还在进行协商
+` 经济金融组` [轉載自GNews](https://gnews.org/zh-hans/725569/)
 
-蒙特利尔皇家山战友团 laotou
+整撰：文錦
+复核：WJMG
 
-校对 上传 小鸥
-![]()![](https://gnews.org/wp-content/uploads/2021/01/pence-2.jpg)图片来自 nytimes.com
-彭斯在2017年背叛了弗林将军，今天他又背叛了川普总统和美国！《门道专家》1月6日最新报道：
+世卫组织总干事谭德塞1月5日表示，“中国政府至今仍未批准国际专家入境调查新冠的源头。”他对此表示“非常失望”。中共外交部发言人华春莹6日回应此消息称，为了确保国际专家组来华工作顺利进行，需要履行必要的程序，目前双方还正在就此进行协商。
 
-今天早些时候，我们说了，美国副总统彭斯将在今天给出结果，是被冠以国家英雄，还是叛国者？我们现在知道了答案。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-25.jpg)世卫组织总干事谭德塞(右)与世卫组织紧急项目负责人瑞安
 
-今天下午，当总统在首都对着百万爱国者发表讲话时，彭斯也发表了他的备忘录，解释了为什么他忽视腐败和选举舞弊，这些腐败和舞弊行为（企图）从川普总统、他的老板和美国人民那里偷走选举：文章链接了这个 报道【1】
+早在去年11月23日，世界卫生组织最高应急项目负责人瑞安 (Mike Ryan)就曾表示，已经得到中国的保证，将尽快安排一次国际实地考察，调查新冠病毒的来源。近日，世卫再次宣布，中国已允许世卫专家到访，预计一支10人小组不久会抵达中国，并赴湖北省武汉市调查疫情源头。
 
-彭斯擅长在美国人背后捅刀子，他在川普总统政府早期就有过先例，当时他与暗势力勾结，哄骗了迈克尔·弗林将军的辞职。彭斯在整个虚构的事件中（的角色），就是为了除掉弗林将军：文章链接了从前的报道【2】
+这10位专家组成员之一彼得·达萨克（Peter Daszak）就是“大名鼎鼎”的联合了全世界27名科学家，于今年2月在《柳叶刀》发表声明为中共站台的联络人；也是该份联合声明的拟稿人，美国生态健康联盟（EcoHealth Alliance）的主席。闫丽梦博士在11月19日的《路德社》曝光了彼得·达萨克与27位联合作者们积极讨论如何“驳斥病毒来自实验室”的两份邮件。
 
-彭斯出于某种原因让一些憎恨川普总统的人作为他的员工：文章链接了从前的报道【3】
+虽然这10人专家小组中有心甘情愿为中共代言的彼得·达萨克，但中共仍将这组专家拒之门外。发言人华春莹对此的回应是，中方的专家本着科学态度，坦诚介绍和分享了中方溯源成果，双方合作取得积极的进展。去年2月和7月，在中国国内疫情防控任务十分繁重的情况下，两次邀请世卫组织的专家来华开展溯源合作。目前，为了确保国际专家组来华工作顺利进行，需要履行必要的程序，并且做出相关的具体安排，目前双方还正在就此进行协商。
 
-彭斯在中共病毒危机期间获得了领导国家的机会，美国的情况如何？彭斯和腐败政客有没有侵犯了（公民的）自由？从那以后，彭斯和福奇一直在带领美国走下坡：文章链接了从前的报道【4】
+病毒大流行时隔一年，中共和世卫组织双方就对病毒溯源的实地调查之事“互踢皮球”，发言人华春莹所说的世卫组织专家两次来华的调查也只是隔靴搔痒。去年2月16日，由世卫组织12人组成的医疗专家组在北京、广东和四川三个地方进行调查，22日抵达武汉24日匆匆离开，公开的行程安排并不包括武汉，而实际上，专家组出其不意地去武汉蜻蜓点水地走访2天；
 
-在今天的过程中，彭斯刺伤了美国和川普总统的后背，并证实了世界历史上最荒唐和腐败的选举。他试图从合法的赢家、川普总统和美国人民那里偷走这个选举。
+《纽约时报》报道，去年7月，世卫组织在向中国派出了尚未公布身份的一名动物卫生专家和一名流行病学家，重点调查新冠病毒是如何从动物传给人类的，但他们未能前往武汉，调查结束后并没有公开发表过言论。世卫紧急状态负责人瑞安声称，世卫组织“对现场”提供的合作非常满意”。两位专家与中国官员和研究人员见面，审核现有数据，勾划调查工作的范围。
 
-迈克·彭斯永远不会被忘记，改称“彭厮”吧，他的政治生命结束了。
+中共以各种理由拒绝和拖延国际专家进入病毒突发的起源地–湖北武汉，和进入众所周知的武汉P4实验室展开科学的实地调查。中共官方宣称的病毒起源的“背锅地–”武汉华南海鲜市场也被人为蓄意地破坏，如今已物是人非处于封闭状态。
 
-原文链接：https://www.thegatewaypundit.com/2021/01/pence-stabbed-betrayed-general-flynn-2017-today-betrayed-president-trump-america/
+中共是否允许世卫专家组进入中国调查已经不重要了，因为调查与否都是表演，因为相信美国已不再相信世界卫生组织且对病毒来源应已有定论。接下来世界要做的就是对中共追责。
 
 参考链接：
+[https://news.163.com/21/0106/15/FVLUPG1O00018AOR.html?clickfrom=w\_yw](https://news.163.com/21/0106/15/FVLUPG1O00018AOR.html?clickfrom=w_yw)
+[https://baijiahao.baidu.com/s?id=1659338850791222069&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1659338850791222069&amp;wfr=spider&amp;for=pc)
+[https://cn.nytimes.com/china/20200722/china-coronavirus-who/](https://cn.nytimes.com/china/20200722/china-coronavirus-who/)
 
-【1】https://www.thegatewaypundit.com/2021/01/breaking-pence-releases-statement-ahead-certification-electoral-college-says-will-not-block-bidens-electors/
-
-【2】https://www.thegatewaypundit.com/2017/02/breaking-mike-flynn-resigns-trumps-national-security-adviser/
-
-【3】https://www.thegatewaypundit.com/2019/04/huge-former-wife-of-vp-pence-chief-of-staff-joshua-pitcock-was-working-for-strzok-on-general-flynn-investigation/
-
-【4】https://www.thegatewaypundit.com/2020/06/predictable-liberal-hack-attacks-trump-holding-campaign-rallies-not-black-lives-matter-antifa-mobs-terrorizing-american-cities-video/
-
-+2
+0
