@@ -1,51 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国民兵联盟将不惜一切代价阻止拜登上台 保卫川普
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/724176/)
+## 用聚合酶链反应（PCR）测试中共病毒的骗局
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/724510/)
 
-俄罗斯莫斯科喀秋莎农场   小杜
+*加拿大多伦多枫叶农场 阿黎*
 
-编辑上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GettyImages-1294914692.jpg)Wins TV
-美国民兵组织向华府发出通牒，如果1月16日联邦政府各机构不能阻止拜登上台，将不惜一切采取行动保卫川普总统。
+*校对、发稿 文锦*
+![]()![](https://gnews.org/wp-content/uploads/2021/01/fauci_demon-1.jpg)
+据Humansarefree1月3日报道，诺贝尔奖化学奖获得者、聚合酶链反应PCR（Polymerase Chain Reaction）检测发明者卡里·穆里斯（Kary Mullis）生前曾说，”福奇不懂医学，他是个管理者”，”他是有目的的”，
 
-该联盟由美国7个主要的民兵组织组成，其中包括最大的右翼民兵组织—誓言守护者。民兵组织没有条规，推翻政府也不是他们的目的，他们唯有一个统一的信念：守护宪法，保卫并坚守美国的立国根本。
+就在福奇用PCR又做了一次比以往任何时候规模都要大得多的检测之前，穆里斯先生去世，但我们一定要听听他说的话，因为他的PCR检测被滥用，现在PCR检测成为更大的世界范围封锁的基础。
 
-对于2020美国大选充满史无前例的选举欺诈指控，民兵联盟在其官网发起了“为美国而战的爱国者行动”的声明。
+穆里斯因为发明了聚合酶链反应于1993年诺贝尔化学奖。他于1944年12月28日出生于美国北卡罗来纳州勒努瓦，于2019年8月7日卒于美国加利福尼亚州纽波特比奇。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/VTN3ADF5C4I6TJOGDZ2PP3CKSM-e1565924032968.jpg)图片来源: geneonline.news
+关于PCR聚合酶链程序的研究：
 
-该声明称：美国现在受到了来自国内腐败的民主党人和国外共产主义势力的双重攻击，国家处在危难关头。从某些过高的税种、贿赂选票以及虚假的自由；到政府对公民个人生活的彻底侵犯；及针对无数为了权利金钱牺牲民主意志的违宪、违法行为，他们将捍卫宪法，守护国家的立国根本，不惜一切代价阻止拜登成为总统。
+生物体的基因组存储在DNA分子内部，但是分析这种遗传信息需要大量的DNA。1985年，穆里斯发明了一种称为聚合酶链反应（PCR）的方法，该方法可在短时间内大量复制少量DNA。通过加热，DNA分子的两条链被分离，并且已添加的DNA构件与每一条链结合。借助DNA聚合酶，可以形成新的DNA链，然后可以重复该过程。PCR在医学研究和法医学领域都具有重要意义。
 
-如果在1月16日以前，国家都未能阻止拜登内阁上台，他们会在1月16日开始全国范围内的、分阶段的行动，不允许拜登在1月20日举行就职典礼。
+穆里斯生前曾指出PCR不适用用于检测中共病毒。但美国健康部门在福奇的推动下大量使用PCR进行中共病毒的检测，而就在福奇这样做之前，穆里斯先生去世了，这是疫情以来世界上相当数量的与中共病毒真相有关的科学家突然死亡事件之一，这不得不令人们怀疑背后的故事。
 
-该组织表示爱国者不会开第一枪，但如果有任何反对力量首先对爱国者行动出击，无论是开枪还是人身攻击，都会带来正式的宣战。一旦内战发生，他们将致力于实现以下三个目标：
+反疫苗活动家小罗伯特-肯尼迪也说过福奇是一个骗子，并已 “毒害整整一代美国人”。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Robert-F.-Kennedy-Jr.-Anthony-Fauci-is-a-Fraud-and-Has-Poisoned-an-Entire-Generation-of-Americans.png)福奇与索罗斯等全球主义者合影 图片来源: HUMANS ARE FREE
+那么使用PCR检测中共病毒谁受益呢？应该是药厂和与销售PCR相关的部门。谁因此受损？应该是民众，由于误检，使未感染病毒的人做没必要的隔离，甚至有可能因此失去工作；而漏检是使真正感染病毒的人被误诊和耽误治疗，使病情严重，同时传染其他人。这两种情况都使政府增加与疫情有关的开支。
 
-1.确保川普政府安全；
+美国医药界与政界、金融、科技、文化等方面一样乱象丛生，这证实了中共的3F计划-搞弱美国、搞乱美国、搞死美国正在实施当中。消灭中共，时不我待。
 
-2.追捕和起诉所有叛国的民主党人，由军事法庭审判和定罪；
+*[原文链接](https://humansarefree.com/2021/01/pcr-testing-scam-technique-cannot-be-used-to-detect-viruses.html)*
 
-3.关闭所有受民主人士影响的腐败的主流媒体、广播以及其他社交媒体和网站，限制反美的言论自由，这是美国宪法第一修正案所涵盖的内容。
-
-在完成上述三个具体目标后，他们会停火。如果有人用笔将宪法废除，就会有人用枪把宪法恢复。无论在选举制度上如何伪装的程序正当，始终不能违背其重要的核心，这就是民意！
-
-美国民兵组织网站
-
-[http://www.militia.me/](http://www.militia.me/)
-
-[http://pafa2021.com/](http://pafa2021.com/)
-
-
-
-参考链接：
-
-[https://news.creaders.net/us/2021/01/04/2306891.html](https://news.creaders.net/us/2021/01/04/2306891.html)
-
-[https://www.bannedbook.org/bnews/cbnews/20210105/1461302.html](https://www.bannedbook.org/bnews/cbnews/20210105/1461302.html)
-
-[https://www.163.com/dy/article/FVIRKS6V0543BD8I.html](https://www.163.com/dy/article/FVIRKS6V0543BD8I.html)
-
-[https://www.independent.co.uk/news/world/americas/us-election-2020/oath-keepers-militia-donald-trump-joe-biden-2020-election-b1723323.html](https://www.independent.co.uk/news/world/americas/us-election-2020/oath-keepers-militia-donald-trump-joe-biden-2020-election-b1723323.html)
-
-[https://oathkeepers.org/2021/01/oath-keepers-deploying-to-dc-to-protect-events-speakers-attendees-on-jan-5-6-time-to-stand/](https://oathkeepers.org/2021/01/oath-keepers-deploying-to-dc-to-protect-events-speakers-attendees-on-jan-5-6-time-to-stand/)
-
-+2
+0

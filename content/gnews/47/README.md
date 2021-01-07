@@ -1,29 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [危机中的重生] 1月6日美国总统大选之决战时刻系列报导(4)
-` 旧金山-金喜准农场` [轉載自GNews](https://gnews.org/zh-hans/723976/)
+## 不到1月20号你千万千万不要有任何的决定！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/724081/)
 
-**大选之关键时刻看彭斯**
+新闻简述：郭先生在2021年1月4日的GTV直播中说，共产党在备战，因为知道它挡不住全世界灭共的步伐。他也告诫所有人在1月20日之前“千万千万不要有任何的决定”，暗示1月20日之前任何事情都有可能发生，并且爆料革命是这场大戏的主角，对这场戏有一定的掌控力。
+视频来源：[https://gtv.org/video/id=5ff32a75f579a75e0bc3ee01](https://gtv.org/video/id=5ff32a75f579a75e0bc3ee01) (00:49:15-00:50:11, 00:50:33-00:50:55)
+**中英文对照全文**
 
-撰稿：空山新雨8298
-![]()![](https://gnews.org/wp-content/uploads/2021/01/ap202996171900491jpg.jpeg)
-彭斯是这次大选舞弊的一个关键人士，今天我们就单说一下这位政治人士。
+The Whistleblower Movement has come to this day. Why is the CCP now shouting for preparing for the war, preparing for the war?! Its “preparing for the war” means that it knows that even in the situation when it owns the whole world’s presidents, it still can’t stop the tide of talking down the CCP! Let alone the assumed situation is impossible, it is absolutely impossible!
 
-迈克尔·理查德·彭斯（Michael Richard Pence）出生：1959年6月7日（年龄61岁），印第安纳州哥伦布。一位美国政治人士，现任美国第48任现任副总统。 从2013年至2017年，他是印第安纳州的第50位州长，从2001年至2013年，他在美国众议院担任了六个任期。
+爆料革命到今天，为啥共产党现在大量喊备战、备战呢？！它这备战它知道就是任何情况下全世界都是它的总统啦，它也挡不住全世界灭共的步伐！何况那是不可能的、那是绝对不可能的对吧！
 
-这次美国大选前所未有达到登峰造极的地步，这也就是2020年11月3日下届总统难产的主要原因，要想扭转这个局面，今天2021年1月6日是一个关键日，今天是彭斯作为参议院议长有权拒绝6摇摆州的选举认证（大选作弊）而退回各州议会决定，这样拜登就没达到当选的270票。
+After seeing Tom Cotton’s Twitter, I was super happy. Yesterday afternoon, I told Mr. Giuliani and Mr. Bannon, “Tom Cotton will definitely quit.” They said, “Impossible.” I was right again – pure luck, right? Don’t make any decisions before January 20th! I say it again, don’t make any decisions before January 20th! So, brothers and sisters and those who are watching the show in the audience, don’t be too involved in the show and feel too desperate. Don’t be like that! Not to mention, in the end, we are one of the leading actors in this show! We still need to bring the show back!
 
-川普总统发推和今日演讲中一再说，副总统有权拒绝作弊的选举人票。彭斯也在这几日的演讲中承诺“我和几百万美国人一样对选举违规有担忧”，并保证6日“有机会在国会表达，听取证据”。彭斯如做出正确抉择，将决定大选结果和他本人政治命运。有的时候一个关键人物的关键举动将改变历史的轨迹。
+你看这个 Tom Cotton 的推特以后我特别开心。我昨天下午跟朱利安尼、班农先生我还说，我说：Tom Cotton 他一定会退出的。他说：不可能。又让我说准啦，蒙的蒙的，是吧？！不到1月20号你们都不要有任何的决定！我再说一遍，不到1月20号，你千万千万不要有任何的决定！所以说兄弟姐妹们，咱们现在在台底下看戏的人，啊，别被一场戏给左右啦，要死要活的，那可千万别这样！何况最终这个唱戏的主角咱们还是其中之一啦！咱们还得把这戏给扳回来呢！
 
-但彭斯总统是一个谨慎胆小循规蹈矩的人，而且非常在乎他的清名，邪恶力量看到这就是彭斯的软肋，对他的名声进行了威胁，彭斯退却了，他准备放弃他的职责，于1月5日去以色列访问（休假），以避开这个关键日。但在川普总统和他进行了2个小时的白宫谈心后，他改变了想法，取消了计划。
+*【感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/718110/](https://gnews.org/zh-hans/718110/)】*
 
-彭斯是一位虔诚的基督教徒，如果他逃避自己的职责，美国有可能因为这此大选舞弊而抗争升级，爆发国内战争，会有许多人将会为美国的民主自由而牺牲生命，这是一个沉重的代价，这不符合基督大爱精神。
+翻译：【Cyndi】校对：【Isaiah4031】字幕：【相机过热啊】视频解码：【恒久忍耐】编辑：【Isaiah4031】
 
-他目前的摇摆态度主要是他太在乎自己的羽毛，太计较自己的得失，我们希望他能够明白他是人不是神，神都有忏悔的事情更何况他只是一个人！如果他能明白这个道理，忘掉自己的过往，看淡个人得失，按照基督精神，按照神的旨意，做正确的事，他将成为挽救美国于危难的英雄，和川普总统并肩而立留下历史英名。
+喜马拉雅玫瑰园小队出品
 
-不管如何他都会在美国历史乃至世界史上留下自己的名字，抑或英雄抑或历史罪人，如何他真正地爱惜自己的羽毛，那就勇敢地站起来，履行自己的职责，救美国于危难之中！
+*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
 
-愿上帝保佑美国！
-
-+2
+0
