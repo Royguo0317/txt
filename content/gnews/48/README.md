@@ -1,20 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅速递】突发！川普总统的支持者冲进国会大厦
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723794/)
+## 【大选实况】1/6/2021 Ted Cruz推文：任何暴力行为，尤其是对抗执法行为，都应受到充分起诉
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723963/)
 
-作者：Skagen【㊙️翻Gnews原创组】
-责编：沙拉猫
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture-24.jpg)图片来源：[伊丽亚·沙夫推特](https://twitter.com/ElijahSchaffer)
-**2021年1月6号美东时间下午2：18《刀锋电视》记者伊丽亚·沙夫推特报道：川普总统支持者已经冲进了国会大厦，拆掉了4层安全围栏，并试图占领大厦，与联邦警察对抗。**
+![Sen. Ted Cruz]()![Sen. Ted Cruz](https://nypost.com/wp-content/uploads/sites/2/2021/01/210102-ted-cruz-election.jpg?quality=90&amp;strip=all&amp;w=618&amp;h=410&amp;crop=1)来源：Olivier Douliery/Pool/AFP via Getty Images
+1月6日下午近两点钟，得克萨斯州参议员Ted Cruz推文：“暴力永远是不可接受的，哪怕激情再高。任何暴力行为，尤其是对抗执法的行为，都应受到充分起诉。愿上帝保佑首都的警察和尊敬的执法人员，他们展现出极大的勇气，确保我们所有人的安全。”
 
-郭先生在GTV直播时马上切换画面，并让路德先生进行现场解说。郭先生认为这是美国爱国者觉醒，向美国国会施加压力。
 
-这件事的历史意义在于：第一，三权独立的局面将改变，权力将暂时集中于总统一人。第二，从这一刻起，美国政治版图将产生改变，除共和党建制派和民主党外，一只新的政治力量将出现，它的背后推动力就是支持川普的力量，标志着川普总统与共和党建制派的分道扬镳。
 
-新中国联邦作为川普总统的最核心支持力量，将期待美国人民在川普总统的带领下实现让美国再次伟大的目标！也期待着对新中国联邦最有利的结果！
+> Violence is always unacceptable. Even when passions run high.
+> 
+> Anyone engaged in violence—especially against law enforcement—should be fully prosecuted. 
+> 
+> God bless the Capitol Police and the honorable men & women of law enforcement who show great courage keeping all of us safe.
+> — Ted Cruz (@tedcruz) [January 6, 2021](https://twitter.com/tedcruz/status/1346906229189341184?ref_src=twsrc%5Etfw)
 
-（本文仅代表作者个人观点）
 
-+2
+
+参议员Ted Cruz另外一条推文说到，“那些冲进国会大厦的人需要立即停止！宪法保护的是和平抗议，但是暴力（无论是左派还是右派）总是错误的！那些从事暴力活动的人恰恰正在伤害他们自己所支持的东西（法律与秩序）。”
+
+
+
+> Those storming the Capitol need to stop NOW. 
+> 
+> The Constitution protects peaceful protest, but violence—from Left or Right— is ALWAYS wrong.
+> 
+> And those engaged in violence are hurting the cause they say they support.
+> — Ted Cruz (@tedcruz) [January 6, 2021](https://twitter.com/tedcruz/status/1346911179042484230?ref_src=twsrc%5Etfw)
+
+
+
+译者：卡拉马佐夫姐姐【㊙️翻Gnews原创组】
+
+0

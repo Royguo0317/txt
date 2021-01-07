@@ -1,98 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 会计，财报，审计入门基础与介绍（九）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/723909/)
+## 美国民兵联盟将不惜一切代价阻止拜登上台 保卫川普
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/724176/)
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/WX20201228-134452@2x.png)Picture Source: https://www.groomassocies.com
-在第九篇中是继详细展示财务审计所涉及资产负债表中各项目内容后的具体量化分析步骤与逻辑流程。有助于投资人或审计师依照逻辑且合理的量化程序对于财务报表中的资产负债表进行检阅。
+俄罗斯莫斯科喀秋莎农场   小杜
 
-一Common-size analysis of the Balance Sheet 包含每一项占总资产的百分比
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GettyImages-1294914692.jpg)Wins TV
+美国民兵组织向华府发出通牒，如果1月16日联邦政府各机构不能阻止拜登上台，将不惜一切采取行动保卫川普总统。
 
-二Balance Sheet Ratio 仅包含资产负债表中的项目
+该联盟由美国7个主要的民兵组织组成，其中包括最大的右翼民兵组织—誓言守护者。民兵组织没有条规，推翻政府也不是他们的目的，他们唯有一个统一的信念：守护宪法，保卫并坚守美国的立国根本。
 
-三Liquidity Ratio 短期债务偿付能力
-![]()![](https://gnews.org/wp-content/uploads/2021/01/表1.png)
-四Solvency Ratio 长期债务偿付能力
-![]()![](https://gnews.org/wp-content/uploads/2021/01/表2.png)
-五Classification of Cash Flow and Non-cash Activities
+对于2020美国大选充满史无前例的选举欺诈指控，民兵联盟在其官网发起了“为美国而战的爱国者行动”的声明。
 
-1.运营活动Operating Activities:
+该声明称：美国现在受到了来自国内腐败的民主党人和国外共产主义势力的双重攻击，国家处在危难关头。从某些过高的税种、贿赂选票以及虚假的自由；到政府对公民个人生活的彻底侵犯；及针对无数为了权利金钱牺牲民主意志的违宪、违法行为，他们将捍卫宪法，守护国家的立国根本，不惜一切代价阻止拜登成为总统。
 
-2.Create Revenue（Inventory， Service，………）
+如果在1月16日以前，国家都未能阻止拜登内阁上台，他们会在1月16日开始全国范围内的、分阶段的行动，不允许拜登在1月20日举行就职典礼。
 
-3.Cash Receipts and any payments that related to Dealing security or Trading security
+该组织表示爱国者不会开第一枪，但如果有任何反对力量首先对爱国者行动出击，无论是开枪还是人身攻击，都会带来正式的宣战。一旦内战发生，他们将致力于实现以下三个目标：
 
-4.投资活动Investing Activities：
+1.确保川普政府安全；
 
-5.Purchase and Selling Long-term Asset and other investment
+2.追捕和起诉所有叛国的民主党人，由军事法庭审判和定罪；
 
-6.Property, Plant, Equipment
+3.关闭所有受民主人士影响的腐败的主流媒体、广播以及其他社交媒体和网站，限制反美的言论自由，这是美国宪法第一修正案所涵盖的内容。
 
-7.资产的出售损失不计入在内，影响收入，但是不影响现金流
+在完成上述三个具体目标后，他们会停火。如果有人用笔将宪法废除，就会有人用枪把宪法恢复。无论在选举制度上如何伪装的程序正当，始终不能违背其重要的核心，这就是民意！
 
-8.融资活动Financing Activities：
+美国民兵组织网站
 
-9.Include Obtaining or Repaying capital
+[http://www.militia.me/](http://www.militia.me/)
 
-10.Non-Cash Transaction: Does not involve an inflow or outflow of cash
+[http://pafa2021.com/](http://pafa2021.com/)
 
-11.由于可能影响公司的资本 / 资产结构
 
-12.因此任何重大非现金交易都应在单独在附录或现金流补充表中给与披露
 
-13.Separate Note / Supplement Schedule
+参考链接：
 
-14.Non-monetary Asset非货币资产互换
+[https://news.creaders.net/us/2021/01/04/2306891.html](https://news.creaders.net/us/2021/01/04/2306891.html)
 
-15.Common Stock for dividend
+[https://www.bannedbook.org/bnews/cbnews/20210105/1461302.html](https://www.bannedbook.org/bnews/cbnews/20210105/1461302.html)
 
-16.Convertible Bond
+[https://www.163.com/dy/article/FVIRKS6V0543BD8I.html](https://www.163.com/dy/article/FVIRKS6V0543BD8I.html)
 
-17.Convertible Preferred Stock
+[https://www.independent.co.uk/news/world/americas/us-election-2020/oath-keepers-militia-donald-trump-joe-biden-2020-election-b1723323.html](https://www.independent.co.uk/news/world/americas/us-election-2020/oath-keepers-militia-donald-trump-joe-biden-2020-election-b1723323.html)
 
-六Summary of differences Between IFRS and US GAAP
-![]()![](https://gnews.org/wp-content/uploads/2021/01/表3.png)
-七Direct and Indirect Methods for Reporting Chas flow from Operating Activities
+[https://oathkeepers.org/2021/01/oath-keepers-deploying-to-dc-to-protect-events-speakers-attendees-on-jan-5-6-time-to-stand/](https://oathkeepers.org/2021/01/oath-keepers-deploying-to-dc-to-protect-events-speakers-attendees-on-jan-5-6-time-to-stand/)
 
-1.Chas Flow From Operating Activities：
-
-2.Net Amount of Cash Flow provided from operating activities
-
-3.Direct Method：（更受欢迎对于IFRS / US GAAP / 分析师 / 贷方）
-
-4.Specific Cash Inflows and Outflows / Result in reported cash flow from operating activities
-
-5.US GAAP虽然鼓励直接法，但仍要求净收入和现金流之间的对账（相当于间接法）
-
-6.主要争论优势Primary Argument
-
-7.直接方法提供了具体的运营活动现金付款和收款的来源
-
-8.Provide Information on specific sources of operating cash receipt and payment
-
-9.Indirect Method：How Cash Flow can be obtained from reported Net Income as the result of a series of adjustment
-
-八Indirect-Format Cash flow statement Prepared under IFRS
-
-Operating Activities 要求被体现，而且要求从净收入开始（Net Income）
-
-九Direct-format cash Flow Statement Prepared under IFRS
-
-Investing / Financing Section 要求被体现
-
-十Illustration of Cash Flow statement prepared under US GAAP
-
-Operating Activities 要求体现Indirect-Format
-
-十一Linkages with the Balance Sheet
-![]()![](https://gnews.org/wp-content/uploads/2021/01/表4.png)
-十二Linkages with the Income Statement
-![]()![](https://gnews.org/wp-content/uploads/2021/01/表5.png)
-Author：搞笑排行榜
-
-Original opinion article by Himalaya G-farm Vancouver
-
-2021/01/06
-
-0
++2

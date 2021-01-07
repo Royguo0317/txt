@@ -1,49 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国议员要求中共国解释新冠病毒来自实验室的说法
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/723911/)
+## 【大选实况】1/6/2021 Cruz推文：怒怼搅浑水左派政治新星
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/724011/)
 
-新闻来源：The National Pulse《国家脉动》； 作者：； 发布时间：2021年1月4日
+![]()![](https://cdn.hpm.io/wp-content/uploads/2018/04/18143521/OROURKE_CRUZ-1-1000x670.jpg)来源：houstonpublicmedia.org
+1月6日下午三点多，得克萨斯州参议员Ted Cruz与得克萨斯州极左民主党新星、2020年总统参选者Beto O’Rourke互怼。（O’Rourke曾在2018年中期选举中对阵Ted Cruz参选德州参议员，然而Ted Cruz最终小幅胜出。）
 
-翻译/简评：Marialu；校对/审核：万人往；Page：拱卒
+对于国会山的目前的一片混乱，O’Rourke揶揄Ted Cruz道：“还不是因为你煽动叛乱，给了这些‘恐怖主义者’和他们‘未遂的政变’以灵感。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/wM0j3FCQB5XLQ/images/3551c941-6e58-4021-b681-f48db891270b.jpg?asset_id=d132b25b-80a7-4df4-b05a-f6823e568a70&amp;img_etag=%2209ab5144ef14fb346a55bae1093120af%22&amp;size=2560)](https://spark.adobe.com/page/wM0j3FCQB5XLQ/images/3551c941-6e58-4021-b681-f48db891270b.jpg?asset_id=d132b25b-80a7-4df4-b05a-f6823e568a70&amp;img_etag=%2209ab5144ef14fb346a55bae1093120af%22&amp;size=1024)
+Ted Cruz回呛道：“别再挑拨离间、散布仇恨了，停止使用恶意言论（例如虚假鲁莽地指控‘煽动叛乱’）。停止对不同意你的半个国家表示蔑视。暴力是错误的。我们可以做得更好。我们是一个国家。”并在推文最后引用了美国国徽上的一句拉丁文，意思是“合众为一”。
 
-**简评：**
 
-在美国副国家安全顾问博明声称新冠病毒最可信的起源是武汉病毒研究所之后，英国议员们也强烈要求中共澄清事实，就新冠病毒实验室理论做出回答。英国保守党资深议员汤姆·图根哈特（Tom Tugendhat）和托比亚斯·埃尔伍德(Tobias Ellwood) 呼吁英国政府展开调查，以回应博明坚称”的越来越多的证据”指出新冠病毒源自中共实验室。外交特别委员会主席图根达特抨击中共政府试图掩盖真相，他指出：“中共国如何处理这场大流行病的做法极其令人担忧。他们在信息共享方面一直非常缓慢——无论是关于疫情或其起源。他们把吹哨人关起来，他们有掩盖病毒泄漏的危险。”国防特别委员会主席埃尔伍德表示，英国需要联合美国，共同向中共”要求答案”。他指出：”中共国继续压制任何敢于大声疾呼的地方声音，并持续删除所有网络评论，这表明中共当局有事情隐瞒。”
 
-如今全球被中共病毒感染人数超过8461万，死亡人数超过183.7万。血债血还，到算总账的时候，不是八国联军，而是八十国，乃至一百八十国联合起来向中共要真相，要求中共老实交代病毒起源问题。
+> Stop stoking division. 
+> 
+> Stop spreading hatred. 
+> 
+> Stop using malicious rhetoric (such as false & reckless charges of “sedition”).
+> 
+> Stop showing contempt for the half of the country that disagrees with you.
+> 
+> Violence is wrong. We can do better. We are one Nation. [#EPluribusUnum](https://twitter.com/hashtag/EPluribusUnum?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/Kikh4dW46u](https://t.co/Kikh4dW46u)
+> — Ted Cruz (@tedcruz) [January 6, 2021](https://twitter.com/tedcruz/status/1346927158384414725?ref_src=twsrc%5Etfw)
 
-中共是一个极不负责任的政党，从1949年到现在，对待老百姓如奴隶，只顾自己的政权，暗箱操作、毫无底线、以黑治国、以警治国。中共知道大势已去，竭力利用宣传机器蒙骗百姓，掩盖真相，鼓吹病毒来自美国或其他国家，”甩锅”给他国。我们强烈呼吁世界各国不要被中共所谓的”世界命运共同体”所蒙蔽。中共一向是好话说尽，坏事做绝，现在还在搅混水，其目的就是要搞垮世界经济。现在只有尽快解体中共，才能让世界人民有一个自由、安全的生存环境，世界经济才能走上正轨。
 
-**原文翻译：**
 
-# **英国高级国防官员要求中共国就新冠病毒实验室理论做出回答**
+评：目前国会山的混乱，是两派激烈斗争的前线，回顾历史，这场景与历史上的那些关键节点发生的冲突或是革命何其相似。这会是计入史册的一天，而现在已经有人受伤。许多人都在呼吁大家冷静，因为局面越来越不好控制，人们在那样的情况下通常也会身不由己。而Beto O’Rourke这时候非但不帮忙，反而冷嘲热讽，挑拨离间，说目前在国会山的示威者是“恐怖主义者”试图“未遂政变”，这只能加深美国的分裂。
 
-英国外交和国防议会委员会的主席们响应了美国的呼吁，要求调查新冠病毒的起源，特别调查中共在其中所起的作用。
-
-保守党资深议员汤姆·图根哈特（Tom Tugendhat）和托比亚斯·埃尔伍德(Tobias Ellwood) 呼吁英国政府展开调查，以回应美国国家安全顾问马修·波廷格（或中文名：博明）（Matthew Pottinger）坚称” 的越来越多的证据”指出新冠病毒源自中共实验室。
-
-外交事务特别委员会主席图根达特形容这些指控”极其严重”，然后抨击中共政府的掩盖行动：
-
-”中共国在国际上如何处理（应对）这场大流行病的做法极其令人担忧，他们在分享信息方面一直非常缓慢——无论是关于疫情或其起源。他们把举报者（吹哨人）关起来，现在看来他们有掩盖（病毒）泄漏的危险。”
-
-国防特别委员会主席埃尔伍德表示，英国需要和美国一起向中共”要求答案”。
-
-他指出：”中共国继续压制（噤声）任何敢于表达意见的地方声音，并持续删除所有网上评论，这表明当局有事情要隐瞒。”
-
-[原文链接](https://thenationalpulse.com/breaking/british-ministers-covid-origin/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】-[点击spark adobe版](https://spark.adobe.com/page/wM0j3FCQB5XLQ/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/wM0j3FCQB5XLQ/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/wM0j3FCQB5XLQ/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+译者：卡拉马佐夫姐姐【㊙️翻Gnews原创组】
 
 0
