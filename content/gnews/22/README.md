@@ -1,35 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》新闻快讯（视频版）2020.12.31纳瓦罗福克斯访谈：中共国和欧盟签的贸易协议很有可能因为CCP对人权的迫害而在被批准前就被否定
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/722396/)
+## 双背叛的“彭厮”
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/725267/)
 
-《路德社》出品
+蒙特利尔皇家山战友团 laotou
 
-2020.12.31 纳瓦罗福克斯节目访谈视频：
+校对 上传 小鸥
+![]()![](https://gnews.org/wp-content/uploads/2021/01/pence-2.jpg)图片来自 nytimes.com
+彭斯在2017年背叛了弗林将军，今天他又背叛了川普总统和美国！《门道专家》1月6日最新报道：
 
-第一部分：
+今天早些时候，我们说了，美国副总统彭斯将在今天给出结果，是被冠以国家英雄，还是叛国者？我们现在知道了答案。
 
-第二部分：
+今天下午，当总统在首都对着百万爱国者发表讲话时，彭斯也发表了他的备忘录，解释了为什么他忽视腐败和选举舞弊，这些腐败和舞弊行为（企图）从川普总统、他的老板和美国人民那里偷走选举：文章链接了这个 报道【1】
 
-内容摘要：
+彭斯擅长在美国人背后捅刀子，他在川普总统政府早期就有过先例，当时他与暗势力勾结，哄骗了迈克尔·弗林将军的辞职。彭斯在整个虚构的事件中（的角色），就是为了除掉弗林将军：文章链接了从前的报道【2】
 
-1.中共国和欧盟签的贸易协议很有可能因为CCP对人权的迫害而在被批准前就被否定
-2.欧盟跟美国一样面对着跨国企业向政治系统施压的问题
-3.纳瓦罗先生说跟共产中国签协议，你会假设它遵守条款，但它不会遵守
-4.这也涉及到地缘政治
-5.Steve Moore（FOX的定期撰稿人）说欧盟的协议不是「和平」而是绥靖
-6.纳瓦罗先生再次提醒人们：不要忘记中国共产党已经用疫情感染了整个世界
-7.中共国基本向我们证明，它们是拥有坏信仰、专制极权的残暴政权
-8.它们只会奴役百姓，所以为什么我们要成为其中一员呢
-9.纳瓦罗先生早在2006年的书里就写了中共国很有可能引发一场病毒大流行，那会杀害上百万人
-10.FOX主持人回顾2020年1月最早做疫情节目，那时觉得不会像SARS那么严重、还相信CCP对疫情控制和即时公布消息，现在来看纳瓦罗先生才是对的
+彭斯出于某种原因让一些憎恨川普总统的人作为他的员工：文章链接了从前的报道【3】
 
-[援引原文](https://parler.com/post/221a856e67414cc2ae79d0b4f275645b)
+彭斯在中共病毒危机期间获得了领导国家的机会，美国的情况如何？彭斯和腐败政客有没有侵犯了（公民的）自由？从那以后，彭斯和福奇一直在带领美国走下坡：文章链接了从前的报道【4】
 
-翻译：路德社翻译组
-制作：路德社视频组
-审核校对：玫瑰天空
-上传排版：青葫芦娃
+在今天的过程中，彭斯刺伤了美国和川普总统的后背，并证实了世界历史上最荒唐和腐败的选举。他试图从合法的赢家、川普总统和美国人民那里偷走这个选举。
 
-0
+迈克·彭斯永远不会被忘记，改称“彭厮”吧，他的政治生命结束了。
+
+原文链接：https://www.thegatewaypundit.com/2021/01/pence-stabbed-betrayed-general-flynn-2017-today-betrayed-president-trump-america/
+
+参考链接：
+
+【1】https://www.thegatewaypundit.com/2021/01/breaking-pence-releases-statement-ahead-certification-electoral-college-says-will-not-block-bidens-electors/
+
+【2】https://www.thegatewaypundit.com/2017/02/breaking-mike-flynn-resigns-trumps-national-security-adviser/
+
+【3】https://www.thegatewaypundit.com/2019/04/huge-former-wife-of-vp-pence-chief-of-staff-joshua-pitcock-was-working-for-strzok-on-general-flynn-investigation/
+
+【4】https://www.thegatewaypundit.com/2020/06/predictable-liberal-hack-attacks-trump-holding-campaign-rallies-not-black-lives-matter-antifa-mobs-terrorizing-american-cities-video/
+
++2

@@ -1,24 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 决战48小时系列：川普总统对彭斯副总统表示失望，美国出现第三党！
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/724798/)
+## 爱国者突破警察防线，五角大楼拒绝将国民警卫队部署到美国国会大厦的请求
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/725111/)
 
-作者：楼兰古城
+翻译：康州盘古农场–一花一世界
 
-美东时间1月6日，川普总统发推：迈克-彭斯没有勇气做应该做的事情来保护我们的国家和我们的宪法，给各州一个机会来证明一套正确的事实，而不是之前要求他们证明的欺诈性或不准确的事实。美国要求真相!
+校对：康州盘古农场-黎明的光芒
 
-从文贵先生直播解析到，这次川普总统最终的目标是验票，只要一验票，川普总统的目标就达成了，民主党，共和党，都不为川普总统站台，最终几方力量都会坐下来谈。爱国者有枪，开着皮卡，川普总统只能选择单干。美国出现了第三党-My god，代表美国的宗教力量，支持川普总统的百分之九十的投票来自这个力量，路德先生说人类文明的认证体系来自梵蒂冈教廷，这是一个不可征服的超强力量！（2000多年历史信用背书），民主党结束了，共和党结束了，最终政治如何妥协，第三党说了算，未来新中国联邦也将会成为主角，因为我们是全球化的，全世界的！
-
-几分钟后，川普总统再次发推：我要求大家在美国国会大厦保持和平。不要使用暴力！请记住，我们是法律与秩序的党。记住，我们是法律与秩序的党–尊重法律和我们伟大的蓝衣男女。谢谢大家
-
-川普总统的第三党的推，和几分钟之前文贵先生的第三党建立再次得到完美的验证！
+审核：康州盘古农场-V
 
 
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-10.png)
+据报道，由于爱国者突破警察防线冲进（国会）大楼，五角大楼拒绝了将国民警卫队部署到美国国会大厦的请求。
 
-> I am asking for everyone at the U.S. Capitol to remain peaceful. No violence! Remember, WE are the Party of Law & Order – respect the Law and our great men and women in Blue. Thank you!
-> — Donald J. Trump (@realDonaldTrump) [January 6, 2021](https://twitter.com/realDonaldTrump/status/1346912780700577792?ref_src=twsrc%5Etfw)
 
 
+> BREAKING: A source tells me The Defense Department has just denied a request by DC officials to deploy the National Guard to the US Capitol.
+> — Aaron C. Davis (@byaaroncdavis) [January 6, 2021](https://twitter.com/byaaroncdavis/status/1346908166030766080?ref_src=twsrc%5Etfw)
+
+
+
+*突发：* *一位消息人士告诉我，* *国防部刚刚拒绝了华盛顿特区官员在美国国会部署国民警卫队的请求。*
+
+*— Aaron C. Davis**（**@byaaroncdavis**）**2021**年**1**月**6**日*
+
+** **周三，在副总统迈克·彭斯说他不会阻止拜登的选举团计票之后，一切都爆发了。
+
+爱国者进入国会大厦，迫使彭斯和所有立法者要么撤离，要么就地避难。
+
+据报道，爱国者欲闯入议会大厅，在和警方武装对峙期间，美国参议院会议厅中有人开枪射击。
+
+
+
+> Inside House chamber right now [pic.twitter.com/yOk1yWpnT7](https://t.co/yOk1yWpnT7)
+> — Zak Hudak (@cbszak) [January 6, 2021](https://twitter.com/cbszak/status/1346905890927095813?ref_src=twsrc%5Etfw)
+
+
+
+*现众议院内**–**扎克**· pic.twitter.com/yOk1yWpnT7*
+
+*—**达克* *（**@cbszak**）**2021**年**1**月**6**日*
+
+电视直播中显示，一名妇女被放上担架抬出大楼，满身是血。
+
+为应对此突然爆发事件，华盛顿特区市长穆里尔·鲍瑟（Muriel Bowser）决定6点钟开始实行宵禁。
+
+原文作者：克里斯蒂娜·莱拉（Cristina Laila）
+
+发布时间：1/6/2021
+
+原文链接: [https://www.thegatewaypundit.com/2021/01/breaking-report-pentagon-denies-request-deploy-national-guard-us-capitol-patriots-overwhelm-police/](https://www.thegatewaypundit.com/2021/01/breaking-report-pentagon-denies-request-deploy-national-guard-us-capitol-patriots-overwhelm-police/)
 
 +1

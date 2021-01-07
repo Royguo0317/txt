@@ -1,39 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生评价路德先生的为人和在凤凰农场解散一事上的果敢和判断力
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/725477/)
+## 谭德塞对中共拖延专家组入境感到“失望” 华春莹回应双方还在进行协商
+` 经济金融组` [轉載自GNews](https://gnews.org/zh-hans/725569/)
 
-新闻简述：在《我是音雄》的跨年晚会上，郭文贵先生高度评价了路德的性格、对爆料革命的投入和在凤凰农场解散的关键时刻做出的果敢决定。
-视频来源：[https://www.youtube.com/watch?v=e2GEspG80xs](https://www.youtube.com/watch?v=e2GEspG80xs) (06:00:02-06:02:45)
-**中英文对照全文**
+整撰：文錦
+复核：WJMG
 
-You just mentioned the Phoenix [farm]. Talking about Phoenix, I must say something about Mr. Lude. This is indeed God’s will, which I truly believe! At midnight on that day, while I talked with our scientist (Dr. Li-Meng Yan), Lude was waiting for me anxiously, saying, “We need to talk, we need to have a telephone conversation.” After the call, Mr. Lude became very serious! He said, “We cannot do it in this way, and we need to do it this and that way…” and gave me instructions. I said, “Okay, let’s talk about it tomorrow.” The next day, he texted me, “I suggest that you dismantle it [the Phoenix Farm].” He called Sara, which I did not know. Sara sent me the message [about dismantling the farm]. This is how the Phoenix Farm was dismantled. Sara took the initiative. It is Lude who figured out the whole thing.
+世卫组织总干事谭德塞1月5日表示，“中国政府至今仍未批准国际专家入境调查新冠的源头。”他对此表示“非常失望”。中共外交部发言人华春莹6日回应此消息称，为了确保国际专家组来华工作顺利进行，需要履行必要的程序，目前双方还正在就此进行协商。
 
-刚才你谈到凤凰。谈到凤凰，我必须说路德先生。这真的就是天命，我很信呐！我跟路德先生就是个凌晨和科学家讲话，路德也很着急等着，“咱得说话，咱得通话”。通完以后，路德先生就特别认真啦：“这事郭先生，咱们这事，你不能这么干。咱得怎么、怎么着…” 他给我指示，跟我说。我说：“是嘛！咱明天再说。” 第二天，他给我发信息说：“我建议你应该把这个解散了。” 他跟 Sara 通电话，我都不知道，Sara 就把信息发给我。就这么给，就是凤凰就解散。这 Sara 主动的。是路波切看清了整个事实。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-25.jpg)世卫组织总干事谭德塞(右)与世卫组织紧急项目负责人瑞安
 
-I always joke with Lude. He has two cutest sides, one of which is that he is the first person in our Whistleblower Movement who can read my mind. We seldom talk to each other and sometimes we don’t have even one call for a month. The two of us really talk the least. You can use it as a proof. Our conversations are also the shortest. You all know me. This is the one side.
+早在去年11月23日，世界卫生组织最高应急项目负责人瑞安 (Mike Ryan)就曾表示，已经得到中国的保证，将尽快安排一次国际实地考察，调查新冠病毒的来源。近日，世卫再次宣布，中国已允许世卫专家到访，预计一支10人小组不久会抵达中国，并赴湖北省武汉市调查疫情源头。
 
-我老爱跟路波切开玩笑。他有两个最可爱的一面，我可以说爆料革命当中能读懂我的第一个人就是路德。这种，而且我们俩讲的话是很少有的，有时候一个月都不通一次话，我们俩真的是讲话是最少的，你可以用他来证明。但是我们俩讲话最短的还是，大家也都了解我，这是一个。
+这10位专家组成员之一彼得·达萨克（Peter Daszak）就是“大名鼎鼎”的联合了全世界27名科学家，于今年2月在《柳叶刀》发表声明为中共站台的联络人；也是该份联合声明的拟稿人，美国生态健康联盟（EcoHealth Alliance）的主席。闫丽梦博士在11月19日的《路德社》曝光了彼得·达萨克与27位联合作者们积极讨论如何“驳斥病毒来自实验室”的两份邮件。
 
-The other side is that Mr. Lude has really devoted himself to the Whistleblower Movement whole-heartedly, with his whole family, including his children and his wife, and everything in his life. Since I got to know him till today, he has been staying at home and only doing some shopping and eating [while not working]. More importantly, in that critical moment, Mr. Lude did such a decisive thing. This is what everyone can see! In our Whistleblower Movement and among our fellow fighters, he is far from ordinary.
+虽然这10人专家小组中有心甘情愿为中共代言的彼得·达萨克，但中共仍将这组专家拒之门外。发言人华春莹对此的回应是，中方的专家本着科学态度，坦诚介绍和分享了中方溯源成果，双方合作取得积极的进展。去年2月和7月，在中国国内疫情防控任务十分繁重的情况下，两次邀请世卫组织的专家来华开展溯源合作。目前，为了确保国际专家组来华工作顺利进行，需要履行必要的程序，并且做出相关的具体安排，目前双方还正在就此进行协商。
 
-第二个，爆料革命当中，路德先生真的是全身心，全家带着孩子、老婆，这生命一切。从我认识到现在，就在家，到这个买点东西回去吃饭。而且在关键的时刻，路德先生他做出了这样的事情。这是让我们大家能看到啊，我们爆料革命当中，战友当中，真的是，不是一般的。
+病毒大流行时隔一年，中共和世卫组织双方就对病毒溯源的实地调查之事“互踢皮球”，发言人华春莹所说的世卫组织专家两次来华的调查也只是隔靴搔痒。去年2月16日，由世卫组织12人组成的医疗专家组在北京、广东和四川三个地方进行调查，22日抵达武汉24日匆匆离开，公开的行程安排并不包括武汉，而实际上，专家组出其不意地去武汉蜻蜓点水地走访2天；
 
-Lao Ban Zhang called me first and then Chang Dao Ge called, telling me the situation of Phoenix City [where the GTV headquarter was]. Then many fellow fighters sent me messages, which I forwarded to Mr. Lude right away. Then Lude asked to talk to me. After our conversation, he told Sara, and then Sara took the initiative to return the Phoenix [headquarter to us]. As a result, it avoided a major legal issue, and even avoided a big trap set up by the CCP toward the Whistleblower Movement. Mr. Lude may share this in detail with all of you someday.
+《纽约时报》报道，去年7月，世卫组织在向中国派出了尚未公布身份的一名动物卫生专家和一名流行病学家，重点调查新冠病毒是如何从动物传给人类的，但他们未能前往武汉，调查结束后并没有公开发表过言论。世卫紧急状态负责人瑞安声称，世卫组织“对现场”提供的合作非常满意”。两位专家与中国官员和研究人员见面，审核现有数据，勾划调查工作的范围。
 
-这是老班长先给我打电话，是长岛哥给我打电话，给我说了凤凰城的情况。然后很多战友给我发了信息，我第一个就发个转发路德先生，然后路德就要跟我通话。通话以后，他给 Sara 说的。Sara 就主动退还凤凰城。结果避免了一场重大的法律，甚至是一种，爆料革命的一种巨大的共产党的设置的圈套当中。这个路德先生哪一天可以好好跟大家讲一讲。
+中共以各种理由拒绝和拖延国际专家进入病毒突发的起源地–湖北武汉，和进入众所周知的武汉P4实验室展开科学的实地调查。中共官方宣称的病毒起源的“背锅地–”武汉华南海鲜市场也被人为蓄意地破坏，如今已物是人非处于封闭状态。
 
-You did not really see it clearly regarding the Phoenix Farm and the cobra and swallow (special agents) released by the CCP and the scheme behind all this. The setup behind it indeed can turn over all of us, including I Am Sing-Ro. This is really insidious! However, God helped us in this very moment, and Lao Ban Zhang and Chang Dao Ge provided the feedback from our fellow fighters timely and accurately. Then Mr. Lude, who is absolutely faithful to the core interest of our Whistleblower Movement with no consideration of himself whatsoever, made such a brave decision right away. And after the decision was made, we found afterwards that it was me who was indecisive and put personal feelings before the friendship of our fellow fighters in the Whistleblower Movement. It’s my fault. So in the end, I assume all of the responsibilities to avoid the worst situation.
+中共是否允许世卫专家组进入中国调查已经不重要了，因为调查与否都是表演，因为相信美国已不再相信世界卫生组织且对病毒来源应已有定论。接下来世界要做的就是对中共追责。
 
-你们并没有看清楚凤凰农场和共产党放的蛇，放的燕子的，它背后的局。真可以包括你《我是音雄》，把我们大家是一勺给烩了的，这真的是很阴险、很阴险的。但是就是在这个时候，老天帮了我们，而且我们的老班长、长岛哥及时的、准确地提供了一些战友们反馈的信息。然后路德先生绝对是站着爆料革命核心利益上，没有考虑任何自己一点事情，马上做出果敢的决定。而且做完以后，我们后来发现，是七哥优柔寡断，是七哥这个个人感情大于了咱们的爆料革命的革命友情，这是我是错的。那最后呢，我承担一切责任，然后把这事情避免了最坏的程度。
+参考链接：
+[https://news.163.com/21/0106/15/FVLUPG1O00018AOR.html?clickfrom=w\_yw](https://news.163.com/21/0106/15/FVLUPG1O00018AOR.html?clickfrom=w_yw)
+[https://baijiahao.baidu.com/s?id=1659338850791222069&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1659338850791222069&amp;wfr=spider&amp;for=pc)
+[https://cn.nytimes.com/china/20200722/china-coronavirus-who/](https://cn.nytimes.com/china/20200722/china-coronavirus-who/)
 
-*【感谢新加坡狮城农场 Himalaya Singapore提供中文文本于[https://gnews.org/zh-hans/712375/](https://gnews.org/zh-hans/712375/)】*
-
-翻译：【Cyndi】 校对：【Isaiah4031】 字幕：【相机过热啊】编辑：【Isaiah4031】
-
-喜马拉雅玫瑰园小队出品
-
-*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
-
-+1
+0

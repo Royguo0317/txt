@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普展示宾夕法尼亚的证据
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/724393/)
+## 【粤语】1/4/2021文贵：爆料革命新中国联邦未来就是优胜劣汰
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/724591/)
 
-By： 【秘密翻译组 G-Translators – 精翻组】
-
+制作：Cantonese工作室
+统筹：【文武全才】 剪輯：【文德】 【文桥】 配音：【John Chen】 文本【Jacky】 字幕：【文桥】
 0

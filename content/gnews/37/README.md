@@ -1,21 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP-Virus Pandemic Daily Updates EP335(JAN 05) &#8211; GNEWS
-` 新闻译制组` [轉載自GNews](https://gnews.org/zh-hans/724873/)
+## 《路德社》精选主题专栏：戴上红色紧箍咒的中国教育
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/716791/)
 
-President Trump tweeted that massive evidence of election fraud will be made public on January 6th, indicating the President’s confidence in winning his reelection.
+《路德社》精选主题专栏组出品
+![]()![](https://gnews.org/wp-content/uploads/2021/01/608122012021017-scaled.gif)
+尽管中共在以贪治国，以假治国上登峰造极，但是要使得14亿人，尤其是让“社会良心”，“社会最后一道防线”的知识分子不识破，不戳破，不造反，那绝对是要下扎实功夫的。因此中共国党的思想教育从幼儿园抓起，一路陪伴到高等教育结束，最后成功推出“社会主义合格公民”，享受党组织遍地开花，“以警治国”的美好生活。
 
-Oil price in Communist China reached a 9-month high. Severe inflation is a certainty.
+2021年是中共第十三个和第十四个五年计划的“继往开来”的一年，各地各教育部门的旧五年辉煌总结，和新五年的宏图展望铺天盖地。与抖音（脑洞一下大外宣）同属一家公司“字节跳动”的今日头条，1月4日发表题为“推动“十四五”时期高等教育高质量开局“的文章，提到十四五的新发展格局就是培养**时代新人**。那么什么是时代新人呢？**习近平总书记强调，要坚守为党育人、为国育才，努力办好人民满意的教育-**—–其实其他的都不重要了，第一位就是“为党”，最后才是人民。
 
-The China Construction Bank sent text message ads offering four times interest rate to US dollar deposits. There is a shortage of USD.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/images-3.jpg)
 
-NetEase announced that Communist China will market the CCP virus vaccine to elderly people
+（简评：文章说“总书记的重要论述，**科学**回答了新形势下培养什么人、为谁培养人、怎样培养人这一重大问题，为科学判断教育改革发展成效提供了根本检验标准”。笔者认为，文章作者对习总加速师还是信心不足，非要扯上“**科学**”两字，是对全知全能的**科学**本体-习近平的亵渎，在毛时代是要打成右派反革命分子的。）
 
-Iran says it will start to enrich uranium up to 20 percent.
+中共的洗脑驭民术是天下无敌，前后十年的洗脑必定环环紧扣，层层深入。我们了解一下十三五的高等教育目标是什么呢？从中华人民教育部的网站得悉，原来是“立德树人，推动全面从严治党向高校基层延伸”。具体措施就是实施“**双带头人**”培育工程，把符合条件的学术带头人培养选拔为教师党支部书记，把有条件的教师党支部书记培养成为学术带头人，把教师党支部建设成为新时代高校基层的**坚强战斗堡垒。**
 
-The CCP paid for key figures in Western media to come to China on familiarization trips.
+前后联系一看，原来中共的思路就是2016-2020年，把教师赤化，2021-2025年，把学生赤化。通过无处不在的党组织，各省、自治区、直辖市党委教育工作部门、教育厅（教委），教育局，部属各高等学校党委、部省合建各高等学校党委层层传达，年复一年，日复一日，各种政治培训，座谈，总结，考核和心得汇报，直到 1732.0万各级教师（2019年数据）顺利“达标”。
 
+据中国教育报报道。全国高校教师党支部书记‘双带头人’比例从2018年底的68%上升到2019年底的82%，其中党委书记和校长列入中央管理的高校普遍达到95%以上。经常听到国内一些人的抱怨，政治学习太浪费时间，有时还要占用下班后的私人时间，有这些时间可以多看两本专业书了。呵呵，只能说还能抱怨的人太天真，太简单了，“不识庐山真面目，只缘身在此山“中。如果不首先保证每个科技工作者，医疗工作者，教育工作者听党的话，怎么能出来制造病毒的石正丽，怎么会有 研究生化武器，到武汉P4实验室毁尸灭迹的陈薇，还有听党的话，打入美帝国主义心脏的张首晟呢？如果人人都变成英雄科学家闫丽梦，变成李文亮，或者张展，那光荣伟大的党还有活路吗！
+![]()![](https://gnews.org/wp-content/uploads/2021/01/ei2frab72o00k0os8s.jpg)
+控制14亿人的思想，特别是将人中龙凤的知识分子一网打尽是共党得以续命的不二法门，别管你是高考状元还是天赋异禀的神童，都别想逃脱红色紧箍咒的束缚，从幼儿园到大学毕业，21年的教育管控，鲜有人还能保持独立的思想，清醒的辨别是非的能力，再加上沉重的经济负担，疲于奔命的社会竞争，处处划红线的威权体制，丧失基本的反抗能力是可以预见的。
 
+对科技领域最需要的创新精神，中共的眼光投向了西方，“没有枪，没有炮，敌人给我们造”，手握14亿人创造的财富，满世界蓝金黄，人类科技成果唾手可得，高科技公司投怀送抱，手到擒来。如果哪天再能够往14亿人身上植入芯片，或者基因改造成超级工人，超级农民，超级士兵，那地球上还有什么可以与中共相抗衡的力量？中国教育已经被糟蹋了70年，14亿人至今还处在防火墙的控制下生活，全世界再不出手推翻共产党，中国人民再不奋起反抗，那么中共的红色紧箍咒终会扣到所有地球人的头上。
+
+【文章仅代表作者个人观点】
+
+[援引](https://www.toutiao.com/i6913703112687485454/?tt_from=copy_link&amp;utm_campaign=client_share&amp;timestamp=1609772289&amp;app=news_article&amp;utm_source=copy_link&amp;utm_medium=toutiao_ios&amp;use_new_style=1&amp;req_id=202101042258090101351491532C12EEFB&amp;group_id=6913703112687485454)
+
+本文作者：Sherryok水云间
+审核校对：玫瑰天空
+上传排版：糖果儿
 
 0
