@@ -14,32 +14,32 @@
 
 ---
 
-### [【大选实况】1/6/2021 佐治亚州两名参议院民主党候选人在悄无声息中双双获胜？](/content/gnews/1/README.md)
+### [【大选实况】1/6/2021 推特公司封杀川普呼吁抗议者和平回家的视频](/content/gnews/1/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频国会被”攻占”川普呼吁人们和平回家](/content/gnews/2/README.md)
+### [【大选实况】1/6/2021 佐治亚州两名参议院民主党候选人在悄无声息中双双获胜？](/content/gnews/2/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频国会被”攻占”川普呼吁人们和平回家](/content/gnews/3/README.md)
  ` Himalaya Australia`
 
-### [视频重磅突发: 川普总统紧急呼吁支持者尽快撤离回家](/content/gnews/3/README.md)
+### [视频重磅突发: 川普总统紧急呼吁支持者尽快撤离回家](/content/gnews/4/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【大选实况】1/6/2021 Cruz推文：怒怼搅浑水左派政治新星](/content/gnews/4/README.md)
+### [【大选实况】1/6/2021 Cruz推文：怒怼搅浑水左派政治新星](/content/gnews/5/README.md)
  ` 秘密翻译组G-Translators`
 
-### [「突发」1/6川普支持者占领美国国会](/content/gnews/5/README.md)
+### [「突发」1/6川普支持者占领美国国会](/content/gnews/6/README.md)
  ` wenwu`
 
-### [【大选实况】1/6/2021 Ted Cruz推文：任何暴力行为，尤其是对抗执法行为，都应受到充分起诉](/content/gnews/6/README.md)
+### [【大选实况】1/6/2021 Ted Cruz推文：任何暴力行为，尤其是对抗执法行为，都应受到充分起诉](/content/gnews/7/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【热点播报】一位进入国会山的示威者被枪击](/content/gnews/7/README.md)
- ` 纽约香草山农场`
-
-### [川普展示宾夕法尼亚的证据](/content/gnews/8/README.md)
+### [这是一个圈套,他们设下圈套，试图毁坏我们的形象!那些不是爱国者!](/content/gnews/8/README.md)
  ` 秘密翻译组G-Translators`
 
-### [伊斯曼教授解释多猫腻是怎样在乔治亚的选举中再次做弊](/content/gnews/9/README.md)
- ` 旧金山-金喜准农场`
+### [川普展示宾夕法尼亚的证据](/content/gnews/9/README.md)
+ ` 秘密翻译组G-Translators`
 
 ### [川普展示密西根州的证据](/content/gnews/10/README.md)
  ` 秘密翻译组G-Translators`
@@ -116,45 +116,45 @@
 ### [War Room 633 总结](/content/gnews/34/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [“支持拜登的共和党人”代表团，参加中共资助的访华之旅](/content/gnews/35/README.md)
+### [【热点播报】一位进入国会山的示威者被枪击](/content/gnews/35/README.md)
+ ` 纽约香草山农场`
+
+### [“支持拜登的共和党人”代表团，参加中共资助的访华之旅](/content/gnews/36/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [英国议员要求中共国解释新冠病毒来自实验室的说法](/content/gnews/36/README.md)
+### [英国议员要求中共国解释新冠病毒来自实验室的说法](/content/gnews/37/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【大选实况】国会山一片混乱：100余人冲进国会大厦后，有一人中枪](/content/gnews/37/README.md)
+### [【大选实况】国会山一片混乱：100余人冲进国会大厦后，有一人中枪](/content/gnews/38/README.md)
  ` 秘密翻译组G-Translators`
 
-### [[危机中的重生] 1月6日美国总统大选之决战时刻系列报导(9)](/content/gnews/38/README.md)
+### [[危机中的重生] 1月6日美国总统大选之决战时刻系列报导(9)](/content/gnews/39/README.md)
  ` 旧金山-金喜准农场`
 
-### [【大选实况】1/6/2021 朱利安尼先生推文：爱国者们请和平表达观点](/content/gnews/39/README.md)
+### [【大选实况】1/6/2021 朱利安尼先生推文：爱国者们请和平表达观点](/content/gnews/40/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【大选实况】1/6/2021 参议员罗恩· 约翰逊(Senate Ron Johnson)推文：要守法示威](/content/gnews/40/README.md)
+### [【大选实况】1/6/2021 参议员罗恩· 约翰逊(Senate Ron Johnson)推文：要守法示威](/content/gnews/41/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频1/6/2021 川普总统在“拯救美国”集会上的演讲：社交媒体很难发声](/content/gnews/41/README.md)
+### [视频1/6/2021 川普总统在“拯救美国”集会上的演讲：社交媒体很难发声](/content/gnews/42/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频1/6/2021 川普展示亚利桑那州的证据](/content/gnews/42/README.md)
+### [视频1/6/2021 川普展示亚利桑那州的证据](/content/gnews/43/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【重磅速递】突发！川普总统的支持者冲进国会大厦](/content/gnews/43/README.md)
+### [【重磅速递】突发！川普总统的支持者冲进国会大厦](/content/gnews/44/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【三篇专栏】旧文重发：川普会以组建新党作为获胜筹码吗？](/content/gnews/44/README.md)
+### [【三篇专栏】旧文重发：川普会以组建新党作为获胜筹码吗？](/content/gnews/45/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [[危机中的重生] 1月6日美国总统大选之决战时刻系列报导(7)](/content/gnews/45/README.md)
+### [[危机中的重生] 1月6日美国总统大选之决战时刻系列报导(7)](/content/gnews/46/README.md)
  ` 旧金山-金喜准农场`
 
-### [【危机中的重生】彭斯副总统的模棱两可态度激起民意反弹，汹涌人潮剑指国会山](/content/gnews/46/README.md)
+### [【危机中的重生】彭斯副总统的模棱两可态度激起民意反弹，汹涌人潮剑指国会山](/content/gnews/47/README.md)
  ` 旧金山-金喜准农场`
 
-### [世界各地藏人公开选举西藏流亡政府新领导人](/content/gnews/47/README.md)
+### [世界各地藏人公开选举西藏流亡政府新领导人](/content/gnews/48/README.md)
  ` HimalayaRussia`
-
-### [视频1/6/2021川普总统之子：没人相信拜登赢了大选，我们一家人将永远不会停止战斗](/content/gnews/48/README.md)
- ` 秘密翻译组G-Translators`
 

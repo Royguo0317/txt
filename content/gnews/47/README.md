@@ -1,29 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世界各地藏人公开选举西藏流亡政府新领导人
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/723748/)
+## 【危机中的重生】彭斯副总统的模棱两可态度激起民意反弹，汹涌人潮剑指国会山
+` 旧金山-金喜准农场` [轉載自GNews](https://gnews.org/zh-hans/723712/)
 
-俄罗斯莫斯科喀秋莎农场 银河
+新闻和图片搜集：Sharon, 理工男-文起，小雯 ，文舞 编撰：平民游侠
 
-编辑上传 星河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1405469032_08.jpg)archive.dalailama.ru
-自由亚洲电台1月4日报道，世界各地的流亡藏人自1月3日起开始新一届西藏流亡政府大选的投票日活动。
+彭斯副总统的声明显然没有表明要拒绝选举结果的意愿。这导致民众不满情绪高涨。很多推特用户直接给予了很不客气的评论。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Screenshot-from-2021-01-06-11-12-36.png)
+If you believe there’s fraud, you’re obligated to do everything in your power to protect the integrity of our election. Period. If you don’t believe there was fraud, be a man & say so. There’s no in between, as this day will define you. WE NEED YOU TO FIGHT FOR INTEGRITY AND THIS ELECTION — FORGET THE FUTURE AT THIS POINT, WE NEED TO FIX THE 2020 ELECTION OR WE ARE NO LONGER THE AMERICA AS WE ONCE KNEW!!!! DO YOUR SWORN DUTY TODAY AND SAVE OUR COUNTRY & OUR FREEDOM!!!! 如果您认为存在欺诈行为，则有义务尽其所能保护我们选举的完整性。 如果您不相信有欺诈行为，那就当个男人并说吧。 两者之间没有区别，因为这一天将定义您。 我们需要您为诚信和这次选举而战-在这个时刻忘记未来，我们需要确定2020年的选举，否则美国就不复存在了!!!! 您今天是否要履行职责，并拯救我们的国家和我们的自由！！！
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Screenshot-from-2021-01-06-12-04-49.png)
+Now we know for certain… He’s the enemy. Thanks for destroying my last hope there is good in government.
 
-哈佛大学毕业的法律学者洛桑森格自2011年以来已连续两届担任藏人中央政府司政，将于2021年5月任期结束后离职。洛桑森格表示，”我们以此向北京传达明确信号，西藏虽然处于被占领状态，但流亡藏人是自由的。如果有选择的机会和条件，我们选择民主。”
+现在我们确定谁是我们的敌人了。你毁掉了我对政府的最后希望。
 
-生活在26个国家约8万名藏人报名参加2021年选举。印度，作为西藏流亡人口最大的聚集地，在达兰萨拉开设了16个投票站。其他国家的选举也在同步进行。值得关注的是来自《西藏在线杂志》报道，据尼泊尔人权组织(Human Rights Organization of Nepal)消息，在尼泊尔有5名藏人因为投票活动被拘捕，因为投票的时间正好赶上中共国中联部副部长郭业洲对尼伯尔的访问。在该组织向警察局提出申诉后，被捕藏人于同日被释放。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/2017-04-04-Guwahati-GG04_DSC5991.jpg)ru.dalailama.com
-此次为首轮投票，将选出角逐政府领导人职位的两名候选人 。第二轮最终选举将于4月举行，获胜者将成为西藏中央政府下一任领袖，任期5年。
+—————————————————————————————————————–
 
-中共政府不承认成立于1959年的藏人流亡政府。自2010年以来，中共拒绝与藏人领袖达赖喇嘛的代表进行任何对话。
+华盛顿挺川群众正在涌向国会山，试图进入议会大楼，与警察发生小规模冲突。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/index.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/01/23423.jpeg)
+——————————————————————————————————————–
 
-这次选举意义重大。美国总统川普签署了《2020西藏政策与支持法案》（Tibetan Policy and Support Act ，TPSA），强调美国将在西藏主要城市拉萨（Lhasa）设立美国领事馆、呼吁保护西藏环境，提议中共政府与达赖喇嘛进行平等对话。
+华盛顿市长Muriel Bowser宣布实行宵禁。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Screenshot_20210106-114539_Twitter.jpeg)
+美国的历史将真的改变了！
 
-西藏流亡政府主席洛桑桑杰在接受路透社时表示，“通过TPSA，国会已经响亮而明确地发出了它的信息，即西藏仍然是美国的优先事项，美国将继续坚定地支持达赖喇嘛和西藏流亡政府（Central Tibetan Administration，CTA）”，这是西藏自由斗争的胜利。
+人民不答应大选舞弊冲进国会，参众两院全部撤离，选票认证会议中断。事实上从这一刻起，美国已经出现了第三大党 MAGA，走在最前面的是美国宗教信仰的力量。人民不认可民主党和共和党建制派！这就是民意的力量！这就是美国政局的重建！
 
-参考链接：
 
-[https://www.rfa.org/english/news/tibet/election-01042021200854.html](https://www.rfa.org/english/news/tibet/election-01042021200854.html)
 
-0
++1

@@ -1,36 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选实况】1/6/2021 Ted Cruz推文：任何暴力行为，尤其是对抗执法行为，都应受到充分起诉
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723963/)
+## 「突发」1/6川普支持者占领美国国会
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/723789/)
 
-![Sen. Ted Cruz]()![Sen. Ted Cruz](https://nypost.com/wp-content/uploads/sites/2/2021/01/210102-ted-cruz-election.jpg?quality=90&amp;strip=all&amp;w=618&amp;h=410&amp;crop=1)来源：Olivier Douliery/Pool/AFP via Getty Images
-1月6日下午近两点钟，得克萨斯州参议员Ted Cruz推文：“暴力永远是不可接受的，哪怕激情再高。任何暴力行为，尤其是对抗执法的行为，都应受到充分起诉。愿上帝保佑首都的警察和尊敬的执法人员，他们展现出极大的勇气，确保我们所有人的安全。”
+编辑：wenwu 素材来源：旧金山（筹备）准农场
 
+今日川普呼吁副总统彭斯推翻拜登的选举人团选票。据Douglas Braff在Saraacarter.com在当天的报道，美国副总统彭斯发表声明拒绝美国总统川普的呼吁，推翻2020年美国总统当选人拜登的大选胜利。在外等待的川普支持者生气的冲进了国会大楼。
 
+- ![]()![](https://gnews.org/wp-content/uploads/2021/01/image1-16.jpg)
+- ![]()![](https://gnews.org/wp-content/uploads/2021/01/image3-1.jpg)
+- ![]()![](https://gnews.org/wp-content/uploads/2021/01/image2-5.jpg)
+- ![]()![](https://gnews.org/wp-content/uploads/2021/01/image0-1-17.jpg)
 
-> Violence is always unacceptable. Even when passions run high.
-> 
-> Anyone engaged in violence—especially against law enforcement—should be fully prosecuted. 
-> 
-> God bless the Capitol Police and the honorable men & women of law enforcement who show great courage keeping all of us safe.
-> — Ted Cruz (@tedcruz) [January 6, 2021](https://twitter.com/tedcruz/status/1346906229189341184?ref_src=twsrc%5Etfw)
+FOX和CNN相继报道川普支持者在1月6日国会开票当天闯进了国会大楼。据ONA报道有一名女士的胸口中枪
+国家是由人民交税养活的。如今美国国会无视大选舞弊，加上GA参议员选举的欺诈选票让美国大选舞弊大戏再演绎一遍，美国人气炸了。今天在国会面前能聚集数十万公民已经证明美国人不是傻瓜，和要求真相的心情。
 
+今日爆料革命的开创者郭文贵先生也相当关注1月6日美国国会大选的进展。郭文贵先生在GTV.org的个人直播账户中看到美国人冲进国会大楼后，表示：
 
-
-参议员Ted Cruz另外一条推文说到，“那些冲进国会大厦的人需要立即停止！宪法保护的是和平抗议，但是暴力（无论是左派还是右派）总是错误的！那些从事暴力活动的人恰恰正在伤害他们自己所支持的东西（法律与秩序）。”
-
-
-
-> Those storming the Capitol need to stop NOW. 
-> 
-> The Constitution protects peaceful protest, but violence—from Left or Right— is ALWAYS wrong.
-> 
-> And those engaged in violence are hurting the cause they say they support.
-> — Ted Cruz (@tedcruz) [January 6, 2021](https://twitter.com/tedcruz/status/1346911179042484230?ref_src=twsrc%5Etfw)
+1. 2020/1/20 总统大选出结果被打破了；
+2. 认证选票、和平过渡都取决川普总统，总统行政权力最大化；
+3. 国会被美国川普总统支持者占领，参众两院的运转不会在近期恢复；
+4. 川普可能提出验票和解散国会的总统行政命令；
+5. 美国第三党的成立，这背后力量是来自梵蒂冈宗教的秩序主义者“Party of LAW&ORDER”
+6. 今日国会有人会开枪（如图，ONA已报道）
 
 
 
-译者：卡拉马佐夫姐姐【㊙️翻Gnews原创组】
 
-0
+> I am asking for everyone at the U.S. Capitol to remain peaceful. No violence! Remember, WE are the Party of Law & Order – respect the Law and our great men and women in Blue. Thank you!
+> — Donald J. Trump (@realDonaldTrump) [January 6, 2021](https://twitter.com/realDonaldTrump/status/1346912780700577792?ref_src=twsrc%5Etfw)
+
+
+美国总统川普于今日当支持者闯入国会大楼后发推
+美国总统川普于下午3点13分钟在推特上表示：支持川普的蓝色大军是属于“Party of Law&Order”,我们希望在国会大楼里是和平，没有暴力。
+
+从CNN假媒体报道国会大楼就说明已经输了。如果主流媒体报道川普支持者在国会大楼是暴徒行为。那么230法案就必须实施了。推特更只让转推川普下午4点18分钟的推特,该视频只有1分钟左右，内容大致为：我明白你们很生气，对国会很失望，但我希望你们和平，和平的回家。
+
+今日见证美国民心，看到了美国人对选举真相的追求，让人热血沸腾。美国川普总统一定会和他的支持者共进退，如同香港的战士和香港共进退一般！不同的是美国川普总统在新中国联邦和美国信仰的支持下一定会赢。
+
+新闻来源： [https://saraacarter.com/breaking-pence-defies-trumps-calls-to-overturn-bidens-victory/](https://saraacarter.com/breaking-pence-defies-trumps-calls-to-overturn-bidens-victory/)
+
++2

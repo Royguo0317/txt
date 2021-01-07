@@ -1,45 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选实况】1/6/2021 朱利安尼先生推文：爱国者们请和平表达观点
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723867/)
+## [危机中的重生] 1月6日美国总统大选之决战时刻系列报导(9)
+` 旧金山-金喜准农场` [轉載自GNews](https://gnews.org/zh-hans/723828/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/rudygiulianidonaldtrumpukraine.jpg)来源：DON EMMERT/AFP/GETTY IMAGES
-川普总统私人律师、前纽约市长朱利安尼先生推文：“对于所有挑战选举欺诈的爱国者，川普总统希望您和平表达自己的观点，我们是崇尚‘法律与秩序’的一方，您站在正确的一边，无论从历史上看还是从法律上看。请您表示对所有人的尊重。”
+**川普总统的支持者，美国爱国者突发占领国会议会，现场精彩时刻照片分享**
 
+图片收集：小雯
 
+**大选舞弊的叛国者：这就是人民审判你。**
+![](https://lh4.googleusercontent.com/bwb4VqkEJ0azg0TsnRK067aMS9z7ifFZHamdDwD1ApmCzUt8g-h4CqOqnzB8YWwzZx6VBNo-rZTZ-d5fizI9Fppt9gfpL0Ldn_rgqcQK0nbkittOQ6xP0rlGX-dYroaMjayvxjQR)![](https://lh3.googleusercontent.com/TMut2ctezZtUXMbwbAypgexn3nYBO-bZSPii1C-GzwC1IeWQxi8GAayESFhRNWjGASq3CvTE1UA_NgXs5DC1DUzJboZILGCU1gF9HJOaPkI1Qz4yRupWavE2Esmldw1XEL9b_WTi)
+![](https://lh4.googleusercontent.com/bwyUCxJQFjA7sPjJwcLLhKcqhEssgOykNnofX01KtxZxvG1u8xa3KDvdeqLifOL1WmaDxYGHB3v07u7CAI5qSx3Q0BVdvC1QwPMl-k-v7pQhabfISaFU5R9Nq8kEwA4YUODvXmA5)
 
-> To all those patriots challenging the fraudulent election , 
-> 
-> POTUS wants you to EXPRESS YOUR OPINION PEACEFULLY,
-> 
-> We are the law and order party,
-> 
-> You are on the right side of the law and history.
-> 
-> Act with respect for all.
-> — Rudy W. Giuliani (@RudyGiuliani) [January 6, 2021](https://twitter.com/RudyGiuliani/status/1346907496875757575?ref_src=twsrc%5Etfw)
-
-
-
-俄亥俄州众议员Jim Jordan也呼吁大家冷静：“停止暴力。请支持首都警察。”
-
-
-
-> Stop the violence. Support Capitol Police.
-> — Rep. Jim Jordan (@Jim\_Jordan) [January 6, 2021](https://twitter.com/Jim_Jordan/status/1346909940812664834?ref_src=twsrc%5Etfw)
-
-
-
-爱荷华州资深参议员Chuck Grassley的团队发推报平安：“谢谢大家的关心。参议员Grassley现在在一个安全的地方。”
-
-
-
-> Thank you for your concern. Senator [@ChuckGrassley](https://twitter.com/ChuckGrassley?ref_src=twsrc%5Etfw) is in a secure location.
-> — Sen. Grassley Press (@GrassleyPress) [January 6, 2021](https://twitter.com/GrassleyPress/status/1346915858409517056?ref_src=twsrc%5Etfw)
-
-
-
-译者：卡拉马佐夫姐姐【㊙️翻Gnews原创组】
-
-+1
+![](https://lh6.googleusercontent.com/7gNk894VBIMJ5-HXWed0x543OzuEMMUKc7iwtlo1Nrgwn8whMz05ZEd6PUHumthv_tzeGhlpRDuWoAsdWMW0DKZqM3Cvu2Pmf59wqXcjRylZt1E7zzgFze6PkwPieEW8tlSs83Dz)
+![](https://lh5.googleusercontent.com/3L-ZbLbbInQN4eMIqin4b26zeF2gArR-hlqf8AzgDTYJrbdc-TetNTgPuTiMiCubVc4RfeUa5TBrEi9IbhtUppA7qcQZhLgliI2mkFBYYtxCywKCgGoHfPb4zAyAKNIHKbQc9gvx)![](https://lh4.googleusercontent.com/GykBz4uHPUSGXI1O-463hs8NUjgjyGroVjzl1YVwHr51mcsZ1Jhpu8Sjw7dpo1ZrXgBjF0R5SetEgIVSvThpi4g2yw1EYamLScrb61--JBgSgXNkKVfSIYju5P5ewCOg91S0Ji8j)
++2

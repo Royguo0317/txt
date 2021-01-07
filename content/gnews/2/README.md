@@ -1,31 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国会被”攻占”川普呼吁人们和平回家
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/724245/)
+## 【大选实况】1/6/2021 佐治亚州两名参议院民主党候选人在悄无声息中双双获胜？
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/724292/)
 
-撰稿：Jenny
+![Jon Ossoff and the Rev. Raphael Warnock campaigning in Atlanta. Both defeated their Republican opponents, assuring that the balance of power in the Senate will shift.]()![Jon Ossoff and the Rev. Raphael Warnock campaigning in Atlanta. Both defeated their Republican opponents, assuring that the balance of power in the Senate will shift.](https://static01.nyt.com/images/2021/01/07/us/politics/05georgia-elections-blog-both-dems-win-hfo/5georgia-elections-blog-both-dems-win-hfo-articleLarge.jpg?quality=75&amp;auto=webp&amp;disable=upscale)
+1月6日下午五点多，左派媒体开始争相报道佐治亚州参议院民主党候选人沃诺克（Ossoff） 宣布战胜自己的共和党对手戴维-珀杜（David Perdue）。而奥索夫（Raphael Warnoc）也已经宣布战胜对手凯利-莱夫勒（Kelly Leoffler）。
 
-视频剪辑：文远
-选自推特
-川普发推呼吁人们结束和平示威回家。
+而诡异的是，两人基本上重复炮制了11月3日总统大选夜的情况。都在双双落后的情况下后来者居上，超越和击败自己的对手。
 
-他说：“我知道你很痛苦、很受伤。我们有一场被偷窃了的选举，那是一场我们取得压倒性的胜利的选举，每一个人都知道，尤其是我们的对手。
-
-“但是，你现在必须回家。我们一定要保持和平，我们一定要遵守法律和秩序，我们一定要尊重我们伟大的守法的公民们，我们不希望任何人受伤，这是一个艰难的时刻，我们身处如未有过的艰难时刻，这样的事情从未出现过，他们可以就这么轻易的从你，我，我们的国家把这一切拿走，这是一场支离破碎的“选举，但是我们不能落入这些人的陷阱中。我们必须保持和平。回家吧，我们爱你们，你很特别，你已经看到了，那些人是如何行动的，很糟糕很魔鬼般的疯狂，我知道你们的感受，但是，回家去吧，平平安安的回家去吧。”
-
-[据《大纪元》报道](https://www.epochtimes.com/gb/21/1/4/n12664729.htm)，彭斯当天主持国会认证下一届总统，但是在会议进行约2小时，抗议者冲入国会大厦， 与警察爆发冲突。认证总统的程序暂停。川普呼吁保持和平，首都市长下令宵禁。
-
-目前，国会山戒严，国会大厦已被封锁；彭斯走出国会大厦，众议员辩论时突然离开会场。彭斯被护送转移。
-
-白宫发言人麦肯纳尼（Kayleigh McEnany）发推文说，按照总统川普的指示，国民警卫队正在赶赴DC的路上。
-
-林伍德发推：该视频很好的解释了宪法，行使和平集会《第一修正案》。
+美东时间早上12点30分玛丽亚·巴蒂罗莫在推特写到，主流媒体 “拒绝报道 “沃诺克（Warnoc）、奥索夫（Ossoff）的激进问题。这与他们获胜后积极报道形成了鲜明对比。而华盛顿观察（Washington Examiner）更是把这个结果形容为对川普总统的第二次人民公决。
 
 
 
-视频来自推特，互联网。
+> Mainstream media 'refused to cover' radical issues with Warnock, Ossoff: Hogan Gidley [https://t.co/ma4vC6oP2Z](https://t.co/ma4vC6oP2Z) [@MorningsMaria](https://twitter.com/MorningsMaria?ref_src=twsrc%5Etfw) [@FoxBusiness](https://twitter.com/FoxBusiness?ref_src=twsrc%5Etfw) || On Parler @Mariabartiromotv
+> — Maria Bartiromo (@MariaBartiromo) [January 6, 2021](https://twitter.com/MariaBartiromo/status/1346870418301444096?ref_src=twsrc%5Etfw)
 
-部分消息原因大纪元：https://www.epochtimes.com/gb/21/1/4/n12664729.htm
-![]()![](https://gnews.org/wp-content/uploads/2021/01/澳喜图标.png)
+
+
+为什么主流媒体在之前对沃诺克与奥索夫的社会主义与共产主义反人性立场视而不见听而不闻呢？他们在媒体和左派民主党人的纵容与包庇中，悄无声息地攫取了两个最关键的参议院的位置。还美其名曰是第二次人民公决。美国人民会答应这种公然的对法律、公平的践踏与无视吗？
+
+
+
+> Georgia Democrat [@ossoff](https://twitter.com/ossoff?ref_src=twsrc%5Etfw) defeated Republican [@sendavidperdue](https://twitter.com/sendavidperdue?ref_src=twsrc%5Etfw) for a seat in the U.S. Senate.
+> 
+> The Georgia Senate wins were seen as a second referendum on [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw), two months after he lost to [@JoeBiden](https://twitter.com/JoeBiden?ref_src=twsrc%5Etfw).[https://t.co/tnMgrKJu1R](https://t.co/tnMgrKJu1R)
+> — Washington Examiner (@dcexaminer) [January 6, 2021](https://twitter.com/dcexaminer/status/1346940502772502528?ref_src=twsrc%5Etfw)
+
+
+
+作者：Skagen、Shawn【㊙️翻Gnews原创组】
+
 0
