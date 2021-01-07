@@ -1,55 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爱国者突破警察防线，五角大楼拒绝将国民警卫队部署到美国国会大厦的请求
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/725111/)
+## 《路德时评》重磅解读国会发生的事件将如何发酵，以及美国即将制裁腾讯与阿里巴巴
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/725343/)
 
-翻译：康州盘古农场–一花一世界
-
-校对：康州盘古农场-黎明的光芒
-
-审核：康州盘古农场-V
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-10.png)
-据报道，由于爱国者突破警察防线冲进（国会）大楼，五角大楼拒绝了将国民警卫队部署到美国国会大厦的请求。
+直播視頻：
 
 
 
-> BREAKING: A source tells me The Defense Department has just denied a request by DC officials to deploy the National Guard to the US Capitol.
-> — Aaron C. Davis (@byaaroncdavis) [January 6, 2021](https://twitter.com/byaaroncdavis/status/1346908166030766080?ref_src=twsrc%5Etfw)
+
+
+《路德时评》2021年1月6日晚间节目主要内容：
+
+一、今天下午国会发生事情全程回顾，接下来将会如何进行下去？
+
+今天华盛顿DC有无数大事发生，现在消息比较混乱，也有很多误导性消息。
+
+事件回顾：
+
+美国1月6日下午开始对亚利桑那州选票进行质疑，随后进入双方辩论和举证，当时听到消息有示威者已经入侵国会山，随后事件持续发酵，暴力示威者强行闯入国会大厦，所有议员开始通过地下通道进行撤离，最后示威者占据国会大厦数小时，部分示威者携带武器且行动过激，遭到警察枪击，出现伤亡，更有激进者在国会中安装爆炸物，随后特警进驻清场，数人被逮捕。刚刚得到的消息，国会山中的议员重新开始辩论。
+
+各国媒体都对此事感到非常震惊，媒体普遍报道这些骚乱者都是川普总统的支持者，甚至有些媒体将这些暴力行为与川普总统绑架在一起，而川普总统一直在督促民众要和平示威，他在推特发送的演讲视频和几条信息都被推特公司封锁，其个人推特账号也被封锁。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/川普总统.jpg)[图片地址](https://pgw.udn.com.tw/gw/photo.php?u=https://uc.udn.com.tw/photo/2020/11/03/realtime/9002754.jpg&amp;x=0&amp;y=0&amp;sw=0&amp;sh=0&amp;sl=W&amp;fw=800&amp;exp=3600)
+
+
+路德社评论：
+
+1、这次暴力示威游行非常蹊跷，因为川普总统始终希望通过法律途径调查大选舞弊案，此前川普总统的支持者都是和平示威，美国国会山历史上首次被示威者占领，主流媒体与社交媒体都一边倒地借此攻击川普总统，也有几位议员趁机发起弹劾川普总统的议案；
+
+2、这就是场心理战，是针对川普总统和所有参与辩论的参议员发起的心理战，只要川普总统心理上不认输，看清中共的邪恶，反击随时可以开始；
+
+3、路德社爆料川普总统团队成员还在开会商讨如何应对现在出现的示威行动，参议员们也在等川普总统的最新消息，川普总统上任美国总统不只是民众的支持，他上台还代表着背后各种支持灭共的势力；
+
+4、这场示威活动也在提醒所有议员，如果他们不认真认证选票结果将面临严重后果，今天所有媒体以及麦康奈尔错误并故意地将这些示威者定义为暴徒对川普总统极为有利，民意将继续被挑起，事态越来越紧张，双方势力都押上了全部筹码，现在就是一场生死之战；
+
+5、中共透过对梵蒂冈教廷、人类文化界顶层人物的渗透就是要颠覆人类文明，这场终极之战的较量会异常激烈；
+
+6、所有战友不要轻易被网络媒体的虚假报道所误导，这件事的本质就是一场战争而不是一场大选，美国国家情报总监还没有公布此次美国大选的调查结果；
+
+7、CNN最新消息称，川普总统和朱利安尼先生依然没有投降，将战斗到底。
+
+二、腾讯与阿里巴巴将被强制退市
+
+Zerohedge 1月6日报道，美国正考虑将腾讯与阿里巴巴列入中国股票禁令中[1]。
 
 
 
-*突发：* *一位消息人士告诉我，* *国防部刚刚拒绝了华盛顿特区官员在美国国会部署国民警卫队的请求。*
-
-*— Aaron C. Davis**（**@byaaroncdavis**）**2021**年**1**月**6**日*
-
-** **周三，在副总统迈克·彭斯说他不会阻止拜登的选举团计票之后，一切都爆发了。
-
-爱国者进入国会大厦，迫使彭斯和所有立法者要么撤离，要么就地避难。
-
-据报道，爱国者欲闯入议会大厅，在和警方武装对峙期间，美国参议院会议厅中有人开枪射击。
+> \*U.S. CONSIDERS ADDING ALIBABA, TENCENT TO CHINA STOCK BAN: DJ
+> — zerohedge (@zerohedge) [January 6, 2021](https://twitter.com/zerohedge/status/1346901070849703936?ref_src=twsrc%5Etfw)
 
 
 
-> Inside House chamber right now [pic.twitter.com/yOk1yWpnT7](https://t.co/yOk1yWpnT7)
-> — Zak Hudak (@cbszak) [January 6, 2021](https://twitter.com/cbszak/status/1346905890927095813?ref_src=twsrc%5Etfw)
+纽交所表示将继续推进将三家中国电信公司清退出美国股市。
 
 
 
-*现众议院内**–**扎克**· pic.twitter.com/yOk1yWpnT7*
+> \*NYSE TO PROCEED WITH DELISTING THREE CHINESE TELECOM COMPANIES
+> 
+> OMG
+> — zerohedge (@zerohedge) [January 6, 2021](https://twitter.com/zerohedge/status/1346822007887962115?ref_src=twsrc%5Etfw)
 
-*—**达克* *（**@cbszak**）**2021**年**1**月**6**日*
 
-电视直播中显示，一名妇女被放上担架抬出大楼，满身是血。
 
-为应对此突然爆发事件，华盛顿特区市长穆里尔·鲍瑟（Muriel Bowser）决定6点钟开始实行宵禁。
+1、腾讯与阿里巴巴的数量级远超过这三家电信公司，这两家企业是中概股中的龙头股，一旦被清除出美国股市将严重打击中共国，他们现在唯一的期望就是拜登上台后能取消这些制裁令；
 
-原文作者：克里斯蒂娜·莱拉（Cristina Laila）
+2、阿里巴巴此前配合中共进行反垄断调查的局已毫无意义，美国政府早已经查清阿里巴巴就是由中共军方控制的企业；
 
-发布时间：1/6/2021
+3、阿里巴巴是中共国在世界建立得最成功的网上商业帝国，在全球各地设置电子交易，背后的支付系统可以直接在海外进行购物和换汇，在许多国家获得金融牌照，给中共国吸收大量外汇，由此可以看到，中共大势已去;
 
-原文链接: [https://www.thegatewaypundit.com/2021/01/breaking-report-pentagon-denies-request-deploy-national-guard-us-capitol-patriots-overwhelm-police/](https://www.thegatewaypundit.com/2021/01/breaking-report-pentagon-denies-request-deploy-national-guard-us-capitol-patriots-overwhelm-police/)
+4、当阿里巴巴消失后，中共国的银行也会相继倒下，一旦全世界货币与人民币脱钩的时候，人民币就将成为废纸。
 
-+1
+点击观看往期《路德时评》节目总结文章
+
+参考文章：
+
+[1]https://twitter.com/zerohedge/status/1346901070849703936
+
+[2]https://twitter.com/zerohedge/status/1346822007887962115
+
+文章撰写：【重生】  编辑：【香柏树】
+
+0

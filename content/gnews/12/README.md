@@ -1,21 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 华盛顿时报：经面部识别系统确认本周三袭击美国国会大厦的并非川普总统支持者而是极左暴力集团“antifa”组织的成员
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/726238/)
+## 推特暂停了川普总统的账户，威胁将其全部删除
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/726196/)
 
-**【日本大阪方舟农场】**翻译&编辑：樱花树上摘苹果 校对：miumiu law
+加拿大多伦多枫叶农场 小溪
+校对 上传 云起时
+![]()![](https://gnews.org/wp-content/uploads/2021/01/fox.png)图片来源：Foxnews
+据国家脉搏（The National Pulse）新闻网1月6日报道， 由杰克·多尔西（Jack Dorsey）运营的推特这项社交网络服务曾压制了亨特•拜登硬盘和中共病毒的信息，现在又暂停了美国总统的帐户。周三晚在美国国会大厦出现混乱场面后推特宣布：
 
-**“Indisputable photographic evidence that antifa violently broke into Congress today to inflict harm & do damage. NOT @realDonaldTrump supporters.**
+“由于华盛顿特区史无前例的持续暴力局势，我们已要求删除三条@ realDonaldTrump（@realDonaldTrump为川普总统推特账户） 的推文，这是今天早些时候发布的，因为它们屡次严重违反我们的公民诚信政策。这意味着在删除这些推文后，@ realDonaldTrump的帐户将被锁定12个小时。如果未删除推文，则该帐户将保持锁定状态。”
+![]()![](https://gnews.org/wp-content/uploads/2021/01/5-10.jpg)图片来源：Twitter
+在有人闯入美国国会大厦，一个人被警察杀死后，川普总统在推特上发布了一段呼吁和平的视频。片刻之后推特就发布了这个消息，随后威胁要暂停川普总统拥有8900万关注者帐户：
 
-**Do not be fooled. Trump supporters are peaceful. It was antifa that created the violence in our cities over the past several months.”**
+“如果继续违反推特规则，包括我们的公民诚信或暴力威胁政策，将导致@realDonaldTrump帐户永久停用。”
 
-**— Lin Wood (@LLinWood) January 6, 2021**
+国家脉博也指出位于白宫附近的手机目前无法正常工作，许多居民和政府雇员报告说，他们无法使用华盛顿特区市区的手机。
 
-以上是林伍德律师1月6日在社交媒体平台Parler上发出的推文，他针对周三美国国会大厦发生的一切，阐述了自己的观点，推文指出“无可争辩的摄影证据证明是“antifa”组织成员暴力闯进了国会并造成了伤害和破坏。”并发出提醒：“别被骗了。川普的支持者是和平的。在过去的几个月中，正是“antifa”组织对我们的城市实施了暴力。”同日美国《华盛顿时报》发表了一篇报道，报道中提到川普总统的支持者发现“antifa”组织成员混进了川普总统支持者的队伍，闯进了国会大厦并进行了破坏。一位退休的军官告诉《华盛顿时报》，基于AI技术分析视频内容的一家美国初创公司XRVision，使用其面部识别系统对两名费城“antifa”组织成员与参议院内部的两名男子进行了匹配。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/図1.1.png)
-XRVision表示，两个人中有一个是“antifa”组织成员，他身上印有斯大林主义支持者样式的纹身。“antifa”组织伸张暴力，无视政府，并希望用斯大林主义能够终结美国；另一位在之前的黑名贵（BLM）运动的抗议中也被目击过。
+川普总统及其选民曾呼吁共和党人限制大科技公司的权力长达五年之久。 但多数人拒绝了，许多保守组织继续从大科技公司那里收取大量现金，替他们在华盛顿特区游说。
 
-参考链接：原文引自华盛顿时报网页版[https://www.washingtontimes.com/news/2021/jan/6/xrvision-firm-claims-antifa-infiltrated-protesters/](https://www.washingtontimes.com/news/2021/jan/6/xrvision-firm-claims-antifa-infiltrated-protesters/)
+评：
 
-+1
+2020年的美国总统大选终于迎来了1月6日万众瞩目的这一天，也着着实实的上演了从“滑”到“稽”的一幕。其中之一就是：美国总统的账户居然被推特公司给封锁了。
+
+要知道根据美国法律，无论选举结果如何，1月6日川普总统还是现任美国总统，堂堂的全球第一大强国，第一大民主国家的总统，三军统帅，居然被推特这个网络社交媒体公司给噤声12小时，并且威胁如不删除三条推文要永久封号。被要求删除的推文不过是呼吁其支持者们要和平，劝告他们回家的一个简短的小视频而已。
+
+推特公司的确太猖狂了，居然连川普总统的推特都被噤声，试想一下，还有谁不可以被噤声呢？为了一己私利和中共深度勾兑，不惜出卖国家和人民，仰仗网络媒体平台的垄断地位，在230条款的荫庇下，颠倒黑白，为所欲为，完全是一副“顺我者昌，逆我者亡”的嚣张。在他们眼里没有真相，更没有正义，有的只是利益，还只是眼前利益。
+
+为中共发声，替中共洗地；掩盖真相，替中共逃脱对病毒的追责；屏蔽拜登硬盘门信息，帮助中共扶植的傀儡乔•拜登洗白；引导网络舆论，散布虚假消息，操纵美国大选；纵容中共的水军，在网络上带风向，散布谣言，打压爆料革命。
+
+推特公司，你们从中共手中拿到的每一分钱都是滴着中国人血的脏钱，而卖掉的是公众对你们的信任，是你们的灵魂和未来。你们，就是这个世界的毒瘤加恶霸。此刻，我真的只想说：“垃圾推特，去死吧！”
+
+希望230条款能尽快被废除掉，让大科技公司无法无天的权力早日得到限制。也衷心希望我们的G-TV和G-News快快长大，尽快成长为有影响力，有凝聚力，被广泛使用和接受的大众媒体平台，吸引更多的来自世界各地的用户加入，成为一个世界性的、开放的、自由发声的社交媒体平台，让更多人看到真相，不再遭受蒙蔽、欺骗、打压和操纵。
+
+[原文链接](https://thenationalpulse.com/news/twitter-has-suspended-president-trumps-account-threatens-full-deletion/)
+
+0
