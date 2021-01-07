@@ -1,63 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国对印太地区的军事侵略
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/724008/)
+## 不到1月20号你千万千万不要有任何的决定！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/724081/)
 
-新闻来源：U.S. DEPARTMENT of STATE 《美国国务院》； 作者：美国国务院； 发布时间：2020年12月3日
+新闻简述：郭先生在2021年1月4日的GTV直播中说，共产党在备战，因为知道它挡不住全世界灭共的步伐。他也告诫所有人在1月20日之前“千万千万不要有任何的决定”，暗示1月20日之前任何事情都有可能发生，并且爆料革命是这场大戏的主角，对这场戏有一定的掌控力。
+视频来源：[https://gtv.org/video/id=5ff32a75f579a75e0bc3ee01](https://gtv.org/video/id=5ff32a75f579a75e0bc3ee01) (00:49:15-00:50:11, 00:50:33-00:50:55)
+**中英文对照全文**
 
-翻译/简评：狙击手维克多；校对/审核：万人往；Page：小雨
+The Whistleblower Movement has come to this day. Why is the CCP now shouting for preparing for the war, preparing for the war?! Its “preparing for the war” means that it knows that even in the situation when it owns the whole world’s presidents, it still can’t stop the tide of talking down the CCP! Let alone the assumed situation is impossible, it is absolutely impossible!
 
-[!\[\]()!\[\](https://spark.adobe.com/page/bm5jiDLZKOy67/images/cf0ccfdd-9d7c-422d-b596-a61ef2970580.jpg?asset_id=ac64b37e-ee89-496b-84d4-812faa0185af&amp;img_etag=%2202d44dab8f68e33b658c1a269b9cad09%22&amp;size=2560)](https://spark.adobe.com/page/bm5jiDLZKOy67/images/cf0ccfdd-9d7c-422d-b596-a61ef2970580.jpg?asset_id=ac64b37e-ee89-496b-84d4-812faa0185af&amp;img_etag=%2202d44dab8f68e33b658c1a269b9cad09%22&amp;size=1024)
+爆料革命到今天，为啥共产党现在大量喊备战、备战呢？！它这备战它知道就是任何情况下全世界都是它的总统啦，它也挡不住全世界灭共的步伐！何况那是不可能的、那是绝对不可能的对吧！
 
-#### **简评：**
+After seeing Tom Cotton’s Twitter, I was super happy. Yesterday afternoon, I told Mr. Giuliani and Mr. Bannon, “Tom Cotton will definitely quit.” They said, “Impossible.” I was right again – pure luck, right? Don’t make any decisions before January 20th! I say it again, don’t make any decisions before January 20th! So, brothers and sisters and those who are watching the show in the audience, don’t be too involved in the show and feel too desperate. Don’t be like that! Not to mention, in the end, we are one of the leading actors in this show! We still need to bring the show back!
 
-近些年，“霸凌”成了中共国社会的高频词汇。“强权即公理”本是几十年前中共党宣对“帝国主义铁蹄”的描述，现在竟成了中共国社会内部以强凌弱的日常写照，同时也是中共国外交政策的纪实描述——这是合理的。从小被当成“狗崽子”的习，长大以后也崇拜“强权即公理”，以至于“战狼外交”大行其道。
+你看这个 Tom Cotton 的推特以后我特别开心。我昨天下午跟朱利安尼、班农先生我还说，我说：Tom Cotton 他一定会退出的。他说：不可能。又让我说准啦，蒙的蒙的，是吧？！不到1月20号你们都不要有任何的决定！我再说一遍，不到1月20号，你千万千万不要有任何的决定！所以说兄弟姐妹们，咱们现在在台底下看戏的人，啊，别被一场戏给左右啦，要死要活的，那可千万别这样！何况最终这个唱戏的主角咱们还是其中之一啦！咱们还得把这戏给扳回来呢！
 
-谭嗣同曾说：“幸而中国之兵不强也，向使海军如英法，陆军如俄德【…】，彼白人、红人、黑人、棕色人，将为准噶尔，欲尚存瞧类焉得乎？”（幸亏清国的军事不够强大，如果海军如英法、陆军如俄德，【…】全世界的白人黑人红人棕人，全都会像准噶尔人一样，连人种都被我们灭掉）。
+*【感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/718110/](https://gnews.org/zh-hans/718110/)】*
 
-国人受中共洗脑毒害百年，他们的自尊玻璃心与民族狂热并存，这种文化和心态既不可能铸造出真正伟大的国家，也与三千多年的文明传承不相匹配。北洋水师亦曾飞扬跋扈，甲午一败，致使中国此后百年几乎没有海军。百年建军，一朝覆灭——这是昂贵又耗时的海军的作战特点，今日的中共国还要重复百年前的错误吗？
+翻译：【Cyndi】校对：【Isaiah4031】字幕：【相机过热啊】视频解码：【恒久忍耐】编辑：【Isaiah4031】
 
-文贵先生庄严提出，新中国联邦要与世界缔约“千年和平”，这才是真正强大的内心，真正伟大的智慧啊！
+喜马拉雅玫瑰园小队出品
 
-#### **原文翻译：**
+*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
 
-# 中共国对印太地区的军事侵略
-
-**关于中共国对印太地区的军事侵略**
-
-大部分印太地区国家都正在遭受来自中国共产党的军事和经济霸凌，后者提出非法的海域主张、威胁海上航道、破坏周边地区稳定。这种掠夺性行为增加了误判与冲突的风险，美国将与东南亚盟友及其他合作伙伴一道，捍卫印太地区的自由与开放。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/bm5jiDLZKOy67/images/eff159f8-3268-4882-9a47-f65c2f00540f.jpg?asset_id=d14c58c9-59a6-4fe5-a95e-6a855a554c6b&amp;img_etag=%223996addc0454f64a950dc4c90e361967%22&amp;size=1024)](https://spark.adobe.com/page/bm5jiDLZKOy67/images/eff159f8-3268-4882-9a47-f65c2f00540f.jpg?asset_id=d14c58c9-59a6-4fe5-a95e-6a855a554c6b&amp;img_etag=%223996addc0454f64a950dc4c90e361967%22&amp;size=1024)
-
-*“中共国愈加频繁地利用其人造岛礁对周边国家进行骚扰，以削减东南亚沿海国家的海上石油、天然气开采和渔业工作。” — 史达伟 （主理国务卿）*
-
-**建立海外军事基地**
-
-在“一带一路”计划的倡议下，中共国持续海外军事扩张，以保障其经济利益和国家安全。具体而言，中共国正在建立全球物流系统，建设基础设施以便在更远距离投放中共军队，并维持其军事存在。中共国经常滥用东道国港口的商业条款，以商业行为掩盖军事行为，从而掩盖其建设海外设施的真实目的。例如，中共国官员多年以来一直表示，中共国永不寻求海外基地，然而2017年，他们在吉布提正式宣布设立海外基地。中共国将其在吉布提的设施称为后勤基地，尽管驻扎在当地的解放军海军陆战队已经装备了装甲车和火炮。
-
-在中共国实体陆续获得对各国港口及其他设施的访问权和控制权的过程中，各国发现自己可能在无意中支持了中共国的军事扩张行为，从而也支持了北京的修正主义地缘政治目标。例如，有媒体详细阐述了中共国与柬埔寨之间达成的秘密军事协议。中共国在柬埔寨的军事存在可能威胁东盟地位和地区稳定。此外，它还可能破坏和平解决争端、促进海域安全与保障、航行及飞行自由的前景。
-
-迄今为止，中共国军事扩张的影响在南中国海最为强烈，尽管习主席于2015年明确承诺不将南沙群岛军事化，但中共国仍在南海建立了多个基地。目前，北京正利用这些据点增加对东南亚沿海国家的恐吓与胁迫，破坏这些国家根据国际法行驶主权的努力。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/bm5jiDLZKOy67/images/096c06a1-db15-479c-83da-184f9fcdf33c.jpg?asset_id=53e32823-0d1b-44a3-9e1b-8bc8184df66d&amp;img_etag=%22395b4ecf03911a4b59b286c7e458b35b%22&amp;size=1024)](https://spark.adobe.com/page/bm5jiDLZKOy67/images/096c06a1-db15-479c-83da-184f9fcdf33c.jpg?asset_id=53e32823-0d1b-44a3-9e1b-8bc8184df66d&amp;img_etag=%22395b4ecf03911a4b59b286c7e458b35b%22&amp;size=1024)
-
-*“世界不会容许中共国将南中国海视为其海洋帝国版图的一部分。”——迈克•彭佩奥（国务卿）*
-
-**盗取南中国海自然资源**
-
-针对中共国对南中国海大部分区域的海上资源的非法主张，多个国家均已表示谴责。北京则利用恐吓手段破坏东南亚沿海国家在南中国海的主权，包括强制将其从海上资源区域驱离、胁迫船只脱离航线、确定单边统治、剥夺渔民生计等。中共国正寻求以“强权即公理”取代国际法规。中共国将其单方面意愿强加于该地区的行为是没有法律依据的，2009年，中共国官方正式宣布其“九段线”的领土主张，但没有提供任何恰当的法律依据。2016年7月12日，根据1982年《联合国海洋法公约》成立的仲裁庭一致裁定：中共国在南中国海的大部分海事主张不具有国际法律依据，仲裁庭拒绝接受，中共国是该《公约》的缔约国之一。
-
-不会容许中共国将南中国海视为其海洋帝国版图的一部分。美国将以国际法规定的权利和义务为基础，与东南亚盟友及其他合作伙伴们站在一起，维护它们对海上资源的国家主权。美国将与国际社会一道，捍卫海洋自由，拒绝将“强权即公理”强加到南中国海及更广泛地区的任何行为。
-
-[原文链接](https://www.state.gov/chinas-military-aggression-in-the-indo-pacific-region/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【喜马拉雅战鹰团】[-点击spark adobe版](https://spark.adobe.com/page/bm5jiDLZKOy67/)
-[!\[\]()!\[\](https://spark.adobe.com/page/bm5jiDLZKOy67/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/bm5jiDLZKOy67/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

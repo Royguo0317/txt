@@ -1,31 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国会被”攻占”川普呼吁人们和平回家
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/724245/)
+## 【大选实况】1/6/2021 推特公司封杀川普呼吁抗议者和平回家的视频
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/724441/)
 
-撰稿：Jenny
+![r/censorship - Twitter Censorship]()![r/censorship - Twitter Censorship](https://preview.redd.it/57yfmxfbdia21.jpg?width=960&amp;crop=smart&amp;auto=webp&amp;s=5a317ac0ce63c9b8e576273a0bae2ac14d2f7263)
+来源：Reddit
 
-视频剪辑：文远
-选自推特
-川普发推呼吁人们结束和平示威回家。
-
-他说：“我知道你很痛苦、很受伤。我们有一场被偷窃了的选举，那是一场我们取得压倒性的胜利的选举，每一个人都知道，尤其是我们的对手。
-
-“但是，你现在必须回家。我们一定要保持和平，我们一定要遵守法律和秩序，我们一定要尊重我们伟大的守法的公民们，我们不希望任何人受伤，这是一个艰难的时刻，我们身处如未有过的艰难时刻，这样的事情从未出现过，他们可以就这么轻易的从你，我，我们的国家把这一切拿走，这是一场支离破碎的“选举，但是我们不能落入这些人的陷阱中。我们必须保持和平。回家吧，我们爱你们，你很特别，你已经看到了，那些人是如何行动的，很糟糕很魔鬼般的疯狂，我知道你们的感受，但是，回家去吧，平平安安的回家去吧。”
-
-[据《大纪元》报道](https://www.epochtimes.com/gb/21/1/4/n12664729.htm)，彭斯当天主持国会认证下一届总统，但是在会议进行约2小时，抗议者冲入国会大厦， 与警察爆发冲突。认证总统的程序暂停。川普呼吁保持和平，首都市长下令宵禁。
-
-目前，国会山戒严，国会大厦已被封锁；彭斯走出国会大厦，众议员辩论时突然离开会场。彭斯被护送转移。
-
-白宫发言人麦肯纳尼（Kayleigh McEnany）发推文说，按照总统川普的指示，国民警卫队正在赶赴DC的路上。
-
-林伍德发推：该视频很好的解释了宪法，行使和平集会《第一修正案》。
+据Breitbart 1月6号下午5点左右推特账号报道，推特公司封杀了川普的一个视频，视频中号召国会山的抗议者平静的分散回家。推特用户不能点赞，不能转推，也不能回复这个视频，理由是“引发暴力风险”。
 
 
 
-视频来自推特，互联网。
+> Twitter censored a video from President Donald Trump calling on protesters at the U.S. capitol building to peacefully disperse and go home. Twitter users were prevented from liking, retweeting, or replying to the tweet because of a “risk of violence.” [https://t.co/2zz23J0jmu](https://t.co/2zz23J0jmu)
+> — Breitbart News (@BreitbartNews) [January 6, 2021](https://twitter.com/BreitbartNews/status/1346946371744657413?ref_src=twsrc%5Etfw)
 
-部分消息原因大纪元：https://www.epochtimes.com/gb/21/1/4/n12664729.htm
-![]()![](https://gnews.org/wp-content/uploads/2021/01/澳喜图标.png)
+
+
+翻译报道：DG 【㊙️翻Gnews原创组】
+
 0

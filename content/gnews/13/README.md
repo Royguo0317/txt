@@ -1,61 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 民众聚集在华盛顿特区参加 &#8220;拯救美国 &#8220;集会
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/724249/)
+## 【热点播报】国会大厦被占领，两声枪响预示美国大选即将尘埃落定？
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/724258/)
 
-翻译：康州盘古农场-黎明的光芒
+**作者：香草山写作组 wilson **
 
-校对：康州盘古农场-烟波浩淼
-
-编辑：康州盘古农场-V
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-9.png)2021年1月6日星期三，华盛顿，川普的支持者在集会前聚集在华盛顿纪念碑场地。(美联社图片/约翰·明奇洛)
-数千名爱国者已抵达华盛顿特区，参加 “拯救美国集会”，因为全国各地的公民继续要求对选举舞弊进行全面调查。
-
-集会参与者呼吁国会取消对有争议州的欺诈性选举结果的认证。乔·拜登宣称的胜利是非法的，民主党试图将其极左统治强加于人的做法将失败。
-
-*“**这件事会有结果的。我向你们宣布，唐纳德**·**川普将继续担任美利坚合众国总统。我们不会沦落到社会主义。我们不会堕落到共产主义。我们不会沦落到安提法。我们不会屈服于* *黑命贵事件。我们将**自**始至终向万王之王，万军之主，* *阿尔法，欧米茄等鞠躬致敬。你听我的，你好好听我的。上帝在美国仍然是上帝。我可以得到一个见证吗？阿门。**“*
-
-*–**牧师格雷格**·洛克**（**Greg Locke, pastor**）**–**全球愿景圣经教会**（**Global Vision Bible Church**）*
-
-川普总统对外界的支持做出了回应，他向示威者保证，他认可他们的所有情绪。他说：”美国人已经受够了激进的左派民主党人试图窃取选举。”
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
 
 
-> [#HappeningNow](https://twitter.com/hashtag/HappeningNow?src=hash&amp;ref_src=twsrc%5Etfw): Historic crowds in Washington DC in support of President Trump and honest elections. [@OANN](https://twitter.com/OANN?ref_src=twsrc%5Etfw) [pic.twitter.com/d3ytJTCeDv](https://t.co/d3ytJTCeDv)
-> — Jenn Pellegrino OAN 🇺🇸 (@JennPellegrino) [January 6, 2021](https://twitter.com/JennPellegrino/status/1346813560320614400?ref_src=twsrc%5Etfw)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/3-13.jpg)
+据2021年1月6号GTV报道，今天为了反对拜登盗窃美国大选，聚集首都华盛顿的川普总统支持者包围了国会，并于下午2时许，1000余人冲破警察设置的多层防护栏，冲进国会大厦。
+
+据悉，背叛了川普总统的彭斯副总统从秘密通道仓惶逃窜，政治生命可能就此结束。
+
+国会被占领，参众两院决定选举人票的有关程序全部中断，国会职能实际上已经瘫痪，美国的三权独立无限期结束，权力全部集中在行政首脑即川普总统手上。
+两个多月以來，支持川普总统的7500万正直选民(实际不止于此)，一直反对拜登非法窃取选举，却屡遭左媒及参众两院建制派的愚弄践踏。美国宪法规定，人民有推翻非法政权的权利。
+
+国会是立法机构，系美国的最高权力机关，彻底觉醒的人民占领国会大厦，是履行宪法赋予的神圣权力。
+
+约下午二时，在包围国会大厦的密集人群中，响起两声枪响，据悉一名女子中枪，情况危急。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-19.jpg)
+随后川普出动国民警卫队，并连续发布两个推文，要求占领国会大厦的人民支持警察和执法人员，保持和平。不要使用暴力，请记住，我们是法律与秩序的党——请尊重法律和我们伟大的穿蓝色制服的人们(警察)。谢谢大家！
+
+郭先生在直播中介绍，国会被占领后，川普大权在握，可以行使比反叛法、动乱法更高的权力，但川普首先要求对六个摇摆州重新合法计票，对于得道多助并且大权在握的川普而言，已经完全掌握主动权，预示川普连任即将尘埃落定，川普要求重新计票是给对手的敬酒。
+
+今天的枪声将被永远载入史册。
+
+华盛顿今晚6点之后宣布戒严。
 
 
 
-*詹妮**·佩莱格里诺 OAN @ Jenn Pellegrino*
+校对发稿：悟空
 
-*正在发生：历史性的人群在华盛顿特区支持总统川普和诚实的选举。**@OANN*
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-*上午**1：39·2021年1月6日*
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-周二，总统声称，国家的国会大厦已被不再接受它的人所淹没。此外，他还警告安提法成员不要进入华盛顿特区。 此前，特朗普总统继续推动将安提法定为恐怖组织。
-
-
-
-> Washington is being inundated with people who don’t want to see an election victory stolen by emboldened Radical Left Democrats. Our Country has had enough, they won’t take it anymore! We hear you (and love you) from the Oval Office. MAKE AMERICA GREAT AGAIN!
-> — Donald J. Trump (@realDonaldTrump) [January 5, 2021](https://twitter.com/realDonaldTrump/status/1346578706437963777?ref_src=twsrc%5Etfw)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2.jpg)
 
 
 
-*唐纳德**·J·川普 @realDonaldTrump*
 
-*华盛顿的人越来越多，他们不想看到选举胜利被胆大妄为的激进左派民主党人窃取。我们的国家已经受够了，他们不会再忍受了**! 我們在椭圆辦公室听到你們的声音（也爱你们）。让美国再次伟大！*
 
-*下午**4:05·2021年1月5日*
-
-同时，他将在国会召开选举人票数投票时，向支持者人群发表讲话。《美国第一新闻》（OAN）将对总统的讲话进行全面报道。
-
-原文作者：OAN新闻中心
-
-发布时间：1/6/2021
-
-原文链接：
-
-[https://www.oann.com/citizens-gather-in-washington-d-c-for-save-america-rally/](https://www.oann.com/citizens-gather-in-washington-d-c-for-save-america-rally/)
-
-0
++2

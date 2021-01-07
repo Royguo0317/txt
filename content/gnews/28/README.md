@@ -1,98 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 会计，财报，审计入门基础与介绍（九）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/723909/)
+## War Room 632 总结
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/724095/)
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/WX20201228-134452@2x.png)Picture Source: https://www.groomassocies.com
-在第九篇中是继详细展示财务审计所涉及资产负债表中各项目内容后的具体量化分析步骤与逻辑流程。有助于投资人或审计师依照逻辑且合理的量化程序对于财务报表中的资产负债表进行检阅。
+- 编辑：Ranting
+- 作者：Jenny Ball
 
-一Common-size analysis of the Balance Sheet 包含每一项占总资产的百分比
 
-二Balance Sheet Ratio 仅包含资产负债表中的项目
+**路易·高莫特（Louie Gohmert****）**美国得克萨斯议员：副总统的裁定将直接产生影响。两个亚利桑那州的共和党人诉讼原告人，都应该立案，但不立案似乎是法院再次避免真正采取行动的廉价方式。
 
-三Liquidity Ratio 短期债务偿付能力
-![]()![](https://gnews.org/wp-content/uploads/2021/01/表1.png)
-四Solvency Ratio 长期债务偿付能力
-![]()![](https://gnews.org/wp-content/uploads/2021/01/表2.png)
-五Classification of Cash Flow and Non-cash Activities
+但是这些诉讼很重要。现在大多数媒体，显然超过90％不报道，欺诈指控的行为没有被揭穿，但那是真正的欺诈，并且有各种欺诈的真实证据。
 
-1.运营活动Operating Activities:
+我必须指出，我们实际在11月赢得了民众投票，尽管共和党在很多年都没有这个结果，但这次实实在在的发生了，您不必到处去寻找什么政治噱头来吸引更多人，因为我们已经赢得大众投票，而且是创纪录的压倒多数。我们的总统以民众支持赢得了连任。
 
-2.Create Revenue（Inventory， Service，………）
+但是，同样如此具有历史意义的是，我们见识了如此广泛的欺诈行为。
 
-3.Cash Receipts and any payments that related to Dealing security or Trading security
+副总裁确实有责任，有拒绝的责任。有权同意当然意味着也有权不同意。如果您看一下宪法的撰写，这个意思显而易见，他们会理解，副总统不仅是数票，如果是那样，我们就不要副总统来点票了，找个办事员就行了。
 
-4.投资活动Investing Activities：
+明天我不能代表每个人说话，但是我可以向众多的人讲话，我和他们一起努力为明天做准备，这个团队已经做好了充分的准备。
 
-5.Purchase and Selling Long-term Asset and other investment
+**斯佩罗（Rabbi Spero****），犹太基督教教父**，《推回》（Push Back）的作者：现在一切都处于危险之中。这很关键！一个候选人是乔·拜登（Joe Biden），他不相信犹太基督教，无底线。一个候选人是川普总统，尽管他不是每天去教堂，但他不是统治者，而且深刻地相信犹太教基督教徒的精神。
 
-6.Property, Plant, Equipment
+川普相信地方政府管理，保守派也是如此。而拜登和克林顿，奥巴马，以及他们周围的所有人，他们都不相信地方政府的控制权，他们不相信美国人民应该决定自己的命运，他们是相信中央控制权的精英主义者。这些人，希望他们会当选，他们是跨国的全球化主义者。
 
-7.资产的出售损失不计入在内，影响收入，但是不影响现金流
+他们相信，他们操控我们应有的权利，看着整个美国各州所发生的一切，甚至是道德观念，圣经道德观念。他们不相信伴随我们长大的这些罪恶和美德的观念，他们有一个全新的罪恶清单，那些都与他们成长的性格塑造无关。因此说，现在一切都处于危险之中。
 
-8.融资活动Financing Activities：
+**迈克·彭斯（Mike Pence****）**是一位了不起的人，也许这是他的历史性时刻，也是神圣任命的时刻。我要说的，请你坚强，您拥有宪法，您拥有事实，我们不能允许这个国家由欺诈来决定！彭斯副总统，请做正确的事。
 
-9.Include Obtaining or Repaying capital
+**彼得·纳瓦罗（Peter Navarro****）**，在总统身边，是白宫中最坚定的平民民族主义经济学者。他的新报告出来了。
 
-10.Non-Cash Transaction: Does not involve an inflow or outflow of cash
+**马可·鲁比奥**，你必须为自己的决定付出代价，要看到，川普将是一个了不起的候选人。
 
-11.由于可能影响公司的资本 / 资产结构
+**明天在华盛顿特区，有许多来自**
+停止窃取
+自由抗议
+转折点行动
+保护法治基金
+美国妈妈
+美国优先妇女团
+和平集会茶党爱国者
+黑人保守派基金
+**还会有许多的演讲者。**
 
-12.因此任何重大非现金交易都应在单独在附录或现金流补充表中给与披露
 
-13.Separate Note / Supplement Schedule
 
-14.Non-monetary Asset非货币资产互换
-
-15.Common Stock for dividend
-
-16.Convertible Bond
-
-17.Convertible Preferred Stock
-
-六Summary of differences Between IFRS and US GAAP
-![]()![](https://gnews.org/wp-content/uploads/2021/01/表3.png)
-七Direct and Indirect Methods for Reporting Chas flow from Operating Activities
-
-1.Chas Flow From Operating Activities：
-
-2.Net Amount of Cash Flow provided from operating activities
-
-3.Direct Method：（更受欢迎对于IFRS / US GAAP / 分析师 / 贷方）
-
-4.Specific Cash Inflows and Outflows / Result in reported cash flow from operating activities
-
-5.US GAAP虽然鼓励直接法，但仍要求净收入和现金流之间的对账（相当于间接法）
-
-6.主要争论优势Primary Argument
-
-7.直接方法提供了具体的运营活动现金付款和收款的来源
-
-8.Provide Information on specific sources of operating cash receipt and payment
-
-9.Indirect Method：How Cash Flow can be obtained from reported Net Income as the result of a series of adjustment
-
-八Indirect-Format Cash flow statement Prepared under IFRS
-
-Operating Activities 要求被体现，而且要求从净收入开始（Net Income）
-
-九Direct-format cash Flow Statement Prepared under IFRS
-
-Investing / Financing Section 要求被体现
-
-十Illustration of Cash Flow statement prepared under US GAAP
-
-Operating Activities 要求体现Indirect-Format
-
-十一Linkages with the Balance Sheet
-![]()![](https://gnews.org/wp-content/uploads/2021/01/表4.png)
-十二Linkages with the Income Statement
-![]()![](https://gnews.org/wp-content/uploads/2021/01/表5.png)
-Author：搞笑排行榜
-
-Original opinion article by Himalaya G-farm Vancouver
-
-2021/01/06
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
 0

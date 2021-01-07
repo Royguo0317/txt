@@ -1,20 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选实况】国会山一片混乱：100余人冲进国会大厦后，有一人中枪
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/723901/)
+## War Room 633 总结
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/723942/)
 
-![Demonstrators enter the U.S. Capitol after breaching security fencing during a protest in Washington, D.C., U.S., on Wednesday, Jan. 6, 2021. The U.S. Capitol was placed under lockdown and Vice President Mike Pence left the floor of Congress as hundreds of protesters swarmed past barricades surrounding the building where lawmakers were debating Joe Biden's victory in the Electoral College.]()![Demonstrators enter the U.S. Capitol after breaching security fencing during a protest in Washington, D.C., U.S., on Wednesday, Jan. 6, 2021. The U.S. Capitol was placed under lockdown and Vice President Mike Pence left the floor of Congress as hundreds of protesters swarmed past barricades surrounding the building where lawmakers were debating Joe Biden's victory in the Electoral College.](https://www.hindustantimes.com/rf/image_size_960x540/HT/p2/2021/01/07/Pictures/protests-presidential-result-session-election-congress-confirms_d1ec8bfa-505f-11eb-8a1e-473a39b025b8.jpg)来源: Bloomberg
-据新闻网站zerohedge报道，在100余人冲进国会大厦之后，有一人中枪，还有1000余人在国会大厦外和平抗议，彭斯副总统目前在一个安全的地方，首都在今晚六点之后宣布戒严。
-
-
-
-新闻来源
-
-[One Person Shot After Protesters Storm Capitol; Trump Urges “Stay Peaceful”](https://www.zerohedge.com/political/capitol-hill-staffers-ordered-evacuate-after-protesters-breach-security)
-
-翻译报道：卡拉马佐夫姐姐【㊙️翻Gnews原创组】
+- 编辑：Ranting
+- 作者：Jenny Ball
 
 
+乔·拜登（Joe Biden）自己公开说：“我们组建了美国政治史上最庞大的选民欺诈组织。”
+
+明天将建一个宏伟的舞台。总统将在11点上台，他不是发表集会演说，我相信，这将是他捍卫自己巨大胜利的开场白。
+
+纵观世界，将军们和海军上将联名在9月，10月致信川普总统，他们之中有250位参加过自朝鲜战争以来所有的战争，他们表示，这是共和国历史上最重要的选举。
+
+这也是中国五千年历史上最重要的选举。《南华早报》今天上午报道，习近平主席说，做好战争准备。请记住，他们已经在与我们交战，是经济超限战，信息超限战。 毫无疑问，是CCP病毒引发的宪法危机。
+
+这些非法的选举结果都要交由立法者认证，明天这些选举结果将变得更加清楚。从宾夕法尼亚州的葛底斯堡舞厅听证会，到马里科帕县的集会，我们一层一层地，一步一步地，日复一日地，正在逐步地将这些力量融合在一起。
+
+为什么特别要回到州立法者？因为这是宪法赋予州立法者的权力。
+
+**约翰·弗雷德里克（John Fredericks****）**：明天4点听证会。如果法官同意的话，这意味着十，二十，三十万张选票是不真实的。每个宣誓证人都说有许多伪造选票，只是数目多少。如果法官认同，州议会将召集会议，而副总统迈克·彭斯（Mike Pence）将根据所有证据将乔治亚的认证撤消。佐治亚州的十六张选举人票，将投给川普。
+
+今天的参议员竞选，非常悬。
+
+**班农先生**：参议员有十三名将挑战选举结果，众议院中有160名参议员说他们要挑战，只有36名确认。人们会记住他们的名字。如果只有36人，我不知道凯文·麦卡锡（Kevin McCarthy）少数党领袖都干了什么。马·鲁比奥（Mark Rubio）没表态，你决定的最后期限仅几个小时了。
+
+**乔什·霍利（Josh Hawley****）**是建制派选的新秀，事实证明他看到了川普的平民民族主义，他觉醒了。霍利透露，安提法分子在华盛顿他家外面，要求他放弃选举挑战，他的妻子和新生儿都在家里。米奇·麦康奈尔（Mitch McConnel），州警察在哪里？ 其他的参议员们为什么对此沉默？
+
+《真实美国的声音》撰稿人**本·伯夸姆（Ben Bergquam）**在华盛顿自由广场集会上：如果这次选举被盗，就不会有2024年的大选。抗议的人们希望在1月6日：
+
+- 彭斯副总统有勇气站起来，做宪法赋予他应该做的正确的事；
+- 看到法院做他们应该做的事；
+- 他们希望看到那些懦弱的参议员，不要说什么在法院中没有立案，这是我们国家的未来，每个对宪法宣誓就职的人，都有义务在力所能及的范围内尽一切可能纠正欺诈，消除欺诈。
+
+
+这只是包围我们国家大战的开始。现在，你要么是爱国者，要么是叛徒，这是国家的鸿沟。人民在看到你们，正在看着你们的行动，人民会记住你们都做了什么。如果你还打算在2022年，2024年有饭碗，但现在不站出来，那就别想了。
+
+人们醒来了，这要归功于作战室，以及《真实美国的声音》这样的网络节目。
+
+**重大新闻**：宾夕法尼亚州立法机关的多数党领袖金·沃德明确表示，宾夕法尼亚州的结果不应该得到认证，并要求更多时间以便最高法院审理此案，他们通过第77号法案的行为违宪。宾夕法尼亚州众议院8名议员表示，此结果应取消资格。爱国者们终于行动了。
+
+**班农先生**：《偷窃的艺术》今天出版。将发送给每个州立法者人手一份，他们阅读后将完全理解。偷窃大揭密都在报告里。记住，决胜重心仍是州立法者。
+
+**彼得·纳瓦罗（Peter Navarro****）**：很多人看完《完美的欺骗》之后都会相信，在亚利桑那州，乔治亚州，密歇根州，内华达州这几个战场州各种各样的选举违规行为，基本上可以在选举之夜偷走川普的选票，才出现了这些虚假的，极小差别的拜登胜利。
+
+人们看过后说，哇，你太神了，他们盗走了选举，但是人们一直问我，他们是怎么做到的？因此，我在过去几周中所做的事情，深度解析他们的宏大战略。这一切的发生都是在CCP病毒的掩护下催化出来的。
+
+而且，这个阴谋在2015年川普胜选的那一刻就开始了，邮寄选票的策略。这实际上大幅提高缺席和邮件选票的数量，因为我们知道，这类选票是最简单的舞弊方式。
+
+但与此同时，他们也在增加保护措施达到目的，比如以政治为借口削弱警察。警察少了，犯罪率就会高，这样基本上摆脱了选举时的警察保护，所以有更多欺诈行为，对吗？
+
+因此，有一系列策略导致整个战场州出现大量的非法选票。多有趣，他们使用合法和非法手段相结合来达到非法的结果。
+
+我为什么这么说？民主党实施了非常复杂的策略，例如扎克伯格，索罗斯，他们战略性地参与到六个州的整个过程，改变法律以改变规则，改变选举指导方针，有时他们是合法的，但有时他们会变更或违反法律。他们协调一致，用这些缺席选票淹没这些摇摆州。
+
+每个人都应该读读这个报告，因为它是证据收据，阅读后，就可以确切地看清他们是如何做的一切的。因为我通过对他们执行该策略的机制和技巧进行分解，逐个分析他们如何增加选票并减少审查，展示了他们如何使用全民投票法案以及各种各样的手段。这是最复杂的袭击，我形容这个盗窃是带暗器铁钉的拳头打到美国人民的脸上，踢到美国民主胯部的一脚。这就是民主党所做的。
+
+**明天将是共和国历史上最具历史意义的一天。明天我们需要做什么？坚守阵地，对这个欺诈进行调查，以确保我们不会在就职典礼时，让一个非法的，违宪的人成为总统**。
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
 0

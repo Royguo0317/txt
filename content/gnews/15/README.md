@@ -1,18 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [危机中的重生] 1月6日美国总统大选之决战时刻系列报导(11)
-` 旧金山-金喜准农场` [轉載自GNews](https://gnews.org/zh-hans/724189/)
+## 民众聚集在华盛顿特区参加 &#8220;拯救美国 &#8220;集会
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/724249/)
 
-**新中国联邦已成为了影响世界的一股重要力量，影响着整盘国际大棋局**
+翻译：康州盘古农场-黎明的光芒
 
-撰文：文真真 Summer 图片1：Jin Wang，图片2：天機
+校对：康州盘古农场-烟波浩淼
 
-1月6日，郭先生和新中国联邦的战友们在美国国会表决的决战48小时中，一同见证了美国的历史时刻。在6日早上彭斯副总统没有勇气担负他的历史责任把决定权推给国会，而在5日开始的乔治亚中的两个参议院席位又被舞弊偷走之后，站在川普总统身后的除了国会中的一些爱国者之外，只有8千万坚定的挺川人民。而此时，他们感到已经无从选择。以MAGA组织为重要组成部分的拯救美国的游行人群，6日早上已经聚集华盛顿。忍无可忍的人民在见证某些国会议员的谎话连篇后，进入了国会，想要告诉世界，美国人民的总统是要体现民意的。不代表民意的立法机构，就不配也不能作为美国人民的立法机构。
-![President Trump and Mr. Miles Guo]()![President Trump and Mr. Miles Guo](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/10223812/Trump-Miles.jpg)**郭文贵：新中国联邦 — 国际大棋局中担当着举足轻重的角色**
-文贵先生道出了人民进入国会的深层意义：从此刻起，川普总统已经没有回头路了——要在监狱，地狱或者成为新的华盛顿之间做出选择！大家有的没有注意到：很多的共和党人已经是实质上的民主党派了。这就是CCP的伎俩。美国社会，政治也好，好莱坞也好，媒体也好，他们跟随的是资本。 川普拥有民意，但是没有（最大的）资本支持，如果要长期坚持下去，要把经济强大下去。有人提议和共产党勾兑来换取经济利益，我们已经见过川普过去四年被CCP玩弄。接下来会不会继续和中国共产党勾兑？还是和美国国内资本勾兑？
-文贵对此的解读是：接下来资本一定会重新洗牌。在二战后的资本重组的过程中，中国共产党甚至斯大林都是靠不上边儿的。而这次历史的重大转折时刻，新中国联邦已经是影响世界的重要力量，是国际大旗的一子。下面我们会变成布雷顿体系之一**\***。我们的新中国联邦以及我们二年多来一次又一次国际事件中积累的信用，（我们的实力）一步步在升级。有可能美国的政治力量会有新生力量产生，可能多个派别，这会让我们有很多的选择，对我们新中国联邦是有利的。
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/13170025/stock-photo-usa-and-china-trade-war-us-of-america-and-chinese-flags-crashed-containers-on-sky-at-sun.jpg)
-**（\* 笔者认为郭先生指的是Bretton Woods system二战后以美元为中心的国际货币体系，保留解读错误的可能）**
+编辑：康州盘古农场-V
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-9.png)2021年1月6日星期三，华盛顿，川普的支持者在集会前聚集在华盛顿纪念碑场地。(美联社图片/约翰·明奇洛)
+数千名爱国者已抵达华盛顿特区，参加 “拯救美国集会”，因为全国各地的公民继续要求对选举舞弊进行全面调查。
+
+集会参与者呼吁国会取消对有争议州的欺诈性选举结果的认证。乔·拜登宣称的胜利是非法的，民主党试图将其极左统治强加于人的做法将失败。
+
+*“**这件事会有结果的。我向你们宣布，唐纳德**·**川普将继续担任美利坚合众国总统。我们不会沦落到社会主义。我们不会堕落到共产主义。我们不会沦落到安提法。我们不会屈服于* *黑命贵事件。我们将**自**始至终向万王之王，万军之主，* *阿尔法，欧米茄等鞠躬致敬。你听我的，你好好听我的。上帝在美国仍然是上帝。我可以得到一个见证吗？阿门。**“*
+
+*–**牧师格雷格**·洛克**（**Greg Locke, pastor**）**–**全球愿景圣经教会**（**Global Vision Bible Church**）*
+
+川普总统对外界的支持做出了回应，他向示威者保证，他认可他们的所有情绪。他说：”美国人已经受够了激进的左派民主党人试图窃取选举。”
+
+
+
+> [#HappeningNow](https://twitter.com/hashtag/HappeningNow?src=hash&amp;ref_src=twsrc%5Etfw): Historic crowds in Washington DC in support of President Trump and honest elections. [@OANN](https://twitter.com/OANN?ref_src=twsrc%5Etfw) [pic.twitter.com/d3ytJTCeDv](https://t.co/d3ytJTCeDv)
+> — Jenn Pellegrino OAN 🇺🇸 (@JennPellegrino) [January 6, 2021](https://twitter.com/JennPellegrino/status/1346813560320614400?ref_src=twsrc%5Etfw)
+
+
+
+*詹妮**·佩莱格里诺 OAN @ Jenn Pellegrino*
+
+*正在发生：历史性的人群在华盛顿特区支持总统川普和诚实的选举。**@OANN*
+
+*上午**1：39·2021年1月6日*
+
+周二，总统声称，国家的国会大厦已被不再接受它的人所淹没。此外，他还警告安提法成员不要进入华盛顿特区。 此前，特朗普总统继续推动将安提法定为恐怖组织。
+
+
+
+> Washington is being inundated with people who don’t want to see an election victory stolen by emboldened Radical Left Democrats. Our Country has had enough, they won’t take it anymore! We hear you (and love you) from the Oval Office. MAKE AMERICA GREAT AGAIN!
+> — Donald J. Trump (@realDonaldTrump) [January 5, 2021](https://twitter.com/realDonaldTrump/status/1346578706437963777?ref_src=twsrc%5Etfw)
+
+
+
+*唐纳德**·J·川普 @realDonaldTrump*
+
+*华盛顿的人越来越多，他们不想看到选举胜利被胆大妄为的激进左派民主党人窃取。我们的国家已经受够了，他们不会再忍受了**! 我們在椭圆辦公室听到你們的声音（也爱你们）。让美国再次伟大！*
+
+*下午**4:05·2021年1月5日*
+
+同时，他将在国会召开选举人票数投票时，向支持者人群发表讲话。《美国第一新闻》（OAN）将对总统的讲话进行全面报道。
+
+原文作者：OAN新闻中心
+
+发布时间：1/6/2021
+
+原文链接：
+
+[https://www.oann.com/citizens-gather-in-washington-d-c-for-save-america-rally/](https://www.oann.com/citizens-gather-in-washington-d-c-for-save-america-rally/)
 
 0

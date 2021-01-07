@@ -1,35 +1,98 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《经济学人》等大外宣试图将马云失踪原因洗白
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/724006/)
+## 会计，财报，审计入门基础与介绍（九）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/723909/)
 
-*加拿大多伦多枫叶农场 Kent*
+![]()![](https://gnews.org/wp-content/uploads/2020/12/WX20201228-134452@2x.png)Picture Source: https://www.groomassocies.com
+在第九篇中是继详细展示财务审计所涉及资产负债表中各项目内容后的具体量化分析步骤与逻辑流程。有助于投资人或审计师依照逻辑且合理的量化程序对于财务报表中的资产负债表进行检阅。
 
-*校对、发稿 文锦*
-![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图364.png) 
-新闻周刊《经济学人》（The Economist）称近来马云被中共盯上并失踪的事，是由于中共为了加大反垄断监管和促进良性竞争，大众一片哗然。
+一Common-size analysis of the Balance Sheet 包含每一项占总资产的百分比
 
-据《国家脉搏》2021年1月5日报道，马云曾经是中共国最有受欢迎以及最具影响力的企业家之一，他及其商业帝国一直对中共俯首称臣，多家新闻媒体近日来一直在报道他的失踪。
+二Balance Sheet Ratio 仅包含资产负债表中的项目
 
-《经济学人》，它和大多数全球主义机构一样长期活跃于中共国，也像大多数中共的内外宣传媒体一样，正在为现代纳粹党中共将马云消失的事情找借口。
+三Liquidity Ratio 短期债务偿付能力
+![]()![](https://gnews.org/wp-content/uploads/2021/01/表1.png)
+四Solvency Ratio 长期债务偿付能力
+![]()![](https://gnews.org/wp-content/uploads/2021/01/表2.png)
+五Classification of Cash Flow and Non-cash Activities
 
-1月2日，《经济学人》发表的文章再次尝试为中共洗白：
+1.运营活动Operating Activities:
 
-“中共国处于监管的前沿，12月24日有消息称，信托机构正在调查阿里巴巴，该公司由中共国最著名的企业家马云创办，直到几周前还是其最有价值的上市公司。人们很容易将对马云的镇压看作是共产党残酷权力的又一次展示，这可能是一部分原因，然而主要原因是因为中共国的反垄断监管机构正致力于促进公平竞争、打击垄断。”
+2.Create Revenue（Inventory， Service，………）
 
-路透社本周报道，阿里巴巴创始人马云在过去两个月里没有出现在公众视野中，包括错过了一档电视节目的最后一集，而他本应作为评委出现在节目中，在中共国监管部门对其庞大的商业帝国进行打压的情况下，这加剧了社交媒体对他下落的猜测。
+3.Cash Receipts and any payments that related to Dealing security or Trading security
 
-这位中共国知名度最高的企业家自10月底在上海举行的一个论坛上发表演讲抨击中共国的监管体系，这让他深陷泥潭，中共领导不会轻易让这个事情就这么过去，这也导致了阿里巴巴旗下的蚂蚁集团金融科技部门370亿美元的IPO被暂停，马云也一直没有再出现在公开场合。
+4.投资活动Investing Activities：
 
-2020年11月，《经济学人》曾发表文章对即将到来的中共国共产党成立100周年表示祝贺， 和大多数西方新闻机构一样，《经济学人》也接受了中共的赞助旅行以换取 “有利的报道”。
+5.Purchase and Selling Long-term Asset and other investment
 
-《国家脉搏》上周报导了《福布斯》、《金融时报》、《新闻周刊》、彭博社、路透社、ABC新闻、《经济学人》、《华尔街日报》、法新社、《时代》杂志、《洛杉矶时报》、《山丘》、BBC和《大西洋》如何被列入《外国代理人登记法》文件中，揭示了建制派媒体与中美交流基金会（CUSEF）之间长达10多年的关系。
+6.Property, Plant, Equipment
 
-中美交流基金会是一个中共资助的项目，它以美国媒体、政治家和大学为目标，提出资助政策研究、高层对话和交流项目，中美交流基金会及其在美国的游说伙伴将他们的工作描述为：“在全球最重要媒体上发表有利的研究，政策，报告以及高层对话和交流项目内容, 组织和安排人员到中共国进行 ‘相互了解的商务旅行’,这包括招募顶级记者前往中共国，然后挑选，促使产生出有效，以及有利报道的机会。”
+7.资产的出售损失不计入在内，影响收入，但是不影响现金流
 
-中共对全球媒体的控制和影响已经很深，人们越来越没办法在铺天盖地的假新闻中找到真相，希望人们总是抱有怀疑的目光，深入思考，听取不同声音，保持清醒，坚守人类最简单而纯粹的普世价值，相互尊重、相互理解。
+8.融资活动Financing Activities：
 
-*[原文链接](https://thenationalpulse.com/analysis/the-economist-refers-to-chinese-businessman-disappearance-as-regulation-and-boosting-competition/)*
+9.Include Obtaining or Repaying capital
+
+10.Non-Cash Transaction: Does not involve an inflow or outflow of cash
+
+11.由于可能影响公司的资本 / 资产结构
+
+12.因此任何重大非现金交易都应在单独在附录或现金流补充表中给与披露
+
+13.Separate Note / Supplement Schedule
+
+14.Non-monetary Asset非货币资产互换
+
+15.Common Stock for dividend
+
+16.Convertible Bond
+
+17.Convertible Preferred Stock
+
+六Summary of differences Between IFRS and US GAAP
+![]()![](https://gnews.org/wp-content/uploads/2021/01/表3.png)
+七Direct and Indirect Methods for Reporting Chas flow from Operating Activities
+
+1.Chas Flow From Operating Activities：
+
+2.Net Amount of Cash Flow provided from operating activities
+
+3.Direct Method：（更受欢迎对于IFRS / US GAAP / 分析师 / 贷方）
+
+4.Specific Cash Inflows and Outflows / Result in reported cash flow from operating activities
+
+5.US GAAP虽然鼓励直接法，但仍要求净收入和现金流之间的对账（相当于间接法）
+
+6.主要争论优势Primary Argument
+
+7.直接方法提供了具体的运营活动现金付款和收款的来源
+
+8.Provide Information on specific sources of operating cash receipt and payment
+
+9.Indirect Method：How Cash Flow can be obtained from reported Net Income as the result of a series of adjustment
+
+八Indirect-Format Cash flow statement Prepared under IFRS
+
+Operating Activities 要求被体现，而且要求从净收入开始（Net Income）
+
+九Direct-format cash Flow Statement Prepared under IFRS
+
+Investing / Financing Section 要求被体现
+
+十Illustration of Cash Flow statement prepared under US GAAP
+
+Operating Activities 要求体现Indirect-Format
+
+十一Linkages with the Balance Sheet
+![]()![](https://gnews.org/wp-content/uploads/2021/01/表4.png)
+十二Linkages with the Income Statement
+![]()![](https://gnews.org/wp-content/uploads/2021/01/表5.png)
+Author：搞笑排行榜
+
+Original opinion article by Himalaya G-farm Vancouver
+
+2021/01/06
 
 0

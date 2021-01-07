@@ -1,17 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [危机中的重生] 1月6日美国总统大选之决战时刻系列报导(9)
-` 旧金山-金喜准农场` [轉載自GNews](https://gnews.org/zh-hans/723828/)
+## 【热点播报】一位进入国会山的示威者被枪击
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/723943/)
 
-**川普总统的支持者，美国爱国者突发占领国会议会，现场精彩时刻照片分享**
+香草山写作组 村北
 
-图片收集：小雯
+美东时间一月六日因副总统彭斯在国会拒绝驳回拜登的选举人团，川普总统的支持者占领了国会山，迫使国会休会。下午两点，示威者在国会议院逗留的过程中，一名女性示威者被开枪击中。据称，开抢者是国会山的保卫人员。该女子可能被击中脖子或胸部。推特上的视频中显示该倒地女子口鼻和身下很快出现了大量血液。
 
-**大选舞弊的叛国者：这就是人民审判你。**
-![](https://lh4.googleusercontent.com/bwb4VqkEJ0azg0TsnRK067aMS9z7ifFZHamdDwD1ApmCzUt8g-h4CqOqnzB8YWwzZx6VBNo-rZTZ-d5fizI9Fppt9gfpL0Ldn_rgqcQK0nbkittOQ6xP0rlGX-dYroaMjayvxjQR)![](https://lh3.googleusercontent.com/TMut2ctezZtUXMbwbAypgexn3nYBO-bZSPii1C-GzwC1IeWQxi8GAayESFhRNWjGASq3CvTE1UA_NgXs5DC1DUzJboZILGCU1gF9HJOaPkI1Qz4yRupWavE2Esmldw1XEL9b_WTi)
-![](https://lh4.googleusercontent.com/bwyUCxJQFjA7sPjJwcLLhKcqhEssgOykNnofX01KtxZxvG1u8xa3KDvdeqLifOL1WmaDxYGHB3v07u7CAI5qSx3Q0BVdvC1QwPMl-k-v7pQhabfISaFU5R9Nq8kEwA4YUODvXmA5)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-06-at-4.13.18-PM.png)
 
-![](https://lh6.googleusercontent.com/7gNk894VBIMJ5-HXWed0x543OzuEMMUKc7iwtlo1Nrgwn8whMz05ZEd6PUHumthv_tzeGhlpRDuWoAsdWMW0DKZqM3Cvu2Pmf59wqXcjRylZt1E7zzgFze6PkwPieEW8tlSs83Dz)
-![](https://lh5.googleusercontent.com/3L-ZbLbbInQN4eMIqin4b26zeF2gArR-hlqf8AzgDTYJrbdc-TetNTgPuTiMiCubVc4RfeUa5TBrEi9IbhtUppA7qcQZhLgliI2mkFBYYtxCywKCgGoHfPb4zAyAKNIHKbQc9gvx)![](https://lh4.googleusercontent.com/GykBz4uHPUSGXI1O-463hs8NUjgjyGroVjzl1YVwHr51mcsZ1Jhpu8Sjw7dpo1ZrXgBjF0R5SetEgIVSvThpi4g2yw1EYamLScrb61--JBgSgXNkKVfSIYju5P5ewCOg91S0Ji8j)
-+2
+据郭文贵先生在GTV直播解释，国会山的状况瘫痪了国会，很有可能触发戒严法，将所有三权分立的局面打破，使川普总统的白宫成为美国唯一的权力中心，对美国和人类社会将来的命运意义深远。
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+0
