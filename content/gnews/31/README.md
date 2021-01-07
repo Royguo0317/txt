@@ -1,21 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP-Virus Pandemic Daily Updates EP335(JAN 05) &#8211; GNEWS
-` 新闻译制组` [轉載自GNews](https://gnews.org/zh-hans/724873/)
+## CCP病毒疫苗不良反应率已经是流感疫苗的50倍
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/724916/)
 
-President Trump tweeted that massive evidence of election fraud will be made public on January 6th, indicating the President’s confidence in winning his reelection.
+新闻来源：zerohedge
 
-Oil price in Communist China reached a 9-month high. Severe inflation is a certainty.
+编撰：喜马拉雅文白
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/image001-12.png)
+***简评：***
 
-The China Construction Bank sent text message ads offering four times interest rate to US dollar deposits. There is a shortage of USD.
+疫苗固然是最有效的预防措施，但针对CCP病毒的疫苗确不是这样的。全世界人民必须明白路德社直播多次提到的事情：一是针对CCP病毒的疫苗是否真正安全、有效？传统疫苗的研发需要5-10个月，CCP病毒爆发一年的时间，而疫苗的研发及临床试验则仅有几个月时间，其安全性并未经过长期的验证与评估！二是疫苗的ADE效应问题。从多次报道的二次感染情况来看，CCP病毒的ADE效应广泛存在，现有疫苗是否能够有效避免ADE效应？没有任何一家疫苗供应商进行过全面评估！三是病毒的来源与设计问题。如果不清楚这个病毒是由CCP制造并投放的，那么疫苗失效是早晚的事情。据01月06日的《自由时报》报道，由于CCP病毒变异传染力增強加上冬季有利于病毒传播，导致英国确诊案例急剧上升，每日确认人数上升到5万人以上。这从侧面验证了即使目前疫苗对原有的CCP病毒有效，也不能说明对变异的CCP病毒有效。更何况中共对CCP病毒这一生化武器的研究不只是一种毒株，中共再放出其它毒株或改造设计出来的病毒，也可以轻而易举的使现有疫苗失效。
 
-NetEase announced that Communist China will market the CCP virus vaccine to elderly people
+现在疫苗的上市是利益诱惑的结果，生物制药行业在全球范围都是垄断的，被少数的两三个集团和家族所控制。CCP病毒造成的经济伤害远超以往任何时期，而疫情直接带来灾难的同时却被中共邪恶体制与中共利益勾兑的邪恶力量所利用，借助人造灾难获取更大的权力、获取更大的利益。只有让更多的民众看清真相，更大的民意苏醒，意识到中共制造并释放这生物武器对世界造成的真实伤害，消灭中共的体制，才能研发出真正阻止病毒传播的疫苗。
 
-Iran says it will start to enrich uranium up to 20 percent.
+***原文翻译：***
 
-The CCP paid for key figures in Western media to come to China on familiarization trips.
+今早有报道称，又有一名原本健康的患者在注射第一剂COVID-19疫苗后突然死亡，即使大制药公司及其在美国和英国政府的盟友坚持认为疫苗是100%安全的，但欧洲和美国的许多怀疑者仍然对注射疫苗持保留态度，每一个宣称疫苗安全的人，不仅是错误的，而且是在故意恶意行事。
+
+这就是为什么像DoubleLine上的Jeffrey Gundlach发布的视频这样的评论，他在视频中质疑Moderna和辉瑞-BioNTech试验后公布的疗效数据会引起强烈的反驳。
+
+随着关于疗效和时间的新问题出现，美国最著名的怀疑论者之一的独立记者Alex Berenson在周二早些时候的twitter上指出，COVID-19疫苗出现严重或可能危及生命的反应的患者比例可能远高于CDC收集的数据。
+
+疾病预防控制中心的VAERS报告系统是为了追踪疫苗相关伤害而设立的，大多数患者可以预期会经历某种不良反应，对于绝大多数患者来说，症状会相对温和，并在几天内清除。但在急于报道患者死亡的情况下，Alex Berenson指出，每分发剂量的患者出现严重并发症的数量，大约是流感疫苗引起的 “不良 “反应率的50倍。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/image003-3.png)![]()![](https://www.gnews.org/wp-content/uploads/2021/01/image005-4.png)
+Berenson还推测，由于CDC的数据集更新可能出现延迟，这个数字可能会更高。这似乎可以证实在临床试验中看到的不良反应率。更重要的是，一般来说，临床试验往往会 “低估 “令人不快或不想要的副作用，而 “夸大”药物的疗效。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/image007-4.png)![]()![](https://www.gnews.org/wp-content/uploads/2021/01/image009-2.png)
+对于有兴趣的读者，Berenson分享了CDC数据的链接，在该机构的网站上并不容易找到。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/image012.png)
 
 
+[文章仅代表作者个人观点]
 
-0
+***[原文链接](https://www.zerohedge.com/covid-19/rate-adverse-reactions-covid-vaccines-already-50x-higher-flu-shot)***
+
++2

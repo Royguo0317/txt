@@ -1,25 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP-Virus Pandemic Daily Updates EP336(JAN 06) &#8211; GNEWS
-` 新闻译制组` [轉載自GNews](https://gnews.org/zh-hans/724897/)
+## 《路德社》每日简报早间版 2021.01.04–NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/717940/)
 
-President Trump tweeted: The “Surrender Caucus” within the Republican Party will go down in infamy as weak and ineffective “guardians” of our Nation, who were willing to accept the certification of fraudulent presidential numbers!
+出品《路德社》 编辑：路德社精选新闻专栏组
+![]()![](https://gnews.org/wp-content/uploads/2021/01/WhatsApp-Image-2021-01-05-at-18.07.27.jpeg)
+0**1/04/2021 路德时评（路安墨谈）**
 
-The razor fences around a locked-down community in Shenyang were like the ones in concentration camps.
+**习脑血管瘤手术顺利**
 
-The PLA’s medical teams entered Shenyang City. This illustrates how serious the pandemic is.
+习经过全麻完成了脑血管瘤介入手术，于一月四日签署中央军委2021年1号令。路德分析，习由于经过大手术需要一段时间恢复，所以作为新年签署的第一条命令只有文字报道，没有影像。而2018，2019，2020新年伊始习都现身于军队签署命令，以证明其牢牢掌控军队。路德社爆料习近况的原因：表明习的近况一直被爆料革命和美国所掌握，包括近期习不得不做介入手术，之前习对生物武器的指令等等。
 
-Sanitation workers in Communist China, who should be paid 650 RMB/month, haven’t received their salaries for eight months.
+**抢粮大战升级版即将出现**
 
-The US Department of State tweeted: The CCP undermines the international rule of law, detailing how the CCP’s actions upend global institutions to serve their own ambitions.
+中共媒体披露：中共现在的粮食，玉米等收购价格大幅上涨。另外，中共的种子与国外有巨大差距。就高产量的玉米而言，中共的玉米单产只有美国的58%。但是中共粮食总产量数据却比全机械化农业的美国还要高出许多。路德社之前分析过中共粮食产量造假：中共之前宣称的十八亿亩耕地红线，其中有大量土地被地方官员改成房地产卖钱。之前中共的“粮食充足”是因为中共可以大量进口粮食。而中美脱钩后中共怎么可能购买大量粮食填补缺口？中共的粮食怎么还能够吃？粮荒必将到来。
 
-If infection is not taken in the UK, national health service capacity may be overwhelmed within 21 days.
+**中共的粮食问题都是美国垄断企业导致的？**
 
-More and more lawmakers planned to object to the electoral college results.
+中共媒体宣称：全世界粮食交易都由四家粮食垄断企业控制。中共此举是在试图推卸自身粮食危机的责任。闭口不谈自己七十年无法解决种子问题，粮食问题，专利保护问题。如今粮食危机迫在眉睫却推脱说是他人垄断造成的，但同样都在粮食垄断的环境当中，这四家大鳄却无法控制日本的粮食产量和粮食市场。可见中共粮食危机的根本问题还是体制问题。
 
-Iranian naval vessels had seized a South Korean-flagged tanker and its crew in the Gulf.
+**媒体热议马云失踪**
 
+媒体造势报道马云消失时间线，意在暗指中共对马云有所打压。而中共对马云的打压只是周瑜打黄盖的一出戏码而已。路德分析：前日就移动等三家公司被摘牌事件，中共外交部商务部对此回应说这三家公司大量股份在各机构手中，股份市场流通很少，股价波动不大。其用意就是安抚各界，说这次摘牌对银行贷款影响不大，各界不必担心。由于中共在美上市的公司都大量使用杠杆圈钱，其账务早已危如累卵。而今安排这出周瑜打黄盖就是为了使阿里巴巴逃脱美国中概股的制裁。
 
+**马云失踪暗藏什么中共手法**
+
+马云无疑就是中共政府的代表。其曾来美国帮助中共洗钱，公关川普总统，运作郭先生遣返。马云凭借着流利的英语，借着互联网的大势成为了中共的“现代洋买办”。而中共也不是只选中了阿里巴巴去圈钱。搜狐，百度，腾讯都是中共照抄美国公司扶植的“民企”，然后去美国上市圈钱。马云作为中共圈钱的“心腹大将”这次失踪也是有意安排的。日后马云可能会“逃离”中共国，到海外掀起一番舆论，试图证明其是被中共打压迫害，其创立的阿里巴巴等企业和中共政府无关。
+
+文案：《路德社》简报组：**seiya** 瓦者
+审核校对：玫瑰天空
+上传排版：CharlieNZ查理
 
 0

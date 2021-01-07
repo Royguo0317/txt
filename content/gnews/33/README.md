@@ -1,50 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：数字人民币“可视卡”曝光，上海测试“硬钱包”方案
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/723297/)
+## CCP-Virus Pandemic Daily Updates EP336(JAN 06) &#8211; GNEWS
+` 新闻译制组` [轉載自GNews](https://gnews.org/zh-hans/724897/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
+President Trump tweeted: The “Surrender Caucus” within the Republican Party will go down in infamy as weak and ineffective “guardians” of our Nation, who were willing to accept the certification of fraudulent presidential numbers!
 
-据人民日报消息，在上海交通大学医学院附属同仁医院员工食堂，于亦鸣医生通过邮储银行的“可视卡”，在员工餐厅的支付终端上, 借助数字人民币“硬件钱包”实现点餐消费。
-![数字人民币“可视卡”曝光，上海测试“硬钱包”方案](https://p1-tt.byteimg.com/origin/pgc-image/58b636f57dcc44b291b500123a17787d?from=pc)
-“可视卡” 右上角有电子水墨屏窗口，可显示信息如下:
+The razor fences around a locked-down community in Shenyang were like the ones in concentration camps.
 
-- 消费金额
-- 余额
-- 离线可用次数
+The PLA’s medical teams entered Shenyang City. This illustrates how serious the pandemic is.
+
+Sanitation workers in Communist China, who should be paid 650 RMB/month, haven’t received their salaries for eight months.
+
+The US Department of State tweeted: The CCP undermines the international rule of law, detailing how the CCP’s actions upend global institutions to serve their own ambitions.
+
+If infection is not taken in the UK, national health service capacity may be overwhelmed within 21 days.
+
+More and more lawmakers planned to object to the electoral college results.
+
+Iranian naval vessels had seized a South Korean-flagged tanker and its crew in the Gulf.
 
 
-据移动支付网了解，“可视卡”等智能卡钱包属于数字人民币硬件钱包的一种,相当于可穿戴的钱包，可将其理解为常用的“交通卡”，需要提前向卡片进行充值才能进行消费，而这也是“双离线”支付的关键所在。
-
-“可视卡”实际上可分为普通可视卡、可视蓝牙卡两种。其通过NFC和蓝牙的方式与智能手机交互，完成充值等操作。未来可能ATM机以及一些自助终端也会改造升级，便于数字人民币 “硬件钱包” 的充值。
-
-同时，“可视卡”也支持“软钱包”，即只通过卡片绑定数字钱包账户，数字人民币仍然存储于服务器上。卡片通过蓝牙方式与智能手机进行交互，固定时间内同步账户信息。这种形式的可视卡实际上是与App中的数字人民币账户为同一个，账户信息需要在一定时间内进行同步，卡片除了蓝牙与智能手机交互同步数据之外，还可以在消费时与受理终端上传信息进行账户同步，并显示交易信息和余额。
-
-作者观点:
-
-问1：既然有交通卡、银行卡、手机微信、支付宝等各种支付工具/渠道支付， 为什么还需要这个“可视卡”呢？
-
-答：关键在于中共要全面割韭菜——掌控数字人民币。
-
-实现数字人民币支付、收取“双离线”。说白点，就算没有网络，也可实现支付。这比支付宝、微信的离线支付范围更广。
-
-方便大数据统计/AI控制每个人的衣食住行，方便跟踪货币流动，更方便中共及时冻结个人账户。
-
-问2：既然有纸币，又何必发行数字人民币呢？
-
-答：数字人民币极大缩短货币发行时间、降低造纸币的成本、纸币运输押运、保存兑换成本为0。几乎无成本就能发行流通，现在纸币1：1兑换为数字人民币，将来几比几兑换，不就是改个数字的事儿么。
-
-因为美国逐步跟中共国彻底脱钩了；全世界也渐渐看清了中共病毒邪恶的目的。中共国企、国有银行等倒闭迫在眉睫，中共信用将成为负数。数字人民币不仅能让百姓的钱绑死在中共银行里，随时可以被冻结或清零，还能成为中共割韭菜的工具——打上区块链、数字货币的股票都全线飘红。
-
-【文章仅限作者个人观点】
-
-[援引原文：](https://m.toutiao.com/is/JGypKYu/)
-
-本文作者：一切心皆不可得！
-
-审核校对：玫瑰天空
-
-上传排版：CharlieNZ查理
 
 0

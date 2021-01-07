@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普展示密西根州的证据
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/724305/)
+## 【粤语】1/4/2021文贵：不到1月20号都不要有任何的决定
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/724845/)
 
-By： 【秘密翻译组 G-Translators – 精翻组】
-
+制作：Cantonese工作室
+统筹：【文武全才】 剪輯：【咸鱼】 【文桥】 配音：【文尼9527】 文本【Jacky】 字幕：【文桥】
 0

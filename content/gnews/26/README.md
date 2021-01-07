@@ -1,34 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国首相发推呼吁权利和平交接
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/724863/)
+## 川普敦促蓬佩奥将Antifa归类为恐怖组织
+` pmzy` [轉載自GNews](https://gnews.org/zh-hans/724990/)
 
-撰稿：Jenny
-![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_6765.jpg)推特截图
-英国首相4个小时前发推：发生在美国国会的（暴乱）场面是可耻的。 美国代表着世界各地的民主，现在至关重要的是，应该和平有序地转移权力。
+翻译：文顾 审核：pmzy
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Antifa-in-Portland-640x480-640x480-1.jpg)
+川普总统正在敦促国务卿蓬佩奥将安提法（Antifa）组织定为恐怖组织，以防止其成员进入该国。
 
-他的推特底下立马一石激起千层浪，班农作战室的Raheem Kassam 立即回怼：
-
-“您的政府将人们锁在家里，而您则经常监禁记者和举报人。 你是不是先把这些搞掂才好？”
+在给蓬佩奥的备忘录中，川普总统特朗普总统指示国务卿、代理总检察长杰弗里•罗森（Jeffrey A. Rosen）和国土安全部部长乍得•沃尔夫（Chad Wolf）一起，考虑将安提法（Antifa）列为恐怖组织。川普写道：
 
 
-
-> Your government has locked people in their homes and you routinely imprison journalists and whistleblowers. How about you sit this one out?
-> — Raheem Kassam (@RaheemKassam) [January 6, 2021](https://twitter.com/RaheemKassam/status/1346937396391075842?ref_src=twsrc%5Etfw)
+> 我们政府的基本宗旨之一是确保公民的安全。与创建和平和繁荣社区的目的相一致，联邦法律确保只有那些将遵守所有美国公民的法律管辖的人，可以获得移民福利。
 
 
 
-**另一位推友表示“如果7500万人认为投票是欺诈性的，那么谁能期望和平呢。 他们要求对3个州进行适当审查。 没有人在听。 这不会简单地消失”。**
-
-“**我不记得您在Antifa＆BLM将这个地方拆散时发表过意见。**”
-
-这就是人民的声音！
-
-这位约翰逊首相，自己感染过CCP病毒，在鬼门关前走了一圈，没有致力于探究病毒的来源，先是提出“群体免疫”一说，人为的推动了伦敦及英国的疫情，如果他当初及时封锁是否会拯救很多生命？这会儿又第一时间跳出来为拜登顺利交接政权呼吁，实在耐人寻味。
-
-（本文纯属个人观点）
-![]()![](https://gnews.org/wp-content/uploads/2021/01/澳喜图标.png)
+> ……可靠的报道表明，被称为 “Antifa “的运动对我们社区最近发生的一些无法无天的事件，负有直接或间接的责任。并利用悲剧来推进激进、左派、无政府主义和经常为暴力的议程。事实上，安提法（Antifa）组织长期以来一直利用其他允许的示威活动从事违法犯罪行为，以推进其激进议程。
 
 
-+2
+信中随后列举了多起与自诩为 “反法西斯 “运动直接相关的威胁、人身攻击和破坏事件。特朗普写道：”司法部已经公开证实，安提法（Antifa）和类似组织的行动符合国内恐怖主义的标准。”川普继续说道：”**司法部已经公开证实，安提法（Antifa）和类似组织的行动符合国内恐怖主义的标准**“。
+
+
+> 安提法（Antifa）组织煽动的暴力，如向警察投掷弹丸和燃烧装置、焚烧车辆，以及无视当地宵禁而暴力对抗警察，对人的生命和我们国家的结构都是危险的。
+
+
+“**这些暴力行为损害了和平抗议者的权利，破坏了这个国家人民的生命、自由和财产**，”川普最后说，”特别是那些最脆弱的人。”
+
+新闻来源：BREITBART
+原文链接：[https://www.breitbart.com/politics/2021/01/06/trump-urges-mike-pompeo-to-classify-antifa-as-terrorist-group/](https://www.breitbart.com/politics/2021/01/06/trump-urges-mike-pompeo-to-classify-antifa-as-terrorist-group/)
+
++1
