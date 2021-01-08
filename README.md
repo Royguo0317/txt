@@ -14,135 +14,138 @@
 
 ---
 
-### [视频川普最新讲话](/content/gnews/1/README.md)
- ` Himalaya Australia`
-
-### [【重磅速递】美国联邦通信委员会突发公告 恐与川普总统被社交媒体禁声有关](/content/gnews/2/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【大选追踪】1/7/21 德州总检察长表示 国会越界抗议者需承担责任](/content/gnews/3/README.md)
- ` 秘密翻译组G-Translators`
-
-### [2021年01月07日澳喜要闻（每日更新）](/content/gnews/4/README.md)
- ` Himalaya Australia`
-
-### [文字版2020年12月25日郭先生GTV直播](/content/gnews/5/README.md)
- ` 喜马拉雅听写组`
-
-### [视频【每日快讯】07/01/2021:昨天DC抗议行动死亡四个人 中共昨天在香港抓了53名民主派人士](/content/gnews/6/README.md)
- ` GM132 每日快訊`
-
-### [《 The Star Spangled Banner》](/content/gnews/7/README.md)
- ` 新闻译制组`
-
-### [郭先生0106:拜登不可能上,哪怕拜登上也会支持G-Coin和G-Dollar](/content/gnews/8/README.md)
- ` NewFOC`
-
-### [安提法伪装成川普支持者冲击国会大厦](/content/gnews/9/README.md)
- ` gnewscanada`
-
-### [1/7/2021 【大选实况】参议员Ron Johnson针对选举团过程的声明（全文）](/content/gnews/10/README.md)
- ` 秘密翻译组G-Translators`
-
-### [加拿大两党领袖评论美国会大厦冲击事件](/content/gnews/11/README.md)
- ` gnewscanada`
-
-### [川普总统最新讲话（全文）](/content/gnews/12/README.md)
- ` HimalayaRussia`
-
-### [川普大爷还是那个川普大爷，变了的只是你自己而已](/content/gnews/13/README.md)
- ` Himalaya Australia`
-
-### [上合天道下合人心的中华传统教育体系（五）](/content/gnews/14/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [魔高一尺道高一丈](/content/gnews/15/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [MAGA政党成立对灭共的意义](/content/gnews/16/README.md)
- ` Himalaya Australia`
-
-### [上不了头条：在那些暴力抗议者开始破坏国会大厦时，川普的支持者们将他们从国会大厦拉开–这些人是谁？](/content/gnews/17/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [视频1/6/2021警察在美国国会枪杀妇女事件目击者称: 手无寸铁的民众要求调查选举真相竟遭枪杀, 流血事件可能会发生在你, 我和任何人身上, 美国人必须采取行动, 绝不能再度容忍!](/content/gnews/18/README.md)
- ` 秘密翻译组G-Translators`
-
-### [中共阻止研究人员团队入境调查冠状病毒来源](/content/gnews/19/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [中共掌握讯息话语权（一）](/content/gnews/20/README.md)
- ` G-NEWS TAIWAN`
-
-### [今宵别梦寒](/content/gnews/21/README.md)
- ` 秘密翻译组G-Translators`
-
-### [突发：川普总统承诺&#8221;有序过渡&#8221;，同时对选举的有效性提出异议](/content/gnews/22/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [喜马拉雅原创音乐组《我们》](/content/gnews/23/README.md)
- ` 新闻译制组`
-
-### [视频1/6/2021 共和党国会议员马特·葛兹反对接受选举结果](/content/gnews/24/README.md)
- ` 秘密翻译组G-Translators`
-
-### [MAGA党是否受到波多黎各大选启示](/content/gnews/25/README.md)
- ` Himalaya Australia`
-
-### [今年，中共“鼓励”务工人员不要回家过年](/content/gnews/26/README.md)
- ` Himalaya Australia`
-
-### [视频1/7/2021 郭先生盖特：爆料革命、新中国联邦要靠我们自己](/content/gnews/27/README.md)
- ` 秘密翻译组G-Translators`
-
-### [视频1/7/2021 郭文贵先生直播：我们中国人没资格抱怨昨天在国会山那种丑陋的表演](/content/gnews/28/README.md)
- ` 秘密翻译组G-Translators`
-
-### [视频1/07/2021 郭先生盖特：昨天华盛顿发生的比我们在中共国遭遇的差了亿万倍](/content/gnews/29/README.md)
- ` 秘密翻译组G-Translators`
-
-### [视频1/7/2021 郭文贵先生直播：新中国联邦的合作者世界上最强势的沼泽地力量](/content/gnews/30/README.md)
- ` 秘密翻译组G-Translators`
-
-### [至暗穹顶（二十四）——货币猜想](/content/gnews/31/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [视频1/6/2021 共和党国会议员马特·葛兹哀悼遇难者，支持川普呼吁和平并谴责暴力行为](/content/gnews/32/README.md)
- ` 秘密翻译组G-Translators`
-
-### [美国登记中共病毒死亡人数创单日最高纪录](/content/gnews/33/README.md)
+### [河北省南宫市悬赏告密未检测中共病毒者](/content/gnews/1/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [视频1/07/2021 郭先生盖特：咱们中国人这么多年的“恐惧”人生要改改了](/content/gnews/34/README.md)
- ` 秘密翻译组G-Translators`
-
-### [川普1月5日签署将安提法列为恐怖分子的备忘录](/content/gnews/35/README.md)
- ` gnewscanada`
-
-### [视频【粤语】1/4/2021文贵：令人敬佩的川普总统](/content/gnews/36/README.md)
- ` Caihongqiao`
-
-### [小人得志：华春莹讽美反共政治人物](/content/gnews/37/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [推特删除川普总统的推文，威胁永久禁止](/content/gnews/38/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [视频【字幕】1/7/2021文贵盖特：战友在国家安全局的逼迫下到FBI报假案，是可以理解的](/content/gnews/39/README.md)
- ` Caihongqiao`
-
-### [中共国正强化核军备建设并隐藏战略意图](/content/gnews/40/README.md)
- ` 秘密翻译组G-Translators`
-
-### [安提法恐怖组织假冒川普支持者冲击国会](/content/gnews/41/README.md)
- ` HimalayaRussia`
-
-### [伟大的1.6 挺川游行记录](/content/gnews/42/README.md)
+### [《每日快报 -彭斯2016年成为共和党总统提名人时就想背后捅刀川普 &#8211; 2021.1.8》](/content/gnews/2/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [中共妄图加入CPTPP遭日本婉拒](/content/gnews/43/README.md)
+### [视频2021年1月9日中共病毒疫情要闻快报](/content/gnews/3/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [中共的大撒币“编年史”](/content/gnews/4/README.md)
+ ` Himalaya Australia`
+
+### [【文雍漫谈】高尚是高尚者的通行证 卑鄙是卑鄙者的墓志铭](/content/gnews/5/README.md)
+ ` 美国纽约七星会农场（原名：为子孙爱七哥农场）`
+
+### [中共国惊现疫苗诈骗！ 老百姓被坑得好苦](/content/gnews/6/README.md)
+ ` 喜马拉雅 日本京都富士会`
+
+### [视频1/7/2021 Greg Kelly：我们很多人都在旁观者清, 但现在是我们所有美国人都要加入这场战斗, 这是关于改变, 即将改变美国](/content/gnews/7/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频1/7/2021 Tucker: 还有13天, 数千万被新财富阶层鄙视的选民就不会再得到川普的保护了](/content/gnews/8/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频1/7/2021 Tucker: 一些有权有势的人要求那些川普支持者不该再被允许出版书籍, 使用互联网或乘坐飞机](/content/gnews/9/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [中共正在给民众接种世界上最毒的疫苗](/content/gnews/10/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【香港专题】 「查册」知多少？ （二）房产「查册」 &#8211; 2019 年《丁权无国界》](/content/gnews/11/README.md)
+ ` 粵語組`
+
+### [郭先生0106:中共与俄是狼狈灭共后的俄中好日子绝对结束了](/content/gnews/12/README.md)
+ ` NewFOC`
+
+### [《路德社》精选新闻简讯：中粮：如果你不释放孟晚舟，加拿大大豆，就不要](/content/gnews/13/README.md)
+ ` 路德社精选`
+
+### [成功，取决于一个人的心理素质](/content/gnews/14/README.md)
+ ` JPHIMALAYA`
+
+### [【文字版】郭文贵2021.01.04直播](/content/gnews/15/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [“教师爷”华春莹怒批蓬佩奥](/content/gnews/16/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [《路德社》精选主题专栏：正视中共威胁，他们“已在门内”](/content/gnews/17/README.md)
+ ` 路德社精选`
+
+### [【蓬佩奥国务卿推文0108】肯定川普总统的领导、号召宗教信仰的团结](/content/gnews/18/README.md)
+ ` 喜馬拉雅的文雅 Himalaya Wenya`
+
+### [澳大利亚支持世卫组织对中共国的COVID 19病毒进行调查](/content/gnews/19/README.md)
+ ` Himalaya Australia`
+
+### [视频1/7/2021 白邦瑞表示：拜登政府同中共国的对话将会是“风声大，雨点小”](/content/gnews/20/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [《路德社》精选新闻简讯： 警醒！中共的核建设不是摆设](/content/gnews/21/README.md)
+ ` 路德社精选`
+
+### [视频1/7/2021 英国外交大臣蓝稻文就港府近日抓捕民主人士之举发表评论。](/content/gnews/22/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频1/5/2021 西恩·帕內尔：尽管有六位数的选民赤字，但宾夕法尼亚州的州务卿还是认证了选举。这是违法的！](/content/gnews/23/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [1/8/2021 财经快讯: 中国网络公司利用数据和算法“欺负”客户](/content/gnews/24/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [终级之战将决定人类的价值观](/content/gnews/25/README.md)
+ ` Himalaya Australia`
+
+### [视频1/6/2021 美国国会被枪击身亡的川普女支持者最后的片段](/content/gnews/26/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频1/7/2021 班农战斗室: 国会山的游行群众并不寻求暴力, 他们只想进行和平的挺川游行](/content/gnews/27/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频1/5/2021 史蒂芬·班农：这场选举的意义并非是川普，而是关乎到国家和宪法。](/content/gnews/28/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频1/7/2021 班农: 你不能活在幻想中。我们必须集中精力, 不要被左派玩弄于股掌之间。生活原本是不公平的。](/content/gnews/29/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频1/7/2021 班农战斗室: 为什么在联席会议进行过程中, 国会警察打开围栏让人们进入国会? 若有暴徒闯入国会的话, 为何只有13人被捕?](/content/gnews/30/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频1/7/2021 班农战斗室: 我们要彻底抛弃脸书等平台, 通过创新我们可以建立自己的机制与人进行沟通联系](/content/gnews/31/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频1/7/2021 班农战斗室: 川普运动, 美国优先运动才剛起动, 从现在开始, 我们必須招募和资助, 有勇气, 有智慧和技能的人, 并培训这些类型的候选人](/content/gnews/32/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [澳中个税看本质系列（三）](/content/gnews/33/README.md)
+ ` Himalaya Australia`
+
+### [爆料革命须无我，战友奋勇向前进](/content/gnews/34/README.md)
+ ` 东京樱花团-Tokyo Sakura Group`
+
+### [视频1/7/2021 川普总统法律顾问约翰·伊斯特曼: 鉴于州立法机构已经采取措施解决这一违法宪法的行为, 我们已经有了违反宪法的选举人名单](/content/gnews/35/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [郭先生0106:灭爆小组对爆料革命和郭先生编剧本陷害是小儿科](/content/gnews/36/README.md)
+ ` NewFOC`
+
+### [视频川普总统连发五推的视频 (下）](/content/gnews/37/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [谁，才是美国大选的幕后导演？](/content/gnews/38/README.md)
+ ` 喜马拉雅 日本京都富士会`
+
+### [【世纪大案】37: 贪婪与恐惧——第117届国会](/content/gnews/39/README.md)
+ ` 纽约香草山农场`
+
+### [会计，财报，审计入门基础与介绍（十）](/content/gnews/40/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [世纪骗局：（2）1926~1930年（国民党忙北伐统一，中共忙渗透夺权，国共分裂）](/content/gnews/41/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [伊拉克向川普总统发出逮捕令背后的影子](/content/gnews/42/README.md)
  ` HimalayaRussia`
 
-### [美国交通部长赵小兰此时辞职为哪般？](/content/gnews/44/README.md)
- ` gnewscanada`
+### [对总统再次罢免或弹劾：他们动得了川普吗？](/content/gnews/43/README.md)
+ ` 新闻译制组`
+
+### [警报！抢粮大战已经打响](/content/gnews/44/README.md)
+ ` Himalaya Australia`
+
+### [即使你的国家历史再长，也不一定就值得你自豪](/content/gnews/45/README.md)
+ ` Himalaya Australia`
 

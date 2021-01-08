@@ -1,39 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共阻止研究人员团队入境调查冠状病毒来源
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/728058/)
+## 澳大利亚支持世卫组织对中共国的COVID 19病毒进行调查
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/729164/)
 
-翻译：康州盘古农场-Bruce
+撰稿：文治武力
 
-校对：康州盘古农场-烟波浩淼
+审稿：Gradient Boost 编辑：MG1
+![]()![](https://gnews.org/wp-content/uploads/2021/01/801.png)图片来源: https://i.ytimg.com/vi/WBA0Uz8Y3lA/hqdefault.jpg
+2021年1月6日，澳大利亚外交部长玛丽斯-佩恩在世卫组织团队被拒绝入境后，要求中共国允许他们立即进入，调查COVID-19的来源。
 
-审核：康州盘古农场-V
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-13.png)*尽管世卫组织与中共政府达成协议，允许科学家进入中共国，但中共已经阻止世界卫生组织官员进入中共国调查冠状病毒大流行的起源。*图片：纽约邮报
-**世卫组织总干事谭德赛（****Tedros Adhanom Ghebreyesus）说，他对中共政府的拖延感到 “失望”，并指出，根据世卫组织和中共政府之间的协议，国际科学小组的成员已经在过去一天开始离开他们的国家。**
+**玛丽斯****–****佩恩的声明**** **
 
-**“今天，我们了解到，中共官员还没有最后确定团队抵达中共国的必要许可，”谭德赛在日内瓦的新闻发布会上说。**
+“世卫组织召集的科学研究是这项工作的重要组成部分，我们期待着国际实地考察团在华的调查结果。”
 
-谭德赛补充说，当他们得知这一消息时，团队的两名成员已经在前往中共国的途中，这使他们在等待下一步的消息时陷入了困境。
+“我们希望，世卫组织团队在华旅行的必要许可能够尽快发放。”
 
-尽管中共政府因应对COVID-19而受到一些人的[赞扬](https://www.washingtonpost.com/world/asia_pacific/chinese-officials-note-serious-problems-in-coronavirus-response-the-world-health-organization-keeps-praising-them/2020/02/08/b663dd7c-4834-11ea-91ab-ce439aa5c7c1_story.html)，但对调查该病毒的来源仍然讳莫如深。中共已经向调查病毒起源的研究机构[发放了补助金](https://abcnews.go.com/Technology/wireStory/china-clamps-hidden-hunt-coronavirus-origins-74963891)，但封闭式地监控他们的研究结果，并且不允许公布任何日期，除非这些信息是由习近平主席负责的内阁批准的。
+“在这场影响到所有国家的全球大流行期间，国际合作和伙伴关系将最大限度地提高我们的应对能力，并为下一次大流行做好准备。”
 
-中共缺乏与国际研究人员的合作，这只会助长人们对该病毒可能源自中共实验室的猜测。虽然这一假设导致一些科学家和许多媒体直接否定，但《纽约杂志》最近的一篇文章认为，有一个合理的机会正是如此。
+**世****卫组织团队未获准进入中共国**
 
-文章的作者尼克森·贝克（Nicholson Baker）[写道](https://nymag.com/intelligencer/amp/article/coronavirus-lab-escape-theory.html?__twitter_impression=true&amp;s=04&amp;fbclid=IwAR0uLrwtliS8Tg6d2vFG1aGk01Ee_WRdkiyxIa3rbBLjNUCW5uP1_zlgjp8)：“许多有思想的人否定了这一概念，他们可能是对的。”他们真诚地相信，冠状病毒是自然产生的，‘人畜共患’，从动物身上产生的，之前没有经过研究，没有经过杂交，没有通过细胞培养，也没有经过训练有素的专业人士的其他工作。”
+世卫组织10名成员原计划于2021年1月初访华，调研2019年底爆发的COVID-19的来源，这是一项重要任务。结果其中有两名成员的入华申请被拒绝。
 
-贝克继续说“没有直接证据证明这些人畜共患病的可能性，就像没有直接证据证明实验事故一样–没有书面供词，没有罪证笔记本，没有正式的事故报告。” 现在就否定任何假说还为时过早。
+世卫组织总干事谭德赛对中共国迟迟不进行调查配合表示失望。
 
-在中共与国际研究人员合作之前，此类问题仍将是一个谜。
+**中国****处罚澳大利亚要求对****COVID-19****进行国际调查。**
 
-**校对评**：如果中共心里没有鬼为什么要一次次阻止专家调查？特别是川普总统多次建议美国专家前往调查更是没有成行。中共曾经在彻底捣毁了武汉海鲜市场，军管了武汉P实验室后让其选定的世卫专家前往作过所谓的调查。海鲜市场没有了， 武汉P4实验室也根本没能进去。掩盖真相是CCP的一贯做法，调查不过是演戏做文章。
+去年，澳大利亚领头提出了由全球代表组成的对COVID-19的调查请求。
 
-【评论纯属校对个人观点】
+作为报复，中共国对澳大利亚的煤炭、肉类、粮食、葡萄酒、鱼类等商品，采用不合理的税收、配额等一系列的行政处罚措施，以实施进口禁令。
 
-原文作者：麦克·罗伯特·李（Mike Robert Lee）
+尽管澳大利亚政府提出了建议，但两国部长之间一直没有接触。
 
-发布时间：2021年1月6日
+佩恩指出，澳大利亚和其他国家一直在寻求有关冠状病毒的起始和当局反应的透明度。
 
-文章链接：[https://bongino.com/china-blocks-team-of-who-researchers-from-entering-the-country-to-investigate-virus-origins/](https://bongino.com/china-blocks-team-of-who-researchers-from-entering-the-country-to-investigate-virus-origins/)
+**中共国****应向世界负责**
 
-0
+虽然中共国政府声称支持调查SARS-CoV-2感染导致COVID-19从动物到人的时间、地点和方式，但却不断用拖延或误导的手段，阻挠公正、真实的调查。中共国当局甚至宣布病毒来源于其他国家。这些都说明中共不想承担任何责任。
+
+Covid-19传播一年后，全球有8800多万人感染，190多万人死亡. 世界需要知道这一切是如何从中共国开始的，中共政府当时和之后是如何应对的，中共国统治下的人民和其他国家应该如何寻求赔偿。
+
+参考资料：
+
+[https://www.afr.com/policy/foreign-affairs/australia-urges-who-entry-to-china-without-delay-20210106-p56s3k](https://www.afr.com/policy/foreign-affairs/australia-urges-who-entry-to-china-without-delay-20210106-p56s3k)
+
+[https://www.worldometers.info/coronavirus](https://www.worldometers.info/coronavirus)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/澳喜图标.png)
++2

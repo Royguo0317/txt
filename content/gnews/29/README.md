@@ -1,13 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 1/07/2021 郭先生盖特：昨天华盛顿发生的比我们在中共国遭遇的差了亿万倍
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/727868/)
+## 1/7/2021 班农: 你不能活在幻想中。我们必须集中精力, 不要被左派玩弄于股掌之间。生活原本是不公平的。
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/729046/)
 
-郭先生盖特：昨天华盛顿发生的闹剧和给我们带来的所谓风险，比起病毒和我们以前在中共国那些化学食品、城管、警察等等差了亿万倍
-
-
-
-By 【秘密翻译组G-Translators-北美组】
+By： 【秘密翻译组 G-Translators – 精翻组】
 
 +1

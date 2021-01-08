@@ -1,37 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## MAGA政党成立对灭共的意义
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/728034/)
+## “教师爷”华春莹怒批蓬佩奥
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/729205/)
 
-撰稿：两万五，爆大料
+- 编辑:Victor Torres
 
-审稿：Gradient Boost 编辑：MG1
 
-(关键词 ：MAGA；政党；爆料革命)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/801（1）.png)图片来源于网络
-2021年1月6日七哥直播中谈到MAGA政党，并提及MAGA政党是上个星期某人提出的。为何在此时此刻谈到MAGA？MAGA的成立所推动的力量是谁？接下来，我会在这篇文章里仔细分析一下。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-目前美国大选的过程中，特朗普一直在经历背叛，如彭斯、麦康纳尓、众多参议员。特朗普在执行各项行政命令时需要与各方利益集团谈条件，开筹码，典型的就是230法案。前几日路德访谈爆料，亲共的共和党建制派，麦康纳尔提出让中共过渡两年作为筹码和特朗普对谈，结果特朗普硬的很，坚决要灭共，最终是没有谈成。事实上，共和党建制派和非共和党建制派在灭共路上仍存在较大分歧。民主党已经被共产党深度渗入多年，而少数觉醒的，有正义感和新中国联邦站在一起的却又无法完全从利益集团中脱身。那这个时候只能跳出棋局，站在更高的维度看问题。MAGA政党的成立很好的解决了上面的问题。
+**西班牙2021年1月8日电/西喜社—**
 
-MAGA政党就是一个和亲共势力割裂后形成的政党，里面的成员就是跟随特朗普的支持者，再往深度挖就是，灭共沼泽地主人成立的政党。
+美国国会刚刚认证“假选举结果”，中共国外交部发言人华春莹便对美国摆出了“教师爷”姿态。1月8日，华春莹发推批评、数落美国国务卿蓬佩奥：
 
-MAGA政党的成立，怎么才能拉动灭共势力的集合呢。最大的筹码之一就是2024年的总统（七哥今天直播也说过，特朗普没想成立政党，只想再干2年退休），这对蠢蠢欲动的各方势力是多大的诱惑啊！同时只要现在一旦加入MAGA政党，灭共后利益都是无限大，这就把共和党里非建制派和民主党内觉醒的沼泽地主人都紧紧捆绑起来了。
+“仔细瞧瞧美国正在发生的事情，管好你自己的事情。 今天，这是一个悲剧和失败，你仍然看不到谁和什么对你的国家构成真正的最大威胁。 你将被视为历史上谎言和疯狂的代名词。”
 
-记得七哥前几天说：“灭共的步子快了很多。”联想到今天说MAGA政党，应该就是沼泽地主人跳出固有两党思维，由原来共和党建制派、民主党及灭共势力三方谈灭共后的蛋糕分配，变成目前MAGA政党与民主党或者MAGA政党与共和党建制派分蛋糕。MAGA政党只要拉拢民主党或者共和党建制派，势力就大于另一方单一政党。即（MAGA政党+民主党&gt;共和党建制派或者MAGA政党共和党建制派+&gt;民主党）。也可以看成民主党和新中国联邦谈条件，或者共和党建制派和新中国联邦谈条件，反正受益的都是新中国联邦谈条件。这个意思七哥视频说了，美国政党越多，我们选择越多。
+中共党魁习近平在2018年12月18日《庆祝改革开放40年的大会》上放言：“中国这样一个有着5000多年文明史、13亿多人口的大国推进改革发展，没有可以奉为金科玉律的教科书，也没有可以对中国人民颐指气使的教师爷。”
 
-好了，今天分析就到这里，谢谢大家，下期再见。
+傲慢虚伪的中共不管是在内政还是外交等事务上自始至终玩着两套标准的把戏—只许州官放火，不许百姓点灯—不许美国评论中共的邪恶，但却可以公开谩骂、侮辱对方的重要官员。
 
-（本文纯属个人观点）
+中共豢养的“伪总统”拜登要是真的上了台，他们岂止要做美国人的“教师爷”，中共的野心是做美国人民和全人类的“爷”！
 
-新闻参考链接：
 
-[https://gtv.org/video/id=5ff5fb69f579a75e0bc78feb](https://gtv.org/video/id=5ff5fb69f579a75e0bc78feb)
 
-澳喜文章：
+> ·[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw), Take a close look at what's happening in the [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw) and mind your own business. It is a tragedy & failure today you still cannot see who & what is the real big threat to your country. You will be remembered as the byword of lies and madness in history.
+> — Hua Chunying 华春莹 (@SpokespersonCHN) [January 8, 2021](https://twitter.com/SpokespersonCHN/status/1347449902402400256?ref_src=twsrc%5Etfw)
 
-[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
 
-欢迎加入澳喜农场：https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840
-![]()![](https://gnews.org/wp-content/uploads/2021/01/澳喜图标.png)
+
+参考来源：[https://www.dw.com/zh/%E4%B9%A0%E8%BF%91%E5%B9%B3%E6%B2%A1%E6%9C%89%E5%8F%AF%E4%BB%A5%E5%AF%B9%E4%B8%AD%E5%9B%BD%E4%BA%BA%E6%B0%91%E9%A2%90%E6%8C%87%E6%B0%94%E4%BD%BF%E7%9A%84%E6%95%99%E5%B8%88%E7%88%B7/a-46780354](https://www.dw.com/zh/%E4%B9%A0%E8%BF%91%E5%B9%B3%E6%B2%A1%E6%9C%89%E5%8F%AF%E4%BB%A5%E5%AF%B9%E4%B8%AD%E5%9B%BD%E4%BA%BA%E6%B0%91%E9%A2%90%E6%8C%87%E6%B0%94%E4%BD%BF%E7%9A%84%E6%95%99%E5%B8%88%E7%88%B7/a-46780354)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 +1

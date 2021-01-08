@@ -1,13 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 喜马拉雅原创音乐组《我们》
-` 新闻译制组` [轉載自GNews](https://gnews.org/zh-hans/727981/)
+## 1/5/2021 西恩·帕內尔：尽管有六位数的选民赤字，但宾夕法尼亚州的州务卿还是认证了选举。这是违法的！
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/729110/)
 
-供稿：喜马拉雅原创音乐组
+By: 【秘密翻譯組G-Translators】
 
-原創歌曲《我們》此曲獻給原創音樂組及每一位堅持滅共信念的戰友們
-
-
-
-0
++1

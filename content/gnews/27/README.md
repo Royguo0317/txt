@@ -1,13 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 1/7/2021 郭先生盖特：爆料革命、新中国联邦要靠我们自己
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/727897/)
+## 1/7/2021 班农战斗室: 国会山的游行群众并不寻求暴力, 他们只想进行和平的挺川游行
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/729068/)
 
-郭先生盖特：再次强调，爆料革命、新中国联邦要靠我们自己 – 中国人；以美灭共、以共灭共是战略手段，但不是我们百分百的依靠
-
-
-
-By 【秘密翻译组G-Translators–北美组】
+By： 【秘密翻译组 G-Translators – 精翻组】
 
 +1

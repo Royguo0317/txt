@@ -1,24 +1,132 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国正强化核军备建设并隐藏战略意图
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/727708/)
+## 会计，财报，审计入门基础与介绍（十）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/728591/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture-34.jpg)图片来源： Deutsche Welle
-比尔·格茨（Bill Gertz）1月4日在《华盛顿时报》（The Washington Times）撰文报道，美国国务卿迈克·彭培奥（Mike Pompeo）和川普总统首席军备控制谈判代表马歇尔·比林格斯利（Marshall Billingslea）在周一《新闻周刊》（Newsweek）专栏联合发表文章，揭露中共国正在进行核军备建设，并对国际社会隐藏其战略武器意图的事实。文章称，在冷战期间，美苏两国通过保持双方核武库的透明度很好地实现了军备控制，当前则是通过《新削减战略武器条约》（New START）来实现。美俄多次邀请中共政府加入此条约，并在条约即将到期日共同讨论延长条约事宜，却一再遭到中共政府拒绝。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23164109/1223.jpg)
+Picture Source: https://www.groomassocies.com
 
-文章指出，川普政府将中共国“长达二十年的非对称军备竞赛”视为“挑战的核心部分”。中共军事力量的崛起正在危及美国的国土安全、印太地区的战略地位以及其盟友和伙伴关系。中共国正在迅速发展导弹、潜艇和轰炸机的“三位一体“核打击力量。美国认为中共国各种新型战略武器构成的威胁不断增长，但中共政府一直拒绝加入美国的武器控制谈判，并拒绝透露其拥有的核武器数量和发展计划。中共国是联合国安理会五个常任理事国中透明度最低的国家。在2019年阅兵时，中共国就展示了可携带多个核弹头的新型DF-41导弹，据称能够在30分钟内打击美国，不久的将来就能部署在发射井和移动载具中，这是中共未来十年核武库翻番计划的一部分。事实证明，中共国利用美国数十年来遵守着的其实对其无制约作用的武器控制协议不断扩充核武库。
+在第十篇中是展示财务审计所涉及现金流表中各项目内容后的具体量化分析步骤与逻辑流程。有助于投资人或审计师依照逻辑且合理的量化程序对于财务报表中的现金流表进行检阅，并有效衡量实际商业中的运营质量。
 
-中共国仅在2018年和2020年试射的弹道导弹就超过其他国家的总和，总共超过220枚。中共国还在其罗布泊核试验场进行了整年的核试验活动，而在过去，类似试验活动只是季节性的或者是零星的。中共正在推进的武器现代化和其展示的核姿态正变得更具侵略性，甚至威胁到无核邻国，破坏了别国对其所谓“不首先使用核武器”原则的信心。
+1.Operating Activities: Direct Method 以下几点需要严格注意
 
-当前的美俄《新削减战略武器条约》有效限制了两国发展战略核武器，而中共国则不受此协议限制。彭培奥和比林格斯利说道，美国为削减核武器做出了自己的贡献，现在该是中共国停止摆姿势并开始负责任的时候了。任何自称伟大的国家都应负责任地处理世界上最危险的武器。
+- 图表跨度 / 叙事时间跨度的终点定量和区间变量的形式区别
+- 而且针对不同款项，Revenue形式也不尽相同（保留盈余不计入，以区间变量对待）
+- 现金流的上下游关系，也需要严格警惕
 
-**评论**：中共利用其惯用的“不透明”和谎言欺骗世界，隐藏其不可告人的战略意图。川普政府在过去的四年中，越来越清醒地认识到了来自中共的挑战和威胁。中共长达20年的非对称军备竞赛，不受约束地扩充其战略武器库，实实在在地威胁到了美国的核心利益，即美国的国土安全和印太战略地位，以及其盟友和伙伴的利益。中共越来越具侵略性的核态势，给全世界发出了严正的警告。全球正义联盟正在集结，一旦中共丧心病狂地使用核武器恐吓全世界，绝不会袖手旁观，一定会给予强有力的反击。
 
-[原文链接](https://www.washingtontimes.com/news/2021/jan/4/us-officials-press-china-over-growing-nuclear-arse/)
+2.Cash Received from Customers 从客户中收到的现金
 
-翻译：Kal
+Revenue + Reduced Account Receivable
 
-校对：沙拉猫
+3.Suppliers 以现金支付给供应商的费用
 
-0
+Cost of Goods + Inventory – Account Payable
+
+4.Cash Paid to Employees 以现金支付的雇员费用
+
+Salary Wage Expense – Increase Salary Wage Payable
+
+5.Cash Paid for other Operating Expense 现金支付的运营支出
+
+Other Operating expense + Prepaid Expense + Reduced Accrued Payable
+
+6.Cash Paid for Interest 以现金支付的利息
+
+Interest Expense + Decreased Interested Payable
+
+7.Cash Paid for Income Tax 以现金支付的税务
+
+- Tax Expense – Increase Tax Payable
+- US GAAP / IFRS 二者同时要求收入税应分开披露
+
+
+8.Investing Activities 投资活动
+
+- The Historical Cost Equipment Sold历史出售设备成本
+- Equipment Purchase – Equipment Change（Balance Sheet贬值部分）
+- The Accumulated Depreciation on the Equipment sold
+- Depreciation Expense – Depreciation Change
+- Book Value of Equipment Sold 设备出售时的市净值
+- Historical Cost – Accumulated Depreciation
+- Cash Receive = Book Value + Gain / Loss
+
+
+9.Financing Activities 融资活动
+
+- Long-Term Debt and Common Stock
+
+
+数量的增加代表着融资额度的上升，现金的流入
+
+- Dividends = Beginning Retained Earning + Net Income – Dividends
+- = Ending Retained Earning
+
+
+10.Overall Statement of cash flow: Direct Method
+
+在计算总调整时贬值是现金流入
+
+11.Overall Statement of cash flow: Indirect Method
+
+(1)Non-cash items
+
+- Depreciation expense of tangible assets
+- Amortisation expense of intangible assets
+- Depletion expense of natural resources
+- Amortisation of bond discount
+
+
+(2)Non-operating losses
+
+- Loss on sale or write-down of assets
+- Loss on retirement of debt
+- Loss on investments accounted for under the equity method
+
+
+(3)Increase in deferred income tax liability
+
+(4)Changes in working capital resulting from accruing higher
+
+
+amounts for expenses than the amounts of cash payments or lower
+
+amounts for revenues than the amounts of cash receipts
+
+
+- Decrease in current operating assets (e.g., accounts receivable, inventory, and prepaid expenses)
+- Increase in current operating liabilities (e.g.,accounts payable and accrued expense liabilities)
+
+
+(5)Non-cash items (e.g.,amortisation of bond premium)
+
+(6)Non-operating items
+
+
+- Gain on sale of assets
+- Gain on retirement of debt
+- Income on investments accounted for under the equity method
+
+
+
+(7)Decrease in deferred income tax liability
+
+(8)Changes in working capital resulting from accruing lower amounts
+
+for expenses than for cash payments or higher amounts for reve-
+
+nues than for cash receipts
+
+- Increase in current operating assets (e.g.,accounts receivable, inventory, and prepaid expenses)
+- Decrease in current operating liabilities (e.g.,accounts payable
+and accrued expense liabilities)
+
+
+Author：搞笑排行榜
+
+Original opinion article by Himalaya G-farm Vancouver
+
+2021/01/08
+
++1
