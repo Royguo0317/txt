@@ -1,19 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以色列计划三月底前为所有成年公民接种中共病毒疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/729718/)
+## 加拿大安省延迟学生返校时间
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/730014/)
 
 - 编辑：Victor Torres
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月8日电/西喜社—**以色列总理本雅明·内塔尼亚胡说，他已与辉瑞制药公司达成新的协议，允许以色列在3月底前为所有16岁以上公民接种疫苗。
+**西班牙2021年1月8日电/西喜社—**加拿大人口最多的安省南部的小学生将继续远程学习至1月25日。安省政府表示，中共病毒病例正以惊人的速度持续上升。
 
-以色列已经获得了数百万剂疫苗，并启动了世界上最早、最快的疫苗接种活动之一。这个拥有900万人口的国家已经为超过15%的人口接种了疫苗。以色列的Magen David Adom医疗服务机构周四表示，已经向所有养老院的居民和工作人员发放了两剂疫苗中的第一剂。
+首席医疗官大卫·威廉姆斯(David Williams)博士表示，随着中共病毒的发病率上升，此举是为了确保学校的学生和教职员工保持安全。
 
-居住在以色列占领的西岸和加沙的巴勒斯坦人将不得不等待更长时间，因为以色列没有宣布任何向他们分发疫苗的计划。巴勒斯坦权力机构说，它没有要求以色列提供任何疫苗，而是依靠世界卫生组织的一个方案。
+作为省内封锁的一部分，目前所有学生都在网上学习，但安省北部的学生和安省南部的小学生原定在下周返回学校。
+
+安省省长福特(Doug Ford)表示，他周三晚上收到新的数据，显示孩子们的阳性率一直在上升。
 
 **新闻来源：**[https://apnews.com/article/yoshihide-suga-tokyo-coronavirus-pandemic-coronavirus-vaccine-japan-664f266ae81efb4b82b059c84c3bfd86](https://apnews.com/article/yoshihide-suga-tokyo-coronavirus-pandemic-coronavirus-vaccine-japan-664f266ae81efb4b82b059c84c3bfd86)
 
