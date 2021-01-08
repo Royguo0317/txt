@@ -1,171 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆料革命须无我，战友奋勇向前进
-` 东京樱花团-Tokyo Sakura Group` [轉載自GNews](https://gnews.org/zh-hans/728942/)
+## 1/8/2021 财经快讯: 中国网络公司利用数据和算法“欺负”客户
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/729090/)
 
-HTS-02C-202101-020
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-15.png)Image source: [https://www.reuters.com/](https://www.reuters.com/article/us-china-consumer/chinese-web-firms-bullying-customers-with-data-algorithms-consumer-watchdog-idUSKBN29C1JZ)
+**1.北京/上海（路透社）-中国政府支持的消费者协会周四表示，中国互联网公司滥用个人数据并“欺凌”人们进行购买和促销活动，从而侵犯了客户的权利。
+**[https://www.reuters.com/article/us-china-consumer/chinese-web-firms-bullying-customers-with-data-algorithms-consumer-watchdog-idUSKBN29C1JZ](https://www.reuters.com/article/us-china-consumer/chinese-web-firms-bullying-customers-with-data-algorithms-consumer-watchdog-idUSKBN29C1JZ)
 
-作者：捆绑CCP一千年（喜马拉雅东京樱花团）
-![]()![](https://gnews.org/wp-content/uploads/2021/01/画像6.png)
-创作札记：灵感来自于郭先生的这段讲话，他说：“再谈无我，在爆料革命中你能力越大影响越大越要无我，不然下场一定很惨。当然对于我们这些普通人，无我这种境界真的很难做到。但可以做到小我， 什么连小我都做不到，那就做真我。比如部长就是贪财好色小心眼又怎么样，总比一些人嘴里一边喊着民主自由上帝，另一边一转手把你给卖了的强，宁当真小人不当伪君子”。战友们，郭先生向我们坦诚，承认我们人性里的罪，我们就是“宁当真小人”，也“不当伪君子”，你知道吗？耶稣基督饶恕罪的人，但主耶稣没有饶恕“伪君子”。这就是我要写这首诗的灵感来源。
+**2.预计投资交易将促进欧洲在华交易
+**香港（路透社）-律师和银行家表示，在全球第二大经济体和欧盟上个月同意一项投资协议之后，预计欧洲公司将在中国寻找资产，主要是保险，医疗保健和汽车领域的资产。
+[https://www.reuters.com/article/idUSKBN29C0LE](https://www.reuters.com/article/idUSKBN29C0LE)
 
-就在2017年
+**3. 比特币首次突破40,000美元，推动加密货币市场价值超过1万亿美元根据Coin Metrics的数据，仅在突破39,000美元的水平之后几个小时，比特币在美东时间下午1:17左右创下40,367美元的历史新高。**[https://www.cnbc.com/2021/01/07/bitcoin-btc-rally-extends-price-hits-record-high-above-37700.html](https://www.cnbc.com/2021/01/07/bitcoin-btc-rally-extends-price-hits-record-high-above-37700.html)
 
-我听到有声音在呐喊！
+**4.8个省会房价跌回一年前：天津跌幅最大 深圳涨幅最大**
 
-说：黑暗即将来临。
+记者根据国家统计局公布的2020年11月份70个大中城市商品住宅销售价格变动情况，对包括直辖市、省会城市（不含拉萨）和计划单列市在内的35个重点城市近一年的房价走势进行梳理发现，深圳涨幅最大，达到了14.6%。另外有11个重点城市房价跌回一年前，天津跌幅最大。
+[https://finance.sina.com.cn/china/caijingtop10/2021-01-06/doc-iiznctkf0503136.shtml?cref=cj](https://finance.sina.com.cn/china/caijingtop10/2021-01-06/doc-iiznctkf0503136.shtml?cref=cj)
 
-哦！那一场惊雷般的呐喊！
+**5.又有变数？美财长反对纽交所撤销摘牌三家中企计划
+**纽约证券交易所撤销对三家中企的摘牌计划又有变数？英国路透社爆料称，据知情人士当地时间5日透露，美国财政部长姆努钦致电纽约证券交易所总裁斯泰茜坎宁安，告诉后者自己不同意撤销摘牌三家中企的决定。
+[https://finance.sina.com.cn/china/caijingtop10/2021-01-06/doc-iiznctkf0503136.shtml?cref=cj](https://finance.sina.com.cn/china/caijingtop10/2021-01-06/doc-iiznctkf0503136.shtml?cref=cj)
 
-翻开了历史新篇。
+By 【秘密翻译组金融团队-Totoro】
 
-将我、
-
-将你、
-
-将他……
-
-人们开始苏醒，
-
-在西方、
-
-在东方！
-
-翻墙看到的，
-
-海外看到的，
-
-尽都是
-
-急迫的声音，
-
-控诉着中共铁幕下的熬煎！
-
-看哪！
-
-战斗的人在并肩！
-
-香江在流淌着义士的鲜血。
-
-为自由抗争信念坚！
-
-打到CCP！
-
-血旗染红了
-
-勇敢的战袍、
-
-染红了世界每一片天。
-
-看哪！
-
-美利坚合众国的
-
-自由之神！
-
-你把世人目光引向先贤，
-
-一道警醒的光！
-
-人们开始发真言。
-
-在新中国联邦的呼唤下
-
-苏醒，不再踌躇不前！
-
-看哪！
-
-万国在战斗，
-
-勇敢的心在前线。
-
-向CCP发动的
-
-生化战回击吧！
-
-快、要快点！
-
-自由国度的男女们，
-
-为何陷落那CCP的大外宣？
-
-看哪！
-
-爱好正道、
-
-呼唤和平的
-
-新中国联邦人，
-
-唤不醒还在沉睡的国？
-
-七芒星冉冉升起，
-
-在喜马拉雅山上，
-
-兴起了一个又一个绿荫的农场
-
-喜马拉雅的农场主们啊！
-
-在七芒星引导下的爆料革命
-
-你的心是否仍旧圣洁？
-
-当，胜利还在前方向战友们招手！
-
-我们是否已经
-
-洗涤了中共病毒？
-
-在各战场与战友并肩？
-
-看哪！
-
-我亲爱的主！
-
-请你用真理的剑刺穿，
-
-CCP的谎言。
-
-爆料革命的无名战士们哪！
-
-向罪死过，
-
-向神活着的心，
-
-怎么还要被CCP俘获？
-
-起来吧！我们祈祷！
-
-我们不再将那老我
-
-装在旧瓶子里，
-
-我们要将灭共胜利的
-
-新酒满载
-
-在世人面前、
-
-在子孙面前，
-
-诉说着灭共的故事。
-
-那是我们钉死
-
-老我的新生命，
-
-那是我们引以自豪的革命！
-
-我们终究没有倒下，
-
-我们巍然屹立在喜马拉雅山
-
-向神种下自由的心田。
-
-向世界诠释着喜马拉雅人
-
-永不为奴的精神……。
-
-+3
+0

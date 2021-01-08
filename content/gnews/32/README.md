@@ -1,28 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 1/8/2021 财经快讯: 中国网络公司利用数据和算法“欺负”客户
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/729090/)
+## 成功，取决于一个人的心理素质
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/729298/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-15.png)Image source: [https://www.reuters.com/](https://www.reuters.com/article/us-china-consumer/chinese-web-firms-bullying-customers-with-data-algorithms-consumer-watchdog-idUSKBN29C1JZ)
-**1.北京/上海（路透社）-中国政府支持的消费者协会周四表示，中国互联网公司滥用个人数据并“欺凌”人们进行购买和促销活动，从而侵犯了客户的权利。
-**[https://www.reuters.com/article/us-china-consumer/chinese-web-firms-bullying-customers-with-data-algorithms-consumer-watchdog-idUSKBN29C1JZ](https://www.reuters.com/article/us-china-consumer/chinese-web-firms-bullying-customers-with-data-algorithms-consumer-watchdog-idUSKBN29C1JZ)
+【日本大阪方舟农场】作者：辛丑灭共年 校对：miumiu law
 
-**2.预计投资交易将促进欧洲在华交易
-**香港（路透社）-律师和银行家表示，在全球第二大经济体和欧盟上个月同意一项投资协议之后，预计欧洲公司将在中国寻找资产，主要是保险，医疗保健和汽车领域的资产。
-[https://www.reuters.com/article/idUSKBN29C0LE](https://www.reuters.com/article/idUSKBN29C0LE)
+近期，美国总统大选相关的一系列重要人物浮出水面和相关事件相继被曝出。很多人开始怀疑，究竟美国大选还有没有希望，川普还能不能赢，爆料革命能不能赢。这些担心可以说都是多余的，文贵先生一直在告诉战友们要健身健心。因为一件事一个人能否坚持到最后，往往取决于这个人的心理素质。
 
-**3. 比特币首次突破40,000美元，推动加密货币市场价值超过1万亿美元根据Coin Metrics的数据，仅在突破39,000美元的水平之后几个小时，比特币在美东时间下午1:17左右创下40,367美元的历史新高。**[https://www.cnbc.com/2021/01/07/bitcoin-btc-rally-extends-price-hits-record-high-above-37700.html](https://www.cnbc.com/2021/01/07/bitcoin-btc-rally-extends-price-hits-record-high-above-37700.html)
+毫无疑问，只要拜登当选美国总统那将是世界的灾难。郭先生为什么一直都很淡然，就是因为他经历的很多，这些事情都看平淡了。这一切的事，是一定会发生的，都是在计划之中。共产党与民主党跳得越欢，最后他们的死相就越难看。
 
-**4.8个省会房价跌回一年前：天津跌幅最大 深圳涨幅最大**
+路德先生在访谈中说到，很多战友指望川普总统，指望文贵先生，指望谁来灭掉中共，这种想法是不对的。首先我们自己要有行动，如果连最基本的行动都没有何谈灭共。文贵先生在直播中也说，你想要要求别人，先想想你自己做了什么。如果你自己做到了，再说别的。行动一词看似简单，但是要做出来，对于很多人来说那是相当困难的。
 
-记者根据国家统计局公布的2020年11月份70个大中城市商品住宅销售价格变动情况，对包括直辖市、省会城市（不含拉萨）和计划单列市在内的35个重点城市近一年的房价走势进行梳理发现，深圳涨幅最大，达到了14.6%。另外有11个重点城市房价跌回一年前，天津跌幅最大。
-[https://finance.sina.com.cn/china/caijingtop10/2021-01-06/doc-iiznctkf0503136.shtml?cref=cj](https://finance.sina.com.cn/china/caijingtop10/2021-01-06/doc-iiznctkf0503136.shtml?cref=cj)
+美国的政治环境很复杂，永远不要指望美国任何一个政客可以灭掉中共。郭先生不止一次在直播中说，政客都是骗子，不要相信他们。灭共需要靠我们自己，我们的每一个点赞，每一个转发都有可能给中共致命的打击。所以，我们自己的心态要真正强大起来。相信正义，相信爆料革命。
 
-**5.又有变数？美财长反对纽交所撤销摘牌三家中企计划
-**纽约证券交易所撤销对三家中企的摘牌计划又有变数？英国路透社爆料称，据知情人士当地时间5日透露，美国财政部长姆努钦致电纽约证券交易所总裁斯泰茜坎宁安，告诉后者自己不同意撤销摘牌三家中企的决定。
-[https://finance.sina.com.cn/china/caijingtop10/2021-01-06/doc-iiznctkf0503136.shtml?cref=cj](https://finance.sina.com.cn/china/caijingtop10/2021-01-06/doc-iiznctkf0503136.shtml?cref=cj)
+最近的很多事情表面上来看很让人失望，这是人之常情。但是，我们要把这些心情转化成力量，更为坚定的投入到这场战斗之中。如果说因为这些就放弃了爆料革命这是不应该的，这只是大餐前的开胃菜，未来将会有更猛更炸裂的消息出来。
 
-By 【秘密翻译组金融团队-Totoro】
+中共因为恐惧，现在什么都做不了。他们无法阻止事情的发展，只能用些下三滥的手段来影响整个大局，然而这都是没有用的。我们这些支持正义的战友，把自己该做的每一件事做好，就足够了。我们的Action，才是每一件大事发生前最重要的一步。
+
+注：本文仅代表作者观点
 
 0

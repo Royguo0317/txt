@@ -1,28 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快讯！南希-佩洛西提议罢免川普的总统职务
-` 经济金融组` [轉載自GNews](https://gnews.org/zh-hans/729567/)
+## 澳大利亚布里斯班将因病毒新变种封锁三天
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/729699/)
 
-收集：JAY
-编撰：WJMG 
-复核：MY
+- 编辑：Victor Torres
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/3-12.png)图片来自链接视频截屏
 
-众议院议长南希-佩洛西表示，如果不 “立即 “援引第25条修正案罢免总统唐纳德-川普，她可能会推进弹劾案。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-“我和参议院民主党领袖一起呼吁副总统立即援引第25条修正案，解除这位总统的职务，”她说。
+**西班牙2021年1月8日电/西喜社—**澳大利亚布里斯班当局将从周五开始封锁城市三天，此前，一家隔离酒店的一名清洁工被诊断出感染了英国首次发现的高传染性中共病毒变种。
 
-“如果副总统和内阁不采取行动，国会可能准备推进弹劾。
+昆士兰州政府表示，在布里斯班及周边的洛根、伊普斯维奇、莫尔顿湾和雷德兰斯等市镇，口罩也将首次被强制使用。
 
-“这是我的党团的压倒性情绪”。
+该州首席卫生官员表示，”我们需要非常非常快地采取行动”。
 
-众议院议长南希-佩洛西和一干人急得连13天都等不及而着急赶川普总统下台为哪般？，佩罗西等已经清楚地意识到川普总统会绝地反击并会有大招放出，因而不得不趁火打劫趁乱造反。
+虽然在酒店隔离区的旅客中已经发现了几例变异体，但这名清洁工是澳大利亚第一个被感染的人。当局认为，这名女子是在1月2日之后被传染的。 她在周三出现症状后，检测结果呈阳性。
 
-从1月6日的美国参总两院的总统认证所发生的事情来看，美国不再有民主党和共和党之分，只有正义和邪恶之分了，无论佩罗西等再怎么操控流程和法律，但美国的老百姓，支持川普总统的七千多万选民已经看清了一切，他们发出的怒吼和团结起来的力量将会改变美国的政治版图。
+**新闻来源：**[https://apnews.com/article/yoshihide-suga-tokyo-coronavirus-pandemic-coronavirus-vaccine-japan-664f266ae81efb4b82b059c84c3bfd86](https://apnews.com/article/yoshihide-suga-tokyo-coronavirus-pandemic-coronavirus-vaccine-japan-664f266ae81efb4b82b059c84c3bfd86)
 
-参考链接：
-[https://www.skynews.com.au/details/\_6221042182001](https://www.skynews.com.au/details/_6221042182001)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
 0
