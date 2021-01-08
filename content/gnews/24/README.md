@@ -1,28 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 1/8/2021 财经快讯: 中国网络公司利用数据和算法“欺负”客户
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/729090/)
+## “教师爷”华春莹怒批蓬佩奥
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/729205/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-15.png)Image source: [https://www.reuters.com/](https://www.reuters.com/article/us-china-consumer/chinese-web-firms-bullying-customers-with-data-algorithms-consumer-watchdog-idUSKBN29C1JZ)
-**1.北京/上海（路透社）-中国政府支持的消费者协会周四表示，中国互联网公司滥用个人数据并“欺凌”人们进行购买和促销活动，从而侵犯了客户的权利。
-**[https://www.reuters.com/article/us-china-consumer/chinese-web-firms-bullying-customers-with-data-algorithms-consumer-watchdog-idUSKBN29C1JZ](https://www.reuters.com/article/us-china-consumer/chinese-web-firms-bullying-customers-with-data-algorithms-consumer-watchdog-idUSKBN29C1JZ)
+- 编辑:Victor Torres
 
-**2.预计投资交易将促进欧洲在华交易
-**香港（路透社）-律师和银行家表示，在全球第二大经济体和欧盟上个月同意一项投资协议之后，预计欧洲公司将在中国寻找资产，主要是保险，医疗保健和汽车领域的资产。
-[https://www.reuters.com/article/idUSKBN29C0LE](https://www.reuters.com/article/idUSKBN29C0LE)
 
-**3. 比特币首次突破40,000美元，推动加密货币市场价值超过1万亿美元根据Coin Metrics的数据，仅在突破39,000美元的水平之后几个小时，比特币在美东时间下午1:17左右创下40,367美元的历史新高。**[https://www.cnbc.com/2021/01/07/bitcoin-btc-rally-extends-price-hits-record-high-above-37700.html](https://www.cnbc.com/2021/01/07/bitcoin-btc-rally-extends-price-hits-record-high-above-37700.html)
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**4.8个省会房价跌回一年前：天津跌幅最大 深圳涨幅最大**
+**西班牙2021年1月8日电/西喜社—**
 
-记者根据国家统计局公布的2020年11月份70个大中城市商品住宅销售价格变动情况，对包括直辖市、省会城市（不含拉萨）和计划单列市在内的35个重点城市近一年的房价走势进行梳理发现，深圳涨幅最大，达到了14.6%。另外有11个重点城市房价跌回一年前，天津跌幅最大。
-[https://finance.sina.com.cn/china/caijingtop10/2021-01-06/doc-iiznctkf0503136.shtml?cref=cj](https://finance.sina.com.cn/china/caijingtop10/2021-01-06/doc-iiznctkf0503136.shtml?cref=cj)
+美国国会刚刚认证“假选举结果”，中共国外交部发言人华春莹便对美国摆出了“教师爷”姿态。1月8日，华春莹发推批评、数落美国国务卿蓬佩奥：
 
-**5.又有变数？美财长反对纽交所撤销摘牌三家中企计划
-**纽约证券交易所撤销对三家中企的摘牌计划又有变数？英国路透社爆料称，据知情人士当地时间5日透露，美国财政部长姆努钦致电纽约证券交易所总裁斯泰茜坎宁安，告诉后者自己不同意撤销摘牌三家中企的决定。
-[https://finance.sina.com.cn/china/caijingtop10/2021-01-06/doc-iiznctkf0503136.shtml?cref=cj](https://finance.sina.com.cn/china/caijingtop10/2021-01-06/doc-iiznctkf0503136.shtml?cref=cj)
+“仔细瞧瞧美国正在发生的事情，管好你自己的事情。 今天，这是一个悲剧和失败，你仍然看不到谁和什么对你的国家构成真正的最大威胁。 你将被视为历史上谎言和疯狂的代名词。”
 
-By 【秘密翻译组金融团队-Totoro】
+中共党魁习近平在2018年12月18日《庆祝改革开放40年的大会》上放言：“中国这样一个有着5000多年文明史、13亿多人口的大国推进改革发展，没有可以奉为金科玉律的教科书，也没有可以对中国人民颐指气使的教师爷。”
 
-0
+傲慢虚伪的中共不管是在内政还是外交等事务上自始至终玩着两套标准的把戏—只许州官放火，不许百姓点灯—不许美国评论中共的邪恶，但却可以公开谩骂、侮辱对方的重要官员。
+
+中共豢养的“伪总统”拜登要是真的上了台，他们岂止要做美国人的“教师爷”，中共的野心是做美国人民和全人类的“爷”！
+
+
+
+> ·[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw), Take a close look at what's happening in the [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw) and mind your own business. It is a tragedy & failure today you still cannot see who & what is the real big threat to your country. You will be remembered as the byword of lies and madness in history.
+> — Hua Chunying 华春莹 (@SpokespersonCHN) [January 8, 2021](https://twitter.com/SpokespersonCHN/status/1347449902402400256?ref_src=twsrc%5Etfw)
+
+
+
+参考来源：[https://www.dw.com/zh/%E4%B9%A0%E8%BF%91%E5%B9%B3%E6%B2%A1%E6%9C%89%E5%8F%AF%E4%BB%A5%E5%AF%B9%E4%B8%AD%E5%9B%BD%E4%BA%BA%E6%B0%91%E9%A2%90%E6%8C%87%E6%B0%94%E4%BD%BF%E7%9A%84%E6%95%99%E5%B8%88%E7%88%B7/a-46780354](https://www.dw.com/zh/%E4%B9%A0%E8%BF%91%E5%B9%B3%E6%B2%A1%E6%9C%89%E5%8F%AF%E4%BB%A5%E5%AF%B9%E4%B8%AD%E5%9B%BD%E4%BA%BA%E6%B0%91%E9%A2%90%E6%8C%87%E6%B0%94%E4%BD%BF%E7%9A%84%E6%95%99%E5%B8%88%E7%88%B7/a-46780354)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
++1

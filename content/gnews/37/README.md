@@ -1,25 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统连发五推的视频 (下）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/728913/)
+## 1/7/2021 班农: 你不能活在幻想中。我们必须集中精力, 不要被左派玩弄于股掌之间。生活原本是不公平的。
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/729046/)
 
-川普总统发推五次并发文让大家必须看的视频内容是关于什么的呢？
+By： 【秘密翻译组 G-Translators – 精翻组】
 
-想知道川普总统对大选、中共、病毒的看法？
-
-想知道川普总统会采取什么行动吗？
-
-视频会告诉你一切。
-
-视频编辑字幕： 美好的时光
-
-原创观点文章 – 2021/01/08
-
-温哥华圆成农场
-
-* * *
-
-视频来源：[https://www.youtube.com/watch?v=rXtGItm1bvQ](https://www.youtube.com/watch?v=rXtGItm1bvQ)
-
-+4
++1
