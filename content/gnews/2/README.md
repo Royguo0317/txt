@@ -1,38 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选追踪】1/7/21 德州总检察长表示 国会越界抗议者需承担责任
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/727567/)
+## 【重磅速递】美国联邦通信委员会突发公告 恐与川普总统被社交媒体禁声有关
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/727645/)
 
-![]()![](https://media.npr.org/assets/img/2019/05/31/composite-aoc-cruz_custom-ab4b31533b79727c889023263afdcf2569a855d2-s800-c85.jpg)来源：Alex Wong/Alex Wroblewski/Getty Images
-1月7日美东时间下午1点多，德州总检察长肯·帕克斯顿（Ken Paxton）在福克斯玛丽亚·巴蒂罗莫节目采访时表示，支持对国会山的暴力抗议者进行逮捕和起诉，他说：”越界 “的抗议者必须承担责任。昨天几千人在那里为川普欢呼，大部分人是和平的，只有少数人越界侵犯了白宫的资产，他们必须为此负责。
+作者：Skagen【㊙️翻Gnews原创组】
 
+责编：心声
+![This image from FEMA shows the Presidential Alert that many Americans will receive on Wednesday, Oct. 3.](https://www.mcall.com/resizer/gaA_LrcWk0U7S2lWH1aXlkQpQW8=/800x448/top/www.trbimg.com/img-5bb38d36/turbine/mc-1538493746-vc85xwhx5i-snap-image)来源：FEMA
+**2021年1月7号美国联邦通信委员会(委员会或FCC)执法局发布执法建议，提醒广播公司、有线电视运营商、无线有线电视运营商、有线视频服务提供商、卫星数字音频广播服务提供商和直接广播卫星提供商(EAS参与者)有义务遵守EAS规则，包括确保残疾人可以获得EAS警报。**
 
+今天出现在FCC官方网站上的一则题为 “执法局提醒EAS参与者遵守义务 “的公告引起了人们的关注，因为这则公告是在川普支持者冲进华盛顿特区国会大厦，引发国民警卫队反应后不到24小时发布的。
 
-> Protesters who 'crossed the line' must be held accountable: Texas AG [https://t.co/o0KtTcOaYv](https://t.co/o0KtTcOaYv) [@MorningsMaria](https://twitter.com/MorningsMaria?ref_src=twsrc%5Etfw) [@FoxBusiness](https://twitter.com/FoxBusiness?ref_src=twsrc%5Etfw) || On Parler @Mariabartiromotv
-> — Maria Bartiromo (@MariaBartiromo) [January 7, 2021](https://twitter.com/MariaBartiromo/status/1347254190012321797?ref_src=twsrc%5Etfw)
+FCC提醒广播公司有法律义务遵守通过紧急警报系统转播信息，而推特、脸书和Instagram “无限期 “等社交媒体禁止川普总统发声在同一天发布，这两件事必定有关联。
 
-
-
-同日下午一点多，泰德克·鲁兹（Ted Cruz)参议员与民主党众议员亚历山德里娅·奥卡西奥-科尔特斯（昵称“AOC”）在推特开战。
-
-科尔特斯先开战：克鲁兹参议员，你必须接受这是你的责任，是因你的疯狂，自私自利的行为导致昨天四人死亡的。还有你是如何通过这次骚乱筹集资金的。你和霍利参议员都必须辞职。如果你不辞职，参议院就应该开除你。
-
-克鲁兹参议员也不是省油的灯，不到一小时就回怼：你是个骗子！在参议院领导一场关于确保选举公正的辩论是在做我们应做的工作，而这与昨天袭击国会大厦的卑鄙恐怖分子无关。对不起，我哪儿也不去。当你和你的社会主义伙伴们试图大规模加税时，当你试图通过绿色新政并破坏数百万个工作岗位时，当你推动大赦时，当你试图将最高法院塞满积极分子来破坏我们的宪法权利时，而我将一步步与之抗争，并与我们的人民站在一起。
+推特用户AwakenedOutlaw @AwakenedOutlaw认为：“我相信每个人都明白为什么联邦通信委员会(突然)决定提醒那些发射电子信息服务的人，他们有义务通过法律的力量来遵守。”
 
 
 
-> 1/2 [@AOC](https://twitter.com/AOC?ref_src=twsrc%5Etfw) You are a liar. 
+> I trust everyone understands WHY the FCC (out of the blue) decided to remind those who transmit EAM's that they are obligated by the force of law to comply.
 > 
-> Leading a debate in the Senate on ensuring election integrity is doing our jobs, and it’s in no way responsible for the despicable terrorists who attacked the Capitol yesterday.
-> 
-> And sorry, I ain’t going anywhere. When you and your socialist buddies… [https://t.co/UoKBOC8ZU7](https://t.co/UoKBOC8ZU7)
-> — Ted Cruz (@tedcruz) [January 7, 2021](https://twitter.com/tedcruz/status/1347243715182661633?ref_src=twsrc%5Etfw)
+> Buckle up. [https://t.co/lb8FSJajqq](https://t.co/lb8FSJajqq)
+> — AwakenedOutlaw⚒️ (@AwakenedOutlaw) [January 7, 2021](https://twitter.com/AwakenedOutlaw/status/1347267494420078592?ref_src=twsrc%5Etfw)
 
 
 
-克鲁兹是一位老练的政客，他对社会主义和共产主义思想对美国的破坏还是保持着清醒的认识。
+紧急警报系统是由联邦政府监督的，它允许总统在国家紧急情况下通过所有的电视台和广播电台向全国发表讲话。法律要求广播公司必须切入他们的节目，转播紧急信息。
 
-译者：Skagen【㊙️翻Gnews原创组】
+川普总统将要发布什么紧急命令，让我们拭目以待。
 
-0
+
+
+信息来源：
+
+[Enforcement Bureau Reminds EAS Participants of Compliance Obligations](https://www.fcc.gov/document/enforcement-bureau-reminds-eas-participants-compliance-obligations)
+
+（本文仅代表作者个人观点）
+
++2

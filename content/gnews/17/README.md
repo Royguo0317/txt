@@ -1,36 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国务卿蓬佩奥认为“武汉实验室”是中共病毒源头
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/727478/)
+## 上不了头条：在那些暴力抗议者开始破坏国会大厦时，川普的支持者们将他们从国会大厦拉开–这些人是谁？
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/728077/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Pompeo.jpg)图片来源:CNN
-据《华盛顿审查员》（Washington Examiner）2021年1月6日的报道，尽管国务卿迈克·蓬佩奥（Mike Pompeo）与支持拜登的主流媒体处于难以弥补的对立关系，但他还是依据国家情报单位提供的可靠消息认定，武汉病毒研究所没有对该室研究的病毒实行有效的控制，因而要为中共病毒疫情的大爆发负责。
+翻译： 康州盘古农场 – Freeearth
+校对： 康州盘古农场 – 烟波浩淼
+编辑：康州盘古农场 –V
+![]()![](https://gnews.org/wp-content/uploads/2021/01/mob.png)
+**昨日在华盛顿举行的国会大厦活动中，川普支持者告诉人们不要破坏财产。 由于某些原因，主流媒体不想报道此事。**
 
-报道指出，主流媒体一直批评蓬佩奥的这种说法。对此，蓬佩奥周三再次重申，“虽然我们分享共同的情报资料，但是每个人对情报的认知程度不尽相同。”他补充说，有“大量证据”显示，武汉实验室的控制失误导致了中共病毒疫情的爆发。
+昨天总统在华盛顿发表讲话后，数以百万计的总统支持者们游行前往国会大厦。 这时候，人群中的一些人开始破坏国会大厦。 在发生这种情况时，人群中的川普支持者开始对他们大喊，让他们停下来。 纽约市前警察局长在一条推文中指出了这一点：
 
-报道称，在美国国家安全局的集体努力之下，美国情报界拥有出色的与“大数据”有关的经验和分析能力，让美国政府可以充分确认，中共是如何费尽心思地隐瞒该实验室相关的研究活动，比如实验室人员的进出，以及在2019年12月病毒爆发之前、期间和之后该室的相关基本操作流程。然而，大数据分析的重点是用数据模式来鉴别事物的特性，尚不足以提供一个跨领域，可信度高的情报评估，因此无法认定武汉实验室就是中共病毒疫情爆发的起源。
+[Bernard B. Kerik on Twitter: “President @realDonaldTrump supporters pulling Antifa terrorists away from building. There’s plenty of these videos. Why isn’t the #mainstreammedia reporting? https://t.co/ItzN2YWETL” / Twitter](//t.co/ItzN2YWETL&quot;%20/%20Twitter)
 
-报道认为，一个必须理清的重要观点是，“掩盖实验室相关活动的证据并不一定表示实验室本身就是爆发场所。”蓬佩奥也许打算以“掩盖实验室相关活动的证据”，作为他对“实验室本身就是爆发场所”言论的基础。尽管如此，中共政府用非常明显的方法不断掩盖武汉实验室操作流程的事情是让人十分震惊的！这强烈暗示中共是在隐​​藏一些重要的证据！
+*伯纳德**·**凯里克*[*@BernardKerik*](https://twitter.com/BernardKerik)
 
-报道指出，由美国所领导的“五眼联盟”（美国，英国，加拿大，澳大利亚，新西兰）的外交人员也不同意蓬佩奥的看法。一位不愿透露姓名的“西方外交官”告诉美国有线电视新闻网（CNN）说， “我们并不认为实验室因为“发生事故”而导致了中共病毒的爆发。他们认为中共病毒是在武汉海鲜市场由动物和人的互动而产生的。这位外交官说，“五眼联盟”正在围绕这种认知收集相关评估。CNN报道说“五眼联盟”的外交官们同意这位外交官的说法。然而政治评论家汤姆･罗根(Tom Rogan)根据他的情报来源指出，“认为新冠病毒是武汉海鲜市场人与动物之间的互动而产生的概念”，是完全不正确的！
+*川普总统的**支持者**们**将**安提法恐怖分子**从国会大厦**拉开**。* *有大量这样的视频**。* *主流媒体**为**何不**报**告？*
 
-报道称，虽然蓬佩奥迈出的步伐比其他人更大，但一些“五眼联盟”国也一致相信，那些中共极力掩盖武汉实验室的证据的确很有说服力。他们与蓬佩奥唯一不同的是，中共掩盖武汉实验室的证据，并不能表明该实验室就是中共病毒的起源。另外，美国并没有与“五眼联盟”所有盟国的行政决策部门分享有关武汉实验室的所有情报，这么做的理由是为了保护重点消息来源，并收集更多确凿的情报以便进一步获得“五眼联盟”的信任。
+*下午**11**：**06·2021**年**1**月**6**日*
 
-简而言之，蓬佩奥正向揭开中共病毒真相的面纱大步迈进，而他根据的是合法的情报资讯来源，情报界正在努力解开这个谜题，一切都是刚刚开始！
+特朗普支持者梅利莎·泰特（Melissa Tate）也报道了这一事件：
 
-**点评:** 美国国务卿蓬佩奥认为，中共企图掩盖中共病毒的真相是“典型的共产主义虚假宣传”。中共国仍在继续传播有关该病毒的虚假信息，并妨碍世界卫生组织对其病毒的起源和传播进行调查。蓬佩奥始终相信，中共要为中共病毒的传播“付出代价”！在这场灾难之后，世界对中共的看法将有所不同。
+[Emma Right on Twitter: “@TheRightMelissa Yes! Trump supporters tried to stop breaking of windows more than once —even ended fighting with them. I was there watching n taping! https://t.co/Ah0klHv4Fw” / Twitter](https://twitter.com/emmbeliever/status/1347010602078756864?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1347010602078756864%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.thegatewaypundit.com%2F2021%2F01%2Fnot-making-headlines-trump-supporters-pulled-protesters-away-capitol-building-started-damaging-people%2F)
 
-关于中共的疫苗，蓬佩奥在一份声明中提到，“由于毫无透明的临床试验结果及相关问责制度，中共所兜售的疫苗完全缺乏安全性和功效性的相关必要数据。”因此引起的严重后果也会使得中国公民和整个世界处于危险之中。蓬佩奥呼吁所有国家要求中共必须对“病毒真相透明化”，并警告说，如果不能做到“中共病毒的透明化”，中共国的公共卫生危机，将大大增加全世界再次爆发中共病毒大流行的可能性。
+*艾玛**·**瑞特*[*@emmbeliever*](https://twitter.com/emmbeliever)
 
-闫丽梦博士也不断在媒体呼吁：“中共病毒疫苗的副作用极大，会产生ADE(antibody-dependent enhancement抗体依赖的增强作用)，让病毒更容易入侵人体。中共既无疫苗开发能力，亦无生产能力，CCP疫苗不可信！。”
+*Replying to @TheRightMelissa*
 
-美国目前仍是已知感染人数最多，确认死亡人数最高的国家。美国副国家安全顾问马修·博定格（博明，“Matthew Pottinger”）也公开表示，中共病毒最有可能是来自中共国实验室，目前所有的目标都指向中共武汉实验室的病毒泄漏，或是无心或是故意。但阎丽梦博士斩钉截铁地告诉我，“P4实验室是训练有素的实验室，不可能不小心泄漏病毒而造成中共病毒疫情的大爆发。”
+*是的**!**川普的支持者不止一次**试图阻止他们**打破窗**户**，甚至最后**还**和他**们**打了起来**。* *我在那里看着并**录着**像！*
 
-[原文链接](https://www.washingtonexaminer.com/opinion/mike-pompeos-intelligence-basis-for-his-wuhan-lab-claims)
+*下午**8**：**42·2021**年**1**月**6**日*
 
-翻译：牛小妹
+大媒体不会对此进行报道，但这是事实。自从未来的总统在2015年从（川普大厦）自动扶梯上下来（开始了总统竞选活动）以来，他们一直试图将**川**普团队与暴力和法西斯主义相提并论。但这从来都不是事实。
 
-校对：文旺
+原文作者：乔·霍夫特（Joe Hoft）
 
-+1
+发布时间：2021年1月7日上午9:48
+
+原文链接: [https://www.thegatewaypundit.com/2021/01/not-making-headlines-trump-supporters-pulled-protesters-away-capitol-building-started-damaging-people/](https://www.thegatewaypundit.com/2021/01/not-making-headlines-trump-supporters-pulled-protesters-away-capitol-building-started-damaging-people/)
+
+0

@@ -1,33 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】两名挪威养老院住客接种辉瑞COVID疫苗后死亡
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/727086/)
+## 中共妄图加入CPTPP遭日本婉拒
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/727646/)
 
-作者：香草山写作组 四季
+俄罗斯莫斯科喀秋莎农场   文强
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
+编辑上传   银河
 
+*释义：CPTPP的前身是TPP。TPP全称《跨太平洋伙伴协议》。2016年2月4日，由美国、日本、加拿大、澳大利亚、新西兰、新加坡、马来西亚、文莱、越南、墨西哥、智利和秘鲁12个国家签署，TPP的目的是在亚太地区计划建立自由贸易区。但美国总统川普在2017年1月宣布退出TPP。2018年3月8日，余下的11个国家达成共识并在智利签订了CPTPP协议。*
+![]()![](https://gnews.org/wp-content/uploads/2021/01/images2PU208Q6.jpg)rfi.fr
+中共总书记习近平去年曾公开称，中共将积极考虑加入《全面与进步跨太平洋伙伴关系协定》（简称CPTPP），但被日本婉拒，日首相菅义伟近日公开对日媒说，中共要加入“很难”。
 
+中共国务院总理李克强早在去年5月在中共两会的中外记者会上说：“对于参加CPTPP，中方持积极开放的态度。”习近平11月底在参加亚太经合组织（APEC）领导人会议时也说，“中方将积极考虑加入《全面与进步跨太平洋伙伴关系协定》。”称中共国加入CPTPP对持续改革开放有好处。
 
-据[零对冲（Zero Hedge）](https://www.zerohedge.com/geopolitical/norwegian-nursing-home-patients-dead-after-receiving-first-dose-pfizer-covid-vaccine)1月7日报道，继一名葡萄牙护士接种第一剂CCP病毒疫苗死亡后，又有两名挪威疗养院住客在类似情况下去世。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/MOS0929-【热点播报】挪威养老院住客接种辉瑞COVID疫苗后死亡.jpg)
-挪威从2020年12月27日开始接种CCP病毒疫苗。这两位逝者都是挪威首批接种辉瑞-生物技术（Pfizer-BioNTech）疫苗的人。挪威医学当局表示，挪威国家公共卫生研究所将牵头调查死亡原因，评估疫苗是否与此有关。
+中共持续放风要加入CPTPP，但加入CPTPP需要得到所有成员国的一致同意。美国退出CPTPP后，目前有11个会员国的CPTPP由日本主导，再加上今年轮到日本担任轮值主席国，因此日本具有一定的影响力。
 
-零对冲（Zero Hedge）此前报道，CCP病毒疫苗的“不良”反应率可能已经比流感疫苗高出50倍之多。
+日本产经新闻1月3日报导，日本政治评论家樱井良子在对日本首相菅义伟的专访中说，中共国家主席习近平去年表态有意加入CPTPP，这很危险，经济力是中共建立霸权的最大武器，中共国会将这武器充分运用于RCEP，将来或许也会在CPTPP运用这武器。
 
-关于不良反应和潜在相关死亡的零星报道已经引起世界各地的关注。在以色列，有100多人在接种第一剂疫苗后感染了病毒。
+对此，菅义伟回应道，CPTPP的规定要求成员国必须具有非常高水准的市场开放，所以这对中共国而言，门槛相当高，以中共现行的政治和经济体制很难参加。他也表示日本将审慎回应中共想加入CPTPP一事。
 
-近期，接连有关接种CCP病毒疫苗后死亡的报道，令人震惊。 结合爆料革命对世界大重置计划的揭露，笔者对人类的生存空间产生极大的忧虑和关切。
+美国华盛顿智库战略暨国际研究中心（CSIS）经济项目的资深副总裁古德曼（Matthew Goodman）也认为，CPTPP的标准很高，对中共来说很难达标，而且中共在加入国际组织后只说不做的恶行，周边国家都有明晰的认知。
 
-（文章仅代表作者个人观点。）
+在CPTPP的成员国中，日本因为领土问题与中共的关系比较紧张；马来西亚、越南、文莱与中共在南中国海存在领海争议；澳大利亚更是因中共病毒追责问题被称为“反华急先锋”。另外，在中共加入世界贸易组织（WTO）之后，经常通过经贸手段威胁恐吓贸易伙伴，可谓恶名远扬。中共想加入CPTPP实属不易。此时，中共急切想加入CPTPP，可能只是中共趁美国选举政权不定在亚洲领导力真空时的一种表态，仅是战略与象征意义。
 
+参考链接：
 
+[https://www.epochtimes.com/gb/20/12/3/n12593237.htm](https://www.epochtimes.com/gb/20/12/3/n12593237.htm)
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+[https://www.epochtimes.com/gb/21/1/3/n12664081.htm](https://www.epochtimes.com/gb/21/1/3/n12664081.htm)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+[https://hk.aboluowang.com/2020/1204/1530146.html](https://hk.aboluowang.com/2020/1204/1530146.html)
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+[https://www.voachinese.com/a/5678592.html](https://www.voachinese.com/a/5678592.html)
 
 0

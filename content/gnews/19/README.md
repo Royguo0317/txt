@@ -1,31 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共修订“统战条例” 美国驻联合国大使计划访台
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/727425/)
+## 中共阻止研究人员团队入境调查冠状病毒来源
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/728058/)
 
-俄罗斯莫斯科喀秋莎农场 银河
+翻译：康州盘古农场-Bruce
 
-编辑上传 星河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/MW-HX245_kellyc_20191219211821_ZG.jpg)marketwatch.com
-中共中央委员会1月5日发布修订后的《中国共产党统一战线工作条例》，新版中去掉了“试行”条款，增加对海外和台湾的统战任务。《条例》保留坚持一个中国，“遏制台独等分裂势力，维护国家核心利益”等原版条款，删除了 “凝聚侨心、引导华侨”等温字词句，新增“发展壮大台湾爱国统一力量”，“不断推进祖国和平统一进程”等表述，直接明确的将台湾作为主要统战对象。
+校对：康州盘古农场-烟波浩淼
 
-与此同时，条例中还增加“加强思想政治引领”，“增进华侨和留学生对祖国的热爱和对中国共产党、中国特色社会主义的理解认同”等针对海外侨胞的统战任务。台湾学者分析，中共意图分裂台湾和国际团结抵抗中共的力量。
+审核：康州盘古农场-V
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-13.png)*尽管世卫组织与中共政府达成协议，允许科学家进入中共国，但中共已经阻止世界卫生组织官员进入中共国调查冠状病毒大流行的起源。*图片：纽约邮报
+**世卫组织总干事谭德赛（****Tedros Adhanom Ghebreyesus）说，他对中共政府的拖延感到 “失望”，并指出，根据世卫组织和中共政府之间的协议，国际科学小组的成员已经在过去一天开始离开他们的国家。**
 
-中共修订后的统战条例，暴露了习近平意图通过海外统战手段，影响渗透他国内政、国安、媒体、主权，以达到将共产主义赤化到国际社会的目的。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/2-15.jpg)ir.voanews.com
-美国国务卿蓬佩奥美东时间1月7日凌晨发表声明谴责中共进行香港大抓捕，同时宣布美国驻联合国大使克拉夫特（Kelly Craft）近日将访问台湾。克拉夫特曾多次公开支持台湾参与国际事务，此行来访的意义重大，展现了美方持续深化美台合作伙伴关系的意愿。
+**“今天，我们了解到，中共官员还没有最后确定团队抵达中共国的必要许可，”谭德赛在日内瓦的新闻发布会上说。**
 
-台湾外交部发言人欧江安指出，“克拉夫特此行来访是首度由现任美国驻联合国常代访问台湾，展现美国对台湾国际参与的强劲支持，并象征台美全球伙伴关系的进一步提升。”
+谭德赛补充说，当他们得知这一消息时，团队的两名成员已经在前往中共国的途中，这使他们在等待下一步的消息时陷入了困境。
 
-美国政府的总统大选进入关键时刻，这不仅是美国总统的选举，也是中共和美国的对抗，自由民主与共产极权的较量。很多国家都在观望大选最终结果以确定未来国际发展的走向。在此时蓬佩奥作为川普政府的中坚力量，发表声明谴责中共对香港的迫害并宣布美国驻联合国大使访问台湾，代表川普政府在向中共和世界传递信息，“川普政府信心十足、按部就班推进各项既定工作，并没有受到1月6日所谓大选结果的影响。”川普政府仍然关注着台湾安全及亚太利益，不会给中共可乘之机。
+尽管中共政府因应对COVID-19而受到一些人的[赞扬](https://www.washingtonpost.com/world/asia_pacific/chinese-officials-note-serious-problems-in-coronavirus-response-the-world-health-organization-keeps-praising-them/2020/02/08/b663dd7c-4834-11ea-91ab-ce439aa5c7c1_story.html)，但对调查该病毒的来源仍然讳莫如深。中共已经向调查病毒起源的研究机构[发放了补助金](https://abcnews.go.com/Technology/wireStory/china-clamps-hidden-hunt-coronavirus-origins-74963891)，但封闭式地监控他们的研究结果，并且不允许公布任何日期，除非这些信息是由习近平主席负责的内阁批准的。
 
-有媒体曾臆测川普政府在卸任前会突袭访问台湾，克拉夫特此行被推测是 “川普政府的临去秋波”。但是与之相反还有一种推测，就是川普政府对连任胸有成足，已经收集了竞选对方的违法证据，积蓄力量、等待时机，1月20日前会全面反转给予对方致命一击。
+中共缺乏与国际研究人员的合作，这只会助长人们对该病毒可能源自中共实验室的猜测。虽然这一假设导致一些科学家和许多媒体直接否定，但《纽约杂志》最近的一篇文章认为，有一个合理的机会正是如此。
 
-参考链接：
+文章的作者尼克森·贝克（Nicholson Baker）[写道](https://nymag.com/intelligencer/amp/article/coronavirus-lab-escape-theory.html?__twitter_impression=true&amp;s=04&amp;fbclid=IwAR0uLrwtliS8Tg6d2vFG1aGk01Ee_WRdkiyxIa3rbBLjNUCW5uP1_zlgjp8)：“许多有思想的人否定了这一概念，他们可能是对的。”他们真诚地相信，冠状病毒是自然产生的，‘人畜共患’，从动物身上产生的，之前没有经过研究，没有经过杂交，没有通过细胞培养，也没有经过训练有素的专业人士的其他工作。”
 
-[https://www.rfa.org/mandarin/yataibaodao/hcm-01072021055510.html](https://www.rfa.org/mandarin/yataibaodao/hcm-01072021055510.html)
+贝克继续说“没有直接证据证明这些人畜共患病的可能性，就像没有直接证据证明实验事故一样–没有书面供词，没有罪证笔记本，没有正式的事故报告。” 现在就否定任何假说还为时过早。
 
-[https://www.rfa.org/mandarin/yataibaodao/gangtai/hx-01072021054351.html](https://www.rfa.org/mandarin/yataibaodao/gangtai/hx-01072021054351.html)
+在中共与国际研究人员合作之前，此类问题仍将是一个谜。
 
-+1
+**校对评**：如果中共心里没有鬼为什么要一次次阻止专家调查？特别是川普总统多次建议美国专家前往调查更是没有成行。中共曾经在彻底捣毁了武汉海鲜市场，军管了武汉P实验室后让其选定的世卫专家前往作过所谓的调查。海鲜市场没有了， 武汉P4实验室也根本没能进去。掩盖真相是CCP的一贯做法，调查不过是演戏做文章。
+
+【评论纯属校对个人观点】
+
+原文作者：麦克·罗伯特·李（Mike Robert Lee）
+
+发布时间：2021年1月6日
+
+文章链接：[https://bongino.com/china-blocks-team-of-who-researchers-from-entering-the-country-to-investigate-virus-origins/](https://bongino.com/china-blocks-team-of-who-researchers-from-entering-the-country-to-investigate-virus-origins/)
+
+0

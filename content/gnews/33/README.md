@@ -1,57 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 独家：证据揭示今天在国会的（骚乱者）不是特朗普支持者
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/727167/)
+## 美国登记中共病毒死亡人数创单日最高纪录
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/727811/)
 
-翻译： 康州盘古农场 – Antsee-GTV
-
-校对： 康州盘古农场 – YY
-
-编辑：康州盘古农场 – Antsee-GTV
-
-![DC]()![DC](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-07-at-23.58.11.png)
-
-**今天闯入国会山的人是谁？他们可能并非都是特朗普支持者。实际上，其中有些人可能出现在现场以将特朗普总统和他的追随者抹黑成暴力分子（而他们并不是）。**
-
-我们在先前的一篇新闻中报道过，一位退休的联邦调查局（FBI）特工报告说安提法（Antifa）现身今天在华盛顿举行的集会活动。
-
-据《华盛顿时报》报道，他们在XRVision的朋友通过面部识别系统认出，闯入国会山的人中至少有一人与安提法有关。
-
-今天在国会山出现的一个人被发现在去年夏天参加黑命贵（BLM）运动，但据报道他那时拿着 QAnon 的海报。他与 QAnon 有关还是与黑名贵有关，还是其它？我们不得而知。根据我们先前的报道，这个人今天下午坐在议长的椅子上。尽管外面天气冰冷，但他连衬衫都没有穿。
+- 编辑:Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-> [pic.twitter.com/QMJwOZgJ9g](https://t.co/QMJwOZgJ9g)
-> — FamilyFellowship.com (@FamilyInternet) [January 6, 2021](https://twitter.com/FamilyInternet/status/1346937617703645185?ref_src=twsrc%5Etfw)
+**西班牙2021年1月7日电/西喜社—**
 
+美国周四注册近3900例中共病毒死亡创单日新高。
 
+该病毒在几个州激增，加州受到的打击尤为严重，周四报告了创纪录的两天共1042名中共病毒死亡。那里暴涨的病例数有可能迫使医院配给护理，基本上决定谁生谁死。
 
-其他的报道说，贝克特·阿拉斯加（Baked Alaska）和尼克·富恩特斯（Nick Fuentes）出现在议长办公室：
+“人们都在喘息，看起来像他们正在溺水，而他们就在我们面前的床上，”圣克拉拉谷地区医疗中心的急诊室医生杰弗里·钱（Jeffrey Chien）博士说，敦促人们尽自己的努力来帮助减缓传播。”我求大家帮助我们，因为我们不是前线，我们是最后一线。”
 
+与此同时，根据美国疾病控制和预防中心的数据，周四，接种了第一针中共病毒疫苗的美国人数量攀升至至少590万，单日增加约60万。数亿人将需接种疫苗。
 
+全球约有190万人死于该病毒，仅美国就有36万多人。12月是迄今为止全国最致命的一个月，健康专家警告说，由于假期期间的家庭聚会和旅行，1月份可能会更加可怕。
 
-> Streamers Nick Fuentes and Baked Alaska vandalizing Nancy Pelosi's office [pic.twitter.com/8Rm5FFHeUE](https://t.co/8Rm5FFHeUE)
-> — Fifty Shades of Whey (@davenewworld\_2) [January 6, 2021](https://twitter.com/davenewworld_2/status/1346941481907593216?ref_src=twsrc%5Etfw)
+在加州，卫生当局周四报告了583名新的死亡病例，此前一天有459人死亡。那里的总死亡人数超过28000人。该州还登记了超过25万的每周新病例，只有亚利桑那州的单位病例数超越加州。佛罗里达州以超过1.98万的病例数打破了其单日最高纪录，而其死亡人数达到2.24万人。
 
+拥有1000万居民的全国人口最多的洛杉矶县和其他近二十个县的中共病毒患者的重症监护室床位已基本用完。
 
+“这是一场史诗级的健康危机，”洛杉矶县公共卫生主任芭芭拉·费勒说。
 
-“ 贝克特·阿拉斯加” 在2016年是特朗普的支持者，但随后他转而反对特朗普。今天他不知为何与充满争议的活动家尼克·富恩特斯一起出现在了国会山议长办公室。
+南加州卫理公会医院网站上发布的指南警告说。”如果一个病人病得很重，而且很可能无法存活下来(即使接受了救命的治疗)，那么某些资源……可能会分配给另一个更有可能存活的病人。”
 
-今天在国会山出现了各色人物。至少有一个人手上有共产主义者纹身-特朗普的支持者可不会有（这样的纹身）：
-
-***对今天所发生事件的一种分析认为：***
-
-***今天的事件是一个圈套，试图破坏和抹杀特朗普运动。这和自从特朗普宣布参选以来所实施的一系列针对唐纳德******·******特朗普和美国人民的信息战和心理战行动相吻合。***
-
-其他人指出，这是特朗普支持者自11月大选以来第三次在华盛顿举行集会，直到今天之前没有发生暴力行为。 此外，为什么安提法没有像往常一样攻击特朗普的支持者？ 是不是因为他们已经渗透了这次活动？
-
-主流媒体和科技巨头们今晚一直在羞辱特朗普的支持者们。 他们试图羞辱特朗普的支持者，因为他们敢于公开揭露这场大选是以可怕的腐败方式偷取的！
-
-显而易见的是，今天的集会活动中有一些坏人存在，他们的目的不是为了抗议，而是置特朗普的支持者于不利的境地。
-
-作者：乔·霍夫特 / 2021年1月6日
-
-原文链接： [https://www.thegatewaypundit.com/2021/01/trump-protestors-inside-capital-today-evidence-shows-werent-trump-supporters/](https://www.thegatewaypundit.com/2021/01/trump-protestors-inside-capital-today-evidence-shows-werent-trump-supporters/)
-
-+2
+新闻来源：[https://apnews.com/article/us-news-pandemics-california-coronavirus-pandemic-5d120f6273dc8ec89e3f60df98b9f5f7](https://apnews.com/article/us-news-pandemics-california-coronavirus-pandemic-5d120f6273dc8ec89e3f60df98b9f5f7)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
++1
