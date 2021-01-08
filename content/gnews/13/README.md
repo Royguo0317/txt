@@ -1,28 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快讯！南希-佩洛西提议罢免川普的总统职务
-` 经济金融组` [轉載自GNews](https://gnews.org/zh-hans/729567/)
+## 美内华达州创单日病例记录
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/729691/)
 
-收集：JAY
-编撰：WJMG 
-复核：MY
+- 编辑：Victor Torres
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/3-12.png)图片来自链接视频截屏
 
-众议院议长南希-佩洛西表示，如果不 “立即 “援引第25条修正案罢免总统唐纳德-川普，她可能会推进弹劾案。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-“我和参议院民主党领袖一起呼吁副总统立即援引第25条修正案，解除这位总统的职务，”她说。
+**西班牙2021年1月8日电/西喜社—**内华达州官员报告的中共病毒病例是自疫情开始以来单日最多的。
 
-“如果副总统和内阁不采取行动，国会可能准备推进弹劾。
+州政府官员周四报告了3,402个新的确诊病毒感染病例，使全州的病例总数达到240,795个。
 
-“这是我的党团的压倒性情绪”。
+内华达州大流行反应主任凯莱布·凯奇在本周早些时候预测了这一高峰，并表示它反映了该州经历的其他节后涨幅。
 
-众议院议长南希-佩洛西和一干人急得连13天都等不及而着急赶川普总统下台为哪般？，佩罗西等已经清楚地意识到川普总统会绝地反击并会有大招放出，因而不得不趁火打劫趁乱造反。
+内华达州一直在改写其中共病毒病例、死亡人数和住院人数的纪录，在整个长达数月的激增中，没有一个县、农村或城市幸免于难。州长史蒂夫·西索拉克对商业容量和私人聚会的严格限制将于1月15日到期，除非他延长他们。
 
-从1月6日的美国参总两院的总统认证所发生的事情来看，美国不再有民主党和共和党之分，只有正义和邪恶之分了，无论佩罗西等再怎么操控流程和法律，但美国的老百姓，支持川普总统的七千多万选民已经看清了一切，他们发出的怒吼和团结起来的力量将会改变美国的政治版图。
+**新闻来源：**[https://apnews.com/article/yoshihide-suga-tokyo-coronavirus-pandemic-coronavirus-vaccine-japan-664f266ae81efb4b82b059c84c3bfd86](https://apnews.com/article/yoshihide-suga-tokyo-coronavirus-pandemic-coronavirus-vaccine-japan-664f266ae81efb4b82b059c84c3bfd86)
 
-参考链接：
-[https://www.skynews.com.au/details/\_6221042182001](https://www.skynews.com.au/details/_6221042182001)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
 0
