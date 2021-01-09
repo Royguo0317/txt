@@ -1,33 +1,86 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## G系列堪比二战中立国—瑞典
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/733972/)
+## 【大选推特/Parler实况】1/8/2021 EST 12AM-11PM 朱利安尼|柏乐志|Newsmax|詹姆斯·伍德|Raheem: 闯入国会的人真是MAGA吗?推特正在进行大清洗! Q和 &#8220;信任计划 &#8220;的事情一直玩的是心理战
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/734281/)
 
-撰稿：两万五，爆大料
+**【大选实况】朱利安尼，美东时间1月8日9:16PM发推： 
+**
+你们认为那些爬墙的人是MAGA吗？他们是训练有素的无政府主义者，像往常一样，试图为腐败的民主党人和媒体陷害川普总统！
 
-审稿：光耀华夏
-![]()![](https://gnews.org/wp-content/uploads/2021/01/图片2-2.png)网络截图
-今天七哥在盖特上爆猛料，把新中国联邦比做第二次世界大战的中立国瑞典，把G系列比作辛普朗隧道。在探讨G系列的战略地位前，我们先看看二战时瑞典和辛普朗隧道的价值。
 
-二战时，纳粹德国的帝国银行90％的黄金交易就是通过瑞士银行进行的。在瑞士银行的“帮助”下，希特勒得到了宝贵的外汇，从而在世界市场上购买维持战争的重要物资。而辛普朗隧道承担着德国和意大利两国之间战略物资的输送。此外，罗马教廷1000多年积累的财富也存在于瑞士银行中，这就保证了瑞士避免两次世界大战的影响。
 
-在目前CCP发动的超限战中，涉及金融战，媒体战等。先从金融角度剖析G系列的价值。第一个作用就是确保资本安全。这场中美大战中，灭共势力、亲共势力在利用各种消息进行金融博弈，战场就在股票、期货等金融衍生品上。目前双方认为自己代言人为下届总统，但也要留后路，万一形势不对，这就需要将钱存在安全的地方，避免秋后算账。这时G-dollar和G-coin可以作为蓄水池容纳大量资本，而且考虑到G-coin的加密属性，就可以将G-dollar和G-coin比作数字世界的瑞士银行！
+> You think those people climbing the wall are MAGA? Or trained anarchist activists trying to frame Trump, as usual for crooked Democrats and press. [https://t.co/En8ulMDatn](https://t.co/En8ulMDatn)
+> — Rudy W. Giuliani (@RudyGiuliani) [January 9, 2021](https://twitter.com/RudyGiuliani/status/1347728938655690753?ref_src=twsrc%5Etfw)
 
-第二作用是保证资本的流动。金融战离不开美元的支持。Swift系统有追溯性，导致大资本在运作中的暴露，万一银行账号被冻结了，严重程度就如打仗缺粮。而G-coin虚拟货币避免了这个缺点。目前比特币涨破4万美元，就说明了黑钱在大量流动。拥有体量更大的G-dollar和G-coin，可以更加隐蔽地进行资金运作。
 
-接下来再从媒体战角度分析GTV、GNEWS的价值。目前川普团队在推特、FACEBOOK上接连被封号，这就造成信息沟通的闭塞。路德社曾谈到过，如果美国紧急广播系统（FCC）声音被媒体封杀，情况是多么的恐怖。这就需要有独立的媒体发声平台。目前OANN、Newsmax、C-SPAN等有良知的美国的有线电视台受限于地域的局限性，造成正确信息不能全面地传导到整个美国。而GTV、GNEWS一旦与天空WIFI（马斯克的星链）联合，正义的信息就可以传播到全球各个角落。这可以将GTV、GNEWS看做数字世界的辛普朗隧道！
 
-今天七哥将这么重磅的消息公布，说明都谈好了！战友们，大家高兴吧！
+消息来源：[https://twitter.com/rudygiuliani/status/1347728938655690753?s=12](https://twitter.com/rudygiuliani/status/1347728938655690753?s=12)
 
-（本文仅代表个人观点）
+* * *
 
-视频链接：[https://gtv.org/getter/5ff87ef787fabe2daf334567](https://gtv.org/getter/5ff87ef787fabe2daf334567)
+**【大选实况】柏乐志美东时间1月8日晚上7:16发推：**
 
-澳喜文章: [https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+好吧，推特，现在禁止中共政府的账号。不管川普有多可怕，他也没有两百万人关押在在集中营。
 
-欢迎加入澳喜农场：
 
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/澳喜图标.png)
-+1
+
+> Okay Twitter, now ban Chinese government accounts. However terrible Trump is, he doesn’t have two million people in concentration camps 👍🏼
+> — Drew Pavlou 柏乐志 (@DrewPavlou) [January 9, 2021](https://twitter.com/DrewPavlou/status/1347698672750874624?ref_src=twsrc%5Etfw)
+
+
+
+消息来源：[https://twitter.com/drewpavlou/status/1347698672750874624?s=12](https://twitter.com/drewpavlou/status/1347698672750874624?s=12)
+
+* * *
+
+**【大选实况】 Newsmax @newsmax 美东时间1月8日12:30AM 发推：**
+
+参议员Lee Zeldin对Lyndsay M Keith说：”对我们共和国来说，这是艰难的一周，无论你是否被接受和尊重，美国国会大厦的场景不应该在任何时刻发生。”
+
+
+
+> .[@RepLeeZeldin](https://twitter.com/RepLeeZeldin?ref_src=twsrc%5Etfw) tells [@LyndsayMKeith](https://twitter.com/LyndsayMKeith?ref_src=twsrc%5Etfw) "this was a rough week for our Republic, regardless of your stripes, the scene of our United States Capitol should never happen on any day." [https://t.co/VlT7z8v2lm](https://t.co/VlT7z8v2lm) [pic.twitter.com/5fmRQINHu3](https://t.co/5fmRQINHu3)
+> — Newsmax (@newsmax) [January 9, 2021](https://twitter.com/newsmax/status/1347777621849829376?ref_src=twsrc%5Etfw)
+
+
+
+消息来源: [https://twitter.com/newsmax/status/1347777621849829376](https://twitter.com/newsmax/status/1347777621849829376)
+
+* * *
+
+**【大选实况】James Wood美东时间1月8号晚上9:44发推:**
+
+在二十四小时内，Twitter减少了我的粉丝63000人。 推特的大清洗正在进行，并且毫不掩饰它的无情。 压制言论是暴政的标志。关于Twitter，唯一可以肯定的事实是，它绝对不是一个公正的言论自由的”论坛”
+
+
+
+> In one twenty-four period Twitter reduced my followers by 63,000. 
+> 
+> The purge is on and unabashed in its ruthlessness. 
+> 
+> Silencing voices is a sign of tyranny. The only sure truth about Twitter is that it is most decidedly not an unbiased “forum” for free speech.
+> — James Woods (@RealJamesWoods) [January 9, 2021](https://twitter.com/RealJamesWoods/status/1347736048281870336?ref_src=twsrc%5Etfw)
+
+
+
+消息来源：[https://twitter.com/realjameswoods/status/1347736048281870336?s=12](https://twitter.com/realjameswoods/status/1347736048281870336?s=12)
+
+* * *
+
+**【大选实况】Raheem美东时间1月8日晚上11:03发推： **
+
+我以前说过，我再说一遍。Q和 “信任计划 “的事情一直玩的就是心理战 ，目的是控制保守派并最终摧毁他们。这么多人因为对这一网络游戏产生了感情而觉得被我这条推文伤害，就更证明了我的观点。请取消对我的关注。你们精神有问题！
+
+
+
+> The fact that so many people are crying over this tweet because they’ve become emotionally attached to an internet game is proof of my point. Please unfollow me. You’re mentally ill.
+> — Raheem Kassam (@RaheemKassam) [January 9, 2021](https://twitter.com/RaheemKassam/status/1347755871145701376?ref_src=twsrc%5Etfw)
+
+
+
+消息来源：[https://twitter.com/raheemkassam/status/1347755871145701376?s=12](https://twitter.com/raheemkassam/status/1347755871145701376?s=12)
+
+**By： 【秘密翻译组 G-Translators – 精翻组】**
+
+0
