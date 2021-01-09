@@ -1,53 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 当下中共国的无奈幽默
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/731180/)
+## 每日重要Twitter播报（中文）1/7期
+` 喜馬拉雅多語組` [轉載自GNews](https://gnews.org/zh-hans/733860/)
 
-撰稿：小水滴
+撰稿记者:本来、石頭、尘凡3、CYC文穎、喜馬拉雅2020
+校对:星巴克餅乾
+播音:大腳印
+剪辑：今晚打老虎
 
-审稿：光耀华夏
-![]()![](https://gnews.org/wp-content/uploads/2021/01/图片1-2.png)图片来自网络截图
-历代王朝灭亡之前，都有大量的小道消息、传闻、民谣等等在老百姓之间偷偷地传播。现笔者摘录二则当下流传甚广的，总结精辟的段子，分享给大家。
+[每日重要推文1-7-PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/01/09014222/1-7-P.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/01/09014222/1-7-P.pdf)
 
-**一则：没有硝烟的第三次世界大战！**
 
-过去打仗叫战役，这次打仗叫战疫；
 
-过去进军先吹号，这次进军先吹哨；
-
-过去战争靠大炮，这次战争靠口罩；
-
-过去打仗要攻城，这次打仗要封城；
-
-过去出征是前进，这次出征是逆行；
-
-过去打仗用战士，这次打仗用护士；
-
-过去敌来钻地道，这次敌来进方舱；
-
-中国打上半场，其余各国打下半场，海外华人打全场。
-
-但愿2021年大家不用再上战场！
-
-**二则：**
-
-老毛（毛泽东）一挥手，下乡；
-
-老邓（邓小平）一挥手，下海；
-
-老江（江泽民）一挥手，下岗；
-
-老习（习近平）一挥手，下崽。
-
-这些流行于民间，广为传唱的段子，无不彰显老百姓的智慧。充满了老百姓对独裁统治高压的讽刺，从而用这种形式的幽默，表达老百姓在强权统治下的无奈以及默默地反抗。Take down the CCP!
-
-（本文仅代表个人观点）
-
-澳喜文章: [https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
-
-欢迎加入澳喜农场：
-
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/澳喜图标.png)
-+1
+0

@@ -1,25 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国驻联合国大使计划在1月中旬访台
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/730652/)
+## 《路德社》精选新闻快迅：谷歌下架Parler
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/731289/)
 
-俄罗斯莫斯科喀秋莎农场 银河
+出品：《路德社》 编辑：《路德社》精选主题专栏组出品
 
-编辑上传 星河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/696455057.jpg)NPR Illionis
-美东时间1月7日凌晨，美国国务卿蓬佩奥发表声明谴责中共进行香港大抓捕，同时宣布美国驻联合国大使克拉夫特（Kelly Craft）近日将访问台湾，然而并未确定最终访问日期。
 
-路透社1月8日报道，美国驻联合国代表团在官网发布了克拉夫特将访台的声明：克拉夫特大使将于1月13日至15日前往台北，与台湾高级官员和外交人士会晤，根据《台湾关系法》、三项美中联合公报和《对台六项保证》，加强美国政府对台湾国际空间坚定的持续支持。声明指出“克拉夫特大使还将于1月14日，在外交及国际事务学院（Institute of Diplomacy and International Affairs）发表演讲，介绍台湾对国际社会的重大贡献，以及台湾有意义地扩大参与国际组织的重要性。”
 
-中共“崴脚部”发言人华春莹曾在记者会上针对台湾问题威胁到，“中方将采取一切必要措施，坚决维护自身主权安全利益，美方必将为其错误行为付出沉重代价。”
+> JUST IN – Google suspends [#Parler](https://twitter.com/hashtag/Parler?src=hash&amp;ref_src=twsrc%5Etfw) from the Google Play store.
+> — Disclose.tv 🚨 (@disclosetv) [January 9, 2021](https://twitter.com/disclosetv/status/1347706354690097153?ref_src=twsrc%5Etfw)
 
-台湾外交部发言人欧江安指出，“克拉夫特此行来访是首度有现任美国驻联合国常代访问台湾，展现美国对台湾国际参与的强劲支持，并象征台美全球伙伴关系的进一步提升。”
 
-克拉夫特曾多次公开支持台湾参与国际事务，此行来访的意义重大，展现了美方持续深化美台合作伙伴关系的意愿。
 
-参考链接：
+据[disclose.tv](http://disclose.tv) 推特，谷歌已经將Parler 从谷歌商店下架！
 
-[https://www.dw.com/zh/美常驻联合国代表下周访台/a-56157744](https://www.dw.com/zh/美常驻联合国代表下周访台/a-56157744)
+谷歌发言人称：谷歌认为Parle 不段出现煽动暴力的啪文，为了保护谷歌用戶的安全，谷歌将其下架！
 
-+1
+因川普被推特封号后，大量支持者转战Parler, 这导致了谷歌对其下架！
+
+川普总统在最新的推文中写道：美国已无言论自由，只有大科技公司挑选的言论可以发表！
+
+本文作者：上進哥
+审核校对：玫瑰天空
+上传排版：糖果儿
+
+0
