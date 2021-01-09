@@ -1,40 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅速递】被禁言后首次发推 川普将为爱国者们而战
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/729985/)
+## 【大选追踪】川普总统推号被吊销 社交媒体集体封杀意味着什么？
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/730760/)
 
-作者：Skagen【㊙️翻Gnews原创组】
-
-责编**：**心声
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-5.jpg)
-来源：“川普总统1月7日讲话秘翻组翻译视频”截图
-
-**2021年1月8号美东时间早上10：50川普总统在1月7号被推特禁言后首次发推**！
-
-川普总统说：7500万伟大的美国爱国者投票给我，要求**美国第一，并使美国再次伟大**，他们的声音将会是**时代巨音**，并会在未来持续下去。他们不会被不尊重，他们也不会以任何方式、形态或形式受到不公平的对待!!!
+作者：Shawn、Kataceilian 【㊙️翻Gnews原创组、精翻组】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05090549/mmexport1604131404317.jpg.png)
+就在几十分钟前，推特公司突然吊销了川普总统的账号。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-7.jpg)
+在一个小时前推特封杀了Flynn将军和Sidney Powell检察官的账号。
 
 
 
-> The 75,000,000 great American Patriots who voted for me, AMERICA FIRST, and MAKE AMERICA GREAT AGAIN, will have a GIANT VOICE long into the future. They will not be disrespected or treated unfairly in any way, shape or form!!!
-> — Donald J. Trump (@realDonaldTrump) [January 8, 2021](https://twitter.com/realDonaldTrump/status/1347555316863553542?ref_src=twsrc%5Etfw)
+> Twitter has suspended the account of Gen. Flynn.
+> — Emerald Robinson ✝️ (@EmeraldRobinson) [January 8, 2021](https://twitter.com/EmeraldRobinson/status/1347670703655546882?ref_src=twsrc%5Etfw)
 
 
 
-他的推特仅半小时就集聚了14万个点赞，在川普总统被推特禁言的12小时内，推特股价跌了1.8%。
 
-他的推文明确表示了他将为7500万伟大的美国爱国者继续战斗，这段话与他昨天在Parler发出的最新视频相呼应。视频中川普总统将和平集会的爱国者与闯入国会山进行暴力活动的破坏者划清界限，警告那些破坏法律的人将受到惩罚。
 
-对于选举他强调：我们必须开始重建美国，检验选举结果的公正性，我一直坚信我们必须改革我们的选举法。他接着说了一句意味深长的话：一届新的政府会在1月20日宣誓就职，我目前的注意力集中于保证顺利有序的权力过渡。显然，他肯定不是指将权力“顺利有序”移交给“偷取选举的拜登政府”或是彭斯操控的“深层政府”。结合彭培奥国务卿早先在跟许多国家外长的一次视频会议上提到的“川普第二任期”，和最新推文中川普所说：爱国者们的声音将会是时代巨音，并会在未来持续下去。 “顺利有序的权力过渡”的意思就非常清楚了：权力将掌握在人民手中，并将持续很久！
+> Twitter has suspended the account of Sidney Powell.
+> — Emerald Robinson ✝️ (@EmeraldRobinson) [January 8, 2021](https://twitter.com/EmeraldRobinson/status/1347669960697503750?ref_src=twsrc%5Etfw)
 
-川普总统还在视频中暗示了病毒的问题，他说：这个时刻需要疗愈和理清事实，击败这次大流行，重建全球最伟大的经济。
 
-最后他对爱国者们说：成为你们的总统和为你们服务是我生命中至高无上的荣誉。我所有善良美好的支持者们。我知道你们很失望，但是我也想让你们知道，我们难以置信的美好历程才刚刚开始！ 这个结尾与今天的推文完美衔接。如果昨天只是“刚刚开始”，那么今天开始就要将MAGA党的时代巨音传向全美、全世界和未来。
 
-川普总统的讲话与我们爆料革命、新中国联邦创始人郭文贵先生的名言遥相呼应，让我们期待着美国在川普总统的带领下再次伟大，也期待着一个对新中国联邦最有利的结果！
+为什么推特公司突然对川普总统及其支持者们痛下杀手、集体封号呢？“PM 突发新闻”推特分析称，“特朗普在推特上说他不会去参加就职典礼，”这可能会对那些潜在考虑暴力行为的人起到鼓励作用，就职典礼将是一个 “安全 “的目标。” 这被认为是川普被账号被吊销的原因之一。
 
-[川普总统1月7日视频链接](https://twitter.com/realDonaldTrump/status/1347334804052844550?s=20)
+
+
+> Breaking: Twitter says that Trump tweeting that he won’t go to the inauguration “may serve as encouragement to those potentially considering violent acts that the Inauguration would be a “safe” target.” This was stated as one of the reasons for Trump’s suspension.
+> — PM Breaking News (@PMBreakingNews) [January 9, 2021](https://twitter.com/PMBreakingNews/status/1347697158527528961?ref_src=twsrc%5Etfw)
+
+
+
+显然这只是一个表面的说辞借口，真实的原因这些幕后操纵者再清楚不过。他们为什么那么害怕，川普只有12天的时间，华盛顿的政治精英、科技媒体、金融华尔街要大动干戈，想即刻拿下川普总统。南希-佩洛西一边鼓动彭斯和白宫幕僚立即启动第25修正案罢免川普总统职位，让彭斯代理总统。一边准备众议院要很快再次启动所谓弹劾案。
+
+下面的一个视频可能部分解释了他们之所以这么歇斯底里的原因。因为这些建制派的政治大佬们在6号的国会大选认证，是在受到外部指令和控制情况下，充当了前台的提线木偶。他们的犯罪证据正一点点被披露出来。
+
+“百合”推友称，“华盛顿沼泽里面的大鳄被操控的石锤证据。麦康奈尔在国会发言时，后面人向他做出手势后，立刻停止发言闭嘴！他显然已经接收了指令，显然他们彼此都心知肚明！麦康奈尔显然很害怕这个家伙，在担心着什么！ 欧美各政要各领域菁英阶层，98%被所谓共济会、光明会、共产国际、中共等组织控制威胁了，把柄在手难以逃脱。”
+
+
+
+> 华盛顿沼泽里面的大鳄被操控的石锤证据
+> 麦康奈尔在国会发言时，后面人向他做出手势后，立刻停止发言闭嘴！显然已经接收了指令，显然他们都心知肚明！麦康奈尔显然很害怕这个家伙，在担心着什么！
+> 歐美各政要各领域菁英阶层，98%被所谓共济会光明会共产国际、中共等组织控制威胁了，把柄在手难以逃脱 [pic.twitter.com/VIZLq1kpPS](https://t.co/VIZLq1kpPS)
+> — 百合 (@baihe66666) [January 8, 2021](https://twitter.com/baihe66666/status/1347583865628418049?ref_src=twsrc%5Etfw)
+
+
 
 （本文仅代表作者个人观点）
 
-0
++2
