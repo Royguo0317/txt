@@ -1,24 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美加州两天内死亡人数创记录
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/730028/)
+## 美国驻联合国大使计划在1月中旬访台
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/730652/)
 
-- 编辑：Victor Torres
+俄罗斯莫斯科喀秋莎农场 银河
 
+编辑上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/696455057.jpg)NPR Illionis
+美东时间1月7日凌晨，美国国务卿蓬佩奥发表声明谴责中共进行香港大抓捕，同时宣布美国驻联合国大使克拉夫特（Kelly Craft）近日将访问台湾，然而并未确定最终访问日期。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+路透社1月8日报道，美国驻联合国代表团在官网发布了克拉夫特将访台的声明：克拉夫特大使将于1月13日至15日前往台北，与台湾高级官员和外交人士会晤，根据《台湾关系法》、三项美中联合公报和《对台六项保证》，加强美国政府对台湾国际空间坚定的持续支持。声明指出“克拉夫特大使还将于1月14日，在外交及国际事务学院（Institute of Diplomacy and International Affairs）发表演讲，介绍台湾对国际社会的重大贡献，以及台湾有意义地扩大参与国际组织的重要性。”
 
-**西班牙2021年1月8日电/西喜社—**加利福尼亚州卫生当局报告说，许多医院对前所未有的病例数感到紧张，两天的中共病毒死亡总数达到了创纪录的1042人。
+中共“崴脚部”发言人华春莹曾在记者会上针对台湾问题威胁到，“中方将采取一切必要措施，坚决维护自身主权安全利益，美方必将为其错误行为付出沉重代价。”
 
-该州公共卫生部网站周四列出了583例新的死亡病例，此前一天有459例死亡病例。
+台湾外交部发言人欧江安指出，“克拉夫特此行来访是首度有现任美国驻联合国常代访问台湾，展现美国对台湾国际参与的强劲支持，并象征台美全球伙伴关系的进一步提升。”
 
-此前两天的死亡总数最高记录是12月底的1013人。
+克拉夫特曾多次公开支持台湾参与国际事务，此行来访的意义重大，展现了美方持续深化美台合作伙伴关系的意愿。
 
-自疫情开始以来，加州的死亡人数目前为28,045人。
+参考链接：
 
-**新闻来源：**[https://apnews.com/article/yoshihide-suga-tokyo-coronavirus-pandemic-coronavirus-vaccine-japan-664f266ae81efb4b82b059c84c3bfd86](https://apnews.com/article/yoshihide-suga-tokyo-coronavirus-pandemic-coronavirus-vaccine-japan-664f266ae81efb4b82b059c84c3bfd86)
+[https://www.dw.com/zh/美常驻联合国代表下周访台/a-56157744](https://www.dw.com/zh/美常驻联合国代表下周访台/a-56157744)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
-
-0
++1

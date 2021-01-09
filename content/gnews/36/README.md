@@ -1,87 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 盗窃的艺术——纳瓦罗报告·第二卷（一）
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/729551/)
+## 2020年1月7日 郭先生直播摘要
+` 新闻译制组` [轉載自GNews](https://gnews.org/zh-hans/730213/)
 
-翻译：jiasen  ｜  校对：虹陵  ｜  编辑、美工：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/01/纳瓦罗报告第二卷.jpg)
-THE ART OF THE STEAL
+供稿：喜马拉雅大使馆摘要组
 
-Volume Two of the Navarro Report
+00:12:08 七哥出场。特别问战友恐惧、害怕、失望了吗？战友们虽看过七哥盖特还不放心，七哥应邀直播。
 
-January 5, 2021
+00:13:30 总结昨天战友们长时间的直播。感谢参加直播工作的战友们。因昨天事态发展和他人通话谈事，没有回到直播间和战友连线，表示歉意。
 
-盗窃的艺术
+00:14:35昨天发生的事只有我们提前告知了，不是预测，是必然会发生。美国这次选举不是川普和拜登的选举，是美国和中共的选举。国会山的表现，已不分共和党和民主党。只有正义和邪恶、懦弱和勇敢两帮人。不要天真，昨天在国会山发生的事已没有法律。两个副总统是关键重点。看戏要会看。
 
-纳瓦罗报告·第二卷
+00:19:45七哥为昨天逝去的四位死难者祈福，惋惜。死亡的女士绝对是川普总统的粉丝。
 
-2021年1月5日
-![]()![](https://gnews.org/wp-content/uploads/2021/01/纳瓦罗报告第二卷插图.jpg)封面插图：
-## Executive Summary – The Art of the Steal
+00:20:35共产党最擅于掺沙子，利诱敌人犯错。共产党过去三年给爆料革命挖了很多大坑，都是这招数，一旦上当就完蛋了。
 
-## 执行摘要 – 盗窃的艺术
+00:21:10川普总统一发动1月6号的集会，七哥就告诉美国朋友说要出大事、乱事，或开枪死人，并栽赃嫁祸总统。但人家不听。
 
-The Democrat Party and its political operatives, with the unwitting aid of “useful idiots” from the Republican Party, stole the presidential election from Donald J. Trump.
+00:22:10 昨天川普的状态很差。他被利用了。不完全是安提法（使坏），也不要说阴谋论，要相信结果，发生了就是发生了。共产党历来就爱玩这些烂招，屡试不爽。香港，8964，共产党以假、黑夺权，利诱你犯罪，是老手。昨天是正义和邪恶的终极之战，是有信仰的人和无信仰（即信奉成王败寇，不相信正义和邪恶、阳光和魔鬼之间的必然逻辑）的人之间的终极之战。影响人类正义邪恶之战的，表面上就那几个人。人性很多丑恶面，一旦体制和环境给了恶发挥空间的时候，人本身就是魔了。这就是为什么要有信仰和法治。
 
-在共和党“有用的白痴”的无知帮助下，民主党及其政治代理人从唐纳德·J·川普那里偷走了总统大选。
+00:25:09要相信阳光的力量。爆料革命已经在全世界黑暗贪婪的环境里洒下了无数阳光的种子，任何魔鬼都不可能把我们播种的阳光和希望彻底毁掉。
 
-The Democrat Party used a two-pronged Grand “Stuff the Ballot Box” Strategy to flood six key battleground states – Arizona, Georgia, Michigan, Nevada, Pennsylvania, and Wisconsin – with enough illegal absentee and mail-in ballots to turn a decisive Trump victory into a narrow and illegitimate Biden alleged “win.”
+00:25:39未来会看到除了昨天的几个美国英雄，还有很多新中国联邦的力量和影子。更重要的是，让世界更多人看到共产党魔鬼的真面目。共产党绝不可能再回到三年前。
 
-民主党实施了双管齐下的“塞满投票箱”大战略，用足够多的非法缺席选票和邮寄选票，充斥了亚利桑那、佐治亚、密西根、内华达、宾夕法尼亚和威斯康星这六个主要战场州，将川普的决定性胜利变成了拜登的微弱的非法的所谓“胜利”。
+00:26:15 无数次用事实和行动证明爆料革命不孤单，新中国联邦不是幻想，不是梦，是我们的理想和信仰。背后有无数力量和你们想象不到的正义和战友的巨大支持。
 
-Prong One dramatically INCREASED the amount of absentee and mail-in ballots in the battleground states. Prong Two dramatically DECREASED the level of scrutiny of such ballots – effectively taking the election “cops” off the beat. This pincer movement resulted in a FLOOD of illegal ballots into the battleground states more than sufficient to tip the scales from a decisive legal win by President Trump to a narrow and illegitimate alleged “victory” by Joe Biden.
+00:27:00 政治就是用鲜血、勇气、邪恶、失败、阴谋、背叛和付出混在一起酿造而成的悲剧结果，也是人们离不了的一种生存方式。政治本身就是邪恶的。
 
-一方面大大增加了在战场州的缺席选票和邮寄选票的数量。另一方面大大降低了此类选票的审查水平-有效地摆脱了选举“警察”的束缚。这种钳形攻势导致大量的非法选票涌入战场州，足够将川普总统的决定性的合法的胜利转化为乔·拜登的微弱的非法的所谓“胜利”。
+00:27:54现在世界上政治就两派。一，法治民主自由派；二，无法治无民主派，叫共产主义。我们来自最邪恶最黑暗的一派，待在了阳光的有民主法治自由的一派。现在黑暗已经到达了并要吞噬阳光这一派。这是人类生存的永恒故事，黑暗要吞噬光明，光明最后征服了黑暗。人类就是活在黑暗和光明的反复斗争的过程之中。
 
-The Democrat Party relied primarily on legal means such as legislative and rule changes at the state level to implement its Grand Strategy and thereby achieve its illegal outcome. However, at times, political operatives advancing the Democrat Party’s Grand Strategy also bent, and sometimes broke, the laws and rules of that which is most sacred to our American public – our election system.
+00:29:23美国大选，给西方人民包括全球人民带来的最大伤害是：摧毁了人与人之间的信任。美国是最相互信任、崇尚真善、团结包容的，但这次大选一下子把美国从最高处扔到了像中共国一样人与人之间没有任何信任、瞎话满天的境地，就像昨天国会山政客的嘴脸。美国再也没有团结了，分裂了；崇尚勇敢、包容性，也都没了。这是共产党最愿意干的，它走到哪里都是制造社会矛盾，搞分化、背叛、互相怀疑、颠倒黑白。昨天共产党在美国深度的成功。忠诚彻底成了被坏人利用的工具，信仰是遮盖一切丑恶的遮羞布。所有正义都被邪恶者拿来攻击正义和真相的持有者。利用人与人之间的猜忌，让真相远离了追求真相的人。
 
-民主党主要依靠法律手段-例如州一级的立法和规则变更-来实施其大战略，从而实现其非法选举结果。但是，有时，推进民主党大战略的政治代理人也会歪曲，有时甚至破坏我们美国公众最神圣的法律和规则-我们的选举制度。
+00:35:25要相信轮回。2006年共和党拿走了民主党的总统，时隔多年被民主党以同种方式拿回。美国曾经帮助共产党强大，包括8964和香港问题，今天美国成为了去年的香港。川普从11月3日以来纸上谈兵，没有行动。遇上了真流氓要讲实力不要讲理，挨揍活该。川普对共产党的邪恶还没有绝对认知，至今还没有说CCP病毒，也没举灭共旗号。
 
-Key methods used by the Democrat Party to strategically game America’s presidential election included changes in the law approved by State Legislatures; rule changes and new guidance initiated by Secretaries of State or other election officials; court rulings and interventions; and the aggressive use of so-called “public-private partnerships” to commandeer and manipulate the election process in key Democrat strongholds such as Wayne County, Michigan and Dane County, Wisconsin.
+00:38:33香港人做到的真不容易，爆料革命要有香港人的百分之十早就灭共了。共产主义对美国分化瓦解，建立人与人之间的墙、不信任。未来支持川普的七八千万人就不说话了吗？爆料革命不是仅仅支持川普，谁与共产党勾兑谁就是敌人，谁灭共谁就是朋友。
 
-民主党在战略上玩弄美国总统大选的重要方法包括：修改州议会通过的法律；州务卿或其他选举官员发起的规则变更和新指南；法院裁决和干预；以及积极利用所谓的“公私合营”来控制和操纵民主党重要据点的选举过程，例如在密西根州韦恩县和威斯康星州丹恩县。
+00:39:43问朋友川普昨天的感受，回复说川普感到震惊，对于彭斯的背叛、MAGA运动被人的利用，和美国人民的善良忠诚所导致的伤害。川普低估了共产党。所有发生的事包括细节，七哥在六七月份就告诉他们了。
 
-Prong One of the Democrat Party’s Grand Strategy used seven basic gambits to dramatically INCREASE the flood of absentee and mail-in ballots: relaxing mail-in and absentee ballot rules; sending absentee or mail-in ballots or applications for such ballots to every voter (universal mailing); increasing both the legal and illegal use of drop boxes; ballot harvesting; and the use of corrupted voting machines.
+00:40:10中共正在安排月底美国新总统访问中国。共产党没进北京城之前到全世界传播共产主义思想病毒，挑拨离间，靠此成功灭国民党。还到处玩双修，特别与人民子弟女兵。近了北京城后两忙，忙钱和忙床上。
 
-民主党大战略的一手是用七个基本招数来显著提高缺席选票和邮寄选票的泛滥程度：放松邮寄选票和缺席选票的规则；向每个选民发送缺席选票或邮寄选票或此类选票的申请（通用邮寄）；增加合法和非法投票箱的使用；选票收集；使用有缺陷的投票机。
+00:44:02专业政治家和商人之间有巨大的差距。如果未来新中国联邦让纯有情怀的人去当政治家，那结局会很惨。中国人骨子里重官轻商。政治家必须黑心黑肺，一种事可有一万种说法。政客都有流氓属性、颠倒黑白的能力。这就是为什么要有信仰和法律。不幸共产主义到了美国，把这两样都踩在了脚底下，生意人想解决这个问题太难了。
 
-Prong Two of the Democrat Party’s Grand Strategy used five additional gambits to dramatically DECREASE the level of scrutiny of the new flood of absentee and mail-in ballots into the battleground states: relaxation of ID verification; reduced signature matching requirements; illegally counting naked ballots to increase ballot curing – both legal and illegal; and reduced poll watching and observing.
+00:46:40迷茫、害怕、伤心、失望是正常的，所有的勇气都是在这当中培养出来的，没问题，最终会找到自己。失望恐惧害怕是好事，过了这道坎就会找到勇气、正义。
 
-民主党大战略的另一手用额外的五个策略，大大降低了对新涌入战场州的缺席选票与邮寄选票的审查水平。这五招是：放松身份验证；降低签名匹配要求；非法盘点合法及非法的裸票以增加选票的矫正率；减少投票监督和观察。
+00:50:28 不要依靠别人成功。过去都是不想付出、想当然坐等成功，依靠别人获得自由。最可怕的就是自私、幻想。七哥过去三年经历的背叛和危机和伤害，战友能体会多少？现在你们就隔着电视看看，就失望害怕了？战友们任何情况下都有选择，爆料革命对战友们没有任何要求。到20号还早着呢，有能力智慧的人13分钟就够了，哪用戒严法啊。
 
-Democrat Party operatives frequently hid behind the shield of the Chinese Communist Party (CCP) virus and resultant pandemic to further their goals of boosting the absentee and mail-in ballot counts in the key battleground states.
+00:53:26相信天意。看来美国受的苦和威胁还不够，灭共的时间还不够。
 
-民主党代理人常常以CCP病毒及其导致的大流行病为掩护，进一步实现他们在关键战场州增加缺席选票和邮寄选票数量的目标。
+00:53:55昨天过后病毒和疫苗的威胁依然存在。八千万美国人才是我们真正的朋友。他们一定会追究病毒来源、责任、赔偿，和共产党对大选的操纵。如果面对这点小事就犹豫怀疑害怕，请尽快离开。有些境界高的战友看到了新中国联邦的机会、希望和力量。
 
-The practical result of the Democrat Party’s two-pronged Grand “Stuff the Ballot Box” Strategy was to flood the six key battleground states with enough illegal absentee and mail-in ballots to turn a decisive Trump victory into a narrow alleged Biden “victory.” Key political operatives assisting the Democrat Party included Wall Street oligarch George Soros, Silicon Valley oligarch and Facebook CEO Mark Zuckerberg, and Marc Elias, former Hillary Clinton Campaign General Counsel and one of the alleged architects and financial conduits for Fusion GPS and the Russia Hoax designed to topple a duly-elected President.
+00:55:40两件事。第一，1月20号会发生什么，从现在起绝不提前预报，很多事提前说真的带来了麻烦。第二，要真正把美国八千万朋友变成最铁的战友，把大部分人的失望变成爆料革命和新中国联邦的希望，把对西方的挑拨离间产生的副作用变成我们的力量。
 
-民主党的双管齐下的“塞满选票箱”大战略的实际结果是，向六个主要战场州倾入足够的非法缺席选票和邮寄选票，以将川普的决定性胜利转变为拜登的微弱“胜利”。 协助民主党的主要政治代理人包括华尔街寡头乔治·索罗斯（George Soros），硅谷寡头和脸书首席执行官马克·扎克伯格（Mark Zuckerberg），以及马克·埃里亚斯（Marc Elias）。马克·埃利亚斯是前希拉里·克林顿竞选总顾问，以及用于推翻合法当选总统的Fusion GPS和Russia Hoax的设计者和财务渠道之一。
+00:58:49要把G系列做大、做强。1月15号盖特因质量问题还不会上线，绝不能急功近利。
 
-Soros money helped fund efforts to change election laws and rules through instruments such as referenda. Soros and his network of organizations such as the political action committee “Secretary of State Project” also helped to elect puppet Secretaries of State in Michigan (Jocelyn Benson) and Pennsylvania (Kathy Boockvar) who would play instrumental roles in bending or breaking election rules and thereby advancing the Grand “Stuff the Ballot Box” Strategy. Zuckerberg money – nearly half a billion dollars – helped engineer what was effectively a hostile Democrat Party “public- private partnership” takeover of what should otherwise be a nonpartisan election process in key Democrat strongholds such as Wayne County, Michigan and Dane County, Wisconsin.
+00:46:40现在的结果绝对不是大选最后的结果。昨天经历冰火两重天。冰，是战友的失望和担心，可是解决不了任何问题。火，是越来越多美国人和七哥联系，信任七哥，要和七哥站在一起Take Down the CCP。美国人的信仰、战斗精神、永不妥协永不放弃是发自内心的。在这场人类万劫不复的终极之战中，从最受伤害的美国人身上看到了人性的伟大，也看明白了共产党为什么看不起中国老百姓。
 
-索罗斯（Soros）的资金通过公投等手段来资助改变选举的法律法规。索罗斯及其组织网络，例如政治行动委员会“州务卿项目”，还帮助选举了密西根州傀儡州务卿乔斯林·本森 (Jocelyn Benson) 和宾夕法尼亚州傀儡州务卿凯西·波克瓦尔（Kathy Boockvar）。他们在歪曲或违反选举规则， 进而推进“塞满投票箱”大战略方面都发挥了重要作用。扎克伯格将近5亿美元的资金有效地策划了一场敌队的民主党“公私合营”，这本来应该是密西根州韦恩县和威斯康星州戴恩县等民主党主要据点的无党派选举程序。
+01:03:28告诉美国人，以后不需要选举了，几个多米尼机器就可以了，做法比共产党还邪恶，国会山演讲堪比共产党人大代表的演讲。（有个人留言说川普放弃没戏了，把他拉黑）
 
-Useful idiots for the Democrat Party included Georgia’s Republican Governor Brian Kemp and Republican Secretary of State Brad Raffensperger who entered into a Consent Decree that dramatically INCREASED the number of absentee and mail-in ballots while dramatically DECREASING the rejection rate of such ballots. Republican state legislators who voted for the bills that would help the Democrats advance its Grand Strategy likewise were unwitting dupes.
+01:04:23川普绝对不会放弃，我们跟的不是川普总统，跟的是美国法律和八千万有信仰的美国人。每个人都在参与历史变革时刻，是主角。只要相信上天，相信共产党必须被消灭，然后只需要做一件事：行动，不屈不挠，绝不放弃。念念不忘，必有回响。
 
-对民主党有用的白痴包括佐治亚州的共和党州长布莱恩·坎普（Brian Kemp)和共和党州务卿布拉德·拉芬斯佩格(Brad Raffensperger)，他们签署了一项同意书，大大增加了缺席选票和邮寄选票的数量，同时戏剧性地降低了此类选票的拒绝率。那些投票支持有助于民主党推进其大战略法案的共和党州议员，同样是不知情的骗子。
+1:06:21 七哥为所有人祈福。
 
-By implementing its Grand “Stuff the Ballot Box” Strategy, the Democrat Party and its political operatives have strategically gamed one of the most sacred elements of American democracy, our election system. This was brass knuckle politics played at the highest level which has delivered a brutal punch to the nose of the American people and a vicious kick to the groin of American democracy.
+1:07:37 一个爱绝望的人是没有未来的。准备好心脏，过山车真正开始了。共产党3F美国接近成功，蓝金黄世界绝对成功。但是邪恶就是在最后快要成功的时候会被阳光之神摧枯拉朽。
 
-通过实施其“塞满选票箱”大战略，民主党及其政治代理人从战略上玩弄了美国民主制度中最神圣的要素之一，即我们的选举制度。这是在最高级别玩弄的铜指政治，它凶残地打在美国人民的鼻子上，恶毒地踢在美国民主制度的腹股沟上。
+1:08:50 七哥因直播推了两个会。
 
-That the Democrat Party and its operatives have, up to this point, gotten away with their Immaculate Deception and Art of the Steal, represents a signal failure of the media, Republican state legislators, other Republican government officials across the battleground states, the US Congress, and our judicial branch of government at both the state and federal levels.
+1:09:05 科学家和路德大赞今天直播。（向战友展示花衣裳。）一定要学习路德和科学家的勇敢和公益之心。他们单纯，可爱，阳光，七哥每次和他们通完话后都感觉很温暖。最亲近最相信的人关键时候往往是背叛你的人，但爆料革命就有这样的科学家和路德。
 
-到这一刻，民主党及其代理人已经摆脱了他们的“完美的欺骗”和“偷窃艺术”。这代表着媒体，共和党的州一级立法者，战场州的其他共和党政府官员，美国国会，以及州和联邦一级的政府司法部门的完全失败。
+1:12:10 每个人都应该过这一关，只有过了，才能达到心灵自由，坚信你所追求的。七哥过去三年的经历，失去的放下的，无人能了解。人就三万多天，想明白了，既然你来到世界上，你是有使命有任务的。你可以像动物一样活着，可如果看不透生死，那搞什么革命都是骗自己。很多人根本不知道自己想要什么，就是胡说八道，最后连自己都相信自己的胡说八道了。世界上最可悲的是伪信仰、假感情，更可怕的是假情怀。中国人这方面真得学习。可喜的是很多战友都已跨过了这些。继续战斗。
 
-Volumes 1 and 2 of the Navarro Report – The Immaculate Deception and The Art of the Steal – together make the strong case for a full investigation of the election irregularities and strategic gaming of our political process that in all likelihood have led to a stolen presidential election. Any such investigation must begin immediately as this nation simply cannot risk the inauguration of a president who will be perceived by a large segment of the American people as illegitimate.
+小结：1月6日发生的事是正义和邪恶的终极之战；川普绝对不会放弃；要真正把美国八千万朋友变成我们最铁的战友；准备好心脏，过山车真正开始了；失望、恐惧、害怕是好事，过了这道坎就会找到勇气和正义。
 
-纳瓦罗报告的第1卷和第2卷-“完美的骗局”和“盗窃的艺术“-一起为全面调查选举违规行为和对我们政治程序的战略玩弄提供了充分的论据，这很可能导致了总统大选被盗。任何此类调查都必须立即开始，因为这个国家不能冒险让一个被美国大部分人视为非法的总统宣誓就职。
+更多详情请点击了链接
 
-更多精彩内容请关注：
+[https://gtv.org/video/id=5ff72778f579a75e0bc9df40](https://gtv.org/video/id=5ff72778f579a75e0bc9df40)
 
-- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/user/5e986b24b005bd6d929820bd)
-- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
 0

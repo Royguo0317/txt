@@ -1,49 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国外相声明：港区《国安法》践踏人权，英国不会背叛香港人
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/729845/)
+## 从对“原油宝”案的判决看，中共金融的本质就是“庞氏骗局”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/730397/)
 
-*新闻来源：英国政府官方发布； 发布时间：2021年1月6日*
+作者：万人往；校对/审核：海阔天空；Page：拱卒
+[!\[\]()!\[\](https://spark.adobe.com/page/JecQ4Js99SfIV/images/29e71015-d41b-4fff-a2d7-c381ef659a98.jpg?asset_id=87fced31-2810-4ec3-be90-cd3241a67c45&amp;img_etag=%22696a8f955d680581d8b90a7d6eef97ae%22&amp;size=1024)](https://spark.adobe.com/page/JecQ4Js99SfIV/images/29e71015-d41b-4fff-a2d7-c381ef659a98.jpg?asset_id=87fced31-2810-4ec3-be90-cd3241a67c45&amp;img_etag=%22696a8f955d680581d8b90a7d6eef97ae%22&amp;size=1024)
+## 中行原油宝“第一案”审结，中行承担原告全部穿仓损失和20%本金损失
 
-*翻译/简评：MikeHua；校对：X-Wing飞得更高；审核：万人往；Page：Daoiii*
+#### **新闻主要内容：**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/1K05SkGcOxWHZ/images/ee711e75-5275-4a9a-b37f-ed22e90e566c.jpg?asset_id=4da49053-948a-4db5-961a-cf255f772271&amp;img_etag=%22da60d7af516340bd4464e9f3e4849fcf%22&amp;size=2560)](https://spark.adobe.com/page/1K05SkGcOxWHZ/images/ee711e75-5275-4a9a-b37f-ed22e90e566c.jpg?asset_id=4da49053-948a-4db5-961a-cf255f772271&amp;img_etag=%22da60d7af516340bd4464e9f3e4849fcf%22&amp;size=1024)
+1、“江苏高院”微信公众号称，南京市鼓楼区法院对两件涉中国银行“原油宝”事件进行公开宣判，判决由中国银行承担原告全部穿仓损失和20%的本金损失，返还扣划的原告账户中保证金余额，并支付相应资金占用费。
 
-***简评：***
+2、法院称：“中行产品设计上未考虑原油期货产品会出现负价极端情况，在交易过程中未能向投资者提示负油价带来的风险，且未执行协议中关于保证金充足率降至20%（含）以下时强制平仓的约定，因此给投资者造成的损失，中国银行应予赔偿。”同时，法院认为，中行原油宝产品协议“合法有效”，原告认为中国银行向风险测评结果为平衡型的投资者销售“原油宝”产品违反适当性义务的观点缺乏依据，不予支持。
 
-**英国外相发表声明，谴责中共利用《国安法》对50多名政治活动人士进行抓捕。中共对香港的残害和打压，在这里只是冰山一角，更多的是那些游行抗议的孩子无故在大街上消失，被黑警虐待。这些恶行都不会被人们忘记，中共一定会为他们犯下的罪付出代价。**
+新闻原文链接《路透社中文网》：[中行原油宝“第一案”审结 中行承担原告全部穿仓损失和20%本金损失](https://cn.reuters.com/article/china-boc-oil-product-court-1231-idCNKBS29512S)
 
-**英国本应该捍卫《中英联合声明》中香港人拥有的自由、民主的权利，但是英国和整个世界在过去一年多选择了袖手旁观，只是象征性地立法、谴责，没有任何实际行动。这也就是为什么中共对香港的模式能够扩张到全世界，在美国上演偷盗选举等一系列令人瞠目结舌的事情。但美国不是香港，美国的民主制度运行了200多年，美国人们手上都有枪。这次偷盗选举，加上滑稽的国会山占领事件，美国一定会让中共付出代价。美国人民不可能在病毒、偷盗选举之后跟共产党一笔勾销，一定会要求他们的政府——无论谁当总统的政府——向中共要追责。只要美国追责，中共必亡，新中国联邦将在这个过程中发挥“定海神针”的作用，维护中国人民的利益。**
+[!\[\]()!\[\](https://spark.adobe.com/page/JecQ4Js99SfIV/images/965a0ab3-14de-429d-8c40-c50c17dc2800.jpg?asset_id=9fbc08da-e525-46d0-9fac-c5d535020598&amp;img_etag=%225d35ad28c9b596bed12cfd1f277fccbf%22&amp;size=1024)](https://spark.adobe.com/page/JecQ4Js99SfIV/images/965a0ab3-14de-429d-8c40-c50c17dc2800.jpg?asset_id=9fbc08da-e525-46d0-9fac-c5d535020598&amp;img_etag=%225d35ad28c9b596bed12cfd1f277fccbf%22&amp;size=1024)
 
-**原文翻译：**
+#### **简评：**
 
-# **针对香港民主运动被捕：英国外相声明**
+3月27日，中行江西分行还在其官方微信公众号上发文，标题为《原油比水还便宜，中行带你去交易》。其中举例称，如投资者在3月5日做空100桶美国原油合约，在3月9日平仓，5天时间收益率将超过37%，这款投资被称之为“黑金”投资。中行通过这样的例子吸引了不少投资者，包括完全不懂金融和风控的人，最终让投资者损失惨重。
 
-英国外相多米尼克·拉布(Dominic Raab)就50多名香港亲民主政治人士和活动人士因香港《国安法》被捕发表评论。
+交易无非就是买和卖，“原油宝”事件让所有持多头的头寸的投资者遭受严重损失。事件发生之初，中行甚至威胁多头客户，要求客户承受穿仓损失的金额，尽快补充本金，否则将采取相关措施。在事件得到广泛曝光后，中行才愿意承担穿仓损失，并退还20%的本金。这次黑天鹅事件中，有的人用养老钱来投资，有的人是借钱投资，有的用了毕生积蓄……
 
-[!\[\]()!\[\](https://spark.adobe.com/page/1K05SkGcOxWHZ/images/a9be6ba4-9983-433a-9ade-42c58f917e28.png?asset_id=028ef278-299d-4de9-b327-ac3efe309836&amp;img_etag=%222075a4dc8765f964228ab8790115b32a%22&amp;size=2560)](https://spark.adobe.com/page/1K05SkGcOxWHZ/images/a9be6ba4-9983-433a-9ade-42c58f917e28.png?asset_id=028ef278-299d-4de9-b327-ac3efe309836&amp;img_etag=%222075a4dc8765f964228ab8790115b32a%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/JecQ4Js99SfIV/images/4e49daf0-07e8-4048-9ad2-002f480892bf.jpg?asset_id=618915bd-7a32-4b6f-bf84-9491975a1b0b&amp;img_etag=%22fdbd9438cf99d44260c23683c3dace29%22&amp;size=1024)](https://spark.adobe.com/page/JecQ4Js99SfIV/images/4e49daf0-07e8-4048-9ad2-002f480892bf.jpg?asset_id=618915bd-7a32-4b6f-bf84-9491975a1b0b&amp;img_etag=%22fdbd9438cf99d44260c23683c3dace29%22&amp;size=1024)
 
-**外相多米尼克·拉布说：**
+**中共金融的本质是庞氏骗局**，将来一旦发生系统性风险，购买中共理财产品的投资者可能连20%的本金都拿不回来，剩下一地鸡毛。
 
-香港大规模抓捕政治人士和活动人士，是对《中英联合声明》保护下的香港的权利和自由的严重践踏。
-
-这些抓捕表明，香港和中共政府故意误导世界关于香港《国安法》的真正目的，中共真正的目的是利用国安法打压异议人士和反对意见。
-
-英国不会背叛香港人，将继续向香港人提供英国海外公民护照(BNO)以及在英国居住和工作的权利。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/1K05SkGcOxWHZ/images/8b98e58e-a12e-44fd-bbac-eb803ef61fa7.jpg?asset_id=252ae35e-f8ce-4cba-a6da-a084d3a5ea37&amp;img_etag=%226ee64cca3a5667c5b51a26afcc41771a%22&amp;size=2560)](https://spark.adobe.com/page/1K05SkGcOxWHZ/images/8b98e58e-a12e-44fd-bbac-eb803ef61fa7.jpg?asset_id=252ae35e-f8ce-4cba-a6da-a084d3a5ea37&amp;img_etag=%226ee64cca3a5667c5b51a26afcc41771a%22&amp;size=1024)
-
-[原文链接](https://www.gov.uk/government/news/hong-kong-pro-democracy-arrests-foreign-secretary-statement)
+编辑：【英国伦敦喜庄园编辑部】[-点击spark adobe版](https://spark.adobe.com/page/JecQ4Js99SfIV/)
 
 [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)[欢](https://discord.gg/U9F97ur)
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-[迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【英国伦敦喜庄园编辑部】-[点击spark adobe版](https://spark.adobe.com/page/1K05SkGcOxWHZ/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/1K05SkGcOxWHZ/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/1K05SkGcOxWHZ/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
-
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+[!\[\]()!\[\](https://spark.adobe.com/page/JecQ4Js99SfIV/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/JecQ4Js99SfIV/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 0

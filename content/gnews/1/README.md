@@ -1,40 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅速递】被禁言后首次发推 川普将为爱国者们而战
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/729985/)
+## 【大选实时报】 推特删除了川普总统的账号！
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/730708/)
 
-作者：Skagen【㊙️翻Gnews原创组】
-
-责编**：**心声
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-5.jpg)
-来源：“川普总统1月7日讲话秘翻组翻译视频”截图
-
-**2021年1月8号美东时间早上10：50川普总统在1月7号被推特禁言后首次发推**！
-
-川普总统说：7500万伟大的美国爱国者投票给我，要求**美国第一，并使美国再次伟大**，他们的声音将会是**时代巨音**，并会在未来持续下去。他们不会被不尊重，他们也不会以任何方式、形态或形式受到不公平的对待!!!
+![]()![](https://gnews.org/wp-content/uploads/2021/01/ErP1slmU0AE6J_k.png)
+[https://twitter.com/realDonaldTrump](https://twitter.com/realDonaldTrump)
 
 
 
-> The 75,000,000 great American Patriots who voted for me, AMERICA FIRST, and MAKE AMERICA GREAT AGAIN, will have a GIANT VOICE long into the future. They will not be disrespected or treated unfairly in any way, shape or form!!!
-> — Donald J. Trump (@realDonaldTrump) [January 8, 2021](https://twitter.com/realDonaldTrump/status/1347555316863553542?ref_src=twsrc%5Etfw)
-
-
-
-他的推特仅半小时就集聚了14万个点赞，在川普总统被推特禁言的12小时内，推特股价跌了1.8%。
-
-他的推文明确表示了他将为7500万伟大的美国爱国者继续战斗，这段话与他昨天在Parler发出的最新视频相呼应。视频中川普总统将和平集会的爱国者与闯入国会山进行暴力活动的破坏者划清界限，警告那些破坏法律的人将受到惩罚。
-
-对于选举他强调：我们必须开始重建美国，检验选举结果的公正性，我一直坚信我们必须改革我们的选举法。他接着说了一句意味深长的话：一届新的政府会在1月20日宣誓就职，我目前的注意力集中于保证顺利有序的权力过渡。显然，他肯定不是指将权力“顺利有序”移交给“偷取选举的拜登政府”或是彭斯操控的“深层政府”。结合彭培奥国务卿早先在跟许多国家外长的一次视频会议上提到的“川普第二任期”，和最新推文中川普所说：爱国者们的声音将会是时代巨音，并会在未来持续下去。 “顺利有序的权力过渡”的意思就非常清楚了：权力将掌握在人民手中，并将持续很久！
-
-川普总统还在视频中暗示了病毒的问题，他说：这个时刻需要疗愈和理清事实，击败这次大流行，重建全球最伟大的经济。
-
-最后他对爱国者们说：成为你们的总统和为你们服务是我生命中至高无上的荣誉。我所有善良美好的支持者们。我知道你们很失望，但是我也想让你们知道，我们难以置信的美好历程才刚刚开始！ 这个结尾与今天的推文完美衔接。如果昨天只是“刚刚开始”，那么今天开始就要将MAGA党的时代巨音传向全美、全世界和未来。
-
-川普总统的讲话与我们爆料革命、新中国联邦创始人郭文贵先生的名言遥相呼应，让我们期待着美国在川普总统的带领下再次伟大，也期待着一个对新中国联邦最有利的结果！
-
-[川普总统1月7日视频链接](https://twitter.com/realDonaldTrump/status/1347334804052844550?s=20)
-
-（本文仅代表作者个人观点）
+【秘密翻译组G-Translators–精翻组】
 
 0
