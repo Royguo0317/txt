@@ -1,9 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 1/7/2021 主流媒体痴迷谴责暴力却不知宪法规定的的和平集会原则，推波助澜今天的暴力行为
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/730492/)
+## 2020年诺贝尔化学奖获得者： 使用RNA的目的是修改人类基因组
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/730626/)
 
-【秘密翻译组G-Translators–北美组】
+听写：Ikonic 翻译：小蜜蜂
+
+校对：仰望中央公园 / Marie 字幕： Vécap
 
 +1

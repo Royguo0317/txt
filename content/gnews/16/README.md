@@ -1,86 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 纪念昨天倒在国会山的女勇士
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/730500/)
+## 快讯：川普总统拒参加拜登就职典礼 佩洛西要求川普立刻辞职
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/730631/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/trumpsupporter1-1.png)图片来源： 网络
-当BLM / Antifa烧毁并劫掠整个城市时，
+俄罗斯莫斯科喀秋莎农场 银河
 
-警察并没有阻止他们。
+编辑上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20190215064119118.jpg)dw.com
+美国川普总统1月8日表示，他不会出席1月20日乔·拜登的就职典礼。川普总统在推特上回答“所有问过这个问题的人，我不会去参加1月20日的就职典礼。”
 
-去年那个多次进出监狱的惯犯死于警察手中之后，
+按照传统，即将上任的总统和即将离任的总统会一起前往美国国会大厦参加总统就职仪式，这象征着美国的和平过渡。川普总统之前表示将会进行“平稳、有序和无缝交接权力”，此时公开表态拒绝参加乔·拜登的就职典礼，是否预示着川普总统胸有成竹，知道乔·拜登最终无法成为合法的美国继任总统。
 
-引起了多长时间的、全国范围的暴乱。
+来自加利福尼亚州的众议院议长南希·佩洛西同一天表示，如果川普总统不“立即”辞职，众议院将采取行动弹劾他煽动暴民袭击国会大厦，并呼吁共和党人加入到迫使川普下台的行动中。
 
-当时对警察的怒吼声简直要把美国的天震塌。
+佩洛西还表示，她已与参谋长联席会议主席马克·米莱上将(Mark Milley)谈过“防止情绪不稳定的总统发动军事行动或获取发射密码”的问题。因为川普总统仍然是最高统帅，除非他被免职，否则军方会遵守他的合法命令。佩洛西等担忧最终将会发展成军事政变。
 
-民主党的市长更是在那个黑人罪犯的葬礼上下跪。
+然而南希·佩洛西并未对其女婿被挖出与冲入国会的安提法成员的合影照进行任何解释。
 
-而昨天1/6被枪杀的女性（Ashli Babbit）
+参考链接：
 
-曾空军服役过14年的退伍军人，
+[https://indianexpress.com/article/world/us-president-donald-trump-wont-attend-joe-bidens-inauguration/](https://indianexpress.com/article/world/us-president-donald-trump-wont-attend-joe-bidens-inauguration/)
 
-她没有牺牲在战场，只是为了申诉民权，
+[https://indianexpress.com/article/world/us-capitol-hill-attack-nancy-pelosi-donald-trump-impeachment-7138853/](https://indianexpress.com/article/world/us-capitol-hill-attack-nancy-pelosi-donald-trump-impeachment-7138853/)
 
-就倒在自己所保卫的国家的国会大厦里！
-
-今天，媒体完全沉默！
-
-也没有官员问责！
-
-而彭斯更是第一时间发推赞扬这些人干的漂亮。
-
-这是这样的一个颠倒黑白的世界！
-
-当年鲁迅写纪念刘和珍君时：
-
-我向来是不惮以最坏的恶意，来推测中国人的，然而我还不料，
-
-也不信竟会下劣凶残到这地步。况且始终微笑着的和蔼的刘和珍君，
-
-更何至于无端在府门前喋血呢？
-
-他不会想到过了近一个世纪，
-
-中共和美国盗国贼合力做恶已经可以到这样的程度。
-
-魔鬼大部分时候都是天使的形象。
-
-只有当国民不被骗倒不肯就范的时候，
-
-他才会露出青面獠牙的本来面目。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/trumpsupporter2.png)
-请记住：
-
-祈祷、上诉、游行只是手段，
-
-历史上基督徒自古以来一手十字架一手利剑纵横天下。
-
-当警察在国会大厦内致命地射击了特朗普的支持者。
-
-这样一种令人作呕的罪行发生时。
-
-当道德，正直和品格…将一切从选民身上夺走，
-
-当民意被随意玩弄于股掌之间时。
-
-人民在星火燎原般觉醒。
-
-并且武装起来。
-
-人民不答应大选舞弊冲进国会这只是开始！
-
-美国宪法规定，人民有推翻政府的权力！
-
-May God bestowed his blessing to these beautiful Patriot souls！
-
-作者：昔马千羽
-
-原创观点文章 – 2021/01/08
-
-温哥华圆成农场
-![]()![](https://gnews.org/wp-content/uploads/2021/01/trumpsupporter3.png)
-
-
-+1
++2
