@@ -1,9 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 1/8/2021 郭先生盖特: 回看梵蒂冈和瑞士的关系, 尤其在一战, 二战时期, 而新中国联邦就是要做人类正义与邪恶之战的圣哥达隧道, 辛普朗隧道
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/733788/)
+## 每日重要Twitter播报（中文）1/7期
+` 喜馬拉雅多語組` [轉載自GNews](https://gnews.org/zh-hans/733860/)
 
-By： 【秘密翻译组 G-Translators – 北美组】
+撰稿记者:本来、石頭、尘凡3、CYC文穎、喜馬拉雅2020
+校对:星巴克餅乾
+播音:大腳印
+剪辑：今晚打老虎
+
+[每日重要推文1-7-PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/01/09014222/1-7-P.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/01/09014222/1-7-P.pdf)
+
+
 
 0

@@ -1,82 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德社深度揭示“大重启”计划推动的新时代集权统治模式
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/731106/)
+## 突发新闻：苹果和谷歌威胁要禁止Parler，除非该服务执行大科技寡头要求的严厉审查政策
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/731377/)
 
-直播视频：
+翻译：康州盘古农场 – 烟波浩淼
 
+校对：康州盘古农场 – Mike Li
 
+审核：康州盘古农场 – Rose
 
-《路德时评》2021年1月8日晚间节目主要内容：
+原文作者：克里斯蒂娜·莱拉（Cristina Laila）
 
-一、北韩核海基力量取得进展
+发布时间：2021年1月8日下午4:31分
+![](https://lh3.googleusercontent.com/XFqjDTDXHTV6hETrv3e6HUYqZdPNyeiam11Rv8FWh_jz3bX0ydbVas3mAsmsecE0Y8rVQKkwZo0hbZQkJnZxnuepOTbH4Y6afoYjSm-MCqQrsoXwzXFZ8RB5WG5gZdnLTycw4BobDF4Zb9Dscg)
+苹果目前正在威胁Twitter言论自由的替代者Parler，除非他们颁行大科技寡头要求的严苛政策。
 
-美国时间1月8日Disclose.TV报道[1]：朝鲜将在海上核潜艇和“核战略武器”方面取得进展，这将有助于提高“远程核打击能力”。
+就因为大科技公司实施严格的审查制度，Parler现在是增长最快的社交媒体公司。
 
+周四上午，Parler首席执行官约翰·马兹（John Matze）在其快速发展的社交媒体平台上发表了一个大胆的声明，并谴责Facebook和Twitter的审查制度。
 
+24小时后，苹果公司威胁要禁止Parler，除非他们审查和禁止那些不与共产党人同流合污的人。
 
-> BREAKING – North Korea to progress on nuclear submarines and "nuclear strategic weapons" launched from the sea that will contribute to increasing "long-range nuclear strike capability" (via [@nknewsorg](https://twitter.com/nknewsorg?ref_src=twsrc%5Etfw))
-> — Disclose.tv 🚨 (@disclosetv) [January 8, 2021](https://twitter.com/disclosetv/status/1347669794204610562?ref_src=twsrc%5Etfw)
+[Sean Davis on Twitter: “BREAKING: Apple is currently threatening to ban Parler — the free speech alternative to Twitter — unless the service enacts draconian censorship policies demanded by left-wing Big Tech oligarchs, according to two sources familiar with Apple’s threats.” / Twitter](https://twitter.com/seanmdav/status/1347660160806825984?ref_src=twsrc%255Etfw%257Ctwcamp%255Etweetembed%257Ctwterm%255E1347660160806825984%257Ctwgr%255E%257Ctwcon%255Es1_&amp;ref_url=https%253A%252F%252Fwww.thegatewaypundit.com%252F2021%252F01%252Fbreaking-apple-threatens-ban-parler-unless-enact-draconian-censorship-policies-demanded-big-tech-oligarchs%252F)
 
+*肖恩·戴维斯（Sean Davis） @seanmdav*
 
+*突发：据两名知情人士透露，苹果目前威胁要禁止Parler（Twitter言论自由的替代社交媒体），除非该服务制定了左翼大科技寡头所要求的严厉审查制度。*
 
-1、北韩一直在私下进行核武研究，虽然北韩对外宣称其具备研发实力，但真实实力未知，此时出现该新闻，在战略上意义重大；
+*下午3:43 ·2021年1月8日*
 
-2、北韩国内的研发能力非常差，连高端研发设备都没有，即使已经拥有核武器，但是否将核武器小型化，能否成功投送出去才是能否成为武器的标志，这背后一定有其他国家的支持；
+谷歌也在威胁Parler。
 
-3、朝鲜是中共制约邻国与美国的棋子，中共为在接下来的与“拜登政府的谈判”中占据主导，再次摆出朝鲜就是要作为谈判的筹码。
+[James Todaro, MD on Twitter: “WOW, that was quick. Apple and Google threaten to remove Parler from app stores unless Parler starts censoring content.” / Twitter](https://twitter.com/JamesTodaroMD/status/1347672976418877446?ref_src=twsrc%255Etfw%257Ctwcamp%255Etweetembed%257Ctwterm%255E1347672976418877446%257Ctwgr%255E%257Ctwcon%255Es1_&amp;ref_url=https%253A%252F%252Fwww.thegatewaypundit.com%252F2021%252F01%252Fbreaking-apple-threatens-ban-parler-unless-enact-draconian-censorship-policies-demanded-big-tech-oligarchs%252F)
 
-二、再思维加诺主教的发言
+*詹姆斯·托达罗（MD） @JamesTodaroMD*
 
-班农先生在1月1日采访梵蒂冈大主教维加诺先生[2]，他此前是梵蒂冈驻美国大使，在梵蒂冈负责纪律检查，此次采访的中文版翻译已经在Gnews上发表。
+*哇，很快。 苹果和谷歌威胁要从应用商店中删除Parler，除非Parler开始审查内容。*
 
-维加诺主教接受班农先生采访时提到推动大重启者说，秩序重建会更好，他们努力让我们相信，他们想要加强给我们的巨变是应对流行病，气候变化和技术进步的必须。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/维加诺.jpg)[图片地址](https://gnews.org/wp-content/uploads/2021/01/%E7%BB%B4%E5%8A%A0%E8%AF%BA-1536x1077.jpg)
+*下午 4:34 ·2021年1月8日*
 
+据肖恩·汉尼提（Sean Hannity）透露，川普总统刚刚加入了Parler。
 
-路德社评论：
+请关注后续发展。。。
 
-1、这三项内容的特点，流行病、气候变化和技术进步都是未知领域，完全以专家的言论为主导，然后再通过媒体进行宣传，其中的真假由媒体与科学家决定，这就是所谓的权威，垄断了话语权，这与中世纪的宗教黑暗毫无分别；
+原文链接：
 
-2、对于这三个未知领域，只要专家掌握话语权就能控制一切，他们就是占据话语权的制高点，虽然事实根本无法被验证，但可以打着科学的幌子通过控制媒体平台封锁所有反对言论，为何他们不涉足军事领域或者物理化学领域，因为该领域的真实性非常容易被验证；
-
-3、中共推行的共产主义就是要占领话语权的制高点，以此垄断所有人的话语权，给反对者贴标签，这些都是他们一直以来运作的方向，以此来控制美国的政府和国会；
-
-4、人类文明此时就处在“危难时刻”，将科学变成宗教，将顶级科学家拿下之后变成教皇，以NIH为例，福奇至今稳坐高位，在世界各地影响甚广，一个人决定一个组织，一个组织决定全世界的标准，然后让全世界的专业人士（医生、护士等）都必须听命这个组织，这就是一套非常完美的组织管理系统，将宗教套用在科学上，用专家制定标准，用标准决定全世界；
-
-5、中共的独裁体制就是要发展高科技，通过高科技来控制人的言论，控制人的头脑，控制人的行为，达到控制意识形态的目的，为其垄断服务；
-
-5、共产主义推崇的马克思主义完全是欺骗，他用了一套看似科学实际上是废话的系统来掌握话语制高点，例如，马克思主义说所有事物都是曲折发展的，这就是正确的废话，他却用来发展集权的解释，中共在解释大跃进和文革的灾难时说，事物都是曲折发展的，犯了错误都是不小心，都是历史的必然来掩盖作恶的事实，但是反观香港事件，中共绝对不会说现在是香港曲折发展的低潮期，将来民主自由一定会打败中共；
-
-6、现在深层政府利用科技，利用媒体控制西方言论自由，这完全和中共在墙内实行的独裁政权如出一辙，这个大重启就是要朝这个方向发展，用所谓的科学破坏原有的信仰体系；
-
-7、由此可以明白中共一旦和美国重启合作后要发展这三大领域，这都是人在推动的，特别是流行病，最终都会被验证，爆料革命掌握信息都是事实，未来都会被一一验证；
-
-8、路德社在过往节目中提及现代社会已进入到一个“数据独裁”的时代，大科技公司完全垄断了你对数据的认识，他们可以从某个子集数据推导出一个结论，从科学角度来看这个结论完全正确，但他们的引导方向完全是错误的，里面具有非常大的迷惑性，普通人几乎无法辨别真伪；
-
-9、回顾哥白尼，伽利略提出并支持的“日心说”时代，伽利略因发表言论被罗马教会烧死，他在被迫写下悔过书的时候依然承认地球围绕太阳转，而哥白尼起初先承认教会的观点，在临死前再发表他的日“心说言论”，只要发表的言论和教会不同就被要被处理，被教会烧死，现在境况一模一样，一旦言论不同就会被媒体平台封杀，被水军五毛的口水淹死，现在的情况远比之前复杂无数倍，但是时间能够检验真伪；
-
-10、路德社的言论不是在否定科学，不是在否定圣经，而是揭示某些黑暗势力在利用科学，利用圣经来发展黑暗势力，这种现象不仅在集权国家才有，就像这次的病毒疫情，因为话语权的制高点被黑暗势力掌握，所有真相都被掩盖，此时的民主体系已经无法发挥作用，所有一切都跟着资本走，这一切都在逐渐地进行渗透，完全是一种新的玩法；
-
-11、原来有所谓的“苹果宗教”，现在也已经出现“环保宗教”，现在的疫情也是如此，现在要从根本上颠覆大家对这些现象的认知非常困难；
-
-12、其中包含的信息量巨大，而文贵先生能提前意识到，中共近几年始终在推动人类命运共同体，气候变暖，疫苗、AI技术和5G技术的发展，这要让所有人警醒；
-
-13、我们现在处在历史的转折口，所能看到的只是其中的一小部分，无法看到整张蓝图，我们需要站在历史的角度看待这一切，坚定信念；
-
-14、现在的“大重启”计划对与梵蒂冈教廷的威胁最大，因为他们要推翻历经数千年建立起来的基督文明，夺走至高话语权，重新树立标准，利用无神论替代上帝；
-
-15、路德社号召所有战友在安全的情况下，通过点赞、分享、转发的方式传递真相。
-
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
-
-参考文章：
-
-1. https://twitter.com/disclosetv/status/1347669794204610562
-2. https://gnews.org/zh-hans/715367/
-
-
-文章撰写：【重生】  编辑：【香柏树】
+[BREAKING: Apple and Google Threaten to Ban Parler Unless The Service Enacts Draconian Censorship Policies Demanded by Big Tech Oligarchs (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/01/breaking-apple-threatens-ban-parler-unless-enact-draconian-censorship-policies-demanded-big-tech-oligarchs/)
 
 0

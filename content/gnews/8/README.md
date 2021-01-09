@@ -1,9 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 1/8/2021 班农战斗室: 如果把这归咎于川普以及川普的支持者的话, 就如同把黑命贵恶行归咎于那些抗议非法谋杀黑人的人们
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/734260/)
+## 每日重要Twitter播报（中文）1/8期
+` 喜馬拉雅多語組` [轉載自GNews](https://gnews.org/zh-hans/734428/)
 
-By： 【秘密翻译组 G-Translators – 精翻组】
+撰稿记者:本来、石頭、尘凡3、CYC文穎
+校对:卓別林（文尊）
+播音:愛明州（文根根）
+剪辑：喜馬拉雅2020
 
-+1
+[每日重要推文1-8-PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/01/09070431/1-8-%E5%B7%B2%E8%BD%89%E6%AA%94.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/01/09070431/1-8-%E5%B7%B2%E8%BD%89%E6%AA%94.pdf)
+
+0

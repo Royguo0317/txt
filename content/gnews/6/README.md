@@ -1,30 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 河北疫情突然爆发，而中共却天天在进口食品里找病毒，忽视大规模人群筛查
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/729247/)
+## 【大选追踪】川普总统推号被吊销 社交媒体集体封杀意味着什么？
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/730760/)
 
-作者：Stephen(文文)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/image0-7-1.jpg)
-截止2021年1月7日，河北5天内共新增了234例确诊病例，石家庄所有人员及车辆不得出市，已实质性封城。大连金州区、沈阳个别区域也处于类似的准封城状态。从中共披露情况来看，12月底到1月初疫情有了一个突然爆发的趋势。而事实上中共国的疫情一直处于潜在流行中，只是规模大小，报道的多与少的问题。
-
-此次疫情的突然集中爆发是中共一贯掩盖疫情，令民众放松防护的直接结果。如果真正对疫情负责，中共应该做的事情是在疫情出现前对人群进行大规模的核酸筛查，以发现人群中隐藏的阳性病例，特别是无症状感染者，以阻断病毒的传播。而中共在做的滑稽可笑的事情却是在各地查进口冷冻食品、冷链物流、仓库中是否有病毒阳性。
-
-中共考虑的并不是如何真正阻断病毒传播，而时时刻刻都在想办法在疫情出现的时候将源头甩锅国外。这是中共为天天在查冷链食品外包装、特别是进口食品、货物的原因。
-
-就在河北疫情爆发的时候，中共还在不停宣传各地的仓库、汽车配件中检出病毒核酸的案例，却从未见中共真正去反思为何河北、沈阳、大连、北京近期出现诸多感染病例背后真正防疫不利的体制和机制原因。
-
-以下是近期中共报道的部分仓库、汽车配件检出病毒阳性的事例：
-
-1. 2021年1月6日，南京江北新区某企业发现一进口货物仓库地面样本检测结果呈新冠病毒核酸阳性； 
-2. 2021年1月1日，河北沧州高新区查出1汽车零配件外包装样本检测结果呈阳性； 3. 2021年1月1日，晋城市发现一例汽车轮胎外包装样本新冠病毒核酸检测结果呈阳性； 
-4. 2021年1月1日，烟台市开发区一企业企业的1份货物外包装标本为阳性； 
-5. 2021年1月1日，临沂市罗庄1家汽车4S店检测出货物内包装阳性标本1份。
-
-参考新闻： 汽车零部件外包装阳性 河南郑州：加大快递行业疫情防控力度-中华网河南
-
-【文章仅代表作者个人观点】
+作者：Shawn、Kataceilian 【㊙️翻Gnews原创组、精翻组】
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/05090549/mmexport1604131404317.jpg.png)
+就在几十分钟前，推特公司突然吊销了川普总统的账号。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-7.jpg)
+在一个小时前推特封杀了Flynn将军和Sidney Powell检察官的账号。
 
 
 
-0
+> Twitter has suspended the account of Gen. Flynn.
+> — Emerald Robinson ✝️ (@EmeraldRobinson) [January 8, 2021](https://twitter.com/EmeraldRobinson/status/1347670703655546882?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Twitter has suspended the account of Sidney Powell.
+> — Emerald Robinson ✝️ (@EmeraldRobinson) [January 8, 2021](https://twitter.com/EmeraldRobinson/status/1347669960697503750?ref_src=twsrc%5Etfw)
+
+
+
+为什么推特公司突然对川普总统及其支持者们痛下杀手、集体封号呢？“PM 突发新闻”推特分析称，“特朗普在推特上说他不会去参加就职典礼，”这可能会对那些潜在考虑暴力行为的人起到鼓励作用，就职典礼将是一个 “安全 “的目标。” 这被认为是川普被账号被吊销的原因之一。
+
+
+
+> Breaking: Twitter says that Trump tweeting that he won’t go to the inauguration “may serve as encouragement to those potentially considering violent acts that the Inauguration would be a “safe” target.” This was stated as one of the reasons for Trump’s suspension.
+> — PM Breaking News (@PMBreakingNews) [January 9, 2021](https://twitter.com/PMBreakingNews/status/1347697158527528961?ref_src=twsrc%5Etfw)
+
+
+
+显然这只是一个表面的说辞借口，真实的原因这些幕后操纵者再清楚不过。他们为什么那么害怕，川普只有12天的时间，华盛顿的政治精英、科技媒体、金融华尔街要大动干戈，想即刻拿下川普总统。南希-佩洛西一边鼓动彭斯和白宫幕僚立即启动第25修正案罢免川普总统职位，让彭斯代理总统。一边准备众议院要很快再次启动所谓弹劾案。
+
+下面的一个视频可能部分解释了他们之所以这么歇斯底里的原因。因为这些建制派的政治大佬们在6号的国会大选认证，是在受到外部指令和控制情况下，充当了前台的提线木偶。他们的犯罪证据正一点点被披露出来。
+
+“百合”推友称，“华盛顿沼泽里面的大鳄被操控的石锤证据。麦康奈尔在国会发言时，后面人向他做出手势后，立刻停止发言闭嘴！他显然已经接收了指令，显然他们彼此都心知肚明！麦康奈尔显然很害怕这个家伙，在担心着什么！ 欧美各政要各领域菁英阶层，98%被所谓共济会、光明会、共产国际、中共等组织控制威胁了，把柄在手难以逃脱。”
+
+
+
+> 华盛顿沼泽里面的大鳄被操控的石锤证据
+> 麦康奈尔在国会发言时，后面人向他做出手势后，立刻停止发言闭嘴！显然已经接收了指令，显然他们都心知肚明！麦康奈尔显然很害怕这个家伙，在担心着什么！
+> 歐美各政要各领域菁英阶层，98%被所谓共济会光明会共产国际、中共等组织控制威胁了，把柄在手难以逃脱 [pic.twitter.com/VIZLq1kpPS](https://t.co/VIZLq1kpPS)
+> — 百合 (@baihe66666) [January 8, 2021](https://twitter.com/baihe66666/status/1347583865628418049?ref_src=twsrc%5Etfw)
+
+
+
+（本文仅代表作者个人观点）
+
++2
