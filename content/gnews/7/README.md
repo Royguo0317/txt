@@ -1,31 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大砖家制定了更加严厉的荒诞中共病毒疫情政策
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/730806/)
+## 【大选实况】1/8/2021 EST 9:24pm 章家敦批评中共官方推特歌颂新疆
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/731068/)
 
-加拿大蒙特利尔皇家山战友团 Tao
-校对 文锦 上传 云起时
-![]()![](https://gnews.org/wp-content/uploads/2021/01/insauga.com_.jpg)图片来源：insauga.com
-据《多伦多太阳报》1月5日报道，在去年11月份，加拿大的一群医生联合制定了一项名为“中共病毒零感染（COVID Zero）”计划。该计划的核心就是执行严厉的封锁，直至每天新增的中共病毒病例为零。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/WhatsApp-Image-2021-01-08-at-6.58.54-PM.jpeg)
+【大选实况】1/8/2021 EST 9:24pm 章家敦@GuodonGChang转发中共国驻美国大使馆的推文，并评论道： 在我们国家没有地方能给实施种族灭绝的政权设置代表处。驱逐所有#中共国的“外交官”并关闭他们所有的设施。我们不需要把第三帝国再次演绎一番。 转发的推文翻译如下： 中共国驻美国大使@ChineseEmbinUS发推： 研究表明，在根除极端主义的过程中，新疆维吾尔族妇女的思想得到了解放，促进了性别平等和生育健康，这使她们不再沦为制造婴儿的机器。 她们变得更加自信和独立。
 
-看似雄心勃勃的目标，乍听起来也很不错。但是仔细思考之后就会发现，这个计划并没有听起来那么好，首先这些严厉的封锁毫无疑问会给整个社会带来难以估量的损失，其次即使计划得以顺利实施，也完全不能保证会达到预期效果。
+推特链接（注：中共大使馆原推已因违规被删除）
 
-现在，同样的一群人又来了，他们伙同其他人，又提出了一种新的“神奇”的解决方案，还给这方案起了个时髦的名字”加拿大防护盾（Canadian Shield）”。这个新方案的要点是，加拿大目前的封锁和限制措施还不够严厉，需要效仿难兄难弟澳大利亚，实行更严格的限制，包括宵禁、禁止遛狗和户外运动。
 
-“加拿大防护盾”的制定者们在没有任何证据支持的情况下，居然信誓旦旦地声称他们的计划将挽救5000人的生命，创造32万个工作岗位，并产生370亿加元的GDP。他们还乐观地认为，这些严格的限制措施将会让中共病毒感染人数迅速减少，最多只需要4-6周的时间就会达到预期的效果，到时候就可以放宽限制。然而，考虑到以往加拿大各个省的限制措施的期限一再被延长，这些人4-6周的判断很难有说服力。
 
-他们声称这个计划“是一个接近零感染的策略，因为在疫苗广泛使用之前，保持中共病毒零感染几乎不可能”。很显然，这个新计划彻底否定了他们去年11月份“中共病毒零感染”的计划。
+> There is no room in our country for the representatives of genocidal regimes. Expel all of [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s “diplomats” and close all their facilities. We do not need a rerun of the Third Reich. [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPChina](https://twitter.com/hashtag/CCPChina?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/Aw9X1IQNHB](https://t.co/Aw9X1IQNHB)
+> — Gordon G. Chang (@GordonGChang) [January 8, 2021](https://twitter.com/GordonGChang/status/1347549670684438529?ref_src=twsrc%5Etfw)
 
-那么问题来了，他们还要多久才会承认这个“加拿大防护盾”计划太过天马行空，根本不会成功？有谁会为计划的失败而担责？
 
-虽然这个计划的一些参与者可能得到了政府的授意，但我们非常希望政治家和公共卫生官员能够取消这个计划或其他类似的计划。别再拿加拿大的生活开玩笑了，这不是电脑游戏，这是加拿大人真真切切的生活，加拿大人不是小白鼠，不能成为砖家们所谓“科学实验”的对象。
 
-我们希望这些制定计划的专家，不要盲目跟风，试图寻求所谓的“神奇”方法，而是要寻求一种所有加拿大人都能接受的长期解决方案。如何建设加拿大的护理机构，如何提高医院的病人接待容量，如何改进加拿大的医疗系统？这些都是需要专家来解决的具体问题。
+By： 【秘密翻译组 G-Translators – 北美组】
 
-评论：
-加拿大的“专家”可以和中共国的“专家”们媲美，所谓的“建议”张嘴就来，完全不理会到底可不可行。除了对城市和公民无休止的封锁和限制，他们也没有什么拿得出手的办法。更让人寒心的是，加拿大政府禁止羟氯喹的使用，大力推行中共病毒疫苗，他们已经在中共事先设计好的坑里越陷越深，并乐在其中。
-
-[原文链接](https://torontosun.com/opinion/editorials/editorial-canadians-should-be-wary-of-miracle-lockdown-cures)
-
-0
++1

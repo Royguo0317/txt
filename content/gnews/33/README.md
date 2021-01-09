@@ -1,64 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 华融前董事长赖小民被判死刑
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/730350/)
+## 隐蔽的摄像头揭露，佐治亚州同一地址非法注册数千人
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/730533/)
 
-新闻来源：Zero Hedge《零对冲》； 作者：Tyler Durden； 发布时间：2021年1月5日
+*新闻来源：《国家脉动》； 作者：STAFF WRITER； 发布时间：2021年1月4日*
 
-翻译/简评：MikeHua；校对：：SilverSpurs7；审核：万人往；Page：小雨
+*翻译/简评：Dreamer文童；校对：感恩；审核：万人往；Page：Daoiii*
 
-**简评：**
+[!\[\]()!\[\](https://spark.adobe.com/page/gpq0qC7a0cAL3/images/06e07f8d-6a66-4334-8436-23412c646a3a.jpg?asset_id=d9a73313-637a-4932-9a2b-e201365e7d03&amp;img_etag=%220230bcd1e516fbbbdd6a0143b783b19c%22&amp;size=1024)](https://spark.adobe.com/page/gpq0qC7a0cAL3/images/06e07f8d-6a66-4334-8436-23412c646a3a.jpg?asset_id=d9a73313-637a-4932-9a2b-e201365e7d03&amp;img_etag=%220230bcd1e516fbbbdd6a0143b783b19c%22&amp;size=1024)一名选举工作人员正在检查选票。（美联社图片/Brynn Anderson）
 
-中共内部的任何一个高官贪污数额都是“数额巨大”，不共上一条贼船、不去犯罪根本不可能当上高官。赖小民只是党内斗争的牺牲品。中共的擀面杖经济快要露馅了，国际制裁的重锤如雨点般落向中南坑。如果中共不把杀掉一些巨贪，抢走他们的财富勉强续命，中共就不可能持续下去。但即使杀了企业家，中共也不可能持续下去，这是他们的游戏规则，他们必须得杀人抢钱。
+***简评：***
 
-赖小民判死刑和司法程序一点关系都没有，完全是党内斗争的结果，消失的马云也将会成为下一个赖小民、下一个王健、下一个被掠夺丧命的企业家。这些企业家和中共勾兑，心存幻想，和中共一起作恶，现在落得这么个下场，也是因果报应。中共如此疯狂，这是他们的末日狂奔，临死前最后一把。共产党即将完蛋了，新中国联邦会把共产党铲平，在中国建设法治和信仰自由的社会，赖小民一案恰恰证明了中国是多么需要法治。
+**近日，佐治亚州亚特兰大市《中央外联和宣传中心》（Central Outreach and Advocacy Center）的执行董事金伯利·帕克（Kimberly Parker）在镜头前承认，该组织将其办公地址作为数千人的选民登记地址进行投票。根据佐治亚州法律，这一行为已构成刑事犯罪，可能将面临最高10年监禁。该事实以及媒体已经曝光的其他选举舞弊证据彻底打脸该州州务卿“完美选举”的说法。**
 
-**原文翻译：**
+**佐治亚州是此次美国选举舞弊的重灾区。虽然种种舞弊的实锤证据已经曝光，但是该州州务卿还在负隅顽抗。单凭州务卿一人之力，肯定无法扛住可能面临刑事监禁的压力，州务卿背后的靠山肯定是美国沼泽地势力。从明面上看，美国选举舞弊正在通过法律程序一步步向前推进，但背后其实是各种势力在讲数勾兑中。川普总统最终肯定能够当选，只是以什么方式获胜尚且待定。**
 
-# **前中共国金融巨头被判死刑**
+***原文翻译：***
 
-CNBC作为中共国宣传媒介，他们的主持人戴维•法贝尔 (David Faber)坚称马云不是“消失了”，而只是“低调行事”。
+## 隐蔽的摄像头揭示了活动人士在佐治亚州同一地址非法注册数千人
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AIaEMab0Ty5bE/images/250d7be1-bd19-4d49-9b5c-5ff77b647de7.png?asset_id=a154d807-5fe5-4ed0-99be-5ed73559dbb6&amp;img_etag=%2275500e7c33236332b9fe365904a5503d%22&amp;size=2560)](https://spark.adobe.com/page/AIaEMab0Ty5bE/images/250d7be1-bd19-4d49-9b5c-5ff77b647de7.png?asset_id=a154d807-5fe5-4ed0-99be-5ed73559dbb6&amp;img_etag=%2275500e7c33236332b9fe365904a5503d%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/gpq0qC7a0cAL3/images/de9be576-1f61-4500-adf0-5533f09dddff.png?asset_id=8992a1ed-dc94-4dfe-9446-4cf3882d6810&amp;img_etag=%224593e23db271735af34f98bf31976ef5%22&amp;size=1024)](https://spark.adobe.com/page/gpq0qC7a0cAL3/images/de9be576-1f61-4500-adf0-5533f09dddff.png?asset_id=8992a1ed-dc94-4dfe-9446-4cf3882d6810&amp;img_etag=%224593e23db271735af34f98bf31976ef5%22&amp;size=1024)
 
-中共国法院日前给世界展示了共党是如何不在乎保护人的生命和尊严。为配合中共国重拳出击的反腐行动，中共国四大国有资产管理公司之一的前董事长周二因贪污受贿18亿元（约合2.77亿美元）被判死刑。
+Veritas项目发布了来自活动人士的新音频，这些活动人士承认在一个地址（他们的办公室）注册数千人，以便在佐治亚州非法投票。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AIaEMab0Ty5bE/images/0919d67f-698a-4e4b-b52d-fd382a32793f.jpg?asset_id=c516e3cb-0d40-43d6-91ee-79a84d3b0b81&amp;img_etag=%22388952b8627155b58d65a49e3fc68b03%22&amp;size=2560)](https://spark.adobe.com/page/AIaEMab0Ty5bE/images/0919d67f-698a-4e4b-b52d-fd382a32793f.jpg?asset_id=c516e3cb-0d40-43d6-91ee-79a84d3b0b81&amp;img_etag=%22388952b8627155b58d65a49e3fc68b03%22&amp;size=1024)
+该消息在佐治亚州参议院第二轮选举前一天传出，并且就在当地州政府试图确保公众的选票得到公平和平等计算后的数小时。
 
-赖小民
+根据佐治亚州法律，一个人必须“以法律规定的方式登记为选民”，并且“是本州和他或她寻求投票的郡或市的居民。”
 
-该官员就是赖小民，他曾是中国华融资产管理 (China Huarong Asset Management)公司主席，华融是中共国最出名的几家金融公司之一。中共当局称在超过十年时间内（2008到2018），赖小民及其同伙从华融公司挪用了约17.9亿元。
+在一个地址登记若干选民是 – 就其性质而言 – 将投票权开放给可能不是该州或其登记的郡或市的合法居民的人。
 
-据新华社报道，58岁的前华融公司党委书记、中国人民银行高管赖小民被天津第二中级人民法院宣判死刑，赖小民对一系列指控认罪，包括贪污受贿、挪用公款、腐败和重婚罪。
+在镜头下，亚特兰大《中央外联和宣传中心》（Central Outreach and Advocacy Center）的金伯利·帕克（Kimberly Parker）说：
 
-除了他的死刑判决，法庭宣布他的所有资产都会被国家没收。
+**“我们服务的大多数人没有地址，所以我们允许他们在登记投票时使用我们的地址，并获得佐治亚州的身份证。”**
 
-赖小民曾担任华融董事长，直到2018年被捕，当时对他涉嫌挪用公款和自营交易的调查力度加大。
+根据佐治亚州法律，该操作流程似乎是刑事犯罪，最高可判处10年监禁。
 
-虽然这个时机（特别考虑到现在马云的境遇）特别的耐人寻味，这个严厉的宣判其实不令人惊讶。前共产党员赖小民通过中共中央电视台CCTV进行了电视认罪直播。和赖小民一样，马云也是共产党员。在电视认罪直播上，视频显示赖小民北京的公寓里有大量塞满现金的保险箱和柜子。
+帕克继续承认：“虽然我们不是收容所，但我们确实允许他们使用华盛顿街201号（201 Washington St.）。”这是该组织的办公地址。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AIaEMab0Ty5bE/images/8a60a67c-d420-474c-98fd-e79fdbf68edd.png?asset_id=256db348-45ba-42ce-9946-df76ffb29382&amp;img_etag=%223d70b1dfca56d0e65dbf8976ee9d2c0c%22&amp;size=2560)](https://spark.adobe.com/page/AIaEMab0Ty5bE/images/8a60a67c-d420-474c-98fd-e79fdbf68edd.png?asset_id=256db348-45ba-42ce-9946-df76ffb29382&amp;img_etag=%223d70b1dfca56d0e65dbf8976ee9d2c0c%22&amp;size=1024)
+“我甚至无法告诉你有多少人的身份证上有这个地址。”
 
-中共国让忤逆党的官员“消失”的历史悠久。赖小民不是唯一一个因受贿而落马的中共高官：在2019年，国际刑警组织主席也神秘“消失”，再次出现的时候就是在被指控腐败的电视认罪上。
+该消息也与州务卿布拉德·拉芬斯伯格（Brad Raffensberger）和其助手加布里埃尔·斯特林（Gabriel Sterling）的试图掩盖公然相悖，他们在与川普总统的通话中坚称他们组织了一次完美的选举。在与总统的通话被泄露给《华盛顿邮报》（Washington Post）后，斯特林在周一的新闻发布会上再次坚称是完美的选举。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AIaEMab0Ty5bE/images/1c812b25-893e-4406-8395-cddd2b2b56c5.png?asset_id=0dae8b71-aaec-4bcc-b550-32273ae66fb9&amp;img_etag=%2207c8e7811485d1561edb195b27b6e0fb%22&amp;size=2826)](https://spark.adobe.com/page/AIaEMab0Ty5bE/images/1c812b25-893e-4406-8395-cddd2b2b56c5.png?asset_id=0dae8b71-aaec-4bcc-b550-32273ae66fb9&amp;img_etag=%2207c8e7811485d1561edb195b27b6e0fb%22&amp;size=1024)
+该中心的另一名员工亚当·西利（Adam Seeley）承认“大概有数千人…将我们的地址登记为他们的选民登记邮寄地址。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AIaEMab0Ty5bE/images/b1609b22-2f59-4ba5-ad38-9da14d059a3c.png?asset_id=1b76b989-2cbb-48d8-88b1-56dae58c85ef&amp;img_etag=%22f33c023538c73a71674a32fb8410c0c8%22&amp;size=2560)](https://spark.adobe.com/page/AIaEMab0Ty5bE/images/b1609b22-2f59-4ba5-ad38-9da14d059a3c.png?asset_id=1b76b989-2cbb-48d8-88b1-56dae58c85ef&amp;img_etag=%22f33c023538c73a71674a32fb8410c0c8%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/gpq0qC7a0cAL3/images/083b50b5-975c-4e89-9172-8740c501c4d8.png?asset_id=3bddd36d-5686-4cb2-9d7c-737ff1ba84d1&amp;img_etag=%226bafefe357ae0f522a5d132556b2ecb2%22&amp;size=3210)](https://spark.adobe.com/page/gpq0qC7a0cAL3/images/083b50b5-975c-4e89-9172-8740c501c4d8.png?asset_id=3bddd36d-5686-4cb2-9d7c-737ff1ba84d1&amp;img_etag=%226bafefe357ae0f522a5d132556b2ecb2%22&amp;size=1024)[【点击查看】](https://twitter.com/JamesOKeefeIII/status/1346271086783197185)
 
-在赖小民的电视认罪上，他自称没有把任何一分钱的不当收入用于消费，他希望能把所有钱都返还（某程度上，我们怀疑这是伪造的）。
+詹姆斯·O·基夫（James O’ Keefe）
 
-法院声明强调赖小民犯罪的时间，绝大部分都是在2012年中共全国代表大会之后进行的——那个时候习近平开始掌权并且发起了反腐运动。法院声明称赖小民“目无法纪，并且极度贪婪”。
+突发新闻：@CentralOAC行政人员承认该组织在富尔顿郡的同一地址登记数千名无家可归者进行投票。
 
-“大部分犯罪行为均发生在党的十八大之后，属于典型的不收敛、不收手、顶风作案”，法院声明说。
+“甚至无法告诉你有多少人的身份证上有这个地址。”
 
-检方在他们的指控中添加了许多详细证据。根据中共国的证据，赖小民把藏钱的地方叫做“超市”，他经常到“超市”存钱。法庭将没收的资产列为“数额巨大”，并且坚称这样大额的盗窃行为需要最严格的惩罚。
+“董事会成员得到风声…认为我们做的事情不是光明磊落的…”
 
-赖小民最初在8月承认了这些指控。
+#佐治亚州选民舞弊（GAVoterFraud）
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AIaEMab0Ty5bE/images/c5cb1326-3efa-43b7-8363-8e693d7344fd.jpg?asset_id=dc5340e4-f659-4aab-a5be-340a7a6aeb2a&amp;img_etag=%2228ceeba3c14dc6df86b48ee5c0d8df63%22&amp;size=2560)](https://spark.adobe.com/page/AIaEMab0Ty5bE/images/c5cb1326-3efa-43b7-8363-8e693d7344fd.jpg?asset_id=dc5340e4-f659-4aab-a5be-340a7a6aeb2a&amp;img_etag=%2228ceeba3c14dc6df86b48ee5c0d8df63%22&amp;size=1024)
+2021年1月5日9:43 AM
 
-[原文链接](https://www.zerohedge.com/covid-19/china-sentences-bigamist-ccp-official-death-accepting-bribes-embezzlement?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+[原文链接](https://thenationalpulse.com/breaking/watch-hidden-camera-reveals-activists-illegally-registered-thousands-at-the-same-address-in-georgia/)
 
 [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -66,8 +66,8 @@ CNBC作为中共国宣传媒介，他们的主持人戴维•法贝尔 (David Fa
 
 [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-编辑：【英国伦敦喜庄园编辑部】-[点击spark adobe版](https://spark.adobe.com/page/AIaEMab0Ty5bE/)
+编辑：【英国伦敦喜庄园编辑部】-[点击spark adobe版](https://spark.adobe.com/page/gpq0qC7a0cAL3/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/AIaEMab0Ty5bE/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=2560)](https://spark.adobe.com/page/AIaEMab0Ty5bE/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/gpq0qC7a0cAL3/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/gpq0qC7a0cAL3/images/0693d571-8e19-4ced-93ab-0674d167f712.jpg?asset_id=60eb1c9a-477e-40ec-a9fd-310cb2aa533b&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
-0
++1

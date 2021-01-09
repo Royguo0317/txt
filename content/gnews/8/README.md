@@ -1,19 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 著名挺川漫画家本·加里森推特被禁
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/730799/)
+## 【大选实况】1/8/2021 5:28PM 朱利安尼发推: &#8220;我知道, 在场的各位很快就会向国会大厦进发, 和平地爱国地发出你们的声音!&#8221;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/731048/)
 
-*加拿大多伦多枫叶农场 文锦*
+> “I know that everyone here will soon be marching over to the Capitol building to peacefully and patriotically make your voices heard!” – [@realDonaldTrump](https://twitter.com/realDonaldTrump?ref_src=twsrc%5Etfw) January 6, 2021
+> — Rudy W. Giuliani (@RudyGiuliani) [January 8, 2021](https://twitter.com/RudyGiuliani/status/1347672225017692163?ref_src=twsrc%5Etfw)
 
-*校对 小鸥 发稿 文锦*
 
-2021年1月8日，美国著名挺川漫画家本·加里森（Ben Garrison）的推特（@GrrrGraphics）账号被冻结。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图371.png)
-加里森生于1957年，有着个人网站[https://grrrgraphics.com/](https://grrrgraphics.com/)，同时是在推特上非常活跃的政治漫画家，绘制了许多流传甚广、备受好评的作品。他对美国的政治生态有着极强的领悟，并将各种典故巧妙融入漫画中，经常令读者仔细揣摩后，不由会心一笑。以下是他的三幅作品：
-![]()![](https://gnews.org/wp-content/uploads/2021/01/2f1cd8908a432ddfe7a8c15ea93669f7.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/fauci_demon-1-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/January_6_MAGA_cartoon-1024x773-1.jpg)
-推特作为社交媒体巨头，钳制言论自由，1月6日冲击国会大厦事件发生后，言论管制升级，永久删除了川普总统的账号。今天连漫画家的账号也被冻结，如法炮制中共恶行。
 
-随着终极之战的来临，推特的倒行逆施令更多人警醒，美国民主自由危矣！这也更显出GTV、GNews等自由媒体的可贵之处。
+朱利安尼美东时间1月8日17:28发推： “我知道，在场的各位很快就会向国会大厦进发，和平地、爱国地发出你们的声音！” – 摘自 2021年1月6日 川普总统的推文。
 
-+2
+**其他参考文章：**
+
+- [【大选实况】1/8/2021 EST 7PM 川普总统推号被吊销 社交媒体集体封杀意味着什么？](https://gnews.org/zh-hans/730760/)
+
+
+**By： 【秘密翻译组 G-Translators – 精翻组】**
+
++1
