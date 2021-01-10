@@ -1,19 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国会大厦挺川者被枪杀时 为何黑命贵创始人恰好录像？
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/735941/)
+## 共产党国安威胁墙内投资者报假案，但仗剑之人必死于剑下！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/736423/)
 
-加拿大多伦多枫叶农场 Revelation119熙攘
-校对 文锦 发稿 云起时
-![]()![](https://gnews.org/wp-content/uploads/2021/01/heavy.com_.jpg)图片来源：Heavy.com
-在2021年1月6日华盛顿特区的抗议活动中，支持川普的美国空军退伍老兵艾希莉·巴比特（Ashli Babbitt）和其他川普支持者尝试通过一扇被破坏的窗户爬进众议院大楼内。在这个过程中，一个在国会山执勤的警官将其射杀。目前，该警官被休假中。
+新闻简述：2021年1月7的盖特视频中，郭先生痛斥共产党国保、国安部门威胁墙内GTV投资者，让他们给FBI报假案栽赃。他说仗剑之人必死于剑下，美国不会放过共产党造假。
+视频来源：[https://gtv.org/getter/5ff7671587fabe2daf329613](https://gtv.org/getter/5ff7671587fabe2daf329613) 
+**中英文对照全文**
 
-这一切非常巧合地被犹他州居民约翰·沙利文（John Sullivan）拍了下来。沙利文是极左黑命贵组织“叛乱美国”的创始人，经常挑起对公众特别是保守派人士的暴力活动。在去年的7月份，沙利文因为在犹他州普若佛市威胁驾车司机而被捕，并成为头条新闻。《每日邮报》和CNN就1月6日的枪击事件采访了沙利文，但是二者都没有向大众给出沙利文为何出现在枪击第一现场令人满意的答案。虽然没有披露具体原因，沙利文向《每日邮报》指出，他去国会山并不是为了抗议。
+Hello, honorable fellow fighters! We’ve got all kinds of information from many fellow fighters these days. Thank you very much! Really appreciate it! The Department of Domestic Security across the country [China] and other security departments have threatened GTV investors with their family, provided them with the FBI tip webpage and phone number, and asked them to report to FBI that they were scammed [by GTV]. They are definitely trying to frame us.
 
-评：
-民主党和主流媒体对黑命贵在川普第一个4年任期发动的多次骚乱和带来的恶果视而不见，甚至站在其背后支持其暴力活动；而且它们还以1月6日美国国会大厦所谓“骚乱”为借口从各个方面对川普进行打击报复嫁祸川普总统，甚至关闭了川普总统在油管和推特平台上帐户，其心可诛。从另外一方面，看出他们是多么的惧怕川普总统。郭文贵先生领导的爆料革命和已经醒来的美国或世界人民的心如明镜，看得比谁都清楚。我坚信，爆料革命和其他正义的力量一定在这次终极之战中胜出。我们1月20日见真章。
+尊敬的战友们好！我们这几天收到了很多战友们发来的各种信息，非常非常的感激和感谢！就是各地的国保、安全部门，用家人做威胁，让他们作为曾经参与了GTV投资的人，还给了FBI举报的网址和电话，要求到FBI举报，说我被诈骗了。这完全是栽赃陷害！
 
-[原文链接](https://www.zerohedge.com/political/why-was-founder-far-left-blm-group-filming-inside-capitol-police-shot-protester?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+The CCP is all about faking, right? But, CCP, don’t forget that the United States is not the kind of country that will let you off that easy. Do you think that you have won a big victory now? A complete victory? People who live by the sword die by the sword. CCP, your fortune started from corruption and greed, from deception, and from fraud. Ultimately, you will die from the fake and fraud. Do you think it will work by making fraudulent statements to the FBI and bribing a few people?
 
-+4
+共产党就造假嘛，是吧？但是，共产党你千万别忘了，美国这个国家不是你造了假就能过得去的。你以为现在现场就是你大赢了？你彻底赢了？仗剑之人必死于剑下，你共产党你这种以黑起家、以贪起家、以假起家、以骗起家，最终会倒在假和骗上。你以为你到 FBI 报假案，你买通几个人你就能行了吗？
+
+Brothers and sisters in arms, I understand the hardship and the threats that you are facing. But this is something that happens unavoidably in the fighting with the CCP. But I appreciate your courage, and I am really touched by your courage towards me, GTV, and all the other fellow fighters. Brothers and sisters in arms, please remember, under the threat of the CCP, everything that you do is understandable. However, it would be ideal if you could let us know, particularly, about things like being forced to make a fraud report to the FBI. Being forced to make a false report to the FBI is a serious international crime. It will be even better if you have recorded voice and video, right?
+
+兄弟姐妹们，理解你们所有的难处，理解你们的威胁，但是这就是我们共产党当中、博弈当中必然要发生，要有的。但是很感谢战友们你们的勇敢，还要你们对文贵、对GTV、对所有的战友的这种勇气，文贵是非常非常的感动。兄弟姐妹们，但是一定要记住，在共匪的威胁之下，你做什么都可以理解的。但是让我们知道是最好了，特别上美国FBI报假案这种事情。被逼迫报假案，那是重大的国际跨领域的司法犯罪。有语音、有录像，那就更好了，更好了，是吧？
+
+Thinking that yesterday President Trump was about to hand over the gun, the CCP has become even more crazy and faked criminal cases like insane. CCP, I am your eighth generation ancestor. You are like dogs that can never change your habit of eating shit, you ba\*tards! Let’s wait and see. Don’t be too shameless. I am still saving face for you, but if you don’t want to save your face, then I will screw all of you, you ba\*tards – words from Brother Haidong and Sister Ying are now famous. You bastards. But most of those with a conscience have had their guns raised by an inch. For that I really appreciate it! Thank you!
+
+以为昨天，好家伙，这家伙川普总统要交枪了，共产党就更疯狂了，疯狂的制造刑事虚假案子，我R你八辈祖宗，共产党。你狗改不了吃屎，你这帮孙子，走着看，别给脸不要脸。我给你们留着脸哪，但是你们要是不要脸了，那咱就一堆儿给你烩了吧，这帮孙子啊，海东弟，颖妹妹的话，现在成名话了。这帮孙子。但是绝大多数有良知的人，还都是枪口抬高一寸的。我也非常感谢！谢谢！
+
+*感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/727728/](https://gnews.org/zh-hans/727728/)*
+
+翻译：【Cyndi】校对：【Isaiah4031】【BruhM】字幕：【相机过热啊】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+
+喜马拉雅玫瑰园小队出品
+
+*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
+
+0

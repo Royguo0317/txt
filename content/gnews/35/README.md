@@ -1,36 +1,101 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 纵有情报分析团队全力淡化 国家情报局仍坚持中共影响大选
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/735369/)
+## 【大选推特/Parler实况】1/9/2021 禁言,妖魔化都是左派的手段。这揭示了他们真正的计划: 废除宪法, 社会主义。这都是中共引以为豪的…
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/736230/)
 
-加拿大蒙特利尔战友团Spirit
-校对、发稿 文锦
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1-36.jpg)图片来源：Rollingstone
-据《华盛顿观察报》1月7日报道，一名情报界检查员称，美国间谍机构对2020年美国大选中外国影响力的评估存在政治化问题，包括分析师因为不同意川普政府的政策而隐瞒了有关中共努力干预的信息。
+**【大选实况】1/9/2012 EST 10:58 AM 国会议员Ken Buck推文：**
 
-分析监察官、长期担任情报官员的巴里-祖劳夫（Barry Zulauf）周四向参议院情报委员会发布了一份由《华盛顿观察家》获得的长达14页的报告，透露他的调查是 “针对情报界关于选举威胁问题的投诉而进行的”。此外，他还感叹 “两极化的气氛已经威胁到破坏我们共和国的基础，甚至渗透到了情报界”。
+阻止Google和Facebook等大科技公司审查保守派的唯一方法是拽住其反竞争行为（垄断）的缰绳。 他们之所以可以审查你，因为他们是垄断者。
 
-情报界关于2020年大选中外国影响力的机密评估也于周四提交给国会。本来应该在12月提交，由于高级情报官员在中共所扮演的角色上发生冲突，作为国家情报局局长，约翰-拉特克利夫试图在最终分析中纳入更多的观点，评估被推迟。
 
-“鉴于俄罗斯和中共国分析人员考察目标的方式存在分析上的差异，中共国分析人员似乎不愿意将中共的行动评估为不当影响或干涉。这些分析师似乎不愿意让他们对中共的分析被提出来，因为他们往往不同意川普政府的政策，他们实际上说，我不希望我们的情报被用来支持川普政策。”祖劳夫总结说，这种行为违反了要求独立于政治考虑的分析标准。
 
-监察员分享了一些他说已经被拉特克利夫接受的建议，包括 “通过从国家情报局局长到全体员工，以及从机构负责人到所有情报机构的直接领导层沟通，加强保护分析完整性的重要性，并重新致力于分析的客观性，避免政策和实践中的政治化。”
+> The only way to stop Big Tech companies like Google and Facebook from censoring conservatives is to rein in their anticompetitive behavior.
+> 
+> They can censor you because they are a monopoly.
+> — Congressman Ken Buck (@RepKenBuck) [January 9, 2021](https://twitter.com/RepKenBuck/status/1347935820108488706?ref_src=twsrc%5Etfw)
 
-来自德克萨斯州的前共和党国会议员拉特克利夫周四签署了一封长达3页的非机密信件，这封信也被《华盛顿观察家报》获得，他在信中认为，”从我作为使用美国政府关于中华人民共和国的所有最敏感情报的个人的角度来看，我不相信情报界分析师所表达的多数观点能全面准确地反映中共政府努力影响2020年美国联邦选举的内容。” 拉特克利夫补充说，”监察员报告中包括有关中共选举影响报告被政治化，对根据情报提出另一种观点的分析师被施加不当压力。”
 
-一位高级情报官员告诉《华盛顿观察家》，”在情报界内部，我们将不得不与这份报告中所概述的问题以及我们自己的内部公断人说拉特克利夫是对的，我们的一些职业人士，甚至是CIA管理层，都在将中共情报政治化。”
+来源：[https://twitter.com/repkenbuck/status/1347935820108488706?s=21](https://twitter.com/repkenbuck/status/1347935820108488706?s=21)
+盖特链接：[https://gtv.org/getter/5ffa1aa487fabe2daf344e33](https://gtv.org/getter/5ffa1aa487fabe2daf344e33)
 
-这是在对俄罗斯干预2016年大选的评估四年后，一些人仍在争论，辩论的背景是对中共对美国立法者的影响的担忧不断增加，大规模的太阳风（SolarWinds）黑客入侵以及1月6日的混乱，冒充川普总统支持者的安提法冲进国会大厦，试图阻止国会计算选举人票，证明当选总统拜登获胜。
+* * *
 
-祖拉乌夫说，”由于对敌对国家行为体的领导意图在国内影响力活动上的收集和洞察力不同，中俄分析界对’影响力’和’干扰’这两个词的定义应用不同。” 他指出，俄罗斯分析人员可以依靠正式的定义文件，但 “中共国没有类似的文件”，来自不同县市的选举威胁的不同分析群体使用不同的术语来传达相同的恶意行动”，”俄罗斯和中共国的类似行动被以不同的方式评估并传达给政策制定者，可能导致俄罗斯试图影响选举但中共没有影响选举的错误印象”。
+**【大选实况】1/9/2021 美东时间 11:08AM Laura Ingraham 发推：**
 
-他还表示，”我们评估，中共不希望川普总统赢得连任”，中共 “在2020年11月之前一直在努力扩大影响力”，”认识到所有这些努力 “都可能影响大选。祖拉乌夫说，”分析人士称，国家情报中心领导层在漫长的审查过程中不断淡化来自中共国的威胁。拉特克利夫说，”我们忽略了中共国对美国的影响，中共的行动故意在影响选举”。**监察员说，”最终，国家情报局坚持把有关中共的材料放进去，在知道分析家们不同意的情况下”。拉特克利夫指出，”很多分析师认为离谱，但我是根据情报做的”。**
+禁言，妖魔化、控制都是左派的手段。 这揭示了他们真正的计划。彻底废除宪法，社会主义，彻底的统治。 这都是中共引以为豪的。
 
-监察官透露，两名国家情报官员在10月写了一份 “国家情报中心备选分析备忘录”，”其中对中共潜在的选举影响活动表达了不同观点，遇到了相当大的组织反制压力”。分析监察官告诉《华盛顿观察家》拉特克利夫是实话实说，并不是在搞政治，中共情报被压制是出于政治原因。拉特克利夫认为，不考虑政治因素或不当压力的情况下结论–中共在影响2020年美国联邦选举，是最大威胁，他们更多的注意力需要放在中共”。
 
-中共的渗透直达美国情报界，情报官员收到不当压力，评估报告被政治化，提供属实的评估报告这样正常的日常工作变得困难重重。
 
-[原文链接](https://www.washingtonexaminer.com/news/intelligence-analysts-downplayed-election-interference-trump-inspector?_amp=true&amp;__twitter_impression=true)
+> Silencing, demonizing, controlling is all the Left has. This reveals their true agenda. Total evisceration of Constitution. Socialism. Total domination. The CCP’s proud.
+> — Laura Ingraham (@IngrahamAngle) [January 9, 2021](https://twitter.com/IngrahamAngle/status/1347938331913498624?ref_src=twsrc%5Etfw)
 
-+1
+
+来源： [https://twitter.com/IngrahamAngle/status/1347938331913498624](https://twitter.com/IngrahamAngle/status/1347938331913498624)
+盖特链接：[https://gtv.org/getter/5ffa032c87fabe2daf343cc4](https://gtv.org/getter/5ffa032c87fabe2daf343cc4)
+
+* * *
+
+**【大选实况】1/9/2021 美东时间 11:52AM 突发新闻：**
+
+川普政府的前美国常驻联合国代表尼基-海利说，推特对川普的禁令是 “在中共国才会发生的事“。
+
+
+
+> Breaking: Nikki Haley says Twitter’s ban of Trump is ‘what happens in China’ | Just The News [https://t.co/OKOFdMTPM7](https://t.co/OKOFdMTPM7)
+> — John Solomon (@jsolomonReports) [January 9, 2021](https://twitter.com/jsolomonReports/status/1347949330368503811?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/jsolomonReports/status/1347949330368503811?s=20](https://twitter.com/jsolomonReports/status/1347949330368503811?s=20)
+盖特链接：[https://gtv.org/getter/5ffa044c87fabe2daf343d8f](https://gtv.org/getter/5ffa044c87fabe2daf343d8f)
+
+* * *
+
+**【大选实况】1/9/2021 EST 11:09am蓬佩奥推文：**
+
+控制言论是非常危险的。这不是美国的作风。悲哀的是，这不是左派的新招数。他们已经试图控制对手的言论很多年了。 我们不能让他们噤声七千五百万美国人，这里不是中共国。
+
+
+
+> Silencing speech is dangerous. It’s un-American. Sadly, this isn’t a new tactic of the Left. They’ve worked to silence opposing voices for years. 
+> 
+> We cannot let them silence 75M Americans. This isn’t the CCP.
+> — Mike Pompeo (@mikepompeo) [January 9, 2021](https://twitter.com/mikepompeo/status/1347938581424312331?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/mikepompeo/status/1347938581424312331?s=20](https://twitter.com/mikepompeo/status/1347938581424312331?s=20)
+盖特链接：[https://gtv.org/getter/5ffa15ee87fabe2daf344a7a](https://gtv.org/getter/5ffa15ee87fabe2daf344a7a)
+
+* * *
+
+**【大选实况】1/9/2021 美东时间 12:26PM The Dirty Truth (Josh) 推文：**
+
+达美航空特意降落飞机将这些人逐下飞机，因为他们正在私下里谈论支持川普总统。
+
+
+
+> Delta airline landed a plane to remove these people because they was having a private conversation about supporting President Trump. [pic.twitter.com/x1o9yeKVjb](https://t.co/x1o9yeKVjb)
+> — The Dirty Truth (Josh) (@AKA\_RealDirty) [January 9, 2021](https://twitter.com/AKA_RealDirty/status/1347957967619022848?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/AKA\_RealDirty/status/1347957967619022848](https://twitter.com/AKA_RealDirty/status/1347957967619022848)
+盖特链接：[https://gtv.org/getter/5ffa153687fabe2daf3449d6](https://gtv.org/getter/5ffa153687fabe2daf3449d6)
+
+* * *
+
+**【大选实况】1/9/2021 美东时间 13:03PM 章家敦推文：**
+
+沃尔玛为了迎接拜登入职总统大位，取消了与美国内供应商的订单，将订单发往中国工厂。所以，打着美国国旗的沃尔玛是极其自私的。它真正是忠于金钱，忠于中共国。
+
+
+
+> [#Walmart](https://twitter.com/hashtag/Walmart?src=hash&amp;ref_src=twsrc%5Etfw), in anticipation of [#Biden](https://twitter.com/hashtag/Biden?src=hash&amp;ref_src=twsrc%5Etfw)'s presidency, is cancelling orders it had placed with domestic suppliers and sending them to [#Chinese](https://twitter.com/hashtag/Chinese?src=hash&amp;ref_src=twsrc%5Etfw) factories. So Walmart flying the [#American](https://twitter.com/hashtag/American?src=hash&amp;ref_src=twsrc%5Etfw) flag is cynical. It is really loyal to money and to [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPChina](https://twitter.com/hashtag/CCPChina?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Gordon G. Chang (@GordonGChang) [January 9, 2021](https://twitter.com/GordonGChang/status/1347967352562978816?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/GordonGChang/status/1347967352562978816](https://twitter.com/GordonGChang/status/1347967352562978816)
+盖特链接：[https://gtv.org/getter/5ffa0b2c87fabe2daf34423e](https://gtv.org/getter/5ffa0b2c87fabe2daf34423e)
+
+**By： 【秘密翻译组 G-Translators】**
+
+0

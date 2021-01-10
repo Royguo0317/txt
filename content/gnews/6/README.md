@@ -1,97 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/9/2021 合谋的寡头们试图抹去美国宪法第一修正案&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/736269/)
+## 突发！中共国一家电池厂发生爆炸
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/736752/)
 
-**【大选实况】1/9/2021 EST 11:35am Zerohedge推文：**
+作者：举天三尽外星人
 
-麦康奈尔阐述了参议院如何进行第二次弹劾
+审稿：Runaway 编辑：MG1
+![]()![](https://gnews.org/wp-content/uploads/2021/01/102.png)图片来自百度截图
+1月7日晚间，微博号“宁乡发布”发布消息称，18时12分左右，湖南邦普循环科技有限公司的一家老厂车间发生了爆炸。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/103.png)图片来自微博截图![]()![](https://gnews.org/wp-content/uploads/2021/01/104.png)图片来自视频截图
+在“爱企查”查到该公司相关信息为：
 
+“湖南邦普循环科技有限公司成立于2008年01月11日，注册地位于湖南省长沙市金洲新区金沙东路018号，法定代表人为李景文。经营范围包括新材料、电池及新能源的研发、生产、加工与销售；电池、废旧电池、塑料及含有镍、钴、铜、锰的有色金属废物的收集、利用与销售；自营和代理各类商品和技术的进出口业务（国家法律法规禁止或限制的除外）；环保工程的设计与施工。（依法须经批准的项目，经相关部门批准后方可开展经营活动）湖南邦普循环科技有限公司对外投资2家公司。”
 
+据环球网1月8日最新报道，“经救援人员全面清理现场和核查发现，邦普循环科技有限公司燃爆事故共造成1人死亡、6人重伤、14人轻微伤，所有伤员均已送医救治”
 
-> McConnell Lays Out How Second Impeachment Would Play Out In Senate [https://t.co/CWTS75hdNL](https://t.co/CWTS75hdNL)
-> — zerohedge (@zerohedge) [January 9, 2021](https://twitter.com/zerohedge/status/1347945130804846593?ref_src=twsrc%5Etfw)
+评：中共国每年都有重大安全事故，诸如2015年的天津大爆炸，官方只报告了165人遇难，实际肯定超十倍的死伤，因为爆炸把周边很大范围都汽化了，威力堪比小型核弹。
 
+这次该电池厂爆炸规模也不小，从视频看也升起了蘑菇云，官方报道只有1人死亡，在我看来根本就掩盖真相，中共历来对各种事故都会掩盖真相，每个地区有死亡人数指标，例如市级地区重大事故死亡不能超过35人，所以大家经常看到每每有重大事故，死亡人数绝不会超过35人，死亡人数绝对服从党性。如2011年7月23日温洲动车事故，官方死亡人数刚好35人。
 
-来源：[https://twitter.com/zerohedge/status/1347945130804846593](https://twitter.com/zerohedge/status/1347945130804846593)
-盖特链接：[https://gtv.org/getter/5ffa1ba587fabe2daf344efc](https://gtv.org/getter/5ffa1ba587fabe2daf344efc)
+（本文只代表作者个人观点）
 
-* * *
+**报道引用：**
 
-**【大选实况】1/9/2021 EST 11:59am Zerohedge推文： **
-
-“Blankfein（投行高盛前高管）说他会考虑加入川普政府”
-
-
-
-> "Blankfein said he’d consider joining the Trump administration" [https://t.co/SIMMTjg3Uj](https://t.co/SIMMTjg3Uj) [https://t.co/qaC9zQBX92](https://t.co/qaC9zQBX92)
-> — zerohedge (@zerohedge) [January 9, 2021](https://twitter.com/zerohedge/status/1347951181973356546?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/zerohedge/status/1347951181973356546](https://twitter.com/zerohedge/status/1347951181973356546)
-盖特链接：[https://gtv.org/getter/5ffa1d2087fabe2daf34503b](https://gtv.org/getter/5ffa1d2087fabe2daf34503b)
-
-* * *
-
-**【大选实况】1/9/2021 EST 7:40 AM Bradley Scott推文：**
-
-为什么Twitter会永久性地封杀世界上最被敬佩的人？
-
-
-
-> Why would Twitter permanently suspend the MOST ADMIRED man in the world? 🤔
-> — Bradley Scott 🙏🇺🇸 (@Hoosiers1986) [January 9, 2021](https://twitter.com/Hoosiers1986/status/1347870901686194177?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/hoosiers1986/status/1347870901686194177?s=21](https://twitter.com/hoosiers1986/status/1347870901686194177?s=21)
-盖特链接：[https://gtv.org/getter/5ffa1dce87fabe2daf3450df](https://gtv.org/getter/5ffa1dce87fabe2daf3450df)
-
-* * *
-
-**【大选实况】1/9/2012 EST 11:20 pm One American News推文：**
-
-朱利安尼说：川普总统应解密更多文件 – [https://www.oann.com/giuliani-president-trump-should-declassify-more-documents/](https://www.oann.com/giuliani-president-trump-should-declassify-more-documents/)
-
-
-
-> Giuliani: President Trump should declassify more documents – [https://t.co/93jVIiC2IB](https://t.co/93jVIiC2IB) [#OANN](https://twitter.com/hashtag/OANN?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/KHOiZrDKKA](https://t.co/KHOiZrDKKA)
-> — One America News (@OANN) [January 9, 2021](https://twitter.com/OANN/status/1347941323014172672?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/oann/status/1347941323014172672?s=21](https://twitter.com/oann/status/1347941323014172672?s=21)
-盖特链接：[https://gtv.org/getter/5ffa1ed587fabe2daf345189](https://gtv.org/getter/5ffa1ed587fabe2daf345189)
-
-* * *
-
-**【大选实况】1/9/2021 EST 11:37 am 纳瓦罗推文： **
-
-合谋的寡头们试图抹去美国宪法第一修正案。
-
-
-
-> Collusive oligopoly seeking to eradicate First Amendment of US Constitution. [https://t.co/7osZfjDdZi](https://t.co/7osZfjDdZi)
-> — Peter Navarro (@RealPNavarro) [January 9, 2021](https://twitter.com/RealPNavarro/status/1347945725116764163?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/realpnavarro/status/1347945725116764163?s=21](https://twitter.com/realpnavarro/status/1347945725116764163?s=21)
-盖特链接：[https://gtv.org/getter/5ffa209487fabe2daf3452cf](https://gtv.org/getter/5ffa209487fabe2daf3452cf)
-
-* * *
-
-**【大选实况】1/9/2021 EST 10:40 am Steve Cortes推文：**
-
-纳瓦罗刚刚在（班农的）战斗室总结了大科技公司寡头们合谋的事实，特别是推特，脸书和谷歌。
-
-
-
-> .⁦[@RealPNavarro](https://twitter.com/RealPNavarro?ref_src=twsrc%5Etfw)⁩ on War Room just summarized the facts of the collusive oligopoly of Big Tech, specifically Twitter, Facebook, and Google. [pic.twitter.com/ylVvrCMrDV](https://t.co/ylVvrCMrDV)
-> — Steve Cortes (@CortesSteve) [January 9, 2021](https://twitter.com/CortesSteve/status/1347931154524102659?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/cortessteve/status/1347931154524102659?s=21](https://twitter.com/cortessteve/status/1347931154524102659?s=21)
-盖特链接：[https://gtv.org/getter/5ffa212487fabe2daf345347](https://gtv.org/getter/5ffa212487fabe2daf345347)
-
-**By： 【秘密翻译组 G-Translators】**
-
-+2
+[**https://baijiahao.baidu.com/s?id=1688297399384964638HYPERLINK “https://baijiahao.baidu.com/s?id=1688297399384964638&wfr=spider&for=pc”&HYPERLINK “https://baijiahao.baidu.com/s?id=1688297399384964638&wfr=spider&for=pc”wfr=spiderHYPERLINK “https://baijiahao.baidu.com/s?id=1688297399384964638&wfr=spider&for=pc”&HYPERLINK “https://baijiahao.baidu.com/s?id=1688297399384964638&wfr=spider&for=pc”for=pc**](https://baijiahao.baidu.com/s?id=1688297399384964638&amp;wfr=spider&amp;for=pc)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/澳喜图标.png)
+0

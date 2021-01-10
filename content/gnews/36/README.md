@@ -1,15 +1,107 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班农战斗室WARROOM精选 628期 布莱恩谈维嘉诺大主教及其采访的重要性 他相信世界有股向善的力量 并看到正在被这巨大重置所威胁
-` 新闻译制组` [轉載自GNews](https://gnews.org/zh-hans/735524/)
+## 【大选推特/Parler实况】1/9/2021 大科技公司的清洗, 审查和滥用权力是荒唐的, 也是极其危险的&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/736161/)
 
-供稿：班农战斗室译制组
+**【大选实况】1/9/2021 美东时间9:54AM 克鲁兹 Ted Cruz发推： **
 
-一个人不想半途而废 但我确实这样想 你知道 这是需要行动果断的时刻 我们必须像你展现的裁剪的开头展示的那样 我们必须站出来 现在不是指望退缩的时候 而是站出来脱颖而出用你的比喻发言 光明之子  因为大段黑暗产生 只有一点诗意的时刻 只是太迫切和喜欢而不能概括 你知道 自由的力量将与某种极权主义交换 极权主义 就像一种整合的形式 我们不希望那样发生
+大科技公司的清洗、审查和滥用权力是荒唐的，也是极其危险的。 如果你同意科技公司目前的偏见（伊朗，好的；特朗普，坏的），问问自己，当你不同意时会发生什么？ 为什么少数硅谷亿万富翁要垄断政治言论
 
-布莱恩
 
-好的 这是个重要的采访 无疑的 为什么这是重要的 维加诺是重要的  他书写了美国 记入总统川普在选举之前 鼓励人们去投票 鼓励人们去捍卫美利坚共和国 他爱美利坚共和国 他相信世界有股向善的力量 然后他看到正在被这巨大重置所威胁 这使得维加诺是非常重要的人 因为你不能找到天主教领袖这样讲话 这是其一 其二 选举之后 他做了非常胆大的事 警告人们 需要调查这里大量舞弊情况 维加诺来自意大利 从中立的角度 说有大量的舞弊 而且能被证明 保持信念 继续战斗  会找出来的 这就使得维加诺是非常重要的人 他就像是 原谅我 一位美国教皇 正告诉美国人民关于精神意志 这使得他在这次采访非常非常有力量 非常重要 当你谈论维加诺的时候 我想到关于拉比 皮斯罗在年底 对美国人说关于美国人的犹太基督教风气 你看是同样的事 在讨论精神 我认为 两者框架 然后下降到 在这扔一些重锤 丽兹 我们带你进入下个对话 你可能对此有更好的视角 对我们来说 你一直都是所有的矛尖 好吧 给我们关于这个采访的看法 好的 史蒂夫 这是一个非凡的交流 从精神将军到站地将军到你自己 关于大觉醒的战斗 请示的真相 维加诺 我相信已经贯穿丽整个战斗 他联系了点点滴滴 拜登和全球独裁者之间 他给了我们战斗计划 令人震惊 然后他还为川普做了最后的论点
 
-0
+> Big Tech’s PURGE, censorship & abuse of power is absurd & profoundly dangerous.
+> 
+> If you agree w/ Tech’s current biases (Iran, good; Trump, bad), ask yourself, what happens when you disagree?
+> 
+> Why should a handful of Silicon Valley billionaires have a monopoly on political speech? [https://t.co/ehgVYtHX7H](https://t.co/ehgVYtHX7H)
+> — Ted Cruz (@tedcruz) [January 9, 2021](https://twitter.com/tedcruz/status/1347919674101657602?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/tedcruz/status/1347919674101657602](https://twitter.com/tedcruz/status/1347919674101657602)
+盖特链接：[https://gtv.org/getter/5ffa199587fabe2daf344d4b](https://gtv.org/getter/5ffa199587fabe2daf344d4b)
+
+* * *
+
+**【大选实况】1/9/2021 美东时间9:54AM 川普2020竞选团队高级顾问Steve Cortes发推：**
+
+YouTube禁止了班农的战斗室，因为它是最重要的直播节目。现在比以往任何时候都更重要的是要知晓史蒂夫·班农，Raheem Kassam，Jack Maxey，Greg\_Manz，以及其它了不起的节目上客人的见解。 请在这里观看： [pandemic.warroom.org](http://pandemic.warroom.org)
+
+
+
+> YouTube banned Bannon’s War Room because it’s the most consequential show on air. More important than ever to catch the insights of Steve, ⁦[@RaheemKassam](https://twitter.com/RaheemKassam?ref_src=twsrc%5Etfw)⁩, ⁦[@JackMaxey1](https://twitter.com/JackMaxey1?ref_src=twsrc%5Etfw)⁩, ⁦[@Greg\_Manz](https://twitter.com/Greg_Manz?ref_src=twsrc%5Etfw)⁩ & terrific guests.
+> 
+> Watch here:[https://t.co/7mpcpTEfhL](https://t.co/7mpcpTEfhL) [pic.twitter.com/Sa2AClq7KS](https://t.co/Sa2AClq7KS)
+> — Steve Cortes (@CortesSteve) [January 9, 2021](https://twitter.com/CortesSteve/status/1347919618246144001?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/cortessteve/status/1347919618246144001?s=12](https://twitter.com/cortessteve/status/1347919618246144001?s=12)
+盖特链接：[https://gtv.org/getter/5ffa114287fabe2daf34466](https://gtv.org/getter/5ffa114287fabe2daf344669)
+
+* * *
+
+**【大选实况】1/9/2021 美东时间 10:00AM 国务卿蓬佩奥发推： **
+
+巴黎协定是个骗局。对环境没有帮助，反而给世界上最大的污染者（中共国）一个通行证。川普政府永远不会蒙蔽美国人民，并假装一个坏的协议是一个好的协议。
+
+
+
+> The Paris Agreement is a fraud. Doesn't help the environment, gives world's biggest polluter (read: China) a pass. Trump Administration will never hoodwink the American people and pretend a bad deal is a good deal. [#TruthMatters](https://twitter.com/hashtag/TruthMatters?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/ZC2clgra4u](https://t.co/ZC2clgra4u)
+> — Secretary Pompeo (@SecPompeo) [January 9, 2021](https://twitter.com/SecPompeo/status/1347921145006317569?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1347921145006317569](https://twitter.com/SecPompeo/status/1347921145006317569)
+盖特链接：[https://gtv.org/getter/5ffa17b487fabe2daf344bc5](https://gtv.org/getter/5ffa17b487fabe2daf344bc5)
+
+* * *
+
+**【大选实况】1/9/2012 EST 10:15 pm 川普战斗室推文： **
+
+为什么Twitter对川普而不是对中国共产党进行新闻审查？
+
+
+
+> Why is Twitter censoring Trump, but not the Chinese Communist Party? [https://t.co/MVbPc7ApR0](https://t.co/MVbPc7ApR0)
+> — Trump War Room (@TrumpWarRoom) [January 9, 2021](https://twitter.com/TrumpWarRoom/status/1347924844646686723?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/trumpwarroom/status/1347924844646686723?s=21](https://twitter.com/trumpwarroom/status/1347924844646686723?s=21)
+盖特链接：[https://gtv.org/getter/5ffa175b87fabe2daf344b7c](https://gtv.org/getter/5ffa175b87fabe2daf344b7c)
+
+* * *
+
+**【大选实况】1/9/2021 美东时间 10:36AM 川普竞选团队高级顾问Steve Cortes 发推： **
+
+本周证明了第二修正案是多么的重要–因为人们的基本自由受到硅谷巨头的直接攻击，他们与两党滥用权力的建制派政客沆瀣一气，同时又受到偏见和腐败的媒体的煽风点火。
+
+
+
+> This week proved how crucial the Second Amendment is — as basic freedoms come under direct assault from Silicon Valley titans in cahoots with abusive establishment politicians (of both parties), cheered on by a biased & corrupt media.
+> — Steve Cortes (@CortesSteve) [January 9, 2021](https://twitter.com/CortesSteve/status/1347930229369663493?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/CortesSteve/status/1347930229369663493](https://twitter.com/CortesSteve/status/1347930229369663493)
+盖特链接：[https://gtv.org/getter/5ffa063b87fabe2daf343ecc](https://gtv.org/getter/5ffa063b87fabe2daf343ecc)
+
+* * *
+
+**【大选实况】1/9/2021 美东时间 10:58AM 国会议员Ken Buck 发推： **
+
+阻止谷歌和Facebook等大科技公司审查保守派的唯一办法就是控制他们的反竞争行为。 他们可以审查你，因为他们是垄断企业。
+
+
+
+> The only way to stop Big Tech companies like Google and Facebook from censoring conservatives is to rein in their anticompetitive behavior.
+> 
+> They can censor you because they are a monopoly.
+> — Congressman Ken Buck (@RepKenBuck) [January 9, 2021](https://twitter.com/RepKenBuck/status/1347935820108488706?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/RepKenBuck/status/1347935820108488706](https://twitter.com/RepKenBuck/status/1347935820108488706)
+盖特链接：[https://gtv.org/getter/5ffa053187fabe2daf343e2b](https://gtv.org/getter/5ffa053187fabe2daf343e2b)
+
+* * *
+
+**By： 【秘密翻译组 G-Translators】**
+
++1

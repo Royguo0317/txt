@@ -1,33 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】1/9/2021文贵盖特： 我们如何看待过去24小时发生的媒体封杀川普总统的这些事情
-` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/735453/)
+## 大批军队乔装打扮秘密进入北京，中南坑乱成一锅粥，上海蠢蠢欲动
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/735902/)
 
-制作： 【彩虹桥】
+新闻简述：郭先生在2021年1月5日的盖特视频中描述国内战友透露的重要信息：大批的军队乔装打扮从七个方向秘密进入北京；中南坑乱成一锅粥；中共过去这四个月经济全部拦腰斩；上海蠢蠢欲动准备螳螂捕蝉。
+视频来源：[https://gtv.org/getter/5ff4968787fabe2daf31075b](https://gtv.org/getter/5ff4968787fabe2daf31075b) (00:11-00:47, 01:41-03:41, 04:11-05:01)
+**中英文对照全文**
 
-尊敬的战友们好！1月9号你们健身了吗？传播CCP病毒？香港危机真相了吗？1月9号兄弟姐妹们，从昨天到今天，冰火两重天啊又是，很多人感觉到末日到来，我的天哪！都感觉到末日到来了，川普总统推特被封了，Facebook被封了，所有的极右派媒体全部完了，班农战斗室也被屏蔽了，我早就说过，它一定会发生的，一定会发生的。
+00:11-00:47
 
-这为啥你过去想灭掉人家230，是吧？你想把人家灭了，人家就不想灭你吗？人家灭你，你说人家不守法，你灭人家，你说我是守法，你站在对方想想，如果你是Twitter,你是YouTube，你会做啥？你一样会这么做。80~90%人都会这么做，川普总统上来干啥？先把它230 被它灭了，先把人家媒体给灭了，你先别说谁正义谁不正义，在你死我活的问题上，几乎大家不会考虑正义的，这是个基本的逻辑。没有人说因为正义我自杀了吧？然后认识到我非正义，我自杀了吧？天下没有这个道理的。
+It is such a mess. In Beijing, many fellow fighters suddenly disappeared. Then I found out what happened: some of our fellow fighters’ phones lost connection. Some emergency happened in Beijing. Yesterday, many troops in disguise secretly entered Beijing from the south, west, southeast, northeast, north, and northwest [of Beijing]. From seven different directions, many troops in disguise entered Beijing. What happened? What was going on?
 
-胜者王侯败者寇，有时候它有道理的。但是正义跟这个是最终的判决，在这个过程当中胜者王侯败者寇，那就是对的。这是共产党这么多年来玩的非常熟悉的手段，但是要记住，如果你是个有信仰的人，你相信正义，你相信邪恶最终要被正义打败。你就不会在乎这个过程。
+这真够乱的啊，这个北京啊咱们很多战友，突然间从昨天找不着了。后来我发现咋回事儿啊，咱们有些战友手机不能联系。北京出现了紧急情况。昨天，大批的军队秘密地乔装打扮进入北京，从南部、西部、东南角、东北角、北部、西北角，七个角七个部分（不确定是“七”否为口误还是战略）大量地军队乔装进入北京，发生啥事儿了？咋回事儿啊？
 
-这两天最多的词儿，从来没听说过，川普总统是最大的口炮，川普是个Loser,最大的Loser，川普是一个完完全全的弱夫，川普是个自恋狂，最大的自恋狂，川普是最无知的政治家，川普是个最疯狂的种族者…数不过来了，我大概数了数八、九个，这多了去了。
+01:41-03:41
 
-亲爱的兄弟姐妹们，很多人听了这话以后，哎..对呀，有点道理，但是我告诉所有跟我说对的人，我说我当年到日本，跟日本朋友去看日本的性表演，在舞台上，一男一女在表演着性能力，下面所有的人都是西服革履的，一进门都从行李包里拿出..那时行李包里都是文件夹，拿出拨浪鼓“啷…”在下面祝福、鼓劲儿，绝大多数人都嫌舞台上的人做爱时间太短，但是它还有个节目，你也可以上去表演，没人敢上去。后来我们知道，任何下面的人，它不能跟台上的那个所谓最后没坚持到最后的人，那个男人和那个女人，因为你根本不敢上那个台，你也没有机会上这个舞台。终生都没这个机会，你也没这个勇气，你也没那个能力，但是下面的人批评的人是多数，这个男的窝囊，再坚持10分钟，再坚持5分钟，你应该这个姿势你应该那个姿势，这就是真是..
+People from inside of China sent me a message, “Mr. Guo, could we show each other some grace? And about Lude, could you let him keep his mouth shut? We still have room [for negotiation]. We give each other some leeway.” It means that they are saving our face and we can still make peace with each other. However, I had no idea about what Lude had said. I immediately texted Lude, “What did you say, Lude? Tell me about it.” I said, “you are indeed making trouble for me, and I am cleaning it up for you.” I really didn’t know what he said. I really didn’t know. Of course, later I figured out from which channel Lude got the information. There was a fellow fighter that “betrayed” me and sent the information to Lude rather than me, which is outrageous.
 
-亲爱的兄弟姐妹们，全世界最紧张的人是谁啊？是美国有权利选票的天主教徒、基督教徒，和美国的所谓的Megod整个组织。是真正的知道真相的人，还真轮不到咱们去紧张去，这就跟日本看那个性表演、性功夫舞台一样，咱即没这个能力上这舞台表演，咱也没资格评价人家，咱来自于世界上最糟糕的国家，这边最糟糕的形式都比咱最好的情况好，这是一个，第二个还没到1月20号哪，还没到1月20号哪，咱就这样了，早乐必早衰，早悲必早哀。最起码的常识吧，
+这个国内今天有人给我发信息：“哎，郭先生，咱不能把事儿搞绝了啊。还有那个路波切，让他就别说啦、别说啦。我们还有空间啊，咱们都留着空间呐。” 意思还给我们留面子，还可以讲和啊。但是路德那边讲，我都不知道路德讲啥。后来我赶快发[信息]，我说：“路德，你讲啥啊，路德给我说一说。”我说：“你这真是，你惹麻烦七哥给你背锅。”我真不知道他讲啥，我真不知道。当然啦，后来我就知道路德是哪方面来的渠道啊。这个有战友“出卖”七哥，把这个情报给路德不给我，不像话。
 
-再一个我们现在不要把自己当成一个裁判者，我们不是这件事情的裁判者，也没这个能力、也不应该..从法理、从情理都不应该。更重要的事情，我认为这是上天送给我们爆料革命最大的礼物，大家觉得这个时候，全世界和美国人民，你最想的是谁？你最恨的是谁？最生谁的气？大家觉得这病毒就没了吗？大家觉得现在共产党就没事了吗？
+Well, I will not talk more about the domestic finance in China. For the economy, I will tell you a simple figure. Our fellow fighter in the Bureau of Statistics told me, “Brother Seven, you probably won’t believe at all about I’m gonna tell you.” He said that in the past 4 months every sector of the economy has declined by 50%. Bad debts in banks have increased by 50%, and that is on the top of the previous 40%. Fellow fighters, now in China, the bad debts in banks account for 65 to 70%. It is said that if the real estate collapses, everything will be over, and if the real estate doesn’t collapse, everything will still be over just at a slower pace.
 
-听说北京现在防斩首行动袭击列为第一级别，内部现在每天都所谓的换防，一天换好几次，从过去的12班，已经换成了现在24班、一小时一班，这已经到了这个程度了。中国的缺粮食还有擀面杖子经济，就变成真的了吗？美国现在就可以大量的印钞票了吗？太多了，我就不想多说了，还有这媒体..这媒体关掉以后，美国人就拉倒了？谁的媒体被关掉，未来这个被关掉的这个一定是赢家。
+但是呢，国内的金融我就不多说了。经济，大家我就告诉大家最简单的一个数字。统计局的战友告诉我说，他说：七哥可能你根本…我跟你说你都不相信。他说：过去这四个月，任何一样[经济]往下跌幅都是拦腰斩。银行的烂账在过去的40[%]基础上又拦腰斩。战友们，现在大家现在国内的银行烂账65 – 70[%]左右。说房地产要倒，一切全完。房地产不倒，一切就是慢点完。
 
-这个时候，亲爱的兄弟姐妹们，拼的不是耐力，拼的也不是勇气，拼的也不是你的正义，拼的是什么？战友们现在？最关键的时候，学学越王勾践，任何懂得越王勾践这个历史故事的人都记住，越王勾践最后赢在了哪里？在那500个神童吗？是他身边的几个大臣吗？是范蠡吗？还是他牺牲了耐力吗？都不是。是对方，是薄皮，是真正的吴王的昏君，还有他错误的决定，走向了黄泉路，否则不可能的。
+It is said that the Zhongnan Pit is in a mess: it ordered some data two hours ago, then after two hours it called to use some other data, and after another two hours, the big head (President Xi) would say, “The data are not good and need to be tweaked.” Everyone is at a loss. The rolling pin [fake economy] has been used so frequently that everyone is in panic and not even knowing how to use it anymore.
 
-现在共产党的内乱，和共产党内部的永远无法治愈的经济癌症、政治癌症和整个14亿人民张着嘴要吃饭的，永远填不满的这种怨恨，解决不了的怨恨，还有世界上最可怕的病毒，兄弟姐妹们，一个大选就让我们大家这个样子，我们未来甭说代表14亿中国人了，代表14个中国人咱都不配。
+说现在整个中南坑乱得是一锅粥。说两小时以前下的命令要这个数据，两小时以后打电话要用这个数据，再过两小时说大脑袋说啦，这数据不行，得改这数据。大家无所适从，这擀面杖子老用啊，就用慌了，不知道咋用啦。
 
-历史永远是我们学习的一面镜子，更重要的事情我们自己，我们自己要知己知彼，但是现在看到的是，很多人自己是大头症、大鹰症，也不知彼，想当然的认为对方那样，现在所有的信息都是来自于媒体，你所认知的媒体和手机，我可以告诉大家，不管这个媒体有多厉害，你所知道的事实和真相，是极小极小的，跟你原来不知道它是很大的，和你真相的需要和所理解的，和你做出的判断，所需要的信息差距是很大的，恰恰这几天看到的所谓的9个川普的最最最..看到的人心，看到了美国在这个时候，美国这个国家这些年的豪华的生活，和在全世界当霸主的那种傲慢，和被共产党蓝金黄以后的政治投机，甚至对信仰的丢失，这对美国难道不是个审判吗？这对美国难道不是个大审判吗？这难道不是个轮回吗？
+But the Whistleblower Movement doesn’t want the Chinese people to live in dire straits. The Whistleblower Movement is happy about this [situation] because the mess of the CCP is the opportunity for us.
 
-如果川普总统真是那9个之最的话，也是对美国最大的惩罚，如果不是的话，那是给美国的机会，兄弟姐妹们，当你了解这个的时候，你就会知道这个世界上，什么人才会是个赢家，什么人..这个赢家的根本在哪里？我们的对手、我们的敌人是共产党，共产党现在是什么情况？用自己的脑子，用自己的心，但凡想一想，今天美国的觉醒才是我们爆料革命最大的机会，但是永远记住，灭共没你不行！灭共靠中国人，以美灭共、以共灭共、以法灭共，都是战略战术。最终靠我们自己，咱走着看，文贵会给你们带来意想不到的礼物，谢谢！世界上最可悲的东西，就叫失望、放弃。永远远离这两个字，千万别让自己倒在这两个字的霉，我就不说了，明天9:30见，明天上午9:30，乱聊直播，亲爱的兄弟姐妹们，很多战友给我发信息，没有时间回，请原谅！太多太多了，明天乱聊吧，兄弟姐妹们，一切都已经开始！勿忘香港！
+但是爆料革命不需要中国人活在水生火热之中，但是爆料革命俺喜欢、俺高兴、俺愿意。共产党乱不就咱的机会嘛。
 
-0
+04:11-05:01
+
+With the limited ability, the CCP doesn’t know that God’s will is indeed standing with the Whistleblower Movement. So many people suddenly got sick, and so many people were killed. Now it is really chaotic. I heard that Shanghai is now waiting for the right moment to take actions. Now, there are people who want to be the mantis…catching the cicada while the oriole is hiding from behind, but the oriole is not necessarily the winner. After I mentioned this yesterday, about the “mantis catching snake”, “mantis catching rat” and “mantis catching bird”, our fellow fighters were really awesome, they figured it all out. It is not a mantis trying to stop a chariot or a mantis trying to stop it using its arm. The mantis ought to eat the snake, then whose animal zodiac is snake? Whose animal zodiac is snake? Whose animal zodiac is rat? I asked you to look into it, but some of you didn’t get it.
+
+共产党那点本事，它不知道天意啊真的站在爆料革命这边。这么多人突然有病啦，这么[多]人被弄死啦。现在真是乱啦。听说上海现在啊，蠢蠢欲动啊。现在有些人想当螳螂…捕蝉黄雀在后，黄雀不一定是赢家。我昨天我推荐以后，战友们螳螂捕蛇、螳螂捕老鼠、螳螂捕鸟。战友们就找到啦，战友你们真厉害。不是螳臂挡车，也不是“螳螂挡臂”。螳螂还得吃蛇，谁属蛇的呀？谁属蛇的呀？谁属鼠的呀？七哥让你们看，你们都没明白啥意思呀。
+
+翻译：【Cyndi】校对：【BruhM】【Isaiah4031】字幕：【Embracer牙牙】听写：【Embracer牙牙】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+
+喜马拉雅玫瑰园小队出品
+
+*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
+
++3

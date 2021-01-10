@@ -1,106 +1,124 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/9/2021 大科技公司的清洗, 审查和滥用权力是荒唐的, 也是极其危险的&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/736161/)
+## 美国防部关于1月6日华盛顿特区宪法第一修正案游行的时间表备忘录【全文翻译】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/736676/)
 
-**【大选实况】1/9/2021 美东时间9:54AM 克鲁兹 Ted Cruz发推： **
+## **【[英文原文链接](https://media.defense.gov/2021/Jan/08/2002562063/-1/-1/0/PLANNING-AND-EXECUTION-TIMELINE-FOR-THE-NATIONAL-GUARDS-INVOLVEMENT-IN-THE-JANUARY-6-2021-FIRST-AMENDMENT-PROTESTS-IN-WASHINGTON-DC.PDF)】【[中文翻译](https://gnews.org/wp-content/uploads/2021/01/21年1月6日国防部文件.pdf)】**
 
-大科技公司的清洗、审查和滥用权力是荒唐的，也是极其危险的。 如果你同意科技公司目前的偏见（伊朗，好的；特朗普，坏的），问问自己，当你不同意时会发生什么？ 为什么少数硅谷亿万富翁要垄断政治言论
+## **国防部关于1月6日华盛顿特区宪法第一修正案游行的时间表备忘录**
 
+国防部长办公室
+国防部五角大楼1000号
+华盛顿特区
+邮编：20301-1000
 
+备忘录供存档
+日期：2021年1月8日
 
-> Big Tech’s PURGE, censorship & abuse of power is absurd & profoundly dangerous.
-> 
-> If you agree w/ Tech’s current biases (Iran, good; Trump, bad), ask yourself, what happens when you disagree?
-> 
-> Why should a handful of Silicon Valley billionaires have a monopoly on political speech? [https://t.co/ehgVYtHX7H](https://t.co/ehgVYtHX7H)
-> — Ted Cruz (@tedcruz) [January 9, 2021](https://twitter.com/tedcruz/status/1347919674101657602?ref_src=twsrc%5Etfw)
+**主题：2020年12月31日 – 2021年1月6日时间表**
 
+本备忘录之目的是为了记录”华盛顿特区国民警卫队”参与2021年1月6日在华盛顿举行的”就《宪法第一修正案》抗议活动”的计划和执行时间表。
 
-来源：[https://twitter.com/tedcruz/status/1347919674101657602](https://twitter.com/tedcruz/status/1347919674101657602)
-盖特链接：[https://gtv.org/getter/5ffa199587fabe2daf344d4b](https://gtv.org/getter/5ffa199587fabe2daf344d4b)
+**时间表如下：**
 
-* * *
+**2020年12月31日，星期四（新年前夜）**
 
-**【大选实况】1/9/2021 美东时间9:54AM 川普2020竞选团队高级顾问Steve Cortes发推：**
-
-YouTube禁止了班农的战斗室，因为它是最重要的直播节目。现在比以往任何时候都更重要的是要知晓史蒂夫·班农，Raheem Kassam，Jack Maxey，Greg\_Manz，以及其它了不起的节目上客人的见解。 请在这里观看： [pandemic.warroom.org](http://pandemic.warroom.org)
-
+- （华盛顿特区）市长Muriel Bowser和国土安全和紧急事务管理局长克里斯托弗·罗德里格斯博士(Dr.Christopher Rodriguez)提交了一份书面请求，请求华盛顿特区国民警卫队（DCNG）向华盛顿特区警察局（MPD）和消防与紧急服务局提供支援。
 
 
-> YouTube banned Bannon’s War Room because it’s the most consequential show on air. More important than ever to catch the insights of Steve, ⁦[@RaheemKassam](https://twitter.com/RaheemKassam?ref_src=twsrc%5Etfw)⁩, ⁦[@JackMaxey1](https://twitter.com/JackMaxey1?ref_src=twsrc%5Etfw)⁩, ⁦[@Greg\_Manz](https://twitter.com/Greg_Manz?ref_src=twsrc%5Etfw)⁩ & terrific guests.
-> 
-> Watch here:[https://t.co/7mpcpTEfhL](https://t.co/7mpcpTEfhL) [pic.twitter.com/Sa2AClq7KS](https://t.co/Sa2AClq7KS)
-> — Steve Cortes (@CortesSteve) [January 9, 2021](https://twitter.com/CortesSteve/status/1347919618246144001?ref_src=twsrc%5Etfw)
+**2021年1月2日，星期六**
+
+- 代理国防部长（A/SD）与参谋长联席会议主席（CJCS）和陆军部长（SECARMY）就市长的书面请求进行讨论。
 
 
-来源：[https://twitter.com/cortessteve/status/1347919618246144001?s=12](https://twitter.com/cortessteve/status/1347919618246144001?s=12)
-盖特链接：[https://gtv.org/getter/5ffa114287fabe2daf34466](https://gtv.org/getter/5ffa114287fabe2daf344669)
+**2021年1月3日，星期日**
 
-* * *
-
-**【大选实况】1/9/2021 美东时间 10:00AM 国务卿蓬佩奥发推： **
-
-巴黎协定是个骗局。对环境没有帮助，反而给世界上最大的污染者（中共国）一个通行证。川普政府永远不会蒙蔽美国人民，并假装一个坏的协议是一个好的协议。
+- 国防部与美国国会山警察（USCP)确认不需要国防部的协助。
 
 
-
-> The Paris Agreement is a fraud. Doesn't help the environment, gives world's biggest polluter (read: China) a pass. Trump Administration will never hoodwink the American people and pretend a bad deal is a good deal. [#TruthMatters](https://twitter.com/hashtag/TruthMatters?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/ZC2clgra4u](https://t.co/ZC2clgra4u)
-> — Secretary Pompeo (@SecPompeo) [January 9, 2021](https://twitter.com/SecPompeo/status/1347921145006317569?ref_src=twsrc%5Etfw)
+- A/SD（代理国防部长）与挑选的内阁成员就国防部对执法机构的支援及国防部提供支援的潜在要求进行讨论。
 
 
-来源：[https://twitter.com/SecPompeo/status/1347921145006317569](https://twitter.com/SecPompeo/status/1347921145006317569)
-盖特链接：[https://gtv.org/getter/5ffa17b487fabe2daf344bc5](https://gtv.org/getter/5ffa17b487fabe2daf344bc5)
-
-* * *
-
-**【大选实况】1/9/2012 EST 10:15 pm 川普战斗室推文： **
-
-为什么Twitter对川普而不是对中国共产党进行新闻审查？
+- A/SD（代理国防部长）和CJCS（参谋长联席会议主席）与总统开会。总统同意启动国民警卫队以对执法机构进行支援。
 
 
+**2021年1月4日，星期一**
 
-> Why is Twitter censoring Trump, but not the Chinese Communist Party? [https://t.co/MVbPc7ApR0](https://t.co/MVbPc7ApR0)
-> — Trump War Room (@TrumpWarRoom) [January 9, 2021](https://twitter.com/TrumpWarRoom/status/1347924844646686723?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/trumpwarroom/status/1347924844646686723?s=21](https://twitter.com/trumpwarroom/status/1347924844646686723?s=21)
-盖特链接：[https://gtv.org/getter/5ffa175b87fabe2daf344b7c](https://gtv.org/getter/5ffa175b87fabe2daf344b7c)
-
-* * *
-
-**【大选实况】1/9/2021 美东时间 10:36AM 川普竞选团队高级顾问Steve Cortes 发推： **
-
-本周证明了第二修正案是多么的重要–因为人们的基本自由受到硅谷巨头的直接攻击，他们与两党滥用权力的建制派政客沆瀣一气，同时又受到偏见和腐败的媒体的煽风点火。
+- USCP（国会山警察）在与SECARMY（陆军部长）的电话会中确认无需国防部的支持。
 
 
-
-> This week proved how crucial the Second Amendment is — as basic freedoms come under direct assault from Silicon Valley titans in cahoots with abusive establishment politicians (of both parties), cheered on by a biased & corrupt media.
-> — Steve Cortes (@CortesSteve) [January 9, 2021](https://twitter.com/CortesSteve/status/1347930229369663493?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/CortesSteve/status/1347930229369663493](https://twitter.com/CortesSteve/status/1347930229369663493)
-盖特链接：[https://gtv.org/getter/5ffa063b87fabe2daf343ecc](https://gtv.org/getter/5ffa063b87fabe2daf343ecc)
-
-* * *
-
-**【大选实况】1/9/2021 美东时间 10:58AM 国会议员Ken Buck 发推： **
-
-阻止谷歌和Facebook等大科技公司审查保守派的唯一办法就是控制他们的反竞争行为。 他们可以审查你，因为他们是垄断企业。
+- A/SD（代理国防部长）在与CJCS（参谋长联席会议主席）、SECARMY（陆军部长）和国防部总法律顾问（GC）商榷后，审议了国防部准备向地方政府提供支持的计划（前提是若地方政府要求国防部提供支持），并批准启动340名DCNG（华盛顿国民警卫队）成员已应对Bowser市长的（书面）请求。
+    - 应Bowser市长要求提供的支持包括：
+交通管制点：90人（180总人次/2班）；地铁站支持：24人（48总人次/ 2班）；大规模杀伤性武器民用支持小组：20人；和内部指挥控制人员：52人。
+    - A/SD（代理国防部长）还授权SECARMY（陆军部长）派遣一支快速应急部队（40人，在安德鲁斯联合基地待命），如果地方行政部门请求额外支援的话。
 
 
+**2021年1月5日，星期二**
 
-> The only way to stop Big Tech companies like Google and Facebook from censoring conservatives is to rein in their anticompetitive behavior.
-> 
-> They can censor you because they are a monopoly.
-> — Congressman Ken Buck (@RepKenBuck) [January 9, 2021](https://twitter.com/RepKenBuck/status/1347935820108488706?ref_src=twsrc%5Etfw)
+- Bowser 市长向代理总检察长、A/SD（代理国防部长）和SECARMY（陆军部长）发函，确认华盛顿特区不需要额外的支援。
 
 
-来源：[https://twitter.com/RepKenBuck/status/1347935820108488706](https://twitter.com/RepKenBuck/status/1347935820108488706)
-盖特链接：[https://gtv.org/getter/5ffa053187fabe2daf343e2b](https://gtv.org/getter/5ffa053187fabe2daf343e2b)
+- 255 名DCNG（华盛顿特区国民警卫）抵达华盛顿特区，并开始与当地执法人员一起管理交通控制点。
 
-* * *
+
+**2021 年 1 月 6 日，星期三**
+
+0830: A/SD （代理国防部长）和CJCS （参谋长联席会议主席）审查了国防部支援执法部门的计划，并要求对国防部的应急反应方案进行演练。
+
+1130: A/SD（代理国防部长）参加了国防部就应急反应方案的沙盘推演。
+
+1305: A/SD（代理国防部长）收到关于示威者前往美国国会大厦的公开来源报告。
+
+1326: USCP（国会山警察）下令疏散国会大厦。
+
+1334: SECARMY（陆军部长）与 Bowser 市长通话，Bowser 市长在电话中请求增派人数不详的部队支援。
+
+1349: DCNG（华盛顿特区国民警卫）总司令 Walker 与USCP（国会山警察）局长 Sund 通电话。Sund 局长表达了立即要求援助的请求。
+
+1422：SECARMY （陆军部长）与华盛顿特区市长、副市长、Rodriguez 博士和 MPD（华盛顿特区警察局）管理层通电话，讨论当前形势，并请求DCNG（华盛顿特区国民警卫队）提供更多的支援。
+
+1430: A/SD（代理国防部长）、CJCS（参谋长联席会议主席）和SECARMY （陆军部长）开会讨论USCP（国会山警察）和 Bowser 市长的请求。
+
+1500: A/SD（代理国防部长）确定需要DCNG （特区国民警卫队）的所有可用部队来加强MPD（华盛顿特区警察局）和国会山警察的阵地，以协助重建国会大厦安保的工作。
+
+15:00: SECARMY（陆军部长）指示DCNG（华盛顿特区国民警卫队）准备将现有的警卫人员从军械库（Armory）调往国会山大厦，同时寻求A/SD （代理国防部长）的正式批准进行部署。DCNG （特区国民警卫队）准备调动 150 名警员支持USCP（国会山警察），此行动待A/SD（代理国防部长）的批准。
+
+1504: 根据CJCS（参谋长联席会议主席）、国防部总法律顾问、国民警卫局局长(CNGB)、SECARMY（陆军部长）和陆军参谋长的意见，A/SD（代理国防部长）口头批准DCNG（特区国民警卫队）全面启动 (共1100人)，支援MPD（华盛顿特区警察局）。A/SD （代理国防部长）批准后，陆军部长 McCarthy 立即指示DCNG（特区国民警卫队）进行全面调动。
+
+作为回应，DCNG （特区国民警卫队）将所有士兵从地铁站的位置重新部署，并将所有可用的非支援和非指挥控制人员重新部署，以支援MPD（华盛顿特区警察局）。DCNG（特区国民警卫队）开始全面调动部署。
+
+1519：SECARMY （陆军部长）与 舒默（Schumer） 参议员和佩洛西议长通话，讨论 Bowser 市长所提请求的性质。SECARMY （陆军部长）解释说，A/SD（代理国防部长）已批准DCNG（特区国民警卫队）的全面调动部署。
+
+1526： SECARMY （陆军部长）与Bowser市长和MPD（华盛顿特区警察局）局长通话，表示并未拒绝他们的请求，并转达了A/SD（代理国防部长）已批准全面启动DCNG（华盛顿国民警卫队）。
+
+1546：CNGB（国家警卫队局长）与弗吉尼亚州自卫队副官长（TAG）通电话讨论前往华盛顿特区进行支援。TAG说，州长已于15:32分下令调动了部队。
+
+1548：陆军部长（SECARMY）离开五角大楼前往MPD（华盛顿特区警察局）总部。
+
+1555：CNGB（国家警卫队局长）与马里兰州警卫队副官长（TAG）通电话，就支援华盛顿特区进行讨论。TAG说，州长已下令调动快速应急部队。TAG汇报说，州长已于15:47分调动了快速应急部队。
+
+1610：SECARMY（陆军部长）抵达MPD（华盛顿特区警察局）总部。
+
+1618：A/SD（代理国防部长）、CJCS（参谋长联席会议主席）、SECARMY（陆军部长）、及CNGB（美国国家警卫局局长）就从外州向本地区调动国民警卫队（NG）的可行性进行讨论。A/SD（代理国防部长）就集结外州的国民警卫队并准备派往华盛顿特区下达了语音命令。
+
+1632：A/SD（代理国防部长）下达口头指令，将DCNG（华盛顿国家自卫队）重新部署，以便他们可以支援USCP（国会山警察）、以便在华盛顿特区搭起隔离围栏并开展清场行动。SECARMY（陆军部长）将发表有关支援的公开声明。
+
+1640：SECARMY（陆军部长）与马里兰州州长通电话。州长将派遣马里兰州警卫队（NG）前往华盛顿特区，预计2021年1月7日抵达。
+
+1702：DCNG（华盛顿国民自卫队）第154分队从华盛顿特区军械库（Armory）出发前往支援USCP（国会山警察）。1740分到达国会山，与USCP（国会山警察）一起宣誓就位，开始增援行动。
+
+1745：A/SD（代理国防部长）签署了集结外州自卫队（NG）的正式命令，并下达增援USCP（国会山警察）部署行动的语音指令。
+
+1814：USCP（国会山警察）、MPD（华盛顿特区警察局）及DCNG（华盛顿特区国民警卫队）成功地在美国国会山西侧安装了隔离围栏。
+
+1936：A/SD（代理国防部长）下达租赁围栏的语音命令，以支持USCP（国会山警察）对国会山大厦的安保工作。
+
+2000：USCP（国会山警察）宣布国会山大厦安全了。
+
+David S. Soldow
+美国海军上校
+国防部行政秘书
 
 **By： 【秘密翻译组 G-Translators】**
 

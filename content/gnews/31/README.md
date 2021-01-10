@@ -1,25 +1,95 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】1/9/2021文贵盖特： 第二次..再次集中回答国内很多战友的一些问题…
-` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/735671/)
+## 【大选推特/Parler实况】1/9/2021 美国国防部把1月6日定性为第一修正案的抗议, 而不是暴乱&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/736281/)
 
-制作： 【彩虹桥】
+**【大选实况】1/9/2021 EST 11:23 am Jack Maxey推文：**
 
-兄弟姐妹好！刚刚我发出去的健完身跟你们说的，九个最窝囊的的川普总统以后的视频，冲了个凉，我刚下来，现在你看我穿的是，咱们的..就那天展示的郭战装的那个，看到没有..看看这个..咱们那天就是《我是音雄》的战友们就得到了就是这个战装。真是太棒了，你看它是里外夹层的，非常的暖呼，非常的暖呼，两层，非常的舒服、非常的酷，看到的人都喜欢得不得了啊。
+从十月开始：@jack将这个故事标记为虚假信息，并通过 @JohnBrennan和其他人散布虚假信息。 看看这个清单，这些白痴们要对你们大家的安全负责。 #NoJusticeNoPeace （没有正义就没有和平）
+#WarRoomPandemic（疫情大流行战斗室） 
+刊登亨特·拜登的新闻链接：[https://www.politico.com/news/2020/10/19/hunter-biden-story-russian-disinfo-430276](https://www.politico.com/news/2020/10/19/hunter-biden-story-russian-disinfo-430276)
 
-我还有两件事没给大家说，就是这两天啊咱们真是看到了我们战友伟大的力量，特别是国内的战友，国内的战友现在是处在..真的是各种威胁之中，我们海外的战友要跟国内的战友比，我们就天天磕头感谢上天吧，特别是河北、大连、沈阳的战友，现在看到很多家人、亲人，都染上了共产党的ccp病毒，我再次给大家说，所有国内的战友们互相之间你们能联系的，能互相帮助的一定要帮助，真的苦日子还没来呢，这个病毒的灾难还没开始呢，我有些话真是不敢直接说，毕竟在公众场合、媒体，你们会明白的。过去一年证明给你们看了，国内战友们，包括所有相信文贵的，朋友、亲人、家人，要相信我说的话，2021年比2020年要糟糕的多的多的多，这是一个。
 
-另外一个兄弟姐妹们，我要给大家说的，关于国内的经济情况和房地产，兄弟姐妹们，共产党的卖地经济，房地产经济，还有一个这种共产党的完全就是依靠一年1000多亿在美国搞的那个贸易经济，还有国内的卖地经济，绝对结束了。所以说在国内今年粮食和生存，还有一个生存的环境是你最重要考虑的，你不一定要相信文贵，你在你合适的能力下，你要做一个妥善的安排，很多战友给我发来信息问我，我没法一一给你回，也不应该一一给你回，因为每个人的整个的你所处的环境不同，但有一样是同的，共产党这个所谓绑架的中国，将走向灾难的灾难。
 
-今年如果灭了共，中国人还能有好日子过，如果不灭了共，那中国人民真的是过着猪狗不如的日子，这不是吓唬大家，希望兄弟姐妹们，我希望这种事情说的都是错的，因为错的对战友们对同胞们更好，但是大家要记住，我们毕竟要防范嘛，爆料革命、新中国联邦，就是让中国人过上安全的、体面的、法治、信仰、自由独立的生活，更重要是唯真不破，所以我说我认为是真的话，但是供大家参考。国内的经济、地产、贸易，一塌糊涂，你自己有感受，二，病毒决不可小觑，这是天大的事，所有这两样加在一起，比所有的一切威胁都大，永远要记住，灭共是我们的终极目标，让大家在力所能及可承受的范围内，再灭共。你活下去再灭共，你都活不下去，你咋灭共啊兄弟姐妹们？
+> FROM OCTOBER: When will [@jack](https://twitter.com/jack?ref_src=twsrc%5Etfw) mark this story as disinformation and de platform [@JohnBrennan](https://twitter.com/JohnBrennan?ref_src=twsrc%5Etfw) and others, for spreading disinformation. Read the list, these morons were responsible for your safety. [#NoJusticeNoPeace](https://twitter.com/hashtag/NoJusticeNoPeace?src=hash&amp;ref_src=twsrc%5Etfw) [#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/6VwyxSLE4J](https://t.co/6VwyxSLE4J)
+> — Jack Maxey (@JackMaxey1) [January 9, 2021](https://twitter.com/JackMaxey1/status/1347942004676849664?ref_src=twsrc%5Etfw)
 
-这个世界上最后强大的一定是美国，一定是美国。特别到了西方文明国家的战友们，撑住..撑住..撑住..珍惜现在安全、自由的、法制的环境，跟国内同胞比我们每一分钟、每一秒钟都要充满着感恩和感激，还有一个，要永远记住，中国人的事最终要中国人解决，就是以共灭共，中国人灭共，爆料革命灭共，这是核心的主题，永远不要忘了，兄弟姐妹们一切都已经开始，没有任何人可以停下，有更多选择吗？我们只有灭共。只有假灭共的人，你现在可以做任何选择，但是最后你也没选择，就这么简单。
 
-所以说..我一会还要出去见个人去，我要跟兄弟姐妹们要说的，今天所有你看到是这些情况，它发生的都是再正常不过的，都在自然和逻辑法律之中。因为共产党的存在和共产党的邪恶，和一个共产党绑架了一个14年是中国人力量，他能达到今天这种坏的这种结果，他太正常不过了。能让它维持政权的只有两条，中国人的无知和中国人能维持下去的经济，随着爆料革命和新中国联邦，中国人越来越多人能开智，包括病毒，包括现在病毒下影响的中国经济，这一切一切，它共产党它是无法解决的，经济持续日下，最后金融、银行、经济大崩盘，地产大崩盘，那国内…就是美国也不可能给你印几十万亿美元给你去，这是基本的常识嘛。
+来源：[https://twitter.com/jackmaxey1/status/1347942004676849664?s=21](https://twitter.com/jackmaxey1/status/1347942004676849664?s=21)
+盖特链接：[https://gtv.org/getter/5ffa232787fabe2daf34552b](https://gtv.org/getter/5ffa232787fabe2daf34552b)
 
-另外一个这个病毒事件，任何人都不可能，代表共产党说没事了，拉倒了，没有一个人，甭说美国，十个美国它也不敢，持续在病，持续在死人，谁有办法解决？兄弟姐们们？是不是？所以说国内的战友们给我发的这些信息呀，我刚才又搂了一遍，所有的关于国内的信息，我这两条建议希望大家务必珍惜，务必珍惜、务必小心。
+* * *
 
-另外一个咱们G系列的战友，所有这些发生都是对G系列最好的，因为媒体、社交媒体整个大整合，一定大整合，永远不可能是一级说了算。这是在西方永远不可能是一级，不能是一级就会诞生另外一级，但是也可是我们这一级，也可能是我们就是最重要的，这两集中间的最关键最受利的那一级，兄弟姐妹们，利益上我们是最大受益者，灭共事业上，我们会有奇招，会有奇迹给大家，走着看..
+**【大选实况】1/9/2021 EST 4:00pm ZeroHedge推文：**
 
-+1
+\*蓬佩奥: 美国解除对台（台湾）关系的限制 
+\*蓬佩奥: 美国废除所有与台湾进行联系的指导性意见
+
+
+
+> \*U.S. TO LIFT RESTRICTIONS ON HOW IT DEALS WITH TAIWAN: POMPEO
+> 
+> \*U.S. TO SCRAP ALL 'CONTACT GUIDELINES' WITH TAIWAN: POMPEO
+> — zerohedge (@zerohedge) [January 9, 2021](https://twitter.com/zerohedge/status/1348011751141478400?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/zerohedge/status/1348011751141478400](https://twitter.com/zerohedge/status/1348011751141478400)
+盖特链接：[https://gtv.org/getter/5ffa256787fabe2daf345752](https://gtv.org/getter/5ffa256787fabe2daf345752)
+
+* * *
+
+**【大选实况】1/9/2012 EST 9:57 am 国会山报推文：**
+
+参议院共和党领导小组成员：弹劾川普总统“不会发生” [http://hill.cm/iyOtpNA](http://hill.cm/iyOtpNA)
+
+
+
+> Member of Senate GOP leadership: Impeaching Trump "not going to happen" [https://t.co/f2DSkA9K7v](https://t.co/f2DSkA9K7v) [pic.twitter.com/Uf2y6NAYqr](https://t.co/Uf2y6NAYqr)
+> — The Hill (@thehill) [January 9, 2021](https://twitter.com/thehill/status/1347920333249114120?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/thehill/status/1347920333249114120](https://twitter.com/thehill/status/1347920333249114120)
+盖特链接：[https://gtv.org/getter/5ff9d94b87fabe2daf342072](https://gtv.org/getter/5ff9d94b87fabe2daf342072)
+
+* * *
+
+**【大选实况】1/9/2012 EST 9:16 am 专栏作家章家敦 推文：**
+
+中共国制造产品的销售链中的每一方均应对使用强迫劳动或奴役劳动承担刑事责任。如果不遵守，应承担“无过错责任”。罚款和监禁的处罚都应从严。
+
+
+
+> Every party in the chain of sale of [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)-made products should be held criminally liable for the use of forced or slave labor. There should be “strict liability” for failing to comply. The penalties—both fines and imprisonment—should be severe. [https://t.co/NXgpINnngy](https://t.co/NXgpINnngy)
+> — Gordon G. Chang (@GordonGChang) [January 9, 2021](https://twitter.com/GordonGChang/status/1347910096362332163?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/GordonGChang/status/1347910096362332163](https://twitter.com/GordonGChang/status/1347910096362332163)
+盖特链接：[https://gtv.org/getter/5ff9da0287fabe2daf3420f2](https://gtv.org/getter/5ff9da0287fabe2daf3420f2)
+
+* * *
+
+**【大选实况】1/9/2021 EST 4:53 pm Rohan O’Handley的推文： **
+
+如果他们可以抹去总统的痕迹，他们也可以清除其他任何人。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/d49bc32bd673cdf463a7f433585e282b.png)推文已被删除
+盖特链接：[https://gtv.org/getter/5ffa2fba87fabe2daf34608e](https://gtv.org/getter/5ffa2fba87fabe2daf34608e)
+
+* * *
+
+**【大选实况】1/9/2021 EST 6:21 PM 推友推文：**
+
+美国国防部把1月6日定性为第一修正案的抗议，而不是暴乱。
+
+
+
+> 美国国防部把1月6日定性为第一修正案的抗议，而不是暴乱The Defense Department is referring to Wednesday’s pro-Trump riot as “the January 6, 2021 1st Amendment Protests.” [pic.twitter.com/swE4raYiXL](https://t.co/swE4raYiXL)
+> — 老徐 (@taoxu1972) [January 9, 2021](https://twitter.com/taoxu1972/status/1348047240225550340?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/taoxu1972/status/1348047240225550340](https://twitter.com/taoxu1972/status/1348047240225550340)
+盖特链接：[https://gtv.org/getter/5ffa4a3a87fabe2daf347c41](https://gtv.org/getter/5ffa4a3a87fabe2daf347c41)
+
+**By： 【秘密翻译组 G-Translators】**
+
+0
