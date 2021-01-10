@@ -1,97 +1,82 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/9/2021 合谋的寡头们试图抹去美国宪法第一修正案&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/736269/)
+## 【大选推特/Parler实况】1/9/2021 如果总统选择向全国讲话，他将在他选择的时候做&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/737179/)
 
-**【大选实况】1/9/2021 EST 11:35am Zerohedge推文：**
+**【大选实时报】1/9/2021 美东时间 2:24PM Chuck Grassley发推：**
 
-麦康奈尔阐述了参议院如何进行第二次弹劾
-
-
-
-> McConnell Lays Out How Second Impeachment Would Play Out In Senate [https://t.co/CWTS75hdNL](https://t.co/CWTS75hdNL)
-> — zerohedge (@zerohedge) [January 9, 2021](https://twitter.com/zerohedge/status/1347945130804846593?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/zerohedge/status/1347945130804846593](https://twitter.com/zerohedge/status/1347945130804846593)
-盖特链接：[https://gtv.org/getter/5ffa1ba587fabe2daf344efc](https://gtv.org/getter/5ffa1ba587fabe2daf344efc)
-
-* * *
-
-**【大选实况】1/9/2021 EST 11:59am Zerohedge推文： **
-
-“Blankfein（投行高盛前高管）说他会考虑加入川普政府”
+我收到一份令人不安的报告，称爱荷华州民主党昨天收到了死亡威胁。这样的威胁和暴力是不可接受的。我们都是美国人，在这个困难时期，我们必须成为上帝之下的一个国家。爱你的邻居！! 評：美国的共和党和民主党是沒有明確的分界的，恐嚇的对象不会只针对特定政党人士，唯有消灭潜在幕后的黑手，方能获得真正的改革。
 
 
 
-> "Blankfein said he’d consider joining the Trump administration" [https://t.co/SIMMTjg3Uj](https://t.co/SIMMTjg3Uj) [https://t.co/qaC9zQBX92](https://t.co/qaC9zQBX92)
-> — zerohedge (@zerohedge) [January 9, 2021](https://twitter.com/zerohedge/status/1347951181973356546?ref_src=twsrc%5Etfw)
+> I’ve been notified of disturbing report of a death threat received yesterday by the Iowa Democratic Party—Threats like this & violence are UNACCEPTABLE We are all Americans & during this difficult time we must come 2gether as 1 nation under God. Love thy neighbor!!!
+> — ChuckGrassley (@ChuckGrassley) [January 9, 2021](https://twitter.com/ChuckGrassley/status/1347987541455228929?ref_src=twsrc%5Etfw)
 
 
-来源：[https://twitter.com/zerohedge/status/1347951181973356546](https://twitter.com/zerohedge/status/1347951181973356546)
-盖特链接：[https://gtv.org/getter/5ffa1d2087fabe2daf34503b](https://gtv.org/getter/5ffa1d2087fabe2daf34503b)
+来源：[https://twitter.com/ChuckGrassley/status/1347987541455228929](https://twitter.com/ChuckGrassley/status/1347987541455228929)
+盖特链接：[https://gtv.org/getter/5ffa854687fabe2daf34bab5](https://gtv.org/getter/5ffa854687fabe2daf34bab5)
 
 * * *
 
-**【大选实况】1/9/2021 EST 7:40 AM Bradley Scott推文：**
+**【大选实时报】1/9/2021 美东时间 19:00 PM 律师 Lin Wood 发表Parler：**
 
-为什么Twitter会永久性地封杀世界上最被敬佩的人？
-
-
-
-> Why would Twitter permanently suspend the MOST ADMIRED man in the world? 🤔
-> — Bradley Scott 🙏🇺🇸 (@Hoosiers1986) [January 9, 2021](https://twitter.com/Hoosiers1986/status/1347870901686194177?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/hoosiers1986/status/1347870901686194177?s=21](https://twitter.com/hoosiers1986/status/1347870901686194177?s=21)
-盖特链接：[https://gtv.org/getter/5ffa1dce87fabe2daf3450df](https://gtv.org/getter/5ffa1dce87fabe2daf3450df)
+今天是一个祈祷的好日子，求全能的上帝揭穿每一个谎言。 我们每次有一位总统。我们的总统是唐纳德·J·川普。当他讲话时，请仔细聆听。 总统必须采取措施，拯救我们的宪法结构和维护我们的自由。 请忽略主流媒体。他们是骗子。 为了安全起见，要准备10-12天的水、食物、广播等。我希望这不是必要的，但坏人完全有可能在我们的主要城市制造暴乱。 相信川普。但归根结底，你必须相信主。当一些人看到混乱的时候，你会看到一个计划。 川普以压倒性胜利连任。他将再服务4年。 但他有一个誓言下的责任来清理多年来由第三方坏分子、共产党人和叛徒造成的混乱。他一定会的。 上帝保佑你。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/4cc7e457b2cc5a6e803f9f014460f505.png)来源：[https://parler.com/post/77aceb08c2df499faf017bbffee0fdf1](https://parler.com/post/77aceb08c2df499faf017bbffee0fdf1)
+盖特链接：[https://gtv.org/getter/5ffa8cc087fabe2daf34c20e](https://gtv.org/getter/5ffa8cc087fabe2daf34c20e)
 
 * * *
 
-**【大选实况】1/9/2012 EST 11:20 pm One American News推文：**
+**【大选实况】1/9/2021 EST 9:53 pm 拉希姆 推文： **
 
-朱利安尼说：川普总统应解密更多文件 – [https://www.oann.com/giuliani-president-trump-should-declassify-more-documents/](https://www.oann.com/giuliani-president-trump-should-declassify-more-documents/)
-
-
-
-> Giuliani: President Trump should declassify more documents – [https://t.co/93jVIiC2IB](https://t.co/93jVIiC2IB) [#OANN](https://twitter.com/hashtag/OANN?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/KHOiZrDKKA](https://t.co/KHOiZrDKKA)
-> — One America News (@OANN) [January 9, 2021](https://twitter.com/OANN/status/1347941323014172672?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/oann/status/1347941323014172672?s=21](https://twitter.com/oann/status/1347941323014172672?s=21)
-盖特链接：[https://gtv.org/getter/5ffa1ed587fabe2daf345189](https://gtv.org/getter/5ffa1ed587fabe2daf345189)
-
-* * *
-
-**【大选实况】1/9/2021 EST 11:37 am 纳瓦罗推文： **
-
-合谋的寡头们试图抹去美国宪法第一修正案。
+整个国会大厦都被军控了，因为三天前一个穿着化装服装的男人跳华尔兹。 这要么是最愚蠢的反应，要么是历史上最聪明的栽赃嫁祸行动。
 
 
 
-> Collusive oligopoly seeking to eradicate First Amendment of US Constitution. [https://t.co/7osZfjDdZi](https://t.co/7osZfjDdZi)
-> — Peter Navarro (@RealPNavarro) [January 9, 2021](https://twitter.com/RealPNavarro/status/1347945725116764163?ref_src=twsrc%5Etfw)
+> The entire Capitol complex has been militarized because a man in fancy dress waltzed in 3 days ago.
+> 
+> This is either the dumbest reaction, or the smartest false flag in history.
+> — Raheem Kassam (@RaheemKassam) [January 10, 2021](https://twitter.com/RaheemKassam/status/1348100715831570434?ref_src=twsrc%5Etfw)
 
 
-来源：[https://twitter.com/realpnavarro/status/1347945725116764163?s=21](https://twitter.com/realpnavarro/status/1347945725116764163?s=21)
-盖特链接：[https://gtv.org/getter/5ffa209487fabe2daf3452cf](https://gtv.org/getter/5ffa209487fabe2daf3452cf)
+来源：[https://twitter.com/raheemkassam/status/1348100715831570434?s=21](https://twitter.com/raheemkassam/status/1348100715831570434?s=21)
+盖特链接：[https://gtv.org/getter/5ffa85c787fabe2daf34bb26](https://gtv.org/getter/5ffa85c787fabe2daf34bb26)
 
 * * *
 
-**【大选实况】1/9/2021 EST 10:40 am Steve Cortes推文：**
+**【大选实况】1/9/2021 EST 11:06 pm RSBN network 推文： **
 
-纳瓦罗刚刚在（班农的）战斗室总结了大科技公司寡头们合谋的事实，特别是推特，脸书和谷歌。
-
-
-
-> .⁦[@RealPNavarro](https://twitter.com/RealPNavarro?ref_src=twsrc%5Etfw)⁩ on War Room just summarized the facts of the collusive oligopoly of Big Tech, specifically Twitter, Facebook, and Google. [pic.twitter.com/ylVvrCMrDV](https://t.co/ylVvrCMrDV)
-> — Steve Cortes (@CortesSteve) [January 9, 2021](https://twitter.com/CortesSteve/status/1347931154524102659?ref_src=twsrc%5Etfw)
+如果总统选择向全国讲话，他将在他选择的时候做。 如果我们听到任何消息，我们会通知您！
 
 
-来源：[https://twitter.com/cortessteve/status/1347931154524102659?s=21](https://twitter.com/cortessteve/status/1347931154524102659?s=21)
-盖特链接：[https://gtv.org/getter/5ffa212487fabe2daf345347](https://gtv.org/getter/5ffa212487fabe2daf345347)
+
+> If the President chooses to address the nation, he will do it at a time of his choosing. 
+> 
+> We'll let you know if we hear anything!
+> — RSBN 🇺🇸 (@RSBNetwork) [January 10, 2021](https://twitter.com/RSBNetwork/status/1348118942376742916?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/rsbnetwork/status/1348118942376742916?s=21](https://twitter.com/rsbnetwork/status/1348118942376742916?s=21)
+盖特链接：[https://gtv.org/getter/5ffa817287fabe2daf34b6df](https://gtv.org/getter/5ffa817287fabe2daf34b6df)
+
+* * *
+
+**【大选实况】1/9/2021 EST 11:15pm Lin Wood发Parler：**
+
+准备好即时停电。 川普总统将使用紧急广播系统。 我们有一个有勇气和信心的人掌舵。 根据法律规定，他还将继续掌舵4年。 为总统，我们的国家和所有人祈祷。 稳住。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/602dc7d96f791cb0a1ec4890c8e7049f-1.jpg)来源：[https://parler.com/post/4e7a72c979a6428682830b136e8a3264](https://parler.com/post/4e7a72c979a6428682830b136e8a3264)
+盖特链接：[https://gtv.org/getter/5ffa851087fabe2daf34ba8a](https://gtv.org/getter/5ffa851087fabe2daf34ba8a)
+
+* * *
+
+**【大选实况】1/9/2021 EST 11:30pm LinWood发Parler：**
+
+苹果要对所有手机进行更新，关闭紧急广播系统。这里是纳粹德国1938年. 关闭自动更新开关。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/cec92b541b5d6fa6ee916a66e4769252.jpg)来源：[https://parler.com/post/6daa29000f7945d5ad8123fafc31a49f](https://parler.com/post/6daa29000f7945d5ad8123fafc31a49f)
+盖特链接：[https://gtv.org/getter/5ffa864e87fabe2daf34bba9](https://gtv.org/getter/5ffa864e87fabe2daf34bba9)
+
+* * *
 
 **By： 【秘密翻译组 G-Translators】**
 
-+2
+0

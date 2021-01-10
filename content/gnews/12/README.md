@@ -1,21 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选实况】1/10/21班农战斗室博客频道近日被Youtube下架
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/736735/)
+## 【香草山档案室】文贵先生谈川普总统所处的困境
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/737637/)
 
-作者：Shawn 【㊙️翻Gnews原创组】
-![]()![](https://boundingintocomics.com/wp-content/uploads/2018/10/YouTube-Censored.png)来源：boundingintocomics.com/
-据国会山报(The Hill)1月9日中午的报道，YouTube近日从其平台上撤下了前白宫首席战略师斯蒂芬-班农（Stephen Bannon）的“战斗室”播客频道 （”War Room” Podcast）。
+香草山综合报道
 
-Youtube社交媒体巨头周五对删除班农战斗室博客的原因解释说，该栏目多次违法和不遵守其社区准则。YouTube发言人在给The Wrap网站的一份声明中说，”正如我们昨天所说，任何发布新视频的频道，如果有误导性的内容，指称广泛的欺诈或错误改变了2020年美国总统大选的结果，便违反了我们的政策，将受到停工处罚。这是一种暂时限制上传或直播的惩罚。在90天内如果收到三次停工处罚的频道将被永久从YouTube上删除。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
-6日国会山民主党与共和党腐败政治精英迅速认证拜登当选总统的大选结果，可谓是对川普总统和保守派势力打出的第一记左勾拳。现在极左派政治势力与高科技媒体迅速联手，急速封停或下架川普总统及其保守派支持者的社交媒体账号，可谓是狠狠的第二记右勾拳。周一众议院将要开启的再次弹劾总统程序，可以算作第三波当面直勾拳，意在直接击倒川普总统，让他尽快离开总统大位。
 
-川普总统在其推号被禁止前于8日下午说，他及其背后的支持者们，将形成响彻历史的宏音，抗击不公正和腐败，汇入永恒的未来。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-10.jpg)
-拭目以待看看川普总统在10日及以后会怎么出手吧。对手这三波凌厉攻击，就像发动了突然的空中袭击战。川普总统及其背后的MAGA党在前面只有招架之功的情况下，马上将要发起怎样的反击和抗争？有一点是可以肯定的，川普本人及其背后将近8千万支持者绝不会做只是被人打击和控制的懦夫与奴隶。
 
-（本文仅代表作者观点）
 
-0
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
++1

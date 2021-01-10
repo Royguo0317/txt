@@ -1,101 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/9/2021 禁言,妖魔化都是左派的手段。这揭示了他们真正的计划: 废除宪法, 社会主义。这都是中共引以为豪的…
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/736230/)
+## 终极之战—正义必定战胜邪恶
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/737150/)
 
-**【大选实况】1/9/2012 EST 10:58 AM 国会议员Ken Buck推文：**
+作者：康州盘古农场-feihua
 
-阻止Google和Facebook等大科技公司审查保守派的唯一方法是拽住其反竞争行为（垄断）的缰绳。 他们之所以可以审查你，因为他们是垄断者。
+审核：康州盘古农场-Antsee-GTV
 
+![universal]()![universal](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-10-at-19.37.34.png)
 
+从一月六日邪恶势力自编、自导、自演的安提法冲击国会，到推特、油管删除川普总统及各个正义力量的账号，对所有支持川普总统的人进行禁声，并冠以暴力的名义。邪恶势力的惯用手法，首先抹黑诬陷，然后冠以正义的名义进行攻击。
 
-> The only way to stop Big Tech companies like Google and Facebook from censoring conservatives is to rein in their anticompetitive behavior.
-> 
-> They can censor you because they are a monopoly.
-> — Congressman Ken Buck (@RepKenBuck) [January 9, 2021](https://twitter.com/RepKenBuck/status/1347935820108488706?ref_src=twsrc%5Etfw)
+苹果公司1月9日发表声明称，他们一直支持在App Store表达不同观点，但平台不能用作有关暴力威胁和非法的活动。公司又称，Parler没有采取足够措施来解决这些威胁民众安全的帖文，在他们解决这些问题之前，公司已将Parler从App Store中撤下。亚马逊在一封电子邮件中写道：“由于Parler无法遵守我们的服务条款并给公共安全带来非常现实的风险，因此我们计划从太平洋标准时间1月10日晚上11:59暂停Parler的帐户。”
 
+各大科技公司已经完全把虚伪的外壳去掉赤膊上阵攻击正义力量。正义力量必须团结起来将邪恶势力击垮，否则所有的人将面临的是全球奴隶制的启动，所有人都会成为北韩人。今天看到川普总统说我们会有自己的发声平台。
 
-来源：[https://twitter.com/repkenbuck/status/1347935820108488706?s=21](https://twitter.com/repkenbuck/status/1347935820108488706?s=21)
-盖特链接：[https://gtv.org/getter/5ffa1aa487fabe2daf344e33](https://gtv.org/getter/5ffa1aa487fabe2daf344e33)
+1月9日麻省理工博士Dr.Shiva Ayyadurai 发推说：“作为Email 的发明人，我将为大家提供一个可以击垮‘科技巨头’的平台，我保证！”爱国者们都自发的发挥自己的作用在阻击这些科技巨头为主的黑暗力量。美国国防部简报明确指出支持1月6日美国民众的游行示威活动，任何污蔑此次活动的言论和定性都是公开反对美国宪法。美国国防部拥有保护美国国家利益和美国人民的最高权力，这个简报就是给黑暗势力严重打击。
 
-* * *
+此时黑暗力量不仅动用科技媒体工具，连他们豢养的北朝鲜金正恩也表示，美国是朝鲜拥核的最大敌人 ，并下令制造更多战术核弹，以对付美国。金正恩表示要中止关于核项目和远程导弹测试的谈判。他还谴责华盛顿在讨论部分解除对朝鲜制裁时缺乏诚意，并说由于美国“像匪徒勒索”，所以美朝没有能够达成协议。金正恩还说朝鲜不久会启动“一种新的战略武器”。但是他并没有完全关闭对话大门，说测试的范围取决于美国的态度。
 
-**【大选实况】1/9/2021 美东时间 11:08AM Laura Ingraham 发推：**
+这个定时炸弹在川普总统执政的几年都被压制，此时为了打击川普总统当选派上用场，威胁川普总统交接权力。
 
-禁言，妖魔化、控制都是左派的手段。 这揭示了他们真正的计划。彻底废除宪法，社会主义，彻底的统治。 这都是中共引以为豪的。
+正义力量的回击就是美国国务卿蓬佩奥1月9日发表声明，解除美国与台湾关系中的“自我限制”。声明说，“我今天宣布取消所有这些‘自我限制’。行政机构部门应该视国务院之前发布的对台关系的‘接触指南’为无效且已作废的。此外，授权或声称管理行政部门通过美国在台协会以外的任何实体与台湾进行接触的外交事务指南或外交事务手册的任何和所有章节也因此作废。根据《台湾关系法》的规定，行政部门的对台关系要通过非营利的美国在台协会处理。”这个限制的取消离定义CCP 为非法政权已越来越近。
 
+Dominion 公司对鲍威尔律师的起诉，反使鲍威尔律师可在法庭上呈现选举舞弊的证据，黑暗力量搬起石头砸自己的脚，之前联邦法院驳回川普团队的上诉，这回就有了现成的案例，美国的判例法有了依据。
 
+还有国家情报总监的报告以及鲍佳琪这个证人还没出场，我们新中国联邦的内部战友的出手，再有我们不知道的信息，所有一切表象都可以看出黑暗力量已经黔驴技穷，穷凶极恶到无计可施，而正义力量是全方位组合的大反攻。
 
-> Silencing, demonizing, controlling is all the Left has. This reveals their true agenda. Total evisceration of Constitution. Socialism. Total domination. The CCP’s proud.
-> — Laura Ingraham (@IngrahamAngle) [January 9, 2021](https://twitter.com/IngrahamAngle/status/1347938331913498624?ref_src=twsrc%5Etfw)
+终极之战是正义一方和邪恶一方信仰和实力的对决，川普总统为代表的正义力量必然战胜邪恶势力。川普总统在下一任期和新中国联邦合作继续与黑暗力量斗争！
 
+2020年1月10日
 
-来源： [https://twitter.com/IngrahamAngle/status/1347938331913498624](https://twitter.com/IngrahamAngle/status/1347938331913498624)
-盖特链接：[https://gtv.org/getter/5ffa032c87fabe2daf343cc4](https://gtv.org/getter/5ffa032c87fabe2daf343cc4)
+【本文仅代表作者观点】
 
-* * *
-
-**【大选实况】1/9/2021 美东时间 11:52AM 突发新闻：**
-
-川普政府的前美国常驻联合国代表尼基-海利说，推特对川普的禁令是 “在中共国才会发生的事“。
-
-
-
-> Breaking: Nikki Haley says Twitter’s ban of Trump is ‘what happens in China’ | Just The News [https://t.co/OKOFdMTPM7](https://t.co/OKOFdMTPM7)
-> — John Solomon (@jsolomonReports) [January 9, 2021](https://twitter.com/jsolomonReports/status/1347949330368503811?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/jsolomonReports/status/1347949330368503811?s=20](https://twitter.com/jsolomonReports/status/1347949330368503811?s=20)
-盖特链接：[https://gtv.org/getter/5ffa044c87fabe2daf343d8f](https://gtv.org/getter/5ffa044c87fabe2daf343d8f)
-
-* * *
-
-**【大选实况】1/9/2021 EST 11:09am蓬佩奥推文：**
-
-控制言论是非常危险的。这不是美国的作风。悲哀的是，这不是左派的新招数。他们已经试图控制对手的言论很多年了。 我们不能让他们噤声七千五百万美国人，这里不是中共国。
-
-
-
-> Silencing speech is dangerous. It’s un-American. Sadly, this isn’t a new tactic of the Left. They’ve worked to silence opposing voices for years. 
-> 
-> We cannot let them silence 75M Americans. This isn’t the CCP.
-> — Mike Pompeo (@mikepompeo) [January 9, 2021](https://twitter.com/mikepompeo/status/1347938581424312331?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/mikepompeo/status/1347938581424312331?s=20](https://twitter.com/mikepompeo/status/1347938581424312331?s=20)
-盖特链接：[https://gtv.org/getter/5ffa15ee87fabe2daf344a7a](https://gtv.org/getter/5ffa15ee87fabe2daf344a7a)
-
-* * *
-
-**【大选实况】1/9/2021 美东时间 12:26PM The Dirty Truth (Josh) 推文：**
-
-达美航空特意降落飞机将这些人逐下飞机，因为他们正在私下里谈论支持川普总统。
-
-
-
-> Delta airline landed a plane to remove these people because they was having a private conversation about supporting President Trump. [pic.twitter.com/x1o9yeKVjb](https://t.co/x1o9yeKVjb)
-> — The Dirty Truth (Josh) (@AKA\_RealDirty) [January 9, 2021](https://twitter.com/AKA_RealDirty/status/1347957967619022848?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/AKA\_RealDirty/status/1347957967619022848](https://twitter.com/AKA_RealDirty/status/1347957967619022848)
-盖特链接：[https://gtv.org/getter/5ffa153687fabe2daf3449d6](https://gtv.org/getter/5ffa153687fabe2daf3449d6)
-
-* * *
-
-**【大选实况】1/9/2021 美东时间 13:03PM 章家敦推文：**
-
-沃尔玛为了迎接拜登入职总统大位，取消了与美国内供应商的订单，将订单发往中国工厂。所以，打着美国国旗的沃尔玛是极其自私的。它真正是忠于金钱，忠于中共国。
-
-
-
-> [#Walmart](https://twitter.com/hashtag/Walmart?src=hash&amp;ref_src=twsrc%5Etfw), in anticipation of [#Biden](https://twitter.com/hashtag/Biden?src=hash&amp;ref_src=twsrc%5Etfw)'s presidency, is cancelling orders it had placed with domestic suppliers and sending them to [#Chinese](https://twitter.com/hashtag/Chinese?src=hash&amp;ref_src=twsrc%5Etfw) factories. So Walmart flying the [#American](https://twitter.com/hashtag/American?src=hash&amp;ref_src=twsrc%5Etfw) flag is cynical. It is really loyal to money and to [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPChina](https://twitter.com/hashtag/CCPChina?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Gordon G. Chang (@GordonGChang) [January 9, 2021](https://twitter.com/GordonGChang/status/1347967352562978816?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/GordonGChang/status/1347967352562978816](https://twitter.com/GordonGChang/status/1347967352562978816)
-盖特链接：[https://gtv.org/getter/5ffa0b2c87fabe2daf34423e](https://gtv.org/getter/5ffa0b2c87fabe2daf34423e)
-
-**By： 【秘密翻译组 G-Translators】**
-
-0
++2

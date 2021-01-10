@@ -1,56 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国国立卫生研究院高级分析师威胁参议员霍利“活该被剥皮”，因其挑战选举人团投票
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/736291/)
+## 美国国务院宣布解除对台合作一切限制
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/737229/)
 
-翻译：康州盘古农场-黎明的光芒
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭ССР
 
-校对：康州盘古农场-Antsee-GTV
+编辑上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/gettyimages-971470660.jpg)moscow-post.su
+1月9日，美国国务卿蓬佩奥在国务院官网发表声明，美国决定取消与台湾合作的所有限制。
 
-审核：康州盘古农场 –Truemanman
+蓬佩奥表示，几十年来，美国国务院一直实施复杂的内部限制，以规范美国外交官、员工和其他代表与台湾同事的互动。
 
-翻译自：《国家脉动》
-![]()![](https://gnews.org/wp-content/uploads/2021/01/image-1.jpg)
-*美国政府国家卫生研究院前高级政策分析师多次在推特上表示，参议员**乔什·霍利**（**Josh Hawley）挑战202**0**年大选的公正性，活该被* *“**剥皮**撒**盐**”*。
+国务卿解释说，美国政府采取这些措施是单方面的，以回应北京的中共当局。蓬佩奥接着表示，今天我宣布取消这些限制。
 
-该暴力威胁是针对霍利带头反对选举人团认证，以及主流媒体污蔑他煽动国会大厦发生的小规模暴力事件。
+因此，正如这位外交官所指出的，美国机构应该认为国务院过去关于与台湾关系的建议无效，华盛顿和台北之间的关系不应该“受到常设官僚机构的自我约束”。
 
-1月7日，在支持川普的 “停止偷窃 ”游行后的一天，吉特林在推特上 “再次 ”发文称，“霍利应该活生生被剥皮撒盐。”
+蓬佩奥强调，“美国政府与世界各地的非官方合作伙伴保持着关系，台湾也不例外。我们两个民主国家有着个人自由、法治和尊重人的尊严的共同价值观。”
 
+1949年，台湾在中国内战期间宣布从中国分裂出去。法律上共和国是中国具有特殊地位的省份。北京认为这是中国的领土。美国承认这一立场，但认为该岛的地位“尚未解决”。正式上，华盛顿与台湾没有外交关系（没有中国参与）。与此同时，美国继续与台北政府保持联系，并向该岛提供武器，这在大陆引起了抗议。正如美联社早些时候所指出的，美国“有帮助台湾保持自我保护能力的合法义务”。
 
+蓬佩奥国务卿在发布的解释中着重强调了美国与台湾是两个民主国家，意味着否定了“一个中国”的政策！
 
-> Hawley splitting the difference – allowing the Pennsylvania vote contest to continue even after he agreed not to speak in favor of it – is one of the most cowardly decisions I’ve ever seen in politics. [https://t.co/Ryxdn4vjEz](https://t.co/Ryxdn4vjEz)
-> — Dave Weigel (@daveweigel) [January 7, 2021](https://twitter.com/daveweigel/status/1347150268417404931?ref_src=twsrc%5Etfw)
+从1949年至今，台湾与美国机构合作从未停止过。美国一直以来与台湾的军事合作也未停止过。结合最近美国驻联合国代表团在官网发布了美国驻联大使克拉夫特（Kelly Craft）将访台的声明，“克拉夫特大使将于1月13日至15日前往台北，与台湾高级官员和外交人士会晤”，从中可以看出这是为日后美总统访台做前期铺垫。
 
+参考链接：
 
+[https://www.state.gov/lifting-self-imposed-restrictions-on-the-u-s-taiwan-relationship/](https://www.state.gov/lifting-self-imposed-restrictions-on-the-u-s-taiwan-relationship/)
 
-**再一次为了上午的（抗议）人群****：****霍利应该被活剥了皮，然后撒上盐。**
+[https://www.rbc.ru/politics/10/01/2021/5ffa22249a7947028b15ac71](https://www.rbc.ru/politics/10/01/2021/5ffa22249a7947028b15ac71)
 
-**–****乔纳森****·****吉特林（****@drgitlin****）****2021****年****1****月****7****日**
-
-这条推文–直接回应了一条责备霍利挑战选举舞弊的推文–此前1月6日的一条推文也宣称有类似的暴力情绪。
-
-**不，我坚持之前删除的那条推特。霍利确实应该被活剥皮，然后扔进盐桶里。**
-
-**— Jonathan Gitlin (@drgitlin) **January 7, 2021
-
-**–****乔纳森****·****吉特林（****@drgitlin****）****2021****年****1****月****7****日**
-
-吉特林曾是肯塔基大学的兼职教授，现任Ars Technica的汽车编辑，曾在美国国家卫生研究院（NIH）工作了6年多。
-
-2009年至2015年，他在美国国立卫生研究院（NIH）–一个容纳安东尼·福奇这样的知名医生的上层机构–担任高级政策分析师。
-
-美国国立卫生研究院（NIH）雇用了6000名研究科学家，预算达数十亿美元，它是由纳税人资助的，因为它在美国卫生和公共服务部的主持下运作。
-
-福奇是主流媒体的宠儿，他帮助制定了川普总统关于COVID-19的对策，自1984年以来，他一直领导着美国国立卫生研究院的过敏和传染病研究所（NIIAD）。
-
-因此，在吉特林任职期间，福奇是国立卫生院的一个领先机构的掌舵人，可能，由于福奇的建议，国立卫生院雇用了吉特林担任高级职位。
-
-原文作者：娜塔莉-温特斯
-
-发布日期：1/8/2021
-
-原文链接：[https://thenationalpulse.com/news/nih-researcher-threatens-hawley/](https://thenationalpulse.com/news/nih-researcher-threatens-hawley/)
-
-+2
+0

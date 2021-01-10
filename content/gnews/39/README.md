@@ -1,95 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/9/2021 美国国防部把1月6日定性为第一修正案的抗议, 而不是暴乱&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/736281/)
+## 《路德社》精选新闻简讯：为生化武器站台，魔鬼狂欢
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/737178/)
 
-**【大选实况】1/9/2021 EST 11:23 am Jack Maxey推文：**
+出品：《路德社》
 
-从十月开始：@jack将这个故事标记为虚假信息，并通过 @JohnBrennan和其他人散布虚假信息。 看看这个清单，这些白痴们要对你们大家的安全负责。 #NoJusticeNoPeace （没有正义就没有和平）
-#WarRoomPandemic（疫情大流行战斗室） 
-刊登亨特·拜登的新闻链接：[https://www.politico.com/news/2020/10/19/hunter-biden-story-russian-disinfo-430276](https://www.politico.com/news/2020/10/19/hunter-biden-story-russian-disinfo-430276)
+编辑：《路德社》精选新闻专栏组
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/捕获.jpg)彼得·达萨克
+“如果谎言说的够大，而且不断重复，人们就会相信它。”用纳粹德国的宣传部长的这句名言，来审视冠状病毒这盘大棋，再贴切不过了，何况这个谎言还加上了顶级生物学家，科学作者的背书。
 
+博博士昨天推出了一个日期为2020年11月7日，一伙研究冠状病毒相关人员的推特交流链接，他们之间的亲密互动，让人们对这一撮掌握冠状病毒来源话语权的人物之间的关系产生了好奇。值得注意的是，博博士给出的推文链接竟然被删除，好在转推的人数众多，推特想瞒也来不及了。
 
+这个推中的彼特·达萨克（Peter Daszak），是美国著名病毒学家，与武汉病毒学研究所合作了15年的美国非政府组织生态健康联盟主席。他回应了大卫科曼, 一位国家地理杂志科普作家的推特，大卫在推特中说，“彼特，布鲁特香槟和马蒂尼葡萄酒，又可以敬酒了！明年武汉见！”当下疫情肆虐的中国，竟然有人相约武汉-病毒的起源地，是庆祝什么呢？在美国国会宣布拜登当选的当天？！
 
-> FROM OCTOBER: When will [@jack](https://twitter.com/jack?ref_src=twsrc%5Etfw) mark this story as disinformation and de platform [@JohnBrennan](https://twitter.com/JohnBrennan?ref_src=twsrc%5Etfw) and others, for spreading disinformation. Read the list, these morons were responsible for your safety. [#NoJusticeNoPeace](https://twitter.com/hashtag/NoJusticeNoPeace?src=hash&amp;ref_src=twsrc%5Etfw) [#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/6VwyxSLE4J](https://t.co/6VwyxSLE4J)
-> — Jack Maxey (@JackMaxey1) [January 9, 2021](https://twitter.com/JackMaxey1/status/1347942004676849664?ref_src=twsrc%5Etfw)
+达萨克的回答非常轻松：“但愿如此，期待这一特殊的时刻，喝白酒，与正丽（zhengli）林发（linfa）卡拉ok.”不得了了，这两位正是生化武器冠状病毒的重大嫌疑人“蝙蝠女”和与之猩猩相惜的“蝙蝠侠”，石正丽和王林发。前者是武汉病毒研究所首席科学家，后者是新加坡杜克大学国立医学院新兴或新发传染病项目的负责人。两位从2003年萨斯疫情开始，合作了十多篇论证动物宿主的文章。在此次冠状病毒溯源研究中，成为中共官方力挺蝙蝠为罪恶源头的核心人物。
 
+从这个热情洋溢的推特对话就能看出，这四个人交情匪浅，一定在蝙蝠背锅问题上达成了共识，没错！达萨克对蝙蝠论的贡献莫过于6月被全球多家媒体刊登的文章“忽略阴谋论， 科学家们清楚Covid-19不是在实验室里创造的”，从“科学家”的角度回应当时英国军情六处及美国国务卿彭佩奥，病毒源于武汉实验室的报道。而大卫科曼2020年12月在纽约时报发表了“病毒，蝙蝠和我们的文章”，引用得了达萨克所在的生态健康联盟的研究。
 
-来源：[https://twitter.com/jackmaxey1/status/1347942004676849664?s=21](https://twitter.com/jackmaxey1/status/1347942004676849664?s=21)
-盖特链接：[https://gtv.org/getter/5ffa232787fabe2daf34552b](https://gtv.org/getter/5ffa232787fabe2daf34552b)
+11月7日的小范围推特交流还谈到了被特朗普多次批评的白宫疫情专家，美国传染病学家福奇，一位公开在推特崇拜福奇雄辩才华的生物学家克莱默发问：“今天不知道福奇博士会做什么”？达萨克说“福奇今天应该会像我们一样，喝醉了。他值得这一刻”。说的好像如果拜登上台，福奇就能稳坐白宫，冠状病毒就会消失一样。
 
-* * *
+一个中国武汉病毒实验室研究出的生化武器，被美国众多的生物学家，大媒体的科普作家如此牵肠挂肚，真是令人吃惊，难道这就是香槟，葡萄酒和卡拉ok的奇效吗，参照中共全世界蓝金黄的价目表，在中国，他们拿到的应该不仅是美酒佳肴，也许还有四合院，名誉教授，顾问等各种承诺和支票吧，清贫的实验室生涯终于换来了名利双收！对金主的召唤积极响应不在话下，说不定哪天拿到中国国籍，或者退休后的永久副部级待遇也未可知。总之，只要美国国内被拜登搞定，不仅来自中国的财源稳定了，在美国也许还能开辟一方新的天地，“钱途”如此美好诱人，难怪他们就迫不及待地开始庆祝了，引得一些圈子边缘的生物学家口水直流，“我也能参加聚会吗”加拿大的一各女生物学家已经忍不住发问，奴颜卑屈，足见中共蓝金黄的威力。
 
-**【大选实况】1/9/2021 EST 4:00pm ZeroHedge推文：**
-
-\*蓬佩奥: 美国解除对台（台湾）关系的限制 
-\*蓬佩奥: 美国废除所有与台湾进行联系的指导性意见
+托马斯.麦金纳尼中将昨日接受媒体采访，直指冠状病毒是生化武器，就是为了干预美国大选所设计的。他还说特朗普对深层政府的阴谋都提前掌握，手中还有针对外国干预的反叛乱法，正义反攻的时候到了，现在就是要让更多的美国人醒过来。栽赃蝙蝠的达萨克，石正丽们，你们得意的太早了，11月3日的大选结果让你们忘乎所以，狐狸尾巴也不藏了，那就等着全世界的病毒受害者向你们宣战吧。
 
 
 
-> \*U.S. TO LIFT RESTRICTIONS ON HOW IT DEALS WITH TAIWAN: POMPEO
-> 
-> \*U.S. TO SCRAP ALL 'CONTACT GUIDELINES' WITH TAIWAN: POMPEO
-> — zerohedge (@zerohedge) [January 9, 2021](https://twitter.com/zerohedge/status/1348011751141478400?ref_src=twsrc%5Etfw)
+[来源链接](https://twitter.com/BoDiplo/status/1347573318082318339?s=20)
 
+【文章仅限作者个人观点】
 
-来源：[https://twitter.com/zerohedge/status/1348011751141478400](https://twitter.com/zerohedge/status/1348011751141478400)
-盖特链接：[https://gtv.org/getter/5ffa256787fabe2daf345752](https://gtv.org/getter/5ffa256787fabe2daf345752)
+本文作者：sherryok (水云间)
 
-* * *
+审核校对：玫瑰天空
 
-**【大选实况】1/9/2012 EST 9:57 am 国会山报推文：**
-
-参议院共和党领导小组成员：弹劾川普总统“不会发生” [http://hill.cm/iyOtpNA](http://hill.cm/iyOtpNA)
-
-
-
-> Member of Senate GOP leadership: Impeaching Trump "not going to happen" [https://t.co/f2DSkA9K7v](https://t.co/f2DSkA9K7v) [pic.twitter.com/Uf2y6NAYqr](https://t.co/Uf2y6NAYqr)
-> — The Hill (@thehill) [January 9, 2021](https://twitter.com/thehill/status/1347920333249114120?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/thehill/status/1347920333249114120](https://twitter.com/thehill/status/1347920333249114120)
-盖特链接：[https://gtv.org/getter/5ff9d94b87fabe2daf342072](https://gtv.org/getter/5ff9d94b87fabe2daf342072)
-
-* * *
-
-**【大选实况】1/9/2012 EST 9:16 am 专栏作家章家敦 推文：**
-
-中共国制造产品的销售链中的每一方均应对使用强迫劳动或奴役劳动承担刑事责任。如果不遵守，应承担“无过错责任”。罚款和监禁的处罚都应从严。
-
-
-
-> Every party in the chain of sale of [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)-made products should be held criminally liable for the use of forced or slave labor. There should be “strict liability” for failing to comply. The penalties—both fines and imprisonment—should be severe. [https://t.co/NXgpINnngy](https://t.co/NXgpINnngy)
-> — Gordon G. Chang (@GordonGChang) [January 9, 2021](https://twitter.com/GordonGChang/status/1347910096362332163?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/GordonGChang/status/1347910096362332163](https://twitter.com/GordonGChang/status/1347910096362332163)
-盖特链接：[https://gtv.org/getter/5ff9da0287fabe2daf3420f2](https://gtv.org/getter/5ff9da0287fabe2daf3420f2)
-
-* * *
-
-**【大选实况】1/9/2021 EST 4:53 pm Rohan O’Handley的推文： **
-
-如果他们可以抹去总统的痕迹，他们也可以清除其他任何人。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/d49bc32bd673cdf463a7f433585e282b.png)推文已被删除
-盖特链接：[https://gtv.org/getter/5ffa2fba87fabe2daf34608e](https://gtv.org/getter/5ffa2fba87fabe2daf34608e)
-
-* * *
-
-**【大选实况】1/9/2021 EST 6:21 PM 推友推文：**
-
-美国国防部把1月6日定性为第一修正案的抗议，而不是暴乱。
-
-
-
-> 美国国防部把1月6日定性为第一修正案的抗议，而不是暴乱The Defense Department is referring to Wednesday’s pro-Trump riot as “the January 6, 2021 1st Amendment Protests.” [pic.twitter.com/swE4raYiXL](https://t.co/swE4raYiXL)
-> — 老徐 (@taoxu1972) [January 9, 2021](https://twitter.com/taoxu1972/status/1348047240225550340?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/taoxu1972/status/1348047240225550340](https://twitter.com/taoxu1972/status/1348047240225550340)
-盖特链接：[https://gtv.org/getter/5ffa4a3a87fabe2daf347c41](https://gtv.org/getter/5ffa4a3a87fabe2daf347c41)
-
-**By： 【秘密翻译组 G-Translators】**
+上传排版：糊糊文婴
 
 0

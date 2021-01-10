@@ -1,35 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共产党国安威胁墙内投资者报假案，但仗剑之人必死于剑下！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/736423/)
+## 内外夹击之下，上海成立住房租赁产业联盟求“活路”！
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/737296/)
 
-新闻简述：2021年1月7的盖特视频中，郭先生痛斥共产党国保、国安部门威胁墙内GTV投资者，让他们给FBI报假案栽赃。他说仗剑之人必死于剑下，美国不会放过共产党造假。
-视频来源：[https://gtv.org/getter/5ff7671587fabe2daf329613](https://gtv.org/getter/5ff7671587fabe2daf329613) 
-**中英文对照全文**
+俄罗斯莫斯科喀秋莎农场    HK小蚂蚁
 
-Hello, honorable fellow fighters! We’ve got all kinds of information from many fellow fighters these days. Thank you very much! Really appreciate it! The Department of Domestic Security across the country [China] and other security departments have threatened GTV investors with their family, provided them with the FBI tip webpage and phone number, and asked them to report to FBI that they were scammed [by GTV]. They are definitely trying to frame us.
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/EpicShanghaiWebThumbnail.png)The B1M
+“光明网”1月10日消息称，上海与1月8日成立住房租赁产业联盟。此联盟是在上海市房屋管理局、上海市房地产经纪行业协会指导下，由上海建信住房服务有限责任公司发起成立，成员包括上海城方租赁住房运营管理有限公司、上海城投置业经营管理有限公司、华润置地、魔方生活服务集团有限公司、微领地创客空间运营管理集团股份有限公司、旭辉领寓、城家公寓、安歆集团等多家住房租赁领域的头部企业及产业上下游企业。
 
-尊敬的战友们好！我们这几天收到了很多战友们发来的各种信息，非常非常的感激和感谢！就是各地的国保、安全部门，用家人做威胁，让他们作为曾经参与了GTV投资的人，还给了FBI举报的网址和电话，要求到FBI举报，说我被诈骗了。这完全是栽赃陷害！
+报道中说，“联盟的成立，旨在探索创新产业联盟合作模式和住房租赁可持续发展之路”，其实就是在告诉大家，过去上海市几十年的房地产发展模式已经走入死胡同，过去的上海市房地产开发已经无路可走！所谓的“大会倡议，各联盟企业要以实际行动…降低租赁住房税费负担，整顿租赁市场秩序…”，不过是揭穿了过去上海市房地产的降低房租都是忽悠普通老百姓的鬼话，根本就没有任何的实际行动！整个房地产行业就是一片混乱的抢劫普通老百姓的“战场”！上海之所以成立房地产租赁市场联盟，就是怕像长租公寓接连暴雷那样，让上海市的整个房地产行业轰然坍塌！
 
-The CCP is all about faking, right? But, CCP, don’t forget that the United States is not the kind of country that will let you off that easy. Do you think that you have won a big victory now? A complete victory? People who live by the sword die by the sword. CCP, your fortune started from corruption and greed, from deception, and from fraud. Ultimately, you will die from the fake and fraud. Do you think it will work by making fraudulent statements to the FBI and bribing a few people?
+上海市政府早在多年以前，就提出建设“廉租房”“经济适用房”“公租房”“人才公寓”等等，所谓的“惠民”房地产项目建设与开发。按道理说上海既然很早就开始各种“惠民”的房地产工程，且各种冠以动听名词的“惠民”房地产项目层出不穷，又有上海强大的金融背景做支撑，上海市的住房市场应该非常稳定和健康才对啊！为什么现在又要在上海市房屋管理局、上海市房地产经纪行业协会指导下，成立所谓的“上海住房租赁产业联盟”呢？
 
-共产党就造假嘛，是吧？但是，共产党你千万别忘了，美国这个国家不是你造了假就能过得去的。你以为现在现场就是你大赢了？你彻底赢了？仗剑之人必死于剑下，你共产党你这种以黑起家、以贪起家、以假起家、以骗起家，最终会倒在假和骗上。你以为你到 FBI 报假案，你买通几个人你就能行了吗？
+其实，上海市的房地产市场一直都在玩 “双枪老太婆”！就像一个是亲生儿子，一个是私生子女，一个是嫡出，一个是庶出！一个是有上海市政府官方控制的房地产项目开发，除了上海市政府部门以及各央企国企名义开发的房地产，还有比如前面提到的建设“公租房”“人才公寓”等！另一个就是有中央和地方政府背书支持的，盘踞中共国内各地的庞大地产公司，包括万科、万达、金地、绿城、恒大、保利、碧桂园、融创等等！虽然出身不同来路各异，但是都“殊途同归”通过房地产市场吸食中国普通劳动人民的血汗，是盘踞在中国人民身上的寄生虫！
 
-Brothers and sisters in arms, I understand the hardship and the threats that you are facing. But this is something that happens unavoidably in the fighting with the CCP. But I appreciate your courage, and I am really touched by your courage towards me, GTV, and all the other fellow fighters. Brothers and sisters in arms, please remember, under the threat of the CCP, everything that you do is understandable. However, it would be ideal if you could let us know, particularly, about things like being forced to make a fraud report to the FBI. Being forced to make a false report to the FBI is a serious international crime. It will be even better if you have recorded voice and video, right?
+那么此时此刻，中共国内疫情急剧紧张，全国各地进入战时状态，上海住房租赁市场竟然还出此新动作搞什么租赁产业联盟，而且还是在上海市房管局“指导”下成立的，中共上海市政府为什么如此大张旗鼓的公开来给“私生子”背书呢？那是因为“私生子”毕竟也是中共政府的子女，也是中共政府捞钱压榨普通中国人民的工具！再者这些“私生子女”本身就跟“亲生子女”有着千丝万缕的联系！
 
-兄弟姐妹们，理解你们所有的难处，理解你们的威胁，但是这就是我们共产党当中、博弈当中必然要发生，要有的。但是很感谢战友们你们的勇敢，还要你们对文贵、对GTV、对所有的战友的这种勇气，文贵是非常非常的感动。兄弟姐妹们，但是一定要记住，在共匪的威胁之下，你做什么都可以理解的。但是让我们知道是最好了，特别上美国FBI报假案这种事情。被逼迫报假案，那是重大的国际跨领域的司法犯罪。有语音、有录像，那就更好了，更好了，是吧？
+上海市房管局明文规定所有新的商业房地产项目开发，必须要有一定的比例划分给政府来做“经济适用房”“公租房”，但是上海市政府并不会拿出一分钱给开发商去建设这些政府项目。也就是说那些通过各种手段拿地的商业地产公司，在开发各自的房地产项目时，要免费负责帮政府建设并装修一定比例的“经济适用房”“公租房”，而上海市政府只负责成立一个官属的“上海市公共住房租赁公司”收取普通老百姓的租金，说白了就是上海市政府借房地产项目开发“空手套白狼”。
 
-Thinking that yesterday President Trump was about to hand over the gun, the CCP has become even more crazy and faked criminal cases like insane. CCP, I am your eighth generation ancestor. You are like dogs that can never change your habit of eating shit, you ba\*tards! Let’s wait and see. Don’t be too shameless. I am still saving face for you, but if you don’t want to save your face, then I will screw all of you, you ba\*tards – words from Brother Haidong and Sister Ying are now famous. You bastards. But most of those with a conscience have had their guns raised by an inch. For that I really appreciate it! Thank you!
+当然又有哪个房地产开发商或者公司甘愿做傻子呢？“羊毛出在羊身上”！—自然是由那些花光祖宗几代人积蓄，去排队摇号找关系走后门购买商业住宅的老百姓来买单！也就是说上海市政府除了以税收之名，在卖房卖地的过程中，收取将近占购房款金额70%-80%缴纳金以外，还白得一大批不受70年产权限制，由开发商帮助建设装修，用来长年累月的通过银行收房租的租赁房屋！与此同时，那些通过各种复杂手续，甚至找关系走后门住进市政府租赁房的“海漂”们，还会感恩戴德甚至幸灾乐祸自己的“好运”！所以，就像郭文贵先生说的，中国人不是被中国共产党强奸一次两次，而是一生都在不断的被中国共产党连续强奸着，而且中共在强奸普通中国老百姓的过程中，还让普通的中国老百姓喊高潮！真是可恨又可悲啊！
 
-以为昨天，好家伙，这家伙川普总统要交枪了，共产党就更疯狂了，疯狂的制造刑事虚假案子，我R你八辈祖宗，共产党。你狗改不了吃屎，你这帮孙子，走着看，别给脸不要脸。我给你们留着脸哪，但是你们要是不要脸了，那咱就一堆儿给你烩了吧，这帮孙子啊，海东弟，颖妹妹的话，现在成名话了。这帮孙子。但是绝大多数有良知的人，还都是枪口抬高一寸的。我也非常感谢！谢谢！
+如果说全中国的房地产市场是一个个大泡沫的话，那上海市的房地产根本就是泡沫中的泡沫！作为中共国四大直辖市之一，上海一直号称是中共的“钱袋子”，是中共努力打造的国内金融中心。在中共以“国安法”名义严重破坏了香港的民主与法治以后，更企图让上海替代香港成为新的“国际金融中心”。上海的房地产市场自然是其中重要的一个角色，是中共政府长期以来忽悠普通的老百姓，靠卖房卖地拉动中共国内经济的重要支柱，也是中共有底气与美国华尔街勾兑，“蓝金黄”各国政府政要名人资本最根本的源泉！
 
-*感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/727728/](https://gnews.org/zh-hans/727728/)*
+如今，中共病毒不仅仅搞乱了美国，祸害了全世界！中共病毒也毒害了自己！在中共病毒疫情之前，西方国家已经在爆料革命的呼喊声中，开始意识到中国共产党这颗毒瘤的邪恶与疯狂！美国与中共的贸易战，试图压制中共的疯狂扩张，以挽救美国的各大基础工业和高科技领域以及金融市场，然而中共没有坐以待毙，向美国乃至全世界发起了生物病毒武器攻击，试图在美国和全世界制造的混乱中浑水摸鱼然后称霸世界！
 
-翻译：【Cyndi】校对：【Isaiah4031】【BruhM】字幕：【相机过热啊】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+这正如金庸先生的武侠小说《倚天屠龙记》中那崆峒派的“七伤拳”一样！“伤人先伤己”！中共病毒在全世界肆虐的同时，中共国内经济业已凋敝满目疮痍！面对美国科技、金融制裁和国内疫情封锁，中共国的外贸如同秋冬天的梧桐叶一茬更比一茬少！而中共国内的各行各业也如昨日黄花，繁华不在俨然已是油尽灯枯！所谓的内循环成了人尽皆知的天大笑话！像上海这样的大城市里，最直接的体现就是人员外流，房地产行业有价无市、房屋空置率高居不下，金融行业更是摇摇欲坠再也无法给房地产做支撑。尽管此时上海各大房企互相抱团取暖，但恐怕也是无济于事！中共政府长期以来依靠卖房卖地维持地方经济的疯狂已是走到了历史的尽头！
 
-喜马拉雅玫瑰园小队出品
+参考链接：
 
-*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
+[https://m.sohu.com/a/443576916\_162758/?pvid=000115\_3w\_a](https://m.sohu.com/a/443576916_162758/?pvid=000115_3w_a)
 
 0

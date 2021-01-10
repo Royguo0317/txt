@@ -1,40 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普竞选团队被邮件服务商暂停服务后，被禁止给支持者发邮件
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/736779/)
+## 【大选推特/Parler实况】1/10/2021 扰乱国会大厦行动早在总统演讲之前就已经计划好了&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/737553/)
 
-翻译：康州盘古农场-挺郭大刺猬
-校对：康州盘古农场-Freeearth
-审核：康州盘古农场-V
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-19.png)图片：thegatewaypundit.com
-川普竞选团队在被其电子邮件服务提供商暂停服务后，现在被阻止向他们的数百万支持者发送电子邮件。
+**【大选实时报】1/10/2021 美东时间 12:37AM 著名民权律师 Leo Terrell 推文：**
 
-暂停发生在美国总统唐纳德.川普和他的竞选团队被永久禁止使用推特之后不久，
+好吧，推特，我已经失去了50,000个追随者。我敢肯定，当周日早上我醒来时，这个数字会更高。按照这个速度，到周五我的粉丝应该是零。 推特，请务必注意：我永远不会放弃我的总统！
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture-49.jpg)来源：[https://twitter.com/TheLeoTerrell/status/1348141977204711427](https://twitter.com/TheLeoTerrell/status/1348141977204711427)
+盖特链接：[https://gtv.org/getter/5ffaa3f187fabe2daf34d80f](https://gtv.org/getter/5ffaa3f187fabe2daf34d80f)
 
-电子邮件服务Campaign Monitor向《金融时报》的Dave Lee证实了该账户的暂停。
+**【大选实时报】1/10/2021 美东时间 1:50AM 朱利安尼市长在Parler上发文**：
 
-*国民评论（**The Nationalist Review）报告说：”此举有效地切断了他的团队和他的核心支持者之间的沟通。但**尚**不清楚的是，还有哪些服务禁止了他的团队。川普竞选团队发出了大量的电子邮件–1月份至今已有33封。但是，该竞选活动已经48小时没有通过电子邮件与支持者联系了，这促使大多数记者猜测，其他供应商也已经关闭了访问权限。”*
+如果你去RudysCommonSense.com，你可以找到正在被禁的我的视频。它通过采访和视频，展示了大科技公司、主流媒体和腐败的民主党人正在掩盖的真相。
+大选被窃取了，扰乱国会大厦行动早在总统演讲之前就已经计划好了，总统的演讲要求大家 “”和平地、像个爱国者一样有节制地行动。又一个阴谋！
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture1-3.jpg)来源: [https://parler.com/post/20ae8e4944c04a709e786898149ff04b](https://parler.com/post/20ae8e4944c04a709e786898149ff04b)
+盖特链接：[https://gtv.org/getter/5ffaaaa787fabe2daf34de78](https://gtv.org/getter/5ffaaaa787fabe2daf34de78)
 
+**By： 【秘密翻译组 G-Translators】**
 
-
-> There hasn't been any Trump emails for more than 48 hours. Almost unheard of — he sent 33 in the first six days of Jan; 2,500+ last year. (h/t [@TrumpEmail](https://twitter.com/TrumpEmail?ref_src=twsrc%5Etfw)) 
-> 
-> At least one of the services the team used, [@CampaignMonitor](https://twitter.com/CampaignMonitor?ref_src=twsrc%5Etfw), has suspended Trump's access, the company confirmed.
-> — Dave Lee (@DaveLeeFT) [January 9, 2021](https://twitter.com/DaveLeeFT/status/1347724201331814401?ref_src=twsrc%5Etfw)
-
-
-
-*推特译文： 已超过**48小时没有任何川普的邮件。几乎闻所未闻–他在1月的前六天发送了33个邮件；去年有2500多个邮件。（向@TrumpEmail团队致敬）该公司已经证实，该团队使用的至少一项服务@CampaignMonitor，已经暂停了川普的访问权限。*
-
-Campaign Monitor在一份声明中声称，竞选活动可能有其他方法向支持者发送电子邮件。
-
-Campaign Monitor在一份关于禁令的声明中表示，”与唐纳德.川普竞选活动相关的自助服务账户已于今天（2021年1月7日）被暂停。通常情况下，政治竞选活动使用多个电子邮件服务提供商来发送竞选、筹款和其他电子邮件。基于Campaign Monitor账户发送的电子邮件数量较少，这很可能是竞选活动总电子邮件活动中的很小一部分。”
-
-原文作者：卡桑德拉-费尔班克斯（Cassandra Fairbanks）
-
-发布时间：2021年1月8日下午9:57
-
-文章链接： https://www.thegatewaypundit.com/2021/01/trump-campaign-banned-emailing-supporters-suspended-mail-service-provider/
-
-0
++2
