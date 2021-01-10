@@ -1,51 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 突发新闻：苹果和谷歌威胁要禁止Parler，除非该服务执行大科技寡头要求的严厉审查政策
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/731377/)
+## Covid-19新冠病毒：法国卫生紧急状态再次延期
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/735768/)
 
-翻译：康州盘古农场 – 烟波浩淼
+翻译：道一  校对：Lorraine / Ikonic
 
-校对：康州盘古农场 – Mike Li
+法国部长委员会将在下周提出一项法案。法案包括将卫生紧急状态延期至6月1日，以及将过渡制度延至12月31日的法案。
 
-审核：康州盘古农场 – Rose
+消息由《解放报》在本周三透露，据可靠的政府消息来源，法国总理让-卡斯特Jean Castex会在的本周四晚上的新闻发布会上证实。
 
-原文作者：克里斯蒂娜·莱拉（Cristina Laila）
+它将涉及要求议会将原定于2月16日结束的卫生紧急状态推迟到6月初。除此之外，还有关于紧急状态的过渡制度的终止日期将从4月1日推迟到12月31日。换句话说，就是在一年以后再解禁!
 
-发布时间：2021年1月8日下午4:31分
-![](https://lh3.googleusercontent.com/XFqjDTDXHTV6hETrv3e6HUYqZdPNyeiam11Rv8FWh_jz3bX0ydbVas3mAsmsecE0Y8rVQKkwZo0hbZQkJnZxnuepOTbH4Y6afoYjSm-MCqQrsoXwzXFZ8RB5WG5gZdnLTycw4BobDF4Zb9Dscg)
-苹果目前正在威胁Twitter言论自由的替代者Parler，除非他们颁行大科技寡头要求的严苛政策。
+**限制性措施**
 
-就因为大科技公司实施严格的审查制度，Parler现在是增长最快的社交媒体公司。
+由2020年3月23日的法律确定，并被引入《公共卫生法》的卫生紧急状态是一种 “特殊措施”，允许政府通过法令决定对出行自由（包含封紧）、从事生产自由、集会自由的限制。
 
-周四上午，Parler首席执行官约翰·马兹（John Matze）在其快速发展的社交媒体平台上发表了一个大胆的声明，并谴责Facebook和Twitter的审查制度。
+该法案还授权政府可征物资和用必要的服务以及出台价格管控政策。
 
-24小时后，苹果公司威胁要禁止Parler，除非他们审查和禁止那些不与共产党人同流合污的人。
+关于退出紧急状态的过渡制度，则授予总理和各警察局局长采取各种必要的措施的权利，如必须戴口罩、实行地方宵禁或关闭公众场所。
 
-[Sean Davis on Twitter: “BREAKING: Apple is currently threatening to ban Parler — the free speech alternative to Twitter — unless the service enacts draconian censorship policies demanded by left-wing Big Tech oligarchs, according to two sources familiar with Apple’s threats.” / Twitter](https://twitter.com/seanmdav/status/1347660160806825984?ref_src=twsrc%255Etfw%257Ctwcamp%255Etweetembed%257Ctwterm%255E1347660160806825984%257Ctwgr%255E%257Ctwcon%255Es1_&amp;ref_url=https%253A%252F%252Fwww.thegatewaypundit.com%252F2021%252F01%252Fbreaking-apple-threatens-ban-parler-unless-enact-draconian-censorship-policies-demanded-big-tech-oligarchs%252F)
+这些都是行政部门的期望（目前仍然是期望）。行政部门希望12月21日提交的 “建立卫生危机管理长效机制 “法案能够通过，而该法案因次日提交后引发的争议被推迟了几个月。
 
-*肖恩·戴维斯（Sean Davis） @seanmdav*
+**快速通道**
 
-*突发：据两名知情人士透露，苹果目前威胁要禁止Parler（Twitter言论自由的替代社交媒体），除非该服务制定了左翼大科技寡头所要求的严厉审查制度。*
+从2020年3月23日开始实施，最初为期一个月的卫生紧急状态已延长至7月10日（圭亚那Guyane 和马约特岛Mayotte甚至延长至9月17日）。并于10月17日再次生效，之后又被推迟到今年2月16日。
 
-*下午3:43 ·2021年1月8日*
+很显然新的一轮抗议又即将到来，政府必须迅速行动通过法案。下一届议会会议将于1月12日举行。
 
-谷歌也在威胁Parler。
+原文链接：https://www.francesoir.fr/politique-france/covid-19-vers-une-nouvelle-prolongation-de-letat-durgence-sanitaire
 
-[James Todaro, MD on Twitter: “WOW, that was quick. Apple and Google threaten to remove Parler from app stores unless Parler starts censoring content.” / Twitter](https://twitter.com/JamesTodaroMD/status/1347672976418877446?ref_src=twsrc%255Etfw%257Ctwcamp%255Etweetembed%257Ctwterm%255E1347672976418877446%257Ctwgr%255E%257Ctwcon%255Es1_&amp;ref_url=https%253A%252F%252Fwww.thegatewaypundit.com%252F2021%252F01%252Fbreaking-apple-threatens-ban-parler-unless-enact-draconian-censorship-policies-demanded-big-tech-oligarchs%252F)
 
-*詹姆斯·托达罗（MD） @JamesTodaroMD*
 
-*哇，很快。 苹果和谷歌威胁要从应用商店中删除Parler，除非Parler开始审查内容。*
-
-*下午 4:34 ·2021年1月8日*
-
-据肖恩·汉尼提（Sean Hannity）透露，川普总统刚刚加入了Parler。
-
-请关注后续发展。。。
-
-原文链接：
-
-[BREAKING: Apple and Google Threaten to Ban Parler Unless The Service Enacts Draconian Censorship Policies Demanded by Big Tech Oligarchs (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/01/breaking-apple-threatens-ban-parler-unless-enact-draconian-censorship-policies-demanded-big-tech-oligarchs/)
-
-0
++1

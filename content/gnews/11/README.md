@@ -1,55 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 盗窃的艺术——纳瓦罗报告·第二卷（二）
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/734761/)
+## 【字幕】1/9/2021文贵盖特： 第二次..再次集中回答国内很多战友的一些问题…
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/735671/)
 
-翻译：Tom Cat  ｜  校对： jiasen ｜  编辑、美工：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/01/纳瓦罗报告第二卷2.jpg)
-往期链接：
+制作： 【彩虹桥】
 
-[盗窃的艺术——纳瓦罗报告·第二卷（一）](https://gnews.org/zh-hans/729551/)
+兄弟姐妹好！刚刚我发出去的健完身跟你们说的，九个最窝囊的的川普总统以后的视频，冲了个凉，我刚下来，现在你看我穿的是，咱们的..就那天展示的郭战装的那个，看到没有..看看这个..咱们那天就是《我是音雄》的战友们就得到了就是这个战装。真是太棒了，你看它是里外夹层的，非常的暖呼，非常的暖呼，两层，非常的舒服、非常的酷，看到的人都喜欢得不得了啊。
 
-## Introduction
+我还有两件事没给大家说，就是这两天啊咱们真是看到了我们战友伟大的力量，特别是国内的战友，国内的战友现在是处在..真的是各种威胁之中，我们海外的战友要跟国内的战友比，我们就天天磕头感谢上天吧，特别是河北、大连、沈阳的战友，现在看到很多家人、亲人，都染上了共产党的ccp病毒，我再次给大家说，所有国内的战友们互相之间你们能联系的，能互相帮助的一定要帮助，真的苦日子还没来呢，这个病毒的灾难还没开始呢，我有些话真是不敢直接说，毕竟在公众场合、媒体，你们会明白的。过去一年证明给你们看了，国内战友们，包括所有相信文贵的，朋友、亲人、家人，要相信我说的话，2021年比2020年要糟糕的多的多的多，这是一个。
 
-## 引言
+另外一个兄弟姐妹们，我要给大家说的，关于国内的经济情况和房地产，兄弟姐妹们，共产党的卖地经济，房地产经济，还有一个这种共产党的完全就是依靠一年1000多亿在美国搞的那个贸易经济，还有国内的卖地经济，绝对结束了。所以说在国内今年粮食和生存，还有一个生存的环境是你最重要考虑的，你不一定要相信文贵，你在你合适的能力下，你要做一个妥善的安排，很多战友给我发来信息问我，我没法一一给你回，也不应该一一给你回，因为每个人的整个的你所处的环境不同，但有一样是同的，共产党这个所谓绑架的中国，将走向灾难的灾难。
 
-Volume 1 of The Navarro Report, The Immaculate Deception, revealed a coordinated Democrat Party strategy to steal the 2020 Presidential Election. That strategy was to stuff ballot boxes with illegal absentee and mail-in ballots across six battleground states – Arizona, Georgia, Michigan, Nevada, Pennsylvania, and Wisconsin.
+今年如果灭了共，中国人还能有好日子过，如果不灭了共，那中国人民真的是过着猪狗不如的日子，这不是吓唬大家，希望兄弟姐妹们，我希望这种事情说的都是错的，因为错的对战友们对同胞们更好，但是大家要记住，我们毕竟要防范嘛，爆料革命、新中国联邦，就是让中国人过上安全的、体面的、法治、信仰、自由独立的生活，更重要是唯真不破，所以我说我认为是真的话，但是供大家参考。国内的经济、地产、贸易，一塌糊涂，你自己有感受，二，病毒决不可小觑，这是天大的事，所有这两样加在一起，比所有的一切威胁都大，永远要记住，灭共是我们的终极目标，让大家在力所能及可承受的范围内，再灭共。你活下去再灭共，你都活不下去，你咋灭共啊兄弟姐妹们？
 
-纳瓦罗报告的第一卷“完美骗局”揭露了民主党窃取2020年总统选举的协调策略。该策略为在投票箱里塞满来自于六个战场州 – 亚利桑那州，佐治亚州，密歇根州，内华达州，宾夕法尼亚州和威斯康辛州的非法缺席投票和邮寄投票。
+这个世界上最后强大的一定是美国，一定是美国。特别到了西方文明国家的战友们，撑住..撑住..撑住..珍惜现在安全、自由的、法制的环境，跟国内同胞比我们每一分钟、每一秒钟都要充满着感恩和感激，还有一个，要永远记住，中国人的事最终要中国人解决，就是以共灭共，中国人灭共，爆料革命灭共，这是核心的主题，永远不要忘了，兄弟姐妹们一切都已经开始，没有任何人可以停下，有更多选择吗？我们只有灭共。只有假灭共的人，你现在可以做任何选择，但是最后你也没选择，就这么简单。
 
-As illustrated in Figure One, this Democrat gaming of our political process was manifested by six types of election irregularities observed across the battleground states. These irregularities included outright voter fraud, ballot mishandling, due process fouls, violations of the 14th amendment’s Equal Protection clause, voting machine irregularities, and statistical anomalies.
+所以说..我一会还要出去见个人去，我要跟兄弟姐妹们要说的，今天所有你看到是这些情况，它发生的都是再正常不过的，都在自然和逻辑法律之中。因为共产党的存在和共产党的邪恶，和一个共产党绑架了一个14年是中国人力量，他能达到今天这种坏的这种结果，他太正常不过了。能让它维持政权的只有两条，中国人的无知和中国人能维持下去的经济，随着爆料革命和新中国联邦，中国人越来越多人能开智，包括病毒，包括现在病毒下影响的中国经济，这一切一切，它共产党它是无法解决的，经济持续日下，最后金融、银行、经济大崩盘，地产大崩盘，那国内…就是美国也不可能给你印几十万亿美元给你去，这是基本的常识嘛。
 
-如图一所示，民主党这种玩弄我们政治体系的行为在战场州观察到的六个选举违规行为中得到了体现。这些违规行为包括彻底的选举欺诈、选票处理不当、程序违规、违反第14条修正案的平等保护条款、投票机器违规以及统计数据异常。
+另外一个这个病毒事件，任何人都不可能，代表共产党说没事了，拉倒了，没有一个人，甭说美国，十个美国它也不敢，持续在病，持续在死人，谁有办法解决？兄弟姐们们？是不是？所以说国内的战友们给我发的这些信息呀，我刚才又搂了一遍，所有的关于国内的信息，我这两条建议希望大家务必珍惜，务必珍惜、务必小心。
 
-### *Figure One*
+另外一个咱们G系列的战友，所有这些发生都是对G系列最好的，因为媒体、社交媒体整个大整合，一定大整合，永远不可能是一级说了算。这是在西方永远不可能是一级，不能是一级就会诞生另外一级，但是也可是我们这一级，也可能是我们就是最重要的，这两集中间的最关键最受利的那一级，兄弟姐妹们，利益上我们是最大受益者，灭共事业上，我们会有奇招，会有奇迹给大家，走着看..
 
-### 图表一
-
-#### The Immaculate Deception
-
-#### 完美的骗局
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-09-at-10.29.16-PM.png)√ = 广泛的证据 ★ = 一些证据
-By exploiting these election irregularities – by bending, and at times breaking, the law or election rules – the Democrat Party thereby illicitly transformed substantial Trump leads into alleged narrow Biden leads across each of the battleground states. However, as The Immaculate Deception documented, these alleged Biden “victory margins” are dwarfed by the number of potentially illegal ballots in every single battleground state as illustrated in Columns 7 and 8 of Figure One above.
-
-通过利用这些选举违规行为，通过歪曲甚至有时违反法律或选举规则，民主党非法地将川普的在各个战场州领先优势转变为拜登微弱的领先优势。然而，正如这个完美骗局所证明，这些所谓的拜登的“获胜优势”与上图第7和第8栏所示的每个战场州非法投票数量相比显得微不足道。
-
-For example, the alleged Biden “victory margin” is less than 12,000 votes in Arizona, while the number of potentially illegal ballots was is than 10 times that. In Georgia, the alleged Biden “victory margin” is a mere 12,670 votes, yet the number of ballots in question is more than 400,000.
-
-例如，拜登在亚利桑那州所谓的“获胜优势”少于12000张选票，但潜在的非法投票的数量是这个数字的10倍。在佐治亚州，拜登所谓的“获胜优势”仅有12670张选票，但有问题的选票的数量却超过了400000。
-
-In the wake of the release of the Navarro Report on December 17, 2020, I received numerous requests to explain just exactly how the Democrat Party and its operatives managed to pull off its Immaculate Deception. That is the purpose of Volume 2 of the Navarro Report, The Art of the Steal.
-
-在纳瓦罗报告于2020年12月17日发布后，我收到了许多要求解释民主党及其代理人是如何成功的实行完美欺骗的。这就是纳瓦罗报告第二卷的目的，“盗窃的艺术”。
-
-The Art of the Steal takes a more granular look at the Democrats’ Grand “Stuff the Ballot Box” Strategy. It seeks to answer some of the most basic questions now rising in the minds of an American public and an American political leadership increasingly skeptical about the fairness and legitimacy of the 2020 election. How did the Democrats pull off its Immaculate Deception without detection and appropriate countermeasures by the Republican Party? When did the Democrats’ effort to topple a sitting president start? How much of what the Democrats did was illegal? And how much of what the Democrat Party and its agents did was done within the bounds of the law and rules but nonetheless led to an illegal outcome?
-
-“盗窃的艺术”更细致的审视了民主党“塞满投票箱”大战略。该报告试图回答一些美国公众和美国政治领导层对2020大选的公平性和合法性越来越怀疑的最基本的问题。民主党人是如何在共和党未发现并采取适当对策的情况下实现其完美骗局的？民主党是何时开始试图推翻现任总统的？民主党及其代理人的所作所为有多少是在法律允许的范围内进行但却导致了一个非法的结果？
-
-更多精彩内容请关注：
-
-- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/user/5e986b24b005bd6d929820bd)
-- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
-0
++1

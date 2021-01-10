@@ -14,144 +14,132 @@
 
 ---
 
-### [《路德时评》重磅爆料习回归至“原始生活”，反渗透行动正在进行中！](/content/gnews/1/README.md)
- ` 香柏树`
-
-### [YouTube永久关停史蒂夫·班农的“ 战斗室” 频道](/content/gnews/2/README.md)
- ` 秘密翻译组G-Translators`
-
-### [《路德社》精选新闻简讯：光明之子与黑暗之子战斗仍在继续，特朗普会将权力过渡给拜登吗？](/content/gnews/3/README.md)
- ` 路德社精选`
-
-### [苹果公司发24小时通牒威胁下架 Parler应用](/content/gnews/4/README.md)
- ` 秘密翻译组G-Translators`
-
-### [突发新闻：苹果和谷歌威胁要禁止Parler，除非该服务执行大科技寡头要求的严厉审查政策](/content/gnews/5/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [路德社深度揭示“大重启”计划推动的新时代集权统治模式](/content/gnews/6/README.md)
- ` 香柏树`
-
-### [为自由献出生命的爱国者－阿什莉·巴比特](/content/gnews/7/README.md)
- ` 经济金融组`
-
-### [【河北疫情】全员核检后依旧居家隔离的意义何在？](/content/gnews/8/README.md)
- ` XMLYG777`
-
-### [从“只生一个好，政府来养老”到“一个难养老，再生一个好”—— 评中共国计划生育口号变迁与养老谎言](/content/gnews/9/README.md)
- ` XMLYG777`
-
-### [《每日快報-推特永久取消川普總統的賬號- 2021.01.09.》](/content/gnews/10/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [盗窃的艺术——纳瓦罗报告·第二卷（二）](/content/gnews/11/README.md)
- ` 美国纽约七星会农场（原名：为子孙爱七哥农场）`
-
-### [1/9/2021 财经快讯: 中共电信三巨头遭多股指除名, 限塑令落地可引降解材料价格暴涨](/content/gnews/12/README.md)
- ` 秘密翻译组G-Translators`
-
-### [谷歌Play商店暂停Parler，苹果威胁将在数小时内效仿](/content/gnews/13/README.md)
- ` 经济金融组`
-
-### [【周末聊农村】赤脚医生](/content/gnews/14/README.md)
- ` 美国纽约七星会农场（原名：为子孙爱七哥农场）`
-
-### [视频国语【香港快讯】 1.09 -港区国安法的触角伸向丹麦 国安封杀本港网站打响第一枪](/content/gnews/15/README.md)
+### [[战友寄语】人类的大劫难：CCP病毒和毒针](/content/gnews/1/README.md)
  ` 粵語組`
 
-### [【文字版】路德时评2021.01.08早间：习近平1月7日能够“全天”召开会议意味着什么？每一位战友下一步该如何行动](/content/gnews/16/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [《路德时评》重磅爆料习回归至“原始生活”，反渗透行动正在进行中！](/content/gnews/2/README.md)
+ ` 香柏树`
 
-### [【台湾军事】台湾紧接地在2021年进行了首次的导弹测试](/content/gnews/17/README.md)
- ` G-NEWS TAIWAN`
+### [麦金纳尼将军：“接下来的10天将有你在美国从未见过的事情要发生”](/content/gnews/3/README.md)
+ ` HimalayaRussia`
 
-### [1/8/2021 川普总统关于推特禁言的最新声明](/content/gnews/18/README.md)
- ` 秘密翻译组G-Translators`
+### [制度完败人性](/content/gnews/4/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
-### [【香港要闻】揭露港共“尽责护国无惧制裁”的谎言](/content/gnews/19/README.md)
- ` 粵語組`
+### [Covid-19新冠病毒：法国卫生紧急状态再次延期](/content/gnews/5/README.md)
+ ` 喜马拉雅巴黎七星农场`
 
-### [【文心雕龙】以史为鉴！——从欧洲历史到爆料革命](/content/gnews/20/README.md)
- ` 美国纽约七星会农场（原名：为子孙爱七哥农场）`
-
-### [【大选推特/Parler实况】1/8/2021 美国言论自由受审查，川普移至Parler](/content/gnews/21/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【大选推特/Parler实况】1/8/2021 墨西哥总统谴责脸书推特，推特完全中共化](/content/gnews/22/README.md)
- ` 秘密翻译组G-Translators`
-
-### [郭文贵先生今日动态（2021年1月8日）](/content/gnews/23/README.md)
- ` Fightforthetrue`
-
-### [【大选推特/Parler实况】1/8/2021 川普总统正在&#8221;解密深层腐败&#8221;](/content/gnews/24/README.md)
- ` 秘密翻译组G-Translators`
-
-### [郭先生0106: 川普曾经有无数次机会改变局面他会赢但有代价](/content/gnews/25/README.md)
- ` NewFOC`
-
-### [如果拜登当选](/content/gnews/26/README.md)
+### [中共国的经济数据造假：CPI（居民消费价格）下降？](/content/gnews/6/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [每日重要Twitter播报（中文）1/8期](/content/gnews/27/README.md)
- ` 喜馬拉雅多語組`
+### [加拿大曼省老人因买药时未戴口罩刑拷被捕](/content/gnews/7/README.md)
+ ` gnewscanada`
 
-### [【大选推特/Parler实况】1/8/2021 12AM-11PM 朱利安尼|柏乐志|Newsmax|詹姆斯·伍德|Raheem: 闯入国会的人真是MAGA吗?推特正在进行大清洗! Q和 &#8220;信任计划 &#8220;的事情一直玩的是心理战](/content/gnews/28/README.md)
- ` 秘密翻译组G-Translators`
+### [乔·拜登发誓要在任内击败“美国步枪协会”](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [【战友观点】如何从信仰角度理解G系列？](/content/gnews/29/README.md)
- ` 墨尔本雅典娜农场`
+### [突发:蓬佩奥取消了对美国官员与台湾关系的所有限制](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [视频里根总统: 如果政府能给予我们事实, 告诉我们需要做什么, 然后就可以让开, 让我们来予以解决](/content/gnews/30/README.md)
- ` 秘密翻译组G-Translators`
+### [评法国左派政客奥利维尔·杜哈默（Olivier Duhamel）陷入乱伦丑闻及思考](/content/gnews/10/README.md)
+ ` 喜马拉雅巴黎七星农场`
 
-### [视频川普总统: 真正重要的, 不是由哪个政党来掌控我们的政府, 而是我们的政府是否由人民掌控](/content/gnews/31/README.md)
- ` 秘密翻译组G-Translators`
+### [视频【字幕】1/9/2021文贵盖特： 第二次..再次集中回答国内很多战友的一些问题…](/content/gnews/11/README.md)
+ ` Caihongqiao`
 
-### [视频《路德社》新闻快讯（视频版） 2021/01/08 FOX塔克·卡尔森节目:推特在确认拜登掌权后封禁了川普总统的推特帐号;硅谷寡头们比总统拥有更大的权力，它们现在想要所有人都知道这一点](/content/gnews/32/README.md)
- ` 路德社`
-
-### [河北疫情突然爆发，而中共却天天在进口食品里找病毒，忽视大规模人群筛查](/content/gnews/33/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [美国至少有52例CCP病毒变异病例](/content/gnews/34/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [视频1/8/2021 班农战斗室: 如果把这归咎于川普以及川普的支持者的话, 就如同把黑命贵恶行归咎于那些抗议非法谋杀黑人的人们](/content/gnews/35/README.md)
- ` 秘密翻译组G-Translators`
-
-### [俄罗斯上调大豆30%关税粮食危机还远吗？](/content/gnews/36/README.md)
- ` 纽约香草山农场香`
-
-### [视频至暗时刻，网络全面禁声川普总统](/content/gnews/37/README.md)
- ` Himalaya Australia`
-
-### [美国政要每日推特重要信息汇总 （2021.1.8）](/content/gnews/38/README.md)
+### [中共的“文化输出”渗透到美国学校的教科书中](/content/gnews/12/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [视频1/6/2021 华盛顿沼泽里面的大鳄被操控的实锤证据](/content/gnews/39/README.md)
- ` 秘密翻译组G-Translators`
+### [“川普必胜” &#8211; 一封来自委员会主席的信](/content/gnews/13/README.md)
+ ` 喜马拉雅德国慕尼黑感恩农场`
 
-### [视频1/8/2021 班农战斗室: 主流媒体可以试图把迈克·彭斯包装成一个勇气可嘉的形象, 但那是行不通的](/content/gnews/40/README.md)
- ` 秘密翻译组G-Translators`
+### [【看七哥视频】灭共没你不行，灭共靠我们自己，不要让中华大地再次沦为政治交易的砝码！](/content/gnews/14/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [新中国联邦：为什么能成为正义与邪恶之战中的圣哥达隧道与辛普朗隧道？](/content/gnews/41/README.md)
+### [纵有情报分析团队全力淡化 国家情报局仍坚持中共影响大选](/content/gnews/15/README.md)
+ ` gnewscanada`
+
+### [班农战斗室WARROOM精选 628期 布莱恩谈维嘉诺大主教及其采访的重要性 他相信世界有股向善的力量 并看到正在被这巨大重置所威胁](/content/gnews/16/README.md)
+ ` 新闻译制组`
+
+### [【热点播报】多米尼公司对鲍威尔律师提起诽谤诉讼](/content/gnews/17/README.md)
+ ` 纽约香草山农场`
+
+### [喀秋莎新聞參考- 2021年1月8日 (星期五)](/content/gnews/18/README.md)
+ ` HimalayaRussia`
+
+### [视频2021年1月9日CCP冠状病毒大流行第339集 &#8211; GNEWS](/content/gnews/19/README.md)
+ ` 新闻译制组`
+
+### [班农战斗室WARROOM精选 628期 习近平主席达沃斯论坛阐述了持续全球化 本质是为继续奴役中国人而进行辩护的理由](/content/gnews/20/README.md)
+ ` 新闻译制组`
+
+### [油管封杀《班农战斗室》！](/content/gnews/21/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [视频【字幕】1/9/2021文贵盖特： 我们如何看待过去24小时发生的媒体封杀川普总统的这些事情](/content/gnews/22/README.md)
+ ` Caihongqiao`
+
+### [众议院议长佩洛西笔记本电脑丢失，西弗吉尼亚州众议员因其在国会大厦攻陷中的作用被起诉](/content/gnews/23/README.md)
  ` 康州盘古喜马拉雅农场`
 
-### [以资本为手段分化为目的 之全球共产菁英主义](/content/gnews/42/README.md)
- ` G-NEWS TAIWAN`
+### [视频【精华版粤语配音】班农战斗室 627-628期 这封信是维加诺大主教对“深层国家”和“深层教会”的宣战书](/content/gnews/24/README.md)
+ ` 粵語組`
 
-### [关于美国分权制衡制度中私有产权的核心——税权自治的思考与探索](/content/gnews/43/README.md)
- ` 秘密翻译组G-Translators`
+### [班农战斗室WARROOM精选 628期 布莱恩 维嘉诺大主教指出 此次选举的本质与意义是 川普与中共和全球主义者的较量](/content/gnews/25/README.md)
+ ` 新闻译制组`
 
-### [2021-1-8 康州盘古农场本日新闻热点](/content/gnews/44/README.md)
- ` 康州盘古喜马拉雅农场`
+### [中共的謊言：宗教信仰自由](/content/gnews/26/README.md)
+ ` 纽约香草山农场`
 
-### [中共国三大电信运营商终未逃脱摘牌的命运](/content/gnews/45/README.md)
- ` 秘密翻译组G-Translators`
+### [【香港专题】「查册」知多少 (四)土地「查册」 边境官地遭霸占 港深边境「随意门」](/content/gnews/27/README.md)
+ ` 粵語組`
 
-### [解析鲍威尔律师推特被关闭前两日发布的一条重要内容](/content/gnews/46/README.md)
- ` Himalaya Australia`
+### [郭先生0106:与郝海东先生共同分享人活着的意义和独立人格之重要](/content/gnews/28/README.md)
+ ` NewFOC`
 
-### [G系列堪比二战中立国—瑞典](/content/gnews/47/README.md)
- ` Himalaya Australia`
+### [北京统计局一位普通科员的心声](/content/gnews/29/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [War Room 642 总结](/content/gnews/30/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [郭先生0106:赖小民作为不安全的知情者必须死,他只是开头](/content/gnews/31/README.md)
+ ` NewFOC`
+
+### [War Room 641 总结](/content/gnews/32/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【热点播报】彭斯反对根据第25修正案罢免特朗普](/content/gnews/33/README.md)
+ ` 纽约香草山农场`
+
+### [【战友寄语】对初选民主派“大清算”再现中共险恶的居心](/content/gnews/34/README.md)
+ ` 粵語組`
+
+### [郭先生0106:爆料革命基于情报和看透中共准确预测大选的滑稽](/content/gnews/35/README.md)
+ ` NewFOC`
+
+### [War Room 640 总结](/content/gnews/36/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【热点播报】媒体封杀总统，G系列车起航](/content/gnews/37/README.md)
+ ` 纽约香草山农场`
+
+### [推特永久取消川普总统的账号 《每日快报 &#8212; 2021.01.09.》](/content/gnews/38/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [前联合国大使尼基·海莉：让美国人民禁声，这是中共国的行为！](/content/gnews/39/README.md)
+ ` HimalayaRussia`
+
+### [大重置第二部分：新型封建主义&#8212;&#8211;“企业社会主义”](/content/gnews/40/README.md)
+ ` gnewscanada`
+
+### [【香草诗词汇】一剪梅](/content/gnews/41/README.md)
+ ` 纽约香草山农场`
+
+### [习近平怕被活捉躲进地堡，路德爆料加速其末日来到](/content/gnews/42/README.md)
+ ` 恩典农场`
+
+### [2018年美国民主党和共产主义者冲击国会被当“潮流”](/content/gnews/43/README.md)
+ ` gnewscanada`
 

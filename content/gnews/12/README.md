@@ -1,25 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 1/9/2021 财经快讯: 中共电信三巨头遭多股指除名, 限塑令落地可引降解材料价格暴涨
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/734766/)
+## 中共的“文化输出”渗透到美国学校的教科书中
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/735527/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture7.png)图片来源：[https://edition.cnn.com/business](https://edition.cnn.com/business)
-1.中共国电信三巨头被多个股指除名，H股市值合计蒸发56亿美元。指数提供商MSCI明晟、富时罗素，标普道琼斯指数1月8日表示，他们将从指标股指中剔除中共国三大电信企业，显示美国投资禁令的后续影响在扩大，而禁令已导致这三家电信企业股价重挫。
-[https://cn.reuters.com/article/china-telecom-giants-stocks-hk-0109-idCNKBS29E02J](https://cn.reuters.com/article/china-telecom-giants-stocks-hk-0109-idCNKBS29E02J)
+新闻来源：The National Pulse《国家脉动》； 作者：Natalie Winters(娜塔丽•温特斯)； 发布时间：2021年1月7日
 
-2.限塑令首周：可降解塑料袋涨价15%，纸制品24小时满负荷生产。从今年1月1日起，在北京上海等直辖市、省会城市等地买东西不得使用不可降解的塑料袋；一次性塑料吸管也会在全国所有饮料店消失；在地级以上城市景区吃饭，一次性塑料餐具不能“上桌”。
-[http://www.nbd.com.cn/articles/2021-01-08/1592155.html](http://www.nbd.com.cn/articles/2021-01-08/1592155.html)
+翻译/简评：随波逐流；校对/审核：万人往；Page：小雨
 
-3.油价1月8日触及近一年来的最高水平，周度涨幅多达8%左右，受助于沙特减产承诺和主要股市强劲上涨。OPEC+产油国周二达成协议，多数产油国将在2月和3月保持产量不变，以应对新一轮封锁，俄罗斯和哈萨克斯坦小幅增产，另外，作为协议的一部分，沙特阿拉伯将自愿额外减产100万桶/日。
-[https://cn.reuters.com/article/global-oil-drv-0109-idCNKBS29E03K?il=0](https://cn.reuters.com/article/global-oil-drv-0109-idCNKBS29E03K?il=0)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/010904.jpg)
 
-4.美国司法部表示，德意志银行将支付逾1.3亿美元以和解美国政府对一项违反《反海外腐败法》的调查，以及对一项追溯至2006年的大宗商品欺诈计划的调查。
-[https://0xzx.com/2021010906421075114.html](https://0xzx.com/2021010906421075114.html)
+#### **简评：**
 
-5.继上海同仁医院之后，数字人民币在上海的试点又增加一处，陆家嘴中心商场奶茶店支持支付。但当前只有支付宝员工可以使用数字人民币支付，这是内部测试点之一，普通用户暂时还无法使用。
-[http://cj.sina.cn/article/normal\_detail?url=https://finance.sina.com.cn/tech/2021-01-08/doc-iiznezxt1252924.shtml](http://cj.sina.cn/article/normal_detail?url=https://finance.sina.com.cn/tech/2021-01-08/doc-iiznezxt1252924.shtml)
+中共在美国的统战工作从建国起就已经开始了，当时中美还未建交，可是毛泽东支持美国黑人抗暴斗争时，都能将毛主席语录分发到黑人手中。改革开放后，中美两国互通频繁，中共更是以各种各样的交流活动为名，通过在美设立的各种组织、企业或者扶植的代理人等将统战工作深入到美国各个角落，近几年更是愈演愈烈。前几天《国家脉动》曝光了中美交流基金会（CUSEF）资助美国政府高层人士和媒体到中共国旅行、宴请等，以争取美国优惠的对华政策和媒体对中共的“有利报道”，同时勾兑并化解潜在反对中共政策和挑战其执政权威的声音。今天，《国家脉动》又揭露出中美交流基金会已将这一手法用到美国教育系统，正在发起一场重新塑造美国K-12级学校的运动，即从幼儿园到12年级的所有学校，包括试图“影响”教科书，资助帮美国学校设置课程的组织。
 
-By 【Financial Team -Tracy】
+中共这种做法不亚于在美国制造了另一场“文化大革命”。中美交流基金会通过每年组织双方教师和学生的交流，刻意剔除反面消息，掩盖其种种反人类罪行，将编造的“中国好故事”讲给未来几代美国人，呈现给对方的是一个所谓的“和谐”画面。再通过“润物细无声”的方式，在美国学校教育中不断增加中国元素，以有利中共的教育形式重塑美国未来几代人的价值观和世界观，完成一个“洗脑”的过程。这种印象从幼儿园起就深植于孩子们的脑海里，久而久之可达到转变思想、转变观念的目的，渐渐地改变美国人对中共固有的怀疑和不信任，对美国人进行了一场彻底的思想改造。如果任由这种情况发展下去，美国很快就会被共产主义赤化。看看今天美国已被糟蹋成什么样子？去年的Antifa、黑命贵等运动，以及被中共操纵的美国大选和国会山刚刚发生的骚乱，民主法治荡然无存，三权分立完全失去相互制约的功能，对外国政府鼓动的政变毫无还击之力。
 
+但是一个敬畏宪法，有道德、有信仰的国家是不可能被轻易击垮的。震惊和阵痛过后，美国已经觉醒，国家已经下决心清理教育系统，坚决推行教育改革，其它各个领域的清理行动也都在进行中。攘外必先安内，相信等美国大选尘埃落定，内部敌人肃清，川普总统定会带领美国集中力量讨伐中共。
+
+#### **原文翻译：**
+
+# 独家：中共国正在开展一场“影响”美国学校教科书的运动
+
+**由中共国政府资助的中美交流基金会已经发起了一场塑造美国K-12（从幼儿园到12年级）学校的运动，其中包括试图“影响”教科书，以及资助为美国学校设置课程的组织。**
+
+中美交流基金会（CUSEF）由中国人民政治协商会议（CPPCC）副主席创立，该委员会已被美中安全与经济审查委员会确定为“监管中共国统一战线的最高级别实体”。
+
+根据政府报告，这一努力的目的是 “勾兑和化解反对执政的中国共产党的政策和权威的潜在来源”，并推动西方人 “采取支持北京首选政策的行动或立场”。
+
+《国家脉动》已着重报道过该组织为争取西方媒体和前国会代表的“有利报道”所做的努力，现在又揭露了CUSEF对美国学校采取的类似方法。尽管CUSEF向大学一级的学校提出了建议，但鉴于CUSEF向中国共产党妥协的关系，许多学校已经剥离了CUSEF资产。
+
+今天，我们可以揭示，处于K-12级的美国学校也不能免受CUSEF的影响。
+
+#### 被污染的教科书
+
+一份2011年美国司法部的《外国代理人注册法》（FARA）备案文件中透露，中美交流基金会在美国的说客 — BLJ Worldwide公司— 代表中共国政府相关组织做影响美国教科书的工作。
+
+关于被中共军队占领并压制了70多年的西藏，中美交流基金会试图通过“引入”一种强有力的，反事实叙事来应对这一问题，从而捍卫和促进中共国在西藏自治区的行动。
+
+报告继续说：“通过打造一个中共国对西藏影响的真实故事，并做成一份报告以打消局势造成的情绪影响，我们相信我们将有一个强有力的平台来回应中共国的批评家。”
+
+为此，BLJ承诺与美国教科书的“编辑和出版商”联系：
+
+“ BLJ已经进行了教科书分析的第一阶段工作，一旦CUSEF赞助的研究发表并且有材料可以给到相关各方，它将继续与编辑和出版商联系。”
+
+该活动的其他方面包括：
+
+1.发起一场短期的美国运动，以影响主要选区（政客、学者和专家）以及公众对中共国在西藏真正努力和意图的看法
+
+2.将在美国有关西藏问题的辩论转变为减少纯粹的情感争论并促进准确的事实证据的辩论
+
+3.用在西藏大量的教育、基础设施和其他投资的报道 ，制造并宣传描述中共国在西藏的参与和历史的正面的有凝聚力的故事
+
+4.开始实施一项长期战略，以便更好地向下一代美国思想领袖介绍关于中共国和西藏的问题
+
+[!\[\]()!\[\](https://spark.adobe.com/page/V0Sn8Q5wddXa2/images/84797eeb-59c6-436f-8278-59a2ac37b51e.jpg?asset_id=87cc2d79-1b0a-4be2-a049-9ddcc2781a58&amp;img_etag=%224d5cc6717dd2d5e9cf5f91bb5d4b38d9%22&amp;size=1024)](https://spark.adobe.com/page/V0Sn8Q5wddXa2/images/84797eeb-59c6-436f-8278-59a2ac37b51e.jpg?asset_id=87cc2d79-1b0a-4be2-a049-9ddcc2781a58&amp;img_etag=%224d5cc6717dd2d5e9cf5f91bb5d4b38d9%22&amp;size=1024)(BLJ公司备案资料)
+
+#### 共产主义课程
+
+自2008年以来，CUSEF与美国主要组织Primary Source合作，该组织帮助提供给K-12学校“有针对性的课程咨询资源材料”。
+
+Primary Source吹嘘，自1989年以来，它“已经吸引了超过一百万名学生”。马萨诸塞州的私立学校和几个公立学区都与该团体合作。
+
+Primary Source网站显示，CUSEF自2008年以来一直在“为我们的中共国计划提供资金”，并赞助我们的教育工作者前往中共国。
+
+“基金会还资助了由Primary Source组织的两次美国K-12学校老师的学习之旅，Primary Source是马萨诸塞州的一个非营利组织。CUSEF的一本宣传册指出，在2008年和2009年，来自美国新英格兰地区的两组K-12学校老师前往中国进行了为期两周的行程。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/V0Sn8Q5wddXa2/images/6df6abd8-e386-475a-99c5-5da83cba8aec.png?asset_id=1b40dd3b-ae6a-4f6a-a44e-004e0b9ec330&amp;img_etag=%22c9b570f255af5e03e718dc20633c2934%22&amp;size=1024)](https://spark.adobe.com/page/V0Sn8Q5wddXa2/images/6df6abd8-e386-475a-99c5-5da83cba8aec.png?asset_id=1b40dd3b-ae6a-4f6a-a44e-004e0b9ec330&amp;img_etag=%22c9b570f255af5e03e718dc20633c2934%22&amp;size=1024)
+
+CUSEF在其2011年的小册子中还突出强调了多年期交流：
+
+“基金会还将继续与美国非营利组织Primary Source开展合作，该组织将美国K-12教育人员带到中国，并使他们了解中国文化。 通过安排教育者和年轻人的活动，基金会正在培养人和未来思想的关系。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/V0Sn8Q5wddXa2/images/13540859-8ef9-4605-bc89-55ebccc502bc.png?asset_id=bb53f7e0-8d06-4e98-8495-2b449f7055cd&amp;img_etag=%2223bfe3f13515a105a4fddf88a092efb8%22&amp;size=1024)](https://spark.adobe.com/page/V0Sn8Q5wddXa2/images/13540859-8ef9-4605-bc89-55ebccc502bc.png?asset_id=bb53f7e0-8d06-4e98-8495-2b449f7055cd&amp;img_etag=%2223bfe3f13515a105a4fddf88a092efb8%22&amp;size=1024)(CUSEF的中学代表团)
+
+另外，CUSEF还“资助”了洛杉矶的美国高中生“参观北京和上海，并让他们熟悉中国文化”。
+
+同样，自2013年以来，作为CUSEF“支持和资助”的旅行的一部分，芝加哥城市联盟每年派出20名高中生组成的代表团前往中共国。
+
+[原文链接](https://thenationalpulse.com/exclusive/cusef-school-influence-campaign/)
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+编辑：【英国伦敦喜庄园编辑部】[-点击spark adobe版](https://spark.adobe.com/page/V0Sn8Q5wddXa2/)
+[!\[\]()!\[\](https://spark.adobe.com/page/V0Sn8Q5wddXa2/images/e993d517-94d7-483b-b1f7-a633ebe8209a.jpg?asset_id=47b3f530-f442-4981-82c7-5090d65c1cb8&amp;img_etag=%2234e372e20c5705b800bceb7a814f6e38%22&amp;size=1024)](https://spark.adobe.com/page/V0Sn8Q5wddXa2/images/e993d517-94d7-483b-b1f7-a633ebe8209a.jpg?asset_id=47b3f530-f442-4981-82c7-5090d65c1cb8&amp;img_etag=%2234e372e20c5705b800bceb7a814f6e38%22&amp;size=1024)
 +1
