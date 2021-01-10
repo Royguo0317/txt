@@ -1,30 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【看七哥视频】灭共没你不行，灭共靠我们自己，不要让中华大地再次沦为政治交易的砝码！
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/735588/)
+## 大批军队乔装打扮秘密进入北京，中南坑乱成一锅粥，上海蠢蠢欲动
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/735902/)
 
-```
-作者：儒为
-校对/发稿人: Ting Guo
-```
+新闻简述：郭先生在2021年1月5日的盖特视频中描述国内战友透露的重要信息：大批的军队乔装打扮从七个方向秘密进入北京；中南坑乱成一锅粥；中共过去这四个月经济全部拦腰斩；上海蠢蠢欲动准备螳螂捕蝉。
+视频来源：[https://gtv.org/getter/5ff4968787fabe2daf31075b](https://gtv.org/getter/5ff4968787fabe2daf31075b) (00:11-00:47, 01:41-03:41, 04:11-05:01)
+**中英文对照全文**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/image0-2-28.jpg)图片来源: 喜马拉雅意大利罗马达芬奇农场 小布丁奶茶
-七哥视频：灭共没你不行，灭共靠我们自己，中国人不要再依靠任何人了。当年苏联共产党最火的时候，我们当时的五四运动，在苏联共产党最脆弱的时代，我们中国人有机会能像西方世界拥有民主和法制的时候，结果让“共产党这个病毒”趁虚而入，就是我们依靠外援吗。
+00:11-00:47
 
-中国人永远想依靠，八国联军时也依靠，我们过去，中国历史上无数次依靠，就是“依靠、依靠”，中国历史上几乎没有独立的民族的权利、几乎这个国家没完整过。不要看那《大秦赋》那都是胡扯呢，在某种意义上，全部都是被统治者、被奴役者，甚至现在我们很多人还幻想着，最好让别人帮我们完成这个我们现在心中所追求的喜马拉雅目标、实现新中国联邦，这都是幻想做梦。文贵从第一天到现在都要告诉大家：灭共没你不行、灭共靠你自己。以法灭共、以美灭共、以共灭共，永远是我们的战略战术，最终灭共就靠我们自己。
+It is such a mess. In Beijing, many fellow fighters suddenly disappeared. Then I found out what happened: some of our fellow fighters’ phones lost connection. Some emergency happened in Beijing. Yesterday, many troops in disguise secretly entered Beijing from the south, west, southeast, northeast, north, and northwest [of Beijing]. From seven different directions, many troops in disguise entered Beijing. What happened? What was going on?
 
-1945年2月11日，第二次世界大战末期，同盟国为争取苏联对日本宣战，从而减少本国的伤亡，美、英两国在未通知中华民国以及其他盟国的情况下与苏联签订涉及外蒙古以及中国主权的《雅尔达协定》。斯大林曾经对蒋经国说过：老实告诉你，我之所以要外蒙古，完全是站在军事的战略观点而要这块地方的。倘使有一个军事力量从外蒙古向苏联进攻，西伯利亚铁路一被切断，苏联就完了。这也是他坚决要求外蒙古独立的主要原因。
+这真够乱的啊，这个北京啊咱们很多战友，突然间从昨天找不着了。后来我发现咋回事儿啊，咱们有些战友手机不能联系。北京出现了紧急情况。昨天，大批的军队秘密地乔装打扮进入北京，从南部、西部、东南角、东北角、北部、西北角，七个角七个部分（不确定是“七”否为口误还是战略）大量地军队乔装进入北京，发生啥事儿了？咋回事儿啊？
 
-1945年8月8日，德国投降正好三个月，美国对日本使用原子弹之后，苏联和中国成功谈判成功之前，对日宣战。一百五十万苏军在蒙古集结后进攻中国东北、朝鲜等地的日本关东军，其间外蒙古提供后勤并派军队参加了苏军在内蒙古的作战。中速在就外蒙古问题举行谈判时。斯大林坚称外蒙是独立的，谈判开始时，中方坚拒承认外蒙独立，斯大林则称，外蒙问题如无法解决，则条约不能订立，蒋经国对斯大林说：我们的国民一定不会原谅我们，在这样情形之下，国民一定会起来反对政府。斯大林回答：倘使你本国有力量，自己可以打日本，我自然不会提出要求，今天，你没有这个力量，还要讲这些话，就等于废话。结果就是，我中华大地本是一片美丽的秋叶海棠，却被自己的所谓老大哥苏共，这个贪婪的大熊狠狠的在后背上咬了一口，最终变成了一只可怜的落汤小鸡！
+01:41-03:41
 
-中国封建王朝的帝制统治让中国只有“王法”，没有“法律”；中国共产党集共产主义、中国封建帝制、民间流氓土匪习性之大成，让中国没有“法治”，只有“人治”。权、钱、色成为了中国老百姓的信仰，现在就连西方国家的信仰也在被腐蚀。
+People from inside of China sent me a message, “Mr. Guo, could we show each other some grace? And about Lude, could you let him keep his mouth shut? We still have room [for negotiation]. We give each other some leeway.” It means that they are saving our face and we can still make peace with each other. However, I had no idea about what Lude had said. I immediately texted Lude, “What did you say, Lude? Tell me about it.” I said, “you are indeed making trouble for me, and I am cleaning it up for you.” I really didn’t know what he said. I really didn’t know. Of course, later I figured out from which channel Lude got the information. There was a fellow fighter that “betrayed” me and sent the information to Lude rather than me, which is outrageous.
 
-全球灭共的车轮在滚滚向前，不可阻挡，值此之际我们中国人都做了什么？能做什么？新中国联邦、爆料革命给了我们机会参与到这个历史重大变革之中，我们每个人都要行动起来。如果共产党是美国和其他国家灭掉的，中国人没有起到作用，谁能保证我们中国、中国人不会再一次成为各国政治交易的砝码？
+这个国内今天有人给我发信息：“哎，郭先生，咱不能把事儿搞绝了啊。还有那个路波切，让他就别说啦、别说啦。我们还有空间啊，咱们都留着空间呐。” 意思还给我们留面子，还可以讲和啊。但是路德那边讲，我都不知道路德讲啥。后来我赶快发[信息]，我说：“路德，你讲啥啊，路德给我说一说。”我说：“你这真是，你惹麻烦七哥给你背锅。”我真不知道他讲啥，我真不知道。当然啦，后来我就知道路德是哪方面来的渠道啊。这个有战友“出卖”七哥，把这个情报给路德不给我，不像话。
 
-#### 文章仅代表战友个人观点
+Well, I will not talk more about the domestic finance in China. For the economy, I will tell you a simple figure. Our fellow fighter in the Bureau of Statistics told me, “Brother Seven, you probably won’t believe at all about I’m gonna tell you.” He said that in the past 4 months every sector of the economy has declined by 50%. Bad debts in banks have increased by 50%, and that is on the top of the previous 40%. Fellow fighters, now in China, the bad debts in banks account for 65 to 70%. It is said that if the real estate collapses, everything will be over, and if the real estate doesn’t collapse, everything will still be over just at a slower pace.
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/image0-46-scaled.jpg)*[**https://discord.gg/77fCxw5mFv**](https://discord.gg/77fCxw5mFv)
-[**https://**](https://https//discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)*
+但是呢，国内的金融我就不多说了。经济，大家我就告诉大家最简单的一个数字。统计局的战友告诉我说，他说：七哥可能你根本…我跟你说你都不相信。他说：过去这四个月，任何一样[经济]往下跌幅都是拦腰斩。银行的烂账在过去的40[%]基础上又拦腰斩。战友们，现在大家现在国内的银行烂账65 – 70[%]左右。说房地产要倒，一切全完。房地产不倒，一切就是慢点完。
 
-+2
+It is said that the Zhongnan Pit is in a mess: it ordered some data two hours ago, then after two hours it called to use some other data, and after another two hours, the big head (President Xi) would say, “The data are not good and need to be tweaked.” Everyone is at a loss. The rolling pin [fake economy] has been used so frequently that everyone is in panic and not even knowing how to use it anymore.
+
+说现在整个中南坑乱得是一锅粥。说两小时以前下的命令要这个数据，两小时以后打电话要用这个数据，再过两小时说大脑袋说啦，这数据不行，得改这数据。大家无所适从，这擀面杖子老用啊，就用慌了，不知道咋用啦。
+
+But the Whistleblower Movement doesn’t want the Chinese people to live in dire straits. The Whistleblower Movement is happy about this [situation] because the mess of the CCP is the opportunity for us.
+
+但是爆料革命不需要中国人活在水生火热之中，但是爆料革命俺喜欢、俺高兴、俺愿意。共产党乱不就咱的机会嘛。
+
+04:11-05:01
+
+With the limited ability, the CCP doesn’t know that God’s will is indeed standing with the Whistleblower Movement. So many people suddenly got sick, and so many people were killed. Now it is really chaotic. I heard that Shanghai is now waiting for the right moment to take actions. Now, there are people who want to be the mantis…catching the cicada while the oriole is hiding from behind, but the oriole is not necessarily the winner. After I mentioned this yesterday, about the “mantis catching snake”, “mantis catching rat” and “mantis catching bird”, our fellow fighters were really awesome, they figured it all out. It is not a mantis trying to stop a chariot or a mantis trying to stop it using its arm. The mantis ought to eat the snake, then whose animal zodiac is snake? Whose animal zodiac is snake? Whose animal zodiac is rat? I asked you to look into it, but some of you didn’t get it.
+
+共产党那点本事，它不知道天意啊真的站在爆料革命这边。这么多人突然有病啦，这么[多]人被弄死啦。现在真是乱啦。听说上海现在啊，蠢蠢欲动啊。现在有些人想当螳螂…捕蝉黄雀在后，黄雀不一定是赢家。我昨天我推荐以后，战友们螳螂捕蛇、螳螂捕老鼠、螳螂捕鸟。战友们就找到啦，战友你们真厉害。不是螳臂挡车，也不是“螳螂挡臂”。螳螂还得吃蛇，谁属蛇的呀？谁属蛇的呀？谁属鼠的呀？七哥让你们看，你们都没明白啥意思呀。
+
+翻译：【Cyndi】校对：【BruhM】【Isaiah4031】字幕：【Embracer牙牙】听写：【Embracer牙牙】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+
+喜马拉雅玫瑰园小队出品
+
+*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
+
++3

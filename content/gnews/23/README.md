@@ -1,40 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 众议院议长佩洛西笔记本电脑丢失，西弗吉尼亚州众议员因其在国会大厦攻陷中的作用被起诉
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/735393/)
+## 麦金纳尼将军：“接下来的10天将有你在美国从未见过的事情要发生”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/735863/)
 
-翻译： 康州盘古农场 – Antsee-GTV
-校对： 康州盘古农场 – 挺郭大刺猬
-编辑： 康州盘古农场 – V
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-17.png)*2021年1月6日，示威者在国会对2020年总统选举中选举人票认证结果进行辩论时，游行示威者冲破安全防护并进入国会大厦，一名抗议者在美国众议院议长南希·佩洛西办公室留下了一张字条（字条上写着：我们绝不退缩）。*
-**据报道，周三在国会山发生的抗议活动中，众议院议长南希****·佩洛西的笔记本电脑被盗。**
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture2-3.png)（抗议者）闯入位于华盛顿特区的美国国会大厦后，一名抗议者坐在众议院议长南希佩·洛西办公室内。
-**据报道，周五佩洛西的一名助手告诉《路透社》，这台笔记本电脑属于一间会议室，佩洛西用来做演讲演示的用途。她的助手没有在关于电脑上提供更多细节。**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**官方仍未声明他们是否知道是谁拿走了电脑。**
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GENERAL-THOMAS-MCINERNEY-THE-AMERICAN-REPORT-1280.jpg)SOFREP.com
+托马斯·麦金纳尼（Thomas McInerney）将军是越战战斗机飞行员和空中管制员，美国多种勋章获得者。作为川普总统的支持者，他强烈谴责此次大选舞弊行为并建议川普总统采取强硬政策【1】。
 
+今天凌晨，麦金纳尼将军将昨天在白宫的讲话通过推特告知了世界，他说，“周三国会大厦受到冲击过程中，白帽（美国特种部队的一部分）得到了南希佩洛西的笔记本电脑，（这下）她疯了，这就是她推动弹劾川普总统的原因。”【2】
 
+佩洛西笔记本电脑丢失的报道早先来自于《路透社》，佩洛西本人也确认了此消息，文章曾猜想过这是不是巫婆发疯的原因【3】，现在看来并非是空穴来风。
 
-> CONGRESSIONAL AIDE TO SPEAKER PELOSI SAYS LAPTOP WAS STOLEN FROM HER OFFICE IN STORMING OF CAPITOL WEDNESDAY [@Reuters](https://twitter.com/Reuters?ref_src=twsrc%5Etfw)
-> — Heather Timmons (@HeathaT) [January 8, 2021](https://twitter.com/HeathaT/status/1347594114108420096?ref_src=twsrc%5Etfw)
+《我爱川普》（welovetrump）网站发文，题目“麦金纳尼将军说，特种部队得到了佩洛西的笔记本电脑：‘（她有）叛国罪！’”。
 
+援引自此文章内容（原文配了4段视频）：【4】
 
+”我一直在告诉你，接下来的10天将有你在美国从未见过的事情要发生。现在不仅仅是我告诉你。
 
-*推特译文：议长佩洛西的国会助手说，在周三国会大厦被闯入时，笔记本电脑在议长办公室被盗**—希瑟·蒂蒙斯（@HeathaT）2021年1月8日*
+三星将军怎么样？
 
-同时，西弗吉尼亚州的一名议员正面临与国会大厦抗议活动有关的联邦指控。周五，美国检察官办公室宣布德里克·埃文斯（Derricks Evans）被指控进入禁区。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture3-3.png)*西弗吉尼亚州众议院议员德里克·埃文斯（Derrick Evans）是2020年12月14日在西弗吉尼亚州查尔斯顿州国会大厦的众议院宣誓就职的。埃文斯录制了自己和抗议者在2021年1月6日星期三闯入华盛顿特区美国国会大厦的视频。要求他辞职的电话和网络上支持将他开除的请愿签名已达数千个之多。*
-报道说，该议员直播了自己冲向美国国会大厦的视频，但此后从他的脸书Facebook页面删除了此录像。
+麦金纳尼将军刚刚发布了几段视频，他把国会大厦发生的一切都说了出来。
 
-埃文斯声称他只是在那里拍摄历史，与执法部门之间没有任何负面互动，也没有参与任何破坏。 埃文斯案是示威活动后美国检察官办公室正在处理的几十起案件之一。
+不是你想的那样！
 
-源自：OAN（美国第一新闻网）新闻室 / 2021年1月8日
+同时进行了几次特别行动。
 
-原文链接： [https://www.oann.com/reports-house-speaker-pelosis-laptop-missing-w-va-delegate-charged-for-his-role-in-capitol-breach/](https://www.oann.com/reports-house-speaker-pelosis-laptop-missing-w-va-delegate-charged-for-his-role-in-capitol-breach/)
+你听说过那些装备很重的人吗？
 
+那些是白帽子。
 
+他们进去查获了多件证据，包括南希·佩洛西的笔记本电脑。”
 
+文章作者接着说到：因为我知道这些很快就会从Twitter上消失，所以我把它们都保存了下来。把他们合在一个视频，保存在《鲁姆博》（Rumble）里。
 
+文章引用 《情报收集》（Intellihub）的内容：这位曾在美国总统手下服役的前中将说，佩洛西“发疯了”，因为她知道自己的笔记本电脑在混乱中失踪了。
 
-0
+“这是叛国罪，”麦金纳尼解释说，“他们很害怕，因为他们（特种部队）得到了这些资料。”
+
+“一些特种部队的人混合在安提法（Anifa）队伍里，他们拿走了她的笔记本电脑，他们获得了数据。”
+
+……
+
+“接下来的10天将有你在美国从未见过的事情要发生”。
+
+文贵先生早就说过，不到1月20日都是过程，不是结果！！！
+
+参考链接：
+
+【1】https://en.wikipedia.org/wiki/Thomas\_McInerney
+
+【2】https://twitter.com/lyne\_ian/status/1347829726941888514
+
+【3】https://gnews.org/zh-hans/731058/
+
+【4】https://welovetrump.com/2021/01/09/gen-mcinerny-says-special-ops-got-pelosis-laptop-this-is-high-treason/
+
++2

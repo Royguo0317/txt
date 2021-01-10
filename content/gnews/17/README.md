@@ -1,25 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】多米尼公司对鲍威尔律师提起诽谤诉讼
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/735562/)
+## 【每日快讯】09/01/2021:2021将比2020糟糕得多得多得多！习近平被植入定位芯片
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/736108/)
 
-【热点播报】多米尼公司对鲍威尔律师提起诽谤诉讼
+**制作:Cantonese工作室**
+播报：鱼摆摆（文驋）
+<br>资料收集：Cathy、Ruby三鑫、Elaine Lei 、美国小李、鱼摆摆
+<br>视频制作：Shawn
+<br>海报制作：侬民、文绉绉
+**摘要:**
 
-作者: 香草山写作组 直截了当
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-5.jpg)
-据华盛顿邮报报道,多米尼投票系统公司(Dominion Voting System)周五对悉尼·鲍威尔(Sidney Powell)律师提起诽谤诉讼，要求赔偿超过13亿美元。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-9.jpg)
-此前，鲍威尔提起多个诉讼揭露大规模的2020年美国选举欺诈，指控称多米尼公司使用中共的资金在委内瑞拉建立的选举舞弊系统，并利用这些能力操纵了2020年美国大选的结果。多米尼公司称鲍威尔散布 “疯狂 “和 “明显虚假 “的指控，包括多米尼投票系统帮助从特朗普总统手中窃取2020年大选的选票。由于鲍威尔发动的 “虚假”指控，使其声誉和转售价值受到了严重损害。鲍威尔随后在推特上回应称，多米尼的诉讼是没有事实依据的，是对她的骚扰恐吓, 她是不会畏惧的。
-
-在这份诉状中多米尼公司”故意”漏掉了针对中共的指控，只提到了古巴与委内瑞拉。本次多米尼公司的动作不排除是中共在背后操纵的对鲍威尔律师的报复，这种秋后算账的行为也是中共的惯用伎俩。
-
-1月7日凌晨副总统彭斯认证拜登当选下任总统的过程中，本应代表民意的国会议员不但对人民的声音充耳不闻，还指鹿为马的否认大选中的舞弊行为。此前，地方法院与联邦最高法院也拒绝对各州大选舞弊进行追查。美国三权分立体系的立法与司法的公正性令人遗憾地荡然无存。中共对美国全面渗透的3F计划似乎已经接近成功，而很多美国人还没有意识到中共的邪恶计划。我们必须更快更广的传播中共真相，不论是身边还是社交媒体，现在已经是最终的决战时刻了。
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-+2
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210109-zhCN-01.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210109-zhCN-02.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210109-zhCN-03.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210109-zhCN-04.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210109-zhCN-05.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210109-zhCN-06.jpg)
+7.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210109-zhCN-07.jpg)
+8.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210109-zhCN-08.jpg)
+9.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210109-zhCN-09.jpg)
+10.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210109-zhCN-10.jpg)
+0
