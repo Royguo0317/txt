@@ -1,101 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/9/2021 禁言,妖魔化都是左派的手段。这揭示了他们真正的计划: 废除宪法, 社会主义。这都是中共引以为豪的…
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/736230/)
+## 美事实上承认台湾政体，包子会选择哪一种死法？
+` 恩典农场` [轉載自GNews](https://gnews.org/zh-hans/736369/)
 
-**【大选实况】1/9/2012 EST 10:58 AM 国会议员Ken Buck推文：**
+(編輯/校对：Porsche)
 
-阻止Google和Facebook等大科技公司审查保守派的唯一方法是拽住其反竞争行为（垄断）的缰绳。 他们之所以可以审查你，因为他们是垄断者。
+摘要：美国正式取消与台湾互动的所有自我限制，将台湾民主政体与北京独裁政体并列，事实上全面承认了台湾的主体地位。中共照例口炮回应后，只有两个选择：主动出击或者默认事实。任何一种选择的结局都是死，只是快和慢的区别。蓬佩奥呼应路德社，谈巴黎气候协定对美就业的伤害。路德再次分析该协定的背后阴谋是奴役全世界。
 
+**美取消与台关系的所有限制，不再安抚北京的共产党政权**
 
+蓬佩奥今天宣布，取消与台湾同行互动的所有自我限制，行政部门各机构应将此前所有关于对台关系的“接触准则”视为作废，并称此举将使美台两个伟大的民主实体受益。他说，美国政府数十年采取的这些自我限制行动是为了安抚北京的共产党政权，但今后“不会再这样了”。
 
-> The only way to stop Big Tech companies like Google and Facebook from censoring conservatives is to rein in their anticompetitive behavior.
-> 
-> They can censor you because they are a monopoly.
-> — Congressman Ken Buck (@RepKenBuck) [January 9, 2021](https://twitter.com/RepKenBuck/status/1347935820108488706?ref_src=twsrc%5Etfw)
+**美台关系出现重大转变**
 
+蓬佩奥的官方声明，第一次将台湾的光彩夺目的民主政体与北京的共产独裁政体并列，通篇没有提中国二字，没有涉及独立问题，理论上没有违反中美建交公报。
 
-来源：[https://twitter.com/repkenbuck/status/1347935820108488706?s=21](https://twitter.com/repkenbuck/status/1347935820108488706?s=21)
-盖特链接：[https://gtv.org/getter/5ffa1aa487fabe2daf344e33](https://gtv.org/getter/5ffa1aa487fabe2daf344e33)
+蓬佩奥讲话后，短期内各部门就会进行正常接触，包括国防部、军队和大使级别接触。
 
-* * *
+可以预料，接下来一系列的动作将包括，宣布中共共产党为跨国犯罪组织、中共政权非法，官方正式承认台湾政权的合法性，中共在海外的资产开始移交给真正代表未来中国的机构。
 
-**【大选实况】1/9/2021 美东时间 11:08AM Laura Ingraham 发推：**
+**中共的口炮回应**
 
-禁言，妖魔化、控制都是左派的手段。 这揭示了他们真正的计划。彻底废除宪法，社会主义，彻底的统治。 这都是中共引以为豪的。
+中共瑟瑟发抖，马上予以强烈谴责，再次宣称“中华人民共和国是代表中国的唯一合法政府”，并威胁“如果华盛顿继续派凯利正式访问台湾，它将付出沉重的代价”。我们都很期待，看看中共会让美国付出什么代价？
 
+**中共是猝死****还是凌迟死，就看包子**
 
+中共是否会按包子在民主生活会上所说的，进行主动出击？还是乌龟认怂？
 
-> Silencing, demonizing, controlling is all the Left has. This reveals their true agenda. Total evisceration of Constitution. Socialism. Total domination. The CCP’s proud.
-> — Laura Ingraham (@IngrahamAngle) [January 9, 2021](https://twitter.com/IngrahamAngle/status/1347938331913498624?ref_src=twsrc%5Etfw)
+此时如果中共对台湾开战，正中美国下怀，川普顺利成为战时总统，在短期内灭掉中共的同时、顺便实现连任。如果中共继续认怂、没实质反应，接下来将是美台建交，大中华区在事实上出现两个国家。
 
+**蓬佩奥****呼应路德社，讲巴黎协定对美的伤害**
 
-来源： [https://twitter.com/IngrahamAngle/status/1347938331913498624](https://twitter.com/IngrahamAngle/status/1347938331913498624)
-盖特链接：[https://gtv.org/getter/5ffa032c87fabe2daf343cc4](https://gtv.org/getter/5ffa032c87fabe2daf343cc4)
+蓬佩奥说，如果美国加入巴黎气候协定，到2025年将会失去270万个就业岗位。
 
-* * *
+该协定短期来看，是发展中国家对发达国家的敲诈，将发达国家的资金、技术和产业链合法转移至发展中国家。
 
-**【大选实况】1/9/2021 美东时间 11:52AM 突发新闻：**
+长期看，其真正的阴谋是，将科学、技术、大数据当作统治人类的新型宗教和工具，实现他们在全球商业上的垄断、话语权的垄断、市场上的垄断，实现对全世界民众在经济上的绑架，最后取消民众的拥枪权，实现对民众自由的彻底剥夺，完成他们奴役全世界的梦想。
 
-川普政府的前美国常驻联合国代表尼基-海利说，推特对川普的禁令是 “在中共国才会发生的事“。
+具体操作大致是这样的：以气候协定为依据修改宪法，从法律上限制每个人的用电额度，同时电量的计数由他们说了算不接受民众质疑，不听话的随时给断电，尤其是在反对派投票时给你断电，从而达到控制人们一切行为的目的。
 
+**一句话新闻：**
 
+英国目前每30人已经有1人感染
 
-> Breaking: Nikki Haley says Twitter’s ban of Trump is ‘what happens in China’ | Just The News [https://t.co/OKOFdMTPM7](https://t.co/OKOFdMTPM7)
-> — John Solomon (@jsolomonReports) [January 9, 2021](https://twitter.com/jsolomonReports/status/1347949330368503811?ref_src=twsrc%5Etfw)
+昨天发射完土耳其卫星后，今天SpaceX火箭的两个整流罩回收成功
 
+罗斯福号航空母舰从夏威夷出发，将在两天后进入台湾海峡
 
-来源：[https://twitter.com/jsolomonReports/status/1347949330368503811?s=20](https://twitter.com/jsolomonReports/status/1347949330368503811?s=20)
-盖特链接：[https://gtv.org/getter/5ffa044c87fabe2daf343d8f](https://gtv.org/getter/5ffa044c87fabe2daf343d8f)
+印尼一架从雅加达飞往加里曼丹的航班在起飞10分钟后失联，机上有53 名乘客、6名机组人员
 
-* * *
+#CCP\_is\_terrorist   #TakeDownTheCCP
 
-**【大选实况】1/9/2021 EST 11:09am蓬佩奥推文：**
-
-控制言论是非常危险的。这不是美国的作风。悲哀的是，这不是左派的新招数。他们已经试图控制对手的言论很多年了。 我们不能让他们噤声七千五百万美国人，这里不是中共国。
-
-
-
-> Silencing speech is dangerous. It’s un-American. Sadly, this isn’t a new tactic of the Left. They’ve worked to silence opposing voices for years. 
-> 
-> We cannot let them silence 75M Americans. This isn’t the CCP.
-> — Mike Pompeo (@mikepompeo) [January 9, 2021](https://twitter.com/mikepompeo/status/1347938581424312331?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/mikepompeo/status/1347938581424312331?s=20](https://twitter.com/mikepompeo/status/1347938581424312331?s=20)
-盖特链接：[https://gtv.org/getter/5ffa15ee87fabe2daf344a7a](https://gtv.org/getter/5ffa15ee87fabe2daf344a7a)
-
-* * *
-
-**【大选实况】1/9/2021 美东时间 12:26PM The Dirty Truth (Josh) 推文：**
-
-达美航空特意降落飞机将这些人逐下飞机，因为他们正在私下里谈论支持川普总统。
-
-
-
-> Delta airline landed a plane to remove these people because they was having a private conversation about supporting President Trump. [pic.twitter.com/x1o9yeKVjb](https://t.co/x1o9yeKVjb)
-> — The Dirty Truth (Josh) (@AKA\_RealDirty) [January 9, 2021](https://twitter.com/AKA_RealDirty/status/1347957967619022848?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/AKA\_RealDirty/status/1347957967619022848](https://twitter.com/AKA_RealDirty/status/1347957967619022848)
-盖特链接：[https://gtv.org/getter/5ffa153687fabe2daf3449d6](https://gtv.org/getter/5ffa153687fabe2daf3449d6)
-
-* * *
-
-**【大选实况】1/9/2021 美东时间 13:03PM 章家敦推文：**
-
-沃尔玛为了迎接拜登入职总统大位，取消了与美国内供应商的订单，将订单发往中国工厂。所以，打着美国国旗的沃尔玛是极其自私的。它真正是忠于金钱，忠于中共国。
-
-
-
-> [#Walmart](https://twitter.com/hashtag/Walmart?src=hash&amp;ref_src=twsrc%5Etfw), in anticipation of [#Biden](https://twitter.com/hashtag/Biden?src=hash&amp;ref_src=twsrc%5Etfw)'s presidency, is cancelling orders it had placed with domestic suppliers and sending them to [#Chinese](https://twitter.com/hashtag/Chinese?src=hash&amp;ref_src=twsrc%5Etfw) factories. So Walmart flying the [#American](https://twitter.com/hashtag/American?src=hash&amp;ref_src=twsrc%5Etfw) flag is cynical. It is really loyal to money and to [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPChina](https://twitter.com/hashtag/CCPChina?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Gordon G. Chang (@GordonGChang) [January 9, 2021](https://twitter.com/GordonGChang/status/1347967352562978816?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/GordonGChang/status/1347967352562978816](https://twitter.com/GordonGChang/status/1347967352562978816)
-盖特链接：[https://gtv.org/getter/5ffa0b2c87fabe2daf34423e](https://gtv.org/getter/5ffa0b2c87fabe2daf34423e)
-
-**By： 【秘密翻译组 G-Translators】**
-
-0
++5

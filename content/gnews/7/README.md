@@ -1,40 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普竞选团队被邮件服务商暂停服务后，被禁止给支持者发邮件
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/736779/)
+## 金正恩表示要加强与俄罗斯的关系
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/736872/)
 
-翻译：康州盘古农场-挺郭大刺猬
-校对：康州盘古农场-Freeearth
-审核：康州盘古农场-V
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-19.png)图片：thegatewaypundit.com
-川普竞选团队在被其电子邮件服务提供商暂停服务后，现在被阻止向他们的数百万支持者发送电子邮件。
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭ССР
 
-暂停发生在美国总统唐纳德.川普和他的竞选团队被永久禁止使用推特之后不久，
+编辑上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/39449848a1c63829ad53ae731d30e967__1440x.jpg)newalternative
+1月9日，朝鲜中央电讯社报道，朝鲜领导人金正恩发表声明，“朝鲜将继续发展与俄罗斯的双边关系，朝鲜为扩大和发展与俄罗斯的友好关系已经奠定了深厚基础。”
 
-电子邮件服务Campaign Monitor向《金融时报》的Dave Lee证实了该账户的暂停。
+此外，这位政治家还指出，要发展与中共国的兄弟关系。金正恩还称美国是朝鲜的主要敌人。
 
-*国民评论（**The Nationalist Review）报告说：”此举有效地切断了他的团队和他的核心支持者之间的沟通。但**尚**不清楚的是，还有哪些服务禁止了他的团队。川普竞选团队发出了大量的电子邮件–1月份至今已有33封。但是，该竞选活动已经48小时没有通过电子邮件与支持者联系了，这促使大多数记者猜测，其他供应商也已经关闭了访问权限。”*
+金正恩表示：”我们今后的对外政策活动，应以压制和制服美国为重点，美国是我们革命发展道路上的主要障碍和最大敌人”。俄罗斯总统普京早前在给金正恩的贺电中指出，俄罗斯和朝鲜历来是友好睦邻的关系，双方的合作支持了该地区的安全。
 
+金正恩作为80后最年轻的领导人，其思想及性格因受到西方国家教育的影响，固然比其父亲更开放、明智。目前美国大选尘埃未定，他未发表明确支持哪一方的定论，但从之前在新加坡与川普总统会晤的结果来看，这位年轻的政治新秀有可能与川普总统、蓬佩奥国务卿达成一致共识，接下来等1月20日大选结果确定后，其可能会明确立场。
 
+金正恩上位之前，中共一直利用朝鲜要挟美国。金正恩深知中共的假大空骗，所以也利用中共的集权体制来玩弄中共。关于俄罗斯，金正恩不会去招惹是非，与普京也会私下沟通如何应付中共。国际形势千变万化，以不变应万变应该是朝鲜最好的选择！
 
-> There hasn't been any Trump emails for more than 48 hours. Almost unheard of — he sent 33 in the first six days of Jan; 2,500+ last year. (h/t [@TrumpEmail](https://twitter.com/TrumpEmail?ref_src=twsrc%5Etfw)) 
-> 
-> At least one of the services the team used, [@CampaignMonitor](https://twitter.com/CampaignMonitor?ref_src=twsrc%5Etfw), has suspended Trump's access, the company confirmed.
-> — Dave Lee (@DaveLeeFT) [January 9, 2021](https://twitter.com/DaveLeeFT/status/1347724201331814401?ref_src=twsrc%5Etfw)
-
-
-
-*推特译文： 已超过**48小时没有任何川普的邮件。几乎闻所未闻–他在1月的前六天发送了33个邮件；去年有2500多个邮件。（向@TrumpEmail团队致敬）该公司已经证实，该团队使用的至少一项服务@CampaignMonitor，已经暂停了川普的访问权限。*
-
-Campaign Monitor在一份声明中声称，竞选活动可能有其他方法向支持者发送电子邮件。
-
-Campaign Monitor在一份关于禁令的声明中表示，”与唐纳德.川普竞选活动相关的自助服务账户已于今天（2021年1月7日）被暂停。通常情况下，政治竞选活动使用多个电子邮件服务提供商来发送竞选、筹款和其他电子邮件。基于Campaign Monitor账户发送的电子邮件数量较少，这很可能是竞选活动总电子邮件活动中的很小一部分。”
-
-原文作者：卡桑德拉-费尔班克斯（Cassandra Fairbanks）
-
-发布时间：2021年1月8日下午9:57
-
-文章链接： https://www.thegatewaypundit.com/2021/01/trump-campaign-banned-emailing-supporters-suspended-mail-service-provider/
+参考链接：[https://www.rbc.ru/rbcfreenews/5ff91fe79a7947cfee1c422e](https://www.rbc.ru/rbcfreenews/5ff91fe79a7947cfee1c422e)
 
 0

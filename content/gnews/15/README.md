@@ -1,21 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 大型科技公司正在疯狂打压挺川者的言论自由
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/736580/)
+## 川普竞选团队被邮件服务商暂停服务后，被禁止给支持者发邮件
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/736779/)
 
-加拿大草原三省战友团 马马虎虎
-校对 文锦 发稿 云起时
-![]()![](https://gnews.org/wp-content/uploads/2021/01/naturalnews.jpg)图片来源：Naturalnews
-据DJHJ 媒体1月9日报道，脸书、推特以及亚马逊正在大规模关闭保守党的个人或团体的账户，包括“停止偷票”集会活动的组织者阿里·亚历山大（Ali Alexander），迈克尔·库德雷（Michael Coudrey），迈克·弗林将军（Mike Flynn），和挺川的两位大律师西德尼·鲍威尔（Sidney Powell）和林·伍德（Lin Wood）。 昨天，推特永久禁止了成百上千个川普支持者和主要盟友的推特账号，随后甚至禁止了川普总统本人的账号。几乎所有宣传“停止偷票”集会或挑战选举结果的账户都被禁止。
+翻译：康州盘古农场-挺郭大刺猬
+校对：康州盘古农场-Freeearth
+审核：康州盘古农场-V
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-19.png)图片：thegatewaypundit.com
+川普竞选团队在被其电子邮件服务提供商暂停服务后，现在被阻止向他们的数百万支持者发送电子邮件。
 
-其它的科技公司应和这些社交媒体大鳄，做着同样龌龊的事情。 有关川普总统加入了帕勒 （Parler）的传言一散开，苹果和谷歌商店就对帕勒（Parler）发出警告，如果帕勒（Parler）在24小时之内不推行平台审核制度，那苹果和谷歌就会让这个应用程序下架。
+暂停发生在美国总统唐纳德.川普和他的竞选团队被永久禁止使用推特之后不久，
 
-苹果在1月6日给帕勒高层领导的一封电子邮件中写道：“我们收到了很多有关在帕勒平台上发布的令人反感的内容的投诉，指责帕勒（Parler）应用程序被用于计划，协调和促进非法活动。” “该应用程序似乎仍将继续用于计划和促进进一步的非法和危险活动。”
+电子邮件服务Campaign Monitor向《金融时报》的Dave Lee证实了该账户的暂停。
 
-评：
-在这场正邪的战斗中，这些靠着和中共资本勾兑而壮大的科技公司已经完全不顾颜面， 将遮羞布完全撤下， 露出其共产主义邪恶独裁的本质和野心。它们有计划、有组织地对正义力量进行舆论上的攻击， 把正义力量栽赃成危险的、 甚至是非法的活动，再借正义之名打压，甚至完全剥夺公民发声的权利，这种做法和中共极其相似。多行不义必自毙，它们必然和中共独裁政权一样，被人民所抛弃。
+*国民评论（**The Nationalist Review）报告说：”此举有效地切断了他的团队和他的核心支持者之间的沟通。但**尚**不清楚的是，还有哪些服务禁止了他的团队。川普竞选团队发出了大量的电子邮件–1月份至今已有33封。但是，该竞选活动已经48小时没有通过电子邮件与支持者联系了，这促使大多数记者猜测，其他供应商也已经关闭了访问权限。”*
 
-[原文链接](https://djhjmedia.com/steven/big-tech-launches-massive-coordinated-cyber-attack-on-74000000-trump-voters-gop-silent/)
+
+
+> There hasn't been any Trump emails for more than 48 hours. Almost unheard of — he sent 33 in the first six days of Jan; 2,500+ last year. (h/t [@TrumpEmail](https://twitter.com/TrumpEmail?ref_src=twsrc%5Etfw)) 
+> 
+> At least one of the services the team used, [@CampaignMonitor](https://twitter.com/CampaignMonitor?ref_src=twsrc%5Etfw), has suspended Trump's access, the company confirmed.
+> — Dave Lee (@DaveLeeFT) [January 9, 2021](https://twitter.com/DaveLeeFT/status/1347724201331814401?ref_src=twsrc%5Etfw)
+
+
+
+*推特译文： 已超过**48小时没有任何川普的邮件。几乎闻所未闻–他在1月的前六天发送了33个邮件；去年有2500多个邮件。（向@TrumpEmail团队致敬）该公司已经证实，该团队使用的至少一项服务@CampaignMonitor，已经暂停了川普的访问权限。*
+
+Campaign Monitor在一份声明中声称，竞选活动可能有其他方法向支持者发送电子邮件。
+
+Campaign Monitor在一份关于禁令的声明中表示，”与唐纳德.川普竞选活动相关的自助服务账户已于今天（2021年1月7日）被暂停。通常情况下，政治竞选活动使用多个电子邮件服务提供商来发送竞选、筹款和其他电子邮件。基于Campaign Monitor账户发送的电子邮件数量较少，这很可能是竞选活动总电子邮件活动中的很小一部分。”
+
+原文作者：卡桑德拉-费尔班克斯（Cassandra Fairbanks）
+
+发布时间：2021年1月8日下午9:57
+
+文章链接： https://www.thegatewaypundit.com/2021/01/trump-campaign-banned-emailing-supporters-suspended-mail-service-provider/
 
 0

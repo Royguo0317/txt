@@ -1,107 +1,92 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/9/2021 大科技公司的清洗, 审查和滥用权力是荒唐的, 也是极其危险的&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/736161/)
+## 【大选推特/Parler实况】1/9/2021 蓬佩奧取消了对行政分支机构与台湾同行互动所施加的所有限制&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/736347/)
 
-**【大选实况】1/9/2021 美东时间9:54AM 克鲁兹 Ted Cruz发推： **
+**【大选实况】1/9/2021 EST 4:10 PM 蓬佩奧 推文：**
 
-大科技公司的清洗、审查和滥用权力是荒唐的，也是极其危险的。 如果你同意科技公司目前的偏见（伊朗，好的；特朗普，坏的），问问自己，当你不同意时会发生什么？ 为什么少数硅谷亿万富翁要垄断政治言论
+今天，我取消了对行政分支机构与台湾同行互动所施加的所有限制。 这一行动将使我们两个伟大的民主国家受益。
 
 
 
-> Big Tech’s PURGE, censorship & abuse of power is absurd & profoundly dangerous.
+> Today, I am lifting all self-imposed restrictions on executive branch agencies’ interactions with their counterparts from Taiwan. This action will benefit both of our great democracies. [https://t.co/JmxE5jsZYf](https://t.co/JmxE5jsZYf)
+> — Secretary Pompeo (@SecPompeo) [January 9, 2021](https://twitter.com/SecPompeo/status/1348014204066934785?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348014204066934785?s=21](https://twitter.com/secpompeo/status/1348014204066934785?s=21)
+盖特链接：[https://gtv.org/getter/5ffa732287fabe2daf34a874](https://gtv.org/getter/5ffa732287fabe2daf34a874)
+
+* * *
+
+**【大选实况】1/9/2021 EST 4:30pm ZeroHedge推文： **
+
+美国广播公司新闻呼吁“清洗”川普的支持者
+
+
+
+> ABC News Calls For "Cleansing" Of Trump Supporters [https://t.co/Fn1vWI2XNa](https://t.co/Fn1vWI2XNa)
+> — zerohedge (@zerohedge) [January 9, 2021](https://twitter.com/zerohedge/status/1348019370929385476?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/zerohedge/status/1348019370929385476](https://twitter.com/zerohedge/status/1348019370929385476)
+盖特链接：[https://gtv.org/getter/5ffa4bb587fabe2daf347dbf](https://gtv.org/getter/5ffa4bb587fabe2daf347dbf)
+
+* * *
+
+**【大选实况】1/9/2021 EST 6:04 pm 拉西姆Raheem的推文： **
+
+现在，每一集现在都将每天出现在《国家脉动》中！
+
+
+
+> Every episode will now also be on The National Pulse each day! 🥳 [https://t.co/Hi5yw4WS7J](https://t.co/Hi5yw4WS7J)
+> — Raheem Kassam (@RaheemKassam) [January 9, 2021](https://twitter.com/RaheemKassam/status/1348043082181308417?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/raheemkassam/status/1348043082181308417?s=21](https://twitter.com/raheemkassam/status/1348043082181308417?s=21)
+盖特链接：[https://gtv.org/getter/5ffa4bca87fabe2daf347dd9](https://gtv.org/getter/5ffa4bca87fabe2daf347dd9)
+
+* * *
+
+**【大选实况】1/9/2020 EST 6:00 PM 林伍德发Parler：**
+
+川普誓言要维护宪法，清理多年来中共及和中共勾结的坏人和叛国者。 安全起见，准备10～12天的食物和水，以防他们制造混乱。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-10-at-2.00.18-pm.png)来源：[https://parler.com/post/77aceb08c2df499faf017bbffee0fdf1](https://parler.com/post/77aceb08c2df499faf017bbffee0fdf1)
+盖特链接：[https://gtv.org/getter/5ffa41c987fabe2daf347318](https://gtv.org/getter/5ffa41c987fabe2daf347318)
+
+* * *
+
+**【大选实况】1/9/2021 美东时间19:11PM 麻省理工学院博士Dr.Shiva Ayyadurai发推: **
+
+作为Email的发明人，我将为大家提供一个可以击垮“科技巨头”的平台。 我保证。
+
+
+
+> As the Man Who Invented Email. I will deliver you a platform that will Destroy [#BigTech](https://twitter.com/hashtag/BigTech?src=hash&amp;ref_src=twsrc%5Etfw). 
 > 
-> If you agree w/ Tech’s current biases (Iran, good; Trump, bad), ask yourself, what happens when you disagree?
-> 
-> Why should a handful of Silicon Valley billionaires have a monopoly on political speech? [https://t.co/ehgVYtHX7H](https://t.co/ehgVYtHX7H)
-> — Ted Cruz (@tedcruz) [January 9, 2021](https://twitter.com/tedcruz/status/1347919674101657602?ref_src=twsrc%5Etfw)
+> I promise.
+> — Dr.SHIVA Ayyadurai, MIT PhD. Inventor of Email (@va\_shiva) [January 10, 2021](https://twitter.com/va_shiva/status/1348059838551650304?ref_src=twsrc%5Etfw)
 
 
-来源：[https://twitter.com/tedcruz/status/1347919674101657602](https://twitter.com/tedcruz/status/1347919674101657602)
-盖特链接：[https://gtv.org/getter/5ffa199587fabe2daf344d4b](https://gtv.org/getter/5ffa199587fabe2daf344d4b)
+来源：[https://twitter.com/va\_shiva/status/1348059838551650304](https://twitter.com/va_shiva/status/1348059838551650304)
+盖特链接：[https://gtv.org/getter/5ffa68a187fabe2daf349d40](https://gtv.org/getter/5ffa68a187fabe2daf349d40)
 
 * * *
 
-**【大选实况】1/9/2021 美东时间9:54AM 川普2020竞选团队高级顾问Steve Cortes发推：**
+**【大选实况】1/9/2021 美东时间 20:25PM Breaking911推文： **
 
-YouTube禁止了班农的战斗室，因为它是最重要的直播节目。现在比以往任何时候都更重要的是要知晓史蒂夫·班农，Raheem Kassam，Jack Maxey，Greg\_Manz，以及其它了不起的节目上客人的见解。 请在这里观看： [pandemic.warroom.org](http://pandemic.warroom.org)
-
-
-
-> YouTube banned Bannon’s War Room because it’s the most consequential show on air. More important than ever to catch the insights of Steve, ⁦[@RaheemKassam](https://twitter.com/RaheemKassam?ref_src=twsrc%5Etfw)⁩, ⁦[@JackMaxey1](https://twitter.com/JackMaxey1?ref_src=twsrc%5Etfw)⁩, ⁦[@Greg\_Manz](https://twitter.com/Greg_Manz?ref_src=twsrc%5Etfw)⁩ & terrific guests.
-> 
-> Watch here:[https://t.co/7mpcpTEfhL](https://t.co/7mpcpTEfhL) [pic.twitter.com/Sa2AClq7KS](https://t.co/Sa2AClq7KS)
-> — Steve Cortes (@CortesSteve) [January 9, 2021](https://twitter.com/CortesSteve/status/1347919618246144001?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/cortessteve/status/1347919618246144001?s=12](https://twitter.com/cortessteve/status/1347919618246144001?s=12)
-盖特链接：[https://gtv.org/getter/5ffa114287fabe2daf34466](https://gtv.org/getter/5ffa114287fabe2daf344669)
-
-* * *
-
-**【大选实况】1/9/2021 美东时间 10:00AM 国务卿蓬佩奥发推： **
-
-巴黎协定是个骗局。对环境没有帮助，反而给世界上最大的污染者（中共国）一个通行证。川普政府永远不会蒙蔽美国人民，并假装一个坏的协议是一个好的协议。
+社交媒体应用Parler已从苹果应用商店中被移除。
 
 
 
-> The Paris Agreement is a fraud. Doesn't help the environment, gives world's biggest polluter (read: China) a pass. Trump Administration will never hoodwink the American people and pretend a bad deal is a good deal. [#TruthMatters](https://twitter.com/hashtag/TruthMatters?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/ZC2clgra4u](https://t.co/ZC2clgra4u)
-> — Secretary Pompeo (@SecPompeo) [January 9, 2021](https://twitter.com/SecPompeo/status/1347921145006317569?ref_src=twsrc%5Etfw)
+> Social media app Parler has been removed from the Apple App Store
+> — Breaking911 (@Breaking911) [January 10, 2021](https://twitter.com/Breaking911/status/1348078550050627584?ref_src=twsrc%5Etfw)
 
 
-来源：[https://twitter.com/SecPompeo/status/1347921145006317569](https://twitter.com/SecPompeo/status/1347921145006317569)
-盖特链接：[https://gtv.org/getter/5ffa17b487fabe2daf344bc5](https://gtv.org/getter/5ffa17b487fabe2daf344bc5)
-
-* * *
-
-**【大选实况】1/9/2012 EST 10:15 pm 川普战斗室推文： **
-
-为什么Twitter对川普而不是对中国共产党进行新闻审查？
-
-
-
-> Why is Twitter censoring Trump, but not the Chinese Communist Party? [https://t.co/MVbPc7ApR0](https://t.co/MVbPc7ApR0)
-> — Trump War Room (@TrumpWarRoom) [January 9, 2021](https://twitter.com/TrumpWarRoom/status/1347924844646686723?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/trumpwarroom/status/1347924844646686723?s=21](https://twitter.com/trumpwarroom/status/1347924844646686723?s=21)
-盖特链接：[https://gtv.org/getter/5ffa175b87fabe2daf344b7c](https://gtv.org/getter/5ffa175b87fabe2daf344b7c)
-
-* * *
-
-**【大选实况】1/9/2021 美东时间 10:36AM 川普竞选团队高级顾问Steve Cortes 发推： **
-
-本周证明了第二修正案是多么的重要–因为人们的基本自由受到硅谷巨头的直接攻击，他们与两党滥用权力的建制派政客沆瀣一气，同时又受到偏见和腐败的媒体的煽风点火。
-
-
-
-> This week proved how crucial the Second Amendment is — as basic freedoms come under direct assault from Silicon Valley titans in cahoots with abusive establishment politicians (of both parties), cheered on by a biased & corrupt media.
-> — Steve Cortes (@CortesSteve) [January 9, 2021](https://twitter.com/CortesSteve/status/1347930229369663493?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/CortesSteve/status/1347930229369663493](https://twitter.com/CortesSteve/status/1347930229369663493)
-盖特链接：[https://gtv.org/getter/5ffa063b87fabe2daf343ecc](https://gtv.org/getter/5ffa063b87fabe2daf343ecc)
-
-* * *
-
-**【大选实况】1/9/2021 美东时间 10:58AM 国会议员Ken Buck 发推： **
-
-阻止谷歌和Facebook等大科技公司审查保守派的唯一办法就是控制他们的反竞争行为。 他们可以审查你，因为他们是垄断企业。
-
-
-
-> The only way to stop Big Tech companies like Google and Facebook from censoring conservatives is to rein in their anticompetitive behavior.
-> 
-> They can censor you because they are a monopoly.
-> — Congressman Ken Buck (@RepKenBuck) [January 9, 2021](https://twitter.com/RepKenBuck/status/1347935820108488706?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/RepKenBuck/status/1347935820108488706](https://twitter.com/RepKenBuck/status/1347935820108488706)
-盖特链接：[https://gtv.org/getter/5ffa053187fabe2daf343e2b](https://gtv.org/getter/5ffa053187fabe2daf343e2b)
-
-* * *
+来源：[https://twitter.com/Breaking911/status/1348078550050627584](https://twitter.com/Breaking911/status/1348078550050627584)
+盖特链接：[https://gtv.org/getter/5ffa6ddb87fabe2daf34a23c](https://gtv.org/getter/5ffa6ddb87fabe2daf34a23c)
 
 **By： 【秘密翻译组 G-Translators】**
 
-+1
++4

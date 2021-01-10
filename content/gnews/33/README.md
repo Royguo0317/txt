@@ -1,96 +1,95 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/9/2021 合谋的寡头们试图抹去美国宪法第一修正案&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/736269/)
+## 【大选推特/Parler实况】1/9/2021 在冲进美国国会大厦期间, Antifa从袋子中分发了武器; 中共称拜登是&#8221;新希望之窗&#8221;&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/736389/)
 
-**【大选实况】1/9/2021 EST 11:35am Zerohedge推文：**
+**【大选实况】1/9/2021 EST 8:01 pm The Hill 推文： **
 
-麦康奈尔阐述了参议院如何进行第二次弹劾
-
-
-
-> McConnell Lays Out How Second Impeachment Would Play Out In Senate [https://t.co/CWTS75hdNL](https://t.co/CWTS75hdNL)
-> — zerohedge (@zerohedge) [January 9, 2021](https://twitter.com/zerohedge/status/1347945130804846593?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/zerohedge/status/1347945130804846593](https://twitter.com/zerohedge/status/1347945130804846593)
-盖特链接：[https://gtv.org/getter/5ffa1ba587fabe2daf344efc](https://gtv.org/getter/5ffa1ba587fabe2daf344efc)
-
-* * *
-
-**【大选实况】1/9/2021 EST 11:59am Zerohedge推文： **
-
-“Blankfein（投行高盛前高管）说他会考虑加入川普政府”
+问题：“您认为警察试图以某种方式帮助这些暴徒吗？” 众议员吉姆·克莱本（Jim Clyburn）：“我相信自己的眼睛，看着这些录像带，我看到了障碍物，那些路障被清除了，有人在招手让他们进去。”
 
 
 
-> "Blankfein said he’d consider joining the Trump administration" [https://t.co/SIMMTjg3Uj](https://t.co/SIMMTjg3Uj) [https://t.co/qaC9zQBX92](https://t.co/qaC9zQBX92)
-> — zerohedge (@zerohedge) [January 9, 2021](https://twitter.com/zerohedge/status/1347951181973356546?ref_src=twsrc%5Etfw)
+> Question: "Do you believe that police were trying to help these rioters in some fashion?"
+> 
+> Rep. Jim Clyburn: "Well, I believe my eyes, and I looked at these videos and I saw barriers, those barricades, being removed and people being waved in." [pic.twitter.com/f4jCSNSSyD](https://t.co/f4jCSNSSyD)
+> — The Hill (@thehill) [January 10, 2021](https://twitter.com/thehill/status/1348072374659395587?ref_src=twsrc%5Etfw)
 
 
-来源：[https://twitter.com/zerohedge/status/1347951181973356546](https://twitter.com/zerohedge/status/1347951181973356546)
-盖特链接：[https://gtv.org/getter/5ffa1d2087fabe2daf34503b](https://gtv.org/getter/5ffa1d2087fabe2daf34503b)
+来源：[https://twitter.com/thehill/status/1348072374659395587?s=21](https://twitter.com/thehill/status/1348072374659395587?s=21)
+盖特链接：[https://gtv.org/getter/5ffa754287fabe2daf34aa9f](https://gtv.org/getter/5ffa754287fabe2daf34aa9f)
 
 * * *
 
-**【大选实况】1/9/2021 EST 7:40 AM Bradley Scott推文：**
+**【大选实况】1/9/2021 美东时间 21:50 Parler的CEO约翰-马泽 🇺🇸发出声明： **
 
-为什么Twitter会永久性地封杀世界上最被敬佩的人？
-
-
-
-> Why would Twitter permanently suspend the MOST ADMIRED man in the world? 🤔
-> — Bradley Scott 🙏🇺🇸 (@Hoosiers1986) [January 9, 2021](https://twitter.com/Hoosiers1986/status/1347870901686194177?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/hoosiers1986/status/1347870901686194177?s=21](https://twitter.com/hoosiers1986/status/1347870901686194177?s=21)
-盖特链接：[https://gtv.org/getter/5ffa1dce87fabe2daf3450df](https://gtv.org/getter/5ffa1dce87fabe2daf3450df)
+周日（明天）午夜，亚马逊将关闭我们所有的服务器，试图彻底清除互联网上的自由言论。在我们从头开始重建的过程中，互联网上无法使用Parler有可能长达一周的时间。我们为应对这样的事件做了准备，从不依赖amazons专有的基础设施，并建立裸机产品。 我们现在会尽力转移到新的供应商，因为有很多人竞相争取我们的生意，然而亚马逊，谷歌和苹果联合起来故意这样做，知道我们的选择将是有限的，并知道在川普总统被大科技公司禁声时，这样将造成最大的损害。 这是科技巨头们为了扼杀市场竞争而进行的协调攻击。我们太成功发展得太快了。你们可以期待对竞争和言论自由的战争继续进行，但是别指望把我们排除在外。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-10-at-2.20.59-pm.png)来源：[https://parler.com/post/009ba435b68c46d4955e1cd7737fa27c](https://parler.com/post/009ba435b68c46d4955e1cd7737fa27c)
+盖特链接：[https://gtv.org/getter/5ffa7b0587fabe2daf34b08f](https://gtv.org/getter/5ffa7b0587fabe2daf34b08f)
 
 * * *
 
-**【大选实况】1/9/2012 EST 11:20 pm One American News推文：**
+**【大选实况】1/9/2021 EST 10:01PM** **Talisman of Truth推文截图林·伍德关于Parler 被关闭的信息： **
 
-朱利安尼说：川普总统应解密更多文件 – [https://www.oann.com/giuliani-president-trump-should-declassify-more-documents/](https://www.oann.com/giuliani-president-trump-should-declassify-more-documents/)
-
-
-
-> Giuliani: President Trump should declassify more documents – [https://t.co/93jVIiC2IB](https://t.co/93jVIiC2IB) [#OANN](https://twitter.com/hashtag/OANN?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/KHOiZrDKKA](https://t.co/KHOiZrDKKA)
-> — One America News (@OANN) [January 9, 2021](https://twitter.com/OANN/status/1347941323014172672?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/oann/status/1347941323014172672?s=21](https://twitter.com/oann/status/1347941323014172672?s=21)
-盖特链接：[https://gtv.org/getter/5ffa1ed587fabe2daf345189](https://gtv.org/getter/5ffa1ed587fabe2daf345189)
-
-* * *
-
-**【大选实况】1/9/2021 EST 11:37 am 纳瓦罗推文： **
-
-合谋的寡头们试图抹去美国宪法第一修正案。
+据可靠消息来源告诉我，亚马逊（云服务)在接下来的24-36小时内会关闭Parler。 尽快进驻Clouthub和Gab是个好主意。 这些大科技公司即将被一个小巧、平滑的石块儿击中。它们会很快被击垮。稍等几天。耐心点。上帝会出手。 你会看到这些发生。
 
 
 
-> Collusive oligopoly seeking to eradicate First Amendment of US Constitution. [https://t.co/7osZfjDdZi](https://t.co/7osZfjDdZi)
-> — Peter Navarro (@RealPNavarro) [January 9, 2021](https://twitter.com/RealPNavarro/status/1347945725116764163?ref_src=twsrc%5Etfw)
+> Lin Wood about Parler shutdown [pic.twitter.com/LfPqoIeWWd](https://t.co/LfPqoIeWWd)
+> — Talisman Of Truth 🇨🇦 (@TalismanOfTruth) [January 10, 2021](https://twitter.com/TalismanOfTruth/status/1348102615620583430?ref_src=twsrc%5Etfw)
 
 
-来源：[https://twitter.com/realpnavarro/status/1347945725116764163?s=21](https://twitter.com/realpnavarro/status/1347945725116764163?s=21)
-盖特链接：[https://gtv.org/getter/5ffa209487fabe2daf3452cf](https://gtv.org/getter/5ffa209487fabe2daf3452cf)
+来源：[https://twitter.com/TalismanOfTruth/status/1348102615620583430?s=20](https://twitter.com/TalismanOfTruth/status/1348102615620583430?s=20)
+盖特链接：[https://gtv.org/getter/5ffa7a0887fabe2daf34af4d](https://gtv.org/getter/5ffa7a0887fabe2daf34af4d)
 
 * * *
 
-**【大选实况】1/9/2021 EST 10:40 am Steve Cortes推文：**
+**【大选实况】1/9/2021 EST 10:26 PM Jim Hoft 推文： **
 
-纳瓦罗刚刚在（班农的）战斗室总结了大科技公司寡头们合谋的事实，特别是推特，脸书和谷歌。
-
-
-
-> .⁦[@RealPNavarro](https://twitter.com/RealPNavarro?ref_src=twsrc%5Etfw)⁩ on War Room just summarized the facts of the collusive oligopoly of Big Tech, specifically Twitter, Facebook, and Google. [pic.twitter.com/ylVvrCMrDV](https://t.co/ylVvrCMrDV)
-> — Steve Cortes (@CortesSteve) [January 9, 2021](https://twitter.com/CortesSteve/status/1347931154524102659?ref_src=twsrc%5Etfw)
+新视频：在冲进美国国会大厦期间，Antifa从袋子中分发了武器。看@gatewaypundit 报导
 
 
-来源：[https://twitter.com/cortessteve/status/1347931154524102659?s=21](https://twitter.com/cortessteve/status/1347931154524102659?s=21)
-盖特链接：[https://gtv.org/getter/5ffa212487fabe2daf345347](https://gtv.org/getter/5ffa212487fabe2daf345347)
+
+> NEW VIDEO: Antifa Hands Out Weapons from Bag During Storming of US Capitol via [@gatewaypundit](https://twitter.com/gatewaypundit?ref_src=twsrc%5Etfw) [https://t.co/h6R7KHPt5b](https://t.co/h6R7KHPt5b)
+> — Jim Hoft (@gatewaypundit) [January 10, 2021](https://twitter.com/gatewaypundit/status/1348108977851293697?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/gatewaypundit/status/1348108977851293697?s=21](https://twitter.com/gatewaypundit/status/1348108977851293697?s=21)
+盖特链接：[https://gtv.org/getter/5ffa7dd487fabe2daf34b391](https://gtv.org/getter/5ffa7dd487fabe2daf34b391)
+
+* * *
+
+**【大选实况】1/9/2021 美东时间 21:45PM Jason Miller 推文：**
+
+还有……现在华盛顿邮报@Washingtonpost想取消高尔夫。 他们下一个目标就是你！！ “高尔夫和美国职业高尔夫球协会必须与川普决裂–《华盛顿邮报》”
+
+
+
+> And…now the ⁦[@washingtonpost](https://twitter.com/washingtonpost?ref_src=twsrc%5Etfw)⁩ wants to cancel golf. 
+> 
+> They’re coming for you next!!!
+> 
+> “Golf and the PGA of America must break with Trump – The Washington Post” [https://t.co/73Y5RnkFKv](https://t.co/73Y5RnkFKv)
+> — Jason Miller (@JasonMillerinDC) [January 10, 2021](https://twitter.com/JasonMillerinDC/status/1348098643954454528?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/JasonMillerinDC/status/1348098643954454528](https://twitter.com/JasonMillerinDC/status/1348098643954454528)
+盖特链接：[https://gtv.org/getter/5ffa737387fabe2daf34a8c2](https://gtv.org/getter/5ffa737387fabe2daf34a8c2)
+
+* * *
+
+**【大选实况】1/9/2021 EST 9:40pm Zerohedge 发推：**
+
+中共称拜登是 “新希望之窗”
+
+
+
+> Chinese Communist Party Says Biden A "New Window Of Hope" [https://t.co/lk0xxGR6Hf](https://t.co/lk0xxGR6Hf)
+> — zerohedge (@zerohedge) [January 10, 2021](https://twitter.com/zerohedge/status/1348097383268286466?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/zerohedge/status/1348097383268286466?s=20](https://twitter.com/zerohedge/status/1348097383268286466?s=20)
+盖特链接：[https://gtv.org/getter/5ffa83fd87fabe2daf34b979](https://gtv.org/getter/5ffa83fd87fabe2daf34b979)
 
 **By： 【秘密翻译组 G-Translators】**
 

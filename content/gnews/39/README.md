@@ -1,35 +1,95 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美台关系不再自我设限，美“一中”政策或将终结
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/736147/)
+## 【大选推特/Parler实况】1/9/2021 美国国防部把1月6日定性为第一修正案的抗议, 而不是暴乱&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/736281/)
 
-作者：香草山写作组 人间世
+**【大选实况】1/9/2021 EST 11:23 am Jack Maxey推文：**
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
-
-
-
-自1月7号宣布美国驻联合国大使将于近期访问台湾之后，2021年1月9日，美国国务院再发布重磅声明，解除美台官方往来的一切行政限制。自1979年美国和中共政府建交以来形成的对台政策框架或将彻底结束。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/MOS0957-【热点播报】美台关系不再自我设限，美一中政策或将终结.jpg)
-美国务卿蓬佩奥在声明中说，“台湾是一个充满活力的民主国家，也是美国可靠的伙伴，然而数十年来，美国国务院制定了复杂的内部约束，以限制我们的外交官、军人和其他官员与台湾对口单位的互动。**美国政府单方面采取这些行动，是为了安抚北京的共产党政权。现在这一切都结束了！**”，“今天我宣布，我将取消所有这些自我施加的限制。行政部门各机构应将国务院此前根据国务卿授权发布的有关对台关系的所有 ‘接触准则 ’视为无效。”
-
-比尔·格茨先生（Bill Gertz）在《华盛顿时报》撰文指出，美国国务卿蓬佩奥（Mike Pompeo）的这一行动意味着美国高级文官和军官现在可以自由前往台湾。此前，大多数高级军官被禁止到台湾旅行，低级军官也只能以便装出行。政府高级官员和外交官也不得访问台湾，以避免激怒北京。**目前尚不清楚的是，新政策是否会影响到海军军舰和空军战机和台湾的互动**。
-
-比尔·格茨先生还强调，川普政府之前的对台政策都是由亲共官员所主导，**“他们都赞成最终结束或严重降低与台湾的关系，以发展与北京的关系”**。 2018年，美国负责东亚事务的代理助理国务卿苏珊·桑顿（Susan Thornton）就曾下令将台湾国旗从国务院的两个网站上删除，消息曝光后她被迫退休。
-
-美国“零对冲”网站在报道中说，蓬佩奥的这一举措，**彻底颠覆了美国几十年来所坚持的****“一个中国 ****”政策的现状，这无疑是川普政府数月来不断升级的反共政策中的“最重一击”**。
-
-蓬佩奥在声明最后指出，“美国政府与世界各地的非官方伙伴保持关系，台湾也不例外。我们两个民主国家在个人自由、法治和尊重人的尊严方面有共同的价值观。**今天的声明承认，美台关系不需要、也不应该被我们的常设官僚机构的自我限制所束缚**。”
-
-毋庸置疑的是，美国在对台关系上偏向中共的“绥靖”政策彻底结束了。照此趋势发展下去，美台正式建交，甚至美国不再承认中共是代表中国的合法政府，都并非不可能。
+从十月开始：@jack将这个故事标记为虚假信息，并通过 @JohnBrennan和其他人散布虚假信息。 看看这个清单，这些白痴们要对你们大家的安全负责。 #NoJusticeNoPeace （没有正义就没有和平）
+#WarRoomPandemic（疫情大流行战斗室） 
+刊登亨特·拜登的新闻链接：[https://www.politico.com/news/2020/10/19/hunter-biden-story-russian-disinfo-430276](https://www.politico.com/news/2020/10/19/hunter-biden-story-russian-disinfo-430276)
 
 
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+> FROM OCTOBER: When will [@jack](https://twitter.com/jack?ref_src=twsrc%5Etfw) mark this story as disinformation and de platform [@JohnBrennan](https://twitter.com/JohnBrennan?ref_src=twsrc%5Etfw) and others, for spreading disinformation. Read the list, these morons were responsible for your safety. [#NoJusticeNoPeace](https://twitter.com/hashtag/NoJusticeNoPeace?src=hash&amp;ref_src=twsrc%5Etfw) [#WarRoomPandemic](https://twitter.com/hashtag/WarRoomPandemic?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/6VwyxSLE4J](https://t.co/6VwyxSLE4J)
+> — Jack Maxey (@JackMaxey1) [January 9, 2021](https://twitter.com/JackMaxey1/status/1347942004676849664?ref_src=twsrc%5Etfw)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+来源：[https://twitter.com/jackmaxey1/status/1347942004676849664?s=21](https://twitter.com/jackmaxey1/status/1347942004676849664?s=21)
+盖特链接：[https://gtv.org/getter/5ffa232787fabe2daf34552b](https://gtv.org/getter/5ffa232787fabe2daf34552b)
 
-+1
+* * *
+
+**【大选实况】1/9/2021 EST 4:00pm ZeroHedge推文：**
+
+\*蓬佩奥: 美国解除对台（台湾）关系的限制 
+\*蓬佩奥: 美国废除所有与台湾进行联系的指导性意见
+
+
+
+> \*U.S. TO LIFT RESTRICTIONS ON HOW IT DEALS WITH TAIWAN: POMPEO
+> 
+> \*U.S. TO SCRAP ALL 'CONTACT GUIDELINES' WITH TAIWAN: POMPEO
+> — zerohedge (@zerohedge) [January 9, 2021](https://twitter.com/zerohedge/status/1348011751141478400?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/zerohedge/status/1348011751141478400](https://twitter.com/zerohedge/status/1348011751141478400)
+盖特链接：[https://gtv.org/getter/5ffa256787fabe2daf345752](https://gtv.org/getter/5ffa256787fabe2daf345752)
+
+* * *
+
+**【大选实况】1/9/2012 EST 9:57 am 国会山报推文：**
+
+参议院共和党领导小组成员：弹劾川普总统“不会发生” [http://hill.cm/iyOtpNA](http://hill.cm/iyOtpNA)
+
+
+
+> Member of Senate GOP leadership: Impeaching Trump "not going to happen" [https://t.co/f2DSkA9K7v](https://t.co/f2DSkA9K7v) [pic.twitter.com/Uf2y6NAYqr](https://t.co/Uf2y6NAYqr)
+> — The Hill (@thehill) [January 9, 2021](https://twitter.com/thehill/status/1347920333249114120?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/thehill/status/1347920333249114120](https://twitter.com/thehill/status/1347920333249114120)
+盖特链接：[https://gtv.org/getter/5ff9d94b87fabe2daf342072](https://gtv.org/getter/5ff9d94b87fabe2daf342072)
+
+* * *
+
+**【大选实况】1/9/2012 EST 9:16 am 专栏作家章家敦 推文：**
+
+中共国制造产品的销售链中的每一方均应对使用强迫劳动或奴役劳动承担刑事责任。如果不遵守，应承担“无过错责任”。罚款和监禁的处罚都应从严。
+
+
+
+> Every party in the chain of sale of [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)-made products should be held criminally liable for the use of forced or slave labor. There should be “strict liability” for failing to comply. The penalties—both fines and imprisonment—should be severe. [https://t.co/NXgpINnngy](https://t.co/NXgpINnngy)
+> — Gordon G. Chang (@GordonGChang) [January 9, 2021](https://twitter.com/GordonGChang/status/1347910096362332163?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/GordonGChang/status/1347910096362332163](https://twitter.com/GordonGChang/status/1347910096362332163)
+盖特链接：[https://gtv.org/getter/5ff9da0287fabe2daf3420f2](https://gtv.org/getter/5ff9da0287fabe2daf3420f2)
+
+* * *
+
+**【大选实况】1/9/2021 EST 4:53 pm Rohan O’Handley的推文： **
+
+如果他们可以抹去总统的痕迹，他们也可以清除其他任何人。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/d49bc32bd673cdf463a7f433585e282b.png)推文已被删除
+盖特链接：[https://gtv.org/getter/5ffa2fba87fabe2daf34608e](https://gtv.org/getter/5ffa2fba87fabe2daf34608e)
+
+* * *
+
+**【大选实况】1/9/2021 EST 6:21 PM 推友推文：**
+
+美国国防部把1月6日定性为第一修正案的抗议，而不是暴乱。
+
+
+
+> 美国国防部把1月6日定性为第一修正案的抗议，而不是暴乱The Defense Department is referring to Wednesday’s pro-Trump riot as “the January 6, 2021 1st Amendment Protests.” [pic.twitter.com/swE4raYiXL](https://t.co/swE4raYiXL)
+> — 老徐 (@taoxu1972) [January 9, 2021](https://twitter.com/taoxu1972/status/1348047240225550340?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/taoxu1972/status/1348047240225550340](https://twitter.com/taoxu1972/status/1348047240225550340)
+盖特链接：[https://gtv.org/getter/5ffa4a3a87fabe2daf347c41](https://gtv.org/getter/5ffa4a3a87fabe2daf347c41)
+
+**By： 【秘密翻译组 G-Translators】**
+
+0
