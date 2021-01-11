@@ -1,52 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/10/2021 美国解密有关伊朗使用化学武器的信息; 更安全的北极=更安全的美国&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/739090/)
+## 情报分析师隐瞒中共国干预选举以助推拜登（当选）的信息
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/739300/)
 
-**【大选实况】1/10/2021 EST 3:30PM 蓬佩奥国务卿发推： **
+翻译：康州盘古农场 – 黎明的光芒
 
-我们积极地领导了北极圈委员会。 致力于使运输通道更安全。 为边远社区提供电力，医疗服务等。 更安全的北极=更安全的美国。
+校对：康州盘古农场 – Antsee-GTV
 
+编辑：康州盘古农场 – Rose
 
+![biden](https://lh3.googleusercontent.com/S3K9PpNSzmxg6vG7vLb3pHxPb66TkohclCbfhlB56zVHL8Vlo0JUqqMsIbOoVue9YMlSueyGfdN4-LxZGu7vyC7dmmcYTQtuGRUBYxUo2xet3ooGDemfBoODImsiPn6-ZjXo2A86kuNyOYGEpA)*国家情报总监办公室的一份新报告显示，官员们淡化了中共国对2020年大选的干预，”以避免支持川普的政策”，因为很多人 “不同意 “政府的对华方针。*
 
-> We’ve led vigorously in the [#ArcticCouncil](https://twitter.com/hashtag/ArcticCouncil?src=hash&amp;ref_src=twsrc%5Etfw). Worked to make shipping lanes safer. Helped rural communities with power, medical care, and more. Safer Arctic = safer America. [#EffectiveMultilateralism](https://twitter.com/hashtag/EffectiveMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/QYp0oKxgPJ](https://t.co/QYp0oKxgPJ)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348366502521663491?ref_src=twsrc%5Etfw)
+这一揭示来自《华盛顿观察家》获得的一份14页的报告，该报告由国家情报总监办公室解决方案处主管巴里·祖劳夫撰写。这份报告于周四送交参议院情报委员会，揭示了该机构对2020年大选中外国影响力的评估是在 “两极分化 “的氛围中进行的，并由那些 “不同意 “川普政府对中共国态度的官员完成。
 
+“鉴于分析人员对俄罗斯和中共国目标的分析方式不同，分析中共国的人员似乎不愿意将中共国的行动评估为不当影响或干涉。这些分析人员似乎不愿意将他们对中共国的分析提出来，因为他们倾向于‘不同意’政府的政策，实际上，我不希望我们的情报机关（的工作变成）习惯于支持一些政策。”祖拉夫介绍说。
 
-来源：[https://twitter.com/secpompeo/status/1348366502521663491?s=21](https://twitter.com/secpompeo/status/1348366502521663491?s=21)
-盖特链接：[https://gtv.org/getter/5ffbae4a87fabe2daf35edf9](https://gtv.org/getter/5ffbae4a87fabe2daf35edf9)
+国家情报总监约翰·拉特克利夫（John Ratcliffe）也写了一封信，呼应祖拉夫的观点。
 
-* * *
+“作为掌控美国政府所有对华最敏感情报的人，我的个人观点是，情报界分析师表达的主流观点不能完整且准确地反映出中共政府对2020年美国联邦选举的影响范围” 他解释说。
 
-**【大选实况】1/10/2021 EST 3:50PM 蓬佩奥国务卿发推：**
+拉特克利夫还指出，从祖拉乌夫的报告中注意到 “对于中国影响选举的报告（出现）政治化（现象），以及对根据情报提出另一种观点的分析人员施加不当压力的揭示都令人担忧”。
 
-美国之音员工对广播美国最高级外交官的声音有怨言…？ 向国外推广美国的价值观，不正是我们应该做的事情。东部时间明天下午3点，请收看我关于美国伟大与美国第一的讲话。
+原文作者：娜塔莉•温特斯 （《国家脉动》）
 
+发布日期：1/10/2021
 
+原文链接：[https://thenationalpulse.com/breaking/intelligence-china-election-influence/](https://thenationalpulse.com/breaking/intelligence-china-election-influence/)
 
-> Voice of America employees complaining about broadcasting … the voice of America’s most senior diplomat? Seems like exactly what we should be doing to promote American values abroad. Tune in to hear my remarks about American Greatness & America First tomorrow at 3pm ET. [pic.twitter.com/VJ8jsTUwkO](https://t.co/VJ8jsTUwkO)
-> — Mike Pompeo (@mikepompeo) [January 10, 2021](https://twitter.com/mikepompeo/status/1348371565491183617?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/mikepompeo/status/1348371565491183617](https://twitter.com/mikepompeo/status/1348371565491183617)
-盖特链接：[https://gtv.org/getter/5ffbaced87fabe2daf35ec81](https://gtv.org/getter/5ffbaced87fabe2daf35ec81)
-
-* * *
-
-**【大选实况】1/10/2021 EST 6:30 pm 蓬佩奥国务卿发推： 美国还解密了有关伊朗使用化学武器的信息。 #NoImpunity [go.usa.gov/xA5q5](https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf)**
-
-
-
-> The U.S. also declassified information on Iran's use of chemical weapons. [#NoImpunity](https://twitter.com/hashtag/NoImpunity?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/JFFC4MSGIX](https://t.co/JFFC4MSGIX)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348411800572764160?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/secpompeo/status/1348411800572764160?s=21](https://twitter.com/secpompeo/status/1348411800572764160?s=21)
-**美国解密有关伊朗使用化学武器报告下载：**[https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf](https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf)
-
-* * *
-
-**By： 【秘密翻译组 G-Translators】**
-
-+1
+0

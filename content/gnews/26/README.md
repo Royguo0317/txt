@@ -1,24 +1,114 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【台国际空间】拆解美台关系全面禁忌的紧箍咒，阻中共武力攻台意图
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/739400/)
+## 【大选推特/Parler实况】1/10/2021 条约只有在各方都遵守的情况下才有用; 必须用行动来维持条约&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/739514/)
 
-台灣農場(籌備)   一葉一菩提
+**【大选实况】1/10/2021 EST 4:00 蓬佩奧国务卿 推文：**
 
-美国国务卿蓬佩奥于美东时间周六（1月9日）宣布，取消对美国行政部门机构与台湾同行互动的所有自我限制。声明中也说明了，之前美国国务院单方面制定了复杂的内部限制，管制外交官、军人和其他官员与台湾同行的互动，是为了安抚北京的共产党政权。他强调，“不会再这样了。”，也随即在他的推文中强调，“此举将使得我们两个伟大的民主政体受益。”
-![]()![](https://gnews.org/wp-content/uploads/2021/01/圖片-1-15.png)
-从历史的轨迹来看，之前，或许是政客间的协议？！或许是期待苏俄解体之后，中共能民主化，而做的自我限制？！但这自我限制却助长了中共的有恃无恐，恣意妄为，让中共的蓝金黄侵蚀了美国、侵蚀了全世界，也让这次美国的大选，遭受了前所未有的冲击。冲击中，觉醒的力量面对严峻的疫情和经济，大部分的选民仍以选票展示反共的决心，但却在现实的社会中，不敌那少数邪恶的做票力量，最后邪恶赢了表面的总统大选。
+这是我遵循的另一项外交政策口号#美国优先：条约只有在各方都遵守的情况下才有用。
 
-还有约莫10天，期待川普阵营能出奇招翻转结果之际，坚定的反共的盟友美国国务卿蓬佩奥仍本着初衷，锲而不舍的宣布，取消对美国行政部门机构与台湾同行互动的所有自我限制。吓阻了中共对台侵犯的野心，也替全世界筑起了自由民主的高墙。
 
-如同他2018年4月25日宣誓就职时，坚定地表示，国务院将“向全世界展示美国最好的风貌”，努力“通过坚持不懈的外交，实现总统的对外政策目标，避免让年轻的男男女女走上战场”。
 
-這就是郭文貴先生所説的，“真男兒！”
+> Here's another foreign policy mantra I've followed to put [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw): Treaties are only useful if all parties adhere to them. [pic.twitter.com/appNKEBfnq](https://t.co/appNKEBfnq)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348374054764486660?ref_src=twsrc%5Etfw)
 
-參考新聞
-[https://www.epochtimes.com/b5/21/1/10/n12679165.htm](http://	https://www.epochtimes.com/b5/21/1/10/n12679165.htm%20	https://www.ait.org.tw/zhtw/meet-mike-pompeo-the-new-secretary-of-state-zh/)
 
-[https://www.ait.org.tw/zhtw/meet-mike-pompeo-the-new-secretary-of-state-zh/](http://	https://www.epochtimes.com/b5/21/1/10/n12679165.htm%20	https://www.ait.org.tw/zhtw/meet-mike-pompeo-the-new-secretary-of-state-zh/)
+来源：[https://twitter.com/secpompeo/status/1348374054764486660?s=21](https://twitter.com/secpompeo/status/1348374054764486660?s=21)
+盖特链接：[https://gtv.org/getter/5ffbae8687fabe2daf35ee41](https://gtv.org/getter/5ffbae8687fabe2daf35ee41)
 
-0
+* * *
+
+**【大选实况】1/10/2021/ EST 4:30 pm 蓬佩奧国务卿 推文： **
+
+《 中导条约》有两个当事方。 奥巴马总统在俄罗斯作弊建立他们自己的系统时却限制了我们的军队，从而把美国人的生命置于危险中。当两方条约只有一方遵守时，这就叫做愚蠢。
+
+
+
+> There were two parties to the INF Treaty. President Obama risked American lives by restricting our military while Russia cheated and built up its systems. When only one party to a two-party treaty is complying, that’s called stupid. [pic.twitter.com/Gb6jaaz3Xe](https://t.co/Gb6jaaz3Xe)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348381601692962816?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348381601692962816?s=21](https://twitter.com/secpompeo/status/1348381601692962816?s=21)
+盖特链接：[https://gtv.org/getter/5ffbaee287fabe2daf35eea5](https://gtv.org/getter/5ffbaee287fabe2daf35eea5)
+
+* * *
+
+**【大选实况】1/10/2021/ EST 5:00 pm 蓬佩奧国务卿 推文：**
+
+我们的前任总统根据《 中导条约》单方面解除了我们的武装。 我们说“够了”，并离开了使美国无法防御的单方面协议。 #AmericaFirst
+
+
+
+> Our previous President unilaterally disarmed under the INF Treaty. We said “enough” and left the one-sided deal that made America defenseless. [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/bB5t0fckRx](https://t.co/bB5t0fckRx)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348389151926751232?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348389151926751232?s=21](https://twitter.com/secpompeo/status/1348389151926751232?s=21)
+盖特链接：[https://gtv.org/getter/5ffbaf1b87fabe2daf35eee8](https://gtv.org/getter/5ffbaf1b87fabe2daf35eee8)
+
+* * *
+
+**【大选实况】1/10/2021 EST 5:30 pm 蓬佩奧国务卿 推文： **
+
+在过去的四年中，美国大胆地揭露了未能履行《化学武器公约》规定义务的国家。
+
+
+
+> Over the last four years, the U.S. has boldly called out countries who have failed to meet their obligations under the Chemical Weapons Convention. [pic.twitter.com/FoiIM0bcLZ](https://t.co/FoiIM0bcLZ)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348396701392859136?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348396701392859136?s=21](https://twitter.com/secpompeo/status/1348396701392859136?s=21)
+盖特链接：[https://gtv.org/getter/5ffbaf5d87fabe2daf35ef3a](https://gtv.org/getter/5ffbaf5d87fabe2daf35ef3a)
+
+* * *
+
+**【大选实况】1/10/2021 EST 6:00 pm 蓬佩奧国务卿 推文： **
+
+必须用行动来维持条约。 阿萨德对自己的人民施以毒气后，川普总统对叙利亚发动了袭击。 我们是有真正的红线的。
+
+
+
+> Have to back up treaties with action. President Trump took out targets in Syria after Assad gassed his own people. We have real red lines. [https://t.co/PXVSEep0xz](https://t.co/PXVSEep0xz)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348404257196797958?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348404257196797958?s=21](https://twitter.com/secpompeo/status/1348404257196797958?s=21)
+盖特链接：[https://twitter.com/secpompeo/status/1348404257196797958?s=21](https://twitter.com/secpompeo/status/1348404257196797958?s=21)
+
+* * *
+
+**【大选实况】1/10/2021 EST 7:00 pm 蓬佩奧国务卿 推文： **
+
+条约与结盟一样，可以一直持续到失效。必须始终不断对其有效性进行评估。
+
+
+
+> Treaties, like alliances, can outlast their sell-by-date. Always have to keep evaluating their usefulness. [pic.twitter.com/up8Qtj6gn8](https://t.co/up8Qtj6gn8)
+> — Secretary Pompeo (@SecPompeo) [January 11, 2021](https://twitter.com/SecPompeo/status/1348419350370398209?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348419350370398209?s=21](https://twitter.com/secpompeo/status/1348419350370398209?s=21)
+盖特链接：[https://gtv.org/getter/5ffbb0b687fabe2daf35f08c](https://gtv.org/getter/5ffbb0b687fabe2daf35f08c)
+
+* * *
+
+**【大选实况】1/10/2021 EST 12:00 pm 蓬佩奧国务卿 推文：**
+
+#有效的多边关系 意味着重新激发活力的四方关系： 美国、澳大利亚、印度及日本之间的四方合作关系 – 思维相似、价值观一致，有益推动自由开放的印度洋-太平洋海域。
+
+
+
+> [#EffectiveMultilateralism](https://twitter.com/hashtag/EffectiveMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) means a reinvigorated Quad: like-minded values-based partnership among the U.S., Australia, India, and Japan, advancing a free & open Indo-Pacific. [pic.twitter.com/Rmqs3nTBTy](https://t.co/Rmqs3nTBTy)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348313657734811654?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1348313657734811654](https://twitter.com/SecPompeo/status/1348313657734811654)
+盖特链接：[https://gtv.org/getter/5ffbb39587fabe2daf35f384](https://gtv.org/getter/5ffbb39587fabe2daf35f384)
+
+
+
+#### **By： 【秘密翻译组 G-Translators】**
+
++1

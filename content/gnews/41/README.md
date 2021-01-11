@@ -1,31 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 0110第61期《前沿观察》 灭共是我们的终极目标！
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/739122/)
+## 掩耳盗铃：中共官员删除武汉实验室数据，抹去了冠状病毒的研究
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/739277/)
 
-撰文:寒郁冰
-播报:1984文姝
-视频:Buzz文珂
-编辑:1984文姝
-图片素材:沧海一粟 海媚
-审片:皮亚納
-审核：Truemanman
+翻译：康州盘古农场 – 黎明的光芒
+
+校对：康州盘古农场 – Antsee-GTV
+
+编辑：康州盘古农场 – Rose
+
+![wuhan](https://lh4.googleusercontent.com/hXBcdAmZ7eCtZykn_ug9rm0uzfLUdMZWMhDY_v5tXK3hHmwQ__8jHHEbM-MlWAcF72xiV7cg34SUn6C58y-gigpCNlG2DHe6ymSe_BlIg1r1YDFdGLoa_nq9CSeeHtYKxUKuq1_BAC3xHJMQ6Q)*武汉病毒学研究所已经从其网站上删除了数百项研究，似乎是又一次掩盖中共COVID-19证据的努力。*
 
 
 
-“这是上天送给爆料革命最大的礼物！”文贵先生1月9日在盖特中这样说到。
-川普总统推特被封，脸书被封，班农战斗室被屏蔽，弗林将军、鲍威尔律师、文森特肯尼迪、法比奥社交媒体相继被封，极右派媒体全部被封杀。美东时间1月8日晚，川普总统改换标注为美国政府的总统账号再次发推后被删。推特永久冻结川普标注为美国第45届总统的个人账号。
-媒体公司、大科技公司及其背后的中共黑手正在将美国变成共产主义幽灵笼罩下的1984。
-9日文贵先生连发盖特表示，今天所发生的一切都是必然的结果。维持中共的政权只有两条：中国人的无知和中国尚能维持下去的经济。但随着爆料革命和新中国联邦的崛起，国人的开智，病毒的肆虐和经济的崩塌，中共国内部各种矛盾的激化已经到了无法化解的地步。世界范围来看，病毒的持续变异，死亡的持续增加，中共超限战所造成的世界各国人民和经济的巨大危机，无人可解，更无人敢置之不顾。
-文贵先生发出警告说：“病毒的灾难还没开始，2021年比2020年要糟糕得多的多。” “灭共是我们的终极目标！”灭共是我们唯一的选择，只有灭共，中国人民才有可能尽快结束灾难性的日子，迎来新的生活。
-“一切都已经开始，没有任何人可以停下。”爆料革命是灭共的核心力量！每一个追求的正义的力量都必须投身在这场正义与邪恶的终极之战中，坚定信仰，坚信未来！
+国家自然科学基金（NSFC）缺失了300多项研究的详细信息，其中许多研究的重点是研究从动物传播给人类的疾病。
 
-康州盘古农场报道
+国家自然科学基金会还删除了所有由武汉病毒学家石正丽进行的研究的参考资料，石正丽被称为“蝙蝠女”，因为她经常深入蝙蝠洞采集样本。
 
-素材来源：
-1.[https://gtv.org/getter/5ff9d83987fabe2daf341fa5](https://gtv.org/getter/5ff9d83987fabe2daf341fa5)
-2.[https://gtv.org/getter/5ff9d08687fabe2daf3419ef](https://gtv.org/getter/5ff9d08687fabe2daf3419ef)
-3.[https://youtu.be/1WMSo0Lk3ps](https://youtu.be/1WMSo0Lk3ps)川普推特再被封
+当2019年12月新冠病毒COVID-19开始广泛传播时，武汉实验室开始更改其病毒病原体数据库，之后出现了上述数据清除事件。
+
+原文作者：娜塔莉•温特斯（[NATALIE WINTERS](https://thenationalpulse.com/author/natalie-winters/)）/ 《国家脉动》）
+
+发布日期：1/1/2021
+
+原文链接：[https://thenationalpulse.com/breaking/ccp-wipes-covid-data/](https://thenationalpulse.com/breaking/ccp-wipes-covid-data/)
 
 +1
