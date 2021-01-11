@@ -1,28 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 再度被打压，台湾的两个国际医事组织名称被迫由台湾改名为中华台北
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/739382/)
+## 【热点播报 】中共慌忙删除武汉病毒所的数据
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/739440/)
 
-台灣農場 台灣米粉
+作者： 香草山写作组  billwilliam 校对/发稿：飞虹
 
-根据相关报导，国际医事放射师联盟（ISRRT）已在其网站上将台湾(Taiwan)更改为中华台北(Chinese Taipei)。ISRRT在2020年12月22日给台湾两个组织(台湾医事放射学会、台湾医事放射师公会全国联合会)的一封信中解释并要求更改名称，并称要求来自于世界卫生组织(WHO)。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-根据ISRRT 信件中表示“我们希望您知道您的两个组织都对ISRRT有价值。我们认识到您已经是创始组织的成员，并且您的组织在ISRRT董事会中担任过领导人。知道这对我们双方都是一个非常艰难的决定，但是我们必须满足WHO的规定，才能继续保持非国家组织的“官方关系”地位。” “我们一直在努力寻找可能的解决方案，我们相信我们已经提出了一种解决方案，考量会员资格、国家会员资格以满足世界卫生组织的章程、法规、政策和惯例，我们将 “Taiwan-TWSRT”和“ Taiwan-TAMRT”更改为“Chinese Taipei TWSRT”和“Chinese Taipei TAMRT”。这是用于列出参加奥运会仪式和运动会的国家的类似术语。” 该信得出结论，这一变化将使ISRRT保持其与世界卫生组织的正式关系。
 
-放射师公会全联会理事长杜俊元表示， TWSRT和TAMRT已加入ISRRT长达50年，都是元老会员。原先在官网上的会员名分别为“Taiwan-TWSRT”和“Taiwan-TAMRT”，每年也都会定期和会员国代表开会、进行交流。但是就在去年年初，ISRRT突然通知，称受到WHO压迫，认为台湾不算是一个国家，要求把上述2会员名称的“台湾”改为“中国台湾”。但是理解我方不会同意，所以想出折衷方案，改参考奥运参赛名称、改名为“中华台北”。
 
-理事长杜俊元接着表示，我方完全无法接受这样的结果，认为ISRRT趁在疫情期间、国际间无法进行交流之际强行改名。连我方想要见面沟通、争取转圜的余地都没有。且目前中共并非ISRRT会员，估计这种突袭式的更名，是要为之后中共的加入埋下伏笔。
+根据《每日邮报》报道，中共正在又一轮大量删除武汉病毒所的研究报告，其中包括石正丽的论文。
 
-台湾放射科医生团体和台湾外交部（MOFA）都对该组织提出了抗议，但ISRRT迄今尚未做出回应。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/圖片-1-14.png)
-评论： 尽管台湾在这次COVID-19的全球战役上表现出杰出的医疗品质以及医学管控能力，中共继续在各大国际场合压迫台湾的空间。也仅管台湾加入国际放射线学家和放射技术专家学会(ISRRT)已超过50年，甚至是创始会员，但是ISRRT仍然将两个台湾会员的名称(Taiwan-TWSRT, Taiwan-TAMRT)强行改为中华台北(Chinese Taipei TWSRT, Chinese Taipei TAMRT)。只要中共政权还在，世界各地就没有人权、世界就没有正义。现在这个时刻已经是正义与邪恶的对决，最后绝对是正义获胜，一月二十日也必定是川普总统宣誓就职。
+该报道称被删除的科研论文有300多篇，包括许多“研究疾病由动物传染给人”的论文。这些原本由中国科学院发表在网上的论文找不到了。
 
-參考新聞
-[https://tw.appledaily.com/life/20210110/U62YYB7LCJERRBK7FOHAONX7QY/?utm\_source=facebook&utm\_medium=social&utm\_campaign=twad\_article\_share&utm\_content=share\_link&fbclid=IwAR3DLbfrpcDMYEsdBTyyNpOoI9TVHy9jTNlF6ABtrnw3unXc5YVXEkE9HhY](https://tw.appledaily.com/life/20210110/U62YYB7LCJERRBK7FOHAONX7QY/?utm_source=facebook&amp;utm_medium=social&amp;utm_campaign=twad_article_share&amp;utm_content=share_link&amp;fbclid=IwAR3DLbfrpcDMYEsdBTyyNpOoI9TVHy9jTNlF6ABtrnw3unXc5YVXEkE9HhY%20%20https://taiwanenglishnews.com/legislator-slams-who-for-acting-as-thugs-for-ccp-after-international-radiologist-group-ordered-to-list-taiwan-members-under-taiwan-china/%20%20https://www.ftvnews.com.tw/news/detail/2021110W0065?fbclid=IwAR1tGjsSy2gPebnL4g9GWT2tyDEpHtN4ZROLkjQYpCxge2knn0UmMT67Ze4)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/图片6-1.png)
 
-[https://taiwanenglishnews.com/legislator-slams-who-for-acting-as-thugs-for-ccp-after-international-radiologist-group-ordered-to-list-taiwan-members-under-taiwan-china/](https://tw.appledaily.com/life/20210110/U62YYB7LCJERRBK7FOHAONX7QY/?utm_source=facebook&amp;utm_medium=social&amp;utm_campaign=twad_article_share&amp;utm_content=share_link&amp;fbclid=IwAR3DLbfrpcDMYEsdBTyyNpOoI9TVHy9jTNlF6ABtrnw3unXc5YVXEkE9HhY%20%20https://taiwanenglishnews.com/legislator-slams-who-for-acting-as-thugs-for-ccp-after-international-radiologist-group-ordered-to-list-taiwan-members-under-taiwan-china/%20%20https://www.ftvnews.com.tw/news/detail/2021110W0065?fbclid=IwAR1tGjsSy2gPebnL4g9GWT2tyDEpHtN4ZROLkjQYpCxge2knn0UmMT67Ze4)
+《每日邮报》继续写道：
 
-[https://www.ftvnews.com.tw/news/detail/2021110W0065?fbclid=IwAR1tGjsSy2gPebnL4g9GWT2tyDEpHtN4ZROLkjQYpCxge2knn0UmMT67Ze4](https://tw.appledaily.com/life/20210110/U62YYB7LCJERRBK7FOHAONX7QY/?utm_source=facebook&amp;utm_medium=social&amp;utm_campaign=twad_article_share&amp;utm_content=share_link&amp;fbclid=IwAR3DLbfrpcDMYEsdBTyyNpOoI9TVHy9jTNlF6ABtrnw3unXc5YVXEkE9HhY%20%20https://taiwanenglishnews.com/legislator-slams-who-for-acting-as-thugs-for-ccp-after-international-radiologist-group-ordered-to-list-taiwan-members-under-taiwan-china/%20%20https://www.ftvnews.com.tw/news/detail/2021110W0065?fbclid=IwAR1tGjsSy2gPebnL4g9GWT2tyDEpHtN4ZROLkjQYpCxge2knn0UmMT67Ze4)
+“作为中科院清理网上论文的一部分，已经删除了被大量引用的石正丽的研究，这位位于武汉的病毒学家因为去蝙蝠洞穴采样而被昵称为‘蝙蝠女’。
+
+“寻找病毒起源的关键研究报告消失了，包括一篇研究类似非典的冠状病毒由蝙蝠发生跨物种感染风险的论文，另一篇是研究蝙蝠携带的人类病原体的。”
+
+中共想要删除石正丽过去的研究论文，继续掩盖事实。前英国保守党领袖Iain Duncan Smith说：“中共国明显试图掩盖证据。很有必要彻底调查发生了什么，但中共国看似竭尽全力阻挠。”
+
+但事实上这不是中共国第一次试图掩盖证据。《每日邮报》说就在世界卫生组织在2019年12月得知武汉疫情的几天之前，武汉病毒所就开始篡改致病病毒的数据库。很多数据的标签被修改，调查被阻挠。比如 “野生动物” 等关键字被删除。同时，数据库的名字被从 “野生动物病毒病原体数据库”改成了“蝙蝠和鼠类病毒病原体数据库”。一些词汇比如“新发现传染病“和”跨物种感染“被删除。
+
+那么为什么中共要删除石正丽的论文呢？记得闫丽梦博士第一份报告举例了石正丽2008年的功能获得型实验。石正丽曾把非典病毒触手受体亲和域（RBM）插入无害的蝙蝠冠状病毒基因，做出的混种病毒可以结合人类细胞受体ACE2。李放也做过类似的实验。中共现在很可能想删除证据，因为这些改造并让病毒感染人的功能获得型实验非常类似于生化武器研究。
+
+但是删除这些论文就能湮灭证据吗？要知道，数据库的电脑操作系统是美国编写的，网络使用的是美国标准，网络服务器的芯片很可能是美国设计的，芯片本身也很可能是美国生产的。即使被删除，论文在网上也有痕迹，能被恢复。中共这个做法太LOW了。
+
+那么我们再来分析这回的国际政治环境，有什么大事迫使中共慌乱呢？笔者猜测美国国会有可能要调查中共病毒真相了。
+
+《华盛顿观察家报》（Washington Examiner）报道说众议院情报委员会成员，共和党众议员德文·努内斯（Devin Nunes）周五写信给情报总监拉特克里夫，要求提供中共病毒的情报。努内斯要求情报部门向国会情报委员会提交机密报告，包括几点：
+
+1. “所有研究的确切时间轴——尤其是功能获得型实验——特别是武汉病毒所和相关机构对冠状病毒的研究”；
+
+2. “反间谍分析所有美国和武汉病毒所的合作，包括美国资助的研究和经费，科学和外交合作，技术转让，以及相关或被资助的非政府组织合作”；
+
+3. “解释情报界分析的重大变化，或者这些分析的发展，关于新冠病毒的起源，武汉实验室的研究活动，中共国试图阻挠国际调查可能的实验室泄露，中共当局采取的增加新冠病毒全球死亡率和对经济干扰的行动”；
+
+4. “评估中共是否遵守国际条约，这些合约要求在新冠这样的病毒爆发时公布信息并合作”。
+
+另外，路德说，国家安全顾问奥布莱恩对中共发出警告声明。笔者猜测，如果一旦美国公布中共病毒真相，中共邪恶体制会立刻崩溃。但愿这一次“中途岛海战”中的彩虹出现了。
+
+揭露中共生物武器是无数战友的功劳，有人提供证据，有人传播信息，拯救人类，我愿荣光归战友。
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

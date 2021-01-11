@@ -1,28 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】10/01/2021:美取消对台接触限制 梵蒂冈上演停电疑云
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/739048/)
+## 美国国务院声明：“解除对美台关系的自我限制”（全文）
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/739091/)
 
-**制作:Cantonese工作室**
-播报：鱼摆摆（文驋）
-<br>资料收集：蚁蚁文依 郁金香 鱼摆摆
-<br>视频制作：Shawn
-<br>海报制作：文静、文绉绉
-**摘要:**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210110-zhCN-01.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210110-zhCN-02.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210110-zhCN-03.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210110-zhCN-04.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210110-zhCN-05.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210110-zhCN-06.jpg)
-7.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210110-zhCN-07.jpg)
-+1
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/https___cdn.cnn_.com_cnnnext_dam_assets_200128095812-mike-pompeo-file.jpg)CNN.com
+解除对美台关系的自我限制
+
+新闻声明
+
+国务卿：迈克尔·蓬佩奥
+
+2021年1月9日
+
+台湾是一个充满活力的民主国家和美国的可靠伙伴，然而几十年来，美国国务院设置了复杂的内部限制，以限制我们的外交官、军人和其他官员与台湾同行的互动。美国政府单方面采取的这些行动，是试图安抚北京的共产党政权。（现在）再也没有（必要）了。
+
+今天我宣布，我将取消所有这些自我施加的限制，行政分支机构应考虑将国务院以前根据国务卿授权发布的、所有的与台湾关系“联系指南”（试作）无效。
+
+此外，《外交手册》或《外交指南》中任何及所有章节也在此作废，这些章节传达了官方（意图），或者旨在规范行政部门通过美国在台协会（AIT）以外的任何实体与台湾的业务往来，行政机关与台湾之关系，依《台湾关系法》之规定，由非营利性美国在台学会（AIT）办理。
+
+美国政府与世界各地的非官方伙伴保持着关系，台湾也不例外。我们两个民主政体享有个人自由、法治和尊重人类尊严的共同价值观。今天的声明表明，美台关系不需要，也不应该，受到来自我们永久的官僚体系自我施加的枷锁的约束。
+
+原文链接：https://www.state.gov/lifting-self-imposed-restrictions-on-the-u-s-taiwan-relationship/
+
+0

@@ -1,25 +1,114 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 理清乱象,坚定信念,迎接黎明！
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/739480/)
+## 【大选推特/Parler实况】1/10/2021 条约只有在各方都遵守的情况下才有用; 必须用行动来维持条约&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/739514/)
 
-【日本大阪方舟农场】作者：東山堂主 校对：miumiu law
+**【大选实况】1/10/2021 EST 4:00 蓬佩奧国务卿 推文：**
 
-从最初的所谓中美贸易摩擦,发展到金融战、信息战、病毒战，选举战，一路升级，并且随着习对美发动的终极之战，我们看到有正义发声，也有肮脏的背叛，乱像缤纷，作为老百姓很难从乱象中辨清方向，在纷杂的事件中无所适从，亦真亦假、亦友亦敌，难以理出头绪。正如大陆曾经流行一首歌《雾里看花》唱的“借我借我一双慧眼吧让我把这纷扰看得清清楚楚明明白白真真切切……”
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1-27.png)
-但就算你有一双慧眼，没有强大的一手情报来源，没有爆料革命源源不断的幕后消息和以路德博士团为代表的媒体重磅的深度分析，也很难看清乱象的动机和本质，你仍然是个瞎子，甚至被赤化了的铺天盖地的媒体宣传带入阴沟。
+这是我遵循的另一项外交政策口号#美国优先：条约只有在各方都遵守的情况下才有用。
 
-在我看来，没有什么中美贸易摩擦问题，而是意识形态和制度问题，是共产主义独裁政权要主宰侵蚀西方乃至全球的问题，是利益集团要抱团瓜分世界的问题，不局限与中共国和美利坚，就像足球比赛没有国家队只有俱乐部，国籍和人种已经淡化，纯粹两个俱乐部在踢球，只不过一个俱乐部代表正义文明、一个俱乐部代表邪恶野蛮。美国大选，正是两股力量在较量。
 
-拜登的背后的力量是CCP和黑暗势力，CCP培养拜登家族几十年，准确来说是控制了几十年，是该派上场的时候了，拜登儿子之中不是吸毒就是搞钱搞女人，不得已老拜登赤膊上阵。拜登不管当选与否，都注定是悲剧，输了，没了利用价值，CCP会把他像用过的纸巾一样丢进垃圾桶，而且还会面临欺诈和叛国罪审判；赢了，一个窃取选票上位的总统，恐难控制局面，别忘了川普有7000多万的支持者，再者拜登快到80高龄了，CCP不会傻到再等四年，也许在任期内来点什么意外…..然后更加亲共的副总统顶上,所以输赢都是厄运。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/図1-23.png)
-川普的背后，是平民和正义的力量，目的就是击败CCP反渗透，清理沼泽，恢复民主秩序，重塑美国、回归传统价值，川普无论当选与否，都是胜利者，赢了，奋力一搏继续反共,当CCP巨人倒下,一场喧嚣会戛然而止,世界将迎来新的格局新的秩序,迎来一个没有共产党的新世界;输了，川普刮起重塑美国的这股旋风，不会停止，他清干了沼泽，使美国人民看到了有多少陈年积垢。道貌岸然的政治精英集团和建制派老爷中有多少为了蝇头小利或因中共威胁而屈膝的，一个川普倒下，还会有另外一个川普站起来！
 
-中共已没了后路，习不惜一切代价发起终极之战，不是为了所谓的民族伟大复兴的中国梦，而是为了家族的千秋万代帝王梦，通过控制美国从而控制世界，CCP在美国大选展现出来的主动出击、不择手段、步步为营、各个击破使川普始料未及。释放病毒、舞弊选举、强行上位（组阁）造成既成事实、媒体一边倒发声施压、组织示威造势或制造事端、以暴徒和幕后黑手定性或标签化对手、要挟或收买关键人物，环环相扣，势在必得。虽万象之缤纷，但处处有中共之魅影！CCP的邪恶结合其最崇拜的诸如“鬼谷之术”“孙子兵法”中的诡计，川普若没强大的背后正义力量支持，恐正难以压邪！
-![]()![](https://gnews.org/wp-content/uploads/2021/01/2-21.png)
-结论：表面看CCP四面出击，攻城掠地，略有斩获，川普总统“举目无亲”、“众叛亲离”，美国一片乱象，但美国百年民主基业还在，人民已经醒悟、强人已经呐喊、灭共联盟已经行动，而CCP体制从根到枝叶都腐烂透顶，党内分崩离析，党外怨声载道，已是强弩之末。当经济最后这根稻草被冲走，CCP就会沉没在历史的潮流中。现在仍然是至暗时刻，我们唯有祈祷、艰难发声、让更多的人明白真相，以坚定的信念迎接黎明的到来！
+> Here's another foreign policy mantra I've followed to put [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw): Treaties are only useful if all parties adhere to them. [pic.twitter.com/appNKEBfnq](https://t.co/appNKEBfnq)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348374054764486660?ref_src=twsrc%5Etfw)
 
-注：本文仅代表作者观点
 
-0
+来源：[https://twitter.com/secpompeo/status/1348374054764486660?s=21](https://twitter.com/secpompeo/status/1348374054764486660?s=21)
+盖特链接：[https://gtv.org/getter/5ffbae8687fabe2daf35ee41](https://gtv.org/getter/5ffbae8687fabe2daf35ee41)
+
+* * *
+
+**【大选实况】1/10/2021/ EST 4:30 pm 蓬佩奧国务卿 推文： **
+
+《 中导条约》有两个当事方。 奥巴马总统在俄罗斯作弊建立他们自己的系统时却限制了我们的军队，从而把美国人的生命置于危险中。当两方条约只有一方遵守时，这就叫做愚蠢。
+
+
+
+> There were two parties to the INF Treaty. President Obama risked American lives by restricting our military while Russia cheated and built up its systems. When only one party to a two-party treaty is complying, that’s called stupid. [pic.twitter.com/Gb6jaaz3Xe](https://t.co/Gb6jaaz3Xe)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348381601692962816?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348381601692962816?s=21](https://twitter.com/secpompeo/status/1348381601692962816?s=21)
+盖特链接：[https://gtv.org/getter/5ffbaee287fabe2daf35eea5](https://gtv.org/getter/5ffbaee287fabe2daf35eea5)
+
+* * *
+
+**【大选实况】1/10/2021/ EST 5:00 pm 蓬佩奧国务卿 推文：**
+
+我们的前任总统根据《 中导条约》单方面解除了我们的武装。 我们说“够了”，并离开了使美国无法防御的单方面协议。 #AmericaFirst
+
+
+
+> Our previous President unilaterally disarmed under the INF Treaty. We said “enough” and left the one-sided deal that made America defenseless. [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/bB5t0fckRx](https://t.co/bB5t0fckRx)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348389151926751232?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348389151926751232?s=21](https://twitter.com/secpompeo/status/1348389151926751232?s=21)
+盖特链接：[https://gtv.org/getter/5ffbaf1b87fabe2daf35eee8](https://gtv.org/getter/5ffbaf1b87fabe2daf35eee8)
+
+* * *
+
+**【大选实况】1/10/2021 EST 5:30 pm 蓬佩奧国务卿 推文： **
+
+在过去的四年中，美国大胆地揭露了未能履行《化学武器公约》规定义务的国家。
+
+
+
+> Over the last four years, the U.S. has boldly called out countries who have failed to meet their obligations under the Chemical Weapons Convention. [pic.twitter.com/FoiIM0bcLZ](https://t.co/FoiIM0bcLZ)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348396701392859136?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348396701392859136?s=21](https://twitter.com/secpompeo/status/1348396701392859136?s=21)
+盖特链接：[https://gtv.org/getter/5ffbaf5d87fabe2daf35ef3a](https://gtv.org/getter/5ffbaf5d87fabe2daf35ef3a)
+
+* * *
+
+**【大选实况】1/10/2021 EST 6:00 pm 蓬佩奧国务卿 推文： **
+
+必须用行动来维持条约。 阿萨德对自己的人民施以毒气后，川普总统对叙利亚发动了袭击。 我们是有真正的红线的。
+
+
+
+> Have to back up treaties with action. President Trump took out targets in Syria after Assad gassed his own people. We have real red lines. [https://t.co/PXVSEep0xz](https://t.co/PXVSEep0xz)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348404257196797958?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348404257196797958?s=21](https://twitter.com/secpompeo/status/1348404257196797958?s=21)
+盖特链接：[https://twitter.com/secpompeo/status/1348404257196797958?s=21](https://twitter.com/secpompeo/status/1348404257196797958?s=21)
+
+* * *
+
+**【大选实况】1/10/2021 EST 7:00 pm 蓬佩奧国务卿 推文： **
+
+条约与结盟一样，可以一直持续到失效。必须始终不断对其有效性进行评估。
+
+
+
+> Treaties, like alliances, can outlast their sell-by-date. Always have to keep evaluating their usefulness. [pic.twitter.com/up8Qtj6gn8](https://t.co/up8Qtj6gn8)
+> — Secretary Pompeo (@SecPompeo) [January 11, 2021](https://twitter.com/SecPompeo/status/1348419350370398209?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348419350370398209?s=21](https://twitter.com/secpompeo/status/1348419350370398209?s=21)
+盖特链接：[https://gtv.org/getter/5ffbb0b687fabe2daf35f08c](https://gtv.org/getter/5ffbb0b687fabe2daf35f08c)
+
+* * *
+
+**【大选实况】1/10/2021 EST 12:00 pm 蓬佩奧国务卿 推文：**
+
+#有效的多边关系 意味着重新激发活力的四方关系： 美国、澳大利亚、印度及日本之间的四方合作关系 – 思维相似、价值观一致，有益推动自由开放的印度洋-太平洋海域。
+
+
+
+> [#EffectiveMultilateralism](https://twitter.com/hashtag/EffectiveMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) means a reinvigorated Quad: like-minded values-based partnership among the U.S., Australia, India, and Japan, advancing a free & open Indo-Pacific. [pic.twitter.com/Rmqs3nTBTy](https://t.co/Rmqs3nTBTy)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348313657734811654?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1348313657734811654](https://twitter.com/SecPompeo/status/1348313657734811654)
+盖特链接：[https://gtv.org/getter/5ffbb39587fabe2daf35f384](https://gtv.org/getter/5ffbb39587fabe2daf35f384)
+
+
+
+#### **By： 【秘密翻译组 G-Translators】**
+
++1

@@ -1,52 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/10/2021 美国解密有关伊朗使用化学武器的信息; 更安全的北极=更安全的美国&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/739090/)
+## 三七二十一敬爱的习近平总书记已经257小时没有视频打卡了
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/739124/)
 
-**【大选实况】1/10/2021 EST 3:30PM 蓬佩奥国务卿发推： **
+![]()![](https://gnews.org/wp-content/uploads/2021/01/封面-35.jpg)
+撰稿：巴黎七星农场；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-我们积极地领导了北极圈委员会。 致力于使运输通道更安全。 为边远社区提供电力，医疗服务等。 更安全的北极=更安全的美国。
+自从北京时间2020年12月31日19：00敬爱的习近平总书记发布2021新年贺词至北京时间2021年1月11日12：00时止，敬爱的习近平总书记已经有257个小时没有视频打卡啦，但是，但是，中国人民没有忘掉敬爱的习近平总书记，全世界人民也没有忘掉敬爱的习近平总书记，路德社不仅非常关心敬爱的习近平总书记，而且更加关心敬爱的习近平总书记了，在过去的二十四小时里，路德社先是在[1/10/2021 路德时评（路安墨谈）：为什么路德社连续几天说梵蒂冈，梵蒂冈就大停电意味着什么？为什么习近平不但不露脸，发指示都不敢了？](https://www.youtube.com/watch?v=DisVqDs5S6E)访谈中对敬爱的习近平总书记的近况进行了非官方、非正式但是绝对是权威的解读——敬爱的习近平总书记在做了钻地鼠和伏地魔之后，在做了脑部介入手术之后，不仅从没脸见到没胆见人，现在敬爱的习近平总书记的恐惧已经扩散和转移了——敬爱的习近平总书记已经发展到没胆发指示了；这还不算完，路德社继续发扬对敬爱的习近平总书记的无微不至的关怀精神，在[1/10/2021 路德时评（路博艾冠谈）：美国家安全顾问奥布莱恩对中共发出警告声明结合北朝鲜突然深夜阅兵以及习近平到底在哪里，深入分析未来局势！](https://www.youtube.com/watch?v=D3Q6kSdWzq4)，再一次对敬爱的习近平总书记的近况进行了update——敬爱的习近平总书记到底藏在哪儿了？可是路德社这一次只卖关子，不爆实料了，好吧，反正我是不知道敬爱的习近平总书记藏在哪儿了，但是敬爱的习近平总书记和路德应该是知道敬爱的习近平总书记他老人家藏在哪儿了，不信可以用树皮为号。
 
+不管三七二十一，自从敬爱的习近平总书记在2020年12月31日19：00视频打卡至今，敬爱的习近平总书记已经在257个小时时间内没有脸见人，在经过了没有胆见人之后，已经发展到没有胆发指示了，路德社本着治病救人的精神在[1/10/2021 路德时评（路安墨谈）：为什么路德社连续几天说梵蒂冈，梵蒂冈就大停电意味着什么？为什么习近平不但不露脸，发指示都不敢了？](https://www.youtube.com/watch?v=DisVqDs5S6E)访谈中提出了免于被监控的措施，之一是采取RTF二极管电视机，之二是采用手摇电话，其实路德社也是考虑欠妥，伊朗的离心机是怎么被黑客的？至于手摇电话是否安全，那就是掩耳盗铃了，在此本砖家要向敬爱的习近平总书记提出进一步的安全建议，要知道只要在地道里，必须要具备声光电的基础条件，以及进出地道的门禁系统，以及地道里的监控信息，那么发电机系统的控制系统是否有芯片？所有进出地道的水电管线是否都可以植入木马？所有进出地道的弱电控制系统、门禁系统、面部识别系统等信息采集和控制系统是否有芯片？是否可以植入木马？另外最需要敬爱的习近平总书记关心考虑的一个问题就是——梵蒂冈怎么会停电了呢？万一地道里也停电了的话，或者万一吃不了火锅的话，那是不是就是瓮中捉鳖了？
 
+为今之计，为了避免掉入路德社考虑不周的漏洞，建议敬爱的习近平总书记回归山顶洞人的传统模式——交通靠走、通讯靠吼、治安靠狗、取暖靠抖、双修靠手，咬牙扛过去！
 
-> We’ve led vigorously in the [#ArcticCouncil](https://twitter.com/hashtag/ArcticCouncil?src=hash&amp;ref_src=twsrc%5Etfw). Worked to make shipping lanes safer. Helped rural communities with power, medical care, and more. Safer Arctic = safer America. [#EffectiveMultilateralism](https://twitter.com/hashtag/EffectiveMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/QYp0oKxgPJ](https://t.co/QYp0oKxgPJ)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348366502521663491?ref_src=twsrc%5Etfw)
+三七二十一，现在离二十一还差几了？过了初一、过了十五、过了二十一，按照幻想敬爱的习近平总书记就应该差不多也许非常可能是不会被活捉的。
 
+衷心祝愿敬爱的习近平总书记早日康复！
 
-来源：[https://twitter.com/secpompeo/status/1348366502521663491?s=21](https://twitter.com/secpompeo/status/1348366502521663491?s=21)
-盖特链接：[https://gtv.org/getter/5ffbae4a87fabe2daf35edf9](https://gtv.org/getter/5ffbae4a87fabe2daf35edf9)
+（文章内容仅代表作者个人观点）
 
-* * *
-
-**【大选实况】1/10/2021 EST 3:50PM 蓬佩奥国务卿发推：**
-
-美国之音员工对广播美国最高级外交官的声音有怨言…？ 向国外推广美国的价值观，不正是我们应该做的事情。东部时间明天下午3点，请收看我关于美国伟大与美国第一的讲话。
-
-
-
-> Voice of America employees complaining about broadcasting … the voice of America’s most senior diplomat? Seems like exactly what we should be doing to promote American values abroad. Tune in to hear my remarks about American Greatness & America First tomorrow at 3pm ET. [pic.twitter.com/VJ8jsTUwkO](https://t.co/VJ8jsTUwkO)
-> — Mike Pompeo (@mikepompeo) [January 10, 2021](https://twitter.com/mikepompeo/status/1348371565491183617?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/mikepompeo/status/1348371565491183617](https://twitter.com/mikepompeo/status/1348371565491183617)
-盖特链接：[https://gtv.org/getter/5ffbaced87fabe2daf35ec81](https://gtv.org/getter/5ffbaced87fabe2daf35ec81)
-
-* * *
-
-**【大选实况】1/10/2021 EST 6:30 pm 蓬佩奥国务卿发推： 美国还解密了有关伊朗使用化学武器的信息。 #NoImpunity [go.usa.gov/xA5q5](https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf)**
-
-
-
-> The U.S. also declassified information on Iran's use of chemical weapons. [#NoImpunity](https://twitter.com/hashtag/NoImpunity?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/JFFC4MSGIX](https://t.co/JFFC4MSGIX)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348411800572764160?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/secpompeo/status/1348411800572764160?s=21](https://twitter.com/secpompeo/status/1348411800572764160?s=21)
-**美国解密有关伊朗使用化学武器报告下载：**[https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf](https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf)
-
-* * *
-
-**By： 【秘密翻译组 G-Translators】**
-
-+1
+0

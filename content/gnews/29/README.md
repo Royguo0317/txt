@@ -1,29 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国国务院声明：“解除对美台关系的自我限制”（全文）
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/739091/)
+## 【大选推特/Parler实况】1/10/2021 美国解密有关伊朗使用化学武器的信息; 更安全的北极=更安全的美国&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/739090/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**【大选实况】1/10/2021 EST 3:30PM 蓬佩奥国务卿发推： **
 
-编辑上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/https___cdn.cnn_.com_cnnnext_dam_assets_200128095812-mike-pompeo-file.jpg)CNN.com
-解除对美台关系的自我限制
+我们积极地领导了北极圈委员会。 致力于使运输通道更安全。 为边远社区提供电力，医疗服务等。 更安全的北极=更安全的美国。
 
-新闻声明
 
-国务卿：迈克尔·蓬佩奥
 
-2021年1月9日
+> We’ve led vigorously in the [#ArcticCouncil](https://twitter.com/hashtag/ArcticCouncil?src=hash&amp;ref_src=twsrc%5Etfw). Worked to make shipping lanes safer. Helped rural communities with power, medical care, and more. Safer Arctic = safer America. [#EffectiveMultilateralism](https://twitter.com/hashtag/EffectiveMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/QYp0oKxgPJ](https://t.co/QYp0oKxgPJ)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348366502521663491?ref_src=twsrc%5Etfw)
 
-台湾是一个充满活力的民主国家和美国的可靠伙伴，然而几十年来，美国国务院设置了复杂的内部限制，以限制我们的外交官、军人和其他官员与台湾同行的互动。美国政府单方面采取的这些行动，是试图安抚北京的共产党政权。（现在）再也没有（必要）了。
 
-今天我宣布，我将取消所有这些自我施加的限制，行政分支机构应考虑将国务院以前根据国务卿授权发布的、所有的与台湾关系“联系指南”（试作）无效。
+来源：[https://twitter.com/secpompeo/status/1348366502521663491?s=21](https://twitter.com/secpompeo/status/1348366502521663491?s=21)
+盖特链接：[https://gtv.org/getter/5ffbae4a87fabe2daf35edf9](https://gtv.org/getter/5ffbae4a87fabe2daf35edf9)
 
-此外，《外交手册》或《外交指南》中任何及所有章节也在此作废，这些章节传达了官方（意图），或者旨在规范行政部门通过美国在台协会（AIT）以外的任何实体与台湾的业务往来，行政机关与台湾之关系，依《台湾关系法》之规定，由非营利性美国在台学会（AIT）办理。
+* * *
 
-美国政府与世界各地的非官方伙伴保持着关系，台湾也不例外。我们两个民主政体享有个人自由、法治和尊重人类尊严的共同价值观。今天的声明表明，美台关系不需要，也不应该，受到来自我们永久的官僚体系自我施加的枷锁的约束。
+**【大选实况】1/10/2021 EST 3:50PM 蓬佩奥国务卿发推：**
 
-原文链接：https://www.state.gov/lifting-self-imposed-restrictions-on-the-u-s-taiwan-relationship/
+美国之音员工对广播美国最高级外交官的声音有怨言…？ 向国外推广美国的价值观，不正是我们应该做的事情。东部时间明天下午3点，请收看我关于美国伟大与美国第一的讲话。
 
-0
+
+
+> Voice of America employees complaining about broadcasting … the voice of America’s most senior diplomat? Seems like exactly what we should be doing to promote American values abroad. Tune in to hear my remarks about American Greatness & America First tomorrow at 3pm ET. [pic.twitter.com/VJ8jsTUwkO](https://t.co/VJ8jsTUwkO)
+> — Mike Pompeo (@mikepompeo) [January 10, 2021](https://twitter.com/mikepompeo/status/1348371565491183617?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/mikepompeo/status/1348371565491183617](https://twitter.com/mikepompeo/status/1348371565491183617)
+盖特链接：[https://gtv.org/getter/5ffbaced87fabe2daf35ec81](https://gtv.org/getter/5ffbaced87fabe2daf35ec81)
+
+* * *
+
+**【大选实况】1/10/2021 EST 6:30 pm 蓬佩奥国务卿发推： 美国还解密了有关伊朗使用化学武器的信息。 #NoImpunity [go.usa.gov/xA5q5](https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf)**
+
+
+
+> The U.S. also declassified information on Iran's use of chemical weapons. [#NoImpunity](https://twitter.com/hashtag/NoImpunity?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/JFFC4MSGIX](https://t.co/JFFC4MSGIX)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348411800572764160?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348411800572764160?s=21](https://twitter.com/secpompeo/status/1348411800572764160?s=21)
+**美国解密有关伊朗使用化学武器报告下载：**[https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf](https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf)
+
+* * *
+
+**By： 【秘密翻译组 G-Translators】**
+
++1

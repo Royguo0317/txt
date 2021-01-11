@@ -1,35 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班农作战室641-642期摘要
-` 文乐` [轉載自GNews](https://gnews.org/zh-hans/739298/)
+## 再度被打压，台湾的两个国际医事组织名称被迫由台湾改名为中华台北
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/739382/)
 
-翻译：作战室翻译组
-编辑：文乐
+台灣農場 台灣米粉
 
-2021.1.8 War Room Ep641-642
-**Ep 641: It Will Be a Marathon 这将是一场长久战**
-嘉宾： 鲁迪•朱利安尼（Rudy Giuliani）
+根据相关报导，国际医事放射师联盟（ISRRT）已在其网站上将台湾(Taiwan)更改为中华台北(Chinese Taipei)。ISRRT在2020年12月22日给台湾两个组织(台湾医事放射学会、台湾医事放射师公会全国联合会)的一封信中解释并要求更改名称，并称要求来自于世界卫生组织(WHO)。
 
-左派媒体诋毁川普支持者发动的骚乱。总统的推特已经恢复，在昨晚后发第一推表扬支持者。建制派等已成寡头，被忽略的工人阶级和中产人士7500万人自然会支持川普。
+根据ISRRT 信件中表示“我们希望您知道您的两个组织都对ISRRT有价值。我们认识到您已经是创始组织的成员，并且您的组织在ISRRT董事会中担任过领导人。知道这对我们双方都是一个非常艰难的决定，但是我们必须满足WHO的规定，才能继续保持非国家组织的“官方关系”地位。” “我们一直在努力寻找可能的解决方案，我们相信我们已经提出了一种解决方案，考量会员资格、国家会员资格以满足世界卫生组织的章程、法规、政策和惯例，我们将 “Taiwan-TWSRT”和“ Taiwan-TAMRT”更改为“Chinese Taipei TWSRT”和“Chinese Taipei TAMRT”。这是用于列出参加奥运会仪式和运动会的国家的类似术语。” 该信得出结论，这一变化将使ISRRT保持其与世界卫生组织的正式关系。
 
-朱利安尼市长说川普一直被排挤，骚乱的人占游行人数中的很小一部分，川普没有煽动人们暴乱，骚乱的是别有用心的人事先准备好的。左派控制媒体，在两个事情上言论审查，一个是拜登事件，一个是大选欺诈。利用疫情把人控制在家里，剥夺他们的知情权。市长表示左翼想要对这个国家的控制，剥夺我们的宪法权利、自由言论、宗教自由、旅行自由、迁移自由，而且他们也要开始一种歪曲的大选形式。这是一场被操纵的大选。我们持有巨量的证据，我们被污蔑了，被诬陷为骗子、造反者。但朱利安尼市长表示川普总统不会放弃这场战斗。杰克认为川普总统应该使用他的权力去将一切解密。
+放射师公会全联会理事长杜俊元表示， TWSRT和TAMRT已加入ISRRT长达50年，都是元老会员。原先在官网上的会员名分别为“Taiwan-TWSRT”和“Taiwan-TAMRT”，每年也都会定期和会员国代表开会、进行交流。但是就在去年年初，ISRRT突然通知，称受到WHO压迫，认为台湾不算是一个国家，要求把上述2会员名称的“台湾”改为“中国台湾”。但是理解我方不会同意，所以想出折衷方案，改参考奥运参赛名称、改名为“中华台北”。
 
-班农问川普总统为什么不解密所有信息，那样拜登就根本不会成为候选人。左派正用心理战、信息战、和经济战摧毁川普主义运动。朱利安尼说应该解密，虽然他没看到机密信息，但所有已公开的信息表明，里面没有国家安全信息，都是各种丑闻，包括奥巴马、希拉里用各种非法方式试图阻止川普上台，例如捏造通俄门。朱利安尼表示将暴力事件的发生怪罪到川普和MAGA支持者的头上，就如同将之前黑命贵抗议事件所发生的暴力都怪罪到当时抗议的群体上。并且当掠夺和骚乱发生时，当时的主流声音和管制人员的口径都是：正义有时会被诠释为暴力，但我们无法为少数疯狂者负责。
+理事长杜俊元接着表示，我方完全无法接受这样的结果，认为ISRRT趁在疫情期间、国际间无法进行交流之际强行改名。连我方想要见面沟通、争取转圜的余地都没有。且目前中共并非ISRRT会员，估计这种突袭式的更名，是要为之后中共的加入埋下伏笔。
 
-班农: 彭斯所做的决定,就像庞帝•彼拉多(Pontius Pilate)和像所罗门(Solomon)做出的决定一样，是一个自食其果的决定，但总有一天会得到应有的惩罚。民主党为正在不择手段地利用各种手段构陷摧毁川普。试图发起弹劾运动弹劾他，捏造事实攻击他，诋毁他的声誉，试图让他从公众视线中彻底消失。这场战斗仍在继，我们绝不退缩据,决不放弃。
+台湾放射科医生团体和台湾外交部（MOFA）都对该组织提出了抗议，但ISRRT迄今尚未做出回应。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/圖片-1-14.png)
+评论： 尽管台湾在这次COVID-19的全球战役上表现出杰出的医疗品质以及医学管控能力，中共继续在各大国际场合压迫台湾的空间。也仅管台湾加入国际放射线学家和放射技术专家学会(ISRRT)已超过50年，甚至是创始会员，但是ISRRT仍然将两个台湾会员的名称(Taiwan-TWSRT, Taiwan-TAMRT)强行改为中华台北(Chinese Taipei TWSRT, Chinese Taipei TAMRT)。只要中共政权还在，世界各地就没有人权、世界就没有正义。现在这个时刻已经是正义与邪恶的对决，最后绝对是正义获胜，一月二十日也必定是川普总统宣誓就职。
 
-伊尔汗•奥马尔已经起草了弹劾条款，南希•佩洛西和查克•舒默在讨论使用第25条修正案。拉希姆说这明显是对宪法的侮辱。班农表示弹劾案和第25条修正案都不会成功，这是信息战的一部分，他们在毒化川普。班农表示在媒体和寡头公司对言论的打压下仍有40%多的人民明白这次大选是被窃取的。他强调现在不是抱有幻想的时候了，而是要集中精力开火的时候了。谈及米歇尔•奥巴马喊话社交平台封杀川普的事，班农犀利地指出这就是因为他们害怕川普越过主流媒体直接向民众发声。而川普能在2015-16年崛起，就是成功利用了社交媒体平台。这也是他们现在要夺走他的这个发声平台。
+參考新聞
+[https://tw.appledaily.com/life/20210110/U62YYB7LCJERRBK7FOHAONX7QY/?utm\_source=facebook&utm\_medium=social&utm\_campaign=twad\_article\_share&utm\_content=share\_link&fbclid=IwAR3DLbfrpcDMYEsdBTyyNpOoI9TVHy9jTNlF6ABtrnw3unXc5YVXEkE9HhY](https://tw.appledaily.com/life/20210110/U62YYB7LCJERRBK7FOHAONX7QY/?utm_source=facebook&amp;utm_medium=social&amp;utm_campaign=twad_article_share&amp;utm_content=share_link&amp;fbclid=IwAR3DLbfrpcDMYEsdBTyyNpOoI9TVHy9jTNlF6ABtrnw3unXc5YVXEkE9HhY%20%20https://taiwanenglishnews.com/legislator-slams-who-for-acting-as-thugs-for-ccp-after-international-radiologist-group-ordered-to-list-taiwan-members-under-taiwan-china/%20%20https://www.ftvnews.com.tw/news/detail/2021110W0065?fbclid=IwAR1tGjsSy2gPebnL4g9GWT2tyDEpHtN4ZROLkjQYpCxge2knn0UmMT67Ze4)
 
-**EP 642 The Rise of the Oligarchs 寡头的崛起
-嘉宾：约翰•伊斯曼（John Eastman）、史蒂夫•科尔特斯（Steve Cortes）**
+[https://taiwanenglishnews.com/legislator-slams-who-for-acting-as-thugs-for-ccp-after-international-radiologist-group-ordered-to-list-taiwan-members-under-taiwan-china/](https://tw.appledaily.com/life/20210110/U62YYB7LCJERRBK7FOHAONX7QY/?utm_source=facebook&amp;utm_medium=social&amp;utm_campaign=twad_article_share&amp;utm_content=share_link&amp;fbclid=IwAR3DLbfrpcDMYEsdBTyyNpOoI9TVHy9jTNlF6ABtrnw3unXc5YVXEkE9HhY%20%20https://taiwanenglishnews.com/legislator-slams-who-for-acting-as-thugs-for-ccp-after-international-radiologist-group-ordered-to-list-taiwan-members-under-taiwan-china/%20%20https://www.ftvnews.com.tw/news/detail/2021110W0065?fbclid=IwAR1tGjsSy2gPebnL4g9GWT2tyDEpHtN4ZROLkjQYpCxge2knn0UmMT67Ze4)
 
-班农连线伊士曼之前谈1月6日以来国会山的进展。佩洛西和DC市长对警察官员的解雇企图，还谈到被枪杀丧命的Ashi Babbitt女士。
+[https://www.ftvnews.com.tw/news/detail/2021110W0065?fbclid=IwAR1tGjsSy2gPebnL4g9GWT2tyDEpHtN4ZROLkjQYpCxge2knn0UmMT67Ze4](https://tw.appledaily.com/life/20210110/U62YYB7LCJERRBK7FOHAONX7QY/?utm_source=facebook&amp;utm_medium=social&amp;utm_campaign=twad_article_share&amp;utm_content=share_link&amp;fbclid=IwAR3DLbfrpcDMYEsdBTyyNpOoI9TVHy9jTNlF6ABtrnw3unXc5YVXEkE9HhY%20%20https://taiwanenglishnews.com/legislator-slams-who-for-acting-as-thugs-for-ccp-after-international-radiologist-group-ordered-to-list-taiwan-members-under-taiwan-china/%20%20https://www.ftvnews.com.tw/news/detail/2021110W0065?fbclid=IwAR1tGjsSy2gPebnL4g9GWT2tyDEpHtN4ZROLkjQYpCxge2knn0UmMT67Ze4)
 
-连线Eastman教授针对Alyssa Farah在CNN的採访评论。提到美国最高法院的有五份请愿书等待裁决，并具体讲解了宾夕法利亚州和乔治亚州的做票违法事实和证据。
-
-大家都很愤怒。讨论到之前邮寄选票舞弊（大选结束后继续选票，邮寄）给机构处理没有进展。州长阻碍召开会议。
-
-Steve Cortes：现在有信心危机，因为我们不再由川普掌权了。在今天的就业报告中，休闲和酒店业失去了50万个工作岗位。这是因为这些繁重的重新封锁和民主党的司法管辖权。而不幸的是，现在有了“当选总统拜登”的充分支持，这些封锁正大批量破坏工作，这是今天这个糟糕的就业数字的主要推动力。
-
-+1
+0
