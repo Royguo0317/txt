@@ -1,28 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 再度被打压，台湾的两个国际医事组织名称被迫由台湾改名为中华台北
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/739382/)
+## Parler 首席执行官回应亚马逊主机禁令——称这是 &#8220;科技巨头为扼杀竞争而有配合的攻击
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/739393/)
 
-台灣農場 台灣米粉
+翻译：康州盘古-Bruce
 
-根据相关报导，国际医事放射师联盟（ISRRT）已在其网站上将台湾(Taiwan)更改为中华台北(Chinese Taipei)。ISRRT在2020年12月22日给台湾两个组织(台湾医事放射学会、台湾医事放射师公会全国联合会)的一封信中解释并要求更改名称，并称要求来自于世界卫生组织(WHO)。
+校对：康州盘古-MikeLi
 
-根据ISRRT 信件中表示“我们希望您知道您的两个组织都对ISRRT有价值。我们认识到您已经是创始组织的成员，并且您的组织在ISRRT董事会中担任过领导人。知道这对我们双方都是一个非常艰难的决定，但是我们必须满足WHO的规定，才能继续保持非国家组织的“官方关系”地位。” “我们一直在努力寻找可能的解决方案，我们相信我们已经提出了一种解决方案，考量会员资格、国家会员资格以满足世界卫生组织的章程、法规、政策和惯例，我们将 “Taiwan-TWSRT”和“ Taiwan-TAMRT”更改为“Chinese Taipei TWSRT”和“Chinese Taipei TAMRT”。这是用于列出参加奥运会仪式和运动会的国家的类似术语。” 该信得出结论，这一变化将使ISRRT保持其与世界卫生组织的正式关系。
+审核：康州盘古-Truemanman
+![]()![](https://gnews.org/wp-content/uploads/2021/01/854081161001_6218005589001_6218015297001-vs.jpg)
+**Parler****首席执行官约翰****·****马兹（****John Matze****）对亚马逊将该平台踢出他们的托管服务做出了回应，称这是一次 ****“****有配合的攻击****“****。**
 
-放射师公会全联会理事长杜俊元表示， TWSRT和TAMRT已加入ISRRT长达50年，都是元老会员。原先在官网上的会员名分别为“Taiwan-TWSRT”和“Taiwan-TAMRT”，每年也都会定期和会员国代表开会、进行交流。但是就在去年年初，ISRRT突然通知，称受到WHO压迫，认为台湾不算是一个国家，要求把上述2会员名称的“台湾”改为“中国台湾”。但是理解我方不会同意，所以想出折衷方案，改参考奥运参赛名称、改名为“中华台北”。
+周六，亚马逊将Parler踢出了他们的虚拟主机服务，这意味着该平台将被关闭，直到他们找到新的主机。
 
-理事长杜俊元接着表示，我方完全无法接受这样的结果，认为ISRRT趁在疫情期间、国际间无法进行交流之际强行改名。连我方想要见面沟通、争取转圜的余地都没有。且目前中共并非ISRRT会员，估计这种突袭式的更名，是要为之后中共的加入埋下伏笔。
+该禁令于周日生效，有效地关闭了自大型科技巨头开始禁止保守派以来，保守派蜂拥而至的平台。
 
-台湾放射科医生团体和台湾外交部（MOFA）都对该组织提出了抗议，但ISRRT迄今尚未做出回应。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/圖片-1-14.png)
-评论： 尽管台湾在这次COVID-19的全球战役上表现出杰出的医疗品质以及医学管控能力，中共继续在各大国际场合压迫台湾的空间。也仅管台湾加入国际放射线学家和放射技术专家学会(ISRRT)已超过50年，甚至是创始会员，但是ISRRT仍然将两个台湾会员的名称(Taiwan-TWSRT, Taiwan-TAMRT)强行改为中华台北(Chinese Taipei TWSRT, Chinese Taipei TAMRT)。只要中共政权还在，世界各地就没有人权、世界就没有正义。现在这个时刻已经是正义与邪恶的对决，最后绝对是正义获胜，一月二十日也必定是川普总统宣誓就职。
+马兹在Parler上的一篇文章中写道：”周日（明天）午夜，亚马逊将关闭我们所有的服务器，试图彻底清除互联网上的自由言论。在我们从头开始重建的过程中，Parler有可能会在互联网上无法使用长达一周的时间。我们为这样的事件做了准备，从不依赖亚马逊专有的基础设施，并构建裸机产品。”
 
-參考新聞
-[https://tw.appledaily.com/life/20210110/U62YYB7LCJERRBK7FOHAONX7QY/?utm\_source=facebook&utm\_medium=social&utm\_campaign=twad\_article\_share&utm\_content=share\_link&fbclid=IwAR3DLbfrpcDMYEsdBTyyNpOoI9TVHy9jTNlF6ABtrnw3unXc5YVXEkE9HhY](https://tw.appledaily.com/life/20210110/U62YYB7LCJERRBK7FOHAONX7QY/?utm_source=facebook&amp;utm_medium=social&amp;utm_campaign=twad_article_share&amp;utm_content=share_link&amp;fbclid=IwAR3DLbfrpcDMYEsdBTyyNpOoI9TVHy9jTNlF6ABtrnw3unXc5YVXEkE9HhY%20%20https://taiwanenglishnews.com/legislator-slams-who-for-acting-as-thugs-for-ccp-after-international-radiologist-group-ordered-to-list-taiwan-members-under-taiwan-china/%20%20https://www.ftvnews.com.tw/news/detail/2021110W0065?fbclid=IwAR1tGjsSy2gPebnL4g9GWT2tyDEpHtN4ZROLkjQYpCxge2knn0UmMT67Ze4)
+“我们现在会尽力转移到一个新的供应商，因为有很多人在竞争我们的业务，然而亚马逊、谷歌和苹果故意这样做是一种相互配合的努力，它们知道我们的选择会受到限制，并且知道这将造成最大的损害，就在川普总统被科技公司禁止的时候，”声明继续说道。
 
-[https://taiwanenglishnews.com/legislator-slams-who-for-acting-as-thugs-for-ccp-after-international-radiologist-group-ordered-to-list-taiwan-members-under-taiwan-china/](https://tw.appledaily.com/life/20210110/U62YYB7LCJERRBK7FOHAONX7QY/?utm_source=facebook&amp;utm_medium=social&amp;utm_campaign=twad_article_share&amp;utm_content=share_link&amp;fbclid=IwAR3DLbfrpcDMYEsdBTyyNpOoI9TVHy9jTNlF6ABtrnw3unXc5YVXEkE9HhY%20%20https://taiwanenglishnews.com/legislator-slams-who-for-acting-as-thugs-for-ccp-after-international-radiologist-group-ordered-to-list-taiwan-members-under-taiwan-china/%20%20https://www.ftvnews.com.tw/news/detail/2021110W0065?fbclid=IwAR1tGjsSy2gPebnL4g9GWT2tyDEpHtN4ZROLkjQYpCxge2knn0UmMT67Ze4)
+**马兹总结道：****“****这是科技巨头们为了扼杀市场竞争而进行的有配合的攻击。（因为）我们太成功了，太快了。你可以预期关于竞争与言论自由的战争还将继续，但别指望我们**会就此出局**。****“**
 
-[https://www.ftvnews.com.tw/news/detail/2021110W0065?fbclid=IwAR1tGjsSy2gPebnL4g9GWT2tyDEpHtN4ZROLkjQYpCxge2knn0UmMT67Ze4](https://tw.appledaily.com/life/20210110/U62YYB7LCJERRBK7FOHAONX7QY/?utm_source=facebook&amp;utm_medium=social&amp;utm_campaign=twad_article_share&amp;utm_content=share_link&amp;fbclid=IwAR3DLbfrpcDMYEsdBTyyNpOoI9TVHy9jTNlF6ABtrnw3unXc5YVXEkE9HhY%20%20https://taiwanenglishnews.com/legislator-slams-who-for-acting-as-thugs-for-ccp-after-international-radiologist-group-ordered-to-list-taiwan-members-under-taiwan-china/%20%20https://www.ftvnews.com.tw/news/detail/2021110W0065?fbclid=IwAR1tGjsSy2gPebnL4g9GWT2tyDEpHtN4ZROLkjQYpCxge2knn0UmMT67Ze4)
+Parler面对的堪称是大科技公司的大规模协调网络攻击，先是在24小时内被苹果和谷歌禁言。
+
+亚马逊的员工一直在游说该平台被踢，这样他们就可以进一步压制他们的政治对手。
+
+在《BuzzFeed》新闻获得的一封电子邮件中，亚马逊网络服务(AWS)信任与安全团队告诉Parler首席政策官艾米·佩科夫(Amy Peikoff)，”在Parler上传播的暴力呼吁违反了其服务条款，亚马逊不相信该服务使用志愿者来调节此类事情的计划会有效。”
+
+当然，在去年“黑命贵”（Black Lives Matter）计划在Instagram、Twitter、Facebook和Tik Tok上进行骚乱时，他们并没有做这样的禁止。
+
+“最近，我们看到你们网站上的这种暴力内容在不断增加，这些内容都违反了我们的条款。很明显，Parler没有一个有效的流程能确保可以遵守AWS的服务条款，”邮件中写道。”如果客户不能有效识别和删除鼓励或煽动对他人实施暴力的内容，我们就无法向其提供服务，”邮件中写道。”由于Parler无法遵守我们的服务条款，并对公共安全构成了非常现实的风险，我们计划从1月10日星期日，太平洋时间下午11:59开始暂停Parler的账户。”
+
+在Parler上关于苹果当天早些时候决定将其从应用商店中禁止的帖子中，首席执行官约翰·马兹写道：”苹果将禁止Parler，直到我们放弃言论自由，制定像Twitter和Facebook一样广泛和侵入性的政策，我们通过在无辜之前追究使用Parler的人的罪责，成为一个监控平台。”
+
+*“他们声称这是由于平台上的暴力。社区不同意，因为我们今天在他们的商店里打了第一。同一天，’绞死迈克**·**彭斯**‘**，一个令人厌恶的暴力建议，在推特上全国流行。展示了苹果公司和他们的大科技包对社区适用的可怕的双重标准，**“**声明中称。**“**苹果*作为*一个软件垄断*公司*,**提供*苹果商店上*没有替代品*的*安装应用程序在你的手机*上， *我们并不拥有我们的手机，苹果只是把手机租给我们。苹果、谷歌和其他一包反竞争的大科技暴君协调行动，共同扼杀市场竞争。**“*
+
+“关于我们下一步计划的更多细节很快就会出现，因为我们有很多选择。”马兹总结道。
+
+该禁令将于太平洋时间1月10日星期日下午11:59生效。
+
+大科技公司也一直在以创纪录的速度禁止川普的支持者和盟友。他们想让你噤声。
+
+原文作者：卡桑德拉·费尔班克斯（Cassandra Fairbanks）
+
+发布时间：2021年1月9日 下午：9:09
+
+文章链接：[https://www.thegatewaypundit.com/2021/01/breaking-parler-ceo-responds-amazon-hosting-ban-says-coordinated-attack-tech-giants-kill-competition/?utm\_source=Parler&utm\_campaign=websitesharingbuttons](https://www.thegatewaypundit.com/2021/01/breaking-parler-ceo-responds-amazon-hosting-ban-says-coordinated-attack-tech-giants-kill-competition/?utm_source=Parler&amp;utm_campaign=websitesharingbuttons)
 
 0

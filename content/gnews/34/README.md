@@ -1,31 +1,114 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 为什么应该开放枪支的持有权？
-` 国内新闻组` [轉載自GNews](https://gnews.org/zh-hans/739493/)
+## 【大选推特/Parler实况】1/10/2021 条约只有在各方都遵守的情况下才有用; 必须用行动来维持条约&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/739514/)
 
-喜马拉雅国内新闻：陌冰仙 校对：加文gavin
+**【大选实况】1/10/2021 EST 4:00 蓬佩奧国务卿 推文：**
 
-大家都知道，美国和欧洲诸国对枪械的管制是远远比中共国要低的，哪怕是英国，至少可以在经过审核后持有猎枪。很多人认为，“私人持枪的权利不应该比他人的生命更加重要”、“允许老百姓持枪会造成恶性枪击案”，那么我们应该如何看待百姓的持枪权？为什么我们应该允许持枪？
-
-个人持枪权看似一项简单的权利，但在科技发达的今天，它与生命权、自卫权已经密不可分，因为哪怕国家禁止枪械，严格遵守的也只是普通民众，那些唯恐天下不乱、试图通过恐怖手段统治世界的极端分子们总是可以通过黑市或者其他手段来得到枪械，如此一来，国家如果禁枪，这些恐怖分子就可以在暗中任意屠杀手中没有枪械的老百姓，而警察不可能时时刻刻守在老百姓身边（民众的隐私权会被侵犯），等警察赶到现场，民众恐怕已经大批死亡了。
-
-提到禁枪问题，我们还可以延伸一下——联合国规定只有五常国家才有合法持有核武器的权利，但朝鲜、伊朗等独裁（流氓）国家仍然暗地里研制核武器，进而用来威胁全世界的安全。也就是说，我们应该尽量避免使用枪械与核武器，但我们手里必须有这些东西，因为世界上总有那么一些流氓、流氓国家或者恐怖分子，会运用先进科技来制造先进武器，以达成他们的罪恶目的。
-
-再者，我们应该清醒地认识到，科技的发展不仅让老百姓的生活条件越来越好，还让老百姓能够做的事情越来越多，如今的时代，充斥着计算机网络和3D打印机的身影，不再是曾经那个由几个大公司进行集中化生产的时代了。民选政府应该做的不是限制老百姓们能够干什么，这样只会阻碍社会生产力与科技的发展，而是应该让老百姓们用手中的科技产品创造更多的新事物，为人类社会的发展而出力，包括用3D打印机制造枪械来保护自身安全、威慑恐怖分子，如果政府只会一味地强加限制给老百姓，只会白白浪费社会生产力和创新能力，还会进一步削弱老百姓的自卫能力，给恐怖分子更多利用高科技手段作恶的可乘之机。
-
-我们希望看到的是，随着科技和生产力的发展，政府逐步减少对老百姓的限制，不但要充分发挥老百姓的创新能力、自我保护能力，还要保证国家和民众手中武器的技术水平达到足够先进的水平（国家使用高端武器，民众使用低威力武器）。只有这样，才能让这个世界健康发展，让百姓更好地安居乐业。如果我们连保护自己的权利都要被剥夺，那还指望谁能够真正意义上地保护我们的人身、财产安全呢？
-
-（本文仅代表作者观点）
-
-参考资料：
-
-1. [https://www.zhihu.com/question/28296890](https://www.zhihu.com/question/28296890)
-2. [https://zhidao.baidu.com/question/2272608245662895668.html](https://zhidao.baidu.com/question/2272608245662895668.html)
-[英国禁枪吗？为什么？ – 知乎](http://英国禁枪吗？为什么？%20-%20知乎)
-资料来源：深夜科普英国的枪械法律，原贴楼主是 @林力雄英国居民可以持有的枪械种类：①手动霰弹枪和半自…
+这是我遵循的另一项外交政策口号#美国优先：条约只有在各方都遵守的情况下才有用。
 
 
 
+> Here's another foreign policy mantra I've followed to put [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw): Treaties are only useful if all parties adhere to them. [pic.twitter.com/appNKEBfnq](https://t.co/appNKEBfnq)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348374054764486660?ref_src=twsrc%5Etfw)
 
-0
+
+来源：[https://twitter.com/secpompeo/status/1348374054764486660?s=21](https://twitter.com/secpompeo/status/1348374054764486660?s=21)
+盖特链接：[https://gtv.org/getter/5ffbae8687fabe2daf35ee41](https://gtv.org/getter/5ffbae8687fabe2daf35ee41)
+
+* * *
+
+**【大选实况】1/10/2021/ EST 4:30 pm 蓬佩奧国务卿 推文： **
+
+《 中导条约》有两个当事方。 奥巴马总统在俄罗斯作弊建立他们自己的系统时却限制了我们的军队，从而把美国人的生命置于危险中。当两方条约只有一方遵守时，这就叫做愚蠢。
+
+
+
+> There were two parties to the INF Treaty. President Obama risked American lives by restricting our military while Russia cheated and built up its systems. When only one party to a two-party treaty is complying, that’s called stupid. [pic.twitter.com/Gb6jaaz3Xe](https://t.co/Gb6jaaz3Xe)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348381601692962816?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348381601692962816?s=21](https://twitter.com/secpompeo/status/1348381601692962816?s=21)
+盖特链接：[https://gtv.org/getter/5ffbaee287fabe2daf35eea5](https://gtv.org/getter/5ffbaee287fabe2daf35eea5)
+
+* * *
+
+**【大选实况】1/10/2021/ EST 5:00 pm 蓬佩奧国务卿 推文：**
+
+我们的前任总统根据《 中导条约》单方面解除了我们的武装。 我们说“够了”，并离开了使美国无法防御的单方面协议。 #AmericaFirst
+
+
+
+> Our previous President unilaterally disarmed under the INF Treaty. We said “enough” and left the one-sided deal that made America defenseless. [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/bB5t0fckRx](https://t.co/bB5t0fckRx)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348389151926751232?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348389151926751232?s=21](https://twitter.com/secpompeo/status/1348389151926751232?s=21)
+盖特链接：[https://gtv.org/getter/5ffbaf1b87fabe2daf35eee8](https://gtv.org/getter/5ffbaf1b87fabe2daf35eee8)
+
+* * *
+
+**【大选实况】1/10/2021 EST 5:30 pm 蓬佩奧国务卿 推文： **
+
+在过去的四年中，美国大胆地揭露了未能履行《化学武器公约》规定义务的国家。
+
+
+
+> Over the last four years, the U.S. has boldly called out countries who have failed to meet their obligations under the Chemical Weapons Convention. [pic.twitter.com/FoiIM0bcLZ](https://t.co/FoiIM0bcLZ)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348396701392859136?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348396701392859136?s=21](https://twitter.com/secpompeo/status/1348396701392859136?s=21)
+盖特链接：[https://gtv.org/getter/5ffbaf5d87fabe2daf35ef3a](https://gtv.org/getter/5ffbaf5d87fabe2daf35ef3a)
+
+* * *
+
+**【大选实况】1/10/2021 EST 6:00 pm 蓬佩奧国务卿 推文： **
+
+必须用行动来维持条约。 阿萨德对自己的人民施以毒气后，川普总统对叙利亚发动了袭击。 我们是有真正的红线的。
+
+
+
+> Have to back up treaties with action. President Trump took out targets in Syria after Assad gassed his own people. We have real red lines. [https://t.co/PXVSEep0xz](https://t.co/PXVSEep0xz)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348404257196797958?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348404257196797958?s=21](https://twitter.com/secpompeo/status/1348404257196797958?s=21)
+盖特链接：[https://twitter.com/secpompeo/status/1348404257196797958?s=21](https://twitter.com/secpompeo/status/1348404257196797958?s=21)
+
+* * *
+
+**【大选实况】1/10/2021 EST 7:00 pm 蓬佩奧国务卿 推文： **
+
+条约与结盟一样，可以一直持续到失效。必须始终不断对其有效性进行评估。
+
+
+
+> Treaties, like alliances, can outlast their sell-by-date. Always have to keep evaluating their usefulness. [pic.twitter.com/up8Qtj6gn8](https://t.co/up8Qtj6gn8)
+> — Secretary Pompeo (@SecPompeo) [January 11, 2021](https://twitter.com/SecPompeo/status/1348419350370398209?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348419350370398209?s=21](https://twitter.com/secpompeo/status/1348419350370398209?s=21)
+盖特链接：[https://gtv.org/getter/5ffbb0b687fabe2daf35f08c](https://gtv.org/getter/5ffbb0b687fabe2daf35f08c)
+
+* * *
+
+**【大选实况】1/10/2021 EST 12:00 pm 蓬佩奧国务卿 推文：**
+
+#有效的多边关系 意味着重新激发活力的四方关系： 美国、澳大利亚、印度及日本之间的四方合作关系 – 思维相似、价值观一致，有益推动自由开放的印度洋-太平洋海域。
+
+
+
+> [#EffectiveMultilateralism](https://twitter.com/hashtag/EffectiveMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) means a reinvigorated Quad: like-minded values-based partnership among the U.S., Australia, India, and Japan, advancing a free & open Indo-Pacific. [pic.twitter.com/Rmqs3nTBTy](https://t.co/Rmqs3nTBTy)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348313657734811654?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1348313657734811654](https://twitter.com/SecPompeo/status/1348313657734811654)
+盖特链接：[https://gtv.org/getter/5ffbb39587fabe2daf35f384](https://gtv.org/getter/5ffbb39587fabe2daf35f384)
+
+
+
+#### **By： 【秘密翻译组 G-Translators】**
+
++1
