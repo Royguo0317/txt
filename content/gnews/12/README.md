@@ -1,23 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草山档案室】文贵先生谈川普总统所处的困境
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/737637/)
+## 【热点播报】日本发现全新变异病毒，病毒突变呈加速之势
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/738942/)
 
-香草山综合报道
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
+作者：纽约香草山写作组   WilsonRui
 
 
 
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
+
+
+
+
+《自由时报》2021年1月10日报道，日本国立感染症研究所今天证实，日前自巴西亚马逊州返回日本的4名乘客，被检测出与英国和南非变种病毒不同的新型变异病毒。该研究所表示，目前还未掌握该突变病毒的传染性及其他各方面的详细情形，包括现有疫苗是否对其有效。
+
+当前中共病毒在全球范围内的流行肆虐不断升级。居民占加拿大总人口41%的安省省长福特前天发出警报：据公布的病毒传播新模型预测，未来的感染数据将令人震惊到“从椅子跌落”。他说：“已经在失控，所有措施都会被考虑。”随后，该省副首席卫生官Dr. Barbara Yaffe坦言：现在的情况“很吓人”，就医人数激增导致医疗系统濒临崩溃，确诊率和阳性率都在上升，包括儿童。该地区同时还检测出最早现于英国的新冠变种毒株B.1.17，预计未来也很难避免出现南非的变种毒株。
+
+类似安省这样的中共病毒危机正在全球同步上演，而且有愈演愈烈之势。自英国首次发现新型变种病毒，至今不到一个月，已检测出至少三种新的变异病毒，且这三种病毒迅速在日本出现。这表明病毒的传染力及突变速度都在加剧。令人忧虑的是，目前各国政府和专家，仍未拿出有效应对中共病毒的方案。
+
+闫丽梦博士早前已经再三警示，(大意)中共病毒是经实验室改造，具有极强自主变异功能的智慧病毒，只有拿到中共当初制造病毒的原始资料，才能研制出有效的疫苗。如今留给人类的时间不多了。
+
+回顾闫博士自去年1月19日通过路德社，向全世界揭露中共造毒放毒的真相以及一直以来做出的所有预警，至今统统变为现实——灭共已经到了刻不容缓的地步。
+
+参考链接：
+
+[https://info.51.ca/news/canada/2021-01/960641.html](https://info.51.ca/news/canada/2021-01/960641.html)
+
+[https://news.ltn.com.tw/news/world/breakingnews/3407004](https://news.ltn.com.tw/news/world/breakingnews/3407004)
+
+编辑/校对/发稿：Irene木木
 
 更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
 更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 
-+1
+
+
+
+
++2

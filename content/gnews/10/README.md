@@ -1,19 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评粤语快报】01.10：彭佩奥宣布结束美台官员接触限制 美国常驻联合国代表克拉夫特将访问台湾
-` 粵語組` [轉載自GNews](https://gnews.org/zh-hans/737658/)
+## 【每日快讯】10/01/2021:美取消对台接触限制 梵蒂冈上演停电疑云
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/739048/)
 
-制作团队：【喜马拉雅粤语组】wen fei、一帘幽梦、文恩
+**制作:Cantonese工作室**
+播报：鱼摆摆（文驋）
+<br>资料收集：蚁蚁文依 郁金香 鱼摆摆
+<br>视频制作：Shawn
+<br>海报制作：文静、文绉绉
+**摘要:**
 
-上传：流光飞舞
-
-
-
-摘要:
-
-彭佩奥宣布结束美台官员接触限制；美国常驻联合国代表克拉夫特将访问台湾；中共一直在利用《巴黎协定》重构全球的产业链；北约盟国支持美国退出失败的INF条约
-
-[【路德时评】原视频链接](https://youtu.be/kA7pmlhD8g4)
-
-0
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210110-zhCN-01.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210110-zhCN-02.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210110-zhCN-03.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210110-zhCN-04.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210110-zhCN-05.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210110-zhCN-06.jpg)
+7.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210110-zhCN-07.jpg)
++1

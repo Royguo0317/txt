@@ -1,35 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 内外夹击之下，上海成立住房租赁产业联盟求“活路”！
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/737296/)
+## 北京政权知道世界对病毒的愤怒，已把防范“斩首行动”列为最高级别任务
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/738427/)
 
-俄罗斯莫斯科喀秋莎农场    HK小蚂蚁
+新闻简述：郭文贵先生在2021年1月9日的GTV盖特视频中，透露中共北京政权知道世界和美国人民一定会跟它算病毒的总账，所以已如惊弓之鸟，把防范“斩首行动”列为最高军事要务。郭先生还用越王勾践的故事提醒大家，带来最后胜利的关键因素可能是愚蠢的敌人自己。
+视频来源：[https://gtv.org/getter/5ff9d08687fabe2daf3419ef](https://gtv.org/getter/5ff9d08687fabe2daf3419ef) (4:42-7:02)
+**中英文对照全文**
 
-编辑上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/EpicShanghaiWebThumbnail.png)The B1M
-“光明网”1月10日消息称，上海与1月8日成立住房租赁产业联盟。此联盟是在上海市房屋管理局、上海市房地产经纪行业协会指导下，由上海建信住房服务有限责任公司发起成立，成员包括上海城方租赁住房运营管理有限公司、上海城投置业经营管理有限公司、华润置地、魔方生活服务集团有限公司、微领地创客空间运营管理集团股份有限公司、旭辉领寓、城家公寓、安歆集团等多家住房租赁领域的头部企业及产业上下游企业。
+I think this is the greatest gift to our Witshleblower Movement from the heavens. Who do you feel people in the world and American people are thinking of at this moment? Who do they hate the most? Who are they angry at the most? Do you think the virus will just disappear? Do you think the CCP can be let off easy?
 
-报道中说，“联盟的成立，旨在探索创新产业联盟合作模式和住房租赁可持续发展之路”，其实就是在告诉大家，过去上海市几十年的房地产发展模式已经走入死胡同，过去的上海市房地产开发已经无路可走！所谓的“大会倡议，各联盟企业要以实际行动…降低租赁住房税费负担，整顿租赁市场秩序…”，不过是揭穿了过去上海市房地产的降低房租都是忽悠普通老百姓的鬼话，根本就没有任何的实际行动！整个房地产行业就是一片混乱的抢劫普通老百姓的“战场”！上海之所以成立房地产租赁市场联盟，就是怕像长租公寓接连暴雷那样，让上海市的整个房地产行业轰然坍塌！
+我认为这是上天送给我们爆料革命最大的礼物。大家觉得这个时候，全世界和美国人民，最想的是谁？最恨的是谁？最生谁的气？大家觉得这病毒就没了吗？大家觉得现在共产党就没事了吗？
 
-上海市政府早在多年以前，就提出建设“廉租房”“经济适用房”“公租房”“人才公寓”等等，所谓的“惠民”房地产项目建设与开发。按道理说上海既然很早就开始各种“惠民”的房地产工程，且各种冠以动听名词的“惠民”房地产项目层出不穷，又有上海强大的金融背景做支撑，上海市的住房市场应该非常稳定和健康才对啊！为什么现在又要在上海市房屋管理局、上海市房地产经纪行业协会指导下，成立所谓的“上海住房租赁产业联盟”呢？
+I heard that the Beijing regime has now put the anti-decapitation strike as its highest priority. Its internal security guards now have more shifts each day, from the previous 12 shifts to the current 24 shifts – one shift per hour. It has reached this level [of security]!
 
-其实，上海市的房地产市场一直都在玩 “双枪老太婆”！就像一个是亲生儿子，一个是私生子女，一个是嫡出，一个是庶出！一个是有上海市政府官方控制的房地产项目开发，除了上海市政府部门以及各央企国企名义开发的房地产，还有比如前面提到的建设“公租房”“人才公寓”等！另一个就是有中央和地方政府背书支持的，盘踞中共国内各地的庞大地产公司，包括万科、万达、金地、绿城、恒大、保利、碧桂园、融创等等！虽然出身不同来路各异，但是都“殊途同归”通过房地产市场吸食中国普通劳动人民的血汗，是盘踞在中国人民身上的寄生虫！
+听说北京现在防“斩首行动”袭击列为第一级别，内部现在已经每天都所谓的换防，一天换好几次，从过去的12班，已经换成了现在24班，一小时一班，这已经到了这个程度了！
 
-那么此时此刻，中共国内疫情急剧紧张，全国各地进入战时状态，上海住房租赁市场竟然还出此新动作搞什么租赁产业联盟，而且还是在上海市房管局“指导”下成立的，中共上海市政府为什么如此大张旗鼓的公开来给“私生子”背书呢？那是因为“私生子”毕竟也是中共政府的子女，也是中共政府捞钱压榨普通中国人民的工具！再者这些“私生子女”本身就跟“亲生子女”有着千丝万缕的联系！
+Think about China’s food shortage and its “rolling pin” [fake] economy. Can it [the fake economy] become real? Can the US print a lot of money now? There are too many things to talk about, but I just don’t want to. About the [social] media, do you think American people would let it go after so many accounts were suspended by them? Whoever’s account was suspended by the media, they will definitely be the winners in the future.
 
-上海市房管局明文规定所有新的商业房地产项目开发，必须要有一定的比例划分给政府来做“经济适用房”“公租房”，但是上海市政府并不会拿出一分钱给开发商去建设这些政府项目。也就是说那些通过各种手段拿地的商业地产公司，在开发各自的房地产项目时，要免费负责帮政府建设并装修一定比例的“经济适用房”“公租房”，而上海市政府只负责成立一个官属的“上海市公共住房租赁公司”收取普通老百姓的租金，说白了就是上海市政府借房地产项目开发“空手套白狼”。
+中国的缺粮食还有擀面杖子经济，就变成真的了吗？美国现在就可以大量的印钞票了吗？太多了，我就不想多说了。还有这媒体，这媒体关掉以后，美国人就拉倒了？谁的媒体被关掉，未来这个被关掉者一定是赢家。
 
-当然又有哪个房地产开发商或者公司甘愿做傻子呢？“羊毛出在羊身上”！—自然是由那些花光祖宗几代人积蓄，去排队摇号找关系走后门购买商业住宅的老百姓来买单！也就是说上海市政府除了以税收之名，在卖房卖地的过程中，收取将近占购房款金额70%-80%缴纳金以外，还白得一大批不受70年产权限制，由开发商帮助建设装修，用来长年累月的通过银行收房租的租赁房屋！与此同时，那些通过各种复杂手续，甚至找关系走后门住进市政府租赁房的“海漂”们，还会感恩戴德甚至幸灾乐祸自己的“好运”！所以，就像郭文贵先生说的，中国人不是被中国共产党强奸一次两次，而是一生都在不断的被中国共产党连续强奸着，而且中共在强奸普通中国老百姓的过程中，还让普通的中国老百姓喊高潮！真是可恨又可悲啊！
+At this moment, my dear brothers and sisters in arms, we are not competing for our persistence, not our courages, not your righteousness, then what are we competing for? At this crucial moment, fellow fighters, let’s learn from the king of the Yue Kingdom, Gou Jian. Anyone who understands the historical story of King Gou Jian should still remember what led to Gou Jian’s final victory. Was it due to the 500 prodigies? The handful of Ministers around him? Was it Fan Li? Was it due to his sacrifices and persistence? None of them. It was because of its opponent, Bo Pi, a fatuous king of the Wu Kingdom, together with his wrong decisions that led him to death. Otherwise, it [the victory of Gou Jian] would be impossible.
 
-如果说全中国的房地产市场是一个个大泡沫的话，那上海市的房地产根本就是泡沫中的泡沫！作为中共国四大直辖市之一，上海一直号称是中共的“钱袋子”，是中共努力打造的国内金融中心。在中共以“国安法”名义严重破坏了香港的民主与法治以后，更企图让上海替代香港成为新的“国际金融中心”。上海的房地产市场自然是其中重要的一个角色，是中共政府长期以来忽悠普通的老百姓，靠卖房卖地拉动中共国内经济的重要支柱，也是中共有底气与美国华尔街勾兑，“蓝金黄”各国政府政要名人资本最根本的源泉！
+这个时候，亲爱的兄弟姐妹们，拼的不是耐力，拼的也不是勇气，拼的也不是你的正义，拼的是什么？战友们现在？最关键的时候，学学越王勾践。任何懂得越王勾践这个历史故事[1]的人都记住，越王勾践最后赢在了哪里？在那500个神童吗？是他身边的几个大臣吗？是范蠡吗？是他牺牲了的耐力吗？都不是。是对方，是伯嚭，是真正的吴王的昏君，还有他错误的决定，走向了黄泉路，否则不可能的。
 
-如今，中共病毒不仅仅搞乱了美国，祸害了全世界！中共病毒也毒害了自己！在中共病毒疫情之前，西方国家已经在爆料革命的呼喊声中，开始意识到中国共产党这颗毒瘤的邪恶与疯狂！美国与中共的贸易战，试图压制中共的疯狂扩张，以挽救美国的各大基础工业和高科技领域以及金融市场，然而中共没有坐以待毙，向美国乃至全世界发起了生物病毒武器攻击，试图在美国和全世界制造的混乱中浑水摸鱼然后称霸世界！
+[What will destroy the CCP are] the CCP’s internal struggles, it’s non-curable cancers in its economy and politics, the 1.4 billion people’s open mouths waiting for food and never ending, unsolvable resentment, and the most vicious virus in this world.
 
-这正如金庸先生的武侠小说《倚天屠龙记》中那崆峒派的“七伤拳”一样！“伤人先伤己”！中共病毒在全世界肆虐的同时，中共国内经济业已凋敝满目疮痍！面对美国科技、金融制裁和国内疫情封锁，中共国的外贸如同秋冬天的梧桐叶一茬更比一茬少！而中共国内的各行各业也如昨日黄花，繁华不在俨然已是油尽灯枯！所谓的内循环成了人尽皆知的天大笑话！像上海这样的大城市里，最直接的体现就是人员外流，房地产行业有价无市、房屋空置率高居不下，金融行业更是摇摇欲坠再也无法给房地产做支撑。尽管此时上海各大房企互相抱团取暖，但恐怕也是无济于事！中共政府长期以来依靠卖房卖地维持地方经济的疯狂已是走到了历史的尽头！
+现在共产党的内乱，和共产党内部的永远无法治愈的经济癌症、政治癌症和整个14亿人民张着嘴要吃饭的这种永远填不满的这种怨恨，解决不了的怨恨，还有世界上最可怕的病毒。
 
-参考链接：
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/735453/](https://gnews.org/zh-hans/735453/)
 
-[https://m.sohu.com/a/443576916\_162758/?pvid=000115\_3w\_a](https://m.sohu.com/a/443576916_162758/?pvid=000115_3w_a)
+参考文献[1]: [https://en.wikipedia.org/wiki/Goujian](https://en.wikipedia.org/wiki/Goujian)
 
-0
+*翻译：【Isaiah4031】校对：【BruhM】字幕：【相机过热啊】视频解码：【恒久忍耐】编辑：【Isaiah4031】*
+
+*喜马拉雅玫瑰园小队出品*
+
+*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
+
++2

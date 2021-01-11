@@ -1,95 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 盗窃的艺术——纳瓦罗报告·第二卷（三）
-` 美国纽约七星会农场（原名：为子孙爱七哥农场）` [轉載自GNews](https://gnews.org/zh-hans/737542/)
+## 中共新规：中共国实体不应遵守“不合理”的外国法律
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/738894/)
 
-翻译：Tom Cat  ｜  校对： jiasen ｜  编辑、美工：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/01/纳瓦罗报告第二卷3.jpg)
-往期链接：
+翻译/简评：加拿大草原三省战友之家 文莱
+校对 文锦 发稿 云起时
+![]()![](https://gnews.org/wp-content/uploads/2021/01/4-18.jpg)图片来源：QUARTZ
+1月9日印度时报（HindustanTimes）报道，中共国发布了新的规定，以阻止其公司和公民必须遵守“不合理的”外国法律和措施，这是对美国、对字节跳动公司（ByteDance Ltd.）其下的TikTok等企业限制的最新举措。
 
-[盗窃的艺术——纳瓦罗报告·第二卷（一）](https://gnews.org/zh-hans/729551/)
+商务部在一份声明中表示，外国立法中的“制止不正当的域外使用”规则和其他措施立即生效，并允许当局禁止在中共国实体认为不适当的情况下对中共国实体施加其他司法管辖区的法律。商务部在周六其网站上表示中共国这一举动旨在保护“正常贸易”和其他活动。专门从事经济制裁的香港律师事务所斯蒂芬·约翰逊律师事务所（Strtoe＆Johnson LLP）的律师尼古拉斯·特纳（Nicholas Turner）周六表示，新命令将会在中共国强制执行，但很难适用于境外。
 
-[盗窃的艺术——纳瓦罗报告·第二卷（二）](https://gnews.org/zh-hans/734761/)
+特纳说：“对于中共国境外的活动还有待观察，比如中共国是否会有效地阻止公司遵守美国在该地区或其他地方的制裁措施。”
 
-## The Democrat Party’s Grand “Stuff the Ballot Box” Strategy
+美国总统唐纳德·川普（Donald Trump）在就任的最后几天扩大了对中共国公司的制裁，这进一步加剧了世界上两个最大经济体之间的联系。
 
-## 民主党的“塞满选票箱”大战略
+川普总统本月初对蚂蚁集团公司的支付宝和腾讯控股有限公司的数字钱包等中共国应用的交易系统进行了禁止制裁。这进一步推动了字节跳动公司出售其下TikTok的资产创收。纽约证卷交易所也参与进来，听取了川普政府的呼吁，要求交易所上市的某些中共国公司退市。北京还一再向加拿大施加压力，要求释放华为技术公司创始人任正非的女儿孟晚舟。加拿大当局一年前应美国政府的要求拘留孟晚舟。
+特纳说：“由于华盛顿的过激执法历史，许多公司将继续在遵守美国法律方面犯错误。但是《中共国命令》无法改变美国公司遵守制裁或其他法律的义务，因此在中共国具有重要商业利益的公司可能需要谨慎行事。”
 
-This section of the report provides a broad overview of all of the various moving pieces and parts of the Democrat Party’s Grand “Stuff the Ballot Box” Strategy. In the sections of the report that follow, we will provide additional granularity to each of these moving pieces and parts.
+商务部在另一份声明中援引了中国人民大学法学教授韩立宇的话：“海外国家使用了越来越多的不‘恰当‘的法律连续地破坏了基于规则的多边贸易体系，并对全球经济复苏造成了负面影响。”
 
-报告的这一部分提供了所有在民主党的“塞满选票箱”大战略中各种要点的概述。在报告接下来的部分，我们会提供关于每个要点的各种细节。
+根据声明将由商务部和最高规划机构牵头的新工作机制将监督对此类案件的评估，并根据诸如是否违反国际法以及对中共国主权和中共国人“合法权利”的潜在影响等因素做出决定。
 
-As illustrated in Figure Two, the Democrat Party and its political operatives used a two-pronged Grand “Stuff the Ballot Box” Strategy to FLOOD six key battleground states – Arizona, Georgia, Michigan, Nevada, Pennsylvania, and Wisconsin – with enough illegal absentee and mail-in ballots to turn a decisive Trump victory into a narrow and illegitimate Biden alleged “win.”
+政府部门表示，公司和公民可以向中共国法院提起诉讼，以要求赔偿因新规定被视为不合理的外国裁决而蒙受的损失。
 
-如图二所示，民主党及其政治代理人实施了双管齐下的“塞满选票箱”大战略，用足够多的非法缺席选票和邮寄选票，充斥了亚利桑那、佐治亚、密西根、内华达、宾夕法尼亚和威斯康星这六个主要战场州，将川普的决定性胜利变成了拜登的微弱的非法的所谓“胜利”。
+韩表示，中共国在采取此类措施方面并非唯一，因为在欧盟以及简答和墨西哥等国家已经制定了类似的立法。但特纳说：“迄今为止，中共国还没有一个明确的机制来阻止外国制裁的影响，这一事实本身是值得注意的。而欧盟的封锁法规自1996年以来就已经生效，俄罗斯和其他国家也采取了类似的措施机制。”
 
-### *Figure Two*
+简评：
+中共对于川普政府还未“过渡“前的开胃制裁已经开始显现出措手不及，因为职业律师明确指出中共国还未创建一个有效的机制来应对或阻止外国制裁的影响，所以这一系列的制裁”组合拳“将会为中共经济日后的雪崩打下基石。而政府表示的有损失的任何一方都可以向中共国法院提起诉讼，以获得赔偿，这将无法在中共实现因为独裁国无法律可言。TikTok是美国现任政府认定的国家安全威胁之一，大数据的分析将会扭曲不明真相群众的认知、对民主自由世界的人民洗脑，使他们对共产主义全球化无法抗拒因为已深陷其中。爆料革命自2017年以来不断地告知世界这一个个的真相，现在这些真相正在一个个的被验证中。
 
-### 图表二
+[原文链接](https://www.hindustantimes.com/world-news/china-issues-rules-to-stop-unjustified-use-of-foreign-laws-101610181880123.html)
 
-![pastedGraphic.png]()![pastedGraphic.png](https://gnews.org/wp-content/uploads/2021/01/纳瓦罗报告第二卷插图.jpg)
-
-The first and most obvious prong of the strategy was to dramatically INCREASE the number of registered Democrat absentee and mail-in ballots cast in six battleground states – Arizona, Georgia, Michigan, Nevada, Pennsylvania, and Wisconsin. As President Jimmy Carter and former Secretary of State James Baker warned in their landmark 2005 Carter-Baker Commission Report, the best way to stuff illegal ballots into our election system without detection is by increasing absentee and mail-in ballots.
-
-这一策略的第一个也是最明显的举措是在六个战场州 – 亚利桑那州，佐治亚州，密西根州，内华达州，宾夕法尼亚州和威斯康辛州中大幅度**增加**民主党登记的缺席投票和邮寄投票的数量。正如吉米·卡特（Jimmy Carter）总统和前国务卿詹姆斯·贝克（James Baker）在具有里程碑意义的2005年卡特-贝克委员会报告中警告的一样，要想在不被发现的情况下把非法选票塞进我们的选举系统，最好的办法就是增加缺席投票和邮寄投票数量。
-
-The second and more subtle prong of the strategy was to dramatically DECREASE the scrutiny and concomitant certification or verification of this new flood of absentee and mail-in ballots. By essentially taking the ballot verification cops off the beat, the practical result would be to dramatically INCREASE the number of illegal ballots that would be counted in the battleground states.
-
-这一策略的的第二步，也是更微妙的一步是大幅度**减少**对新出现的大量缺席和邮寄投票的复查，认证或证明。通过本质上的让验票“警察”脱离工作，实际的结果将是大幅度**增加**在战场州上非法选票的数量。
-
-Figure Three illustrates the various (mostly) legal means and gambits the Democrat Party used to strategically game the presidential election system and thereby achieve what was, in effect, an illegal end – a FLOOD of illegal ballots sufficient to tip the election to Joe Biden.
-
-图三显示了民主党在总统选举系统中玩弄的各种（主要）合法手段和策略，从而实现了实际上是非法的选举结果 – 大量足以让乔·拜登获胜的非法选票。
-
-These gambits included: law changes by state legislatures; rule changes by Secretaries of State (SOS) and other election officials; various court rulings, court interventions, and petitions; the aggressive use of so-called “Public-Private Partnerships” often funded by oligarchs like Mark Zuckerberg and George Soros; and the equally aggressive use of propaganda campaigns under the guise of “public awareness” messaging.
-
-这些策略包括：州立法机构修改法律；州务卿们（SOS）以及其他选举官员改变规则；各种法院裁决、法院干预，以及诉状；激进地使用通常由如马克·扎克伯格（Mark Zuckerberg）和乔治·索罗斯（George Soros）等寡头资助的所谓“公私合作”；以及同样激进的使用由“公众意识”信息伪装的宣传活动。
-
-### *Figure Three*
-
-### 图表三
-
-### Democrat Party Strategically Games the 2020 Presidential Election
-
-### 民主党战略性地玩弄了2020年总统大选
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-10-at-10.11.07-PM.png)
-You can see from the checkmarks in Figure Three that each of these gambits are present in a significant degree in all six battleground states. Of the six states, Nevada, with its Democrat Governor and Democrat Legislature, is the worst offender followed by Michigan and Pennsylvania, each of which have a Democrat Governor.
-
-你可以从图三中的勾选标记中看到这些招数在所有六个战场州中都大量存在。在这六个州中，拥有民主党州长和民主党立法机构的内华达州是最严重的违法者，其次是密西根州和宾夕法尼亚州，每个州都有一位民主党州长。
-
-Figure Four illustrates the variety of means and gambits the Democrat Party employed to dramatically INCREASE the flood of absentee and mail-in ballots. These gambits – many of them legal but some of them clearly bending or breaking the law or rules – included: relaxing mail-in and absentee ballot rules; sending absentee or mail-in ballots or applications for such ballots to every voter (universal mailing); increasing both the legal and illegal use of drop boxes; ballot harvesting; and the use of corrupt voting machines.
-
-图四显示了民主党为大幅度**增加**了缺席投票和邮寄投票而采取的各种手段和策略。这些策略 – 很多是合法的但其中一些显然是扭曲或违反了法律和规则 – 包括：放宽邮寄选票和缺席选票；将缺席或邮寄选票或这类选票的申请寄到每个投票人（普遍邮寄）；增加投票箱的合法和非法使用；选票收割；使用有缺陷的投票机。
-
-### *Figure Four*
-
-### 图表四
-
-### Dramatically INCREASE Absentee and Mail-In Ballots
-
-### 大幅度**增加**缺席投票和邮寄投票
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-10-at-10.13.07-PM.png)
-Figure Five similarly illustrates the variety of gambits the Democrat Party employed to DECREASE scrutiny of absentee and mail-in ballots. These gambits included: relaxation of ID verification; reduced signature matching requirements; illegally counting naked ballots to increase ballot curing – both legal and illegal; and reduced poll watching and observing. Again, it is important to point out here that much of what the Democrats did was legal; but some of what they did at times also bent, and arguably sometimes broke, the rules or the law.
-
-类似地，图五说明了民主党采取了各种策略来**减少**对缺席选票和邮寄选票的审查。这些策略包括：放宽身份证验证；减少匹配签名的要求；非法统计裸票以增加选票补救 – 以合法及非法手段；减少投票督查和监察。这里需要再次指出的重要一点是，民主党做的很多事情都是合法的；但他们所做的有时也在歪曲，并有时会违反规则或法律。
-
-### *Figure Five*
-
-### 图表五
-
-### Dramatically DECREASE Absentee and Mail-In Ballot Verification
-
-### 大幅度**减少**缺席选票和邮寄选票的验证
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-10-at-10.14.00-PM.png)
-In the remainder of this report, we shall further deconstruct the Grand Strategy of the Democrat Party following the flow and logic of the figures above.
-
-本报告的其余部分中，我们将进一步根据上述图表的流程和逻辑，解析民主党的宏大战略。
-
-更多精彩内容请关注：
-
-- [美国纽约七星会农场（为子孙爱七哥）GTV](https://gtv.org/user/5e986b24b005bd6d929820bd)
-- [欢迎加入农场Discord战友群](https://discord.gg/2vXAV6G)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/19044815/%E4%B8%83%E6%98%9F%E4%BC%9A%E5%BA%95%E6%A0%8F-2.jpg)
-0
++2

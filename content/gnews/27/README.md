@@ -1,50 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 被推特压制后川普寻求新的网络传声筒，盖特或成优选
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/737384/)
+## 【大选推特/Parler实况】1/9/2021 苹果和谷歌正在审查（移除）其他的数字平台（Parler)&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/738500/)
 
-- 编辑：Victor Torres
+**【大选实况】1/9/2021 EST 11:00PM Steve Cortes 推文： **
+
+依然和我们的总统站在一起！
+![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-63.jpg)来源：[https://twitter.com/cortessteve/status/1348117428199432195?s=21](https://twitter.com/cortessteve/status/1348117428199432195?s=21)
+盖特链接：[https://gtv.org/getter/5ffb593d87fabe2daf358c14](https://gtv.org/getter/5ffb593d87fabe2daf358c14)
+
+**【大选实况】 1/9/2021 EST 11:18AM Rob Schneider 推文**：
+
+随着Twitter 和Facebook带头开始审查言论，苹果和谷歌正在审查（移除）其他的数字平台（Parler)，因为它不对言论进行审查。我希望你们现在能够意识到真正视觉上的德国国会纵火案（Reichstag国会大楼已被烧毁）。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-64.jpg)来源：[https://twitter.com/robschneider/status/1347940880192208899?s=21](https://twitter.com/robschneider/status/1347940880192208899?s=21)
+盖特链接：[https://gtv.org/getter/5ffb5e1187fabe2daf359151](https://gtv.org/getter/5ffb5e1187fabe2daf359151)
+
+**【大选实况】 1/9/2021 EST 12:31PM Richard Grenell 推文：**
+
+嘿！乔·拜登和卡马拉·哈里斯，你们在告诉其他国家不能禁言、审查和关闭他们政治对手言论的时候，祝你们好运。这是美国品牌的危机，而你们暂时为危机带来的权力而狂欢。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-65.jpg)来源：[https://twitter.com/richardgrenell/status/1347959315236151296?s=21](https://twitter.com/richardgrenell/status/1347959315236151296?s=21)
+盖特链接：[https://gtv.org/getter/5ffb5f3a87fabe2daf3592c7](https://gtv.org/getter/5ffb5f3a87fabe2daf3592c7)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月10日电/西喜社——**
+By： 【秘密翻译组G-Translators–北美组】
 
-据美联社周日报道，一位推特智囊开玩笑说，在推特和脸书压制总统煽动叛乱后，白宫的灯光一闪一闪，唐纳德·川普用摩斯密码向他的追随者发出信号。
-
-虽然被剥夺了他的大型在线扩音器，但川普确实有其他选择。对极右翼友好的Parler可能是领先的候选人，尽管谷歌和苹果都已经从他们的应用商店中删除了它，亚马逊决定将其从其网络托管服务中引导出来。Parler的首席执行官表示，这可能会使它离线一周。
-
-川普可能会推出自己的平台，但这不会在一夜之间发生。
-
-推特周五结束了川普近12年的账户。
-
-Facebook和Instagram至少在就职典礼日之前暂停川普的账号。Twitch和Snapchat也已经禁用了川普的账户，Shopify下架了与总统有关的在线商店，Reddit则删除了一个川普子群。推特还封禁了包括前国家安全顾问迈克尔·弗林（Michael Flynn）在内的川普忠诚者，对宣传QAnon阴谋论和国会起义的账号进行了全面清理。有些人有几十万的追随者。
-
-在周五的一份声明中，川普说。”我们一直在和其他各个网站谈判，很快就会有一个重大的宣布，同时我们也在研究在不久的将来建立自己平台的可能性。”
-
-专家曾预测川普可能会在Parler上出现，不过，Parler在周五遇到了阻力，因为谷歌将其智能手机应用从其应用商店中撤下。苹果公司在给Parler 24小时内解决其被用于 “策划和促进更多非法和危险活动 “的投诉后，于周六晚间跟进。苹果表示，在恢复之前，需要解决公共安全问题。
-
-亚马逊周六再次出手，通知Parler需要寻找新的网络托管服务，周日午夜生效。它在Buzzfeed首次报道的一封信中提醒Parler，它在过去几周内已经告知了它98个 “明显鼓励和煽动暴力 “的帖子的例子，并表示该平台 “对公共安全构成了非常真实的风险”。
-
-Parler首席执行官约翰·马策（John Matze）谴责这些惩罚是 “科技巨头为扼杀市场竞争而进行的协调攻击。我们成功得太快了。”他在周六晚间的一篇文章中表示，Parler有可能在长达一周的时间内无法使用，”因为我们要从头开始重建”。
-
-此前，马策抱怨说自己是替罪羊。”不适用于Twitter、Facebook甚至苹果自己的标准，适用于Parler”。他说，他 “不会向有政治动机的公司和那些讨厌言论自由的独裁者屈服”。
-
-失去谷歌和苹果—它们的操作系统为数亿部智能手机提供动力—的应用商店的访问权，严重限制了Parler的影响力，尽管它将继续通过网络浏览器访问。失去亚马逊网络服务将意味着Parler需要争分夺秒地寻找另一个网络主机—除了重新设计之外。
-
-Gab是川普的另一个潜在落脚点。但它在互联网主机方面也遇到了麻烦。谷歌和苹果都在2017年将其从应用商店中踢出，次年由于被指控在匹兹堡犹太教堂杀害11人的男子所发的反犹太主义帖子，它一度陷入互联网无家可归的境地。微软还终止了一份网络托管合同。
-
-马萨诸塞大学-阿姆赫斯特分校的公民媒体教授伊桑-祖克曼（Ethan Zuckerman）预计，川普的去平台化可能会刺激重要的网络转变。首先，社交媒体世界可能会沿着意识形态的路线加速分裂。
-
-“川普无论走到哪里，都会拉来很多受众，”他说。这可能意味着更多平台的受众规模更小，意识形态上更孤立。
-
-祖克曼还预计，包括在国会将有关于网络言论监管的重大辩论。
-
-“我猜测你会看到来自右派的努力，认为不应该对可接受的言论进行监管，”他说。”我想你会看到民主党方面的论点，即言论是一个公共健康问题。”
-
-小编揣测一下，川普总统不久会入驻咱们的盖特、Gtv和Gnews等平台，这将会打破舆论封锁和大科技、大媒体的垄断，为美国和新中国联邦带来双赢局面。
-
-新闻来源：[https://apnews.com/article/donald-trump-media-social-media-coronavirus-pandemic-dd9816678b27b9e387ea1c270f18adc5](https://apnews.com/article/donald-trump-media-social-media-coronavirus-pandemic-dd9816678b27b9e387ea1c270f18adc5)
-![]()
-+2
+0

@@ -1,31 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评粤语快报】1.07：FCC发布一则公告提醒所有媒体遵守美国紧急广播系统
-` 粵語組` [轉載自GNews](https://gnews.org/zh-hans/737750/)
+## 【大选推特/Parler实况】1/10/2021 美国解密有关伊朗使用化学武器的信息; 更安全的北极=更安全的美国&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/739090/)
 
-制作团队：【喜马拉雅粤语组】西林、一帘幽梦、Coco22
+**【大选实况】1/10/2021 EST 3:30PM 蓬佩奥国务卿发推： **
 
-上传：文粤
+我们积极地领导了北极圈委员会。 致力于使运输通道更安全。 为边远社区提供电力，医疗服务等。 更安全的北极=更安全的美国。
 
-主要内容
 
-**蓬佩澳国务卿发布一系列推文**
 
-彭佩奥国务卿连发数个推特，说到：我们已经发布了有关中共对美国人民和美国企业构成威胁的更多信息，信息=更好的决策。同时彭佩奥国务卿还警告机构投资者和捐赠基金管理人不要资助对美国构成国家安全风险的中共国军事公司。我们站在台湾朋友身边。在过去三年，川普政府授权向台湾出售超过150亿美元的武器。而奥巴马政府呢？在8年的时间里创造了140亿美元的销售额。
+> We’ve led vigorously in the [#ArcticCouncil](https://twitter.com/hashtag/ArcticCouncil?src=hash&amp;ref_src=twsrc%5Etfw). Worked to make shipping lanes safer. Helped rural communities with power, medical care, and more. Safer Arctic = safer America. [#EffectiveMultilateralism](https://twitter.com/hashtag/EffectiveMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/QYp0oKxgPJ](https://t.co/QYp0oKxgPJ)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348366502521663491?ref_src=twsrc%5Etfw)
 
-彭培奥先生的一系列推是代表美国国务卿的身份发的，他没有停止工作的意思。这些推文是代表美国国家对中共威胁的认识，本质上来说，中共就是用美国人的钱偷骗抢美国人的科技来打造自己科技系统，用这种方式强大自己，把共产主义意识形态传给世界。这几年来，美国通过经济、知识产权盗窃、科技问题等手段回击中共、和中共脱钩。这些推文反映了彭培奥国务卿灭共的决心更强了。
 
-**环球时报发布中美重启合作评论文章意味着什么**
+来源：[https://twitter.com/secpompeo/status/1348366502521663491?s=21](https://twitter.com/secpompeo/status/1348366502521663491?s=21)
+盖特链接：[https://gtv.org/getter/5ffbae4a87fabe2daf35edf9](https://gtv.org/getter/5ffbae4a87fabe2daf35edf9)
 
-美国国会认证拜登选举成功后，中共向拜登喊话，中共急于在几个方面与美国合作。其目的是掩盖中共病毒疫情真相，盗取美国的特效药、疫苗技术，以气候危机名义控制能源、分配利益，利用美国经济给中共输血，利用朝鲜威胁邻国。
+* * *
 
-接下来的13天就是改变人类命运的时刻。川普总统原先指望通过最高法翻盘，但是最高法都不敢接手，后来又指望走国会程序，但是也没有成功，现在只剩美国百姓的拥枪权，一旦美国国会通过立法取消百姓的拥枪权，这权力也将失去。如果川普总统再没有行动，美国将成为下一个香港，社交媒体、科技、权力、疫情和能源等等都被操控。中共用资本打造的利益链条，控制5G、AI等新兴的科技，再过几年，当这些技术达到成熟的时候，而这些技术被权力所用的时候，就会走到数字监狱的社会。
+**【大选实况】1/10/2021 EST 3:50PM 蓬佩奥国务卿发推：**
 
-**FCC发布一则公告提醒所有媒体遵守美国紧急广播系统**
+美国之音员工对广播美国最高级外交官的声音有怨言…？ 向国外推广美国的价值观，不正是我们应该做的事情。东部时间明天下午3点，请收看我关于美国伟大与美国第一的讲话。
 
-美国FCC部门今天发布一则文件，提醒紧急警报系统（EAS）参与者遵守义务，包括确保残疾人可以使用警报。美国有线无线电视台、手机运营商和广播系统都归FCC管辖，一旦美国总统发布紧急演讲，媒体平台必须播报，不得禁止；紧急警报系统是一套美国的警报系统，除了提醒公众当地天气突发事件，如龙卷风和山洪，官方的目的是为了能让美国总统在10分钟内与全国通话。
 
-[【路德时评】原视频链接](https://youtu.be/pYqvn3a0kZQ)
 
-0
+> Voice of America employees complaining about broadcasting … the voice of America’s most senior diplomat? Seems like exactly what we should be doing to promote American values abroad. Tune in to hear my remarks about American Greatness & America First tomorrow at 3pm ET. [pic.twitter.com/VJ8jsTUwkO](https://t.co/VJ8jsTUwkO)
+> — Mike Pompeo (@mikepompeo) [January 10, 2021](https://twitter.com/mikepompeo/status/1348371565491183617?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/mikepompeo/status/1348371565491183617](https://twitter.com/mikepompeo/status/1348371565491183617)
+盖特链接：[https://gtv.org/getter/5ffbaced87fabe2daf35ec81](https://gtv.org/getter/5ffbaced87fabe2daf35ec81)
+
+* * *
+
+**【大选实况】1/10/2021 EST 6:30 pm 蓬佩奥国务卿发推： 美国还解密了有关伊朗使用化学武器的信息。 #NoImpunity [go.usa.gov/xA5q5](https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf)**
+
+
+
+> The U.S. also declassified information on Iran's use of chemical weapons. [#NoImpunity](https://twitter.com/hashtag/NoImpunity?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/JFFC4MSGIX](https://t.co/JFFC4MSGIX)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348411800572764160?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348411800572764160?s=21](https://twitter.com/secpompeo/status/1348411800572764160?s=21)
+**美国解密有关伊朗使用化学武器报告下载：**[https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf](https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf)
+
+* * *
+
+**By： 【秘密翻译组 G-Translators】**
+
++1

@@ -14,141 +14,138 @@
 
 ---
 
-### [《路德时评》重磅：梵蒂冈即将发生大事及习总加速师最新境况](/content/gnews/1/README.md)
- ` 香柏树`
+### [三七二十一敬爱的习近平总书记已经257小时没有视频打卡了](/content/gnews/1/README.md)
+ ` NewFOC`
 
-### [亚马逊称不再让Parler使用其服务器](/content/gnews/2/README.md)
+### [纽澳共生泡沫破裂在即 – 新西兰该何去何从？](/content/gnews/2/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [中共努力用假数据也无法掩盖这个国家即将败亡的真相](/content/gnews/3/README.md)
+ ` 纽约香草山农场香`
+
+### [【大选推特/Parler实况】1/10/2021 美国解密有关伊朗使用化学武器的信息; 更安全的北极=更安全的美国&#8230;](/content/gnews/4/README.md)
  ` 秘密翻译组G-Translators`
 
-### [《路德时评》重磅解读彭佩奥宣布结束美台官员接触限制，爆料川普政府将有系列重磅行动](/content/gnews/3/README.md)
- ` 香柏树`
-
-### [视频【路德时评粤语快报】1.07：FCC发布一则公告提醒所有媒体遵守美国紧急广播系统](/content/gnews/4/README.md)
- ` 粵語組`
-
-### [帕勒（Parler）创始人、CEO约翰马特兹（John Matze）公开信](/content/gnews/5/README.md)
- ` HimalayaRussia`
-
-### [彭培奥停止美台接触限制为习近平“添堵”](/content/gnews/6/README.md)
- ` 首尔喜韩农场`
-
-### [视频【粤语】1/7/2021文贵：美国的1月6号是全世界真正的鬥爭，是终极之战](/content/gnews/7/README.md)
- ` Caihongqiao`
-
-### [中共国国内每日新闻](/content/gnews/8/README.md)
- ` Fightforthetrue`
-
-### [美解除与台湾官员交往自我限制，环时、国防部、外交部、常驻联合国发言人48小时密集战狼式发声](/content/gnews/9/README.md)
- ` HimalayaRussia`
-
-### [视频【路德时评粤语快报】01.10：彭佩奥宣布结束美台官员接触限制 美国常驻联合国代表克拉夫特将访问台湾](/content/gnews/10/README.md)
- ` 粵語組`
-
-### [川普政府努力阻止新疆奴工 中共反击](/content/gnews/11/README.md)
- ` gnewscanada`
-
-### [视频【香草山档案室】文贵先生谈川普总统所处的困境](/content/gnews/12/README.md)
- ` 纽约香草山农场`
-
-### [视频【路德时评粤语快报】1.09：习近平依然没有露脸 中共指挥系统可能随时会被取代](/content/gnews/13/README.md)
- ` 粵語組`
-
-### [密邮: 脸书曾应亨特·拜登要求封禁用户](/content/gnews/14/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【大选推特/Parler实况】1/10/2021 扰乱国会大厦行动早在总统演讲之前就已经计划好了&#8230;](/content/gnews/15/README.md)
- ` 秘密翻译组G-Translators`
-
-### [盗窃的艺术——纳瓦罗报告·第二卷（三）](/content/gnews/16/README.md)
- ` 美国纽约七星会农场（原名：为子孙爱七哥农场）`
-
-### [日本发现与英国变种及南非变种不同的中共病毒新变种](/content/gnews/17/README.md)
- ` JPHIMALAYA`
-
-### [总统任何时候都在战斗, 从没绝望(第三部分)](/content/gnews/18/README.md)
- ` Himalaya Australia`
-
-### [【大选推特/Parler实况】1/9/2021 谷歌和亚马逊要移除Paler，这是共产主义&#8230;](/content/gnews/19/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【文雍漫谈】左媒防民又防川 人民觉醒国会山](/content/gnews/20/README.md)
- ` 美国纽约七星会农场（原名：为子孙爱七哥农场）`
-
-### [【史海今钩】 人性与社会制度之关系浅谈（二）](/content/gnews/21/README.md)
- ` 纽约香草山农场`
-
-### [【热点速评】习近平恐在西柏坡](/content/gnews/22/README.md)
- ` 国内新闻组`
-
-### [共和党谴责推特永久中止川普的账户，美国不是中共国](/content/gnews/23/README.md)
- ` HimalayaRussia`
-
-### [重磅！彭培奥宣布与台湾的关系限制解除](/content/gnews/24/README.md)
- ` Himalaya Australia`
-
-### [【军事快讯】朝鲜公开叫板美国，伊朗展示导弹基地，中共马仔密集发声为哪般？](/content/gnews/25/README.md)
- ` 纽约香草山农场`
-
-### [【Giselle专栏】思想, 是最有力的武器](/content/gnews/26/README.md)
- ` 墨尔本雅典娜农场`
-
-### [被推特压制后川普寻求新的网络传声筒，盖特或成优选](/content/gnews/27/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [💥美国政要每日推特重要信息汇总 （2021.1.9）](/content/gnews/28/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [《每日快报 -国家情报局依然坚持中共影响大选- 2021.1.10》](/content/gnews/29/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [内外夹击之下，上海成立住房租赁产业联盟求“活路”！](/content/gnews/30/README.md)
- ` HimalayaRussia`
-
-### [独裁者的结局](/content/gnews/31/README.md)
- ` 烧火棍`
-
-### [喀秋莎新闻参考- 2021年1月9日 (星期六)](/content/gnews/32/README.md)
- ` HimalayaRussia`
-
-### [郭爆料串珠(148)警惕中共情报部门专门培养的间谍“眼镜蛇”和“燕子”，潜伏爆料革命农场和民主国家政府](/content/gnews/33/README.md)
- ` 喜马拉雅德国慕尼黑感恩农场`
-
-### [总统任何时候都在战斗, 从没绝望](/content/gnews/34/README.md)
- ` Himalaya Australia`
-
-### [每日重要Twitter播报（中文）1/6期](/content/gnews/35/README.md)
- ` 喜馬拉雅多語組`
-
-### [彭斯川普和陈虎](/content/gnews/36/README.md)
- ` Himalaya Australia`
-
-### [《国家在行动》重磅发布：意大利也参与了美国的大选舞弊](/content/gnews/37/README.md)
- ` HimalayaRussia`
-
-### [视频1/8/2021 朱利安尼: 这场国会山暴力事件在集会前就早安排好了; 谁组织了这次暴乱以嫁祸川普?](/content/gnews/38/README.md)
- ` 秘密翻译组G-Translators`
-
-### [《路德社》精选新闻简讯：为生化武器站台，魔鬼狂欢](/content/gnews/39/README.md)
- ` 路德社精选`
-
-### [美国国务院宣布解除对台合作一切限制](/content/gnews/40/README.md)
- ` HimalayaRussia`
-
-### [【大选推特/Parler实况】1/9/2021 如果总统选择向全国讲话，他将在他选择的时候做&#8230;](/content/gnews/41/README.md)
- ` 秘密翻译组G-Translators`
-
-### [从斯大林之死到活捉“天线宝宝“习近平](/content/gnews/42/README.md)
- ` 经济金融组`
-
-### [终极之战—正义必定战胜邪恶](/content/gnews/43/README.md)
+### [视频0110第61期《前沿观察》 灭共是我们的终极目标！](/content/gnews/5/README.md)
  ` 康州盘古喜马拉雅农场`
 
-### [战友们 保持信心 keep your faith](/content/gnews/44/README.md)
+### [【文字版】路德时评2021.01.09晚间：重磅国务卿蓬佩澳宣布停止美台官方接触限制，是否宣告美一中政策结束，习天线宝宝该怎么反应](/content/gnews/6/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [美国国务院声明：“解除对美台关系的自我限制”（全文）](/content/gnews/7/README.md)
+ ` HimalayaRussia`
+
+### [中共冠状病毒英国及南非变异品种恐攻克新西兰](/content/gnews/8/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [【灭共有我】实业救国的爷爷和中共对他的残害](/content/gnews/9/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [视频【每日快讯】10/01/2021:美取消对台接触限制 梵蒂冈上演停电疑云](/content/gnews/10/README.md)
+ ` GM132 每日快訊`
+
+### [【突发】美国之音试图对庞佩奥定于1月11日的讲话噤声](/content/gnews/11/README.md)
+ ` Himalaya Rose Garden Team`
+
+### [【热点播报】日本发现全新变异病毒，病毒突变呈加速之势](/content/gnews/12/README.md)
+ ` 纽约香草山农场`
+
+### [关于习的鸡毛信那点事](/content/gnews/13/README.md)
  ` Himalaya Australia`
 
-### [致：部分失望战友书！](/content/gnews/45/README.md)
- ` 首尔喜韩农场`
+### [2021年01月10日澳喜要闻（每日更新）](/content/gnews/14/README.md)
+ ` Himalaya Australia`
 
-### [习近平成功转型“天线宝宝” 大重启举世震惊没你不行](/content/gnews/46/README.md)
- ` 首尔喜韩农场`
+### [上合天道下合人心的中华传统教育体系（六）](/content/gnews/15/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [中共新规：中共国实体不应遵守“不合理”的外国法律](/content/gnews/16/README.md)
+ ` gnewscanada`
+
+### [梵蒂冈大停电预示着新战场开启，习近平不敢发指示终日心惊肉跳](/content/gnews/17/README.md)
+ ` 恩典农场`
+
+### [【正道观察】中共病毒疫情日趋严重 灭共刻不容缓](/content/gnews/18/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [写在首个中共黑警节](/content/gnews/19/README.md)
+ ` gnewscanada`
+
+### [加国公共安全部长警告：中共干涉是“重大威胁”](/content/gnews/20/README.md)
+ ` gnewscanada`
+
+### [【热点播报】“煽动叛乱”为由，封杀川普](/content/gnews/21/README.md)
+ ` 纽约香草山农场`
+
+### [一位科技工程师的故事](/content/gnews/22/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [奥斯卡影帝坚信正义必胜 呼吁“展望美好未来”](/content/gnews/23/README.md)
+ ` gnewscanada`
+
+### [【大选推特/Parler实况】1/10/2021 警察开枪射杀时黑命贵创始人在拍视频；华盛顿上空巨大禁飞区&#8230;](/content/gnews/24/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【大选推特/Parler实况】1/10/2021 杀害美国人的CCP病毒是来自一个生物武器实验室吗？&#8230;](/content/gnews/25/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [2021年(辛丑年)有更多灾难和希望](/content/gnews/26/README.md)
+ ` 喜马拉雅巴黎七星农场`
+
+### [【大选推特/Parler实况】1/9/2021 苹果和谷歌正在审查（移除）其他的数字平台（Parler)&#8230;](/content/gnews/27/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [超级碳排放者比尔·盖茨竞购私人飞机运营商](/content/gnews/28/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频法国极右党领袖玛丽-勒庞：我不明白马克龙的意图](/content/gnews/29/README.md)
+ ` 喜马拉雅巴黎七星农场`
+
+### [视频北京政权知道世界对病毒的愤怒，已把防范“斩首行动”列为最高级别任务](/content/gnews/30/README.md)
+ ` Himalaya Rose Garden Team`
+
+### [中共通过“留学生”加强海外影响力](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [《通信规范法》第230条款修正案的执行一波三折](/content/gnews/32/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [需要质疑的消息：“意大利总统被逮捕了”](/content/gnews/33/README.md)
+ ` HimalayaRussia`
+
+### [朱利安尼表示“和谐”已结束并敦促川普解密](/content/gnews/34/README.md)
+ ` gnewscanada`
+
+### [推特永久封杀弗林将军和鲍威尔律师的账户](/content/gnews/35/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [战友周刊——2021【前所未有】第五年](/content/gnews/36/README.md)
+ ` 纽约香草山农场`
+
+### [以色列总理呼吁做出&#8221;最后的巨大努力&#8221;](/content/gnews/37/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [俄克拉荷马州延长临时限制令](/content/gnews/38/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [视频圣哥达隧道](/content/gnews/39/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [加州日增695名中共病毒死亡人数创新高](/content/gnews/40/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [内华达州因疫情一周死亡299人创纪录](/content/gnews/41/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【看七哥视频】美国总统大选不是川普和拜登的大选，而是美国和中共的选举！](/content/gnews/42/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [罗德岛副州长密切接触中共病毒感染者后隔离](/content/gnews/43/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [视频伦敦上空的鹰](/content/gnews/44/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【世事解评】别让真相沉没——周梓乐疑案沉冤待雪](/content/gnews/45/README.md)
+ ` 纽约香草山农场`
 
