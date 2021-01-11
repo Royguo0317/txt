@@ -1,28 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【灭共有我】实业救国的爷爷和中共对他的残害
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/739046/)
+## 【大选推特/Parler实况】1/10/2021 美国解密有关伊朗使用化学武器的信息; 更安全的北极=更安全的美国&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/739090/)
 
-作者：文纸鹤
-编辑：翼族
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture11.png)图片来源：大纪元
-中共建政后的七十年里，其思维的定式自始至终就是斗争。以主观臆断来划分阶级成份，用斗争地主和资本家(有产者)的手段来强行掠夺并佔有一切有形资产的资源，完成了所谓的资本主义改造，建立了其自称的社会主义公有制。从此，中共治下广大的民众就成为无产者。中共自诩为无产阶级先锋队，并对失去土地和工商企业的地主资本家实行无产阶级专政，通过杀、关、管的铁腕政策，达到其永远占有的目的。
+**【大选实况】1/10/2021 EST 3:30PM 蓬佩奥国务卿发推： **
 
-从儿时记事起，我总是仰望爷爷高大的身躯，喜欢拽着他的长衫像尾巴一样跟着出门，心里惦记着跟着走能蹭到些好吃的。爷爷总是和气待人，有一种不同常人的君子风度，比如：见人打招呼时微微恭身，点头示意。家里来了客人，亲自送杯热茶，就坐时总是请客人先落座，然后自己正襟而坐，双手撩起长衫下摆，盖住双腿以示庄重。送客人出门时，歉身示别。爷爷的君子风度，至今影响着我。
+我们积极地领导了北极圈委员会。 致力于使运输通道更安全。 为边远社区提供电力，医疗服务等。 更安全的北极=更安全的美国。
 
-爷爷是清朝晚年与民国年间的那一代人，膝下五子一女，个个都进新式学堂接受良好的民国教育，在军队、政府公务和文化教育行业，为国尽职。爷爷年轻的时候，勤奋创业，诚信地经营中西医药以及食盐等民众日用货品。他不但以殷实家庭供子女求学，还牵头各实业商贾投资兴建了当地的水利工程，开石膏矿支持前方抗日将士。同时爷爷支持父亲在乡间义务创办新式学堂，持续了十多年。到一九四八年，爷爷被选为当地的参议员，也就是当时的国大代表。
 
-由于国共内战导致当地兵慌马乱，有一次”跑反”在乡下时，爷爷看到几个伤兵衣服褴褛，一副饥饿的样子，就吩咐给他们弄吃的，吃饱之后还给他们装些红薯带着路上吃。这些伤兵非常感激爷爷救了他们几个。走后，姑姑对爷爷说，不像国军。爷爷从与他们的交谈中得知，他们是共产党中原部队，受伤后走散了，又不敢走大路，在山里迷了路许多天没吃东西了。
 
-记得有一天早晨爷爷出门，我拽着他的长衫跟了出去，以为有早点吃，谁知他进了衙门。爷爷让我在门房玩，然后就听见他在和人高声说话，走出来时还大声说：“你不敢管，我来管”。原来是被当局枪毙的人暴尸教场坡，爷爷抗议尸体放在妇女下河洗衣和学生上学的路口，几天已经足够，应该尽快收尸，但是县长推拖不管。后来爷爷自己去找人做了匣子，将其掩埋。到了秋天，教场坡的人送了好多红薯来感谢爷爷。但是到了土改的时侯，爷爷被斗，反而被冤枉他活埋了新四军。简直是血口喷人，有口难辩。
+> We’ve led vigorously in the [#ArcticCouncil](https://twitter.com/hashtag/ArcticCouncil?src=hash&amp;ref_src=twsrc%5Etfw). Worked to make shipping lanes safer. Helped rural communities with power, medical care, and more. Safer Arctic = safer America. [#EffectiveMultilateralism](https://twitter.com/hashtag/EffectiveMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/QYp0oKxgPJ](https://t.co/QYp0oKxgPJ)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348366502521663491?ref_src=twsrc%5Etfw)
 
-辛亥革命推倒千年帝制王朝，实行共和的中华民国，给中国带来了新的希望。爷爷那一辈人有着特别的感受，他们对中华的热爱发自于内心，身体力行地做着利国利民的事。所以，爷爷勤奋诚信地兴办实业，培养子孙接受良好的新学教育，服务于国家和民众。在一个正常的社会里，像我爷爷这样的前辈，本应该给于尊重，对他的业绩给于认可，并受法律保护。但是中共进城夺得权力后，却实行土改和镇反，对他们进行迫害甚至杀害。
 
-土改的某一天，爷爷被他们用枪押走。那天傍晚天上下着大雨，大妈赶到门外街上给爷爷戴上雨帽，我像平时那样跟在爷爷后面，看到他愤怒地将雨帽打落在雨地里。我看着爷爷的背影，头也不回地消失在灰濛濛的雨中。第二天上午放学回家，全家人都在流泪，爷爷惨死在关押他的地方。我和姑姑一起去看爷爷，他的遗体上有伤，脸上有泪痕，我失声痛哭，因为再也见不到我亲爱的爷爷了。
+来源：[https://twitter.com/secpompeo/status/1348366502521663491?s=21](https://twitter.com/secpompeo/status/1348366502521663491?s=21)
+盖特链接：[https://gtv.org/getter/5ffbae4a87fabe2daf35edf9](https://gtv.org/getter/5ffbae4a87fabe2daf35edf9)
 
-原湖南报界某记者曾在海外著书，描写了当年他亲历土改镇反，消灭地主与连带亲属的实况。相信我爷爷那天晚上所遭遇的折磨，就和他书中的描述一样。中共以小人聚众，祸害中华，引中华于灾难，毁人类之文明，其罪责难逃，终有清算之日！
+* * *
 
-（文章内容为作者根据其长辈的回忆而著，仅代表作者观点）
+**【大选实况】1/10/2021 EST 3:50PM 蓬佩奥国务卿发推：**
 
-+5
+美国之音员工对广播美国最高级外交官的声音有怨言…？ 向国外推广美国的价值观，不正是我们应该做的事情。东部时间明天下午3点，请收看我关于美国伟大与美国第一的讲话。
+
+
+
+> Voice of America employees complaining about broadcasting … the voice of America’s most senior diplomat? Seems like exactly what we should be doing to promote American values abroad. Tune in to hear my remarks about American Greatness & America First tomorrow at 3pm ET. [pic.twitter.com/VJ8jsTUwkO](https://t.co/VJ8jsTUwkO)
+> — Mike Pompeo (@mikepompeo) [January 10, 2021](https://twitter.com/mikepompeo/status/1348371565491183617?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/mikepompeo/status/1348371565491183617](https://twitter.com/mikepompeo/status/1348371565491183617)
+盖特链接：[https://gtv.org/getter/5ffbaced87fabe2daf35ec81](https://gtv.org/getter/5ffbaced87fabe2daf35ec81)
+
+* * *
+
+**【大选实况】1/10/2021 EST 6:30 pm 蓬佩奥国务卿发推： 美国还解密了有关伊朗使用化学武器的信息。 #NoImpunity [go.usa.gov/xA5q5](https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf)**
+
+
+
+> The U.S. also declassified information on Iran's use of chemical weapons. [#NoImpunity](https://twitter.com/hashtag/NoImpunity?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/JFFC4MSGIX](https://t.co/JFFC4MSGIX)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348411800572764160?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348411800572764160?s=21](https://twitter.com/secpompeo/status/1348411800572764160?s=21)
+**美国解密有关伊朗使用化学武器报告下载：**[https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf](https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf)
+
+* * *
+
+**By： 【秘密翻译组 G-Translators】**
+
++1

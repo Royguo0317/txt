@@ -1,31 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 情报分析师隐瞒中共国干预选举以助推拜登（当选）的信息
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/739300/)
+## 【台国际空间】拆解美台关系全面禁忌的紧箍咒，阻中共武力攻台意图
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/739400/)
 
-翻译：康州盘古农场 – 黎明的光芒
+台灣農場(籌備)   一葉一菩提
 
-校对：康州盘古农场 – Antsee-GTV
+美国国务卿蓬佩奥于美东时间周六（1月9日）宣布，取消对美国行政部门机构与台湾同行互动的所有自我限制。声明中也说明了，之前美国国务院单方面制定了复杂的内部限制，管制外交官、军人和其他官员与台湾同行的互动，是为了安抚北京的共产党政权。他强调，“不会再这样了。”，也随即在他的推文中强调，“此举将使得我们两个伟大的民主政体受益。”
+![]()![](https://gnews.org/wp-content/uploads/2021/01/圖片-1-15.png)
+从历史的轨迹来看，之前，或许是政客间的协议？！或许是期待苏俄解体之后，中共能民主化，而做的自我限制？！但这自我限制却助长了中共的有恃无恐，恣意妄为，让中共的蓝金黄侵蚀了美国、侵蚀了全世界，也让这次美国的大选，遭受了前所未有的冲击。冲击中，觉醒的力量面对严峻的疫情和经济，大部分的选民仍以选票展示反共的决心，但却在现实的社会中，不敌那少数邪恶的做票力量，最后邪恶赢了表面的总统大选。
 
-编辑：康州盘古农场 – Rose
+还有约莫10天，期待川普阵营能出奇招翻转结果之际，坚定的反共的盟友美国国务卿蓬佩奥仍本着初衷，锲而不舍的宣布，取消对美国行政部门机构与台湾同行互动的所有自我限制。吓阻了中共对台侵犯的野心，也替全世界筑起了自由民主的高墙。
 
-![biden](https://lh3.googleusercontent.com/S3K9PpNSzmxg6vG7vLb3pHxPb66TkohclCbfhlB56zVHL8Vlo0JUqqMsIbOoVue9YMlSueyGfdN4-LxZGu7vyC7dmmcYTQtuGRUBYxUo2xet3ooGDemfBoODImsiPn6-ZjXo2A86kuNyOYGEpA)*国家情报总监办公室的一份新报告显示，官员们淡化了中共国对2020年大选的干预，”以避免支持川普的政策”，因为很多人 “不同意 “政府的对华方针。*
+如同他2018年4月25日宣誓就职时，坚定地表示，国务院将“向全世界展示美国最好的风貌”，努力“通过坚持不懈的外交，实现总统的对外政策目标，避免让年轻的男男女女走上战场”。
 
-这一揭示来自《华盛顿观察家》获得的一份14页的报告，该报告由国家情报总监办公室解决方案处主管巴里·祖劳夫撰写。这份报告于周四送交参议院情报委员会，揭示了该机构对2020年大选中外国影响力的评估是在 “两极分化 “的氛围中进行的，并由那些 “不同意 “川普政府对中共国态度的官员完成。
+這就是郭文貴先生所説的，“真男兒！”
 
-“鉴于分析人员对俄罗斯和中共国目标的分析方式不同，分析中共国的人员似乎不愿意将中共国的行动评估为不当影响或干涉。这些分析人员似乎不愿意将他们对中共国的分析提出来，因为他们倾向于‘不同意’政府的政策，实际上，我不希望我们的情报机关（的工作变成）习惯于支持一些政策。”祖拉夫介绍说。
+參考新聞
+[https://www.epochtimes.com/b5/21/1/10/n12679165.htm](http://	https://www.epochtimes.com/b5/21/1/10/n12679165.htm%20	https://www.ait.org.tw/zhtw/meet-mike-pompeo-the-new-secretary-of-state-zh/)
 
-国家情报总监约翰·拉特克利夫（John Ratcliffe）也写了一封信，呼应祖拉夫的观点。
-
-“作为掌控美国政府所有对华最敏感情报的人，我的个人观点是，情报界分析师表达的主流观点不能完整且准确地反映出中共政府对2020年美国联邦选举的影响范围” 他解释说。
-
-拉特克利夫还指出，从祖拉乌夫的报告中注意到 “对于中国影响选举的报告（出现）政治化（现象），以及对根据情报提出另一种观点的分析人员施加不当压力的揭示都令人担忧”。
-
-原文作者：娜塔莉•温特斯 （《国家脉动》）
-
-发布日期：1/10/2021
-
-原文链接：[https://thenationalpulse.com/breaking/intelligence-china-election-influence/](https://thenationalpulse.com/breaking/intelligence-china-election-influence/)
+[https://www.ait.org.tw/zhtw/meet-mike-pompeo-the-new-secretary-of-state-zh/](http://	https://www.epochtimes.com/b5/21/1/10/n12679165.htm%20	https://www.ait.org.tw/zhtw/meet-mike-pompeo-the-new-secretary-of-state-zh/)
 
 0

@@ -1,52 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/10/2021 美国解密有关伊朗使用化学武器的信息; 更安全的北极=更安全的美国&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/739090/)
+## 美国家安全顾问警告中共，爆料革命破解习指令系统
+` 恩典农场` [轉載自GNews](https://gnews.org/zh-hans/739227/)
 
-**【大选实况】1/10/2021 EST 3:30PM 蓬佩奥国务卿发推： **
+![]()![](https://gnews.org/wp-content/uploads/2021/01/6c86d77fc63029ff.png)
+編輯/校对：Porsche
 
-我们积极地领导了北极圈委员会。 致力于使运输通道更安全。 为边远社区提供电力，医疗服务等。 更安全的北极=更安全的美国。
+摘要：昨日蓬佩奥承认台湾后中共继续认怂，今日奥布莱恩再发更严重警告，称美国将针对中共在香港和病毒上的所作所为做出更多回应。中共在台湾和香港问题上受压，无处发泄，就指示北朝鲜半夜搞军演，警告川普政府，我是流氓我怕谁，大不了玉石俱焚。但爆料革命战友无处不在，不仅能随时获得习近平最机密信息比如昨天刚刚吃了火锅，而且已经破解了他的指挥系统，习近平想玉石俱焚也没有机会了。路德信心十足地透露，过几天就会有惊天大事情发生。
 
+**美国家安全****顾问奥布莱恩发声明警告中共**
 
+针对中共上周抓捕50名香港民主人士以及在病毒问题上的所作所为，美国在考虑更多手段，以回应中共不负责任以及有危害性的做法。
 
-> We’ve led vigorously in the [#ArcticCouncil](https://twitter.com/hashtag/ArcticCouncil?src=hash&amp;ref_src=twsrc%5Etfw). Worked to make shipping lanes safer. Helped rural communities with power, medical care, and more. Safer Arctic = safer America. [#EffectiveMultilateralism](https://twitter.com/hashtag/EffectiveMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/QYp0oKxgPJ](https://t.co/QYp0oKxgPJ)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348366502521663491?ref_src=twsrc%5Etfw)
+在第一届任期还有十天不到的时候，国家安全顾问仍然发出这个具有非常严重后果的声明，表明美国针对中共的态度，正在往不可更改的方向快速推进。
 
+国家安全顾问不仅是提供建议咨询，更是可以决定国家机器行动的内阁成员。这才是习近平不敢露面的真正原因。毕竟川普总统第一个任期还有好几个72小时呢。
 
-来源：[https://twitter.com/secpompeo/status/1348366502521663491?s=21](https://twitter.com/secpompeo/status/1348366502521663491?s=21)
-盖特链接：[https://gtv.org/getter/5ffbae4a87fabe2daf35edf9](https://gtv.org/getter/5ffbae4a87fabe2daf35edf9)
+**北朝鲜周日深夜****举行阅兵仪式**
 
-* * *
+在台湾和香港问题上受到美国巨大压力后，中共指示北朝鲜阅兵，给川普政府发出警告信号，你再逼我中共，我就拿韩国做人质，玉石俱焚。
 
-**【大选实况】1/10/2021 EST 3:50PM 蓬佩奥国务卿发推：**
+北朝鲜如果用火箭炮攻击韩国时，是无法被预先防范和拦截的，因为火炮没有导航装置。深夜阅兵，则是为测试夜晚在没有电力供应条件下的指挥系统运作情况，以便在卫星无法覆盖、甚至连月光都没有的条件下采取行动。深夜阅兵的消息能够被释放出来，就是对川普政府的一种赤裸裸威胁。
 
-美国之音员工对广播美国最高级外交官的声音有怨言…？ 向国外推广美国的价值观，不正是我们应该做的事情。东部时间明天下午3点，请收看我关于美国伟大与美国第一的讲话。
+这就是为什么要活捉习近平？防止土匪玉石俱焚造成重大人道灾难。
 
+**习近平去哪儿了？**
 
+虽然拜登已经被国会认证为总统，但习近平并不能准确判断美国内部局势的真实情况？不过，他很清楚自己做了什么邪恶的事情，也知道这些情报，包括语音的、视频的、一级指令、手写指令、甚至口谕（如洗桑拿脱光了耳语），都已经被爆料革命得到、被美国得到。无论他身边人如何更换，最机密信息永远能随时被传出来。已经让习近平怀疑人生、抓狂了。这是他不得不东躲西藏钻进老鼠洞的原因。
 
-> Voice of America employees complaining about broadcasting … the voice of America’s most senior diplomat? Seems like exactly what we should be doing to promote American values abroad. Tune in to hear my remarks about American Greatness & America First tomorrow at 3pm ET. [pic.twitter.com/VJ8jsTUwkO](https://t.co/VJ8jsTUwkO)
-> — Mike Pompeo (@mikepompeo) [January 10, 2021](https://twitter.com/mikepompeo/status/1348371565491183617?ref_src=twsrc%5Etfw)
+还记得毛岸英上如何死于蛋炒饭的吗？今天，美国的能力也是一样远超中共的认知范围。
 
+虽然中共在前苏联情报系统基础上不断进行升级迭代，但这些鬼祟手法，始终都在爆料革命的掌握之中。老鼠被抓出来的日子不远了。
 
-来源：[https://twitter.com/mikepompeo/status/1348371565491183617](https://twitter.com/mikepompeo/status/1348371565491183617)
-盖特链接：[https://gtv.org/getter/5ffbaced87fabe2daf35ec81](https://gtv.org/getter/5ffbaced87fabe2daf35ec81)
+**习近平指令系统已被爆料革命破解**
 
-* * *
+美国最高指挥体系需要比对总统的70多项生物指标。由于担心被美国监控，习近平的指挥体系却只敢采用最原始的方式。原始的方式也不能解决人心难测的问题，习最信任的情报头子熊光楷都已经反水了。但习近平又必须用人，否则寸步难行，这就是他痛苦万分的地方。
 
-**【大选实况】1/10/2021 EST 6:30 pm 蓬佩奥国务卿发推： 美国还解密了有关伊朗使用化学武器的信息。 #NoImpunity [go.usa.gov/xA5q5](https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf)**
+爆料革命战友无处不在，路德社节目中无意间漏出昨天习近平刚刚吃了火锅，而且火锅底料的品牌也被路德知道了。路德还以毛贼东当年躲进湖南滴水洞为例，暗示习近平已经躲进了大山中。
 
+习近平人身有关的所有物品包括身体排泄物，都必须由专人收集，这些信息均已被爆料革命掌握。不仅如此，习近平的整个指挥系统也已被爆料革命破解，只要时机成熟， 就能立即启用。这是为什么路德有绝对的信心，最近几天就会有大事发生。
 
+**一句话新闻：**
 
-> The U.S. also declassified information on Iran's use of chemical weapons. [#NoImpunity](https://twitter.com/hashtag/NoImpunity?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/JFFC4MSGIX](https://t.co/JFFC4MSGIX)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348411800572764160?ref_src=twsrc%5Etfw)
+美太空军正式成为美情报系统的第18个成员单位
 
+台湾中科院研发的增程版远程巡航导弹射程达到2000公里以上
 
-来源：[https://twitter.com/secpompeo/status/1348411800572764160?s=21](https://twitter.com/secpompeo/status/1348411800572764160?s=21)
-**美国解密有关伊朗使用化学武器报告下载：**[https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf](https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf)
+墙内媒体吹风中共病毒疫苗要每年打
 
-* * *
-
-**By： 【秘密翻译组 G-Translators】**
+#CCP\_is\_terrorist   #TakeDownTheCCP
 
 +1

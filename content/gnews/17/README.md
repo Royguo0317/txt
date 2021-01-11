@@ -1,43 +1,114 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法界人士：美宪法言论自由保障仅针限制政府不得审查言论，推特等民间企业不受限制。真的是这样吗？
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/739469/)
+## 【大选推特/Parler实况】1/10/2021 条约只有在各方都遵守的情况下才有用; 必须用行动来维持条约&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/739514/)
 
-zhong
+**【大选实况】1/10/2021 EST 4:00 蓬佩奧国务卿 推文：**
 
-新聞報導連結[https://news.ltn.com.tw/news/world/breakingnews/3407214](https://news.ltn.com.tw/news/world/breakingnews/3407214)
+这是我遵循的另一项外交政策口号#美国优先：条约只有在各方都遵守的情况下才有用。
 
-（僅個人觀點）
 
-美国总统川普的帐户遭各大社群媒体停用，引发社群媒体公司是否有涉及侵害美国宪法保障的言论自由等争议出现。
 
-对此，新闻报导显示，有法界人士主张，宪法对言论自由保障目的是限制政府不可以任意行使公权力限制人民的言论自由。而限制方式范围广大，其中最典型、最广为知悉的就是事前审查制。
+> Here's another foreign policy mantra I've followed to put [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw): Treaties are only useful if all parties adhere to them. [pic.twitter.com/appNKEBfnq](https://t.co/appNKEBfnq)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348374054764486660?ref_src=twsrc%5Etfw)
 
-举例而言，推特对用户所发布的言论在公开前，先行内部审核，并且筛选掉特定立场的言论，即属于对言论自由的事前审核机制。
 
-又若新闻所报导的法界人士主张为属实，真有人主张民间公司应不受到宪法对基本权保障的限制，而可以任意的筛选、删除特定立场的言论，那这主张是否真的合理？
+来源：[https://twitter.com/secpompeo/status/1348374054764486660?s=21](https://twitter.com/secpompeo/status/1348374054764486660?s=21)
+盖特链接：[https://gtv.org/getter/5ffbae8687fabe2daf35ee41](https://gtv.org/getter/5ffbae8687fabe2daf35ee41)
 
-宪法对人民的基本权保障，目的是为防止来自国家以公权力的任意侵害，的确具有“针对国家特定的本质”。但基本权保障并非绝对，即便宪法保障人民言论自由，这个保障还是有限度、有范围的。若超出可容忍范围，还是允许公权力以“合理的手段”限制言论，而不会侵害宪法保障人民基本权的核心意旨。
+* * *
 
-举例：郭3秒、馆长3公分、郭强奸等用语。这些言论恐构成刑事犯罪，故不受宪法言论自由保障。又或者退而言之，这些恐构成刑事犯罪的言论，仍属于宪法言论自由保障范围，但国家仍可基于正当合理目的（保障名誉权等），以适当手段予以限制（刑法明定禁止该言论）。
+**【大选实况】1/10/2021/ EST 4:30 pm 蓬佩奧国务卿 推文： **
 
-然而，基于上述可推导出基本权保障是针对国家的本质，美国宪法保障人民言论自由、其他基本权利不受来自政府的恣意侵害。
+《 中导条约》有两个当事方。 奥巴马总统在俄罗斯作弊建立他们自己的系统时却限制了我们的军队，从而把美国人的生命置于危险中。当两方条约只有一方遵守时，这就叫做愚蠢。
 
-**难道，民间公司就可以？**
 
-再者，从美国宪法对言论自由保障的目的，可能是为确保资讯可以自由流通，达成“公意形成、真理越辩越明（追求真理）、人民有权获取充足资讯来监督政府”。
 
-简言之，宪法保障言论自由，就是追求“言论得自由流通”。再透过言论自由流通来建构民主体制的发展，因为言论得自由流通，所以人民可以质疑政府、也可以为自己发生促进社会公共意见形成，而社会公共意见形成也是监督政府一种重要手段。
+> There were two parties to the INF Treaty. President Obama risked American lives by restricting our military while Russia cheated and built up its systems. When only one party to a two-party treaty is complying, that’s called stupid. [pic.twitter.com/Gb6jaaz3Xe](https://t.co/Gb6jaaz3Xe)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348381601692962816?ref_src=twsrc%5Etfw)
 
-因此，言論自由保障對於民主制度建構，是不可或缺的。
 
-那对于民主不可或缺的制度“言论自由保障”，政府不得任意限制、侵害、剥夺，难道一间为了营利目的而成立的民间公司就是可以？
+来源：[https://twitter.com/secpompeo/status/1348381601692962816?s=21](https://twitter.com/secpompeo/status/1348381601692962816?s=21)
+盖特链接：[https://gtv.org/getter/5ffbaee287fabe2daf35eea5](https://gtv.org/getter/5ffbaee287fabe2daf35eea5)
 
-社群媒体为控制社会舆论走向，设定演算法，删除特定立场的言论，并凸显特定立场的言论，都会直接影响整体社会公共意见的走向。而言论自由最重要的就是保持言论、资料自由流通，借此建构出同时兼具对立与融合的社会互动环境。
+* * *
 
-在过去，科技不够发达时代，散布言论、思想的管道，无非报纸、新闻、广播电视等管道，而这些资源基于有限性，往往被政府所控管。所以，过去宪法对基本权保障，往往着重于避免公权力任意侵害。
+**【大选实况】1/10/2021/ EST 5:00 pm 蓬佩奧国务卿 推文：**
 
-但如今，科技发达，人民有成千上百万种散布言论的方式、管道。而网路、社群媒体等占了举足轻重的地位。可得而知，由“民间公司”所运营的“社群软体”，如今已经是形成公共意见的重要管道。岂有不受宪法拘束的道理？
+我们的前任总统根据《 中导条约》单方面解除了我们的武装。 我们说“够了”，并离开了使美国无法防御的单方面协议。 #AmericaFirst
 
-0
+
+
+> Our previous President unilaterally disarmed under the INF Treaty. We said “enough” and left the one-sided deal that made America defenseless. [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/bB5t0fckRx](https://t.co/bB5t0fckRx)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348389151926751232?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348389151926751232?s=21](https://twitter.com/secpompeo/status/1348389151926751232?s=21)
+盖特链接：[https://gtv.org/getter/5ffbaf1b87fabe2daf35eee8](https://gtv.org/getter/5ffbaf1b87fabe2daf35eee8)
+
+* * *
+
+**【大选实况】1/10/2021 EST 5:30 pm 蓬佩奧国务卿 推文： **
+
+在过去的四年中，美国大胆地揭露了未能履行《化学武器公约》规定义务的国家。
+
+
+
+> Over the last four years, the U.S. has boldly called out countries who have failed to meet their obligations under the Chemical Weapons Convention. [pic.twitter.com/FoiIM0bcLZ](https://t.co/FoiIM0bcLZ)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348396701392859136?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348396701392859136?s=21](https://twitter.com/secpompeo/status/1348396701392859136?s=21)
+盖特链接：[https://gtv.org/getter/5ffbaf5d87fabe2daf35ef3a](https://gtv.org/getter/5ffbaf5d87fabe2daf35ef3a)
+
+* * *
+
+**【大选实况】1/10/2021 EST 6:00 pm 蓬佩奧国务卿 推文： **
+
+必须用行动来维持条约。 阿萨德对自己的人民施以毒气后，川普总统对叙利亚发动了袭击。 我们是有真正的红线的。
+
+
+
+> Have to back up treaties with action. President Trump took out targets in Syria after Assad gassed his own people. We have real red lines. [https://t.co/PXVSEep0xz](https://t.co/PXVSEep0xz)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348404257196797958?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348404257196797958?s=21](https://twitter.com/secpompeo/status/1348404257196797958?s=21)
+盖特链接：[https://twitter.com/secpompeo/status/1348404257196797958?s=21](https://twitter.com/secpompeo/status/1348404257196797958?s=21)
+
+* * *
+
+**【大选实况】1/10/2021 EST 7:00 pm 蓬佩奧国务卿 推文： **
+
+条约与结盟一样，可以一直持续到失效。必须始终不断对其有效性进行评估。
+
+
+
+> Treaties, like alliances, can outlast their sell-by-date. Always have to keep evaluating their usefulness. [pic.twitter.com/up8Qtj6gn8](https://t.co/up8Qtj6gn8)
+> — Secretary Pompeo (@SecPompeo) [January 11, 2021](https://twitter.com/SecPompeo/status/1348419350370398209?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348419350370398209?s=21](https://twitter.com/secpompeo/status/1348419350370398209?s=21)
+盖特链接：[https://gtv.org/getter/5ffbb0b687fabe2daf35f08c](https://gtv.org/getter/5ffbb0b687fabe2daf35f08c)
+
+* * *
+
+**【大选实况】1/10/2021 EST 12:00 pm 蓬佩奧国务卿 推文：**
+
+#有效的多边关系 意味着重新激发活力的四方关系： 美国、澳大利亚、印度及日本之间的四方合作关系 – 思维相似、价值观一致，有益推动自由开放的印度洋-太平洋海域。
+
+
+
+> [#EffectiveMultilateralism](https://twitter.com/hashtag/EffectiveMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) means a reinvigorated Quad: like-minded values-based partnership among the U.S., Australia, India, and Japan, advancing a free & open Indo-Pacific. [pic.twitter.com/Rmqs3nTBTy](https://t.co/Rmqs3nTBTy)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348313657734811654?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1348313657734811654](https://twitter.com/SecPompeo/status/1348313657734811654)
+盖特链接：[https://gtv.org/getter/5ffbb39587fabe2daf35f384](https://gtv.org/getter/5ffbb39587fabe2daf35f384)
+
+
+
+#### **By： 【秘密翻译组 G-Translators】**
+
++1
