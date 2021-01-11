@@ -1,18 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共冠状病毒英国及南非变异品种恐攻克新西兰
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/739073/)
+## 【大选推特/Parler实况】1/10/2021 美国解密有关伊朗使用化学武器的信息; 更安全的北极=更安全的美国&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/739090/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture-74.jpg)
-SugarPup编译
+**【大选实况】1/10/2021 EST 3:30PM 蓬佩奥国务卿发推： **
 
-新西兰目前只有75例感染中共冠状病毒患者，而且全部在隔离中心，暂时尚未出现社区传播。然而这75例感染病例中，至少有19名感染者被确认为感染了新型的英国变异品种，有一位感染者则被确认感染了南非变异品种。
+我们积极地领导了北极圈委员会。 致力于使运输通道更安全。 为边远社区提供电力，医疗服务等。 更安全的北极=更安全的美国。
 
-新西兰一位从事中共冠状病毒数据模型分析的专业人士表示一旦这些新的变异品种穿越新西兰边境，进入新西兰国内，4级封国将在所难免。去年8月份，奥克兰市曾经用3级封城来控制中共冠状病毒的二次来袭。然而对于传染率比之前高出许多的新型变种病毒，3级封锁则显得杯水车薪。
 
-澳大利亚政府正在考虑延长隔离天数的规定，来对抗新型变种病毒。澳大利亚卫生部门也正试图去追踪那些，在隔离区与感染新型变种病毒病人接触过的人们。
 
-评：新西兰努力将中共冠状病毒抵御在隔离中心的策略正在受到新型变种病毒的激烈挑战。一但出现社区传播，全面再次封国将难以避免。然而问题是，新西兰人民能够负担再次封国吗？去年解封之后，在宽松货币政策的刺激之下，避免进入经济萧条，然而同时却大大刺激了房市的泡沫。失业率上升的同时，居民住房价格飙升了2层。若是再次进入全国全面封锁，新西兰经济岌岌可危。
+> We’ve led vigorously in the [#ArcticCouncil](https://twitter.com/hashtag/ArcticCouncil?src=hash&amp;ref_src=twsrc%5Etfw). Worked to make shipping lanes safer. Helped rural communities with power, medical care, and more. Safer Arctic = safer America. [#EffectiveMultilateralism](https://twitter.com/hashtag/EffectiveMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/QYp0oKxgPJ](https://t.co/QYp0oKxgPJ)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348366502521663491?ref_src=twsrc%5Etfw)
 
-0
+
+来源：[https://twitter.com/secpompeo/status/1348366502521663491?s=21](https://twitter.com/secpompeo/status/1348366502521663491?s=21)
+盖特链接：[https://gtv.org/getter/5ffbae4a87fabe2daf35edf9](https://gtv.org/getter/5ffbae4a87fabe2daf35edf9)
+
+* * *
+
+**【大选实况】1/10/2021 EST 3:50PM 蓬佩奥国务卿发推：**
+
+美国之音员工对广播美国最高级外交官的声音有怨言…？ 向国外推广美国的价值观，不正是我们应该做的事情。东部时间明天下午3点，请收看我关于美国伟大与美国第一的讲话。
+
+
+
+> Voice of America employees complaining about broadcasting … the voice of America’s most senior diplomat? Seems like exactly what we should be doing to promote American values abroad. Tune in to hear my remarks about American Greatness & America First tomorrow at 3pm ET. [pic.twitter.com/VJ8jsTUwkO](https://t.co/VJ8jsTUwkO)
+> — Mike Pompeo (@mikepompeo) [January 10, 2021](https://twitter.com/mikepompeo/status/1348371565491183617?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/mikepompeo/status/1348371565491183617](https://twitter.com/mikepompeo/status/1348371565491183617)
+盖特链接：[https://gtv.org/getter/5ffbaced87fabe2daf35ec81](https://gtv.org/getter/5ffbaced87fabe2daf35ec81)
+
+* * *
+
+**【大选实况】1/10/2021 EST 6:30 pm 蓬佩奥国务卿发推： 美国还解密了有关伊朗使用化学武器的信息。 #NoImpunity [go.usa.gov/xA5q5](https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf)**
+
+
+
+> The U.S. also declassified information on Iran's use of chemical weapons. [#NoImpunity](https://twitter.com/hashtag/NoImpunity?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/JFFC4MSGIX](https://t.co/JFFC4MSGIX)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348411800572764160?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348411800572764160?s=21](https://twitter.com/secpompeo/status/1348411800572764160?s=21)
+**美国解密有关伊朗使用化学武器报告下载：**[https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf](https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf)
+
+* * *
+
+**By： 【秘密翻译组 G-Translators】**
+
++1

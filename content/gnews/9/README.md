@@ -1,28 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 再度被打压，台湾的两个国际医事组织名称被迫由台湾改名为中华台北
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/739382/)
+## 国防部官员确认川普仍是总司令，拒绝参加”军事政变”保持中立
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/739426/)
 
-台灣農場 台灣米粉
+加拿大多伦多枫叶农场 文𤦍(Manpui）
+校对 上传 云起时
+![]()![](https://gnews.org/wp-content/uploads/2021/01/trump-2.jpg)图片来源：Twitter
+西方杂志（The Western Journal）网络记者基普·琼斯（Kipp Jones）
+于2021年1月9日报道：尽管在周三国会大楼事件后，民主党人和权威媒体发起了赶走川普总统运动，但国防部官员为避免外界压力，并继续承认川普为总司令，同时也避免参加“军事政变” 。
 
-根据相关报导，国际医事放射师联盟（ISRRT）已在其网站上将台湾(Taiwan)更改为中华台北(Chinese Taipei)。ISRRT在2020年12月22日给台湾两个组织(台湾医事放射学会、台湾医事放射师公会全国联合会)的一封信中解释并要求更改名称，并称要求来自于世界卫生组织(WHO)。
+周五媒体广泛报导，众议院议长南希·佩洛西（Nancy Pelosi）要求参谋长联席会议主席陆军上将马克·米尔利（Mark A. Milley）限制总统进入该国所谓的核足球(nuclear football) ，其中包含美国庞大军火库核武器的发射启动密码。
 
-根据ISRRT 信件中表示“我们希望您知道您的两个组织都对ISRRT有价值。我们认识到您已经是创始组织的成员，并且您的组织在ISRRT董事会中担任过领导人。知道这对我们双方都是一个非常艰难的决定，但是我们必须满足WHO的规定，才能继续保持非国家组织的“官方关系”地位。” “我们一直在努力寻找可能的解决方案，我们相信我们已经提出了一种解决方案，考量会员资格、国家会员资格以满足世界卫生组织的章程、法规、政策和惯例，我们将 “Taiwan-TWSRT”和“ Taiwan-TAMRT”更改为“Chinese Taipei TWSRT”和“Chinese Taipei TAMRT”。这是用于列出参加奥运会仪式和运动会的国家的类似术语。” 该信得出结论，这一变化将使ISRRT保持其与世界卫生组织的正式关系。
+美国五角大楼最高极军官米尔利是陆军将军，也是参谋长联席会议第20任主席。 曾在美国陆军博物馆开幕式上明确表示忠诚于美国宪法。 “我们每个人都将保卫和捍卫美国宪法。”
 
-放射师公会全联会理事长杜俊元表示， TWSRT和TAMRT已加入ISRRT长达50年，都是元老会员。原先在官网上的会员名分别为“Taiwan-TWSRT”和“Taiwan-TAMRT”，每年也都会定期和会员国代表开会、进行交流。但是就在去年年初，ISRRT突然通知，称受到WHO压迫，认为台湾不算是一个国家，要求把上述2会员名称的“台湾”改为“中国台湾”。但是理解我方不会同意，所以想出折衷方案，改参考奥运参赛名称、改名为“中华台北”。
+佩洛西打电话给米尔利，要求他忽略川普发出使用这些启动密码的命令。 目前尚不清楚是什麽引发她向米尔利打这个电话。 川普似乎不存在任何具体威胁，这表明该呼吁是出于政治目的。
 
-理事长杜俊元接着表示，我方完全无法接受这样的结果，认为ISRRT趁在疫情期间、国际间无法进行交流之际强行改名。连我方想要见面沟通、争取转圜的余地都没有。且目前中共并非ISRRT会员，估计这种突袭式的更名，是要为之后中共的加入埋下伏笔。
+据报导，加州民主党人告诉米尔利，她想限制川普总统在任期的最后几天对国际威胁作出回应。
 
-台湾放射科医生团体和台湾外交部（MOFA）都对该组织提出了抗议，但ISRRT迄今尚未做出回应。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/圖片-1-14.png)
-评论： 尽管台湾在这次COVID-19的全球战役上表现出杰出的医疗品质以及医学管控能力，中共继续在各大国际场合压迫台湾的空间。也仅管台湾加入国际放射线学家和放射技术专家学会(ISRRT)已超过50年，甚至是创始会员，但是ISRRT仍然将两个台湾会员的名称(Taiwan-TWSRT, Taiwan-TAMRT)强行改为中华台北(Chinese Taipei TWSRT, Chinese Taipei TAMRT)。只要中共政权还在，世界各地就没有人权、世界就没有正义。现在这个时刻已经是正义与邪恶的对决，最后绝对是正义获胜，一月二十日也必定是川普总统宣誓就职。
+美国国家公共广播电台（NPR）报导称，佩洛西告诉民主党同事，她曾与米尔利谈过“为防止反复无常的总统发起军事敌对行动或启动发射密码下令进行核打击而採取的预防措施 。”
 
-參考新聞
-[https://tw.appledaily.com/life/20210110/U62YYB7LCJERRBK7FOHAONX7QY/?utm\_source=facebook&utm\_medium=social&utm\_campaign=twad\_article\_share&utm\_content=share\_link&fbclid=IwAR3DLbfrpcDMYEsdBTyyNpOoI9TVHy9jTNlF6ABtrnw3unXc5YVXEkE9HhY](https://tw.appledaily.com/life/20210110/U62YYB7LCJERRBK7FOHAONX7QY/?utm_source=facebook&amp;utm_medium=social&amp;utm_campaign=twad_article_share&amp;utm_content=share_link&amp;fbclid=IwAR3DLbfrpcDMYEsdBTyyNpOoI9TVHy9jTNlF6ABtrnw3unXc5YVXEkE9HhY%20%20https://taiwanenglishnews.com/legislator-slams-who-for-acting-as-thugs-for-ccp-after-international-radiologist-group-ordered-to-list-taiwan-members-under-taiwan-china/%20%20https://www.ftvnews.com.tw/news/detail/2021110W0065?fbclid=IwAR1tGjsSy2gPebnL4g9GWT2tyDEpHtN4ZROLkjQYpCxge2knn0UmMT67Ze4)
+佩洛西写道：“这位精神失常的总统现况……再没有比这更加危险了，我们必须尽一切努力保护美国人民免于他对我们国家和民主的不平衡攻击。”
 
-[https://taiwanenglishnews.com/legislator-slams-who-for-acting-as-thugs-for-ccp-after-international-radiologist-group-ordered-to-list-taiwan-members-under-taiwan-china/](https://tw.appledaily.com/life/20210110/U62YYB7LCJERRBK7FOHAONX7QY/?utm_source=facebook&amp;utm_medium=social&amp;utm_campaign=twad_article_share&amp;utm_content=share_link&amp;fbclid=IwAR3DLbfrpcDMYEsdBTyyNpOoI9TVHy9jTNlF6ABtrnw3unXc5YVXEkE9HhY%20%20https://taiwanenglishnews.com/legislator-slams-who-for-acting-as-thugs-for-ccp-after-international-radiologist-group-ordered-to-list-taiwan-members-under-taiwan-china/%20%20https://www.ftvnews.com.tw/news/detail/2021110W0065?fbclid=IwAR1tGjsSy2gPebnL4g9GWT2tyDEpHtN4ZROLkjQYpCxge2knn0UmMT67Ze4)
+但据《纽约时报》报导，五角大楼在党派争执中保持中立。
 
-[https://www.ftvnews.com.tw/news/detail/2021110W0065?fbclid=IwAR1tGjsSy2gPebnL4g9GWT2tyDEpHtN4ZROLkjQYpCxge2knn0UmMT67Ze4](https://tw.appledaily.com/life/20210110/U62YYB7LCJERRBK7FOHAONX7QY/?utm_source=facebook&amp;utm_medium=social&amp;utm_campaign=twad_article_share&amp;utm_content=share_link&amp;fbclid=IwAR3DLbfrpcDMYEsdBTyyNpOoI9TVHy9jTNlF6ABtrnw3unXc5YVXEkE9HhY%20%20https://taiwanenglishnews.com/legislator-slams-who-for-acting-as-thugs-for-ccp-after-international-radiologist-group-ordered-to-list-taiwan-members-under-taiwan-china/%20%20https://www.ftvnews.com.tw/news/detail/2021110W0065?fbclid=IwAR1tGjsSy2gPebnL4g9GWT2tyDEpHtN4ZROLkjQYpCxge2knn0UmMT67Ze4)
+米尔利发言人戴夫·巴特勒上校（Col.Dave Butler)向《纽约时报》发的一份声明证实了佩洛西这个电话呼吁。
+
+巴特勒说：“米尔利回答了她有关核指挥当局程序处理的问题。”
+
+据《泰晤士报》记者戴维·桑格（David Sanger)和埃里克·施密特（Eric Sc​​hmitt)说，该报还与五角大楼的其他官员进行了交谈，据说他们不愿参与佩洛西的政治斗争。
+
+桑格和施密特报导中军方官员説：“川普先生仍然是总司令。 除非他被免职，否则军方一定会遵守他的合法命令。 儘管军方官员可以拒绝执行他们认为是非法的命令，或者通过发送这些命令进行仔细的法律审查 来拖延流程，但他们无法将总统从指挥系统中除名系，不然，那就将等于一场军事政变。”
+
+泰晤士报报道: “*使官员们最担心的一个问题是伊朗宣布已开始将铀浓缩至20％的纯度-接近製造核弹的质量。 去年12月，川普先生要求针对伊朗不断增长的核燃料生产採取军事 选择，但包括米尔利将军和国务卿迈克·庞培奥（Mike Pompeo）在内的许多高级官员都拒绝了他建议。* ”
+
+佩洛西和其他民主党人利用周三在国会大楼举行的活动来辩解对川普的追究是正确的，他们声称由于对他精神状态的恐惧打算在他在任期的最后几天，对他进行政治报复。
+
+民主党人还宣布，他们计划再次弹劾川普总统，有传言称他们可能试图通过第二十五条修正案将他免职，免去他还不到两週的任期。据报导，自周三以来，其他民主党议员也对米尔利施加了压力。 但是目前有报导证实军方拒绝了他们，并打算保持政治中立。
+
+川普仍然是政府中唯一有能力直接下令採取军事行动，并有权使用该国的核武库的人。 任何企图否定他使用既定工具履行国家安全职责的都是非法的。
+
+评：米尔利将军最近说，中共是美国面临的唯一且最重要的安全挑战。 作为美国的一位战时将军，深信将军终将和他的总统一起完成他们的使命！
+
+[原文链接](https://www.westernjournal.com/defense-officials-confirm-trump-still-commander-chief-refuse-participate-military-coup-oust/)
 
 0

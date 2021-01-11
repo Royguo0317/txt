@@ -1,29 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/9/2021 苹果和谷歌正在审查（移除）其他的数字平台（Parler)&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/738500/)
+## 奥斯卡影帝坚信正义必胜 呼吁“展望美好未来”
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/738461/)
 
-**【大选实况】1/9/2021 EST 11:00PM Steve Cortes 推文： **
+加拿大多伦多枫叶农场 阿黎
+校对 发稿 云起时
+![]()![](https://gnews.org/wp-content/uploads/2021/01/theconservativeopinion.com_.jpg)图片来源：Theconservativeopioin
+据Breitbart 1月9日报道，奥斯卡获奖演员乔恩-沃伊特(Jon Voight)上周六发布了一段强有力的振奋人心的视频，向全国人民发表讲话，感谢总统，并敦促美国人 “站起来，展望美好未来”。
 
-依然和我们的总统站在一起！
-![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-63.jpg)来源：[https://twitter.com/cortessteve/status/1348117428199432195?s=21](https://twitter.com/cortessteve/status/1348117428199432195?s=21)
-盖特链接：[https://gtv.org/getter/5ffb593d87fabe2daf358c14](https://gtv.org/getter/5ffb593d87fabe2daf358c14)
+这段稍长的视频中，沃伊特以美国国旗为背景，强调了团结的重要性，并表现出更加鼓舞和乐观的语气。
 
-**【大选实况】 1/9/2021 EST 11:18AM Rob Schneider 推文**：
+“我的美国同胞们，我们不应哭泣，但让我们感谢川普总统四年来的辛勤工作和对美国的热爱。”。”让我们不要低头，让我们站起来，展望美好的未来。让我们赞美上帝；让我们明白他的计划远比这更伟大。”
 
-随着Twitter 和Facebook带头开始审查言论，苹果和谷歌正在审查（移除）其他的数字平台（Parler)，因为它不对言论进行审查。我希望你们现在能够意识到真正视觉上的德国国会纵火案（Reichstag国会大楼已被烧毁）。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-64.jpg)来源：[https://twitter.com/robschneider/status/1347940880192208899?s=21](https://twitter.com/robschneider/status/1347940880192208899?s=21)
-盖特链接：[https://gtv.org/getter/5ffb5e1187fabe2daf359151](https://gtv.org/getter/5ffb5e1187fabe2daf359151)
+在谈到周三美国国会大厦的暴力事件时，沃伊特明确呼吁要追究那些冲进国会大厦的人的责任。
 
-**【大选实况】 1/9/2021 EST 12:31PM Richard Grenell 推文：**
+“我知道所有人都很失望，但这种暴力不是我们的本色，”沃伊特继续说道。”我们是爱、尊重、荣誉。搞破坏的人将被问责，但真正想分享爱和尊重的人将被听到。”
 
-嘿！乔·拜登和卡马拉·哈里斯，你们在告诉其他国家不能禁言、审查和关闭他们政治对手言论的时候，祝你们好运。这是美国品牌的危机，而你们暂时为危机带来的权力而狂欢。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-65.jpg)来源：[https://twitter.com/richardgrenell/status/1347959315236151296?s=21](https://twitter.com/richardgrenell/status/1347959315236151296?s=21)
-盖特链接：[https://gtv.org/getter/5ffb5f3a87fabe2daf3592c7](https://gtv.org/getter/5ffb5f3a87fabe2daf3592c7)
+沃伊特继续鼓励观众抛开分歧，拥抱川普总统任内 “分享的爱”。
 
+“让我们抛开分歧，让美国成长，”这位资深演员说。”让她重新骄傲地站起来，我们作为一个国家将坚持川普总统与我们所有人分享的爱。”
 
+片段最后，沃伊特称正义会胜利。
 
-By： 【秘密翻译组G-Translators–北美组】
+“一切尚未结束，”沃伊特说。“正义的真理必胜！因为上帝的荣耀也必胜！爱你们！”
 
-0
+沃伊特一直是好莱坞最坚定的川普支持者之一。这位午夜牛仔明星在今年的共和党全国代表大会（RNC)上解说了一段关于美国之所以与众不同的视频，以及一段关于川普总统成功解救被扣押在外国的美国人质的共和党全国代表大会视频。
+
+评：
+
+奥斯卡获奖演员乔恩-沃伊特的讲话深深感动了笔者，他的正义感、他的勇气、他对真理的坚持和爱国情怀代表着八千万川普总统支持者。是的，“这还没有结束”,接下来的十天里，一切不甘屈服于邪恶势力，向往正义和光明的人们会继续以各种可能的形式传播真相。
+
+推特永久关闭了川普总统的账号；YouTube关闭了班农战斗室；由于公众对推特的厌恶和控制，寻求自由发声渠道，转到parler,使parler用户量骤然上升，苹果公司开始限制parler新账户，服务器出租方亚马逊公司威胁封杀parler…
+
+郭文贵先生领导的曝料革命人与八千万支持川普，反对共产邪恶的美国人站在一起，用我们打造的GTV, Gnews和一切可能的媒体和渠道传播香港真相、CCP病毒真相、大选欺诈真相…功到自然成。
+
+[原文链接](https://www.breitbart.com/the-media/2021/01/09/watch-jon-voight-calls-to-rise-look-to-a-better-future/)
+
++2

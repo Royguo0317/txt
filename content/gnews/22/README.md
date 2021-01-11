@@ -1,52 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/10/2021 美国解密有关伊朗使用化学武器的信息; 更安全的北极=更安全的美国&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/739090/)
+## 班农作战室638-639期摘要
+` 文乐` [轉載自GNews](https://gnews.org/zh-hans/739200/)
 
-**【大选实况】1/10/2021 EST 3:30PM 蓬佩奥国务卿发推： **
+翻译：作战室翻译组
+编辑：文乐
 
-我们积极地领导了北极圈委员会。 致力于使运输通道更安全。 为边远社区提供电力，医疗服务等。 更安全的北极=更安全的美国。
+2021.1.7 War Room EP 638-639
 
+EP 637 （The Next Day）
 
+嘉宾：夏音主教（Bishop Shines）、斯派洛主教（Bishop Spero） 约翰•伊斯曼（John Eastman）
 
-> We’ve led vigorously in the [#ArcticCouncil](https://twitter.com/hashtag/ArcticCouncil?src=hash&amp;ref_src=twsrc%5Etfw). Worked to make shipping lanes safer. Helped rural communities with power, medical care, and more. Safer Arctic = safer America. [#EffectiveMultilateralism](https://twitter.com/hashtag/EffectiveMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/QYp0oKxgPJ](https://t.co/QYp0oKxgPJ)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348366502521663491?ref_src=twsrc%5Etfw)
+国会暴力事件之后的第一期节目，作战室邀请到夏音主教（Bishop Shines）和斯派洛主教（Bishop Spero）带领大家为川普总统和美国祈祷。
 
+“记住他们还想做的是打垮你，他们想打垮你的精神。他们试图让您退出，他们希望您退出。 他们想让你沮丧，他们想让你精神崩溃。想让你觉得受够了不想再投票了。那正是他们想要的。”
 
-来源：[https://twitter.com/secpompeo/status/1348366502521663491?s=21](https://twitter.com/secpompeo/status/1348366502521663491?s=21)
-盖特链接：[https://gtv.org/getter/5ffbae4a87fabe2daf35edf9](https://gtv.org/getter/5ffbae4a87fabe2daf35edf9)
+班农先生提醒大家：面对着一场很长，很艰苦的战斗。如果这很简单，谁都可以去做了。今天，大家从天意开始。
 
-* * *
+乔治亚州竞选参议员凯利•洛夫勒 (Kelly Loeffler)临时反水，本来打算反对选举认证的，结果当庭反水。史蒂夫•科尔特斯（Steve Cortez）点评洛芙勒反水事件，并曝光她和丈夫（纽交所CEO）利用福奇等高官的信息在股市上大发国难财。
 
-**【大选实况】1/10/2021 EST 3:50PM 蓬佩奥国务卿发推：**
+约翰.伊斯曼教授（John Eastman）说宪法第十二条修正案并没有具体说明副总统的权力是什么，或者权力缺失是什么。所以关于副总统有多大的权力之说依旧是个未决问题。教授说《宪法》第二章第一款第二节明确规定决定选举总统选举人的方式的权力属于州立法机关，对缺席投票的严格限制。州选举官员单方面废除或更改选举程序是违宪的。现在的斗争是对宪法的拥护。他说程序不合法的问题，很多人尝试调查大选舞弊的事都被毙掉了，所以才让人如此的愤怒。联席会议和辩论可以先违背法律规定，因为大选舞弊是违背联邦宪法的，在违宪和法令违规，我们应首先关注违宪问题。无论闯进国会大厦的是什么人, 任何违反联邦警察防线的人都应该被逮捕，但这对质疑非法选举结果没有任何影响，不会因为国会大厦遭袭而停止调查非法选举背后的真相，副总统的所作所为已经违背了宪法的相关规定。对于昨天的认证结果，他认为应该以接受的态度，并继续在各州众议院立法机构努力，将核心问题解决。伊士曼教授还认为川普总统应有资格再次参选2024年的大选。
 
-美国之音员工对广播美国最高级外交官的声音有怨言…？ 向国外推广美国的价值观，不正是我们应该做的事情。东部时间明天下午3点，请收看我关于美国伟大与美国第一的讲话。
+EP 638 （MAGA）
 
+Real America’s Voice的记者Ben Bergquam现场介绍总统公园椭圆形草坪集会的现场。
 
+扎克伯格发表声明说将无限期地阻止特朗普总统使用Facebook和Instagram。他们在用媒体来操纵国家，妄图操纵人心。媒体的管理必须要改变。Facebook 在自掘坟墓，将失去大量的用户。
 
-> Voice of America employees complaining about broadcasting … the voice of America’s most senior diplomat? Seems like exactly what we should be doing to promote American values abroad. Tune in to hear my remarks about American Greatness & America First tomorrow at 3pm ET. [pic.twitter.com/VJ8jsTUwkO](https://t.co/VJ8jsTUwkO)
-> — Mike Pompeo (@mikepompeo) [January 10, 2021](https://twitter.com/mikepompeo/status/1348371565491183617?ref_src=twsrc%5Etfw)
+马特•盖茨（Matt Gaetz）在国会的发言说到关心彼此，川普总统明确呼吁游行和抗议保持和平突破国会的不是川普的支持者。所有成员是暴力的恐怖组织-Antif。疑似Antifa成员在川普游行队伍来之前冲击国会。视频也显示是警察直接放行。
 
+伯尼•卡里克（Bernie Kerik）建议MAGA人群：不要暴力，支持总统，他为这个国家做得非常出色。
 
-来源：[https://twitter.com/mikepompeo/status/1348371565491183617](https://twitter.com/mikepompeo/status/1348371565491183617)
-盖特链接：[https://gtv.org/getter/5ffbaced87fabe2daf35ec81](https://gtv.org/getter/5ffbaced87fabe2daf35ec81)
+杰克·麦克西：我们过于将昨天发生的事情与我们的运动混为一谈了。
 
-* * *
+拉希姆·卡萨姆：希望每个人都在为Ashli Babbitt和她的家人祈祷。
 
-**【大选实况】1/10/2021 EST 6:30 pm 蓬佩奥国务卿发推： 美国还解密了有关伊朗使用化学武器的信息。 #NoImpunity [go.usa.gov/xA5q5](https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf)**
+生活是不公平的。约翰说乔治亚州有好消息，加兰•费沃里托（Garland Favorito）和他的组织[voterga.org](http://voterga.org)的努力下，终于在1月15日获得了另一场听证会。意味着供他们在邮寄选票上对富尔顿县选票进行手工和法医检查。
 
-
-
-> The U.S. also declassified information on Iran's use of chemical weapons. [#NoImpunity](https://twitter.com/hashtag/NoImpunity?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/JFFC4MSGIX](https://t.co/JFFC4MSGIX)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348411800572764160?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/secpompeo/status/1348411800572764160?s=21](https://twitter.com/secpompeo/status/1348411800572764160?s=21)
-**美国解密有关伊朗使用化学武器报告下载：**[https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf](https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf)
-
-* * *
-
-**By： 【秘密翻译组 G-Translators】**
-
-+1
+0

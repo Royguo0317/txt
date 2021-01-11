@@ -1,31 +1,114 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评粤语快报】1.10：梵蒂冈大停电 习近平最新情况
-` 粵語組` [轉載自GNews](https://gnews.org/zh-hans/739470/)
+## 【大选推特/Parler实况】1/10/2021 条约只有在各方都遵守的情况下才有用; 必须用行动来维持条约&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/739514/)
 
-制作团队：【喜马拉雅粤语组】流光飞舞、sad3mom、鬼五
+**【大选实况】1/10/2021 EST 4:00 蓬佩奧国务卿 推文：**
 
-上传：文粤
+这是我遵循的另一项外交政策口号#美国优先：条约只有在各方都遵守的情况下才有用。
 
-主要内容：
 
-今天三个地方停电：梵蒂冈，巴基斯坦和埃菲尔铁塔。停电是真是假还未确证，但是媒体已进行大规模宣传，表明梵蒂冈成为了关注的焦点 。停电很多时候是正常的，但这次停电的事迅速变成了社交媒体全面关注的事，这就非比寻常了。
 
-梵蒂冈教廷两千年来的核心力量，一个是资金，另一个就是神秘的力量。梵蒂冈教廷分两派，维加诺大主教是一派，为实权派，另一派是教宗。现在教宗要通过外部的力量取代实权派，这就是大重启计划。
+> Here's another foreign policy mantra I've followed to put [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw): Treaties are only useful if all parties adhere to them. [pic.twitter.com/appNKEBfnq](https://t.co/appNKEBfnq)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348374054764486660?ref_src=twsrc%5Etfw)
 
-现在发生的事情 ，不仅仅关乎十四亿人灭共，不仅仅关乎美国大选共和党民主党之间的事情，也不仅仅是共产主义的事情，而是关乎整个地球文明人类文明。梵蒂冈教廷跟地球文明人类文明息息相关，这次的停电跟环境全球气候变暖，巴黎协议有关系。
 
-黑暗的力量也存在于有两千多年历史的教廷内，只是换了各种不同的包装而已。这些邪恶黑暗的力量两千多年来没有断过，黑暗的力量和光明的力量一直在较量。之前是用宗教裁判所的方式来占领舆论制高点，现在伪装成科学，把持科学的话语权来占领舆论制高点。
+来源：[https://twitter.com/secpompeo/status/1348374054764486660?s=21](https://twitter.com/secpompeo/status/1348374054764486660?s=21)
+盖特链接：[https://gtv.org/getter/5ffbae8687fabe2daf35ee41](https://gtv.org/getter/5ffbae8687fabe2daf35ee41)
 
-接下来要举行罗马教宗的大选，这关系到全球28亿教徒，关系到全人类的规则，梵蒂冈即将成为下一个真正的战场。今天的梵蒂冈大停电标志着已经开了第一枪，舆论战开始。
+* * *
 
-梵蒂冈有顶级的备用发电机，这种情况下还被停电，就是黑暗力量在进行威胁。我们的社会离不开计算机的控制，这已经形成了科技掐着人类脖子的事实。接下来，病毒将会为掐着人类脖子的第二只手， 第三只手将是环境气候。
+**【大选实况】1/10/2021/ EST 4:30 pm 蓬佩奧国务卿 推文： **
 
-习近平今天还是没露脸而且没有发指示。看来路德社的消息还是传到了习近平，让他害怕而不敢发指令。之前被路德社爆料习即将做手术，习怀疑身边人泄密，已清理掉几个亲信。现在他发现爆料革命仍然能够掌握他的行踪，让他怀疑他的指挥系统一定有人出卖他，所以他现在不给指示了。
+《 中导条约》有两个当事方。 奥巴马总统在俄罗斯作弊建立他们自己的系统时却限制了我们的军队，从而把美国人的生命置于危险中。当两方条约只有一方遵守时，这就叫做愚蠢。
 
-习近平应该仍然有获取信息的渠道，可能是通过电视看路德社和War Room，但是要用没有芯片的而是采用老式三极管的模拟电视机。第二个，可能有人采用写报告的方式给他反馈信息。
 
-[【路德时评】原视频链接](https://youtu.be/DisVqDs5S6E)
 
-0
+> There were two parties to the INF Treaty. President Obama risked American lives by restricting our military while Russia cheated and built up its systems. When only one party to a two-party treaty is complying, that’s called stupid. [pic.twitter.com/Gb6jaaz3Xe](https://t.co/Gb6jaaz3Xe)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348381601692962816?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348381601692962816?s=21](https://twitter.com/secpompeo/status/1348381601692962816?s=21)
+盖特链接：[https://gtv.org/getter/5ffbaee287fabe2daf35eea5](https://gtv.org/getter/5ffbaee287fabe2daf35eea5)
+
+* * *
+
+**【大选实况】1/10/2021/ EST 5:00 pm 蓬佩奧国务卿 推文：**
+
+我们的前任总统根据《 中导条约》单方面解除了我们的武装。 我们说“够了”，并离开了使美国无法防御的单方面协议。 #AmericaFirst
+
+
+
+> Our previous President unilaterally disarmed under the INF Treaty. We said “enough” and left the one-sided deal that made America defenseless. [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/bB5t0fckRx](https://t.co/bB5t0fckRx)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348389151926751232?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348389151926751232?s=21](https://twitter.com/secpompeo/status/1348389151926751232?s=21)
+盖特链接：[https://gtv.org/getter/5ffbaf1b87fabe2daf35eee8](https://gtv.org/getter/5ffbaf1b87fabe2daf35eee8)
+
+* * *
+
+**【大选实况】1/10/2021 EST 5:30 pm 蓬佩奧国务卿 推文： **
+
+在过去的四年中，美国大胆地揭露了未能履行《化学武器公约》规定义务的国家。
+
+
+
+> Over the last four years, the U.S. has boldly called out countries who have failed to meet their obligations under the Chemical Weapons Convention. [pic.twitter.com/FoiIM0bcLZ](https://t.co/FoiIM0bcLZ)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348396701392859136?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348396701392859136?s=21](https://twitter.com/secpompeo/status/1348396701392859136?s=21)
+盖特链接：[https://gtv.org/getter/5ffbaf5d87fabe2daf35ef3a](https://gtv.org/getter/5ffbaf5d87fabe2daf35ef3a)
+
+* * *
+
+**【大选实况】1/10/2021 EST 6:00 pm 蓬佩奧国务卿 推文： **
+
+必须用行动来维持条约。 阿萨德对自己的人民施以毒气后，川普总统对叙利亚发动了袭击。 我们是有真正的红线的。
+
+
+
+> Have to back up treaties with action. President Trump took out targets in Syria after Assad gassed his own people. We have real red lines. [https://t.co/PXVSEep0xz](https://t.co/PXVSEep0xz)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348404257196797958?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348404257196797958?s=21](https://twitter.com/secpompeo/status/1348404257196797958?s=21)
+盖特链接：[https://twitter.com/secpompeo/status/1348404257196797958?s=21](https://twitter.com/secpompeo/status/1348404257196797958?s=21)
+
+* * *
+
+**【大选实况】1/10/2021 EST 7:00 pm 蓬佩奧国务卿 推文： **
+
+条约与结盟一样，可以一直持续到失效。必须始终不断对其有效性进行评估。
+
+
+
+> Treaties, like alliances, can outlast their sell-by-date. Always have to keep evaluating their usefulness. [pic.twitter.com/up8Qtj6gn8](https://t.co/up8Qtj6gn8)
+> — Secretary Pompeo (@SecPompeo) [January 11, 2021](https://twitter.com/SecPompeo/status/1348419350370398209?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/secpompeo/status/1348419350370398209?s=21](https://twitter.com/secpompeo/status/1348419350370398209?s=21)
+盖特链接：[https://gtv.org/getter/5ffbb0b687fabe2daf35f08c](https://gtv.org/getter/5ffbb0b687fabe2daf35f08c)
+
+* * *
+
+**【大选实况】1/10/2021 EST 12:00 pm 蓬佩奧国务卿 推文：**
+
+#有效的多边关系 意味着重新激发活力的四方关系： 美国、澳大利亚、印度及日本之间的四方合作关系 – 思维相似、价值观一致，有益推动自由开放的印度洋-太平洋海域。
+
+
+
+> [#EffectiveMultilateralism](https://twitter.com/hashtag/EffectiveMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) means a reinvigorated Quad: like-minded values-based partnership among the U.S., Australia, India, and Japan, advancing a free & open Indo-Pacific. [pic.twitter.com/Rmqs3nTBTy](https://t.co/Rmqs3nTBTy)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348313657734811654?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1348313657734811654](https://twitter.com/SecPompeo/status/1348313657734811654)
+盖特链接：[https://gtv.org/getter/5ffbb39587fabe2daf35f384](https://gtv.org/getter/5ffbb39587fabe2daf35f384)
+
+
+
+#### **By： 【秘密翻译组 G-Translators】**
+
++1

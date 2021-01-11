@@ -1,36 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/10/2021 警察开枪射杀时黑命贵创始人在拍视频；华盛顿上空巨大禁飞区&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/738575/)
+## 加国公共安全部长警告：中共干涉是“重大威胁”
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/738638/)
 
-**【大选实况】1/10/2021 EST 1:20 pm ZeroHedge推文：**
+加拿大蒙特利尔皇家山战友团Spirit
+校对 文锦 发稿 云起时
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-41.jpg)图片来源：blog.nationalcitizensalliance.ca
+据True North2021年1月6日报道，加拿大公共安全部部长比尔-布莱尔（Bill Blair）致信国会议员，警告加拿大政府注意中共国构成的外国干涉威胁。
 
-中共国清除武汉实验室的关键数据；删除300项研究–包括 “蝙蝠女 “的研究。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-70.jpg)来源：[https://twitter.com/zerohedge/status/1348333942815002626](https://twitter.com/zerohedge/status/1348333942815002626)
-盖特链接：[https://gtv.org/getter/5ffb5fc687fabe2daf35937e](https://gtv.org/getter/5ffb5fc687fabe2daf35937e)
+这份长达12页的文件将外国干涉加拿大事务认定为 “重大威胁”，并将中共国列为干涉活动的主要实施者。”此外，包括中共国在内的外国，试图通过各种国家实体和非国家代理人，威胁和恐吓包括加拿大在内的世界各地的个人，”布莱尔写道。”然而，我们意识到，这些策略也可以被用作掩盖，以压制不同意见，包括在大学校园里，向政治对手施压，并灌输对国家权力的普遍恐惧，无论身在哪里。”
 
-**【大选实况】1/10/2021 EST 3:20PM Thomas Paine推文：**
+布莱尔接着以中共政府的 “猎狐行动”（Operation Fox Hunt）为例，说明在加拿大本土发生的影响活动。猎狐行动是中共国的一个项目，目的是调查在国外逃避腐败指控的中共国官员，并将他们遣返回大陆起诉。该计划自2014年起在加拿大实施。
 
-当警察开枪射杀示威者的同时，为什么极左组织黑命贵的创始人却在那里拍摄视频？
-![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-71.jpg)来源：[https://twitter.com/Thomas1774Paine/status/1348364000141172742](https://twitter.com/Thomas1774Paine/status/1348364000141172742)
-盖特链接：[https://gtv.org/getter/5ffb66c587fabe2daf359b02](https://gtv.org/getter/5ffb66c587fabe2daf359b02)
+“政府意识到一些外国正在试图破坏我们的经济，以谋取自己的利益，”布莱尔继续说道。“每当邪恶外国企图伤害我们的社区、破坏价值观或危害国家赖以建立的机构时，我们会采取行动。”
 
-**【大选实况】 一）1/10/2021 EST 1:22 pm 和 1:34 pm 拉希姆 推文：**
+最近，加拿大政府出于国家安全考虑，拒绝了中共国国企山东黄金矿业有限公司收购加拿大北部金矿的企图。
 
-1. 为什么在空域中出现这么巨大的（禁飞）空间（华盛顿上空）？
+在做出这一决定前不久，加拿大安全局2019年度公开报告，警告称，与外国关系密切的 “一些国有企业和私人公司 “正在通过购买加拿大重要项目来危害该国的国家安全。
 
+评：多年来，中共政权一直在西方国家购买关键资产。2013年中共的国有公司收购加拿大石油巨头尼克森（Nexen），另一家中公司收购了温哥华卫星通信公司Norsat；一家香港公司被允许收购位于蒙特利尔的激光技术公司ITF Technologies。中共除了经济入侵加拿大，还有价值观的入侵，加拿大总理特鲁多曾亲口说过羡慕中共的独裁体制，对中共政策极为软弱，加拿大主流媒体也因收受中共资金而起了美化、粉饰中共的作用。
 
-2. 很奇怪，我放大再回来后似乎又满了（飞机）。尽管有其他人说，与COVID有关的清洗状况仍在持续。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-72.jpg)来源：[https://twitter.com/raheemkassam/status/1348337386909016072?s=21](https://twitter.com/raheemkassam/status/1348337386909016072?s=21)
-盖特链接：https://gtv.org/getter/5ffb67f287fabe2daf359c69
+[原文链接](https://tnc.news/2021/01/06/public-safety-raises-the-alarm-on-chinas-foreign-interference-threat-in-letter-addressed-to-mps/)
 
-**【大选实况】1/10/2021 EST 3:00 蓬佩奧 推文：**
-
-我很高兴接受@JosepBorrellF发起的关于中共国的“美欧对话”的提议。北京政权是我们这个时代的挑战。我们于2020年10月启动了这项工作。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-73.jpg)来源：[https://twitter.com/secpompeo/status/1348358952765976576?s=21](https://twitter.com/secpompeo/status/1348358952765976576?s=21)
-盖特链接：[https://gtv.org/getter/5ffb68cc87fabe2daf359d80](https://gtv.org/getter/5ffb68cc87fabe2daf359d80)
-
-By： 【秘密翻译组G-Translators–北美组】
-
-+3
++5
