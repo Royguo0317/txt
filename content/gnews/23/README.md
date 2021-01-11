@@ -1,38 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【突发】美国之音试图对庞佩奥定于1月11日的讲话噤声
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/738978/)
+## 0110第61期《前沿观察》 灭共是我们的终极目标！
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/739122/)
 
-美国国务卿庞佩奥预计于1月11日美东时间下午3点，在《美国之音》使用美国之音的全球频道发表30分钟的即时讲话。请大家届时留意收听。
-
-戏剧性的是，美国之音试图对美国的最高外交官庞佩奥噤声，而且在1月7日发出通知，不准媒体到演播厅现场参与报道。 不过战友们，庞佩奥在美国之音的1月11日美东时间下午三点的讲话计划不变。到时敬请关注收听！
-
-这是庞佩奥国务卿1月10日的推文：
-
-
-
-> Voice of America employees complaining about broadcasting … the voice of America’s most senior diplomat? Seems like exactly what we should be doing to promote American values abroad. Tune in to hear my remarks about American Greatness & America First tomorrow at 3pm ET. [pic.twitter.com/VJ8jsTUwkO](https://t.co/VJ8jsTUwkO)
-> — Mike Pompeo (@mikepompeo) [January 10, 2021](https://twitter.com/mikepompeo/status/1348371565491183617?ref_src=twsrc%5Etfw)
+撰文:寒郁冰
+播报:1984文姝
+视频:Buzz文珂
+编辑:1984文姝
+图片素材:沧海一粟 海媚
+审片:皮亚納
+审核：Truemanman
 
 
 
-推文中文翻译：
+“这是上天送给爆料革命最大的礼物！”文贵先生1月9日在盖特中这样说到。
+川普总统推特被封，脸书被封，班农战斗室被屏蔽，弗林将军、鲍威尔律师、文森特肯尼迪、法比奥社交媒体相继被封，极右派媒体全部被封杀。美东时间1月8日晚，川普总统改换标注为美国政府的总统账号再次发推后被删。推特永久冻结川普标注为美国第45届总统的个人账号。
+媒体公司、大科技公司及其背后的中共黑手正在将美国变成共产主义幽灵笼罩下的1984。
+9日文贵先生连发盖特表示，今天所发生的一切都是必然的结果。维持中共的政权只有两条：中国人的无知和中国尚能维持下去的经济。但随着爆料革命和新中国联邦的崛起，国人的开智，病毒的肆虐和经济的崩塌，中共国内部各种矛盾的激化已经到了无法化解的地步。世界范围来看，病毒的持续变异，死亡的持续增加，中共超限战所造成的世界各国人民和经济的巨大危机，无人可解，更无人敢置之不顾。
+文贵先生发出警告说：“病毒的灾难还没开始，2021年比2020年要糟糕得多的多。” “灭共是我们的终极目标！”灭共是我们唯一的选择，只有灭共，中国人民才有可能尽快结束灾难性的日子，迎来新的生活。
+“一切都已经开始，没有任何人可以停下。”爆料革命是灭共的核心力量！每一个追求的正义的力量都必须投身在这场正义与邪恶的终极之战中，坚定信仰，坚信未来！
 
-“美国之音居然投诉美国之音的最高级别的外交官（即旁佩奥）在美国之音广播？向海外宣传美国的价值观似乎正是他们应该做的工作。请在明天下午（即1月11日）美国东部时间下午3点（调到美国之音国际频道）收听庞佩奥关于《美国卓越和美国优先》的重要讲话。 ”
+康州盘古农场报道
 
-庞佩奥国务卿是在1月4日给美国之音发出有关在1月11日去美国之音国际频道发表30分钟讲话的通知的。美国之音员工作为爆料人已正式向一个民间的非营利组织政府问责计划（Government Accountability Project）投诉抗议。美国之音认为庞佩奥国务卿的讲话是为了做宣传所以不合适，并认为这是浪费美国纳税人的钱。
+素材来源：
+1.[https://gtv.org/getter/5ff9d83987fabe2daf341fa5](https://gtv.org/getter/5ff9d83987fabe2daf341fa5)
+2.[https://gtv.org/getter/5ff9d08687fabe2daf3419ef](https://gtv.org/getter/5ff9d08687fabe2daf3419ef)
+3.[https://youtu.be/1WMSo0Lk3ps](https://youtu.be/1WMSo0Lk3ps)川普推特再被封
 
-Government Accountability Project 是美国一个非营利性的举报者保护和倡导组织。该机构成立于1977年。该机构认同美国之音爆料人的立场。这是该机构1月8日美国之音的回复信的链接： [https://whistleblower.org/wp-content/uploads/2021/01/Whistleblower-Disclosures-by-Govt-Accountability-Project-1-8-2021.pdf](https://whistleblower.org/wp-content/uploads/2021/01/Whistleblower-Disclosures-by-Govt-Accountability-Project-1-8-2021.pdf)
-
-这是政府问责计划这家民间机构在1月8日发表的新闻公告的链接： [https://whistleblower.org/press/press-release-voa-whistleblowers-protest-upcoming-live-worldwide-broadcast-of-address-by-secretary-of-state-pompeo-to-live-audience-of-voa-staff-at-voa-headquarters/](https://whistleblower.org/press/press-release-voa-whistleblowers-protest-upcoming-live-worldwide-broadcast-of-address-by-secretary-of-state-pompeo-to-live-audience-of-voa-staff-at-voa-headquarters/)
-
-笔者不禁要问使用美国纳税人钱的美国之音到底是代表谁的利益？
-
-撰文：【心无旁骛2020】整理/编辑：【Isaiah4031】
-
-喜马拉雅玫瑰园小队出品
-
-以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。
-
-+5
++1

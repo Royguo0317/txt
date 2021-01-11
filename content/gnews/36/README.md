@@ -1,36 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/10/2021 警察开枪射杀时黑命贵创始人在拍视频；华盛顿上空巨大禁飞区&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/738575/)
+## 【正道观察】中共病毒疫情日趋严重 灭共刻不容缓
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/738727/)
 
-**【大选实况】1/10/2021 EST 1:20 pm ZeroHedge推文：**
+作者：Ermat【㊙️翻Gnews原创组】
 
-中共国清除武汉实验室的关键数据；删除300项研究–包括 “蝙蝠女 “的研究。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-70.jpg)来源：[https://twitter.com/zerohedge/status/1348333942815002626](https://twitter.com/zerohedge/status/1348333942815002626)
-盖特链接：[https://gtv.org/getter/5ffb5fc687fabe2daf35937e](https://gtv.org/getter/5ffb5fc687fabe2daf35937e)
+责编：心声
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-2.jpg)图片来源：Heho
+中共病毒在世界各地加快肆虐。上个月，英国出现中共病毒变种毒株，其特点是传播速度快，较之前毒株传播速度增加了70%, 这种病毒迅速传到世界的其他国家。而本月，在日本发现了与英国不同的中共病毒新变种。中共病毒在全球已呈现迅速增长的趋势，美国单人死亡人数创新高，达到了4000多，而英国单日被感染人数也超过了6万，全球被感染人数近9000万，死亡人数近200万。
 
-**【大选实况】1/10/2021 EST 3:20PM Thomas Paine推文：**
+病毒发源地中共国也未能幸免。中共国黑龙江省黑河市、辽宁省大连市和沈阳市、北京市、河北省石家庄市、邢台市和上海市等多个城市出现这种超级新病毒。中共对新病毒出现的地区都是采用封锁隔离政策，或在居民院落周围竖起栅栏，或在住宅小区周围筑起铁丝网，或干脆在住宅大门上贴上封条，限制或不允许居民出入。即使采用如此非人道的做法，中共也没有挡住病毒的传播。将自由和生命视为神圣不可侵犯的西方世界也面临着新一轮的封锁与隔离。
 
-当警察开枪射杀示威者的同时，为什么极左组织黑命贵的创始人却在那里拍摄视频？
-![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-71.jpg)来源：[https://twitter.com/Thomas1774Paine/status/1348364000141172742](https://twitter.com/Thomas1774Paine/status/1348364000141172742)
-盖特链接：[https://gtv.org/getter/5ffb66c587fabe2daf359b02](https://gtv.org/getter/5ffb66c587fabe2daf359b02)
+封锁隔离不能解决问题，那疫苗能行吗？疫苗的研制通常需要很长时间。至今最快的疫苗研发耗时超过4年，但辉瑞公司的疫苗仅在不到一年的时间里研发出来。而更令人吃惊的是，据BioNTech联合创始人乌古尔·萨欣 (Ugur Sahin)博士介绍，在2020年1月25日，他仅用几个小时就为辉瑞公司设计出中共病毒疫苗。而Moderna的中共病毒疫苗，也只用了两天时间就设计完成。这样的疫苗“大跃进”，所产生的结果可想而知。现今世界多地有人接种后，产生严重不良反应, 甚至丧命。要知道劣质的疫苗, 给人们健康带来的损害是金钱所无法弥补的。试图用”速成“的疫苗对付不断变异的中共病毒，这是不可能完成的任务。
 
-**【大选实况】 一）1/10/2021 EST 1:22 pm 和 1:34 pm 拉希姆 推文：**
+封锁隔离不行，疫苗也不行，人类该何去何从？是生存还是死亡，我们已经到了历史的关键节点。闫丽梦博士曾经说：“给我们的时间不多了”，看来这绝对不是危言耸听。历史上，1347年发生的“黑死病”，2500万欧洲人丧命，占当时欧洲总人口的1/3。而1918年的西班牙大流感，5亿人感染，1亿人死亡。而当时的世界总人口只有20亿人左右。
 
-1. 为什么在空域中出现这么巨大的（禁飞）空间（华盛顿上空）？
+近日，蓬佩奥国务卿及前美国国家安全顾问博明（Matthew Pottinger）都已明确地表明，中共病毒来自于武汉P4实验室。他们敢这样说，说明美国已经掌握了确凿的证据。因此解决病毒灾难的唯一选择就是灭共。因为中共病毒是人造的，可自主变异的邪恶病毒，经过变异后的病毒，其毒性和传染性更强，而且中共可随时能释放出新病毒。必须从源头上解决问题，并且灭共后，才能完全掌握病毒信息，制造出真正可用的疫苗。
 
+灭共的战斗早已打响，新中国联邦就是灭共的急先锋，川普总统近日也必将有大的行动，只要川普总统下定决心，果断地采取霹雳手段，内外正义人士联合起来，必将给中共致命打击。中共灭亡就在眼前。
 
-2. 很奇怪，我放大再回来后似乎又满了（飞机）。尽管有其他人说，与COVID有关的清洗状况仍在持续。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-72.jpg)来源：[https://twitter.com/raheemkassam/status/1348337386909016072?s=21](https://twitter.com/raheemkassam/status/1348337386909016072?s=21)
-盖特链接：https://gtv.org/getter/5ffb67f287fabe2daf359c69
+新闻参考链接：
 
-**【大选实况】1/10/2021 EST 3:00 蓬佩奧 推文：**
+[BioNTech Co-Founder: Pfizer’s COVID-19 Vaccine Was Designed In Just Few Hours](https://humansarefree.com/2020/12/biontech-co-founder-pfizers-covid-19-vaccine-was-designed-in-just-few-hours.html)
+[China Announces New UK COVID-19 Variant Cases, While Superspreaders Appear in Multiple Cities](https://www.theepochtimes.com/china-announces-new-uk-covid-19-variant-cases-while-superspreaders-appear-in-multiple-cities_3641888.html?utm_source=morningbriefnoe&amp;utm_medium=email&amp;utm_campaign=mb-2021-01-04)
+**[【点睛要闻】中共难辞生化病毒之咎，“加速被灭”木已成](https://gnews.org/zh-hans/730182/)**舟
 
-我很高兴接受@JosepBorrellF发起的关于中共国的“美欧对话”的提议。北京政权是我们这个时代的挑战。我们于2020年10月启动了这项工作。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-73.jpg)来源：[https://twitter.com/secpompeo/status/1348358952765976576?s=21](https://twitter.com/secpompeo/status/1348358952765976576?s=21)
-盖特链接：[https://gtv.org/getter/5ffb68cc87fabe2daf359d80](https://gtv.org/getter/5ffb68cc87fabe2daf359d80)
+（本文仅代表作者个人观点）
 
-By： 【秘密翻译组G-Translators–北美组】
-
-+3
++2
