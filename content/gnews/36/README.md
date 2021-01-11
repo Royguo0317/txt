@@ -1,98 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 战友周刊——2021【前所未有】第五年
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/736690/)
+## 北京政权知道世界对病毒的愤怒，已把防范“斩首行动”列为最高级别任务
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/738427/)
 
-作者：纽约香草山写作组   战友时光
+新闻简述：郭文贵先生在2021年1月9日的GTV盖特视频中，透露中共北京政权知道世界和美国人民一定会跟它算病毒的总账，所以已如惊弓之鸟，把防范“斩首行动”列为最高军事要务。郭先生还用越王勾践的故事提醒大家，带来最后胜利的关键因素可能是愚蠢的敌人自己。
+视频来源：[https://gtv.org/getter/5ff9d08687fabe2daf3419ef](https://gtv.org/getter/5ff9d08687fabe2daf3419ef) (4:42-7:02)
+**中英文对照全文**
 
+I think this is the greatest gift to our Witshleblower Movement from the heavens. Who do you feel people in the world and American people are thinking of at this moment? Who do they hate the most? Who are they angry at the most? Do you think the virus will just disappear? Do you think the CCP can be let off easy?
 
+我认为这是上天送给我们爆料革命最大的礼物。大家觉得这个时候，全世界和美国人民，最想的是谁？最恨的是谁？最生谁的气？大家觉得这病毒就没了吗？大家觉得现在共产党就没事了吗？
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+I heard that the Beijing regime has now put the anti-decapitation strike as its highest priority. Its internal security guards now have more shifts each day, from the previous 12 shifts to the current 24 shifts – one shift per hour. It has reached this level [of security]!
 
+听说北京现在防“斩首行动”袭击列为第一级别，内部现在已经每天都所谓的换防，一天换好几次，从过去的12班，已经换成了现在24班，一小时一班，这已经到了这个程度了！
 
+Think about China’s food shortage and its “rolling pin” [fake] economy. Can it [the fake economy] become real? Can the US print a lot of money now? There are too many things to talk about, but I just don’t want to. About the [social] media, do you think American people would let it go after so many accounts were suspended by them? Whoever’s account was suspended by the media, they will definitely be the winners in the future.
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/image-114.png)
+中国的缺粮食还有擀面杖子经济，就变成真的了吗？美国现在就可以大量的印钞票了吗？太多了，我就不想多说了。还有这媒体，这媒体关掉以后，美国人就拉倒了？谁的媒体被关掉，未来这个被关掉者一定是赢家。
 
-人生，真的是一场奢侈的浪费
+At this moment, my dear brothers and sisters in arms, we are not competing for our persistence, not our courages, not your righteousness, then what are we competing for? At this crucial moment, fellow fighters, let’s learn from the king of the Yue Kingdom, Gou Jian. Anyone who understands the historical story of King Gou Jian should still remember what led to Gou Jian’s final victory. Was it due to the 500 prodigies? The handful of Ministers around him? Was it Fan Li? Was it due to his sacrifices and persistence? None of them. It was because of its opponent, Bo Pi, a fatuous king of the Wu Kingdom, together with his wrong decisions that led him to death. Otherwise, it [the victory of Gou Jian] would be impossible.
 
-那是2017年，新年过后，看着公司的账目 ，我又一次苦笑了
+这个时候，亲爱的兄弟姐妹们，拼的不是耐力，拼的也不是勇气，拼的也不是你的正义，拼的是什么？战友们现在？最关键的时候，学学越王勾践。任何懂得越王勾践这个历史故事[1]的人都记住，越王勾践最后赢在了哪里？在那500个神童吗？是他身边的几个大臣吗？是范蠡吗？是他牺牲了的耐力吗？都不是。是对方，是伯嚭，是真正的吴王的昏君，还有他错误的决定，走向了黄泉路，否则不可能的。
 
-就酒约喝越多，话越说越假，钱越赚越少
+[What will destroy the CCP are] the CCP’s internal struggles, it’s non-curable cancers in its economy and politics, the 1.4 billion people’s open mouths waiting for food and never ending, unsolvable resentment, and the most vicious virus in this world.
 
-不管怎么迎合，不过怎么从自身上寻找问题，我都无法理解年复一年的窘迫
+现在共产党的内乱，和共产党内部的永远无法治愈的经济癌症、政治癌症和整个14亿人民张着嘴要吃饭的这种永远填不满的这种怨恨，解决不了的怨恨，还有世界上最可怕的病毒。
 
-许是经济的自然规律吧，许是技不如人吧，我安慰着自己
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/735453/](https://gnews.org/zh-hans/735453/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/image-115.png)
+参考文献[1]: [https://en.wikipedia.org/wiki/Goujian](https://en.wikipedia.org/wiki/Goujian)
 
-我反思着每一次在达官贵人面前的逢迎状，难道不够真诚
+*翻译：【Isaiah4031】校对：【BruhM】字幕：【相机过热啊】视频解码：【恒久忍耐】编辑：【Isaiah4031】*
 
-我反省着每一次在原则和较量面前的正直，难道不够城府
+*喜马拉雅玫瑰园小队出品*
 
-我到底该怎么做，才能心安理得地面对那个已经认不出的自己
+*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
 
-那时，我已做好准备要放弃，放弃思想上的贞操，准备尝试一下随波逐流的快感和半人半鬼的迷失
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/image-116.png)
-
-咦？郭文贵？干啥的？
-
-一次次虔诚的出镜，一次次愤怒的呐喊，一次次惊悚的爆料
-
-真的？真的吗？是真的吗？
-
-奇怪哦，他说了，应验了；他又说了，又应验了
-
-他说要做一件“前所未有”的是，这里面居然有你有我，有每一个背井离乡的身影和遥远的哭声
-
-他让我感受到，全世界的黑暗，都不足以影响一只蜡烛的光辉
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/image-117.png)
-
-2021年，【前所未有】第五年
-
-一个有关【信仰】的故事，仍在继续，仍值得我们期待
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/image-118.png)
-
-郭文贵先生提及到“遗书事件”中的严重性要点：
-
-1. 超出想象，未来一两个月会显现；
-2. 墙内战友未来恐无法来到美国；
-3. 这是一起有组织，有预谋，有针对性的犯罪行为；
-4. 为了谋取遗书中涉及的利益，不法分子会危及战友的生命；
-5. 战友们是基于爆料革命和郭先生的公信力，进而相信SARA，并由其操作相关事宜。但SARA此举极大地破坏了爆料革命和郭先生的名誉和信誉。与VOG和SARA切割，是基于对更多战友和爆料革命的保护而形成的依据法律考量后的举措。我们不会否认SARA曾经的付出，但她也给爆料革命和战友带来了无法抵消的，巨大且潜在的威胁和伤害。希望战友理性、严肃、认真地思考这个事情，并作出坚定地、理性地情感抉择。
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/image-119.png)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/image-120.png)
-
-声明
-
-1. 本刊以个人自媒体形式支持郭文贵先生和爆料革命作为立场倾向
-2. 本刊初衷为个人整理归纳爆料革命相关信息，形成备忘用以传播
-3. 本刊策划制作及图文观点均不代表官方立场和行为
-4. 本刊所使用的LOGO、肖想均未得到授权，仅为版面设计需要
-5. 本刊所使用的软体及字体均源自网上，不代表其制造商立场
-6. 任何利用本刊，篡改、扭曲本刊结构、图文及观点，且用于伤害、诋毁爆料革命及本人的行径和言论都为本人所不齿；所造成的一切后果，由以上行为人承担
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/image-121.png)
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-0
++2

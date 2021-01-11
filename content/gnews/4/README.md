@@ -1,52 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/10/2021 美国解密有关伊朗使用化学武器的信息; 更安全的北极=更安全的美国&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/739090/)
+## 孔子学院，孔子课堂：中共掩人耳目的间谍和统战组织
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/739235/)
 
-**【大选实况】1/10/2021 EST 3:30PM 蓬佩奥国务卿发推： **
+作者：康州盘古农场 – 烟波浩淼
 
-我们积极地领导了北极圈委员会。 致力于使运输通道更安全。 为边远社区提供电力，医疗服务等。 更安全的北极=更安全的美国。
+审核：康州盘古农场 – Rose
 
+2004年11月17日，美国马里兰大学与中共国南开大学签署协议在马里兰大学建立了北美洲第一家孔子学院，马里兰大学孔子学院。从此孔子学院开始在全美和全世界遍地开花。根据孔子学院官网显示，到目前为止，中共在全世界建立了541所孔子学院，1170 个孔子课堂。
+![](https://lh6.googleusercontent.com/2WvxuowykQt7dBDLlht-4FyZ3karmEM-F4QunepXqN0aI9eRAmQUoOSDx8x_sATpOcmueM-7jH9UvE4_XMoW-T1LFpS3U6rFPe_jbvzIQ6NNoH1ApCJUC4XaNJZsnneZeIq0fX7rQyX0GkFTEA)
+美国国务院2020年8月13日将孔子学院美国中心（CIUS）指定为中共国的驻外使团, 并认定孔子学院是一个在美国校园和K-12课堂上推动北京的全球宣传和恶意影响活动的实体。此时，美国任然有75所孔子学院，其中65所活跃在美国大学校园内，其余为独立组织，还有500个孔子课堂设在K-12校园里。美国国务院发文指出孔子学院是由中共国政府赞助向美国学生推广歪曲的中国语言和文化的培训，这是中共国政府多方面宣传工作的一部分，是在中共统战部的领导下，由中共国政府为这些项目提供资金。利用向一些大学提供经济激励措施 , 避免批评中共的言论在美国大学出现。中共以各种隐蔽手段对美国大学施加影响，威胁着美国校园的学术自由和言论自由。诸如阻止一些校园团体就台湾，西藏和新疆等被北京认为敏感的问题组织讨论。蓬佩奥国务卿2020 年12月日在佐治亚理工大学作的关于中共渗透美国校园的演讲就举出两个例证：在普林斯顿大学，上中共国政治课的学生被迫在作业上使用代号，不敢用实名，以免被中共发现他们的身份，并根据严厉的新国家安全法，起诉他们自由表达对香港和中共的看法。在其他美国大学的中共国学生也生活在恐惧中，担心他们在家乡的家人会因为他们在美国课堂上说的话而被逮捕、被审讯、被折磨或甚至更糟的非法处置。一位佐治亚大学的学生在2018年谈到中共秘密警察时说：“他们多次骚扰我，要求我向他们提供海外民主活动人士和异议人士的活动信息，他们对维吾尔族人和藏族人的活动特别感兴趣。”
 
+孔子学院不仅仅是作为中共的统战工具，而且还是中共的间谍组织。斯伯丁将军是一位国家安全战略家。他在接受《全面衡量》节目的采访时指出，“孔子学院完全由中共国控制，允许他们建立间谍网络，盗取我们的学术研究成果和知识产权，并将其送回中共国。”
+![](https://lh4.googleusercontent.com/5QPsKN0KQ8A14r3dvkm5YbknzgbJbyf0o6z54moMIXV-5WHy460_GahW5FUzXPvr2OUEc08j9BnI82XlX3VaEBDsHvCiO45ZO2445C9dORrRpQnIAH3qXQ4UI6uLJcwjl1nfop96kNt57XZEfg)
+孔子学院除了对美国大学和学术机构进行渗透外，还从事工业和军事间谍活动、监视海外中国学生以及试图在台湾，新疆西藏问题上压制学术自由。中共政府的中美交流基金会支助的所谓“孔子课堂”的计划，向美国K-12(从小学一年级前的幼儿园算起到高中毕业班)校园派遣接受过中共国培训的教师，使用中共极权政府统一编制，审查的教程，并付费给授课老师，企图影响美国K-12小学至中学课程设置机构，让学校教授符合中共利益，使用经中共篡改或干预，美化中共内容的教科书。这就是中共 的惯用伎俩，从娃娃抓起，从小给美国孩子灌输美化中共，掩盖中共极权制度，歪曲新疆西藏历史的课程。一些美国学校，正在支持这些项目，中共国每年花费大量的资金来吸引美国学校的领导以支持孔子课堂项目。一些与孔子学院和孔子课堂项目有关的美国学校管理人员被邀请到中共国，受到中共国政府官员的欢迎。许多华人来到美国本是为了能够在不受中共政府干预的情况下享有信仰自由，独立的政治观点，学术自由，言论自由，以及让他们的孩子能在民主自由的学术氛围里成长。殊不知，在美国的中国语言、文化和历史课堂也没能逃脱中共的魔爪，使用着赞美中共的教师和教材。
 
-> We’ve led vigorously in the [#ArcticCouncil](https://twitter.com/hashtag/ArcticCouncil?src=hash&amp;ref_src=twsrc%5Etfw). Worked to make shipping lanes safer. Helped rural communities with power, medical care, and more. Safer Arctic = safer America. [#EffectiveMultilateralism](https://twitter.com/hashtag/EffectiveMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/QYp0oKxgPJ](https://t.co/QYp0oKxgPJ)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348366502521663491?ref_src=twsrc%5Etfw)
+2020年1月17日，美国第一所孔子学院–马里兰大学孔子学院宣布关闭，这是一个标杆事件。自美国国务院将孔子学院美国中心定为中共国家使团，即间谍机构以来，近20所孔子学院相继关闭。郭先生从爆炸革命一开始就一直在唤醒美国人民对中共邪恶本质的认识。在爆炸革命的影响下，美国的正义力量已经觉醒，开始清楚地认识到中共利用CCP病毒、安提法、黑命贵运动等，试图搞弱美国，搞乱美国，进而操纵美国大选，试图搞垮美国，控制世界。我们希望仍然允许孔子学院存在的美国小学、中学、大学的管理者，能够认识到中共极权对美国学校的严重危害，做出正确的判断和明智的选择。维护美国教育和学术自由、言论自由、尊重真实历史，确保美国校园里的学生能够不受中共操纵地接触到汉语和汉文化，莫让共产主义毒害美国的下一代。
 
+【参考资料】
 
-来源：[https://twitter.com/secpompeo/status/1348366502521663491?s=21](https://twitter.com/secpompeo/status/1348366502521663491?s=21)
-盖特链接：[https://gtv.org/getter/5ffbae4a87fabe2daf35edf9](https://gtv.org/getter/5ffbae4a87fabe2daf35edf9)
+[1] [http://english.hanban.org/](http://english.hanban.org/)
 
-* * *
+[2] [“Confucius Institute U.S. Center” Designation as a Foreign Mission – United States Department of State](https://www.state.gov/confucius-institute-u-s-center-designation-as-a-foreign-mission/)
 
-**【大选实况】1/10/2021 EST 3:50PM 蓬佩奥国务卿发推：**
+[3] [https://www.state.gov/the-chinese-communist-party-on-the-american-campus/](https://www.state.gov/the-chinese-communist-party-on-the-american-campus/)
 
-美国之音员工对广播美国最高级外交官的声音有怨言…？ 向国外推广美国的价值观，不正是我们应该做的事情。东部时间明天下午3点，请收看我关于美国伟大与美国第一的讲话。
+[4] [https://thefederalist.com/2020/08/25/american-universities-are-now-the-front-line-of-the-china-u-s-cold-war/](https://thefederalist.com/2020/08/25/american-universities-are-now-the-front-line-of-the-china-u-s-cold-war/)
 
+**【本文仅代表作者观点】**
 
-
-> Voice of America employees complaining about broadcasting … the voice of America’s most senior diplomat? Seems like exactly what we should be doing to promote American values abroad. Tune in to hear my remarks about American Greatness & America First tomorrow at 3pm ET. [pic.twitter.com/VJ8jsTUwkO](https://t.co/VJ8jsTUwkO)
-> — Mike Pompeo (@mikepompeo) [January 10, 2021](https://twitter.com/mikepompeo/status/1348371565491183617?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/mikepompeo/status/1348371565491183617](https://twitter.com/mikepompeo/status/1348371565491183617)
-盖特链接：[https://gtv.org/getter/5ffbaced87fabe2daf35ec81](https://gtv.org/getter/5ffbaced87fabe2daf35ec81)
-
-* * *
-
-**【大选实况】1/10/2021 EST 6:30 pm 蓬佩奥国务卿发推： 美国还解密了有关伊朗使用化学武器的信息。 #NoImpunity [go.usa.gov/xA5q5](https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf)**
-
-
-
-> The U.S. also declassified information on Iran's use of chemical weapons. [#NoImpunity](https://twitter.com/hashtag/NoImpunity?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/JFFC4MSGIX](https://t.co/JFFC4MSGIX)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348411800572764160?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/secpompeo/status/1348411800572764160?s=21](https://twitter.com/secpompeo/status/1348411800572764160?s=21)
-**美国解密有关伊朗使用化学武器报告下载：**[https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf](https://www.state.gov/wp-content/uploads/2020/06/2020-10C-Report-Unclassified-Version-for-H.pdf)
-
-* * *
-
-**By： 【秘密翻译组 G-Translators】**
-
-+1
+0

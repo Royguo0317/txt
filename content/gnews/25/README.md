@@ -1,33 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/10/2021 杀害美国人的CCP病毒是来自一个生物武器实验室吗？&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/738548/)
+## 写在首个中共黑警节
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/738684/)
 
-**【大选实况】1/10/2021 EST 8:50AM Peter Navarro 推文**：
+*加拿大多伦多枫叶农场 文锦*
 
-杀害美国人的CCP病毒是来自一个生物武器实验室吗？它是用遗传工程技术制造出来的吗？ 当中共官员删除武汉实验室的关键数据时，这种新的掩盖方式带来了恐惧（附文：每日邮报网络文章）
-![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-66.jpg)来源：[https://twitter.com/realpnavarro/status/1348265980913446914?s=21](https://twitter.com/realpnavarro/status/1348265980913446914?s=21)
-盖特链接：[https://gtv.org/getter/5ffb5a6787fabe2daf358d7c](https://gtv.org/getter/5ffb5a6787fabe2daf358d7c)
+*校对 小鸥 发稿 文锦*
+![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图381.png)图片来源： Twitter
+2021年1月10日这天，首个中共黑警节，国内媒体齐齐给黑警唱赞歌，内容让人鸡皮疙瘩掉一地。
 
-**【大选实况】 1/10/2021 EST 11:00AM Zerohedge 推文：**
+如果您出国前到派出所办手续，户籍科民警脸难看、事难办的情形令人印象深刻，但据说这态度在公安系统还是最好的。如果您被偷、被抢，危急时刻拨打110，不出警的情况数不胜数，就算出警，可能更多就是做做样子。去年12月4日，一位安徽安庆的女孩就因警察见死不救而溺亡。
 
-Natelson： 弹劾川普总统没有任何宪法依据。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-67.jpg)来源：[https://twitter.com/zerohedge/status/1348298707003965442?s=21](https://twitter.com/zerohedge/status/1348298707003965442?s=21)
-盖特链接：[https://gtv.org/getter/5ffb5c7987fabe2daf358f9a](https://gtv.org/getter/5ffb5c7987fabe2daf358f9a)
+众所周知，在中共国，警察就是中共的狗腿子，欺压百姓、无恶不作。酷刑、逼供在公安机关是家常便饭，被黑警虐待致死的案例层出不穷。还有报道称黑警甚至参与了令人发指的强摘器官、建立新疆集中营等。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图386.png)特警押送新疆集中营人员 图片来源： YouTube
+党媒称建立警察节目的有二：一是为激励全警履行党和人民赋予的新时代使命任务；二是凸显国家对这支队伍因守护人民利益而英勇付出的肯定。
 
-**【大选实况】 1/10/2021 EST 11:01AM Raheem Kassam 推文**：
+正话反听，中共意思就是警察为了维护党的利益已经臭名远扬，得设个节日利用宣传机器加大给百姓洗脑的力度，特别是中共命令警察利用疫情镇压百姓、怨声载道的当下。
 
-国家情报总监办公室的一份新的报告揭示，那些官员对中共干涉2020大选不作为的原因是“为了避免支持川普的政策”。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-68.jpg)来源：[https://twitter.com/raheemkassam/status/1348298964391636993?s=21](https://twitter.com/raheemkassam/status/1348298964391636993?s=21)
-盖特链接：[https://gtv.org/getter/5ffb5d0f87fabe2daf35903c](https://gtv.org/getter/5ffb5d0f87fabe2daf35903c)
+**目前中共疫情肆虐之时，公安机关主要作用就是镇压百姓，根本不是救人**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/p2636101a933138264-ss.jpg)图片来源： 看中国
+例如，湖北省公安厅在2020年2月21日第30期、2月22日第31期的“疫情防控工作简报”中，就披露公安部门是中共“疫情防控阻击战的主力军、生力军”，其主要任务是“做好社会层面稳控、重点部位安保”。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/湖北省公安厅2月21日第30期疫情防控工作简报文件截图.jpg)湖北省公安厅2月21日第30期“疫情防控工作简报”文件截图 图片来源： 大纪元
+随着中共病毒的不断蔓延，公安机关对百姓的镇压愈演愈烈。
 
-**【大选实况】1/10/2021 EST 11:25 am ZeroHedge推文**：
+**中共黑警利用众多科技限制自由、奴役百姓**
 
-亲中派当局封杀香港抗议网站的同时也是对美国大型科技公司自身的打击。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-69.jpg)来源：[https://twitter.com/zerohedge/status/1348304996631261185](https://twitter.com/zerohedge/status/1348304996631261185)
-盖特链接：[https://gtv.org/getter/5ffb5e8787fabe2daf3591e3](https://gtv.org/getter/5ffb5e8787fabe2daf3591e3)
+中共与全球黑暗势力勾结，偷了不少先进科技。警察不是利用科技造福人类，而是加紧管控，想上演现实版的《1984》。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/6ca2-iprtayz8122943.jpg)图片来源： 新浪
+例如：杭州科技民警研发管控百姓行踪的健康码；南京公安研究院推出“宁依家”，“以锁控房、以房管人”；智慧客运管理系统包含人证票合一比对设备及违禁品识别设备；“犀镜”智能眼镜结合数据融合、人脸识别、车辆识别、身份识别等多种算法，进行本地分析及预警推送……
 
-By： 【秘密翻译组G-Translators–北美组】
+中共不仅在内地利用警察镇压百姓，昔日声誉良好的香港皇家警察被中共收入囊中后逐步也变为嗜血魔警，自去年反送中运动以来，残害无数民主义士。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图378.png)香港警察在街头暴力压制和平示威者 图片来源：Getty Images
+经过爆料革命的洗礼，大家已经知道连身为公安部副部长的孙力军都是盗国贼中的一员，生活淫乱奢靡、以鱼肉百姓为乐。警察头子如此嘴脸，上行下效，还能指望百姓向警察“致敬”？党媒也是厚脸皮，黑的楞给抹成白的，还让备受欺压的百姓拍手叫好！真是天欲其亡必令其狂！
 
-+1
+*参考链接：*
+
+*[中共怎样防疫？只管维稳 生死由命](https://www.secretchina.com/news/gb/2020/02/28/924577.html)*
+
+*[全国都在用的健康码，原来出自他们之手](https://new.qq.com/rain/a/20210110A064R700)*
+
+*[接警不出，屡酿惨祸](https://news.sohu.com/1/0504/07/subject220260775.shtml)*
+
++4
