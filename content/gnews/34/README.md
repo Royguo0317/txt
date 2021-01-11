@@ -1,114 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/10/2021 条约只有在各方都遵守的情况下才有用; 必须用行动来维持条约&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/739514/)
+## 习近平即将迎来“至暗时刻” 特朗普“轻舟已过万重山”
+` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/739485/)
 
-**【大选实况】1/10/2021 EST 4:00 蓬佩奧国务卿 推文：**
+**作者：塞****缪尔**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/image0-54.jpg)
+元旦以来的官媒报道和往常显得有所不同。原来是“打开电视不用看，里面坐着习近平”，最近十几天在中国官媒上习近平不仅不露脸，观众们连“领袖玉音”都听得少了。美国时间1月10日，海外华人自媒体路德社进行了精彩“剧透”。
 
-这是我遵循的另一项外交政策口号#美国优先：条约只有在各方都遵守的情况下才有用。
+**习近平吃火锅****“****我****们都知道用什么底料****”**
 
+“由于担忧自身的安全，习近平索性连一天一两条的指示都节省了。”路德表示，习近平现在非常恐惧。路德社报道习近平的身体状况以来，习近平大为吃惊，以至于他躲到“老鼠洞”里以后，只通过极少数人和外界联系。最近几天他的消息仍然源源不断地从身边人传给路德社，这让习近平更加疑神疑鬼。
 
+分析人士指出，虽然习近平对外发布指示的频率很低**，但他信得过的人很少，“用一个少一个”**，几乎已经无人可用。路德社获得的情报也显示，习近平的个别亲信已经开始背叛他。“习近平这种独裁者不希望人民了解真实的信息，但是他必须处在信息的中央。他们用金钱收买的美国那些主流媒体的新闻，他是不看的。”分析人士说。
 
-> Here's another foreign policy mantra I've followed to put [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw): Treaties are only useful if all parties adhere to them. [pic.twitter.com/appNKEBfnq](https://t.co/appNKEBfnq)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348374054764486660?ref_src=twsrc%5Etfw)
+路德表示，习近平并不信任下属提供的汇报，为了了解外界真相，**命令手下给他安装了最原始的射频电视，用途很可能是为了观看路德社和班农作战室的节目**，以获取真实情况。“实际上，他的射频电视也不安全，训练有素的情报人员通过射频电视线路，照样能查找到习近平真实的藏身地点。”路德社嘉宾墨博士说。
 
+“之前我们了解过，正义力量打算对习近平实施斩首作战，但后来又决定尽量活捉他。**活捉他的一个重要目的是为了防止他利用朝鲜对韩国发动攻击，造成平民大量伤亡。”**路德说。
 
-来源：[https://twitter.com/secpompeo/status/1348374054764486660?s=21](https://twitter.com/secpompeo/status/1348374054764486660?s=21)
-盖特链接：[https://gtv.org/getter/5ffbae8687fabe2daf35ee41](https://gtv.org/getter/5ffbae8687fabe2daf35ee41)
+路德用“左手六、右手七、左肩高、右肩低、左脚画圈、右脚踢”来形容习近平最近的身体状况。在中国大陆，这句略带侮辱性的话常被用来形容癫痫病人。**“习近平如果吃火锅，用的什么底料我们都知道。”**路德社说。
 
-* * *
+**特朗普支持率上升到****51%**
 
-**【大选实况】1/10/2021/ EST 4:30 pm 蓬佩奧国务卿 推文： **
+**“不用提美国大选了，等结果就是了。”**路德在最近的直播中暗示，美国总统大选已尘埃落地，特朗普连任将是大概率事件。
 
-《 中导条约》有两个当事方。 奥巴马总统在俄罗斯作弊建立他们自己的系统时却限制了我们的军队，从而把美国人的生命置于危险中。当两方条约只有一方遵守时，这就叫做愚蠢。
+“人生大赢家”特朗普近年来经历了他人生中的至暗时刻。2020年的秋天，包括他在内的一家四口感染新冠病毒，他的推特账号频频被封，连他的小儿子发推特信息为父亲辩护都迅速被推特噤声。大选中，特朗普更是厄运连连，他提名的大法官没有站住他这一边，副总统彭斯背叛了他，共和党建制派对他横加指责，主流媒体每天都在嘲笑攻击他。他马不停蹄地演讲、拉票，大选结果却被剽窃得让他怀疑人生。国会最近发生的冲突、流血让反对派给他戴上了独裁者的帽子，连中国的支持者们也对他表示失望、难过和怀疑。令人欣慰的是，特朗普挺过来了。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Peters.jpg)
+从特朗普的人生轨迹来看，他和英国前首相丘吉尔有着相似的经历和性格。丘吉尔当选首相是英国执政的保守党和工党妥协的结果。他并不被人待见，内阁成员不愿意听他指挥，连英国国王也讨厌他。他参政以来的政绩一塌糊涂，在一战中指挥的加里波第之战一次性损失士兵两万人。**他虽然高喊与纳粹抗争到底，但具体怎么做，胜算有多大，他心里也没底。最危难的时候，他偷偷摸摸地给美国总统罗斯福打电话，以近乎哀求的口吻请求美国出动军舰和飞机，把困在敦刻尔克的英军撤出来，遭到罗斯福的拒绝，这时的他几近崩溃。**最难过的时候，他甚至会一个人躲在厕所里抽烟，或者坐在地下室里关掉灯，没有人看见，没有人安慰。
 
+丘吉尔没有退缩，当他在国王的启发下走进地铁，与民众交谈时，他发现民意站住他这边，无论妇孺老少，皆愿与纳粹一战，这让他深感鼓舞。于是，他发表了那篇著名的演讲**《热血、泪水和汗水》**，并带领英国战胜了纳粹。
 
+我们从特朗普2017年发表的《永不放弃》的演讲中，可以窥见特朗普的性格同样顽强。在演讲中，他说：“在人生这条路上，你会发现世界不总是公平的。你会发现你要承受，你本不应该承受的磨难，经历并不合理的挫折。但你要咬紧牙关，去抗争！抗争！抗争！永远，永远、永远不要放弃，不要认输，不要后退。**不要停止做你心知是正确的事情。**世上一切值得做的事情只要是对的事情，都必定要经历重重磨难。而且你所抗争的事情越正义，你就会遇到越险恶的阻力。你的心中铭刻着奉献，牺牲和忠诚。那么你现在就要走出去，将你的希望和梦想，变成行动的现实。一个败坏了的集团越认为你是错误的，你就越应该坚信，自己应该勇往直前。只要你对自己的信念充满自豪，有勇气实践自己的正信，对神坚定不移，你就不会失败。”
 
-> There were two parties to the INF Treaty. President Obama risked American lives by restricting our military while Russia cheated and built up its systems. When only one party to a two-party treaty is complying, that’s called stupid. [pic.twitter.com/Gb6jaaz3Xe](https://t.co/Gb6jaaz3Xe)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348381601692962816?ref_src=twsrc%5Etfw)
+如果特朗普赢得了连任，强大的民意支持、智囊团的非凡助力以及他绝不认输的性格是重要因素。最新的拉斯穆森民意调查显示，特朗普的支持率在1月6日华盛顿百万民众抗议活动后再次上升，已经达到51%的历史新高。据Newsmax电视台报导，拉斯穆森是2020年美国大选中最准确的民调机构之一。统计显示，有48%的民众认可特朗普总统的工作表现。Newsmax引述一位消息人士的话说，数月以来，美国人对许多发生在大城市的骚乱和纵火感到十分厌恶，但主流媒体对此什么也没做，但这次却在国会事件上大做文章。消息人士说：**“无论发生什么，人们还是爱特朗普。”**
 
+经常强调“四个自信”的习近平，如今却迎来了暮年的“至暗时刻”。他接受了人生中**第五次脑部动脉瘤手术**，部分语言功能已经丧失，可能连走路都不再步伐矫健。他躲在地堡里，身边没有几个值得信任的人，睡觉都不踏实，也听不到山呼海啸般的欢呼和吹捧。更令他不安的是，美国国家安全顾问奥布莱恩近日警告，美国将会考虑更多手段来回应中共“不负责任”以及“有危害性”的想法。美国众议员努尼斯则透露，十天内可能公布武汉病毒实验室真相。特朗普的高参纳瓦罗也刚刚使用了“CCP病毒”这一词汇，这更让疫情的始作俑者习近平寝食难安，如果他能看到这条消息的话。习近平没有深厚的教育背景，对现代文化知识知之甚少，他的性格中狡猾、凶残的成分不少，但缺乏顽强、坚毅和真正的信仰。一旦国际正义力量发起对他的打击，他不可能像丘吉尔和特朗普一样带领全国军民战斗，只会发出和卡扎菲、齐奥塞斯库一样的哀鸣。
 
-来源：[https://twitter.com/secpompeo/status/1348381601692962816?s=21](https://twitter.com/secpompeo/status/1348381601692962816?s=21)
-盖特链接：[https://gtv.org/getter/5ffbaee287fabe2daf35eea5](https://gtv.org/getter/5ffbaee287fabe2daf35eea5)
-
-* * *
-
-**【大选实况】1/10/2021/ EST 5:00 pm 蓬佩奧国务卿 推文：**
-
-我们的前任总统根据《 中导条约》单方面解除了我们的武装。 我们说“够了”，并离开了使美国无法防御的单方面协议。 #AmericaFirst
-
-
-
-> Our previous President unilaterally disarmed under the INF Treaty. We said “enough” and left the one-sided deal that made America defenseless. [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/bB5t0fckRx](https://t.co/bB5t0fckRx)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348389151926751232?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/secpompeo/status/1348389151926751232?s=21](https://twitter.com/secpompeo/status/1348389151926751232?s=21)
-盖特链接：[https://gtv.org/getter/5ffbaf1b87fabe2daf35eee8](https://gtv.org/getter/5ffbaf1b87fabe2daf35eee8)
-
-* * *
-
-**【大选实况】1/10/2021 EST 5:30 pm 蓬佩奧国务卿 推文： **
-
-在过去的四年中，美国大胆地揭露了未能履行《化学武器公约》规定义务的国家。
-
-
-
-> Over the last four years, the U.S. has boldly called out countries who have failed to meet their obligations under the Chemical Weapons Convention. [pic.twitter.com/FoiIM0bcLZ](https://t.co/FoiIM0bcLZ)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348396701392859136?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/secpompeo/status/1348396701392859136?s=21](https://twitter.com/secpompeo/status/1348396701392859136?s=21)
-盖特链接：[https://gtv.org/getter/5ffbaf5d87fabe2daf35ef3a](https://gtv.org/getter/5ffbaf5d87fabe2daf35ef3a)
-
-* * *
-
-**【大选实况】1/10/2021 EST 6:00 pm 蓬佩奧国务卿 推文： **
-
-必须用行动来维持条约。 阿萨德对自己的人民施以毒气后，川普总统对叙利亚发动了袭击。 我们是有真正的红线的。
-
-
-
-> Have to back up treaties with action. President Trump took out targets in Syria after Assad gassed his own people. We have real red lines. [https://t.co/PXVSEep0xz](https://t.co/PXVSEep0xz)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348404257196797958?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/secpompeo/status/1348404257196797958?s=21](https://twitter.com/secpompeo/status/1348404257196797958?s=21)
-盖特链接：[https://twitter.com/secpompeo/status/1348404257196797958?s=21](https://twitter.com/secpompeo/status/1348404257196797958?s=21)
-
-* * *
-
-**【大选实况】1/10/2021 EST 7:00 pm 蓬佩奧国务卿 推文： **
-
-条约与结盟一样，可以一直持续到失效。必须始终不断对其有效性进行评估。
-
-
-
-> Treaties, like alliances, can outlast their sell-by-date. Always have to keep evaluating their usefulness. [pic.twitter.com/up8Qtj6gn8](https://t.co/up8Qtj6gn8)
-> — Secretary Pompeo (@SecPompeo) [January 11, 2021](https://twitter.com/SecPompeo/status/1348419350370398209?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/secpompeo/status/1348419350370398209?s=21](https://twitter.com/secpompeo/status/1348419350370398209?s=21)
-盖特链接：[https://gtv.org/getter/5ffbb0b687fabe2daf35f08c](https://gtv.org/getter/5ffbb0b687fabe2daf35f08c)
-
-* * *
-
-**【大选实况】1/10/2021 EST 12:00 pm 蓬佩奧国务卿 推文：**
-
-#有效的多边关系 意味着重新激发活力的四方关系： 美国、澳大利亚、印度及日本之间的四方合作关系 – 思维相似、价值观一致，有益推动自由开放的印度洋-太平洋海域。
-
-
-
-> [#EffectiveMultilateralism](https://twitter.com/hashtag/EffectiveMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) means a reinvigorated Quad: like-minded values-based partnership among the U.S., Australia, India, and Japan, advancing a free & open Indo-Pacific. [pic.twitter.com/Rmqs3nTBTy](https://t.co/Rmqs3nTBTy)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348313657734811654?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1348313657734811654](https://twitter.com/SecPompeo/status/1348313657734811654)
-盖特链接：[https://gtv.org/getter/5ffbb39587fabe2daf35f384](https://gtv.org/getter/5ffbb39587fabe2daf35f384)
-
-
-
-#### **By： 【秘密翻译组 G-Translators】**
-
-+1
++3

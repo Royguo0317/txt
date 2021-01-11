@@ -1,28 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 再度被打压，台湾的两个国际医事组织名称被迫由台湾改名为中华台北
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/739382/)
+## 法界人士：美宪法言论自由保障仅针限制政府不得审查言论，推特等民间企业不受限制。真的是这样吗？
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/739469/)
 
-台灣農場 台灣米粉
+zhong
 
-根据相关报导，国际医事放射师联盟（ISRRT）已在其网站上将台湾(Taiwan)更改为中华台北(Chinese Taipei)。ISRRT在2020年12月22日给台湾两个组织(台湾医事放射学会、台湾医事放射师公会全国联合会)的一封信中解释并要求更改名称，并称要求来自于世界卫生组织(WHO)。
+新聞報導連結[https://news.ltn.com.tw/news/world/breakingnews/3407214](https://news.ltn.com.tw/news/world/breakingnews/3407214)
 
-根据ISRRT 信件中表示“我们希望您知道您的两个组织都对ISRRT有价值。我们认识到您已经是创始组织的成员，并且您的组织在ISRRT董事会中担任过领导人。知道这对我们双方都是一个非常艰难的决定，但是我们必须满足WHO的规定，才能继续保持非国家组织的“官方关系”地位。” “我们一直在努力寻找可能的解决方案，我们相信我们已经提出了一种解决方案，考量会员资格、国家会员资格以满足世界卫生组织的章程、法规、政策和惯例，我们将 “Taiwan-TWSRT”和“ Taiwan-TAMRT”更改为“Chinese Taipei TWSRT”和“Chinese Taipei TAMRT”。这是用于列出参加奥运会仪式和运动会的国家的类似术语。” 该信得出结论，这一变化将使ISRRT保持其与世界卫生组织的正式关系。
+（僅個人觀點）
 
-放射师公会全联会理事长杜俊元表示， TWSRT和TAMRT已加入ISRRT长达50年，都是元老会员。原先在官网上的会员名分别为“Taiwan-TWSRT”和“Taiwan-TAMRT”，每年也都会定期和会员国代表开会、进行交流。但是就在去年年初，ISRRT突然通知，称受到WHO压迫，认为台湾不算是一个国家，要求把上述2会员名称的“台湾”改为“中国台湾”。但是理解我方不会同意，所以想出折衷方案，改参考奥运参赛名称、改名为“中华台北”。
+美国总统川普的帐户遭各大社群媒体停用，引发社群媒体公司是否有涉及侵害美国宪法保障的言论自由等争议出现。
 
-理事长杜俊元接着表示，我方完全无法接受这样的结果，认为ISRRT趁在疫情期间、国际间无法进行交流之际强行改名。连我方想要见面沟通、争取转圜的余地都没有。且目前中共并非ISRRT会员，估计这种突袭式的更名，是要为之后中共的加入埋下伏笔。
+对此，新闻报导显示，有法界人士主张，宪法对言论自由保障目的是限制政府不可以任意行使公权力限制人民的言论自由。而限制方式范围广大，其中最典型、最广为知悉的就是事前审查制。
 
-台湾放射科医生团体和台湾外交部（MOFA）都对该组织提出了抗议，但ISRRT迄今尚未做出回应。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/圖片-1-14.png)
-评论： 尽管台湾在这次COVID-19的全球战役上表现出杰出的医疗品质以及医学管控能力，中共继续在各大国际场合压迫台湾的空间。也仅管台湾加入国际放射线学家和放射技术专家学会(ISRRT)已超过50年，甚至是创始会员，但是ISRRT仍然将两个台湾会员的名称(Taiwan-TWSRT, Taiwan-TAMRT)强行改为中华台北(Chinese Taipei TWSRT, Chinese Taipei TAMRT)。只要中共政权还在，世界各地就没有人权、世界就没有正义。现在这个时刻已经是正义与邪恶的对决，最后绝对是正义获胜，一月二十日也必定是川普总统宣誓就职。
+举例而言，推特对用户所发布的言论在公开前，先行内部审核，并且筛选掉特定立场的言论，即属于对言论自由的事前审核机制。
 
-參考新聞
-[https://tw.appledaily.com/life/20210110/U62YYB7LCJERRBK7FOHAONX7QY/?utm\_source=facebook&utm\_medium=social&utm\_campaign=twad\_article\_share&utm\_content=share\_link&fbclid=IwAR3DLbfrpcDMYEsdBTyyNpOoI9TVHy9jTNlF6ABtrnw3unXc5YVXEkE9HhY](https://tw.appledaily.com/life/20210110/U62YYB7LCJERRBK7FOHAONX7QY/?utm_source=facebook&amp;utm_medium=social&amp;utm_campaign=twad_article_share&amp;utm_content=share_link&amp;fbclid=IwAR3DLbfrpcDMYEsdBTyyNpOoI9TVHy9jTNlF6ABtrnw3unXc5YVXEkE9HhY%20%20https://taiwanenglishnews.com/legislator-slams-who-for-acting-as-thugs-for-ccp-after-international-radiologist-group-ordered-to-list-taiwan-members-under-taiwan-china/%20%20https://www.ftvnews.com.tw/news/detail/2021110W0065?fbclid=IwAR1tGjsSy2gPebnL4g9GWT2tyDEpHtN4ZROLkjQYpCxge2knn0UmMT67Ze4)
+又若新闻所报导的法界人士主张为属实，真有人主张民间公司应不受到宪法对基本权保障的限制，而可以任意的筛选、删除特定立场的言论，那这主张是否真的合理？
 
-[https://taiwanenglishnews.com/legislator-slams-who-for-acting-as-thugs-for-ccp-after-international-radiologist-group-ordered-to-list-taiwan-members-under-taiwan-china/](https://tw.appledaily.com/life/20210110/U62YYB7LCJERRBK7FOHAONX7QY/?utm_source=facebook&amp;utm_medium=social&amp;utm_campaign=twad_article_share&amp;utm_content=share_link&amp;fbclid=IwAR3DLbfrpcDMYEsdBTyyNpOoI9TVHy9jTNlF6ABtrnw3unXc5YVXEkE9HhY%20%20https://taiwanenglishnews.com/legislator-slams-who-for-acting-as-thugs-for-ccp-after-international-radiologist-group-ordered-to-list-taiwan-members-under-taiwan-china/%20%20https://www.ftvnews.com.tw/news/detail/2021110W0065?fbclid=IwAR1tGjsSy2gPebnL4g9GWT2tyDEpHtN4ZROLkjQYpCxge2knn0UmMT67Ze4)
+宪法对人民的基本权保障，目的是为防止来自国家以公权力的任意侵害，的确具有“针对国家特定的本质”。但基本权保障并非绝对，即便宪法保障人民言论自由，这个保障还是有限度、有范围的。若超出可容忍范围，还是允许公权力以“合理的手段”限制言论，而不会侵害宪法保障人民基本权的核心意旨。
 
-[https://www.ftvnews.com.tw/news/detail/2021110W0065?fbclid=IwAR1tGjsSy2gPebnL4g9GWT2tyDEpHtN4ZROLkjQYpCxge2knn0UmMT67Ze4](https://tw.appledaily.com/life/20210110/U62YYB7LCJERRBK7FOHAONX7QY/?utm_source=facebook&amp;utm_medium=social&amp;utm_campaign=twad_article_share&amp;utm_content=share_link&amp;fbclid=IwAR3DLbfrpcDMYEsdBTyyNpOoI9TVHy9jTNlF6ABtrnw3unXc5YVXEkE9HhY%20%20https://taiwanenglishnews.com/legislator-slams-who-for-acting-as-thugs-for-ccp-after-international-radiologist-group-ordered-to-list-taiwan-members-under-taiwan-china/%20%20https://www.ftvnews.com.tw/news/detail/2021110W0065?fbclid=IwAR1tGjsSy2gPebnL4g9GWT2tyDEpHtN4ZROLkjQYpCxge2knn0UmMT67Ze4)
+举例：郭3秒、馆长3公分、郭强奸等用语。这些言论恐构成刑事犯罪，故不受宪法言论自由保障。又或者退而言之，这些恐构成刑事犯罪的言论，仍属于宪法言论自由保障范围，但国家仍可基于正当合理目的（保障名誉权等），以适当手段予以限制（刑法明定禁止该言论）。
+
+然而，基于上述可推导出基本权保障是针对国家的本质，美国宪法保障人民言论自由、其他基本权利不受来自政府的恣意侵害。
+
+**难道，民间公司就可以？**
+
+再者，从美国宪法对言论自由保障的目的，可能是为确保资讯可以自由流通，达成“公意形成、真理越辩越明（追求真理）、人民有权获取充足资讯来监督政府”。
+
+简言之，宪法保障言论自由，就是追求“言论得自由流通”。再透过言论自由流通来建构民主体制的发展，因为言论得自由流通，所以人民可以质疑政府、也可以为自己发生促进社会公共意见形成，而社会公共意见形成也是监督政府一种重要手段。
+
+因此，言論自由保障對於民主制度建構，是不可或缺的。
+
+那对于民主不可或缺的制度“言论自由保障”，政府不得任意限制、侵害、剥夺，难道一间为了营利目的而成立的民间公司就是可以？
+
+社群媒体为控制社会舆论走向，设定演算法，删除特定立场的言论，并凸显特定立场的言论，都会直接影响整体社会公共意见的走向。而言论自由最重要的就是保持言论、资料自由流通，借此建构出同时兼具对立与融合的社会互动环境。
+
+在过去，科技不够发达时代，散布言论、思想的管道，无非报纸、新闻、广播电视等管道，而这些资源基于有限性，往往被政府所控管。所以，过去宪法对基本权保障，往往着重于避免公权力任意侵害。
+
+但如今，科技发达，人民有成千上百万种散布言论的方式、管道。而网路、社群媒体等占了举足轻重的地位。可得而知，由“民间公司”所运营的“社群软体”，如今已经是形成公共意见的重要管道。岂有不受宪法拘束的道理？
 
 0

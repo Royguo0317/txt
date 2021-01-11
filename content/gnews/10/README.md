@@ -1,45 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欲盖弥彰 &#8211; 川普总统应解密更多文件
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/739807/)
+## 媒体获悉彭斯同意出席乔·拜登的就职典礼
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/739888/)
 
-新闻来源：美国第一新闻网（OANN）｜日期：2021年1月9日
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭ССР
 
-翻译、简评：Dreamer文童｜校对：感恩｜审核：万人往｜PAGE：玄天生
+编辑上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/14ba14a65d45.jpg)rossaprimavera.ru
+1月10日，媒体报道，现任美国副总统迈克尔·彭斯计划出席将于1月20日举行的所谓当选总统乔·拜登的就职典礼。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/HUK_Poster_18.jpg)
+早些时候，Politico援引三个与彭斯关系密切的消息来源报道称，副总统可能参加乔·拜登的就职典礼，以表明对和平权力移交的支持。拜登也表示，他欢迎川普出席他的就职典礼。
 
-**简评：**
+当选总统的就职典礼定于1月20日。此前，美国总统川普表示，他不打算出席就职典礼。路透社写道，川普计划在就职典礼前前往他在佛罗里达州马拉戈的庄园。
 
-周五，川普总统私人律师朱利安尼在参加班农先生的《战斗室》节目时透漏，川普总统已经解密一些文件，但应该解密更多文件，包括亨特·拜登的“三块硬盘”和通俄门调查。巧合的是，川普总统推特账户在1月8日被永久关闭。也就是说，在川普总统即将解密一些重大敏感事件时，社交媒体平台将其账号永久封杀。大科技公司这种无理由封杀言论的方式，已经与中共毫无差别，妄想通过扼杀网络发声渠道，阻止真相的曝光。
+美国2020总统大选于11月3日结束，由于创纪录的高投票率和近1亿人通过邮寄投票，导致选票的计数被所谓推迟。
 
-三年前，发起灭共的爆料革命、郭文贵先生被美国各大社交媒体平台集体封杀。这非但没有阻止爆料革命的继续，反而促成GTV和GNEWS平台的诞生。短短几个月时间，就已经在美国新闻类网站排名中进入前50名。川普总统与爆料革命有一致的目标，那就是灭共，并且排干与中共有利益勾兑的美国沼泽地。同样地，川普总统现在也遭遇到与郭文贵先生当年同样的待遇。但这一切并不能阻止川普总统继续战斗，反而让支持他的八千万美国民众彻底看清大科技公司的邪恶本质。一个推特账户的关闭怎能阻止天选之子战斗的步伐？在这最后不到十天时间内，川普总统必定突破包围圈，成为第四十六任美国总统。
+12月中旬，选举团批准了投票结果，根据投票结果，拜登将成为新的国家元首。川普总统拒绝承认目前的选举结果，明确表示此次美国总统大选在投票和计数期间存在许多违规行为，以及他的选票被盗，需要重新计票，排除虚假选票。
 
-#### 原文翻译
+1月6日，参议员计划在华盛顿特区国会大楼批准选举人投票结果，但由于川普总统的支持者闯入其中，听证会被打断。川普总统的支持者与警方发生争斗，冲突造成五人死亡，包括一名警察。民主党人随后提交了一份弹劾川普总统草案，声称川普参与了煽动叛乱。
 
-## 朱利安尼：川普总统应解密更多文件
+此外，社交网络Facebook、Instagram和Twitter屏蔽了现任美国总统川普的帐户。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gnjFaBMq9HyAN/images/df400492-4578-440a-8156-6e0dabaf084d.jpg?asset_id=03fc7014-c0cf-43e9-a993-9c6547c1a352&amp;img_etag=%22bf0fef7d6902ef14d0c7f431f97481f2%22&amp;size=2560)](https://spark.adobe.com/page/gnjFaBMq9HyAN/images/df400492-4578-440a-8156-6e0dabaf084d.jpg?asset_id=03fc7014-c0cf-43e9-a993-9c6547c1a352&amp;img_etag=%22bf0fef7d6902ef14d0c7f431f97481f2%22&amp;size=1024)*2016年7月18日，在俄亥俄州克利夫兰市Quicken Loans体育馆，前纽约市市长鲁迪·朱利安尼在共和党全国代表大会首日上台发表演讲时竖起大拇指。（Alex Wong拍摄照片/Getty Images）*
+彭斯可能参加乔·拜登的就职典礼不足为奇，特别是在1月6日之前像外界所评论的对川普总统的背叛不仅仅是彭斯个人的背叛，这是在美国总统大选中每个人对双方实力悬若不同的考量而已。
 
-鲁迪·朱利安尼（Rudy Giuliani）正敦促总统解密政府文件。
+事情发展至今，2020美国总统大选已经不再是美国内部两党的较量，而是世界正义与黑暗的决斗，虽然美国官方已经宣布乔·拜登当选美国总统，但这不是最终的结果，川普总统拥有7500万美国民众的支持，这些人是永远不会放弃并会为真相、正义以及拿到真实选举结果而斗争下去。
 
-朱利安尼周五作为嘉宾参加白宫前首席战略师史蒂夫·班农（Steve Bannon）的《战斗室》（War Room）播客时发表这一言论。朱利安尼在讨论可能的解密工作时，暗指亨特·拜登（Hunter Biden）笔记本电脑丑闻和通俄门调查。
+川普总统一定能够取得最终胜利！
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gnjFaBMq9HyAN/images/275c55f0-5d2b-4cb0-86f8-2cb7e49aa93b.png?asset_id=bdde46fe-9622-45a7-96bd-9b09662fbe0d&amp;img_etag=%22d9f708ec8b35154894e33e8b4d2b54b4%22&amp;size=1024)](https://spark.adobe.com/page/gnjFaBMq9HyAN/images/275c55f0-5d2b-4cb0-86f8-2cb7e49aa93b.png?asset_id=bdde46fe-9622-45a7-96bd-9b09662fbe0d&amp;img_etag=%22d9f708ec8b35154894e33e8b4d2b54b4%22&amp;size=1024)
+参考链接：https://www.rbc.ru/rbcfreenews/5ffa603c9a79470fe4455854
 
-这位前市长驳斥了解密文件会对国家安全构成威胁的说法。“到目前为止，已经有很多文件被解密，”朱利安尼说。“我再说一次，这是法西斯战术。”
-
-10月份，川普总统解密了去年通俄门调查的相关文件。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/gnjFaBMq9HyAN/images/6d547165-9662-4dcf-8857-f2d6f4a86c78.png?asset_id=683a6457-14cb-4993-9260-d50dbf694edb&amp;img_etag=%22f8e181da4f06ba2a02f62af9dda9cb03%22&amp;size=2560)](https://spark.adobe.com/page/gnjFaBMq9HyAN/images/6d547165-9662-4dcf-8857-f2d6f4a86c78.png?asset_id=683a6457-14cb-4993-9260-d50dbf694edb&amp;img_etag=%22f8e181da4f06ba2a02f62af9dda9cb03%22&amp;size=1024)约翰·卡迪罗（John Cardillo）@johncardillo有趣的是，就在川普被推动解密一切时，他被网络平台普遍禁声，不是吗？[原文链接](https://www.oann.com/giuliani-president-trump-should-declassify-more-documents/)
-
-编辑：【喜马拉雅战鹰团】- [点击spark adobe版](https://spark.adobe.com/page/gnjFaBMq9HyAN/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/user/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/HHS_QRCode_V2.jpg)
 0
