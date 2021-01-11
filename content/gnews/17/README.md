@@ -1,45 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欲盖弥彰 &#8211; 川普总统应解密更多文件
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/739807/)
+## 河北毒株测序结果：病毒或已潜在传播了相当长时间？
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/739970/)
 
-新闻来源：美国第一新闻网（OANN）｜日期：2021年1月9日
+编辑：喜马拉雅农场联盟新西兰奥克兰伊甸农场
 
-翻译、简评：Dreamer文童｜校对：感恩｜审核：万人往｜PAGE：玄天生
+编者：Stephen(文文)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/HUK_Poster_18.jpg)
+中共国疾控中心1月6日发布了河北两株病毒的测序结果（一例石家庄，一例邢台）。这两例毒株的同源性很高（7个相同的SNP位点，及14个相同的核苷酸变异），且两人均到过河北省儿童医院，所以石家庄、邢台两地疫情来源应一致。
 
-**简评：**
+诡异的是河北这两例毒株的基因组特征很独特，不同于世界各地近期流行的毒株。从基因组比较的结果来看，亲缘关系最近的是俄罗斯在7月测序的毒株。虽然这是亲缘关系最近的，但也仅有10个相同的变异位点，应该说还不是很亲。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/image0-85.jpg)
+在这10个相同的变异位点中，有3个是独特的，也就说只有河北、俄罗斯毒株特有的，其他地方毒株没有。而从这一点来看，河北、俄罗斯毒株同源的可能性很大。
 
-周五，川普总统私人律师朱利安尼在参加班农先生的《战斗室》节目时透漏，川普总统已经解密一些文件，但应该解密更多文件，包括亨特·拜登的“三块硬盘”和通俄门调查。巧合的是，川普总统推特账户在1月8日被永久关闭。也就是说，在川普总统即将解密一些重大敏感事件时，社交媒体平台将其账号永久封杀。大科技公司这种无理由封杀言论的方式，已经与中共毫无差别，妄想通过扼杀网络发声渠道，阻止真相的曝光。
+总结以上两点，我们能得到的大概率结论是：河北毒株从俄罗斯进化而来，但是进化的时间已经很长，所以累积了很多突变位点。 但无论如何，河北病毒的独特基因组特征暗示其来源并不简单，以下是对其来源的三种可能性的猜测：
 
-三年前，发起灭共的爆料革命、郭文贵先生被美国各大社交媒体平台集体封杀。这非但没有阻止爆料革命的继续，反而促成GTV和GNEWS平台的诞生。短短几个月时间，就已经在美国新闻类网站排名中进入前50名。川普总统与爆料革命有一致的目标，那就是灭共，并且排干与中共有利益勾兑的美国沼泽地。同样地，川普总统现在也遭遇到与郭文贵先生当年同样的待遇。但这一切并不能阻止川普总统继续战斗，反而让支持他的八千万美国民众彻底看清大科技公司的邪恶本质。一个推特账户的关闭怎能阻止天选之子战斗的步伐？在这最后不到十天时间内，川普总统必定突破包围圈，成为第四十六任美国总统。
+1. 河北病毒数月前已由俄罗斯传入，经多长时间的本地传播，从而积累了很多自己独特的突变类型。这意味着河北当地的传播规模是相当大的，数月传播绝对会造成大量人群的感染。
 
-#### 原文翻译
+2. 河北病毒近期由俄罗斯传入，这一可能性不高。如果病毒由7月俄罗斯毒株进化而来，那么7月以来在俄罗斯的毒株应与河北毒株有更近的亲缘关系，但这并未在数据库中发现。
 
-## 朱利安尼：川普总统应解密更多文件
+3. 河北毒株为人为投放，前期经过对俄罗斯或其他地区毒株的收集，然后进行实验室传代获得，所以与世界其他地区毒株亲缘关系较远，这也能解释其基因组特征上的特异性。 结合习总加速师于近期做血管瘤手术，各方势力蠢蠢欲动，为给总加速师制造一个严格管控的休养环境，人为造出一场病毒疫情也是中共干得出来的。所以可能性3虽然邪恶，但也不能完全排除。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/image0-1-26.jpg)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gnjFaBMq9HyAN/images/df400492-4578-440a-8156-6e0dabaf084d.jpg?asset_id=03fc7014-c0cf-43e9-a993-9c6547c1a352&amp;img_etag=%22bf0fef7d6902ef14d0c7f431f97481f2%22&amp;size=2560)](https://spark.adobe.com/page/gnjFaBMq9HyAN/images/df400492-4578-440a-8156-6e0dabaf084d.jpg?asset_id=03fc7014-c0cf-43e9-a993-9c6547c1a352&amp;img_etag=%22bf0fef7d6902ef14d0c7f431f97481f2%22&amp;size=1024)*2016年7月18日，在俄亥俄州克利夫兰市Quicken Loans体育馆，前纽约市市长鲁迪·朱利安尼在共和党全国代表大会首日上台发表演讲时竖起大拇指。（Alex Wong拍摄照片/Getty Images）*
 
-鲁迪·朱利安尼（Rudy Giuliani）正敦促总统解密政府文件。
+【文章仅限作者个人观点】
 
-朱利安尼周五作为嘉宾参加白宫前首席战略师史蒂夫·班农（Steve Bannon）的《战斗室》（War Room）播客时发表这一言论。朱利安尼在讨论可能的解密工作时，暗指亨特·拜登（Hunter Biden）笔记本电脑丑闻和通俄门调查。
+参考数据：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gnjFaBMq9HyAN/images/275c55f0-5d2b-4cb0-86f8-2cb7e49aa93b.png?asset_id=bdde46fe-9622-45a7-96bd-9b09662fbe0d&amp;img_etag=%22d9f708ec8b35154894e33e8b4d2b54b4%22&amp;size=1024)](https://spark.adobe.com/page/gnjFaBMq9HyAN/images/275c55f0-5d2b-4cb0-86f8-2cb7e49aa93b.png?asset_id=bdde46fe-9622-45a7-96bd-9b09662fbe0d&amp;img_etag=%22d9f708ec8b35154894e33e8b4d2b54b4%22&amp;size=1024)
+1. Two Reemergent Cases of COVID-19 — Hebei Province, China, January 2, 2021
 
-这位前市长驳斥了解密文件会对国家安全构成威胁的说法。“到目前为止，已经有很多文件被解密，”朱利安尼说。“我再说一次，这是法西斯战术。”
+2. 河北两地病例在此处轨迹重迭，中疾控最新溯源研究有重大发现
 
-10月份，川普总统解密了去年通俄门调查的相关文件。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/gnjFaBMq9HyAN/images/6d547165-9662-4dcf-8857-f2d6f4a86c78.png?asset_id=683a6457-14cb-4993-9260-d50dbf694edb&amp;img_etag=%22f8e181da4f06ba2a02f62af9dda9cb03%22&amp;size=2560)](https://spark.adobe.com/page/gnjFaBMq9HyAN/images/6d547165-9662-4dcf-8857-f2d6f4a86c78.png?asset_id=683a6457-14cb-4993-9260-d50dbf694edb&amp;img_etag=%22f8e181da4f06ba2a02f62af9dda9cb03%22&amp;size=1024)约翰·卡迪罗（John Cardillo）@johncardillo有趣的是，就在川普被推动解密一切时，他被网络平台普遍禁声，不是吗？[原文链接](https://www.oann.com/giuliani-president-trump-should-declassify-more-documents/)
 
-编辑：【喜马拉雅战鹰团】- [点击spark adobe版](https://spark.adobe.com/page/gnjFaBMq9HyAN/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/user/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/HHS_QRCode_V2.jpg)
 0

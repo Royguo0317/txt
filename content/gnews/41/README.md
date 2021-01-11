@@ -1,114 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/10/2021 条约只有在各方都遵守的情况下才有用; 必须用行动来维持条约&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/739514/)
+## 【世事解评】从马斯洛人本主义看中共统治术和新联邦理念
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/739742/)
 
-**【大选实况】1/10/2021 EST 4:00 蓬佩奧国务卿 推文：**
+作者：香草山写作组   猪逻辑 校对/发稿：飞虹
 
-这是我遵循的另一项外交政策口号#美国优先：条约只有在各方都遵守的情况下才有用。
-
-
-
-> Here's another foreign policy mantra I've followed to put [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw): Treaties are only useful if all parties adhere to them. [pic.twitter.com/appNKEBfnq](https://t.co/appNKEBfnq)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348374054764486660?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/secpompeo/status/1348374054764486660?s=21](https://twitter.com/secpompeo/status/1348374054764486660?s=21)
-盖特链接：[https://gtv.org/getter/5ffbae8687fabe2daf35ee41](https://gtv.org/getter/5ffbae8687fabe2daf35ee41)
-
-* * *
-
-**【大选实况】1/10/2021/ EST 4:30 pm 蓬佩奧国务卿 推文： **
-
-《 中导条约》有两个当事方。 奥巴马总统在俄罗斯作弊建立他们自己的系统时却限制了我们的军队，从而把美国人的生命置于危险中。当两方条约只有一方遵守时，这就叫做愚蠢。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 
-> There were two parties to the INF Treaty. President Obama risked American lives by restricting our military while Russia cheated and built up its systems. When only one party to a two-party treaty is complying, that’s called stupid. [pic.twitter.com/Gb6jaaz3Xe](https://t.co/Gb6jaaz3Xe)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348381601692962816?ref_src=twsrc%5Etfw)
+新中国联邦通过网络时代自组织自发式集结融合全世界尤其是开明华人精英，让国人认知文明、拥抱文明、了解西方，并努力让中国人的勤劳、勇敢、智慧得到相应回报，让他们合理合法地获得阳光的财富，过有尊严、有体面、自由、富足的生活，愿景是打造自由民主法制的现代文明国家。
 
+20世纪五六十年代人本主义心理学哲学之父马斯洛提出层次需求理论，他按照追求目标和满足对象的不同把人的各种需要从低到高安排在一个层次序列的系统中，我们试着用这一理论解构中共的统治术，对比我们所要实现的新联邦的理念、理想、愿景和情怀。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/图片8-2.png)
+人本主义认为五个层次的需要：生理、安全、归属与爱、尊重和自我实现
 
-来源：[https://twitter.com/secpompeo/status/1348381601692962816?s=21](https://twitter.com/secpompeo/status/1348381601692962816?s=21)
-盖特链接：[https://gtv.org/getter/5ffbaee287fabe2daf35eea5](https://gtv.org/getter/5ffbaee287fabe2daf35eea5)
+按马斯洛的理论，个体成长发展的内在力量是动机，而动机是由多种不同性质的需要所组成的，各种需要之间，有先后顺序与高低层次之分；每一层次的需要与满足，将决定个体人格发展的境界或程度。
 
-* * *
+**1. 生理需要 (physiological need)**
 
-**【大选实况】1/10/2021/ EST 5:00 pm 蓬佩奧国务卿 推文：**
+生存所必须的基本生理需要，如对食物、水、睡眠、呼吸和性的需要。
 
-我们的前任总统根据《 中导条约》单方面解除了我们的武装。 我们说“够了”，并离开了使美国无法防御的单方面协议。 #AmericaFirst
+这一层就是中共统治策略的限定范围，可以说他们始终把百姓限定在食欲性欲的最初级动物需求范围内。本质就在于用商鞅五策与民争利，让民众忙碌一生但又一事无成，民众就只是生产和战争的机器。自始至终将百姓大众限定在最底层最基本的生活生存需求范围之内 ，聚焦于现实生活的柴米油盐，为房贷、车贷、医疗费、子女教育费等基本生计生存奔波。弱民：弱民强权。疲民：为民寻事，疲于奔命，使民无瑕顾及他事。贫民：除了生活必须，剥夺余银余财（即通货膨胀或狂印钞票），物质匮乏，人穷志短。
 
+民众的性权利甚至无形中也被剥夺或挤占了，原因在于：（1）特权人士可以霸占更多优质异性资源，而底层群众资源有限，必然整体分配不公。（2）特权人士可以践踏道德法律，通过钱权毫无顾忌地获得性交易、性满足而不被追究，而底层的类似行为则被视为违法犯罪行为。
 
+**2. 安全需要 (safety need)**
 
-> Our previous President unilaterally disarmed under the INF Treaty. We said “enough” and left the one-sided deal that made America defenseless. [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/bB5t0fckRx](https://t.co/bB5t0fckRx)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348389151926751232?ref_src=twsrc%5Etfw)
+人身安全，免遭痛苦、威胁、疾病等。包括一个安全和可预测的环境，它相对地可以免除生理和心理的焦虑。
 
+中共对人权肆意侵犯和打压，用商鞅术中的辱民：一是使民无自尊自信；二是唆之相互检举揭发，终日生活于恐惧氛围中，党内开展所谓批评自我批评，党外群众斗群众。在中共统治下，同胞的基本人权被践踏，以黑治国，以警治国，服务和听命于几个利益家族集团，物权法形同虚设，房产被肆意强拆，土地被肆意霸占，财产被肆意没收，按需杀人，活摘器官，肆意拘留抓捕，暴力反人性，谈何人身安全？
 
-来源：[https://twitter.com/secpompeo/status/1348389151926751232?s=21](https://twitter.com/secpompeo/status/1348389151926751232?s=21)
-盖特链接：[https://gtv.org/getter/5ffbaf1b87fabe2daf35eee8](https://gtv.org/getter/5ffbaf1b87fabe2daf35eee8)
+近些年只求经济利益、破坏环境的发展模式使空气、土壤、水等自然生态环境遭到极大破坏，加之毒食品、毒奶粉等屡见不鲜，进而引发各种疾病。国民的生存环境遭到破坏以及中共政权欲盖弥彰地陷入塔西佗陷阱，使民众普遍缺乏安全感，倍感焦虑、压力、不信任感。
 
-* * *
+**3. 社交层需求、爱与归属的需要 (love and belongingness need)**
 
-**【大选实况】1/10/2021 EST 5:30 pm 蓬佩奧国务卿 推文： **
+包括被别人接纳、爱护、关注、鼓励、支持等，如结交朋友，追求爱情，参加团体等。
 
-在过去的四年中，美国大胆地揭露了未能履行《化学武器公约》规定义务的国家。
+中共主张树敌和内斗，制造所谓“阶级对立”，制造各阶层、各族群的社会矛盾，尤其在遭遇自身统治和生存安全之时尤甚，挑拨离间以达到自我转机、转移矛盾和续命的目的。中共官本位主义统治阶级以权谋私，攫取整个国家资源、资产、人力作为私家财产，虚幻的“爱国主义”和“国家归属感、自豪感”实则是为政权和个别统治者的利益和安全服务。
 
+以文革暴政为代表的历次运动将传统文化中的美德根基摧残殆尽，人情冷漠，世态炎凉，伴随着改革开放、金钱至上、利益优先，使过多物质、虚假和自私的因素掺杂在爱情、友情等社会交际领域，使整个社会进入了全民互害互骗模式的死胡同。
 
+**4. 尊重需要。尊重别人和被别人尊重的需求。自重，信心。 (esteem need)**
 
-> Over the last four years, the U.S. has boldly called out countries who have failed to meet their obligations under the Chemical Weapons Convention. [pic.twitter.com/FoiIM0bcLZ](https://t.co/FoiIM0bcLZ)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348396701392859136?ref_src=twsrc%5Etfw)
+包括尊重别人和自我尊重两个方面。
 
+在中共国从教育层面即鼓励服从，打击个体个性和自信心。社会风气上，尤其党政体制内鲜有真正人格上平等的尊重，更缺乏对弱者、贫者内心里或本质上的尊重。由于传统文化被连根拔起，国民间、师生之间、领导与下属之间、长辈晚辈之间也普遍缺乏基本的互相尊重。他们互相干涉隐私，八卦文化，交往功利化严重，身心沦丧甚至自暴自弃不自重。在中共国这样弱肉强食的现实丛林社会，要赚钱和生存几乎就要或多或少失去尊严，如要尊严和独立人格则生存的空间会变得极为狭小。尊重百姓在中共统治阶级眼里更是个大笑话，性贿赂各国政要，性侵幼儿，中国人的生命和尊严被彻底出卖。
 
-来源：[https://twitter.com/secpompeo/status/1348396701392859136?s=21](https://twitter.com/secpompeo/status/1348396701392859136?s=21)
-盖特链接：[https://gtv.org/getter/5ffbaf5d87fabe2daf35ef3a](https://gtv.org/getter/5ffbaf5d87fabe2daf35ef3a)
+**5. 认知的需要**
 
-* * *
+中共通过网络高墙，专家九层妖塔，舆论管控，定向信息喂料，供养犬儒五毛大外宣，利用厚黑学、权谋术等对全体国民长期系统化洗脑愚民，民众的认知能力、逻辑判断能力、独立思考能力、创新能力已经受到深度影响。
 
-**【大选实况】1/10/2021 EST 6:00 pm 蓬佩奧国务卿 推文： **
+**6. 审美的需要**
 
-必须用行动来维持条约。 阿萨德对自己的人民施以毒气后，川普总统对叙利亚发动了袭击。 我们是有真正的红线的。
+中共长期轻视和打压音乐、舞蹈、美术等艺术美学教育，自学生时代就阉割美术、音乐等艺术课程，文明礼仪、内在美、行为美等教育被忽视，众多学校规定学生穿着统一的毫无设计美感的校服，有的学校甚至规定学生发型，这既扼杀对美的认知，又侵犯基本人权。整个社会发展美学审美的大环境被破坏，很多城市建设也是呆板到千篇一律，投机主义盛行，文化美学氛围逐渐庸俗化、畸形化、恶毒化、共产化。无论从软性或精神层面的心灵美礼仪美，还是视觉上的服饰美，或物质上的建筑、商品设计美感，离一个真正强盛、现代、文明、开放的社会都有很大差距。
 
+**7．自我实现需要（self-actualization need）**
 
+自我实现是马斯洛人格理论的核心，个体之所以存在，之所以有生命意义，就是为了自我实现。自我实现追求的内容是实现人的“内在价值”，包括真理、美、新颖、独特、公正、严密、简洁、善、效率、爱、诚实、单纯、改善、秩序、文雅、成长、清洁、宁静、和平等。如果能实现这些价值，便可以达到人生最大的幸福和快乐。
 
-> Have to back up treaties with action. President Trump took out targets in Syria after Assad gassed his own people. We have real red lines. [https://t.co/PXVSEep0xz](https://t.co/PXVSEep0xz)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348404257196797958?ref_src=twsrc%5Etfw)
+马斯洛的思想以人性本善为前提，并强调教育的功能。中共从教育层面即开始全面扼杀国人的个性、天性、创造力、天分，无论从学校教育还是社会教育层面多强调服从、复制、权威，也忽视学生健全人格的培养，现实层面人的潜能、智能和天资往往被遏制，难以发挥。陈丹青曾愤然抨击教条、刻板的教育筛选制度扼杀或压抑年轻人的天赋，这样的例子不胜枚举，例如前几月一位初中生模仿班主任训话的表演红遍网络，最后被各种校规扼杀。反观众多国人因为看透了中共反人性和填鸭式的教育文化环境，移民或让子女接受海外教育，到了自由的环境里往往个体爱好与潜能得以更加充分发挥，实现了高度发展和自我实现的最佳状态，很多从事高级科研、技术、管理、商业等工作，犹如鱼儿到了广阔自由的海洋。
 
+中共建立现代奴隶制度，把全体国民变成没有感情的机器、没有独立思想的复读机，令阶层固化，话语权和优质资源被权贵及其私生子女霸占，平民几无公平均等晋升或充分实现自我的机会。公民的劳动果实，作品、版权等利益或权益也很大程度上被无形的高税收、不健全的法制等所剥削或侵犯。
 
-来源：[https://twitter.com/secpompeo/status/1348404257196797958?s=21](https://twitter.com/secpompeo/status/1348404257196797958?s=21)
-盖特链接：[https://twitter.com/secpompeo/status/1348404257196797958?s=21](https://twitter.com/secpompeo/status/1348404257196797958?s=21)
+爆料革命和新中国联邦的目标就是要学习参鉴西方海洋法系，就是要打破靠生殖器治国，由红色基因掌权掌富，从看领导脸色、看领导好恶的人治等诸如此类的一切，实现真正的依法治国，保障人权。建立一人一票的真正普选制度，实现媒体监督，由宗教信仰自由等加以辅助，创造相对均等的机会、良性的社会氛围，强调人的尊严、价值、自由、平等、创造力、人生的意义等理念，让中国人自由发挥潜能意志，实现自我价值，让人们获得真正的文明国家和人的归属感，实现人本主义理论所提及的高层级需求。
 
-* * *
+GTV、GNEWS大声告诉世人暗黑世界的真相，逐步让人们意识到被愚弄或操控了的错误认知，并让坚定的投资者获得世俗层面大概率的财务独立、财富自由。Gcoin则是财产安全的必要港湾，使合法收入的人们不必再有随时被共产的恐惧感。GFASHION所要传达的是通过体面整洁的衣着，努力体现人追求美感的天性，人的自信自爱。
 
-**【大选实况】1/10/2021 EST 7:00 pm 蓬佩奧国务卿 推文： **
+新中国联邦的去中心化、扁平化、系统化、体制化发展是未来构建新中国的道路方向，国人在宪法框架下可以更有尊严地活，更有安全感、成就感、幸福感，未来的新中国相信是更加公平的舞台，让人有更多机会充分发挥才智做自己喜欢的事，赢得更符合人文道德的事业和财富。
 
-条约与结盟一样，可以一直持续到失效。必须始终不断对其有效性进行评估。
-
-
-
-> Treaties, like alliances, can outlast their sell-by-date. Always have to keep evaluating their usefulness. [pic.twitter.com/up8Qtj6gn8](https://t.co/up8Qtj6gn8)
-> — Secretary Pompeo (@SecPompeo) [January 11, 2021](https://twitter.com/SecPompeo/status/1348419350370398209?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/secpompeo/status/1348419350370398209?s=21](https://twitter.com/secpompeo/status/1348419350370398209?s=21)
-盖特链接：[https://gtv.org/getter/5ffbb0b687fabe2daf35f08c](https://gtv.org/getter/5ffbb0b687fabe2daf35f08c)
-
-* * *
-
-**【大选实况】1/10/2021 EST 12:00 pm 蓬佩奧国务卿 推文：**
-
-#有效的多边关系 意味着重新激发活力的四方关系： 美国、澳大利亚、印度及日本之间的四方合作关系 – 思维相似、价值观一致，有益推动自由开放的印度洋-太平洋海域。
+（本文内容仅代表作者个人观点）
 
 
 
-> [#EffectiveMultilateralism](https://twitter.com/hashtag/EffectiveMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) means a reinvigorated Quad: like-minded values-based partnership among the U.S., Australia, India, and Japan, advancing a free & open Indo-Pacific. [pic.twitter.com/Rmqs3nTBTy](https://t.co/Rmqs3nTBTy)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348313657734811654?ref_src=twsrc%5Etfw)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-来源：[https://twitter.com/SecPompeo/status/1348313657734811654](https://twitter.com/SecPompeo/status/1348313657734811654)
-盖特链接：[https://gtv.org/getter/5ffbb39587fabe2daf35f384](https://gtv.org/getter/5ffbb39587fabe2daf35f384)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-
-
-#### **By： 【秘密翻译组 G-Translators】**
-
-+1
+0
