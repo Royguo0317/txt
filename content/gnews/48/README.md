@@ -1,59 +1,176 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亚马逊即将暂停Parler在其网络托管的服务
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/740024/)
+## 💥美国政要每日推特重要信息汇总 （2021.1.11）
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/740169/)
 
-俄罗斯莫斯科喀秋莎农场 红珊瑚
+信息汇总采编：英喜庄园G-News编辑部；Page：拱卒
+[!\[\]()!\[\](https://spark.adobe.com/page/pd2cq2hgD2Pwt/images/04c6fa8d-059f-4510-b775-b224d8685e26.jpg?asset_id=a23fd044-3919-40f4-93fe-9bf445d43a93&amp;img_etag=%22d0edf5b23339751ce7e74f6b3d10886b%22&amp;size=1024)](https://spark.adobe.com/page/pd2cq2hgD2Pwt/images/04c6fa8d-059f-4510-b775-b224d8685e26.jpg?asset_id=a23fd044-3919-40f4-93fe-9bf445d43a93&amp;img_etag=%22d0edf5b23339751ce7e74f6b3d10886b%22&amp;size=1024)
+**经授权转载自：**
 
-编辑上传 星河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/88D899F5-8759-4575-B58F-A0EFB96B9377_w1200_r1.jpg)www.svoboda.org
-1月9日，媒体报道，亚马逊将暂停Parler的帐户服务，这意味着除非parler能够找到另一台服务器，否则一旦禁令于周日生效，Parler将全部脱机离线。
+- 川普等政要…直译推 twitter：[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
+- 川普等政要…直译推 Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
+- 川普等政要…直译推GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
 
-根据BuzzFeed News获得的电子邮件，亚马逊通知Parler，它将切断其在Amazon Web Services的云托管服务，因为Parker是受到保守派和极端主义者青睐的社交网络。暂停将于周日午夜之前生效，这意味着Parler将无法运行，并且除非找到其他托管服务，否则将脱机。
 
-电子邮件中表示，Parler上的人们利用社交网络在周三的国会大厦内引发恐惧，散布仇恨并协调起义。该应用程序最近一直充斥着死亡威胁以及暴力的庆祝活动，并鼓励“爱国者” 在1月19日当选总统拜登宣誓就职的前一天，对华盛顿特区的武装游行。
+**简评：**
 
-在BuzzFeed News获得的电子邮件中，AWS信息和安全团队告知Parler首席政策官埃米·佩科夫 (Amy Peikoff)，呼吁在整个社交网络中传播暴力行为违反了其服务条款。
+川普团队依然被大科技垄断集团打压，从推特封杀，到团队电子邮件服务被停止，Stripe汇款被停止，到川普14岁小儿子Barron Trump的推特被秒封；但我们看到依然有正义议员发出声音，纳瓦罗直呼CCP Virus中共病毒，彭培奥连续3篇推文提到化学武器，为定性中共制造生化武器造势。
 
-电子邮件中写道：“最近，您的网站上暴力内容在稳定增长，所有这些都违反了我们的条款。很显然，Parler没有有效的流程来遵守AWS服务条款。 ”
+#### 众议员兰斯·古登：
 
-亚马逊发言人拒绝对此次暂停服务发表评论。
+伊朗(最高领袖)哈梅內伊可以发推特。委内瑞拉独裁者马杜罗可以发推特。中共国的宣传机构可以发推特。
 
-在发布此事件后星期六晚上的一篇文章中，Parler首席执行官约翰·马泽（John Matze），没有对BuzzFeed的新闻进行回应，他说，随着我们从头开始重建，社交网络有可能在长达一周的时间内无法在互联网上使用。”
+推特Twitter封禁川普，并不是因为他们担心谎言和暴力。推特Twitter封禁川普，是因为他们想控制我们的言论、阅读内容和思想！
 
-他在Parler上写道：“这是科技巨头为消灭市场竞争而进行的协同攻击。” “我们成功发展壮大的速度太快了。”
 
-在Parler上，对即将实施的禁令的反应迅速而愤怒的用户针对亚马逊的暴力行为进行了讨论。有的用户写道：“如果接受过炸药培训的人要访问某些AWS数据中心，那是很遗憾的。”
 
-亚马逊此举是在苹果于周六下午禁止Parler在其App Store中发布之后公布的，此前该平台未能推出旨在保护公共安全的节制计划。BuzzFeed新闻首次报道，周五，苹果给了Parler 24小时以减轻“非法和危险活动的计划”否则将其服务下架暂停。Google还禁止用户在其Google Play应用商店中下载Parler。
+> Iranian Ayatollah Ali Khamenei can tweet.
+> 
+> Venezuelan Dictator Nicolas Maduro can tweet.
+> 
+> Chinese propaganda outlets can tweet.
+> 
+> Twitter didn't ban Trump because they're worried about lies & violence.
+> 
+> Twitter banned Trump because they want to CONTROL what we say, read and think!
+> — Lance Gooden (@Lancegooden) [January 10, 2021](https://twitter.com/Lancegooden/status/1348058108329750528?ref_src=twsrc%5Etfw)
 
-周六，在苹果公司将禁止其在App Store中发布之前，人们争相下载Parler的应用程序，使其成为下载次数最多的免费应用程序。在App Store禁令之后，人们仍然可以在iPhone上使用Parler，但社交媒体公司将无法通过Apple的服务进行更新。
 
-但是，亚马逊的举动将取消Parler运行的基础服务。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/oko-planet.su_.jpg)oko-planet.su
-Parler于2018年推出，已成为人们被Facebook和Twitter等热门网站禁止后的避风港。这家总部位于内华达州亨德森的公司将自己称为主流社交网络的言论自由替代品，并采取了更为宽松的方式进行内容审核，吸引了广大的用户群。特别是在11月3日美国大选投票日之后，用户达到了百万计的增长。
 
-包括参议员特德·克鲁兹（Ted Cruz）和国会议员德文·纳恩斯（Devin Nunes）在内的共和党议员，以及川普总统的家人，都建立了Parler账户，并公开鼓励其支持者加入那里。
+#### 贸易顾问皮特·纳瓦罗：
 
-亚马逊员工公开呼吁禁止使用Parler，AWS的Change.org请愿书在本周已经收集了数千个签名。多名员工还以社交网络上的仇恨言论为由向AWS管理层提出了内部投诉。
+杀害美国人的 #CCP 病毒是否来自生化武器实验室？它是被基因工程处理过的吗？随着中共官员删除了武汉实验室的关键数据，新一轮掩盖事实的恐惧开始了。【转推每日邮报文章，与绝密武汉病毒研究所进行的研究有关的数百页信息已被抹去。】
 
-这是亚马逊给Parler的完整信：
 
-亲爱的埃米：
 
-感谢您今天早些时候与我们交谈。
+> Did the ccp virus killing americans come from a bioweapons lab? Was it genetically engineered?
+> 
+> New cover-up fears as Chinese officials delete critical data about the Wuhan lab | Daily Mail Online [https://t.co/z1fnmj0z4P](https://t.co/z1fnmj0z4P)
+> — Peter Navarro (@RealPNavarro) [January 10, 2021](https://twitter.com/RealPNavarro/status/1348265980913446914?ref_src=twsrc%5Etfw)
 
-正如我们昨天和今天上午在电话中讨论的那样，我们仍然为屡次违反我们的服务条款感到困扰。在过去的几周中，我们向Parler报告了98个示例，这些示例明显鼓励和煽动暴力。以下是我们之前发送过的一些示例：[请参见上图。]
 
-最近，我们发现您网站上的暴力内容在稳步增长，所有这些都违反了我们的条款。很显然，Parler没有有效的流程来遵守AWS服务条款。似乎Parler仍在尝试确定其在内容审核方面的立场。当我们或其他人联系您时，您会删除一些暴力内容，但并不总是很紧急。您的首席执行官最近公开表示，他“对此不承担任何责任，平台也不应对此负责”。今天早上，您分享了您有一个计划来更主动地缓和暴力内容，但计划与志愿者一起手动进行。我们认为，鉴于暴力帖子的数量迅速增加，这项旨在利用志愿者迅速识别并清除危险内容的新生计划将行不通。您仍然没有删除我们发送给您的大部分内容，这进一步证明了这一点。鉴于上周在华盛顿特区发生的不幸事件，这种内容有进一步引发暴力行为的严重风险。
 
-AWS为各个政治领域的客户提供技术和服务，我们继续尊重Parler自行决定其网站上将允许哪些内容的权利。但是，我们无法为无法有效识别和删除鼓励或煽动针对他人的暴力行为的客户提供服务。由于Parler无法遵守我们的服务条款，并对公共安全构成非常真实的风险，因此我们计划从太平洋标准时间1月10日（星期日）晚上11:59暂停Parler的帐户。我们将确保保留所有数据，以供您迁移到自己的服务器，并尽力与您合作，以帮助您进行迁移。
+#### 国务卿彭培奥：
 
-此次亚马逊暂停Parler在其网络托管的服务，以及Google Play和苹果App Store应用禁止用户下载Parler，都是大科技公司压制人民言论自由的协同行动，意图掩盖真相。2020年6月至今，脸书管理删除了川普总统竞选总部许多人的帖子，指出这些帖子违反了其平台规则。近期推特直接封停了川普总统的推特账号，在人们向外界传播美国总统大选舞弊等真相的时候，脸书和推特却无底线地禁封了成千上万个账号，完全撕下了所谓中立媒体人的虚假面皮，直接压制言论自由。
+- 我高兴地接受了约瑟夫·博雷尔·丰特莱斯 @JosepBorrellF （欧盟高级代表，主管外交和安全）发起的就 #中共国 进行美欧对话的提议。北京是我们这个时代的挑战。我们于2020年10月启动了这项工作。#有效的多边关系主义 #EffectiveMultilateralism https://go.usa.gov/xAXhd
 
-特别是在美国总统大选期间，大科技公司完全赤膊上阵，无耻的一边倒的禁止真相的传播，但是其自身确在不断传播谎言以及虚假信息，为民众洗脑、扰乱视听，他们只传播符合其自身利益的自己的声音。现在黑暗已经来临，中共操控的这一切，包括大科技公司，试图掌控一切，正义的力量在抗争中。
 
-参考链接：[https://www.buzzfeednews.com/amphtml/johnpaczkowski/amazon-parler-aws](https://www.buzzfeednews.com/amphtml/johnpaczkowski/amazon-parler-aws)
+
+
+> I happily accepted [@JosepBorrellF](https://twitter.com/JosepBorrellF?ref_src=twsrc%5Etfw)’s offer to start a U.S.-EU Dialogue on China. Beijing is the challenge of our time. We launched the effort in Oct. 2020. [#EffectiveMultilateralism](https://twitter.com/hashtag/EffectiveMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/aJNYocsn4g](https://t.co/aJNYocsn4g) [pic.twitter.com/m3qfLdVwGW](https://t.co/m3qfLdVwGW)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348358952765976576?ref_src=twsrc%5Etfw)
+
+
+
+- 有效的多边关系 #EffectiveMultilateralism 意味着重振四方：美国，澳大利亚，印度和日本之间基于价值观念的伙伴关系，推动了自由开放的印度太平洋地区的发展。
+
+
+
+
+> [#EffectiveMultilateralism](https://twitter.com/hashtag/EffectiveMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) means a reinvigorated Quad: like-minded values-based partnership among the U.S., Australia, India, and Japan, advancing a free & open Indo-Pacific. [pic.twitter.com/Rmqs3nTBTy](https://t.co/Rmqs3nTBTy)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348313657734811654?ref_src=twsrc%5Etfw)
+
+
+
+- 花了很多时间与东盟 @ASEAN 合作，支持他们在南中国海为对抗 #中共国 恶性影响而作出的努力。【转东盟2020越南高峰会的推文】
+
+
+
+
+> Spent a lot of time working with [@ASEAN](https://twitter.com/ASEAN?ref_src=twsrc%5Etfw), supporting their efforts to stand up to China's malign influence in the South China Sea. [#RealSovereignty](https://twitter.com/hashtag/RealSovereignty?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/IUmzD7OksC](https://t.co/IUmzD7OksC)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348328910174515209?ref_src=twsrc%5Etfw)
+
+
+
+- 发起湄公河与美国合作伙伴关系 #MekongUSPartnership，以确保一个有主权和繁荣的湄公河地区……并遏制 #中共 的恶性活动。（附目前美国政府对湄公河地区伙伴提供的各项资助）
+
+
+
+
+> Launched the [#MekongUSPartnership](https://twitter.com/hashtag/MekongUSPartnership?src=hash&amp;ref_src=twsrc%5Etfw) to ensure a sovereign and prosperous Mekong region…and push back on malign CCP activity. [pic.twitter.com/feyfleJVAQ](https://t.co/feyfleJVAQ)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348336304174481408?ref_src=twsrc%5Etfw)
+
+
+
+- 我们高度重视被以前的（美）政府忽略了的中亚。重又振兴了C5（中亚五国） + 1（美国）模式，以增强该地区的独立性和连通性。#LeadingFromTheFront
+
+
+
+
+> Big focus on Central Asia, also neglected in prior administrations. Reinvigorated the C5+1 to strengthen the region’s independence and connectivity. [#LeadingFromTheFront](https://twitter.com/hashtag/LeadingFromTheFront?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/4BFwJXiX4s](https://t.co/4BFwJXiX4s)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348343855653990408?ref_src=twsrc%5Etfw)
+
+
+
+- 在欧洲，我们承诺通过美国国际金融公司 @DFCgov 为三海倡议 #ThreeSeas 投入近10亿美金。加强能源，数字和交通基础设施，增强俄罗斯和中国所针对地区的经济安全。
+
+
+
+
+> In Europe, we committed up to $1 billion through [@DFCgov](https://twitter.com/DFCgov?ref_src=twsrc%5Etfw) for the [#ThreeSeas](https://twitter.com/hashtag/ThreeSeas?src=hash&amp;ref_src=twsrc%5Etfw) Initiative. Strengthening energy, digital, and transportation infrastructure, bolstering economic security in a region targeted by Russia and China. [pic.twitter.com/3WEImq3wrd](https://t.co/3WEImq3wrd)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348351403543072769?ref_src=twsrc%5Etfw)
+
+
+
+- 这是我遵循的另一项确保美国优先 #AmericaFirst 的外交政策口号：条约只有在各方都遵守的情况下才有用。
+
+
+
+
+> Here's another foreign policy mantra I've followed to put [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw): Treaties are only useful if all parties adhere to them. [pic.twitter.com/appNKEBfnq](https://t.co/appNKEBfnq)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348374054764486660?ref_src=twsrc%5Etfw)
+
+
+
+- 在过去的四年中，美国大胆地点名指出了那些未能履行《化学武器公约》规定的义务的国家。
+
+
+
+
+> Over the last four years, the U.S. has boldly called out countries who have failed to meet their obligations under the Chemical Weapons Convention. [pic.twitter.com/FoiIM0bcLZ](https://t.co/FoiIM0bcLZ)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348396701392859136?ref_src=twsrc%5Etfw)
+
+
+
+- 美国还解密了有关伊朗使用化学武器的信息. #NoImpunity https://go.usa.gov/xA5q5
+
+
+
+
+> The U.S. also declassified information on Iran's use of chemical weapons. [#NoImpunity](https://twitter.com/hashtag/NoImpunity?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/JFFC4MSGIX](https://t.co/JFFC4MSGIX)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348411800572764160?ref_src=twsrc%5Etfw)
+
+
+
+- 必须以行动支持条约。在阿萨德向自己的人民施放毒气后，川普总统清除了叙利亚境内的目标。我们有真正的红线。（链接是2018年的文章大意是：美国，法国和英国部队于2018年4月13日联合发动精确打击，打击叙利亚的化学武器能力，以阻止阿萨德使用国际禁止的化学武器。）
+
+
+
+
+> Have to back up treaties with action. President Trump took out targets in Syria after Assad gassed his own people. We have real red lines. [https://t.co/PXVSEep0xz](https://t.co/PXVSEep0xz)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348404257196797958?ref_src=twsrc%5Etfw)
+
+
+
+- 对也门的胡希运动 (Ansarallah，Houthi movement)是恐怖分子的认定，正面临着它的恐怖活动，并寻求伊朗政权在该地区阻挠进一步的恶意行径。
+
+
+
+
+> Terrorist designations of Ansarallah in Yemen confront its terrorist activity and seeks to deter further malign activity by the Iranian regime in the region.
+> — Secretary Pompeo (@SecPompeo) [January 11, 2021](https://twitter.com/SecPompeo/status/1348490896891850754?ref_src=twsrc%5Etfw)
+
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/pd2cq2hgD2Pwt/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/pd2cq2hgD2Pwt/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
 0
