@@ -1,114 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/10/2021 条约只有在各方都遵守的情况下才有用; 必须用行动来维持条约&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/739514/)
+## 中共统治下的孩子也无法逃脱这个绞肉机的伤害
+` 纽约香草山农场香` [轉載自GNews](https://gnews.org/zh-hans/739625/)
 
-**【大选实况】1/10/2021 EST 4:00 蓬佩奧国务卿 推文：**
+作者：不言
 
-这是我遵循的另一项外交政策口号#美国优先：条约只有在各方都遵守的情况下才有用。
+近日，国内媒体报道，云南昭通一名7岁女童在学校宿舍疑似被陌生男子猥亵。消息迅速引发广大网友关注。
 
+2020年，杨女士夫妇俩到广东省佛山市打工。此前，小雨和哥哥都留在彝良县老家读书，2020年8月，他们经人介绍后把小雨送到全封闭寄宿制民办学校“昭通市昭阳区文野学校”上二年级。平时，夫妇俩通过微信电话和视频，与学校老师保持联系，了解小雨日常的生活和身体情况，“除了学习有点跟不上，身体都没有什么问题。”
 
+12月23日晚上18时许，杨女士突然收到生活老师发来的两张照片，说女儿眼睛红肿，很严重，可能要去大医院做手术。24号晚上，杨女士从广东赶了回来，25号下午15时去学校接到小雨，“我看孩子眼睛不肿，就是有点红。”随后，她将小雨带到昭通市人民医院检查，医生说眼睛没有大碍，开了两瓶眼药水。
 
-> Here's another foreign policy mantra I've followed to put [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw): Treaties are only useful if all parties adhere to them. [pic.twitter.com/appNKEBfnq](https://t.co/appNKEBfnq)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348374054764486660?ref_src=twsrc%5Etfw)
+回到宾馆后，杨女士把儿子喊来和小雨玩耍，那时，杨女士发现小雨走路姿势有些不对。“我以为她是长了冻疮有点痛才这样。”到了晚上22时半，杨女士发现小雨的手一直捂住下身隐私部位，她觉得不对劲，便脱下小雨裤子，发现她隐私部位红肿。杨女士多次问小雨怎么回事，小雨才说10多天前的中午，有位高高瘦瘦的陌生男性在学校宿舍侵犯了她，当时附近没有其他人，该男性身穿黑色上衣、蓝色鞋子。
 
+12月26号，父亲熊先生也赶了回来。中午12点左右，夫妇俩带着孩子，和副校长章晨及另外两位老师一起去昭通市第一人民医院妇科检查，医生告知第二天早上8点，三位医生诊断后才能出结果，老师们要回去休息，杨女士便与孩子在医院过夜，等候检查结果。但到了第二天拿结果的时候，老师们一个都没有来。昭通市第一人民医院门诊病历记录显示，检查结果为“双侧大阴唇至肛周红肿，无溃破，处女膜完整，因患儿疼痛，阴道无法探及。”
 
-来源：[https://twitter.com/secpompeo/status/1348374054764486660?s=21](https://twitter.com/secpompeo/status/1348374054764486660?s=21)
-盖特链接：[https://gtv.org/getter/5ffbae8687fabe2daf35ee41](https://gtv.org/getter/5ffbae8687fabe2daf35ee41)
+当天上午11点50分，熊先生向警方报案，随后收到昭阳区公安分局凤凰派出所打来的电话，一家人来到派出所做笔录。下午，警方将一家人带到了昭通市中医医院妇科检查，但检查结果和昭通市第一人民医院检查的结果并不一致，杨女士提到，“医生说孩子病情非常严重，需要住院治疗。”据她提供的诊断结论显示，有外阴溃疡、阴道炎、急性外阴炎、处女膜裂伤、肺炎。
 
-* * *
+12月26号晚上，小雨姑姑帮忙办理住院，杨女士和熊先生被警察叫到学校，警察开始对学校的宿舍进行拍照，随后把生活老师叫到凤凰派出进行笔录，夫妇俩继续回医院带孩子治疗。杨女士表示，目前校方给了1万治疗费用，但并不承认中医院的诊断结果，只承认第一人民医院那份“处女膜完整”的病历。
 
-**【大选实况】1/10/2021/ EST 4:30 pm 蓬佩奧国务卿 推文： **
+1月10日，夫妇俩再次来到凤凰派出所，警方告知因两次诊断结果不同，将带他们到第三方医院，成都华西医院进行诊断。
 
-《 中导条约》有两个当事方。 奥巴马总统在俄罗斯作弊建立他们自己的系统时却限制了我们的军队，从而把美国人的生命置于危险中。当两方条约只有一方遵守时，这就叫做愚蠢。
+杨女士提出质疑，小雨居住在学生宿舍二楼，整栋楼都是女生宿舍，平时不准男性进入。“为什么那天会有陌生男子进入女生宿舍?还进行了侵犯？”熊先生对安保系统发出质疑，他表示保安室并没有在校门口，而是在学校一栋大楼的小房间里。当杨女士向学校要宿舍监控，并追问学校安保措施情况，章校长说学校监控只储存了10天，10天以前的已经被覆盖，看不到了，校方正在配合警方，对被覆盖的监控信息进行恢复。
 
+据杨女士提供的《立案告知书》，2020年12月27日，昭通市公安局昭阳分局开始立案侦查，到现在已经十几天了，还没有锁定犯罪嫌疑人。
 
+这起性侵未成年幼女案件不由得让我想起了曾经震惊全国的“红黄蓝”幼儿园女童性侵事件。这类案件都是相同的监控失效，又为何陌生男子可以随意进入一所全封闭的学校，学校安保形同虚设。共产党你抓捕爆料革命战友可以肆意定位到具体位置，而如此重大的案件却没有任何追踪的线索。红黄蓝幼儿园是孟建柱等中共国高官作为背景，肆意的迫害我们的孩子，那这起案件背后隐藏的是哪一股势力阻挠民众获知真相呢？
 
-> There were two parties to the INF Treaty. President Obama risked American lives by restricting our military while Russia cheated and built up its systems. When only one party to a two-party treaty is complying, that’s called stupid. [pic.twitter.com/Gb6jaaz3Xe](https://t.co/Gb6jaaz3Xe)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348381601692962816?ref_src=twsrc%5Etfw)
+“女童保护”统计，中共统治下的中国，2019年全年媒体公开报道的性侵儿童(18岁以下)案例301起，受害人数807人，年龄最小的为4岁。2013年至2018年，每年媒体公开报道的儿童被性侵的案例分别是125起、503起、340起、433起、378起、317起(其中，2013年—2017年统计案例为14岁以下儿童，2018年起为18岁以下儿童)。
 
+“女童保护”统计，在301起案例中，熟人作案212起，占比70.43%;陌生人作案82起，占比27.24%;有7起未表明人际关系。熟人作案比例高，从“女童保护”近几年来发布的报告看，熟人作案比例一直居高，最高比例达87.87%。
 
-来源：[https://twitter.com/secpompeo/status/1348381601692962816?s=21](https://twitter.com/secpompeo/status/1348381601692962816?s=21)
-盖特链接：[https://gtv.org/getter/5ffbaee287fabe2daf35eea5](https://gtv.org/getter/5ffbaee287fabe2daf35eea5)
+“女童保护”统计，在301起媒体报道的案例中，表明性侵发生场所的有230起，其中发生在校园、培训机构的有80起，占比34.78%;在施害人住所的有51起，占比22.17%;在小区、村庄、校园附近等户外场所的有31起，占比13.48%;在受害人住所的20起，占比8.70%;在公园、广场、公交等公共场合的有19起，占比8.26%;在宾馆的有18起，占比7.83%;在网络上发生的有11起，占比4.78%。
 
-* * *
+看到这些数据不由得让我叹息，教书育人的学校却成为了这等丧尽天良案件的高发区域。共产党你宣称的天堂为何是这般的肮脏，你用“假”治理这个国家，从根本上破坏了中国人原本的善良淳朴，激发出人最邪恶的一面。你把育人的“园丁”变成了恶魔摧残我们儿女的禽兽和帮凶，把“白衣天使”变成了要命贪财的屠夫，把保护百姓安全的“卫士”变成了镇压百姓的刽子手，你共产党就是这世上恶魔的最大代言人。中国人醒醒吧，看看共产党对我们中国人、我们的孩子都做了什么，如今它已将魔爪伸向了世界和美国，请沉睡的中国人民醒醒吧，联合世界上所有的正义之士消灭恶魔共产党，让光明重新照耀在这片土地。
 
-**【大选实况】1/10/2021/ EST 5:00 pm 蓬佩奧国务卿 推文：**
-
-我们的前任总统根据《 中导条约》单方面解除了我们的武装。 我们说“够了”，并离开了使美国无法防御的单方面协议。 #AmericaFirst
-
-
-
-> Our previous President unilaterally disarmed under the INF Treaty. We said “enough” and left the one-sided deal that made America defenseless. [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/bB5t0fckRx](https://t.co/bB5t0fckRx)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348389151926751232?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/secpompeo/status/1348389151926751232?s=21](https://twitter.com/secpompeo/status/1348389151926751232?s=21)
-盖特链接：[https://gtv.org/getter/5ffbaf1b87fabe2daf35eee8](https://gtv.org/getter/5ffbaf1b87fabe2daf35eee8)
-
-* * *
-
-**【大选实况】1/10/2021 EST 5:30 pm 蓬佩奧国务卿 推文： **
-
-在过去的四年中，美国大胆地揭露了未能履行《化学武器公约》规定义务的国家。
-
-
-
-> Over the last four years, the U.S. has boldly called out countries who have failed to meet their obligations under the Chemical Weapons Convention. [pic.twitter.com/FoiIM0bcLZ](https://t.co/FoiIM0bcLZ)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348396701392859136?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/secpompeo/status/1348396701392859136?s=21](https://twitter.com/secpompeo/status/1348396701392859136?s=21)
-盖特链接：[https://gtv.org/getter/5ffbaf5d87fabe2daf35ef3a](https://gtv.org/getter/5ffbaf5d87fabe2daf35ef3a)
-
-* * *
-
-**【大选实况】1/10/2021 EST 6:00 pm 蓬佩奧国务卿 推文： **
-
-必须用行动来维持条约。 阿萨德对自己的人民施以毒气后，川普总统对叙利亚发动了袭击。 我们是有真正的红线的。
-
-
-
-> Have to back up treaties with action. President Trump took out targets in Syria after Assad gassed his own people. We have real red lines. [https://t.co/PXVSEep0xz](https://t.co/PXVSEep0xz)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348404257196797958?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/secpompeo/status/1348404257196797958?s=21](https://twitter.com/secpompeo/status/1348404257196797958?s=21)
-盖特链接：[https://twitter.com/secpompeo/status/1348404257196797958?s=21](https://twitter.com/secpompeo/status/1348404257196797958?s=21)
-
-* * *
-
-**【大选实况】1/10/2021 EST 7:00 pm 蓬佩奧国务卿 推文： **
-
-条约与结盟一样，可以一直持续到失效。必须始终不断对其有效性进行评估。
-
-
-
-> Treaties, like alliances, can outlast their sell-by-date. Always have to keep evaluating their usefulness. [pic.twitter.com/up8Qtj6gn8](https://t.co/up8Qtj6gn8)
-> — Secretary Pompeo (@SecPompeo) [January 11, 2021](https://twitter.com/SecPompeo/status/1348419350370398209?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/secpompeo/status/1348419350370398209?s=21](https://twitter.com/secpompeo/status/1348419350370398209?s=21)
-盖特链接：[https://gtv.org/getter/5ffbb0b687fabe2daf35f08c](https://gtv.org/getter/5ffbb0b687fabe2daf35f08c)
-
-* * *
-
-**【大选实况】1/10/2021 EST 12:00 pm 蓬佩奧国务卿 推文：**
-
-#有效的多边关系 意味着重新激发活力的四方关系： 美国、澳大利亚、印度及日本之间的四方合作关系 – 思维相似、价值观一致，有益推动自由开放的印度洋-太平洋海域。
-
-
-
-> [#EffectiveMultilateralism](https://twitter.com/hashtag/EffectiveMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) means a reinvigorated Quad: like-minded values-based partnership among the U.S., Australia, India, and Japan, advancing a free & open Indo-Pacific. [pic.twitter.com/Rmqs3nTBTy](https://t.co/Rmqs3nTBTy)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348313657734811654?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1348313657734811654](https://twitter.com/SecPompeo/status/1348313657734811654)
-盖特链接：[https://gtv.org/getter/5ffbb39587fabe2daf35f384](https://gtv.org/getter/5ffbb39587fabe2daf35f384)
-
-
-
-#### **By： 【秘密翻译组 G-Translators】**
+文章内容仅代表作者观点
 
 +1
