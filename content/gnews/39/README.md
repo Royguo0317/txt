@@ -1,114 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/10/2021 条约只有在各方都遵守的情况下才有用; 必须用行动来维持条约&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/739514/)
+## 中共官方删除武汉病毒所石正丽所有研究资料
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/739468/)
 
-**【大选实况】1/10/2021 EST 4:00 蓬佩奧国务卿 推文：**
+加拿大多伦多枫叶农场 优雅
+校对 MyWay 发稿 云起时
+![]()![](https://gnews.org/wp-content/uploads/2021/01/abcnews1-1.jpg)图片来源：ABCNews
+前言：中共官方删除了武汉病毒实验室的大量关键数据，其中包括三百个研究项目的详细资料，这其中包括蝙蝠女石正丽所从事的所有科研项目。在数据删除后，中共国政府面临新的隐瞒疫情的指控，并再次引发了人们对中共试图掩盖调查的担忧，而中共此前就已被指控隐瞒了关于病毒起源的真相。
 
-这是我遵循的另一项外交政策口号#美国优先：条约只有在各方都遵守的情况下才有用。
+据《每日邮报》（Daily Mail)1月9日报道，从事绝密研究的中共武汉病毒研究所把数百页研究项目信息删除，其中包括由国家自然科学基金委员会（NSFC）在网上发布的300多项研究的详细资料（包括许多从动物传人的疾病研究）等都再也无法获取。
 
+中共删除关键证据的行为使人们再次担忧其正试图掩盖对病毒起源的调查。在上周中共国领导人习近平阻止了世界卫生组织的调查人员进入中共国，此举引起了国际社会的谴责。与此同时，中共官方媒体已经发表了数百篇文章，声称该病毒甚至不是起源于武汉市。作为国家自然科学基金委员会清网工作的一部分，武汉病毒所网站已删除所有提及由武汉病毒学家石正丽进行的研究，其中有一项重要研究是关于蝙蝠跨物种感染非典类冠状病毒风险的研究，以及另一项关于蝙蝠携带人类病原体的研究的内容，都已经从网站上消失。
 
+各国议会联盟中共问题成员，前保守党领袖艾恩·邓肯·史密斯（Lain Duncan Smith）于1月8日表示，《每日邮报》所揭露的是中共掩盖事实的另一个证据。他说，中共显然正在试图隐藏证据，而这些证据对于彻查病毒真相至关重要，但中共似乎正在尽一切努阻止调查。我们不知道在那个实验室发生了什么，他们很可能在‘玩’蝙蝠冠状病毒时犯了某种错误。除非中共公开接受审查，否则世界将假定他们隐瞒了真相。
 
-> Here's another foreign policy mantra I've followed to put [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw): Treaties are only useful if all parties adhere to them. [pic.twitter.com/appNKEBfnq](https://t.co/appNKEBfnq)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348374054764486660?ref_src=twsrc%5Etfw)
+中共国试图隐瞒病毒起源的事实真相已经不是第一次了。在世界卫生组织（WHO）于2019年12月接到武汉爆发非典样肺炎病例警报前几天，武汉病毒学研究所开始更改其病毒病原体数据库，这其中尤其野生动物传播的病毒病原体数据库是独一无二的，因为它包含其他野生动物中病毒变体的信息，所以专家认为如果删除了诸如“野生动植物”或“野生动物”之类的关键字会让调查者失去重要线索。与此同时，研究项目的标题还从‘野生动物传播的病毒病原体数据库’更改为‘蝙蝠和啮齿动物传播的病毒病原体数据库’， “野生动物”一词被替换为“蝙蝠和啮齿动物”或“蝙蝠和老鼠”。此外，连接数据库与疫情的其他术语比如原版本中使用的 “新发传染病 “和 “跨物种感染” 等术语也都被删除。
 
+点评：中共为了隐藏病毒源头是来自武病毒研究所P4实验室的真相不择手段，一再销毁证据，删除研究调查记录，阻止其他国家科研人员来武汉源头实地考察等等，正是因为中共一而再再而三的隐瞒疫情真相，导致了中共肺炎在全世界大流行。事到如今，中共政府还一如既往，非但不收手，反而变本加厉的隐瞒真相，可见邪恶的中共为了达到自己的目的把全世界人民的生命玩弄于自己的玩弄于股掌之间。中共欠全世界一个道歉，欠全世界人民一个真相！
 
-来源：[https://twitter.com/secpompeo/status/1348374054764486660?s=21](https://twitter.com/secpompeo/status/1348374054764486660?s=21)
-盖特链接：[https://gtv.org/getter/5ffbae8687fabe2daf35ee41](https://gtv.org/getter/5ffbae8687fabe2daf35ee41)
-
-* * *
-
-**【大选实况】1/10/2021/ EST 4:30 pm 蓬佩奧国务卿 推文： **
-
-《 中导条约》有两个当事方。 奥巴马总统在俄罗斯作弊建立他们自己的系统时却限制了我们的军队，从而把美国人的生命置于危险中。当两方条约只有一方遵守时，这就叫做愚蠢。
-
-
-
-> There were two parties to the INF Treaty. President Obama risked American lives by restricting our military while Russia cheated and built up its systems. When only one party to a two-party treaty is complying, that’s called stupid. [pic.twitter.com/Gb6jaaz3Xe](https://t.co/Gb6jaaz3Xe)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348381601692962816?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/secpompeo/status/1348381601692962816?s=21](https://twitter.com/secpompeo/status/1348381601692962816?s=21)
-盖特链接：[https://gtv.org/getter/5ffbaee287fabe2daf35eea5](https://gtv.org/getter/5ffbaee287fabe2daf35eea5)
-
-* * *
-
-**【大选实况】1/10/2021/ EST 5:00 pm 蓬佩奧国务卿 推文：**
-
-我们的前任总统根据《 中导条约》单方面解除了我们的武装。 我们说“够了”，并离开了使美国无法防御的单方面协议。 #AmericaFirst
-
-
-
-> Our previous President unilaterally disarmed under the INF Treaty. We said “enough” and left the one-sided deal that made America defenseless. [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/bB5t0fckRx](https://t.co/bB5t0fckRx)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348389151926751232?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/secpompeo/status/1348389151926751232?s=21](https://twitter.com/secpompeo/status/1348389151926751232?s=21)
-盖特链接：[https://gtv.org/getter/5ffbaf1b87fabe2daf35eee8](https://gtv.org/getter/5ffbaf1b87fabe2daf35eee8)
-
-* * *
-
-**【大选实况】1/10/2021 EST 5:30 pm 蓬佩奧国务卿 推文： **
-
-在过去的四年中，美国大胆地揭露了未能履行《化学武器公约》规定义务的国家。
-
-
-
-> Over the last four years, the U.S. has boldly called out countries who have failed to meet their obligations under the Chemical Weapons Convention. [pic.twitter.com/FoiIM0bcLZ](https://t.co/FoiIM0bcLZ)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348396701392859136?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/secpompeo/status/1348396701392859136?s=21](https://twitter.com/secpompeo/status/1348396701392859136?s=21)
-盖特链接：[https://gtv.org/getter/5ffbaf5d87fabe2daf35ef3a](https://gtv.org/getter/5ffbaf5d87fabe2daf35ef3a)
-
-* * *
-
-**【大选实况】1/10/2021 EST 6:00 pm 蓬佩奧国务卿 推文： **
-
-必须用行动来维持条约。 阿萨德对自己的人民施以毒气后，川普总统对叙利亚发动了袭击。 我们是有真正的红线的。
-
-
-
-> Have to back up treaties with action. President Trump took out targets in Syria after Assad gassed his own people. We have real red lines. [https://t.co/PXVSEep0xz](https://t.co/PXVSEep0xz)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348404257196797958?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/secpompeo/status/1348404257196797958?s=21](https://twitter.com/secpompeo/status/1348404257196797958?s=21)
-盖特链接：[https://twitter.com/secpompeo/status/1348404257196797958?s=21](https://twitter.com/secpompeo/status/1348404257196797958?s=21)
-
-* * *
-
-**【大选实况】1/10/2021 EST 7:00 pm 蓬佩奧国务卿 推文： **
-
-条约与结盟一样，可以一直持续到失效。必须始终不断对其有效性进行评估。
-
-
-
-> Treaties, like alliances, can outlast their sell-by-date. Always have to keep evaluating their usefulness. [pic.twitter.com/up8Qtj6gn8](https://t.co/up8Qtj6gn8)
-> — Secretary Pompeo (@SecPompeo) [January 11, 2021](https://twitter.com/SecPompeo/status/1348419350370398209?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/secpompeo/status/1348419350370398209?s=21](https://twitter.com/secpompeo/status/1348419350370398209?s=21)
-盖特链接：[https://gtv.org/getter/5ffbb0b687fabe2daf35f08c](https://gtv.org/getter/5ffbb0b687fabe2daf35f08c)
-
-* * *
-
-**【大选实况】1/10/2021 EST 12:00 pm 蓬佩奧国务卿 推文：**
-
-#有效的多边关系 意味着重新激发活力的四方关系： 美国、澳大利亚、印度及日本之间的四方合作关系 – 思维相似、价值观一致，有益推动自由开放的印度洋-太平洋海域。
-
-
-
-> [#EffectiveMultilateralism](https://twitter.com/hashtag/EffectiveMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) means a reinvigorated Quad: like-minded values-based partnership among the U.S., Australia, India, and Japan, advancing a free & open Indo-Pacific. [pic.twitter.com/Rmqs3nTBTy](https://t.co/Rmqs3nTBTy)
-> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348313657734811654?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1348313657734811654](https://twitter.com/SecPompeo/status/1348313657734811654)
-盖特链接：[https://gtv.org/getter/5ffbb39587fabe2daf35f384](https://gtv.org/getter/5ffbb39587fabe2daf35f384)
-
-
-
-#### **By： 【秘密翻译组 G-Translators】**
+[原文链接](https://www.dailymail.co.uk/news/article-9129681/New-cover-fears-Chinese-officials-delete-critical-data-Wuhan-lab.html)
 
 +1

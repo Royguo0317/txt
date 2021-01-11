@@ -1,43 +1,102 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 总统任何时候都在战斗, 从没绝望(第二部分)
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/739535/)
+## 【大选推特/Parler实况】1/10/2021 无声但致命。海军陆战队看到了有史以来最大规模的步枪抑制器的部署&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/739556/)
 
-(内华达州奈伊县主席的一封信, 第三部分)
+**【大选实况】1/10/2021 EST 7:04 pm ZeroHedge 发推：**
 
-译者：文治武力(澳大利亚喜马拉雅)
-
-审稿：Runaway
-![]()![](https://gnews.org/wp-content/uploads/2021/01/donald_trump_2020_keep_america_great_sticker-ra9774ad536c04b218573bc5217412fb9_0ugmp_8byvr_704-2.jpg)图片来源: 网络
-现在你可能会问：”为什么川普还没有逮捕任何人？为什么要一直到国会？”
-
-多重原因：首先，川普一直坚定地遵循法治和宪法。他给每个人，不管多肮脏，都使他们机会做正确的事情（有时会有警告，比如最近与佐治亚州州务卿的电话）。他通过法院推动案件，他向立法机构提交证据，他甚至告诉副总统应该做正确的事情。但随着彭斯和国会的背叛, 现在他（们）的叛国也已经完成，谁也不能说川普没有让这个过程结束后再行动。其次，要想排干沼泽地，你必须知道谁是沼泽地的动物。他们可以很好地混入人群中。但国会大厦的虚假事件暴露了最后的叛徒是谁，不管他们是什么党派。特朗普把他们从藏身之处冲了出来。
-
-我需要花点时间谈谈彭斯。随着他的叛国行为的完成，你们中的许多人可能不知道他在国会大厦那个臭名昭著的日子之前的交易和政治姿态。早在2016年大选季，彭斯就已经在和…等等….Paul 瑞安(Ryan)进行轮番交易了。还记得瑞安吗？那个RINO的众议院议长？看看最近曝光的这些邮件。
-
-[彭斯-瑞安的邮件](https://files.constantcontact.com/899f3f04701/106dc3d3-c645-4215-bdd3-addad65bade2.pdf)
- 
-彭斯还参与了一个在将川普在前四年任期的某个时候赶下台的计划，这个计划由罗森斯坦(Rod Rosenstein)策划，并得到了克林顿家族的支持。计划是：除掉特朗普，彭斯当上总统，然后任命罗森斯坦为新副总统。他们为什么要这么做？因为他们觉得彭斯可以被控制。更多信息请看这些链接的3部分系列。
- 
-[第一部分](https://www.neonrevolt.com/2021/01/06/at-the-highest-levels-part-1-of-3/)
-[第二部分](https://www.neonrevolt.com/2021/01/06/at-the-highest-levels-part-2-of-3/)
-[第三部分](https://www.neonrevolt.com/2021/01/06/at-the-highest-levels-part-3-of-3/)
-
-可以说的更多，但我不想让这封信变得比它已经更像一本书。我只想说，当川普在华盛顿集会上说希望彭斯做正确的事情时，他已经知道自己要做什么，但又是在给这个人选择做正确事情的空间。
-
-现在，没有人比林武德更支持川普了。这个人的职业生涯一直在打诽谤官司，也就是说，无论看起来多么离谱的事情，他都不会在不属实的情况下说出来，因为他知道诽谤的后果。有鉴于此，林武德成了信息的发源地，泄露了一些至今不为人知的信息，揭示了我们最高层办公室的一些腐败和邪恶的深度。就是这个人，最近说未来几天会有逮捕行动。早在6日计票前，他就称彭斯为叛徒。但你知道吗，他还说，总统在国会大厦事件后，与家人乘坐一架 “末日 “飞机（用于核战争时的通讯）离开华盛顿，在德克萨斯州的阿比林。这架飞机被飞行追踪器和地面上的眼睛都证实了。总之，他是一个值得信赖的信息来源。如果你有办法在Parler上关注林武德，我会强烈建议你这么做，以便随时了解发生的事情。 你也可以收听这个播客。
-
-[播客](https://rumble.com/vcjiy9-lin-wood-fireside-chat-6-why-vp-mike-pence-didnt-stand-up-for-the-president.html)
-
-那么, 接下来是什么？
-
-(待续, 请见第三部分)
-
-参考资料
-
-[https://nyegop.org/2021/01/08/a-letter-from-the-chairman/?v=7516fd43adaa](https://nyegop.org/2021/01/08/a-letter-from-the-chairman/?v=7516fd43adaa)
+佩洛西将通过援引第25修正案的立法，然后启动弹劾程序
 
 
+
+> Pelosi Will Pass Legislation Invoking 25th Amendment, Then Launch Impeachment Process [https://t.co/IA1AfkmxQr](https://t.co/IA1AfkmxQr)
+> — zerohedge (@zerohedge) [January 11, 2021](https://twitter.com/zerohedge/status/1348420505859223553?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/zerohedge/status/1348420505859223553](https://twitter.com/zerohedge/status/1348420505859223553)
+盖特链接：[https://gtv.org/getter/5ffbde1787fabe2daf3623bd](https://gtv.org/getter/5ffbde1787fabe2daf3623bd)
+
+* * *
+
+**【大选实况】1/10/2021 EST 7:35 pm ZeroHedge 发推：**
+
+拜登说，他将在执政期间“打败全国步枪协会”
+
+
+
+> Biden Says He Will 'Defeat the NRA' While In Office [https://t.co/8knUPKfsUR](https://t.co/8knUPKfsUR)
+> — zerohedge (@zerohedge) [January 11, 2021](https://twitter.com/zerohedge/status/1348428311085666313?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/zerohedge/status/1348428311085666313](https://twitter.com/zerohedge/status/1348428311085666313)
+盖特链接：[https://gtv.org/getter/5ffbdbe387fabe2daf362177](https://gtv.org/getter/5ffbdbe387fabe2daf362177)
+
+* * *
+
+**【大选实况】1/10/2021 EST 8:42 pm ZeroHedge 发推：**
+
+华盛顿的混乱可能会增加北京的尾部风险（出现极端情况）
+
+
+
+> Washington Chaos May Raise Tail Risks For Beijing [https://t.co/ep88EwKLOB](https://t.co/ep88EwKLOB)
+> — zerohedge (@zerohedge) [January 11, 2021](https://twitter.com/zerohedge/status/1348445167771119622?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/zerohedge/status/1348445167771119622](https://twitter.com/zerohedge/status/1348445167771119622)
+盖特链接：[https://gtv.org/getter/5ffbdafa87fabe2daf36206e](https://gtv.org/getter/5ffbdafa87fabe2daf36206e)
+
+* * *
+
+**【大选实况】1/10/2021 EST 10:33pm 闫博士 Dr Li-Meng Yan 发推： **
+
+关于武汉实验室的300个重要研究数据消失，包括有关的“蝙蝠女侠”所完成的—每日邮件，这恐怕是中共政府的又一掩盖事实的举措。
+
+图片文字翻译：自从疫情爆发以来如此长的时间，CCP要破坏掉那里所有的证据，并伪造文件/数据，甚至重建实验室以欺骗全世界。
+
+
+
+> Still shocked by 
+> “ New cover-up fears as Chinese officials delete critical data about the Wuhan lab with details of 300 studies vanishing – including all those carried out by virologist dubbed Batwoman — Daily Mail”? 👇🏻 [pic.twitter.com/6Xv9AZtJbX](https://t.co/6Xv9AZtJbX)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [January 11, 2021](https://twitter.com/DrLiMengYAN1/status/1348473010693529600?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/DrLiMengYAN1/status/1348473010693529600?s=20](https://twitter.com/DrLiMengYAN1/status/1348473010693529600?s=20)
+盖特链接：[https://gtv.org/getter/5ffbd07987fabe2daf36150c](https://gtv.org/getter/5ffbd07987fabe2daf36150c)
+
+* * *
+
+**【大选实况】1/10/2021 EST 11:20 pm ZeroHedge 发推：**
+
+无声但致命。海军陆战队看到了有史以来最大规模的步枪抑制器的部署
+
+
+
+> Silent But Deadly: Marines See Biggest Deployment Of Rifle Suppressors Ever [https://t.co/8QofJKoeqD](https://t.co/8QofJKoeqD)
+> — zerohedge (@zerohedge) [January 11, 2021](https://twitter.com/zerohedge/status/1348484925251588102?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/zerohedge/status/1348484925251588102?s=20](https://twitter.com/zerohedge/status/1348484925251588102?s=20)
+盖特链接：[https://gtv.org/getter/5ffbd6fc87fabe2daf361c31](https://gtv.org/getter/5ffbd6fc87fabe2daf361c31)
+
+* * *
+
+**【大选实况】1/10/2021 EST 11:45 pm ZeroHedge 发推：**
+
+中央情报局改头换面: 别担心，我们醒了
+
+
+
+> The CIA Rebranded: Don't Worry, We're Woke Now! [https://t.co/D6yfbEMQ6x](https://t.co/D6yfbEMQ6x)
+> — zerohedge (@zerohedge) [January 11, 2021](https://twitter.com/zerohedge/status/1348491218909589504?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/zerohedge/status/1348491218909589504](https://twitter.com/zerohedge/status/1348491218909589504)
+盖特链接：[https://gtv.org/getter/5ffbdb5487fabe2daf3620cf](https://gtv.org/getter/5ffbdb5487fabe2daf3620cf)
+
+* * *
+
+**By： 【秘密翻译组 G-Translators】**
 
 +2
