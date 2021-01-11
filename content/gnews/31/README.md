@@ -1,62 +1,169 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国防部官员拒绝参与军事政变，川普仍为总司令
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/739946/)
+## 💥美国政要每日推特重要信息汇总 （2021.1.11）
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/740169/)
 
-*新闻来源：《西方杂志（WesternJournal）》； 作者：基普·琼斯； 发布时间：January 9, 2021 /2021年1月9日*
+信息汇总采编：英喜庄园G-News编辑部；Page：拱卒
+[!\[\]()!\[\](https://spark.adobe.com/page/pd2cq2hgD2Pwt/images/04c6fa8d-059f-4510-b775-b224d8685e26.jpg?asset_id=a23fd044-3919-40f4-93fe-9bf445d43a93&amp;img_etag=%22d0edf5b23339751ce7e74f6b3d10886b%22&amp;size=1024)](https://spark.adobe.com/page/pd2cq2hgD2Pwt/images/04c6fa8d-059f-4510-b775-b224d8685e26.jpg?asset_id=a23fd044-3919-40f4-93fe-9bf445d43a93&amp;img_etag=%22d0edf5b23339751ce7e74f6b3d10886b%22&amp;size=1024)
+**经授权转载自：**
 
-*翻译/简评：随波逐流；校对：X-Wing飞得更高；审核：万人往；Page：Daoiii*
-[!\[\]()!\[\](https://spark.adobe.com/page/qeNHOCqg29BiU/images/9ce535cc-0b1a-4818-8b9d-9c15d9abf7cd.jpg?asset_id=097c15c6-ab7c-4c06-8a73-ab11526dfd9b&amp;img_etag=%2254a5dea9c17c483e5248ab3c0f1996aa%22&amp;size=2560)](https://spark.adobe.com/page/qeNHOCqg29BiU/images/9ce535cc-0b1a-4818-8b9d-9c15d9abf7cd.jpg?asset_id=097c15c6-ab7c-4c06-8a73-ab11526dfd9b&amp;img_etag=%2254a5dea9c17c483e5248ab3c0f1996aa%22&amp;size=1024)陆军参谋长联席会议主席马克-米利将军（左二）等人在聆听特朗普总统10月与军方高级领导人会晤时的讲话。 BRENDAN SMIALOWSKI / AFP VIA GETTY IMAGES。
-***简评：***
+- 川普等政要…直译推 twitter：[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
+- 川普等政要…直译推 Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
+- 川普等政要…直译推GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
 
-据一份报告称，在周三国会大厦入侵事件发生之后，民主党人和建制派媒体发起了使唐纳德·川普总统非法化的运动，尽管众议院议长南希·佩洛西致电参谋长联席会议主席陆军上将马克·米尔利（Mark A. Milley），要求限制总统掌握该国核武器的权力，但国防部官员仍坚持不受外界压力影响，并继续承认他是总司令，同时避免参加“军事政变”。
 
-从这件事可以看出一个民主法治国家的伟大，它仍然拥有独裁国家不具备的牢固宪法基础和优良的政权结构。美国军方的明确表态说明美国仍是一个敬畏宪法的民主法治国家，一个法制完善的政体的优势显而易见，没有人敢超越法律滥用权力，更不会发生“党指挥枪”的事情。无论对方是总统或者是参议院议长，军方将领都严守法律规定,完全没有倾向任何一方，沦为党派之间政治斗争、打压迫害政治对手的工具。反对派无法非法越权拉川普下台，军方也没有人因为所谓的“抗命”而被撤职。而川普总统在面对选举欺诈、对手逼宫时，也没能把政敌关进大牢折磨致死。在面对推特、Facebook、YouTube等媒体对他的大规模封杀时，川普总统没有像中共一样不走法律程序直接实施抓捕、逼供甚至灭口行动，一切都在法律框架下运行。
+**简评：**
 
-在类似中共国、朝鲜、委内瑞拉等独裁国家，一个国家的领袖怎会遭受如此对待并拖了这么久还没有结果？肯定不是灭了对方就是被对方灭掉。在中共国，个人或少数当权派拥有绝对的政治权力，而且不受法律约束。军队只服从于少数统治者，是纯粹的党卫军，拥有军方力量作为保障可以为所欲为。掌握行政权的官员不遵守法律，掌握司法权的审判员没有独立司法权，而“人民代表”既不代表民意，也没有足够的监督和罢免权。因此有了毛泽东发动“文化大革命“打倒对手刘少奇和邓小平，也有习近平抓捕政敌薄熙来，肃清其党羽郭伯雄和徐才厚。还有动用军方制造的六四“大屠杀”和自2019年以来对香港民主运动的残酷镇压。当权者打一通电话或者下发一道命令，都可以轻易改变对手的命运，甚至百姓的生活或国家的未来。
+川普团队依然被大科技垄断集团打压，从推特封杀，到团队电子邮件服务被停止，Stripe汇款被停止，到川普14岁小儿子Barron Trump的推特被秒封；但我们看到依然有正义议员发出声音，纳瓦罗直呼CCP Virus中共病毒，彭培奥连续3篇推文提到化学武器，为定性中共制造生化武器造势。
 
-就利用互联网和科技技术审查、宣传、打压、控制和扭曲信息而言，中国共产党可以说是最老练的政权。即使在中共的强大腐蚀下，在病毒肆虐的打击下，美国的民主制度被削弱，政治自由、选举自由、言论自由、国家三权分立出现倒退，但美国的法治根基仍尚存，又有大多数有信仰、有良知的正义人士的守护，国家秩序一定会重回正常轨道。因为一切惩治腐败、打击犯罪的活动都要依法进行，所以过程有些缓慢曲折。但正义终将战胜邪恶，共产党一定会彻底覆灭，民主自由之光将重新闪耀世界。
+#### 众议员兰斯·古登：
 
-***原文翻译：***
+伊朗(最高领袖)哈梅內伊可以发推特。委内瑞拉独裁者马杜罗可以发推特。中共国的宣传机构可以发推特。
 
-## 国防部官员确认川普仍为总司令，拒绝参加军事政变赶他下台
+推特Twitter封禁川普，并不是因为他们担心谎言和暴力。推特Twitter封禁川普，是因为他们想控制我们的言论、阅读内容和思想！
 
-据一份报告称，尽管在周三国会大厦入侵事件之后，民主党人和建制派媒体发起了使唐纳德·川普总统非法化的运动，但国防部官员仍坚持不受外界压力影响，继续承认他是总司令，同时避免参加“军事政变”。
 
-周五有广泛报道称，众议院议长南希·佩洛西（Nancy Pelosi）要求参谋长联席会议主席、陆军上将马克·米尔利（Mark A. Milley）限制川普总统对包含美国庞大的核武器库的发射代码，被称为美国的“核足球”的控制权。
 
-佩洛西打电话给米尔利，要求他无视川普发出的使用这些代码的命令。目前尚不清楚是什么引发了给米尔利的这通电话。川普似乎不存在任何具体威胁，这表明这通电话是出于政治目的。
+> Iranian Ayatollah Ali Khamenei can tweet.
+> 
+> Venezuelan Dictator Nicolas Maduro can tweet.
+> 
+> Chinese propaganda outlets can tweet.
+> 
+> Twitter didn't ban Trump because they're worried about lies & violence.
+> 
+> Twitter banned Trump because they want to CONTROL what we say, read and think!
+> — Lance Gooden (@Lancegooden) [January 10, 2021](https://twitter.com/Lancegooden/status/1348058108329750528?ref_src=twsrc%5Etfw)
 
-据说这位加州民主党人告诉米尔利，她想限制总统在任期的最后几天对国际威胁作出回应。
 
-美国国家公共广播电台（NPR）报道，佩洛西告诉民主党同事，她曾与米尔利谈过“为防止不稳定的总统发起军事敌对行动或启用发射代码下令进行核打击而采取的可能预防措施。”
 
-佩洛西写道：“这位精神错乱的总统的状况……无比危险，我们必须尽一切努力保护美国人民，以避免他对我们国家和民主发动突然袭击。”
-[!\[\]()!\[\](https://spark.adobe.com/page/qeNHOCqg29BiU/images/129101b1-8d15-4328-896c-9013b7790c67.jpg?asset_id=044f12e0-a5f9-4538-a49b-9574f87b85e3&amp;img_etag=%2251d66265ac8563e0e08d5c2ab1ae525d%22&amp;size=1024)](https://spark.adobe.com/page/qeNHOCqg29BiU/images/129101b1-8d15-4328-896c-9013b7790c67.jpg?asset_id=044f12e0-a5f9-4538-a49b-9574f87b85e3&amp;img_etag=%2251d66265ac8563e0e08d5c2ab1ae525d%22&amp;size=1024)
-但据《纽约时报》报道，五角大楼在党派争吵中保持中立。
+#### 贸易顾问皮特·纳瓦罗：
 
-来自米尔利发言人戴夫·巴特勒（Dave Butler）上校的一份声明向《泰晤士报》证实，有发生这个通话。
+杀害美国人的 #CCP 病毒是否来自生化武器实验室？它是被基因工程处理过的吗？随着中共官员删除了武汉实验室的关键数据，新一轮掩盖事实的恐惧开始了。【转推每日邮报文章，与绝密武汉病毒研究所进行的研究有关的数百页信息已被抹去。】
 
-巴特勒说：“ [米尔利]回答了她有关核指挥授权程序的问题。”
 
-据《泰晤士报》记者戴维·桑格（David Sanger）和埃里克·施密特（Eric Schmitt）报道，该报也与其他五角大楼官员进行过交谈，据说他们对参与佩洛西的政治竞赛犹豫不决。
 
-据桑格和施密特报道，“五角大楼的官员们指出，川普先生仍然是总司令；除非他被免职，否则军方必须服从他的合法命令。尽管军事官员可以拒绝执行他们认为是非法的命令 — 或者通过对发出的这些命令进行仔细的法律审查来拖延流程 — 但他们无法将总统从指挥系统中移除。官员们说，那等同于一场军事政变。”
+> Did the ccp virus killing americans come from a bioweapons lab? Was it genetically engineered?
+> 
+> New cover-up fears as Chinese officials delete critical data about the Wuhan lab | Daily Mail Online [https://t.co/z1fnmj0z4P](https://t.co/z1fnmj0z4P)
+> — Peter Navarro (@RealPNavarro) [January 10, 2021](https://twitter.com/RealPNavarro/status/1348265980913446914?ref_src=twsrc%5Etfw)
 
-《泰晤士报》还报道：“官员们最担心的一个问题是伊朗宣布已开始将铀浓缩至20％的纯度 — 接近制造炸弹的质量。去年12月，川普先生要求采取军事选项以应对伊朗不断增长的核燃料生产，但包括米尔利将军和国务卿迈克·彭培奥（Mike Pompeo）在内的许多高级官员都说服他放弃了军事选项。
 
-佩洛西和其他民主党人利用周三在国会大厦发生的事件来证明对川普的追究是正确的，他们已发出信号，在川普执政的最后几天里，根据他们多年来散布的对川普精神状态的担忧，他们打算对川普进行精准的政治报复。
 
-民主党人还宣布，他们计划再次弹劾总统，有传言称，在总统任期剩下不到两周的情况下，他们可能试图通过第二十五条修正案将他免职。
+#### 国务卿彭培奥：
 
-据报道，自周三以来，其他民主党议员也对米尔利施加了压力。但目前，据称军方拒绝了他们，并打算继续保持政治中立。
+- 我高兴地接受了约瑟夫·博雷尔·丰特莱斯 @JosepBorrellF （欧盟高级代表，主管外交和安全）发起的就 #中共国 进行美欧对话的提议。北京是我们这个时代的挑战。我们于2020年10月启动了这项工作。#有效的多边关系主义 #EffectiveMultilateralism https://go.usa.gov/xAXhd
 
-川普仍然是政府中唯一有能力直接下令采取军事行动并有权使用美国核武库的人。任何企图否认他执行国家安全主席职责的工具都是非法的，除非援引了第二十五条修正案，或者他向五角大楼官员发出的任何命令被认定为非法。
 
-当选总统拜登将在1月20日就职，届时，他将被授权指挥国家军事和核武库。
 
-[原文链接](https://www.westernjournal.com/defense-officials-confirm-trump-still-commander-chief-refuse-participate-military-coup-oust/)
+
+> I happily accepted [@JosepBorrellF](https://twitter.com/JosepBorrellF?ref_src=twsrc%5Etfw)’s offer to start a U.S.-EU Dialogue on China. Beijing is the challenge of our time. We launched the effort in Oct. 2020. [#EffectiveMultilateralism](https://twitter.com/hashtag/EffectiveMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/aJNYocsn4g](https://t.co/aJNYocsn4g) [pic.twitter.com/m3qfLdVwGW](https://t.co/m3qfLdVwGW)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348358952765976576?ref_src=twsrc%5Etfw)
+
+
+
+- 有效的多边关系 #EffectiveMultilateralism 意味着重振四方：美国，澳大利亚，印度和日本之间基于价值观念的伙伴关系，推动了自由开放的印度太平洋地区的发展。
+
+
+
+
+> [#EffectiveMultilateralism](https://twitter.com/hashtag/EffectiveMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) means a reinvigorated Quad: like-minded values-based partnership among the U.S., Australia, India, and Japan, advancing a free & open Indo-Pacific. [pic.twitter.com/Rmqs3nTBTy](https://t.co/Rmqs3nTBTy)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348313657734811654?ref_src=twsrc%5Etfw)
+
+
+
+- 花了很多时间与东盟 @ASEAN 合作，支持他们在南中国海为对抗 #中共国 恶性影响而作出的努力。【转东盟2020越南高峰会的推文】
+
+
+
+
+> Spent a lot of time working with [@ASEAN](https://twitter.com/ASEAN?ref_src=twsrc%5Etfw), supporting their efforts to stand up to China's malign influence in the South China Sea. [#RealSovereignty](https://twitter.com/hashtag/RealSovereignty?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/IUmzD7OksC](https://t.co/IUmzD7OksC)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348328910174515209?ref_src=twsrc%5Etfw)
+
+
+
+- 发起湄公河与美国合作伙伴关系 #MekongUSPartnership，以确保一个有主权和繁荣的湄公河地区……并遏制 #中共 的恶性活动。（附目前美国政府对湄公河地区伙伴提供的各项资助）
+
+
+
+
+> Launched the [#MekongUSPartnership](https://twitter.com/hashtag/MekongUSPartnership?src=hash&amp;ref_src=twsrc%5Etfw) to ensure a sovereign and prosperous Mekong region…and push back on malign CCP activity. [pic.twitter.com/feyfleJVAQ](https://t.co/feyfleJVAQ)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348336304174481408?ref_src=twsrc%5Etfw)
+
+
+
+- 我们高度重视被以前的（美）政府忽略了的中亚。重又振兴了C5（中亚五国） + 1（美国）模式，以增强该地区的独立性和连通性。#LeadingFromTheFront
+
+
+
+
+> Big focus on Central Asia, also neglected in prior administrations. Reinvigorated the C5+1 to strengthen the region’s independence and connectivity. [#LeadingFromTheFront](https://twitter.com/hashtag/LeadingFromTheFront?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/4BFwJXiX4s](https://t.co/4BFwJXiX4s)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348343855653990408?ref_src=twsrc%5Etfw)
+
+
+
+- 在欧洲，我们承诺通过美国国际金融公司 @DFCgov 为三海倡议 #ThreeSeas 投入近10亿美金。加强能源，数字和交通基础设施，增强俄罗斯和中国所针对地区的经济安全。
+
+
+
+
+> In Europe, we committed up to $1 billion through [@DFCgov](https://twitter.com/DFCgov?ref_src=twsrc%5Etfw) for the [#ThreeSeas](https://twitter.com/hashtag/ThreeSeas?src=hash&amp;ref_src=twsrc%5Etfw) Initiative. Strengthening energy, digital, and transportation infrastructure, bolstering economic security in a region targeted by Russia and China. [pic.twitter.com/3WEImq3wrd](https://t.co/3WEImq3wrd)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348351403543072769?ref_src=twsrc%5Etfw)
+
+
+
+- 这是我遵循的另一项确保美国优先 #AmericaFirst 的外交政策口号：条约只有在各方都遵守的情况下才有用。
+
+
+
+
+> Here's another foreign policy mantra I've followed to put [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw): Treaties are only useful if all parties adhere to them. [pic.twitter.com/appNKEBfnq](https://t.co/appNKEBfnq)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348374054764486660?ref_src=twsrc%5Etfw)
+
+
+
+- 在过去的四年中，美国大胆地点名指出了那些未能履行《化学武器公约》规定的义务的国家。
+
+
+
+
+> Over the last four years, the U.S. has boldly called out countries who have failed to meet their obligations under the Chemical Weapons Convention. [pic.twitter.com/FoiIM0bcLZ](https://t.co/FoiIM0bcLZ)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348396701392859136?ref_src=twsrc%5Etfw)
+
+
+
+- 美国还解密了有关伊朗使用化学武器的信息. #NoImpunity https://go.usa.gov/xA5q5
+
+
+
+
+> The U.S. also declassified information on Iran's use of chemical weapons. [#NoImpunity](https://twitter.com/hashtag/NoImpunity?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/JFFC4MSGIX](https://t.co/JFFC4MSGIX)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348411800572764160?ref_src=twsrc%5Etfw)
+
+
+
+- 必须以行动支持条约。在阿萨德向自己的人民施放毒气后，川普总统清除了叙利亚境内的目标。我们有真正的红线。（链接是2018年的文章大意是：美国，法国和英国部队于2018年4月13日联合发动精确打击，打击叙利亚的化学武器能力，以阻止阿萨德使用国际禁止的化学武器。）
+
+
+
+
+> Have to back up treaties with action. President Trump took out targets in Syria after Assad gassed his own people. We have real red lines. [https://t.co/PXVSEep0xz](https://t.co/PXVSEep0xz)
+> — Secretary Pompeo (@SecPompeo) [January 10, 2021](https://twitter.com/SecPompeo/status/1348404257196797958?ref_src=twsrc%5Etfw)
+
+
+
+- 对也门的胡希运动 (Ansarallah，Houthi movement)是恐怖分子的认定，正面临着它的恐怖活动，并寻求伊朗政权在该地区阻挠进一步的恶意行径。
+
+
+
+
+> Terrorist designations of Ansarallah in Yemen confront its terrorist activity and seeks to deter further malign activity by the Iranian regime in the region.
+> — Secretary Pompeo (@SecPompeo) [January 11, 2021](https://twitter.com/SecPompeo/status/1348490896891850754?ref_src=twsrc%5Etfw)
+
+
+
+编辑：【英国伦敦喜庄园编辑部】
 
 [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -64,8 +171,6 @@
 
 [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-编辑：【英国伦敦喜庄园编辑部】- [点击spark adobe版](https://spark.adobe.com/page/qeNHOCqg29BiU/)
+[!\[\]()!\[\](https://spark.adobe.com/page/pd2cq2hgD2Pwt/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)](https://spark.adobe.com/page/pd2cq2hgD2Pwt/images/ed396ed1-c4c9-481c-8050-f7ef67af911c.jpg?asset_id=a15f5bd3-d3c6-4718-a79d-d40072470dcb&amp;img_etag=%2287cca45a0ed56e30577f023332305142%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/qeNHOCqg29BiU/images/cd2085df-a745-42d1-bbad-f1ae788e5457.jpg?asset_id=b4b3c8ad-6169-4723-b778-bf6dac20f5ed&amp;img_etag=%2234e372e20c5705b800bceb7a814f6e38%22&amp;size=1024)](https://spark.adobe.com/page/qeNHOCqg29BiU/images/cd2085df-a745-42d1-bbad-f1ae788e5457.jpg?asset_id=b4b3c8ad-6169-4723-b778-bf6dac20f5ed&amp;img_etag=%2234e372e20c5705b800bceb7a814f6e38%22&amp;size=1024)
-
-+1
+0
