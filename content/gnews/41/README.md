@@ -1,29 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 掩耳盗铃：中共官员删除武汉实验室数据，抹去了冠状病毒的研究
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/739277/)
+## 【台国际空间】拆解美台关系全面禁忌的紧箍咒，阻中共武力攻台意图
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/739400/)
 
-翻译：康州盘古农场 – 黎明的光芒
+台灣農場(籌備)   一葉一菩提
 
-校对：康州盘古农场 – Antsee-GTV
+美国国务卿蓬佩奥于美东时间周六（1月9日）宣布，取消对美国行政部门机构与台湾同行互动的所有自我限制。声明中也说明了，之前美国国务院单方面制定了复杂的内部限制，管制外交官、军人和其他官员与台湾同行的互动，是为了安抚北京的共产党政权。他强调，“不会再这样了。”，也随即在他的推文中强调，“此举将使得我们两个伟大的民主政体受益。”
+![]()![](https://gnews.org/wp-content/uploads/2021/01/圖片-1-15.png)
+从历史的轨迹来看，之前，或许是政客间的协议？！或许是期待苏俄解体之后，中共能民主化，而做的自我限制？！但这自我限制却助长了中共的有恃无恐，恣意妄为，让中共的蓝金黄侵蚀了美国、侵蚀了全世界，也让这次美国的大选，遭受了前所未有的冲击。冲击中，觉醒的力量面对严峻的疫情和经济，大部分的选民仍以选票展示反共的决心，但却在现实的社会中，不敌那少数邪恶的做票力量，最后邪恶赢了表面的总统大选。
 
-编辑：康州盘古农场 – Rose
+还有约莫10天，期待川普阵营能出奇招翻转结果之际，坚定的反共的盟友美国国务卿蓬佩奥仍本着初衷，锲而不舍的宣布，取消对美国行政部门机构与台湾同行互动的所有自我限制。吓阻了中共对台侵犯的野心，也替全世界筑起了自由民主的高墙。
 
-![wuhan](https://lh4.googleusercontent.com/hXBcdAmZ7eCtZykn_ug9rm0uzfLUdMZWMhDY_v5tXK3hHmwQ__8jHHEbM-MlWAcF72xiV7cg34SUn6C58y-gigpCNlG2DHe6ymSe_BlIg1r1YDFdGLoa_nq9CSeeHtYKxUKuq1_BAC3xHJMQ6Q)*武汉病毒学研究所已经从其网站上删除了数百项研究，似乎是又一次掩盖中共COVID-19证据的努力。*
+如同他2018年4月25日宣誓就职时，坚定地表示，国务院将“向全世界展示美国最好的风貌”，努力“通过坚持不懈的外交，实现总统的对外政策目标，避免让年轻的男男女女走上战场”。
 
+這就是郭文貴先生所説的，“真男兒！”
 
+參考新聞
+[https://www.epochtimes.com/b5/21/1/10/n12679165.htm](http://	https://www.epochtimes.com/b5/21/1/10/n12679165.htm%20	https://www.ait.org.tw/zhtw/meet-mike-pompeo-the-new-secretary-of-state-zh/)
 
-国家自然科学基金（NSFC）缺失了300多项研究的详细信息，其中许多研究的重点是研究从动物传播给人类的疾病。
+[https://www.ait.org.tw/zhtw/meet-mike-pompeo-the-new-secretary-of-state-zh/](http://	https://www.epochtimes.com/b5/21/1/10/n12679165.htm%20	https://www.ait.org.tw/zhtw/meet-mike-pompeo-the-new-secretary-of-state-zh/)
 
-国家自然科学基金会还删除了所有由武汉病毒学家石正丽进行的研究的参考资料，石正丽被称为“蝙蝠女”，因为她经常深入蝙蝠洞采集样本。
-
-当2019年12月新冠病毒COVID-19开始广泛传播时，武汉实验室开始更改其病毒病原体数据库，之后出现了上述数据清除事件。
-
-原文作者：娜塔莉•温特斯（[NATALIE WINTERS](https://thenationalpulse.com/author/natalie-winters/)）/ 《国家脉动》）
-
-发布日期：1/1/2021
-
-原文链接：[https://thenationalpulse.com/breaking/ccp-wipes-covid-data/](https://thenationalpulse.com/breaking/ccp-wipes-covid-data/)
-
-+1
+0

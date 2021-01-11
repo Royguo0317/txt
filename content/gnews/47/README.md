@@ -1,33 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## G系列堪比二战中立国—瑞典
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/733972/)
+## 掩耳盗铃：中共官员删除武汉实验室数据，抹去了冠状病毒的研究
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/739277/)
 
-撰稿：两万五，爆大料
+翻译：康州盘古农场 – 黎明的光芒
 
-审稿：光耀华夏
-![]()![](https://gnews.org/wp-content/uploads/2021/01/图片2-2.png)网络截图
-今天七哥在盖特上爆猛料，把新中国联邦比做第二次世界大战的中立国瑞典，把G系列比作辛普朗隧道。在探讨G系列的战略地位前，我们先看看二战时瑞典和辛普朗隧道的价值。
+校对：康州盘古农场 – Antsee-GTV
 
-二战时，纳粹德国的帝国银行90％的黄金交易就是通过瑞士银行进行的。在瑞士银行的“帮助”下，希特勒得到了宝贵的外汇，从而在世界市场上购买维持战争的重要物资。而辛普朗隧道承担着德国和意大利两国之间战略物资的输送。此外，罗马教廷1000多年积累的财富也存在于瑞士银行中，这就保证了瑞士避免两次世界大战的影响。
+编辑：康州盘古农场 – Rose
 
-在目前CCP发动的超限战中，涉及金融战，媒体战等。先从金融角度剖析G系列的价值。第一个作用就是确保资本安全。这场中美大战中，灭共势力、亲共势力在利用各种消息进行金融博弈，战场就在股票、期货等金融衍生品上。目前双方认为自己代言人为下届总统，但也要留后路，万一形势不对，这就需要将钱存在安全的地方，避免秋后算账。这时G-dollar和G-coin可以作为蓄水池容纳大量资本，而且考虑到G-coin的加密属性，就可以将G-dollar和G-coin比作数字世界的瑞士银行！
+![wuhan](https://lh4.googleusercontent.com/hXBcdAmZ7eCtZykn_ug9rm0uzfLUdMZWMhDY_v5tXK3hHmwQ__8jHHEbM-MlWAcF72xiV7cg34SUn6C58y-gigpCNlG2DHe6ymSe_BlIg1r1YDFdGLoa_nq9CSeeHtYKxUKuq1_BAC3xHJMQ6Q)*武汉病毒学研究所已经从其网站上删除了数百项研究，似乎是又一次掩盖中共COVID-19证据的努力。*
 
-第二作用是保证资本的流动。金融战离不开美元的支持。Swift系统有追溯性，导致大资本在运作中的暴露，万一银行账号被冻结了，严重程度就如打仗缺粮。而G-coin虚拟货币避免了这个缺点。目前比特币涨破4万美元，就说明了黑钱在大量流动。拥有体量更大的G-dollar和G-coin，可以更加隐蔽地进行资金运作。
 
-接下来再从媒体战角度分析GTV、GNEWS的价值。目前川普团队在推特、FACEBOOK上接连被封号，这就造成信息沟通的闭塞。路德社曾谈到过，如果美国紧急广播系统（FCC）声音被媒体封杀，情况是多么的恐怖。这就需要有独立的媒体发声平台。目前OANN、Newsmax、C-SPAN等有良知的美国的有线电视台受限于地域的局限性，造成正确信息不能全面地传导到整个美国。而GTV、GNEWS一旦与天空WIFI（马斯克的星链）联合，正义的信息就可以传播到全球各个角落。这可以将GTV、GNEWS看做数字世界的辛普朗隧道！
 
-今天七哥将这么重磅的消息公布，说明都谈好了！战友们，大家高兴吧！
+国家自然科学基金（NSFC）缺失了300多项研究的详细信息，其中许多研究的重点是研究从动物传播给人类的疾病。
 
-（本文仅代表个人观点）
+国家自然科学基金会还删除了所有由武汉病毒学家石正丽进行的研究的参考资料，石正丽被称为“蝙蝠女”，因为她经常深入蝙蝠洞采集样本。
 
-视频链接：[https://gtv.org/getter/5ff87ef787fabe2daf334567](https://gtv.org/getter/5ff87ef787fabe2daf334567)
+当2019年12月新冠病毒COVID-19开始广泛传播时，武汉实验室开始更改其病毒病原体数据库，之后出现了上述数据清除事件。
 
-澳喜文章: [https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+原文作者：娜塔莉•温特斯（[NATALIE WINTERS](https://thenationalpulse.com/author/natalie-winters/)）/ 《国家脉动》）
 
-欢迎加入澳喜农场：
+发布日期：1/1/2021
 
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/澳喜图标.png)
+原文链接：[https://thenationalpulse.com/breaking/ccp-wipes-covid-data/](https://thenationalpulse.com/breaking/ccp-wipes-covid-data/)
+
 +1
