@@ -1,29 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/9/2021 苹果和谷歌正在审查（移除）其他的数字平台（Parler)&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/738500/)
+## 【热点播报】“煽动叛乱”为由，封杀川普
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/738640/)
 
-**【大选实况】1/9/2021 EST 11:00PM Steve Cortes 推文： **
+作者： 香草山写作组 遍地开花
 
-依然和我们的总统站在一起！
-![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-63.jpg)来源：[https://twitter.com/cortessteve/status/1348117428199432195?s=21](https://twitter.com/cortessteve/status/1348117428199432195?s=21)
-盖特链接：[https://gtv.org/getter/5ffb593d87fabe2daf358c14](https://gtv.org/getter/5ffb593d87fabe2daf358c14)
-
-**【大选实况】 1/9/2021 EST 11:18AM Rob Schneider 推文**：
-
-随着Twitter 和Facebook带头开始审查言论，苹果和谷歌正在审查（移除）其他的数字平台（Parler)，因为它不对言论进行审查。我希望你们现在能够意识到真正视觉上的德国国会纵火案（Reichstag国会大楼已被烧毁）。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-64.jpg)来源：[https://twitter.com/robschneider/status/1347940880192208899?s=21](https://twitter.com/robschneider/status/1347940880192208899?s=21)
-盖特链接：[https://gtv.org/getter/5ffb5e1187fabe2daf359151](https://gtv.org/getter/5ffb5e1187fabe2daf359151)
-
-**【大选实况】 1/9/2021 EST 12:31PM Richard Grenell 推文：**
-
-嘿！乔·拜登和卡马拉·哈里斯，你们在告诉其他国家不能禁言、审查和关闭他们政治对手言论的时候，祝你们好运。这是美国品牌的危机，而你们暂时为危机带来的权力而狂欢。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-65.jpg)来源：[https://twitter.com/richardgrenell/status/1347959315236151296?s=21](https://twitter.com/richardgrenell/status/1347959315236151296?s=21)
-盖特链接：[https://gtv.org/getter/5ffb5f3a87fabe2daf3592c7](https://gtv.org/getter/5ffb5f3a87fabe2daf3592c7)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 
-By： 【秘密翻译组G-Translators–北美组】
 
-0
+
+据1月9日世界日报摘要“川普总统6日煽动暴民强闯国会，引起全美公愤，继脸书永久停止川普账号后，作为川普多年来散播不实讯息与操弄民粹的主要工具推特，8日也以违反规则、担心煽动暴乱为由，停用川普的@rea1Dona1dTrump私人账号”。
+![]()![](https://cdn.discordapp.com/attachments/756625198345617519/797934937545375784/image0.jpg)
+文章还指出，众院拟2度弹劾川普总统，弹劾草案内容提到，川普种种行为表明，若让他继续任职，将对国家安全，民主与宪法造成威胁，因此提案弹劾。
+![]()![](https://cdn.discordapp.com/attachments/756625198345617519/797935118211350601/image0.jpg)
+新中国联邦人看到这样的文章只能呵呵了。这分明就是共产党指鹿为马，颠倒黑白的招数。从6日拜登被认证“当选总统”后，对川普总统的封杀接踵而来，且做出了合理的“解释”，因为“煽动叛乱”。毫无疑问，这是一连串的阴谋。但是，这个不拿工资的总统，为了美国不受伤害，说宁愿死也不会实施军管的总统，他是多么热爱自己国家，他会允许自己的国家在自己手中被赤裸裸的抢走，向着共产主义陷入万劫不复吗？绝对不会。他会用自己的方式捍卫美国，捍卫支持他的八千万选民的权益，为美国人民战斗到底。
+
+校对发稿：悟空
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
++5
