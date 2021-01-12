@@ -1,28 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西班牙14天累计发病率飙升至每10万居民435例感染
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/742103/)
+## 《路德社》精选新闻简讯：病毒源头无用论，媒体为ccp掩护轻视病毒来源
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/741477/)
 
-- 编辑：Victor Torres
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
+![]()![](https://images-ext-2.discordapp.net/external/QUeOwsu_4d-P7r4kgVSB7YcvTk9BqH3l-WMKG_fJz8Q/https/s.rfi.fr/media/display/8e5c01d4-160a-11eb-be2a-005056bff430/w%3A1280/p%3A16x9/%25EF%25BC%258Cxg.jpg)
+法新社今天发布文章，为世界大流行的新冠肺炎疫情一周年评论哀祭。明天是中国官方报告此疫情在中国死亡第一人的一周年祭日，至此世界染疫向1亿确诊攀升，至今步隐姓埋名的中国疑似第一新冠病毒死者后尘，世界已有超过190万人死亡。而重描疫情轨迹，法新社说，从中国最早的恐慌，到中国共产党治下不透明，中共的极力掩盖来源，越来越多的证据都指向中共的一个黑暗的计划。
 
+中共从病毒爆发一开始就各种制造烟雾弹来掩盖病毒的起源，先是武汉海鲜市场之后又是各种吃蝙蝠论，如今又国际上大外宣卖力宣传病毒来源不重要重要的如何应对解决疫情，但其实中共越是掩盖说明病毒来源就越重要，他们害怕的是人们发现CCP就是病毒来源，是中共让整个地球生病了中毒了奄奄一息。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+[援引原文：](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210110-%E6%96%B0%E5%86%A0%E7%97%85%E6%AF%92%E5%A4%A7%E6%B5%81%E8%A1%8C%E5%91%A8%E5%B9%B4%E7%A5%AD-%E4%BA%BA%E7%B1%BB%E6%88%96%E8%AE%B8%E6%B0%B8%E8%BF%9C%E4%B9%9F%E6%97%A0%E6%B3%95%E7%9F%A5%E9%81%93%E7%96%AB%E6%83%85%E6%BA%90%E5%A4%B4)
 
-**西班牙2021年1月12日电/西喜社——**西班牙自上周五卫生部更新和确认401例死亡，已报告超过61,000例新的中共病毒感染，急剧增加，该国的顶级中共病毒专家归咎于圣诞聚会，而不是在英国确定的新病毒变种。
+本文作者：CharlieNZ查理
 
-领导西班牙卫生应急协调中心的费尔南多·西蒙说，该国已发现70例新变种。
+审核校对：玫瑰天空
 
-“在我们的情况下，我们看到的演变，”他说，”是我们在过去几天的行为问题。”
+上传排版：CharlieNZ查理
 
-西班牙的14天累计发病率，被传染病专家认为是一个很好的指标，周一的数据飙升至每10万居民435例。
-
-病毒患者让该国14%的医院病床忙得不可开交，这一比例在重症监护病房几乎翻了一番，达到26%。
-
-自疫情开始以来，该国已经记录了210万例感染和至少5.2万例中共病毒的死亡。
-
-**新闻来源：**[https://apnews.com/article/international-news-south-korea-coronavirus-pandemic-moon-jae-in-6d4e1a08d84038da5f8fc54286971522](https://apnews.com/article/international-news-south-korea-coronavirus-pandemic-moon-jae-in-6d4e1a08d84038da5f8fc54286971522)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
-
-+1
+0

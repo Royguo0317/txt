@@ -1,103 +1,94 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国第13959号行政命令
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/742234/)
+## 会计，财报，审计入门基础与介绍（十一）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/742196/)
 
-翻译:  Jony(8 Mile) 素材搜集：Yumi 信息来源：维基解密
+![]()![](https://gnews.org/wp-content/uploads/2020/12/WX20201228-134452@2x.png)
+Picture Source: https://www.groomassocies.com
 
-第13959号行政命令是[唐纳德·](https://en.wikipedia.org/wiki/Donald_Trump)特朗普(川普)总统于2020年11月12日签署了总统[行政命令](https://en.wikipedia.org/wiki/Executive_Order_%28United_States%29)。其既定目标是“应对来自资助中共军工企业的证券投资的威胁”。
+在第十一篇中是展示财务审计所涉及现金流表中各项目内容后的具体量化分析步骤与技巧。有助于投资人或审计师依照逻辑且合理的量化程序对于财务报表中的现金流表进行检阅，并有效衡量实际商业中的运营质量。
 
-禁止投资“中共军事公司”
+1. The Universe Ratio：Return on Asset，Return on Equity
+2. Value, Purpose, and Limitation of Ratio Analysis
+    - Limitation:限制
+    - The Heterogeneity and Homogeneity of a company’s operating activities 公司经营的同质性与异质性
+    - The need to determine whether the result of the ratio analysis is consistent 需要判断比率结果是否是连续一致的
+    - The need to use Judgment 需要判断比率的合理性，因为比率没有绝对正确或错误
+    - The use of Alternative Accounting Method 替代的会计方法/准则
+    - Common Ratio uses in Financial Analysis 财报中的普遍比率
+3. Interpretation and Context
+    - Company goals and strategy 公司目标与策略
+    - Industry Norms（Cross-Section Analysis）
+    - Economic Condition 经济条件
+4. Activity Ratios
 
-该行政命令禁止所有美国投资者（机构投资者和散户投资者）购买或投资被美国政府认定为“中共军事公司”的公司证券。“中共军事公司”是指美国国防部根据《1999财年国防授权法》第1237条认定的公司。该禁令于2021年1月11日生效。2020年12月28日，该行政命令的指导意见发布，明确该命令包括相关公司的子公司。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P1.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P2-1.png)
+- 注意：通常情况下无法给出平均库存Average Inventory
+- 使用代替公式：Beg Inv Gross  + End Inv Gross / 2
+- 而且Cost of good Sold 也应该排除一切补偿
+- Higher Inventory Turnover / Lower DOH：高度有效的库存周转
+- Highly Effective Inventory Management 高度有效的库存管理
+- Higher Receivables Turnover / Lower DSO ：
+- Highly Efficiency of the company credit / Collection Procedure
+- 高度有效的客户借贷额度周转程序/步骤
+- Higher Payable Turnover and the number of days of payable
+- 高度有效应付账款收转与应付账款周转天数
+- Not making full use of available credit facilities / Company could be better 更少使用借贷额度的公司可能会更高
+- Working Capital Turnover / Working Capital = Current Asset – Current Liabilities
+- How efficiently the company generates revenue with its working capital高度有效的可产生现金流的工作资本
+- Fixed Asset Turnover 固定资产周转
+- How efficiently the company generates revenue with its investment in fixed asset 高度有效产生的流水金额的固定资产投资
+- Total Asset Turnover 资产共计周转
+- How efficiently the company generates revenue with a given level Asset高度有效产生的流水金额的既定资产水平
 
-受影响公司列表
 
-最初，确定了31家公司，包括两家在美国交易所交易的公司。这些包括航空航天、造船、建筑、技术和通信行业的公司。
+5. Calculation of Liquidity Ratio
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P3.png)
+- Higher current ratio: higher level of liquidity更高的流动性
+- Higher Quick Ratio: greater liquidity (More conservative)更好的流动性
+- Cash Ratio: liquidation in a crisis situation 展示了应对危机的能力
+- Defensive Interval Ratio: How long the company
+- Cash Conversion Cycle: amount of time that elapses from the point when a company
+- Invest in working capital until the point at which the company collect cash
 
-中国航空发动机公司
 
-中国航空工业总公司
+6. Solvency Ratios
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P4.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P5.png)
+1. Higher Interest Coverage 更高的利息覆盖
+    - Stronger solvency offering greater assurance that company can serve its debt from operating activity
+    - The number of time company’s EBIT can cover interest payment
 
-中国运载火箭技术研究院
 
-中国航天科工集团公司
+1. Higher Fixed charge coverage ：更高的固定支出覆盖
+    - Stronger solvency offering greater assurance that company can serve its debt from normal earning
+    - The number of time company’s earnings can cover interest and lease payment
+2. Calculation of Profitability Rations
 
-中国航天科工集团公司
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P6.png)
+1. Calculation of Valuation Ratios and Related Quantities
 
-中国通信建设公司
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P7.png)
+1. Industry-Specific Ratios 工业特殊比率
 
-中国电子集团公司
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P8.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P9.png)
+13. The Credit Rating Process 信用评级步骤
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P10.png)
+14. Segment Ratios
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P11.png)
+15. Model Building and Forecasting 建模与演绎
 
-中国电子科技集团
+- 推演未来,分析师最有可能使用的方法Developing Forecast
+- The result of financial analysis / Analysis of other Information and Judgment
+- Sensitivity Analysis (Known as “what if”) 敏感性分析
+- Scenario Analysis 情景演绎分析
+- Simulation 模拟
 
-中国移动
 
-中国化工集团公司（ChemChina）
+Author：搞笑排行榜
 
-中国国家化学工程
+Original opinion article by Himalaya G-farm Vancouver
 
-中国核工业总公司
-
-中国核工程建设集团公司
-
-中国通用核电集团
-
-中国铁建集团公司
-
-中国船舶工业总公司
-
-中国南方工业集团
-
-中国航天卫星
-
-中国建筑工程
-
-中国船舶总公司
-
-中国电信集团公司
-
-中国三峡集团公司
-
-中国联通集团（中国联通）
-
-中车公司
-
-黎明信息产业股份有限公司（Sugon）
-
-海康威视
-
-华为
-
-浪潮
-
-中国北方工业集团公司（诺林科）
-
-熊猫电子
-
-中化
-
-2020年12月3日，国防部又指定了四家公司为中国军方拥有或控制的公司，使受影响的公司总数达到35家。
-
-半导体制造国际公司（SMIC）
-
-中国海洋石油天然气集团公司（CNOOC）
-
-中国建筑技术
-
-中国国际工程咨询公司
-
-资料来源: [https://en.wikipedia.org/wiki/Executive\_Order\_13959](https://en.wikipedia.org/wiki/Executive_Order_13959)
-
-(本文仅代表作者个人观点)
-
-编辑：文远Bruce
-
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-
-[【澳喜文章】](https://gnews.org/zh-hans/author/aujenny/)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1-澳喜Logo.jpeg)
-
+2021/01/11
 
 0

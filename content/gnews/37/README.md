@@ -1,25 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥: 我们不能再像往常回到 “多边主义”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/742192/)
+## 《路德社》每日简报早间版 2021.01.09–NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/740856/)
 
-- 编辑：Victor Torres
+出品《路德社》 编辑：路德社精选新闻专栏组
+![]()![](https://gnews.org/wp-content/uploads/2021/01/WhatsApp-Image-2021-01-11-at-18.43.20.jpeg)
+2021/1/9（早间）路德时评  路安墨唐谈
 
+**一、仍未露面的习近平对政法委作重要指示**
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+自路德社爆料习近平头部手术以来，一直处于隐身状态。新闻报道也只有文字，可以想象目前习的形象、状态都处于很不乐观的状态。再就是目前美国的形势直接影响着共产党的存亡，这时候需要习近平的表态来稳定军心，而且政治局常委都是处于隐身状态。终极之战的时刻，习也担心内部将他活捉，对身边的人防范心理和信任度都出现了问题，对自己的生命安全也做了不同程度的防范措施。
 
-**西班牙2021年1月12日电/西喜社——**美国国务卿蓬佩奥周一晚间发推称：
+**二、习近平对自己安全的担心和防范**
 
-“作为联合国最大的出资人，我把美国纳税人和美国的利益放在第一位。没有美国领导的联合国=猖獗的反犹太主义、中共宣传、浪费/欺诈/滥用。我们不能再像往常回到 ‘多边主义’”。
+据路德爆料，习近平目前对自己的安全措施已经升到最高级别，首先是习身边没有任何的电子设备，因为担心自己会被美国定点清除。而且习真正相信的人很少，害怕内部下属的忠诚度，担心自己被活捉，类似于当年的希特勒和萨达姆。可以看出目前习每天都处于恐慌的状态，也证明他到了穷途末路，且目前正处于终极之战的关键阶段。
 
+**三、中共在高科技信息战的优缺点**
 
+介于目前中共所处的状况，因为爆料革命对中共情报信息的掌控。习近平知道自己内部的动向都在被监控之中，他对自己所处的环境也会有更高的要求。据路德爆料，习近平的头部手术是否在里面植入了定位系统芯片值得关注，且习正躲在一个秘密的地堡中，身边不敢有任何的电子设备，且对外的联络主要是口头传达。
 
-> As [@UN](https://twitter.com/UN?ref_src=twsrc%5Etfw)'s largest contributor, I put U.S. taxpayers and America's interests first. The UN without American Leadership = rampant anti-Semitism, CCP propaganda, waste/fraud/abuse. We can't afford to return to [#MultilateralismAsUsual](https://twitter.com/hashtag/MultilateralismAsUsual?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/arHZT4vc1T](https://t.co/arHZT4vc1T)
-> — Secretary Pompeo (@SecPompeo) [January 11, 2021](https://twitter.com/SecPompeo/status/1348766644726865921?ref_src=twsrc%5Etfw)
+**四、习近平的处境突显了中共的困境**
 
+类似于斯大林之死一样，中共内部每个人都处于惊弓之鸟，对于每个人来说怎样保证自己安全的同时，再让自己处于一个有利的状态，并根据现时国际形势的变化做出最有利的判断。一旦国际形势特别是美国要对中共实施行动的时候，中共内部高层一定会有人出现调转枪口灭掉或是活捉习来让自己处于有利地位。一切的国际和中共的走向正在与爆料革命预测的那样向前推进。
 
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+文案：《路德社》简报组：
+审核校对：玫瑰天空
+上传排版：CharlieNZ查理
 
 0
