@@ -1,94 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 会计，财报，审计入门基础与介绍（十一）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/742196/)
+## 墙内生存指南
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/742719/)
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/WX20201228-134452@2x.png)
-Picture Source: https://www.groomassocies.com
+撰稿：大漠
 
-在第十一篇中是展示财务审计所涉及现金流表中各项目内容后的具体量化分析步骤与技巧。有助于投资人或审计师依照逻辑且合理的量化程序对于财务报表中的现金流表进行检阅，并有效衡量实际商业中的运营质量。
+接下来墙内生存会非常艰难，一线城市最难，二战次之，越往外相对容易一些，但不见的农村就是安全的，即使你身处农村也需要做相应的准备。
 
-1. The Universe Ratio：Return on Asset，Return on Equity
-2. Value, Purpose, and Limitation of Ratio Analysis
-    - Limitation:限制
-    - The Heterogeneity and Homogeneity of a company’s operating activities 公司经营的同质性与异质性
-    - The need to determine whether the result of the ratio analysis is consistent 需要判断比率结果是否是连续一致的
-    - The need to use Judgment 需要判断比率的合理性，因为比率没有绝对正确或错误
-    - The use of Alternative Accounting Method 替代的会计方法/准则
-    - Common Ratio uses in Financial Analysis 财报中的普遍比率
-3. Interpretation and Context
-    - Company goals and strategy 公司目标与策略
-    - Industry Norms（Cross-Section Analysis）
-    - Economic Condition 经济条件
-4. Activity Ratios
+首先说当金融市场，经济彻底完蛋的那天起，人们会变的浮躁，会感到不安，更有甚者会丧失理智，社会动荡开始，此时没有警察，没有了所谓的社会秩序的维持者，城市陷入混乱，警察，部队等公权力者会肆意践踏整个社会，更有甚者会出现社会流氓团体，对人们的生活产生破坏，没有水，没有电，没有食物，各种物资的短缺！生活秩序被打破，人们变的无所适从，同时不排除共匪团伙的肆意放纵，作出畜生不如的勾当……等等一些列的不安定！面对突如其来的变故如何应对呢？
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P1.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P2-1.png)
-- 注意：通常情况下无法给出平均库存Average Inventory
-- 使用代替公式：Beg Inv Gross  + End Inv Gross / 2
-- 而且Cost of good Sold 也应该排除一切补偿
-- Higher Inventory Turnover / Lower DOH：高度有效的库存周转
-- Highly Effective Inventory Management 高度有效的库存管理
-- Higher Receivables Turnover / Lower DSO ：
-- Highly Efficiency of the company credit / Collection Procedure
-- 高度有效的客户借贷额度周转程序/步骤
-- Higher Payable Turnover and the number of days of payable
-- 高度有效应付账款收转与应付账款周转天数
-- Not making full use of available credit facilities / Company could be better 更少使用借贷额度的公司可能会更高
-- Working Capital Turnover / Working Capital = Current Asset – Current Liabilities
-- How efficiently the company generates revenue with its working capital高度有效的可产生现金流的工作资本
-- Fixed Asset Turnover 固定资产周转
-- How efficiently the company generates revenue with its investment in fixed asset 高度有效产生的流水金额的固定资产投资
-- Total Asset Turnover 资产共计周转
-- How efficiently the company generates revenue with a given level Asset高度有效产生的流水金额的既定资产水平
+首先谈谈在农村，农村冲击相对较小，但也得注意几点。一，需要对未来做好充分的思想准备。认识到即将发生的灾难，有必须活下去的信念。知道你所处的环境，判断可能出现的问题，一方面是自然因素，水，食物，以及取水的装备，越简单，越原始可靠为主。二，应对人为因素，这个比较困难，分清对自己有利有弊，对于维护一个团体安全的积极参与，对你这个团体危害的积极抵制，至于采取什么措施，什么手段，视情况而定！前提就是你一个人生存很难，一定要加入大家族，大家一起发挥各自的优势，度过困难时期，当你一个人的时候，即使你有足够的物资，也未必完全能保证你自己能使用的到，惦记你的人多了，什么都会发生。在此情况下，尽量不要抱怨，犯了众怒也是不好办的，尽量谦卑一些，目的就是为了活着！一个团体可以抗衡一支散兵游勇，一个流氓团伙，甚至是一个强盗集团！总之团体的力量比起你独自一人的生存概率要大很多，如果你是独身一人，没有任何牵挂，那你有更多的自由空间，可以更多的选择，但免不了和人相处，面壁十年的除外……
 
+农村的生存环境相对简单，但遇到的风险，相对较小，此时如果想去农村生活的，做好足够的准备，比如打火机，肥皂，等小件日常用品，是很容易换取粮食的，此篇仅供各位战友在农村生活的参考，具体情况根据自己条件准备，我不可能详细介绍你怎么拼杀等技术手段，那就是困 不 奋 子了，但重要的是做好思想准备……
 
-5. Calculation of Liquidity Ratio
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P3.png)
-- Higher current ratio: higher level of liquidity更高的流动性
-- Higher Quick Ratio: greater liquidity (More conservative)更好的流动性
-- Cash Ratio: liquidation in a crisis situation 展示了应对危机的能力
-- Defensive Interval Ratio: How long the company
-- Cash Conversion Cycle: amount of time that elapses from the point when a company
-- Invest in working capital until the point at which the company collect cash
+(本文仅代表作者个人观点)
 
+编辑：文远Bruce
 
-6. Solvency Ratios
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P4.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P5.png)
-1. Higher Interest Coverage 更高的利息覆盖
-    - Stronger solvency offering greater assurance that company can serve its debt from operating activity
-    - The number of time company’s EBIT can cover interest payment
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
-
-1. Higher Fixed charge coverage ：更高的固定支出覆盖
-    - Stronger solvency offering greater assurance that company can serve its debt from normal earning
-    - The number of time company’s earnings can cover interest and lease payment
-2. Calculation of Profitability Rations
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P6.png)
-1. Calculation of Valuation Ratios and Related Quantities
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P7.png)
-1. Industry-Specific Ratios 工业特殊比率
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P8.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P9.png)
-13. The Credit Rating Process 信用评级步骤
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P10.png)
-14. Segment Ratios
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P11.png)
-15. Model Building and Forecasting 建模与演绎
-
-- 推演未来,分析师最有可能使用的方法Developing Forecast
-- The result of financial analysis / Analysis of other Information and Judgment
-- Sensitivity Analysis (Known as “what if”) 敏感性分析
-- Scenario Analysis 情景演绎分析
-- Simulation 模拟
-
-
-Author：搞笑排行榜
-
-Original opinion article by Himalaya G-farm Vancouver
-
-2021/01/11
-
-0
+[【澳喜文章】](https://gnews.org/zh-hans/author/aujenny/)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-澳喜Logo.jpeg)
++1

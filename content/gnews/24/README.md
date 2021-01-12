@@ -1,52 +1,94 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 帕勒Parler）起诉亚马逊，要求联邦法官恢复在亚马逊网络（AWS）托管服务
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/742577/)
+## 会计，财报，审计入门基础与介绍（十一）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/742196/)
 
-翻译：康州盘古农场-黎明的光芒
+![]()![](https://gnews.org/wp-content/uploads/2020/12/WX20201228-134452@2x.png)
+Picture Source: https://www.groomassocies.com
 
-校对：康州盘古农场-烟波浩淼
+在第十一篇中是展示财务审计所涉及现金流表中各项目内容后的具体量化分析步骤与技巧。有助于投资人或审计师依照逻辑且合理的量化程序对于财务报表中的现金流表进行检阅，并有效衡量实际商业中的运营质量。
 
-审核：康州盘古-Truemanman
-![]()![](https://gnews.org/wp-content/uploads/2021/01/a4f5650e5da4bb54d166ed48c848acdc.jpg)
-更新（美东时间12：20）。据报道，帕勒（Parler）公司要求联邦法官下令亚马逊恢复亚马逊网络（AWS）对帕勒平台的服务，并提出亚马逊违反合同和非法商业干预。
+1. The Universe Ratio：Return on Asset，Return on Equity
+2. Value, Purpose, and Limitation of Ratio Analysis
+    - Limitation:限制
+    - The Heterogeneity and Homogeneity of a company’s operating activities 公司经营的同质性与异质性
+    - The need to determine whether the result of the ratio analysis is consistent 需要判断比率结果是否是连续一致的
+    - The need to use Judgment 需要判断比率的合理性，因为比率没有绝对正确或错误
+    - The use of Alternative Accounting Method 替代的会计方法/准则
+    - Common Ratio uses in Financial Analysis 财报中的普遍比率
+3. Interpretation and Context
+    - Company goals and strategy 公司目标与策略
+    - Industry Norms（Cross-Section Analysis）
+    - Economic Condition 经济条件
+4. Activity Ratios
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P1.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P2-1.png)
+- 注意：通常情况下无法给出平均库存Average Inventory
+- 使用代替公式：Beg Inv Gross  + End Inv Gross / 2
+- 而且Cost of good Sold 也应该排除一切补偿
+- Higher Inventory Turnover / Lower DOH：高度有效的库存周转
+- Highly Effective Inventory Management 高度有效的库存管理
+- Higher Receivables Turnover / Lower DSO ：
+- Highly Efficiency of the company credit / Collection Procedure
+- 高度有效的客户借贷额度周转程序/步骤
+- Higher Payable Turnover and the number of days of payable
+- 高度有效应付账款收转与应付账款周转天数
+- Not making full use of available credit facilities / Company could be better 更少使用借贷额度的公司可能会更高
+- Working Capital Turnover / Working Capital = Current Asset – Current Liabilities
+- How efficiently the company generates revenue with its working capital高度有效的可产生现金流的工作资本
+- Fixed Asset Turnover 固定资产周转
+- How efficiently the company generates revenue with its investment in fixed asset 高度有效产生的流水金额的固定资产投资
+- Total Asset Turnover 资产共计周转
+- How efficiently the company generates revenue with a given level Asset高度有效产生的流水金额的既定资产水平
 
 
+5. Calculation of Liquidity Ratio
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P3.png)
+- Higher current ratio: higher level of liquidity更高的流动性
+- Higher Quick Ratio: greater liquidity (More conservative)更好的流动性
+- Cash Ratio: liquidation in a crisis situation 展示了应对危机的能力
+- Defensive Interval Ratio: How long the company
+- Cash Conversion Cycle: amount of time that elapses from the point when a company
+- Invest in working capital until the point at which the company collect cash
 
-> BREAKING: Parler sues Amazon for antitrust violation, breach of contract and unlawful business interference. Asks federal judge to order Amazon to reinstate the platform
-> — John Kruzel (@johnkruzel) [January 11, 2021](https://twitter.com/johnkruzel/status/1348679815579246597?ref_src=twsrc%5Etfw)
+
+6. Solvency Ratios
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P4.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P5.png)
+1. Higher Interest Coverage 更高的利息覆盖
+    - Stronger solvency offering greater assurance that company can serve its debt from operating activity
+    - The number of time company’s EBIT can cover interest payment
 
 
+1. Higher Fixed charge coverage ：更高的固定支出覆盖
+    - Stronger solvency offering greater assurance that company can serve its debt from normal earning
+    - The number of time company’s earnings can cover interest and lease payment
+2. Calculation of Profitability Rations
 
-*约翰·克鲁泽尔 @johnkruzel ·*
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P6.png)
+1. Calculation of Valuation Ratios and Related Quantities
 
-*突发**：**帕勒起诉亚马逊违反反垄断法，违反合同和非法商业干预。要求联邦法官下令亚马逊恢复该平台*
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P7.png)
+1. Industry-Specific Ratios 工业特殊比率
 
-*上午：1**1**：1**4**·**2021**年1月1**1**日*
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P8.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P9.png)
+13. The Credit Rating Process 信用评级步骤
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P10.png)
+14. Segment Ratios
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P11.png)
+15. Model Building and Forecasting 建模与演绎
 
-从周一早上开始被踢出AWS，虽然它的内容档案被保存了下来，但平台正式下线，这也是社交媒体网络首次被大科技公司的攻击。
+- 推演未来,分析师最有可能使用的方法Developing Forecast
+- The result of financial analysis / Analysis of other Information and Judgment
+- Sensitivity Analysis (Known as “what if”) 敏感性分析
+- Scenario Analysis 情景演绎分析
+- Simulation 模拟
 
-事实证明，华尔街对推特永久禁止该服务知名用户之一的川普总统的决定并不满意。分析师担心这一决定可能会让推特面临更多的监管，米拉波集团（Mirabaud）分析师尼尔·坎普林（Neil Campling）表示，该禁令可能会使推特受到下一届政府更多的监管，因为现在该平台的编审显然能够决定什么样的政治内容是合适的，什么样的内容是不合适的。
 
-交易员们显然很担心，推特股价在盘前交易中下跌了7%，这是在上周五盘后交易以及周日晚间下跌的基础上继续下跌。
+Author：搞笑排行榜
 
-美国银行今晨称，华尔街 “可能通过川普被停用事件重新审视社交媒体内容的风险”，并指出 “**推特内部保守派社区的骚动可能是一季度日活跃用户的适度威胁**“
+Original opinion article by Himalaya G-farm Vancouver
 
-**推特比脸书的参与风险更大**
+2021/01/11
 
-唐纳德·川普在推特上有8800万粉丝，是关注度最高排名第6的账户，在脸书上他有超过3300万粉丝。川普总统的粉丝数占推特日活跃用户(DAU)的47%(不过显然不是所有粉丝都是日活跃用户)，2020年他的账户平均每天发34条推文(高于2019年的21条)。此外，我们认为来自推特内部保守派社区的骚动对第一季度日活跃用户会产生适度的威胁，然而SensorTower（应用软件分析智能平台）表明，截至1月8日，Parler（一个专注于保守派的社交平台）上的日活跃用户大约为13万（占推特美国日活跃用户的0.37%）。我们的呼吁是，在短期内停用一些新闻流后，强大的政治活动家会留在推特上寻找其他内容。
-
-内容风险和第230重新成为重点
-
-6月，司法部曾提议撤销一些第230条款的保护措施，该条款规定互联网公司一般不对用户发布的内容负责。**虽然民主党政府可能不太关注****230****条款的重大改革，但最近的事件可能增加对内容立法的可能性**。虽然我们认为社交平台可能会欢迎内容准则，但230条款的撤销也存在风险，主要包括：1）对在线内容受害者可能产生的民事责任；2）需要提高内容审查能力带来的费用风险。脸书首席执行官马克·扎克伯格(Mark Zuckerberg)一直表示支持更新第230条款，而推特首席执行官杰克·多西(Jack Dorsey)则指出：”侵蚀第230条款的基础可能会使我们在互联网上的交流方式崩溃，只留下少数巨头和资金雄厚的科技公司。”
-
-在其他社交媒体新闻中，亚马逊决定禁止支持自由言论的社交媒体平台Parler，导致该平台的服务事实上被禁止在互联网上使用。
-
-原文作者：泰勒·杜登(TYLER DURDEN)
-
-发布日期：1/11/2021
-
-原文链接：[https://www.zerohedge.com/markets/twitter-plunges-after-trump-ban-parler-site-offline](https://www.zerohedge.com/markets/twitter-plunges-after-trump-ban-parler-site-offline)
-
-+3
+0

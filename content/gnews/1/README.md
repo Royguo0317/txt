@@ -1,24 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 奥布莱恩发紧急声明 敦促世界各国向中共追责
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/742792/)
+## 川普总统批准哥伦比亚特区紧急状况的声明
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/742829/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1200px-US-WhiteHouse-Logo.svg-1.png)
-**美国国家安全顾问罗伯特-奥布莱恩的声明**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/trump-2.png)
+唐纳德·J·川普总统批准哥伦比亚特区紧急状况声明
 
-国家安全和防卫部门颁布日期
+2021年1月11日发布
 
-2021年1月11日
+今天，唐纳德·J·川普总统宣布哥伦比亚特区存在紧急状况，并命令联邦政府自2021年1月11日至1月24日向该地区提供增援，以应对第59届总统就职典礼引发的紧急情况。
 
-2020年5月，川普政府预见到并宣布香港的自由开放社会将死于中共之手。上周，有超过50人因行使《基本法》保障的政治权利而被中共在香港逮捕，其中包括前民选官员，这是中共在香港民主的棺材上接连钉下的又一颗新钉子。
+总统的这项行动授权了国土安全部、联邦应急管理局（FEMA）协调所有救灾工作，以减轻紧急情况对当地居民造成的困难与痛苦，并根据《斯塔福德法案（Stafford Act）》第五章的授权为必要的紧急措施提供增援，以挽救生命、保护财产和公共健康与安全，并减轻或避免哥伦比亚特区发生灾难的威胁。
 
-5月，美国政府当局要求北京方面就中共病毒的来源作出答复，并指责世界卫生组织听从中共的意见，使其得以掩盖事实。正如中共无视《中英联合声明》规定的国际义务一样，它继续无视《国际卫生条例》。
+特别是，联邦应急管理局（FEMA）被授权,可酌情判断、调动和提供必要设备和资源以减轻紧急状况的影响。联邦政府直接采取的紧急保护措施将100％由联邦政府资助。
 
-美国是第一个有勇气和信念坦率承认中共政权真实性质的大国。世界各国要求中共承担责任是至关重要的。世界不能再为中共不负责任的做法承受更多伤害–无论是中共结束香港的法治，还是其不与卫生官员合作应对疫情。美国正在研究进一步的应对方案。
+国土安全部及联邦应急管理局（FEMA）局长皮特·盖诺（Pete Gaynor）任命托马斯·法尔乔内（Thomas J. Fargione）为联邦政府协调官，负责灾区的恢复行动。
 
-翻译：文非
+更多信息，媒体应致电（202）646-3272或[email protected]与FEMA新闻编辑部联系。
 
-[链接](https://www.whitehouse.gov/briefings-statements/statement-national-security-advisor-robert-c-obrien-011121/)
+[原文链接](https://www.whitehouse.gov/briefings-statements/president-donald-j-trump-approves-district-columbia-emergency-declaration/)
+
+翻译报道：致敬香港！
 
 0
