@@ -1,94 +1,90 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 会计，财报，审计入门基础与介绍（十一）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/742196/)
+## 警告：不要参加就职典礼前在州议会大厦举行的武装抗议活动！这是激进左翼分子策划的夺走拥枪权的险恶阴谋！
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/743015/)
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/WX20201228-134452@2x.png)
-Picture Source: https://www.groomassocies.com
+翻译：康州盘古农场 – 烟波浩淼
 
-在第十一篇中是展示财务审计所涉及现金流表中各项目内容后的具体量化分析步骤与技巧。有助于投资人或审计师依照逻辑且合理的量化程序对于财务报表中的现金流表进行检阅，并有效衡量实际商业中的运营质量。
+校对：康州盘古农场 – Antsee-GTV
 
-1. The Universe Ratio：Return on Asset，Return on Equity
-2. Value, Purpose, and Limitation of Ratio Analysis
-    - Limitation:限制
-    - The Heterogeneity and Homogeneity of a company’s operating activities 公司经营的同质性与异质性
-    - The need to determine whether the result of the ratio analysis is consistent 需要判断比率结果是否是连续一致的
-    - The need to use Judgment 需要判断比率的合理性，因为比率没有绝对正确或错误
-    - The use of Alternative Accounting Method 替代的会计方法/准则
-    - Common Ratio uses in Financial Analysis 财报中的普遍比率
-3. Interpretation and Context
-    - Company goals and strategy 公司目标与策略
-    - Industry Norms（Cross-Section Analysis）
-    - Economic Condition 经济条件
-4. Activity Ratios
+审核：康州盘古-Truemanman
+![]()![](https://gnews.org/wp-content/uploads/2021/01/election-protest-02-rtr-jc-210111_1610386513347_hpMain_16x9_992.jpg)
+**警告！在下周的就职典礼之前，全国各地的州议会大厦将举行几次武装抗议活动。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P1.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P2-1.png)
-- 注意：通常情况下无法给出平均库存Average Inventory
-- 使用代替公式：Beg Inv Gross  + End Inv Gross / 2
-- 而且Cost of good Sold 也应该排除一切补偿
-- Higher Inventory Turnover / Lower DOH：高度有效的库存周转
-- Highly Effective Inventory Management 高度有效的库存管理
-- Higher Receivables Turnover / Lower DSO ：
-- Highly Efficiency of the company credit / Collection Procedure
-- 高度有效的客户借贷额度周转程序/步骤
-- Higher Payable Turnover and the number of days of payable
-- 高度有效应付账款收转与应付账款周转天数
-- Not making full use of available credit facilities / Company could be better 更少使用借贷额度的公司可能会更高
-- Working Capital Turnover / Working Capital = Current Asset – Current Liabilities
-- How efficiently the company generates revenue with its working capital高度有效的可产生现金流的工作资本
-- Fixed Asset Turnover 固定资产周转
-- How efficiently the company generates revenue with its investment in fixed asset 高度有效产生的流水金额的固定资产投资
-- Total Asset Turnover 资产共计周转
-- How efficiently the company generates revenue with a given level Asset高度有效产生的流水金额的既定资产水平
+我们敦促你们不要参加！
 
+我们相信这很可能是夺走你们（拥有）枪支的邪恶企图！
 
-5. Calculation of Liquidity Ratio
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P3.png)
-- Higher current ratio: higher level of liquidity更高的流动性
-- Higher Quick Ratio: greater liquidity (More conservative)更好的流动性
-- Cash Ratio: liquidation in a crisis situation 展示了应对危机的能力
-- Defensive Interval Ratio: How long the company
-- Cash Conversion Cycle: amount of time that elapses from the point when a company
-- Invest in working capital until the point at which the company collect cash
+**想想这个**——上周恶魔般的左派袭击了美国国会大厦，剥夺了你的第一修正案的言论自由权。数以万计的美国人和美国总统一起被从社交媒体上移除。
+
+极左科技巨头剥夺了川普总统与美国公众自由交流的能力。
+
+**下一个计划是夺走你们的枪。**
+
+我们非常担心激进的左派用这个来发起交火并夺走你们的拥枪权！
+
+左派势在必得。
+
+民主党刚刚从川总统手中抢走了一场压倒性的大选中。
+
+上周末他们取消了你们在网上自由交流的权利。
+
+**现在他们要抢走你们的枪。**
+
+*据**亚伦·卡特斯基（**Aaron Katersky**）报道：**“从美国广播公司（**ABC**）获得的一份**FBI**公报称，**至少**从**1**月**16**日**到**1**月**20**日，**武装抗议活动**将计划在美国**50**个州的州议会大厦展开**。**同时**从**1**月**17**日至**1**月**20**日，**武装抗议也将在**美国国会大厦**展开**。**”*
+
+*公告显示，一个组织呼吁**，**如果川普总统在就职日前被**免**职，将“**冲击**”州、地方和联邦政府的法院和行政大楼。*
+
+*根据**该**公告，美国联邦调查局**已* *“收到一个已确认的武装组织打算于**1**月**16**日前往华盛顿特区的信息。他们警告说，如果国会试图通过《第**25**修正案》罢免川普总统，一场巨大的起义将**会**发生，”*
+
+**根据记录****，未来几天的这些“武装抗议”并没有得到川普阵营的****背书****。**
+
+我们正在更深入地调查谁是这场运动的幕后黑手。
 
 
-6. Solvency Ratios
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P4.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P5.png)
-1. Higher Interest Coverage 更高的利息覆盖
-    - Stronger solvency offering greater assurance that company can serve its debt from operating activity
-    - The number of time company’s EBIT can cover interest payment
+
+> "Armed protests are being planned at all 50 state capitols from 16 January through at least 20 January, and at the US Capitol from 17 January through 20 January," according to an FBI bulletin obtained by [@ABC](https://twitter.com/ABC?ref_src=twsrc%5Etfw)
+> — Aaron Katersky (@AaronKatersky) [January 11, 2021](https://twitter.com/AaronKatersky/status/1348674449965527045?ref_src=twsrc%5Etfw)
 
 
-1. Higher Fixed charge coverage ：更高的固定支出覆盖
-    - Stronger solvency offering greater assurance that company can serve its debt from normal earning
-    - The number of time company’s earnings can cover interest and lease payment
-2. Calculation of Profitability Rations
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P6.png)
-1. Calculation of Valuation Ratios and Related Quantities
+*亚伦·卡特斯基**@AaronKatersky*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P7.png)
-1. Industry-Specific Ratios 工业特殊比率
+*美国联邦调查局**获得的一份公报称：“**武装抗议活动正**计划从1月16日至**少到**1月20日在所有50个州的州议会大厦**展开**，**同时**从1月17日至1月20日将在美国国会大厦**展开**。” @ABC公司*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P8.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P9.png)
-13. The Credit Rating Process 信用评级步骤
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P10.png)
-14. Segment Ratios
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P11.png)
-15. Model Building and Forecasting 建模与演绎
-
-- 推演未来,分析师最有可能使用的方法Developing Forecast
-- The result of financial analysis / Analysis of other Information and Judgment
-- Sensitivity Analysis (Known as “what if”) 敏感性分析
-- Scenario Analysis 情景演绎分析
-- Simulation 模拟
+*上午1**0**：5**3**·**2021**年1月1**1**日*
 
 
-Author：搞笑排行榜
 
-Original opinion article by Himalaya G-farm Vancouver
+> A group is calling for “storming” state, local, and federal government courthouses and administrative buildings in the event President Trump is removed prior to Inauguration Day, per an FBI bulletin obtained by [@ABC](https://twitter.com/ABC?ref_src=twsrc%5Etfw)
+> — Aaron Katersky (@AaronKatersky) [January 11, 2021](https://twitter.com/AaronKatersky/status/1348674781944688640?ref_src=twsrc%5Etfw)
 
-2021/01/11
 
-0
+
+*亚伦·卡特斯基@**@AaronKatersky*
+
+*美国联邦调查局（FBI）获得的一份公告称，一个组织呼吁**如果**川**普总统在就职日之前被免**职，将“冲击”州、地方和联邦政府的法院和行政大楼@ABC*
+
+*上午1**0**：5**4**·**2021**年1月1**1**日*
+
+
+
+> The FBI has "received information about an identified armed group intending to travel to Washington, DC on 16 January. They have warned that if Congress attempts to remove POTUS via the 25th Amendment a huge uprising will occur," according to a bulletin obtained by [@ABC](https://twitter.com/ABC?ref_src=twsrc%5Etfw)
+> — Aaron Katersky (@AaronKatersky) [January 11, 2021](https://twitter.com/AaronKatersky/status/1348675941309034496?ref_src=twsrc%5Etfw)
+
+
+
+*亚伦·卡特斯基**@AaronKatersky*
+
+*美国联邦调查局（FBI）已“收到有关一个已确认的武装组织打算于1月16日前往华盛顿特区的信息。他们警告说，如果国会试图通过第25修正案罢免川普总统，将发生一场巨大的起义。 @ABC公司*
+
+原文作者：吉姆·霍夫特（Jim Hoft）
+
+发布时间：2021年1月11日上午11:35
+
+原文链接：
+
+[WARNING: DO NOT ATTEND Armed Protests at State Capitols Before Inauguration! – POSSIBLE SINISTER PLOT HATCHED BY RADICAL LEFT TO TAKE AWAY GUN RIGHTS! (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/01/warning-not-attend-armed-protests-state-capitols-inauguration-possible-sinister-plot-hatched-radical-left-take-away-gun-rights/)
+
++3

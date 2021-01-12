@@ -1,31 +1,94 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报早间版 2021.01.10–NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/741284/)
+## 会计，财报，审计入门基础与介绍（十一）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/742196/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews.org/wp-content/uploads/2021/01/WhatsApp-Image-2021-01-11-at-18.43.44.jpeg)
-1/10/2021 .路德时评 （路安墨 美东早)
+![]()![](https://gnews.org/wp-content/uploads/2020/12/WX20201228-134452@2x.png)
+Picture Source: https://www.groomassocies.com
 
-**1、全世界关注梵蒂冈**
+在第十一篇中是展示财务审计所涉及现金流表中各项目内容后的具体量化分析步骤与技巧。有助于投资人或审计师依照逻辑且合理的量化程序对于财务报表中的现金流表进行检阅，并有效衡量实际商业中的运营质量。
 
-1月10日晚网上热议梵蒂冈出现大面积停电，能发生停电本身就是一件极其不简单的事情。在路德社连续分析了几天之后，世界媒体突然聚焦梵蒂冈，未来一定有大事发生。罗马天主教廷与地球文明、人类文明息息相关。两千多年的神秘力量和神秘财富的传承即将进入关键时期，关注梵蒂冈是下一个重要的焦点，是下一个真正的战场。
+1. The Universe Ratio：Return on Asset，Return on Equity
+2. Value, Purpose, and Limitation of Ratio Analysis
+    - Limitation:限制
+    - The Heterogeneity and Homogeneity of a company’s operating activities 公司经营的同质性与异质性
+    - The need to determine whether the result of the ratio analysis is consistent 需要判断比率结果是否是连续一致的
+    - The need to use Judgment 需要判断比率的合理性，因为比率没有绝对正确或错误
+    - The use of Alternative Accounting Method 替代的会计方法/准则
+    - Common Ratio uses in Financial Analysis 财报中的普遍比率
+3. Interpretation and Context
+    - Company goals and strategy 公司目标与策略
+    - Industry Norms（Cross-Section Analysis）
+    - Economic Condition 经济条件
+4. Activity Ratios
 
-**2、大停电对即将到来的教宗选举的意义**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P1.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P2-1.png)
+- 注意：通常情况下无法给出平均库存Average Inventory
+- 使用代替公式：Beg Inv Gross  + End Inv Gross / 2
+- 而且Cost of good Sold 也应该排除一切补偿
+- Higher Inventory Turnover / Lower DOH：高度有效的库存周转
+- Highly Effective Inventory Management 高度有效的库存管理
+- Higher Receivables Turnover / Lower DSO ：
+- Highly Efficiency of the company credit / Collection Procedure
+- 高度有效的客户借贷额度周转程序/步骤
+- Higher Payable Turnover and the number of days of payable
+- 高度有效应付账款收转与应付账款周转天数
+- Not making full use of available credit facilities / Company could be better 更少使用借贷额度的公司可能会更高
+- Working Capital Turnover / Working Capital = Current Asset – Current Liabilities
+- How efficiently the company generates revenue with its working capital高度有效的可产生现金流的工作资本
+- Fixed Asset Turnover 固定资产周转
+- How efficiently the company generates revenue with its investment in fixed asset 高度有效产生的流水金额的固定资产投资
+- Total Asset Turnover 资产共计周转
+- How efficiently the company generates revenue with a given level Asset高度有效产生的流水金额的既定资产水平
 
-昨晚的大停电显示科技对电网包括备用发电系统的控制已经成为核心关键，也就是科技对人类的改变已经到了可以随意控制的地步。即将进行的罗马教宗大选，关系到28亿天主教教徒以及全人类的未来。昨天的大停电表明这个战场已经开始启动，各种势力的较量进入白热化，新的宗教战争已经变成教廷内部正义与邪恶，光明与黑暗的角逐，世界秩序也会出现巨大的改变。
 
-**3、教宗私人医生死于CCP病毒**
+5. Calculation of Liquidity Ratio
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P3.png)
+- Higher current ratio: higher level of liquidity更高的流动性
+- Higher Quick Ratio: greater liquidity (More conservative)更好的流动性
+- Cash Ratio: liquidation in a crisis situation 展示了应对危机的能力
+- Defensive Interval Ratio: How long the company
+- Cash Conversion Cycle: amount of time that elapses from the point when a company
+- Invest in working capital until the point at which the company collect cash
 
-教宗的私人医生索科西已死于中共病毒并发症，说明病毒已到教廷的核心。这也对所有梵蒂冈的主教们发出一个警告和威胁，可以用疫情为借口，随时取走任何人的性命。大主教维加诺所说的实施全球大重启的三大条件，全球气候变化，病毒和科技，已经全部满足。梵蒂冈将会很快成为世界的核心焦点。美国的显性力量、梵蒂冈的隐性力量加上中共的邪恶势力正在改变全人类。
 
-**4、习近平不但没露脸指示也不敢发**
+6. Solvency Ratios
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P4.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P5.png)
+1. Higher Interest Coverage 更高的利息覆盖
+    - Stronger solvency offering greater assurance that company can serve its debt from operating activity
+    - The number of time company’s EBIT can cover interest payment
 
-往年此时，习近平已安排很多大事并出席各种会议活动。可是现在习近平不但没露脸，而且连指示也不敢发。今天有关习的只有回顾性新闻：“这些年，习总书记这样部署”，“牢记习近平殷殷期望”…。习近平已是草木皆兵、风声鹤唳，对自己的指挥系统和反馈系统极度不信任。他既担心党内的分裂，也担心邪恶同盟势力的过河拆桥，还担心自己是否被活捉。习近平惶惶不可终日，中共政权也岌岌可危。
 
-文案：《路德社》简报组：
-审核校对：玫瑰天空
-上传排版：CharlieNZ查理
+1. Higher Fixed charge coverage ：更高的固定支出覆盖
+    - Stronger solvency offering greater assurance that company can serve its debt from normal earning
+    - The number of time company’s earnings can cover interest and lease payment
+2. Calculation of Profitability Rations
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P6.png)
+1. Calculation of Valuation Ratios and Related Quantities
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P7.png)
+1. Industry-Specific Ratios 工业特殊比率
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P8.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P9.png)
+13. The Credit Rating Process 信用评级步骤
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P10.png)
+14. Segment Ratios
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P11.png)
+15. Model Building and Forecasting 建模与演绎
+
+- 推演未来,分析师最有可能使用的方法Developing Forecast
+- The result of financial analysis / Analysis of other Information and Judgment
+- Sensitivity Analysis (Known as “what if”) 敏感性分析
+- Scenario Analysis 情景演绎分析
+- Simulation 模拟
+
+
+Author：搞笑排行榜
+
+Original opinion article by Himalaya G-farm Vancouver
+
+2021/01/11
 
 0

@@ -1,16 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日重要Twitter播报（中文）1/9期
-` 喜馬拉雅多語組` [轉載自GNews](https://gnews.org/zh-hans/742616/)
+## 1/11/2021 路德时评（路博艾冠谈）：习近平1月11日开会照片被揭是12月29日所拍；中共威胁蓬佩澳一旦访台，就会派战机入侵台湾意味着什么？蓬佩澳警告美国之音勿成为中共大外宣平台；
+` 路德社` [轉載自GNews](https://gnews.org/zh-hans/742968/)
 
-撰稿记者:本来、石頭、尘凡3、CYC文穎、
-校对:Redd（文清）
-播音:愛明州（文根根）
-剪辑：喜瑪拉雅2020
+《路德社》出品；上传编辑：玫瑰天空
 
-[每日重要推文1-9-PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/01/11223045/1-9-redd-%E5%B7%B2%E8%BD%89%E6%AA%94.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/01/11223045/1-9-redd-%E5%B7%B2%E8%BD%89%E6%AA%94.pdf)
+1/11/2021 路德时评（路博艾冠谈）：习近平1月11日开会照片被揭是12月29日所拍；中共威胁蓬佩澳一旦访台，就会派战机入侵台湾意味着什么？蓬佩澳警告美国之音勿成为中共大外宣平台；
 
+详细直播精彩内容在这里观看👇：
 
 
-0
+
++1

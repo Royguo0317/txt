@@ -1,22 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普在就职典礼前宣布华盛顿特区紧急状态
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/742534/)
+## 马来西亚宣布至8月 全国进入新冠疫情紧急状态
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/742881/)
 
-- 编辑：Victor Torres
+台湾农场(筹备) Amitofu
 
+【即时报导】1月12日马来西亚国家元首阿布都拉（Abdullah Ri’ayatuddin）同意内阁请求，宣布全国进入紧急状态，以有效控制新冠状病毒病疫情快速扩大，预估紧急状态将持续至8月1日。国家皇宫声明中指出，元首同意内阁成立一个朝野及卫生专家所组成的独立委员会，来应对紧急状态的对策，目前马来西亚累积新冠确诊超过13.8万，555人死亡，医院的ICU使用率已超过70%，在吉隆坡已经有医院ICU 100%满载，加重医疗系统负担。首相慕尤丁公布全国旅行禁令，宣布首都吉隆坡与5个州封锁14天，目前马来西亚的医疗体系陷入紧张状态。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/malasia-1-338x225.jpg)图片来源路透社
+本文仅代表个人立场
 
-***更多信息，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2021年1月11日电/西喜社/——**美国总统川普周一宣布哥伦比亚特区进入紧急状态，持续到1月24日。
-
-白宫的一份新闻稿说： “总统的行动授权国土安全部，联邦紧急事务管理局（FEMA），协调所有救灾工作，其目的是减轻紧急状况对当地居民造成的困难和痛苦，并提供适当的援助，以采取必要的紧急措施，根据《斯塔福德法案》第五章的授权，拯救生命，保护财产、公共健康和安全，并减少或避免哥伦比亚特区的灾难威胁。”
-
-“具体来说，联邦紧急事务管理局被授权确定、调动，并酌情提供必要的设备和资源，以减轻紧急情况的影响。紧急保护措施，仅限于联邦直接援助，将由联邦提供100%的资金。”
-
-**参考链接：**[https://www.newsmax.com/t/newsmax/article/1005169/18](https://www.newsmax.com/t/newsmax/article/1005169/18)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+资料来源:[https://news.ltn.com.tw/news/world/breakingnews/3408353](https://news.ltn.com.tw/news/world/breakingnews/3408353)
 
 0
