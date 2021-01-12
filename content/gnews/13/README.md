@@ -1,33 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 推特持续打压自由言论无果 Gab异军突起
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/740605/)
+## 蓬佩奥: 我们不能再像往常回到 “多边主义”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/742192/)
 
-俄罗斯莫斯科喀秋莎农场 文强
+- 编辑：Victor Torres
 
-编辑上传 星河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/789.jpg)medium.com
-1月8日，推特永久禁止了川普总统和其他用户包括律师西德尼·鲍威尔（Sidney Powell）、前国家安全顾问迈克尔·弗林（Michael Flynn）的个人账号，引发不少人外移到Gab和Parler等平台。此外，还有不少川普粉丝和爱国人士改换账号头像，以示支持川普以及抗议推特扼杀言论自由。
 
-1月9日，Gab在社交媒体上发表声明，我们的流量在过去24小时内增长了753%，访问量增长到数千万。Gab公司补充说，周六该平台新增了超过50万名新用户，并表示川普已经在Gab注册账号。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-Gab执行长安德鲁·托巴（Andrew Torba）透露，在推特实行广泛审查禁令的时候，有大量的用户从推特迁移到Gab，促使该平台的下载量大增。为了因应突然爆冲的网路流量，目前公司正在增加伺服器的数量。
+**西班牙2021年1月12日电/西喜社——**美国国务卿蓬佩奥周一晚间发推称：
 
-Gab于2016年推出，被视为推特的替代性社交网站，偏向保守派人士使用，Gab主页则强调此平台倡导言论自由和资讯传播的自由。托巴表示，当涉及到捍卫言论自由、反对硅谷（大科技公司）的在线暴政时，Gab是市场的领导者。
+“作为联合国最大的出资人，我把美国纳税人和美国的利益放在第一位。没有美国领导的联合国=猖獗的反犹太主义、中共宣传、浪费/欺诈/滥用。我们不能再像往常回到 ‘多边主义’”。
 
-另一社交媒体Parler的流量也在同一时期出现了爆炸性增长。不过很快，谷歌就宣布将Parler从其在线商店中删除，苹果也紧随其后。随后，亚马逊宣布，从1月10日开始将关闭Parler的网络服务器。
 
-众议院情报委员会成员德文·努涅斯（Devin Nunes）在接受福克斯采访时表示，苹果、谷歌和亚马逊“显然违反了《反垄断法》、《民权法》和《RICO法案》。应该对所有协调这次攻击的人进行敲诈勒索的调查，这些人不仅攻击一家公司，而且也攻击所有像我们这样的人。”
 
-川普总统除了被推特永久禁止之外，也无法在脸书和Instagram发文，面对这样的封锁，川普先前透露团队正在和其他社交媒体联系，也有可能会建立新平台，并强调自己不会保持沉默。新中国联邦创始人郭文贵先生也在日前表示，未来也会考虑推出自己的在线媒体平台，打破科技寡头公司的舆论垄断，维护基本的言论自由。
+> As [@UN](https://twitter.com/UN?ref_src=twsrc%5Etfw)'s largest contributor, I put U.S. taxpayers and America's interests first. The UN without American Leadership = rampant anti-Semitism, CCP propaganda, waste/fraud/abuse. We can't afford to return to [#MultilateralismAsUsual](https://twitter.com/hashtag/MultilateralismAsUsual?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/arHZT4vc1T](https://t.co/arHZT4vc1T)
+> — Secretary Pompeo (@SecPompeo) [January 11, 2021](https://twitter.com/SecPompeo/status/1348766644726865921?ref_src=twsrc%5Etfw)
 
-参考链接：
 
-[http://cn.epochtimes.com/gb/21/1/10/n12679136.htm](http://cn.epochtimes.com/gb/21/1/10/n12679136.htm)
 
-[http://cn.epochtimes.com/gb/21/1/10/n12679483.htm](http://cn.epochtimes.com/gb/21/1/10/n12679483.htm)
-
-[https://www.rfi.fr/cn/%E6%94%BF%E6%B2%BB/20210110-%E6%8E%A8%E7%89%B9%E6%B0%B8%E7%A6%81%E7%89%B9%E6%9C%97%E6%99%AE-%E6%94%AF%E6%8C%81%E8%80%85%E6%80%92%E6%8E%A8-%E6%88%91%E4%BB%AC%E9%83%BD%E6%98%AF%E7%89%B9%E6%9C%97%E6%99%AE-%E6%8A%97%E8%AE%AE](https://www.rfi.fr/cn/%E6%94%BF%E6%B2%BB/20210110-%E6%8E%A8%E7%89%B9%E6%B0%B8%E7%A6%81%E7%89%B9%E6%9C%97%E6%99%AE-%E6%94%AF%E6%8C%81%E8%80%85%E6%80%92%E6%8E%A8-%E6%88%91%E4%BB%AC%E9%83%BD%E6%98%AF%E7%89%B9%E6%9C%97%E6%99%AE-%E6%8A%97%E8%AE%AE)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
 0

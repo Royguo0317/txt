@@ -1,21 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西班牙VOX党首声援川普呼吁言论自由权
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/740574/)
+## 世卫组织: 最近全球中共病毒病例激增主要由于 &#8220;人们的混合增加&#8221;
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/742133/)
 
 - 编辑：Victor Torres
-- 翻译：蚂蚁兄弟
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月11日电/西喜社——**
+**西班牙2021年1月12日电/西喜社——**世界卫生组织表示，最近全球中共病毒病例激增主要是由于 “人们的混合增加”，而不是新发现的病毒变种。
 
-在周三国会山大厦袭击事件后，全球领先的社交网络科技公司噤声了美国总统唐纳德·川普，并永久性关闭其帐号，Parler也被苹果、谷歌和亚马逊排除在其服务器之外。西班牙VOX党领导人圣地亚哥·阿巴斯卡（Abascal）表示，面对社交平台被审查的现状，他已经开始与不同的国际政治领导人进行商榷，他认为言论自由是所有相信自由和主权的国家所关心的问题。
+世卫组织中共病毒的技术负责人玛丽亚·范·科霍夫（Maria Van Kerkhove）在周一的新闻发布会上表示，众多国家的病例激增是在新变种被发现之前就已经发现的。
 
-阿巴斯卡尔谴责大型科技公司已经成为 “全球思想舆论警察”，从某种意义上说，他在警告世界 “全球正面临着基本自由的威胁”，说，那些现在正在庆祝谴责美国总统川普的人，可能很快就会看到自己的异议自由也受到威胁。“如果大科技公司决定了谁在社交网络上有发言权，谁没有发言权……如果一切都受制于少数人的标准，那么宪法、权利、主权和法官又有什么用呢”？ VOX党领导人表示：”在审查制度和暴政下，自由和民主岌岌可危。”
+范·科霍夫指出，夏季期间，欧洲大多数国家的中共病毒病例已降至个位数。
 
-新闻来源：[https://gaceta.es/actualidad/abascal-anuncia-conversaciones-con-lideres-internacionales-para-enfrentar-los-ataques-a-la-libertad-de-expresion-20210110-1511/](https://gaceta.es/actualidad/abascal-anuncia-conversaciones-con-lideres-internacionales-para-enfrentar-los-ataques-a-la-libertad-de-expresion-20210110-1511/)
+“我们输掉了这场战斗，因为我们在夏季，进入秋季，特别是在圣诞节和新年前后改变了我们的混合模式，”她说。”这对你在许多国家看到的指数级增长产生了直接影响，”她说。
+
+世卫组织紧急情况负责人迈克尔·瑞安博士说，虽然有一些证据表明新的变种可能会加速中共病毒的传播，但没有证据表明它们是正在推动 “任何严重性的因素”。
+
+**新闻来源：**[https://apnews.com/article/international-news-south-korea-coronavirus-pandemic-moon-jae-in-6d4e1a08d84038da5f8fc54286971522](https://apnews.com/article/international-news-south-korea-coronavirus-pandemic-moon-jae-in-6d4e1a08d84038da5f8fc54286971522)
+
 ![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
-0
+
++1

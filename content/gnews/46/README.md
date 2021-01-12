@@ -1,51 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国防官员确认川普仍为总司令，拒绝参与军事政变迫使他下台
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/740222/)
+## 蓬佩奥：中共国撒谎，世卫组织抵赖
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/741743/)
 
-基普·琼斯（Kipp Jones）撰写
+- 编辑：Victor Torres
 
-翻译：康州盘古农场-YY
 
-校对：康州盘古农场-Antsee-GTV
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-审核：康州盘古-Truemanman
-![]()![](https://gnews.org/wp-content/uploads/2021/01/trump-army-2.jpg)
-尽管在周三国会大厦被闯入之后民主党人和建制派媒体发起了使唐纳德·川普总统失去合法性的运动，但据报道国防部官员打算回避外界压力，仍然承认他是总司令，避免参与“一场军事政变”。
+**西班牙2021年1月11日电/西喜社——**美国国务卿蓬佩奥周一发推称：
 
-周五媒体广泛报道众议院议长南希·佩洛西（Nancy Pelosi）要求参谋长联席会议主席陆军上将马克·米尔利（Mark A. Milley）限制总统动用这个国家称为核橄榄球的（控制核武器发射的）权力，其中包含美国庞大的核武器军火库的发射密码。
+“世卫组织和其他多边机构以透明和负责的方式做他们的实际工作。如果他们不这样做，我们就不会继续浪费纳税人的美元来补贴中国的影响力行动。”
 
-佩洛西打电话给米尔利，要求他无视川普发出的使用这些密码的命令。目前尚不清楚是什么引发了佩洛西给米尔利的电话。川普似乎不存在任何具体的威胁，表明这个电话是出于政治目的而打的。
+“中共国撒谎，世卫组织抵赖。”
 
-据报道这个加州民主党人（佩洛西）告诉米尔利，她想限制总统在任期的最后几天对国际威胁作出回应。
 
-《全国共国广播电台》报道称，佩洛西告诉她的民主党同僚，她曾与米尔利谈论了“（这是）为防止不稳定的总统发起军事敌对行动或使用发射密码和下令进行核打击而采取的预防措施。”
 
-佩洛西写道：“这位失控的总统的状况……再没有比这更危险的了，我们必须尽一切努力保护美国人民免于他对我们的国家和民主的无法被制衡的攻击。”
+> .[@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) and other multilateral institutions do their actual jobs with transparency and accountability. If they don’t, we won't keep wasting taxpayer $$$ to subsidize Chinese influence operations. [#ChinaLiedWHODenied](https://twitter.com/hashtag/ChinaLiedWHODenied?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/d6IeaoqDt7](https://t.co/d6IeaoqDt7)
+> — Secretary Pompeo (@SecPompeo) [January 11, 2021](https://twitter.com/SecPompeo/status/1348721340811980801?ref_src=twsrc%5Etfw)
 
-但据《纽约时报》报道，五角大楼在这场党派之争中保持中立。
 
-米尔利的发言人戴夫·巴特勒（Dave Butler）上校的一份声明向《纽约时报》证实了这个电话确实发生过。
 
-巴特勒说：“ [米尔利]回答了她有关对核命令授权的处理的问题。”
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
-据《泰晤士报》记者戴维·桑格 (David Sanger) 和埃里克·施密特 (Eric Schmitt) 报道，该报与五角大楼的其他官员进行了交谈，他们不愿卷入佩洛西的政治较量。
-
-“他们指出，川普先生仍然是总司令。除非他被免职，否则军方一定会遵守他的合法命令。尽管军官们可以拒绝执行他们认为是非法的命令，或者通过对这些命令进行仔细的合法性确认来延缓执行，但他们无法将总统从指挥系统中移除。官员们说，那将等同于一场军事政变。”桑格和施密特报道。
-
-《泰晤士报》还报道了，“使官员们最担心的一个问题是伊朗宣布已开始将铀浓缩至20％的纯度-接近制造炸弹的品质。去年12月，川普先生要求针对伊朗不断增长的核燃料生产采取军事选项，但包括米尔利将军和国务卿迈克·蓬佩奥在内的多位高级官员说服了他未采用该手段。”
-
-佩洛西和其他民主党人利用周三在国会大厦发生的事件来证明他们对川普的穷追猛打是正确的，他们表示随着几年来他的精神状态制造的（公众）恐慌，他们准备在他任期的最后几天进行精准的政治报复。
-
-民主党人还宣布他们计划再次弹劾总统，有传言称他们可能试图通过第二十五条修正案将他免职，而他的任期还剩不到两周。
-
-据报道自周三以来其他民主党议员也对米尔利施加了压力。但是报告称到目前为止军方断然拒绝了他们，并打算对政治保持中立。
-
-川普仍然是政府中唯一有能力直接下令采取军事行动，并有权使用国家核武库的人。任何企图拒绝他为履行国家安全职责使用必要工具的行为都是非法的，除非行使《第二十五条修正案》，或者任何他向五角大楼官员发出的命令被认定为不合法。
-
-如果拜登将在1月20日就职，到那时他将被授予这个国家的军事和核武库的指挥权。
-
-原文链接：[https://www.westernjournal.com/defense-officials-confirm-trump-still-commander-chief-refuse-participate-military-coup-oust/amp/?\_\_twitter\_impression=true](https://www.westernjournal.com/defense-officials-confirm-trump-still-commander-chief-refuse-participate-military-coup-oust/amp/?__twitter_impression=true)
-
-+1
++4

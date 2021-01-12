@@ -1,21 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 1/7/2021郭先生直播: 中共最擅用掺沙子; 不能再容忍中共的统治; 邪恶总是在其达到目的前的最后一刻被打败
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/739655/)
+## 【大选实时报】1/11/2021 Raheem Kassam推文:川普支持率没有变化!
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/741880/)
 
-1/7/2021 郭先生直播: 共产党最擅用的就叫掺沙子，给人挖坑，诱使对手犯错；共产党利用这次大选，成功地分裂了美国，使美国人与人之间的猜忌达到顶点
+**美东时间 12:22PM推文:** 还记得当时（民主党人）指控共和党人在俄罗斯的协助下诈骗选举，他们的反应是强制关闭民主党平台，强行将民主党人赶下台吗？ 等一下，那样的事儿从来没有发生过。相反的是他们开始了一项由穆勒（Muller）领导的全国性调查
+![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-103.jpg)来源：[https://twitter.com/RaheemKassam/status/1348681708124729345](https://twitter.com/RaheemKassam/status/1348681708124729345)
+盖特链接：[https://gtv.org/getter/5ffcc90d87fabe2daf36cc1a](https://gtv.org/getter/5ffcc90d87fabe2daf36cc1a)
 
-
-
-1/7/2021郭先生直播：我们绝不能再容忍共产党的统治。八千万有信仰有法治的美国人将成为我们的战友。只有当中国人和美国人一样有信仰有战斗精神时，才不会被共产党愚弄。
-
-
-
-1/7/2021郭先生直播：邪恶总是在其达到目的前的最后一刻被打败；我们是有使命的，我们要看透生死，达到觉醒觉悟的境界。
+**美东时间 16:00PM推文：**民调显示，尽管被媒体和科技巨头打压，川普支持率没有变化！
+![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-100.jpg)来源：[https://twitter.com/RaheemKassam/status/1348736542538428416](https://twitter.com/RaheemKassam/status/1348736542538428416)
+盖特链接：[https://gtv.org/getter/5ffcbfd587fabe2daf36c657](https://gtv.org/getter/5ffcbfd587fabe2daf36c657)
 
 
 
-**By： 【秘密翻译组 G-Translators】**
 
-0
+
+By 【秘密翻译组G-Translators】
+
++1
