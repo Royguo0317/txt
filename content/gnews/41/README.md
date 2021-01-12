@@ -1,21 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选实时报】1/11/2021 Raheem Kassam推文:川普支持率没有变化!
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/741880/)
+## 世卫组织: 最近全球中共病毒病例激增主要由于 &#8220;人们的混合增加&#8221;
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/742133/)
 
-**美东时间 12:22PM推文:** 还记得当时（民主党人）指控共和党人在俄罗斯的协助下诈骗选举，他们的反应是强制关闭民主党平台，强行将民主党人赶下台吗？ 等一下，那样的事儿从来没有发生过。相反的是他们开始了一项由穆勒（Muller）领导的全国性调查
-![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-103.jpg)来源：[https://twitter.com/RaheemKassam/status/1348681708124729345](https://twitter.com/RaheemKassam/status/1348681708124729345)
-盖特链接：[https://gtv.org/getter/5ffcc90d87fabe2daf36cc1a](https://gtv.org/getter/5ffcc90d87fabe2daf36cc1a)
-
-**美东时间 16:00PM推文：**民调显示，尽管被媒体和科技巨头打压，川普支持率没有变化！
-![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-100.jpg)来源：[https://twitter.com/RaheemKassam/status/1348736542538428416](https://twitter.com/RaheemKassam/status/1348736542538428416)
-盖特链接：[https://gtv.org/getter/5ffcbfd587fabe2daf36c657](https://gtv.org/getter/5ffcbfd587fabe2daf36c657)
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
+**西班牙2021年1月12日电/西喜社——**世界卫生组织表示，最近全球中共病毒病例激增主要是由于 “人们的混合增加”，而不是新发现的病毒变种。
 
+世卫组织中共病毒的技术负责人玛丽亚·范·科霍夫（Maria Van Kerkhove）在周一的新闻发布会上表示，众多国家的病例激增是在新变种被发现之前就已经发现的。
 
-By 【秘密翻译组G-Translators】
+范·科霍夫指出，夏季期间，欧洲大多数国家的中共病毒病例已降至个位数。
+
+“我们输掉了这场战斗，因为我们在夏季，进入秋季，特别是在圣诞节和新年前后改变了我们的混合模式，”她说。”这对你在许多国家看到的指数级增长产生了直接影响，”她说。
+
+世卫组织紧急情况负责人迈克尔·瑞安博士说，虽然有一些证据表明新的变种可能会加速中共病毒的传播，但没有证据表明它们是正在推动 “任何严重性的因素”。
+
+**新闻来源：**[https://apnews.com/article/international-news-south-korea-coronavirus-pandemic-moon-jae-in-6d4e1a08d84038da5f8fc54286971522](https://apnews.com/article/international-news-south-korea-coronavirus-pandemic-moon-jae-in-6d4e1a08d84038da5f8fc54286971522)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
 +1

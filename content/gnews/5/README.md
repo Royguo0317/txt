@@ -1,23 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爱达荷州的互联网供应商屏蔽了 Facebook和Twitter
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/742371/)
+## 川普总统宣布华盛顿特区进入紧急状态
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/742338/)
 
-俄罗斯莫斯科喀秋莎农场   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/twitter-facebook-logo-phone-united-states-flag-4542.jpg)cnet
-北爱达荷州和华盛顿斯波坎地区的一家互联网服务提供商(ISP)决定屏蔽Facebook和Twitter，原因是三分之二的客户打电话投诉这些平台的不公正审查制度，要求屏蔽这些网站。
+新闻来源： whitehouse.gov
 
-据KREM 2网站报道，ISP确认，从本周三开始将对部分用户屏蔽Facebook和Twitter的WIFI服务。起因是推特永久封杀了美国川普总统账号，脸书更是“无限期”暂停了川普总统账号。
+翻译：喜马拉雅文白
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/image001-15.png)
+原文翻译：
 
-“我们注意到，Twitter和Facebook正在审查我们的客户和信息，”ISP写给客户的公开信中写到，“过去几天我们一直在接到客户的电话，他们表达了担忧，他们不希望这些网站继续出现在互联网上，更不希望他们的孩子浏览这些网站。”
+美国总统唐纳德-J-特朗普批准哥伦比亚特区紧急声明
 
-ISP解释说，因为有太多的客户要求屏蔽这些网站，它将屏蔽所有客户的Facebook和Twitter，除非用户申请希望访问这些网站。
+今天，唐纳德-J-特朗普总统宣布，由于第59届总统就职典礼造成的紧急状况，哥伦比亚特区存在紧急状况，并下令提供联邦援助，以补充特区的应对工作，时间为2021年1月11日至1月24日。
 
-ISP进一步解释说，它不会容忍Facebook和Twitter，以及其他大型科技公司审查用户或“试图消灭竞争对手”，比如Parler。文中提到：“我们公司认为，网站或社交网站没有权力审查你看到的、发布的和向你隐瞒的信息。”“我们也不能容忍谷歌（Google）、亚马逊(Amazon)、推特(Twitter)、脸书(Facebook)和苹果(Apple)试图用强硬手段迫使人们屈服的行为。”
+总统的行动授权国土安全部、联邦紧急事务管理局（FEMA）协调所有的工作，这些工作的目的是减轻紧急状况给当地居民带来的困难和痛苦，并根据《斯塔福德法案》第五章的授权，为所需的紧急措施提供适当的援助，以拯救生命、保护财产和公众健康与安全，减轻或避免哥伦比亚特区的灾难威胁。
 
-参考链接：
+具体而言，联邦紧急事务管理局有权确定、调动并酌情提供必要的设备和资源，以减轻紧急情况的影响。紧急保护措施，仅限于联邦直接援助，将由联邦提供100%的资金。
 
-[https://www.breitbart.com/tech/2021/01/11/idaho-internet-provider-blocks-facebook-twitter/](https://www.breitbart.com/tech/2021/01/11/idaho-internet-provider-blocks-facebook-twitter/)
+国土安全部联邦紧急事务管理局(FEMA)局长皮特-盖诺(Pete Gaynor)任命托马斯-法尔乔内(Thomas J. Fargione)为联邦协调官，负责地区的联邦恢复行动。
 
-0
+***[原文链接](https://www.whitehouse.gov/briefings-statements/president-donald-j-trump-approves-district-columbia-emergency-declaration/)***
+
++2

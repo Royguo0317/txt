@@ -1,50 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥连续发重推：中共构成了真正的威胁
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/742037/)
+## 纯粹的邪恶：因为挑战选举欺诈和谴责暴动,民主党人将在未来几天谴责莫·布鲁克斯和路易·戈默特
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/742370/)
 
-蒙特利尔皇家山战友团laotou
+翻译： 康州盘古农场 – Freeearth
 
-校对 上传 小鸥
-![]()![](https://gnews.org/wp-content/uploads/2021/01/P-7.jpg)图片来自 蓬培奥推特截图
-美国国务卿蓬培奥1月11日2小时内连发3推，其中两则推文里有褐血色魔旗背景的醒目“标语牌”，“中国共产党构成了真正的威胁”，“中国产党收买知道真相的医生”。
+校对： 康州盘古农场 – 烟波浩淼
 
-像是在呐喊、控诉，更像是清算的开始！
+审核：康州盘古-Truemanman
+![]()![](https://gnews.org/wp-content/uploads/2021/01/图片36.png)
+你知道这要来了。
 
-推文1【1】
+**民主党人****计****划在未来几天****谴责****共和党德州****众****议员路易.****戈默特（****Louie Gohmert****）****和****共和党阿拉巴马****众****议员****莫·布鲁克斯（****Mo Brooks）挑****战****被盗的2020年大****选****。**
 
-当中共国接管了联合国的一个机构时会发生什么？
+**民主党人希望****将川****普支持者和安提法（Antifa）在美国国会大厦的****骚****乱****归****咎于与之无关的共和党****议员****！**
 
-让我们来谈谈世卫组织和该机构在应对中共病毒方面的灾难性失败，正如他们未能应对非典一样。#中共撒谎，数百万人死亡
+专制政府就是这种表现。
 
-推文2【2】
+民主党人拥有一切权力，他们将利用它来惩罚任何阻碍他们的人。
 
-“中共收买知道真相的医生”
-
-世卫组织被中共的影响力腐蚀了，贱卖了。世卫组织调查人员仍然无法进入武汉——在第一个病例报告的一年后？
-
-#中共撒谎，数百万人死亡
-
-推文3【3】
-
-“中国共产党构成了真正的威胁”
-
-世卫组织和其他多边机构要以透明度和问责制开展实际工作，如果他们不这样做，我们就不会继续浪费纳税人的钱，为中共国（兜售）影响力的行动给予资助。
-
-#中共撒谎，世卫否认
-
-我们应该关注一下，美国蓬佩奥国务卿的3个推的最后一句，其中有2个加了“#中共撒谎，数百万人死亡”（#ChinaLiedMillionsDied），一个加了“#中共撒谎，世卫否认”（#ChinaLiedWHODenied），印象中这是对中共最强烈的官方谴责，到了清算中共病毒的时候了！
-
-回想一下川普总统的行政班子近期出台的政策，令中共企业退市、解禁与台湾往来限制，到今天前所未有的谴责，都是大招，都是文贵先生早就告知的。
-
-邪共，你完了！
-
-参考链接：
-
-- [https://twitter.com/SecPompeo/status/1348706247139336195](https://twitter.com/SecPompeo/status/1348706247139336195)
-- [https://twitter.com/SecPompeo/status/1348713792079859713](https://twitter.com/SecPompeo/status/1348713792079859713)
-- https://twitter.com/SecPompeo/status/1348721340811980801
+推特链接如下：
 
 
-+2
+
+> 1) Senior Democratic lawmakers tell Fox to expect a censure resolution in the House in the coming days for Reps. Louie Gohmert (R-TX) and Mo Brooks (R-AL). Fox is told there could also be consequences for Rep. Matt Gaetz (R-FL).
+> — Chad Pergram (@ChadPergram) [January 10, 2021](https://twitter.com/ChadPergram/status/1348389822185013249?ref_src=twsrc%5Etfw)
+
+
+
+*乍得.珀格拉姆@ChadPergram·*
+
+1. *民主党高**级**立法者告**诉**福克斯，他**们**希望众**议**院在未来几天**对**众**议**院的**谴责**决**议**案得以解决：**共和党德州众议员**路易·戈默特和**共和党阿拉巴**马众议员**莫.布**鲁**克斯。 福克斯被告知，**共和党佛罗里达州**众**议员马**特·盖茨可能会受到影响。*
+
+
+*乍得·珀格拉姆 @ChadPergram ·*
+
+*1**月10**日*
+
+*2）**尚未与福克斯分享任何**预**期**纪**律的决**议**。福克斯也不知道，如果众**议**院考**虑对这**些成**员进**行制裁，具体会有哪些不**满**。*
+
+*众**议**院有三种正式的**纪**律**处**分方式：申斥、**谴责**和开除。*
+
+*乍得·珀格拉姆 @ChadPergram ·*
+
+*1**月10**日*
+
+*3）众**议**院在其**历**史上**仅谴责过**23名成**员**。**最后一个是2010年的前众**民主党**纽约州**众**议员查**理**·**兰**格**尔**（**Charlie Rangel）。**驱**逐需要三分之二的**选**票。**众**议**院在**历**史上**仅驱**逐了五名成**员**。**但谴责和申斥需要简单多数票。*
+
+*下午**4**：0**2**·**2021**年**1**月1**0**日*
+
+原文作者：吉姆·霍夫特（Jim Hoft）
+
+发布时间：2021年1月10日下午10:26
+
+原文链接: [PURE EVIL: Democrats to Censure Mo Brooks and Louie Gohmert in Coming Days for Challenging Election Fraud and Blaming Riots on Them (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/01/pure-evil-democrats-censure-mo-brooks-louie-gohmert-coming-days-challenging-election-fraud-blaming-riots/)
+
++1

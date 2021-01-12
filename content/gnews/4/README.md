@@ -1,59 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 纯粹的邪恶：因为挑战选举欺诈和谴责暴动,民主党人将在未来几天谴责莫·布鲁克斯和路易·戈默特
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/742370/)
+## 《路德社》精选新闻简讯: “和谐”的时间已经结束，朱利安尼呼吁川普总统解密
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/741003/)
 
-翻译： 康州盘古农场 – Freeearth
+出品：《路德社》
 
-校对： 康州盘古农场 – 烟波浩淼
+编辑：《路德社》精选新闻专栏组
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/image002.jpg)
+上周五在班农作战室，前纽约市长现川普竞选团队律师鲁迪·朱利安尼呼吁，在1月20日前希望川普总统对深层政府进行彻底的解密。朱利安尼表示再没有任何搞面子上所谓的和谐的必要，即使受到多方的打压和阻挠但也要进行解密。
 
-审核：康州盘古-Truemanman
-![]()![](https://gnews.org/wp-content/uploads/2021/01/图片36.png)
-你知道这要来了。
+朱利安尼指出，川普总统解密的这些信息不仅还真相与他的MAGA支持者们，更会造福于现在依旧那些被媒体和政客欺骗的人民。
 
-**民主党人****计****划在未来几天****谴责****共和党德州****众****议员路易.****戈默特（****Louie Gohmert****）****和****共和党阿拉巴马****众****议员****莫·布鲁克斯（****Mo Brooks）挑****战****被盗的2020年大****选****。**
+在节目中朱利安尼称“这些机密文件所包含的内容是相当尴尬的机密信息，它们能证明川普政府之前的一任政府，如何运用了不正当的手段，阻止川普竞选总统，在川普当上总统之后，又使用特别拙劣的非法手段来试图弹劾川普总统。”
 
-**民主党人希望****将川****普支持者和安提法（Antifa）在美国国会大厦的****骚****乱****归****咎于与之无关的共和党****议员****！**
+解密的内容川普总统在2020年10月7日发布的一条推文中提到过，其中包含了俄罗斯骗局相关的所有文件，还有希拉里·克林顿的电子邮件丑闻。
 
-专制政府就是这种表现。
-
-民主党人拥有一切权力，他们将利用它来惩罚任何阻碍他们的人。
-
-推特链接如下：
+笔者推测应该还涉及到亨特·拜登笔记本硬盘丑闻及在乌克兰的政治腐败问题等，这是美国历史上最重大的政治犯罪。作为经验丰富的前联邦检察官的朱利安尼一定会缜密的计划帮助川普总统完成解密最终把真相还原公布于大众。
 
 
 
-> 1) Senior Democratic lawmakers tell Fox to expect a censure resolution in the House in the coming days for Reps. Louie Gohmert (R-TX) and Mo Brooks (R-AL). Fox is told there could also be consequences for Rep. Matt Gaetz (R-FL).
-> — Chad Pergram (@ChadPergram) [January 10, 2021](https://twitter.com/ChadPergram/status/1348389822185013249?ref_src=twsrc%5Etfw)
+[来源连结](https://www.washingtonexaminer.com/news/giuliani-time-for-harmony-over-trump-declassification-spree)
 
+本文作者：文森特
 
+审核校对：玫瑰天空
 
-*乍得.珀格拉姆@ChadPergram·*
-
-1. *民主党高**级**立法者告**诉**福克斯，他**们**希望众**议**院在未来几天**对**众**议**院的**谴责**决**议**案得以解决：**共和党德州众议员**路易·戈默特和**共和党阿拉巴**马众议员**莫.布**鲁**克斯。 福克斯被告知，**共和党佛罗里达州**众**议员马**特·盖茨可能会受到影响。*
-
-
-*乍得·珀格拉姆 @ChadPergram ·*
-
-*1**月10**日*
-
-*2）**尚未与福克斯分享任何**预**期**纪**律的决**议**。福克斯也不知道，如果众**议**院考**虑对这**些成**员进**行制裁，具体会有哪些不**满**。*
-
-*众**议**院有三种正式的**纪**律**处**分方式：申斥、**谴责**和开除。*
-
-*乍得·珀格拉姆 @ChadPergram ·*
-
-*1**月10**日*
-
-*3）众**议**院在其**历**史上**仅谴责过**23名成**员**。**最后一个是2010年的前众**民主党**纽约州**众**议员查**理**·**兰**格**尔**（**Charlie Rangel）。**驱**逐需要三分之二的**选**票。**众**议**院在**历**史上**仅驱**逐了五名成**员**。**但谴责和申斥需要简单多数票。*
-
-*下午**4**：0**2**·**2021**年**1**月1**0**日*
-
-原文作者：吉姆·霍夫特（Jim Hoft）
-
-发布时间：2021年1月10日下午10:26
-
-原文链接: [PURE EVIL: Democrats to Censure Mo Brooks and Louie Gohmert in Coming Days for Challenging Election Fraud and Blaming Riots on Them (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/01/pure-evil-democrats-censure-mo-brooks-louie-gohmert-coming-days-challenging-election-fraud-blaming-riots/)
+上传排版：糊糊文婴
 
 +1
