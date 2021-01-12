@@ -1,19 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 出尔反尔：中共再次叫停WHO的科学家考察团进入中国调查病毒来源
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/743131/)
+## 德州立法者考虑脱离，而不是在民主党马克思主义下的生活—几个州对运动感兴趣
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/744229/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1-44.jpg)[图片来源](https://gnews.org/wp-content/uploads/2021/01/1-44.jpg)
+- 编辑：Victor Torres
 
-十名世界卫生组织科学家将于周四访问中国，以探究COVID-19的起源。就在大流行开始仅仅一年之后， 在冠状病毒席卷全球，造成近200万人死亡，并使全球经济基本停滞之际，人们迫切的要了解病毒的真相。 中国国家卫生委员会也在一份声明中说，世卫组织团队“将与中国科学家就病毒来源开展联合研究合作”，但是总干事谭得塞说他“非常失望”，中国没有批准该小组的进入，尤其是两名成员已经在途中了。 中共政府是想淡化病毒从中国传出的事实。
 
-随着新疫情的爆发，中国境内再次拉响警报。美国和澳大利亚向国际呼吁，要求对该病毒的来源进行独立调查。在问责呼声日益高涨的情况下，中共政府四面楚歌。 尽管在国内，中共政府自我表扬了对疫情的处理，同时压制任何批评，但中共政府在疫情爆发之初缺乏透明度一直面临国际批评。中共政府官员一再表示，追查大流行的起源是“科学问题”，甚至将病毒起源甩锅给国外。
+***更多信息，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-评：中国政府非常害怕世界各国追责CCP病毒的起源，因他们最清楚这病毒的起源就是他们自己创造的，也最淸楚这病毒怎么散播出去的，还知道这对世界各国造成了多么大的伤害，经济不可逆转的下滑，倒退几十年。死亡人口已达200 多万。而且最重要的是人们还是情况不明，不知道这灾难有多严重，究竟是什么原因。所以追究责任的呼声越来越大。当然中国政府更淸楚如果人们知道了真相，随之而来的遗责，索赔，必然会导致中共政权的倒台。为了最后的挣扎，他们千方百计的造谣，消毁证据，杀害证人，不让各囯专家进去探究真相。才会叫停WHO 科学家考察团的入境考察。
+**西班牙2021年1月12日电/西喜社/——**
 
-[原文链接](https://www.news.com.au/world/coronavirus/global/who-team-to-arrive-in-china-thursday-to-probe-virus-origins/news-story/8df5ff646f0a73fb2254cd1b0ca8d518#.blvyb)
+德州众议员凯尔·比德曼周一加入了克里斯·萨尔塞多的Newsmax电视台采访。
 
-翻译报道： 正常人
+凯尔正在领导一项努力，从民主党马克思主义者手中拯救德克萨斯州，他们在2020年的选举中偷走了华盛顿特区的权力。
 
-+5
+在民主党人像偷走摇摆州一样抢走他们的州之前，德州立法者的这一举动很好。
+
+由于共产主义违反了美国宪法，法院可能很难裁定反对德克萨斯州的退出。
+
+凯尔告诉克里斯·萨尔塞多，德克萨斯州的立法者正在接到几个州的电话，有兴趣加入他们的运动。
+
+新闻来源：[https://www.thegatewaypundit.com/2021/01/texas-lawmakers-consider-secession-life-democrat-marxism-several-states-interested-movement-video/](https://www.thegatewaypundit.com/2021/01/texas-lawmakers-consider-secession-life-democrat-marxism-several-states-interested-movement-video/)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
++1

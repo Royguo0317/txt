@@ -1,23 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德时评简讯（视频版） 2021/01/09早间：仍未露面的习近平对政法委作出指示；中共在高科技信息战的优缺点
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/742498/)
+## 每日重要Twitter播报（中文）1/11期
+` 喜馬拉雅多語組` [轉載自GNews](https://gnews.org/zh-hans/743726/)
 
-《路德社》出品
+撰稿记者:本来、石頭、尘凡3、CYC文穎、喜馬拉雅2020
+校对:清咖
+播音:愛明州（文根根）
+剪辑：喜瑪拉雅2020
 
-以下视频是详细内容：
-
-内容摘要：
-
-1.仍未露面的习近平对政法委作出指示
-2.习近平对自己安全的担心和防范
-3.中共在高科技信息战的优缺点
-4.习近平的处境突显了中共的困境
-
-翻译：路德社翻译组
-制作：路德社视频组
-审核校对：玫瑰天空
-上传排版：青葫芦娃
+[每日重要推特1-11-PDF](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/01/12081326/1-11_Qingka-1.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/01/12081326/1-11_Qingka-1.pdf)
 
 0

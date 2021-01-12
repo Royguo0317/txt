@@ -1,31 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国家安全顾问罗伯特·奥布莱恩发表声明
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/743003/)
+## 意大利最高法院法律顾问就2020年大选干预事件宣誓作证
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/744183/)
 
-翻译：康州盘古农场 –  Feiyi
+英听校：    康州盘古农场 – Mike Li
 
-校对：康州盘古农场 – Rose
+翻译：       康州盘古农场 – Mike Li
 
-审核：康州盘古农场 – Rose
+翻译终校：康州盘古农场 – Antsee-GTV
 
-[**NATIONAL SECURITY & DEFENSE**](https://www.whitehouse.gov/issues/national-security-defense/)
+字幕+视频制作：康州盘古农场-天涯行
 
-**国家安全与国防**
+审核：康州盘古-Truemanman
 
-Issued on: January 11, 2021
 
-![https://www.whitehouse.gov/wp-content/uploads/2017/12/NSC-92x92.png](https://lh4.googleusercontent.com/0s27f_wZoL1Mj5aLYzZRCtD5KfjaWgbc0WXQSbo_xb76IzZNYq3irEDbmj_ojC2gkKNFEDhkH_X-E3Uqm3Z41Xpihr3dBwNQR4dexV2pEs_AJI6XKIbv5PSxKKgcR5feOylvYYF0k1opegHXpQ)
 
-[*National Security Council*](https://www.whitehouse.gov/nsc/)
+Alfio D’Urso教授，意大利最高法院法律顾问兹提供以下宣誓事实，并在几次与军队高级安全事务官的会议中已经转呈关于两位意大利莱昂纳多 股份公司（一家国防承包商） IT 部门的前负责人，已由那不勒斯的检察官于2020年12月，对他们在莱昂纳多股份公司的主计算机中植入病毒，技术操纵 数据提起指控，在美国驻罗马大使馆工作的美国人的干扰和指示下，实施了将2020年11月**3**日美国大选的数据从唐纳德**–**川普的明显胜势转换给乔**–**拜登的数据操作，在一些乔**–**拜登的选票总数低于川普的州。
 
-2020年5月，川普政府预见并宣告香港的自由开放社会在中国共产党(CCP)手中消亡。上周，有50多人因行使《基本法》保障的政治权利而被政治化地逮捕，其中包括前民选官员。这是北京接连向香港民主的棺材上钉上的最新一枚钉子。
+被告人称他在莱昂纳多股份公司在德雷斯顿的设备部工作并利用了军用级别的网络战加密能力通过军用卫星将选票从福辛诺（音译）塔传送到德国法兰克福。
 
-今年5月，美国政府要求北京方面就病毒的来源作出答复，并指责世界卫生组织(World Health Organization)听命于中国共产党掩盖事实真相。正如中共无视《中英联合声明》所规定的国际义务一样，中共继续无视《国际卫生条例》。
+被告宣誓称数据在某些情况下，可能已经被调整为代表比登记选民更多的选票，被告称他愿意（在某地）对所有涉及将唐纳德**–**川普的选票转给乔**–**拜登的个人和实体作证，但他和家人需要受到完全的保护
 
-美国是第一个勇敢和坦率地确认中共政权本质的大国。至关重要的是，世界各国都需要北京方面的问责制。无论是要终止香港的法治，还是不与卫生官员合作应对这一流行病，世界都无法继续为其天真无邪和同谋北京的不负责任和有害行为付出沉重的代价。美国正在研究进一步的应对方案。
+被告称他目前在一个秘密地点（关于当时）构造数据和做数据切换，是遵照指示的，此事件可在法庭上出示证据，我在此声明并宣誓，上述事实陈述均在我在场（情况下）进行
 
-原文链接：[https://www.whitehouse.gov/briefings-statements/statement-national-security-advisor-robert-c-obrien-011121/](https://www.whitehouse.gov/briefings-statements/statement-national-security-advisor-robert-c-obrien-011121/)
+原视频链接:[https://twitter.com/yoder\_esqq/status/1348055966995128327?s=21](https://twitter.com/yoder_esqq/status/1348055966995128327?s=21)
 
-+3
+0

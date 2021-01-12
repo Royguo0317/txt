@@ -1,55 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥发表重要讲话“我们需要真相”
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/743220/)
+## 国语【香港快讯】 1.12 中共炮制民主派大拘捕 林郑促区议员按国安法优先宣誓
+` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/744257/)
 
-素材：Jenny
+制作团队：【喜马拉雅粤语组】阿恩
 
-撰稿/视频：光耀华夏
-原视频来自Youtube
-美东时间2021年1月11日，美国国务卿蓬佩奥在《Voice of America/美国之音》总部发表重磅讲话，呼吁“我们需要真相”。在美国主流媒体平台如Facebook，Twitter，MSNBC，Fox News等向民众采取新闻封锁和掩盖真相的前提下，蓬佩奥呼吁VOA作为在八十年代打破德国铁幕的主要媒体力量，现阶段应该承担起向美国人民宣传真相和弘扬美国的民主、自由和价值观的重任，将自由之声洒向“撒向世界黑暗的角落”。
+审核：【喜马拉雅粤语组】文卡西欧、penny
 
-蓬佩奥的演讲部分摘录和翻译如下：
+上传：文粤
 
-It is great to have this opportunity, I have been following the work of Voice of America (VOA) for decades. As Bob just mentioned I started my career in army officer patrolling the Iron Curtain freedom’s frontier in the 1980s. I couldn’t cross into East Germany I was serving. West Germans couldn’t cross either. But your broadcast VOA broadcasts could. Millions of men and women whose names we’ll never know listen to you. After their own peril, their governments dealt only in lies and propaganda but VOA’s listeners wanted the truth and that’s what you gave them. They always very first broadcast in 1942 the power to begin with the battle hymn of the Republic, along with this pledge quote.
+主要内容
 
-The news may be good, the news may be bad but we’ll tell you the truth. I love that. I always told my son I told the story before when he is growing up. I said “work hard, keep your faith and tell the truth.” He mostly followed my advice. And it has served him and many of you I know well. Your mandate here in VOA is unambiguous to be accurate objective, and comprehensive, and to represent America. The mission of U. S. AGM is to inform, engage and connect people around the world in support of freedom and democracy. That is because expanding freedom and democracy what America has always been about your voice of American exceptionalism should be proud of that.
+《路透社》引述两名「于香港事务上具有丰富高层经验，能代表北京利益」的消息人士指，上周逾50名参与或举办民主派初选人士被捕，是北京压制反对派声音连串列动之一，更多的强硬措施将持续。北京官员正讨论改革选举制度，以解决香港政治结构中的「缺陷」。今年9月5日的立法会换届选举，有可能进一步推迟。
 
-The world needs VOA’s clear call for freedom now more than ever I hear wherever I go. That’s what I want to talk about today. I tell audiences about American’s exceptionalism wherever and whenever I can, because it’s true, because it’s important. America is good and great. And everyone who truly grabs our founding understands this. Michael and Bob have made studying this history their life’s work. Many of you have made it your life’s mission too. That’s why we work here VOA.
+最新刊于《自然通讯》的港大研究，声称首次发现一种与 MERS-CoV 相关的蝙蝠冠状病毒，可在人类结肠腺癌细胞有效复制。言下之意，蝙蝠冠状病毒有能力【跳过】中间宿主，直接感染人类，或会造成另一次冠状病毒疫情大爆发。该研究由港大刚离任的微生学系系主任的刘嘉珮教授与现系主任胡钊逸教授共同领导，不过团队无法在小鼠中传播 Ty-BatCoV HKU4 ，代表病毒即使感染人类，传播效率可能颇低。
 
-We were indeed the first nation founded on the central belief that all human beings are endowed with certain unalienable rights in the governments are instituted to secure those God-given rights. We have always striven for a more perfect union. And God knows we don’t always get it right. Therefore we need both pride and humility about our past and our present, we need the truth. But it is very clear that when Americans have united around our founding values, be it in Philadelphia, the Gettysburg, at Seneca falls during Martin Luther King’s March, on Washington. We’ve made good on our founding promised time and time again.
+林郑月娥今早在行会前见记者，被问及叶刘淑仪倡议取消BNO护照持有人香港居民权益，她澄清行会并无讨论过有关议题，或提出BNO涉及旅行证件等问题，但她说，BNO护照问题属非常敏感话题，回归前中英政府曾有共识，如果单方面处理有偏理，另一方面采取行动是理所当然，当香港受到不合理制裁，国家肯定会有对策，强调港府会配合国家反制措施，不过目前不知道有方案正在讨论。
 
-Our adversaries are trying to claim otherwise. When the Chinese Communist Party attempted to exploit the tragic death of George Floyd to claim their authoritarian system was somehow superior to ours. I issued a statement which read in part quote during the best of times the people’s Republic of China ruthlessly imposes communism. But amid the most difficult challenge United States secures freedom. There is no moral equivalence.
+港警国安处上周对去年参加民主派初选人士进行大搜捕，林郑月娥今早出席行会前记者，拒绝评论警方做法是否合理，但她批评外国部份政客、政府高官对今次拘捕存在「谬误」，认为外国政府应放下「双重标准」，声称：「法律面前，人人平等」。林卓廷斥责林郑的说法「令人作呕」，批评政府过去一直未有拘捕在元朗7.21事件中与白衣人勾结的员警，指林郑拒绝将特首纳入防贿条例规管范围，「还好意思讲平等？」
 
-This is a self-evident truth.  It is not fake news for you to broadcast. This is the greatest nation in the history of the world and the greatest nation this civilization has ever known.
+林郑在行会上被问到盈富基金管理人，美资「道富环球管理」宣布不再对受制裁的中资公司进行新投资，对此港府是否需要撤换盈富管理人作回应。林郑表示，盈富现时已经不属于政府。虽然金管局仍对管理人的人事任命「仍然有点影响力」，但不想在此评论」。不过，林郑亦借此批评此事件，「反映出另一种霸权主义」，抨击美国以行政命令迫使国内金融机构不准跟受制裁公司进行交易。
 
-Indeed I’m not saying this to ignore faults, just the opposite, it is to acknowledge them. But this isn’t the wise of America focusing on everything that’s wrong with our great nation it’s the voice of America. It certainly isn’t the place to give authoritarian regimes in Beijing or Tehran a platform. Your mission is to promote democracy, freedom, and American values all across the world. The U. S. taxpayer funded institution aimed squarely at that. Indeed this is what sets be apart from MSNBC and Fox News and the like. You can give voice to the voiceless in dark corners of the world. You’re the voice of American striving, the voice of American exceptionalism. Your are indeed the tip of freedom spear.
+林郑月娥今早出席行会前被问到区议员是否亦被视为公职人员需要宣誓时，她表明区议员即使无政权，但是政治体制的组织，选委亦肩负选出行政长官责任，两者应视为公职人员，需要按国安法优先宣誓，当局会尽快修订草案交予立法会审议。
 
-中文翻译如下：
+立法会今午将召开研究幼稚园、中小学教科书及教材编制小组委员会会议，工联会到政府总部外请愿，要求教育局规管坊间儿童读物。表示，近日有组织将12港人事件改编为儿童绘本及动画，意图美化这些「港独汉奸的卖国、暴力和违法行为，把黑白是非完全颠倒」，对此深感愤怒。认为政府应该开设「教材举报热线」，向教育局作出与教材相关投诉。
 
-我很高兴有这个机会，我几十年来一直在紧密关注美国之音（VOA）的工作。正如刚才鲍勃所说，我是陆军军官出身，1980年代在铁幕德国的边境巡逻。我无法进入东德，西德人也不能穿越边界。但是VOA的广播可以穿越战区边界，数以千计的我们永远不会知道姓名的男女老少听到你们的讲话。在历经艰险之后，政府只会撒谎和宣传，但是VOA的听众希望得到真相，这是你给他们提供的。自1942年以来，他们总是首先广播为共和国而战斗的赞美诗以及效忠誓言。
+中文大学昨日下学期开学，昨日有中大学生在近大学站入口与保安发生争执，员警以「公众地方行为不检」及「袭击」拘捕一名中大学生，校方之后承认曾报警。中大保安组关注组今日在该入口前派发单张，呼吁同学参与不合作运动，在拒绝展示证件情况下进入校园。有关注组成员批评，校方再一次在校园内报警「笃灰」，出卖学生，保安组与员警的合作令学生进一步不信任中大校方。中文大学外，约 6 名军装警员在附近巡逻。有同学表示曾被截查，警员称怀疑他身藏有攻击性武器。
 
-新闻可能是好消息，新闻也可能是坏消息，但我们会告诉你真相。我喜欢那样做。我总是告诉我的儿子，在他的成长过程中我说：“要努力工作，保持信念，说实话。”他听从了我的建议。我知道你们很多人都和他一样。你们在VOA的职责明确，客观，全面，代表着美国。美国媒体总署的使命是为世界各地支持自由与民主的人们提供交流和联系的机会。那是因为美国一直以来坚持扩大自由与民主，VOA做得非常出色，对此应该感到自豪。
+林郑月娥在施政报告中强调，要「致力巩固香港国际航空枢纽地位」，包括加强培训人才，让更多香港青年加入航空事业。可是本港唯一提供飞行训练和签发驾驶执照的香港飞行总会却因政府在批地一事上，拉锯逾20年，其百年会址亦面临被政府收回，多名资深私人机师甚至是总会的教官和考官都无法续牌。
 
-现在，世界比以往更需要VOA清晰发出自由的呼声，这是我今天谈话的主题。无论何时何地我都会向听众介绍美国的特立独行，因为它代表着真相，这很重要。美国是美好而伟大的。每个真正懂得我们建国史的人都明白这一点。迈克尔和鲍勃倾其一生研究这段历史，你们中的许多人也将此作为人生的使命。这就是为什么我们在VOA奋战。
+武汉肺炎疫情中，老人是高危一族。自2020年7月开始。政府禁止所有的院舍探访服务。但外展医生指，一般私营院舍内的生活枯燥乏味，院舍长者持续被禁足，家人又被拒之门外。一名八十岁婆婆在疫情前每星期均会见家人一次，精神状态良好，心情开朗。惟禁止家属探访后，婆婆被困在院舍内，情绪变得愈来愈低落，不断向职员诉说想念家人。尽管院舍已安排她与家人进行视讯通话，又允许在外出覆诊时让家人陪同，但情况始终未有改善，变得沉默寡言。 9月，职员到婆婆房间派饭时，发现她以指甲钳割脉，须即时送院治理。职员描述，婆婆误以为自己被家人抛弃，眼睛好恐怖，完全没有求生欲望。
 
-实际上，美国是第一个坚持以下核心理念的国家：人民拥有上帝赋予的不可剥夺的权利，政府的职责就是保证这一点。我们一直在为成为更美好的国家而不懈努力，虽然我们并不总能做到。因此，我们需要对过去和现在感到自豪和谦卑，我们需要真相。但是很显然，美国人一直坚守我们的建国理念，包括在费城，葛底斯堡，塞内卡和华盛顿游行期间。我们一次又一次地兑现了建国时的承诺。
+特首林郑月娥今早出席行政会议，提到本周疫情虽有缓慢下降迹象，但亦有反覆，形容情况令人担心，故港府大前提下必须继续坚守外防输入政策，又呼吁要做强制检测的市民尽快做检测，并要减少聚会，无必要亦应不再与自己亲密家人聚会，并说相信一个月后的农历新年需在平静环境下渡过。
 
-我们的对手试图反其道而行之。中共试图利用乔治·弗洛伊德的死亡悲剧性宣称自己的专制制度在某种程度上优于我们的民主。我发表过一份声明，其中提到“在最好的发展机遇时中共国却残酷地推行共产主义”。但是在千难万险中，美国始终保障自由。这两种制度在道德上毫无可比性。这是不言而喻的真理。这不是虚假信息，你们应该广传。美国是世界历史上最伟大的国家，也是人类文明史以来最伟大的国家。
+武汉肺炎持续反覆，本港今日新增逾60宗确诊个案。
 
-事实上我们不是说没犯过错，恰恰相反，我们承认错误。但是，这并不是说只关注美国的不足之处，VOA应该代表美国人民的声音。VOA绝不是提供给北京或德黑兰专制政权的媒体平台。你们的目标是在全世界弘扬民主、自由和美国价值观。作为美国纳税人资助的机构，这是你们的职责。的确，这使得VOA与MSNBC和Fox News之类的新闻媒体迥然不同。你们可以将你们的声音撒向世界黑暗的角落。你们是美国奋斗进取的声音，是美国优秀卓越的声音，是美国自由之矛的最顶端。
+强烈冬季季候风带来寒冷及非常干燥的天气，今早本港多区气温跌至摄氏8度以下，大帽山更跌至零下0.6度。周五气温回升至最高21度。另一股冬季季候风会在下周初影响本港，下周天气将再度转冷。
 
-参考来源：
+以上观点仅代表笔者本人
 
-[https://www.youtube.com/watch?app=desktop&v=0rxBbg\_pjRw&feature=youtu.be](https://www.youtube.com/watch?app=desktop&amp;v=0rxBbg_pjRw&amp;feature=youtu.be)
+资料来源：苹果日报 香港01 立场新闻 网路图片
 
-[https://www.youtube.com/watch?app=desktop&v=U3Li0zTmQs4&feature=youtu.be&from=groupmessage&isappinstalled=0](https://www.youtube.com/watch?app=desktop&amp;v=U3Li0zTmQs4&amp;feature=youtu.be&amp;from=groupmessage&amp;isappinstalled=0)
-
-澳喜文章: [https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
-
-欢迎加入澳喜农场：
-
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1-澳喜Logo.jpeg)
-+1
+0
