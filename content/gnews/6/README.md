@@ -1,92 +1,129 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年01月12日澳喜要闻（每日更新）
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/745351/)
+## 澳洲税务居民的分类和税率
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/745772/)
 
-撰稿：GTV澳喜影像视频组、新闻组
+撰稿: 与神同行
+审稿：Jenny 编辑：MG1
+![]()![](https://gnews.org/wp-content/uploads/2021/01/131-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图-2021-01-13-123222-2.png)图片来自网络截图
+(以下所有税务内容均来自ATO官方网站公布的信息)
 
-**路德社早间访谈：**
-
-**习近平急需出来证明自己健在。**据新华社报道：“省部级主要领导干部学习贯彻党的十九届五中全会精神专题研讨班1月11日上午在中央党校（国家行政学院）开班。习近平在开班式上发表重要讲话。”但新闻都是以文字形式表达，出现的图片或视频等证据有很多疑点。说明了共产党一贯的虚构造假的行事风格，更间接证明了习近平的行踪和身体状况的不确定性。据新华社此次报道，所有省部级以上的干部都在短时间内聚集北京，在这之前并没透露任何消息，这么多的官员在北京同时出现一定会对交通路线造成极大影响。说明此次在所谓的中央党校（国家行政学院）的学习研讨会一定是用造假的形式欺骗老百姓，同时给社会大众传递出习近平仍然非常健康，并能够完全控制整个中共内部权力的形象。
-
-**爆料革命对中共内部的影响。**爆料革命三年多以来，对中共内部情报了解的程度，可以达到对每个政治局常委的一举一动都了如指掌。只要中南海内部有任何的风吹草动，都会立刻有战友提前将情报传递出来，所以此次中共在中央党校召开的会议基本可以断定是伪造的，中共内部任何的行动、造假等新闻一出来，立刻会有战友找到破绽和证据，而且因为爆料革命对中共内部及墙内的传播和影响，基本已经让清醒过来的老百姓不再相信中共的任何信息。
-
-**习近平通过“吕录华”向外传递信息。**据路德社爆料目前习近平的藏身之地非常不稳定，随时会转移住所。而且习身边没有任何电子设备，即便是这样习每天的生活状况，甚至包括习每天吃的火锅，爆料革命都一清二楚。这证明了爆料革命战友的力量之强大。现在又爆出习都是通过一个叫“吕录华”名字的人来向外传递信息和指令，以伪装自己的行踪。这个叫 “吕录华”的人到底是习本人还是他的机要秘书目前并不清楚。但这样机密的情报信息被路德先生获得，证明中共内部战友的级别和力量绝非等闲。这些战友将是推翻共产党最重要的力量。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/AB-8-scaled.jpg)澳喜要闻
-**路德社晚间访谈：**
-
-**习近平****1****月****11****日新闻联播照片被证实造假。**中共党媒新华网刊登“精神专题研讨会”照片，展示习近平当前精神面貌，但被战友从照片属性发现其拍摄时间为2020年12月29日，习露脸造假无疑，说明其状态堪忧。中共劣质表演不但未对党内起到安抚作用，还被众人识破贻笑大方。路德社晚间节目开始前，照片日期被改为1月11日0点0分。节目中，路德与中共官媒现场直播实时过招。指出其半夜拍照不妥后，照片日期又被改为晚上10点55分。指出文章在晚上7点发，时间还是不妥，并请新华社继续加油后，其中一张照片日期终于成功改为上午10点半，但另一张照片竟然改为1月12号。真可谓朽木不可雕也！节目中有战友爆料，照片负责人当前工作是花100多万购买，多次修改失败后已被领导约谈。
-
-**中共媒体发文威胁美台关系。**中共媒体发文称，蓬佩奥若访台，则解放军战机必在第一时间飞临台海上空。路德社评论：若中共党卫军进入台湾领空则可视为宣战，台湾军方有权将其击落，且根据国际法无需承担任何责任。实际上，若国务卿蓬佩奥看到此消息后，可能会马上访台。到时中共不得不马上派人游说解释。或者即使飞临台海上空也会以误闯为由逃过一劫，然后忽悠墙内老百姓中共擀面杖子还是很硬。路德社劝诫中共宣传口说话不要太满，党卫军飞临台海上空最好选择投诚。
-
-**蓬佩奥警告美国之音勿做中共帮凶。**国务卿蓬佩奥在美国之音演讲称，美国之音不能拿美国纳税人的钱为中共服务。中共政权统治之处，如同伊朗和北韩，是世界上最黑暗的地方。即使处在最好的时刻，中共国也在冷酷地强制推行共产专制。即使处在最艰难的时刻，美国也在确保人民的自由。这两种制度在道德上毫无可比性。美国之音的职责是在全世界宣传民主、自由和美国价值观。但少数员工却对此实行打压。蓬佩奥演讲验证文贵先生419断播真相。新中国联邦爆料革命让全世界识破中共九层妖塔和大外宣，可谓前无古人后无来者。美国之音自50年代建立，拥有电台和卫星电视，以45种语言向美国境外全球放送。蓬佩奥演讲也可能在为川普总统讲话寻找突破口。
-
-**澳洲新闻：**
-
-**澳副总理批推特封禁川普账号，执行双重标准。**大纪元1月11日的消息 澳洲副总理麦科马克（Michael McCormack）批评推特审查美国总统川普的推特账号，执行双重标准。澳洲议员说，推特拒绝删除中共外交部发言人赵立坚侮辱澳洲军人的图片，这显示推特对待保守主义者和共产党是两个标准。美国国会大厦发生暴力事件后，社交媒体推特声称川普总统“煽动暴力”，宣布永久封禁他拥有大量粉丝的个人账号。此时正值澳洲总理莫里森休假，代总理兼国家党领袖麦科马克并不认同推特的做法。
-
-**【个人评论：都是副国家领导，美国副总统跟澳洲副总理怎么就这么不一样呢。麦科马克是在做正确的事，替受到不公对待的川普说话。彭斯装孙子，背后捅刀子。】**
-
-**中资拟收购澳邻国电信资产，引发澳美警觉。**大纪元1月11日的消息 中资公司拟收购电信公司Digicel位于太平洋的资产，此举引起澳洲和美国国家安全人员的警觉。他们认为，如果不能阻止这次中资收购行为，澳洲的近邻将受到中共的全面监视。电信公司Digicel因疫情而受到重创，该公司已陷入财务困境，现金流短缺。中国公司（疑似有中国移动、华为和中兴通讯）已表示有兴趣购买这些太平洋地区（包括巴布亚新几内亚、斐济、汤加、瓦努阿图和萨摩亚）具有战略意义的资产。美国的川普政府，包括国务院和美国国际开发金融公司，正在研究阻止中资公司购买Digicel公司位于加勒比海的资产的方案，如果澳洲政府不迅速采取行动阻止中资收购Digicel公司位于太平洋的资产，那么鼓励太平洋国家抵制中共的策略就会失效。
-
-**澳议员吁成立特别委员会，制衡社媒巨头。**大纪元1月11日讯 近日，社交媒体巨头对用户政治观点的不平衡审查和封杀，引起了各国对大科技公司决策缺乏制衡的关注。1月8日，澳洲参议员安蒂克（Alex Antic）在脸书发帖，称谷歌、Youtube、推特（Twitter）等大科技公司已经掌控了非凡的权力，形成了巨大的影响力。为此，他呼吁澳洲参议院成立一个特别委员会，调查和评估大科技公司的影响力，保护澳洲民主免受社交媒体的控制。
-
-**香港前沿的报道：**
-
-**香港黄店1/06大搜捕后坚持理念，不受国安法“震慑”影响。**美国之音1月12日的消息，香港国安上周三动员上千警力，逮捕了至少53名与去年民主派立法会初选有关的非建制派人士，指他们涉嫌触犯国安法颠覆中国国家政权。部份支持反送中运动理念的“黄店”曾借出店铺作初选投票站，担心可能会被当局秋后算帐。但黄店联盟发起人之一Elvis表示，会继续坚持理念经营下去，不让国安法的“震慑效果”得逞。香港2019年6月初爆发的反送中运动，引发史无前例的大规模街头抗争，亦衍生出支持运动理念的“黄色经济圈”，这类在香港被俗称为“黄店”的商户以餐厅、小食店为主，支持反送中运动的消费者，会优先光顾政见及理念相近的“黄店”。与之相对应的是支持黑警的“红店”和“蓝店。
-
-**伪中共国新闻：**
-
-**石家庄新增逾百人染疫，黑龙江疫情扩散至吉林长春。**大纪元1月11日的消息，继1月10日新增126例中共病毒感染者后，11日0至12时，石家庄市再新增21例感染，不过石家庄内部人士透露，实际感染数字远远高出这数字。当日石家庄再有9地升为中风险地区。此外邢台南宫疫情严重，正在紧急修建5000人方舱。另外，黑龙江省绥化市当局11日通报新增中共病毒“无症状感染者”26例，均在望奎县。望奎县已被实施封城，所有小区村屯封闭管理，全员强制检测。据官媒报导，望奎县疫情已传播到吉林省长春市。10日晚上8时左右，长春市医疗机构发现4例望奎县来长春人员检测核酸阳性，现全部转至长春市传染病医院隔离治疗。
-
-**研究表明武汉****76%****染疫者出院半年后仍有后遗症。**大纪元1月12日消息，近日大陆医学界人士追踪调查武汉一些新冠肺炎（中共病毒）患者出院后的情况发现，76%受访者出院半年后仍有至少一种后遗症，包括肌肉无力、睡眠障碍、肺功能或肾功能受损等。这项研究追踪了1733名曾经感染新冠肺炎（中共病毒）的武汉人，其中1172人在患病期需要供氧。他们在2020年1月7日至5月29日期间从武汉金银潭医院出院，平均年龄57岁，其中52%是男性，48%是女性。研究发现，76%受访者在调查时仍有至少一种后遗症，其中63%有疲倦感或肌肉无力、26%出现睡眠障碍，23%有焦虑感或抑郁症状，出现心理问题的女性多于男性。
-
-**王毅同昂山素季会谈：中方愿继续支持缅方抗击疫情。**中新社1月12日消息，中国国务委员兼外长王毅在内比都同缅甸国务资政兼外长昂山素季举行会谈。王毅表示很高兴成为缅甸举行全国大选后应邀访缅的第一位外国外长，中方愿继续支持缅方抗击疫情，将向缅方提供一批抗疫物资和疫苗援助。中缅经济走廊既是共建“一带一路”的旗舰项目，也是两国命运共同体建设的具体实践。中方愿同缅方签署落实中缅经贸合作发展五年规划，加快走廊西、北、东三端建设，推动皎漂深水港、边境经济合作区、仰光新城项目早日落地。
-
-**【战友评论：中共拉拢小弟的一贯伎俩就是大撒币，所谓的一带一路，也不过是打着“命运共同体”的幌子行其无法面世的鸡鸣狗盗之事。你叫我一声大哥，我保你衣食无忧。至于自己治下老百姓的生死，根本无足轻重，那些不过就是韭菜而已。】**
-
-**美国新闻：**
-
-**川普宣布华府进入紧急状态，并提供联邦援助。**大纪元1月12日的消息，美国总统川普（特朗普）周一（1月11日）宣布，华盛顿特区进入紧急状态，并下令联邦提供援助，以补充特区应对第59任总统就职典礼的工作，时间为2021年1月11日至1月24日。声明称，总统授权国土安全部下的联邦紧急事务管理局（FEMA）协调所有的应急工作，目的是减轻紧急状况给当地居民带来的困难和痛苦，并根据《斯塔福德法案》（Stafford Act）第五章授权，为所需的紧急措施提供适当的援助，以拯救生命、保护财产和公众健康与安全，减轻或避免哥伦比亚特区的灾难威胁。具体来说，联邦紧急事务管理局有权确定、调动并酌情提供必要的设备和资源，以减轻紧急情况的影响。紧急保护措施，仅限于联邦直接援助，将由联邦100%提供资金。
-
-**美国将古巴重新列入支持恐怖主义国家名单。**美国之音1月12日的消息，美国国务院再次将古巴列入支持恐怖主义的国家名单，因为古巴一再为国际恐怖主义行为提供支持，为恐怖分子提供避风港。美国国务卿蓬佩奥在星期一（1月11日）的一份声明中说：“几十年来，古巴政府为杀人犯、炸弹制造者和劫机者提供食物、住房和医疗服务，而许多古巴人挨饿、无家可归，没有基本的药品”，“古巴还窝藏了几名因政治暴力指控（charges of political violence）而被通缉或被判有罪的美国逃犯，其中许多人已经在古巴居住了几十年。” 美国1982年就曾把古巴列入“支恐”名单。奥巴马政府曾于2015年将古巴移出了这份名单。古巴此次重返“支恐”名单使得名单上的国家增加为四个，分别是：伊朗、朝鲜、叙利亚和古巴。
-
-**三家央企终被纽交所“摘牌”。**美国之音1月11日的消息，美东时间上午9:30之后，三家中国与军方有联系的电信公司（中国电信， 中国移动和中国联通(香港)）的股票交易被纽约证券交易所正式停止。这是纽交所经过两次掉头后，最终将这几家公司摘牌。与此同时，包括高盛、摩根斯丹利和摩根大通在内的银行表示，他们将在本月晚些时候取消与这几家中共公司股票相关的484份认股权证和其他衍生产品，以遵守美国对这三家中共电信公司的制裁措施。
-
-**国务卿蓬佩奥在美国之音总部发表讲话****, ****批评中国政府蔑视人权行为。**美国之音1月12日的消息，周一，国务卿蓬佩奥访问美国之音华盛顿总部，并向美国国际媒体署全体雇员发表讲话，他谈及在美国价值观和美国利益受到新威胁的情况下，美国对外广播的重要性，并点名中国政府，批评其蔑视人权的行为。蓬佩奥在讲话中数次批评中国，包括中共镇压维吾尔人的暴行、破坏香港的民主自由等，并赞扬美国之音记者在恐吓、骚扰与攻击压力下对香港抗议运动的报道。
-
-**奥布莱恩：美国正研拟进一步行动应对中共。**大纪元1月11日的消息，美国白宫国家安全顾问奥布莱恩（Robert O’Brien）周日（1月10日）表示，在超过50名民主派人士在香港被抓捕后，美国正针对中共迫害香港民主，拒绝配合中共病毒（武汉肺炎）的源头调查，研拟进一步的应对行动。上周六，美国国务卿蓬佩奥、英国外相蓝韬文、澳洲外长佩恩（Marise Payne）及加拿大外长商鹏飞（Francois-Philippe Champagne）共同签署一份联合声明，谴责中共在香港的逮捕行动。
-
-**美议员要求佩洛西，禁止国会发放中共宣传报。**大纪元1月11日消息，美联邦众议员阿什莉·辛森（Ashley Hinson）近日要求众议院议长南希·佩洛西（Nancy Pelosi）禁止中共宣传报在美国国会内发送。辛森给佩洛西的一封信中表示，尽管她和她的工作人员都没有提出要求，但她还是在自己的众议院办公大楼官方办公室内收到了一份中共宣传报的复印件，她认为，这种危险的宣传（媒体）是由中共拥有、支付和撰写的。这种令人反感的垃圾不应该自动地以美国纳税人名义向国会办公室分发。
-
-**强制用户资料分享给脸书，WhatsApp遭抵制。**大纪元1月10日消息，脸书（Facebook）旗下WhatsApp日前更改用户隐私条款，表明将在2月把用户资料分享给母公司脸书，此举引发用户不满并发起抵制行动，号召转用其它通讯软体如Signal。针对WhatsApp单方面更新条款，法国组织“La Quadrature du net”律师迈萨德（Arthur Messaud）指出，如果停止使用WhatsApp是拒绝新条款的唯一方法，不是双方同意下作改动，在这种情况下挪用用户个资并不合法。
-
-**世界其他地区新闻：**
-
-**犹太拉比：科技巨头审查言论是反神的战争，最终注定失败。**大纪元1月11日消息，继美国国会事件之后，美国总统川普的推特与脸书账号遭冻结，能替代推特的社交媒体Parler的app被谷歌和苹果公司下架，而YouTube也开始删除与大选舞弊有关的内容。针对这些大型科技公司联手审查言论，加拿大拉比暨末世论作家温斯顿（Pinchas Winston）抨击说，微软公司创始人盖兹、脸书执行长扎克伯格和推特执行长多西傲慢自大，他们看待自己就像法老看待自己一样，如同站在神的位置。这是《圣经》中的《出埃及记》所提及的埃及法老否定神的一个样子。这是对抗神的一场战争，最终将注定失败。
-
-**美国野生动物园一群濒危大猩猩感染新冠病毒。**星岛环球网1月12日消息，据美联社报道，美国圣地亚哥野生动物园的几只大猩猩新冠病毒检测呈阳性，这被认为是全世界首例此类灵长类动物感染新冠病毒的病例。报道称，1月6日，该动物园两只大猩猩开始咳嗽，于是，工作人员将它们的粪便送检。11日，美国农业部国家兽医服务实验室确认了三只大猩猩的新冠病毒阳性检测结果。兽医正在密切监视着这些大猩猩，它们将继续留在动物园的栖息地中。目前，它们正服用维生素，没有对它们进行特殊治疗。
-
-**爆料革命大事记：**
-
-**以下是郭先生****1****月****11****日盖特视频文字版： **
-
-1. 在国内遭受威胁、逼迫做假视频、假投诉的Gtv/G系列投资者，文贵给你两个建议：1，他让你干啥你干啥；2，尽可能地留下他的基本信息，哪怕一点都行。所有对你们威胁、拷问、逼迫的人不但不会得逞，他会让你未来有无尽的可能。 凡是对战友们枪口抬高一寸的人都会得到巨大的西方的照顾，或者特赦，或者G系列给出的特殊利益；
-2. 川普总统和蓬佩奥国务卿一个任期内所做的事情是过去70年的和，对中共的制裁除了全面脱钩基本上全做到了。 川普总统从昨晚到现在经历了他一生当中最少有的紧张、刺激、兴奋 ，美国以人命为主，安全第一 ；
-3. 最近共产党将有一系列的行动，判刑、抓人、镇压…在经济崩塌前全力挽救，把所有人给吓尿，让你连银行都不敢去。现在我们对共党最大的打击就是Gtv投资。1生2， 2生3， 3生万物，我们的正道主义是天赐之笔；一定要相信人民的力量；我今天下午听到最多的词：人民人民人民 ！随时会有震撼的消息，有好有坏，但最终正义必胜，川普必胜！今天是个大日子，全人类最重要的一周，奇迹能不能发生呢？
+1. Residency for tax purposes 澳洲税务居民的概念与分类
+We don’t use the same rules as the Department of Home Affairs (formerly known as the De-partment of Immigration and Border Protection). This means you:
+➢ can be an Australian resident for tax purposes without being an Australian citizen or per-manent resident
+➢ may have a visa to enter Australia but are not an Australian resident for tax purposes.
+澳洲税务居民的概念与移民局的标准是不同的. 你即使不是澳洲永久居民和公民也可以是澳洲的税务居民; 你有澳洲的签证但不一定是澳洲税务居民.
 
 
-感谢新闻摘录，新闻撰稿，配音录制以及视频制作战友们的辛勤付出。
+(1)税务身份的分类:
+(1)a. Australian resident for tax purposes 澳洲税务居民
+If you satisfy any of the below residency tests, you are an Australian resident for tax purposes. This means you have to declare all of your worldwide income even if you have already paid tax on it overseas. A foreign income tax offset is generally available to reduce the Australian tax on the same income.如果你满足以下4个测试中的任何一个，你将被视为澳洲税务居民。你需要申报全球范围的收入。你在澳洲以外国家和地区已缴纳的所得税可以冲抵你在澳洲应交税额。
 
-感谢坦克人提供的技术支持。感谢路德社文宣后勤团队的支持。
+(1)b. Temporary residents 临时税务居民
+You will be a ‘temporary resident’ if you hold a temporary visa and neither you or your spouse is an Australian resident within the meaning of the Social Security Act 1991 (that is, not an Aus-tralian citizen or permanent resident).As a temporary resident, you only need to declare income derived in Australia, plus any income earned from employment or services performed overseas while you are a temporary resident of Australia. Other foreign income and capital gains do not have to be declared.
+如果你持有澳洲临时签证并且你本人或你的配偶不是澳洲永久居民或公民，你将被视为税务上的临时居民。你需要申报在澳洲获得的收入和作为澳洲临时居民在海外通过工作和提供服务而获得的收入。其它收入和资本收益不需要申报。临时签证是允许持有人在澳洲停留一段时间而不是无限期的签证. 永久签证持有人可以在澳洲无限期居住.
+(A temporary visa is defined as a visa allowing the holder to remain in Australia during a speci-fied period, or until a specified event happens, or while the holder has a specified status. So, a temporary visa may be in effect for a set period of time, or, for example, until a decision is made on another visa application, or, for example, as long as the holder is a New Zealand citi-zen holding a valid New Zealand passport.
+A permanent visa is defined as a visa that allows the holder to remain in Australia indefinitely. Normally when a permanent visa is granted, it includes a five year travel facility. Although the permanent visa allows the holder to remain in Australia)
 
-欢迎明天澳洲晚九点，北京晚六点继续收听观看“澳喜要闻”。
+(1)c. Foreign residents 外国税务居民
+If you do not satisfy any of the residency tests below, you are a foreign resident. As a foreign resident, you have no tax-free threshold and do not pay the Medicare levy. You must still de-clare any income derived in Australia, including any capital gains on taxable Australian proper-ty in your Australian tax return. If you have a Higher Education Loan Program or Trade Support Loan debt, you are required to declare your worldwide income or lodge a non-lodgment advice.如果你不满足以下4个测试中的任何一个，你将被视为外国税务居民。你不能享受免税额但不需要缴纳Medicare levy. 你需要申报在澳洲的收入包括通过房地产交易获得的资本收益。如果申请了高等教育贷款或者学徒帮助贷款，你需要申报全球范围的收入或者零申报手续。
 
-澳喜文章: [https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+打工签证持有人的税务申报：
+如果你的签证是417或462，2020财年$37,000以内收入和2021财年$45,000以内收入的税率是固定的15%。以上的收入和澳洲居民使用相同的税率。
+As a working holiday maker, your income is taxed at 15% for:
+· the first $37,000 – for 2019–20 and earlier income years
+· the first $45,000 – for 2020–21 and later income years.
+The balance of your income is taxed at ordinary rates.
+You are a working holiday maker if you have a visa subclass of either:
+· 417 (Working Holiday)
+· 462 (Work and Holiday).
 
-欢迎加入澳喜农场：
+Australian income tax rates for 2020/21 (residents)
+澳洲个人税率明细表(2020/2021财年)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/134-2.png)图片来自网络截图
+Residency tests
+There are four tests used to determine if you are an Australian resident for tax purposes. You will be an Australian resident if you meet any one of these tests. You can use our online tool to assess your circumstances, visit ato.gov.au/residencytests
+如果你满足以下4个测试中的任何一个，你将被视为澳洲税务居民。
 
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+1. The resides test 居住地测试
+Under this test, you are a resident of Australia if you reside in Australia according to the ordi-nary meaning of ‘reside’ – which means ‘to dwell permanently, or for considerable time, to have a settled or usual abode, and to live in a particular place’.
+Some of the factors that can be used to determine residency status include physical presence, intention and purpose, family and business/ employment ties, maintenance and location of as-sets, social and living arrangements.
+
+
+If you reside in Australia, you are considered an Australian resident for tax purposes and you don’t need to apply any of the other residency tests.
+
+如果你满足这个条件，将视为澳洲税务居民，而不需要再做其它3项测试。主要内容是你在澳洲有固定居所，或者在足够长的时间内安顿并居住在一个固定居所。ATO会考虑以下因素决定是否满足条件：
+
+Some of the factors that can be used to determine residency status include:
+Entering Australia 入境澳洲
+Taxation Ruling TR 98/17 Income tax: residency status of individuals entering Australia out-lines the circumstances in which an individual is considered as residing in Australia. It considers people entering Australia such as:
+· migrants 移民
+· academics teaching or studying in Australia 学术教学和研讨
+· students studying in Australia 留学
+· tourists 旅游
+· those on pre-arranged employment contracts 预先安排的合同工作
+Behaviour while in Australia 在澳洲的活动
+The way in which you organise your domestic and economic affairs as part of your life is an influential factor in determining residency status.
+You may be considered an Australian resident if your day-to-day activities in Australia are rela-tively similar to your behaviour before entering Australia.
+In residency cases, your situation is considered by having regard to all the facts and circum-stances that are relevant. No single factor is likely to be decisive, and many will be interrelated.
+We may take into account any or all of the following factors in determining where you reside:
+· physical presence 实际居住时间
+· intention and purpose 意图和目的
+· family 家庭成员
+· business or employment ties 与澳洲的生意或工作联系
+· maintenance and location of assets 资产的维护和存放地点
+· social and living arrangements 社交和生活安排
+
+1. The domicile test 住宅测试
+Under this test, you are a resident of Australia if your domicile is in Australia, unless the Com-missioner is satisfied that your ‘permanent place of abode’ is outside Australia.
+A domicile is a place that is considered to be your permanent home by law. For example, it may be a domicile by origin (where you were born) or by choice (where you have changed your home with the intent of making it permanent).
+A permanent place of abode should have a degree of permanence and can be contrasted with a temporary or transitory place of abode.
+如果你在澳洲有固定的居所你将满足此测试要求并被视为税务居民,除非税务局认为你的实际住宅在澳洲境外. 这个测试与第一个测试的根本区别在于:第一个针对于在澳洲的居住时间,即使租房也可以算在内,而第二个针对于在澳洲实际拥有居所的情况.
+2. The 183 day test 183天测试
+You will be a resident under this test if you spend over half the year in Australia, unless it is established that your ‘usual place of abode’ is outside Australia and you have no intention of taking up residence here.
+If you have already taken up residence in Australia, this test will not generally apply regardless of the number of days you spend overseas.
+In practice, this test only applies to individuals arriving in Australia.
+
+
+如果你在一个财年(365天)当中在澳洲居住超过183天你将符合澳洲税务居民的要求，除非你的日常居所在澳洲以外并且你不打算在澳洲居住。
+
+1. The Commonwealth superannuation fund test 联邦养老金测试
+This test only applies to certain Australian Government employees who are eligible to contribute to the Public Sector Superannuation Scheme (PSS) or the Commonwealth Superannuation Scheme (CSS). If this is the case, you (and your spouse and children under 16) are considered to be a resident of Australia regardless of any other factors.
+此测试仅适用于符合PSS和CSS养老金计划的政府雇员，如果你参与以上养老金将被视为澳洲税务居民。
+
+
+2个举例说明
+
+(1)Emily – 在日本教
+· Emily离开澳洲，前往日本担任英语教师。
+· 她签订了一年合同，合同期满后计划前往中国和亚洲其他地区，最后再返回澳洲工作。
+· 在日本工作期间，她和一户人家住在一起，这家人把她视为家裡的一员。
+· 离澳期间，她对外出租自己的澳洲房产。
+· Emily目前未婚。她的父母住在其他州，她的哥哥也移民到法国。
+结果：为什麽Emily被视为澳洲税务居民？
+即使Emily目前居住在日本，但根据住所测试：
+· 她的住所位于澳洲（常住在澳洲的居民，在离开澳洲期间通常会在澳洲保留原籍，除非其选择永久移民至其他国家）
+· 她的永久居住地仍在澳洲。
+·
+(2)Bronwyn – 长期在海外工作
+· Bronwyn，澳洲居民，得到了一份在海外工作的三年合约，并且合约可以再续三年。
+· Bronwyn，她的丈夫和三个孩子决定海外安家。
+· 他们保留了在澳洲的房产，因为他们打算在将来某天返回澳洲。
+· 在他们离澳期间，该房产对外出租。
+· Bronwyn不知道三年后自己是否会延长合约，她决定以后再做决定，看看家人是否喜欢那裡的生活。
+· 在海外工作期间，他们租了一套房子，并享受合同规定的住房补贴。
+结果：为什麽Bronwyn被视为外国居民？
+虽然Bronwyn保留了在澳洲的居家住所，但仍不符合住所测试，这是因为她实际离开澳洲的时长以及身边情况（如全家人一起在海外安家，且对外出租澳洲房产）不符合澳洲常住规定。
+不符合住所测试的原因如下：
+· 她的永久居住地在澳洲境外，这是因为
+o 她准备在海外工作的时长
+o 已在海外安家，以及
+o 家人陪同她一起生活
+
+· 她没有出售澳洲房产，这个事实虽然也有一定的关联性，但却不足以抵消基于其他因素而得出的判定结果
+· 我们可以认为，她在海外逗留期间由于将澳洲房产出租而遗弃了在澳洲的家。
+
+本文纯属个人观点
 ![]()![](https://gnews.org/wp-content/uploads/2021/01/1-澳喜Logo.jpeg)
-+2
+0

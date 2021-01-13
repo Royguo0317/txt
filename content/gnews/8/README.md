@@ -1,33 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统1月12日谴责大科技公司分裂国家
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/745282/)
+## 【热点播报】世界领导人公开反对Twitter 封禁特朗普账号
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/745744/)
 
-新闻简述：川普总统在2021年1月12日出发去南部边境之前，对记者讲话时，评论了大科技公司对国家的分裂，并认为他们的所作所为对他们自己也将带来巨大伤害。被记者问及是否该对国会山骚乱负任何责任的时候，他回答他的演讲是妥当的。
-视频来源：[https://www.youtube.com/watch?v=dLExILbp6rg](https://www.youtube.com/watch?v=dLExILbp6rg) 
-**翻译全文**
+作者：纽约香草山写作组   Daxia
 
-President Trump: I think that big tech is doing a horrible thing for our country and your country, and I believe it’s going to be a catastrophic mistake for them. They’re dividing and divisive, and they’re showing something that I’ve been predicting for a long time. I’ve been predicting it for a long time. People didn’t act on it, but I think big tech has made a terrible mistake. And very very bad for our country, and that’s leading others to do the same thing. And it causes a lot of problems and a lot of danger. Big mistakes. They shouldn’t be doing it, but uh, there’s always a countermove when they do that.
 
-川普总统：我想大科技公司正在对我们的国家、你们的国家做一件可怕的事情。我相信对他们来说，那是一个灾难性的错误。他们正在搞分裂，他们做的事情我很久以前就预见到了。我已经预见很久了。没人对此采取措施，但是我相信大科技公司犯了一个可怕的错误，对我们的国家非常、非常的坏，并使其他人效仿，导致了大量的问题和诸多的威胁。巨大的错误！他们本不该那样做的，但是当他们这么干的时候，就会有反作用力。
 
-I’ve never seen such anger as I see right now, and that’s a terrible thing. A terrible thing. And you have to always avoid violence. We have, we have tremendous support, we have support probably like nobody’s ever seen before. Always have to avoid violence.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-我从来没见过像现在这样的众怒，那是件可怕的事情。可怕的事情。永远你们都要防止暴力。我们有巨大的民意支持，这种支持是前所未有的。我们必须防止暴力。
 
-Q: Mr. President, what is your role in what happened at the Capitol? What is your personal responsibility?
 
-问：总统先生，你对国会山上发生的事情，起到了什么样的作用？你有什么个人责任？
 
-President Trump: Well if you read my speech, and many people have done it, and I’ve seen it uh in the papers and in the media, on television, it’s been analyzed, and people thought that what I said was totally appropriate. And if you look at what other people have said, politicians at a high level, about the riot, going through stuff about the horrible riots in Portland and Seattle and various other places, that’s what the real problem is: what they say. But they’ve analyzed my speech and my words and my final paragraph, my final sentence, and everybody said: “He thought it was totally appropriate.”
 
-川普总统：好吧，如果你读了我的演讲，很多人都读了，我见我的演讲发布在报纸、媒体、电视上，被分析过了，人们认为我说的话是非常妥当的。如果你看了其他人，那些职位很高的政客，对于骚乱都是怎么讲话的，对于波特兰、西雅图和其它各地的可怕骚乱都是怎样讲的，他们说的话才是真正有问题的。大家已经分析过了我的演讲，我说的话，我说的最后那段话和结束语，然后每个人都说：我认为讲话是妥当的。
+据《纽约邮报》报道，世界各国领导人纷纷抨击推特封禁特朗普总统账号的做法，许多人称这是彻头彻尾的审查，毕竟这种决定应该由公民而不是私营科技公司做出。
 
-字幕：【相机过热啊】听写：【BruhM】翻译 & 编辑：【Isaiah4031】
+法国负责欧盟事务的副部长克莱门特·博恩(Clement Beaune)表示，看到社交媒体平台撤销特朗普的账号，他感到“震惊”。
 
-喜马拉雅玫瑰园小队出品
+“这应该由公民来决定，而不是CEO。”他周一告诉彭博电视(Bloomberg TV)。“但，确实，我震惊于它现在完全归私人所有的这个事实。它不应该只掌握在私人手中。”
 
-*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
+博恩表示，应该有一个“公共监管框架”。在这个框架中，社交媒体平台可以提出一些内容违反了法律，应该被删除或罚款，但这最终应该由公民和立法机构做决定。
 
-+5
+法国财政部长勒梅尔(Bruno Le Maire)表示，监管内容的责任应落在国家身上。
+
+勒梅尔说：“数字巨头的监管不能由数字寡头自己来完成。”他还说，大型科技公司是对民主的“威胁之一”。
+
+墨西哥总统奥夫拉多尔(Andres Manuel Lopez Obrador)表示，社交媒体有权审查特朗普，这是一个“不好的迹象”。
+
+“我不喜欢任何人被审查，或者被剥夺在推特或脸书上发布信息的权利。我不同意，我不接受。”奥夫拉多尔在上周五的新闻发布会上说。“像宗教裁判所这样的审查法庭来管理公众舆论：这真的很严重。” 德国总理默克尔(Angela Merkel)的发言人说，她认为推特对特朗普的禁令是“有问题的”。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/image-161.png)
+
+发言人斯特芬·塞伯特(Steffen Seibert)周一在柏林对记者说：“这一基本权利可以被干预，但要根据法律且在立法定义的框架内，而不是依据社交媒体平台管理层的决定。”
+
+“默克尔认为美国总统的账户现在被永久封锁是有问题的。”他补充称，总统应该有权利表达他的观点。
+
+澳大利亚代理总理麦科马克(Michael McCormack)表示，阻止特朗普就等于言论审查。
+
+据《悉尼先驱晨报》报道，麦科马克质疑推特为何未能删除一张伪造的澳大利亚士兵斩首一名阿富汗儿童的照片。
+
+“我认为推特的主人，如果你要删除仍是美国总统的人的评论，那么你需要审视这张照片——被篡改的图像显示了一个士兵，被认为是澳大利亚人，怀中抱着一个孩子，要伤害他，”麦考马克说，“它没有被撤下，这照片是错误的。”推特于11月在评论的刺激下，将这张图片标记为“敏感”。
+
+巴西总统雅伊尔·博尔索纳罗(Jair Bolsonaro)的儿子爱德华多(Eduardo)对推特对待委内瑞拉独裁领导人尼古拉斯·马杜罗(Nicolas Maduro)的方式表示了类似的担忧。
+
+博索纳罗在推特上说：“一个有马杜罗在社交媒体上，而特朗普却被封禁的世界是不正常的。”随后他把推特头像改成了特朗普。
+
+民主法治的伟大之处，也许就是体现在人民有权力选择信赖的人为其服务，而不是妥协于共产主义社会媒体的决定吧。
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
++1

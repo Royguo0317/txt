@@ -1,26 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 意大利周二新增14242例中共病毒感染
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/745157/)
+## 美国总统令：纪念在国会大厦牺牲的警员
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/745559/)
 
-- 编辑：Victor Torres
+翻译 正常人
+审稿：Jenny 编辑：MG1
+![]()![](https://gnews.org/wp-content/uploads/2021/01/131-2.png)
+图片来自白宫网站
+为了表示对美国国会警察布莱恩·西克尼克（Brian D. Sicknick）和霍华德·利本古德（Howard Liebengood）以及整个国会的所有国会警察和执法人员的服务和牺牲的尊重，由我作为美国总统授予我的权力 根据《宪法》和美利坚合众国法律，我特此下令，在白宫，所有公共建筑物和地面上，所有军事哨所和海军基地的半旗上悬挂美国国旗；以及 在2021年1月13日日落之前，在哥伦比亚特区以及整个美国及其领土和所有地的联邦政府所有海军舰艇上。我还指示该旗在美国本土的降半旗也同时适用于。 在美国的所有大使馆，使馆，领事馆和其他国外设施，包括所有军事设施以及海军舰船和车站。
+兹在2021年1月10日，美利坚合众国独立245年这一天，庄严宣布。
 
-
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2021年1月12日电/西喜社——**意大利周二登记的中共病毒死亡人数为616人，与前三天相比大幅上升。
-
-这些死亡人数曾跌至300多人和400多人。
-
-政府本周必须延长、取消或收紧对公民旅行以及餐馆和咖啡馆等企业的到期限制。
-
-意大利周二新增14242例中共病毒感染，总数增至230万例。已有近8万人确诊死亡，居世界第六位。
-
-**新闻来源：**[https://apnews.com/article/health-football-coronavirus-pandemic-micronesia-new-zealand-229faef563fde6ff5cfde57d4926ebdc](https://apnews.com/article/health-football-coronavirus-pandemic-micronesia-new-zealand-229faef563fde6ff5cfde57d4926ebdc)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/微信图片_20210112225511.png)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
-
-+1
+唐纳德·特朗普
+连接 https://www.whitehouse.gov/presidential-actions/proclamation-honoring-united-states-capitol-police-officers/
+2021年1月12日
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-澳喜Logo.jpeg)
+0

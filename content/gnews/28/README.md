@@ -1,29 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统出发视察南部边境，谴责佩洛西和舒默正在把国家带入危险境地
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/745059/)
+## 活成一棵树，别做一根藤 — 新中国联邦人当自强(一)
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/744979/)
 
-2021年1月12日，川普总统出发视察南部边境。已经有“大篷车”试图趁乱进入美国，但川普总统不会让他们乘虚而入。川普总统还谴责了暴力，并强烈谴责佩洛西和舒莫在把国家带入危险境地。川普总统的出行也证明了他扔对国家的安全极其负责，并未受选举杂音的影响。
-视频来源：[https://www.youtube.com/watch?v=aLjfWxy2qjo](https://www.youtube.com/watch?v=aLjfWxy2qjo) 
-全文
+![]()![](https://gnews.org/wp-content/uploads/2021/01/亦舒1.png)亦舒名言 —《我的前半生》（图片来源：网络）
+一、引言
 
-So we’re going to Texas. We’re going to the southern border. As you know, we’ve completed the wall. They may want to expand it. We have the expansion underway. It’s been tremendously successful, far beyond what anyone thought.
+亦舒在书里《我的前半生》里写道“没有任何人会成为你以为的今生今世的避风港，只有你自己，才是自己最后的庇护所，再破败，再简陋，也好过寄人篱下。”人这一生，别尽数把期待和希望寄托在别人的身上，否则人家没有如你所愿，你将输的一败涂地。我们新中国联邦人要自立自强，做一棵独立树，别成为依附于树上的藤曼。
 
-我们正在向德州出发。我们要去南部边境。如你所知，我们已经完成了边境墙的建设。他们可能想把它扩大。我们已经开始扩建的计划。它已经取得了巨大的成功，远远超出了任何人的想象。
+二、国人遇事抱怨和依靠他人的心态
 
-We’re stopping in large numbers the drugs coming into the country for many many years and decades. We’re stopping a lot of illegal immigration. Our numbers have been very good. There does seem to be a surge now because people are coming up. Some caravans are starting to form because they think there’s going to be a lot in it for them if they’re able to get through, but we’re able to stop it. The wall has made a tremendous difference. I think some of you are coming with me. But the wall has made a tremendous difference on the southern border as far as this is concerned.
+21年1月7日，文贵先生在报平安视频中，提到很多战友因为美国国会在6日晚程序上确认拜登为总统，而感觉到非常失望悲哀，感觉这下完了，同时抱怨川普总统三年来一再被CCP欺骗，不断上当受骗，仍然看不清CCP的邪恶，同时性格懦弱前怕狼后怕虎而不敢采取有效的行动！很多人产生这种悲观和抱怨的原因是一百多年来，我们中国人习惯性依靠别人指望别人来完成自己的愿望，如果现实中不如所愿，便对寄予的人产生抱怨指责的心理，通过一番发泄排解郁闷的内心，然后寻找新的指望，继续幻想着最好是别人帮我们完成我们所追求的喜马拉雅目标，实现新中国联邦，然而这都是幻想和做梦。
 
-几十年来，我们一直在阻止大量的毒品进入这个国家。我们正在阻止大量的非法移民。我们所取得的数据一直都很好，但现在这个数字似乎在激增，因为更多的人们涌进来了。一些大篷车队开始集结，因为他们认为能够通过边境，他们就会有很多的好处，如果他们有能力通过，但是我们会阻止他们。这堵墙起了巨大的作用。我想你们中有人会跟我一起去。但就目前来看 这堵墙在南部边境上，已经产生了巨大的作用。
+同年的1月9日，文贵先生在报平安视频中再次提到，由于川普总统的推特和Facebook账号先后被封，同时班农先生的战斗室也被油管所屏蔽，很多人感觉到末日到来了。文贵先生说这一切都是他早就预料到的，一定会发生的，告诫大家，如果你有信仰并相信正义最终必然战胜邪恶，你就不会在乎这个过程中的胜负。他继续提到这二天来，网上许多人说川普总统是最大的口炮，最大的loser，最大的自恋狂，完全是个懦夫等等、、、这类的词数不过来，多了去了。文贵先生告诫战友们说，我们来自于世界上最糟糕的国家，共产党70年来一次次在大陆制造种种人间悲剧，残害杀戮百姓，我们没有几个站出来反抗；我们不要把自己当作一个裁判，也没有能力这么干，从法理情理上都不应该；现在还没有到20号呢，早乐必早衰，早悲必早哀，世界上最可悲的东西，就是失望和放弃，记住永远远离这两个字，不要在这两个字上倒霉；大家永远要记住，灭共靠中国人，以美灭共，以共灭共，以法灭共都是战略战术。文贵先生不但是灭共者，也是咱们中国人的精神导师，他在用他的大智慧教育引导我们中国人当中的很多人如何去改变我们思想，性格和行为上的诸多毛病。古代中国人并非懦夫和喜欢依靠别人，埋怨挑剔指责他人，且不知道感恩的族群；国人整体的堕落是源于近一千年来汉人多次被灭国亡种，特别是1949年共产主义入侵占领大陆以后通过历次运动有计划地割裂中华文化并彻底消灭儒佛道三教，代之以马列共产主义无神论。
 
-We want no violence, never violence. We want absolutely no violence. And on the impeachment, it’s really a continuation of the greatest witch hunt in the history of politics. It’s ridiculous. It’s absolutely ridiculous. This impeachment is causing tremendous anger, and you’re doing it, and it’s really a terrible thing that they’re doing. For Nancy Pelosi and Chuck Schumer to continue on this path, I think it’s causing tremendous danger to our country, and it’s causing tremendous anger. I want no violence. Thank you very much. Thank you.
+未完待续。
 
-我们不希望任何暴力，永远不提倡暴力我们绝对不要暴力。这场弹劾案，其实是政治史上最大的女巫狩猎行动的延续。这是荒谬的，极其荒谬透顶的！这场弹劾激起了极大的公愤，而你们正在这样做，他们所干的事情是真正可怕的。如果南希·佩洛西和查克·舒默继续沿着这条路走下去，将对我们的国家造成巨大的危害，此行为正在引起极大的愤怒。我不希望看到任何暴力的发生！谢谢你！非常感谢！谢谢你们！
+作者：卢卡斯
 
-翻译：【Dlrow】【奔腾的长江】校对：【Isaiah4031】【noraTina】字幕：【奔腾的长江】编辑：【Isaiah4031】
+原创观点文章 – 2021/01/12
 
-喜马拉雅玫瑰园小队出品
+温哥华圆成农场
 
-以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。
+#  
 
-+3
+
+
+0

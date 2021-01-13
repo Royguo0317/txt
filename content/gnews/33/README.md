@@ -1,39 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特实况】弹劾引起愤怒；中共传播疾病比我们制造疫苗还要快&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/744909/)
+## 【热点播报】地图上显示美国医院挤满新冠患者
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/745153/)
 
-**【大选实况】1/12/2021** **美东时间 11:27 AM 福克斯主持人肖恩·汉尼迪推文：**
+作者：纽约香草山写作组   Daxia
 
-川普总统称 “荒唐 “的弹劾举动 “引起了巨大的愤怒”
-![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-112.jpg)来源：[https://twitter.com/seanhannity/status/1349030229155721220](https://twitter.com/seanhannity/status/1349030229155721220)
-盖特链接：[https://gtv.org/getter/5ffdf09c87fabe2daf378e48](https://gtv.org/getter/5ffdf09c87fabe2daf378e48)
 
-**【大选实况】1/12/2021** **美东时间13:25 PM 章家敦 Gordon G. Chang推文：**
 
-中共国政权传播疾病的速度比我们制造疫苗的速度还要快。我们必须切断联系，以保护美国人的生命。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture1-25.jpg)来源：[https://twitter.com/GordonGChang/status/1349059990112317442](https://twitter.com/GordonGChang/status/1349059990112317442)
-盖特链接：[https://gtv.org/getter/5ffdf3c187fabe2daf37903e](https://gtv.org/getter/5ffdf3c187fabe2daf37903e)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-**【大选实况】1/12/2021** **美东时间12:50 PM One America News推文：**
 
-尽管民主党人试图转移人们对选举结果的注意力，但选举舞弊的证据仍在不断增加。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture2-1.jpg)来源：[https://twitter.com/OANN/status/1349051241070874625](https://twitter.com/OANN/status/1349051241070874625)
-盖特链接：[https://gtv.org/getter/5ffdf60d87fabe2daf3791e8](https://gtv.org/getter/5ffdf60d87fabe2daf3791e8)
 
-**【大选实况】1/12/2021** **美东时间12:30PM 福克斯主持人Maria Bartiromo推文：**
 
-共和党众议员Michael Waltz说：如果拜登对“团结”是认真的，他应谴责针对川普的弹劾。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture3-1.jpg)来源：[https://twitter.com/MariaBartiromo/status/1349046133704814593](https://twitter.com/MariaBartiromo/status/1349046133704814593)
-盖特链接：[https://gtv.org/getter/5ffdf93987fabe2daf379416](https://gtv.org/getter/5ffdf93987fabe2daf379416)
 
-**【大选实况】1/12/2021** **美东时间 13:03PM 每日电讯 推文 最新消息：**
+《纽约邮报》报道，依据新冠病毒跟踪项目（COVID-19Tracking project) 地图新数据显示，美国各地的医院正被新冠患者挤满，重症监护病房的收治人数达到令人担忧的水平。医院已不堪重负。
 
-前加州民主党参议员Barbara Boxer已注册成为海康威视美国公司的外国代理人，该公司是一家中国监控公司的美国子公司，因监控维吾尔族被美国政府列入黑名单。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture4-1.jpg)来源：[https://twitter.com/DailyCaller/status/1349054527471833088](https://twitter.com/DailyCaller/status/1349054527471833088)
-盖特链接：[https://gtv.org/getter/5ffdfd3987fabe2daf37968e](https://gtv.org/getter/5ffdfd3987fabe2daf37968e)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/image-156.png)
 
-**By： 【秘密翻译组 G-Translators】**
+该跟踪项目的数据显示，周一有129748人在医院接受治疗。新冠肺炎住院人数已连续41天超过10万人。
 
-0
+该在线追踪器精确定位了全国各地的住院热点地区。显而易见，这些创纪录的住院率并不是平均分布的。中西部和西部山区的住院率持续下降，而加州和整个美国南部的住院率却上升了。
+
+地图显示，许多地区，特别是南加州和亚利桑那州，COVID-19患者占全部ICU患者的45%以上。
+
+另外，金州的新冠患者住院人数已攀升至22633名，其中约4971人在重症监护室。
+
+同时，亚利桑那州的住院人数也远远超出夏季高峰，并且仍在每天增加。数据表明，约有4997人因病毒住院，其中约1158人住在重症监护室。
+
+七哥再三呼吁，不管美国的总统大选结果如何，新冠病毒仍然存在并威胁着每个人的生命，这是唯一不可轻视和改变的。战友们，目前最重要的是，保护好自己和家人，健康的活着。
+
+参考链接：
+
+[https://nypost.com/2021/01/12/map-reveals-how-us-hospitals-are-overwhelmed-with-covid-patients/?utm\_campaign=iphone\_nyp&utm\_source=pasteboard\_app](https://nypost.com/2021/01/12/map-reveals-how-us-hospitals-are-overwhelmed-with-covid-patients/?utm_campaign=iphone_nyp&amp;utm_source=pasteboard_app)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
+
+
++2
