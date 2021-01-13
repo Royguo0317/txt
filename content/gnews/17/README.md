@@ -1,33 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朱利安尼：保护言论自由的最后避难所是我们的司法机构
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/744243/)
+## 亚利桑那州创单日死亡人数335人纪录
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/745147/)
 
 - 编辑：Victor Torres
 
 
-***更多信息，请关注[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月12日电/西喜社/——**
+**西班牙2021年1月12日电/西喜社——**亚利桑那州创下单日死亡人数335人的纪录，住院人数首次突破5000人。
 
-鲁迪·朱利安尼周二发推呼吁司法机构保护言论自由。
+由于其医疗保健系统正在努力应对，该州周一有创纪录的5,082名中共病毒患者占据住院床位。这包括创纪录的1,183张重症监护床。
 
-他说:“如此大规模的言论自由关闭在美国从未发生过。它等同于许多专制政权。保护言论自由的最后避难所是我们的司法机构。”
+该州周二报告了8,559例感染，使确诊总数增加到636,100例，死亡人数为10,482人。
 
-朱利安尼号召追求民权，贸易限制和其他反托拉斯法。
+**新闻来源：**[https://apnews.com/article/health-football-coronavirus-pandemic-micronesia-new-zealand-229faef563fde6ff5cfde57d4926ebdc](https://apnews.com/article/health-football-coronavirus-pandemic-micronesia-new-zealand-229faef563fde6ff5cfde57d4926ebdc)
 
-
-
-> This massive shut down on free speech has never occurred in the United States.
-> 
-> It equals many authoritarian regimes.
-> 
-> The last refuge to protect free speech is our judiciary.
-> 
-> Let’s join together and pursue civil rights, restraint of trade and other anti-trust laws.
-> — Rudy W. Giuliani (@RudyGiuliani) [January 12, 2021](https://twitter.com/RudyGiuliani/status/1349003557421391872?ref_src=twsrc%5Etfw)
-
+![]()![](https://gnews.org/wp-content/uploads/2021/01/微信图片_20210112225248.png)
 
 ![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+
 +1

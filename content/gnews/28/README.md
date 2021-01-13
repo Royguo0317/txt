@@ -1,38 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疑似间谍的李飞飞——被推特任命为董事会成员
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/743813/)
+## 川普总统出发视察南部边境，谴责佩洛西和舒默正在把国家带入危险境地
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/745059/)
 
-```
-翻译/ 整理：夜星
-校对/发稿人: Ting Guo
-```
+2021年1月12日，川普总统出发视察南部边境。已经有“大篷车”试图趁乱进入美国，但川普总统不会让他们乘虚而入。川普总统还谴责了暴力，并强烈谴责佩洛西和舒莫在把国家带入危险境地。川普总统的出行也证明了他扔对国家的安全极其负责，并未受选举杂音的影响。
+视频来源：[https://www.youtube.com/watch?v=aLjfWxy2qjo](https://www.youtube.com/watch?v=aLjfWxy2qjo) 
+全文
 
+So we’re going to Texas. We’re going to the southern border. As you know, we’ve completed the wall. They may want to expand it. We have the expansion underway. It’s been tremendously successful, far beyond what anyone thought.
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/F2O6Q2EHQWZWQEULYB4SVPWYJA.jpg)推特任命顶尖华裔人工智慧科学家李飞飞，出任独立董事。图片来源：Stanford University
+我们正在向德州出发。我们要去南部边境。如你所知，我们已经完成了边境墙的建设。他们可能想把它扩大。我们已经开始扩建的计划。它已经取得了巨大的成功，远远超出了任何人的想象。
 
-李飞飞曾作为中国军方与谷歌的合作团队成员，参与研究人工智能武器化的无人机战斗项目。
+We’re stopping in large numbers the drugs coming into the country for many many years and decades. We’re stopping a lot of illegal immigration. Our numbers have been very good. There does seem to be a surge now because people are coming up. Some caravans are starting to form because they think there’s going to be a lot in it for them if they’re able to get through, but we’re able to stop it. The wall has made a tremendous difference. I think some of you are coming with me. But the wall has made a tremendous difference on the southern border as far as this is concerned.
 
-推特执行主席欧米德 (Omid Kordestani) 认为：“作为拥有工程、计算机技术与人工智能的交叉学科背景的专家，飞飞会给董事会带来相关的远景展望。推特将借此进一步，利用技术来改善公司的服务，并达成公司的长远目标。”
+几十年来，我们一直在阻止大量的毒品进入这个国家。我们正在阻止大量的非法移民。我们所取得的数据一直都很好，但现在这个数字似乎在激增，因为更多的人们涌进来了。一些大篷车队开始集结，因为他们认为能够通过边境，他们就会有很多的好处，如果他们有能力通过，但是我们会阻止他们。这堵墙起了巨大的作用。我想你们中有人会跟我一起去。但就目前来看 这堵墙在南部边境上，已经产生了巨大的作用。
 
-中国媒体大规模报道了李飞飞以谷歌专家的身份，致力于创建开发谷歌在中国的人工智能运用。在她的大力倡导下，2017年12月，谷歌人工智能研究中心在北京成立。李飞飞在2017年1月到2018年9月期间，任职于谷歌，目前职务为斯坦福大学计算机系教授。
+We want no violence, never violence. We want absolutely no violence. And on the impeachment, it’s really a continuation of the greatest witch hunt in the history of politics. It’s ridiculous. It’s absolutely ridiculous. This impeachment is causing tremendous anger, and you’re doing it, and it’s really a terrible thing that they’re doing. For Nancy Pelosi and Chuck Schumer to continue on this path, I think it’s causing tremendous danger to our country, and it’s causing tremendous anger. I want no violence. Thank you very much. Thank you.
 
-中国新闻网站新浪报道：2017年12月，李飞飞在谷歌人工智能研究中心的开幕式上的发言。她声称，自己在2017年1月，刚刚加入谷歌以后，就开始和谷歌总裁一起推动在中国建立人工智能研究中心。
+我们不希望任何暴力，永远不提倡暴力我们绝对不要暴力。这场弹劾案，其实是政治史上最大的女巫狩猎行动的延续。这是荒谬的，极其荒谬透顶的！这场弹劾激起了极大的公愤，而你们正在这样做，他们所干的事情是真正可怕的。如果南希·佩洛西和查克·舒默继续沿着这条路走下去，将对我们的国家造成巨大的危害，此行为正在引起极大的愤怒。我不希望看到任何暴力的发生！谢谢你！非常感谢！谢谢你们！
 
-另一新闻网站「搜狐」引述：李飞飞开幕当天的讲话：“中国就像一个沉睡的巨人。当她醒来时，将让世界颤抖。”报道表明，在李飞飞看来，中国在人工智能方面已经开始觉醒。
+翻译：【Dlrow】【奔腾的长江】校对：【Isaiah4031】【noraTina】字幕：【奔腾的长江】编辑：【Isaiah4031】
 
-据美国CNN报道，1992年，李飞飞16岁时，跟随父母移民美国，现为美国公民。李飞飞1999年，从普林斯顿大学物理系本科毕业，2005年，在加州理工学院（California Institute of Technology）获得博士学位。2013年到2018年间，她担任了斯坦福人工智能实验室主任。
+喜马拉雅玫瑰园小队出品
 
-中国媒体和政府官员，对李飞飞大加赞赏，把她吹捧为人工智能领域的杰出天才。
+以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。
 
-2017到2018年，李飞飞经中国媒体评选被授予“影响世界华人大奖”。2017年12月，她被中国政府机构评为“中国留学50人榜单”。
-
-中国政府一直企图利用海外华人专家和教授，来扩展其海外影响力。据官方媒体《中国日报》报导，中央统战部2015年，特别强调指出，海外留学人员为“统战工作新的着力点” 。2008年，中国政府启动了“千人计划”人才项目，目的在于诱惑海外（包括华人及外国人）专家、教授、企业家为中国工作。美国调查结果显示，该项目造成了美国大量的知识产权被转移到了中国。
-
-2018年，李飞飞在谷歌的内部讨论中，强烈反对谷歌与美国国防部签订MAVEN项目。该项目旨在利用人工智能，来分析无人机拍摄到的图片。泄露出的邮件内容显示，李飞飞反对的理由，是不希望为美国军方可能进行的人工智能武器化提供服务。
-
-**原文参考: [https://www.sgtreport.com/2020/06/twitter-appoints-suspected-chinese-spy-fei-fei-li-to-board-of-directors/](https://www.sgtreport.com/2020/06/twitter-appoints-suspected-chinese-spy-fei-fei-li-to-board-of-directors/)**
-![]()![](https://gnews.org/wp-content/uploads/2021/01/image0-46-scaled.jpg)[***htt***](https://discord.gg/77fCxw5mFv)*[**ps://discord.gg/77fCxw5mFv**](https://discord.gg/77fCxw5mFv)
-[**https://**](https://https//discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)*
 +3

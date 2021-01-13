@@ -1,29 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 译文：伊核 : 德黑兰施压…….乔 . 拜登
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/743922/)
+## 共和党议员阻止佩洛西迫使叛徒副总统彭斯援引第25修正案
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/744930/)
 
-翻译：仰望中央公园    校对：Ikonic
+翻译：康州盘古农场-黎明的光芒
+校对：康州盘古农场-Freeearth
+编辑：康州盘古农场-V
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-22.png)
+众议院共和党人周一阻止了议长佩洛西迫使副总统彭斯援引第25条修正案，解除川普总统职务的努力。
 
-伊朗决定将铀的丰度提高到20%, 这表明了要重启其宏大的核武计划, 这一决定遭到了美国的强烈反对。
+共和党议员阻止了全票通过（这一决议）。
 
-德黑兰在2021年1月4日承认已重启其浓缩铀丰度达20%的计划，国际原子能机构（AIEA）也对此说法予以确认。专家们认为伊朗的这一决定是为了开发核武。
+众议院将于周二再次召开会议。
 
-**伊朗与美国的紧张关系进一步升级**
-
-然而，伊朗于2015年与6国集团（中国、美国、法国、英国、俄罗斯和德国）签署了一个伊朗核问题全面协议（PAGC）。在当时，伊核一直是过去20年来国际最紧张的热点。这个协议计划减少对德黑兰的制裁，以此来交换伊朗大规模缩减其核武计划。
-
-伊朗期待着该协议给它带来金钱好处，自2018年川普总统决定退出伊核协议之后，带来的好处几乎归零。美国的退出还伴随着更严厉的制裁，这促使德黑兰重启其核武计划。
-
-自2019年以来，伊朗越来越频繁地违反伊核协议。到现今的2021年年初，伊朗又更加向拥核国家靠近。虽然拜登政权已经表明要重返伊核协议，但是德黑兰要把解除对其正在实施的制裁作为重启谈判的先决条件。这对还有不到10天就要就职的美国当选总统来说，无疑又增加了一个新的压力。
-
-新闻来源：法兰西晚报
-
-[https://www.francesoir.fr/politique-monde/nucleaire-iranien-teheran-fait-monter-la-pression-sur-joe-biden](https://www.francesoir.fr/politique-monde/nucleaire-iranien-teheran-fait-monter-la-pression-sur-joe-biden)
+推特链接：
 
 
 
+> JUST IN: House adjourns moments after gaveling into a pro forma session, after Republicans blocked an effort by Democrats to get unanimous consent to force Vice Pres. Mike Pence to invoke the 25th Amendment. [https://t.co/FLZUgPSgAr](https://t.co/FLZUgPSgAr) [pic.twitter.com/RxtLuMBE9D](https://t.co/RxtLuMBE9D)
+> — ABC News (@ABC) [January 11, 2021](https://twitter.com/ABC/status/1348667594354663426?ref_src=twsrc%5Etfw)
 
 
-+1
+
+*ABC**新闻@ABC*
+
+*最新报道：**共和党人阻止了民主党人为获得一致同意**迫使副总统迈克**・**彭斯援引第25**条修正案所做的努力后，众议院在开完会后不久就休会了。*
+
+*ABC**新闻*
+
+*12:26PM 1/11/2021*
+
+原文作者：吉姆·霍夫特 (Jim Hoft)
+
+发布日期：1/11/2021
+
+原文链接：[https://www.thegatewaypundit.com/2021/01/breaking-gop-lawmakers-block-pelosis-effort-force-traitor-vp-pence-invoke-25th-amendment/](https://www.thegatewaypundit.com/2021/01/breaking-gop-lawmakers-block-pelosis-effort-force-traitor-vp-pence-invoke-25th-amendment/)
+
+0

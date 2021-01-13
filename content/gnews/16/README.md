@@ -1,51 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普上午在白宫集会上说 &#8220;为国会和平地&#8230;&#8230;加油&#8221;
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/744238/)
+## 意大利周二新增14242例中共病毒感染
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/745157/)
 
-英听校：    康州盘古农场 – Mike Li
-
-翻译：       康州盘古农场 – Mike Li
-
-翻译终校：康州盘古农场 – YY
-
-字幕+视频制作：康州盘古农场-银龙
-
-审片**：**康州盘古农场-Truemanman
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-在这之后，我们要一起走着去
+**西班牙2021年1月12日电/西喜社——**意大利周二登记的中共病毒死亡人数为616人，与前三天相比大幅上升。
 
-我会和你们一起在那儿
+这些死亡人数曾跌至300多人和400多人。
 
-我们要一起走去
+政府本周必须延长、取消或收紧对公民旅行以及餐馆和咖啡馆等企业的到期限制。
 
-我们要一起走去，无论是谁只要你愿意去
+意大利周二新增14242例中共病毒感染，总数增至230万例。已有近8万人确诊死亡，居世界第六位。
 
-但我觉得就在这里
+**新闻来源：**[https://apnews.com/article/health-football-coronavirus-pandemic-micronesia-new-zealand-229faef563fde6ff5cfde57d4926ebdc](https://apnews.com/article/health-football-coronavirus-pandemic-micronesia-new-zealand-229faef563fde6ff5cfde57d4926ebdc)
 
-我们要走到国会大厦
+![]()![](https://gnews.org/wp-content/uploads/2021/01/微信图片_20210112225511.png)
 
-要为我们勇敢的参议员以及国会议员和女议员们欢呼
-
-我们可能不会为他们中的一些人欢呼
-
-因为你永远不会用懦弱来赢回我们的国家
-
-你要表现出实力，你要有实力
-
-我们现在来要求国会做正确的事情
-
-只统计被合法划定、合法划定的选举人票。
-
-我知道在座的各位很快就会游行前往国会大厦
-
-和平地、爱国地发出你们的声音
-
-今天我们就来看看共和党人能否坚守诚信
-
-原视频链接: [https://twitter.com/raheemkassam/status/1348463264326365187?s=21](https://twitter.com/raheemkassam/status/1348463264326365187?s=21)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
 +1

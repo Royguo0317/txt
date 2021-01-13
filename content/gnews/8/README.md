@@ -1,45 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普团队被邮件服务商封杀，禁止向支持者发送邮件
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/744371/)
+## 川普总统1月12日谴责大科技公司分裂国家
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/745282/)
 
-新闻来源：Gate Way Pundit《门户专家》； 作者：Cassandra Fairbanks (卡桑德拉•费尔班克斯)； 发布时间：2021年1月8日
+新闻简述：川普总统在2021年1月12日出发去南部边境之前，对记者讲话时，评论了大科技公司对国家的分裂，并认为他们的所作所为对他们自己也将带来巨大伤害。被记者问及是否该对国会山骚乱负任何责任的时候，他回答他的演讲是妥当的。
+视频来源：[https://www.youtube.com/watch?v=dLExILbp6rg](https://www.youtube.com/watch?v=dLExILbp6rg) 
+**翻译全文**
 
-翻译：风起云涌；校对：X-Wing飞得更高；审核：万人往；Page：小雨
+President Trump: I think that big tech is doing a horrible thing for our country and your country, and I believe it’s going to be a catastrophic mistake for them. They’re dividing and divisive, and they’re showing something that I’ve been predicting for a long time. I’ve been predicting it for a long time. People didn’t act on it, but I think big tech has made a terrible mistake. And very very bad for our country, and that’s leading others to do the same thing. And it causes a lot of problems and a lot of danger. Big mistakes. They shouldn’t be doing it, but uh, there’s always a countermove when they do that.
 
-**原文翻译：**
+川普总统：我想大科技公司正在对我们的国家、你们的国家做一件可怕的事情。我相信对他们来说，那是一个灾难性的错误。他们正在搞分裂，他们做的事情我很久以前就预见到了。我已经预见很久了。没人对此采取措施，但是我相信大科技公司犯了一个可怕的错误，对我们的国家非常、非常的坏，并使其他人效仿，导致了大量的问题和诸多的威胁。巨大的错误！他们本不该那样做的，但是当他们这么干的时候，就会有反作用力。
 
-# **川普竞选团队被邮件服务提供商打压后，被禁止向支持者发送邮件**
+I’ve never seen such anger as I see right now, and that’s a terrible thing. A terrible thing. And you have to always avoid violence. We have, we have tremendous support, we have support probably like nobody’s ever seen before. Always have to avoid violence.
 
-[!\[\]()!\[\](https://spark.adobe.com/page/LVvIqZowGx8lr/images/e85bc0a6-5558-48f2-9f34-31ed94802fa3.jpg?asset_id=2335114f-355a-432b-a327-6de53a4a0b8b&amp;img_etag=%22c2ab599c2e2c37db906463da844d0f27%22&amp;size=2560)](https://spark.adobe.com/page/LVvIqZowGx8lr/images/e85bc0a6-5558-48f2-9f34-31ed94802fa3.jpg?asset_id=2335114f-355a-432b-a327-6de53a4a0b8b&amp;img_etag=%22c2ab599c2e2c37db906463da844d0f27%22&amp;size=1024)
+我从来没见过像现在这样的众怒，那是件可怕的事情。可怕的事情。永远你们都要防止暴力。我们有巨大的民意支持，这种支持是前所未有的。我们必须防止暴力。
 
-川普总统团队遭受到了电邮服务供应商的打压，以至于无法向数百万的支持者发送邮件。
+Q: Mr. President, what is your role in what happened at the Capitol? What is your personal responsibility?
 
-这一打压是在川普总统和他的团队被推特永久禁止之后不久发生的。
-[!\[\]()!\[\](https://spark.adobe.com/page/LVvIqZowGx8lr/images/28f58e6f-92ae-4104-a2e1-7257b59b8112.jpg?asset_id=73758e92-c480-4fa2-9b7f-791ff53e6e1e&amp;img_etag=%221d8548e4753ef821bed7343225be6fb1%22&amp;size=2560)](https://spark.adobe.com/page/LVvIqZowGx8lr/images/28f58e6f-92ae-4104-a2e1-7257b59b8112.jpg?asset_id=73758e92-c480-4fa2-9b7f-791ff53e6e1e&amp;img_etag=%221d8548e4753ef821bed7343225be6fb1%22&amp;size=1024)
-电子邮件服务商 Campain Monitor已向金融时报的戴夫•李确认，川普团队的邮件帐户已被暂停。
+问：总统先生，你对国会山上发生的事情，起到了什么样的作用？你有什么个人责任？
 
-[!\[\]()!\[\](https://spark.adobe.com/page/LVvIqZowGx8lr/images/8d7af34f-292c-44de-b20c-64bfc01049d5.png?asset_id=0c32a656-bdba-4878-bf28-0ce2f81451e9&amp;img_etag=%22486f274fc3daba1e1e96f5ae65aff439%22&amp;size=2560)](https://spark.adobe.com/page/LVvIqZowGx8lr/images/8d7af34f-292c-44de-b20c-64bfc01049d5.png?asset_id=0c32a656-bdba-4878-bf28-0ce2f81451e9&amp;img_etag=%22486f274fc3daba1e1e96f5ae65aff439%22&amp;size=1024)
+President Trump: Well if you read my speech, and many people have done it, and I’ve seen it uh in the papers and in the media, on television, it’s been analyzed, and people thought that what I said was totally appropriate. And if you look at what other people have said, politicians at a high level, about the riot, going through stuff about the horrible riots in Portland and Seattle and various other places, that’s what the real problem is: what they say. But they’ve analyzed my speech and my words and my final paragraph, my final sentence, and everybody said: “He thought it was totally appropriate.”
 
-*《民族主义评论》报道说：“此举有效地切断了川普总统的团队与核心支持者之间的沟通。但是，尚不清楚还有什么其它邮件服务供应商也禁止了他的团队使用。川普竞选活动发出了大量电子邮件，到目前为止，一月份仅有33封电子邮件。 但是，距竞选团队通过电子邮件联系支持者已有48小时，这使大多数记者推测其他提供商也已经关闭了访问权限。”*
+川普总统：好吧，如果你读了我的演讲，很多人都读了，我见我的演讲发布在报纸、媒体、电视上，被分析过了，人们认为我说的话是非常妥当的。如果你看了其他人，那些职位很高的政客，对于骚乱都是怎么讲话的，对于波特兰、西雅图和其它各地的可怕骚乱都是怎样讲的，他们说的话才是真正有问题的。大家已经分析过了我的演讲，我说的话，我说的最后那段话和结束语，然后每个人都说：我认为讲话是妥当的。
 
-在一项声明中，Campaign Monitor 声称该竞选活动可能还有其他向支持者发送电子邮件的方法。
+字幕：【相机过热啊】听写：【BruhM】翻译 & 编辑：【Isaiah4031】
 
-“与唐纳德•川普竞选活动相关的这一自助服务帐户已于2021年1月7日当天被暂停使用。通常，政治竞选活动会使用多个电子邮件服务提供商发送竞选活动，筹款活动和其他的电子邮件，” Campaign Monitor在一份有关这一禁令的声明中指出。 “基于从Campaign Monitor帐户发送的电子邮件数量很少，这很可能只占此活动中电子邮件活动总量的很小一部分。”
+喜马拉雅玫瑰园小队出品
 
-[!\[\]()!\[\](https://spark.adobe.com/page/LVvIqZowGx8lr/images/c3fa28c7-7d39-4429-8cde-e57181323265.jpg?asset_id=32120a9c-7e65-4e8a-9da4-3af5e8537d52&amp;img_etag=%225fb7b8ce9479abfd7208c1004fb4d68d%22&amp;size=2560)](https://spark.adobe.com/page/LVvIqZowGx8lr/images/c3fa28c7-7d39-4429-8cde-e57181323265.jpg?asset_id=32120a9c-7e65-4e8a-9da4-3af5e8537d52&amp;img_etag=%225fb7b8ce9479abfd7208c1004fb4d68d%22&amp;size=1024)
+*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
 
-[原文链接](https://www.thegatewaypundit.com/2021/01/trump-campaign-banned-emailing-supporters-suspended-mail-service-provider/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【英国伦敦喜庄园编辑部】-[点击spark adobe版](https://spark.adobe.com/page/LVvIqZowGx8lr/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/LVvIqZowGx8lr/images/9f65b6d5-f9a5-40cf-9fd6-3d3eda82fd23.jpg?asset_id=ecb81afe-c3d0-49c0-b6b1-a08cc6d7455a&amp;img_etag=%2234e372e20c5705b800bceb7a814f6e38%22&amp;size=2560)](https://spark.adobe.com/page/LVvIqZowGx8lr/images/9f65b6d5-f9a5-40cf-9fd6-3d3eda82fd23.jpg?asset_id=ecb81afe-c3d0-49c0-b6b1-a08cc6d7455a&amp;img_etag=%2234e372e20c5705b800bceb7a814f6e38%22&amp;size=1024)
-
-0
++5

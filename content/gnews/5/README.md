@@ -1,24 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 奥布莱恩发紧急声明 敦促世界各国向中共追责
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/742792/)
+## FBI：就職典禮日前，武裝抗議活動計劃在50個州議會和國會大廈舉行
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/745395/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1200px-US-WhiteHouse-Logo.svg-1.png)
-**美国国家安全顾问罗伯特-奥布莱恩的声明**
+翻译：康州盘古农场-Bruce
+校对：康州盘古农场-黎明的光芒
+审核：康州盘古农场-V
 
-国家安全和防卫部门颁布日期
+**據報導，****ABC****新聞獲得的一份****FBI****內部公告稱，組織者正計劃在就職日之前的幾天內，在****50****個州的國會大廈以及美國國會大廈舉行武裝抗議活動。 **
 
-2021年1月11日
+據ABC的亞倫·卡特斯基（Aaron Katersky）報導，公告中寫道：”計劃從1月16日到至少1月20日在所有50個州的國會大廈舉行武裝抗議活動，從1月17日到1月20日在美國國會大廈舉行武裝抗議活動。 “他還說，一個組織 “呼籲在川普總統就職日之前（如果）被撤職的情況下，（將）”衝擊”州、地方和聯邦政府的法院和行政大樓。”
 
-2020年5月，川普政府预见到并宣布香港的自由开放社会将死于中共之手。上周，有超过50人因行使《基本法》保障的政治权利而被中共在香港逮捕，其中包括前民选官员，这是中共在香港民主的棺材上接连钉下的又一颗新钉子。
+根據公告，聯邦調查局 「收到了關於一個已確定的武裝組織打算在1月16日前往華盛頓特區的資訊」。 同時，該組織警告說，如果國會試圖通過第25條修正案罷免川普總統，將發生 “巨大的起義”。
 
-5月，美国政府当局要求北京方面就中共病毒的来源作出答复，并指责世界卫生组织听从中共的意见，使其得以掩盖事实。正如中共无视《中英联合声明》规定的国际义务一样，它继续无视《国际卫生条例》。
 
-美国是第一个有勇气和信念坦率承认中共政权真实性质的大国。世界各国要求中共承担责任是至关重要的。世界不能再为中共不负责任的做法承受更多伤害–无论是中共结束香港的法治，还是其不与卫生官员合作应对疫情。美国正在研究进一步的应对方案。
 
-翻译：文非
+> "Armed protests are being planned at all 50 state capitols from 16 January through at least 20 January, and at the US Capitol from 17 January through 20 January," according to an FBI bulletin obtained by [@ABC](https://twitter.com/ABC?ref_src=twsrc%5Etfw)
+> — Aaron Katersky (@AaronKatersky) [January 11, 2021](https://twitter.com/AaronKatersky/status/1348674449965527045?ref_src=twsrc%5Etfw)
 
-[链接](https://www.whitehouse.gov/briefings-statements/statement-national-security-advisor-robert-c-obrien-011121/)
+
+
+*根據**FBI**的公告，**“**從**1**月**16**日到至少**1**月**20**日，計劃在所有**50**個州議會大廈舉行武裝抗議活動，從**1**月**17**日到**1**月**20**日在美國國會大廈舉行抗議活動。**“@ABC**上午**12**：**53* *· 2021**年**1**月**12**日*
+
+
+
+> A group is calling for “storming” state, local, and federal government courthouses and administrative buildings in the event President Trump is removed prior to Inauguration Day, per an FBI bulletin obtained by [@ABC](https://twitter.com/ABC?ref_src=twsrc%5Etfw)
+> — Aaron Katersky (@AaronKatersky) [January 11, 2021](https://twitter.com/AaronKatersky/status/1348674781944688640?ref_src=twsrc%5Etfw)
+
+
+
+*根據美國聯邦調查局（**FBI**）獲得的一份**FBI**公告，如果特朗普總統在就職日之前被免職，一個組織呼籲**“**衝進**“**州，地方和聯邦政府的法院大樓和行政大樓。**@ABC**上午**12**：**54 · 2021**年**1**月**12**日*
+
+
+
+> The FBI has "received information about an identified armed group intending to travel to Washington, DC on 16 January. They have warned that if Congress attempts to remove POTUS via the 25th Amendment a huge uprising will occur," according to a bulletin obtained by [@ABC](https://twitter.com/ABC?ref_src=twsrc%5Etfw)
+> — Aaron Katersky (@AaronKatersky) [January 11, 2021](https://twitter.com/AaronKatersky/status/1348675941309034496?ref_src=twsrc%5Etfw)
+
+
+
+*聯邦調查局（**FBI**）獲得的公告稱，**FBI”**已收到有關打算在**1**月**16**日前往華盛頓特區的一個已確定武裝**組織**的資訊。 他們已警告說，如果國會試圖通過《第二十五條修正案》撤除潛在敵人，將發生巨大的起義。**“@ABC**上午**12**：**59 · 2021**年**1**月**12**日**·*
+
+週一，共和黨人阻止了民主黨人提出一項決議的嘗試，該決議呼籲副總統邁克-彭斯 “召集並動員內閣行政部門的主要官員，啟動第25條修正案第4款，宣佈總統唐納德-J-川普無力履行其職責，並立即行使代理總統的權力。” 共和黨人阻止了這一嘗試。
+
+該公告是在上周美國國會大廈出現混亂之後發佈的，許多議員將其主要歸咎於川普總統，呼籲通過第25修正案彈劾使其被撤職。 其他人，如眾議員亞歷山大-奧卡西奧· 科蒂茲（Alexandria Ocasio-Cortez）也呼籲參議員特德· 克魯茲（Ted Cruz）、喬什· 霍利（Josh Hawley）和眾議院少數黨領袖凱文· 麥卡錫（Kevin McCarthy）辭職，認為他們通過支援挑戰選舉結果的努力，實際上煽動了當天的事件。
+
+原文作者：漢娜·布魯（Hannah Bleau）
+
+發佈時間：2021年1月11日
+
+文章連結：[https://www.breitbart.com/politics/2021/01/11/fbi-armed-protests-planned-50-state-capitols-u-s-capitol-ahead-inauguration-day/](https://www.breitbart.com/politics/2021/01/11/fbi-armed-protests-planned-50-state-capitols-u-s-capitol-ahead-inauguration-day/)
 
 0
