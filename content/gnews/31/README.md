@@ -1,49 +1,95 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彭佩奥将派美国驻联合国大使访台
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/745100/)
+## 【大选推特/Parler实况】1/12/2021 拜登人事主管曾在中共国情报机构任职&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/747435/)
 
-新闻来源：Washington Examiner《华盛顿观察家报》； 作者：Joel Gehrke； 发布时间：2021年1月7日
+【大选实况】1/12/2021 EST 3:34 pm Breaking911推文： 川普总统：”第25条修正案对我来说是零风险的，但会回来困扰乔・拜登和拜登政府。” “……小心你的愿望。”
 
-翻译/简评：毛毛猫猫；校对：SilverSpurs7；审核：万人往；Page：小雨
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/011217.jpg)
 
-#### **简评：**
+> PRESIDENT TRUMP: “The 25th Amendment is of zero risk to me but will come back to haunt Joe Biden and the Biden administration."
+> 
+> “…Be careful what you wish for.”
+> 
+>  [pic.twitter.com/ydQBWYFPcY](https://t.co/ydQBWYFPcY)
+> — Breaking911 (@Breaking911) [January 12, 2021](https://twitter.com/Breaking911/status/1349092521985646605?ref_src=twsrc%5Etfw)
 
-为了回击中共对香港自由民主的镇压，近日美国国务院高调宣布将派美国驻联合国大使访问台湾。美国务院此举极具象征意义，不仅大幅提高了具有民主政体的台湾之国际地位，而且向世人昭示美国支持台湾参加国际事务的决心；同时还暗示，所谓的“一中政策”将寿终正寝。
 
-#### **原文翻译：**
+来源：[https://twitter.com/Breaking911/status/1349092521985646605](https://twitter.com/Breaking911/status/1349092521985646605)
+盖特链接：[https://gtv.org/getter/5ffe4fdc87fabe2daf37ce94](https://gtv.org/getter/5ffe4fdc87fabe2daf37ce94)
 
-# 彭佩奥将派美国驻联合国大使访台以谴责中共国对香港的镇压
+* * *
 
-在中共政权对香港的镇压之后，美国驻联合国大使凯利•克拉夫特(Kelly Craft)将前往台湾，高调庆祝该岛脱离中共大陆的自治。
+【大选实况】1/12/2021 EST 8:34 pm RaheemKassam 推文： 外媒：拜登人事主管曾在中共国情报机构任职 FBI标记为招募西方间谍
 
-[!\[\]()!\[\](https://spark.adobe.com/page/HpM9tN2pqljEL/images/78ac6b19-8405-445d-9116-dfb32dbf0587.png?asset_id=bc2465e6-0c65-456d-921b-7c6d417fe81e&amp;img_etag=%229e7001584296b65d6fff4960f25c52ed%22&amp;size=2560)](https://spark.adobe.com/page/HpM9tN2pqljEL/images/78ac6b19-8405-445d-9116-dfb32dbf0587.png?asset_id=bc2465e6-0c65-456d-921b-7c6d417fe81e&amp;img_etag=%229e7001584296b65d6fff4960f25c52ed%22&amp;size=1024)美国驻联合国大使凯利•克拉夫特(Kelly Craft)
 
-“美国支持香港人民和所有渴望自由的人，”美国国务卿迈克•彭佩奥周四早些时候宣布，“本着这种精神，我很高兴地宣布美国驻联合国大使凯利•克拉夫特即将访问台湾。台湾是一个可靠的伙伴和充满活力的民主国家，尽管中共竭力破坏其巨大的成功，但台湾仍然蓬勃发展。”
 
-在香港大规模逮捕53名亲民主人士之后，彭佩奥宣布了克拉夫特的行程。大陆政府为应对抗议北京侵犯香港传统自由而通过了《国家安全法》，中国领导人根据此法的授权实施了逮捕。
+> EXC: Biden Personnel Chief Served At Chinese Intel Org Flagged By FBI For Recruiting Western Spies [https://t.co/2nzCb5vfNO](https://t.co/2nzCb5vfNO)
+> — Raheem Kassam (@RaheemKassam) [January 13, 2021](https://twitter.com/RaheemKassam/status/1349168029935022081?ref_src=twsrc%5Etfw)
 
-彭佩奥说：“台湾显示了一个自由的中国能够取得的成就。”
 
-一位中共国高级官员回应说，”美方将为其支持北京在台湾和香港的对手的错误行为付出沉重代价”。
+来源：[https://twitter.com/RaheemKassam/status/1349168029935022081](https://twitter.com/RaheemKassam/status/1349168029935022081)
+盖特链接：[https://gtv.org/getter/5ffe516987fabe2daf37cf7f](https://gtv.org/getter/5ffe516987fabe2daf37cf7f)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/HpM9tN2pqljEL/images/125fc0ea-374a-4ac4-8c18-1f493342ca75.png?asset_id=5ae16d02-4eac-4ff8-b97b-cd81d1ffbb86&amp;img_etag=%222d42b1e9fef8bde8d3461b8942867b69%22&amp;size=2560)](https://spark.adobe.com/page/HpM9tN2pqljEL/images/125fc0ea-374a-4ac4-8c18-1f493342ca75.png?asset_id=5ae16d02-4eac-4ff8-b97b-cd81d1ffbb86&amp;img_etag=%222d42b1e9fef8bde8d3461b8942867b69%22&amp;size=1024)
+* * *
 
-“一段时间以来，川普政府内部少数反华政客在执政时日不多的情况下，为了一己政治利益，不惜故意破坏中美关系，上演了一出疯狂的戏码，”根据中国外交部发言人华春莹的官方发布会记录，她说。“这种伎俩违背了历史潮流和两国人民的友好感情，必将受到历史的惩罚。”
+【大选实况】1/12/2021 EST 8:44 pm Cortes Steve1推文： 来点好消息怎么样？ CNN污染机场的统治今天结束了!
 
-中共国自1949年以来一直宣称对台湾拥有主权，但却从未在台北执政。台北是第二次国共内战期间被推翻的中华民国政府的最后避难所。中共国总书记习近平在2019年年初提出，台湾应通过仿照英国放弃前殖民地主权时通过的 “一国两制 ”协议，将台湾置于北京的控制之下，但中共国对英国前殖民地（香港）的镇压使台湾对这种协议的反对态度更加强硬。
 
-“这是美国现任驻联合国大使首次访台，这显示美国对台湾参与国际事务的大力支持，也标志着美台全球伙伴关系又迈进了一步。”台湾外交部发言人欧江安回应彭佩奥的声明时说。
 
-彭佩奥暗示，美国官员也会找到其他方式来惩罚中共国对香港的镇压。
+> How about some great news? 
+> 
+> The reign of CNN polluting airports is over! [pic.twitter.com/hb2AL3kpLK](https://t.co/hb2AL3kpLK)
+> — Steve Cortes (@CortesSteve) [January 13, 2021](https://twitter.com/CortesSteve/status/1349170396046782465?ref_src=twsrc%5Etfw)
 
-“那些被捕的人除了行使法律承诺给他们的民主权利外，没有任何罪过，而且出于人性，他们应该享有这些权利，”他说，“作为这场政治镇压运动的一部分，有一名美国公民被捕，这个消息令我感到震惊。我要明确指出：美国不会容忍对美国公民的任意拘留或骚扰。”
 
-[原文链接](https://www.washingtonexaminer.com/policy/defense-national-security/un-ambassador-taiwan-rebuke-china-crackdown)
+来源：[https://twitter.com/CortesSteve/status/1349170396046782465](https://twitter.com/CortesSteve/status/1349170396046782465)
+盖特链接：[https://gtv.org/getter/5ffe52a887fabe2daf37d041](https://gtv.org/getter/5ffe52a887fabe2daf37d041)
 
-编辑：【英国伦敦喜庄园编辑部】
+* * *
 
-+1
+【大选实况】1/12/2021 EST 8:42 pm Gordon G Chang推文： #习近平认为#中共国正处于统治世界的边缘：http://bloom.bg/35BpMDh。这种看法使这是历史上最有影响的–也是最危险的–时代之一。#共产党中国#中共#中共中国!
+
+
+
+> [#XiJinping](https://twitter.com/hashtag/XiJinping?src=hash&amp;ref_src=twsrc%5Etfw) believes [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) is on the verge of dominating the world: [https://t.co/jSvsDFCL5P](https://t.co/jSvsDFCL5P). That perception makes this one of the most consequential–and dangerous– times in history. [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPChina](https://twitter.com/hashtag/CCPChina?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Gordon G. Chang (@GordonGChang) [January 13, 2021](https://twitter.com/GordonGChang/status/1349169892386287624?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/gordongchang/status/1349169892386287624?s=21](https://twitter.com/gordongchang/status/1349169892386287624?s=21)
+盖特链接：[https://gtv.org/getter/5ffe547b87fabe2daf37d199](https://gtv.org/getter/5ffe547b87fabe2daf37d199)
+
+* * *
+
+【大选实况】1/12/2021 美东时间 5:19PM Bill Gertz推文： 美国海军潜艇部打破隐身模式，让世界和中国知道，在美国换届之际，一艘核导弹潜艇已接近关岛。
+
+
+
+> Navy silent service breaks stealth mode to let world and China know that a nuclear missile submarine is near Guam as the US transitions administrations [https://t.co/HgFIMISV1j](https://t.co/HgFIMISV1j)
+> — Bill Gertz (@BillGertz) [January 13, 2021](https://twitter.com/BillGertz/status/1349149072519798788?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/BillGertz/status/1349149072519798788](https://twitter.com/BillGertz/status/1349149072519798788)
+盖特链接：[https://gtv.org/getter/5ffe603187fabe2daf37d81a](https://gtv.org/getter/5ffe603187fabe2daf37d81a)
+
+* * *
+
+【大选实况】1/12/2021 美东时间9:31PM 共和党众议院司法委员会推文： 援引第25条修正案来罢免川普总统并不是一件严肃的事情。 只不过是民主党人增多的政治博弈罢了。 他们也知道这一点。不要被骗了。
+
+
+
+> Invoking the 25th Amendment to remove President Trump from office isn’t a serious endeavor. 
+> 
+> Just more political games from the Democrats. 
+> 
+> And they know it. Don’t be fooled.
+> — House Judiciary GOP (@JudiciaryGOP) [January 13, 2021](https://twitter.com/JudiciaryGOP/status/1349182188298907651?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/JudiciaryGOP/status/1349182188298907651](https://twitter.com/JudiciaryGOP/status/1349182188298907651)
+盖特链接：[https://gtv.org/getter/5ffe66b787fabe2daf37dcc6](https://gtv.org/getter/5ffe66b787fabe2daf37dcc6)
+
+**By： 【秘密翻译组 G-Translators】**
+
+0

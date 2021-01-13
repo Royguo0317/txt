@@ -1,33 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统1月12日谴责大科技公司分裂国家
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/745282/)
+## 被中共操控下的教育让多少孩子失去了生命 13岁女生月考第一遭老师质疑后溺亡
+` shang` [轉載自GNews](https://gnews.org/zh-hans/747529/)
 
-新闻简述：川普总统在2021年1月12日出发去南部边境之前，对记者讲话时，评论了大科技公司对国家的分裂，并认为他们的所作所为对他们自己也将带来巨大伤害。被记者问及是否该对国会山骚乱负任何责任的时候，他回答他的演讲是妥当的。
-视频来源：[https://www.youtube.com/watch?v=dLExILbp6rg](https://www.youtube.com/watch?v=dLExILbp6rg) 
-**翻译全文**
+作者：小妍说
 
-President Trump: I think that big tech is doing a horrible thing for our country and your country, and I believe it’s going to be a catastrophic mistake for them. They’re dividing and divisive, and they’re showing something that I’ve been predicting for a long time. I’ve been predicting it for a long time. People didn’t act on it, but I think big tech has made a terrible mistake. And very very bad for our country, and that’s leading others to do the same thing. And it causes a lot of problems and a lot of danger. Big mistakes. They shouldn’t be doing it, but uh, there’s always a countermove when they do that.
+近日，安徽“13岁女生月考第一遭老师质疑后溺亡”一事，在中共国引起了社会关注。1月8日，涉事女生李怡的追悼会在潜山市新殡仪馆举行。与此同时，李怡的亲属披露了其生前遗书。李怡在遗书中写到：“写得和答案差不多就是抄，在你们眼里，我不会一鸣惊人，超出你们想象的成绩是不会是我自己的，我受够了！”“我真的很煎熬，我一直都想过自杀，但没有一件事迫使我去，现在我真的扛不住了。2021年的第一天，也算好，别说我对不起任何人。”简单回顾一下事情经过：2020年12月30日23时，13岁女孩李怡更新QQ动态，“考试正常发挥，考得好怪我喽？”两天后的下午，李怡的尸体在家附近的水塘被打捞出来，家属认为李怡溺亡与班主任质疑考试作弊且进行补考有关。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/image-163.png)
+据李怡姑姑李佳提供的侄女月考成绩单显示，李怡在潜山市河镇中学12月考中取得全班第一、全校第一，其中道德与法治为开卷考试，李怡考取100分。班主任汪老师对于孩子考100分有质疑，12月30日晚上打电话给孩子的爷爷，询问是否提前买了试卷。爷爷当时解释家里没有啥资料、试卷，只是近期给孩子补习了数学、英语。随后12月31日，班主任找到李怡让其补考，李怡补考中错了两小题，考了98分。李佳称，目前已和潜山教育局达成协议，一共补偿金额60万元，李怡的丧葬费14万元，姐姐李梦从初中至高中的教育费用和生活费用共44万元。目前教育局已拨付李怡家属丧葬费用14万元，剩下的教育局承诺将几天后拨付。针对网上有媒体转述教育局工作人员回应称“李怡写的试卷主观题答案和标准答案一致”，李佳表示，家属要求教育部对此事进行调查，证明李怡清白。在和教育部门的协商会上，李佳称，教育局领导说“老师的初衷是好的，但方式方法欠妥。”
+![]()![](https://gnews.org/wp-content/uploads/2021/01/image-164.png)
+从事情开始时学校校长表示目前尚未统一口径，到校方称：文科考试考满分不可能，女孩试卷与标准答案一字不差，后班主任发声，凭良心讲，与学校和老师没有关系，现在又称“老师的初衷是好的，方式方法欠妥”，大家听听这是人说的话吗？初衷是好的”这句话本质上就是强盗逻辑，如何证明，初衷是好的？初衷是好的，结果为什么变质呢？初衷是好的，那你起码能够拿出作弊证据吧？难道就用你是老师，她是学生来界定作弊的吗？一句老师的初衷是好的，就可以把这个老师的一切过错抹掉吗？一句初衷是好的就可以把对孩子，对那个家庭造成的一切伤害抹除吗？要是凭良心，凭初衷就可以抹掉一切过错罪过，那还要法律干什么？凭良心讲，初衷是好的，这些话术就是甩锅专用的，在中共国但凡有权有势的人，做了再坏的事都是用“初衷是好的”这句话兜底。不妨想想，但凡结果和过程是对的，谁会说这些话，不就是没话说了，无话可说了，才说这些话。良心、初衷如果有用，中共国的社会就不会是这个样子了。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/image-165.png)
+在中共国的教育体制、家庭氛围和社会文化中，学生并不拥有与老师和家长平等的地位。他们中的很多人对学生、孩子所应享有的平等不屑一顾，对其肆意剥夺和摧毁。初衷是好的和那句为了你好，这些话害了多少孩子，在中共国，掌握经济大权的父母可以说这些，掌握教育大权的教师可以说这些，掌握生产资料的企业可以说这些，唯独这些受伤害的孩子无权这么说。现在大家知道了小女孩为什么宁愿去死也不去反抗了吧，因为在中共国谁会去管一个普通家庭孩子的自尊心有多大价值呢？毕竟国内的学校教育很多都是一些既得利益者们谋利的手段，是个别学校领导，乃至更高一级的教育管理机构领导弄绩效升官发财的方式，而目的从来不是为了教育保护学生的。
 
-川普总统：我想大科技公司正在对我们的国家、你们的国家做一件可怕的事情。我相信对他们来说，那是一个灾难性的错误。他们正在搞分裂，他们做的事情我很久以前就预见到了。我已经预见很久了。没人对此采取措施，但是我相信大科技公司犯了一个可怕的错误，对我们的国家非常、非常的坏，并使其他人效仿，导致了大量的问题和诸多的威胁。巨大的错误！他们本不该那样做的，但是当他们这么干的时候，就会有反作用力。
+（文章仅代表作者个人观点）
 
-I’ve never seen such anger as I see right now, and that’s a terrible thing. A terrible thing. And you have to always avoid violence. We have, we have tremendous support, we have support probably like nobody’s ever seen before. Always have to avoid violence.
+GNEWS之前文章：
 
-我从来没见过像现在这样的众怒，那是件可怕的事情。可怕的事情。永远你们都要防止暴力。我们有巨大的民意支持，这种支持是前所未有的。我们必须防止暴力。
+拼多多员工猝死后再有员工跳楼自杀 [https://gnews.org/zh-hans/740821/](https://gnews.org/zh-hans/740821/)
 
-Q: Mr. President, what is your role in what happened at the Capitol? What is your personal responsibility?
+继毒奶粉后 又现毒药膏 [https://gnews.org/zh-hans/740753/](https://gnews.org/zh-hans/740753/)
 
-问：总统先生，你对国会山上发生的事情，起到了什么样的作用？你有什么个人责任？
+中共国应届生拒绝申通996被辞退 [https://gnews.org/zh-hans/731648/](https://gnews.org/zh-hans/731648/)
 
-President Trump: Well if you read my speech, and many people have done it, and I’ve seen it uh in the papers and in the media, on television, it’s been analyzed, and people thought that what I said was totally appropriate. And if you look at what other people have said, politicians at a high level, about the riot, going through stuff about the horrible riots in Portland and Seattle and various other places, that’s what the real problem is: what they say. But they’ve analyzed my speech and my words and my final paragraph, my final sentence, and everybody said: “He thought it was totally appropriate.”
+新闻链接：[https://news.163.com/21/0109/12/FVTA7ENG0001899O.html](https://news.163.com/21/0109/12/FVTA7ENG0001899O.html)
 
-川普总统：好吧，如果你读了我的演讲，很多人都读了，我见我的演讲发布在报纸、媒体、电视上，被分析过了，人们认为我说的话是非常妥当的。如果你看了其他人，那些职位很高的政客，对于骚乱都是怎么讲话的，对于波特兰、西雅图和其它各地的可怕骚乱都是怎样讲的，他们说的话才是真正有问题的。大家已经分析过了我的演讲，我说的话，我说的最后那段话和结束语，然后每个人都说：我认为讲话是妥当的。
-
-字幕：【相机过热啊】听写：【BruhM】翻译 & 编辑：【Isaiah4031】
-
-喜马拉雅玫瑰园小队出品
-
-*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
-
-+5
++1

@@ -1,52 +1,87 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## War Room 649 总结
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/745065/)
+## 【大选推特/Parler实况】1/12/2021 蓬佩奥突然取消欧洲之行
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/747053/)
 
-- 编辑：Ranting
-- 作者：Jenny Ball
-
-
-Gab是在苹果和Google这样的大科技打压言论自由下幸免的网站，追求言论自由的人们可以注册Gab追求真相。
-
-今天，南希·佩洛西发起的启动第25修正案弹劾总统的政变失败了。如同暴政的民主党一贯所为，她试图掠取更多的权力。- 鲍里斯
-
-**川普竞选战略顾问贾森·米勒（Jason Miller****）**，作战室联合主持人：因为他们的目标是试图伤害川普总统，使其在2024年无法参选总统。他们知道他仍然是当今最受欢迎的民族主义共和党人，有强大坚定的支持基础。
-
-**拉希姆·卡萨姆（Raheem Kassam****）**：他们是要打击现代运动的杰出代表川普总统的支持根基。
-
-**鲍里斯·艾普斯汀（Boris Epshteyn****）**，特朗普2020顾问委员会成员：他们想绕过司法委员会，绕过弹劾应该遵循的程序进行弹劾，因为他们不希望像参议员吉姆·乔丹（Jim Jordan）和安迪·比格斯（Andy Biggs）等参众议员能够有机会阐述有关选民欺诈的事实和证据，自11月3日大选以来，我们已经讨论了两个多月选举如何被盗窃。民主党人不希望美国人民听到这些事实，他们想继续压制共和党，压制保守派。
-
-任何提及选举欺诈或选民欺诈的行为均被视为非法，这就是自由派所追求的。他们试图变成鲍威尔的“1984”社会。记得当我还是孩子时在苏联，我不能说出自己真正的感受和感觉，我害怕告诉我的朋友我是犹太人，因为那里有反犹太主义者。那种审查制度，那种暴政的反乌托邦就是现在民主党人试图降落到美国的东西。
-
-我一点儿不是夸张，推特（Twitter）封号美利坚共和国的总统，却让伊朗的阿亚图拉（Ayatollah）使用其平台，让中共（CCP）使用其平台。这就是我们美国面临的问题。
-
-让我们反击审查制度，
-         反击让我们沉默，
-并使用事实来做到这一点：
-－ 威斯康星州超过200,000张非法选票；
-－ 乔治亚州超过40万张非法选票；
-－ 宾夕法尼亚州仅在阿勒格尼县就发现700,000张邮递缺席选票。
-
-**德克萨斯州总检察长肯·帕克斯顿（Ken Paxton****）**：我们是经济自由，自由市场竞争。像Google这样的高科技公司中已经超越了当今的竞争权限，他们非常不公平地关闭了其他公司，并垄断了互联网广告，不能让这种事情发生。因此，我们才刚刚开始确定我们需要做些什么，如何对他们进行法律行动。
-
-**班农先生**：您认为我们质疑这次选举就该被控叛国罪吗？
-
-**总检察长帕克斯顿**：我们的诉讼非常简单，基本上是说这些州的选举，没有遵守州法律，没有遵循美国宪法。不幸的是，法院他们不立案听证，我认为这是一个巨大的错误。对于拜登是否具有合法性，许多美国人民不相信他当选的合法性。如果我是乔·拜登，我将组建一个委员会对此进行调查，以便在未来的选举中我们更具信誉。
-
-至少在我的有生之年，这次选举引发的合法性问题是最多的。
-
-按照宪法第一修正案，我们完全可以质疑，直到弄清真相满意为止，对我们来说，不应该对质疑的人有任何不好的事情发生。但这似乎不是我们在走的方向，这很可害。 提出这些问题不是起义，也不是叛国，只是在中国会那样，但不应该在美国。
-
-我认为我们有两件事要处理：
-－我们必须想办法解决那些有问题的州。我们州打了5场缺席选票的诉讼，并   赢得了每一个诉讼案，我们必须这样做，否则也会陷入像佐治亚州和威斯康星州这样的境地。
-－我们必须要求破坏了这个国家言论自由的人负责，因为在某些情况下，他们垄断了言语的话语权，如果我们要保持自由开放的社会，就不能允许这种情况发生。
-
-**杰克·波索比茨（Jack Posobiec）** ：在2020年夏季安体罚Antifa和黑命贵BLM骚动期间，民主党在全国范围内造成的损失达20亿美元，这是根据保险公司的保守估计， 有上百人死亡，包括一名8岁男孩和警察大卫.多恩（David Dorn）。
+【大选实况】1/12/2021 美东时间5:12PM 川普连任竞选高级顾问Jason Miller推文： 80%的川普选民和76%的关键州共和党人不太可能投票给支持弹劾川普的众议员/参议员。 据《纽约时报》报道：”米奇·麦康奈尔（Mitch McConnell ）称对弹劾川普的努力感到高兴”
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+> 👀 80% of Trump voters and 76% of Republicans in Battleground states are less likely to vote for a Member of Congress/U.S. Senator who votes for impeachment.
+> 
+> “Mitch McConnell Said to be Pleased About Trump Impeachment Efforts – The New York Times” [https://t.co/AgL9JlkqeE](https://t.co/AgL9JlkqeE)
+> — Jason Miller (@JasonMillerinDC) [January 12, 2021](https://twitter.com/JasonMillerinDC/status/1349117176557527040?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/JasonMillerinDC/status/1349117176557527040](https://twitter.com/JasonMillerinDC/status/1349117176557527040)
+盖特链接：[https://gtv.org/getter/5ffe278f87fabe2daf37af70](https://gtv.org/getter/5ffe278f87fabe2daf37af70)
+
+* * *
+
+【大选实况】1/12/2021 EST 1:00pm国务卿蓬佩奥推文： 去年，我在@胡佛学院谈到了威慑伊朗伊斯兰共和国的重要性。必须保持压力，直到德黑兰改变其破坏性行为。#最大的压力工作https://go.usa.gov/xAPvp
+
+
+
+> I spoke about the importance of deterring the Islamic Republic of Iran at [@HooverInst](https://twitter.com/HooverInst?ref_src=twsrc%5Etfw) last year. Have to keep up the pressure until Tehran changes its destructive behavior. [#MaximumPressureWorks](https://twitter.com/hashtag/MaximumPressureWorks?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/ZzeeSErzKw](https://t.co/ZzeeSErzKw) [pic.twitter.com/2XkXsap4Q3](https://t.co/2XkXsap4Q3)
+> — Secretary Pompeo (@SecPompeo) [January 12, 2021](https://twitter.com/SecPompeo/status/1349053537641119746?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1349053537641119746](https://twitter.com/SecPompeo/status/1349053537641119746)
+盖特链接：[https://gtv.org/getter/5ffdf8c287fabe2daf3793ba](https://gtv.org/getter/5ffdf8c287fabe2daf3793ba)
+
+* * *
+
+【大选实况】1/12/2021 EST 1:39pm国务卿蓬佩奥推文： 这对多边合作有何影响:自2019年以来，欧洲和拉丁美洲的13个国家和我们一起禁止/指定伊朗支持的真主党为恐怖组织。所谓的“军事派别”和“政治派别”没有区别。
+
+
+
+> How’s this for multilateral cooperation: Since 2019, 13 countries in Europe & Latin America have joined us in banning/designating Iran-backed Hizballah in its entirety as a terrorist organization. There’s no distinction between its so-called “military wing” & its “political wing” [pic.twitter.com/gaAm8nlvZO](https://t.co/gaAm8nlvZO)
+> — Secretary Pompeo (@SecPompeo) [January 12, 2021](https://twitter.com/SecPompeo/status/1349063421187207172?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1349063421187207172](https://twitter.com/SecPompeo/status/1349063421187207172)
+盖特链接：[https://gtv.org/getter/5ffdf90b87fabe2daf3793f0](https://gtv.org/getter/5ffdf90b87fabe2daf3793f0)
+
+* * *
+
+【大选实况】1/12/2021 EST 2:05pm国务卿蓬佩奥推文： 多亏了美国国务院的外交政策，包括德国、法国和意大利在内的10多个国家禁止了伊朗马汉航空的降落。#赢家
+
+
+
+> Thanks to [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) diplomacy, more than 10 countries have banned Iran's Mahan Air from landing, including Germany, France, and Italy. [#Winning](https://twitter.com/hashtag/Winning?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/LcXsKpAZiI](https://t.co/LcXsKpAZiI)
+> — Secretary Pompeo (@SecPompeo) [January 12, 2021](https://twitter.com/SecPompeo/status/1349070079288356867?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1349070079288356867](https://twitter.com/SecPompeo/status/1349070079288356867)
+盖特链接：[https://gtv.org/getter/5ffdf94f87fabe2daf37942a](https://gtv.org/getter/5ffdf94f87fabe2daf37942a)
+
+* * *
+
+【大选实况】1/12/2021 EST 2:26 pm ZeroHedge推文： 蓬佩奥突然取消欧洲之行，因为欧盟在国会动荡中 “格外忽悠 “他。
+
+
+
+> Pompeo Abruptly Cancels Europe Trip After EU "Extraordinary Snub" In Wake Of Capitol Unrest [https://t.co/ecP8Qb54uH](https://t.co/ecP8Qb54uH)
+> — zerohedge (@zerohedge) [January 12, 2021](https://twitter.com/zerohedge/status/1349075314949951489?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/zerohedge/status/1349075314949951489](https://twitter.com/zerohedge/status/1349075314949951489)
+盖特链接：[https://gtv.org/getter/5ffdf99387fabe2daf379462](https://gtv.org/getter/5ffdf99387fabe2daf379462)
+
+* * *
+
+【大选实况】1/12/2021 EST 2:30pm国务卿蓬佩奥推文： 从我们的原则和实力立场出发，川普政府通过谈判释放了两名美国人，并将他们从伊朗监狱中带回家–没有托盘现金，没有赎金，没有先决条件。
+
+
+
+> From our position of principle and strength, the Trump Administration negotiated the release of two Americans and brought them home from Iranian prisons — no pallets of cash, no ransoms, no preconditions. [pic.twitter.com/AysTZyXySK](https://t.co/AysTZyXySK)
+> — Secretary Pompeo (@SecPompeo) [January 12, 2021](https://twitter.com/SecPompeo/status/1349076180058611713?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1349076180058611713](https://twitter.com/SecPompeo/status/1349076180058611713)
+盖特链接：[https://gtv.org/getter/5ffe1d6387fabe2daf37a880](https://gtv.org/getter/5ffe1d6387fabe2daf37a880)
+
+**By： 【秘密翻译组 G-Translators】**
 
 0

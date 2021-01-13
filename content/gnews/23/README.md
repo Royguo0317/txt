@@ -1,54 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## FBI：就職典禮日前，武裝抗議活動計劃在50個州議會和國會大廈舉行
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/745395/)
+## 为了平息中共不满 新西兰正放弃五眼联盟
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/747615/)
 
-翻译：康州盘古农场-Bruce
-校对：康州盘古农场-黎明的光芒
-审核：康州盘古农场-V
+*加拿大多伦多枫叶农场 优雅1*
 
-**據報導，****ABC****新聞獲得的一份****FBI****內部公告稱，組織者正計劃在就職日之前的幾天內，在****50****個州的國會大廈以及美國國會大廈舉行武裝抗議活動。 **
+*校对、发稿 文锦*
+![]()![](https://gnews.org/wp-content/uploads/2021/01/47957437_101.jpg)新西兰总理杰辛达·阿登 图片来源：DW
+据《华盛顿观察家报》1月11日报道，新西兰破坏了五眼情报联盟，由此产生了可悲的反响——这个太平洋国家拒绝和其四个最亲密盟友一起向中共国对香港进行武力镇压行为进行谴责。
 
-據ABC的亞倫·卡特斯基（Aaron Katersky）報導，公告中寫道：”計劃從1月16日到至少1月20日在所有50個州的國會大廈舉行武裝抗議活動，從1月17日到1月20日在美國國會大廈舉行武裝抗議活動。 “他還說，一個組織 “呼籲在川普總統就職日之前（如果）被撤職的情況下，（將）”衝擊”州、地方和聯邦政府的法院和行政大樓。”
+为回应中共国上周在香港“水晶之夜”式的镇压行动，美国、澳大利亚、英国和加拿大外交部长周六发表了联合声明。 “五眼”的这四个合作伙伴“对根据《国家安全法》在香港大规模逮捕55名政治家和激进分子表示严重关切。”部长们指出，该法律“明显违反了中英联合声明，破坏了“一国两制”框架，”至关重要的是，推迟9月份举行的（香港）立法会选举至关重要，必须以公平的方式进行，包括代表一系列政治观点的候选人。”
 
-根據公告，聯邦調查局 「收到了關於一個已確定的武裝組織打算在1月16日前往華盛頓特區的資訊」。 同時，該組織警告說，如果國會試圖通過第25條修正案罷免川普總統，將發生 “巨大的起義”。
+这些强大的话语是来自世界上四个最大民主国家的共同声明，从而使得发声的份量更加权威而强大。但是，如果新西兰加入该声明，那将更具说服力。总理杰辛达·阿登（Jacinda Ardern）领导的新西兰政府拒绝支持该声明的行为是可耻的。不仅如此，阿登的拒绝声明极大地破坏了她经常提出的关于新西兰是全球人权领导者的断言。
 
+那么这里发生了什么？
 
+正如欧盟对中共贸易和投资的贪婪心态一样，新西兰与欧盟对中共的政治绥靖政策不相上下。中共要求这种绥靖政策来换取其经济利益，但是它伴随着不断增加的成本。近年来，新西兰面临着越来越大的公开和秘密压力，被中共要求与五眼联盟保持距离。随着中共与美国和澳大利亚之间的紧张关系不断加剧，在过去的12个月中，这一施压运动已成为中共国日益关注的优先事项。
 
-> "Armed protests are being planned at all 50 state capitols from 16 January through at least 20 January, and at the US Capitol from 17 January through 20 January," according to an FBI bulletin obtained by [@ABC](https://twitter.com/ABC?ref_src=twsrc%5Etfw)
-> — Aaron Katersky (@AaronKatersky) [January 11, 2021](https://twitter.com/AaronKatersky/status/1348674449965527045?ref_src=twsrc%5Etfw)
+然而，新西兰并没有自救，允许并通过了让更多令人震惊的中共国干预实例，使其在本国不受挑战与质疑。它对中共国情报人员渗透其议会的宽容态度是这种动态下最荒谬的例子。你没有看错，新西兰让一名中共国情报官员参与其议会。不过，在阿登的部分辩护中，中共的间谍活动对反对党国家党的影响最大，而不是阿登的政党。尽管如此，就像对待香港的沉默一样，重要的不仅仅是阿登做了什么，而是她没有做什么。例如，新西兰海军有两艘能够进行射程作战的舰艇，却没有进入南中国海的情况值得注意。
 
+在美国，人们已经意识到，尽管其情报部门仍然由才华横溢的爱国者和盟友组成，但再也无法信任其新西兰政府来维护最敏感的美国情报了，对此，新西兰感到了不满。美国还注意到了一些有影响力的新西兰人的论点，即他们的政府现在应该充当美中之间的中介，而不是前者的盟友。
 
+简而言之，新西兰对香港的沉默是一个更深层次而令人担忧的问题。
 
-*根據**FBI**的公告，**“**從**1**月**16**日到至少**1**月**20**日，計劃在所有**50**個州議會大廈舉行武裝抗議活動，從**1**月**17**日到**1**月**20**日在美國國會大廈舉行抗議活動。**“@ABC**上午**12**：**53* *· 2021**年**1**月**12**日*
+**点评：**
 
+五眼联盟是由五个英语圈国家所组成的情报联盟，在英美协定下组成的国际情报分享团体，成员国包括澳大利亚、加拿大、新西兰、英国和美国。其历史最早可以追溯到第二次世界大战同盟国所发布的大西洋宪章**.**
 
+** **这个历史悠久的联盟组织在如今的二十一世纪时期却面临了前所未有的联盟破裂的危机和挑战，其核心原因就是作为成员之一的新西兰，背弃了五眼联盟的结盟信条，以商贸合作等经济利益关系的方式倒向了中共国的一侧，变相被中共国给收编成为了盟国之一，从而出现了拒绝支持五眼联盟的一致行动的现象。
 
-> A group is calling for “storming” state, local, and federal government courthouses and administrative buildings in the event President Trump is removed prior to Inauguration Day, per an FBI bulletin obtained by [@ABC](https://twitter.com/ABC?ref_src=twsrc%5Etfw)
-> — Aaron Katersky (@AaronKatersky) [January 11, 2021](https://twitter.com/AaronKatersky/status/1348674781944688640?ref_src=twsrc%5Etfw)
+中共在全球实施的**“**蓝金黄**”**策略，俘获到了新西兰这一届执政党，使其不惜放弃五眼联盟的契约关系。由此可见，中共国对世界联盟和国与国之间的合作关系起到的破坏作用正在不断加大，其危害性的世界影响力也在加大。因此，我们爆料革命正在掀起浪潮，集结全世界觉醒起来的正义者们，向邪恶的中共挥动铁拳，砸向他们囚禁人民的那堵墙。
 
+*[原文链接](https://www.washingtonexaminer.com/opinion/appeasing-china-new-zealand-abandons-the-five-eyes)*
 
-
-*根據美國聯邦調查局（**FBI**）獲得的一份**FBI**公告，如果特朗普總統在就職日之前被免職，一個組織呼籲**“**衝進**“**州，地方和聯邦政府的法院大樓和行政大樓。**@ABC**上午**12**：**54 · 2021**年**1**月**12**日*
-
-
-
-> The FBI has "received information about an identified armed group intending to travel to Washington, DC on 16 January. They have warned that if Congress attempts to remove POTUS via the 25th Amendment a huge uprising will occur," according to a bulletin obtained by [@ABC](https://twitter.com/ABC?ref_src=twsrc%5Etfw)
-> — Aaron Katersky (@AaronKatersky) [January 11, 2021](https://twitter.com/AaronKatersky/status/1348675941309034496?ref_src=twsrc%5Etfw)
-
-
-
-*聯邦調查局（**FBI**）獲得的公告稱，**FBI”**已收到有關打算在**1**月**16**日前往華盛頓特區的一個已確定武裝**組織**的資訊。 他們已警告說，如果國會試圖通過《第二十五條修正案》撤除潛在敵人，將發生巨大的起義。**“@ABC**上午**12**：**59 · 2021**年**1**月**12**日**·*
-
-週一，共和黨人阻止了民主黨人提出一項決議的嘗試，該決議呼籲副總統邁克-彭斯 “召集並動員內閣行政部門的主要官員，啟動第25條修正案第4款，宣佈總統唐納德-J-川普無力履行其職責，並立即行使代理總統的權力。” 共和黨人阻止了這一嘗試。
-
-該公告是在上周美國國會大廈出現混亂之後發佈的，許多議員將其主要歸咎於川普總統，呼籲通過第25修正案彈劾使其被撤職。 其他人，如眾議員亞歷山大-奧卡西奧· 科蒂茲（Alexandria Ocasio-Cortez）也呼籲參議員特德· 克魯茲（Ted Cruz）、喬什· 霍利（Josh Hawley）和眾議院少數黨領袖凱文· 麥卡錫（Kevin McCarthy）辭職，認為他們通過支援挑戰選舉結果的努力，實際上煽動了當天的事件。
-
-原文作者：漢娜·布魯（Hannah Bleau）
-
-發佈時間：2021年1月11日
-
-文章連結：[https://www.breitbart.com/politics/2021/01/11/fbi-armed-protests-planned-50-state-capitols-u-s-capitol-ahead-inauguration-day/](https://www.breitbart.com/politics/2021/01/11/fbi-armed-protests-planned-50-state-capitols-u-s-capitol-ahead-inauguration-day/)
-
-0
++2

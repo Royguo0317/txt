@@ -1,22 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 天安门脸冻红鼻涕成冰的执勤武警是不是党卫军炮灰的最好写照
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/745761/)
+## 【香草山档案室】中国人需要有信仰
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/747838/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/封面-43.jpg)
-撰稿：巴黎七星农场；审核：喜马拉雅的馍夹肉；校对：Maarago
+香草山综合报道
 
-据[**帝哥说事儿**](https://weibo.com/2155226773?refer_flag=1005055013_) [2021年1月13日9：32](https://weibo.com/2155226773/JCX9J8snE?from=page_1005052155226773_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
-雪中的天安门前，一名武警在执勤，风雪中笔直屹立，衣帽上堆积的雪已经结成冰，脸冻得通红，鼻涕冻成冰渣。大雪压青松，青松挺且直！致敬中国军人  ​​​​
-![]()![](https://gnews.org/wp-content/uploads/2021/01/执著兵.jpg)
-这个哨兵不是青松，他和我们一样出身草根，和我们一样是肉体凡胎，只要为这个执勤点设置一个可以全方位观察周边情况的封闭岗厅或者像监控人民那样安上监控设备就一切问题都解决了——如果有了封闭岗厅，这名执勤武警就可以免受风雪侵袭，如果有监控设备，就可以在免除武警风雪侵袭的情况下照样保证监视效果。为什么这些都不做呢？因为那个执勤的武警不是被保卫对象的孩子，保卫对象所需要的就是这样一个风雪中的花瓶——我大兲朝威武！
 
-既然在天安门执勤的武警都得不到有效的防护，那么这位武警所要保卫的政权还会考虑到为战争中的士兵采取有效的防护吗？这个政权除了拿冻成冰雕的志愿军冰雕连来鼓舞士气之外，其他的什么都没有改变，当年在朝鲜战场上的冰雕连的传统依然在延续——它变成了现在在执勤哨位上的这个衣帽积雪成冰脸冻得通红鼻涕冻成冰渣的执勤武警。
 
-这位执勤武警对我们意味着什么？如果我们不觉醒，我们每个人都是这个执勤武警，我们用我们自己的牺牲为这个政权制造和传播正能量，如果我们觉醒，那么不管我们是不是这个执勤武警，我们可以共同做的一件事情就是——对这个邪恶的流氓政权说不！
 
-（文章内容仅代表作者个人观点）
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声2台](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

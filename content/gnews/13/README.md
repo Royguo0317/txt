@@ -1,25 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 联邦调查局警告，拜登就职典礼将有“百万民兵游行”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/745643/)
+## 佛罗里达州烟草案律师死于中共病毒
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/747723/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+- 编辑：Victor Torres
 
-编辑上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/img_4920_custom-c0153cde94c969555df402a84850991cc0c10112-scaled.jpg)NPR
-这则消息近两天已是满天飞，谷歌一搜，21英寸屏幕至少5个满页，开始说是遍及全国50个州的议会大厦将受到游行抗议，现在已经聚焦在了华盛顿特区的国会大厦。
 
-无论是左派媒体又玩栽赃伎俩，还是正义的人民容不得邪恶的窃国，都看到了舞弊欺诈的选举带来的危害。一些人是忐忑不安，更多的人是义愤填膺。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-《PT新闻网》（PT news network）说【1】，“一些人呼吁举行‘百万民兵游行’，另一些人则用‘川普民兵’来描述，他们要聚集起来（实施）抗议就职典礼的计划。”
+**西班牙2021年1月13日电/西喜社——**佛罗里达州律师弗雷德·莱文，在20世纪90年代赢得了对烟草行业的主要法律战役，已经在感染中共病毒几天后去世，享年83岁。
 
-文章提到，“有一个帖子说，‘数以百万计的美国民兵将于2021年1月20日在华盛顿特区集会，目的是阻止叛国贼乔·拜登，或者那些犯罪组织的任何成员进入属于我们人民的白宫，那些人被称为有组织的民主党的共产主义分子。”
+Levin Papantonio Rafferty法律事务所的一名律师说，莱文周二死于中共病毒的并发症，这种疾病可由病毒引起。
 
-白宫、国会山是人们的，叛国集团及其代理人想进入是要付出代价的！这就是美国人，民主制度下造就的人们，面对邪恶不低头，不缄默！就像郭文贵先生今天的直播所说，“川普总统不会认输”，“过程或许会曲折些，花些时间，但是最终的胜利属于我们，属于正义！”
+《彭萨科拉新闻报》说，莱文的职业生涯始于1961年，当时他加入了他哥哥创立的律师事务所。
 
-参考链接：
+在20世纪90年代，莱文得以让佛罗里达州议会修改州医疗补助法，允许其收回治疗肺癌的费用。这一改变帮助莱文领导了与烟草业达成130亿美元和解的努力。
 
-【1】https://www.ptnewsnetwork.com/fbi-warns-of-million-militia-march-to-disrupt-a-biden-inauguration/
+**新闻来源：**[https://apnews.com/article/health-football-coronavirus-pandemic-micronesia-new-zealand-229faef563fde6ff5cfde57d4926ebdc](https://apnews.com/article/health-football-coronavirus-pandemic-micronesia-new-zealand-229faef563fde6ff5cfde57d4926ebdc)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/fb2f2285-1bdf-48f4-a6c3-f22c2bdff366.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
 0

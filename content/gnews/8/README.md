@@ -1,65 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】世界领导人公开反对Twitter 封禁特朗普账号
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/745744/)
+## 1/13/2021 财经快讯: 比特币创下自去年3月以来最大的两日跌幅
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/747842/)
 
-作者：纽约香草山写作组   Daxia
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture2-6.png)图片来源：https://www.forbes.com
+**1.比特币创下自去年3月以来最大的两日跌幅**
 
+比特币在周日和周一期间下滑高达26%，创下自去年3月以来最大的两日跌幅。周一纽约交易时间内跌幅高达20%，价格继续疯狂波动。自上周五以来，比特币已经抹去了约1850亿美元的价值，超过标准普尔500指数中90%的单个公司的市值。
 
+[https://www.bloomberg.com/news/articles/2021-01-11/bitcoin-drops-most-over-two-days-since-may-as-volatility-resumes](https://www.bloomberg.com/news/articles/2021-01-11/bitcoin-drops-most-over-two-days-since-may-as-volatility-resumes)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+**2.为安抚中共国，新西兰破坏“五眼”情报联盟**
 
+据1月11日《华盛顿观察家报》报道，新西兰拒绝加入“五眼”联盟谴责中共国对香港的镇压。针对中共上周在香港进行的镇压，美国、澳大利亚、英国和加拿大外长周六发表了一份联合声明。“五眼联盟人中的四个国家“对香港55名政客和活动人士因违反”中共国家安全法“而被大规模逮捕一事表示严重关切，部长们指出，这项法律明显违反了中英联合声明，破坏了‘一国两制’的框架，并建议9月推迟的(香港)立法会选举必须以公平的方式进行。
 
+[https://www.washingtonexaminer.com/opinion/appeasing-china-new-zealand-abandons-the-five-eyes?\_amp=true](https://www.washingtonexaminer.com/opinion/appeasing-china-new-zealand-abandons-the-five-eyes?_amp=true)
 
+**3.澳大利亚竞争监管机构警告谷歌和脸书**
 
+《路透社》1月12日报道，澳大利亚政府经过调查后认为科技巨头在媒体行业拥有太大的市场支配力，并对一个运转良好的民主制度构成了潜在威胁。监管机构设立了新的准则，如果不能与澳大利亚媒体达成费用支付协议，谷歌和脸书将受到强制性价格仲裁，如果不遵守这一决定，它们将面临最高1000万澳元(合770万美元)的罚款。
 
-据《纽约邮报》报道，世界各国领导人纷纷抨击推特封禁特朗普总统账号的做法，许多人称这是彻头彻尾的审查，毕竟这种决定应该由公民而不是私营科技公司做出。
+[https://www.reuters.com/article/us-australia-facebook-google/australian-competition-watchdog-warns-google-facebook-laws-are-just-the-start-idUSKBN29H11I](https://www.reuters.com/article/us-australia-facebook-google/australian-competition-watchdog-warns-google-facebook-laws-are-just-the-start-idUSKBN29H11I)
 
-法国负责欧盟事务的副部长克莱门特·博恩(Clement Beaune)表示，看到社交媒体平台撤销特朗普的账号，他感到“震惊”。
+**4.上交所就华晨公司债务违约行为发出纪律处分**
 
-“这应该由公民来决定，而不是CEO。”他周一告诉彭博电视(Bloomberg TV)。“但，确实，我震惊于它现在完全归私人所有的这个事实。它不应该只掌握在私人手中。”
+周二上交所对华晨集团及其董事长、信息披露事务负责人予以公开谴责。其主要有四个方面违约行为：未披露不能清偿到期的债务，重大法律诉讼等重大事项；未经受托人同意转移资产或抵押；拒绝向托管人提供资金证明的要求；未按规定制定风险化解与处置预案等。去年10月下旬，作为国企的华晨集团出现债券违约，11月20日宣告进入破产重整程序，市场将华晨集团将华晨中国股票质押等行为解读为“恶意逃废债”。
 
-博恩表示，应该有一个“公共监管框架”。在这个框架中，社交媒体平台可以提出一些内容违反了法律，应该被删除或罚款，但这最终应该由公民和立法机构做决定。
+[https://cn.reuters.com/article/shanghai-stock-exchange-brilliance-0112-idCNKBS29H1NO](https://cn.reuters.com/article/shanghai-stock-exchange-brilliance-0112-idCNKBS29H1NO)
 
-法国财政部长勒梅尔(Bruno Le Maire)表示，监管内容的责任应落在国家身上。
+**5.继华北玉米涨价后，东北再涨**
 
-勒梅尔说：“数字巨头的监管不能由数字寡头自己来完成。”他还说，大型科技公司是对民主的“威胁之一”。
+作为华北玉米的重要补充，东北玉米价格在华北冲上历史记录之后，这两天又开启了一波补涨行情。最新数据显示，今日内蒙古通辽梅花涨20元，吉林中粮榆树涨180元，吉林燃料乙醇涨30元，中粮公主岭黄龙涨120元，辽源巨峰涨150元，黑龙江海伦国投涨130元。当前的玉米行情早已突破了供需层面的限制，从有关部门的表态来看，温和的调控手段已经出尽，并且效果不佳。
 
-墨西哥总统奥夫拉多尔(Andres Manuel Lopez Obrador)表示，社交媒体有权审查特朗普，这是一个“不好的迹象”。
+[https://m.toutiaocdn.com/i6916705517414990348/?app=news\_article×tamp=1610487819&use\_new\_style=1&req\_id=202101130543390101470830761F50BC34&group\_id=6916705517414990348](https://m.toutiaocdn.com/i6916705517414990348/?app=news_article×tamp=1610487819&amp;use_new_style=1&amp;req_id=202101130543390101470830761F50BC34&amp;group_id=6916705517414990348)
 
-“我不喜欢任何人被审查，或者被剥夺在推特或脸书上发布信息的权利。我不同意，我不接受。”奥夫拉多尔在上周五的新闻发布会上说。“像宗教裁判所这样的审查法庭来管理公众舆论：这真的很严重。” 德国总理默克尔(Angela Merkel)的发言人说，她认为推特对特朗普的禁令是“有问题的”。
+By 【Financial Team】
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/image-161.png)
-
-发言人斯特芬·塞伯特(Steffen Seibert)周一在柏林对记者说：“这一基本权利可以被干预，但要根据法律且在立法定义的框架内，而不是依据社交媒体平台管理层的决定。”
-
-“默克尔认为美国总统的账户现在被永久封锁是有问题的。”他补充称，总统应该有权利表达他的观点。
-
-澳大利亚代理总理麦科马克(Michael McCormack)表示，阻止特朗普就等于言论审查。
-
-据《悉尼先驱晨报》报道，麦科马克质疑推特为何未能删除一张伪造的澳大利亚士兵斩首一名阿富汗儿童的照片。
-
-“我认为推特的主人，如果你要删除仍是美国总统的人的评论，那么你需要审视这张照片——被篡改的图像显示了一个士兵，被认为是澳大利亚人，怀中抱着一个孩子，要伤害他，”麦考马克说，“它没有被撤下，这照片是错误的。”推特于11月在评论的刺激下，将这张图片标记为“敏感”。
-
-巴西总统雅伊尔·博尔索纳罗(Jair Bolsonaro)的儿子爱德华多(Eduardo)对推特对待委内瑞拉独裁领导人尼古拉斯·马杜罗(Nicolas Maduro)的方式表示了类似的担忧。
-
-博索纳罗在推特上说：“一个有马杜罗在社交媒体上，而特朗普却被封禁的世界是不正常的。”随后他把推特头像改成了特朗普。
-
-民主法治的伟大之处，也许就是体现在人民有权力选择信赖的人为其服务，而不是妥协于共产主义社会媒体的决定吧。
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-+1
+0

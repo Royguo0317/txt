@@ -1,65 +1,87 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 阿拉巴马大学被调查，可能与武汉实验室有关联
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/745092/)
+## 【大选推特/Parler实况】1/12/2021 良好的外交意味着对朋友和敌人都有明确的期望
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/747143/)
 
-新闻来源：Campus Reform《校园改革》； 作者：Wyatt Eichholz； 发布时间：2021年1月8日
+【大选实况】1/12/2021 EST 1:56 pm RSBN 推文： 美国东部标准时间下午3:00现场直播：川普总统在德克萨斯州阿拉莫市的新边界墙第450英里处发表讲话
 
-翻译/简评：新街口；校对：SilverSpurs7；审核：万人往；Page：小雨
 
-**简评：**
 
-首先，我们可以看到美国各界已经开始对病毒的起源进行调查。位于中共病毒原始爆发地的武汉P4实验室，首当其冲的成为重点关注对象。美教育部已经到武汉病毒研究所的网站上进行了仔细的排查，来了解美国哪些大学曾经和其进行过交流。这次对阿拉巴马大学（UA）的调查应该只是被公开的一个，未公开和将要进行的一定还会更多。
+> 🔴Watch LIVE at 3:00pm EST: President Trump Delivers Remarks in Alamo, TX at the 450th Mile of New Border Wall[https://t.co/VtzJHxKvyP](https://t.co/VtzJHxKvyP)
+> — RSBN 🇺🇸 (@RSBNetwork) [January 12, 2021](https://twitter.com/RSBNetwork/status/1349067830101213185?ref_src=twsrc%5Etfw)
 
-其次，本人亲自去武汉病毒研究所的网站上进行了查询，发现其网站中的英文部分和中文部分在内容上有着很大的不同。阿拉巴马大学（UA）的名字列在其网站英文部分、国际合作伙伴的名单里面。与此同时，却找不到任何关于合作的项目和新闻。
 
-在网站的中文内容上，根本没有国际合作伙伴的名单，只有国际合作项目和活动的新闻列表。我只找到了一条间接和UA有关的信息；既2013年7月12日，美国阿拉巴马州哈森阿尔法生物技术研究院韩健博士来病毒所交流访问。哈森阿尔法生物技术是一家私人公司，而韩健是在美国阿拉巴马大学伯明翰分校获得医学遗传学博士学位，这是我能查询到两者之间的唯一连接点。
+来源：[https://twitter.com/rsbnetwork/status/1349067830101213185?s=21](https://twitter.com/rsbnetwork/status/1349067830101213185?s=21)
+盖特链接：[https://gtv.org/getter/5ffe1dd787fabe2daf37a8c0](https://gtv.org/getter/5ffe1dd787fabe2daf37a8c0)
 
-最后，我们看到UA对与武汉病毒所之间的合作关系进行了否认。与此同时，武汉病毒所的网站上又存在着中英文信息的不一致。很显然，在二者的关系中，或有人说谎，没有对合作关系进行公开；或是有人搞假、大、空，进行虚假的对内对外宣传。我们期待进一步的调查报道，从而揭露更加详细的内幕。
+* * *
 
-**原文翻译：**
+【大选实况】1/12/2021 EST 2:27 pm RSBN 推文： 请注意，油管已通知我们，他们很可能会在我们频道今天的川普演讲中禁用实时聊天功能（我们估計其他頻道也會）。 因此，您可以观看，但不能聊天。 请注意，这不是我们的决定，但我们只能遵守。
 
-## 阿拉巴马大学正在被调查，其可能与武汉实验室存在联系
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6nIm4JRbUZMqz/images/b4334810-e3c5-48be-97b2-c24ae136c9de.jpg?asset_id=2c7347cd-68b3-4efe-bc7b-f69766886050&amp;img_etag=%221091256e973e79518b96ad00e3c19c66%22&amp;size=1024)](https://spark.adobe.com/page/6nIm4JRbUZMqz/images/b4334810-e3c5-48be-97b2-c24ae136c9de.jpg?asset_id=2c7347cd-68b3-4efe-bc7b-f69766886050&amp;img_etag=%221091256e973e79518b96ad00e3c19c66%22&amp;size=1024)Wyatt Eichholz, 阿拉巴马校园通讯记者; 2021年1月8日，星期五，11：18
 
-美国教育部已要求阿拉巴马大学提供有关该大学与武汉病毒学研究所之间尚未公开的关系的信息。
+> Just a heads up, YouTube has informed us they’ll likely be disabling the live chat function on today’s Trump speech on our channel (and we would assume others).
+> 
+> So, you can watch, but you can’t chat.
+> 
+> Note this isn’t our decision but we have to abide.[https://t.co/VtzJHxKvyP](https://t.co/VtzJHxKvyP)
+> — RSBN 🇺🇸 (@RSBNetwork) [January 12, 2021](https://twitter.com/RSBNetwork/status/1349075567602241542?ref_src=twsrc%5Etfw)
 
-12月22日致阿拉巴马大学（UA）校长Stuart Bell的一封信中说：“UA未能报告涉嫌与武汉病毒研究所的合作关系。”
 
-信中继续写道：“中共国政府科学院拥有的武汉病毒实验室（WIV），包括了一个最高防护级别的生物实验室（“MCL”），该实验室可能与中共COVID-19病毒的起源和/或传播密切相关。”
+来源：[https://twitter.com/rsbnetwork/status/1349075567602241542?s=21](https://twitter.com/rsbnetwork/status/1349075567602241542?s=21)
+盖特链接：[https://gtv.org/getter/5ffe1e2887fabe2daf37a8f7](https://gtv.org/getter/5ffe1e2887fabe2daf37a8f7)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6nIm4JRbUZMqz/images/b2065bba-9d9a-42a7-9a2c-d3c635939a54.png?asset_id=fb801c6f-0323-4f58-8650-c0dfbc3a230e&amp;img_etag=%22a6c4c346b5b39befc269f7a97f50366b%22&amp;size=2560)](https://spark.adobe.com/page/6nIm4JRbUZMqz/images/b2065bba-9d9a-42a7-9a2c-d3c635939a54.png?asset_id=fb801c6f-0323-4f58-8650-c0dfbc3a230e&amp;img_etag=%22a6c4c346b5b39befc269f7a97f50366b%22&amp;size=1024)
+* * *
 
-由于阿拉巴马大学在武汉病毒研究所的官方网站上被列为国际合作伙伴，因此启动了调查。
+【大选实况】1/12/2021 EST 3:00pm国务卿蓬佩奥推文： 良好的外交意味着对朋友和敌人都有明确的期望。我们只是要求伊朗表现得像一个正常的国家。https://go.usa.gov/xAPMZ
 
-阿拉巴马大学在提供给“校园改革”的一份声明中说：“今年早些时候，我们注意到了武汉病毒研究所网站上引用了UA名字。”“当时，我们审查了所有可能的相关机构记录，以确定引用依据。我们发现UA与WIV之间没有联系或瓜葛，也没有理由被列在WIV的网站上。
 
-声明继续说：“大学官员向WVI提出了质疑，要求删除网站上的UA引用，但从未收到回复。”“我们已经将这些信息转发给了教育部。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6nIm4JRbUZMqz/images/ffa9fe5d-a196-4116-873a-c43cd15d4659.jpg?asset_id=a0faf2dd-87de-4af0-a469-f19070e395ef&amp;img_etag=%226da3c3a8118265ce72b0ee6d4e10eb8d%22&amp;size=1024)](https://spark.adobe.com/page/6nIm4JRbUZMqz/images/ffa9fe5d-a196-4116-873a-c43cd15d4659.jpg?asset_id=a0faf2dd-87de-4af0-a469-f19070e395ef&amp;img_etag=%226da3c3a8118265ce72b0ee6d4e10eb8d%22&amp;size=1024)美国教育部
+> Good diplomacy means setting clear expectations of friends and enemies alike. All we're asking is for Iran to behave like a normal nation. [https://t.co/CAdflN4Fxe](https://t.co/CAdflN4Fxe) [pic.twitter.com/qi4QAW3qtF](https://t.co/qi4QAW3qtF)
+> — Secretary Pompeo (@SecPompeo) [January 12, 2021](https://twitter.com/SecPompeo/status/1349083731076800512?ref_src=twsrc%5Etfw)
 
-教育部的信函要求UA在30天内向该部门提供任何有关武汉实验室的信息。要求引用了1965年《高等教育法》第117条，这是一部有关美国大学与外国资源之间财务关系的法律。
 
-“1965年《高等教育法》第117条（《美国法典》第20条第1011f款）要求包括阿拉巴马大学（UA）在内的高等教育机构（IHE）全面报告法定定义的礼物、合同和/或受限制和有条件的礼物、或与美国教育部（部门）签订的合同或与之签订的合同。”这封信解释道。
+来源：[https://twitter.com/SecPompeo/status/1349083731076800512](https://twitter.com/SecPompeo/status/1349083731076800512)
+盖特链接：[https://gtv.org/getter/5ffe1e8e87fabe2daf37a942](https://gtv.org/getter/5ffe1e8e87fabe2daf37a942)
 
-教育部发言人拒绝提供更多信息，他说：“作为一项政策，在我们的网站上发布信函之前，我们不会对涉及1965年《高等教育法》第117条的事项发表评论。”
+* * *
 
-无法联系到武汉病毒研究所获得评论。
+【大选实况】1/12/2021 EST 2:38 pm ZeroHedge推文： 华盛顿特区总检察长正在研究逮捕川普等人。
 
-作者的推特账号是：@w\_eich1
 
-[原文链接](https://campusreform.org/article?id=16536)
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+> DC Attorney General Looking Into Arresting Trump And Others [https://t.co/QrMzX3fHNG](https://t.co/QrMzX3fHNG)
+> — zerohedge (@zerohedge) [January 12, 2021](https://twitter.com/zerohedge/status/1349078333863112706?ref_src=twsrc%5Etfw)
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+来源：[https://twitter.com/zerohedge/status/1349078333863112706](https://twitter.com/zerohedge/status/1349078333863112706)
+盖特链接：[https://gtv.org/getter/5ffe1ed387fabe2daf37a96a](https://gtv.org/getter/5ffe1ed387fabe2daf37a96a)
 
-编辑：【英国伦敦喜庄园编辑部】-[点击spark adobe版](https://spark.adobe.com/page/6nIm4JRbUZMqz/)
+* * *
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6nIm4JRbUZMqz/images/9f65b6d5-f9a5-40cf-9fd6-3d3eda82fd23.jpg?asset_id=ecb81afe-c3d0-49c0-b6b1-a08cc6d7455a&amp;img_etag=%2234e372e20c5705b800bceb7a814f6e38%22&amp;size=1024)](https://spark.adobe.com/page/6nIm4JRbUZMqz/images/9f65b6d5-f9a5-40cf-9fd6-3d3eda82fd23.jpg?asset_id=ecb81afe-c3d0-49c0-b6b1-a08cc6d7455a&amp;img_etag=%2234e372e20c5705b800bceb7a814f6e38%22&amp;size=1024)
+【大选实况】1/12/2021 EST 2:38 pm 战斗室拉希姆 推文： 他们不是想改变你的想法，他们是想逼你屈服。
 
-+2
+
+
+> They’re not trying to change your mind, they’re trying to make you submit. [https://t.co/mhQ5tv7YSN](https://t.co/mhQ5tv7YSN)
+> — Raheem Kassam (@RaheemKassam) [January 12, 2021](https://twitter.com/RaheemKassam/status/1349078395561398272?ref_src=twsrc%5Etfw)
+
+
+来源： [https://twitter.com/raheemkassam/status/1349078395561398272?s=21](https://twitter.com/raheemkassam/status/1349078395561398272?s=21)
+盖特链接：[https://gtv.org/getter/5ffe4a3f87fabe2daf37cab8](https://gtv.org/getter/5ffe4a3f87fabe2daf37cab8)
+
+* * *
+
+【大选实况】1/12/2021 EST 10:41 am 拉希姆 推文： 请阅读并分享我有关美国民主党暴力煽动的全文
+
+
+
+> Please read and share my whole article on the VIOLENT INCITEMENT of the Democratic Party of America: [https://t.co/Dvc05ynzfR](https://t.co/Dvc05ynzfR)
+> — Raheem Kassam (@RaheemKassam) [January 12, 2021](https://twitter.com/RaheemKassam/status/1349018771206369285?ref_src=twsrc%5Etfw)
+
+
+
+**By： 【秘密翻译组 G-Translators】**
+
+0
