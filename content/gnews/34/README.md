@@ -1,83 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/12/2021 拜登直接从上海招募国家安全团队
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/747491/)
+## 油管冻结了川普的频道
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/748144/)
 
-【大选实况】1/12/2021 美东时间10:21 PM 著名电视节目主持人Trish Regan推文： 迈克·彭斯说：第25条修正案不是 “惩罚或篡夺 “的手段。
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭ССР
 
+编辑 水星 上传
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Y.jpg)youtubecensorship.com
+据美国有线电视新闻网1月13日报道，油管视频服务已将现任美国川普总统的频道暂停工作至少一周。
 
+油管发言人说，总统频道最近发布的视频“煽动了暴力”，被删除了。油管没有具体说明哪个视频导致了该频道的冻结，但指出，在封锁一周后，他们将重新考虑他们的决定。
 
-> Mike Pence: 25th Amendment is Not a Means of ‘Punishment or Usurpation’ [https://t.co/aXZSmEhZKy](https://t.co/aXZSmEhZKy)
-> — Trish Regan (@trish\_regan) [January 13, 2021](https://twitter.com/trish_regan/status/1349194932574105601?ref_src=twsrc%5Etfw)
+油管仍然是唯一没有阻止川普账户的主要平台。总统的脸书和Instagram账户已经冻结了，推特也因“煽动暴力”的风险永久关闭了川普的账户。
 
+现在川普的油管频道在一周内将无法上传新视频或直播。此外，评论将在剩余的视频下被禁用。
 
-来源：[https://twitter.com/trish\_regan/status/1349194932574105601](https://twitter.com/trish_regan/status/1349194932574105601)
-盖特链接：[https://gtv.org/getter/5ffe6e6987fabe2daf37e181](https://gtv.org/getter/5ffe6e6987fabe2daf37e181)
+除了川普自己的账户外，他的支持者账户也受到这些平台封锁浪潮的打击，推特屏蔽了川普总统竞选总部的账号，Discord messenger禁止了这位总统的支持者在上面交流的The Donald服务器。
 
-* * *
+Parler社交平台完全被封锁，苹果和谷歌将其从其应用程序商店中删除，亚马逊将其与云服务器断开连接。谷歌报告说，它发现了大约100个社交网络上“鼓励和煽动暴力”的帖子。Parler公司CEO本人指控亚马逊非法限制竞争，并起诉该公司。
 
-【大选实况】1/12/2021 美东时间 10:00PM Newsmax 推文： 正在加紧对袭击国会大厦的人进行刑事调查。
+国会大厦事件后，社交网络开始封锁川普的账户。推特认为，拒绝承认失败并一再声称选举非法的川普总统的帖子可能会引发暴力，包括在拜登就职当天1月20日。
 
+评论：几大媒体平台把川普总统的账号“和谐”了，主流媒体一边倒支持大选舞弊的拜登当选，各大社交平台公然删号，打压川普总统及支持者发声，这是将中共的防火墙搬到了美国人的家门口，太可怕了。川普总统及其8000万的支持者能允许这些大科技公司公然违反美国宪法第一修正案吗？相信越来越觉醒的美国人一定会奋起反抗。
 
+参考链接：
 
-> Criminal investigations rack up for those that stormed the Capitol [https://t.co/eLhxMAdnxD](https://t.co/eLhxMAdnxD)
-> — Newsmax (@newsmax) [January 13, 2021](https://twitter.com/newsmax/status/1349189454435647489?ref_src=twsrc%5Etfw)
+[https://www.rbc.ru/politics/13/01/2021/5ffe791b9a7947ae91e2c2b7](https://www.rbc.ru/politics/13/01/2021/5ffe791b9a7947ae91e2c2b7)
 
-
-来源：[https://twitter.com/newsmax/status/1349189454435647489](https://twitter.com/newsmax/status/1349189454435647489)
-盖特链接：[https://gtv.org/getter/5ffe711d87fabe2daf37e3c3](https://gtv.org/getter/5ffe711d87fabe2daf37e3c3)
-
-* * *
-
-【大选实况】1/12/2021 美东时间9:59PM 福克斯新闻 推文： 众议院就敦促彭斯援引第25条修正案罢免川普的决议案进行辩论。
-
-
-
-> House debates on resolution urging Pence to invoke 25th Amendment to remove Trump [https://t.co/JqrJyXMQWv](https://t.co/JqrJyXMQWv)
-> — Fox News (@FoxNews) [January 13, 2021](https://twitter.com/FoxNews/status/1349189255659212803?ref_src=twsrc%5Etfw)
-
-
-来源： [https://twitter.com/FoxNews/status/1349189255659212803](https://twitter.com/FoxNews/status/1349189255659212803)
-盖特链接：[https://gtv.org/getter/5ffe74bc87fabe2daf37e67c](https://gtv.org/getter/5ffe74bc87fabe2daf37e67c)
-
-* * *
-
-【大选实况】1/12/2021 美东时间 9:35PM 木兰传奇推文： 白宫解密《美国印太战略框架》秘密文件
-
-
-
-> The White House Declassified United States Strategic Framework for the Indo-Pacific [https://t.co/SNf9fl4Lye](https://t.co/SNf9fl4Lye) via [@Gnews202064](https://twitter.com/Gnews202064?ref_src=twsrc%5Etfw)
-> — 木兰传奇 (@mulan20200604) [January 13, 2021](https://twitter.com/mulan20200604/status/1349183244554567680?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/mulan20200604/status/1349183244554567680](https://twitter.com/mulan20200604/status/1349183244554567680)
-盖特链接：[https://gtv.org/getter/5ffe780d87fabe2daf37e922](https://gtv.org/getter/5ffe780d87fabe2daf37e922)
-
-* * *
-
-【大选实况】1/12/2021 美东时间 8:48PM 国家脉动记者Natalie Winters推文： ”北京拜登“的人事主管曾在中共国情报机构任职，该机构因招募西方间谍被FBI举报.
-
-
-
-> [#BeijingBiden](https://twitter.com/hashtag/BeijingBiden?src=hash&amp;ref_src=twsrc%5Etfw)'s Personnel Chief Served At Chinese Intel Org Flagged By FBI For Recruiting Western Spies[https://t.co/srA15nUu3z](https://t.co/srA15nUu3z)
-> — Natalie Winters (@nataliegwinters) [January 13, 2021](https://twitter.com/nataliegwinters/status/1349171478844100608?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/nataliegwinters/status/1349171478844100608](https://twitter.com/nataliegwinters/status/1349171478844100608)
-盖特链接：[https://gtv.org/getter/5ffe7fee87fabe2daf37ef1b](https://gtv.org/getter/5ffe7fee87fabe2daf37ef1b)
-
-* * *
-
-【大选实况】1/12/2021 EST 7:02 pm Jack Posobiec推文： 拜登直接从上海招募国家安全团队.
-
-
-
-> Biden is recruiting his national security team straight from Shanghai [pic.twitter.com/tEzeFZjwi3](https://t.co/tEzeFZjwi3)
-> — Jack Posobiec 🇺🇸 (@JackPosobiec) [January 13, 2021](https://twitter.com/JackPosobiec/status/1349144877012054020?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/JackPosobiec/status/1349144877012054020](https://twitter.com/JackPosobiec/status/1349144877012054020)
-盖特链接：[https://gtv.org/getter/5ffe6e4e87fabe2daf37e16f](https://gtv.org/getter/5ffe6e4e87fabe2daf37e16f)
-
-+1
+0

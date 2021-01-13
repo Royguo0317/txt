@@ -1,23 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路易斯安那州更新中共病毒规则
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/747901/)
+## 中国多地宣布取消春节庆祝活动
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/748544/)
 
 - 编辑：Victor Torres
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月13日电/西喜社——**路易斯安那州州长约翰·贝尔·爱德华兹（John Bel Edwards）呼吁该州的雇主尽可能让工人留在家中，但州长表示他不会进一步收紧目前对企业的流行病限制。
+**西班牙2021年1月13日电/西喜社——**参考消息网1月13日报道，据埃菲社1月11日报道，由于一些地区暴发小规模疫情，为了避免疫情扩散，中国多地已宣布取消春节庆祝活动。春节是这个亚洲国家最重要的传统节日。
 
-爱德华兹周二表示，他已经更新了自11月底以来一直实行的中共病毒规则。它们原定于周三到期。
+报道称，宣布取消春节庆祝活动的包括四川、云南、辽宁、黑龙江、湖北、甘肃以及山西等省份的部分地区。北京此前已经宣布，2021年元旦、春节期间，原则上不举办各类庙会、大型群众文化活动、大型演出、游园会等节日文化活动。
 
-这些规则包括全州范围内的口罩命令和限制酒吧户外和送货服务的规定。他们还包括对允许在餐馆和沙龙等非必要业务中的客户数量的限制。
+报道注意到，中国大多数省份已建议居民在不离开居住地的情况下度过春节假期，以最大限度地降低在这个人员流动和聚集高峰期发生疫情扩散的风险。
 
-**新闻来源：**[https://apnews.com/article/health-football-coronavirus-pandemic-micronesia-new-zealand-229faef563fde6ff5cfde57d4926ebdc](https://apnews.com/article/health-football-coronavirus-pandemic-micronesia-new-zealand-229faef563fde6ff5cfde57d4926ebdc)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/5f02d333-2572-42c1-97fc-b03342dc0463.jpg)
+**新闻来源：**[http://m.cankaoxiaoxi.com/china/20210113/2432004\_2.shtml](http://m.cankaoxiaoxi.com/china/20210113/2432004_2.shtml)
 
 ![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 

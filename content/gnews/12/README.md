@@ -1,26 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亚利桑那州允许高中冬季运动
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/747856/)
+## 【大选推文实时报】闫丽梦博士：如果中共政权存续下去，就不会有真相&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/748466/)
 
-- 编辑：Victor Torres
+**【大选实时报】**美东时间11:30AM 英雄科学家闫丽梦博士推文：
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+问：给美国人民的警示与解决方案
+– 别再相信中共和世卫组织
+– 如果中共政权存续下去，就不会有真相 
+– #COVID19是中共有意放出的解放军生化武器
+– 美国人现在还可以用选票说话，比在中共国的人更自由 
+– 用你的勇气做出正确的决定!疫情战争室
 
-**西班牙2021年1月13日电/西喜社——**亚利桑那州高中体育官员已经投票允许冬季运动，推翻了四天前因中共病毒大流行而取消赛季的决定。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture3-3.jpg)来源：[https://twitter.com/DrLiMengYAN1/status/1349393353322999808](https://twitter.com/DrLiMengYAN1/status/1349393353322999808)
+盖特链接：**https://gtv.org/getter/5fff27c587fabe2daf384f31**
 
-亚利桑那州校际协会以5比4的投票结果恢复了篮球、足球和摔跤的比赛。本赛季预计将于下周开始。
+**【大选实时报】1/13/2021 美东时间11:13 AM Jack Posobiec推文：**
 
-所有学生、教练和官员将被要求在比赛和活动期间戴上口罩。每所学校还必须在每场比赛当天填写一份中共病毒监测表，并向对方学校提供一份副本。
+如果你希望你的议员代表们真正听到你的声音，请不要致电他们的官方办公室，致电他们的竞选财务部门，并告诉他们将你从名单（捐款名单）中删除。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture-121.jpg)来源：[https://twitter.com/JackPosobiec/status/1349373898576506882](https://twitter.com/JackPosobiec/status/1349373898576506882)
+盖特链接：[https://gtv.org/getter/5fff1cfa87fabe2daf3848a4](https://gtv.org/getter/5fff1cfa87fabe2daf3848a4)
 
-只有两名家长或法定监护人才能参加孩子的主场比赛。《亚利桑那共和党人》报道说，协会执行董事大卫·海因斯说，一般的观众将不被允许，但该政策可能在某些时候被重新考虑。
+**【大选实时报】1/13/2021 美东时间10：38AM 章家敦推文：**
 
-**新闻来源：**[https://apnews.com/article/health-football-coronavirus-pandemic-micronesia-new-zealand-229faef563fde6ff5cfde57d4926ebdc](https://apnews.com/article/health-football-coronavirus-pandemic-micronesia-new-zealand-229faef563fde6ff5cfde57d4926ebdc)
+中共政权在我们街上煽动暴力，把中共病毒传播至我们的海岸，穿越我们国境走私自动武器零件和伪钞。中共领导人对我们发起人民战争。我们必须和中共脱钩来反击。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture1-27.jpg)来源：[https://twitter.com/GordonGChang/status/1349380426142523393](https://twitter.com/GordonGChang/status/1349380426142523393)
+盖特链接：[https://gtv.org/getter/5fff1f7a87fabe2daf384a4c](https://gtv.org/getter/5fff1f7a87fabe2daf384a4c)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/bbc5673b-f260-402f-ac79-c7bccbc9148e.jpg)
+**【大选实时报】1/13/2021 美东时间8:43AM Raheem Kassam推文：**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+这是最后一封来自YouTube的 @anangbhai (Anang Mittal)发给我的邮件，然后第二天战斗室的账号就被删除了。 是的，显然他们本来是在为我们 “准备一个奖励”，然后突然决定删除我们的账户。 我们会公布Anang、Erica和Google的其他人讨论的一切。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture2-2.jpg)来源：[https://twitter.com/RaheemKassam/status/1349354168767700993](https://twitter.com/RaheemKassam/status/1349354168767700993)
+盖特链接：[https://gtv.org/getter/5fff235987fabe2daf384cb3](https://gtv.org/getter/5fff235987fabe2daf384cb3)
+
+
+
+By 【秘密翻译组G-Translators】
 
 0

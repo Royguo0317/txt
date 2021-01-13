@@ -1,26 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 堪萨斯逐步恢复面授学习、酒吧和餐馆正常营业
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/747885/)
+## 【大选推文实时报】参议院现无法审议弹劾指控；国民警卫队驻扎国会大厦
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/748518/)
 
-- 编辑：Victor Torres
+**【大选实时报】1/13/2021 美东时间11:40A MNewsmax推文:**
 
+最新消息：共和党众议员Tom Cole说：”在他任期只剩下一周的情况下，多数人要求我们考虑弹劾川普总统的决议” “参议院要到川普总统任期结束后才能开始审议这些指控。”
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture4-2.jpg)来源：[https://twitter.com/newsmax/status/1349396033340665856](https://twitter.com/newsmax/status/1349396033340665856)
+盖特链接：[https://gtv.org/getter/5fff375c87fabe2daf3856d1](https://gtv.org/getter/5fff375c87fabe2daf3856d1)
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+**【大选实时报】1/13/2021 美东时间 12:09 PM 华尔街日报推文：**
 
-**西班牙2021年1月13日电/西喜社——**堪萨斯威奇托市的学生们正在恢复面授学习，堪萨斯城地区的酒吧和餐馆可以在晚些时候继续营业，同时因为疫情而对容量进行限制。
+国民警卫队成员，其中许多人带着武器，在美国国会大厦内过夜，轮流睡在地板上，这表明在下周总统就职典礼前，安全得到了明显加强。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture5-1.jpg)来源：[https://twitter.com/WSJ/status/1349403107835457536](https://twitter.com/WSJ/status/1349403107835457536)
+盖特链接：[https://gtv.org/getter/5fff3b7787fabe2daf38588b](https://gtv.org/getter/5fff3b7787fabe2daf38588b)
 
-威奇托学区周三将小学生带回教室，去年年底因为缺乏代课教师和中共病毒病例上升而将他们送回家。
-
-该学区计划让初中和高中的学生在本月晚些时候开始部分时间亲自学习，其余时间在家学习的混合模式。大学生从开学起就开始了远程学习。
-
-与此同时，喀纳斯市地区的酒吧和餐馆被允许从周三开始在午夜后继续营业，因为官员们正在寻求帮助企业。
-
-**新闻来源：**[https://apnews.com/article/health-football-coronavirus-pandemic-micronesia-new-zealand-229faef563fde6ff5cfde57d4926ebdc](https://apnews.com/article/health-football-coronavirus-pandemic-micronesia-new-zealand-229faef563fde6ff5cfde57d4926ebdc)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/62080229-5a48-4b3e-aaae-5d839f0e6804.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+By 【秘密翻译组G-Translators】
 
 0

@@ -1,25 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爱达荷州65岁以上老人下月起接种疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/747872/)
+## 国会大厦内的“黑命贵”活动家笑称 &#8220;记录 &#8220;骚乱
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/748520/)
 
 - 编辑：Victor Torres
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月13日电/西喜社——**爱达荷州州长布拉德·利特尔说，65岁及以上的人将能从2月1日起接种中共病毒疫苗。
+**西班牙2021年1月13日电/西喜社——**在一份声明中，如果不是因为事态的严重性，会被认为是滑稽的，一个“黑命贵”(BLM)下属的反川普组织的领导人被拍到在美国国会大厦内参与混乱的视频，并且靠近阿什利·巴比特被美国国会警察枪杀的地方。
 
-州长周二表示，他已经采纳了他的中共病毒疫苗咨询委员会的建议。
+位于犹他州的 “美国叛乱”（Insurgence USA）的创始人约翰·沙利文（John Sullivan）—”黑命贵 “的参与者之一，他争辩说，他于2021年1月6日前往华盛顿特区，”记录 “这些事情，他说：”我希望能够讲述历史的一部分。”
 
-州卫生官员还宣布，他们立即从限制一线医护人员接种疫苗过渡到也为消防员、警察、K-12教师和工作人员、日托工作者和监狱工作人员接种疫苗。官员们说，这一变化是由于预计进入该州的剂量会增加。
+沙利文极力反对川普总统，去年8月，他指着白宫向一群人咆哮的录音，”我们……要把这个烧掉……我们要把特朗普从那个办公室里扯出来，就在那里。”他还说，”我们不打算……等到下次选举。现在是革命的时候了。”
 
-目前第一批接种疫苗的一线医护人员约有13万人。目前已经注射了近4万剂双针疫苗。
+“现在有这样的说法，安提法的人造成了骚乱，造成了紧张局势，他们是唯一闯入国会大厦的人，我希望能够讲述一部分历史，并表明事实并非如此，”沙利文周四告诉记者。
 
-**新闻来源：**[https://apnews.com/article/health-football-coronavirus-pandemic-micronesia-new-zealand-229faef563fde6ff5cfde57d4926ebdc](https://apnews.com/article/health-football-coronavirus-pandemic-micronesia-new-zealand-229faef563fde6ff5cfde57d4926ebdc)
+当被问及是否确定他所说的上周三实施暴力并闯入美国国会大厦的人群中没有安提法组织或黑命贵组织的特务时，沙利文为自己找了一些似是而非的否认理由，他说在没有和每个人单独交谈之前，他无法确定。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/a8a2793e-b907-4319-b911-46acafd4c383.jpg)
+“这只是记录，仅仅是记录，并没有积极参与其中。”沙利文坚持说。
+
+今年夏天早些时候，沙利文因涉犹他州的暴力抗议活动而被捕。当被追问时，他承认通过爬窗非法进入安全的国会大厦。
+
+在他的 “美国叛乱 “组织的网站上，有一个帖子推送了一个名为 “将这些法西斯分子踢出华盛顿 “的活动。不巧的是，他推广的抗议活动定于2021年1月6日在国家广场举行，时间与支持川普的活动差不多。
+
+
+
+> [BLM Activist Inside Capitol Laughingly Says He Was ‘Documenting’ Riots, Once Said ‘Burn It All Down’](https://nationalfile.com/blm-activist-inside-capitol-laughingly-says-he-was-documenting-riots-once-said-burn-it-all-down/)
+
+
 
 ![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 

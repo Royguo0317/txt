@@ -1,95 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/12/2021 拜登人事主管曾在中共国情报机构任职&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/747435/)
+## 川普总统：科技公司阻止美国人民发声是灾难性的错误
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/748121/)
 
-【大选实况】1/12/2021 EST 3:34 pm Breaking911推文： 川普总统：”第25条修正案对我来说是零风险的，但会回来困扰乔・拜登和拜登政府。” “……小心你的愿望。”
+俄罗斯莫斯科喀秋莎农场 红珊瑚
 
+编辑上传 银河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/trump-air-force-one-scaled.jpg)Vanity Fair
+1月12日，美国川普总统在安德鲁斯空军基地登上空军一号之前回答记者，大型科技公司禁止和暂停其社交媒体帐户是灾难性的错误。“我认为，大型科技正在给我们国家造成可怕的后果。我相信这对他们来说将是一个灾难性的错误。”川普在。
 
+这是川普永久暂停其帐户后川普在公众场合的第一句话。
 
-> PRESIDENT TRUMP: “The 25th Amendment is of zero risk to me but will come back to haunt Joe Biden and the Biden administration."
-> 
-> “…Be careful what you wish for.”
-> 
->  [pic.twitter.com/ydQBWYFPcY](https://t.co/ydQBWYFPcY)
-> — Breaking911 (@Breaking911) [January 12, 2021](https://twitter.com/Breaking911/status/1349092521985646605?ref_src=twsrc%5Etfw)
+Facebook，Instagram和其他社交媒体也禁止他的帐户，诬陷其言论存在煽动暴力的隐患。川普说，“他们划分界线制造分裂，他们展示了我很久以来一直在预测的东西。我已经预测了很长时间，人们没有对此采取行动。但是我认为，大型科技公司犯了一个可怕的错误，对我们国家来说非常非常糟糕，这正导致其他人也做同样的事情。这会带来很多问题和很多危险”。
 
+“大错，他们不应该这样做。但是当他们这样做时，总会有一个反击。我从未像现在这样愤怒，这是一件可怕的事情，”即将卸任的美国总统说。
 
-来源：[https://twitter.com/Breaking911/status/1349092521985646605](https://twitter.com/Breaking911/status/1349092521985646605)
-盖特链接：[https://gtv.org/getter/5ffe4fdc87fabe2daf37ce94](https://gtv.org/getter/5ffe4fdc87fabe2daf37ce94)
+川普总统一定会赢得最后的胜利。在此之前，川普总统对美国被中共深度渗透的黑暗势力仍心存幻想，以为对方在利益衡量中不会丧失底线，依然遵守美国宪法，尊重人民权利，不会触犯美国自由、民主的立国之本。此次媒体封杀操纵压制言论自由，干涉美国大选，让川普政府认清现实。美国已经处在最危急的时刻，非常时期必须非常手段来维护正义的美国。
 
-* * *
+期待1月20日川普政府的绝地反击。
 
-【大选实况】1/12/2021 EST 8:34 pm RaheemKassam 推文： 外媒：拜登人事主管曾在中共国情报机构任职 FBI标记为招募西方间谍
+参考链接：[https://indianexpress.com/article/world/tech-companies-suspending-social-media-accounts-going-to-be-catastrophic-mistake-donald-trump-7144671/](https://indianexpress.com/article/world/tech-companies-suspending-social-media-accounts-going-to-be-catastrophic-mistake-donald-trump-7144671/)
 
-
-
-> EXC: Biden Personnel Chief Served At Chinese Intel Org Flagged By FBI For Recruiting Western Spies [https://t.co/2nzCb5vfNO](https://t.co/2nzCb5vfNO)
-> — Raheem Kassam (@RaheemKassam) [January 13, 2021](https://twitter.com/RaheemKassam/status/1349168029935022081?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/RaheemKassam/status/1349168029935022081](https://twitter.com/RaheemKassam/status/1349168029935022081)
-盖特链接：[https://gtv.org/getter/5ffe516987fabe2daf37cf7f](https://gtv.org/getter/5ffe516987fabe2daf37cf7f)
-
-* * *
-
-【大选实况】1/12/2021 EST 8:44 pm Cortes Steve1推文： 来点好消息怎么样？ CNN污染机场的统治今天结束了!
-
-
-
-> How about some great news? 
-> 
-> The reign of CNN polluting airports is over! [pic.twitter.com/hb2AL3kpLK](https://t.co/hb2AL3kpLK)
-> — Steve Cortes (@CortesSteve) [January 13, 2021](https://twitter.com/CortesSteve/status/1349170396046782465?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/CortesSteve/status/1349170396046782465](https://twitter.com/CortesSteve/status/1349170396046782465)
-盖特链接：[https://gtv.org/getter/5ffe52a887fabe2daf37d041](https://gtv.org/getter/5ffe52a887fabe2daf37d041)
-
-* * *
-
-【大选实况】1/12/2021 EST 8:42 pm Gordon G Chang推文： #习近平认为#中共国正处于统治世界的边缘：http://bloom.bg/35BpMDh。这种看法使这是历史上最有影响的–也是最危险的–时代之一。#共产党中国#中共#中共中国!
-
-
-
-> [#XiJinping](https://twitter.com/hashtag/XiJinping?src=hash&amp;ref_src=twsrc%5Etfw) believes [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) is on the verge of dominating the world: [https://t.co/jSvsDFCL5P](https://t.co/jSvsDFCL5P). That perception makes this one of the most consequential–and dangerous– times in history. [#CommunistChina](https://twitter.com/hashtag/CommunistChina?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPChina](https://twitter.com/hashtag/CCPChina?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Gordon G. Chang (@GordonGChang) [January 13, 2021](https://twitter.com/GordonGChang/status/1349169892386287624?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/gordongchang/status/1349169892386287624?s=21](https://twitter.com/gordongchang/status/1349169892386287624?s=21)
-盖特链接：[https://gtv.org/getter/5ffe547b87fabe2daf37d199](https://gtv.org/getter/5ffe547b87fabe2daf37d199)
-
-* * *
-
-【大选实况】1/12/2021 美东时间 5:19PM Bill Gertz推文： 美国海军潜艇部打破隐身模式，让世界和中国知道，在美国换届之际，一艘核导弹潜艇已接近关岛。
-
-
-
-> Navy silent service breaks stealth mode to let world and China know that a nuclear missile submarine is near Guam as the US transitions administrations [https://t.co/HgFIMISV1j](https://t.co/HgFIMISV1j)
-> — Bill Gertz (@BillGertz) [January 13, 2021](https://twitter.com/BillGertz/status/1349149072519798788?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/BillGertz/status/1349149072519798788](https://twitter.com/BillGertz/status/1349149072519798788)
-盖特链接：[https://gtv.org/getter/5ffe603187fabe2daf37d81a](https://gtv.org/getter/5ffe603187fabe2daf37d81a)
-
-* * *
-
-【大选实况】1/12/2021 美东时间9:31PM 共和党众议院司法委员会推文： 援引第25条修正案来罢免川普总统并不是一件严肃的事情。 只不过是民主党人增多的政治博弈罢了。 他们也知道这一点。不要被骗了。
-
-
-
-> Invoking the 25th Amendment to remove President Trump from office isn’t a serious endeavor. 
-> 
-> Just more political games from the Democrats. 
-> 
-> And they know it. Don’t be fooled.
-> — House Judiciary GOP (@JudiciaryGOP) [January 13, 2021](https://twitter.com/JudiciaryGOP/status/1349182188298907651?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/JudiciaryGOP/status/1349182188298907651](https://twitter.com/JudiciaryGOP/status/1349182188298907651)
-盖特链接：[https://gtv.org/getter/5ffe66b787fabe2daf37dcc6](https://gtv.org/getter/5ffe66b787fabe2daf37dcc6)
-
-**By： 【秘密翻译组 G-Translators】**
-
-0
++2

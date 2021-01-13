@@ -1,104 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特/Parler实况】1/12/2021 在新战略下, 美国增加了对中国的间谍和反情报行动
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/747517/)
+## 国语【香港快讯】 1.13 林郑支持率仅19% 港府民心尽失 民主派初选人士电子设备被送中
+` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/748159/)
 
-【大选实况】1/12/2021 EST 10:49 pm 比尔格茨 推文： 解密的美国国家安全委员会文件显示，在新战略下，美国增加了对中国的间谍和反情报行动
+制作团队：【喜马拉雅粤语组】阿恩
 
+审核：【喜马拉雅粤语组】卡西欧 penny
 
-
-> US increased spying and counterintelligence operations against China under new strategy, declassified NSC document reveals [https://t.co/wTrHxW0qzP](https://t.co/wTrHxW0qzP)
-> — Bill Gertz (@BillGertz) [January 13, 2021](https://twitter.com/BillGertz/status/1349201818799239170?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/billgertz/status/1349201818799239170?s=21](https://twitter.com/billgertz/status/1349201818799239170?s=21)
-盖特链接：[https://gtv.org/getter/5ffe7b5f87fabe2daf37eba5](https://gtv.org/getter/5ffe7b5f87fabe2daf37eba5)
-
-* * *
-
-【大选实况】1/12/2021 EST 10:14 pm Matt Gaetz 推文： 这是非常不受欢迎的弹劾 美国人民希望我们在这里处理冠状病毒，而不是仇恨川普的病毒……民主党人似乎没有找到对付这种病毒的疫苗。
+上传：文粤
 
 
 
-> This is a DEEPLY unpopular impeachment.
-> 
-> The American people wish we were here dealing with coronavirus, not the virus of Trump hatred…a virus Democrats seem to have found no vaccine for. [pic.twitter.com/ROqKxJd3Gv](https://t.co/ROqKxJd3Gv)
-> — Rep. Matt Gaetz (@RepMattGaetz) [January 13, 2021](https://twitter.com/RepMattGaetz/status/1349193054842982403?ref_src=twsrc%5Etfw)
+主要内容：
 
+香港民研于1月4日至8日，以随机抽样电话访问了1,000名香港居民。调查结果显示，林郑月娥的最新评分为29分， 44%的人给林郑0分。民望净值为负54个百分点，为10月以来新低。所有局长支持率净值均维持负数。
 
-来源：[https://twitter.com/repmattgaetz/status/1349193054842982403?s=21](https://twitter.com/repmattgaetz/status/1349193054842982403?s=21)
-盖特链接：[https://gtv.org/getter/5ffe7efd87fabe2daf37ee8f](https://gtv.org/getter/5ffe7efd87fabe2daf37ee8f)
+1月6日港警国安处拘捕了53名民主派初选人士，据《华盛顿邮报》12日报道，警方在行动中扣查了各被捕人超过 200 部电子设备。消息人士指，由于中国大陆拥有较先进的破解技术，香港警方已开始将有关电子设备运送至大陆。一名香港警员称，警方网络安全及科技罪案调查科，暂时无法在本地破解较新型号的 iPhone，但已有方法破解 Android 系统及 Google 云端。正被还柙的人民力量副主席谭得志，其手机通讯程式「Telegram」早前被突然重新启用。人民力量前立法会议员陈志全被警方没收电子设备后，他一直收到Telegram 发出要求更换绑定手机帐户的确认码；民主党林卓廷及黄碧云亦表示，其助理收到来自Google 的通知，指有国家资助的骇客（state-sponsored hackers）正试图破坏他们的帐户。警方的做法令港人忧虑，香港将面临更大范围的电子监控和更加严厉的审查。
 
-* * *
+前香港立法会社福界议员邵家臻去年4月成立「石墙花」，关注并支援因民主抗争被囚禁的人士。其组织进行探监、为囚犯送物资，以及支援被审讯者家属等多项工作。近期，「石墙花」向在囚人士送上年历年历，却被惩教署以「威胁监狱秩序」被惩教退回。邵家臻回应，年历被退回有可能是因为「好人一生平安」等字句。
 
-【大选实况】1/12/2021 EST 8:19 pm Matt Gaetz 推文： 海军无声服役打破了隐形模式，让世界和中国知道，在美国政府的过渡时，一个核导弹潜艇出现在关岛附近
+香港医护界再掀起移民潮。行政会议成员叶刘淑仪向中共中央献计，令BNO入籍港人丧失中国籍，过去一段时间香港局势的发展，令不少医生为了下一代而移民。受叶刘淑仪建议影响的，不止普通香港人或官员萌生去意。据美国政府的资料显示，中共部级以上官员（含已退位）的第二代，有七成五拥有美国绿卡或公民身份，他们同时依然拥有大陆户籍。
 
+建制派有意收紧《议事规则》，立法会议事规则委员会主席谢伟俊表示，会上有讨论引入「红黄牌」机制，议员若被逐离场便不获发禁止出席议会期间的薪酬，预料先在立法会大会、内务委员会会及财委会推行。会上有议员提出，将发出红牌及黄牌的权力开放至所有委员会主席，若有议员在1 年内被发出3 张红牌，则可提交动议至立法会大会，经议员讨论及投票后，勒令停止该议员职务及停发薪津。
 
+协助流亡海外港人的加拿大港人组织「新香港文化协会」表示，加拿大难民公署已向 14 名港人批出难民资格，正申请永久居留权。据加拿大移民和难民保护处数据，2019 年有 12 名港人正申请难民资格，而 2020 年 1 月至 6 月 30 日，正在加拿大申请难民资格的，则有 37 人。加拿大政府将会于未来一两个月，布协助香港学生的「年轻人才计划」详情。
 
-> Navy silent service breaks stealth mode to let world and China know that a nuclear missile submarine is near Guam as the US transitions administrations [https://t.co/HgFIMISV1j](https://t.co/HgFIMISV1j)
-> — Bill Gertz (@BillGertz) [January 13, 2021](https://twitter.com/BillGertz/status/1349149072519798788?ref_src=twsrc%5Etfw)
+巴西公布中国科兴武汉肺炎疫苗后期临床测试数据，显示其「整体有效率」仅为50.38%。负责统筹新型冠状病毒疫苗接种工作的务员事务局长聂德权，问及有关疫苗数据欠佳，会否暂停在港接种科兴疫苗，聂指，经过顾问专家委员会审视及审核作出建议，具体建议有待公布。而中大医学院公布去年7至8月的调查结果，仅37.3%香港成年人愿意接种新型冠状病毒疫苗，而接受程度最低为25至34岁者，比例不足两成半。
 
+武汉肺炎持续，食物及卫生局局长陈肇表示，政府仍在研究规管跨家庭私人聚会，指有关情况复杂，执法上有困难。她又指，当局正在研究专家建议商场等处所提早关门。对于科兴疫苖在巴西的有效率仅五成，陈肇始指， 政府已不断催促药厂提交资料。
 
-来源：[https://twitter.com/billgertz/status/1349149072519798788?s=21](https://twitter.com/billgertz/status/1349149072519798788?s=21)
-盖特链接：[https://gtv.org/getter/5ffe809887fabe2daf37ef83](https://gtv.org/getter/5ffe809887fabe2daf37ef83)
-
-* * *
-
-【大选实时报】1/13/2021 美东时间12:06AM Breaking911推文： 最新消息： 众议院投票决定援引第25条修正案， 但副总统彭斯已经表示他将不会同意。 共和党众议员Adam Kinzinger投了赞成票。
-
-
-
-> JUST IN: House votes to invoke 25th amendment, but Vice President Pence has already said he will not go along.
-> 
-> Republican voting YEA: [@RepKinzinger](https://twitter.com/RepKinzinger?ref_src=twsrc%5Etfw) [pic.twitter.com/0hCXtcMgHc](https://t.co/0hCXtcMgHc)
-> — Breaking911 (@Breaking911) [January 13, 2021](https://twitter.com/Breaking911/status/1349221320236670976?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/Breaking911/status/1349221320236670976](https://twitter.com/Breaking911/status/1349221320236670976)
-盖特链接：[https://gtv.org/getter/5ffe873387fabe2daf37f3c9](https://gtv.org/getter/5ffe873387fabe2daf37f3c9)
-
-* * *
-
-【大选实况报】1/13/2021 美东时间 12:06AM 战斗室主持人Raheem Kassam推文： 我希望每个人都能思考一下这个事实：这个家伙就是他们所说的那个为了唐纳德·川普而在国会山领导了一场政变企图的人。 请想一想。
-
-
-
-> I want everyone to think about the fact that this is the guy they say led a coup attempt — for Donald Trump — on Capitol Hill. 
-> 
-> Think. [pic.twitter.com/LQZ0xDV2nd](https://t.co/LQZ0xDV2nd)
-> — Raheem Kassam (@RaheemKassam) [January 13, 2021](https://twitter.com/RaheemKassam/status/1349221171020107776?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/RaheemKassam/status/1349221171020107776](https://twitter.com/RaheemKassam/status/1349221171020107776)
-盖特链接：[https://gtv.org/getter/5ffe8aa187fabe2daf37f59c](https://gtv.org/getter/5ffe8aa187fabe2daf37f59c)
-
-* * *
-
-【大选实况】1/12/2021 美东时间 9:21PM 福克斯主持人Laura Ingraham推文： 这是一位忠实的共和党捐款人的话：”劳拉，如果麦康奈尔（McConnell）配合弹劾，并且他们真地完成了这个程序，那么共和党就不复存在了! 这太荒谬了。”
-
-
-
-> This from a loyal Republican donor: “Laura, if McConnell goes along with Impeachment and they actually go through with the process the Republican Party will cease to exist! This is ludicrous.”
-> — Laura Ingraham (@IngrahamAngle) [January 13, 2021](https://twitter.com/IngrahamAngle/status/1349179615865163776?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/IngrahamAngle/status/1349179615865163776](https://twitter.com/IngrahamAngle/status/1349179615865163776)
-盖特链接：[https://gtv.org/getter/5ffe907c87fabe2daf37f98a](https://gtv.org/getter/5ffe907c87fabe2daf37f98a)
-
-* * *
-
-【大选实时报】1/12/2021 美东时间 9:37PM Newsmax 主持人Greg Kelly推文： 这更加证明弹劾是一个笑话：负责弹劾的 “经理人 “之一将是芳芳的前男友SWAWELL。（请收看明天Newsmax节目）
-
-
-
-> Further evidence that IMPEACHMENT is a JOKE: one of the “managers” of impeachment will be FANG FANG’s ex-boyfriend SWAWELL. (Tomorrow on [@newsmax](https://twitter.com/newsmax?ref_src=twsrc%5Etfw)) [pic.twitter.com/cFU9rdjwXb](https://t.co/cFU9rdjwXb)
-> — Greg Kelly (@gregkellyusa) [January 13, 2021](https://twitter.com/gregkellyusa/status/1349183860169437187?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/gregkellyusa/status/1349183860169437187](https://twitter.com/gregkellyusa/status/1349183860169437187)
-盖特链接：[https://gtv.org/getter/5ffe938787fabe2daf37fb06](https://gtv.org/getter/5ffe938787fabe2daf37fb06)
-
-**By： 【秘密翻译组 G-Translators】**
+资料来源：大纪元 苹果日报 香港01 立场新闻 网路图片
 
 0

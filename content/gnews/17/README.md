@@ -1,26 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 石家庄全部约1000万人被勒令接受第二轮中共病毒检测
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/747803/)
+## 【热点播报】川普将放大招:解密疫情与中共军方关系的秘密情报
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/748414/)
 
-- 编辑：Victor Torres
+作者：香草山写作组 billwilliam 校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-9.jpg)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月13日电/西喜社——**数百万中国人正在零下的气温下排队接受第二轮中共病毒检测，北京南部的一个城市是中国最新爆发的最严重疫情的中心。
+2021年1月13日《每日电讯报》等媒体报导，川普打算在卸任前公开有关疫情的秘密情报，以证实中共病毒是从武汉实验室外泄。国务卿蓬佩奥可能最早在今天（周三）就公布这些情报，内容包括中共军方在实验室中通过动物实验，来“培育危险的冠状病毒”。
 
-官方周三公布了河北省90例新确诊病例，河北省省会石家庄占了近期病例的绝大部分。河北的疫情特别值得关注，因为该省紧邻北京。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GettyImages-1215439286-600x400-1.jpg)武汉P4实验室鸟瞰图 图片来源：Photo by Hector RETAMAL / AFP)
 
-石家庄、邢台和廊坊这三个城市之间的旅行已经暂停，一些社区的居民被告知在未来一周内不要出门。
+一年多以来冠状病毒肆虐全球，已导致近200万人死亡，9千多万人感染，而且疫情还在令人绝望地继续恶化。
 
-石家庄所有约1000万人口已被勒令接受第二轮检测，因为当局正在寻求隔离传染源。
+全世界都在追问，病毒从哪里來？相信川普即将解密的情报，将揭开“中共军方为何会参与这种项目”？以及“这跟潜在的生物武器有何关系？”等诸如此类的悬疑。
 
-**新闻来源：**[https://apnews.com/article/health-football-coronavirus-pandemic-micronesia-new-zealand-229faef563fde6ff5cfde57d4926ebdc](https://apnews.com/article/health-football-coronavirus-pandemic-micronesia-new-zealand-229faef563fde6ff5cfde57d4926ebdc)
+早在去年1月19日，闫丽梦博士就冒着生命危险，通过路德社揭露了中共军方制造冠状病毒并故意放毒的真相。去年4月份闫博士摆脱中共的控制逃到美国，在爆料革命的支持下撰写了两份无懈可击、证据充分及科学论证严谨的冠状病毒研究报告，证明该病毒经中共军方实验室进行毒性、传染性增强改造，并故意在武汉释放，释放后又故意让病毒传播全世界。因此，闫博士的报告结论是冠状病毒系中共故意释放的生物病毒武器。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/cd1215e4-c52f-4ef7-85a0-b27188debda8.jpg)
+如果川普解密的情报和闫博士的报告结论一致，就确立了美国和中共国之间的完全敌对关系，等同于正式宣战。川普在第一届总统任期仅剩下一个礼拜的情况下，将对中共国釆取什么行动确实令人期待。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+川普解密有关病毒真相的秘密情报，将在全球范围掀起汹涌的灭共潮，这是拯救人类的勇敢行为，可以确信，抗击中共病毒的战斗将因此转向胜利，并且留给和中共狼狈为奸的美奸的时间不多了。
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

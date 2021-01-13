@@ -1,22 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 犹他州一家药店的老板兼首席执行官被指控误标了大量从中国进口的抗疟疾药物—治疗中共病毒的 &#8220;奇迹&#8221;—氯喹和羟氯喹
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/747910/)
+## 乔丹在众议院宣读川普的声明
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/748564/)
 
 - 编辑：Victor Torres
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月13日电/西喜社——**Meds In Motion的经营者丹·理查兹(Dan Richards)周一被指控犯有轻罪，因为他从中国一家未注册的制造商那里收到了大量的氯喹和羟氯喹，这些药物被错误地标注为乳香提取物，这是一种草药补充剂。
+**西班牙2021年1月13日电/西喜社——**唐纳德·川普总统在众议院宣读的一份声明中说，他反对暴力，因为议员们正在辩论弹劾他在上周煽动国会大厦暴力暴乱中的作用。
 
-理查兹的律师格雷格·斯科达斯（Greg Skordas）没有立即回复寻求评论的电子邮件。
+周三，俄亥俄州的共和党众议员吉姆·乔丹宣读了川普的信息。
 
-美国食品和药物管理局去年撤销了使用该药物治疗中共病毒的许可。
+川普在一份声明中说。”鉴于更多示威活动的报道，我敦促大家不要有暴力，不要有违法行为，不要有任何形式的破坏行为。” 川普还说: “这不是我的立场，也不是美国的立场。我呼吁所有美国人帮助缓解紧张局势，平息怒气。”
 
-**新闻来源：**[https://apnews.com/article/health-football-coronavirus-pandemic-micronesia-new-zealand-229faef563fde6ff5cfde57d4926ebdc](https://apnews.com/article/health-football-coronavirus-pandemic-micronesia-new-zealand-229faef563fde6ff5cfde57d4926ebdc)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/e04b9fe3-64be-4c00-94e5-4cbcaf2cf563.jpg)
+**新闻来源：**[https://apnews.com/article/donald-trump-politics-adam-kinzinger-liz-cheney-impeachments-2a2431b25720b8815727d4e2fe4e9062](https://apnews.com/article/donald-trump-politics-adam-kinzinger-liz-cheney-impeachments-2a2431b25720b8815727d4e2fe4e9062)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/微信图片_20210113204738.png)
+
 ![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
 0
