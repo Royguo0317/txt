@@ -1,26 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亚利桑那州允许高中冬季运动
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/747856/)
+## 犹他州一家药店的老板兼首席执行官被指控误标了大量从中国进口的抗疟疾药物—治疗中共病毒的 &#8220;奇迹&#8221;—氯喹和羟氯喹
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/747910/)
 
 - 编辑：Victor Torres
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月13日电/西喜社——**亚利桑那州高中体育官员已经投票允许冬季运动，推翻了四天前因中共病毒大流行而取消赛季的决定。
+**西班牙2021年1月13日电/西喜社——**Meds In Motion的经营者丹·理查兹(Dan Richards)周一被指控犯有轻罪，因为他从中国一家未注册的制造商那里收到了大量的氯喹和羟氯喹，这些药物被错误地标注为乳香提取物，这是一种草药补充剂。
 
-亚利桑那州校际协会以5比4的投票结果恢复了篮球、足球和摔跤的比赛。本赛季预计将于下周开始。
+理查兹的律师格雷格·斯科达斯（Greg Skordas）没有立即回复寻求评论的电子邮件。
 
-所有学生、教练和官员将被要求在比赛和活动期间戴上口罩。每所学校还必须在每场比赛当天填写一份中共病毒监测表，并向对方学校提供一份副本。
-
-只有两名家长或法定监护人才能参加孩子的主场比赛。《亚利桑那共和党人》报道说，协会执行董事大卫·海因斯说，一般的观众将不被允许，但该政策可能在某些时候被重新考虑。
+美国食品和药物管理局去年撤销了使用该药物治疗中共病毒的许可。
 
 **新闻来源：**[https://apnews.com/article/health-football-coronavirus-pandemic-micronesia-new-zealand-229faef563fde6ff5cfde57d4926ebdc](https://apnews.com/article/health-football-coronavirus-pandemic-micronesia-new-zealand-229faef563fde6ff5cfde57d4926ebdc)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/bbc5673b-f260-402f-ac79-c7bccbc9148e.jpg)
-
+![]()![](https://gnews.org/wp-content/uploads/2021/01/e04b9fe3-64be-4c00-94e5-4cbcaf2cf563.jpg)
 ![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
 0

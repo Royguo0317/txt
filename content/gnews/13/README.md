@@ -1,26 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 佛罗里达州烟草案律师死于中共病毒
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/747723/)
+## 【香草山档案室】中国人需要有信仰
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/747838/)
 
-- 编辑：Victor Torres
+香草山综合报道
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/02104531/logo.jpg)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月13日电/西喜社——**佛罗里达州律师弗雷德·莱文，在20世纪90年代赢得了对烟草行业的主要法律战役，已经在感染中共病毒几天后去世，享年83岁。
 
-Levin Papantonio Rafferty法律事务所的一名律师说，莱文周二死于中共病毒的并发症，这种疾病可由病毒引起。
 
-《彭萨科拉新闻报》说，莱文的职业生涯始于1961年，当时他加入了他哥哥创立的律师事务所。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-在20世纪90年代，莱文得以让佛罗里达州议会修改州医疗补助法，允许其收回治疗肺癌的费用。这一改变帮助莱文领导了与烟草业达成130亿美元和解的努力。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-**新闻来源：**[https://apnews.com/article/health-football-coronavirus-pandemic-micronesia-new-zealand-229faef563fde6ff5cfde57d4926ebdc](https://apnews.com/article/health-football-coronavirus-pandemic-micronesia-new-zealand-229faef563fde6ff5cfde57d4926ebdc)
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声2台](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/fb2f2285-1bdf-48f4-a6c3-f22c2bdff366.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
