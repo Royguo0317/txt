@@ -1,27 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统公告1/13/21：示威活动务必没有暴力、违法及任何形式的破环行为
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/748584/)
+## 01/14/2021 财经快讯 川普签署投资中共禁令，澳大利亚拒绝中共收购
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/751276/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/5bq0-vhy.jpeg)来源：美国白宫
-白宫新闻办公室
+![]()![](https://gnews.org/wp-content/uploads/2021/01/2-37.jpg)图片来源：[https://finance.sina.com.cn/](https://finance.sina.com.cn/)
+**1****，中共国的生育问题到底严重到了什么地步？**
 
-立即公告
-
-2021年1月13日
-
-总统公告
-
-鉴于获知有更多的示威活动，我强烈要求务必没有暴力、违法行为和任何形式的破环行为。这些行为都不是我支持的，也不是美国支持的。我呼吁所有美国人缓和紧张局势、稳定情绪。谢谢！
+上海市公安局提供的来自移动应用程序的一组数据显示了每十年的同一天在上海新生婴儿的数量。
 
 
-![Image](https://pbs.twimg.com/media/EronYOnUYAEkR3l?format=jpg&amp;name=large)
-[Statement from the President 1/13/2021](https://www.whitehouse.gov/briefings-statements/statement-from-the-president-011321/)
+| **日期** | **Birth Population** | **No. of Boys** |
+| --- | --- | --- |
+| Jan 1 | 2020 | 156 78 |
+| Jan 1 | 2010 | 380 211 |
+| Jan 1 | 2000 | 1148 646 |
+| Jan 1 | 1990 | 2784 1516 |
 
-翻译报道：DG【㊙️翻Gnews原创组】
-责编：心声
 
+它直观地表达了两个问题。一个是过去三十年里，生育率已经跌落了悬崖；另一个是，生育政策越严格，男女比例越不均衡。 但是，与上述理性分析相比，其背后的焦虑更为明显。
 
+尽管生育率急剧下降，再加上社会上老百姓买不起“分娩养育婴儿”的各种声音。 根据一些人口专家的预测以及从日本老龄化中学到的经验教训，共产主义中国人“未变富先变老”的压力已无限扩大。
+
+[https://finance.sina.com.cn/china/gncj/2020-09-14/doc-iivhvpwy6705337.shtml](https://finance.sina.com.cn/china/gncj/2020-09-14/doc-iivhvpwy6705337.shtml)
+
+**2****，中国外管局发放今年首批QDII****额度90.2****亿美元 ****金融双向开放再加快**
+
+路透北京1月13日 – 中国国家外汇管理局周三发布的审批情况表显示，截至1月13日，合格境内机构投资者（QDII）额度达到1,257.19亿美元，较上轮（2020年11月30日）新增后的1,166.99亿美元再增加90.2亿美元，新增额度较上次倍增。据审批情况表显示，本轮QDII额度发放涵盖基金、银行、保险公司及银行理财子公司等主要类型金融机构。外管局此前召开2021年工作会议称，将深化外汇领域改革开放。以金融市场双向开放为重点，稳妥有序推进资本项目开放。自去年下半年人民币持续升值，中国去年9月末重启暂停已久的QDII额度发放，以加强金融双向开放，目前审批已趋于常态化。
+
+**评论：**
+
+个人理解是CCP已经让人民币升值到一定程序，现在开始鼓励国内企业去海外收购和投资优良资产，开始剪全世界羊毛。
+
+[https://cn.reuters.com/article/china-safe-qdii-0113-idCNKBS29I180](https://cn.reuters.com/article/china-safe-qdii-0113-idCNKBS29I180)
+
+**3****，特朗普签署修改后的中国投资禁令，要求在2021****年11****月前完全撤资**
+
+1月13白宫发表讲话，根据《国际紧急经济权力法》（50 USC 1701等）（IEEPA），《国家紧急事件法》（50 USC 1601等）以及美国法典第3编第301条，川普总统发布了一项行政命令，该命令采取了进一步措施，以应对中华人民共和国对美国资本的越来越多的利用带来的威胁。这些资本提供的资源使中国的军事，情报和其他安全机构得以发展和现代化。这都继续允许中国直接威胁美国本土和海外的美军，包括开发和部署大规模杀伤性武器，先进的常规武器以及针对美国及其人民的恶意网络行动。
+
+为了应对这种威胁，川普总统于2020年11月12日签署了第13959号行政命令。并于13日进行了修正。第13959号行政命令月修正表示，禁止出售和购买某些涉及中国共产党军事公司的公开交易证券或任何衍生自此类证券或旨在为其提供投资敞口的证券。
+
+[https://www.whitehouse.gov/briefings-statements/text-letter-speaker-house-representatives-president-senate-011321/](https://www.whitehouse.gov/briefings-statements/text-letter-speaker-house-representatives-president-senate-011321/)
+
+**4****，澳大利亚取消了中国巨头收购屡获殊荣的承包商的计划**
+
+**      **澳大利亚广播公司（ABC）于2021年1月11日星期一报道，按收入排名
+
+中国建筑工程总公司（CSCEC）撤回了其以3亿澳元（2.32亿美元）  WBHO收购Probuild的要约（Probuild的南非母公司Wilson Bayly Holmes-Ovcon） 。双方均被告知，出于国家安全的考虑，该申请向澳大利亚外国投资审查委员会（FIRB）的申请将被拒绝。
+
+反对收购的决定反映了中澳之间在贸易, 外交和国防领域的紧张关系急剧加剧，因为澳大利亚的联合政府与美国总统川普的政府一道，反对中国在技术上的日益增长的主导地位及其在南中国海领土要求的主张。
+
+1月1日，澳大利亚对外国投资实行了严格的新限制。
+
+2020年8月，中国通讯建筑公司和中国建筑集团（中国中建在上海上市的子公司）均被添加到美国国防部的 “CCP军事公司” 名单中，特朗普政府认为这是对中国军事工业综合体的支持并威胁着美国。
+
+澳大利亚是2018年8月第一个禁止华为提供其5G无线技术的国家，此导致中国对澳大利亚进口的牛肉，铁，煤炭，葡萄酒，谷物和其他商品采取了一系列报复性限制措施。中国是澳大利亚最大的贸易伙伴。[https://www.globalconstructionreview.com/news/australia-quashes-chinese-giants-plan-buy-award-wi/](https://www.globalconstructionreview.com/news/australia-quashes-chinese-giants-plan-buy-award-wi/)
+
+**5****，美国要求特斯拉召回15.8****万辆汽车，原因是触摸屏故障**
+
+华盛顿（路透社）-美国国家公路交通安全管理局（NHTSA）周三要求特斯拉公司因媒体控制单元（MCU）故障召回158,000辆Model S和Model X车辆，这些故障可能导致触摸屏显示器无法正常工作，从而构成安全隐患
+
+特斯拉没有立即回应置评请求，但必须在1月27日之前回应美国国家公路交通安全管理局（NHTSA）。如果不同意，它必须向该机构“提供其决定的完整解释”。
+
+该机构正式要求召回是不寻常的。汽车制造商通常会自愿接受召回，如果监管机构在讨论中要求召回。
+
+[https://www.reuters.com/article/us-tesla-safety/u-s-asks-tesla-to-recall-158000-vehicles-for-touchscreen-failures-idUSKBN29I35K](https://www.reuters.com/article/us-tesla-safety/u-s-asks-tesla-to-recall-158000-vehicles-for-touchscreen-failures-idUSKBN29I35K)
+
+**6****， ****特朗普政府禁止从中国新疆地区进口棉花和西红柿**
+
+特朗普政府周三发布了全面禁止从中国新疆地区进口棉花或番茄产品的禁令，称已审查了该地区强迫劳动的证据。此举是美国政府对西方国家官员和人权组织所说的中国镇压新疆维吾尔族穆斯林维权运动的最新举措，该运动包括将该人群大规模拘留在营地中。该禁令涵盖从棉花服装到罐装番茄的所有内容，将影响到众多美国进口商。根据《华盛顿邮报》的官方数据和计算，新疆占全球棉花产量的近五分之一。该机构说，它进行了一项调查，揭示了工作条件，包括“债务束缚，限制行动，孤立，恐吓和威胁，扣留工资以及虐待生活和工作条件。”
+
+在过去的三年中，一场激烈的中国反极端主义运动已将约100万维吾尔人和其他穆斯林少数民族席卷到政府所谓的“教育中心”。卫星图像显示，这些高安全性建筑的布局与监狱相似，前被拘留者声称他们遭受了酷刑。
+
+据官方报道，许多被拘留者在获释后被安置在新疆的纺织工厂工作。当地官员说，这是为改过自新的罪犯提供的志愿服务，但一些工人声称，如果他们拒绝，他们将受到拘留威胁。
+
+在美国采取行动之前，有190多个组织联合推动，敦促主要时装品牌停止使用新疆棉花，而国际审计公司也停止与该地区的工厂合作。
+
+[https://www.washingtonpost.com/us-policy/2021/01/13/us-ban-xinjiang-cotton-tomatoes/](https://www.washingtonpost.com/us-policy/2021/01/13/us-ban-xinjiang-cotton-tomatoes/)
+
+By【金融团队-Spark2346】
 
 0

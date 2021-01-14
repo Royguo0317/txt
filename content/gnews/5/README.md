@@ -1,49 +1,89 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥：“历史将证明川普所做的工作值得称赞”
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/749855/)
+## 【大选推特实况】1/13/2021 密歇根州法官命令民主党州务卿公布与多米尼,脸书,苹果,亚马逊和谷歌的所有通信&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/751233/)
 
-翻译： 康州盘古农场 – Freeearth
+【大选实时报】1/13/2021 美东时间9:07PM Chuck Callesto  推文： 最新报道：密歇根州法官命令民主党州务卿公布与多米尼、Facebook、苹果、亚马逊和谷歌的所有往来通信。
 
-校对： 康州盘古农场 –柠檬GTV
 
-审核：康州盘古-Truemanman
 
-更新日期:2021年1月13日
-![]()![](https://gnews.org/wp-content/uploads/2021/01/mike-pompeo-cancels-trip-03-gty-llr-210112_1610490282025_hpEmbed_3x2_992.jpg)
-美国国务卿迈克·蓬佩奥表示，当人们回首往事时，会意识到唐纳德·川普总统和他的政府所做的工作值得称赞。
+> BREAKING REPORT: MI Judge Orders Dem Sec of State To RELEASE ALL COMMUNICATIONS With Dominion, Facebook, Apple, Amazon and Google…
+> — Chuck Callesto (@ChuckCallesto) [January 14, 2021](https://twitter.com/ChuckCallesto/status/1349538564254609410?ref_src=twsrc%5Etfw)
 
-蓬佩奥在谈到1月6日冲击美国国会大厦事件时说：“看，那天发生的事情是糟糕的。我重申，那些参与这次事件的人必须被追踪，被起诉。他们是罪犯，就应这样对待。”。
 
-“但是历史将证明这位总统和我们这届政府所做的工作非常出色。这些书将讲述我们对世界所做的改变；会认识到我们对现实、主权，对基本尊严和人权的尊重， 用以前的政府从未做过的方式回归建国原则 。我会让别人来写，但我认为那些行为——发生的真实事情，将以某种方式反映出来，表明美国人民的利益得到了良好体现。”
+来源：[https://twitter.com/ChuckCallesto/status/1349538564254609410](https://twitter.com/ChuckCallesto/status/1349538564254609410)
+盖特链接：[https://gtv.org/getter/5fffb35a87fabe2daf389845](https://gtv.org/getter/5fffb35a87fabe2daf389845)
 
-蓬佩奥接受了“休·休伊特秀”的采访。
+* * *
 
-蓬佩奥在采访中大部分时间都在谈论中国共产党和川普政府相对于以往政府的强硬立场。
+【大选实时报】1/13/2021 美东时间 10:00PM Newsmax推文： 事件在发展中：保守派寻求解除Liz Cheney的领导职务。 （Liz Cheney是众议院共和党会议主席，居众议院共和党领导层中第三高的职位）
 
-*2021年1月12日在华盛顿登上海军陆战队一号之前，唐纳德·川普总统在白宫南草坪上对记者发表讲话。（Drew Angerer / Getty Images）*
 
-当被问及他是否担心乔·拜登政府实际上是奥巴马总统的第三任任期时，蓬佩奥说：“我不想评论人，但这项政策非常重要。”
 
-“你们已经看到川普总统和我们这届政府对中国共产党给美国带来的巨大挑战做出了强有力的回应。我们相信我们在这件事上掌握了主动权。我们认为这是正确的发展方向。我们认为这符合美国人民的要求。
+> DEVELOPING: Conservatives seek to remove Liz Cheney from leadership role [https://t.co/SwmKVmjSwc](https://t.co/SwmKVmjSwc) [pic.twitter.com/Ou6PlyoE1X](https://t.co/Ou6PlyoE1X)
+> — Newsmax (@newsmax) [January 14, 2021](https://twitter.com/newsmax/status/1349551836190146560?ref_src=twsrc%5Etfw)
 
-他说：“我们看到世界对此做出了积极的回应。我们看到澳大利亚人在反击方面做得非常出色。我们也看到了日本人，韩国人。我们现在已经与印度一起开发了Quad，它非常有力地简单地说“不”。我们不是要惩罚，我们不是要遏制中国强大。我们只是要求他们参与世界事务——以拥有的庞大经济规模、强大军事力量的大国，我们甚至还没有谈论他们的导弹计划和核计划——那些真正有能力破坏稳定，使世界变得不安全的国家。
 
-“这是一种要求，也是一种是责任。无论美国总统是谁，美国都应该领导，应该以这种方式回应中国共产党。
+来源： [https://twitter.com/newsmax/status/1349551836190146560](https://twitter.com/newsmax/status/1349551836190146560)
+盖特链接：[https://gtv.org/getter/5fffc04887fabe2daf38a1f8](https://gtv.org/getter/5fffc04887fabe2daf38a1f8)
 
-蓬佩奥在最近一次接受《大纪元》的采访中说，美国忽视了共产党的本质。
+* * *
 
-蓬佩奥说：“川普总统认识到，从他开始总统竞选，到当上总统之后，我们已经从根本性上发生改变。我认为西方如何看待中国，不仅仅是美国，甚至当你看欧洲、澳大利亚和东南亚，他们都知道，中国共产党是不怀好意的。”
+【大选实时报】1/13/2021 美东时间 10:45 PM Newsmax推文： 据报道：库什纳阻止川普加入Parler.
 
-“我们适时地参与了一场非常严肃的反恐运动，这是恰当的。 我们把注意力从这个巨大的威胁上挪开，现在它落在我们身上了。威胁现在就在大门里。 中国共产党就在美国，而川普政府已经开始在各个方面把船转向正确的方向，让美国再次做正确的事情，并保护自己免受中国共产党的这种共产主义威胁。”
 
-蓬佩奥在接受休伊特（Hewitt）采访时还谈到了川普政府是如何通过将胡塞武装（Houthis）定性为恐怖主义政权来“承认现实”的。这种观点甚至连批评人士也承认，这已经改变了中东局势。川普引导了几个国家与以色列之间的和平协议，同时坚决反对伊朗及其影响力。
 
-Jan Jekielek对此报道有贡献
+> REPORT: Kushner kept Trump from joining Parler [https://t.co/FUPmzlUZ2Q](https://t.co/FUPmzlUZ2Q) [pic.twitter.com/1r94iZri97](https://t.co/1r94iZri97)
+> — Newsmax (@newsmax) [January 14, 2021](https://twitter.com/newsmax/status/1349563149582786564?ref_src=twsrc%5Etfw)
 
-扎卡里的@zackstieber
 
-原文链接: [‘History Will Reflect on the Good Work’ Trump Has Done: Pompeo (theepochtimes.com)](https://www.theepochtimes.com/history-will-reflect-on-the-good-work-trump-has-done-pompeo_3655004.html)
+来源：[https://twitter.com/newsmax/status/1349563149582786564](https://twitter.com/newsmax/status/1349563149582786564)
+盖特链接：[https://gtv.org/getter/5fffc17c87fabe2daf38a2d1](https://gtv.org/getter/5fffc17c87fabe2daf38a2d1)
+
+* * *
+
+【大选实时报】1/13/2021 美东时间7:08PM Breaking911 推文： 禁止！在上周国会大厦骚动事件后，Snapchat无限期封锁了川普总统的账号。现在该公司决定将于1月20日永久禁止其使用。
+
+
+
+> BANNED! Snapchat will permanently ban President Trump's account on Jan. 20 after locking it indefinitely last week following the Capitol siege – Via [@axios](https://twitter.com/axios?ref_src=twsrc%5Etfw)
+> — Breaking911 (@Breaking911) [January 14, 2021](https://twitter.com/Breaking911/status/1349508675086520326?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/Breaking911/status/1349508675086520326](https://twitter.com/Breaking911/status/1349508675086520326)
+盖特链接：[https://gtv.org/getter/5fffc61a87fabe2daf38a5b4](https://gtv.org/getter/5fffc61a87fabe2daf38a5b4)
+
+* * *
+
+【大选实时报】1/13/2021 美东时间7:50PM著名调查记者John Solomon推文： 在拜登发誓要 “打败美国全国步枪协会NRA “的同时，枪支销售量继续飙升，2020年背景调查增加40％。
+
+
+
+> As Biden vows to 'defeat the NRA,' gun sales continue to soar with 2020 background checks up 40% | Just The News[https://t.co/jdGWU7OeiM](https://t.co/jdGWU7OeiM)
+> — John Solomon (@jsolomonReports) [January 14, 2021](https://twitter.com/jsolomonReports/status/1349519106417045508?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/jsolomonReports/status/1349519106417045508](https://twitter.com/jsolomonReports/status/1349519106417045508)
+盖特链接：[https://gtv.org/getter/5fffddd987fabe2daf38b4ac](https://gtv.org/getter/5fffddd987fabe2daf38b4ac)
+
+* * *
+
+【大选实况】1/13/2021 EST 2:43 Marjorie Taylor Greene （乔治亚州众议院议员）推文： 在持续支持和煽动黑命贵/安提法暴力活动之后，民主党人对川普总统的弹劾树立了一个先例，该党成员应被免职。 弹劾是基于谎言。 再一次弹劾！
+
+
+
+> With their continued endorsement and incitement of BLM/Antifa violence, the Democrat impeachment of President Trump sets a precedent that members of their party should be removed from office.
+> 
+> This impeachment is based on a lie. 
+> 
+> AGAIN! [pic.twitter.com/60kKkJG0xp](https://t.co/60kKkJG0xp)
+> — Rep. Marjorie Taylor Greene (@RepMTG) [January 13, 2021](https://twitter.com/RepMTG/status/1349441938085142528?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/RepMTG/status/1349441938085142528?s=20](https://twitter.com/RepMTG/status/1349441938085142528?s=20)
+盖特链接：[https://gtv.org/getter/5fffb78e87fabe2daf389b9d](https://gtv.org/getter/5fffb78e87fabe2daf389b9d)
+
+**By： 【秘密翻译组 G-Translators】**
 
 0

@@ -1,112 +1,84 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统电视讲话（全文）
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/749290/)
+## 《路德时评》重磅解读川普发布中共军方企业制裁修正案及意大利政坛将迎来大变革
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/749579/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
-
-编辑上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/donald-trump-heritage-foundation-900_mandel-ngan-afp-getty-1280x720-1.jpg)AFP PHOTO / MANDEL NGAN 
-川普总统1月13日在白宫的电视讲话【1】，根据讲话录音整理，仅供参考。
-
-我的美国同胞们，
-
-今晚我想和你谈谈过去一周的麻烦事。正如我所说，我们共和国的心脏，美国的国会受到了冲击。
-
-它激怒和震惊了数百万的美国人和各个政治阶层。
-
-我想说清楚，我毫不迟疑地谴责上周我们看到的暴力，暴力和破坏在我们国家和我们的运动中绝对没有一席之地。使美国再次伟大一直是为了捍卫法治，支持执法人员，维护我们国家最神圣的传统和价值观，暴民的暴力行为违背了一切。
-
-我相信，我们的运动所代表的一切，我的真正支持者永远不会赞同政治暴力；我的真正支持者永远不会不尊重执法部门，也不会不尊重我们伟大的美国国旗；我的真正支持者永远不能威胁或骚扰他们的美国同胞。如果你做这些事，你就不是在支持我们的运动，你在攻击我们的运动，你在攻击我们的国家，我们不能容忍这样的悲剧，
-
-在过去的一年里，中共国病毒使我们如此困难，我们看到政治暴力的失控，我们看到了太多的骚乱，太多的暴徒，太多的恐吓和破坏行为。无论你是右派，还是左派，民主党还是共和党，都必须停止。
-
-暴力是没有任何理由，没有借口，没有例外，美国是一个法制国家，上周参与袭击的人将被绳之以法。
-
-现在，我要求每一个相信我们（有正义）程序的人都要想办法缓和紧张局势，平息情绪，帮助促进国家的平和。
-
-有报道称，未来几天在首都华盛顿，以及全国各地正在计划更多的示威游行，特勤局向我通报了潜在的威胁。
-
-每个美国人都应该以一种尊重与和平的方式表达自己的意见，你是在履行第一修正案，对吗？但我强调不能有任何暴力、违法和任何形式的破坏行为，每个人都必须遵守我们的法律，服从执法部门的指令。
-
-我已经命令联邦机构动用一切必要资源维持秩序，在华盛顿特区，我们请来了数千名国民警卫队，
-
-以确保城市的安全和不出意外的过渡。
-
-像你们所有人一样，我对上周发生在首都的灾难感到震惊和悲痛。
-
-我要感谢数以亿计的美国公民，他们以冷静、温和以及优雅的态度回应了这一时刻，我们会像往常一样，战胜这个挑战。
-
-我还想说几句关于对言论自由受到的前所未有的攻击，这几天我们看到了，现在是审查、取消和列入黑名单的紧张和困难时期，我们的同胞错了，他们很危险。我们现在需要的是彼此倾听，而不是噤声，我们都可以选择，通过我们的行动来超越障碍，找到共同点和共同目标。
-
-我们必须着眼于增进国家的利益，制造奇迹般的疫苗，战胜流行病，重建经济，保护国家安全，维护法治，而不是让你噤声。
-
-今天，我呼吁所有美国人克制当前的激愤，团结起来，争作一名（合格的）美国公民。
-
-让我们携手向前，为了我们的家庭，我们的社区，我们的国家。
-
-谢谢您！
-
-上帝保佑你！
-
-天佑美国！
-
-- [https://twitter.com/WhiteHouse/status/1349492130578919425](https://twitter.com/WhiteHouse/status/1349492130578919425)
+直播视频：
 
 
-英语原文：
 
-My fellow Americans.
 
-I want to speak to you tonight about the troubling events of the past week. As I have said, the incursion  of the US capital struck at the very heart of our republic.
 
-It angered and appalled millions of Americans across the political spectrum. I want to be very clear. I unequivocally condemn the violence that we saw last week. Violence and vandalism have absolutely no place in our country and no place in our movement. Making America great again has always been about defending the rule of law supporting the men and women of law enforcement, and upholding our nation’s most sacred traditions and values.
+《路德时评》2021年1月13日晚间节目主要内容：
 
-Mob violence goes against everything, I believe in, and everything our movement stands for.
+一、众议院第二次弹劾川普总统
 
-No true supporter of mine could ever endorse political violence.
+（法新社华盛顿13日电）[1] 美国众议院今天表决通过弹劾川普总统，众议院对弹劾案进行表决，以232票赞成、197票反对通过，其中有10名众议院共和党人投赞成票，弹劾案将送交参议院进行审理。川普成为美国史上第一位2度遭到弹劾的总统，留下历史污名。不过由于参议院不会立即进行审议，川普应能顺利做完这一任期。
 
-No true supporter of mine could ever disrespect law enforcement, or our great American flag.
+随后，参议院多数党领袖麦康奈尔发推[2]：参议院目前处于修院期，20日之前不会动用紧急权利召开参议院会议，就川普总统弹劾案进行投票表决。
 
-No true supporter of mine could ever threaten or harass their fellow Americans If you do any of these things, you are not supporting our movement, you’re attacking it, and you are attacking our country.
 
-We cannot tolerate it tragically, over the course of the past year, made so difficult because of CCP Virus.
 
-We have seen political violence spiral out of control. We have seen too many riots, too many mobs, too many acts of intimidation and destruction. It must stop whether you are on the right, or on, the left, a democrat, or a republican. There is never a justification for violence. No excuses. No exceptions. America is a nation of laws. Those who engaged in the attacks last week will be brought to justice.
+> My full statement on the next seven days and the Senate schedule: [pic.twitter.com/Nh5z3f79yq](https://t.co/Nh5z3f79yq)
+> — Leader McConnell (@senatemajldr) [January 13, 2021](https://twitter.com/senatemajldr/status/1349476803514146819?ref_src=twsrc%5Etfw)
 
-Now, I am asking everyone who has ever believed in our agenda to be thinking of ways to ease tensions, calm tempers, and help to promote peace in our country.
 
-There has been reporting that additional demonstrations are being planned in the coming days.
 
-Both here in Washington, and across the country. I have been briefed by the us secret service on the potential threats, every American deserves to have their voice heard in a respectful and peaceful way.
+路德社评论：
 
-That is your First Amendment, right? But I cannot emphasize that there must be no violence, no law breaking, and no vandalism of any kind. Everyone must follow our laws and obey the instructions of law enforcement. I have directed federal agencies to use all necessary resources to maintain order.
+按照美国法律，当众议院发起弹劾总统投票，投票结果只要多数支持弹劾总统，弹劾案就通过，随后交由参议院进行投票，川普总统此前就已经历过一次荒唐的弹劾，参议院目前仍然由共和党掌控，麦康奈尔是否会在20日之后发动弹劾川普总统投票仍是未知数，1月20日仍有许多变数；
 
-In Washington, DC we are bringing in thousands of National Guard members to secure the city and ensure that a transition can occur safely and without incident.
+二、川普政府发布中共军方控制机构制裁修正案
 
-Like all of you, I was shocked and deeply saddened by the calamity at the capital last week.
+1月12日，川普总统在白宫官方网站发文[1]：给众议院议长和参议院议长的信，是关于对中共军方控制的企业的制裁修改方案。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫文件.png)[图片地址](https://www.whitehouse.gov/briefings-statements/text-letter-speaker-house-representatives-president-senate-111220-4/)
 
-I want to thank the hundreds of millions of incredible American citizens who have responded to this moment with calm, moderation and grace. We will get through this Challenge, just like we always do.
 
-I also want to say a few words about the unprecedented assault on Free speech.
+路德社评论：
 
-We have seen in recent days. These are tense and difficult times the efforts to censor, cancel and blacklist. Our fellow citizens are wrong. and They are dangerous.
+1、该法案进对13959号行政命令增加了一份修正案，着重提到禁止销售和购买这些中共军方控制的中共企业政权以及证券的衍生品（债券、期货、互换期权），还包括为这些证券提供投资风险担保的金融产品（保险与再保险投资），此前是针对实体进行制裁，现涵盖所有投资领域，将投资杠杆端彻底切断；
 
-What is needed now is for us to listen to one another, not to silence one another. All of us can choose
+2、该制裁令涵盖的投资方不仅包括美国实体、美国公民，还包括持有美国绿卡的中国人（中共国官员后代）以及美国市场的投资者也被禁止投资这些企业；
 
-by our actions to rise above the ranker and find common ground and shared purpose.
+3、修正案赋予美国国防部长权力可以直接公开被中共军方控制的企业名单，扩大国防部长权力；
 
-We must focus on advancing the interests of the whole nation, delivering the miracle vaccines, defeating the pandemic, rebuilding the economy, protecting our national security, and upholding the rule of law.
+4、美国国防部每年都将发布中国企业的审核报告，财政部长与国防部长商量后将有更多中共军方控制的企业被列入制裁名单；
 
-Today, I’m calling on all Americans to overcome the passions of the moment and joined together as one American people.
+5、路德社此前爆料中共利用这些企业作为输血管道发展军事，进行海外扩张，然后再“3F”美国，该项制裁令将彻底封堵中共利用民营企业从美国资本上市骗钱的渠道，这将导致数家中共国股票大跌，最后被迫退市，中美脱钩依然在推进；
 
-Let us choose to move forward united for the good of our families, our communities, and our country.
+6、由此可以看到美国法律非常严谨，所有的行动都得依照法律，即使川普政府此前颁布的法律存在漏洞，后续仍然能依据美国法律条款进行漏洞补充，国家政策有很强的延续性，继任总统虽然有权推翻该行政命令，但是新政府需要提供充分的证据与理由说服国会同意废除该行政命令；
 
-Thank you.
+7、该行政命令深层的含义给华尔街致命一击，川普总统至今仍然在战斗，丝毫没有退缩。
 
-God bless you.
+三、意大利政坛将迎来大变革
 
-And god bless America.
+1月12日最新消息[3]：内阁会议关于意大利的经济复苏计划可能意味着总理朱塞佩·孔戴（Giuseppe Conte）政府的终结，因为他的执政联盟即将被拆分。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/意大利总统.jpg)[图片地址](https://cdnuploads.aa.com.tr/uploads/Contents/2021/01/12/thumbs_b_c_81d2e52ba7f1bc67bc7be040876a42d5.jpg?v=210538)
+
+
+1、路德社在2019年的节目中就提及意大利总理Conte是傀儡，因为意大利分为左翼和右翼两个联盟，两方势力相当，分别推举一名担任副总理，右翼联盟是萨尔维尼，左翼是迪瓦约，双方共同推举Conte担任意大利总理。意大利右翼联盟与班农先生关系非常好，左翼联盟属于亲共派；
+
+2、意大利政权变动与梵蒂冈改革有重大关系，这就是班农先生为何一定要在意大利建立重要的基地与影响力，此次意大利重新举行大选，右翼萨尔维尼胜算概率就非常大；
+
+3、路德社在2020年9月30日节目中专门提到萨尔维尼在推特中曾转推闫博士认定中共病毒就是生物武器，宣布支持闫博士，他有两百万粉丝，掌控北方联盟有非常大的政治势力，闫博士当时接受意大利最重要电视台采访就是由他一手推动的，他还是川普总统的支持者，同时他也支持耶路撒冷是以色列首都；
+
+4、意大利是第一个也是唯一一个参与“一带一路”的真正意义上的欧洲国家，该国在此次中共病毒疫情中损失非常惨重，意大利当时由于医疗资源匮乏，中共高价向意大利出售医疗物资引起意大利百姓怨声载道；
+
+5、萨尔维尼一旦上任，他将成为世界首位承认闫博士的国家总统，其次他与班农先生，以及梵蒂冈维加诺大主教的关系密切，这影响着梵蒂冈教廷两股势力较量的结果，以及未来资金和隐秘力量的归属，这是最重要的因素 ，意大利因为有梵蒂冈，它才在国际享有很高的地位，这就是班农先生多次前往意大利的原因；
+
+6、现在全世界正义力量已经开始集结，形成对抗“大重启”的重要力量。
+
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+
+参考文章：
+
+[1]https://www.swissinfo.ch/chi/%E5%B7%9D%E6%99%AE%E5%86%8D%E9%81%AD%E4%BC%97%E9%99%A2%E5%BC%B9%E5%8A%BE-%E8%A2%AB%E6%8E%A7%E7%85%BD%E5%8A%A8%E5%8F%9B%E4%B9%B1/46285018
+
+[2]https://www.whitehouse.gov/briefings-statements/text-letter-speaker-house-representatives-president-senate-111220-4/
+
+[3]https://www.aa.com.tr/en/europe/italy-faces-political-crisis-amid-covid-19-resurgence/2107696
+
+文章撰写：【重生】  编辑：【香柏树】
 
 0

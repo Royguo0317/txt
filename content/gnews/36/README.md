@@ -1,47 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 习近平再不现身局势要失控，正义力量已布局破解大重启
-` 恩典农场` [轉載自GNews](https://gnews.org/zh-hans/749044/)
+## 川普总统就修订13959号行政令给众议院议长和参议院主席的信(中英文对照)
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/750796/)
 
-(编辑/校对：Porsche)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/WH_20210113_Letter-coverphoto.png)图片来源：https://www.whitehouse.gov/
+**Text of a Letter to the Speaker of the House of Representatives and the President of the Senate**
 
-摘要：习近平隐身已经超过路德社说的13天恢复期，再过几天不现身，局势要失控。美国务院取消所有外访行程，各国开始就大重启计划站队。黑暗势力和正义力量，围绕大重启较量已久，掌握更高纬度科技实力的正义一方必然胜利。
+**给众议院议长和参议院主席的信**
 
-**习近平依然不敢现身**
+Dear Madam Speaker: (Dear Mr. President:)
 
-路德社预计的13天手术恢复期已经得到验证。据说天线宝宝已经从山洞换到另一个地方。北京全部封城，仅仅是因为疫情？再过几天不出来，局势就要失控了。
+亲爱的议长女士（亲爱的主席先生）：
 
-**美国国务院取消所有外****访行程及大重启站队开始**
+Pursuant to the International Emergency Economic Powers Act (50 U.S.C. 1701 et seq.) (IEEPA), the National Emergencies Act (50 U.S.C. 1601 et seq.), and section 301 of title 3, United States Code, I hereby report that I have issued an Executive Order taking further steps to deal with the threat posed by the People’s Republic of China’s (PRC) increasing exploitation of United States capital to resource and to enable the development and modernization of its military, intelligence, and other security apparatuses which continue to allow the PRC to directly threaten the United States homeland and United States forces overseas, including by developing and deploying weapons of mass destruction, advanced conventional weapons, and malicious cyber-enabled actions against the United States and its people.
 
-美驻联合国大使访台，刚公布没几天，突然又取消，显然与台湾政府的态度有关系。联想到欧洲的比利时、卢森堡等国政客声称将不接待蓬佩奥访问的惊人表态，和澳洲总理公开声明拒绝大重启，显示在美国新政府宣誓就职日期到来之际，各国开始就大重启站队，是敌是友纷纷浮出水面。
+根据《国际紧急经济权力法》（美国法典第50编第1701节等）（简称IEEPA），《国家紧急状态法》（美国法典第50编第1601节等）以及美国法典第3编第301节，我在此声明我已发布了一项行政命令，采取进一步措施应对中华人民共和国（PRC）所构成的威胁，他们越来越多地利用美国资本，来发展和现代化其军事、情报和其它安全机构，这使得中共国直接威胁美国国土和海外美军，包括通过开发和部署大规模杀伤性武器、先进的常规武器以及针对美国及其人民的恶意网络行动。
 
-**大重启是黑暗势力酝酿已久的奴役全球阴谋**
+Through the national strategy of Military-Civil Fusion, the PRC increases the size of the country’s military-industrial complex by compelling civilian Chinese companies to support its military and intelligence activities.  Those companies, though remaining ostensibly private and civilian, directly support the PRC’s military, intelligence, and security apparatuses and aid in their development and modernization.  At the same time, they raise capital by selling securities to United States investors that trade on public exchanges both here and abroad, lobbying United States index providers and funds to include these securities in market offerings, and engaging in other acts to ensure access to United States capital.  In that way, the PRC exploits United States investors to finance the development and modernization of its military.
 
-大重启计划，早在当年基辛格访问中国时就酝酿已久，中美关系改善是因为邪恶中共被黑暗势力选中参与大重启。全球大重启，打着“保护环境、发展高科技、防止流行病”的旗号，意欲建立高于各国主权和法律的地球宪法，用电力、网络和病毒作为武器，实现少数精英阶层对全世界民众的控制和奴役。
+通过军民融合国家战略，中共国通过强迫中国民营企业支持其军事和情报活动，扩大了其军工综合体的规模。 这些公司虽然表面上仍然是私有和民用的，但它们直接支持中国的军事、情报和安全机构，并协助其发展和现代化。 同时，他们通过向在国内外进行公开交易的美国投资者出售证券来筹集资金，游说美国指数供应商和基金将这些证券包括在[股票]市场产品中，并采取其它行动以确保其进入美国资本[市场]。 用这样的方式，中共国利用美国投资者为其军队的发展和现代化提供资金。
 
-当年戈尔宁愿放弃美国总统的机会，而去做全球应对气候变化的领袖人物，获得诺贝尔奖，真正原因是他得知了新角色在大重启计划中的重要作用。
+To deal with that threat, I signed Executive Order 13959 on November 12, 2020.  Executive Order 13959 prohibits certain purchases involving publicly traded securities, or any securities that are derivative of, or are designed to provide investment exposure to such securities, of any Communist Chinese military company.  Those companies are ones the Department of Defense has listed, or will list, pursuant to section 1237 of Public Law 105-261, as amended, or are identified as Communist Chinese military companies or their subsidiaries by the Secretary of the Treasury using similar criteria.
 
-**Parler和Gab自建服务器逃不脱黑暗势力的控制**
+为了应对这种威胁，我于2020年11月12日签署了13959号行政命令。13959号行政命令禁止购买中共国军事企业的某些涉及公开交易的证券，或任何衍生的证券，或旨在提供此类证券的投资接口的证券。 这些公司是美国国防部根据《公法105-261》第1237条（已修订）列出或将要列出的，或由财政部长根据类似标准确定的，中共军工企业或其子公司。
 
-自建服务器，需要解决物理地址的安全性问题以防止断电和被Antifa破坏，如果在民主党控制的州，安全性无法保障。
+Today, I signed an Executive Order amending Executive Order 13959.  The amendments prohibit certain sales as well as purchases of publicly traded securities, or any securities that are derivative of, or are designed to provide investment exposure to such securities, of any Communist Chinese military company.  They also prohibit possession of such securities by United States persons 1 year after a company is determined to be a Communist Chinese military company.  And, finally, they allow the Secretary of Defense publicly to list whether a company is a Communist Chinese military company using the criteria in section 1237(b)(4)(B) of Public Law 105-261, as amended by section 1233 of Public Law 106-398 and section 1222 of Public Law 108‑375, regardless of whether the Secretary must report that determination under section 1237(b)(2).
 
-自建服务器，还需要营运商提供通往国际网路的足够带宽的光缆，和确保根域名不会随时被关闭。而运作大重启的黑暗势力，从90年代克林顿时代开始，就提前布局掌控了网络基础设施和根域名的控制权。
+今天，我签署了一项行政命令，对13959号行政命令进行了修订。该修正案禁止某些中共军队的某些证券买卖以及公开交易的证券，或任何衍生自此类证券，或旨在为其提供投资接口的证券公司。 他们还禁止在公司被确定为中国共产党军工企业一年后由美国人拥有此类证券。 最后，它们允许国防部长根据《公共法》第105-261条第1237(b)(4)(B) 条（由第1233条修订）修订的标准，公开列出某公司是否为中共军工企业。 公法106-398和公法108-375的第1222条，无论部长是否必须根据第1237(b)(2)条报告该决定。
 
-**全球正义力量将如何破解邪恶的大重启计划**
+I am enclosing a copy of the Executive Order I have issued.
 
-信息时代，控制了电力和Wifi，就控制了网络，就最终控制了社会。而传统的电网、光纤网络和服务器都掌握在黑暗势力手中，这是他们大重启的底气所在。
+随函附上我所签发的行政命令的副本。
 
-正义力量为对抗黑暗势力，已经进行了长期准备。特别是川普政府上台后，加速建设太空军，推进更高维度科技的应用，以破解大重启计划，捍卫人民的自由。
+Sincerely,
 
-西屋电气正在研发类似空调尺寸的小型原子能发电机，配合太阳能发电装置，实现小区的独立供电，以摆脱传统电网的控制。
+诚挚的，
 
-特斯拉公司获得了Nasa顶级人才和技术的支撑，正在高速布局星链网络，将服务器建在太空，破解传统大科技公司建立的全球隐形和显性的防火墙。密布太空的星链，将揭穿黑暗势力在气候话题上的谎言，击碎他们意图用虚构的气候问题操控民众的阴谋。Musk还计划开发自己的手机系统，在物理上摆脱对大科技公司对网络终端的控制。
+DONALD J. TRUMP
 
-**蓬佩奥刚刚宣布一周后将离任国务卿**
+唐纳德·J·川普
 
-一周后也是川普第一任期结束的日子。蓬佩奥提前通过官方推特号@SecPompeo告诉粉丝，去关注他的私人推特号@mikepopeo，暗示他未来将会有比国务卿更为重要的工作。
+阅读白宫原文：[https://www.whitehouse.gov/briefings-statements/text-letter-speaker-house-representatives-president-senate-011321/](https://www.whitehouse.gov/briefings-statements/text-letter-speaker-house-representatives-president-senate-011321/)
 
-#CCP\_is\_terrorist   #TakeDownTheCCP
+翻译：【Isaiah4031】
 
-+6
+喜马拉雅玫瑰园小队出品
+
+*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
+
++2

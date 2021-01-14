@@ -1,35 +1,82 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 众明星为拜登就职准备一场“饕餮盛宴”
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/749190/)
+## 【大选推特实况】1/13/2021 又有7名参与美国国会大厦破坏活动的人被捕&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/750716/)
 
-加拿大多伦多枫叶农场 硫酸羟氯喹64
+【大选实况】1/13/2021 美东时间1:27 PM James O’Keefe 推文：德州总检察长肯·帕克斯顿（Ken Paxton）今天宣布逮捕雷切尔·罗德里格斯（Rachel Rodriguez），罪名是选举欺诈，非法投票，非法协助人们以邮寄方式投票以及非法拥有正式选票。 根据《德克萨斯选举法》，每项指控均构成重罪。
 
-校对 上传 小鸥
-![]()![](https://gnews.org/wp-content/uploads/2021/01/H.png)图片来自 stateofthenation2012.com
-《魁北克日报》（JOURNAL DE QUEBEC）1月13日刊登新闻说，据几家美国主流媒体报道，在乔·拜登（Joe Biden）即将到来的就职典礼当晚，美国演员汤姆·汉克斯（Tom Hanks）将上演一出特别庆贺节目，并在美国所有主要电视频道上同时播放。这些美国媒体还透露消息说，参与这项节目的还包括音乐嘉宾乔恩·邦·乔维（Jon Bon Jovi）和贾斯汀·汀布莱克（Justin Timberlake）等人。
 
-在法新社的询问下，拜登团队对此并没跟进答复。但贾斯汀·汀布莱克（Justin Timberlake）和歌手黛米·洛瓦托（Demi Lovato）都对媒体确认了此次活动及他们将出席的情况。
 
-该计划由总统就职典礼委员会共同制定，«庆祝美国»这一特别节目于1月20日星期三黄金时间（美国东部标准时间晚上8:30至晚上10点）播出，该节目将在ABC，CBS，NBC，CNN和MSNBC以及总统就职典礼委员会的YouTube频道上同步转播。
+> Texas Attorney General Ken Paxton today announced the arrest of Rachel Rodriguez for election fraud, illegal voting, unlawfully assisting people voting by mail, and unlawfully possessing an official ballot. Each charge constitutes a felony under the Texas Election Code.
+> — James O'Keefe (@JamesOKeefeIII) [January 13, 2021](https://twitter.com/JamesOKeefeIII/status/1349422777212805122?ref_src=twsrc%5Etfw)
 
-简评：
 
-在人类命运能否正常延续的关键之时，在正义和邪恶终极角斗之际，在黑白善恶的生死抉择面前，那些在好莱坞被中共收买和眷养的鬼魅魍魉，以及替那些恶魔充当作恶爪牙的虾兵蟹将，无不原形毕现，跳梁小丑般地将其懦弱肮脏，贪婪愚昧的灵魂曝露于正义的阳光之下。而为他们准备的“饕餮盛宴”是否将是一场群魔乱舞的最后晚餐！？
+来源：[https://twitter.com/JamesOKeefeIII/status/1349422777212805122](https://twitter.com/JamesOKeefeIII/status/1349422777212805122)
+盖特链接：[https://gtv.org/getter/5fff505987fabe2daf386213](https://gtv.org/getter/5fff505987fabe2daf386213)
 
-正是：
+* * *
 
-早乐必早衰，早悲必早哀。
+【大选实况】1/13/2021 美东时间 2：44 PM 川普总统电报群信息： 总统声明： “鉴于有更多示威游行的报道，我敦促不得有任何形式的暴力，违法行为和破坏行为。那不是我的立场，也不是美国的立场。 我呼吁所有美国人帮助缓解紧张局势和稳定一下情绪。 谢谢。”
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1c1182a089a4c3408ca3e05c137a618b.png)来源：[https://t.me/real\_DonaldJTrump/13361](https://t.me/real_DonaldJTrump/13361)
+盖特链接：[https://gtv.org/getter/5fff523b87fabe2daf38631b](https://gtv.org/getter/5fff523b87fabe2daf38631b)
 
-恶拜登基日，正义审判来。
+* * *
 
-天旨人间照，民心湃如潮。
+【大选实况】1/13/2021 美东时间 1：35 PM Breaking911推文：众议员马特·盖茨：“美国的左派煽动的政治暴力远远超过右翼。几个月来，我们的城市被烧毁，警察局被烧毁，企业破产了……” “有些人引用了总统点燃火焰的比喻。但是，他们（左派）点燃了真正的火焰！”
 
-随意白宫歇，川普气更豪！
 
-原文链接：
 
-[https://www.journaldequebec.com/2021/01/13/tom-hanks-presentera-une-emission-speciale-pour-linvestiture-de-biden](https://www.journaldequebec.com/2021/01/13/tom-hanks-presentera-une-emission-speciale-pour-linvestiture-de-biden)
+> REP MATT GAETZ: "The left in America has incited far more political violence than the right. For months, our cities burned, police stations burned, businesses shattered…"
+> 
+> "Some have cited the metaphor that the President lit the flame. Well, they lit actual flames!" [pic.twitter.com/iiuie3LXN3](https://t.co/iiuie3LXN3)
+> — Breaking911 (@Breaking911) [January 13, 2021](https://twitter.com/Breaking911/status/1349424949212143617?ref_src=twsrc%5Etfw)
 
-+6
+
+来源：[https://twitter.com/Breaking911/status/1349424949212143617](https://twitter.com/Breaking911/status/1349424949212143617)
+盖特链接：[https://gtv.org/getter/5fff547d87fabe2daf386435](https://gtv.org/getter/5fff547d87fabe2daf386435)
+
+* * *
+
+【大选实况】1/13/2021 美东时间 1：44 PM Breaking911推文：共和党众议员丹·纽豪斯（Dan Newhouse）说，他将投票弹劾特朗普。现在有六名众议院共和党人支持弹劾。
+
+
+
+> Republican. Rep. Dan Newhouse says he will vote to impeach Trump. 
+> 
+> Six House Republicans now support impeachment. [pic.twitter.com/Cf470rdygu](https://t.co/Cf470rdygu)
+> — Breaking911 (@Breaking911) [January 13, 2021](https://twitter.com/Breaking911/status/1349427098591633411?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/Breaking911/status/1349427098591633411](https://twitter.com/Breaking911/status/1349427098591633411)
+盖特链接：[https://gtv.org/getter/5fff567187fabe2daf38650e](https://gtv.org/getter/5fff567187fabe2daf38650e)
+
+* * *
+
+【大选实况】1/13/2021 美东时间 1：55 PM Breaking911推文：众议员劳伦·博伯特（Rep Lauren Boebert）：“我们此时不是在帮助美国人民，而是开始弹劾进一步分裂我们国家。我只能把它叫做扯淡！”
+
+
+
+> REP. LAUREN BOEBERT: "Rather than actually helping American people in this time, we start impeachments that further divide our country. I call bull crap!" [pic.twitter.com/jPCZzCnnKO](https://t.co/jPCZzCnnKO)
+> — Breaking911 (@Breaking911) [January 13, 2021](https://twitter.com/Breaking911/status/1349429971849269250?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/Breaking911/status/1349429971849269250](https://twitter.com/Breaking911/status/1349429971849269250&nbsp;)
+盖特链接：[https://gtv.org/getter/5fff575587fabe2daf386574](https://gtv.org/getter/5fff575587fabe2daf386574)
+
+* * *
+
+【大选实况】1/13/2021 美东时间 2：57 PM Breaking911推文： 又有7名参与美国国会大厦破坏活动的人被捕。
+
+
+
+> 7 Mores Arrested In Siege on U.S. Capitol – [https://t.co/ixkYEm1fGK](https://t.co/ixkYEm1fGK) [pic.twitter.com/b5idDDuxc2](https://t.co/b5idDDuxc2)
+> — Breaking911 (@Breaking911) [January 13, 2021](https://twitter.com/Breaking911/status/1349445540489146368?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/Breaking911/status/1349445540489146368](https://twitter.com/Breaking911/status/1349445540489146368)
+盖特链接：[https://gtv.org/getter/5fff5a6587fabe2daf3866b6](https://gtv.org/getter/5fff5a6587fabe2daf3866b6)
+
+**By： 【秘密翻译组 G-Translators】**
+
++1

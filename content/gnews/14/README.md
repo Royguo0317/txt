@@ -1,26 +1,87 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国粮食数据严重造假，粮食缺口或高达上亿吨！
-` 国内新闻组` [轉載自GNews](https://gnews.org/zh-hans/749716/)
+## 【大选推特实况】1/13/2021 川普政府与黎巴嫩人民站在一起,反对伊朗的恐怖傀儡真主党&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/751021/)
 
-国内新闻组：小黑姐（文雅） 素材：特朗靠谱 校对：α-Vega
+【大选实况】1/13/2021 EST 3:34 PM 国务卿彭佩奥推文： 感谢巴林、英国、阿尔巴尼亚、立陶宛、澳大利亚、阿联酋和沙特阿拉伯，他们保护了世界上最重要的航道之一，使之免受伊朗霍尔木兹海盗的袭击。#霍尔木兹海盗
 
-新华网消息：北京1月12日电（汪亚）国家粮食和物资储备局召开新闻通气会，介绍“十三五”时期我国粮食流通改革发展成就、当前秋粮收购及保供稳市等有关情况。从通气会获悉，全国标准粮食仓房仓容达到6.8亿吨，较“十二五”末增加1.2亿吨，仓储条件总体达到世界较先进水平。国家粮食和物资储备局粮食储备司司长秦玉云在会上表示，截至今年1月5日，主产区入统企业累计收购秋粮1.1亿吨，同比增加500万吨。
 
-中共官宣2020年全国粮食仓容达6.8亿吨，国家统计局2020年全国粮食总产量约为6.69亿吨，这个数据和2020年6月洪水发生前，专家预计全国粮食产量的6.7亿吨相当，不得不佩服墙国砖家的“精准预测”，但事实如何？让我们从中共国国家统计局近5年的数据来一窥究竟，统计局数据显示2016年全国粮食总量约6.16亿吨，2017年全国粮食总量约6.18亿吨，2018年全国粮食总量约6.58亿吨，2019年全国粮食总量约6.64亿吨，2020年全国粮食总量约6.69亿吨。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/image0-22.png)
-其中2019年堪称丰收年，总产量约达6.64亿吨，夏粮产量约1.41亿吨，早稻产量2627万吨，秋粮产量约4.96亿吨。但2020年天灾人祸不断，年初疫情爆发，全国封城，早稻已经有所延误，7月份云南蝗灾，超12万亩农田受灾，蝗虫过境，铺天盖地，颗粒无收。长江中下游洪灾泛滥，其中仅产粮大省安徽农作物受灾面积达1802.2万亩，农业专家称秋粮最少减产三成。另外产量大省如黑龙江、河南、山东、湖北、湖南等地粮食都受疫情和天气原因，纷纷减产。按照这种情况算怎么也不可能超过2019年的产量，才符合自然规律和正常逻辑，但国家统计给出的数据为：夏粮产量约1.42亿吨，早稻产量2729万吨，秋粮产量约4.99亿吨，全国粮食总产量高达6.69亿吨之多！按照逻辑，秋粮只按减产三成算最多也只能产出3.5亿吨左右，全国总产量应该在4.92亿吨左右才对。可是疫情耽误播种，蝗虫席卷粮食，洪水淹没农田，对中共国的收成竟毫发无损，产量相比大丰收的2019年不降反增，堪称地球奇迹！
 
-再看目前国内粮食价格全面上涨，玉米、大豆价格持续攀升，仅大豆价格创6年以来新高，玉米价格更是创历史新高等一系列行情，加上国外因疫情蔓延，经济活动停滞，产量下降，已有13国宣布限制或禁止粮食出口，作为全球最大粮食进口国的中国，根本无法进口足购的粮食来满足国内的需求，粮食明显供应不足，缺口巨大，才会导致国内粮价疯涨。
+> Thank you Bahrain, UK, Albania, Lithuania, Australia, UAE & KSA for protecting one of the world's most critical shipping lanes from Iranian [#PiratesOfHormuz](https://twitter.com/hashtag/PiratesOfHormuz?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/gzGCeT9B1q](https://t.co/gzGCeT9B1q)
+> — Secretary Pompeo (@SecPompeo) [January 13, 2021](https://twitter.com/SecPompeo/status/1349454785544646657?ref_src=twsrc%5Etfw)
 
-综上所述，中共官宣的粮食产量只是一个数据，可上可下，可多可少，造假完全不顾常识和逻辑，正如名侦探柯南所说：真相只有一个！无论党媒如何粉饰，也掩盖不了粮荒的事实！
 
-文章仅代表个人观点。
+来源：[https://twitter.com/SecPompeo/status/1349454785544646657](https://twitter.com/SecPompeo/status/1349454785544646657)
+盖特链接：[https://gtv.org/getter/5fffae5d87fabe2daf3895a1](https://gtv.org/getter/5fffae5d87fabe2daf3895a1)
 
-新闻来源：
-[https://baijiahao.baidu.com/s?id=1688679554846003909&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1688679554846003909&amp;wfr=spider&amp;for=pc)
+* * *
 
-[http://www.stats.gov.cn/tjsj/zxfb/201912/t20191206\_1715827.html\[23:02\]](http://www.stats.gov.cn/tjsj/zxfb/201912/t20191206_1715827.html[23:02])
+【大选实况】1/13/2021 EST 3:30 PM 国务卿彭佩奥推文： 我们帮助创建了国际海事安全结构和#CTFS哨兵，以确保霍尔木兹海峡和波斯湾免受伊朗的非法行为。开始时有7个合作伙伴，现在增加到14个。#有效的多边主义
+
+
+
+> We helped create the International Maritime Security Construct & [#CTFSentinel](https://twitter.com/hashtag/CTFSentinel?src=hash&amp;ref_src=twsrc%5Etfw) to secure the Strait of Hormuz & Persian Gulf from Iran's illegal acts. Started with 7 partners; now up to 14. [#EffectiveMultilateralism](https://twitter.com/hashtag/EffectiveMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/UzNi4Gbznc](https://t.co/UzNi4Gbznc)
+> — Secretary Pompeo (@SecPompeo) [January 13, 2021](https://twitter.com/SecPompeo/status/1349453667292876806?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1349453667292876806](https://twitter.com/SecPompeo/status/1349453667292876806)
+盖特链接：[https://gtv.org/getter/5fffae9387fabe2daf3895b4](https://gtv.org/getter/5fffae9387fabe2daf3895b4)
+
+* * *
+
+【大选实况】1/13/2021 EST 4:30 PM 国务卿彭佩奥推文： 第一次见到@MAKadhimi（伊拉克总理）是在我加入（川普）政府的时候。我们和他一起努力收回和保护伊拉克的主权。进展不错，尤其是摧毁ISIS，但伊朗仍是一个威胁。必须继续努力推动。
+
+
+
+> First met [@MAKadhimi](https://twitter.com/MAKadhimi?ref_src=twsrc%5Etfw) when I joined the Administration. We worked with him to reclaim & protect Iraq’s sovereignty. Good progress, especially crushing ISIS, but Iran is still a threat. Have to keep pushing. [pic.twitter.com/6PY6fUJTp8](https://t.co/6PY6fUJTp8)
+> — Secretary Pompeo (@SecPompeo) [January 13, 2021](https://twitter.com/SecPompeo/status/1349468765860323331?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1349468765860323331](https://twitter.com/SecPompeo/status/1349468765860323331)
+盖特链接：[https://gtv.org/getter/5fffade487fabe2daf389567](https://gtv.org/getter/5fffade487fabe2daf389567)
+
+* * *
+
+【大选实况】1/13/2021 EST 5:00 PM 国务卿彭佩奥推文： 川普政府与黎巴嫩人民站在一起，反对伊朗的恐怖傀儡真主党(Hizbollah)。
+
+
+
+> The Trump Administration stood with the Lebanese people as they rejected Iran's terrorist puppets Hizbollah. [pic.twitter.com/Ety94EUdWd](https://t.co/Ety94EUdWd)
+> — Secretary Pompeo (@SecPompeo) [January 13, 2021](https://twitter.com/SecPompeo/status/1349476320774942720?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1349476320774942720](https://twitter.com/SecPompeo/status/1349476320774942720)
+盖特链接：[https://gtv.org/getter/5fffaece87fabe2daf3895d2](https://gtv.org/getter/5fffaece87fabe2daf3895d2)
+
+* * *
+
+【大选实况】1/13/2021 EST 5:06 PM 国务卿彭佩奥推文： 不是说说而已。@国务院指认黎巴嫩前外交部长Gibran Bassil从事腐败活动 [https://go.usa.gov/xA89e](https://go.usa.gov/xA89e)
+
+
+
+> Not just talk: [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) designated former FM Gibran Bassil for his corrupt activities. [https://t.co/deINHvoVbC](https://t.co/deINHvoVbC) [pic.twitter.com/A9opjKtftp](https://t.co/A9opjKtftp)
+> — Secretary Pompeo (@SecPompeo) [January 13, 2021](https://twitter.com/SecPompeo/status/1349477875930570752?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1349477875930570752](https://twitter.com/SecPompeo/status/1349477875930570752)
+盖特链接：[https://gtv.org/getter/5fffaf3287fabe2daf389604](https://gtv.org/getter/5fffaf3287fabe2daf389604)
+
+* * *
+
+【大选实况】1/13/2021 EST 5:30 PM 国务卿彭佩奥推文： 在叙利亚，用行动和问责取代了虚假的“红线”。
+
+【图文：我们现在对叙利亚的政策： • 阿萨德对平民使用化学武器，已得到惩戒 • 凯撒法案（叙利亚平民保护法案）对施暴者进行制裁 • 向叙利亚人民提供人道援助 • 对恶贯满盈的伊朗叫板 • 持续打击ISIS】
+
+
+
+> In Syria, replaced fake 'redlines' with action & accountability. [pic.twitter.com/qKAtVqqKso](https://t.co/qKAtVqqKso)
+> — Secretary Pompeo (@SecPompeo) [January 13, 2021](https://twitter.com/SecPompeo/status/1349483864914329603?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1349483864914329603](https://twitter.com/SecPompeo/status/1349483864914329603)
+盖特链接：[https://gtv.org/getter/5fffaf8687fabe2daf389627](https://gtv.org/getter/5fffaf8687fabe2daf389627)
+
+**By： 【秘密翻译组 G-Translators】**
 
 0
