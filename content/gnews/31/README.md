@@ -1,33 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特实况】1/13/2021 8am-11am 国务卿彭佩奥推文：美国优先&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/748725/)
+## 强国新冠疫苗，打？还是不打！（2）
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/749024/)
 
-**【大选实况】1/13/2021 EST 8:00 AM 国务卿彭佩奥推文： 【图片文字：美国优先】**
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture1-28.jpg)来源：[https://twitter.com/SecPompeo/status/1349340435626471425](https://twitter.com/SecPompeo/status/1349340435626471425)
-盖特链接：[https://gtv.org/getter/5fff58e987fabe2daf38661a](https://gtv.org/getter/5fff58e987fabe2daf38661a)
+撰稿：闲云野鹤
 
-**【大选实况】1/13/2021 EST 8:30 AM 国务卿彭佩奥推文：** #最大压力运动不仅限制了世界头号恐怖主义政权。它给了以色列及其邻国信心，让他们在温暖的和平中稳步前进。#亚伯拉罕协议
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture2-3.jpg)来源：[https://twitter.com/SecPompeo/status/1349347971633197059](https://twitter.com/SecPompeo/status/1349347971633197059)
-盖特链接：[https://gtv.org/getter/5fff596687fabe2daf386651](https://gtv.org/getter/5fff596687fabe2daf386651)
+审稿：Jenny 编辑：MG1
+![]()![](https://gnews.org/wp-content/uploads/2021/01/141-3.jpg)图片来自网络截图
+在强国国药集团宣布新冠灭活疫苗已获得强国药监局批准上市不久，就有业内专家对该疫苗的说明书做出了解读，这款98天“研制“成功的，有73种副作用的疫苗，打还是不打成为灵魂拷问！
 
-**【大选实况】1/13/2021 EST 9:00 AM 国务卿彭佩奥推文**： 一周后的今天，我将卸任国务卿一职，这个账号将被存档。请务必关注我 @mikepompeo （私人账号），请马上关注！
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture3-4.jpg)来源：[https://twitter.com/SecPompeo/status/1349355524463054852](https://twitter.com/SecPompeo/status/1349355524463054852)
-盖特链接：[https://gtv.org/getter/5fff5a0987fabe2daf386697](https://gtv.org/getter/5fff5a0987fabe2daf386697)
+今日一则标题为：**突发！国药控股董事长李智明因****“****个人原因****”****辞职**的新闻再次刷屏。新闻如下：
 
-**【大选实况】1/13/2021 EST 10:00 AM 国务卿彭佩奥推文： **我们改写了剧本。几十年来，外交政策 “专家 “声称，我们必须在以色列和巴勒斯坦人之间建立和平，然后才能在该地区达成和平协议。我们证明他们都错了。#亚伯拉罕协议
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture4-3.jpg)来源：[https://twitter.com/SecPompeo/status/1349370620132265984](https://twitter.com/SecPompeo/status/1349370620132265984)
-盖特链接：[https://gtv.org/getter/5fff5a6487fabe2daf3866b5](https://gtv.org/getter/5fff5a6487fabe2daf3866b5)
+国药控股12日在港交所公告称，董事会于2021年1月12日收到董事长李智明先生的辞呈。“由于个人原因，李智明向董事会提出辞去本公司董事长、执行董事、董事会提名委员会主席、董事会战略与投资委员会主席及董事会法律合规委员会委员职务，辞任即日起生效。”
 
-**【大选实况】1/13/2021 EST 10:30 am 国务卿彭佩奥推文：** 还记得这位中东问题“专家”吗（美国前副总统克里）？他说不可能发生。但我们做到了。 【转发克里当年的小视频】
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture5-2.jpg)来源：[https://twitter.com/SecPompeo/status/1349378169581621250](https://twitter.com/SecPompeo/status/1349378169581621250)
-盖特链接：[https://gtv.org/getter/5fff5ab287fabe2daf3866d0](https://gtv.org/getter/5fff5ab287fabe2daf3866d0)
+同时公告：由于个人原因，李辉先生辞任国药集团药业股份有限公司(国药股份)董事、总经理、战略委员会委员和审计委员会委员职务。
 
-**【大选实况】1/13/2021 EST 11:00 AM 国务卿彭佩奥推文**： 以色列与阿联酋、巴林、苏丹和摩洛哥之间的关系正常化，这是自1994年以来的首个此类协议，是一代人向和平迈出的最大一步。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture6.jpg)来源：[https://twitter.com/SecPompeo/status/1349385724412506116](https://twitter.com/SecPompeo/status/1349385724412506116)
-盖特链接：[https://gtv.org/getter/5fff5b2b87fabe2daf386707](https://gtv.org/getter/5fff5b2b87fabe2daf386707)
+根据公告，国药控股董事会已在当天依据公司章程规定，选举于清明代行董事长职权。
 
-By 【秘密翻译组G-Translators】
+就在高调公布新冠疫苗上市的12天后，国药集团董事长、总经理同日辞职。背后原因值得深究。
 
-+1
+国药控股是国药股份的控股方，持有国药股份54.72%股份。国药股份强国A股上市公司。根据国药控股官网，于清明是国药控股党委书记、执行董事。
+
+疫苗，将是未来全世界最关注的焦点之一，关乎人类生存。在这个关键时点，强国疫苗显露出的重重鬼影，不由令人深思。再次问：强国新冠疫苗，你打？还是不打？
+
+本人将持续关注事态的发展。
+
+（本文纯属个人观点）
+
+前文链接： [https://gnews.org/zh-hans/726491/](https://gnews.org/zh-hans/726491/)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-澳喜Logo.jpeg)
++4

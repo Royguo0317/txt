@@ -1,32 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美中共病毒单日死亡超4300人再创新高
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/748599/)
+## 英国首相约翰逊称中共病毒来自穿山甲
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/748930/)
 
-- 编辑：Victor Torres
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/images-1.jpg)rfi.fr
+正在蓬佩奥国务卿发起对中共病毒追责之际，英国首相约翰逊在前天的全球峰会（the One Planet Summit）上说，穿山甲是中共病毒的罪魁祸首【1】。此举显然有小骂大帮忙之嫌疑。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+天使科学家闫丽梦博士已经2发论文，无懈可击地论证了中共病毒的来源，全世界正义的人民正在被唤醒，正在认清邪恶中共的恶魔手段，并开始对邪恶追责、清算，中共急需挡箭牌，采取避实就轻的无赖手法。在这关头，差点非命于魔共病毒的约翰逊竟然首先出来挡驾，可见中共渗透力量的猖獗！
 
-**西班牙2021年1月13日电/西喜社——**美国的中共病毒死亡人数再创单日新高，超过4300人，当全国的注意力主要集中在国会大厦事件的余波上时。
+其实，在英国还是不乏明白事理的人，爱德华卢卡斯（Edward Lucas）在他的评论继续说道【2】：
 
-根据约翰·霍普金斯大学的数据，全国因中共病毒造成的死亡总数已经超过38万，并且正在快速接近二战中死亡的美国人数量，即约40.7万人。已确认的感染人数已超过2280万。
+“直到今天，支持病毒是从武汉海鲜市场中产生的突变理论的科学家们还没有找到一个令人信服的候选动物，官方的解释是，病毒与在中（共）国云南发现的蝙蝠病毒RaTG13有96%的同源性。
 
-由于该国同时面临政治危机，根据约翰·霍普金斯大学的统计，美国周二录得4327人死亡。亚利桑那州和加利福尼亚州一直是受影响最严重的州之一。
+但正如中（共）国教授肖博涛（Botao Xiao）2月份在一篇论文中指出的那样，中（共）国市场上没有这种蝙蝠出售，他们居住的洞穴在几百英里之外。
 
-每天的数字可能会被修改，但在过去的两个半月里，死亡人数一直在急剧上升，即使在疫苗推广的同时，美国目前也处于疫情最致命的阶段。新病例平均每天以近25万的速度增长。
+肖先生的那篇论文从网上消失了。
 
-根据疾病控制和预防中心的数据，超过930万美国人，即不到3%的人口，已经接受了他们的第一针疫苗。
+许多科学家私下里认为，通过实验室事故释放的工程病毒至少与一系列令人震惊的、不幸突变的想法一样可能。
 
-全国各地正在加紧努力。在体育场和其他地方开设了大规模的、直通车式的疫苗接种点，使人们能够通过车窗接种疫苗。
+……”【3】
 
-另外，越来越多的州开始为下一个群体—老年公民提供疫苗接种服务，各地最低年龄为65岁、70岁或75岁不等。截至目前，大多数地方都优先考虑医护人员和养老院居民。
+坚决揭露病毒真相，追责，唤醒全世界进行围剿邪恶的中共，看看还有几个“约翰逊”出来挡驾。排干世界的沼泽地，让邪恶彻底曝光于世！
 
-而川普政府周二宣布了加快疫苗接种行动的计划，释放全部供应剂量，而不是大量储备，以确保人们按时接种第二针。
+参考链接：
 
-**新闻来源：**[https://apnews.com/article/us-coronavirus-deaths-1-day-over-4300-1efb7805ae0ff217a4753ee89550771d](https://apnews.com/article/us-coronavirus-deaths-1-day-over-4300-1efb7805ae0ff217a4753ee89550771d)
+【1】[https://www.dailymail.co.uk/news/article-9138117/Boris-Johnson-blames-Chinese-Covid-saying-pandemic-triggered-demented-traditional-medicine.html](https://www.dailymail.co.uk/news/article-9138117/Boris-Johnson-blames-Chinese-Covid-saying-pandemic-triggered-demented-traditional-medicine.html)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+【2】[https://gnews.org/zh-hans/748437/](https://gnews.org/zh-hans/748437/)
 
-0
+【3】https://www.dailymail.co.uk/news/article-9140251/Trump-team-blame-China-lab-growing-Covid-19.html
+
++1

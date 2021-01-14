@@ -1,26 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中国多地鼓励民众就地过年
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/748526/)
+## 【大选推特实况】1/13/2021 8am-11am 国务卿彭佩奥推文：美国优先&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/748725/)
 
-- 编辑：Victor Torres
+**【大选实况】1/13/2021 EST 8:00 AM 国务卿彭佩奥推文： 【图片文字：美国优先】**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture1-28.jpg)来源：[https://twitter.com/SecPompeo/status/1349340435626471425](https://twitter.com/SecPompeo/status/1349340435626471425)
+盖特链接：[https://gtv.org/getter/5fff58e987fabe2daf38661a](https://gtv.org/getter/5fff58e987fabe2daf38661a)
 
+**【大选实况】1/13/2021 EST 8:30 AM 国务卿彭佩奥推文：** #最大压力运动不仅限制了世界头号恐怖主义政权。它给了以色列及其邻国信心，让他们在温暖的和平中稳步前进。#亚伯拉罕协议
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture2-3.jpg)来源：[https://twitter.com/SecPompeo/status/1349347971633197059](https://twitter.com/SecPompeo/status/1349347971633197059)
+盖特链接：[https://gtv.org/getter/5fff596687fabe2daf386651](https://gtv.org/getter/5fff596687fabe2daf386651)
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+**【大选实况】1/13/2021 EST 9:00 AM 国务卿彭佩奥推文**： 一周后的今天，我将卸任国务卿一职，这个账号将被存档。请务必关注我 @mikepompeo （私人账号），请马上关注！
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture3-4.jpg)来源：[https://twitter.com/SecPompeo/status/1349355524463054852](https://twitter.com/SecPompeo/status/1349355524463054852)
+盖特链接：[https://gtv.org/getter/5fff5a0987fabe2daf386697](https://gtv.org/getter/5fff5a0987fabe2daf386697)
 
-**西班牙2021年1月13日电/西喜社——**参考消息网1月13日报道，据拉美社1月11日报道，中共国政府出台各种措施，利用免费退票、严格隔离和薪资奖励等劝阻民众不要在传统的农历新年外出旅行，而是留在居住地过节，以遏制中共病毒疫情的反弹。
+**【大选实况】1/13/2021 EST 10:00 AM 国务卿彭佩奥推文： **我们改写了剧本。几十年来，外交政策 “专家 “声称，我们必须在以色列和巴勒斯坦人之间建立和平，然后才能在该地区达成和平协议。我们证明他们都错了。#亚伯拉罕协议
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture4-3.jpg)来源：[https://twitter.com/SecPompeo/status/1349370620132265984](https://twitter.com/SecPompeo/status/1349370620132265984)
+盖特链接：[https://gtv.org/getter/5fff5a6487fabe2daf3866b5](https://gtv.org/getter/5fff5a6487fabe2daf3866b5)
 
-报道称，北京、上海、广东、河南、湖北等地都向农民工发出通知，鼓励他们留在就业地，除不可抗力原因外，不要返回家乡过春节。
+**【大选实况】1/13/2021 EST 10:30 am 国务卿彭佩奥推文：** 还记得这位中东问题“专家”吗（美国前副总统克里）？他说不可能发生。但我们做到了。 【转发克里当年的小视频】
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture5-2.jpg)来源：[https://twitter.com/SecPompeo/status/1349378169581621250](https://twitter.com/SecPompeo/status/1349378169581621250)
+盖特链接：[https://gtv.org/getter/5fff5ab287fabe2daf3866d0](https://gtv.org/getter/5fff5ab287fabe2daf3866d0)
 
-例如，武汉市要求，全国低风险地区返汉返乡过春节的人员，全部要持7天内核酸检测阴性证明，不能提供核酸检测阴性结果的，街道为其安排核酸检测并进行14天的社区健康管理。
+**【大选实况】1/13/2021 EST 11:00 AM 国务卿彭佩奥推文**： 以色列与阿联酋、巴林、苏丹和摩洛哥之间的关系正常化，这是自1994年以来的首个此类协议，是一代人向和平迈出的最大一步。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture6.jpg)来源：[https://twitter.com/SecPompeo/status/1349385724412506116](https://twitter.com/SecPompeo/status/1349385724412506116)
+盖特链接：[https://gtv.org/getter/5fff5b2b87fabe2daf386707](https://gtv.org/getter/5fff5b2b87fabe2daf386707)
 
-报道还称，在中国的一些企业中，春节期间被安排加班的员工不仅有3倍工资，每天还有额外奖金。铁路公司和许多航空公司已经提供免费退票服务。
+By 【秘密翻译组G-Translators】
 
-报道指出，国务院应对新冠肺炎疫情联防联控机制综合组将负责监督全国的情况，因为在春运期间，总会有一定数量的人员在全国各地流动。今年春运预计将从1月28日持续至3月初。
-
-**新闻来源：**[http://m.cankaoxiaoxi.com/china/20210113/2432004.shtml](http://m.cankaoxiaoxi.com/china/20210113/2432004.shtml)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
-
-0
++1

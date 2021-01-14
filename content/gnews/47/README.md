@@ -1,94 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 会计，财报，审计入门基础与介绍（十一）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/742196/)
+## 班农战斗室WARROOM精选 640期 班农再次确认川普总统演讲中没有任何煽动暴力的言论 川普总统发推不会参加1月20日就职典礼
+` 新闻译制组` [轉載自GNews](https://gnews.org/zh-hans/748615/)
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/WX20201228-134452@2x.png)
-Picture Source: https://www.groomassocies.com
+供稿：班农战斗室译制组
 
-在第十一篇中是展示财务审计所涉及现金流表中各项目内容后的具体量化分析步骤与技巧。有助于投资人或审计师依照逻辑且合理的量化程序对于财务报表中的现金流表进行检阅，并有效衡量实际商业中的运营质量。
+我认为他们的公开观点是：哦 只有12天了 对吧 而弹劾是个大动作 第25号修正案可以立即生效 不是一个漫长的过程 所以我认为这就是他们会说的 我认为现实只剩下12天了 逃离且不必再见到唐纳德·川普 即使我们坐在办公室里 暴民被鼓动冲入国会 宣布截至昨晚深夜的一名国会警察丧生 加上其他人员 显然 一名女士被枪杀 然后我们要坐在这里说：咳 让我们再忍12天吧 不 让我们表明立场 是的 让我们表明立场 我想再问你一次 玛姬 你在场 当时有任何鼓动冲击国会山的发言吗？ 有任何一位演讲者这么说了吗？ 从头到尾都没有 你是事件的见证者 有人那么说过吗 没有 绝对没有 我鼓励媒体人回去看看川普的演讲 你们不会听到一句鼓动的话 这是如此可耻 他们审查他呼吁和平的视频 然后将其标记为”煽动暴力” 然后完全改变叙述方式 并声称是川普总统号召大家这样做的 他不是说实际上 他不是说 我知道你们当时在场 我想确认一下 他是不是用了”和平的”这个词 是的 他说了 他实际上说：去进行和平的抗议 是的 和平的 演讲最后他告诉人们：我希望大家保持和平 这就是为什么媒体根本没播放他的演讲视频 那为什么CNN和MCNBC在说是他煽动叛乱分子？政治演说是完全不同的演讲 你可以用政治演讲让人热血沸腾 那可不是一个让人沸腾的演讲 那是在寒冬中的演讲 对吗？是 实际上 作为总统我觉得用”温和 温顺”更准确我们要说一下最新消息吗 哦对 玛姬说吧 这是个大新闻 插播一条最新消息 川普总统在推特上说：应所有人的要求 我不会参加1月20日就职典礼 那好 我们之前已经说过了 对吧 不会承认败选 也不会参加就职典礼 他绝对不应该去 绝对不应该去什么就职典礼 我想这就是加菲尔德昨天晚上说的 不可能用虚假的东西来弥合国家的裂痕 这个国家已经分裂了 国家分裂了 这是一个分裂的国家 本·萨斯（Ben Sasse）的老家在哪？ 也许我们应该谈谈 请说说本·萨塞的事情 有他的推文吗？ 他的想提起诉讼 用弹劾法案 女士们 先生们 他们之所以要这样做 想确保你们了解发生了什么 不只是要毒死他 他是唯一被弹劾两次的总统 他们想再搞他一次 参议院有很多人在摩拳擦掌 有很多建制派 很多亲共团体 一个很大的捐助团体 这些人想竞选总统 这样他们就会在听证会上被善待 他们可以在他离职后再这样做 为什么？ 因为这能阻止他再次竞选 这就是他们对川普的恐惧 这就他们对川普主义的恐惧 这就是他们对你们的恐惧 对吧 他们想解决掉 他们想立即解决问题 他们认为现在时机已到 杰克 萨塞说：我会考虑众议院提出的 任何能让川普总统走人的条款 因为正如我告诉你的那样 我相信总统无视他的任职誓言 川普总统 我正在看我们的现场直播 我在看推特话题#WarRoomPandemic 您的追随者 那些相信您的人 现在最需要的就是您打开那些文件 解密吧 让我们看看发生了什么 朱利安尼市长之前说过一个更重要的观点 大部分文件会令人尴尬 记住布拉德利·曼宁（Bradley Manning维基机密喂料者） 公开了国务院数百万条电报后 最令人震惊的是成千上万的政府雇员在上班时间闲逛 聊他们的假期 这就像……如果这是一家公司，它早就破产了。这就是为什么他们不想……
 
-1. The Universe Ratio：Return on Asset，Return on Equity
-2. Value, Purpose, and Limitation of Ratio Analysis
-    - Limitation:限制
-    - The Heterogeneity and Homogeneity of a company’s operating activities 公司经营的同质性与异质性
-    - The need to determine whether the result of the ratio analysis is consistent 需要判断比率结果是否是连续一致的
-    - The need to use Judgment 需要判断比率的合理性，因为比率没有绝对正确或错误
-    - The use of Alternative Accounting Method 替代的会计方法/准则
-    - Common Ratio uses in Financial Analysis 财报中的普遍比率
-3. Interpretation and Context
-    - Company goals and strategy 公司目标与策略
-    - Industry Norms（Cross-Section Analysis）
-    - Economic Condition 经济条件
-4. Activity Ratios
+Bannon
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P1.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P2-1.png)
-- 注意：通常情况下无法给出平均库存Average Inventory
-- 使用代替公式：Beg Inv Gross  + End Inv Gross / 2
-- 而且Cost of good Sold 也应该排除一切补偿
-- Higher Inventory Turnover / Lower DOH：高度有效的库存周转
-- Highly Effective Inventory Management 高度有效的库存管理
-- Higher Receivables Turnover / Lower DSO ：
-- Highly Efficiency of the company credit / Collection Procedure
-- 高度有效的客户借贷额度周转程序/步骤
-- Higher Payable Turnover and the number of days of payable
-- 高度有效应付账款收转与应付账款周转天数
-- Not making full use of available credit facilities / Company could be better 更少使用借贷额度的公司可能会更高
-- Working Capital Turnover / Working Capital = Current Asset – Current Liabilities
-- How efficiently the company generates revenue with its working capital高度有效的可产生现金流的工作资本
-- Fixed Asset Turnover 固定资产周转
-- How efficiently the company generates revenue with its investment in fixed asset 高度有效产生的流水金额的固定资产投资
-- Total Asset Turnover 资产共计周转
-- How efficiently the company generates revenue with a given level Asset高度有效产生的流水金额的既定资产水平
+噢，我不认为在解密这方面仅仅是事关丢脸的问题。
 
+Maxey
 
-5. Calculation of Liquidity Ratio
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P3.png)
-- Higher current ratio: higher level of liquidity更高的流动性
-- Higher Quick Ratio: greater liquidity (More conservative)更好的流动性
-- Cash Ratio: liquidation in a crisis situation 展示了应对危机的能力
-- Defensive Interval Ratio: How long the company
-- Cash Conversion Cycle: amount of time that elapses from the point when a company
-- Invest in working capital until the point at which the company collect cash
+噢，当然。那将是一个大事件
 
+Bannon
 
-6. Solvency Ratios
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P4.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P5.png)
-1. Higher Interest Coverage 更高的利息覆盖
-    - Stronger solvency offering greater assurance that company can serve its debt from operating activity
-    - The number of time company’s EBIT can cover interest payment
+那确实将是个大事件。那将会谈及事情是如何组织的。从一开始事情是如何发生的。我称之为“取消”项目。他们想取消2016年总统大选。他们不希望特朗普当总统。我还想谈谈米歇尔·奥巴马的事。
 
+Raheem
 
-1. Higher Fixed charge coverage ：更高的固定支出覆盖
-    - Stronger solvency offering greater assurance that company can serve its debt from normal earning
-    - The number of time company’s earnings can cover interest and lease payment
-2. Calculation of Profitability Rations
+那不是就职典礼，因为那根本不是选举，好吗？ 让我们记住这一点。人们今天会谈论它的。人们会谈论它，并提醒自己：我为什么要去？ 这根本不是就职典礼，因为没有选举。选举是各州法律册上的内容，而这些州的选举并没有像样进行。因此，这不是选举。这更像是一个闹着玩的数东西（选票）的游戏。这更像是一项问卷调查。 对不对？这是一项被操纵的问卷调查。但这不是选举。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P6.png)
-1. Calculation of Valuation Ratios and Related Quantities
+Bannon
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P7.png)
-1. Industry-Specific Ratios 工业特殊比率
+为什么呢？您认为这不是选举的逻辑是因为没有合法举行？对吗？选民欺诈，选票欺诈，选举欺诈都是非法的，然后我们还有宪法问题……这就是为什么从宾州到乔治亚州甚至在亚利桑那州，他们都希收回选举人。他们希望至少进行10天的进一步调查。然后我相信他们会取消他们的选举人资格。这就是一些当时要求取消资格的人跟我说的。这将被称为“临时应急”选举。我在9月份就谈到了这一点。“临时选举”基本上就是说11月3日没有发生选举。那个选举不能算数。因为它有太多的不合规定之处，所以我们不能指望那时的选举，我们必须通过设立众议院进行临时选举。那才是我们今天应该在做的事。那才是我们今天本应该争论的事，前提是如果麦克·彭斯（Mike Pence）…
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P8.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P9.png)
-13. The Credit Rating Process 信用评级步骤
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P10.png)
-14. Segment Ratios
-![]()![](https://gnews.org/wp-content/uploads/2021/01/111_P11.png)
-15. Model Building and Forecasting 建模与演绎
+Bannon
 
-- 推演未来,分析师最有可能使用的方法Developing Forecast
-- The result of financial analysis / Analysis of other Information and Judgment
-- Sensitivity Analysis (Known as “what if”) 敏感性分析
-- Scenario Analysis 情景演绎分析
-- Simulation 模拟
+他们试图提高麦克·彭斯（Mike Pence）的地位，以鼓励主流媒体和福克斯。他们不会得逞的。原因在这里：加菲曾经说对了。“让美国再次强大”的这帮共和党人不是草根。他们阅读了所有信息。他们去所有的站点考查。实际上，他们带给了我们惊人的信息。您可以尝试当前打着麦克·彭斯Mike Pence的个人招牌，但那不会奏效的。他（彭斯）做出了决定。没问题。他是美国副总统。他是参议院的副总理。那是他的角色。他做出了决定。他将不得不为之负责。或许从现在起100年后，共和党人民将能够谈论这件事。谈论那个决定在历史上的意义。好的。我们将进行短暂的广告休息。之后我们有伊士曼教授。我想在这里谈谈米歇尔·奥巴马的废话，她说要拿下特朗普。记得吗？特朗普总统在社交媒体平台上的一系列事情，才是她们真正害怕的。他们不希望他能够越过主流媒体。而这正是川普在15和16年崛起的原因。他不需要主流媒体。他可以借由社交媒体的这些新工具进行传播。他们现在要打击他的这一能力了。这就是为什么他们要付出巨大的努力，试图以各种可能的方式阻止特朗普上社交媒体，包括他颇具影响力的Twitter帐户。好。短暂的广告休息。接下来，我们将与John Eastman教授一起回来。
 
-
-Author：搞笑排行榜
-
-Original opinion article by Himalaya G-farm Vancouver
-
-2021/01/11
-
-0
++1
