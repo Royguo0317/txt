@@ -1,42 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推文实时报】闫丽梦博士：如果中共政权存续下去，就不会有真相&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/748466/)
+## 推特封禁川普导致市值流失二十亿
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/749060/)
 
-**【大选实时报】**美东时间11:30AM 英雄科学家闫丽梦博士推文：
+![]()![](https://gnews.org/wp-content/uploads/2021/01/WhatsApp-Image-2021-01-13-at-18.11.31.jpeg)
+推特 (NYSE:[TWTR](https://cn.investing.com/equities/twitter-inc))上周五宣布永久封禁了美国总统川普的账号之后，周一，这只社交媒体股盘中一度大跌12%，截至收盘下挫6.4%，市值蒸发了20亿美元。
+
+其他社交媒体股也跟随下跌，只不过跌幅稍窄。Facebook (NASDAQ:[FB](https://cn.investing.com/equities/facebook-inc))下跌了近4% ，这个社交媒体巨头也禁止川普至少在任期结束之前发贴。
+
+不仅如此，亚马逊也在周日切断了川普支持者青睐的社交媒体平台 Parler的网站托管服务。此前谷歌、苹果也已将Parler的应用从其应用商店中下架。苹果 (NASDAQ:[AAPL](https://cn.investing.com/equities/apple-computer-inc))、谷歌 (NASDAQ:[GOOG](https://cn.investing.com/equities/google-inc-c))、亚马逊 (NASDAQ:[AMZN](https://cn.investing.com/equities/amazon-com-inc))昨日均跌逾2%。当然，比起旗下业务众多的这些科技巨头，推特受到的伤害似乎才是最深的。夺走了川普的“话筒”之后，推特究竟会受到多大的影响？
+
+**失去平台大****V****后的推特，用户参与度或下滑**
+
+单就拥有8800万粉丝的特朗普账号本身来看，伯恩斯坦的互联网分析师马克·什穆里克（Mark Shmulik）认为，推特的用户数可能会出现“微幅的下滑”，不过从业务的角度来看，用户参与度面临的风险更高。
+
+这位分析师表示，用户使用时长将受到更大的影响。虽然川普账号的粉丝数只排第六，但其推文的用户参与度是其他推特大V的3至4倍。伯恩斯坦对推特给出了“与大盘持平“的评级。
+
+D.A. Davidson的科技分析师汤姆·福特（Tom Forte）更悲观地指出，现在的风险是，川普可能会推出自己的社交网络平台，或转移到其他平台，从而令推特面临竞争压力。推特也可能因此而失去针对川普支持群体的广告客户。这位分析师预计，推特10%的盈利面临风险。
+
+有趣的是，封禁川普账号之后，推特损失的市值也与一位分析师在2017年的一项估计相吻合。当时，这位分析师表示，川普通过吸引用户，让他们留在推特这个平台上，为平台创造了约20亿美元的收入。
+
+**不同的声音：封禁川普，反而更受广告主欢迎？**
+
+当然，今非昔比。因为，如今“川普”是广告客户屏蔽第二多的关键词，仅次于“新冠病毒”。所以从广告方面的影响来看，市场上也有不同的声音。伯恩斯坦的什穆里克就认为，无论是推特和Facebook，都可以从 “品牌安全广告“库存的增加中受益。
+
+“大多数广告商都不会碰与特朗普相关的任何事情。如果推特上的时间线没有经常被特朗普的推文或者他对其他推文的反应所占领，那么更多的广告商可能会视推特为一个对品牌形象很安全的网站，从而使推特获得上调广告价格的空间，”什穆里克称。
+
+哥伦比亚商学院研究消费者行为和科技公司的教授桑德拉·马茨（Sandra Matz）认为，推特的股票最终将反弹——就和它的用户群一样。很可能右翼的用户离开了，但那些支持封禁的左翼用户被吸引过来了。
+
+马茨还表示，人们的意图和实际行动之间也会存在差异。虽然某些右翼推特用户对平台感到愤怒，但之后当中大部分人的这种情绪会消失，并且重新捡起使用推特平台的习惯。
+
+**这会是推特内容监管策略的分水岭吗？**
+
+不过，如果继续深挖这次封禁川普账号事件的重要性，可以说，这将是推特的平台监管策略重要分水岭。
+
+MoffettNathanson分析师迈克尔·内桑森（Michael Nathanson）提到，在以往，推特上用户帖子构成了社会问题的时候，大多数公司高管似乎都不会在意，因为这意味着平台的日常参与度在不断增长；而展望未来几年，推特是否会对平台内容监管采取一个更加激进的态度？这会对日活跃用户的变现造成怎样的影响？这是推特投资者不得不思考的一个风险。
+
+【本文来自Investing.com】
+
+作者：圆成小象
+
+翻译报道-2021/01/13
+
+温哥华圆成农场
 
 
-问：给美国人民的警示与解决方案
-– 别再相信中共和世卫组织
-– 如果中共政权存续下去，就不会有真相 
-– #COVID19是中共有意放出的解放军生化武器
-– 美国人现在还可以用选票说话，比在中共国的人更自由 
-– 用你的勇气做出正确的决定!疫情战争室
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture3-3.jpg)来源：[https://twitter.com/DrLiMengYAN1/status/1349393353322999808](https://twitter.com/DrLiMengYAN1/status/1349393353322999808)
-盖特链接：**https://gtv.org/getter/5fff27c587fabe2daf384f31**
-
-**【大选实时报】1/13/2021 美东时间11:13 AM Jack Posobiec推文：**
-
-如果你希望你的议员代表们真正听到你的声音，请不要致电他们的官方办公室，致电他们的竞选财务部门，并告诉他们将你从名单（捐款名单）中删除。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture-121.jpg)来源：[https://twitter.com/JackPosobiec/status/1349373898576506882](https://twitter.com/JackPosobiec/status/1349373898576506882)
-盖特链接：[https://gtv.org/getter/5fff1cfa87fabe2daf3848a4](https://gtv.org/getter/5fff1cfa87fabe2daf3848a4)
-
-**【大选实时报】1/13/2021 美东时间10：38AM 章家敦推文：**
-
-中共政权在我们街上煽动暴力，把中共病毒传播至我们的海岸，穿越我们国境走私自动武器零件和伪钞。中共领导人对我们发起人民战争。我们必须和中共脱钩来反击。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture1-27.jpg)来源：[https://twitter.com/GordonGChang/status/1349380426142523393](https://twitter.com/GordonGChang/status/1349380426142523393)
-盖特链接：[https://gtv.org/getter/5fff1f7a87fabe2daf384a4c](https://gtv.org/getter/5fff1f7a87fabe2daf384a4c)
-
-**【大选实时报】1/13/2021 美东时间8:43AM Raheem Kassam推文：**
-
-这是最后一封来自YouTube的 @anangbhai (Anang Mittal)发给我的邮件，然后第二天战斗室的账号就被删除了。 是的，显然他们本来是在为我们 “准备一个奖励”，然后突然决定删除我们的账户。 我们会公布Anang、Erica和Google的其他人讨论的一切。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture2-2.jpg)来源：[https://twitter.com/RaheemKassam/status/1349354168767700993](https://twitter.com/RaheemKassam/status/1349354168767700993)
-盖特链接：[https://gtv.org/getter/5fff235987fabe2daf384cb3](https://gtv.org/getter/5fff235987fabe2daf384cb3)
-
-
-
-By 【秘密翻译组G-Translators】
-
-0
++1

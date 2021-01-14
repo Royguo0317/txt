@@ -1,81 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国务院取消政府与台湾接触的所有限制
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/748260/)
+## 英国首相约翰逊称中共病毒来自穿山甲
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/748930/)
 
-*新闻来源：《华盛顿时报》； 作者：比尔·格茨； 发布时间：2021年1月9日*
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-*翻译/简评：wmorpho；校对：Julia Win；审核：万人往；Page：Daoiii*
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/images-1.jpg)rfi.fr
+正在蓬佩奥国务卿发起对中共病毒追责之际，英国首相约翰逊在前天的全球峰会（the One Planet Summit）上说，穿山甲是中共病毒的罪魁祸首【1】。此举显然有小骂大帮忙之嫌疑。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/0fMMyFQSjbUF7/images/c3f96f11-8f61-4097-b196-580816536e36.jpg?asset_id=3fa07a65-b0ea-4b7b-b22a-51a674d1bd4b&amp;img_etag=%22a889dddd50359220c6fe866d49493d7c%22&amp;size=2560)](https://spark.adobe.com/page/0fMMyFQSjbUF7/images/c3f96f11-8f61-4097-b196-580816536e36.jpg?asset_id=3fa07a65-b0ea-4b7b-b22a-51a674d1bd4b&amp;img_etag=%22a889dddd50359220c6fe866d49493d7c%22&amp;size=1024)
+天使科学家闫丽梦博士已经2发论文，无懈可击地论证了中共病毒的来源，全世界正义的人民正在被唤醒，正在认清邪恶中共的恶魔手段，并开始对邪恶追责、清算，中共急需挡箭牌，采取避实就轻的无赖手法。在这关头，差点非命于魔共病毒的约翰逊竟然首先出来挡驾，可见中共渗透力量的猖獗！
 
-***简评：***
+其实，在英国还是不乏明白事理的人，爱德华卢卡斯（Edward Lucas）在他的评论继续说道【2】：
 
-**美国国务院取消了美国政府与台湾接触的所有限制，其中包括终止与台湾在外交和军事接触的所有限制。此举旨在提升美国与台湾的外交关系，并结束“安抚中共国”条款的束缚。**
+“直到今天，支持病毒是从武汉海鲜市场中产生的突变理论的科学家们还没有找到一个令人信服的候选动物，官方的解释是，病毒与在中（共）国云南发现的蝙蝠病毒RaTG13有96%的同源性。
 
-**这是国务卿迈克·彭佩奥在任期即将结束之际采取的行动，也意味著美国对中共国长达50年的绥靖外交政策宣告结束，并在专制与自由民主世界之间清楚地画出了界线。他说：“我们两个民主国家（美国和台湾）的共同价值观是个人自由、法治和对人的尊严的尊重”。彭佩奥以无比的勇气，纠正了在他之前的历任国务卿对中共国外交政策的错误，不仅挽救了美国，挽救了台湾，更是挽救了全世界免于落入共产红魔的控制。彭佩奥这个伟大的举动将载入史册并被万代颂扬。**
+但正如中（共）国教授肖博涛（Botao Xiao）2月份在一篇论文中指出的那样，中（共）国市场上没有这种蝙蝠出售，他们居住的洞穴在几百英里之外。
 
-# 美国国务院取消了美国政府与台湾接触的所有限制
+肖先生的那篇论文从网上消失了。
 
-**此举标志着美国与北京政权更进一步的竞争对手关系**
+许多科学家私下里认为，通过实验室事故释放的工程病毒至少与一系列令人震惊的、不幸突变的想法一样可能。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/0fMMyFQSjbUF7/images/2c4764dc-7e7d-4f13-ae28-f40488ee3807.png?asset_id=52f97c04-4105-40e3-bc45-bd6cd86541c5&amp;img_etag=%222bafa86820a02a2a7b53d672d95dc9ca%22&amp;size=2560)](https://spark.adobe.com/page/0fMMyFQSjbUF7/images/2c4764dc-7e7d-4f13-ae28-f40488ee3807.png?asset_id=52f97c04-4105-40e3-bc45-bd6cd86541c5&amp;img_etag=%222bafa86820a02a2a7b53d672d95dc9ca%22&amp;size=1024)在华盛顿美国国务院的新闻发布会上发表讲话。根据美国驻联合国代表团透露，克拉夫特将于2021年1月13日至15日前往台北，与台湾高级别同行和外交界成员会面，以增进美台关系并表示将持续支持台湾。 （美联社照片/ 帕特里克·塞曼斯基，文件）\*\*文件\*\*
+……”【3】
 
-**原文翻译：**
+坚决揭露病毒真相，追责，唤醒全世界进行围剿邪恶的中共，看看还有几个“约翰逊”出来挡驾。排干世界的沼泽地，让邪恶彻底曝光于世！
 
-美国国务院周六宣布终止与台湾在外交和军事接触的所有限制，此举旨在提升美国与台湾的外交关系并结束“对中共国的绥靖政策”。
+参考链接：
 
-即将离任的国务卿迈克·彭佩奥采取的这项行动，意味着美国政府的高级官员和军官现在可以自由地前往台湾。
+【1】[https://www.dailymail.co.uk/news/article-9138117/Boris-Johnson-blames-Chinese-Covid-saying-pandemic-triggered-demented-traditional-medicine.html](https://www.dailymail.co.uk/news/article-9138117/Boris-Johnson-blames-Chinese-Covid-saying-pandemic-triggered-demented-traditional-medicine.html)
 
-过去，美国的大多数高级军官被禁止到台湾旅行，级别较低的军官也不能穿军装，必须着平民装束才能前往台湾。
+【2】[https://gnews.org/zh-hans/748437/](https://gnews.org/zh-hans/748437/)
 
-美国政府高级官员和外交官也被禁止到台湾旅行，以免惹怒北京。
+【3】https://www.dailymail.co.uk/news/article-9140251/Trump-team-blame-China-lab-growing-Covid-19.html
 
-美国国务院本周宣布，美国驻联合国大使凯利·克拉夫特将前往台湾。在宣布这一消息之前，中共国最近对香港的民主派议员进行了镇压。
-
-此举预计会激怒北京。北京方面曾抱怨美国政府没有遵循有关中美关系的联合公报。
-
-彭佩奥先生在宣布新政策时表示，美国单方面采取的复杂的自我限制措施，“目的是安抚北京的共产党政权。”
-
-他说：“美国的自我限制措施将不复存在。”他补充说，过去的所有限制现在都已取消。
-
-彭佩奥先生说：“美国各执行分支机构应意识到，国务院先前授权给国务卿发布的有关对台关系的所有‘接触准则’都是无效的。”
-
-目前尚不清楚新政策是否会影响美国海军军舰或空军军机对台湾的访问，为了避免惹恼中华人民共和国，美国海军军舰或空军军机对台湾的访问是受限制的。
-
-过去，所有上校或海军上尉及以上级别的军官对台湾的访问都受到严格限制——尽管1979年《台湾关系法》规定，在台湾受到中共国大陆攻击的时候，美国有义务出兵保护台湾。
-
-彭佩奥先生说，美台关系仍将通过非营利性的台湾美国协会(American Institute in Taiwan)来进行。
-
-台湾在美国的外交代表是通过类似的台湾经济和文化代表处(Taiwan Economic and Cultural Representative Office，简称TECRO)进行的。
-
-彭佩奥先生废除了过去规范行政部门机构与台湾接触的《外交事务手册》和《外交事务手册》中的所有章节。
-
-在川普政府之前，美国的政策主要由亲中共国的官员为主导，他们倾向于最终结束或严重降低与台湾的关系，以便与北京发展更紧密的关系。
-
-例如2018年，负责东亚事物的代理助理国务卿苏珊·桑顿(Susan Thornton)被迫退休，因有消息称，她下令从国务院的两个网站上删除台湾国旗。
-
-川普政府大幅增加了对台湾的军售。自2017年以来，美国政府已向台湾政府提供了超过182亿美元的军售，包括80亿美元的F-16战斗机。
-
-新政策旨在遵循《台湾关系法》(Taiwan Relations Act)，该法规定与台湾的所有关系都是非官方的，因此，国务院和五角大楼官员不应采取任何限制。
-
-1979年，台北被联合国取消正式成员国的资格，美国与中共国大陆政府建立外交关系，并制定了对台湾的外交限制。
-
-台湾是一个自治的岛国，在中国共产党和中国国民党军队的内战中分裂出来。国民党逃到台湾，台北政府继续宣称自己是中国的合法政府。
-
-“我们两个民主国家（美国和台湾）在个人自由、法治和尊重人类尊严方面有着共同的价值观。”彭佩奥先生说：“今天的声明是确认，美台关系不需要、也不应该因我们的常设官僚机构自我强加的限制所束缚。”
-
-[原文链接](https://www.washingtontimes.com/news/2021/jan/9/state-department-lifts-all-restrictions-government/)
-
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：【英国伦敦喜庄园编辑部】-[点击spark adobe版](https://spark.adobe.com/page/0fMMyFQSjbUF7/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/0fMMyFQSjbUF7/images/d21a5b9d-44e1-4554-9bfb-4176d962db31.jpg?asset_id=c3c7952b-6bac-4a83-84d5-ddf2b4854288&amp;img_etag=%22fd7f5a55b12fe2586e1cb0779cb7b95d%22&amp;size=2560)](https://spark.adobe.com/page/0fMMyFQSjbUF7/images/d21a5b9d-44e1-4554-9bfb-4176d962db31.jpg?asset_id=c3c7952b-6bac-4a83-84d5-ddf2b4854288&amp;img_etag=%22fd7f5a55b12fe2586e1cb0779cb7b95d%22&amp;size=1024)
-
-0
++1
