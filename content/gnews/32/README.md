@@ -1,24 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本银行行长：因疫情或出台缓解措施
-` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/753110/)
+## 【每日快讯】14/01/2021:拜登行政班子成员之一被FBI认定是中共招募的间谍 有证据表明，被害女兵是被两名安提法成员举起来导致被枪杀
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/754473/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/a2d3-ivmqpci9749406.jpg)
-日文翻译： 文战 （京都富士会） 
-审核校对：招财娘娘
- 编辑排板 ：山顶之风
+**制作:Cantonese工作室**
+**播报：【安妮 】资料收集：【Ruby】【Cathy】【Elaine】【安妮】 海报制作：【EA】**
+**【文绉绉 】【文静】 视频制作：【尕鱼儿】【向阳**】
+摘要:
 
-据路透社报道，日本銀行行长黑田東彦（Haruhiko Kuroda）在1月14日上午的分行行长会议上发表了讲话，他说＂留意新冠病毒疫情的影响，如有必要将毫不犹豫地采取其他缓解措施＂。并将采取货币宽松措施。 尽管处境艰难，但日本国内经济＂正在复苏＂，并认为随着新冠病毒的影响逐渐减弱，进而出现改善的趋势。
-
-会议中说，国内经济的复苏步伐可能仍将保持温和，但是随着新冠病毒的影响在全球范围内稳定下来，并且海外经济重回增长道路，预计日本经济将进一步改善。
-
-关于货币政策管理，行长表示将继续执行当前的政策，以实现“价格稳定目标”为2％。 根据新冠病毒对策而引进的“三大支柱”，将努力进行对企业等的资金支持并稳定维持金融市場。预计政策利率将保持在或低于当前的长期和短期利率水平。
-
-尽管不包括新鲜食品在内的消费者价格（核心CPI）同比变化暂时预计仍为负数，但实际上由于经济改善和原油价格下跌的影响，其已转为正位数。增长率将逐步提高。
-
-
-
-[https://lin.ee/1gMdOAl?utm\_source=line&utm\_medium=share&utm\_campaign=none](https://lin.ee/1gMdOAl?utm_source=line&amp;utm_medium=share&amp;utm_campaign=none)
-
-0
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-65.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/2-40.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/3-29.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/4-26.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/5-24.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/6-17.jpg)
++5

@@ -1,34 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0110:川普总统不欠我们的,我们不要变成给鸡蛋的故事
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/753609/)
+## 路德直播重磅: 郭文贵先生起诉美大律师楼胜诉【法庭令+备忘录】全文翻译
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/753028/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/封面-23.png)
-撰稿：巴黎七星农场；审核：喜马拉雅的馍夹肉；校对：Maarago
+**文件下载链接：**
 
-篇首说明：郭文贵先生在[2021年1月10日 文贵直播](https://gtv.org/video/id=5ffb0d22f579a75e0bcf7288)直播中谈到了川普总统被社交媒体禁声所反衬的GTV、GNEWS的力量和实际价值，谈到了圣格战通道及沼泽地成就的人间战争中的传奇——瑞士，谈以了为什么中国人已经远离了文明，谈到了爆料革命的战友们不能成为给鸡蛋故事是被给鸡蛋的人，谈到了郭文贵先生自己安全不安全的问题和担心投资安全如何应对的问题，谈到了爆料革命的原则，谈到了怀疑爆料革命以及把爆料革命当成赚钱和洗白工具的人应该离开的问题，谈到了亚洲有台湾和北韩分别意味着什么的问题，谈到了川普总统会怎样的问题，谈到了接下来爆料革命要做什么的内容，谈到了接下来战友们要注意什么和要做什么的内容，谈到了GTV、GNEWS如果面临PARLER被移除的情况有没有应对的内容。本系列将逐一对上述内容进行上传，本系列所有文字内容根据[郭文贵2021年1月10日直播 20210110\_1](https://gwins.org/cn/milesguo/22410.html)稍做调整，在此特别向整理文字纪要的[茅屎坑](https://gwins.org/cn/name/12737.html) 爱丽丝 文甜小妹 擀面老丈人 [亲爱的兄弟姐妹（文姐）](https://gwins.org/cn/name/22375.html) [通天大道](https://gwins.org/cn/name/20715.html)战友致谢！
+- [【英文原文】法庭令](https://gnews.org/wp-content/uploads/2021/01/Order.pdf)
+- [【英文原文】法庭备忘录](https://gnews.org/wp-content/uploads/2021/01/Opinion-Ps-MTC.pdf)
+- [【中文翻译】法庭令](https://gnews.org/wp-content/uploads/2021/01/1-14-政庇文档_法庭令-2-full.pdf)
+- [【中文翻译】法庭备忘录](https://gnews.org/wp-content/uploads/2021/01/1-14-政庇文档_法庭令-2-full.pdf)
 
-以下为本文第五部分：川普总统不欠我们的,我们不要变成给鸡蛋的故事
 
-据[2021年1月10日 文贵直播](https://gtv.org/video/id=5ffb0d22f579a75e0bcf7288)时间点49:33——
+**直播视频链接：**
 
-人家川普总统，川普总统人家帮咱，人家不欠咱的，人家不是咱的总统，人家严格讲是跟中国人，人家给你脸、给你帮助，你那是额外的。**我们中国人真的在历史上，只要你对我好你就应该再好，那你再好完了还得再再好，一次不好都不行。**
+- [【路德时评】2021年1月14日直播中详细分析了此判决](https://gtv.org/video/id=6000ef4df579a75e0bd83efb) （从1:11:14 处开始）
+- [【2017年郭先生谈：中共骇掉代表他申请政庇的律所的电脑】](https://gnews.org/zh-hans/753136/)
 
-我听过中国的将军、我听过中国的教授、我听过中国的常委，我听过现任的习近平书记亲自面对面听他讲过同一个故事，就是吃鸡蛋的故事、在食堂的那个故事，我就纳闷儿为什么中国共产党都说这个故事，从当时的北京军区司令周司令到现在的习近平，我都亲自听他们说过，就是在食堂的一个人，我不吃鸡蛋，对面人吃鸡蛋，说我发的鸡蛋你吃，就永远给他吃，有一天他拿出的时候我也想吃了，最后那个人那不愿意了，你凭啥要吃鸡蛋，你凭啥不给我？就这个简单的故事，说法不一、大概一样，就习惯性给予后当不给的时候不但不感恩还成为仇人，他说中国老百姓就这样，你不能把鸡蛋给他，你给他就怎么样怎么样，当然我反对了。
 
-**可是我们爆料革命的战友大家要记住，美国川普总统和我们爆料革命的故事不能成为给鸡蛋的故事，人家是美国有史以来对中共制裁、打击是最最多的人，**他就没有按照咱爆料革命战友听的派机在那块把中南坑炸平去，你们这个想法基本等同于让每个战友飞着飞翔着去太阳系，把太阳给抱回来当你家的鸡蛋吃，就这么难。川普总统敢派无人机随便到中南坑炸平，美国就真有可能、人类就有可能地球被毁灭。共产党手里有核武器，**即使那样做，人家也轮不着我们去希望、也轮不到我们去盼望，人家没有答应我们、人家不欠我们的。**
+### **2021年1月12日郭文贵先生起诉美大律师楼胜诉验证中共黑客美国律师楼事实，以下是《法庭令》以及法庭出具的《备忘录法庭意见》全文翻译。**
 
-**我们短短的三年爆料革命，我们要欠的是美国人，**我们在人家美国吃、喝、拉、撒、睡，享受法治、民主、自由，大家再拍着心窝说说你们给美国纳了多少税啊？你们给加拿大、澳大利亚、新西兰、日本纳过多少税呀？全人类上最不想纳税的人就是我们中国人，你们纳了多少税啊？享受人家的蓝天白云，然后让人家替你去灭共，那你咋不灭共啊？**川普总统有句话我非常接受，一个来自于loser的国家，却告诉美国人怎么做事情、管理国家，这简直是疯狂的。**
+* * *
 
-接上文——
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-15-at-1.43.52-pm.png)
 
-[郭先生0110:川普无法发声反衬出来的GTV和GNEWS的价值和力量](https://gnews.org/zh-hans/753071/)
+* * *
+![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-02-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-03-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-04-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-05-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-06-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-07-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-08-2-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-09-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-10-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-11-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-12-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-13-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-14-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-15-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-16-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-17-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-18-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-19-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-20-scaled.jpg)
+#### **By【秘密翻译组 G-Translators】**
 
-[郭先生0110:造就战争传奇瑞士的圣格道通道和沼泽地的力量](https://gnews.org/zh-hans/753206/)
-
-[郭先生0110:中国历史上没有过任何文明从来没有为信仰而战过](https://gnews.org/zh-hans/753366/)
-
-[郭先生0110: 战友们面对美国大选要选择追随还是放弃甚至背叛](https://gnews.org/zh-hans/753496/)
-
-0
++1
