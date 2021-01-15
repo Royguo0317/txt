@@ -1,125 +1,117 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要每日推特重要信息汇总 （2021.01.13）
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/752435/)
+## 2021年01月14日澳喜要闻（每日更新）
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/752738/)
 
-*编辑：Cathy；Page：Daoiii*
-[!\[\]()!\[\](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/e7965c6c-684b-4509-9734-cf7d37b33d57.jpg?asset_id=b56ee582-89a5-438c-8cba-48d3ba44f56f&amp;img_etag=%22287c0540ca4c28e87fc18c93c12d2efb%22&amp;size=1024)](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/e7965c6c-684b-4509-9734-cf7d37b33d57.jpg?asset_id=b56ee582-89a5-438c-8cba-48d3ba44f56f&amp;img_etag=%22287c0540ca4c28e87fc18c93c12d2efb%22&amp;size=1024)
-经授权转载自：
+撰稿：GTV澳喜影像视频组、新闻组
 
-川普等政要…直译推twitter：[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
+**路德社早间访谈：**
 
-川普等政要…直译推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
+**习近平若再不露头或有大事发生，彭培奥一周后离任国务卿职务。**路德社1月2日曝光习近平手术成功，但须修养13天，现在已经过去13天了，习依然没有出现。这一两天对某些人来说至关重要，习如果再不出现，14、15号或有大事发生。美国务院取消本周所有外访行程，包括美驻联合国大使访台计划。路德推测可能是蔡英文方面的拒绝。彭培奥发推从今天起一个星期后，将辞去国务卿职务。即一周后的1月20日，他将不再担任国务卿，请大家跟随他的私人推特号。美国务院突然取消外访活动，很不正常，一系列的外访很可能是一种试探，蔡英文拒绝大使访谈，并第一时间祝贺拜登当选，证明台湾本届政府是扶不起的阿斗。是否支持大重启的边界已经产生，各国开始站队。
 
-川普等政要…直译推GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
+**深度解析正义力量破局“大重启”。**大重启计划已经准备了二十多年，甚至可以追溯到基辛格访华时代，中共兴起也和大重启有关。大重启即颠覆人类自由经济，用控制环境、流行病、高科技的方式取代各国宪法。但是正义力量也准备了很多年，马斯克和西屋电气就是其中之一。马斯克公司的投资者是阿中基金，文贵先生占其50%的股份。川普总统力推马斯克星链技术，卫星WIFI破局家庭WIFI垄断，太阳能破局能源问题。如果西屋电气研发出家用原子能发电器，则打破对电的控制，大重启就结束了。马斯克系统的建立，使人类有了第二种选择。未来一定是太空之战，川普总统在任期内已经做了布局，邪恶力量还在二维空间布局，正义的力量已经在三位空间布局了。当真正有实力的人感觉到被大重启威胁时，世界将会很快发生变化。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/AB-10-scaled.jpg)澳喜要闻
+**路德社晚间访谈：**
 
-#### **简评:**
+**美国众议院再次通过弹劾川普议案。**美国时间13日，众议院以煽动叛乱为由表决通过弹劾川普总统议案。其中232票赞成，197票反对。这是川普总统第二次被佩洛西弹劾。不过因参议院目前处于休院期，审议需在20号之后才可进行。实际上弹劾结果并不重要，因为川普总统是最终赢家。
 
-**1月13日美国国务卿蓬佩奥即在美国之音发表批评中共国、伊朗和北朝鲜政府的讲话以后，接连发推支持伊朗抗议者和赞扬在美国国务院于2019年指定伊朗伊斯兰革命卫队和圣城旅为外国恐怖组织后取得的成就。让人们感到同样把中共军队定义为恐怖组织已经箭在弦上**。
+**川普总统发布制裁中共军企修正案。**因中共军方企业及其子公司在美国上市圈钱，利用美国资本促进其军事、情报和其它安全机构得以现代化，川普总统已经签署行政命令对相关实体进行制裁。在此基础上川普总统又发布修正案，禁止相关证券及其衍生产品和避险产品的交易活动；禁止美国个人在相关公司被加入制裁清单期满一年后持有此类证券；允许国防部认定更多中共在美实体是否属于军企。修正案引用已由国会通过的国防部相关法案，有效保证政策推进的延续性。在堵上制裁漏洞，最大化打击中共力度的同时，也在华尔街沼泽地力量面前砸下重锤。
 
-## 一. 众议员吉姆·班克斯：
+**萨尔维尼即将担任意大利总理。**意大利政治复杂，因内阁一次重要会议造成执政联盟分歧，使得左右翼联盟共同推举出来的傀儡总理孔蒂辞职。班农先生好友萨尔维尼即将上任。萨尔维尼因支持川普总统以及反对大重启被归为右翼。其在政治策略上欲擒故纵以退为进，曾转推支持闫博士揭露中共病毒真相，且找来意大利传奇媒体人士采访闫博士。萨尔维尼担任总理后必定承认中共病毒为生物武器，还会助力梵蒂冈反击大重启计划，从意大利开始向外传递联合灭共信号。这也是班农先生在意大利建立基地扩大影响力的重要原因。
 
-对世界自由与正义的最大威胁是中国共产党 #CCP 及其追随者。
-[!\[\]()!\[\](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/0300912d-cde7-4266-934e-8482faf076a7.png?asset_id=80dcad18-f9e0-49ec-92cc-73f636f22912&amp;img_etag=%2207b1298fe1d441724799637fc5fb7f40%22&amp;size=1024)](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/0300912d-cde7-4266-934e-8482faf076a7.png?asset_id=80dcad18-f9e0-49ec-92cc-73f636f22912&amp;img_etag=%2207b1298fe1d441724799637fc5fb7f40%22&amp;size=1024)
-推文链接：[https://twitter.com/RepJimBanks/status/1349128046884909056?s=20](https://twitter.com/RepJimBanks/status/1349128046884909056?s=20)
+**澳洲新闻：**
 
-## 二. 美国国务院：
+**澳大利亚财长拒绝中国的收购，“传递出强烈信息”。**天空新闻1月13日报道，《天空新闻》主持人史密斯（Chris Smith）说，财长弗莱登伯格（Josh Frydenberg）拒绝了中国国家建筑工程公司，以3亿美元收购澳大利亚大型建筑承包商Probuild的竞标，”发出了一个强烈的信息”，即并非澳大利亚所有的东西都可以出售。此后，中国指责澳大利亚将国家安全概念武器化。史密斯先生说：”中国大使馆非常生气，但他们根本不明白，我们有权选择哪些国家可以投资我们的关键资产，有些澳大利亚资产任何价格都不会被出售。”
 
-1．国务卿蓬佩奥：美国之音首播是在1942年…伴随着“共和国战歌”以这一承诺开始：“新闻可能很好，可能不好。但是我们会告诉你真相。”
+**“****美国印太战略框架**** “****报告解密，证实美澳并肩作战保卫台湾。**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/8f7dd6f9-bd7f-4f49-9807-9f5bd4b11f09.png?asset_id=c42ae0c9-345b-4d03-91a9-82665078bd00&amp;img_etag=%22320a13fe2075281c172761d03ddefe5f%22&amp;size=1024)](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/8f7dd6f9-bd7f-4f49-9807-9f5bd4b11f09.png?asset_id=c42ae0c9-345b-4d03-91a9-82665078bd00&amp;img_etag=%22320a13fe2075281c172761d03ddefe5f%22&amp;size=1024)
+来自NewsComAu1月13日报道，长达10页的盖有 “秘密 “印章的美国国家安全文件被解密并公布，揭示了澳大利亚在每一次重大军事战役中都与美国并肩作战，来保卫台湾免受来自中国的攻击。这份报告由美国总统川普批准，于2018年开始实施。澳大利亚国立大学国家安全学院院长罗里-梅德卡夫教授表示：”这证实了美国在印太地区的战略政策很大程度上是由盟友和伙伴，特别是日本、澳大利亚和印度提供信息和推动的”。
 
-推文链接：[https://twitter.com/StateDept/status/1349115879783608322?s=20](https://twitter.com/StateDept/status/1349115879783608322?s=20)
+**香港前沿的报道：**
 
-**2．国务卿蓬佩奥(通过美国之音）发表评论：**
+**协助****12****港人，黄国桐律师等****11****人遭港警拘捕。**大纪元1月14日讯，继抓捕50多名民主派人士后，港警今晨（14日）又抓捕协助12港人偷渡越境的11人，包括九龙城区议员、台湾“保护伞”行动（协助已前往台湾年青一代渡过难关包括协助他们找工作的行动）发起人之一的黄国桐律师、社运前学联副秘书长何洁泓的母亲张女士。据香港《苹果日报》报道，被拘捕的11人罪名为“协助罪犯”，年龄介于18岁至72岁。
 
-像 #中共国，伊朗和北朝鲜这样的政府……他们不尊重美国赖以建立的普世的人类尊严。这些政权反感我们国家所代表的一切。[https://twitter.com/StateDept/status/1348736472174764033?s=20](https://twitter.com/StateDept/status/1348736472174764033?s=20)
+**伪中共国新闻：**
 
-## 三. 美国国家安全委员会：
+**国药集团两高管突辞职，民间议论纷纷。**大纪元1月14日报道，国药集团疫苗附条件上市不到两周，国药控股董事长和董事突然同日双双以“个人原因”辞职，引起舆论哗然，不少人担心疫苗质量问题。受辞职事件影响，国药股份报收每股42.96元，跌5.17%。国药控股公司于1月12日晚间，连发两则公告，公告了国药控股董事长李智明，国药集团药业股份有限公司董事、总经理李辉，均因个人原因提出辞职，不再担任相关职位。
 
-今天有关小型模块化反应堆的行政命令将进一步振兴美国的核能部门，重振美国的太空探索计划，并为国防需求开发多种能源选择。 （附白宫网站今天公布的川普总统签署的行政命令[https://www.whitehouse.gov/presidential-actions/executive-order-promoting-small-modular-reactors-national-defense-space-exploration/](https://www.whitehouse.gov/presidential-actions/executive-order-promoting-small-modular-reactors-national-defense-space-exploration/)）
-[!\[\]()!\[\](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/7a511abc-57e6-4ec6-8003-743501e887f5.png?asset_id=7e5c0f8c-1b36-4011-a3d4-6432cfebd95e&amp;img_etag=%227af2430d86c317f7f367a44e263f46b8%22&amp;size=1024)](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/7a511abc-57e6-4ec6-8003-743501e887f5.png?asset_id=7e5c0f8c-1b36-4011-a3d4-6432cfebd95e&amp;img_etag=%227af2430d86c317f7f367a44e263f46b8%22&amp;size=1024)
-推特链接：[https://twitter.com/WHNSC/status/1349099461520347138?s=20](https://twitter.com/WHNSC/status/1349099461520347138?s=20)
+**A****股市值蒸发****5700****亿，近****3****千股走跌，多股闪崩。**大纪元1月14日讯，1月13日，A股三大指数下跌，近3000只个股走弱，多只个股闪崩跌停。截至收盘，A股总市值比前一个交易日蒸发约5700亿元。13日收盘，沪指跌0.27%，报3598.65点；深证成指跌0.61%，报15365.43点；创业板指跌1.57%，报3130.30点。
 
-## 四. 国务卿蓬佩奥：
+**美国新闻：**
 
-1.像对待 #中共 和中国人民一样，我们必须继续区分激进的伊斯兰伊朗政权和伊朗人民。伊朗人民没有选举他们的施暴者。他们配得好得多的生活。
+**美国国务卿彭培奥今天发推：自今天起的一个星期后，我将辞去国务卿职务，此帐户将被存档。一定要跟着我****@mikepompeo****。现在就做。**
 
-（附美国国务院相关发言[https://www.state.gov/human-rights-and-the-iranian-regime/](https://www.state.gov/human-rights-and-the-iranian-regime/)）[https://twitter.com/SecPompeo/status/1349106377764040707?s=20](https://twitter.com/SecPompeo/status/1349106377764040707?s=20)
+【战友评论：彭培奥先生说一周后辞去国务卿职务，一周后正好是1月20日，他并未说离开白宫，那么他要做什么。根据彭培奥这几天密集的活动，不像一位即将离职官员的行为，反倒像在做铺垫，未来一周也许会有超出我们想象的事情发生。】
 
-2.自由的世界正在觉醒，意识到伊朗革命，伊斯兰主义者和恐怖主义政权展现的威胁，这要归功于美国国务院眼光敏锐，和他们积极进取的外交。
+**川普前往德州阿拉莫视察美墨边境墙。**大纪元1月13日讯，1月12日，川普总统在马里兰州安德鲁斯空军基地（Andrews Air Force Base）登上空军一号前往德克萨斯州，他准备视察位于阿拉莫镇（Alamo）的美墨边境墙。川普总统抵达阿拉莫镇后，与随行人员一起视察边境墙。他在墙上一块匾牌签名，不久后登上舞台发表讲话。
 
-（附美国国务院相关讲话[https://www.state.gov/iranian-aggression-the-world-awakes/](https://www.state.gov/iranian-aggression-the-world-awakes/)）
-[!\[\]()!\[\](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/f7060abf-0d35-4d7f-93cf-4cb5508b6da0.png?asset_id=f9a72c6b-fe08-42d8-9410-e736b3f6c51b&amp;img_etag=%221e575a7a05b9f6001ca9516051e75d84%22&amp;size=1024)](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/f7060abf-0d35-4d7f-93cf-4cb5508b6da0.png?asset_id=f9a72c6b-fe08-42d8-9410-e736b3f6c51b&amp;img_etag=%221e575a7a05b9f6001ca9516051e75d84%22&amp;size=1024)
-推特链接：[https://twitter.com/SecPompeo/status/1349098830390833155?s=20](https://twitter.com/SecPompeo/status/1349098830390833155?s=20)
+**打击强迫劳动，美国宣布全面禁止新疆棉花和番茄产品入境。**美国之音1月14日报道，美国国土安全部（DHS）和海关与边境保护局（CBP）星期三（1 月 13 日）宣布美国政府一项新执法行动：禁止所有新疆境内企业和实体生产的棉花和番茄产品入境美国，理由是这些产品被指控由新疆被拘禁的维吾尔穆斯林强迫劳动制成的。该行动涉及中国新疆维吾尔自治区发生的侵犯人权事件，以及北京在新疆以”再教育和培训名义建立的拘留营。据信，在这个拘留营里关押了100多万维吾尔族和其他少数民族和人群。
 
-3. 从我们的原则和实力出发，川普政府谈判并解救了两名美国人，并将他们从伊朗监狱带回家-没有成堆的现金，没有赎金，没有前提条件。
-[!\[\]()!\[\](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/2fed4efc-c486-4266-a51c-538524a8a3e6.png?asset_id=0d8d579d-81ec-4259-b8be-095d8bb5e904&amp;img_etag=%22b3532c1549e1f598ffce52d0cf5c7b6e%22&amp;size=1024)](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/2fed4efc-c486-4266-a51c-538524a8a3e6.png?asset_id=0d8d579d-81ec-4259-b8be-095d8bb5e904&amp;img_etag=%22b3532c1549e1f598ffce52d0cf5c7b6e%22&amp;size=1024)
-推特链接：[https://twitter.com/SecPompeo/status/1349076180058611713?s=20](https://twitter.com/SecPompeo/status/1349076180058611713?s=20)
+**美国众议院投票支持第二次弹劾唐纳德·特朗普。**ABCNEWS1月14日报道，美国国会众议院当地时间13日对弹劾特朗普草案进行投票表决。众议院最终通过总统弹劾案，至此特朗普也成为美国历史上第一位在任期间两次遭遇弹劾的总统。
 
-4. 多边合作是这样的：自2019年以来，欧洲和拉丁美洲的13个国家已加入我们，全面禁止/指定由伊朗支持的真主党是一个恐怖组织。所谓的“军事联队”和“政治联队”之间没有区别。
-[!\[\]()!\[\](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/d362c4a0-b13d-49b6-98cf-8d08ddd56063.png?asset_id=6480719a-e430-4671-bf03-96147c8ab99c&amp;img_etag=%229b262ec616f54b6b8ecb9cbff3e16960%22&amp;size=1024)](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/d362c4a0-b13d-49b6-98cf-8d08ddd56063.png?asset_id=6480719a-e430-4671-bf03-96147c8ab99c&amp;img_etag=%229b262ec616f54b6b8ecb9cbff3e16960%22&amp;size=1024)
-推特链接：[https://twitter.com/SecPompeo/status/1349063421187207172?s=20](https://twitter.com/SecPompeo/status/1349063421187207172?s=20)
+【战友评论：众议院通过，相当于同意立案弹劾总统，至于弹劾是否成功还须参议院通过。如果拜登1月20日顺利继任，他们为何对在位只有一周的川普总统发起弹劾？是什么事让他们如此焦虑，连7天都等不了了？】
 
-5．美国国务院@StateDept对（伊朗）革命法院和法官因他们在监禁良心犯中的作用实施了美国有史以来的首次制裁，我们一直要求释放该政权的人质。
-[!\[\]()!\[\](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/9d87e6c6-7f5d-4802-8158-3c6c41fec36f.png?asset_id=d2825c6c-c437-4817-8485-481368b50d85&amp;img_etag=%223fac479e7751985907d318ab613ffe9b%22&amp;size=1024)](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/9d87e6c6-7f5d-4802-8158-3c6c41fec36f.png?asset_id=d2825c6c-c437-4817-8485-481368b50d85&amp;img_etag=%223fac479e7751985907d318ab613ffe9b%22&amp;size=1024)
-推特链接：[https://twitter.com/SecPompeo/status/1349121476910202880?s=20](https://twitter.com/SecPompeo/status/1349121476910202880?s=20)
+**川普总统****1****月****13****日在白宫发表电视讲话**
 
-6．当伊朗政权在街上杀死伊朗人时，抗议者向我们发送了证据，我们将其广播给全世界观看。我们制裁了凶手，看守和虚假法庭腐败的法官。
-[!\[\]()!\[\](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/288d5294-c0a7-438f-b1e5-cba2b8a6a9ba.png?asset_id=61c9aadc-33dc-4092-a194-33dfe3892922&amp;img_etag=%22a21e1d04d9f6db8a69b3210e9a2ea9b5%22&amp;size=1024)](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/288d5294-c0a7-438f-b1e5-cba2b8a6a9ba.png?asset_id=61c9aadc-33dc-4092-a194-33dfe3892922&amp;img_etag=%22a21e1d04d9f6db8a69b3210e9a2ea9b5%22&amp;size=1024)
-推文链接：[https://twitter.com/SecPompeo/status/1349113929440530434?s=20](https://twitter.com/SecPompeo/status/1349113929440530434?s=20)
+来自GNEWS俄罗斯莫斯科喀秋莎农场“仰望七星”战友整理，摘录如下：
 
-7．2020年8月，美国抓获了从伊朗开往委内瑞拉的邮轮。从那项买卖中获得的金钱-对于4000万美金-流向了我们的国家资助恐怖主义受害者基金，而不是马杜罗、伊朗革命卫队和恐怖代理人。
-[!\[\]()!\[\](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/16dcdcbf-9bd3-4bb5-b268-465e44465538.png?asset_id=eb64954b-f342-4ad8-9899-3d52d9a55f1b&amp;img_etag=%2259dcb0801d1e85d960746b22d94367ba%22&amp;size=1024)](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/16dcdcbf-9bd3-4bb5-b268-465e44465538.png?asset_id=eb64954b-f342-4ad8-9899-3d52d9a55f1b&amp;img_etag=%2259dcb0801d1e85d960746b22d94367ba%22&amp;size=1024)
-推文链接：[https://twitter.com/SecPompeo/status/1349038435814797312?s=20](https://twitter.com/SecPompeo/status/1349038435814797312?s=20)
+我的美国同胞们，
 
-8．我们说出了真相并采取了行动。美国国务院于2019年指定伊朗伊斯兰革命卫队和圣城旅为外国恐怖组织。因为它确实是。
+今晚我想和你谈谈过去一周的麻烦事。正如我所说，我们共和国的心脏，美国的国会受到了冲击。它激怒和震惊了数百万的美国人和各个政治阶层。
 
-（附相关声明：[https://www.state.gov/after-the-deal-a-new-iran-strategy/](https://www.state.gov/after-the-deal-a-new-iran-strategy/)）
-[!\[\]()!\[\](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/e196b0f7-eac1-4961-ada2-1eb69bfae49a.png?asset_id=32917cef-fd36-49d1-9911-7582bb51530d&amp;img_etag=%22cb9046f514dfb659de7211af49b73172%22&amp;size=1024)](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/e196b0f7-eac1-4961-ada2-1eb69bfae49a.png?asset_id=32917cef-fd36-49d1-9911-7582bb51530d&amp;img_etag=%22cb9046f514dfb659de7211af49b73172%22&amp;size=1024)
-推文链接：[https://twitter.com/SecPompeo/status/1349030883081248768?s=20](https://twitter.com/SecPompeo/status/1349030883081248768?s=20)
+我想说清楚，我毫不迟疑地谴责上周我们看到的暴力，暴力和破坏在我们国家和我们的运动中绝对没有一席之地。使美国再次伟大一直是为了捍卫法治，支持执法人员，维护我们国家最神圣的传统和价值观，暴民的暴力行为违背了一切。
 
-9．感谢我们的制裁，今年伊朗提出的军费预算降低了24%。我们已经瞄准了多于1500个个人和实体，剥夺了伊朗政权700亿美元，这些钱本可能会用于资助恐怖主义、弹道导弹和原子能项目。 #极限施压起作用 #MaximumPressureWorks。
-[!\[\]()!\[\](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/3fdf8d46-1cc0-43c9-be50-5707bbe0dcdd.png?asset_id=1f0a1a82-1881-4883-a487-1e2b08fa5a68&amp;img_etag=%22cbe85bbdd02ad06f13a0bf737847a6c8%22&amp;size=1024)](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/3fdf8d46-1cc0-43c9-be50-5707bbe0dcdd.png?asset_id=1f0a1a82-1881-4883-a487-1e2b08fa5a68&amp;img_etag=%22cbe85bbdd02ad06f13a0bf737847a6c8%22&amp;size=1024)
-推文链接：[https://twitter.com/SecPompeo/status/1349008233793417216?s=20](https://twitter.com/SecPompeo/status/1349008233793417216?s=20)
+我相信，我们的运动所代表的一切，我的真正支持者永远不会赞同政治暴力；我的真正支持者永远不会不尊重执法部门，也不会不尊重我们伟大的美国国旗；我的真正支持者永远不能威胁或骚扰他们的美国同胞。如果你做这些事，你就不是在支持我们的运动，你在攻击我们的运动，你在攻击我们的国家，我们不能容忍这样的悲剧，
 
-10．外交政策的错误之处就是不断寻找伊朗政权内部将“关系正常化”的温和派。现实是，你找到独角兽的机会更大。（1/2）
-[!\[\]()!\[\](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/294aaf32-48d0-45b7-8f7b-ebd8eb08e0ce.png?asset_id=8d80d0eb-7ded-4af5-b0e9-02dc74a2445e&amp;img_etag=%228f8b708dfcd011cadf7aa898eaa884ad%22&amp;size=1024)](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/294aaf32-48d0-45b7-8f7b-ebd8eb08e0ce.png?asset_id=8d80d0eb-7ded-4af5-b0e9-02dc74a2445e&amp;img_etag=%228f8b708dfcd011cadf7aa898eaa884ad%22&amp;size=1024)
-推文链接：[https://twitter.com/SecPompeo/status/1348993133732798465?s=20](https://twitter.com/SecPompeo/status/1348993133732798465?s=20)
+在过去的一年里，中共国病毒使我们如此困难，我们看到政治暴力的失控，我们看到了太多的骚乱，太多的暴徒，太多的恐吓和破坏行为。无论你是右派，还是左派，民主党还是共和党，都必须停止。
 
-11．（接上）特朗普政府认为伊朗极权主义政权就是一群自 1979 年以来就高呼“毁灭美国”的激进理论家。（2/2）
+暴力是没有任何理由，没有借口，没有例外，美国是一个法制国家，上周参与袭击的人将被绳之以法。
 
-## 五. 众议员吉姆·乔丹
+现在，我要求每一个相信我们（有正义）程序的人都要想办法缓和紧张局势，平息情绪，帮助促进国家的平和。
 
-左派：
+有报道称，未来几天在首都华盛顿，以及全国各地正在计划更多的示威游行，特勤局向我通报了潜在的威胁。
 
--不让你去教堂。-不让你去工作。-不让你去学校。
+每个美国人都应该以一种尊重与和平的方式表达自己的意见，你是在履行第一修正案，对吗？但我强调不能有任何暴力、违法和任何形式的破坏行为，每个人都必须遵守我们的法律，服从执法部门的指令。
 
-现在呢？他们不想让你开口说话。
+我已经命令联邦机构动用一切必要资源维持秩序，在华盛顿特区，我们请来了数千名国民警卫队，以确保城市的安全和不出意外的过渡。像你们所有人一样，我对上周发生在首都的灾难感到震惊和悲痛。我要感谢数以亿计的美国公民，他们以冷静、温和以及优雅的态度回应了这一时刻，我们会像往常一样，战胜这个挑战。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/18fecb3c-be77-42a3-8bf6-d2dd51abf91c.png?asset_id=ce97148b-0f6d-47d3-956e-4a3697bae761&amp;img_etag=%2288b9bf8a0b98d69fb033555c81bdf66f%22&amp;size=1024)](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/18fecb3c-be77-42a3-8bf6-d2dd51abf91c.png?asset_id=ce97148b-0f6d-47d3-956e-4a3697bae761&amp;img_etag=%2288b9bf8a0b98d69fb033555c81bdf66f%22&amp;size=1024)
+我还想说几句关于对言论自由受到的前所未有的攻击，这几天我们看到了，现在是审查、取消和列入黑名单的紧张和困难时期，我们的同胞错了，他们很危险。我们现在需要的是彼此倾听，而不是噤声，我们都可以选择，通过我们的行动来超越障碍，找到共同点和共同目标。
 
-推文链接：[https://twitter.com/Jim\_Jordan/status/1349003768881422336?s=20](https://twitter.com/Jim_Jordan/status/1349003768881422336?s=20)
+我们必须着眼于增进国家的利益，制造奇迹般的疫苗，战胜流行病，重建经济，保护国家安全，维护法治，而不是让你噤声。
 
-## 六. 川普律师朱利安尼：
+今天，我呼吁所有美国人克制当前的激愤，团结起来，争作一名（合格的）美国公民。让我们携手向前，为了我们的家庭，我们的社区，我们的国家。
 
-这次对言论自由的大规模封杀在美国从未有过。
+谢谢您！上帝保佑你！天佑美国！
 
-这（种行为）等同于许多独裁政权。
 
-保护言论自由的最后一处避难所就是我们的司法了。
 
-让我们聚到一起，追寻公民权利，限制贸易及其他反托拉斯的法律。
-[!\[\]()!\[\](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/01e656f7-d162-4bbe-b14f-73e0f7ffbe66.png?asset_id=3eedafdb-388d-4959-be19-8580c5e05f4d&amp;img_etag=%22300bb1612cfbe9b27c2fbaf300627232%22&amp;size=1024)](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/01e656f7-d162-4bbe-b14f-73e0f7ffbe66.png?asset_id=3eedafdb-388d-4959-be19-8580c5e05f4d&amp;img_etag=%22300bb1612cfbe9b27c2fbaf300627232%22&amp;size=1024)
-推文链接：[https://twitter.com/RudyGiuliani/status/1349003557421391872?s=20](https://twitter.com/RudyGiuliani/status/1349003557421391872?s=20)
+**爆料革命大事记：**
 
-编辑：【英国伦敦喜庄园编辑部】[-点击spark adobe版](https://spark.adobe.com/page/dh8zlIoNaNjlK/)
+**郭文贵先生****1****月****13****日盖特直播内容，澳喜农场“心是莲花”整理，摘录如下：**
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+文贵度过了过去五六年来最最愉快的一天，就是1月12号，为什么？保密保密，以后详细解答。昨天真是太开心了，昨晚睡梦都笑醒了好几回。
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+兄弟姐妹们现在都很紧张，众议院现在正在弹劾川普总统，1月2号的时候，我和他身边的人说，如果川普总统离开白宫，一定不会让你有2024的机会。把MAGA定成恐怖犯罪集团、对川普总统弹劾你，或者税务调查你，或者说你涉嫌什么经济犯罪。不是我郭文贵水平高，中国随便一个人都懂这一套。查你的税、说你有男女关系、经济犯罪、涉黑、撒谎不诚实、涉嫌强奸，还强奸未遂，还3秒……这些所有用在文贵身上的招儿，都可以当做教科书使用。郭文贵本人证明给了全世界。这不仅仅是共产党的惯用招数，这是世界上邪恶集团、邪恶政治一贯的招数，是世界上邪恶的人一贯的手法，不是七十年的中国，在亿万年的地球上从开始就有，这是正义和邪恶的象征。
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-[!\[\]()!\[\](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/4d946952-790b-49de-9107-685641799b2f.jpg?asset_id=28c62269-d522-490c-83c4-76145eac408a&amp;img_etag=%2234e372e20c5705b800bceb7a814f6e38%22&amp;size=1024)](https://spark.adobe.com/page/dh8zlIoNaNjlK/images/4d946952-790b-49de-9107-685641799b2f.jpg?asset_id=28c62269-d522-490c-83c4-76145eac408a&amp;img_etag=%2234e372e20c5705b800bceb7a814f6e38%22&amp;size=1024)
-0
+不仅如此，诱使你的MAGA犯罪，或者掺沙子让你犯罪，像在香港、在六四、在文化大革命，像对待彭德怀刘少奇、国民党。我最早说共产党的3F计划，包括具体手段，以美制美、以美元搞乱美国经济、以美国科技搞乱美国。共产党相信对待美国最有效的不是核武器，而是社交媒体，然后才是美元经济、病毒、超限战……现在全发生了。
+
+昨天几个美国朋友对我说MILES你全说对了，你简直是神，太不可思议了！我一点听的兴趣都没有，我不想以此证明我的伟大，因为人类付出的代价太大了。人类贪嗔痴慢疑最终走到极端走到邪恶的时候，就是用今天你看到的这些对付文贵手段对付川普总统、对付美国人民。美国现在是以假治国、以黑治国，大家看清楚了吧！最核心的是以贪反贪，所有这些名义都打着三个字：为你好！为你好维护法制的公平嘛，维护人民的安全嘛。我们被这样对待了七十年，严格讲100年了，从1317年就开始了，1313年已经萌芽了，可悲、可恨、可叹，但一点儿也不可笑！我们为什么要说正道主义？一张口就是“我要民主”、“我要法治”、“我要公平”，你具不具备享受民主法治公平的能力？你是否具有理解民主法治公平的素质？不要以为你的是你的，我的是我的，就是民主，那是自私、贪婪、灾难。
+
+人类真正追求的走向是什么？咱们正道主义讲的很简单：真和假的分别、善和恶的分别。善和恶的分别是让绝大多数人认可的标准，真和假的分别是依据科学和物理现象。看看美国今天的情况，一切根源美国人民没有搞明白，根源不在美国，或者说完全是美国创造的，但不管如何，今天背后所有的控制都是中国共产党。要想让其亡，让其变猖狂。听说叶简明被扔到河里前让他说几句话，他说的最后一句话就是：共产党的猖狂会让共产党灭亡。我又听说前两天马云和日本朋友见面的时候说：我后悔太天真，没有听郭文贵的话，我应该提早离开，不等蚂蚁金服上市。在美国和他们作战，在他们消灭我之前，必须给他们摆势摆势。
+
+啥都不说了，正义必胜，除非你不相信，贪嗔痴慢疑将让你失去正义，失去勇敢，这个世界上真的假不了，假的真不了；善的不能变成恶的，恶的可以变成善的。我们能！
+
+感谢新闻摘录，新闻撰稿，配音录制以及视频制作战友们的辛勤付出。
+
+感谢坦克人提供的技术支持。感谢路德社文宣后勤团队的支持。
+
+欢迎明天澳洲晚九点，北京晚六点继续收听观看“澳喜要闻”.
+
+澳喜文章: [https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+
+欢迎加入澳喜农场：
+
+[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-澳喜Logo.jpeg)
++1

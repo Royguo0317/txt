@@ -1,29 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 推特负责人自认为封杀川普是阻止一个危险的先例
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/752393/)
+## 重温第一夫人梅拉尼亚疫情初期的讲话：请大家注意安全！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/752815/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭ССР
+新闻简述：中共病毒造成的全球大流行丝毫没有减轻趋势，让我们重温美丽的第一夫人梅拉尼亚·川普（Melania Trump）在大流行初期的讲话：“我敦促各位通过视频聊天、电话、社交媒体，以及其它安全的技术手段，与你们的家人和亲友保持联系……请大家注意安全！”
+视频来源：[https://www.youtube.com/watch?v=-JIAeUaMTCQ&feature=youtu.be](https://www.youtube.com/watch?v=-JIAeUaMTCQ&amp;feature=youtu.be)
+Melania: Today, I want to speak with you about coronavirus and what it means for you and your family. While changes need to be made now, this is not how we will live forever. Our children will return to school. People will return to work. We will gather at the places of worship, concerts, and sporting events again. I urge you to stay connected to family and loved ones through the video chats, phone calls, social media, and other safe technologies. Please be sure to follow CDC guidelines, which can be found at [coronavirus.gov](http://coronavirus.gov) or cdc.gov along with other information and resources. Stay safe and remember, while many of us are apart, we are all in this together.
 
-编辑上传 星河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/AP_919181132862.jpg)wktv.com
-1月13日，推特创始人，推特公司董事会主席人杰克·多西（Jack Dorsey）在其推特页面上表示，封杀美国川普总统是正确的决定，但这也开创了一个 “危险的先例”。
+梅拉莉亚：今天，我想跟妳们谈一谈新冠病毒对你们和你们的家庭意味着什么。尽管我们现在需要做相应的改变去适应，但这并不等于我们永远的生活方式。我们的孩子将返回学校，人们将返回工作岗位，我们将再次聚集在一起做礼拜、参加音乐会和参加各种体育活动。我敦促各位通过视频聊天、电话、社交媒体，以及其它安全的技术手段，与你们的家人和亲友保持联系。请务必遵守CDC的指导方针，该指导方针可在coronavirus.gov 网站上找到，或是在 cdc.gov 上获取其它相关信息和资料。请大家注意安全！请记住，为此目标，即使我们身在各处，我们的心却紧密相连。
 
-多西解释说，“我相信这是推特的正确决定”，我们面临着一个非同寻常的、不可接受的情况，迫使我们把所有的行动都集中在公共安全上。“网络言论对线下的危害是显而易见的，这首先推动了我们的政策和执法。”
+翻译 & 字幕：【奔腾的长江】编辑：【Isaiah4031】
 
-但是，根据推特负责人的说法，阻止特定账户表明该社交网络无法提供健康的信息。
+喜马拉雅玫瑰园小队出品
 
-多西表示，“采取这些行动使公众的讨论碎片化是很有必要的。他们把我们分开。他们开创了一个我认为很危险的先例：个人或公司对全球公众讨论的一部分拥有的权力。”
+*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
 
-在国会山抗议活动发生几天后，推特永久封锁了川普的账户，这是他与支持者进行沟通的主要渠道之一。推特公司表示，该决定是在审查了总统最近的推文后做出的，“因为有可能进一步煽动暴力的风险。”在这些帖子中，川普总统声称，投给他的7500万人的选票 “将在很长一段时间内具有巨大的影响力”，还声称他不会参加乔·拜登的就职典礼。
-
-政治新闻（Politico）援引消息人士的话报道称，川普在得知推特对其账户进行封锁之后，失去了对自己的控制。
-
-包括Facebook、YouTube和Snapchat在内的其他主要社交网站也决定封杀川普总统。
-
-评论：多么滑稽地大选！作为一位世界自由、文明、法制的超级大国总统，居然被自己国内的社交媒体封杀，这要是在中共国是完全不可能的事。通过此事，更好的证明了推特等社交媒体的中共党性十足，行为的一致性与幕后操纵者要求同步。未来谁是媒体巨头，一定是敢于说真话、传播真相并维护正义的媒体！
-
-参考链接：[https://www.rbc.ru/politics/14/01/2021/5fffae5d9a794717629b9eda](https://www.rbc.ru/politics/14/01/2021/5fffae5d9a794717629b9eda)
-
-0
++2
