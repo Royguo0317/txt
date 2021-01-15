@@ -1,56 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读习给星巴克的复信及三大电信公司被纽交所退市
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/751280/)
+## 路德直播重磅: 郭文贵先生起诉美大律师楼胜诉【法庭令+备忘录】全文翻译
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/753028/)
 
-直播视频：
+**文件下载链接：**
 
-
-
-《路德时评》2021年1月14日早间节目主要内容：
-
-一、习总加速师依然没有露面
-
-习总加速师今天依然没有露面，新华社只发布他复信星巴克公司董事会名誉主席的文件。
+- [【英文原文】法庭令](https://gnews.org/wp-content/uploads/2021/01/Order.pdf)
+- [【英文原文】法庭备忘录](https://gnews.org/wp-content/uploads/2021/01/Opinion-Ps-MTC.pdf)
+- [【中文翻译】法庭令](https://gnews.org/wp-content/uploads/2021/01/1-14-政庇文档_法庭令-2-full.pdf)
+- [【中文翻译】法庭备忘录](https://gnews.org/wp-content/uploads/2021/01/1-14-政庇文档_法庭令-2-full.pdf)
 
 
+**直播视频链接：**
 
-> 大猫今天还是没出来，但是发了一个8天前的回复🤪能让大猫刚做完手术还回信的逆天人物，真是不得了啊😱😱😱回复的内容也太报告了吧。星巴克在中国有4700家门店，58000名伙伴，一度进故宫搞的沸沸扬扬😎突然有点威胁的意思了 [pic.twitter.com/8I2UjSMSLg](https://t.co/8I2UjSMSLg)
-> — 鴨川龍馬 (@y4GGfrb2CVactNK) [January 14, 2021](https://twitter.com/y4GGfrb2CVactNK/status/1349675022185426944?ref_src=twsrc%5Etfw)
-
-
-
-路德社评论：
-
-1、习总加速师前几年的同一天都露面参加各种会议，而今天新华社发布的有关习给星巴克的复信发生在1月6日，习今天没有做出任何批示，新华社正版报道这封信件，由此可以看到星巴克与中共有深度勾兑；
-
-2、霍华德·舒尔茨是星巴克的执行董事长和首席执行官，他常居西雅图属于亲共派，是拜登的有力支持者，星巴克店铺遍布中国大街小巷，这也是“最后一公里”，老百姓一旦爱上星巴克咖啡也随即容易接受星巴克文化；
-
-3、在1月6日前，习一直在运作干预美国大选投票，舒尔茨估计也是习干预美国大选的重要帮手，星巴克可以利用遍布全美的分店及资本影响当地政治，这封信也算是习对舒尔茨工作的肯定和重视；
-
-4、这封信件从策划、撰文、双方沟通、发稿、宣传以及背后提前进行资本布局等等，其中的故事非常不简单，这相当于习亲自给星巴克做广告，这么做的目就是为应对美国企业撤出中国，他们如果真相信拜登即将上台就会取消川普总统的制裁令，完全没必要回信星巴克。
-
-二、中共三大电信公司已经停止交易
-
-中共三大电信公司中国移动、中国联通和中国电信从1月11日开始就已经停止在美国证券交易市场进行交易。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/三大电信-1.jpg)[图片地址](https://n.sinaimg.cn/sinakd202116s/200/w1080h720/20210106/347c-kherpxy1661273.jpg)
+- [【路德时评】2021年1月14日直播中详细分析了此判决](https://gtv.org/video/id=6000ef4df579a75e0bd83efb) （从1:11:14 处开始）
+- [【2017年郭先生谈：中共骇掉代表他申请政庇的律所的电脑】](https://gnews.org/zh-hans/753136/)
 
 
-路德社评论：
+### **2021年1月12日郭文贵先生起诉美大律师楼胜诉验证中共黑客美国律师楼事实，以下是《法庭令》以及法庭出具的《备忘录法庭意见》全文翻译。**
 
-1、此前关于暂缓三大电信公司停止在美国证券市场交易的消息都属于假新闻，川普政府依然在有序推动中美脱钩；
+* * *
 
-2、这三大电信公司在退市前并未出现股价大跌的现象，未来所有司法行动都以该退市价作为终审价格，赔偿诉讼也是以该价格为准，这三家电信公司退市后，它们只能通过协商方式回购其他投资方持有的未出售股票；
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-15-at-1.43.52-pm.png)
 
-3、美国高盛、摩根斯丹利和JP摩根这三家投行策划和推动这三家电信公司在美国股市和香港股市上市，川普政府颁布制裁令后，这些投行要负责将这三家电信公司从纽交所与香港股市退市，如果这三家投行不遵守该命令，这三家银行与香港证券交易所都将被制裁；
+* * *
+![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-02-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-03-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-04-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-05-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-06-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-07-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-08-2-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-09-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-10-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-11-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-12-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-13-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-14-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-15-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-16-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-17-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-18-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-19-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-20-scaled.jpg)
+#### **By【秘密翻译组 G-Translators】**
 
-4、美国主流媒体并未持续跟进报道三大电信公司退市新闻，这也可以看出美国主流媒体已经成为中共的喉舌，即使这样也丝毫不影响制裁令的推动，未来无论是中共国的三桶油，还是其他被美国列为中共军方控制的中共国企业都将被宰杀；
-
-5、三桶油只在香港股市上市，但经过美国高盛、摩根斯丹利和JP摩根这三家投行包装后就可以在美国证券市场进行交易，一旦三桶油被制裁后同样会面临退市和巨额赔偿，中共军方控制的所有企业都无可能逃脱制裁的命运。
-
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
-
-文章撰写：【重生】  编辑：【香柏树】
-
-0
++1

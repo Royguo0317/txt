@@ -1,89 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特实况】1/13/2021 密歇根州法官命令民主党州务卿公布与多米尼,脸书,苹果,亚马逊和谷歌的所有通信&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/751233/)
+## 美国印太战略框架（原文1）
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/753090/)
 
-【大选实时报】1/13/2021 美东时间9:07PM Chuck Callesto  推文： 最新报道：密歇根州法官命令民主党州务卿公布与多米尼、Facebook、苹果、亚马逊和谷歌的所有往来通信。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Snipaste_2021-01-15_06-21-30.png)IDN-InDepthNews
+白宫最近部分解密了《美国印-太战略框架》【1】，目标直指中共国，诠释了自从郭文贵先生引领爆料革命以来，美国对中共步步紧逼的围剿政策，读后感受颇深。
 
+笔者会陆续发布译文章节，供战友参考分享。
 
-> BREAKING REPORT: MI Judge Orders Dem Sec of State To RELEASE ALL COMMUNICATIONS With Dominion, Facebook, Apple, Amazon and Google…
-> — Chuck Callesto (@ChuckCallesto) [January 14, 2021](https://twitter.com/ChuckCallesto/status/1349538564254609410?ref_src=twsrc%5Etfw)
+（U）美国印太战略框架
 
+（U）国家安全挑战：
 
-来源：[https://twitter.com/ChuckCallesto/status/1349538564254609410](https://twitter.com/ChuckCallesto/status/1349538564254609410)
-盖特链接：[https://gtv.org/getter/5fffb35a87fabe2daf389845](https://gtv.org/getter/5fffb35a87fabe2daf389845)
+● 如何保持美国在印太地区的战略主导地位，促进自由的经济秩序，同时防止中（共）国建立新的、不自由的势力范围，培育促进地区和平与繁荣的合作领域？
 
-* * *
+●  如何确保北朝鲜不威胁美国及其盟友，既要考虑到严重的仇恨危险，又得考虑未来朝鲜威胁的程度和类型可能发生的变化？
 
-【大选实时报】1/13/2021 美东时间 10:00PM Newsmax推文： 事件在发展中：保守派寻求解除Liz Cheney的领导职务。 （Liz Cheney是众议院共和党会议主席，居众议院共和党领导层中第三高的职位）
+●  如何在促进公平互惠贸易的同时，提升美国的全球经济领导地位？
 
+（U）美国持久切身的利益：
 
+●（U）保护家园；
 
-> DEVELOPING: Conservatives seek to remove Liz Cheney from leadership role [https://t.co/SwmKVmjSwc](https://t.co/SwmKVmjSwc) [pic.twitter.com/Ou6PlyoE1X](https://t.co/Ou6PlyoE1X)
-> — Newsmax (@newsmax) [January 14, 2021](https://twitter.com/newsmax/status/1349551836190146560?ref_src=twsrc%5Etfw)
+●（U）促进美国的繁荣；
 
+●（U）以力量维持和平；
 
-来源： [https://twitter.com/newsmax/status/1349551836190146560](https://twitter.com/newsmax/status/1349551836190146560)
-盖特链接：[https://gtv.org/getter/5fffc04887fabe2daf38a1f8](https://gtv.org/getter/5fffc04887fabe2daf38a1f8)
+●（U）提高美国的影响力。
 
-* * *
+（U）美国在印太地区的最高利益：
 
-【大选实时报】1/13/2021 美东时间 10:45 PM Newsmax推文： 据报道：库什纳阻止川普加入Parler.
+●  保卫国内和海外美国公民；防止核武器及其运载工具的扩散；
 
+●  保护美国在经济、外交和军事上进入世界上人口最多的地区和超过全球经济三分之一的地区；
 
+●  提高我们联盟的可信度和有效性；以及
 
-> REPORT: Kushner kept Trump from joining Parler [https://t.co/FUPmzlUZ2Q](https://t.co/FUPmzlUZ2Q) [pic.twitter.com/1r94iZri97](https://t.co/1r94iZri97)
-> — Newsmax (@newsmax) [January 14, 2021](https://twitter.com/newsmax/status/1349563149582786564?ref_src=twsrc%5Etfw)
+●  在保护美国核心价值观和国内自由的同时，保持美国在该地区的主导地位。
 
+（U）假设：
 
-来源：[https://twitter.com/newsmax/status/1349563149582786564](https://twitter.com/newsmax/status/1349563149582786564)
-盖特链接：[https://gtv.org/getter/5fffc17c87fabe2daf38a2d1](https://gtv.org/getter/5fffc17c87fabe2daf38a2d1)
+●（U）美国的安全和繁荣有赖于印度-太平洋地区的自由和开放，印度-太平洋地区仍将是美国、地区和全球经济增长的引擎。
 
-* * *
+●（U）朝鲜的核导弹及其宣称的征服韩国的意图对美国本土和我们的盟国构成了严重威胁。
 
-【大选实时报】1/13/2021 美东时间7:08PM Breaking911 推文： 禁止！在上周国会大厦骚动事件后，Snapchat无限期封锁了川普总统的账号。现在该公司决定将于1月20日永久禁止其使用。
+分类：马修·波汀格（M Pottinger），总统副助理（DAP）、国家安全委员会亚洲部资深主任
 
+来源：国家安全委员会（NSC）、 安全分类指南（SCG）
 
+解密于：20421231
 
-> BANNED! Snapchat will permanently ban President Trump's account on Jan. 20 after locking it indefinitely last week following the Capitol siege – Via [@axios](https://twitter.com/axios?ref_src=twsrc%5Etfw)
-> — Breaking911 (@Breaking911) [January 14, 2021](https://twitter.com/Breaking911/status/1349508675086520326?ref_src=twsrc%5Etfw)
+国家安全委员会解密审查
 
+部分解密
 
-来源：[https://twitter.com/Breaking911/status/1349508675086520326](https://twitter.com/Breaking911/status/1349508675086520326)
-盖特链接：[https://gtv.org/getter/5fffc61a87fabe2daf38a5b4](https://gtv.org/getter/5fffc61a87fabe2daf38a5b4)
+总统国家安全事务助理
 
-* * *
+罗伯特C.奥布莱恩（Robert C. O’Brien）
 
-【大选实时报】1/13/2021 美东时间7:50PM著名调查记者John Solomon推文： 在拜登发誓要 “打败美国全国步枪协会NRA “的同时，枪支销售量继续飙升，2020年背景调查增加40％。
+2021年1月5日（批准）
 
+（未完待续）
 
-
-> As Biden vows to 'defeat the NRA,' gun sales continue to soar with 2020 background checks up 40% | Just The News[https://t.co/jdGWU7OeiM](https://t.co/jdGWU7OeiM)
-> — John Solomon (@jsolomonReports) [January 14, 2021](https://twitter.com/jsolomonReports/status/1349519106417045508?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/jsolomonReports/status/1349519106417045508](https://twitter.com/jsolomonReports/status/1349519106417045508)
-盖特链接：[https://gtv.org/getter/5fffddd987fabe2daf38b4ac](https://gtv.org/getter/5fffddd987fabe2daf38b4ac)
-
-* * *
-
-【大选实况】1/13/2021 EST 2:43 Marjorie Taylor Greene （乔治亚州众议院议员）推文： 在持续支持和煽动黑命贵/安提法暴力活动之后，民主党人对川普总统的弹劾树立了一个先例，该党成员应被免职。 弹劾是基于谎言。 再一次弹劾！
+【1】https://www.whitehouse.gov/wp-content/uploads/2021/01/IPS-Final-Declass.pdf
 
 
-
-> With their continued endorsement and incitement of BLM/Antifa violence, the Democrat impeachment of President Trump sets a precedent that members of their party should be removed from office.
-> 
-> This impeachment is based on a lie. 
-> 
-> AGAIN! [pic.twitter.com/60kKkJG0xp](https://t.co/60kKkJG0xp)
-> — Rep. Marjorie Taylor Greene (@RepMTG) [January 13, 2021](https://twitter.com/RepMTG/status/1349441938085142528?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/RepMTG/status/1349441938085142528?s=20](https://twitter.com/RepMTG/status/1349441938085142528?s=20)
-盖特链接：[https://gtv.org/getter/5fffb78e87fabe2daf389b9d](https://gtv.org/getter/5fffb78e87fabe2daf389b9d)
-
-**By： 【秘密翻译组 G-Translators】**
 
 0

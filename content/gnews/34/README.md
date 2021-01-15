@@ -1,82 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特实况】1/13/2021 又有7名参与美国国会大厦破坏活动的人被捕&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/750716/)
+## 世界性的防火墙开始建立
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/752548/)
 
-【大选实况】1/13/2021 美东时间1:27 PM James O’Keefe 推文：德州总检察长肯·帕克斯顿（Ken Paxton）今天宣布逮捕雷切尔·罗德里格斯（Rachel Rodriguez），罪名是选举欺诈，非法投票，非法协助人们以邮寄方式投票以及非法拥有正式选票。 根据《德克萨斯选举法》，每项指控均构成重罪。
+撰稿：永遠の小学生文筝
 
+编辑：五饼二鱼
 
+随着推特封杀川普及其伙伴的推特，其他的科技公司也在配合推特的这一纳粹式的封杀言论的行为。随着拜登靠着选票造假得到了总统的称号，中共也越来越猖狂，撕下了遮羞布，在媒体上直接用权力清理对手。这些行为完全就是将防火墙扩建到全球，直接威胁到人类的言论自由。
 
-> Texas Attorney General Ken Paxton today announced the arrest of Rachel Rodriguez for election fraud, illegal voting, unlawfully assisting people voting by mail, and unlawfully possessing an official ballot. Each charge constitutes a felony under the Texas Election Code.
-> — James O'Keefe (@JamesOKeefeIII) [January 13, 2021](https://twitter.com/JamesOKeefeIII/status/1349422777212805122?ref_src=twsrc%5Etfw)
+西方这下是切实感受到自己的言论自由受到侵害了，马上就有各国政客出来抗议推特对川普的封杀行为。因为将来这些大科技公司有足够的诱因封杀其他国家的言论，这对任何独立国家都是有害的。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/16106649441.png)来自谷歌截图加自己编辑
+这些违背言论自由的行为已经受到市场的惩罚，推特股价又一次暴跌。这一次马斯克宣布退出脸书推特，有市场号招力的作用，而且本人说要开发自己的操作系统替代安卓与iPhone。资本家听到这一消息肯定会非常激动，这代表新的产业机会。马斯克本人有足够的实力实现这一设定，结合现在的星链产业，足以颠覆现在的信息生态圈。
 
+因为当前大科技公司学中共建立地球的信息防火墙，严重与人类2000多年流血奋斗换来的自由价值背道而驰，民意已自然地发自内心地抛弃了这些大科技公司。Gab收到了数千份的求职简历，有良心有能力的雇员选择站在正义的一边。人们想要的是真实的信息，而推特脸书等已经禁声了。
 
-来源：[https://twitter.com/JamesOKeefeIII/status/1349422777212805122](https://twitter.com/JamesOKeefeIII/status/1349422777212805122)
-盖特链接：[https://gtv.org/getter/5fff505987fabe2daf386213](https://gtv.org/getter/5fff505987fabe2daf386213)
+普通的民众对大科技公司的垄断也看不下去了。Parler的服务器被亚马逊关掉，网上是一片谴责，在网络这种匿名的场所表现的心声往往都是真心的，自己使用的软件随便就被停掉了，跟校园霸凌没任何区别了。纽约的街访谈话的人也在批评推特封杀川普账号的行为。美国民众不会坐以待毙，最后定会通过法律拆了这堵托拉斯的科技防火墙。
 
-* * *
+（文章仅代表个人观点）
 
-【大选实况】1/13/2021 美东时间 2：44 PM 川普总统电报群信息： 总统声明： “鉴于有更多示威游行的报道，我敦促不得有任何形式的暴力，违法行为和破坏行为。那不是我的立场，也不是美国的立场。 我呼吁所有美国人帮助缓解紧张局势和稳定一下情绪。 谢谢。”
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1c1182a089a4c3408ca3e05c137a618b.png)来源：[https://t.me/real\_DonaldJTrump/13361](https://t.me/real_DonaldJTrump/13361)
-盖特链接：[https://gtv.org/getter/5fff523b87fabe2daf38631b](https://gtv.org/getter/5fff523b87fabe2daf38631b)
-
-* * *
-
-【大选实况】1/13/2021 美东时间 1：35 PM Breaking911推文：众议员马特·盖茨：“美国的左派煽动的政治暴力远远超过右翼。几个月来，我们的城市被烧毁，警察局被烧毁，企业破产了……” “有些人引用了总统点燃火焰的比喻。但是，他们（左派）点燃了真正的火焰！”
-
-
-
-> REP MATT GAETZ: "The left in America has incited far more political violence than the right. For months, our cities burned, police stations burned, businesses shattered…"
-> 
-> "Some have cited the metaphor that the President lit the flame. Well, they lit actual flames!" [pic.twitter.com/iiuie3LXN3](https://t.co/iiuie3LXN3)
-> — Breaking911 (@Breaking911) [January 13, 2021](https://twitter.com/Breaking911/status/1349424949212143617?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/Breaking911/status/1349424949212143617](https://twitter.com/Breaking911/status/1349424949212143617)
-盖特链接：[https://gtv.org/getter/5fff547d87fabe2daf386435](https://gtv.org/getter/5fff547d87fabe2daf386435)
-
-* * *
-
-【大选实况】1/13/2021 美东时间 1：44 PM Breaking911推文：共和党众议员丹·纽豪斯（Dan Newhouse）说，他将投票弹劾特朗普。现在有六名众议院共和党人支持弹劾。
-
-
-
-> Republican. Rep. Dan Newhouse says he will vote to impeach Trump. 
-> 
-> Six House Republicans now support impeachment. [pic.twitter.com/Cf470rdygu](https://t.co/Cf470rdygu)
-> — Breaking911 (@Breaking911) [January 13, 2021](https://twitter.com/Breaking911/status/1349427098591633411?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/Breaking911/status/1349427098591633411](https://twitter.com/Breaking911/status/1349427098591633411)
-盖特链接：[https://gtv.org/getter/5fff567187fabe2daf38650e](https://gtv.org/getter/5fff567187fabe2daf38650e)
-
-* * *
-
-【大选实况】1/13/2021 美东时间 1：55 PM Breaking911推文：众议员劳伦·博伯特（Rep Lauren Boebert）：“我们此时不是在帮助美国人民，而是开始弹劾进一步分裂我们国家。我只能把它叫做扯淡！”
-
-
-
-> REP. LAUREN BOEBERT: "Rather than actually helping American people in this time, we start impeachments that further divide our country. I call bull crap!" [pic.twitter.com/jPCZzCnnKO](https://t.co/jPCZzCnnKO)
-> — Breaking911 (@Breaking911) [January 13, 2021](https://twitter.com/Breaking911/status/1349429971849269250?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/Breaking911/status/1349429971849269250](https://twitter.com/Breaking911/status/1349429971849269250&nbsp;)
-盖特链接：[https://gtv.org/getter/5fff575587fabe2daf386574](https://gtv.org/getter/5fff575587fabe2daf386574)
-
-* * *
-
-【大选实况】1/13/2021 美东时间 2：57 PM Breaking911推文： 又有7名参与美国国会大厦破坏活动的人被捕。
-
-
-
-> 7 Mores Arrested In Siege on U.S. Capitol – [https://t.co/ixkYEm1fGK](https://t.co/ixkYEm1fGK) [pic.twitter.com/b5idDDuxc2](https://t.co/b5idDDuxc2)
-> — Breaking911 (@Breaking911) [January 13, 2021](https://twitter.com/Breaking911/status/1349445540489146368?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/Breaking911/status/1349445540489146368](https://twitter.com/Breaking911/status/1349445540489146368)
-盖特链接：[https://gtv.org/getter/5fff5a6587fabe2daf3866b6](https://gtv.org/getter/5fff5a6587fabe2daf3866b6)
-
-**By： 【秘密翻译组 G-Translators】**
-
-+1
+来源：[https://www.epochtimes.com/gb/21/1/13/n12684607.htm](https://www.epochtimes.com/gb/21/1/13/n12684607.htm) [https://www.epochtimes.com/gb/21/1/13/n12684609.htm](https://www.epochtimes.com/gb/21/1/13/n12684609.htm) [http://cn.ntdtv.com/gb/2021/01/12/a103030514.html](http://cn.ntdtv.com/gb/2021/01/12/a103030514.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-澳喜Logo.jpeg)
++5

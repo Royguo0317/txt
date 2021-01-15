@@ -1,24 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本扩大紧急状态周四开始生效
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/750922/)
+## 【热点播报】美国的通货膨胀来了
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/752650/)
 
-- 编辑：Victor Torres
+作者：纽约香草山写作组   Wilson
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月13日电/西喜社——**日本扩大的紧急状态周四开始生效，政府试图阻止新的中共病毒感染激增，不过由于限制措施没有约束力，许多人似乎忽略了避免非必要旅行的要求。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-在大阪、福冈和被置于紧急状态下的七个新县的其他地区，人们仍在拥挤的火车和公共汽车上通勤。在已经实施紧急法令一周的东京，知事对人们不遵守官方指导表示担忧。小池百合子知事表示，紧急状态不仅仅是避免晚上外出就餐，也不是让餐馆提前关门，而是为了减少人们之间的接触。
 
-专家表示，由于人们日益自满，对紧急措施反应迟钝。过去一个月，日本的中共病毒感染和死亡人数大约增加了一倍，分别达到约30.2万人和4200人。
 
-**新闻来源：**[https://apnews.com/article/pandemics-beijing-coronavirus-pandemic-asia-china-55519470f9de2418789389b2045d5529](https://apnews.com/article/pandemics-beijing-coronavirus-pandemic-asia-china-55519470f9de2418789389b2045d5529)
+2021年1月14日[《华尔街见闻》](https://wallstreetcn.com/articles/3617166)报道，美联储刚刚发布的褐皮书中惊人的发现，几乎所有行业都在涨价。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/be29272f-f0a3-4dca-a04a-7aae84d1295f.jpg)
+美联储褐皮书每年发布八次，是权威的美国经济展望调查报告。该报告是美联储货币政策决策例会的重要参考资料。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+报告书显示，生产投入价格增幅持续高于商品和服务价格增幅，可见企业转嫁生产成本至消费者的能力受到限制。
 
-0
+点评：生活必需品领域出现面粉（原料）价格上涨快于面包（商品）价格的增长幅度。这说明经济运转出了问题，价格传导发生了阻滞。其原因是消费能力不足、货币超常投放的危险效应到达爆发的临界点。
+
+中共病毒疫情泛滥全球已有一年。而这一年中美国的通胀一直处于不温不火的状态，其主要原因是能源价格和消费能力大幅下滑。但这种低通胀率现象正在根据疫情的继续恶化而发生变化。随着更多企业倒闭，更多工人失业及国家税收锐减，各国政府不得不冒着本国货币信用崩溃的风险，加速印钞维系国家运转，这种饮鸩止渴的举措必将引发激烈通胀。
+
+造成这一切的根源是中共病毒，解除当前危机的唯一选项是消灭中共。
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
++1
