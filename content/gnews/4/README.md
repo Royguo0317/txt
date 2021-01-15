@@ -1,31 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》每日简报晚间版 2021.01.11–NewYork Time
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/751352/)
+## 路德直播重磅: 郭文贵先生起诉美大律师楼胜诉【法庭令+备忘录】全文翻译
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/753028/)
 
-出品《路德社》 编辑：路德社精选新闻专栏组
-![]()![](https://gnews.org/wp-content/uploads/2021/01/WhatsApp-Image-2021-01-14-at-10.55.09.jpeg)
-2021/1/11晚-路德时评简讯
+**文件下载链接：**
 
-**1.习近平1月11日照片被证实造假**
+- [【英文原文】法庭令](https://gnews.org/wp-content/uploads/2021/01/Order.pdf)
+- [【英文原文】法庭备忘录](https://gnews.org/wp-content/uploads/2021/01/Opinion-Ps-MTC.pdf)
+- [【中文翻译】法庭令](https://gnews.org/wp-content/uploads/2021/01/1-14-政庇文档_法庭令-2-full.pdf)
+- [【中文翻译】法庭备忘录](https://gnews.org/wp-content/uploads/2021/01/1-14-政庇文档_法庭令-2-full.pdf)
 
-新华网上习近平1月11日的照片被验证是2020年12月29日拍摄的。该照片在网页上下载之后就可以查看到相关信息，当照片被验证是造假之后，中共全网删除该图片，之后又更改了该照片的日期。由此我们可以得知，中共1月11日的会议根本就是子虚乌有，习近平的身体状态极差而且现在习近平的御用摄像师都不能去给习近平拍照。习近平本想造假安抚各级官员，但现在大家都知道了习近平的真实情况。
 
-**2.中共武力威胁蓬佩奥访台**
+**直播视频链接：**
 
-中共官媒称美国国务卿蓬佩奥若访台，解放军战机将在第一时间飞临台湾。中共战机飞临台湾上空则意味着中共和台湾正式开战，在这样的紧要关头，中共口出狂言。现在蓬佩奥国务卿已经离开了华盛顿，倘若蓬佩奥国务卿真的访台，中共是否真的敢武统台湾，或者说中共所谓的“飞临台湾”是前往台湾投诚，又或者是有其他说辞。
+- [【路德时评】2021年1月14日直播中详细分析了此判决](https://gtv.org/video/id=6000ef4df579a75e0bd83efb) （从1:11:14 处开始）
+- [【2017年郭先生谈：中共骇掉代表他申请政庇的律所的电脑】](https://gnews.org/zh-hans/753136/)
 
-**3.蓬佩奥警告美国之音勿成为中共平台**
 
-在郭文贵先生被美国之音断播之前，不少人都将其视为美国自由的代表，是信仰般的存在。甚至在郭文贵先生被断播之后，依然有很多人称美国之音并没有和中共勾兑，认为郭文贵先生造谣指控美国之音，蓬佩奥此番演讲证实了爆料革命之前所说的，爆料革命已然唤醒了整个西方文明世界。
+### **2021年1月12日郭文贵先生起诉美大律师楼胜诉验证中共黑客美国律师楼事实，以下是《法庭令》以及法庭出具的《备忘录法庭意见》全文翻译。**
 
-**4.美国之音可能是未来重要发声平台**
+* * *
 
-蓬佩奥前往“美国之音”是带有任务的。美国之音是政府平台，并且已经建立了几大平台，第一是全球范围播出的收音机平台；第二是卫星电视平台，只要有锅，全球都可以收看。美国之音是短波平台，这种平台需要很长时间才能建立起来。现在美国之音负责人已经换成川普总统信任的人，未来川普总统可能在美国之音发声，蓬佩奥国务卿此番去美国之音可能会有相关的人员安排。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-15-at-1.43.52-pm.png)
 
-文案：《路德社》简报组
-审核校对：玫瑰天空
-上传排版：CharlieNZ查理
+* * *
+![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-02-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-03-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-04-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-05-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-06-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-07-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-08-2-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-09-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-10-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-11-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-12-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-13-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-14-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-15-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-16-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-17-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-18-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-19-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-20-scaled.jpg)
+#### **By【秘密翻译组 G-Translators】**
 
-0
++1

@@ -1,31 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德直播重磅: 郭文贵先生起诉美大律师楼胜诉【法庭令+备忘录】全文翻译
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/753028/)
+## 川普授权在数日内解密通俄门、奥巴马门文件
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/753481/)
 
-**文件下载链接：**
-
-- [【英文原文】法庭令](https://gnews.org/wp-content/uploads/2021/01/Order.pdf)
-- [【英文原文】法庭备忘录](https://gnews.org/wp-content/uploads/2021/01/Opinion-Ps-MTC.pdf)
-- [【中文翻译】法庭令](https://gnews.org/wp-content/uploads/2021/01/1-14-政庇文档_法庭令-2-full.pdf)
-- [【中文翻译】法庭备忘录](https://gnews.org/wp-content/uploads/2021/01/1-14-政庇文档_法庭令-2-full.pdf)
+- 编辑：Victor Torres
 
 
-**直播视频链接：**
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-- [【路德时评】2021年1月14日直播中详细分析了此判决](https://gtv.org/video/id=6000ef4df579a75e0bd83efb) （从1:11:14 处开始）
-- [【2017年郭先生谈：中共骇掉代表他申请政庇的律所的电脑】](https://gnews.org/zh-hans/753136/)
+**西班牙2021年1月15日电/西喜社——**美国总统川普已经解密并授权发布 “超过一英尺高的一叠文件”，这些文件与奥巴马政府对2016年川普竞选活动实施的监视和间谍活动有关，这是诋毁和破坏美国新任总统的更大运动的一部分。
 
+据记者和川普内部人士约翰·所罗门称，这些文件最快将于周五公布，但不会晚于周一。
 
-### **2021年1月12日郭文贵先生起诉美大律师楼胜诉验证中共黑客美国律师楼事实，以下是《法庭令》以及法庭出具的《备忘录法庭意见》全文翻译。**
+“他已经大功告成。他授权FBI和司法部公布的文件不止一英尺高的一叠。这些是联邦调查局4年来一直试图瞒着公众的东西。他们有惊人的、全局性的启示。”所罗门告诉福克斯新闻的 “Lou Dobbs Tonight”。
 
-* * *
+根据所罗门的网站 “Just The News”，释出的文件将支持以下说法，即整个俄罗斯叙事被创造并泄露给新闻媒体，以抢夺对希拉里·克林顿电子邮件丑闻的关注。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-15-at-1.43.52-pm.png)
+**参考链接：**[https://www.zerohedge.com/political/trump-declassifies-foot-high-stack-russiagate-obamagate-documents-set-release-within-days](https://www.zerohedge.com/political/trump-declassifies-foot-high-stack-russiagate-obamagate-documents-set-release-within-days)
 
-* * *
-![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-02-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-03-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-04-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-05-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-06-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-07-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-08-2-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-09-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-10-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-11-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-12-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-13-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-14-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-15-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-16-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-17-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-18-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-19-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-20-scaled.jpg)
-#### **By【秘密翻译组 G-Translators】**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
-+1
++2
