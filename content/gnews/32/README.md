@@ -1,122 +1,92 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美调查病毒起源专案组因如何报告其结论陷入僵局
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/755235/)
+## FBI抓捕戴着 “川普2020” 帽子参加包围国会大厦的消防员
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/755956/)
 
-新闻来源：The Washington Times《华盛顿时报》； 作者：Bill Gertz 比尔戈兹； 发布时间：2021年1月日
+新闻来源：Daily Mail《每日邮报》； 作者：Valerie Edwards； 发布时间：2021年1月13日
 
-翻译/简评：Cathy r；校对/审核：freedust；Page：拱卒
-[!\[\]()!\[\](https://spark.adobe.com/page/M7JCo86ogtDVn/images/5304497f-79de-4bea-9f5c-bc0b8945a1b3.jpg?asset_id=84b121df-7dd5-47c7-a907-46739ee839d6&amp;img_etag=%222b383eaee6b3fb328a218c0373e69b6a%22&amp;size=1024)](https://spark.adobe.com/page/M7JCo86ogtDVn/images/5304497f-79de-4bea-9f5c-bc0b8945a1b3.jpg?asset_id=84b121df-7dd5-47c7-a907-46739ee839d6&amp;img_etag=%222b383eaee6b3fb328a218c0373e69b6a%22&amp;size=1024)
+翻译/简评：MikeHua；校对：SilverSpurs7；审核：万人往；Page：拱卒
+
+[!\[\]()!\[\](https://spark.adobe.com/page/ZdcT4cbggXqLC/images/6bbf2f66-7af1-4b86-a190-c9f2464c6ca6.jpg?asset_id=75210dda-ee29-482c-b3ec-28eab37ea048&amp;img_etag=%22cd1a309737f9df00486cbca78c4bd8ff%22&amp;size=1024)](https://spark.adobe.com/page/ZdcT4cbggXqLC/images/6bbf2f66-7af1-4b86-a190-c9f2464c6ca6.jpg?asset_id=75210dda-ee29-482c-b3ec-28eab37ea048&amp;img_etag=%22cd1a309737f9df00486cbca78c4bd8ff%22&amp;size=1024)
+
 **简评：**
 
-在进行三周的幕后辩论后，研究病毒起源的特别工作组70％的专家希望公开报告该大瘟疫背后的病毒是从武汉病毒研究所高安全级别的医学研究实验室意外泄漏的，15％的工作组成员在争辩病毒是自然起源，7％的工作组成员认为是中共国军方机构以工程技术制造的生物武器。其内部的僵局意味着其调查结果不太可能在1月20日川普总统卸任之前公布。但是随着事态的发展，及爆料革命和其他吹哨人运动的努力，我们相信真相将在不久之后被揭开，中共及其背后的黑暗势力将为此付出代价。
+文中报道的这位消防员被捕是中共掺沙子的典型案例，也是郭先生说的中共及黑暗势力妄图将MAGA定为犯罪组织、把川普和他的一切力量消灭掉的第一步。川普总统本想借着游行进一步发酵民意，给彭斯副总统和国会山内认证选票的两院议员施压，让他们做出有利于川普的决定，没曾想正中中共及暗黑实力下怀。拜登背后的中共力量在示威人群里面掺沙子，将一次和平的示威游行演变成国会山骚乱。中共的所作所为就是让川普总统和支持者们百口难辨，跳进黄河也洗不清。
 
-#### **原文翻译：**
+现在离下一届总统就职典礼只剩几日，民主党几近疯狂地要弹劾川普总统，让他失去一切退休总统的待遇，包括特勤局保护。这就是中共想要的，将川普总统进行物理上的消灭，把支持川普的势力全部抹平，进而掌控美国。中共的疯狂反而会让川普总统选择背水一战，使美国真正的国家力量看明白中共的嘴脸，认清中共的本质。灭共之后，在国际舞台上唯一能代表中国人民的就是新中国联邦。这就是郭先生说的，新中国联邦会是打扫战场的最大赢家。共产党无论如何折腾，都是回光返照，他们越疯狂，灭共会越彻底。共产党你完了！
 
-# 病毒起源特别工作组陷入僵局
-[!\[\]()!\[\](https://spark.adobe.com/page/M7JCo86ogtDVn/images/ac6d92a9-d065-495b-86cc-e785afbec6b5.jpg?asset_id=3bbeca00-bf08-44fa-b00e-56e6b64b89ec&amp;img_etag=%222c155f072823b016d4ac8876be71b8bb%22&amp;size=1024)](https://spark.adobe.com/page/M7JCo86ogtDVn/images/ac6d92a9-d065-495b-86cc-e785afbec6b5.jpg?asset_id=3bbeca00-bf08-44fa-b00e-56e6b64b89ec&amp;img_etag=%222c155f072823b016d4ac8876be71b8bb%22&amp;size=1024)
-为研究冠状病毒起源而由科学家和医学专家组成的一个跨机构小组，在川普政府执政的末期，因如何报告其结论陷入僵局。
+**原文翻译：**
 
-据熟悉工作组内争端的人士称，70％的专家希望公开报告该大瘟疫背后的病毒是从武汉病毒研究所高安全级别的医学研究实验室意外泄漏的。尽管中国科学家拒绝合作研究病毒的基因构成，也拒绝解释病毒的来源，但这一结论还是得到了支持。
+# FBI抓捕佛罗里达消防员，曾在国会山大楼被围攻时戴着“川普2020”的帽子在内拍照
 
-中共国政府也曾发布虚假信息，包括谎称美军将病毒带到了中共国。
+- 佛州桑福德(Sanford)消防员安德鲁·威廉姆斯(Andrew Williams)周二被FBI抓捕。
 
-幕后辩论已经进行了三周，包括一些直言不讳的反特朗普科学家。
 
-争论的焦点是美国政府是否可以正式指定中共国为冠状病毒爆发的起因，并追究北京的责任。中共国已经在全球范围内发起了一场公关运动，以转移对其处理和欺骗大瘟疫的指责。
+- 威廉姆斯被指控一项非法进入受限制建筑的罪名，以及一项在国会大厦内扰乱秩序的罪名。
 
-特别工作组的分歧反映出该问题的极端政治化，许多人认为该问题是国家安全的当务之急，应得到两党的支持。
 
-反对实验室逃逸结论的是一个群体，他们坚持认为病毒是自然发生的人畜共患事件，从蝙蝠开始到中间动物宿主，然后再到人类。据估计，工作组中有15%的人支持这一结论。
+- 桑福德消防部门负责人拉格扎克(Crag Radzak)说，威廉姆斯周二已经被勒令无薪行政休假。
 
-第三个群体，也是获得越来越多的在情报和军方控制团体内支持的一方，希望特别工作组的最终报告声明该病毒，正式名称为严重急性呼吸综合征冠状病2 （SARS-CoV-2），是由中共国军方机构以工程技术制造的生物武器。据估计，有7%的工作组成员同意这种观点。
 
-该立场最初是由曾在中共国实验室工作过流亡的中共国病毒学家闫丽梦首次披露的。她说，她确信冠状病毒是在中共国实验室制造的。闫女士发表了一份广泛的科学研究报告，以支持自己的主张。
+- 提交的照片描绘了一名男子，被确认为威廉姆斯，上周在国会大厦内的骚乱中，他戴着一顶川普2020的帽子。
 
-其余8%的专案组专家没有做出决定，他们希望得到更多数据，而中国拒绝提供这些数据。
 
-据有关人士透露，该专案组包括一些反特朗普的专家和科学怀疑论者。
+[!\[\]()!\[\](https://spark.adobe.com/page/ZdcT4cbggXqLC/images/2051ba17-21d5-44f6-83c0-7c0ee4713ba8.jpg?asset_id=3c15b3bc-ba13-41a4-bada-557a4909fca4&amp;img_etag=%22db9d44b796fb62af469eedb0c9cdd564%22&amp;size=3497)](https://spark.adobe.com/page/ZdcT4cbggXqLC/images/2051ba17-21d5-44f6-83c0-7c0ee4713ba8.jpg?asset_id=3c15b3bc-ba13-41a4-bada-557a4909fca4&amp;img_etag=%22db9d44b796fb62af469eedb0c9cdd564%22&amp;size=1024)桑福德消防员兼护理人员，安德鲁·威廉姆斯（图片），周二被FBI抓捕。
 
-该工作组内部的僵局意味着，其调查结果不太可能在特朗普总统1月20日离任前公布。这意味着，即将上任的拜登政府预期采取更多的对中共国和解政策，将不愿意最终公布工作组的结论。
+佛罗里达州一名消防员被联邦调查局逮捕，因为他被发现戴着川普帽子进入国会大厦，当时国会大厦正被MAGA支持者包围。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/M7JCo86ogtDVn/images/12191573-bb13-4a82-911e-2ce384610a70.jpg?asset_id=bbcce96e-ac74-42d6-abd5-3e486706c3c9&amp;img_etag=%22c6beb01384597074ef7f240916d5585c%22&amp;size=1024)](https://spark.adobe.com/page/M7JCo86ogtDVn/images/12191573-bb13-4a82-911e-2ce384610a70.jpg?asset_id=bbcce96e-ac74-42d6-abd5-3e486706c3c9&amp;img_etag=%22c6beb01384597074ef7f240916d5585c%22&amp;size=1024)
+根据消防部门负责人拉格扎克的声明，桑福德消防员兼护理人员安德鲁·威廉姆斯已于周二被拘留。
 
-特别工作组的工作因中共国政府的阻碍而受阻。北京官员拒绝合作研究该病毒的起源，并继续坚持认为该病毒始于武汉的一个“不受管制的海鲜市场”。一年多前，这个地方已经过消毒，并擦拭干净了所有可能证明该疾病爆发的证据。
+威廉姆斯被捕之后，拉格扎克称威廉姆斯在无薪行政休假，等待刑事调查的结果。
 
-疫情爆发后进行的中共国研究称，于2019年12月在武汉首次发现的病毒已经否定了海鲜市场的原因。试图报告海鲜市场来源异常的中国科学家都遭到了政府的打压。
+拉格扎克称桑福德消防部门已得知有关消防员可能涉及上周华盛顿特区国会大厦事件的信息。
 
-中共国政府也已经开始将疫情的责任从海鲜市场转移到令人质疑的说法上，即病毒起源于南欧，并由海外工人传播到中共国。
+“除此之外，警方还提交了一张照片，照片上是一位名叫安德鲁·威廉姆斯的男性。该照片似乎显示，在抗议者非法进入国会大厦时，威廉姆斯正在里面。”拉格扎克在声明中说。
 
-世界卫生组织正在要求调查该病毒的中心起点。北京起初阻止了调查团队的进入，但中共国政府本周宣布调查团队已获准进入中共国，并将于周四前往武汉。
-[!\[\]()!\[\](https://spark.adobe.com/page/M7JCo86ogtDVn/images/46ec01cc-cd14-4e61-9c23-71ce5588cf0d.jpg?asset_id=72d06cef-2174-42a0-a116-4e52da4ac563&amp;img_etag=%22e61af5f2b0ea941870dd657244dae997%22&amp;size=1024)](https://spark.adobe.com/page/M7JCo86ogtDVn/images/46ec01cc-cd14-4e61-9c23-71ce5588cf0d.jpg?asset_id=72d06cef-2174-42a0-a116-4e52da4ac563&amp;img_etag=%22e61af5f2b0ea941870dd657244dae997%22&amp;size=1024)博明（MattPottinger）
-作为白宫副国家安全顾问的博明（MattPottinger），直到最近才首次公开了对实验室泄漏起源理论的支持。
+威廉姆斯被指控一项非法进入受限制建筑的罪名和一项在国会大厦内扰乱秩序的罪名。。
 
-他最近对英国议员说：”越来越多的证据表明，该实验室可能是最可信的病毒来源。”
+“我们以最高行为标准约束我们消防队的男女工作人员。一个人的行为玷污了整个部门其他人每天的辛勤工作和奉献精神，这让我很难过。”拉格扎克在声明中说。
 
-卫生与公共服务部发言人将问题转给了国务院。
+[!\[\]()!\[\](https://spark.adobe.com/page/ZdcT4cbggXqLC/images/c36d64f9-e45c-4687-aaac-3f8dfee6a930.jpg?asset_id=86953d70-23a4-4f0b-81a6-3be2b2e3254b&amp;img_etag=%22fe2dd6b229e71ebefa845a068f009984%22&amp;size=3412)](https://spark.adobe.com/page/ZdcT4cbggXqLC/images/c36d64f9-e45c-4687-aaac-3f8dfee6a930.jpg?asset_id=86953d70-23a4-4f0b-81a6-3be2b2e3254b&amp;img_etag=%22fe2dd6b229e71ebefa845a068f009984%22&amp;size=1024)在一张匿名人士发给WKMG新闻站的照片中，威廉姆斯的身份被确认后被逮捕。威廉姆斯当时戴着一顶写着“川普2020”的帽子，同时指着众议院议长南希·佩洛西的标牌。
 
-国务院官员说：“国务院最近召集了一个外部专家小组，讨论冠状病毒的可能起源。虽然我们不会泄露私人谈话的内容，但讨论加强了我们的观点，即中共国需要透明化，并对武汉发生的事情做出全面彻底地交代。”
+“我们的调查会继续配合目前的联邦刑事调查。”拉格扎克称。
 
-一位消息人士称，预计中国将继续在病毒来源问题上进行搪塞，希望新一届政府放弃进一步调查的必要。
+“对于任何类型的违反政策，包括刑事违反，必须遵循内部行政程序，以确保彻底的调查和公正的结论。在这一过程中，我请求公众保持耐心。”他补充道。
 
-如果该病毒是一种生物武器，这是一个对国家安全有重大影响的结果，但联邦政府一直无法确定这一点，也无法确定其来源或赞助者。消息人士说，因此，美国很容易受到未来生物武器的攻击，因为它不能发展必要的基础设施，进行必需的情报工作，以确定武器的类型和来源。
+在一张匿名发给WKMG新闻站的照片中，威廉姆斯在身份被确认后被逮捕。
 
-**国务院因交接问题停止访问台湾**
-[!\[\]()!\[\](https://spark.adobe.com/page/M7JCo86ogtDVn/images/f322f669-991d-41e7-a33b-8242b595f41e.jpg?asset_id=74743240-f025-4965-8b10-7c0265bf59a1&amp;img_etag=%2259952b4216f6158afdb66ed8eea54d4e%22&amp;size=1024)](https://spark.adobe.com/page/M7JCo86ogtDVn/images/f322f669-991d-41e7-a33b-8242b595f41e.jpg?asset_id=74743240-f025-4965-8b10-7c0265bf59a1&amp;img_etag=%2259952b4216f6158afdb66ed8eea54d4e%22&amp;size=1024)资料图片。美国驻联合国大使凯利·克拉夫特在新闻发布会上讲话
-特朗普政府政治任命人员与即将上任的拜登政府过渡团队之间的工作，成功打消了美国驻联合国大使凯利·克拉夫特的访台计划。
+照片中，威廉姆斯戴着一顶“川普2020”的帽子，指着写有众议院议长佩洛西的牌子。
 
-克拉夫特女士原定于周四前往台湾发表演讲，与台湾领导人会面，并在台北举行新闻发布会。这次访问的宣布引发了中共国国家媒体的严厉谴责，一家宣传机构威胁要在1月20日前对美国进行 “反击”。
+在骚乱中，佩洛西的办公室被破坏，几名暴徒在她的办公桌前拍照。根据WKMG新闻报道，威廉姆斯周二出现在法庭上，法官把他的保释金定为2.5万美元。
 
-由于在拜登政府人员到位之前，即将卸任和即将上任的政府都需要协调挑选国务院职业官员担任代理官员的工作，因此这次访问被取消。
+在交出护照和旅行的限制下，他被释放。威廉姆斯还被命令上交他拥有的枪械，并接受精神健康评估和药物测试。
 
-国务卿迈克·蓬佩奥周二宣布，由于与过渡官员合作以确定将担任代理职务的国务院职业官员，”我们将取消本周所有计划中的行程”。
+周二他出现在法庭上，法官将他的保释金定为2.5万美元。现在他已被释放，他将需要交出任何枪支和护照，限制他的旅行，并接受精神健康评估和药物测试。
 
-在庞大的官僚机构中，为各局和总局挑选代理官员需要得到拜登和川普官员的同意，预计需要在距离下届政府上台不到一周的时间里。
+如果威廉姆斯被判有罪，他将面临罚款或最高6个月的监禁。
 
-由于官僚机构庞大，在距离下届政府上台不到一周的时间里，为各局和总局挑选代理官员需要得到拜登和特朗普官员的同意，并预期需要一定的时间才能完成。
+[!\[\]()!\[\](https://spark.adobe.com/page/ZdcT4cbggXqLC/images/c749172a-3ca5-4d51-a04f-11fa03ce2d60.jpg?asset_id=c2126819-c22b-49b9-acf1-572b0d7ef5fd&amp;img_etag=%22487615d2c7657949c63e86c23505fe0a%22&amp;size=3413)](https://spark.adobe.com/page/ZdcT4cbggXqLC/images/c749172a-3ca5-4d51-a04f-11fa03ce2d60.jpg?asset_id=c2126819-c22b-49b9-acf1-572b0d7ef5fd&amp;img_etag=%22487615d2c7657949c63e86c23505fe0a%22&amp;size=1024)威廉姆斯不是上周在国会大厦被拍到的唯一一名消防员。联邦特工正在调查纽约市消防员参与国会大厦包围事件的指控。
 
-在宣布这一消息的同时，当选总统拜登的国务卿人选安东尼·布林肯(Antony J.Blinken)周二访问了国务院。
+已经有几个人因国会山骚乱被指控。其中有35岁的西佛吉尼亚州代表德里克·埃文斯 (Derrick Evans)，36岁的亚当·约翰逊(Adam Johnson), 他被拍到抬着佩洛西的讲台，还有60岁的理查德·巴尼特(Richard Barnett)，他被拍到把脚放在佩洛西的桌子上。
 
-熟悉国务院过渡的人士说，需要讨论过渡时期的人事变动为取消克拉夫特女士的访问提供了掩护，而拜登团队反对这种说法。
+联邦特工正在调查纽约市消防员参与国会大厦包围事件的指控。
 
-过渡团队发言人内德·普莱斯（NedPrice）说，过渡问题绝不是国务院决定取消旅程的幕后原因。蓬佩奥先生本人本周取消了本应是最后一次的欧洲之行。
+一名暴徒穿着印有纽约消防局(FDNY)夹克衫——看起来是纽约消防局252分队——在国会大厦外出现。252分队驻扎在布鲁克林。该消防员的名字尚未公布，但据说已经退休。
 
-**中共国人质外交**
-[!\[\]()!\[\](https://spark.adobe.com/page/M7JCo86ogtDVn/images/307b7baf-88a5-4a1e-ab77-48da2c8811e8.jpg?asset_id=c6652340-f2d8-44c4-8d78-aa5eb065d14b&amp;img_etag=%22fc7d98dac3486fe456687729d219bf98%22&amp;size=1024)](https://spark.adobe.com/page/M7JCo86ogtDVn/images/307b7baf-88a5-4a1e-ab77-48da2c8811e8.jpg?asset_id=c6652340-f2d8-44c4-8d78-aa5eb065d14b&amp;img_etag=%22fc7d98dac3486fe456687729d219bf98%22&amp;size=1024)
-据美国国务院领导的安全小组的一份报告称，在华盛顿和北京之间的紧张关系加剧的情况下，中共国政府在过去三年里加强了任意拘留。
+[!\[\]()!\[\](https://spark.adobe.com/page/ZdcT4cbggXqLC/images/1b18d624-6842-4f24-bf43-e920cdd2221f.jpg?asset_id=40da6442-f1dc-4bbd-80ca-f3511be9650a&amp;img_etag=%22b6cf576d5464347746e828484e87ce78%22&amp;size=2560)](https://spark.adobe.com/page/ZdcT4cbggXqLC/images/1b18d624-6842-4f24-bf43-e920cdd2221f.jpg?asset_id=40da6442-f1dc-4bbd-80ca-f3511be9650a&amp;img_etag=%22b6cf576d5464347746e828484e87ce78%22&amp;size=1024)威廉姆斯不是唯一一名上周在国会大厦被拍到的消防员
 
-“华为高管孟晚舟被引渡，以及相应的外国人在中共国被拘留，使这一问题成为民间对赴华旅游的关注焦点”。”海外安全咨询委员会（Overseas Security Advisory Council）的一份报告指出。
+纽约消防局对《纽约每日新闻》(New York Daily News)说，他们已经收到匿名举报，至少一名现任纽约消防员被围困时没有穿制服，但从视频中认出了他。
 
-上个12月底的报告说，孟女士的案件可能会因北京的 “人质外交”而增加在中共国经营的美国企业的风险。两年多前，孟女士因涉及华为涉嫌与伊朗交易的美国拘捕令而被加拿大官员拘留。”
+纽约消防局发言人弗兰克·德威尔(Frank Dwyer)对《纽约每日新闻》说：“消防局收到匿名指控称，有现任或退休消防队员出现在国会大厦1月6日的事件中，根据要求，我们把信息交给了FBI。”
 
-报告说：“2018年12月，在孟晚舟被捕后的几天内，在中共国官员的强烈抗议之后，中共国政府拘留了两名加拿大公民作为谈判筹码。这两名加拿大公民没有违反任何中共国法律，并且已经在中共国生活和工作了一段时间。”
+什么信息被交给联邦特工目前尚不明确，但是官员告诉《纽约每日新闻》，没有人因与暴乱有关而被逮捕或停职。
+[!\[\]()!\[\](https://spark.adobe.com/page/ZdcT4cbggXqLC/images/d98d7ec7-b7e7-42ca-a7c1-0f877a932197.jpg?asset_id=6cd34a4c-75cf-4c58-8908-4b46594812ec&amp;img_etag=%2286aa9995cf2a99ba7ca534e31dea3b1d%22&amp;size=1024)](https://spark.adobe.com/page/ZdcT4cbggXqLC/images/d98d7ec7-b7e7-42ca-a7c1-0f877a932197.jpg?asset_id=6cd34a4c-75cf-4c58-8908-4b46594812ec&amp;img_etag=%2286aa9995cf2a99ba7ca534e31dea3b1d%22&amp;size=1024)理查德·巴尼特(Richard Barnett)
+已经有几个人因国会山骚乱被指控。其中有35岁的西佛吉尼亚州代表德里克·埃文斯 (Derrick Evans)，他在Facebook Live上直播进入国会大厦时刚刚宣誓就职；36岁的亚当·约翰逊(Adam Johnson)，被拍到抬着佩洛西的讲台，还有60岁的理查德·巴尼特(Richard Barnett)，被拍到把脚放在佩洛西的桌子上。
 
-在接下来的两年里，中共国继续开展人质外交，拘留加拿大公民并对其采取可疑的法律行动，以此作为向渥太华政府施压，迫使其释放孟女士的运动的一部分。
+这些案件的指控包括攻击警察、进入国会大厦的限制区域和盗取联邦财产。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/M7JCo86ogtDVn/images/4fcc33fb-34be-41ee-acf5-34ba2782db37.jpg?asset_id=aa259886-1d95-43c1-921b-5f06a14eb38f&amp;img_etag=%2202b24a84f7b2d15ebc137fbed9ddced7%22&amp;size=1024)](https://spark.adobe.com/page/M7JCo86ogtDVn/images/4fcc33fb-34be-41ee-acf5-34ba2782db37.jpg?asset_id=aa259886-1d95-43c1-921b-5f06a14eb38f&amp;img_etag=%2202b24a84f7b2d15ebc137fbed9ddced7%22&amp;size=1024)人质康明凱（Michael Kovrig）和迈克·斯帕弗（Michael Spavor）
-
-主要人质康明凱（Michael Kovrig）和迈克·斯帕弗（Michael Spavor）被人权活动人士称为 “两个迈克尔”，目前仍被关押。
-
-两人在6月被指控犯有间谍罪。
-
-另一名加拿大人罗伯特·谢伦伯格（Robert Schellenberg），因在中国贩卖毒品而被定罪，并被判处15年监禁。谢伦伯格先生否认了这些指控，但在孟女士被捕后，中共国政府宣布量刑过轻，并下令将其处死，报告称这“被广泛视为对加拿大政府的报复” 。
-
-报告称：“中共国在没有任何指控的情况下拘留个人的历史很悠久。”
-
-报告称，自2019年1月起，一项旅行警告开始生效，该警告呼吁“由于（中共国）用各种原因，包括政治影响任意拘留和利用出境禁令有效地‘绑架’美国公民，在中共国的美国旅行者应更加谨慎。
-
-中共国还改变了法律制度，使其更容易无限期地拘留人。
-
-“该制度基本上使双规合法化，双规是共产党长期以来的一种做法，在这种做法中，当局在没有法律顾问或公平审判的情况下关押被拘留者，经常对他们施以酷刑，有时还导致他们在拘留期间死亡。”报告说。
-
-海外安全顾问委员会（OSAC）对美国公司的一项调查发现，近年来对中共国政府劫持人质的担忧急剧增加，但许多公司不顾风险继续向中共国派遣员工。
-
-“美国公民在中国可能因各种原因而面临长期拘留，包括携带毒品；公开或私下批评政府（包括发短信和社交媒体）；参与宗教或政治活动；与中共国政府要逮捕的人有关系或关联；或卷入商业纠纷。”报告说。
-
-“此外，中共国当局拘留外国人纯粹是出于与上述指控无关的地缘政治杠杆。”
-
-🔗原文链接：[https://www.washingtontimes.com/news/2021/jan/13/coronavirus-origin-divides-task-force/](https://www.washingtontimes.com/news/2021/jan/13/coronavirus-origin-divides-task-force/)
+🔗原文链接：[https://www.dailymail.co.uk/news/article-9143787/FBI-busts-Florida-firefighter-photographed-Capitol-building-siege.html](https://www.dailymail.co.uk/news/article-9143787/FBI-busts-Florida-firefighter-photographed-Capitol-building-siege.html)
 
 🔖[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
@@ -124,6 +94,6 @@
 
 🔊[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-编辑：【英国伦敦喜庄园编辑部】[-点击spark adobe版](https://spark.adobe.com/page/M7JCo86ogtDVn/)
-[!\[\]()!\[\](https://spark.adobe.com/page/M7JCo86ogtDVn/images/cf6beadb-a816-4c31-92ef-5ab7c0e4c2e3.jpg?asset_id=a01c9b33-f286-47b2-bfb5-6bddb14ae7ae&amp;img_etag=%22f32971e8aff06faa92c75618178927c1%22&amp;size=1024)](https://spark.adobe.com/page/M7JCo86ogtDVn/images/cf6beadb-a816-4c31-92ef-5ab7c0e4c2e3.jpg?asset_id=a01c9b33-f286-47b2-bfb5-6bddb14ae7ae&amp;img_etag=%22f32971e8aff06faa92c75618178927c1%22&amp;size=1024)
-0
+编辑：【英国伦敦喜庄园编辑部】[-点击spark adobe版](https://spark.adobe.com/page/ZdcT4cbggXqLC/)
+[!\[\]()!\[\](https://spark.adobe.com/page/ZdcT4cbggXqLC/images/cf6beadb-a816-4c31-92ef-5ab7c0e4c2e3.jpg?asset_id=a01c9b33-f286-47b2-bfb5-6bddb14ae7ae&amp;img_etag=%22f32971e8aff06faa92c75618178927c1%22&amp;size=1024)](https://spark.adobe.com/page/ZdcT4cbggXqLC/images/cf6beadb-a816-4c31-92ef-5ab7c0e4c2e3.jpg?asset_id=a01c9b33-f286-47b2-bfb5-6bddb14ae7ae&amp;img_etag=%22f32971e8aff06faa92c75618178927c1%22&amp;size=1024)
++4

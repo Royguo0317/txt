@@ -1,26 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共的国际“卫生部”&#8211;世界卫生组织
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/755504/)
+## 美卫生官员:预计三月新的更具传染性的中共病毒菌株将主导美国
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/755885/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-139-2.jpg)图片来源：BBC
-一年前的今天，世界卫生组织（WHO）就CCP病毒向全世界撒了谎，随后大概有两百万的人因病毒死亡。WHO仍然没有从它过去的失败中吸取教训。
+- 编辑：Victor Torres
 
-2020年1月14日，就在全世界的人民密切关注CCP病毒，为这个病毒大爆发感到担忧的时候，WHO毫无顾虑的仿效中共的宣传，说病毒不会人传人。早在2019年12月第一周，就有武汉的医生有确凿证据证明这个病毒会在人与人之间传播。WHO仍然盛赞CCP对病毒的应对措施，尽管有人曾经向WHO领导者抱怨CCP一贯缺乏透明度。中共掩盖了病毒传播的真相，阻止外国卫生专家参与调查，同时想嫁祸于人，竟然宣布病毒是其他国家的人带进中国。
 
-巧合的是整整一年后，WHO最终为寻找CCP病毒的起源而来到武汉。还是一样，CCP政权试图为这次行动制造障碍。WHO似乎不愿意做任何刺激CCP神经的事情。在世卫总干事谭德赛（Tedros Adhanom Ghebreyesus）的带领下，WHO刻意无视来自台湾就CCP病毒发出的警告，出于对CCP的敬畏，WHO至今未接纳台湾成为成员国。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-距离曾经犯过的错误一年了，WHO并没有吸取任何教训。美国“当选总统”乔·拜登（ Joe Biden）也一样，他誓言在他当总统的第一天就无条件的重新加入WHO。自2010年以来，美国用纳税人的钱支付给WHO共计有三十五亿美元，换来了却是谭德赛针对美国对中共国的旅行禁令更多的指责声，而他却对CCP掩盖疫情绝口不提。
+**西班牙2021年1月15日电/西喜社——**卫生官员说，到三月，一种新的和更具传染性的中共病毒菌株—首次在英国发现—将可能成为美国的主导菌株。
 
-尽管美国许多政客在这场疫情危机中做了些糟糕的决策，但病毒全球爆发依然归咎于CCP政权。WHO就是CCP掩盖病毒真相的帮凶，只要谭德赛还在位，WHO不会有任何改善。
+英国变种目前在12个州，但到目前为止已被诊断出的只占2300万美国病例报告中的76例。然而，根据美国疾病控制和预防中心的科学家的说法，很可能该版本的病毒在这个国家比目前报告的更广泛。
 
-**评**：一年了，世界卫生组织还没有因为它一年前误导世界人民而感到任何愧疚。近两百万的死亡人数也换不来世界卫生组织的变革，这更让世界人民看清了世卫组织的本质，更清楚世卫组织与CCP狼狈为奸的事实，当下的世卫组织就是CCP政权在国际上实现其霸权的打手。只有解散或重组世界卫生组织，完全与CCP脱钩，才能真正恢复这个组织在成立之初的职责和使命。这次武汉之行不外乎是WHO与CCP一起合演的再次欺骗世界的一出荒唐戏。
+虽然它被认为比迄今为止导致美国大部分病例的病毒更具传染性，但没有证据表明它导致更严重的疾病或以不同方式传播。因此，戴口罩、保持社交距离和洗手等预防策略仍然可以发挥作用，CDC说。
 
-[原文链接](https://www.washingtonexaminer.com/opinion/one-year-later-the-world-health-organization-still-hasnt-addressed-its-failures)
+**新闻来源：**[https://apnews.com/article/pandemics-asia-pacific-germany-coronavirus-pandemic-99dfe5596d90f59a6a50d7b8c126c98c](https://apnews.com/article/pandemics-asia-pacific-germany-coronavirus-pandemic-99dfe5596d90f59a6a50d7b8c126c98c)
 
-翻译：WEN JIE
+![]()![](https://gnews.org/wp-content/uploads/2021/01/31d14bea-367f-42cd-ba52-7f6cf62c5805.jpg)
 
-校对：沙拉猫
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
-0
++1
