@@ -1,102 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特实况】1/14/2021 川普收到有关暴徒约翰·沙利文的简报&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/754289/)
+## 美国国务院警告，中共正在建设冷战以来规模最大的核武库
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/755439/)
 
-【大选实况】1/14/2021 美东时间7:26PM Jack Posobiec推文：  最新消息：川普收到有关暴徒约翰·沙利文（John Sullivan）的简报。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/5c489cbb2bdd7f6534690482.jpg)Business Insider
+《华盛顿时报》发表文章【1】，“中共国弹道导弹生产能力几乎增加了两倍，他们正在违反武器控制条约。”
 
+文章说，“美国国务院公布的一份情报评估显示，中（共）国在过去十年迅速扩大了核导弹和常规导弹部队，部署了大量核导弹和常规导弹系统，弹道导弹生产能力几乎增加了两倍，
 
-> BREAKING: Trump receiving brief on rioter John Sullivan [https://t.co/2C4jKcMgLv](https://t.co/2C4jKcMgLv)
-> — Jack Posobiec 🇺🇸 (@JackPosobiec) [January 15, 2021](https://twitter.com/JackPosobiec/status/1349875495299473410?ref_src=twsrc%5Etfw)
+美国国防部周四还通知国会，它认为北京拒绝加入美国与俄罗斯正在进行的核武器削减谈判，（其行为）接近违反《核不扩散条约》（NPT）。
 
+总统军备控制特使马歇尔·比林斯莱（Marshall Billingslea,）说：‘截至本函撰写之时，中（共）国似乎没有遵守《不扩散条约》第六条规定的义务，下届政府必须继续采取全面的外交、经济和防御措施，将共产党中国带到谈判桌上来。’
 
-来源：[https://twitter.com/JackPosobiec/status/1349875495299473410](https://twitter.com/JackPosobiec/status/1349875495299473410)
-盖特链接：[https://gtv.org/getter/60010ca287fabe2daf395aea](https://gtv.org/getter/60010ca287fabe2daf395aea)
+这一警告在给参议院外交关系委员会的一封信中提到了与俄罗斯新一轮削减战略武器条约（START）军备控制谈判的现状。
 
-* * *
+比林斯莱在1月14日的信中说：‘就中（共）国而言，我们正目睹自冷战开始以来最大规模的核武器扩张。’
 
-【大选实时报】1/14/2021 美东时间6:04PM 福克斯主持人Lou Dobbs推文： 战争行径： 章家敦说，在美国企业与北京紧密勾结在一起时，中共国正在使用一切可用的手段来损害美国，从帮助乔·拜登选举到在我们的街道上煽动暴力。
+美国军控核查与合规局（Bureau of Arms Control，Verification and Compliance）周四公布的一份基于情报数据的图表得出结论，自2010年以来，中（共）国导弹生产能力增长了180%，这张图表是在三周前为美国北约盟国举行的一次简报会上首次提出的。
 
+此外，情报显示，2010年中（共）国80%的导弹是常规武器，只有20%是核武器，相比之下，中（共）国目前40%的导弹部队具备核能力，其余60%装备常规弹头。在2012年掌权的习近平的领导下，导弹部队的扩张加速了。”（全文完）
 
+笔者不赞成文章中的措施，“政府必须继续采取全面的外交、经济和防御措施，将共产党中国带到谈判桌上来”，与魔鬼、骗子谈判，如同继续给邪恶机会。中共的发展史，何时信守过承诺！
 
-> Act of War: [@GordonGChang](https://twitter.com/GordonGChang?ref_src=twsrc%5Etfw) says China is using every tool available to undermine the US, from helping elect Joe Biden to instigating violence on our streets, as Corporate America cozies up to Beijing. [#MAGA](https://twitter.com/hashtag/MAGA?src=hash&amp;ref_src=twsrc%5Etfw) [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw) [#Dobbs](https://twitter.com/hashtag/Dobbs?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/jPvrLZQr0L](https://t.co/jPvrLZQr0L)
-> — Lou Dobbs (@LouDobbs) [January 14, 2021](https://twitter.com/LouDobbs/status/1349854849534472198?ref_src=twsrc%5Etfw)
+美国应该真正意识到受到的威胁，就业机会被抢走；经济注水或被收买的寡头控制；技术被偷窃；政治被共产主义渲染化；社会治安“ANTIFA”式；选举被舞弊和窃取；军事又面临上述情况；其实更大的灾难在于你还对这个邪恶抱有希望，试图通过谈判解决面临的危机！
 
+醒醒吧，“灯塔”美国！
 
-来源：[https://twitter.com/LouDobbs/status/1349854849534472198](https://twitter.com/LouDobbs/status/1349854849534472198)
-盖特链接：[https://gtv.org/getter/6001106587fabe2daf395dd8](https://gtv.org/getter/6001106587fabe2daf395dd8)
+参考链接：
 
-* * *
-
-【大选实况】1/14/2021 EST 12:00PM 彭佩奥国务卿推文 我们承认以色列人在戈兰高地拥有主权。 [https://www.whitehouse.gov/presidential-actions/proclamation-recognizing-golan-heights-part-state-israel/](https://www.whitehouse.gov/presidential-actions/proclamation-recognizing-golan-heights-part-state-israel/)
-
-
-
-> We recognized Israeli sovereignty over the Golan Heights. [https://t.co/pHJ4UqRM7e](https://t.co/pHJ4UqRM7e) [pic.twitter.com/JY6bGaRgG9](https://t.co/JY6bGaRgG9)
-> — Secretary Pompeo (@SecPompeo) [January 14, 2021](https://twitter.com/SecPompeo/status/1349763212267446277?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1349763212267446277](https://twitter.com/SecPompeo/status/1349763212267446277)
-盖特链接：[https://gtv.org/getter/6001277d87fabe2daf3974ee](https://gtv.org/getter/6001277d87fabe2daf3974ee)
-
-* * *
-
-【大选实况】1/14/2021 EST 11:30AM 彭佩奥国务卿推文 我们允许出生在耶路撒冷的美国公民在护照上选择耶路撒冷或者以色列作为出生地。[https://t.co/HoaeMArgid?amp=1](https://t.co/HoaeMArgid?amp=1)
-
-
-
-> We permitted U.S. citizens born in Jerusalem to choose “Israel” or “Jerusalem” as their birthplace in passports. [https://t.co/HoaeMArgid](https://t.co/HoaeMArgid) [https://t.co/9MFNaUQ82B](https://t.co/9MFNaUQ82B)
-> — Secretary Pompeo (@SecPompeo) [January 14, 2021](https://twitter.com/SecPompeo/status/1349755657189117957?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1349755657189117957](https://twitter.com/SecPompeo/status/1349755657189117957)
-盖特链接：[https://gtv.org/getter/600127cf87fabe2daf397547](https://gtv.org/getter/600127cf87fabe2daf397547)
-
-* * *
-
-【大选实况】 1/14/2021 美东时间 8:10PM 著名调查记者John Solomon推文：  科米（Comey）称拜登应“考虑”赦免川普 （Just The News报道）
-
-
-
-> Comey says Biden should ‘consider’ pardoning Trump | Just The News [https://t.co/CiFEsKbMLN](https://t.co/CiFEsKbMLN)
-> — John Solomon (@jsolomonReports) [January 15, 2021](https://twitter.com/jsolomonReports/status/1349886527480999936?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/jsolomonReports/status/1349886527480999936](https://twitter.com/jsolomonReports/status/1349886527480999936)
-盖特链接：[https://gtv.org/getter/6000f29787fabe2daf39491b](https://gtv.org/getter/6000f29787fabe2daf39491b)
-
-* * *
-
-【大选实况】1/14/2021 美东时间8:23PM 著名调查记者John Solomon推文：  据分析，在禁止川普账号后，Facebook和Twitter合计已损失510亿美元。
-
-
-
-> After Trump bans, Facebook and Twitter saw combined $51 billion in losses, according to analysis | Just The News [https://t.co/9lDqiIdnCB](https://t.co/9lDqiIdnCB)
-> — John Solomon (@jsolomonReports) [January 15, 2021](https://twitter.com/jsolomonReports/status/1349889928407212036?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/jsolomonReports/status/1349889928407212036](https://twitter.com/jsolomonReports/status/1349889928407212036)
-盖特链接：[https://gtv.org/getter/6000fa4887fabe2daf394e8c](https://gtv.org/getter/6000fa4887fabe2daf394e8c)
-
-* * *
-
-【大选实况】1/14/2021 美东时间6:37PM Peter Navarro推文： 硅谷的 “大防火墙”。扎克伯格先生之流，请拆掉这堵墙！
-
-
-
-> The Great Firewall of Silicon Valley. Tear down that wall Mr. Zuckerberg et. al.[https://t.co/uMgdc6FKhU](https://t.co/uMgdc6FKhU)
-> — Peter Navarro (@RealPNavarro) [January 14, 2021](https://twitter.com/RealPNavarro/status/1349863287522029568?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/RealPNavarro/status/1349863287522029568](https://twitter.com/RealPNavarro/status/1349863287522029568)
-盖特链接：[https://gtv.org/getter/6000fd7687fabe2daf395045](https://gtv.org/getter/6000fd7687fabe2daf395045)
-
-* * *
-
-
-
-**By： 【秘密翻译组 G-Translators】**
+【1】https://www.washingtontimes.com/news/2021/jan/14/china-nuclear-weapons-arsenal-growth-alarming-stat/
 
 +1

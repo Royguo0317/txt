@@ -1,31 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德直播重磅: 郭文贵先生起诉美大律师楼胜诉【法庭令+备忘录】全文翻译
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/753028/)
+## 中华文化是如何被篡改和歪曲的（二）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/756204/)
 
-**文件下载链接：**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/文化篡改2.jpeg)
+在传统文化看来，这些所谓的历史学家就是个说书的。因为我们古代没有历史学家，只有经史学家。传统文化讲一定要以经的智慧来解读历史，才能看清历史背后真正的内涵以及总结教训，而不能只讲历史。
 
-- [【英文原文】法庭令](https://gnews.org/wp-content/uploads/2021/01/Order.pdf)
-- [【英文原文】法庭备忘录](https://gnews.org/wp-content/uploads/2021/01/Opinion-Ps-MTC.pdf)
-- [【中文翻译】法庭令](https://gnews.org/wp-content/uploads/2021/01/1-14-政庇文档_法庭令-2-full.pdf)
-- [【中文翻译】法庭备忘录](https://gnews.org/wp-content/uploads/2021/01/1-14-政庇文档_法庭令-2-full.pdf)
+我们传统文化认为，任何事物都是讲阴阳，而且不断转换，没有任何东西可以永远存在，所以都有个过程，从传统文化讲叫元亨利贞，从佛法来讲叫成住坏空，意思都是一样的。元亨利贞，举例来讲很容易明白，元就是春天，春天萌芽；亨就是夏天，开始生长；利就是秋天，收获；贞就是冬天，全部收藏，元亨利贞就是春夏秋冬，不可能永远生长或者永远收获，必须经历元亨利贞的过程，不断循环或者叫轮回，历史也是一样。这也叫成住坏空，成住坏空是佛法的术语。成就是产生、生成；住就是存在、发展；坏就是发展到顶点，慢慢的衰败、减弱；最后空就衰亡，没有了。这是整个的大趋势，就是所谓的阴阳转换，生生不息，不可能永远只有春天，那没法生长，春天之后就是夏天，夏天之后就是秋天，秋天之后就冬天，如果永远冬天我们都会冻死，冬天之后又是春天。
 
+传统文化也是一样，也经历这个过程，这个循环的过程可以归纳为四个时期，就是中华历史的四个时期，所谓的正法，像法，末法，灭法。正法就是纯正的法，就是规律或者道，正法也可以称正道；像法或称像道，一样东西像另外一样东西，这两样东西肯定不是一模一样的；末法就是细枝末节，衰败的已经不行了；灭法，就是消亡、灭掉了。
 
-**直播视频链接：**
+未完待续!
 
-- [【路德时评】2021年1月14日直播中详细分析了此判决](https://gtv.org/video/id=6000ef4df579a75e0bd83efb) （从1:11:14 处开始）
-- [【2017年郭先生谈：中共骇掉代表他申请政庇的律所的电脑】](https://gnews.org/zh-hans/753136/)
+作者：比卡丘，文也
 
+原创观点文章 – 2021/01/15
 
-### **2021年1月12日郭文贵先生起诉美大律师楼胜诉验证中共黑客美国律师楼事实，以下是《法庭令》以及法庭出具的《备忘录法庭意见》全文翻译。**
+温哥华圆成农场
 
-* * *
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-15-at-1.43.52-pm.png)
-
-* * *
-![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-02-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-03-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-04-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-05-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-06-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-07-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-08-2-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-09-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-10-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-11-1-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-12-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-13-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-14-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-15-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-16-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-17-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-18-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-19-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/PDFtoJPG.me-20-scaled.jpg)
-#### **By【秘密翻译组 G-Translators】**
-
-+1
+0

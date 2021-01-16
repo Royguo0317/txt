@@ -1,31 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】香港宽频按国安法封锁香港编年史网站 香港距翻墙上网近在咫尺『跟踪报导』
-` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/754382/)
+## Snap宣布永久封禁川普snapchat账号（玫瑰看新闻一月十四日）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/755549/)
 
-搜集：文清
-
-编撰：文清
-
-审稿：卡西欧
-
-上传：文粤
-![]()![](https://gnews.org/wp-content/uploads/2021/01/614a937f-abb5-4c49-a020-aee36befcb97.png)图片：【自由亚洲电台】香港宽频证实：按国安法要求停止连线至「香港编年史」网站。
-据自由亚洲电台1月14日报道，香港宽频证实按国安法要求停止连线至香港编年史网站。
-
-成为首家承认因国安法封网的网络供应商。
-
-自上周三晚上起，编年史网站接获报告，网民使用ISP无法登录该网站。香港编年史网站载有大批警员、官员及亲建制阵营人士电话、地址、身份证号码等个人资料的网站。 《明报》等传媒引述警方报道称，警方现阶段向相关人士发行政命令，规定在合理时间范围内移除有关信息。如拒绝执行会违法国安法。
-
-建制派又称亲中派，亲北京阵营，是香港的政治派系之一。由此可知，此举是因为中共警员官员等害怕自己的信息曝光。
-
-随着美国川普政府最后十几天内的加速制裁中共的重拳出击，中共已经感觉到了逐渐窒息的恐惧。而香港是反抗中共的耶路撒冷，是中共最恐惧的革命前沿。所以才会有如今香港一步步走向更加黑暗的时刻。大量曾经参与返送中运动的民主人士和学生、民众都被大量的抓捕。此刻中共在全世界已经处于孤立的地位，政权岌岌可危，随时都会坍塌，虽然现在到了网络的进一步封锁，网友评论随时香港也要翻墙的时刻了。但任何的邪魔鬼怪在垂死前的挣扎是最为凶残的，但它的灭亡已经是不久的事实。
-
-此番封锁网络正是因为在香港作恶的中共的恐惧，他们做尽了丧天良的坏事，因为恐惧到了极点，所以才害怕言论的自由。这正进一步说明了他们内在的虚弱不堪一击，敌人越疯狂的时候就是他们最恐惧的时候，也是他们快要走到尽头的时候。香港人坚持住！黎明就在不远的前方！
-
-以上观点仅代表笔者本人
-
-资料来源：[自由亚洲电台](https://www.rfa.org/cantonese/news/htm/hk-net-01142021030139.html)
-
-+1
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-67.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/2-42.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/3-30.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/4-27.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/5-25.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/6-19.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/7-13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/8-6.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/9-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/10-3.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/11-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/12.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/14-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/15-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/16-1.jpg)
+0

@@ -1,47 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [2021年1月15日 中共病毒疫情更新]
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/754754/)
+## 郭先生讼律师事务所大胜，中共随后的报复只能证明他们是流氓
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/756111/)
 
-撰稿人：青青草原 審核：pv0
+新闻简述：2017年，美国最大的一家律师事务所中途取消代理郭先生的政治庇护案，因为该大律所遭到中共的黑客而且被之勒索。终于2021年1月13日，郭先生在跟此律所的诉讼案一审中获得史无前例的胜利。这对灭共运动有极大推动作用。由此中共惯例性地对郭先生的家人和同事进行报复。但这只能更加证明，中共是“绝对的一个流氓、残酷的， 没有任何善良，没有任何正义， 更不存在什么公平的一个邪教组织”。
 
-国内疫情最新信息：
+有关此诉讼参考：[https://news.bloomberglaw.com/us-law-week/court-oks-chinese-dissidents-malpractice-suit-against-clark-hill](https://news.bloomberglaw.com/us-law-week/court-oks-chinese-dissidents-malpractice-suit-against-clark-hill)
+视频来源：[https://gtv.org/getter/60006aa287fabe2daf38ff99](https://gtv.org/getter/60006aa287fabe2daf38ff99) (06:14 – 08:10)
+**中英文对照全文**
 
-1) 河北疫情持续升温。继石家庄藁城区两万多村民被异地隔离后，又传出正在赶建3000套隔离病房等措施。截至1月13日24时，河北省累计报告本地确诊病例815例、境外输入病例36例。此外，尚在医学观察本地无症状感染者195例、境外输入无症状感染者5例。然而中共官方数据一向受到外界质疑。有多个迹象表明石家庄疫情相当严重。首先，3000套隔离板房（病房）正在赶工开建。1月13日，3000套隔离板房从河北唐山抵运石家庄正定县，唐山三家集成房屋生产企业正在加班加点生产集成房屋，建成后将作为石家庄隔离病房使用。疫情之下的石家庄，门店闭门歇业，街道空空荡荡。人们不能上班不能出小区，在家隔离。解除隔离要等通知。视频链接：https://youtu.be/ERY07ve-hKQ
+You know what the biggest U.S. law firm did to Miles back in 2017? The one next to the White House, the one got cyber-attacked by the CCP, and withdrew the political asylum case on me… All have been telling me that my chance of winning over this firm is nil. The threats this firm has brought on against me are paramount. Tremendous harm. For the first trial from yesterday, the opponent lost big time! A victory like this is unprecedented in the U.S. history. All have been congratulating me. I don’t care much about that.
 
-2) 环绕北京的河北省，疫情不断恶化与蔓延。目前河北有四个城市封城，中共当局还封闭进京高速公路，严防京冀重地疫情也失控。视频链接: https://youtu.be/Ry6mi0iBCTM
+文贵在2017年被美国最大的律师事务所， 白宫旁边的 那个被共产党黑客， 取消了我的政治庇护。 没有一个人说我能赢的， 对方对我的威胁是巨大的， 给我带来巨大伤害。 昨天的第一审， 对方大输。 这是美国历史上前所未有的， 全都恭喜我。 我没有什么在乎的，
 
-3) 1月11日，石家庄确诊病例在武汉行经汉正街等区域，和某一个患者近距离接触者有数百人。汉正街上千人核酸检测。网友：14日武汉医院满满都是人，汉正街的事情一出，大家的神经又都绷紧了许多。视频链接: https://youtu.be/ZQuQFqek1i0
+Meanwhile, in response to my winning the case, the CCP is at it again… Still remember what I revealed back in 2017? The firm denied that they had been hacked by the CCP. But now it has been proven [in court] they absolutely got hacked; plus, the Americans from the law firm even kowtowed to the CCP, despite this firm being one of the largest law firms in the U.S. Thankfully, the United States still has the rule of law, and judges. This nation always gives you a glimmer of hope, whatsoever.
 
-4) 辽宁营口鲅鱼圈一小区，一居民试图出门被赶回。视频链接: https://youtu.be/ZQYvWkHksbg
+同时昨天共产党为了响应这个案子， 我们赢了，共产党.. 记得2017年说过吧？ 说中共没有参与这个黑客袭击， 但是现在证明他绝对是黑客袭击。 而且律师事务所美国人还给它[中共]磕了头， 而且是美国最大律师事务所之一。 但美国有法律还有法官， 这个国家就是你总有希望。
 
-5) 1月13日燕郊封城，出现确诊病例，北京突然取消所有往返燕郊的公车，而疫情爆发地人员只出不进。视频链接: https://youtu.be/bDe4KHP\_fss
+Yesterday, in parallel, the CCP’s Dalian court sent an enforcement notice to Yuda Int’l in Zhengzhou. According to the Dalian’s adjudication, the fine of 13 billion means they will put our Yuda up for auction. See… For the past few years, whenever I won big, the CCP surely responded by taking it out on our extended families, and business associates, former or current. Absolutely gangsters! A big setback from our side here triggers a big celebration on the other side. Forever so… This has never changed for the past few years.
 
-6) 广西南宁现疫情，当局称新发现的本地确诊病例，密切接触者131人。确诊病例所在的虎邱村已封锁，全员连夜核酸检测。视频链接:ht​​tps://youtu.be/9v9rZRnKDgo
+同时昨天 共产党大连市法院给郑州裕达国贸送去了执行通知书， 根据大连的130亿罚款， 要把裕达进行拍卖。 你看..我这边只要是过去几年，只要我这边能有一个大的赢， 共产党那边就对我的所有的过去的家族的 事业和人就会有行动， 这个流氓！ 我们这边主要有大输，那边就有大庆祝， 永远.. 过去几年没变过。
 
-7) 1月14日傍晚，在辽宁省大连市八一路转盘附近，一高层住宅楼突然燃起大火，当天有大风，火借风势，迅速蔓延至顶楼，整个楼烧成一条火龙。当局称楼内没有火，无人员伤亡，起火具体原因不详。视频链接: [https://youtu.be/hcZEMi\_ja6](https://youtu.be/hcZEMi_ja6)​​Y
+Even the Americans have detected the pattern. When I raised the issue of the Yuda enforcement notice to U.S. gov. agencies, they said, “Wow, clock work, every time!” It’s as if whenever I expose those bastards to the world to see, they retaliate by hitting our kids and our compatriots. Some Chinese [CCP] are just like this – whenever foreigners criticize the Communist Party, they will retaliate by punishing the Chinese people. This organization is absolutely gangster-like and cruel. A cult organization that has zero-kindness, zero-justice, let alone any chance of fairness！
 
-8) 2021年1月13日，缅甸入境的中国人被关在云南隔离点。视频中警报响起，有人想逃离。穿着蓝色防疫服的工作人员，手里拿着东西出来巡视。视频链接: https://youtu.be/-otEYUOd46A
+连美国人都发现了， 我把裕达执行书这个问题发给了美国的政府部门， 他们说，”哎..真是每次都这样!” 就是我向全世界揭发这王八蛋真相， 他就打我们的孩子和打我们的同胞。 就像中国人一样， 只要是外国人，一说共产党坏， 他就打中国人民。 这是个绝对的一个流氓、残酷的， 没有任何善良，没有任何正义， 更不存在什么公平的一个邪教组织。
 
-9) 2021年1月14日天津已不准进入。视频中交警宣导说1月14日早上下的通知，不让进天津。视频链接：https://youtu.be/29Qj6LVg2x
+*鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/751824/](https://gnews.org/zh-hans/751824/)*
 
-10) 一律不允许进北京，违反者当场拘留。视频链接：https://youtu.be/xln9JHDqd14
+*翻译：【RD16】 字幕：【相机过热啊】 视频解码： 【恒久忍耐】 编辑：【RD16】*
 
-11) 河北燕郊所谓的党员先锋队组成的社区服务人员呵斥市民，不让市民出小区，说是政府规定。除非你家有人去看病的证明。视频链接：https://youtu.be/1BJN8hi7IzQ
+*喜马拉雅玫瑰园小队出品*
 
-12) 一觉醒来燕郊封城了；1月13日，河北燕郊五期小区一大早就封了不让出去，人山人海都在门口等待。视频链接：https://youtu.be/bx68yrUVrKE
+*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
 
-13) 2021年1月14日，黑龙江五大连池市，进入五大连池，就带往文体中心集中隔离点做核酸检测。视频链接：https://youtu.be/rmYBv-3jges
-
-14) 黑龙江望奎县疫情严重，已封城，所有小区村屯封闭管理，全员强制检测。1月15日，已有医用帐篷入驻及正在街道消毒杀菌。视频链接：https://youtu.be/\_BagD9fCgaw
-
-15) 哈尔滨出租车司机乞讨。视频链接：https://youtu.be/S7X3DWDrKUQ
-
-16) 石家庄疫情严重已封城封小区。网友：14日晚，河北石家庄新华区明珠花苑社区，居民按照上级规定，定时唱歌。再过几天可能喊：要物资，要吃饭。视频链接：https://youtu.be/uloFqiiCx\_c
-
-国际疫情最新信息：
-
-截至2021年1月15日北京时间19点，中国之外已有218个国家和地区有感染病例，累计确诊9320万，死亡200万例。不到24个小时内，较昨日新增89万例，死亡增加2万例。
-
-0
++1

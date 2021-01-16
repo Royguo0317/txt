@@ -1,29 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥：保护和维持一个自由开放的南中国海
-` GM126` [轉載自GNews](https://gnews.org/zh-hans/754340/)
+## 【大选推特实况】1/15/2021 拜登就职典礼彩排因安全原因推迟&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/755526/)
 
-2021年1月14 美国东部标准时间 上午11:42，美国驻华大使馆官网刊登迈克尔·R·蓬佩奥国务卿题为《保护和维持一个自由开放的南中国海》的文章。
+**【大选实时报】1/15/2021 美东时间11:02AM John Solomon推文**： Just The News报道：拜登就职典礼彩排因持续的安全威胁而推迟
 
-文章称，美国以及所有守法的国家在维持一个自由开放的南中国海上有着共同的深远利益。无论军事与经济实力大小，所有国家都应自由享有反映在1982年《海洋法公约》中的国际法下所保障的权利与自由，而不必害怕受到胁迫。
 
-接着文章便指出了美国接下来的措施：
 
-一是美国采取新的行动，来捍卫这些权利与自由。根据美国《移民与国籍法》第 212(a)(3)(C)条，美国国务院现对中华人民共和国的部分人士施加签证制裁。其中包括：国有企业高管以及中国共产党和中国人民解放军（PLA）海军的官员，他们对南中国海有争议的边远岛礁的大规模填海造地、建设或军事化，或对中华人民共和国针对东南亚声索方使用胁迫，阻止他们获得南中国海的离岸资源负有责任或参与同谋。
+> Biden inauguration rehearsal postponed due to ongoing security threats | Just The News [https://t.co/bAPukQdnIb](https://t.co/bAPukQdnIb)
+> — John Solomon (@jsolomonReports) [January 15, 2021](https://twitter.com/jsolomonReports/status/1350111019025240064?ref_src=twsrc%5Etfw)
 
-二是美国商务部已将中国海洋石油集团有限公司（CNOOC）加入实体名单。
 
-三是提出“九段线”非法。
+来源：[https://twitter.com/jsolomonReports/status/1350111019025240064?s=20](https://twitter.com/jsolomonReports/status/1350111019025240064?s=20)
+盖特链接：[https://gtv.org/getter/6001cad587fabe2daf3a21ab](https://gtv.org/getter/6001cad587fabe2daf3a21ab)
 
-四是提出中共胁迫、恐吓、声索国家，并骚扰声索国的石油和天然气开发。
+* * *
 
-五是提出，去年7月，美国再次申明拒绝中华人民共和国在南中国海的非法海洋主张。美国与寻求依照国际法以捍卫其主权权利与利益的东南亚声索国站在一起。我们将继续采取行动，直到我们看到北京停止其在南中国海的胁迫行为为止。
+**【大选实时报】1/15/2021 美东时间12:00PM One America News 推文：** Project Veritas曝光了Twitter的政治审查计划。
 
-结合路德时评爆料美国国务院、国防部、商务部、国土部同一天发布制裁中共企业及个人的制裁令，又加上美国在南海问题上新的措施，可以看出川普政府多管齐下，每天对中共的打击绝对是重磅实锤。
 
-原文链接：
 
-[https://china.usembassy-china.org.cn/zh/protecting-and-preserving-a-free-and-open-south-china-sea-cn/](https://china.usembassy-china.org.cn/zh/protecting-and-preserving-a-free-and-open-south-china-sea-cn/)
+> Project Veritas exposes Twitter’s plan for political censorship – [https://t.co/ff7Cx5T84K](https://t.co/ff7Cx5T84K) [#OANN](https://twitter.com/hashtag/OANN?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/LVygMV05cM](https://t.co/LVygMV05cM)
+> — One America News (@OANN) [January 15, 2021](https://twitter.com/OANN/status/1350125767431122949?ref_src=twsrc%5Etfw)
 
-+1
+
+来源：[https://twitter.com/OANN/status/1350125767431122949](https://twitter.com/OANN/status/1350125767431122949)
+盖特链接：[https://gtv.org/getter/6001cd6c87fabe2daf3a2511](https://gtv.org/getter/6001cd6c87fabe2daf3a2511)
+
+* * *
+
+**【大选实时报】 美东时间1/15/2021 8:20 AM Jack Maxey推文**：现在你对星巴克的了解多了一点了。 （附美联社的报道：中共匪首习近平请求前星巴克CEO舒尔茨（Howard Schultz）协助改善中美关系）
+
+
+
+> And now you know a little bit more about [#Starbucks](https://twitter.com/hashtag/Starbucks?src=hash&amp;ref_src=twsrc%5Etfw) . . . [https://t.co/fGr3qT8hAM](https://t.co/fGr3qT8hAM)
+> — Jack Maxey (@JackMaxey1) [January 15, 2021](https://twitter.com/JackMaxey1/status/1350070353415041024?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/JackMaxey1/status/1350070353415041024](https://twitter.com/JackMaxey1/status/1350070353415041024)
+盖特链接：[https://gtv.org/getter/6001cf6087fabe2daf3a2761](https://gtv.org/getter/6001cf6087fabe2daf3a2761)
+
+* * *
+
+**【大选实时报】1/15/2021 美东时间12:11PM Newsmax推文：** 在提到俄罗斯文件时，美国国家情报局前代理局长理查德·格雷内尔（RichardGrenell ）告诉Newsmax主持人艾玛·雷亨伯格（Emma Rechenberg）： “我认为我们要透明化，向美国人民公布这些文件，这是非常重要的。
+
+
+
+> .[@RichardGrenell](https://twitter.com/RichardGrenell?ref_src=twsrc%5Etfw) tells [@EmmaRechenberg](https://twitter.com/EmmaRechenberg?ref_src=twsrc%5Etfw) "I think it's incredibly important that we be transparent and release it to the American people" referring to Russia documents. [https://t.co/VlT7z8drtO](https://t.co/VlT7z8drtO) [pic.twitter.com/lUwYDIJupB](https://t.co/lUwYDIJupB)
+> — Newsmax (@newsmax) [January 15, 2021](https://twitter.com/newsmax/status/1350128495322689537?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/newsmax/status/1350128495322689537](https://twitter.com/newsmax/status/1350128495322689537)
+盖特链接：[https://gtv.org/getter/6001d71987fabe2daf3a3248](https://gtv.org/getter/6001d71987fabe2daf3a3248)
+
+* * *
+
+**【大选实时报】1/15/2021 美东时间9:39AM Raheem Kassam推文：** 解密文件声称反川普弹劾证人菲奥娜·希尔（Fiona Hill）将前英国情报官员克里斯托弗·斯蒂尔（Christopher Steele）与俄罗斯档案来源联系起来。
+
+
+
+> Impeachment Witness Fiona Hill Connected Christopher Steele to Dossier Source, Alleges Declassified Doc [https://t.co/iRkDsDyVcn](https://t.co/iRkDsDyVcn)
+> — Raheem Kassam (@RaheemKassam) [January 15, 2021](https://twitter.com/RaheemKassam/status/1350090265160282113?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/RaheemKassam/status/1350090265160282113](https://twitter.com/RaheemKassam/status/1350090265160282113)
+盖特链接：[https://gtv.org/getter/6001de2287fabe2daf3a3ae2](https://gtv.org/getter/6001de2287fabe2daf3a3ae2)
+
+By 【秘密翻译组G-Translators】
+
+0

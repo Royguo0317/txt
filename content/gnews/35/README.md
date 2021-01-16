@@ -1,33 +1,104 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 01/15日康州农场前沿观察: 人民能答应吗?
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/754434/)
+## 【大选推特实况】1/15/2021 川普政府对中共国采取最后行动&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/755670/)
 
-播报：Joyce
-撰文：文白
-视频：Buzz文珂
-编辑：1984文姝
-图片素材：沧海一粟 海媚
-审片：皮亚纳
-审核：Truemanman
+**【大选实时报】1/15/2021 美东时间1:50 PM Newsmax推文：** 川普总统2016竞选外交政策顾问团前成员George Papadopoulos：”我认为今天将是奥巴马政府的清算日。”
 
 
 
-“人民能答应吗？”人民人民人民！人民才是历史最终的裁决者。
-1月11号，文贵先生盖特说：“一定要相信人民的力量！文明的国家和独裁的国家，也就是不文明的国家最主要的东西（区别），就是你可以知道民心和民意，这个国家真是人民的。”
-中国封建社会，从孔子的“仁者爱人”，到孟子的“君轻民贵”，无不高呼“爱民”，然而这些“爱民”无一不是建立在为了更好地奴役人民的目的之上。“保民而王（wàng）”，保民的目的只是为了帝王的长治久安江山永固。人民永远是帝王的奴才。
-回想里根总统当年的演讲，至今还振聋发聩：“我们国家是人类历史上第一次颠覆性地扭转了政府应有的组织方式，只简简单单三个字，我们人民。是我们人民告诉政府该做什么，而不是政府告诉我们该做什么。”
-“中华人民共和国”，名为“人民”又何尝有过人民！自建政以来，中共屠杀了多少人民，它的双手沾满了人民的鲜血！
-11日，文贵先生盖文写到：“一个国家和民族的安全、法律和信仰……是多么的重要”。 川普，这位拥有7500万投票者的总统，即使面对重重背叛和欺骗，即便面对中共无所不用其极的超限战或暗杀，他也宁可被杀，绝不向人民挥舞权力的大棒，更绝不会命令军队向人民开枪！值得新中国联邦学习的太多了。文贵先生强调说：新中国联邦一定要为14亿中国人民打造一个再也不能让中国人杀虐中国人的国家！
-13日文贵先生盖特透露，中共白手套叶简明在被灭前说：“共产党的猖狂会让共产党灭亡。”中共把几千年来历朝历代积累的人性之恶运用到了极致，致中华民族于万劫不复之地。
-终极之战，不是灭亡，就是重生！中共的疯狂换来的只有它的自取灭亡。
+> .[@GeorgePapa19](https://twitter.com/GeorgePapa19?ref_src=twsrc%5Etfw) says "I think today is going to be the day of reckoning for the Obama administration." [https://t.co/VlT7z8drtO](https://t.co/VlT7z8drtO) [pic.twitter.com/6vBXOxHMih](https://t.co/6vBXOxHMih)
+> — Newsmax (@newsmax) [January 15, 2021](https://twitter.com/newsmax/status/1350153275832758274?ref_src=twsrc%5Etfw)
 
-——康州盘古农场报道
 
-素材来源：
-1.[https://www.bilibili.com/video/bv12y4y1q7gh](https://www.bilibili.com/video/bv12y4y1q7gh)里根演讲
-2.[https://gtv.org/getter/5ffcd5b587fabe2daf36d461](https://gtv.org/getter/5ffcd5b587fabe2daf36d461) 文贵先生1月11日盖特
-3.[https://gtv.org/getter/5fff19e887fabe2daf384624](https://gtv.org/getter/5fff19e887fabe2daf384624) 文贵先生1月13日盖特
+来源：[https://twitter.com/newsmax/status/1350153275832758274](https://twitter.com/newsmax/status/1350153275832758274)
+盖特链接：[https://gtv.org/getter/6001ea5b87fabe2daf3a49ec](https://gtv.org/getter/6001ea5b87fabe2daf3a49ec)
 
-+1
+* * *
+
+**【大选实时报】1/15/2021 美东时间1:32PM 章家敦推文：** 美国现在存在很多叛国行为，其中大部分都是源于中共的金钱。如果我们要想保住我们的国家，就必须彻底切断中共国的现金流。
+
+
+
+> There’s a lot of treason going on in [#America](https://twitter.com/hashtag/America?src=hash&amp;ref_src=twsrc%5Etfw), most of it the result of [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) money. We have to completely sever the flow of [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s cash if we want to keep our country. [https://t.co/QK9QC807iF](https://t.co/QK9QC807iF)
+> — Gordon G. Chang (@GordonGChang) [January 15, 2021](https://twitter.com/GordonGChang/status/1350148987773464577?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/GordonGChang/status/1350148987773464577](https://twitter.com/GordonGChang/status/1350148987773464577)
+盖特链接：[https://gtv.org/getter/6001ebd387fabe2daf3a4be9](https://gtv.org/getter/6001ebd387fabe2daf3a4be9)
+
+* * *
+
+**【大选实时报】1/15/2021 美东时间 1:22PM Newsmax 推文：** 21,000名国民警卫队成员预计前来履行就职典礼日的安全保护工作，并防止再次出现国会大厦骚乱。
+
+
+
+> 21,000 National Guard members are expected to come in for Inauguration day for security protection and to prevent another repeat of the Capitol chaos. [@Logan\_Ratick](https://twitter.com/Logan_Ratick?ref_src=twsrc%5Etfw) shares details. [https://t.co/VlT7z8drtO](https://t.co/VlT7z8drtO) [pic.twitter.com/qwbqciyWVn](https://t.co/qwbqciyWVn)
+> — Newsmax (@newsmax) [January 15, 2021](https://twitter.com/newsmax/status/1350146335576645641?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/newsmax/status/1350146335576645641](https://twitter.com/newsmax/status/1350146335576645641)
+盖特链接：[https://gtv.org/getter/6001ee4087fabe2daf3a4e9d](https://gtv.org/getter/6001ee4087fabe2daf3a4e9d)
+
+* * *
+
+**【大选实时报】1/15/2021 美东时间1:30PMNewsmax (@newsmax)推文：** 川普政府对中共国采取最后行动。
+
+
+
+> Trump administration makes final moves against China [https://t.co/r7SVxR34ay](https://t.co/r7SVxR34ay)
+> — Newsmax (@newsmax) [January 15, 2021](https://twitter.com/newsmax/status/1350148286657736710?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/newsmax/status/1350148286657736710](https://twitter.com/newsmax/status/1350148286657736710)
+盖特链接：[https://gtv.org/getter/6001f2b687fabe2daf3a5412](https://gtv.org/getter/6001f2b687fabe2daf3a5412)
+
+* * *
+
+**【大选实时报】1/15/2021 美东时间1:20PM OAN 推文： **美国的民调机构将2020年大选推向有利于乔·拜登的方向，且主流媒体在说服美国人毫不怀疑地接受存在问题的选举结果方面发挥了更强大的作用。
+
+
+
+> America’s pollsters swayed the 2020 election in favor of Joe Biden & the mainstream media played a bigger role in convincing Americans to unquestioningly accept the questionable election results. 
+> 
+> Join [@CSinclairtv](https://twitter.com/CSinclairtv?ref_src=twsrc%5Etfw) & [@rpollockDC](https://twitter.com/rpollockDC?ref_src=twsrc%5Etfw) as they examine the media’s efforts. [#OANN](https://twitter.com/hashtag/OANN?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/rSVuH3YY5D](https://t.co/rSVuH3YY5D)
+> — One America News (@OANN) [January 15, 2021](https://twitter.com/OANN/status/1350145893723328514?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/OANN/status/1350145893723328514](https://twitter.com/OANN/status/1350145893723328514)
+盖特链接：[https://gtv.org/getter/6001f40087fabe2daf3a558b](https://gtv.org/getter/6001f40087fabe2daf3a558b)
+
+* * *
+
+**【大选实时报】1/15/2021 美东时间1:12PM OAN推文：** 欢迎收看Christina Bobb的节目，她将深入调查拜登家族在乔·拜登担任副总统期间进行的秘密交易、洗钱和贿赂。 为什么拜登拒绝承认这些证据？司法部是否参与了掩盖事实
+
+
+
+> Join [@christina\_bobb](https://twitter.com/christina_bobb?ref_src=twsrc%5Etfw) as she dives deeper into the secret deals, money laundering & bribes that the Biden family conducted during Joe Biden's vice presidency. 
+> 
+> Why does Biden refuse to acknowledge the evidence? Is the DOJ involved in the cover-up? [#OANN](https://twitter.com/hashtag/OANN?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/QgdFf0EkhX](https://t.co/QgdFf0EkhX)
+> — One America News (@OANN) [January 15, 2021](https://twitter.com/OANN/status/1350143722235850759?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/OANN/status/1350143722235850759](https://twitter.com/OANN/status/1350143722235850759)
+盖特链接：[https://gtv.org/getter/6001f55c87fabe2daf3a5713](https://gtv.org/getter/6001f55c87fabe2daf3a5713)
+
+* * *
+
+**【大选实时报】1/15/2021 美东时间3:03PM Breaking911推文：** 突发新闻：迫于用户对该公司数据共享做法的反感及用户大规模离开，WhatsApp将推迟推出新的业务功能。
+
+
+
+> BREAKING: WhatsApp is delaying the roll out of new business features following user backlash and mass exodus over the company's data sharing practices.
+> — Breaking911 (@Breaking911) [January 15, 2021](https://twitter.com/Breaking911/status/1350171808310448129?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/Breaking911/status/1350171808310448129](https://twitter.com/Breaking911/status/1350171808310448129)
+盖特链接：[https://gtv.org/getter/6001fa2987fabe2daf3a5bd4](https://gtv.org/getter/6001fa2987fabe2daf3a5bd4)
+
+
+
+By【秘密翻译组G-Translators】
+
+0

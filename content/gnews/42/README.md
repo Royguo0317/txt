@@ -1,112 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特实况】1/14/2021 这次华盛顿特区的封锁是违宪的,是公然企图将独裁权力正常化&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/754322/)
+## 川普政府将对卫生部官员和科学家实行任期限制
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/755489/)
 
-【大选实时报】1/14/2021 美东时间 9:24 PM OAN 主持人Christina Bobb推文： 这次华盛顿特区的封锁是违宪的，是公然企图将独裁权力正常化。 距离1月20日还有近一周时间，却设有检查站，对居民进行身份检查。 华盛顿特区看起来好像东柏林。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/capture1-33.jpg)图片为NIH临床研究中心，引自维基百科
+据《政客》（Politico）网1月15日报道，HHS（美国卫生及公共服务部）可能在几天内宣布一项政策，对联邦政府雇佣的科学家和部门主管采取五年任期制度。虽然某些现任的HHS高级官员表示，这项政策可能是对批评川普疫情政策的官员施压，但不管川普总统是否能够连任，这项政策造成的效果将是长期的。
 
+这项法规可能把联邦雇佣的主要科学家，包括在FDA（食品与药物监管局），CDC（疾控中心）任职的科学家，及其部门负责人的职位变成任命制。任期结束前需对他们的工作进行评估，并根据评估结果决定是否继续任职，还是由其他人来接任。一些现任和前任官员认为，在目前这个公众质疑官僚机构独立性的时候，这一招回马枪将使公共健康官员们为了自己的饭碗而玩弄政治平衡。
 
+报道称，一位现任高级官员表示，这是HHS报复性的步步蚕食行动，并认为阿勒克斯·阿札（Alex Azar）部长最后时刻的这一行动明显是一种滥用权力。这条法规将会立即影响到FDA六个局长中的三位，包括负责海外医药及疫苗评估和禁忌政策的主管。报道引用一位CDC高级研究主任的话说，只有四个人知道该规定的实施细则。
 
-> This DC lockdown is unconstitutional and a blatant attempt to normalize dictatorial power. We’re nearly a week away from 1/20, yet there are checkpoints and ID checks for residents. DC looks like East Berlin. [#FreeDC](https://twitter.com/hashtag/FreeDC?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/XfzVo5zeD9](https://t.co/XfzVo5zeD9)
-> — Christina Bobb (@christina\_bobb) [January 15, 2021](https://twitter.com/christina_bobb/status/1349905334811447299?ref_src=twsrc%5Etfw)
+但另一位高级官员告诉《政客》，这个行动并不是针对某一个人或某个机构，而是为了能有一个更好的响应机制，国会通过的“二十一世纪医疗法案”也有对NIH进行限制的规定。他认为，NIH应该支持这种行动，因为这能够提高那些特定职位的多元化，并为其他人的升迁提供机遇。这条2016年通过的法案规定，对NIH各部门主管，包括美国NIAID（国家过敏和传染病研究所）的主任安东尼·福奇（Anthony Fauci），需每五年进行一次评估。
 
+该报道还引用了大量知名与匿名人士的反对意见，理由有很多，比如FDA局长史蒂芬·哈恩（Stephen Hahn）认为，该政策破坏了健康机构的独立性，并抱怨采取这个行动的时机非常政治化。报道披露，拜登过度政府任命的FDA代理局长珍妮特·伍德科克（Janet Woodcock）即将上任，伍德科克是一位在FDA任职近40年的官员，拜登可能会任命伍德科克为FDA的正式局长，但伍德科克并没有对此发表评论。
 
-来源：[https://twitter.com/christina\_bobb/status/1349905334811447299](https://twitter.com/christina_bobb/status/1349905334811447299)
-盖特链接：[https://gtv.org/getter/60011faf87fabe2daf396bd7](https://gtv.org/getter/60011faf87fabe2daf396bd7)
+**评：**要认清楚美国政治，绝对不能简单地用对与错来判断。再怎么有利于民众的政策都会受到合理的质疑声，因为民众没有办法人人都去了解每个部门的政治游戏。一个五年任期的事情都被搞得风风雨雨，各方面人士都出来表达意见。民主政治里的东西我们还需花很长时间去学习。
 
-* * *
+[原文](https://www.politico.com/news/2021/01/14/trump-health-scientist-term-limits-459542)
 
-【大选实时报】1/14/2021 美东时间8:35PM Newsmax推文： 在审视了子虚乌有的弹劾和他们对言论自由的讨伐后， Newsmax主持人Grant Stinchfield称 “民主党正在寻求分裂共和党”。
+译者：张雨桐
 
+校对：文旺
 
-
-> 'Dems are on a quest to divide GOP,' says [@Stinchfield1776](https://twitter.com/stinchfield1776?ref_src=twsrc%5Etfw). He examines the sham impeachment and their crusade against free speech. [https://t.co/VlT7z8drtO](https://t.co/VlT7z8drtO) [pic.twitter.com/OFUWlOssF1](https://t.co/OFUWlOssF1)
-> — Newsmax (@newsmax) [January 15, 2021](https://twitter.com/newsmax/status/1349892874188582912?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/newsmax/status/1349892874188582912](https://twitter.com/newsmax/status/1349892874188582912)
-盖特链接：[https://gtv.org/getter/6001132487fabe2daf395ff9](https://gtv.org/getter/6001132487fabe2daf395ff9)
-
-* * *
-
-【大选实时报】1/14/2021 美东时间 8:40PM Zerohedge推文：   贺锦丽（Kamala Harris）支持的对暴力犯进行保释的基金会拒绝透露出狱罪犯的有关记录。
-
-
-
-> Kamala Harris-Promoted Fund That Bailed Out Violent Thugs Refuses To Share Records Of Criminals Sprung From Jail [https://t.co/Tp8imA7oiN](https://t.co/Tp8imA7oiN)
-> — zerohedge (@zerohedge) [January 15, 2021](https://twitter.com/zerohedge/status/1349894225777876992?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/zerohedge/status/1349894225777876992](https://twitter.com/zerohedge/status/1349894225777876992)
-盖特链接：[https://gtv.org/getter/6001177287fabe2daf396353](https://gtv.org/getter/6001177287fabe2daf396353)
-
-* * *
-
-【大选实时报】1/14/2021 美东时间 8:45PM Newsmax推文：  纳瓦罗：封禁Parler是对民主的威胁。
-
-
-
-> NAVARRO: 'Parler ban is a threat to Democracy' [https://t.co/Ffmg9CIlWi](https://t.co/Ffmg9CIlWi) [pic.twitter.com/yr0Lc0axyU](https://t.co/yr0Lc0axyU)
-> — Newsmax (@newsmax) [January 15, 2021](https://twitter.com/newsmax/status/1349895338568646658?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/newsmax/status/1349895338568646658](https://twitter.com/newsmax/status/1349895338568646658)
-盖特链接：[https://gtv.org/getter/600119e787fabe2daf396556](https://gtv.org/getter/600119e787fabe2daf396556)
-
-* * *
-
-【大选实时报】1/14/2021 美东时间9:23PM OAN推文： 拜登敦促参议院在弹劾审议期间专注于推进拜登政府的议程。
-
-
-
-> Biden urges Senate to focus on his agenda amid impeachment trial – [https://t.co/zc60u0cP6V](https://t.co/zc60u0cP6V) [#OANN](https://twitter.com/hashtag/OANN?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1AiggIQANu](https://t.co/1AiggIQANu)
-> — One America News (@OANN) [January 15, 2021](https://twitter.com/OANN/status/1349905104120410113?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/OANN/status/1349905104120410113](https://twitter.com/OANN/status/1349905104120410113)
-盖特链接：[https://gtv.org/getter/600121af87fabe2daf396e53](https://gtv.org/getter/600121af87fabe2daf396e53)
-
-* * *
-
-【大选实时报】1/14/2021 EST10:08PM Breaking911推文: 最新消息：拜登阵营创立新的推特账户以吸引追随者，因为推特将在交接前删除川普的追随者。 @PreElectBiden 将取代 @POTUS, @flotusbiden 将取代 @FLOTUS, @presssecpsaki 将取代 @PressSec 当选副总统贺锦丽的先生的账户是 @secondgentleman
-
-
-
-> NEW: Biden camp creates new Twitter accounts to build following as Twitter will wipe Trump's followers before handover:[@PresElectBiden](https://twitter.com/PresElectBiden?ref_src=twsrc%5Etfw) will take over [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw)[@flotusbiden](https://twitter.com/FLOTUSBiden?ref_src=twsrc%5Etfw) will take over [@FLOTUS](https://twitter.com/FLOTUS?ref_src=twsrc%5Etfw)[@presssecpsaki](https://twitter.com/PressSecPsaki?ref_src=twsrc%5Etfw) will take over [@PressSec](https://twitter.com/PressSec?ref_src=twsrc%5Etfw)
-> VP-elect Harris' husband is [@secondgentleman](https://twitter.com/SecondGentleman?ref_src=twsrc%5Etfw)
-> — Breaking911 (@Breaking911) [January 15, 2021](https://twitter.com/Breaking911/status/1349916362903318529?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/Breaking911/status/1349916362903318529](https://twitter.com/Breaking911/status/1349916362903318529)
-盖特链接：[https://gtv.org/getter/600125a787fabe2daf3972f7](https://gtv.org/getter/600125a787fabe2daf3972f7)
-
-* * *
-
-【大选实时报】1/14/2021 美东时间10:40 PM zerohedge推文:  脸书封杀前共和党众议员罗恩· 保罗表明，科技公司的审查制度并非关于川普，而是为了压制异议。
-
-
-
-> Facebook Blocking Ron Paul Shows Tech Censorship Is Not About Trump, It's About Suppressing Dissent [https://t.co/5GAsfgyUC6](https://t.co/5GAsfgyUC6)
-> — zerohedge (@zerohedge) [January 15, 2021](https://twitter.com/zerohedge/status/1349924422283632641?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/zerohedge/status/1349924422283632641](https://twitter.com/zerohedge/status/1349924422283632641)
-盖特链接：[https://gtv.org/getter/600128dd87fabe2daf397693](https://gtv.org/getter/600128dd87fabe2daf397693)
-
-* * *
-
-【大选实时报】1/14/2021 美东时间 10:47 PM OAN推文：  联邦调查局、国土安全部和国家反恐中心指出，反政府极端分子是 “2021年最大的国内恐怖主义威胁”。
-
-
-
-> FBI, DHS, Nat’l Counterterrorism Center point to anti-gov’t extremists as ‘greatest domestic terrorism threat of 2021’ – [https://t.co/s3XeJXhJbc](https://t.co/s3XeJXhJbc) [#OANN](https://twitter.com/hashtag/OANN?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/mlvNok4bTB](https://t.co/mlvNok4bTB)
-> — One America News (@OANN) [January 15, 2021](https://twitter.com/OANN/status/1349926143667785732?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/OANN/status/1349926143667785732](https://twitter.com/OANN/status/1349926143667785732)
-盖特链接：[https://gtv.org/getter/60012a5187fabe2daf397846](https://gtv.org/getter/60012a5187fabe2daf397846)
-
-**By： 【秘密翻译组 G-Translators】**
-
-+1
++2

@@ -1,27 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 报告摘录：中共国海产供应链的人口贩运
-` GM126` [轉載自GNews](https://gnews.org/zh-hans/754445/)
+## 【热点播报】所有禁止川普总统的公司名单
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/755698/)
 
-美国驻华大使馆官网报道，在向国会提交的一篇有关海产供应链的人口贩运报告，其中披露了中共国在海洋渔业及其供应链上的人口贩运和犯罪。
+作者：纽约香草山写作组   Daxia
 
-一是非法捕捞：中华人民共和国在该国捕捞业采取侵权行为，是使用强迫劳动的一个主要国家，已知有大量相关报告涉及世界各地悬挂中国旗帜和中国拥有的船只。
 
-二是规模庞大，国籍众多：中国拥有全世界最大的捕捞船队，其中大量各类船只在世界各地的公海和外国专属经济区作业。船上大多数船员都是来自印度尼西亚和菲律宾的外来劳工，但也发现有些来自非洲和其他亚洲国家。
 
-三是各种非法行为：捕捞船只上发生了无数使用强迫劳动的事件。诸如超长工作时间、恶劣的生活条件、在海上漂泊数月至数年的孤独处境、遭受辱骂和人身虐待、拒付工资、扣押证件、债务劳役等情况。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-四是虐待致死：这些船上的虐待行为已导致人员死亡。
 
-五是合谋欺诈：有时工人受某些机构以虚假的工资与合同等欺骗手段被招募。他们往往必须支付应聘费并签署债务合同。
 
-六是不受管制：中国的捕捞船队是全球非法、未报告和不受管的制捕捞活动的一个主要方面；在这些船上被迫从事非法、未报告和不受管的制捕捞活动的船员还面临遭受不当惩罚的高风险。据捕捞业观察人员的报告，中华人民共和国捕捞业缺乏监督，使渔民面临更高的强迫劳动危险。
+据[weloveTrump](https://welovetrump.com/2021/01/15/heres-a-list-of-all-the-companies-that-have-banned-president-trump/)整理报道，川普总统已经被禁止使用多种服务。最先是脸书和推特，但后来很多公司都跟风禁止川普使用他们的产品或服务。
 
-以上乱象更加验证中共国是一个现代奴隶制度的独裁国家，中共在各行各业压榨奴役人民，在海洋渔业方面有如此耸人听闻而又真实残酷的现象，就是最真实的现状。中共的邪恶的触手早已深入每个行业，如果不彻底消灭中共，这种邪恶的现代奴隶制度必然渗透、蔓延至全球。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/image-185.png)
 
-相关链接：https://china.usembassy-china.org.cn/zh/report-to-congress-human-trafficking-in-the-seafood-supply-chain-cn/
+以下是禁止他的公司和组织的名单:
 
-向国会提交的联合报告全文见：https://china.usembassy-china.org.cn/wp-content/uploads/sites/252/DOSNOAAReport\_HumanTrafficking.pdf
+Twitter：（推特永久封禁总统，因其违反“煽动暴力”的条款和政策）
 
-+6
+Facebook ：（川普总统被脸书禁止访问两周，但据该公司发言人表示，该禁令可能会持续更长时间）
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/image-186.png)
+
+Shopify：（下架了两家与川普竞选团队有关的网店）
+
+Reddit Reddit：（撤下了“唐纳德·川普”群）
+
+Twitch：（直播服务已经封禁了川普的“保护Twitch社区”，这真是个笑话，对吧?）
+
+Instagram：（已经封禁川普两周了，也可能会持续更久）
+
+Youtube：（将川普封禁7天，并删除了他的一些视频）
+
+Google/Apple：（下架了川普用于替代推特的软件Parler）
+
+Snapchat：（Snapchat关闭了川普的账号）
+
+Pinterest：（不允许支持川普的话题标签）
+
+Stripe：（Stripe将不再为川普总统的竞选活动处理款项）
+
+Spotify：（音乐和播客流媒体应用禁止川普注册账户）
+
+PGA：（高尔夫联盟禁止在2022年锦标赛上使用川普的球场）
+
+Deutsche Bank：（这家德国银行表示，他们将不再为川普提供服务）
+
+Signature Bank：（这家美国银行表示将不再与川普总统有任何生意往来）
+
+New York City Contracts：（纽约市长白思豪周三宣布，纽约市将取消与川普总统的商业合同）
+
+大科技公司无法真正改变川普在爱国者心中的位置，但川普也确实是历史上最没有受到尊重的总统。然而，笔者始终相信真相定会大白于天下的。
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
++11
