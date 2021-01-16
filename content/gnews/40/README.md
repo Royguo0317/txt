@@ -1,59 +1,87 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《环球时报》竟批评美国封杀言论自由
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/755872/)
+## 【大选推特实况】1/15/2021 大型科技公司不仅拥有政治机构, 还控制着智库的基础设施&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/757453/)
 
-新闻来源：BRAITBART《布莱特巴特》； 作者：John Hayward； 发布时间：2021年1月13日
+【大选实况】1/15/2021 EST 3:54 PM 真正美国声音（RAV) 推文： 不寻常：聊天记录揭示了将川普集会变成暴力骚乱的计划。
 
-翻译/简评：MikeHua；校对：SilverSpurs7；审核：万人往；Page：小雨
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/0115291.jpg)
 
-**简评：**
+> EXTRAORDINARY: Chat Logs Reveal Alleged Plan To Turn Trump Rally Into Violent Riot[@RaheemKassam](https://twitter.com/RaheemKassam?ref_src=twsrc%5Etfw) [https://t.co/zyT9t7nniC](https://t.co/zyT9t7nniC)
+> — Real America's Voice (RAV) (@RealAmVoice) [January 15, 2021](https://twitter.com/RealAmVoice/status/1350184705929445377?ref_src=twsrc%5Etfw)
 
-中共喉舌《环球时报》虽然臭味满身，但是这次批评美国对川普总统的噤声是数字霸权的逻辑，似乎有几分道理。郭文贵先生说美国大选将以荒唐滑稽的结局收场，这应该是其中滑稽的一幕。美国科技巨头集体禁声川普，手段之低劣，使“硅谷精英”沦落到和中共删帖的网警一个水平。
 
-《环球时报》的特点仍然是骗，这一点没有改变。它在欺骗国内人民美国政治真相的同时，也在欺骗中南坑里的人，可谓是欺上瞒下。中共仍然认为美国的国家力量是华尔街控制的，只要继续勾兑，还可以占美国的便宜。殊不知沼泽地的鳄鱼渐渐浮出水面，该到了收网的时候了。中共现在越是疯狂，离他们灭亡的时刻也就越是不远了！
+来源：[https://twitter.com/realamvoice/status/1350184705929445377?s=21](https://twitter.com/realamvoice/status/1350184705929445377?s=21)
+盖特链接：[https://gtv.org/getter/600238b187fabe2daf3a7999](https://gtv.org/getter/600238b187fabe2daf3a7999)
 
-**原文翻译：**
+* * *
 
-# 中共国批评美国“数字霸权”，呼吁网络“主权”
+【大选实况】1/15/2021 EST 5:42 pm  鲁道博推文： 深层政府在行动：@TomFitton说，密谋反对川普总统及其竞选活动的深层政府各角色，马上会在拜登政府中得到工作机会。#MAGA #AmericaFirst #Dobbs
 
-**中共喉舌《环球时报》周二(1月12日）谴责科技巨头封禁川普总统的行为，称这是“美国数字霸权”，并要求类似推特、谷歌、苹果和亚马逊这样的公司认可其他国家的网络“主权”。**
 
-川普在中共媒体上的形象并不是那么让人同情。就连《环球时报》也在“中共国分析人士”的预测中哀叹针对他的审查制度，称“川普主义不会因为大型科技公司试图让他闭嘴而消失”，反而会“让美国更加分裂”。
 
-周二的《环球时报》社论提供了一个很好的例子，说明中共国宣传人员如何仔细学习美国新闻、评论和社交媒体，不断寻找可以为北京的政治需要所利用的角度。在这种情况下，科技巨头对川普的审查成了《环球时报》批评美国网络“霸权”的一个平台——霸权的意思是美国一直批评中共侵犯人权和政治压迫。当中共说“主权”的时候，它意味着世界上的其他国家任由中共国对异议人士和被忽视的少数民族为所欲为。
+> Deep State Returns: [@TomFitton](https://twitter.com/TomFitton?ref_src=twsrc%5Etfw) says those who conspired against President Trump and his campaign will soon be back to work in the Biden Administration. [#MAGA](https://twitter.com/hashtag/MAGA?src=hash&amp;ref_src=twsrc%5Etfw) [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw) [#Dobbs](https://twitter.com/hashtag/Dobbs?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/Pd9fVtWBJs](https://t.co/Pd9fVtWBJs)
+> — Lou Dobbs (@LouDobbs) [January 15, 2021](https://twitter.com/LouDobbs/status/1350211684187697153?ref_src=twsrc%5Etfw)
 
-和俄罗斯人所做的一样，《环球时报》把国会山骚乱描绘成美国对民主运动和“颜色革命”的支持，后者正伺机攻击华盛顿：
 
-*复旦大学国际关系与公共事务学院教授沈逸告诉《环球时报》，民主党和社交媒体巨头在国会山骚乱之后对川普及其支持者实施的措施是“美国推翻外国政府的经典计策——利用冲突作为机会，通过选择性地在网上传播或屏蔽特定信息来煽动公众”，掌控舆论，为颜色革命或者政变创造条件，用编造的理由消灭政治力量。*
+来源：[https://twitter.com/LouDobbs/status/1350211684187697153](https://twitter.com/LouDobbs/status/1350211684187697153)
+盖特链接：[https://gtv.org/getter/60023b6687fabe2daf3a7b84](https://gtv.org/getter/60023b6687fabe2daf3a7b84)
 
-*“结果证实这个计策很成功。川普和他的支持者注定要失败。”沈逸说。*
+* * *
 
-[![](https://spark.adobe.com/page/xIC1JjfQQUlkN/images/e2f0fcea-1959-4d48-bd63-c8b5436ed92b?asset_id=21370769-7373-4ec2-b971-c7e0348cde0f&amp;img_etag=%226957e1caae2d8e98d943da73fb69717d%22&amp;size=2560)](https://spark.adobe.com/page/xIC1JjfQQUlkN/images/e2f0fcea-1959-4d48-bd63-c8b5436ed92b?asset_id=21370769-7373-4ec2-b971-c7e0348cde0f&amp;img_etag=%226957e1caae2d8e98d943da73fb69717d%22&amp;size=1024)
+【大选实况】1/15/2021 EST 5:56 pm 鲁道博推文： 收买和掌握的政治家：@SohrabAhmari说，大型科技公司不仅拥有华盛顿的政治机构，而且还控制着智库基础设施，并灌输他们的思想。 #MAGA #AmericaFirst #Dobbs
 
-《环球时报》引用了美国人——从美国公民自由联盟到共和党国会议员Devin Nunes——对大型科技巨头合谋打压像Parler这样的新兴竞争对手的反垄断后果的担忧，Parler是推特的另一个选择。这种担忧令人很难接受，因为真诚来自一个威权政府的官方媒体机构，这个政府严格控制着各行各业，直接拥有许多最大的竞争对手，而且有一种本领，能让那些忘记中共国是世界上最强大的垄断者消失，直到他们头脑清醒。
 
-《环球时报》对硅谷寡头的批评很快演变成对资本主义的常见攻击，夹杂着对民主国家如何难以应对中共冠状病毒大流行的幸灾乐祸：
 
-*“建制派势力在川普任期的最后一周展示了他们的终极力量，几乎可以消除他的政治影响力，但在此之前，他们从未如此团结和自信地干预川普的执政，即使是在政府处理失误和错误信息导致逾37万美国人死于冠状病毒期间也是如此，”沈逸说，“对这些精英来说，国会山骚乱似乎比致命的、不受控制的疫情更有害。”*
+> Bought And Owned Politicians: [@SohrabAhmari](https://twitter.com/SohrabAhmari?ref_src=twsrc%5Etfw) says big tech not only owns the political establishment in Washington, but also controls the think-tank infrastructure that feeds them their ideas. [#MAGA](https://twitter.com/hashtag/MAGA?src=hash&amp;ref_src=twsrc%5Etfw) [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw) [#Dobbs](https://twitter.com/hashtag/Dobbs?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/0rHQqYMlH7](https://t.co/0rHQqYMlH7)
+> — Lou Dobbs (@LouDobbs) [January 15, 2021](https://twitter.com/LouDobbs/status/1350215419211165700?ref_src=twsrc%5Etfw)
 
-*这表明，赋予所有建制派、政客、媒体和社交媒体网络和公司权力的美国权力中心依旧是华尔街，没有任何力量可以和资本的权力抗衡，中国社科院研究员吕祥称。*
 
-文章结尾引用了中国人民大学金灿荣的预测，只要“金融行业和实体经济不平等发展”，“精英和中产阶级之间财富分配不平等”在美国持续存在，“一个更聪明、政治技巧更高超的川普支持者可能会重返政坛。”
+来源：[https://twitter.com/LouDobbs/status/1350215419211165700](https://twitter.com/LouDobbs/status/1350215419211165700)
+盖特链接：[https://gtv.org/getter/60023ba287fabe2daf3a7bb8](https://gtv.org/getter/60023ba287fabe2daf3a7bb8)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/xIC1JjfQQUlkN/images/738f7149-78b1-4fc0-bd4d-a879a0c7bdcb.jpg?asset_id=12b23ac5-a0cd-4f99-9b60-04649d3e0fa1&amp;img_etag=%22d8c710d9f3c2cb071d544b2892e6c24e%22&amp;size=2560)](https://spark.adobe.com/page/xIC1JjfQQUlkN/images/738f7149-78b1-4fc0-bd4d-a879a0c7bdcb.jpg?asset_id=12b23ac5-a0cd-4f99-9b60-04649d3e0fa1&amp;img_etag=%22d8c710d9f3c2cb071d544b2892e6c24e%22&amp;size=1024)
+* * *
 
-[原文链接](https://www.breitbart.com/national-security/2021/01/13/china-slams-u-s-digital-hegemony-calls-for-online-sovereignty/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+breitbart+%28Breitbart+News%29)
+【大选实况】1/15/2021 EST 7:53 pm 福克斯 鲁道博推文： 令人发指的无能和腐败：国会警察情报报告在袭击发生三天前就警告说，“国会本身”可能成为攻击目标
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+> Outrageous Incompetence and Corruption: Capitol Police intelligence report warned three days before attack that ‘Congress itself’ could be targeted [https://t.co/SGLIRVFN6X](https://t.co/SGLIRVFN6X)
+> — Lou Dobbs (@LouDobbs) [January 16, 2021](https://twitter.com/LouDobbs/status/1350244863825031170?ref_src=twsrc%5Etfw)
 
-编辑：【英国伦敦喜庄园编辑部】[-点击spark adobe版](https://spark.adobe.com/page/xIC1JjfQQUlkN/)
-[!\[\]()!\[\](https://spark.adobe.com/page/xIC1JjfQQUlkN/images/9f65b6d5-f9a5-40cf-9fd6-3d3eda82fd23.jpg?asset_id=ecb81afe-c3d0-49c0-b6b1-a08cc6d7455a&amp;img_etag=%2234e372e20c5705b800bceb7a814f6e38%22&amp;size=1024)](https://spark.adobe.com/page/xIC1JjfQQUlkN/images/9f65b6d5-f9a5-40cf-9fd6-3d3eda82fd23.jpg?asset_id=ecb81afe-c3d0-49c0-b6b1-a08cc6d7455a&amp;img_etag=%2234e372e20c5705b800bceb7a814f6e38%22&amp;size=1024)
+
+来源：[https://twitter.com/loudobbs/status/1350244863825031170?s=21](https://twitter.com/loudobbs/status/1350244863825031170?s=21)
+盖特链接：[https://gtv.org/getter/60026a0987fabe2daf3a918f](https://gtv.org/getter/60026a0987fabe2daf3a918f)
+
+* * *
+
+【大选实况】1/15/2021 EST 9:19 pm 真正的美国声音（RAV) 推文： 虚伪的鼓噪就像來自左派的铃铛一样，真的很难看得下去，因为每个人都应该遵循法律和秩序。 @ErinElmore和@RealDrGina一起讨论了去年夏天对左翼暴徒缺乏问责的问题。
+
+
+
+> "The hypocrisy rings like a bell from the left, and it's really hard to watch because everyone should have law and order."[@ErinElmore](https://twitter.com/ErinElmore?ref_src=twsrc%5Etfw) joined [@RealDrGina](https://twitter.com/RealDrGina?ref_src=twsrc%5Etfw) to discuss the lack of accountability for left-wing rioters this past summer. [pic.twitter.com/Ds3NU1IshK](https://t.co/Ds3NU1IshK)
+> — Real America's Voice (RAV) (@RealAmVoice) [January 16, 2021](https://twitter.com/RealAmVoice/status/1350266423470419970?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/realamvoice/status/1350266423470419970?s=21](https://twitter.com/realamvoice/status/1350266423470419970?s=21)
+盖特链接：[https://gtv.org/getter/60026aaf87fabe2daf3a91db](https://gtv.org/getter/60026aaf87fabe2daf3a91db)
+
+* * *
+
+【大选实况】1/15/2021 EST 9:40 pm Jack Posobiec 推文： 最新消息：联邦调查局逮捕了无秩序主义者丹尼尔·艾伦·贝克，他策划在总统就职日袭击川普的支持者。 2017年，贝克加入了叙利亚的YPG。 YPG是库尔德斯坦库尔德工人党的附属机构，库尔德斯坦库尔德工人党已被认定为恐怖组织。
+
+
+
+> BREAKING: FBI arrests anarchist Daniel Alan Baker who plotted attack on Trump supporters on Inauguration Day 
+> 
+> In 2017, Baker joined the YPG in Syria. The YPG is a subaffilliate of Kurdistan’s PKK, which has been designated a terrorist organization [https://t.co/DpRg0ZoROQ](https://t.co/DpRg0ZoROQ)
+> — Jack Posobiec 🇺🇸 (@JackPosobiec) [January 16, 2021](https://twitter.com/JackPosobiec/status/1350271561610223623?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/jackposobiec/status/1350271561610223623?s=21](https://twitter.com/jackposobiec/status/1350271561610223623?s=21)
+盖特链接：[https://gtv.org/getter/60026b7e87fabe2daf3a9229](https://gtv.org/getter/60026b7e87fabe2daf3a9229)
+
+**By： 【秘密翻译组 G-Translators】**
+
 +1

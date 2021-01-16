@@ -1,45 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】穷途末路:中共官员称“用人民币来实现对外投资”
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/756239/)
+## 1/16/2021 财经快讯：特朗普总统继续加码，加速与中共国脱钩
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/758032/)
 
-作者：纽约香草山写作组   Wilson
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture4-4.png)图片来源： https://www.actforcanada.ca/
+**1.特朗普指示政府部门寻求办法，以便将从中共国的商品和服务采购降到最低**
 
+本周五，针对中共国的一系列措施中，特朗普总统提出了一项新的指示, 要求政府部门研究如何将来自中共国商品和服务的采购降到最低，以减少间谍活动的风险。美国国家安全顾问罗伯特·奥布赖恩在一份声明中，指责中共国通过网络和其他手段从美国政府的信息系统获取个人记录、军事计划和其他数据。为了反击中共国渗透美国 IT 网络的企图h额降低中共军民融合战略所带来的风险, 美国将继续采取相应的强硬行动和政策来保护美国的利益。
+[https://www.reuters.com/article/us-usa-china-procurement/trump-directs-government-to-minimize-procurement-from-china-idUSKBN29K2QU](https://www.reuters.com/article/us-usa-china-procurement/trump-directs-government-to-minimize-procurement-from-china-idUSKBN29K2QU)
 
+**2.特朗普政府加码，新增九家公司到制裁名单**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+特朗普政府周四又一次对中共国及其最大的企业采取了行动，对涉嫌在南中国海有不当行为的官员和公司实施制裁，并对另外九家公司实施投资禁令，五角大楼称这九家中共国公司与中共国军方有联系，其中包括中国商飞和小米，剩下的还有中微半导体设备公司、箩筐技术公司、北京中关村发展投资中心、广东高云半导体科技公司、大新华航空、中译语通科技公司、中国航空集团。
+[https://www.newsmax.com/t/newsmax/article/1005700/16](https://www.newsmax.com/t/newsmax/article/1005700/16)
 
+**3.美国民用枪支销售创新高**
 
+2020年美国联邦调查局 (FBI)处理了创纪录的3970万份枪支背景调查，比之前的高点多出1000万。根据国家射击运动基金会的数据，约有850万人购买了第一支枪支，占枪支销售总额的很大一部分。其中黑人和西班牙裔的枪支购买量增长，女性购买枪支也在增长。
+[https://www.businessinsider.com/gun-sales-boom-2020-background-checks-hit-record-highs-2021-1](https://www.businessinsider.com/gun-sales-boom-2020-background-checks-hit-record-highs-2021-1)
 
-2021年1月15日，中共央行金融研究所所长周诚君撰文，强调“本币优先、本币主导”，在大规模供应链重构、产业转移过程中，用人民币来实现对外投资，而不是像过去那样用美元或者用其它国际货币。
+**4.欧盟贸易官员希望与拜登在飞机、数字税收、WTO方面迅速接触**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/2-44.jpg)
+欧盟贸易总干事萨宾·韦扬德(Sabine Weyand)上周五表示，欧盟为了解决主要贸易刺激因素，包括数字税和商用飞机补贴问题，正寻求与拜登政府迅速接触。欧盟对美国贸易代表12月31日提高法国和德国飞机零部件和葡萄酒在波音-空客补贴争端中的关税的举动感到惊讶。欧盟计划在2月份提出世界贸易组织的改革方案, 希望在6个月内通过谈判解决2004年开始的世贸组织补贴争端。
+[https://www.reuters.com/article/us-usa-trade-eu/eu-trade-official-wants-swift-engagement-with-biden-on-aircraft-digital-taxes-wto-idUSKBN29K1X5](https://www.reuters.com/article/us-usa-trade-eu/eu-trade-official-wants-swift-engagement-with-biden-on-aircraft-digital-taxes-wto-idUSKBN29K1X5)
 
-点评：中共的极权体制强调对外口径必须一致，这篇文章的出现，事前肯定得到上峰的授意。
+**5.中共正开发各种对美国安全构成威胁的技术**
 
-中共投放的人民币(M2)从2008年的40万亿，到2018年暴涨到174万亿，相当于美元和欧元的总和，但同期中国的GDP仅仅是美国的63%。截至2020年6月，人民币仅占世界支付货币市场份额的1.76%，全球储备货币份额的2.02%。可见，存量巨大的人民币就是一堆泡沫(美元、欧元也存在泡沫)，本币只能够在墙内自嗨，但在国际市场上并不被认可和接受。
+从通过量子计算破解坚不可摧的代码，到创建一支曾经在科幻电影中只能想象到的坚不可摧的军队，中共国正不遗余力地开发对美国国家安全构成严重威胁的技术。外交专家说，北京正在研究、资助和开发广泛的技术，包括量子计算、人工智能，这些技术可以针对美国和中共国视为对手的任何其他国家。
+[https://www.newsmax.com/t/newsmax/article/1005793/16](https://www.newsmax.com/t/newsmax/article/1005793/16)
 
-现代货币理论认为，已经脱离金本位的主权货币，其信用必须建立在法律至上和恒定的货币制度之上。游戏这个法则的结果无不带来暴力、贫困和落后。中共70年来实行的极权暴政，一直在破坏这个法则。 其倒行逆施导致资本和产业大量逃离，当中包含各国出于对中共占据全球基础产业和供应链的担忧，还有整固本国财政的需要。这就是“大规模供应链重构、产业转移”的真实情景。这极大打击了中(共)国的出口和换汇能力——它们用手中大把的美元在世界上到处干坏事的日子宣告结束。
+By: Financial Team
 
-尤其是中共放毒和干预美国大选被爆料革命曝光后，中共即将成为世界公敌。伴随而来的必然是对外贸易中断、海外资产被查封、被逐出美元结算系统等。这将导致中共的外汇来源迅速枯歇。
-
-在非洲各国都拒绝人民币的情况下，中共即使和伊朗等邪恶轴心国交易，也只能用以货换货的原始方式来进行。那么往后，中共需要用什么货物来换取占全国消耗量80%的进口能源，而高于能源进口金额的芯片以及巨量的粮食缺口又要如何解决呢？
-
-无解，中共处于穷途末路！
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-0
++1

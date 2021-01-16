@@ -1,31 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快讯：博伊斯席勒律师事务所合伙人约书亚·席勒因家庭暴力被捕
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/756360/)
+## 林德尔拜访川普后保证总统将再当四年—媒体拍下了他给总统的笔记中提到《犯罪和叛乱法》的照片
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/758269/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+- 编辑：Victor Torres
 
-编辑上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Snipaste_2021-01-16_05-59-50-1.png)Law.com
-《法律网》报道，乔舒亚·席勒公司联合创始人乔纳森·席勒（Jonathan Schiller）的儿子，周四在加州罗斯被捕【1】。
 
-熟悉的名字熟悉的人，博伊斯席勒律师事务所（Boies Schiller Flexner LLP），曾受聘于文贵先生，后被邪共操控，与正义反目，记得文贵先生在2018年11月27日的视频直播：“……这是我（以前）尊敬的律师，就在我楼上住着，我们俩一个楼……但是他的合伙人的儿子是个天天喝酒喝醉的家伙……他们被共产党操纵，福布斯即将公布，还有布隆伯格现在也关注……是你大卫博·伊斯！还有你儿子，毁掉了你们作为律师起码的道德……我敢挑战这样的大律师的，为什么？郭文贵一辈子绝不向强权低头，绝不接受威胁！……你只要惹了郭文贵了，我一定跟你干到底！” 文贵向邪恶的叫扳，至今回荡在耳边，真是一种享受！
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-这家事务所还有不光彩的一面，与拜登家族渊源很深，助拜登家族打赢官司，后聘用了亨特·拜登【2】。
+**西班牙2021年1月16日电/西喜社——**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/WhatsApp-Image-2021-01-16-at-23.10.46-2.jpeg)
+迈克·林德尔周五在白宫与川普总统会面。 当他离开时，他向信众保证，川普总统将再当四年总统。
 
-《法律网》说，“警察局周五证实，博伊斯席勒公司合伙人乔舒亚·席勒公司联合创始人乔纳森·席勒的儿子因涉嫌家庭暴力周四在加州罗斯被捕，他和妻子梅丽莎席贝尔席勒在那里有一个家。”
+《华盛顿时报》报道，截至周五早些时候，这位商人和活动家仍然坚持认为川普总统将担任第二个任期。
 
-多行不义必自毙，这算是给爆料革命一点小礼物吧！
+“大家要保持信心，”林德尔先生在他的Facebook页面上发帖。”我们将拥有我们的总统唐纳德·川普又一个4年！”
 
-还有一则消息正在传播，“明镜电视被举报，涉嫌为外国（中共）代理人，何频被FBI传唤，陈小平，程晓农，张洵，陶杰，李恒清，鲁难等学者纷纷抛弃明镜，表示不再上明镜的节目。”【3】
+这似乎很奇怪，因为媒体已经告诉我们两个月了，乔·拜登显然是2020年选举的赢家。
 
-参考链接：
+当然，我们这些研究、识别和审查过2020年选举结果的人都知道，这次选举并不是一次公平和自由的选举，乔·拜登的数百万张选票是无效的，但却被纳入了最终结果。 尽管有这些明显的欺诈活动和选票，但选举是由腐败和软弱的政客认证的。
 
-[1] [https://www.law.com/americanlawyer/2021/01/15/boies-schiller-partner-joshua-schiller-arrested-on-domestic-violence-charge/?slreturn=20210015194548](https://www.law.com/americanlawyer/2021/01/15/boies-schiller-partner-joshua-schiller-arrested-on-domestic-violence-charge/?slreturn=20210015194548)
+许多总统的支持者和许多美国人都知道选举是乔·拜登偷来的。 每一次的怪事总是给拜登带来好处。
 
-[2][https://www.realclearinvestigations.com/articles/2020/10/16/joe\_bidens\_boosters\_wrote\_his\_prodigal\_sons\_entire\_resume\_125616.html?fbclid=IwAR3dIQJ5dJrLxk-55u5AlWp8BVokRz7VU0sKnXM4QqjwR3LL1mxLSZmYknI](https://www.realclearinvestigations.com/articles/2020/10/16/joe_bidens_boosters_wrote_his_prodigal_sons_entire_resume_125616.html?fbclid=IwAR3dIQJ5dJrLxk-55u5AlWp8BVokRz7VU0sKnXM4QqjwR3LL1mxLSZmYknI)
+今天，虔诚的基督徒迈克·林德尔向美国人演讲后，有人看到他离开了椭圆形办公室。林德尔拿着咖啡和笔记。 至少有一位摄影师拍下了林德尔的笔记，并把拍到的内容加大了尺寸，以便你能读懂笔记。
 
-[3] https://twitter.com/baihe66666/status/1350177795318587392
+《纽约时报》称，笔记中包括了关于援引《叛乱法》的建议，根据该法，总统可以将现役军队部署到街头等。
 
-0
+下面我们分享的笔记图片并没有提到《起义法》，但分享的内容更多。 其中包括建议任命某人担任代理国家安全职务的措辞，以及关于米德堡的一些内容。 也有提到关于攻击[可能是宪法]和在必要时在[可能的暴力]的第一个暗示下实行戒严。 还有一个关于把卡什·帕特尔调到CIA代理的说明。 最后有中国和伊朗干涉我们的选举并在他们的努力中使用国内演员的措辞。
+
+新闻来源：[https://www.thegatewaypundit.com/2021/01/breaking-mike-lindell-visits-trump-white-house-media-captures-pictures-notes-president-referring-crimes-insurrection-act/](https://www.thegatewaypundit.com/2021/01/breaking-mike-lindell-visits-trump-white-house-media-captures-pictures-notes-president-referring-crimes-insurrection-act/)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
++1
