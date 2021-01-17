@@ -1,37 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国语【香港快讯】 1.17 香港失业率升破近 16 年高位 院舍长者成为毒疫苗的牺牲品 价格急升难关难过
-` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/761969/)
+## 1/17/2021 财经快讯: 中欧协议达成前景不明朗; 2021春运下降近6成
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/762046/)
 
-制作团队：【喜马拉雅粤语组】阿恩
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture3-11.png)图片来源：[https://euobserver.com/economic/146553](https://euobserver.com/economic/146553)
+1.受美国大银行业绩报告拖累，纽约股市在本周五开盘大幅下滑。富国银行下跌7.8%，是拖累标普500的元凶之一。于此同时由于监管部门加大了对埃克森美孚的监管力度，其股价在周五下滑4.8%，而其他能源股亦受到重挫。
+[https://www.reuters.com/article/us-usa-stocks/wall-street-closes-lower-as-banks-energy-shares-tumble-idUSKBN29K1BY](https://www.reuters.com/article/us-usa-stocks/wall-street-closes-lower-as-banks-energy-shares-tumble-idUSKBN29K1BY)
 
-审核：【喜马拉雅粤语组】天网灰灰、penny
+2.Market Insider在本周五提到了5个投资者需要注意的关键词，分别为大银行，中央银行，债券收益率，比特币和拜登。尽管美股在2021年的第二周还是创下了新高，但疲软的劳动力市场数据和川普弹劾案仍然是市场的不稳定因素。同时拜登的所谓1.9万亿经济刺激计划也引发了公众对通胀的担忧。
+[https://markets.businessinsider.com/currencies/news/markets-outlook-biden-inauguration-bitcoin-bonds-and-banks-in-focus-2021-1-1029974881](https://markets.businessinsider.com/currencies/news/markets-outlook-biden-inauguration-bitcoin-bonds-and-banks-in-focus-2021-1-1029974881)
 
-上传：文粤
+3.据QZ网昨日分析指出，尽管去年底中欧签署了一系列贸易协议，中欧的合作前景仍然非常不明朗。许多分析人士担心，欧盟可能不太愿意在劳工和人权问题上与中共对峙；并引用去年的美中第一阶段协议为例，认为此次协议或也最终不了了之。
+[https://www.msn.com/en-us/news/world/the-eu-china-investment-deal-broken-down/ar-BB1cMo1O?ocid=msedgdhp](https://www.msn.com/en-us/news/world/the-eu-china-investment-deal-broken-down/ar-BB1cMo1O?ocid=msedgdhp)
 
+4.据路透社周日报告，意大利预测今年债务或将达到二战后新高，至GDP 的158.5%。此次预估反映了本周宣布的320亿欧元320亿欧元（合390亿美元）的一揽子刺激计划的影响，这将使2021年的预算赤字占国民生产总值的8.8％，高于此前目标的7％。这笔额外的支出将用于帮助国家卫生服务，并为推迟缴税期限提供保障。
+[https://www.reuters.com/article/italy-budget-debt/italy-public-debt-to-hit-new-post-war-record-in-2021-at-158-5-of-gdp-source-idUSL8N2JR0EQ](https://www.reuters.com/article/italy-budget-debt/italy-public-debt-to-hit-new-post-war-record-in-2021-at-158-5-of-gdp-source-idUSL8N2JR0EQ)
 
+5.2021年铁路春运节前车票的预售较往年同期下降近6成，预计全国铁路春运客流将下调至2.96亿人次。为减少人员流动，已有北京、上海、河南、山西等29个省区市倡议“就地过年”，建议“非必要不返乡”、“非必要不出省”。“就地过年”和部分地区疫情将影响超一亿人通过铁路出行，降幅约27%。
+[https://www.163.com/dy/article/G0FQUUAF0534KXLK.html?clickfrom=w\_money](https://www.163.com/dy/article/G0FQUUAF0534KXLK.html?clickfrom=w_money)
 
-主要内容
-
-港府规定 2020 年 7 月 1 前加入的公务员必须在四周内签署及交回效忠声明。依政府说法，拥 3,200 名会员的工会，可能因理事无法继续留任，令工会面临解散。目前工会最大考虑是理事人身安全、保障会员资料，形容解散工会是「无奈但必要的做法」。新公务员工会今天在 Facebook 上宣布解散。
-
-本港疫情持续，打击各行各业，财政司司长陈茂波在网志中预告，即将公布的最新失业率升破近16 年高位，又形容防疫措施旷日持久，承认去年预算案及防疫抗疫基金的支援只属杯水车薪。陈茂波表示，很多企业和打工仔正承受着巨大压力，引述业界称愿意主动引入加强的防疫措施，换取尽可能部份恢复营业、恢复进行一些活动，但他就没有表明政府对此的态度。
-
-流亡英国的民主派前立法会议员许智峰在香港的汇丰银行信用卡早前被取消，事隔一个月后，许智峰收到汇丰行政总裁祈耀年的来信就冻结户口解画，表示该行是收到警方通知而不得不采取行动，称银行有法律责任，别无选择。许智峰表明不接受汇丰的解释，指做法有违专业指引，质疑是「警方说可疑就是可疑」，认为「汇丰是侵犯人权的共犯」，呼吁英国及其他国家去信质询汇丰，及考虑对汇丰作相应的国际制裁。
-
-本港最快下月开始接种武肺疫苗，疫苗顾问专家委员会明日下午将开会审批德国BioNTech与复星研发疫苗在港紧急使用的申请，包括审视疫苗安全性、是否有效及质素等。疫苗接种计划专责工作小组成员指，如疫苗获批准使用，专家初步建议政府安排医护上门为 “属十分体弱类型的院舍长者” 率先接种首款到港的疫苗。
-
-挪威日前有23名长者接种德国BioNTech／辉瑞疫苗后死亡。政府顾问专家委员会成员曾浩辉坦言，紧张挪威的情况，本地大学正搜集数据制定基线水准为不良反应个案评估。他又提到2009年的300万剂人类猪流感疫苗，因有接种者出现严重问题打击市民信心，最终近九成针剂因无人问津而被销毁，预计今年可能出现「09年翻版」。
-
-政府日前要求东至弥敦道、北至甘肃街、西至渡船街、南至佐敦道的油麻地、佐敦区域，如大厦出现确诊个案，全幢大厦居民须进行强制检制。疫情阴霾下，昔日人流如之的九龙，在假日下午俨如死城，除街上途人大减；不少小贩档、食肆及商户亦选择休业。
-
-前监警会前国际专家小组成员、英国基尔大学自然科学研究院院长Clifford Stott，早前因不满监警会的权力及独立调查能力不足，退出小组，其后自行发表调查报告。 Clifford Stott提及警务处处长邓炳强与小组成员会面时，不重视市民上街示威的原因，亦拒绝接受他们的建议。他指专家团队离港前，曾计划召开记者会，指监警会欠缺调查警队权力，但有人不满新闻稿内容，甚至倾向其团队不要发布。 Clifford Stott形容，监警会报告只对示威者作道德判断，缺乏分析活动背后的成因、未有针对员警的行为作同样判断、亦忽略了示威者与律师的访谈，指有关报告只能偏颇地反映一部份事实。
-
-近日天气转冷，新界甚至有菜园出现植物结霜现象，内地部分地区亦开始下雪，令蔬菜供应下降，菜价近期呈上升趋势。有菜贩指出，不少人打边炉必备食材指天椒，售价急升，预计新年期间菜价，一般会由现在的18元一斤，上涨至30元一斤。
-
-港府早前宣布将放宽2元乘车优惠门槛，由现行的65岁下调至60岁。但港府剥削基层的真相最终暴露，劳工及福利局局长罗致光指，减低公共财政负担，可能会增加无五成车资为「3元」。
-
-资料来源： 苹果日报 香港01 立场新闻 网路图片
+秘翻组·金融法律组
 
 0

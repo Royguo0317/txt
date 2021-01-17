@@ -1,147 +1,78 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫报告：川普政府的政绩——截至2021年1月（一）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/761018/)
+## 美国国务院关于中共病毒的公告
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/761221/)
 
-五月花写作组 ｜ 翻译：野马 ｜ 校对：Rosy Cloud ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告1-copy.jpg)
-## *As of January 2021*
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-64.png)来源：搜狐网
+新闻声明
 
-## **Trump Administration Accomplishments**
+迈克·蓬佩奥（Mike Pompeo），美国国务卿
 
-## *截至2021年1月*
+2021年1月15日
 
-## **川普政府的政绩**
+美国一再呼吁对中共病毒的来源进行透明和彻底的调查。了解病毒的起源对全球公共卫生、经济复苏和国际安全至关重要。
 
-* * *
+为了协助本周抵达中共国的世界卫生组织（WHO）调查小组的重要工作，美国政府今天分享了有关2019年中共政府实验室的新信息。
 
-## **Part 1 – Unprecedented Economic Boom**
+我们特别敦促世卫组织敦促中共政府解决以下问题：
 
-### ** ****第一部分：前所未有的经济繁荣**
+1.武汉病毒研究所(WIV):美国政府有理由相信，武汉病毒研究所的几名研究人员在2019年秋季，也就是在第一例确诊病例出现之前就已经患病，其症状与中共病毒和常见季节性疾病一致。这引发了人们对武汉病毒所高级研究员石正丽言论的质疑，她曾公开宣称在武汉病毒研究所(WIV)的研究员和学生中没有人感染中共病毒。
 
-**Before the China Virus invaded our shores, we built the world’s most prosperous economy.**
+2. 关于“RaTG13”和“功能获得型突变”的研究:至少从2016年开始，武汉病毒所研究人员研究了RaTG13，这是一种蝙蝠冠状病毒，在2020年1月被武汉病毒研究所(WIV)鉴定为其最接近中共病毒的样本(96.2%相似)。自疫情爆发以来，武汉病毒研究所(WIV)对RaTG13或其他类似病毒的研究工作并不透明，包括可能进行的增强传染性或致命性的”功能获得型突变”实验。
 
-**在中国病毒尚未登陆时，我们创建了世界上最为繁荣的经济**。
+3. 武汉病毒研究所与解放军的研究项目有关联：尽管武汉病毒研究所标榜自己是一个民间机构，但其已经与中共军方在出版物和秘密项目上进行了合作。至少自2017年以来，武汉病毒研究所(WIV)一直代表中共军方从事机密研究，其中包括了在实验室的动物实验。
 
-- America gained 7 million new jobs – more than three times government experts’ projections.
-- 美国创造了七百万的新的工作（机会），几乎是政府专家所预估的三倍多
-- Middle-Class family income increased nearly $6,000 – more than five times the gains during the entire previous administration.
-- 中产阶级家庭收入增加了将近6000美金，超过了前任政府期间增益的五倍
-- The unemployment rate reached 3.5 percent, the lowest in a half-century.
-- 失业率达到了3.5%，是半个世纪来最低的
-- Achieved 40 months in a row with more job openings than job-hirings.
-- 实现了连续40个月，职位空缺数超过了职位招聘人数。
-- More Americans reported being employed than ever before – nearly 160 million.
-- 更多的美国人声称在职，比以往任何时候都多，将近1.6亿人。
-- Jobless claims hit a nearly 50-year low.
-- 失业救济人数创下近50年新低
-- The number of people claiming unemployment insurance as a share of the population hit its lowest on record.
-- 失业保险申领数和人口总基数的比率，创下最低新记录。
-- Incomes rose in every single metro area in the United States for the first time in nearly 3 decades.
-- 近三十年来第一次，美国每个大都市地区的收入都处于增长状态。
+中共病毒在全世界的蔓延本来是可以避免的，任何负责任的国家都会在疫情爆发后的几天内，邀请世界卫生组织的相关人员前往武汉进行调查。而中共却拒绝了包括美国在内国家的援助，并严惩了试图传播疫情真相的医生、科学家和记者。截至今日，中共仍想继续隐瞒病毒真相，科学家们需要保护世界免受中共病毒以及下一种病毒侵害的重要信息。
 
+美国重申不受限制地获取病毒样本、实验室记录和人员、目击者和揭发者的重要性，以确保世卫组织最终报告的可信度。除非中国共产党对武汉发生的事情做出全面、彻底的解释，否则中共国再次发生疫情，给中国人民和世界带来灾难，将只是时间问题。
 
-**Delivered a future of greater promise and opportunity for citizens of all backgrounds.**
+简报:武汉病毒研究所的行为
 
-**给各种背景的公民提供了一个更有希望和机会的未来**。
+简报
 
-- Unemployment rates for African Americans, Hispanic Americans, Asian Americans, Native Americans, veterans, individuals with disabilities, and those without a high school diploma all reached record lows.
-- 非裔美国人，西班牙裔美国人，亚裔美国人，美洲原住民，退伍军人，残疾人和没有高中文凭的人的失业率均创下历史新低。
-- Unemployment for women hit its lowest rate in nearly 70 years.
-- 妇女失业率达到近70年来最低。
-- Lifted nearly 7 million people off of food stamps.
-- 使近700万人脱离了食品券（救济）。
-- Poverty rates for African Americans and Hispanic Americans reached record lows.
-- 非洲裔美国人和西班牙裔美国人的贫困率达到了历史最低点。
-- Income inequality fell for two straight years, and by the largest amount in over a decade.
-- 收入不平等连续两年下降，是十年来最大的降幅。
-- The bottom 50 percent of American households saw a 40 percent increase in net worth.
-- 占人口50%的最底层美国家庭的净资产增加了40％。
-- Wages rose fastest for low-income and blue collar workers – a 16 percent pay increase.
-- 低收入和蓝领工人的工资增长最快-工资增长了16％。
-- African American homeownership increased from 41.7 percent to 46.4 percent.
-- 非洲裔美国人的房屋拥有率从41.7％增加到46.4％。
+发言人办公室
 
+2021年1月15日,
 
-**Brought jobs, factories, and industries back to the USA.**
+一年多来，中国共产党有计划地阻止对中共病毒源头进行透明和彻底的调查，而是选择费尽心机使用虚假信息欺骗世界。时至今日，全世界已经有两百万人死于中共病毒。他们的家人有权知道真相。只有将真相曝光，我们才能了解是什么造成了此次疫情，以及如何预防下一次疫情。
 
-**将就业机会，工厂和工业带回了美国。**
+美国政府不清楚被称为sars-cov-2的中共病毒最初是在何处、何时以及如何传播给人类的。目前还不确定疫情的爆发是由于人类接触了受感染的动物，还是由于武汉某实验室发生了意外泄露。
 
-- Created more than 1.2 million manufacturing and construction jobs.
-- 创造了超过120万个制造和建筑工作（岗位）。
-- Put in place policies to bring back supply chains from overseas.
-- 制定政策，将供应链从海外带回。
-- Small business optimism broke a 35-year old record in 2018.
-- 小型企业乐观情绪指标在2018年打破了35年来的历史记录。
+病毒可能是在人类与受感染动物的接触中自然出现的，其传播方式与自然流行病近似。另一种情况是，如果最初的接触仅包括少数人，且被无症状感染，那么实验室事故可能与自然暴发的情况类似。中国的科学家研究了动物来源的冠状病毒，这些病毒会增加意外接触和可能无意接触的风险。
 
+中共对保密和控制的死命执着，是以牺牲中国和全世界的公众健康为代价的。在此情况说明中，结合开源报告，先前未披露的信息强调了关于中共病毒起源的三个要素，对此应该要进行更严格的审查:
 
-**Hit record stock market numbers and record 401ks.**
+1.武汉病毒研究所(WIV)内部信息:
 
-**创下了股市数据和退休福利计划（401k）的新记录。**
+美国政府有理由相信，武汉病毒研究所(WIV)的几名研究人员在2019年秋季，也就是第一例确诊病例之前已经感染病毒，其症状与中共病毒和常见季节性疾病一致。这引发了人们对武汉病毒所高级研究员石正丽言论的质疑，她公开宣称在武汉病毒研究所(WIV)的研究员和学生中没有人感染中共病毒。
 
-- The DOW closed above 20,000 for the first time in 2017 and topped 30,000 in 2020.
-- 道琼斯工业平均指数在2017年首次收于20,000以上，并在2020年突破30,000。
-- The S&P 500 and NASDAQ have repeatedly notched record highs.
-- 标普500和纳斯达克指数屡创新高。
+实验室里的意外感染情况已经在中国和其他地方引发了几次病毒爆发，包括2004年在北京爆发的SARS，导致9人感染，1人死亡。
 
+中国共产党阻止独立记者、调查人员和全球卫生当局采访武汉病毒研究所(WIV)的研究人员，包括在2019年秋天的那些感染者。对病毒起源的可信调查必须包括对这些研究人员的采访，以及了解此前未被报道病情的全面说明。
 
-**Rebuilding and investing in rural America.**
+2.武汉病毒研究所(WIV) 的研究
 
-**在美国农村地区进行重建和投资。**
+至少从2016年开始——在中共病毒爆发之前没有迹象表明有停止的迹象——武汉病毒研究所(WIV)的研究人员对RaTG13进行了实验，这是一种蝙蝠冠状病毒，在2020年1月被武汉病毒研究所(WIV)鉴定为与中共病毒最接近的样本(96.2%相似)。在2003年SARS爆发后，武汉病毒研究所(WIV)成为国际冠状病毒研究的先驱，并且从那时起研究了包括老鼠、蝙蝠和穿山甲在内的动物。
 
-- Signed an Executive Order on Modernizing the Regulatory Framework for Agricultural Biotechnology Products, which is bringing innovative new technologies to market in American farming and agriculture.
-- 签署了《农业生物技术产品监管框架现代化》的行政命令，将创新的新技术推向美国农业和农业市场。
-- Strengthened America’s rural economy by investing over $1.3 billion through the Agriculture Department’s ReConnect Program to bring high-speed broadband infrastructure to rural America.
-- 通过农业部的“重新连接计划”投资超过13亿美元，将高速宽带基础设施带入美国农村，从而增强了美国的农村经济。
+武汉病毒研究所(WIV)曾发表过一份“功能获得型突变”研究以制造嵌合病毒的报告。但武汉病毒研究所(WIV)在研究与中共病毒最相似的病毒(包括“RaTG13”)方面的记录并不透明。2013年，在几名矿工死于类似sars的疾病后，武汉病毒研究所(WIV)从云南省的一个洞穴中采样到了这种病毒。
 
+世卫组织的调查人员必须能够获得武汉病毒研究所(WIV)在疫情爆发前，关于蝙蝠和其他冠状病毒的工作记录。作为彻底调查的一部分，他们必须全面说明为什么武汉病毒研究所(WIV)篡改并删除了其使用RaTG13和其他病毒的在线记录。
 
-**Achieved a record-setting economic comeback by rejecting blanket lockdowns.**
+3.在武汉病毒研究所(WIV)的秘密军事活动
 
-**通过拒绝全面封锁，实现了创纪录的经济复苏。**
+保密和不披露是中共政府的一贯做法。多年来，美国一直公开对中共过去的生物武器工作表示担忧。尽管中共根据《生物武器公约》承担着明确的义务，但北京方面既没有记录在案，也没有明确停止这些工作。
 
-- An October 2020 Gallup survey found 56 percent of Americans said they were better off during a pandemic than four years prior.
-- 盖洛普（Gallup）2020年10月的一项调查发现，有56％的美国人表示，在疫情期间，他们的状况比四年前要好。
-- During the third quarter of 2020, the economy grew at a rate of 33.1 percent – the most rapid GDP growth ever recorded.
-- 2020年第三季度，经济增长率达到了33.1％，是有史以来最快的GDP增长。
-- Since coronavirus lockdowns ended, the economy has added back over 12 million jobs, more than half the jobs lost.
-- 自从冠状病毒封锁结束以来，经济已经增加了1200万个工作岗位，超过了（因为疫情）失去的工作岗位的一半。
-- Jobs have been recovered 23 times faster than the previous administration’s recovery.
-- 工作（岗位）的恢复速度比上届政府的恢复速度快23倍。
-- Unemployment fell to 6.7 percent in December, from a pandemic peak of 14.7 percent in April – beating expectations of well over 10 percent unemployment through the end of 2020.
-- 失业率从4月份的由疫情导致的14.7％的高位下降至12月份的6.7％，好于到2020年底失业率超过10％的预期。
-- Under the previous administration, it took 49 months for the unemployment rate to fall from 10 percent to under 7 percent compared to just 3 months for the Trump Administration.
-- 在上届政府任期内，失业率从10％降至7％以下花费了49个月，而特朗普政府只用了3个月。
-- Since April, the Hispanic unemployment rate has fallen by 9.6 percent, Asian-American unemployment by 8.6 percent, and Black American unemployment by 6.8 percent.
-- 自4月以来，西班牙裔失业率下降了9.6％，亚裔美国人失业率下降了8.6％，美国黑人失业率下降了6.8％。
-- 80 percent of small businesses are now open, up from just 53 percent in April.
-- 80％的小型企业现已开业，而4月份仅为53％。
-- Small business confidence hit a new high.
-- 小型企业信心创下新高。
-- Homebuilder confidence reached an all-time high, and home sales hit their highest reading since December 2006.
-- 房屋建筑商的信心达到了历史最高水平，房屋销售达到了自2006年12月以来的最高水平。
-- Manufacturing optimism nearly doubled.
-- 制造业乐观情绪几乎翻倍。
-- Household net worth rose $7.4 trillion in Q2 2020 to $112 trillion, an all-time high.
-- 2020年第二季度家庭净资产增加7.4万亿美元，至112万亿美元，创历史新高。
-- Home prices hit an all-time record high.
-- 房价创历史新高。
-- The United States rejected crippling lockdowns that crush the economy and inflict countless public health harms and instead safely reopened its economy.
-- 美国拒绝了压垮经济、造成了无数公共健康危害的瘫痪性的封锁，取而代之的是安全地重新开放经济。
-- Business confidence is higher in America than in any other G7 or European Union country.
-- 美国的商业信心高于其他任何七国集团或欧盟国家。
-- Stabilized America’s financial markets with the establishment of a number of Treasury Department supported facilities at the Federal Reserve.
-- 通过在美联储建立若干由财政部支持的设施，稳定了美国的金融市场。
+尽管武汉病毒研究所(WIV)自称为一个民间机构，但美国已认定武汉病毒研究所(WIV)与中共军方在出版物和秘密项目上进行了合作。至少自2017年以来，武汉病毒研究所(WIV)一直代表中共军方从事机密研究，包括实验室的动物实验。
 
+美国和其他资助武汉病毒研究所(WIV)进行民用研究的捐助者，有权利和义务了解武汉病毒研究所(WIV) 是否将我们的研究资金使用在中共的秘密军事项目上。
 
-原文来源：[https://www.whitehouse.gov/trump-administration-accomplishments/](https://www.whitehouse.gov/trump-administration-accomplishments/)
+今天的披露只是揭开了中共病毒起源之谜的冰山一角。对中共病毒起源的可信调查要求全面、透明地访问武汉的研究实验室，包括它们的设施、样本、人员和记录。
 
-* * *
+世界各国继续与中共病毒作斗争——世卫组织调查人员在拖延一年多之后开始工作，中共病毒的来源仍不确定。美国将继续尽其所能支持可信和彻底的调查，包括继续要求中共当局保证其透明度。
 
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)
+翻译：文非
 
-更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)
+链接：[1](https://www.state.gov/ensuring-a-transparent-thorough-investigation-of-covid-19s-origin/) [2](https://www.state.gov/fact-sheet-activity-at-the-wuhan-institute-of-virology/)
 
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)
-
-+1
++2

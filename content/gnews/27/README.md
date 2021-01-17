@@ -1,53 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 据称：川普考虑预先特赦班农、朱利安尼
-` Gnews Special Squad` [轉載自GNews](https://gnews.org/zh-hans/761487/)
+## 【大选推特实况】1/16/2021 我们扭转了几十年来对中共滥用权力无所作为的局面&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/761687/)
 
-*新闻来源：《POLITICO》； 作者：发言人办公室； 发布时间: 2021年1月15日*
+【大选实况】1/16/2021 EST 7:00 pm 国务卿彭佩奥推文： 言而有信：我们扭转了几十年来对中国共产党滥用权力无所作为的局面。我们将同谋的中共国公司列入@美国商务部的实体名单上，禁止向侵犯人权者发放签证，并对中国共产党高级官员在新疆和香港的侵犯人权行为实施#GloMag制裁。 【附图文字：中共不是正义的力量】
 
-*翻译/简评：yyshere；校对：小小妹；审核：ＴＣＣ；Page：Daoiii*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/8HdlxLKYnoXpl/images/4ed788a5-a98e-4f93-a336-71146e3fba1d.jpg?asset_id=ee1f18a6-3e1b-4717-b763-0dec3378c9c2&amp;img_etag=%221b897f32477c29b6702af3e50535cfe1%22&amp;size=2560)](https://spark.adobe.com/page/8HdlxLKYnoXpl/images/4ed788a5-a98e-4f93-a336-71146e3fba1d.jpg?asset_id=ee1f18a6-3e1b-4717-b763-0dec3378c9c2&amp;img_etag=%221b897f32477c29b6702af3e50535cfe1%22&amp;size=1024)
 
-**简评：**
+> Promise made, promise kept: We reversed decades of inaction against CCP abuses. We put complicit PRC companies on the [@CommerceGov](https://twitter.com/CommerceGov?ref_src=twsrc%5Etfw) entity list, blocked visas for human rights abusers, and levied [#GloMag](https://twitter.com/hashtag/GloMag?src=hash&amp;ref_src=twsrc%5Etfw) sanctions on senior CCP officials for abuses in Xinjiang and HK. [pic.twitter.com/ueM890PH9Y](https://t.co/ueM890PH9Y)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350593679455608834?ref_src=twsrc%5Etfw)
 
-**川普总统正在考虑特赦被指控所谓“网络众筹欺诈罪”的班农，并对朱利安尼和包括伊万卡在内的20名亲信和家人进行预先特赦。预期特赦将在本周五晚和下周三上午进行。**
 
-**文章通篇都在使用“据知情人透露”等字眼，不知是何人喂料，又为何喂料？同时文章特别指出预期的第二轮特赦将在美国华盛顿时间1月20号上午，即“新当选总统”乔.拜登宣誓就任入主白宫前进行，随后川普将离开华盛顿。我们真的会如“知情人”所透露的，在20号看到 “觉觉白等（Sleepy Biden） “荣登总统大位吗？即使“觉觉白等“真的在20号如愿以偿，那他又能在位几天？通观近几天来频频砸向CCP的实锤重拳，明显可以感觉到川普总统和他的团队在发力。是因为据传的”9号两次未遂的暗杀“最终打醒了川普总统吗？希望如是，祈祷川普总统已经彻底看透CCP的丑陋嘴脸和不惜一切代价以一国之力妄图消灭川普总统、打垮美国统治世界的邪恶企图，用20号前短短的几天，完成原计划在未来4年才实施的让美国再次伟大同时顺带灭共的大计！文贵先生一再强调，1月20号拜登99.99%上位，但川普总统100%赢！以共灭共正在加速，以美灭共正在提速，我们一定要坚定信念：CCP你完了！**
+来源：[https://twitter.com/SecPompeo/status/1350593679455608834](https://twitter.com/SecPompeo/status/1350593679455608834)
+盖特链接：[https://gtv.org/getter/600383e287fabe2daf3b0d5c](https://gtv.org/getter/600383e287fabe2daf3b0d5c)
 
-**原文翻译：**
+* * *
 
-# **川普考虑特赦史提夫.班农**
+【大选实况】1/16/2021 EST 6:00 pm 国务卿彭佩奥推文： 我们已呼吁大学董事会对其投资于恶意的中共国公司进行披露、并撤资。我们现在要求智库在参与@国务院项目前披露外国资金来源，并严格审查那些与中共国军方有关联的人员签证。[https://go.usa.gov/xAp3j](https://go.usa.gov/xAp3j)
 
-这项可能的特赦将伴随着近期总统將对已被定罪、指控，或者据称正在接受联邦调查的政治盟友的一波赦免浪潮而来。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/8HdlxLKYnoXpl/images/a87bf42b-0d67-4b8a-a366-eb553b465ac4.png?asset_id=37e7aa65-26fc-4d54-ba42-6173ac20ec55&amp;img_etag=%227fef0710a9fd5d3046260ba8e1491887%22&amp;size=2560)](https://spark.adobe.com/page/8HdlxLKYnoXpl/images/a87bf42b-0d67-4b8a-a366-eb553b465ac4.png?asset_id=37e7aa65-26fc-4d54-ba42-6173ac20ec55&amp;img_etag=%227fef0710a9fd5d3046260ba8e1491887%22&amp;size=1024)
 
-川普总统前首席战略师史提夫.班农于8月20日在纽约在被控告在边境墙网络筹款计划中欺诈捐款人的指控請求无罪后，与记者交谈。 图片来源：美联社 摄影：Eduardo Munoz Alvarez
+> We have called on university boards to disclose and divest from malign PRC companies. We now require think tanks to disclose foreign funding sources before participating in [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) projects and scrutinize visas for ties to the PLA. [https://t.co/MGWWh11fQv](https://t.co/MGWWh11fQv) [pic.twitter.com/hrrUgKaddg](https://t.co/hrrUgKaddg)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350578578933604352?ref_src=twsrc%5Etfw)
 
-据两位知情人透露，川普总统正在考虑特赦他的前白宫首席战略师和高级竞选助手史提夫.班农先生。此前他被指控欺骗捐款者資助一个修建美国与墨西哥边境墙的私人众筹项目。
 
-这项有可能的特赦将伴随着近期总统对已被定罪、指控，或者据报称正在接受联邦调查的政治盟友的一波赦免浪潮而来。据其中一位知情人透露，预期还会实施两批特赦——一批在周五晚间，而另一批在周三上午，就在下屆总统乔.拜登宣誓就职之前。
+来源：[https://twitter.com/SecPompeo/status/1350578578933604352](https://twitter.com/SecPompeo/status/1350578578933604352)
+盖特链接：[https://gtv.org/getter/6003736287fabe2daf3b056b](https://gtv.org/getter/6003736287fabe2daf3b056b)
 
-川普预期将在周三早上离开华盛顿。
+* * *
 
-右翼新闻布莱特巴特新闻（Breitbart News）的前执行主席班农是八月份被纽约联邦大陪审团起诉的四人之一，他们被指控在与他们关联的非盈利组织“我们建筑边境墙“的项目中，图谋网络欺诈和洗钱。
+【大选实况】1/16/2021 EST 6:30 pm 国务卿彭佩奥推文： 言而有信：我们给中共15家媒体和组织贴上了中共国家机器的标签，以确保美国人知道他们在与（中共的）宣传机构打交道。#假新闻
 
-班农被捕时，川普试图与这个事件保持距离，称它为“作秀的行为“并用”不恰当“来形容。
 
-班农已经否认了针对他的这项指控，并将在2021年5月出庭受审。
 
-据第三方人士称，总统此前已经切断了与班农的联系——他在2017年被解雇并离开了白宫——数月前再次开始商谈以制定如何推翻大选的策略。
+> Promise made, promise kept: We labeled 15 CCP media entities and orgs as CCP state missions to make sure Americans knew they were dealing with propaganda outlets. [#FakeNews](https://twitter.com/hashtag/FakeNews?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/DqzYXWSv6v](https://t.co/DqzYXWSv6v)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350586157940224002?ref_src=twsrc%5Etfw)
 
-班农在2016年大选的最后几个月担任了事实上的竞选经理。在他被解雇离开白宫后，川普称他已经“失去理智“。
 
-川普同样也在考虑给多达20名亲信和家庭成员，包括他的私人律师鲁迪.朱利安尼（Rudy Giuliani），和他的孩子，唐纳德. 川普Jr（Donald Trump Jr.），艾瑞克.川普（ Eric Trump） 以及伊万卡，川普（Ivanka Trump）等人以预先特赦，而这些人中无人被指控犯罪。
+来源：[https://twitter.com/SecPompeo/status/1350586157940224002](https://twitter.com/SecPompeo/status/1350586157940224002)
+盖特链接：[https://gtv.org/getter/60037ea387fabe2daf3b0a97](https://gtv.org/getter/60037ea387fabe2daf3b0a97)
 
-川普在圣诞节前发布了两轮的特赦和减刑，其中包括三名前国会议员，多名在罗伯特.穆勒（Robert Mueller）受理的对于俄罗斯2016年大选干预案的调查中被定罪的人，以及四名安全承包商因在2008年屠杀伊拉克平民而被定罪。
+* * *
 
-🔗[【原文链接】](https://www.politico.com/news/2021/01/15/trump-weighing-bannon-pardon-459765)
+【大选实况】1/16/2021 EST 6:30 pm国务卿彭佩奥推文： 就连习近平本人也承认，中共宣传人员不是独立的记者。我们不应该假装他们是。#事实胜于雄辩
 
-编辑：【G-News 特战队】
 
-+3
+
+> Even Xi Jinping himself admits CCP propagandists aren't independent journalists. We shouldn't pretend they are. [#FactsMatter](https://twitter.com/hashtag/FactsMatter?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/B32QQ1EzDt](https://t.co/B32QQ1EzDt)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350586161736122377?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1350586161736122377](https://twitter.com/SecPompeo/status/1350586161736122377)
+盖特链接：[https://gtv.org/getter/60037ee687fabe2daf3b0ac3](https://gtv.org/getter/60037ee687fabe2daf3b0ac3)
+
+* * *
+
+【大选实况】1/16/2021 EST 6:45 pm国务卿彭佩奥推文： 祝贺加拿大新任外交部长@MarcGarneau。我们感谢@FP\_Champagne（前加拿大外交部长）为美加关系所作的贡献，并期待着继续合作。
+
+
+
+> Congratulations to Canada’s new Foreign Minister [@MarcGarneau](https://twitter.com/MarcGarneau?ref_src=twsrc%5Etfw). We’ve appreciated the dedication of [@FP\_Champagne](https://twitter.com/FP_Champagne?ref_src=twsrc%5Etfw) to the U.S.-Canada relationship and look forward to continued cooperation.
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350589910974148610?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1350589910974148610](https://twitter.com/SecPompeo/status/1350589910974148610)
+盖特链接：[https://gtv.org/getter/60037f9487fabe2daf3b0b28](https://gtv.org/getter/60037f9487fabe2daf3b0b28)
+
+* * *
+
+【大选实况】1/16/2021 EST 7:30 pm 国务卿彭佩奥推文： 在本届（川普总统）政府执政之前，中共及其代理人窃取了美国的宝贵技术而不受惩罚。现在，我们正在起诉间谍和小偷，并阻止他们获得签证，以防止他们窃取美国伟大的尖端创新者的技术。#我们建造了它们
+
+
+
+> Before this administration, the CCP & its proxies stole invaluable U.S. technology with impunity. Now we are prosecuting spies & thieves, and keeping them from getting visas to steal from our great cutting edge innovators. [#WeBuiltThat](https://twitter.com/hashtag/WeBuiltThat?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/QdgBZ5vsYl](https://t.co/QdgBZ5vsYl)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350601227457859584?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1350601227457859584](https://twitter.com/SecPompeo/status/1350601227457859584)
+盖特链接：[https://gtv.org/getter/600387aa87fabe2daf3b0f38](https://gtv.org/getter/600387aa87fabe2daf3b0f38)
+
+**By： 【秘密翻译组 G-Translators】**
+
++1

@@ -1,85 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特实况】1/16/2021 川普政府结束了数十年来对中共的绥靖和被误导的合作政策&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/761077/)
+## 喀秋莎新闻参考- 2021年1月16日 (星期六)
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/761224/)
 
-【大选实况】1/16/2021 EST 8:00AM 彭佩奥国务卿推文 美国优先！
+俄罗斯莫斯科喀秋莎农场 土星
 
+编辑上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/48989-2.jpg)
+一、新中国联邦新闻
 
+1.“路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=Rqf2HoHoECk)、[晚间](https://www.youtube.com/watch?v=uUcwxTSLQpk)）:
 
-> [pic.twitter.com/rk3ubDadQZ](https://t.co/rk3ubDadQZ)
-> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350427613282578432?ref_src=twsrc%5Etfw)
+Ⅰ. 1月16日，习近平依然没有露脸出席任何活动。这几天川普政府每天都有针对中共的重磅政策发布，习寄希望于川普总统不会发布最为重要的决策，等待拜登上任后扭转局面。
 
+Ⅱ. 美国国务院1月14日发布要求彻查武汉病毒研究所和中共病毒来源声明后，1月15日又发布《确保对新冠病毒的来源进行透明、彻底的调查》的重磅申明。声明再次呼吁对中共病毒的来源进行透明和彻底的调查，敦促WHO解决实际问题，确保最终报告的可信度。
 
-来源：[https://twitter.com/SecPompeo/status/1350427613282578432?s=20](https://twitter.com/SecPompeo/status/1350427613282578432?s=20)
-盖特链接：[https://gtv.org/getter/6003016f87fabe2daf3ad29b](https://gtv.org/getter/6003016f87fabe2daf3ad29b)
+中共现已认识到病毒自然学说无法立足，企图启动病毒泄露学说。中共病毒在传染过程中出现越来越强的现象，与自然规律严重不符，这是生物武器的典型特征。美国接下来几天针对中共病毒会有重磅行动。
 
-* * *
+Ⅲ. 美国国务院在1月14日发布1000多家被中共军方控制的中共国企业，所有美国资本和个人都不允许投资这些中共国企业（[企业清单](https://www.state.gov/communist-chinese-military-companies-listed-under-e-o-13959-have-more-than-1100-subsidiaries/)）。美国已经意识到应当彻底打击中共国推广的军民融合项目。制裁令只要被颁布，即使拜登上台也必须对中共动手。
 
-【大选实况】1/16/2021 EST 8:45AM 彭佩奥国务卿推文 我们的体系设计者非常了解只有个体有信仰自由的时候国家才能昌盛。政府应该保护信仰自由，而不是靠大外宣制造宗教理念。在国家宗教自由日，我们重申我们的承诺保护这一普世权利。
+Ⅳ. 美国国家安全顾问奥布莱恩在1月15日发表重要讲话，表示将最大程度地减少从中共国进口商品和服务，中共国今天对美国构成了最大的国家安全威胁。
 
+Ⅴ. 《东方财富新闻网》1月16日报道，浙江吉利控股集团有限公司法人1月13日发生变更，原法人代表李书福卸任，由浙江吉利控股集团常务副总裁、首席财务官李东辉接任这一职务。次日，吉利科技集团有限公司也发生工商变更，李书福卸任公司法人，由首席执行官徐志豪接任。结合习总加速师接受手术后十多天仍然未露面，李书福卸任法人代表意味着习在党内的势力已经受到影响。
 
+Ⅵ.《人民日报》撰文攻击彭佩奥。中共已经意识到美国还将有重磅的行动，此文暗示要连同美国亲共势力攻击彭佩奥。川普政府一旦在20日前认定中共病毒为生物武器，不仅美国，北约联盟也必须参战消灭中共，无论谁担任美国总统都无法阻止全球灭共。这几天多国领导人选择辞职退位是担心中共用黑材料进行要挟，各国灭共准备正在进行中。
 
-> Our framers understood that a nation flourishes when individuals can exercise their religious freedom. Governments should protect this right, not propagate a religious ideology. On National Religious Freedom Day, we reaffirm our commitment to protect this universal right. [pic.twitter.com/UTOQxJ5VqK](https://t.co/UTOQxJ5VqK)
-> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350438908354392066?ref_src=twsrc%5Etfw)
+2. 美国国务卿蓬佩奥1月15日表示，目前所有的现有证据表明，中共病毒疫情起源于中共国。他还强调，武汉病毒所内的研究员2019年秋季就染病，出现类似中共病毒疫情的病征，这与中共长期宣称研究所内无研究员感染的状况相反。蓬佩奥的讲话代表美国掌握了病毒起源的确实证据，同时向目前进入武汉的世界卫生组织病毒起源调查组传递真正展开彻查工作的要求。
 
+3. 有文件显示，中共当局在内蒙古自治区强推汉语教学之后，日前又再度加码，对有关蒙古地方历史的中小学教科书进行“意识形态审查”。其中一些教材因为所谓“强调个体民族身份”而被禁止使用。
 
-来源：[https://twitter.com/SecPompeo/status/1350438908354392066?s=20](https://twitter.com/SecPompeo/status/1350438908354392066?s=20)
-盖特链接：[https://gtv.org/getter/600302c187fabe2daf3ad350](https://gtv.org/getter/600302c187fabe2daf3ad350)
+4. 港府正在建立类似大陆的网络防火墙，控制信息的自由传递。由港府所指定负责注册管理和注册所有“.hk”域名的机构 HKIRC ，新增一份“域名注册合理使用政策”，规定不得“扰乱香港政府运作”、鼓吹或煽动非法活动、侮辱或骚扰任何人或组织等。香港保安局局长李家超15日在立法会会议上也已表示，若有涉及“危害国家安全”罪行，会截取通讯及秘密监察，并强调警方亦受监督及须向国安委汇报。
 
-* * *
+5. 为应对疫情防控带来的政治风险，中共各地官员普遍实施“战时状态”方案，以便体现尽职尽责，但对经济已造成不小打击。中共新华社16日发表评论，指近来一些出现疫情、甚至没有疫情的地方政府动辄宣布进入“战时状态”，是“滥用”的作法，不仅困惑群众增加不必要恐慌，且影响正常生产生活。
 
-【大选实况】1/16/2021 EST 9:00AM 彭佩奥国务卿推文 川普政府结束了数十年来对中国共产党的绥靖和被误导的合作政策。我们不会再忽视美国和中共政治和理念上的不同，不会再忽视自由和暴政的差距！
+6. 斯德哥尔摩国际和平研究所（SIPRI）日前发表了一份关于中共国实际国防支出的评估报告，认为中共作为全球军费开支第二的国家，在2019年应该有2400亿美元用在了国防领域。报告指出军方背景的企业的商业活动收益未被统计进去。
 
+7. 中共正全面抵制澳洲煤炭。近日媒体却传出中共国向其他国家购买的煤炭，有大部分都是澳大利亚煤炭。 消息没有透露他国转手出售澳煤时，价格是否攀升。
 
+8. 柬埔寨总理洪森周六（1月16日）表示，中共将提供100万剂北京科兴病毒疫苗。柬埔寨是中共长年的盟友，接受后者数十亿美元优惠贷款与投资。
 
-> The Trump Administration ended decades of appeasement and misguided engagement policy toward the Chinese Communist Party. We can no longer ignore the political and ideological differences between the U.S. and the People's Republic of China, between freedom and tyranny. [pic.twitter.com/zrR7hRGfPp](https://t.co/zrR7hRGfPp)
-> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350442682934456325?ref_src=twsrc%5Etfw)
+9. 美国的港人组织“香港民主委员会“1月15日发声明宣布，5名年轻的香港抗争者在经历了艰苦而危险的寻求自由之旅后到达美国，寻求庇护。
 
+10. 大陆各地疫情目前呈爆发态势，而河北省疫情已经失控，官方发布的数据令外界质疑。1月16日下午，河北省副省长在疫情新闻发布会上称，截至1月14日，全市第二轮核酸检测全部完成，检测发现阳性病例247例。一周前，第一轮核酸检测阳性病例为354例。
 
-来源：[https://twitter.com/SecPompeo/status/1350442682934456325?s=20](https://twitter.com/SecPompeo/status/1350442682934456325?s=20)
-盖特链接：[https://gtv.org/getter/6003030887fabe2daf3ad376](https://gtv.org/getter/6003030887fabe2daf3ad376)
+11. 1 月 12 日，中共铁路大连车务段因Flash停服，全段几乎所有的运输生产电脑均出现了故障，因铁路局现在车载系统无法显示页面，列车运行图无法查看、列车编组顺序表无法制定、调车计划无法编排。事件反映中方对美国技术的依靠已经深入的生产和生活的方方面面，脱钩会造成各方面的停摆。
 
-* * *
+二、世界新闻
 
-【大选实况】1/16/2021 EST 9:30AM 彭佩奥国务卿推文 中国人民不同于中国共产党。我们支持中国人民摆脱中共威权统治的自由精神。这一点我在尼克松图书馆讲话中说得很明确。
+1. 川普总统1月15日获得了北非国家摩洛哥颁发的最高奖项，以表彰他在参与推动以色列和摩洛哥之间的关系正常化所作的努力工作。摩洛哥与以色列的关系正常化，这是以往美国政府认为不可能完成的事。这是继阿拉伯联合酋长国、巴林和苏丹之后，第四个愿与以色列结好的中东国家。白宫高级顾问贾里德‧库什纳和中东特使阿维‧贝科维茨因他们在去年12月达成的以色列与摩洛哥外交方面所做的工作，也获得了其它褒奖。
 
+2. 美国太空探索技术公司（SpaceX）的Starlink卫星互联网服务成功实现了190Mbps的惊人下载速度。该速度测试是近日由一位居住在蒙大拿州东北部的测试服务用户完成的。
 
-
-> The Chinese Communist Party is not the same as the Chinese people. We support the aspirations of the Chinese people to live free of the CCP's authoritarian rule. I made this clear in my Nixon Library speech. [https://t.co/FPZBGMREye](https://t.co/FPZBGMREye) [pic.twitter.com/uF5QViEbLq](https://t.co/uF5QViEbLq)
-> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350450233201860608?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1350450233201860608?s=20](https://twitter.com/SecPompeo/status/1350450233201860608?s=20)
-盖特链接：[https://gtv.org/getter/6003037087fabe2daf3ad3af](https://gtv.org/getter/6003037087fabe2daf3ad3af)
-
-* * *
-
-【大选实况】1/16/2021 EST 10:00AM 彭佩奥国务卿推文 这个账户几天后会封档-一定要通过这个账户追随我@mikepompeo
-
-
-
-> This account will be archived in a few days – be sure to follow me [@mikepompeo](https://twitter.com/mikepompeo?ref_src=twsrc%5Etfw).
-> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350457847973294085?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1350457847973294085?s=20](https://twitter.com/SecPompeo/status/1350457847973294085?s=20)
-盖特链接：[https://gtv.org/getter/600303ab87fabe2daf3ad3db](https://gtv.org/getter/600303ab87fabe2daf3ad3db)
-
-* * *
-
-【大选实况】1/16/2021 EST 10:30AM 彭佩奥国务卿推文 中共撒谎，并且开空头支票，我们必须识别这种模式并且立法应对这种恶劣行为。绥靖和为了对话而对话是无效的。 （图片人物：奥巴马与习近平）
-
-
-
-> The CCP lies, and makes empty promises. We have to recognize this pattern, and enact consequences if we want to change bad behavior. Appeasement and "dialogue" for dialogue's sake won't work. [pic.twitter.com/8S1txnEZqc](https://t.co/8S1txnEZqc)
-> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350465332733947909?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1350465332733947909?s=20](https://twitter.com/SecPompeo/status/1350465332733947909?s=20)
-盖特链接：[https://gtv.org/getter/600309c787fabe2daf3ad814](https://gtv.org/getter/600309c787fabe2daf3ad814)
-
-**By： 【秘密翻译组 G-Translators】**
-
-+2
++1

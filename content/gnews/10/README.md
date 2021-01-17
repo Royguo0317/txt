@@ -1,59 +1,105 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特实况】1/16/2021 议院多数党领袖麦康奈尔是深层政府的无耻傀儡&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/761993/)
+## 【附视频】国会众议员玛乔丽·泰勒·格林将于拜登就职第二天以滥用职权发起弹劾
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/762069/)
 
-【大选实况】1/16/2021 美东时间9:12PM 福克斯主持人Lou Dobbs推文： 参议院多数党领袖麦康奈尔（McConnell）是全球企业精英和深层政府的无耻傀儡，他对总统的小题大做、报复行径是对国家的伤害，制造了更多的分裂。
+英听校：康州盘古农场 – 烟波浩渺
+翻译：康州盘古农场 – 烟波浩渺
+翻译终校：康州盘古农场 – Antsee-GTV
+字幕+视频制作：康州盘古农场-天涯行
+审核：康州盘古农场-Truemanman
+![]()![](https://gnews.org/wp-content/uploads/2021/01/mq2-1.jpg)
+新任共和党众议员马乔丽·泰勒·格林（Marjorie Taylor Greene / 佐治亚州）周三晚间宣布，她将于2021年1月21日就乔·拜登滥用职权问题提出弹劾条款。
 
+拜登的儿子亨特·拜登目前正在接受调查，原因是他的笔记本电脑中包含的犯罪内容，已于去年移交给联邦调查人员。
 
+马乔丽·泰勒·格林今晚在NewsMax 电视节目《格雷格·凯利报道》中宣布了这一消息。
 
-> McConnell is a shameless stooge of the global corporate elites and the deep state, and his petty, vindicative act against the President is a disservice to the nation, creates more division. [https://t.co/pVEyLHvR0s](https://t.co/pVEyLHvR0s)
-> — Lou Dobbs (@LouDobbs) [January 17, 2021](https://twitter.com/LouDobbs/status/1350627143617830917?ref_src=twsrc%5Etfw)
+格林议员对主持人格雷格·凯利说：”我们不能有一位滥用总统职权，被外国政府、中共国能源公司、乌克兰能源公司轻易收买的美国总统。所以1月21日，我将对乔·拜登提出弹劾条款。”
 
+而对于数百万美国人来说，这将是他们第一次听到乔·拜登和亨特·拜登以及他们与中共国或乌克兰的交易!
 
-来源：[https://twitter.com/LouDobbs/status/1350627143617830917](https://twitter.com/LouDobbs/status/1350627143617830917)
-盖特链接：[https://gtv.org/getter/6003bb0f87fabe2daf3b27ec](https://gtv.org/getter/6003bb0f87fabe2daf3b27ec)
-
-* * *
-
-【大选实时报】1/16/2021 美东时间6:35PM Newsmax推文: 主持人”Diamond“对”Silk”说：”民主党可以鼓励暴力，威胁总统，煽动暴力，为骚乱者和抢劫者筹集保释金，但是人们却对此缄口不言。”
-
-
-
-> .[@DiamondandSilk](https://twitter.com/DiamondandSilk?ref_src=twsrc%5Etfw) say "Democrats can encourage violence, threaten a President, incite the violence and raise bail money for the rioters and the looters and nobody says anything." [https://t.co/VlT7z8drtO](https://t.co/VlT7z8drtO) [pic.twitter.com/A8dcuaTNLn](https://t.co/A8dcuaTNLn)
-> — Newsmax (@newsmax) [January 16, 2021](https://twitter.com/newsmax/status/1350587386275778560?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/newsmax/status/1350587386275778560](https://twitter.com/newsmax/status/1350587386275778560)
-盖特链接：[https://gtv.org/getter/6003913b87fabe2daf3b147c](https://gtv.org/getter/6003913b87fabe2daf3b147c)
-
-* * *
-
-【大选实时报】1/16/2021 美东时间 7:53PM Newsmax推文： Newsmax主持人本尼·约翰逊(Benny Johnson)：“作为一名保守派，你是一场高尚而光荣的运动的一部分，没有什么可羞愧的。”
+众议员马乔里·泰勒·格林补充说：”我们不会让罪犯在我们的办公室任职……我们不需要这样一个犯了滥用权力罪，正在接受调查的人在美国总统职位上。”
 
 
 
-> .[@bennyjohnson](https://twitter.com/bennyjohnson?ref_src=twsrc%5Etfw) says "as a Conservative, you are part of a noble and honorable movement, you have nothing to be ashamed of." [https://t.co/VlT7z8drtO](https://t.co/VlT7z8drtO) [pic.twitter.com/rT60T4mbMH](https://t.co/rT60T4mbMH)
-> — Newsmax (@newsmax) [January 17, 2021](https://twitter.com/newsmax/status/1350607177833193473?ref_src=twsrc%5Etfw)
+以下为视频文字稿：
 
+**Taylor**:
 
-来源：[https://twitter.com/newsmax/status/1350607177833193473](https://twitter.com/newsmax/status/1350607177833193473)
-盖特链接：[https://gtv.org/getter/60039e4887fabe2daf3b1a33](https://gtv.org/getter/60039e4887fabe2daf3b1a33)
+一半的美国人 我们必须追究我们领导者的责任我们不能由一个滥用国家权力的人来
 
-* * *
+担任美国总统职务，并很容易就被外国政府收买，（被）中共国或中共国的能源公司
 
-【大选实时报】1/16/2021 美东时间10:30 PM zerohedge 推文： 拜登将 “立即 “向国会提交为1100万非法移民提供公民身份的法案。
+乌克兰能源公司（收买）所以在1月21日，我将提交对乔·拜登的弹劾条款
 
+**主持人Greg**:
 
+哇，对乔·拜登提起弹劾条款 ，在乔·拜登在他的总统就职的第一个完整日，我现在正在看亨特·拜登，所以我们谈谈乔·拜登，显然我们知道亨特也有问题，那怎么样可行呢？ 你是一位新任议员，你还是众议院少数党，接下来的事情只是象征性的吗？还是你真的能做到？
 
-> Biden To 'Immediately' Send Congress Bill That Would Offer Citizenship To 11 Million Illegals [https://t.co/50aEROAckQ](https://t.co/50aEROAckQ)
-> — zerohedge (@zerohedge) [January 17, 2021](https://twitter.com/zerohedge/status/1350646655838806019?ref_src=twsrc%5Etfw)
+**Taylor**:
 
+就像我说的我非常确信在办公室里实际是有人愿意做这件事的，我无法想象这个国家的人是如此恐惧未来的拜登总统任期，他们可能宁愿像在国会大厦中那样实施暴力，在华盛顿特区，我们不能有那样的暴力，我不宽恕暴力 ，但美国人民需要希望，他们需要知道有共和党人在国会愿意站出来为他们战斗，不管是不是少数党，不管是反对我们，反对我自己，还是反对国会的任何人，我们必须追究责任人，乔·拜有电话记录在案，在电话里他说会扣留十亿美元的外国援助，假如他没有得到他们与他儿子亨特达成的协议，而且亨特·拜登笔记本电脑的调查正在进行，有关被中共能源公司收买这对我们国家来说是一个危险的威胁，当我们有一个人将大权在握，但可以如此轻意被收买，并有滥用权力的记录
 
-来源：[https://twitter.com/zerohedge/status/1350646655838806019](https://twitter.com/zerohedge/status/1350646655838806019)
-盖特链接：[https://gtv.org/getter/6003b31a87fabe2daf3b244b](https://gtv.org/getter/6003b31a87fabe2daf3b244b)
+**Greg**:
 
-**By： 【秘密翻译组 G-Translators】**
+我们将播放一下那个电话，我需要安排一下，同时我想问你，现在我仅仅是扮演片刻的魔鬼代言人，你知道，我同意你关于拜登的腐败，对，它看起来非常腐败，让我们面对它，这百分之一千已经被证明了，我认为它看起来非常糟糕，绝对有待进一步调查，但是正如你刚才所说，你知道你当选国会议员不会是为了这种事吧？嗯，你知道我们很多人都感到沮丧，知道很多美国人都很沮丧，关于疫情纾困和你知道还有其他紧迫的事情，你怎么看，也许你知道，这次之后，我们不需要再来一次弹劾 ，一年半中有三次，也许让放过这个吧，这说法就像是恶魔的拥护者
+
+**Taylor**:
+
+不，绝对不，我们不，我们不让罪犯在我们的办公室担任总统职务甚至卡马拉·哈里斯， 她把明尼苏达自由保释基金链接，放到她的个人社交媒体上，要求人们捐款以将罪犯从监狱中保释出来，保释那些袭击小型商业，烧毁城市，袭击警察局的犯人，这些人是需要被问责的，共和党一直没有足够的强硬来这么做
+
+所以，现在是时候了，你知道 他们是否想降低弹劾的标准
+
+如果是的话，那么我们顺应潮流，而且如果美国人民也希望这样的情况发生的话，美国人民已经难以忍受了，厌倦了，受够了，你知道吗？
+
+为经济而战，我们需要重新开放美国，这就是我们如何让我们的经济回升
+
+**Greg**:
+
+所以，我们有那个电话，始终没有引起媒体的足够重视，他们甚至没有试图要解释它，
+
+他们只是想把它放在一边，这是乔·拜登以炫耀的口吻在谈论如何说服乌克兰做他想做的事。精彩！
+
+大家请看吧，这是他离开副总统职位几个月后的视频。
+
+**Joe Biden**:
+
+我得到了波罗申科和亚森尤克的承诺，他们将对国家检察官采取行动，而他们没有那样做
+
+我说你们得不到那十亿，我要离开这里了，我想大约还有六个小时，我看了看我的表说，我还有6小时要离开，如果检察官没有被开除， 那你就拿不到钱，结果，这小子就被解雇了（拜登脏话）
+
+**Greg**:
+
+在他离开副总统职位大约一年后，这是如此的疯狂，他完全是在肆无忌惮地做，却指责川普总统暗箱操作，你是新来的国会议员，你知道他们有一整套等级在那里以及论资排辈。像凯文·麦卡锡（Kevin McCarthy）这样的人怎么看？您认为他们会如何接受你关于对乔·拜登弹劾的想法
+
+**Taylor**:
+
+好吧，我希望凯文麦卡锡领导力，和我所有的共和党同事都将愿意接受，会接受美国人民的意愿和要求，我们不需要在美国担任总统的人，犯有滥用职权罪并且他自己的亲生儿子亨特·拜登因为笔记本电脑还在被进行调查，这不是我们国家需要走的方向，我希望我的共和党同事同意我的看法。
+
+**Greg**:
+
+我们将非常非常密切地关注议员马乔丽·泰勒·格林，你在国会呆了多久了，现在10天了吧？
+
+发生了非常非常多的事，对于上周在国会大厦发生的事情，我再次表示遗憾，简而言之，那时真正严重的时候，你在哪里？，你当时做了些什么，你在哪里？
+
+**Taylor:**
+
+我当时在会议厅里，他们正试图破门而入，当那位年轻女士被枪杀时，我们听到了枪声非常悲惨
+
+当（闯入者）都在国会大厦的大厅里时，我非常感谢警察
+
+我想送上衷心的祈祷给死难警察的家属，我们的国会大厦警察是很棒的，非常感谢他们
+
+**Greg:**
+
+的确，死了人，真是太惨了，不过得查查那些人是怎么进到国会大厦的，以及为什么没有更好的准备和预期发生的事情，再说一遍，来自乔治亚州共和党的马乔丽·泰勒·格林女议员，非常感谢您，下次见。
+
+原文作者：吉姆·霍夫特（Jim Hoft）
+
+发布时间：2021年1月13日下午6点45分
+
+原文链接：[BREAKING: GOP Rep. Marjorie Taylor Greene to Introduce Articles of Impeachment Against Joe Biden on January 21 Over Abuse of Power (VIDEO) (thegatewaypundit.com)](https://www.thegatewaypundit.com/2021/01/breaking-gop-rep-marjorie-taylor-greene-introduce-articles-impeachment-joe-biden-january-21-abuse-power-video/)
 
 0

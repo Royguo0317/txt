@@ -1,25 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥：中共是我们这个时代的核心威胁
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/761904/)
+## 遥遥领先的预言（六）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/761692/)
 
-- 编辑：Victor Torres
+五月花写作组 ｜ 作者：Charline ｜ 编辑：文合 ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/01/遥遥领先的预言-copy.jpg)
+从出生到懂事、到能看报、到步入社会，一路走来，在中共国所看到、听到的，除了口号、假新闻，最多的就是造谣和辟谣。
 
+我们有幸伴随、参与了爆料革命，知道了揭露真相是多么的重要。记得2017年，第一次在郭先生和路德的直播里留言，马上遭到辱骂和诅咒。可是现在形势变了，只用了三年多的时间，郭先生创导的爆料革命在全世界遍地开花。五毛们再见了，上市公司被制裁了，习独裁躲起来了，被共匪控制的媒体已经摇摇欲坠了，最让人兴奋的是共匪已经被爆料革命揭露得体无完肤了。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+随着传播真相和揭露真相的深入发展，对共匪的辟谣有了进一步的理解，我发现每一次辟谣到被证实的过程，都是那样的雷同。共匪不仅掌握了老百姓的话语权，还让人闭嘴，这一闭，就闭了七十年。所以民间根本不存在造谣、传谣，而是共匪内部的相互残杀。
 
-**西班牙2021年1月17日电/西喜社——**蓬佩奥周日发推称：
+举个例子，当年刘铁男是个响当当的能源局长，国家发改委党组成员。敛财、贪财、包二奶谁不知、谁不晓。家人更是狗仗人势、趾高气扬。可是突然之间，刘铁男的一个二奶用越洋电话向财经杂志举报了刘铁男。举报人怎么会如此轻而易举地就能联系上这个媒体人罗昌平呢?  罗昌平又哪来的胆量敢去撼动刘铁男这棵大树呢? 在中国，良心媒体普遍遭受压制和迫害，而良心律师被监禁、被自杀的数量，可能是非正常死亡人数中占比很大的一部分。
 
-与你从全球主义者和其他 “专家 “那里听到的相反，川普政府在中共这个时代的核心威胁问题上，从来没有采取过单边行动。我们已经建立了一个全球多边共识来对抗它。
+当媒体人罗昌平以个人名义在2012年12月6日连发三条微博，实名举报刘铁男学历造假、经济方面等问题时，国家能源局发言人马上回应媒体说：“此举报信息纯属污蔑造谣，我们正在联系有关网络管理部门和公安部门，正在报案、报警，将采取正式的法律手段处理此事。”
 
+但辟谣过后仅几个月的时间，在2013年8月8日，刘铁男就被开除党籍，并移送司法机关处理。《人民日报》官微对此进行了评论，称“从刘铁男被举报，到其单位官方出面否认严斥，再到证实被调查，刘铁男事件‘剧情’跌宕起伏。新闻发言人本是公职，怎会沦为家奴，为官员个人背书？”
 
+人民日报官微的这措辞贫乏的解释，骗不了世人的眼睛。几十年来共匪用同样的伎俩，一边在他们内部相互残杀，一边继续地愚弄百姓。反反复复、重蹈覆辙地在共匪选出的接班人手中一代一代的传承下来。不用加工、不用改编、不用舞台、不用灯光。共匪用独裁控制了媒体，而互联网录下了他们的罪行。
 
-> Contrary to what you hear from the globalists and other "experts," the Trump Administration has never been unilateral on the central threat of our time, the CCP. We have built a global multilateral consensus to counter it. [#LeadingFromTheFront](https://twitter.com/hashtag/LeadingFromTheFront?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/23hFsHLBfA](https://t.co/23hFsHLBfA)
-> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350797521224835072?ref_src=twsrc%5Etfw)
+* * *
 
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)
 
+更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)
 
 0

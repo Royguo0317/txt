@@ -1,19 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 1/14/2021 班农作战室【精选汇总】
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/761469/)
+## 闫丽梦博士两周精选集（中文）1/9期
+` 喜馬拉雅多語組` [轉載自GNews](https://gnews.org/zh-hans/761678/)
 
-【精选一】川普总统的集会和他讲话前所发生的事情无关
+撰稿记者:感言、本来、CYC文穎
+校对:文笑如意
+播音:大腳印
+剪辑：今晚打老虎
 
-【精选二】民主党想完全结束川普总统的政治生涯，因为他们知道川普总统受欢迎度远远超过于他们
-
-【精选三】班农先生预测对川普总统的弹劾审判最早于下周四进行
-
-【精选四】80%的川普支持者表示他们不会支持任何投票赞成弹劾的人
-
-【精选五】班农播放2017年的视频，川普就职时受到抗议者打压，班农呼吁川普解密穆勒档案
-
-By: 【秘密翻譯組G-Translators】
+[闫博士两周精选 2021.1.12\_p](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/01/17081756/2021.1.12_p.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/01/17081756/2021.1.12_p.pdf)
 
 +2
