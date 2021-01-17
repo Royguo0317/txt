@@ -1,98 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特实况】1/15/2021 武汉是COVID-19爆发的中心点, 任何人不得进出&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/757423/)
+## 德州检察长向五家科技巨头发出民事调查要求
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/758554/)
 
-【大选实况】1/15/2021 EST 11:30AM 彭佩奥国务卿推文： 没有犹豫。当国务院的首席医务官提出我们应该飞去武汉救美国人，我们的首席幕僚长说：“那你还站在这干什么？飞机几个小时后起飞。”
+*新闻来源：《Texas Attorney General》； 发布时间：2021年1月13日*
 
+*翻译/简评：Victory；校对/审核：万人往；Page：Daoiii*
 
+[!\[\]()!\[\](https://spark.adobe.com/page/9Ef2wRWF4VI0E/images/7a517984-9227-42d1-b8a9-018aadfb445f.jpg?asset_id=243523bb-117c-4ab3-938d-ec96d370ed7d&amp;img_etag=%223e887e62c18f84578217abe3f9fdafc0%22&amp;size=2560)](https://spark.adobe.com/page/9Ef2wRWF4VI0E/images/7a517984-9227-42d1-b8a9-018aadfb445f.jpg?asset_id=243523bb-117c-4ab3-938d-ec96d370ed7d&amp;img_etag=%223e887e62c18f84578217abe3f9fdafc0%22&amp;size=1024)
 
-> No hesitation. When [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw)’s chief doc said we needed to fly to Wuhan to rescue Americans, our management chief said, “Why are you still standing here?” Plane took off a few hours later. [pic.twitter.com/HidTdCSS9x](https://t.co/HidTdCSS9x)
-> — Secretary Pompeo (@SecPompeo) [January 15, 2021](https://twitter.com/SecPompeo/status/1350118045772091395?ref_src=twsrc%5Etfw)
+***简评：***
 
+**德州在人口和土地面积上都是全美第二（约2900万人口），同时因其独特的历史渊源，在美国有举足轻重且独特的政治和经济地位。德克萨斯本属于墨西哥，因德克萨斯人认为墨西哥政府违背宪法而爆发革命并独立，最终于1845年以独立国家身份加入美利坚合众国。所以德州人是有反抗传统的。去年12月就是德州首倡对4个摇摆州的选举提出诉讼，最终引起共19个州参与诉讼。**
 
-来源：[https://twitter.com/SecPompeo/status/1350118045772091395?s=20](https://twitter.com/SecPompeo/status/1350118045772091395?s=20)
-盖特链接：[https://gtv.org/getter/6001cb5187fabe2daf3a225b](https://gtv.org/getter/6001cb5187fabe2daf3a225b)
+**近期美国大科技公司明目张胆地实施言论审查，已经在美国建成了事实上的中共式防火墙，控制民众的发声渠道和新闻信息。此时，德州再次站出来维护美国的自由。我们期待更多的州行动起来，让这些作恶者受到法律制裁。**
 
-* * *
+***原文翻译：***
 
-【大选实况】1/15/2021 EST 11:14 AM 杰克·麦克西(Jack Maxey)推文： 最新消息：推特封了拉希姆的帐号@RaheemKassam
+# **帕克斯顿检察长向五家大科技公司发出关于歧视、有偏见的政策和做法的民事调查要求**
 
+检察长肯·帕克斯顿(Ken Paxton)今天向谷歌、脸书、推特、亚马逊网络服务和苹果公司发出民事调查要求，要求这些公司提供有关内容审核的政策和做法，更具体地说，是要求提供与最近被谷歌、亚马逊和苹果公司终止或屏蔽的社交媒体应用Parler有关的信息。
 
+多年来，这些大科技公司一直在社交媒体领域压制声音，并关闭竞争公司和平台。最近几个月，这种情况越来越严重。而仅在上周，这种歧视性的行动包括史无前例地将唐纳德·川普总统从在线媒体平台上删除和屏蔽。
 
-> BREAKING: Twitter has locked out [@RaheemKassam](https://twitter.com/RaheemKassam?ref_src=twsrc%5Etfw)
-> — Jack Posobiec 🇺🇸 (@JackPosobiec) [January 15, 2021](https://twitter.com/JackPosobiec/status/1350114224597569538?ref_src=twsrc%5Etfw)
+“必须维护第一修正案的权利和透明度，以便一个自由的在线社区可以运行和发展。然而，对美国总统和一些主要声音的封杀似乎是经过协调的，这不仅扼杀了言论自由，而且完全压制了那些言论和政治信仰与大科技公司领导人不一致的人，”检察长帕克斯顿说，“每个美国人都应该关注这种大规模的噤声，以及它对未来言论自由的影响。公众应该了解这些公司如何审查并可能删除他们不同意的言论的事实。我希望这些公司能够抛开党派政治，配合这些民事调查要求，以查清这场争论的真相，确保建立一个符合美国最高理想的真正自由的网络社区。”
 
+**🔗[原文链接](https://www.texasattorneygeneral.gov/news/releases/ag-paxton-issues-civil-investigative-demands-five-leading-tech-companies-regarding-discriminatory)**
 
-来源：[https://twitter.com/jackposobiec/status/1350114224597569538?s=21](https://twitter.com/jackposobiec/status/1350114224597569538?s=21)
-盖特链接：[https://gtv.org/getter/6001cb7b87fabe2daf3a2297](https://gtv.org/getter/6001cb7b87fabe2daf3a2297)
+🔖[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-* * *
+📺[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
 
-【大选实况】1/15/2021 EST 12:00 pm 国务卿彭佩奥推文： 武汉是COVID-19爆发的中心点：整个城市完全关闭。任何人不得进出。我们的@国务院外交安全团队全天候工作，在72小时内撤离了800名美国人，并将@国务院员工安全带回家。
+🔊[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
 
+编辑：【英国伦敦喜庄园编辑部】
 
+[!\[\]()!\[\](https://spark.adobe.com/page/9Ef2wRWF4VI0E/images/ee942512-8b6d-4130-b254-2370f9f774df.jpg?asset_id=5e5c9fb1-d565-4c4d-8bab-f137ee6a6cfc&amp;img_etag=%224f0bfa7e13d76d09cd8644ad1d8fd3bd%22&amp;size=2560)](https://spark.adobe.com/page/9Ef2wRWF4VI0E/images/ee942512-8b6d-4130-b254-2370f9f774df.jpg?asset_id=5e5c9fb1-d565-4c4d-8bab-f137ee6a6cfc&amp;img_etag=%224f0bfa7e13d76d09cd8644ad1d8fd3bd%22&amp;size=1024)
 
-> Wuhan was COVID-19 ground zero: whole city completely shut down. No one allowed in or out. Our [@StateDeptDSS](https://twitter.com/StateDeptDSS?ref_src=twsrc%5Etfw) team worked 24/7 to evacuate 800 Americans in 72 hours & bring [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) employees home safely. [pic.twitter.com/nqQcN6rd6M](https://t.co/nqQcN6rd6M)
-> — Secretary Pompeo (@SecPompeo) [January 15, 2021](https://twitter.com/SecPompeo/status/1350125600690737153?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1350125600690737153](https://twitter.com/SecPompeo/status/1350125600690737153)
-盖特链接：[https://gtv.org/getter/6001d3a287fabe2daf3a2d0c](https://gtv.org/getter/6001d3a287fabe2daf3a2d0c)
-
-* * *
-
-【大选实况】1/15/2021 EST 12:30 pm 国务卿彭佩奥推文： 旅行对外交工作至关重要，但是当COVID-19使其停顿时，我们没有停止工作。相反，我们创建了#美国空运：包机、军用飞机，不惜一切代价让我们的团队留在战场上，为美国人民服务。
-
-
-
-> Travel is usually the lifeblood of diplomacy, but when COVID-19 shut it down, we didn't stop doing our jobs. Instead, we created [#AirAmerica](https://twitter.com/hashtag/AirAmerica?src=hash&amp;ref_src=twsrc%5Etfw): charter flights, graytail, whatever it took to keep our team on the field for the American people. [pic.twitter.com/SV5PgxURpr](https://t.co/SV5PgxURpr)
-> — Secretary Pompeo (@SecPompeo) [January 15, 2021](https://twitter.com/SecPompeo/status/1350133143500677120?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1350133143500677120](https://twitter.com/SecPompeo/status/1350133143500677120)
-盖特链接：[https://gtv.org/getter/6001d4ae87fabe2daf3a2eae](https://gtv.org/getter/6001d4ae87fabe2daf3a2eae)
-
-* * *
-
-【大选实况】1/15/2021 EST 1:00 pm 国务卿彭佩奥推文： 当COVID-19疫情开始在亚洲各地肆虐时，我们的大使馆和领事馆就开始在亚洲地区开展工作。 @USAsiaPacific （美国国务院东亚及太平洋事务局）24小时不间断地工作，为我们的合作伙伴的一线卫生工作者运送了10亿件个人防护设备，并帮助该地区的美国人。
-
-
-
-> When the COVID-19 pandemic started raging across Asia, our embassies and consulates in [@USAsiaPacific](https://twitter.com/USAsiaPacific?ref_src=twsrc%5Etfw) worked 24/7 to move +1 billion PPE pieces to our partners' frontline health workers and help Americans in the region. [pic.twitter.com/JM7it4DOtL](https://t.co/JM7it4DOtL)
-> — Secretary Pompeo (@SecPompeo) [January 15, 2021](https://twitter.com/SecPompeo/status/1350140699342065664?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1350140699342065664](https://twitter.com/SecPompeo/status/1350140699342065664)
-盖特链接：[https://gtv.org/getter/6001f10d87fabe2daf3a522d](https://gtv.org/getter/6001f10d87fabe2daf3a522d)
-
-* * *
-
-【大选实况】1/15/2021 EST 1:30 pm 国务卿彭佩奥推文： 你可能听说过钻石公主号游轮在日本海岸被隔离，船上有3700名乘客，其中220人是新冠病毒感染者。为两架飞机配备了生物防护设施，将329名美国乘客安全带回美国。
-
-
-
-> You probably heard about the Diamond Princess cruise ship, quarantined off Japan's coast with 3700 passengers including 220 who were COVID+. Outfitted 2 planes with biocontainment facilities to bring her 329 American passengers home safely. [pic.twitter.com/yg4Ly97JEF](https://t.co/yg4Ly97JEF)
-> — Secretary Pompeo (@SecPompeo) [January 15, 2021](https://twitter.com/SecPompeo/status/1350148244127539200?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1350148244127539200](https://twitter.com/SecPompeo/status/1350148244127539200)
-盖特链接：[https://gtv.org/getter/6001f18e87fabe2daf3a52bf](https://gtv.org/getter/6001f18e87fabe2daf3a52bf)
-
-* * *
-
-【大选实况】1/15/2021 EST 2:00 pm国务卿彭佩奥推文： 仅自秘鲁，我们就撤离了一万多名美国人。我们对一名COVID感染者实施医疗救援，从不丹撤离，从洪都拉斯也以医疗救援的方式撤离了一名接受双肺移植手术的病人。
-
-
-
-> From Peru alone, we evacuated +10,000 Americans. We medically evacuated a COVID+ American from Bhutan and an ailing double-lung transplant patient from Honduras. [pic.twitter.com/dcUmKe8zNg](https://t.co/dcUmKe8zNg)
-> — Secretary Pompeo (@SecPompeo) [January 15, 2021](https://twitter.com/SecPompeo/status/1350155838112100353?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1350155838112100353](https://twitter.com/SecPompeo/status/1350155838112100353)
-盖特链接：[https://gtv.org/getter/6001f39a87fabe2daf3a551a](https://gtv.org/getter/6001f39a87fabe2daf3a551a)
-
-**By： 【秘密翻译组 G-Translators】**
-
-+2
+0

@@ -1,11 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法国“大嘴”泽穆：拜登什么都不是，他是被用来干掉川普的
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/758071/)
+## 美代理国防部长命令国家安全局设立一名最高律师
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/759415/)
 
-听写：Ikonic 翻译：THE ONE
+- 编辑：Victor Torres
 
-校对：Marie / Ikonic 字幕：Vécap
 
-0
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2021年1月17日电/西喜社——**最新消息—代理国防部长克里斯托弗·C·米勒命令国家安全局局长设立一名前共和党政治活动家作为该局的最高律师。目前还不清楚国家安全局将做什么。
+
+
+
+> JUST IN – Acting defense secretary Christopher C. Miller ordered the director of the National Security Agency to install a former GOP political operative as the NSA’s top lawyer. It is unclear what the NSA will do (WP).
+> — Disclose.tv 🚨 (@disclosetv) [January 17, 2021](https://twitter.com/disclosetv/status/1350597419646509061?ref_src=twsrc%5Etfw)
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+
++1

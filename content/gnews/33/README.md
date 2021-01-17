@@ -1,9 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 外星人原來真的存在？川普下令180天內解密UFO（玫瑰看新闻一月十三日）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/755055/)
+## 【看七哥视频】我每刻都在珍惜上天给我的阳光、大海、水和一切！
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/758606/)
 
-编译：玫瑰天空； 采集：楼兰古城
-![]()![](https://gnews.org/wp-content/uploads/2021/01/0001-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/0002-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/0003-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/0004-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/0005-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/0006-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/0007.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/0008-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/0009-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/0010-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/0011-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/0012-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/0013-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/0014.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/0015-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/0016-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/0017-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/0018-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/0019-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/0020-scaled.jpg)
-+5
+```
+作者：儒为
+校对/发稿人: Ting Guo
+```
+
+
+七哥视频：你知道我是在哪长大的？我是在地狱里出来的。再坏还能坏到共产党把我抓起来、把头发剪断，放到塑料袋里面，让我呼吸吐血吗？再坏还能戴上20公斤的脚镣和手铐吗？再坏还能坏到看到我弟弟被当场一枪、打的流满地血吗？我说我每刻都在珍惜上天给我的阳光、大海、水和一切。包括现在遇到的困难，因为这个困难只能让我强大。你能让我怎么着？你告诉我，让我郭文贵怎么着？只能让我强大。我一不骗，二不偷，三不杀人，四不放火，我怕啥呀？
+
+七哥的每一句话，似一柄重锤敲击着我的心脏。我虽然没有过这些经历，但是也听过长辈讲过他们的一些亲身经历，只是我选择了当成故事在听；我也会对很多国内现象感到不满、感到愤怒、也会恨其不争，为什么各相关部门不作为？但我担心自己会受到伤害、家人会受到伤害而选择了忍耐。“自私”是我们每个人都有的，区别在于每个人自私的方式不同、自私的程度不同、自私的对象不同而已。怎么能为了自己的“自私”而变得更加的“无私”；怎么让自己的“懦弱”变得“坚强”是我们需要去深思和不断学习的。
+
+我记得自己小的时候，村民住的都是土坯垒成的房子，屋里点的是煤油灯，用棉花卷成的灯芯泡在油里，一燃烧就会有刺鼻的气味；后来点上了蜡烛，感觉挺高兴的；再后来就是电灯，感觉很神奇，电灯泡里边的细细的钨丝却可以发光。小时候，逢年过节才能有点肉吃、有白面吃，如果能再放上几挂鞭炮，那就美上天了，这是我童年记忆中最幸福的时刻。一不小心长大了，有钱了，可以住好房子、开好车了，吃的就更加的丰富了，物质丰富的令人应接不暇，但是这些变化并没有让我感到多么的“快乐”，而我更加怀念小的时候。
+
+我没有去细思，是什么原因造成的这种感知差别？或者说我不敢去细想，我怕细想之后连最后的一点幸福感都失去了。我记不清，自己多久没有看到天上的星星，小时候躺在柴垛上和小伙伴数星星的镜头在脑海里依然清晰；我记不得，自己多久没有尝到我妈做的小鸡炖蘑菇、猪肉焖粉条的香味了。我妈也经常抱怨，现在的肉没味道了，自己的手艺也不好了。总之一切都在变化着。
+
+新中国联邦、爆料革命、七哥闯入我的生活，给了我答案。让我知道，这是我们的国家病了、我们这个国家的老百姓也病了。找出病因、消灭病根，先救自己、再救国人。珍惜上天给我们的机会，更要珍惜上天给我们阳光、大海、水和一切，不要再被污染了、不要再被破坏了。
+
+#### 文章仅代表战友个人观点
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/image0-46-scaled.jpg)*[**https://discord.gg/77fCxw5mFv**](https://discord.gg/77fCxw5mFv)
+[**https://**](https://https//discord.gg/77fCxw5mFv)[**gab.com/himalaya\_italy**](https://gab.com/himalaya_italy)*
+
+
+
++3

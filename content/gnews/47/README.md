@@ -1,98 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特实况】1/15/2021 这个星球上没有任何一个国家比美国更慷慨!&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/757385/)
+## 2021/01/15 围炉夜话第十一期
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/758525/)
 
-【大选实况】1/15/2021 EST 8:00AM 彭佩奥国务卿推文： 美国第一！
+整理：桂花酒；素材制作：健身健心、Bobby；校对/审核：宁缺；Page：拱卒
 
+# **中共为什么最恨美国**
 
+[!\[\]()!\[\](https://spark.adobe.com/page/8OlyfGsnhtabJ/images/595316a3-4071-47b2-9332-8a108f6466b6.jpg?asset_id=b929ba9e-ff95-47c8-bfa0-b62a87bb47c9&amp;img_etag=%22d38431596a5a1a244c118f12253fb3f4%22&amp;size=2560)](https://spark.adobe.com/page/8OlyfGsnhtabJ/images/595316a3-4071-47b2-9332-8a108f6466b6.jpg?asset_id=b929ba9e-ff95-47c8-bfa0-b62a87bb47c9&amp;img_etag=%22d38431596a5a1a244c118f12253fb3f4%22&amp;size=1024)
 
-> [pic.twitter.com/hOIW6Li8L7](https://t.co/hOIW6Li8L7)
-> — Secretary Pompeo (@SecPompeo) [January 15, 2021](https://twitter.com/SecPompeo/status/1350065199986864131?ref_src=twsrc%5Etfw)
+📺 [G-TV直播视频链接](https://gtv.org/video/id=5fe72603c0544c3d9738f2b4)
 
+近代史上，美国是对中国最友好的国家。那么自称为中国合法政府的中共，为何要不停地抹黑污蔑美国？本期继续回顾中共1949年建国前后，为了一己之私，巧舌如簧，颠倒黑白的事实。嘉宾们围绕着中共1949年前如何赞美美国，篡政后如何仇恨美国来揭穿其虚伪的谎言。
 
-来源：[https://twitter.com/SecPompeo/status/1350065199986864131?s=20](https://twitter.com/SecPompeo/status/1350065199986864131?s=20)
-盖特链接：[https://gtv.org/getter/6001b69287fabe2daf3a06b8](https://gtv.org/getter/6001b69287fabe2daf3a06b8)
+[!\[\]()!\[\](https://spark.adobe.com/page/8OlyfGsnhtabJ/images/0d5a7e1a-0d32-448d-993c-ac073ad2bb0e.jpg?asset_id=13d66d02-e0cc-4565-aca9-59cee898497f&amp;img_etag=%22a9e92c4cc98ea621e5993fa6b12a491a%22&amp;size=2560)](https://spark.adobe.com/page/8OlyfGsnhtabJ/images/0d5a7e1a-0d32-448d-993c-ac073ad2bb0e.jpg?asset_id=13d66d02-e0cc-4565-aca9-59cee898497f&amp;img_etag=%22a9e92c4cc98ea621e5993fa6b12a491a%22&amp;size=1024)
 
-* * *
+中共建政前，毛泽东撰写了多篇文章赞美民主，向美国示好。例如，《民主颂——献给美国的独立纪念日》（1943）《祝美国国庆日——自由民主的伟大节日》（1944）。更好笑的是，中共自己还曾经用彩色豆子投票在根据地实践民主，得出了民主可行的结论。
 
-【大选实况】1/15/2021 EST 8:30AM 彭佩奥国务卿推文： 这个星球上没有任何一个国家比美国更慷慨！
+50年代，中共污蔑陈纳德为反动的飞贼。写下了《陈纳德空运队屠杀中国人民的证据》、《美军曾恣意凌辱劫掠我同胞 昆明市民愤怒控诉 并揭发空中强盗陈纳德罪行》、《飞贼陈纳德》等一系列抹黑美国的文章。而后来，中共与美国建交后，分别通过1984年张爱萍、2012年梁光烈盛赞陈纳德将军。2015年习近平向陈纳德的遗孀陈香梅颁发抗战胜利70周年纪念章。这就是中共一惯翻云覆雨的最好证明。
 
+中共借一带一路如何用债务绑架东南亚诸国，美国却一直用真金白银资助。委内瑞拉在实行共产主义之后从文明富裕变成贫穷。中共对自己的历史讳莫如深，对外战争，对内运动，对台湾同胞生命漠视。中共洗白伊朗，对朝鲜、俄罗斯从不敢挑战，对讲法律讲道德的文明国家却横加指责。嘉宾们用一个个鲜活的例子证明了欺软怕硬中共流氓政府的本质。
 
+[!\[\]()!\[\](https://spark.adobe.com/page/8OlyfGsnhtabJ/images/0bb8acfc-33c9-420e-b78d-4c818747a29f.jpg?asset_id=7a6d0fd0-3ede-4728-9d64-b6e8a848b23e&amp;img_etag=%22dc40b5db8192a018f5744bc3bb46532a%22&amp;size=2560)](https://spark.adobe.com/page/8OlyfGsnhtabJ/images/0bb8acfc-33c9-420e-b78d-4c818747a29f.jpg?asset_id=7a6d0fd0-3ede-4728-9d64-b6e8a848b23e&amp;img_etag=%22dc40b5db8192a018f5744bc3bb46532a%22&amp;size=1024)
 
-> There's no more generous nation on the planet than the United States of America. [pic.twitter.com/oBmqqadE2r](https://t.co/oBmqqadE2r)
-> — Secretary Pompeo (@SecPompeo) [January 15, 2021](https://twitter.com/SecPompeo/status/1350072747930636290?ref_src=twsrc%5Etfw)
+现在，中共自己反美，却挑动人民仇恨美国，原因不过是美国乃全世界自由民主的灯塔，恰恰是中共假丑恶的“照妖镜”。反美实际是因为中共对美国自由民主会唤醒14亿中国人害怕到极点。因此围炉夜话栏目号召所有中国人要独立思考，认清是非，唤醒更多同胞。而中共必将被自己“致命的自负”埋葬！
 
+📺 [GTV-UK-2号台直播！](https://gtv.org/user/5fb02ac8bd0d464fad04dfdb)
 
-来源：[https://twitter.com/SecPompeo/status/1350072747930636290?s=20](https://twitter.com/SecPompeo/status/1350072747930636290?s=20)
-盖特链接：[https://gtv.org/getter/6001b6af87fabe2daf3a06e0](https://gtv.org/getter/6001b6af87fabe2daf3a06e0)
+📍 每周六定时直播 ⏰英国时间：12.00–14.00； 美东时间：7.00—9.00； 盘古时间：20.00—22.00
 
-* * *
+🔖[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-【大选实况】1/15/2021 EST 9:00AM 彭佩奥国务卿推文： 在过去的二十年，美国捐助了一千四百亿美金+用以提高全球健康水平；在过去十年里，捐助了七百亿美金+协助改善人权。更不要提宗教组织，非盈利组织和公民的私人资助。#伟大的美国！
+📺[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
+🔊[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
+编辑：【英国伦敦喜庄园编辑部】
 
-> The U.S. has deployed $140+ billion in global health assistance over the last two decades and $70+ billion in humanitarian assistance in the past decade alone. Not to mention contributions from faith groups, NGOs, and private citizens. [#AmazingAmerica](https://twitter.com/hashtag/AmazingAmerica?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/w6xmjroVwj](https://t.co/w6xmjroVwj)
-> — Secretary Pompeo (@SecPompeo) [January 15, 2021](https://twitter.com/SecPompeo/status/1350080297023451139?ref_src=twsrc%5Etfw)
+[!\[\]()!\[\](https://spark.adobe.com/page/8OlyfGsnhtabJ/images/d6b8a382-fc41-4807-8a6d-0a4a6f6718b8.jpg?asset_id=86fe3925-a5ac-4252-9313-44c750b83d6b&amp;img_etag=%22f32971e8aff06faa92c75618178927c1%22&amp;size=2560)](https://spark.adobe.com/page/8OlyfGsnhtabJ/images/d6b8a382-fc41-4807-8a6d-0a4a6f6718b8.jpg?asset_id=86fe3925-a5ac-4252-9313-44c750b83d6b&amp;img_etag=%22f32971e8aff06faa92c75618178927c1%22&amp;size=1024)
 
-
-来源：[https://twitter.com/SecPompeo/status/1350080297023451139?s=20](https://twitter.com/SecPompeo/status/1350080297023451139?s=20)
-盖特链接：[https://gtv.org/getter/6001b7b787fabe2daf3a0857](https://gtv.org/getter/6001b7b787fabe2daf3a0857)
-
-* * *
-
-【大选实况】1/15/2021 EST 9:30AM 彭佩奥国务卿推文： 当委内瑞拉人民逃脱马杜罗犯罪集团的统治，我们在帮助他们，我们提供了十亿美元帮助改善人权状况，包括食物，药品和其他急需品来缓解这个地区的危机。因为美国一直是这样做的！
-
-
-
-> When Venezuelans fled Maduro's criminal gangs, we were there, providing more than $1 billion in humanitarian assistance, including food, medicine and other urgent aid to this regional crisis. Because that's what America does. [pic.twitter.com/skIZb65uZ0](https://t.co/skIZb65uZ0)
-> — Secretary Pompeo (@SecPompeo) [January 15, 2021](https://twitter.com/SecPompeo/status/1350087845659070466?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1350087845659070466?s=20](https://twitter.com/SecPompeo/status/1350087845659070466?s=20)
-盖特链接：[https://gtv.org/getter/6001b7de87fabe2daf3a088b](https://gtv.org/getter/6001b7de87fabe2daf3a088b)
-
-* * *
-
-【大选实况】1/15/2021 EST 10:00AM 彭佩奥国务卿推文： 当贝鲁特大面积地区发生可怕的爆炸，地区状况恶化时，我们给黎巴嫩人民送去生命救助的医疗用品和食物。因为美国一直是这样做的！
-
-
-
-> When a horrific explosion devastated vast swathes of Beirut, we sent life-saving medical and food assistance to the Lebanese people. Because that's what America does. [pic.twitter.com/j9lybZQV5r](https://t.co/j9lybZQV5r)
-> — Secretary Pompeo (@SecPompeo) [January 15, 2021](https://twitter.com/SecPompeo/status/1350095402683359233?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1350095402683359233?s=20](https://twitter.com/SecPompeo/status/1350095402683359233?s=20)
-盖特链接：[https://gtv.org/getter/6001b7fd87fabe2daf3a08ac](https://gtv.org/getter/6001b7fd87fabe2daf3a08ac)
-
-* * *
-
-【大选实况】1/15/2021 EST 10:30AM 彭佩奥国务卿推文： 当蝗虫（灾害）导致玉米减产，造成东非几十年以来最糟糕的灾害，美国资助了两千五百万美元帮助索马里、埃塞俄比亚、肯尼亚，苏丹和乌干达，防止饥饿的发生。因为美国一直是这样做的！
-
-
-
-> When locusts descended on crops in East Africa for the worst outbreak in decades, the United States contributed $25 million to help prevent famine in Somalia, Ethiopia, Kenya, Sudan, and Uganda. Because that's what America does. [https://t.co/jRmaPIwJ4v](https://t.co/jRmaPIwJ4v)
-> — Secretary Pompeo (@SecPompeo) [January 15, 2021](https://twitter.com/SecPompeo/status/1350102946646618113?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1350102946646618113?s=20](https://twitter.com/SecPompeo/status/1350102946646618113?s=20)
-盖特链接：[https://gtv.org/getter/6001b8e487fabe2daf3a09f0](https://gtv.org/getter/6001b8e487fabe2daf3a09f0)
-
-* * *
-
-【大选实况】1/15/2021 EST 11:00AM 彭佩奥国务卿推文： 当COVID-19大流行导致全球旅行停滞，美国人被困在世界几百个地方。国务院紧急空运系统把超过十万的美国人在135天内带回家-以前从来没有过的成就。
-
-
-
-> When the COVID-19 pandemic shut down global travel, Americans were trapped in hundreds of places all over the world. The [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw)'s emergency airlift operation brought home &gt;100k Americans in 135 days – never before accomplished. [pic.twitter.com/TUOqh6NMML](https://t.co/TUOqh6NMML)
-> — Secretary Pompeo (@SecPompeo) [January 15, 2021](https://twitter.com/SecPompeo/status/1350110495097892873?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1350110495097892873?s=20](https://twitter.com/SecPompeo/status/1350110495097892873?s=20)
-盖特链接：[https://gtv.org/getter/6001cb3087fabe2daf3a2224](https://gtv.org/getter/6001cb3087fabe2daf3a2224)
-
-**By： 【秘密翻译组 G-Translators】**
-
-+1
+0

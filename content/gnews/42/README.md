@@ -1,75 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共的军民融合走向终点
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/757454/)
+## 纳瓦罗报告·第三卷（二）——是的，川普总统已胜出：案件、证据、统计收据
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/758616/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1-60.png)图片来源：ChinaDaily
-据路透社华盛顿报道——周四，川普政府针对中共及其大公司挥起新一波制裁大棒。对那些参与南海恶劣行为的公司和官员实施制裁，以及另外九家公司执行投资禁令。这些举措就发生在川普总统第一任任期即将结束的前几天。
+五月花写作组 ｜ 翻译：Tom Cat ｜ 校对：虹陵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/01/纳瓦罗报告第三卷2.jpg)
+### 往期链接：
 
-国企高管，共产党政权和军队的官员以及石油巨头中国海洋石油集团有限公司（CNOOC）（以下简称中海油）面临新的禁令，据称他们用胁迫的手法来打击在南海区域的有着同等主权诉求的国家。针对中海油（CNOOC）的新禁令主要是他们将不被允许参与原油开采，燃油冶炼和液化天然气项目，还有与它合资的企业不允许在南海周边区域的运营。
+[纳瓦罗报告·第三卷（一）](https://gnews.org/zh-hans/753290/)
 
-还有九家中共国公司被加进五角大楼的清单中，这些公司据称与中共军方有关联，包括飞机制造商中国商用飞机有限责任公司（COMAC）和电话生产商小米公司，周五小米的股票以10%的跌幅收市，而恒生指数下跌0.4%，而中海油（CNOOC）的股票跌去1.1%。这些公司将受到美国新的投资禁令影响，该禁令将迫使美国投资者在2021年11月11日前剥离那些在黑名单上的企业股份。
+* * *
 
-**中共控诉美国滥用国家权力**
+## The Arizona Battleground
 
-中共外交部发言人赵立坚周五在北京表示，中共坚决反对这个新的制裁，“这个制裁行为违背了时代潮流，也违背了美国标榜的市场自由竞争和国际经济贸易准则。”
+## 亚利桑那战场州
 
-美国长期以来一直反对中共对南海的领土主张，这里资源丰富，也是一条贸易航线。华盛顿指责中共威胁类似菲律宾和越南那些同样在该区域宣示过主权的国家。而中共指责华盛顿以战舰和军机到南海，企图破坏该区域的稳定。
+Figure Two tabulates by category a total of 254,722 potentially illegal votes. This number constitutes roughly 24 times the alleged Biden victory margin of 10,457 votes. By far the largest category is 150,000 mail-in ballots cast by voters registered after the registration deadline. Another 22,903 absentee ballots were on record as having been returned on or before the postmark date, which is highly unlikely.
 
-美国国务卿迈克·蓬佩奥（Mike Pompeo）在宣布制裁时说：“美国站在那些宣称拥有主权的东南亚国家这边，捍卫他们在该地区的主权和利益，这也是与国际法一致的。”蓬佩奥说华盛顿将对中共国企高管，中共官员和海军官员实行签证限制措施。这项制裁直接针对那些“负责，或参与那些在南海有争议的瞭望塔区域大规模开荒、建设或者军事化，或者以威胁的手段制止在该区域宣示主权的东南亚国家获取他们近海资源的机会的人。”
+图表二按类别分成的表格共有254,722张潜在的非法选票。这个数字大约是所谓的拜登胜利领先10,457选票的24倍。到目前为止，最大的类别是在注册截止日期之后注册的选民投出的15万张邮寄选票。另一个有记录的是22,903张缺席选票，在邮戳日或之前收到，这是极不可能的。
 
-**中海油（****CNOOC****）恐吓中共的邻居**
+### *Figure Two*
 
-罗斯的部门还将中海油（CNOOC）加入了“实体清单”，在清单上的实体要获得美国高科技供应方出口服务前被要求提供特殊许可证。
+### *图表二*
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-17-at-1.31.37-AM.png)
+In reviewing the statistics in Figure Two, it is worth noting that Arizona had statistically improbable high voter turnouts in Maricopa and Pima counties; widespread ballot mishandling; and 1.6 million mail-in ballots (which disproportionately leaned towards Biden) which were subjected to much lower standards of certification and ID verification than in-person votes (which leaned toward Trump).
 
-商务部指责中海油（CNOOC）在南海海域骚扰和威胁油气勘探开采，提升包括越南在内那些宣示主权国家的政治风险。商务部部长威尔伯·罗斯（Wilbur Ross）表示，中海油扮演的角色是“恐吓中共邻居的解放军恶霸”，以及中共军方的“受益于中共政府的邪恶的军民融合政策的相关方。”
+在回顾图二的统计数据时，值得注意的是，亚利桑那州马里科帕县和皮马县有着在统计学上不可能存在的高投票率；大范围的投票处理不当；160万张邮寄选票（不成比例地倾向于拜登）的认证和身份核实标准远低于亲自投票（倾向于川普）。
 
-开设在北京的独立咨询公司DFS Energy的创立人陈卫东（Chen Weidong）说，美国的专业技术来说，中海油（CNOOC）被曝光的机率是有限的。“该公司可能也需要一些设备和零件，例如像来自美国的测井工具，但是那个被替代不是难事。中共或许能够自己制造。”陈说道。
+The Copper State also accomplished the remarkable feat of exceeding 100% turnout of its registered voters. This is indeed a remarkable feat because Arizona does not allow same-day voter registration. The “over-votes” alone totaled 11,676, an amount more than the purported Biden “victory” margin of 10,457.
 
-该公司另一位能够接近中海油（CNOOC）的高管说，这家海上巨无霸更多地寻求本地私人公司提供服务，黑名单也会让欧洲的工程和设备供应商得到好处。
+铜州亚利桑那州还完成了其注册选民的投票率超过了100%，这一项了不起的壮举。这的确是一个了不起的“成就”，因为亚利桑那州不允许选民在同一天注册，同一天投票。仅仅“过多选票”这一项，就有11,676票，比拜登据称“胜利”领先的10,457票还要多。
 
-除了中国商用飞机有限责任公司和小米，清单上，五角大楼还增加了中微半导体设备（上海）股份有限公司（AMEC）简称“中微公司”，箩筐技术公司（Luokung Technology Corp），北京中关村发展投资中心（Beijing Zhongguancun Development Investment Center），高云半导体公司（GOWIN Semiconductor Corp），大新华航空（注：海航子公司）（Grand China Air Co Ltd），中译语通科技股份有限公司（Global Tone Communication Technology Co Ltd）和中国航空集团有限责任公司（国航）（China National Aviation Holding Co Ltd）。中共的航空企业Skyrizon因其能够开发军事产品包括飞行器引擎，被添加到军事最终用户（MEU）清单，它的产品被限制出口到美国。
+From the figure, it should also be clear that Arizona boasts a litany of other election irregularities. For example, a total of 19,997 persons voted where they did not reside while 2,000 voters did not have an address at all. 5,790 voters moved out of state or registered to vote in another state, 5,726 out-of-state residents voted in Arizona, and 36,473 individuals voted without providing evidence of citizenship.
 
-中国商飞（AMEC）表示他们与中共军方没有任何关联，制裁“不会给生产和运营产生巨大影响。小米公司表示“他们不归属和受控于中共军方，也不存在隶属关系”，他们将采取适当的方案来应对制裁。
+从这个图表中，我们可以清楚地看出，亚利桑那州有一长串的选举违规行为。例如，共有19,997人在他们不居住的地方投票，而2,000名选民根本没有地址。5,790名选民已迁出本州或在其他州登记投票，5,726名外州居民在亚利桑那州投票，36,473名个体在没有提供公民身份证明的情况下投票。
 
-中共上周出台了新规则以应对来自外国的禁令和反制法规。
+## The Georgia Battleground
 
-川普政府在最后的几天时间里启动一系列制裁重锤来打击中共，商务部也鼓励美国其他机构采取更为强硬的政策。
+## 佐治亚战场州
 
-有消息说，本来周三准备将中共科技巨人阿里巴巴（Alibaba），腾讯（Tencent）和百度（Baidu）列入黑名单的计划取消，但是被财政部长斯蒂文·姆努钦（Steven Mnuchin）挡了回去，他一向对中共过于温和。财政部周四颁布了一份通用许可证，豁免那些违反投资禁令，与新晋中共黑名单公司交易的美国证券交易所。
+Figure Three tabulates by category a total of 601,130 potentially illegal votes in Georgia. This is more than 50 times the alleged Biden victory margin of 11,779 votes.
 
-评：翻译这篇文章，译者尤感兴奋。中共这么多年利用美国的政策偷盗美国技术、财富的“宏伟蓝图”，彻底被川普政府给识破了。这一系列的制裁措施在临近川普总统任期结束的十几天内出台，让中共感觉泰山压顶，却让我们欣喜若狂。美国政府的这些制裁也在提醒世界其他发达国家，从而检查自己国家是否也存在中共着“军民融合”的战略。相信接下来几天里，川普政府还会有高招妙招来制裁中共，让我们拭目以待。
+图表三按类别分成的表格显示，在佐治亚州共有601,130张潜在的非法选票。这是所谓的拜登领先的11,779张选票的50多倍。
 
-[原文链接](https://www.reuters.com/article/idUSKBN29J1X4)
+### *Figure Three*
 
+### *图表三*
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-17-at-1.32.45-AM.png)
+From the figure, we see that the largest category of potentially illegal votes is that of absentee ballots cast requested before or after the statutory deadline. In the state of Georgia, voters have 180 days prior to Election Day to request absentee ballots, according to state law. However, during the 2020 Presidential Election, Georgia officials counted over 305,700 ballots cast by individuals who had requested absentee ballots more than 180 days before the absentee ballot request deadline, in blatant violation of Georgia Election Code.
 
+在图中我们可以看到，潜在非法选票的最大类别是在要求的法定截止日期之前或之后投出的缺席选票。佐治亚州州法律规定，选民在选举日之前有180天的时间来申请缺席选票。但是，在2020年总统选举期间，据佐治亚州的官员统计：有超过305,700张缺席选票的投票人是在规定截止日期180天之前申请的。这公然违反了佐治亚州选举法。
 
-**附国防部新增清单发布令**
+From the figure, we also see that 10,000 ballots of deceased individuals were counted. 15,700 votes were counted from “ghost” voters, that is, voters who requested and submitted ballots under the names of voters who no longer reside at a particular address. Similarly perplexing is that over 1,000 voters without an address cast ballots.
 
-**国防部根据****1999****财政年度国防授权法第****1237****条规定，发布增加的公司清单**
+从这个数字中还包括1万张已过世的人的选票。15,700张来自于“幽灵”选民，即有人用已不在某一特定地址居住的人的名字申请并提交了选票。同样令人困惑的是，超过1千名没有地址的人参与投票。
 
-今天，根据1999财政年度国防部授权法修正案第1237条的法规要求，国防部发布新增加的“中共军事企业”名单，这些公司直接或间接地在美国运营获利。
+Voting machines –which Georgia election officials were in an inexplicable rush to install leading up to the 2020 election – likewise may account for a substantial number potentially illegal ballots. There were also over 40,000 cases of voters voting in counties in which they did not legally reside, as well as over 66,000 voters who had successfully cast ballots even though they were under the legal voting age of 18.
 
-国防部决定标识并抵制这些中华人民共和国（PRC）军民融合的发展战略，这项战略就是通过那些伪装成民间实体的中共企业，大学和研究项目，获取和开发先进科学技术和专业知识，确保中国人民解放军获得这些科学技术和知识，来支持它的现代化目标。
+佐治亚州选举官员在2020年大选前莫名其妙地匆忙安装投票机 – 同样可能导致大量潜在的非法投票。还有4万多名选民在他们没有合法居住的县投票，同样的，有66,000多名选民在未满18岁的法定年龄时成功投票。
 
-国防部已经于2020年6月向国会发布了第一份清单，并将在适当时候继续更新增加的实体清单。
+原文链接：[https://navarroreport.com/#342e5f15-d44c-436a-bb58-9051a9397783](https://navarroreport.com/#342e5f15-d44c-436a-bb58-9051a9397783)
 
-附清单：
+* * *
 
-1. 中微半导体设备（上海）股份有限公司
-2. 箩筐技术公司
-3. 小米公司
-4. 北京中关村发展投资中心
-5. 高云半导体公司
-6. 大新华航空（注：海航子公司）
-7. 中译语通科技股份有限公司
-8. 中国航空集团有限公司（简称“国航“）
-9. 中国商用飞机有限责任公司
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)
 
+更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)
 
-[参考链接](https://www.defense.gov/Newsroom/Releases/Release/Article/2472464/dod-releases-list-of-additional-companies-in-accordance-with-section-1237-of-fy/)
-
-翻译报道：WEN JIE
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)
 
 +2

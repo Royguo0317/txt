@@ -1,60 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 战友
-` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/757515/)
+## 蓬佩奥：中共在病毒的来源上撒了谎
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/758738/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图-2021-01-16-200327.png)
-**作者：DDT (京都富士会）**
-审核校对：招财娘娘
-编辑排版：山顶之风
+- 编辑：Victor Torres
 
-人生的旅程遥远
 
-你选择目标最远的那一条
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-世间的路途繁多
+**西班牙2021年1月16日电/西喜社——**蓬佩奥周六发推揭露中共病毒来源。
 
-唯正道难行
+武汉病毒：中共掩盖了事实，中共让知情的医生消失了。中共仍然拒绝让世人看到它所造成的后果。中共在病毒的来源上撒了谎。
 
-战友啊
+中共封闭中国境内旅行，却让世界受苦。美国为世界发明疫苗。每个人都能看到这种对比。
 
-你的选择托起我的信仰
 
-把我从哭泣的世界拯救
 
-我要大声的自由呼喊
+> CCP closed travel inside China and allowed the world to suffer. America invents vaccines for the world. Every human being can see this contrast. [pic.twitter.com/NTSQAOIUIW](https://t.co/NTSQAOIUIW)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350497521714524160?ref_src=twsrc%5Etfw)
 
-哪怕整个世界都是假的
 
-拼尽全力
 
-去拥抱这美丽的世界
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
-也许是神的时钟
-
-忘记发条上紧
-
-任凭信仰之花
-
-无情凋落
-
-让我孤身躲藏
-
-战友啊
-
-生命中有了你
-
-从此让我知道什么值得珍惜
-
-值得去爱
-
-转眼间 我已经学会了凝望天边的彩霞
-
-从此不再惧怕黑暗
-
-愿温柔的夜色将你的白发染黑
-
-待你你回家之时 仍是少年
-
-+3
++1
