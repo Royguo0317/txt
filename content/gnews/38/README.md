@@ -1,87 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 纳瓦罗报告·第三卷（三）——是的，川普总统已胜出：案件、证据、统计收据
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/758663/)
+## 喀秋莎新闻参考- 2021年1月16日 (星期六)
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/761224/)
 
-五月花写作组 ｜ 翻译：mutanhuokaorou ｜ 校对：虹陵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/01/纳瓦罗报告第三卷3.jpg)
-### 往期链接：
+俄罗斯莫斯科喀秋莎农场 土星
 
-[纳瓦罗报告·第三卷（一）](https://gnews.org/zh-hans/753290/)
+编辑上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/48989-2.jpg)
+一、新中国联邦新闻
 
-[纳瓦罗报告·第三卷（二）](https://gnews.org/zh-hans/758616/)
+1.“路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=Rqf2HoHoECk)、[晚间](https://www.youtube.com/watch?v=uUcwxTSLQpk)）:
 
-* * *
+Ⅰ. 1月16日，习近平依然没有露脸出席任何活动。这几天川普政府每天都有针对中共的重磅政策发布，习寄希望于川普总统不会发布最为重要的决策，等待拜登上任后扭转局面。
 
-## The Michigan Battleground
+Ⅱ. 美国国务院1月14日发布要求彻查武汉病毒研究所和中共病毒来源声明后，1月15日又发布《确保对新冠病毒的来源进行透明、彻底的调查》的重磅申明。声明再次呼吁对中共病毒的来源进行透明和彻底的调查，敦促WHO解决实际问题，确保最终报告的可信度。
 
-## 密歇根战场州
+中共现已认识到病毒自然学说无法立足，企图启动病毒泄露学说。中共病毒在传染过程中出现越来越强的现象，与自然规律严重不符，这是生物武器的典型特征。美国接下来几天针对中共病毒会有重磅行动。
 
-Figure Four tabulates by category a total of 446,803 potentially illegal votes in Michigan. This is almost three times the alleged Biden victory margin of 154,818 votes.
+Ⅲ. 美国国务院在1月14日发布1000多家被中共军方控制的中共国企业，所有美国资本和个人都不允许投资这些中共国企业（[企业清单](https://www.state.gov/communist-chinese-military-companies-listed-under-e-o-13959-have-more-than-1100-subsidiaries/)）。美国已经意识到应当彻底打击中共国推广的军民融合项目。制裁令只要被颁布，即使拜登上台也必须对中共动手。
 
-图四按类别列出了密歇根州总共446,803张潜在的非法选票。这几乎是所谓的拜登154,818获胜优势票数的三倍。
+Ⅳ. 美国国家安全顾问奥布莱恩在1月15日发表重要讲话，表示将最大程度地减少从中共国进口商品和服务，中共国今天对美国构成了最大的国家安全威胁。
 
-### *Figure Four*
+Ⅴ. 《东方财富新闻网》1月16日报道，浙江吉利控股集团有限公司法人1月13日发生变更，原法人代表李书福卸任，由浙江吉利控股集团常务副总裁、首席财务官李东辉接任这一职务。次日，吉利科技集团有限公司也发生工商变更，李书福卸任公司法人，由首席执行官徐志豪接任。结合习总加速师接受手术后十多天仍然未露面，李书福卸任法人代表意味着习在党内的势力已经受到影响。
 
-### *图四*
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-17-at-1.44.00-AM.png)
-The largest amount of ballots in question in Michigan stems from inexplicable vote tabulation surges along with alleged voting machine irregularities and ballots counted despite lacking voter-registration numbers.
+Ⅵ.《人民日报》撰文攻击彭佩奥。中共已经意识到美国还将有重磅的行动，此文暗示要连同美国亲共势力攻击彭佩奥。川普政府一旦在20日前认定中共病毒为生物武器，不仅美国，北约联盟也必须参战消灭中共，无论谁担任美国总统都无法阻止全球灭共。这几天多国领导人选择辞职退位是担心中共用黑材料进行要挟，各国灭共准备正在进行中。
 
-密歇根州选票争议最多的是所说的投票机违规而引起的莫名其妙的投票激增，以及缺乏选民注册号却仍计票。
+2. 美国国务卿蓬佩奥1月15日表示，目前所有的现有证据表明，中共病毒疫情起源于中共国。他还强调，武汉病毒所内的研究员2019年秋季就染病，出现类似中共病毒疫情的病征，这与中共长期宣称研究所内无研究员感染的状况相反。蓬佩奥的讲话代表美国掌握了病毒起源的确实证据，同时向目前进入武汉的世界卫生组织病毒起源调查组传递真正展开彻查工作的要求。
 
-There were also two major questionable “Biden vote spikes” in the early hours of November 4th. At 3:50 AM EST, Michigan added 54,497 additional ballots cast for Joe Biden and just 4,718 votes cast for President Trump.1 At 6:31 AM EST, an update showed an additional 141,258 votes cast for Biden, while President Trump received just 5,968 additional ballots.
+3. 有文件显示，中共当局在内蒙古自治区强推汉语教学之后，日前又再度加码，对有关蒙古地方历史的中小学教科书进行“意识形态审查”。其中一些教材因为所谓“强调个体民族身份”而被禁止使用。
 
-还有两个主要的可疑“拜登票数激增”发生在11月4日凌晨。在美国东部时间上午3:50，密歇根州为乔·拜登增加了54,497张票，而川普总统只有4,718张票。在美国东部时间上午6:31，更新显示为拜登又新增141,258张票，而川普总统仅新增5,968张票。
+4. 港府正在建立类似大陆的网络防火墙，控制信息的自由传递。由港府所指定负责注册管理和注册所有“.hk”域名的机构 HKIRC ，新增一份“域名注册合理使用政策”，规定不得“扰乱香港政府运作”、鼓吹或煽动非法活动、侮辱或骚扰任何人或组织等。香港保安局局长李家超15日在立法会会议上也已表示，若有涉及“危害国家安全”罪行，会截取通讯及秘密监察，并强调警方亦受监督及须向国安委汇报。
 
-Additionally, it is illegal in Michigan to count absentee ballots without having corresponding voter registration numbers for corresponding precincts, according to state law. Despite this, election officials allowed over 174,000 of these ballots to be counted anyway. 20
+5. 为应对疫情防控带来的政治风险，中共各地官员普遍实施“战时状态”方案，以便体现尽职尽责，但对经济已造成不小打击。中共新华社16日发表评论，指近来一些出现疫情、甚至没有疫情的地方政府动辄宣布进入“战时状态”，是“滥用”的作法，不仅困惑群众增加不必要恐慌，且影响正常生产生活。
 
-此外，没有相应选区的选民登记号而计算缺席选票在密歇根州是非法的。尽管如此，选举官员仍然允许计入超过174,000的选票。
+6. 斯德哥尔摩国际和平研究所（SIPRI）日前发表了一份关于中共国实际国防支出的评估报告，认为中共作为全球军费开支第二的国家，在2019年应该有2400亿美元用在了国防领域。报告指出军方背景的企业的商业活动收益未被统计进去。
 
-Michigan also processed ballots of over 35,000 voters without addresses on state records, at least over 480 confirmed dead voters, and over 13,200 voters registered to vote in other states—in blatant violation of state election law. Lastly, over 27,800 ballots were requested under the name of a registered voter without their knowledge and/or consent.
+7. 中共正全面抵制澳洲煤炭。近日媒体却传出中共国向其他国家购买的煤炭，有大部分都是澳大利亚煤炭。 消息没有透露他国转手出售澳煤时，价格是否攀升。
 
-密歇根州还处理了超过35,000名在州记录中没有地址的选民的选票，至少480名经确认的过世选民，以及13200名在其他州登记投票的选民-这公然违反了州选举法。最后，27,800多张选票是在注册选民不知情和/或未经同意的情况下申请的。
+8. 柬埔寨总理洪森周六（1月16日）表示，中共将提供100万剂北京科兴病毒疫苗。柬埔寨是中共长年的盟友，接受后者数十亿美元优惠贷款与投资。
 
-## The Nevada Battleground
+9. 美国的港人组织“香港民主委员会“1月15日发声明宣布，5名年轻的香港抗争者在经历了艰苦而危险的寻求自由之旅后到达美国，寻求庇护。
 
-## 内华达战场州
+10. 大陆各地疫情目前呈爆发态势，而河北省疫情已经失控，官方发布的数据令外界质疑。1月16日下午，河北省副省长在疫情新闻发布会上称，截至1月14日，全市第二轮核酸检测全部完成，检测发现阳性病例247例。一周前，第一轮核酸检测阳性病例为354例。
 
-Figure Five tabulates by category a total of 220,008 potentially illegal votes in Nevada. This is roughly six times the alleged Biden victory margin of 33,596 votes.
+11. 1 月 12 日，中共铁路大连车务段因Flash停服，全段几乎所有的运输生产电脑均出现了故障，因铁路局现在车载系统无法显示页面，列车运行图无法查看、列车编组顺序表无法制定、调车计划无法编排。事件反映中方对美国技术的依靠已经深入的生产和生活的方方面面，脱钩会造成各方面的停摆。
 
-图五按类别列出了内华达州总共220,008张潜在的非法选票。这大概是所谓的拜登33,596获胜优势票数的六倍。
+二、世界新闻
 
-### *Figure Five*
+1. 川普总统1月15日获得了北非国家摩洛哥颁发的最高奖项，以表彰他在参与推动以色列和摩洛哥之间的关系正常化所作的努力工作。摩洛哥与以色列的关系正常化，这是以往美国政府认为不可能完成的事。这是继阿拉伯联合酋长国、巴林和苏丹之后，第四个愿与以色列结好的中东国家。白宫高级顾问贾里德‧库什纳和中东特使阿维‧贝科维茨因他们在去年12月达成的以色列与摩洛哥外交方面所做的工作，也获得了其它褒奖。
 
-### *图五*
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-17-at-1.44.54-AM.png)
-Nevada’s largest irregularities stemmed from the use of the Agilis signature-matching machines installed in Clark County to verify signatures on ballots. Using machines instead of people for signature match verification is in blatant violation of state law and calls into question the 130,000 ballots verified by these Agilis machines.
+2. 美国太空探索技术公司（SpaceX）的Starlink卫星互联网服务成功实现了190Mbps的惊人下载速度。该速度测试是近日由一位居住在蒙大拿州东北部的测试服务用户完成的。
 
-内华达州最大的违规之处是在克拉克县使用安装了Agilis签名匹配机来核实选票上的签名。使用机器代替人工进行签名匹配验证公然违反了州法律，且让人质疑这130,000张经过Agilis机器验证的选票。
-
-The Agilis machines were also alleged to have not been operated “in conformance with the manufacturer’s recommendations” on Election Day. First, the images on file used by the Agilis machine to compare to the signatures on the outside of the mail-in ballots were of lower image quality than “suggested by the manufacturer” for the machine to operate properly, and the machine was altered or adjusted by election officials to a setting “lower than the manufacturer’s recommendations,” making the machine unreliable.
-
-据称，Agilis机器在选举日未按照制造商的建议进行操作。 首先，Agilis机器用来比较邮寄选票外部签名的所属文件的图像质量低于“制造商建议”的能使机器正常工作的图像质量，并且机器被更改或被选举官员调整为“低于制造商建议”的设置，从而使机器不可靠。
-
-Nevada also registered 42,284 double voters, ascertained by reviewing the list of voters and comparing voters with the same name, address, and date of birth—a method shown in peer reviewed papers to have over 99% accuracy. That category alone exceeds the alleged Biden victory margin of 33,596 votes.
-
-内华达州还登记了42,284名双重选民，这是通过审查选民名单并比较具有相同姓名、地址和出生日期的选民来确定的-同行评审论文中显示这种方法具有99％以上的准确性。单是这一类别就超过了所谓的拜登获胜优势选票33,596票。
-
-In addition, 19,218 out-of-state voters cast ballots in Nevada. This was ascertained by lining up voter lists from all counties against publicly available USPS records on permanent change of addresses with other states and correcting for military and student voters.
-
-另外，有19,218名州外选民在内华达州进行了投票。通过将所有县的选民名单与公开的USPS记录中的在其他州永久更改的地址进行比较，并校正军事和学生选民的名单，可以确定这一点。
-
-Finally, 1,506 votes were cast in the name of deceased persons—verified by comparing mail voters with social security death records. Over 8,000 ballots were cast by persons without addresses—found by referencing voters with the Coding Accuracy Support System and finding undeliverable addresses. 4,000 non-U.S. citizens also appear to have voted—found by comparing non-citizen DMV records to the list of voters.
-
-最后，1,506张选票是以过世者的名义投的-通过比较邮寄选民和社会保障死亡记录进行核实。8,000多张由无地址的人投的票-通过参考选民编码准确性支持系统并发现无法交付的地址。4,000名非美国公民也参加了投票-通过比较非公民DMV记录和选民名单发现。
-
-原文链接：[https://navarroreport.com/#342e5f15-d44c-436a-bb58-9051a9397783](https://navarroreport.com/#342e5f15-d44c-436a-bb58-9051a9397783)
-
-* * *
-
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)
-
-更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)
-
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)
-
-+5
++1

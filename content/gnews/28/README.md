@@ -1,40 +1,89 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/01/16国务院号外：武汉病毒研究所的活动-美国政要每日推特重要信息汇总
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/759099/)
+## 【大选推特实况】1/16/2021 中共国政府释放了病毒&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/761400/)
 
-信息汇总采编：英喜庄园编辑部；Page：拱卒
-
-[!\[\]()!\[\](https://spark.adobe.com/page/euNKnPwqN8p8O/images/91cb1419-ddd3-4c0c-97cc-2b5199b61e1d.jpg?asset_id=a979fb64-6030-4d18-ab69-4261ded56d42&amp;img_etag=%22d0c187862ea537e6017eb6235279b805%22&amp;size=2560)](https://spark.adobe.com/page/euNKnPwqN8p8O/images/91cb1419-ddd3-4c0c-97cc-2b5199b61e1d.jpg?asset_id=a979fb64-6030-4d18-ab69-4261ded56d42&amp;img_etag=%22d0c187862ea537e6017eb6235279b805%22&amp;size=1024)
-
-**经授权转载自：**
-
-- 川普等政要…直译推 [twitter](https://twitter.com/zhiyitw33)
-- 川普等政要…直译推[Telegram](https://t.me/GuoSupporters)
-- 川普等政要…[直译推GTV](https://gtv.org/user/5e949e6cf9e88c0e67169221)
+【大选实况】1/16/2021 EST 12:37 pm 国务卿彭佩奥推文： 中共封闭其境内旅行，却让世界受苦。美国为世界发明疫苗。每个人都能看到这种对比。 【附图文字：中共国政府释放了病毒】
 
 
-美国务院2021年1月15日发文： 情况说明：武汉病毒研究所的活动 一年多来， #中共 #CCP 系统地阻止了对新冠病毒COVID-19大流行起源的透明和彻底的调查，取而代之地他们选择了投入大量资源进行欺骗和虚假宣传。这场病毒大流行已造成近200万人死亡…（全文）
 
-[!\[\]()!\[\](https://spark.adobe.com/page/euNKnPwqN8p8O/images/16e215c1-dc63-4c0f-b228-878dc2fc3e6f.jpg?asset_id=cd6bee80-7149-49c7-9fc6-c9b4c2dd15fb&amp;img_etag=%224c8633722e1f9ecbf649608d05448685%22&amp;size=2560)](https://spark.adobe.com/page/euNKnPwqN8p8O/images/16e215c1-dc63-4c0f-b228-878dc2fc3e6f.jpg?asset_id=cd6bee80-7149-49c7-9fc6-c9b4c2dd15fb&amp;img_etag=%224c8633722e1f9ecbf649608d05448685%22&amp;size=1024)
+> CCP closed travel inside China and allowed the world to suffer. America invents vaccines for the world. Every human being can see this contrast. [pic.twitter.com/NTSQAOIUIW](https://t.co/NTSQAOIUIW)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350497521714524160?ref_src=twsrc%5Etfw)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/euNKnPwqN8p8O/images/2190cae8-7c12-4698-9eba-e7a23246ee70.jpg?asset_id=4857a795-ee32-4f94-bcd0-b0824d9bd71f&amp;img_etag=%2275f6ec72e6e5bab9a8727c338fe5e7f5%22&amp;size=3444)](https://spark.adobe.com/page/euNKnPwqN8p8O/images/2190cae8-7c12-4698-9eba-e7a23246ee70.jpg?asset_id=4857a795-ee32-4f94-bcd0-b0824d9bd71f&amp;img_etag=%2275f6ec72e6e5bab9a8727c338fe5e7f5%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/euNKnPwqN8p8O/images/05a0307f-f730-440d-8d63-cc18daed9e13.jpg?asset_id=58a60825-d297-4f63-ad98-354dc7bfe425&amp;img_etag=%22bde5894d38d80d13d7e36dd4a98ceeb5%22&amp;size=3480)](https://spark.adobe.com/page/euNKnPwqN8p8O/images/05a0307f-f730-440d-8d63-cc18daed9e13.jpg?asset_id=58a60825-d297-4f63-ad98-354dc7bfe425&amp;img_etag=%22bde5894d38d80d13d7e36dd4a98ceeb5%22&amp;size=1024)
+来源：[https://twitter.com/SecPompeo/status/1350497521714524160](https://twitter.com/SecPompeo/status/1350497521714524160)
+盖特链接：[https://gtv.org/getter/600327a187fabe2daf3ae729](https://gtv.org/getter/600327a187fabe2daf3ae729)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/euNKnPwqN8p8O/images/11559c7a-7629-4502-a9d8-b37387b88972.jpg?asset_id=775d0176-e6bc-4bba-8287-80c3a719d1a5&amp;img_etag=%225cc08fb3fc22bca488d7624ef50b30ab%22&amp;size=3512)](https://spark.adobe.com/page/euNKnPwqN8p8O/images/11559c7a-7629-4502-a9d8-b37387b88972.jpg?asset_id=775d0176-e6bc-4bba-8287-80c3a719d1a5&amp;img_etag=%225cc08fb3fc22bca488d7624ef50b30ab%22&amp;size=1024)
+* * *
 
-🔗原文链接：[Fact Sheet: Activity at the Wuhan Institute of Virology](https://www.state.gov/fact-sheet-activity-at-the-wuhan-institute-of-virology/)
+【大选实况】1/16/2021 EST 12:37 pm 国务卿彭佩奥推文： 武汉病毒：中共掩盖了事实， 中共让知道的医生消失了。中共仍然拒绝让世界看到它所造成的后果。中共在病毒的来源上撒谎了。 【附图问题：请谷歌搜索李文亮】
 
-🔖[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-📺[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-🔊[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+> Wuhan Virus: CCP covered it up. CCP disappeared the doctors who knew. CCP still refuses to let the world in to see what it wrought. CCP lied about where the virus came from. [pic.twitter.com/jVCETwUokO](https://t.co/jVCETwUokO)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350497517356642306?ref_src=twsrc%5Etfw)
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/euNKnPwqN8p8O/images/26c5662e-8318-41c6-b91e-8e26d9344a66.jpg?asset_id=d1774b23-2853-4f07-93f7-72c641fa3181&amp;img_etag=%22c5ae039aa5bcdb15cb686a644c375cf5%22&amp;size=2560)](https://spark.adobe.com/page/euNKnPwqN8p8O/images/26c5662e-8318-41c6-b91e-8e26d9344a66.jpg?asset_id=d1774b23-2853-4f07-93f7-72c641fa3181&amp;img_etag=%22c5ae039aa5bcdb15cb686a644c375cf5%22&amp;size=1024)
+来源：[https://twitter.com/SecPompeo/status/1350497517356642306](https://twitter.com/SecPompeo/status/1350497517356642306)
+盖特链接：[https://gtv.org/getter/6003284387fabe2daf3ae76d](https://gtv.org/getter/6003284387fabe2daf3ae76d)
+
+* * *
+
+【大选实况】1/16/2021 EST 11:30AM 彭佩奥国务卿推文： 许诺给香港人民高度自治的中英联合声明是在联合国备案的条约，当中共无耻地撕毁了这份条约时，川普政府取消了香港自贸区协定，并制裁了中共以及和中共勾结的香港官员。
+
+【附图问题：没有一个正常人会说：香港现在是一个（不受中共控制的）高度自治地区】
+
+
+
+> When the CCP shamefully violated Sino-British Joint Declaration, a UN-registered treaty that promised a high degree of autonomy to Hong Kong people, the Trump Administration revoked Hong Kong's special trade status, sanctioned complicit CCP & HKSAR officials. [#StandWithHongKong](https://twitter.com/hashtag/StandWithHongKong?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/8vWFB6f0dL](https://t.co/8vWFB6f0dL)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350480431313895425?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1350480431313895425](https://twitter.com/SecPompeo/status/1350480431313895425)
+盖特链接：[https://gtv.org/getter/6003190487fabe2daf3ae044](https://gtv.org/getter/6003190487fabe2daf3ae044)
+
+* * *
+
+【大选实况】1/16/2021 EST 12:01 pm 国务卿彭佩奥推文： 我们的立宪者明白，只有当个人能够行使宗教自由时，国家才能繁荣昌盛。政府应该保护这一权利，而不是宣传宗教意识形态。值此全国宗教自由日，我们重申对保护这一普遍权利的承诺。 【附图：全国宗教自由日】
+
+
+
+> Our framers understood that a nation flourishes when individuals can exercise their religious freedom. Governments should protect this right, not propagate a religious ideology. On National Religious Freedom Day, we reaffirm our commitment to protect this universal right. [pic.twitter.com/UTOQxJ5VqK](https://t.co/UTOQxJ5VqK)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350438908354392066?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1350438908354392066?s=20](https://twitter.com/SecPompeo/status/1350438908354392066?s=20)
+盖特链接：[https://gtv.org/getter/6003203287fabe2daf3ae3b1](https://gtv.org/getter/6003203287fabe2daf3ae3b1)
+
+* * *
+
+【大选实况】1/16/2021 EST 12:00 pm 国务卿彭佩奥推文： 不对等贸易？对中共国产品征收关税。
+
+
+
+> No reciprocal trade? Tariffs on Chinese products. [pic.twitter.com/Mnl8Vd0R6z](https://t.co/Mnl8Vd0R6z)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350487982038347776?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1350487982038347776](https://twitter.com/SecPompeo/status/1350487982038347776)
+盖特链接：[https://gtv.org/getter/6003205387fabe2daf3ae3bd](https://gtv.org/getter/6003205387fabe2daf3ae3bd)
+
+* * *
+
+【大选实况】1/16/2021 EST 12:22 pm 国务卿彭佩奥推文： 武汉病毒和实验室。我们仍然不知道到底发生了什么 @WHO需要进入。
+
+
+
+> Wuhan virus and the lab: We still don’t know what happened. [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) needs to get in. [https://t.co/oT4zKx9JuO](https://t.co/oT4zKx9JuO)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350493767879581702?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1350493767879581702](https://twitter.com/SecPompeo/status/1350493767879581702)
+盖特链接：[https://gtv.org/getter/6003243d87fabe2daf3ae5a6](https://gtv.org/getter/6003243d87fabe2daf3ae5a6)
+
+* * *
+
+**By： 【秘密翻译组 G-Translators】**
 
 +1

@@ -1,43 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 墻内允许对个人不良贷款批量转让意味着什么
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/759479/)
+## 1/17/2021 财经快讯: 中欧协议达成前景不明朗; 2021春运下降近6成
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/762046/)
 
-撰稿： 三只松鼠
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture3-11.png)图片来源：[https://euobserver.com/economic/146553](https://euobserver.com/economic/146553)
+1.受美国大银行业绩报告拖累，纽约股市在本周五开盘大幅下滑。富国银行下跌7.8%，是拖累标普500的元凶之一。于此同时由于监管部门加大了对埃克森美孚的监管力度，其股价在周五下滑4.8%，而其他能源股亦受到重挫。
+[https://www.reuters.com/article/us-usa-stocks/wall-street-closes-lower-as-banks-energy-shares-tumble-idUSKBN29K1BY](https://www.reuters.com/article/us-usa-stocks/wall-street-closes-lower-as-banks-energy-shares-tumble-idUSKBN29K1BY)
 
-审稿：光耀华夏 编辑：MG1
-![]()![](https://gnews.org/wp-content/uploads/2021/01/171-2.jpg)图片来自网络截图
-近日，银保监会正式下发《关于开展不良贷款转让试点工作的通知》（下称“《通知》”），批复同意银行业信贷资产登记流转中心试点开展单户对公和个人不良贷款批量转让。
+2.Market Insider在本周五提到了5个投资者需要注意的关键词，分别为大银行，中央银行，债券收益率，比特币和拜登。尽管美股在2021年的第二周还是创下了新高，但疲软的劳动力市场数据和川普弹劾案仍然是市场的不稳定因素。同时拜登的所谓1.9万亿经济刺激计划也引发了公众对通胀的担忧。
+[https://markets.businessinsider.com/currencies/news/markets-outlook-biden-inauguration-bitcoin-bonds-and-banks-in-focus-2021-1-1029974881](https://markets.businessinsider.com/currencies/news/markets-outlook-biden-inauguration-bitcoin-bonds-and-banks-in-focus-2021-1-1029974881)
 
-《通知》明确了个人不良贷款转让的试点范围，主要是已纳入不良分类的个人消费贷款、信用卡透支、个人经营性信用贷款。
+3.据QZ网昨日分析指出，尽管去年底中欧签署了一系列贸易协议，中欧的合作前景仍然非常不明朗。许多分析人士担心，欧盟可能不太愿意在劳工和人权问题上与中共对峙；并引用去年的美中第一阶段协议为例，认为此次协议或也最终不了了之。
+[https://www.msn.com/en-us/news/world/the-eu-china-investment-deal-broken-down/ar-BB1cMo1O?ocid=msedgdhp](https://www.msn.com/en-us/news/world/the-eu-china-investment-deal-broken-down/ar-BB1cMo1O?ocid=msedgdhp)
 
-近年来，银行个人贷款业务规模快速增长，根据2019年年报数据，6家国有大行个人贷款合计约27.9万亿元，在总贷款余额中占比超四成。除工商银行未披露个人不良贷款明细结构外，其余5家国有大行个人不良贷款余额超1300亿元，其中，信用卡应收款余额达380亿元，占比接近30%。
+4.据路透社周日报告，意大利预测今年债务或将达到二战后新高，至GDP 的158.5%。此次预估反映了本周宣布的320亿欧元320亿欧元（合390亿美元）的一揽子刺激计划的影响，这将使2021年的预算赤字占国民生产总值的8.8％，高于此前目标的7％。这笔额外的支出将用于帮助国家卫生服务，并为推迟缴税期限提供保障。
+[https://www.reuters.com/article/italy-budget-debt/italy-public-debt-to-hit-new-post-war-record-in-2021-at-158-5-of-gdp-source-idUSL8N2JR0EQ](https://www.reuters.com/article/italy-budget-debt/italy-public-debt-to-hit-new-post-war-record-in-2021-at-158-5-of-gdp-source-idUSL8N2JR0EQ)
 
-在去年受疫情影响新增的不良贷款中，个人不良贷款的增加备受关注。以信用卡不良贷款为例，根据央行发布的《2020年第三季度支付体系运行总体情况》显示，截至三季度末，银行卡授信总额为18.59万亿元，银行卡应偿信贷余额为7.76万亿元，信用卡逾期半年未偿信贷总额906.63亿元，环比增长6.13%。信用卡的高额逾期率不仅影响了商业银行的资产质量，也严重影响了信用卡业务的良性发展。
+5.2021年铁路春运节前车票的预售较往年同期下降近6成，预计全国铁路春运客流将下调至2.96亿人次。为减少人员流动，已有北京、上海、河南、山西等29个省区市倡议“就地过年”，建议“非必要不返乡”、“非必要不出省”。“就地过年”和部分地区疫情将影响超一亿人通过铁路出行，降幅约27%。
+[https://www.163.com/dy/article/G0FQUUAF0534KXLK.html?clickfrom=w\_money](https://www.163.com/dy/article/G0FQUUAF0534KXLK.html?clickfrom=w_money)
 
-此前个人贷款不良资产不得进行批量转让，只能一个人一个人地转让。这一政策限制使得银行面对个人不良贷款时只能依靠自身能力去化解风险。近些年来随着商业银行信贷结构调整，个人信贷业务呈现快速增长的态势同时，互联网银行、消费金融公司的不良贷款余额和比率亦有明显上升。随着个人贷款尤其是金融消费贷款大幅度增加，加之长期以来严禁批量转让个人贷款，个人不良贷款余额大幅上升在所难免。
+秘翻组·金融法律组
 
-通知中剔除的住房按揭贷一向是银行个人贷款的大头。但由于住房按揭贷款不良率较低，信用卡等个人贷款不良率相对较高，因此，银行的住房按揭贷款不良、信用卡不良与其他个人贷款不良基本呈现“三等分”的结构。
-
-据统计，2020年上半年上市银行中多数信用卡不良较去年末飆升，其中工行、建行、农行、中行、交行、邮储银行信用卡不良率分别达到2.65%、1.17%、1.81%、2.57%、2.90%、1.99%，较上年分别攀升0.44%、0.14%、0.24%、0.35%、0.52%、0.25%。上市股份银行中浦发银行最高达3.31%，民生银行次之，为3.23%，中信银行、华夏银行、平安银行、兴业银行分别为2.5%、2.44%、2.35%、2.01%。这只是表面上的数据，信用卡风险一般会滞后6-9个月，部分银行为了掩盖不良飞速上升的事实，会在发卡端采用维持增长速度的做法暂时掩盖。
-
-后续个人不良贷款是否增加还要看两方面因素：个人居民收入变化和就业形势变化，但说到底是受社会整体经济形势的影响。目前疫情持续在世界各地蔓延，世界经济哀鸿一片。CCP即使倒台，全球经济萧条势必还将持续几年。所以预计个人贷款风险仍将持续较长时间，个人不良贷款的形成还将持续攀升。
-
-另外，之前监管层一直没有允许个人不良贷款批量转让，正是担心恶意催收形成恶劣的社会问题。实际上，在CCP的这种体制下，以黑治国一直存在，之前转让不良资产包给涉黑机构的情况常有发生，恶意催收事件也一直存在。个人不良贷款加速增加，只会增加暴力催收的现象，社会动乱的因素更会激剧增加，某种程度也加快了CCP倒台的步伐。
-
-（本文纯属个人观点）
-
-参考来源：
-
-1. 《上半年信用卡不良飙升！银行凭什么判断最危险时候已过去？》
-
-
-[https://finance.sina.cn/2020-09-04/detail-iivhvpwy4764564.d.html?from=wap](https://finance.sina.cn/2020-09-04/detail-iivhvpwy4764564.d.html?from=wap)
-
-- 《央行：第三季度全国支付体系运行总体平稳》
-
-
-[https://finance.sina.cn/2020-11-27/detail-iiznctke3516592.d.html?from=wap](https://finance.sina.cn/2020-11-27/detail-iiznctke3516592.d.html?from=wap)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1-澳喜Logo.jpeg)
-+3
+0

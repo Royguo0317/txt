@@ -1,58 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 实锤！白宫关于武汉病毒学研究所定义解读
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/759463/)
+## 【大选推特实况】1/16/2021 议院多数党领袖麦康奈尔是深层政府的无耻傀儡&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/761993/)
 
-撰稿：举头三尺外星人
+【大选实况】1/16/2021 美东时间9:12PM 福克斯主持人Lou Dobbs推文： 参议院多数党领袖麦康奈尔（McConnell）是全球企业精英和深层政府的无耻傀儡，他对总统的小题大做、报复行径是对国家的伤害，制造了更多的分裂。
 
-审稿：光耀华夏 编辑：MG1
-![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图-2021-01-17-115735-2.png)图片来自网络截图
-2021年1月15日真是个好日子，白宫放出了关于武汉病毒学研究所的最新定义。通过这个最新定义，我们可以清楚地看到， CCP病毒到底是来自自然还是不是自然的争论，已经从民间的讨论上升到了美国官方的高度。官方已经开始公开宣布对于CCP来自自然的否定，这意味着CCP的民间舆论战的破灭，同时也完全证明了我们爆料革命，路德社和闫丽梦博士从2020年1月19日以来的对CCP病毒的揭露是完全真实可靠的，更证明了美国政府已经认可了爆料革命闫博士的所提交的报告，并通过三点来阐述对于CCP病毒的怀疑。下面笔者通过自己的认识来对白宫定义重要的部分试着解读一下。
 
-根据文件开头：
 
-**“****一年多来，中国共产党（****CCP****）有系统地阻止了对****COVID-19****大流行病起源的透明，透彻的调查，而是选择投入大量资源进行欺骗和虚假宣传。已有近****200****万人死亡。他们的家人应该知道真相。只有通过透明性，我们才能了解造成这一大流行的原因以及如何预防下一次大流行。****”**
+> McConnell is a shameless stooge of the global corporate elites and the deep state, and his petty, vindicative act against the President is a disservice to the nation, creates more division. [https://t.co/pVEyLHvR0s](https://t.co/pVEyLHvR0s)
+> — Lou Dobbs (@LouDobbs) [January 17, 2021](https://twitter.com/LouDobbs/status/1350627143617830917?ref_src=twsrc%5Etfw)
 
-文件开头明显表明，美国已经认识到CCP以国家的行为阻止新冠的调查，并通过媒体大肆进行虚假的宣传，造成了全世界200万人的死亡，暗示CCP有不可推卸的责任，因为是CCP掩盖了真相。
 
-**“****中共对保密和控制的致命痴迷以牺牲中国乃至全世界的公共卫生为代价。此情况说明书中以前未公开的信息，再加上开源报告，重点介绍了有关****COVID-19****起源的三个要素，值得进一步审查：****”**
+来源：[https://twitter.com/LouDobbs/status/1350627143617830917](https://twitter.com/LouDobbs/status/1350627143617830917)
+盖特链接：[https://gtv.org/getter/6003bb0f87fabe2daf3b27ec](https://gtv.org/getter/6003bb0f87fabe2daf3b27ec)
 
-这里重点是“开源报告”，大家都知道，这个“开源报告”绝对包括了闫博士的先后两次公开的关于CCP病毒来源的报告和路德社“博士军团”的报告。根据郭先生和路德社的百分百可靠的情报，闫博士之前就在美国国会内部做过多次非公开报告，并且召开了秘密听证会。再者闫博士的公开报告是对所有人公开的，开源的，所以叫开源。那么这里提到的根据“开源报告”“值得进一步审查”，那就表明了美国政府高层采纳了闫博士的意见和建议。
+* * *
 
-**
-“****武汉病毒学研究所具有进行****“****功能获得****”****研究以工程化嵌合病毒的已公开记录。但是，武汉病毒学研究所在研究与****COVID-19****病毒最相似的病毒（包括****“ RaTG13”****）的研究记录方面并没有透明或一致，****”**
+【大选实时报】1/16/2021 美东时间6:35PM Newsmax推文: 主持人”Diamond“对”Silk”说：”民主党可以鼓励暴力，威胁总统，煽动暴力，为骚乱者和抢劫者筹集保释金，但是人们却对此缄口不言。”
 
-**“****他们必须全面了解武汉病毒学研究所为何更改然后删除了其与****RaTG13****和其他病毒有关的在线记录。****”**
 
-这里美国提到中共进行“功能获得”性的实验，不正是闫博士一直在媒体上公开揭露的信息吗？闫博士之前一直在包括FOX, WAR ROOM, 等媒体持续的揭露中共一直进行病毒的嵌合，当然这肯定经过美国高层认可，不然闫博士根本没有办法到这样的大媒体做节目。
 
-中共最初放出一个虚构的病毒**“RaTG13”**来误导大家,也是闫博士通过路德社最先揭露这个病毒是虚构这一事实。从美国官方提出这个病毒“**研究记录方面并没有透明或一致**”说明，美国官方已经认识到这个**”RaTG13”**是值得怀疑的，所以美国官方才提出要**“****全面了解****” “****为何更改然后删除了其与****RaTG13****和其他病毒有关的在线记录****”**，这点正是路德社首先揭露出来的，提交的病毒在世界科学界第一权威《自然》杂志上被删除这一事实。从这条完全可以看出，这是全面采纳了爆料革命闫博士，路德社所揭露的线索和所指向的方向。
+> .[@DiamondandSilk](https://twitter.com/DiamondandSilk?ref_src=twsrc%5Etfw) say "Democrats can encourage violence, threaten a President, incite the violence and raise bail money for the rioters and the looters and nobody says anything." [https://t.co/VlT7z8drtO](https://t.co/VlT7z8drtO) [pic.twitter.com/A8dcuaTNLn](https://t.co/A8dcuaTNLn)
+> — Newsmax (@newsmax) [January 16, 2021](https://twitter.com/newsmax/status/1350587386275778560?ref_src=twsrc%5Etfw)
 
-同时我们也要看到，奥巴马当政时期，美国国家卫生研究院从2015年起，向非盈利组织生态健康联盟（EcoHealth Alliance）发放了370万美元科研经费，用于研究蝙蝠冠状病毒。生态健康联盟曾与武汉病毒研究所合作，美国政府资助的370万美元中的一部分流向该研究所。所以美国至少在国家层面里面有相关记录，也能证实中共政权一直在研究蝙蝠冠状病毒。大家想想，没事你研究什么蝙蝠病毒，从这点也能推出中共利用蝙蝠病毒别有目的。
 
-**
-“3. ****武汉病毒学研究所的秘密军事活动：**
+来源：[https://twitter.com/newsmax/status/1350587386275778560](https://twitter.com/newsmax/status/1350587386275778560)
+盖特链接：[https://gtv.org/getter/6003913b87fabe2daf3b147c](https://gtv.org/getter/6003913b87fabe2daf3b147c)
 
-**保密和****非公开****是北京的标准做法。多年来，美国一直公开关注中国过去的生物武器工作，尽管北京根据《生物武器公约》承担了明确的义务，但北京既没有记录也没有明确表明要消除这种工作。****”**
+* * *
 
-第三点，**“****多年来，美国一直公开关注中国过去的生物武器工作****”****，**这条可是重磅啊，这点明确指出，美国官方正式确认了中共政权在秘密开发生物武器，那这个生物武器是不是CCP病毒呢？虽然美国没有明确指出CCP病毒就是生物武器，但是把开发生物武器拿到CCP病毒上来谈，证明美国至少是高度怀疑CCP病毒就是生物武器，而非来自自然，也非实验室里不小心泄露，那就是暗示是中共政权蓄意人为制造的。这点又是对闫博士报告的高度肯定。
+【大选实时报】1/16/2021 美东时间 7:53PM Newsmax推文： Newsmax主持人本尼·约翰逊(Benny Johnson)：“作为一名保守派，你是一场高尚而光荣的运动的一部分，没有什么可羞愧的。”
 
-**
-“尽管武汉病毒学研究所表现为平民机构，但美国已确定武汉病毒学研究所与中国军方在出版物和秘密项目上进行了合作。”**
 
-其实这也不是秘密，这是公开由《军事医学科学出版社》出版的，这个出版社就是国有的，标题《非典非自然起源和人制人新种病毒基因武器》，这不是阴谋，这可是阳谋啊，我的天，真是邪恶！
 
-看看里面的编委会成员，全是什么军医啊，军队的干部啊，这完完全全就看可以看出这是由中共政权推动，是以中共绑架下的国家意志，也就是中共的意志来推行的长期计划。这还不是证据吗？
+> .[@bennyjohnson](https://twitter.com/bennyjohnson?ref_src=twsrc%5Etfw) says "as a Conservative, you are part of a noble and honorable movement, you have nothing to be ashamed of." [https://t.co/VlT7z8drtO](https://t.co/VlT7z8drtO) [pic.twitter.com/rT60T4mbMH](https://t.co/rT60T4mbMH)
+> — Newsmax (@newsmax) [January 17, 2021](https://twitter.com/newsmax/status/1350607177833193473?ref_src=twsrc%5Etfw)
 
-**“****今天的启示只是揭开了****COVID-19****起源于中国的面纱。要对****COVID-19****的来源进行任何可靠的调查，都需要完整，透明地访问武汉的研究实验室，包括其设施，样品，人员和记录。**
 
-**随着世界继续与这种流行病作斗争****–****以及经过一年多的延误后，世卫组织调查人员开始工作****–****病毒的来源仍然不确定。美国将继续竭尽全力支持可信和彻底的调查，包括继续要求中国当局保持透明度。****“**
+来源：[https://twitter.com/newsmax/status/1350607177833193473](https://twitter.com/newsmax/status/1350607177833193473)
+盖特链接：[https://gtv.org/getter/60039e4887fabe2daf3b1a33](https://gtv.org/getter/60039e4887fabe2daf3b1a33)
 
-这段话最重要的是最后面，“**经过一年多的延误后，世卫组织调查人员开始工作****–****病毒的来源仍然不确定**“，表明美国官方正面认证了病毒来源不确定，否认了自然学说，既然不是自然学说，那肯定就是指向人造生物武器的学说。纵观全篇文章我们到处都可以看到爆料革命闫博士，路德社所揭示的方向，这预示着美国官方已经正式承认爆料革命所提供的情报，同时也预示着CCP病毒舆论战的彻底失败，转而从”自然传播“转向了”人造生物武器“这一事实。这一切说明CCP的好日子到头了，世界对它的清算马上就要来到！
+* * *
 
-（本文只代表作者观点）
+【大选实时报】1/16/2021 美东时间10:30 PM zerohedge 推文： 拜登将 “立即 “向国会提交为1100万非法移民提供公民身份的法案。
 
-白宫定义中文翻译完整版引用：[https://gnews.org/zh-hans/756222/](https://gnews.org/zh-hans/756222/)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1-澳喜Logo.jpeg)
-+2
+
+
+> Biden To 'Immediately' Send Congress Bill That Would Offer Citizenship To 11 Million Illegals [https://t.co/50aEROAckQ](https://t.co/50aEROAckQ)
+> — zerohedge (@zerohedge) [January 17, 2021](https://twitter.com/zerohedge/status/1350646655838806019?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/zerohedge/status/1350646655838806019](https://twitter.com/zerohedge/status/1350646655838806019)
+盖特链接：[https://gtv.org/getter/6003b31a87fabe2daf3b244b](https://gtv.org/getter/6003b31a87fabe2daf3b244b)
+
+**By： 【秘密翻译组 G-Translators】**
+
+0

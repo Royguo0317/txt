@@ -1,31 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国极左活动者沙利文被控暴乱 曾叫嚣火烧国会山
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/758580/)
+## 【大选推特实况】1/16/2021 川普政府结束了数十年来对中共的绥靖和被误导的合作政策&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/761077/)
 
-*加拿大多伦多枫叶农场**Revelation119**熙攘*
-
-*校对、发稿* *文锦*
-![]()![](https://gnews.org/wp-content/uploads/2021/01/img-5.jpg)图片来源: Upworthy
-据《国家脉搏》记者娜塔莉·温特斯（NATALIE WINTERS）1月14日报道，约翰·沙利文（John Sullivan）是一个左翼活动组织的创始人，经常挑起对公众特别是保守派人士的暴力活动。近日，沙利文被控违法闯入国会山。根据华盛顿哥伦比亚特区地区法庭起诉沙利文的宣誓书所述，尽管沙利文坚称他去国会山只是为了给当日的游行活动录影；但是与之所述相抵触的是，他被人听到叫嚣着要火烧国会山。
-
-沙利文在2020年夏天乔治·弗洛伊德（George Floyd）死后创建了极左黑命贵组织“叛乱美国”。该组织号称旨在反法西斯，抗议警察暴力执法。对于为何在1月6日他会出现在国会山，沙利文坚持他只是为了录影的说法。
-
-沙利文对福克斯新闻说，那天他知道国会山将要发生什么，所以他会在游行人群的最前面录影以展示正在发生的事情，并且与人群交流。他说，他并不同意川普总统及其支持者所做的事情。
-
-不管沙利文如何狡辩，这个18页的法庭宣誓书明确指出，沙利文在当天的抗议活动中煽动暴力，叫嚣火烧国会山。该宣誓书显示，一个关于1月6日国会山事件的视频记载，沙利文在和其他人互动过程中用脏话叫嚣“我们要把国会山烧掉”，“这是属于我们的大楼”，“我们要占领这儿”。
-
-**评：**
-
-1月9日的GNews文章《[国会大厦挺川者被枪杀时 为何黑命贵创始人恰好录像？](https://gnews.org/zh-hans/735941/)》更多地描述了该法庭案件的起因或者国会山事件疑点。到目前为止也算真相大白。这非常明确的表示，1月6日国会山“暴力”事件是极左翼活动人士为川普总统及其支持者设下的陷阱。我们看到国会山事件之后，主流媒体和来自民主党和共和党的反川政客以这个政治构陷为由发起了对川普总统及其支持者全方位攻击。最明显的是，推特、油管等社交平台全面封杀川普总统账号，以及苹果、谷歌和亚马逊科技巨头全面封杀川普总统及其支持者还可以发声的社交平台Parler。可以看到，站在这些主流媒体、科技巨头和反川政客背后的邪恶实力是多么的阴险，或者说危险。
-
-爆料革命参与者与明白事实真相的挺川人士，对这些技俩嗤之以鼻。正如所有人所见，川普总统和爆料革命所代表的正义力量手中掌握的武器正在像滚天雷一样砸向邪恶势力，砸向中国共产党。决战之日，即将到来。我们坚信，爆料革命必胜，川普总统必赢。
-
-*[原文链接](https://thenationalpulse.com/breaking/capitol-riot-affidavit/)*
-
-*[法庭宣誓书原文](https://www.scribd.com/document/490763513/Sullivan-Affidavit)*
+【大选实况】1/16/2021 EST 8:00AM 彭佩奥国务卿推文 美国优先！
 
 
 
-0
+> [pic.twitter.com/rk3ubDadQZ](https://t.co/rk3ubDadQZ)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350427613282578432?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1350427613282578432?s=20](https://twitter.com/SecPompeo/status/1350427613282578432?s=20)
+盖特链接：[https://gtv.org/getter/6003016f87fabe2daf3ad29b](https://gtv.org/getter/6003016f87fabe2daf3ad29b)
+
+* * *
+
+【大选实况】1/16/2021 EST 8:45AM 彭佩奥国务卿推文 我们的体系设计者非常了解只有个体有信仰自由的时候国家才能昌盛。政府应该保护信仰自由，而不是靠大外宣制造宗教理念。在国家宗教自由日，我们重申我们的承诺保护这一普世权利。
+
+
+
+> Our framers understood that a nation flourishes when individuals can exercise their religious freedom. Governments should protect this right, not propagate a religious ideology. On National Religious Freedom Day, we reaffirm our commitment to protect this universal right. [pic.twitter.com/UTOQxJ5VqK](https://t.co/UTOQxJ5VqK)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350438908354392066?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1350438908354392066?s=20](https://twitter.com/SecPompeo/status/1350438908354392066?s=20)
+盖特链接：[https://gtv.org/getter/600302c187fabe2daf3ad350](https://gtv.org/getter/600302c187fabe2daf3ad350)
+
+* * *
+
+【大选实况】1/16/2021 EST 9:00AM 彭佩奥国务卿推文 川普政府结束了数十年来对中国共产党的绥靖和被误导的合作政策。我们不会再忽视美国和中共政治和理念上的不同，不会再忽视自由和暴政的差距！
+
+
+
+> The Trump Administration ended decades of appeasement and misguided engagement policy toward the Chinese Communist Party. We can no longer ignore the political and ideological differences between the U.S. and the People's Republic of China, between freedom and tyranny. [pic.twitter.com/zrR7hRGfPp](https://t.co/zrR7hRGfPp)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350442682934456325?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1350442682934456325?s=20](https://twitter.com/SecPompeo/status/1350442682934456325?s=20)
+盖特链接：[https://gtv.org/getter/6003030887fabe2daf3ad376](https://gtv.org/getter/6003030887fabe2daf3ad376)
+
+* * *
+
+【大选实况】1/16/2021 EST 9:30AM 彭佩奥国务卿推文 中国人民不同于中国共产党。我们支持中国人民摆脱中共威权统治的自由精神。这一点我在尼克松图书馆讲话中说得很明确。
+
+
+
+> The Chinese Communist Party is not the same as the Chinese people. We support the aspirations of the Chinese people to live free of the CCP's authoritarian rule. I made this clear in my Nixon Library speech. [https://t.co/FPZBGMREye](https://t.co/FPZBGMREye) [pic.twitter.com/uF5QViEbLq](https://t.co/uF5QViEbLq)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350450233201860608?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1350450233201860608?s=20](https://twitter.com/SecPompeo/status/1350450233201860608?s=20)
+盖特链接：[https://gtv.org/getter/6003037087fabe2daf3ad3af](https://gtv.org/getter/6003037087fabe2daf3ad3af)
+
+* * *
+
+【大选实况】1/16/2021 EST 10:00AM 彭佩奥国务卿推文 这个账户几天后会封档-一定要通过这个账户追随我@mikepompeo
+
+
+
+> This account will be archived in a few days – be sure to follow me [@mikepompeo](https://twitter.com/mikepompeo?ref_src=twsrc%5Etfw).
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350457847973294085?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1350457847973294085?s=20](https://twitter.com/SecPompeo/status/1350457847973294085?s=20)
+盖特链接：[https://gtv.org/getter/600303ab87fabe2daf3ad3db](https://gtv.org/getter/600303ab87fabe2daf3ad3db)
+
+* * *
+
+【大选实况】1/16/2021 EST 10:30AM 彭佩奥国务卿推文 中共撒谎，并且开空头支票，我们必须识别这种模式并且立法应对这种恶劣行为。绥靖和为了对话而对话是无效的。 （图片人物：奥巴马与习近平）
+
+
+
+> The CCP lies, and makes empty promises. We have to recognize this pattern, and enact consequences if we want to change bad behavior. Appeasement and "dialogue" for dialogue's sake won't work. [pic.twitter.com/8S1txnEZqc](https://t.co/8S1txnEZqc)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350465332733947909?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1350465332733947909?s=20](https://twitter.com/SecPompeo/status/1350465332733947909?s=20)
+盖特链接：[https://gtv.org/getter/600309c787fabe2daf3ad814](https://gtv.org/getter/600309c787fabe2daf3ad814)
+
+**By： 【秘密翻译组 G-Translators】**
+
++2

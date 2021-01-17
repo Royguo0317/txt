@@ -1,63 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班农战斗室WARROOM精选 649期 川普总统发话表示大科技公司犯了一个可怕的错误 科尔特斯谈科技寡头已对美国造成重大威胁
-` 新闻译制组` [轉載自GNews](https://gnews.org/zh-hans/757494/)
+## 白宫报告：川普政府的政绩——截至2021年1月（二）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/761213/)
 
-供稿：班农战斗室译制组
+五月花写作组 ｜ 翻译：Rosy Cloud ｜ 校对：紫丁香 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告2.jpg)
+### **Part 2 – Tax Relief for the Middle Class**
 
-（班农）
+### **第二部分：中产阶级税收减免**
 
-好，杰森，我们获得了有关总统前往海军陆战队一号的更多信息。
+* * *
 
-（杰森·米勒）
+**Passed $3.2 trillion in historic tax relief and reformed the tax code.**
 
-是的，绝对的，他出来以大科技企业做开头，并说：我已经等了很长时间，人们没有对此采取行动。但我认为大科技企业犯了一个可怕的错误，对我们的国家非常非常不利，而且它正在引导其他人做同样的事情，这会导致很多问题，引起很多愤怒。这是个重大错误，他们不应该这样做。接着他说，他们这样做总是有反作用的。因此当我们谈论总统接下来的动作，无论是成立他自己的平台，我偶然发现Gab的CEO晚点也会上节目。无论他最终的行动是什么，总统心里都很清楚，这是一件可怕的事情。始终必须避免暴力，我们拥有巨大的支持，这是前所未有的支持，始终必须避免暴力。川普总统发出的明确信息，为那些过去五年一直住在山洞里的朋友们更新一下信息。
+**通过了3.2万亿美元的历史性税收减免，并修改了税法**
 
-（班农）
+- Signed the Tax Cuts and Jobs Act – the largest tax reform package in history.
+- 签署了历史上最大规模的税收改革方案-《减税与就业法案》。
+- More than 6 million American workers received wage increases, bonuses, and increased benefits thanks to the tax cuts.
+- 得益于减税，超过600万美国工人获得了工资增长，奖金以及福利的增加。
+- A typical family of four earning $75,000 received an income tax cut of more than $2,000 – slashing their tax bill in half.
+- 一个典型的年收入为75,000美元的四口之家，获得了超过2000美元的收入税减免，使得税务支出大幅缩减至原来的一半。
+- Doubled the standard deduction – making the first $24,000 earned by a married couple completely tax-free.
+- 标准扣除额翻倍（提高了缴税门槛）-已婚合并申报收入的前24,000美元完全免税。
+- Doubled the child tax credit.
+- 加倍了儿童税收优惠。
+- Virtually eliminated the unfair Estate Tax, or Death Tax.
+- 实质上废除了不公平的遗产税。（注：大幅增加遗产税起征额度，个人1098万美元以下无须缴纳联邦遗产税）
+- Cut the business tax rate from 35 percent – the highest in the developed world – all the way down to 21 percent.
+- 将营业税率从发达国家中最高的35%降至 21%。
+- Small businesses can now deduct 20 percent of their business income.
+- 小型企业现在可以扣除营业收入的20%.
+- Businesses can now deduct 100 percent of the cost of their capital investments in the year the investment is made.
+- 企业的投资成本，现在在投资当年即可全额抵扣。
+- Since the passage of tax cuts, the share of total wealth held by the bottom half of households has increased, while the share held by the top 1 percent has decreased.
+- 自减税政策以来，占总人口50%的底层家庭所持有的总财富的份额增加了，而1%的上层所持有的份额则减少了。
+- Over 400 companies have announced bonuses, wage increases, new hires, or new investments in the United States.
+- 超过400家公司宣布在美国发放奖金，加薪 ，增员以及增加新投资。
+- Over $1.5 trillion was repatriated into the United States from overseas.
+- 超过1.5万亿美元从海外流回美国。
+- Lower investment cost and higher capital returns led to faster growth in the middle class, real wages, and international competitiveness.
+- 较低的投资成本和较高的资本回报使得中产阶级、实际工资、以及国际竞争力实现快速增长。
 
-在我们连线科尔特斯进行有关大科技企业讨论之前，说说后面即将发生的一些集会的事情。
 
-（拉希姆）
+**Jobs and investments are pouring into Opportunity Zones.**
 
-是的，这就是我要说的，这很非常极其重要的。因为事实上非常明显的，有人在散布虚假信息，关于1月20日在全国各州首府的全国性集会，它们不是官方认可的活动，不是官方认可的集会，不是官方的川普活动。我实际上在这里看到的是，无论称其为深层政府还是煽动者，或甚至是政治左翼，它们是伪造的活动，有一些还让大家带上武器参加活动。他们在做假活动，不是真的，不要去那些活动，不要理会它们，而且如果大家看到其中任何一个。首先，我想各位向我们报告，与我联系，在国家脉动网站的顶部有一个发送提示框，我会把其中的一些假活动记下来。第二 我想各位向当局报告，说这不是官方认可的活动。
+**工作和投资涌入（享有税收优惠的）“机会区”**
 
-（班农）
+- Created nearly 9,000 Opportunity Zones where capital gains on long-term investments are taxed at zero.
+- 创建了近9000个“机会区”，在这些地区，长期投资的资本收益实行零税率。
+- Opportunity Zone designations have increased property values within them by 1.1 percent, creating an estimated $11 billion in wealth for the nearly half of Opportunity Zone residents who own their own home.
+- 认定的“机会区”内的房产增值1.1%, 为近半数的拥有住房的“机会区”居民创造了约110亿美元的财富
+- Opportunity Zones have attracted $75 billion in funds and driven $52 billion of new investment in communities, creating at least 500,000 new jobs.
+- “机会区”为经济困难社区吸引了750亿美元的资金以及520亿美元新投资，创造了至少50万个新的工作机会。
+- Approximately 1 million Americans will be lifted from poverty as a result of these new investments.
+- 得益于这些新的投资，将有大约100万美国人摆脱贫困。
+- Private equity investments into businesses in Opportunity Zones were nearly 30 percent higher than investments into businesses in similar areas that were not designated Opportunity Zones.
+- 在企业获得私募股权投资方面，“机会区”比类似地区的非“机会区”高出近30%。
 
-开始列一个清单吧，好的，我想连线科尔特斯，总统开始要收拾大科技企业了，你已经看到了本周由全国性集会发动的政变，确实对局势产生了影响，你怎么看 史蒂夫·科尔特斯先生？
 
-（史蒂夫·科尔特斯）
+原文来源：https://www.whitehouse.gov/trump-administration-accomplishments/
 
-哦，绝对的，不幸的是，有一个科技暴政正在我国发展，我认为数字铁幕降临美国是不夸张的。这是对美国生活方式，对我们的宪法，对自由表达本身的生存威胁。我相信，很长一段时间以来，这些高科技公司都是垄断企业或至少是寡头垄断企业。由于它们是公用事业，因此需要对其进行监管，必须对其进行分解和/或监管。对于川普总统而言这一任期已经完成，我相信这是没办的事情之一，但一个任期之内就办完所有事也不现实。但现在回想起来，很明显是一个错误，当初没有更积极地收拾大科技企业，因为看看他们已经做的事吧，看看他们对作为美国总统的川普做的事。想像一下 要是联手乔·拜登这货还能做什么，顺便说一句 我相信他们现在所做的很多事情，都是在讨好民主党人、讨好大媒体，以及拜登和哈里斯。他们清楚这些货不会来找麻烦，他们是非法寡头或非法垄断，显然是违反了反托拉斯法的。美国政府本该已在追捕这些公司，不过现实是不幸的，史蒂夫，我们在华盛顿特区、白宫和国会两院的权力都比不过敌人。因此，我相信，不幸的是，我们将不得不依靠州长们，我们将不得不依靠坚决的红色州。在州一级，可以做很多工作以争取第一修正案中自由表达的权力并与这些技术暴政作斗争。我们那里有一些杰出的州长。
+* * *
 
-我认为在许多非常好的州长中，Desantis是最好的。但是在佛罗里达州，德克萨斯州等红州，我认为我们将不得不在州一级采取行动，直到我们在2022年收回众议院。我认为这将是一个有力的问题，之所以向我们发送消息，是因为美国人民知道，我知道，即使是有头脑的民主党人，甚至是那些无法忍受特朗普总统的人都意识到，您对付自己认为不好的观点的方式就是拿出更好的观点。反对自己认为是不负责任的言论的方式是，拿出更好的言论，或更多更有说服力的言论，而不是消灭反对派的言论。我的意思是，这真是不幸啊，自由派的人却不容忍别人言论自由，自由主义的法西斯主义，而且不幸的是，这都是这些令人难以置信的强大寡头（尤其是Twitter，Facebook和Google）们的要求。
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)
 
-（班农）
+更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)
 
-好的，我们从您那里上邀请了德克萨斯州检察长肯·帕克斯顿（Ken Paxton）谈论他打算做的工作和正在做的工作。 您大约有两分钟来详细说说你的Cortez计划。 如果您今天要制裁科技巨头，那么您将做的头两三件事是什么？
-
-（科尔特斯）
-
-好吧，很不幸，正如我所说，现在的情况很困难，确实困难，史蒂夫，因为我们没有联邦政府的权力。不过，我的意思是，还有更多选择。在联邦一级，我确实相信州政府拥有很大的权力。并且，比如，我们可以学习外国的方法。波兰是这样做的，就是如果科技公司删除帖子，或审查帖子，仅仅是因为它们表达了政治观点，而您作为公司不同意，那政府就可以罚款，例如，向Twitter处以巨额罚款，否则twitter将无法在佛罗里达州，德克萨斯州开展业务。因此，这将是处理该问题的一种方法，当然，无论公司的业务是什么，无论是技术公司还是非技术公司，每家公司都有责任尽最大努力来管控非法行为。您不能在线威胁某人，就像您不能走进商店威胁某人一样。但是，如果有进行自由表达，自由政治表达的合法言论，但公司却正在采取行动压制和审查该言论，那么即使在州一级，也应该受惩罚。但是，坦白说，我并不清楚。。。
-
-（班农）
-
-等一下，等一下， 好的。 但是在联邦一级，您将拆分这些公司，您将做人们在80年代对AT&T所做的事情，您将拆分，您将会反垄断，您会最终将它们变成公用事业吗？Tudor Dixon来节目里谈到把脸书变成公用事业。 您是否同意将其转变为公用事业？
-
-（科尔特斯）
-
-100%同意，我会两者都做。 我会分解它们并进行监管，因为它们同时需要两者。 而且，史蒂夫，这就是这些公司相对于美国经济（相对于美国人的生活）所拥有的权力的程度，这就是他们在2021年现在拥有的权力的程度。在美国，这绝对使任何事情相形见绌。 您过去所知道的标准油或玛贝尔都比不上科技巨头的权力。 它的权力超过那些非法托拉斯曾经对美国经济，美国生活方式本身和我们的社会施加的力量。真的。 因此，是的，它们需要在联邦一级被分解，而且受到监管。 因为它们是公用事业。
-
-（班农）
-
-Cortez，人们每天怎样关注你？我们还有15秒。
-
-（科尔特斯）
-
-请在twitter 上关注Steve Cortez。如果Parlor还能回来，我在那上面也是steve cortez。
-
-（班农）
-
-而且你有广播节目。 我们将播放广播节目。 您会在芝加哥有下午广播，史蒂夫·科尔特斯（Steve Cortez）。非常感谢你。 并感谢您与特朗普总统在西班牙裔联盟中合作。 你们的结果令人叹为观止，这绝对令人震惊。 马上回来。 竞选活动中的鲍里斯。 我们要谈论弹劾。
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)
 
 +1

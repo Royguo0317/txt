@@ -1,67 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班农战斗室WARROOM精选 650期 视频曝光公共广播公司（PBS)首席法律顾问迈克尔.贝勒 煽动暴力要去白宫扔汽油瓶 把川普支持者关进再教育集中营
-` 新闻译制组` [轉載自GNews](https://gnews.org/zh-hans/758748/)
+## 【大选推特实况】1/16/2021 保护美国大学不受中共的恶性影响, 对学术自由至关重要&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/761582/)
 
-供稿：班农战斗室译制组
+【大选实况】1/16/2021 EST 4:30 PM 国务卿彭佩奥推文： 保护美国大学不受中共的恶性影响，对学术自由至关重要。我们揭露了孔子学院的真实面目：中共的虚假信息和宣传部门的枢纽中心。它们在美国各地被迅速关闭。#不厌其烦的胜利
 
-【播放录像】
 
-画面左上角中文，迈克尔.贝勒，公共广播公司（PBS)首席法律顾问
 
-画面右上角：爆料公共广播公司（PBS)
+> Protecting American universities from the CCP’s malign influence is essential to academic freedom. We exposed Confucius Institutes for what they really are: hubs for disinformation and propaganda arms of the CCP. They are being closed fast across America. [#NotTiredofWinning](https://twitter.com/hashtag/NotTiredofWinning?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1pdOjn8nia](https://t.co/1pdOjn8nia)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350555929784315907?ref_src=twsrc%5Etfw)
 
-下方字幕：即使拜登赢了，我们也要追踪所有投共和党票的人，国土安全部会抓走他们的孩子，你看怎么样？
 
-[大笑]我们要把他们（川普支持者）都抓进再教育营，现在是前所未有的时代，我是说川普太像希特勒了。如果拜登没赢的话，你会怎么做？去白宫扔汽油瓶啊。
+来源：[https://twitter.com/SecPompeo/status/1350555929784315907](https://twitter.com/SecPompeo/status/1350555929784315907)
+盖特链接：[https://gtv.org/getter/60035d4287fabe2daf3afae3](https://gtv.org/getter/60035d4287fabe2daf3afae3)
 
-迈克尔.贝勒，公共广播公司（PBS)首席法律顾问，PBS的部分资金来源于美国税收，它在其网站上称很自豪“服务美国大众”，我们对它所说表示怀疑。
+* * *
 
-在那些在过去四年长大什么都不知道只知道川普的孩子们，我在想他们（川普支持都的孩子们）会成为怎样的人，川普的支持者们养了没有容忍可怕的一代人-令人恐怖的一代
+【大选实况】1/16/2021 EST 1:00 pm 国务卿彭佩奥推文： 当中共对武汉爆发的COVID-19疫情撒谎和隐瞒时，川普政府却带领全世界公开呼吁透明化，谴责掩盖事实。#中共撒谎人民死亡
 
-领英（Linkedin）上显示迈克尔.贝勒，公共广播公司（PBS)首席法律顾问，是该组织的高层人员。他的极端种族主义至少可以说是令人不安的
 
-启蒙营？是的。那（再教育营）是个好主意，课堂上将会有芝麻街的那些人物，然后他们整天就看公众广播公司节目，美国人都（此处省略国骂）呆瓜，你知道吗，大多人都是傻的。生活在华盛顿特区真好，大家都受教育，明白事理，你能想象生活在其城市或其他州吗？那儿的人都太蠢了，最棒的就是新冠病毒在所有红州爆发真是太妙了！你为什么这么想？因为那儿的人就不能出来给川普投票了，你知道在红州，很多川普的选民病倒了或病逝了，PBS有类似真实的新闻，但是CNN不再有真实的新闻报道了，他们整天就是谈那些头头们，谈川普。我不能那么忍受它，我是说每过一段时间，我看福克斯节目五分钟就要吐了，现在福克斯播的那些拜登的垃圾，拜登的那些，我看不下去，都是编的，所有都是荒谬的。福克斯在全力推出这些，太令人不可置信了所以你们当没看到？是的。
 
-[拉希姆】
+> While the Chinese Communist Party lied about and hid the COVID-19 outbreak in Wuhan, the Trump Administration led the world in publicly calling for transparency and denounced the cover-up. [#ChinaLiedPeopleDied](https://twitter.com/hashtag/ChinaLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/7YkSmKb6dY](https://t.co/7YkSmKb6dY)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350503084385034240?ref_src=twsrc%5Etfw)
 
-对不起，视频中出现了咒骂，通常我们会做屏蔽处理
 
-【班农】
+来源：[https://twitter.com/SecPompeo/status/1350503084385034240](https://twitter.com/SecPompeo/status/1350503084385034240)
+盖特链接：[https://gtv.org/getter/60032b5887fabe2daf3ae8be](https://gtv.org/getter/60032b5887fabe2daf3ae8be)
 
-我们要感谢丹佛 这么快就放上节目了，感谢真实美国民众之声音节目组工作人员
+* * *
 
-【拉希姆]
+【大选实况】1/16/2021 EST 1:30 pm国务卿彭佩奥推文： 2015年，习总书记与时任美国总统奥巴马站在一起，表示中共 “无意将南沙群岛军事化”。这一承诺被打破。川普政府一直在保护捍卫主权的国家，抵御中国的侵略。
 
-这段视频里爆了很多料，迈克尔.贝勒是公共广播公司（PBS)首席法律顾问，PBS部分资金是来源于税收，视频里他说要到白宫扔汽油瓶，要把人关进再教育营，要把川普支持者的孩子们从他们身边抢走，很多这些恶心的话，这太不寻常了
 
-【班农】
 
-我想给些捐钱的人上一大课，现在那些资助人会说，好吧 班农，PBS是传统组织之一，是我们纳税人的钱，这些人得到了一大笔财富。他就在那儿，他说出他们在背后的想法，他们一直在背后讲的，他们想把我们扔进再教育营，他们想夺走孩子们的未来，他们想朝总统扔燃烧瓶，也许我们应该去接着幻想。
+> In 2015, standing with then President Barack Obama, General Secretary Xi said the CCP had “no intention to militarize” the Spratly Islands. This promise was broken. The Trump Administration has defended nations that defend their sovereignty against Chinese aggression. [pic.twitter.com/MyHjpX0bdt](https://t.co/MyHjpX0bdt)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350510632500678656?ref_src=twsrc%5Etfw)
 
-【拉希姆】
 
-好, 不, 我的意思, 所有的这些都是完全的正确的，真正有趣的是什么？是在该剪辑中迈克尔·贝拉说的,嘿, 所有这些已经长大的孩子，除了川普什么都不知道,他们会长大成为可怕的人，迈克尔·贝拉是在什么下长大的?迈克尔·贝拉阅读索尔·阿林斯基长大的。迈克尔·贝拉从小就读赫伯特·马尔库塞,麦克, 迈克尔·贝拉成长和有了一个大学教育。从这些自由派教授，人们大概在1950和60年代警告过，那些灌输教义的人相信他们需要监禁自己的政治态度。基思·奥尔伯曼今早对我发了什么推文?他说马特·盖茨应该去监狱，我说， 哈，那是有趣的，奥尔伯曼 那是一个德国名字,但现在主要发现在南美州。你的家人是谁?基思·奥尔伯曼? 哦, 是的, 你的纳粹分子和纳粹心态，那是而且顺便的，他在那儿说的不是什么幻想，那就是所有特区的精英们的想法，他们绝对相信所有这些东西。那不是幻想。幻想是月球上有一台服务器和在法兰克福那里的一场枪战。 这是一个区别。
+来源：[https://twitter.com/SecPompeo/status/1350510632500678656](https://twitter.com/SecPompeo/status/1350510632500678656)
+盖特链接：[https://gtv.org/getter/6003357b87fabe2daf3aec64](https://gtv.org/getter/6003357b87fabe2daf3aec64)
 
-【史蒂夫】
+* * *
 
-什么? 那么你如何应对呢? 你如何应对?你如何应对你刚刚在PBS看到的内容？除了把那个家伙开除? 因为那是他们内部交流的方式。那就是他们内部了解的， 你没有看到有人炸毁他。那是一个内部的考虑，他们想把你放在营地，他们要把你的孩子带走， 嘿， 史蒂夫·班农不是在说那个家伙，你了解他的位置,他是高级律师。他本应该是法治人, 对吧?这不是一些疯狂的创意， 对吧? 这不是什么创意，一些疯狂的制作人，或者在图形部门的某人，这是他们的法律部门。这是高级法律顾问。对吧, 拉希姆卡萨姆先生?
+【大选实况】1/16/2021 EST 4:00 PM 国务卿彭佩奥推文： 我们通过终止中共以各种交流名义（包括：文化交流等）实施的统战活动、打击了中共在美国境内的渗透。其他国家也纷纷效仿。#不再姑息 [https://go.usa.gov/xAQzx](https://go.usa.gov/xAQzx)
 
-【拉希姆】
 
-是的，他是首领， 他是PBS的首席顾问，并且已经是在过去的八年。他在那个剪辑中说,我很高兴能住在华盛顿特区有受过教育的人的地方
 
-【史蒂夫】
+> We cracked down on CCP influence ops inside our borders by ending United Front operations disguised as cultural exchanges, and more. Other countries are now following suit. [#NoMoreAppeasement](https://twitter.com/hashtag/NoMoreAppeasement?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/h0ZWfz3HkI](https://t.co/h0ZWfz3HkI) [pic.twitter.com/5ji2cD6Kvd](https://t.co/5ji2cD6Kvd)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350548380859179010?ref_src=twsrc%5Etfw)
 
-让我们去，我要确保，我想确保返回你的描述，或与这些抗议者正在发生了什么，而且在网上关于试图将人们拉到这个集会上，就像那天有Antifa元素，是要有暴力，对吧?我们是有力量，我们有一个和平的运动，义愤,但是我们是和平的。 那就是在12日的游行的力量，它吓坏了整个城市。 你如何得到一百万人聚在一起，并且你没有烧车或者任何像你有在Antifa的暴动，黒命贵的暴动，捋一遍你需要避免什么？
 
-【拉希姆】
+来源：[https://twitter.com/SecPompeo/status/1350548380859179010](https://twitter.com/SecPompeo/status/1350548380859179010)
+盖特链接：[https://gtv.org/getter/6003595b87fabe2daf3af987](https://gtv.org/getter/6003595b87fabe2daf3af987)
 
-总统是非常明确的关于它，今天早上谴责暴力，说那不应有暴力，并且当你看到这些广告时，就像你看到的当人们试图将你拖入阴谋论，他们试图做的是使你残废和解除你的武装。所以如果你看到这些人们对你说，好的，我们需要在50个州首府的大街上进行武装叛乱，并且在华盛顿特区，他们这样做是试图引导你，进入一个武装的冲突对抗国民警卫队，让你成为例子让你被捕 ，从你的工作中挖走你。这些组织和集会都没有, 当然不是那个，要求你随身携带枪支到美国首府, 或者任何，以任何方式认可以任何方式，与任何川普的使美国再次伟大相关，或者美国第一, 在接下来的几天和几周内要格外小心。他们会来找你而且他们将做任何事情来愚弄你使你被捕，并使整个事情声名狼藉。
+* * *
 
-【史蒂夫】
+【大选实况】1/16/2021 EST 5:00 pm 国务卿彭佩奥推文： 从我们开始的地方到我们结束的地方 【附图：美国大学校园里孔子学院数量对比图】
 
-记住, 他们正在摧毁川普总统，并且重要的他们实际上试图摧毁川普总统。记住，现在如果你看主流媒体，你们都是一群国内恐怖分子，你知道基思·奥尔伯曼将国会议员马特·盖茨送进监狱。好的, 我们将在5点回来，今天有许多的重大新闻，今天他们尝试援引第25条修正案，他们将试图迫使副总统彭斯调用它。他们给川普总统扮演我或者交易我， 辞职或被弹劾。我们将会在5点回来, 在真正的美国声音和所有的我们的平台，非常感谢你，确认前往应用程式，去战斗室一个词，888111， 现在就做。
+
+
+> Where we started ➡️ Where we ended [pic.twitter.com/kEu9Z6CGRm](https://t.co/kEu9Z6CGRm)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350563510762221568?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1350563510762221568](https://twitter.com/SecPompeo/status/1350563510762221568)
+盖特链接：[https://gtv.org/getter/600364b987fabe2daf3afeb1](https://gtv.org/getter/600364b987fabe2daf3afeb1)
+
+* * *
+
+【大选实况】1/16/2021 EST 5:30 pm 国务卿彭佩奥推文： 关于中共国针对美国高校（进行渗透）的更多信息，请参见我在@乔治亚理工学院的演讲。 [https://go.usa.gov/xAQzW](https://go.usa.gov/xAQzW)
+
+
+
+> For more information on China's targeting of U.S. colleges, see my speech [@GeorgiaTech](https://twitter.com/GeorgiaTech?ref_src=twsrc%5Etfw): [https://t.co/GhZam6UJI4](https://t.co/GhZam6UJI4) [pic.twitter.com/QP0aMiHYck](https://t.co/QP0aMiHYck)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350571028544581632?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1350571028544581632](https://twitter.com/SecPompeo/status/1350571028544581632)
+盖特链接：[https://gtv.org/getter/60036c3d87fabe2daf3b01e7](https://gtv.org/getter/60036c3d87fabe2daf3b01e7)
+
+**By： 【秘密翻译组 G-Translators】**
 
 +1

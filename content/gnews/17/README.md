@@ -1,127 +1,87 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世界可能即将推出由微软和大科技联盟开发洛克菲勒资助的COVID护照
-` 喜马拉雅大使馆-经济金融组` [轉載自GNews](https://gnews.org/zh-hans/759344/)
+## 【大选推特实况】1/16/2021 国务院证实武汉病毒研究所同中共军方合作秘密项目&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/761807/)
 
-整撰：文W , WJMG  复核：MY
+【大选实况】1/16/2021 美东时间7:57PM Bill Gertz 推文： 我在2020年1月首次报道武汉病毒学研究所与解放军有关联。现在国务院证实武汉病毒学研究所同中共国军方合作秘密项目。自2017年以来，”武汉病毒学研究所为中共国军方从事机密研究，包括实验室动物实验”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/截屏2021-01-17-上午8.33.58.png)
 
-图片来自链接内容
 
-包括微软在内的大型科技公司联盟正在开发COVID护照，期望通过与疫苗接种状况挂钩的数字文件来为旅行和获得基本服务提供信息。
+> I first reported in Jan. 2020 that Wuhan Institute of Virology is linked to PLA. Now State confirmed WIV did secret projects with China’s military. “WIV engaged in classified research, including lab animal experiments for the Chinese military” since 2017 [https://t.co/e7QH5LNo2J](https://t.co/e7QH5LNo2J)
+> — Bill Gertz (@BillGertz) [January 17, 2021](https://twitter.com/BillGertz/status/1350608194075287555?ref_src=twsrc%5Etfw)
 
-该集团自称为 “疫苗接种证书倡议”(VCI)，成员包括微软、Salesforce和Oracle。
 
-美国医疗机构梅奥诊所也参与了该项目，该项目被称为 “美国历史上最重要的疫苗接种工作”。
+来源：[https://twitter.com/BillGertz/status/1350608194075287555](https://twitter.com/BillGertz/status/1350608194075287555)
+盖特链接：[https://gtv.org/getter/6003971887fabe2daf3b172f](https://gtv.org/getter/6003971887fabe2daf3b172f)
 
-这个想法现在已是耳熟能详。任何接种过疫苗的人都会收到一个二维码，可以存储在手机的钱包应用中。没有手机的人将可以获得一个打印版本。
+* * *
 
-我们之前曾报道过这个所谓的 “CommonPass “的发展情况，它也得到了世界经济论坛的支持，现在又有了更多细节。
+【大选实时报】1/16/2021 美东时间 1:30PM调查记者约翰·所罗门John Solomon 推文： 美国务院称新证据指向武汉实验室， 指责中共国在COVID初始问题上存在 ‘欺骗’。
 
-“疫苗接种凭证计划的目标是让个人能够以数字方式访问他们的疫苗接种记录。”非营利组织The Commons Project的首席执行官Paul Meyer（梅耶）说，他也参与了这个项目。
 
-梅耶表示，该文件将让人们 “安全地回归旅行、工作、学校和生活，同时保护他们的数据隐私”。
 
-梅耶尔说，该联盟正在与一些政府合作，并期望通过的标准将看到强制性的阴性测试或疫苗接种证明，以便重新参与社会。
+> State Department says new evidence points to Wuhan lab, accuses China of ‘deceit’ over COVID start | Just The News [https://t.co/oXAxu7RsoI](https://t.co/oXAxu7RsoI)
+> — John Solomon (@jsolomonReports) [January 16, 2021](https://twitter.com/jsolomonReports/status/1350505796229095424?ref_src=twsrc%5Etfw)
 
-“个人将需要必须为恢复正常生活的许多方面出示疫苗接种记录，”他补充说。”我们生活在一个全球联网的世界里。反正我们曾经是这样–我们希望再次这样。”
 
-金融时报报道称，”公共项目”（The Commons Project）获得了洛克菲勒基金会（Rockefeller Foundation）的资助，三大航空联盟都在实施该项目。
+来源：[https://twitter.com/jsolomonReports/status/1350505796229095424](https://twitter.com/jsolomonReports/status/1350505796229095424)
+盖特链接：[https://gtv.org/getter/60035b6687fabe2daf3afa3b](https://gtv.org/getter/60035b6687fabe2daf3afa3b)
 
-洛克菲勒基金会此前曾宣传过其 “Covid-19数据和公用数字平台 “的计划，以及希望 “启动一个Covid社区医疗队，用于检测和联系追踪”。
+* * *
 
-该基金会在其网站上表示：”协调这样一个大规模的计划应该被当作战时的努力。”该基金会还补充说，应该 “建立一个公共/私人的大流行病测试委员会，以协助并作为地方、州和联邦官员之间的桥梁，解决这一行动将不可避免地面临的后勤、投资和政治挑战。”
+【大选实况】1/16/2021 EST 8:30 pm 国务卿彭佩奥推文： 我们与西藏人民站在一起，支持他们享有宗教自由和文化认同的权利。我们对阻止自由进入西藏地区（互惠对等政策）的官员施加了前所未有的签证限制。#与西藏站在一起
 
-该组织还希望看到所谓疫苗护照的全球标准化，并指出 “目前的疫苗接种记录系统并不容易支持对可验证疫苗接种记录的便捷访问、控制和共享。”
 
-Salesforce执行副总裁Bill Patterson表示：”这个由大型科技公司组成的联盟正在寻求 “定制疫苗管理生命周期的所有方面，并与其他联盟成员的产品紧密集成，这将帮助我们所有人回归公众生活”。
 
-“有了一个单一的平台来帮助提供安全和持续的运营，并加深与客户和员工的信任，这个联盟将对支持公众健康和福祉至关重要。”，Bill Patterson称。
+> We stood with the people of Tibet and supported their right to religious freedom and cultural identity. We have imposed unprecedented visa restrictions on officials who block reciprocal access to Tibetan areas. [#StandWithTibet](https://twitter.com/hashtag/StandWithTibet?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/zKpVEK9UJN](https://t.co/zKpVEK9UJN)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350616326818164738?ref_src=twsrc%5Etfw)
 
-甲骨文全球业务部门执行副总裁Mike Sicilia补充说：”这个过程需要像网上银行一样简单。我们致力于与技术和医疗界以及全球政府进行集体合作。”
 
-Safe Health的创始人兼首席执行官Ken Mayer也表示，VCI “将使应用开发者能够创建保护隐私的健康状况验证解决方案，并能无缝集成到现有的票务工作流程中”。
+来源：[https://twitter.com/SecPompeo/status/1350616326818164738](https://twitter.com/SecPompeo/status/1350616326818164738)
+盖特链接：[https://gtv.org/getter/6003987987fabe2daf3b17ae](https://gtv.org/getter/6003987987fabe2daf3b17ae)
 
-更简单地说，它将 “帮助让音乐会和体育赛事重新开始”，Mayer说。
+* * *
 
-背景似乎很清楚。没有COVID护照的人将不被允许旅行或参与社交活动。
+【大选实况】1/16/2021 EST 8:00 pm 国务卿彭佩奥推文： 有史以来第一次，美国政府公开宣布中国共产党在南海的主张是“完全非法的”，并制裁了20多家协助中共海洋主张的中共国公司。 【附图文字：世界不会允许北京政权将南中国海作为中共的海洋帝国】
 
-数百家科技公司正在争相开发COVID护照系统。
 
-正如我们上个月所报道的那样，全球最大的航空运输游说团体IATA预计其COVID旅行证应用将在2021年头几个月全面推广。
 
-旅行安全公司国际SOS的另一款名为AOKpass的 “COVID护照 “应用目前正在阿布扎比和巴基斯坦之间进行试验。
+> For the first time ever, the U.S. government openly declared the CCP’s claims in the South China Sea “completely unlawful” and sanctioned more than 20 PRC companies for aiding PRC’s maritime claims. [pic.twitter.com/Pf77wXvMBu](https://t.co/Pf77wXvMBu)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350608778564153344?ref_src=twsrc%5Etfw)
 
-我们已经详尽地记录了与采用相关的隐私和权利问题，更重要的是，所谓的COVID护照的全球标准化。
 
-总部位于英国的人权组织 “隐私国际 “警告说，如果一些政府发行 “豁免权 “护照，这可能意味着向 “数字身份计划 “和其他强制性身份计划方向进行。
+来源：[https://twitter.com/SecPompeo/status/1350608778564153344](https://twitter.com/SecPompeo/status/1350608778564153344)
+盖特链接：[https://gtv.org/getter/60038e9b87fabe2daf3b1309](https://gtv.org/getter/60038e9b87fabe2daf3b1309)
 
-“一旦你在多个领域(即公共部门、私营部门)、多个国家(即旅行)有多种用途(如获得服务)，那么我们就会接近一种生活所需的全球身份证件，”该组织警告说。
+* * *
 
-总部设在瑞典的人权组织 “国际民主和选举援助研究所”（IDEA）最近警告说，61%的国家使用了COVID限制，”从民主和人权的角度来看，这些限制令人担忧”。
+【大选实况】1/16/2021 EST 9:30 pm 国务卿彭佩奥推文： 本届政府已直截了当地告诉美国人民：中共是一个马克思列宁主义拥趸者，它们对我们的价值观和生活方式明确表示了敌意。
 
-来自埃克塞特大学的学者Anna Beduschi对欧盟可能走向疫苗护照发表评论，指出这 “对保护数据隐私和人权提出了基本问题”。
 
-Beduschi补充说，疫苗护照可能 “会根据个人的健康状况对其进行新的区分，然后可以用来确定他们可能享有的自由和权利的程度。”
 
-欧盟自己的数据保护主管Wojciech Wiewiórowski最近给免疫护照的想法贴上了 “极端 “的标签，并多次表示这令人震惊，而且 “令人厌恶”。
+> This administration was straight with the American people: The CCP is a Marxist-Leninist party that has made clear its hostility to our values and way of life. [https://t.co/UWJCI4ZhHC](https://t.co/UWJCI4ZhHC)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350631438329241600?ref_src=twsrc%5Etfw)
 
-人工智能研究机构Ada Lovelace研究所去年编制的一份报告称，所谓的 “豁免权 “护照 “在社会凝聚力、歧视、排斥和脆弱性方面构成了极高的风险”。
 
-公民自由倡导组织Liberty的竞选经理Sam Grant警告说，”任何形式的豁免权护照都有可能创造一个两级系统，在这个系统中，我们中的一些人可以获得自由和支持，而其他人则被拒之门外。”
+来源：[https://twitter.com/SecPompeo/status/1350631438329241600](https://twitter.com/SecPompeo/status/1350631438329241600)
+盖特链接：[https://gtv.org/getter/6003c28687fabe2daf3b2bd7](https://gtv.org/getter/6003c28687fabe2daf3b2bd7)
 
-“这些系统可能会导致那些没有豁免权的人可能被阻挡在基本的公共服务，工作或住房之外–我们中最边缘化的人受到的打击最大，”格兰特进一步警告说。
+* * *
 
-“这也有更广泛的影响，因为任何形式的豁免权护照都可能为全面的身份证制度铺平道路–这个想法已被反复拒绝，因为它与建立一个尊重权利的社会不相容，”格兰特进一步敦促。
+【大选实时报】1/16/2021 美东时间10:00PM 章家敦推文： 川普总统不惧怕北京，开始让中国付出代价。他的继任者将必须也这样做。这就是川普的外交政策遗产。
 
-世界旅行和旅游理事会（WTTC）首席执行官格洛丽亚-格瓦拉（Gloria Guevara）也抨击护照是 “歧视性的”，她说：”我们绝不应该要求接种疫苗才能找到工作或旅行。”
 
-WTTC负责人在路透社的一次活动上发言时，还谴责了航空公司澳航此前宣称不允许未接种疫苗的人上飞机的说法。
 
-“为全球人口接种疫苗需要相当长的时间，尤其是欠发达国家的人口，或者不同年龄段的人口，因此我们不应该歧视那些希望旅行但没有接种疫苗的人。”格瓦拉指出。
+> Prez [#Trump](https://twitter.com/hashtag/Trump?src=hash&amp;ref_src=twsrc%5Etfw), unafraid of [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw), began imposing costs on [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). His successors will have to do the same. That’s Trump’s foreign policy legacy. [#Newsmax](https://twitter.com/hashtag/Newsmax?src=hash&amp;ref_src=twsrc%5Etfw) [@Tom\_Basile](https://twitter.com/Tom_Basile?ref_src=twsrc%5Etfw) [@newsmax](https://twitter.com/newsmax?ref_src=twsrc%5Etfw) [https://t.co/ElOoXNZKos](https://t.co/ElOoXNZKos)
+> — Gordon G. Chang (@GordonGChang) [January 17, 2021](https://twitter.com/GordonGChang/status/1350639154514833408?ref_src=twsrc%5Etfw)
 
-尽管如此，所谓的’免疫护照’的幽灵在全球范围内若隐若现。
 
-如上所述，希腊总理基里亚科斯-米佐塔基斯（Kyriakos Mitsotakis）已致信欧盟委员会主席乌苏拉-冯德莱恩（Ursula von der Leyen），要求欧盟委员会在所有成员国中 “统一 “疫苗护照，人们在整个地区旅行时必须持有疫苗护照，并进一步强调 “接种过疫苗的人应该可以自由旅行”。
+来源：[https://twitter.com/GordonGChang/status/1350639154514833408](https://twitter.com/GordonGChang/status/1350639154514833408)
+盖特链接：[https://gtv.org/getter/6003d9e387fabe2daf3b373f](https://gtv.org/getter/6003d9e387fabe2daf3b373f)
 
-这一要求将在未来几天内进行辩论。
+* * *
 
-疫苗护照此前一直被欧盟吹捧，早在4月就有官员提出，签证申请者也需要接种疫苗。
-
-包括西班牙、爱沙尼亚、冰岛和比利时在内的欧盟国家都表示，他们对某种形式的疫苗护照持开放态度，同时还可以跨境共享数据。
-
-丹麦最近宣布，正在推出 “Covid护照”，允许接种过疫苗的人不受任何限制地参与社会活动。
-
-波兰也宣布计划推出疫苗护照，让打过COVID疫苗的人比没有打过疫苗的人有更大的自由。
-
-脱离欧盟后，英国将不属于任何标准化的欧洲计划，然而英国现在已经确认正在推出疫苗护照，尽管之前否认会这样做。
-
-近日，加拿大安大略省政府承认，正在探索 “免疫护照”，同时限制未接种疫苗的人出行和进入社交场所。
-
-上个月，以色列宣布，接种COVID-19疫苗的公民将获得’绿色护照’，可以参加各种场所，在餐馆吃饭。
-
-美国、英国及其他国家的一连串政府和旅游业界人士都表示，为了让 “生活恢复正常”，”COVID护照 “即将推出。
-
-此外，酒店也表示将采取同样的措施。
-
-保险公司也表示，他们将与任何疫苗护照的标准化接轨，可能会要求在承保那些希望去度假的人之前看到疫苗接种证明。
-
-国际《旅游与健康保险杂志》报道称，”如果欧盟强制要求旅客接种疫苗，旅游保险商可能会拒绝承保那些拒绝接种疫苗的旅客。”
-
-欧盟新闻网站Schengenvisainfo也报道了保险公司可能采取的行动，并指出，反疫苗接种者很可能会成为强制规定的特别目标。
-
-“即使反疫苗旅行者找到了要求的漏洞，并设法进入任何一个成员国，旅游保险供应商可能会拒绝为他们提供保险，”该报道称。
-
-虽然调查显示，现阶段全球约有一半的人不愿意接种疫苗。不过，最近的一项调查显示，如果美国引进COVID疫苗接种护照，74%的美国人表示愿意接种。
-
-**简评：**世界大科技公司和部分财团主推的COVID疫苗接种护照的举措让人不寒而栗，COVID疫苗接种护照实际上就是中共健康出行码的国际版。在这里编者不想就这种COVID 疫苗接种护照对人们造成歧视的可能及人权的侵害进行诘问，不想就这些科技公司是否有阴谋对世人设置数字监控进行质问。在此，编者只想简单的去问：COVID 病毒的真相调查清楚了吗？世界上出现的多种COVID病毒已经完全调查清楚其所有病毒结构和组成了吗？ 因为这关乎疫苗的有效性，关乎疫苗的安全性。根据本周五美国国务院公布的有关病毒真相的信息，COVID病毒是武汉实验室内人工制造的，且该实验室有涉及中共军方的项目，换言之，COVID是一种生物武器，请问在这种信息背景之下，目前草率面世的疫苗真的能够安全有效地打败中共军方的生物武器吗？
-
-病毒真相不彻底调查，病毒原株及变异毒株不全部掌握，所有匆忙推出的疫苗首先是对人基本生存权的无视和冷漠，其次伴随而至的将接种疫苗与COVID护照捆绑人的出行，一旦植入科技的监控设置，全世界都将被大科技公司背后的黑暗势力操纵于股掌之中！
-
-参考链接：
-
-[https://www.zerohedge.com/covid-19/microsoft-big-tech-coalition-developing-rockefeller-funded-covid-passports](https://www.zerohedge.com/covid-19/microsoft-big-tech-coalition-developing-rockefeller-funded-covid-passports)
+**By： 【秘密翻译组 G-Translators】**
 
 0

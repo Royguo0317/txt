@@ -1,22 +1,89 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评粤语快报】01.15:美国国务院发布病毒来源报告 美国国会确认中共犯下种族灭绝罪行
-` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/758640/)
+## 【大选推特实况】1/16/2021 中国共产党是一个威胁, 但是中国人民不是&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/761175/)
 
-制作团队：【喜马拉雅粤语组】打杂的、一帘幽梦、文恩
-
-上传：流光飞舞
-
-主要内容
-
-1. 美国国务院发布病毒来源报告，主要病毒来源指向武汉病毒研究所，提到中共有系统地阻止对于新冠病毒的透彻调查，而且投入大量资源进行欺骗及宣传。报告重点指出根据纪录，武汉病毒研究所具有相关技术和材料进行病毒基因编辑研究，并且该病毒研究所遮掩其各种病毒研究，与中共军方进行秘密军事项目，研究生物武器，违反国际公约。另外，报告亦指出世界卫生组织对此监管不力，必须为此负责。同时，武汉病毒研究所亦牵涉美国资金及及技术。美国国务院的报告完全验证阎博士的论文，确认新冠病毒为中共所研制生物武器，相信随之而来美国将有更多后续行动。
-2. 另外，美国国会中国委员会报告，明确表示北京政府在新疆犯下种族灭绝、反人类罪行。此定性涉及北约联盟条款，将导致北约采取行动。北约联盟之行动并不受美国总统或其他国家领袖人选限制，只要出现违反北约联盟的状况，例如盟约国受到各类攻击，或者出现有反人类、种族灭绝等罪行，北约必须采取行动，不论何人成为盟约国领袖都必须遵守条约。因此，即使拜登就任美国总统也必须配合北约行动。可见北约将成灭共重要力量之一。
-3. 虽然目前一月二十号将由拜登就任美国总统，但是过去川普总统及灭共阵营所预备的重锤，例如：病毒真相、有人与中共勾结、通敌、叛国、网络攻击等等证据和引爆装置，经过漫长酝酿，时机终于成熟。在中共以为拜登能赢得总统席位，川普总统无棋可行，中共尚可苟延残喘的情况下，灭共大招连串落下，活棋破死局，相信闪电致胜之日不远矣。
+【大选实况】1/16/2021 EST 11:00AM 彭培奥国务卿推文 中共打破了对香港人民的承诺，我们让那些否定高尚的香港人自由的人付出真正代价。
 
 
-详细内容请观看路德youtube频道
 
-[【路德时评】原视频链接](https://youtu.be/iy2vqGdG9O0)
+> The CCP broke its promise to the people of Hong Kong. We imposed real costs on those denying freedom to those noble people. [pic.twitter.com/2IVRJDLdql](https://t.co/2IVRJDLdql)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350472881633955843?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1350472881633955843?s=20](https://twitter.com/SecPompeo/status/1350472881633955843?s=20)
+盖特链接：[https://gtv.org/getter/6003122487fabe2daf3add55](https://gtv.org/getter/6003122487fabe2daf3add55)
+
+* * *
+
+【大选实况】1/16/2021 EST 8:30AM 彭佩奥国务卿推文 中国共产党是一个威胁。但是中国人民不是。五十年来，美国一直在向中共国下跪，在川普政府领导下，这不会再发生了！
+
+
+
+> The Chinese Communist Party is a threat. The people of China are not. For 50 years, America bent its knee to China. Under the Trump Administration, no more. [pic.twitter.com/OS1J1WrL5k](https://t.co/OS1J1WrL5k)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350435134818938880?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1350435134818938880?s=20](https://twitter.com/SecPompeo/status/1350435134818938880?s=20)
+盖特链接：[https://gtv.org/getter/6003177387fabe2daf3adf9e](https://gtv.org/getter/6003177387fabe2daf3adf9e)
+
+* * *
+
+【大选实况】1/16/2021 美东时间9:20AM 著名调查记者John Solomon 推文： 川普指示政府积极减少对中共国的依赖性。（Just The News 报道）
+
+
+
+> Trump directs government to actively reduce dependence on China | Just The News [https://t.co/r06lNvoK6H](https://t.co/r06lNvoK6H)
+> — John Solomon (@jsolomonReports) [January 16, 2021](https://twitter.com/jsolomonReports/status/1350447734512361476?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/jsolomonReports/status/1350447734512361476](https://twitter.com/jsolomonReports/status/1350447734512361476)
+盖特链接：[https://gtv.org/getter/60031d7387fabe2daf3ae263](https://gtv.org/getter/60031d7387fabe2daf3ae263)
+
+* * *
+
+【大选实况】1/16/2021 美东时间9:07AM 福克斯主持人Laura Ingraham 推文： 共和党参议员Rand Paul：如果共和党参议员同意给川普定罪，三分之一的共和党人将退党。
+
+
+
+> .[@RandPaul](https://twitter.com/RandPaul?ref_src=twsrc%5Etfw): One-third of Republicans will leave party if GOP senators go along with convicting Trump.[https://t.co/V0EElzzRKw](https://t.co/V0EElzzRKw)
+> — Laura Ingraham (@IngrahamAngle) [January 16, 2021](https://twitter.com/IngrahamAngle/status/1350444444680650753?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/IngrahamAngle/status/1350444444680650753](https://twitter.com/IngrahamAngle/status/1350444444680650753)
+盖特链接：[https://gtv.org/getter/600321f087fabe2daf3ae495](https://gtv.org/getter/600321f087fabe2daf3ae495)
+
+* * *
+
+【大选实况】1/16/2021 美东时间11:41AM OAN记者 Jack Posobiec 推文： 战斗室主持人Raheem Kassam 的账号已经被推特锁住6天了。
+
+
+
+> Twitter has now locked out ⁦[@RaheemKassam](https://twitter.com/RaheemKassam?ref_src=twsrc%5Etfw)⁩ for 6 days [pic.twitter.com/j8jZEGRxRR](https://t.co/j8jZEGRxRR)
+> — Jack Posobiec 🇺🇸 (@JackPosobiec) [January 16, 2021](https://twitter.com/JackPosobiec/status/1350483324779823105?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/JackPosobiec/status/1350483324779823105?s=20](https://twitter.com/JackPosobiec/status/1350483324779823105?s=20)
+盖特链接：[https://gtv.org/getter/600323a187fabe2daf3ae559](https://gtv.org/getter/600323a187fabe2daf3ae559)
+
+* * *
+
+【大选实况】1/16/2021 美东时间 Anne Luty 推文： 推特对Raheem Kassam的12小时禁令已被延长至就职典礼后（1月22日）。 由于Raheem无法在推特上分享国家脉动的文章，请你们继续尽可能地把文章分享出去!
+
+
+
+> 🚨🚨🚨 [@RaheemKassam](https://twitter.com/RaheemKassam?ref_src=twsrc%5Etfw)’s 12-hour Twitter ban has been extended until after the inauguration (January 22nd).
+> 
+> Since Raheem is unable to share National Pulse articles on Twitter, continue to share them yourselves as much as possible![https://t.co/ni2SuxsSAG](https://t.co/ni2SuxsSAG)
+> — Anne Luty (@anneluty) [January 16, 2021](https://twitter.com/anneluty/status/1350485677406904320?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/anneluty/status/1350485677406904320?s=20](https://twitter.com/anneluty/status/1350485677406904320?s=20)
+盖特链接：[https://gtv.org/getter/600325c087fabe2daf3ae66b](https://gtv.org/getter/600325c087fabe2daf3ae66b)
+
+* * *
+
+**By： 【秘密翻译组 G-Translators】**
 
 +1

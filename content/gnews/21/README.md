@@ -1,43 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 墨西哥总统发起反对社交媒体禁令运动
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/759265/)
+## 【大选推特实况】1/16/2021 我们扭转了几十年来对中共滥用权力无所作为的局面&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/761687/)
 
-*加拿大多伦多枫叶农场 阿黎*
+【大选实况】1/16/2021 EST 7:00 pm 国务卿彭佩奥推文： 言而有信：我们扭转了几十年来对中国共产党滥用权力无所作为的局面。我们将同谋的中共国公司列入@美国商务部的实体名单上，禁止向侵犯人权者发放签证，并对中国共产党高级官员在新疆和香港的侵犯人权行为实施#GloMag制裁。 【附图文字：中共不是正义的力量】
 
-*校对、发稿 文锦*
-![]()![](https://gnews.org/wp-content/uploads/2021/01/obrador-1.jpg)图片来源： Getty Images
-据美联社1月14日报道，墨西哥总统洛佩斯-奥布拉多周四在墨西哥城发誓将在国际上领导一项运动，打击社交媒体公司的审查制度，这些公司封锁或暂停了美国总统唐纳德-川普的帐户。
 
-洛佩斯-奥布拉多政府正在与其他政府接触，以便在这个问题上形成共同阵线。他表示，在举行的第一次G20会上，将就此提出建议，社交媒体不应该用来“煽动暴力”作为中止言论自由的借口。”一家公司怎么能表现得好像它是全能的，无所不能的，就像一种西班牙宗教裁判对其所表达的内容的一样那么确定？”他问道。
 
-外交关系秘书马塞洛-埃布拉德表示，墨西哥已通过总统发声，立即与其他有同样想法的人取得了联系。墨西哥已经得到了法国、德国、欧盟、非洲、拉丁美洲和东南亚的官员的回复。墨西哥和上述各国官员将就此分享看法并出一个联合提案。
+> Promise made, promise kept: We reversed decades of inaction against CCP abuses. We put complicit PRC companies on the [@CommerceGov](https://twitter.com/CommerceGov?ref_src=twsrc%5Etfw) entity list, blocked visas for human rights abusers, and levied [#GloMag](https://twitter.com/hashtag/GloMag?src=hash&amp;ref_src=twsrc%5Etfw) sanctions on senior CCP officials for abuses in Xinjiang and HK. [pic.twitter.com/ueM890PH9Y](https://t.co/ueM890PH9Y)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350593679455608834?ref_src=twsrc%5Etfw)
 
-德国总理默克尔是公开批评禁言川普行为的人之一。她的发言人周一表示，德国领导人认为，企业管理者根据法律未定义的规则拒绝某人访问（网站），这 “有问题”。
 
-波兰总理马特乌斯-莫拉维茨基(Mateusz Morawiecki)随后呼吁制定新的法规，以规范在欧盟使用Facebook、Twitter和Instagram的行为。他没有提及川普的情况，但他表示，”企业巨头的老板不应决定哪些观点是正确的，哪些是不正确的”。
+来源：[https://twitter.com/SecPompeo/status/1350593679455608834](https://twitter.com/SecPompeo/status/1350593679455608834)
+盖特链接：[https://gtv.org/getter/600383e287fabe2daf3b0d5c](https://gtv.org/getter/600383e287fabe2daf3b0d5c)
 
-洛佩斯-奥布拉多没有表示他是否在考虑尝试监管社交媒体平台，或者可能只是换一个新的渠道。周二，他在Facebook这一他最常使用的平台上发出了邀请函，邀请他的追随者转用Telegram。洛佩斯-奥布拉多说，私人公司不应该有权决定谁可以发言。
+* * *
 
-墨西哥总统的发言人杰苏斯-拉米雷斯说，总统的Telegram帐户已经开放了一段时间，这表明这一转换与Twitter、Facebook和其他媒体平台在1月6日川普总统的支持者闯入美国国会大厦，指责川普总统煽动暴力事件后对川普总统采取行动无关。
+【大选实况】1/16/2021 EST 6:00 pm 国务卿彭佩奥推文： 我们已呼吁大学董事会对其投资于恶意的中共国公司进行披露、并撤资。我们现在要求智库在参与@国务院项目前披露外国资金来源，并严格审查那些与中共国军方有关联的人员签证。[https://go.usa.gov/xAp3j](https://go.usa.gov/xAp3j)
 
-洛佩斯-奥布拉多喜欢使用社交媒体，他亲自管理其社交媒体帐户，他会用 “有福的社交媒体 ”来形容公民可以从中自由表达观点和获取真实信息的社交媒体。社交媒体的大量使用让他的信息得以传递，而之前他的信息是被传统新闻媒体封锁的。
 
-和川普总统一样，洛佩斯-奥布拉多认为传统媒体对他有偏见，他也曾用过 “假新闻 “一词。
 
-洛佩斯-奥布拉多很少发推特，但在脸书上有一个固定的、家常的、民间的帐号，他经常在脸书上发布自己打棒球的视频，给全国人民 “炉边聊天”，或者展示风景、墨西哥传统食物或他引以为豪的风景。
+> We have called on university boards to disclose and divest from malign PRC companies. We now require think tanks to disclose foreign funding sources before participating in [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) projects and scrutinize visas for ties to the PLA. [https://t.co/MGWWh11fQv](https://t.co/MGWWh11fQv) [pic.twitter.com/hrrUgKaddg](https://t.co/hrrUgKaddg)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350578578933604352?ref_src=twsrc%5Etfw)
 
-与之前任何一位墨西哥总统不同，他几乎每个工作日都会举行新闻发布会，在发布会上，洛佩斯-奥布拉多接受了许多在线或社交媒体新闻网站的采访。
 
-但洛佩斯-奥布拉多也曾痛心疾首地抱怨社交媒体上的 “机器人 “和巨魔，并赞助研究哪些是用来攻击他的机器人帐户。
+来源：[https://twitter.com/SecPompeo/status/1350578578933604352](https://twitter.com/SecPompeo/status/1350578578933604352)
+盖特链接：[https://gtv.org/getter/6003736287fabe2daf3b056b](https://gtv.org/getter/6003736287fabe2daf3b056b)
 
-**评：**
+* * *
 
-在这次大选中，推特对川普支持者和不利于拜登的言论强力打压，关闭了成千上万个帐户，最终登峰造极，关闭了川普总统的帐户。在脸书上看不到对拜登不利的任何消息，因为只要有人发上去，脸书立即删除。油管关闭了班农先生领导的战斗室。在谷歌上不存在任何对川普总统有利的消息和对拜登、佩罗西等美国卖国贼的负面新闻，也很难找到对中共不利的报道，更别说CCP病毒为中共制造和恶意扩散的真相，中共操纵2020美国总统大选，这样的消息从未出现在谷歌上。大量推特用户从推特转向Parler，继续支持川普的正义力量，亚马逊毫不犹豫地撕毁合约，撤销了租给Parler的服务器…
+【大选实况】1/16/2021 EST 6:30 pm 国务卿彭佩奥推文： 言而有信：我们给中共15家媒体和组织贴上了中共国家机器的标签，以确保美国人知道他们在与（中共的）宣传机构打交道。#假新闻
 
-对于这些“法西斯”科技巨头的过头行为，终于有各国政要看不下去了。首先发声的是德国总理默克尔，她曾经与中共紧密合作，向中共国出卖高科技，对美国对中共国的制裁造成更多的困难。除她之外，法国、其他欧盟国家，以及非洲、拉丁美洲和东南亚的国家政要都开始觉醒，加入墨西哥总统发起的反击社交媒体审查制度的行列。这些政要看到，没有言论自由，世界很快变成全球集权主义者的天下，成为高科技奴隶社会，全球七十五亿人将沦为极少数精英统治者的奴隶。
 
-*[原文链接](https://apnews.com/article/donald-trump-marcelo-ebrard-mexico-media-social-media-a5303f532810447575ccf2af6692a2d4)*
 
-+3
+> Promise made, promise kept: We labeled 15 CCP media entities and orgs as CCP state missions to make sure Americans knew they were dealing with propaganda outlets. [#FakeNews](https://twitter.com/hashtag/FakeNews?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/DqzYXWSv6v](https://t.co/DqzYXWSv6v)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350586157940224002?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1350586157940224002](https://twitter.com/SecPompeo/status/1350586157940224002)
+盖特链接：[https://gtv.org/getter/60037ea387fabe2daf3b0a97](https://gtv.org/getter/60037ea387fabe2daf3b0a97)
+
+* * *
+
+【大选实况】1/16/2021 EST 6:30 pm国务卿彭佩奥推文： 就连习近平本人也承认，中共宣传人员不是独立的记者。我们不应该假装他们是。#事实胜于雄辩
+
+
+
+> Even Xi Jinping himself admits CCP propagandists aren't independent journalists. We shouldn't pretend they are. [#FactsMatter](https://twitter.com/hashtag/FactsMatter?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/B32QQ1EzDt](https://t.co/B32QQ1EzDt)
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350586161736122377?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1350586161736122377](https://twitter.com/SecPompeo/status/1350586161736122377)
+盖特链接：[https://gtv.org/getter/60037ee687fabe2daf3b0ac3](https://gtv.org/getter/60037ee687fabe2daf3b0ac3)
+
+* * *
+
+【大选实况】1/16/2021 EST 6:45 pm国务卿彭佩奥推文： 祝贺加拿大新任外交部长@MarcGarneau。我们感谢@FP\_Champagne（前加拿大外交部长）为美加关系所作的贡献，并期待着继续合作。
+
+
+
+> Congratulations to Canada’s new Foreign Minister [@MarcGarneau](https://twitter.com/MarcGarneau?ref_src=twsrc%5Etfw). We’ve appreciated the dedication of [@FP\_Champagne](https://twitter.com/FP_Champagne?ref_src=twsrc%5Etfw) to the U.S.-Canada relationship and look forward to continued cooperation.
+> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350589910974148610?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1350589910974148610](https://twitter.com/SecPompeo/status/1350589910974148610)
+盖特链接：[https://gtv.org/getter/60037f9487fabe2daf3b0b28](https://gtv.org/getter/60037f9487fabe2daf3b0b28)
+
+* * *
+
+【大选实况】1/16/2021 EST 7:30 pm 国务卿彭佩奥推文： 在本届（川普总统）政府执政之前，中共及其代理人窃取了美国的宝贵技术而不受惩罚。现在，我们正在起诉间谍和小偷，并阻止他们获得签证，以防止他们窃取美国伟大的尖端创新者的技术。#我们建造了它们
+
+
+
+> Before this administration, the CCP & its proxies stole invaluable U.S. technology with impunity. Now we are prosecuting spies & thieves, and keeping them from getting visas to steal from our great cutting edge innovators. [#WeBuiltThat](https://twitter.com/hashtag/WeBuiltThat?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/QdgBZ5vsYl](https://t.co/QdgBZ5vsYl)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350601227457859584?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1350601227457859584](https://twitter.com/SecPompeo/status/1350601227457859584)
+盖特链接：[https://gtv.org/getter/600387aa87fabe2daf3b0f38](https://gtv.org/getter/600387aa87fabe2daf3b0f38)
+
+**By： 【秘密翻译组 G-Translators】**
+
++1

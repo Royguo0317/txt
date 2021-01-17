@@ -14,144 +14,141 @@
 
 ---
 
-### [《路德时评》重磅解读人民日报攻击彭佩奥，及李书福卸任寓意为何](/content/gnews/1/README.md)
- ` 香柏树`
-
-### [《路德时评》重磅：美国务院再发重磅病毒溯源声明及1000家中共军方控制企业上榜](/content/gnews/2/README.md)
- ` 香柏树`
-
-### [透视蓬佩奥对中共的发言](/content/gnews/3/README.md)
- ` Himalaya Australia`
-
-### [视频1/10/2021郭先生直播:川普总统一定赢！任何一个想灭共的战友都不该怀疑或背叛川普总统](/content/gnews/4/README.md)
- ` 秘密翻译组G-Translators`
-
-### [白宮—历任美囯总统的故乡](/content/gnews/5/README.md)
- ` Himalaya Australia`
-
-### [视频【字幕】1/16/2021文贵盖特： 关于要求做G系列全球代理和购买各种G翻身的一些的问题](/content/gnews/6/README.md)
- ` 纽约香草山农场`
-
-### [财经普及关键词：军民融合](/content/gnews/7/README.md)
- ` 秘密翻译组G-Translators`
-
-### [墻内允许对个人不良贷款批量转让意味着什么](/content/gnews/8/README.md)
- ` Himalaya Australia`
-
-### [视频【字幕】1/16/2021文贵盖特： 人类进入了最大的变革时代，共产党的灭亡是人类重新走向新生的开始](/content/gnews/9/README.md)
- ` 纽约香草山农场`
-
-### [实锤！白宫关于武汉病毒学研究所定义解读](/content/gnews/10/README.md)
- ` Himalaya Australia`
-
-### [百毒不侵的墙内官员](/content/gnews/11/README.md)
- ` 国内新闻组`
-
-### [美代理国防部长命令国家安全局设立一名最高律师](/content/gnews/12/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [华融附重组业务遭亿阳集团“反水” 最高院：合同有效](/content/gnews/13/README.md)
- ` 喜马拉雅大使馆-经济金融组`
-
-### [伊朗导弹在尼米兹航母战斗群附近坠落](/content/gnews/14/README.md)
- ` HimalayaRussia`
-
-### [病毒被定义为中共军方生物武器的一天指日可待](/content/gnews/15/README.md)
- ` 喜马拉雅大使馆-经济金融组`
-
-### [科技巨头企图借疫苗接种之名 行监控人民之实](/content/gnews/16/README.md)
- ` 秘密翻译组G-Translators`
-
-### [世界可能即将推出由微软和大科技联盟开发洛克菲勒资助的COVID护照](/content/gnews/17/README.md)
- ` 喜马拉雅大使馆-经济金融组`
-
-### [2021年01月16日澳喜要闻（每日更新）](/content/gnews/18/README.md)
- ` Himalaya Australia`
-
-### [塔克怒斥加拿大的社交媒体审查计划](/content/gnews/19/README.md)
- ` gnewscanada`
-
-### [美国印-太战略框架（原文3）](/content/gnews/20/README.md)
- ` HimalayaRussia`
-
-### [墨西哥总统发起反对社交媒体禁令运动](/content/gnews/21/README.md)
- ` gnewscanada`
-
-### [视频1/10/2021 郭先生直播:川普总统的民调在51%-55%之间，这在民主国家已经非常棒啦](/content/gnews/22/README.md)
- ` 秘密翻译组G-Translators`
-
-### [视频法国《南方电台》主持人为川普二次弹劾打抱不平](/content/gnews/23/README.md)
- ` 喜马拉雅巴黎七星农场`
-
-### [2021/01/16 美国政要每日推特重要信息汇总](/content/gnews/24/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [加拿大政府隐瞒参加武汉军运会者染疫真相以讨好中共](/content/gnews/25/README.md)
- ` gnewscanada`
-
-### [班农战斗室WARROOM精选 650期 视频曝光公共广播公司（PBS)首席法律顾问迈克尔.贝勒 煽动暴力要去白宫扔汽油瓶 把川普支持者关进再教育集中营](/content/gnews/26/README.md)
- ` 新闻译制组`
-
-### [中共以疫苗施压土耳其将维吾尔人“送中”](/content/gnews/27/README.md)
- ` gnewscanada`
-
-### [2021/01/16国务院号外：武汉病毒研究所的活动-美国政要每日推特重要信息汇总](/content/gnews/28/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [蓬佩奥国务卿就中共病毒4连推](/content/gnews/29/README.md)
- ` HimalayaRussia`
-
-### [视频1/10/21 郭先生直播:我们要把G系列打造成我们的&#8221;圣哥达通道&#8221;](/content/gnews/30/README.md)
- ` 秘密翻译组G-Translators`
-
-### [蓬佩奥：中共间谍活动休想在我们眼皮底下发生](/content/gnews/31/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美国人权报告: 中共在新疆实施“种族灭绝”](/content/gnews/32/README.md)
- ` HimalayaRussia`
-
-### [【看七哥视频】我每刻都在珍惜上天给我的阳光、大海、水和一切！](/content/gnews/33/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [俄罗斯创下年初以来中共病毒死亡人数最高纪录](/content/gnews/34/README.md)
- ` HimalayaRussia`
-
-### [注意避坑：躲过了病毒，可别栽到疫苗上](/content/gnews/35/README.md)
- ` 纽约香草山农场`
-
-### [【三票专栏】旧文重发：简单读懂闫丽梦博士的科学报告](/content/gnews/36/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [蓬佩奥：中共在病毒的来源上撒了谎](/content/gnews/37/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [纳瓦罗报告·第三卷（三）——是的，川普总统已胜出：案件、证据、统计收据](/content/gnews/38/README.md)
- ` 波士顿五月花农场`
-
-### [纳瓦罗：民主党对川普的弹劾是错误的](/content/gnews/39/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [班农战斗室WARROOM精选 649期 川普总统发话表示大科技公司犯了一个可怕的错误 科尔特斯谈科技寡头已对美国造成重大威胁](/content/gnews/40/README.md)
- ` 新闻译制组`
-
-### [视频【路德时评粤语快报】01.15:美国国务院发布病毒来源报告 美国国会确认中共犯下种族灭绝罪行](/content/gnews/41/README.md)
+### [【香港要闻】美国制裁是制止中共危害香港人安全的正义之举](/content/gnews/1/README.md)
  ` 喜馬拉雅大使館-粵語組`
 
-### [纳瓦罗报告·第三卷（二）——是的，川普总统已胜出：案件、证据、统计收据](/content/gnews/42/README.md)
+### [视频【路德时评粤语快报】01.16：李书福卸任吉利集团法人代表 人民日报海外版抨击彭佩奥](/content/gnews/2/README.md)
+ ` 喜馬拉雅大使館-粵語組`
+
+### [视频1/10/2021 郭先生直播:爆料革命和新中国联邦支持川普总统,但我们永远不会和任何党派合作](/content/gnews/3/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频【附视频】国会众议员玛乔丽·泰勒·格林将于拜登就职第二天以滥用职权发起弹劾](/content/gnews/4/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [【文雍漫谈】终点又回到起点，到了现在才发觉](/content/gnews/5/README.md)
  ` 波士顿五月花农场`
 
-### [川普总统在Facebook和Instagram的账户已被悄悄恢复](/content/gnews/43/README.md)
+### [检测机构出具“假阴性”数据是中共以假治国的必然](/content/gnews/6/README.md)
+ ` Fightforthetrue`
+
+### [郭爆料串珠（155 – 2/2）以（美、共、法）灭共，都是战略战术，灭共最终靠爆料革命的战友和中国人自己！](/content/gnews/7/README.md)
+ ` 喜马拉雅德国慕尼黑感恩农场`
+
+### [1/17/2021 财经快讯: 中欧协议达成前景不明朗; 2021春运下降近6成](/content/gnews/8/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [郭爆料串珠（155 &#8211; 1/2）以（美、共、法）灭共，都是战略战术，灭共最终靠爆料革命的战友和中国人自己！](/content/gnews/9/README.md)
+ ` 喜马拉雅德国慕尼黑感恩农场`
+
+### [【大选推特实况】1/16/2021 议院多数党领袖麦康奈尔是深层政府的无耻傀儡&#8230;](/content/gnews/10/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [郭爆料串珠（154）川普总统一定赢！会让美国再次伟大、拯救世界，美国会再到一个新的高度](/content/gnews/11/README.md)
+ ` 喜马拉雅德国慕尼黑感恩农场`
+
+### [遥遥领先的预言（六）](/content/gnews/12/README.md)
+ ` 波士顿五月花农场`
+
+### [【每日快報】美国国务院的事实说明揭示“人造病毒&#8221;武汉实验室的军方联系和秘密 &#8211; 2021.01.17](/content/gnews/13/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [视频国语【香港快讯】 1.17 香港失业率升破近 16 年高位 院舍长者成为毒疫苗的牺牲品 价格急升难关难过](/content/gnews/14/README.md)
+ ` 喜馬拉雅大使館-粵語組`
+
+### [郭爆料串珠（153 – 2/2）美国大选给中国人的启示：制衡、纠错、妥协、绝不诉诸暴力，科技与选举结合](/content/gnews/15/README.md)
+ ` 喜马拉雅德国慕尼黑感恩农场`
+
+### [郭爆料串珠（153 &#8211; 1/2）美国大选给中国人的启示：制衡、纠错、妥协、绝不诉诸暴力，科技与选举结合](/content/gnews/16/README.md)
+ ` 喜马拉雅德国慕尼黑感恩农场`
+
+### [【大选推特实况】1/16/2021 国务院证实武汉病毒研究所同中共军方合作秘密项目&#8230;](/content/gnews/17/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [蓬佩奥：中共是我们这个时代的核心威胁](/content/gnews/18/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [顺藤摸瓜，一网打尽：亨特 · 拜登牵出奥巴马政府高层重大腐败案](/content/gnews/19/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [每日重要Twitter播报（中文）1/13期](/content/gnews/20/README.md)
+ ` 喜馬拉雅多語組`
+
+### [【大选推特实况】1/16/2021 我们扭转了几十年来对中共滥用权力无所作为的局面&#8230;](/content/gnews/21/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频徽银理财董事长被纪检部门带走调查 为中国国内首例（玫瑰看新闻2021.01.17第36）](/content/gnews/22/README.md)
+ ` 喜马拉雅农场新西兰站`
+
+### [闫丽梦博士两周精选集（中文）1/9期](/content/gnews/23/README.md)
+ ` 喜馬拉雅多語組`
+
+### [福奇的NIH早在15年前就证实氯喹可预防治疗冠状病毒](/content/gnews/24/README.md)
+ ` Himalaya Australia`
+
+### [国务院：武汉病毒研究所的活动事实](/content/gnews/25/README.md)
+ ` Gnews Special Squad`
+
+### [【大选推特实况】1/16/2021 保护美国大学不受中共的恶性影响, 对学术自由至关重要&#8230;](/content/gnews/26/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [据称：川普考虑预先特赦班农、朱利安尼](/content/gnews/27/README.md)
+ ` Gnews Special Squad`
+
+### [【大选推特实况】1/16/2021 中共国政府释放了病毒&#8230;](/content/gnews/28/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频1/14/2021 班农作战室【精选汇总】](/content/gnews/29/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [蓬佩奥1月16日推文连连看，33篇，篇篇似檄文](/content/gnews/30/README.md)
  ` GM126`
 
-### [美国极左活动者沙利文被控暴乱 曾叫嚣火烧国会山](/content/gnews/44/README.md)
- ` gnewscanada`
+### [视频1/16/2021 CCP经济学专家鼓吹把钱花光为国争光，花钱就是最好的爱国方式](/content/gnews/31/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [美国国务院：武汉病毒研究所的活动（全文）](/content/gnews/45/README.md)
+### [欧洲谴责伊朗发展金属铀](/content/gnews/32/README.md)
  ` HimalayaRussia`
 
-### [德州检察长向五家科技巨头发出民事调查要求](/content/gnews/46/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [【大选推特实况】1/16/2021 55名美国人在接种新冠疫苗后死亡&#8230;](/content/gnews/33/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [视频2021/01/15 围炉夜话第十一期](/content/gnews/47/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [视频CCP冠状病毒大流行 – 第346集](/content/gnews/34/README.md)
+ ` 新闻译制组`
+
+### [视频1/16/2021 闫博士和彼得·纳瓦罗在班农作战室的采访【精选汇总】](/content/gnews/35/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [美国国务院关于中共病毒的公告](/content/gnews/36/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【战友寄语】卢思位任全牛律师被吊销律师执照在预料之中](/content/gnews/37/README.md)
+ ` 喜馬拉雅大使館-粵語組`
+
+### [喀秋莎新闻参考- 2021年1月16日 (星期六)](/content/gnews/38/README.md)
+ ` HimalayaRussia`
+
+### [视频1/15/2021 国务卿蓬佩奥：我们翻页了。 我们把美国对中共的外交政策调转了一个新的方向](/content/gnews/39/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [白宫报告：川普政府的政绩——截至2021年1月（二）](/content/gnews/40/README.md)
+ ` 波士顿五月花农场`
+
+### [【大选推特实况】1/16/2021 中国共产党是一个威胁, 但是中国人民不是&#8230;](/content/gnews/41/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [白宫报告：川普政府的政绩——截至2021年1月（一）](/content/gnews/42/README.md)
+ ` 波士顿五月花农场`
+
+### [视频【疫情快讯】北京周边疫情爆发，中共强令阻止进入北京](/content/gnews/43/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【大选推特实况】1/16/2021 川普政府结束了数十年来对中共的绥靖和被误导的合作政策&#8230;](/content/gnews/44/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【2021/01/15】文贵先生盖特](/content/gnews/45/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+
+### [视频1/15/2021 弹劾的真正目的是为了阻止川普2024年再次参选](/content/gnews/46/README.md)
+ ` 秘密翻译组G-Translators`
 
