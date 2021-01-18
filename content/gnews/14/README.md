@@ -1,25 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 1/17/2021 财经快讯: 中欧协议达成前景不明朗; 2021春运下降近6成
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/762046/)
+## 中共国等多地黑客被证实入侵2020年美国大选系统
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/763563/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture3-11.png)图片来源：[https://euobserver.com/economic/146553](https://euobserver.com/economic/146553)
-1.受美国大银行业绩报告拖累，纽约股市在本周五开盘大幅下滑。富国银行下跌7.8%，是拖累标普500的元凶之一。于此同时由于监管部门加大了对埃克森美孚的监管力度，其股价在周五下滑4.8%，而其他能源股亦受到重挫。
-[https://www.reuters.com/article/us-usa-stocks/wall-street-closes-lower-as-banks-energy-shares-tumble-idUSKBN29K1BY](https://www.reuters.com/article/us-usa-stocks/wall-street-closes-lower-as-banks-energy-shares-tumble-idUSKBN29K1BY)
+加拿大多伦多枫叶农场 阿黎
+校对 文锦
+发稿 云起时
+![]()![](https://gnews.org/wp-content/uploads/2021/01/theberkeleyschool.org_-1.jpg)图片来源：theberkeleyschool.org
+据WVW广播网2021年1月11日报道，《美国报告》独家获得的原始数据分析显示，在2020年总统大选期间，中共国、俄罗斯、香港、德国、加拿大和捷克的黑客侵入了宾夕法尼亚州、内华达州、密歇根州和佐治亚州等战场州。
 
-2.Market Insider在本周五提到了5个投资者需要注意的关键词，分别为大银行，中央银行，债券收益率，比特币和拜登。尽管美股在2021年的第二周还是创下了新高，但疲软的劳动力市场数据和川普弹劾案仍然是市场的不稳定因素。同时拜登的所谓1.9万亿经济刺激计划也引发了公众对通胀的担忧。
-[https://markets.businessinsider.com/currencies/news/markets-outlook-biden-inauguration-bitcoin-bonds-and-banks-in-focus-2021-1-1029974881](https://markets.businessinsider.com/currencies/news/markets-outlook-biden-inauguration-bitcoin-bonds-and-banks-in-focus-2021-1-1029974881)
+数据分析显示，2020年11月3日，来自中国电信企业华为云和华为总部的IP地址入侵了宾夕法尼亚州县级选举办公室的IP地址。属于华为的IP地址——华为香港云入侵了密歇根州的一个IP地址。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/12-3.png)图片来源：原文视频截图
+中国国有电信运营商中国联通拥有的IP地址入侵了宾夕法尼亚州县级选举办公室的IP地址和宾夕法尼亚州国务卿办公室拥有的一个IP地址。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/14-1.png)图片来源：原文视频截图
+11月3日和11月4日，来自中国互联网提供商中国网（ChinaNet）的IP地址入侵了内华达州各县办公室的IP地址。来自中国网的一个IP地址在11月3日入侵了下辖拉斯维加斯的克拉克县选民登记处的网站。
 
-3.据QZ网昨日分析指出，尽管去年底中欧签署了一系列贸易协议，中欧的合作前景仍然非常不明朗。许多分析人士担心，欧盟可能不太愿意在劳工和人权问题上与中共对峙；并引用去年的美中第一阶段协议为例，认为此次协议或也最终不了了之。
-[https://www.msn.com/en-us/news/world/the-eu-china-investment-deal-broken-down/ar-BB1cMo1O?ocid=msedgdhp](https://www.msn.com/en-us/news/world/the-eu-china-investment-deal-broken-down/ar-BB1cMo1O?ocid=msedgdhp)
+来自阿里巴巴集团旗下的子公司阿里云计算公司多个IP地址，在11月3日入侵了密歇根州四个县办公室的IP地址。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/13-1.png)图片来源：原文视频截图
+11月3日，来自莫斯科卡巴斯基实验室的IP地址黑进了密歇根州利拉诺县的IP地址。卡巴斯基是一家俄罗斯软件和网络安全公司，为尤金-卡巴斯基和他的前妻娜塔莉亚-卡巴斯基共同创立。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/11-3.png)图片来源：原文视频截图
+卡巴斯基实验室的首席执行官尤金-卡巴斯基曾在苏联军事情报部门任职，毕业于克格勃高等学校技术系，即现在的密码学、电信和计算机科学学院，隶属于俄罗斯联邦联邦安全局，也就是俗称的FSB。
 
-4.据路透社周日报告，意大利预测今年债务或将达到二战后新高，至GDP 的158.5%。此次预估反映了本周宣布的320亿欧元320亿欧元（合390亿美元）的一揽子刺激计划的影响，这将使2021年的预算赤字占国民生产总值的8.8％，高于此前目标的7％。这笔额外的支出将用于帮助国家卫生服务，并为推迟缴税期限提供保障。
-[https://www.reuters.com/article/italy-budget-debt/italy-public-debt-to-hit-new-post-war-record-in-2021-at-158-5-of-gdp-source-idUSL8N2JR0EQ](https://www.reuters.com/article/italy-budget-debt/italy-public-debt-to-hit-new-post-war-record-in-2021-at-158-5-of-gdp-source-idUSL8N2JR0EQ)
+娜塔莉亚-卡巴斯基现在是俄罗斯InfoWatch集团的首席执行官，据报道其净资产为2.7亿美元。据彭博社报道，”娜塔莉亚-卡巴斯基的防窥探手机帮助普京挫败间谍”。
 
-5.2021年铁路春运节前车票的预售较往年同期下降近6成，预计全国铁路春运客流将下调至2.96亿人次。为减少人员流动，已有北京、上海、河南、山西等29个省区市倡议“就地过年”，建议“非必要不返乡”、“非必要不出省”。“就地过年”和部分地区疫情将影响超一亿人通过铁路出行，降幅约27%。
-[https://www.163.com/dy/article/G0FQUUAF0534KXLK.html?clickfrom=w\_money](https://www.163.com/dy/article/G0FQUUAF0534KXLK.html?clickfrom=w_money)
+川普总统在签署《2018年国防授权法案》（NDAA）时，禁止卡巴斯基进入所有美国政府网络。”该禁令作为川普签署的更广泛的国防政策支出法案的一部分，加强了川普政府9月发布的一项指令，即民用机构在90天内删除卡巴斯基实验室软件，”路透社2017年12月12日报道。”该法律适用于民用和军用网络。” 在卡巴斯基实验室起诉美国国土安全部后，美国哥伦比亚特区地方法院法官科琳-科拉尔-科特利（Colleen Kollar-Kotelly），美国外国情报监视法院（FISA Court）前主审法官维持了川普总统的禁令。
 
-秘翻组·金融法律组
+据路透社报道，”国土安全部高级网络安全官员克里斯托弗-克雷布斯（Christopher Krebs）告诉记者，几乎所有的政府机构都已经按照9月份的命令，将卡巴斯基产品从他们的网络中完全移除”。川普总统在2020年11月中旬 “解聘 “了克雷布斯，因为克雷布斯声称2020年的选举是历史上最安全的选举。
 
-0
+据分析，来自德国研究型大学斯图加特大学的IP地址在11月3日入侵了密歇根州利文斯顿县政官的一个IP地址。
+
+来自加拿大多伦多的亚马逊数据服务公司IP地址，于11月3日入侵了密歇根州卢斯县政官的IP地址。多米尼投票系统公司（Dominion Voting Services）总部位于多伦多。亚马逊网络服务（AWS）是美国选举云服务的主要提供商。
+
+11月3日，来自总部位于捷克共和国的搜索引擎Seznam的IP地址，以及捷克提供移动通信和互联网接入服务的O2捷克公司的IP地址，黑入了密歇根州县政官办公室的IP地址。
+
+来自中共国上海优云信息技术有限公司的IP地址，在11月3日入侵了密歇根州的IP地址。
+
+11月4日，总部位于中国的阿里云计算有限公司和中华网黑进了佐治亚州的一个IP地址。
+
+中共和俄罗斯大规模骇客了美国多个州、县政府的IP地址，中共国（主要的骇客）操纵2020美国大选，证据确凿！根据北约协议，仅骇客美国政府机构一条，已证明美国遭到了中共国的攻击，北约无需预警，随时可以武力打击中共国。中共这个不堪一击的纸老虎，任何国际上的一点攻击和惩罚都可能是至其于死地的最后一击。
+
+[原文链接](https://www.worldviewweekend.com/news/article/exclusive-proof-china-russia-hacked-2020-election-ip-addresses-china-russia-hong-kong)
+
++4

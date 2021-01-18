@@ -1,25 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥：中共是我们这个时代的核心威胁
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/761904/)
+## 路德时评简讯（视频版）：习近平依然没有露脸视频；中共三大电信公司是否已经被纽交所退市？(2020.1.14 早间 路德社简讯之 路安墨唐谈)
+` 路德社` [轉載自GNews](https://gnews.org/zh-hans/762007/)
 
-- 编辑：Victor Torres
+《路德社》出品
 
+以下视频是详细内容：
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+内容摘要：
 
-**西班牙2021年1月17日电/西喜社——**蓬佩奥周日发推称：
+1.习近平放出1月6日给星巴克的信意义何在。
 
-与你从全球主义者和其他 “专家 “那里听到的相反，川普政府在中共这个时代的核心威胁问题上，从来没有采取过单边行动。我们已经建立了一个全球多边共识来对抗它。
+2.习给舒尔茨回信的价值。
 
+3.中共三大电信公司已经停止股票交易。
 
+翻译：路德社翻译组
+制作：路德社简讯视频组
+审核校对：玫瑰天空
+上传排版：糊糊文婴
 
-> Contrary to what you hear from the globalists and other "experts," the Trump Administration has never been unilateral on the central threat of our time, the CCP. We have built a global multilateral consensus to counter it. [#LeadingFromTheFront](https://twitter.com/hashtag/LeadingFromTheFront?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/23hFsHLBfA](https://t.co/23hFsHLBfA)
-> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350797521224835072?ref_src=twsrc%5Etfw)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
-
-0
++1

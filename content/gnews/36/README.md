@@ -1,75 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥1月16日推文连连看，33篇，篇篇似檄文
-` GM126` [轉載自GNews](https://gnews.org/zh-hans/761315/)
+## 中共再次阻挠世卫组织的调查是再度演双簧？
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/762904/)
 
-1月16日，美国国务卿迈克尔·蓬佩奥先生在其官方推特上，一天内发布33篇推文，内容直指中共，可谓是新时代的讨共檄文。而且内容丰富，角度多样，表现手法丰富，文字、图片、视频等各种形式淋漓尽致表现出了中共的邪恶的本质，为接下来更猛的重锤落下做好了铺垫。现整理推文如下：
+新闻来源：BREITBART《布莱特巴特》； 作者：John Hayward； 发布时间：2021年1月14日
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1-72.jpg)注意背景是迎接黎明的时分，现在是黑暗最后的时刻
+翻译/简评：Victory；校对：SilverSpurs7；审核：万人往；Page：小雨
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/2-47.jpg)明确指出中共的威胁，背景是暗血色的五星红旗
+[!\[\]()!\[\](https://spark.adobe.com/page/kK2uAcDiKOLMI/images/fe135b8b-f84f-47c7-a8ef-dc14e585827d.png?asset_id=985bbe01-5531-4cf6-a197-9f66b409f5c6&amp;img_etag=%2241685a0da0fa71e24758a6763a031d6b%22&amp;size=1024)](https://spark.adobe.com/page/kK2uAcDiKOLMI/images/fe135b8b-f84f-47c7-a8ef-dc14e585827d.png?asset_id=985bbe01-5531-4cf6-a197-9f66b409f5c6&amp;img_etag=%2241685a0da0fa71e24758a6763a031d6b%22&amp;size=1024)*世卫新冠病毒源头调查组成员抵达中国武汉天河国际机场。（2021年1月14日）*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/3-33.jpg)注意蜡烛的颜色，一般红白蓝颜色，象征自由、平等、博爱
+#### **简评：**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/4-30.jpg)特朗普政府对中共的态度，自由与暴政的矛盾，美国不再妥协
+世卫组织在和中共合演一出双簧给世人，让人们相信世卫组织是冲破阻力来到中共国调查的，从而为其调查报告增加一些可信度。然而我们不会忘记，从疫情爆发开始，世卫组织就在和中共配合，掩盖病毒真相，压制有效药物的推广（如羟氯喹），从而造成了中共病毒的全球大流行，数千万人感染，近200万人死亡。世卫组织某些人（如谭德赛）手上沾满了鲜血。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/5-27.jpg)区分了中共和中国人民，中国人民也希望摆脱奴役
+疫情爆发已经一年多了，武汉实验室证据早就彻底销毁，所谓的华南海鲜市场也被拆除。现在去武汉调查，而且是按照中共国安排的地点和程序，不如说是去考古。正如闫丽梦博士说的，他们此去无非是旅游一趟，接受中共的“蓝金黄”，然后对世界公布中共准备好的“自然来源”结论报告。但这种低级表演不可能蒙混过关。我们知道美国官方已经正式认定为实验室人造病毒。接下来的灭共行动会越来越猛烈，中共的日子该倒数了。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/6-21.jpg)奥巴马与习近平“勾兑”的背影，接下来会揭秘吧
+#### **原文翻译：**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/7-16.jpg)谷歌翻译的中文简直是疯了，这里明明原文写的是中共打破了对香港的承诺。原文：“The CCP broke its promise to the people of Hong Kong”。曾经的香港是一个安全、繁荣、自由的社会。现在呢？
+# 中共国再次阻挠世卫组织的调查
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/8-9.jpg)紧接着，提到了制裁香港官员
+[!\[\]()!\[\](https://spark.adobe.com/page/kK2uAcDiKOLMI/images/8e8bcdc3-70f1-4229-aa15-1cda3e00cc75.jpg?asset_id=2112fce3-f04d-416e-bee7-b6c6d3c52658&amp;img_etag=%22f7e5912b90ef4c6822fe15f2e772b3e6%22&amp;size=2560)](https://spark.adobe.com/page/kK2uAcDiKOLMI/images/8e8bcdc3-70f1-4229-aa15-1cda3e00cc75.jpg?asset_id=2112fce3-f04d-416e-bee7-b6c6d3c52658&amp;img_etag=%22f7e5912b90ef4c6822fe15f2e772b3e6%22&amp;size=1024)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/9-5.jpg)中美贸易公平吗？
+**中共国官员周四阻止世界卫生组织(W.H.O.)调查中共冠状病毒来源小组的两名成员进入中国。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/10-5.jpg)谈及病毒
+据称，这两名队员检测血液时，中共冠状病毒抗体呈阳性。其余13名队员表示，他们将继续前往疫情原点——武汉，在进行为期两周的强制隔离后就开始工作。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/11-4.jpg)中共蓄意撒谎，掩盖真相，杀害知情者。图片中的李文亮医生是冠状病毒的吹哨人之一，结果被患新冠病毒死亡。口罩是暗绿色，象征着毒药的颜色。口罩也寓意封住你的嘴，口罩上的血渍意味着血腥的镇压。右边名字和和底色，正是中共五星旗的配色。Google字母用的红色，意味被中共同化
+两名被禁科学家被阻止登上从新加坡飞往中国的航班。正如《南华早报》(SCMP)周四指出，世卫组织并未正式承认中共国官方为禁止他们而引用的测试标准：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/12-2.jpg)中共封闭国内旅行，却开放飞往世界的航班，就是投毒行为
+*这两位科学家对用于诊断活性感染的标准核酸测试呈阴性，但对新冠病毒血清抗体（IgM）的测试呈阳性，这可能指向最近的感染。*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/13-2.jpg)相对应，特朗普政府一直在呼吁真相
+*中共国要求从新加坡飞来的乘客，在登上飞往中国航班前两天进行核酸检测和新冠病毒血清抗体（IgM）检测。然而，世卫组织的指导意见称，抗体检测不应用于诊断急性新冠病毒感染，因为抗体在感染后几周才会形成。*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/14-3.jpg)习近平承诺的南海非军事化也是谎言，而特朗普政府捍卫国家安全。这里提到的是习近平总书记，而不是传统说法总统，更加强调习近平是中国共产党的首领，不认可是国家的首领
+*世卫组织说，这两名科学家仍在新加坡接受新冠病毒血清抗体（IgM）和另一种类型的新冠病毒血清抗体（IgG）的重新测试。这些抗体被认为比IgM抗体更持久，表明一个人以前曾被感染过。*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/15-4.jpg)定性不是冷战。言下之意，这是超限战，新时代的战争。美国已经死亡如此多的人口，不是战争是什么？！
+[!\[\]()!\[\](https://spark.adobe.com/page/kK2uAcDiKOLMI/images/fed2f5ad-4a08-4c2d-9ec8-6e30a517cdef.jpg?asset_id=474d7fbf-0705-4321-9f3f-aa6748c884ba&amp;img_etag=%227a6179e6f3c12f96904e5fe4bdec3e6f%22&amp;size=1024)](https://spark.adobe.com/page/kK2uAcDiKOLMI/images/fed2f5ad-4a08-4c2d-9ec8-6e30a517cdef.jpg?asset_id=474d7fbf-0705-4321-9f3f-aa6748c884ba&amp;img_etag=%227a6179e6f3c12f96904e5fe4bdec3e6f%22&amp;size=1024)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/16-3.jpg)间谍的渗透、蓝金黄、3F、偷窃等等
+世卫组织指出：“所有队员在出行前在本国进行的新冠病毒核酸检测（PCR）和抗体检测多次呈阴性。”而南华早报援引医学专家的话说，中共国采用的检测方法极易产生假阳性结果。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/17.jpg)不是党派之争，而是人类生死存亡的问题，这句话多像是文贵先生和闫博士口中的话啊，浓浓的爆料革命风格
+“参加考察的10名国际科学家包括来自日本、卡塔尔、德国、越南、俄罗斯、澳大利亚、丹麦、荷兰、英国和美国的公共卫生专家、动物卫生专家和病毒猎人。此外，将从新加坡飞往武汉的15人代表团还包括来自世界卫生组织和世界动物卫生组织的专家。”《南华早报》报道。报道没有说明被中共国禁止入境的两名成员的国籍或背景。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/18.jpg)立法机构也被渗透，中共对美国三权分立体系的严重破坏
+上周，由于模糊的“签证审批”问题，中共国阻拦了世卫组织小组的两名成员。在此之前，中共国搁置了整个世卫组织代表团，因为中共说他们进入中国的许可还没有“完成”，这让世卫组织总干事谭德赛罕见地表示失望。谭德赛不得不联系中共国高级官员，并向他们充分强调冠状病毒调查的”绝对重要性”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/19.jpg)文化领域也被渗透，中共对学术领域的混淆视听，企图掩盖真相，洗脑控民。配图十分生动形象
+“早期的阻挠使这个充满政治敏感性的任务更加复杂，因为北京已发动了一场广泛的运动，对首次在中国中部发现的病原体的起源提出怀疑。”《华尔街日报》指出，世卫组织和中共国政府已花了几个月时间谈判这项检查任务的条款，该任务已被数次推迟，联合国机构的研究人员表示，他们对中共国科学家在本应是协作努力中制造的麻烦不太理解。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20.jpg)孔子学院就是大外宣之一，进行着虚假信息洗脑和渗透，被川普政府关闭
+🔗[原文链接](https://www.breitbart.com/national-security/2021/01/14/china-blocks-w-h-o-inspectors-again/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+breitbart+%28Breitbart+News%29)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/21.jpg)配图说的是孔子学院被关闭的数量，可是越看越像中共隐瞒的情况所剩不多了，绝大多数都被川普政府掌握了
+[【英国伦敦喜庄园】在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/22-1.jpg)视频抨击中共
+[【英国伦敦喜庄园】在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/23-1.jpg)脱钩，制裁
+[【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/24.jpg)识别了大外宣
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/25-1.jpg)配图是华春莹，中共的喉舌，撒谎成性。习近平说，他们必须为党说话，可见这个党也是撒谎成性的党
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/26-1.jpg)与其他国家的合作，加拿大是五眼联盟之一，同时也是被中共严重蓝金黄的国家之一，也是美加墨新贸易协定国之一，在推文中单独提及了加拿大
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/27-1.jpg)对侵犯人权的官员实施制裁。背景图有“解放军”，匹配了中共是邪恶力量
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/28-1.jpg)盗窃技术、资金
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/29.jpg)强调第一次公开宣布中国南海主张非法，并实施制裁。图中文字称呼南中国海，而不是中国南海
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/30-1.jpg)提到西藏问题和制裁
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/31.jpg)揭露新疆人权问题
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/32.jpg)提供新疆被迫害人民的发声平台
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/33-1.jpg)google将中共政府翻译成本届政府，客观上混淆主体。原意是中共政府与美国人民对立
-
-+6
+编辑：【英国伦敦喜庄园编辑部】
+[!\[\]()!\[\](https://spark.adobe.com/page/kK2uAcDiKOLMI/images/9f65b6d5-f9a5-40cf-9fd6-3d3eda82fd23.jpg?asset_id=ecb81afe-c3d0-49c0-b6b1-a08cc6d7455a&amp;img_etag=%2234e372e20c5705b800bceb7a814f6e38%22&amp;size=1024)](https://spark.adobe.com/page/kK2uAcDiKOLMI/images/9f65b6d5-f9a5-40cf-9fd6-3d3eda82fd23.jpg?asset_id=ecb81afe-c3d0-49c0-b6b1-a08cc6d7455a&amp;img_etag=%2234e372e20c5705b800bceb7a814f6e38%22&amp;size=1024)
++2

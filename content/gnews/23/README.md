@@ -1,87 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特实况】1/16/2021 国务院证实武汉病毒研究所同中共军方合作秘密项目&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/761807/)
+## 被掩盖的真相：卫生专家们极力反对封锁防疫
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/763232/)
 
-【大选实况】1/16/2021 美东时间7:57PM Bill Gertz 推文： 我在2020年1月首次报道武汉病毒学研究所与解放军有关联。现在国务院证实武汉病毒学研究所同中共国军方合作秘密项目。自2017年以来，”武汉病毒学研究所为中共国军方从事机密研究，包括实验室动物实验”。
+加拿大多伦多枫叶农场 硫酸羟氯喹64
 
+校对 上传 小鸥
+![]()![](https://gnews.org/wp-content/uploads/2021/01/L.jpg)图片来自 theirshsentinel.com
+目前加拿大联邦和各省政府，特别是安大略省采取的极端防疫措施——社区封锁和全面戒严。对此，有良知和正义感的医学和健康专业人员及卫生领域的科学家们，都毅然自发地联合起来，以各种形式，站在医学卫生科学的角度，呼吁政府立刻停止继续实施各种封锁政策。他们提出专业的抗疫方法和建议，以更有效地控制中共病毒的蔓延，切实降低疫情所导致的次生灾难。
 
+但长期以来，科学家们这些对真相的揭示和呐喊，一直就被当权政府所控制的主流媒体压制、掩盖，这些控制疫情泛滥的科学合理言论得不到广泛传播，更谈不上被加拿大广大人民所了解和接受。
 
-> I first reported in Jan. 2020 that Wuhan Institute of Virology is linked to PLA. Now State confirmed WIV did secret projects with China’s military. “WIV engaged in classified research, including lab animal experiments for the Chinese military” since 2017 [https://t.co/e7QH5LNo2J](https://t.co/e7QH5LNo2J)
-> — Bill Gertz (@BillGertz) [January 17, 2021](https://twitter.com/BillGertz/status/1350608194075287555?ref_src=twsrc%5Etfw)
+有鉴于此，加拿大独立进步媒体TRUTH NORTH 于1月15日专门刊文揭示真相，告诉世人大多数医学和健康科学专家们反抗和驳斥这些极端的法规，希望公众了解封锁政策的危害。
 
+全文如下：
 
-来源：[https://twitter.com/BillGertz/status/1350608194075287555](https://twitter.com/BillGertz/status/1350608194075287555)
-盖特链接：[https://gtv.org/getter/6003971887fabe2daf3b172f](https://gtv.org/getter/6003971887fabe2daf3b172f)
+随着中共病毒疫情的急剧蔓延，反对实行社区封锁的卫生专家和医疗专业人员的人数也在迅速攀升。
 
-* * *
+迄今为止，已有成千上万的医生和专家们开始坚决反对当权政府通过封锁禁足所实行的抗疫措施，但是，加拿大各省仍在继续推动着让人们进一步陷入人身被禁锢的政策。
 
-【大选实时报】1/16/2021 美东时间 1:30PM调查记者约翰·所罗门John Solomon 推文： 美国务院称新证据指向武汉实验室， 指责中共国在COVID初始问题上存在 ‘欺骗’。
+**五名专家签署回应称现有的封锁政策根本“无法防御”疫情扩散：**
 
+本月早些时候，五名医学专家在《加拿大医学协会日报》上发表了声明，敦促现政府尽快结束全面的封锁措施。
 
+这些专家包括两名呼吸专科医师，一名医学微生物学家和两名传染病专家。
 
-> State Department says new evidence points to Wuhan lab, accuses China of ‘deceit’ over COVID start | Just The News [https://t.co/oXAxu7RsoI](https://t.co/oXAxu7RsoI)
-> — John Solomon (@jsolomonReports) [January 16, 2021](https://twitter.com/jsolomonReports/status/1350505796229095424?ref_src=twsrc%5Etfw)
+声明写道，“（封锁）对所有人造成的各种社会和经济的负面影响无可估量。”
 
+尽管在全面封锁和严格限制经济活动的地区采取了这些极端措施，但病毒仍大量传播的案例始终不断发生。而且，该病毒中等程度的传播率与其小的致死亡率（如果有超出的话）相关。
 
-来源：[https://twitter.com/jsolomonReports/status/1350505796229095424](https://twitter.com/jsolomonReports/status/1350505796229095424)
-盖特链接：[https://gtv.org/getter/60035b6687fabe2daf3afa3b](https://gtv.org/getter/60035b6687fabe2daf3afa3b)
+**安大略省的****20****名医生联合签署公开信，反对重返封锁状态**：
 
-* * *
+早在2020年10月，20位医生和医学教授就敦促安大略省总理道格·福特（Doug Ford）避免使该省陷入第二次封锁。
 
-【大选实况】1/16/2021 EST 8:30 pm 国务卿彭佩奥推文： 我们与西藏人民站在一起，支持他们享有宗教自由和文化认同的权利。我们对阻止自由进入西藏地区（互惠对等政策）的官员施加了前所未有的签证限制。#与西藏站在一起
+信中写道：“我们的目的是为了支持政府所采取的明智且因地制宜的方针计划，而不是实施新的封锁措施来应对安大略省不断增加的病毒感染病患。”
 
+封锁已被证明并不能消除该病毒。尽管它们可能减缓了病毒的传播速度，但这种作用只能持续到封锁结束的时刻。这就造成了始终无法结束封锁的恶性循环局面，包括卫生部门、经济领域和其他至关重要物质领域的社会，无法以至关重要的正常方式运转前行，这其中还包括了教育，娱乐和健康的人类社会互动等方面。”
 
+**有世卫组织官员也反对使用封锁作为主要抗疫方法：**
 
-> We stood with the people of Tibet and supported their right to religious freedom and cultural identity. We have imposed unprecedented visa restrictions on officials who block reciprocal access to Tibetan areas. [#StandWithTibet](https://twitter.com/hashtag/StandWithTibet?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/zKpVEK9UJN](https://t.co/zKpVEK9UJN)
-> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350616326818164738?ref_src=twsrc%5Etfw)
+2020年10月，世界卫生组织COVID-19特使David Nabarro医生敦促世界各国政府避免将封锁作为对抗冠状病毒的“主要控制方法”。
 
+该医生说，“我们并不主张将封锁作为防控该病毒的主要手段，唯一有理由进行封锁的前提是，政府有时间进行重组，重聚，及重新平衡其抗疫资源，并能以此保护那些疲惫不堪的医务人员。但总的来说，我们建议最好不这么做。”
 
-来源：[https://twitter.com/SecPompeo/status/1350616326818164738](https://twitter.com/SecPompeo/status/1350616326818164738)
-盖特链接：[https://gtv.org/getter/6003987987fabe2daf3b17ae](https://gtv.org/getter/6003987987fabe2daf3b17ae)
+**世界数以千计的科学家签署宣言，共同谴责极端的抗疫政策所导致的危害**：
 
-* * *
+迄今为止，已有超过13，200多名医学和公共卫生科学家签署了《大巴灵顿宣言》，以呼吁尽快结束各国政府采取的封锁措施。签署者包括来自世界各地的卫生医学专家。目前，已有超过12名加拿大医生，教授和科学家签署了该文件。
 
-【大选实况】1/16/2021 EST 8:00 pm 国务卿彭佩奥推文： 有史以来第一次，美国政府公开宣布中国共产党在南海的主张是“完全非法的”，并制裁了20多家协助中共海洋主张的中共国公司。 【附图文字：世界不会允许北京政权将南中国海作为中共的海洋帝国】
+“我们这些来自世界各地持不同政见的科学专家们，共同投身于医疗事业以保护人们的健康。现在的封锁政策正在对目前和将来的公共卫生产生致命的破坏性影响。这一恶果（仅举几例）包括：儿童的疫苗接种率降低，心血管疾病加重，癌症筛查诊断病患数减少和心理健康恶化等，这些不利因素都将导致未来几年更高的超额死亡率。届时，蓝领阶层和较年轻的社会成员将背负所有重担。”声明还强调：“由此导致的学生辍学是极不公正的。如果一直采取封锁措施直到有疫苗可用的政策，这将对社会造成无法弥补的损失，而弱势群体也会因此受到严重的伤害。”
 
+**安大略省医师呼吁尽快结束“有害和荒谬”的封锁：**
 
+2020年8月，安大略省医生协会主席Kulvinder Gill Kaur医生就在推特上呼吁应该立刻结束该省的严格封锁手段。他在其推文中写道，“这种长期、有害和不合逻辑的封锁绝对没有任何医学或科学依据。”
 
-> For the first time ever, the U.S. government openly declared the CCP’s claims in the South China Sea “completely unlawful” and sanctioned more than 20 PRC companies for aiding PRC’s maritime claims. [pic.twitter.com/Pf77wXvMBu](https://t.co/Pf77wXvMBu)
-> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350608778564153344?ref_src=twsrc%5Etfw)
+**多伦多圣迈克尔****医院****的医生也反对进一步的封锁：**
 
+2020年10月，圣迈克尔医院内科主任罗伯特·萨金特（Robert Sargeant）医生发表讲话，反对政府采取的进一步封锁措施，并声称更好的解决方案是将重点放在病毒传播的高风险领域。“目前，毫无必要进行更多的封锁。我们必须特别关注处于高风险病毒环境中，所遭受高风险的那些个人，并集中精力解决这一问题。” 罗伯特强调。
 
-来源：[https://twitter.com/SecPompeo/status/1350608778564153344](https://twitter.com/SecPompeo/status/1350608778564153344)
-盖特链接：[https://gtv.org/getter/60038e9b87fabe2daf3b1309](https://gtv.org/getter/60038e9b87fabe2daf3b1309)
+**传染病和重症监护专家对封锁所造成经济****的****负面影响发出警告**：
 
-* * *
+阿尔伯塔大学Stollery儿童医院的Avi Joffe医生去年曾表示说：“我真的很担心（封锁）措施会破坏我们子孙后代的经济和未来。”
 
-【大选实况】1/16/2021 EST 9:30 pm 国务卿彭佩奥推文： 本届政府已直截了当地告诉美国人民：中共是一个马克思列宁主义拥趸者，它们对我们的价值观和生活方式明确表示了敌意。
+**皇后大学医学院教授和医学博士说封锁政策对防控病毒无效：**
 
+皇后大学医学院教授Matt Strauss博士坚决反对禁闭措施。根据该博士的说法，封锁已被证明对防控疫情是无效的，并因此而造成了巨大的社会危害。他表示：“实施封锁不仅对社会和健康带来高风险，而且已被证明是百害而无一利的。”他还发推文指出，医学证据的标准规范要求我们必须停止推动这些极端措施的执行。
 
-
-> This administration was straight with the American people: The CCP is a Marxist-Leninist party that has made clear its hostility to our values and way of life. [https://t.co/UWJCI4ZhHC](https://t.co/UWJCI4ZhHC)
-> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350631438329241600?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1350631438329241600](https://twitter.com/SecPompeo/status/1350631438329241600)
-盖特链接：[https://gtv.org/getter/6003c28687fabe2daf3b2bd7](https://gtv.org/getter/6003c28687fabe2daf3b2bd7)
-
-* * *
-
-【大选实时报】1/16/2021 美东时间10:00PM 章家敦推文： 川普总统不惧怕北京，开始让中国付出代价。他的继任者将必须也这样做。这就是川普的外交政策遗产。
+原文链接：
 
 
 
-> Prez [#Trump](https://twitter.com/hashtag/Trump?src=hash&amp;ref_src=twsrc%5Etfw), unafraid of [#Beijing](https://twitter.com/hashtag/Beijing?src=hash&amp;ref_src=twsrc%5Etfw), began imposing costs on [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw). His successors will have to do the same. That’s Trump’s foreign policy legacy. [#Newsmax](https://twitter.com/hashtag/Newsmax?src=hash&amp;ref_src=twsrc%5Etfw) [@Tom\_Basile](https://twitter.com/Tom_Basile?ref_src=twsrc%5Etfw) [@newsmax](https://twitter.com/newsmax?ref_src=twsrc%5Etfw) [https://t.co/ElOoXNZKos](https://t.co/ElOoXNZKos)
-> — Gordon G. Chang (@GordonGChang) [January 17, 2021](https://twitter.com/GordonGChang/status/1350639154514833408?ref_src=twsrc%5Etfw)
+> [JUST THE FACTS: the health experts who are speaking out against lockdowns](https://tnc.news/2021/01/15/just-the-facts-the-health-experts-who-are-speaking-out-against-lockdowns/)
 
 
-来源：[https://twitter.com/GordonGChang/status/1350639154514833408](https://twitter.com/GordonGChang/status/1350639154514833408)
-盖特链接：[https://gtv.org/getter/6003d9e387fabe2daf3b373f](https://gtv.org/getter/6003d9e387fabe2daf3b373f)
 
-* * *
-
-**By： 【秘密翻译组 G-Translators】**
-
-0
++4

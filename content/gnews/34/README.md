@@ -1,89 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特实况】1/16/2021 中共国政府释放了病毒&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/761400/)
+## 美航空业人员接种中共病毒疫苗48小时后方可执行任务
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/763047/)
 
-【大选实况】1/16/2021 EST 12:37 pm 国务卿彭佩奥推文： 中共封闭其境内旅行，却让世界受苦。美国为世界发明疫苗。每个人都能看到这种对比。 【附图文字：中共国政府释放了病毒】
+*加拿大草原三省战友之家       文静*
 
+*校对、发稿 文锦*
+![]()![](https://gnews.org/wp-content/uploads/2021/01/FAA-e1506642142688.jpg)图片来源： Dronelife
+据《自由人类》1月16日报道，已有很多关于中共病毒疫苗接种者出现严重副作用甚至死亡的报道。据航空协会（AOPA）的消息: 美国联邦航空局（简称FAA）于2020年12月19日批准了适用于飞行员和空中交通管制人员的现代（Moderna）中共病毒疫苗，与此前批准的辉瑞生物科技公司的疫苗一样要求在“执行安全敏感航空任务”之前有48小时的等待期。
 
+该政策发布的前一天，美国食品和药物管理局(简称FDA)批准了现代中共病毒疫苗的紧急使用许可。辉瑞生物科技公司的疫苗于2020年12月11日获得FDA的批准，并于12月12日获得美国联邦航空局的批准。
 
-> CCP closed travel inside China and allowed the world to suffer. America invents vaccines for the world. Every human being can see this contrast. [pic.twitter.com/NTSQAOIUIW](https://t.co/NTSQAOIUIW)
-> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350497521714524160?ref_src=twsrc%5Etfw)
+联邦航空管理局航空医学办公室指岀：持有美国联邦航空局颁发的“飞行员医疗证书”或“体检合格证明”的人员，可以获得辉瑞生物技术公司或中共病毒疫苗; 然而，每次接种后必须遵守48小时的禁飞/无安全相关的工作间隔。
 
+该机构提醒飞行员和空中交通管制员，“如果他们不符合医疗证明要求，包括那些因药物不良反应而无法履行此类职责的要求，他们将被禁止执行空勤人员职责或空中交通管制职责。”
 
-来源：[https://twitter.com/SecPompeo/status/1350497521714524160](https://twitter.com/SecPompeo/status/1350497521714524160)
-盖特链接：[https://gtv.org/getter/600327a187fabe2daf3ae729](https://gtv.org/getter/600327a187fabe2daf3ae729)
+随着FDA批准更多的疫苗，FAA将评估和发布相关政策。该机构重申，它将“监测患者对辉瑞生物技术和现代疫苗的反应，并可能在必要时调整这一政策，以确保航空安全。”
 
-* * *
+去年12月13日，美国联合快运公司(UPS Inc.)在运送第一批辉瑞生物技术公司(pfizer – biotech)疫苗时，空中交通管制员和飞行员发挥了关键作用。
 
-【大选实况】1/16/2021 EST 12:37 pm 国务卿彭佩奥推文： 武汉病毒：中共掩盖了事实， 中共让知道的医生消失了。中共仍然拒绝让世界看到它所造成的后果。中共在病毒的来源上撒谎了。 【附图问题：请谷歌搜索李文亮】
+航空协会（AOPA）主席马克·贝克(Mark Baker)表示: “飞行员和空中交通管制员是抗击中共病毒疫情的关键角色，这在全年运送个人防护设备以及最近运输疫苗方面得到了证明。我很高兴联邦航空局迅速采取行动，评估并允许飞行员和管制员服用FDA批准的疫苗，并在短时间内返回工作和飞行。”
 
+其实中共病毒疫苗仍被认为是实验性的，在过去实验性疫苗导致了灾难后果。
 
+哥伦比亚广播公司60分钟节目《1976年猪流感骗局》曾揭露了一种疫苗的细节，该疫苗伤害了数千名美国人，他们最终起诉了美国政府。其中1986的有关文件显示，30多年前一项有争议的关于疫苗安全的美国国会法案使疫苗公司在伤害儿童时不承担责任。
 
-> Wuhan Virus: CCP covered it up. CCP disappeared the doctors who knew. CCP still refuses to let the world in to see what it wrought. CCP lied about where the virus came from. [pic.twitter.com/jVCETwUokO](https://t.co/jVCETwUokO)
-> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350497517356642306?ref_src=twsrc%5Etfw)
+**评：**
 
+中共病毒之所以造成全球大爆发和次生灾难，深层原因就是中共使用各种手段，令与之长期勾兑的各种势力和利益集团，成为其达到罪恶目的的帮凶，用所谓的疫苗谎言欺骗全世界。在各国因疫情伤亡惨重的情况下，无耻政客和沼泽黑暗势力始终觊觎和中共勾兑的既得利益，置人民生死于不顾，对投奔自由世界的闫博士所揭露的、大量超限生化病毒真相充耳不闻，并用所谓的疫苗以解决病毒为名敛财。
 
-来源：[https://twitter.com/SecPompeo/status/1350497517356642306](https://twitter.com/SecPompeo/status/1350497517356642306)
-盖特链接：[https://gtv.org/getter/6003284387fabe2daf3ae76d](https://gtv.org/getter/6003284387fabe2daf3ae76d)
+随着新中国联邦爆料革命对中共邪恶阴谋的大量、持续揭露，全世界有良知的和正义人士，必须对中共病毒真相有一个清醒的认识，新型冠状病毒就是中共制造的生化病毒武器，所谓的疫苗就是和中共狼狈为奸的利益集团，捏造出来伪劣产品！其罪恶目的就是想用病毒和所谓的疫苗来控制全世界，用“大重起”来颠覆西方的民主体制！我们只有消灭中共才能解救全人类，否则“留给人类的时间真的不多了！”
 
-* * *
-
-【大选实况】1/16/2021 EST 11:30AM 彭佩奥国务卿推文： 许诺给香港人民高度自治的中英联合声明是在联合国备案的条约，当中共无耻地撕毁了这份条约时，川普政府取消了香港自贸区协定，并制裁了中共以及和中共勾结的香港官员。
-
-【附图问题：没有一个正常人会说：香港现在是一个（不受中共控制的）高度自治地区】
-
-
-
-> When the CCP shamefully violated Sino-British Joint Declaration, a UN-registered treaty that promised a high degree of autonomy to Hong Kong people, the Trump Administration revoked Hong Kong's special trade status, sanctioned complicit CCP & HKSAR officials. [#StandWithHongKong](https://twitter.com/hashtag/StandWithHongKong?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/8vWFB6f0dL](https://t.co/8vWFB6f0dL)
-> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350480431313895425?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1350480431313895425](https://twitter.com/SecPompeo/status/1350480431313895425)
-盖特链接：[https://gtv.org/getter/6003190487fabe2daf3ae044](https://gtv.org/getter/6003190487fabe2daf3ae044)
-
-* * *
-
-【大选实况】1/16/2021 EST 12:01 pm 国务卿彭佩奥推文： 我们的立宪者明白，只有当个人能够行使宗教自由时，国家才能繁荣昌盛。政府应该保护这一权利，而不是宣传宗教意识形态。值此全国宗教自由日，我们重申对保护这一普遍权利的承诺。 【附图：全国宗教自由日】
-
-
-
-> Our framers understood that a nation flourishes when individuals can exercise their religious freedom. Governments should protect this right, not propagate a religious ideology. On National Religious Freedom Day, we reaffirm our commitment to protect this universal right. [pic.twitter.com/UTOQxJ5VqK](https://t.co/UTOQxJ5VqK)
-> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350438908354392066?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1350438908354392066?s=20](https://twitter.com/SecPompeo/status/1350438908354392066?s=20)
-盖特链接：[https://gtv.org/getter/6003203287fabe2daf3ae3b1](https://gtv.org/getter/6003203287fabe2daf3ae3b1)
-
-* * *
-
-【大选实况】1/16/2021 EST 12:00 pm 国务卿彭佩奥推文： 不对等贸易？对中共国产品征收关税。
-
-
-
-> No reciprocal trade? Tariffs on Chinese products. [pic.twitter.com/Mnl8Vd0R6z](https://t.co/Mnl8Vd0R6z)
-> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350487982038347776?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1350487982038347776](https://twitter.com/SecPompeo/status/1350487982038347776)
-盖特链接：[https://gtv.org/getter/6003205387fabe2daf3ae3bd](https://gtv.org/getter/6003205387fabe2daf3ae3bd)
-
-* * *
-
-【大选实况】1/16/2021 EST 12:22 pm 国务卿彭佩奥推文： 武汉病毒和实验室。我们仍然不知道到底发生了什么 @WHO需要进入。
-
-
-
-> Wuhan virus and the lab: We still don’t know what happened. [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) needs to get in. [https://t.co/oT4zKx9JuO](https://t.co/oT4zKx9JuO)
-> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350493767879581702?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1350493767879581702](https://twitter.com/SecPompeo/status/1350493767879581702)
-盖特链接：[https://gtv.org/getter/6003243d87fabe2daf3ae5a6](https://gtv.org/getter/6003243d87fabe2daf3ae5a6)
-
-* * *
-
-**By： 【秘密翻译组 G-Translators】**
+*[原文链接](https://humansarefree.com/2021/01/pilots-air-traffic-controllers-covid-19-vaccine-wait-48-hours.html)*
 
 +1

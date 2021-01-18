@@ -1,85 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特实况】1/16/2021 保护美国大学不受中共的恶性影响, 对学术自由至关重要&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/761582/)
+## 《开放天空条约》破裂后航空的未来
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/763077/)
 
-【大选实况】1/16/2021 EST 4:30 PM 国务卿彭佩奥推文： 保护美国大学不受中共的恶性影响，对学术自由至关重要。我们揭露了孔子学院的真实面目：中共的虚假信息和宣传部门的枢纽中心。它们在美国各地被迅速关闭。#不厌其烦的胜利
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭ССР
 
+编辑 水星 上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/图片1-11.jpg)topwar.ru
+1月15日俄罗斯宣布退出《开放天空条约》。在俄罗斯退出该条约后，两架俄罗斯图-214ON飞机将用于侦察目的。为此，他们将配备特殊设备。俄新社援引两位军事外交人士的话报道了这一情况。
 
+“在俄罗斯最终终止参加条约后，这两架图-214ON飞机都计划被重新分配，用于其他任务。这里主要是侦察功能和控制自己军事设施的安全。”一位对话者说。
 
-> Protecting American universities from the CCP’s malign influence is essential to academic freedom. We exposed Confucius Institutes for what they really are: hubs for disinformation and propaganda arms of the CCP. They are being closed fast across America. [#NotTiredofWinning](https://twitter.com/hashtag/NotTiredofWinning?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1pdOjn8nia](https://t.co/1pdOjn8nia)
-> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350555929784315907?ref_src=twsrc%5Etfw)
+据他介绍，这些飞机除其他外，将能用于客观监测不同军备的测试结果和评价演习的效果。
 
+该机构的另一位对话者说，使用图-214ON作为侦察机，需要在其上安装最现代化的无线电电子和无线电技术侦察设备。他指出：“在这方面已经做出了初步决定”。
 
-来源：[https://twitter.com/SecPompeo/status/1350555929784315907](https://twitter.com/SecPompeo/status/1350555929784315907)
-盖特链接：[https://gtv.org/getter/60035d4287fabe2daf3afae3](https://gtv.org/getter/60035d4287fabe2daf3afae3)
+消息人士补充说，虽然仍在设计图-214ON，但已假定它们有可能进行广泛的现代化改造，所以 “没有人会扔掉这么有价值的飞机”。
 
-* * *
+两位对话者都明确表示，在办理退约手续之前，这些飞机将一直待命。
 
-【大选实况】1/16/2021 EST 1:00 pm 国务卿彭佩奥推文： 当中共对武汉爆发的COVID-19疫情撒谎和隐瞒时，川普政府却带领全世界公开呼吁透明化，谴责掩盖事实。#中共撒谎人民死亡
+1月15日，俄罗斯外交部宣布，由于在消除新条件下条约继续运作的障碍方面缺乏进展，莫斯科已启动退出《开放天空条约》的国内程序。随后，该部发言人玛丽亚·扎哈罗娃（Maria Zakharova）表示，俄罗斯启动退出程序是因为美国退出条约后，围绕该协议的局势令人无法接受。
 
+1992年通过了《开放天空条约》，到2020年初，已有35个国家签署该条约。根据该文件，该条约的缔约国被允许非武装飞机飞越其他国家的领土进行监视。
 
+5月，华盛顿指责莫斯科违反该条约，并宣布打算退出该条约。美国对限制加里宁格勒地区和车臣上空的航班感到不满。克里姆林宫表示，这些措施是在协议框架内的，就像禁止飞越夏威夷上空一样。
 
-> While the Chinese Communist Party lied about and hid the COVID-19 outbreak in Wuhan, the Trump Administration led the world in publicly calling for transparency and denounced the cover-up. [#ChinaLiedPeopleDied](https://twitter.com/hashtag/ChinaLiedPeopleDied?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/7YkSmKb6dY](https://t.co/7YkSmKb6dY)
-> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350503084385034240?ref_src=twsrc%5Etfw)
+美国于去年11月正式退出该条约，这是在该条约宣布6个月后。根据美国国务卿迈克·蓬佩奥的说法，由于美国退出该条约，美国将成为一个更加安全的国家。
 
+参考链接：
 
-来源：[https://twitter.com/SecPompeo/status/1350503084385034240](https://twitter.com/SecPompeo/status/1350503084385034240)
-盖特链接：[https://gtv.org/getter/60032b5887fabe2daf3ae8be](https://gtv.org/getter/60032b5887fabe2daf3ae8be)
-
-* * *
-
-【大选实况】1/16/2021 EST 1:30 pm国务卿彭佩奥推文： 2015年，习总书记与时任美国总统奥巴马站在一起，表示中共 “无意将南沙群岛军事化”。这一承诺被打破。川普政府一直在保护捍卫主权的国家，抵御中国的侵略。
-
-
-
-> In 2015, standing with then President Barack Obama, General Secretary Xi said the CCP had “no intention to militarize” the Spratly Islands. This promise was broken. The Trump Administration has defended nations that defend their sovereignty against Chinese aggression. [pic.twitter.com/MyHjpX0bdt](https://t.co/MyHjpX0bdt)
-> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350510632500678656?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1350510632500678656](https://twitter.com/SecPompeo/status/1350510632500678656)
-盖特链接：[https://gtv.org/getter/6003357b87fabe2daf3aec64](https://gtv.org/getter/6003357b87fabe2daf3aec64)
-
-* * *
-
-【大选实况】1/16/2021 EST 4:00 PM 国务卿彭佩奥推文： 我们通过终止中共以各种交流名义（包括：文化交流等）实施的统战活动、打击了中共在美国境内的渗透。其他国家也纷纷效仿。#不再姑息 [https://go.usa.gov/xAQzx](https://go.usa.gov/xAQzx)
-
-
-
-> We cracked down on CCP influence ops inside our borders by ending United Front operations disguised as cultural exchanges, and more. Other countries are now following suit. [#NoMoreAppeasement](https://twitter.com/hashtag/NoMoreAppeasement?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/h0ZWfz3HkI](https://t.co/h0ZWfz3HkI) [pic.twitter.com/5ji2cD6Kvd](https://t.co/5ji2cD6Kvd)
-> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350548380859179010?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1350548380859179010](https://twitter.com/SecPompeo/status/1350548380859179010)
-盖特链接：[https://gtv.org/getter/6003595b87fabe2daf3af987](https://gtv.org/getter/6003595b87fabe2daf3af987)
-
-* * *
-
-【大选实况】1/16/2021 EST 5:00 pm 国务卿彭佩奥推文： 从我们开始的地方到我们结束的地方 【附图：美国大学校园里孔子学院数量对比图】
-
-
-
-> Where we started ➡️ Where we ended [pic.twitter.com/kEu9Z6CGRm](https://t.co/kEu9Z6CGRm)
-> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350563510762221568?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1350563510762221568](https://twitter.com/SecPompeo/status/1350563510762221568)
-盖特链接：[https://gtv.org/getter/600364b987fabe2daf3afeb1](https://gtv.org/getter/600364b987fabe2daf3afeb1)
-
-* * *
-
-【大选实况】1/16/2021 EST 5:30 pm 国务卿彭佩奥推文： 关于中共国针对美国高校（进行渗透）的更多信息，请参见我在@乔治亚理工学院的演讲。 [https://go.usa.gov/xAQzW](https://go.usa.gov/xAQzW)
-
-
-
-> For more information on China's targeting of U.S. colleges, see my speech [@GeorgiaTech](https://twitter.com/GeorgiaTech?ref_src=twsrc%5Etfw): [https://t.co/GhZam6UJI4](https://t.co/GhZam6UJI4) [pic.twitter.com/QP0aMiHYck](https://t.co/QP0aMiHYck)
-> — Secretary Pompeo (@SecPompeo) [January 16, 2021](https://twitter.com/SecPompeo/status/1350571028544581632?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1350571028544581632](https://twitter.com/SecPompeo/status/1350571028544581632)
-盖特链接：[https://gtv.org/getter/60036c3d87fabe2daf3b01e7](https://gtv.org/getter/60036c3d87fabe2daf3b01e7)
-
-**By： 【秘密翻译组 G-Translators】**
+[https://www.rbc.ru/politics/17/01/2021/6003d7d59a7947c2367bd117](https://www.rbc.ru/politics/17/01/2021/6003d7d59a7947c2367bd117)
 
 +1

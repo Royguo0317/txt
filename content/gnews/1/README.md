@@ -1,113 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读罗斯柴尔德和9名大主教之离奇死亡，及川普总统开启加速灭共模式
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/762286/)
+## 《路德时评》重磅解读梵蒂冈内部斗争已开始及红衣主教揭露“大重启”
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/763868/)
 
 直播视频：
 
 
 
-《路德时评》2021年1月17日早间节目主要内容：
+《路德时评》2021年1月17日晚间节目主要内容：
 
-一、习总加速师最新境况
+一、梵蒂冈内部斗争已经开始
 
-1月17日，习总加速师依然没有露面，只剩下“习声回响”，回顾前几年的今天，习都出席重要会议。
-
-
-
-> 2021年1月17日習總加速師依舊沒有露面，「習聲迴響」的追思會繼續開
-> 2020年1月17日，在被爆料革命路德社扒皮前趕緊去訪問緬甸
-> 2019年1月17日，在天津考察
-> 2017年1月17日，在達沃斯講廢話
-> 連吉利的老總被換了都不出來，看來是自己出不來了需要「別人」的幫助，這個「別人」我希望是美軍[@ding\_gang02](https://twitter.com/ding_gang02?ref_src=twsrc%5Etfw) [https://t.co/IxjyJVkB4B](https://t.co/IxjyJVkB4B) [pic.twitter.com/Au8f46Ygxu](https://t.co/Au8f46Ygxu)
-> — Andy5 (@andy5\_123) [January 17, 2021](https://twitter.com/andy5_123/status/1350781008665145351?ref_src=twsrc%5Etfw)
+新闻一：《Breitbart News》1月17日发推[1]：Facebook审查了瓜达拉哈拉大主教名誉主教Juan SandovalÍñiguez的视频，暗示全球主义领导人正在利用冠状病毒大流行带来新的世界秩序。这批人希望有一个单一的世界政府，一个单一的军队，单一的货币，单一的经济以及单一的宗教，这肯定不是基督教，（大重启）将以人类和全民之友的名义成为大地母亲的宗教。大主教还说道：这种流行病不会在一个月或两个月内结束，也许今年不会结束，也许三年，四年，五年，六年也不会结束，这就是这些人想要的，这将是一个漫长的过程。”
 
 
 
-路德社评论：
+> Facebook has censored a video of Cardinal Juan Sandoval Íñiguez, archbishop emeritus of Guadalajara, for suggesting that globalist leaders are exploiting the coronavirus pandemic to bring about a new world order. [https://t.co/3QTOOmgMTd](https://t.co/3QTOOmgMTd)
+> — Breitbart News (@BreitbartNews) [January 17, 2021](https://twitter.com/BreitbartNews/status/1350924242532098048?ref_src=twsrc%5Etfw)
 
-中共是不随便用“回响”一词，曾在周总理去世时使用过该词，结合昨日习一手养肥的李书福退出掌控吉利汽车集团的消息爆出，不禁让人对习的生命状况浮想联翩。
 
-二、九名大主教一周内因中共病毒死亡
 
-《罗马新闻室》2021年1月15日报道[1]：在过去一周中，九名天主教主教在测试COVID-19阳性后在世界范围内死亡。在1月8日至1月15日期间，三大洲的主教因冠状病毒而死亡。不幸离世的主教年龄从53岁到91岁不等。其中五名主教在欧洲去世，新的COVID-19毒株导致许多国家实行进一步的限制。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/大主教.png)[图片地址](https://www.catholicnewsagency.com/images/Screenshot_2021_01_15_at_181342.png?w=800)
+新闻二：《中央通讯社》2021年1月14日报道[2]：教宗方济各可能很快会为圣彼得大教堂挑选一位新的大主教，接替今年9月年满77岁的红衣主教安吉洛·科马特里(Angelo Comastri)，这位大主教是本笃十六在2006年任命的。据梵蒂冈观察人士称，他的继任者可能带来更广泛的代际变化，可能涉及至少五个梵蒂冈的灾难。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/梵蒂冈.jpg)[图片地址](https://www.catholicnewsagency.com/images/A_view_of_St_Peters_Basilica_in_Vatican_City_Jan_25_2015_Credit_Bohumil_Petrik_CNA_CNA_1_26_15.jpg?w=760)
 
 
 路德社评论：
 
-1、过去这一周就发生在梵蒂冈大停电之后，9位天主教主教突然因中共病毒去世不禁让人怀疑，天主教堂现在都处于关闭状态，这些主教享受最高级别的安保和待遇，如果不是短期内接触到大剂量的中共病毒是不可能引起死亡的；
+1、圣彼得教堂是天主教的中心建筑，饱经历史沧桑，藏有无数的艺术珍宝，对于人类文化的价值无可取代，该教堂现任红衣主教安吉洛·科马特里(Angelo Comastri)由本笃十六任命，该主教卸任后将由梵蒂冈教廷中“大重启计划”势力的代表方济各教宗任命新主教；
 
-2、路德社此前爆料2021年要进行梵蒂冈天主教教宗的选举，教内两派势力斗争也非常激烈，去世的几位主教也都拥有非常高的权力和地位，这几位主教都是本笃十六任命，本笃十六当年就是受到中共迫害后选择退位，随后方济各才上台，新主教由大重启势力代表方济各教宗任命，由此可以看到传统派力量和大重启势力间的较量已进入白热化。
+2、保守派维加诺大主教此前几次致信川普总统，他在接受班农采访时明确提到“大重启计划”正在颠覆传统世界秩序，利用大科技、大流行病和气候变暖为手段建立世界新秩序；
 
-三、罗斯柴尔德集团董事会主席本杰明·代·罗斯柴尔德去世
+3、现任教宗方济各和中共有深度勾兑，他们不仅签署了秘密协议，还收受中共贿赂，对中共在国内逼迫地下教会的行为视而不见；
 
-据俄罗斯卫星通讯社援引《巴黎人报》报道称[2]，罗斯柴尔德集团董事会主席本杰明·代·罗斯柴尔德去世，终年58岁。援引罗斯柴尔德家族的消息称：“阿丽亚娜·代·罗斯柴尔德及他们的女儿悲痛地宣布本杰明·代·罗斯柴尔德去世，在心脏病发作后死于普雷尼-尚贝西的家中。”其家属称近期将在家庭范围内举行罗斯柴尔德的葬礼，银行家罗斯柴尔德从1997年起担任罗斯柴尔德集团董事会主席。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/罗斯柴尔德.jpg)[图片地址](https://n.sinaimg.cn/sinakd2021117s/741/w1000h541/20210117/9ec0-khstaxs8787370.jpg)
+4、墨西哥红衣主教在被FACEBOOK屏蔽的视频中明确到全球主义领导人正在建立世界的统一的秩序，彻底颠覆历经数千年建立起来的基督文明，天主教在美洲有众多信徒，南美洲主教对该地区的天主教信徒有极高的威望，Facebook想通过封锁他的言论来掩盖美洲天主教徒对真相的认知，拜登作为全球主义领导人的代表，他就曾表态上台后将让美国重新加入《巴黎气候协议》并任命气候特使；
 
+5、全球精英阶层就希望通过大科技，建立数据库来统治全世界，建立科技宗教来统一世界秩序，建立国际共产社会，所有违反建立该秩序的代表人物的言论都将被屏蔽，这场斗争已经在以梵蒂冈教廷为代表的天主教内全面展开；
 
-路德社评论：
+6、爆料革命路德社之所以要爆料这些邪恶力量信息，就是要让更多人看清真相，拥有大格局，现在全世界就处在战争中，这已经不是美国消灭中共的问题了，中共加入了世界上更具影响力的势力团体，现在的战斗已进入信仰层面；
 
-1、银行家罗斯柴尔德掌管价值1900亿美元的资产，个人净资产15亿美元，罗斯柴尔德家族对欧美政治的影响力颇深，这家族曾参与多个国家央行的建立，还参与过拿破仑战争；
-
-2、结合近日意大利政府内阁辞职，德国默克尔正常辞职，荷兰首相辞职等数个国家领导人下台的消息，以及数位大主教去世来看，这些人都处在人类金字塔最顶端，影响着人类文明的发展，短期内都聚集发生，这极有可能与“大重启计划”有关；
-
-3、这场正义力量与“大重启计划”力量的较量绝不仅在中美之间，还将波及世界各国，澳洲总理就表态拒绝大重启，川普总统作为坚定的灭共者也拒绝大重启。
-
-三、川普总统内阁成员接受采访
-
-新闻一：1月16日纳瓦罗接受Jeanine法官采访时说[3]：跟中共国的摊牌是拜登政府第一场真正的考验，他更担心6个月之内的事，习独裁政权、妄想中共纪元、创造病毒大流行、摧毁香港民主、窥视台湾、用无尽的对话拖时间推翻协议，美国该做的就是「脱钩」「学会习惯没有中共国的生活」。
-
-纳瓦罗还评价了被方芳睡过的Eric Swalwell，因为这些中共国间谍，加州的性病率都上升了，这就是中共国设置的终极温柔乡，纳瓦罗先生非常反感这个表面文质彬彬的东西。
-
-
-
-> 20210116納瓦羅先生接受Jeanine法官訪談1/3
-> 1.跟中共國的攤牌是拜登政府第一場真正的考驗
-> 2.納瓦羅先生更擔心6個月之內的事
-> 3.習獨裁政權、妄想中共紀元、創造病毒大流行、摧毀香港民主、窺視台灣、用無盡的對話拖時間推翻協議
-> 4.美國該做的就是「脫鉤」「學會習慣沒有中共國的生活」[@ding\_gang02](https://twitter.com/ding_gang02?ref_src=twsrc%5Etfw) [https://t.co/aVLkGFhchm](https://t.co/aVLkGFhchm) [pic.twitter.com/MgJ84rHaVK](https://t.co/MgJ84rHaVK)
-> — Andy5 (@andy5\_123) [January 17, 2021](https://twitter.com/andy5_123/status/1350734475425009668?ref_src=twsrc%5Etfw)
-
-
-
-新闻二：章家敦先生1月16日接受Newsmax采访时主要内容：
-
-1、WHO去中共国调查不会得出任何结果；
-
-2、美国需要做的是解密那些超越蓬佩奥国务卿声明中部分的更多的文件；
-
-3、蓬佩奥国务卿对香港、台湾做出的行动表明不会再回到过去40年对中共国政策；
-
-4、川普总统应该能做得更好，但目前的政策拜登政府也无法改变现状。
-
-
-
-> 20210116章家敦先生onNewsmax
-> 1.WHO去中共國調查不會得出任何結果
-> 2.美國需要做的是解密那些超越蓬佩奧國務卿聲明中部分的更多的文件
-> 3.蓬佩奧國務卿對香港、台灣做出的行動表明不會再回到過去40年對中共國政策
-> 4.川普總統應該能做得更好，但目前的政策拜登政府也無法鬆綁[@ding\_gang02](https://twitter.com/ding_gang02?ref_src=twsrc%5Etfw) [@maryann\_3040](https://twitter.com/maryann_3040?ref_src=twsrc%5Etfw) [https://t.co/MYtxwR8XTH](https://t.co/MYtxwR8XTH) [pic.twitter.com/Pz9j7mn6AG](https://t.co/Pz9j7mn6AG)
-> — Andy5 (@andy5\_123) [January 17, 2021](https://twitter.com/andy5_123/status/1350712583431438339?ref_src=twsrc%5Etfw)
-
-
-
-路德社评论：
-
-1、纳瓦罗在发言中提及中共利用各种手段从全世界赚取大量财富，此次又借疫苗牟取大量利益，现在川普政府终于看清中共是如此邪恶，爆料革命多年以来对中共的揭露完全真实，现在是世界该苏醒的时候了；
-
-2、从以上两位川普总统重要内阁成员的重磅发言来看，川普总统经历过此次美国大选已彻底醒悟，未来几天绝对还有更多重锤行动。
+7、全世界的正义力量也在各个层面与邪恶力量进行较量，维加诺大主教为首的宗教人士在宗教界进行着战斗，马斯克为代表的企业家在科技领域进行着战斗，爆料革命为代表的势力团体在政治界进行着战斗，GTV和Gnews为代表的媒体在宣传领域进行着战斗，还有其他正义力量在各个层面进行着战斗，最终正义一定会战胜邪恶；
 
 [点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
 
 参考文章：
 
-[1]https://www.catholicnewsagency.com/news/nine-catholic-bishops-with-covid-19-die-in-a-single-week-36233
+[\[1\]https://www.breitbart.com/health/2021/01/16/facebook-censors-mexican-cardinal-denouncing-new-world-order/?utm\_source=facebook&utm\_medium=social&fbclid=IwAR2jeaMJ7POk6yOPRWyMIvSjnXrrzUPq59OTugMBhd1kBpfroTTSGJpb16g](http://[1]https://www.breitbart.com/health/2021/01/16/facebook-censors-mexican-cardinal-denouncing-new-world-order/?utm_source=facebook&amp;utm_medium=social&amp;fbclid=IwAR2jeaMJ7POk6yOPRWyMIvSjnXrrzUPq59OTugMBhd1kBpfroTTSGJpb16g)
 
-[2]http://www.51caishuju.com/hangqing/20222.html
-
-[3]https://twitter.com/andy5\_123/status/1350734475425009668
+[\[2\]https://www.catholicnewsagency.com/news/what-changes-to-the-vatican-may-the-replacement-of-the-archpriest-of-st-peters-basilica-bring-62052](http://[1]https://www.breitbart.com/health/2021/01/16/facebook-censors-mexican-cardinal-denouncing-new-world-order/?utm_source=facebook&amp;utm_medium=social&amp;fbclid=IwAR2jeaMJ7POk6yOPRWyMIvSjnXrrzUPq59OTugMBhd1kBpfroTTSGJpb16g)
 
 文章撰写：【重生】  编辑：【香柏树】
 
