@@ -1,33 +1,117 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 接种两剂中共病毒疫苗 纽约民主党众议员仍确诊染疫
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/763129/)
+## 【大选推特实况】1/17/2021 根据情报总监给国会的一封信,中共国干预了2020年大选&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/766280/)
 
-*加拿大多伦多枫叶农场 Kent*
+【大选实时报】1/17/2021 美东时间4:40PM 大纪元时报 推文： 根据国家情报总监拉特克利夫给国会的一封信，中共国干预了2020年大选。 拉特克利夫称，有关中共国干预选举的情报被中情局管理层压制。
 
-*校对、发稿 文锦*
-![]()![](https://gnews.org/wp-content/uploads/2021/01/maxresdefault-15.jpg)图片来源： CBS
-据《零对冲》1月14日报道，中共病毒疫苗并不能100%有效阻止人们感染病毒，共和党人也不是唯一会感染中共病毒的政客。纽约的民主党众议员阿德里亚诺·埃斯波拉特（Adriano Espaillat）当日宣布，即使在接种第二剂疫苗后，他仍然被检测为中共病毒阳性，目前正在家中隔离。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图421.png)图片来源： Twitter
-“我上周接受了第二剂中共病毒疫苗，我理解疫苗需要一点时间才能生效，”埃斯波拉特周四在推特上说，但他不确定接种了哪种疫苗。”我会继续定期接受测试，戴好口罩，并遵循专业医疗指导。”
 
-这一消息传来时， mRNA类型中共病毒疫苗制造商之一现代公司（Moderna）的CEO周三提醒人们，尽管所有人希望疫苗会将人们的生活恢复到从前的样子，但中共病毒将 “永远”存在。
 
-现代公司的CEO并不是唯一认为中共病毒有可能成为地方性疾病的官员和传染病专家，这意味着它可能将一直存在于社区中。”我们认为，人们很可能将永远与这种病毒并存。”他在摩根大通医疗保健会议的小组讨论中说。
+> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) interfered in the [#2020Elections](https://twitter.com/hashtag/2020Elections?src=hash&amp;ref_src=twsrc%5Etfw), according to a letter from [@DNI\_Ratcliffe](https://twitter.com/DNI_Ratcliffe?ref_src=twsrc%5Etfw) to Congress.
+> 
+> Ratcliffe alleged that intelligence about China’s election interference was suppressed by management at the [#CIA](https://twitter.com/hashtag/CIA?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/9Lrs0C69fd](https://t.co/9Lrs0C69fd)
+> — The Epoch Times (@EpochTimes) [January 17, 2021](https://twitter.com/EpochTimes/status/1350920836836896771?ref_src=twsrc%5Etfw)
 
-报道称自2021年一月份以来，德国已有超过10人在接种疫苗后确诊感染了中共病毒；而加拿大首位接种中共病毒疫苗的魁省89岁老人，在接种两周内仍确认染疫；在挪威，29位75岁以上注射中共病毒疫苗的死亡事件被报道；美国有55人死于接种中共病毒疫苗。
 
-俄亥俄州的研究人员已发现新的中共病毒变异毒株适应力强、传染率高，甚至致命性更强，人们对于疫苗的长期功效仍知之甚浅。
+来源：[https://twitter.com/EpochTimes/status/1350920836836896771?s=20](https://twitter.com/EpochTimes/status/1350920836836896771?s=20)
+盖特链接：[https://gtv.org/getter/6005181487fabe2daf3bf310](https://gtv.org/getter/6005181487fabe2daf3bf310)
 
-我们知道， 疫苗研发大体可以分为三个阶段： 研发、临床试验以及生产。在早期研发阶段中， 科学家们会尝试各种各样的方法寻找安全且可以复制的疫苗；经过实验室检验后进入临床测试阶段， 针对不同群体对疫苗的安全性、高效性和副作用进行评估；最后疫苗将被生产和发配给大众接种，在正常情况下该过程会持续15到20年。
+* * *
 
-尽管情况紧急，而且医疗科技相比过去也已经取得进展，但是不可否认的是，在短短几个月内将过去需要几年甚至十几年才能确保足够安全的病毒疫苗心急火燎地用于大众，无异于广泛地进行邪恶人体实验。我们真正应该做的事情是重视病毒的危害，追究其根本，问责病毒的源头。
+【大选实时报】1/17/2021 美东时间9:54AM OAN推文： Antifa支持者因冲击国会大厦而被捕。
 
-*[原文链接](https://www.zerohedge.com/covid-19/dem-congressman-catches-covid-after-receiving-2nd-dose-vaccine)*
 
-*相关链接：*
 
-[疫苗危机：美国55人，挪威29人接种疫苗后死亡](https://gnews.org/zh-hans/760863/)-GNews
+> Antifa supporter arrested for storming Capitol –[https://t.co/hRNAN2Uo8a](https://t.co/hRNAN2Uo8a) [@JackPosobiec](https://twitter.com/JackPosobiec?ref_src=twsrc%5Etfw) [#OANN](https://twitter.com/hashtag/OANN?src=hash&amp;ref_src=twsrc%5Etfw)
+> — One America News (@OANN) [January 17, 2021](https://twitter.com/OANN/status/1350818798551486464?ref_src=twsrc%5Etfw)
 
-+3
+
+来源：[https://twitter.com/OANN/status/1350818798551486464?s=20](https://twitter.com/OANN/status/1350818798551486464?s=20)
+盖特链接：[https://gtv.org/getter/6004b30287fabe2daf3bab82](https://gtv.org/getter/6004b30287fabe2daf3bab82)
+
+* * *
+
+【大选实时报】1/17/2021 美东时间4:14PM 章家敦推文： 中共国政权几十年来一直在攻击美国，导致我们的共和国正处于危险之中。因此，我们美国人现在必须保护自己。第一步就是停止我们对攻击者的所有支持。环球时报，你挑战错了国家！#保卫美国
+
+
+
+> [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)’s regime has been attacking the [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw) for decades, so our republic is at risk. Therefore, we [#Americans](https://twitter.com/hashtag/Americans?src=hash&amp;ref_src=twsrc%5Etfw) must now defend ourselves. The first step is to end all our support for the attackers. [@globaltimesnews](https://twitter.com/globaltimesnews?ref_src=twsrc%5Etfw), you have taken on the wrong country. [#DefendAmerica](https://twitter.com/hashtag/DefendAmerica?src=hash&amp;ref_src=twsrc%5Etfw) [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/zilWFSdjyJ](https://t.co/zilWFSdjyJ)
+> — Gordon G. Chang (@GordonGChang) [January 17, 2021](https://twitter.com/GordonGChang/status/1350914389508034560?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/GordonGChang/status/1350914389508034560?s=20](https://twitter.com/GordonGChang/status/1350914389508034560?s=20)
+盖特链接：[https://gtv.org/getter/6004b70587fabe2daf3bae47](https://gtv.org/getter/6004b70587fabe2daf3bae47)
+
+* * *
+
+【大选实时报】1/17/2021 美东时间 4:24PM OAN主持人Jennifer Franco 推文： 参议员兰德塞·格林汉姆（Lindsey Graham）敦促参议员查克·舒默（Chuck Schumer）支持投票驳回针对川普总统的弹劾条款，认为此举将 “无限期地 “拖延愈合分裂的国家。 格林汉姆还表示，弹劾前任总统是违宪的。
+
+
+
+> Sen. Lindsey Graham urges Sen. Chuck Schumer to support a vote to dismiss the impeachment articles against President Trump, arguing the move would ‘indefinitely’ delay the healing of the nation. 
+> 
+> Graham also says the impeachment of a former president would be unconstitutional. [pic.twitter.com/JBytTGQ1Ce](https://t.co/JBytTGQ1Ce)
+> — Jennifer Franco (@jennfranconews) [January 17, 2021](https://twitter.com/jennfranconews/status/1350916983886278657?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/jennfranconews/status/1350916983886278657?s=20](https://twitter.com/jennfranconews/status/1350916983886278657?s=20)
+盖特链接：[https://gtv.org/getter/6004ba8c87fabe2daf3bb12e](https://gtv.org/getter/6004ba8c87fabe2daf3bb12e)
+
+* * *
+
+【大选实时报】1/17/2021 美东时间 5:27PM约翰·所罗门 （John Solomon）推文： 政府报告称从2019财年到2020财年，美国对华援助减半（Just The News报道）。
+
+
+
+> Government report says U.S. assistance to China cut in half from FY 2019 to 2020 | Just The News [https://t.co/fQwmtJcYlp](https://t.co/fQwmtJcYlp)
+> — John Solomon (@jsolomonReports) [January 17, 2021](https://twitter.com/jsolomonReports/status/1350932735699906568?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/jsolomonReports/status/1350932735699906568?s=20](https://twitter.com/jsolomonReports/status/1350932735699906568?s=20)
+盖特链接：[https://gtv.org/getter/6004bc3187fabe2daf3bb2ac](https://gtv.org/getter/6004bc3187fabe2daf3bb2ac)
+
+* * *
+
+【大选实时报】1/17/2021 美东时间5:40PM 大纪元时报 推文： 上周众议院民主党人投票支持弹劾川普后，哈佛大学法学院名誉教授Alan Dersh表示，弹劾离任总统不会奏效且有违宪法。
+
+
+
+> Harvard Law School professor emeritus [@AlanDersh](https://twitter.com/AlanDersh?ref_src=twsrc%5Etfw) said that a post-presidential [#Impeachment](https://twitter.com/hashtag/Impeachment?src=hash&amp;ref_src=twsrc%5Etfw) wouldn’t work and is against the [#Constitution](https://twitter.com/hashtag/Constitution?src=hash&amp;ref_src=twsrc%5Etfw), after House Democrats voted to [#ImpeachTrump](https://twitter.com/hashtag/ImpeachTrump?src=hash&amp;ref_src=twsrc%5Etfw) last week. [https://t.co/jtmj2vUaWj](https://t.co/jtmj2vUaWj)
+> — The Epoch Times (@EpochTimes) [January 17, 2021](https://twitter.com/EpochTimes/status/1350935937774194689?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/EpochTimes/status/1350935937774194689?s=20](https://twitter.com/EpochTimes/status/1350935937774194689?s=20)
+盖特链接：[https://gtv.org/getter/6004bee687fabe2daf3bb4d5](https://gtv.org/getter/6004bee687fabe2daf3bb4d5)
+
+* * *
+
+【大选实时报】1/17/2021 美东时间 Breaking911推文：众议员Marjorie Taylor Greene在发表（所谓）有争议的推文后，其推特账户被暂停使用12小时。
+
+
+
+> Rep. Marjorie Taylor Greene Was Suspended From Twitter For 12 Hours After Controversial Tweets: [https://t.co/Ba56BOlEPN](https://t.co/Ba56BOlEPN)
+> — Breaking911 (@Breaking911) [January 17, 2021](https://twitter.com/Breaking911/status/1350929998333562882?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/Breaking911/status/1350929998333562882](https://twitter.com/Breaking911/status/1350929998333562882)
+盖特链接：[https://gtv.org/getter/6005198087fabe2daf3bf3f9](https://gtv.org/getter/6005198087fabe2daf3bf3f9)
+
+* * *
+
+【大选实时报】1/17/2021北美时间9:24PM OAN记者 Caitlin Sinclair推文： 川普在任内最后几天预计将发布约100项赦免和减刑。
+
+
+
+> POTUS is expected to issue around 100 pardons and commutations during his last days in office. [@OANN](https://twitter.com/OANN?ref_src=twsrc%5Etfw)
+> — CaitlinSinclairTV (@CSinclairtv) [January 18, 2021](https://twitter.com/CSinclairtv/status/1350992357374754816?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/CSinclairtv/status/1350992357374754816](https://twitter.com/CSinclairtv/status/1350992357374754816)
+盖特链接：[https://gtv.org/getter/600540d987fabe2daf3c0a74](https://gtv.org/getter/600540d987fabe2daf3c0a74)
+
+
+
+**By 【秘密翻译组G-Translators】**
+
+0

@@ -1,31 +1,182 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】中共党媒自爆汽车零件卡脖子问题
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/762795/)
+## 2021/01/18 美国国务卿彭佩奥今日炮轰中共14推
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/765732/)
 
-作者：香草山写作组 残夜听雨声 校对/发稿：飞虹
+信息汇总采编：Cathy r
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-12.jpg)
+**经授权转载自：**
 
-
-
-根据中共财新网报道，2021年1月16日中共政协经济委员会主任在一次会议中提出了所谓防止汽车零部件卡脖子的准备 ，文章中强调了汽车零部件要有备胎。并且提出了要做好技术攻坚战。当笔者看完文章大致，不禁感叹中共的党媒文章总是喜欢羞答答地抛出一个现实问题然后再用政治宣传转移读者的关注焦点，明明一个很实在的国内汽车零部件严重没办法自给的问题，却赘述了一大段错在美国阻碍中国腾飞之类的愤青文字，似乎没有美国中共国产的汽车车轮子就能转起来一般。当文人的钱袋子被掌握权力的人握住时，他们就什么底线都没有了。当“朱门酒肉臭，路有冻死骨”的凄然之景被御用文人描绘成所谓其乐融融的盛世之状时，我想这些卖掉了良心的人是否会在午夜感到不安呢？
-![]()![](https://gnews.org/wp-content/uploads/2021/01/5e96c49f6724b-thumb.jpg)图片来源：与非网
-实际上对于中共国来说汽车的自主制造难题并不在整车组建的工业技术，而主要在于其核心零部件的长期完全依赖于进口，比如芯片、高速轴承、IGBT等。2017年，中共国汽车工业协会的数据显示，汽车电子和发动机关键部位等高科技领域，外资市场高达90%！
-
-12月初中共国国内多家车企爆出面临停产的新闻，其中有一汽大众和上汽大众等车企，而其核心问题就在于汽车芯片的供应短缺，战友们知道芯片一向是中共电子产业的核心命门，而在汽车领域，芯片被称为汽车的神经。可以说，没有了芯片，汽车就没办法运行，除了常见的多媒体娱乐系统，智能钥匙和自动泊车系统，汽车的发动机和变速箱控制系统，安全气囊等都离不开芯片。这也就是为什么中共近几年要多次开展造芯大运动，缺少了芯片，中共的电力系统、运输业、银行业，包括整个政治体制的运行，都要接近瘫痪，甚至连红绿灯都没办法运行。但是毫无疑问芯片的产生是西方几千年自由之光发酵的结果，美国一位工程师说：光刻机的一个小零件，工程师就需要调整十年之久，就连尺寸都要百万次以上。这种热情和自由碰撞出来的火花，远远不是一个凭借集权试图掌控一切的集中营社会所能创造出来的。
-
-再从一个最普通的高速轴承又能看出中共国的普通零件制造工艺也存在难以跨越的技术缺憾，在中共国，高速铁路客车、中高档轿车、计算机、空调器、高水平轧机等重要主机的配套和维修轴承，基本上仍然得靠进口 。在应用于高精密机械的主轴承上，中共国的技术接近空白，汽车轮毂轴承，中共国应用最广的就是第一代与第二代轮毂轴承，而欧洲已经采用了第三代，第三代的主要优点就是可靠，有效载荷间距短，易于安装，无需调整。国产电机的高速轴承接近一万多转，基本不能用了，中共国的轴承在性能与价格比、高精度、低噪音、长寿命与高可靠性上与国外的轴承难以比较。
-
-自从中共总加速师提出了所谓粮食卡脖子后，从尖端领域再到普通人衣食住行领域的各种卡脖子尽皆如雨后春笋般展现在世人眼里，难道过去这些问题就不存在吗？无非是遮着掩着不敢告诉世人，轻则编辑被辞职，重则整个媒体平台都烟消云散，独裁政权对真相永远是遮盖以及打压，这是它能够生存的土壤。如今朝鲜人的生活才是真正的自给自足，因为在这个国家工业文明已经消失殆尽，整个国家已经回到了最原始的农耕独裁社会。而如今中共国又来到了一个十字路口，在全世界追责病毒真相的关口，要么又有一个大铁门把人民重新带往饥荒和愚昧，要么，就是一把大火烧尽这独裁的地狱，重造这人间！
+- 川普等政要…直译推twitter：[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
+- 川普等政要…直译推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
+- 川普等政要…直译推GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
 
 
+**简评：**
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+1月18日，美国国务卿蓬佩奥又连发十几个推，强调了美国在全世界引领的反对中共威权主义的联盟，以及成功的美台关系。连续两天都把中共作为目标对象，让全世界的人无法忽略地听到美国川普政府对中共的态度。可以想象接下来美国对中共还会有什么样的行动。
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声2台](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)！
+#### 美国国务院：
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+国务卿蓬佩奥@SecPompeo:“我们已敦促各国成为清洁(网络)国家，以避免其公民的私人信息落入 #中国共产党 的手中。” [http://state.gov/the-clean-network](http://state.gov/the-clean-network)上了解有关“净网”的更多信息。
+
+
+
+> .[@SecPompeo](https://twitter.com/SecPompeo?ref_src=twsrc%5Etfw): "We've urged countries to become CLEAN COUNTRIES so that their citizens' private information doesn't end up in the hand of the Chinese Communist Party." Learn more about the Clean Network at [https://t.co/SXzHsiErNi](https://t.co/SXzHsiErNi) [pic.twitter.com/nCmmCOa45M](https://t.co/nCmmCOa45M)
+> — Department of State (@StateDept) [January 17, 2021](https://twitter.com/StateDept/status/1350929249897771010?ref_src=twsrc%5Etfw)
+
+
+
+#### 国务卿蓬佩奥：
+
+1️⃣ #中共 #CCP 是我们这个时代的主要威胁。中共威权主义不是自由世界想要的未来……但如果我们再次放下警惕，这就是我们将拥有的未来。
+
+（图片说明：“热爱自由的国家一定要团结一致正面对抗中共的侵略行径” – 国务卿蓬佩奥）
+
+
+
+> The CCP is the central threat of our time. CCP authoritarianism isn't the future the free world wants … but it's the future we'll have if we let our guard down again. [pic.twitter.com/ARqmG689ER](https://t.co/ARqmG689ER)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350933416758317056?ref_src=twsrc%5Etfw)
+
+
+
+2️⃣ 需要一支团队来扭转应对 #中共 的潮流。许多人为这项好工作负责。这里只是其中的一些。谢谢你们。
+
+
+
+> It takes a team to turn the tide on the CCP. So many responsible for the good work. Here are just a few of them. Thank you all. [pic.twitter.com/3wAxc6TOW5](https://t.co/3wAxc6TOW5)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350926773425467394?ref_src=twsrc%5Etfw)
+
+
+
+3️⃣ 川普政府改变了关于中国的全球对话。我们将 #中共 对自由世界的敌对情绪暴露出来，并建立了联盟来压制北京的不良行为。
+
+(图片说明：“北京最好的计划也比不过美国人的决心”- 国务卿蓬佩奥）
+
+
+
+> The Trump Administration changed the global conversation on China. We exposed the Chinese Communist Party's hostility to the free world and built out coalitions to push back on Beijing's bad behavior. [pic.twitter.com/k2QRkgexBk](https://t.co/k2QRkgexBk)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350918316777496579?ref_src=twsrc%5Etfw)
+
+
+
+4️⃣ 没有人比我们强大的团队为推动宗教自由的崇高事业做更多的工作。我将永远为这一非常重要的权利而战。跟着我@mikepompeo
+
+【转蓬佩奥私人账号的推文: ” 他又对他们说 ，你们往普天下去 ，传福音给万民 听。” – 马可福音16章15节。】
+
+
+
+> No one has done more to advance the noble cause of religious freedom than our great team. I will never stop fighting for this very important right. Follow me [@mikepompeo](https://twitter.com/mikepompeo?ref_src=twsrc%5Etfw) [https://t.co/03rFRuz2BG](https://t.co/03rFRuz2BG)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350912109941579779?ref_src=twsrc%5Etfw)
+
+
+
+5️⃣ 首先至关重要的是，作为美国人，我们要按 #中共国 原本的样子看待它，而不是我们所希望的样子。2019 年 10 月，我分享了我对中国挑战的看法：
+
+【附链接：中共的挑战-蓬佩奥在哈德逊的演讲：[https://www.state.gov/the-china-challenge/](https://www.state.gov/the-china-challenge/)】
+
+
+
+> Above all, it’s critical that as Americans, we see China as it is, not as we wish it were. In October 2019, I shared my views on the China Challenge: [https://t.co/wRPp70Kz2d](https://t.co/wRPp70Kz2d)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350903218142760962?ref_src=twsrc%5Etfw)
+
+
+
+6️⃣ 我取消了几十年来对美国官员与台湾官员互动的自封限制。我们不应该为了安抚中共国而使我们与可靠伙伴和民主同胞的关系恶化。
+
+
+
+> I revoked decades-old, self-imposed restrictions on U.S. officials' interactions with Taiwan counterparts. We shouldn't degrade our relationship with a reliable partner and fellow democracy to appease Communist China. [https://t.co/aRBw1jNpQX](https://t.co/aRBw1jNpQX)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350895672484978688?ref_src=twsrc%5Etfw)
+
+
+
+7️⃣ 我们和台湾缔结了一项科学和技术协议，并发起了一项以普通话和英语培训为重点的教育计划。我们知道台湾是值得信赖的伙伴#ReliablePartner 和一股向善的力量 – 我们为我们和台湾强大且不断增长的伙伴关系感到自豪！
+
+
+
+> We concluded a Science and Technology agreement and launched an education initiative focused on Mandarin and English training. We know Taiwan is a [#ReliablePartner](https://twitter.com/hashtag/ReliablePartner?src=hash&amp;ref_src=twsrc%5Etfw) and a force for good – we're proud of our strong & growing partnership! [pic.twitter.com/kR95yXNQLf](https://t.co/kR95yXNQLf)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350888117641699329?ref_src=twsrc%5Etfw)
+
+
+
+8️⃣ 在我们阻止美国退休基金 USG 退休账户投资于中共解放军 #PLA 后，标准普尔，富时和纳斯达克采取行动保护美国投资者，将中共军民融合的公司除名。美国优先#AmericaFirst 遵守规则#PlayByTheRules
+
+
+
+> After we blocked USG retirement accounts from investing in [#PLA](https://twitter.com/hashtag/PLA?src=hash&amp;ref_src=twsrc%5Etfw), S&P, FTSE and Nasdaq took action to protect American investors by delisting the companies fueling CCP military-civil fusion. [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw) [#PlayByTheRules](https://twitter.com/hashtag/PlayByTheRules?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/22kcLRXHbV](https://t.co/22kcLRXHbV)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350850373087494144?ref_src=twsrc%5Etfw)
+
+
+
+9️⃣ 在2020年8月，美国卫生与公共服务部部长亚历克斯·阿扎尔@SecAzar访问台湾，强调我们在全球新冠病毒斗争中的健康合作。台湾总统蔡英文@Iingwen领导了一场成功的抗击新冠病毒的战斗。世界卫生组织@WHO从台湾可以学到很多。台湾可以帮助#TaiwanCanHelp
+
+
+
+> In August 2020, [@SecAzar](https://twitter.com/SecAzar?ref_src=twsrc%5Etfw) visited Taiwan to highlight our health cooperation amid the global COVID-19 fight. Taiwan's President [@iingwen](https://twitter.com/iingwen?ref_src=twsrc%5Etfw) led a successful battle against COVID-19. [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) could learn A LOT from Taiwan. [#TaiwanCanHelp](https://twitter.com/hashtag/TaiwanCanHelp?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/EC4SC03SJQ](https://t.co/EC4SC03SJQ)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350865474288947201?ref_src=twsrc%5Etfw)
+
+
+
+🔟 在联合国@UN，川普政府从一无所有建立了一个由志同道合的伙伴组成的打击中共恶意行为的坚实合作联盟。美国曾经是联合国唯一的声音，现在我们有了关于香港自治和新疆人权侵犯的联合声明。有意义的多边主义#MeaningfulMultilateralism
+
+
+
+> The Trump Administration built from nothing a strong base of support from like-minded partners to counter malign CCP actions at [@UN](https://twitter.com/UN?ref_src=twsrc%5Etfw). Where we once were the only voice, we now have joint statements on Hong Kong autonomy & human rights abuses in Xinjiang. [#MeaningfulMultilateralism](https://twitter.com/hashtag/MeaningfulMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/0Djhb026W1](https://t.co/0Djhb026W1)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350857919533776898?ref_src=twsrc%5Etfw)
+
+
+
+1️⃣1️⃣ 在几乎我与海外朋友和合作伙伴举行的每次会面中，我都提出了中国的空洞承诺、侵犯人权行为、不公平的贸易惯例和军事威胁。【图文：我们正看到整个世界联合起来认识到来自中共的威胁】
+
+
+
+> I raised China's empty promises, human rights violations, unfair trade practices, and military menace in practically every meeting I had with friends and partners overseas. [pic.twitter.com/w5u9DAVMtB](https://t.co/w5u9DAVMtB)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350835275719610368?ref_src=twsrc%5Etfw)
+
+
+
+1️⃣2️⃣ 控制全球的电信网络是中共试图操控并主宰未来所做努力的关键部分。美国国务院 @StateDept
+
+引领了一场全球性的运动，将诸如华为，中兴这样的中共代理人从关键的网络脱钩。我们已经逆转了潮流。
+
+【图片文字：有利于安全的5G网络的势头正在建立】
+
+
+
+> Controlling global telecom networks is a critical part of the CCP effort to manipulate and dominate the future. The [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) has led a global campaign to delink CCP proxies such as Huawei and ZTE from critical networks. We’ve turned the tide. [pic.twitter.com/gy6NzdPy0x](https://t.co/gy6NzdPy0x)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350812621147045893?ref_src=twsrc%5Etfw)
+
+
+
+1️⃣3️⃣ 应对中共威胁的民主力量联盟正与日俱增。我们与在欧盟和亚洲的盟友和合作伙伴一道合作，进行跨大西洋的中共国对话，(美日印澳)四方安全对话，在南中国海增加的联合军事演习，以及更多。
+
+
+
+> The alliance of democracies facing the CCP threat is growing every day. We worked with allies and partners in the EU and Asia on the transatlantic China dialogue, the Quad, increased joint drills in the South China Sea, and much more. [pic.twitter.com/hKMWqdj489](https://t.co/hKMWqdj489)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350805075690708993?ref_src=twsrc%5Etfw)
+
+
+
+1️⃣4️⃣ 与您从全球主义者们及其他“专家”那里听到的相反，川普政府在对付我们这个时代的核心威胁 – 中共 时，从来都不是单边的。我们已经建立了全球范围内多边的共识来应对它。引领最前沿#LeadingFromTheFront
+
+【图片文字：这个世界已经意识到，他们已不能信赖从中共那得到的许诺了】
+
+
+
+> Contrary to what you hear from the globalists and other "experts," the Trump Administration has never been unilateral on the central threat of our time, the CCP. We have built a global multilateral consensus to counter it. [#LeadingFromTheFront](https://twitter.com/hashtag/LeadingFromTheFront?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/23hFsHLBfA](https://t.co/23hFsHLBfA)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350797521224835072?ref_src=twsrc%5Etfw)
+
+
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/HHS_QRCode_V2-4.jpg)
 
 +2

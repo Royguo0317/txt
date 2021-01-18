@@ -1,49 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】法国外长指责因川普施压促成伊朗造核武，以色列可不这么认为
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/763116/)
+## 【大选推特实况】1/17/2021 11:30am-1:32pm 国务卿蓬佩奥推文:支持中共军民融合公司的摘牌&#8230;
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/766228/)
 
-作者：纽约香草山写作组   Wilson
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+**【大选实况】1/17/2021 EST 11:30AM 国务卿蓬佩奥推文**： 在罗马的时候，当一位记者递给我帕玛森干酪时，我就知道很多人心里都在想着贸易政策@GiuseppeContelT（@意大利总理朱塞佩·孔特）
 
 
 
-2021年1月17日[《布雷巴特新闻网》](https://www.breitbart.com/middle-east/2021/01/17/france-iran-is-building-nuclear-weapons-and-trump-to-blame/)报道，法国外长让·伊夫·勒德里安告诉《迪曼奇日报》：“我必须明确地说——伊朗正在逐步拥有获得核武器能力。”勒德里安认为，伊朗正在建造核武器，而这是因为川普退出由六方组成的伊朗JCPOA核协议，并对伊朗实行高压政策造成的。他声称该策略增加了中东地区的风险和威胁，因此其责任应该由川普来承担。
+> When a journalist handed me Parmigiano Reggiano cheese in Rome, I knew that trade policy was on many minds. [@GiuseppeConteIT](https://twitter.com/GiuseppeConteIT?ref_src=twsrc%5Etfw) [pic.twitter.com/S3MeRp7foh](https://t.co/S3MeRp7foh)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350842820412792833?ref_src=twsrc%5Etfw)
 
-伊朗上周宣布，不再遵守核协议规定，将恢复生产制造核武所需的20%浓度铀。此前，德黑兰一直将核武器计划归咎于以色列，现今其宣称这是对美国实施制裁的回应。
 
-美国现任政府则保持对伊朗的强硬态度。近日蓬佩奥警告说，伊朗已成为基地组织的新总部，两者现在是“恐怖主义的合作伙伴”。
+来源：[https://twitter.com/SecPompeo/status/1350842820412792833](https://twitter.com/SecPompeo/status/1350842820412792833)
+盖特链接：[https://gtv.org/getter/60046b9087fabe2daf3b7700](https://gtv.org/getter/60046b9087fabe2daf3b7700)
 
-而“当选总统”拜登正在试图推翻川普的伊朗政策，打算重新对伊朗绥靖。以色列媒体透露，拜登政府已经启动了重返核协议的计划，并开始与伊朗举行静默(秘密)会谈。
+* * *
 
-美国在中东的铁杆盟友以色列，并不认同拜登重返伊朗核协议的策略。以色列《哈约姆日报》称，以色列正在制定军事计划，以破坏伊朗的核努力，或在必要时反击伊朗的侵略。该报还援引国防部长本尼·甘茨的话说：“以色列需要具备一个军事选择权。”
-
-点评: 由于川普政府的斡旋，以色列和多个有传统世仇的阿拉伯国家达成和解，建立了外交关系，被称为火药桶的中东从而迎来了和平的曙光。当中，中东地缘政治的变化使伊朗变得势单力薄。
-
-令伊朗恐惧的是，和以色列之间的战略保护屏障不复存在。因为今后占据绝对空中优势的以色列，可以自由出入处于以伊之间的阿拉伯国家领空对伊朗进行空中打击，其中包括约旦、沙特等国。
-
-以色列国防部长表态，决不允许伊朗制造和拥有核武。而伊朗的声明已经证实伊朗跨越了以色列划定的红线，下一步的军事打击在所难免。
-
-中共和伊朗是当今邪恶轴心国的核心。早在奥巴马和西方对伊朗采取绥靖政策的时期，中共就利用逐渐坐大的伊朗，及其能源采购大国的地位，深度渗透中东，分化瓦解中东的各方势力，以达到控制中东能源，和在军事上牵制美国以减轻战略压力的目的。美国在本国能源自足后，大量减少在中东的军事存在，但以色列和阿拉伯国家的及时觉醒与和解，打乱了中共在中东取代美国的如意算盘。
-
-犹太教文明发端于4千多年前的地中海东南沿岸，曾经建立过文明程度很高的国家，却最终由于外族入侵而解体。历史上犹太人屡次遭受迫害，主要原因是犹太人没有祖国作为后盾。由此可以预计，今后不论遇到任何困难和威胁，犹太人都不会动摇保家卫国的决心。拜登重返伊朗核协议，是在破坏当前中东形成的和平格局，触动以色列的国家安全利益，必将招致大多数阿拉伯国家和以色列的强烈抵制。
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+**【大选实况】1/17/2021 EST 12:00 pm国务卿蓬佩奥推文： **在我们阻止USG（乔治亚州大学系统）退休账户投资中国解放军之后，标普、富时和纳斯达克采取行动保护美国投资者，将支持中共军民融合的公司摘牌。#美国第一 #遵守规则
 
 
 
+> After we blocked USG retirement accounts from investing in [#PLA](https://twitter.com/hashtag/PLA?src=hash&amp;ref_src=twsrc%5Etfw), S&P, FTSE and Nasdaq took action to protect American investors by delisting the companies fueling CCP military-civil fusion. [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw) [#PlayByTheRules](https://twitter.com/hashtag/PlayByTheRules?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/22kcLRXHbV](https://t.co/22kcLRXHbV)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350850373087494144?ref_src=twsrc%5Etfw)
 
+
+来源：[https://twitter.com/SecPompeo/status/1350850373087494144](https://twitter.com/SecPompeo/status/1350850373087494144)
+盖特链接：[https://gtv.org/getter/600473e787fabe2daf3b7ccf](https://gtv.org/getter/600473e787fabe2daf3b7ccf)
+
+* * *
+
+**【大选实况】1/17/2021 EST 12:30 pm 国务卿蓬佩奥推文：** 川普政府白手起家，但从志同道合的伙伴那里获得了强大的支持基础，以对抗中共在@联合国的渗透。我们曾经是唯一的声音，现在我们有关于香港自治和新疆侵犯人权的联合声明。#有意义的多边主义 【配图文字】我们呼吁中共立即结束这些恐怖行为，并要求所有国家与美国一道，要求终止这些非人道的虐待行为。
+
+
+
+> The Trump Administration built from nothing a strong base of support from like-minded partners to counter malign CCP actions at [@UN](https://twitter.com/UN?ref_src=twsrc%5Etfw). Where we once were the only voice, we now have joint statements on Hong Kong autonomy & human rights abuses in Xinjiang. [#MeaningfulMultilateralism](https://twitter.com/hashtag/MeaningfulMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/0Djhb026W1](https://t.co/0Djhb026W1)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350857919533776898?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1350857919533776898](https://twitter.com/SecPompeo/status/1350857919533776898)
+盖特链接：[https://gtv.org/getter/6004a34087fabe2daf3b9fb3](https://gtv.org/getter/6004a34087fabe2daf3b9fb3)
+
+* * *
+
+* * *
+
+**【大选实况】1/17/2021 EST 1:00 pm 国务卿蓬佩奥推文： 2**020年8月，@卫生部长亚历克斯-阿扎尔访台，在全球COVID-19的斗争中，强调我们的良性合作。台湾总统 @蔡英文带队成功对抗COVID-19。@世卫组织（WHO）可以向台湾学习很多。#台湾可以帮助大家
+
+
+
+> In August 2020, [@SecAzar](https://twitter.com/SecAzar?ref_src=twsrc%5Etfw) visited Taiwan to highlight our health cooperation amid the global COVID-19 fight. Taiwan's President [@iingwen](https://twitter.com/iingwen?ref_src=twsrc%5Etfw) led a successful battle against COVID-19. [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) could learn A LOT from Taiwan. [#TaiwanCanHelp](https://twitter.com/hashtag/TaiwanCanHelp?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/EC4SC03SJQ](https://t.co/EC4SC03SJQ)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350865474288947201?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1350865474288947201](https://twitter.com/SecPompeo/status/1350865474288947201)
+盖特链接：[https://gtv.org/getter/6004a4ce87fabe2daf3ba0d6](https://gtv.org/getter/6004a4ce87fabe2daf3ba0d6)
+
+* * *
+
+**【大选实况】1/17/2021 EST 1:32 pm 国务卿蓬佩奥推文：** 我在2020年9月派@副国务卿基思·克拉希、@助理秘书罗伯特·德斯特罗和@凯利·E·柯里大使前往台湾，纪念李登辉总统传奇的一生和民主遗产
+
+
+
+> I sent [@State\_E](https://twitter.com/State_E?ref_src=twsrc%5Etfw) Krach, [@DRL\_AS](https://twitter.com/DRL_AS?ref_src=twsrc%5Etfw) Destro & [@StateGWI](https://twitter.com/StateGWI?ref_src=twsrc%5Etfw) Currie to Taiwan in September 2020 to honor President Lee Teng-hui's life and democratic legacy. [https://t.co/700iqHspSg](https://t.co/700iqHspSg)
+> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350881897082212355?ref_src=twsrc%5Etfw)
+
+
+来源：[https://twitter.com/SecPompeo/status/1350881897082212355](https://twitter.com/SecPompeo/status/1350881897082212355)
+盖特链接：[https://gtv.org/getter/6004a5f887fabe2daf3ba1c6](https://gtv.org/getter/6004a5f887fabe2daf3ba1c6)
 
 0
