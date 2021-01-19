@@ -1,81 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Discord聊天记录显示，国会大厦的暴力行为是有计划的
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/772229/)
+## 辩驳COVID-19来自实验室的美国科学家承认他试图保护中国科学家
+` 喜马拉雅大使馆-经济金融组` [轉載自GNews](https://gnews.org/zh-hans/772639/)
 
-*新闻来源：《国家脉动》； 发布时间：2021年1月15日*
+整撰：MIYA 
+复核：BLGM
 
-*翻译/简评：Linda B；校对：SilverSpurs7；审核：万人往；Page：Daoiii*
+总部位于纽约的生态健康联盟主席彼得·达萨克（Peter Daszak）博士曾为中共站台，试图阻挠COVID-19来自实验室的理论， 15日通过发言人承认，他这样做是为了保护中国科学家免受网上批评。达萨克博士与中共的关系密切，WHO仍任命其成为病毒来源的调查小组成员，令人们对该调查工作能否确保公正和透明产生质疑。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/5TsTqW7KVHnwj/images/f6ef8f3e-ea5b-43fb-b5eb-b5d9303bda9f.jpg?asset_id=0975b081-8212-43b6-b0ea-41d2ca2e0285&amp;img_etag=%22e0ca1e832b513dbb05db7571dec410e1%22&amp;size=2560)](https://spark.adobe.com/page/5TsTqW7KVHnwj/images/f6ef8f3e-ea5b-43fb-b5eb-b5d9303bda9f.jpg?asset_id=0975b081-8212-43b6-b0ea-41d2ca2e0285&amp;img_etag=%22e0ca1e832b513dbb05db7571dec410e1%22&amp;size=1024)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-75.png)
 
-***简评：***
+1月14日，WHO病毒来源调查团队的成员，包括Peter Daszak（中）和Hung Nguyen（左）抵汉后登上大巴。
 
-**西方文明在全球化的进程中被中共的共产极权思想悄悄的侵蚀了，黑命贵的积极分子沙利文装扮成川普的支持者，在国会大厦外面煽动暴乱。他在美国民主制度中长大，享有言论自由和人权，但却仇恨这个赋予他各种权利的制度，到处煽动暴力，破坏法律，煽动种族仇恨，无限夸大虚无的被歧视论，为破坏法律的犯罪行为树立一个“正义”的标杆。这和中共国在1966年到1976年，十年文化大革命的红卫兵如出一辙。**
+**达萨克博士在疫情爆发初期精心策划，谴责病毒来自实验室是 “****阴谋论”**
 
-**自川普总统执政以来，大型集会举行了几百场，他的支持者们一直遵守法律，没有一次暴乱，没有一家商场被抢。谁是真正的爱国者，对比之后，高下立见。川普和他的支持者们希望一场公平的没有欺诈的选举，绝大多数的美国人热爱这位为美国再次伟大而牺牲了自己家族生意的总统，而不是虚伪狡诈的政客。**
+Daily Caller News于1月18日报道了这位美国科学家，在对COVID-19的起源进行任何认真研究之前，联合全世界20多名科学家，精心策划了去年2月份发表在《柳叶刀》医学杂志上的联合声明，谴责一些认为病毒不是自然起源的 “阴谋论”。
 
-***原文翻译：***
+调查研究组织 “美国知情权 “获得的一封2020年2月6日的电子邮件显示，达萨克博士提前草拟了该声明的初稿，并与几位科学家讨论包括如何驳斥COVID-19来源实验室的论点、拟定联合署名的相关人员以及预告声明的发布时间等事项。闫丽梦博士早在去年11月19日的路德社节目中就揭露了相关两份邮件。
 
-# **非同寻常：聊天记录显示了计划涉嫌将川普集会变成暴力骚乱**
 
-**约翰·沙利文（John Sullivan）主持的Discord聊天频道的屏幕截图——一位极左的反川普激进分子，冒充记者同时煽动了美国国会大厦的暴力行为。他透露，他和他的追随者渗透到1月6日在华盛顿特区举行的“拯救美国游行”。**
 
-一份宣誓证词显示：在沙利文因参与了国会大厦暴乱而被捕以后出现的屏幕截图，包括呼吁暴力行为，例如“我们得把这种狗屎烧掉”和“这是我们的家，混蛋”。
+> Note:
+> 1. Early as 6 Feb, 2020, the draft of lancet letter is prepared by Dr. Peter Daszak in EcoHealth, to support CCP.
+> 2. Except for me via LuDe Media since 19 Jan, no one else pointed out genomic data related CCP-modified COVID-19 virus, which made these experts so scared. [pic.twitter.com/LvbtW9AOth](https://t.co/LvbtW9AOth)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [November 20, 2020](https://twitter.com/DrLiMengYAN1/status/1329588671121657856?ref_src=twsrc%5Etfw)
 
-据称，Discord聊天频道隶属于沙利文的美国叛乱组织（Insurgence USA），该组织将自己形容为“组成一个彩虹联盟，把所有人都团结在一面旗帜下，为所有人的解放和自由而战。”
 
-该小组的页面补充说：“我们是革命，让我们[原文如此]向他们展示人民团结的力量。”
 
-聊天记录证实了最近针对沙利文的联邦指控，并指出他并未参加暴动来“报导”，而是出任特工挑衅者。1月6日，沙利文（使用Jayden X的名字）发送一张标题为“反情报”照片。照片中他带着川普2020的帽子。
+达萨克博士在该邮件中说，”我认为这有点太具体了，因为还有其他阴谋论。我们目前的声明巧妙地驳斥了大多数人的说法，’**我们站在一起强烈谴责暗示2019-nCoV****不是自然起源的阴谋论。科学证据压倒性地表明，这种病毒起源于野生动物，正如许多其他新兴疾病一样‘**。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/5TsTqW7KVHnwj/images/3e823c5e-06b0-4b34-b229-53604baa6346.png?asset_id=56c8cf80-d287-4bc0-b38f-873c01659e04&amp;img_etag=%2214e242c45ea4c81febf9805de6057396%22&amp;size=3724)](https://spark.adobe.com/page/5TsTqW7KVHnwj/images/3e823c5e-06b0-4b34-b229-53604baa6346.png?asset_id=56c8cf80-d287-4bc0-b38f-873c01659e04&amp;img_etag=%2214e242c45ea4c81febf9805de6057396%22&amp;size=1024)
+**这份题为**[**《支持中国抗击2019 ****年新型冠状病毒疾病（COVID-19****）疫情中的科研、公共卫生、医务工作者的声明》**](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2930418-9/fulltext)**，最终于2020****年2****月19****日发表在柳叶刀杂志，由来自英、德、美、澳、荷兰、西班牙以及马拉西亚、中国香港等全球著名科研单位的27****名病毒学家、流行病学家联合署名。疫情发生期间，该声明一度代表了科学界的权威被众多新闻机构以及事实核查组织所引用。**
 
-沙利文假扮为川普支持者
+**达萨克通过发言人承认发表该声明是为了保护中国科学家**
 
-骚乱发生后，其他Discord用户透露，他们戴着帽子和衬衫并戴着总统的徽章，伪装成川普的支持者：
+达萨克博士的发言人本周五（15日）告诉《华尔街日报》，该声明是在中国科学家收到死亡威胁的时候写的，是为了表示对中国科学家的支持。“因为他们被夹在试图阻止疫情的重要工作和网上骚扰的挤压之间” ，发言人说。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/5TsTqW7KVHnwj/images/525a690e-9be8-4cb4-a272-4361824b3b99.png?asset_id=0360e10f-def5-4a33-be23-ce378be1f34a&amp;img_etag=%22ae1cc32ed82755e542bfbe9039f304cf%22&amp;size=4526)](https://spark.adobe.com/page/5TsTqW7KVHnwj/images/525a690e-9be8-4cb4-a272-4361824b3b99.png?asset_id=0360e10f-def5-4a33-be23-ce378be1f34a&amp;img_etag=%22ae1cc32ed82755e542bfbe9039f304cf%22&amp;size=1024)
+当被问及是否坚持认为COVID-19不存在因实验室意外释放而被释放到人类中的可能性时，达萨克博士没有回应Daily Caller News。
 
-用户承认穿戴支持川普的帽子和衬衫混入
+**达萨克长期与WIV****直接合作，也WHO****任命的病毒来源调查组成员之一**
 
-其他用户，例如deaththreat（“死亡威胁”）承认冲进国会大厦的人由“大量反川普者”组成，他们后来在人群中表明自己的身份：
+达萨克博士直接参与与武汉病毒学研究所（WIV）的科学家的合作，该研究所在COVID-19爆发之前一直在研究基于蝙蝠的冠状病毒，据称他和安东尼·福奇博士一起在推动美国国家卫生研究所（NIV）资助[包括WIV在内的两项总金额为740万美元的病毒研究项目](https://gnews.org/zh-hans/770016/)发挥了影响作用。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/5TsTqW7KVHnwj/images/61dedcbe-9010-4893-830c-a2f37575f106.png?asset_id=8f7f388d-cecd-4ba1-9d7d-9ea44369817e&amp;img_etag=%221461d5969203f712c009ae929d27584b%22&amp;size=3346)](https://spark.adobe.com/page/5TsTqW7KVHnwj/images/61dedcbe-9010-4893-830c-a2f37575f106.png?asset_id=8f7f388d-cecd-4ba1-9d7d-9ea44369817e&amp;img_etag=%221461d5969203f712c009ae929d27584b%22&amp;size=1024)
+世界卫生组织任命达萨克博士为一个10人小组成员，该小组14日已抵达中国武汉调查病毒起源。独立专家批评WHO无视达萨克博士之前与WIV的关系，仍将其列入该小组。
 
-用户确认自己在国会抗议
+“世卫组织调查的独立性可能会因用于选择调查人员的程序而受到严重损害……特别是选择达萨克博士，他在维护中共的疫情宣传方面紧密关联，并且他是与WIV里科学家的长期合作者，很可能会玷污其结果，”James Martin不扩散研究中心的研究员迈尔斯·庞珀（Miles Pomper）说。
 
-其他参与者则拍照他们自己在国会大厦外面对川普支持者做出粗鲁的手势。
+国务院上周五宣布，已经获得证据显示，在首个已知的COVID-19病例之前，WIV的研究人员在2019年秋季出现了类似流感的症状。国务院表示，“人们对WIV高级研究员石正丽公开宣称WIV的内部人员 “零感染 “SARS-CoV-2或SARS相关病毒的可信度产生质疑。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/5TsTqW7KVHnwj/images/c50f3c78-2d83-427f-bb4d-651b2b968b8c.png?asset_id=697a7487-a5f7-4a07-883c-3227e3884b2a&amp;img_etag=%22a334d780dffffc4387a56f0b494f5f6a%22&amp;size=4000)](https://spark.adobe.com/page/5TsTqW7KVHnwj/images/c50f3c78-2d83-427f-bb4d-651b2b968b8c.png?asset_id=697a7487-a5f7-4a07-883c-3227e3884b2a&amp;img_etag=%22a334d780dffffc4387a56f0b494f5f6a%22&amp;size=1024)
+被同事称为 “蝙蝠女 “的WIV研究员石正丽3月份告诉《科学美国人》，当她12月第一次得知疫情时，她担心病毒会从实验室泄露而失眠。
 
-最后，现在有进一步的信息表明，沙利文和他组织成员正计划参与进一步的暴力抗议活动，这些抗议活动伪装成支持川普的集会：
+![]()![](https://gnews.org/wp-content/uploads/2021/01/2-34.png)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/5TsTqW7KVHnwj/images/b326b03d-a586-4c7b-94de-a4bc46866663.png?asset_id=99b3a35b-fbf9-4bb1-a2b2-5375e7ef2e5e&amp;img_etag=%22e749413fc8a2c20ad62a0727f741c4a6%22&amp;size=2560)](https://spark.adobe.com/page/5TsTqW7KVHnwj/images/b326b03d-a586-4c7b-94de-a4bc46866663.png?asset_id=99b3a35b-fbf9-4bb1-a2b2-5375e7ef2e5e&amp;img_etag=%22e749413fc8a2c20ad62a0727f741c4a6%22&amp;size=1024)
+宾夕法尼亚州立大学生物学教授Maceij Boni博士告诉本刊记者，如果WIV员工在病毒爆发到普通人群之前感染了该病毒，这将是指向COVID-19从WIV实验室泄露理论的 “积极证据”。
 
-沙利文还发布了有关如何制作化学武器湿巾的说明。
+“致命病毒”有从中共实验室逃逸的历史。2004年，SARS病毒在最初被控制一年后，两次从北京的中共病毒学研究所逃逸。
 
-沙利文贴出这些传单，声称MAGA将于1月17日举行全国范围内的集会，支持第二修正案。他没有公布这些照片的来源。我的看法是他自己制造了更多的混乱。
+彼得·达萨克博士以及联合声明中的那些国际知名的科学家们，不以严谨的科学研究为依据，盲目为中共站台。学界充斥着腐败，达萨克和福奇博士等科学界精英们不顾“科学以人为本”的宗旨，推动美国NIH资助中共参与病毒从动物到人体增强功能的研究项目，无论WIV员工疑是感染病毒的“失控”是人为还是意外，中共销毁病毒数据掩盖真相，让全球陷入疫情危机的责任不容推卸。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/5TsTqW7KVHnwj/images/ddec5378-b26d-4f14-ba3e-64caf169add2.png?asset_id=c1bb1683-e799-4b86-a992-107795ce4a8b&amp;img_etag=%22b2a4743e966c8dbaada47f7ef62f7ff2%22&amp;size=2560)](https://spark.adobe.com/page/5TsTqW7KVHnwj/images/ddec5378-b26d-4f14-ba3e-64caf169add2.png?asset_id=c1bb1683-e799-4b86-a992-107795ce4a8b&amp;img_etag=%22b2a4743e966c8dbaada47f7ef62f7ff2%22&amp;size=1024)
+“玩火者必自焚”，川普政府在任的尾声层层揭露中共隐瞒病毒真相、操纵美国大选、有组织大规模的网络攻击等等罪行。**1****月19****日，是闫丽梦博士秘密通过爆料革命的路德社节目向全世界敲响病毒警钟的周年纪念日，历史永远地定格了病毒真相：中共军方制造生物武器。一旦宣布病毒真相，全世界国家将万箭齐发向中共追责和索赔。祈福人类早日消灭中共，早日结束疫情，早日度过黑暗迎来光明。**
 
-就在1月13日星期三，他似乎发表了一些评论，例如“大声笑，这将是一场战争。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/5TsTqW7KVHnwj/images/6b7cb520-1efb-44a7-a915-fa0dc8082713.png?asset_id=688c6c0b-acf3-40fe-9129-22f5b348ccfa&amp;img_etag=%22cfcff03c7396c7538211f6fdd6d6dba5%22&amp;size=4405)](https://spark.adobe.com/page/5TsTqW7KVHnwj/images/6b7cb520-1efb-44a7-a915-fa0dc8082713.png?asset_id=688c6c0b-acf3-40fe-9129-22f5b348ccfa&amp;img_etag=%22cfcff03c7396c7538211f6fdd6d6dba5%22&amp;size=1024)
-
-最新消息严重动摇了一些机构关于唐纳德·川普煽动国会大厦暴动以及其支持者对1月6日大部分行动负责的说法。
-
-**🔗[原文链接](https://thenationalpulse.com/news/chat-logs-rally-plot-trump/)**
-
-🔖[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-📺[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-
-🔊[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
-
-[编辑：【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/5TsTqW7KVHnwj/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/5TsTqW7KVHnwj/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/5TsTqW7KVHnwj/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+参考链接：
+[https://dailycaller.com/2021/01/18/peter-daszak-lancet-statment-protect-chinese-scientists/](https://dailycaller.com/2021/01/18/peter-daszak-lancet-statment-protect-chinese-scientists/)
 
 0

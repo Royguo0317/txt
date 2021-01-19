@@ -1,23 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 01/19/2021 Epidemic Chaos Inside the CCP (2)
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/772805/)
+## 德国将把违反中共病毒疫情限制令者关入“拘留营”
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/773247/)
 
-Video 1: Dictation: CharlesS; Translation: yyshere, CharlesS; PR: CharlesS; Subtitle: Yunling
+*加拿大多伦多枫叶农场 文来*
 
-Video 2: Dictation: yyshere; Translation: yyshere; PR: CharlesS; Subtitle: Tachikma
+*校对、发稿 文锦*
+![]()![](https://gnews.org/wp-content/uploads/2021/01/0d4c97b8b2909150cb11ee818a4885a9-1.png)图片来源：Gold FM
+据人类自由（Humans are Free）1月19日报道，德国将把屡次不遵守中共病毒疫情限制令的异议人士置于德累斯顿（Dresden）的“拘留营”中。
 
-### On January 14, 2021, a sudden explosion occurred in a factory located in Tianjin Free Trade Zone
+违规者被告知，如果他们既收到警告又被罚款，法院将决定是否将其关进拘留营。一位发言人告诉记者，不认为会有很多违规者，但如果法院作出判决，他们就会着手准备关押设施。”  、
 
-### On January 3rd, 2021, staff canteen of the hospital reportedly exploded “no casualties” in Inner Mongolia, China.
+这听起来非常令人恐怖。让人不得不联想起二战时期的灭绝种族的德国纳粹的集中营。除了德国，一些西方国家也听说有类似计划。去年新西兰当局表示将把所有中共病毒感染者及其近亲属放入“隔离设施”。总理贾辛达·阿登（Jacinda Ardern）明确表示，拒绝接受中共病毒测试的任何人都将被关押至少14天。
 
-- [Click here to read more articles in G-News](https://gnews.org/author/himalaya_hawk/)
-- [Click to watch the exciting video on G-TV](https://gtv.org/user/5ee680a45bd6f123dd104807)
+本月早些时候，纽约的一名立法者还提出了一项法案，该法案将赋予政府权力，以便将其“疾病携带者”移走并拘留在隔离设施中。
 
+**评：**
 
-Edited by：【Himalaya London Club UK】
+通过爆料革命的路德媒体和闫丽梦博士对中共病毒真相的揭露，人们越来越看清了世界上的撒旦邪恶势力的真实目的，那就是想通过制造和传播中共病毒，来搞乱世界政治和经济秩序，从而激活“大重启”，以此控制世界财富和人权，让全世界人民成为他们的奴隶。
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/HHS_QRCode_V2-2-1.jpg)
+正向文贵先生所说的，这是一场正义和邪恶的终极之战，世界已经到了最危急的时刻。但上帝不会帮助无准备之人。我们与其坐等被人拯救，不如行动起来自救。除了祷告，我们还要去唤醒身边更多的麻木不醒的人们，集结更多的正义力量。相信没有的魔鬼的新世界终会到来。
 
-0
+*[原文链接](https://humansarefree.com/2021/01/germany-covid-rulebreakers-in-detention-camp.html)*
+
++1

@@ -1,55 +1,96 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 佩洛西力挺深陷“方芳”丑闻的斯沃维尔
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/772128/)
+## 离一月二十号总统宣誓日还有一天，正义会走向何方？
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/772551/)
 
-*新闻来源：《零对冲(Zero Hedge)》； 作者：Tyler Durden； 发布时间：2021年1月16日*
+![]()![](https://gnews.org/wp-content/uploads/2021/01/wengui10-1.png)
+越来越近了，终于这个将改变全球人命运的一天将来临。
 
-*翻译/简评：MikeHua；校对：X-Wing飞得更高；审核：万人往；Page：Daoiii*
+这一天会发生什么呢？
 
-[!\[\]()!\[\](https://spark.adobe.com/page/DC6WslAwFp4Vg/images/99d51330-6dd4-41a4-956c-798f277ac1e8.png?asset_id=8a04b6aa-1388-437c-973d-bbb4625ed95e&amp;img_etag=%22ca9f40390975dac9a3540c0c54ff351f%22&amp;size=2560)](https://spark.adobe.com/page/DC6WslAwFp4Vg/images/99d51330-6dd4-41a4-956c-798f277ac1e8.png?asset_id=8a04b6aa-1388-437c-973d-bbb4625ed95e&amp;img_etag=%22ca9f40390975dac9a3540c0c54ff351f%22&amp;size=1024)
+班农发推说
 
-**简评：**
+Big things coming
 
-**佩洛西和这些所谓精英已经完全不要任何脸皮，纯粹在美国政坛裸奔，竟然把与中共女间谍纠缠不清的斯沃维尔这个家伙提名到众议院国家安全委员会，这就是郭先生所说的荒唐滑稽。选举竟然出现这种明目张胆的卖国，名正言顺当选的总统要被赶下台，美国真的是到了至暗时刻。**
+大事件将来临
 
-**这次中共对美国发动的攻击，对美国的伤害比历史上美国所经历的一切战争都大。美国因中共病毒死亡的人数远超过珍珠港袭击和“911”。而这次对美国总统和国家权力的偷盗，是真正颠覆了美国立国之本——民主、自由和法治。美国的伟大就在于无论危机有多大，美国最终都能回归正轨，完成自我修复。这次自我修复将会把中共这样的吸血害虫清除，美国要想回归伟大，就必须这么做，美国不这么做，就会灭亡，所以美国没有选择，只能灭共。而这次美国和中共的战争，我们新中国联邦将打扫战场，在灭掉共产党之后以最快的速度让14亿中国人民与世界接轨，共产党是彻底的完了！**
+朱利安尼发推说
 
-**原文翻译：**
+The Abandoned City
 
-# **佩洛西不顾斯沃维尔和中共间谍的“纠缠”，将他任职到国家安全委员会**
+被遗弃的城市
 
-建议对持枪民众使用核武器、在电视直播上放屁、和中共糖衣炮弹“方芳”纠缠不清的民主党众议员艾瑞克·斯沃维尔(Eric Swalwell)要回归到众议院国土安全委员会，为什么不呢。
+华盛顿风声鹤唳，草木皆兵。
 
-“我的委员会席位——包括我作为检察官的经验和作为执法人员兄弟和儿子的优势——会给我独特的机会深入美国最严重的国家安全威胁。”斯沃维尔写道，他曾拒绝回答他是否和一个中共美女间谍睡觉。
+用大喇叭广播这样的内容：
 
-斯沃维尔的头等大事？ “突出并找到解决白人民族主义极端主义祸害的解决方案”——而不是外部势力对家园的其他威胁（例如中共间谍盗窃美国的军事机密和知识产权）。
+我们正在受到外部安全威胁，不允许进入华盛顿DC或离开。请在家的人不要靠近外部窗户和门。如果在不在房子里请尽快寻求掩体掩护！
 
-[!\[\]()!\[\](https://spark.adobe.com/page/DC6WslAwFp4Vg/images/e74b97bb-27bf-42c3-9393-fc03d0ed7fac.png?asset_id=053597eb-94e0-4e51-acc8-ef0612fa75bb&amp;img_etag=%22dc0e49a69450eb1a69238f96c3c68459%22&amp;size=2687)](https://spark.adobe.com/page/DC6WslAwFp4Vg/images/e74b97bb-27bf-42c3-9393-fc03d0ed7fac.png?asset_id=053597eb-94e0-4e51-acc8-ef0612fa75bb&amp;img_etag=%22dc0e49a69450eb1a69238f96c3c68459%22&amp;size=1024)
+所谓历史上得票最高的总统就职仪式，却配备了2万全副武装的军人遍布国会山的每个角落，装高墙，布铁丝网，周围酒店旅馆禁住，戒备森严。
 
-根据Axios媒体报道，除了被公众嘲笑，40岁的国会议员斯沃维尔没有因为他和方芳的关系受到任何职业生涯上的影响，方芳是中共间谍，和斯沃维尔在政治活动上有多次来往，帮助斯沃维尔选举团队募资，成功地把她的人安插到斯沃维尔的办公室里，这导致方芳被FBI监控调查。
+美国两百多年来最滑稽的总统就职典礼日即将拉开帷幕。
 
-如《纽约邮报》所写，“众议院议长佩洛西和斯沃维尔站在一起，尽管越来越多的共和党人呼吁将这位来自湾区的民主党人从众议院情报委员会（他任职的另一个委员会）撤下，出于安全考虑。”
+多么像安徒生童话中皇帝的新衣，
 
-“在选举中，美国人民选择了民主党多数席位，这不仅会确保我们国家从历史性的疫情和经济危机中复苏，也会让美国更好重建，”佩洛西在一份声明中说，“作为议长，我很高兴宣布任命这些出色的成员到关键的委员会中，他们会果断地领导民主党的工作，以对抗在我们经济的不平等，促进公正以及为人民的进步。”
+裸体皇帝将在这里举行新闻发布会，
 
-在川普的第二次弹劾审判中，斯沃维尔还被佩洛西提名为民主党的经理人之一。
+将瞒天过海机选盛民选的盗国行为进行到底。
 
-🔗[原文链接](https://www.zerohedge.com/political/pelosi-puts-swalwell-back-homeland-security-committee-despite-chinese-spy-entanglement?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+真的如丘吉尔所说：
 
-📍其他相关信息：[中共间谍芳芳与埃里克·斯沃维尔和很多地方的市长有关联，这就证明了中共在美国的间谍活动之深，他们想要知道我们的信息，窃取我们的机密。](https://www.youtube.com/watch?v=ZZVNRlc6ff4&amp;feature=emb_logo)
+指望美国人做出正确的事情，要等他们把所有的错误都尝试一遍后！
 
+这样吗？
+![]()![](https://gnews.org/wp-content/uploads/2021/01/capitol1-1.png)图片来源： 网络
+而全球范围内大审判已经开始
 
+1.  荷兰政府整個內阁因”育儿福利问题”辞职。
 
-🔖[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+2.  德国总理默克尔大媽辞职!
 
-📺[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+3.  爱沙尼亚总理因贪污突然”引咎”辞职。
 
-🔊[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+4.  意大利政府(因疫情處理不力/参与干预米国大选/親共)完球蛋。
 
-[编辑：【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/DC6WslAwFp4Vg/)
+5.  解密奥巴马文件。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/DC6WslAwFp4Vg/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/DC6WslAwFp4Vg/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+6.法国总统马克龙也将去职
+
+在一年前的今天2020.1.19路德
+
+做了改变人类命运的一期节目，在节目中他和安红等明确的告诉世人这个病毒是中共研发的袭击世界的化学生化武器！是闫丽梦博士第一次警告世人人传人大爆发。不高度重视将引起灾难性的后果。
+
+在一片质疑声中，一年后的今天，还有人在质疑是全球性的疫情吗？
+
+明年的今天，全球还会再质疑这不是来自中共的生化武器吗？
+
+明年的今天中共还会是中国的执政党吗？
+
+在这些答案揭晓前
+
+Do you believe that justice will win?
+
+Are you true to your faith？
+
+如果你坚持你的信仰，当乌云笼罩，狂风暴雨时，你就会找到那片曙光。
+
+国内的雪崩已经来临
+
+中共的丧钟已经在敲响。
+
+让我们期待川普总统王者归来。
+
+七哥引领的新中国联邦被世界大范围的承认。
+
+进而取代中共伪政权！还公平选举于民！
+
+世界重回巅峰！
+![]()![](https://gnews.org/wp-content/uploads/2021/01/capitol2-1.png)
+作者：昔马千羽
+
+原创观点文章 – 2021/01/19
+
+温哥华圆成农场
 
 +1
