@@ -1,115 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫报告：川普政府的政绩——截至2021年1月（五）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/771076/)
+## 郭先生0117(十): 货币已不能垄断生产力交换,现在是数字化时代
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/771907/)
 
-五月花写作组 ｜ 翻译：野马 ｜ 校对：jiasen、虹陵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告5.jpg)
-### **Part 5 – American Energy Independence**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/封面-30.png)
+**编辑整理**：
 
-### **第五部分：美国的能源独立**
+巴塞罗那喜悦农场：笑笑
 
-* * *
+法国巴黎七星农场：YIMING（文鸣）、羊肉泡馍
 
-**Unleashed America’s oil and natural gas potential.**
+篇首说明：郭文贵先生在[2021年1月17日文贵直播：拒绝中共的谎言和洗脑！G-Fashion新品全面上线！G翻身是时尚文化运动！人类的终极之战，CCP的灭亡不可逆转！](https://gtv.org/video/id=6004464af579a75e0bdc4f3c)直播中，谈到了我们无视中共盗国七十年却对美国大选的骗局抓耳挠腮的现象；谈到了我们要认真 思考自己能做什么和有没有资格说的两个核心问题；谈到了爆料革命坚决不做口炮党、不做精神上的巨人和行动上的侏儒的行动力和已经达成的全球集体灭共战果；谈到了对于不相信爆料革命的政客及其他人我们不要太着急的内容；谈到了爆料革命、新中国联邦已经成为世界和人类走向未来事关人类命运的重大政治、经济和灾难事件的主角；谈到了爆料革命绝对不成成为口炮党或者做行动上的侏儒、精神上的巨人，行动才是第一位的；谈到了人的灵魂是不死不灭的及共产党主义思想的本质问题；谈到了G-Fashion新产品上线等一系列内容。本系列将根据郭先生直播中涉及到的不同话题进行逐一上传。
 
-**释放了美国的石油天然气潜力**
+以下为第十部分：货币已不能垄断生产力交换,现在是数字化时代——
 
-- For the first time in nearly 70 years, the United States has become a net energy exporter.
-- 近70年来，美国首次成为能源净出口国。
-- The United States is now the number one producer of oil and natural gas in the world.
-- 美国现在是世界上第一大石油和天然气生产国。
-- Natural gas production reached a record-high of 34.9 quads in 2019, following record high production in 2018 and in 2017.
-- 在2018年和2017年创纪录的高产量之后，天然气产量在2019年达到了34.9 quad的历史新高。
+据[2021年1月17日文贵直播：拒绝中共的谎言和洗脑！G-Fashion新品全面上线！G翻身是时尚文化运动！人类的终极之战，CCP的灭亡不可逆转！](https://gtv.org/video/id=6004464af579a75e0bdc4f3c)时间点1：20：27——
 
+说到这儿的时候，我再给接下来说一些G系列啊，昨天很多战友问我很多关于G系列的问题，我想给大家先说一个最核心的问题。大家一定要想到，人类到了什么时候呢，就是绝对是谁也挡不住的，就像灭共一样，你不信你千万不要去信，你绝对信了你才去参与或者说你听我说这个话，人类现在到了一个最最根本的可以说上万年来的最大一个转换，数字化时代，不能老说虚拟时代，叫数字化时代。**过去的所有的金融系统和人类的生存模式，从过去的易货贸易到记账贸易到最后的货币贸易，然后到了今天的数字化时代，人类上的所有的生产力的交换，已经不可能被所谓的货币系统彻底垄断，货币未来绝对不仅仅是国家主权，货币是一个国家一个民族生存的根本性的，比过去的钱还重要。**这个时候能让人类、适合人类高效地生产力和生产率大喷发，从过去全球的几亿人到七十几亿人口，这种巨大的生产力的交换和需要，只有数字才能满足。这个时候需要低成本、高效率、绝对安全，不可能被一个所谓的政府、政权垄断，也就是**未来的人类的生产力的高效交换方式不局限于货币，而且不可能被政府垄断。而这个时代的到来不会象过去人那样花几百年从金本位到石油美元，不可能了。未来的变化可能是论月论年都有巨大的升级和变化。**
 
-**译者注：**（每quad等于四十亿BTU（英国热量单位），并且大致与以下几点相当：8,007,000,000加仑（美国）汽油293,071,000,000千瓦时（千瓦时）36,000,000吨煤970,434,000,000立方英尺的天然气25,200,000吨石油252,000,000吨TNT13.3吨铀-235）
+因为七十几亿人的现代化的生产力和对事物的需要的更新是（对比）你过去三亿多人的封建时代的生产力和速度更新，你去想想有多大变化。就象你过去来趟美国，你坐着船来得几个月，现在你坐飞机十几个小时就来，一模一样的道理，如果你做协和飞机超音速飞机那就更快了，那你用打电话你不用来就是你一按就到了，就这么简单，用那么复杂吗，用不着科学家教授在那白哧白哧讲半天，扯淡的事，这么简单说的事多容易啊，几秒钟就说完了。**七十几亿人的生产力和创造力和易货贸易和贸易形式和交易形式，它必须是数字化，数字化的货币和数字化的金融的诞生，它是根本。**
 
-- The United States has been a net natural gas exporter for three consecutive years and has an export capacity of nearly 10 billion cubic feet per day.
-- 美国已连续三年成为天然气净出口国，每天的出口能力近100亿立方英尺。
-- Withdrew from the unfair, one-sided Paris Climate Agreement.
-- 退出了不公平，单方面的《巴黎气候协定》。
-- Canceled the previous administration’s Clean Power Plan, and replaced it with the new Affordable Clean Energy rule.
-- 取消了上届政府的《清洁能源计划》，并将其替换为新的《可负担的清洁能源规则》。
-- Approved the Keystone XL and Dakota Access pipelines.
-- 批准了Keystone XL和Dakota Access管道工程。
-- Opened up the Arctic National Wildlife Refuge (ANWR) in Alaska to oil and gas leasing.
-- 在阿拉斯加开放了北极国家野生动物保护区（ANWR）进行石油和天然气开采区块租赁。
-- Repealed the last administration’s Federal Coal Leasing Moratorium, which prohibited coal leasing on Federal lands.
-- 废除了上届政府的联邦煤炭开采区块租赁禁令，该禁令禁止在联邦土地上租赁煤炭开采区块。
-- Reformed permitting rules to eliminate unnecessary bureaucracy and speed approval for mines.
-- 改革了许可规则，以消除不必要的官僚机制并加快矿山的审批速度。
-- Fixed the New Source Review permitting program, which punished companies for upgrading or repairing coal power plants.
-- 修正了“新资源审查”许可计划，该计划对进行升级或修理燃煤电厂的公司进行了处罚。
-- Fixed the Environmental Protection Agency’s (EPA) steam electric and coal ash rules.
-- 修正了环境保护署（EPA）的蒸汽发电和煤灰法规。
-- The average American family saved $2,500 a year in lower electric bills and lower prices at the gas pump.
-- 美国家庭平均每年通过降低电费和降低燃油价格节省了2500美元。
-- Signed legislation repealing the harmful Stream Protection Rule.
-- 签署立法，废除了有害的“河流保护规则”。
-- Reduced the time to approve drilling permits on public lands by half, increasing permit applications to drill on public lands by 300 percent.
-- 将批准在公共土地上钻探许可的时间减少了一半，使在公共土地上钻探许可的申请增加了300％。
-- Expedited approval of the NuStar’s New Burgos pipeline to export American gasoline to Mexico.
-- 加快批准了NuStar的新布尔戈斯（New Burgos）输油管道，以将美国汽油出口到墨西哥。
-- Streamlined Liquefied natural gas (LNG) terminal permitting and allowed long-term LNG export authorizations to be extended through 2050.
-- 简化的液化天然气（LNG）码头许可，并允许将长期LNG出口许可延长至2050年。
-- The United States is now among the top three LNG exporters in the world.
-- 美国现在是世界上三大LNG出口国之一。
-- Increased LNG exports five-fold since January 2017, reaching an all-time high in January 2020.
-- 自2017年1月以来，液化天然气出口量增长了五倍，到2020年1月达到历史新高。
-- LNG exports are expected to reduce the American trade deficit by over $10 billion.
-- 液化天然气出口有望使美国的贸易逆差减少100亿美元以上。
-- Granted more than 20 new long-term approvals for LNG exports to non-free trade agreement countries.
-- 为向非自由贸易协定国家的LNG出口，授予20多个新的长期许可。
-- The development of natural gas and LNG infrastructure in the United States is providing tens of thousands of jobs, and has led to the investment of tens of billions of dollars in infrastructure.
-- 美国天然气和LNG基础设施的发展，提供了数以万计的就业机会，并带来了数百亿美元的基础设施投资。
-- There are now 6 LNG export facilities operating in the United States, with 2 additional export projects under construction.
-- 现在，美国有6个LNG出口设施正在运营，另外还有2个正在建设中的出口项目。
-- The amount of nuclear energy production in 2019 was the highest on record, through a combination of increased capacity from power plant upgrades and shorter refueling and maintenance cycles.
-- 通过电厂升级带来的发电量增加和更短的加核燃料与维护周期，2019年的核能生产量达到有史以来最高。
-- Prevented Russian energy coercion across Europe through various lines of effort, including the Partnership for Transatlantic Energy Cooperation, civil nuclear deals with Romania and Poland, and opposition to Nord Stream 2 pipeline.
-- 通过多方努力，防止俄罗斯在欧洲的能源霸凌行为，包括跨大西洋能源合作伙伴关系，与罗马尼亚和波兰的民用核协议以及反对北溪2号管道。
-- Issued the Presidential Permit for the A2A railroad between Canada and Alaska, providing energy resources to emerging markets.
-- 颁发了加拿大和阿拉斯加之间A2A铁路的总统许可证，为新兴市场提供能源。
+比特币，它的诞生之初，它是伟大的、了不起的，它是创始者。但是它的数量和它的技术和它的使用和它的设计局限了。就像当初的黄金，银子一样、金银一样，它的实用性和功能性是有限制的。现在为什么Facebook要搞自己的虚拟货币呀，共产党要搞自己的虚拟货币呀，为啥美国自己不搞？美国一搞自己的美元就搞没了。共产党要搞的是要把所有的、自己不被搞没，要把别人的搞没。**Libra chain就想作为除了政府国家权力统治之外的最大的老大，一统江湖，当然了它做不到，**是吧？
 
+**接上文——**
 
-**Increased access to our country’s abundant natural resources in order to achieve energy independence.**
+[**郭先生0117****（一）：我们无视中共盗国70****年却想对美国大选指手划脚**](https://gnews.org/zh-hans/769982/)
 
-**充分利用美国丰富的自然资源以实现能源独立。**
+[**郭先生0117****（二）:****在任何事情面前我们要时刻思考的两个核心问题**](https://gnews.org/zh-hans/770259/)
 
-- Renewable energy production and consumption both reached record highs in 2019.
-- 可再生能源的生产和消费在2019年均创历史新高。
-- Enacted policies that helped double the amount of electricity generated by solar and helped increase the amount of wind generation by 32 percent from 2016 through 2019.
-- 已颁布的政策使太阳能发电量翻了一番，并从2016年到2019年，风力发电量增加了32％。
-- Accelerated construction of energy infrastructure to ensure American energy producers can deliver their products to the market.
-- 加快能源基础设施建设，以确保美国的能源生产商可以将其产品交付市场。
-- Cut red tape holding back the construction of new energy infrastructure.
-- 削减繁文褥节，减少新能源基础设施建设的阻力。
-- Authorized ethanol producers to sell E15 year-round and allowed higher-ethanol gasoline to be distributed from existing pumps at filling stations.
-- 授权乙醇生产商全年销售E15，并允许在加油站的现有加油泵中分发高乙醇汽油。
-- Ensured greater transparency and certainty in the Renewable Fuel Standard (RFS) program.
-- 确保可再生燃料标准（RFS）计划具有更高的透明度和确定性。
-- Negotiated leasing capacity in the Strategic Petroleum Reserve to Australia, providing American taxpayers a return on this infrastructure investment.
-- 商定了战略石油储备中心给澳大利亚的租赁容量，为美国纳税人提供了基础设施投资的回报。
-- Signed an executive order directing Federal agencies to work together to diminish the capability of foreign adversaries to target our critical electric infrastructure.
-- 签署了一项行政命令，指导联邦机构共同努力，以降低外国对手针对我们关键的电力基础设施的竞争力。
-- Reformed Section 401 of the Clean Water Act regulation to allow for the curation of interstate infrastructure.
-- 改革了《清洁水法》第401条，允许管理州际基础设施。
-- Resolved the OPEC (Organization of the Petroleum Exporting Countries) oil crisis during COVID-19 by getting OPEC, Russia, and others to cut nearly 10 million barrels of production a day, stabilizing world oil prices.
-- 解决了COVID-19期间的石油输出国组织（OPEC）石油危机，使石油输出国组织（OPEC），俄罗斯和其他国家每天减产近1000万桶，稳定了世界石油价格。
-- Directed the Department of Energy to use the Strategic Petroleum Reserve to mitigate market volatility caused by COVID-19.
-- 指示能源部使用战略石油储备，来缓解COVID-19造成的市场波动。
+[**郭先生0117(****三):****爆料革命不做口炮党,****靠行动达成全球灭共战果**](https://gnews.org/zh-hans/770311/)
 
+[**郭先生0117(****四):****不相信我们的政客终将被人民审判我们不用着急**](https://gnews.org/zh-hans/770343/)
 
-原文来源：[https://www.whitehouse.gov/trump-administration-accomplishments/](https://www.whitehouse.gov/trump-administration-accomplishments/)
+[**郭先生0117(****五): ****灭共决心和真实行动更重要,****爆料革命已是主角**](https://gnews.org/zh-hans/770450/)
 
-* * *
+[**郭先生0117(****六):****人类从未有过爆料革命这样不强迫你信任何事情**](https://gnews.org/zh-hans/770492/)
 
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+[**郭先生0117(****七): G-Fashion****是一场人类的灭共文化运动诞生的品牌**](https://gnews.org/zh-hans/770791/)
 
-更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)！
+[**郭先生0117(八): G-Club魅力是让卡主免费拥有一个专为他做衣服的团队**](https://gnews.org/zh-hans/771059/)
 
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)！
+[**郭先生0117(九): G-Fashion显出你与别人的不同穿出你的个性/文化/品味**](https://gnews.org/zh-hans/771757/)
 
-+2
++1

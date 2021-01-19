@@ -1,29 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## PARLER CEO举家逃亡 民主灯塔蒙上阴影
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/772654/)
+## [2021年1月19日 中共病毒疫情更新]
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/772828/)
 
-作者：宁缺；校对/审核：海阔天空；Page：小雨
+撰稿人：青青草原 审核：pv0
 
-[!\[\]()!\[\](https://spark.adobe.com/page/hpetRYpamSCWL/images/36f6b9d5-aa07-426a-ae7f-0a2fbfb272e8.jpg?asset_id=2164803a-922a-43a0-8e35-c5f1dad11575&amp;img_etag=%224d05e6b12fa6a9204f09060447b5ab57%22&amp;size=2560)](https://spark.adobe.com/page/hpetRYpamSCWL/images/36f6b9d5-aa07-426a-ae7f-0a2fbfb272e8.jpg?asset_id=2164803a-922a-43a0-8e35-c5f1dad11575&amp;img_etag=%224d05e6b12fa6a9204f09060447b5ab57%22&amp;size=1024)
+国内疫情最新信息：
 
-前不久，美国总统川普和坚定的支持者被推特、脸书集体删除账号、封杀言论。堂堂民主灯塔美利坚总统都被删帖噤声，一时间引发轩然大波。而现在，一波未平，一波又起。川普总统新的发声宣传阵地Parler同样受到互联网大公司的围攻。
+1) 吉林超级传播者1传81，吉林省疫情持续发酵。1月18日，吉林松原新增1例无症状感染者，为第4次核酸检测筛查中发现。知情人说当局组织老师当志愿者去小区给居民核酸检测。视频链接：https://youtu.be/FCA01EF6AP0
 
-先是Apple、Google、Amazon共同威胁从各市场中移除社交软件Parler，随后，为Parler提供云端服务的亚马逊取消了与该公司的合作协议。目前看来，Parler已经下线阵亡。这还没完，根据Parler律师的最新文件，Parler CEO John Matze在受到“死亡威胁”和“侵害人身安全的侵害”后，被迫与家人逃离家并躲藏起来。
+2) 广西南宁，没消毒的手套都伸进口腔里，然后又对下一个人进行检测。视频链接：https://youtu.be/chl3cstgm0o
 
-看到这，恍惚间自己又来到一个新的中共国世界里。《230法案》造就了美国互联网巨头手眼通天的言论审查特权。当年呵护互联网科技公司健康发展的保护伞，到现在已经彻彻底底沦为了大科技独裁者的专制大棒。这是美国自由制度之殇，也是未来历史变革的起点。
+3) 物价飙升，一棵葱卖9.99元。视频链接：https://youtu.be/KKKDBNBYQnc
 
-这些大科技巨头一定会为其今天所做的恶付出代价，Parler 也会因其勇敢的表现获得巨大的回报！
+4) 1月18日，黑龙江无健康码不能坐公交车，大爷愤怒砸公交车。视频链接：ht​​tps://youtu.be/idqItKg3Tu0
 
-[编辑：【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/hpetRYpamSCWL/)
+5) 2021年1月18日，中共当局称河北石家庄新乐市调整为高风险区，强制民众连夜做核酸检测，人山人海。视频中说这做核酸检测，这是创造病毒呢。视频链接：https://youtu.be/8UjAbNVFQQM
 
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+6) 北京香堂村四区被强拆的最后一家，政法大学教授杨玉圣的家门前，好几台强拆用的大钩车正等着，他家一大堆东西在门口，里面还有家具。视频链接：https://youtu.be/VkZcOvI63Gc
 
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+7) 2021年1月18日河北石家庄市藁城区，再现类似武汉电焊门。视频链接：https://youtu.be/RTzMWjyurT4
 
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+8) 中国河北省疫情来势凶猛，全省进入战时状态。而河北省邢台市下辖的南宫市因为接连爆发确诊病例，已经封城，公交车停运，学校停课。视频链接：https://youtu.be/hfu50aYi36g
 
-[!\[\]()!\[\](https://spark.adobe.com/page/hpetRYpamSCWL/images/dc681f35-c8bd-499c-aca2-4bd52e0f4974.jpg?asset_id=8e1a7c01-d840-4a81-aac9-9e5a3b94526f&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/hpetRYpamSCWL/images/dc681f35-c8bd-499c-aca2-4bd52e0f4974.jpg?asset_id=8e1a7c01-d840-4a81-aac9-9e5a3b94526f&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+9) 中国新年之际，大陆多地的疫情再次卷土重来。网曝疫情重灾区的黑龙江省绥化市、河北省廊坊市等地出现随地倒现象，这与2019年底武汉爆发疫情时的情况类似。视频链接：https://youtu.be/7vmhNpMO6\_s
 
-0
+10) 最近沈阳和大连的疫情都非常严重，甚至出现了「超级病毒传播者」，一人传染几十人。当地政府封闭居民小区和单元楼的方式，也从原先的铁皮、木板，升级为插刀铁板或钢板。视频链接：https://youtu.be/bRdhVL1k-Pc
+
+国际疫情最新信息:
+
+1) 截至2021年1月19日北京时间22点，世界范围累计确诊9570万，死亡204万例，较昨日新增60万例，死亡增加1万例。
+
++1

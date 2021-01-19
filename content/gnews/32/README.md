@@ -1,43 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆料革命让我重生
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/772130/)
+## 中国努力应对东北地区的病毒疫情
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/772413/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GTV-LOGO和农场白底-scaled.jpg)
-作者：康州农场-GTalk心语堂
-![]()![](https://gnews.org/wp-content/uploads/2021/01/image1-20.jpeg)
-她，自称文化不高，却凭借着良知和勇气做出了人生最重要的抉择；
-
-她，总说自己能力有限，却与战友肩并肩，风雨无阻，在惩贼前线奋战近80天；
-
-她在爆料革命中成长着，快乐着，也与战友结下了深厚的友情。
-
-她是Mia笑眯眯，2020年12月19日，Mia笑眯眯来到GTV, G-talk (心语堂)栏目，接受霹雳教娃的专访。我们看到，一向不善言谈的她，第一次在爆料革命的平台上敞开心扉，畅谈她在爆料革命中的心路历程，更用自己的亲身经历向亿万战友展示了她的觉醒，勇气和正义。
-
-相信每位战友有各自独特的视角，开始认识，相信并跟随郭先生，Mia笑眯眯说：“没有和爆料革命擦肩而过，有幸能够知道郭先生…….是因为youtube上一个对王艳萍女士的采访。”
+- 编辑：Victor Torres
 
 
-GTalk
-在这里，我们看到了一颗善良的心，可以真真切切的体会到另一颗善良的心。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-我们中国人每天生活在党媒的洗脑中而不自知，他们还利用普通人的善良，赚取老百姓的眼泪，让我们对党感恩戴德。其实我们如果多问一个为什么，中共的谎言不攻自破。
+**西班牙2021年1月19日电/西喜社——**中国现在正在处理整个寒冷的东北地区的中共病毒爆发，促使额外的封锁和旅行禁令。
 
+该国周二共报告了118例新确诊病例—其中大部分在吉林省、北京以外的河北地区和与俄罗斯接壤的黑龙江省。
 
-GTalk
-作为《法治基金》的捐款者，Mia笑眯眯说：我的贡献微不足道，《法治基金》寄托了无数战友的希望，它是我们的未来，虽然我只是一名普普通通的小蚂蚁，但尽一份心义不容辞。
+第四个北方省份辽宁省也实施了检疫和旅行限制，以防止病毒进一步蔓延，部分措施正在全国大部分地区实施，以防止在二月的春节假期期间发生新的爆发。
 
-是什么样的信念让我们这些素未谋面的战友心连心，又是什么样的力量让我们肩并肩走上街头，手挽手站在惩贼的第一线？
+当局已呼吁公民不要出行，下令学校提前一周停课，并进行大规模的检测。
 
-
-GTalk
-Mia笑眯眯对于GTV, G-talk (心语堂)栏目“无我，利他，成长”的理念有着深刻的认识，并身体力行的践行着这一理念，从她的言谈话语中，我们看到了新中国联邦人的风采。
-
-
-GTalk
-郭先生说过：灭共要靠我们自己。推动思想变革是我们GTV, G-talk (心语堂)的使命，我们需要千千万万个像Mia笑眯眯一样觉醒的战友加入爆料革命的行列。
-
-完整视频链接：
-[https://gtv.org/video/id=5fdec048c0544c3d972e15d6](https://gtv.org/video/id=5fdec048c0544c3d972e15d6)
+**新闻来源：**[https://apnews.com/article/beijing-family-gatherings-coronavirus-pandemic-china-coronavirus-vaccine-f730dbb55f71e5412525eca5276ccebf](https://apnews.com/article/beijing-family-gatherings-coronavirus-pandemic-china-coronavirus-vaccine-f730dbb55f71e5412525eca5276ccebf)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/a7609fe9-04bf-4386-a066-ec11fa8c383c-4.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
 0
