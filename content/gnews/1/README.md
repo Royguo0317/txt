@@ -1,35 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯:严格封锁的洛杉矶郡，中共病毒感染病例突破百万
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/768960/)
+## 独家报道: 北京金融街融汇小区疫情被封, 多个小区紧急进行核酸检测
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/769650/)
 
-出品：《路德社》
+**By：上天造灭疫组、秘密翻译组Gnews独家报道**
 
-编辑：《路德社》精选新闻专栏组
+中国时间2021年1月17日上午10点多北京市大兴区天宫院金融街融汇小区被封，小区微信群公告：小区内出现一例区疾控复核阳性人员，等待市疾控中心复核确认，请大家待在家里，做好防护带好口罩，下午安排核酸检测。快递不许取送，生活必需品配送问题，社区统一采买、运送。小区各个地区随即出现了大量防疫人员，但令人费解的是还有很多警察进入小区驻守在小区各个出口，并且开始搭建核酸检测帐篷。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-19-at-4.45.08-pm.png)
+**小区出现很多防疫人员![]()：**
 
-2020年1月18日，FOX NEWS 报道：自疫情大爆发以来洛杉矶郡于上周末感染中共病毒的患者已达百万，并报告首个感染去年英国发现的更具传染性变种病毒的病例。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture2-13.png)
 
-上周六，洛杉矶郡新增14669病例，253人死亡和7597人住院治疗。此次大规模爆发，导致洛杉矶成为美国感染中共病毒人数最多的郡。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/image001-3.jpg)
-目前加州正实施最严格的限制措施，但这两周的感染病例却是爆发式增长，平均每天新增41000个患者。
+![]()
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture3-12.png)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture4-11.png)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture5-4.png)
+**很多警察进入小区驻守在小区各个出口，并且开始搭建核酸检测帐篷：**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-19-at-3.55.53-pm.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture6-2.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture7-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture8-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture9-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture10.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture11-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture12-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture13-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture14.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture15.png)
+**18日上午小区接到微信通知：**
 
-加州疫情的持续恶化，侧面证明中共极力推销的所谓中共国抗疫措施是彻头彻尾的谎言。美国腐败的政客光明正大地向中共讨教宝贵的抗疫经验，利用疫情严格限制民众的自由，控制媒体进行言论审查，暗地集中权力并为己谋利，助长疫情的持续恶化。如果中共国的抗疫经验真实有效，难道现在全国各地持续爆发的疫情是在上演苦肉戏？
+未做核酸检测的人员请您携带身份证核酸检测，生活垃圾装好垃圾袋请勿遗撒，各个楼层都有监督违规人员不停劝阻会被强制隔离。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture16-1.png)
+**2021年1月18日早晨6点35分中国北京市地铁4号线天宫院站保利春天里小区门口警灯闪烁多名警察把守小区门口：**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture17.png)
+**早晨7点47分小区业主在保利春天里小区西门情况：**
 
-不弄清楚中共病毒的真相，不彻底消灭中共，此次全球疫情只会愈加严重和失控。最近各国争相鼓吹推广的疫苗更是美丽的谎言，不仅接种后出现各种严重不良反应，而且接种后仍感染中共病毒。这场全人类的生死危机终究会点燃世界的怒火，将中共及其同伙焚烧殆尽。
+**早晨10点10分小区业主开始做核酸检测：**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture18.png)
+1月18日上午网友反映大兴全区六个街道紧急核酸检测，兴宇社区发的紧急核酸检测通知，增加了一名无症状感染者，保利春天里和天宫院小区也已封等待安排核酸检测。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-19-at-3.58.05-pm.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture19.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture20.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture21-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-19-at-3.58.45-pm.png)
+**1月18日北京市大兴区天宫院融汇小区核酸检测：**
 
+金融界汇融小区附近小区业主一睡醒发现小区封了非常恐慌，街道办今天全员核酸检测，并且微信发出了通知：1月18日早晨9点对园区内全体住户进行核酸检测，核酸结果出来在上班。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture22-1.png)
+**1月17日北京市大兴区天宫街道核酸检测预计52万人都要进行核酸检测：**
 
+**1月18日上午北京市大兴区黄村镇辅高路金星公园也开始核酸检测：**
 
-[参考链接](https://www.foxnews.com/us/los-angeles-strict-coronavirus-lockdowns-1-million-covid-cases)
+**小编本以为这件事就这样了，但是···远远没有，大兴出事北京市海淀区中关村也开始组织测核酸，并且官方删除屏蔽了这一信息。令人惊讶的是北京市市中心水立方都暂停营业，病毒都占领了北京市中心吗？这是什么情况？**
 
-【文章仅限作者个人观点】
+**1月18日北京市海淀区中关村南大街17号院韦伯时代中心C座测核酸， 该信息被官方紧急删除。**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture23-1.png)
+1月18日水立方官方微博今天上午消息，为进一步落实安全防控工作，保障游客自身安全，水立方自2021年起暂停营业，具体开放时间另行通知。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture24-1.png)
+**By：上天造灭疫组、秘密翻译组Gnews独家报道**
 
-本文作者：stranger
-
-审核校对：玫瑰天空
-
-上传排版：糊糊文婴
-
-
-
-0
++1

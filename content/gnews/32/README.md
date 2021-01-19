@@ -1,26 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 波兰一些医院暂停疫苗接种
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/768559/)
+## 【军事快讯】北约东扩至远东:蒙古国军队网络安全中心在北约支持下落成
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/769096/)
 
-- 编辑：Victor Torres
+作者：纽约香草山写作组   Wilson
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月19日电/西喜社——**波兰的一些医院在没有得到预期的辉瑞疫苗交付剂量后，已经暂停疫苗接种。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-一位监督疫苗接种过程的政府官员米哈尔·德沃奇克（Michal Dworczyk）周一表示，周末最新交付的疫苗数量比预期至少减少了50%，政府需要对12月底开始的全国接种计划进行修改。
 
-在波兰已经收到的约150万剂疫苗中，政府已经为那些已经接受第一轮接种的人争取到了第二轮接种的一半。第二轮接种应该会在本周开始。
 
-西北部什切青地区的医院和南部克拉科夫的医院周一暂时停止了第一轮疫苗接种，称他们没有收到要求的剂量。
+2021年1月18日北约通报，在其协助下，蒙古国军队新建网络安全中心正式落成，此举增强了蒙古国网络防御能力。
 
-**新闻来源：**[https://apnews.com/article/beijing-family-gatherings-coronavirus-pandemic-china-coronavirus-vaccine-f730dbb55f71e5412525eca5276ccebf](https://apnews.com/article/beijing-family-gatherings-coronavirus-pandemic-china-coronavirus-vaccine-f730dbb55f71e5412525eca5276ccebf)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/9-4.png)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1bcc6fa7-04c9-456f-bee7-15d4a11f9644.jpg)
+北约的公告称，通过视频连线，北约副秘书长米尔恰·杰瓦讷与蒙古国国防部长赛汗巴雅尔共同为中心落成剪彩。该网络中心全称为“蒙古国国防部和武装力量总参谋部网络事件响应能力中心”。北约专为蒙方提供了培训和设备：北约培训覆盖蒙方网络安全团队，所援助的设备经北约官方许可并应用了最新技术。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+资料显示，2003年蒙古国成为北约“全球伙伴”后，开始向阿富汗等地派遣军事人员支持北约行动。北约18日公告还称，2012年以来，双方不仅通过该计划合作应对网络安全挑战，还希望共建一个数据库，就蒙古国重建境内军事基地进行追踪记录。
+
+点评: 13世纪初，成吉思汗的蒙古铁骑曾经横扫亚欧大陆。他的孙子忽必烈建立元朝，冷兵器时代成就了这个骁勇善战的游牧民族。当今的蒙古国面积156万平方公里，却是比较落后的内陆国家，夹在不可信赖的中俄两个大国之间，地缘处境极不安全。
+
+北约和蒙古国结成“全球伙伴”是双赢：蒙古国的国土安全得到北约的保障，北约得以把势力锲入远东的战略要地。通过把最先进的网络情报设备投放在蒙古国，对中俄形成监控和牵制，一旦远东爆发紧张局势，北约将顺理成章地驻军蒙古国。
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 0

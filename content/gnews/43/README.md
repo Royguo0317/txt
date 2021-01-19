@@ -1,24 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 明尼苏达州开启疫苗推广
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/768411/)
+## 重磅快讯：川普总统行政命令把中共国列为敌对国家
+` pmzy` [轉載自GNews](https://gnews.org/zh-hans/768766/)
 
-- 编辑：Victor Torres
+2021年1月18日，美国总统川普签署行政命令【保护美国免受某些无人机系统的行政命令】，要求“防止使用纳税人的钱来购买具有不可接受风险，由外国对手制造或包含外国对手的软件或关键电子组件的UAS，并鼓励使用国内生产的无人机系统”。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/21011801-1.jpg)
+重磅的是，其中明确定义了美国“敌对国家”的定义范围：**“敌对国家”一词是指朝鲜民主主义人民共和国、伊朗伊斯兰共和国、中华人民共和国、俄罗斯联邦**，或商务部长确定的任何其他外国、外国地区，或从事长期模式或严重违反美国国家或经济安全行为的外国非政府实体。
 
+路德评论，**奥巴马时期中美关系叫战略合作伙伴关系，现在突然定义为敌对关系，并在行政命令中明确定义，属于一种法律文件了**。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+艾丽说，实质上到今天为止定义为敌对国，就不仅仅是之前贸易战之间的对手、寻求公平竞争的关系，已发展到后来对抗的关系，到现在敌对的关系，已经彻底地把中共定义为和伊朗一样的关系。
 
-**西班牙2021年1月19日电/西喜社——**明尼苏达州州长蒂姆·沃尔兹（Tim Walz）周一宣布，该州将在本周开放9个社区站点，为65岁以上的成年人、幼儿园前至12年级的教育工作者、学校工作人员和儿童保育工作者接种疫苗。
+“大家知道，**伊朗是恐怖主义极权执政。这是美国给他定义的，现在中共已经和伊朗划等号了。**之前实质也已经划等号了，但今天在行政命令上定义了。行政命令就是行政法规，之后美国所有的政策都要朝这个方向走，不是任何一个人上台之后可以改变的。”艾丽说。
 
-该计划开启了该州的疫苗推广，超越了第一个高优先级群体，包括医疗保健工作者和长期护理居民和工作人员。
+编辑：文顾 审核：pmzy
 
-由于可用剂量较少，这九个站点将于周四开始为人们接种疫苗，只接受预约。
+新闻来源：https://www.whitehouse.gov/presidential-actions/executive-order-protecting-united-states-certain-unmanned-aircraft-systems/
 
-**新闻来源：**[https://apnews.com/article/beijing-family-gatherings-coronavirus-pandemic-china-coronavirus-vaccine-f730dbb55f71e5412525eca5276ccebf](https://apnews.com/article/beijing-family-gatherings-coronavirus-pandemic-china-coronavirus-vaccine-f730dbb55f71e5412525eca5276ccebf)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/6670a51d-de99-404e-baa2-f5c879328a2a.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
-
-+1
++2

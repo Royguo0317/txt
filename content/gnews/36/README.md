@@ -1,28 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 直布罗陀因中共病毒死亡人数超上世纪任何单一原因
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/768513/)
+## 美国中央司令部否认参与伊拉克巴格达空袭
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/768975/)
 
-- 编辑：Victor Torres
+俄罗斯莫斯科喀秋莎农场    银河
 
+编辑上传   银河
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+1月18日零对冲(Zerohedge)报道，伊朗国家媒体在同天当地时间夜里报道了发生在伊拉克首都巴格达南部的空袭，目标是伊朗支持的伊拉克民兵组织总部。
 
-**西班牙2021年1月19日电/西喜社——**小小的英国殖民地直布罗陀说，自今年年初以来，因中共病毒而死亡的人数超过了上个世纪任何其他单一原因。
+民兵组织消息人士告诉当地媒体，袭击方是美国f -16战机。然而，并未得到核实的信息。
 
-人口约为3.4万的直布罗陀，自1月1日以来已公布38人死亡。
+此次袭击目标是位于巴格达南部的什叶派民兵阵地。上个月，巴格达的美国大使馆遭到火箭弹袭击，美国联军部队在伊拉克各地遭到多起简易爆炸装置袭击。尽管未经证实，但民兵组织和伊朗官方消息称至少有6名伊拉克士兵被杀。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Snipaste_2021-01-19_05-49-28-1.png)Twitter
+最新更新的消息，来自路透社（Reuter）五角大楼外交政策的记者发推说到，美国中央司令部否认了参与此次空袭。
 
-“即使是在战争中，我们也从未在这么短的时间内损失过这么多的人，”直布罗陀首席部长法比安·皮卡多周一表示。
+参考链接：
 
-他说，在过去的三天里，有21人死于病毒，使该殖民地自疫情开始以来的病毒死亡总数达到45人。
+[https://www.zerohedge.com/geopolitical/major-airstrikes-rock-iran-backed-iraqi-militias-near-baghdad-casualties-reported](https://www.zerohedge.com/geopolitical/major-airstrikes-rock-iran-backed-iraqi-militias-near-baghdad-casualties-reported)
 
-直布罗陀位于西班牙南部海岸，已经记录了大约4000个病例。自1月初以来，直布罗陀一直处于封锁状态。
-
-**新闻来源：**[https://apnews.com/article/beijing-family-gatherings-coronavirus-pandemic-china-coronavirus-vaccine-f730dbb55f71e5412525eca5276ccebf](https://apnews.com/article/beijing-family-gatherings-coronavirus-pandemic-china-coronavirus-vaccine-f730dbb55f71e5412525eca5276ccebf)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/2b7f63a6-5d18-40b9-9503-bdb0cc7beb09-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
-
-+2
+0

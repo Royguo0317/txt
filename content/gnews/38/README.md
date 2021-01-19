@@ -1,28 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西班牙10万居民14天发病率上升到689人
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/768486/)
+## 参议院委员会公布报告：拜登家族出卖美国利益
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/768933/)
 
-- 编辑：Victor Torres
+撰稿：土小木
+
+审稿：Jim大叔 编辑：MG1
+![]()![](https://gnews.org/wp-content/uploads/2021/01/191-2-1.jpg)（图片来源：Wikipedia – Public Domain / https://commons.wikimedia.org/wiki/File:Acting\_Commissioner\_Mark\_A.*Morgan\_testifies\_before\_the\_Senate*(48417301622).jpg)
+美国参议院国土安全和政府事务委员会最新公布的报告中，罗列了拜登家族利用职务之便，出卖美国利益的大量证据，其中包括：
+
+- 副总统办公室和州立部门的官员知道却忽视了亨特拜登在Burisma公司管理层的角色
+- 国务卿约翰克里（John Kelly）做了虚假声明，声称其对亨特拜登在Burisma公司管理层的位置不知情
+- 乔拜登任副总统时，被建议对州政府官员MYKOLA ZLOCHEVSKY的腐败行为不去追责
+- 在亨特拜登任Burisma公司管理层时，公司所有者兹洛切夫斯基（ZLOCHEVSKY）据称已向乌克兰检察长办公室支付700万美元来关闭相关案件
+- 亨特拜登在Burisma公司管理层任职时，同时是特勤局的保护对象
+- 奥巴马行政官员和民主党游说公司与前乌克兰政府官员ANDRII TELIZHENKO保持了持续且重要的联系
+- 虚假的通俄门指控，并以各种方法来影响调查结果
+- 亨特拜登与其家族，跟乌克兰、俄罗斯、卡扎克斯坦和中国官员的经济往来造成了对犯罪和外部威胁的担忧
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+(本文纯属个人观点)
 
-**西班牙2021年1月19日电/西喜社——**西班牙卫生部自周五以来，在圣诞节后病毒激增的情况下，已确认84287例新的中共病毒病例。卫生部还报告说，周末有455人死亡。
+报告原文PDF（[https://www.hsgac.senate.gov/imo/media/doc/HSGAC\_Finance\_Report\_FINAL.pdf](https://www.hsgac.senate.gov/imo/media/doc/HSGAC_Finance_Report_FINAL.pdf)）
 
-周一的数据使自疫情开始以来的确诊病例总数达到234万，已知死亡人数达到53769人。
+相关新闻报道链接：[https://theconservativetreehouse.com/2021/01/16/homeland-security-committee-releases-report-outlining-biden-family-selling-u-s-policy-for-personal-financial-gain/](https://theconservativetreehouse.com/2021/01/16/homeland-security-committee-releases-report-outlining-biden-family-selling-u-s-policy-for-personal-financial-gain/)
 
-西班牙10万居民14天的发病率从上周五的575人上升到689人。目前中共病毒患者占据了33%的重症监护室病床，上周五的数据还是30%。
+美国网友得到点赞最多的这么说：
 
-尽管每天都在大幅增加，但卫生部长萨尔瓦多·伊拉（Salvador Illa）周一坚称，西班牙17个大区各自采取的措施足以平息疫情，排除了全面封锁的可能。
+（部分内容）
 
-西班牙卫生应急主管费尔南多·西蒙表示，该国可能正处于最近一次激增的高峰期，或者正在接近高峰期。
+一名78岁的男子在其地下室竞选
 
-**新闻来源：**[https://apnews.com/article/beijing-family-gatherings-coronavirus-pandemic-china-coronavirus-vaccine-f730dbb55f71e5412525eca5276ccebf](https://apnews.com/article/beijing-family-gatherings-coronavirus-pandemic-china-coronavirus-vaccine-f730dbb55f71e5412525eca5276ccebf)
+凌晨四点收到了历史上所有候选人中最高票数
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/fc81b6ef-17a4-4284-b576-8af228c7f604-1.jpg)
+空无一人的的就职典礼
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+超过20,000名士兵保护他
 
+没有人可以对这一切有任何质疑，我们就这样让它发生了
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-澳喜Logo.jpeg)
 +1

@@ -1,26 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 意大利中共病毒日增数首次降至1万以下
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/768500/)
+## 第一夫人梅拉尼娅·川普致告别辞
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/768940/)
 
-- 编辑：Victor Torres
+翻译 加拿大多伦多枫叶农场 硫酸羟氯喹64
 
+校对 上传 小鸥
+![]()![](https://gnews.org/wp-content/uploads/2021/01/F-6-6.jpg)图片来自 cnn.com
+加拿大知名独立媒体 ThePostMillennial 于1月18日刊登川普总统夫人的告别辞如下：
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+1月18日，星期一，美国第一夫人梅拉尼娅·川普向全美发表告别演说，并以此机会表明川普一家将搬离白宫并让位于“当选总统”拜登。
 
-**西班牙2021年1月19日电/西喜社——**意大利中共病毒感染的日病例数周一首次降至1万例以下。
+梅拉尼娅说：“我的同胞们，能担任美国第一夫人是我一生中最大的荣幸！我受到了全美各地无数卓越和优秀人物的启迪，并通过他们的仁慈，勇气，善良和恩泽提高改善了我们的社会。”
 
-卫生部的数据报告说，自周日以来又增加了8825个病例，使疫情开始以来的确诊感染总数达到240万。
+梅拉尼娅说，她还特别受到了美国军人的激励，他们是立志报效美国的“年轻勇敢的士兵”。 并赞扬,“对每位服役的军人和他们令人敬佩的家庭，我想说,你们是英雄，并将永远被我们铭记和祈祷。” 她还感谢了美国警察,“对于你们的贡献，我们永远都难以为报！”
 
-西西里岛的每日病例数居全国之首。意大利连续两天登记377例死亡病例。
+第一夫人随后把话题转移到中共病毒疫情上，表示她对“所有护士，医生，保健专业人士，制造业工人，卡车司机以及其他无数为挽救生命而努力的人”表示由衷感谢，她还进一步要求美国人应该在疫情期间更为小心谨慎，并宣称“每个生命都是宝贵的”。
 
-全国已知的中共病毒死亡人数为82554人，为欧洲第二高。
+梅拉尼娅遵循着第一夫人所应该承担的公益事业这一责任传统，继续谈论她所倡导的“最佳运动”（BE BEST）。该运动旨在促进美国青年的福祉，特别是反对网络欺凌和吸毒。她强调指出,“我发起了‘最佳运动’计划，以此确保美国人能尽一切努力照顾我们的下一代。该运动致力于三大核心，健康，网路安全和鸦片类药物滥用问题。”
 
-**新闻来源：**[https://apnews.com/article/beijing-family-gatherings-coronavirus-pandemic-china-coronavirus-vaccine-f730dbb55f71e5412525eca5276ccebf](https://apnews.com/article/beijing-family-gatherings-coronavirus-pandemic-china-coronavirus-vaccine-f730dbb55f71e5412525eca5276ccebf)
+“在短短的几年中，我就已经提高了人们对如何确保儿童网络安全的认知。我们在努力控制国家毒品泛滥以及它对新生儿和家庭生活不良影响方面，取得了令人难以置信的进步，对我们寄养系统中的弱势儿童给予了关怀。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/0f999c3e-ab38-4472-88c3-d1b5ca859397.jpg)
+梅拉尼娅对该公益活动在国外的推动引以为傲，她赞许道，“为能在国外代表美国人民付出而感到自豪。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+“对这个国家所有的人，我将永远铭记于心！”第一夫人在演讲结束时坚定表示，“上帝保佑你们，上帝保佑美利坚合众国。”
+
+原文链接：
+
+[https://thepostmillennial.com/watch-first-lady-melania-trump-delivers-farewell-address-to-americans](https://thepostmillennial.com/watch-first-lady-melania-trump-delivers-farewell-address-to-americans)
 
 +1
