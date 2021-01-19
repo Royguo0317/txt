@@ -1,14 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【精华配音】拉希姆向民主党下战帖
-` 新闻译制组` [轉載自GNews](https://gnews.org/zh-hans/769965/)
+## 1/16/2021 民主党参议员呼吁移除甚至只是质疑选举公正性的共和党参议员
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/770382/)
 
-普通话配音版原音中字版
-译：hong
-校：sheep
-打轴压制：月
-配音：枫
-音轨：祯
+By: 【秘密翻譯組G-Translators】
 
 0
