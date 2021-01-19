@@ -1,28 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 荷兰开始为护理院住院者接种中共病毒疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/768573/)
+## 重磅快讯：川普总统行政命令把中共国列为敌对国家
+` pmzy` [轉載自GNews](https://gnews.org/zh-hans/768766/)
 
-- 编辑：Victor Torres
+2021年1月18日，美国总统川普签署行政命令【保护美国免受某些无人机系统的行政命令】，要求“防止使用纳税人的钱来购买具有不可接受风险，由外国对手制造或包含外国对手的软件或关键电子组件的UAS，并鼓励使用国内生产的无人机系统”。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/21011801-1.jpg)
+重磅的是，其中明确定义了美国“敌对国家”的定义范围：**“敌对国家”一词是指朝鲜民主主义人民共和国、伊朗伊斯兰共和国、中华人民共和国、俄罗斯联邦**，或商务部长确定的任何其他外国、外国地区，或从事长期模式或严重违反美国国家或经济安全行为的外国非政府实体。
 
+路德评论，**奥巴马时期中美关系叫战略合作伙伴关系，现在突然定义为敌对关系，并在行政命令中明确定义，属于一种法律文件了**。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+艾丽说，实质上到今天为止定义为敌对国，就不仅仅是之前贸易战之间的对手、寻求公平竞争的关系，已发展到后来对抗的关系，到现在敌对的关系，已经彻底地把中共定义为和伊朗一样的关系。
 
-**西班牙2021年1月19日电/西喜社——**荷兰老年人和残疾人护理院的医生已经开始为住院者接种中共病毒疫苗。
+“大家知道，**伊朗是恐怖主义极权执政。这是美国给他定义的，现在中共已经和伊朗划等号了。**之前实质也已经划等号了，但今天在行政命令上定义了。行政命令就是行政法规，之后美国所有的政策都要朝这个方向走，不是任何一个人上台之后可以改变的。”艾丽说。
 
-卫生部周一表示，护理机构的目标是在本周为15000名住院者接种疫苗。
+编辑：文顾 审核：pmzy
 
-卫生部长雨果·德容格说，在护理院医生的帮助下，”我们现在开始保护我们的老年人和最脆弱的人。他们是疫苗接种策略中最重要的群体”。
+新闻来源：https://www.whitehouse.gov/presidential-actions/executive-order-protecting-united-states-certain-unmanned-aircraft-systems/
 
-在未来几周内，共有15.5万名护理院的居民将排队接种疫苗。
-
-荷兰于1月6日开始为人们接种疫苗，是最后一个启动接种的欧盟国家。此后，已有7.5万名医护人员接种了疫苗。
-
-**新闻来源：**[https://apnews.com/article/beijing-family-gatherings-coronavirus-pandemic-china-coronavirus-vaccine-f730dbb55f71e5412525eca5276ccebf](https://apnews.com/article/beijing-family-gatherings-coronavirus-pandemic-china-coronavirus-vaccine-f730dbb55f71e5412525eca5276ccebf)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/a61acd3e-e669-4d57-9cdb-eab6d13edf74.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
-
-+1
++2
