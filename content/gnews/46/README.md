@@ -1,60 +1,115 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥推文看外交政策
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/769476/)
+## 白宫报告：川普政府的政绩——截至2021年1月（五）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/771076/)
 
-翻译和撰文：Yumi
-审稿：Jim大叔 编辑：MG1
-![]()![](https://gnews.org/wp-content/uploads/2021/01/191-1.jpg)国务卿蓬佩奥在1月18 日 Telegram（图片来自蓬佩奥Telegram截图）
-近期美国和中国的关系紧张。美国国务卿在推文中表达美国的政策和行动。让我们回顾一下。
+五月花写作组 ｜ 翻译：野马 ｜ 校对：jiasen、虹陵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告5.jpg)
+### **Part 5 – American Energy Independence**
 
-在人权问题上
+### **第五部分：美国的能源独立**
 
-蓬佩奥表示他的团队带头向世界揭露新疆的可怕虐待行为。对中共官员实施制裁，停止进口强迫劳动的产品等。当世界避而不见的时候，美国却大声疾呼，并采取行动。我们也给勇敢的维吾尔族妇女提供了一个平台，让她们告诉世界关于被中共失踪的家人。他重申执政团没忘记中共的暴政和维吾尔族的人权迫害。
+* * *
 
-他反驳全球主义说道“你们从全球主义者和其他 “专家”那里听到的相反，川普政府从来没有在我们这个时代的核心威胁–中共问题上采取单边行动。我们已经建立了一个全球多边共识来对抗它. 他提到几乎在每次与海外朋友和合作伙伴的会面中，都会提出中国的空洞承诺、侵犯人权、不公平的贸易行为和军事威胁。他强调川普政府重零开始，从志同道合的伙伴那里建立了一个强大的支持基础，以对抗中共在联合国的恶意行动。在我们曾经是唯一的声音的地方，我们现在有了关于香港自治和新疆侵犯人权的联合声明。这才是有意义的多边主义。
+**Unleashed America’s oil and natural gas potential.**
 
-在伊朗的问题
+**释放了美国的石油天然气潜力**
 
-收到伊朗人的请愿书说：亲爱的迈克-蓬佩奥先生，伊朗人民已经签署了一份题为 “伊朗裔美国人全国委员会NIAC不代表我们伊朗人”的请愿书，并将其寄给你。请通知特朗普总统。我们相信你。（附录）
+- For the first time in nearly 70 years, the United States has become a net energy exporter.
+- 近70年来，美国首次成为能源净出口国。
+- The United States is now the number one producer of oil and natural gas in the world.
+- 美国现在是世界上第一大石油和天然气生产国。
+- Natural gas production reached a record-high of 34.9 quads in 2019, following record high production in 2018 and in 2017.
+- 在2018年和2017年创纪录的高产量之后，天然气产量在2019年达到了34.9 quad的历史新高。
 
-网路安全
 
-控制全球电信网络是中共操纵和主宰未来的关键部分。国家统计局领导了一场全球运动，将华为和中兴等中共代理人与关键网络脱鈎。我们已经扭转了頽势。
-他强调在美国务院阻止美团退休账户投资解放军背景企业之后，标普、富时和纳斯达克采取了行动，将努力中共军民融合的公司退市，以保护美国投资者。
+**译者注：**（每quad等于四十亿BTU（英国热量单位），并且大致与以下几点相当：8,007,000,000加仑（美国）汽油293,071,000,000千瓦时（千瓦时）36,000,000吨煤970,434,000,000立方英尺的天然气25,200,000吨石油252,000,000吨TNT13.3吨铀-235）
 
-一带一路的国家联盟
-在去年10月访意大利时当一位记者在罗马递给我Parmigiano Reggiano乳酪时，我知道贸易政策是许多人的想法。由于背景是美国开始忌惮中国拉拢意大利，战略地缘上地中海的重要性。
+- The United States has been a net natural gas exporter for three consecutive years and has an export capacity of nearly 10 billion cubic feet per day.
+- 美国已连续三年成为天然气净出口国，每天的出口能力近100亿立方英尺。
+- Withdrew from the unfair, one-sided Paris Climate Agreement.
+- 退出了不公平，单方面的《巴黎气候协定》。
+- Canceled the previous administration’s Clean Power Plan, and replaced it with the new Affordable Clean Energy rule.
+- 取消了上届政府的《清洁能源计划》，并将其替换为新的《可负担的清洁能源规则》。
+- Approved the Keystone XL and Dakota Access pipelines.
+- 批准了Keystone XL和Dakota Access管道工程。
+- Opened up the Arctic National Wildlife Refuge (ANWR) in Alaska to oil and gas leasing.
+- 在阿拉斯加开放了北极国家野生动物保护区（ANWR）进行石油和天然气开采区块租赁。
+- Repealed the last administration’s Federal Coal Leasing Moratorium, which prohibited coal leasing on Federal lands.
+- 废除了上届政府的联邦煤炭开采区块租赁禁令，该禁令禁止在联邦土地上租赁煤炭开采区块。
+- Reformed permitting rules to eliminate unnecessary bureaucracy and speed approval for mines.
+- 改革了许可规则，以消除不必要的官僚机制并加快矿山的审批速度。
+- Fixed the New Source Review permitting program, which punished companies for upgrading or repairing coal power plants.
+- 修正了“新资源审查”许可计划，该计划对进行升级或修理燃煤电厂的公司进行了处罚。
+- Fixed the Environmental Protection Agency’s (EPA) steam electric and coal ash rules.
+- 修正了环境保护署（EPA）的蒸汽发电和煤灰法规。
+- The average American family saved $2,500 a year in lower electric bills and lower prices at the gas pump.
+- 美国家庭平均每年通过降低电费和降低燃油价格节省了2500美元。
+- Signed legislation repealing the harmful Stream Protection Rule.
+- 签署立法，废除了有害的“河流保护规则”。
+- Reduced the time to approve drilling permits on public lands by half, increasing permit applications to drill on public lands by 300 percent.
+- 将批准在公共土地上钻探许可的时间减少了一半，使在公共土地上钻探许可的申请增加了300％。
+- Expedited approval of the NuStar’s New Burgos pipeline to export American gasoline to Mexico.
+- 加快批准了NuStar的新布尔戈斯（New Burgos）输油管道，以将美国汽油出口到墨西哥。
+- Streamlined Liquefied natural gas (LNG) terminal permitting and allowed long-term LNG export authorizations to be extended through 2050.
+- 简化的液化天然气（LNG）码头许可，并允许将长期LNG出口许可延长至2050年。
+- The United States is now among the top three LNG exporters in the world.
+- 美国现在是世界上三大LNG出口国之一。
+- Increased LNG exports five-fold since January 2017, reaching an all-time high in January 2020.
+- 自2017年1月以来，液化天然气出口量增长了五倍，到2020年1月达到历史新高。
+- LNG exports are expected to reduce the American trade deficit by over $10 billion.
+- 液化天然气出口有望使美国的贸易逆差减少100亿美元以上。
+- Granted more than 20 new long-term approvals for LNG exports to non-free trade agreement countries.
+- 为向非自由贸易协定国家的LNG出口，授予20多个新的长期许可。
+- The development of natural gas and LNG infrastructure in the United States is providing tens of thousands of jobs, and has led to the investment of tens of billions of dollars in infrastructure.
+- 美国天然气和LNG基础设施的发展，提供了数以万计的就业机会，并带来了数百亿美元的基础设施投资。
+- There are now 6 LNG export facilities operating in the United States, with 2 additional export projects under construction.
+- 现在，美国有6个LNG出口设施正在运营，另外还有2个正在建设中的出口项目。
+- The amount of nuclear energy production in 2019 was the highest on record, through a combination of increased capacity from power plant upgrades and shorter refueling and maintenance cycles.
+- 通过电厂升级带来的发电量增加和更短的加核燃料与维护周期，2019年的核能生产量达到有史以来最高。
+- Prevented Russian energy coercion across Europe through various lines of effort, including the Partnership for Transatlantic Energy Cooperation, civil nuclear deals with Romania and Poland, and opposition to Nord Stream 2 pipeline.
+- 通过多方努力，防止俄罗斯在欧洲的能源霸凌行为，包括跨大西洋能源合作伙伴关系，与罗马尼亚和波兰的民用核协议以及反对北溪2号管道。
+- Issued the Presidential Permit for the A2A railroad between Canada and Alaska, providing energy resources to emerging markets.
+- 颁发了加拿大和阿拉斯加之间A2A铁路的总统许可证，为新兴市场提供能源。
 
-台湾的态度与接触上
 
-在推文中回顾去年2020年8月，阿札尔卫生部长访台，赞赏在全球COVID＿19的抗疫中，卫生合作。强调世卫可以向台湾学习而且台湾帮助很多国家因为台湾总统蔡英文有成功的抗COVID-19团队。在支持台湾加入WHO年度会议上态度。
+**Increased access to our country’s abundant natural resources in order to achieve energy independence.**
 
-2020年9月派美国负责经济增长，能源与环境的副国务卿基思·克拉希（Keith Krach）、罗伯特·德斯特罗 助理国务卿、美国西藏问题特别协调员民主、人权和劳工局与 全球女性问题 大使（大使）Kelley E. Currie大使前往台湾，纪念李登辉总统的生平与民主遗产。
+**充分利用美国丰富的自然资源以实现能源独立。**
 
-在供应链上建立首届「台美经济繁荣伙伴对话」登场，由美国在台协会（AIT）及驻美国台北经济文化代表处（TECRO）主办之台美经济繁荣伙伴（EPP）对话，象徵美台经济关系强健并持续发展 。他强调把去年推文再重新拿出来说“首届经济繁荣伙伴关系对话启动了一个框架，以确保供应链，促进5G/清洁路径，促进妇女赋权，并加强投资筛选”。
+- Renewable energy production and consumption both reached record highs in 2019.
+- 可再生能源的生产和消费在2019年均创历史新高。
+- Enacted policies that helped double the amount of electricity generated by solar and helped increase the amount of wind generation by 32 percent from 2016 through 2019.
+- 已颁布的政策使太阳能发电量翻了一番，并从2016年到2019年，风力发电量增加了32％。
+- Accelerated construction of energy infrastructure to ensure American energy producers can deliver their products to the market.
+- 加快能源基础设施建设，以确保美国的能源生产商可以将其产品交付市场。
+- Cut red tape holding back the construction of new energy infrastructure.
+- 削减繁文褥节，减少新能源基础设施建设的阻力。
+- Authorized ethanol producers to sell E15 year-round and allowed higher-ethanol gasoline to be distributed from existing pumps at filling stations.
+- 授权乙醇生产商全年销售E15，并允许在加油站的现有加油泵中分发高乙醇汽油。
+- Ensured greater transparency and certainty in the Renewable Fuel Standard (RFS) program.
+- 确保可再生燃料标准（RFS）计划具有更高的透明度和确定性。
+- Negotiated leasing capacity in the Strategic Petroleum Reserve to Australia, providing American taxpayers a return on this infrastructure investment.
+- 商定了战略石油储备中心给澳大利亚的租赁容量，为美国纳税人提供了基础设施投资的回报。
+- Signed an executive order directing Federal agencies to work together to diminish the capability of foreign adversaries to target our critical electric infrastructure.
+- 签署了一项行政命令，指导联邦机构共同努力，以降低外国对手针对我们关键的电力基础设施的竞争力。
+- Reformed Section 401 of the Clean Water Act regulation to allow for the curation of interstate infrastructure.
+- 改革了《清洁水法》第401条，允许管理州际基础设施。
+- Resolved the OPEC (Organization of the Petroleum Exporting Countries) oil crisis during COVID-19 by getting OPEC, Russia, and others to cut nearly 10 million barrels of production a day, stabilizing world oil prices.
+- 解决了COVID-19期间的石油输出国组织（OPEC）石油危机，使石油输出国组织（OPEC），俄罗斯和其他国家每天减产近1000万桶，稳定了世界石油价格。
+- Directed the Department of Energy to use the Strategic Petroleum Reserve to mitigate market volatility caused by COVID-19.
+- 指示能源部使用战略石油储备，来缓解COVID-19造成的市场波动。
 
-美台达成了一项科技协议，并启动了一项专注于普通话和英语培训的教育计划。我们知道台湾是一个可靠的合作伙伴，也是一股好的力量–我们为我们强大且不断增长的合作关系感到骄傲！
 
-撤销了数十年来对美国官员与台湾同行互动的自我限制。我们不应该为了安抚共产党中国而降低我们与一个可靠的伙伴和民主国家的关系。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/192.jpg)（ 图片来自蓬佩奥Telegram截图）
-中国的挑战–美国国务院
+原文来源：[https://www.whitehouse.gov/trump-administration-accomplishments/](https://www.whitehouse.gov/trump-administration-accomplishments/)
 
-蓬佩奥几十年来，我们一直在包容和鼓励中国的崛起，即使这种崛起是以牺牲美国的价值观、西方民主和安全以及良好的常识为代价的。中共是我们这个时代的核心威胁。中共专制主义不是自由世界想要的未来……但如果我们再次放松警惕，我们就会拥有这样的未来，他再次表示川普政府改变了全球关于中国的对话。我们揭露了中共对自由世界的敌意，并建立了联盟来回击北京的不良行为。国务院需要一个中国问题专家团队来扭转对中共劣势。很多人负责做好很多工作。这里只是其中的几个。
+* * *
 
-言论自由
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
 
-对今天被俄罗斯拘留的俄罗斯反对派领袖和反普京评论家阿列克谢·纳瓦尼 。他周日返回莫斯科后被拘留。自从夏天他被苏联时代的神经毒剂中毒以来，这是他第一次返回莫斯科。今天蓬佩奥对俄罗斯逮捕Aleksey Navalny的决定深感不安。他说自信的政治领导人不惧怕相互竞争的声音，也不认为有必要对政治反对派实施暴力或非法拘留。
+更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)！
 
-附录：伊朗裔美国人全国委员会（NIAC）由出生在伊朗的外籍居民特里塔·帕西（Trita Parsi）创立，他自称代表伊朗裔美国人发言。该组织提倡同情伊朗政权的政策，同时缓和对毛拉镇压统治和侵犯人权行为的责备。该组织希望西方领导人完全接受执政毛拉的合法性，而不是支持渴望以民主政府取代镇压政权的伊朗人民的愿望。
-
-本文评论部分仅代表个人观点
-
-新闻及图片来源：https://t.me/SecPompeoTG
-
-[https://www.cbsnews.com/news/alexey-navalny-returns-to-russia-detained-in-moscow-today-2021-01-17/](https://www.cbsnews.com/news/alexey-navalny-returns-to-russia-detained-in-moscow-today-2021-01-17/)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1-澳喜Logo.jpeg)
-
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)！
 
 +2

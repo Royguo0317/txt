@@ -1,85 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普最新行政令杜绝非总统任命官员对联邦规则有最终决定权
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/770272/)
+## 突发：实名举报河南省济源市市委书记打人的尚小娟被处理了！
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/772694/)
 
-翻译: Jony(8 Mile)
+作者：赫莲；校对：宁缺；审核：海阔天空；Page：小雨
 
-审稿：Jenny
-![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_7501-1.jpg)白宫网截图
-**川普最新行政令 – 杜绝非总统任命官员（职业官员）授权、批准并拥有对联邦规则有最终决定权。**
+[!\[\]()!\[\](https://spark.adobe.com/page/kZuA2Z5HthHMm/images/597edc6f-365f-4752-8e2d-6cacf6cc61a9.jpg?asset_id=b17dcbda-d86c-4b43-84f1-04ab22d119d2&amp;img_etag=%22dbec2c70e23f4770b46de9c34f4aea77%22&amp;size=3413)](https://spark.adobe.com/page/kZuA2Z5HthHMm/images/597edc6f-365f-4752-8e2d-6cacf6cc61a9.jpg?asset_id=b17dcbda-d86c-4b43-84f1-04ab22d119d2&amp;img_etag=%22dbec2c70e23f4770b46de9c34f4aea77%22&amp;size=1024)
 
-根据美国宪法和法律赋予我的总统权力，兹命令如下。
+1月16日，新浪微博用户“济源市尚娟”发文，实名公开举报河南济源市委书记张战伟。微博网友“济源市尚娟”自称是济源市政府秘书长翟伟栋的妻子。她在实名举报的文章中说，2020年11月11日早晨，翟伟栋与其他市领导在机关餐厅角落里吃早餐时，被济源市委书记张战伟无故掌掴。至1月17日深夜、1月18日凌晨，济源市政府秘书科相关工作人员两次回应记者采访时均称，不方便回应此事，一切以宣传部门的通报为准。
 
-**第一节：目标**
+这件事，一石掀起千层浪，迅速上了头条新闻 ，除了微博上自媒体纷纷表态声援外，各大党媒也均做了报道，甚至连新华社要加入了声讨张占伟的行列。
 
-美国的民主制度是在人民同意的原则下运行的。 美国国会、总统和副总统的定期选举，旨在确保负责制定和执行法律的官员对美国人民负责。 总统选择联邦机构负责人，让他们行使行政权力和执行监管议程。 美国人民通过选举总统，从而在选择行政人员中发挥作用。
+[!\[\]()!\[\](https://spark.adobe.com/page/kZuA2Z5HthHMm/images/33be8fbb-1b88-4835-97fc-2c36a7a2270d.png?asset_id=0edf6578-e3dc-41fd-979a-e0eaaf968efe&amp;img_etag=%22bd6e1e192305dc08acdd4867473d6782%22&amp;size=2560)](https://spark.adobe.com/page/kZuA2Z5HthHMm/images/33be8fbb-1b88-4835-97fc-2c36a7a2270d.png?asset_id=0edf6578-e3dc-41fd-979a-e0eaaf968efe&amp;img_etag=%22bd6e1e192305dc08acdd4867473d6782%22&amp;size=1024)
 
-然而，一些机构选择模糊民主问责的界限，允许职业官员授权、批准并拥有法规的最终决定权。这种做法将制定管理美国人民日常生活规则的权力，从总统和其行政下属，转移到与国家选举带来的问责制无关的官员手中。 这种做法损害了美国人民选择谁来管理他们的权力，我正指示采取措施结束这种做法。
+到了当天的晚上17点多，事情突然急转而下。一份抬头为“中共豫港（济源）焦化集团有限公司委员会”的内部文件显示，“针对公司党委委员、工会主席尚小娟同志在相关部门已经接到有关情况反映后，近期仍以检举控告为由在网络上发布有关济源示范区主要领导负面影响的言论，公司党委认为其行为造成极大的不良影响，损坏了济源示范区整体对外形象，经公司党委研究，决定：
 
-**第二节：高级任命人员制定规则。**
+停止尚小娟党内外所有职务，停职期间所有工资，补助暂停发放，待相关部门调查核实并做出明确结论后再做进一步处理。”
 
-(a)在法律允许的范围内，每个机构的负责人应：
+[!\[\]()!\[\](https://spark.adobe.com/page/kZuA2Z5HthHMm/images/abc8f7af-5009-4afa-940f-3e544346c2c1.jpg?asset_id=91009cc1-fff1-4a9e-bce3-c8012242b9ae&amp;img_etag=%22cb6bff1ea1838899dce70425a76edde0%22&amp;size=2560)](https://spark.adobe.com/page/kZuA2Z5HthHMm/images/abc8f7af-5009-4afa-940f-3e544346c2c1.jpg?asset_id=91009cc1-fff1-4a9e-bce3-c8012242b9ae&amp;img_etag=%22cb6bff1ea1838899dce70425a76edde0%22&amp;size=1024)
 
-(i)要求根据《美国法典》第5章第553节颁布的机构规则，必须由一名高级任命人员签署；以及
+1月19日，有记者在第一时间联系到豫港（济源）焦化集团有限公司，其办公室一工作人员表示，尚小娟确实是其公司工会主席，该工作人员表示这是公司领导的事情，不方便对外透露。
 
-(ii)要求只有高级任命人员才可以根据第553节颁布的机构规则，启动规则制定程序，或者可以批准机构的监管议程。
+🔗[资源链接](https://www.sohu.com/a/445401276_120075260)
 
-(b)如果机构负责人满足以下情况，本节(a)款不适用。
+[!\[\]()!\[\](https://spark.adobe.com/page/kZuA2Z5HthHMm/images/fe0f803b-e6a8-4b23-9683-5da0625d391c.jpg?asset_id=aae7c3a8-8b53-4901-952c-6880a982180a&amp;img_etag=%2246b1aa9cc79e42ae441eb0e450494ee1%22&amp;size=8192)](https://spark.adobe.com/page/kZuA2Z5HthHMm/images/fe0f803b-e6a8-4b23-9683-5da0625d391c.jpg?asset_id=aae7c3a8-8b53-4901-952c-6880a982180a&amp;img_etag=%2246b1aa9cc79e42ae441eb0e450494ee1%22&amp;size=1024)
 
-(i)确定遵守本条会妨碍公共安全或安保；以及
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-(ii)向管理和预算办公室下属的信息和监管事务署署长提交一份通知，披露豁免的理由，并在符合公共安全、安保和隐私利益的情况下，在《联邦公报》上公布该通知。
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-(c)机构负责人不得授权进行本节(b)款允许的决定。
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-(d)各机构负责人应确保，根据第553节颁布的未来机构规则的发布符合本节的要求。
+[编辑：【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/kZuA2Z5HthHMm/)
 
-第三节：审查现有的规则制定权的授权。   在本命令发布之日起180天内，每个机构的负责人应在法律允许的范围内：
+[!\[\]()!\[\](https://spark.adobe.com/page/kZuA2Z5HthHMm/images/dc681f35-c8bd-499c-aca2-4bd52e0f4974.jpg?asset_id=8e1a7c01-d840-4a81-aac9-9e5a3b94526f&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/kZuA2Z5HthHMm/images/dc681f35-c8bd-499c-aca2-4bd52e0f4974.jpg?asset_id=8e1a7c01-d840-4a81-aac9-9e5a3b94526f&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
-(a)审查有关规则制定的授权，并进行必要的修改，以确保这些授权符合本命令第2节的规定；以及
-
-(b)修订关于机构管理和程序的机构条例，以纳入本命令第2节的要求；
-
-**第四节：审查现有规则  **
-
-(a)在本命令发布之日起90天内，各机构负责人应审查该机构在过去12年内发布的所有重要规则，以及署长确定的任何其他规则，以确定该规则是否由高级任命人员发布。 如有充分理由，署长可授权延长机构进行此类审查的期限。
-
-(b)在本命令发布之日起120天内，各机构负责人应通过署长向总统提供一份报告，总结审查结果。 如有正当理由，署长可授权延长提交这种报告的期限。
-
-**第五节：定义**
-
-在本命令中，术语：
-
-(a) “机构 “一词具有1993年9月30日第12866号行政命令(管理规划和审查)第3(b)节(经修订)或任何后续命令中赋予该词的含义；但就本命令而言：
-
-(i)该词应包括消费者金融保护局；以及
-
-(ii)该词不包括司法部的联邦监狱局。
-
-(b) “高级任命人员 “指由总统任命的个人，或履行需要总统任命的职务的职能和职责的个人，或高级行政部门(或同等机构系统)的非职业成员。
-
-(c) “重要规则 “指任何同时属于经修订的第12866号行政命令第3(f)节或任何继任命令所界定的 “重要监管行动 “的规则；及
-
-(d) “规则 “一词具有《美国法典》第5篇第551(4)节赋予该词的含义，但该词不包括任何对非机构当事方的权利或义务没有实质性影响的机构组织、程序或做法的规则；
-
-**第六节：执行  **
-
-署长应就本命令的执行提供指导，并应监督机构遵守本命令的情况。
-
-**第七节：一般规定**
-
-(a)本命令的任何内容不得解释为损害或以其他方式影响：
-
-(i)法律授予行政部门或机构或其负责人的权力；或
-
-(ii)管理和预算办公室负责人关于预算、行政或立法提案的职能。
-
-(b)本命令的执行应符合适用的法律，并以拨款为限。
-
-(c)本命令无意也不会产生，任何一方可在法律上或衡平法上对美国、其各部门、机构或实体、其官员、雇员或代理人或任何其他人执行的，具有实质性或程序性的权利或利益。
-
-Source: [https://www.whitehouse.gov/presidential-actions/executive-order-ensuring-democratic-accountability-agency-rulemaking/](https://www.whitehouse.gov/presidential-actions/executive-order-ensuring-democratic-accountability-agency-rulemaking/)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1-澳喜Logo.jpeg)
 0

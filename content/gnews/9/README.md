@@ -1,31 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 驳外交部华春莹之“蓬佩奥是谎言先生”(2)
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/770285/)
+## PARLER CEO举家逃亡 民主灯塔蒙上阴影
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/772654/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/譚德賽-1.png)图片来自联合新闻截图）
-作者：举头三尺外星人 审稿：Yumi
+作者：宁缺；校对/审核：海阔天空；Page：小雨
 
-华大妈又谓:“所谓新冠病毒来自实验室以及武汉病毒研究所秘密军方背景的论调，均毫无科学和事实依据。这份所谓清单中的种种观点和信息自相矛盾、错漏百出”。这完全是华大妈自己掩耳盗铃自欺欺人了，中共多年前研究蝙蝠冠状病毒早已经是公开的秘密，早在2018年中共中央13台就在电视节目中公布了中共武汉病毒研究所就在研究新冠病毒，至于和军方有没有关系，中共那些实验室哪个没有军方背景的，军民融合也是公开的。甚至有出版社公开出版什么《非典非自然起源人制人生物武器》这种反人类的书，里面的编制委员会赫然都是军方相关的人员！
-![]()![](https://gnews.org/wp-content/uploads/2021/01/cctv-png.png)（图片来自cctv13截图）
-早在奥巴马执政时期甚至从美国拨款到武汉实验室资助其研究，所以美国方面也一直了解中共方面在研究新冠病毒。华大妈一点也没有拿出证据证明清单的观点如何错误，如何自相矛盾，事实是中共明明一直在研究病毒却矢口否认，这点确实是叫人大跌眼镜！
+[!\[\]()!\[\](https://spark.adobe.com/page/hpetRYpamSCWL/images/36f6b9d5-aa07-426a-ae7f-0a2fbfb272e8.jpg?asset_id=2164803a-922a-43a0-8e35-c5f1dad11575&amp;img_etag=%224d05e6b12fa6a9204f09060447b5ab57%22&amp;size=2560)](https://spark.adobe.com/page/hpetRYpamSCWL/images/36f6b9d5-aa07-426a-ae7f-0a2fbfb272e8.jpg?asset_id=2164803a-922a-43a0-8e35-c5f1dad11575&amp;img_etag=%224d05e6b12fa6a9204f09060447b5ab57%22&amp;size=1024)
 
-特别是爆料革命闫博士2020年来到美国之后，一直在各大美国媒体和其它国家媒体公开揭露中共病毒的真相，并放出了2个证据确凿的科学报告，然而中共这边完全不敢派出人来反驳这两份报告，除了抹黑闫博士之外，中共没有拿出任何有力的科学证据和事实来证明自己，所以说华大妈之谓:“中方媒体已就疫情发布了谎言与真相系列，援引大量具体、详实数字和事实进行了深入批驳。美国政府对这些真正的事实视而不见，充耳不闻”，这恰恰是说闫博士“援引大量具体、详实数字和事实进行了深入批驳”，而中共对“对这些真正的事实视而不见，充耳不闻”，而且没人反驳，在真相面前简直毫无还手之力！
+前不久，美国总统川普和坚定的支持者被推特、脸书集体删除账号、封杀言论。堂堂民主灯塔美利坚总统都被删帖噤声，一时间引发轩然大波。而现在，一波未平，一波又起。川普总统新的发声宣传阵地Parler同样受到互联网大公司的围攻。
 
-最后华大妈说:“我想强调，如果美方真的尊重事实，就请开放德特里克堡基地，并就美海外200多个生物实验室等问题公开更多事实，请世卫组织专家去美国开展溯源调查，回应国际社会的疑问，用实际行动给国际社会一个交代”。
+先是Apple、Google、Amazon共同威胁从各市场中移除社交软件Parler，随后，为Parler提供云端服务的亚马逊取消了与该公司的合作协议。目前看来，Parler已经下线阵亡。这还没完，根据Parler律师的最新文件，Parler CEO John Matze在受到“死亡威胁”和“侵害人身安全的侵害”后，被迫与家人逃离家并躲藏起来。
 
-这话用来说中共自己简直完美！ 应该说全世界都要求: 如果中共是清白的请开放武汉p4实验室并就中共各地p4,p3多个生物实验室等问题公开更多事实，请美国北约联盟组织专家去中共国展开溯源调查，回应全世界的疑问，给个交代！
+看到这，恍惚间自己又来到一个新的中共国世界里。《230法案》造就了美国互联网巨头手眼通天的言论审查特权。当年呵护互联网科技公司健康发展的保护伞，到现在已经彻彻底底沦为了大科技独裁者的专制大棒。这是美国自由制度之殇，也是未来历史变革的起点。
 
-“崴脚部”华大妈对铁一般的事实，脸不红心不跳，充分演绎了什么叫“掩耳盗铃，此地无银三百两，自欺欺人”等中国经典成语，华大妈不去做个演员真是可惜了。今天在全球形成的对CCP病毒的问责大趋势之下，中共一切狡辩都是徒劳无功，连续各大媒体网络对美国国务卿彭佩奥的污蔑，更证明了他们毫无办法心中慌乱，也证明了彭佩奥所宣布的清单正中中共的要害。一切已经开始！中共被世界追责只是时间问题！
-（本文只代表作者观点）
+这些大科技巨头一定会为其今天所做的恶付出代价，Parler 也会因其勇敢的表现获得巨大的回报！
 
-原文引用地址：
+[编辑：【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/hpetRYpamSCWL/)
 
-[https://scroll.huanqiu.com/article/41ZCvTG0gzA](https://scroll.huanqiu.com/article/41ZCvTG0gzA)
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-澳喜文章:[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-欢迎加入澳喜农场：[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2020/12/IMG_1836-1-1.jpg)
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/hpetRYpamSCWL/images/dc681f35-c8bd-499c-aca2-4bd52e0f4974.jpg?asset_id=8e1a7c01-d840-4a81-aac9-9e5a3b94526f&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/hpetRYpamSCWL/images/dc681f35-c8bd-499c-aca2-4bd52e0f4974.jpg?asset_id=8e1a7c01-d840-4a81-aac9-9e5a3b94526f&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+
 0
