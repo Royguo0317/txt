@@ -1,26 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 克莱恩:预计乔·拜登执政的前五周将有10万人死于中共病毒
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/766847/)
+## 参议院委员会公布报告：拜登家族出卖美国利益
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/768933/)
 
-- 编辑：Victor Torres
+撰稿：土小木
+
+审稿：Jim大叔 编辑：MG1
+![]()![](https://gnews.org/wp-content/uploads/2021/01/191-2-1.jpg)（图片来源：Wikipedia – Public Domain / https://commons.wikimedia.org/wiki/File:Acting\_Commissioner\_Mark\_A.*Morgan\_testifies\_before\_the\_Senate*(48417301622).jpg)
+美国参议院国土安全和政府事务委员会最新公布的报告中，罗列了拜登家族利用职务之便，出卖美国利益的大量证据，其中包括：
+
+- 副总统办公室和州立部门的官员知道却忽视了亨特拜登在Burisma公司管理层的角色
+- 国务卿约翰克里（John Kelly）做了虚假声明，声称其对亨特拜登在Burisma公司管理层的位置不知情
+- 乔拜登任副总统时，被建议对州政府官员MYKOLA ZLOCHEVSKY的腐败行为不去追责
+- 在亨特拜登任Burisma公司管理层时，公司所有者兹洛切夫斯基（ZLOCHEVSKY）据称已向乌克兰检察长办公室支付700万美元来关闭相关案件
+- 亨特拜登在Burisma公司管理层任职时，同时是特勤局的保护对象
+- 奥巴马行政官员和民主党游说公司与前乌克兰政府官员ANDRII TELIZHENKO保持了持续且重要的联系
+- 虚假的通俄门指控，并以各种方法来影响调查结果
+- 亨特拜登与其家族，跟乌克兰、俄罗斯、卡扎克斯坦和中国官员的经济往来造成了对犯罪和外部威胁的担忧
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+(本文纯属个人观点)
 
-**西班牙2021年1月18日电/西喜社——**即将上任的白宫幕僚长罗恩·克莱恩说，中共病毒大流行将在好转之前变得更糟，预计在当选总统乔·拜登执政的前五周，又将有10万人死于中共病毒。
+报告原文PDF（[https://www.hsgac.senate.gov/imo/media/doc/HSGAC\_Finance\_Report\_FINAL.pdf](https://www.hsgac.senate.gov/imo/media/doc/HSGAC_Finance_Report_FINAL.pdf)）
 
-克莱恩在CNN的 “国情咨文 “中表示，拜登正在继承一个严峻的局面，他说，即使有了疫苗，”要扭转这个局面还需要一段时间”。
+相关新闻报道链接：[https://theconservativetreehouse.com/2021/01/16/homeland-security-committee-releases-report-outlining-biden-family-selling-u-s-policy-for-personal-financial-gain/](https://theconservativetreehouse.com/2021/01/16/homeland-security-committee-releases-report-outlining-biden-family-selling-u-s-policy-for-personal-financial-gain/)
 
-拜登已经设定了一个目标，即在他上任的头100天内注射1亿剂中共病毒疫苗，克莱恩说，他们有望实现这一目标。
+美国网友得到点赞最多的这么说：
 
-克莱恩补充说，他相信目前获得紧急批准的这对疫苗有足够的供应量，以确保那些已经注射了第一针的人能够获得所需的第二针。
+（部分内容）
 
-**新闻来源：**[https://apnews.com/article/beijing-family-gatherings-coronavirus-pandemic-china-coronavirus-vaccine-f730dbb55f71e5412525eca5276ccebf](https://apnews.com/article/beijing-family-gatherings-coronavirus-pandemic-china-coronavirus-vaccine-f730dbb55f71e5412525eca5276ccebf)
+一名78岁的男子在其地下室竞选
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/d198b3aa-02cd-4a00-9a8a-1d96ecec89e3-1.jpg)
+凌晨四点收到了历史上所有候选人中最高票数
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+空无一人的的就职典礼
 
-0
+超过20,000名士兵保护他
+
+没有人可以对这一切有任何质疑，我们就这样让它发生了
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-澳喜Logo.jpeg)
++1

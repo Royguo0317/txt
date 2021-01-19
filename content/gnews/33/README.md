@@ -1,35 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 短评：吉林无症状感染者1传81，即刻打脸中疾控“专家”
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/766199/)
+## 明尼苏达州开启疫苗推广
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/768411/)
 
-编辑：喜马拉雅农场联盟新西兰奥克兰伊甸农场
-
-编者：Stephen(文文)
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/image0-177.jpg)
-1月16日吉林省新增无症状感染者81例，均与1月13日的一名无症状感染者有关联。至此，吉林出现“1传81”超级传播事件。该无症状感染者在吉林公主岭养生会馆、通化品质生活坊分别进行培训授课，继而引发群体感染。
-
-在谈及“超级传播”现象时，中国疾控中心副主任冯子健称发现超级传播现象或超级传播者并不奇怪。 而正是这位中疾控“专家”冯子健在两天前的13日中共国务院新闻发布会上说：
-
-1. 无症状感染者一般病毒量少，
-
-2. 传染性弱
-
-所以只要公众做好个人防护，不会造成大的流行。
-
-对于病毒来源以及疫情防控方面，中共为为达到隐瞒和愚民的目的，各类所谓专家院士出来站台说谎，但事实终究是事实，中共的谎言被事实打败是早晚的事。但是无症状感染者传播力的事件上，中共伪专家冯子健两天即被打脸，这个速度也是出人意料！
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-[参考新闻](https://m.thepaper.cn/newsDetail_forward_10771815)
+**西班牙2021年1月19日电/西喜社——**明尼苏达州州长蒂姆·沃尔兹（Tim Walz）周一宣布，该州将在本周开放9个社区站点，为65岁以上的成年人、幼儿园前至12年级的教育工作者、学校工作人员和儿童保育工作者接种疫苗。
 
-[参考新闻](https://m.thepaper.cn/newsDetail_forward_10817941)
+该计划开启了该州的疫苗推广，超越了第一个高优先级群体，包括医疗保健工作者和长期护理居民和工作人员。
 
-【文章仅限作者个人观点】
+由于可用剂量较少，这九个站点将于周四开始为人们接种疫苗，只接受预约。
 
-审核校对：玫瑰天空
+**新闻来源：**[https://apnews.com/article/beijing-family-gatherings-coronavirus-pandemic-china-coronavirus-vaccine-f730dbb55f71e5412525eca5276ccebf](https://apnews.com/article/beijing-family-gatherings-coronavirus-pandemic-china-coronavirus-vaccine-f730dbb55f71e5412525eca5276ccebf)
 
-上传排版：糊糊文婴
+![]()![](https://gnews.org/wp-content/uploads/2021/01/6670a51d-de99-404e-baa2-f5c879328a2a.jpg)
 
-0
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+
++1

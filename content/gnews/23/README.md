@@ -1,28 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 比利时已确认死亡人数达20435人
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/766572/)
+## 阿联酋航空将为所有员工提供中共病毒疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/768542/)
 
 - 编辑：Victor Torres
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月18日电/西喜社——**官员们说，在英国首次检测到的中共病毒新变种现在开始在比利时立足，在一家养老院爆发的基础上，北部几所学校也有病例报告。
+**西班牙2021年1月19日电/西喜社——**总部位于迪拜的航空公司阿联酋航空表示，将为所有员工提供中共病毒疫苗，优先考虑客舱人员和飞行员等一线员工。
 
-“这种变异体已经迁入我们国家，”杰出的病毒学家马克·范·兰斯特(Marc Van Ranst)告诉HLN网络。”像在其他国家一样，它正在变得紧张。”
+母公司阿联酋航空集团周一表示，现在阿联酋各地的所有员工都可以接种辉瑞-生物技术疫苗或中国国药集团的疫苗，这两种疫苗都可以在国内免费提供给高危人群。
 
-在今年一家养老院病例激增，导致100多人感染后，比利时西北部的Houthulst镇在过去14天内以每10万人中1207例的感染率飙升至该国感染率之首。检测显示，新的变种是罪魁祸首。
+阿联酋航空集团拥有8万多名员工，是世界上最早开展员工接种活动的航空机构之一。
 
-在安特卫普地区，周末有两所学校报告了病例，周一因新变种关闭一周。当局表示，学生、教师及其家人都应隔离十天。
-
-比利时受疫情影响尤其严重，已确认死亡人数达20435人。
+迪拜的经济以长途旅行和航空业为动力，这些行业受到中共病毒大流行的严重冲击。阿联酋已经展开了大规模的疫苗接种活动，人均接种量位居世界第二，每100名居民接种19剂疫苗。
 
 **新闻来源：**[https://apnews.com/article/beijing-family-gatherings-coronavirus-pandemic-china-coronavirus-vaccine-f730dbb55f71e5412525eca5276ccebf](https://apnews.com/article/beijing-family-gatherings-coronavirus-pandemic-china-coronavirus-vaccine-f730dbb55f71e5412525eca5276ccebf)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/375868a4-793c-41e8-8ae3-8af0243e08e0-1.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/29390612-e4f1-421f-9684-e4ba900e166b-3.jpg)
 
 ![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
-0
++1

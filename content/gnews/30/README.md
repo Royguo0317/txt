@@ -1,72 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大选推特实况】1/17/2021 11:30am-1:32pm 国务卿蓬佩奥推文:支持中共军民融合公司的摘牌&#8230;
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/766228/)
+## 隔离与封锁致加国人焦虑沮丧水平创历史新高
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/768425/)
 
-**【大选实况】1/17/2021 EST 11:30AM 国务卿蓬佩奥推文**： 在罗马的时候，当一位记者递给我帕玛森干酪时，我就知道很多人心里都在想着贸易政策@GiuseppeContelT（@意大利总理朱塞佩·孔特）
+加拿大多伦多枫叶农场 硫酸羟氯喹64
 
+校对 上传 小鸥
+![]()![](https://gnews.org/wp-content/uploads/2021/01/d-9.jpg)图片来自 ctvnews.ca
+随着中共病毒蔓延为祸加拿大近一年，加拿大独立进步媒体TRUE NORTH 于1月17日刊登文章，对加拿大心理健康研究中心最近的一项健康调查报告进行了分析和报道，该调查报告的结果佐证了目前加拿大各地政府正在和继续实施的极端防控疫情措施，对社会和公众的生命健康带来的无可弥补的损害。而这一切真相信息，都是现今主流媒体完全不能提供的。
 
+全文如下：
 
-> When a journalist handed me Parmigiano Reggiano cheese in Rome, I knew that trade policy was on many minds. [@GiuseppeConteIT](https://twitter.com/GiuseppeConteIT?ref_src=twsrc%5Etfw) [pic.twitter.com/S3MeRp7foh](https://t.co/S3MeRp7foh)
-> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350842820412792833?ref_src=twsrc%5Etfw)
+中共病毒大流行和随之而来的社区封锁正在对加拿大人的心理健康造成毁灭性影响。随着卫生限制措施的不断严格执行，来自全国各地的精神健康调查报告称，加拿大人的焦虑和沮丧情绪与日俱增，高涨不下。
 
+加拿大心理健康研究中心（MHRC）正在进行一系列，包括13项民意调查问题研究，其中第四部分结果显示，自受首批疫情波及影响的高峰以来，接受调查的加拿大人的心理紧张和焦躁水平达历史最高。
 
-来源：[https://twitter.com/SecPompeo/status/1350842820412792833](https://twitter.com/SecPompeo/status/1350842820412792833)
-盖特链接：[https://gtv.org/getter/60046b9087fabe2daf3b7700](https://gtv.org/getter/60046b9087fabe2daf3b7700)
+事实证明，社会隔离和在家工作对加拿大人的心理健康产生了极大负面影响，由于这些限制措施的极端法规一直存在，这成为人们极大精神压力的主要原因。
 
-* * *
+加拿大心理健康研究中心发现，22％的被调查者诊断出患有抑郁症，20％的人诊断出患有焦虑症，这两项调查结果均是该研究中心所测量到的历史记录最高值。
 
-**【大选实况】1/17/2021 EST 12:00 pm国务卿蓬佩奥推文： **在我们阻止USG（乔治亚州大学系统）退休账户投资中国解放军之后，标普、富时和纳斯达克采取行动保护美国投资者，将支持中共军民融合的公司摘牌。#美国第一 #遵守规则
+然而，随着时间的推延，社会封锁对公众所产生的焦虑和沮丧影响并未随之减弱，并且比疫情爆发前的水平增高了4倍有多。该调查报告还进一步指出，目前加拿大人和病毒大流行之前的情况基本一样，他们表现出没有应对精神压力和管理自我心理健康的相关能力。
 
+其中，曼尼托巴省和萨斯喀彻温省（Manitoba and Saskatchewan）所报告的公众焦虑症和抑郁症水平值最高，该调查结果还显示，全国各地加拿大人的焦躁和抑郁等负面情绪较疫情爆发之前都有大幅度增加。
 
+该研究中心董事会成员David Dozois医生说，严重的焦虑和抑郁是一个令人担忧的问题。他表示：“加拿大人所获得的心理健康支持与病毒大流行之前相比，并没有增加。广大公众不仅不太可能从心理健康专家那里获得亲身支持，而且他们也鲜有机会与其家庭医生进行交谈沟通以缓解越来越大的精神压力。”
 
-> After we blocked USG retirement accounts from investing in [#PLA](https://twitter.com/hashtag/PLA?src=hash&amp;ref_src=twsrc%5Etfw), S&P, FTSE and Nasdaq took action to protect American investors by delisting the companies fueling CCP military-civil fusion. [#AmericaFirst](https://twitter.com/hashtag/AmericaFirst?src=hash&amp;ref_src=twsrc%5Etfw) [#PlayByTheRules](https://twitter.com/hashtag/PlayByTheRules?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/22kcLRXHbV](https://t.co/22kcLRXHbV)
-> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350850373087494144?ref_src=twsrc%5Etfw)
+多数受访者表示，他们对疫情期间所面临的挑战具有适当的应变能力，其中65％的加拿大人认为其在面对疫情期间的新挑战保持一定的适应力。但该适应能力并不一定意味着所报告的心理健康水平不会严重下降。 该项调查结果表明，根据凯斯勒量表（Kessler Scale）显示，这些病例将被分类为中度至重度个案。
 
+加拿大心理健康研究中心的该项最新民意调查是由Pollara Strategic Insights公司主导进行的，该公司在线调查了2.761名加拿大人。 12月份的相关数据是在各省政府针对假期所发布的严格封锁法令之前收集的。
 
-来源：[https://twitter.com/SecPompeo/status/1350850373087494144](https://twitter.com/SecPompeo/status/1350850373087494144)
-盖特链接：[https://gtv.org/getter/600473e787fabe2daf3b7ccf](https://gtv.org/getter/600473e787fabe2daf3b7ccf)
+该调查报告同时鼓励任何在心理健康方面遇到困难的人，应该积极去寻求相应的建议或服务。
 
-* * *
-
-**【大选实况】1/17/2021 EST 12:30 pm 国务卿蓬佩奥推文：** 川普政府白手起家，但从志同道合的伙伴那里获得了强大的支持基础，以对抗中共在@联合国的渗透。我们曾经是唯一的声音，现在我们有关于香港自治和新疆侵犯人权的联合声明。#有意义的多边主义 【配图文字】我们呼吁中共立即结束这些恐怖行为，并要求所有国家与美国一道，要求终止这些非人道的虐待行为。
-
-
-
-> The Trump Administration built from nothing a strong base of support from like-minded partners to counter malign CCP actions at [@UN](https://twitter.com/UN?ref_src=twsrc%5Etfw). Where we once were the only voice, we now have joint statements on Hong Kong autonomy & human rights abuses in Xinjiang. [#MeaningfulMultilateralism](https://twitter.com/hashtag/MeaningfulMultilateralism?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/0Djhb026W1](https://t.co/0Djhb026W1)
-> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350857919533776898?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1350857919533776898](https://twitter.com/SecPompeo/status/1350857919533776898)
-盖特链接：[https://gtv.org/getter/6004a34087fabe2daf3b9fb3](https://gtv.org/getter/6004a34087fabe2daf3b9fb3)
-
-* * *
-
-* * *
-
-**【大选实况】1/17/2021 EST 1:00 pm 国务卿蓬佩奥推文： 2**020年8月，@卫生部长亚历克斯-阿扎尔访台，在全球COVID-19的斗争中，强调我们的良性合作。台湾总统 @蔡英文带队成功对抗COVID-19。@世卫组织（WHO）可以向台湾学习很多。#台湾可以帮助大家
+原文链接：
 
 
 
-> In August 2020, [@SecAzar](https://twitter.com/SecAzar?ref_src=twsrc%5Etfw) visited Taiwan to highlight our health cooperation amid the global COVID-19 fight. Taiwan's President [@iingwen](https://twitter.com/iingwen?ref_src=twsrc%5Etfw) led a successful battle against COVID-19. [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) could learn A LOT from Taiwan. [#TaiwanCanHelp](https://twitter.com/hashtag/TaiwanCanHelp?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/EC4SC03SJQ](https://t.co/EC4SC03SJQ)
-> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350865474288947201?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1350865474288947201](https://twitter.com/SecPompeo/status/1350865474288947201)
-盖特链接：[https://gtv.org/getter/6004a4ce87fabe2daf3ba0d6](https://gtv.org/getter/6004a4ce87fabe2daf3ba0d6)
-
-* * *
-
-**【大选实况】1/17/2021 EST 1:32 pm 国务卿蓬佩奥推文：** 我在2020年9月派@副国务卿基思·克拉希、@助理秘书罗伯特·德斯特罗和@凯利·E·柯里大使前往台湾，纪念李登辉总统传奇的一生和民主遗产
+> [Canadians are reporting record levels of depression and anxiety](https://tnc.news/2021/01/17/canadians-are-reporting-record-levels-of-depression-and-anxiety/)
 
 
 
-> I sent [@State\_E](https://twitter.com/State_E?ref_src=twsrc%5Etfw) Krach, [@DRL\_AS](https://twitter.com/DRL_AS?ref_src=twsrc%5Etfw) Destro & [@StateGWI](https://twitter.com/StateGWI?ref_src=twsrc%5Etfw) Currie to Taiwan in September 2020 to honor President Lee Teng-hui's life and democratic legacy. [https://t.co/700iqHspSg](https://t.co/700iqHspSg)
-> — Secretary Pompeo (@SecPompeo) [January 17, 2021](https://twitter.com/SecPompeo/status/1350881897082212355?ref_src=twsrc%5Etfw)
-
-
-来源：[https://twitter.com/SecPompeo/status/1350881897082212355](https://twitter.com/SecPompeo/status/1350881897082212355)
-盖特链接：[https://gtv.org/getter/6004a5f887fabe2daf3ba1c6](https://gtv.org/getter/6004a5f887fabe2daf3ba1c6)
-
-0
++2

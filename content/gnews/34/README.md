@@ -1,26 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中国关于始皇帝的争议剧引起人们对 &#8220;美化暴君 &#8220;的关注
-` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/766178/)
+## 加州督促停止接种30万支疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/768383/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/16109761791.png)（图片来自网络）
-日文翻译：待命（文晓）
+- 编辑：Victor Torres
 
-审核校对：招财娘娘
 
-编辑排版：待命（文晓）
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-中国中央电视台播放的演绎了秦始皇的电视剧《大秦賦》在中国引发了舆论战。
+**西班牙2021年1月19日电/西喜社——**美国加利福尼亚州的流行病学家敦促停止超过 300,000 剂Moderna疫苗，因为一些接种它的人，因可能的严重过敏反应需要接受医疗。
 
-始皇帝是第一个统一中国的人，但据说他通过严厉的言论打压，对国民实行了高压政策。会员制社交网站(SNS)上有人称这是 “向暴君致敬”，是 “对历史的美化”。有人担心，此举旨在使习近平政权的集权合法化。
+埃里克 S.潘博士建议疫苗供应商停止使用一个批次的Moderna疫苗，等待完成调查。她说，在一个疫苗接种点接种的人中，只有不到10人需要就医。
 
-公元前221年，秦王灭掉其它国家，成为第一个皇帝，并统一了货币和文字。另一方面，他压制言论、”焚书坑儒”、以 “法家思想 “为由的严格统治，一直以来在中国被批判性的接受着。
+但她也表示，接种疫苗的严重反应极为罕见。
 
-《大秦賦》一共有78集。 去年12月上映后，社交媒体上有人称这是“对暴政的美化”。
+该病毒已经在加州夺走了超过3.3万人的生命。
 
-原文链接
+**新闻来源：**[https://apnews.com/article/beijing-family-gatherings-coronavirus-pandemic-china-coronavirus-vaccine-f730dbb55f71e5412525eca5276ccebf](https://apnews.com/article/beijing-family-gatherings-coronavirus-pandemic-china-coronavirus-vaccine-f730dbb55f71e5412525eca5276ccebf)
 
-[https://news.yahoo.co.jp/articles/4fd4292c9138126252a1d592659cbd15dad72fb2](https://news.yahoo.co.jp/articles/4fd4292c9138126252a1d592659cbd15dad72fb2)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/9909beb1-a168-4b7e-ad92-79604b4c6c53.jpg)
 
-+2
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+
++1
