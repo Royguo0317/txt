@@ -1,21 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【1.20实况】川普总统特赦了包括史蒂夫-班农在内的73人
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/778968/)
+## 乔·拜登登台
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/779262/)
 
-据《门户专家》（Gateway Pundit） 1月20日报道，川普总统20日凌晨宣布赦免73人，并对另外70人减刑。 川普前首席战略师史蒂夫-班农被列入名单。
+- 编辑：Victor Torres
 
-白宫昨晚晚间公布了一份被赦免或减刑的个人名单。 该名单包括140多人。大多数的赦免和减刑都与毒品有关的指控相关。
 
-名单上有一个值得注意的人，就是川普总统的前首席战略师史蒂夫-班农。川普总统对斯蒂芬-班农进行了全面赦免。检察官对班农先生进行了追诉，指控他因参与一个政治项目而有欺诈行为。班农先生一直是保守派运动的重要领导人，并以贫民主义和反共而著称。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-参考链接：
+**西班牙2021年1月20日电/西喜社——**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/003-16.jpg)
+当选总统乔·拜登刚刚到达美国国会大厦就职典礼，并将宣誓就任美国第46任总统。
 
-[BREAKING: President Trump Gives Pardons to 73 Individuals and Commutes Another 70 Sentences – Steve Bannon Is Included](https://www.thegatewaypundit.com/2021/01/breaking-president-trump-gives-pardons-73-individuals-commutes-another-70-sentences-steve-bannon-included/)
+他紧随候任副总统卡马拉·哈里斯、前总统巴拉克·奥巴马、比尔·克林顿和乔治·W·布什，以及副总统迈克·彭斯和最高法院法官出席活动。
 
-翻译报道：Ermat【㊙️翻  Gnews原创组】
+首席大法官约翰·罗伯茨将为拜登宣誓就职。
 
-（本文仅代表作者个人观点）
-
+新闻来源：[https://edition.cnn.com/politics/live-news/biden-harris-inauguration-day-2021/index.html](https://edition.cnn.com/politics/live-news/biden-harris-inauguration-day-2021/index.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 0

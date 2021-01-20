@@ -1,23 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 推特宣布不会将川普总统的追随者转给新任总统
-` 旧金山金喜准农场` [轉載自GNews](https://gnews.org/zh-hans/778317/)
+## 拜登已抵达美国国会大厦参加就职典礼
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/778638/)
 
-# 1.20.21见证历史 –新中国联邦推动终极灭共！系列报道
+- 编辑：Victor Torres
 
-推特宣布不会将川普的追随者转给新任总统。据Twitter上周四发表的官方声明确认，当拜登今天宣誓就职后接管@POTUS账户时，不会将当前@POTUS的官方账户的粉丝转移给拜登，从而引发拜登团队震怒。
 
-这是首次社交媒体平台上进行的美国总统社交媒体官方账号的过渡与交接。推特表示，白宫及总统和副总统的政府官方账号 “不会自动保留现有的关注者。Twitter将通知这些账户的追随者，权力交接期间，账号的内容将被归档，并允许Twitter用户选择关注拜登政府的新账户。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-即将上任的新政府将继承这些官方机构账户的用户名，但不会继承这些账号上的追随者（粉丝）。
+**西班牙2021年1月20日电/西喜社——**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/001-4.jpg)
+拜登已抵达美国国会大厦参加就职典礼
 
-推特表示，@POTUS、@FLOTUS、@WhiteHouse和@VP等 “官方账号 “不会自动保留上届政府的关注者”。当前的“美国总统”官方账户的用户名 “将被更新，账号内资料内容将做文案归档保存。例如，川普政府的@POTUS账户将标识为@POTUS45″。
+当选总统乔·拜登的车队已经在就职典礼前抵达美国国会大厦。
 
-“推特上的用户如果之前关注了白宫的官方机构推特账号，@POTUS、@FLOTUS、@WhiteHouse和@VP等 ，或者目前关注了相关的拜登或哈里斯推特账号，将会收到推特应用内的提醒和其他提示，通知用户们注意，推特将对上一任美国总统的推特账号资料内容将进入归档整理，同时也让他们可以选择关注新一任政府的推特账号。
+国会领导人将在他进入国会大厦时迎接他。
 
-Twitter这一声明令拜登的团队强烈不满，因为拜登将无法继承与拥有川普总统@POTUS账户的3300万粉丝。
+预计拜登将于美国东部时间中午在大楼外宣誓就职。
 
-编译：Bingo
-
-+2
+新闻来源：[https://edition.cnn.com/politics/live-news/biden-harris-inauguration-day-2021/index.html](https://edition.cnn.com/politics/live-news/biden-harris-inauguration-day-2021/index.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+0

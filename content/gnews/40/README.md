@@ -1,39 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## MAGA运动只是开始 川普总统有意创建爱国党
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/778048/)
+## 川普总统于任期结束前一晚正式解密大批通俄门文件
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/778260/)
 
-俄罗斯莫斯科喀秋莎农场   DongDong
+俄罗斯莫斯科喀秋莎农场    文雪
 
-编辑上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Snipaste_2021-01-20_17-26-13.png)Ebay
-据报道，川普总统想在卸任后创建一个独立于民主党和共和党之外的，全新的第三党。
+编辑上传    银河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/iu82FXPHUX-1.jpg)
+[conservative-headlines.org](https://duckduckgo.com/l/?uddg=https%3A%2F%2Fconservative-headlines.org%2Ftrumps-russia-collusion%2F)
+门户专家 (The Gateway Pundit) 于1月19日晚间报道：川普总统周二晚间不顾联邦调查局(FBI)的反对，正式解密了一大批通俄门文件。预计解密文件将于周三公布。据调查记者约翰·所罗门(John Solomon)报道，这个文件夹大约有一英尺高，他在《只是新闻》(Just The News)上报道说，“这些文件将包括一份联邦调查局 (FBI) 的备忘录，概述了特工们对档案作者克里斯托弗·斯蒂尔 (Christopher Steele) 的采访”。
 
-据《华尔街日报》周二晚间援引 “知情人士 “的话报道，川普总统已在讨论重新创建一个新政党，暂时命名为 “爱国者党”（Patriot Party）。
+《只是新闻》已经报道，材料中概述了特工们在2017年秋季对反川普档案作者克里斯托弗·斯蒂尔 (Christopher Steele) 的采访，他在采访中承认了自己在2016年美国大选期间泄露俄罗斯勾结言论的动机，以及任务命令另一个机密人员冒充求职者监视川普竞选。
 
-该杂志报道称， “几位助手和其他与他（川普总统）关系密切的人 “参与了深入讨论[1]。
+通过白宫发表的关于联邦调查局交火飓风调查某些材料解密的备忘录了解到：
 
-2020年1月19日，川普总统做了暂时告别白宫的最后一次演讲，在此演讲中他只字未提拜登，并在演讲最后提到，MAGA运动只是刚刚开始[2]。
+“应川普总统的要求，司法部于2020年12月30日向白宫提供了一个与联邦调查局‘交火飓风’调查有关的材料夹。文件夹中的部分文件仍然是机密未向国会或公众公布。川普总统要求提供这些文件是为了进行解密审查，以便确定在多大程度上应以非机密形式公布文件夹中的材料。”
 
-“让美国再次伟大 “或MAGA（Make America Great Again）是美国政治中使用的一个竞选口号，唐纳德-川普在2016年总统竞选中普及了该竞选口号。道格拉斯-肖恩（Douglas Schoen）称川普使用这句话是 “可能是近代史上最有共鸣的竞选口号”，理由是大多数美国人认为国家正在衰退[3]。
+“川普总统决定，应尽最大可能对该文件夹中的材料进行解密。 作为回应，并作为解密审查反复过程的一部分，联邦调查局(FBI)在2021年1月17日的一封送文函中指出，它继续反对对资料夹中的材料进行任何进一步的解密，并根据包括情报界平等在内的审查，确定了它认为最关键的不公开披露的段落。川普总统已决定接受联邦调查局在1月17日提交的文件中提出的保密部分的修改意见，同时对资料夹中的其余材料继续进行解密。这是川普总统在解密审查中的最终决定，并且已指示司法部长执行联邦调查局1月17日呈文中提出的删节建议，并向白宫返还一份经过适当删节的副本。”
 
-自2020年11月3日总统大选日发生选票欺诈事件之后，各种欺诈、投票、贿选的证据逐一曝光，激怒了美国老百姓，要求民主党“停止窃选”。同时，越来越多的美国人看清了左派，纷纷从左派逃离，拥抱MAGA运动。
+“交火飓风行动”是美国联邦调查局对2016年川普竞选活动的反间谍调查，于2016年7月启动，旨在调查俄罗斯干预2016年美国总统大选的指控，包括俄罗斯与任何政治活动之间可能存在的联系。2017年5月由当时的特别顾问、前联邦调查局局长罗伯特‧穆勒 (Robert Mueller) 启动了“通俄门”调查。2019年3月22日，特别检察官罗伯特·穆勒 (Robert Mueller) 完成调查，向司法部长巴尔提交了调查报告。该报告于2019年4月18日公布。结论是：没有发现2016年美国总统大选川普竞选团队有通俄行为，对川普暗通俄罗斯干涉美国大选的指控不成立。
 
-自2020年11月14日，来自全美50个州的民众，用实际行动开启“百万挺川大游行”之后[4]，一波又一波的MAGA运动在全美迅速展开。MAGA运动的忠实参与和拥护者会成为“爱国者”党的坚强基石。
+实际上早在2020年10月7日川普总统就在推特上发消息称要解密“通俄门”文件。
 
-但因为2021年1月6日发生的“国会山”事件被民主党人加以利用，企图将Antifa和BLM的所作所为栽赃陷害给MAGA组织，妄图将其定性为“危险的暴力的非法组织”。因此有人担心拜登政府会在就职后利用“国会山事件”，强行取消或解散MAGA，从而实现打击川普爱国者阵营的目的。
+川普总统从竞选总统开始到任期结束，一路崎岖坎坷不平，从“交火飓风行动”到通俄门结束历经了2年多；之后又经历了2次弹劾；川普总统是美国历史上被弹劾次数最多的总统。很多人认为对川普总统的这些行动是反川普集团的政治陷阱和构陷，即使这样，川普在这4年之间对美国和人民做出的贡献仍然是历史上大多数的总统不可企及的，他兑现了竞选时的多数承诺。
 
-在民主灯塔国处在万分危及的情况下，川普凭一己之力，凝聚了爱国者阵线，形成MAGA运动和MAGA阵营，有理由相信盗窃选票的拜登马上就会遭到川普阵营的强力反击。让我们屏住呼吸，拭目以待。
+川普总统所做出的灭共行动及排干沼泽行动是美国70年以来的总和。为了让美国再次伟大，川普总统一直与中共及中共在美国渗透的邪恶势力抗争。川普总统是光明之子，和我们爆料革命及新中国联邦站在一起，在这正邪的终极之战，川普总统一定赢！
+
+一切都是刚刚开始！
 
 参考链接：
 
-[1] [Report: Trump wants to create new political party](https://www.washingtontimes.com/news/2021/jan/19/donald-trump-wants-create-new-patriot-party-report/)
+[https://www.whitehouse.gov/presidential-actions/memorandum-declassification-certain-materials-related-fbis-crossfire-hurricane-investigation/](https://www.whitehouse.gov/presidential-actions/memorandum-declassification-certain-materials-related-fbis-crossfire-hurricane-investigation/)
 
-[2] [Trump Says MAGA Movement Is ‘Just Beginning,’ Wishes Biden Well in Farewell Address](https://www.nbcsandiego.com/news/national-international/trump-says-maga-movement-is-just-beginning-wishes-biden-well-in-farewell-address/2499505/)
 
-[3] [Make America Great Again](https://en.wikipedia.org/wiki/Make_America_Great_Again)
 
-[4] [百万挺川大游行红色海洋“淹没”白宫](https://www.usnewsexpress.com/archives/126254)
+> [BREAKING: President Trump Formally Declassifies Large Trove of Russiagate Documents Over Objections From FBI Director Wray](https://www.thegatewaypundit.com/2021/01/breaking-president-trump-formally-declassifies-large-trove-russiagate-documents-objections-fbi-director-wray/)
 
-0
+
+
++2

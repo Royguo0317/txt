@@ -1,28 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 前总统到场参加拜登就职典礼
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/778760/)
+## 2020年1月20日美利坚合众国第46届总统就职典礼时间表
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/779191/)
 
-- 编辑：Victor Torres
+美国第46届总统宣誓就职典礼将与当地时间在美国首都华盛顿举行。这是宣誓就职仪式的时间表。
+
+上午11点：拜登抵达美国国会大厦
+
+上午11点15 分：就职典礼开始
+
+- 祷文—-Leo J. O’Donovan神父
+- 宣誓–Andrea Hall
+- 国歌–Lady Gaga
+- 诗歌朗诵–阿曼达-戈尔曼
+- 音乐表演–珍妮弗-洛佩兹
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+中午12点：拜登宣誓就任美利坚合众国第46任总统
 
-**西班牙2021年1月20日电/西喜社——**
-![]()![](https://gnews.org/wp-content/uploads/2021/01/004-6.jpg)
-出席当选总统拜登就职典礼的所有美国前总统都已抵达美国国会大厦。
+下午2点30分至3点：拜登在阿灵顿国家公墓敬献花圈
 
-乔治-W-布什和他的妻子劳拉于周三上午率先抵达综合大楼，比拜登的宣誓仪式早几个小时。
+下午3点15分至 3点30分：拜登夫妇在总统军队护送下前往白宫
 
-巴拉克和米歇尔·奥巴马以及比尔和希拉里·克林顿紧随其后，每对夫妇都分别乘坐车队抵达。
+时间待定：拜登夫妇进入白宫，虚拟的“全美游行”开始。游行将以全国各地的社区为特色。
 
-另一位在世的前总统、96岁的吉米·卡特此前宣布不会出席拜登的就职典礼。卡特和他的妻子，93岁的罗莎琳·卡特，主要是在乔治亚州平原市的家中度过中共病毒大流行。
+晚上8点30分：汤姆·汉克斯主持90分钟的特别节目。
 
-卡特曾在2017年成为第一位确认参加唐纳德·川普就职典礼的前总统。
+[原文链接](https://www.pbs.org/newshour/politics/your-guide-to-inauguration-day)
 
-川普和第一夫人梅拉尼娅·川普周三早些时候离开华盛顿，跳过拜登的就职庆典，直奔佛罗里达州的家。川普是自安德鲁·约翰逊以来第一位不参加继任者就职典礼的总统。
+执笔：DC教练
 
-新闻链接：[https://apnews.com/article/joe-biden-inauguration-news-0a49b6d8b3c9904d88d5bccfd854ab25](https://apnews.com/article/joe-biden-inauguration-news-0a49b6d8b3c9904d88d5bccfd854ab25)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 0

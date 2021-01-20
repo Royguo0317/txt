@@ -1,183 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《上帝保佑美國》(附中英文歌词)
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/778141/)
+## 【五月花评】从8个反人类罪案例看CCP如何被灭
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/778463/)
 
-歌词大意：
+五月花写作组 | 作者：2020灭共必胜 | 编辑、发稿：jamie(文胤)
 
-If tomorrow all the things were gone
+美国时间1月19日，美国国务卿蓬佩奥在推特发布声明：“我认定，中华人民共和国在中国新疆正在对维吾尔族穆斯林和其他少数民族和宗教少数派群体成员犯下种族灭绝和反人类罪行。”随后发布的国务院官方文件中还谈及纽伦堡大审判，纳粹，CCP总书记习近平。美国的官方认定打响了全球联合灭共的第一枪。CCP，准备迎接大审判吧！
 
-如果明天我为之奋斗了一辈子
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Annotation-2021-01-20-092951-1.png)图片来自官方推特
 
-I’d worked for all my life
+**种族灭绝**指蓄意全部和局部消灭某一民族，人种，种族或宗教团体。最初由波兰法学家R.莱姆金在1944年出版的（轴心国在沦陷欧洲的统治）一书中提出，用来概括第二次世界大战期间德国纳粹分子在其统治区内滥杀本国人和外国人，尤其是犹太人的罪行。灭绝种族是剥夺人种的生存权利的行为，这种行为直接违反国际人道主义的原则，在第二次世界大战结束以后，灭绝种族的行为正式被宣布为一项国际犯罪，是一种反人类的罪行，由国际军事法庭对罪犯进行审判。
 
-的东西所有都化为乌有
+**反人类罪**或危害人类罪隶属于自2002年7月1日起生效的《[国际刑事法院罗马规约](https://zh.m.wikipedia.org/wiki/%E5%9B%BD%E9%99%85%E5%88%91%E4%BA%8B%E6%B3%95%E9%99%A2%E7%BD%97%E9%A9%AC%E8%A7%84%E7%BA%A6)》中定义的国际罪行。规约中的定义为“针对[人性尊严](https://zh.m.wikipedia.org/wiki/%E4%BA%BA%E6%80%A7%E5%B0%8A%E4%B8%A5)极其严重的侵犯与凌辱的众多行为构成的事实。这些一般不是孤立或偶发的事件，或是出于政府的政策，或是实施了一系列被政府允许的暴行。如针对民众实施的[谋杀](https://zh.m.wikipedia.org/wiki/%E8%B0%8B%E6%9D%80)，[种族灭绝](https://zh.m.wikipedia.org/wiki/%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D)，[人体试验](https://zh.m.wikipedia.org/wiki/%E4%BA%BA%E4%BD%93%E8%AF%95%E9%AA%8C)，[酷刑](https://zh.m.wikipedia.org/wiki/%E9%85%B7%E5%88%91)，[强奸](https://zh.m.wikipedia.org/wiki/%E5%BC%BA%E5%A5%B8)，政治性的、种族性的或宗教性的迫害，以及其他非人道的行为”。
 
-And I had to start again
+自2002年以来，共有8名国家元首被判反人类罪：
 
-我不得不重新开始
+- 伊拉克前总统**萨达姆**被指控于1982年在杜贾尔村杀害当地148名什叶派村民。
 
-With just my children and my wife
 
-惟独还有我的妻儿陪伴身边
+2006：判处死刑（已执行）
 
-I’d thank my lucky stars
+- 科特迪瓦前总统**洛朗.巴博**被指控同反政府阵营发生武力冲突造成至少3000人死亡
 
-我要感谢我的幸运星
 
-To be living here today
+2011：作为间接共同主犯，巴博应承担个人刑事责任
 
-让我今天还生活在这里
+- 利比亚前总统**卡扎菲**指使利比亚安全部队对平民进行了“大范围的”和“系统性的”袭击 ，造成了至少1万名利比亚人死亡。
 
-Where the flag still stands for freedom
 
-生活在一个旗帜仍象征着自由的地方
+2011：被逮捕后在交火中身亡
 
-And they can’t take that away
+- 比里前总统**亚查尔斯****.****泰勒**被指控在塞拉利昂内战时期支持革命联合阵线的叛乱分子屠杀上万名民众
 
-没人能夺走那旗帜
 
-And I’m proud to be an American
+2012：50年监禁
 
-我以身为美国人为荣
+- 年危地马拉前总统**里奥斯****.****蒙特**被指控在1982年至1983年执政期间下令屠杀了1771名原住民
 
-Where at least I know I’m free
 
-在这里我至少拥有自由
+2013：80年监禁
 
-And I won’t forget the men who died
+- 柬埔寨前元首**乔森潘**被指控其统治期间发生了红色高棉大屠杀，造成了将近当时25%人口（约200万人）的死亡
 
-我不会遗忘那些阵亡的将士
 
-Who gave that right to me
+2014：终身监禁
 
-是他们赋予我这些权利
+- [乍得](https://zh.m.wikipedia.org/wiki/%E4%B9%8D%E5%BE%97)前总统**[侯赛因·哈布雷](https://zh.m.wikipedia.org/wiki/%E4%BE%AF%E8%B3%BD%E5%9B%A0%C2%B7%E5%93%88%E5%B8%83%E9%9B%B7)**被指控于执政期间至少杀害了4万名反对者，超过20万名普通公民曾遭到[特务](https://zh.m.wikipedia.org/wiki/%E7%89%B9%E5%8A%A1)部门的监禁或虐待。
 
-And I gladly stand up next to you
 
-有幸与你站在一起
+2016：终身监禁
 
-And defend her still today
+- 苏丹前总统奥马尔.**巴希尔**被指控在苏丹达尔富尔地区犯有战争罪和危害人类罪
 
-至今仍然捍卫着她
 
-‘Cause there ain’t no doubt I love this land
+2020：移交国际法院
 
-因为毫无疑问我挚爱这片土地
+中共在新疆屠杀当地村民，迫害维吾尔族，迫害宗教信仰，强迫堕胎，强迫节育，建立集中营，强行关押上百万人。对比上述反人类罪的案例，我们不难判断等待中共的将会是怎样的结局。身为中华人民共和国的所谓合法领导组织，中国共产党领导人**习近平**以及其他参与种族灭绝的党羽们将难逃法律的审判。接下来，等待CCP的将会是美国及其盟友北约等一系列国际正义力量的行动，例如将人民币踢出美元结算系统，没收中共海外资产，无人机斩首等等。党内的正义力量亦会配合国际社会，从内部消灭、解体中共。
 
-God Bless the U.S.A.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/image0-210-scaled.jpg)
 
-上帝保佑美国
+对于犯罪情节严重的人员，等待他们的将是诸如伊拉克前总统萨达姆的结局。历史的车轮滚滚前行，不可逆转，全球灭共模式已经正式开启。双手沾满鲜血的人，及时醒悟吧，枪口抬高一寸，以共灭共，给子孙一个未来。
 
-From the lakes of Minnesota
+文中定义和案例来源：维基百科
 
-从明尼苏达的万湖
+* * *
 
-To the hills of Tennessee
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
 
-到田纳西的群山
+更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)！
 
-Across the plains of Texas
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)！
 
-横跨德克萨斯的平原
-
-From sea to shining sea
-
-从大西洋岸到太平洋
-
-From Detroit down to Houston
-
-从底特律到休斯敦
-
-And New York to L.A.
-
-从纽约到洛杉矶
-
-Well there’s pride in every American heart
-
-每一个美国人心中都充满骄傲
-
-And it’s time we stand and say
-
-是时候我们站起来说
-
-That I’m proud to be an American
-
-我以身为美国人为荣
-
-Where at least I know I’m free
-
-在这里我至少拥有自由
-
-And I won’t forget the men who died
-
-我不会遗忘那些阵亡的将士
-
-Who gave that right to me
-
-是他们赋予我这些权利
-
-And I gladly stand up next to you
-
-有幸与你站在一起
-
-And defend her still today
-
-至今仍然捍卫着她
-
-‘Cause there ain’t no doubt I love this land
-
-因为毫无疑问我挚爱这片土地
-
-God Bless the U.S.A.
-
-上帝保佑美国
-
-God bless this country
-
-上帝保佑这个国家
-
-And I’m proud to be an American
-
-我以身为美国人为荣
-
-Where at least I know I’m free
-
-在这里我至少拥有自由
-
-And I won’t forget the men who died
-
-我不会遗忘那些阵亡的将士
-
-Who gave that right to me
-
-是他们赋予我这些权利
-
-And I gladly stand up next to you
-
-有幸与你站在一起
-
-And defend her still today
-
-至今仍然捍卫着她
-
-‘Cause there ain’t no doubt I love this land
-
-因为毫无疑问我挚爱这片土地
-
-God Bless the U.S.A.
-
-上帝保佑美国
-
-翻译：【Dlrow】【Isaiah4031】校对：【JoyJoy】字幕：【相机过热啊】
-
-喜马拉雅玫瑰园小队出品
-
-
-
-> [福克斯新闻发布格林伍德和美国大兵的新版《上帝保佑美国》- 有望再成打榜歌曲！](https://gnews.org/zh-hans/254959/)
-
-
-
-+1
+0

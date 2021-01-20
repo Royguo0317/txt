@@ -1,20 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 迈克·彭斯到场参加就职典礼
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/778568/)
+## 由于一个炸弹威胁，美国最高法院正在被清空
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/778841/)
 
-- 编辑：Victor Torres
+**作者： CPA Jim**
 
+拜登宣誓就职日，开始发生幺蛾子。Breaking911于2021年1月20日发推，据WRCTV报道，人员正在从美国最高法院撤离。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2021年1月20日电/西喜社——**
-![]()![](https://gnews.org/wp-content/uploads/2021/01/003-8.jpg)
-副总统迈克·彭斯刚刚抵达美国国会大厦，参加当选总统拜登的就职典礼。
-
-川普总统不参加。他在当天早些时候发表了告别讲话，然后登上空军一号，前往佛罗里达州。
-
-新闻链接：[https://edition.cnn.com/politics/live-news/biden-harris-inauguration-day-2021/index.html](https://edition.cnn.com/politics/live-news/biden-harris-inauguration-day-2021/index.html)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
-+1
+这个炸弹威胁让我想起了美国最高法院驳回大选舞弊案的事情，做出驳回该案件的决定是否是由于有人暗中威胁美国最高法院大法官的结果。爆料革命的战友都知道中国共产党经常做这种暴力威胁。这个是否是给即将给拜登举行宣誓仪式的首席大法官罗伯特的警告呢？
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-36.png)
+0
