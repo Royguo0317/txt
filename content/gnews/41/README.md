@@ -1,23 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 推特宣布不会将川普总统的追随者转给新任总统
-` 旧金山金喜准农场` [轉載自GNews](https://gnews.org/zh-hans/778317/)
+## 参议员玛莎·布莱克本：川普任命了230名法官
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/778685/)
 
-# 1.20.21见证历史 –新中国联邦推动终极灭共！系列报道
+**作者: CPA Jim**
 
-推特宣布不会将川普的追随者转给新任总统。据Twitter上周四发表的官方声明确认，当拜登今天宣誓就职后接管@POTUS账户时，不会将当前@POTUS的官方账户的粉丝转移给拜登，从而引发拜登团队震怒。
+美国参议员玛莎·布莱克本2021年1月20日发推说川普总统通过任命230名法官，留下了一个有持续影响力的司法遗产，将在未来数年捍卫美国法治。
 
-这是首次社交媒体平台上进行的美国总统社交媒体官方账号的过渡与交接。推特表示，白宫及总统和副总统的政府官方账号 “不会自动保留现有的关注者。Twitter将通知这些账户的追随者，权力交接期间，账号的内容将被归档，并允许Twitter用户选择关注拜登政府的新账户。
+任命的法官数量正好和关乎社交媒体平台言论自由的230法案的序列数相同。期待任命的230个法官通过复核230法案是否符合宪法帮助助作废230法案。很明显社交媒体任意屏蔽言论、删除账号，损害了言论自由，滥用垄断地位侵害用户权利，同时也侵害了社交媒体公司的广告客户的权利，影响了其广告投放的范围和效果。社交媒体上的正义与法治亟需维护。
 
-即将上任的新政府将继承这些官方机构账户的用户名，但不会继承这些账号上的追随者（粉丝）。
 
-推特表示，@POTUS、@FLOTUS、@WhiteHouse和@VP等 “官方账号 “不会自动保留上届政府的关注者”。当前的“美国总统”官方账户的用户名 “将被更新，账号内资料内容将做文案归档保存。例如，川普政府的@POTUS账户将标识为@POTUS45″。
 
-“推特上的用户如果之前关注了白宫的官方机构推特账号，@POTUS、@FLOTUS、@WhiteHouse和@VP等 ，或者目前关注了相关的拜登或哈里斯推特账号，将会收到推特应用内的提醒和其他提示，通知用户们注意，推特将对上一任美国总统的推特账号资料内容将进入归档整理，同时也让他们可以选择关注新一任政府的推特账号。
+> President Trump leaves behind a lasting legacy on the federal judiciary, after appointing over 230 judges, including 3 Supreme Court Justices. These judges will uphold the rule of law for years to come.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [January 20, 2021](https://twitter.com/MarshaBlackburn/status/1351907673957158912?ref_src=twsrc%5Etfw)
 
-Twitter这一声明令拜登的团队强烈不满，因为拜登将无法继承与拥有川普总统@POTUS账户的3300万粉丝。
 
-编译：Bingo
 
-+2
+0

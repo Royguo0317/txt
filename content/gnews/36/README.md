@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 代理司法部长将在拜登入主时辞职
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/778434/)
+## 前总统到场参加拜登就职典礼
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/778760/)
 
 - 编辑：Victor Torres
 
@@ -10,17 +10,19 @@
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
 **西班牙2021年1月20日电/西喜社——**
-![]()![](https://gnews.org/wp-content/uploads/2021/01/002-1.jpeg)
-代理司法部长杰弗里·罗森将在当选总统拜登宣誓就职时辞职。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/004-6.jpg)
+出席当选总统拜登就职典礼的所有美国前总统都已抵达美国国会大厦。
 
-司法部表示，罗森的辞职将于周三中午生效。
+乔治-W-布什和他的妻子劳拉于周三上午率先抵达综合大楼，比拜登的宣誓仪式早几个小时。
 
-自前司法部长威廉·巴尔12月23日辞职后，罗森一直负责该部门的工作。他此前曾担任副检察长和交通部副部长。
+巴拉克和米歇尔·奥巴马以及比尔和希拉里·克林顿紧随其后，每对夫妇都分别乘坐车队抵达。
 
-罗森自担任司法部最高职务以来一直保持低调。自上任以来，他没有召开过新闻发布会，也没有向记者团发表过讲话，即便是在1月6日美国国会大厦发生致命骚乱之后，他也只是发布了事先录制好的视频讨论此事并发表声明。
+另一位在世的前总统、96岁的吉米·卡特此前宣布不会出席拜登的就职典礼。卡特和他的妻子，93岁的罗莎琳·卡特，主要是在乔治亚州平原市的家中度过中共病毒大流行。
 
-长期担任司法部官员的蒙蒂·威尔金森预计将在法官梅里克·加兰等待参议院确认期间担任代理检察长一职。
+卡特曾在2017年成为第一位确认参加唐纳德·川普就职典礼的前总统。
 
-新闻来源：[https://apnews.com/article/biden-inauguration-joe-biden-politics-district-of-columbia-coronavirus-pandemic-0a49b6d8b3c9904d88d5bccfd854ab25](https://apnews.com/article/biden-inauguration-joe-biden-politics-district-of-columbia-coronavirus-pandemic-0a49b6d8b3c9904d88d5bccfd854ab25)
+川普和第一夫人梅拉尼娅·川普周三早些时候离开华盛顿，跳过拜登的就职庆典，直奔佛罗里达州的家。川普是自安德鲁·约翰逊以来第一位不参加继任者就职典礼的总统。
+
+新闻链接：[https://apnews.com/article/joe-biden-inauguration-news-0a49b6d8b3c9904d88d5bccfd854ab25](https://apnews.com/article/joe-biden-inauguration-news-0a49b6d8b3c9904d88d5bccfd854ab25)
 ![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 0

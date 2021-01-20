@@ -1,13 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 由于一个炸弹威胁，美国最高法院正在被清空
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/778841/)
+## 乔·拜登登台
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/779262/)
 
-**作者： CPA Jim**
+- 编辑：Victor Torres
 
-拜登宣誓就职日，开始发生幺蛾子。Breaking911于2021年1月20日发推，据WRCTV报道，人员正在从美国最高法院撤离。
 
-这个炸弹威胁让我想起了美国最高法院驳回大选舞弊案的事情，做出驳回该案件的决定是否是由于有人暗中威胁美国最高法院大法官的结果。爆料革命的战友都知道中国共产党经常做这种暴力威胁。这个是否是给即将给拜登举行宣誓仪式的首席大法官罗伯特的警告呢？
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-36.png)
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2021年1月20日电/西喜社——**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/003-16.jpg)
+当选总统乔·拜登刚刚到达美国国会大厦就职典礼，并将宣誓就任美国第46任总统。
+
+他紧随候任副总统卡马拉·哈里斯、前总统巴拉克·奥巴马、比尔·克林顿和乔治·W·布什，以及副总统迈克·彭斯和最高法院法官出席活动。
+
+首席大法官约翰·罗伯茨将为拜登宣誓就职。
+
+新闻来源：[https://edition.cnn.com/politics/live-news/biden-harris-inauguration-day-2021/index.html](https://edition.cnn.com/politics/live-news/biden-harris-inauguration-day-2021/index.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 0

@@ -1,35 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 乔·拜登或将关闭美加石油管道 此举削减美国工作岗位
-` Fightforthetrue` [轉載自GNews](https://gnews.org/zh-hans/778906/)
+## 哈里斯宣誓就任第一任女副总统
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/779425/)
 
-国内新闻组：背靠背
+- 编辑：Victor Torres
 
-据布雷伯特（Breitbart）2021年1月19日报道，乔·拜登将关闭Keystone XL管道的计划，此举将引发与加拿大的战争，并削减美国就业岗位。
 
-另据美国政治新闻网站“政客”（Politico）和加拿大广播公司（CBC）等多家媒体报导，拜登将在上任第一天就取消Keystone XL石油管延长项目的跨境许可。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-该项目耗资90亿美元，艾伯塔省（Alberta）已经筹集了11亿美元的资金。
+**西班牙2021年1月20日电/西喜社——**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/WhatsApp-Image-2021-01-21-at-00.54.43.jpeg)
+卡马拉·哈里斯已宣誓就任美国首位女副总统。
 
-路德访谈节目爆料，巴黎气候协定是大重启手段之一，其目的是通过能源控制、支配、绑架美国企业、人民，甚至是全世界。而重新加入《巴黎气候协定》是乔·拜登竞选承诺之一。
+这位来自加州的前美国参议员也是第一位当选副总统的黑人和南亚裔人士，并成为有史以来在政府任职的最高级别女性。
 
-乔·拜登竞选承诺曾表示如果当选，将立即重新加入《巴黎气候协定》。他还明确表示，将在2025年实现美国温室气体排放量同比2005年减少28%的目标。
+她周三由第一位在最高法院任职的拉丁裔大法官索托马约尔（Sonia Sotomayor）宣誓就职。副总统迈克·彭斯（Mike Pence）代替总统唐纳德·川普（Donald Trump）坐在附近，Lady Gaga在美国海军陆战队乐队的陪同下唱起了国歌。
 
-早在2019年11月5日美国正式通知联合国将退出巴黎气候协定，按照联合国气候谈判框架协议规定，一年后的11月4日，美国正式退出。同日乔·拜登推文称上任美国总统时返回巴黎气候协定。
-
-加拿大自然资源部部长Jim Carr曾对媒体表示，估计Keystone XL可以创造约4500个工作机会，每天可运输80万桶原油至美国德州墨西哥湾的炼油厂进行精炼。川普曾表示Keystone与Dakota输油管计划将为美国提供数万个工作机会，借由开放输油管线计划，促进石油产业发展，同时增加用美国货、雇用美国人的机会。
-
-艾伯塔省总理肯尼表示，“这样做会杀死边境两边的工作，削弱至关重要的加美关系，并破坏美国。肯尼说：“通过使美国在未来更多地依赖欧佩克石油进口来实现国家安全。”
-
-2015年，参议院通过该项目，送给国务院审核，时任总统奥巴马拒绝签字。
-
-2017年3月24日，美国总统特朗普正式批准Keystone XL石油管道建设项目，该项目曾在2015年被前总统奥巴马否决。
-
-加拿大能源局介绍，Keystone管道系统由TransCanada Keystone Pipeline GP Ltd.拥有，并于2010年投入使用。Keystone管道将原油从艾伯塔省的Hardisty输送到美国中西部和美国墨西哥湾沿岸的炼油市场。加拿大部分从哈迪斯蒂（Haristy）的东部穿过萨斯喀彻温省和曼尼托巴（Manitoba），然后转向南部并越过曼尼托巴（Manitoba）Haskett附近的加美边界进入北达科他州（North Dakota）。
-
-该管道向南延伸，穿过南达科他州到达内布拉斯加州的斯蒂尔市，该管道有两个分支机构：一个通过堪萨斯州和密苏里州向东延伸到伊利诺伊州伍德河和帕托卡的交货点，另一个在俄克拉荷马州库欣的南部输送点。休斯敦和得克萨斯州的亚瑟港。Keystone在帕托卡（Patoka）将原油输送到平原码头，这有助于通过第三方管道将原油输送到当地的炼油厂。
-
-新闻来源：https://www.breitbart.com/2020-election/2021/01/19/bidens-plan-shut-down-keystone-xl-pipeline-sparks-battle-canada-slashes-american-jobs/?utm\_source=facebook&utm\_medium=social
-
-0
+新闻链接：[https://apnews.com/article/joe-biden-inauguration-news-0a49b6d8b3c9904d88d5bccfd854ab25](https://apnews.com/article/joe-biden-inauguration-news-0a49b6d8b3c9904d88d5bccfd854ab25)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
++1
