@@ -1,25 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共制裁涉台问题的美国官员纯属虚张声势
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/773873/)
+## 【军事快讯】FBI“政审”驻防华盛顿特区的国民警卫队官兵，已有两名士兵被除名
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/774029/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：纽约香草山写作组   Wilson
 
-编辑   水星    上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/u-1.jpg)newsus.app
-在新任美国总统即将就职之际，中共国表示“决定”制裁一些涉及台湾问题的美国官员。
 
-中共国“崴脚部”发言人华春莹1月18日在北京的新闻发布会上表示，“基于美方的错误行为，中方已决定对在台湾问题上表现恶劣的美国官员实施制裁。”但她没有透露哪些官员是袭击目标及计划实施的详细说明。
 
-美台商业委员会(U.S.- Taiwan Business Council)主席哈蒙德-钱伯斯(Rupert Hammond-Chambers)说“这些都是虚张声势和花言巧语”，中共去年宣布对美国国防公司实施制裁，但迄今收效甚微。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-近几日美国持续重锤打击中共，中共还停留在虚张声势的恐吓上。美国务卿蓬佩奥1月16日宣布作为川普总统关于香港正常化行政命令的一部分，美国将制裁镇压拘捕自由人士的香港官员；1月18日川普总统签署行政命令，首次将中共国与朝鲜、伊朗、俄罗斯等并称为敌对国家；1月19日美国务院宣布中共对新疆维吾尔族的镇压构成了“种族灭绝和反人类罪”。可以想象得到，将中共定义为跨国家犯罪组织已经是随时可见的结果了。
 
-美国已经全面开战。在蓬佩奥国务卿揭示中共病毒源于武汉实验室的报告后，闫丽梦博士1月19日发布《呼吁世卫组织对穿山甲冠状病毒和RmYN02蝙蝠冠状病毒的调查》的要求书，呼吁独立核查与中共病毒起源有关的大规模学术丑闻，以及明确中共军方实验室在其中扮演的角色。全世界正义力量已经集结一起揭穿中共研究释放生物病毒武器攻击世界的真相，中共的丧钟已敲响，灭亡进入倒计时。
 
-参考链接：
+2021年1月19日Dr. Bo(博博士)发推称，两名在华盛顿特区执行第46届美国总统就职典礼警戒任务的国民警卫队士兵，因为和(支持川普)的右翼团体有联系，被从警卫队伍中除名。
 
-[https://indianexpress.com/article/world/china-already-decided-to-sanction-us-officials-over-taiwan-7152434/](https://indianexpress.com/article/world/china-already-decided-to-sanction-us-officials-over-taiwan-7152434/)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/VCDMD_DM1XIE0JL6IAR-1.png)
 
-+2
+美联社1月18日的报道佐证了Dr. Bo所发消息。该报道称：“由于担心内部攻击，联邦调查局正在审查华盛顿特区的警卫部队”。美联社指出，定期审查现役军人是否与极端主义有联系是军方的常规工作，但这次联邦调查局对国民自卫队的筛查是超常规举动。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/11-1.jpeg)
+
+点评：“政审”在无法无天的中共国曾经祸害了无数正直无辜的人，那是极权统治的产物。不幸的是这种“政审”正在自由之邦美国泛滥。成立于1636年，早于美军陆军建制，只忠诚于宪法的准军队国民警卫队，也不能幸免。这种乱象只是表面，美国內部的分裂和对立，本质上是美利坚的民族精神和宗教信仰被严重削弱的结果。
+
+班农先生多年前就发出召唤：为了阻止美国社会的腐化堕落和文明衰落，需要发动一场末日之战。中共与其美国的代理人，就是当前美国的大敌。这个敌人至今已经把美国乃至世界推到了灭亡的边缘。迎击中共，无疑是美国荡垢涤污、重新振兴国家的良机。
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
++1

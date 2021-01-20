@@ -1,31 +1,89 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 浅谈第三次世界大战
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/774418/)
+## 第一夫人梅拉尼娅在川普总统即将结束第一任期之际发布讲话（2021.01.18）
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/774487/)
 
-作者：康州盘古农场 –7蜜蜂7
+新闻简述：2021年1月18日，美国第一夫人梅拉尼娅·川普在川普总统即将结束第一任期的时候发布对国民的讲话。她感谢和鼓励美国人民之余，强调美国人要“着重于我们的团结。要胜过我们的分歧。始终选择爱而不是仇恨，选择和平而不是暴力，先选择他人而不是自私。”
+视频来源：[https://www.youtube.com/watch?v=WSEi-YBt-Uw](https://www.youtube.com/watch?v=WSEi-YBt-Uw)  
+**中英文翻译全文**
 
-审核：康州盘古农场—Truemanman
-![]()![](https://gnews.org/wp-content/uploads/2021/01/未标题-11.jpg)
-人类生活在地表安逸已久，忘却了“地壳”、“地幔”、“地核”，直到“地震”打破这种宁静。一战二战已封存于历史，核武的制衡却未能阻止第三次世界大战，我们早已深陷三战—超限战，它的形态突破了火战范畴，进入了混合战争模式，其战火蔓延到经济、贸易、金融、信息、网络、情报、媒体、健康、科技、教育、政治、宗教等全方位，但是正义终将战胜邪恶，我们一定赢。
+My fellow Americans,
 
-这场战争有三个主战场：中国、美国、梵蒂冈。让我们逐层下潜，看看这场战争的层次：
+我的美国同胞们
 
-第一层“地表”：CCP对内反人类对新疆西藏种族灭绝；反宗教破坏基督教会、拆除清真寺、捣毁寺庙；迫害少数民族、强迫信仰语言文化同化灭绝、强制破坏婚姻饮食等民族习惯；强制镇压香港民主运动；全民马列洗脑；对外欲盖弥彰的生物武器病毒计划，3F、BGY美国渗透计划，一带一路人类命运共同体计划。
+It has been the greatest honor of my life to serve as First Lady of the United States. I have been inspired by incredible Americans across our country who lift up our communities through their kindness and courage, goodness and grace.
 
-第二层“地壳”：世界上有绝对实力的利益集团和组织控制的沼泽地，孵化了深层政府和深层教会，推选其代言人全面渗透并占据着各个国家机构和教会的重要位置，为实现世界新秩序和大重启。很多手段被包装成正义和政治正确，如用“气候变暖”这种无法短期验证的伪科学打造地球环保国际公约；用政治正确绑架各国宪法，意图控制各国碳排放和资源分配从而控制各国产业链，集权世界经济；用病毒生物武器与假疫苗掌控各国人民的生杀大权；用高科技如5G技术AI剥夺人类隐私和人身安全；用社交媒体剥夺人类的言论自由；用大数据技术偷窃美国大选，意图彻底摧毁世界民主灯塔；颠覆梵蒂冈，掌控基督教千年财富与情报系统；摧毁人类的宗教信仰；剥夺人类的自由民主法制，将人类带进万丈深渊。
+担任美国第一夫人是我一生中最大的荣幸。我受到我们全国卓越的美国人们的激励，他们通过他们的善良和勇气、善和恩典鼓舞了我们的社区。
 
-第三层“地幔”：上述第二层的一部分具有核心控制力的人所追求的不是物质世界，而是为了兑现其灵魂上的献祭-撒旦崇拜，如光明会。最终意图将控制权交给撒旦的人间代表伪基督旦扎里。
+The past four years have been unforgettable. As Donald and I conclude our time in the White House, I think of all the people I have taken home in my heart and their incredible stories of love, patriotism, and determination.
 
-第四层“地核”：背叛造物主的邪恶源头有精灵界恶魔代表-撒旦和人类中恶魔代表-伪基督旦扎里。
+过去的四年是令人难忘的。当唐纳德和我结束在白宫的时光时，我想到了我心中所有的人，以及他们关于爱、爱国情怀和毅力的不可思议的故事。
 
-第一层普通战友耳熟能详。第二层路德访谈开智了前排战友。第三四层对于有信仰者来说并不陌生。这场战争将打破第一二层的阴谋和重创第三层的势力。从信仰角度来看，世界还没有出现众多末日的大迹象。为了这场战争，七哥准备了三十年；路德访谈几年如一日的坚持；郝海东夫妇的挺身而出；班农、川普、彭佩奥、朱利安、尼纳瓦罗的日拱一卒；英雄科学家闫丽梦的生死度外；从博士军团到面具先生的辛勤付出。。。无数台前幕后的战友将七哥一个人的爆料革命发展到了今日的新中国联邦，它凝聚着世界上正义的力量将雷霆霹雳砸向邪恶的势力，完成着造物主给予的使命。因此第三次世界大战正义必胜，但人类也付出了千百万人生命的惨痛代价。
+I see the faces of brave young soldiers who have told me with pride in their eyes how much they love serving this country. To every service member and to our incredible military families: You are heroes, and you will always be in my thoughts and prayers. I think of all the members of law enforcement who greet us wherever we go. At every hour of every day, they stand guard to keep our communities safe, and we are forever in their debt.
 
-后记：
+我看到勇敢的年轻士兵的脸庞，他们自豪地告诉我，他们是多么热爱为这个国家服务。致每一位军人和我们不可思议的军人家庭：你们是英雄，你们将永远在我的思绪和祈祷中。我想到了无论我们走到哪里都向我们问好的所有执法人员。他们无时无刻不在守护着我们的社区安全，我们永远感激他们。
 
-撒旦的目的是诱导人类否定和背叛造物主从而和他一起受惩罚，诱导的方式与形式数不胜数，比如他可以炮制无神论，可以炮制多神崇拜，也可以在一神教里掺沙子，掺入拜人拜物拜己的以物配主思想破坏认主独一。这种无形的战争，从亚当夏娃就已经开始并伴随整个人类。如果有个跛脚独眼龙额头写着背叛者的怪胎，却展示着呼风唤雨起死回生的异能，有多少人能以生命的代价捍卫自己对造物主的信仰？我们不一定会遇上这惊恐万分的时刻，但是追求宇宙的起源、人生的价值、正确的信仰是每个人自我革命的旅程，一切已经开始。
+I have been moved by children I have visited in hospitals and foster care centers. Even as they fight difficult illnesses or face challenges, they bring such a joy to everyone they meet. I remember the mothers who have battled the disease of opioid addiction, and have overcome incredible hardships for love of their children. I have been inspired by the devoted caregivers for babies born with Neonatal Abstinence Syndrome, and communities that give these children the support and care they need to grow. When I think about these meaningful experiences, I am humbled to have had the opportunity to represent a nation with such kind and generous people.
 
-【本文章仅代表作者观点】
+我曾在医院和寄养中心探望过的孩子们让我感动。即使在他们与顽固的疾病作斗争或面临挑战时，他们也给他们遇到的每个人带来了快乐。我记得那些与鸦片药物成瘾作斗争的母亲们，为了爱自己的孩子而克服了难以置信的困难。我一直受到新生儿戒断综合征婴儿的悉心照顾者，以及给予这些孩子成长所需支持和照顾的社区的鼓舞。当我想到这些有意义的经历时，我很荣幸有机会代表一个拥有如此善良和慷慨人民的国家。
 
-+4
+As the world continues to confront the COVID-19 pandemic, I thank all the nurses, doctors, healthcare professionals, manufacturing workers, truck drivers, and so many others who are working to save lives. We grieve for the families who have lost a loved one due to the pandemic. Every life is precious, and I ask all Americans to use caution and common sense to protect the vulnerable as millions of vaccines are now being delivered.
+
+当世界继续面对新冠疫情时，我感谢所有的护士、医生、医护人员、制造业工人、卡车司机以及许多其他致力于拯救生命的人。我们为因这场疫情而失去亲人的家庭感到悲痛。每一个生命都是宝贵的，我请求所有美国人在提供数百万疫苗时，请谨慎行事，用常识来保护高危群体。
+
+In the midst of this hardship, we have seen the best of America shine through. Students have made cards and delivered groceries to our senior citizens. Teachers have worked twice as hard to keep our children learning. Families have come together to provide meals, supplies, comfort and friendship to those in need.
+
+在这样的艰难困苦中，我们看到了美国最好的一面得以彰显。学生们为我们的老年人制作了祝福卡片并为他们送食品。为了让我们的孩子继续学业，老师们付出了加倍的努力。各个家庭齐心协力，为需要帮助的人提供饭菜、物资、安慰和友谊。
+
+Be passionate in everything you do but always remember that violence is never the answer and will never be justified.
+
+做任何事情都要充满热情，但要永远记住，暴力永远不是答案，也永远不会是正当的。
+
+When I came to the White House, I reflected on the responsibility I have always felt as a mother to encourage, give strength, and teach values of kindness. It is our duty as adults and parents to ensure that children have the best opportunities to lead fulfilling and healthy lives. The passion for helping children succeed would drive my policy initiative as First Lady.
+
+当我来到白宫时，我反思了作为一个母亲一直感到的责任，即鼓励、给予力量和教导善良的价值观。作为成年人和父母，我们有责任确保儿童有最好的机会过上充实和健康的生活。帮助儿童取得成功的热情将推动我作为第一夫人的政策倡议。
+
+I launched Be Best to ensure that we as Americans are doing all we can to take care of the next generation. Be Best has concentrated on three pillars: well-being, online safety, and opioid abuse. In a few short years, I have raised awareness of how to keep children safe online; we have made incredible progress on our nation’s drug epidemic and how it impacts the lives of newborns and families, and we have given a voice to our most vulnerable children in the foster care system.
+
+我发起了Be Best计划，以确保我们美国人正在尽我们所能照顾下一代。Be Best关注于三大核心：健康、上网安全和鸦片类药物滥用。在短短几年中，我提高了人们对如何保护儿童上网安全的认识；我们在我国毒品流行及其如何影响新生儿和家庭生活方面取得了令人难以置信的进展，我们为寄养系统中最脆弱的儿童发了声。
+
+Internationally, Be Best has evolved into a platform that encourages world leaders to discuss issues impacting the lives of children and allows them to share solutions. It has been an honor to represent the American people abroad. I treasure each of my experiences and the inspiring people I have met along the way.
+
+在国际上，Be Best已发展成为一个平台，鼓励世界各国领导人讨论影响儿童生活的问题，并允许他们分享解决方案。能够在国外代表美国人民，是我的荣幸。我很珍惜我的每一次经历和我一路走来遇到的鼓舞人心的人。
+
+As I say farewell to my role as First Lady, it is my sincere hope that every American will do their part to teach our children what it means to Be Best. I encourage parents to educate your children about the courageous and selfless heroes who worked and sacrificed to make this country the land of the free. And to lead by example and care for others in your community.
+
+当我告别第一夫人的角色时，我真诚地希望，每个美国人都将尽自己的一份力量，向我们的孩子传授什么是Be Best。我请各位家长教育你们的孩子，让他们了解那些勇敢和无私的英雄们，他们为了使这个国家成为自由的国度而做出的努力和牺牲。并以身作则，关心社区中的其他人。
+
+The promise of this nation belongs to all of us. Do not lose sight of your integrity and values. Use every opportunity to show consideration for another person and build good habits into your daily lives.
+
+这个国家的承诺属于我们所有人。不要忽视自己的诚信和价值观。利用一切机会为他人着想，并在日常生活中养成良好的习惯。
+
+In all circumstances, I ask every American to be an ambassador of Be Best. To focus on what unites us. To rise above what divides us. To always choose love over hatred, peace over violence, and others before yourself.
+
+在任何情况下，我都请求每个美国人成为Be Best的使者。着重于我们的团结。要胜过我们的分歧。始终选择爱而不是仇恨，选择和平而不是暴力，先选择他人而不是自私。
+
+Together, as one national family, we can continue to be the light of hope for future generations and carry on America’s legacy of raising our nation to greater heights through our spirit of courage, goodness and faith.
+
+我们作为一个国家的大家庭，可以继续成为子孙后代的希望之光，并继承美国的传统，通过我们的勇气、善良和信仰精神，将我们的国家提升到更高的高度。
+
+No words can express the depth of my gratitude for the privilege of having served as your First Lady. To all the people of this country: You will be in my heart forever. Thank you. God bless you, and God bless the United States of America.
+
+对于有幸担任你们的第一夫人，我的感激之情无以言表。致这个国家所有的人民：你们将永远在我心中。谢谢。上帝保佑你，上帝保佑美利坚合众国。
+
+[阅读英文全文](https://www.whitehouse.gov/briefings-statements/farewell-message-first-lady-melania-trump/)
+
+翻译:【Dlrow】校对:【rainbow】字幕:【相机过热啊】编辑:【Isaiah4031】
+
+喜马拉雅玫瑰园出品
+
+以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。
+
+
+
+> [BE BEST – First Lady Melania Trump’s Initiative – Comes to a Beautiful Close](https://gnews.org/763672/)
+
+
+
+0

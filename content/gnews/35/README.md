@@ -1,83 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加州紧急停用一批MODERNA疫苗
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/773573/)
+## 超级重磅：国务卿关于新疆暴行的决定（原文）
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/773699/)
 
-新闻来源：zerohedge《零对冲》； 作者：Tyler Durden 泰勒-德登； 发布时间：2021年1月18日
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-翻译/简评：clau；校对/审核：freedust；Page：拱卒
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/iu1MZ40OG9-1.jpg)thenation.com
+新闻声明
 
-[!\[\]()!\[\](https://spark.adobe.com/page/g7Leg7iJea7TV/images/d52a5d9e-14ca-459f-9c4b-39a4cfd6e2ac.jpg?asset_id=f5b39cd8-c490-47ef-94d5-f1aac631e517&amp;img_etag=%229ba8433271d2e6eee28b69f999e72f9d%22&amp;size=1024)](https://spark.adobe.com/page/g7Leg7iJea7TV/images/d52a5d9e-14ca-459f-9c4b-39a4cfd6e2ac.jpg?asset_id=f5b39cd8-c490-47ef-94d5-f1aac631e517&amp;img_etag=%229ba8433271d2e6eee28b69f999e72f9d%22&amp;size=1024)
+迈克尔·蓬佩奥，国务卿
 
-**简评：**
+2021年1月19日
 
-加州的卫生部门和专家下令停止了一批造成“异常大量”不良反应的莫德纳（Moderna）疫苗的接种。截至周一上午，加州已确认近3百万人感染CCP病毒。卫生官员们激进的扩大了疫苗接种资格指南的范围，让更多的老年人能够接种疫苗，寄希望用疫苗来减少感染人数。然而莫德纳（Moderna）的这批疫苗却在一个接种诊所导致了更多的不良反应，不得不让相关监管部门（CDC和FDA）对该批次的疫苗和所有相关医疗数据进行审查。。
+美利坚合众国领导世界追究最令人发指的、侵犯人权行为肇事者的责任，从纽伦堡审判，到1948年《灭绝种族公约》的制定，再到宣布伊斯兰国最近对伊拉克和叙利亚的亚兹迪人、基督教徒和其他宗教少数民族进行的种族灭绝，美国人向那些被邪恶压制的人发出了声音，与那些为真理、法治和正义呐喊而活着的人站在一起。我们这样做不是因为任何国际法庭、多边机构或（引起）国内政治关注强迫而采取的行动，我们这样做是因为它是正义的。
 
-大量不良反应的发生既是偶然也是必然，因为郭文贵先生，英雄科学家等很多我们爆料革命的战友们，一直都在网上不遗余力地呼吁，不要接种CCP病毒疫苗。目前不管哪个国家，不管什么机制的疫苗都不可靠，原因很简单，CCP病毒的来源并没有调查清楚。在CCP没有向全世界彻底坦白病毒真相之前，任何基于不完整或不真实信息研发出来的疫苗只会造成更多的次生灾难。如何才能解决CCP病毒灾难，只有一个办法，Take Down the CCP!
+在过去的四年里，本届政府揭露了中国共产党的性质，并称之为：通过洗脑和暴力对长期饱受苦难的中国人民进行马列主义统治的政权。我们特别注意维吾尔族人民在中国共产党（统治下的）遭遇，维吾尔族是一个穆斯林少数民族，主要居住在中国西部的新疆维吾尔自治区。尽管中国共产党一直对所有有信仰的人都表现出强烈的敌意，但我们越来越警惕地看到，中国共产党对维吾尔族和其他少数民族和宗教群体的镇压越来越严重。
 
-**原文翻译：**
+我们对中共国在新疆行动的详尽记录证实，至少自2017年3月以来，地方当局对维吾尔族穆斯林和其他少数民族和宗教群体成员（包括哈萨克人和吉尔吉斯人）长达数十年的镇压行动急剧升级。
 
-## 加利福尼亚停止接种一批由莫德纳（Moderna）生产的“异常大量”不良反应的
+他们系统地设计出了毫无道德的、大规模的政策，并实施和滥用，将维吾尔族作为一个独特的群体和民族来歧视和监视，限制他们旅行、移民和上学的自由，并剥夺集会、言论和礼拜等其他基本人权。中共国当局对维吾尔族妇女实施强制绝育和堕胎，强迫她们嫁给非维吾尔族人，并将维吾尔族儿童与其家庭分离。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/g7Leg7iJea7TV/images/296acdbc-1b23-4d48-8f52-ec9e10811cfb.jpg?asset_id=adfc48c1-8336-474b-a7ef-78d10ddad752&amp;img_etag=%222c916a5b0c279c14c4cc1aa47494474d%22&amp;size=1024)](https://spark.adobe.com/page/g7Leg7iJea7TV/images/296acdbc-1b23-4d48-8f52-ec9e10811cfb.jpg?asset_id=adfc48c1-8336-474b-a7ef-78d10ddad752&amp;img_etag=%222c916a5b0c279c14c4cc1aa47494474d%22&amp;size=1024)
+中共的官员拒绝国际观察员畅通无阻地进入新疆，并指责那些对有关地区恶行的真实报道，相反，他们编造了一些关于快乐的维吾尔人参与教育、反恐、赋予妇女权力和扶贫项目的假象故事。与此同时，他们向自己的人民传递着更加黑暗的信息，把维吾尔人描绘成“恶性肿瘤”，把他们的信仰比作“传染性瘟疫”，并告诫党的忠诚者，实施毁灭性打击，告诉他们“你不能一根接一根地把隐藏在地里庄稼中的杂草拔掉，你需要喷洒用化学物质杀死他们。”
 
-据今日俄罗斯电视台报道，随着世界各地因COVID-19疫苗导致的疑似死亡人数上升，美国和挪威已经有数十人死亡的相关报道，加州卫生官员要求该州的医疗机构立即停止接种一批莫德纳（Moderna） COVID-19疫苗，因为 “异常多的 “不良反应与此批疫苗有关。
+自从盟军揭露了纳粹集中营的恐怖事件后，“永不再来”这句话就成了文明世界反对这些恐怖事件的口号。不能仅仅因为过去我们没有见过的暴行方式，就不视作为暴行。今天，我据此作出以下决定：
 
-根据该州流行病学家艾莉卡·S·潘（Erica S. Pan）博士和加州公共卫生局的命令，该批次疫苗在被认真调查前应被搁置。问题批次为莫德纳（Moderna） Lot 041L20A。
+1. 在仔细审查现有事实后，我确定，至少自2017年3月以来，中华人民共和国在中国共产党的领导和控制下，在新疆（发生了）对以穆斯林为主的维吾尔族和其他少数民族和宗教成员犯下了危害人类罪。这些罪行仍在继续，包括：任意监禁或以其他方式严重剥夺100多万平民的人身自由、强迫绝育、对大量被任意拘留者施加酷刑、强迫劳动以及对宗教或信仰自由、言论自由施加严厉限制，以及行动自由。第二次世界大战结束时，纽伦堡法庭以危害人类罪起诉了罪犯，同样的罪行也发生在了新疆。
 
+2. 此外，在仔细审查现有事实后，我确定中华人民共和国在中国共产党的领导和控制下，对新疆以穆斯林为主的维吾尔族和其他少数民族和宗教群体犯下种族灭绝罪。我相信这场种族灭绝正在进行，我们正在目睹中国共产党和国家有计划地试图消灭维吾尔人。世界上第二大经济、军事和政治强国的管理当局已经明确表示，他们正在强行同化并最终消灭一个脆弱的少数民族和宗教群体，即使他们同时宣称自己的国家是全球领袖，并试图以自己的形象重塑国际体系。
 
+美国呼吁中共和国立即释放所有被任意拘留的人，废除拘留所、拘留营、软禁和强迫劳动制度；停止强迫人口控制措施，包括强迫绝育、强迫堕胎、强迫节育和将儿童逐出家庭；结束拘留场所的一切酷刑和虐待；结束对新疆和中（共）国其他地区维吾尔族和其他宗教及少数民族成员的迫害，给予维吾尔族和其他受迫害少数民族旅行和移民的自由。
 
-> [#BREAKING](https://twitter.com/hashtag/BREAKING?src=hash&amp;ref_src=twsrc%5Etfw) from [@CAPublicHealth](https://twitter.com/CAPublicHealth?ref_src=twsrc%5Etfw) : Vaccine providers have been recommended to pause the administration of a specific lot of the [#Moderna](https://twitter.com/hashtag/Moderna?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) vaccine due to possible allergic reactions that are under investigation. [pic.twitter.com/cQCZeqm3ye](https://t.co/cQCZeqm3ye)
-> — Shawna Khalafi (@ShawnaKhalafiTV) [January 18, 2021](https://twitter.com/ShawnaKhalafiTV/status/1351023938130874370?ref_src=twsrc%5Etfw)
+我们还呼吁所有适当的多边和相关司法机构与美国一道努力，促进追究这些施暴者的责任。我已指示美国国务院继续调查和收集有关新疆正在发生的暴行的有关资料，并在法律允许的范围内，向有关当局和国际社会提供这些证据。美国方面已经表态并采取行动，对中共高层领导人和资助整个新疆镇压架构的国营企业实施一系列制裁。
 
+美国已经尽了最大的努力来揭示共产党和习近平希望通过混淆、宣传和胁迫来隐藏的东西，北京在新疆的暴行是对维吾尔人、中国人民和世界各地文明人的极端侮辱，我们不会保持沉默。如果中国共产党被允许对自己的人民犯下种族灭绝罪和反人类罪，想象一下，在不远的将来，中国共产党将有勇气对自由世界做些什么。
 
+原文链接：https://www.state.gov/determination-of-the-secretary-of-state-on-atrocities-in-xinjiang/
 
-给新冠疫苗供应商们的信息：
-
-“本周，Moderna一个特定批次的疫苗在一个社区疫苗接种诊所分发后，收到了比平常数量更多的不良反应事件报告。在24小时内，接近10个人需要医疗护理” （信息来源：pic.twitter.com/RsaIzd1Gap）
-
-– （信息来源的推特账号）-Shawna Khalafi（@ShawnaKhalafiTV）2021年1月18日。
-
-**这批疫苗中的33万剂已分发给全州287家供应商。**
-
-这批货物在1月5日至12日之间到达加州。
-
-**所有的反馈似乎都只与一个曾分发该批次的社区诊所有关。**据报道，该诊所在发生一连串不良反应后关闭了几个小时。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/g7Leg7iJea7TV/images/a1395469-181c-4163-942b-a04419e70e6d.jpg?asset_id=9cc5e4fa-a0eb-42d5-90e7-321d34e7b03d&amp;img_etag=%220c0b27f3e74dc8c3baf5a8b3aab1135a%22&amp;size=1024)](https://spark.adobe.com/page/g7Leg7iJea7TV/images/a1395469-181c-4163-942b-a04419e70e6d.jpg?asset_id=9cc5e4fa-a0eb-42d5-90e7-321d34e7b03d&amp;img_etag=%220c0b27f3e74dc8c3baf5a8b3aab1135a%22&amp;size=1024)
-
-截至周一上午，加州已确认近3百万新冠病例，
-
-加州的新冠病例相关数字：
-
-🔹 迄今已确认的病例：2,942,475；
-
-🔹 注：数字可能不代表真实的逐日变化，因为测试结果的报告可能会延迟。
-
-更多信息可见 https://t.co/TLLUGx7imH。pic.twitter.com/bYSD41PQRL
-
-– 加州公共卫生（@CAPublicHealth）2021年1月18日
-
-**官员们周三宣布了大幅扩大疫苗接种资格指南的范围，让所有65岁及以上的居民更快获得接种COVID-19疫苗的资格。**至于数字方面，来自同一批次的33万多剂莫德纳（Moderna）疫苗已被分发到了全州287家医疗机构，但这是卫生当局首次收到详细说明与该批次疫苗相关的不良反应报告。
-
-虽然表示 “与Moderna疫苗相关的不良反应数据较少”，但该州流行病学家坚持认为，疫苗引发严重副作用的情况还是很罕见的。莫德纳（Moderna），美国疾病预防控制中心（CDC）和美国食品和药物管理局（FDA）正在审查该批次疫苗和所有相关医疗数据。
-
-不仅在美国，在欧洲和世界其他地方，COVID-19疫苗也曾与其他急重病症相关联。
-
-在12月，波士顿的一名医生表示，他在接种了莫德纳（Moderna）的疫苗后，遭受了他所经历过的最严重的过敏反应，并形容此事件有可能存在生命危险，而迈阿密的一名医生确实因此疫苗的不良反应而死亡。
-
-与辉瑞（Pfizer）-德国生物新技术公司（BioNTech）疫苗有关的类似案例已被提交给美国疾病预防控制中心（CDC）和美国食品和药物管理局（FDA）审查。据其他报道称，香港政府指定的疫苗咨询小组正在向挪威和德国政府寻求更多关于老年人接种疫苗后死亡的报告数据。
-
-🔗[原文链接](https://www.zerohedge.com/covid-19/california-halts-vaccinations-moderna-batch-linked-unusually-high-number-adverse-reactions)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【[英国伦敦喜庄园编辑部](https://spark.adobe.com/page/g7Leg7iJea7TV/)】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/g7Leg7iJea7TV/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/g7Leg7iJea7TV/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-0
++9

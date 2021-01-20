@@ -1,49 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 你准备好大重启了吗？
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/774456/)
+## 突发：实名举报河南省济源市市委书记打人的尚小娟被处理了！
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/772694/)
 
-作者：纽约香草山香港部 羟氯喹
+作者：赫莲；校对：宁缺；审核：海阔天空；Page：小雨
 
+[!\[\]()!\[\](https://spark.adobe.com/page/kZuA2Z5HthHMm/images/597edc6f-365f-4752-8e2d-6cacf6cc61a9.jpg?asset_id=b17dcbda-d86c-4b43-84f1-04ab22d119d2&amp;img_etag=%22dbec2c70e23f4770b46de9c34f4aea77%22&amp;size=3413)](https://spark.adobe.com/page/kZuA2Z5HthHMm/images/597edc6f-365f-4752-8e2d-6cacf6cc61a9.jpg?asset_id=b17dcbda-d86c-4b43-84f1-04ab22d119d2&amp;img_etag=%22dbec2c70e23f4770b46de9c34f4aea77%22&amp;size=1024)
 
+1月16日，新浪微博用户“济源市尚娟”发文，实名公开举报河南济源市委书记张战伟。微博网友“济源市尚娟”自称是济源市政府秘书长翟伟栋的妻子。她在实名举报的文章中说，2020年11月11日早晨，翟伟栋与其他市领导在机关餐厅角落里吃早餐时，被济源市委书记张战伟无故掌掴。至1月17日深夜、1月18日凌晨，济源市政府秘书科相关工作人员两次回应记者采访时均称，不方便回应此事，一切以宣传部门的通报为准。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+这件事，一石掀起千层浪，迅速上了头条新闻 ，除了微博上自媒体纷纷表态声援外，各大党媒也均做了报道，甚至连新华社要加入了声讨张占伟的行列。
 
+[!\[\]()!\[\](https://spark.adobe.com/page/kZuA2Z5HthHMm/images/33be8fbb-1b88-4835-97fc-2c36a7a2270d.png?asset_id=0edf6578-e3dc-41fd-979a-e0eaaf968efe&amp;img_etag=%22bd6e1e192305dc08acdd4867473d6782%22&amp;size=2560)](https://spark.adobe.com/page/kZuA2Z5HthHMm/images/33be8fbb-1b88-4835-97fc-2c36a7a2270d.png?asset_id=0edf6578-e3dc-41fd-979a-e0eaaf968efe&amp;img_etag=%22bd6e1e192305dc08acdd4867473d6782%22&amp;size=1024)
 
+到了当天的晚上17点多，事情突然急转而下。一份抬头为“中共豫港（济源）焦化集团有限公司委员会”的内部文件显示，“针对公司党委委员、工会主席尚小娟同志在相关部门已经接到有关情况反映后，近期仍以检举控告为由在网络上发布有关济源示范区主要领导负面影响的言论，公司党委认为其行为造成极大的不良影响，损坏了济源示范区整体对外形象，经公司党委研究，决定：
 
-第46届美国总统上任之日即将来临，经历了选举舞弊风波之后，美国权力交接将何去何从？这场可能是本世纪政坛最引人注目的政治角逐将会对未来产生什么影响？以下是根据爆料革命资料汇总做出的粗略分析。
+停止尚小娟党内外所有职务，停职期间所有工资，补助暂停发放，待相关部门调查核实并做出明确结论后再做进一步处理。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/12-5.png)
+[!\[\]()!\[\](https://spark.adobe.com/page/kZuA2Z5HthHMm/images/abc8f7af-5009-4afa-940f-3e544346c2c1.jpg?asset_id=91009cc1-fff1-4a9e-bce3-c8012242b9ae&amp;img_etag=%22cb6bff1ea1838899dce70425a76edde0%22&amp;size=2560)](https://spark.adobe.com/page/kZuA2Z5HthHMm/images/abc8f7af-5009-4afa-940f-3e544346c2c1.jpg?asset_id=91009cc1-fff1-4a9e-bce3-c8012242b9ae&amp;img_etag=%22cb6bff1ea1838899dce70425a76edde0%22&amp;size=1024)
 
-最终结果一：拜登宣誓就职后，整个舞弊盗取国家权力的过程完整结束。川普动用 RICO 法案将拜登集团一网成擒，接下来会面对黑命贵和安提法等极左势力的各种骚乱，同时一定会面临金融市场的集体崩盘，会产生巨大的社会问题。平息后，必定会对中共病毒追责，将中共定义为犯罪和敌对势力。该结果为爆料革命所预见，过程中全世界经济自由落体式崩溃，大量次生灾害发生，最后会大破大立。对于川普本人来说，这种结局只许胜利，成为林肯式的伟大人物。否则就是毁誉参半：虽然是出于正义，但短时间内对世界伤害会极大。但如果一旦川普本人确认卸任后，若一定会遭到来自共产联盟的猎杀，那不排除只好被迫选此选项，先下手为强。
+1月19日，有记者在第一时间联系到豫港（济源）焦化集团有限公司，其办公室一工作人员表示，尚小娟确实是其公司工会主席，该工作人员表示这是公司领导的事情，不方便对外透露。
 
-第二种结果：拜登如愿成为第46届美国总统，得到总统权力，而川普不承认败选。拜登在接下来的任期内将很难顺利施政，又或者在施政过程中遭到种种关于通敌的弹劾(这里如果川普可以在离任前根据国家情报将中共定义成犯罪集团甚至敌对国家，则可以很好地限制拜登)。如强行推动社会主义性质的独裁政策，将遭遇美国人民的极度不满，甚至会引发人民发动内战，推翻政府。这次大选已经反映了真实的民意：大部分人民强烈抵制社会主义意识形态，美国人民还有拥枪权。虽然最后也会产生经济崩溃和巨大次生灾害，但责任却不在川普，而在拜登！这样一来，或者会倒逼拜登去想办法解决中共的问题，甚至最后来个黑吃黑。又或者换种说法，这是给左派民主党一个自我救赎的机会——这种结果可以最大程度保留美国现行的政治格局。
+🔗[资源链接](https://www.sohu.com/a/445401276_120075260)
 
-基本上只有以上两种结果。之所以作此判断，和爆料革命文贵先生透露的信息关系紧密。先假设地球或者美国有一个权力董事会(也可以称为沼泽地)，现在只不过是董事会在选CEO而已——川普或者拜登。作为保守派代表的川普，一定不会拍心口保证说，自己可以百分百解决问题。而反过来，以假治国的左派一定会给董事会描绘出一副美好蓝图——在承诺上一定会远胜川普。这也能说明，为何这次舞弊在如此明显的情况下，拜登等人依然可以平安无事。
+[!\[\]()!\[\](https://spark.adobe.com/page/kZuA2Z5HthHMm/images/fe0f803b-e6a8-4b23-9683-5da0625d391c.jpg?asset_id=aae7c3a8-8b53-4901-952c-6880a982180a&amp;img_etag=%2246b1aa9cc79e42ae441eb0e450494ee1%22&amp;size=8192)](https://spark.adobe.com/page/kZuA2Z5HthHMm/images/fe0f803b-e6a8-4b23-9683-5da0625d391c.jpg?asset_id=aae7c3a8-8b53-4901-952c-6880a982180a&amp;img_etag=%2246b1aa9cc79e42ae441eb0e450494ee1%22&amp;size=1024)
 
-对于权力董事会来说，世界在第二次世界大战之后相对和平的发展了七十年：在积累了惊人的财富的同时，也积累了巨大的社会矛盾，各种利益冲突一触即发。就像玩过游戏《模拟城市》的人都知道，当一个城市在发展到相当规模的时候，各种问题就会接踵而来，让人应接不暇，最后唯一想做的，就是全部推倒重来。而这种推倒重来，对于游戏主宰者本身来说，是不会伤筋动骨的。但结果就如文贵先生所说，人类历史上在历次的大洗牌之后，只有少部分被主宰者可以幸存下来。这次大洗牌之后，必定也会彻底改变目前世界的政治体制和格局。
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-总结以上论述，目的不是要让战友们紧张或者灰心。相反，在这种大重启或者是大洗牌后，拥有真正强大实力的人就能存活下来。爆料革命的实力强大，就能反过来抵消邪恶左派的伤害，最后更可以在大重启之后占有一席之地，迎接美好将来！我们要做的，正是紧紧和新中国联邦这个集体团结在一起，凝聚强大的实力和战斗力，传播真相，传播信仰。通过更高的科技技术，突破主流媒体的言论封锁，让更多人加入壮大灭共的队伍！
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-兄弟姐妹们，你们健身了吗？你们传播CCP病毒真相和香港危机真相了吗？一切只是刚刚开始！
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-文章仅代表作者个人观点
+[编辑：【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/kZuA2Z5HthHMm/)
 
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
+[!\[\]()!\[\](https://spark.adobe.com/page/kZuA2Z5HthHMm/images/dc681f35-c8bd-499c-aca2-4bd52e0f4974.jpg?asset_id=8e1a7c01-d840-4a81-aac9-9e5a3b94526f&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/kZuA2Z5HthHMm/images/dc681f35-c8bd-499c-aca2-4bd52e0f4974.jpg?asset_id=8e1a7c01-d840-4a81-aac9-9e5a3b94526f&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0
