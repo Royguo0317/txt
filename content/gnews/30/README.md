@@ -1,23 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 01/19/2021 Epidemic Chaos Inside the CCP (2)
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/772805/)
+## 喀秋莎新闻参考- 2021年1月18日 (星期一)
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/773770/)
 
-Video 1: Dictation: CharlesS; Translation: yyshere, CharlesS; PR: CharlesS; Subtitle: Yunling
+俄罗斯莫斯科喀秋莎农场 土星
 
-Video 2: Dictation: yyshere; Translation: yyshere; PR: CharlesS; Subtitle: Tachikma
+编辑上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/图片2-6.jpg)
+一、新中国联邦新闻
 
-### On January 14, 2021, a sudden explosion occurred in a factory located in Tianjin Free Trade Zone
+1. “路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=tIGuHGbLF3U)、[晚间](https://www.youtube.com/watch?v=hBmyHJqRf-c)）:
 
-### On January 3rd, 2021, staff canteen of the hospital reportedly exploded “no casualties” in Inner Mongolia, China.
+Ⅰ. 习近平今日疑似现身。新华社1月18日报道，习近平在北京考察冬奥会、冬残奥会筹办工作。路德分析相关新闻有很大造假可能。
 
-- [Click here to read more articles in G-News](https://gnews.org/author/himalaya_hawk/)
-- [Click to watch the exciting video on G-TV](https://gtv.org/user/5ee680a45bd6f123dd104807)
+Ⅱ. 1月18日，中共多家媒体撰文攻击美国国务卿彭佩奥。川普政府制定的制裁政策已准确打击到中共要害。中共的激烈反应也反映还会有更重磅事件发生。
 
+Ⅲ. 川普总统签署评估中共国制造无人机带来的任何安全风险的行政令，首次定义中共国为敌对国家。该定义在此后很长时间将无法推翻，同时代表着基辛格主义彻底完结。
 
-Edited by：【Himalaya London Club UK】
+2. 闫丽梦博士1月19日发布《呼吁世卫组织对穿山甲冠状病毒和RmYN02蝙蝠冠状病毒的调查》的要求书，呼吁独立核查与中共病毒起源有关的大规模学术丑闻，以及明确中共军方实验室在其中扮演的角色。（[文件](https://zenodo.org/record/4448499#.YAbrOfkzbIW)）
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/HHS_QRCode_V2-2-1.jpg)
+3. 世界卫生组织1月18日召开执行委员会议，美国、欧盟及澳洲均强调赴中共国病毒溯源非常重要，美国更公开指只有中共交出资讯才能成功，但中共随后发言吁”停止科学之外的政治施压”。
+
+4. 去年2月在《柳叶刀》杂志发表文章、谴责中共病毒非自然起源是“阴谋论”的彼得·达萨克博士周五通过发言人承认，他当时发表声明是为了保护中共科学家免受批评。
+
+5. 中共国家统计局1月18日公布了2020年经济数据，GDP同比增长2.3%，与中共通过外媒提前透露的数据相同。但业内人士已经指出中共数据存在许多矛盾之处。同时该数据出版之后，亲中共媒体开始宣传大陆经济加速恢复的错误信息。
+
+6. 英国政府1月17日呼吁中共国允许联合国人权理事会进入新疆勘查。英国外长拉布在接受英国广播公司采访时说，英国不应该与侵犯人权的国家进行自由贸易。
+
+7. 英国媒体1月15日独家获得的美国白宫“管理和预算办公室”的报告，川普总统在过去一年内将对中共国的援助削减了52%。白宫公布的这份报告显示，美国对华援助的金额从2019财年的6200万美元，减少至2020财年的3000万美元。
+
+8. 川普总统周一（1月18日）签署一项行政命令（[文件](https://www.whitehouse.gov/presidential-actions/executive-order-protecting-united-states-certain-unmanned-aircraft-systems/)），指示美国政府机构评估中共国制造无人机带来的任何安全风险，并优先将这些风险清除。在该行政令的注释中，首次将中共国与朝鲜、伊朗、俄罗斯等并称为敌对国家。
+
+二、世界新闻
+
+1. 朱利安尼先生1月17日晚间接受媒体询问时表示，并不会参与川普总统弹劾案辩护。在1月6日前，朱利安尼先生曾在一场集会上为川普总统演说，故在受访时表示，”因为先前在集会上发表演说，我因此变成了证人，无法参与参议院审理弹劾案时的辩护。”
+
+2. 1月18日，美国白宫发出总统行政令说，川普政府取消大多数从欧洲和巴西抵达的非美国公民赴美旅行禁令，从1月26日起生效；但仍维持对中共国和伊朗的旅行禁令。
+
+3. 继波兰之后，匈牙利司法部长朱迪特·瓦尔加1月18日表示，针对社交媒体公司“系统性地滥用”言论自由的问题，应该对他们进行制裁。瓦尔加认为，这种行为属于“不公平的商业行为”。
+
+4. 欧盟在1月19容将公布加强欧元国际作用的计划，寻求削弱美元的主导地位，并使欧盟免受包括美国制裁在内的金融风险影响。该计划草案称：“促进可持续金融是将欧盟金融市场发展为全球‘绿色金融’中心，从而支持欧元作为可持续金融产品的默认货币一个机会。”该计划和中共货币战略具有相同的诉求，共同威胁美元的货币地位。
+
+5. 有专家1月18日表示，在南非境内首度发现的中共病毒变异病毒株传染力比先前几种病毒株更强，不过并没有证据显示南非变异病毒更为致命。
 
 0

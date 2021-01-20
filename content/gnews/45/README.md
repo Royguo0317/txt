@@ -1,24 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新西兰下周一起要求多数国家旅客提供阴性证明
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/772502/)
+## 高达1.9万亿美元的拜登支出对通货膨胀的影响是什么？
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/773340/)
 
-- 编辑：Victor Torres
+![]()![](https://gnews.org/wp-content/uploads/2021/01/636277035242086786-Inflation-1.jpg)https://www.tennessean.com/
+**时间**：** **2021年1月18日
 
+**发布者**：Tyler Durden 于 Zero Hedge
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+**作者**：Bill Blain 发布于Morning Porridge
 
-**西班牙2021年1月19日电/西喜社——**从其他大多数国家前往新西兰的旅客，从下周一开始，需要在登机前出示阴性中共病毒检测结果。
+https://morningporridge.com/the-morning-porridge/f/blain’s-morning-porridge-–-18-jan-2021-–-four-and-in
 
-新西兰最近对来自美国和英国的旅行者实施测试要求，当局周二表示，它正在扩展到澳大利亚和少数太平洋岛国之外的所有其他国家。从南极洲返回的旅客也被豁免。
+原文节选段落翻译：
 
-中共病毒应对部长克里斯·希宾斯(Chris Hipkins)表示，新西兰拥有世界上最严格的边境措施。
+在市场方面，有诸多需要考虑之处：
 
-目前新西兰没有病毒的社区传播，所有已知的感染者都是在边境被隔离的旅行者中。大多数旅行者在抵达后都要接受两周的检疫。
+高达1.9万亿美元的“拜登开销”对利率和通货膨胀的影响，以及因此殃及的债券市场（小幅波动），即使 The Squid 提高了其对美国经济增长的预期（《华尔街日报》调查：2021年美国经济增长将超过4%1）。
 
-**新闻来源：**[https://apnews.com/article/beijing-family-gatherings-coronavirus-pandemic-china-coronavirus-vaccine-f730dbb55f71e5412525eca5276ccebf](https://apnews.com/article/beijing-family-gatherings-coronavirus-pandemic-china-coronavirus-vaccine-f730dbb55f71e5412525eca5276ccebf)
+全球后疫情时期的经济复苏的可能性被由世界银行报道的疫情时期的经济损失所抵消，而这已在逐步形成一个只有犯罪和腐败能从中受益的的经济模式2。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/c4377124-f6e7-4a12-8997-76ba40b47e9c-6.jpg)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+还有新闻所称的由中国发布的2020年惊人的经济增长（《华尔街日报》：中国是唯一报告经济增长的主要经济体 3）肯定会进一步激怒上亿的人们，这些人仍在探求新冠病毒的起源，以及中国人貌似摆脱其困扰的方法。
+
+本周的头条新闻将以周三的总统就职典礼和暴力威胁为主。拜登的挑战是处理好所有投票给特朗普的7500万美国人，并说服这些民众们去相信他对于解决就业、机遇和滞后于日益发达的精英阶层等问题的真诚态度。我们待答复的问题是：他们会表现出任何倾听的迹象吗？拜登将如何在不破坏工会的情况下说服他们？
+
+今天早上，我本打算写关于波音25亿美元的延期起诉协议。依我拙见，这件事解释了企业治理中的所有错误，以及什么是我们为了改变这些而不得不做的。这篇文章很好地概括了：纽约时报——波音公司与美国在737 Max方面达成的25亿美元的和解4。
+
+我认为值得写一下为什么现在是时候考虑买进英国公司。
+
+信心就是一切：随着英国每天接种50万支疫苗，随着国家医疗服务体系（NHS）应对激增的新冠病毒病例，即使反对的呼声渐强，政府竟也开始显得不那么无能了。病毒可以变异并不断威胁我们，但它不会赢。
+
+我察觉到一种新的情绪正在英国发展。
+
+虽然痛苦依旧，许多人也承认他们的生活被搁置了，但面对新冠，有一种新的，名曰“尽你所能”（do-yer-worst）的态度广为盛行。
+
+我认为希望正在恢复。这是一种新型闪电战精神——英国可能没有很好地应对新冠病毒、脱欧、经济衰退、鲍里斯和其他任何恶神扔向我们的东西，但我们开始记住，我们仍然可以笑对这一切。
+
+帆船赛上的英国队突然倍受欢迎的现象背后蕴涵着一个道理。尽管早些时候他们被轻视了，但他们在证明一艘准备充分的船只终将获胜。他们表现出的奉献精神、团队合作精神、精湛的技术和有效的领导力至关重要。这些团队要素虽迟但到。
+
+对英国来说，在经济复苏之际和帆船比赛成功之后皆有经验可得。
+
+**评**：
+
+中共病毒的蔓延与美国选举的腐败不但殃及全球经济，且严重影响了全球人民的生存与心态。文章的后半部分的笔墨着重介绍了英国队在世界帆船赛上的厚积薄发，看似离题，实则暗示了英国在当前后疫情经济复苏期间稍为乐观的发展前景，以及潜在的投资机遇。
+
+原文链接：
+
+https://www.zerohedge.com/markets/blain-blue-monday-buying-british
+
+原文引用链接：
+
+1              https://www.wsj.com/articles/wsj-survey-u-s-economic-growth-will-exceed-4-in-2021-11610636401
+
+2              https://www.ft.com/content/74cdb0f1-02ed-408f-ad19-6a6c7408d637
+
+3              China is the only major economy to report Economic Growth
+
+4              https://www.nytimes.com/2021/01/07/business/boeing-settlement-justice-department.html
+
+翻译报道：木千
+
+温哥华圆成农场 – 2021/01/19
+
 0

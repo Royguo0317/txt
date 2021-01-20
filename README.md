@@ -14,141 +14,138 @@
 
 ---
 
-### [中国共产党不是美国朋友—蓬佩奥](/content/gnews/1/README.md)
+### [中共因在新疆犯下种族灭绝罪和危害人类罪而即将受到纽伦堡法庭的大审判](/content/gnews/1/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中国共产党不是美国朋友—蓬佩奥](/content/gnews/2/README.md)
  ` wenwu`
 
-### [《路德时评》邀请闫丽梦博士“纪念”“119节目”一周年](/content/gnews/2/README.md)
+### [《路德时评》邀请闫丽梦博士“纪念”“119节目”一周年](/content/gnews/3/README.md)
  ` 香柏树`
 
-### [突发：实名举报河南省济源市市委书记打人的尚小娟被处理了！](/content/gnews/3/README.md)
+### [突发：实名举报河南省济源市市委书记打人的尚小娟被处理了！](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [川普最新行政令杜绝非总统任命官员对联邦规则有最终决定权](/content/gnews/4/README.md)
+### [你准备好大重启了吗？](/content/gnews/5/README.md)
+ ` 纽约香草山农场`
+
+### [视频第一夫人梅拉尼娅在川普总统即将结束第一任期之际发布讲话（2021.01.18）](/content/gnews/6/README.md)
+ ` Himalaya Rose Garden Team`
+
+### [视频《路德社》新闻快讯（视频版） 2021/01/16 章家敦在Newsmax接受采访：WHO在中共国执行的调查并不会得出任何结果；美国正在挑战中共国，我们正在正确的道路上前进](/content/gnews/7/README.md)
+ ` 路德社`
+
+### [美国主要民兵组织向美国爱国者发出警告](/content/gnews/8/README.md)
+ ` GM126`
+
+### [福奇的功能增强试验知多少？](/content/gnews/9/README.md)
  ` Himalaya Australia`
 
-### [美国情报界已沦为渗透重灾区](/content/gnews/5/README.md)
- ` HimalayaRussia`
+### [浅谈第三次世界大战](/content/gnews/10/README.md)
+ ` 康州盘古喜马拉雅农场`
 
-### [【五月花评】美国女学生揭发母亲——人性的沦丧落地美国](/content/gnews/6/README.md)
- ` 波士顿五月花农场`
+### [美国表示，中共对维吾尔人的镇压是 “种族灭绝”](/content/gnews/11/README.md)
+ ` 康州盘古喜马拉雅农场`
 
-### [高达1.9万亿美元的拜登支出对通货膨胀的影响是什么？](/content/gnews/7/README.md)
- ` 温哥华圆成农场🇨🇦`
+### [美国称中共国对维吾尔人的镇压是 “种族灭绝”&#8212;-纽约时报](/content/gnews/12/README.md)
+ ` 纽约香草山农场`
 
-### [因副作用严重 加州停止接种一批Moderna中共病毒疫苗](/content/gnews/8/README.md)
+### [119成为中共的911](/content/gnews/13/README.md)
  ` gnewscanada`
 
-### [“一生中有过的最大荣誉”，梅拉尼娅·川普的告别演说](/content/gnews/9/README.md)
- ` HimalayaRussia`
+### [中共被定义为种族灭绝罪](/content/gnews/14/README.md)
+ ` 纽约香草山农场`
 
-### [蓬佩奥会成为第47任美国总统吗？](/content/gnews/10/README.md)
+### [视频美国大选终极之战: 1月20号美国总统就职仪式大直播!](/content/gnews/15/README.md)
  ` 秘密翻译组G-Translators`
 
-### [德国将把违反中共病毒疫情限制令者关入“拘留营”](/content/gnews/11/README.md)
- ` gnewscanada`
+### [视频【路德时评粤语快报】01.19：回顾路德社1.19一周年记](/content/gnews/16/README.md)
+ ` 喜馬拉雅大使館-粵語組`
 
-### [【2021/01/19】文贵先生盖特 3](/content/gnews/12/README.md)
+### [中共掩盖的种族灭绝行动](/content/gnews/17/README.md)
+ ` G-NEWS TAIWAN`
+
+### [2021年01月19日澳喜要闻（每日更新）](/content/gnews/18/README.md)
+ ` Himalaya Australia`
+
+### [美国认证！中国共产党在新疆的种族灭绝罪行](/content/gnews/19/README.md)
+ ` G-NEWS TAIWAN`
+
+### [【2021/01/19】文贵先生盖特 4](/content/gnews/20/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [李书福被踢出吉利法人代表《路德社》每日简报晚间版 2021.01.16–NewYork Time](/content/gnews/13/README.md)
- ` 路德社精选`
-
-### [美国国务院发布病毒来源报告《路德社》每日简报晚间版 2021.01.15–NewYork Time](/content/gnews/14/README.md)
- ` 路德社精选`
-
-### [习加速师只剩”回响“了《路德社》每日简报早间版 2021.01.17–NewYork Time](/content/gnews/15/README.md)
- ` 路德社精选`
-
-### [两千名国民警卫队员在17日夜间被任命为美国法警](/content/gnews/16/README.md)
+### [119一周年回望百步亭——致我苦难的同胞](/content/gnews/21/README.md)
  ` gnewscanada`
 
-### [郭先生0117(十四): 对七哥安危有点常识,共匪已灭很快会有结果](/content/gnews/17/README.md)
- ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
+### [冲破左派封锁：乔什-霍利新书《大科技暴政》终将出版](/content/gnews/22/README.md)
+ ` gnewscanada`
 
-### [2020年中国人均收入比2010年翻一番？](/content/gnews/18/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [视频中共世纪谎言之一：长征](/content/gnews/23/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [视频【精华版粤语配音】班农战斗室 646-647期：郭文贵先生很早就警告美国关注病毒、生物武器、社交媒](/content/gnews/19/README.md)
- ` 喜馬拉雅大使館-粵語組`
+### [【军事快讯】FBI“政审”驻防华盛顿特区的国民警卫队官兵，已有两名士兵被除名](/content/gnews/24/README.md)
+ ` 纽约香草山农场`
 
-### [郭先生0117(十三): 共产党最近出动三拨力量潜伏到各农场战友们小心](/content/gnews/20/README.md)
- ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
+### [视频路德时评简讯（视频版）: 梵蒂冈内部斗争已经开始（2021.1.17 晚间 路德社简讯之路博艾冠谈 ）](/content/gnews/25/README.md)
+ ` 路德社`
 
-### [《路德时评》重磅解读川普将中共国定为敌对国，及美敦促中共交出病毒起源资料](/content/gnews/21/README.md)
- ` 香柏树`
+### [蓬佩奥严正声明：中共犯有种族灭绝 反人类罪！](/content/gnews/26/README.md)
+ ` gnewscanada`
 
-### [在2020总统大选上中情局已沦为克格勃](/content/gnews/22/README.md)
+### [川普总统发布有关保护执法人员行政令](/content/gnews/27/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [中共制裁涉台问题的美国官员纯属虚张声势](/content/gnews/28/README.md)
  ` HimalayaRussia`
 
-### [郭先生0117(十二): 买G-Club难是因为它有意义有价值](/content/gnews/23/README.md)
- ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
-
-### [【香港要闻】香港急救员无犯罪证据 被法官推论有罪判囚4年](/content/gnews/24/README.md)
- ` 喜馬拉雅大使館-粵語組`
-
-### [郭先生0117(十一): G-Fashion要拿回北魏之风&amp;做G系列的跷板](/content/gnews/25/README.md)
- ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
-
-### [正义的需要，川普应指定中共为跨国犯罪组织](/content/gnews/26/README.md)
- ` HimalayaRussia`
-
-### [【香港要闻】十款病毒株攻港　政府拒封关致四波爆疫　专家料逾百离世者因边境漏洞所致【疫下一年】](/content/gnews/27/README.md)
- ` 喜馬拉雅大使館-粵語組`
-
-### [[2021年1月19日 中共病毒疫情更新]](/content/gnews/28/README.md)
- ` 喜马拉雅巴黎七星农场`
-
-### [视频【路德时评粤语快报】01.18:川普总统将中共国定性为敌对国家 美国敦促中共国交出病毒起源资料](/content/gnews/29/README.md)
- ` 喜馬拉雅大使館-粵語組`
-
-### [01/19/2021 Epidemic Chaos Inside the CCP (2)](/content/gnews/30/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【2021/01/19】文贵先生盖特 2](/content/gnews/31/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
-
-### [国家杜马主张在俄罗斯采用COVID护照](/content/gnews/32/README.md)
- ` HimalayaRussia`
-
-### [【快讯】“求”高考加分，需卖身中共](/content/gnews/33/README.md)
- ` 国内新闻组`
-
-### [川普总统宣布中国共产党为跨国犯罪集团呼之欲出](/content/gnews/34/README.md)
- ` 喜马拉雅大使馆-经济金融组`
-
-### [PARLER CEO举家逃亡 民主灯塔蒙上阴影](/content/gnews/35/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [辩驳COVID-19来自实验室的美国科学家承认他试图保护中国科学家](/content/gnews/36/README.md)
- ` 喜马拉雅大使馆-经济金融组`
-
-### [颠覆：比尔·巴尔告诉川普选举欺诈的说法是 &#8220;胡说八道&#8221;，保护“黑命贵”骚乱者免受叛乱法的影响，并阻止斯诺登赦免](/content/gnews/37/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [中共国封城导致物价飙涨50%](/content/gnews/38/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【快讯】多地频频“无偿”注资，社保爆雷还要多久？](/content/gnews/39/README.md)
- ` 国内新闻组`
-
-### [离一月二十号总统宣誓日还有一天，正义会走向何方？](/content/gnews/40/README.md)
+### [119一周年感想](/content/gnews/29/README.md)
  ` 温哥华圆成农场🇨🇦`
 
-### [【文字版】路德时评2021.01.18晚间：川普连发数个行政命令把中共国列为敌对国家，美督促中共交出病毒起源资料](/content/gnews/41/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [喀秋莎新闻参考- 2021年1月18日 (星期一)](/content/gnews/30/README.md)
+ ` HimalayaRussia`
 
-### [视频虽然拜登会举行就职仪式，但川普最终会赢!](/content/gnews/42/README.md)
- ` 喜马拉雅玫瑰园小队`
+### [超级重磅：国务卿关于新疆暴行的决定（原文）](/content/gnews/31/README.md)
+ ` HimalayaRussia`
 
-### [【2021/01/19】文贵先生盖特](/content/gnews/43/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+### [川普必须宣布中共为跨国犯罪集团](/content/gnews/32/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【快讯】环境保护税——“弹性税收”难躲官商勾结](/content/gnews/44/README.md)
- ` 国内新闻组`
+### [蓬佩奥宣布中共对新疆维吾尔族的镇压构成“种族灭绝和反人类罪”](/content/gnews/33/README.md)
+ ` HimalayaRussia`
 
-### [新西兰下周一起要求多数国家旅客提供阴性证明](/content/gnews/45/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [川普总统周三不会亲自欢迎中共乔入主白宫](/content/gnews/34/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【文字版】路德时评2021.01.18早间：新华社报道习近平疑似现身冬奥会场地考察，新闻联播居然只字不提，中共媒体再次7连抨击蓬佩奥！](/content/gnews/46/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [加州紧急停用一批MODERNA疫苗](/content/gnews/35/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [特鲁多急不可耐期待与拜登政府重建合作](/content/gnews/36/README.md)
+ ` gnewscanada`
+
+### [【看七哥视频】病毒真相会改变世界！](/content/gnews/37/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [关于保护执法人员、法官、检察官及其家属的总统令](/content/gnews/38/README.md)
+ ` gnewscanada`
+
+### [视频2021/01/18 班农作战室：定性中共为跨国犯罪集团迫在眉睫](/content/gnews/39/README.md)
+ ` Gnews Special Squad`
+
+### [2021/01/18 英喜时评第十八期](/content/gnews/40/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [郭爆料串珠（156）绝对不能打疫苗！全世界90%多的疫苗都是以中共疫苗为基础的，谁打谁倒霉！](/content/gnews/41/README.md)
+ ` 喜马拉雅德国慕尼黑感恩农场`
+
+### [简单](/content/gnews/42/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [美国情报界已沦为渗透重灾区](/content/gnews/43/README.md)
+ ` HimalayaRussia`
+
+### [【五月花评】美国女学生揭发母亲——人性的沦丧落地美国](/content/gnews/44/README.md)
+ ` 波士顿五月花农场`
+
+### [高达1.9万亿美元的拜登支出对通货膨胀的影响是什么？](/content/gnews/45/README.md)
+ ` 温哥华圆成农场🇨🇦`
 
