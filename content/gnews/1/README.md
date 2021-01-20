@@ -1,15 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【1.20实况】拜登上任第一天将发布17项行政措施
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/778223/)
+## 【1.20实况】川普总统“我们会以某种方式回来”暗示着什么？
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/778565/)
 
-据《零对冲》（ZeroHedge）1月20日8:40 报道，拜登上任第一天将发布就边境、气候、移民及 中共病毒口罩等17项行政措施，其中有9项将涉及对前任川普政策的修改，其中包括停止美国退出《巴黎协定》和WHO的政策。并将实行百天佩戴中共病毒口罩活动。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-31.jpg)
-翻译报道：Ermat【㊙️翻  Gnews原创组】
+据 Breitbart 1月20日报道，川普总统周三最后一次以总统身份乘坐空军一号离开华盛顿特区。离开时他说：“再见。我爱你们。我们会以某种方式回来的。”
 
-**参考链接：**
+送别川普的有他的家人及幕僚。总统上台讲话后，约500名观众高喊  “谢谢川普总统。”你们是了不起的人。这是一个伟大的，伟大的国家。能够成为你们的总统，这是我最大的荣誉。”川普总统说。
 
-[Biden Issues Barrage Of 17 Executive Actions On Border, Climate, Immigration & “100 Day Masking Challenge”](https://www.zerohedge.com/markets/biden-issues-barrage-15-executive-orders-border-climate-immigration-100-day-masking)
+川普总统这句看似简单的一句话“我们会以某种方式回来的”透露着很多的信息。川普代表的“热爱美国”党及川普本人什么时候回来、以何种方式回来、为何能够回白宫，这是今天及今后一段时间国际社会和新中国联邦非常关注的地方。
+
+参考链接：
+
+[Donald Trump Leaves Washington, DC: ‘Goodbye. I Love You. We’ll Be Back in Some Form’](https://www.breitbart.com/politics/2021/01/20/donald-trump-leaves-washington-dc-goodbye-i-love-you-well-be-back-in-some-form/)
+
+报道：Ermat【㊙️翻  Gnews原创组】
+
+（本文仅代表作者个人观点）
 
 0

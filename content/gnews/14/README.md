@@ -1,31 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疫情甩锅
-` 喜馬拉雅多語組` [轉載自GNews](https://gnews.org/zh-hans/777804/)
+## 川普遵循传统，给拜登留字条
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/778209/)
 
-原创作者：小螞蟻的自由
-编辑整理：am夏天
-图片来源：喜韩农场
-
-2020 疫情广，中共急着甩锅忙
-蝙蝠蝙蝠快出来，这个背锅你来当
-蝙蝠一听变了脸，这可堪比窦娥冤
-不行不行我不背，你看谁好欺负去找谁
-中共差点气断肠，白做了这碗蝙蝠汤
-穿山甲呀蛇儿长，各种动物齐上场
-外星人也遭了殃，只要疫情有一例
-泊来食品都受伤，世界砖家齐助阵
-撒谎撒谎再撒谎，无奈出个闫博士
-两个报告出真相。
-没新谎，心也慌，这个背锅侠呀没人当，
-眼看着弥天大祸兜不住，世界对准了要齐开枪
-完了完了完蛋了，**黑社会邪教组织
-中国共产党**
-
-加注：中国共产党生产了这个冠状病毒，为了掩盖真相，到处找病毒源体来甩锅。 找完了蝙蝠找水貂，再找外国人携带病原体进入中共国等等奇葩可笑的理由，不择手段的掩盖病毒真相。
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/01/画像2-9.jpg)
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2021年1月20日电/西喜社——**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/image-182.png)
+白宫表示，这位共和党总统为他的继任者、民主党人乔·拜登留下了一张纸条。
+
+新闻副秘书贾德·迪尔以总统之间沟通的隐私为由，拒绝透露川普写给拜登的内容，也拒绝描述纸条中的情感。
+
+川普拒绝公开向拜登让步，在两篇告别演说中也没有提到这位民主党人的名字。
+
+川普中断了许多总统的传统，包括没有参加拜登周三的就职典礼。在拜登被宣布在11月的总统选举中获胜后，川普也没有邀请拜登到白宫会面。
+
+川普周三上午最后一次以总统身份离开白宫，他说：”这是一个巨大的荣誉，一生的荣誉。”
+
+新闻来源：[https://apnews.com/article/biden-inauguration-joe-biden-politics-district-of-columbia-coronavirus-pandemic-0a49b6d8b3c9904d88d5bccfd854ab25](https://apnews.com/article/biden-inauguration-joe-biden-politics-district-of-columbia-coronavirus-pandemic-0a49b6d8b3c9904d88d5bccfd854ab25)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 0

@@ -1,57 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国国家情报总监报告揭露中共国干预大选，中情局高层阻止报告发布
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/777075/)
+## 1/20/2021 财经快讯：美国或将采取大规模刺激方案，亚洲股市创历史新高
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/777288/)
 
-*新闻来源：《门户专家（GATEWAY PUNDIT）》|作者：Joe Hoft | 发布时间：2021年1月17日
-翻译/简评：Dreamer文童 | 校对：Beicy-数学老师 |审核：万人往 | Page：Daoiii*
-[!\[\]()!\[\](https://spark.adobe.com/page/k7Ce2bNQ4J0Ow/images/34089bd8-82fe-47e2-bbe1-656eda3336cc.jpg?asset_id=01ea9146-1b8e-46a1-ac6f-d1bf14539b02&amp;img_etag=%22208c1b5d160e0ad6a003125a85b5eede%22&amp;size=1024)](https://spark.adobe.com/page/k7Ce2bNQ4J0Ow/images/34089bd8-82fe-47e2-bbe1-656eda3336cc.jpg?asset_id=01ea9146-1b8e-46a1-ac6f-d1bf14539b02&amp;img_etag=%22208c1b5d160e0ad6a003125a85b5eede%22&amp;size=1024)
-***简评：***
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/Picture1-29.jpg)
+图片来源： [http://www.cs.com.cn/hw2020/](http://www.cs.com.cn/hw2020/)
 
-**之前有报道爆出，美国大选所使用的多猫腻投票机与中共国、委内瑞拉和伊朗有关联，疑似外国势力干预美国大选。现在，国家情报总监拉特克利夫在向国会提交的信函中，明确指控中共国干预美国大选。作为国家情报官员，能够在向国会提交的正式报告中做出这样的指控，肯定是基于确凿可靠的情报，而非空口无凭。媒体曝光出对中共国干预美国大选的指控，就说明美国官方将正式通过法律途径进行调查并追究责任。**
+**1.在耶伦呼吁刺激计划后，亚洲股市创下历史新高**
 
-**如果该指控最终被确定属实，那么中共必将被定义为有组织的跨国犯罪组织，随之而来的就是根据RICO法案被追责。干预美国总统大选等于破坏美国的宪法基石，其危害程度远远高于普通的有组织犯罪行为。即使华盛顿被中共严重渗透，一旦在法律和情报层面能够证实中共干预美国大选，美国的爱国者们绝不会对政客们的无动于衷而坐视不管。以美灭共的重锤即将落下。**
+亚洲股市1月20日创历史新高，美国财政部长提名人珍妮特·耶伦（Janet Yellen）提倡采取大规模刺激方案以帮助克服由大流行引起的经济衰退。摩根士丹利资本国际（MSCI）指数在日本以外的亚太地区指数攀升0.81％，达到历史新高。 香港恒生指数上涨1.0％。 澳大利亚股市上涨0.4％，达到历史最高水平。 但是日本的日经指数在获利了结后下跌了0.45％。 美国纳斯达克期货上涨0.4％。 石油价格也上涨。 美国原油期货上涨0.3％至每桶53.15美元了。国际基准布伦特原油期货上涨0.3％至每桶56.09美元。
 
-***原文翻译*****：**
+[https://www.reuters.com/article/us-global-markets/asian-shares-hit-a-record-high-after-yellen-calls-for-big-spending-idUSKBN29O2SY](https://www.reuters.com/article/us-global-markets/asian-shares-hit-a-record-high-after-yellen-calls-for-big-spending-idUSKBN29O2SY)
 
-#### 突发：国家情报总监拉特克利夫发布报告显示，中共国干预2020年大选，中情局管理层向分析师施压阻止发布报告
+**2.美国将破坏对委内瑞拉制裁的油轮和石油交易商列入黑名单**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/k7Ce2bNQ4J0Ow/images/dab89f6c-ab8c-40d2-9ba7-d574b946f5d9.png?asset_id=782c1595-5f98-416d-b431-461157314af9&amp;img_etag=%22a255b51d11699f7676310f7425cbe5af%22&amp;size=2560)](https://spark.adobe.com/page/k7Ce2bNQ4J0Ow/images/dab89f6c-ab8c-40d2-9ba7-d574b946f5d9.png?asset_id=782c1595-5f98-416d-b431-461157314af9&amp;img_etag=%22a255b51d11699f7676310f7425cbe5af%22&amp;size=1024)
+1月19日，美国对一个由石油贸易公司、个人和船只组成的网络进行了制裁，这些公司逃避美国对委内瑞拉石油业的制裁，帮助国营委内瑞拉石油公司（PDVSA）向亚洲销售原油。财政部表示:“今天的行动针对的是另外一些与墨西哥网络有关联的策划者和协调人，他们与马杜罗的石油部长塔雷克·埃尔·艾萨米（Tareck El Aissami）合谋，并起诉洗钱者亚历克斯·萨伯（Alex Saab）为委内瑞拉数亿美元的石油销售充当中间人。”根据委内瑞拉石油公司数据和路孚特（Refinitiv）的Eikon船只追踪信息显示，自2019年对委内瑞拉石油公司实施制裁以来，这些被列入黑名单的船只一直在运输委内瑞拉原油。
 
-**根据国家情报总监拉特克利夫（Ratcliff）的报告，中共国干预2020年大选。 国家情报总监(DNI)约翰·拉特克利夫发布报告称，中共国干预2020年大选，而中情局（CIA）管理层则向下级分析师施压，要求其低估评价报告。**
+[https://www.reuters.com/article/us-usa-venezuela-sanctions/u-s-blacklists-oil-traders-tankers-for-undermining-venezuela-sanctions-idUSKBN29O20A](https://www.reuters.com/article/us-usa-venezuela-sanctions/u-s-blacklists-oil-traders-tankers-for-undermining-venezuela-sanctions-idUSKBN29O20A)
 
-在转交给国会的一封信中，国家情报总监(DNI)约翰·拉特克利夫评估称中共国干预了2020年联邦选举。
+**3.俄罗斯：美国制裁后通往德国的天然气管道面临风险**
 
-拉特克利夫在信中(pdf)指控，有关中共国干预选举的情报受到中情局管理层的压制，中情局向分析师施压，要求他们撤回对这一观点的支持。
+俄罗斯国营天然气公司俄罗斯天然气工业股份公司（Gazprom）承认，在美国1月19日对参与其建造的俄罗斯船舶实施制裁之后，其通往德国的海底管道北溪- 2 (Nord Stream 2)可能会被暂停或取消。德国经济部表示，在美国对俄罗斯管道铺设船“福图纳”(Fortuna)及其船东实施新的制裁之前，他们已经得到了通知。美国曾表示，110亿美元的北溪- 2管道将使欧洲更加依赖俄罗斯的天然气，并损害欧洲的能源安全。
 
-国家情报总监援引情报界分析监察员巴里·祖劳夫（Barry Zulauf）的报告称，一些分析师不愿将中共国的行动描述为选举干预，因为他们不同意唐纳德·川普总统的政策。
+[https://www.msn.com/en-us/news/world/russia-gas-pipeline-to-germany-at-risk-after-us-sanctions/ar-BB1cTxiy?ocid=msedgntp](https://www.msn.com/en-us/news/world/russia-gas-pipeline-to-germany-at-risk-after-us-sanctions/ar-BB1cTxiy?ocid=msedgntp)
 
-在发表有关原始报告文件十天后，《华盛顿观察家》（Washington Examiner）于1月17日发表了拉特克利夫的信函和监察员的报告。国家情报总监办公室（ODNI）并未回应《大纪元时报》提出验证文件真实性的要求。
+**4.拜登有意加入世卫组织支持的疫苗倡议**
 
-拉特克利夫写道，“基于所有可用的情报来源，使用一致适用的定义，并且不受政治考量或不当压力的支配 – 得出的结论是中华人民共和国力求影响2020年美国联邦选举…”
+国务卿指定人安东尼布林肯说，总统当选人拜登有意加盟全球卫生机构启动的“新冠肺炎（中共病毒）疫苗实施计划”（COVAX），以确保穷国和发展中国家能够以与富国和发达国家相同的速度获得冠状病毒疫苗。 拜登以前并未正式承诺参与该计划。 布林肯在1月19日的确认听证会上对参议员说：“我们坚信，我们可以确保每个美国人都接种该疫苗，而且还可以帮助确保全世界其他想要接种该疫苗的人都可以使用该疫苗。”
 
-…无论是监察员的报告还是拉特克利夫的信函，都没有包括中共国干预的细节。
+[https://thehill.com/policy/healthcare/534928-biden-will-join-who-backed-vaccine-initiative](https://thehill.com/policy/healthcare/534928-biden-will-join-who-backed-vaccine-initiative)
 
-拉特克利夫的报告见下文链接：
+**5.县医院大扩张负债累累，百名职工公开讨薪！**
 
-          (function() { var scribd = document.createElement("script"); scribd.type = "text/javascript"; scribd.async = true; scribd.src = "https://www.scribd.com/javascripts/embed\_code/inject.js"; var s = document.getElementsByTagName("script")[0]; s.parentNode.insertBefore(scribd, s); })()        
+河南省商丘市睢县中医院（ 公立二甲）拖欠工资被职工讨薪事件引发行业关注。一份《告全体同事书》显示，睢县中医院自2019年5月开始停发医生护士的绩效、奖金；拖欠基本工资4个月；部分职工的养老、住房公积金长达8年未发放。针对这些问题，该院一百余名职工曾数次向有关部门反映，得到的回复是2020年12月25日前给予解决方案。但到目前为止，问题并未得到解决。
 
-          (function() { var scribd = document.createElement("script"); scribd.type = "text/javascript"; scribd.async = true; scribd.src = "https://www.scribd.com/javascripts/embed\_code/inject.js"; var s = document.getElementsByTagName("script")[0]; s.parentNode.insertBefore(scribd, s); })()        
+[https://www.sohu.com/a/445316106\_456062](https://www.sohu.com/a/445316106_456062)
 
-很明显，中共国和其他国家干预了2020年大选。我们已经提供许多报道，显示中共国干预选举：未成为头条新闻：更多关于中共国介入2020年美国大选的信息
-![]()![](https://www.thegatewaypundit.com/wp-content/uploads/china-joe-600x338.jpg)🔗[https://www.thegatewaypundit.com/2020/12/information-chinas-involvement-2020-election-steal/](https://www.thegatewaypundit.com/2020/12/information-chinas-involvement-2020-election-steal/)
-还有许多其他显示中共国干预2020年大选的报道：川普的知己迈克·林德尔指出，有报道称中共国、俄罗斯和其他国家干预2020年大选。
-![]()![](https://www.thegatewaypundit.com/wp-content/uploads/Foreign-Intervention-in-2020-Election.jpg)🔗[https://www.thegatewaypundit.com/2021/01/trump-confidante-mike-lindell-points-report-china-russia-others-interfered-2020-election/](https://www.thegatewaypundit.com/2021/01/trump-confidante-mike-lindell-points-report-china-russia-others-interfered-2020-election/)
-国家情报总监拉特克利夫有更多关于中共国干预2020年大选的信息。希望在老迈的乔·拜登宣誓就任总统之前，所有问题都得以解决。根据拜登最近的行动方式，他很可能甚至都不知道中共国在哪里。
+**6.中共国收入差距巨大 抑制消费支出**
 
-**[原文链接](https://www.thegatewaypundit.com/2021/01/breaking-dni-ratcliffe-releases-report-showing-china-interfered-2020-election-cia-management-pressured-analysts-not-report/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)**
+中共官方周一公布的经济数据显示，中共国20%富裕人口在2020年的平均可支配收入超过8万元人民币，是20%贫穷人口收入的10.2倍，中共国的巨大收入差距抑制了消费支出，显示中共经济后续无力。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+[https://www.soundofhope.org/post/465485](https://www.soundofhope.org/post/465485)
 
+By【Financial Team】
 
-编辑：【英国伦敦喜庄园编辑部】
-[!\[\]()!\[\](https://spark.adobe.com/page/k7Ce2bNQ4J0Ow/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/k7Ce2bNQ4J0Ow/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-+2
+文章-Tracy
+
+校对-小蚂蚁在行动
+
++1

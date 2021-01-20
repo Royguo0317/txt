@@ -1,183 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《上帝保佑美國》(附中英文歌词)
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/778141/)
+## 中共病毒疫情引发加拿大民众的反思和觉醒
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/778548/)
 
-歌词大意：
+*加拿大多伦多枫叶农场  小溪 老江*
 
-If tomorrow all the things were gone
+*校对、发稿 文锦*
+![]()![](https://gnews.org/wp-content/uploads/2021/01/图片来自-Macdonald-Laurier-Institute-1.jpg)
+1月13日加拿大广播公司新闻（CBC News）的[推特](https://twitter.com/CBCNews/status/1349039438513405953)上传了一段关于加拿大政府事务部部长多米尼克·勒布朗（Dominic A. LeBlanc）和公共卫生官员，就政府对抗中共病毒工作的最新进展情况，向全体加拿大人发布的视频会议讲话。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图446-1.png)
+会上官员们通报了加拿大疫情的最新进展情况，以及加拿大政府在关于对抗中共病毒，保证加拿大人能率先使用上辉瑞公司生产的最新疫苗而做出的种种努力。同时进一步强调了民众应该继续遵守减少外出，佩戴口罩和保持社交距离等措施，告诫民众困难时期要保持热情、共克时艰等。
 
-如果明天我为之奋斗了一辈子
+坦白讲，整个会议沉闷、冗长且了无新意。截止1月19日，加拿大目前中共病毒感染人数近72万，因病毒死亡人数超过1.8万，单日新增感染人数4500多人，单日新增死亡人数约150人，中共病毒人均感染率已经达到2%。这对于加拿大这个人口不足4000万的国家来说，简直是一场巨大的人道灾难。此外，因中共病毒疫情带来的社会的停滞、经济大衰退和创纪录的高失业率也令加拿大损失惨重。
 
-I’d worked for all my life
+面对已经严重危及到全体加拿大人生命安全的生化武器——中共病毒袭击，在此事关加拿大人生死存亡的艰难时刻，加拿大政府能给出的就是：定期的、例行的疫情进展通报会，除了通报病情的最新进展，就是一成不变的措施和建议：要求民众带口罩、保持社交距离，尽可能留在家中等等，现在又加上了尽早争取让加拿大人用上病毒疫苗。
 
-的东西所有都化为乌有
+如此官僚、不作为的政府，非但不追究病毒制造者中共的责任，从源头上解决病毒问题，反而一味的要求、限制百姓，强制民众遵守各种居家限制令，抓住尚未完成临床实验，未被验证安全性，甚至已经被证明存在高致感染率、高致残率和严重副作用的中共病毒疫苗来当作救命稻草。加拿大政客们的所作所为，着实让人愤怒！
 
-And I had to start again
+在加拿大广播公司的这段视频新闻的推下，可以看出加拿大人对此的觉醒和反应：
 
-我不得不重新开始
+微生物学博士、作家安杰洛娃（Angelova）直接以2+2=5的推文和她在论坛上发表的一篇题为《[中共病毒疫情——科学的终结](https://genuineprospect.wordpress.com/2021/01/10/covid19-pandemic-the-end-of-science/)》的博客文章作为回复。文章历数了世卫组织、《自然杂志》、大型制药公司、社交媒体、比尔盖茨基金会等组织和机构以科学的名义，散播虚假信息，罔顾事实和生命，他们并不是在寻求真理，而是只钟情迷恋于权力和金钱。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1534354.jpg)
+名为人类颅骨（HumanScartissue）的推友回复：从第一天开始，建模就完全不准确了。 PCR测试从未设计用于病毒检测，它以40个周期运行，而不是预期的27个周期。 生存率达97％以上。散布恐惧和控制是游戏的最终目的。犯有危害人类罪的犯罪分子。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/ghchgj-1.jpg)
+名为蜂血的推友写道：加拿大广播公司刚刚在推特上谈论错误信息。你是对的。你和我们的政客及“卫生”官员一起，都是罪魁祸首。你们都是一伙儿的，在政府的“其它”支持和帮助下。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/hgfdhg-1.jpg)
+罗杰•马里斯推友则称他们每一个人都是骗子。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/fsdaff-1.jpg)
+对于中共病毒的来源真相，加拿大政客们、科学界权威们、大型药企、新闻媒体在整个疫情流行过程中都推波助澜起了些什么样的作用，他们要达到什么样的目的。民众目前的处境，以及如何从当下的困境中摆脱出来等等问题，我想已经在加拿大整个社会和民众中引起广泛的思考和反应。
 
-With just my children and my wife
+真相永远只有一个，而且不可能被掩盖。我们能感受到民众正在觉醒。不远的将来，主流媒体的假新闻与民众追求真相的力量终究难免一战。随着他们的谎言被揭穿，主流媒体也终将为大众所唾弃.
 
-惟独还有我的妻儿陪伴身边
+1.19以来，GTV 、GNEWS对真相的揭露，被主流媒体和政客一再忽视，而今，事实证明他们的愚蠢和傲慢，导致时至今日仍不肯面对现实和真相，而这只会造成整个加拿大社会、医疗、金融、经济、政治等一系列体系的崩塌。
 
-I’d thank my lucky stars
+同时，民众也正从各种渠道辗转了解到病毒真相，了解到这是来自中共的生化武器袭击，可以看出压抑了许久的怒火正在加拿大人胸中积聚。
 
-我要感谢我的幸运星
+目前加拿大政府唯一免于社会崩塌的止损方式，也是加拿大民众怒火唯一的宣泄方式，以及唯一能从根本上彻底解决病毒的方式，都只能是：加拿大政府汇同美国等国家一起，确认病毒是中共实验室制造的生化武器，一起讨伐和消灭中共，让中共为此承担责任并付出代价！
 
-To be living here today
 
-让我今天还生活在这里
 
-Where the flag still stands for freedom
-
-生活在一个旗帜仍象征着自由的地方
-
-And they can’t take that away
-
-没人能夺走那旗帜
-
-And I’m proud to be an American
-
-我以身为美国人为荣
-
-Where at least I know I’m free
-
-在这里我至少拥有自由
-
-And I won’t forget the men who died
-
-我不会遗忘那些阵亡的将士
-
-Who gave that right to me
-
-是他们赋予我这些权利
-
-And I gladly stand up next to you
-
-有幸与你站在一起
-
-And defend her still today
-
-至今仍然捍卫着她
-
-‘Cause there ain’t no doubt I love this land
-
-因为毫无疑问我挚爱这片土地
-
-God Bless the U.S.A.
-
-上帝保佑美国
-
-From the lakes of Minnesota
-
-从明尼苏达的万湖
-
-To the hills of Tennessee
-
-到田纳西的群山
-
-Across the plains of Texas
-
-横跨德克萨斯的平原
-
-From sea to shining sea
-
-从大西洋岸到太平洋
-
-From Detroit down to Houston
-
-从底特律到休斯敦
-
-And New York to L.A.
-
-从纽约到洛杉矶
-
-Well there’s pride in every American heart
-
-每一个美国人心中都充满骄傲
-
-And it’s time we stand and say
-
-是时候我们站起来说
-
-That I’m proud to be an American
-
-我以身为美国人为荣
-
-Where at least I know I’m free
-
-在这里我至少拥有自由
-
-And I won’t forget the men who died
-
-我不会遗忘那些阵亡的将士
-
-Who gave that right to me
-
-是他们赋予我这些权利
-
-And I gladly stand up next to you
-
-有幸与你站在一起
-
-And defend her still today
-
-至今仍然捍卫着她
-
-‘Cause there ain’t no doubt I love this land
-
-因为毫无疑问我挚爱这片土地
-
-God Bless the U.S.A.
-
-上帝保佑美国
-
-God bless this country
-
-上帝保佑这个国家
-
-And I’m proud to be an American
-
-我以身为美国人为荣
-
-Where at least I know I’m free
-
-在这里我至少拥有自由
-
-And I won’t forget the men who died
-
-我不会遗忘那些阵亡的将士
-
-Who gave that right to me
-
-是他们赋予我这些权利
-
-And I gladly stand up next to you
-
-有幸与你站在一起
-
-And defend her still today
-
-至今仍然捍卫着她
-
-‘Cause there ain’t no doubt I love this land
-
-因为毫无疑问我挚爱这片土地
-
-God Bless the U.S.A.
-
-上帝保佑美国
-
-翻译：【Dlrow】【Isaiah4031】校对：【JoyJoy】字幕：【相机过热啊】
-
-喜马拉雅玫瑰园小队出品
-
-
-
-> [福克斯新闻发布格林伍德和美国大兵的新版《上帝保佑美国》- 有望再成打榜歌曲！](https://gnews.org/zh-hans/254959/)
-
-
-
-+1
+0

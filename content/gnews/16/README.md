@@ -1,43 +1,183 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】加州暂停接种问题批次的Moderna疫苗
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/777945/)
+## 《上帝保佑美國》(附中英文歌词)
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/778141/)
 
-作者：四季；审核：雪梨
+歌词大意：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/MOS1029-【热点播报】加州暂停接种问题批次的Moderna疫苗.jpg)
+If tomorrow all the things were gone
 
-据ZeroHedge 1月19日报道，因为加利福尼亚州出现了接种莫德纳公司（Moderna）疫苗后出现了令人不安的严重反应，莫德纳公司发表了一份声明：
+如果明天我为之奋斗了一辈子
 
-莫德纳公司承认收到加州公共卫生局 (CDPH) 的报告，圣地亚哥一家疫苗接种中心的几名人员在接种了一批莫德纳公司的中共病毒疫苗后，因出现的过敏反应而接受治疗。公司正全力配合加州公共卫生局调查这些被报告的不良事件。
+I’d worked for all my life
 
-莫德纳公司不知道其他接种中心是否有类似的不良事件群体，这些中心可能接种了同一批次或其他批次的疫苗。莫德纳公司证实，批号为041L20A的疫苗共生产了127.22万剂，近100万剂（96.49万）已经分发到37个州的约1700个接种点。根据加州公共卫生局的数据，其中包括该批次的33万多剂，已经分发给加州各地的287个医疗机构。共有30.73万剂疫苗仍在储存中，尚未分发。
+的东西所有都化为乌有
 
-莫德纳公司表示，虽然不清楚究竟多少剂疫苗已经被使用，但确认，这批疫苗是在1月4日到1月8日之间运出的，因此它预计有相当一部分分发的疫苗已经被使用。这项调查仍在进行中，莫德纳公司正在与FDA和CDC密切合作，了解临床病例，以及是否有必要大面积暂停使用该批次的疫苗。此消息一出，莫德纳的股价下跌了4%左右。
+And I had to start again
 
-据RT报道，随着世界各地因中共病毒疫苗导致的疑似死亡人数上升，美国和挪威已经有数十人死亡，加州卫生官员要求该州的医疗机构立即停止注射一批莫德纳公司的疫苗，因为“异常多的”不良反应与它有关。
+我不得不重新开始
 
-根据加州流行病学家埃里卡·潘（Erica S. Pan）博士和加州公共卫生局的命令，该批次疫苗被搁置，以进行相应的调查。问题批次为莫德纳公司的Moderna Lot 041L20A。
+With just my children and my wife
 
-虽然承认“与莫德纳公司疫苗相关的不良反应的数据较少”，但该州流行病学家坚持认为，疫苗引发严重副作用的情况还是很罕见的。莫德纳公司、CDC和FDA正在审查该批次疫苗和所有相关的医疗数据。
+惟独还有我的妻儿陪伴身边
 
-目前，在美国，欧洲和世界其他地方，疫苗接种与严重的紧急医疗事件有关。去年12月，波士顿的一名医生说，他在接受了莫德纳的疫苗后，遭遇了他所经历过的最严重的过敏反应，并将这样的反应描述为潜在的生命危险，而迈阿密的一名医生则因为疫苗的反应而死亡。
+I’d thank my lucky stars
 
-随着中共病毒疫苗在如此短的时间被推出，我们看到了疫苗接种后令人惊恐的副作用被不断的报道。只有找到病毒的源头和原始毒株，才能解决这一由中共制造散布的全球大流行，还世界和平。
+我要感谢我的幸运星
 
-原文链接：
+To be living here today
 
-[https://www.zerohedge.com/covid-19/california-halts-vaccinations-moderna-batch-linked-unusually-high-number-adverse-reactions](https://www.zerohedge.com/covid-19/california-halts-vaccinations-moderna-batch-linked-unusually-high-number-adverse-reactions)
+让我今天还生活在这里
+
+Where the flag still stands for freedom
+
+生活在一个旗帜仍象征着自由的地方
+
+And they can’t take that away
+
+没人能夺走那旗帜
+
+And I’m proud to be an American
+
+我以身为美国人为荣
+
+Where at least I know I’m free
+
+在这里我至少拥有自由
+
+And I won’t forget the men who died
+
+我不会遗忘那些阵亡的将士
+
+Who gave that right to me
+
+是他们赋予我这些权利
+
+And I gladly stand up next to you
+
+有幸与你站在一起
+
+And defend her still today
+
+至今仍然捍卫着她
+
+‘Cause there ain’t no doubt I love this land
+
+因为毫无疑问我挚爱这片土地
+
+God Bless the U.S.A.
+
+上帝保佑美国
+
+From the lakes of Minnesota
+
+从明尼苏达的万湖
+
+To the hills of Tennessee
+
+到田纳西的群山
+
+Across the plains of Texas
+
+横跨德克萨斯的平原
+
+From sea to shining sea
+
+从大西洋岸到太平洋
+
+From Detroit down to Houston
+
+从底特律到休斯敦
+
+And New York to L.A.
+
+从纽约到洛杉矶
+
+Well there’s pride in every American heart
+
+每一个美国人心中都充满骄傲
+
+And it’s time we stand and say
+
+是时候我们站起来说
+
+That I’m proud to be an American
+
+我以身为美国人为荣
+
+Where at least I know I’m free
+
+在这里我至少拥有自由
+
+And I won’t forget the men who died
+
+我不会遗忘那些阵亡的将士
+
+Who gave that right to me
+
+是他们赋予我这些权利
+
+And I gladly stand up next to you
+
+有幸与你站在一起
+
+And defend her still today
+
+至今仍然捍卫着她
+
+‘Cause there ain’t no doubt I love this land
+
+因为毫无疑问我挚爱这片土地
+
+God Bless the U.S.A.
+
+上帝保佑美国
+
+God bless this country
+
+上帝保佑这个国家
+
+And I’m proud to be an American
+
+我以身为美国人为荣
+
+Where at least I know I’m free
+
+在这里我至少拥有自由
+
+And I won’t forget the men who died
+
+我不会遗忘那些阵亡的将士
+
+Who gave that right to me
+
+是他们赋予我这些权利
+
+And I gladly stand up next to you
+
+有幸与你站在一起
+
+And defend her still today
+
+至今仍然捍卫着她
+
+‘Cause there ain’t no doubt I love this land
+
+因为毫无疑问我挚爱这片土地
+
+God Bless the U.S.A.
+
+上帝保佑美国
+
+翻译：【Dlrow】【Isaiah4031】校对：【JoyJoy】字幕：【相机过热啊】
+
+喜马拉雅玫瑰园小队出品
 
 
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+> [福克斯新闻发布格林伍德和美国大兵的新版《上帝保佑美国》- 有望再成打榜歌曲！](https://gnews.org/zh-hans/254959/)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-0
++1
