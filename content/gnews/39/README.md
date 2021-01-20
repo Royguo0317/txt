@@ -1,20 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 哈里斯将由带领骚乱者离开参议院的国会警察护送参加仪式
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/778695/)
+## 据称拜登政府将撤销川普政府的多项政策
+` Gnews Special Squad` [轉載自GNews](https://gnews.org/zh-hans/779784/)
 
-- 编辑：Victor Torres
+*简评/提交：Near ｜Pr: Cathy*
 
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20-2.jpg)
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+🔗*[原文链接](https://m.weibo.cn/1323527941/4595383463054485)*
 
-**西班牙2021年1月20日电/西喜社——**
-![]()![](https://gnews.org/wp-content/uploads/2021/01/002-6.jpg)
-当选副总统卡马拉·哈里斯将由古德曼（Eugene Goodman）护送参加就职典礼，古德曼是两周前抵抗冲进国会大厦的骚乱者的代言人。
+Vista看天下：【#美媒称拜登上台后将立马撤销特朗普多项政策#】据多家美媒报道，拜登上台将立马撤销特朗普多项政策，并致力于解决新冠大流行、疫情引发的经济衰退、气候变化和种族歧视等四个主要问题。
 
-拜登的一位助手向CNN证实，古德曼将以众议院代理副军士长的新角色护送哈里斯。
+评：新闻根据多家美媒报道，拜登上台将立马撤销川普多项政策，并致力于解决新冠大流行、疫情引发的经济衰退、气候变化和种族歧视等四个主要问题。再评：我看这就是全球化利益集团造势，拜登将推翻川普政府的政治遗产然后站队全球化。但是拜登的图谋肯定不会得逞。
 
-新闻链接：[https://edition.cnn.com/politics/live-news/biden-harris-inauguration-day-2021/index.html](https://edition.cnn.com/politics/live-news/biden-harris-inauguration-day-2021/index.html)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
-+1
+编辑：【G-News特战队】
+
+0

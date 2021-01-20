@@ -1,20 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 参议员玛莎·布莱克本：川普任命了230名法官
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/778685/)
+## 中国农民病不起，农村医保再下狠手涨价！
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/779531/)
 
-**作者: CPA Jim**
-
-美国参议员玛莎·布莱克本2021年1月20日发推说川普总统通过任命230名法官，留下了一个有持续影响力的司法遗产，将在未来数年捍卫美国法治。
-
-任命的法官数量正好和关乎社交媒体平台言论自由的230法案的序列数相同。期待任命的230个法官通过复核230法案是否符合宪法帮助助作废230法案。很明显社交媒体任意屏蔽言论、删除账号，损害了言论自由，滥用垄断地位侵害用户权利，同时也侵害了社交媒体公司的广告客户的权利，影响了其广告投放的范围和效果。社交媒体上的正义与法治亟需维护。
+视频来源：YouTube ǀ 作者：朽木可雕 ǀ视频收集整理：英国之声
 
 
 
-> President Trump leaves behind a lasting legacy on the federal judiciary, after appointing over 230 judges, including 3 Supreme Court Justices. These judges will uphold the rule of law for years to come.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [January 20, 2021](https://twitter.com/MarshaBlackburn/status/1351907673957158912?ref_src=twsrc%5Etfw)
 
 
 
-0
+
+政府再割农民韭菜，农村医保18年里从10元涨到了280元。然而，说着帮农民解决看病难、看病贵的问题，但报销金额低、报销种类少、大病不给报，住院补的少却迟迟得不到解决。农民每年交的钱如果不用，转年被清零。这些被统筹的钱进了谁的口袋？全国宣布脱贫，再没有人可以享受免费的农村医保，这对很多困难家庭来说无疑是雪上加霜。农村宅基地收税已经开始如火如荼的进行，农民的未来在何方 。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/HHS_QRCode_V2-2-1.jpg)
++1

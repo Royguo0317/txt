@@ -1,28 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 前总统到场参加拜登就职典礼
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/778760/)
+## 华春莹称彭佩奥是“末日小丑”
+` Gnews Special Squad` [轉載自GNews](https://gnews.org/zh-hans/779820/)
 
-- 编辑：Victor Torres
+简评/提交：Near｜Pr: Cathy
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/14-5.jpg)
+
+# **外交部：末日小丑彭佩奥必将受到历史公正的审判和清算**
+
+[*🔗原文链接*](https://twitter.com/andy5_123/status/1351807950113783812?s=21)
+
+评：华春莹在称彭佩奥在过去几年里撒了太多谎，放了太多毒。华说彭佩奥正在以其末日疯狂和世纪谎言把自己变成末日小丑和世纪笑话。评：华春莹把中共自己撒的谎，放的毒，扮演跳梁小丑的本应被世人谴责的脏水都泼到彭佩奥身上，这是会有报应的。终有一天中共会发现，小丑就是她自己。
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月20日电/西喜社——**
-![]()![](https://gnews.org/wp-content/uploads/2021/01/004-6.jpg)
-出席当选总统拜登就职典礼的所有美国前总统都已抵达美国国会大厦。
+> CCP不止以真正全人類的公敵的身分，來定義正義勢力為「全人類公敵」
+> 現在更是作為歷史的一個屁，聲稱要審判清算作為正義一方的蓬佩奧國務卿
+> CCP口炮威脅恐嚇，自以為正義，但相信最終這些CCP圖一時之快的話語，會化為行動落到CCP自己的頭上[@ding\_gang02](https://twitter.com/ding_gang02?ref_src=twsrc%5Etfw) [@maryann\_3040](https://twitter.com/maryann_3040?ref_src=twsrc%5Etfw) [@aliah0031](https://twitter.com/aliah0031?ref_src=twsrc%5Etfw) [@BoDiplo](https://twitter.com/BoDiplo?ref_src=twsrc%5Etfw) [@Guan\_PhD](https://twitter.com/Guan_PhD?ref_src=twsrc%5Etfw) [https://t.co/zeMhLJrICW](https://t.co/zeMhLJrICW) [pic.twitter.com/CF3JPLQVER](https://t.co/CF3JPLQVER)
+> — Andy5 (@andy5\_123) [January 20, 2021](https://twitter.com/andy5_123/status/1351807950113783812?ref_src=twsrc%5Etfw)
 
-乔治-W-布什和他的妻子劳拉于周三上午率先抵达综合大楼，比拜登的宣誓仪式早几个小时。
 
-巴拉克和米歇尔·奥巴马以及比尔和希拉里·克林顿紧随其后，每对夫妇都分别乘坐车队抵达。
 
-另一位在世的前总统、96岁的吉米·卡特此前宣布不会出席拜登的就职典礼。卡特和他的妻子，93岁的罗莎琳·卡特，主要是在乔治亚州平原市的家中度过中共病毒大流行。
+编辑：【G-News特战队】
 
-卡特曾在2017年成为第一位确认参加唐纳德·川普就职典礼的前总统。
-
-川普和第一夫人梅拉尼娅·川普周三早些时候离开华盛顿，跳过拜登的就职庆典，直奔佛罗里达州的家。川普是自安德鲁·约翰逊以来第一位不参加继任者就职典礼的总统。
-
-新闻链接：[https://apnews.com/article/joe-biden-inauguration-news-0a49b6d8b3c9904d88d5bccfd854ab25](https://apnews.com/article/joe-biden-inauguration-news-0a49b6d8b3c9904d88d5bccfd854ab25)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 0

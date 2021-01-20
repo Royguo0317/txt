@@ -1,20 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普刚刚在佛罗里达州降落
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/779089/)
+## 国家脉动：是拜登政权，而不是拜登政府
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/779949/)
 
-- 编辑：Victor Torres
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-91.jpg)图片来源： National Pulse – “This is not what democracy looks like”
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+国家脉动2021年1月20日刊发了班农作战室主播之一拉希姆（Raheem Kassam）写的文章《不是一个政府，而是一个政权》，今天中午国会山所见到的和1月6日的情况没有差别，都是美国的耻辱。很多词语被用来说这次 过渡是和平的过渡，但实际上并不是和平过渡。被偷盗的选举≠和平过渡，另一场欺诈性弹劾≠和平过渡，30,000士兵≠和平过渡。因为选举不真实，选举结果是无效的，宣誓就职仪式已经变味。更像独裁政权攫取权力的过程，更像香蕉共和国。所以国家脉动以后统一叫拜登政权。
 
-**西班牙2021年1月20日电/西喜社——**
-![]()![](https://gnews.org/wp-content/uploads/2021/01/005-1.jpg)
-川普总统和第一夫人刚刚降落在佛罗里达州。
+这个让我想起了中共国全国人大、中国共产党全国代表大会开会特别是选举新一届领导人时候的情况。中共国全国人大开会就是到处荷枪实弹，网上大肆删帖，微博封号、QQ封群，叫做敏感期间，一切都是敏感的。选举领导人的时候也不是当场开票计票，都不敢当场宣布得票具体数量，即使有选票造假，想起诉也是没戏的。中国共产党的党内选举和人大代表选举全部是造假，从最基层选举开始就造假，到了最上面央视直播选选举政治局常委、国家主席、最高法院院长、总理、副总理、审计长等职位负责人有关会议的时候，仍然是幕后计票，央视没有直播具体计票过程，没有独立监票员。从这个意义上来说，中国共产党偷盗中国的国家主权的一个方法就是选举舞弊。中国共产党政权是有组织犯罪组织，根本不能代表中国，期待早日将中国共产党官员从联合国、联合国安理会常任理事国席位、联合国人权理事会席位、世界卫生组织等机构赶出去。
 
-今天上午早些时候，川普在安德鲁斯联合基地举行了简短的告别仪式。他承诺 “永远战斗”，并祝愿即将上任的政府 “好运”。
+[原文链接](https://thenationalpulse.com/analysis/not-an-administration-a-regime/)
 
-新闻链接：[https://edition.cnn.com/politics/live-news/biden-harris-inauguration-day-2021/index.html](https://edition.cnn.com/politics/live-news/biden-harris-inauguration-day-2021/index.html)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
-0
+* * *
+
+
+
++1

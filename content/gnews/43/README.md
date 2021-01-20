@@ -1,24 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登已抵达美国国会大厦参加就职典礼
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/778638/)
+## 川普总统与第一夫人及家人平安返抵佛罗里达
+` 旧金山金喜准农场` [轉載自GNews](https://gnews.org/zh-hans/779640/)
 
-- 编辑：Victor Torres
+**1.20.21见证历史 — 新中国联邦推动终极灭共！系列报道**
+
+川普总统今早在安德鲁空军基地发表了最后的告别演讲。随后， 川普与第一夫人登上空军一号，返回佛罗里达。
+
+约一小时前，上午11点，空军一号在降落在棕榈滩国际机场，把川普总统最后一次以总统身份送到了他在佛罗里达州的家。飞机平稳降落之后，在晴朗的天空和暖和的68度天气下，川普总统和第一夫人梅拉尼娅-川普走下飞机。川普总统向数百名支持者挥手致意。
+
+在总统抵达之前，川普的支持者已经开始在南大道上排队，这是从棕榈滩国际机场到特朗普先生的私人俱乐部Mar-a-Lago的主要道路。沿途有强大的警察存在，就像在特朗普总统任期的四年中，当他回家度假时一样的欢迎场景。
+
+![](https://lh6.googleusercontent.com/b1Wwjrg4XBsQ1q6S27eGXMpEUeIYQpJ6md5h9cScpRYLUA64WerICSGKQI90lqHzgPs-g1VCAuK5HNv69X3BGX3WGj_8rr30dGE8bn3jKgJyEZKh0mW-9iWI_cTKC_DhO_s1b-XK)
+
+沿着南部大道的几个街区进入佛罗里达州棕榈滩，人们挤满了街道，以便在特朗普先生的车队滚过时最后一瞥。当空军一号离开飞过头顶时，民众纷纷拍照并挥手。随后民众期待着川普总统的驾座的经过。
+
+![](https://lh5.googleusercontent.com/GQ20UeJd9g19bkGeU-Pr8qSFx8dC7ubzSeS36z_bk2EKObYxlZcrxjt8nyhNHBJUWTVWWjAdIktBdlvhSWCocx2pE6ltHPjyxDg28Ko6Zpxacgq45iMFqVkrDIabjgfD8q3s8SiW)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月20日电/西喜社——**
-![]()![](https://gnews.org/wp-content/uploads/2021/01/001-4.jpg)
-拜登已抵达美国国会大厦参加就职典礼
+一位民众唐-史密斯说：”我们不愿意看到他离开。” 他从佛罗里达州西南部的清水滩附近驱车三个小时，迎接特朗普先生返回该州。史密斯先生说，他是坚定的川普总统的支持者，也参加了1月6日在华盛顿举行的特朗普先生的集会。
 
-当选总统乔·拜登的车队已经在就职典礼前抵达美国国会大厦。
+“川普才应该是我们的总统，”史密斯先生说。”我想说再见，向三军总司令致敬。拜登不是我的当选总统。”
 
-国会领导人将在他进入国会大厦时迎接他。
+一辆卡车后面的扬声器里响起了音乐。国歌响起。”我们喜欢向总统表达对他的爱戴与支持，”西棕榈滩的兰迪-安德森说，他穿了一件MAGA衬衫去参加这个场合。”这次大选有很多作弊行为，”安德森说，选举结果是不公正的。有八千万美国人与他的想法一致。”我不认为乔会持续很长时间。”
 
-预计拜登将于美国东部时间中午在大楼外宣誓就职。
+川普总统在其四年任期内完全兑现了他的竞选承诺。是美国历史上少有的说到做到的总统！川普在任上完成了前所未有的成就，比他的前6任总统相加的成就还要多。让我们为川普总统祈祷！让我们为美国祈祷！
 
-新闻来源：[https://edition.cnn.com/politics/live-news/biden-harris-inauguration-day-2021/index.html](https://edition.cnn.com/politics/live-news/biden-harris-inauguration-day-2021/index.html)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
-0
+我们祈祷：正义必胜。人们必胜！
+
+编译：Bingo
+
++12

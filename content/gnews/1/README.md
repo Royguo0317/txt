@@ -1,26 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【推特實況】1/20/2021川普競選團隊成員史蒂夫· 科特斯推文：拜登就任現場空空如也
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/779422/)
+## 中共制裁包括彭佩奥在内的28位美国人
+` 旧金山金喜准农场` [轉載自GNews](https://gnews.org/zh-hans/780618/)
 
-2021年1月20日上午10:52，川普競選團隊成員史蒂夫·科特斯（Steve Cortes）發推諷刺拜登就任現場空空如也：
+【作者】Sharon 【编辑】Summer
 
-“參加就職典禮的人呢？這可是傳說中得票總數最高、美國歷史上最受歡迎的政治家。
+2021年1月21日，“环球时报”的一篇文章宣称“过去几年来，美国一些反华政治家出于对中国的私利，偏见和仇恨，不顾中美两国人民的利益，策划，宣传和执行了一系列反华政治活动。严重干扰中国内政，破坏中国利益，冒犯中国人民，严重破坏中美关系的疯狂举动关系。中国政府坚定地捍卫中国的国家主权，安全与发展利益。”
+![]()![](https://gnews.org/wp-content/uploads/2021/01/中美拳头-2.png)
+不仅如此， “环球时报”在报道中还公布了中共版本的“制裁令”，原文是“中国决定制裁28名严重侵犯中国主权的人，这些人主要包括是美国在中国有关问题上的此类举动。他们包括特朗普政府的迈克尔·庞培（Michael R.Pompeo），彼得·纳瓦罗（Peter K.Navarro），罗伯特·奥布莱恩（Robert C.O’Brien），大卫·史迪威（Matthew R. R. Bolton）和斯蒂芬·班农 (Stephen K. Bannon)。禁止这些个人及其直系亲属进入中国大陆，香港和澳门。他们以及与他们有联系的公司和机构也被禁止与中国做生意。”
 
-也許，一個邊境開放、內在封閉的國家的前景並不能讓美國人感到振奮……”
+【观点】
 
+很多熟悉中共媒体的人马上意识到，胡锡进主编的环球时报又开始指鹿为马，颠倒黑白了。事实上，从中共建党伊始，就从未打算和任何国家和平相处。为了维护中共政权，BGY，3F 计划应运而生，目的是盗用，榨取，腐化别国的技术，国库，和政权。习近平上位之后更是变本加厉的把中共的邪恶发挥到了极致，不仅修改宪法，控制言论，发动文革 2.0，还研制并释放了生化武器 – 新型冠状病毒 （中共病毒），目前造成全球近一亿人感染，超过两百万人死亡。美国川普总统发布的行政制裁令是为了保护美国和世界人民的利益，只有中共的消失，才能迎来世界的和平。
 
+对于28位鹰派的制裁更是滑天下之大稽！请问，蓬佩奥，纳瓦罗，奥布莱恩，史迪威，和班农先生，有任何人有家人，有投资，有企业在中国吗？既然没有，制裁的意义何在？中共统治下的中国满目苍夷，文明废驰，腐败横行，资源耗竭，民不聊生。连中南坑的盗国贼门都把自己的亲生子女，私生子女，送到海外生活，留下一个裸官在国内继续着假骗偷。一个连统治者都不相信有未来的政权，却天天洗脑，让人民相信“爹亲娘亲不如共产产党亲”。这样的政权，怎么可能有未来？
 
-> Where is everyone? The most popular politician in US history, per the purported vote totals? 
-> 
-> Perhaps Americans aren’t so thrilled about the prospects of a closed country with open borders… [pic.twitter.com/le3pJ8QFp0](https://t.co/le3pJ8QFp0)
-> — Steve Cortes (@CortesSteve) [January 20, 2021](https://twitter.com/CortesSteve/status/1351920510481936387?ref_src=twsrc%5Etfw)
+简而言之，胡锡进的“环球时报”貌似“掷地有声”的制裁令，无非就是一直空文。
 
+【来源】
 
+[https://www.globaltimes.cn/page/202101/1213458.shtml](https://www.globaltimes.cn/page/202101/1213458.shtml)
 
-推文鏈接：[https://twitter.com/CortesSteve/status/1351920510481936387](https://twitter.com/CortesSteve/status/1351920510481936387)
-
-翻譯報導：萌萌的朋克【㊙️翻Gnews原創組】
-
-0
++1

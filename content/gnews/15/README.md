@@ -1,19 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 墙内污媒动态&#8211;拜登“登基日”，普京抢“风头”
-` Gnews Special Squad` [轉載自GNews](https://gnews.org/zh-hans/779405/)
+## 习近平以“中国然诺, 世界赴约”要挟全世界战队
+` Gnews Special Squad` [轉載自GNews](https://gnews.org/zh-hans/780579/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/a4b4-khxeamv7087832-1.jpg)
+*收集评论：Cathy｜PR: Alicia*
 
-*收集、评论：Cathy｜PR：CharlesS*
+# **新浪网引新华网：从习近平考察细节 看“中国然诺, 世界赴约”**
 
-🔗[*原文链接：*](https://news.sina.com.cn/w/2021-01-20/doc-ikftpnnx9563114.shtml)
+[*🔗原文链接*](https://news.sina.com.cn/c/xl/2021-01-20/doc-ikftssan8589650.shtml)
 
-# **原文标题：新华社：今天是拜登的大日子 但普京彪悍地先抢了世界头条    **
-
-评：这种普京在美国大选日抢了世界头条的新闻能占据前排版面，说明中共对拜登的就职仪式心理没底，想转移视线，并且挑拨俄罗斯和美国之间的关系。
+评论：近平最近被报考察冬奥会的建设，文章结尾以“2022年相约北京！”习近平的“邀请函”早已发出。中国然诺，世界赴约。似以此和正义力量打擂台，要挟全世界站队的意思。
 
 编辑：【G-News特战队】
 
-+1
+0
