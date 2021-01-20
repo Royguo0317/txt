@@ -14,141 +14,135 @@
 
 ---
 
-### [《路德时评》重磅解读美国务院正式定义中共种族灭绝罪](/content/gnews/1/README.md)
+### [【1.20实况】拜登上任第一天将发布17项行政措施](/content/gnews/1/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【1.20实况】川普总统：“我们会以某种方式回来！”](/content/gnews/2/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [《路德时评》重磅解读美国务院正式定义中共种族灭绝罪](/content/gnews/3/README.md)
  ` 香柏树`
 
-### [中共因在新疆犯下种族灭绝罪和危害人类罪而即将受到纽伦堡法庭的大审判](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [川普遵循传统，给拜登留字条](/content/gnews/4/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [中国共产党不是美国朋友—蓬佩奥](/content/gnews/3/README.md)
- ` wenwu`
+### [中共是如何对新疆维吾尔族的实施种族灭绝的?](/content/gnews/5/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [《路德时评》邀请闫丽梦博士“纪念”“119节目”一周年](/content/gnews/4/README.md)
- ` 香柏树`
-
-### [突发：实名举报河南省济源市市委书记打人的尚小娟被处理了！](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【军事快讯】罗斯福航母编队和日本海军在战云密布的西太平洋联合演习](/content/gnews/6/README.md)
- ` 纽约香草山农场`
-
-### [视频《路德社》新闻快讯（视频版） 2021/01/16 纳瓦罗先生接受Jeanine法官访谈：跟中共国的摊牌是拜登政府第一场真正的考验](/content/gnews/7/README.md)
- ` 路德社`
-
-### [WHO早知冠状病毒是人工改造，而且无抗体无疫苗!](/content/gnews/8/README.md)
- ` Himalaya Australia`
-
-### [你准备好大重启了吗？](/content/gnews/9/README.md)
- ` 纽约香草山农场`
-
-### [视频第一夫人梅拉尼娅在川普总统即将结束第一任期之际发布讲话（2021.01.18）](/content/gnews/10/README.md)
+### [视频《上帝保佑美國》(附中英文歌词)](/content/gnews/6/README.md)
  ` Himalaya Rose Garden Team`
 
-### [视频《路德社》新闻快讯（视频版） 2021/01/16 章家敦在Newsmax接受采访：WHO在中共国执行的调查并不会得出任何结果；美国正在挑战中共国，我们正在正确的道路上前进](/content/gnews/11/README.md)
- ` 路德社`
+### [闫丽梦博士每周锦集（中文）1/16期](/content/gnews/7/README.md)
+ ` 喜馬拉雅多語組`
 
-### [美国主要民兵组织向美国爱国者发出警告](/content/gnews/12/README.md)
- ` GM126`
+### [川普预测新政府将取得成功，但未提及乔·拜登的名字](/content/gnews/8/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [福奇的功能增强试验知多少？](/content/gnews/13/README.md)
- ` Himalaya Australia`
+### [改变美国历史的离职典礼](/content/gnews/9/README.md)
+ ` G-NEWS TAIWAN`
 
-### [浅谈第三次世界大战](/content/gnews/14/README.md)
- ` 康州盘古喜马拉雅农场`
+### [川普总统动向福克斯新闻最新观察](/content/gnews/10/README.md)
+ ` 喜馬拉雅的文雅 Wenya Himalaya`
 
-### [美国表示，中共对维吾尔人的镇压是 “种族灭绝”](/content/gnews/15/README.md)
- ` 康州盘古喜马拉雅农场`
+### [MAGA运动只是开始 川普总统有意创建爱国党](/content/gnews/11/README.md)
+ ` HimalayaRussia`
 
-### [美国称中共国对维吾尔人的镇压是 “种族灭绝”&#8212;-纽约时报](/content/gnews/16/README.md)
- ` 纽约香草山农场`
+### [【香草诗词汇】大寒](/content/gnews/12/README.md)
+ ` 纽约香草山MOS01`
 
-### [119成为中共的911](/content/gnews/17/README.md)
- ` gnewscanada`
+### [【世事解评】关于美国总统宣誓就职典礼您需要了解的](/content/gnews/13/README.md)
+ ` 纽约香草山MOS01`
 
-### [中共被定义为种族灭绝罪](/content/gnews/18/README.md)
- ` 纽约香草山农场`
+### [疫情甩锅](/content/gnews/14/README.md)
+ ` 喜馬拉雅多語組`
 
-### [视频美国大选终极之战: 1月20号美国总统就职仪式大直播!](/content/gnews/19/README.md)
- ` 秘密翻译组G-Translators`
+### [【文字版】路德时评2021.01.19晚间：重磅中的重磅！119美国务院正式定罪中共种族灭绝和反人类罪，中共将如何结束](/content/gnews/15/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
 
-### [视频【路德时评粤语快报】01.19：回顾路德社1.19一周年记](/content/gnews/20/README.md)
+### [【热点播报】加州暂停接种问题批次的Moderna疫苗](/content/gnews/16/README.md)
+ ` 纽约香草山MOS01`
+
+### [杰森·米勒（Jason Miller）：川普将有第二任期](/content/gnews/17/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [视频国语【香港快讯】 1.20「公务员宣誓」扩大辞职潮 港警粉饰太平 反送中「砖阵」获最高人气奖](/content/gnews/18/README.md)
  ` 喜馬拉雅大使館-粵語組`
 
-### [中共掩盖的种族灭绝行动](/content/gnews/21/README.md)
- ` G-NEWS TAIWAN`
+### [119一年以来的世界发生的巨大变化 ————《路德社》1.19早 简讯（路安墨闫）](/content/gnews/19/README.md)
+ ` 路德社精选`
 
-### [2021年01月19日澳喜要闻（每日更新）](/content/gnews/22/README.md)
+### [推特将在全球范围内进一步压制言论自由](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [揭露中共国宣传的谎言，对比中美政府四年政绩](/content/gnews/21/README.md)
+ ` 喜马拉雅巴黎七星农场`
+
+### [定了！中共对新疆人实施“种族灭绝和危害人类罪”](/content/gnews/22/README.md)
  ` Himalaya Australia`
 
-### [美国认证！中国共产党在新疆的种族灭绝罪行](/content/gnews/23/README.md)
+### [中共病毒爆发后一年的心路历程](/content/gnews/23/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [美国大选结束后的中共恶梦](/content/gnews/24/README.md)
+ ` 恩典农场`
+
+### [中共国法学博士 遭遇中共暴力强拆 绝望跳楼 四川师范大学法学教授跳楼自尽](/content/gnews/25/README.md)
+ ` shang`
+
+### [【正道观察】每一个人的终极之战](/content/gnews/26/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [2021为什么说将没有中国共产党](/content/gnews/27/README.md)
+ ` JPHIMALAYA`
+
+### [《路德社》精选新闻简讯: 理屈词穷，中共战狼外交已经焦点模糊](/content/gnews/28/README.md)
+ ` 路德社精选`
+
+### [闫丽梦博士爆料大事件和时间线2020/1/18至2021/1/18](/content/gnews/29/README.md)
+ ` JPHIMALAYA`
+
+### [拜登打算就职后第一时间签署废除川普总统政策行政令](/content/gnews/30/README.md)
+ ` 喜馬拉雅的文雅 Wenya Himalaya`
+
+### [2021/01/18-19 英喜时事速递](/content/gnews/31/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [认清中共邪恶的本质 分化矛盾 谎言治国](/content/gnews/32/README.md)
  ` G-NEWS TAIWAN`
 
-### [【2021/01/19】文贵先生盖特 4](/content/gnews/24/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+### [2021年1月18日郭先生盖特内容整理（附盖特视频文字听写）](/content/gnews/33/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
 
-### [119一周年回望百步亭——致我苦难的同胞](/content/gnews/25/README.md)
- ` gnewscanada`
-
-### [冲破左派封锁：乔什-霍利新书《大科技暴政》终将出版](/content/gnews/26/README.md)
- ` gnewscanada`
-
-### [视频中共世纪谎言之一：长征](/content/gnews/27/README.md)
+### [1/20/2021 财经快讯：美国或将采取大规模刺激方案，亚洲股市创历史新高](/content/gnews/34/README.md)
  ` 秘密翻译组G-Translators`
 
-### [【军事快讯】FBI“政审”驻防华盛顿特区的国民警卫队官兵，已有两名士兵被除名](/content/gnews/28/README.md)
- ` 纽约香草山农场`
+### [2021年1月17日郭先生直播总结（附听写完整版）](/content/gnews/35/README.md)
+ ` 新加坡狮城农场 Himalaya Singapore`
 
-### [视频路德时评简讯（视频版）: 梵蒂冈内部斗争已经开始（2021.1.17 晚间 路德社简讯之路博艾冠谈 ）](/content/gnews/29/README.md)
+### [麦康奈尔及妻子赵小兰与中共国政府有财务关联](/content/gnews/36/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共已不可逆地被押上了断头台&#8211;川普政府宣布中国在新疆犯下种族灭绝和反人类罪！](/content/gnews/37/README.md)
+ ` 喜马拉雅大使馆-经济金融组`
+
+### [以独立宣言之名，兑现神圣的支票](/content/gnews/38/README.md)
+ ` G-NEWS TAIWAN`
+
+### [视频《路德社》新闻快讯（视频版） 2021/01/19 Dobbs訪談白邦瑞博士:中共国拥有WHO、WHO等组织承认被误导、大家都知道这些组织跟中共国共谋信息隐瞒](/content/gnews/39/README.md)
  ` 路德社`
 
-### [蓬佩奥严正声明：中共犯有种族灭绝 反人类罪！](/content/gnews/30/README.md)
- ` gnewscanada`
+### [遥遥领先的预言：田局长落马记](/content/gnews/40/README.md)
+ ` 波士顿五月花农场`
 
-### [川普总统发布有关保护执法人员行政令](/content/gnews/31/README.md)
+### [【国内快讯】疫情未过，沈阳却“变相鼓励”外出旅游](/content/gnews/41/README.md)
+ ` 国内新闻组`
+
+### [典礼日中文时事速递-001](/content/gnews/42/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【推特实况】1/19/2021 美国宣布中共国对维吾尔人的压迫是种族灭绝罪&#8230;](/content/gnews/43/README.md)
  ` 秘密翻译组G-Translators`
 
-### [中共制裁涉台问题的美国官员纯属虚张声势](/content/gnews/32/README.md)
- ` HimalayaRussia`
-
-### [119一周年感想](/content/gnews/33/README.md)
- ` 温哥华圆成农场🇨🇦`
-
-### [喀秋莎新闻参考- 2021年1月18日 (星期一)](/content/gnews/34/README.md)
- ` HimalayaRussia`
-
-### [超级重磅：国务卿关于新疆暴行的决定（原文）](/content/gnews/35/README.md)
- ` HimalayaRussia`
-
-### [川普必须宣布中共为跨国犯罪集团](/content/gnews/36/README.md)
+### [美国国家情报总监报告揭露中共国干预大选，中情局高层阻止报告发布](/content/gnews/44/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [蓬佩奥宣布中共对新疆维吾尔族的镇压构成“种族灭绝和反人类罪”](/content/gnews/37/README.md)
- ` HimalayaRussia`
-
-### [川普总统周三不会亲自欢迎中共乔入主白宫](/content/gnews/38/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [加州紧急停用一批MODERNA疫苗](/content/gnews/39/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [特鲁多急不可耐期待与拜登政府重建合作](/content/gnews/40/README.md)
- ` gnewscanada`
-
-### [【看七哥视频】病毒真相会改变世界！](/content/gnews/41/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [关于保护执法人员、法官、检察官及其家属的总统令](/content/gnews/42/README.md)
- ` gnewscanada`
-
-### [视频2021/01/18 班农作战室：定性中共为跨国犯罪集团迫在眉睫](/content/gnews/43/README.md)
- ` Gnews Special Squad`
-
-### [2021/01/18 英喜时评第十八期](/content/gnews/44/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [郭爆料串珠（156）绝对不能打疫苗！全世界90%多的疫苗都是以中共疫苗为基础的，谁打谁倒霉！](/content/gnews/45/README.md)
- ` 喜马拉雅德国慕尼黑感恩农场`
-
-### [简单](/content/gnews/46/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
 

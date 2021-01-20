@@ -1,43 +1,183 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】罗斯福航母编队和日本海军在战云密布的西太平洋联合演习
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/774614/)
+## 《上帝保佑美國》(附中英文歌词)
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/778141/)
 
-作者：纽约香草山写作组   Wilson
+歌词大意：
+
+If tomorrow all the things were gone
+
+如果明天我为之奋斗了一辈子
+
+I’d worked for all my life
+
+的东西所有都化为乌有
+
+And I had to start again
+
+我不得不重新开始
+
+With just my children and my wife
+
+惟独还有我的妻儿陪伴身边
+
+I’d thank my lucky stars
+
+我要感谢我的幸运星
+
+To be living here today
+
+让我今天还生活在这里
+
+Where the flag still stands for freedom
+
+生活在一个旗帜仍象征着自由的地方
+
+And they can’t take that away
+
+没人能夺走那旗帜
+
+And I’m proud to be an American
+
+我以身为美国人为荣
+
+Where at least I know I’m free
+
+在这里我至少拥有自由
+
+And I won’t forget the men who died
+
+我不会遗忘那些阵亡的将士
+
+Who gave that right to me
+
+是他们赋予我这些权利
+
+And I gladly stand up next to you
+
+有幸与你站在一起
+
+And defend her still today
+
+至今仍然捍卫着她
+
+‘Cause there ain’t no doubt I love this land
+
+因为毫无疑问我挚爱这片土地
+
+God Bless the U.S.A.
+
+上帝保佑美国
+
+From the lakes of Minnesota
+
+从明尼苏达的万湖
+
+To the hills of Tennessee
+
+到田纳西的群山
+
+Across the plains of Texas
+
+横跨德克萨斯的平原
+
+From sea to shining sea
+
+从大西洋岸到太平洋
+
+From Detroit down to Houston
+
+从底特律到休斯敦
+
+And New York to L.A.
+
+从纽约到洛杉矶
+
+Well there’s pride in every American heart
+
+每一个美国人心中都充满骄傲
+
+And it’s time we stand and say
+
+是时候我们站起来说
+
+That I’m proud to be an American
+
+我以身为美国人为荣
+
+Where at least I know I’m free
+
+在这里我至少拥有自由
+
+And I won’t forget the men who died
+
+我不会遗忘那些阵亡的将士
+
+Who gave that right to me
+
+是他们赋予我这些权利
+
+And I gladly stand up next to you
+
+有幸与你站在一起
+
+And defend her still today
+
+至今仍然捍卫着她
+
+‘Cause there ain’t no doubt I love this land
+
+因为毫无疑问我挚爱这片土地
+
+God Bless the U.S.A.
+
+上帝保佑美国
+
+God bless this country
+
+上帝保佑这个国家
+
+And I’m proud to be an American
+
+我以身为美国人为荣
+
+Where at least I know I’m free
+
+在这里我至少拥有自由
+
+And I won’t forget the men who died
+
+我不会遗忘那些阵亡的将士
+
+Who gave that right to me
+
+是他们赋予我这些权利
+
+And I gladly stand up next to you
+
+有幸与你站在一起
+
+And defend her still today
+
+至今仍然捍卫着她
+
+‘Cause there ain’t no doubt I love this land
+
+因为毫无疑问我挚爱这片土地
+
+God Bless the U.S.A.
+
+上帝保佑美国
+
+翻译：【Dlrow】【Isaiah4031】校对：【JoyJoy】字幕：【相机过热啊】
+
+喜马拉雅玫瑰园小队出品
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+> [福克斯新闻发布格林伍德和美国大兵的新版《上帝保佑美国》- 有望再成打榜歌曲！](https://gnews.org/zh-hans/254959/)
 
 
 
-Dr. Bo(博博士)近日发布推文透露，美国罗斯福航母打击群和日本海军自卫队在西太平洋进行联合演习。同时，美国的美利坚号两栖战备群在日本冲绳海域集结待命。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/13-4.jpg)
-
-罗斯福号公共事务部门于 2021 年 1 月 15 日发布通告称，这是2021年美国和日本之间的第一次双边演习。这次演习的重点是提高战备状态和卓越的战争能力。
-
-点评：罗斯福号是尼米兹级核动力航母系列中第一艘大幅改进型航母，舰体结构的改进使排水量增大了5000吨。罗斯福号是现役10艘航母中作战次数最多、实战经验最丰富的航母，在海湾战争和科索沃战争中该航母表现出色。当前美国把罗斯福号部署在战云密布的西太平洋，具有不同寻常的意义。
-
-现任美国国务卿蓬佩奥今天宣布，定义中共国在新疆对维吾尔族和其他少数民族犯下的罪行为“种族灭绝”和“反人类”罪。加上美国已经掌握中共制造病毒、发动生化战以及干预美国大选的实锤证据，接下来必然是追究中共的责任。战争手段是美国及其盟友的可能选项。
-
-西太平洋沿岸的南海、台湾海峡、东海海域，一直是富有争议和敏感的地方，是海洋国家日本无法绕开的运输生命线。美国为了避免在太平洋纵深单独面对得到战略舒展的中共海军，同时也避免美国本土被中共海军舰船近距离威胁，有十足的动力联合日本等国把中共封锁在第一岛链。台湾因为和日美具有共同的民主价值观，会成为日美同盟中“永不沉没的航空母舰”。突破第一岛链一直是中共海洋战略的出发点，因此双方在以上海域的角力对抗将异常激烈，极有可能成为战争爆发的第一战场。
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-0
++1

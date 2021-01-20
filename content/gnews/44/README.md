@@ -1,108 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/01/18 英喜时评第十八期
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/772822/)
+## 美国国家情报总监报告揭露中共国干预大选，中情局高层阻止报告发布
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/777075/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Fq3Fmie8Epaxe/images/613de020-67ad-4577-a13a-1dd6e2e2a288.jpg?asset_id=4e4af9af-1d96-4374-9541-7d7b18674025&amp;img_etag=%2258bfe1b516078560e064c40ea888a06b%22&amp;size=1024)](https://spark.adobe.com/page/Fq3Fmie8Epaxe/images/613de020-67ad-4577-a13a-1dd6e2e2a288.jpg?asset_id=4e4af9af-1d96-4374-9541-7d7b18674025&amp;img_etag=%2258bfe1b516078560e064c40ea888a06b%22&amp;size=1024)
+*新闻来源：《门户专家（GATEWAY PUNDIT）》|作者：Joe Hoft | 发布时间：2021年1月17日
+翻译/简评：Dreamer文童 | 校对：Beicy-数学老师 |审核：万人往 | Page：Daoiii*
+[!\[\]()!\[\](https://spark.adobe.com/page/k7Ce2bNQ4J0Ow/images/34089bd8-82fe-47e2-bbe1-656eda3336cc.jpg?asset_id=01ea9146-1b8e-46a1-ac6f-d1bf14539b02&amp;img_etag=%22208c1b5d160e0ad6a003125a85b5eede%22&amp;size=1024)](https://spark.adobe.com/page/k7Ce2bNQ4J0Ow/images/34089bd8-82fe-47e2-bbe1-656eda3336cc.jpg?asset_id=01ea9146-1b8e-46a1-ac6f-d1bf14539b02&amp;img_etag=%22208c1b5d160e0ad6a003125a85b5eede%22&amp;size=1024)
+***简评：***
 
-英喜评论人：孙行者、海阔天空、万人往；编辑：海阔天空；Page：拱卒
+**之前有报道爆出，美国大选所使用的多猫腻投票机与中共国、委内瑞拉和伊朗有关联，疑似外国势力干预美国大选。现在，国家情报总监拉特克利夫在向国会提交的信函中，明确指控中共国干预美国大选。作为国家情报官员，能够在向国会提交的正式报告中做出这样的指控，肯定是基于确凿可靠的情报，而非空口无凭。媒体曝光出对中共国干预美国大选的指控，就说明美国官方将正式通过法律途径进行调查并追究责任。**
 
-#### 一、 美国新闻
+**如果该指控最终被确定属实，那么中共必将被定义为有组织的跨国犯罪组织，随之而来的就是根据RICO法案被追责。干预美国总统大选等于破坏美国的宪法基石，其危害程度远远高于普通的有组织犯罪行为。即使华盛顿被中共严重渗透，一旦在法律和情报层面能够证实中共干预美国大选，美国的爱国者们绝不会对政客们的无动于衷而坐视不管。以美灭共的重锤即将落下。**
 
-**【新闻一】**（孙行者）
+***原文翻译*****：**
 
-美国国会众议院13日（周三）以232票赞成197票反对通过以“煽动叛乱”的指控对川普进行弹劾的议案。川普成为美国历史上首位被二度弹劾的总统。10名共和党众议员投了赞成票。
+#### 突发：国家情报总监拉特克利夫发布报告显示，中共国干预2020年大选，中情局管理层向分析师施压阻止发布报告
 
-弹劾通过后，川普总统通过白宫发布简短声明，称他对暴力“说不”，呼吁“保持冷静的情绪“。
+[!\[\]()!\[\](https://spark.adobe.com/page/k7Ce2bNQ4J0Ow/images/dab89f6c-ab8c-40d2-9ba7-d574b946f5d9.png?asset_id=782c1595-5f98-416d-b431-461157314af9&amp;img_etag=%22a255b51d11699f7676310f7425cbe5af%22&amp;size=2560)](https://spark.adobe.com/page/k7Ce2bNQ4J0Ow/images/dab89f6c-ab8c-40d2-9ba7-d574b946f5d9.png?asset_id=782c1595-5f98-416d-b431-461157314af9&amp;img_etag=%22a255b51d11699f7676310f7425cbe5af%22&amp;size=1024)
 
-参议院领袖麦康奈尔发表书面声明称1月20日前参院不会审理弹劾案，国会和行政机构应把总统安全就职和权力有序转移作为重点。
-[!\[\]()!\[\](https://spark.adobe.com/page/Fq3Fmie8Epaxe/images/00f77d68-34d5-4810-a1cc-a15ba8705287.jpg?asset_id=b8ea6d85-c660-4b1f-ac56-d0444569e691&amp;img_etag=%22aa5452118b8340de4a7e22646ede80f4%22&amp;size=1024)](https://spark.adobe.com/page/Fq3Fmie8Epaxe/images/00f77d68-34d5-4810-a1cc-a15ba8705287.jpg?asset_id=b8ea6d85-c660-4b1f-ac56-d0444569e691&amp;img_etag=%22aa5452118b8340de4a7e22646ede80f4%22&amp;size=1024)
-🔗[美国国会第二度弹劾总统特朗普：解疑五个关键问题](https://www.bbc.com/zhongwen/simp/world-55655858)
+**根据国家情报总监拉特克利夫（Ratcliff）的报告，中共国干预2020年大选。 国家情报总监(DNI)约翰·拉特克利夫发布报告称，中共国干预2020年大选，而中情局（CIA）管理层则向下级分析师施压，要求其低估评价报告。**
 
-**【简评】**
+在转交给国会的一封信中，国家情报总监(DNI)约翰·拉特克利夫评估称中共国干预了2020年联邦选举。
 
-一年前，黑人弗洛伊德被警察跪脖窒息而死，安提法(Antifa)和黑命贵(BLM)四处打砸抢烧甚至开枪杀人，几个月时间，25人死于动乱。佩洛西把这些行为形容为“和平游行” ，不但自己下跪，还要为警察减薪水，取消警察。
+拉特克利夫在信中(pdf)指控，有关中共国干预选举的情报受到中情局管理层的压制，中情局向分析师施压，要求他们撤回对这一观点的支持。
 
-一年后，民众抗议国会认证选举舞弊结果，冲击国会大厦，警察开枪打死手无寸铁的退役空军女兵Ashili。佩洛西却杀气腾腾地谴责事件为“暴动”和“恐怖袭击”，受害人为“暴徒”，借机大造声势，发起对川普总统任内的第二次弹劾。佩洛西的这一卑鄙行径用闻所未闻、匪夷所思、丧心病狂来形容一点也不为过。
+国家情报总监援引情报界分析监察员巴里·祖劳夫（Barry Zulauf）的报告称，一些分析师不愿将中共国的行动描述为选举干预，因为他们不同意唐纳德·川普总统的政策。
 
-按照美国宪法规定，弹劾在参议院需要三分之二多数赞成才能通过，这在现在两党平分议席的参议院几乎是不可能的事情。知其不可而为之，佩洛西的用意何在，有哪些不可告人的目的呢？
+在发表有关原始报告文件十天后，《华盛顿观察家》（Washington Examiner）于1月17日发表了拉特克利夫的信函和监察员的报告。国家情报总监办公室（ODNI）并未回应《大纪元时报》提出验证文件真实性的要求。
 
-1、以攻为守，转移公众对民主党拜登团队在大选中公开、大肆舞弊的注意，使得舞弊结果安然落地，成为既成事实。
+拉特克利夫写道，“基于所有可用的情报来源，使用一致适用的定义，并且不受政治考量或不当压力的支配 – 得出的结论是中华人民共和国力求影响2020年美国联邦选举…”
 
-2、贼喊捉贼，掩盖国会设局栽赃、精心策划的行为，陷害抗议民众，达到污蔑、迫害川普总统的目的。
+…无论是监察员的报告还是拉特克利夫的信函，都没有包括中共国干预的细节。
 
-3、 制造总统任内两次被弹劾的历史记录，打击川普总统本人的斗志，万一侥幸成功，既可以杀鸡儆猴，警告任何以后胆敢挑战华盛顿沼泽利益和势力的外来人，也可以防止四年后2024年川普总统重新竞选，回归白宫的可能发生。
+拉特克利夫的报告见下文链接：
 
-4、最为重要的，醉翁之意不在酒，弹劾的真实目的是擒贼擒王，无论成功与否，在舆论、事实上都为将来秋后算账，将MAGA运动定义为恐怖组织活动，为彻底清算川普总统支持者埋下伏笔。
+          (function() { var scribd = document.createElement("script"); scribd.type = "text/javascript"; scribd.async = true; scribd.src = "https://www.scribd.com/javascripts/embed\_code/inject.js"; var s = document.getElementsByTagName("script")[0]; s.parentNode.insertBefore(scribd, s); })()        
 
-两军相逢勇者胜，面对佩洛西为代表的邪恶力量的猖狂进攻，无论是川普总统，还是美国人民都无路可退。转念转身之间，失去的 不只是总统职位、选票，更是自由、安全！
+          (function() { var scribd = document.createElement("script"); scribd.type = "text/javascript"; scribd.async = true; scribd.src = "https://www.scribd.com/javascripts/embed\_code/inject.js"; var s = document.getElementsByTagName("script")[0]; s.parentNode.insertBefore(scribd, s); })()        
 
-**【新闻二】**（海阔天空）
+很明显，中共国和其他国家干预了2020年大选。我们已经提供许多报道，显示中共国干预选举：未成为头条新闻：更多关于中共国介入2020年美国大选的信息
+![]()![](https://www.thegatewaypundit.com/wp-content/uploads/china-joe-600x338.jpg)🔗[https://www.thegatewaypundit.com/2020/12/information-chinas-involvement-2020-election-steal/](https://www.thegatewaypundit.com/2020/12/information-chinas-involvement-2020-election-steal/)
+还有许多其他显示中共国干预2020年大选的报道：川普的知己迈克·林德尔指出，有报道称中共国、俄罗斯和其他国家干预2020年大选。
+![]()![](https://www.thegatewaypundit.com/wp-content/uploads/Foreign-Intervention-in-2020-Election.jpg)🔗[https://www.thegatewaypundit.com/2021/01/trump-confidante-mike-lindell-points-report-china-russia-others-interfered-2020-election/](https://www.thegatewaypundit.com/2021/01/trump-confidante-mike-lindell-points-report-china-russia-others-interfered-2020-election/)
+国家情报总监拉特克利夫有更多关于中共国干预2020年大选的信息。希望在老迈的乔·拜登宣誓就任总统之前，所有问题都得以解决。根据拜登最近的行动方式，他很可能甚至都不知道中共国在哪里。
 
-1. 川普推特账号遭永久封禁，推特用户外流；Gab日增50万人，Gab将川普总统所有推文完整恢复
-2. 投资者不满川普账号被禁？推特股价暴跌12%
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Fq3Fmie8Epaxe/images/36f2621d-f87e-4d76-837a-f420f6f87966.jpg?asset_id=413592de-519f-483b-95b7-1006ed07f0dd&amp;img_etag=%22ae3d020beb1284fd10b5b7c443d2956d%22&amp;size=2560)](https://spark.adobe.com/page/Fq3Fmie8Epaxe/images/36f2621d-f87e-4d76-837a-f420f6f87966.jpg?asset_id=413592de-519f-483b-95b7-1006ed07f0dd&amp;img_etag=%22ae3d020beb1284fd10b5b7c443d2956d%22&amp;size=1024)
-
-🔗[川普总统推特被封后 Gab和Twitter发生了什么？](https://www.soundofhope.org/post/464363)
-
-🔗[投资者不满川普账号被禁？推特股价暴跌12%](https://www.epochtimes.com/gb/21/1/11/n12681134.htm)
-
-**【简评】**
-
-1、 推特、谷歌、亚马逊、苹果、脸书这些硅谷暴君联手封杀川普总统以及支持者，俨然已经成为“神”的代言人，他们可以决定什么是正确，什么是错误，什么是对，什么是错，谁可以说话，谁只能闭嘴。这些大科技公司对言论自由的打压、对川普总统以及支持者的残酷封口让自由的美国蒙羞，同时也不可辩驳的用这些证据证明了“取消230”法案的合理性和紧迫性。
-
-2、 这些大科技公司为什么不顾一切裸奔，迫害川普总统、帮助拜登偷取总统大位？因为川普总统侵害了他们的利益，川普总统不被他们收买，川普总统是为人民发声的总统。
-
-3、 推特封锁川普总统账号，1月11日股价暴跌12%，公司市值损失50亿美元。除推特外，亚马逊市值缩水344亿美元；苹果缩水516亿美元；谷歌缩水280亿美元，推特市值蒸发超26亿美元，脸书市值蒸发大约300亿美元。据此估计，美国五大科技巨头市值在周一蒸发了大约15001⃣️美元。五大公司联合作恶，民众用货币投票，这就是市场对作恶者的惩罚。
-
-4、 大公司的公开作恶也是其他公司的机会，Gab总裁反制“数位大屠杀”，不但备份了川普总统在推特的所有推文，并已将这些推文完整恢复到川普总统在Gab上的账号，其勇敢行为令人钦佩。而在推特封锁川普之后，Gab每小时平均新增1万个账号，整体流量增长约40%，单日有逾50万个新账号登记。更有报道称，硅谷工程师不齿在硅谷暴君手下工作，雪片一样的求职信投向Gab。
-
-5、 此次美国大选，是CCP媒体战、信息战对美国进行攻击的完美演绎，是正义与邪恶的终极对决。在这次对决中，我们看到了黑暗力量的张狂，但更看到了正义力量的坚定，看到了广大民众的觉醒。上帝欲令其灭亡，必先另其疯狂。这些作恶的大科技公司必然会被市场无情抛弃，受到民众的唾弃！
-
-#### 二、中共国新闻（万人往）
-
-**【新闻一】**石家庄让全村人转移隔离、建设集中隔离点为哪般？
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Fq3Fmie8Epaxe/images/0f691635-569b-49f8-957d-056b9fe95d2e.jpg?asset_id=fd1af204-6c29-4be0-aa02-6c4caa51042b&amp;img_etag=%224b5083933642af5cbaceddfca004e6d3%22&amp;size=2560)](https://spark.adobe.com/page/Fq3Fmie8Epaxe/images/0f691635-569b-49f8-957d-056b9fe95d2e.jpg?asset_id=fd1af204-6c29-4be0-aa02-6c4caa51042b&amp;img_etag=%224b5083933642af5cbaceddfca004e6d3%22&amp;size=1024)
-
-1、新华社记者13日从中铁十四局集团滹沱河生态修复三期工程项目部了解到，该项目部当日接到通知参建石家庄市集中隔离点，施工场地位于正定县文正大街诸福屯镇固营村，占地约500亩。
-
-2、项目部13日11点接到上级通知，参建石家庄市集中隔离点的基建施工。基建部分完工后，3000套集成房屋将在硬化的场地上迅速拼装到位。据诚栋集成房屋河北有限公司总经理介绍，公司现在争分夺秒生产，生产线24小时不停歇运转。平时车间的日产能是七八十套，目前达到日产100套以上的突击产能，并保持随产随发。
-
-3、11日清晨，天还未亮，睡梦中的石家庄市藁城区增村镇增村村民就被村里的“大喇叭”叫醒——“全体村民收拾行李，在村口登记，听从安排统一乘车，到异地进行集中隔离观察”。
-
-**【简评】**
-
-1、1月11日，石家庄藁城区增村镇12个村的村民被转移异地隔离，除少数养殖户和无法行动的老人，全体村民被隔离，超过2万人。就算有疫情，也应该封闭村庄，在保障物资供应的情况下就地隔离。让全体村民转移这种劳民伤财的举动只有中共政权能做出来。中共开始集中兴建隔离点，说明短时间内需要集中隔离的人数激增，未来还会发生大规模转移隔离的现象。
-
-2、若被隔离的人按每人5000元/14天的收费标准计算，仅增村镇的12个村就会带来超过亿元的收入。按照“李中堂”的说法，超6亿人月收入不足1000元，他们付得起高昂的隔离费吗？中共不管百姓死活，大兴土木建设“集中营”，大力发展“疫情经济”，只为折腾百姓，掏空他们的口袋。
-
-3、中共让河北进入战时状态，是否和“天线宝宝”被“开瓢”以及中共内斗有关，尚不得而知。但在战时状态下，疫情防控小组的权力大过当年的中央文革小组，以防控疫情之名就可以“合法地”抓人隔离，甚至可以用温度计、健康码让人消失。无论是何种原因，老百姓都是被牺牲的“代价”，只希望中共早日解体，中华儿女少受些苦难。
-
-**【新闻二】**河北省南宫市计划全员接种新冠疫苗
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Fq3Fmie8Epaxe/images/766feacc-295b-4d2a-887f-95ffeed6ba68.jpg?asset_id=69d8060b-259a-4fa5-adcf-a40fc7ddbd9e&amp;img_etag=%22b1fef81a60e05d58dec82f0e25beaf64%22&amp;size=2560)](https://spark.adobe.com/page/Fq3Fmie8Epaxe/images/766feacc-295b-4d2a-887f-95ffeed6ba68.jpg?asset_id=69d8060b-259a-4fa5-adcf-a40fc7ddbd9e&amp;img_etag=%22b1fef81a60e05d58dec82f0e25beaf64%22&amp;size=1024)
-
-1、近日，河北省南宫市启动新冠病毒疫苗紧急接种工作。南宫市抽调428名医护人员投入到接种工作中，预计首批接种人数40002人。
-
-2、前来接种的人员，都要持身份证，经过详细的预检、健康询问等多个环节确认信息无误后方可进行新冠疫苗的接种。这次新冠疫苗接种将分人群、分阶段，规范有序开展，保证接种人员有序接种，全员接种，防止人群聚集。
-
-**【简评】**
-
-1、中共不仅制造病毒、投放病毒，还要强迫所有人都接种疫苗。从来没有发明过疫苗的中共，自称率先研发出能够应对具有强变异性病毒的疫苗。这种疫苗，请中南坑的“老帮菜”们先打。
-
-2、此次河北疫情最严重的地方在石家庄，南宫市是邢台市代管的县级市。假设疫苗有效，按道理来说，应该在石家庄安排接种工作，为什么会在疫情相对不严重的地方推广全员接种疫苗的计划？
-
-3、根据百度百科的数据，2016年南宫市人口为48.17万人。此次全员接种计划中，首批接种4万人，占比约为8.3%。中共想在全国范围内强制接种疫苗，由于产能不足，可能先行在部分区域搞试点。目前尚不清楚中共疫苗的具体危害，根据中共“假大空骗”的德性，疫苗带来的危害可能不亚于病毒本身。
+**[原文链接](https://www.thegatewaypundit.com/2021/01/breaking-dni-ratcliffe-releases-report-showing-china-interfered-2020-election-cia-management-pressured-analysts-not-report/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)**
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
 
 
 编辑：【英国伦敦喜庄园编辑部】
-[!\[\]()!\[\](https://spark.adobe.com/page/Fq3Fmie8Epaxe/images/36513b0f-fde6-499c-8bf6-e5f59abf8bcd.jpg?asset_id=a9c897fa-8c29-4810-a596-8028fed4ce15&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/Fq3Fmie8Epaxe/images/36513b0f-fde6-499c-8bf6-e5f59abf8bcd.jpg?asset_id=a9c897fa-8c29-4810-a596-8028fed4ce15&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-0
+[!\[\]()!\[\](https://spark.adobe.com/page/k7Ce2bNQ4J0Ow/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/k7Ce2bNQ4J0Ow/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
++2
