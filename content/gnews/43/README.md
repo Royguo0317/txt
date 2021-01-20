@@ -1,35 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统与第一夫人及家人平安返抵佛罗里达
-` 旧金山金喜准农场` [轉載自GNews](https://gnews.org/zh-hans/779640/)
+## 华春莹称彭佩奥是“末日小丑”
+` Gnews Special Squad` [轉載自GNews](https://gnews.org/zh-hans/779820/)
 
-**1.20.21见证历史 — 新中国联邦推动终极灭共！系列报道**
+简评/提交：Near｜Pr: Cathy
 
-川普总统今早在安德鲁空军基地发表了最后的告别演讲。随后， 川普与第一夫人登上空军一号，返回佛罗里达。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/14-5.jpg)
 
-约一小时前，上午11点，空军一号在降落在棕榈滩国际机场，把川普总统最后一次以总统身份送到了他在佛罗里达州的家。飞机平稳降落之后，在晴朗的天空和暖和的68度天气下，川普总统和第一夫人梅拉尼娅-川普走下飞机。川普总统向数百名支持者挥手致意。
+# **外交部：末日小丑彭佩奥必将受到历史公正的审判和清算**
 
-在总统抵达之前，川普的支持者已经开始在南大道上排队，这是从棕榈滩国际机场到特朗普先生的私人俱乐部Mar-a-Lago的主要道路。沿途有强大的警察存在，就像在特朗普总统任期的四年中，当他回家度假时一样的欢迎场景。
+[*🔗原文链接*](https://twitter.com/andy5_123/status/1351807950113783812?s=21)
 
-![](https://lh6.googleusercontent.com/b1Wwjrg4XBsQ1q6S27eGXMpEUeIYQpJ6md5h9cScpRYLUA64WerICSGKQI90lqHzgPs-g1VCAuK5HNv69X3BGX3WGj_8rr30dGE8bn3jKgJyEZKh0mW-9iWI_cTKC_DhO_s1b-XK)
-
-沿着南部大道的几个街区进入佛罗里达州棕榈滩，人们挤满了街道，以便在特朗普先生的车队滚过时最后一瞥。当空军一号离开飞过头顶时，民众纷纷拍照并挥手。随后民众期待着川普总统的驾座的经过。
-
-![](https://lh5.googleusercontent.com/GQ20UeJd9g19bkGeU-Pr8qSFx8dC7ubzSeS36z_bk2EKObYxlZcrxjt8nyhNHBJUWTVWWjAdIktBdlvhSWCocx2pE6ltHPjyxDg28Ko6Zpxacgq45iMFqVkrDIabjgfD8q3s8SiW)
+评：华春莹在称彭佩奥在过去几年里撒了太多谎，放了太多毒。华说彭佩奥正在以其末日疯狂和世纪谎言把自己变成末日小丑和世纪笑话。评：华春莹把中共自己撒的谎，放的毒，扮演跳梁小丑的本应被世人谴责的脏水都泼到彭佩奥身上，这是会有报应的。终有一天中共会发现，小丑就是她自己。
 
 
 
-一位民众唐-史密斯说：”我们不愿意看到他离开。” 他从佛罗里达州西南部的清水滩附近驱车三个小时，迎接特朗普先生返回该州。史密斯先生说，他是坚定的川普总统的支持者，也参加了1月6日在华盛顿举行的特朗普先生的集会。
+> CCP不止以真正全人類的公敵的身分，來定義正義勢力為「全人類公敵」
+> 現在更是作為歷史的一個屁，聲稱要審判清算作為正義一方的蓬佩奧國務卿
+> CCP口炮威脅恐嚇，自以為正義，但相信最終這些CCP圖一時之快的話語，會化為行動落到CCP自己的頭上[@ding\_gang02](https://twitter.com/ding_gang02?ref_src=twsrc%5Etfw) [@maryann\_3040](https://twitter.com/maryann_3040?ref_src=twsrc%5Etfw) [@aliah0031](https://twitter.com/aliah0031?ref_src=twsrc%5Etfw) [@BoDiplo](https://twitter.com/BoDiplo?ref_src=twsrc%5Etfw) [@Guan\_PhD](https://twitter.com/Guan_PhD?ref_src=twsrc%5Etfw) [https://t.co/zeMhLJrICW](https://t.co/zeMhLJrICW) [pic.twitter.com/CF3JPLQVER](https://t.co/CF3JPLQVER)
+> — Andy5 (@andy5\_123) [January 20, 2021](https://twitter.com/andy5_123/status/1351807950113783812?ref_src=twsrc%5Etfw)
 
-“川普才应该是我们的总统，”史密斯先生说。”我想说再见，向三军总司令致敬。拜登不是我的当选总统。”
 
-一辆卡车后面的扬声器里响起了音乐。国歌响起。”我们喜欢向总统表达对他的爱戴与支持，”西棕榈滩的兰迪-安德森说，他穿了一件MAGA衬衫去参加这个场合。”这次大选有很多作弊行为，”安德森说，选举结果是不公正的。有八千万美国人与他的想法一致。”我不认为乔会持续很长时间。”
 
-川普总统在其四年任期内完全兑现了他的竞选承诺。是美国历史上少有的说到做到的总统！川普在任上完成了前所未有的成就，比他的前6任总统相加的成就还要多。让我们为川普总统祈祷！让我们为美国祈祷！
+编辑：【G-News特战队】
 
-我们祈祷：正义必胜。人们必胜！
-
-编译：Bingo
-
-+12
+0

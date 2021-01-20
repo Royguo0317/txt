@@ -1,18 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 北京疫情开始扩大，第二次疫情爆发无法避免
-` Gnews Special Squad` [轉載自GNews](https://gnews.org/zh-hans/780716/)
+## 川普总统：“我会以某种形式回归”！
+` Gnews Special Squad` [轉載自GNews](https://gnews.org/zh-hans/781114/)
 
-*收集评论：Cathy｜PR: Alicia*
+*收集评论：文大石 / 校对: Alicia*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/6-2-1.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-川普-抱国旗.jpeg)
 
-# **今日头条：全区人员禁止离京，地铁站封闭，大兴感染者升至10人**
+**搜狐报道了拜登正式宣誓就职美国46届总统，但也同时报道了川普总统告别演讲：“我会以某种形式回来的。”**
 
-[*🔗原文链接*](https://www.toutiao.com/a6919650769801183756/)
+***评论***：墙内也无法回避的川普总统要强势回归的趋势和民意。
 
-评论：北京疫情开始扩大，第二次疫情爆发无法避免。这是不是军事方面的异动，还有待观察。
+🔗*[原文链接](https://www.sohu.com/a/445785998_162522)*
 
 编辑：【G-News特战队】
 

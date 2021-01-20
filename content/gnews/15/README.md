@@ -1,16 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 习近平以“中国然诺, 世界赴约”要挟全世界战队
-` Gnews Special Squad` [轉載自GNews](https://gnews.org/zh-hans/780579/)
+## 美最高法院受到炸弹威胁，紧急疏散
+` Gnews Special Squad` [轉載自GNews](https://gnews.org/zh-hans/780847/)
 
-*收集评论：Cathy｜PR: Alicia*
+*收集评论：文大石 / 校对: Alicia*
 
-# **新浪网引新华网：从习近平考察细节 看“中国然诺, 世界赴约”**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-85.png)
 
-[*🔗原文链接*](https://news.sina.com.cn/c/xl/2021-01-20/doc-ikftssan8589650.shtml)
+**环球网：美最高法院受到炸弹威胁，紧急疏散**
 
-评论：近平最近被报考察冬奥会的建设，文章结尾以“2022年相约北京！”习近平的“邀请函”早已发出。中国然诺，世界赴约。似以此和正义力量打擂台，要挟全世界站队的意思。
+**评论**：这则快讯是援引CNN消息，美国最高法院受到炸弹威胁，最高法院位于拜登就职典礼举办地国会山的对面。
+
+🔗*[原文链接](https://baijiahao.baidu.com/s?id=1689420095273699698&amp;wfr=spider&amp;for=pc)*
 
 编辑：【G-News特战队】
 
