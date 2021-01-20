@@ -1,183 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《上帝保佑美國》(附中英文歌词)
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/778141/)
+## 前总统到场参加拜登就职典礼
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/778760/)
 
-歌词大意：
+- 编辑：Victor Torres
 
-If tomorrow all the things were gone
 
-如果明天我为之奋斗了一辈子
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-I’d worked for all my life
+**西班牙2021年1月20日电/西喜社——**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/004-6.jpg)
+出席当选总统拜登就职典礼的所有美国前总统都已抵达美国国会大厦。
 
-的东西所有都化为乌有
+乔治-W-布什和他的妻子劳拉于周三上午率先抵达综合大楼，比拜登的宣誓仪式早几个小时。
 
-And I had to start again
+巴拉克和米歇尔·奥巴马以及比尔和希拉里·克林顿紧随其后，每对夫妇都分别乘坐车队抵达。
 
-我不得不重新开始
+另一位在世的前总统、96岁的吉米·卡特此前宣布不会出席拜登的就职典礼。卡特和他的妻子，93岁的罗莎琳·卡特，主要是在乔治亚州平原市的家中度过中共病毒大流行。
 
-With just my children and my wife
+卡特曾在2017年成为第一位确认参加唐纳德·川普就职典礼的前总统。
 
-惟独还有我的妻儿陪伴身边
+川普和第一夫人梅拉尼娅·川普周三早些时候离开华盛顿，跳过拜登的就职庆典，直奔佛罗里达州的家。川普是自安德鲁·约翰逊以来第一位不参加继任者就职典礼的总统。
 
-I’d thank my lucky stars
-
-我要感谢我的幸运星
-
-To be living here today
-
-让我今天还生活在这里
-
-Where the flag still stands for freedom
-
-生活在一个旗帜仍象征着自由的地方
-
-And they can’t take that away
-
-没人能夺走那旗帜
-
-And I’m proud to be an American
-
-我以身为美国人为荣
-
-Where at least I know I’m free
-
-在这里我至少拥有自由
-
-And I won’t forget the men who died
-
-我不会遗忘那些阵亡的将士
-
-Who gave that right to me
-
-是他们赋予我这些权利
-
-And I gladly stand up next to you
-
-有幸与你站在一起
-
-And defend her still today
-
-至今仍然捍卫着她
-
-‘Cause there ain’t no doubt I love this land
-
-因为毫无疑问我挚爱这片土地
-
-God Bless the U.S.A.
-
-上帝保佑美国
-
-From the lakes of Minnesota
-
-从明尼苏达的万湖
-
-To the hills of Tennessee
-
-到田纳西的群山
-
-Across the plains of Texas
-
-横跨德克萨斯的平原
-
-From sea to shining sea
-
-从大西洋岸到太平洋
-
-From Detroit down to Houston
-
-从底特律到休斯敦
-
-And New York to L.A.
-
-从纽约到洛杉矶
-
-Well there’s pride in every American heart
-
-每一个美国人心中都充满骄傲
-
-And it’s time we stand and say
-
-是时候我们站起来说
-
-That I’m proud to be an American
-
-我以身为美国人为荣
-
-Where at least I know I’m free
-
-在这里我至少拥有自由
-
-And I won’t forget the men who died
-
-我不会遗忘那些阵亡的将士
-
-Who gave that right to me
-
-是他们赋予我这些权利
-
-And I gladly stand up next to you
-
-有幸与你站在一起
-
-And defend her still today
-
-至今仍然捍卫着她
-
-‘Cause there ain’t no doubt I love this land
-
-因为毫无疑问我挚爱这片土地
-
-God Bless the U.S.A.
-
-上帝保佑美国
-
-God bless this country
-
-上帝保佑这个国家
-
-And I’m proud to be an American
-
-我以身为美国人为荣
-
-Where at least I know I’m free
-
-在这里我至少拥有自由
-
-And I won’t forget the men who died
-
-我不会遗忘那些阵亡的将士
-
-Who gave that right to me
-
-是他们赋予我这些权利
-
-And I gladly stand up next to you
-
-有幸与你站在一起
-
-And defend her still today
-
-至今仍然捍卫着她
-
-‘Cause there ain’t no doubt I love this land
-
-因为毫无疑问我挚爱这片土地
-
-God Bless the U.S.A.
-
-上帝保佑美国
-
-翻译：【Dlrow】【Isaiah4031】校对：【JoyJoy】字幕：【相机过热啊】
-
-喜马拉雅玫瑰园小队出品
-
-
-
-> [福克斯新闻发布格林伍德和美国大兵的新版《上帝保佑美国》- 有望再成打榜歌曲！](https://gnews.org/zh-hans/254959/)
-
-
-
-+1
+新闻链接：[https://apnews.com/article/joe-biden-inauguration-news-0a49b6d8b3c9904d88d5bccfd854ab25](https://apnews.com/article/joe-biden-inauguration-news-0a49b6d8b3c9904d88d5bccfd854ab25)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+0

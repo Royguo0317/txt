@@ -1,39 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 推特将在全球范围内进一步压制言论自由
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/777847/)
+## 蓬佩奥国务卿认定中共的种族灭绝和反人类罪行
+` 喜马拉雅大使馆-经济金融组` [轉載自GNews](https://gnews.org/zh-hans/778360/)
 
-*新闻来源：Fox News 《福克斯新闻》 | 作者：Joseph A. Wulfsohn约瑟夫-沃尔夫森 | 发布时间：2021年1月19日*
+整撰：文白金
+复核：WJMG
 
-*翻译/简评：随波逐流 | 校对：X-Wing飞得更高 | 审核：万人往 | Page：DoReMi Rose*
+美国国务院1月19日宣布，中国共产党对新疆维吾尔穆斯林和其他普遍和宗教少数派群体成员犯下种族灭绝和反人类罪行。国务卿彭培奥指出，这些行为是对中国人民和世界各地文明国家的侮辱，必须追究中共的责任。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/jQRmTCuOd6AlC/images/39184293-8b80-4600-b4c5-3090f60c68fe.jpg?asset_id=2b922ae6-a31e-441a-8160-586fd3559ce8&amp;img_etag=%22eb36ab1ef5819b18e366bc1b4f4f36bc%22&amp;size=2560)](https://spark.adobe.com/page/jQRmTCuOd6AlC/images/39184293-8b80-4600-b4c5-3090f60c68fe.jpg?asset_id=2b922ae6-a31e-441a-8160-586fd3559ce8&amp;img_etag=%22eb36ab1ef5819b18e366bc1b4f4f36bc%22&amp;size=1024)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/3-45.jpg)
 
-**简评：**
+蓬佩奥国务卿在声明中明确表示：“至少在2017年3月以来，中共政府关押了100多万维吾尔族穆斯林，并对很多关押者实施酷刑和强迫劳动，严厉限制其宗教自由或信仰自由、言论自由和行动自由。二战结束时的纽伦堡审判惩办了犯下反人类罪的罪犯，而如今同样令人发指的罪行正在新疆发生。”
 
-一个名为“真相工程”组织发起了“曝光推特”运动，它在《福克斯新闻》曝光的视频揭露了推特滥用审查制度、压制言论自由的做法。在曝光的视频中，推特的顶层管理人员维贾亚·盖德说，该公司将有一个“全球做法”以打击虚假信息。谈到要“超越去扩大化”，其中包括永久停止传播“阴谋论”的帐户，加大对公民诚信政策的执行力度，并使用一个禁止参与的标签，以阻止潜在的围绕着选举干扰、选举欺诈、窃取选举这类煽动性内容的传播。推特首席执行官杰克·多尔西为针对川普的禁令辩解，称之为“正确的决定”，但承认公司的权力开创了“危险”的先例，在遭曝光的一段视频中，多尔西告诉员工，其后续行动将比川普总统的禁令“更大”。
+“中共还对维吾尔族妇女采取强迫绝育和堕胎的措施，强迫她们与非维吾尔人结婚，并将维吾尔族儿童带离他们的家人，中共在对一个弱势民族和宗教少数群体施行强迫同化并要最终将其消灭。”根据国际公约，种族灭绝是“意图全部或部分消灭一个民族，种族，种族或宗教团体。”
 
-推特一方面有选择地限制言论自由，禁止川普发文，另一方面却允许像伊朗的阿亚图拉、路易斯·法拉堪、中共的宣传者活跃在推特平台上。阿亚图拉·哈梅内伊多次发推文煽动针对美国和以色列的暴力，中共媒体推文指控新冠病毒来自“进口冷冻食品”的言论，从未受到推特限制。推特的这种双标的做法已经引发了公众的强烈不满。
+“中共不仅拒绝国际观察人员不受阻碍地进入新疆，对关于当地局势日益恶化的可靠报道采取否认态度，反而编织有关幸福的维吾尔人参加教育、反恐怖主义、妇女自主权和减轻贫困等项目的谎言。”
 
-“真相工程”的创始人詹姆斯·奥基夫在接受《福克斯新闻》“汉尼提”访谈时说，已经有很多人找到他们，向他们提供揭露真相的信息。相信未来将有更多的人站出来曝光推特、Facebook等社交媒体背后的种种卑鄙做法。只有不断地曝光他们，才会让公众知道真相，才会让他们退缩以致消失，这是最有效的解决办法。推特一定会失去绝大多数用户的信任和支持，一定会为自己的所作所为付出巨大代价。
+蓬佩奥国务卿呼吁中共立即释放所有被关押的人，停止继续实施罪行。并倡议所有跨国机构和有关司法机构与美国一道，促进对中共残暴行径进行追责。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/jQRmTCuOd6AlC/images/a1deedbc-7083-4482-9d7c-a46f877d4edb.jpg?asset_id=3195bdfc-5a8c-4198-aec4-bc34646eb5a1&amp;img_etag=%22080675e6a8e78a89439eb4e254c310b5%22&amp;size=2560)](https://spark.adobe.com/page/jQRmTCuOd6AlC/images/a1deedbc-7083-4482-9d7c-a46f877d4edb.jpg?asset_id=3195bdfc-5a8c-4198-aec4-bc34646eb5a1&amp;img_etag=%22080675e6a8e78a89439eb4e254c310b5%22&amp;size=1024)
+作为回应，中国驻华盛顿大使馆在同日晚间发表一份声明说：“所谓的新疆种族灭绝只是一个谎言。新疆和维吾尔族的总人口从2010年开始增长到2018年。新疆的政策是与“恐怖主义和极端主义”作斗争的一部分，这些措施已被证明能够很好地服务于新疆的局势，并取得了显著成果。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/jQRmTCuOd6AlC/images/f0434562-77a5-4d2a-8739-66a191601ba2.png?asset_id=df8a7eac-20e7-4edb-9faa-1da374b16a0d&amp;img_etag=%226ba32ea6b964b36e1651f88cafdf599d%22&amp;size=3262)](https://spark.adobe.com/page/jQRmTCuOd6AlC/images/f0434562-77a5-4d2a-8739-66a191601ba2.png?asset_id=df8a7eac-20e7-4edb-9faa-1da374b16a0d&amp;img_etag=%226ba32ea6b964b36e1651f88cafdf599d%22&amp;size=1024)
+中国驻华盛顿大使馆本月曾在推特上表示，维吾尔族妇女已经“解放”，“不再是制造婴儿的机器”。Twitter随后删除了此评论，并告诉记者，该帖子违反了禁止“非人性化”的规定。显然，在中共人权问题上，Twitter并不与川普政府唱反调。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/jQRmTCuOd6AlC/images/76dfc78a-ae5c-4b29-a5bc-f4b815e602dd.png?asset_id=d03af8e8-5341-4eda-95b3-21bc8c54cbb6&amp;img_etag=%22221ae9413440dd6abb28aed601eea1d6%22&amp;size=3907)](https://spark.adobe.com/page/jQRmTCuOd6AlC/images/76dfc78a-ae5c-4b29-a5bc-f4b815e602dd.png?asset_id=d03af8e8-5341-4eda-95b3-21bc8c54cbb6&amp;img_etag=%22221ae9413440dd6abb28aed601eea1d6%22&amp;size=1024)
+编者观点：
 
-[🔗 原文链接](https://www.foxnews.com/media/twitter-vijaya-gadde-global-approach-project-veritas)
+蓬佩奥国务卿在任期结束的前一天，认定中共对待新疆人民的反人类和种族灭绝的罪行，结束了自1989年学运至今三十多年来，西方政客把人权当作政治筹码，对待中共从明谴责暗勾兑到实质性的雷霆行动，蓬佩奥国务卿是一位真正的灭共者。
 
-[👉 点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+而且，国务院在美国各界和两党无争议的中共侵犯人权问题上作为突破口，向全世界人民揭穿中共隐瞒残暴对待人民的真相，不仅实现了认定中共触犯国际法，也能为呼之欲出的中共是犯罪集团危害全世界国家的安全，以及中共制造生物武器造成全球超过200多万人失去生命的罪名做好铺垫。
 
-[📺 点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+蓬佩奥国务卿在声明中提到的纽伦堡审判（Nuremberg Trials）是二战结束后，德国纳粹主要官员因战争罪、危害和平罪和反人类罪行被起诉后，在德国纽伦堡国际军事法庭（IMT）上接受审判。我们相信，中共盗国贼几大家族在纽伦堡接受世界人民审判的日子不远了。
 
-[🔊 欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-编辑：[【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/jQRmTCuOd6AlC/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/jQRmTCuOd6AlC/images/b6316c48-f5e1-4e00-9989-bde87b1aa30e.jpg?asset_id=24412bfa-3fc9-4f35-ac37-18bde2ee0b96&amp;img_etag=%22a2cf33046c9e68ca6f2b2465b2dd13f8%22&amp;size=2560)](https://spark.adobe.com/page/jQRmTCuOd6AlC/images/b6316c48-f5e1-4e00-9989-bde87b1aa30e.jpg?asset_id=24412bfa-3fc9-4f35-ac37-18bde2ee0b96&amp;img_etag=%22a2cf33046c9e68ca6f2b2465b2dd13f8%22&amp;size=1024)
+参考链接：
+[https://china.usembassy-china.org.cn/zh/determination-of-the-secretary-of-state-on-atrocities-in-xinjiang-cn/](https://china.usembassy-china.org.cn/zh/determination-of-the-secretary-of-state-on-atrocities-in-xinjiang-cn/)
 
 0

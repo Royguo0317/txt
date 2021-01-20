@@ -1,31 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疫情甩锅
-` 喜馬拉雅多語組` [轉載自GNews](https://gnews.org/zh-hans/777804/)
+## 迈克·彭斯到场参加就职典礼
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/778568/)
 
-原创作者：小螞蟻的自由
-编辑整理：am夏天
-图片来源：喜韩农场
-
-2020 疫情广，中共急着甩锅忙
-蝙蝠蝙蝠快出来，这个背锅你来当
-蝙蝠一听变了脸，这可堪比窦娥冤
-不行不行我不背，你看谁好欺负去找谁
-中共差点气断肠，白做了这碗蝙蝠汤
-穿山甲呀蛇儿长，各种动物齐上场
-外星人也遭了殃，只要疫情有一例
-泊来食品都受伤，世界砖家齐助阵
-撒谎撒谎再撒谎，无奈出个闫博士
-两个报告出真相。
-没新谎，心也慌，这个背锅侠呀没人当，
-眼看着弥天大祸兜不住，世界对准了要齐开枪
-完了完了完蛋了，**黑社会邪教组织
-中国共产党**
-
-加注：中国共产党生产了这个冠状病毒，为了掩盖真相，到处找病毒源体来甩锅。 找完了蝙蝠找水貂，再找外国人携带病原体进入中共国等等奇葩可笑的理由，不择手段的掩盖病毒真相。
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/01/画像2-9.jpg)
+- 编辑：Victor Torres
 
 
-0
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2021年1月20日电/西喜社——**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/003-8.jpg)
+副总统迈克·彭斯刚刚抵达美国国会大厦，参加当选总统拜登的就职典礼。
+
+川普总统不参加。他在当天早些时候发表了告别讲话，然后登上空军一号，前往佛罗里达州。
+
+新闻链接：[https://edition.cnn.com/politics/live-news/biden-harris-inauguration-day-2021/index.html](https://edition.cnn.com/politics/live-news/biden-harris-inauguration-day-2021/index.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
++1

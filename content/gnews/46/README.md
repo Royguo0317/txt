@@ -1,47 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 麦康奈尔及妻子赵小兰与中共国政府有财务关联
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/777294/)
+## 杰森·米勒（Jason Miller）：川普将有第二任期
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/777960/)
 
-*新闻来源：《布赖特巴特（Breitbart）》|作者：特伦·贝克（TRENT BAKER ）| 发布时间：2021年1月17日
-翻译/简评：随波逐流|校对：Beicy-数学老师|审核：万人往|Page：Daoiii*
-[!\[\]()!\[\](https://spark.adobe.com/page/hZfGC3ZRrMjCZ/images/2522e4df-dd66-45ad-bb37-1f29e5f7e614.jpg?asset_id=8462b38a-8b36-4fe5-a669-2d609ee87993&amp;img_etag=%22d09d7bf295077ad9245248a5718a2cf1%22&amp;size=1024)](https://spark.adobe.com/page/hZfGC3ZRrMjCZ/images/2522e4df-dd66-45ad-bb37-1f29e5f7e614.jpg?asset_id=8462b38a-8b36-4fe5-a669-2d609ee87993&amp;img_etag=%22d09d7bf295077ad9245248a5718a2cf1%22&amp;size=1024)新任美国运输部长、前美国劳工部长赵小兰与丈夫、参议院多数党领袖麦康奈尔（VOA资料照）
-***简评：***
+**作者: CPA Jim**
 
-**《布赖特巴特新闻》高级撰稿人彼得·施韦泽在《福克斯新闻频道》的“下一次革命”节目中说，他认为参议院多数党领袖麦康奈尔“多年来对中共国的态度已经有所软化”，这是由于中共国政府与赵氏公司之间有密切的财物联系。中共政府之所以与他们开展业务，是因为麦康奈尔是华盛顿特区非常有影响力的人物。因为多年来他们之间形成了紧密的商业关系，导致他对中共国的立场越来越软化。如果他对中共反目，整个家族会遭受毁灭性的财物损失。**
+杰森·米勒（Jason Miller）在2021年1月20日发推对戴维·马克（David Mark）的推文进行了纠正，这是唐纳德·川普（Donald Trump）第一个任期的最后一次在总统主席台上的讲话。 这意味着将有第二个任期等待着川普。 这与爆料革命的信息一致。
 
-**由于“8964”事件以后，国际社会对中共日趋冷淡和不信任，北京为了缓解在国际上的尴尬局面，并由此重新与世界接轨，推行了一项拉拢外国政要的全球性战略。中共应该早已在全球范围内撒网，锁定了他们的目标“猎物”，并为实现这一目标推行了有效的“蓝金黄”计划。而麦康奈尔就是其中一个被中共“蓝金黄”计划成功收买的典型，因此有了赵小兰夫妇1993年12月的北京之行，随后中共在财务、生产、人员、货物等方面成功控制赵氏家族所拥有的造船公司，从此让中共予取予求，为之所用。**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/hZfGC3ZRrMjCZ/images/9e3e8713-6e81-44e7-ab6c-4331d4c19291.png?asset_id=ed0dd607-0e1c-4d96-834c-876335a614ca&amp;img_etag=%220fd8e8b264ecde1702d728124cf57fdd%22&amp;size=1024)](https://spark.adobe.com/page/hZfGC3ZRrMjCZ/images/9e3e8713-6e81-44e7-ab6c-4331d4c19291.png?asset_id=ed0dd607-0e1c-4d96-834c-876335a614ca&amp;img_etag=%220fd8e8b264ecde1702d728124cf57fdd%22&amp;size=1024)
-
-**有句话说得好，“将欲取之，必先予之”！天下哪有那么多免费的午餐？这就不难理解为什么迄今为止，全世界那么多政商名流、学术大咖、权威机构、国际组织、知名媒体、大型企业、科技公司……甘愿对中共俯首帖耳，违背良知和法律为之站台吹捧，虚假宣传。因为他们都是在中共“蓝金黄”政策下结成的利益共同体，他们为了互惠共存不惜牺牲任何代价。他们的贪婪成就了中共以“生物武器”攻击全世界，造成了全球数百万人死于新冠大流行的这场人类大劫难。如今中共还妄想操纵美国大选并统治全世界。全球多数有正义良知之人是不会任其发生的，邪不胜正是真理，更是天意，这是全人类所面临的一场正邪之战，作恶者必将付出应有代价！**
-
-***原文翻译：***
-
-#### 施韦泽：米奇·麦康奈尔及妻子赵小兰与中共国政府有财务上的联系
+杰森·米勒（Jason Miller）是唐纳德·川普（Donald Trump）的2020年高级竞选顾问。 2016年高级联络顾问，过渡团队沟通总监。
 
 
 
-《布赖特巴特新闻》（Breitbart News）资深撰稿人彼得·施韦泽（Peter Schweizer）周日详细介绍了参议院多数党领袖麦康奈尔（肯塔基州共和党）和妻子赵小兰与中国共产党在财务上的联系。
-
-施韦泽在《福克斯新闻频道》的“下一次革命”节目中说，他认为麦康奈尔“多年以来对中共国的立场已经有所软化”，这是由于中共国政府与赵氏公司之间日益增长的密切关系。
-
-施韦泽概述：“真的，这一事实就是，米奇·麦康奈尔和他的妻子赵小兰和中共政府有财务上的联系。而这种联系是通过赵小兰家族所拥有的造船公司达成的。这种关系早在1993年12月就建立了，当时应中国船舶工业总公司的邀请，赵小兰的父亲赵锡成、赵小兰和新女婿米奇·麦康奈尔参议员访问了中共国北京。这是北京的一个战略，因为在四年前天安门广场发生的“8964”事件，很少有高级官员到北京去。这次会议和随后达成的协议的结果是，今天中共国政府为造船公司提供了建造船只的资金，他们建造了船只，为船只提供了船员，并为船只提供了货物。因此，中共国政府明天可能会取消这项业务。让我们明确地说，中共政府之所以与他们开展业务，是因为米奇·麦康奈尔是华盛顿特区非常有影响力的人物。问题是，史蒂夫（Steve），他对中共国的立场越来越软化是因为多年来他们之间形成了紧密的商业关系，他是这种关系的直接受益者。”
-
-据施韦泽说，这是中共国政府在全球范围内的“战略”。
-
-施韦泽说：“他们寻找政治精英，并给予他们商业交易。”
-
-施韦泽补充说：“他们与中国人结婚。他们不想激怒中共，因为中共有可能在经济上摧毁他们的家庭。”
-
-**[原文链接](https://www.breitbart.com/clips/2021/01/17/schweizer-mitch-mcconnell-wife-elaine-chao-financially-tied-to-the-chinese-government/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+breitbart+%28Breitbart+News%29)**
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+> \*in his first term [https://t.co/LBNeL1XdQx](https://t.co/LBNeL1XdQx)
+> — Jason Miller (@JasonMillerinDC) [January 20, 2021](https://twitter.com/JasonMillerinDC/status/1351888133172961286?ref_src=twsrc%5Etfw)
 
 
-编辑：【英国伦敦喜庄园编辑部】
-[!\[\]()!\[\](https://spark.adobe.com/page/e0qZ5Jx48bl99/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/e0qZ5Jx48bl99/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-33.png)
 +1

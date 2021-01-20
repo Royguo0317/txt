@@ -1,35 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒爆发后一年的心路历程
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/777709/)
+## 川普遵循传统，给拜登留字条
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/778209/)
 
-*作者: 胖丁 | 校对:宁缺 | 审核：万人往 | Page:Daoiii*
+- 编辑：Victor Torres
 
-[!\[\]()!\[\](https://spark.adobe.com/page/B6KT5uhvuF72j/images/9c208982-0c16-4033-abd4-e7f8ee906a69.png?asset_id=4db7b29b-4e75-4fee-bc68-59f3af692914&amp;img_etag=%2208f6e61d2fae7020e71631a96664c6eb%22&amp;size=2560)](https://spark.adobe.com/page/B6KT5uhvuF72j/images/9c208982-0c16-4033-abd4-e7f8ee906a69.png?asset_id=4db7b29b-4e75-4fee-bc68-59f3af692914&amp;img_etag=%2208f6e61d2fae7020e71631a96664c6eb%22&amp;size=1024)
 
-去年的元旦是在提心吊胆中度过的，因为国内疫情爆发，武汉封城。周围不断有人回国，也不断有人回来，于是担心疫情会从国内蔓延到海外。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-今年刚刚过完元旦，不幸又把腰闪了，剧痛难忍不说，行动也受到了极大限制，不得不呆在家里。其实就算能出门，去哪呢？整个世界依然笼罩在疫情的阴影下，一年了，疫情丝毫没有减轻的迹象。相反，病毒变异越来越强烈，传播越来越广泛。作为爆料革命的跟随者，了解真相的前排观众，面对愈加恶劣的生存环境和全世界大多数国家和地区依旧沉默，心中的怒火和对正义的呼求愈加强烈。
+**西班牙2021年1月20日电/西喜社——**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/image-182.png)
+白宫表示，这位共和党总统为他的继任者、民主党人乔·拜登留下了一张纸条。
 
-还要怎样的惨烈才能觉醒呢？每一天，无数条珍贵的生命变成了数字被写进死亡名单。西方看重人权，对中国人来说，我们拥有什么权利呢？只有上供权。经历了几千年的战争，中华民族还是成为了奴隶，共产党邪恶政权的奴隶。都说邪不压正，但什么时候正义能够战胜邪恶，还世界和平呢？
+新闻副秘书贾德·迪尔以总统之间沟通的隐私为由，拒绝透露川普写给拜登的内容，也拒绝描述纸条中的情感。
 
-人类社会从来没有这样一个时期，整个世界同时闭关锁国，只为了抵挡一个看不见、摸不着但是攻击性异常强烈的病毒的袭击。能挡得住吗？答案是否定的。仅一年的时间，几百万人死亡，几千万人感染，还不包括完全封锁消息的中共国的真实感染和死亡人数。上至总统王子，下至平民百姓，病毒不分种族、贫富、性别、年龄，肆无忌惮地横行全球。作为完全没有抵抗能力的身体较弱的我，完全被病毒吓倒了。从来没有这样的时刻，每天都处在紧张中。早上醒来的第一件事就是查看路德节目和最新的爆料革命信息，关注病毒是否已经被控制住。每一次都是在满怀希望中，失望地放下手机，因为境况越来越糟糕。
+川普拒绝公开向拜登让步，在两篇告别演说中也没有提到这位民主党人的名字。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/B6KT5uhvuF72j/images/62b19647-ac71-42eb-8d06-ae415a174891.jpg?asset_id=5e29e6d9-3afa-4614-b739-839e80f1a399&amp;img_etag=%22e51f7384cdc93ce2a045123ae22d5a47%22&amp;size=2560)](https://spark.adobe.com/page/B6KT5uhvuF72j/images/62b19647-ac71-42eb-8d06-ae415a174891.jpg?asset_id=5e29e6d9-3afa-4614-b739-839e80f1a399&amp;img_etag=%22e51f7384cdc93ce2a045123ae22d5a47%22&amp;size=1024)
+川普中断了许多总统的传统，包括没有参加拜登周三的就职典礼。在拜登被宣布在11月的总统选举中获胜后，川普也没有邀请拜登到白宫会面。
 
-当初参与爆料革命的时候，对共产党的邪恶没有切身体会，更多的只是于心不忍。病毒爆发之后才切实体会到这一场爆料革命关乎每一条生命，尤其是中国人。我们拥有14亿人口，但仍然不能推翻邪恶的共产党政权，因为大多数人都不知道真相。三年多的时间，爆料革命不遗余力地在全世界揭露中国共产党的一系列犯罪行为。2020年1月19日，爆料革命率先在全世界发出了病毒是中共军方研制的生化武器的警报。2021年1月19日，美国国务院正式定义以习近平为首的中国共产党以及中共国政府犯下了“种族灭绝”和“反人类罪”。
+川普周三上午最后一次以总统身份离开白宫，他说：”这是一个巨大的荣誉，一生的荣誉。”
 
-看到路德先生戴上了领带宣布这一消息，我们激动不己。爆料革命，唯真不破，不抛弃不放弃，最终把中国共产党定义为犯罪组织。等到审判的那一天，苍天会流泪，大地会呜咽，无数个冤魂会从地狱发出声音：中国共产党，拿命来！
-
-🔖[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
-📺[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-
-🔊[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
-
-编辑：[【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/B6KT5uhvuF72j/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/B6KT5uhvuF72j/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/B6KT5uhvuF72j/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
+新闻来源：[https://apnews.com/article/biden-inauguration-joe-biden-politics-district-of-columbia-coronavirus-pandemic-0a49b6d8b3c9904d88d5bccfd854ab25](https://apnews.com/article/biden-inauguration-joe-biden-politics-district-of-columbia-coronavirus-pandemic-0a49b6d8b3c9904d88d5bccfd854ab25)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 0

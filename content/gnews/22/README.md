@@ -1,57 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】大寒
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/778093/)
+## 川普总统对支持者说：“我们将以某种形式回来！”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/778616/)
 
-作者：木白；发稿：雪梨
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传    银河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/iu-4.jpg)
+[thyblackman.com](https://r.duckduckgo.com/l/?uddg=http%3A%2F%2Fthyblackman.com%2F2020%2F06%2F01%2Fdont-tread-on-the-donald-trump-captain%2F)
+川普总统今天早晨在安德鲁斯联合基地向支持者发表讲话，“我们将以某种形式回来”，当时他正准备飞往佛罗里达州的马拉格。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/MOS1030-【香草诗词汇】大寒-1.jpg)
+川普总统走向上讲台时，总统礼炮炮台鸣放了21响礼炮。
 
+川普总统说：“我们把一切都留在了明面，无论用哪种标准来衡量，我们所做的一切都是惊人的，建立了太空部队、减税、司法任命、股市创新高等等。“
 
-大寒不寒，这个虚假的冬天
+第一夫人梅拉尼娅·川普也发表了简短讲话。
 
-正披着全球变暖的外衣飞奔
+据悉，川普总统在白宫留了一张纸条。
 
+川普总统昨天的电视讲话中警告说，新政府可能会撤销他的一些政策，小心点！
 
+川普总统还说，“你即使什么都不做，你也将会看到难以置信的数字开始出现。”
 
-雪，难得
+“望他们不会提高你的税收，但如果他们提高了，我早就告诉过你了。”。
 
-雪白的事物，更难得
+川普总统对支持者说，“我们将以某种形式回来”，这可能有更深刻的预示。
 
+“我只想说你们是了不起的人，这是一个伟大的国家，成为你们的总统是我最大的荣幸，我将永远为你而战，我们爱美国人民。”
 
+《福克斯新闻》（Fox News）猜测川普总统之所以这么早离开白宫，是因为他在佛罗里达降落的飞机是“空军一号”（Air Force One）——这是总统乘坐的任何飞机的名字，若是等到拜登宣誓就职后，这架飞机将被称为“特别航空任务28000”，而不是“空军一号”。
 
-大盗与大圣是雪的极端
+参考链接：
 
-而这个世界终究是灰色的
-
-
-
-否极泰来，曲径通幽，阴与阳
-
-这最后的节气，正酝酿下个轮回的开始
-
-
-
-剪一支梅，也剪下一段历史——
-
-明天兑现的历史必抚慰今天的汗水
-
-2021年1月20日
-
-
-
-注：大寒，二十四节气中最后一个节气。
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+https://www.foxnews.com/politics/trump-leaves-white-house-for-final-time-after-tumoltuous-four-years-as-president
 
 0

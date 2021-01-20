@@ -1,27 +1,183 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国法学博士 遭遇中共暴力强拆 绝望跳楼 四川师范大学法学教授跳楼自尽
-` shang` [轉載自GNews](https://gnews.org/zh-hans/777526/)
+## 《上帝保佑美國》(附中英文歌词)
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/778141/)
 
-作者：小妍说
+歌词大意：
 
-“他是因为我们家的房子被人强拆的事情才跳楼的。”1月18日早上8时左右四川师范大学文学院教授庹继光从该校田家炳大楼堕楼身亡。其妻子称，庹继光疑因房屋被暴力强拆和工作上受打压，导致精神心理遭受压力过大而被逼上绝路。并且说，2020年10月，庹继光曾实名举报成都市成华区区长、区委副书记蒲发友滥用职权、暴力拆除公民合法房产问题。他在举报信中称，从2011年起，其家中位于成华区青龙场、万年场的两套住宅遭遇模拟搬迁，在拆迁过程中，拆迁人员先后使用威胁、围堵、借助工作单位打压、网络造谣诽谤等方式，试图逼迫与之签约，「但我们最终顶住了他们的压力，没有屈服」；最后，蒲发友主持召开区政府常务会议，在没有签署拆迁协议、没有启动征收、没有申请司法强拆等前提下，部署对两套住房进行拆除。庹继光妻子说：当时在没有谈妥赔偿的情况下，他们就被从家里赶了出来，“把我们赶出去后，就没敢回去过，他们太凶残了！”不仅如此，而且学校还在她评职称等问题上百般刁难，进行打击报复，“我的工作从2012年开始就给停了，工资也停了，所以庹继光心里的压力就特别大，庹继光还说过：我们不管是学法律也好，学传播也好，都没办法帮到自己。随后，四川师范大学18日下午发布通报称，经警方现场调查勘验，排除刑事案件，具体情况正在进一步调查中。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/E37B0DDB-82AA-4057-8B23-AF7C899BFFEA.png)
-在中共国，以前我们能看到的新闻大多都是老人跳楼，农民工跳楼，医院的病人跳楼，都是一些完全没有反抗能力的底层百姓在极度绝望下选择轻生，来获取关注；而最近看到的却是官员跳楼、校长跳楼、企业高管跳楼、博士跳楼、以及今天的教授跳楼，这些人完全不属于弱势群体，也有足够的能力和金钱保障自己的生活和身体健康。这就不禁让人怀疑，他们真的是自愿跳的吗？想一想一个法学博士，还是执业律师，这样一个响当当的人物，却没有办法用媒体和法律武器来有效保障自己的权益，面对暴力强拆居然也无力反驳，信仰崩塌，以至于跳楼自杀结束自己的一生。在我看来，他不是死于两座房子被强拆，更多的是死于对于中共治下这个国家的绝望，对于他毕生所学的完全否定，这种信仰的崩塌远比任何打击都让人绝望。我们不知道在他维权的这9年中有多少不为人知的强权存在，不但实名举报无果，还因房子拆迁、在单位被各种打压。 一个人如果活得没有尊严，没有安全感，那是多么的无助和绝望。看看这个教授，在想想我们，这样一个，符合了维权所有条件的完美形象，都维不了权，都能被强拆逼到这份上，只能以死殉道。可想而知普通百姓遇到强拆时得有多悲哀，这就是当今中共国社会最真实的写照。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/image-248.png)
-我们所能看到的只是浮于水面上的冰山一角。一个法学博士以跳楼维权，说明什么？说明他对中共国的法律有深刻的认识，在中共国拆迁问题不只是法律问题，更多的是政策问题。因为行政违法暴力强拆百姓合法房产，不会受到司法制裁，违法成本几乎可以忽略不计。中共一直宣称的是法律是保护每一个公民的合法权益不受侵犯，可现实呢？总是那么令人绝望。好多人都说事情不到最后一刻，不要妄下评论，可教授都已经用生命来结束了，这还不能说明有黑幕甚至是黑幕很多吗？在看看中共国媒体对这件事情的态度，撤热搜，这是在掩盖什么？这是在藏什么？这件事情的调查结果我们能看到的真相，也就是中共最终让我们看到的，而真相早以沉在了水面的深处。
+If tomorrow all the things were gone
 
-(文章内容仅代表作者个人观点）
+如果明天我为之奋斗了一辈子
 
-GNEWS之前文章：
+I’d worked for all my life
 
-广西女教师辞职遭暴打 [https://gnews.org/zh-hans/766360/](https://gnews.org/zh-hans/766360/)
+的东西所有都化为乌有
 
-“大连卢书记 ” 事件 惹众怒 [https://gnews.org/zh-hans/760802/](https://gnews.org/zh-hans/760802/)
+And I had to start again
 
-拼多多远程删除用户照片 [https://gnews.org/zh-hans/760269/](https://gnews.org/zh-hans/760269/)
+我不得不重新开始
 
-新闻链接：[https://www.thepaper.cn/newsDetail\_forward\_10837830](https://www.thepaper.cn/newsDetail_forward_10837830)
+With just my children and my wife
 
-+2
+惟独还有我的妻儿陪伴身边
+
+I’d thank my lucky stars
+
+我要感谢我的幸运星
+
+To be living here today
+
+让我今天还生活在这里
+
+Where the flag still stands for freedom
+
+生活在一个旗帜仍象征着自由的地方
+
+And they can’t take that away
+
+没人能夺走那旗帜
+
+And I’m proud to be an American
+
+我以身为美国人为荣
+
+Where at least I know I’m free
+
+在这里我至少拥有自由
+
+And I won’t forget the men who died
+
+我不会遗忘那些阵亡的将士
+
+Who gave that right to me
+
+是他们赋予我这些权利
+
+And I gladly stand up next to you
+
+有幸与你站在一起
+
+And defend her still today
+
+至今仍然捍卫着她
+
+‘Cause there ain’t no doubt I love this land
+
+因为毫无疑问我挚爱这片土地
+
+God Bless the U.S.A.
+
+上帝保佑美国
+
+From the lakes of Minnesota
+
+从明尼苏达的万湖
+
+To the hills of Tennessee
+
+到田纳西的群山
+
+Across the plains of Texas
+
+横跨德克萨斯的平原
+
+From sea to shining sea
+
+从大西洋岸到太平洋
+
+From Detroit down to Houston
+
+从底特律到休斯敦
+
+And New York to L.A.
+
+从纽约到洛杉矶
+
+Well there’s pride in every American heart
+
+每一个美国人心中都充满骄傲
+
+And it’s time we stand and say
+
+是时候我们站起来说
+
+That I’m proud to be an American
+
+我以身为美国人为荣
+
+Where at least I know I’m free
+
+在这里我至少拥有自由
+
+And I won’t forget the men who died
+
+我不会遗忘那些阵亡的将士
+
+Who gave that right to me
+
+是他们赋予我这些权利
+
+And I gladly stand up next to you
+
+有幸与你站在一起
+
+And defend her still today
+
+至今仍然捍卫着她
+
+‘Cause there ain’t no doubt I love this land
+
+因为毫无疑问我挚爱这片土地
+
+God Bless the U.S.A.
+
+上帝保佑美国
+
+God bless this country
+
+上帝保佑这个国家
+
+And I’m proud to be an American
+
+我以身为美国人为荣
+
+Where at least I know I’m free
+
+在这里我至少拥有自由
+
+And I won’t forget the men who died
+
+我不会遗忘那些阵亡的将士
+
+Who gave that right to me
+
+是他们赋予我这些权利
+
+And I gladly stand up next to you
+
+有幸与你站在一起
+
+And defend her still today
+
+至今仍然捍卫着她
+
+‘Cause there ain’t no doubt I love this land
+
+因为毫无疑问我挚爱这片土地
+
+God Bless the U.S.A.
+
+上帝保佑美国
+
+翻译：【Dlrow】【Isaiah4031】校对：【JoyJoy】字幕：【相机过热啊】
+
+喜马拉雅玫瑰园小队出品
+
+
+
+> [福克斯新闻发布格林伍德和美国大兵的新版《上帝保佑美国》- 有望再成打榜歌曲！](https://gnews.org/zh-hans/254959/)
+
+
+
++1
