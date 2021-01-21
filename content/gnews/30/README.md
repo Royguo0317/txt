@@ -1,25 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 参议院听证外交、国防、情报3要员
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/780454/)
+## 波兰高死亡率主要源于70岁以上、患有其他严重疾病的人
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/781510/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+- 编辑：Victor Torres
 
-编辑上传    银河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Snipaste_2021-01-20_22-11-47.png)[sputniknews.cn](https://r.duckduckgo.com/l/?uddg=http%3A%2F%2Fsputniknews.cn%2Fpolitics%2F202011171032541625%2F)
-昨天参议院举行了新内阁外交、国防、情报3掌门人提名听证会，三人分别是：国务卿候选人安东尼·布林肯（Antony J .Blinken）；国防部候选人劳埃德•奥斯汀三世（Lloyd J. AustinIII）；情报总监候选人艾薇儿·海恩斯（Avril Dhaines）。
 
-《纽约时报》报道，在确认听证会上，拜登的助手们表明要对中共国采取强硬的态度：
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-布林肯称赞了川普总统政府外交的几大支柱政策，包括对中共国采取更具强烈的态度，他认为中共国在CCP病毒传播问题上误导了世界，并对维吾尔穆斯林和其他少数民族犯下种族灭绝罪。在四个多小时的听证中，布林肯还承诺将对川普政府的许多决定进行审查，在某些情况下还可以撤销。
+**西班牙2021年1月21日电/西喜社——**波兰抗击中共病毒的首席医学专家周三表示，波兰全国因感染而导致的高死亡率主要是源于70岁以上、患有其他严重疾病的人。
 
-在海恩斯的听证会上，她答应将采取一种非政治的方式来收集情报，她表示，“中共国是我们在一系列问题上对安全，繁荣，价值观的挑战，我支持积极的立场。情报机构需要更多地关注中（共）国，尽管美国政府应努力与中（共）国合作解决诸如气候变化之类的问题，但在情报界，北京却不是合作伙伴，在间谍活动方面，他们是对手。”有议员建议，“中共国不应该仅仅是情报界的一个高度优先的事项，而应该是最优先事项，情报机构应该雇用更多讲普通话的人。” 海恩斯承诺，“六个月后，她将向委员会展示新政府的情报机构是如何优先考虑中共国的。”
+安德烈·霍班（Andrzej Horban）教授称，目前老年人死亡人数较多，是由于圣诞节和新年期间的大型聚会感染所致。
 
-奥斯汀有望成为美国第一任黑人国防部长，如果被确认将会创造历史。但许多议员认为，他不应获得国会的许可来担任这份工作。没有看到他对中共国观点的报道。
+周三的数据显示，有近7000人新感染，443人确诊死亡。目前仍有约1.5万人因中共病毒而住院治疗。波兰是一个拥有3800万人口的国家，登记的确诊病例近150万，死亡人数超过3.4万。
 
-希望他们不是在作秀，说一套，做一套！
+**新闻来源：**[https://apnews.com/article/europe-italy-coronavirus-pandemic-latin-america-coronavirus-vaccine-dee2114dd146eaee05a3fde6a84e70c3](https://apnews.com/article/europe-italy-coronavirus-pandemic-latin-america-coronavirus-vaccine-dee2114dd146eaee05a3fde6a84e70c3)
 
-参考链接：https://www.nytimes.com/2021/01/19/us/politics/avril-haines-antony-blinken-lloyd-austin.html
+![]()![](https://gnews.org/wp-content/uploads/2021/01/5bdea85c-83e3-4f12-baa3-96fe199fe364-17.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
 0

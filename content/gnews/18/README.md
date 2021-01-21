@@ -1,19 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 北京疫情开始扩大，第二次疫情爆发无法避免
-` Gnews Special Squad` [轉載自GNews](https://gnews.org/zh-hans/780716/)
+## 中共被定义种族灭绝罪以后，CCP哑火了
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/781509/)
 
-*收集评论：Cathy｜PR: Alicia*
+撰稿人：jim大叔
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/6-2-1.jpg)
+审稿人：Jenny
 
-# **今日头条：全区人员禁止离京，地铁站封闭，大兴感染者升至10人**
+编辑：MG3
+![]()![](https://gnews.org/wp-content/uploads/2021/01/192-2-edited.jpg)
+2021年1月19日又是一个伟大的日子，今天中共国被定义为“种族灭绝罪和反人类罪”这个重磅是在被中共国称为人类公敌的蓬佩奥宣布出来的，以前只要蓬佩奥发完推特揭露中共的邪恶后，以中共外交部为首的带外宣就会放出赵家的狗进行狂叫，大家都明白最近一周时间内，蓬佩奥的推特几乎媒体都是半小时的间隔在发推揭露中共，就好比准备了今年的搬砖一样，疯狂的砸向了CCP。开始的时候，华春莹为首的中共代言狗们会出来狂叫，然后大外宣的媒体会集体跟上进行批量反击，当然这些反击想给CCP续命都是杯水车薪，但是这些疯狂的乱叫，加速了CCP的灭亡进程。
 
-[*🔗原文链接*](https://www.toutiao.com/a6919650769801183756/)
+但是1月19号被定义种族灭绝罪后，墙内的新闻几乎没有进行报道的，就只有下面两侧短小的评论，其他媒体都被消声。
 
-评论：北京疫情开始扩大，第二次疫情爆发无法避免。这是不是军事方面的异动，还有待观察。
+（文章观点纯属个人）
+![]()![](https://gnews.org/wp-content/uploads/2021/01/image-255-edited.png)
+（图片来自网络截图）
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-澳喜Logo-1.jpeg)
 
-编辑：【G-News特战队】
 
-0
++2

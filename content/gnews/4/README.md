@@ -1,50 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【推特实况】1/20/2021 正义媒体Breaking911推文：拜登就任首日的反扑动作
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/779202/)
+## 【推特實況】1/20/2021川普競選團隊成員史蒂夫· 科特斯推文：拜登就任現場空空如也
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/779422/)
 
-【**推特实况】1/20/2021 EST 10:24AM 正义媒体Breaking911推文：拜登就任首日的反扑动作**
+2021年1月20日上午10:52，川普競選團隊成員史蒂夫·科特斯（Steve Cortes）發推諷刺拜登就任現場空空如也：
 
-2021年1月20日上午10:24，正义媒体 Breaking911发推，列出了拜登（Joe Biden）就任第一天所采取的数项行动：
+“參加就職典禮的人呢？這可是傳說中得票總數最高、美國歷史上最受歡迎的政治家。
 
-“公费发放口罩
-
-重新加入世界卫生组织（WHO）
-
-重新加入巴黎气候协定
-
-停建运输加拿大重质原油的输油管道
-
-停建边境墙
-
-改善庇护城市
-
-撤销川普总统为爱国主义教育而设立的“1776委员会”
-
-撤销川普总统2017年的内部执法
-
-学生贷款延期/暂停驱逐”
+也許，一個邊境開放、內在封閉的國家的前景並不能讓美國人感到振奮……”
 
 
 
-> BIDEN'S DAY 1 ACTIONS:
+> Where is everyone? The most popular politician in US history, per the purported vote totals? 
 > 
-> Mask Mandate on fed property
-> Rejoin [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw)
-> Rejoin Climate Agreement
-> Halt Keystone XL Pipeline
-> Stop Border Wall Construction
-> Bolster Sanctuary Cities
-> Rescind Trump's 1776 Commission
-> Revoke Trump's 2017 Interior Enforcement
-> Extend Student Loan / Eviction Pause
-> — Breaking911 (@Breaking911) [January 20, 2021](https://twitter.com/Breaking911/status/1351913514995220481?ref_src=twsrc%5Etfw)
+> Perhaps Americans aren’t so thrilled about the prospects of a closed country with open borders… [pic.twitter.com/le3pJ8QFp0](https://t.co/le3pJ8QFp0)
+> — Steve Cortes (@CortesSteve) [January 20, 2021](https://twitter.com/CortesSteve/status/1351920510481936387?ref_src=twsrc%5Etfw)
 
 
 
-来源：[https://twitter.com/Breaking911/status/1351913514995220481](https://twitter.com/Breaking911/status/1351913514995220481)
+推文鏈接：[https://twitter.com/CortesSteve/status/1351920510481936387](https://twitter.com/CortesSteve/status/1351920510481936387)
 
-翻译报道：萌萌的朋克 【㊙️翻Gnews原创组】
+翻譯報導：萌萌的朋克【㊙️翻Gnews原創組】
 
 0
