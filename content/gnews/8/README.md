@@ -1,26 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中国正实施迄今为止最严厉旅行限制
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/787843/)
+## 墨西哥连续两天中共病毒死亡人数超过1500人
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/787939/)
 
 - 编辑：Victor Torres
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月21日电/西喜社——**因为在农历新年前，北方几个省份的中共病毒病例激增，中国正在实施一些迄今为止最严厉的旅行限制。
+**西班牙2021年1月21日电/西喜社——**墨西哥连续两天中共病毒死亡人数超过1500人。官方周三报告了1,539例此类死亡病例，此前一天有1,584例死亡病例。此外，新增病毒病例也有近乎创纪录的单日上升，达到20,548例。
 
-下个月的节日是中国一年中最重要的家庭聚会时间，对许多外来务工人员来说，这往往是他们能够返回农村老家的唯一时机。
+墨西哥已经有近169万例确诊的中共病毒感染和超过14.4万例与中共病毒相关的确诊死亡病例。由于该国的检测率极低，官方估计实际死亡人数接近19.5万人。
 
-但今年，旅客必须在出发7天内病毒检测呈阴性，许多地方政府都下令对旅客采取隔离和其他严格措施。
-
-一位国家卫生官员周三对中国公民有这样的信息。”除非有必要，否则不要旅行或聚会。”
-
-官员们预测，中国人在旅游高峰期将出游17亿人次。这比2019年下降40%。
+墨西哥城是目前全国的疫情中心，首都89%的医院病床都在使用中。就全国而言，61%的医院床位已满。
 
 **新闻来源：**[https://apnews.com/article/europe-italy-coronavirus-pandemic-latin-america-coronavirus-vaccine-dee2114dd146eaee05a3fde6a84e70c3](https://apnews.com/article/europe-italy-coronavirus-pandemic-latin-america-coronavirus-vaccine-dee2114dd146eaee05a3fde6a84e70c3)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/a65e33e7-7329-465d-a866-267253f7ce1d-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/64da11b4-588a-4b10-9bb3-19786134c6cf-35.jpg)
+
 ![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
 0
