@@ -1,26 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【推特實況】1/20/2021川普競選團隊成員史蒂夫· 科特斯推文：拜登就任現場空空如也
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/779422/)
+## 墨西哥连续两天中共病毒死亡人数超过1500人
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/787939/)
 
-2021年1月20日上午10:52，川普競選團隊成員史蒂夫·科特斯（Steve Cortes）發推諷刺拜登就任現場空空如也：
-
-“參加就職典禮的人呢？這可是傳說中得票總數最高、美國歷史上最受歡迎的政治家。
-
-也許，一個邊境開放、內在封閉的國家的前景並不能讓美國人感到振奮……”
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-> Where is everyone? The most popular politician in US history, per the purported vote totals? 
-> 
-> Perhaps Americans aren’t so thrilled about the prospects of a closed country with open borders… [pic.twitter.com/le3pJ8QFp0](https://t.co/le3pJ8QFp0)
-> — Steve Cortes (@CortesSteve) [January 20, 2021](https://twitter.com/CortesSteve/status/1351920510481936387?ref_src=twsrc%5Etfw)
+**西班牙2021年1月21日电/西喜社——**墨西哥连续两天中共病毒死亡人数超过1500人。官方周三报告了1,539例此类死亡病例，此前一天有1,584例死亡病例。此外，新增病毒病例也有近乎创纪录的单日上升，达到20,548例。
 
+墨西哥已经有近169万例确诊的中共病毒感染和超过14.4万例与中共病毒相关的确诊死亡病例。由于该国的检测率极低，官方估计实际死亡人数接近19.5万人。
 
+墨西哥城是目前全国的疫情中心，首都89%的医院病床都在使用中。就全国而言，61%的医院床位已满。
 
-推文鏈接：[https://twitter.com/CortesSteve/status/1351920510481936387](https://twitter.com/CortesSteve/status/1351920510481936387)
+**新闻来源：**[https://apnews.com/article/europe-italy-coronavirus-pandemic-latin-america-coronavirus-vaccine-dee2114dd146eaee05a3fde6a84e70c3](https://apnews.com/article/europe-italy-coronavirus-pandemic-latin-america-coronavirus-vaccine-dee2114dd146eaee05a3fde6a84e70c3)
 
-翻譯報導：萌萌的朋克【㊙️翻Gnews原創組】
+![]()![](https://gnews.org/wp-content/uploads/2021/01/64da11b4-588a-4b10-9bb3-19786134c6cf-35.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
 0

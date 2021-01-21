@@ -1,38 +1,217 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 庚子年119终极之战系列：曾犯下危害人类罪政权的结局
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/778807/)
+## 白宫报告：川普政府的政绩——截至2021年1月（八）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/788066/)
 
-作者：Stranger
+五月花写作组 ｜ 翻译：Tom Cat ｜ 校对：jiasen ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告8-2.jpg)
+### **Part 8 – Great Healthcare for Americans**
 
-2020年1月20日，美国国务卿彭培奥发推，证实国务院认定中华人民共和国及执政的中国共产党在新疆对维吾尔族和其它少数民族犯下“种族灭绝”和“危害人类罪”。这是美国历史上第一次对中共所犯滔天罪行的最严厉定罪，直接宣判了它的死刑。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/image001-22.png)
-什么是“危害人类罪”？2002年7月1日生效的《国际刑事法院罗马规约》将“危害人类罪”定义为“是指那些针对人性尊严极其严重的侵犯与凌辱的众多行为构成的事实。这些一般不是孤立或偶发的事件，或是出于政府的政策，或是实施了一系列被政府允许的暴行。如针对民众实施的谋杀，种族灭绝，人体试验，酷刑，强奸，政治性的、种族性的或宗教性的迫害，以及其他非人道的行为”。
+### **第八部分：为美国人提供优质的医疗保健**
 
-曾被定义此罪的政权及其领导人最后的结局如何？2002年以来，共有8名国家元首被判“危害人类罪”，分别如下：
+* * *
 
-- 伊拉克前总统萨达姆被指控1982年时在杜贾尔村杀害当地148名什叶派村民，犯有危害人类罪等罪行。2003年美国通过伊拉克战争推翻萨达姆的复兴党政权，2006年11月萨达姆被判处死刑且于当年12月执行。
-- 乍得前总统侯赛因·哈布雷被指控于1978-1990年执政期间至少杀害了4万名反对者，超过20万名普通公民曾遭到特务部门的监禁或虐待。1990年，伊德里斯·代比发动政变，推翻哈布雷。2016年5月30日设在塞内加尔首都达喀尔的非洲特别法庭以危害人类罪及战争罪等罪名判处哈布雷终身监禁；
-- 苏丹共和国前总统奥马尔·巴希尔被指控在苏丹达尔富尔地区犯有战争罪和危害人类罪。2019年4月11日，苏丹发生政变，军方包围总统府，巴希尔宣布辞去总统职务。2020年2月12日，苏丹过渡政府同意将把巴希尔移交给国际法院，以审理巴希尔在担任苏丹总统期间其政权在达尔富尔地区所犯罪行。
-- 大阿拉伯利比亚人民社会主义民众国最高领导人、元首卡扎菲被指控于2011年指使利比亚安全部队对平民进行了“大范围的”和“系统性的”袭击 ，造成了至少有1万名利比亚人死亡，犯有危害人类罪。2011年利比亚爆发内战，10月20日卡扎菲被俘但随后死于枪伤。
-- 科特迪瓦前总统洛朗·巴博被指控在2011年同反政府阵营发生武力冲突造成至少3000人死亡，超过100万人流离失所，犯有危害人类罪。2011年4月11日洛朗·巴博在阿比让的总统官邸内被逮捕，11月29日他被科特迪瓦政府移交位于荷兰海牙的国际刑事法院。
-- 利比里亚前总统查尔斯·泰勒被指控在塞拉利昂内战时期支持革命联合阵线的叛乱分子屠杀上万名民众，犯有战争罪和危害人类罪。2012年5月30日被塞拉利昂特别法庭判刑50年。
-- 危地马拉前总统里奥斯·蒙特被指控在1982年至1983年执政期间下令屠杀了1771名原住民，2013年5月因种族屠杀罪和危害人类罪被危地马拉本国法院判监禁80年。
-- 民主柬埔寨前元首乔森潘被指控其统治期间发生了红色高棉大屠杀，造成了将近当时25%人口（约200万人）的死亡。2014年在柬埔寨法院特别法庭上乔森潘与农谢因危害人类罪被判处终身监禁。1979年，越南攻入柬埔寨，红色高棉政权被推翻。
+**Empowered American patients by greatly expanding healthcare choice, transparency, and affordability.**
+
+**通过极大地扩大医保的选择性、透明度和可负担性，为美国患者提供多种选择；****促进医疗保健领域的研究和创新；****。**
+
+- Eliminated the Obamacare individual mandate – a financial relief to low and middle-income households that made up nearly 80 percent of the families who paid the penalty for not wanting to purchase health insurance.
+- 取消了奥巴马医疗法案个人强制性 – 这是对中低收入家庭的一项财政救济，这些家庭占因不愿购买医疗保险而支付罚款的家庭的近80%。
 
 
-回顾历史，曾被文明世界认定反人类罪的政权、组织及其领导人都难逃覆灭的下场。尽管中共在新疆地区所犯罪行只是它罄竹难书的冰山一角，但此次美国政府的定罪却具有划时代的历史意义。这表明世界的正义力量已经不能继续容忍中共的肆意妄为、随意践踏和残害无辜的人民，我们必须将此丧心病狂的邪魔组织彻底消灭。此次定罪是正邪对决至关重要的首战，要在法律和道德制高点取得绝对优势，然后美国政府再对中共制造并刻意释放生物武器进行定罪。
-
-本次全球疫情的大爆发，已经造成整个人类社会难以估量的庞大损失。这份罪行远超曾经的纳粹德国和军国日本，沉重到中共根本难以承担。所以它拼尽全力干涉美国大选，控制媒体舆论，收买各国政客、大企业家和宗教领袖。但承载上天使命的爆料革命和新中国联邦，联合世界的正义力量，屡次成功狙击并瓦解中共的攻势，并于川普总统卸任前最后时刻上演惊天一击，彻底扭转战局。
-
-中共的末日已然来临，让我们速速行动起来，送它直达地狱。灭共没你不行，你很重要！
+- Increased choice for consumers by promoting competition in the individual health insurance market leading to lower premiums for three years in a row.
+- 通过促进个人健康保险市场的竞争以增加消费者的选择，从而连续三年降低保费。
 
 
+- Under the Trump Administration, more than 90 percent of the counties have multiple options on the individual insurance market to choose from.
+- 在特朗普政府的领导下，超过90%的县在个人保险市场上有多种选择。
 
-【文章仅代表作者个人观点】
 
-审核校对：玫瑰天空
-上传排版：糊糊文婴
+- Offered Association Health Plans, which allow employers to pool together and offer more affordable, quality health coverage to their employees at up to 30 percent lower cost.
+- 提供《协会健康计划》，允许雇主联合起来，以比原先最多低30%的费用为员工提供更负担得起、更优质的健康保险。
+
+
+- Increased availability of short-term, limited-duration health plans, which can cost up to 60 percent less than traditional plans, giving Americans more flexibility to choose plans that suit their needs.
+- 增加短期、有期限的健康计划，其费用比传统计划最多低60%，让美国人有更多的灵活性来选择适合自己需要的计划。
+
+
+- Expanded Health Reimbursement Arrangements, allowing millions of Americans to be able to shop for a plan of their choice on the individual market, and then have their employer cover the cost.
+- 扩大《健康报销安排》，让数百万美国人能够在个人市场上购买自己选择的方案，然后让雇主支付费用。
+
+
+- Added 2,100 new Medicare Advantage plan options since 2017, a 76 percent increase.
+- 自2017年以来增加了2100个（即增加76%）新《联邦医疗保险优惠计划》项目。
+
+
+- Lowered Medicare Advantage premiums by 34 percent nationwide to the lowest level in 14 years. Medicare health plan premium savings for beneficiaries have totaled nearly  $ 1.5 billion since 2017.
+- 将联邦医疗保险优惠保费降低了34%至14年来的最低水平。自2017年以来，医疗保险计划受益人的保费储蓄总额已接近15亿美元。
+
+
+- Improved access to tax-free health savings accounts for individuals with chronic conditions.
+- 改善慢性病患者获得免税医疗储蓄账户的机会。
+
+
+- Eliminated costly Obamacare taxes, including the health insurance tax, the medical device tax, and the “Cadillac tax.”
+- 取消昂贵的奥巴马医疗法案税，包括健康保险税、医疗器械税和“凯迪拉克税”。
+
+
+- Worked with states to create more flexibility and relief from oppressive Obamacare regulations, including reinsurance waivers to help lower premiums.
+- 与各州合作，创造更大的灵活性，减轻奥巴马医疗法案的压力，包括再保险豁免，以助降低保费。
+
+
+- Released legislative principles to end surprise medical billing.
+- 发布立法原则，以结束意外医疗账单。
+
+
+- Finalized requirements for unprecedented price transparency from hospitals and insurance companies so patients know what the cost is before they receive care.
+- 对医院和保险公司提出了前所未有的价格透明度要求，以便患者在接受治疗前了解成本。
+
+
+- Took action to require that hospitals make the prices they negotiate with insurers publicly available and easily accessible online.
+- 采取行动来要求医院公开其与保险公司谈判的价格，并方便通过网络获取。
+
+
+- Improved patients access to their health data by penalizing hospitals and causing clinicians to lose their incentive payments if they do not comply.
+- 通过惩罚医院，并使临床医生在不遵守规定的情况下失去奖金，改善病人获取其健康数据的途径。
+
+
+- Expanded access to telehealth, especially in rural and underserved communities.
+- 特别是在农村和服务不足的社区，扩大获得远程保健的机会。
+
+
+- Increased Medicare payments to rural hospitals to stem a decade of rising closures and deliver enhanced access to care in rural areas.
+- 增加对农村医院的医疗保险支付，以遏制十年来不断增加的医院关闭现象，并在农村地区提供更多的医疗服务。
+
+
+**Issued unprecedented reforms that dramatically lowered the price of prescription drugs.**
+
+**出台了前所未有的改革措施，大幅降低了处方药的价格。**
+
+- Lowered drug prices for the first time in 51 years.
+- 51年来首次降低药品价格。
+
+
+- Launched an initiative to stop global freeloading in the drug market.
+- 发起一项行动，制止全球药品市场的吃白食现象。
+
+
+- Finalized a rule to allow the importation of prescription drugs from Canada.
+- 最终确定了允许从加拿大进口处方药的规则。
+
+
+- Finalized the Most Favored Nation Rule to ensure that pharmaceutical companies offer the same discounts to the United States as they do to other nations, resulting in an estimated $85 billion in savings over seven years and $30 billion in out-of-pocket costs alone.
+- 最终确定了《最优惠国家规则》，以确保制药公司向美国提供的折扣与向其他国家提供的折扣相同，从而在七年内节省了约850亿美元，仅自付费用就高达300亿美元。
+
+
+- Proposed a rule requiring federally funded health centers to pass drug company discounts on insulin and Epi-Pens directly to patients.
+- 提议一项规定，要求联邦资助的医疗中心直接向患者提供药品公司在胰岛素和肾上腺素的折扣。
+
+
+- Ended the gag clauses that prevented pharmacists from informing patients about the best prices for the medications they need.
+- 终止了禁止药剂师告知病人他们需要的药物的最佳价格的条款。
+
+
+- Ended the costly kickbacks to middlemen and ensured that patients directly benefit from available discounts at the pharmacy counter, saving Americans up to 30 percent on brand name pharmaceuticals.
+- 结束了给中间商的昂贵回扣，确保患者直接受益于药店柜台可获得的折扣，为美国人在品牌药品上节省高达30%的费用。
+
+
+- Enhanced Part D plans to provide many seniors with Medicare access to a broad set of insulins at a maximum $35 copay for a month’s supply of each type of insulin.
+- 增强了《医疗保险D计划》计划为许多老年人提供医疗保险获取品种广泛的胰岛素，每一种类型的胰岛素每月最多35美元。
+
+
+- Reduced Medicare Part D prescription drug premiums, saving beneficiaries nearly $2 billion in premium costs since 2017.
+- 降低《医疗保险D计划》处方药保费，自2017年以来为受益人节省了近20亿美元的保费成本。
+
+
+- Ended the Unapproved Drugs Initiative, which provided market exclusivity to generic drugs.
+- 终止了为通用药物提供市场排他权的《未获批准药物倡议》。
+
+
+**Promoted research and innovation in healthcare to ensure that American patients have access to the best treatment in the world.**
+
+**促进医疗保健领域的研究和创新，以确保美国患者能够获得世界上最好的治疗。**
+
+- Signed first-ever executive order to affirm that it is the official policy of the United States Government to protect patients with pre-existing conditions.
+- 签署了有史以来第一个行政命令，确认保护慢性病患者是美国政府的官方政策。
+
+
+- Passed Right To Try to give terminally ill patients access to lifesaving cures.
+- 通过了《尝试的权利》给绝症患者获得挽救生命的治疗机会。
+
+
+- Signed an executive order to fight kidney disease with more transplants and better treatment.
+- 签署了一项行政命令，通过更多的器官移植和更好的治疗来对抗肾病。
+
+
+- Signed into law a $1 billion increase in funding for critical Alzheimer’s research.
+- 签署了一项法律，为阿尔茨海默氏症关键研究增加10亿美元基金。
+
+
+- Accelerated medical breakthroughs in genetic treatments for Sickle Cell disease.
+- 在镰状细胞病的基因治疗方面加速取得医学突破。
+
+
+- Finalized the interoperability rules that will give American patients access to their electronic health records on their phones.
+- 敲定了互操作性规则，让美国患者可以通过手机查看自己的电子健康记录。
+
+
+- Initiated an effort to provide $500 million over the next decade to improve pediatric cancer research.
+- 启动一项努力尝试，在未来十年提供5亿美元，以改善儿科癌症研究。
+
+
+- Launched a campaign to end the HIV/AIDS epidemic in America in the next decade.
+- 发起一项运动，旨在在未来十年结束美国的艾滋病毒/艾滋病（HIV/AIDS）流行。
+
+
+- Started a program to provide the HIV prevention drug PrEP to uninsured patients for free.
+- 启动了一个项目，为没有保险的患者免费提供艾滋病预防药物PrEP。
+
+
+- Signed an executive order and awarded new development contracts to modernize the influenza vaccine.
+- 签署了一项行政命令，并授予了新的开发合同，以使流感疫苗现代化。
+
+
+**Protected our Nation’s seniors by safeguarding and strengthening Medicare.**
+
+**通过维护和加强医疗保险来保护我们国家的老年人。**
+
+- Updated the way Medicare pays for innovative medical products to ensure beneficiaries have access to the latest innovation and treatment.
+- 为创新医疗产品更新医保支付费用的方式，以确保医保受益人能够获得最新的创新治疗。
+
+
+- Reduced improper payments for Medicare an estimated $15 billion since 2016 protecting taxpayer dollars and leading to less fraud, waste, and abuse.
+- 自2016年以来，减少约150亿美元的医疗保险的不当支付，保护了纳税人的钱，并减少了欺诈、浪费和滥用。
+
+
+- Took rapid action to combat antimicrobial resistance and secure access to life-saving new antibiotic drugs for American seniors, by removing several financial disincentives and setting policies to reduce inappropriate use.
+- 采取迅速的行动对抗抗生素耐药性，并通过取消一些金融限制措施和制定政策减少不当使用，确保美国老年人能够获得拯救生命的新型抗生素药物。
+
+
+- Launched new online tools, including eMedicare, Blue Button 2.0, and Care Compare, to help seniors see what is covered, compare costs, streamline data, and compare tools available on Medicare.gov.
+- 推出了新的在线工具，包括在线医疗服务（eMedicare）,蓝钮2.0（Blue Button 2.0），医疗对比（Care Compare），帮助老年人查看覆盖范围，比较成本，简化数据，并比较Medicare.gov上可用的工具。
+
+
+- Provided new Medicare Advantage supplemental benefits, including modifications to help keep seniors safe in their homes, respite care for caregivers, non-opioid pain management alternatives like therapeutic massages, transportation, and more in-home support services and assistance.
+- 提供新的《医疗保险优势》补充福利，包括帮助老年人在家中保证安全的调整，对照顾者的临时照顾，非阿片类疼痛管理替代方案（如治疗性按摩），运输工具，以及更多的家庭支持服务和援助。
+
+
+- Protected Medicare beneficiaries by removing Social Security numbers from all Medicare cards, a project completed ahead of schedule.
+- 通过删除所有医疗保险卡上的社会安全号来保护医疗保险受益人，这一项目已提前完成。
+
+
+- Unleashed unprecedented transparency in Medicare and Medicaid data to spur research and innovation.
+- 在医疗保险和医疗补助数据方面显示了前所未有的透明度，以刺激研究和创新。
+
+
+原文来源：[https://www.whitehouse.gov/trump-administration-accomplishments/](https://www.whitehouse.gov/trump-administration-accomplishments/)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)！
 
 0

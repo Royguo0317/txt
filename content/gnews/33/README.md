@@ -1,46 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2019年中共发布的流感诊疗方案中描述了CCP病毒（三）
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/781425/)
+## 1月19日，和蓬佩奥一起为中共倒计时
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/786991/)
 
-作者：铜豌豆
+作者：桂花酒 | 校对/审核：万人往 | Page: Daoiii
 
-2019年11月7日中共国家卫生健康委员会办公厅和中共国家中医药局办公室联合公布的2019年流行性感冒诊疗方案中，记录了相当多的所谓 “流感” 病毒对于人的中枢神经系统、尤其是脑部的伤害。这些被中共描述出来的伤害，跟后来2020年中共病毒流行全世界、发生在被感染地区和国家中的、中共病毒感染者的临床表现和中共病毒罹难者的脑部解剖结果进行比对，会发现两者是吻合的。
+[!\[\]()!\[\](https://spark.adobe.com/page/PrFTKJ4ggRvM7/images/bc43d6a4-9df4-4fe0-9f70-66b224a10aa2.jpg?asset_id=4c5f1423-dc4c-4f0e-9fbd-d378f8493cac&amp;img_etag=%22bd08cd6add415922358e35d34731a467%22&amp;size=1024)](https://spark.adobe.com/page/PrFTKJ4ggRvM7/images/bc43d6a4-9df4-4fe0-9f70-66b224a10aa2.jpg?asset_id=4c5f1423-dc4c-4f0e-9fbd-d378f8493cac&amp;img_etag=%22bd08cd6add415922358e35d34731a467%22&amp;size=1024)
 
-（六）对中枢神经系统的损伤
+2021年美国新任总统就职前一天，当蓬佩奥以“种族灭绝”、“反人类”把中共犯罪集团彻底钉在耻辱柱后，中共狗急跳墙。2021年1月20日，新华社发布《末日小丑蓬佩奥必将受到历史公正的审判和清算》，《解放军报》发布《别了，蓬佩奥》……虽不似以前泼妇骂街般谩骂，但从文章中倒也能听到中共被绞杀前的几声哀嚎。
 
-中共2019年流感诊疗方案中在 “四、临床表现和实验室检查（二）并发症 2.神经系统损伤” 中写道：“包括脑炎、脑膜炎、脑病、脊髓炎、吉兰-巴雷综合征（Guillain-Barre syndrome）等，其中急性坏死性脑病多见于儿童。” 接下来的 “四、临床表现和实验室检查（三）实验室检查 4.脑脊液” 部分中具体解释了对受感染后的患者脑髓液检查的结果： “中枢神经系统受累者细胞数和蛋白可正常或升高；急性坏死性脑病典型表现为细胞数大致正常，蛋白增高。”
+俗话说“蛇有蛇道，鼠有鼠路”。当今天下属蛇的吓破了苦胆躲在地下谁人不知？而善于钻洞的老鼠偷窃成性、传播鼠疫又谁人不晓？祖先早有预见，如此形像地描绘了末路狂奔的中共，直叫人拍案！从2018年起，墙内就用“劣等民族的后代”对美国国务卿蓬佩奥先生进行人身攻击，“搅屎棍”、“蓬胖子”，污言秽语，寡廉鲜耻，哪有一点“大国风范”？完全置党国一尊“我们有一千条理由把中美关系搞好，没有一条理由把中美关系搞坏”的圣旨于不顾。难怪蓬佩奥先生2019年说，跟这个表里不一、精神分裂的政府打交道要格外有智慧。
 
-如果说由于禽流感病毒引起的细胞因子风暴会导致脑炎的发生是正常的，那么这个急性坏死性脑病表现出来的细胞数正常但是蛋白增高是绝对不正常的。因为跟这种类型的脑病的特征联系最紧密的就是被感染了HIV-1病毒以后的脑病。这些中共所描述的蛋白是不是就是HIV-1病毒在感染人体后在细胞中表征出来的准生长抑素前态信使RNA（preprosomatostatin mRNA）？
+从蓬佩奥先生一直以来的言行，有几个关键词：自由、中共的威胁、专制、伟大的中国人民。凸显了一位自由灯塔下顽强斗士的风骨。
 
-中共2019年诊疗方案中在 “四、临床表现和实验室检查（四）影像学表现”部分第二段中描述道：“急性坏死性脑病CT 或MRI 可见对称性、多灶性脑损伤，包括双侧丘脑、脑室周围白质、内囊、壳核、脑干被盖上部（第四脑室、中脑水管腹侧）和小脑髓质等。” 从世界各地其他受感染国家的医学科研人员最近所做的对于中共病毒重症死亡患者的脑部解剖结果来看，跟中共2019年11月的诊疗方案中描述的脑部损伤，是非常契合的。
+仅从2019年至今，他就多次提到中共是对自由最大的威胁，并非要求世界在美国和中共国之间选边站，而是要在“自由”和“独裁暴政”之间做出选择。2020年，蓬佩奥两次提到“世纪之污”都指向中共对新疆的罪行。对中国人民，蓬佩奥始终抱有美好的感情：“希望不伤害中国人民”，“帮中国人民推倒防火墙”。
 
-很多感染了CCP病毒的重症患者，脑部都受到了病毒的严重攻击。有些脑组织的出血点周围被发现聚集了大量死去的助手型T细胞和巨噬细胞；还出现了一些奇怪的现象：在坏死的丘脑（thalamus）中并没有发现明显的病毒感染的迹象，但是只在丘脑中存在的一种特殊的、名叫小胶质细胞（microglia）的、相当于脑和脊髓中的巨噬细胞，却产生了怪异的聚集现象。
+反观中共的宣传，从不会对无足轻重之人重点围攻。比如当年的大叛徒、大内奸、大工贼刘少奇，林彪反革命集团；又比如苏修、美帝国主义都是因威胁到了一把手的领导地位。如今万里之遥的美国国务卿蓬佩奥先生在“即将卸任”前一天只是发了发推文，就被气急败坏的中共反咬一口，动用举国之力，新华社、ＣＣＡＶ、《环球时报》悉数裸奔，又是造谣、污蔑、抹黑这等手段齐上。
 
-HIV病毒作为一种逆转录病毒，在感染宿主后会整合入宿主细胞的基因组中，主要的感染对象就是人类免疫系统中的重要细胞：助手型T细胞（helper T cells， or CD4+ T cells， or CD4-positive cells)、巨噬细胞（macrophage）、和树突状细胞（Dendritic cells)。细胞毒性T细胞，也就是杀手T细胞（Cytotoxic T cell， or killer T cell， or CD8+ T cells）在发现以上这些被感染的细胞后，就会杀死他们。解剖发现中怪异的现象是否就是中共病毒被插入了HIV病毒基因的表现呢？ 来自圣彼得堡大学的一位教授认为：超过80%的中共病毒的重度感染者都会出现不同程度的中枢神经系统损伤，比如说意识障碍、脑血管不正常、眩晕、头疼、降低的味觉和嗅觉的敏感度。意识完全丧失的病例主要是在感染了中共病毒以后伴随着渐进性的缺血性或者出血性中风而出现的。中共病毒被描述为，先是进入外围的神经末梢，然后通过神经元间的突触转运机制（mechanism of trans-synaptic transport），从而最终影响丘脑以及脑干的功能。
+今年的1月19日，对所有秉持良知正义的人具有特殊的意义。整整一年，ＣＣＰ的生化武器造成接近１亿人感染并仍在持续，对世界人民的基本的生存构成巨大的威胁。全球经济遭重创，失业潮、粮食危机即将吞噬更多无辜的生命，地球进入至暗时刻，正如文贵先生曾经警告的那样。可喜的是，在习总加速师的带领下，中共到处点火，用武力威胁，用金钱收买政客，用债务绑架人民把自己逼到内外交困的墙角，已无路可走。而爆料革命代表的世界正义力量，正在摧枯拉朽将ＣＣＰ这个真正的纸老虎送往火葬场。
 
-中共2019年诊疗方案中在 “八、治疗（四）重症病例的治疗 4.”中写道：“合并神经系统并发症时应给予降颅压、镇静止惊等对症处理；急性坏死性脑病无特效治疗，可给予糖皮质激素和丙种球蛋白等治疗。” 这段描述中提到了两点比较关键的信息。第一，对于患者“镇静止惊”的处理，说明一些患者被感染以后，大脑会产生病变，并且这种病毒可能会使有的人心智反常。第二，一旦病毒导致急性坏死性脑病，致死率是非常高的。
+“玩火者必自焚”。灭掉邪魔恶党，让神州阳光普照，我们一起来倒计时！
 
-**结语 **
+[!\[\]()!\[\](https://spark.adobe.com/page/PrFTKJ4ggRvM7/images/ee35a636-c94e-48d3-9b0e-bbe93450475d.jpg?asset_id=e2b37357-39c8-4234-b7ed-4300144db77f&amp;img_etag=%2281b024334e2e2e01127449f77b65e422%22&amp;size=1024)](https://spark.adobe.com/page/PrFTKJ4ggRvM7/images/ee35a636-c94e-48d3-9b0e-bbe93450475d.jpg?asset_id=e2b37357-39c8-4234-b7ed-4300144db77f&amp;img_etag=%2281b024334e2e2e01127449f77b65e422%22&amp;size=1024)
 
-基于对2019年11月7日中共公布的流感诊疗方案的解析，从病毒流行的时间、两股病毒同时流行、气溶胶传播、无症状传播、低氧血症、以及病毒对中枢神经系统的损伤六个方面来看，2019年中共诊疗方案中描述的病毒很可能是中共实验室造出的生物武器——中共病毒混合了以往的禽流感病毒的特征总结出来的。这份诊疗方案中泄露了中共病毒的几个重要的特点。而这些特点跟中共病毒在全球范围内大爆发后、疫情地区和国家出现的、被媒体报道出来的、中共病毒患者和罹难者的受感染情况是一致的。但是问题在于：中共为什么早在2019年11月就已经知道了这一切，还要把这个病毒放到全世界去？
+*引用来源：[美国现任国务卿蓬佩奥，一个“劣等种族”的后代](https://user.guancha.cn/main/content?id=25869&amp;page=0)*
 
-中共就是想让中共病毒杀死世界上的每一个人，直接杀不死的就侵犯他们的丘脑，削弱人们正常的心智和行动能力，让有一部分人变得暴躁不安，而让有一部分人陷入抑郁最终自杀。总之，中共一天存在在这个世界上，世界上的每一个人都是没有任何未来的。中共就是毁灭我们这个世界的魔鬼，这个魔鬼就是想要毁灭整个人类和上帝所创造的一切。
+*引用来源[外交部发言人：末日小丑蓬佩奥必将受到历史公正的审判和清算](https://baijiahao.baidu.com/s?id=1689412899541661548&amp;wfr=spider&amp;for=pc)*
 
-（完结）
+致谢！喜马拉雅国际工作站油管频道。
 
-参考的消息来源和资料： 
-1.[http://www.gov.cn/zhengce/zhengceku/2019-11/18/content\_5453138.htm](http://www.gov.cn/zhengce/zhengceku/2019-11/18/content_5453138.htm) 2.[https://www.researchgate.net/publication/13929138\_A\_neuronal\_and\_neuroanatomical\_correlate\_of\_HIV-1\_encephalopathy\_relative\_to\_HIV-1\_encephalitis\_in\_HIV-1-infected\_children](https://www.researchgate.net/publication/13929138_A_neuronal_and_neuroanatomical_correlate_of_HIV-1_encephalopathy_relative_to_HIV-1_encephalitis_in_HIV-1-infected_children) 
-3.[https://www.sciencedirect.com/science/article/abs/pii/S1369527410000950?via%3Dihub](https://www.sciencedirect.com/science/article/abs/pii/S1369527410000950?via%3Dihub) 
-4.[https://theconversation.com/how-coronavirus-affects-the-brain-141100](https://theconversation.com/how-coronavirus-affects-the-brain-141100) 
-5.[https://www.msn.com/en-us/news/technology/autopsies-reveal-the-terrible-damage-covid-19-can-inflict-on-the-human-brain/ar-BB1cz6dC](https://www.msn.com/en-us/news/technology/autopsies-reveal-the-terrible-damage-covid-19-can-inflict-on-the-human-brain/ar-BB1cz6dC) 
-6.[https://www.livescience.com/woman-with-covid19-coronavirus-had-rare-brain-disease.html](https://www.livescience.com/woman-with-covid19-coronavirus-had-rare-brain-disease.html) 
-7.[https://abcnews.go.com/Health/covid-19-delirium-doctors-race-understand-impact-brain/story?id=70654415](https://abcnews.go.com/Health/covid-19-delirium-doctors-race-understand-impact-brain/story?id=70654415) 
-8.[https://www.sciencedirect.com/science/article/abs/pii/S0889159120303573?via%3Dihub](https://www.sciencedirect.com/science/article/abs/pii/S0889159120303573?via%3Dihub) 
-9.[https://www.frontiersin.org/articles/10.3389/fnins.2020.601063/full](https://www.frontiersin.org/articles/10.3389/fnins.2020.601063/full) 
-10.[https://www.annualreviews.org/doi/full/10.1146/annurev.neuro.24.1.167](https://www.annualreviews.org/doi/full/10.1146/annurev.neuro.24.1.167)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
 
-（本文仅代表作者个人观点，不代表农场）
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/PrFTKJ4ggRvM7/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/PrFTKJ4ggRvM7/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+
 
 0
