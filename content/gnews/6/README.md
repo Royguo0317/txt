@@ -1,217 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫报告：川普政府的政绩——截至2021年1月（八）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/788066/)
+## 郭先生1月21日直播精要文字版
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/789864/)
 
-五月花写作组 ｜ 翻译：Tom Cat ｜ 校对：jiasen ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告8-2.jpg)
-### **Part 8 – Great Healthcare for Americans**
+听写：**喜韩农场**：郭先生家的snow
+**纽约香草山农场**：369文驹
+**英国喜庄园**：杯酒渐浓
+校对：**纽约香草山农场**：GForever(文紫)
+发布：**华盛顿DC农场**：文顾
 
-### **第八部分：为美国人提供优质的医疗保健**
+1、00:15:00这两天深刻的感受：当时十八大之前，确定习王上台的时候，当时中国商界最牛的几个人，马云、肖建华、王健林、许家印、叶简明、任志强、潘石屹，都跟海航有关系。我因为挑战过王岐山、刘志华，别人见我跟见鬼一样，认为我大势已去，王岐山想拿我开刀。说我是令计划的同党，是颠覆国家政权最重要的一个人，那个较量每秒钟都是天翻地覆、生死存亡的。
 
-* * *
+2、00:27:00我20几年的布局，瞬间被令计划儿子法拉利车祸搞掉。习王上台后，我开始并购方正集团、海通证券，短短两年为家族和基金融资达600亿，所涉及的金融证券的并购达三千亿。当你有明确的敌人和危机的时候，如何将危机转化为真正的机会，这不是吹牛的，需要行动，我做到了。
 
-**Empowered American patients by greatly expanding healthcare choice, transparency, and affordability.**
+3、00:30:00当时2003、2004年，闫冰告诉我说你完了，北京市政府已经做出各种决定，刘志华非要搞死你。盘古是全中国第一个生出来的孩子送回到肚子里又重新生出来的项目，这是文贵相当骄傲的一件事。王岐山本来和刘志华要搞一个廉洁奥运，因为贵文贵和盘古改成了叫绿色奥运。那个反复、得意、危险和起伏，未经历者是永远不知道的。
 
-**通过极大地扩大医保的选择性、透明度和可负担性，为美国患者提供多种选择；****促进医疗保健领域的研究和创新；****。**
+4、00:32:00我昨天才得知河南裕达国贸被挂在京东上拍卖，因为路德先生搞天线宝宝。裕达国贸光家具都花了2个多亿，1995到1996年就花了26亿，加上利息36亿，中途还投入近8亿现金，结果16万平方米的裕达国贸在京东挂牌12亿人民币。在30年后中国房地产涨了50倍的情况下，这个拍卖价才是成本的80%。但是我相信裕达一定会再回到我的手里，一定是我们的。
 
-- Eliminated the Obamacare individual mandate – a financial relief to low and middle-income households that made up nearly 80 percent of the families who paid the penalty for not wanting to purchase health insurance.
-- 取消了奥巴马医疗法案个人强制性 – 这是对中低收入家庭的一项财政救济，这些家庭占因不愿购买医疗保险而支付罚款的家庭的近80%。
+5、00:36:00盘古被劫走又被还回时，中央、地方、各省的人排着队要见我，都知道文贵得到了胡锦涛、令计划、吴官正等人的支持。然后盘古在一年内建起来，接着是奥运会，那时候的奥运会车都开不进去，我的特牌一大堆，习近平每周要去2、3次，短短不到几百天，人生之巅峰，人生之起伏。
 
+6、00:38:00从2003年到2006、2008年，是我一生中最辉煌的时候。2012年，人生重大转折、事业重大挑战和重大挫败，王岐山来了。我知道中国通过内部和平演变的可能性是没有了。
 
-- Increased choice for consumers by promoting competition in the individual health insurance market leading to lower premiums for three years in a row.
-- 通过促进个人健康保险市场的竞争以增加消费者的选择，从而连续三年降低保费。
+7、00:39:00习近平比谁都恨共产党，满脑子都是毛思想，他要报复。他不会放权的，不会给人民民主的。他认为中国的老百姓就得像猪狗一样养着，往死里整。王岐山就更不用说了，认为老百姓吃三年草都没事儿。他们俩出来，中国就完蛋了。
 
+8、00:40:00然后到香港追杀，香港中银一层的办公室光装修费都几千万，全扔在那儿了。一个房子将近7亿美元，几千万的房子至少几十套。几十上百台豪华车辆也都扔那里了。香港账上1000多亿的现金都封在那里了。
 
-- Under the Trump Administration, more than 90 percent of the counties have multiple options on the individual insurance market to choose from.
-- 在特朗普政府的领导下，超过90%的县在个人保险市场上有多种选择。
+9、00:41:00在2003到2006年与共产党最高层的政治较量和周旋，享受了常委待遇。在金融界拿下了几乎最牛的几个项目，北大还给我终身教授和副校长。到后来的2012、2014年，这期间我受到的威胁都大于现在的亿万倍。
 
+10、00:42:00只有郭文贵敢说我没：我没在大陆拿出一美元，没在大陆犯一点儿罪，没做任何违法的事情，而且没有偷过一分税，谁敢？我敢！最后CCP给我定的罪是“强迫交易罪”，罚款130亿美元，这是人类上最荒唐的事情。
 
-- Offered Association Health Plans, which allow employers to pool together and offer more affordable, quality health coverage to their employees at up to 30 percent lower cost.
-- 提供《协会健康计划》，允许雇主联合起来，以比原先最多低30%的费用为员工提供更负担得起、更优质的健康保险。
+11、00:44:00从2016年底、2017年初我开始爆料，威胁、杀害、利诱，刘彦平、孙立军、吴征、马云，大家都看到了吧，多大的利诱，多大的威胁。红通、蓝通、连黑通都发了；香港政府改变一切法律来干文贵；还买通川普身边所有的大佬，让川普总统遣返我；派多少人到纽约家里家外暗杀、威胁、抗议，动用全部潜伏的沉默力量；抓捕人员，查封基金。我是全世界公认的CCP的头号敌人。
 
+12、00:46:00.2017到2020年，我们创造了爆料革命并成立了新中国联邦，将世界上最大的一个流氓犯罪集团、犯罪组织定义为反人类、种族大屠杀； 揭露了CCP病毒真相；将中国人民和CCP分开； 把CCP变成了人类公敌。1000多天，爆料革命做的事儿是过去70年从不敢提，更别说做到的，所以我们骄傲、我们自豪。
 
-- Increased availability of short-term, limited-duration health plans, which can cost up to 60 percent less than traditional plans, giving Americans more flexibility to choose plans that suit their needs.
-- 增加短期、有期限的健康计划，其费用比传统计划最多低60%，让美国人有更多的灵活性来选择适合自己需要的计划。
+13、00:48:00感恩上天的庇佑，我的一生都承载在钢丝上。现在的危险绝不会大于2003到2020年，我从来没有觉得像今天这么强大过。2021年的1月20日绝对是我们爆料革命的一个重大挫折，对灭共事业是一个不可确定因素和巨大挑战。我们在拜登硬盘事件中，走得有点远、走得有点急。这对GTV和GNEWS商业上是成功的，但是在政治上是错的。
 
+14、00:49:00中共派遣高素质的特务来潜伏，在英文twitter上带偏路没有及时制止，导致很多战友被虚假信息所引诱。爆料革命和新中国联邦不强迫任何人加入， 灭共，我们不欠任何人的，最伟大的是那些牺牲的默默无闻的战友。
 
-- Expanded Health Reimbursement Arrangements, allowing millions of Americans to be able to shop for a plan of their choice on the individual market, and then have their employer cover the cost.
-- 扩大《健康报销安排》，让数百万美国人能够在个人市场上购买自己选择的方案，然后让雇主支付费用。
+15、00:53:00路德访谈和博士军团做出重大贡献，那些说路德没说对的，你去做个119出来。所以说，爆料革命和新中国联邦没有任何承诺，不存在兑不兑现。
 
+16、00:55:00改变1月20号的力量只有两个，一是社交媒体，一个是金钱。这次的终极之战就是facebook，twitter和youtube社交媒体、太空大佬的选举，他们背后是共产党，钱的背后也是共产党。我们最大的失误是在媒体上， G系列发展得慢和晚了，灭共战斗力和经济两方面没有发展平衡。共产党认为最大的力量不是核武器，而是社交媒体，然后才是金融、经济和科技力量。我们让战友全面参与、全面分享利益的G系列做的太好了，我们要更快更准的发展。
 
-- Added 2,100 new Medicare Advantage plan options since 2017, a 76 percent increase.
-- 自2017年以来增加了2100个（即增加76%）新《联邦医疗保险优惠计划》项目。
+17、1:00:00七哥的历史给了你们最好的答案，遇到这种大事的时候，怎么办？第一件事，我先把这十几亿美元花出去，花到G系列上，2021年就是发展G系列为主。做到未来不能让Facebook、Twitter这些社交媒体独家说了算，必须有社交媒体的绝对话语权。第二个，解决恐惧最好的办法就是你有实力和放下生死。想明白了你就发现七哥是大赢家，爆料革命是大赢家，新中国联邦是大赢家。
 
+18、1:12:00 1.20绝对是上天带给我们最大的机会，1.20绝对会让我们真正的战友联合在一起。2021年我们要低调、务实，发展、壮大G系列，把各农场强大的联系在一起，分清真假战友。1.20之后，我们让G系列强大，让更多的战友以最快的时间，能有现钱，能有兑换的钱；以最快的速度在全世界拥有社交媒体话语权。固化、强化、国防化、国家化，新中国联邦的必然要达到的目标。
 
-- Lowered Medicare Advantage premiums by 34 percent nationwide to the lowest level in 14 years. Medicare health plan premium savings for beneficiaries have totaled nearly  $ 1.5 billion since 2017.
-- 将联邦医疗保险优惠保费降低了34%至14年来的最低水平。自2017年以来，医疗保险计划受益人的保费储蓄总额已接近15亿美元。
+19、1:16:00 我们今年要达到Facebook前3、4年做到的事情，明年年底要达到Facebook7年做到的事情。盖特今年年底前要达到80的功能，明年达到百分之百的功能。G-News今年年底要达到纽约时报70%-80%的功能。今年年底前要达到这些40%-50%欧洲北美白人客户。G-Bank一定会到来的。
 
+20、1:18:00 CCP现在想和我们打心理战，他太不了解我了，你差太远了，中南坑没有人有资格跟我较量。我用过去的3年的时间把共产党变成了世界上人类大屠杀，种族灭绝罪，过街的老鼠，非法的政权；还让全世界知道是你打开了你的潘多拉盒子—-“冠状病毒”来威胁全人类。我三年就把你弄这样了，再有三年会啥样？有个好消息：病毒会在未来的几个月逐渐消减，新病毒的释放可能会暂缓，这是全人类的好消息。
 
-- Improved access to tax-free health savings accounts for individuals with chronic conditions.
-- 改善慢性病患者获得免税医疗储蓄账户的机会。
+21、1:22:00七哥不需要任何安慰，而且我一定会遇难呈祥。经过24小时的调整，我马上知道了下一个目标。大力地发展G系列，让所有的战友们都受益；强化我们的社交媒体平台，把我们新中国联邦的国防力量打造起来；强化我们爆料革命的各种和西方团结的力量。更重要的是七哥会让你们看到和拜登总统、副总统哈里斯、跟民主党，将建立一个什么样的关系。
 
+22、1:24:00接下来我们会把灭爆小组打得满地找牙，我们手里很多牌还没出呢。CCP病毒这件事，我们想做多大就能做多大，牌在我们手里面。1.20对我们的挫败只会让我们越挫越强，重塑新中国联邦的方向和力量。我们一定会和美国的民主党、拜登政府，建立全面的灭共关系。我再次呼吁，对这届法律上承认的美国政府，不能有个人攻击，包括对他家人。灭共不只我们需要，也是全人类正义需要。我们一定要记住，谁和共产党勾兑都是我们敌人，谁跟我们一起灭共就是朋友。七哥已经开启了全面的战斗计划，今年要保特更多神秘，做完再说。我们在一个最伟大的时代，新中国联邦和爆料革命是无数个战友凝聚而成的力量，它是正义的力量，是人类最后的希望。这场邪恶和正义的终极之战我们是主角，一切都靠行动，共产党你完了！共产党你完了！共产党你完了！
 
-- Eliminated costly Obamacare taxes, including the health insurance tax, the medical device tax, and the “Cadillac tax.”
-- 取消昂贵的奥巴马医疗法案税，包括健康保险税、医疗器械税和“凯迪拉克税”。
+关键词：盘古、裕达国贸、王岐山、刘志华、胡锦涛、令计划、习近平、G系列
 
-
-- Worked with states to create more flexibility and relief from oppressive Obamacare regulations, including reinsurance waivers to help lower premiums.
-- 与各州合作，创造更大的灵活性，减轻奥巴马医疗法案的压力，包括再保险豁免，以助降低保费。
-
-
-- Released legislative principles to end surprise medical billing.
-- 发布立法原则，以结束意外医疗账单。
-
-
-- Finalized requirements for unprecedented price transparency from hospitals and insurance companies so patients know what the cost is before they receive care.
-- 对医院和保险公司提出了前所未有的价格透明度要求，以便患者在接受治疗前了解成本。
-
-
-- Took action to require that hospitals make the prices they negotiate with insurers publicly available and easily accessible online.
-- 采取行动来要求医院公开其与保险公司谈判的价格，并方便通过网络获取。
-
-
-- Improved patients access to their health data by penalizing hospitals and causing clinicians to lose their incentive payments if they do not comply.
-- 通过惩罚医院，并使临床医生在不遵守规定的情况下失去奖金，改善病人获取其健康数据的途径。
-
-
-- Expanded access to telehealth, especially in rural and underserved communities.
-- 特别是在农村和服务不足的社区，扩大获得远程保健的机会。
-
-
-- Increased Medicare payments to rural hospitals to stem a decade of rising closures and deliver enhanced access to care in rural areas.
-- 增加对农村医院的医疗保险支付，以遏制十年来不断增加的医院关闭现象，并在农村地区提供更多的医疗服务。
-
-
-**Issued unprecedented reforms that dramatically lowered the price of prescription drugs.**
-
-**出台了前所未有的改革措施，大幅降低了处方药的价格。**
-
-- Lowered drug prices for the first time in 51 years.
-- 51年来首次降低药品价格。
-
-
-- Launched an initiative to stop global freeloading in the drug market.
-- 发起一项行动，制止全球药品市场的吃白食现象。
-
-
-- Finalized a rule to allow the importation of prescription drugs from Canada.
-- 最终确定了允许从加拿大进口处方药的规则。
-
-
-- Finalized the Most Favored Nation Rule to ensure that pharmaceutical companies offer the same discounts to the United States as they do to other nations, resulting in an estimated $85 billion in savings over seven years and $30 billion in out-of-pocket costs alone.
-- 最终确定了《最优惠国家规则》，以确保制药公司向美国提供的折扣与向其他国家提供的折扣相同，从而在七年内节省了约850亿美元，仅自付费用就高达300亿美元。
-
-
-- Proposed a rule requiring federally funded health centers to pass drug company discounts on insulin and Epi-Pens directly to patients.
-- 提议一项规定，要求联邦资助的医疗中心直接向患者提供药品公司在胰岛素和肾上腺素的折扣。
-
-
-- Ended the gag clauses that prevented pharmacists from informing patients about the best prices for the medications they need.
-- 终止了禁止药剂师告知病人他们需要的药物的最佳价格的条款。
-
-
-- Ended the costly kickbacks to middlemen and ensured that patients directly benefit from available discounts at the pharmacy counter, saving Americans up to 30 percent on brand name pharmaceuticals.
-- 结束了给中间商的昂贵回扣，确保患者直接受益于药店柜台可获得的折扣，为美国人在品牌药品上节省高达30%的费用。
-
-
-- Enhanced Part D plans to provide many seniors with Medicare access to a broad set of insulins at a maximum $35 copay for a month’s supply of each type of insulin.
-- 增强了《医疗保险D计划》计划为许多老年人提供医疗保险获取品种广泛的胰岛素，每一种类型的胰岛素每月最多35美元。
-
-
-- Reduced Medicare Part D prescription drug premiums, saving beneficiaries nearly $2 billion in premium costs since 2017.
-- 降低《医疗保险D计划》处方药保费，自2017年以来为受益人节省了近20亿美元的保费成本。
-
-
-- Ended the Unapproved Drugs Initiative, which provided market exclusivity to generic drugs.
-- 终止了为通用药物提供市场排他权的《未获批准药物倡议》。
-
-
-**Promoted research and innovation in healthcare to ensure that American patients have access to the best treatment in the world.**
-
-**促进医疗保健领域的研究和创新，以确保美国患者能够获得世界上最好的治疗。**
-
-- Signed first-ever executive order to affirm that it is the official policy of the United States Government to protect patients with pre-existing conditions.
-- 签署了有史以来第一个行政命令，确认保护慢性病患者是美国政府的官方政策。
-
-
-- Passed Right To Try to give terminally ill patients access to lifesaving cures.
-- 通过了《尝试的权利》给绝症患者获得挽救生命的治疗机会。
-
-
-- Signed an executive order to fight kidney disease with more transplants and better treatment.
-- 签署了一项行政命令，通过更多的器官移植和更好的治疗来对抗肾病。
-
-
-- Signed into law a $1 billion increase in funding for critical Alzheimer’s research.
-- 签署了一项法律，为阿尔茨海默氏症关键研究增加10亿美元基金。
-
-
-- Accelerated medical breakthroughs in genetic treatments for Sickle Cell disease.
-- 在镰状细胞病的基因治疗方面加速取得医学突破。
-
-
-- Finalized the interoperability rules that will give American patients access to their electronic health records on their phones.
-- 敲定了互操作性规则，让美国患者可以通过手机查看自己的电子健康记录。
-
-
-- Initiated an effort to provide $500 million over the next decade to improve pediatric cancer research.
-- 启动一项努力尝试，在未来十年提供5亿美元，以改善儿科癌症研究。
-
-
-- Launched a campaign to end the HIV/AIDS epidemic in America in the next decade.
-- 发起一项运动，旨在在未来十年结束美国的艾滋病毒/艾滋病（HIV/AIDS）流行。
-
-
-- Started a program to provide the HIV prevention drug PrEP to uninsured patients for free.
-- 启动了一个项目，为没有保险的患者免费提供艾滋病预防药物PrEP。
-
-
-- Signed an executive order and awarded new development contracts to modernize the influenza vaccine.
-- 签署了一项行政命令，并授予了新的开发合同，以使流感疫苗现代化。
-
-
-**Protected our Nation’s seniors by safeguarding and strengthening Medicare.**
-
-**通过维护和加强医疗保险来保护我们国家的老年人。**
-
-- Updated the way Medicare pays for innovative medical products to ensure beneficiaries have access to the latest innovation and treatment.
-- 为创新医疗产品更新医保支付费用的方式，以确保医保受益人能够获得最新的创新治疗。
-
-
-- Reduced improper payments for Medicare an estimated $15 billion since 2016 protecting taxpayer dollars and leading to less fraud, waste, and abuse.
-- 自2016年以来，减少约150亿美元的医疗保险的不当支付，保护了纳税人的钱，并减少了欺诈、浪费和滥用。
-
-
-- Took rapid action to combat antimicrobial resistance and secure access to life-saving new antibiotic drugs for American seniors, by removing several financial disincentives and setting policies to reduce inappropriate use.
-- 采取迅速的行动对抗抗生素耐药性，并通过取消一些金融限制措施和制定政策减少不当使用，确保美国老年人能够获得拯救生命的新型抗生素药物。
-
-
-- Launched new online tools, including eMedicare, Blue Button 2.0, and Care Compare, to help seniors see what is covered, compare costs, streamline data, and compare tools available on Medicare.gov.
-- 推出了新的在线工具，包括在线医疗服务（eMedicare）,蓝钮2.0（Blue Button 2.0），医疗对比（Care Compare），帮助老年人查看覆盖范围，比较成本，简化数据，并比较Medicare.gov上可用的工具。
-
-
-- Provided new Medicare Advantage supplemental benefits, including modifications to help keep seniors safe in their homes, respite care for caregivers, non-opioid pain management alternatives like therapeutic massages, transportation, and more in-home support services and assistance.
-- 提供新的《医疗保险优势》补充福利，包括帮助老年人在家中保证安全的调整，对照顾者的临时照顾，非阿片类疼痛管理替代方案（如治疗性按摩），运输工具，以及更多的家庭支持服务和援助。
-
-
-- Protected Medicare beneficiaries by removing Social Security numbers from all Medicare cards, a project completed ahead of schedule.
-- 通过删除所有医疗保险卡上的社会安全号来保护医疗保险受益人，这一项目已提前完成。
-
-
-- Unleashed unprecedented transparency in Medicare and Medicaid data to spur research and innovation.
-- 在医疗保险和医疗补助数据方面显示了前所未有的透明度，以刺激研究和创新。
-
-
-原文来源：[https://www.whitehouse.gov/trump-administration-accomplishments/](https://www.whitehouse.gov/trump-administration-accomplishments/)
-
-* * *
-
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
-
-更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)！
-
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)！
-
-0
++1
