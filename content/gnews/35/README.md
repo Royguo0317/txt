@@ -1,37 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [德教专栏]—水的智慧
-` 旧金山金喜准农场` [轉載自GNews](https://gnews.org/zh-hans/789084/)
+## 【军事快讯】巴格达自杀炸弹袭击已确认32人死亡,预示邪恶轴心国和恐怖主义重新抬头？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/789253/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/水的智慧-e1611263148162.jpg)
-
-#### 作者：[德先生德教云书院](https://gtv.org/user/5e7d110e0b629f6c2cef3da3)
-
-青藏高原的三江源，产生了一小股清泉，开始向东面的大海出发，一路上汇聚了各种小河，这就形成了长江，浩浩荡荡地向东流去。
-
-一路上**长江不可能是按照事先规划好的一条笔直的线路图**，一帆风顺地流到大海，肯定会碰到各种高山的阻挡，但是长江绝不会停下来抱怨和想不通：这座高山为什么要阻挡我的去路，它也绝不会灰心失望，而是会绕开这座高山，继续向着东流去。所以，任何的高山也无法阻挡河流，这就是中华传统的**灵动如水的智慧**。
-
-![](https://lh6.googleusercontent.com/GMEusTnwzAmQIOGcZigosYVzfF30O_m-Ga0y8KTDW0It_Fg74kkezz9jmtR3HSmLANW-GutcqRdzi8zrYivMLfuIJ4EFv8Rpntu9RThJtbwVpbQTd-SftiZpR8Gw0c-fTA9Uyz0z)
-
-只要长江不忘记自己的目标大海，不要停下来，运用智慧不断绕开各种障碍物，向着大海这个大方向一路奔去，路上自然会不断汇聚各种河流，力量越来越大，势不可挡，最终定会抵达自己的目的地——大海。
-
-**三江源**就是**文贵先生**，**长江**就是**爆料革命**，而**我们**就是爆料革命这个长江中的**每一滴水**，所以不要被面前阻挡我们的拜登牌高山所局限，不用在这里纠缠，直接绕开它，向着我们的方向继续前进就是了，这就是灵动如水的智慧。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/水.jpeg)
-所以，大家要学习水的智慧，不要老想着眼前的山好高啊，为什么要挡着我的路，要是没有山就好了，这就是执着，要**消除一切执着，才是真正的智慧**。
-
-德先生德教云书院 Getter原文: [https://gtv.org/user/5e7d110e0b629f6c2cef3da3](https://gtv.org/getter/6009509187fabe2daf3e7a7b)
-
-德先生德教云书院 GTV: [https://gtv.org/user/5e7d110e0b629f6c2cef3da3](https://gtv.org/user/5e7d110e0b629f6c2cef3da3)
-
-德先生德教云书院 Discord: [https://discord.com/invite/zsME4jN](https://discord.com/invite/zsME4jN)
-
-德先生德教云书院 Twitter: [https://twitter.com/ABC12349540264](https://twitter.com/ABC12349540264)
+作者：纽约香草山写作组   Wilson
 
 
 
-编辑：Candy, [Amos文也](https://gtv.org/user/5e750fdd7fdb1049cc747023)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-配图：[阳光晓曦](https://gtv.org/user/5ea5c7cfe538910ad4c99207)， [GLOVE](https://gtv.org/user/5e948b2bda1e1a41b47f6b46)
 
-+8
+
+Dr. Bo（博博士）于2021年1月21日发布消息称，伊拉克首都巴格达刚刚发生自杀式炸弹袭击事件，目前已确认32人死亡，110人受伤。伊拉克卫生部今早发布的通告证实了以上消息。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/17.png)
+
+Dr. Bo指出，如果该事件是因为美国新政府释放了某种和川普政府不同的信号而引发，那么南海、台海、北韩等热点地区的动荡或将相继加剧。
+
+点评：拜登政府已经明确将重返伊朗核协议，而且正在和伊朗进行秘密谈判。这意味着川普政府退出伊核协议并对伊朗实行高压的政策将被否定，拜登政府将对伊朗采取绥靖政策。这又是否预示伊朗掌握的势力将重新抬头：除了在中东制造事端外，和以色列的对抗也将更加公开和激烈？
+
+伊朗、中共国和朝鲜都是当今世界的邪恶轴心俱乐部成员。既然美国对其中的伊朗松绑，那么对中共和朝鲜是否也将釆取同样的绥靖政策，从而导致台海、南海、朝鲜的局势愈发紧张动荡？——全世界都在试目以待。
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
+
+
++3

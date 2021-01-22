@@ -1,49 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登总统就职典礼｜美国Google Trend趋势分析
-` G-Talent技术社区` [轉載自GNews](https://gnews.org/zh-hans/790020/)
+## 美国民众不再被狡猾的福奇愚弄
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/790150/)
 
-*分析师：Shobaku｜数据ETL：1324大数据分析作战室｜编辑/审核：G-Talent*
+素材：Jenny
 
+撰稿/视频：光耀华夏
+原视频来自Telegram
+2021年1月21日，Telegram知名大V账号@Breaking911报道了美国国立过敏和传染病研究所（National Institute of Allergy & Infectious Disease，NIAID）主任安东尼.福奇博士（Dr. Anthony Fauci）在白宫新闻简报会（White House Briefing）上的采访片段，福奇声称新任政府和他的团队将在新冠病毒大流行上做到“完全透明，公开和诚实”，并称“所作的一切都基于科学和证据”。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture2-5.jpg)Telegram留言评论截图
+然而和福奇志得意满的表情形成鲜明对比的是，在发帖下面的评论中，清醒的美国民众一边倒地对福奇在新冠病毒大流行一事上的种种不作为和信息误导表示了极大的不满和嘲讽。摘录翻译部分精彩评论如下：
 
-
-* * *
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/拜登就职典礼｜在美国的Google-Trend趋势分析-3-scaled.jpg)
-
-1. 这三张图分别是关于“**Biden Inauguration**”、“**Trump departure ceremony**”和“**We will be back in some form**”在美国的Google Trend图。第一个关键词的中文是“拜登 就职典礼”，第二个关键词的中文是“川普 告别仪式”，第三个关键词是川普总统在告别仪式上的一句话。
-
-2. 图中使用的是格林威治时间（GMT），而最后的24个点也就表示了美东时间1月20日的整体状况。我们将这3个关键词放在3个图中，反映的是Google中的搜索量随时间的变化趋势。由于是放在不同的图中，每个关键词的具体数值是不能比较的，但是它们的趋势却是可以比较的。
-
-3. 三张图中都显示出，在1月20日上午，搜索量趋势都是冲向高峰然后回落，然后在20日傍晚的时候二次上扬。但是这些二次上扬的样子却不太一样：(1)“**Biden Inauguration**”只冲了一个很小的幅度就降落了；(2)“**Trump departure ceremony**”冲了一个很大的幅度，然后回落；(3)截至获取数据的最近时刻，“**We will be back in some form**”似乎还没有马上降落的迹象。
+- Fauci lied people died. （福奇撒谎，人民死亡）
+- Science and evidence concludes this is a fraud. （“科学和证据”表明这是欺诈）
+- Fauci is a snake. Trump should have fired him from day one! （福奇是一条蛇。川普从上任第一天就应该把他解雇）
+- I don’t believe a thing that comes out of Fauci’s mouth. He is a weasel.（我不相信福奇嘴里说出的任何事。他是个黄鼠狼。）
 
 
+（本文视频评论摘自原网站，无添加个人观点）
 
-从这样的图中，反映出：在美国晚间的时候，大家回看白天的新闻和视频等等的大致情况；而在这样的回看中，就出现了对“**Trump**”类的回看的反弹趋势更强烈一些；由此，反映出Trump在美国公民中的人气应该是更高的。
+参考来源：[https://t.me/breaking911/311](https://t.me/breaking911/311)
 
- 我们团队需要秉持的是对数据的客观分析，原则上是要很少地加入一些对数据的情感性描述，但是现在可能暂时需要摒弃这个原则。
+澳喜文章: [https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
 
- “Trump在美国公民中的人气应该是更高的”，这些人不一定是Trump的支持者，但是很多都是正义的支持者；今天，美国的正义原则遭受了动摇，美国的“伟大”也遭受了更多的质疑；那么这样的事情是不是也提醒着美国公民，“当美国的正义遭到破坏的时候，热爱正义的美国公民如果也不站出来维护正义，那么会不会像当年的中国人那样失去了正义和自由呢？” 
-
-如今，我们一小部分的中国人在为了中国人的自由、民主、法治而发声，去行动，甚至于是为了提醒全世界的人“黑暗已经降临”而行动。那么拥有正义感的美国公民，甚至于是拥有正义感的全世界的人，是不是不能够再继续等待了，需要靠行动来支持正义、支持真相的揭露呢？ 
-
-我们团队也考虑了，“**We will be back in some form**”这句话为什么还依然处于二次反弹的位置。说明并不只是各位爆料革命中的战友们失落，其实有正义感的美国公民也同样失落，他们也想寻找到一丝丝的对未来的可能性。郭先生也强调过这些有正义感的美国公民才是我们新中国联邦人的合作方；他们也像我们中国人曾经那般地被剥夺了正义；而当他们也逐渐站出来的时候，那么会不会也是为这句“be back”成为现实而逐渐地“添砖加瓦”呢？
-
- 如此一来，有正义感的美国公民就有着他们需要完成的目标。同样地，中国人的核心目标，是不是依然是“消灭中国共产党这个组织，实现中国人的自由、民主、法治”呢？ **相信真正的战友心中的答案是坚定而清晰！**
-
-
-
-
-
-#### [G系列招聘，关注G-Talent](https://discord.gg/TXvVaDDXwZ)
-
-
-
-#### [WBM爆料革命网址导航](https://gtalent.club)
-
-
-
-0
+欢迎加入澳喜农场：
+[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-澳喜Logo-1.jpeg)
++1

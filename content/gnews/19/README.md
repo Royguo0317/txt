@@ -1,202 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 最新红歌改编作品 &#8212;《东方红？》
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/789603/)
+## 为什么说“川普”会1000%连任美国总统？
+` 烧火棍` [轉載自GNews](https://gnews.org/zh-hans/789754/)
 
-作曲、编曲： Kevin 卡卡
-作词： Kevin 卡卡， 见证伟大时刻
-演唱： Kevin 卡卡， MC文艺
-视频、字幕： 二丫
+**作者：缘布施**
 
-**音乐制作： **秘密翻译组 国际歌曲组
-G-Translators| Music
+《易经》告诉我们，世界上的事，世界上的人，乃至宇宙万物，没有一样东西是不变的。宇宙间万事万物，有许多是我们的智慧知识没有办法了解的。万事万物随时随地都在变的，可是却有一项永远不变的东西存在，就是能变出来万象的那个东西是不变的，那是永恒存在的。
 
-## **歌词：**
+当川普总统还在任期时；有人说川普会1000%连任美国总统？这个说法绝对是正确的，因为这是忠诚的表达方式，类似中国人喊的“万岁”，那些被喊“万万岁”的君主，有哪个又活到了“千岁”？百岁都是难得的！三国时期“魏延”与“黄忠”的结局是最好的诠释，一个是被防范的对象，一个是五虎上将。不要以为背叛就能换来利益，在历史的长河中任何君王都尊敬忠诚的人格，只是各为其主而已。
 
-东方红？
-The East Is Red？
+当你的人格是忠诚的，敌人也会尊重你，拉拢你，而不是唾弃你。人们之间的争辩，虽说是为了明辨是非，弄清曲直，认识真理，但争辩的本身是苦涩的，因而争辩的结果往往会破坏感情，伤害和气，有碍团结。
 
-在遥远的东方有那么一些个洗脑歌曲，歌词里的人名我他妈提都不想提
-In the far east there are some brainwashing songs and I don’t even want to mention the names in them
+![]()![](https://gnews.org/wp-content/uploads/2021/01/photo.jpg)
 
-Ok 你听 我说 咱们捋一捋，看看共产党这帮败类到底是啥JB东西
-Ok, listen, let’s see what kind of scum is CCP
+美国大选这样的结局才是灭共的最佳时机，因为中国有句老话；“得民心者得天下”。由于川普总统的落选，伤了美国人的心，川普总统无意间做了“庞统”，回顾历史；三国时期的“庞统”不死，刘备也不会下杀手入川。而“慈不掌兵，义不掌财”，心肠慈悲的人不带兵，慷慨好义的人不作生意。美国人的好日子过的太久了，一定会出毛病的，越安定越要捣乱社会，“治万物其患如此”，所以美国人经过这次劫难，才能够清醒。
 
-他说爱人民，领导我们向前进，十年文革造孽你他妈不怕天打雷劈
-He says to love people and lead us to a better future, but the decade-long evil Culture Revolution invites God’s wrath
+一个人的人生观确定以后，富贵贫穷，有地位无地位都没有关系，有饭吃无饭吃，有钱无钱都一样，人生自然有自我存在的价值。对自己的人生观都还没有确定，自己的学问道德修养都还不够，自己都还没有站起来，哪里有资格去暴露别人的错误啊！一个人思想复杂了，烦恼太多了痛苦太大了，连自己都救不了，还能够救人家吗？还能够救天下国家吗？
 
-他为人民谋幸福，还是人民的大救星,我肏你大爷逛逛市场问问腊肉多钱一斤
-He says to create happiness and is a people’s savior, but not knowing the meat prices in markets
+个人事、国家事、天下事的原则是一样的，只有自强自立，才是唯一的生存之道。尤其是新中国联邦，介于国际上强国之间的自处，除了自立自强以外，绝无其他妥协的良策。况且愈妥协，将愈增加困难。国家大势如此，个人事业也如此。站得起来就站起来，站不起来就得见机振作。但是有许多人，站不起来时不肯爬，爬不动时又不肯躺下，还老是觉得自己是站在那里，其实并没有站着，这样就很可怜了。总之，人生哲学和政治哲学的道理一样的。
 
-谁他妈说你像太阳，还照到哪里哪里亮，哪里有了共产党哪里必有道德沦丧
-Who says you are like the sun and bring in light wherever you shine, only seeing moral bankruptcy with your presence
+美国大选的结果只会让中共死的更快。因为“小人同而不和”，恶人自有恶人磨，此时此刻中国人要清醒，美国的权杖是硬实力，不要因小失大，如果中共不灭所有人的儿女都是鳄鱼的玩物，所有人的器官都是中共上贡的资源。1月20号后地球的能量已经发生了变化，不要让中共利用了美国政治的分歧，而是要快速转变思维，调整战略模式。灭共才是主线，而疫情会导致全世界洋人死的更多，以前中共可以用钱买下一切，但是洋人的命，中共买不了，所以中国人只有团结才能聚合能量，只要聚合了能量；美国不管换了谁做总统，都会用来做平衡。
 
-假公济私九十九口棺材留给污吏贪官，剩下一口他娘的留给自家塞金砖
-Who say to give corrupted officials his 99 coffins, and keeping one hoarding his gold loots
+灭共是一个接力赛，美国的战略方向已经掉头，加上中共不讲求治国原则而倒行逆施，刑杀不坚持依理行事，重收赋税，枯竭民财，急征狂拆，疲困民力，那么民财枯竭就不免发生侵夺；民力疲困就不免怠情轻慢。人民已经到了侵夺、惰慢的地步，再用刑法来惩罚，那就是刑罚越重，祸乱越起。人民陷入劳苦和穷困，就无视禁令和刑罪了，所以说中共已经走上了不归路，只有死路一条了。
 
-那个尿袋王说中国人民吃草也能活三年 我去你妈逼苟延残喘必将遗臭万年
-That urine-bag Wang says Chinese people can survive 3 years on eating grass, I say you will go down in history as a byword of infamy
+（文章内容仅代表作者观点）
 
-治国全靠撒谎还有裤裆里的生殖器 抗 200斤麦子十里山路你他妈傻逼呀
-You only rule with lies with the prick in the pant, a fool believing you can carry 200- pounds of wheat for a 3 miles long
-
-共产党你丧尽天良制造生化武器
-CCP, you create an unscrupulous evil bioweapon
-
-共产党你厚颜无耻甩锅三文鱼
-CCP, blaming it on Salmons blatantly
-
-共产党你篡改历史你他妈做贼心虚
-CCP, modifying history yo hide your dirty past
-
-共产党你惨绝人寰屠杀世界人民
-CCP, you murdered people all around the world leading to tragedies
-
-共产党你活摘器官犯下滔天罪行
-CCP, you harvested organs alive in the evilest criminal way
-
-共产党你穷途末路犹如撒旦附体
-CCP, you struggle before your death just like Satan attachment
-
-共产党你张牙舞爪丧心病狂罪大恶极
-CCP, you are the craziest demon
-
-爆料革命唯真不破让你无所遁形
-and the Whistleblowers’ Movement divulge you with the “Truth shall prevail”
-
-东方红，太阳升，中国出了个毛泽…
-East is scarlet lit, the sun has risen, there comes a China Mao
-
-Shut the fuck up
-Shut the fuck up
-
-你们贪得无厌坑蒙拐骗人民的血汗钱 还厚颜无耻高呼反腐倡廉明镜高悬
-You’re greedy and swindling Chinese people’s blood money, thick-skinned, shameless claiming your anti-corruption movement is just and fair
-
-新闻媒体毫无底线拍马溜须 屏蔽所有真实声音全他妈抖音微信
-Your media stoop so low bootlicking you, blocking all the true voice on TikTok and Wechat
-
-我们一不偷二不抢三也不撒谎 你们满嘴放屁不怕舌头长满痣疮
-“We never steal, rob or lie”, lying through your teeth invites retribution
-
-外交部的战狼集体前列腺发炎 流水线式的洗脑教育小心中南坑炸裂
-Your “War Wolves” Ministry of Foreign Affairs are all liars, and the Zhongnan pit’s brainwashing factory sending you to devastation
-
-参军三年我他妈什么都没学会 回村尽吹牛逼告诉大伙我会叠被
-Wasted three years of my army life, only to brag how well I can fold my blanket when I go back hometown
-
-坦克大炮导弹轱辘全靠苞米杆子 没有9.5英寸就别JB显摆那擀面杖子
-The tanks and missile only wheel on corn stalks, don’t show off your dick if it is shorter than 9.5 inches
-
-中华民族文华绝对博大精深 通商宽衣后宫佳丽铁杵也他妈磨成针
-The Chinese traditional culture is really rich, all your harlem-lovers might wear you out eventually
-
-小白杨它根深干壮就插在你家哨所旁 守望边疆还他妈靠那绿叶沙沙响
-The little populus with big stick is just around your house, it guards the border only by moaning
-
-共产党你丧尽天良制造生化武器
-CCP, you created the bioweapon with evil plans
-
-共产党你厚颜无耻甩锅三文鱼
-CCP, you blamed it on Salmons blatantly
-
-共产党你篡改历史你他妈做贼心虚
-CCP, you modified the history records to hiding your dirty past
-
-共产党你惨绝人寰屠杀世界人民
-CCP, you murdered people all around the world leading to tragedies
-
-共产党你活摘器官犯下滔天罪行
-CCP, you harvest organs alive evilest criminal way
-
-共产党你穷途末路犹如撒旦附体
-CCP, you struggle before your death just like Satan attachment
-
-共产党你张牙舞爪丧心病狂罪大恶极
-CCP, you are the craziest demon
-
-爆料革命唯真不破让你无所遁形
-and the Whistleblowers’ Movement divulge you with the “Truth shall prevail”
-
-共产党你们制造生化武器
-CCP, you create the bioweapon
-
-共产党你们空投病毒瞒报疫情
-CCP, you spread the virus and hiding the truth from the world
-
-共产党你们建造集中营
-CCP, you build concentration camps
-
-共产党你们活摘器官续命
-CCP, you harvest organs alive to extend your lives
-
-共产党你他妈灭绝种族人性
-CCP, you genocide inhumanely
-
-为了子孙后代誓要送你们下地狱
-I swear to send your offsprings to hell
-
-共产党你丧尽天良制造生化武器
-CCP, you created the bioweapon with evil plans
-
-共产党你厚颜无耻甩锅三文鱼
-CCP, you blamed it on Salmons blatantly
-
-共产党你篡改历史你他妈做贼心虚
-CCP, you modified history to hide your dirty past
-
-共产党你惨绝人寰屠杀世界人民
-CCP, you murdered people all around the world leading to tragedies
-
-共产党你活摘器官犯下滔天罪行
-CCP, you harvest organs alive evilest criminal way
-
-共产党你穷途末路犹如撒旦附体
-CCP, you struggle before your death just like Satan attachment
-
-共产党你张牙舞爪丧心病狂罪大恶极
-CCP, you are the craziest demon
-
-爆料革命唯真不破让你无所遁形
-and the Whistleblowers’ Movement can catch you with the principle of “Truth will prevail”
-
-（这他妈就是共产党 OK Come on Listen）
-(This is f\*\*\*king CCP, OK Come on Listen)
-
-没有9.5英寸就别J8显摆那擀面杖子
-Don’t show off your dick if it is shorter than 9.5 inches
-
-嘘…没有9.5英寸就别J8显摆那擀面杖子
-Shhh…don’t show off your dick if it is shorter than 9.5 inches
-
-（Right now Listen to me again)
-（Right now Listen to me again)
-
-共产党你们制造生化武器
-CCP, you created the bioweapon
-
-共产党你们空投病毒瞒报疫情（说的就是你）
-CCP, you spread the virus and hiding the epidemic truth from the world (Yes, I’m talking about you)
-
-共产党你们活摘器官续命
-CCP, you harvest organs alive to extend your lives
-
-共产党你们灭绝种族人性（让人胆战心惊）
-CCP, you genocide humanely (Scaring everyone)
-
-共产党你们蹂躏中国人民
-CCP, you torture Chinese people
-
-共产党你们霸占房屋土地
-CCP, you rob away all our lands and houses
-
-共产党你们建造集中营（我们誓不两立）
-CCP, you build the concentration camp (We swear to fight to the end)
-
-共产党你们堕入无间地狱
-CCP，you ought to fall to the deepest hell
-
-
-
-+1
++4
