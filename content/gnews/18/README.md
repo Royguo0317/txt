@@ -1,35 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】港冒牌金正恩被拘 疑讽刺性 批评中共
-` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/789663/)
+## 01/22/2021 财经快讯：比特币暴雷；推特面临多项诉讼
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/792578/)
 
-搜集：卡西欧
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/PictureX-25.jpg)
+图片来源：[https://thetechpanda.com/crypto-nightmares-bitcoins-plunge-fortifies-finance-ministrys-ban/29688/](https://thetechpanda.com/crypto-nightmares-bitcoins-plunge-fortifies-finance-ministrys-ban/29688/)
 
-编撰：心听见
-
-覆核：恩典
-
-上传：彩虹(Rainbow)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/001@1200x1200-1.jpeg)（大纪元合成图片）
-香港模仿金正恩，多次以金正恩打扮现身公众场合的Howard X，今（20日）在他个人Facebook专页发帖，指去年10月28日约10名警察上门搜查，称在4月份时有一把BB弹枪寄到他家，而该BB弹枪枪口超过法定限制。虽搜查无果，但警方仍以涉嫌无牌管有弹药，将他带返机场警署。
-
-Howard在贴文中表示，这是真对他过去对中共政府的讽刺性批评，而作出的任意拘捕（arbitrary arrest）他表示，拘捕不仅为了骚扰，亦是借此窃取他的指纹及搜屋。目前Howard尚未被正式起诉，但每6星期需到警署报到。
-
-战友点评
-
-在极权统治之下，一个表演者也不能幸免，逃不过被中共黑警的拘捕，而港共黑警也越来越忙，不但要负责如何滥捕滥告，控制港人出入自由，还要负责找一个理由来滥捕，中共主子不喜欢的人，说是调查案件，明眼人都知道，显而易见，又是政治打压异己，使所有人禁声为实，在香港法例规定玩具枪如不超过法例规定是可以购买，超过就要申请枪牌，要出动儿10多名警察上门窃取指纹又搜屋，阵容如此强大，真是单纯为了BB弹枪？而且Howard 亦强调没有收过相关物品，难道港共黑警用栽赃嫁祸手法？以中共的邪恶，不足为奇。
-
-而Howard表示，他被带返警署后，曾质疑警方拘捕行动，警方指只是执行来自更高层部门的命令，期间提及他曾多次出现公众活动现场，质疑与BB弹枪无关，只是针对他数年来对讽刺中共的滥捕。然而模仿政治人物表演，在世界上都是很普遍的现象，没有见到那个电视台人员或者扮演者被捕，纯属娱乐目的。一个只是表演政治人物也招致如此的政治报复打压，感觉中共暴政已经没自信到极点，到底怕什么？只能说明，坏事做绝，导致臭名昭著的中共越来越心虚，才会用高压政策手段来对待极权统治下的人民。
-
-以上观点仅代表笔者本人
-
-新闻来源 ：[香港大纪元](https://hk.epochtimes.com/news/2021-01-20/32410700)
+1. **比特币本周跌幅创近半年来新高**
 
 
+1月22日，由于对监管的担忧及泡沫破裂，比特币从高位滑落并创下了自9月来的最大单周跌幅。周五，比特币下跌幅度一度超过5%，至近三周最低点28800美元，随后稳定在32000美元附近。本周比特币下滑11%，是自9月下跌12%后最大跌幅。
 
+[https://www.reuters.com/article/us-crypto-currencies-idUSKBN29R02A?taid=600a5d02c8ffe70001f6497b&utm\_campaign=trueAnthem:+Trending+Content&utm\_medium=trueAnthem&utm\_source=twitter](https://www.reuters.com/article/us-crypto-currencies-idUSKBN29R02A?taid=600a5d02c8ffe70001f6497b&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
+2.**黑石仍决定将比特币视为合格资产**
 
+据福克斯周四报道，尽管比特币近几个月来浮动很大，黑石公司仍决定将比特币视为合格投资并添加至两只基金中，以将此加密货币带给其客户。该公司在周三递交给美国SEC的文件中表示，这些基金将仅投资于在商品期货交易委员会注册的商品交易所中以现金结算的比特币期货。
 
+[https://www.foxbusiness.com/markets/blackrock-to-add-bitcoin-as-eligible-investment-to-two-funds](https://www.foxbusiness.com/markets/blackrock-to-add-bitcoin-as-eligible-investment-to-two-funds)
 
-0
+3.**美石油钻井公司或无视拜登禁令**
+
+路透社周四报道，尽管美总统拜登承诺禁止在美国本土进行新的石油和天然气开采，但石油公司表示他们已经获得联邦许可继续开采数年。在周三发布的命令中，拜登政府暂停了油气租赁，同时审查了矿物租赁计划的法律和政策含义。但是冻结或禁令不会在一夜之间终止这些地区的生产。在48个州中，控制着美国供应量一半的七家公司手中的租赁和许可证可能持续数年。
+
+[https://www.reuters.com/article/us-usa-biden-drilling/big-u-s-oil-drillers-have-federal-permits-to-mute-effect-of-any-biden-ban-idUSKBN29Q1S5](https://www.reuters.com/article/us-usa-biden-drilling/big-u-s-oil-drillers-have-federal-permits-to-mute-effect-of-any-biden-ban-idUSKBN29Q1S5)
+
+4.**中共国新猪流感或指向无证疫苗**
+
+据业内人士分析，在中共国发行的新猪流感可能是由非法疫苗引起的。国内第四大猪肉生产商新希望六和首席科学家闫之春表示，有两种新的猪流感病株感染了公司几个农场的1000多头母猪。尽管这些毒株致死率不高，但它会引起多种慢性疾病而减少健康猪仔的产量。闫表示，新毒株或是非法疫苗中产生的变体。
+
+[https://www.reuters.com/article/us-china-swinefever-vaccines-insight/new-china-swine-fever-strains-point-to-unlicensed-vaccines-idUSKBN29R00X](https://www.reuters.com/article/us-china-swinefever-vaccines-insight/new-china-swine-fever-strains-point-to-unlicensed-vaccines-idUSKBN29R00X)
+
+5.**推特被控拒未除儿童色情内容**
+
+据周三美国法庭文件显示，推特公司因涉嫌未能移除其网站上的儿童色情内容而被起诉。某不能透露信息的未成年原告向法庭指证，某人渣通过发布其色情图片视频对其进行勒索。在2019年12月，该视频已在推特上发布，而推特却并未对该账号采取任何行动。
+
+[https://dailycaller.com/2021/01/21/twitter-sued-allegedly-refusing-remove-child-porn/](https://dailycaller.com/2021/01/21/twitter-sued-allegedly-refusing-remove-child-porn/)
+
+6.**液化天然气涨价3倍**
+
+2020年冬天以来，伴随着寒冬各种能源的价格都出现了不同程度的上涨，然而最近液化天然气的涨价特别明显，整体价格上涨了300%。根据金十数据的报道，受疫情影响，2020年全球液化天然气（LNG）产能增速下降，而中日韩等东亚国家却因寒潮、环保等多种因素，竞相抢购LNG，这进一步推高了液化天然气的价格。
+
+据日经中文网1月18日最新报道，截至1月中旬，液化天然气的亚洲现货价格已经攀升至超30美元/百万英热（1百万英热约30立方米），较1个月前上涨了300%。有分析指出，澳大利亚天然气生产商将迎来暴利。
+
+[https://www.sohu.com/a/445685977\_507132?scm=1004.759017228124487680.0.0.0&spm=smpc.ch15.top-news-3.5.16112716992867bUtB14](https://www.sohu.com/a/445685977_507132?scm=1004.759017228124487680.0.0.0&amp;spm=smpc.ch15.top-news-3.5.16112716992867bUtB14)
+
+By 【密翻组·金融团队-Mr. Y】
+
++1

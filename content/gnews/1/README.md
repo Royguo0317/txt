@@ -1,30 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国民众不再被狡猾的福奇愚弄
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/790150/)
+## 推特暂停伊朗最高领袖阿里·哈梅内伊的账户
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/793228/)
 
-素材：Jenny
-
-撰稿/视频：光耀华夏
-原视频来自Telegram
-2021年1月21日，Telegram知名大V账号@Breaking911报道了美国国立过敏和传染病研究所（National Institute of Allergy & Infectious Disease，NIAID）主任安东尼.福奇博士（Dr. Anthony Fauci）在白宫新闻简报会（White House Briefing）上的采访片段，福奇声称新任政府和他的团队将在新冠病毒大流行上做到“完全透明，公开和诚实”，并称“所作的一切都基于科学和证据”。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture2-5.jpg)Telegram留言评论截图
-然而和福奇志得意满的表情形成鲜明对比的是，在发帖下面的评论中，清醒的美国民众一边倒地对福奇在新冠病毒大流行一事上的种种不作为和信息误导表示了极大的不满和嘲讽。摘录翻译部分精彩评论如下：
-
-- Fauci lied people died. （福奇撒谎，人民死亡）
-- Science and evidence concludes this is a fraud. （“科学和证据”表明这是欺诈）
-- Fauci is a snake. Trump should have fired him from day one! （福奇是一条蛇。川普从上任第一天就应该把他解雇）
-- I don’t believe a thing that comes out of Fauci’s mouth. He is a weasel.（我不相信福奇嘴里说出的任何事。他是个黄鼠狼。）
+- 编辑：Victor Torres
+- 作者：神奇四侠
+- 素材：2pac
 
 
-（本文视频评论摘自原网站，无添加个人观点）
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-参考来源：[https://t.me/breaking911/311](https://t.me/breaking911/311)
+**西班牙2021年1月22日电/西喜社——**
 
-澳喜文章: [https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+昨天，伊朗最高领导人发誓要向唐纳德·川普复仇，图片显示一架无人机即将在高尔夫球场上袭击他。
 
-欢迎加入澳喜农场：
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1-澳喜Logo-1.jpeg)
+阿亚图拉·阿里·哈梅内伊的推特账号图片显示这位前总统即将挥杆，同时发誓要为伊朗一名高级将领在无人机袭击中被杀一事复仇。
+
+阿里·哈梅内伊在推特上发布了唐纳德·川普的这张照片。
+
+今天上午，推特暂停了伊朗最高领导人的账户。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/225522.png)
+新闻来源：[https://electionwiz.com/2021/01/22/twitter-suspends-account-of-iran-supreme-leader-ali-khamenei/](https://electionwiz.com/2021/01/22/twitter-suspends-account-of-iran-supreme-leader-ali-khamenei/)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 +1
