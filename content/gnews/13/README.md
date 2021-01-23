@@ -1,15 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年1月22日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/792808/)
+## 【每日快讯】22/01/2021:请战友们关注苏州，上海和北京八宝山还有CCTV中共电视台
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/795324/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+**制作:Cantonese工作室**
+播报：美国小李
+<br>资料收集: Elaine Lei、郁金香、极寒将至、美国小李、星星
+<br>视频制作: 文德
+<br>海报制作: 文静、文邹邹
+<br>视频制作: Shawn
+<br>上传: Shawn
+**摘要:**
 
-2021年1月22号：这个微信公众号说的．关于文贵的故事．数字．时间．人物．全都是错的……所谓的这些大V号们……真是无知．对真相．信息的真实性．了解的到了可怜的程度……这真是中国人的悲哀！这也是行业大V！共产党能抢走裕达国贸．不知道能否验证一下当时建设裕达国贸时奠基仪式时．风水先生的一段寓言。预言裕达第一次换手将死一个皇帝！一个政权的更迭。朝代的末落．真有风水吗？
-![]()![](https://gnews.org/wp-content/uploads/2021/01/photo_2021-01-22_15-11-07-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/photo_2021-01-22_15-11-18-3.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/photo_2021-01-22_15-11-28-2.jpg)
-[【2021年1月22日】文贵先生盖特原文](https://gtv.org/getter/600acc7e87fabe2daf3f3797)
-
-**喜联盟Gnews编辑部**
-
-0
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210122-zhCN-01-1.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210122-zhCN-02-1.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210122-zhCN-03-1.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210122-zhCN-04-1.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210122-zhCN-05-1.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210122-zhCN-06-1.jpg)
+7.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210122-zhCN-07-1.jpg)
+8.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210122-zhCN-08-1.jpg)
+9.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210122-zhCN-09-1.jpg)
+10.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210122-zhCN-10-1.jpg)
++1
