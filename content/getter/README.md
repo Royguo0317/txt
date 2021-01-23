@@ -14,6 +14,11 @@
 
 ---
 
+[1月20日美国总统就职日文贵直播 20th of January Miles Guo Live Broadcast on Inauguration Day ](/content/getter/content/2021/01/600b702a87fabe2daf3fa1b5.md)
+
+**郭文贵MILES** `2021-01-23T00:39:06`
+##
+
 [ 2021年1月22号：下午6:20我们正在和战友一起．等待这一切的到来……](/content/getter/content/2021/01/600b5e2187fabe2daf3f93bb.md)
 
 **郭文贵MILES** `2021-01-22T23:22:09`
@@ -157,10 +162,5 @@
 [ 2021年1月11号：尊敬的战友们好……文贵向国内正在遭受共产党的国安．及警察．对G-TV投资者的威胁下，正在被逼迫所谓的填写虚假的投诉……和退款要求的战友们...](/content/getter/content/2021/01/5ffc78b787fabe2daf369956.md)
 
 **郭文贵MILES** `2021-01-11T16:11:35`
-##
-
-[ 2021年1月10号秘密翻译国际组视频](/content/getter/content/2021/01/5ffb6b4387fabe2daf359fbb.md)
-
-**郭文贵MILES** `2021-01-10T21:01:55`
 ##
 
