@@ -1,31 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 事后诸葛亮，事前猪一样：福奇承认疫苗对变异毒株效果有限
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/796426/)
+## 01/23/2021 财经快讯：全球最大疫苗商起火；美新刺激计划或带来大泡沫
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/797166/)
 
-编辑：喜马拉雅农场联盟新西兰奥克兰伊甸农场
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/Picture10.jpg)
+图片来源：[https://ishare.ifeng.com/c/s/v004—\_s1wpaMojCZCKS4Mm8pFEvTXQHB3VduIkuwn6txz5lTOpx7rTpRVEBznbXkaP–omgLasXlTmjW82b5UjYF6cQ\_\_\_\_?spss=np&aman=1cL40ffc67Cef8Y49b04b6Td74Zc6fW418Je017305](https://ishare.ifeng.com/c/s/v004---_s1wpaMojCZCKS4Mm8pFEvTXQHB3VduIkuwn6txz5lTOpx7rTpRVEBznbXkaP--omgLasXlTmjW82b5UjYF6cQ____?spss=np&amp;aman=1cL40ffc67Cef8Y49b04b6Td74Zc6fW418Je017305)
 
-编者：Stephen(文文)
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/image0-251.jpg)
-据CNBC网站1月21日报道，白宫卫生顾问福奇周四称最新研究数据显示，目前市场上的疫苗在防范新的CCP冠状病毒株方面可能没有那么有效。
-
-由南非国家传染病研究所的研究人员发表在预印本bioRxiv上的一些早期数据（尚未进行同行评审）表明，新的变种病毒501Y.V2可以逃避某些冠状病毒的中和抗体，并降低现有疫苗的效力。研究显示，在恢复期病人血浆中，有大量的抗体对501Y.V2病毒显没有中和效果。也就是说病人依然存在再感染的风险。这可能预示着当前以棘突蛋白为基础的疫苗的效力会降低。
-
-福奇表示正在非常仔细地关注南非的情况，这有点令人担忧。而仅仅在1月初福奇与加州州长纽瑟姆连线时说道，预期美国的“优先人群”将在2021年3月或4月初完成首次接种，并在4月即可让所有人享受疫苗接种待遇。如果4月至7月会展开持续接种，到初秋时国民们则可以获得充足的群体免疫力。并且他本人也刚刚完成两剂莫德纳疫苗对接种。
-
-另外，以色列的大规模疫苗接种效果也令人堪忧。1月19日，据以色列媒体报道，该国已有约25%的人口已经接种疫苗，但新一批辉瑞疫苗接种者中超过1.2万人新冠检测呈阳性，感染人数占该批次18.9万名疫苗接种者的6.6%，感染者中还有69人已接种第二剂疫苗。该国防疫指挥表示辉瑞疫苗单剂量的保护作用比想象中弱。以色列目前的总感染率约为7.3%（68万人感染，930万人口），7.3%的总感染率为过去1年中所有累积的人口感染率。而刚刚接种第一剂疫苗的人群，仅仅在不超过一个月内的时间就达到了6.6%的感染率。似乎接种了疫苗人群的感染率甚至有超过总累积感染率的风险，可见疫苗的有效性非常低。
-
-爆料革命闫博士早已经说了，不要过高的期待疫苗。病毒是CCP的生物武器，即使有了疫苗，CCP也会放出新的毒株，令疫苗失效。要消除病毒威胁，必须要先消灭制毒、放毒的CCP！
+1. **耶伦提名通过参议院小组审议，周一将进行最后投票**
 
 
+本周五，美参议院财政委员会一致批准了珍妮特·耶伦（Janet Yellen）的提名，作为第一位女性提名财长，她的提名预计在下周一得到参议院的完全批准，但共和党呼吁她与他们共同制定经济政策。
 
-[新闻链接](https://www.cnbc.com/2021/01/21/dr-fauci-says-covid-vaccines-appear-to-be-less-effective-against-some-new-strains.html)
+[https://www.reuters.com/article/us-usa-biden-yellen-idUSKBN29R18O](https://www.reuters.com/article/us-usa-biden-yellen-idUSKBN29R18O)
 
-【文章仅限作者个人观点】
+**2.全球最大疫苗制造商起火**
 
-审核校对：玫瑰天空
+据多家媒体报道，当地时间周四印度血清研究所（Serum Institute of India）发生火灾。据悉，血清研究所是全球最大疫苗生产商。据负责现场救援的消防人员表示，现场无人员伤亡。同时血清研究所CEO Adar Poonawalla也表示起火地点位于在建厂房，所以没有影响到现有疫苗生产。
 
-上传排版：糊糊文婴
+[https://ishare.ifeng.com/c/s/v004—\_s1wpaMojCZCKS4Mm8pFEvTXQHB3VduIkuwn6txz5lTOpx7rTpRVEBznbXkaP–omgLasXlTmjW82b5UjYF6cQ\_\_\_\_?spss=np&aman=1cL40ffc67Cef8Y49b04b6Td74Zc6fW418Je017305](https://ishare.ifeng.com/c/s/v004---_s1wpaMojCZCKS4Mm8pFEvTXQHB3VduIkuwn6txz5lTOpx7rTpRVEBznbXkaP--omgLasXlTmjW82b5UjYF6cQ____?spss=np&amp;aman=1cL40ffc67Cef8Y49b04b6Td74Zc6fW418Je017305)
 
-+2
+**3.格兰瑟姆警告拜登政府的新刺激计划或给市场带来巨大泡沫**
+
+英国传奇投资人、GMO资产首席投资分析师杰里米·格兰瑟姆（Jeremy Grantham）上周警告拜登政府的新刺激计划或引发巨大风险。格兰瑟姆毫无疑问的表示拜登向国会寻求的1.9万亿美元联邦援助中，有一部分最终将被用于购买股票而不是食物或住房。他同时认为，纳斯达克将在31个月内暴跌近80%。
+
+[https://www.newsmax.com/t/newsmax/article/1006765/8](https://www.newsmax.com/t/newsmax/article/1006765/8)
+
+**4.中共进口“换马甲”委内瑞拉石油以躲避美国制裁**
+
+彭博社的一份新调查报告详细介绍了中共正采用一种新办法来躲避美国对委内瑞拉石油制裁，即在对文件进行篡改的同时，用化学添加剂掺杂在石油中，以便将其作为完全不同的原料进行出售，且不会留下委内瑞拉的痕迹。
+
+[https://www.bloomberg.com/news/articles/2021-01-22/china-imports-oil-doctored-to-skirt-u-s-sanctions-on-venezuela](https://www.bloomberg.com/news/articles/2021-01-22/china-imports-oil-doctored-to-skirt-u-s-sanctions-on-venezuela)
+
+**5.海航按照“法治化、市场化”原则，处理其千亿债务**
+
+1月22日，海航官网发布公告称，自海南省联合工作组成立以来，海航有效防控风险、切实维护各方利益，按照“法治化、市场化”原则，制定风险处置工作思路。据海航集团2019年8月份公布的财务数据，截至2019年6月末，公司总负债为7067.26亿元。截至目前，因为海航集团尚未公布2019年、及2020年年报，最新的负债情况尚不清楚。毫无疑问，市场化原则无疑是将海航的债务稀释给了广大韭菜。
+
+[https://finance.sina.com.cn/stock/s/2021-01-22/doc-ikftssan9710800.shtml](https://finance.sina.com.cn/stock/s/2021-01-22/doc-ikftssan9710800.shtml)
+
+**6.饲料涨价，或成压垮养殖户最后一根稻草**
+
+1月7日开始，华南华中华东等水产养殖主产区的饲料价格先后宣布涨价了。这一次饲料涨价，还是老规矩，畜禽料先涨，水产料很快跟进。水产料涨价的顺序也很符合往常的“规律”，华南最先涨，然后是华中华东。所以，养殖户可能真的要不得不面临这个问题，2021年，水产料的价格真的便宜不了。饲料涨价这个因素，会不会成为压垮部分养殖户的那根稻草？在这几年盈利情况不太好，甚至连续不赚钱赔钱的养殖户，他们还能在2021年再撑一下吗？
+
+[https://www.toutiao.com/i6920231997721903628/?in\_ogs=&traffic\_source=&utm\_source=&source=search\_tab&utm\_medium=wap\_search&original\_source=&in\_tfs=&channel=](https://www.toutiao.com/i6920231997721903628/?in_ogs=&amp;traffic_source=&amp;utm_source=&amp;source=search_tab&amp;utm_medium=wap_search&amp;original_source=&amp;in_tfs=&amp;channel=)
+
+By【密翻组·金融团队】
+
+校对：文印
+
+0

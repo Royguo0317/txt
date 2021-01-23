@@ -1,96 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/01/23 美国政要每日推特重要信息汇总
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/796221/)
+## 【快讯】互联网新规出台，舆论管控愈发坚固
+` 国内新闻组` [轉載自GNews](https://gnews.org/zh-hans/797061/)
 
-*信息汇总采编： Cathy*
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/obi-onyeador-qXfD_nG4j-U-unsplash-1.jpg)
-**经授权转载自：**
+喜马拉雅-国内新闻组/素材：鹰(文言) 校对：老蚂蚁666
 
-- 川普等政要…直译推twitter：[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
-- 川普等政要…直译推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
-- 川普等政要…直译推GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
+澎湃网1月23日转载“网信中国”公众号文章，近日中共发布新版《互联网用户公众账号信息服务管理规定》，继续加大对互联网的信息管控和舆论监管。
 
+中共互联网办公室负责人称，近年来由于某些公众号宣传错误价值观、引发极端舆论；网上信息低俗庸俗、恶意炒作等现象严重；少数“自媒体”编造网络谣言、散步他人隐私等影响社会稳定，却“难”追责；网络水军、恶意营销、盗版侵权等现象屡禁不止，诸多因素下，需要新《规定》来加强管理。其实对爆料革命抹黑最大的水军就是中共。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/unknown-1-15.png)
+新《规定》要求：
+1、生产运营者在内容上做到导向、真实、合法，即与中共“正能量”导向相悖的、与官方辟谣相左的、与新规新策不符的都将被追责。
 
-## 简评：
+2、运营中要安全文明，维护社会形象，即影响社会和党员的“光鲜”形象的运营都不被允许；
 
-1月23日， 参议院霍利和众议员埃利斯计划重新提出决议，呼吁对 #中共国 掩盖新冠病毒行为进行国际调查，同时批评拜登加入世卫组织是中共的一个棋子。参议员斯科特也呼吁纽交所和拜登团队不要屈服于中共的要求，允许中共电信企业重新上市和为中共国提供援助。
+3、生产运营者不得从事违规采编新闻、制造虚假舆论、恶意营销诈骗、煽动网络暴力等违法违规行为，即以往的将中共“打脸”官宣罗列报道（如“可防可控”，“可抵御万年、千年、百年洪水”等）不被允许；
 
-## 参议员乔治·霍利新闻办公室：
+4、所有与官宣内容口径不一致的则视作“虚假舆论”，至此中共“删帖”又有了新的“法律依据”。
 
-新消息—霍利和众议员Elise [email protected]计划重新提出他们的决议，呼吁对 #中共国 掩盖新冠病毒行为进行国际调查。
+从2017年至今，郭文贵先生的账号被无故查封，爆料革命战友们的账号言论被屏蔽，背后都是中共国家级的水军影子，中共通过蓝金黄Twitter、Youtube、Facebook等平台，将舆论控制的社会主义制度“优越性”经验推广至全世界。
 
-与此同时，拜登重新加入了世卫组织@WHO，后者已证明自己是无能的，最糟糕的，只不过是中共的一个棋子。
+《规定》的近期颁布，不过是中共又一次以“清网”的名义，对墙内进一步的舆论控制，打压异己声音和发声渠道。但中共的好日子不多了，内部战友们的坚实行动和世界灭共决心都将一步一步的将中共推入深渊。中共必亡。
 
+一切法从心想生，念念不忘 必有回响。犹如郭文贵先生视频结束时呐喊“共产党你完了”！
 
+文章仅代表个人观点。
 
-> NEW — Sen. Hawley & [@RepStefanik](https://twitter.com/RepStefanik?ref_src=twsrc%5Etfw) plan to reintroduce their resolution calling for an international investigation into China's COVID cover-up⁰
-> 
-> Meanwhile Biden rejoins the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) that has shown itself to be, at best, incompetent, at worst, a pawn of the CCP [https://t.co/799vw81NEO](https://t.co/799vw81NEO)
-> — Senator Hawley Press Office (@SenHawleyPress) [January 22, 2021](https://twitter.com/SenHawleyPress/status/1352714721535930368?ref_src=twsrc%5Etfw)
-
-
-
-## 参议院瑞克·斯科特：
-
-1．纽约证交所@NYSE绝不能屈服于 #中共 重新上市的要求。这些公司长期以来一直蔑视美国法律，拒绝遵守我们的规则和规定，并使美国投资者面临风险。我敦促纽交所坚持立场。
-
-【转华尔街日报的推文：[中国大型电信运营商已要求纽约证券交易所重新考虑将其美国存托凭证除名的决定](https://twitter.com/WSJ/status/1352201814163288064)。】
+新闻来源：
+网信办：目前网上信息内容低俗庸俗、恶意炒作等问题突出
+[https://www.thepaper.cn/newsDetail\_forward\_10905819](https://www.thepaper.cn/newsDetail_forward_10905819)
 
 
 
-> .[@NYSE](https://twitter.com/NYSE?ref_src=twsrc%5Etfw) must not give in to Communist China's demands to re-list these companies. For too long, these companies have flouted U.S. laws, refusing to follow our rules and regulations and putting American investors at risk. I urge the NYSE to stand strong in its position. [https://t.co/7XlMa76OhZ](https://t.co/7XlMa76OhZ)
-> — Rick Scott (@SenRickScott) [January 22, 2021](https://twitter.com/SenRickScott/status/1352701841264414722?ref_src=twsrc%5Etfw)
-
-
-
-2．今天，我呼吁拜登团队。一毛钱都不要再给 #中国共产党了，2020年美国在该国花费了3000万美元用于外国援助，以扶持发达国家，结果反而威胁到美国的安全与保障。那笔钱应该留在美国。这必须停止。
-
-【附参议员瑞克·斯科特的相关声明】
-
-
-
-> Today, I am calling on the Biden Admin. to not send another dime to Communist China. In 2020, the U.S. spent $30M on foreign aid there to prop up a developed country that is, in turn, threatening American safety and security. That money should stay in America. This has to stop. [pic.twitter.com/7j58lhYdEM](https://t.co/7j58lhYdEM)
-> — Rick Scott (@SenRickScott) [January 22, 2021](https://twitter.com/SenRickScott/status/1352688284980441090?ref_src=twsrc%5Etfw)
-
-
-
-## 参议院玛莎·布莱克本：
-
-#中共国 和世卫组织@WHO已表明它们将相互掩盖，因为世卫组织几乎都在进行中共的宣传运动，并继续拒绝台湾的加入。
-
-
-
-> China and the [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) have shown that they will cover for each other, as the WHO all but runs the CCP’s propaganda campaign and continues to deny Taiwan’s membership.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [January 22, 2021](https://twitter.com/MarshaBlackburn/status/1352635443695800331?ref_src=twsrc%5Etfw)
-
-
-
-## 众议员莫·布魯克斯：
-
-哪个更道德？是共和党参议员乔什·霍利和泰德·克鲁兹为诚实和准确的大选而战？还是社会主义者参议员凯恩·布朗之流（支持投票欺诈）对霍利和克鲁兹反对选举欺诈提出虚假的道德指控？
-
-奥威尔的1984.
-
-【转推布莱巴特新闻网，[民主党参议员对乔什霍利，泰德克鲁兹发出道德指控](https://www.breitbart.com/politics/2021/01/21/senate-democrats-file-ethics-complaint-against-josh-hawley-ted-cruz/)】
-
-
-
-> What is more ethical? GOP Senators [#JoshHawley](https://twitter.com/hashtag/JoshHawley?src=hash&amp;ref_src=twsrc%5Etfw) & [#TedCruz](https://twitter.com/hashtag/TedCruz?src=hash&amp;ref_src=twsrc%5Etfw) fight for honest & accurate elections?
-> 
-> Or [#Socialist](https://twitter.com/hashtag/Socialist?src=hash&amp;ref_src=twsrc%5Etfw) Senators Kaine Brown etc. (who support voter fraud) filing bogus ethics charges against Hawley & Cruz for OPPOSING voter fraud?
-> 
-> Orwellian 1984[https://t.co/Va2DbDBAT0](https://t.co/Va2DbDBAT0)
-> — Mo Brooks (@RepMoBrooks) [January 22, 2021](https://twitter.com/RepMoBrooks/status/1352621970886688769?ref_src=twsrc%5Etfw)
-
-
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-[!\[\]()!\[\](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-+3
+0

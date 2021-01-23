@@ -1,73 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中国联邦、G-Fashion、GTV和 GNews 是不容忽视的！
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/795932/)
+## 郭爆料串珠（159）“沼泽地”的力量和政法系统决定美国走向，民兵、安提法、华盛顿几百万人抗议，都没用！
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/796729/)
 
-郭先生在2021年1月18日的盖特直播中透露：“GNews，GTV 大家都看到了成为什么，特别现在是美国所谓的各派，这派那派，都要争取依靠的一个平台媒体。说实话我们有些武器还没亮出来呢，GTV，GNews我们会有更多的…好消息. ”
+整理：德国感恩农场 文迅等
 
-当谈及荣誉、金钱和权力话题时，他强调，如果你被这些所迷恋，那你什么都不是，只要你不站在一定的高度上，你永远都是被渺小的人。
+*郭爆料串珠系列文章，主是从800多篇郭文贵先生直播听写文字版、盖特精选而成，也包含部分班农先生、路德社、闫丽梦博士直播文字具有文献价值。由文迅等按时间、主题整理。感谢战友听写！*
 
-他进而说道：“当你站在历史的前面，和未来不可确定的时间前面，和亿万个、千万个、几十亿个人类面前，谁重要了？什么名被记得？看不懂这个不就无知、无耻、可怜吗？”
+**标题简述：
+2021年1月6日郭先生说：这几天为什么我说爆料革命迎来大好时机？什么民兵来了，MAGA组织到华盛顿了，这跟美国总统赢不赢连个毛的关系都没有。不要情绪化，不要糊弄自己，天下从来不会太平。这对川普总统都是软装修。真正的作用是沼泽地的力量跟川普达成了协议，特别是虚拟货币。Libra，CNN是不是也能放过一马啊？谁当财长你不要要你的皮特纳瓦罗啊？等等协议。这时候就会看见有议员站出来，挺你，彭斯也站出来，挺你。这是挟民义。几百万老百姓都上街了，没有沼泽地的力量都没用的。
+2020年12月31日郭先生盖特：沼泽地是真正控制全球的隐形力量，包括美联储背后的股东，全球支付结算系统的股东，真正硅谷投资的大佬。这些真正的力量即使用美国的法律都查不出。沼泽地也跟共产党勾兑，控制着中国几个大家族。郭先生认为只要地球不灭，沼泽地就会存在。新中国联邦要让中国人民不再成为共产党和沼泽地直接剥削的奴隶和供血器，结束中国人民被共产党和沼泽地一起剥削的时代。但是新中国联邦不会跟沼泽地为敌，也不会成为沼泽地的一部分。**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/roya-ann-miller-nlmq5jC9Slo-unsplash-scaled.jpg)
+5、美国家情报总监外国干预大选评估报告早已出炉，美国安委背后“沼泽地”决定总统令能否执行，郭文贵先生已尽力，新中国联邦实力悬殊，被迫同意“沼泽地”分享部分中共海外资产以换取灭共支持（中共亦开价但不被信任），新中国联邦法律地位将被认定，接管中共海外资产；
 
-视频来源：[https://gtv.org/getter/60059bb687fabe2daf3c3efa](https://gtv.org/getter/60059bb687fabe2daf3c3efa)
+2020年12月31日郭先生盖特群聊信息整理
+新中国联邦跟“沼泽地”的关系
+郭先生解释了沼泽地是真正控制全球的隐形力量，包括美联储背后的股东，全球支付结算系统的股东，真正硅谷投资的大佬。这些真正的力量即使用美国的法律都查不出。沼泽地也跟共产党勾兑，控制着中国几个大家族。
+郭先生认为只要地球不灭，沼泽地就会存在。新中国联邦要让中国人民不再成为共产党和沼泽地直接剥削的奴隶和供血器，结束中国人民被共产党和沼泽地一起剥削的时代。但是新中国联邦不会跟沼泽地为敌，也不会成为沼泽地的一部分。
 
-**NFSC, G-Fashion, GTV, and GNews Are Non-****ignorable****！**
+2020年12月31日
+直播二：“我是音雄”之GForever全球跨年晚会
+我也有那种很好的、长期的生意合作伙伴，而且你可能很难相信，就是我们都在说沼泽地、沼泽地的，据我所知啊，某个沼泽地的大佬就是长期定居在，就是西班牙的啊，西班牙人不一定了解的，他是非常非常有实力的，我曾经问过他，为什么你在这个地方，啊，在Majorca那个岛上，在对着西侧，Majorca的西侧岛上，一个非常大的一个房子，然后呢，还深挖了很多，你这个西班牙的石头房子很难深挖的，后来我说，你是不是就是那个某个某个组织的头啊，他就笑啊，他就告诉我，他说我之所以喜欢西班牙，他说这里的人比较单纯，这里的生活比较容易，还有一个他说，这个阳光比较多，啊，大海很漂亮，食品很好吃，而且在那，人与人之间的关系比较简单，西班牙是个美丽的地方。
 
-**新中国联邦、****G-Fashion****、****GTV****和**** GNews ****是不容忽视的！**
+2021年1月5日今日动态
+然后今天，大家要看到啊，美国东西部，南北部，各帮派都在角力。交织啊，交织啊。现在是背叛，反背叛。忠诚又忠诚。拉帮又结伙。啊呀，热闹的不得了，华尔街又不想踢出中共三大电信公司了。现在是鳄鱼上岸了。沼泽地的主人现在在旁边咬着手指甲在那块看热闹了。全世界进入全所未有的乱战，群战的准备，这个状态。美国大选真是到了滑稽，最滑稽的时刻了。很有意思，很有意思。但是只有爆料革命这边独好啊。大家都懂的。
 
-Hello, honorable fellow fighters! Today is January 18th. Do you see how I feel? I am wearing my nightwear because I will not work out today. However, from last night till now, I barely had any sleep. I slept four or five times, but each time lasted no more than half an hour. Today I will not work out. Hence, I have started to work since 6:00 am or so. The weather is beautiful today.
+2021年1月6日
+郭先生GTV直播精要（第一部分）-英喜庄园出品
+3.朴昌海：七哥这么确定川普能赢，是否川普与定海神针的力量达成一致。
+文贵先生：它不存在一个独立的答案，它是综合性的。定海神针说支持你川普总统，我支持你是一个开始，接下来达到什么目的那是咱们共同努力的结果。川普总统的导向和他的意志和他的智慧和他的能力都决定了他的结果。另外一个美国的沼泽地这些人都是在这个事情输赢当中的一个砝码而已。这里面起起伏伏啊，有时候可能起到关键作用，有时候可能出现意外，但大多数在美国这种法治社会出现意外的可能性不太大。最终还是沼泽地的力量最后是决定乾坤的。但现在沼泽地里好像旁边杀出一个程咬金来，那就是我们新中国联邦，新中国联邦和爆料革命打破了美国几百年来所谓沼泽地里的绝对力量，对川普总统的影响是巨大的。
+从过去两周可以看出来，他两三周内作出对中共的惩罚，包括经济的制裁的行动，美国是几百年来对整个中共的和好多倍。都是没有可能发生的事情都发生了。为什么，从蓬佩奥，从川普总统，从参众两院，拔共，狠共，灭共的步伐，从未停下。因为我们爆料革命在努力。所有我们大家看不见听不见，我们沉伏在各种领域里共同的牺牲贡献让美国人让西方世界认识到，像我们当前面对最大的冠状病毒来自中共，现在你们看到博明就是2017年以身炸碉堡救下文贵的人之一，不让我被遣返了。
+作为国家第二安全顾问说病毒来自武汉实验室，非常不容易。这个报告本来说的比那个还细还准确，后来华盛顿邮报给拿下去了。他喜欢闫博士和路德，美国人最喜欢路德的就是班农和他了。另外一个蓬皮奥国务卿最早官方把共产党和中国人分开，中国人是受害者，比川普总统做的好一万倍。到现在川普总统CCP病毒他还没说出来呢。蓬皮奥最早说出来，而且代表官方。这在世界影响巨大的，这在国际上代表美国外交态度。我们战友在世界多次的在所在国包括韩国、日本抗议活动，都让世界认识到中共不等于中国人,中国人绝对是共产主义的受害者，这些都是至关重要的。所以告诉这位韩国战友的话，任何人都挡不住我们和全世界集体灭共,共同灭共。现在全人类到了自动灭共的步伐，但是不要有幻想,对待我们追求的新中国联邦一切都是刚刚开始。
 
-尊敬的战友们好！1月18号，天哪，大家看出来我的感觉了吗？穿着睡衣哪，因为我今天不锻炼，不锻炼。但是昨天晚上到现在，基本上没怎么睡觉，基本上没怎么睡觉，睡了四、五次，每次都不超过半小时几乎，今天因为不锻炼，所以说早上从6点多就在下面开始办公了，今天天气特别漂亮。
+民兵组织，包括安提法、华盛顿的抗议，一点用都没有，美国就两个管用，沼泽地里核心的力量，还有政法系统
+……
+8.小皮匠：有人看了新闻，说美国民兵联盟发表了一个声明。我也看到在华盛顿街头有一些画面，摆着一些砖头、石块，甚至还有煤气罐和木棍，可能是准备在街头闹事，比如说安提法。这样民兵联盟有可能被栽赃，比如说商店、民宅被砸了，路人被抢了，象以往一样把这些嫁祸给民兵联盟，这也是我们担心的。
 
-What I want to tell everyone is that the U.S. President in January 20th…the inauguration of the new President, or the 2021 Presidential Inauguration Ceremony attracts the whole world’s attention. Our friends in Europe and Asia are paying more attention to the presidential election than anyone else, which is unprecedented in the world. The U.S. Presidential Inauguration Ceremony and the CCP virus have thoroughly changed humanity. Now, emerges the New Federal State of China (NFSC).
+文贵先生：小皮匠你担心的和你看到的，关键是你所有的信息都取决于社交媒体，什么民兵组织，煤气罐，包括安提法、买大豆、华盛顿的抗议，一点用都没有。类似于早上洗脸水的水花而已，一点都不会影响你今天的生活。但凡了解美国政治，就会知道这个没用。美国就两个管用，沼泽地里核心的力量，还有政法系统。这些都是用来装修的，吓唬人的，给那些讲诉的人一个借口而已。但是川普总统会不会用呢？他一辈子搞电视的，搞环境，搞气氛，很擅用这个。但今天这个有可能比大家想象的要好。因为你没有看明白核心，就是现在股市和昨晚场外的大额交易基本上能看明白，有可能沼泽地和川普总统达成了更深层的交易。这个交易结果对下一个四年有基本的规划。我相信川普总统最终会接受这个协议，其他人也能接受，拜登也能接受，如果这个属实的话。我完全瞎猜啊。这些都是装修，都是气氛，没有任何实际作用。谢谢。
+……
+文贵先生：这几天为什么我说爆料革命迎来大好时机？什么民兵来了，MAGA组织到华盛顿了，这跟美国总统赢不赢连个毛的关系都没有。不要情绪化，不要糊弄自己，天下从来不会太平。这对川普总统都是软装修。真正的作用是沼泽地的力量跟川普达成了协议，特别是虚拟货币。Libra，CNN是不是也能放过一马啊？谁当财长你不要要你的皮特纳瓦罗啊？等等协议。这时候就会看见有议员站出来，挺你，彭斯也站出来，挺你。这是挟民义。几百万老百姓都上街了，没有沼泽地的力量都没用的。
 
-我想给大家说的事情，随着1月20号美国总统..新总统就职，或者是2021年的美国总统就职仪式，全世界都关注。那么欧洲也好，亚洲也好，咱们的朋友，都比任何人都关注着美国总统大选，可以说让全世界前所未有，一个美国总统的就职仪式，和冠状病毒彻底改变了人类。那么现在又多了一个新中国联邦。
+文贵先生：另外，不管是沼泽地的力量，还是彭斯站出来拨乱反正，还是其他议员。最大的贡献者是我们新中国联邦。我可以明确地告诉你，没有任何人，是我们。我对着镜头向全天下声明，是我们的本事，我们的力量。未来事实会证明。不是到现场的那几百万人，美国人不吃这一套。不要小看拜登，拜登也有几千万支持者。弗吉尼亚，看见了吗？这两个议员的重要性大过总统。接下来四年的立法、利益、数字货币、金融改革和所谓的媒体，230，还有灭不灭共，这两个人几乎决定了美国和人类的未来。
+文贵先生：就在昨天晚上，民主党90%都选票了，到了共和党，多米尼机器坏了。昨天晚上7点关机到今天早上8点，现在结果还没有出来。现场又找出来五万张票，照样敢造假，照样敢弄你。谁给的钱？谁给的力量？中南坑，还有沼泽地其他的力量。这不是开玩笑的。不管如何，这些滑稽的结果有利于我们的灭共事业。因为他们越滑稽，最后要找一个替罪羊，要找一个目标：共产党。中南坑几个老杂毛。这是肯定的。
 
-When talking about the CCP virus, you cannot ignore the NFSC. When talking about the future international situation, you cannot ignore the NFSC. More importantly, everyone now has already realized the trend of the world’s economy as well as the trend of world’s entire international and geopolitical security. Year 2021 won’t be peaceful. Now, even the religious community, the unprecedented lurking forces, and the forces from all sides have come forth.
+2021年1月7日每日动态
+05:27 兄弟姐妹们，今天你看到有人要访问台湾的时候。是啥时候说的？文贵说的。让美国，让世界安平和平的力量不是你看到的这些。沼泽地的力量，它也不是一个两个，可以告诉大家，中国人从来人没有接近过世界上最伟大的，或者说最最强势的，延续了最多年的沼泽地力量，就是我们新中国联邦的合作者。况且还没到1月20号呢。
+06:05 我早就说，这我老爹老娘就说过，永远不要破裤子先伸腿，同样的是，早乐必早衰，早悲必早哀。过早的高兴，你必定要衰败，你过早的悲哀，你必将走向绝对的失败。这是永远不变的真理。
 
-谈中国病毒你不谈新中国联邦不行吧，谈未来的国际形势你不谈新中国联邦不行吧，更重要的事情，大家现在可能是意识到了，世界的经济和世界的整个国际，地缘政治的安全走势，2021年实在是太不平静了。现在就连宗教界，前所未有的潜伏的力量，各方的力量全部都站出来了。
+请参阅：[郭爆料串珠（131）什么才是真正的美国政治沼泽地、影子政府、Deep State？](https://gnews.org/zh-hans/660095/)
 
-The treatments suffered by the Hong Kongers over the last year, not only will it repeat in the U.S. but also in many other countries. Now is the time that all mankind face with a choice—whether the governments of all mankind becomes the enemy of the people, or the government is indeed for serving the people. A national leader of a European country said, “Miles, you told me a year ago that this day is coming. I believed what you said, but I didn’t think it would happen for certain.” He said its arrival is far beyond the limit that all humans on earth can bear today. The people and governments of their country has realized that people will rebel if the lock down continues for another month or two. Even if people are willing to continue the lock down, can the economy hold up? The economy won’t hold up. This is the situation of the world.
-
-香港人在去年，这一年多遭受的待遇，不仅仅会在美国重演，一定会在很多国家重演，现在到了全人类政府与人民为敌，还是政府真正的是服务于人民，这是人类上全都要面对的选择。欧洲某国的一个国家领导人说：Miles，一年前你告诉我这一天到来，我相信你说的，但我不相信一定会发生。他说今天的到来，远远超出了所有地球人类能承受的这个极限了。他们国家的人民和政府他们感受到，如果再去Lock Down一两个月的话，觉得人民就会造反。即使人民继续Lock Down， 他也说经济能撑住吗？经济也撑不住了，这就是世界的形势。
-
-Brothers and sisters, is it even possible that just one inauguration or the change of one event can make humanity better? Will the problems be solved? Absolutely not! So, brothers and sisters, time has changed and everything has changed. Brothers and sisters, this is not only an opportunity for our NFSC, but also a challenge for us. We need to seize this opportunity, but we will not yield to the challenge. When I heard, saw, and was involved in these big developments related to situation of the humanity as a whole, I indeed hoped all fellow fighters can be like me – experience, know, and cherish all this.
-
-兄弟姐妹们，真不是说一个就职仪式或者说一个事情的变化，人类就变好了吗？问题就解决了吗？绝对不是。所以说兄弟姐妹们，时代真的是变了，一切都变了。兄弟姐妹们，这既是我们新中国联盟的机会，也是我们的挑战，我们要抓住这个机会，但是不能被挑战给挑战没了。当我听到、看到、参与到这些关乎人类世界的大形势发展的时候，我真的希望所有的战友真的能和我一样，经历这一切，知道这一切，珍惜这一切。
-
-The madness of the CCP has already put the mankind into a completely uncertain future. The madness of the CCP is changing the lifestyle, the economy, the religious belief of all mankind, and the old ways of living a life of faith. Fellow fighters who haven’t realized this will suffer. The whole world has now reached a real moment of disaster. Again, the NFSC was born in accordance to the world, assuming the mission given by God. I feel that strongly in every moment. Every fellow fighter has his/her own mission. This feeling is so profound. Every moment I can feel the significance of I (Miles Guo), the NFSC, and the Whistleblower Movement. I hope every fellow fighter can feel it too.
-
-共产党的疯狂已经将人类送上了一个完全不确定的未来，共产党的疯狂正在改变全人类一切的生活方式，全人类的一切的经济方式和全人类对宗教信仰， 一切的过去的信仰生活模式。这个没有意识到的战友们你会吃大亏的，整个世界现在到了一个真的灾难时刻，还是那句话战友们，新中国联邦是应世而生，应运而生。是天赋使命，每时每刻的强烈的感受到了，每个战友都是有使命的人，这个感受太深刻了，我每时每刻都感觉到我郭文贵和新中国联邦、爆料革命的重要性。我更希望每位战友都能感受到。
-
-Yesterday, G-Fashion made such a great success. There was no manipulation or preparation at all, unlike the “11.11” holiday sales in China that needs to prepare for half a year… or the “10.01” holiday (National Day) sales and the alike, they are nothing but nonsense, deceptive, and fake. Our new [G-Fashion] products just hit the market yesterday, and approximately 40% of the products were bought by foreigners. In Hong Kong, Singapore, and Taiwan, people cannot buy the products yesterday because of the issues concerning the system and setup, which were solved, partially solved, last night. In Mainland China, people cannot buy the products either because it was midnight. Nevertheless, all the products were sold out. This is truly the force of justice. G-Clubs, I can be legally responsible to say that G-Clubs is almost one of the most special, most valuable, and with the best purchasing power in centuries. Our future G-Coins and G-Dollars must be the best currency in the world. It is a new start of the transformation of the world’s financial system.
-
-昨天的 G-Fashion 竟然是创造真的是这么巨大的，完全没有操作没有准备的。不像国内的光棍节，准备半年，十·一什么节，都胡扯都是骗人的嘛，不真实的。我们昨天就是个新上市，将近一半40%左右是外国人买的，昨天是香港、新加坡地区，台湾地区根本买不了，因为这个系统和设置的问题，到后来昨天晚上才解决了，部分解决。国内根本也是，晚上深夜他也不可能买，就卖空了。这就是一个正义的力量。G-Clubs，我可以今天在这里负法律责任的说，G-Clubs几乎是世界可能几百年来，最特别、最有价值、被购买力最强之一个G-Clubs。 我们未来的G-Coins, G-Dollars那一定是世界上最牛的货币，世界金融系统改造的新开始。
-
-GNews and GTV have become, as everyone can see, a media platform that every faction in the U.S. tries to rely on. To be honest, some of our aces haven’t been revealed yet. With respect to GTV and GNews, we will have more good news. Such a bigshot… I will not participate in any ceremony, I dislike it. Anyone who participates in these ceremonies under the spotlight and likes to sit there and give a performance must be lacking self-confidence. People who show off a bunch of photos taken together with celebrities and officials in their house must be an insecure person. You are who you are. Why do you use others to prove yourself? Why do you only realize the importance of yourself by attending ceremonies? There is no ceremony in the world never to be forgotten, and there is no ceremony in the world which is absolutely the greatest because some may like it while others may not. If you don’t even have this basic common sense, aren’t you a lost cause?
-
-GNews，GTV 大家都看到了成为什么，特别现在是美国所谓的各派，这派那派，都要争取依靠的一个平台媒体。说实话我们有些武器还没亮出来呢，GTV，GNews我们会有更多的…好消息..乖乖…这么大人物…我才不参加这仪式那仪式，讨厌。凡是一个往镁光灯下参加这仪式那仪式的人，要坐在那要表现表现，他一定是他没有自信的，家里面放着一堆名人照片，跟这个那个领导的照片，他一定是个不自信的人。你就有你自己，你干嘛拿别人证明你自己呀？干嘛要通过参加仪式觉得自己重要？世界上没有一个不会忘记的仪式，世界上没有一个绝对牛的仪式，有喜欢的有不喜欢的，这点起码的常识、境界都没有，那不就完蛋了嘛。
-
-Just like what an old friend from Vatican told me yesterday. He said, “Miles, we have known each other for more than a decade. There is no one quite like you, who doesn’t take a few photos with someone or record a video when visiting Vatican. You never do that and refuse to do that all the time. I feel like you are eccentric.” He said, now, he understands me. When I went to Vatican, he said I can take photos with anyone I wanted. I didn’t do it. What’s the point? A couple of days ago someone told me, “Miles, you are comparable with this famous person. You can match him.” I just smiled a little. He underestimated me. This is because if you are only obsessed with honor, money, and power, you are nobody. If you do not stand high enough with broader perspective, you will always be seen as nobody.
-
-就像昨天凡蒂冈的一位咱们的老哥儿们给我说的，他说：Miles，我跟你认识十几年，没有任何人像你一样到了凡蒂冈不跟谁照几张相啊，录个像啊，从来没有，都拒绝，我觉得你这个是怪人，他说现在我真的理解你了。我去凡蒂冈，你说：我想跟谁照都行。不照！凭啥啊？头两天有一个人跟我说，文贵你跟谁谁谁可以并比了，可以并列了。我当时笑一笑，也太看不起郭文贵了，因为但凡你对荣誉、金钱和权力迷恋的人，你什么都不是，只要你不站在一定的高度上，你永远都是被渺小的人。
-
-If you cannot figure it out or understand, it is because the altitude you stand on is too low, not high enough. When standing in front of history, in front of the uncertainty of the future, and in front of hundreds of millions or billions of human beings, who do you think was important? Who have been remembered? Are those who cannot figure this out just ignorant, shameless, and pathetic?
-
-你看不懂、听不懂，是因为你站位太低，你站的不够高。当你站在历史的前面，和未来不可确定的时间前面，和亿万个、千万个、几十亿个人类面前，谁重要了？什么名被记得？看不懂这个不就无知、无耻、可怜吗？
-
-Okay, that’s all. Today I will not work out and will have a rest. Not working out and having a rest makes me feel comfortable on some days and not so on other days. Good habits are very important. Brothers and sisters, everything has just begun!
-
-行了，我就不说了，今天不锻炼，休息休息。不锻炼休息休息有时候舒服，有时候不舒服，好习惯很重要，亲爱的兄弟姐妹们，一切都是刚刚开始！
-
-*鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/767298/](https://gnews.org/zh-hans/767298/)*
-
-*视频来源：[https://gtv.org/getter/60059bb687fabe2daf3c3efa](https://gtv.org/getter/60059bb687fabe2daf3c3efa)*
-
-*翻译：【**Cyndi**】校对：【**Dlrow**】【**Isaiah4031**】字幕：【**Naomi (**文花开**)**】视频解码：【恒久忍耐】编辑：【**M**ark**】*
-
-*喜马拉雅玫瑰园小队出品*
-
-*以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。*
-
-+4
++3
