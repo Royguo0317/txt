@@ -1,24 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 摩洛哥收到首批中共病毒疫苗，计划下周开始注射
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/794620/)
+## 关于中共『灭绝种族和反人类罪』
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/796317/)
 
-- 编辑：Victor Torres
+台灣農場 神愛世人
 
+中共对新疆维吾尔族施加的压制和虐待行为已经超越“人类危害罪”。前美国国务卿彭佩奥呼吁中共立即释放被任意拘留、虐打、强制劳改的人士，并废除非法集中劳改营，终止强行节育等行为，结束对维吾尔族人的逼害。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+彭佩奥赶在卸任前一天(1月19 )发声明确认：中共对新疆实施种族灭绝。 来自『每日邮报』对新疆集中营的一篇报道，一位历史学家欧西教授2019年8月去新疆实地调查后，发现集中营是真实的存在，被关在里面的维族人，他们仅仅是在公众场合祈祷，或举行宗教仪式婚礼，或上网传递文章，或是下载WhatsApp等所谓的罪行。
 
-**西班牙2021年1月22日电/西喜社——**摩洛哥已收到首批中共病毒疫苗，并计划于下周开始注射。
+被关在集中营的维族人受尽非人般的对待，一间狭小的监室𥚃关了60人，他们中15人必须站着，其他人才能躺下睡觉，上厕所必须在2分钟内完成，每天早上必须唱歌颂共产党歌曲，之后才能食用一天中唯一的一餐（白菜，清汤和馒头）。没有私隐，墙是透明玻璃，到处是摄像镜头和麦克风，一举一动全被记录。
 
-首批阿斯利康疫苗由印度交付，下周的第二种疫苗，来自中国的国药集团。
+历史学家欧西（Olsi Jazexhi）教授受访时表示：中共对新疆的极端政策，正在犯下可怕的罪行，他们在屠杀某个小数族裔和信仰，减绝他们。
 
-疫苗的推广工作将于下周开始。40岁及以上的卫生工作者、警察和军官、45岁及以上的教师和75岁以上的老人将优先接种。
+中共政权一直视新疆穆斯林为恐怖分子，叛乱分子，是国家的敌人，危害国家安全，因此他们认为必需把这些（危险分子）关起来进行暴力性、强逼性再教育。他们在新疆犯下反人类罪，对新疆维吾尔族、穆斯林、少数宗教群体限制言论自由，强逼妇女节育和堕胎，逼使维族妇女与汉族结婚从而淡化少数民族血统，包含任意监禁和剥夺逾百万新疆平民人生自由，侵犯人权等。美国一直关注新疆人权问题，并呼吁国际多边人权与法律组织对中共实施严厉监管。
 
-**新闻来源：**[https://apnews.com/article/pandemics-europe-coronavirus-pandemic-germany-coronavirus-vaccine-70b5db8396ff184ff7ce40a822344282](https://apnews.com/article/pandemics-europe-coronavirus-pandemic-germany-coronavirus-vaccine-70b5db8396ff184ff7ce40a822344282)
+參考資料：[https://www.washingtonpost.com/world/2018/08/17/chinas-dystopian-rule-over-muslim-minority/](https://www.washingtonpost.com/world/2018/08/17/chinas-dystopian-rule-over-muslim-minority/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/370d3ae5-faa6-40e4-ae0d-0bd1edf3b61d.jpg)
+[https://www.epochtimes.com/b5/21/1/20/n12699021.htm](https://www.epochtimes.com/b5/21/1/20/n12699021.htm)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
-
-0
++2
