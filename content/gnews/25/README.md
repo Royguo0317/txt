@@ -1,31 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美新任国防部长谈及对中共病毒和中共崛起的担忧
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/801386/)
+## 川普发表卸任后首次公开评论
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/801549/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+翻译：康州盘古-Bruce
+校对：康州盘古-Mike Li
+审核：康州盘古-Truemanman
+![]()![](https://gnews.org/wp-content/uploads/2021/01/AP20361775825326.jpg)
+前总统唐纳德·川普（Donald Trump）周五在离任后的首次公开评论中表示，他将以某种方式复出，但没有详细说明。
 
-编辑上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/下载-5.jpg)[nationalreview.com](https://www.nationalreview.com/news/biden-to-tap-army-general-lloyd-austin-for-secretary-of-defense/)
-昨天参议院高票通过的国防部长，美国历史上第一位黑人国防部长，劳埃德·奥斯丁（Lloyd Austin）在上任后的第一天与英国国防大臣本·华莱士（Ben Wallace）进行了通话。
+“我们会做一些事情，但还不是现在，”川普周五告诉《华盛顿观察家》的罗伯·克里利（Rob Crilly）。他没有提供更多细节。
 
-国防部的官网“立即发布”此消息【1】。
+据《华盛顿观察家》文章称，川普是在佛罗里达州西棕榈滩的川普国际高尔夫俱乐部就餐时发表上述评论的。
 
-在这篇简短的通话新闻摘要中，包括了这样的内容，“两位部长交换了对共同关心的战略问题的看法，包括COVID-19反应、中（共）国崛起的担忧、俄罗斯的威胁以及在伊拉克和阿富汗的持续行动等。”
+周三上午，在前往佛罗里达州之前，川普发表了类似的言论，称自己 “以某种形式回来”。
 
-国防部长们第一次谈话便论及中共病毒此类应该是卫生部长关注的话题，由此可见对中共病毒来源的关注。爆料革命揭露中共恶行的事实正在发酵。
+“我要告诉你们，这个国家的未来从未如此美好。我祝愿新政府大吉大利，取得巨大成功。我认为他们会取得巨大成功。他们有基础做一些非常壮观的事情。”在总统乔·拜登就职前几个小时，川普对支持者说。
 
-在参议院的听证会上，劳埃德说：“我们必须有能力，让我们能够在将来对中共国展示出一种可信的威胁，更确切地说，可信的威慑。我们必须在量子计算的应用，人工智能的应用，互联网战场的问世，太空平台方面取得一些进展。我认为，这些技术可以为我们提供所需的能力，使我们能够将大量中共国军事力量置于（被我们消灭的）危险之中。” 【2】
+川普告诉支持者，”你将会看到令人难以置信的数字出现”——指的是美国经济——如果拜登政府不对他的政策加以限制的话。然而，在执政第一天，拜登就采取行动撤销了川普在移民问题上的一系列行政命令，暂停Keystone XL管道，取消川普的1776委员会等。
 
-正是对中共有了这样的清醒认识，昨天劳埃德·奥斯丁获得了参议院的高票通过，93赞成，2票反对，成为美国历史上第一位黑人国防部长。
+“我想让你知道，我们发起的运动才刚刚开始。从来没有过这样的事情。”川普周二还在网上发布的一段事先录制好的视频中说。
 
-期待新的五角大楼掌门人，拜登总统的内阁加速认清邪共对世界文明带领的威胁，及早采取措施将其除之！
+同样在周五，川普前顾问斯蒂芬·米勒对《华盛顿观察家报》表示，”佛罗里达州确实是一个完美的地方，它是MAGA运动的新总部，也是总统下一步努力的发射台。”
 
-参考链接：
+米勒说，川普可以在政治上发挥作用。
 
-[1][https://www.defense.gov/Newsroom/Releases/Release/Article/2480867/readout-of-secretary-of-defense-lloyd-austins-call-with-uk-secretary-of-state-f/](https://www.defense.gov/Newsroom/Releases/Release/Article/2480867/readout-of-secretary-of-defense-lloyd-austins-call-with-uk-secretary-of-state-f/)
+“他离开的时候，肯定知道他把你的一切都投入到了任务中，”米勒补充道。”这个运动正在开始。这个运动是一个年轻的运动。它还处于起步阶段，总统–他自己的旅程还只是开始。”
 
-[2]https://thediplomat.com/2021/01/us-senate-confirms-lloyd-austin-as-secretary-of-defense/
+一些顾问建议他将参与2022年的中期选举，并可能在2024年竞选总统。
 
-0
+“川普在未来几年有很多目标……在2022年为共和党人赢回众议院和参议院，以确保我们能阻止民主党的疯狂，”另一位前顾问杰森-米勒本周早些时候说。
+
+米勒断言，川普将 “成为国家在选票和选民诚信方面的领导者”。
+
+现在由民主党控制的参议院的目标是在众议院弹劾川普后将其定罪。如果参议院给川普定罪，他有可能被禁止再次成为总统。
+
+《大纪元时报》已联系川普组织给予置评。
+
+原文作者：杰克·菲利普斯（Jack Philips）
+发布时间：2021年1月22日更新
+文章链接：[https://www.theepochtimes.com/trump-makes-first-public-comments-since-leaving-office\_3667881.html](https://www.theepochtimes.com/trump-makes-first-public-comments-since-leaving-office_3667881.html)
+
++1

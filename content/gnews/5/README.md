@@ -1,57 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 参议员戴恩斯：拜登和民主党不再是美国工人的朋友
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/801805/)
+## 2021年1月21日郭先生直播内容总结（附完整听写）
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/802088/)
 
-翻译：康州盘古农场-Bruce
-校对：康州盘古农场-Mike Li
-审核：康州盘古农场-Antsee-GTV
+七哥回顾从建设盘古到离开中国，期间的一个个事件。
 
-![davids]()![davids](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-24-at-15.26.47-1.png)*图片：拉里·法兰西（Larry French）/盖蒂图片社提供天狼星卫星广播公司*
+把清风看守所的思考，人生战略和人生的战术，是用行动办法变为物理化的结果。从盘古被刘志华抢走，到又追回。等于是第一个把共产党生出来的孩子又给送回了，肚子里边又重新生了一次，就是盘古。能把摩根拿回来，**盘古在一年内**又建起来，奥运会又到来。很多高官、有钱人排着队要约见。
 
-参议员史蒂夫·戴恩斯(Steve Daines)认为，乔·拜登是把沙特阿拉伯放在第一位，而不是美国。
+从2003到2006与共产党最高层的政治较量周旋之间，最后享受常委待遇。不到几百天，人生之起伏。
 
-这位共和党参议员周五在接受采访时表示，拜登停建Keystone XL输油管会扼杀美国的就业岗位并提高能源价格。
+二十几年的布局，瞬间被令计划儿子的法拉利车祸给搞掉。当时所面临的处境真是冰冻的感觉。十八大已确定了习王上台，这两个文化大革命的产物出来，中国完蛋了。中国的和平演变，通过内部演变的可能是没有了。当时很多人认为郭先生完了，还有人叫郭先生离开中国。但是他们全错了，习王上来，它最大的一个敌人，他要清理自己存在着各种威胁，可随时被做掉的这种可能。之后拿下令计划、李源潮，才轮到郭先生。
 
+习王上台以后，2012-2014年，一直在中国，在北京没走。那可能每秒钟都是天翻地覆的生死存亡。开始并购方正集团、海通证券。为家族和基金融资达六百亿，所涉及的金融证券的并购达三千亿。非常清楚必须跟外国合作，必须团结国际力量，必须有巨大的财富，才能逐渐实现我的目标，还能接近目标。现在做到了。
 
+从2014到2016年，下面的交易、利益、诱惑太多了。之后，动用了全部的潜伏、沉默的力量。暗杀威胁、抗议。2017年，没申请政庇前，中共几乎全部买通川普总统周围的所有大佬要遣返。
 
-> .[@JoeBiden](https://twitter.com/JoeBiden?ref_src=twsrc%5Etfw)'s Saudi Arabia First Plan is unacceptable. 
-> 
-> Killing the Keystone XL pipeline has a direct impact on the pocket books of the American people & will devastate rural communities. 
-> 
-> Montana alone will lose nearly $80 million to help impoverished counties make ends meet. [pic.twitter.com/jaxWKREPxW](https://t.co/jaxWKREPxW)
-> — Steve Daines (@SteveDaines) [January 22, 2021](https://twitter.com/SteveDaines/status/1352671577998028802?ref_src=twsrc%5Etfw)
+3年多，我们做到了，把共产党和中国人民分开。让共产党从买世界，控制世界为全世界过街老鼠。共产党是中国的非法组织，不代表中国。
 
+因为路德先生搞天线宝宝惩罚郭先生, 大连专案组开始河南裕达国贸被挂到京东拍卖十二亿人民币，比当年建设时间的价格还打了折。
 
-***沙特阿拉伯*优先*计划是无法接受的。*毁掉*Keystone XL管道会直接影响美国人民的钱包，并将破坏农村社区。仅蒙大纳州就将损失近8000万美元，以帮助贫困县的地区实现收支平衡。***
-他说，停建是拜登更关心其他国家工人的证据。正因为如此，戴恩斯强调拜登和其他民主党人不再是美国工人的朋友。
+**120是爆料革命的一个重大挫折，对灭共事业，将有了不可确定的因素和巨大的挑战。**
 
+**120绝对是上天给我们爆料革命带来最大的机会，让我们更多的、真正的战友连接在一起。**
 
+**自省的错误：**
 
-> That’s why I’m introducing legislation to reverse course on Biden’s terrible decision and congressionally authorize the Keystone XL pipeline. I hope ALL my colleagues-especially Republicans & Democrats in rural and western states-join in this fight.
-> — Steve Daines (@SteveDaines) [January 20, 2021](https://twitter.com/SteveDaines/status/1352029397235200008?ref_src=twsrc%5Etfw)
+1、过去半年，有些事情是犯了极端的错误。拜登硬盘事件，走得有点远，有点急。对GTV、G-NEWS商业上是成功的，在政治上是错的。
 
+2、近两个月，对共产党提高了灭爆小组的素质和手段，潜伏进来的特务没有及时制止。最后很多战友被这虚假信息所迷惑。
 
-***这就是为什么我要引入立法以扭转拜登的糟糕决定，并在国会上授权Keystone XL管道。我希望我的所有同事，特别是农村和西部各州的共和党人和民主党人，都参与这场斗争。***
-“这将直接影响到美国人民的口袋，”戴恩斯说。”我们现在正处于一场大瘟疫之中。他刚刚扼杀了11000个工作岗位。这对我的蒙大拿州来说，每年有8000万美元的税收收入——对低收入县来说——用于学校、执法、基础设施的收支。这是一个重大的基础设施项目，拜登上任6小时就把它扼杀了。”
+3、为了让自己变得更牛，证明自己更正确，走了一个弯路。爆料革命，没有给你承诺任何时间、任何承诺，不存在兑不兑现。
 
+4、过去三年最大的失误，对战友之间感性化太多，理性化太少。在社交媒体，金融板块的力量没起来。
 
+**新计划：**
 
-> I urge Senate Democrats to pick up the phone and call [@JoeBiden](https://twitter.com/JoeBiden?ref_src=twsrc%5Etfw). Tell him we need the Keystone XL pipeline. Tell him to stop abandoning American workers and killing union jobs.
-> 
-> If you say you support the pipeline, do something.
-> — Steve Daines (@SteveDaines) [January 22, 2021](https://twitter.com/SteveDaines/status/1352721643861401602?ref_src=twsrc%5Etfw)
+1、2021年要低调，必须面对现实，发展G系列，把各农场强大的联系在一起。
 
+2、把G系列盖特、GTV、GNEWS做大，以最快的速度，在全世界拥有我们的社交媒体话语权，强化我们的社交媒体平台，并追求计划的目标，把我们的新中国联邦的国防力量打造起来。
 
-***我敦促参议院民主党人给乔-拜登电话@JoeBiden。告诉他我们需要Keystone XL管道。告诉他停止抛弃美国工人，杀死工会工作。
-如果您说您支持管道，就做些事情。***
-蒙大拿州参议员认为，随着拜登政府向极左激进极端分子的理想屈服，拜登的决定只会越来越糟。
+3、把十几亿美元花到GTV、G-coin、G-dollar、G-news、G-fashion、G-club、G-盖特上去甚至另外的几十亿美元并购，G系列最快速度达到万亿级估值的企业。
 
-原文作者：《OAN新闻室》
+4、将让战友全面的参与，共同的打造G系列，全面的分享利益。也让战友们都能赚很多钱，让所有的战友们都收益。让更多战友以最快的时间能贴现钱，能有现钱，能有兑换的钱，这是目前当务之急。
 
-发布时间：2021年1月22日
+5、强化爆料革命和西方的团结力量。
 
-原文链接：[https://www.oann.com/sen-daines-biden-dems-no-longer-friends-to-american-workers/](https://www.oann.com/sen-daines-biden-dems-no-longer-friends-to-american-workers/)
+6、重视灭爆小组的手段和心理战，要把他们打得满地找牙。
 
-+1
+最后七哥失去的和危险跟谁比，七哥是大赢家，情况都是最好的。很多战友跟国内战友用生命、家人，自由、安全相比：没有资格牢骚，没有资格失望、犹豫。
+
+**金句：**
+
+世界上只有吓死的懦夫，我从来没有听说吓出来的英雄。
+
+解决恐惧最好的办法，就只让你有实力，你的实力要大过你的敌人。
+
+我们是要灭共的，早就把脑袋别在裤腰带上了。
+
+一个没有过牺牲和巨大付出的人，你没有资格评价爆料革命和新中国联邦。
+
+麻雀永远不懂苍鹰之志，不知道老鹰在天空中的飞翔的感觉。
+
+总结 :战友们一定记住，这次120的挫败，只能会让我们越挫越强，越加完整。重塑新中国联邦的方向和力量。爆料革命永远不能有预测，今年不能老搞重磅中的重磅。再一次呼吁,对现在的美国合法的、法律上承认的拜登总统、哈里斯副总统和这届政府,绝对不能再有个人攻击。我们判断标准非常简单，谁跟共产党勾兑，都是我们敌人。谁跟我们一起灭共，都是我们朋友。
+
+新中国联邦如何和世界的政府和世界的力量打交道？如何和沼泽地的力量做到平衡？如何能做到让世界的力量都倾斜于新中国联邦？如何让世界的各种力量一起和我们灭共？考验我们的智慧，考验我们的勇气，更考验我们每个战友的心智
+
+七哥已经开始了全面的战斗计划，现在不多说。今年要保持要更多的神秘，做完再说。
+
+120之后新中国联邦所有的脚步会更稳定、更坚实。
+
+总结：pride文豪
+
+[2021年1月21日直播听写](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/01/24034045/2021%E5%B9%B41%E6%9C%8821%E6%97%A5%E7%9B%B4%E6%92%AD%E5%90%AC%E5%86%99-1.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/01/24034045/2021%E5%B9%B41%E6%9C%8821%E6%97%A5%E7%9B%B4%E6%92%AD%E5%90%AC%E5%86%99-1.pdf)
+
+0

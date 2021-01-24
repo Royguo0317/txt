@@ -1,25 +1,95 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共借疫情之名加强对香港的戒严
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/801845/)
+## 2021/01/24 美国政要每日推特重要信息汇总
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/801933/)
 
-蒙特利尔皇家山战友团 Tao
-校对 晨熹
-发稿 云起时
-![]()![](https://gnews.org/wp-content/uploads/2021/01/freemalaysiatoday.com_-4.jpg)*图片来源：freemalaysiatoday.com*
-据信息战（Infowars）新闻网1月22日报道，香港已下令要求成千上万的居民在城市首次封锁前留在家中，中共国已部署1700名警察执行该限制措施，以期遏制疫情。
+编辑：Cathy
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/twitter_in_the_usa-1.jpg)
+**经授权转载自：**
 
-油尖旺区的这项封锁措施将于本周五午夜生效，覆盖150栋住宅楼，内有约9,000人。除非个人能够提供“中共病毒检测呈阴性“的证明，否则禁止离家，有计划的隔离将一直存在，直到封锁区域内的所有人检测完毕。
+- 川普等政要…直译推twitter：[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
+- 川普等政要…直译推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
+- 川普等政要…直译推GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
 
-实施严格措施的同时，三类人群将被允许有稍许宽松。居民和亲属如果正在护理别人，他们将被允许进出。医疗行业的从业人员将被获准继续工作。为减少离家需求，政府将为该区域的人提供食物和必需品。为使官员能够密切监视情况，将建立一个指挥中心，并与非政府组织（NGO）合作，以安抚公众情绪并提供支持。
 
-一旦采取措施，警察和卫生官员就计划挨家挨户走动，检查居民并评估区域内疫情程度。他们也准备在整个受感染区域设置多个检测点，尽力避免潜在的感染者出行。
+## 简评：
 
-最近几天，香港报告了61个新增中共病毒感染者，其中55人是通过社区传播发生的。官员们尚未能追踪到26例阳性病例。
+1月24日，现在参众议员们开始针对拜登的政策和美国现实存在的问题发表看法。人们都处在回看和观望的状态。
 
-评论：反送中爆发以来，香港人民遭受的磨难让全世界爱好和平的人心如刀割。中共病毒的肆虐，更让遭受中共摧残蹂躏后的香港雪上加霜。而香港政府早已经沦为中共控制下的傀儡，港共政府假借病毒之名，行香港军管之实，短时间内恐怕会让圣城香港，遭受更大的浩劫。但我坚信总有一天，中共和港共政府在香港欠下的累累血债一定会得到加倍偿还。
+## 参议员玛莎·布莱克本：
 
-[原文链接](https://www.infowars.com/posts/china-deploys-troops-to-enforce-hong-kong-lockdown/)
+旅游生子业以帮助外国人违法获得美国国籍赚了数以千万元。 《禁止旅游生子法》将堵住外国人利用其穿越美国边界的漏洞。
 
+
+
+> The birth tourism industry makes millions helping foreigners break the law to gain American citizenship. The Ban Birth Tourism Act will eliminate loopholes that foreign nationals are exploiting to cross U.S. borders. [pic.twitter.com/MFbMCTyFL2](https://t.co/MFbMCTyFL2)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [January 23, 2021](https://twitter.com/MarshaBlackburn/status/1352825922425131009?ref_src=twsrc%5Etfw)
+
+
+
+## 众议员马特·盖兹：
+
+1．高科技寡头可以噤声美利坚合众国的总统。
+
+想象下他们可以对您干什么。
+
+【[附众议员马特·盖兹和吉姆·乔丹在福克斯新闻台与Hannitty的谈话节目内容](https://hannity.com/media-room/watch-gop-lawmakers-speak-out-against-big-tech-targeting-conservative-voices/)】
+
+
+
+> Big Tech silenced the President of the United States.
+> 
+> Just imagine what they could do to you.[https://t.co/wOaQvfHzJz](https://t.co/wOaQvfHzJz)
+> — Rep. Matt Gaetz (@RepMattGaetz) [January 23, 2021](https://twitter.com/RepMattGaetz/status/1352996510661713920?ref_src=twsrc%5Etfw)
+
+
+
+2．高科技寡头之所以针对保守派，是因为我们支持选举的诚信。
+
+【[附http://breitbart.com 新闻网的相关报道](https://www.breitbart.com/clips/2021/01/16/gaetz-incoming-biden-administration-want-to-use-national-security-authorities-against-maga/)】
+
+
+
+> Big tech is targeting conservatives because we stood up for election integrity.[https://t.co/mcQTYY4EfE](https://t.co/mcQTYY4EfE)
+> — Rep. Matt Gaetz (@RepMattGaetz) [January 23, 2021](https://twitter.com/RepMattGaetz/status/1353026961128341504?ref_src=twsrc%5Etfw)
+
+
+
+## 众议员兰斯·古登：
+
+乔·拜登的Keystone XL （撤销输油管道线）的决定毁掉：
+
+-11,000个美国工作
+
+-8,000个工会职位
+
+-16亿美元的工资
+
+同时，预计 #中国共产党 将在未来12年内每月建设2个大型燃煤电厂。
+
+#北京拜登 #BejingBiden
+
+
+
+> Joe Biden's Keystone XL decision destroyed:
+> 
+> –&gt; 11,000 U.S. jobs
+> 
+> –&gt; 8,000 union jobs 
+> 
+> –&gt; $1.6 billion in wages 
+> 
+> Meanwhile, communist China is projected to build 2 large coal plants a month for the next 12 years.[#BejingBiden](https://twitter.com/hashtag/BejingBiden?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Lance Gooden (@Lancegooden) [January 23, 2021](https://twitter.com/Lancegooden/status/1353024371783323648?ref_src=twsrc%5Etfw)
+
+
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

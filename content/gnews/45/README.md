@@ -1,26 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亡秦赵高之矫立胡亥
-` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/800760/)
+## 共产党已经是成了美国餐桌上的大餐
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/801081/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/image0-264.jpg)（图片来自网络）
-作者：DDT
+新闻简述：郭文贵先生在2021年1月15日的Getter视频中说，蓬佩奥国务卿和川普总统政府采取的灭共行动和措施是过去70年的总和。新中国联邦和所有中国人是最大的受益者。任何一个美国总统不可能随便把一个总统和美国政府前届政府下达的命令推翻。
+视频来源：[https://gtv.org/getter/6001c26187fabe2daf3a1694](https://gtv.org/getter/6001c26187fabe2daf3a1694) (00:51-2:56)
+**中英文对照全文**
 
-审核校对：待命（文晓）
+Brothers and sisters, what have you discovered in the past few days? During the days between January 6th and January 20th, the actions taken by Secretary Pompeo and the U.S. government and President Trump to take down the CCP, together with the measures they have taken are as many as the sum of the past 70 years.
 
-编辑排版：待命（文晓）
+兄弟姐妹们，过去的几天你们发现了什么？就这几天从1月6号到这1月20号之间，蓬佩奥国务卿和美国政府部门和川普总统，采取的对灭共的行动，还有真正的措施，是过去70年的和。
 
-●秦始皇嬴政驾崩后，丞相李斯担心消息传出会造成帝国动荡，于是决定将嬴政的死亡消息限制在他、赵高、胡亥以及几个随行大臣之间，等回到咸阳以后再发布死讯。自嬴政一病不起，赵高就在思考后路，他为嬴政干过太多脏活，手中掌握权力，但也得罪了太多人，恨他入骨的人不知有多少。等到大公子扶苏作为新皇登基，他必将面对失去权力甚至性命的悲惨境地，他不能坐以待毙，更不能失去他奋斗得来的权力！所以他一直在等待机会，等待这个帝国最脆弱的时刻，现在机会来了！皇帝嬴政刚死，知道消息的人很少，新皇帝登基的诏书还在自己手中，帝国最高权力的交接出现了空白期，千载难逢的机会！“天予不取，反受其咎”，他要充分利用这个机会，将自己的利益最大化。
+So, brothers and sisters, we must see the essence of this. The United States wouldn’t take any actions unless it’s battered and bruised as hard as during the Attack on Pearl Harbor or the World War II.  The US is a selfish, Capitalist country who has really drifted away from God and its faith and away from its original intention.  Indeed, it has drifted away from democracy and rule of law, including its belief in God. “Trust my God!” This time it really hurts.
 
-●知情的大臣们能想到嬴政的死会激起多大的波澜，天下人尚蒙在鼓里，但知情者已经不能保持镇静。赵高觉得行动的时机已到，他先找到随行的公子胡亥，密谋说服他趁机当皇帝；后又找到丞相李斯，利用李斯热衷权力、注重个人得失的弱点，成功拉拢李斯；三人密谋达成，矫诏立公子胡亥为皇帝，回咸阳后立即登基。现在的当务之急是以皇帝嬴政的名义立即发诏书，令长公子扶苏和大将军蒙恬自裁——这就是历史上著名的“沙丘政变”。结果，扶苏自刎，蒙恬被囚于阳周（陕西子长县），蒙毅被囚禁代地（河北蔚县），一切都在按赵高的计划进行。
+所以说兄弟姐妹们一定要看到这个本质，美国这个国家就像珍珠岛战役被袭击一样，包括二战一样，他不打疼不流血他不行动的，他是个资本主义自私型的国家。这个国家已经真的是，远离了上帝和它的信仰，远离了它的初衷，这个真是民主法制已经远离了，包括信奉上帝，Trust my God！这个就是说这次让他疼了。
 
-● 车队继续在行驶在回咸阳的路上，赵高和李斯配合默契，沿途官员进献、奏事均未发现异常。车队到达九原，正直夏天，嬴政的尸体在辒凉车中腐烂，发出了臭味，赵高下令往车里装有腥臭气的咸鱼以掩盖尸臭。直到车队回到咸阳，赵高、李斯才发布治丧的公告，秦始皇嬴政的尸体被安葬在骊山，皇太子胡亥继皇帝位，史称秦二世。胡亥继位后，晋升赵高为郎中令，赵高又恐蒙氏重掌大权，利用胡亥对篡权的恐惧，怂恿胡亥下令杀掉蒙恬、蒙毅。蒙氏兄弟的被杀，造成秦朝举国震动，也标志着赵高清洗夺权行动的开始。
+So the biggest beneficiary between January 6th and January 20th is the New Federal State of China and all the Chinese. It’s impossible for any U.S. president to casually overturn an order issued by a president and the previous administration of the U.S. government. It’s like that a man brings a dish to the dining table, say, a chief brings a pot of stewed sauerkraut, then if you want it raw and uncooked, it will be impossible. If you break or smash the pot, that will be another story. If you did, you would have to bear the consequences. No one would pay for you.
 
+所以说1月6号到1月20号是新中国联邦和所有中国人最大的受益者。任何一个美国总统不可能随随便便把一个总统和美国政府前届政府下达的命令随便推翻，是不可能的，这真是，这就像一个人端上来这个一盘，厨师端上来了一盆炖锅酸菜，你想把它放回去了，回到原来被炖熟之前，那是不可能的。你要把你那炖锅给砸了给叩了，那是另外一回事。砸了、叩了你是要负责任的，没人给你付钱。
 
+That is to say, if a piece of fully cooked steak is put before you, whether you choose to eat it or not, it has already been cooked. It’s just like the CCP, who has become the big meal on Americans’ table. Eat it or not, that is a matter of choice of American people, but the CCP has become the steak for Americans or a hot pot.
 
-文章仅代表作者个人观点
+所以说把你整个做熟的牛排放在这，你可以吃不吃，这个牛肉已经做熟了。所以共产党已经是成了美国餐桌上的大餐，至于你美国人你吃不吃，那是你的事。共产党已经成了美国的牛排了，已经炖成火锅了。
 
+以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。
 
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/755419/](https://gnews.org/zh-hans/755419/)
 
-+1
+翻译：【Cyndi】校对：【Isaiah4031】字幕：【班仔】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+
+喜马拉雅玫瑰园小队出品
+
+敬请关注:
+
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+
++2

@@ -1,95 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/01/24 美国政要每日推特重要信息汇总
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/801933/)
+## 中共反人类政府春运期间加大对返乡人员实施网格化监管
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/802129/)
 
-编辑：Cathy
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/twitter_in_the_usa-1.jpg)
-**经授权转载自：**
+HST-01C-202101-079
 
-- 川普等政要…直译推twitter：[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
-- 川普等政要…直译推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
-- 川普等政要…直译推GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
+作者：捆绑CCP一千年 / 喜马拉雅东京樱花团
+![]()![](https://gnews.org/wp-content/uploads/2021/01/スクリーンショット-2021-01-24-17.43.20-1.png)
+北京时间2021年01月24日，原引北京日报《国家卫健委再次回应春节返乡问题》（链接如下）的文章说：“返回城市人员需遵守目的地疫情防控要求国务院联防联控机制日前印发《冬春季农村地区新冠肺炎疫情防控工作方案》，”以下简称《方案》。“《方案》中提出对返乡人员实行网格化管理措施，国家卫生健康委员会解释，网格化管理是指将农村划分为若干网格，村委会人员、乡村医生和民警等各方力量，以网格为单位，分片包干，对返乡人员做好摸排登记、健康监测、宣传教育等工作”。从字里行间可见老百姓毫无公民身份可言。
 
+[http://www.beijing.gov.cn/ywdt/zybwdt/202101/t20210124\_2230832.html](http://www.beijing.gov.cn/ywdt/zybwdt/202101/t20210124_2230832.html)
 
-## 简评：
+首先我们需要明白何为中共政权的“网格化管理”模式，搜狗百科《网格化管理》词条认为：网格化管理是一种统一的城市管理数字化的平台，将整个社会管理按辖区的标准划分成为单元网格。网格化管理强化综合治安维稳机制。”共产党将“驭民五术”的邪恶政策依托中共病毒赋予他它现代数字化能力，更具有反人类性质。其网格化监控武器就是“健康宝”和“通信大数据行程卡”，这两种APP分别实时无缝化、网格化监控人的行踪。举例来说，健康宝分绿、黄、红三种健康码，只有绿码才能畅行无阻。但这仍然不够，有些场所，比如医院等公共场合需要确保你不是来自疫区，如果是疫区来的患者，将会拒绝医治，或拉去强制隔离。这就需要你微信扫码大数据行程码。一扫便知你的足迹。
 
-1月24日，现在参众议员们开始针对拜登的政策和美国现实存在的问题发表看法。人们都处在回看和观望的状态。
+不难预见，此次春运期间，中共对农村返乡人员使用这种网格化管理就一定会产生许多侵犯人权和人道危机的问题出来。比如《方案》中强调“民警等各方力量”的介入。条文首先强调政府的力量是一切维稳手段。以“分片包干”的方式赋予各片区权利实施维稳到无死角，而且这种所谓“各方力量”的模糊表述就给控制人的自由增添了许多不确定性，分片包干在利益驱使下大大激发了人性邪恶，加剧同胞相残的程度，他可以根据需要随时对管制对象进行任何人生攻击和限制措施都不为过，而且中共乡村党员行为简单粗暴惯了，老百姓更是被疫情体制化洗脑后完全失去其任何防抵抗能力。整个中华大地9600万平公里国土面积成了世界巨无霸大监狱。
 
-## 参议员玛莎·布莱克本：
+值得注意的是，中共国大量农村劳动力和就业青年均在北上广地区谋生，笔者曾经采访过一个小小路边小吃摊，她们说好的时候月收入也在5千以上，回家根本无法养家糊口。因为农民耕地被强征或所谓合法廉价征用。无地可种的农民和农村青年就成了一、二线城市的候鸟型廉价人力资源。这一人群还包括大学毕业在大城市工作无户籍人员，有的甚至居住20年以上，购置商品房的生意人和打工族都被视为非本地人员。比如按北京来说，春节若回老家再回京需要定点隔离14天＋7天居家隔离。甚至根据你的行程卡数据会拒绝入城。这会直接导致你无家可归。因此，笔者认为，2021年春节期间会有多少人间悲剧在上演？我们将持续关注。
 
-旅游生子业以帮助外国人违法获得美国国籍赚了数以千万元。 《禁止旅游生子法》将堵住外国人利用其穿越美国边界的漏洞。
-
-
-
-> The birth tourism industry makes millions helping foreigners break the law to gain American citizenship. The Ban Birth Tourism Act will eliminate loopholes that foreign nationals are exploiting to cross U.S. borders. [pic.twitter.com/MFbMCTyFL2](https://t.co/MFbMCTyFL2)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [January 23, 2021](https://twitter.com/MarshaBlackburn/status/1352825922425131009?ref_src=twsrc%5Etfw)
+2021年1月24日写于东亚。
 
 
 
-## 众议员马特·盖兹：
-
-1．高科技寡头可以噤声美利坚合众国的总统。
-
-想象下他们可以对您干什么。
-
-【[附众议员马特·盖兹和吉姆·乔丹在福克斯新闻台与Hannitty的谈话节目内容](https://hannity.com/media-room/watch-gop-lawmakers-speak-out-against-big-tech-targeting-conservative-voices/)】
-
-
-
-> Big Tech silenced the President of the United States.
-> 
-> Just imagine what they could do to you.[https://t.co/wOaQvfHzJz](https://t.co/wOaQvfHzJz)
-> — Rep. Matt Gaetz (@RepMattGaetz) [January 23, 2021](https://twitter.com/RepMattGaetz/status/1352996510661713920?ref_src=twsrc%5Etfw)
-
-
-
-2．高科技寡头之所以针对保守派，是因为我们支持选举的诚信。
-
-【[附http://breitbart.com 新闻网的相关报道](https://www.breitbart.com/clips/2021/01/16/gaetz-incoming-biden-administration-want-to-use-national-security-authorities-against-maga/)】
-
-
-
-> Big tech is targeting conservatives because we stood up for election integrity.[https://t.co/mcQTYY4EfE](https://t.co/mcQTYY4EfE)
-> — Rep. Matt Gaetz (@RepMattGaetz) [January 23, 2021](https://twitter.com/RepMattGaetz/status/1353026961128341504?ref_src=twsrc%5Etfw)
-
-
-
-## 众议员兰斯·古登：
-
-乔·拜登的Keystone XL （撤销输油管道线）的决定毁掉：
-
--11,000个美国工作
-
--8,000个工会职位
-
--16亿美元的工资
-
-同时，预计 #中国共产党 将在未来12年内每月建设2个大型燃煤电厂。
-
-#北京拜登 #BejingBiden
-
-
-
-> Joe Biden's Keystone XL decision destroyed:
-> 
-> –&gt; 11,000 U.S. jobs
-> 
-> –&gt; 8,000 union jobs 
-> 
-> –&gt; $1.6 billion in wages 
-> 
-> Meanwhile, communist China is projected to build 2 large coal plants a month for the next 12 years.[#BejingBiden](https://twitter.com/hashtag/BejingBiden?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Lance Gooden (@Lancegooden) [January 23, 2021](https://twitter.com/Lancegooden/status/1353024371783323648?ref_src=twsrc%5Etfw)
-
-
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-0
++1
