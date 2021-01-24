@@ -1,47 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP病毒疫苗，你敢接种吗？（续）
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/800330/)
+## 教皇因坐骨神经腿痛将缺席即将举行的三场活动
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/800472/)
 
-撰稿：Sandy
-
-编辑：五饼二鱼
-
-CCP病毒疫苗真的来了，各国都有自己的接种方案，无外乎，前线的医护人员和老人优先。对于疫苗人们往往会关心以下两个问题。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1611449671.png)推特截图
-1. 疫苗有效吗？
+- 编辑：Victor Torres
 
 
-目前，可供选择的疫苗有不少，其中辉瑞疫苗有效率为95%，莫德纳疫苗有效率为94.5%，牛津-阿斯利康疫苗有效率平均为70.4% 。都远远比世卫规定的最低50%的有效率高出许多。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-我们就拿有效率最高的辉瑞疫苗来与我所在的新南威尔斯州的实际情况来做一个对比。 辉瑞有效率为95%，我们就简单的理解为100人中接种了疫苗后有95人是可以得到保护（不会感染）。
+**西班牙2021年1月24日电/西喜社——**教皇方济各将在未来几天内错过三次宗教活动，因为他的坐骨神经痛状况导致他的腿部剧烈疼痛。
 
-新南威尔斯州有人口八百一十六万四千一百人（8164100）。在没有疫苗，只是用社交距离，口罩等方式来防疫的情况下，目前的感染人数是4895， 也就是成功地保护了 8159205 人，我们也把数据换算成百分比：99.94%，比95%高了4.94%。
+据路透社报道，梵蒂冈周六宣布了教皇改变计划的消息。他将缺席1月24日的一项活动和1月25日的两项活动。
 
-我们再来看看如果用辉瑞的95%的有效率来计算，那新南威尔斯州有多少人可以得到保护呢（假设每个人都接种了疫苗）？是7755895（=8164100X95%）人，比起实际的8159205人少了403310人。
+他原定参加两场宗教仪式，周日在圣彼得大教堂主持弥撒，周一在罗马一座教堂参加晚祷仪式。他还定于周一在一个外交团的年度演讲中发言。据电讯社报道，这将被推迟到以后的日期。
 
-所以，无论从百分比还是从具体人数的角度来看，目前的疫苗所起到的防护作用，并不如我们现在使用的防疫方法有效。
+教皇患有坐骨神经痛已经有一段时间了，但他并没有因为这种影响坐骨神经的疾病而错过很多活动，这种疾病会导致从腰部到腿部的疼痛。
 
-1. 疫苗安全吗？
+84岁的教皇也因为病情的疼痛而错过了新年假期的一次宗教仪式。
 
+据路透社报道，方济各因病情进行理疗，这确实导致他有时行走不便。
 
-疫苗是否有副作用，的是否安全？特别是CCP病毒疫苗，这样一种，在一年内研製出来，还没有被大面积使用的疫苗，它的安全性一直都是人们关注的热点。我们看到过不少有関接种了疫苗出现不适的报道。
+教皇方济各在总统拜登就职日向他发去贺电，表示将为拜登祈祷，并祈求上帝帮助医治美国的分裂。
 
-其中，最令人担心的是有关挪威为42000位75到80 嵗的老年人进行了第一剂辉瑞疫苗注射， 注射后其中29名老人不幸去世的报道。
-我们还是用数据来説话吧。在42000个样本中有29个死亡，所占比例为0.0690%。在新南威尔斯州人口中，年龄75 到80嵗的老人人口是263188人，新州到目前爲止死亡人数是56人，里面包括了小于75嵗和大于80嵗的人员。所以若考虑同样的样本，新州在没有疫苗的情况下死亡人数的比例小于0.0213%，低于辉瑞疫苗的0.0690%。
+**原文链接：**[https://thehill-com.cdn.ampproject.org/v/s/thehill.com/policy/international/535542-pope-to-miss-three-upcoming-events-due-to-leg-pain?amp\_js\_v=a6&amp\_gsa=1&amp&usqp=mq331AQHKAFQArABIA%3D%3D#aoh=16114471566750&referrer=https%3A%2F%2Fwww.google.com&amp\_tf=De%20%251%24s&ampshare=https%3A%2F%2Fthehill.com%2Fpolicy%2Finternational%2F535542-pope-to-miss-three-upcoming-events-due-to-leg-pain](https://thehill-com.cdn.ampproject.org/v/s/thehill.com/policy/international/535542-pope-to-miss-three-upcoming-events-due-to-leg-pain?amp_js_v=a6&amp;amp_gsa=1&amp;amp&amp;usqp=mq331AQHKAFQArABIA%3D%3D#aoh=16114471566750&amp;referrer=https%3A%2F%2Fwww.google.com&amp;amp_tf=De%20%251%24s&amp;ampshare=https%3A%2F%2Fthehill.com%2Fpolicy%2Finternational%2F535542-pope-to-miss-three-upcoming-events-due-to-leg-pain)
 
-如果，用辉瑞疫苗的0.0690%来计算，新南威尔斯州75 到80嵗年龄组的死亡人数就是181到182人，远远高于实际的数据。所以，无论从百分比还是从具体人数的角度来看，疫苗的安全性都是令人担忧的。比起疫苗的有效率，疫苗的安全性是更令人担忧，更应该被我们重视。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
-还是那句话，为了自身的安全千万不要接种疫苗，还要尽可能地劝说周围的人不要去当小白鼠。但是，情况往往是超出我们个人控制范围的。虽然澳洲联邦政府说疫苗的接种是自愿的，但新州州长建议，将来人们会被要求提供疫苗接种证明才能旅行，进入酒吧和夜总会以及进入政府大楼，例如，新南威尔斯州服务中心（Service NSW）。如果州长的建议被采纳，我以后某一篇文章的题目或许会是‘CCP病毒疫苗，你敢不接种吗？’
-
-（文章仅代表个人观点）
-
-消息来源：
-1） ABC中文，15 January 2021：世卫规定新冠疫苗最低效能仅为50% 为什麽？，
-2） Australian Bureau of Statistics，17/12/2020：National, state and territory population
-3） Business Standard， January 17, 2021：Pfizer vaccine worries Norway as 29 elderly people die after taking shot
-4） Population by age，HealthStats NSW，[http://www.healthstats.nsw.gov.au/indicator/dem\_pop\_age](http://www.healthstats.nsw.gov.au/indicator/dem_pop_age)
-5） The Guardian, 18 Jan 2021: NSW considers giving businesses power to make Covid vaccination requirement for entry
-![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_5335-1.jpg)
 0

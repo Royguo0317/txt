@@ -1,31 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 据台湾国防部军情报道23日空军曾八次广播驱离共匪军机
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/800072/)
+## CCP病毒疫苗，你敢接种吗？（续）
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/800330/)
 
-撰稿：Yumi
+撰稿：Sandy
 
-审稿：Jenny
-![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_7675.jpg)国防部网络截图
-据台湾屏东军情报导，国防部即时军情 23日报导，中共解放军军机密集袭扰台湾邻近空域已成常态，以前一天内大约进入台湾领空区域大约三次左右，今日却极其罕见，在短短2小时内侵入空域达7次，台湾各地空军基地也出现密集起飞状况，这样的短时间密集扰台，也是近年广播记录到的创新高次。
+编辑：五饼二鱼
 
-**据长期观察台湾西南海域的粉丝页详细记载今天1月23日 中共军机 ，运八远干机 7A4262 编号30518、 空警500 7A42A3 编号81031 、 运八反潜机 7A431D 编号82013 等多架次进入我ADIZ(西南空域)，在台湾空军在空警戒，八度广播广播驱离共匪军机**。
+CCP病毒疫苗真的来了，各国都有自己的接种方案，无外乎，前线的医护人员和老人优先。对于疫苗人们往往会关心以下两个问题。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1611449671.png)推特截图
+1. 疫苗有效吗？
 
-其他热心的军事网友也报告，自上午10时左右至13时30分止，台湾空军各基地至少紧急起飞15批次(30机)前往拦截监控。另，美国海军C-2灰狗式舰载型运输机现踪巴士海峡，疑为美国航母通过巴士海峡。本月累计进入台湾空域22天，本月广播驱离纪录共计59次。
 
-在网上的网友评论说：今天中共的举动是在消耗台湾国军的军务执勤的工作，也在一而再地探撤台湾底线。岛内部段的有声音到底美国会不会来保护台湾声音又起来。
+目前，可供选择的疫苗有不少，其中辉瑞疫苗有效率为95%，莫德纳疫苗有效率为94.5%，牛津-阿斯利康疫苗有效率平均为70.4% 。都远远比世卫规定的最低50%的有效率高出许多。
 
-美军军机也在随后马上派运输机来到美国新的政权转换之馀。台海问题变成一种非常敏感地带。这个敏感时刻，任何台海一点风吹草动系牵繫著整个台海的危机。在本月22天共军西南海域的军机扰台是变成常态。然而今天年续密集的侵扰。喧嚣意味极大。空军广播纪录如图下：
-![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_7677.jpg)
-台灣西南海域粉絲團圖片來源
+我们就拿有效率最高的辉瑞疫苗来与我所在的新南威尔斯州的实际情况来做一个对比。 辉瑞有效率为95%，我们就简单的理解为100人中接种了疫苗后有95人是可以得到保护（不会感染）。
 
-新聞來源：
+新南威尔斯州有人口八百一十六万四千一百人（8164100）。在没有疫苗，只是用社交距离，口罩等方式来防疫的情况下，目前的感染人数是4895， 也就是成功地保护了 8159205 人，我们也把数据换算成百分比：99.94%，比95%高了4.94%。
 
-[https://www.mnd.gov.tw/Publish.aspx?p=77954&title=%e5%9c%8b%e9%98%b2%e6%b6%88%e6%81%af&SelectStyle=%e5%8d%b3%e6%99%82%e8%bb%8d%e4%ba%8b%e5%8b%95%e6%85%8b](https://www.mnd.gov.tw/Publish.aspx?p=77954&amp;title=%e5%9c%8b%e9%98%b2%e6%b6%88%e6%81%af&amp;SelectStyle=%e5%8d%b3%e6%99%82%e8%bb%8d%e4%ba%8b%e5%8b%95%e6%85%8b)
+我们再来看看如果用辉瑞的95%的有效率来计算，那新南威尔斯州有多少人可以得到保护呢（假设每个人都接种了疫苗）？是7755895（=8164100X95%）人，比起实际的8159205人少了403310人。
 
-[https://news.ltn.com.tw/news/politics/breakingnews/3419983?fbclid=IwAR0Xqx1xgzu0D8mSa-2bYvQA6a782nuKy4x0VHdsdZv-OsqeQO16i-meVkE](https://news.ltn.com.tw/news/politics/breakingnews/3419983?fbclid=IwAR0Xqx1xgzu0D8mSa-2bYvQA6a782nuKy4x0VHdsdZv-OsqeQO16i-meVkE)
+所以，无论从百分比还是从具体人数的角度来看，目前的疫苗所起到的防护作用，并不如我们现在使用的防疫方法有效。
 
-[https://www.facebook.com/SouthwestAirspaceofTW](https://www.facebook.com/SouthwestAirspaceofTW)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_5335.jpg)
+1. 疫苗安全吗？
+
+
+疫苗是否有副作用，的是否安全？特别是CCP病毒疫苗，这样一种，在一年内研製出来，还没有被大面积使用的疫苗，它的安全性一直都是人们关注的热点。我们看到过不少有関接种了疫苗出现不适的报道。
+
+其中，最令人担心的是有关挪威为42000位75到80 嵗的老年人进行了第一剂辉瑞疫苗注射， 注射后其中29名老人不幸去世的报道。
+我们还是用数据来説话吧。在42000个样本中有29个死亡，所占比例为0.0690%。在新南威尔斯州人口中，年龄75 到80嵗的老人人口是263188人，新州到目前爲止死亡人数是56人，里面包括了小于75嵗和大于80嵗的人员。所以若考虑同样的样本，新州在没有疫苗的情况下死亡人数的比例小于0.0213%，低于辉瑞疫苗的0.0690%。
+
+如果，用辉瑞疫苗的0.0690%来计算，新南威尔斯州75 到80嵗年龄组的死亡人数就是181到182人，远远高于实际的数据。所以，无论从百分比还是从具体人数的角度来看，疫苗的安全性都是令人担忧的。比起疫苗的有效率，疫苗的安全性是更令人担忧，更应该被我们重视。
+
+还是那句话，为了自身的安全千万不要接种疫苗，还要尽可能地劝说周围的人不要去当小白鼠。但是，情况往往是超出我们个人控制范围的。虽然澳洲联邦政府说疫苗的接种是自愿的，但新州州长建议，将来人们会被要求提供疫苗接种证明才能旅行，进入酒吧和夜总会以及进入政府大楼，例如，新南威尔斯州服务中心（Service NSW）。如果州长的建议被采纳，我以后某一篇文章的题目或许会是‘CCP病毒疫苗，你敢不接种吗？’
+
+（文章仅代表个人观点）
+
+消息来源：
+1） ABC中文，15 January 2021：世卫规定新冠疫苗最低效能仅为50% 为什麽？，
+2） Australian Bureau of Statistics，17/12/2020：National, state and territory population
+3） Business Standard， January 17, 2021：Pfizer vaccine worries Norway as 29 elderly people die after taking shot
+4） Population by age，HealthStats NSW，[http://www.healthstats.nsw.gov.au/indicator/dem\_pop\_age](http://www.healthstats.nsw.gov.au/indicator/dem_pop_age)
+5） The Guardian, 18 Jan 2021: NSW considers giving businesses power to make Covid vaccination requirement for entry
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_5335-1.jpg)
 0

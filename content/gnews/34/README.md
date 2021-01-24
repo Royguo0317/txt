@@ -1,35 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登总统上任首日, 川普时期关于电网安全的行政令被撤销
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/800792/)
+## 共产党已经是成了美国餐桌上的大餐
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/801081/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-46.png)图片来源：[https://netl.doe.gov/smartgrids](https://netl.doe.gov/smartgrids)
+新闻简述：郭文贵先生在2021年1月15日的Getter视频中说，蓬佩奥国务卿和川普总统政府采取的灭共行动和措施是过去70年的总和。新中国联邦和所有中国人是最大的受益者。任何一个美国总统不可能随便把一个总统和美国政府前届政府下达的命令推翻。
+视频来源：[https://gtv.org/getter/6001c26187fabe2daf3a1694](https://gtv.org/getter/6001c26187fabe2daf3a1694) (00:51-2:56)
+**中英文对照全文**
 
-据《国家脉动》报道，拜登总统在上任的第一天，颁布了一系列关于“保护公共卫生与环境及通过科学手段解决气候危机的行政命令”，并撤销了川普任内的一个旨在使外国和公司脱离美国的大电力系统（主要是与中国共产党有联系的实体）的行政命令。
+Brothers and sisters, what have you discovered in the past few days? During the days between January 6th and January 20th, the actions taken by Secretary Pompeo and the U.S. government and President Trump to take down the CCP, together with the measures they have taken are as many as the sum of the past 70 years.
 
-新总统颁布的大规模行政令第7节（包括撤销Keystone XL输油管道的许可，Keystone XL是一个从加拿大至美国中部的输油管道项目），撤销了川普政府签署的几项以气候和能源为重点的命令。
+兄弟姐妹们，过去的几天你们发现了什么？就这几天从1月6号到这1月20号之间，蓬佩奥国务卿和美国政府部门和川普总统，采取的对灭共的行动，还有真正的措施，是过去70年的和。
 
-2020年5月1日由川普政府颁发的第13920号行政令（保护美国大容量电力系统，英文为Bulk-Power System，以下简称BPS），目前暂停执行90天。
+So, brothers and sisters, we must see the essence of this. The United States wouldn’t take any actions unless it’s battered and bruised as hard as during the Attack on Pearl Harbor or the World War II.  The US is a selfish, Capitalist country who has really drifted away from God and its faith and away from its original intention.  Indeed, it has drifted away from democracy and rule of law, including its belief in God. “Trust my God!” This time it really hurts.
 
-第13920号行政令指出，”美国BPS为国防、重要紧急服务、关键基础设施、经济及人们的日常生活提供服务，而外国对手使BPS越来越脆弱，并在利用其脆弱性。BPS因此成为那些试图对美国及其人民实施恶意行为，包括恶意网络活动的人的攻击目标。如果成功攻击了BPS，将给美国的经济、人类健康和安全带来重大风险，并会使美国无法采取行动保卫自己及其盟友。”该举动“禁止任何人或有利益关联的外国机构或国家，获取、进口、转让或安装BPS电气设备，否则会对BPS的安全构成过度风险，也对美国关键基础设施、美国经济的韧性，以及美国国家安全造成潜在威胁。”美国能源部当时还负责对违反上述描述的现有BPS电气设备进行管理，并“制定适当的建议以识别、隔离、监控或更换该设备。”
+所以说兄弟姐妹们一定要看到这个本质，美国这个国家就像珍珠岛战役被袭击一样，包括二战一样，他不打疼不流血他不行动的，他是个资本主义自私型的国家。这个国家已经真的是，远离了上帝和它的信仰，远离了它的初衷，这个真是民主法制已经远离了，包括信奉上帝，Trust my God！这个就是说这次让他疼了。
 
-2021年1月16日，时任能源部长丹·布劳耶特（Dan Brouillette）发出了一项禁止令，禁止从中华人民共和国进行采购，以供应关键防御设施（CDF）的公用事业公司，旨在减少中华人民共和国有关的实体对国家BPS构成的风险。
+So the biggest beneficiary between January 6th and January 20th is the New Federal State of China and all the Chinese. It’s impossible for any U.S. president to casually overturn an order issued by a president and the previous administration of the U.S. government. It’s like that a man brings a dish to the dining table, say, a chief brings a pot of stewed sauerkraut, then if you want it raw and uncooked, it will be impossible. If you break or smash the pot, that will be another story. If you did, you would have to bear the consequences. No one would pay for you.
 
-现在，根据拜登总统的行政命令，（川普政府的该）行政令和美国BPS的命运掌握在拜登的能源部长兼管理预算办公室（OMB）的手中：“能源部长和OMB主任应共同考虑是否建议发布更换令。”
+所以说1月6号到1月20号是新中国联邦和所有中国人最大的受益者。任何一个美国总统不可能随随便便把一个总统和美国政府前届政府下达的命令随便推翻，是不可能的，这真是，这就像一个人端上来这个一盘，厨师端上来了一盆炖锅酸菜，你想把它放回去了，回到原来被炖熟之前，那是不可能的。你要把你那炖锅给砸了给叩了，那是另外一回事。砸了、叩了你是要负责任的，没人给你付钱。
 
-《国家脉动》报道并揭露了拜登政府的OMB负责人，他曾担任美国进步中心（CAP）的主席。CAP是一个智库，曾到中国旅行，并与中国共产党支持的有影响力的机构共同撰写过报告。
+That is to say, if a piece of fully cooked steak is put before you, whether you choose to eat it or not, it has already been cooked. It’s just like the CCP, who has become the big meal on Americans’ table. Eat it or not, that is a matter of choice of American people, but the CCP has become the steak for Americans or a hot pot.
 
-更重要的是，拜登的儿子亨特·拜登（Hunter Biden）之前曾与中国华信能源董事长叶简明进行过多次业务合作。CNN曾经指出，“在拜登2017年卸任副总统后，亨特·拜登曾和CEFC达成了一个交易，即中国华信能源投资美国的能源项目” 。《国家脉动》也指出，由亨特·拜登领导的一个投资公司曾向中广核（China General Nuclear Power Corp）汇入了数百万美元，这家中共国有电力公司数十年来一直偷窃美国核技术。
+所以说把你整个做熟的牛排放在这，你可以吃不吃，这个牛肉已经做熟了。所以共产党已经是成了美国餐桌上的大餐，至于你美国人你吃不吃，那是你的事。共产党已经成了美国的牛排了，已经炖成火锅了。
 
-简评：
+以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。
 
-考虑到外国及企业对美国国家电网构成的安全威胁，川普在执政时期发布了行政令禁止相应外国企业介入美国电网。随着美国政府的换届，外界看到拜登总统上任首日即撤销以前的行政令，美国本土的国家走向和发展也存在更多不确定性。新中国联邦和爆料革命不涉足美国两党政治，与任何坚决反共、灭共的力量一起合作，“以美灭共”是手段，“以共灭共”才是本质。
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/755419/](https://gnews.org/zh-hans/755419/)
 
-原文链接：[https://thenationalpulse.com/news/biden-revokes-trump-energy-eo/](https://thenationalpulse.com/news/biden-revokes-trump-energy-eo/)
+翻译：【Cyndi】校对：【Isaiah4031】字幕：【班仔】视频解码：【恒久忍耐】编辑：【Isaiah4031】
 
-翻译：米缐
+喜马拉雅玫瑰园小队出品
 
-校对：卡拉马佐夫姐姐
+敬请关注:
 
-0
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+
++2

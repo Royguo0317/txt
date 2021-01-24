@@ -1,30 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 教皇因坐骨神经腿痛将缺席即将举行的三场活动
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/800472/)
+## 【聚焦】中共空军大规模入侵台湾防空识别区
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/800798/)
 
-- 编辑：Victor Torres
+作者：翼族
 
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture2-16.png)图片来源：美国之音
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+【译评：由于爆料革命带来的的巨大压力，中共内部有如高压锅，各派系之间的斗争走向白热化。为转移国内外矛盾以及将政治对手送上断头台，中共急需一个爆破口卸压，于是对台湾动武变成了一个可能的选项。中共空军23日大规模入侵台湾防空识别区就是一种试探，一方面试探美方新一届政府对台态度，另一方面也试探中共军队内部对台动武的各方反应。而无论如何，一旦中共进攻台湾，这最后的疯狂只会加速他们的灭亡。】
 
-**西班牙2021年1月24日电/西喜社——**教皇方济各将在未来几天内错过三次宗教活动，因为他的坐骨神经痛状况导致他的腿部剧烈疼痛。
+据台北（路透社2021-1-23）报道：台湾国防部称，星期六有八架中共轰炸机和四架战斗机进入台湾防空识别区的西南角，台湾空军已部署导弹对此次入侵进行“监视”。
 
-据路透社报道，梵蒂冈周六宣布了教皇改变计划的消息。他将缺席1月24日的一项活动和1月25日的两项活动。
+在最近的几个月里，声称台湾为自己领土的中共国几乎每天都在台湾的南部和南海附近，由台湾控制的普拉塔斯群岛（Pratas Islands）之间的水域上进行飞行。但是，它们通常只是一两架侦察机的编队。而台湾方面的报道称，此次的入侵是由八架具有核能力的H-6K轰炸机和四架J-16战斗机组成的，一下子如此多的中共战机出现在台湾，这是非常不寻常的。
 
-他原定参加两场宗教仪式，周日在圣彼得大教堂主持弥撒，周一在罗马一座教堂参加晚祷仪式。他还定于周一在一个外交团的年度演讲中发言。据电讯社报道，这将被推迟到以后的日期。
+根据台湾国防部提供的地图显示，中共飞机（其中还包括一架Y-8反潜飞机）飞越了普拉塔斯群岛附近，这是中共空军最近执行任务的同一水域，尽管这里距离台湾本土还有一段距离。
 
-教皇患有坐骨神经痛已经有一段时间了，但他并没有因为这种影响坐骨神经的疾病而错过很多活动，这种疾病会导致从腰部到腿部的疼痛。
+国防部补充说，台湾空军对中共飞机发出了警告，并部署了导弹对其进行监视，以及使用标准的措辞来表达他们对中共活动的反应。国防部发出一份简短的声明：“空中预警机已经完成任务，发出了无线电警告，并部署了防空导弹系统来监视该活动。”
 
-84岁的教皇也因为病情的疼痛而错过了新年假期的一次宗教仪式。
+中共没有立即发表评论。中共国过去一直表示他们是在进行捍卫国家主权和安全的演习。
 
-据路透社报道，方济各因病情进行理疗，这确实导致他有时行走不便。
+随着美国对民主台湾的支持力度的增加，北京方面的关注也在升级，尤其是在唐纳德·川普政府于本周三卸任期间。
 
-教皇方济各在总统拜登就职日向他发去贺电，表示将为拜登祈祷，并祈求上帝帮助医治美国的分裂。
+去年在美国高级官员访问台北的期间，中共国飞机曾短暂越过台湾海峡的中线，该海峡通常被认为是一个非官方的缓冲地带。在乔·拜登就任美国总统几天后，中共国的轰炸机和战斗机周六就飞临了（台湾）。
 
-**原文链接：**[https://thehill-com.cdn.ampproject.org/v/s/thehill.com/policy/international/535542-pope-to-miss-three-upcoming-events-due-to-leg-pain?amp\_js\_v=a6&amp\_gsa=1&amp&usqp=mq331AQHKAFQArABIA%3D%3D#aoh=16114471566750&referrer=https%3A%2F%2Fwww.google.com&amp\_tf=De%20%251%24s&ampshare=https%3A%2F%2Fthehill.com%2Fpolicy%2Finternational%2F535542-pope-to-miss-three-upcoming-events-due-to-leg-pain](https://thehill-com.cdn.ampproject.org/v/s/thehill.com/policy/international/535542-pope-to-miss-three-upcoming-events-due-to-leg-pain?amp_js_v=a6&amp;amp_gsa=1&amp;amp&amp;usqp=mq331AQHKAFQArABIA%3D%3D#aoh=16114471566750&amp;referrer=https%3A%2F%2Fwww.google.com&amp;amp_tf=De%20%251%24s&amp;ampshare=https%3A%2F%2Fthehill.com%2Fpolicy%2Finternational%2F535542-pope-to-miss-three-upcoming-events-due-to-leg-pain)
+白宫国家安全委员会发言人艾米莉·霍恩（Emily Horne）表示，美国对台湾的承诺“坚如磐石”，此前台湾驻华盛顿的事实上的大使萧美琴出席了拜登的宣誓就职仪式。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+原文链接：[https://www.reuters.com/article/us-taiwan-china-security-idUSKBN29S0BK](https://www.reuters.com/article/us-taiwan-china-security-idUSKBN29S0BK)
 
-0
++3
