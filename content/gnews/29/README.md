@@ -1,57 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 参议员戴恩斯：拜登和民主党不再是美国工人的朋友
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/801805/)
+## 台湾桃园市地方医院爆发新冠肺炎群聚感染事件，台湾战友们忧心，积极传播病毒真相
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/802109/)
 
-翻译：康州盘古农场-Bruce
-校对：康州盘古农场-Mike Li
-审核：康州盘古农场-Antsee-GTV
+台湾农场 一叶一菩提
 
-![davids]()![davids](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-24-at-15.26.47-1.png)*图片：拉里·法兰西（Larry French）/盖蒂图片社提供天狼星卫星广播公司*
+台灣農場傳播病毒真相gtv直播：
+[https://gtv.org/video/id=600bdbb9dad90a755d5568c2](https://gtv.org/video/id=600bdbb9dad90a755d5568c2)
 
-参议员史蒂夫·戴恩斯(Steve Daines)认为，乔·拜登是把沙特阿拉伯放在第一位，而不是美国。
+[https://gtv.org/video/id=600be338dad90a755d557264](https://gtv.org/video/id=600be338dad90a755d557264)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1608879712273-90a0e361a2ef4400aec108ded7d2eaba-800x533-1.jpg)图为台湾中央流行疫情指挥中心指挥官
+台湾桃园医院爆发新冠肺炎（2019冠状病毒疾病，COVID-19）群聚感染事件，疫情扩大，卫福部部长兼任台湾的中央流行疫情指挥中心指挥官陈时中：建立“防火墙”避免疫情扩散，针对1月6日到19日，曾经在较高传播风险的红区进出的人，不管是出院病人或是陪病家属，都一律列为居家隔离者。有319人是医院相关员工， 其中229人已入住集中检疫所，还有251人为社区匡列，截至目前为止，隔离者已增加到570人，是2019年疫情发生以来，单一事件匡列隔离者最多的一次。
 
-这位共和党参议员周五在接受采访时表示，拜登停建Keystone XL输油管会扼杀美国的就业岗位并提高能源价格。
+利用这样的隔离措施建立“防火墙”，透过检验的方式，由确诊个案反覆的追踪以及疫调，希望尽早将疫情控制在防火墙内，形成安全范围，避免在社区内部扩散。
 
+22日下午中央流行疫情指挥中心宣布再增2例确诊个案，其中1人为染疫护理师（案852）曾照护的住院病患（案881），为本起群聚事件中首例住院患者染疫，且为全台最年长个案，他在1月15日出院后，曾因牙痛到长庚医院看牙，3名同住女儿中有1人已确诊（案882）。
 
+林口长庚医院稍早补充说明，案881为桃园医院居家隔离列管个案，20日在家中因牙痛及发烧也有肺部发炎情形，经卫生局安排搭乘检疫救护车送至医院，在急诊室户外筛检站通报采检后，直接进入负压病房治疗，21日PCR结果呈现阳性。林口长庚医院指出，案881病患从急诊入院，整个移动的路线均依防疫规范进行，现在在林口长庚医院检查及治疗过程中，所有工作人员全程皆依高规格防护着装，相关环境也都依防疫规定全程消毒，请民众不必惊慌。
 
-> .[@JoeBiden](https://twitter.com/JoeBiden?ref_src=twsrc%5Etfw)'s Saudi Arabia First Plan is unacceptable. 
-> 
-> Killing the Keystone XL pipeline has a direct impact on the pocket books of the American people & will devastate rural communities. 
-> 
-> Montana alone will lose nearly $80 million to help impoverished counties make ends meet. [pic.twitter.com/jaxWKREPxW](https://t.co/jaxWKREPxW)
-> — Steve Daines (@SteveDaines) [January 22, 2021](https://twitter.com/SteveDaines/status/1352671577998028802?ref_src=twsrc%5Etfw)
+22日下午中央流行疫情指挥中心宣布再增2例确诊个案，其中1人为染疫护理师（案852）曾照护的住院病患（案881），为本起群聚事件中首例住院患者染疫，且为全台最年长个案，他在1月15日出院后，曾因牙痛到长庚医院看牙，3名同住女儿中有1人已确诊（案882）。
 
+林口长庚医院稍早补充说明，案881为桃园医院居家隔离列管个案，20日在家中因牙痛及发烧也有肺部发炎情形，经卫生局安排搭乘检疫救护车送至医院，在急诊室户外筛检站通报采检后，直接进入负压病房治疗，21日PCR结果呈现阳性。林口长庚医院指出，案881病患从急诊入院，整个移动的路线均依防疫规范进行，现在在林口长庚医院检查及治疗过程中，所有工作人员全程皆依高规格防护着装，相关环境也都依防疫规定全程消毒，请民众不必惊慌。
 
-***沙特阿拉伯*优先*计划是无法接受的。*毁掉*Keystone XL管道会直接影响美国人民的钱包，并将破坏农村社区。仅蒙大纳州就将损失近8000万美元，以帮助贫困县的地区实现收支平衡。***
-他说，停建是拜登更关心其他国家工人的证据。正因为如此，戴恩斯强调拜登和其他民主党人不再是美国工人的朋友。
+參考新聞資料：[https://newtalk.tw/news/view/2021-01-22/527284](http://	https://newtalk.tw/news/view/2021-01-22/527284)
 
+[https://www.cna.com.tw/news/firstnews/202101220208.aspx](https://www.cna.com.tw/news/firstnews/202101220208.aspx)
 
-
-> That’s why I’m introducing legislation to reverse course on Biden’s terrible decision and congressionally authorize the Keystone XL pipeline. I hope ALL my colleagues-especially Republicans & Democrats in rural and western states-join in this fight.
-> — Steve Daines (@SteveDaines) [January 20, 2021](https://twitter.com/SteveDaines/status/1352029397235200008?ref_src=twsrc%5Etfw)
-
-
-***这就是为什么我要引入立法以扭转拜登的糟糕决定，并在国会上授权Keystone XL管道。我希望我的所有同事，特别是农村和西部各州的共和党人和民主党人，都参与这场斗争。***
-“这将直接影响到美国人民的口袋，”戴恩斯说。”我们现在正处于一场大瘟疫之中。他刚刚扼杀了11000个工作岗位。这对我的蒙大拿州来说，每年有8000万美元的税收收入——对低收入县来说——用于学校、执法、基础设施的收支。这是一个重大的基础设施项目，拜登上任6小时就把它扼杀了。”
-
-
-
-> I urge Senate Democrats to pick up the phone and call [@JoeBiden](https://twitter.com/JoeBiden?ref_src=twsrc%5Etfw). Tell him we need the Keystone XL pipeline. Tell him to stop abandoning American workers and killing union jobs.
-> 
-> If you say you support the pipeline, do something.
-> — Steve Daines (@SteveDaines) [January 22, 2021](https://twitter.com/SteveDaines/status/1352721643861401602?ref_src=twsrc%5Etfw)
-
-
-***我敦促参议院民主党人给乔-拜登电话@JoeBiden。告诉他我们需要Keystone XL管道。告诉他停止抛弃美国工人，杀死工会工作。
-如果您说您支持管道，就做些事情。***
-蒙大拿州参议员认为，随着拜登政府向极左激进极端分子的理想屈服，拜登的决定只会越来越糟。
-
-原文作者：《OAN新闻室》
-
-发布时间：2021年1月22日
-
-原文链接：[https://www.oann.com/sen-daines-biden-dems-no-longer-friends-to-american-workers/](https://www.oann.com/sen-daines-biden-dems-no-longer-friends-to-american-workers/)
-
-+1
+0

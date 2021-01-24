@@ -1,116 +1,84 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫报告：川普政府的政绩——截至2021年1月（十一）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/802251/)
+## 白宫报告：川普政府的政绩——截至2021年1月（十四）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/802367/)
 
-五月花写作组 ｜ 翻译：伞兵 ｜ 校对：Tom Cat ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告11-1.jpg)
-## **Part – 11 Colossal Rebuilding of the Military**
+五月花写作组 ｜ 翻译：风云九霄(文萧) ｜ 校对：伞兵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告14.jpg)
+## **Part 14 – Cherishing Life and Religious Liberty**
 
-## 第十一部分：**军队大重建**
-
-* * *
-
-### **Rebuilt the military and created the Sixth Branch, the United States Space Force. **
-
-### **重建军队，并成立第六部门，美国太空部队。**
-
-• Completely rebuilt the United States military with over $2.2 trillion in defense spending, including $738 billion for 2020.
-
-– 彻底重建美国军队，国防开支超过2.2万亿美元，包括2020年的7380亿美元。
-
-• Secured three pay raises for our service members and their families, including the largest raise in a decade.
-
-– 为我们的军人及其家属争取到三次加薪，包括十年来最大的一次加薪。
-
-• Established the Space Force, the first new branch of the United States Armed Forces since 1947.
-
-– 成立太空部队，这是美国武装部队自1947年以来的第一个新部门。
-
-• Modernized and recapitalized our nuclear forces and missile defenses to ensure they continue to serve as a strong deterrent.
-
-– 对我们的核力量和导弹防御系统进行现代化和资本重组，以确保它们继续发挥强大的威慑作用。
-
-• Upgraded our cyber defenses by elevating the Cyber Command into a major warfighting command and by reducing burdensome procedural restrictions on cyber operations.
-
-– 通过将网络司令部升格为主要作战司令部，并减少对网络行动的繁琐程序限制，提升了我们的网络防御能力。
-
-• Vetoed the FY21 National Defense Authorization Act, which failed to protect our national security, disrespected the history of our veterans and military, and contradicted our efforts to put America first.
-
-– 否决了21财年国防授权法案，该法案未能保护我们的国家安全，不尊重我们的退伍军人和军队的历史，并违背了我们把美国放在第一位的宗旨。
-
-### **Defeated terrorists, held leaders accountable for malign actions, and bolstered peace around the world. **
-
-### **击败恐怖分子，追究领导人的恶性行为责任，并支持世界各地的和平。**
-
-• Defeated 100 percent of ISIS’ territorial caliphate in Iraq and Syria.
-
-– 打败了100%ISIS在伊拉克和叙利亚的领土哈里发。
-
-• Freed nearly 8 million civilians from ISIS’ bloodthirsty control, and liberated Mosul, Raqqa, and the final ISIS foothold of Baghuz.
-
-– 将近800万平民从ISIS的嗜血控制下解放出来，解放了摩苏尔、拉卡和ISIS最后的立足点巴古兹。
-
-• Killed the leader of ISIS, Abu Bakr al-Baghdadi, and eliminated the world’s top terrorist, Qasem Soleimani.
-
-– 击毙了ISIS的头目阿布-贝克尔-巴格达迪，消灭了世界头号恐怖分子卡西姆-苏莱曼尼。
-
-• Created the Terrorist Financing Targeting Center (TFTC) in partnership between the United States and its Gulf partners to combat extremist ideology and threats, and target terrorist financial networks, including over 60 terrorist individuals and entities spanning the globe.
-
-– 美国与其海湾伙伴合作创建了恐怖主义融资目标中心（TFTC），以打击极端主义意识形态和威胁，并瞄准恐怖主义金融网络，包括遍布全球的60多个恐怖分子个人和实体。
-
-• Twice took decisive military action against the Assad regime in Syria for the barbaric use of chemical weapons against innocent civilians, including a successful 59 Tomahawk cruise missiles strike.
-
-– 两次对叙利亚阿萨德政权对无辜平民野蛮使用化学武器采取果断的军事行动，包括59枚战斧巡航导弹的成功打击。
-
-• Authorized sanctions against bad actors tied to Syria’s chemical weapons program.
-
-– 授权对与叙利亚化学武器计划有关的图谋不轨人士进行制裁
-
-• Negotiated an extended ceasefire with Turkey in northeast Syria.
-
-– 在叙利亚东北部与土耳其谈判延长停火。
-
-### **Addressed gaps in American’s defense-industrial base, providing much-needed updates to improve the safety of our country. **
-
-### **弥补了美国国防工业基础的不足，提供了急需的更新，以改善美国国家安全。**
-
-• Protected America’s defense-industrial base, directing the first whole-of-government assessment of our manufacturing and defense supply chains since the 1950s.
-
-– 保护美国的国防工业基础，指导自20世纪50年代以来首次对我们的制造业和国防供应链进行全政府评估。
-
-• Took decisive steps to secure our information and communications technology and services supply chain, including unsafe mobile applications.
-
-– 采取果断措施，确保我们的信息和通信技术及服务供应链的安全，包括不安全的移动应用。
-
-• Completed several multi-year nuclear material removal campaigns, securing over 1,000 kilograms of highly enriched uranium and significantly reducing global nuclear threats.
-
-– 完成了数次多年的核材料清除活动，确保了1 000多公斤高浓缩铀的安全，大大降低了全球核威胁。
-
-• Signed an executive order directing Federal agencies to work together to diminish the capability of foreign adversaries to target our critical electric infrastructure.
-
-– 签署了一项行政命令，指示联邦机构共同努力，削弱外国对手针对我们关键电力基础设施的能力。
-
-• Established a whole-of-government strategy addressing the threat posed by China’s malign efforts targeting the United States taxpayer-funded research and development ecosystem.
-
-– 制定了一项全政府战略，应对中国针对美国纳税人资助的研发生态系统的恶意出口所带来的威胁。
-
-• Advanced missile defense capabilities and regional alliances.
-
-– 先进的导弹防御能力和区域联盟。
-
-• Bolstered the ability of our allies and partners to defend themselves through the sale of aid and military equipment.
-
-– 通过出售援助和军事装备，加强了我们的盟友和伙伴的自卫能力。
-
-• Signed the largest arms deal ever, worth nearly $110 billion, with Saudi Arabia.
-
-– 与沙特阿拉伯签署了价值近1100亿美元的最大军火交易。
+## **第十四部分：珍惜生命与宗教自由**
 
 * * *
 
-原文来源：[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
+### **Steadfastly supported the sanctity of every human life and worked tirelessly to prevent government funding of abortion.**
+
+### **坚定支持个人生命的神圣，并为防止政府为堕胎提供资金做出了不懈的努力。**
+
+- Reinstated and expanded the Mexico City Policy, ensuring that taxpayer money is not used to fund abortion globally.
+- 恢复并扩展了墨西哥城政策，确保美国纳税人的钱不被用于全球堕胎。
+- Issued a rule preventing Title X taxpayer funding from subsiding the abortion industry.
+- 发布了一项规则，以防止Title X纳税人的资金资助堕胎行业。
+- Supported legislation to end late-term abortions.
+- 支持立法终止晚期流产。
+- Cut all funding to the United Nations population fund due to the fund’s support for coercive abortion and forced sterilization.
+- 联合国人口基金支持强迫堕胎和强迫绝育，因此终止对其拨款。
+- Signed legislation overturning the previous administration’s regulation that prohibited states from defunding abortion facilities as part of their family planning programs.
+- 签署法律推翻了上届政府的法规，以禁止各州对作为其家庭生育计划的堕胎设施拨款。
+- Fully enforced the requirement that taxpayer dollars do not support abortion coverage in Obamacare exchange plans.
+- 全面执行要求纳税人的钱不得用来支持奥巴马医改计划中的堕胎。
+- Stopped the Federal funding of fetal tissue research.
+- 停止了对胎儿组织研究的联邦资助。
+- Worked to protect healthcare entities and individuals’ conscience rights – ensuring that no medical professional is forced to participate in an abortion in violation of their beliefs.
+- 致力于保护医疗机构和个人的良心权利——确保没有医疗专业人员被迫违反其信仰而参与堕胎。
+- Issued an executive order reinforcing requirement that all hospitals in the United States provide medical treatment or an emergency transfer for infants who are in need of emergency medical care—regardless of prematurity or disability.
+- 发布了一项行政命令，加强要求美国所有医院为需要紧急医疗护理的婴儿提供医疗或紧急转运，无论其是否早产或残疾。
+- Led a coalition of countries to sign the Geneva Consensus Declaration, declaring that there is no international right to abortion and committing to protecting women’s health.
+- 领导一个国家联盟签署《日内瓦共识宣言》，宣布没有国际堕胎权，并致力于保护妇女的健康。
+- First president in history to attend the March for Life.
+- 历史上首位参加维护生命权游行的总统。
+
+
+### **Stood up for religious liberty in the United States and around the world.**
+
+### **为美国和世界各地的宗教自由而呼吁。**
+
+- Protected the conscience rights of doctors, nurses, teachers, and groups like the Little Sisters of the Poor.
+- 保护医生，护士，老师和安贫小姐妹会等团体的良心权利。
+- First president to convene a meeting at the United Nations to end religious persecution.
+- 第一任总统在联合国召开旨在结束宗教迫害的会议。
+- Established the White House Faith and Opportunity Initiative.
+- 建立了白宫信仰和机会倡议。
+- Stopped the Johnson Amendment from interfering with pastors’ right to speak their minds.
+- 阻止《约翰逊修正案》干扰牧师发表意见的权利。
+- Reversed the previous administration’s policy that prevented the government from providing disaster relief to religious organizations.
+- 推翻了上届政府阻止政府向宗教组织提供灾难援助的政策。
+- Protected faith-based adoption and foster care providers, ensuring they can continue to serve their communities while following the teachings of their faith.
+- 保护基于信仰的收养和寄养服务提供者，确保他们在遵循信仰教义的同时继续为社区服务。
+- Reduced burdensome barriers to ensure Native Americans are free to keep spiritually and culturally significant eagle feathers found on their tribal lands.
+- 减少繁文缛节，以确保美洲原住民可以自由地在其部落土地上保留精神上和文化上重要的鹰羽毛。
+- Took action to ensure Federal employees can take paid time off work to observe religious holy days.
+- 采取措施确保联邦雇员可以带薪休假来遵守宗教节日。
+- Signed legislation to assist religious and ethnic groups targeted by ISIS for mass murder and genocide in Syria and Iraq.
+- 签署了立法，以协助那些在叙利亚和伊拉克被ISIS进行大规模屠杀和种族灭绝的宗教和族裔群体。
+- Directed American assistance toward persecuted communities, including through faith-based programs.
+- 向美国的受迫害社区提供援助，包括通过基于信仰的计划。
+- Launched the International Religious Freedom Alliance – the first-ever alliance devoted to confronting religious persecution around the world.
+- 发起了国际宗教自由联盟，这是有史以来第一个致力于应对世界各地宗教迫害的联盟。
+- Appointed a Special Envoy to monitor and combat anti-Semitism.
+- 任命了一个特使来监督和打击反犹太主义。
+- Imposed restrictions on certain Chinese officials, internal security units, and companies for their complicity in the persecution of Uighur Muslims in Xinjiang.
+- 对参与迫害新疆维吾尔族人的某些中国官员，内部安全部门和公司实施共谋限制。
+- Issued an executive order to protect and promote religious freedom around the world.
+- 发布了一项行政命令，以保护和促进全世界的宗教自由。
+
+
+* * *
+
+原文来源：
+
+[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
 
 往期链接：
 
@@ -134,7 +102,11 @@
 
 [白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
 
-[白宫报告：川普政府的政绩——截至2021年1月（十）](https://gnews.org/zh-hans/802218/)
+[白宫报告：川普政府的政绩——截至2021年1月（十一）](https://gnews.org/zh-hans/802251/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十二）](https://gnews.org/zh-hans/802307/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十三）](https://gnews.org/zh-hans/802335/)
 
 * * *
 
@@ -144,4 +116,4 @@
 
 欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)！
 
-+1
+0
