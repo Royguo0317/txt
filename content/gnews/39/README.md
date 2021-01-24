@@ -1,47 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP病毒疫苗，你敢接种吗？（续）
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/800330/)
+## 报告抨击中共国和W.H.O.应对冠状病毒 “迟缓且无效”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/800331/)
 
-撰稿：Sandy
+新闻来源：BreitBart 《布莱特巴特》| 作者：Simon Kent 西蒙·肯特 | 发布时间：2021年1月19日
 
-编辑：五饼二鱼
+翻译/简评：clau | 校对：感恩 | 审核：freedust | Page：小雨
 
-CCP病毒疫苗真的来了，各国都有自己的接种方案，无外乎，前线的医护人员和老人优先。对于疫苗人们往往会关心以下两个问题。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1611449671.png)推特截图
-1. 疫苗有效吗？
+**简评：**
+
+本周二，一个位于瑞士的大流行病防御和应对独立专家组发布评估报告，抨击中共国和W.H.O.应对新冠病毒 “迟缓且无效”。近期的一系列消息表明，中共当局在CCP病毒的首发病例时间、病毒感染人数以及是否存在人传人等重要信息上都存在隐瞒或者延迟上报的情况。以谭德塞为首的世界卫生组织（W.H.O.）则一直在和中共当局狼狈为奸，没能及时宣布冠状病毒在全球范围内爆发为国际关注的突发公共卫生事件。报告组专家们一致认为，官方死亡病例和感染病例被低估了，“大规模被隐瞒的疫情”推动了疾病在全球的传播。
+
+在爆料革命的各位战友作为吹哨人爆出CCP病毒为生化武器一周年之际，这份迟来的国际独立专家组的报告，从侧面印证了爆料革命信息的真实性和准确性。全球有接近1亿人被感染，200多万人因病毒逝去，第二波病毒还在持续爆发之中，各国再次封国，债务高企，全球经济处于崩溃的边缘，美国大选以滑稽的结果结束。这样的局面一年前谁能预料到？不仅让人想起郭文贵先生在直播时说的一句话：“好人的声音总是被忽略。”尽管如此，爆料革命的战友们还是会在揭发病毒真相上继续努力，一切已经开始！Take Down the CCP!
+
+**原文翻译：**
+
+## 报告抨击中共国和W.H.O.应对冠状病毒 “迟缓且无效”
+
+![]()![](https://spark.adobe.com/page/eA7dOyzKcXAoO/images/2ac28547-fc7a-48e7-8a13-2e734c1283e8.jpg?asset_id=01f21668-f2ef-4cf7-9856-eb1db5fe835a&amp;img_etag=%22150303fbd79c8a0ccbe9d3f53b135137%22&amp;size=2560)
+
+**周二发布的一份令人震惊的中期报告得出以下结论：中国和世界卫生组织（W.H.O.）在应对冠状病毒爆发的第一阶段时反应缓慢且无效。**
+
+位于瑞士的大流行病预防和应对独立专家组表示，它对这场始于中国的危机的评估报告 “表明有可能对早期迹象采取更迅速的行动”。
+
+由13名成员组成的专家组在他们的批评性分析中说，本应在所有可能传播的国家立即实施遏制措施，该分析将提交给世界卫生组织的执行委员会。
+
+根据武汉市当局的说法，武汉的第一例病例发生在去年11月，他们已经被指责隐瞒了感染率。
+
+![]()![](https://spark.adobe.com/page/eA7dOyzKcXAoO/images/7731c78e-c361-4845-8aa1-3e93e28cff6a.png?asset_id=ab384e4a-b68a-47f3-9f27-d08cb93cc50d&amp;img_etag=%22f4f7e6151baa6adee02466bccd94bcbf%22&amp;size=2560)披露：中共国研究人员称，武汉市的冠状病毒感染人数至少是官方统计的三倍。— 布莱特巴特新闻（@BrebartNews）2021年1月11日
 
 
-目前，可供选择的疫苗有不少，其中辉瑞疫苗有效率为95%，莫德纳疫苗有效率为94.5%，牛津-阿斯利康疫苗有效率平均为70.4% 。都远远比世卫规定的最低50%的有效率高出许多。
+这些病例直到12月31日才上报给世界卫生组织。到2020年1月23日武汉被封锁时，病毒已经散布到了日本、韩国、泰国和美国。
 
-我们就拿有效率最高的辉瑞疫苗来与我所在的新南威尔斯州的实际情况来做一个对比。 辉瑞有效率为95%，我们就简单的理解为100人中接种了疫苗后有95人是可以得到保护（不会感染）。
+这种传播是在W.H.O.通过推特宣传中共国声称 “没有明确的人与人之间传播的证据 “之后发生的。
 
-新南威尔斯州有人口八百一十六万四千一百人（8164100）。在没有疫苗，只是用社交距离，口罩等方式来防疫的情况下，目前的感染人数是4895， 也就是成功地保护了 8159205 人，我们也把数据换算成百分比：99.94%，比95%高了4.94%。
-
-我们再来看看如果用辉瑞的95%的有效率来计算，那新南威尔斯州有多少人可以得到保护呢（假设每个人都接种了疫苗）？是7755895（=8164100X95%）人，比起实际的8159205人少了403310人。
-
-所以，无论从百分比还是从具体人数的角度来看，目前的疫苗所起到的防护作用，并不如我们现在使用的防疫方法有效。
-
-1. 疫苗安全吗？
+[!\[\]()!\[\](https://spark.adobe.com/page/eA7dOyzKcXAoO/images/2c0e34a6-25bd-4224-849c-61d0964d5b76.png?asset_id=dad9ec21-1088-4267-81dc-838499cff51f&amp;img_etag=%2292ac89e40f923c1120abb91926abe03e%22&amp;size=2560)](https://spark.adobe.com/page/eA7dOyzKcXAoO/images/2c0e34a6-25bd-4224-849c-61d0964d5b76.png?asset_id=dad9ec21-1088-4267-81dc-838499cff51f&amp;img_etag=%2292ac89e40f923c1120abb91926abe03e%22&amp;size=1024)中共国当局进行的初步调查没有发现在中国武汉发现的新型冠状病毒（2019-nCoV）有人传人的明确证据。—世界卫生组织（WHO）（@WHO）2020年1月14日
 
 
-疫苗是否有副作用，的是否安全？特别是CCP病毒疫苗，这样一种，在一年内研製出来，还没有被大面积使用的疫苗，它的安全性一直都是人们关注的热点。我们看到过不少有関接种了疫苗出现不适的报道。
+直到1月22日，世界卫生组织才承认有 “人传人 ”的证据，并补充说这并不 “出乎意料”：
 
-其中，最令人担心的是有关挪威为42000位75到80 嵗的老年人进行了第一剂辉瑞疫苗注射， 注射后其中29名老人不幸去世的报道。
-我们还是用数据来説话吧。在42000个样本中有29个死亡，所占比例为0.0690%。在新南威尔斯州人口中，年龄75 到80嵗的老人人口是263188人，新州到目前爲止死亡人数是56人，里面包括了小于75嵗和大于80嵗的人员。所以若考虑同样的样本，新州在没有疫苗的情况下死亡人数的比例小于0.0213%，低于辉瑞疫苗的0.0690%。
+[!\[\]()!\[\](https://spark.adobe.com/page/eA7dOyzKcXAoO/images/5c487d4f-106a-4981-9cce-1bd57d45739d.png?asset_id=2026f338-109e-400e-a6bc-c8187c023b9c&amp;img_etag=%226666116745fc89f39aefcf8818412289%22&amp;size=2560)](https://spark.adobe.com/page/eA7dOyzKcXAoO/images/5c487d4f-106a-4981-9cce-1bd57d45739d.png?asset_id=2026f338-109e-400e-a6bc-c8187c023b9c&amp;img_etag=%226666116745fc89f39aefcf8818412289%22&amp;size=1024)有证据表明在密切接触者之间存在人传人，比如在家庭成员之间或医疗机构中。这对于呼吸道疾病来说并不意外。我们没有看到任何继续传播的证据，如第三代、第四代传播—@mvankerkhove。—世界卫生组织（WHO）（@WHO）2020年1月22日
 
-如果，用辉瑞疫苗的0.0690%来计算，新南威尔斯州75 到80嵗年龄组的死亡人数就是181到182人，远远高于实际的数据。所以，无论从百分比还是从具体人数的角度来看，疫苗的安全性都是令人担忧的。比起疫苗的有效率，疫苗的安全性是更令人担忧，更应该被我们重视。
+直到又一周后，1月30日，W.H.O.才将冠状病毒称为全球紧急卫生事件：
 
-还是那句话，为了自身的安全千万不要接种疫苗，还要尽可能地劝说周围的人不要去当小白鼠。但是，情况往往是超出我们个人控制范围的。虽然澳洲联邦政府说疫苗的接种是自愿的，但新州州长建议，将来人们会被要求提供疫苗接种证明才能旅行，进入酒吧和夜总会以及进入政府大楼，例如，新南威尔斯州服务中心（Service NSW）。如果州长的建议被采纳，我以后某一篇文章的题目或许会是‘CCP病毒疫苗，你敢不接种吗？’
+[!\[\]()!\[\](https://spark.adobe.com/page/eA7dOyzKcXAoO/images/cd8521b1-c4f2-4437-a645-413b631460f5.png?asset_id=f5415398-1788-49a3-b258-bec65f1c3220&amp;img_etag=%22e436908fbdf950364748b33c3e02fba6%22&amp;size=2560)](https://spark.adobe.com/page/eA7dOyzKcXAoO/images/cd8521b1-c4f2-4437-a645-413b631460f5.png?asset_id=f5415398-1788-49a3-b258-bec65f1c3220&amp;img_etag=%22e436908fbdf950364748b33c3e02fba6%22&amp;size=1024)我现在宣布2019年冠状病毒在全球范围内爆发为国际关注的突发公共卫生事件，不是因为中国所发生的事情，而是因为其他国家正在发生的事情。- 谭德塞 •阿达诺姆•盖布雷耶苏斯 (@DrTedros) 2020年1月30日
 
-（文章仅代表个人观点）
+当天美国总统唐纳德•川普下令限制来自中国的旅行时，W.H.O.总干事谭德塞•阿达诺姆（Tedros Adhanom Ghebreyesus ）反击说：“我们反对此限制令”。他还说：“此时需要的是事实而非恐惧，科学而非谣言。现在是团结而不是羞辱的时候。”
 
-消息来源：
-1） ABC中文，15 January 2021：世卫规定新冠疫苗最低效能仅为50% 为什麽？，
-2） Australian Bureau of Statistics，17/12/2020：National, state and territory population
-3） Business Standard， January 17, 2021：Pfizer vaccine worries Norway as 29 elderly people die after taking shot
-4） Population by age，HealthStats NSW，[http://www.healthstats.nsw.gov.au/indicator/dem\_pop\_age](http://www.healthstats.nsw.gov.au/indicator/dem_pop_age)
-5） The Guardian, 18 Jan 2021: NSW considers giving businesses power to make Covid vaccination requirement for entry
-![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_5335-1.jpg)
+2月2日，他说：”没有理由采取不必要地干扰国际旅行和贸易的措施”。旅行限制并不是阻止疫情所需要的，而且可能 “产生增加恐惧和污名化的效果，几乎没有公共卫生利益”他说道。
+
+所有这些都太少，太晚了。
+
+该专家组表示，很明显“中国地方和国家卫生当局在1月份本可以应用更有力的公共卫生措施。”
+
+报告说：“不清楚为什么委员会直到1月的第三个星期才召开会议，也不清楚为什么委员会在第一次召开会议时，无法就国际关注的突发公共卫生事件（PHEIC）声明……达成一致意见。”报告指出，谭德塞（Tedros）不愿意说或做任何可能指向中国的拙劣反应或W.H.O.与之为同谋的事：
+
+[!\[\]()!\[\](https://spark.adobe.com/page/eA7dOyzKcXAoO/images/9d89f671-29ba-478e-9364-e881b85201a6.png?asset_id=99693193-f6f2-46ea-a730-acce1b27cffa&amp;img_etag=%223ebda90a109767478f8c955cb2015eca%22&amp;size=2560)](https://spark.adobe.com/page/eA7dOyzKcXAoO/images/9d89f671-29ba-478e-9364-e881b85201a6.png?asset_id=99693193-f6f2-46ea-a730-acce1b27cffa&amp;img_etag=%223ebda90a109767478f8c955cb2015eca%22&amp;size=1024)“中国发现疫情、分离病毒、测序基因组并与世卫组织和世界分享的速度令人印象非常深刻。中国对信息透明和支持其他国家的承诺也是如此”–@谭德塞博士#2019nCoV—世界卫生组织(WHO)(@WHO)2020年1月30日。
+
+
+在武汉发现首例Covid-19病例一年后，专家们一致认为，官方统计的200多万例死亡病例和近1亿例感染病例是低估了。而根据专家组的报告，病例数从一开始就被低估了。
+
+报告说：“回过头来看，很明显，所有国家在疫情初期的感染量都比报告的要高。”报告指出，“大规模被隐瞒的疫情 ”推动了疾病在全球的传播。
+
+🔗[原文链接](https://www.breitbart.com/health/2021/01/19/report-china-w-h-o-slow-and-ineffective-in-coronavirus-response/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+breitbart+%28Breitbart+News%29)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【[英国伦敦喜庄园编辑部](https://spark.adobe.com/page/eA7dOyzKcXAoO/)】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/eA7dOyzKcXAoO/images/b0287385-acb9-4669-9c2b-79c782f657e5.jpg?asset_id=43c992cd-9a6d-4a0e-977a-5f83b4b34932&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/eA7dOyzKcXAoO/images/b0287385-acb9-4669-9c2b-79c782f657e5.jpg?asset_id=43c992cd-9a6d-4a0e-977a-5f83b4b34932&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+
 0

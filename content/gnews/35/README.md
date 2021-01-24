@@ -1,30 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 教皇因坐骨神经腿痛将缺席即将举行的三场活动
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/800472/)
+## 亡秦赵高之矫立胡亥
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/800760/)
 
-- 编辑：Victor Torres
+![]()![](https://gnews.org/wp-content/uploads/2021/01/image0-264.jpg)（图片来自网络）
+作者：DDT
+
+审核校对：待命（文晓）
+
+编辑排版：待命（文晓）
+
+●秦始皇嬴政驾崩后，丞相李斯担心消息传出会造成帝国动荡，于是决定将嬴政的死亡消息限制在他、赵高、胡亥以及几个随行大臣之间，等回到咸阳以后再发布死讯。自嬴政一病不起，赵高就在思考后路，他为嬴政干过太多脏活，手中掌握权力，但也得罪了太多人，恨他入骨的人不知有多少。等到大公子扶苏作为新皇登基，他必将面对失去权力甚至性命的悲惨境地，他不能坐以待毙，更不能失去他奋斗得来的权力！所以他一直在等待机会，等待这个帝国最脆弱的时刻，现在机会来了！皇帝嬴政刚死，知道消息的人很少，新皇帝登基的诏书还在自己手中，帝国最高权力的交接出现了空白期，千载难逢的机会！“天予不取，反受其咎”，他要充分利用这个机会，将自己的利益最大化。
+
+●知情的大臣们能想到嬴政的死会激起多大的波澜，天下人尚蒙在鼓里，但知情者已经不能保持镇静。赵高觉得行动的时机已到，他先找到随行的公子胡亥，密谋说服他趁机当皇帝；后又找到丞相李斯，利用李斯热衷权力、注重个人得失的弱点，成功拉拢李斯；三人密谋达成，矫诏立公子胡亥为皇帝，回咸阳后立即登基。现在的当务之急是以皇帝嬴政的名义立即发诏书，令长公子扶苏和大将军蒙恬自裁——这就是历史上著名的“沙丘政变”。结果，扶苏自刎，蒙恬被囚于阳周（陕西子长县），蒙毅被囚禁代地（河北蔚县），一切都在按赵高的计划进行。
+
+● 车队继续在行驶在回咸阳的路上，赵高和李斯配合默契，沿途官员进献、奏事均未发现异常。车队到达九原，正直夏天，嬴政的尸体在辒凉车中腐烂，发出了臭味，赵高下令往车里装有腥臭气的咸鱼以掩盖尸臭。直到车队回到咸阳，赵高、李斯才发布治丧的公告，秦始皇嬴政的尸体被安葬在骊山，皇太子胡亥继皇帝位，史称秦二世。胡亥继位后，晋升赵高为郎中令，赵高又恐蒙氏重掌大权，利用胡亥对篡权的恐惧，怂恿胡亥下令杀掉蒙恬、蒙毅。蒙氏兄弟的被杀，造成秦朝举国震动，也标志着赵高清洗夺权行动的开始。
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月24日电/西喜社——**教皇方济各将在未来几天内错过三次宗教活动，因为他的坐骨神经痛状况导致他的腿部剧烈疼痛。
+文章仅代表作者个人观点
 
-据路透社报道，梵蒂冈周六宣布了教皇改变计划的消息。他将缺席1月24日的一项活动和1月25日的两项活动。
 
-他原定参加两场宗教仪式，周日在圣彼得大教堂主持弥撒，周一在罗马一座教堂参加晚祷仪式。他还定于周一在一个外交团的年度演讲中发言。据电讯社报道，这将被推迟到以后的日期。
 
-教皇患有坐骨神经痛已经有一段时间了，但他并没有因为这种影响坐骨神经的疾病而错过很多活动，这种疾病会导致从腰部到腿部的疼痛。
-
-84岁的教皇也因为病情的疼痛而错过了新年假期的一次宗教仪式。
-
-据路透社报道，方济各因病情进行理疗，这确实导致他有时行走不便。
-
-教皇方济各在总统拜登就职日向他发去贺电，表示将为拜登祈祷，并祈求上帝帮助医治美国的分裂。
-
-**原文链接：**[https://thehill-com.cdn.ampproject.org/v/s/thehill.com/policy/international/535542-pope-to-miss-three-upcoming-events-due-to-leg-pain?amp\_js\_v=a6&amp\_gsa=1&amp&usqp=mq331AQHKAFQArABIA%3D%3D#aoh=16114471566750&referrer=https%3A%2F%2Fwww.google.com&amp\_tf=De%20%251%24s&ampshare=https%3A%2F%2Fthehill.com%2Fpolicy%2Finternational%2F535542-pope-to-miss-three-upcoming-events-due-to-leg-pain](https://thehill-com.cdn.ampproject.org/v/s/thehill.com/policy/international/535542-pope-to-miss-three-upcoming-events-due-to-leg-pain?amp_js_v=a6&amp;amp_gsa=1&amp;amp&amp;usqp=mq331AQHKAFQArABIA%3D%3D#aoh=16114471566750&amp;referrer=https%3A%2F%2Fwww.google.com&amp;amp_tf=De%20%251%24s&amp;ampshare=https%3A%2F%2Fthehill.com%2Fpolicy%2Finternational%2F535542-pope-to-miss-three-upcoming-events-due-to-leg-pain)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
-
-0
++1
