@@ -1,26 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登总统上任之初传递严峻信息
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/799741/)
+## 意大利将对任何不履行中共病毒疫苗承诺的制药公司采取法律行动
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/799791/)
 
 - 编辑：Victor Torres
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月23日电/西喜社——**乔·拜登总统在他的就职演说中承诺与美国人民平起平坐，而他上任头三天所传递的信息异常严峻。
+**西班牙2021年1月23日电/西喜社——**意大利总理朱塞佩·孔蒂承诺不仅要对辉瑞公司采取法律行动，而且要对任何不履行中共病毒疫苗承诺的制药公司采取法律行动。
 
-他描绘了一幅国家近期处理中共病毒的黯淡图景，警告美国人将需要几个月，而不是几周的时间，来重新定位一个面临历史性危机交汇的国家。
+孔蒂说，第二家公司阿斯利康公司宣布的延迟是 “令人担忧的”，如果得到证实，将意味着意大利将收到340万剂的初始交付量，而不是约定的800万剂。
 
-这些可怕的语言是为了呼吁人们采取行动，但这也是一种刻意的努力，以缓解人们的期望。美国正在努力推出疫苗接种计划，存在生产和分配缓慢的问题。
+孔蒂表示，”交付速度放缓构成严重的违约行为，对意大利和其他欧洲国家产生巨大的损害，直接影响到已经受到一年流行病严重考验的公民的生命和健康，以及社会经济结构。”
 
-美国以2480万例确诊中共病毒病例和超过41.5万例死亡病例居世界首位。
+他承诺意大利将采取一切法律手段，”正如我们已经在对辉瑞-生物科技公司所做的那样”。
+
+意大利受到层层限制，五个地区的重症监护病房已经超过了警戒线。
+
+周六，卫生部记录了1.3万个新病例和488人死亡。意大利的死亡人数为8.5万人，为欧洲第二高，世界第六高。
 
 **新闻来源：**[https://apnews.com/article/europe-united-nations-coronavirus-pandemic-coronavirus-vaccine-asia-pacific-77fdfef687dbb5f635ec4eb6c16e83a8](https://apnews.com/article/europe-united-nations-coronavirus-pandemic-coronavirus-vaccine-asia-pacific-77fdfef687dbb5f635ec4eb6c16e83a8)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/f986d339-2dfc-472a-8703-4868c0c22df7-24.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/0f48cf3c-29ea-4cc5-86c4-479b5dd62f0f-6.jpg)
 
 ![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
-+2
++1

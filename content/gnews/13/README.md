@@ -1,45 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共产党已经是成了美国餐桌上的大餐
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/801081/)
+## 盘点历史上的种族灭绝事件以及其始作俑者的下场 （二）
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/801028/)
 
-新闻简述：郭文贵先生在2021年1月15日的Getter视频中说，蓬佩奥国务卿和川普总统政府采取的灭共行动和措施是过去70年的总和。新中国联邦和所有中国人是最大的受益者。任何一个美国总统不可能随便把一个总统和美国政府前届政府下达的命令推翻。
-视频来源：[https://gtv.org/getter/6001c26187fabe2daf3a1694](https://gtv.org/getter/6001c26187fabe2daf3a1694) (00:51-2:56)
-**中英文对照全文**
+撰稿：Gradient Boost
 
-Brothers and sisters, what have you discovered in the past few days? During the days between January 6th and January 20th, the actions taken by Secretary Pompeo and the U.S. government and President Trump to take down the CCP, together with the measures they have taken are as many as the sum of the past 70 years.
+编辑：五饼二鱼
 
-兄弟姐妹们，过去的几天你们发现了什么？就这几天从1月6号到这1月20号之间，蓬佩奥国务卿和美国政府部门和川普总统，采取的对灭共的行动，还有真正的措施，是过去70年的和。
+1月19日，蓬佩奥认定中共国在新疆针对维吾尔族穆斯林以及其他少数民族和宗教团体的迫害行径构成种族灭绝和危害人类罪。笔者特别回顾了近代历史中出现的种族屠杀悲剧以及罪魁祸首最终的结局，以反映这项声明对于中共政权的杀伤力。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/16114545041.png)图片制作：澳喜农场©森森
+在上一篇文章中（点击此处查看），笔者已经回顾了第一次世界大战期间的三次种族灭绝行径，以及始作俑者奥斯曼帝国及其首领官员的最终下场。而第二次世界大战中德国纳粹的犹太人清洗、以及日本帝国对于中华民族的屠戮，想必大家都耳熟能详。这两个邪恶轴心与其拥趸的惨败结局，诸位读者也应该心里有数。因此在第二篇文章中，笔者把目光放在了二战之后的二十世纪末期，细数这段时间内发生的针对某特定族群的残酷暴行和与之相关的罪恶政权最后的下场。
 
-So, brothers and sisters, we must see the essence of this. The United States wouldn’t take any actions unless it’s battered and bruised as hard as during the Attack on Pearl Harbor or the World War II.  The US is a selfish, Capitalist country who has really drifted away from God and its faith and away from its original intention.  Indeed, it has drifted away from democracy and rule of law, including its belief in God. “Trust my God!” This time it really hurts.
+红色高棉大屠杀
 
-所以说兄弟姐妹们一定要看到这个本质，美国这个国家就像珍珠岛战役被袭击一样，包括二战一样，他不打疼不流血他不行动的，他是个资本主义自私型的国家。这个国家已经真的是，远离了上帝和它的信仰，远离了它的初衷，这个真是民主法制已经远离了，包括信奉上帝，Trust my God！这个就是说这次让他疼了。
+1975至1979年初，由柬埔寨共产党书记波尔布特的红色高棉政权在柬埔寨进行了大规模的杀戮，因此也被称为柬埔寨种族灭绝。在红色高棉时期，大约有150,000到300,000人非正常死亡，约占到柬埔寨总人口四分之一。1975年四月，红色高棉掌握柬埔寨政权之后就开始效法毛时代的红色中国，为建立一个农业社会主义的社会，强迫城市人口全部迁移到乡下开展类似大跃进的活动。这场运动的结果与中共国也是完全一致：大量居民死于营养不良、疾病以及过度劳动。而随后的1976柬埔寨共产党的内部大清洗则又几乎将中央的高层官员以及领导杀戮殆尽。
 
-So the biggest beneficiary between January 6th and January 20th is the New Federal State of China and all the Chinese. It’s impossible for any U.S. president to casually overturn an order issued by a president and the previous administration of the U.S. government. It’s like that a man brings a dish to the dining table, say, a chief brings a pot of stewed sauerkraut, then if you want it raw and uncooked, it will be impossible. If you break or smash the pot, that will be another story. If you did, you would have to bear the consequences. No one would pay for you.
+2003年，联合国决议成立柬埔寨法院特别法庭，以战争罪、反人类罪、酷刑以及谋杀罪判处S-21集中营监狱长康克由35年监禁，2012年又驳回其上诉改判无期。柬埔寨原副书记农谢和国家主席团原主席乔森潘因犯下反人类罪而被判处终身监禁，2018年又因种族灭绝罪再判一次无期徒刑。至于柬共总书记波尔布特则在1998年就离奇死亡，目前主流观点是服毒自杀或者是被人谋杀。
 
-所以说1月6号到1月20号是新中国联邦和所有中国人最大的受益者。任何一个美国总统不可能随随便便把一个总统和美国政府前届政府下达的命令随便推翻，是不可能的，这真是，这就像一个人端上来这个一盘，厨师端上来了一盆炖锅酸菜，你想把它放回去了，回到原来被炖熟之前，那是不可能的。你要把你那炖锅给砸了给叩了，那是另外一回事。砸了、叩了你是要负责任的，没人给你付钱。
+卢旺达种族灭绝
 
-That is to say, if a piece of fully cooked steak is put before you, whether you choose to eat it or not, it has already been cooked. It’s just like the CCP, who has become the big meal on Americans’ table. Eat it or not, that is a matter of choice of American people, but the CCP has become the steak for Americans or a hot pot.
+1994年4月至7月大概100天的时间内，东非国家卢旺达的胡图族人对图西族人进行了惨无人道的屠戮，最终导致500,000到1,000,000人的死亡。屠杀背景则是当时胡图族的卢旺达政府军与图西族卢旺达爱国阵线的内战，以卢旺达总统疑似被暗杀为导火索，引发了全民的暴力冲突。除政府军以外，胡图族民兵组织甚至平民也参与到了屠杀行动中。胡图族极端分子更是向群众下令，要求“不留任何人”，其中甚至包括婴儿，任何持有图西族身份证明的人都将立刻遭到杀害。
 
-所以说把你整个做熟的牛排放在这，你可以吃不吃，这个牛肉已经做熟了。所以共产党已经是成了美国餐桌上的大餐，至于你美国人你吃不吃，那是你的事。共产党已经成了美国的牛排了，已经炖成火锅了。
+1994年11月联合国成立卢旺达问题国际刑事法庭，直到目前为止，卢旺达刑庭已经对遭到诉讼的29人予以定罪，还有数十人或被拘留或等候审判。根据联合国的说明，在2000年便已经有超过100,000灭绝种族嫌犯候审，这些审判则是由现在卢旺达政府进行。而当风波平息时，有2,000,000胡图族人担心遭受报复逃离了卢旺达，成为难民，部分前政府军的武装力量甚至依旧在袭击平民目标，造成伤害或死亡。
 
-以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。
+斯雷布雷尼察大屠杀
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/755419/](https://gnews.org/zh-hans/755419/)
+1995年7月，波黑斯雷布雷尼察地区有超过8,000名当地居民惨遭拉特科•姆拉迪奇带领下的塞族共和国军队杀害。该事件被认为是第二次世界大战之后发生在欧洲的最严重屠杀行为。事件起源于波黑的独立运动，塞族共和国因不希望波黑分离，因此自1992年起便已经在当地对波斯尼亚人实施杀戮与迫害。虽然联合国于1993年宣布斯雷布雷尼察为“安全区域”，但塞族共和国政府并没有理会，并在1995年进入了联合国规定的安全区。除了枪杀平民以外，塞军还实施过诸如活埋、酷刑、强奸以及驱逐等一系列暴行。
 
-翻译：【Cyndi】校对：【Isaiah4031】字幕：【班仔】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+2011年5月，始作俑者拉特科•姆拉迪奇在塞尔维亚被捕一个村庄被逮捕，并被引渡到海牙前南斯拉夫问题国际刑事法庭受审。2017年，拉特科•姆拉迪奇被判处终身监禁。塞族共和国总统拉多万•卡拉季奇被判犯有种族灭绝罪行，加上其他指控共判处40年有期徒刑。准军事组织毒蝎部队成员因在斯雷布雷尼察对穆斯林平民犯下战争罪行而被认定有罪。指挥官斯洛博丹•梅迪奇及其主要帮手布拉尼斯拉夫•梅迪奇均被判处20年有期徒刑。
 
-喜马拉雅玫瑰园小队出品
+由以上事例我们不难看出，二战之后的种族灭绝行径大多数都以国际审判收场，大多数罪魁祸首都接受了法律的制裁被投入打牢，多数都是终身监禁或几乎等同与终身监禁。例外之一则是柬埔寨共产党书记波尔布特，他在受审之前就离奇死亡，既有可能是自己服毒也有可能是遭人毒杀。身为华人，笔者实际上也更希望中共党魁们最终接受法律审判和量刑处置，公开承认自己犯下的罪行和对中国人民造成的损失与伤害。希望天线宝宝多保重，不要最后也遭政敌来一个“被上吊”、“被服毒”或者“被跳楼”了。
 
-敬请关注:
+另外笔者发现有趣的一点是：就在19日中共被定性犯有种族灭绝罪之后，中文版本的维基百科的“种族灭绝”词条中突然就出现了印第安人问题以及美国迫害黑人及美国反华的内容，前者先前还属于有争议类别而后面两项则原本没有出现在该词条中。而红色高棉大屠杀从词条中消失。目前维基百科“种族灭绝”词条已显示遭到破坏，属于半保护的状态。考虑到维基百科是开放给公众进行编修的，那么究竟什么势力，如此着急突然在这个时间点上开始对“种族灭绝”这一特定词条进行定向删改的呢？我想大家心理应该都有数吧。
 
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+（本文纯属个人观点）
 
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+参考链接：
 
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Gnews热点播报
 
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+[美国务院宣布中共在新疆的恶行是种族灭绝](https://gnews.org/zh-hans/774933/)
 
+联合国网站
+
+[卢旺达种族灭绝和联合国外联方案](https://www.un.org/zh/preventgenocide/rwanda/rwandagenocide.shtml)
+
+维基百科词条搜索
+
+[种族灭绝](https://zh.wikipedia.org/wiki/%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D)
+
+[卢旺达种族灭绝](https://zh.wikipedia.org/zh-cn/%E5%8D%A2%E6%97%BA%E8%BE%BE%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D#%E6%BA%AB%E5%92%8C%E6%B4%BE%E9%A0%98%E5%B0%8E%E4%BA%BA%E9%81%AD%E5%88%B0%E6%AE%BA%E5%AE%B3)
+
+[卢旺达问题国际刑事法庭](https://zh.wikipedia.org/zh/%E5%8D%A2%E6%97%BA%E8%BE%BE%E9%97%AE%E9%A2%98%E5%9B%BD%E9%99%85%E5%88%91%E4%BA%8B%E6%B3%95%E5%BA%AD)
+
+[波尔布特](https://zh.wikipedia.org/wiki/%E6%B3%A2%E5%B0%94%E5%B8%83%E7%89%B9#%E6%AD%BB%E4%BA%A1)
+
+[斯雷布雷尼察大屠杀](https://zh.wikipedia.org/zh-cn/%E6%96%AF%E9%9B%B7%E5%B8%83%E9%9B%B7%E5%B0%BC%E5%AF%9F%E5%A4%A7%E5%B1%A0%E6%9D%80)
+
+[拉特科·姆拉迪奇](https://zh.wikipedia.org/wiki/%E6%8B%89%E7%89%B9%E7%A7%91%C2%B7%E5%A7%86%E6%8B%89%E8%BF%AA%E5%A5%87)
+
+[红色高棉大屠杀](https://zh.wikipedia.org/wiki/%E7%BA%A2%E8%89%B2%E9%AB%98%E6%A3%89%E5%A4%A7%E5%B1%A0%E6%9D%80#%E7%89%B9%E5%88%AB%E6%B3%95%E5%BA%AD%E5%AE%A1%E5%88%A4)
+
+[柬埔寨法院特别法庭](https://zh.wikipedia.org/wiki/%E6%9F%AC%E5%9F%94%E5%AF%A8%E6%B3%95%E9%99%A2%E7%89%B9%E5%88%A5%E6%B3%95%E5%BA%AD)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_5335-3.jpg)
 +2

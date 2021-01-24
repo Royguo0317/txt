@@ -1,29 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 意大利将对任何不履行中共病毒疫苗承诺的制药公司采取法律行动
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/799791/)
+## 西班牙最高军事指挥官因“插队”接种疫苗被迫辞职
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/799858/)
 
 - 编辑：Victor Torres
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月23日电/西喜社——**意大利总理朱塞佩·孔蒂承诺不仅要对辉瑞公司采取法律行动，而且要对任何不履行中共病毒疫苗承诺的制药公司采取法律行动。
+**西班牙2021年1月23日电/西喜社——**西班牙最高军事指挥官被迫辞职，因为他和其他高级军官违反了既定协议，提前接种了中共病毒疫苗。
 
-孔蒂说，第二家公司阿斯利康公司宣布的延迟是 “令人担忧的”，如果得到证实，将意味着意大利将收到340万剂的初始交付量，而不是约定的800万剂。
+西班牙国防部周六向美联社证实，部长玛格丽塔·罗伯斯(Margarita Robles)已接受参谋长米格尔·安杰尔·比利亚罗亚（Miguel Ángel Villarroya）将军的辞职。
 
-孔蒂表示，”交付速度放缓构成严重的违约行为，对意大利和其他欧洲国家产生巨大的损害，直接影响到已经受到一年流行病严重考验的公民的生命和健康，以及社会经济结构。”
-
-他承诺意大利将采取一切法律手段，”正如我们已经在对辉瑞-生物科技公司所做的那样”。
-
-意大利受到层层限制，五个地区的重症监护病房已经超过了警戒线。
-
-周六，卫生部记录了1.3万个新病例和488人死亡。意大利的死亡人数为8.5万人，为欧洲第二高，世界第六高。
+网络新闻网站El Confidencial Digital报道说，比利亚罗亚和其他高层违反了西班牙疫苗接种战略的国家协议，该协议目前只允许养老院的住院人员和医务工作者接受注射。比利亚罗亚在被报道之后辞职。最近几周，有几名公职人员接种疫苗插队，包括穆尔西亚东南部的一名地区卫生局长也辞职了。
 
 **新闻来源：**[https://apnews.com/article/europe-united-nations-coronavirus-pandemic-coronavirus-vaccine-asia-pacific-77fdfef687dbb5f635ec4eb6c16e83a8](https://apnews.com/article/europe-united-nations-coronavirus-pandemic-coronavirus-vaccine-asia-pacific-77fdfef687dbb5f635ec4eb6c16e83a8)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/0f48cf3c-29ea-4cc5-86c4-479b5dd62f0f-6.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/5bee85d7-c83d-483e-bb26-b9538b299ce5-4.jpg)
 
 ![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
