@@ -1,169 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 华大基因捐赠，山东金矿收购，“加拿大律师”拒绝代理中国业务&#8230;.挣钱和威胁！加拿大在选择！
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/803384/)
+## 中共要打台湾，而整个世界在计算中共病毒造成的损失
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/803755/)
 
-HST-01C-202101-080
+新闻简述：2021年1月23日郭文贵先生在去开会的途中发布Getter视频。他说将要和一些人士讨论中共病毒对美国和世界经济的危害，并指出中共对台湾的企图只能使它死的更快。
+视频来源：[https://gtv.org/getter/600c8165c3245d7c59e6a59a](https://gtv.org/getter/600c8165c3245d7c59e6a59a) 
+**中英文对照全文**
 
-**作者：小雨Rain /喜马拉雅东京樱花团**
+Hello, dear honorable fellow fighters! Look at the car. What car is this, fellow fighters? This is the third one in the whole U.S. and the second in East New York. It is a specially customized Maybach SUV. I am going to attend a meeting and see some people. What do I do?
 
-**2020****年****1****月****22****日**
+尊敬的战友们好！看这啥车？战友们？看这啥车？这是整个美国第三部，整个纽约东部第二部，特别订制迈巴赫SUV，迈巴赫SUV。七哥要去开会去啊，见点人啊，咋弄啊？
 
-**加拿大金融邮报**
-![]()![](https://gnews.org/wp-content/uploads/2021/01/図1-38.png)
-**现任加拿大驻中国大使**
+Ah, it is so interesting … now, the CCP is going to attack Taiwan, whereas the whole world, even the Biden administration, is researching on the damage this deadly [CCP] virus will cause to the U.S. and the world, and to the economy next. So, you see, brothers and sisters, who can avoid talking about the virus and the virus’s threat to the U.S. economy, the safety of the U.S., and the safety of the world?
 
-**Dominic Barton**
+哎呀，真好玩，你说这现在共产党要打台湾，结果现在全世界在研究，就连拜登政府都在研究，下一步病毒，致命病毒对美国、对世界的危害，对经济的危害。所以说你看看，战友们，谁能回避到病毒？病毒对美国的经济和对美国人身的安全和世界的人身安全。
 
-**2020****年****5****月**
+Just now, two Americans told me, “Miles, we want to see you right away. We want to discuss about the profound impact of the [CCP] virus on the U.S. economy, U.S. technology, and national defense.” This is because many high-end talents and technical talents have insurance, which is very expensive. So, many insurance companies don’t want to sell high-level life insurance to these people. The more high-end you are, the more expensive the insurance will be. Hence, they don’t want to sell insurance to them because the risk is higher. After Larry King’s death, the insurance companies become more afraid. Wow, Larry king, how much money do I need to pay to you? Think about it. If it is the virus [causing the death], in particular to these scientists, all kinds of military scientists and important scientists, what would you do? Right?
 
-**访问深圳华大基因序列数据公司，**
+刚才两位美国人跟我说：Miles，我们要马上跟你见面，我们要讨论一下病毒对美国经济和美国技术领域、国防领域的深远影响。因为很多的高端人才和技术人才，很多都是买的保险的，这个保险的价值很贵呀，那么现在很多保险公司都不想给这些人卖这些高级的这种人身保险，越高端人才你越贵，他就不想卖给你，因为风险越大。这个 Larry King 死了以后，保险公司更害怕了，哇噻，你 Larry King 这钱，我得赔你多少钱？你想想如果是这病毒，特别这些科学家，各种军事，各种重要的科学家，你咋办呢？对不对？
 
-**其后收获中国华大基因**
+So, all governments must face the threats of the CCP virus to all mankind, its attack to the economy, and its strike to the entire social structure. Therefore, brothers and sisters, please remember my words: Early joy will lead to early decline, and early sadness will result in early grief.
 
-**对加拿大的慷慨捐赠。**
+所以说共产党的病毒对全人类的威胁和经济的打击，和对整个社会结构的打击，任何政府都不能不面对。所以兄弟姐妹们，牢记七哥说的话：早乐必早衰，早悲必早哀。
 
-**捐赠病毒自动核糖核酸提取和机器人样品及其他实验室设备。**
+Has everyone seen the opportunity? The CCP is now going to attack Taiwan. You [the CCP], try attacking Taiwan, try it. Yet, if it does not attack Taiwan until later, it will be attacked by its own insiders. The CCP hopes to live a few days longer by attacking Taiwan; otherwise, it will live a few days shorter. Anyhow, it will not stay alive for long.
 
-**北京****LiuHe****华大基因**
+大家看到了机会了吗？现在要打台湾。你打台湾试试，你打台湾试试。但是如果他晚一点不打台湾，他内部就把他给打了。打台湾他想多活几天，不打台湾少活几天，反正他是活不了了。
 
-**在蒙特利尔建设实验室**
+There is another thing that everyone needs to take a look at: the so-called “the CCP has won” these days. How about its economic status? Everyone, take a close look at its economy. Take a close look, brothers and sisters. This is something … nobody can change the fact that the CCP is going to perish or this great era. I won’t say anything more. I will broadcast again when I can find time. Haha! Thanks!
 
-**使用加拿大人的基因数据**
+还有一个，大家要看一看。这些天所谓共产党赢了，但是经济情况啥样？大家仔细看看这经济情况，仔细看一看。兄弟姐妹们，这就是一个无法，任何人都无法改变的共产党灭亡的事实，还有这个大时代。啥都不说了，抽时间再直播。哈哈哈，谢谢！谢谢！
 
-**使用他人基因数据**
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/799944/](https://gnews.org/zh-hans/799944/)
 
-**在加拿大**
+翻译：【Cyndi】校对：【Isaiah4031】字幕：【Pamila（文明）】视频解码：【恒久忍耐】编辑：【Isaiah4031】
 
-**是犯罪行为！**
+喜马拉雅玫瑰园小队出品
 
-**美国商务部**
+敬请关注:
 
-**2020****年****7****月**
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
 
-**制裁华大基因两个分支机构**
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
 
-**对维吾尔穆斯林少数族裔**
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-**进行基因分析和控制**
-
-**前任加拿大驻中国大使**
-
-**David Mulroney **
-
-**如果中国是一个威胁，**
-
-**那么加拿大实际上**
-
-**对中国就不存在外交政策。**
-
-**加拿大和其他国家**
-
-**已经和中国处在**
-
-**冷战的悬崖边缘！**
-
-**前任国家安全顾问**
-
-**Wesley Wark**
-
-**就像中国对南中国海的控制，**
-
-**中国在北冰洋也相应控制**
-
-**损害我们的利益**
-
-**北冰洋水已经可以航行，**
-
-**2009****年****100****次航海活动**
-
-**最近几年，**
-
-**达到****300****次航海活动，**
-
-**加拿大渔业和海洋部数据**
-
-**2009****年**
-
-**中国国有企业已经控制了**
-
-**北冰洋附近几个大湖区**
-
-**锌矿和铜矿的开发权**
-![A picture containing text, outdoor, shore
-Description automatically generated]()![A picture containing text, outdoor, shore
-Description automatically generated](https://gnews.org/wp-content/uploads/2021/01/図2.png)
-**联邦政府取消了**
-
-**中国国有企业**** ****山东金矿公司**
-
-**2.3****亿收购****Nunvaut****加拿大**
-
-**TMAC****能源公司**
-
-**加拿大軍事基地旁邊**
-
-**根据加拿大投资法**
-
-**2020****年****12****月**
-
-**安省人抗议写信给科技部长**
-
-**中国公司在安省建设**
-
-**玻璃工厂**
-
-**威胁加拿大国家安全**
-
-**孟晚舟引渡引发**
-
-**中国报复行动**
-
-**拘留和关押两位加拿大人**
-
-**多伦多贸易专业律师**
-
-**Cyndee Todgham Cherniak**
-
-**我过去去中国旅行**
-
-**我不会再去了，**
-
-**主要是个人安全问题，**
-
-**中国不是一个做生意的穩定地方。**
-
-**我不会再代理中国政府反倾销案件和其他中国制造商的法律业务。**
-
-**中国对澳大利亚**
-
-**粗暴停止**
-
-**铁矿石贸易业务，**
-
-**取而代之从加拿大温哥华**
-
-**进口铁矿石。**
-![Two men shaking hands
-Description automatically generated]()![Two men shaking hands
-Description automatically generated](https://gnews.org/wp-content/uploads/2021/01/図3.png)
-**中國和世界各國**
-
-**太多不讲诚信的**
-
-**不公平的**
-
-**不对称的贸易关系。**
-
-**中国反人类罪和种族灭絕罪，**
-
-**已经引起了，**
-
-**全世界各个国家的强烈谴责！**
-
-**机遇和威胁，加拿大当然**
-
-**放弃机遇，****抵制威胁！****原文链接https://financialpost.com/news/economy/opportunity-vs-threat-canadas-unpredictable-and-sometimes-irreconcilable-relationship-with-china**
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
 0

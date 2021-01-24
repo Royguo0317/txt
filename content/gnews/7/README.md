@@ -1,64 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧盟议会谴责中共国镇压香港民主人士，敦促对中港官员的制裁
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/803566/)
+## 美棒球传奇汉克-亚伦接种中共病毒疫苗18天后去世
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/804144/)
 
-*新闻来源：《法新社（AFP）》| 作者：法新社（AFP）| 发布时间：JANUARY , 22,2021 /2021年1月22日*
+*加拿大多伦多枫叶农场 ctt*
 
-*翻译/简评：Marialu | 校对：感恩 | 审核：万人往 | Page：Daoiii*
+*校对、发稿 文锦*
+![]()![](https://gnews.org/wp-content/uploads/2021/01/9905244_HankAaronAPimg-1.jpg)图片来源：6ABC
+据《生活现场新闻》（Life Site News）1月22日报道， 86岁的棒球传奇人物汉克-亚伦(Hank Aaron) 在1月5日接种莫德纳 （Moderna）中共病毒疫苗，试图激励其他美国黑人站出来接种疫苗, 结果不幸丧生。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/S3DKkmgXhImK0/images/63e47508-2c29-466a-a067-254cdb6f9326.jpg?asset_id=eeb06ac3-0d0a-4600-b1ec-5b3acd7b79b3&amp;img_etag=%22b3d09a6e44dd89db5d89eaa55dcec118%22&amp;size=1024)](https://spark.adobe.com/page/S3DKkmgXhImK0/images/63e47508-2c29-466a-a067-254cdb6f9326.jpg?asset_id=eeb06ac3-0d0a-4600-b1ec-5b3acd7b79b3&amp;img_etag=%22b3d09a6e44dd89db5d89eaa55dcec118%22&amp;size=1024)
+自私自利的制药公司研究人员、医生、养老院和卫生官员很少报告疫苗伤害事件。相反，他们将受伤和死亡视为与疫苗接种无关，美国卫生与公众服务部（HHS）的一项研究得出结论，只有不到1%的疫苗伤害事件被报告出来。然而，这些掩盖不了事实真相。
 
-***简评:***
+在接种疫苗时，汉克-亚伦告诉美联社，接种疫苗“让我感觉很美妙。我没有任何顾虑，为自己能做这样的事感到相当自豪……这只是一件小事，却可以帮助这个国家的几亿人。”
+![]()![](https://gnews.org/wp-content/uploads/2021/01/hank_aaron_shot_810_500_75_s_c1-1.jpg)图片来源：Life Site News
+当时与他一起接种的还有几位民权领袖和其配偶。汉克-亚伦在莫尔豪斯医学院一个全新的卫生诊所接受了注射，他承认许多非洲裔美国人对医学研究的不信任，这源于臭名昭著的塔斯基吉实验，在该实验中，美国卫生工作者未经黑人男子同意，不对他们进行梅毒治疗，使他们遭受不必要的痛苦。在去年12月，VOX曾报道了一项利用影响者和名人帮助克服 “疫苗犹豫症 “的全球运动的启动，并表示这 “将是前所未有的”，许多机构将发挥作用，包括政府和公共卫生当局。
 
-**欧洲议会周四通过了一项决议警告说，欧盟与中共国签订投资协议，从而使欧盟在人权方面做出的承诺失去可信度。欧洲议会议员在布鲁塞尔举行的视频会议以压倒性多数通过了这项决议，该决议谴责中共对香港民主活动人士的镇压。决议还呼吁对被追究警方行动负有责任的中共国和香港官员进行制裁。**
+在得知亚伦的死讯后，儿童健康保护组织主席兼首席法律顾问小罗伯特-肯尼迪说，亚伦的不幸死亡是老年人可疑死亡的一部分，需密切关注中共病毒疫苗的管理。
 
-**中欧投资协议经过多年谈判于上月原则上被同意，但是预计最早要到年底才投票，所以欧盟立法者的意见很重要。该决议称，议员们感到遗憾的是，中欧投资谈判没有被用来”作为维护香港高度自治以及其基本权利和自由的杠杆工具”。该决议表示：欧盟急于跟中共国签署协议，却不对正在中共国多地（如香港、新疆和西藏）发生的严重侵犯人权行为采取具体行动，这样有可能损害欧盟作为全球人权行动者的信誉。除了在香港镇压民主人士，中共国被指控严重侵犯新疆维吾尔族的人权。该决议称，议会将”仔细审查”这项协议，在对协议投票时，把中共国的人权状况纳入考量。**
+世界各地都有中共病毒疫苗不良事件的报告。德国和挪威报告称，接受辉瑞疫苗的老年人共死亡43人。《卫报》（The Defender）上周报道，在一连串的伤害报告发生后，加州被迫召回了一批33万支Moderna疫苗。《卫报》还报道了一名56岁的佛罗里达州医生在接种第一剂辉瑞疫苗后两周左右死亡的故事。他的死亡正在接受佛罗里达州卫生官员的调查。此外，多起严重的过敏反应都与辉瑞疫苗直接相关。
 
-**中共已被美国政府宣布犯下种族灭绝和反人类罪。如果欧盟仍然与中共这个集权统治政党谈协议、打交道，这不仅背叛了它的价值观，最终很可能一无所获。我们呼吁欧盟及早认清中共本质，远离中共。只有具有相同文明和价值观的国家，也只有建立在相互尊重和信任基础上的国家，彼此才能共同生存和发展。**
+**评：**
 
-***原文翻译：***
+自中共病毒大流行以来，很多国家都加入了疫苗研发生产竞赛，现今的中共病毒疫苗都创纪录地在不到一年的时间里生产出来。然而这些品质和质量得不到保证，以迅速占领市场、攫取财富为目的中共病毒疫苗给许多人带来了痛苦，甚至让他们付出了生命的代价。
 
-### 欧盟议会谴责中共国对香港的镇压，敦促进行制裁
+*[原文链接](https://www.lifesitenews.com/news/home-run-king-hank-aaron-dies-of-undisclosed-cause-18-days-after-receiving-moderna-vaccine)*
 
-决议还呼吁对警方行动负有责任的中共国和香港官员进行”定向制裁“。
-
-欧洲议会周四的一项决议警告说，欧盟与中共国签订投资协议，从而失去了在人权方面的信誉。
-
-欧洲议会议员在布鲁塞尔举行的视频会议以压倒性多数通过了这项决议，该决议广泛谴责中共国中央政府对香港活动人士的镇压。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/S3DKkmgXhImK0/images/6a7075b3-d4a4-4d52-85be-9d530db71bce.png?asset_id=fb7659d4-22e0-4ba4-8ce9-255b158efe1e&amp;img_etag=%22ba7724e4436ef27438ba1544e486db6b%22&amp;size=1024)](https://spark.adobe.com/page/S3DKkmgXhImK0/images/6a7075b3-d4a4-4d52-85be-9d530db71bce.png?asset_id=fb7659d4-22e0-4ba4-8ce9-255b158efe1e&amp;img_etag=%22ba7724e4436ef27438ba1544e486db6b%22&amp;size=1024)图片：Flickr提供的欧洲议会
-
-决议还呼吁对被追究警方行动责任的中共国和香港官员进行”定向制裁”。
-
-欧盟立法者的意见很重要，因为他们需要批准德国支持的投资协议，该协议在经过多年谈判后于上月原则上被同意。
-
-鉴于香港的镇压行动，对该协议的疑虑很快就出现了，尽管预计最早要到年底才能投票，但是欧洲议会议员的批准尚无定论。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/S3DKkmgXhImK0/images/6daa2a3c-3421-4425-8d84-8ff6bf138b6a.png?asset_id=54f589d7-3120-40a9-a444-e52f9e8829c4&amp;img_etag=%227d272524587a1edf3ee7ccecb9175c09%22&amp;size=1024)](https://spark.adobe.com/page/S3DKkmgXhImK0/images/6daa2a3c-3421-4425-8d84-8ff6bf138b6a.png?asset_id=54f589d7-3120-40a9-a444-e52f9e8829c4&amp;img_etag=%227d272524587a1edf3ee7ccecb9175c09%22&amp;size=1024)资料图片：香港政府
-
-该决议称，欧洲议会议员感到”遗憾”的是，中欧投资谈判没有被利用（抓住）”作为旨在维护香港高度自治以及其基本权利和自由的杠杆工具”。
-
-该决议表示：”欧盟急于跟中共国签署协议，却不对正在（例如在香港、新疆和西藏）发生的严重侵犯人权行为采取具体行动，这样有可能损害欧盟作为全球人权行动者的信誉。”
-
-中共国被指控严重侵犯新疆维吾尔族的人权。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/S3DKkmgXhImK0/images/fbbbf9c5-ebd8-455b-b7e3-b347aa4e0a7d.png?asset_id=0ef7118f-353a-480b-aafc-8352eaf9819e&amp;img_etag=%222829833a55fb8d7ef898644a39ff225e%22&amp;size=2560)](https://spark.adobe.com/page/S3DKkmgXhImK0/images/fbbbf9c5-ebd8-455b-b7e3-b347aa4e0a7d.png?asset_id=0ef7118f-353a-480b-aafc-8352eaf9819e&amp;img_etag=%222829833a55fb8d7ef898644a39ff225e%22&amp;size=1024)新疆司法行政管理局发布到其微信账号上的资料照片。资料图片：新疆司法行政管理局
-
-该决议称，议会将”仔细审查”这项协议，并将在就协议投票时，把中共国的人权状况纳入考量。
-
-于2014年开始就这项协议进行谈判的欧盟委员会（EU commission）表示，这有助于纠正布鲁塞尔和北京对待投资者的方式以及允许投资者进入的渠道方面长期存在的不平衡。
-
-它还表示，中共国同意通过该协议——即所谓的《全面投资协定》(CAI)——努力争取批准国际劳工组织（ILO）针对强迫劳动制定的公约。
-
-**🔗[原文链接](https://hongkongfp.com/2021/01/22/eu-parliament-condemns-china-deal-over-hong-kong-crackdown-urges-sanctions/)**
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-[!\[\]()!\[\](https://spark.adobe.com/page/S3DKkmgXhImK0/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/S3DKkmgXhImK0/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

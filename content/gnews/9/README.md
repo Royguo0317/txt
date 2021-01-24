@@ -1,51 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共要打台湾，而整个世界在计算中共病毒造成的损失
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/803755/)
+## 中共宣称【全民脱贫】是真的吗？前有吴花燕 后有墨茶Official 死于贫病交加
+` shang` [轉載自GNews](https://gnews.org/zh-hans/803820/)
 
-新闻简述：2021年1月23日郭文贵先生在去开会的途中发布Getter视频。他说将要和一些人士讨论中共病毒对美国和世界经济的危害，并指出中共对台湾的企图只能使它死的更快。
-视频来源：[https://gtv.org/getter/600c8165c3245d7c59e6a59a](https://gtv.org/getter/600c8165c3245d7c59e6a59a) 
-**中英文对照全文**
+作者：小妍说
 
-Hello, dear honorable fellow fighters! Look at the car. What car is this, fellow fighters? This is the third one in the whole U.S. and the second in East New York. It is a specially customized Maybach SUV. I am going to attend a meeting and see some people. What do I do?
+2021年1月21日晚间，一个“没人看的B站UP主”——“墨茶Official”去世的消息突然登上了中共国的各大热搜榜，他的人生经历也引起了许多中共国的网民关注。主角的名字叫做墨茶Official。98年的男孩子，是一个二次元相关的UP主，同时他也是一个热爱二次元的普通人。打开“墨茶Official”的空间动态，仿佛让人看见“松子”。没错，就是那个《被嫌弃的松子的一生》里面的松子。他来自大凉山，是个贫穷地区。原本家庭条件尚可，高中时学习成绩也不错，但为了医治生病的奶奶，墨茶家开始债台高筑，最终，奶奶离世，墨茶父母也因无力偿还欠债而选择离家躲债。为了生存，墨茶去成都当装卸工，每个月有八百块钱的工资，五百块钱用来支付房租，剩下的三百块钱是墨茶每个月的生活费，吃了上顿没下顿成了墨茶生活的常态。2018年四五月份，因雇主欠薪不发，墨茶前去讨薪，却被雇主踩断身份证，赶了出去。失去生活来源的墨茶此时又遭遇了诈骗，被陌生人用支付宝“花呗”五百元额度换取了两百元现金，那时，墨茶不知道“花呗”为何物。房租到期，身体又不支的墨茶最后只能选择回到老家，群友也曾建议墨茶去办理低保，但是他说自己年轻没有残疾，仅仅因为生病造成的贫困，是不能办理的，“还需要去户口所在地的村委和派出所开证明，也需要身份证。墨茶的身份证，被欠薪老板一脚踩断了。”
+![]()![](https://gnews.org/wp-content/uploads/2021/01/3772A1A3-9B19-4F2B-9919-16ABD309067F.png)
+后来，墨茶又有了新的希望，自己家就快拆迁了，只要能熬到房子拆迁，自己的人生就能“破局”。虽然饱受疾病折磨，但是墨茶还是决定做些事，挣点钱。在群友的建议下，墨茶开始做虚拟主播。群友有的把自己淘汰不用的电脑零件给他寄过去，有的给他设计了虚拟主播形象，有的给他做了模型，在大家的帮助下，墨茶出道了，成为一名游戏主播。虽然只有百十个粉丝，直播时也只有群友观看，但是墨茶依然在坚持着这份事业。后来因为房子的问题，墨茶被家中亲属殴打并赶出门，只能去县城租赁房屋，边打工边直播，以此度日。被父母抛弃，自己一个人在世界上艰难挣扎了六七年，而最后年纪轻轻就因为酮症酸中毒于今年一月去世。1月23日，哔哩哔哩弹幕网官方微博称，与当地政府取得了联系，核实“墨茶official”于1月10日在居所因病去世。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/BE043C8E-E4F8-4113-86CA-AC1CF95322BE.png)
+2021年一个原本可以活的很好的少年，却在贫穷与疾病折磨下，他无力反抗，死在了冬天寒冷的出租屋里。我真的不明白，中共一直宣称在决胜小康，在打脱贫攻坚战，可是为什么在中共国总能看到这样的新闻？之前的24岁的吴花燕因长期营养不良去世的消息还历历在目，现在又发生了这样的事情。中共宣称的全民医保和全民低保在哪里呢？回看墨茶的经历，为什么中共国的法律不能保护他呢？为什么雇主敢欠薪不发还对讨薪的墨茶出手？为什么墨茶没有医保？为什么在中共宣传的法治社会中，还有人以这样的方式死去？在2021年在中共宣称全民扶贫政策基本完成的当下，一个大凉山的孩子却因贫病交加去世了，医生说他死于糖尿病的并发症。但我觉得不是这样的。我看到过一张他去医院购买药物的缴费单，余额为负数，金额1.84元的救命药他是按片购买的。在中共治下的中国，我想只有穷病能把人逼成这样，它把人骨嚼碎，让人受尽苦楚连一声哀嚎都发不出。所以他是死于贫穷，死于不幸，死于中共治下的这个残酷世界。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/F6344F18-1A34-42B4-A12A-93DC4A941F10.png)
+而更让人气愤的是后续关于墨茶家境的采访，《探访墨茶 official 生前居住的家》一文，整篇文章通篇洗地，首先是为地方政府洗地，介绍家境不错，所以不符合扶贫标准；其次是为其父母洗地，介绍父母出过钱，打过电话，想让他自力更生。家庭好，独门独院，生活不错，但是他非要出去，最后死在寒冷的出租屋里。这文章真是魔幻，按照文章写的逻辑就是，墨茶不是死于贫穷，而是死于“不能自食其力”；是死于“家庭关系不好”。而且强调家里不是贫困户，对于墨茶来说连家都没有，讨论家境问题有意义吗？家庭环境不错，他就该死吗？一个没有违法乱纪没有做伤天害理之事的人就该孤独的一个人死在出租屋里吗？最有意思的是，这记者居然半句没提他的家人听闻他的死讯是个什么状态，墨茶的母亲反而告诉记者，她们家生活条件还不错。如果家里条件不错，他父母还明确知道他有很多病，还能放任他贫病交加地在出租屋死掉。这是一句他不努力他自暴自弃，就能够辩解的理由吗？一个22岁的活生生的人，居然因为一种早就能带病生存的疾病死去。一个22岁的活生生的人居然在这个时代贫病交加无人管。而且他既不是孤儿也不是乞丐。这是中共治下这个社会的悲剧，无论怎样，墨茶的死都是悲哀的。中共宣称2020全面小康，2021精准脱贫，事实却是98年的年轻人因为贫困，疾病，饥饿一个人在外孤独的死去，这是何其的悲哀！
 
-尊敬的战友们好！看这啥车？战友们？看这啥车？这是整个美国第三部，整个纽约东部第二部，特别订制迈巴赫SUV，迈巴赫SUV。七哥要去开会去啊，见点人啊，咋弄啊？
+(文章内容仅代表作者个人观点）
 
-Ah, it is so interesting … now, the CCP is going to attack Taiwan, whereas the whole world, even the Biden administration, is researching on the damage this deadly [CCP] virus will cause to the U.S. and the world, and to the economy next. So, you see, brothers and sisters, who can avoid talking about the virus and the virus’s threat to the U.S. economy, the safety of the U.S., and the safety of the world?
+GNEWS之前文章：
 
-哎呀，真好玩，你说这现在共产党要打台湾，结果现在全世界在研究，就连拜登政府都在研究，下一步病毒，致命病毒对美国、对世界的危害，对经济的危害。所以说你看看，战友们，谁能回避到病毒？病毒对美国的经济和对美国人身的安全和世界的人身安全。
+石家庄老人外出被绑树上 [https://gnews.org/zh-hans/792880/](https://gnews.org/zh-hans/792880/)
 
-Just now, two Americans told me, “Miles, we want to see you right away. We want to discuss about the profound impact of the [CCP] virus on the U.S. economy, U.S. technology, and national defense.” This is because many high-end talents and technical talents have insurance, which is very expensive. So, many insurance companies don’t want to sell high-level life insurance to these people. The more high-end you are, the more expensive the insurance will be. Hence, they don’t want to sell insurance to them because the risk is higher. After Larry King’s death, the insurance companies become more afraid. Wow, Larry king, how much money do I need to pay to you? Think about it. If it is the virus [causing the death], in particular to these scientists, all kinds of military scientists and important scientists, what would you do? Right?
+法学博士 遭遇中共暴力强拆 绝望跳楼 [https://gnews.org/zh-hans/777526/](https://gnews.org/zh-hans/777526/)
 
-刚才两位美国人跟我说：Miles，我们要马上跟你见面，我们要讨论一下病毒对美国经济和美国技术领域、国防领域的深远影响。因为很多的高端人才和技术人才，很多都是买的保险的，这个保险的价值很贵呀，那么现在很多保险公司都不想给这些人卖这些高级的这种人身保险，越高端人才你越贵，他就不想卖给你，因为风险越大。这个 Larry King 死了以后，保险公司更害怕了，哇噻，你 Larry King 这钱，我得赔你多少钱？你想想如果是这病毒，特别这些科学家，各种军事，各种重要的科学家，你咋办呢？对不对？
+广西女教师辞职遭暴打 [https://gnews.org/zh-hans/766360/](https://gnews.org/zh-hans/766360/)
 
-So, all governments must face the threats of the CCP virus to all mankind, its attack to the economy, and its strike to the entire social structure. Therefore, brothers and sisters, please remember my words: Early joy will lead to early decline, and early sadness will result in early grief.
-
-所以说共产党的病毒对全人类的威胁和经济的打击，和对整个社会结构的打击，任何政府都不能不面对。所以兄弟姐妹们，牢记七哥说的话：早乐必早衰，早悲必早哀。
-
-Has everyone seen the opportunity? The CCP is now going to attack Taiwan. You [the CCP], try attacking Taiwan, try it. Yet, if it does not attack Taiwan until later, it will be attacked by its own insiders. The CCP hopes to live a few days longer by attacking Taiwan; otherwise, it will live a few days shorter. Anyhow, it will not stay alive for long.
-
-大家看到了机会了吗？现在要打台湾。你打台湾试试，你打台湾试试。但是如果他晚一点不打台湾，他内部就把他给打了。打台湾他想多活几天，不打台湾少活几天，反正他是活不了了。
-
-There is another thing that everyone needs to take a look at: the so-called “the CCP has won” these days. How about its economic status? Everyone, take a close look at its economy. Take a close look, brothers and sisters. This is something … nobody can change the fact that the CCP is going to perish or this great era. I won’t say anything more. I will broadcast again when I can find time. Haha! Thanks!
-
-还有一个，大家要看一看。这些天所谓共产党赢了，但是经济情况啥样？大家仔细看看这经济情况，仔细看一看。兄弟姐妹们，这就是一个无法，任何人都无法改变的共产党灭亡的事实，还有这个大时代。啥都不说了，抽时间再直播。哈哈哈，谢谢！谢谢！
-
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/799944/](https://gnews.org/zh-hans/799944/)
-
-翻译：【Cyndi】校对：【Isaiah4031】字幕：【Pamila（文明）】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-
-喜马拉雅玫瑰园小队出品
-
-敬请关注:
-
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+新闻链接：[https://m.thepaper.cn/newsDetail\_forward\_10911197](https://m.thepaper.cn/newsDetail_forward_10911197)
 
 0
