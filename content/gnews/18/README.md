@@ -1,137 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫报告：川普政府的政绩——截至2021年1月（十三）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/802335/)
+## 变种病毒传染性增强，酒店空调无法过滤
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/802508/)
 
-五月花写作组 ｜ 翻译：风云九霄（文萧） ｜ 校对：伞兵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告13.jpg)
-## **Part 13 – Making Communities Safer**
+编译：Sherryok 水云间
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Capture-16.png)
+新西兰stuff网站1月24日报导，一名从西班牙返回新西兰的56岁女子，在13/1/2021结束隔离回家后第10天（23/1/2021），新冠病毒检测呈阳性，据报导该女子酒店隔离期间，两次检测（2日与10日）都呈阴性，且情况良好，无不良反应。因此有分析认为，她有可能是在隔离酒店感染上病毒。卫生部门已经假设该女子携带高传染性变异毒株。
 
-## **第十三部分：使社区更安全**
+据报导，这名女子在奥克兰的普尔曼（PULLMAN）隔离期间，酒店同时有14人检测出病毒阳性，其中大比例为英国和南非的高传染性变异病毒。新西兰卫生总干事布隆菲尔德说目前还不会升级新冠病毒警报（目前奥克兰是一级）。在确认该女子病毒毒株的相关联系后再做决定。毒株的基因序列报告预计需要48小时。
 
-* * *
+昨日的发布会公布了该女子病毒追踪二维码的记录，共有30个地点，集中在旺格雷和海蓝斯维尔两地。据报导患者16/1/2021曾向隔离随访人员表示症状加重，但是在检测结果出来前的一周内，她并未呆在家中，而是出外游玩，购物及就餐。虽然来自这些地点的风险通常非常低，但在相关时间范围内到过这些地点的人被要求留在家中，进行测试并等到负面结果为止。
 
-### **Signed into law landmark criminal justice reform.**
-
-### 签署成为法律里程碑的刑事司法改革。
-
-- Signed the bipartisan First Step Act into law, the first landmark criminal justice reform legislation ever passed to reduce recidivism and help former inmates successfully rejoin society.
-- 将两党支持的《第一步法案》签署为法律，这是有史以来第一项具有里程碑意义的刑事司法改革立法，旨在减少惯犯并帮助已经释放的囚犯成功重返社会。
-- Promoted second chance hiring to give former inmates the opportunity to live crime-free lives and find meaningful employment.
-- 促进第二次雇用机会，使前囚犯有机会过上无犯罪的生活，并找到有意义的工作。
-- Launched a new “Ready to Work” initiative to help connect employers directly with former prisoners.
-- 发起了一项新的“Ready to Work”倡议，以帮助雇主与以前的囚犯直接联系。
-- Awarded $2.2 million to states to expand the use of fidelity bonds, which underwrite companies that hire former prisoners.
-- 授予各州220万美元以扩大诚实保证保险的使用范围，为雇用前囚犯的公司提供担保。
-- Reversed decades-old ban on Second Chance Pell programs to provide postsecondary education to individuals who are incarcerated expand their skills and better succeed in the workforce upon re-entry.
-- 废除了数十年的Second Chance Pell计划禁令，为被监禁的个人提供高等教育，扩大他们的技能，使其在重返工作岗位时更能获得成功。
-- Awarded over $333 million in Department of Labor grants to nonprofits and local and state governments for reentry projects focused on career development services for justice-involved youth and adults who were formerly incarcerated.
-- 向劳工部提供超过3.33亿美元的拨款，用于非营利组织，地方政府和州政府的再入学项目，这些项目的重点是为以前受监禁的司法介入青年和成年人提供职业发展服务。
+新西兰总理杰辛达昨日在脸书直播中说，政府会加强酒店空调过滤措施，如有必要会改变现有的隔离方式。
 
 
-### **Unprecedented support for law-enforcement.**
-
-### 前所未有的支持执法。
-
-- In 2019, violent crime fell for the third consecutive year.
-- 2019年，暴力犯罪连续第三年下降。
-- Since 2016, the violent crime rate has declined over 5 percent and the murder rate has decreased by over 7 percent.
-- 自2016年以来，暴力犯罪率下降了5％以上，谋杀率下降超7％。
-- Launched Operation Legend to combat a surge of violent crime in cities, resulting in more than 5,500 arrests.
-- 发起了“Operation Legend”，以打击城市中激增的暴力犯罪，超过5,500人被捕。
-- Deployed the National Guard and Federal law enforcement to Kenosha to stop violence and restore public safety.
-- 将国民警卫队和联邦执法部门部署到Kenosha，制止暴力并恢复公共安全。
-- Provided $1 million to Kenosha law enforcement, nearly $4 million to support small businesses in Kenosha, and provided over $41 million to support law enforcement to the state of Wisconsin.
-- 向Kenosha执法部门提供了100万美元，向Kenosha的小型企业提供了近400万美元，并为威斯康星州的执法提供了超过4,100万美元。
-- Deployed Federal agents to save the courthouse in Portland from rioters.
-- 部署了联邦特工，波特兰法院在暴徒骚乱中得以幸免。
-- Signed an executive order outlining ten-year prison sentences for destroying Federal property and monuments.
-- 签署了一项行政命令，销毁联邦财产和古迹处于十年徒刑。
-- Directed the Department of Justice (DOJ) to investigate and prosecute Federal offenses related to ongoing violence.
-- 指示司法部（DOJ）调查和起诉与长期暴力相关的联邦罪行。
-- DOJ provided nearly $400 million for new law enforcement hiring.
-- 司法部为新的执法人员招聘提供了近4亿美元。
-- Endorsed by the 355,000 members of the Fraternal Order of Police.
-- 得到了355,000名警察兄弟会的认可。
-- Revitalized Project Safe Neighborhoods, which brings together Federal, state, local, and tribal law enforcement officials to develop solutions to violent crime.
-- 振兴安全社区项目，将联邦，州，地方和部落的执法人员召集在一起，以制定暴力犯罪的解决方案。
-- Improved first-responder communications by deploying the FirstNet National Public Safety Broadband Network, which serves more than 12,000 public safety agencies across the Nation.
-- 通过部署国家公共安全宽带网络FirstNet，改善了急救人员的通信，该网络为全国12,000多个公共安全机构提供服务。
-- Established a new commission to evaluate best practices for recruiting, training, and supporting law enforcement officers.
-- 建立了一个新的委员会，以评估招募，培训和支持执法人员的最佳实践。
-- Signed the Safe Policing for Safe Communities executive order to incentive local police department reforms in line with law and order.
-- 签署了《安全警务保证安全社区》的行政命令，以鼓励当地警察部门根据法律和秩序进行改革。
-- Made hundreds of millions of dollars’ worth of surplus military equipment available to local law enforcement.
-- 向当地执法部门提供了价值数亿美元的剩余军事装备。
-- Signed an executive order to help prevent violence against law enforcement officers.
-- 签署了一项行政命令，以防止对执法人员的暴力行为。
-- Secured permanent funding for the 9/11 Victim Compensation Fund for first responders.
-- 为 “ 9/11受害者补偿基金”筹得永久资金，给予第一响应者（现场应急人员）。
+```
+就在上周，位于澳大利亚布里斯班的隔离和检疫（MIQ）酒店大臣酒店被撤离并关闭，因为在其七楼出现了一个英国变种病毒的爆发点，包括旅馆清洁工在内的六个病例都相互关联，卫生当局怀疑病毒通过酒店通风系统传播。因此超过120人被转移到一个未公开的设施，并被要求延长的14天的隔离时间。
+```
 
 
-### **Implemented strong measures to stem hate crimes, gun violence, and human trafficking.**
 
-### 采取了强有力的措施来制止仇恨犯罪，枪支暴力和人口贩运。
-
-- Signed an executive order making clear that Title VI of the Civil Rights Act of 1964 applies to discrimination rooted in anti-Semitism.
-- 签署了一项行政命令，明确表明1964年《民权法》第六章适用于植根于反犹太主义的歧视。
-- Launched a centralized website to educate the public about hate crimes and encourage reporting.
-- 建立了一个集中式网站，以教育公众关于仇恨犯罪的行为并鼓励举报。
-- Signed the Fix NICS Act to keep guns out of the hands of dangerous criminals.
-- 签署了《Fix NICS Act》，避免枪支落入危险罪犯的手中。
-- Signed the STOP School Violence Act and created a Commission on School Safety to examine ways to make our schools safer.
-- 签署了《 停止学校暴力法》，并成立了学校安全委员会，研究使学校更安全的方法。
-- Launched the Foster Youth to Independence initiative to prevent and end homelessness among young adults under the age of 25 who are in, or have recently left, the foster care system.
-- 发起了“培养独立青年”倡议，预防和消除在寄养系统中或最近离开寄养系统的25岁以下年轻人的无家可归现象。
-- Signed the Trafficking Victims Protection Reauthorization Act, which tightened criteria for whether countries are meeting standards for eliminating trafficking.
-- 签署了《贩运受害者保护重新授权法》，严格各国是否符合消除人口贩运的标准。
-- Established a task force to help combat the tragedy of missing or murdered Native American women and girls.
-- 建立了一个工作组，以帮助打击美国原住妇女和女童失踪或被谋杀的悲剧。
-- Prioritized fighting for the voiceless and ending the scourge of human trafficking across the Nation, through a whole of government back by legislation, executive action, and engagement with key industries.
-- 通过政府的立法，行政措施以及与关键行业的合作，优先为无法发声者斗争，结束全国人口贩运的危害。
-- Created the first-ever White House position focused solely on combating human trafficking.
-- 创建了有史以来第一个专门针对打击人口贩运的白宫职位。
+```
+上周五，基督城两名医务人员感染Covid-19，也被认为主要的原因是，隔离检疫设施的走廊通风不佳和患病的水手同在酒店内。
+```
 
 
-* * *
 
-原文来源：
+```
+越来越多的证据使专家们发出了呼吁，政府应使用专门建造的检疫设施，流行病学家贝克教授（Michael Baker）和威尔逊副教授（Nick Wilson）长期以来一直在建议将隔离和检疫从酒店转移出去，他们说，由于共享空间和通风问题，这些酒店并非为感染控制而设计。替代方案包括建立检疫设施，将MIQ移出奥克兰，以及在Ōhakea等军事基地进行人员检疫。
+```
 
-[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
 
-往期链接：
 
-[白宫报告：川普政府的政绩——截至2021年1月（一）](https://gnews.org/zh-hans/761018/)
+```
+据介绍，建立专门的检疫措施困难在人员配备后勤问题。政府认为，这将需要数百甚至数千名工人，包括护士，医疗助理，清洁工，航空安全人员，酒店人员，以及其他不得不迁往新地点工作的人员。同时，这些场所必须具有适当的安全性和出入口，单位套房或内部进入的房间（带有私人空间和浴室设施），向房间提供的充足食物和饮料，卫生专业人员的访问权限以及场所的适当安全性。可想而知是一个极大耗费人力物力资源的工程。
+```
 
-[白宫报告：川普政府的政绩——截至2021年1月（二）](https://gnews.org/zh-hans/761213/)
 
-[白宫报告：川普政府的政绩——截至2021年1月（三）](https://gnews.org/zh-hans/766962/)
 
-[白宫报告：川普政府的政绩——截至2021年1月（四）](https://gnews.org/zh-hans/767022/)
+```
+新西兰出现的疑似新冠变异毒株小区传播案例，给人们再次敲响了警钟，连续数月小区零感染的大好形势就这样被变异毒株打破了，随之而来是隔离的难度和标准又上新台阶，要抵御这一变种不知还要砸进多少财政税收，新西兰人民憧憬的4月份最低工资涨到$20,以及工党承诺的多项福利措施不知会否因此搁置。中共以病毒作为生物武器拖垮全世界经济的目标，毫无疑问是超标完成了。接下来各种各样的升级版变异还会逐一释放，直到全世界都趴在中共脚下。病毒一日不除，地球就一日逃不出中共的魔掌，要摆脱目前的被动局面，挽救当前捉襟见肘的经济困境，各国政府应该联合起来，向中共追责，公布病毒真相，闫丽梦博士2019年揭发中共病毒真相伊始，就发出警告“留给人类的时间不多了”，言犹在耳，全世界还要再死多少亿才能醒过来啊！
+```
 
-[白宫报告：川普政府的政绩——截至2021年1月（五）](https://gnews.org/zh-hans/771076/)
 
-[白宫报告：川普政府的政绩——截至2021年1月（六）](https://gnews.org/zh-hans/771727/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（七-1）](https://gnews.org/zh-hans/779811/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（七-2）](https://gnews.org/zh-hans/780079/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（八）](https://gnews.org/zh-hans/788066/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十一）](https://gnews.org/zh-hans/802251/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十二）](https://gnews.org/zh-hans/802307/)
-
-* * *
-
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
-
-更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)！
-
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)！
-
-0
++1

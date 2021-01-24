@@ -1,77 +1,147 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年1月21日郭先生直播内容总结（附完整听写）
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/802088/)
+## 白宫报告：川普政府的政绩——截至2021年1月（十一）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/802251/)
 
-七哥回顾从建设盘古到离开中国，期间的一个个事件。
+五月花写作组 ｜ 翻译：伞兵 ｜ 校对：Tom Cat ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告11-1.jpg)
+## **Part – 11 Colossal Rebuilding of the Military**
 
-把清风看守所的思考，人生战略和人生的战术，是用行动办法变为物理化的结果。从盘古被刘志华抢走，到又追回。等于是第一个把共产党生出来的孩子又给送回了，肚子里边又重新生了一次，就是盘古。能把摩根拿回来，**盘古在一年内**又建起来，奥运会又到来。很多高官、有钱人排着队要约见。
+## 第十一部分：**军队大重建**
 
-从2003到2006与共产党最高层的政治较量周旋之间，最后享受常委待遇。不到几百天，人生之起伏。
+* * *
 
-二十几年的布局，瞬间被令计划儿子的法拉利车祸给搞掉。当时所面临的处境真是冰冻的感觉。十八大已确定了习王上台，这两个文化大革命的产物出来，中国完蛋了。中国的和平演变，通过内部演变的可能是没有了。当时很多人认为郭先生完了，还有人叫郭先生离开中国。但是他们全错了，习王上来，它最大的一个敌人，他要清理自己存在着各种威胁，可随时被做掉的这种可能。之后拿下令计划、李源潮，才轮到郭先生。
+### **Rebuilt the military and created the Sixth Branch, the United States Space Force. **
 
-习王上台以后，2012-2014年，一直在中国，在北京没走。那可能每秒钟都是天翻地覆的生死存亡。开始并购方正集团、海通证券。为家族和基金融资达六百亿，所涉及的金融证券的并购达三千亿。非常清楚必须跟外国合作，必须团结国际力量，必须有巨大的财富，才能逐渐实现我的目标，还能接近目标。现在做到了。
+### **重建军队，并成立第六部门，美国太空部队。**
 
-从2014到2016年，下面的交易、利益、诱惑太多了。之后，动用了全部的潜伏、沉默的力量。暗杀威胁、抗议。2017年，没申请政庇前，中共几乎全部买通川普总统周围的所有大佬要遣返。
+• Completely rebuilt the United States military with over $2.2 trillion in defense spending, including $738 billion for 2020.
 
-3年多，我们做到了，把共产党和中国人民分开。让共产党从买世界，控制世界为全世界过街老鼠。共产党是中国的非法组织，不代表中国。
+– 彻底重建美国军队，国防开支超过2.2万亿美元，包括2020年的7380亿美元。
 
-因为路德先生搞天线宝宝惩罚郭先生, 大连专案组开始河南裕达国贸被挂到京东拍卖十二亿人民币，比当年建设时间的价格还打了折。
+• Secured three pay raises for our service members and their families, including the largest raise in a decade.
 
-**120是爆料革命的一个重大挫折，对灭共事业，将有了不可确定的因素和巨大的挑战。**
+– 为我们的军人及其家属争取到三次加薪，包括十年来最大的一次加薪。
 
-**120绝对是上天给我们爆料革命带来最大的机会，让我们更多的、真正的战友连接在一起。**
+• Established the Space Force, the first new branch of the United States Armed Forces since 1947.
 
-**自省的错误：**
+– 成立太空部队，这是美国武装部队自1947年以来的第一个新部门。
 
-1、过去半年，有些事情是犯了极端的错误。拜登硬盘事件，走得有点远，有点急。对GTV、G-NEWS商业上是成功的，在政治上是错的。
+• Modernized and recapitalized our nuclear forces and missile defenses to ensure they continue to serve as a strong deterrent.
 
-2、近两个月，对共产党提高了灭爆小组的素质和手段，潜伏进来的特务没有及时制止。最后很多战友被这虚假信息所迷惑。
+– 对我们的核力量和导弹防御系统进行现代化和资本重组，以确保它们继续发挥强大的威慑作用。
 
-3、为了让自己变得更牛，证明自己更正确，走了一个弯路。爆料革命，没有给你承诺任何时间、任何承诺，不存在兑不兑现。
+• Upgraded our cyber defenses by elevating the Cyber Command into a major warfighting command and by reducing burdensome procedural restrictions on cyber operations.
 
-4、过去三年最大的失误，对战友之间感性化太多，理性化太少。在社交媒体，金融板块的力量没起来。
+– 通过将网络司令部升格为主要作战司令部，并减少对网络行动的繁琐程序限制，提升了我们的网络防御能力。
 
-**新计划：**
+• Vetoed the FY21 National Defense Authorization Act, which failed to protect our national security, disrespected the history of our veterans and military, and contradicted our efforts to put America first.
 
-1、2021年要低调，必须面对现实，发展G系列，把各农场强大的联系在一起。
+– 否决了21财年国防授权法案，该法案未能保护我们的国家安全，不尊重我们的退伍军人和军队的历史，并违背了我们把美国放在第一位的宗旨。
 
-2、把G系列盖特、GTV、GNEWS做大，以最快的速度，在全世界拥有我们的社交媒体话语权，强化我们的社交媒体平台，并追求计划的目标，把我们的新中国联邦的国防力量打造起来。
+### **Defeated terrorists, held leaders accountable for malign actions, and bolstered peace around the world. **
 
-3、把十几亿美元花到GTV、G-coin、G-dollar、G-news、G-fashion、G-club、G-盖特上去甚至另外的几十亿美元并购，G系列最快速度达到万亿级估值的企业。
+### **击败恐怖分子，追究领导人的恶性行为责任，并支持世界各地的和平。**
 
-4、将让战友全面的参与，共同的打造G系列，全面的分享利益。也让战友们都能赚很多钱，让所有的战友们都收益。让更多战友以最快的时间能贴现钱，能有现钱，能有兑换的钱，这是目前当务之急。
+• Defeated 100 percent of ISIS’ territorial caliphate in Iraq and Syria.
 
-5、强化爆料革命和西方的团结力量。
+– 打败了100%ISIS在伊拉克和叙利亚的领土哈里发。
 
-6、重视灭爆小组的手段和心理战，要把他们打得满地找牙。
+• Freed nearly 8 million civilians from ISIS’ bloodthirsty control, and liberated Mosul, Raqqa, and the final ISIS foothold of Baghuz.
 
-最后七哥失去的和危险跟谁比，七哥是大赢家，情况都是最好的。很多战友跟国内战友用生命、家人，自由、安全相比：没有资格牢骚，没有资格失望、犹豫。
+– 将近800万平民从ISIS的嗜血控制下解放出来，解放了摩苏尔、拉卡和ISIS最后的立足点巴古兹。
 
-**金句：**
+• Killed the leader of ISIS, Abu Bakr al-Baghdadi, and eliminated the world’s top terrorist, Qasem Soleimani.
 
-世界上只有吓死的懦夫，我从来没有听说吓出来的英雄。
+– 击毙了ISIS的头目阿布-贝克尔-巴格达迪，消灭了世界头号恐怖分子卡西姆-苏莱曼尼。
 
-解决恐惧最好的办法，就只让你有实力，你的实力要大过你的敌人。
+• Created the Terrorist Financing Targeting Center (TFTC) in partnership between the United States and its Gulf partners to combat extremist ideology and threats, and target terrorist financial networks, including over 60 terrorist individuals and entities spanning the globe.
 
-我们是要灭共的，早就把脑袋别在裤腰带上了。
+– 美国与其海湾伙伴合作创建了恐怖主义融资目标中心（TFTC），以打击极端主义意识形态和威胁，并瞄准恐怖主义金融网络，包括遍布全球的60多个恐怖分子个人和实体。
 
-一个没有过牺牲和巨大付出的人，你没有资格评价爆料革命和新中国联邦。
+• Twice took decisive military action against the Assad regime in Syria for the barbaric use of chemical weapons against innocent civilians, including a successful 59 Tomahawk cruise missiles strike.
 
-麻雀永远不懂苍鹰之志，不知道老鹰在天空中的飞翔的感觉。
+– 两次对叙利亚阿萨德政权对无辜平民野蛮使用化学武器采取果断的军事行动，包括59枚战斧巡航导弹的成功打击。
 
-总结 :战友们一定记住，这次120的挫败，只能会让我们越挫越强，越加完整。重塑新中国联邦的方向和力量。爆料革命永远不能有预测，今年不能老搞重磅中的重磅。再一次呼吁,对现在的美国合法的、法律上承认的拜登总统、哈里斯副总统和这届政府,绝对不能再有个人攻击。我们判断标准非常简单，谁跟共产党勾兑，都是我们敌人。谁跟我们一起灭共，都是我们朋友。
+• Authorized sanctions against bad actors tied to Syria’s chemical weapons program.
 
-新中国联邦如何和世界的政府和世界的力量打交道？如何和沼泽地的力量做到平衡？如何能做到让世界的力量都倾斜于新中国联邦？如何让世界的各种力量一起和我们灭共？考验我们的智慧，考验我们的勇气，更考验我们每个战友的心智
+– 授权对与叙利亚化学武器计划有关的图谋不轨人士进行制裁
 
-七哥已经开始了全面的战斗计划，现在不多说。今年要保持要更多的神秘，做完再说。
+• Negotiated an extended ceasefire with Turkey in northeast Syria.
 
-120之后新中国联邦所有的脚步会更稳定、更坚实。
+– 在叙利亚东北部与土耳其谈判延长停火。
 
-总结：pride文豪
+### **Addressed gaps in American’s defense-industrial base, providing much-needed updates to improve the safety of our country. **
 
-[2021年1月21日直播听写](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/01/24034045/2021%E5%B9%B41%E6%9C%8821%E6%97%A5%E7%9B%B4%E6%92%AD%E5%90%AC%E5%86%99-1.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/01/24034045/2021%E5%B9%B41%E6%9C%8821%E6%97%A5%E7%9B%B4%E6%92%AD%E5%90%AC%E5%86%99-1.pdf)
+### **弥补了美国国防工业基础的不足，提供了急需的更新，以改善美国国家安全。**
 
-0
+• Protected America’s defense-industrial base, directing the first whole-of-government assessment of our manufacturing and defense supply chains since the 1950s.
+
+– 保护美国的国防工业基础，指导自20世纪50年代以来首次对我们的制造业和国防供应链进行全政府评估。
+
+• Took decisive steps to secure our information and communications technology and services supply chain, including unsafe mobile applications.
+
+– 采取果断措施，确保我们的信息和通信技术及服务供应链的安全，包括不安全的移动应用。
+
+• Completed several multi-year nuclear material removal campaigns, securing over 1,000 kilograms of highly enriched uranium and significantly reducing global nuclear threats.
+
+– 完成了数次多年的核材料清除活动，确保了1 000多公斤高浓缩铀的安全，大大降低了全球核威胁。
+
+• Signed an executive order directing Federal agencies to work together to diminish the capability of foreign adversaries to target our critical electric infrastructure.
+
+– 签署了一项行政命令，指示联邦机构共同努力，削弱外国对手针对我们关键电力基础设施的能力。
+
+• Established a whole-of-government strategy addressing the threat posed by China’s malign efforts targeting the United States taxpayer-funded research and development ecosystem.
+
+– 制定了一项全政府战略，应对中国针对美国纳税人资助的研发生态系统的恶意出口所带来的威胁。
+
+• Advanced missile defense capabilities and regional alliances.
+
+– 先进的导弹防御能力和区域联盟。
+
+• Bolstered the ability of our allies and partners to defend themselves through the sale of aid and military equipment.
+
+– 通过出售援助和军事装备，加强了我们的盟友和伙伴的自卫能力。
+
+• Signed the largest arms deal ever, worth nearly $110 billion, with Saudi Arabia.
+
+– 与沙特阿拉伯签署了价值近1100亿美元的最大军火交易。
+
+* * *
+
+原文来源：[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
+
+往期链接：
+
+[白宫报告：川普政府的政绩——截至2021年1月（一）](https://gnews.org/zh-hans/761018/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（二）](https://gnews.org/zh-hans/761213/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（三）](https://gnews.org/zh-hans/766962/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（四）](https://gnews.org/zh-hans/767022/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（五）](https://gnews.org/zh-hans/771076/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（六）](https://gnews.org/zh-hans/771727/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（七-1）](https://gnews.org/zh-hans/779811/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（七-2）](https://gnews.org/zh-hans/780079/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（八）](https://gnews.org/zh-hans/788066/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十）](https://gnews.org/zh-hans/802218/)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)！
+
++1

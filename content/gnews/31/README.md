@@ -1,95 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/01/24 美国政要每日推特重要信息汇总
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/801933/)
+## 美国之殇与东方曙光
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/801967/)
 
-编辑：Cathy
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/twitter_in_the_usa-1.jpg)
-**经授权转载自：**
+在美国历史上，从未有过一次总统选举与一个东方古国有着如此息息相关的联系，更没有过一个国家领导人的产生会牵动全世界的神经。 川普与拜登，他们之间竞争的意义早已超出了对总统之位的争夺，实际上，他们之间的战争是人类文明史上，又一次正义与邪恶，文明与野蛮的较量，而他们个人也成为这场较量中的两个符号。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-103.png)
+骄傲的美国人从未意识到，世界第一强国已经在不知不觉中被中共侵蚀，这其中最严重的是对其思想和价值观的侵蚀。 人类文明从来不是线性前进的，在欧洲，古希腊灿烂的文明之后，有蒙昧千年的中世纪，而古老的东方古国也没有继承先秦光芒万丈的思想家园，而是进入了两千年的王朝更替。 人类津津乐道，并为之骄傲的“思想”，其实是如此脆弱。人类用了几千年的时间忙于权谋，厮杀和党争，至今未休。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/2-39.png)
+川普总统此次的落选，其意义已经远远超过他个人的得失，这是美国民意的巨大伤痛，也是人类价值观严重分裂的标志，也是中共黑暗势力笼罩全球的开始，这是否意味着人类的又一个至暗时刻已经来临？是否意味着人类久违的战争正在酝酿中？
 
-- 川普等政要…直译推twitter：[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
-- 川普等政要…直译推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
-- 川普等政要…直译推GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
+这场大选背后的较量可谓惊心动魄，我们仿佛置身于一场波澜壮阔的历史剧中，不过这一次，这部历史剧中的主角是郭文贵先生引领的爆料革命。 这是一束来自东方的曙光，中国人民的觉醒与反抗会不会成为人类唯一的希望呢？
+![]()![](https://gnews.org/wp-content/uploads/2021/01/2a8a7566-370f-438e-ad96-250a85627cbe.jpg)
+回想四年前，川普总统当选美国总统，使很多人大感意外，也使那些传统政客颜面扫地。其实，那是积蓄已久的民意做出的选择。四年来，川普总统饱受攻击，身边危机四伏，一路跌跌撞撞，然而他以对美国的忠诚和对老百姓的热爱，以无比坚强的意志和勇气走到今天。失败是残酷的，自古英雄多落寞。人们看到了川普先生落选背后所有的明枪暗箭，那些道貌岸然的政客，那些义正词严的公知，那些饱读诗书的学者，那些贪赃枉法的执法者，还有中共那些鬼魅魍魉的表演，都在这场选举中赤膊上阵，你们以为自己真的赢了吗？你们以为拜登胜利了吗？你们是否知道，觉醒的美国人民绝不会坐以待毙，他们的反抗才刚刚开始；还有，你们是否知道，中共是如何对待他们用过的棋子吗？拜登当选之日，就是你们，包括拜登本人，噩梦的开始。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/e934151e-7afb-455b-a6f3-d4cdd688ad4f.jpg)
+在这场世纪大选中，郭文贵先生引领的爆料革命犹如一把利剑，一路斩妖除魔，揭露真相，唤醒民众。另一方面，中共则极尽其流氓手段，收买，造假，威胁，利诱，无所不用其极。 中华民族自古不乏直面惨烈世界的英雄，与魔鬼中共的较量已经进入生死阶段，是跪下偷生，还是站起反抗，我们的人生必须立刻做出选择。
 
+四年弹指一挥间，现在，美国政坛的黑幕已掀开一角，中共也不再掩饰狰狞的面目，川普总统今天的落选可以说一切只是刚刚开始，中共不除，世界永无宁日。
 
-## 简评：
+在古老东方地平线上升起的曙光中，是昂首挺胸的新中国联邦的公民。中国人民的觉醒能否引领世界走出黑暗？我们已经站在了人类的十字路口上，我们的思想是否将再一次被关进千年的牢笼，人类将走进又一蒙昧世纪，还是冲破黑暗迎来新生。
 
-1月24日，现在参众议员们开始针对拜登的政策和美国现实存在的问题发表看法。人们都处在回看和观望的状态。
+新中国联邦的公民百炼成钢，我们已收拾好行囊，我们已踏上征途，我们将义无反顾为自由，为正义而战。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/bec6b8e2-5ff1-4f6b-ab82-32096baff301.jpg)
+作者：匿名
 
-## 参议员玛莎·布莱克本：
+【文章仅代表作者个人观点】
 
-旅游生子业以帮助外国人违法获得美国国籍赚了数以千万元。 《禁止旅游生子法》将堵住外国人利用其穿越美国边界的漏洞。
-
-
-
-> The birth tourism industry makes millions helping foreigners break the law to gain American citizenship. The Ban Birth Tourism Act will eliminate loopholes that foreign nationals are exploiting to cross U.S. borders. [pic.twitter.com/MFbMCTyFL2](https://t.co/MFbMCTyFL2)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [January 23, 2021](https://twitter.com/MarshaBlackburn/status/1352825922425131009?ref_src=twsrc%5Etfw)
-
-
-
-## 众议员马特·盖兹：
-
-1．高科技寡头可以噤声美利坚合众国的总统。
-
-想象下他们可以对您干什么。
-
-【[附众议员马特·盖兹和吉姆·乔丹在福克斯新闻台与Hannitty的谈话节目内容](https://hannity.com/media-room/watch-gop-lawmakers-speak-out-against-big-tech-targeting-conservative-voices/)】
-
-
-
-> Big Tech silenced the President of the United States.
-> 
-> Just imagine what they could do to you.[https://t.co/wOaQvfHzJz](https://t.co/wOaQvfHzJz)
-> — Rep. Matt Gaetz (@RepMattGaetz) [January 23, 2021](https://twitter.com/RepMattGaetz/status/1352996510661713920?ref_src=twsrc%5Etfw)
-
-
-
-2．高科技寡头之所以针对保守派，是因为我们支持选举的诚信。
-
-【[附http://breitbart.com 新闻网的相关报道](https://www.breitbart.com/clips/2021/01/16/gaetz-incoming-biden-administration-want-to-use-national-security-authorities-against-maga/)】
-
-
-
-> Big tech is targeting conservatives because we stood up for election integrity.[https://t.co/mcQTYY4EfE](https://t.co/mcQTYY4EfE)
-> — Rep. Matt Gaetz (@RepMattGaetz) [January 23, 2021](https://twitter.com/RepMattGaetz/status/1353026961128341504?ref_src=twsrc%5Etfw)
-
-
-
-## 众议员兰斯·古登：
-
-乔·拜登的Keystone XL （撤销输油管道线）的决定毁掉：
-
--11,000个美国工作
-
--8,000个工会职位
-
--16亿美元的工资
-
-同时，预计 #中国共产党 将在未来12年内每月建设2个大型燃煤电厂。
-
-#北京拜登 #BejingBiden
-
-
-
-> Joe Biden's Keystone XL decision destroyed:
-> 
-> –&gt; 11,000 U.S. jobs
-> 
-> –&gt; 8,000 union jobs 
-> 
-> –&gt; $1.6 billion in wages 
-> 
-> Meanwhile, communist China is projected to build 2 large coal plants a month for the next 12 years.[#BejingBiden](https://twitter.com/hashtag/BejingBiden?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Lance Gooden (@Lancegooden) [January 23, 2021](https://twitter.com/Lancegooden/status/1353024371783323648?ref_src=twsrc%5Etfw)
-
-
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

@@ -1,113 +1,205 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年1月20日直播和盖特内容整理（附完整听写）
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/801972/)
+## 白宫报告：川普政府的政绩——截至2021年1月（十）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/802218/)
 
-**给路德访谈的建议：**
+五月花写作组 ｜ 翻译：伞兵 ｜ 校对：紫丁香 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告10.jpg)
+### **Part – 10 Restoring American Leadership Abroad**
 
-今天是爆料革命最大的挑战日，最大的挫败日也是最大的机会日。
+### 第十部分：**重塑联邦司法**
 
-路波切太累了，还没放下。不能把你自己扮演的角色，当成你自己，不要把自己的奉献和自己的追求，和自己的善行、做好事，当成自己的责任。这不是你的法定义务，这不是路德访谈和路德和博士军团必须要做到的事情。美国人都做不到。
+* * *
 
-美国大选出这问题是全人类的事，不是我们什么失败。没兑现的多了去了，所有的严肃媒体，全人类的媒体说的话连放个屁都没有，99.9都是假的或瞪眼胡说八道。
+**Restored America’s leadership in the world and successfully negotiated to ensure our allies pay their fair share for our military protection. **
 
-世界上我们是人，我们不是神，现在神都解决不了的事。别真自己拿着胳膊自己去挡地球去了，好像真的要撬动地球似的。时间长了，把咱们战友也培养成，你说话不兑现，战友就不高兴了。本来好战友也培养成这样的，不就完了嘛！完全没必要。
+**恢复了美国在世界上的领导地位，并成功地进行了谈判，以确保我们的盟国为我们的军事保护支付合理份额。**
 
-一个119路德先生和闫博士，墨博士和我们的博士军团。爆料革命就可以光荣的、伟大的在这世界活上个一千年、一万年，都是往天上看，可以俯视全世界绝大多数人了。路德先生绝对是中国人的英雄，全世界的英雄科学家，博士军团绝对是英雄。
+• Secured a $400 billion increase in defense spending from NATO (North Atlantic Treaty Organization) allies by 2024, and the number of members meeting their minimum obligations more than doubled.
 
-今天要看到世界上太可怜了，你们太稀有了，你们太宝贵了，你们太了不起了。通过今天，我更加尊重你们，更爱你们，更佩服你们。新中国联邦、爆料革命，只要是真战友，会更加尊重你，更爱你们。
+-北大西洋公约组织（NATO）盟国确保到2024年增加4000亿美元的国防开支，同时履行最低义务的成员国数量增加一倍以上。
 
-**国内：**
+• Credited by Secretary General Jens Stoltenberg for strengthening NATO.
 
-现在共产党是得意忘形，还有受到重击之后的暴跳如雷。
+– 因使北约强大而受到秘书长斯托尔滕贝格（Jens Stoltenberg）的赞誉。
 
-过去一星期来对共产党的制裁和行动，对共产党的就是死亡。它已经是被合法化，是被消灭，它已经是合法化。用什么形式消灭？什么时间消灭？只是这个问题。
+• Worked to reform and streamline the United Nations (UN) and reduced spending by $1.3 billion. • Allies, including Japan and the Republic of Korea, committed to increase burden-sharing.
 
-郭先生在国内卧薪尝胆经营了二十几年，在2012年十八大到2013年那一刻，因为胡锦涛懦弱和令计划的背叛，让共产党和平演变，让老百姓没有死亡的情况下，从中南坑变成一个真正的民主、法治、信仰自由，多党派一人一票的党，这个希望破灭了。
+– 致力于改革和精简联合国，减少了13亿美元的开支。- 包括日本和韩国在内的盟友已承诺增加责任分担。
 
-胡锦涛希望十八大后让李源潮和薄熙来逐渐在未来会实行党内民主过渡到中国的法律独立。但最后崩溃，彻底拉倒。
+• Protected our Second Amendment rights by announcing the United States will never ratify the UN Arms Trade Treaty.
 
-十八大失败的原因是因为有家人，因为有私心，有家庭之恋，爱自己的儿子、女儿。因为懦弱，因为天真，还有心中没有信仰，毁掉了一个中国再次转向的机会。令计划的背叛，他儿子被设计弄死了。胡锦涛因为自己的闺女和儿子和媳妇, 让儿子未来进常委。最后跟习达成了默契。最后整个中国就到了这个习王手里。
+-通过宣布美国永远不会批准《联合国武器贸易条约》来保护我们的第二修正案权利。
 
-中国到了习王手里边，中国的文化大革命2.0一定会发生，而且共产党杀掠中国的私人企业家会走向灾难。因为习王要走的就是文化大革命的路。
+• Returned 56 hostages and detainees from more than 24 countries.
 
-从以共灭共和共产党的这个能力和实力，绑架了十四亿中国人角度看，我们得感谢习加速师、感谢王岐山干掉了百万党员造成的对立。现在共产党的内部绝大多数人成为了爆料革命战友。
+-从超过24个国家接回了56名人质和被拘留者。
 
-坚信共产党很快被灭掉，谁也挡不住。因为病毒的事情香港的事件，和新中国联邦和爆料革命唤醒的全世界的人民，以及这次美国被操纵大选的这种严重后果。这几个账最终要算的。他只是算到什么时候而已。
+• Worked to advance a free and open Indo-Pacific region, promoting new investments and expanding American partnerships.
 
-**美国新政府：**
+– 致力于推动印太地区的自由和开放，促进新的投资以及扩大美国的伙伴关系。
 
-美国是真正领导世界的国家，到了这种灾难地步，最黑暗的一天。没人问谁让我们戴口罩的？带口罩的原因是什么？不敢问真相。带着家人，牵着手，在摄像机面前还得表演，没有勇气，他根本不敢面对共产主义的邪恶和魔鬼。还要和给我们带上口罩的人进行勾兑、合作。
+**Advanced peace through strength. **
 
-今天站在就职仪式人是影响了人类，控制了人类多少年的人，也是人类的堕落。他们的言行举止，全都和共产党有关系。决定这些人的生命和生活质量也是中共。带不带口罩决定着生死，而且已经政治化、时尚化，这是共产党干的。
+**通过实力推进和平**。
 
-撒旦说的话，人类是邪恶和我相比，远超出你的想象。
+• Withdrew from the horrible, one-sided Iran Nuclear Deal and imposed crippling sanctions on the Iranian Regime.
 
-过去一天美国政坛和军界发生事情，是背叛中的背叛。事关人类命运背叛和欺骗，相互交叉。这种背叛就改变了全地球、全人类的命运。
+– 退出了可怕的，单方的《伊朗核协议》，并对伊朗政权实施了严厉的制裁。
 
-川普总统豁免埃利奥特·布罗迪很正常，更体现了川普总统的文化和个性。当初对我最大的威胁和伤害，是川普是共和党不是民主党。川普始终没放掉和习个人关系和所谓的共产党病毒的事情，是灾难性错误。他这个灾难的错误，绝对取决于他家人,导演了一个美国版的令计划儿子事件。
+• Conducted vigorous enforcement on all sanctions to bring Iran’s oil exports to zero and deny the regime its principal source of revenue.
 
-美国目前说偷总统的问题，美国最终是要走法律程序。他们的争执是没有完的，川普总统也没有放弃。他现在交的权力是给国会，交给美国人民的权利。那国会把这个权力,现在总统权力给了拜登。
+– 严格执行所有制裁措施，使伊朗的石油出口为零，从而断绝了伊朗政权财政收入的主要来源。
 
-**新中国联邦：**
+• First president to meet with a leader of North Korea and the first sitting president to cross the demilitarized zone into North Korea.
 
-现在爆料革命需要各方面的调整。
+– 成为了第一个与朝鲜领导人会面的总统，也是第一个通过穿越非军事区进入朝鲜的现任总统。
 
-**第一个：**我要强调的事情是，要对川普总统保持绝对尊敬,我坚信川普总统一定会赢，一定会回来，一定会回来，不改变。
+• Maintained a maximum pressure campaign and enforced tough sanctions on North Korea while negotiating de-nuclearization,the release of American hostages, and the return of the remains of American heroes.
 
-**第二个：**要尊重美国的宪法。只要是美国宪法保护的，我们都支持。宪法不支持的，坚决反对。
+– 保持最大限度的施压运动，并对朝鲜实施严厉制裁，同时就无核化、释放美国人质和归还美国英雄遗骸进行谈判。
 
-目前合法的美国政府机构，要对拜登政府保持尊重。对拜登总统或者他家人、个人，我们不再个人攻击。再反拜登，就是反美国。坚信他的团队会跟我们站在一起、一起灭共。
+• Brokered economic normalization between Serbia and Kosovo, bolstering peace in the Balkans.
 
-**对副总统哈里斯，她身边的很多人，未来也一定会和我们爆料革命站在一起，一定会跟我们站在一起而且很快也会有行动。**
+– 斡旋塞尔维亚和科索沃之间的经济正常化，促进了巴尔干地区的和平。
 
-**第三个：**不参与美国的两党之争。 不和任何党派合作，不掺和美国政府，不和总统个人发生任何关系。
+• Signed the Honk Kong Autonomy Act and ended the United States’ preferential treatment with Hong Kong to hold China accountable for its infringement on the autonomy of Hong Kong.
 
-不要攻击民主党，民主党的人没有伤害过我们一次。
+– 签署《香港自治法》，终止美国对香港的优惠待遇，追究中国侵犯香港自治权的责任。
 
-**第四个：** “两个凡是”
+• Led allied efforts to defeat the Chinese Communist Party’s efforts to control the international telecommunications system.
 
-凡是美国跟共产党勾兑的，对共产党好的，帮共产党强大的，我们就不答应，坚决反对，揭发到底。
+– 率领盟军粉碎中共控制国际电信系统的企图。
 
-凡事伤害共产党的，都支持。
+**Renewed our cherished friendship and alliance with Israel and took historic action to promote peace in the Middle East. **
 
-**向所有战友公开发誓：**
+**重申了我们与以色列的珍贵友谊和联盟关系，并采取了促进中东和平的历史性行动。**
 
-未来我们一定会把共产党灭了。不论任何情况，任何理由，老郭家人和跟我有血缘关系的任何人不许参与爆料革命，任何人不允许参与到所有的新中国联邦事情。
+• Recognized Jerusalem as the true capital of Israel and quickly moved the American Embassy in Israel to Jerusalem.
 
-任何人类的伟大的行动，如果做不到，无私无我，没有恐惧，你一定不会成功。
+– 承认耶路撒冷是以色列的真正首都，并迅速将美国驻以色列大使馆迁往耶路撒冷。
 
-大家冒着生命危险，就是要灭共。当你恐惧的时候，你什么都没有。没有恐惧了，你才能无我绝对不能裙带关系。
+• Acknowledged Israel’s sovereignty over the Golan Heights and declared that Israeli settlements in the West Bank are not inconsistent with international law.
 
-爆料革命和灭共运动，一旦有家人、裙带参与，都是对爆料革命战友，每个人的侮辱。
+– 承认以色列对戈兰高地的主权，宣布以色列在西岸的定居点并不违反国际法。
 
-凡是家族牵涉进去的事业，一定不是伟大的事业，因为你有私心。
+• Removed the United States from the United Nations Human Rights Council due to the group’s blatant anti-Israel bias.
 
-郭文贵的任何亲戚参与爆料革命，战友有任何的权利处置，包括我本人。
+– 美国从联合国人权理事会中退出，因为该组织公然的反以色列偏见。
 
-从六月四号到现在，我们战友和爆料革命、新中国联邦共同的行动和努力的结果，形成的实力，这叫硬实力。
+• Brokered historic peace agreements between Israel and Arab-Muslim countries, including the United Arab Emirates, the Kingdom of Bahrain, and Sudan.
 
-从昨天开始起，谁想在美国，想和共产党再好，再勾兑、再交易，绝不可能。
+– 在以色列与阿拉伯-穆斯林国家，包括阿拉伯联合酋长国、巴林王国和苏丹之间促成了历史性的和平协议。
 
-爆料革命背后，所承受的一个个背叛，那是你们没有看到的，那都是大钱，那都是大伤害，那都是大家无法承受的。
+• Brokered a deal for Kosovo to normalize ties and establish diplomatic relations with Israel.
 
-我们一些人被共产党洗脑，被共产党统治七十年以后，很多人身上留着共产党的这种残毒、幻想，不切实际的幻想，还总寄希望于别人，老是觉得天上能掉大饼。
+– 为科索沃与以色列的关系正常化以及建交斡旋。
 
-灭共几乎是全人类有史以来，前所未有的一个最勇敢的正义运动。
+• Announced that Serbia would move its embassy in Israel to Jerusalem.
 
-对班农先生的豁免，让他获得了人生的安全，也不用到法院被骚扰。但是班农先生选总统，甚至是身居要职是不可能的。这终身也就结束了，不是什么好消息。
+– 宣布塞尔维亚将把其驻以色列大使馆迁往耶路撒冷。
 
-把GTV、G-news删除哈里斯的副总统的负面新闻，是因为没必要跟哈里斯为敌。美国八千万人都不愿意与他们为敌，咱们就不要跟她为敌。同时更加团结美国的朋友们支持爆料革命。这是战略战术。
+• First American president to address an assembly of leaders from more than 50 Muslim nations, and reach an agreement to fight terrorism in all its forms.
 
-川普总统、胡锦涛这两个人类让我最痛感悟的，都是因为这个背叛、欺骗、伪信仰、伪正义和过不了儿女家庭这一关。
+– 第一个在50多个穆斯林国家领导人集会上发表讲话的美国总统，并达成了打击一切形式恐怖主义的协议。
 
-今天美国川普总统事情，不是我们失败了。上天非常清楚共产党这个魔鬼要灭之前，必须让全人类看到共产党的危害、共产党的威胁。否则共产党还会苟延残喘再有机会或者对中国人更加血腥。拜登和哈里斯政府会让全人类看到共产党的威胁，然后这两边合在一起，全人类才能灭共。灭共需要时间，现在太短了，太快了。我们唤醒了包括西方政府，唤醒了党内的人士，唤醒了中国人民，唤醒了中国的企业家，更要唤醒全人类，拯救全人类。
+• Established the Etidal Center to combat terrorism in the Middle East in conjunction with the Saudi Arabian Government.
 
-整理：pride文豪
+– 与沙特阿拉伯政府合作，成立了打击中东恐怖主义的 “伊蒂达中心”。
 
-[2021年1月20日盖特直播听写](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/01/24032934/2021%E5%B9%B41%E6%9C%8820%E6%97%A5%E7%9B%96%E7%89%B9%E7%9B%B4%E6%92%AD%E5%90%AC%E5%86%99-1.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/01/24032934/2021%E5%B9%B41%E6%9C%8820%E6%97%A5%E7%9B%96%E7%89%B9%E7%9B%B4%E6%92%AD%E5%90%AC%E5%86%99-1.pdf)
+• Announced the Vision for Peace Political Plan – a two-state solution that resolves the risks of Palestinian statehood to Israel’s security, and the first time Israel has agreed to a map and a Palestinian state.
 
+– 宣布 “和平愿景政治计划”- 解决巴勒斯坦建国给以色列安全带来风险的两国解决方案，也是以色列首次认可一个地图和一个巴勒斯坦国。
 
+• Released an economic plan to empower the Palestinian people and enhance Palestinian governance through historic private investment.
+
+– 发布了一项经济计划，通过历史性的私人投资，赋予巴勒斯坦人民实力，增强巴勒斯坦的治理。
+
+**Stood up against Communism and Socialism in the Western Hemisphere. **
+
+**站出来反对西半球的共产主义和社会主义。**
+
+• Reversed the previous Administration’s disastrous Cuba policy, canceling the sellout deal with the Communist Castro dictatorship.
+
+– 扭转了上届政府灾难性的古巴政策，取消了与共产主义卡斯特罗独裁政权的卖国交易。
+
+• Pledged not to lift sanctions until all political prisoners are freed; freedoms of assembly and expression are respected; all political parties are legalized; and free elections are scheduled.
+
+– 承诺在所有政治犯获释、集会和言论自由得到尊重、所有政党合法化和自由选举之前不撤销制裁。
+
+• Enacted a new policy aimed at preventing American dollars from funding the Cuban regime, including stricter travel restrictions and restrictions on the importation of Cuban alcohol and tobacco.
+
+– 颁布了一项新政策，旨在防止美元为古巴政权提供资金，包括更严格的旅行限制和对古巴烟酒进口的限制。
+
+• Implemented a cap on remittances to Cuba.
+
+– 实施向古巴汇款的上限。
+
+• Enabled Americans to file lawsuits against persons and entities that traffic in property confiscated by the Cuban regime.
+
+– 使美国人能够对非法买卖古巴政权没收财产的个人和实体提起诉讼。
+
+• First world leader to recognize Juan Guaido as the Interim President of Venezuela and led a diplomatic coalition against the Socialist Dictator of Venezuela, Nicolas Maduro.
+
+– 第一个承认胡安-瓜伊多为委内瑞拉临时总统的世界领导人，并领导了反对委内瑞拉社会主义独裁者尼古拉斯-马杜罗的外交联盟。
+
+• Blocked all property of the Venezuelan Government in the jurisdiction of the United States.
+
+– 冻结了委内瑞拉政府在美国管辖范围内的所有财产。
+
+• Cut off the financial resources of the Maduro regime and sanctioned key sectors of the Venezuelan economy exploited by the regime.
+
+– 切断马杜罗政权的财政资源，制裁被马杜罗政权利用的委内瑞拉关键经济部门。
+
+• Brought criminal charges against Nicolas Maduro for his narco-terrorism.
+
+对尼古拉斯-马杜罗的毒品恐怖主义行为提起刑事指控。
+
+• Imposed stiff sanctions on the Ortega regime in Nicaragua.
+
+– 对尼加拉瓜的奥尔特加政权实施严厉制裁。
+
+• Joined together with Mexico and Canada in a successful bid to host the 2026 FIFA World Cup, with 60 matches to be held in the United States.
+
+– 与墨西哥和加拿大一起成功申办2026年世界杯，其中60场比赛将在美国举行。
+
+• Won bid to host the 2028 Summer Olympics in Los Angeles, California.
+
+– 成功申请举办2028年加州洛杉矶夏季奥运会。
+
+* * *
+
+原文来源：[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
+
+往期链接：
+
+[白宫报告：川普政府的政绩——截至2021年1月（一）](https://gnews.org/zh-hans/761018/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（二）](https://gnews.org/zh-hans/761213/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（三）](https://gnews.org/zh-hans/766962/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（四）](https://gnews.org/zh-hans/767022/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（五）](https://gnews.org/zh-hans/771076/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（六）](https://gnews.org/zh-hans/771727/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（七-1）](https://gnews.org/zh-hans/779811/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（七-2）](https://gnews.org/zh-hans/780079/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（八）](https://gnews.org/zh-hans/788066/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)！
 
 0

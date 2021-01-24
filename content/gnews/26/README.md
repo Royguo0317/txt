@@ -1,25 +1,107 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共反人类政府春运期间加大对返乡人员实施网格化监管
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/802129/)
+## 白宫报告：川普政府的政绩——截至2021年1月（十二）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/802307/)
 
-HST-01C-202101-079
+五月花写作组 ｜ 翻译：风云九霄（文萧） ｜ 校对：伞兵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告12.jpg)
+## **Part 12 – Serving and Protecting Our Veterans**
 
-作者：捆绑CCP一千年 / 喜马拉雅东京樱花团
-![]()![](https://gnews.org/wp-content/uploads/2021/01/スクリーンショット-2021-01-24-17.43.20-1.png)
-北京时间2021年01月24日，原引北京日报《国家卫健委再次回应春节返乡问题》（链接如下）的文章说：“返回城市人员需遵守目的地疫情防控要求国务院联防联控机制日前印发《冬春季农村地区新冠肺炎疫情防控工作方案》，”以下简称《方案》。“《方案》中提出对返乡人员实行网格化管理措施，国家卫生健康委员会解释，网格化管理是指将农村划分为若干网格，村委会人员、乡村医生和民警等各方力量，以网格为单位，分片包干，对返乡人员做好摸排登记、健康监测、宣传教育等工作”。从字里行间可见老百姓毫无公民身份可言。
+## **第十二部分：服务和保护我们的退伍军人**
 
-[http://www.beijing.gov.cn/ywdt/zybwdt/202101/t20210124\_2230832.html](http://www.beijing.gov.cn/ywdt/zybwdt/202101/t20210124_2230832.html)
+* * *
 
-首先我们需要明白何为中共政权的“网格化管理”模式，搜狗百科《网格化管理》词条认为：网格化管理是一种统一的城市管理数字化的平台，将整个社会管理按辖区的标准划分成为单元网格。网格化管理强化综合治安维稳机制。”共产党将“驭民五术”的邪恶政策依托中共病毒赋予他它现代数字化能力，更具有反人类性质。其网格化监控武器就是“健康宝”和“通信大数据行程卡”，这两种APP分别实时无缝化、网格化监控人的行踪。举例来说，健康宝分绿、黄、红三种健康码，只有绿码才能畅行无阻。但这仍然不够，有些场所，比如医院等公共场合需要确保你不是来自疫区，如果是疫区来的患者，将会拒绝医治，或拉去强制隔离。这就需要你微信扫码大数据行程码。一扫便知你的足迹。
+### **Reformed the Department of Veterans Affairs (VA) to improve care, choice, and employee accountability.**
 
-不难预见，此次春运期间，中共对农村返乡人员使用这种网格化管理就一定会产生许多侵犯人权和人道危机的问题出来。比如《方案》中强调“民警等各方力量”的介入。条文首先强调政府的力量是一切维稳手段。以“分片包干”的方式赋予各片区权利实施维稳到无死角，而且这种所谓“各方力量”的模糊表述就给控制人的自由增添了许多不确定性，分片包干在利益驱使下大大激发了人性邪恶，加剧同胞相残的程度，他可以根据需要随时对管制对象进行任何人生攻击和限制措施都不为过，而且中共乡村党员行为简单粗暴惯了，老百姓更是被疫情体制化洗脑后完全失去其任何防抵抗能力。整个中华大地9600万平公里国土面积成了世界巨无霸大监狱。
+### 改革了退伍军人事务部（VA），以改善医疗护理，选择范围和员工问责制。
 
-值得注意的是，中共国大量农村劳动力和就业青年均在北上广地区谋生，笔者曾经采访过一个小小路边小吃摊，她们说好的时候月收入也在5千以上，回家根本无法养家糊口。因为农民耕地被强征或所谓合法廉价征用。无地可种的农民和农村青年就成了一、二线城市的候鸟型廉价人力资源。这一人群还包括大学毕业在大城市工作无户籍人员，有的甚至居住20年以上，购置商品房的生意人和打工族都被视为非本地人员。比如按北京来说，春节若回老家再回京需要定点隔离14天＋7天居家隔离。甚至根据你的行程卡数据会拒绝入城。这会直接导致你无家可归。因此，笔者认为，2021年春节期间会有多少人间悲剧在上演？我们将持续关注。
+- Signed and implemented the VA Mission Act, which made permanent Veterans CHOICE, revolutionized the VA community care system, and delivered quality care closer to home for Veterans.
+- 签署并实施了《 VA使命法案》，该法案使退伍军人获得永久性的选择，彻底改变了VA社区护理系统，并为退伍军人提供了离家更近的优质护理。
+- The number of Veterans who say they trust VA services has increased 19 percent to a record 91 percent, an all-time high.
+- 信赖VA服务的退伍军人数量增加了19％，达到创纪录的91％，为历史新高。
+- Offered same-day emergency mental health care at every VA medical facility, and secured $9.5 billion for mental health services in 2020.
+- 每家VA医疗机构提供当日紧急心理保健服务，并在2020年为心理保健服务筹资95亿美元。
+- Signed the VA Choice and Quality Employment Act of 2017, which ensured that veterans could continue to see the doctor of their choice and wouldn’t have to wait for care.
+- 签署了《 2017年VA选择与优质就业法案》，该法案确保退伍军人可以继续看望自己选择的医生，而不必排队等待。
+- During the Trump Administration, millions of veterans have been able to choose a private doctor in their communities.
+- 在川普政府执政期间，数百万退伍军人能够在其社区中选择私人医生。
+- Expanded Veterans’ ability to access telehealth services, including through the “Anywhere to Anywhere” VA healthcare initiative leading to a 1000 percent increase in usage during COVID-19.
+- 扩大了退伍军人访问远程医疗服务的能力，包括通过“Anywhere to Anywhere” VA医保计划，使COVID-19期间的使用率增加了1000％。
+- Signed the Veterans Affairs Accountability and Whistleblower Protection Act and removed thousands of VA workers who failed to give our Vets the care they have so richly deserve.
+- 签署了《退伍军人事务部问责与举报人保护法》，并解雇了数千名未能为我们退伍军人提供应有照顾的VA员工。
+- Signed the Veterans Appeals Improvement and Modernization Act of 2017 and improved the efficiency of the VA, setting record numbers of appeals decisions.
+- 签署了《2017年退伍军人上诉改善和现代化法案》，提高了VA效率，上诉裁决的数量创纪录。
+- Modernized medical records to begin a seamless transition from the Department of Defense to the VA.
+- 现代化的医疗记录从国防部到VA开始无缝过渡。
+- Launched a new tool that provides Veterans with online access to average wait times and quality-of-care data.
+- 推出了一个新工具，使退伍军人可以在线访问平均等待时间和护理质量数据。
+- The promised White House VA Hotline has fielded hundreds of thousands of calls.
+- 承诺的白宫VA热线已经接到了数十万个电话。
+- Formed the PREVENTS Task Force to fight the tragedy of Veteran suicide.
+- 成立了PREVENTS工作组，以应对退伍军人自杀的悲剧。
 
-2021年1月24日写于东亚。
+
+### **Decreased veteran homelessness, improved education benefits, and achieved record-low veteran unemployment.**
+
+### **减少了无家可归的退伍军人，改善了教育福利，并实现了创纪录的老兵低失业率。**
+
+- Signed and implemented the Forever GI Bill, allowing Veterans to use their benefits to get an education at any point in their lives.
+- 签署并实施了《Forever GI Bill》，使退伍军人可以享受任何时候接受教育的福利。
+- Eliminated every penny of Federal student loan debt owed by American veterans who are completely and permanently disabled.
+- 为完全永久残疾的美国退伍军免去全部的联邦学生贷款债务。
+- Compared to 2009, 49 percent fewer veterans experienced homelessness nationwide during 2019.
+- 与2009年相比，2019年全国无家可归的退伍军人减少了49％。
+- Signed and implemented the HAVEN Act to ensure that Veterans who’ve declared bankruptcy don’t lose their disability payments.
+- 签署并实施了《HAVEN法案》，以确保宣布破产的退伍军人不会损失其伤残偿金。
+- Helped hundreds of thousands of military service members make the transition from the military to the civilian workforce, and developed programs to support the employment of military spouses.
+- 帮助数十万军人从军队过渡到文职人员，并制定了支持军人配偶就业的计划。
+- Placed nearly 40,000 homeless veterans into employment through the Homeless Veterans Reintegration Program.
+- 通过无家可归退伍军人重返社会的项目，近40,000名无家可归的退伍军人就业。
+- Placed over 600,000 veterans into employment through American Job Center services.
+- 通过美国就业中心服务，60万退伍军人就业。
+- Enrolled over 500,000 transitioning service members in over 20,000 Department of Labor employment workshops.
+- 在20,000多个劳工部就业研讨会上，招募了500,000多个处于过渡阶段的军人。
+- Signed an executive order to help Veterans transition seamlessly into the United States Merchant Marine.
+- 签署了一项行政命令，以帮助退伍军人无缝过渡到美国商船发展工作。
 
 
+* * *
 
-+1
+原文来源：
+
+[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
+
+往期链接：
+
+[白宫报告：川普政府的政绩——截至2021年1月（一）](https://gnews.org/zh-hans/761018/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（二）](https://gnews.org/zh-hans/761213/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（三）](https://gnews.org/zh-hans/766962/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（四）](https://gnews.org/zh-hans/767022/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（五）](https://gnews.org/zh-hans/771076/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（六）](https://gnews.org/zh-hans/771727/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（七-1）](https://gnews.org/zh-hans/779811/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（七-2）](https://gnews.org/zh-hans/780079/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（八）](https://gnews.org/zh-hans/788066/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十一）](https://gnews.org/zh-hans/802251/)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)！
+
+0

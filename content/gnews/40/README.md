@@ -1,45 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国重新加入伊核协议引发关注
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/801730/)
+## 参议员戴恩斯：拜登和民主党不再是美国工人的朋友
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/801805/)
 
-英听校： 康州盘古农场 – Mike Li
-翻译： 康州盘古农场 – Mike Li
-翻译终校：康州盘古农场 – Antsee-GTV
-字幕+视频制作：康州盘古农场-天涯行
-审核：康州盘古-Truemanman
+翻译：康州盘古农场-Bruce
+校对：康州盘古农场-Mike Li
+审核：康州盘古农场-Antsee-GTV
+
+![davids]()![davids](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-24-at-15.26.47-1.png)*图片：拉里·法兰西（Larry French）/盖蒂图片社提供天狼星卫星广播公司*
+
+参议员史蒂夫·戴恩斯(Steve Daines)认为，乔·拜登是把沙特阿拉伯放在第一位，而不是美国。
+
+这位共和党参议员周五在接受采访时表示，拜登停建Keystone XL输油管会扼杀美国的就业岗位并提高能源价格。
 
 
 
-女主持人
-在他任职期间，川普总统能够促成以色列和众多阿拉伯国家之间的和平协议，他还退出了2015年的伊核协议并重新对伊朗政权实施制裁，然而很多人对拜登政府是否会选择重新加入伊朗核协议 ，也就是简称为JCPOA的联合全面行动计划表示担忧，好的，（今天）加入讨论的是支持川普的犹太之声的联盟成员和美国阿谢特的主席 Brian Live，谢谢你加入我们。
+> .[@JoeBiden](https://twitter.com/JoeBiden?ref_src=twsrc%5Etfw)'s Saudi Arabia First Plan is unacceptable. 
+> 
+> Killing the Keystone XL pipeline has a direct impact on the pocket books of the American people & will devastate rural communities. 
+> 
+> Montana alone will lose nearly $80 million to help impoverished counties make ends meet. [pic.twitter.com/jaxWKREPxW](https://t.co/jaxWKREPxW)
+> — Steve Daines (@SteveDaines) [January 22, 2021](https://twitter.com/SteveDaines/status/1352671577998028802?ref_src=twsrc%5Etfw)
 
-嘉宾
-谢谢你邀请我来，早上好。
 
-女主持人
-早上好，许多官员，共和党议员们，甚至以色列，都支持总统川普普退出JCPOA，并重新对伊朗实施制裁。但伊朗总统哈桑-鲁哈尼表示，他希望拜登能重返奥巴马执政时期的核协议。如果拜登这样做会有什么影响？
+***沙特阿拉伯*优先*计划是无法接受的。*毁掉*Keystone XL管道会直接影响美国人民的钱包，并将破坏农村社区。仅蒙大纳州就将损失近8000万美元，以帮助贫困县的地区实现收支平衡。***
+他说，停建是拜登更关心其他国家工人的证据。正因为如此，戴恩斯强调拜登和其他民主党人不再是美国工人的朋友。
 
-嘉宾
-是的，所以再次感谢你让我加入，Stephanie。《全面禁止核试验条约》是奥巴马在任时达成的一个错误的协议。而它所做的就是给伊朗提供了一条通往核武器的道路，如同解封了数十亿美元的资产。所以这些钱应该被用来丰富伊朗人民的生活不幸的是，伊朗政权利用这些资金，丰富了他们的全球恐怖网络他们花了几十亿美金在世界各地资助恐怖主义。我们可以预期同样的事情会再次发生，当拜登重新加入JCPOA的时候，让我们在这里说实话，拜登肯定会重新加入JCPO，他重新召集了整个奥巴马团队，当然，约翰-克里现在也回来了。约翰-克里在2015年与伊朗媾和是错误的，他在2016年告诉世界中东永远不会有和平，然后他将再次错误地与伊朗达成协议。伊朗要让美国死，让以色列死。他们刚刚在议会中通过了要求正式摧毁以色列的议题
 
-伊朗不是盟友，斯蒂芬妮，他们是对手我们需要拜登政府应该开始把他们和当成对手。
 
-女主持人
-依据你的观点，报道说一名以色列高级官员告诉以色列当地的一家电视台，拜登采用奥巴马的核协议计划重新加入JCPOA与他谈什么都没有意义了，所以当然，以色列是美国最强大的盟友之一，正如你所指出的伊朗绝对是一个对手。
+> That’s why I’m introducing legislation to reverse course on Biden’s terrible decision and congressionally authorize the Keystone XL pipeline. I hope ALL my colleagues-especially Republicans & Democrats in rural and western states-join in this fight.
+> — Steve Daines (@SteveDaines) [January 20, 2021](https://twitter.com/SteveDaines/status/1352029397235200008?ref_src=twsrc%5Etfw)
 
-本月早些时候，伊朗宣布它恢复铀浓缩到20％的纯度，这是最严重的违反了2015年的核协议的行动，拜登政府应该如何去控制伊朗？
 
-嘉宾
-如果拜登政府能在特朗普政府成功的基础上再接再厉，那才是明智之举。正如我刚刚提到的，川普政府对伊朗政权采取了截然不同的做法川普政府没有纵容他们，没有把他们视为盟友视他们为凶狠的对手。所以拜登政府的明智的做法是在此基础上再接再厉，把伊朗当作对手而不是盟友。伊朗政权不是一个关心美国的人，或者说希望美国成功，他们甚至不希望自己的人成功，更不用说其他人了所以，拜登需要采取一个非常强硬的立场，需要加强制裁，并尽我们所能对伊朗施加尽可能大的压力。
+***这就是为什么我要引入立法以扭转拜登的糟糕决定，并在国会上授权Keystone XL管道。我希望我的所有同事，特别是农村和西部各州的共和党人和民主党人，都参与这场斗争。***
+“这将直接影响到美国人民的口袋，”戴恩斯说。”我们现在正处于一场大瘟疫之中。他刚刚扼杀了11000个工作岗位。这对我的蒙大拿州来说，每年有8000万美元的税收收入——对低收入县来说——用于学校、执法、基础设施的收支。这是一个重大的基础设施项目，拜登上任6小时就把它扼杀了。”
 
-女主持人
-在他的办公室的最后一个完整日，川普于周二对巴林国王哈马德授予功勋勋章，承认海湾国家与以色列的正常化关系告诉我们更多关于这一行为的重要性。
 
-嘉宾
-是的，这是纪念性的，我认为一度尘埃已经落定，现在总统川普已经离去，并结束了他的任期。我认为，你会看到美国人民真正开始看到川普总统和他的政府做了所有令人惊叹的事情。从外交政策的角度来看亚伯拉罕协议是一份大礼，在未来的几十年里，它将持续在中东地区维持和平。当然，有商业交易的发生是很好的，政府派代表团互相交往也是很好的，但我认为最重要的是，像摩洛哥，巴林，沙特阿拉伯这样的国家正在采取切实的措施。在他们的教育系统的教科书中根除任何形式的反以色列和反犹太人的言论，这比任何商业交易都要长久，我认为这是，这是川普总统和他这届政府所做出的显著的工作。
 
-原视频链接: [https://www.oann.com/concerns-arise-over-u-s-rejoining-iran-nuclear-deal/](https://www.oann.com/concerns-arise-over-u-s-rejoining-iran-nuclear-deal/)
+> I urge Senate Democrats to pick up the phone and call [@JoeBiden](https://twitter.com/JoeBiden?ref_src=twsrc%5Etfw). Tell him we need the Keystone XL pipeline. Tell him to stop abandoning American workers and killing union jobs.
+> 
+> If you say you support the pipeline, do something.
+> — Steve Daines (@SteveDaines) [January 22, 2021](https://twitter.com/SteveDaines/status/1352721643861401602?ref_src=twsrc%5Etfw)
 
-0
+
+***我敦促参议院民主党人给乔-拜登电话@JoeBiden。告诉他我们需要Keystone XL管道。告诉他停止抛弃美国工人，杀死工会工作。
+如果您说您支持管道，就做些事情。***
+蒙大拿州参议员认为，随着拜登政府向极左激进极端分子的理想屈服，拜登的决定只会越来越糟。
+
+原文作者：《OAN新闻室》
+
+发布时间：2021年1月22日
+
+原文链接：[https://www.oann.com/sen-daines-biden-dems-no-longer-friends-to-american-workers/](https://www.oann.com/sen-daines-biden-dems-no-longer-friends-to-american-workers/)
+
++1

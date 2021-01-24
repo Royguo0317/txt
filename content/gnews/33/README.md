@@ -1,57 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 参议员戴恩斯：拜登和民主党不再是美国工人的朋友
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/801805/)
+## 中共反人类政府春运期间加大对返乡人员实施网格化监管
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/802129/)
 
-翻译：康州盘古农场-Bruce
-校对：康州盘古农场-Mike Li
-审核：康州盘古农场-Antsee-GTV
+HST-01C-202101-079
 
-![davids]()![davids](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-24-at-15.26.47-1.png)*图片：拉里·法兰西（Larry French）/盖蒂图片社提供天狼星卫星广播公司*
+作者：捆绑CCP一千年 / 喜马拉雅东京樱花团
+![]()![](https://gnews.org/wp-content/uploads/2021/01/スクリーンショット-2021-01-24-17.43.20-1.png)
+北京时间2021年01月24日，原引北京日报《国家卫健委再次回应春节返乡问题》（链接如下）的文章说：“返回城市人员需遵守目的地疫情防控要求国务院联防联控机制日前印发《冬春季农村地区新冠肺炎疫情防控工作方案》，”以下简称《方案》。“《方案》中提出对返乡人员实行网格化管理措施，国家卫生健康委员会解释，网格化管理是指将农村划分为若干网格，村委会人员、乡村医生和民警等各方力量，以网格为单位，分片包干，对返乡人员做好摸排登记、健康监测、宣传教育等工作”。从字里行间可见老百姓毫无公民身份可言。
 
-参议员史蒂夫·戴恩斯(Steve Daines)认为，乔·拜登是把沙特阿拉伯放在第一位，而不是美国。
+[http://www.beijing.gov.cn/ywdt/zybwdt/202101/t20210124\_2230832.html](http://www.beijing.gov.cn/ywdt/zybwdt/202101/t20210124_2230832.html)
 
-这位共和党参议员周五在接受采访时表示，拜登停建Keystone XL输油管会扼杀美国的就业岗位并提高能源价格。
+首先我们需要明白何为中共政权的“网格化管理”模式，搜狗百科《网格化管理》词条认为：网格化管理是一种统一的城市管理数字化的平台，将整个社会管理按辖区的标准划分成为单元网格。网格化管理强化综合治安维稳机制。”共产党将“驭民五术”的邪恶政策依托中共病毒赋予他它现代数字化能力，更具有反人类性质。其网格化监控武器就是“健康宝”和“通信大数据行程卡”，这两种APP分别实时无缝化、网格化监控人的行踪。举例来说，健康宝分绿、黄、红三种健康码，只有绿码才能畅行无阻。但这仍然不够，有些场所，比如医院等公共场合需要确保你不是来自疫区，如果是疫区来的患者，将会拒绝医治，或拉去强制隔离。这就需要你微信扫码大数据行程码。一扫便知你的足迹。
 
+不难预见，此次春运期间，中共对农村返乡人员使用这种网格化管理就一定会产生许多侵犯人权和人道危机的问题出来。比如《方案》中强调“民警等各方力量”的介入。条文首先强调政府的力量是一切维稳手段。以“分片包干”的方式赋予各片区权利实施维稳到无死角，而且这种所谓“各方力量”的模糊表述就给控制人的自由增添了许多不确定性，分片包干在利益驱使下大大激发了人性邪恶，加剧同胞相残的程度，他可以根据需要随时对管制对象进行任何人生攻击和限制措施都不为过，而且中共乡村党员行为简单粗暴惯了，老百姓更是被疫情体制化洗脑后完全失去其任何防抵抗能力。整个中华大地9600万平公里国土面积成了世界巨无霸大监狱。
 
+值得注意的是，中共国大量农村劳动力和就业青年均在北上广地区谋生，笔者曾经采访过一个小小路边小吃摊，她们说好的时候月收入也在5千以上，回家根本无法养家糊口。因为农民耕地被强征或所谓合法廉价征用。无地可种的农民和农村青年就成了一、二线城市的候鸟型廉价人力资源。这一人群还包括大学毕业在大城市工作无户籍人员，有的甚至居住20年以上，购置商品房的生意人和打工族都被视为非本地人员。比如按北京来说，春节若回老家再回京需要定点隔离14天＋7天居家隔离。甚至根据你的行程卡数据会拒绝入城。这会直接导致你无家可归。因此，笔者认为，2021年春节期间会有多少人间悲剧在上演？我们将持续关注。
 
-> .[@JoeBiden](https://twitter.com/JoeBiden?ref_src=twsrc%5Etfw)'s Saudi Arabia First Plan is unacceptable. 
-> 
-> Killing the Keystone XL pipeline has a direct impact on the pocket books of the American people & will devastate rural communities. 
-> 
-> Montana alone will lose nearly $80 million to help impoverished counties make ends meet. [pic.twitter.com/jaxWKREPxW](https://t.co/jaxWKREPxW)
-> — Steve Daines (@SteveDaines) [January 22, 2021](https://twitter.com/SteveDaines/status/1352671577998028802?ref_src=twsrc%5Etfw)
+2021年1月24日写于东亚。
 
 
-***沙特阿拉伯*优先*计划是无法接受的。*毁掉*Keystone XL管道会直接影响美国人民的钱包，并将破坏农村社区。仅蒙大纳州就将损失近8000万美元，以帮助贫困县的地区实现收支平衡。***
-他说，停建是拜登更关心其他国家工人的证据。正因为如此，戴恩斯强调拜登和其他民主党人不再是美国工人的朋友。
-
-
-
-> That’s why I’m introducing legislation to reverse course on Biden’s terrible decision and congressionally authorize the Keystone XL pipeline. I hope ALL my colleagues-especially Republicans & Democrats in rural and western states-join in this fight.
-> — Steve Daines (@SteveDaines) [January 20, 2021](https://twitter.com/SteveDaines/status/1352029397235200008?ref_src=twsrc%5Etfw)
-
-
-***这就是为什么我要引入立法以扭转拜登的糟糕决定，并在国会上授权Keystone XL管道。我希望我的所有同事，特别是农村和西部各州的共和党人和民主党人，都参与这场斗争。***
-“这将直接影响到美国人民的口袋，”戴恩斯说。”我们现在正处于一场大瘟疫之中。他刚刚扼杀了11000个工作岗位。这对我的蒙大拿州来说，每年有8000万美元的税收收入——对低收入县来说——用于学校、执法、基础设施的收支。这是一个重大的基础设施项目，拜登上任6小时就把它扼杀了。”
-
-
-
-> I urge Senate Democrats to pick up the phone and call [@JoeBiden](https://twitter.com/JoeBiden?ref_src=twsrc%5Etfw). Tell him we need the Keystone XL pipeline. Tell him to stop abandoning American workers and killing union jobs.
-> 
-> If you say you support the pipeline, do something.
-> — Steve Daines (@SteveDaines) [January 22, 2021](https://twitter.com/SteveDaines/status/1352721643861401602?ref_src=twsrc%5Etfw)
-
-
-***我敦促参议院民主党人给乔-拜登电话@JoeBiden。告诉他我们需要Keystone XL管道。告诉他停止抛弃美国工人，杀死工会工作。
-如果您说您支持管道，就做些事情。***
-蒙大拿州参议员认为，随着拜登政府向极左激进极端分子的理想屈服，拜登的决定只会越来越糟。
-
-原文作者：《OAN新闻室》
-
-发布时间：2021年1月22日
-
-原文链接：[https://www.oann.com/sen-daines-biden-dems-no-longer-friends-to-american-workers/](https://www.oann.com/sen-daines-biden-dems-no-longer-friends-to-american-workers/)
 
 +1

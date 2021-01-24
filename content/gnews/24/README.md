@@ -1,29 +1,119 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国之殇与东方曙光
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/801967/)
+## 白宫报告：川普政府的政绩——截至2021年1月（十四）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/802367/)
 
-在美国历史上，从未有过一次总统选举与一个东方古国有着如此息息相关的联系，更没有过一个国家领导人的产生会牵动全世界的神经。 川普与拜登，他们之间竞争的意义早已超出了对总统之位的争夺，实际上，他们之间的战争是人类文明史上，又一次正义与邪恶，文明与野蛮的较量，而他们个人也成为这场较量中的两个符号。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1-103.png)
-骄傲的美国人从未意识到，世界第一强国已经在不知不觉中被中共侵蚀，这其中最严重的是对其思想和价值观的侵蚀。 人类文明从来不是线性前进的，在欧洲，古希腊灿烂的文明之后，有蒙昧千年的中世纪，而古老的东方古国也没有继承先秦光芒万丈的思想家园，而是进入了两千年的王朝更替。 人类津津乐道，并为之骄傲的“思想”，其实是如此脆弱。人类用了几千年的时间忙于权谋，厮杀和党争，至今未休。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/2-39.png)
-川普总统此次的落选，其意义已经远远超过他个人的得失，这是美国民意的巨大伤痛，也是人类价值观严重分裂的标志，也是中共黑暗势力笼罩全球的开始，这是否意味着人类的又一个至暗时刻已经来临？是否意味着人类久违的战争正在酝酿中？
+五月花写作组 ｜ 翻译：风云九霄(文萧) ｜ 校对：伞兵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告14.jpg)
+## **Part 14 – Cherishing Life and Religious Liberty**
 
-这场大选背后的较量可谓惊心动魄，我们仿佛置身于一场波澜壮阔的历史剧中，不过这一次，这部历史剧中的主角是郭文贵先生引领的爆料革命。 这是一束来自东方的曙光，中国人民的觉醒与反抗会不会成为人类唯一的希望呢？
-![]()![](https://gnews.org/wp-content/uploads/2021/01/2a8a7566-370f-438e-ad96-250a85627cbe.jpg)
-回想四年前，川普总统当选美国总统，使很多人大感意外，也使那些传统政客颜面扫地。其实，那是积蓄已久的民意做出的选择。四年来，川普总统饱受攻击，身边危机四伏，一路跌跌撞撞，然而他以对美国的忠诚和对老百姓的热爱，以无比坚强的意志和勇气走到今天。失败是残酷的，自古英雄多落寞。人们看到了川普先生落选背后所有的明枪暗箭，那些道貌岸然的政客，那些义正词严的公知，那些饱读诗书的学者，那些贪赃枉法的执法者，还有中共那些鬼魅魍魉的表演，都在这场选举中赤膊上阵，你们以为自己真的赢了吗？你们以为拜登胜利了吗？你们是否知道，觉醒的美国人民绝不会坐以待毙，他们的反抗才刚刚开始；还有，你们是否知道，中共是如何对待他们用过的棋子吗？拜登当选之日，就是你们，包括拜登本人，噩梦的开始。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/e934151e-7afb-455b-a6f3-d4cdd688ad4f.jpg)
-在这场世纪大选中，郭文贵先生引领的爆料革命犹如一把利剑，一路斩妖除魔，揭露真相，唤醒民众。另一方面，中共则极尽其流氓手段，收买，造假，威胁，利诱，无所不用其极。 中华民族自古不乏直面惨烈世界的英雄，与魔鬼中共的较量已经进入生死阶段，是跪下偷生，还是站起反抗，我们的人生必须立刻做出选择。
+## **第十四部分：珍惜生命与宗教自由**
 
-四年弹指一挥间，现在，美国政坛的黑幕已掀开一角，中共也不再掩饰狰狞的面目，川普总统今天的落选可以说一切只是刚刚开始，中共不除，世界永无宁日。
+* * *
 
-在古老东方地平线上升起的曙光中，是昂首挺胸的新中国联邦的公民。中国人民的觉醒能否引领世界走出黑暗？我们已经站在了人类的十字路口上，我们的思想是否将再一次被关进千年的牢笼，人类将走进又一蒙昧世纪，还是冲破黑暗迎来新生。
+### **Steadfastly supported the sanctity of every human life and worked tirelessly to prevent government funding of abortion.**
 
-新中国联邦的公民百炼成钢，我们已收拾好行囊，我们已踏上征途，我们将义无反顾为自由，为正义而战。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/bec6b8e2-5ff1-4f6b-ab82-32096baff301.jpg)
-作者：匿名
+### **坚定支持个人生命的神圣，并为防止政府为堕胎提供资金做出了不懈的努力。**
 
-【文章仅代表作者个人观点】
+- Reinstated and expanded the Mexico City Policy, ensuring that taxpayer money is not used to fund abortion globally.
+- 恢复并扩展了墨西哥城政策，确保美国纳税人的钱不被用于全球堕胎。
+- Issued a rule preventing Title X taxpayer funding from subsiding the abortion industry.
+- 发布了一项规则，以防止Title X纳税人的资金资助堕胎行业。
+- Supported legislation to end late-term abortions.
+- 支持立法终止晚期流产。
+- Cut all funding to the United Nations population fund due to the fund’s support for coercive abortion and forced sterilization.
+- 联合国人口基金支持强迫堕胎和强迫绝育，因此终止对其拨款。
+- Signed legislation overturning the previous administration’s regulation that prohibited states from defunding abortion facilities as part of their family planning programs.
+- 签署法律推翻了上届政府的法规，以禁止各州对作为其家庭生育计划的堕胎设施拨款。
+- Fully enforced the requirement that taxpayer dollars do not support abortion coverage in Obamacare exchange plans.
+- 全面执行要求纳税人的钱不得用来支持奥巴马医改计划中的堕胎。
+- Stopped the Federal funding of fetal tissue research.
+- 停止了对胎儿组织研究的联邦资助。
+- Worked to protect healthcare entities and individuals’ conscience rights – ensuring that no medical professional is forced to participate in an abortion in violation of their beliefs.
+- 致力于保护医疗机构和个人的良心权利——确保没有医疗专业人员被迫违反其信仰而参与堕胎。
+- Issued an executive order reinforcing requirement that all hospitals in the United States provide medical treatment or an emergency transfer for infants who are in need of emergency medical care—regardless of prematurity or disability.
+- 发布了一项行政命令，加强要求美国所有医院为需要紧急医疗护理的婴儿提供医疗或紧急转运，无论其是否早产或残疾。
+- Led a coalition of countries to sign the Geneva Consensus Declaration, declaring that there is no international right to abortion and committing to protecting women’s health.
+- 领导一个国家联盟签署《日内瓦共识宣言》，宣布没有国际堕胎权，并致力于保护妇女的健康。
+- First president in history to attend the March for Life.
+- 历史上首位参加维护生命权游行的总统。
+
+
+### **Stood up for religious liberty in the United States and around the world.**
+
+### **为美国和世界各地的宗教自由而呼吁。**
+
+- Protected the conscience rights of doctors, nurses, teachers, and groups like the Little Sisters of the Poor.
+- 保护医生，护士，老师和安贫小姐妹会等团体的良心权利。
+- First president to convene a meeting at the United Nations to end religious persecution.
+- 第一任总统在联合国召开旨在结束宗教迫害的会议。
+- Established the White House Faith and Opportunity Initiative.
+- 建立了白宫信仰和机会倡议。
+- Stopped the Johnson Amendment from interfering with pastors’ right to speak their minds.
+- 阻止《约翰逊修正案》干扰牧师发表意见的权利。
+- Reversed the previous administration’s policy that prevented the government from providing disaster relief to religious organizations.
+- 推翻了上届政府阻止政府向宗教组织提供灾难援助的政策。
+- Protected faith-based adoption and foster care providers, ensuring they can continue to serve their communities while following the teachings of their faith.
+- 保护基于信仰的收养和寄养服务提供者，确保他们在遵循信仰教义的同时继续为社区服务。
+- Reduced burdensome barriers to ensure Native Americans are free to keep spiritually and culturally significant eagle feathers found on their tribal lands.
+- 减少繁文缛节，以确保美洲原住民可以自由地在其部落土地上保留精神上和文化上重要的鹰羽毛。
+- Took action to ensure Federal employees can take paid time off work to observe religious holy days.
+- 采取措施确保联邦雇员可以带薪休假来遵守宗教节日。
+- Signed legislation to assist religious and ethnic groups targeted by ISIS for mass murder and genocide in Syria and Iraq.
+- 签署了立法，以协助那些在叙利亚和伊拉克被ISIS进行大规模屠杀和种族灭绝的宗教和族裔群体。
+- Directed American assistance toward persecuted communities, including through faith-based programs.
+- 向美国的受迫害社区提供援助，包括通过基于信仰的计划。
+- Launched the International Religious Freedom Alliance – the first-ever alliance devoted to confronting religious persecution around the world.
+- 发起了国际宗教自由联盟，这是有史以来第一个致力于应对世界各地宗教迫害的联盟。
+- Appointed a Special Envoy to monitor and combat anti-Semitism.
+- 任命了一个特使来监督和打击反犹太主义。
+- Imposed restrictions on certain Chinese officials, internal security units, and companies for their complicity in the persecution of Uighur Muslims in Xinjiang.
+- 对参与迫害新疆维吾尔族人的某些中国官员，内部安全部门和公司实施共谋限制。
+- Issued an executive order to protect and promote religious freedom around the world.
+- 发布了一项行政命令，以保护和促进全世界的宗教自由。
+
+
+* * *
+
+原文来源：
+
+[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
+
+往期链接：
+
+[白宫报告：川普政府的政绩——截至2021年1月（一）](https://gnews.org/zh-hans/761018/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（二）](https://gnews.org/zh-hans/761213/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（三）](https://gnews.org/zh-hans/766962/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（四）](https://gnews.org/zh-hans/767022/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（五）](https://gnews.org/zh-hans/771076/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（六）](https://gnews.org/zh-hans/771727/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（七-1）](https://gnews.org/zh-hans/779811/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（七-2）](https://gnews.org/zh-hans/780079/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（八）](https://gnews.org/zh-hans/788066/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十一）](https://gnews.org/zh-hans/802251/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十二）](https://gnews.org/zh-hans/802307/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十三）](https://gnews.org/zh-hans/802335/)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)！
 
 0

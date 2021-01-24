@@ -1,28 +1,95 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大曼省承认：公共卫生命令不适用于政府官员
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/801701/)
+## 2021/01/24 美国政要每日推特重要信息汇总
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/801933/)
 
-加拿大多伦多枫叶农场 Revelation119熙攘
-校对 晨熹
-发稿 云起时
-![]()![](https://gnews.org/wp-content/uploads/2021/01/medium.com-2-1.jpg)*图片来源：Medium.com*
-媒体人斯潘塞·费尔南多（SPENCER FERNANDO）1月21日在以他名字命名的加拿大新闻评论网站上，对最近曼尼托巴省（Manitoba）最高公共卫生官发表的“公共卫生命令不适用于各级政府“的言论做出评论：“至少他终于承认了所有显而易见的事情，即当权者希望我们遵守规则，而他们却不用。”
+编辑：Cathy
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/twitter_in_the_usa-1.jpg)
+**经授权转载自：**
 
-虽然普通加拿大人可能因违反公共卫生命令而面临逮捕、罚款和其他羞辱，但政客们却不会有此“待遇”。这些政客在违反政府命令被发现之后，只会作形式上的道歉，然后厚颜无耻地当作什么也没发生，不会受到任何惩罚。而最近，人们终于了解，这一切原本就是当前政府的设计。
+- 川普等政要…直译推twitter：[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
+- 川普等政要…直译推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
+- 川普等政要…直译推GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
 
-在最近一次新闻发布会上，曼省最高公共卫生官员布伦特·鲁森（Brent Roussin）医生口无遮拦地说，政府公共卫生命令不适用于各级政府官员，包括联邦政府、省级政府和市级政府官员。
 
-本文的批评并不是针对鲁森一个人，而应是那些真正执行这种说法的政客。面对政府公共卫生命令，这些政客豁免了自己的，至少和普通民众一样的责任，却用它来威胁其他所有普通加拿大人。这正是傲慢的精英主义“只许州官放火，不许百姓点灯”的终极体现。
+## 简评：
 
-这就是为什么政客们没有任何信誉基础和权力，要求对其他所有普通加拿大人进行限制的原因。在一个真正自由的国家，政府甚至不应该被允许有实行封锁的权力。而当前，这些当权政客证明了他们确实被过度授权。
+1月24日，现在参众议员们开始针对拜登的政策和美国现实存在的问题发表看法。人们都处在回看和观望的状态。
 
-评：
-当一个政府权力没有受到足够监督和约束，特别是政府与站在媒体背后的资本相勾结后，这种公仆掀翻主人，厚颜无耻地凌驾于人民之上的做法，对于我们这些来自于红色中共国的人来说是再熟悉不过。一边通过自己掌控的媒体不断给民众洗脑，一边使用不受约束的权力来威慑不明真相的群众，而政客们自己却可以不受约束地凌驾于规则之上。当他们的丑闻被曝光后，也最多就是以傲慢的“道歉“了之。
+## 参议员玛莎·布莱克本：
 
-斯潘塞·费尔南多说的对，最该被批评的人不应是“不小心说了实话”的鲁森，而应是那些真正执行这种说法的傲慢政客们。如果媒体被资本所收买，只为政府或利益集团发声，而不再履行它的监督职能，那么政府的权力就会变得越来越大，最终将失去控制，成为民主社会的灾难。可悲的是，当今社会大众似乎很难再从媒体上听到“皇帝新衣”中小孩子那“诚实而坦率“的声音。
+旅游生子业以帮助外国人违法获得美国国籍赚了数以千万元。 《禁止旅游生子法》将堵住外国人利用其穿越美国边界的漏洞。
 
-[原文链接](https://spencerfernando.com/2021/01/21/watch-manitobas-top-public-health-officer-says-public-health-orders-dont-apply-to-any-levels-of-government/)
 
+
+> The birth tourism industry makes millions helping foreigners break the law to gain American citizenship. The Ban Birth Tourism Act will eliminate loopholes that foreign nationals are exploiting to cross U.S. borders. [pic.twitter.com/MFbMCTyFL2](https://t.co/MFbMCTyFL2)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [January 23, 2021](https://twitter.com/MarshaBlackburn/status/1352825922425131009?ref_src=twsrc%5Etfw)
+
+
+
+## 众议员马特·盖兹：
+
+1．高科技寡头可以噤声美利坚合众国的总统。
+
+想象下他们可以对您干什么。
+
+【[附众议员马特·盖兹和吉姆·乔丹在福克斯新闻台与Hannitty的谈话节目内容](https://hannity.com/media-room/watch-gop-lawmakers-speak-out-against-big-tech-targeting-conservative-voices/)】
+
+
+
+> Big Tech silenced the President of the United States.
+> 
+> Just imagine what they could do to you.[https://t.co/wOaQvfHzJz](https://t.co/wOaQvfHzJz)
+> — Rep. Matt Gaetz (@RepMattGaetz) [January 23, 2021](https://twitter.com/RepMattGaetz/status/1352996510661713920?ref_src=twsrc%5Etfw)
+
+
+
+2．高科技寡头之所以针对保守派，是因为我们支持选举的诚信。
+
+【[附http://breitbart.com 新闻网的相关报道](https://www.breitbart.com/clips/2021/01/16/gaetz-incoming-biden-administration-want-to-use-national-security-authorities-against-maga/)】
+
+
+
+> Big tech is targeting conservatives because we stood up for election integrity.[https://t.co/mcQTYY4EfE](https://t.co/mcQTYY4EfE)
+> — Rep. Matt Gaetz (@RepMattGaetz) [January 23, 2021](https://twitter.com/RepMattGaetz/status/1353026961128341504?ref_src=twsrc%5Etfw)
+
+
+
+## 众议员兰斯·古登：
+
+乔·拜登的Keystone XL （撤销输油管道线）的决定毁掉：
+
+-11,000个美国工作
+
+-8,000个工会职位
+
+-16亿美元的工资
+
+同时，预计 #中国共产党 将在未来12年内每月建设2个大型燃煤电厂。
+
+#北京拜登 #BejingBiden
+
+
+
+> Joe Biden's Keystone XL decision destroyed:
+> 
+> –&gt; 11,000 U.S. jobs
+> 
+> –&gt; 8,000 union jobs 
+> 
+> –&gt; $1.6 billion in wages 
+> 
+> Meanwhile, communist China is projected to build 2 large coal plants a month for the next 12 years.[#BejingBiden](https://twitter.com/hashtag/BejingBiden?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Lance Gooden (@Lancegooden) [January 23, 2021](https://twitter.com/Lancegooden/status/1353024371783323648?ref_src=twsrc%5Etfw)
+
+
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
