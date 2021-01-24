@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国中共病毒死亡人数逼近10万
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/802959/)
+## 南宫市建成2600间临时治疗室
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/803297/)
 
 - 编辑：Victor Torres
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月24日电/西喜社——**英国正在扩大中共病毒疫苗接种计划，已有近600万人接种了两剂疫苗中的第一剂—尽管该国在这场流行病中的死亡人数接近10万。
+**西班牙2021年1月24日电/西喜社——**据新华社报道，在北京郊外的河北省南宫市已建成2600间临时治疗室，这些单人病房都配备了自己的暖气、厕所、淋浴和其他设施。
 
-卫生部长马特·汉考克（Matt Hancock）周日表示，英国四分之三的80岁以上老人已经接受了疫苗注射。他说，四分之三的养老院住户也已经打了第一针。截至周六，已经注射了近590万剂疫苗。
+由于河北距离首都较近，因此受到特别关注，该省已封锁大片地区，防止病毒进一步扩散。省会石家庄和包括南宫在内的邢台市已经基本被封锁。社区隔离和大规模检测也已经实施。
 
-卫生官员的目标是在2月15日前为1500万人接种疫苗，包括所有70岁以上的人。
+中共国家卫计委周日报告河北新增19例。远在东北的黑龙江省报告了另外29个病例，部分与一家肉类加工厂的疫情有关。北京约有200万居民被勒令接受新的检测，报告了两个新的确诊病例。
 
-英国已经记录了97,329名检测呈阳性的人死亡。周六又有1348人死亡，英国将在几天内成为世界上第五个记录10万中共病毒死亡的国家。
+据中共官方消息，中国目前有1800人因中共病毒接受治疗。
 
 **新闻来源：**[https://apnews.com/article/europe-coronavirus-pandemic-new-zealand-1b6085aa5fe229d4ad7caba33dd43cb9](https://apnews.com/article/europe-coronavirus-pandemic-new-zealand-1b6085aa5fe229d4ad7caba33dd43cb9)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/4b51458c-30e6-49c0-bfc3-5966a4e1cb33-24.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/a36f3511-97f1-4787-a61d-aa3ba411faf8-8.jpg)
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
