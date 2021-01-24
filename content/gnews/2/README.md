@@ -1,37 +1,107 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 麦康奈尔：拜登政府首日便朝错误的方向迈出了几大步！
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/802148/)
+## 白宫报告：川普政府的政绩——截至2021年1月（十二）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/802307/)
 
-翻译：康州盘古农场-Bruce
-校对：康州盘古农场-Mike Li
-审核：康州盘古农场-Antsee-GTV
+五月花写作组 ｜ 翻译：风云九霄（文萧） ｜ 校对：伞兵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告12.jpg)
+## **Part 12 – Serving and Protecting Our Veterans**
 
-![mike]()![mike](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-24-at-16.51.20-1.png)
+## **第十二部分：服务和保护我们的退伍军人**
 
-参议院共和党领袖[米奇·麦康奈尔(Mitch McConnell)](https://www.theepochtimes.com/t-mitch-mcconnell)周四表示，在拜登上任的第一天，[总统拜登](https://www.theepochtimes.com/t-joe-biden)的政府就在错误的方向上采取了措施。
+* * *
 
-“总统重新加入了失败的巴黎气候协议–这是一个可怕的交易，将使我们自食其果，给美国劳动家庭带来重大的经济痛苦，而无法保证中共或俄罗斯会履行其承诺。事实上，美国已经在减少碳排放，而中共和协议中的其他国家却在不断增加碳排放。重新加入只会让我们扼杀美国的就业机会，而我们的竞争对手却继续大摇大摆地违反协议。”麦康奈尔在华盛顿的参议院会议上说。
+### **Reformed the Department of Veterans Affairs (VA) to improve care, choice, and employee accountability.**
 
-“总统还单方面取消了Keystone XL输油管道。第一天的首要任务是杀死成千上万的美国工作岗位，包括工会工作，让我们强大的盟友加拿大失望，并扭转我们在能源安全方面的一些进展。这是加拿大自由派政府和总理特鲁多支持的项目。对北美能源的投资。甚至奥巴马国务院的结论是，它不会损害气候。但因为取消输油管项目只是感觉是维护环境的事情，所以新政府扼杀了这些工作机会。”
+### 改革了退伍军人事务部（VA），以改善医疗护理，选择范围和员工问责制。
 
-麦康奈尔还批评了发布大赦非法移民的提案和解雇国家劳动关系委员会独立总顾问的行为。
+- Signed and implemented the VA Mission Act, which made permanent Veterans CHOICE, revolutionized the VA community care system, and delivered quality care closer to home for Veterans.
+- 签署并实施了《 VA使命法案》，该法案使退伍军人获得永久性的选择，彻底改变了VA社区护理系统，并为退伍军人提供了离家更近的优质护理。
+- The number of Veterans who say they trust VA services has increased 19 percent to a record 91 percent, an all-time high.
+- 信赖VA服务的退伍军人数量增加了19％，达到创纪录的91％，为历史新高。
+- Offered same-day emergency mental health care at every VA medical facility, and secured $9.5 billion for mental health services in 2020.
+- 每家VA医疗机构提供当日紧急心理保健服务，并在2020年为心理保健服务筹资95亿美元。
+- Signed the VA Choice and Quality Employment Act of 2017, which ensured that veterans could continue to see the doctor of their choice and wouldn’t have to wait for care.
+- 签署了《 2017年VA选择与优质就业法案》，该法案确保退伍军人可以继续看望自己选择的医生，而不必排队等待。
+- During the Trump Administration, millions of veterans have been able to choose a private doctor in their communities.
+- 在川普政府执政期间，数百万退伍军人能够在其社区中选择私人医生。
+- Expanded Veterans’ ability to access telehealth services, including through the “Anywhere to Anywhere” VA healthcare initiative leading to a 1000 percent increase in usage during COVID-19.
+- 扩大了退伍军人访问远程医疗服务的能力，包括通过“Anywhere to Anywhere” VA医保计划，使COVID-19期间的使用率增加了1000％。
+- Signed the Veterans Affairs Accountability and Whistleblower Protection Act and removed thousands of VA workers who failed to give our Vets the care they have so richly deserve.
+- 签署了《退伍军人事务部问责与举报人保护法》，并解雇了数千名未能为我们退伍军人提供应有照顾的VA员工。
+- Signed the Veterans Appeals Improvement and Modernization Act of 2017 and improved the efficiency of the VA, setting record numbers of appeals decisions.
+- 签署了《2017年退伍军人上诉改善和现代化法案》，提高了VA效率，上诉裁决的数量创纪录。
+- Modernized medical records to begin a seamless transition from the Department of Defense to the VA.
+- 现代化的医疗记录从国防部到VA开始无缝过渡。
+- Launched a new tool that provides Veterans with online access to average wait times and quality-of-care data.
+- 推出了一个新工具，使退伍军人可以在线访问平均等待时间和护理质量数据。
+- The promised White House VA Hotline has fielded hundreds of thousands of calls.
+- 承诺的白宫VA热线已经接到了数十万个电话。
+- Formed the PREVENTS Task Force to fight the tragedy of Veteran suicide.
+- 成立了PREVENTS工作组，以应对退伍军人自杀的悲剧。
 
-“这不是美国工人应该得到的第一天，”他说，并补充道。”现在还为时过早。拜登总统有足够的时间记住，他的当选不归功于极左派。总统可以也应该将他的政府重点重新放在创造高薪的美国工作岗位上，而不是为了自由派的象征主义而牺牲我们的民生。参议院的共和党人将准备好、愿意并渴望帮助实现这一目标。”
 
-麦康奈尔是作为新一届国会期间首次以少数派领袖身份发言，此前民主党由于在本月早些时候赢得了佐治亚州参议院的两次第二轮选举，[翻转了参议院](https://www.theepochtimes.com/sen-chuck-schumer-becomes-new-senate-majority-leader_3664882.html)。
+### **Decreased veteran homelessness, improved education benefits, and achieved record-low veteran unemployment.**
 
-拜登周三上任后，签署了[一连串的行政命令](https://www.theepochtimes.com/biden-mandates-masks-rejoins-paris-climate-accord-among-other-executive-actions-on-first-day-in-office_3665064.html)，破坏了前总统川普的一些成就。
+### **减少了无家可归的退伍军人，改善了教育福利，并实现了创纪录的老兵低失业率。**
 
-参议院多数党领袖查克·舒默(Chuck Schumer)在麦康奈尔面前发言时，赞扬了拜登的任务。
+- Signed and implemented the Forever GI Bill, allowing Veterans to use their benefits to get an education at any point in their lives.
+- 签署并实施了《Forever GI Bill》，使退伍军人可以享受任何时候接受教育的福利。
+- Eliminated every penny of Federal student loan debt owed by American veterans who are completely and permanently disabled.
+- 为完全永久残疾的美国退伍军免去全部的联邦学生贷款债务。
+- Compared to 2009, 49 percent fewer veterans experienced homelessness nationwide during 2019.
+- 与2009年相比，2019年全国无家可归的退伍军人减少了49％。
+- Signed and implemented the HAVEN Act to ensure that Veterans who’ve declared bankruptcy don’t lose their disability payments.
+- 签署并实施了《HAVEN法案》，以确保宣布破产的退伍军人不会损失其伤残偿金。
+- Helped hundreds of thousands of military service members make the transition from the military to the civilian workforce, and developed programs to support the employment of military spouses.
+- 帮助数十万军人从军队过渡到文职人员，并制定了支持军人配偶就业的计划。
+- Placed nearly 40,000 homeless veterans into employment through the Homeless Veterans Reintegration Program.
+- 通过无家可归退伍军人重返社会的项目，近40,000名无家可归的退伍军人就业。
+- Placed over 600,000 veterans into employment through American Job Center services.
+- 通过美国就业中心服务，60万退伍军人就业。
+- Enrolled over 500,000 transitioning service members in over 20,000 Department of Labor employment workshops.
+- 在20,000多个劳工部就业研讨会上，招募了500,000多个处于过渡阶段的军人。
+- Signed an executive order to help Veterans transition seamlessly into the United States Merchant Marine.
+- 签署了一项行政命令，以帮助退伍军人无缝过渡到美国商船发展工作。
 
-“即使在庆典活动如火如荼的时候，我们的新总统和这个新的参议院也开始了重建我们的国家和愈合其伤口的工作。拜登总统挥笔一挥，就开始了美国重新加入巴黎协定的进程。他延长了暂停支付学生贷款的时间。结束了穆斯林旅行禁令，为我们国家的梦想家恢复了保障措施，并停止了无效的边境墙，”舒默说。
 
-“至关重要的是，拜登总统签署了一系列命令，将联邦政府的工作重点重新放在对抗冠状病毒大流行上。美国已经重新加入世界卫生组织。在所有的联邦财产领地内都必须戴上口罩。而拜登总统已经任命了一位新的冠状病毒应对协调员，负责管理疫苗的分发，这是非常需要的，而这项工作在川普政府时期是如此的失败。”
+* * *
 
-原文作者：扎卡里·斯蒂伯（Zachary Stieber）
+原文来源：
 
-原文链接：[https://www.theepochtimes.com/biden-administration-took-several-big-steps-in-wrong-direction-on-first-day-mcconnell\_3666058.html](https://www.theepochtimes.com/biden-administration-took-several-big-steps-in-wrong-direction-on-first-day-mcconnell_3666058.html)
+[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
+
+往期链接：
+
+[白宫报告：川普政府的政绩——截至2021年1月（一）](https://gnews.org/zh-hans/761018/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（二）](https://gnews.org/zh-hans/761213/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（三）](https://gnews.org/zh-hans/766962/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（四）](https://gnews.org/zh-hans/767022/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（五）](https://gnews.org/zh-hans/771076/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（六）](https://gnews.org/zh-hans/771727/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（七-1）](https://gnews.org/zh-hans/779811/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（七-2）](https://gnews.org/zh-hans/780079/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（八）](https://gnews.org/zh-hans/788066/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十一）](https://gnews.org/zh-hans/802251/)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)！
 
 0

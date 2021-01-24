@@ -1,95 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/01/24 美国政要每日推特重要信息汇总
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/801933/)
+## 麦康奈尔：拜登政府首日便朝错误的方向迈出了几大步！
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/802148/)
 
-编辑：Cathy
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/twitter_in_the_usa-1.jpg)
-**经授权转载自：**
+翻译：康州盘古农场-Bruce
+校对：康州盘古农场-Mike Li
+审核：康州盘古农场-Antsee-GTV
 
-- 川普等政要…直译推twitter：[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
-- 川普等政要…直译推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
-- 川普等政要…直译推GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
+![mike]()![mike](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-24-at-16.51.20-1.png)
 
+参议院共和党领袖[米奇·麦康奈尔(Mitch McConnell)](https://www.theepochtimes.com/t-mitch-mcconnell)周四表示，在拜登上任的第一天，[总统拜登](https://www.theepochtimes.com/t-joe-biden)的政府就在错误的方向上采取了措施。
 
-## 简评：
+“总统重新加入了失败的巴黎气候协议–这是一个可怕的交易，将使我们自食其果，给美国劳动家庭带来重大的经济痛苦，而无法保证中共或俄罗斯会履行其承诺。事实上，美国已经在减少碳排放，而中共和协议中的其他国家却在不断增加碳排放。重新加入只会让我们扼杀美国的就业机会，而我们的竞争对手却继续大摇大摆地违反协议。”麦康奈尔在华盛顿的参议院会议上说。
 
-1月24日，现在参众议员们开始针对拜登的政策和美国现实存在的问题发表看法。人们都处在回看和观望的状态。
+“总统还单方面取消了Keystone XL输油管道。第一天的首要任务是杀死成千上万的美国工作岗位，包括工会工作，让我们强大的盟友加拿大失望，并扭转我们在能源安全方面的一些进展。这是加拿大自由派政府和总理特鲁多支持的项目。对北美能源的投资。甚至奥巴马国务院的结论是，它不会损害气候。但因为取消输油管项目只是感觉是维护环境的事情，所以新政府扼杀了这些工作机会。”
 
-## 参议员玛莎·布莱克本：
+麦康奈尔还批评了发布大赦非法移民的提案和解雇国家劳动关系委员会独立总顾问的行为。
 
-旅游生子业以帮助外国人违法获得美国国籍赚了数以千万元。 《禁止旅游生子法》将堵住外国人利用其穿越美国边界的漏洞。
+“这不是美国工人应该得到的第一天，”他说，并补充道。”现在还为时过早。拜登总统有足够的时间记住，他的当选不归功于极左派。总统可以也应该将他的政府重点重新放在创造高薪的美国工作岗位上，而不是为了自由派的象征主义而牺牲我们的民生。参议院的共和党人将准备好、愿意并渴望帮助实现这一目标。”
 
+麦康奈尔是作为新一届国会期间首次以少数派领袖身份发言，此前民主党由于在本月早些时候赢得了佐治亚州参议院的两次第二轮选举，[翻转了参议院](https://www.theepochtimes.com/sen-chuck-schumer-becomes-new-senate-majority-leader_3664882.html)。
 
+拜登周三上任后，签署了[一连串的行政命令](https://www.theepochtimes.com/biden-mandates-masks-rejoins-paris-climate-accord-among-other-executive-actions-on-first-day-in-office_3665064.html)，破坏了前总统川普的一些成就。
 
-> The birth tourism industry makes millions helping foreigners break the law to gain American citizenship. The Ban Birth Tourism Act will eliminate loopholes that foreign nationals are exploiting to cross U.S. borders. [pic.twitter.com/MFbMCTyFL2](https://t.co/MFbMCTyFL2)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [January 23, 2021](https://twitter.com/MarshaBlackburn/status/1352825922425131009?ref_src=twsrc%5Etfw)
+参议院多数党领袖查克·舒默(Chuck Schumer)在麦康奈尔面前发言时，赞扬了拜登的任务。
 
+“即使在庆典活动如火如荼的时候，我们的新总统和这个新的参议院也开始了重建我们的国家和愈合其伤口的工作。拜登总统挥笔一挥，就开始了美国重新加入巴黎协定的进程。他延长了暂停支付学生贷款的时间。结束了穆斯林旅行禁令，为我们国家的梦想家恢复了保障措施，并停止了无效的边境墙，”舒默说。
 
+“至关重要的是，拜登总统签署了一系列命令，将联邦政府的工作重点重新放在对抗冠状病毒大流行上。美国已经重新加入世界卫生组织。在所有的联邦财产领地内都必须戴上口罩。而拜登总统已经任命了一位新的冠状病毒应对协调员，负责管理疫苗的分发，这是非常需要的，而这项工作在川普政府时期是如此的失败。”
 
-## 众议员马特·盖兹：
+原文作者：扎卡里·斯蒂伯（Zachary Stieber）
 
-1．高科技寡头可以噤声美利坚合众国的总统。
+原文链接：[https://www.theepochtimes.com/biden-administration-took-several-big-steps-in-wrong-direction-on-first-day-mcconnell\_3666058.html](https://www.theepochtimes.com/biden-administration-took-several-big-steps-in-wrong-direction-on-first-day-mcconnell_3666058.html)
 
-想象下他们可以对您干什么。
-
-【[附众议员马特·盖兹和吉姆·乔丹在福克斯新闻台与Hannitty的谈话节目内容](https://hannity.com/media-room/watch-gop-lawmakers-speak-out-against-big-tech-targeting-conservative-voices/)】
-
-
-
-> Big Tech silenced the President of the United States.
-> 
-> Just imagine what they could do to you.[https://t.co/wOaQvfHzJz](https://t.co/wOaQvfHzJz)
-> — Rep. Matt Gaetz (@RepMattGaetz) [January 23, 2021](https://twitter.com/RepMattGaetz/status/1352996510661713920?ref_src=twsrc%5Etfw)
-
-
-
-2．高科技寡头之所以针对保守派，是因为我们支持选举的诚信。
-
-【[附http://breitbart.com 新闻网的相关报道](https://www.breitbart.com/clips/2021/01/16/gaetz-incoming-biden-administration-want-to-use-national-security-authorities-against-maga/)】
-
-
-
-> Big tech is targeting conservatives because we stood up for election integrity.[https://t.co/mcQTYY4EfE](https://t.co/mcQTYY4EfE)
-> — Rep. Matt Gaetz (@RepMattGaetz) [January 23, 2021](https://twitter.com/RepMattGaetz/status/1353026961128341504?ref_src=twsrc%5Etfw)
-
-
-
-## 众议员兰斯·古登：
-
-乔·拜登的Keystone XL （撤销输油管道线）的决定毁掉：
-
--11,000个美国工作
-
--8,000个工会职位
-
--16亿美元的工资
-
-同时，预计 #中国共产党 将在未来12年内每月建设2个大型燃煤电厂。
-
-#北京拜登 #BejingBiden
-
-
-
-> Joe Biden's Keystone XL decision destroyed:
-> 
-> –&gt; 11,000 U.S. jobs
-> 
-> –&gt; 8,000 union jobs 
-> 
-> –&gt; $1.6 billion in wages 
-> 
-> Meanwhile, communist China is projected to build 2 large coal plants a month for the next 12 years.[#BejingBiden](https://twitter.com/hashtag/BejingBiden?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Lance Gooden (@Lancegooden) [January 23, 2021](https://twitter.com/Lancegooden/status/1353024371783323648?ref_src=twsrc%5Etfw)
-
-
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
