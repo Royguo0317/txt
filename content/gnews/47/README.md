@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新西兰报告两个多月来隔离设施外首例中共病毒病例
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/803251/)
+## 意大利將 “給予並保證第二劑”中共病毒疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/803327/)
 
-- 编辑：Victor Torres
+- 編輯：Victor Torres
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+***更多真相，請關註 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月24日电/西喜社——**新西兰报告了两个多月来在隔离设施之外的首例中共病毒病例，尽管没有直接证据表明该病毒正在社区中传播。
+**西班牙2021年1月24日電/西喜社——**意大利壹位部長表示，盡管輝瑞-生物技術疫苗的供應量意外減少，但意大利那些已經接受了第壹針抗中共病毒疫苗的人將接受第二針。
 
-卫生署署长阿什利·布卢姆菲尔德周日表示，该病例是一名最近从欧洲返回的56岁妇女。像其他返回的旅客，她经历了14天的隔离和两次测试阴性，然后在1月13日回家。后来她出现症状，检测结果呈阳性。
+輝瑞公司本月早些時候表示，它暫時減少了交付量，以便在比利時的工廠可以加緊生產。意大利地區事務部長弗朗切斯科·波西亞（Francesco Boccia）周日對天空TG24表示，將 “給予並保證第二劑”。
 
-布卢姆菲尔德说，卫生官员将进行基因组测试，但正在假设该病例是一种更易传播的病毒变种。他说，他们正在调查，看看是否可能她从同一检疫设施中另一个返回的旅客处感染了疾病。
+但制造商決定削減其供應計劃，這意味著意大利將不得不將旨在實現 “群體免疫 “的疫苗接種時間表推遲 “幾個星期或幾個月”，他說。意大利已經迅速推出了疫苗接種計劃，首先是醫護人員和養老院的住戶和工作人員，當輝瑞公司宣布削減疫苗供應時，意大利剛剛開始為80歲以上的老人接種疫苗。
 
-至少目前，新西兰已经消除了社区传播的病毒。布卢姆菲尔德说，官员们正在加紧联系追踪和测试工作，并希望在未来几天内有更多关于此病例的信息。
+博西亞說：”我們要求重新確定（疫苗交付）數量。”他的國家正在探索對制藥公司采取法律行動。截至周日上午，擁有6000萬人口的意大利已經註射了135萬支疫苗，其中7.5萬人已經接受了第二次註射。
 
-**新闻来源：**[https://apnews.com/article/europe-coronavirus-pandemic-new-zealand-1b6085aa5fe229d4ad7caba33dd43cb9](https://apnews.com/article/europe-coronavirus-pandemic-new-zealand-1b6085aa5fe229d4ad7caba33dd43cb9)
+**新聞來源：**[https://apnews.com/article/europe-coronavirus-pandemic-new-zealand-1b6085aa5fe229d4ad7caba33dd43cb9](https://apnews.com/article/europe-coronavirus-pandemic-new-zealand-1b6085aa5fe229d4ad7caba33dd43cb9)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/e90db881-2a81-4d4e-b826-c96decd4f16e-12.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1ec6a034-6e35-44b9-af95-e6dbbcd653b6-54.jpg)
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
