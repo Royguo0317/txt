@@ -1,75 +1,205 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【2021/01/19~23】新闻回顾
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/801937/)
+## 白宫报告：川普政府的政绩——截至2021年1月（十）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/802218/)
 
-台湾农场 新闻摘要组
+五月花写作组 ｜ 翻译：伞兵 ｜ 校对：紫丁香 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告10.jpg)
+### **Part – 10 Restoring American Leadership Abroad**
 
-国际
+### 第十部分：**重塑联邦司法**
 
-1. 俄国反对党领袖纳瓦尼去年八月受神经毒剂毒害，送往德国治疗恢复后，17日返俄即遭拘捕。俄国法院更于次日就在警局开审，纳瓦尼怒批：“毫无法治”可言。欧洲多国呼吁俄国释放纳瓦尼。（20210119自由时报电子报）
-2. 美国收入不平情况因COVID-19疫情，达到半世纪最高峰，美联储释放的利多解套持有股票最多的富人（比疫情前财富上升）25%工人阶级同比去年下降21%就业机会，服务业的冲击更是无法挽回的灾难。（20210119每日邮报）
+* * *
 
-簡評：
-美联储的政策基准利率降至零并放宽信贷条件，这神助攻肥了富人们。25%工人阶级年收入60000以上就业率恢复，25%工薪阶级就业率比去年低20%，扣除25%年薪不足27000，未来两个月将有三分之一缴不出房租、房贷失去抵押品而流落街头。一场流行病财富重新分配，让美国即将成为社会主义，多数人必须领福利才能过生活。全球奴役制不可或缺的元素“病毒”
-3. 匈牙利跟进波兰，针对脸书、推特等社交软体滥用言论审查机制，采取商业行为处罚、制裁。 匈牙利司法部长(Judit Varga)公开谴责社交媒体运用“”影子”技术”筛选讯息，限制了用户获取真实讯息、特定宗教或立场的发声，并呼吁欧盟一起针对社交媒体公司进行监管行动 。（20210119每日來電新聞）
-4. 美国前国务卿蓬佩奥接受福克斯新闻专访：
-(1) 基于仔细研究过既有事实后，做出认定“中共对新疆维吾尔族人犯下种族灭绝罪及反人类罪”决定。
-(2)判定中共犯下种族灭绝罪与反人类罪，是回应“美国国会去年12月27日通过立法，要求政府确认中共国在新疆的施政是否符合种族灭绝行为”。
-(3)更进一步呼吁：中共应立即释放所有在新疆被拘留的人，取消监控系统。结束集中营，立即停止软禁和强迫劳动。停止强制性的人口控制措施，包括强迫绝育，强迫流产，强迫节育和将儿童带离家庭等等反人类罪。（20210120大紀元）
-5. 美联邦众议员针对“新疆人权问题”出台一项法案，要求“把中共定义为跨国性有组织犯罪集团”，而“应对中共当前危险委员会”（CPDC）副主席盖夫尼发表声明表示：中共的罪行证据，除新疆种族灭绝问题外，Covid-19（中共病毒）的中国实验室以及对信仰者和异议人士进行活摘器官、干预美国大选等。建议川普总统应将中共指定为“跨国性犯罪组织”。（2021/01/20 新唐人亞太台）
-6. 中国驻美国大使馆的推特帐号，因中共被指违犯下灭绝种族及反人类罪而遭到推特封锁。
-7. 拜登宣誓典礼后，美国天主教主教大会USCCB发布声明警告教徒“拜登政府拥有极端反天主教政策议程”。 天主教教宗方济各简短没有针对性的向拜登表示祝贺并以上帝之名指导他的努力。（2021/1/21《The FEDERALIST》）
-8. 拜登政府官员承袭川普对中立场强硬，如国务卿布林肯、财政部长叶伦及情报总监海恩斯，在疫情、人权、贸易上谴责中共，视其为威胁。（2021/01/21自由時報）
-簡評：
-美国政府换届之际，二党终将以美国利益为优先，枪口一致对外。
-9. 拜登上任，传将寻求与俄罗斯达成延长新战略武器裁减条约期限。此条约除了弹头数量也限制陆基和潜射飞弹以及载运这些飞弹的轰炸机的数量。本条约是在2010年欧巴马任内签署，生效日为2012年2月5日，条约有效期为十年，并可以延期五年。（2021/01/22自由時報）
-10. 伊拉克首都巴格达发生两起自杀式炸弹攻击，目前统计死亡人数32人，110人受伤。伊拉克官方表式是伊斯兰国组织所为，引发人们对恐怖组织ISIS（伊斯兰国）卷土重来的担忧。（2021/01/22大紀元）
-11. 日本首相菅义伟敦将促美国总统拜登（Joe Biden）保持美国对“自由开放的印度太平洋地区”承诺，力求遏制中共在该地区日益增长的威胁，同时促进基于法治的国际秩序。在国防方面，菅义伟将敦促拜登继续与澳大利亚和印度进行四方安全对话，以遏制北京在东海和南海的挑衅。（2021/01/22大紀元）
-12. 欧洲议会通过有关香港决议，谴责北京打压香港民主派人士，要求欧盟对中国大陆与香港相关人员进行制裁，并称会仔细审议中欧投资协议，在表决时考虑中国人权状况。决议也敦促港府立即无条件释放年初被捕的民主派人士、所有因涉及违反“港版国安法”中“颠覆国家政权罪”而被拘留的人士，以及所有因政治动机而被捕的和平示威者、社运人士及反对派成员。（2021/01/22聯合報）
+**Restored America’s leadership in the world and successfully negotiated to ensure our allies pay their fair share for our military protection. **
 
+**恢复了美国在世界上的领导地位，并成功地进行了谈判，以确保我们的盟国为我们的军事保护支付合理份额。**
 
-中共
+• Secured a $400 billion increase in defense spending from NATO (North Atlantic Treaty Organization) allies by 2024, and the number of members meeting their minimum obligations more than doubled.
 
-1. 四川师大教授庹继光离奇坠楼亡，2020年10月实名举报官员暴力强拆公民合法房产。从2011年起就受拆迁人员用威胁、围堵、职场施压、网路造谣诽谤等方式，强逼与之签立合约。2009年起唐福珍女士事件之后，庹教授事件也引起人民对于非法强拆的高度关注。（20210119自由亞洲電台）
-2. 中共祭出防疫政策，所有返乡民众需有7日内的核酸检测证明，还要居家隔离14日，隔离期间每7日再做1次核酸检测，网民纷份表示：此举摆明不让思乡心切的民众回家过年。（2021/01/22大紀元）
-3. 中共外交部制裁美前总统川普政府28名官员，曾于去年访台的美国务次卿发推文表示不该屈服中共恶霸，将中共制裁视为荣誉徽章。（2021/01/22自由時報）
-4. 中国疫情不断升级，22日新增107例确诊，一位67岁男性竟在“采检11次”后才被确诊。民众纷纷议论检测品质。（2021/01/23自由時報）
-5. 大陆女星代孕事件突显出中共国一胎化政策的问题。CNN指出一关键：中国仅禁止医疗机构和技术人员禁止实施代孕，但并无禁止个人委托代孕服务或于境外委托代孕。（2021/01/23東森新聞網）
+-北大西洋公约组织（NATO）盟国确保到2024年增加4000亿美元的国防开支，同时履行最低义务的成员国数量增加一倍以上。
 
+• Credited by Secretary General Jens Stoltenberg for strengthening NATO.
 
-台灣
+– 因使北约强大而受到秘书长斯托尔滕贝格（Jens Stoltenberg）的赞誉。
 
-1. 台湾驻港办事处因拒签“一中原则”切结书，工作签证无法续签，在港府要求限期离境下，被迫返台。剩下12台人继续服务港台民众，不知道能服务到什么时侯，也可能变成【人质】。（2021/01/20蘋果日報 ）
-2. 台湾驻美代表萧美琴获邀参加美国总统就职，为1979年两国断交后40年来首例。 
-簡評：
-台湾获邀参与美国总统就职，是美对台友好政策的推进，可见灭共反共为美国的国家大方向。
-3. 欧洲议会在台湾时间21日，高票通过“连结性及欧亚关系”此决议文指出向台湾与纽西兰等成功控制疫情的理念相近伙伴学习。力倡欧盟与台湾进行连结合作的必要性，决议文中也提到，吁请欧盟执委会就台欧盟双边投资协定（BIA）开启范畴界定（scoping exercise）及风险评估（impact assessments）作业，与台湾启动投资谈判。（2021/01/22大紀元）
-4. 美媒《彭博》报导2021年影响国际局势重要的8位人士，包括有台湾驻美代表萧美琴。拜登政府表示对台湾友好，将有进一步合作。（2021/01/22自由時報）
-5. 美首位非裔国防部长奥斯汀，曾在听证会中承诺确保台湾拥有自我防卫能力。 补充：
-(1)根据美国法律，担任国防部长需退役满七年以上。 
-(2)参议院21日通过豁免退役军人接掌国防部需退役满七年的规定。 
-(3)2016退役的四星上将奥斯汀22日以大比数93:2通过成为国防部长。 
-(4)毕业于西点军校67岁的奥斯汀曾领导过美军中央指挥部，曾参与阿富汗、伊拉克等战争。
-(2021/01/23自由時報)
-6. 台湾驻美代表处长萧美琴，受邀美国就职有3大原因：
-第一，台美同为自由民主国家、伙伴。 
-第二，萧美琴是外交老兵，有台湾高层政治经验、民代经验，能与美国“民主、自由”接轨。
-（2021/01/23自由時報）
-7. 日本台湾交流协会今日在台北101大楼举行点灯活动，见证台日友谊。今年为日本311大地震十周年，预计于3月10-21日于华山文创园区举行一连串活动。
-8. 台湾国内研发“飞鼠”、“玉山”两颗【立方卫星】原本预计今日由SpaceX的猎鹰九号火箭搭载升空，因天气影响延至24日晚上发射。“飞鼠”卫星主要提升GPS品质，“玉山”卫星则是能追踪船只航行轨迹，增进交通安全。（2021/01/23聯合新聞網）
+• Worked to reform and streamline the United Nations (UN) and reduced spending by $1.3 billion. • Allies, including Japan and the Republic of Korea, committed to increase burden-sharing.
 
+– 致力于改革和精简联合国，减少了13亿美元的开支。- 包括日本和韩国在内的盟友已承诺增加责任分担。
 
-疫情（变种病毒）
+• Protected our Second Amendment rights by announcing the United States will never ratify the UN Arms Trade Treaty.
 
-1. 新型英国变种病的传播率和致死率都高于旧病毒。
-2. 英国BBC报道，英国目前有3种变种病毒令人关切:
-(1)第一种传播性最高，目前已超过50过国家发现此病毒。 
-(2)另两种病毒分别是南非变种病毒和巴西变种病毒。 
-(3)英国政府首席科学顾问瓦朗斯表示：“新型变种病毒，不分族群，传播速度快且所有年龄都有可能传染”。 
-(4)英首相强生表示，这次疫情高峰期比第一波高出78%。 
-(2021/01/23中央社)
+-通过宣布美国永远不会批准《联合国武器贸易条约》来保护我们的第二修正案权利。
 
+• Returned 56 hostages and detainees from more than 24 countries.
+
+-从超过24个国家接回了56名人质和被拘留者。
+
+• Worked to advance a free and open Indo-Pacific region, promoting new investments and expanding American partnerships.
+
+– 致力于推动印太地区的自由和开放，促进新的投资以及扩大美国的伙伴关系。
+
+**Advanced peace through strength. **
+
+**通过实力推进和平**。
+
+• Withdrew from the horrible, one-sided Iran Nuclear Deal and imposed crippling sanctions on the Iranian Regime.
+
+– 退出了可怕的，单方的《伊朗核协议》，并对伊朗政权实施了严厉的制裁。
+
+• Conducted vigorous enforcement on all sanctions to bring Iran’s oil exports to zero and deny the regime its principal source of revenue.
+
+– 严格执行所有制裁措施，使伊朗的石油出口为零，从而断绝了伊朗政权财政收入的主要来源。
+
+• First president to meet with a leader of North Korea and the first sitting president to cross the demilitarized zone into North Korea.
+
+– 成为了第一个与朝鲜领导人会面的总统，也是第一个通过穿越非军事区进入朝鲜的现任总统。
+
+• Maintained a maximum pressure campaign and enforced tough sanctions on North Korea while negotiating de-nuclearization,the release of American hostages, and the return of the remains of American heroes.
+
+– 保持最大限度的施压运动，并对朝鲜实施严厉制裁，同时就无核化、释放美国人质和归还美国英雄遗骸进行谈判。
+
+• Brokered economic normalization between Serbia and Kosovo, bolstering peace in the Balkans.
+
+– 斡旋塞尔维亚和科索沃之间的经济正常化，促进了巴尔干地区的和平。
+
+• Signed the Honk Kong Autonomy Act and ended the United States’ preferential treatment with Hong Kong to hold China accountable for its infringement on the autonomy of Hong Kong.
+
+– 签署《香港自治法》，终止美国对香港的优惠待遇，追究中国侵犯香港自治权的责任。
+
+• Led allied efforts to defeat the Chinese Communist Party’s efforts to control the international telecommunications system.
+
+– 率领盟军粉碎中共控制国际电信系统的企图。
+
+**Renewed our cherished friendship and alliance with Israel and took historic action to promote peace in the Middle East. **
+
+**重申了我们与以色列的珍贵友谊和联盟关系，并采取了促进中东和平的历史性行动。**
+
+• Recognized Jerusalem as the true capital of Israel and quickly moved the American Embassy in Israel to Jerusalem.
+
+– 承认耶路撒冷是以色列的真正首都，并迅速将美国驻以色列大使馆迁往耶路撒冷。
+
+• Acknowledged Israel’s sovereignty over the Golan Heights and declared that Israeli settlements in the West Bank are not inconsistent with international law.
+
+– 承认以色列对戈兰高地的主权，宣布以色列在西岸的定居点并不违反国际法。
+
+• Removed the United States from the United Nations Human Rights Council due to the group’s blatant anti-Israel bias.
+
+– 美国从联合国人权理事会中退出，因为该组织公然的反以色列偏见。
+
+• Brokered historic peace agreements between Israel and Arab-Muslim countries, including the United Arab Emirates, the Kingdom of Bahrain, and Sudan.
+
+– 在以色列与阿拉伯-穆斯林国家，包括阿拉伯联合酋长国、巴林王国和苏丹之间促成了历史性的和平协议。
+
+• Brokered a deal for Kosovo to normalize ties and establish diplomatic relations with Israel.
+
+– 为科索沃与以色列的关系正常化以及建交斡旋。
+
+• Announced that Serbia would move its embassy in Israel to Jerusalem.
+
+– 宣布塞尔维亚将把其驻以色列大使馆迁往耶路撒冷。
+
+• First American president to address an assembly of leaders from more than 50 Muslim nations, and reach an agreement to fight terrorism in all its forms.
+
+– 第一个在50多个穆斯林国家领导人集会上发表讲话的美国总统，并达成了打击一切形式恐怖主义的协议。
+
+• Established the Etidal Center to combat terrorism in the Middle East in conjunction with the Saudi Arabian Government.
+
+– 与沙特阿拉伯政府合作，成立了打击中东恐怖主义的 “伊蒂达中心”。
+
+• Announced the Vision for Peace Political Plan – a two-state solution that resolves the risks of Palestinian statehood to Israel’s security, and the first time Israel has agreed to a map and a Palestinian state.
+
+– 宣布 “和平愿景政治计划”- 解决巴勒斯坦建国给以色列安全带来风险的两国解决方案，也是以色列首次认可一个地图和一个巴勒斯坦国。
+
+• Released an economic plan to empower the Palestinian people and enhance Palestinian governance through historic private investment.
+
+– 发布了一项经济计划，通过历史性的私人投资，赋予巴勒斯坦人民实力，增强巴勒斯坦的治理。
+
+**Stood up against Communism and Socialism in the Western Hemisphere. **
+
+**站出来反对西半球的共产主义和社会主义。**
+
+• Reversed the previous Administration’s disastrous Cuba policy, canceling the sellout deal with the Communist Castro dictatorship.
+
+– 扭转了上届政府灾难性的古巴政策，取消了与共产主义卡斯特罗独裁政权的卖国交易。
+
+• Pledged not to lift sanctions until all political prisoners are freed; freedoms of assembly and expression are respected; all political parties are legalized; and free elections are scheduled.
+
+– 承诺在所有政治犯获释、集会和言论自由得到尊重、所有政党合法化和自由选举之前不撤销制裁。
+
+• Enacted a new policy aimed at preventing American dollars from funding the Cuban regime, including stricter travel restrictions and restrictions on the importation of Cuban alcohol and tobacco.
+
+– 颁布了一项新政策，旨在防止美元为古巴政权提供资金，包括更严格的旅行限制和对古巴烟酒进口的限制。
+
+• Implemented a cap on remittances to Cuba.
+
+– 实施向古巴汇款的上限。
+
+• Enabled Americans to file lawsuits against persons and entities that traffic in property confiscated by the Cuban regime.
+
+– 使美国人能够对非法买卖古巴政权没收财产的个人和实体提起诉讼。
+
+• First world leader to recognize Juan Guaido as the Interim President of Venezuela and led a diplomatic coalition against the Socialist Dictator of Venezuela, Nicolas Maduro.
+
+– 第一个承认胡安-瓜伊多为委内瑞拉临时总统的世界领导人，并领导了反对委内瑞拉社会主义独裁者尼古拉斯-马杜罗的外交联盟。
+
+• Blocked all property of the Venezuelan Government in the jurisdiction of the United States.
+
+– 冻结了委内瑞拉政府在美国管辖范围内的所有财产。
+
+• Cut off the financial resources of the Maduro regime and sanctioned key sectors of the Venezuelan economy exploited by the regime.
+
+– 切断马杜罗政权的财政资源，制裁被马杜罗政权利用的委内瑞拉关键经济部门。
+
+• Brought criminal charges against Nicolas Maduro for his narco-terrorism.
+
+对尼古拉斯-马杜罗的毒品恐怖主义行为提起刑事指控。
+
+• Imposed stiff sanctions on the Ortega regime in Nicaragua.
+
+– 对尼加拉瓜的奥尔特加政权实施严厉制裁。
+
+• Joined together with Mexico and Canada in a successful bid to host the 2026 FIFA World Cup, with 60 matches to be held in the United States.
+
+– 与墨西哥和加拿大一起成功申办2026年世界杯，其中60场比赛将在美国举行。
+
+• Won bid to host the 2028 Summer Olympics in Los Angeles, California.
+
+– 成功申请举办2028年加州洛杉矶夏季奥运会。
+
+* * *
+
+原文来源：[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
+
+往期链接：
+
+[白宫报告：川普政府的政绩——截至2021年1月（一）](https://gnews.org/zh-hans/761018/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（二）](https://gnews.org/zh-hans/761213/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（三）](https://gnews.org/zh-hans/766962/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（四）](https://gnews.org/zh-hans/767022/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（五）](https://gnews.org/zh-hans/771076/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（六）](https://gnews.org/zh-hans/771727/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（七-1）](https://gnews.org/zh-hans/779811/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（七-2）](https://gnews.org/zh-hans/780079/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（八）](https://gnews.org/zh-hans/788066/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)！
 
 0

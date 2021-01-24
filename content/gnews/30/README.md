@@ -1,205 +1,318 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫报告：川普政府的政绩——截至2021年1月（十）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/802218/)
+## 【每日快报 】拜登认同川普政府认定中共犯有种族灭绝罪 2021.1.24.
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/802441/)
 
-五月花写作组 ｜ 翻译：伞兵 ｜ 校对：紫丁香 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告10.jpg)
-### **Part – 10 Restoring American Leadership Abroad**
+** 作者：**冰川
 
-### 第十部分：**重塑联邦司法**
 
-* * *
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/01081922/%E6%AF%8F%E6%97%A5%E5%BF%AB%E6%8A%A5.png)
 
-**Restored America’s leadership in the world and successfully negotiated to ensure our allies pay their fair share for our military protection. **
 
-**恢复了美国在世界上的领导地位，并成功地进行了谈判，以确保我们的盟国为我们的军事保护支付合理份额。**
 
-• Secured a $400 billion increase in defense spending from NATO (North Atlantic Treaty Organization) allies by 2024, and the number of members meeting their minimum obligations more than doubled.
 
--北大西洋公约组织（NATO）盟国确保到2024年增加4000亿美元的国防开支，同时履行最低义务的成员国数量增加一倍以上。
+# ***今日摘要***
 
-• Credited by Secretary General Jens Stoltenberg for strengthening NATO.
+1. 台湾报道中国空军大规模入侵
+2. 拜登认同川普政府认定中共犯有种族灭绝罪
+3. 与拜登有关联的世卫组织顾问称COVID-19 “很可能 “从武汉实验室泄密 “
+4. 纽约市54个邮编的冠状病毒阳性率超过10%
 
-– 因使北约强大而受到秘书长斯托尔滕贝格（Jens Stoltenberg）的赞誉。
 
-• Worked to reform and streamline the United Nations (UN) and reduced spending by $1.3 billion. • Allies, including Japan and the Republic of Korea, committed to increase burden-sharing.
+# 重要事件
 
-– 致力于改革和精简联合国，减少了13亿美元的开支。- 包括日本和韩国在内的盟友已承诺增加责任分担。
+- **1.23. Gnews** [台湾报道中国空军大规模入侵](https://gnews.org/zh-hans/798933/) 台湾国防部周六表示, 8架中国轰炸机和4架战斗机周六进入台湾防空识别区西南角，台湾空军部署了导弹“监控”了此次入侵。中国一直以来宣称台湾为其的领土的一部分，近几个月来，中国方面几乎每天在台湾南部和南中国海台湾控制的东沙群岛之间的水域上进行飞行。但这些飞行通常只由一两架侦察机组成。在这次任务中出现了如此多的中国战斗机，台湾方面表示，一共有8架具有核能力的H-6K轰炸机和4架J-16战斗机，是不寻常的。台湾国防部提供的地图显示，一架中国的Y-8反潜机，同时飞越了中国近期在东沙群岛附近执行任务的同一海域，尽管距离台湾大陆很远。台湾空军向中国飞机发出警告，并部署了导弹对其进行监测，并使用标准措辞说明表达如何应对此类活动。该部在一份简短的声明中说，”已派出空中预警机，发出无线电警告，并部署防空导弹系统监测这些活动”。中国方面对此没有立即发表评论。之前中国曾表示一直在进行演习，以捍卫国家的主权和安全。
+- **1.23. Gnews** [拜登认同川普政府认定中共犯有种族灭绝罪](https://gnews.org/zh-hans/800053/) 前国务卿迈克·蓬佩奥在上任的最后一天，公布了关于中共犯下反人类罪和 “对以穆斯林为主的维吾尔族进行种族灭绝 “的认定。几小时内，蓬佩奥的继任者安东尼·布林肯（Antony Blinken）在参议院外交关系委员会的提名听证会上被问及是否同意国务院的声明时，他表示:”这也是我的判断，”他说。”强迫男人、女人和儿童进入集中营，试图在实际上重新教育他们成为中共的信徒—所有这些都说明其实施种族灭绝的行为。”白宫新闻秘书普萨基（Jen Psaki）周五回避了关于政府在这一问题上立场的问题，但提到了拜登之前称中共对待维吾尔人 “可怕 “的言论。就在蓬佩奥宣布新疆地区事件为种族灭绝的同一天，美国国土安全部的一名官员说，该部总顾问办公室已经得出了与国务院相同的结论，并将采取适当措施。拜登内阁的几位成员已经公开谴责中共针对维吾尔人的行动。财政部候任部长珍妮特·耶伦（Janet Yellen）称中共国是 “我们最重要的战略竞争对手”，同时也指责中共国 “可怕的侵犯人权行为”。
+- **1.23. Zerohedge** [“这一切都是谎言”: 与拜登有关联的世卫组织顾问称COVID-19 “很可能 “从武汉实验室泄密 “It Was All A Lie”: Biden-Linked WHO Adviser Says COVID-19 ‘Likely’ Leaked From Wuhan Lab](https://www.zerohedge.com/covid-19/it-was-all-lie-biden-linked-who-adviser-says-covid-19-likely-leaked-wuhan-lab) 一位曾在克林顿总统和当时的参议员乔-拜登手下工作的世界卫生组织（世卫组织）顾问打破了他对COVID-19大流行病起源的沉默。杰米-梅茨尔–曾在拜登手下担任外交关系委员会副参谋长（2001-2003），此前曾在克林顿手下的国家安全委员会（1997-1999）和国务院（1999-2001）任职，直到拜登就职三天后才告诉《多伦多太阳报》，他认为COVID-19很可能是武汉实验室的意外泄漏。”没有无可辩驳的证据，”出生于堪萨斯州的梅茨尔说，他是大西洋理事会的高级研究员，2019年被任命为世卫组织人类基因组编辑专家咨询委员会成员。”只是有更多的证据，随着更多证据的到来，在我看来，实验室意外泄漏的情况会增加。” 这一切都引出了一个简单的问题，如果一个在民主党总统时期在政府高层运作的大西洋理事会高级研究员，在拜登就职三天后，突然 “出面 “提出武汉实验室泄密论，官方的说法是否要改变？
+- **1.23. Breitbart News **[纽约市54个邮编的冠状病毒阳性率超过10% Coronavirus Positivity Rate Passes Ten Percent in 54 NYC Zip Codes](https://www.breitbart.com/health/2021/01/23/coronavirus-positivity-rate-passes-ten-percent-in-54-nyc-zip-codes/) 根据纽约市周五提供的数据，纽约市部分地区的冠状病毒检测阳性率已经达到百分之十以上。数据显示，全市177个邮编中，有54个邮编的阳性检测率达到了百分之十以上，而在感恩节前一周，全市有40个邮编的阳性检测率超过了百分之四。这些比率远远低于去年春天的积极率，但比10月21日高得多，当时纽约民主党州长安德鲁-库默宣布，他将锁定任何积极率高于4%的街区。当全州的病例数在假期中飙升时，卫生官员根据医院能力的指标指定了 “红色区域”。与此同时，本周的病例、住院人数和死亡人数都有所增加，纽约市平均有67名居民死于病毒，而库默在10月宣布封锁措施时只有6人。南布鲁克林是全市阳性率最高的地区，根据市府数据，仅在过去一周，11235邮编中就有17.6%的人检测出冠状病毒阳性。根据州卫生局周五公布的数据，截至周五，纽约州已有超过33763名居民死于冠状病毒。
 
-• Protected our Second Amendment rights by announcing the United States will never ratify the UN Arms Trade Treaty.
 
--通过宣布美国永远不会批准《联合国武器贸易条约》来保护我们的第二修正案权利。
+# 每日文贵说
 
-• Returned 56 hostages and detainees from more than 24 countries.
 
--从超过24个国家接回了56名人质和被拘留者。
+![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/01/1-2-1024x576.jpg)
+# 文贵直播和盖特
 
-• Worked to advance a free and open Indo-Pacific region, promoting new investments and expanding American partnerships.
+### 直播：
 
-– 致力于推动印太地区的自由和开放，促进新的投资以及扩大美国的伙伴关系。
+2021年1月23日文贵直播：以共灭共大时代到来，习，王，江，胡四派斗争白热化公开化，关注台湾，感谢前线战友的付出
+![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/01/2-2.png)[https://gtv.org/video/id=600c3144dad90a755d55f499](https://gtv.org/video/id=600c3144dad90a755d55f499)
+**郭先生****1月23日直播精要文字版**
 
-**Advanced peace through strength. **
+G-News编辑部听写组：369文驹、Dolores、GForever文紫
 
-**通过实力推进和平**。
 
-• Withdrew from the horrible, one-sided Iran Nuclear Deal and imposed crippling sanctions on the Iranian Regime.
+1. 00: 06:00 全国各地汽车鸣笛，这就是爆料革命的力量。140万战友就能把CCP给灭了，如何将战友的力量在同一时间、同一地点、同一形式合法安全的爆发，将是未来最重要的一件事。从昨天到今天，爆料革命在中国已经不是萌芽状态，它已经形成了巨大的可联合作战的数量。爆料革命已经深入14亿同胞生活领域和任何地方。
 
-– 退出了可怕的，单方的《伊朗核协议》，并对伊朗政权实施了严厉的制裁。
 
-• Conducted vigorous enforcement on all sanctions to bring Iran’s oil exports to zero and deny the regime its principal source of revenue.
+- 00:10:00动物世界、人类世界、还有地球之外的世界都是有规矩的，只要找到规矩的密码，撬动的自然的力量都是无法想象的。念力、人类的力量可以改变一切。当狮子老和病的时候，一家人会把它干掉。
 
-– 严格执行所有制裁措施，使伊朗的石油出口为零，从而断绝了伊朗政权财政收入的主要来源。
 
-• First president to meet with a leader of North Korea and the first sitting president to cross the demilitarized zone into North Korea.
+- 00:13:00  Larry King播音界教父级的人物，爆料革命开始后被CCP几千美金收买，被俄罗斯一个女主持编辑伪造视频来黑文贵。他是代表着美国政府提前做铺垫的一种声音，在西方世界里影响非常大。结果他黑文贵后，他的两个孩子莫名其妙的得病死了，他老人家现在也走了。他被自己的狮子王国给围猎了。
 
-– 成为了第一个与朝鲜领导人会面的总统，也是第一个通过穿越非军事区进入朝鲜的现任总统。
 
-• Maintained a maximum pressure campaign and enforced tough sanctions on North Korea while negotiating de-nuclearization,the release of American hostages, and the return of the remains of American heroes.
+- 00:16:00 我佩服动物界优胜劣汰的机制，所有的生物都是有规矩的，生物链都是上天设定的。生命有生有灭，但是没有死，只是不同形式的延续。人类的贪嗔痴慢疑是最大的问题，人类必须有信仰，通过信仰人类达到不生不灭。
 
-– 保持最大限度的施压运动，并对朝鲜实施严厉制裁，同时就无核化、释放美国人质和归还美国英雄遗骸进行谈判。
 
-• Brokered economic normalization between Serbia and Kosovo, bolstering peace in the Balkans.
+5. 00:19:00 路德访谈说开启了以共灭共的新时代，这个定义非常好。我们爆料革命路德访谈时时刻刻在左右着中国的政治和政局。以前国内政治势力以外打内，都是靠在海外欺民贼编造的信息作为证据在党内斗争，现在变了，都是靠爆料革命、GTV、G-News、路德访谈和战友的信息。
 
-– 斡旋塞尔维亚和科索沃之间的经济正常化，促进了巴尔干地区的和平。
+6. 00:21:00 CCP四派相斗，江派是不可能在短期内消除的。据说昨天各派和其他国家，来观察老病的没有战斗力的狮子。习表示目前形式虽然危险，但是可控，2025、2035、2049计划完全有望提前达成，但首先是要打台湾。以前王岐山绝对不掺合军事，结果发现其在军队有人；胡派也有军方的人；江派绝对是军方老大而不是习。所谓的调整方案就是将王、胡、江在军中关联的人都送到前线去，效仿当年朝鲜战争的做法。
 
-• Signed the Honk Kong Autonomy Act and ended the United States’ preferential treatment with Hong Kong to hold China accountable for its infringement on the autonomy of Hong Kong.
+7. 00:27:00听说在苏州，江、王的密谋被习掌握了。现在习派的成员就是栗战书、许其亮、丁薛祥、习远平和几个年轻的副总参谋长。如果习有问题，汪洋、胡春华、韩正、丁薛祥最厉害，把这几个人派到对台作战去，这招儿厉害了。
 
-– 签署《香港自治法》，终止美国对香港的优惠待遇，追究中国侵犯香港自治权的责任。
+8. 00:30:00爆料革命唯真不破，我们所说的每句话都是战友用生命和鲜血换来的。
 
-• Led allied efforts to defeat the Chinese Communist Party’s efforts to control the international telecommunications system.
+从昨天到今天你们很难想象每分每秒经历了什么,多少个彤宝国事件这样悲凉的故事在发生。昨天，这四派的分裂已成定局，其中两派一定会被消灭或者四派之争愈演愈烈，分裂、残杀已成定局，八宝山的炉子一定会用上。我们正在从事着全人类都不敢做的事情，请大家持续关注苏州。从路德访谈爆出习脑袋做手术那天起，狮子的厮杀已经全面开始，没人可以停止这场内部的残杀。鹿死谁手，定在台湾。
 
-– 率领盟军粉碎中共控制国际电信系统的企图。
+9. 00:35:00 我们现在一边看着国际形势，一边盯着台湾、八宝山、苏州、上海。这次爆料革命战友付出了代价。现在有战友想做GTV股权转让，我们正在跟政府部门申请还未回复，回复后由喜马拉雅联盟委员会公布。战友投资GTV的钱在自愿、安全的情况下都可以退回，我们现在希望跟政府沟通给这些投资被骗、被威胁的人通过合法的途径给予适当的奖励，甚至叫补偿，我们在探讨方案。
 
-**Renewed our cherished friendship and alliance with Israel and took historic action to promote peace in the Middle East. **
+10. 00:46:00  CCP最怕的就是G系列的强大，灭爆小组换了好几批了，灭着灭着变成了爱爆小组，最后到保爆小组，因为他们是人。CCP连GTV、G-News、郭文贵、路德访谈都怕，那他还有执政能力吗？！就是因为我们的懦弱、无知、贪婪，才让CCP摆弄了14亿人70年。爆料革命决不会被招安。中南坑就是一个豪华监狱，喝着人血的管理体制，每个人都是精神和身体不健康。
 
-**重申了我们与以色列的珍贵友谊和联盟关系，并采取了促进中东和平的历史性行动。**
+11. 00:53:00  现在是以共灭共的大时代，是以共灭共、以美灭共两手抓的时代，我们一定要盯住。再次强调，爆料革命不向任何人承诺灭共的时间。还有凡是投资G系列感觉到不安全的战友，赶紧申请退款。另外，我们现在壮大和发展G系列，是新中国联邦的重中之重,开展以共灭共发展G系列，强大新中国联邦和世界上各个灭共势力的联合，让战友有真正的强大实力，能跟沼泽地里有更大的话语权和交易的资源，这是我们现在最重要的。
 
-• Recognized Jerusalem as the true capital of Israel and quickly moved the American Embassy in Israel to Jerusalem.
+12. 00:55:00 我们继续等待八宝山、苏州、上海传来的好消息，文贵再次向国内战友说你们做的事情是世界上最伟大的，新中国联邦人永远不会忘记!
 
-– 承认耶路撒冷是以色列的真正首都，并迅速将美国驻以色列大使馆迁往耶路撒冷。
 
-• Acknowledged Israel’s sovereignty over the Golan Heights and declared that Israeli settlements in the West Bank are not inconsistent with international law.
+### 盖特：
 
-– 承认以色列对戈兰高地的主权，宣布以色列在西岸的定居点并不违反国际法。
 
-• Removed the United States from the United Nations Human Rights Council due to the group’s blatant anti-Israel bias.
 
-– 美国从联合国人权理事会中退出，因为该组织公然的反以色列偏见。
+> 七哥盖文
+> 
+> 2021年1月23号：美国以及欧洲正在全面的……前所未有的……审视和评估……共产党病毒．给保险业．金融业．国防业．带来的深度的打击：所产生的后果，共产党被灭亡的最重要原因之一就是C C P病毒🦠无任何人和任何组织可以改变这个事实……[https://t.co/BRy6BtklRd](https://t.co/BRy6BtklRd) [pic.twitter.com/urPfd8Tuv5](https://t.co/urPfd8Tuv5)
+> — 😷 Julia 😷 (@Julia720900) [January 23, 2021](https://twitter.com/Julia720900/status/1353088799857725441?ref_src=twsrc%5Etfw)
 
-• Brokered historic peace agreements between Israel and Arab-Muslim countries, including the United Arab Emirates, the Kingdom of Bahrain, and Sudan.
 
-– 在以色列与阿拉伯-穆斯林国家，包括阿拉伯联合酋长国、巴林王国和苏丹之间促成了历史性的和平协议。
 
-• Brokered a deal for Kosovo to normalize ties and establish diplomatic relations with Israel.
+# 班农战斗室 War Room
 
-– 为科索沃与以色列的关系正常化以及建交斡旋。
+**War Room: Pandemic Ep 677**
 
-• Announced that Serbia would move its embassy in Israel to Jerusalem.
 
-– 宣布塞尔维亚将把其驻以色列大使馆迁往耶路撒冷。
 
-• First American president to address an assembly of leaders from more than 50 Muslim nations, and reach an agreement to fight terrorism in all its forms.
+> [EP 677- Pandemic: Leaders Need to be Held Accountable (w/ Scott Presler, Karyn Turk, Boris Epshteyn, Liz Harris, Joey Correnti IV)](https://pandemic.warroom.org/2021/01/23/ep-677-pandemic-battles-on-the-border-w-scott-pressler-karyn-turk-boris-epshteyn-liz-harris-joey-correnti-iv/)
 
-– 第一个在50多个穆斯林国家领导人集会上发表讲话的美国总统，并达成了打击一切形式恐怖主义的协议。
 
-• Established the Etidal Center to combat terrorism in the Middle East in conjunction with the Saudi Arabian Government.
 
-– 与沙特阿拉伯政府合作，成立了打击中东恐怖主义的 “伊蒂达中心”。
+**War Room: Pandemic Ep 678**
 
-• Announced the Vision for Peace Political Plan – a two-state solution that resolves the risks of Palestinian statehood to Israel’s security, and the first time Israel has agreed to a map and a Palestinian state.
 
-– 宣布 “和平愿景政治计划”- 解决巴勒斯坦建国给以色列安全带来风险的两国解决方案，也是以色列首次认可一个地图和一个巴勒斯坦国。
 
-• Released an economic plan to empower the Palestinian people and enhance Palestinian governance through historic private investment.
+> [EP 678- Pandemic: Strong Men Lead (w/ Scott Presler, SG Cheah, Mike McCormick, Jack Posobiec, Karyn Turk)](https://pandemic.warroom.org/2021/01/23/ep-678-pandemic-battles-on-the-border-w-scott-pressler-sg-cheah-mike-mccormick-karyn-turk/)
 
-– 发布了一项经济计划，通过历史性的私人投资，赋予巴勒斯坦人民实力，增强巴勒斯坦的治理。
 
-**Stood up against Communism and Socialism in the Western Hemisphere. **
 
-**站出来反对西半球的共产主义和社会主义。**
+# 秘密翻译组：
 
-• Reversed the previous Administration’s disastrous Cuba policy, canceling the sellout deal with the Communist Castro dictatorship.
 
-– 扭转了上届政府灾难性的古巴政策，取消了与共产主义卡斯特罗独裁政权的卖国交易。
 
-• Pledged not to lift sanctions until all political prisoners are freed; freedoms of assembly and expression are respected; all political parties are legalized; and free elections are scheduled.
 
-– 承诺在所有政治犯获释、集会和言论自由得到尊重、所有政党合法化和自由选举之前不撤销制裁。
 
-• Enacted a new policy aimed at preventing American dollars from funding the Cuban regime, including stricter travel restrictions and restrictions on the importation of Cuban alcohol and tobacco.
 
-– 颁布了一项新政策，旨在防止美元为古巴政权提供资金，包括更严格的旅行限制和对古巴烟酒进口的限制。
 
-• Implemented a cap on remittances to Cuba.
+# 路德社节目：
 
-– 实施向古巴汇款的上限。
+### 1/23/2021 早 路德时评（路安墨唐谈）：
 
-• Enabled Americans to file lawsuits against persons and entities that traffic in property confiscated by the Cuban regime.
+习近平真身依然没有现身意味着什么？
 
-– 使美国人能够对非法买卖古巴政权没收财产的个人和实体提起诉讼。
 
-• First world leader to recognize Juan Guaido as the Interim President of Venezuela and led a diplomatic coalition against the Socialist Dictator of Venezuela, Nicolas Maduro.
 
-– 第一个承认胡安-瓜伊多为委内瑞拉临时总统的世界领导人，并领导了反对委内瑞拉社会主义独裁者尼古拉斯-马杜罗的外交联盟。
+1，习近平真身依然不现。前几天的中纪委第五次反腐会议其实用的是习的替身。会议稿子内容显示习在恐吓全党，让党内人士选择站队。表明习将进行政治大清洗。习的主要政治对手王(岐山)、江(泽民)、胡(锦涛)派系，他们在海外的财富和情报人脉网络是习心中的真正隐患。
+2，著名主持人拉里金因染上新冠病毒于今日死亡。他生前曾作假视频诬陷文贵先生。
+3，美国政府在2021年1月19日发出的反人类罪把习近平名字加上，意味著任何人对习下杀手都是正义行为。拜登政府是利益集团的选择，他们一定会为了自身的利益而对中共有所行动。
+4，《中国新闻网》发表文章指辽宁省政协原副主席刘国强于今日被批准逮捕。刘在2001年开始当官，官至辽宁省副省长，并且于两年前己离休。路德解析刘在江时代开始，在胡温时代官运亨通。文章内容暗藏深意，被认为是习对政治对手的警告，说明目前习正在肃清党内的政治敌人。
+5，拜登政府多位内阁成员认同蓬佩奥对中共的两大罪行的发布，这彻底改变了美国对中共的政治基调，是今后中美外交关系的基石。
+6，有战友透露习于本月18至19日去张家口等地视察。当地安保被要求方园几公里不可以有无人机，但可以远远见到习。习此次的视察行为，于他个人的一举一动及整个安保过程中存在的疏漏，令人相当质疑是替身行为。
+ (来自Ruby三鑫盖特）
 
-• Blocked all property of the Venezuelan Government in the jurisdiction of the United States.
+### 1/23/2021 晚 路德时评（路博艾冠谈）：
 
-– 冻结了委内瑞拉政府在美国管辖范围内的所有财产。
+中共战机大举入侵台湾防空识别区意味着习近平发动的什么行动？拜登表态完全赞同对中共种族灭绝和反人类罪的定义；美现任政府顾问表态病毒可能来源于实验室意味着什么？
 
-• Cut off the financial resources of the Maduro regime and sanctioned key sectors of the Venezuelan economy exploited by the regime.
 
-– 切断马杜罗政权的财政资源，制裁被马杜罗政权利用的委内瑞拉关键经济部门。
 
-• Brought criminal charges against Nicolas Maduro for his narco-terrorism.
+1. 1月23日了，习还是没有出来，广大战友实在想念习宝宝，盯着习中纪委讲话视频赏阅习的特征细节；
+2. 1月11日习领导干部学习班的露脸新闻已经彻底不提了，各派实在逼的紧，习不得不派自己替身去中纪委走了一圈；
+3. 习的替身露脸，是为了争取党内民意，讲话稿里强调政治立场；
+4. 美国著名主持人拉里金确诊CCP病毒死亡，曾经拉里金拿了中共10万美元攻击文贵先生，结果先后女儿、儿子、自己得病升天，爆料革命有神助；
+5. 习这次中纪委的反腐讲话，是要彻底消灭各派；
+6. 习知道只有控制了全中国的金流，就能世世代代，永世为皇，习从他爸身上总结的最大经验教训，就是要有实力；
+7. 习的大名在种族灭绝那张纸上，所以不管谁灭习都是合法的；
+8. 美被提名的国防部长来自雷神，川普前政府4年全球撤军，军事链条需要一个宣泄口释放库存与产能，奥巴马至少还搞了个叙利亚，未来把宣泄口引导到哪个地区需要博弈；
+9. 辽宁省原政协副主席刘国强被逮捕，直指胡江时代，血雨腥风全面开始；
+10. 习新一轮宣传攻势，突出政治三力，试图让人相信自己不可战胜；
+11. 福克斯玛丽亚节目播放拜登政府多位内阁候选人表态，认同彭佩奥对中共种族灭绝的认证，嘉宾说是今后美国外交关系基石；
+12. 新三民主义是王明提出，被老毛篡取；
+13. 习前几天去张家口等地，只能远观，不能靠近，没有照片，没上新闻联播，没讲几句话，特别防控无人机；
 
-对尼古拉斯-马杜罗的毒品恐怖主义行为提起刑事指控。
 
-• Imposed stiff sanctions on the Ortega regime in Nicaragua.
+来自GTV ADM战友
 
-– 对尼加拉瓜的奥尔特加政权实施严厉制裁。
+# 推特文摘
 
-• Joined together with Mexico and Canada in a successful bid to host the 2026 FIFA World Cup, with 60 matches to be held in the United States.
 
-– 与墨西哥和加拿大一起成功申办2026年世界杯，其中60场比赛将在美国举行。
 
-• Won bid to host the 2028 Summer Olympics in Los Angeles, California.
 
-– 成功申请举办2028年加州洛杉矶夏季奥运会。
 
-* * *
+砸郭的特性 郭文贵爆料中南坑，砸！ 郭文贵与川普政府合作灭共，砸！ 郭文贵成立法治基金，砸！ 郭文贵与班农合作灭共，砸！ 郭文贵建立自己的社交媒体，砸！ 郭文贵与朱利安尼合作灭共，砸！ 郭文贵与拜登政府合作灭共，砸！ 这些垃圾不管郭文贵先生做什么它们都会砸。
 
-原文来源：[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
 
-往期链接：
 
-[白宫报告：川普政府的政绩——截至2021年1月（一）](https://gnews.org/zh-hans/761018/)
 
-[白宫报告：川普政府的政绩——截至2021年1月（二）](https://gnews.org/zh-hans/761213/)
 
-[白宫报告：川普政府的政绩——截至2021年1月（三）](https://gnews.org/zh-hans/766962/)
+> 砸郭的特性
+> 郭文贵爆料中南坑，砸！
+> 郭文贵与川普政府合作灭共，砸！
+> 郭文贵成立法治基金，砸！
+> 郭文贵与班农合作灭共，砸！
+> 郭文贵建立自己的社交媒体，砸！
+> 郭文贵与朱利安尼合作灭共，砸！
+> 郭文贵与拜登政府合作灭共，砸！
+> 这些垃圾不管郭文贵先生做什么它们都会砸。
+> — Jay Yates (@lazydjay) [January 23, 2021](https://twitter.com/lazydjay/status/1352915774827061248?ref_src=twsrc%5Etfw)
 
-[白宫报告：川普政府的政绩——截至2021年1月（四）](https://gnews.org/zh-hans/767022/)
 
-[白宫报告：川普政府的政绩——截至2021年1月（五）](https://gnews.org/zh-hans/771076/)
 
-[白宫报告：川普政府的政绩——截至2021年1月（六）](https://gnews.org/zh-hans/771727/)
 
-[白宫报告：川普政府的政绩——截至2021年1月（七-1）](https://gnews.org/zh-hans/779811/)
 
-[白宫报告：川普政府的政绩——截至2021年1月（七-2）](https://gnews.org/zh-hans/780079/)
 
-[白宫报告：川普政府的政绩——截至2021年1月（八）](https://gnews.org/zh-hans/788066/)
 
-[白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
 
-* * *
 
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+大体得出以下几点疑似不同——1、发际线明显不同；2、耳廓线不同；3、鼻梁及鼻子外形不同；4、下巴左图为圆右图为尖；5、左图有明显眼袋右图无
 
-更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)！
 
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)！
+
+
+
+> 大体得出以下几点疑似不同——1、发际线明显不同；2、耳廓线不同；3、鼻梁及鼻子外形不同；4、下巴左图为圆右图为尖；5、左图有明显眼袋右图无 [https://t.co/8xiuc9l6ID](https://t.co/8xiuc9l6ID)
+> — @cocoqiao (@cocoqiao2) [January 23, 2021](https://twitter.com/cocoqiao2/status/1352971937274716162?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+123也算是个大日子
+ 2021年1月23日，新华社总结真假难辩的习昨天再提「政治判断、领悟、执行力」为大清洗做铺垫 2020年1月23日，知道病毒且武汉封城情况下开团拜会 
+2019、18年1月23日都在开深化改革会议 
+意思很明白：改革可以放放、团拜会也先别开，鸿门宴得加急准备
+
+
+
+
+
+> 123也算是個大日子
+> 2021年1月23日，新華社總結真假難辯的習昨天再提「政治判斷、領悟、執行力」為大清洗做鋪墊
+> 2020年1月23日，知道病毒且武漢封城情況下開團拜會
+> 2019、18年1月23日都在開深化改革會議
+> 意思很明白：改革可以放放、團拜會也先別開，鴻門宴得加急準備[@ding\_gang02](https://twitter.com/ding_gang02?ref_src=twsrc%5Etfw) [@maryann\_3040](https://twitter.com/maryann_3040?ref_src=twsrc%5Etfw) [pic.twitter.com/X3K2hx8Zei](https://t.co/X3K2hx8Zei)
+> — Andy5 (@andy5\_123) [January 23, 2021](https://twitter.com/andy5_123/status/1352952746702376961?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+收到这样的私信，一点都不奇怪。灭共的事业如果靠打打键盘，看看视频，喝喝小酒，嗑嗑瓜子，就能干成的话，还有什么意义和价值？！ 无论谁说什么，无论历经多少艰难险阻，无论还有多少路要走，瞿水台永不放弃！坚守以前的承诺：只要文贵在，本人就在！跟随文贵灭共到底！
+
+
+
+
+
+> 收到这样的私信，一点都不奇怪。灭共的事业如果靠打打键盘，看看视频，喝喝小酒，嗑嗑瓜子，就能干成的话，还有什么意义和价值？！
+> 无论谁说什么，无论历经多少艰难险阻，无论还有多少路要走，瞿水台永不放弃！💪💪💪
+> 坚守以前的承诺：只要文贵在，本人就在！跟随文贵灭共到底！✊✊✊ [https://t.co/0noMoQeb3r](https://t.co/0noMoQeb3r) [pic.twitter.com/qJQOHicuqL](https://t.co/qJQOHicuqL)
+> — 瞿水台 Qu Shuitai (@QuShuitai) [January 23, 2021](https://twitter.com/QuShuitai/status/1353117463752409088?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+一年前的今天，武汉封城，而中国政府却允许病毒全球性传播。
+并且CCP和科学家们咬定病毒是百分百自然来源，拿可怜的未确定的动物当宿主。我们推动COVID19病毒真相的努力已经向著正确的方向前进了！
+
+
+
+
+
+> 一年前的今天，武漢封城，而中國政府卻允許病毒全球性傳播。
+> 並且CCP和科學家們咬定病毒是百分百自然來源，拿可憐的未確定的動物當宿主。
+> 
+> 我們推動COVID19病毒真相的努力已經向著正確的方向前進了！🙏🏻
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [January 24, 2021](https://twitter.com/DrLiMengYAN1/status/1353140014897655809?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+美国国务院发表声明，力挺台湾
+
+
+
+
+
+> 美國國務院發表聲明，力挺台灣： [pic.twitter.com/dy6k3S73ec](https://t.co/dy6k3S73ec)
+> — Dr. Bo 🇺🇸🇹🇼🇭🇰 (@BoDiplo) [January 24, 2021](https://twitter.com/BoDiplo/status/1353148364309848080?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+# 墙内咨讯
+
+
+
+### 1.23. 参考消息 中美关系或出现“试探期”
+
+美国正式进入拜登时代，历经纷扰的中美关系很难立即一键重启。但分析人士认为，“冰点”关系将有所缓和，双方在施压、竞争与合作并存的总体大方向下，经贸领域将成易修复地带。
+ 分析人士指出，考虑到拜登新政府首先将着手美国新冠疫情控制和经济复苏，因此中美在贸易、人文、全球治理领域的共同利益将成为双边关系得到缓解的有利因素，特别是经贸领域。在后疫情时代，双方有望加强贸易投资合作，甚至展开重新对话。而在此期间，不排除出现一定程度的试探期。
+ 无论美国新政府对中国采取何种策略、双边关系走向如何，中美关系尚难言“翻篇”，一位中国政策人士并指出，不排除双方出现一定程度的试探期。
+ “拜登上任之后，我们预计双方会重启工作级对话，且有可能重新展开相关谈判。”瑞银亚洲经济研究主管汪涛称，中美总体的特点将是风险和不确定性降低，竞争中有合作，全面对抗的风险会降下来。尽管拜登时代下的中美关系将有一定缓和，但长期来看仍是多领域的复杂博弈过程。
+
+***简评：***不需要”试探期” ,已经勾结几十年了。
+
+### 1.23. 新浪 习近平一个月内三提“政治三力”
+
+1月22日，习近平总书记在十九届中央纪委五次全会上发表重要讲话，再提“政治三力”。
+ 查阅公开报道，这是总书记一个月内第三次提及“政治判断力、政治领悟力、政治执行力”。第一次是去年12月中央政治局民主生活会，第二次是省部级主要领导干部专题研讨班。
+ 三次讲话，对象都是党内的“关键少数”，且这次又是中央纪委全会，对提高“政治三力”的要求更深一层。
+ 总书记多次强调，我们党作为执政党，面临的最大威胁就是腐败。
+ 政治腐败是最大的腐败。一些腐败分子结成利益集团，妄图窃取党和国家权力，搞非组织活动，破坏党的集中统一，必须高度警惕，坚决防止党内形成利益集团，改变人民政权的性质。
+ 腐败问题的背后，往往有政治问题。
+ 从党的十八大以来查处的“老虎”来看，很多腐败分子不仅经济上腐化，而且政治上蜕变，对党不忠诚不老实，严重违反政治纪律和政治规矩。
+ 全面从严治党从政治上看，必须首先严明政治纪律和政治规矩，重点查处政治问题和经济问题交织的腐败案件，及时把这些“两面派”“两面人”辨别出来、清除出去，消除重大政治隐患。
+
+***简评：***大清洗即将开始, 令人不寒而栗。注意原新闻图片中的假书记, 替身的发际线和眼皮与真书记的区别。
+
+### 1.23. 环球时报 须将蓬佩奥之流从中美关系中彻底删除
+
+中国外交部21日凌晨宣布制裁美国28名在涉华问题上严重侵犯中国主权、负有主要责任的人员，其中包括前国务卿蓬佩奥、前白宫贸易顾问纳瓦罗、前国家安全顾问奥布莱恩等。多名共和党议员呼吁拜登政府强硬回应中方的这一制裁，煽动说这是“不应被容忍的胁迫”。美国舆论的一些分析则宣扬，这是中国在给拜登政府“下马威”“立规矩”。
+ 他们显然很想看拜登政府一上来就与北京冲突的热闹。必须指出，北京是在制裁美国前政府的官员，那些人严重伤害了中国国家利益，尤其是蓬佩奥等人在最后时刻仍加紧对华出手，给接下来的中美关系挖坑埋雷，堪称十恶不赦。他们理应受到惩罚。
+ 中方的制裁不仅禁止了他们及家属进入中国内地和香港、澳门，而且还限制他们及其关联企业和机构与中国打交道、做生意。这将影响他们中的一些人通过“旋转门”去美国的企业和机构获利，因此这项制裁不是做做样子，而是“有牙的老虎”。
+
+***简评：***打脸了, 不要妄图挑拨离间，美国新政府和参议员对你的”制裁”有同样的警惕。”种族灭绝”和”反人类罪”的定性是”废纸一张”? 你的制裁是“有牙的老虎”?
 
 0

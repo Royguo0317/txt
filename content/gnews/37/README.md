@@ -1,113 +1,147 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年1月20日直播和盖特内容整理（附完整听写）
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/801972/)
+## 白宫报告：川普政府的政绩——截至2021年1月（十一）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/802251/)
 
-**给路德访谈的建议：**
+五月花写作组 ｜ 翻译：伞兵 ｜ 校对：Tom Cat ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告11-1.jpg)
+## **Part – 11 Colossal Rebuilding of the Military**
 
-今天是爆料革命最大的挑战日，最大的挫败日也是最大的机会日。
+## 第十一部分：**军队大重建**
 
-路波切太累了，还没放下。不能把你自己扮演的角色，当成你自己，不要把自己的奉献和自己的追求，和自己的善行、做好事，当成自己的责任。这不是你的法定义务，这不是路德访谈和路德和博士军团必须要做到的事情。美国人都做不到。
+* * *
 
-美国大选出这问题是全人类的事，不是我们什么失败。没兑现的多了去了，所有的严肃媒体，全人类的媒体说的话连放个屁都没有，99.9都是假的或瞪眼胡说八道。
+### **Rebuilt the military and created the Sixth Branch, the United States Space Force. **
 
-世界上我们是人，我们不是神，现在神都解决不了的事。别真自己拿着胳膊自己去挡地球去了，好像真的要撬动地球似的。时间长了，把咱们战友也培养成，你说话不兑现，战友就不高兴了。本来好战友也培养成这样的，不就完了嘛！完全没必要。
+### **重建军队，并成立第六部门，美国太空部队。**
 
-一个119路德先生和闫博士，墨博士和我们的博士军团。爆料革命就可以光荣的、伟大的在这世界活上个一千年、一万年，都是往天上看，可以俯视全世界绝大多数人了。路德先生绝对是中国人的英雄，全世界的英雄科学家，博士军团绝对是英雄。
+• Completely rebuilt the United States military with over $2.2 trillion in defense spending, including $738 billion for 2020.
 
-今天要看到世界上太可怜了，你们太稀有了，你们太宝贵了，你们太了不起了。通过今天，我更加尊重你们，更爱你们，更佩服你们。新中国联邦、爆料革命，只要是真战友，会更加尊重你，更爱你们。
+– 彻底重建美国军队，国防开支超过2.2万亿美元，包括2020年的7380亿美元。
 
-**国内：**
+• Secured three pay raises for our service members and their families, including the largest raise in a decade.
 
-现在共产党是得意忘形，还有受到重击之后的暴跳如雷。
+– 为我们的军人及其家属争取到三次加薪，包括十年来最大的一次加薪。
 
-过去一星期来对共产党的制裁和行动，对共产党的就是死亡。它已经是被合法化，是被消灭，它已经是合法化。用什么形式消灭？什么时间消灭？只是这个问题。
+• Established the Space Force, the first new branch of the United States Armed Forces since 1947.
 
-郭先生在国内卧薪尝胆经营了二十几年，在2012年十八大到2013年那一刻，因为胡锦涛懦弱和令计划的背叛，让共产党和平演变，让老百姓没有死亡的情况下，从中南坑变成一个真正的民主、法治、信仰自由，多党派一人一票的党，这个希望破灭了。
+– 成立太空部队，这是美国武装部队自1947年以来的第一个新部门。
 
-胡锦涛希望十八大后让李源潮和薄熙来逐渐在未来会实行党内民主过渡到中国的法律独立。但最后崩溃，彻底拉倒。
+• Modernized and recapitalized our nuclear forces and missile defenses to ensure they continue to serve as a strong deterrent.
 
-十八大失败的原因是因为有家人，因为有私心，有家庭之恋，爱自己的儿子、女儿。因为懦弱，因为天真，还有心中没有信仰，毁掉了一个中国再次转向的机会。令计划的背叛，他儿子被设计弄死了。胡锦涛因为自己的闺女和儿子和媳妇, 让儿子未来进常委。最后跟习达成了默契。最后整个中国就到了这个习王手里。
+– 对我们的核力量和导弹防御系统进行现代化和资本重组，以确保它们继续发挥强大的威慑作用。
 
-中国到了习王手里边，中国的文化大革命2.0一定会发生，而且共产党杀掠中国的私人企业家会走向灾难。因为习王要走的就是文化大革命的路。
+• Upgraded our cyber defenses by elevating the Cyber Command into a major warfighting command and by reducing burdensome procedural restrictions on cyber operations.
 
-从以共灭共和共产党的这个能力和实力，绑架了十四亿中国人角度看，我们得感谢习加速师、感谢王岐山干掉了百万党员造成的对立。现在共产党的内部绝大多数人成为了爆料革命战友。
+– 通过将网络司令部升格为主要作战司令部，并减少对网络行动的繁琐程序限制，提升了我们的网络防御能力。
 
-坚信共产党很快被灭掉，谁也挡不住。因为病毒的事情香港的事件，和新中国联邦和爆料革命唤醒的全世界的人民，以及这次美国被操纵大选的这种严重后果。这几个账最终要算的。他只是算到什么时候而已。
+• Vetoed the FY21 National Defense Authorization Act, which failed to protect our national security, disrespected the history of our veterans and military, and contradicted our efforts to put America first.
 
-**美国新政府：**
+– 否决了21财年国防授权法案，该法案未能保护我们的国家安全，不尊重我们的退伍军人和军队的历史，并违背了我们把美国放在第一位的宗旨。
 
-美国是真正领导世界的国家，到了这种灾难地步，最黑暗的一天。没人问谁让我们戴口罩的？带口罩的原因是什么？不敢问真相。带着家人，牵着手，在摄像机面前还得表演，没有勇气，他根本不敢面对共产主义的邪恶和魔鬼。还要和给我们带上口罩的人进行勾兑、合作。
+### **Defeated terrorists, held leaders accountable for malign actions, and bolstered peace around the world. **
 
-今天站在就职仪式人是影响了人类，控制了人类多少年的人，也是人类的堕落。他们的言行举止，全都和共产党有关系。决定这些人的生命和生活质量也是中共。带不带口罩决定着生死，而且已经政治化、时尚化，这是共产党干的。
+### **击败恐怖分子，追究领导人的恶性行为责任，并支持世界各地的和平。**
 
-撒旦说的话，人类是邪恶和我相比，远超出你的想象。
+• Defeated 100 percent of ISIS’ territorial caliphate in Iraq and Syria.
 
-过去一天美国政坛和军界发生事情，是背叛中的背叛。事关人类命运背叛和欺骗，相互交叉。这种背叛就改变了全地球、全人类的命运。
+– 打败了100%ISIS在伊拉克和叙利亚的领土哈里发。
 
-川普总统豁免埃利奥特·布罗迪很正常，更体现了川普总统的文化和个性。当初对我最大的威胁和伤害，是川普是共和党不是民主党。川普始终没放掉和习个人关系和所谓的共产党病毒的事情，是灾难性错误。他这个灾难的错误，绝对取决于他家人,导演了一个美国版的令计划儿子事件。
+• Freed nearly 8 million civilians from ISIS’ bloodthirsty control, and liberated Mosul, Raqqa, and the final ISIS foothold of Baghuz.
 
-美国目前说偷总统的问题，美国最终是要走法律程序。他们的争执是没有完的，川普总统也没有放弃。他现在交的权力是给国会，交给美国人民的权利。那国会把这个权力,现在总统权力给了拜登。
+– 将近800万平民从ISIS的嗜血控制下解放出来，解放了摩苏尔、拉卡和ISIS最后的立足点巴古兹。
 
-**新中国联邦：**
+• Killed the leader of ISIS, Abu Bakr al-Baghdadi, and eliminated the world’s top terrorist, Qasem Soleimani.
 
-现在爆料革命需要各方面的调整。
+– 击毙了ISIS的头目阿布-贝克尔-巴格达迪，消灭了世界头号恐怖分子卡西姆-苏莱曼尼。
 
-**第一个：**我要强调的事情是，要对川普总统保持绝对尊敬,我坚信川普总统一定会赢，一定会回来，一定会回来，不改变。
+• Created the Terrorist Financing Targeting Center (TFTC) in partnership between the United States and its Gulf partners to combat extremist ideology and threats, and target terrorist financial networks, including over 60 terrorist individuals and entities spanning the globe.
 
-**第二个：**要尊重美国的宪法。只要是美国宪法保护的，我们都支持。宪法不支持的，坚决反对。
+– 美国与其海湾伙伴合作创建了恐怖主义融资目标中心（TFTC），以打击极端主义意识形态和威胁，并瞄准恐怖主义金融网络，包括遍布全球的60多个恐怖分子个人和实体。
 
-目前合法的美国政府机构，要对拜登政府保持尊重。对拜登总统或者他家人、个人，我们不再个人攻击。再反拜登，就是反美国。坚信他的团队会跟我们站在一起、一起灭共。
+• Twice took decisive military action against the Assad regime in Syria for the barbaric use of chemical weapons against innocent civilians, including a successful 59 Tomahawk cruise missiles strike.
 
-**对副总统哈里斯，她身边的很多人，未来也一定会和我们爆料革命站在一起，一定会跟我们站在一起而且很快也会有行动。**
+– 两次对叙利亚阿萨德政权对无辜平民野蛮使用化学武器采取果断的军事行动，包括59枚战斧巡航导弹的成功打击。
 
-**第三个：**不参与美国的两党之争。 不和任何党派合作，不掺和美国政府，不和总统个人发生任何关系。
+• Authorized sanctions against bad actors tied to Syria’s chemical weapons program.
 
-不要攻击民主党，民主党的人没有伤害过我们一次。
+– 授权对与叙利亚化学武器计划有关的图谋不轨人士进行制裁
 
-**第四个：** “两个凡是”
+• Negotiated an extended ceasefire with Turkey in northeast Syria.
 
-凡是美国跟共产党勾兑的，对共产党好的，帮共产党强大的，我们就不答应，坚决反对，揭发到底。
+– 在叙利亚东北部与土耳其谈判延长停火。
 
-凡事伤害共产党的，都支持。
+### **Addressed gaps in American’s defense-industrial base, providing much-needed updates to improve the safety of our country. **
 
-**向所有战友公开发誓：**
+### **弥补了美国国防工业基础的不足，提供了急需的更新，以改善美国国家安全。**
 
-未来我们一定会把共产党灭了。不论任何情况，任何理由，老郭家人和跟我有血缘关系的任何人不许参与爆料革命，任何人不允许参与到所有的新中国联邦事情。
+• Protected America’s defense-industrial base, directing the first whole-of-government assessment of our manufacturing and defense supply chains since the 1950s.
 
-任何人类的伟大的行动，如果做不到，无私无我，没有恐惧，你一定不会成功。
+– 保护美国的国防工业基础，指导自20世纪50年代以来首次对我们的制造业和国防供应链进行全政府评估。
 
-大家冒着生命危险，就是要灭共。当你恐惧的时候，你什么都没有。没有恐惧了，你才能无我绝对不能裙带关系。
+• Took decisive steps to secure our information and communications technology and services supply chain, including unsafe mobile applications.
 
-爆料革命和灭共运动，一旦有家人、裙带参与，都是对爆料革命战友，每个人的侮辱。
+– 采取果断措施，确保我们的信息和通信技术及服务供应链的安全，包括不安全的移动应用。
 
-凡是家族牵涉进去的事业，一定不是伟大的事业，因为你有私心。
+• Completed several multi-year nuclear material removal campaigns, securing over 1,000 kilograms of highly enriched uranium and significantly reducing global nuclear threats.
 
-郭文贵的任何亲戚参与爆料革命，战友有任何的权利处置，包括我本人。
+– 完成了数次多年的核材料清除活动，确保了1 000多公斤高浓缩铀的安全，大大降低了全球核威胁。
 
-从六月四号到现在，我们战友和爆料革命、新中国联邦共同的行动和努力的结果，形成的实力，这叫硬实力。
+• Signed an executive order directing Federal agencies to work together to diminish the capability of foreign adversaries to target our critical electric infrastructure.
 
-从昨天开始起，谁想在美国，想和共产党再好，再勾兑、再交易，绝不可能。
+– 签署了一项行政命令，指示联邦机构共同努力，削弱外国对手针对我们关键电力基础设施的能力。
 
-爆料革命背后，所承受的一个个背叛，那是你们没有看到的，那都是大钱，那都是大伤害，那都是大家无法承受的。
+• Established a whole-of-government strategy addressing the threat posed by China’s malign efforts targeting the United States taxpayer-funded research and development ecosystem.
 
-我们一些人被共产党洗脑，被共产党统治七十年以后，很多人身上留着共产党的这种残毒、幻想，不切实际的幻想，还总寄希望于别人，老是觉得天上能掉大饼。
+– 制定了一项全政府战略，应对中国针对美国纳税人资助的研发生态系统的恶意出口所带来的威胁。
 
-灭共几乎是全人类有史以来，前所未有的一个最勇敢的正义运动。
+• Advanced missile defense capabilities and regional alliances.
 
-对班农先生的豁免，让他获得了人生的安全，也不用到法院被骚扰。但是班农先生选总统，甚至是身居要职是不可能的。这终身也就结束了，不是什么好消息。
+– 先进的导弹防御能力和区域联盟。
 
-把GTV、G-news删除哈里斯的副总统的负面新闻，是因为没必要跟哈里斯为敌。美国八千万人都不愿意与他们为敌，咱们就不要跟她为敌。同时更加团结美国的朋友们支持爆料革命。这是战略战术。
+• Bolstered the ability of our allies and partners to defend themselves through the sale of aid and military equipment.
 
-川普总统、胡锦涛这两个人类让我最痛感悟的，都是因为这个背叛、欺骗、伪信仰、伪正义和过不了儿女家庭这一关。
+– 通过出售援助和军事装备，加强了我们的盟友和伙伴的自卫能力。
 
-今天美国川普总统事情，不是我们失败了。上天非常清楚共产党这个魔鬼要灭之前，必须让全人类看到共产党的危害、共产党的威胁。否则共产党还会苟延残喘再有机会或者对中国人更加血腥。拜登和哈里斯政府会让全人类看到共产党的威胁，然后这两边合在一起，全人类才能灭共。灭共需要时间，现在太短了，太快了。我们唤醒了包括西方政府，唤醒了党内的人士，唤醒了中国人民，唤醒了中国的企业家，更要唤醒全人类，拯救全人类。
+• Signed the largest arms deal ever, worth nearly $110 billion, with Saudi Arabia.
 
-整理：pride文豪
+– 与沙特阿拉伯签署了价值近1100亿美元的最大军火交易。
 
-[2021年1月20日盖特直播听写](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/01/24032934/2021%E5%B9%B41%E6%9C%8820%E6%97%A5%E7%9B%96%E7%89%B9%E7%9B%B4%E6%92%AD%E5%90%AC%E5%86%99-1.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/01/24032934/2021%E5%B9%B41%E6%9C%8820%E6%97%A5%E7%9B%96%E7%89%B9%E7%9B%B4%E6%92%AD%E5%90%AC%E5%86%99-1.pdf)
+* * *
 
+原文来源：[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
 
+往期链接：
 
-0
+[白宫报告：川普政府的政绩——截至2021年1月（一）](https://gnews.org/zh-hans/761018/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（二）](https://gnews.org/zh-hans/761213/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（三）](https://gnews.org/zh-hans/766962/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（四）](https://gnews.org/zh-hans/767022/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（五）](https://gnews.org/zh-hans/771076/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（六）](https://gnews.org/zh-hans/771727/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（七-1）](https://gnews.org/zh-hans/779811/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（七-2）](https://gnews.org/zh-hans/780079/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（八）](https://gnews.org/zh-hans/788066/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十）](https://gnews.org/zh-hans/802218/)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)！
+
++1

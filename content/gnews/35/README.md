@@ -1,77 +1,107 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年1月21日郭先生直播内容总结（附完整听写）
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/802088/)
+## 白宫报告：川普政府的政绩——截至2021年1月（十二）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/802307/)
 
-七哥回顾从建设盘古到离开中国，期间的一个个事件。
+五月花写作组 ｜ 翻译：风云九霄（文萧） ｜ 校对：伞兵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告12.jpg)
+## **Part 12 – Serving and Protecting Our Veterans**
 
-把清风看守所的思考，人生战略和人生的战术，是用行动办法变为物理化的结果。从盘古被刘志华抢走，到又追回。等于是第一个把共产党生出来的孩子又给送回了，肚子里边又重新生了一次，就是盘古。能把摩根拿回来，**盘古在一年内**又建起来，奥运会又到来。很多高官、有钱人排着队要约见。
+## **第十二部分：服务和保护我们的退伍军人**
 
-从2003到2006与共产党最高层的政治较量周旋之间，最后享受常委待遇。不到几百天，人生之起伏。
+* * *
 
-二十几年的布局，瞬间被令计划儿子的法拉利车祸给搞掉。当时所面临的处境真是冰冻的感觉。十八大已确定了习王上台，这两个文化大革命的产物出来，中国完蛋了。中国的和平演变，通过内部演变的可能是没有了。当时很多人认为郭先生完了，还有人叫郭先生离开中国。但是他们全错了，习王上来，它最大的一个敌人，他要清理自己存在着各种威胁，可随时被做掉的这种可能。之后拿下令计划、李源潮，才轮到郭先生。
+### **Reformed the Department of Veterans Affairs (VA) to improve care, choice, and employee accountability.**
 
-习王上台以后，2012-2014年，一直在中国，在北京没走。那可能每秒钟都是天翻地覆的生死存亡。开始并购方正集团、海通证券。为家族和基金融资达六百亿，所涉及的金融证券的并购达三千亿。非常清楚必须跟外国合作，必须团结国际力量，必须有巨大的财富，才能逐渐实现我的目标，还能接近目标。现在做到了。
+### 改革了退伍军人事务部（VA），以改善医疗护理，选择范围和员工问责制。
 
-从2014到2016年，下面的交易、利益、诱惑太多了。之后，动用了全部的潜伏、沉默的力量。暗杀威胁、抗议。2017年，没申请政庇前，中共几乎全部买通川普总统周围的所有大佬要遣返。
+- Signed and implemented the VA Mission Act, which made permanent Veterans CHOICE, revolutionized the VA community care system, and delivered quality care closer to home for Veterans.
+- 签署并实施了《 VA使命法案》，该法案使退伍军人获得永久性的选择，彻底改变了VA社区护理系统，并为退伍军人提供了离家更近的优质护理。
+- The number of Veterans who say they trust VA services has increased 19 percent to a record 91 percent, an all-time high.
+- 信赖VA服务的退伍军人数量增加了19％，达到创纪录的91％，为历史新高。
+- Offered same-day emergency mental health care at every VA medical facility, and secured $9.5 billion for mental health services in 2020.
+- 每家VA医疗机构提供当日紧急心理保健服务，并在2020年为心理保健服务筹资95亿美元。
+- Signed the VA Choice and Quality Employment Act of 2017, which ensured that veterans could continue to see the doctor of their choice and wouldn’t have to wait for care.
+- 签署了《 2017年VA选择与优质就业法案》，该法案确保退伍军人可以继续看望自己选择的医生，而不必排队等待。
+- During the Trump Administration, millions of veterans have been able to choose a private doctor in their communities.
+- 在川普政府执政期间，数百万退伍军人能够在其社区中选择私人医生。
+- Expanded Veterans’ ability to access telehealth services, including through the “Anywhere to Anywhere” VA healthcare initiative leading to a 1000 percent increase in usage during COVID-19.
+- 扩大了退伍军人访问远程医疗服务的能力，包括通过“Anywhere to Anywhere” VA医保计划，使COVID-19期间的使用率增加了1000％。
+- Signed the Veterans Affairs Accountability and Whistleblower Protection Act and removed thousands of VA workers who failed to give our Vets the care they have so richly deserve.
+- 签署了《退伍军人事务部问责与举报人保护法》，并解雇了数千名未能为我们退伍军人提供应有照顾的VA员工。
+- Signed the Veterans Appeals Improvement and Modernization Act of 2017 and improved the efficiency of the VA, setting record numbers of appeals decisions.
+- 签署了《2017年退伍军人上诉改善和现代化法案》，提高了VA效率，上诉裁决的数量创纪录。
+- Modernized medical records to begin a seamless transition from the Department of Defense to the VA.
+- 现代化的医疗记录从国防部到VA开始无缝过渡。
+- Launched a new tool that provides Veterans with online access to average wait times and quality-of-care data.
+- 推出了一个新工具，使退伍军人可以在线访问平均等待时间和护理质量数据。
+- The promised White House VA Hotline has fielded hundreds of thousands of calls.
+- 承诺的白宫VA热线已经接到了数十万个电话。
+- Formed the PREVENTS Task Force to fight the tragedy of Veteran suicide.
+- 成立了PREVENTS工作组，以应对退伍军人自杀的悲剧。
 
-3年多，我们做到了，把共产党和中国人民分开。让共产党从买世界，控制世界为全世界过街老鼠。共产党是中国的非法组织，不代表中国。
 
-因为路德先生搞天线宝宝惩罚郭先生, 大连专案组开始河南裕达国贸被挂到京东拍卖十二亿人民币，比当年建设时间的价格还打了折。
+### **Decreased veteran homelessness, improved education benefits, and achieved record-low veteran unemployment.**
 
-**120是爆料革命的一个重大挫折，对灭共事业，将有了不可确定的因素和巨大的挑战。**
+### **减少了无家可归的退伍军人，改善了教育福利，并实现了创纪录的老兵低失业率。**
 
-**120绝对是上天给我们爆料革命带来最大的机会，让我们更多的、真正的战友连接在一起。**
+- Signed and implemented the Forever GI Bill, allowing Veterans to use their benefits to get an education at any point in their lives.
+- 签署并实施了《Forever GI Bill》，使退伍军人可以享受任何时候接受教育的福利。
+- Eliminated every penny of Federal student loan debt owed by American veterans who are completely and permanently disabled.
+- 为完全永久残疾的美国退伍军免去全部的联邦学生贷款债务。
+- Compared to 2009, 49 percent fewer veterans experienced homelessness nationwide during 2019.
+- 与2009年相比，2019年全国无家可归的退伍军人减少了49％。
+- Signed and implemented the HAVEN Act to ensure that Veterans who’ve declared bankruptcy don’t lose their disability payments.
+- 签署并实施了《HAVEN法案》，以确保宣布破产的退伍军人不会损失其伤残偿金。
+- Helped hundreds of thousands of military service members make the transition from the military to the civilian workforce, and developed programs to support the employment of military spouses.
+- 帮助数十万军人从军队过渡到文职人员，并制定了支持军人配偶就业的计划。
+- Placed nearly 40,000 homeless veterans into employment through the Homeless Veterans Reintegration Program.
+- 通过无家可归退伍军人重返社会的项目，近40,000名无家可归的退伍军人就业。
+- Placed over 600,000 veterans into employment through American Job Center services.
+- 通过美国就业中心服务，60万退伍军人就业。
+- Enrolled over 500,000 transitioning service members in over 20,000 Department of Labor employment workshops.
+- 在20,000多个劳工部就业研讨会上，招募了500,000多个处于过渡阶段的军人。
+- Signed an executive order to help Veterans transition seamlessly into the United States Merchant Marine.
+- 签署了一项行政命令，以帮助退伍军人无缝过渡到美国商船发展工作。
 
-**自省的错误：**
 
-1、过去半年，有些事情是犯了极端的错误。拜登硬盘事件，走得有点远，有点急。对GTV、G-NEWS商业上是成功的，在政治上是错的。
+* * *
 
-2、近两个月，对共产党提高了灭爆小组的素质和手段，潜伏进来的特务没有及时制止。最后很多战友被这虚假信息所迷惑。
+原文来源：
 
-3、为了让自己变得更牛，证明自己更正确，走了一个弯路。爆料革命，没有给你承诺任何时间、任何承诺，不存在兑不兑现。
+[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
 
-4、过去三年最大的失误，对战友之间感性化太多，理性化太少。在社交媒体，金融板块的力量没起来。
+往期链接：
 
-**新计划：**
+[白宫报告：川普政府的政绩——截至2021年1月（一）](https://gnews.org/zh-hans/761018/)
 
-1、2021年要低调，必须面对现实，发展G系列，把各农场强大的联系在一起。
+[白宫报告：川普政府的政绩——截至2021年1月（二）](https://gnews.org/zh-hans/761213/)
 
-2、把G系列盖特、GTV、GNEWS做大，以最快的速度，在全世界拥有我们的社交媒体话语权，强化我们的社交媒体平台，并追求计划的目标，把我们的新中国联邦的国防力量打造起来。
+[白宫报告：川普政府的政绩——截至2021年1月（三）](https://gnews.org/zh-hans/766962/)
 
-3、把十几亿美元花到GTV、G-coin、G-dollar、G-news、G-fashion、G-club、G-盖特上去甚至另外的几十亿美元并购，G系列最快速度达到万亿级估值的企业。
+[白宫报告：川普政府的政绩——截至2021年1月（四）](https://gnews.org/zh-hans/767022/)
 
-4、将让战友全面的参与，共同的打造G系列，全面的分享利益。也让战友们都能赚很多钱，让所有的战友们都收益。让更多战友以最快的时间能贴现钱，能有现钱，能有兑换的钱，这是目前当务之急。
+[白宫报告：川普政府的政绩——截至2021年1月（五）](https://gnews.org/zh-hans/771076/)
 
-5、强化爆料革命和西方的团结力量。
+[白宫报告：川普政府的政绩——截至2021年1月（六）](https://gnews.org/zh-hans/771727/)
 
-6、重视灭爆小组的手段和心理战，要把他们打得满地找牙。
+[白宫报告：川普政府的政绩——截至2021年1月（七-1）](https://gnews.org/zh-hans/779811/)
 
-最后七哥失去的和危险跟谁比，七哥是大赢家，情况都是最好的。很多战友跟国内战友用生命、家人，自由、安全相比：没有资格牢骚，没有资格失望、犹豫。
+[白宫报告：川普政府的政绩——截至2021年1月（七-2）](https://gnews.org/zh-hans/780079/)
 
-**金句：**
+[白宫报告：川普政府的政绩——截至2021年1月（八）](https://gnews.org/zh-hans/788066/)
 
-世界上只有吓死的懦夫，我从来没有听说吓出来的英雄。
+[白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
 
-解决恐惧最好的办法，就只让你有实力，你的实力要大过你的敌人。
+[白宫报告：川普政府的政绩——截至2021年1月（十一）](https://gnews.org/zh-hans/802251/)
 
-我们是要灭共的，早就把脑袋别在裤腰带上了。
+* * *
 
-一个没有过牺牲和巨大付出的人，你没有资格评价爆料革命和新中国联邦。
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
 
-麻雀永远不懂苍鹰之志，不知道老鹰在天空中的飞翔的感觉。
+更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)！
 
-总结 :战友们一定记住，这次120的挫败，只能会让我们越挫越强，越加完整。重塑新中国联邦的方向和力量。爆料革命永远不能有预测，今年不能老搞重磅中的重磅。再一次呼吁,对现在的美国合法的、法律上承认的拜登总统、哈里斯副总统和这届政府,绝对不能再有个人攻击。我们判断标准非常简单，谁跟共产党勾兑，都是我们敌人。谁跟我们一起灭共，都是我们朋友。
-
-新中国联邦如何和世界的政府和世界的力量打交道？如何和沼泽地的力量做到平衡？如何能做到让世界的力量都倾斜于新中国联邦？如何让世界的各种力量一起和我们灭共？考验我们的智慧，考验我们的勇气，更考验我们每个战友的心智
-
-七哥已经开始了全面的战斗计划，现在不多说。今年要保持要更多的神秘，做完再说。
-
-120之后新中国联邦所有的脚步会更稳定、更坚实。
-
-总结：pride文豪
-
-[2021年1月21日直播听写](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/01/24034045/2021%E5%B9%B41%E6%9C%8821%E6%97%A5%E7%9B%B4%E6%92%AD%E5%90%AC%E5%86%99-1.pdf)[Download](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/01/24034045/2021%E5%B9%B41%E6%9C%8821%E6%97%A5%E7%9B%B4%E6%92%AD%E5%90%AC%E5%86%99-1.pdf)
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)！
 
 0

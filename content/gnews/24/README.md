@@ -1,119 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫报告：川普政府的政绩——截至2021年1月（十四）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/802367/)
+## 【香港要闻】面对香港拘捕令 丹麦议员声援同事
+` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/802573/)
 
-五月花写作组 ｜ 翻译：风云九霄(文萧) ｜ 校对：伞兵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告14.jpg)
-## **Part 14 – Cherishing Life and Religious Liberty**
+搜集：po
 
-## **第十四部分：珍惜生命与宗教自由**
+撰稿：岁月如歌
 
-* * *
+审稿：卡西欧
 
-### **Steadfastly supported the sanctity of every human life and worked tirelessly to prevent government funding of abortion.**
+上传：文粤
+![]()![](https://gnews.org/wp-content/uploads/2021/01/JPG-ted-17_rfrNV_1200x0-1.jpg)图片：立场新闻
+《明报》今日新闻报道，香港正调查并且考虑引渡帮助香港前立法会议员许智峰，逃出香港的两位丹麦国会议员，绿党的艾巴伊克（Uffe Elbaek）及保守党的阿米兹波尔（Katarina Ammitzbøll），这两位议员为了帮助许智峰离开香港，发出虚假的环保会议邀请，从而得罪了中共香港政府。保安局局长李家超称，任何人，包括外国政客，如果涉疑组织，策划和成功协助潜逃的罪行，警方会积极调查，追究责任。
 
-### **坚定支持个人生命的神圣，并为防止政府为堕胎提供资金做出了不懈的努力。**
+丹麦国会议员其中一名在推特上回应，中共港共要拒捕许智峰，他们支持许智峰并安排行程，香港警方以此要拒捕他们是“超出比例”的。是警方给许智峰护照让他离开香港的。李家超称许智峰弃保潜逃是“罪加一等”，懦夫行为。许智峰则对香港警方发出国际拘捕令的做法是疯狂和荒谬的做法，反映出政权贯彻的是战狼外交，做法“虚张声势，自欺欺人”。如果此案发拘捕令，在《港版国安法》下，全球为香港流亡人士提供帮助的人都会构成“颠覆政权”罪。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/jpg-135801562_10159762751932448_1912577077010610375_o-1.jpg)图片：苹果日报
+**面对香港警方的淫威，丹麦各界对这几位议员是什么态度呢？丹麦媒体报道，这次可能引发中丹外交危机。丹麦记者在推特上转发了议员的回应，并称香港警方对丹麦国会议员发出国际拘捕令是除美国以外的“****最疯狂的新闻”**
 
-- Reinstated and expanded the Mexico City Policy, ensuring that taxpayer money is not used to fund abortion globally.
-- 恢复并扩展了墨西哥城政策，确保美国纳税人的钱不被用于全球堕胎。
-- Issued a rule preventing Title X taxpayer funding from subsiding the abortion industry.
-- 发布了一项规则，以防止Title X纳税人的资金资助堕胎行业。
-- Supported legislation to end late-term abortions.
-- 支持立法终止晚期流产。
-- Cut all funding to the United Nations population fund due to the fund’s support for coercive abortion and forced sterilization.
-- 联合国人口基金支持强迫堕胎和强迫绝育，因此终止对其拨款。
-- Signed legislation overturning the previous administration’s regulation that prohibited states from defunding abortion facilities as part of their family planning programs.
-- 签署法律推翻了上届政府的法规，以禁止各州对作为其家庭生育计划的堕胎设施拨款。
-- Fully enforced the requirement that taxpayer dollars do not support abortion coverage in Obamacare exchange plans.
-- 全面执行要求纳税人的钱不得用来支持奥巴马医改计划中的堕胎。
-- Stopped the Federal funding of fetal tissue research.
-- 停止了对胎儿组织研究的联邦资助。
-- Worked to protect healthcare entities and individuals’ conscience rights – ensuring that no medical professional is forced to participate in an abortion in violation of their beliefs.
-- 致力于保护医疗机构和个人的良心权利——确保没有医疗专业人员被迫违反其信仰而参与堕胎。
-- Issued an executive order reinforcing requirement that all hospitals in the United States provide medical treatment or an emergency transfer for infants who are in need of emergency medical care—regardless of prematurity or disability.
-- 发布了一项行政命令，加强要求美国所有医院为需要紧急医疗护理的婴儿提供医疗或紧急转运，无论其是否早产或残疾。
-- Led a coalition of countries to sign the Geneva Consensus Declaration, declaring that there is no international right to abortion and committing to protecting women’s health.
-- 领导一个国家联盟签署《日内瓦共识宣言》，宣布没有国际堕胎权，并致力于保护妇女的健康。
-- First president in history to attend the March for Life.
-- 历史上首位参加维护生命权游行的总统。
+前香港众志主席罗冠聪在称香港警方的做法引起当地国会对华大团结。丹麦当地议员纷纷发起联署，声援“受中共打压的国会同事”。执政社会民主党议员Annette Lind，反对党自由党Michael Aastrup Jensen，第三大党社会自由党兼外交政策委员会主席Martin Lidegaard 发表联合声明，声援同事。声明称丹麦宪法保障国会议员，可以无惧报复下自由履行职务，虽然他们政见不同，但他们无限支持，反对任何将议员职位及自由权利刑事化行径。他们还呼吁更多议员加入联署，让给你更多的党派议员认清中共和港版国安法的无耻。
 
+新中国联邦爆料革命四年的爆料揭露，让世界各国认清中共的真面目。中共的假，恶，丑，骗，偷，一直横行世界，很多国家怯于其恶，不敢反抗，人气欺负。甚至很多国家政客为了政绩与其同流合污，至使国家遭受中共控制。丹麦议员们面对凶残的中共港共政府，他们不惧怕，选择站在正义的一边，是对共产主义香港的有力回击。自从《送中条例》引发的运动，中共在香港犯下的罪行不计其数，手段令人发指，全世界都看在眼里，伸出援手却是零星几个谴责的声音，一年过去了，美国在多次谴责中，终于取消香港最惠国待遇，制裁香港及中共高官做为惩罚，但远远不足以制止这些恶魔的行为。香港依然在中共淫威之下，孤独无助，香港无数年轻人的生命，鲜血也得不到更多世界力量站出来支持。全世界都惧怕中共的恶，全世界的胆怯懦弱成就了中共今日的满世界作恶，也因为全世界的胆怯，世人在承受自己懦弱的后果。今天，丹麦议员们敢站出来支持同事不单是对中共恶魔的挑战，也是人们唤醒认清中共面目的回击。是香港人极需要的支援。
 
-### **Stood up for religious liberty in the United States and around the world.**
+本文仅代表作者个人观点
 
-### **为美国和世界各地的宗教自由而呼吁。**
+参考链接：[立场新闻](https://www.thestandnews.com/politics/%E8%A8%B1%E6%99%BA%E5%B3%AF%E6%B5%81%E4%BA%A1-%E6%B8%AF%E8%AD%A6%E6%93%9A%E5%A0%B1%E6%93%AC%E8%B5%B7%E8%A8%B4%E5%85%A9%E4%B8%B9%E9%BA%A5%E8%AD%B0%E5%93%A1-%E7%95%B6%E5%9C%B0%E5%9C%8B%E6%9C%83%E8%B7%A8%E9%BB%A8%E6%B4%BE%E8%81%AF%E7%BD%B2-%E7%84%A1%E9%99%90%E6%94%AF%E6%8C%81-%E5%8F%97%E4%B8%AD%E5%85%B1%E9%87%9D%E5%B0%8D-%E8%AD%B0%E5%93%A1/?fbclid=IwAR2wrXkbM7zfu5y9Nz2uyD4Xw4PWi1PlU8l3w4sApbOWc5LiINVw3U74bsQ)、[星岛日报](https://news.mingpao.com/ins/%e6%b8%af%e8%81%9e/article/20210123/s00001/1611401137412/%e8%a8%b1%e6%99%ba%e5%b3%af%e6%b5%81%e4%ba%a1-%e6%b8%af%e6%93%ac%e5%bc%95%e6%b8%a1%e5%85%a9%e4%b8%b9%e9%ba%a5%e5%9c%8b%e6%9c%83%e8%ad%b0%e5%93%a1-%e7%95%b6%e5%9c%b0%e8%ad%b0%e5%93%a1%e8%81%af%e7%bd%b2%e6%94%af%e6%8c%81%e3%80%8c%e5%8f%97%e4%b8%ad%e5%85%b1%e9%87%9d%e5%b0%8d%e7%9a%84%e5%90%8c%e4%ba%8b%e3%80%8d)
 
-- Protected the conscience rights of doctors, nurses, teachers, and groups like the Little Sisters of the Poor.
-- 保护医生，护士，老师和安贫小姐妹会等团体的良心权利。
-- First president to convene a meeting at the United Nations to end religious persecution.
-- 第一任总统在联合国召开旨在结束宗教迫害的会议。
-- Established the White House Faith and Opportunity Initiative.
-- 建立了白宫信仰和机会倡议。
-- Stopped the Johnson Amendment from interfering with pastors’ right to speak their minds.
-- 阻止《约翰逊修正案》干扰牧师发表意见的权利。
-- Reversed the previous administration’s policy that prevented the government from providing disaster relief to religious organizations.
-- 推翻了上届政府阻止政府向宗教组织提供灾难援助的政策。
-- Protected faith-based adoption and foster care providers, ensuring they can continue to serve their communities while following the teachings of their faith.
-- 保护基于信仰的收养和寄养服务提供者，确保他们在遵循信仰教义的同时继续为社区服务。
-- Reduced burdensome barriers to ensure Native Americans are free to keep spiritually and culturally significant eagle feathers found on their tribal lands.
-- 减少繁文缛节，以确保美洲原住民可以自由地在其部落土地上保留精神上和文化上重要的鹰羽毛。
-- Took action to ensure Federal employees can take paid time off work to observe religious holy days.
-- 采取措施确保联邦雇员可以带薪休假来遵守宗教节日。
-- Signed legislation to assist religious and ethnic groups targeted by ISIS for mass murder and genocide in Syria and Iraq.
-- 签署了立法，以协助那些在叙利亚和伊拉克被ISIS进行大规模屠杀和种族灭绝的宗教和族裔群体。
-- Directed American assistance toward persecuted communities, including through faith-based programs.
-- 向美国的受迫害社区提供援助，包括通过基于信仰的计划。
-- Launched the International Religious Freedom Alliance – the first-ever alliance devoted to confronting religious persecution around the world.
-- 发起了国际宗教自由联盟，这是有史以来第一个致力于应对世界各地宗教迫害的联盟。
-- Appointed a Special Envoy to monitor and combat anti-Semitism.
-- 任命了一个特使来监督和打击反犹太主义。
-- Imposed restrictions on certain Chinese officials, internal security units, and companies for their complicity in the persecution of Uighur Muslims in Xinjiang.
-- 对参与迫害新疆维吾尔族人的某些中国官员，内部安全部门和公司实施共谋限制。
-- Issued an executive order to protect and promote religious freedom around the world.
-- 发布了一项行政命令，以保护和促进全世界的宗教自由。
-
-
-* * *
-
-原文来源：
-
-[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
-
-往期链接：
-
-[白宫报告：川普政府的政绩——截至2021年1月（一）](https://gnews.org/zh-hans/761018/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（二）](https://gnews.org/zh-hans/761213/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（三）](https://gnews.org/zh-hans/766962/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（四）](https://gnews.org/zh-hans/767022/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（五）](https://gnews.org/zh-hans/771076/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（六）](https://gnews.org/zh-hans/771727/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（七-1）](https://gnews.org/zh-hans/779811/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（七-2）](https://gnews.org/zh-hans/780079/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（八）](https://gnews.org/zh-hans/788066/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十一）](https://gnews.org/zh-hans/802251/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十二）](https://gnews.org/zh-hans/802307/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十三）](https://gnews.org/zh-hans/802335/)
-
-* * *
-
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
-
-更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)！
-
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)！
-
-0
++1

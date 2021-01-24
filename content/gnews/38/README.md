@@ -1,95 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/01/24 美国政要每日推特重要信息汇总
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/801933/)
+## 【澳洲热点】谷歌威胁将在澳大利亚停用搜索引擎
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/802234/)
 
-编辑：Cathy
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/twitter_in_the_usa-1.jpg)
-**经授权转载自：**
+译者：文泓
+校对/编辑：翼族
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-24-at-7.28.47-pm.png)**图片来源：**https://www.niemanlab.org/
+谷歌威胁，如果澳大利亚继续拟议法律并任其生效，让谷歌为其新闻内容付费的话，谷歌将从澳大利亚撤回其搜索引擎。
 
-- 川普等政要…直译推twitter：[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
-- 川普等政要…直译推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
-- 川普等政要…直译推GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
+根据《悉尼先驱晨报》的报道，谷歌负责澳大利亚和新西兰区域的副总裁梅尔·席尔瓦（Mel Silva）今天告诉澳大利亚参议院经济立法委员会:”如果这个提案的版本成为法律，那么我们将别无选择，只能在澳大利亚停止提供谷歌搜索。”她还说：”我们在仔细研究了该法案之后得出结论，我们认为在财务和运营的风险之下，没有办法继续在澳大利亚提供服务”。
 
+谷歌公司几个月来一直在游说以反对澳大利亚的这项计划，该公司声称，澳大利亚正试图让它对谷歌搜索中显示的新闻报道的链接和片段付费，而不仅仅是支付**谷歌新闻（G****oogle New****）**等栏目下的新闻文章的费用。谷歌公司表示 “这将为我们的业务以及数字经济树立一个难以维系的先例”，并且 “与搜索引擎的工作方式不兼容”。
 
-## 简评：
+澳大利亚总理斯科特-莫里森（Scott Morrison）很快做出了反应：”我们对任何威胁不作回应。”根据美联社刊登的评论，莫里森说：”澳大利亚对于在澳大利亚可以做的事情制定我们自己的规定。这是在我们议会中完成的。它是由我们政府制定的。这就是澳大利亚这里的工作方式。”
 
-1月24日，现在参众议员们开始针对拜登的政策和美国现实存在的问题发表看法。人们都处在回看和观望的状态。
+谷歌得到一些知名盟友的支持：万维互联网的发明者蒂姆·伯纳斯·李爵士（Sir Tim Berners-Lee,）提交了他对法案第46条款的意见： “该法案条款有可能违反网络的基本原则，因为它要求对某些在线内容的链接进行付费。”另一位帮助设计TCP/IP的互联网创始人温特·瑟夫（Vint Cerf）也向委员会提出了类似的想法，不过值得注意的是，他目前在谷歌公司担任首席互联网传播官。
 
-## 参议员玛莎·布莱克本：
+起草该法律的澳大利亚竞争和消费者委员会(ACCC)在8月份似乎暗示，这应该不会影响谷歌的搜索业务：”不会要求谷歌向澳大利亚人使用其免费的服务收取费用，比如谷歌搜索和YouTube，除非它自己选择这样做。”但是很显然谷歌并不同意。正如谷歌在席尔瓦的声明全文和附带的博客文章中所解释的那样，它宁愿专门为其**谷歌新闻**的栏目下的产品向出版商付费。(谷歌在6月份已经宣布了一项向澳大利亚、德国和巴西的出版商们付费的计划)。不过澳大利亚似乎认为这还不够。
 
-旅游生子业以帮助外国人违法获得美国国籍赚了数以千万元。 《禁止旅游生子法》将堵住外国人利用其穿越美国边界的漏洞。
+ACCC认为，拟议中的法律解决了 “澳大利亚新闻媒体企业与谷歌和脸书之间严重不平衡的议价能力”。正如我的同事乔恩·波特（Jon Porter）在8月份所说的那样：“澳大利亚拟议的《新闻媒体谈判守则法》目前正在起草中，以打击谷歌和脸书公司。此前澳大利亚在2019年的一项调查发现，科技巨头们在网络广告收入中占据了过大的份额，尽管他们的大部分内容都是来自媒体机构，因此新闻和媒体行业受到了重创。据《卫报》的报道，澳大利亚有一百多家地方报纸由于广告收入下降，不得不进行裁员、停刊或停印。”
 
+脸书也由于这一特殊的法律而被置于ACCC的视线，脸书威胁要阻止它的新闻内容在澳大利亚被分享。这两家公司都声称这种封锁是 “最坏的情况”，虽然谷歌坚称这不是威胁，但听上去确实像是威胁。
 
+原文链接：[https://www.theverge.com/2021/1/21/22243468/google-threatens-to-remove-its-search-engine-from-australia-if-new-law-goes-into-effect](https://www.theverge.com/2021/1/21/22243468/google-threatens-to-remove-its-search-engine-from-australia-if-new-law-goes-into-effect)
 
-> The birth tourism industry makes millions helping foreigners break the law to gain American citizenship. The Ban Birth Tourism Act will eliminate loopholes that foreign nationals are exploiting to cross U.S. borders. [pic.twitter.com/MFbMCTyFL2](https://t.co/MFbMCTyFL2)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [January 23, 2021](https://twitter.com/MarshaBlackburn/status/1352825922425131009?ref_src=twsrc%5Etfw)
-
-
-
-## 众议员马特·盖兹：
-
-1．高科技寡头可以噤声美利坚合众国的总统。
-
-想象下他们可以对您干什么。
-
-【[附众议员马特·盖兹和吉姆·乔丹在福克斯新闻台与Hannitty的谈话节目内容](https://hannity.com/media-room/watch-gop-lawmakers-speak-out-against-big-tech-targeting-conservative-voices/)】
-
-
-
-> Big Tech silenced the President of the United States.
-> 
-> Just imagine what they could do to you.[https://t.co/wOaQvfHzJz](https://t.co/wOaQvfHzJz)
-> — Rep. Matt Gaetz (@RepMattGaetz) [January 23, 2021](https://twitter.com/RepMattGaetz/status/1352996510661713920?ref_src=twsrc%5Etfw)
-
-
-
-2．高科技寡头之所以针对保守派，是因为我们支持选举的诚信。
-
-【[附http://breitbart.com 新闻网的相关报道](https://www.breitbart.com/clips/2021/01/16/gaetz-incoming-biden-administration-want-to-use-national-security-authorities-against-maga/)】
-
-
-
-> Big tech is targeting conservatives because we stood up for election integrity.[https://t.co/mcQTYY4EfE](https://t.co/mcQTYY4EfE)
-> — Rep. Matt Gaetz (@RepMattGaetz) [January 23, 2021](https://twitter.com/RepMattGaetz/status/1353026961128341504?ref_src=twsrc%5Etfw)
-
-
-
-## 众议员兰斯·古登：
-
-乔·拜登的Keystone XL （撤销输油管道线）的决定毁掉：
-
--11,000个美国工作
-
--8,000个工会职位
-
--16亿美元的工资
-
-同时，预计 #中国共产党 将在未来12年内每月建设2个大型燃煤电厂。
-
-#北京拜登 #BejingBiden
-
-
-
-> Joe Biden's Keystone XL decision destroyed:
-> 
-> –&gt; 11,000 U.S. jobs
-> 
-> –&gt; 8,000 union jobs 
-> 
-> –&gt; $1.6 billion in wages 
-> 
-> Meanwhile, communist China is projected to build 2 large coal plants a month for the next 12 years.[#BejingBiden](https://twitter.com/hashtag/BejingBiden?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Lance Gooden (@Lancegooden) [January 23, 2021](https://twitter.com/Lancegooden/status/1353024371783323648?ref_src=twsrc%5Etfw)
-
-
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

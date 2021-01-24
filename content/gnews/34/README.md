@@ -1,158 +1,137 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 带你了解什么是裙带（权贵）资本主义
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/801864/)
+## 白宫报告：川普政府的政绩——截至2021年1月（十三）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/802335/)
+
+五月花写作组 ｜ 翻译：风云九霄（文萧） ｜ 校对：伞兵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告13.jpg)
+## **Part 13 – Making Communities Safer**
+
+## **第十三部分：使社区更安全**
+
+* * *
+
+### **Signed into law landmark criminal justice reform.**
+
+### 签署成为法律里程碑的刑事司法改革。
+
+- Signed the bipartisan First Step Act into law, the first landmark criminal justice reform legislation ever passed to reduce recidivism and help former inmates successfully rejoin society.
+- 将两党支持的《第一步法案》签署为法律，这是有史以来第一项具有里程碑意义的刑事司法改革立法，旨在减少惯犯并帮助已经释放的囚犯成功重返社会。
+- Promoted second chance hiring to give former inmates the opportunity to live crime-free lives and find meaningful employment.
+- 促进第二次雇用机会，使前囚犯有机会过上无犯罪的生活，并找到有意义的工作。
+- Launched a new “Ready to Work” initiative to help connect employers directly with former prisoners.
+- 发起了一项新的“Ready to Work”倡议，以帮助雇主与以前的囚犯直接联系。
+- Awarded $2.2 million to states to expand the use of fidelity bonds, which underwrite companies that hire former prisoners.
+- 授予各州220万美元以扩大诚实保证保险的使用范围，为雇用前囚犯的公司提供担保。
+- Reversed decades-old ban on Second Chance Pell programs to provide postsecondary education to individuals who are incarcerated expand their skills and better succeed in the workforce upon re-entry.
+- 废除了数十年的Second Chance Pell计划禁令，为被监禁的个人提供高等教育，扩大他们的技能，使其在重返工作岗位时更能获得成功。
+- Awarded over $333 million in Department of Labor grants to nonprofits and local and state governments for reentry projects focused on career development services for justice-involved youth and adults who were formerly incarcerated.
+- 向劳工部提供超过3.33亿美元的拨款，用于非营利组织，地方政府和州政府的再入学项目，这些项目的重点是为以前受监禁的司法介入青年和成年人提供职业发展服务。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/maxresdefault-17.jpg)
-**什么是裙带资本主义**
 
-汉语中的“裙带现象”，最初指某人因自己妻子或其他女性亲属的关系而获得官职。后泛指因血亲、姻亲和密友关系而获得政治、经济上的利益，以及政治领导人对效忠者、追随者给予特别的庇护、提拔和奖赏。
+### **Unprecedented support for law-enforcement.**
 
-“裙带”在英文中有一个意思大致相当的词：Crony。 据《朗文当代英语词典》，Crony 是指一个集团中的成员，这个集团中的成员之间交往密切、互相支持，并为彼此利益不惜采取不诚实的行动。
+### 前所未有的支持执法。
 
-东亚金融危机爆发后，Crony capitalism（裙带资本主义）一词在学术界和媒体中迅速流行起来，它又被称为**关系资本主义、朋党资本主义、权贵资本主义、密友资本主义**。
+- In 2019, violent crime fell for the third consecutive year.
+- 2019年，暴力犯罪连续第三年下降。
+- Since 2016, the violent crime rate has declined over 5 percent and the murder rate has decreased by over 7 percent.
+- 自2016年以来，暴力犯罪率下降了5％以上，谋杀率下降超7％。
+- Launched Operation Legend to combat a surge of violent crime in cities, resulting in more than 5,500 arrests.
+- 发起了“Operation Legend”，以打击城市中激增的暴力犯罪，超过5,500人被捕。
+- Deployed the National Guard and Federal law enforcement to Kenosha to stop violence and restore public safety.
+- 将国民警卫队和联邦执法部门部署到Kenosha，制止暴力并恢复公共安全。
+- Provided $1 million to Kenosha law enforcement, nearly $4 million to support small businesses in Kenosha, and provided over $41 million to support law enforcement to the state of Wisconsin.
+- 向Kenosha执法部门提供了100万美元，向Kenosha的小型企业提供了近400万美元，并为威斯康星州的执法提供了超过4,100万美元。
+- Deployed Federal agents to save the courthouse in Portland from rioters.
+- 部署了联邦特工，波特兰法院在暴徒骚乱中得以幸免。
+- Signed an executive order outlining ten-year prison sentences for destroying Federal property and monuments.
+- 签署了一项行政命令，销毁联邦财产和古迹处于十年徒刑。
+- Directed the Department of Justice (DOJ) to investigate and prosecute Federal offenses related to ongoing violence.
+- 指示司法部（DOJ）调查和起诉与长期暴力相关的联邦罪行。
+- DOJ provided nearly $400 million for new law enforcement hiring.
+- 司法部为新的执法人员招聘提供了近4亿美元。
+- Endorsed by the 355,000 members of the Fraternal Order of Police.
+- 得到了355,000名警察兄弟会的认可。
+- Revitalized Project Safe Neighborhoods, which brings together Federal, state, local, and tribal law enforcement officials to develop solutions to violent crime.
+- 振兴安全社区项目，将联邦，州，地方和部落的执法人员召集在一起，以制定暴力犯罪的解决方案。
+- Improved first-responder communications by deploying the FirstNet National Public Safety Broadband Network, which serves more than 12,000 public safety agencies across the Nation.
+- 通过部署国家公共安全宽带网络FirstNet，改善了急救人员的通信，该网络为全国12,000多个公共安全机构提供服务。
+- Established a new commission to evaluate best practices for recruiting, training, and supporting law enforcement officers.
+- 建立了一个新的委员会，以评估招募，培训和支持执法人员的最佳实践。
+- Signed the Safe Policing for Safe Communities executive order to incentive local police department reforms in line with law and order.
+- 签署了《安全警务保证安全社区》的行政命令，以鼓励当地警察部门根据法律和秩序进行改革。
+- Made hundreds of millions of dollars’ worth of surplus military equipment available to local law enforcement.
+- 向当地执法部门提供了价值数亿美元的剩余军事装备。
+- Signed an executive order to help prevent violence against law enforcement officers.
+- 签署了一项行政命令，以防止对执法人员的暴力行为。
+- Secured permanent funding for the 9/11 Victim Compensation Fund for first responders.
+- 为 “ 9/11受害者补偿基金”筹得永久资金，给予第一响应者（现场应急人员）。
 
-关于裙带资本主义，保罗·克鲁格曼将它定义为“商界和政府通过合作使国民福利最大化”。他认为在经济发展的某个阶段这种合作固然可以把整个国家的力量引到最有利于经济发展的途径上，但随着日积月累，它会造成监管不力和贪污盗窃的“道德风险”。
 
-裙带资本主义或权贵资本主义是指一种畸形的或坏的市场经济，其中一些人通过权势和关系网寻租致富，在成为既得利益者后，对种种合理的市场化改革以各种方式大加阻挠。
+### **Implemented strong measures to stem hate crimes, gun violence, and human trafficking.**
 
-按保罗·萨缪尔森的说法，裙带资本主义在全世界是一个普遍现象，美国也有，在韩国、印度尼西亚、泰国和马来西亚等地流行的是一种亚洲式的裙带资本主义。
+### 采取了强有力的措施来制止仇恨犯罪，枪支暴力和人口贩运。
 
-**亚洲式的裙带资本主义**
+- Signed an executive order making clear that Title VI of the Civil Rights Act of 1964 applies to discrimination rooted in anti-Semitism.
+- 签署了一项行政命令，明确表明1964年《民权法》第六章适用于植根于反犹太主义的歧视。
+- Launched a centralized website to educate the public about hate crimes and encourage reporting.
+- 建立了一个集中式网站，以教育公众关于仇恨犯罪的行为并鼓励举报。
+- Signed the Fix NICS Act to keep guns out of the hands of dangerous criminals.
+- 签署了《Fix NICS Act》，避免枪支落入危险罪犯的手中。
+- Signed the STOP School Violence Act and created a Commission on School Safety to examine ways to make our schools safer.
+- 签署了《 停止学校暴力法》，并成立了学校安全委员会，研究使学校更安全的方法。
+- Launched the Foster Youth to Independence initiative to prevent and end homelessness among young adults under the age of 25 who are in, or have recently left, the foster care system.
+- 发起了“培养独立青年”倡议，预防和消除在寄养系统中或最近离开寄养系统的25岁以下年轻人的无家可归现象。
+- Signed the Trafficking Victims Protection Reauthorization Act, which tightened criteria for whether countries are meeting standards for eliminating trafficking.
+- 签署了《贩运受害者保护重新授权法》，严格各国是否符合消除人口贩运的标准。
+- Established a task force to help combat the tragedy of missing or murdered Native American women and girls.
+- 建立了一个工作组，以帮助打击美国原住妇女和女童失踪或被谋杀的悲剧。
+- Prioritized fighting for the voiceless and ending the scourge of human trafficking across the Nation, through a whole of government back by legislation, executive action, and engagement with key industries.
+- 通过政府的立法，行政措施以及与关键行业的合作，优先为无法发声者斗争，结束全国人口贩运的危害。
+- Created the first-ever White House position focused solely on combating human trafficking.
+- 创建了有史以来第一个专门针对打击人口贩运的白宫职位。
 
-亚洲式裙带资本主义除了“商界和政界不道德的结合”的共性之外，还具有以下特性：
 
-一、前现代性。以保护人─被保护人、恩主─扈从关系这种前现代的政治文化作为支撑。无权势者缺乏独立人格，依附心态非常严重。
+* * *
 
-二、体制性。如政治上的威权主义统治，经济生活中过多的政府干预，法制不健全等等，为亚洲裙带资本主义提供了深厚的体制和政策土壤。这也导致了亚洲裙带资本主义的形式更为丰富多样，如政策性的行业垄断、侵吞、回扣，在企业和基金会兼任职务，利用大型公共工程牟利，非法占有国家土地等等。
+原文来源：
 
-三、家族性。政治利益和经济利益沿着血亲、姻亲、部族关系畸形地集中起来，无论是政治领导人的家族还是政治领导人的密友们的家族，均能在这种裙带资本主义体制中成为超级富豪家族，家族、密友利益超然于法律和市场经济的应有秩序，贪污金额普遍巨大。
+[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
 
-四、全社会性。上行下效，各种层次的朋党关系、密友关系从低到高形成了全社会性的金字塔式的网络结构，公务员乃至全社会的道德水平下降。特别是精英和权贵阶层的大面积腐败，使市场经济秩序极度混乱，社会发展陷入恶性循环。
+往期链接：
 
-**裙带资本主义的根源**
+[白宫报告：川普政府的政绩——截至2021年1月（一）](https://gnews.org/zh-hans/761018/)
 
-**根源之一：根深蒂固的前现代政治文化传统**
+[白宫报告：川普政府的政绩——截至2021年1月（二）](https://gnews.org/zh-hans/761213/)
 
-卡尔·马克思在分析“亚细亚社会”时指出，在这种社会类型中个人对社会不是独立的。东南亚从殖民者到来之前直至今日（今日的新加坡例外），有一个引人注目的政治文化现象，即“保护人─被保护人（Patron-client ）”之间的“庇护制”或“信托制”。一个有一定财富和权力的人（即所谓“恩主”），允诺利用其财富和权力去帮助和保护某些人，后者则成为其附从，以忠诚、感恩的态度对恩主提供支持来作为回报。整个国家就是由这样大大小小的金字塔结构所编织成的一个巨型金字塔。
+[白宫报告：川普政府的政绩——截至2021年1月（三）](https://gnews.org/zh-hans/766962/)
 
-在这种严密、稳定而又畸形的结构中，普通民众丧失了个人的独立性，成为政客的私人拥趸，他们仅服从于这样的大大小小的“恩从关系”，对政治家族、官员的效忠程度远远超过对国家和政府机构的效忠，政治立场私人化，政治活动非制度化，现代公民社会难以形成。所以，尽管家族腐败、官员腐败现象严重，只要最低限度的温饱能够解决，下层民众就已经感恩戴德，默认现实。而社会中层以上，由于已经跻身于既得利益者之中，并且需要来自上一层的庇护和恩赏，自然愿意维持现状。
+[白宫报告：川普政府的政绩——截至2021年1月（四）](https://gnews.org/zh-hans/767022/)
 
-印度尼西亚是亚洲裙带资本主义的一个典型个案。统治印度尼西亚达32年的前总统苏哈托更像是一位君主。苏哈托在印度尼西亚建立起庞大的盘根错节的家族统治，并通过巧取豪夺聚敛了巨额家族财富。他的子女、心腹、密友或垄断行业获取暴利，或在政界、军界掌管要害部门。当时的副总统哈比比即使不是如民间传说中他的私生子，但二人关系也同父子关系差不多。在苏哈托时期，印度尼西亚的政治秩序和经济秩序都家族化、私人化了。
+[白宫报告：川普政府的政绩——截至2021年1月（五）](https://gnews.org/zh-hans/771076/)
 
-马科斯执政时期的菲律宾是亚洲裙带资本主义的另一个典型个案。马科斯是总统，他的夫人伊梅尔达被宣布为继承总统职位序列的第一人，而伊梅尔达又想把当省长的儿子培养成为总统，总统夫妇两大家族的成员不是显宦，便是富豪，而三军和保安部队中90% 的将军都是总统的同乡伊洛戈省人。马科斯还常常利用手中的专断权力将种种经济特权授予他的密友和支持者，后者最突出的“优点”则是对马科斯非常忠诚，并且极尽歌功颂德、文过饰非之能事。这些密友本身也有大量的扈从，据守着大大小小的地盘，当政治竞选开始时，负责为上一级的恩主提供选票和贿选资金，马科斯则是这个私人政治系统中最大的恩主。
+[白宫报告：川普政府的政绩——截至2021年1月（六）](https://gnews.org/zh-hans/771727/)
 
-这表明尽管引进了自由选举制度（菲律宾在政治框架上是最为“美国化”的东南亚国家），但菲律宾的政治文化仍具有浓厚前现代色彩的私人性和依附性，而现代社会的公开、公平、公正原则遭到了藐视。
+[白宫报告：川普政府的政绩——截至2021年1月（七-1）](https://gnews.org/zh-hans/779811/)
 
-与马科斯相比，同样是不体面地下台的埃斯特拉达（他也曾经是马科斯的密友和小兄弟）有点小巫见大巫。马科斯的裙带资本主义是铁腕式的，埃斯特拉达的裙带资本主义则是江湖式的（靠在一起吃喝玩乐和共同贪污来培养密友之间的“义气”和“信用”），所以当菲律宾的社会中上层（他们拥护具有美国背景的阿罗约夫人）起来反对埃斯特拉达的时候，埃既不敢动用军队逮捕弹劾他的国会议员，也没有机灵地仿效马科斯坐直升机逃跑（这倒符合埃的草莽性格）。埃斯特拉达垮台事件的发生，可以看作是菲律宾社会的一个进步。但在埃下台和入狱后，仍有数量众多的菲律宾穷人表示了对埃的支持并与政府对抗，这说明他们仍然摆脱不了对埃的盲目崇拜和政治经济方面的人身依附──不少人是由于拿了埃的密友们的津贴而参与支持埃的示威行动，他们从来不效忠于国家，而只效忠于私人。
+[白宫报告：川普政府的政绩——截至2021年1月（七-2）](https://gnews.org/zh-hans/780079/)
 
-没有独立的现代公民意识、公民个人和公民社会，自然会有腐败借前现代的关系网络横行、泛滥。
+[白宫报告：川普政府的政绩——截至2021年1月（八）](https://gnews.org/zh-hans/788066/)
 
-**根源之二：威权主义体制下政府对市场干预过度**
+[白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
 
-二战后东亚普遍流行以发展为导向的“**威权主义体制**”（Authoritarianism Regime），一些相近的说法包括“有领导的民主”、“有选择的独裁”、“**开明专制**”、“贤王政治”等等。东南亚国家的一些“威权领袖”还创造出一套“亚洲价值观”学说，为这一体制提供理论上的辩护。
+[白宫报告：川普政府的政绩——截至2021年1月（十一）](https://gnews.org/zh-hans/802251/)
 
-这种体制最大的特点是组织一个“好人政府”，对社会事务实行较多控制，以经济与社会发展的实际成效作为政府的合法性基础，有自由投票体制但不鼓励政治竞争和意识形态多元化。与西方国家的政府的合法性来自其成立过程的合法性有所不同，威权主义体制的合法性主要来自政治领袖的个人威望和政府的施政绩效。威权主义体制下的政府在不同程度上压减公民的政治权利，而以收入和福利水平的不断提高作为补偿。为了求得经济高速增长和把蛋糕做大，威权政府的第一个直觉就是强化宏观经济调控和积极干预市场。
+[白宫报告：川普政府的政绩——截至2021年1月（十二）](https://gnews.org/zh-hans/802307/)
 
-随着亚洲一些发展中国家的政府管理经济与社会事务的范围不断扩大，市场中的政策因素和权力因素加重，从而引发了众多的行贿动机。从政成为一种有利可图的职业，这又鼓励官员们和行政部门扩大对市场的干预以获得更多、更持久的利益，此即所谓“造租运动”——把更多的权钱交易的可能性制造出来。于是，各种配额、优惠、补贴、减免税、政策性贷款、大型工程以及各种收费、证照等纷纷介入市场，于是体制性的腐败大面积发生，官员和企业家互为密友，互为依靠，贪赃枉法，官员违反职业操守庇护企业家密友，企业家则纷纷积极“认养”官员。
+* * *
 
-自20世纪70年代以来，在马来西亚，新兴的马来统治集团为了达到其“重组社会”（即提高占全国人口多数的马来人的经济实力、经商能力和收入水平，改变华人经济一支独秀的局面）的目标，积极干预市场，这就使政治权力与经济利益难解难分，出现了执政党巫统大办公司，政府大搞巨型工程和政府加强对市场的“指导”等现象，其中主要的受益者是新兴的马来政治精英和与他们有联系的华族商人、马来商人乃至西方商人。这就是为舆论所诟病的“朋党体制”。
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
 
-马来西亚华人政治家翁诗杰批评说：马来人政治已从最初的“甘榜（乡村）政治”转型到新的阶段──“商业化政治”。据报道，马哈蒂尔这位“威权领袖”对“下属们的贪污行为”感到震怒，下令对“金钱政治”开战。巫统已要求关闭该党名下的1.6 万家公司，它们都涉嫌利用巫统的权力进行不公平竞争。马哈蒂尔多次含泪呼吁巫统党员干部们“抛弃搞金钱政治的人”。
+更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)！
 
-安瓦尔派系的一员大将、巫统青年团总团长查希在与马哈蒂尔对抗失败后，他的经济问题随之被揭露出来。据调查，查希在95家公司担任董事及在24 家公司共持有数千万马元的股权。一个年轻人怎能担任近百家公司的董事？这只能是与他的政治地位有关。查希本来和他的许多上下级同僚一样，是不会有事的，然而他在政治上上错了船，于是人们才“猛然”发觉查希原来收取了大量的权力租金。
-
-菲律宾媒体在埃斯特拉达垮台后也揭发说，政府卷入从合法赌博到股票交易等许多山野活动。因此，总统的密友和密友的密友们均能从政府合同中得到好处，或使政府的有关政策条款对自己有利。在印尼苏哈托执政时期，不仅政府积极介入市场，连军队也大办公司（这样的公司在市场上自然谁都让三分）。印尼军队自独立后长期拥有“双重职能”（保土安民、平衡政治），实际上他们还拥有“积极参与经济建设”的“第三职能”。
-
-政府的过度干预和大量“特殊公司”进入市场，不仅加重了企业的经营陈本，而且也妨碍了企业创新和企业家精神的生长，从而最终不利于经济的持续增长。
-
-**根源之三：自由的选举制度与薄弱的法治基础**
-
-亚洲威权主义体制毕竟与极权统治有所不同，它并不排斥公开的多党竞争、议席竞争，甚至执政党内也有竞争，譬如马来西亚巫统党内除党主席职位长期不受挑战之外，其它职位都可以是差额竞选。
-
-从经验上看，亚洲国家一轮轮金钱政治高潮与定期的自由投票选举有密切的关联。法治基础薄弱和失序的自由选举体制构成了亚洲裙带资本主义的另一个制度根源。李光耀在他新出版的回忆录中就提出了这样的疑问：一个国家从极权走向民主，应该会越来越清廉；但事实上刚好相反，越民主，贪污越严重。为什么？民主政治是选举的政治，而选举都是要花钱的。
-
-美国的种种选举也是要花钱的，而且其金额堪称世界第一，但由于对政治家的经济状况有着严格的监督，对竞选资金的获得和运作有严格的法规管制，并没有因选举而酿出惊人的或大面积的腐败。亚洲一些发展中国家也套用竞选模式，如泰国、菲律宾、马来西亚、韩国等等，但由于国民整体的法治意识和国家整体的法治基础薄弱，引发了“恶的自由选举”（套用钱颖一先生的定义）。
-
-在菲律宾这样的“民主橱窗”，选民以历史最高票数把埃斯特拉选为总统，除了选民们被埃的“罗宾汉”银幕形象所迷惑的因素，埃在全国各地的密友、哥们、职业支持者大洒金银，用金钱造势，同样是“功不可没”。
-
-在泰国，某个政客竞选内阁总理职位，一般需要用商界密友们提供的政治献金向三类人行贿：一、对立政治阵营中的人；二、一般选民；三、国会议员。政客为了赢得选战需要巨额资金，这就导致他们利用权力索贿或贪污，或者与商界密友签订信用合同（当然不用写在纸面上）：商界密友先垫付竞选资金，政客则保证当选后把有利可图的工程等各种经济特权回馈商界密友。
-
-为了自身利益和报答商界密友，政府官员还可以无视经济规律，无视管理漏洞，制造经济泡沫。对于东亚金融危机的发生，“裙带资本主义”体制负有不可推卸的责任（尽管不是全部责任）。
-
-市场不透明、失序，法治基础薄弱、落后的政治文化流行，威权主义体制内某些积极因素在某个时期曾经创造出的经济增长奇迹，又被同样来自它自身内部的消极因素所吞噬和破坏，继而发生政治地震，乃至全社会地震，这就是亚洲裙带资本主义国家在20世纪大同小异的“成长故事”。
-
-**注释：**
-
-【坏的市场经济】在目前世界上，宣称实行市场经济的国家占了绝对多数，但是建在起规范的市场经济的国家并不多。许多国家仍然在无规范的、由权力支配的试产经济，就是“坏的市场经济”。{一部分人曾经天真的认为，只要建立市场经济就好了，不管是什么样的市场经济都能保证经济的昌盛和人民的幸福。但实际情况并不是这样，市场经济有好坏之分的——从计划经济到市场经济的转轨过程中，会出现岔路和弯路。其中之一，就是偏离规范的、法治的市场经济方向，演变为所谓的权贵资本主义。}“坏的市场经济”即权贵资本主义。
-
-“坏的市场经济的问题所在”：
-
-在行政权力主导下，一个国家虽然也能够在一段时间内取得某种程度的经济成就，但终究会因为法治不行而落入坏的市场经济。这种经济至少存在三个问题：
-
-1. 政策的随意性增大了经济活动的不确定性，导致经济活动缺乏效率
-2. 政府官员的行为缺乏规范和约束，导致权力的滥用、腐败和社会不公
-3. 公民的基本权益缺乏保障，公民缺乏安全感和从事经济活动的积极性，使经济缺乏长期的活力。
-
-
-【寻租】寻租就是寻求经济租金的简称，又称竞租，是为获得和维持垄断地位从而得到垄断利润（即垄断租金）所从事的一种非生产性寻利活动。整个寻租活动的全部经济损失要远远超过传统垄断理论中的“纯损”三角形。
-
-租：即租金。也就是利润、利益、好处。寻租，即对经济利益的追求。指通过一些非生产性的行为对利益的寻求。如有的政府部门通过设置一些收费项目，来为本部门谋求好处。有的官员利用手中的权力为个人捞取好处，有的企业贿赂官员为本企业得到项目、特许权或其他稀缺的经济资源。是一些既得利益者对既得利益的维护和对既得利益进行的再分配的活动。寻租往往使政府的决策或运作受到利益集团或个人的摆布。这些行为有的是非法的，有的使合法不合理的。往往成为腐败和社会不公、社会动乱之源。
-
-寻租有多重定义，布坎南（詹姆斯·麦吉尔·布坎南，1986年诺贝尔经济学奖得主）等人认为“寻求租金一词是要描述这样一种制度背景化的行为：在那里，个人竭尽使价值最大化造成了社会浪费，而没有形成社会剩余。”他们把寻租描述为人们凭借政府保护进行的寻求财富转移而造成的浪费资源的活动，即一个人在寻租，说明了这个人在某件事情上进行了投资，被投资的这种事情实际上没有提高，甚至降低了生产率，但却确实给投资者带来了一种特殊的地位或垄断权利而提高了投资者的收入，租金也就是由此所得的收入。因此，克兰德尔中给寻租下的定义是为了争夺认为的财富转移而浪费资源的活动。而克鲁格则认为寻租使为了取得许可证和配额以获得额外收益而进行的疏通活动。
-
-寻租的种类：一、政府的特许证。二、政府规定、关税与进出口的配额。三、政府采购。
-
-寻租的特点：间接造成经济资源配置的扭曲，阻止了更有效的生产方式的实施。一使直接浪费了经济资源、利用时间、精力和金钱去游说的结果，对寻租者来说可能更有效率，但对社会来说没有效率而言。
-
-导致其他层次大的寻租活动或“庇租”活动。
-
-政府部门工作人员为了对付寻租者的游说与贿赂，需要时间和精力反击。
-
-寻租活动有合法和非法之分。企业向政府争取优惠待遇，利用特殊政策维护自身的独家垄断，就属于合法的寻租活动。行贿和走私就属于非法的寻租活动。
-
-【信托制模式】信托制使由信托公司集合多个信托投资客户的资金而形成的基金（信托计划），直接或者委托其他机构进行PE投资（私募股权投资）。
-
-该模式的优点使：
-
-- 通过信托渠道筹集资金可以有效地放大PE业务资金额度，有利于迅速集中PE业务投资所需要的大量资金。信托公司作为营业性的信托机构，其存在的根本价值，在于能够将广泛的社会资金，通过特定的规则（信托制度）和载体（具体信托业务形态）转化为社会发展和经济建设所需的投资资本。
-- 其次，在目标的制度架构下，信托产品是一种标准的金融产品，不但信托资产的保管职能由银行专司，而且信托公司的受托管理活动也必须严格依照法律和法规的规定，并且在银监会的监管管理之下。这个特点与合伙制模式的缺点恰恰形成鲜明对照。
-- 新的信托公司管理办法和资金信托管理办法对信托公司的业务进行了重新定位，私人股权投资信托是一种符合新的信托公司管理办法的非债权融资信托，既符合信托行业的功能定位，又能体现出信托制度优势，发挥信托公司运作领域广泛、手段灵活的业务特点，必然成为信托公司重点拓展的业务领域。
-
-
-缺点是：
-
-信托资金往往是一次性募集，但是PE业务运作时需要根据每个具体项目投资进行资金的分阶段投入，信托募集资金可能出现暂时闲置现象。
-
-从国外看，PE业务的开展可以采用投资公司制、有限合伙制、信托制等多种模式。中国PE可行的公司制度模式实际上只有三种：合伙制、公司制和信托制模式。
-
-【金字塔持股结构】金字塔持股结构指公司实际控制人通过间接持股形成一个金字塔式的控制链实现对该公司的控制。在这种方式公司控制权人控制第一层公司，第一岑公司再控制的第二层公司，以此类推，通过多个层次的公司控制链条取得对目标公司的最终控制权。金字塔结构时一种形象的说法，就是多层级，多链条的集团控制结构。
-
-【威权主义体制】过度依赖政府的信用担保和政策导向作用。在整个过程中，政府、银行和财阀之间打造的“铁三角”关系，扼杀其他中小企业的发展空间，对经济长期增长形成了结构上的弊端。
-
-【开明专制】又称仁慈专制理论，是由McMurry于1958年针对当时最受赞扬的民主领导提出仁慈专制理论，修正民主式领导的缺失。仁慈专制亦称开明专制，是专制式领导风格向民主方式方向的一种变异。这种领导在做决策时可能仔细听取下级意见，宣布执行命令是允许提问的，并以说服方式使下级接受决策，但最终做出决定时他们往往表现的非常专断。除了掌握最后的决定权并善用权势分派下属的工作、进行决策同时也要关心各部的行为和态度并且要了解，借鉴员工意见。
-
-仁慈专制理论主张的内容：
-
-- 领导者具有权威地位，决定政策分配员工工作并严格执行完成。
-- 领导者应注意部属的情绪、态度、福利等措施并征询部属的看法，但拥有最后的决定权。
-
-
-**参考来源：**
-
-MBA智库“裙带资本主义的产生“。
-
-《裙带资本主义：韩国和菲律宾的腐败和发展》
-
-Pei, M. (2016). China’s crony capitalism: The dynamics of regime decay. Cambridge, Massachusetts: Harvard University Press.
-
-Acemoglu, D., & Robinson, J. (2013). Why nations fail: The origins of power, prosperity, and poverty (Reprint edition). New York: Crown Business.
-
-Olson, M. (1993). Dictatorship, democracy, and development. The American Political Science Review, 87(3), 567-57.
-
-North, D. C. (1991). Institutions, institutional change and economic performance. Cambridge: Cambridge University Press.
-
-Qian, Y., & Weingast, B. R. (1997). Federalism as a commitment to perserving market incentives. The Journal of Economic Perspectives, 11(4), 83-92.
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)！
 
 0

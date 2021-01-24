@@ -1,45 +1,95 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国重新加入伊核协议引发关注
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/801730/)
+## 2021/01/24 美国政要每日推特重要信息汇总
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/801933/)
 
-英听校： 康州盘古农场 – Mike Li
-翻译： 康州盘古农场 – Mike Li
-翻译终校：康州盘古农场 – Antsee-GTV
-字幕+视频制作：康州盘古农场-天涯行
-审核：康州盘古-Truemanman
+编辑：Cathy
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/twitter_in_the_usa-1.jpg)
+**经授权转载自：**
+
+- 川普等政要…直译推twitter：[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
+- 川普等政要…直译推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
+- 川普等政要…直译推GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
+
+
+## 简评：
+
+1月24日，现在参众议员们开始针对拜登的政策和美国现实存在的问题发表看法。人们都处在回看和观望的状态。
+
+## 参议员玛莎·布莱克本：
+
+旅游生子业以帮助外国人违法获得美国国籍赚了数以千万元。 《禁止旅游生子法》将堵住外国人利用其穿越美国边界的漏洞。
 
 
 
-女主持人
-在他任职期间，川普总统能够促成以色列和众多阿拉伯国家之间的和平协议，他还退出了2015年的伊核协议并重新对伊朗政权实施制裁，然而很多人对拜登政府是否会选择重新加入伊朗核协议 ，也就是简称为JCPOA的联合全面行动计划表示担忧，好的，（今天）加入讨论的是支持川普的犹太之声的联盟成员和美国阿谢特的主席 Brian Live，谢谢你加入我们。
+> The birth tourism industry makes millions helping foreigners break the law to gain American citizenship. The Ban Birth Tourism Act will eliminate loopholes that foreign nationals are exploiting to cross U.S. borders. [pic.twitter.com/MFbMCTyFL2](https://t.co/MFbMCTyFL2)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [January 23, 2021](https://twitter.com/MarshaBlackburn/status/1352825922425131009?ref_src=twsrc%5Etfw)
 
-嘉宾
-谢谢你邀请我来，早上好。
 
-女主持人
-早上好，许多官员，共和党议员们，甚至以色列，都支持总统川普普退出JCPOA，并重新对伊朗实施制裁。但伊朗总统哈桑-鲁哈尼表示，他希望拜登能重返奥巴马执政时期的核协议。如果拜登这样做会有什么影响？
 
-嘉宾
-是的，所以再次感谢你让我加入，Stephanie。《全面禁止核试验条约》是奥巴马在任时达成的一个错误的协议。而它所做的就是给伊朗提供了一条通往核武器的道路，如同解封了数十亿美元的资产。所以这些钱应该被用来丰富伊朗人民的生活不幸的是，伊朗政权利用这些资金，丰富了他们的全球恐怖网络他们花了几十亿美金在世界各地资助恐怖主义。我们可以预期同样的事情会再次发生，当拜登重新加入JCPOA的时候，让我们在这里说实话，拜登肯定会重新加入JCPO，他重新召集了整个奥巴马团队，当然，约翰-克里现在也回来了。约翰-克里在2015年与伊朗媾和是错误的，他在2016年告诉世界中东永远不会有和平，然后他将再次错误地与伊朗达成协议。伊朗要让美国死，让以色列死。他们刚刚在议会中通过了要求正式摧毁以色列的议题
+## 众议员马特·盖兹：
 
-伊朗不是盟友，斯蒂芬妮，他们是对手我们需要拜登政府应该开始把他们和当成对手。
+1．高科技寡头可以噤声美利坚合众国的总统。
 
-女主持人
-依据你的观点，报道说一名以色列高级官员告诉以色列当地的一家电视台，拜登采用奥巴马的核协议计划重新加入JCPOA与他谈什么都没有意义了，所以当然，以色列是美国最强大的盟友之一，正如你所指出的伊朗绝对是一个对手。
+想象下他们可以对您干什么。
 
-本月早些时候，伊朗宣布它恢复铀浓缩到20％的纯度，这是最严重的违反了2015年的核协议的行动，拜登政府应该如何去控制伊朗？
+【[附众议员马特·盖兹和吉姆·乔丹在福克斯新闻台与Hannitty的谈话节目内容](https://hannity.com/media-room/watch-gop-lawmakers-speak-out-against-big-tech-targeting-conservative-voices/)】
 
-嘉宾
-如果拜登政府能在特朗普政府成功的基础上再接再厉，那才是明智之举。正如我刚刚提到的，川普政府对伊朗政权采取了截然不同的做法川普政府没有纵容他们，没有把他们视为盟友视他们为凶狠的对手。所以拜登政府的明智的做法是在此基础上再接再厉，把伊朗当作对手而不是盟友。伊朗政权不是一个关心美国的人，或者说希望美国成功，他们甚至不希望自己的人成功，更不用说其他人了所以，拜登需要采取一个非常强硬的立场，需要加强制裁，并尽我们所能对伊朗施加尽可能大的压力。
 
-女主持人
-在他的办公室的最后一个完整日，川普于周二对巴林国王哈马德授予功勋勋章，承认海湾国家与以色列的正常化关系告诉我们更多关于这一行为的重要性。
 
-嘉宾
-是的，这是纪念性的，我认为一度尘埃已经落定，现在总统川普已经离去，并结束了他的任期。我认为，你会看到美国人民真正开始看到川普总统和他的政府做了所有令人惊叹的事情。从外交政策的角度来看亚伯拉罕协议是一份大礼，在未来的几十年里，它将持续在中东地区维持和平。当然，有商业交易的发生是很好的，政府派代表团互相交往也是很好的，但我认为最重要的是，像摩洛哥，巴林，沙特阿拉伯这样的国家正在采取切实的措施。在他们的教育系统的教科书中根除任何形式的反以色列和反犹太人的言论，这比任何商业交易都要长久，我认为这是，这是川普总统和他这届政府所做出的显著的工作。
+> Big Tech silenced the President of the United States.
+> 
+> Just imagine what they could do to you.[https://t.co/wOaQvfHzJz](https://t.co/wOaQvfHzJz)
+> — Rep. Matt Gaetz (@RepMattGaetz) [January 23, 2021](https://twitter.com/RepMattGaetz/status/1352996510661713920?ref_src=twsrc%5Etfw)
 
-原视频链接: [https://www.oann.com/concerns-arise-over-u-s-rejoining-iran-nuclear-deal/](https://www.oann.com/concerns-arise-over-u-s-rejoining-iran-nuclear-deal/)
 
+
+2．高科技寡头之所以针对保守派，是因为我们支持选举的诚信。
+
+【[附http://breitbart.com 新闻网的相关报道](https://www.breitbart.com/clips/2021/01/16/gaetz-incoming-biden-administration-want-to-use-national-security-authorities-against-maga/)】
+
+
+
+> Big tech is targeting conservatives because we stood up for election integrity.[https://t.co/mcQTYY4EfE](https://t.co/mcQTYY4EfE)
+> — Rep. Matt Gaetz (@RepMattGaetz) [January 23, 2021](https://twitter.com/RepMattGaetz/status/1353026961128341504?ref_src=twsrc%5Etfw)
+
+
+
+## 众议员兰斯·古登：
+
+乔·拜登的Keystone XL （撤销输油管道线）的决定毁掉：
+
+-11,000个美国工作
+
+-8,000个工会职位
+
+-16亿美元的工资
+
+同时，预计 #中国共产党 将在未来12年内每月建设2个大型燃煤电厂。
+
+#北京拜登 #BejingBiden
+
+
+
+> Joe Biden's Keystone XL decision destroyed:
+> 
+> –&gt; 11,000 U.S. jobs
+> 
+> –&gt; 8,000 union jobs 
+> 
+> –&gt; $1.6 billion in wages 
+> 
+> Meanwhile, communist China is projected to build 2 large coal plants a month for the next 12 years.[#BejingBiden](https://twitter.com/hashtag/BejingBiden?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Lance Gooden (@Lancegooden) [January 23, 2021](https://twitter.com/Lancegooden/status/1353024371783323648?ref_src=twsrc%5Etfw)
+
+
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

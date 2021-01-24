@@ -1,57 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 参议员戴恩斯：拜登和民主党不再是美国工人的朋友
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/801805/)
+## 美国之殇与东方曙光
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/801967/)
 
-翻译：康州盘古农场-Bruce
-校对：康州盘古农场-Mike Li
-审核：康州盘古农场-Antsee-GTV
+在美国历史上，从未有过一次总统选举与一个东方古国有着如此息息相关的联系，更没有过一个国家领导人的产生会牵动全世界的神经。 川普与拜登，他们之间竞争的意义早已超出了对总统之位的争夺，实际上，他们之间的战争是人类文明史上，又一次正义与邪恶，文明与野蛮的较量，而他们个人也成为这场较量中的两个符号。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-103.png)
+骄傲的美国人从未意识到，世界第一强国已经在不知不觉中被中共侵蚀，这其中最严重的是对其思想和价值观的侵蚀。 人类文明从来不是线性前进的，在欧洲，古希腊灿烂的文明之后，有蒙昧千年的中世纪，而古老的东方古国也没有继承先秦光芒万丈的思想家园，而是进入了两千年的王朝更替。 人类津津乐道，并为之骄傲的“思想”，其实是如此脆弱。人类用了几千年的时间忙于权谋，厮杀和党争，至今未休。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/2-39.png)
+川普总统此次的落选，其意义已经远远超过他个人的得失，这是美国民意的巨大伤痛，也是人类价值观严重分裂的标志，也是中共黑暗势力笼罩全球的开始，这是否意味着人类的又一个至暗时刻已经来临？是否意味着人类久违的战争正在酝酿中？
 
-![davids]()![davids](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-24-at-15.26.47-1.png)*图片：拉里·法兰西（Larry French）/盖蒂图片社提供天狼星卫星广播公司*
+这场大选背后的较量可谓惊心动魄，我们仿佛置身于一场波澜壮阔的历史剧中，不过这一次，这部历史剧中的主角是郭文贵先生引领的爆料革命。 这是一束来自东方的曙光，中国人民的觉醒与反抗会不会成为人类唯一的希望呢？
+![]()![](https://gnews.org/wp-content/uploads/2021/01/2a8a7566-370f-438e-ad96-250a85627cbe.jpg)
+回想四年前，川普总统当选美国总统，使很多人大感意外，也使那些传统政客颜面扫地。其实，那是积蓄已久的民意做出的选择。四年来，川普总统饱受攻击，身边危机四伏，一路跌跌撞撞，然而他以对美国的忠诚和对老百姓的热爱，以无比坚强的意志和勇气走到今天。失败是残酷的，自古英雄多落寞。人们看到了川普先生落选背后所有的明枪暗箭，那些道貌岸然的政客，那些义正词严的公知，那些饱读诗书的学者，那些贪赃枉法的执法者，还有中共那些鬼魅魍魉的表演，都在这场选举中赤膊上阵，你们以为自己真的赢了吗？你们以为拜登胜利了吗？你们是否知道，觉醒的美国人民绝不会坐以待毙，他们的反抗才刚刚开始；还有，你们是否知道，中共是如何对待他们用过的棋子吗？拜登当选之日，就是你们，包括拜登本人，噩梦的开始。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/e934151e-7afb-455b-a6f3-d4cdd688ad4f.jpg)
+在这场世纪大选中，郭文贵先生引领的爆料革命犹如一把利剑，一路斩妖除魔，揭露真相，唤醒民众。另一方面，中共则极尽其流氓手段，收买，造假，威胁，利诱，无所不用其极。 中华民族自古不乏直面惨烈世界的英雄，与魔鬼中共的较量已经进入生死阶段，是跪下偷生，还是站起反抗，我们的人生必须立刻做出选择。
 
-参议员史蒂夫·戴恩斯(Steve Daines)认为，乔·拜登是把沙特阿拉伯放在第一位，而不是美国。
+四年弹指一挥间，现在，美国政坛的黑幕已掀开一角，中共也不再掩饰狰狞的面目，川普总统今天的落选可以说一切只是刚刚开始，中共不除，世界永无宁日。
 
-这位共和党参议员周五在接受采访时表示，拜登停建Keystone XL输油管会扼杀美国的就业岗位并提高能源价格。
+在古老东方地平线上升起的曙光中，是昂首挺胸的新中国联邦的公民。中国人民的觉醒能否引领世界走出黑暗？我们已经站在了人类的十字路口上，我们的思想是否将再一次被关进千年的牢笼，人类将走进又一蒙昧世纪，还是冲破黑暗迎来新生。
 
+新中国联邦的公民百炼成钢，我们已收拾好行囊，我们已踏上征途，我们将义无反顾为自由，为正义而战。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/bec6b8e2-5ff1-4f6b-ab82-32096baff301.jpg)
+作者：匿名
 
+【文章仅代表作者个人观点】
 
-> .[@JoeBiden](https://twitter.com/JoeBiden?ref_src=twsrc%5Etfw)'s Saudi Arabia First Plan is unacceptable. 
-> 
-> Killing the Keystone XL pipeline has a direct impact on the pocket books of the American people & will devastate rural communities. 
-> 
-> Montana alone will lose nearly $80 million to help impoverished counties make ends meet. [pic.twitter.com/jaxWKREPxW](https://t.co/jaxWKREPxW)
-> — Steve Daines (@SteveDaines) [January 22, 2021](https://twitter.com/SteveDaines/status/1352671577998028802?ref_src=twsrc%5Etfw)
-
-
-***沙特阿拉伯*优先*计划是无法接受的。*毁掉*Keystone XL管道会直接影响美国人民的钱包，并将破坏农村社区。仅蒙大纳州就将损失近8000万美元，以帮助贫困县的地区实现收支平衡。***
-他说，停建是拜登更关心其他国家工人的证据。正因为如此，戴恩斯强调拜登和其他民主党人不再是美国工人的朋友。
-
-
-
-> That’s why I’m introducing legislation to reverse course on Biden’s terrible decision and congressionally authorize the Keystone XL pipeline. I hope ALL my colleagues-especially Republicans & Democrats in rural and western states-join in this fight.
-> — Steve Daines (@SteveDaines) [January 20, 2021](https://twitter.com/SteveDaines/status/1352029397235200008?ref_src=twsrc%5Etfw)
-
-
-***这就是为什么我要引入立法以扭转拜登的糟糕决定，并在国会上授权Keystone XL管道。我希望我的所有同事，特别是农村和西部各州的共和党人和民主党人，都参与这场斗争。***
-“这将直接影响到美国人民的口袋，”戴恩斯说。”我们现在正处于一场大瘟疫之中。他刚刚扼杀了11000个工作岗位。这对我的蒙大拿州来说，每年有8000万美元的税收收入——对低收入县来说——用于学校、执法、基础设施的收支。这是一个重大的基础设施项目，拜登上任6小时就把它扼杀了。”
-
-
-
-> I urge Senate Democrats to pick up the phone and call [@JoeBiden](https://twitter.com/JoeBiden?ref_src=twsrc%5Etfw). Tell him we need the Keystone XL pipeline. Tell him to stop abandoning American workers and killing union jobs.
-> 
-> If you say you support the pipeline, do something.
-> — Steve Daines (@SteveDaines) [January 22, 2021](https://twitter.com/SteveDaines/status/1352721643861401602?ref_src=twsrc%5Etfw)
-
-
-***我敦促参议院民主党人给乔-拜登电话@JoeBiden。告诉他我们需要Keystone XL管道。告诉他停止抛弃美国工人，杀死工会工作。
-如果您说您支持管道，就做些事情。***
-蒙大拿州参议员认为，随着拜登政府向极左激进极端分子的理想屈服，拜登的决定只会越来越糟。
-
-原文作者：《OAN新闻室》
-
-发布时间：2021年1月22日
-
-原文链接：[https://www.oann.com/sen-daines-biden-dems-no-longer-friends-to-american-workers/](https://www.oann.com/sen-daines-biden-dems-no-longer-friends-to-american-workers/)
-
-+1
+0

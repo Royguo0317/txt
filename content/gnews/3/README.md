@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧盟：药企必须履行疫苗合同
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/802880/)
+## 意大利將 “給予並保證第二劑”中共病毒疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/803327/)
 
-- 编辑：Victor Torres
+- 編輯：Victor Torres
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+***更多真相，請關註 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月24日电/西喜社——**欧洲理事会主席周日发誓要让药企履行与欧盟国家的疫苗合同，但承认该集团很难实现在夏末前为70%的成年人口接种疫苗的目标。
+**西班牙2021年1月24日電/西喜社——**意大利壹位部長表示，盡管輝瑞-生物技術疫苗的供應量意外減少，但意大利那些已經接受了第壹針抗中共病毒疫苗的人將接受第二針。
 
-在欧盟国家批评辉瑞公司中断疫苗交付的情况下，查尔斯·米歇尔在法国欧洲1号电台上说:“我们计划让制药业尊重已签署的合同。”他说，欧盟官员上周与辉瑞公司 “把我们的拳头敲在桌子上”，以确保在下周之前结束延误。
+輝瑞公司本月早些時候表示，它暫時減少了交付量，以便在比利時的工廠可以加緊生產。意大利地區事務部長弗朗切斯科·波西亞（Francesco Boccia）周日對天空TG24表示，將 “給予並保證第二劑”。
 
-然而，考虑到后勤方面的挑战以及迄今为止疫苗在欧盟的缓慢推广，他说，要实现欧盟执行委员会提出的在夏季结束前为70%的成年人口接种疫苗的目标，”将是困难的”。
+但制造商決定削減其供應計劃，這意味著意大利將不得不將旨在實現 “群體免疫 “的疫苗接種時間表推遲 “幾個星期或幾個月”，他說。意大利已經迅速推出了疫苗接種計劃，首先是醫護人員和養老院的住戶和工作人員，當輝瑞公司宣布削減疫苗供應時，意大利剛剛開始為80歲以上的老人接種疫苗。
 
-欧盟已经确定了6份疫苗合同，数量超过20亿剂，但至今只有辉瑞-生物技术公司和Moderna公司的疫苗被批准使用。欧洲药品管理局定于周五审查牛津-阿斯利康疫苗。
+博西亞說：”我們要求重新確定（疫苗交付）數量。”他的國家正在探索對制藥公司采取法律行動。截至周日上午，擁有6000萬人口的意大利已經註射了135萬支疫苗，其中7.5萬人已經接受了第二次註射。
 
-**新闻来源：**[https://apnews.com/article/europe-coronavirus-pandemic-new-zealand-1b6085aa5fe229d4ad7caba33dd43cb9](https://apnews.com/article/europe-coronavirus-pandemic-new-zealand-1b6085aa5fe229d4ad7caba33dd43cb9)
+**新聞來源：**[https://apnews.com/article/europe-coronavirus-pandemic-new-zealand-1b6085aa5fe229d4ad7caba33dd43cb9](https://apnews.com/article/europe-coronavirus-pandemic-new-zealand-1b6085aa5fe229d4ad7caba33dd43cb9)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/78878bac-8163-46ca-883b-f94c8e7356a4-5.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1ec6a034-6e35-44b9-af95-e6dbbcd653b6-54.jpg)
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
