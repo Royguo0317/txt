@@ -1,24 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西班牙最高军事指挥官因“插队”接种疫苗被迫辞职
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/799858/)
+## 中共国否认寻求与拜登官员会面
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/799933/)
 
 - 编辑：Victor Torres
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月23日电/西喜社——**西班牙最高军事指挥官被迫辞职，因为他和其他高级军官违反了既定协议，提前接种了中共病毒疫苗。
+**西班牙2021年1月23日电/西喜社——**中共国驻华盛顿大使馆正在否认有关北京希望与美国官员举行高层会晤，希望缓解过去四年来两国之间日益紧张关系的报道。
 
-西班牙国防部周六向美联社证实，部长玛格丽塔·罗伯斯(Margarita Robles)已接受参谋长米格尔·安杰尔·比利亚罗亚（Miguel Ángel Villarroya）将军的辞职。
+“这个报道与事实不符。中共国大使馆周六在一份声明中说：”中方从未写过这样的信。”。
 
-网络新闻网站El Confidencial Digital报道说，比利亚罗亚和其他高层违反了西班牙疫苗接种战略的国家协议，该协议目前只允许养老院的住院人员和医务工作者接受注射。比利亚罗亚在被报道之后辞职。最近几周，有几名公职人员接种疫苗插队，包括穆尔西亚东南部的一名地区卫生局长也辞职了。
+“我们希望有关媒体尊重事实，以客观负责的态度报道中美关系。”
 
-**新闻来源：**[https://apnews.com/article/europe-united-nations-coronavirus-pandemic-coronavirus-vaccine-asia-pacific-77fdfef687dbb5f635ec4eb6c16e83a8](https://apnews.com/article/europe-united-nations-coronavirus-pandemic-coronavirus-vaccine-asia-pacific-77fdfef687dbb5f635ec4eb6c16e83a8)
+《华尔街日报》周五报导说，北京曾想派中共最高决策机构政治局委员杨洁篪前往华盛顿，与美国总统拜登的高级助手会面。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/5bee85d7-c83d-483e-bb26-b9538b299ce5-4.jpg)
+报道称，这一提议是在习近平祝贺拜登赢得大选后不久，崔天凯大使于12月向美国官员提出的。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+不过，该使馆在声明中说，美中两国在众多分歧上应该 “互相妥协”。
 
-+1
+在川普政府时期，紧张局势因贸易、北京在南中国海的军事演习，以及最近前国务卿迈克·蓬佩奥（Mike Pompeo）宣布中国在与维吾尔族穆斯林和其他宗教团体打交道时实施种族灭绝和侵犯人权而加剧。
+
+过去一周，中国对 “撒谎和欺骗 “的蓬佩奥和前总统川普手下的其他27名高官实施了制裁。
+
+拜登接替蓬佩奥的人选布林肯（Antony Blinken）表示，他同意其前任在中国问题上的看法。
+
+不过拜登表示，他将努力与中国多相处，但他没有计划立即取消川普征收的关税。
+
+**新闻来源：**[https://www.newsmax.com/t/newsmax/article/1006896/1](https://www.newsmax.com/t/newsmax/article/1006896/1)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+
++2

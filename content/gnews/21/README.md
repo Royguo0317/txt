@@ -1,30 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 教皇因坐骨神经腿痛将缺席即将举行的三场活动
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/800472/)
+## 亡秦赵高之血腥杀戮
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/800961/)
 
-- 编辑：Victor Torres
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-127.jpg)（图片来自网络）
+作者：DDT
+
+审核校对：待命（文晓）
+
+编辑排版：待命（文晓）
+
+●解开锁链的猛兽会立即扑向无辜路人，向人类宣泄怒火；没有了嬴政的赵高，将更加残暴的追逐权力。 赵高准确的把握了胡亥篡位后怕被人质疑的心理，主动协助胡亥，密谋并实施了对朝廷大臣和皇室公子的清洗行动。赵高在清洗蒙氏一派和自己意见不一的官员后，又帮助胡亥杀掉了对其皇位有威胁的兄弟、姐妹33人；除此之外，赵高还利用胡亥出巡，故意编排罪名杀戮地方官员。一时间，朝堂之上、王室之中、地方官员人人自危，赵高趁此机会将自己的党羽、亲信安插要职。
+
+● 恐怖气氛营造起来后，胡亥终于不用担心失掉皇位，可以安心享乐了。而了解胡亥的赵高则开始谋划下一步，他把握住胡亥奢靡享乐、好大喜功、定于一尊、怕被揭短的心理，教唆胡亥居内决策，只闻其声、不见其形，保持与大臣的距离，成功的拿到了朝政的代理权。赵高将胡亥与外界隔离，胡亥成为赵高不断攫取权力的工具。
+
+●在赵高等人的运作下，秦朝的暴政在秦二世统治期间达到顶峰。“税民深者为明吏，杀人重者为忠臣”，人民苦不堪言，六国贵族也蠢蠢欲动。秦二世元年秋（公元前209年），陈胜、吴广发动大泽乡起义，天下响应，拉开了反秦战争的大幕。胡亥对此不屑一顾，认为不过是些“盗贼”，敢有不同意见者直接下狱。赵高每天向胡亥汇报镇压起义军取得的胜利，胡亥放下心来继续荒淫玩乐。不久，起义军攻至咸阳附近，胡亥惊慌失措，连忙启用少府章邯，组织骊山刑徒反扑起义军，并取得胜利。
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月24日电/西喜社——**教皇方济各将在未来几天内错过三次宗教活动，因为他的坐骨神经痛状况导致他的腿部剧烈疼痛。
+文章仅代表作者个人观点
 
-据路透社报道，梵蒂冈周六宣布了教皇改变计划的消息。他将缺席1月24日的一项活动和1月25日的两项活动。
-
-他原定参加两场宗教仪式，周日在圣彼得大教堂主持弥撒，周一在罗马一座教堂参加晚祷仪式。他还定于周一在一个外交团的年度演讲中发言。据电讯社报道，这将被推迟到以后的日期。
-
-教皇患有坐骨神经痛已经有一段时间了，但他并没有因为这种影响坐骨神经的疾病而错过很多活动，这种疾病会导致从腰部到腿部的疼痛。
-
-84岁的教皇也因为病情的疼痛而错过了新年假期的一次宗教仪式。
-
-据路透社报道，方济各因病情进行理疗，这确实导致他有时行走不便。
-
-教皇方济各在总统拜登就职日向他发去贺电，表示将为拜登祈祷，并祈求上帝帮助医治美国的分裂。
-
-**原文链接：**[https://thehill-com.cdn.ampproject.org/v/s/thehill.com/policy/international/535542-pope-to-miss-three-upcoming-events-due-to-leg-pain?amp\_js\_v=a6&amp\_gsa=1&amp&usqp=mq331AQHKAFQArABIA%3D%3D#aoh=16114471566750&referrer=https%3A%2F%2Fwww.google.com&amp\_tf=De%20%251%24s&ampshare=https%3A%2F%2Fthehill.com%2Fpolicy%2Finternational%2F535542-pope-to-miss-three-upcoming-events-due-to-leg-pain](https://thehill-com.cdn.ampproject.org/v/s/thehill.com/policy/international/535542-pope-to-miss-three-upcoming-events-due-to-leg-pain?amp_js_v=a6&amp;amp_gsa=1&amp;amp&amp;usqp=mq331AQHKAFQArABIA%3D%3D#aoh=16114471566750&amp;referrer=https%3A%2F%2Fwww.google.com&amp;amp_tf=De%20%251%24s&amp;ampshare=https%3A%2F%2Fthehill.com%2Fpolicy%2Finternational%2F535542-pope-to-miss-three-upcoming-events-due-to-leg-pain)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
-
-0
++1

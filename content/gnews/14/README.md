@@ -1,45 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共产党已经是成了美国餐桌上的大餐
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/801081/)
+## 中共国GDP突破100万亿是假，糊弄百姓是真
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/801110/)
 
-新闻简述：郭文贵先生在2021年1月15日的Getter视频中说，蓬佩奥国务卿和川普总统政府采取的灭共行动和措施是过去70年的总和。新中国联邦和所有中国人是最大的受益者。任何一个美国总统不可能随便把一个总统和美国政府前届政府下达的命令推翻。
-视频来源：[https://gtv.org/getter/6001c26187fabe2daf3a1694](https://gtv.org/getter/6001c26187fabe2daf3a1694) (00:51-2:56)
-**中英文对照全文**
+撰稿：三只松鼠
 
-Brothers and sisters, what have you discovered in the past few days? During the days between January 6th and January 20th, the actions taken by Secretary Pompeo and the U.S. government and President Trump to take down the CCP, together with the measures they have taken are as many as the sum of the past 70 years.
+审稿：Jenny 编辑：五饼二鱼
 
-兄弟姐妹们，过去的几天你们发现了什么？就这几天从1月6号到这1月20号之间，蓬佩奥国务卿和美国政府部门和川普总统，采取的对灭共的行动，还有真正的措施，是过去70年的和。
+中共国国家统计局2021年1月18日公布，面对疫情的巨大冲击和复杂严峻的国内外形势，国内生产总值（GDP)同比增长2.3%，达到1015986亿元人民币，历史上首次突破100万亿关口。
 
-So, brothers and sisters, we must see the essence of this. The United States wouldn’t take any actions unless it’s battered and bruised as hard as during the Attack on Pearl Harbor or the World War II.  The US is a selfish, Capitalist country who has really drifted away from God and its faith and away from its original intention.  Indeed, it has drifted away from democracy and rule of law, including its belief in God. “Trust my God!” This time it really hurts.
+看看《人民日报》海外版中共国自己鼓吹的政绩：面对冲击，中国逆势突围，率先控制住疫情，率先实现经济增长由负转正，成为全球唯一实现正增长的主要经济体…不仅是经济总量的跃升，过去一年，科技创新日趋活跃，信息、商务等现代服务业持续发展，人均GDP稳居中等偏上收入国家行列，最终消费支出超过55万亿元… 云云。
 
-所以说兄弟姐妹们一定要看到这个本质，美国这个国家就像珍珠岛战役被袭击一样，包括二战一样，他不打疼不流血他不行动的，他是个资本主义自私型的国家。这个国家已经真的是，远离了上帝和它的信仰，远离了它的初衷，这个真是民主法制已经远离了，包括信奉上帝，Trust my God！这个就是说这次让他疼了。
+事实果真如此，中共国经济真的这么厉害吗？笔者认为，这完全是中共国为了糊弄国内老百姓的障眼法。
 
-So the biggest beneficiary between January 6th and January 20th is the New Federal State of China and all the Chinese. It’s impossible for any U.S. president to casually overturn an order issued by a president and the previous administration of the U.S. government. It’s like that a man brings a dish to the dining table, say, a chief brings a pot of stewed sauerkraut, then if you want it raw and uncooked, it will be impossible. If you break or smash the pot, that will be another story. If you did, you would have to bear the consequences. No one would pay for you.
+芝加哥大学布斯商学院教授谢长泰及三位香港中文大学共同作者的论文发现：2008年至2016年，中共国每年平均高估实际GDP2个百分点；2016年的官方数据可能将经济规模夸大16%，等同于超过1兆5000亿美元。为什么要这样做呢？因为地方领导者能否升职，取决于经济表现，所以他们一定要干涉统计数据，拔高数据以提升他们的政绩。
 
-所以说1月6号到1月20号是新中国联邦和所有中国人最大的受益者。任何一个美国总统不可能随随便便把一个总统和美国政府前届政府下达的命令随便推翻，是不可能的，这真是，这就像一个人端上来这个一盘，厨师端上来了一盆炖锅酸菜，你想把它放回去了，回到原来被炖熟之前，那是不可能的。你要把你那炖锅给砸了给叩了，那是另外一回事。砸了、叩了你是要负责任的，没人给你付钱。
+一个国家的GDP的增长，主要从这三个方面反映：政府税收的增长情况、企业获利能力的增长、居民收入的增长。2008年以后，中国地方政府的数据越拉越夸张，如果除去虚增部分，则2008年以来中共国经济增长减缓的程度要比官方数据显现的更为严重。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1611456239-1.png)网络截图
+此外，投资和工业产值也被严重高估，影响到企业获利能力被严重高估。还有，2008年以来官方工业GDP增幅超出相对应的税收增幅，显示中共国GDP增幅也被高估，况且中共国的税收数据本来就在年年虚高。再说说居民的收入，伪总理李克强说过，中国有6亿人每个月收入1000元左右。就按中共国自己统计的数据，2019年农村居民人均可支配收入是16021元，月均大概1300元，也就是1000元左右的水平。居民的收入增长又在哪个地方体现？
 
-That is to say, if a piece of fully cooked steak is put before you, whether you choose to eat it or not, it has already been cooked. It’s just like the CCP, who has become the big meal on Americans’ table. Eat it or not, that is a matter of choice of American people, but the CCP has become the steak for Americans or a hot pot.
+再看2020年世界经济发展形势。国际货币基金组织(IMF)10月发布的《全球经济展望》预计，2020年全球经济将萎缩4.4%，相当于2009年跌幅的7倍，为上世纪30年代大萧条以来最严重的衰退。况且中共国在刚刚过去的2020年灾害不断，经济除受病毒影响以外，再加上洪灾、旱灾、蝗灾等次生灾害，物价不断飞涨，经济的增长不知从何说起？怎么就能超越欧美成为全球唯一的实现正增长的主要经济体？
 
-所以说把你整个做熟的牛排放在这，你可以吃不吃，这个牛肉已经做熟了。所以共产党已经是成了美国餐桌上的大餐，至于你美国人你吃不吃，那是你的事。共产党已经成了美国的牛排了，已经炖成火锅了。
+从以上几个方面看出，中共国鼓吹的GDP首次突破100万亿大关完全是胡说八道，只能糊弄墙内老百姓们，制造出虚假繁荣的假象，好进一步奴役百姓。
 
-以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。
+本文纯属个人观点
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/755419/](https://gnews.org/zh-hans/755419/)
-
-翻译：【Cyndi】校对：【Isaiah4031】字幕：【班仔】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-
-喜马拉雅玫瑰园小队出品
-
-敬请关注:
-
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
-
-+2
+部分摘自：
+《望海楼：GDP破百万亿元的中国答卷》[http://finance.sina.com.cn/roll/2021-01-19/doc-ikftssan8107592.shtml](http://finance.sina.com.cn/roll/2021-01-19/doc-ikftssan8107592.shtml)
+《2020年全球经济形势分析及2021年展望》[http://finance.eastmoney.com/a/202012211744226676.html](http://finance.eastmoney.com/a/202012211744226676.html)
+《中國經濟造假有多嚴重？一群學者還原內幕》[https://www.cw.com.tw/article/5094304](https://www.cw.com.tw/article/5094304)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_5335-2.jpg)
++1
