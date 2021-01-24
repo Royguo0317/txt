@@ -1,97 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫报告：川普政府的政绩——截至2021年1月（十三）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/802335/)
+## 白宫报告：川普政府的政绩——截至2021年1月（十四）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/802367/)
 
-五月花写作组 ｜ 翻译：风云九霄（文萧） ｜ 校对：伞兵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告13.jpg)
-## **Part 13 – Making Communities Safer**
+五月花写作组 ｜ 翻译：风云九霄(文萧) ｜ 校对：伞兵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告14.jpg)
+## **Part 14 – Cherishing Life and Religious Liberty**
 
-## **第十三部分：使社区更安全**
+## **第十四部分：珍惜生命与宗教自由**
 
 * * *
 
-### **Signed into law landmark criminal justice reform.**
+### **Steadfastly supported the sanctity of every human life and worked tirelessly to prevent government funding of abortion.**
 
-### 签署成为法律里程碑的刑事司法改革。
+### **坚定支持个人生命的神圣，并为防止政府为堕胎提供资金做出了不懈的努力。**
 
-- Signed the bipartisan First Step Act into law, the first landmark criminal justice reform legislation ever passed to reduce recidivism and help former inmates successfully rejoin society.
-- 将两党支持的《第一步法案》签署为法律，这是有史以来第一项具有里程碑意义的刑事司法改革立法，旨在减少惯犯并帮助已经释放的囚犯成功重返社会。
-- Promoted second chance hiring to give former inmates the opportunity to live crime-free lives and find meaningful employment.
-- 促进第二次雇用机会，使前囚犯有机会过上无犯罪的生活，并找到有意义的工作。
-- Launched a new “Ready to Work” initiative to help connect employers directly with former prisoners.
-- 发起了一项新的“Ready to Work”倡议，以帮助雇主与以前的囚犯直接联系。
-- Awarded $2.2 million to states to expand the use of fidelity bonds, which underwrite companies that hire former prisoners.
-- 授予各州220万美元以扩大诚实保证保险的使用范围，为雇用前囚犯的公司提供担保。
-- Reversed decades-old ban on Second Chance Pell programs to provide postsecondary education to individuals who are incarcerated expand their skills and better succeed in the workforce upon re-entry.
-- 废除了数十年的Second Chance Pell计划禁令，为被监禁的个人提供高等教育，扩大他们的技能，使其在重返工作岗位时更能获得成功。
-- Awarded over $333 million in Department of Labor grants to nonprofits and local and state governments for reentry projects focused on career development services for justice-involved youth and adults who were formerly incarcerated.
-- 向劳工部提供超过3.33亿美元的拨款，用于非营利组织，地方政府和州政府的再入学项目，这些项目的重点是为以前受监禁的司法介入青年和成年人提供职业发展服务。
-
-
-### **Unprecedented support for law-enforcement.**
-
-### 前所未有的支持执法。
-
-- In 2019, violent crime fell for the third consecutive year.
-- 2019年，暴力犯罪连续第三年下降。
-- Since 2016, the violent crime rate has declined over 5 percent and the murder rate has decreased by over 7 percent.
-- 自2016年以来，暴力犯罪率下降了5％以上，谋杀率下降超7％。
-- Launched Operation Legend to combat a surge of violent crime in cities, resulting in more than 5,500 arrests.
-- 发起了“Operation Legend”，以打击城市中激增的暴力犯罪，超过5,500人被捕。
-- Deployed the National Guard and Federal law enforcement to Kenosha to stop violence and restore public safety.
-- 将国民警卫队和联邦执法部门部署到Kenosha，制止暴力并恢复公共安全。
-- Provided $1 million to Kenosha law enforcement, nearly $4 million to support small businesses in Kenosha, and provided over $41 million to support law enforcement to the state of Wisconsin.
-- 向Kenosha执法部门提供了100万美元，向Kenosha的小型企业提供了近400万美元，并为威斯康星州的执法提供了超过4,100万美元。
-- Deployed Federal agents to save the courthouse in Portland from rioters.
-- 部署了联邦特工，波特兰法院在暴徒骚乱中得以幸免。
-- Signed an executive order outlining ten-year prison sentences for destroying Federal property and monuments.
-- 签署了一项行政命令，销毁联邦财产和古迹处于十年徒刑。
-- Directed the Department of Justice (DOJ) to investigate and prosecute Federal offenses related to ongoing violence.
-- 指示司法部（DOJ）调查和起诉与长期暴力相关的联邦罪行。
-- DOJ provided nearly $400 million for new law enforcement hiring.
-- 司法部为新的执法人员招聘提供了近4亿美元。
-- Endorsed by the 355,000 members of the Fraternal Order of Police.
-- 得到了355,000名警察兄弟会的认可。
-- Revitalized Project Safe Neighborhoods, which brings together Federal, state, local, and tribal law enforcement officials to develop solutions to violent crime.
-- 振兴安全社区项目，将联邦，州，地方和部落的执法人员召集在一起，以制定暴力犯罪的解决方案。
-- Improved first-responder communications by deploying the FirstNet National Public Safety Broadband Network, which serves more than 12,000 public safety agencies across the Nation.
-- 通过部署国家公共安全宽带网络FirstNet，改善了急救人员的通信，该网络为全国12,000多个公共安全机构提供服务。
-- Established a new commission to evaluate best practices for recruiting, training, and supporting law enforcement officers.
-- 建立了一个新的委员会，以评估招募，培训和支持执法人员的最佳实践。
-- Signed the Safe Policing for Safe Communities executive order to incentive local police department reforms in line with law and order.
-- 签署了《安全警务保证安全社区》的行政命令，以鼓励当地警察部门根据法律和秩序进行改革。
-- Made hundreds of millions of dollars’ worth of surplus military equipment available to local law enforcement.
-- 向当地执法部门提供了价值数亿美元的剩余军事装备。
-- Signed an executive order to help prevent violence against law enforcement officers.
-- 签署了一项行政命令，以防止对执法人员的暴力行为。
-- Secured permanent funding for the 9/11 Victim Compensation Fund for first responders.
-- 为 “ 9/11受害者补偿基金”筹得永久资金，给予第一响应者（现场应急人员）。
+- Reinstated and expanded the Mexico City Policy, ensuring that taxpayer money is not used to fund abortion globally.
+- 恢复并扩展了墨西哥城政策，确保美国纳税人的钱不被用于全球堕胎。
+- Issued a rule preventing Title X taxpayer funding from subsiding the abortion industry.
+- 发布了一项规则，以防止Title X纳税人的资金资助堕胎行业。
+- Supported legislation to end late-term abortions.
+- 支持立法终止晚期流产。
+- Cut all funding to the United Nations population fund due to the fund’s support for coercive abortion and forced sterilization.
+- 联合国人口基金支持强迫堕胎和强迫绝育，因此终止对其拨款。
+- Signed legislation overturning the previous administration’s regulation that prohibited states from defunding abortion facilities as part of their family planning programs.
+- 签署法律推翻了上届政府的法规，以禁止各州对作为其家庭生育计划的堕胎设施拨款。
+- Fully enforced the requirement that taxpayer dollars do not support abortion coverage in Obamacare exchange plans.
+- 全面执行要求纳税人的钱不得用来支持奥巴马医改计划中的堕胎。
+- Stopped the Federal funding of fetal tissue research.
+- 停止了对胎儿组织研究的联邦资助。
+- Worked to protect healthcare entities and individuals’ conscience rights – ensuring that no medical professional is forced to participate in an abortion in violation of their beliefs.
+- 致力于保护医疗机构和个人的良心权利——确保没有医疗专业人员被迫违反其信仰而参与堕胎。
+- Issued an executive order reinforcing requirement that all hospitals in the United States provide medical treatment or an emergency transfer for infants who are in need of emergency medical care—regardless of prematurity or disability.
+- 发布了一项行政命令，加强要求美国所有医院为需要紧急医疗护理的婴儿提供医疗或紧急转运，无论其是否早产或残疾。
+- Led a coalition of countries to sign the Geneva Consensus Declaration, declaring that there is no international right to abortion and committing to protecting women’s health.
+- 领导一个国家联盟签署《日内瓦共识宣言》，宣布没有国际堕胎权，并致力于保护妇女的健康。
+- First president in history to attend the March for Life.
+- 历史上首位参加维护生命权游行的总统。
 
 
-### **Implemented strong measures to stem hate crimes, gun violence, and human trafficking.**
+### **Stood up for religious liberty in the United States and around the world.**
 
-### 采取了强有力的措施来制止仇恨犯罪，枪支暴力和人口贩运。
+### **为美国和世界各地的宗教自由而呼吁。**
 
-- Signed an executive order making clear that Title VI of the Civil Rights Act of 1964 applies to discrimination rooted in anti-Semitism.
-- 签署了一项行政命令，明确表明1964年《民权法》第六章适用于植根于反犹太主义的歧视。
-- Launched a centralized website to educate the public about hate crimes and encourage reporting.
-- 建立了一个集中式网站，以教育公众关于仇恨犯罪的行为并鼓励举报。
-- Signed the Fix NICS Act to keep guns out of the hands of dangerous criminals.
-- 签署了《Fix NICS Act》，避免枪支落入危险罪犯的手中。
-- Signed the STOP School Violence Act and created a Commission on School Safety to examine ways to make our schools safer.
-- 签署了《 停止学校暴力法》，并成立了学校安全委员会，研究使学校更安全的方法。
-- Launched the Foster Youth to Independence initiative to prevent and end homelessness among young adults under the age of 25 who are in, or have recently left, the foster care system.
-- 发起了“培养独立青年”倡议，预防和消除在寄养系统中或最近离开寄养系统的25岁以下年轻人的无家可归现象。
-- Signed the Trafficking Victims Protection Reauthorization Act, which tightened criteria for whether countries are meeting standards for eliminating trafficking.
-- 签署了《贩运受害者保护重新授权法》，严格各国是否符合消除人口贩运的标准。
-- Established a task force to help combat the tragedy of missing or murdered Native American women and girls.
-- 建立了一个工作组，以帮助打击美国原住妇女和女童失踪或被谋杀的悲剧。
-- Prioritized fighting for the voiceless and ending the scourge of human trafficking across the Nation, through a whole of government back by legislation, executive action, and engagement with key industries.
-- 通过政府的立法，行政措施以及与关键行业的合作，优先为无法发声者斗争，结束全国人口贩运的危害。
-- Created the first-ever White House position focused solely on combating human trafficking.
-- 创建了有史以来第一个专门针对打击人口贩运的白宫职位。
+- Protected the conscience rights of doctors, nurses, teachers, and groups like the Little Sisters of the Poor.
+- 保护医生，护士，老师和安贫小姐妹会等团体的良心权利。
+- First president to convene a meeting at the United Nations to end religious persecution.
+- 第一任总统在联合国召开旨在结束宗教迫害的会议。
+- Established the White House Faith and Opportunity Initiative.
+- 建立了白宫信仰和机会倡议。
+- Stopped the Johnson Amendment from interfering with pastors’ right to speak their minds.
+- 阻止《约翰逊修正案》干扰牧师发表意见的权利。
+- Reversed the previous administration’s policy that prevented the government from providing disaster relief to religious organizations.
+- 推翻了上届政府阻止政府向宗教组织提供灾难援助的政策。
+- Protected faith-based adoption and foster care providers, ensuring they can continue to serve their communities while following the teachings of their faith.
+- 保护基于信仰的收养和寄养服务提供者，确保他们在遵循信仰教义的同时继续为社区服务。
+- Reduced burdensome barriers to ensure Native Americans are free to keep spiritually and culturally significant eagle feathers found on their tribal lands.
+- 减少繁文缛节，以确保美洲原住民可以自由地在其部落土地上保留精神上和文化上重要的鹰羽毛。
+- Took action to ensure Federal employees can take paid time off work to observe religious holy days.
+- 采取措施确保联邦雇员可以带薪休假来遵守宗教节日。
+- Signed legislation to assist religious and ethnic groups targeted by ISIS for mass murder and genocide in Syria and Iraq.
+- 签署了立法，以协助那些在叙利亚和伊拉克被ISIS进行大规模屠杀和种族灭绝的宗教和族裔群体。
+- Directed American assistance toward persecuted communities, including through faith-based programs.
+- 向美国的受迫害社区提供援助，包括通过基于信仰的计划。
+- Launched the International Religious Freedom Alliance – the first-ever alliance devoted to confronting religious persecution around the world.
+- 发起了国际宗教自由联盟，这是有史以来第一个致力于应对世界各地宗教迫害的联盟。
+- Appointed a Special Envoy to monitor and combat anti-Semitism.
+- 任命了一个特使来监督和打击反犹太主义。
+- Imposed restrictions on certain Chinese officials, internal security units, and companies for their complicity in the persecution of Uighur Muslims in Xinjiang.
+- 对参与迫害新疆维吾尔族人的某些中国官员，内部安全部门和公司实施共谋限制。
+- Issued an executive order to protect and promote religious freedom around the world.
+- 发布了一项行政命令，以保护和促进全世界的宗教自由。
 
 
 * * *
@@ -125,6 +105,8 @@
 [白宫报告：川普政府的政绩——截至2021年1月（十一）](https://gnews.org/zh-hans/802251/)
 
 [白宫报告：川普政府的政绩——截至2021年1月（十二）](https://gnews.org/zh-hans/802307/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十三）](https://gnews.org/zh-hans/802335/)
 
 * * *
 

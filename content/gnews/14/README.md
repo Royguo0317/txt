@@ -1,69 +1,97 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫报告：川普政府的政绩——截至2021年1月（十二）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/802307/)
+## 白宫报告：川普政府的政绩——截至2021年1月（十三）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/802335/)
 
 五月花写作组 ｜ 翻译：风云九霄（文萧） ｜ 校对：伞兵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告12.jpg)
-## **Part 12 – Serving and Protecting Our Veterans**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告13.jpg)
+## **Part 13 – Making Communities Safer**
 
-## **第十二部分：服务和保护我们的退伍军人**
+## **第十三部分：使社区更安全**
 
 * * *
 
-### **Reformed the Department of Veterans Affairs (VA) to improve care, choice, and employee accountability.**
+### **Signed into law landmark criminal justice reform.**
 
-### 改革了退伍军人事务部（VA），以改善医疗护理，选择范围和员工问责制。
+### 签署成为法律里程碑的刑事司法改革。
 
-- Signed and implemented the VA Mission Act, which made permanent Veterans CHOICE, revolutionized the VA community care system, and delivered quality care closer to home for Veterans.
-- 签署并实施了《 VA使命法案》，该法案使退伍军人获得永久性的选择，彻底改变了VA社区护理系统，并为退伍军人提供了离家更近的优质护理。
-- The number of Veterans who say they trust VA services has increased 19 percent to a record 91 percent, an all-time high.
-- 信赖VA服务的退伍军人数量增加了19％，达到创纪录的91％，为历史新高。
-- Offered same-day emergency mental health care at every VA medical facility, and secured $9.5 billion for mental health services in 2020.
-- 每家VA医疗机构提供当日紧急心理保健服务，并在2020年为心理保健服务筹资95亿美元。
-- Signed the VA Choice and Quality Employment Act of 2017, which ensured that veterans could continue to see the doctor of their choice and wouldn’t have to wait for care.
-- 签署了《 2017年VA选择与优质就业法案》，该法案确保退伍军人可以继续看望自己选择的医生，而不必排队等待。
-- During the Trump Administration, millions of veterans have been able to choose a private doctor in their communities.
-- 在川普政府执政期间，数百万退伍军人能够在其社区中选择私人医生。
-- Expanded Veterans’ ability to access telehealth services, including through the “Anywhere to Anywhere” VA healthcare initiative leading to a 1000 percent increase in usage during COVID-19.
-- 扩大了退伍军人访问远程医疗服务的能力，包括通过“Anywhere to Anywhere” VA医保计划，使COVID-19期间的使用率增加了1000％。
-- Signed the Veterans Affairs Accountability and Whistleblower Protection Act and removed thousands of VA workers who failed to give our Vets the care they have so richly deserve.
-- 签署了《退伍军人事务部问责与举报人保护法》，并解雇了数千名未能为我们退伍军人提供应有照顾的VA员工。
-- Signed the Veterans Appeals Improvement and Modernization Act of 2017 and improved the efficiency of the VA, setting record numbers of appeals decisions.
-- 签署了《2017年退伍军人上诉改善和现代化法案》，提高了VA效率，上诉裁决的数量创纪录。
-- Modernized medical records to begin a seamless transition from the Department of Defense to the VA.
-- 现代化的医疗记录从国防部到VA开始无缝过渡。
-- Launched a new tool that provides Veterans with online access to average wait times and quality-of-care data.
-- 推出了一个新工具，使退伍军人可以在线访问平均等待时间和护理质量数据。
-- The promised White House VA Hotline has fielded hundreds of thousands of calls.
-- 承诺的白宫VA热线已经接到了数十万个电话。
-- Formed the PREVENTS Task Force to fight the tragedy of Veteran suicide.
-- 成立了PREVENTS工作组，以应对退伍军人自杀的悲剧。
+- Signed the bipartisan First Step Act into law, the first landmark criminal justice reform legislation ever passed to reduce recidivism and help former inmates successfully rejoin society.
+- 将两党支持的《第一步法案》签署为法律，这是有史以来第一项具有里程碑意义的刑事司法改革立法，旨在减少惯犯并帮助已经释放的囚犯成功重返社会。
+- Promoted second chance hiring to give former inmates the opportunity to live crime-free lives and find meaningful employment.
+- 促进第二次雇用机会，使前囚犯有机会过上无犯罪的生活，并找到有意义的工作。
+- Launched a new “Ready to Work” initiative to help connect employers directly with former prisoners.
+- 发起了一项新的“Ready to Work”倡议，以帮助雇主与以前的囚犯直接联系。
+- Awarded $2.2 million to states to expand the use of fidelity bonds, which underwrite companies that hire former prisoners.
+- 授予各州220万美元以扩大诚实保证保险的使用范围，为雇用前囚犯的公司提供担保。
+- Reversed decades-old ban on Second Chance Pell programs to provide postsecondary education to individuals who are incarcerated expand their skills and better succeed in the workforce upon re-entry.
+- 废除了数十年的Second Chance Pell计划禁令，为被监禁的个人提供高等教育，扩大他们的技能，使其在重返工作岗位时更能获得成功。
+- Awarded over $333 million in Department of Labor grants to nonprofits and local and state governments for reentry projects focused on career development services for justice-involved youth and adults who were formerly incarcerated.
+- 向劳工部提供超过3.33亿美元的拨款，用于非营利组织，地方政府和州政府的再入学项目，这些项目的重点是为以前受监禁的司法介入青年和成年人提供职业发展服务。
 
 
-### **Decreased veteran homelessness, improved education benefits, and achieved record-low veteran unemployment.**
+### **Unprecedented support for law-enforcement.**
 
-### **减少了无家可归的退伍军人，改善了教育福利，并实现了创纪录的老兵低失业率。**
+### 前所未有的支持执法。
 
-- Signed and implemented the Forever GI Bill, allowing Veterans to use their benefits to get an education at any point in their lives.
-- 签署并实施了《Forever GI Bill》，使退伍军人可以享受任何时候接受教育的福利。
-- Eliminated every penny of Federal student loan debt owed by American veterans who are completely and permanently disabled.
-- 为完全永久残疾的美国退伍军免去全部的联邦学生贷款债务。
-- Compared to 2009, 49 percent fewer veterans experienced homelessness nationwide during 2019.
-- 与2009年相比，2019年全国无家可归的退伍军人减少了49％。
-- Signed and implemented the HAVEN Act to ensure that Veterans who’ve declared bankruptcy don’t lose their disability payments.
-- 签署并实施了《HAVEN法案》，以确保宣布破产的退伍军人不会损失其伤残偿金。
-- Helped hundreds of thousands of military service members make the transition from the military to the civilian workforce, and developed programs to support the employment of military spouses.
-- 帮助数十万军人从军队过渡到文职人员，并制定了支持军人配偶就业的计划。
-- Placed nearly 40,000 homeless veterans into employment through the Homeless Veterans Reintegration Program.
-- 通过无家可归退伍军人重返社会的项目，近40,000名无家可归的退伍军人就业。
-- Placed over 600,000 veterans into employment through American Job Center services.
-- 通过美国就业中心服务，60万退伍军人就业。
-- Enrolled over 500,000 transitioning service members in over 20,000 Department of Labor employment workshops.
-- 在20,000多个劳工部就业研讨会上，招募了500,000多个处于过渡阶段的军人。
-- Signed an executive order to help Veterans transition seamlessly into the United States Merchant Marine.
-- 签署了一项行政命令，以帮助退伍军人无缝过渡到美国商船发展工作。
+- In 2019, violent crime fell for the third consecutive year.
+- 2019年，暴力犯罪连续第三年下降。
+- Since 2016, the violent crime rate has declined over 5 percent and the murder rate has decreased by over 7 percent.
+- 自2016年以来，暴力犯罪率下降了5％以上，谋杀率下降超7％。
+- Launched Operation Legend to combat a surge of violent crime in cities, resulting in more than 5,500 arrests.
+- 发起了“Operation Legend”，以打击城市中激增的暴力犯罪，超过5,500人被捕。
+- Deployed the National Guard and Federal law enforcement to Kenosha to stop violence and restore public safety.
+- 将国民警卫队和联邦执法部门部署到Kenosha，制止暴力并恢复公共安全。
+- Provided $1 million to Kenosha law enforcement, nearly $4 million to support small businesses in Kenosha, and provided over $41 million to support law enforcement to the state of Wisconsin.
+- 向Kenosha执法部门提供了100万美元，向Kenosha的小型企业提供了近400万美元，并为威斯康星州的执法提供了超过4,100万美元。
+- Deployed Federal agents to save the courthouse in Portland from rioters.
+- 部署了联邦特工，波特兰法院在暴徒骚乱中得以幸免。
+- Signed an executive order outlining ten-year prison sentences for destroying Federal property and monuments.
+- 签署了一项行政命令，销毁联邦财产和古迹处于十年徒刑。
+- Directed the Department of Justice (DOJ) to investigate and prosecute Federal offenses related to ongoing violence.
+- 指示司法部（DOJ）调查和起诉与长期暴力相关的联邦罪行。
+- DOJ provided nearly $400 million for new law enforcement hiring.
+- 司法部为新的执法人员招聘提供了近4亿美元。
+- Endorsed by the 355,000 members of the Fraternal Order of Police.
+- 得到了355,000名警察兄弟会的认可。
+- Revitalized Project Safe Neighborhoods, which brings together Federal, state, local, and tribal law enforcement officials to develop solutions to violent crime.
+- 振兴安全社区项目，将联邦，州，地方和部落的执法人员召集在一起，以制定暴力犯罪的解决方案。
+- Improved first-responder communications by deploying the FirstNet National Public Safety Broadband Network, which serves more than 12,000 public safety agencies across the Nation.
+- 通过部署国家公共安全宽带网络FirstNet，改善了急救人员的通信，该网络为全国12,000多个公共安全机构提供服务。
+- Established a new commission to evaluate best practices for recruiting, training, and supporting law enforcement officers.
+- 建立了一个新的委员会，以评估招募，培训和支持执法人员的最佳实践。
+- Signed the Safe Policing for Safe Communities executive order to incentive local police department reforms in line with law and order.
+- 签署了《安全警务保证安全社区》的行政命令，以鼓励当地警察部门根据法律和秩序进行改革。
+- Made hundreds of millions of dollars’ worth of surplus military equipment available to local law enforcement.
+- 向当地执法部门提供了价值数亿美元的剩余军事装备。
+- Signed an executive order to help prevent violence against law enforcement officers.
+- 签署了一项行政命令，以防止对执法人员的暴力行为。
+- Secured permanent funding for the 9/11 Victim Compensation Fund for first responders.
+- 为 “ 9/11受害者补偿基金”筹得永久资金，给予第一响应者（现场应急人员）。
+
+
+### **Implemented strong measures to stem hate crimes, gun violence, and human trafficking.**
+
+### 采取了强有力的措施来制止仇恨犯罪，枪支暴力和人口贩运。
+
+- Signed an executive order making clear that Title VI of the Civil Rights Act of 1964 applies to discrimination rooted in anti-Semitism.
+- 签署了一项行政命令，明确表明1964年《民权法》第六章适用于植根于反犹太主义的歧视。
+- Launched a centralized website to educate the public about hate crimes and encourage reporting.
+- 建立了一个集中式网站，以教育公众关于仇恨犯罪的行为并鼓励举报。
+- Signed the Fix NICS Act to keep guns out of the hands of dangerous criminals.
+- 签署了《Fix NICS Act》，避免枪支落入危险罪犯的手中。
+- Signed the STOP School Violence Act and created a Commission on School Safety to examine ways to make our schools safer.
+- 签署了《 停止学校暴力法》，并成立了学校安全委员会，研究使学校更安全的方法。
+- Launched the Foster Youth to Independence initiative to prevent and end homelessness among young adults under the age of 25 who are in, or have recently left, the foster care system.
+- 发起了“培养独立青年”倡议，预防和消除在寄养系统中或最近离开寄养系统的25岁以下年轻人的无家可归现象。
+- Signed the Trafficking Victims Protection Reauthorization Act, which tightened criteria for whether countries are meeting standards for eliminating trafficking.
+- 签署了《贩运受害者保护重新授权法》，严格各国是否符合消除人口贩运的标准。
+- Established a task force to help combat the tragedy of missing or murdered Native American women and girls.
+- 建立了一个工作组，以帮助打击美国原住妇女和女童失踪或被谋杀的悲剧。
+- Prioritized fighting for the voiceless and ending the scourge of human trafficking across the Nation, through a whole of government back by legislation, executive action, and engagement with key industries.
+- 通过政府的立法，行政措施以及与关键行业的合作，优先为无法发声者斗争，结束全国人口贩运的危害。
+- Created the first-ever White House position focused solely on combating human trafficking.
+- 创建了有史以来第一个专门针对打击人口贩运的白宫职位。
 
 
 * * *
@@ -95,6 +123,8 @@
 [白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
 
 [白宫报告：川普政府的政绩——截至2021年1月（十一）](https://gnews.org/zh-hans/802251/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十二）](https://gnews.org/zh-hans/802307/)
 
 * * *
 

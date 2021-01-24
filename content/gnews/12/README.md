@@ -1,119 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫报告：川普政府的政绩——截至2021年1月（十四）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/802367/)
+## 【香港要闻】 港医管局秋后算账 去年2月罢工医护被「扣粮」
+` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/802365/)
 
-五月花写作组 ｜ 翻译：风云九霄(文萧) ｜ 校对：伞兵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告14.jpg)
-## **Part 14 – Cherishing Life and Religious Liberty**
+搜集：文燕
 
-## **第十四部分：珍惜生命与宗教自由**
+编撰：文燕
 
-* * *
+审稿：卡西欧
 
-### **Steadfastly supported the sanctity of every human life and worked tirelessly to prevent government funding of abortion.**
+上传：文粤
 
-### **坚定支持个人生命的神圣，并为防止政府为堕胎提供资金做出了不懈的努力。**
+**去年 2 ****月，医管局员工阵线曾发起罢工，要求政府「封关」抗疫。医管局事后明言会追究「缺勤」员工，并要求医护提供罢工期间的出勤证明。医管局员工阵线日前在其facebook ****专页发文，称曾参与罢工的同事，应开始陆续收到人力资源部的信件或电邮，要求员工在2 ****月10 ****日前，交回「罢工扣粮」支票，或于2 ****月分的薪金扣取相应部分。**医管局已于近日发信通知有关员工实际的金额，又称具体的安排合情、合理、合法及公平，但局方未有回应涉及的员工数目及实际金额。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/jpg0124bbimage001-1.jpg)罢工期间，医护在医管局大楼内集会，高举标语，呼喊口号。
+医管局员工阵线于去年 2 月，曾发起医护罢工，要求政府封关抗疫。罢工维持 5 日后结束，政府则始终没有回应工会诉求。事后医管局多次表示将追究涉事员工，又形容罢工的员工是缺勤。早前医管局再表示，将扣除涉事员工没有执勤日子的薪金，但不会再有其他人力资源上的后续行动。
 
-- Reinstated and expanded the Mexico City Policy, ensuring that taxpayer money is not used to fund abortion globally.
-- 恢复并扩展了墨西哥城政策，确保美国纳税人的钱不被用于全球堕胎。
-- Issued a rule preventing Title X taxpayer funding from subsiding the abortion industry.
-- 发布了一项规则，以防止Title X纳税人的资金资助堕胎行业。
-- Supported legislation to end late-term abortions.
-- 支持立法终止晚期流产。
-- Cut all funding to the United Nations population fund due to the fund’s support for coercive abortion and forced sterilization.
-- 联合国人口基金支持强迫堕胎和强迫绝育，因此终止对其拨款。
-- Signed legislation overturning the previous administration’s regulation that prohibited states from defunding abortion facilities as part of their family planning programs.
-- 签署法律推翻了上届政府的法规，以禁止各州对作为其家庭生育计划的堕胎设施拨款。
-- Fully enforced the requirement that taxpayer dollars do not support abortion coverage in Obamacare exchange plans.
-- 全面执行要求纳税人的钱不得用来支持奥巴马医改计划中的堕胎。
-- Stopped the Federal funding of fetal tissue research.
-- 停止了对胎儿组织研究的联邦资助。
-- Worked to protect healthcare entities and individuals’ conscience rights – ensuring that no medical professional is forced to participate in an abortion in violation of their beliefs.
-- 致力于保护医疗机构和个人的良心权利——确保没有医疗专业人员被迫违反其信仰而参与堕胎。
-- Issued an executive order reinforcing requirement that all hospitals in the United States provide medical treatment or an emergency transfer for infants who are in need of emergency medical care—regardless of prematurity or disability.
-- 发布了一项行政命令，加强要求美国所有医院为需要紧急医疗护理的婴儿提供医疗或紧急转运，无论其是否早产或残疾。
-- Led a coalition of countries to sign the Geneva Consensus Declaration, declaring that there is no international right to abortion and committing to protecting women’s health.
-- 领导一个国家联盟签署《日内瓦共识宣言》，宣布没有国际堕胎权，并致力于保护妇女的健康。
-- First president in history to attend the March for Life.
-- 历史上首位参加维护生命权游行的总统。
+医管局员工阵线主席余慧明日前在其facebook 发文，提到去年1 月22 日，香港的首名武汉肺炎确诊者，乘搭高铁来港，至今年1 月22 日，医管局便发通知要求交回扣粮支票，「一年了，医管局还在责怪同事」，又不满「敢问你们自己有没有进dirty team（注：重灾组）」、「还要用blame the victim（注：责怪受害者） 的口吻责怪同事」？ 「但都希望同事不要逆来顺受」。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/jpg-0124bbimage003-1.jpg)
+**战友观点：**
 
+这次医管局对医护人员「罢工扣粮」秋后算账是预料之中。医管局曾多次批评罢工医护「令同事之间议论纷纷，亦招致社会热议，影响医护人员的专业形象。」医管局批评，今年2 月初约7000 名同事「缺勤」，严重影响公立医院服务，导致各联网削减近一半预约手术，普通科门诊和专科门诊名额大幅减少，癌症和心脏病的服务亦需要延期，指事件损害公众对公共医疗的信心。 7000 名医护人员的声音，医管局为什么听不见？
 
-### **Stood up for religious liberty in the United States and around the world.**
+香港民意研究所去年发表「我们香港人意见群组调查」，问及受访者是否认为医管局追究行动存政治目的，有 58% 受访者相信医管局有政治目的。在自称「民主派」的受访者中，有高达 89% 人相信医管局有政治目的；至于自称「非民主派」受访者，只有 29% 人相信医管局有政治目的。
 
-### **为美国和世界各地的宗教自由而呼吁。**
+该民研调查以网上调查方式访问 9,844 人，其中有 8,334 人自称为民主派支持者，853 人则自称为非民主派支持者。
 
-- Protected the conscience rights of doctors, nurses, teachers, and groups like the Little Sisters of the Poor.
-- 保护医生，护士，老师和安贫小姐妹会等团体的良心权利。
-- First president to convene a meeting at the United Nations to end religious persecution.
-- 第一任总统在联合国召开旨在结束宗教迫害的会议。
-- Established the White House Faith and Opportunity Initiative.
-- 建立了白宫信仰和机会倡议。
-- Stopped the Johnson Amendment from interfering with pastors’ right to speak their minds.
-- 阻止《约翰逊修正案》干扰牧师发表意见的权利。
-- Reversed the previous administration’s policy that prevented the government from providing disaster relief to religious organizations.
-- 推翻了上届政府阻止政府向宗教组织提供灾难援助的政策。
-- Protected faith-based adoption and foster care providers, ensuring they can continue to serve their communities while following the teachings of their faith.
-- 保护基于信仰的收养和寄养服务提供者，确保他们在遵循信仰教义的同时继续为社区服务。
-- Reduced burdensome barriers to ensure Native Americans are free to keep spiritually and culturally significant eagle feathers found on their tribal lands.
-- 减少繁文缛节，以确保美洲原住民可以自由地在其部落土地上保留精神上和文化上重要的鹰羽毛。
-- Took action to ensure Federal employees can take paid time off work to observe religious holy days.
-- 采取措施确保联邦雇员可以带薪休假来遵守宗教节日。
-- Signed legislation to assist religious and ethnic groups targeted by ISIS for mass murder and genocide in Syria and Iraq.
-- 签署了立法，以协助那些在叙利亚和伊拉克被ISIS进行大规模屠杀和种族灭绝的宗教和族裔群体。
-- Directed American assistance toward persecuted communities, including through faith-based programs.
-- 向美国的受迫害社区提供援助，包括通过基于信仰的计划。
-- Launched the International Religious Freedom Alliance – the first-ever alliance devoted to confronting religious persecution around the world.
-- 发起了国际宗教自由联盟，这是有史以来第一个致力于应对世界各地宗教迫害的联盟。
-- Appointed a Special Envoy to monitor and combat anti-Semitism.
-- 任命了一个特使来监督和打击反犹太主义。
-- Imposed restrictions on certain Chinese officials, internal security units, and companies for their complicity in the persecution of Uighur Muslims in Xinjiang.
-- 对参与迫害新疆维吾尔族人的某些中国官员，内部安全部门和公司实施共谋限制。
-- Issued an executive order to protect and promote religious freedom around the world.
-- 发布了一项行政命令，以保护和促进全世界的宗教自由。
+对于调查结果，医管局员工阵线副主席罗卓尧指出，工会起初发起罢工行动，是因为政府及医管局防疫工作无能，冀能针对政府不愿封关、防疫装备不足的问题。他续说，近期言论空间收窄，不同界别、机构遭针对，是当权者一种「全面的政治清算」。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/jpg-0124bbimage005-1.jpg)香港中信泰富前董事总经理范鸿龄（右）将出任医管局主席。 （大纪元资料图片）
+2019年行政长官林郑月娥委任范鸿龄为医院管理局（医管局）主席，并同时委任两名新成员及再度委任3名现任成员，任期由2019年12月1日起生效，为期两年。
 
+当时71岁的中信泰富前董事总经理范鸿龄是个备受争议的人物，08年范鸿龄任中信泰富董事总经理期间，卷入炒燶外汇杠杆式(外汇杠杆式炒卖亏损)合约一案，被控涉嫌虚假陈述或误导，2017年获判无罪。
 
-* * *
+去年「8·31太子站恐袭事件」后，不断有「警察打死人」，「毁尸灭迹」等传闻，医管局已不能身处事件局外，公众都期待医管局在相关事件方面持严肃公正的立场。
 
-原文来源：
+范鸿龄作为林郑月娥的「政治红人」，在敏感时期，出任医管局主席备受争议。
 
-[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
+立法会议员郭家麒表示，范鸿龄加入医管局不足一年，对医疗体系及医管局运作缺乏认识，公信力不足，对有关任命存极大保留，质疑政府决定有政治目的。
 
-往期链接：
+以上观点仅代表笔者本人
 
-[白宫报告：川普政府的政绩——截至2021年1月（一）](https://gnews.org/zh-hans/761018/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（二）](https://gnews.org/zh-hans/761213/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（三）](https://gnews.org/zh-hans/766962/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（四）](https://gnews.org/zh-hans/767022/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（五）](https://gnews.org/zh-hans/771076/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（六）](https://gnews.org/zh-hans/771727/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（七-1）](https://gnews.org/zh-hans/779811/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（七-2）](https://gnews.org/zh-hans/780079/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（八）](https://gnews.org/zh-hans/788066/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十一）](https://gnews.org/zh-hans/802251/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十二）](https://gnews.org/zh-hans/802307/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十三）](https://gnews.org/zh-hans/802335/)
-
-* * *
-
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
-
-更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)！
-
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)！
+资料来源：[立场新闻（一）](https://www.thestandnews.com/politics/%E9%86%AB%E7%AE%A1%E5%B1%80%E5%93%A1%E5%B7%A5%E9%99%A3%E7%B7%9A-%E7%BD%B7%E5%B7%A5%E9%86%AB%E8%AD%B7%E9%99%B8%E7%BA%8C%E6%94%B6%E4%BF%A1%E8%99%95%E7%90%86%E6%89%A3%E8%96%AA%E4%BA%8B%E5%AE%9C-%E4%BD%99%E6%85%A7%E6%98%8E-%E6%94%BF%E6%B2%BB%E4%B8%AD%E7%AB%8B-%E9%86%AB%E7%AE%A1%E5%B1%80-%E6%94%B6%E7%9A%AE%E5%95%A6/)、[立场新闻（二）](https://www.thestandnews.com/politics/%E9%86%AB%E8%AD%B7%E7%BD%B7%E5%B7%A5-%E9%86%AB%E7%AE%A1%E5%B1%80%E8%A6%81%E6%B1%82%E5%93%A1%E5%B7%A5%E8%A7%A3%E9%87%8B%E7%BC%BA%E5%8B%A4-%E9%A6%99%E6%B8%AF%E6%B0%91%E7%A0%94%E8%A8%AA%E5%95%8F%E8%BF%91%E8%90%AC%E4%BA%BA-58-%E7%9B%B8%E4%BF%A1%E5%87%BA%E6%96%BC%E6%94%BF%E6%B2%BB%E7%9B%AE%E7%9A%84/)、[大纪元香港](https://hk.epochtimes.com/news/2019-09-12/4650160)
 
 0
