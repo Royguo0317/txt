@@ -1,31 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【聚焦】中共空军大规模入侵台湾防空识别区
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/800798/)
+## 共产党已经是成了美国餐桌上的大餐
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/801081/)
 
-作者：翼族
+新闻简述：郭文贵先生在2021年1月15日的Getter视频中说，蓬佩奥国务卿和川普总统政府采取的灭共行动和措施是过去70年的总和。新中国联邦和所有中国人是最大的受益者。任何一个美国总统不可能随便把一个总统和美国政府前届政府下达的命令推翻。
+视频来源：[https://gtv.org/getter/6001c26187fabe2daf3a1694](https://gtv.org/getter/6001c26187fabe2daf3a1694) (00:51-2:56)
+**中英文对照全文**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture2-16.png)图片来源：美国之音
+Brothers and sisters, what have you discovered in the past few days? During the days between January 6th and January 20th, the actions taken by Secretary Pompeo and the U.S. government and President Trump to take down the CCP, together with the measures they have taken are as many as the sum of the past 70 years.
 
-【译评：由于爆料革命带来的的巨大压力，中共内部有如高压锅，各派系之间的斗争走向白热化。为转移国内外矛盾以及将政治对手送上断头台，中共急需一个爆破口卸压，于是对台湾动武变成了一个可能的选项。中共空军23日大规模入侵台湾防空识别区就是一种试探，一方面试探美方新一届政府对台态度，另一方面也试探中共军队内部对台动武的各方反应。而无论如何，一旦中共进攻台湾，这最后的疯狂只会加速他们的灭亡。】
+兄弟姐妹们，过去的几天你们发现了什么？就这几天从1月6号到这1月20号之间，蓬佩奥国务卿和美国政府部门和川普总统，采取的对灭共的行动，还有真正的措施，是过去70年的和。
 
-据台北（路透社2021-1-23）报道：台湾国防部称，星期六有八架中共轰炸机和四架战斗机进入台湾防空识别区的西南角，台湾空军已部署导弹对此次入侵进行“监视”。
+So, brothers and sisters, we must see the essence of this. The United States wouldn’t take any actions unless it’s battered and bruised as hard as during the Attack on Pearl Harbor or the World War II.  The US is a selfish, Capitalist country who has really drifted away from God and its faith and away from its original intention.  Indeed, it has drifted away from democracy and rule of law, including its belief in God. “Trust my God!” This time it really hurts.
 
-在最近的几个月里，声称台湾为自己领土的中共国几乎每天都在台湾的南部和南海附近，由台湾控制的普拉塔斯群岛（Pratas Islands）之间的水域上进行飞行。但是，它们通常只是一两架侦察机的编队。而台湾方面的报道称，此次的入侵是由八架具有核能力的H-6K轰炸机和四架J-16战斗机组成的，一下子如此多的中共战机出现在台湾，这是非常不寻常的。
+所以说兄弟姐妹们一定要看到这个本质，美国这个国家就像珍珠岛战役被袭击一样，包括二战一样，他不打疼不流血他不行动的，他是个资本主义自私型的国家。这个国家已经真的是，远离了上帝和它的信仰，远离了它的初衷，这个真是民主法制已经远离了，包括信奉上帝，Trust my God！这个就是说这次让他疼了。
 
-根据台湾国防部提供的地图显示，中共飞机（其中还包括一架Y-8反潜飞机）飞越了普拉塔斯群岛附近，这是中共空军最近执行任务的同一水域，尽管这里距离台湾本土还有一段距离。
+So the biggest beneficiary between January 6th and January 20th is the New Federal State of China and all the Chinese. It’s impossible for any U.S. president to casually overturn an order issued by a president and the previous administration of the U.S. government. It’s like that a man brings a dish to the dining table, say, a chief brings a pot of stewed sauerkraut, then if you want it raw and uncooked, it will be impossible. If you break or smash the pot, that will be another story. If you did, you would have to bear the consequences. No one would pay for you.
 
-国防部补充说，台湾空军对中共飞机发出了警告，并部署了导弹对其进行监视，以及使用标准的措辞来表达他们对中共活动的反应。国防部发出一份简短的声明：“空中预警机已经完成任务，发出了无线电警告，并部署了防空导弹系统来监视该活动。”
+所以说1月6号到1月20号是新中国联邦和所有中国人最大的受益者。任何一个美国总统不可能随随便便把一个总统和美国政府前届政府下达的命令随便推翻，是不可能的，这真是，这就像一个人端上来这个一盘，厨师端上来了一盆炖锅酸菜，你想把它放回去了，回到原来被炖熟之前，那是不可能的。你要把你那炖锅给砸了给叩了，那是另外一回事。砸了、叩了你是要负责任的，没人给你付钱。
 
-中共没有立即发表评论。中共国过去一直表示他们是在进行捍卫国家主权和安全的演习。
+That is to say, if a piece of fully cooked steak is put before you, whether you choose to eat it or not, it has already been cooked. It’s just like the CCP, who has become the big meal on Americans’ table. Eat it or not, that is a matter of choice of American people, but the CCP has become the steak for Americans or a hot pot.
 
-随着美国对民主台湾的支持力度的增加，北京方面的关注也在升级，尤其是在唐纳德·川普政府于本周三卸任期间。
+所以说把你整个做熟的牛排放在这，你可以吃不吃，这个牛肉已经做熟了。所以共产党已经是成了美国餐桌上的大餐，至于你美国人你吃不吃，那是你的事。共产党已经成了美国的牛排了，已经炖成火锅了。
 
-去年在美国高级官员访问台北的期间，中共国飞机曾短暂越过台湾海峡的中线，该海峡通常被认为是一个非官方的缓冲地带。在乔·拜登就任美国总统几天后，中共国的轰炸机和战斗机周六就飞临了（台湾）。
+以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。
 
-白宫国家安全委员会发言人艾米莉·霍恩（Emily Horne）表示，美国对台湾的承诺“坚如磐石”，此前台湾驻华盛顿的事实上的大使萧美琴出席了拜登的宣誓就职仪式。
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/755419/](https://gnews.org/zh-hans/755419/)
 
-原文链接：[https://www.reuters.com/article/us-taiwan-china-security-idUSKBN29S0BK](https://www.reuters.com/article/us-taiwan-china-security-idUSKBN29S0BK)
+翻译：【Cyndi】校对：【Isaiah4031】字幕：【班仔】视频解码：【恒久忍耐】编辑：【Isaiah4031】
 
-+3
+喜马拉雅玫瑰园小队出品
+
+敬请关注:
+
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+
++2

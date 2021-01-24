@@ -1,30 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 教皇因坐骨神经腿痛将缺席即将举行的三场活动
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/800472/)
+## 拜登总统上任首日, 川普时期关于电网安全的行政令被撤销
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/800792/)
 
-- 编辑：Victor Torres
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-46.png)图片来源：[https://netl.doe.gov/smartgrids](https://netl.doe.gov/smartgrids)
 
+据《国家脉动》报道，拜登总统在上任的第一天，颁布了一系列关于“保护公共卫生与环境及通过科学手段解决气候危机的行政命令”，并撤销了川普任内的一个旨在使外国和公司脱离美国的大电力系统（主要是与中国共产党有联系的实体）的行政命令。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+新总统颁布的大规模行政令第7节（包括撤销Keystone XL输油管道的许可，Keystone XL是一个从加拿大至美国中部的输油管道项目），撤销了川普政府签署的几项以气候和能源为重点的命令。
 
-**西班牙2021年1月24日电/西喜社——**教皇方济各将在未来几天内错过三次宗教活动，因为他的坐骨神经痛状况导致他的腿部剧烈疼痛。
+2020年5月1日由川普政府颁发的第13920号行政令（保护美国大容量电力系统，英文为Bulk-Power System，以下简称BPS），目前暂停执行90天。
 
-据路透社报道，梵蒂冈周六宣布了教皇改变计划的消息。他将缺席1月24日的一项活动和1月25日的两项活动。
+第13920号行政令指出，”美国BPS为国防、重要紧急服务、关键基础设施、经济及人们的日常生活提供服务，而外国对手使BPS越来越脆弱，并在利用其脆弱性。BPS因此成为那些试图对美国及其人民实施恶意行为，包括恶意网络活动的人的攻击目标。如果成功攻击了BPS，将给美国的经济、人类健康和安全带来重大风险，并会使美国无法采取行动保卫自己及其盟友。”该举动“禁止任何人或有利益关联的外国机构或国家，获取、进口、转让或安装BPS电气设备，否则会对BPS的安全构成过度风险，也对美国关键基础设施、美国经济的韧性，以及美国国家安全造成潜在威胁。”美国能源部当时还负责对违反上述描述的现有BPS电气设备进行管理，并“制定适当的建议以识别、隔离、监控或更换该设备。”
 
-他原定参加两场宗教仪式，周日在圣彼得大教堂主持弥撒，周一在罗马一座教堂参加晚祷仪式。他还定于周一在一个外交团的年度演讲中发言。据电讯社报道，这将被推迟到以后的日期。
+2021年1月16日，时任能源部长丹·布劳耶特（Dan Brouillette）发出了一项禁止令，禁止从中华人民共和国进行采购，以供应关键防御设施（CDF）的公用事业公司，旨在减少中华人民共和国有关的实体对国家BPS构成的风险。
 
-教皇患有坐骨神经痛已经有一段时间了，但他并没有因为这种影响坐骨神经的疾病而错过很多活动，这种疾病会导致从腰部到腿部的疼痛。
+现在，根据拜登总统的行政命令，（川普政府的该）行政令和美国BPS的命运掌握在拜登的能源部长兼管理预算办公室（OMB）的手中：“能源部长和OMB主任应共同考虑是否建议发布更换令。”
 
-84岁的教皇也因为病情的疼痛而错过了新年假期的一次宗教仪式。
+《国家脉动》报道并揭露了拜登政府的OMB负责人，他曾担任美国进步中心（CAP）的主席。CAP是一个智库，曾到中国旅行，并与中国共产党支持的有影响力的机构共同撰写过报告。
 
-据路透社报道，方济各因病情进行理疗，这确实导致他有时行走不便。
+更重要的是，拜登的儿子亨特·拜登（Hunter Biden）之前曾与中国华信能源董事长叶简明进行过多次业务合作。CNN曾经指出，“在拜登2017年卸任副总统后，亨特·拜登曾和CEFC达成了一个交易，即中国华信能源投资美国的能源项目” 。《国家脉动》也指出，由亨特·拜登领导的一个投资公司曾向中广核（China General Nuclear Power Corp）汇入了数百万美元，这家中共国有电力公司数十年来一直偷窃美国核技术。
 
-教皇方济各在总统拜登就职日向他发去贺电，表示将为拜登祈祷，并祈求上帝帮助医治美国的分裂。
+简评：
 
-**原文链接：**[https://thehill-com.cdn.ampproject.org/v/s/thehill.com/policy/international/535542-pope-to-miss-three-upcoming-events-due-to-leg-pain?amp\_js\_v=a6&amp\_gsa=1&amp&usqp=mq331AQHKAFQArABIA%3D%3D#aoh=16114471566750&referrer=https%3A%2F%2Fwww.google.com&amp\_tf=De%20%251%24s&ampshare=https%3A%2F%2Fthehill.com%2Fpolicy%2Finternational%2F535542-pope-to-miss-three-upcoming-events-due-to-leg-pain](https://thehill-com.cdn.ampproject.org/v/s/thehill.com/policy/international/535542-pope-to-miss-three-upcoming-events-due-to-leg-pain?amp_js_v=a6&amp;amp_gsa=1&amp;amp&amp;usqp=mq331AQHKAFQArABIA%3D%3D#aoh=16114471566750&amp;referrer=https%3A%2F%2Fwww.google.com&amp;amp_tf=De%20%251%24s&amp;ampshare=https%3A%2F%2Fthehill.com%2Fpolicy%2Finternational%2F535542-pope-to-miss-three-upcoming-events-due-to-leg-pain)
+考虑到外国及企业对美国国家电网构成的安全威胁，川普在执政时期发布了行政令禁止相应外国企业介入美国电网。随着美国政府的换届，外界看到拜登总统上任首日即撤销以前的行政令，美国本土的国家走向和发展也存在更多不确定性。新中国联邦和爆料革命不涉足美国两党政治，与任何坚决反共、灭共的力量一起合作，“以美灭共”是手段，“以共灭共”才是本质。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+原文链接：[https://thenationalpulse.com/news/biden-revokes-trump-energy-eo/](https://thenationalpulse.com/news/biden-revokes-trump-energy-eo/)
+
+翻译：米缐
+
+校对：卡拉马佐夫姐姐
 
 0

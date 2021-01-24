@@ -1,24 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亡秦赵高之初露锋芒
-` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/800358/)
+## 教皇因坐骨神经腿痛将缺席即将举行的三场活动
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/800472/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/image0-258.jpg)（图片来自网络）
-原创作者：DDT
-
-审核校对：待命（文晓）
-
-编辑排版：待命（文晓）
-
-●赵高，约公元前256年—公元前207年，嬴姓赵氏，秦国人。赵公子入秦为质，久居秦地为秦人，其后人犯秦法被惩，赵高母亲遭肉刑，后被收入隐官劳作谋生。赵高出生于此处，因此性格隐忍多谋。
-
-●秦国自商鞅变法以来，军人、官吏位居社会上层。秦国男子十七岁成年后，想要出人头地，只有从军和为吏两条出。赵高选择去当官吏。按秦朝的法律规定，成年男子出任官吏有两条途径，一条途径是杀敌建功，另一条途经是参加官吏选拔考试。赵高通过层层官吏选拔考试进入秦宫任尚书文吏。从此，赵高开始进入秦王嬴政视野。
-
-●赵高担任尚书吏期间，文法出众、精通刑狱、书法造诣深厚，更兼身体强健、工于心计，为秦王嬴政所赏识（秦朝建立后，赵高写的《爰历篇》、李斯写的《仓颉篇》、胡毋敬写的《博学篇》是秦朝中央政府推行全国三篇小篆教材）。得到秦王嬴政的赏识，赵高以极快的速度从秦宫诸多史员中脱颖而出，被嬴政破格提拔为中车府令，成为秦王心腹，赵高借此进入秦国核心决策层。
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-文章仅代表作者个人观点
+**西班牙2021年1月24日电/西喜社——**教皇方济各将在未来几天内错过三次宗教活动，因为他的坐骨神经痛状况导致他的腿部剧烈疼痛。
 
-+1
+据路透社报道，梵蒂冈周六宣布了教皇改变计划的消息。他将缺席1月24日的一项活动和1月25日的两项活动。
+
+他原定参加两场宗教仪式，周日在圣彼得大教堂主持弥撒，周一在罗马一座教堂参加晚祷仪式。他还定于周一在一个外交团的年度演讲中发言。据电讯社报道，这将被推迟到以后的日期。
+
+教皇患有坐骨神经痛已经有一段时间了，但他并没有因为这种影响坐骨神经的疾病而错过很多活动，这种疾病会导致从腰部到腿部的疼痛。
+
+84岁的教皇也因为病情的疼痛而错过了新年假期的一次宗教仪式。
+
+据路透社报道，方济各因病情进行理疗，这确实导致他有时行走不便。
+
+教皇方济各在总统拜登就职日向他发去贺电，表示将为拜登祈祷，并祈求上帝帮助医治美国的分裂。
+
+**原文链接：**[https://thehill-com.cdn.ampproject.org/v/s/thehill.com/policy/international/535542-pope-to-miss-three-upcoming-events-due-to-leg-pain?amp\_js\_v=a6&amp\_gsa=1&amp&usqp=mq331AQHKAFQArABIA%3D%3D#aoh=16114471566750&referrer=https%3A%2F%2Fwww.google.com&amp\_tf=De%20%251%24s&ampshare=https%3A%2F%2Fthehill.com%2Fpolicy%2Finternational%2F535542-pope-to-miss-three-upcoming-events-due-to-leg-pain](https://thehill-com.cdn.ampproject.org/v/s/thehill.com/policy/international/535542-pope-to-miss-three-upcoming-events-due-to-leg-pain?amp_js_v=a6&amp;amp_gsa=1&amp;amp&amp;usqp=mq331AQHKAFQArABIA%3D%3D#aoh=16114471566750&amp;referrer=https%3A%2F%2Fwww.google.com&amp;amp_tf=De%20%251%24s&amp;ampshare=https%3A%2F%2Fthehill.com%2Fpolicy%2Finternational%2F535542-pope-to-miss-three-upcoming-events-due-to-leg-pain)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+
+0
