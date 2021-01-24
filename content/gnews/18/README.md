@@ -1,39 +1,95 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【正道观察】中共病毒的疫苗“大跃进”及其严重后果
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/801794/)
+## 2021/01/24 美国政要每日推特重要信息汇总
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/801933/)
 
-作者：Ermat【㊙️翻  Gnews原创组】
+编辑：Cathy
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/twitter_in_the_usa-1.jpg)
+**经授权转载自：**
 
-责编：心声
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-61.jpg)来源：Time.com
-随着中共病毒疫情的不断恶化，很多机构都争先开始了疫苗的研制工作，至少有几十种中共病毒疫苗已进入临床试验阶段，有的已被匆匆地推入市场，许多国家已经开始了疫苗接种工作。那这些疫苗的副作用究竟如何呢？
-
-- 据《人类自由》（Humans Are Free） 1月20日报道，以色列卫生部称，有超过12400名居民在接种辉瑞公司中共病毒实验疫苗后，该病毒检测呈阳性。
-- 根据提交给联邦系统的报告，在美国，有55人因接种Moderna疫苗或辉瑞疫苗而死亡。
-- 据《零对冲》（Zerohedge)于2021年1月16日报道：在挪威，29位75岁以上老人，因使用辉瑞等公司生产的mRNA中共病毒疫苗而死亡。
-- 据《人类自由》（Humans Are Free）1月18日，美国加利福尼亚州卫生官要求停止向大众注射Moderna中共病毒疫苗，因为有近10人接种该疫苗后，产生严重过敏反应。
+- 川普等政要…直译推twitter：[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
+- 川普等政要…直译推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
+- 川普等政要…直译推GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
 
 
-疫苗研发大体可以分为三个阶段： 研发、临床试验以及生产。至今最快的疫苗研发耗时超过4年，但现今的疫苗都是在不到一年的时间里研发出来。而更令人吃惊的是，辉瑞公司仅用几个小时就设计出中共病毒疫苗。而Moderna也只用了两天时间就完成设计。这样的疫苗“大跃进”，所产生的结果可想而知。
+## 简评：
 
-尽管如此，因中共病毒而臭名昭著的WTO为了给这些疫苗站台，竟然修改了用于中共病毒的检测的“周期阈值 “或 “CT值”。过去，世界上很多实验室一直在使用CT值超过35甚至到40多的PCR检测。而现在根据世卫组织新指南 ，CT值只能在25-30这个区间，为什么世卫组织修改了这一数值呢？答案很简单，在有疫苗之前，采用高的CT值进行测试，可产生大量假“阳性病例 ”，而有疫苗之后，采用低的CT值，这使”阳性病例 “的数量将急剧下降，使人们相信疫苗创造了奇迹。
+1月24日，现在参众议员们开始针对拜登的政策和美国现实存在的问题发表看法。人们都处在回看和观望的状态。
 
-对于现今的中共病毒疫苗，医生大卫-马丁（David Martin）提出了完全不同的观点。据《人类自由》（Humans Are Free）1月15日报道，大卫-马丁认为，无论在医学上还是在法律上，Moderna和辉瑞公司所推出的疫苗根本不是疫苗。按照疫苗的定义，疫苗既要刺激接受疫苗的人体内的免疫力，又要破坏传播。而这两种疫苗完全不符合这两个根本要求，它们只是通过向人体注射和使用化学物质诱导产生疾病，让人体自身细胞生病，而不是诱发一个或多个免疫传导反应，完全与阻止传播疾病无关，并且80%的人注射了这种疫苗后，都会出现临床不良反应。
+## 参议员玛莎·布莱克本：
 
-显然使用这种速成的疫苗有着一系列潜在危险。不具备疫苗特性，存在严重副作用，未经大规模的临床试验，缺乏安全可靠性。这种大跃进式的疫苗生产，以迅速占领市场，攫取财富为目的。针对中共病毒在短期内开发的林林总总的疫苗，不可能有效应对制造细节尚不清楚且不断变异的中共生化武器病毒。许多人已对这些疫苗望而却步，对于他们来说，对疫苗的恐惧有甚于对中共病毒的恐惧，因为感染中共病毒可能是未来某一天的事，而接种疫苗可能马上就会产生严重的副作用。
-
-看来，解决中共病毒问题的唯一方法，就是问责被定义为反人类罪与种族大屠杀罪的中共：那个既禁止你发声，又让你戴着口罩呼吸的罪魁祸首。
-
-参考链接：
-
-1. [12,400 Israelis Test Positive For Coronavirus After Experimental Pfizer COVID-19 Vaccine](https://humansarefree.com/2021/01/12400-israelis-test-positive-for-coronavirus-after-experimental-pfizer-covid-19-vaccine.html)
-2. [California Halts Injections Of Moderna Covid Vaccine Batch Due To ‘Higher-Than-Usual Number Of Adverse Events’](https://humansarefree.com/2021/01/california-halts-injections-of-moderna-covid-vaccine-batch-due-to-higher-than-usual-number-of-adverse-events.html)
-3. [WHO (Finally) Admits PCR Tests Create False Positives](https://www.zerohedge.com/medical/who-finally-admits-pcr-tests-create-false-positives)
-4. [The MRNA COVID-19 Technology Is NOT A Vaccine](https://humansarefree.com/2021/01/mrna-covid-19-technology-is-not-a-vaccine.html)
+旅游生子业以帮助外国人违法获得美国国籍赚了数以千万元。 《禁止旅游生子法》将堵住外国人利用其穿越美国边界的漏洞。
 
 
-（本文仅代表作者个人观点）
 
+> The birth tourism industry makes millions helping foreigners break the law to gain American citizenship. The Ban Birth Tourism Act will eliminate loopholes that foreign nationals are exploiting to cross U.S. borders. [pic.twitter.com/MFbMCTyFL2](https://t.co/MFbMCTyFL2)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [January 23, 2021](https://twitter.com/MarshaBlackburn/status/1352825922425131009?ref_src=twsrc%5Etfw)
+
+
+
+## 众议员马特·盖兹：
+
+1．高科技寡头可以噤声美利坚合众国的总统。
+
+想象下他们可以对您干什么。
+
+【[附众议员马特·盖兹和吉姆·乔丹在福克斯新闻台与Hannitty的谈话节目内容](https://hannity.com/media-room/watch-gop-lawmakers-speak-out-against-big-tech-targeting-conservative-voices/)】
+
+
+
+> Big Tech silenced the President of the United States.
+> 
+> Just imagine what they could do to you.[https://t.co/wOaQvfHzJz](https://t.co/wOaQvfHzJz)
+> — Rep. Matt Gaetz (@RepMattGaetz) [January 23, 2021](https://twitter.com/RepMattGaetz/status/1352996510661713920?ref_src=twsrc%5Etfw)
+
+
+
+2．高科技寡头之所以针对保守派，是因为我们支持选举的诚信。
+
+【[附http://breitbart.com 新闻网的相关报道](https://www.breitbart.com/clips/2021/01/16/gaetz-incoming-biden-administration-want-to-use-national-security-authorities-against-maga/)】
+
+
+
+> Big tech is targeting conservatives because we stood up for election integrity.[https://t.co/mcQTYY4EfE](https://t.co/mcQTYY4EfE)
+> — Rep. Matt Gaetz (@RepMattGaetz) [January 23, 2021](https://twitter.com/RepMattGaetz/status/1353026961128341504?ref_src=twsrc%5Etfw)
+
+
+
+## 众议员兰斯·古登：
+
+乔·拜登的Keystone XL （撤销输油管道线）的决定毁掉：
+
+-11,000个美国工作
+
+-8,000个工会职位
+
+-16亿美元的工资
+
+同时，预计 #中国共产党 将在未来12年内每月建设2个大型燃煤电厂。
+
+#北京拜登 #BejingBiden
+
+
+
+> Joe Biden's Keystone XL decision destroyed:
+> 
+> –&gt; 11,000 U.S. jobs
+> 
+> –&gt; 8,000 union jobs 
+> 
+> –&gt; $1.6 billion in wages 
+> 
+> Meanwhile, communist China is projected to build 2 large coal plants a month for the next 12 years.[#BejingBiden](https://twitter.com/hashtag/BejingBiden?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Lance Gooden (@Lancegooden) [January 23, 2021](https://twitter.com/Lancegooden/status/1353024371783323648?ref_src=twsrc%5Etfw)
+
+
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
