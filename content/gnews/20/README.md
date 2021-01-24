@@ -1,41 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以共灭共大幕已经拉开
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/804675/)
+## 喀秋莎新闻参考- 2021年1月23日 (星期六)
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/804688/)
 
-新闻简述：在2021年1月22日的GTV盖特视频中，郭先生表达了他对爆料革命新进展的兴奋激动的心情，那就是“以共灭共”的大幕已经拉开，“这种厮杀，不管哪一方倒下，都对我们爆料革命有好处，是上天送给我们的礼物和机会。”
-视频来源：[https://gtv.org/getter/600b5e2187fabe2daf3f93bb](https://gtv.org/getter/600b5e2187fabe2daf3f93bb) 
-**中英文对照全文**
+俄罗斯莫斯科喀秋莎农场 土星
 
-It’s the 22nd, between 6 and 7PM. Everyone is more anxious than me. [I’ve got] all kinds of messages. Brothers-in-arms from all sectors have texted me. Don’t worry, BIAs. The CCP is experiencing fierce internal struggles within itself. What a great era! Yes. There maybe some good news, or maybe not. But today history has been changed, without any doubt. Messages from all sources, no matter which source it is, all show that it is the biggest day of the Whistleblower Movement. This kind of struggle, no matter which side falls, will benefit our Whistleblower Movement and will be a gift and opportunity sent from the heavens.
+编辑上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/789456123-10.jpg)
+一、新中国联邦新闻
 
-22号下午6点多，大家都比我着急呀。各种消息，各种战友给我发信息。别着急，战友们。[共产党正在]激烈的较量中，时代啊，大时代！嗯。也可能有好消息，也可能没有。但是今天绝对是改变历史的一个时刻，这是毋容置疑的。各种消息，不管哪一种，都是爆料革命最重要的一天。这种厮杀，不管哪一方倒下，都对我们爆料革命有好处，是上天送给我们的礼物和机会。
+1. “路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=oCxg406Fmsg)、[晚间](https://www.youtube.com/watch?v=8zIbVRKOmP0)）:
 
-Everyone is so anxious, and I can totally understand these feelings. But did you see how they [the CCP] faked the [news]? So fake! All nonsense! As long as the relevant individuals don’t show up, the truth isn’t revealed yet. In other words, whether it is someone coming out standing or lying dead, there has to be someone coming out. As long as no one from these four factions [of the CCP] coming out, either standing or lying, then … [what you see is not the truth]. Now, all those videos from the CCTV are fake. Don’t ever trust them. They are all fake news and bullshit.
+Ⅰ. 中共大规模入侵台湾防空识别区。随即，美国国务院网站发布声明，直指中共对台湾的军事压力破坏地区和平与稳定。并表示，美国将与朋友和盟友站在一起，以促进在印度太平洋地区的共同繁荣，安全和价值观，其中包括加深与民主台湾的联系。习自喻为取得1月20日“终极之战”的胜利，并将下一步瞄准台湾。美国在声明中表态美方将恪守《三个联合公报》，这意味着美方目前只承认中共是中国唯一合法政权。
 
-大家都很着急，我特能理解这种心情啊。但是你看见他们造假了吗？造成啥了，那假？！胡扯八道！只要相关人没有全面出场，这个真相就没有出来。或者说，要不就站着出来，要么就横着出来，反正得有[人]出来。这四波人，只要没有[人]站着、横着出来的结果，[真相就没有出来]。现在中央电视台那[些视频]都是假的。千万别信，都是假的，胡扯的。
+Ⅱ. 福克斯新闻１月23日发文称，拜登总统在一个问题上同意川普政府的意见，即中共国对维吾尔族犯下种族灭绝罪。拜登认定将中共定为反人类罪是最重要的表态，这将给习近平带来巨大的压力，并将使习摆脱困局的方式局限到“武统台湾”。胡派、江派和王派深知对台军事行动，将使自己在美国的大量财富受到制裁，这将加剧中共党内斗争。
 
-Let’s see, God is helping us. Hopefully this is not another frustration. The BIAs are marvelous! This kind of feeling is so wonderful. Talking about men, especially men like us, whenever we have such feeling, we’ll be in a very different mood. It’s just like you are able to make a big hole on earth with one punch. When thinking about being able to take down the CCP or about those poor, old bastards from the Zhongnan Pit being cremated and burnt, oh my, I will be excited. Excellent! Ho-ho! Stay tuned, brothers and sisters. We may go live at any moment. The final outcome will be known tomorrow. Good or not, you will know tomorrow.
+Ⅲ. 世卫组织官员首次表态中共病毒可能来自实验室泄漏，同时美国左派媒体《华尔街日报》也发文说，拜登政府重新加入世卫组织后要推动世卫组织调查病毒来源真相。美国两党在威胁到美国安全的问题上，会彼此团结，一致对外。
 
-看着吧，上天正在帮我们。但愿这个不是另外一次的挫败。战友们太伟大了！这种感觉太奇妙了！这个男人啊，特别像我们这种男人，一遇到这种感觉的时候，心情不一样。就像，真是一拳，就能把这个地球砸个坑出来似的。一想到能灭共，一想到这些中南坑的老杂毛，要被火化，要被烧掉，哎哟！这兴奋啊，好啊！呵呵。等消息吧，兄弟姐妹们。随时直播。可能最终结果应该在明天，明天吧，好坏在明天。
+Ⅳ.1月23日，中共国最高人民检察院发布消息称，辽宁省政协原党组副书记、副主席刘国强涉嫌受贿一案，由国家监察委员会调查终结，移送检察机关审查起诉。事件表明，习现在牢牢掌控中纪委，准备以反腐为名进行党内大清洗，要求党内官员们保持政治正确，以此清洗党内其他派系势力。
 
-（*以上翻译整理仅代表作者个人观点，不代表GNEWS或他人立场。*）
+2. 因中共肺炎疫情反复，港府自1月23日起封锁佐敦区内四条街道，强制区内约一万名市民接受核酸检测，期间居民不可进出，商店停业。这是香港首次以封锁区域方式应对疫情。
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/799944/](https://gnews.org/zh-hans/799944/)
+3. 自2019年香港反修例运动以来，多次参加民主派示威的“王婆婆”王凤瑶，当地时间1月22日晚在香港将军澳尚德邨对面一灯位高举标语期间，被港警以涉嫌妨碍公务为由再次缉捕。
 
-翻译：【gavinguo(文钦)】校对：【Isaiah4031】字幕：【班仔】视频解码：【相机过热啊】编辑：【Isaiah4031】
+4. 中共为抑制房地产大幅下滑给银行带来大规模坏帐，中共央行于去年12月31日联合银保监会发布《关于建立银行业金融机构房地产贷款集中管理制度》。一周前招商银行深圳分行、广州分行及其下辖广东省内各家分支行已暂停按揭贷款放款，而对外前端业务层面则声称“节制接单”。其他股份行中，光大银行在深圳地区分行和广发银行已经暂停按揭贷款。
 
-喜马拉雅玫瑰园小队出品
+5. 1月23日，中共国务院联防联控机制印发《冬春季农村地区新冠肺炎疫情防控工作方案》，规定今天春节外地返回农村地区的人员，需要持核酸检测阴性证明返乡，并进行14天居家健康监测。另据消息，大陆部分城市拟规定药店限制出售治疗感冒或发热症状的药剂，以迫使发生上述症状的民众赴医疗单位就诊。
 
-敬请关注:
+6. 1月23日，加拿大外交部表示，加拿大驻华大使鲍达民获准再和加拿大前外交官康明凯进行”视频探视”，这是康明凯被中共扣押后，第3次获安排”领事视频探视”。
 
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+7. 根据美国专利商标局于1月23日发布的报告，因为中共政府鼓励和补贴等非市场因素，导致中共国境内和来自中共的专利申请迅速攀升。中共统治集团并不是由人民选举产生的，其非常渴望证明其合法性。在经济和科技方面的成就是中共政权用来证明其领导能力和执政合法性的最重要工具。中共宣传部门将大量专利申请描述为重大科技成就，帮助“抵消”西方国家指控的盗窃知识产权的指控。
 
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+8. 中共针对网络舆论的监管力度再次升级，其国家网信办1月22日发布新修订的《互联网用户公众账号信息服务管理规定》，特别针对公众账号信息服务平台和生产运营者增加23条相应监管内容。
 
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+9.Natrue杂志1月21日发表《快速传播的COVID-19变异体可躲避免疫反应》一文，证明中共病毒变异体可以绕开人体免疫反应，降低疫苗有效性。
 
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+二、世界新闻
 
-+1
+1. 1月22日，美国拜登总统签署行政令，加速把疫情纾困支票送到有困难的美国家庭的手中，给那些依赖校餐的孩子提供更多的食品补助。这是新政府为缓解美国家庭困难，等待国会完成有关1.9万亿美元的经济刺激方案谈判而作出的一项努力。
+
+2. 台湾国防部表示，继1月23日有8架中共轰炸机和4架战斗机飞入台湾防区之后，1月24日又有15架飞机飞入同一空域。此次扰台中共派出6架歼-10战斗机、4架歼-16战斗机、2架苏-30战斗机、1架Y-8侦察机和2架Y-8反潜机。台湾附近的紧张局势陡然上升。
+
+3. 媒体透露，美国司法部主管国安事务的助理部长德默斯等高官，最近数月都在讨论一款特赦计划， 学者若如实交代自己收取外国资助的情况，可以无需面对刑责。美国政府希望，此举能鼓励研究人员坦白从宽，有助调查部门掌握外国科研渗透的状况。
+
+4. 美国国际媒体署的署理首席执行官赵克露1月22日已解雇自由欧洲电台总监科茨（Victoria Coates）、自由亚洲电台主席叶望辉（Stephen Yates）及中东广播网络主席利平（Ted Lipien）。
+
+0
