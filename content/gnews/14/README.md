@@ -1,176 +1,76 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫报告：川普政府的政绩——截至2021年1月（十）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/802218/)
+## 白宫报告：川普政府的政绩——截至2021年1月（十二）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/802307/)
 
-五月花写作组 ｜ 翻译：伞兵 ｜ 校对：紫丁香 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告10.jpg)
-### **Part – 10 Restoring American Leadership Abroad**
+五月花写作组 ｜ 翻译：风云九霄（文萧） ｜ 校对：伞兵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告12.jpg)
+## **Part 12 – Serving and Protecting Our Veterans**
 
-### 第十部分：**重塑联邦司法**
+## **第十二部分：服务和保护我们的退伍军人**
 
 * * *
 
-**Restored America’s leadership in the world and successfully negotiated to ensure our allies pay their fair share for our military protection. **
+### **Reformed the Department of Veterans Affairs (VA) to improve care, choice, and employee accountability.**
+
+### 改革了退伍军人事务部（VA），以改善医疗护理，选择范围和员工问责制。
+
+- Signed and implemented the VA Mission Act, which made permanent Veterans CHOICE, revolutionized the VA community care system, and delivered quality care closer to home for Veterans.
+- 签署并实施了《 VA使命法案》，该法案使退伍军人获得永久性的选择，彻底改变了VA社区护理系统，并为退伍军人提供了离家更近的优质护理。
+- The number of Veterans who say they trust VA services has increased 19 percent to a record 91 percent, an all-time high.
+- 信赖VA服务的退伍军人数量增加了19％，达到创纪录的91％，为历史新高。
+- Offered same-day emergency mental health care at every VA medical facility, and secured $9.5 billion for mental health services in 2020.
+- 每家VA医疗机构提供当日紧急心理保健服务，并在2020年为心理保健服务筹资95亿美元。
+- Signed the VA Choice and Quality Employment Act of 2017, which ensured that veterans could continue to see the doctor of their choice and wouldn’t have to wait for care.
+- 签署了《 2017年VA选择与优质就业法案》，该法案确保退伍军人可以继续看望自己选择的医生，而不必排队等待。
+- During the Trump Administration, millions of veterans have been able to choose a private doctor in their communities.
+- 在川普政府执政期间，数百万退伍军人能够在其社区中选择私人医生。
+- Expanded Veterans’ ability to access telehealth services, including through the “Anywhere to Anywhere” VA healthcare initiative leading to a 1000 percent increase in usage during COVID-19.
+- 扩大了退伍军人访问远程医疗服务的能力，包括通过“Anywhere to Anywhere” VA医保计划，使COVID-19期间的使用率增加了1000％。
+- Signed the Veterans Affairs Accountability and Whistleblower Protection Act and removed thousands of VA workers who failed to give our Vets the care they have so richly deserve.
+- 签署了《退伍军人事务部问责与举报人保护法》，并解雇了数千名未能为我们退伍军人提供应有照顾的VA员工。
+- Signed the Veterans Appeals Improvement and Modernization Act of 2017 and improved the efficiency of the VA, setting record numbers of appeals decisions.
+- 签署了《2017年退伍军人上诉改善和现代化法案》，提高了VA效率，上诉裁决的数量创纪录。
+- Modernized medical records to begin a seamless transition from the Department of Defense to the VA.
+- 现代化的医疗记录从国防部到VA开始无缝过渡。
+- Launched a new tool that provides Veterans with online access to average wait times and quality-of-care data.
+- 推出了一个新工具，使退伍军人可以在线访问平均等待时间和护理质量数据。
+- The promised White House VA Hotline has fielded hundreds of thousands of calls.
+- 承诺的白宫VA热线已经接到了数十万个电话。
+- Formed the PREVENTS Task Force to fight the tragedy of Veteran suicide.
+- 成立了PREVENTS工作组，以应对退伍军人自杀的悲剧。
+
+
+### **Decreased veteran homelessness, improved education benefits, and achieved record-low veteran unemployment.**
+
+### **减少了无家可归的退伍军人，改善了教育福利，并实现了创纪录的老兵低失业率。**
+
+- Signed and implemented the Forever GI Bill, allowing Veterans to use their benefits to get an education at any point in their lives.
+- 签署并实施了《Forever GI Bill》，使退伍军人可以享受任何时候接受教育的福利。
+- Eliminated every penny of Federal student loan debt owed by American veterans who are completely and permanently disabled.
+- 为完全永久残疾的美国退伍军免去全部的联邦学生贷款债务。
+- Compared to 2009, 49 percent fewer veterans experienced homelessness nationwide during 2019.
+- 与2009年相比，2019年全国无家可归的退伍军人减少了49％。
+- Signed and implemented the HAVEN Act to ensure that Veterans who’ve declared bankruptcy don’t lose their disability payments.
+- 签署并实施了《HAVEN法案》，以确保宣布破产的退伍军人不会损失其伤残偿金。
+- Helped hundreds of thousands of military service members make the transition from the military to the civilian workforce, and developed programs to support the employment of military spouses.
+- 帮助数十万军人从军队过渡到文职人员，并制定了支持军人配偶就业的计划。
+- Placed nearly 40,000 homeless veterans into employment through the Homeless Veterans Reintegration Program.
+- 通过无家可归退伍军人重返社会的项目，近40,000名无家可归的退伍军人就业。
+- Placed over 600,000 veterans into employment through American Job Center services.
+- 通过美国就业中心服务，60万退伍军人就业。
+- Enrolled over 500,000 transitioning service members in over 20,000 Department of Labor employment workshops.
+- 在20,000多个劳工部就业研讨会上，招募了500,000多个处于过渡阶段的军人。
+- Signed an executive order to help Veterans transition seamlessly into the United States Merchant Marine.
+- 签署了一项行政命令，以帮助退伍军人无缝过渡到美国商船发展工作。
 
-**恢复了美国在世界上的领导地位，并成功地进行了谈判，以确保我们的盟国为我们的军事保护支付合理份额。**
-
-• Secured a $400 billion increase in defense spending from NATO (North Atlantic Treaty Organization) allies by 2024, and the number of members meeting their minimum obligations more than doubled.
-
--北大西洋公约组织（NATO）盟国确保到2024年增加4000亿美元的国防开支，同时履行最低义务的成员国数量增加一倍以上。
-
-• Credited by Secretary General Jens Stoltenberg for strengthening NATO.
-
-– 因使北约强大而受到秘书长斯托尔滕贝格（Jens Stoltenberg）的赞誉。
-
-• Worked to reform and streamline the United Nations (UN) and reduced spending by $1.3 billion. • Allies, including Japan and the Republic of Korea, committed to increase burden-sharing.
-
-– 致力于改革和精简联合国，减少了13亿美元的开支。- 包括日本和韩国在内的盟友已承诺增加责任分担。
-
-• Protected our Second Amendment rights by announcing the United States will never ratify the UN Arms Trade Treaty.
-
--通过宣布美国永远不会批准《联合国武器贸易条约》来保护我们的第二修正案权利。
-
-• Returned 56 hostages and detainees from more than 24 countries.
-
--从超过24个国家接回了56名人质和被拘留者。
-
-• Worked to advance a free and open Indo-Pacific region, promoting new investments and expanding American partnerships.
-
-– 致力于推动印太地区的自由和开放，促进新的投资以及扩大美国的伙伴关系。
-
-**Advanced peace through strength. **
-
-**通过实力推进和平**。
-
-• Withdrew from the horrible, one-sided Iran Nuclear Deal and imposed crippling sanctions on the Iranian Regime.
-
-– 退出了可怕的，单方的《伊朗核协议》，并对伊朗政权实施了严厉的制裁。
-
-• Conducted vigorous enforcement on all sanctions to bring Iran’s oil exports to zero and deny the regime its principal source of revenue.
-
-– 严格执行所有制裁措施，使伊朗的石油出口为零，从而断绝了伊朗政权财政收入的主要来源。
-
-• First president to meet with a leader of North Korea and the first sitting president to cross the demilitarized zone into North Korea.
-
-– 成为了第一个与朝鲜领导人会面的总统，也是第一个通过穿越非军事区进入朝鲜的现任总统。
-
-• Maintained a maximum pressure campaign and enforced tough sanctions on North Korea while negotiating de-nuclearization,the release of American hostages, and the return of the remains of American heroes.
-
-– 保持最大限度的施压运动，并对朝鲜实施严厉制裁，同时就无核化、释放美国人质和归还美国英雄遗骸进行谈判。
-
-• Brokered economic normalization between Serbia and Kosovo, bolstering peace in the Balkans.
-
-– 斡旋塞尔维亚和科索沃之间的经济正常化，促进了巴尔干地区的和平。
-
-• Signed the Honk Kong Autonomy Act and ended the United States’ preferential treatment with Hong Kong to hold China accountable for its infringement on the autonomy of Hong Kong.
-
-– 签署《香港自治法》，终止美国对香港的优惠待遇，追究中国侵犯香港自治权的责任。
-
-• Led allied efforts to defeat the Chinese Communist Party’s efforts to control the international telecommunications system.
-
-– 率领盟军粉碎中共控制国际电信系统的企图。
-
-**Renewed our cherished friendship and alliance with Israel and took historic action to promote peace in the Middle East. **
-
-**重申了我们与以色列的珍贵友谊和联盟关系，并采取了促进中东和平的历史性行动。**
-
-• Recognized Jerusalem as the true capital of Israel and quickly moved the American Embassy in Israel to Jerusalem.
-
-– 承认耶路撒冷是以色列的真正首都，并迅速将美国驻以色列大使馆迁往耶路撒冷。
-
-• Acknowledged Israel’s sovereignty over the Golan Heights and declared that Israeli settlements in the West Bank are not inconsistent with international law.
-
-– 承认以色列对戈兰高地的主权，宣布以色列在西岸的定居点并不违反国际法。
-
-• Removed the United States from the United Nations Human Rights Council due to the group’s blatant anti-Israel bias.
-
-– 美国从联合国人权理事会中退出，因为该组织公然的反以色列偏见。
-
-• Brokered historic peace agreements between Israel and Arab-Muslim countries, including the United Arab Emirates, the Kingdom of Bahrain, and Sudan.
-
-– 在以色列与阿拉伯-穆斯林国家，包括阿拉伯联合酋长国、巴林王国和苏丹之间促成了历史性的和平协议。
-
-• Brokered a deal for Kosovo to normalize ties and establish diplomatic relations with Israel.
-
-– 为科索沃与以色列的关系正常化以及建交斡旋。
-
-• Announced that Serbia would move its embassy in Israel to Jerusalem.
-
-– 宣布塞尔维亚将把其驻以色列大使馆迁往耶路撒冷。
-
-• First American president to address an assembly of leaders from more than 50 Muslim nations, and reach an agreement to fight terrorism in all its forms.
-
-– 第一个在50多个穆斯林国家领导人集会上发表讲话的美国总统，并达成了打击一切形式恐怖主义的协议。
-
-• Established the Etidal Center to combat terrorism in the Middle East in conjunction with the Saudi Arabian Government.
-
-– 与沙特阿拉伯政府合作，成立了打击中东恐怖主义的 “伊蒂达中心”。
-
-• Announced the Vision for Peace Political Plan – a two-state solution that resolves the risks of Palestinian statehood to Israel’s security, and the first time Israel has agreed to a map and a Palestinian state.
-
-– 宣布 “和平愿景政治计划”- 解决巴勒斯坦建国给以色列安全带来风险的两国解决方案，也是以色列首次认可一个地图和一个巴勒斯坦国。
-
-• Released an economic plan to empower the Palestinian people and enhance Palestinian governance through historic private investment.
-
-– 发布了一项经济计划，通过历史性的私人投资，赋予巴勒斯坦人民实力，增强巴勒斯坦的治理。
-
-**Stood up against Communism and Socialism in the Western Hemisphere. **
-
-**站出来反对西半球的共产主义和社会主义。**
-
-• Reversed the previous Administration’s disastrous Cuba policy, canceling the sellout deal with the Communist Castro dictatorship.
-
-– 扭转了上届政府灾难性的古巴政策，取消了与共产主义卡斯特罗独裁政权的卖国交易。
-
-• Pledged not to lift sanctions until all political prisoners are freed; freedoms of assembly and expression are respected; all political parties are legalized; and free elections are scheduled.
-
-– 承诺在所有政治犯获释、集会和言论自由得到尊重、所有政党合法化和自由选举之前不撤销制裁。
-
-• Enacted a new policy aimed at preventing American dollars from funding the Cuban regime, including stricter travel restrictions and restrictions on the importation of Cuban alcohol and tobacco.
-
-– 颁布了一项新政策，旨在防止美元为古巴政权提供资金，包括更严格的旅行限制和对古巴烟酒进口的限制。
-
-• Implemented a cap on remittances to Cuba.
-
-– 实施向古巴汇款的上限。
-
-• Enabled Americans to file lawsuits against persons and entities that traffic in property confiscated by the Cuban regime.
-
-– 使美国人能够对非法买卖古巴政权没收财产的个人和实体提起诉讼。
-
-• First world leader to recognize Juan Guaido as the Interim President of Venezuela and led a diplomatic coalition against the Socialist Dictator of Venezuela, Nicolas Maduro.
-
-– 第一个承认胡安-瓜伊多为委内瑞拉临时总统的世界领导人，并领导了反对委内瑞拉社会主义独裁者尼古拉斯-马杜罗的外交联盟。
-
-• Blocked all property of the Venezuelan Government in the jurisdiction of the United States.
-
-– 冻结了委内瑞拉政府在美国管辖范围内的所有财产。
-
-• Cut off the financial resources of the Maduro regime and sanctioned key sectors of the Venezuelan economy exploited by the regime.
-
-– 切断马杜罗政权的财政资源，制裁被马杜罗政权利用的委内瑞拉关键经济部门。
-
-• Brought criminal charges against Nicolas Maduro for his narco-terrorism.
-
-对尼古拉斯-马杜罗的毒品恐怖主义行为提起刑事指控。
-
-• Imposed stiff sanctions on the Ortega regime in Nicaragua.
-
-– 对尼加拉瓜的奥尔特加政权实施严厉制裁。
-
-• Joined together with Mexico and Canada in a successful bid to host the 2026 FIFA World Cup, with 60 matches to be held in the United States.
-
-– 与墨西哥和加拿大一起成功申办2026年世界杯，其中60场比赛将在美国举行。
-
-• Won bid to host the 2028 Summer Olympics in Los Angeles, California.
-
-– 成功申请举办2028年加州洛杉矶夏季奥运会。
 
 * * *
 
-原文来源：[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
+原文来源：
+
+[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
 
 往期链接：
 
@@ -193,6 +93,8 @@
 [白宫报告：川普政府的政绩——截至2021年1月（八）](https://gnews.org/zh-hans/788066/)
 
 [白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十一）](https://gnews.org/zh-hans/802251/)
 
 * * *
 
