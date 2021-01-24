@@ -1,33 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## IBM中（共）国研究院全面关闭
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/800018/)
+## 据台湾国防部军情报道23日空军曾八次广播驱离共匪军机
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/800072/)
 
-*加拿大多伦多枫叶农场 文锦*
+撰稿：Yumi
 
-*校对 小鸥*
+审稿：Jenny
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_7675.jpg)国防部网络截图
+据台湾屏东军情报导，国防部即时军情 23日报导，中共解放军军机密集袭扰台湾邻近空域已成常态，以前一天内大约进入台湾领空区域大约三次左右，今日却极其罕见，在短短2小时内侵入空域达7次，台湾各地空军基地也出现密集起飞状况，这样的短时间密集扰台，也是近年广播记录到的创新高次。
 
-*发稿 文锦*
-![]()![](https://gnews.org/wp-content/uploads/2021/01/v2-c98ea8ed5f86a77ed7fb00ac2d35e0a0_1440w-2.jpg)
-1月23日，据网上消息及内部人士确认， IBM中（共）国研究院（IBM CRL）已全面关闭。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图457-1.png)图片来源：新浪微博![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图458-3.png)图片来源：新浪微博
-IBM，即国际商业机器公司（International Business Machines Corporation）, 1911年创立于美国，是全球最大的信息技术和业务解决方案公司，拥有近四十万员工，一千亿美元资产。
+**据长期观察台湾西南海域的粉丝页详细记载今天1月23日 中共军机 ，运八远干机 7A4262 编号30518、 空警500 7A42A3 编号81031 、 运八反潜机 7A431D 编号82013 等多架次进入我ADIZ(西南空域)，在台湾空军在空警戒，八度广播广播驱离共匪军机**。
 
-IBM与中共国的业务关系久远。早在1934年，IBM公司就为北京协和医院安装了第一台商用处理机。1979年，中断联系近 30年后中美建交，IBM再次进入中共国，在沈阳鼓风机厂安装了中共国第一台 IBM 中型计算机。80年代中后期，IBM先后在北京、上海设立了办事处。1992年IBM在北京正式宣布成立国际商业机器中国有限公司，这是 IBM在中共国的独资企业。IBM在中共国的哈尔滨、沈阳、深圳、南京、杭州等24个城市设有办事机构。
+其他热心的军事网友也报告，自上午10时左右至13时30分止，台湾空军各基地至少紧急起飞15批次(30机)前往拦截监控。另，美国海军C-2灰狗式舰载型运输机现踪巴士海峡，疑为美国航母通过巴士海峡。本月累计进入台湾空域22天，本月广播驱离纪录共计59次。
 
-IBM研究院在全球拥有12个实验室，其中3个在美国，美国之外有9个实验室分布在9个国家，其中就包括了IBM中（共）国研究院。
+在网上的网友评论说：今天中共的举动是在消耗台湾国军的军务执勤的工作，也在一而再地探撤台湾底线。岛内部段的有声音到底美国会不会来保护台湾声音又起来。
 
-IBM中（共）国研究院1995年成立于北京，坐落在中关村软件园内。过去的20多年里该院在人工智能、云计算、认知医疗、物联网及区块链等领域持续研究，曾为中共国最具影响力的研究机构之一。
+美军军机也在随后马上派运输机来到美国新的政权转换之馀。台海问题变成一种非常敏感地带。这个敏感时刻，任何台海一点风吹草动系牵繫著整个台海的危机。在本月22天共军西南海域的军机扰台是变成常态。然而今天年续密集的侵扰。喧嚣意味极大。空军广播纪录如图下：
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_7677.jpg)
+台灣西南海域粉絲團圖片來源
 
-IBM除了最近关闭中（共）国研究院，2020年在北京、上海、西安、宁波等多地已陆续裁员，并表示将继续为辞退员工提供医疗费用补贴直到2021年6月。
+新聞來源：
 
-IBM作为美国IT巨头，虽曾从中共国获利颇丰，但在中美脱钩的大背景下，已经行动，不断减少中共国的分支机构及人员。
+[https://www.mnd.gov.tw/Publish.aspx?p=77954&title=%e5%9c%8b%e9%98%b2%e6%b6%88%e6%81%af&SelectStyle=%e5%8d%b3%e6%99%82%e8%bb%8d%e4%ba%8b%e5%8b%95%e6%85%8b](https://www.mnd.gov.tw/Publish.aspx?p=77954&amp;title=%e5%9c%8b%e9%98%b2%e6%b6%88%e6%81%af&amp;SelectStyle=%e5%8d%b3%e6%99%82%e8%bb%8d%e4%ba%8b%e5%8b%95%e6%85%8b)
 
-*参考链接：*
+[https://news.ltn.com.tw/news/politics/breakingnews/3419983?fbclid=IwAR0Xqx1xgzu0D8mSa-2bYvQA6a782nuKy4x0VHdsdZv-OsqeQO16i-meVkE](https://news.ltn.com.tw/news/politics/breakingnews/3419983?fbclid=IwAR0Xqx1xgzu0D8mSa-2bYvQA6a782nuKy4x0VHdsdZv-OsqeQO16i-meVkE)
 
-[IBM中国研究院被曝已全面关闭](https://zhuanlan.zhihu.com/p/346508719)
-
-[IBM(IBM.US)证实裁员，拒绝提供人数等有关细节](https://finance.sina.com.cn/stock/hkstock/hkstocknews/2020-05-23/doc-iirczymk3089963.shtml)
-
-+2
+[https://www.facebook.com/SouthwestAirspaceofTW](https://www.facebook.com/SouthwestAirspaceofTW)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_5335.jpg)
+0
