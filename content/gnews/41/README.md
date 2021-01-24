@@ -1,39 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国法院宣布封锁是违宪的“灾难性错误”
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/803684/)
+## 中共要打台湾，而整个世界在计算中共病毒造成的损失
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/803755/)
 
-*加拿大多伦多枫叶农场  小溪*
+新闻简述：2021年1月23日郭文贵先生在去开会的途中发布Getter视频。他说将要和一些人士讨论中共病毒对美国和世界经济的危害，并指出中共对台湾的企图只能使它死的更快。
+视频来源：[https://gtv.org/getter/600c8165c3245d7c59e6a59a](https://gtv.org/getter/600c8165c3245d7c59e6a59a) 
+**中英文对照全文**
 
-*校对、发稿 文锦*
-![]()![](https://gnews.org/wp-content/uploads/2021/01/37580340_401-1.jpg)图片来源：DW
-据人类自由（Humans Are Free）网站1月23日报道，德国地方法院宣布，图林根州（Thuringia）中央政府去年春天实施的严格封锁是违反宪法的，因为该法院宣判了一名曾被控违反该规定的人无罪。关于一个人因和朋友庆祝生日，而违反德国严格封锁条例的琐碎案件，最终被德国媒体描述为“政治爆炸性”的决定。魏玛市（Weimar）地方法院不仅宣判了被告无罪，还表示当局本身违反了德国的基本法。
+Hello, dear honorable fellow fighters! Look at the car. What car is this, fellow fighters? This is the third one in the whole U.S. and the second in East New York. It is a specially customized Maybach SUV. I am going to attend a meeting and see some people. What do I do?
 
-法院说，图林根州的春季封锁是“灾难性的错误政治决定，几乎对生活的各个领域都产生了严重后果”，法院证明了这一决定。它特别谴责了一项对“私人聚会仅限于一个家庭的成员和一个家庭之外的人“的限制。一名当地的男子举办了场由他七个朋友参加的聚会，违反的就是这一规定。然而，法官表示，地区政府实施这些限制，它自己首先违反了德国基本法第1条所保障的“不可侵犯的人的尊严”。
+尊敬的战友们好！看这啥车？战友们？看这啥车？这是整个美国第三部，整个纽约东部第二部，特别订制迈巴赫SUV，迈巴赫SUV。七哥要去开会去啊，见点人啊，咋弄啊？
 
-据法院说法，政府没有足够的法律依据来施加限制，因为当时还没有“国家重大疫情态势”，而且卫生系统也没有崩溃的风险，因为罗伯特·科赫研究所（Robert Koch Institute）报告说中共病毒的复制数量已降至1以下。法官还裁定，地区政府完全无权采取这种影响深远的措施，因为这要由立法者来决定。图林根州实行的封锁代表了“联邦共和国历史上对基本权利最广泛、影响最深远的限制，” 法院说，它同时称这些措施是对“我们社会基础”的一次打击，这是“不妥的“。但该裁决只对本案有效，被告无罪释放，无需支付200欧元（合243美元）的罚款。从更广的角度看，该裁决没有法律约束力，尽管每个德国法院都可以就联邦议院或地方议会（地区议会）以外的任何机构发布的命令的合宪性作出裁决。
+Ah, it is so interesting … now, the CCP is going to attack Taiwan, whereas the whole world, even the Biden administration, is researching on the damage this deadly [CCP] virus will cause to the U.S. and the world, and to the economy next. So, you see, brothers and sisters, who can avoid talking about the virus and the virus’s threat to the U.S. economy, the safety of the U.S., and the safety of the world?
 
-尽管如此，该裁决仍在一些官员和当地媒体中引起轩然大波，因为德国目前实行了类似的严格封锁措施，这是联邦政府在11月实施的，此后不断地扩大和收紧。本周，总理安格拉·默克尔（Angela Merkel）的内阁将这一限制延长至2月中旬。
+哎呀，真好玩，你说这现在共产党要打台湾，结果现在全世界在研究，就连拜登政府都在研究，下一步病毒，致命病毒对美国、对世界的危害，对经济的危害。所以说你看看，战友们，谁能回避到病毒？病毒对美国的经济和对美国人身的安全和世界的人身安全。
 
-图林根州地区检察官办公室已经提起申诉，反对法庭周三发布的裁决，要求法院复审，并可能将案件移交给另一位法官。检察官办公室发言人汉尼斯·格鲁森森（Hannes Gruenseisen）告诉当地媒体，当涉及因封锁而违反法律时，该裁决需要被“审查，以进一步发展法律并确保统一的裁量权”。
+Just now, two Americans told me, “Miles, we want to see you right away. We want to discuss about the profound impact of the [CCP] virus on the U.S. economy, U.S. technology, and national defense.” This is because many high-end talents and technical talents have insurance, which is very expensive. So, many insurance companies don’t want to sell high-level life insurance to these people. The more high-end you are, the more expensive the insurance will be. Hence, they don’t want to sell insurance to them because the risk is higher. After Larry King’s death, the insurance companies become more afraid. Wow, Larry king, how much money do I need to pay to you? Think about it. If it is the virus [causing the death], in particular to these scientists, all kinds of military scientists and important scientists, what would you do? Right?
 
-封锁在德国一直是个有争议的话题，因为德国在2020年整个秋冬季，多次在不同城市中有抗议者反对该措施。有时抗议者甚至把他们的斗争与反纳粹抵抗进行比较，引发了德国外交大臣海科·马斯（Heiko Maas）的严厉谴责。
+刚才两位美国人跟我说：Miles，我们要马上跟你见面，我们要讨论一下病毒对美国经济和美国技术领域、国防领域的深远影响。因为很多的高端人才和技术人才，很多都是买的保险的，这个保险的价值很贵呀，那么现在很多保险公司都不想给这些人卖这些高级的这种人身保险，越高端人才你越贵，他就不想卖给你，因为风险越大。这个 Larry King 死了以后，保险公司更害怕了，哇噻，你 Larry King 这钱，我得赔你多少钱？你想想如果是这病毒，特别这些科学家，各种军事，各种重要的科学家，你咋办呢？对不对？
 
-**评：**
+So, all governments must face the threats of the CCP virus to all mankind, its attack to the economy, and its strike to the entire social structure. Therefore, brothers and sisters, please remember my words: Early joy will lead to early decline, and early sadness will result in early grief.
 
-本篇报道始自一个小到不能再小的事件：“德国一名当地男子邀请了七个朋友参加自己的生日聚会。”在去年春季中共病毒疫情初期，就变成了“违反德国严格封锁条例的案件”。这让人感到德国冷漠到不近人情的封锁条例，确实是荒谬可笑。
+所以说共产党的病毒对全人类的威胁和经济的打击，和对整个社会结构的打击，任何政府都不能不面对。所以兄弟姐妹们，牢记七哥说的话：早乐必早衰，早悲必早哀。
 
-好在当地法院在裁决过程中纠正了这一错误，认为这些严格封锁条例首先违反了“德国基本法所保障的‘不可侵犯的人的尊严‘”，因而裁决封锁条例“不妥”，“被告无罪释放，无需被罚款”。这原本是一次正常的不能再正常的法庭裁决，有理有据的裁决结果原本应该为各方所接受。
+Has everyone seen the opportunity? The CCP is now going to attack Taiwan. You [the CCP], try attacking Taiwan, try it. Yet, if it does not attack Taiwan until later, it will be attacked by its own insiders. The CCP hopes to live a few days longer by attacking Taiwan; otherwise, it will live a few days shorter. Anyhow, it will not stay alive for long.
 
-但是，该裁决却在当地引发了一场“轩然大波”。先是当地检查官办公室针对本案裁决提起申诉。要求法院复审，并移交给另一个法官。并且以“进一步发展法律并确保统一的裁量权”，这么冠冕堂皇的名义。毕竟当地检查官办公室代表的是司法系统，也是政府部门，“提起申诉”、“要求复审“、“更换法官“，这一系列娴熟的操作，分明是想向公众表明“政府部门永远不会有错，如果法院裁决结果对我们不利，那就一定是法院判错“。这种情况下，裁决结果被更改的可能性有多大，可想而知，这近乎是“逼着法院改裁决”。
+大家看到了机会了吗？现在要打台湾。你打台湾试试，你打台湾试试。但是如果他晚一点不打台湾，他内部就把他给打了。打台湾他想多活几天，不打台湾少活几天，反正他是活不了了。
 
-然而，事情还远不止于此。这件琐事和对它的裁决，还牵扯到了“封锁措施”这个在其所在国——德国的“争议性”话题。这和最近半年多来，德国各地多次爆发的“反封锁”抗议活动有关。在那些抗议中，人们情不自禁地把“反抗政府封锁”和”反纳粹抵抗“相提并论。要知道纳粹可
+There is another thing that everyone needs to take a look at: the so-called “the CCP has won” these days. How about its economic status? Everyone, take a close look at its economy. Take a close look, brothers and sisters. This is something … nobody can change the fact that the CCP is going to perish or this great era. I won’t say anything more. I will broadcast again when I can find time. Haha! Thanks!
 
-曾经是德国历史中最臭名昭著的一个章节。想来，政府现行的做法在德国民众心目中已经等同于纳粹。
+还有一个，大家要看一看。这些天所谓共产党赢了，但是经济情况啥样？大家仔细看看这经济情况，仔细看一看。兄弟姐妹们，这就是一个无法，任何人都无法改变的共产党灭亡的事实，还有这个大时代。啥都不说了，抽时间再直播。哈哈哈，谢谢！谢谢！
 
-这个琐碎案件的申诉受理和法庭复审等过程，应该还有一段较长时间的司法程序需要走，它所引发的“深远影响”恐怕还在持续酝酿和发酵中。政府与民众之间“管理和被管理”、“服务和被服务”的关系，似乎已经定义模糊，官员们已经忘记了在民主、自由、法治良性运行的社会里，政府体现更多应该是服务职能，管理只不过是一项辅助职能。因为民众既不是动物，也不是囚犯，他们理应拥有他们应得的尊重和人权。反之，如果政府只是一味想行使管理职能，而忘记它主要的服务职能，那么这个政府也就变成专制独裁政权了。看看中共，就不难理解，为什么民众重提纳粹那段不光彩的历史了。
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/799944/](https://gnews.org/zh-hans/799944/)
 
-*[原文链接](https://humansarefree.com/2021/01/german-court-declares-lockdown-is-unconstitutional-catastrophically-wrong.html)*
+翻译：【Cyndi】校对：【Isaiah4031】字幕：【Pamila（文明）】视频解码：【恒久忍耐】编辑：【Isaiah4031】
 
-+1
+喜马拉雅玫瑰园小队出品
+
+敬请关注:
+
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+
+0
