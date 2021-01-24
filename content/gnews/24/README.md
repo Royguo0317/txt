@@ -1,59 +1,88 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】林伍德大律师现在正受到可能来自中共的政治迫害
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/801152/)
+## 如何查看川普总统离任后的档案记录
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/801398/)
 
-作者：Honglu61
+五月花写作组 | 翻译部：风云九霄（文萧） | 编辑、发稿：jamie(文胤)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/01/如何查看川普总统离任后的档案记录-1.png)图片来源：川普总统图书馆网站
 
+国家档案馆（National Archives and Records Administration, NARA）保存着美国政府的记录，包括任何类型的文档（文本或电子形式的）以及照片，影像资料，甚至是政府的行政，立法或司法三个分支的相关记录。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+在1月20日川普总统离任后，其任期内的很多档案都移交给了国家档案馆来维护管理，主要是新建的川普总统图书馆。总统图书馆保存着有关总统的记录和历史资料，从白宫内部的备忘录到总统给公民个人的回信，到改变政府运作方式的政策决策，再到总统行政、政治和生活的礼仪和个人物品。较新的图书馆现在可以保存并提供电子记录，包括电子邮件和数字图像。
 
+总统记录受《总统记录法》（Presidential Records Act，简称PRA）管辖。根据PRA的规定，在卸任后的前五年内，公众无法请求访问有关川普总统的记录。因此开放日将会是2026年1月20日，公众可通过《信息自由法》（Freedom of Information Act, FOIA）来获取。
 
+前一阵子新政府的网站上线之后，很多人发现川普政府的很多链接打不开了，其实只是网站整体迁移了。本文根据川普总统图书馆网站的信息，对其存档的网站和社交媒体账户进行小结。
 
-今天在电报群中，林伍德大律师陈述了一个事实说，“我收到了亚特兰大律师俱乐部执行委员会的通知，说想要把我从该组织中移除，而35年中，我是该组织具有良好信誉的成员。
-
-我还听说在Macon的Mercer 法律学校很可能将我的名字从因我荣誉命名的法庭室上移去，但仍保留我为学校所作的大量捐款。他们还在暗厢操作，试图进一步把我在佐治亚州的律师牌照摘去。
-
-为什么？？？因为我在践行第一修正案的权利——即表达我的政治观点并合法地为诚信选举而战？
-
-我不会屈服于这种蓄意压制我宪法权利的威胁。
-
-今天他们盱上我了，不久，他们将盯上你。
-
-要顽强！持续与你的社区朋友和有信仰者分享你的价值观和原则，继续说出真相。”
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/23-6.jpg)[图源网络](https://en.wikipedia.org/wiki/L._Lin_Wood#/media/File:Lin_Wood_by_Gage_Skidmore.jpg)
-
-这种政治迫害竟然发生在了美国，真是让人吃惊。然而我们都知道，这种事在中共国经常发生。这使我想要挖一下这件事与中共的关系。
-
-果不其然，我发现这个Mercer 法律学校的院长是Cathy Cox。她2017年11月11日在推特上发了两张与Ben Lee 和Doug Harvey的照片，并称，“很高兴参加由温尼伯格中国文化中心举办的金龙Gala（苹果）节，祝贺Ben Lee 先生和Doug Harvey先生”。
-
-一个美国的法律学校院长参加一个在加拿大的中国人社区活动？背后一定有资本在运作。顺便提一下，Cathy Cox 还曾是佐治亚州的前州务卿。
-
-接下来，谁是Ben Lee?
-
-他叫李荣斌，出生于温尼伯颇具历史的中国城，拥有非常丰富的社区服务经历，包括卫生部门、当地社区中心和华人社区等主要项目。
-
-1988年，他的学士学位毕业于曼尼托巴大学。他管理着超过10亿美元的重大基础建设项目。
-
-这位李先生是如何发迹并管理这么多钱的呢？我们不得而知。但我们都知道中共国的统战工作很多是在中国人社区进行的：中共会提供很多资金帮助使那里的人成为成功人士并在国际上各个领域搞渗透。这是一个中共针对林伍德律师政治迫害的联系的可能性。
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+- **网站副本**
 
 
+国家档案馆对原有网站进行了 “冻结”处理，作为历史资料不再更新。任何断开的链接（内部或外部）也都不会更新。
+
+- [White House website](http://trumpwhitehouse.archives.gov/) （白宫网站）
 
 
+白宫网站资源非常丰富，包含2017年至2021年特朗普总统任期的照片，演讲，新闻稿和其他公共领域记录。
+
+- [Be Best Initiative](http://trumpwhitehouse.archives.gov/bebest/) （成为最佳）
+
+
+“ Be Best”的倡议由第一夫人梅拉尼娅·川普（Melania Trump）发起，重点关注当今儿童面临的重大问题，如：福祉，上网安全和阿片类药物滥用。
+
+- [Artificial Intelligence for the American People](http://trumpwhitehouse.archives.gov/ai/) （人工智能）
+
+
+该网站提供如何充分利用AI机会的资源。
+
+- Coronavirus Disease 2019 （2019冠状病毒疾病）
+
+
+该网站提供与CCP Virus大流行相关的信息资源，已经备份保留。但是为了避免与拜登政府的信息混淆，国家档案馆已决定推迟发布网站的“冻结”副本。待当前的公共卫生危机结束，该副本会上线。
+
+- [Opioids: the Crisis Next Door](http://crisisnextdoor.trumpwhitehouse.archives.gov/) （阿片类药物：隔壁的危机）
+
+
+该网站的创建是为了让美国人分享有关阿片类药物成瘾或康复的故事。
+
+- [We the People Petitions](http://petitions.trumpwhitehouse.archives.gov/) （请愿网站）
+
+
+该网站允许公众在线创建请愿书，共享请愿书并收集签名。如果请愿书在30天内收集了100,000个签名，白宫将对请愿书进行审查并发布正式答复。
+
+- [Women’s Global Development and Prosperity Initiative](http://trumpwhitehouse.archives.gov/wgdp/)（妇女全球发展与繁荣倡议）
+
+
+该倡议由总统女儿伊万卡·川普（Ivanka Trump）创立并领导，为提高全球妇女的经济地位和繁荣做出了贡献。
+
+- **社交媒体账号**
+
+
+国家档案馆按照《总统记录法》的规定保存社交媒体记录并向公众开放。
+
+按照常规做法，@ WhiteHouse，@ POTUS，@ VP和@PressSec等账号转移给新政府使用。川普政府的内容会保留在新帐户的名下。例如，Twitter上的@POTUS存档在[@POTUS45](https://twitter.com/potus45)，@Whitehouse的推特名称变成了 [@WhiteHouse45](https://twitter.com/whitehouse45)。
+
+川普政府时期的个人官方帐号将保持不变，档案馆进行存档维护，用户对内容可以随时访问。具体备份名单详见川普图书馆网站。
+
+值得一提的是，川普政府有些官员经常使用个人账户开展政府业务，而国家档案馆将会尽快公开那些帐户的社交媒体内容。因此，被推特强行关闭的川普总统个人账户的内容未来会被公开，但不确定是否只包含其任期内发布的推特。
+
+最后，再次感谢蓬佩奥国务卿在任期结束前对中共扔出的板砖，具体内容仍然可以从已经被备份的网站查询（见参考链接）。在推特账号方面，国务院的官方账号也已转给新政府（之前的内容完全保留），国务卿的官方账号被存档，推荐大家继续关注他的私人账号[@mikepompeo](https://twitter.com/mikepompeo)。
+
+**参考链接：**
+
+[https://www.trumplibrary.gov/](https://www.trumplibrary.gov/)
+
+[https://www.archives.gov/presidential-libraries/archived-websites](https://www.archives.gov/presidential-libraries/archived-websites)
+
+[https://2017-2021.state.gov/index.html](https://2017-2021.state.gov/index.html)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)！
 
 0
