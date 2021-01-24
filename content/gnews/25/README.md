@@ -1,51 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 01/23/2021 财经快讯：全球最大疫苗商起火；美新刺激计划或带来大泡沫
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/797166/)
+## 据台湾国防部军情报道23日空军曾八次广播驱离共匪军机
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/800072/)
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/Picture10.jpg)
-图片来源：[https://ishare.ifeng.com/c/s/v004—\_s1wpaMojCZCKS4Mm8pFEvTXQHB3VduIkuwn6txz5lTOpx7rTpRVEBznbXkaP–omgLasXlTmjW82b5UjYF6cQ\_\_\_\_?spss=np&aman=1cL40ffc67Cef8Y49b04b6Td74Zc6fW418Je017305](https://ishare.ifeng.com/c/s/v004---_s1wpaMojCZCKS4Mm8pFEvTXQHB3VduIkuwn6txz5lTOpx7rTpRVEBznbXkaP--omgLasXlTmjW82b5UjYF6cQ____?spss=np&amp;aman=1cL40ffc67Cef8Y49b04b6Td74Zc6fW418Je017305)
+撰稿：Yumi
 
-1. **耶伦提名通过参议院小组审议，周一将进行最后投票**
+审稿：Jenny
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_7675.jpg)国防部网络截图
+据台湾屏东军情报导，国防部即时军情 23日报导，中共解放军军机密集袭扰台湾邻近空域已成常态，以前一天内大约进入台湾领空区域大约三次左右，今日却极其罕见，在短短2小时内侵入空域达7次，台湾各地空军基地也出现密集起飞状况，这样的短时间密集扰台，也是近年广播记录到的创新高次。
 
+**据长期观察台湾西南海域的粉丝页详细记载今天1月23日 中共军机 ，运八远干机 7A4262 编号30518、 空警500 7A42A3 编号81031 、 运八反潜机 7A431D 编号82013 等多架次进入我ADIZ(西南空域)，在台湾空军在空警戒，八度广播广播驱离共匪军机**。
 
-本周五，美参议院财政委员会一致批准了珍妮特·耶伦（Janet Yellen）的提名，作为第一位女性提名财长，她的提名预计在下周一得到参议院的完全批准，但共和党呼吁她与他们共同制定经济政策。
+其他热心的军事网友也报告，自上午10时左右至13时30分止，台湾空军各基地至少紧急起飞15批次(30机)前往拦截监控。另，美国海军C-2灰狗式舰载型运输机现踪巴士海峡，疑为美国航母通过巴士海峡。本月累计进入台湾空域22天，本月广播驱离纪录共计59次。
 
-[https://www.reuters.com/article/us-usa-biden-yellen-idUSKBN29R18O](https://www.reuters.com/article/us-usa-biden-yellen-idUSKBN29R18O)
+在网上的网友评论说：今天中共的举动是在消耗台湾国军的军务执勤的工作，也在一而再地探撤台湾底线。岛内部段的有声音到底美国会不会来保护台湾声音又起来。
 
-**2.全球最大疫苗制造商起火**
+美军军机也在随后马上派运输机来到美国新的政权转换之馀。台海问题变成一种非常敏感地带。这个敏感时刻，任何台海一点风吹草动系牵繫著整个台海的危机。在本月22天共军西南海域的军机扰台是变成常态。然而今天年续密集的侵扰。喧嚣意味极大。空军广播纪录如图下：
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_7677.jpg)
+台灣西南海域粉絲團圖片來源
 
-据多家媒体报道，当地时间周四印度血清研究所（Serum Institute of India）发生火灾。据悉，血清研究所是全球最大疫苗生产商。据负责现场救援的消防人员表示，现场无人员伤亡。同时血清研究所CEO Adar Poonawalla也表示起火地点位于在建厂房，所以没有影响到现有疫苗生产。
+新聞來源：
 
-[https://ishare.ifeng.com/c/s/v004—\_s1wpaMojCZCKS4Mm8pFEvTXQHB3VduIkuwn6txz5lTOpx7rTpRVEBznbXkaP–omgLasXlTmjW82b5UjYF6cQ\_\_\_\_?spss=np&aman=1cL40ffc67Cef8Y49b04b6Td74Zc6fW418Je017305](https://ishare.ifeng.com/c/s/v004---_s1wpaMojCZCKS4Mm8pFEvTXQHB3VduIkuwn6txz5lTOpx7rTpRVEBznbXkaP--omgLasXlTmjW82b5UjYF6cQ____?spss=np&amp;aman=1cL40ffc67Cef8Y49b04b6Td74Zc6fW418Je017305)
+[https://www.mnd.gov.tw/Publish.aspx?p=77954&title=%e5%9c%8b%e9%98%b2%e6%b6%88%e6%81%af&SelectStyle=%e5%8d%b3%e6%99%82%e8%bb%8d%e4%ba%8b%e5%8b%95%e6%85%8b](https://www.mnd.gov.tw/Publish.aspx?p=77954&amp;title=%e5%9c%8b%e9%98%b2%e6%b6%88%e6%81%af&amp;SelectStyle=%e5%8d%b3%e6%99%82%e8%bb%8d%e4%ba%8b%e5%8b%95%e6%85%8b)
 
-**3.格兰瑟姆警告拜登政府的新刺激计划或给市场带来巨大泡沫**
+[https://news.ltn.com.tw/news/politics/breakingnews/3419983?fbclid=IwAR0Xqx1xgzu0D8mSa-2bYvQA6a782nuKy4x0VHdsdZv-OsqeQO16i-meVkE](https://news.ltn.com.tw/news/politics/breakingnews/3419983?fbclid=IwAR0Xqx1xgzu0D8mSa-2bYvQA6a782nuKy4x0VHdsdZv-OsqeQO16i-meVkE)
 
-英国传奇投资人、GMO资产首席投资分析师杰里米·格兰瑟姆（Jeremy Grantham）上周警告拜登政府的新刺激计划或引发巨大风险。格兰瑟姆毫无疑问的表示拜登向国会寻求的1.9万亿美元联邦援助中，有一部分最终将被用于购买股票而不是食物或住房。他同时认为，纳斯达克将在31个月内暴跌近80%。
-
-[https://www.newsmax.com/t/newsmax/article/1006765/8](https://www.newsmax.com/t/newsmax/article/1006765/8)
-
-**4.中共进口“换马甲”委内瑞拉石油以躲避美国制裁**
-
-彭博社的一份新调查报告详细介绍了中共正采用一种新办法来躲避美国对委内瑞拉石油制裁，即在对文件进行篡改的同时，用化学添加剂掺杂在石油中，以便将其作为完全不同的原料进行出售，且不会留下委内瑞拉的痕迹。
-
-[https://www.bloomberg.com/news/articles/2021-01-22/china-imports-oil-doctored-to-skirt-u-s-sanctions-on-venezuela](https://www.bloomberg.com/news/articles/2021-01-22/china-imports-oil-doctored-to-skirt-u-s-sanctions-on-venezuela)
-
-**5.海航按照“法治化、市场化”原则，处理其千亿债务**
-
-1月22日，海航官网发布公告称，自海南省联合工作组成立以来，海航有效防控风险、切实维护各方利益，按照“法治化、市场化”原则，制定风险处置工作思路。据海航集团2019年8月份公布的财务数据，截至2019年6月末，公司总负债为7067.26亿元。截至目前，因为海航集团尚未公布2019年、及2020年年报，最新的负债情况尚不清楚。毫无疑问，市场化原则无疑是将海航的债务稀释给了广大韭菜。
-
-[https://finance.sina.com.cn/stock/s/2021-01-22/doc-ikftssan9710800.shtml](https://finance.sina.com.cn/stock/s/2021-01-22/doc-ikftssan9710800.shtml)
-
-**6.饲料涨价，或成压垮养殖户最后一根稻草**
-
-1月7日开始，华南华中华东等水产养殖主产区的饲料价格先后宣布涨价了。这一次饲料涨价，还是老规矩，畜禽料先涨，水产料很快跟进。水产料涨价的顺序也很符合往常的“规律”，华南最先涨，然后是华中华东。所以，养殖户可能真的要不得不面临这个问题，2021年，水产料的价格真的便宜不了。饲料涨价这个因素，会不会成为压垮部分养殖户的那根稻草？在这几年盈利情况不太好，甚至连续不赚钱赔钱的养殖户，他们还能在2021年再撑一下吗？
-
-[https://www.toutiao.com/i6920231997721903628/?in\_ogs=&traffic\_source=&utm\_source=&source=search\_tab&utm\_medium=wap\_search&original\_source=&in\_tfs=&channel=](https://www.toutiao.com/i6920231997721903628/?in_ogs=&amp;traffic_source=&amp;utm_source=&amp;source=search_tab&amp;utm_medium=wap_search&amp;original_source=&amp;in_tfs=&amp;channel=)
-
-By【密翻组·金融团队】
-
-校对：文印
-
+[https://www.facebook.com/SouthwestAirspaceofTW](https://www.facebook.com/SouthwestAirspaceofTW)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_5335.jpg)
 0

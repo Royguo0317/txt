@@ -1,25 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拉里·金因中共病毒去世
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/797383/)
+## 灭共才是我们的最终目标
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/800293/)
 
-- 编辑：Victor Torres
+撰稿：冰沙奶茶（会员服务部）
 
+编辑：五饼二鱼
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+美国大选尘埃落定，战友们心情大都难以平复，其实不必如此。不管是拜登当选还是川普连任，都不是我们的最终目的。灭共，才是我们终极目标，而这股看洪流已经形成。
 
-**西班牙2021年1月23日电/西喜社——**广播界传奇人物拉里·金在洛杉矶的西达斯·西奈医疗中心去世，据报道，他因中共病毒入院治疗，今年87岁。
+从国际形势来看，美国国务卿蓬佩奥正式对外宣布：中国对维吾尔族“犯下种族清洗和反人类罪”。这是特朗普政府任期的最后一日砸向中共的大锤。拜登政府的国务卿人选布林肯同意蓬佩奥的说法，强调上任后会延续相关政策，而美国政府的最新举措，也将带动或敦促其他西方国家采取类似行动。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1611448196-1.jpg)澳喜文宣组
+从国内情况来看，元旦刚过，一股超强寒流席卷中共国大地，各地气温急剧下降，与此同时病毒疫情在多地急速升温。这一冷一热完全打乱了原本应有的过节气氛和中共当局指望春节拉动“内循环”措施。民生需求、交通运输、能源供应等方方面面因为寒流、疫情双重打击都陷入困境。在河北普遍最次的大米零售价由每斤2.42元涨到3.5元。截止到1月15日，中共国主产区鸡蛋到户收购均价涨至5.00元/斤，较月初累计上涨1.02元/斤，累计涨幅25.63%。各地的菜价也一路飞涨，“比疫情吓人的是物价”有网民哭诉菜价疯涨。随着疫情进一步向各地扩散据，包括北京、天津、上海、河北、山东、湖北、四川、浙江等24个省份不得不提出“就地过节”，“非必要不返乡”。今年这个状况，正是应了一句老话：过年如过关。中共今年过的恐怕是鬼门关。
 
+总而言之战友们不必患得患失，正如文贵先生1月22日盖文所说：“我们的追求的是：用行动，奉献，无私，无我，一切靠自己，以美灭共，以共灭共是我们的战略和战术，最终一定是爆料革命，新中国联邦……结束中国共产党，这个恶魔在中国统治”。加油啊战友们！
 
-
-> [#NEW](https://twitter.com/hashtag/NEW?src=hash&amp;ref_src=twsrc%5Etfw): Broadcasting legend Larry King has died at Cedars-Sinai Medical Center in Los Angeles, after reportedly being hospitalized with [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw). He was 87 years old.
-> — Dana Alexa (@DanaAlexaNews) [January 23, 2021](https://twitter.com/DanaAlexaNews/status/1352969355575791616?ref_src=twsrc%5Etfw)
-
-
-
-**新闻来源：**[https://www.npr.org/2021/01/23/716062722/veteran-broadcaster-larry-king-dies-at-87](https://www.npr.org/2021/01/23/716062722/veteran-broadcaster-larry-king-dies-at-87)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
-
-+3
+本文纯属个人观点
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_5335-1.jpg)
+0

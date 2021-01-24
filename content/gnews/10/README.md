@@ -1,51 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 從1月20日那一刻起！
-` 首尔喜韩农场` [轉載自GNews](https://gnews.org/zh-hans/797665/)
+## 共产党已经是成了美国餐桌上的大餐
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/801081/)
 
-作者：草莽
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-23-at-11.57.28-PM.png)
-川普離開，拜登就職。
+新闻简述：郭文贵先生在2021年1月15日的Getter视频中说，蓬佩奥国务卿和川普总统政府采取的灭共行动和措施是过去70年的总和。新中国联邦和所有中国人是最大的受益者。任何一个美国总统不可能随便把一个总统和美国政府前届政府下达的命令推翻。
+视频来源：[https://gtv.org/getter/6001c26187fabe2daf3a1694](https://gtv.org/getter/6001c26187fabe2daf3a1694) (00:51-2:56)
+**中英文对照全文**
 
-從1月20日那一刻起，真可謂：人心浮動。
+Brothers and sisters, what have you discovered in the past few days? During the days between January 6th and January 20th, the actions taken by Secretary Pompeo and the U.S. government and President Trump to take down the CCP, together with the measures they have taken are as many as the sum of the past 70 years.
 
-我覺得，通過此事，我們即鍛練了心臟，同時也應該反醒自身。
+兄弟姐妹们，过去的几天你们发现了什么？就这几天从1月6号到这1月20号之间，蓬佩奥国务卿和美国政府部门和川普总统，采取的对灭共的行动，还有真正的措施，是过去70年的和。
 
-清靜經云：
+So, brothers and sisters, we must see the essence of this. The United States wouldn’t take any actions unless it’s battered and bruised as hard as during the Attack on Pearl Harbor or the World War II.  The US is a selfish, Capitalist country who has really drifted away from God and its faith and away from its original intention.  Indeed, it has drifted away from democracy and rule of law, including its belief in God. “Trust my God!” This time it really hurts.
 
-眾生所以不得真道者，為有妄心。
+所以说兄弟姐妹们一定要看到这个本质，美国这个国家就像珍珠岛战役被袭击一样，包括二战一样，他不打疼不流血他不行动的，他是个资本主义自私型的国家。这个国家已经真的是，远离了上帝和它的信仰，远离了它的初衷，这个真是民主法制已经远离了，包括信奉上帝，Trust my God！这个就是说这次让他疼了。
 
-既有妄心，即驚其神；
+So the biggest beneficiary between January 6th and January 20th is the New Federal State of China and all the Chinese. It’s impossible for any U.S. president to casually overturn an order issued by a president and the previous administration of the U.S. government. It’s like that a man brings a dish to the dining table, say, a chief brings a pot of stewed sauerkraut, then if you want it raw and uncooked, it will be impossible. If you break or smash the pot, that will be another story. If you did, you would have to bear the consequences. No one would pay for you.
 
-既驚其神，即著萬物；
+所以说1月6号到1月20号是新中国联邦和所有中国人最大的受益者。任何一个美国总统不可能随随便便把一个总统和美国政府前届政府下达的命令随便推翻，是不可能的，这真是，这就像一个人端上来这个一盘，厨师端上来了一盆炖锅酸菜，你想把它放回去了，回到原来被炖熟之前，那是不可能的。你要把你那炖锅给砸了给叩了，那是另外一回事。砸了、叩了你是要负责任的，没人给你付钱。
 
-既著萬物，即生貪求；
+That is to say, if a piece of fully cooked steak is put before you, whether you choose to eat it or not, it has already been cooked. It’s just like the CCP, who has become the big meal on Americans’ table. Eat it or not, that is a matter of choice of American people, but the CCP has become the steak for Americans or a hot pot.
 
-既生貪求，即是煩惱；
+所以说把你整个做熟的牛排放在这，你可以吃不吃，这个牛肉已经做熟了。所以共产党已经是成了美国餐桌上的大餐，至于你美国人你吃不吃，那是你的事。共产党已经成了美国的牛排了，已经炖成火锅了。
 
-煩惱妄想，憂苦身心。
+以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。
 
-一直以來，我們只有一個目標：滅共！
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/755419/](https://gnews.org/zh-hans/755419/)
 
-我們為什麼叫爆料＂革命＂？因為它身處在＂戰爭時期＂，才可稱之為＂革命＂。
+翻译：【Cyndi】校对：【Isaiah4031】字幕：【班仔】视频解码：【恒久忍耐】编辑：【Isaiah4031】
 
-既然是戰爭，凡事就與和平時期不同。清代陆以湉的《冷廬雜識‧王文成公用兵》有云：「凡此皆出奇制勝，所謂兵不厭詐，非小儒所能知也。」
+喜马拉雅玫瑰园小队出品
 
-在三年多的爆料中，有些可對咱們宣講的消息，也有很多必須保密的情報。
+敬请关注:
 
-無論是＂文貴直播＂還是＂路德時評＂，爆料至今， 無論多麼重磅，如何的唯真不破，也只是說出一部分真相而已，為了讓大家保命保財，了解真實的世界，逐漸褪去我們身體里的赤色机因，為新中國聯邦的＂正道主義＂打好根基。
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
 
-為了服務于大的戰略，絕對不能全盤托出，廣而告之。因為單就CCP而言，它一直把我們當做勁敵，同時也一直在研究咱們的＂爆料＂施以對策。
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
 
-每當我們收看完＂重磅＂時，往往心潮澎湃，總以為自己知道了全面且深層的一手消息，用此以偏蓋全的來壓寶戰爭大局的動向，我認為這是我們的誤區。
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-要知道，在共滅之前，即使爆料出＂超重磅＂情報級別的真實消息，也應是＂一斑＂級別，絕非＂全豹＂。所獲取的邏輯鏈條，理論依據還是不足以支撑大局。所以，我們的某些猜測；某些假設；某些幻想有時就會事以願為。
-
-這種情況雖說可以理解，但還不如把自心沉定下來，保持充沛的精力，踏實認真的去做好那＂一根稻草＂。千萬不要認為自己獲得了一些准確和超前的情報級別的消息，就能將自己提升到可圈可點的＂舵手＂層次，指點江山，妄想聯篇，疲人累己，最終應對了＂越俎代庖＂的典故（《庄子·逍遥游》），超跃了自身的本職，去摻和他人所管的範圍。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-23-at-11.57.41-PM.png)
-所以，我們只管跟緊＂新中國聯邦＂；跟緊＂爆料革命＂；跟緊＂文貴直播＂；跟緊＂路德時評＂，響應那一聲聲的號令，积極參與每次的灭共行動，配合推動革命的風向。由於性格及自身所處環境的不同，情願沖在前面戰友的就盡力往前沖，謹小慎微的戰友就潛水默默出力，大家一同打贏這場＂終極之戰＂，把自己安排在一個適合自己的有效的結點上，這才是我們＂稻草人＂真正的＂本份＂所在！
-
-咱們共同努力，去掉妄想，日鞏一卒！
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
 +2
