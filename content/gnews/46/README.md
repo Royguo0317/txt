@@ -1,29 +1,137 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国之殇与东方曙光
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/801967/)
+## 白宫报告：川普政府的政绩——截至2021年1月（十三）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/802335/)
 
-在美国历史上，从未有过一次总统选举与一个东方古国有着如此息息相关的联系，更没有过一个国家领导人的产生会牵动全世界的神经。 川普与拜登，他们之间竞争的意义早已超出了对总统之位的争夺，实际上，他们之间的战争是人类文明史上，又一次正义与邪恶，文明与野蛮的较量，而他们个人也成为这场较量中的两个符号。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1-103.png)
-骄傲的美国人从未意识到，世界第一强国已经在不知不觉中被中共侵蚀，这其中最严重的是对其思想和价值观的侵蚀。 人类文明从来不是线性前进的，在欧洲，古希腊灿烂的文明之后，有蒙昧千年的中世纪，而古老的东方古国也没有继承先秦光芒万丈的思想家园，而是进入了两千年的王朝更替。 人类津津乐道，并为之骄傲的“思想”，其实是如此脆弱。人类用了几千年的时间忙于权谋，厮杀和党争，至今未休。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/2-39.png)
-川普总统此次的落选，其意义已经远远超过他个人的得失，这是美国民意的巨大伤痛，也是人类价值观严重分裂的标志，也是中共黑暗势力笼罩全球的开始，这是否意味着人类的又一个至暗时刻已经来临？是否意味着人类久违的战争正在酝酿中？
+五月花写作组 ｜ 翻译：风云九霄（文萧） ｜ 校对：伞兵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告13.jpg)
+## **Part 13 – Making Communities Safer**
 
-这场大选背后的较量可谓惊心动魄，我们仿佛置身于一场波澜壮阔的历史剧中，不过这一次，这部历史剧中的主角是郭文贵先生引领的爆料革命。 这是一束来自东方的曙光，中国人民的觉醒与反抗会不会成为人类唯一的希望呢？
-![]()![](https://gnews.org/wp-content/uploads/2021/01/2a8a7566-370f-438e-ad96-250a85627cbe.jpg)
-回想四年前，川普总统当选美国总统，使很多人大感意外，也使那些传统政客颜面扫地。其实，那是积蓄已久的民意做出的选择。四年来，川普总统饱受攻击，身边危机四伏，一路跌跌撞撞，然而他以对美国的忠诚和对老百姓的热爱，以无比坚强的意志和勇气走到今天。失败是残酷的，自古英雄多落寞。人们看到了川普先生落选背后所有的明枪暗箭，那些道貌岸然的政客，那些义正词严的公知，那些饱读诗书的学者，那些贪赃枉法的执法者，还有中共那些鬼魅魍魉的表演，都在这场选举中赤膊上阵，你们以为自己真的赢了吗？你们以为拜登胜利了吗？你们是否知道，觉醒的美国人民绝不会坐以待毙，他们的反抗才刚刚开始；还有，你们是否知道，中共是如何对待他们用过的棋子吗？拜登当选之日，就是你们，包括拜登本人，噩梦的开始。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/e934151e-7afb-455b-a6f3-d4cdd688ad4f.jpg)
-在这场世纪大选中，郭文贵先生引领的爆料革命犹如一把利剑，一路斩妖除魔，揭露真相，唤醒民众。另一方面，中共则极尽其流氓手段，收买，造假，威胁，利诱，无所不用其极。 中华民族自古不乏直面惨烈世界的英雄，与魔鬼中共的较量已经进入生死阶段，是跪下偷生，还是站起反抗，我们的人生必须立刻做出选择。
+## **第十三部分：使社区更安全**
 
-四年弹指一挥间，现在，美国政坛的黑幕已掀开一角，中共也不再掩饰狰狞的面目，川普总统今天的落选可以说一切只是刚刚开始，中共不除，世界永无宁日。
+* * *
 
-在古老东方地平线上升起的曙光中，是昂首挺胸的新中国联邦的公民。中国人民的觉醒能否引领世界走出黑暗？我们已经站在了人类的十字路口上，我们的思想是否将再一次被关进千年的牢笼，人类将走进又一蒙昧世纪，还是冲破黑暗迎来新生。
+### **Signed into law landmark criminal justice reform.**
 
-新中国联邦的公民百炼成钢，我们已收拾好行囊，我们已踏上征途，我们将义无反顾为自由，为正义而战。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/bec6b8e2-5ff1-4f6b-ab82-32096baff301.jpg)
-作者：匿名
+### 签署成为法律里程碑的刑事司法改革。
 
-【文章仅代表作者个人观点】
+- Signed the bipartisan First Step Act into law, the first landmark criminal justice reform legislation ever passed to reduce recidivism and help former inmates successfully rejoin society.
+- 将两党支持的《第一步法案》签署为法律，这是有史以来第一项具有里程碑意义的刑事司法改革立法，旨在减少惯犯并帮助已经释放的囚犯成功重返社会。
+- Promoted second chance hiring to give former inmates the opportunity to live crime-free lives and find meaningful employment.
+- 促进第二次雇用机会，使前囚犯有机会过上无犯罪的生活，并找到有意义的工作。
+- Launched a new “Ready to Work” initiative to help connect employers directly with former prisoners.
+- 发起了一项新的“Ready to Work”倡议，以帮助雇主与以前的囚犯直接联系。
+- Awarded $2.2 million to states to expand the use of fidelity bonds, which underwrite companies that hire former prisoners.
+- 授予各州220万美元以扩大诚实保证保险的使用范围，为雇用前囚犯的公司提供担保。
+- Reversed decades-old ban on Second Chance Pell programs to provide postsecondary education to individuals who are incarcerated expand their skills and better succeed in the workforce upon re-entry.
+- 废除了数十年的Second Chance Pell计划禁令，为被监禁的个人提供高等教育，扩大他们的技能，使其在重返工作岗位时更能获得成功。
+- Awarded over $333 million in Department of Labor grants to nonprofits and local and state governments for reentry projects focused on career development services for justice-involved youth and adults who were formerly incarcerated.
+- 向劳工部提供超过3.33亿美元的拨款，用于非营利组织，地方政府和州政府的再入学项目，这些项目的重点是为以前受监禁的司法介入青年和成年人提供职业发展服务。
+
+
+### **Unprecedented support for law-enforcement.**
+
+### 前所未有的支持执法。
+
+- In 2019, violent crime fell for the third consecutive year.
+- 2019年，暴力犯罪连续第三年下降。
+- Since 2016, the violent crime rate has declined over 5 percent and the murder rate has decreased by over 7 percent.
+- 自2016年以来，暴力犯罪率下降了5％以上，谋杀率下降超7％。
+- Launched Operation Legend to combat a surge of violent crime in cities, resulting in more than 5,500 arrests.
+- 发起了“Operation Legend”，以打击城市中激增的暴力犯罪，超过5,500人被捕。
+- Deployed the National Guard and Federal law enforcement to Kenosha to stop violence and restore public safety.
+- 将国民警卫队和联邦执法部门部署到Kenosha，制止暴力并恢复公共安全。
+- Provided $1 million to Kenosha law enforcement, nearly $4 million to support small businesses in Kenosha, and provided over $41 million to support law enforcement to the state of Wisconsin.
+- 向Kenosha执法部门提供了100万美元，向Kenosha的小型企业提供了近400万美元，并为威斯康星州的执法提供了超过4,100万美元。
+- Deployed Federal agents to save the courthouse in Portland from rioters.
+- 部署了联邦特工，波特兰法院在暴徒骚乱中得以幸免。
+- Signed an executive order outlining ten-year prison sentences for destroying Federal property and monuments.
+- 签署了一项行政命令，销毁联邦财产和古迹处于十年徒刑。
+- Directed the Department of Justice (DOJ) to investigate and prosecute Federal offenses related to ongoing violence.
+- 指示司法部（DOJ）调查和起诉与长期暴力相关的联邦罪行。
+- DOJ provided nearly $400 million for new law enforcement hiring.
+- 司法部为新的执法人员招聘提供了近4亿美元。
+- Endorsed by the 355,000 members of the Fraternal Order of Police.
+- 得到了355,000名警察兄弟会的认可。
+- Revitalized Project Safe Neighborhoods, which brings together Federal, state, local, and tribal law enforcement officials to develop solutions to violent crime.
+- 振兴安全社区项目，将联邦，州，地方和部落的执法人员召集在一起，以制定暴力犯罪的解决方案。
+- Improved first-responder communications by deploying the FirstNet National Public Safety Broadband Network, which serves more than 12,000 public safety agencies across the Nation.
+- 通过部署国家公共安全宽带网络FirstNet，改善了急救人员的通信，该网络为全国12,000多个公共安全机构提供服务。
+- Established a new commission to evaluate best practices for recruiting, training, and supporting law enforcement officers.
+- 建立了一个新的委员会，以评估招募，培训和支持执法人员的最佳实践。
+- Signed the Safe Policing for Safe Communities executive order to incentive local police department reforms in line with law and order.
+- 签署了《安全警务保证安全社区》的行政命令，以鼓励当地警察部门根据法律和秩序进行改革。
+- Made hundreds of millions of dollars’ worth of surplus military equipment available to local law enforcement.
+- 向当地执法部门提供了价值数亿美元的剩余军事装备。
+- Signed an executive order to help prevent violence against law enforcement officers.
+- 签署了一项行政命令，以防止对执法人员的暴力行为。
+- Secured permanent funding for the 9/11 Victim Compensation Fund for first responders.
+- 为 “ 9/11受害者补偿基金”筹得永久资金，给予第一响应者（现场应急人员）。
+
+
+### **Implemented strong measures to stem hate crimes, gun violence, and human trafficking.**
+
+### 采取了强有力的措施来制止仇恨犯罪，枪支暴力和人口贩运。
+
+- Signed an executive order making clear that Title VI of the Civil Rights Act of 1964 applies to discrimination rooted in anti-Semitism.
+- 签署了一项行政命令，明确表明1964年《民权法》第六章适用于植根于反犹太主义的歧视。
+- Launched a centralized website to educate the public about hate crimes and encourage reporting.
+- 建立了一个集中式网站，以教育公众关于仇恨犯罪的行为并鼓励举报。
+- Signed the Fix NICS Act to keep guns out of the hands of dangerous criminals.
+- 签署了《Fix NICS Act》，避免枪支落入危险罪犯的手中。
+- Signed the STOP School Violence Act and created a Commission on School Safety to examine ways to make our schools safer.
+- 签署了《 停止学校暴力法》，并成立了学校安全委员会，研究使学校更安全的方法。
+- Launched the Foster Youth to Independence initiative to prevent and end homelessness among young adults under the age of 25 who are in, or have recently left, the foster care system.
+- 发起了“培养独立青年”倡议，预防和消除在寄养系统中或最近离开寄养系统的25岁以下年轻人的无家可归现象。
+- Signed the Trafficking Victims Protection Reauthorization Act, which tightened criteria for whether countries are meeting standards for eliminating trafficking.
+- 签署了《贩运受害者保护重新授权法》，严格各国是否符合消除人口贩运的标准。
+- Established a task force to help combat the tragedy of missing or murdered Native American women and girls.
+- 建立了一个工作组，以帮助打击美国原住妇女和女童失踪或被谋杀的悲剧。
+- Prioritized fighting for the voiceless and ending the scourge of human trafficking across the Nation, through a whole of government back by legislation, executive action, and engagement with key industries.
+- 通过政府的立法，行政措施以及与关键行业的合作，优先为无法发声者斗争，结束全国人口贩运的危害。
+- Created the first-ever White House position focused solely on combating human trafficking.
+- 创建了有史以来第一个专门针对打击人口贩运的白宫职位。
+
+
+* * *
+
+原文来源：
+
+[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
+
+往期链接：
+
+[白宫报告：川普政府的政绩——截至2021年1月（一）](https://gnews.org/zh-hans/761018/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（二）](https://gnews.org/zh-hans/761213/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（三）](https://gnews.org/zh-hans/766962/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（四）](https://gnews.org/zh-hans/767022/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（五）](https://gnews.org/zh-hans/771076/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（六）](https://gnews.org/zh-hans/771727/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（七-1）](https://gnews.org/zh-hans/779811/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（七-2）](https://gnews.org/zh-hans/780079/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（八）](https://gnews.org/zh-hans/788066/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十一）](https://gnews.org/zh-hans/802251/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十二）](https://gnews.org/zh-hans/802307/)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[波士顿五月花GTV官方号](https://gtv.org/user/5ffb6570f579a75e0bd03d56)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)！
 
 0

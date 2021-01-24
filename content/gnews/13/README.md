@@ -1,35 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】「贤学思政」召集人王逸战称逾10内地亲友被公安问话 发声明断绝关系
-` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/803068/)
+## 1/24/2021 财经快讯：美国对中共立讯精密展开调查；海航债务危机如何处置
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/803295/)
 
-搜集：文燕
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/Picture99-11.png)
+Image source: [https://economictimes.indiatimes.com/](https://economictimes.indiatimes.com/)
 
-编撰：文燕
+1. **美国对电气连接器和保持架及其组件和下游产品启动调查，涉及中共国立讯精密**
 
-审稿：卡西欧
 
-上传：文粤
+2020年12月18日，美国Amphenol Corp. of Wallingford, CT向美国ITC提出337立案调查申请，主张对美出口、在美进口和在美销售的该产品侵犯了其专利权，请求美国ITC发布有限排除令、禁止令。美国国际贸易委员会将于立案后45天内确定调查结束期。除美国贸易代表基于政策原因否决的情况外，美国国际贸易委员会在337案件中发布的救济令自发布之日生效并于发布之日后的第60日起生效。广东立讯精密工业股份有限公司、广东东莞立讯精密工业股份有限公司、香港立讯有限公司、美国Luxshare-ICT Inc., Milipitas, CA为列名被告。总部位于东莞的立讯精密，是一家在国际上鲜为人知但有望成为中共国大陆首家组装iPhone的公司，而这块业务一直到现在都是由台湾制造商主导。
 
-**每周摆街站的学生组织贤学思政声援12****港人、反对杀通识科及关注在囚抗争者，连番遭警方拘捕及监视街站，其召集人王逸战更因内地亲友被公安上门问话，相信政权有意借此向他发出「警告」讯号。王逸战发文断绝内地亲友关系，免连累家人。**
-![]()![](https://gnews.org/wp-content/uploads/2021/01/jpg0124-cimage001-1.jpg)「贤学思政」召集人王逸战（图片来源：香港01）
-贤学思政召集人王逸战1月23日在facebook发文，称其中国大陆的亲友过去数日被公安上门问话，希望得知有关他的资料。王逸战在贴文中宣布，与中国的亲戚及朋友断绝一切关系，他未来及过去的言行与他们绝无关系。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/0124-cimage003-1.png)王逸战在facebook声明，与中国的亲戚及朋友断绝一切关系 （图片来源：明报）
-**王逸战出生于内地，至小学阶段才来港。王在接受传媒查询时表示，自己是由家人口中得知事件，受影响的亲友至少有10****人，是他在内地的小学同学以及亲戚。他表明对此感到担忧，强调已多年没有与小学同学联系**，
+[https://cn.reuters.com/article/us-itc-china-electric-items-probe-0122-idCNKBS29R1B0](https://cn.reuters.com/article/us-itc-china-electric-items-probe-0122-idCNKBS29R1B0)
 
-自称公安的人只是想知道他的事，无向其亲友作出威胁，而他为免影响，故与内地的亲友断绝关系。**王又透露，近期不断被身分不明的人跟踪。但他强调自己的行为合法，会继续摆街站。**
-![]()![](https://gnews.org/wp-content/uploads/2021/01/jpg-0124-cimage005-1.jpg)学生组织「贤学思政」召集人王逸战（中）。 （图片来源：头条日报）
-**战友观点：**
+**2**.**拜登撤销特朗普禁止中共介入美国电网的行政命令**
 
-王逸战等4人曾因于上年11月30号摆街站声援12港人学生组织被控非法集结，「贤学思政」年底在社交媒体专页表示，国安公署人员在旺角警署内，会见及警告其召集人及三名成员，若然有人干犯《香港国安法》，警方定必严肃跟进，绝不姑息。警方澄清当日在警署与他们会面的，是警务处国家安全处人员，并非国家安全公署人员。
+拜登总统撤销了特朗普时期禁止中共介入美国电网的行政命令，此举是拜登作为“保护公共卫生和环境并用科学应对气候危机的行政命令”的一部分。
 
-王逸战过去曾在facebook上表示，被数名不知名人士跟踪，又有警员到他所在的贤学思政街站摄录及截查，称为国安法收集证据。而贤学思政去年12月曾被警方国安处人员警告，组织的政治理念或违反国家安全法，组织发言人朱慧盈当时表示，贤学思政的定位为本土派，只是希望加强归属感而非宣扬港独。
 
-「贤学思政」于上年年初成立，成员曾在上年圣诞节前于旺角设街站，征集送给在囚人士的物资，又呼吁市民写圣诞卡，为无法与家人共度圣诞节的在囚人士打气。
 
-以上观点仅代表笔者本人
+> [Biden Rescinds Trump Order Banning Chinese Communist Involvement In US Power Grid](https://thenationalpulse.com/news/biden-revokes-trump-energy-eo/)
 
-资料来源：[852邮报新闻](https://www.post852.com/321840/%e9%80%be%e5%8d%81%e5%85%a7%e5%9c%b0%e8%a6%aa%e5%8f%8b%e9%81%ad%e5%85%ac%e5%ae%89%e4%b8%8a%e9%96%80%e5%95%8f%e8%a9%b1-%e8%b3%a2%e5%ad%b8%e6%80%9d%e6%94%bf%e7%8e%8b%e9%80%b8%e6%88%b0%e7%99%bc%e6%96%87/)、[头条日报](https://hd.stheadline.com/news/realtime/hk/1982898/%E5%8D%B3%E6%99%82-%E6%B8%AF%E8%81%9E-%E8%B3%A2%E5%AD%B8%E6%80%9D%E6%94%BF-%E5%8F%AC%E9%9B%86%E4%BA%BA%E7%8E%8B%E9%80%B8%E6%88%B0%E6%8C%87%E5%85%A7%E5%9C%B0%E8%A6%AA%E5%8F%8B%E9%81%AD%E5%85%AC%E5%AE%89%E5%95%8F%E8%A9%B1)
+
+
+**3.埃隆·马斯克（Elon Musk）的SpaceX计划在德克萨斯州发射台附近钻探天然气**
+
+据彭博社报道，最近搬到德克萨斯州的马斯克太空公司SpaceX 除了发射火箭，还在该州建立电池厂，现在也在Boca Chica发射台附近研究钻井的方法用以钻探天然气。该州能源监管机构德克萨斯州铁路委员会在最近的一次听证会上透露了这位亿万富翁的计划。
+
+[https://www.msn.com/en-us/autos/news/elon-musk-s-spacex-reportedly-plans-to-drill-near-a-texas-launchpad-for-natural-gas/ar-BB1d1XbF?ocid=msedgntp](https://www.msn.com/en-us/autos/news/elon-musk-s-spacex-reportedly-plans-to-drill-near-a-texas-launchpad-for-natural-gas/ar-BB1d1XbF?ocid=msedgntp)
+
+4.**与拜登有关的世卫组织顾问说：“全是谎言”，CCP病毒“很可能”从武汉实验室“意外泄漏”**
+
+杰米·梅茨（Jamie Metzl）- 曾在拜登（2001-2003）任职期间担任对外关系委员会副参谋长，之后在克林顿的国家安全委员会（1997-1999）和国务院（1999-2001）任职，在拜登就职典礼结束三天之后，他告诉《多伦多太阳报》，认为CCP病毒最有可能是武汉的意外实验室泄漏。
+
+**评：**现在中共不能继续捏造自然起源说理论，而转向所谓的实验室意外泄漏说，试图降低其对全球因CCP病毒死亡人口和经济损失的责任。
+
+[https://www.zerohedge.com/covid-19/it-was-all-lie-biden-linked-who-adviser-says-covid-19-likely-leaked-wuhan-lab](https://www.zerohedge.com/covid-19/it-was-all-lie-biden-linked-who-adviser-says-covid-19-likely-leaked-wuhan-lab)
+
+**5.中共国3.02万亿银行业年度不良资产处置创历年最高**
+
+1月22日，银保监会副主席梁涛透露，2020年银行业处置不良资产总额达到3.02万亿元，银行业金融机构总资产319.7万亿元，同比增长10.1%。总负债293.1万亿元，同比增长10.2%。与此同时，人民币贷款增加19.6万亿元，同比多增2.8万亿元，服务实体经济质效持续提高。梁涛表示，近期金融管理部门约谈了蚂蚁集团等一些互联网平台企业，指出了它们存在的违规监管套利、垄断经营、损害消费者合法权益等问题，采取了规范性措施。梁涛强调，有关举措不是针对民营企业，也不是针对某一家企业，不会影响相关企业的正常业务发展。
+
+**评：**如此天量的银行不良资产，如何填补窟窿？所谓有关举措反着听就知道民营企业要遭殃！
+
+[https://ishare.ifeng.com/c/s/v004u0DBr–F6AnU3Ew83mX9ZsXZWRhWKcB9l4l3MTzak93LrbVdTdvGfzXPB2PjyWjRqhxdUvyTyESUOKpyot5512w\_\_\_\_?spss=np&aman=1cR40fBc67Mef8849bZ4b69d74pc6f3418fe01S305](https://ishare.ifeng.com/c/s/v004u0DBr--F6AnU3Ew83mX9ZsXZWRhWKcB9l4l3MTzak93LrbVdTdvGfzXPB2PjyWjRqhxdUvyTyESUOKpyot5512w____?spss=np&amp;aman=1cR40fBc67Mef8849bZ4b69d74pc6f3418fe01S305)
+
+**6**.**高层变动，海航7000亿债务危机处置进入关键时刻**
+
+1月22日，海航集团发布了最新公告，即日起，顾刚辞去海航集团董事及执行董事长职务，任清华辞去海航集团董事及联席首席执行官职务。这是2020年2月29日，海南省海航集团联合工作组入驻海航近一年来，海航集团首次正式对外发布公告。2017年，总资产超过万亿元的海航集团遭遇资金链危机。2018年，海航集团时任董事长、集团创始人之一的王健在法国离世。1月22日，一位不愿具名的航空租赁业人士对时代财经分析表示，目前海航集团的债务情况应该已经基本被理清，后继续很可能会进行破产重组。
+
+**评：**看四方乱斗！
+
+[https://money.163.com/21/0123/09/G111JI8V00259DLP.html?clickfrom=w\_biz](https://money.163.com/21/0123/09/G111JI8V00259DLP.html?clickfrom=w_biz)
+
+[金融团队]
+
+素材搜集: 文罡、Sharon、Mr. Y
+
+翻译写作: Spark
+
+校对: 小蚂蚁在行动
 
 0
