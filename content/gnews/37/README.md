@@ -1,51 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共要打台湾，而整个世界在计算中共病毒造成的损失
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/803755/)
+## 欧盟议会谴责中共国镇压香港民主人士，敦促对中港官员的制裁
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/803566/)
 
-新闻简述：2021年1月23日郭文贵先生在去开会的途中发布Getter视频。他说将要和一些人士讨论中共病毒对美国和世界经济的危害，并指出中共对台湾的企图只能使它死的更快。
-视频来源：[https://gtv.org/getter/600c8165c3245d7c59e6a59a](https://gtv.org/getter/600c8165c3245d7c59e6a59a) 
-**中英文对照全文**
+*新闻来源：《法新社（AFP）》| 作者：法新社（AFP）| 发布时间：JANUARY , 22,2021 /2021年1月22日*
 
-Hello, dear honorable fellow fighters! Look at the car. What car is this, fellow fighters? This is the third one in the whole U.S. and the second in East New York. It is a specially customized Maybach SUV. I am going to attend a meeting and see some people. What do I do?
+*翻译/简评：Marialu | 校对：感恩 | 审核：万人往 | Page：Daoiii*
 
-尊敬的战友们好！看这啥车？战友们？看这啥车？这是整个美国第三部，整个纽约东部第二部，特别订制迈巴赫SUV，迈巴赫SUV。七哥要去开会去啊，见点人啊，咋弄啊？
+[!\[\]()!\[\](https://spark.adobe.com/page/S3DKkmgXhImK0/images/63e47508-2c29-466a-a067-254cdb6f9326.jpg?asset_id=eeb06ac3-0d0a-4600-b1ec-5b3acd7b79b3&amp;img_etag=%22b3d09a6e44dd89db5d89eaa55dcec118%22&amp;size=1024)](https://spark.adobe.com/page/S3DKkmgXhImK0/images/63e47508-2c29-466a-a067-254cdb6f9326.jpg?asset_id=eeb06ac3-0d0a-4600-b1ec-5b3acd7b79b3&amp;img_etag=%22b3d09a6e44dd89db5d89eaa55dcec118%22&amp;size=1024)
 
-Ah, it is so interesting … now, the CCP is going to attack Taiwan, whereas the whole world, even the Biden administration, is researching on the damage this deadly [CCP] virus will cause to the U.S. and the world, and to the economy next. So, you see, brothers and sisters, who can avoid talking about the virus and the virus’s threat to the U.S. economy, the safety of the U.S., and the safety of the world?
+***简评:***
 
-哎呀，真好玩，你说这现在共产党要打台湾，结果现在全世界在研究，就连拜登政府都在研究，下一步病毒，致命病毒对美国、对世界的危害，对经济的危害。所以说你看看，战友们，谁能回避到病毒？病毒对美国的经济和对美国人身的安全和世界的人身安全。
+**欧洲议会周四通过了一项决议警告说，欧盟与中共国签订投资协议，从而使欧盟在人权方面做出的承诺失去可信度。欧洲议会议员在布鲁塞尔举行的视频会议以压倒性多数通过了这项决议，该决议谴责中共对香港民主活动人士的镇压。决议还呼吁对被追究警方行动负有责任的中共国和香港官员进行制裁。**
 
-Just now, two Americans told me, “Miles, we want to see you right away. We want to discuss about the profound impact of the [CCP] virus on the U.S. economy, U.S. technology, and national defense.” This is because many high-end talents and technical talents have insurance, which is very expensive. So, many insurance companies don’t want to sell high-level life insurance to these people. The more high-end you are, the more expensive the insurance will be. Hence, they don’t want to sell insurance to them because the risk is higher. After Larry King’s death, the insurance companies become more afraid. Wow, Larry king, how much money do I need to pay to you? Think about it. If it is the virus [causing the death], in particular to these scientists, all kinds of military scientists and important scientists, what would you do? Right?
+**中欧投资协议经过多年谈判于上月原则上被同意，但是预计最早要到年底才投票，所以欧盟立法者的意见很重要。该决议称，议员们感到遗憾的是，中欧投资谈判没有被用来”作为维护香港高度自治以及其基本权利和自由的杠杆工具”。该决议表示：欧盟急于跟中共国签署协议，却不对正在中共国多地（如香港、新疆和西藏）发生的严重侵犯人权行为采取具体行动，这样有可能损害欧盟作为全球人权行动者的信誉。除了在香港镇压民主人士，中共国被指控严重侵犯新疆维吾尔族的人权。该决议称，议会将”仔细审查”这项协议，在对协议投票时，把中共国的人权状况纳入考量。**
 
-刚才两位美国人跟我说：Miles，我们要马上跟你见面，我们要讨论一下病毒对美国经济和美国技术领域、国防领域的深远影响。因为很多的高端人才和技术人才，很多都是买的保险的，这个保险的价值很贵呀，那么现在很多保险公司都不想给这些人卖这些高级的这种人身保险，越高端人才你越贵，他就不想卖给你，因为风险越大。这个 Larry King 死了以后，保险公司更害怕了，哇噻，你 Larry King 这钱，我得赔你多少钱？你想想如果是这病毒，特别这些科学家，各种军事，各种重要的科学家，你咋办呢？对不对？
+**中共已被美国政府宣布犯下种族灭绝和反人类罪。如果欧盟仍然与中共这个集权统治政党谈协议、打交道，这不仅背叛了它的价值观，最终很可能一无所获。我们呼吁欧盟及早认清中共本质，远离中共。只有具有相同文明和价值观的国家，也只有建立在相互尊重和信任基础上的国家，彼此才能共同生存和发展。**
 
-So, all governments must face the threats of the CCP virus to all mankind, its attack to the economy, and its strike to the entire social structure. Therefore, brothers and sisters, please remember my words: Early joy will lead to early decline, and early sadness will result in early grief.
+***原文翻译：***
 
-所以说共产党的病毒对全人类的威胁和经济的打击，和对整个社会结构的打击，任何政府都不能不面对。所以兄弟姐妹们，牢记七哥说的话：早乐必早衰，早悲必早哀。
+### 欧盟议会谴责中共国对香港的镇压，敦促进行制裁
 
-Has everyone seen the opportunity? The CCP is now going to attack Taiwan. You [the CCP], try attacking Taiwan, try it. Yet, if it does not attack Taiwan until later, it will be attacked by its own insiders. The CCP hopes to live a few days longer by attacking Taiwan; otherwise, it will live a few days shorter. Anyhow, it will not stay alive for long.
+决议还呼吁对警方行动负有责任的中共国和香港官员进行”定向制裁“。
 
-大家看到了机会了吗？现在要打台湾。你打台湾试试，你打台湾试试。但是如果他晚一点不打台湾，他内部就把他给打了。打台湾他想多活几天，不打台湾少活几天，反正他是活不了了。
+欧洲议会周四的一项决议警告说，欧盟与中共国签订投资协议，从而失去了在人权方面的信誉。
 
-There is another thing that everyone needs to take a look at: the so-called “the CCP has won” these days. How about its economic status? Everyone, take a close look at its economy. Take a close look, brothers and sisters. This is something … nobody can change the fact that the CCP is going to perish or this great era. I won’t say anything more. I will broadcast again when I can find time. Haha! Thanks!
+欧洲议会议员在布鲁塞尔举行的视频会议以压倒性多数通过了这项决议，该决议广泛谴责中共国中央政府对香港活动人士的镇压。
 
-还有一个，大家要看一看。这些天所谓共产党赢了，但是经济情况啥样？大家仔细看看这经济情况，仔细看一看。兄弟姐妹们，这就是一个无法，任何人都无法改变的共产党灭亡的事实，还有这个大时代。啥都不说了，抽时间再直播。哈哈哈，谢谢！谢谢！
+[!\[\]()!\[\](https://spark.adobe.com/page/S3DKkmgXhImK0/images/6a7075b3-d4a4-4d52-85be-9d530db71bce.png?asset_id=fb7659d4-22e0-4ba4-8ce9-255b158efe1e&amp;img_etag=%22ba7724e4436ef27438ba1544e486db6b%22&amp;size=1024)](https://spark.adobe.com/page/S3DKkmgXhImK0/images/6a7075b3-d4a4-4d52-85be-9d530db71bce.png?asset_id=fb7659d4-22e0-4ba4-8ce9-255b158efe1e&amp;img_etag=%22ba7724e4436ef27438ba1544e486db6b%22&amp;size=1024)图片：Flickr提供的欧洲议会
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/799944/](https://gnews.org/zh-hans/799944/)
+决议还呼吁对被追究警方行动责任的中共国和香港官员进行”定向制裁”。
 
-翻译：【Cyndi】校对：【Isaiah4031】字幕：【Pamila（文明）】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+欧盟立法者的意见很重要，因为他们需要批准德国支持的投资协议，该协议在经过多年谈判后于上月原则上被同意。
 
-喜马拉雅玫瑰园小队出品
+鉴于香港的镇压行动，对该协议的疑虑很快就出现了，尽管预计最早要到年底才能投票，但是欧洲议会议员的批准尚无定论。
 
-敬请关注:
+[!\[\]()!\[\](https://spark.adobe.com/page/S3DKkmgXhImK0/images/6daa2a3c-3421-4425-8d84-8ff6bf138b6a.png?asset_id=54f589d7-3120-40a9-a444-e52f9e8829c4&amp;img_etag=%227d272524587a1edf3ee7ccecb9175c09%22&amp;size=1024)](https://spark.adobe.com/page/S3DKkmgXhImK0/images/6daa2a3c-3421-4425-8d84-8ff6bf138b6a.png?asset_id=54f589d7-3120-40a9-a444-e52f9e8829c4&amp;img_etag=%227d272524587a1edf3ee7ccecb9175c09%22&amp;size=1024)资料图片：香港政府
 
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+该决议称，欧洲议会议员感到”遗憾”的是，中欧投资谈判没有被利用（抓住）”作为旨在维护香港高度自治以及其基本权利和自由的杠杆工具”。
 
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+该决议表示：”欧盟急于跟中共国签署协议，却不对正在（例如在香港、新疆和西藏）发生的严重侵犯人权行为采取具体行动，这样有可能损害欧盟作为全球人权行动者的信誉。”
 
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+中共国被指控严重侵犯新疆维吾尔族的人权。
 
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+[!\[\]()!\[\](https://spark.adobe.com/page/S3DKkmgXhImK0/images/fbbbf9c5-ebd8-455b-b7e3-b347aa4e0a7d.png?asset_id=0ef7118f-353a-480b-aafc-8352eaf9819e&amp;img_etag=%222829833a55fb8d7ef898644a39ff225e%22&amp;size=2560)](https://spark.adobe.com/page/S3DKkmgXhImK0/images/fbbbf9c5-ebd8-455b-b7e3-b347aa4e0a7d.png?asset_id=0ef7118f-353a-480b-aafc-8352eaf9819e&amp;img_etag=%222829833a55fb8d7ef898644a39ff225e%22&amp;size=1024)新疆司法行政管理局发布到其微信账号上的资料照片。资料图片：新疆司法行政管理局
 
+该决议称，议会将”仔细审查”这项协议，并将在就协议投票时，把中共国的人权状况纳入考量。
+
+于2014年开始就这项协议进行谈判的欧盟委员会（EU commission）表示，这有助于纠正布鲁塞尔和北京对待投资者的方式以及允许投资者进入的渠道方面长期存在的不平衡。
+
+它还表示，中共国同意通过该协议——即所谓的《全面投资协定》(CAI)——努力争取批准国际劳工组织（ILO）针对强迫劳动制定的公约。
+
+**🔗[原文链接](https://hongkongfp.com/2021/01/22/eu-parliament-condemns-china-deal-over-hong-kong-crackdown-urges-sanctions/)**
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+[!\[\]()!\[\](https://spark.adobe.com/page/S3DKkmgXhImK0/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/S3DKkmgXhImK0/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

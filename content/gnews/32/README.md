@@ -1,86 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读中共新反腐运动，拜登将延续对以外交策略，及中共“种族灭绝罪”开始发酵
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/803918/)
+## 中共国单日13架次军机入侵台湾防空识别区
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/804147/)
 
-直播视频：
+*新闻来源：《零对冲(Zerohedge)》| 作者：Tyler Durden | 发布时间：2021年1月23日*
 
+*翻译/简评：MikeHua | 校对/审核：万人往 | Page：Daoiii*
 
+[!\[\]()!\[\](https://spark.adobe.com/page/EZPC8nwGoOMkc/images/c77d94bf-c21a-4c4e-b8e3-bf4426823440.jpg?asset_id=a881b2cc-8cf0-4a6d-b4f6-8b55f339cc25&amp;img_etag=%22465e18f4d173359b443de4847fb31cf0%22&amp;size=2560)](https://spark.adobe.com/page/EZPC8nwGoOMkc/images/c77d94bf-c21a-4c4e-b8e3-bf4426823440.jpg?asset_id=a881b2cc-8cf0-4a6d-b4f6-8b55f339cc25&amp;img_etag=%22465e18f4d173359b443de4847fb31cf0%22&amp;size=1024)
 
-《路德时评》2021年1月24日早间节目主要内容：
+***简评：***
 
-一、党内新反腐运动——权力大扫荡
+**中共派轰炸机和战斗机入侵台湾的行动是非常明显的军事挑衅行为。周六，中共派遣13架次战机入侵台湾防空识别区，很明显是希望在美国新政府交接这一段时期对台入侵，达成共产党所谓的统一大业。总加速师希望通过这次行动在党内树威立信，以抵消美国给中共定义种族灭绝对中共带来的影响。**
 
-新华网1月24日发表题为《全面从严治党，习近平再作部署》[1]，文中说：1月22日，习近平在中国共产党第十九届中央纪律检查委员会第五次全体会议上发表重要讲话。讲话中，习近平总结了过去一年全面从严治党取得的重大成果，深刻阐述了全面从严治党的新形势新任务，对推进全面从严治党向纵深发展提出新要求、作出新部署。
+**中共近期党内外的压力剧增，党内四方势力大战，美国新一任政府也没有做出亲共的姿态。拜登政府上台之后，没有将对中共致命的制裁撤回，只是撤回川普禁止中共参与电网建设的禁令。这相比制裁三桶油、制裁军方企业和种族灭绝的定义来说，并没有太大影响。郭先生曾经说过，拜登上台也一样灭共，最终是以共灭共，美国只是帮衬。这次中共的内斗导致将压力输出到台湾，加上中共病毒在全世界的破坏引来世界各国的追责和爆料革命在中间的作用，共产党是一定完了，只是时间和方式。**
 
-除了新华网，求是网、学习网、人民网、西藏网、中国新闻网、解放军报、中纪委官网等全面报道党内将开展新反腐运动。
+***原文翻译：***
 
-路德社评论：
+# **台湾报告称，中共国空军一天内入侵了13次**
 
-1、习此次直接动用国家机器全网宣传新反腐运动，甚至覆盖边远地区，此次反腐运动由习亲自牵头，规模远超2013年王岐山牵头的反腐运动，此次以政治为主从严治党，习计划通过反腐运动彻底清理军队和政府中反对势力，这将加剧党内斗争激烈程度，其他派系也下决心要决一死战；
+在川普政府任期的最后几个月内，中共国解放军在台湾附近的军演日益增多，这是为华盛顿支持台湾而采取的针锋相对的升级行动的一部分。
 
-2、在毛时代，只要高层被抓捕，他的势力就会被严重削弱，毛身边还有周恩来和其他几位将军的鼎力支持，但现在情况与此前大不相同，江派、胡派和王派不仅有雄厚的资金实力，还在世界各地和党内安插大量的党羽，习对此并不完全知晓，同时习的国际地位相对较低，可使用的兵力也非常有限；
+近来中共战机入侵了台湾主张拥有的领空，这是在争议地区进行的“武力展示”的一部分。但在周六，仅仅在拜登总统进入白宫几天后，中共军方进行了迄今为止规模最大的一次飞行任务。
 
-3、习在2013年通过王岐山在党内展开大规模反腐运动，当时党内腐败非常严重，不得民心，胡温对反腐行动也表示支持，习王利用反腐运动清除了党内大量敌对势力，巩固了自己的政权，习在2021年再次发动反腐运动，这无疑是对他此前反腐运动的否定，也可以看出拜登的当选、119事件和党内形式让他开始疯狂；
+[!\[\]()!\[\](https://spark.adobe.com/page/EZPC8nwGoOMkc/images/55212d55-46bc-4d94-b1ef-b0b957ab0557.png?asset_id=18f6b0ed-bd54-4ddc-923f-d8663842a264&amp;img_etag=%22cca998e189341ed50e88ee616781555d%22&amp;size=2560)](https://spark.adobe.com/page/EZPC8nwGoOMkc/images/55212d55-46bc-4d94-b1ef-b0b957ab0557.png?asset_id=18f6b0ed-bd54-4ddc-923f-d8663842a264&amp;img_etag=%22cca998e189341ed50e88ee616781555d%22&amp;size=1024)
 
-4、拜登当选成为中共党内斗争的导火索，但是真正的诱因就在党内本身，习原先计划等拜登当选总统后，利用硬盘致使拜登，但拜登总统上台后并未推翻彭佩奥对中共反人类罪的定性，虽然爆料革命承诺不对拜登总统进行人身攻击，但未来只要他继续与中共勾兑，爆料革命肯定会揭露和批评；
+根据地方媒体报道：“台湾方面在周六（1月23日）记录下了至少13次中共军方战机对台防空识别区的入侵，这是今年迄今为止一天内发生的此类事件最多的一次。”路透社补充道：“周六，8架中共轰炸机和4架战斗机进入了台湾防空识别区的西南角，台国防部称台湾空军部署了导弹‘监控’这次入侵。”另外，中共国一架运-8反潜机也入侵了台湾防空识别区。
 
-5、文贵先生在直播中也说，拜登总统上任后第一个就想灭中共，川普总统在位时已将“板砖”准备好，只要拜登总统采取实际行动灭共，他就能名垂青史；
+据报道，台湾紧急出动美国提供的战机“驱离”中共的战机群。
 
-6、现在所有党内高层都在关注爆料革命，爆料的有关习健康的信息对习影响巨大，习作为当权者已经恐惧，这就是他奔溃的起点，现在党内形式千钧一发，以共灭共的大时代全面开始。
+“已经安排了空中警戒，发出了无线电警报，并部署了防空导弹系统来监视这次活动。”台湾军方的一份声明中称。
 
-二、拜登政府将延续川普对以色列政策
+[!\[\]()!\[\](https://spark.adobe.com/page/EZPC8nwGoOMkc/images/4759e951-8c7f-48d3-9644-e7ae1d472627.png?asset_id=67d2850a-cd31-4f3d-a0ac-be8d3c8219d3&amp;img_etag=%221f26adb97943f5fe25aba62363e93d63%22&amp;size=2560)](https://spark.adobe.com/page/EZPC8nwGoOMkc/images/4759e951-8c7f-48d3-9644-e7ae1d472627.png?asset_id=67d2850a-cd31-4f3d-a0ac-be8d3c8219d3&amp;img_etag=%221f26adb97943f5fe25aba62363e93d63%22&amp;size=1024)
 
-Zerohedge新闻网1月24日报道[2]：拜登将美国大使馆留在耶路撒冷，不太可能扭转川普的以色列政策。在本周参议院确认听证会上，拜登（Joe Biden）政府的国务卿被提名人表示，新政府将把美国驻以色列大使馆保留在耶路撒冷。
+中共解放军在台湾附近飞跃争议领空现在几乎是日常活动，但正如路透社指出的那样：
 
+但是他们通常只有一、两架侦察机。
 
+这次许多战斗机出现执行任务——台湾称有8架可搭载核武器的H-6K轰炸机和4架J-16战斗机——是不寻常的。
 
-> Biden Will Keep US Embassy In Jerusalem, Unlikely To Reverse Trump's Israel Policies [https://t.co/s7iKPTTulf](https://t.co/s7iKPTTulf)
-> — zerohedge (@zerohedge) [January 24, 2021](https://twitter.com/zerohedge/status/1353183391978500098?ref_src=twsrc%5Etfw)
+[!\[\]()!\[\](https://spark.adobe.com/page/EZPC8nwGoOMkc/images/0b9675c4-faac-453e-83ff-988923500a88.png?asset_id=6297bcde-ec6d-49c9-8e0e-1324a8b57ec0&amp;img_etag=%22a7b7875cbf4b0269d2eafb493f71a6c6%22&amp;size=2785)](https://spark.adobe.com/page/EZPC8nwGoOMkc/images/0b9675c4-faac-453e-83ff-988923500a88.png?asset_id=6297bcde-ec6d-49c9-8e0e-1324a8b57ec0&amp;img_etag=%22a7b7875cbf4b0269d2eafb493f71a6c6%22&amp;size=1024)
 
+这次事件据说发生在西沙群岛争议水域附近。
 
+新的白宫国家安全委员会本周宣誓称，美国对台湾的承诺“雷打不动”。但是拜登是否能保持川普一样活跃的对台军售还有待观察，川普对台军售在2020年下半年达到历史顶峰。
 
-路德社评论：
+**🔗[原文链接](https://www.zerohedge.com/geopolitical/taiwan-says-chinese-air-force-just-made-unusually-large-incursion-8-bombers?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)**
 
-美国将驻以色列大使馆继续保留在耶路撒冷有非常重要的意义，耶路撒冷是基督教和伊斯兰教的圣城，是各宗教势力必争之地，拜登政府此举也是对川普政府期间彭佩奥国务卿取得的外交政绩的认可，拜登政府也不太可能扭转美国对华政策。
-
-三、美国定义中共种族灭绝罪开始发酵
-
-「美国国际宗教自由委员会」委员鲍尔接受「美国思想领袖」采访时说[3]：
-
-中共被认定犯下「种族灭绝」罪，这与当年纳粹对犹太人的大屠杀等同！而且美国认定后，全世界的国家和组织都会跟进承认这一认定。
-
-
-
-> 「美国国际宗教自由委员会」委员鲍尔接受「美国思想领袖」采访时说：
-> 中共被认定犯下「种族灭绝」罪，这与当年纳粹对犹太人的大屠杀等同！而且美国认定后，全世界的国家和组织都会跟进承认这一认定
-> 
-> 🆕囍站新号 [pic.twitter.com/1X6Rdfty25](https://t.co/1X6Rdfty25)
-> — 雙囍展 (@Global\_XiZhan) [January 24, 2021](https://twitter.com/Global_XiZhan/status/1353278320897531910?ref_src=twsrc%5Etfw)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
 
 
+编辑：[【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/EZPC8nwGoOMkc/)
 
-路德社评论：
-
-1、结合拜登政府将延续川普政府对以色列政策，全世界犹太势力也将跟进美国对中共反人类罪和种族大屠杀罪的认定，由于历史原因，犹太人对反人类罪和种族大屠杀罪恨之入骨，犹太势力也是美国沼泽地力量中一个极为重要的组成部分，这些犹太势力必会与中共划清界限；
-
-2、中共国当时影响全世界的第一站就是影响犹太人，因为中华民国在二战时接纳了大量流亡犹太人，犹太民族对中国抱有感恩之心，中共也借此与以色列建立良好的关系，并获得以色列大量帮助；
-
-3、美国将大使馆建立在耶路撒冷就意味着此城被真正控制住了，这为基督教文明回归耶路撒冷迈出重要的一步，川普政府当时推动这件事受到民主党的强烈反对，这件事对美国来说比灭共还重要；
-
-4、犹太人在国际上以经济利益为导向，拜登作为政客以政治利益为导向，川普政府已经彻底扭转了美国对华政策，美国民意已屈从于灭共，拜登为在政坛上留下政绩就必须灭共，犹太人曾因唯利是图差点被希特勒灭族，他们绝对不会再在中共上重蹈覆辙。
-
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
-
-参考文章：
-
-[1][http://www.xinhuanet.com/politics/xxjxs/2021-01/24/c\_1127017485.htm](http://www.xinhuanet.com/politics/xxjxs/2021-01/24/c_1127017485.htm)
-
-[2][https://twitter.com/zerohedge/status/1353183391978500098](https://twitter.com/zerohedge/status/1353183391978500098)
-
-[3][https://twitter.com/Global\_XiZhan/status/1353278320897531910](https://twitter.com/Global_XiZhan/status/1353278320897531910)
-
-文章撰写：【重生】  编辑：【香柏树】
+[!\[\]()!\[\](https://spark.adobe.com/page/EZPC8nwGoOMkc/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/EZPC8nwGoOMkc/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 +1
