@@ -1,51 +1,86 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共要打台湾，而整个世界在计算中共病毒造成的损失
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/803755/)
+## 《路德时评》重磅解读中共新反腐运动，拜登将延续对以外交策略，及中共“种族灭绝罪”开始发酵
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/803918/)
 
-新闻简述：2021年1月23日郭文贵先生在去开会的途中发布Getter视频。他说将要和一些人士讨论中共病毒对美国和世界经济的危害，并指出中共对台湾的企图只能使它死的更快。
-视频来源：[https://gtv.org/getter/600c8165c3245d7c59e6a59a](https://gtv.org/getter/600c8165c3245d7c59e6a59a) 
-**中英文对照全文**
+直播视频：
 
-Hello, dear honorable fellow fighters! Look at the car. What car is this, fellow fighters? This is the third one in the whole U.S. and the second in East New York. It is a specially customized Maybach SUV. I am going to attend a meeting and see some people. What do I do?
 
-尊敬的战友们好！看这啥车？战友们？看这啥车？这是整个美国第三部，整个纽约东部第二部，特别订制迈巴赫SUV，迈巴赫SUV。七哥要去开会去啊，见点人啊，咋弄啊？
 
-Ah, it is so interesting … now, the CCP is going to attack Taiwan, whereas the whole world, even the Biden administration, is researching on the damage this deadly [CCP] virus will cause to the U.S. and the world, and to the economy next. So, you see, brothers and sisters, who can avoid talking about the virus and the virus’s threat to the U.S. economy, the safety of the U.S., and the safety of the world?
+《路德时评》2021年1月24日早间节目主要内容：
 
-哎呀，真好玩，你说这现在共产党要打台湾，结果现在全世界在研究，就连拜登政府都在研究，下一步病毒，致命病毒对美国、对世界的危害，对经济的危害。所以说你看看，战友们，谁能回避到病毒？病毒对美国的经济和对美国人身的安全和世界的人身安全。
+一、党内新反腐运动——权力大扫荡
 
-Just now, two Americans told me, “Miles, we want to see you right away. We want to discuss about the profound impact of the [CCP] virus on the U.S. economy, U.S. technology, and national defense.” This is because many high-end talents and technical talents have insurance, which is very expensive. So, many insurance companies don’t want to sell high-level life insurance to these people. The more high-end you are, the more expensive the insurance will be. Hence, they don’t want to sell insurance to them because the risk is higher. After Larry King’s death, the insurance companies become more afraid. Wow, Larry king, how much money do I need to pay to you? Think about it. If it is the virus [causing the death], in particular to these scientists, all kinds of military scientists and important scientists, what would you do? Right?
+新华网1月24日发表题为《全面从严治党，习近平再作部署》[1]，文中说：1月22日，习近平在中国共产党第十九届中央纪律检查委员会第五次全体会议上发表重要讲话。讲话中，习近平总结了过去一年全面从严治党取得的重大成果，深刻阐述了全面从严治党的新形势新任务，对推进全面从严治党向纵深发展提出新要求、作出新部署。
 
-刚才两位美国人跟我说：Miles，我们要马上跟你见面，我们要讨论一下病毒对美国经济和美国技术领域、国防领域的深远影响。因为很多的高端人才和技术人才，很多都是买的保险的，这个保险的价值很贵呀，那么现在很多保险公司都不想给这些人卖这些高级的这种人身保险，越高端人才你越贵，他就不想卖给你，因为风险越大。这个 Larry King 死了以后，保险公司更害怕了，哇噻，你 Larry King 这钱，我得赔你多少钱？你想想如果是这病毒，特别这些科学家，各种军事，各种重要的科学家，你咋办呢？对不对？
+除了新华网，求是网、学习网、人民网、西藏网、中国新闻网、解放军报、中纪委官网等全面报道党内将开展新反腐运动。
 
-So, all governments must face the threats of the CCP virus to all mankind, its attack to the economy, and its strike to the entire social structure. Therefore, brothers and sisters, please remember my words: Early joy will lead to early decline, and early sadness will result in early grief.
+路德社评论：
 
-所以说共产党的病毒对全人类的威胁和经济的打击，和对整个社会结构的打击，任何政府都不能不面对。所以兄弟姐妹们，牢记七哥说的话：早乐必早衰，早悲必早哀。
+1、习此次直接动用国家机器全网宣传新反腐运动，甚至覆盖边远地区，此次反腐运动由习亲自牵头，规模远超2013年王岐山牵头的反腐运动，此次以政治为主从严治党，习计划通过反腐运动彻底清理军队和政府中反对势力，这将加剧党内斗争激烈程度，其他派系也下决心要决一死战；
 
-Has everyone seen the opportunity? The CCP is now going to attack Taiwan. You [the CCP], try attacking Taiwan, try it. Yet, if it does not attack Taiwan until later, it will be attacked by its own insiders. The CCP hopes to live a few days longer by attacking Taiwan; otherwise, it will live a few days shorter. Anyhow, it will not stay alive for long.
+2、在毛时代，只要高层被抓捕，他的势力就会被严重削弱，毛身边还有周恩来和其他几位将军的鼎力支持，但现在情况与此前大不相同，江派、胡派和王派不仅有雄厚的资金实力，还在世界各地和党内安插大量的党羽，习对此并不完全知晓，同时习的国际地位相对较低，可使用的兵力也非常有限；
 
-大家看到了机会了吗？现在要打台湾。你打台湾试试，你打台湾试试。但是如果他晚一点不打台湾，他内部就把他给打了。打台湾他想多活几天，不打台湾少活几天，反正他是活不了了。
+3、习在2013年通过王岐山在党内展开大规模反腐运动，当时党内腐败非常严重，不得民心，胡温对反腐行动也表示支持，习王利用反腐运动清除了党内大量敌对势力，巩固了自己的政权，习在2021年再次发动反腐运动，这无疑是对他此前反腐运动的否定，也可以看出拜登的当选、119事件和党内形式让他开始疯狂；
 
-There is another thing that everyone needs to take a look at: the so-called “the CCP has won” these days. How about its economic status? Everyone, take a close look at its economy. Take a close look, brothers and sisters. This is something … nobody can change the fact that the CCP is going to perish or this great era. I won’t say anything more. I will broadcast again when I can find time. Haha! Thanks!
+4、拜登当选成为中共党内斗争的导火索，但是真正的诱因就在党内本身，习原先计划等拜登当选总统后，利用硬盘致使拜登，但拜登总统上台后并未推翻彭佩奥对中共反人类罪的定性，虽然爆料革命承诺不对拜登总统进行人身攻击，但未来只要他继续与中共勾兑，爆料革命肯定会揭露和批评；
 
-还有一个，大家要看一看。这些天所谓共产党赢了，但是经济情况啥样？大家仔细看看这经济情况，仔细看一看。兄弟姐妹们，这就是一个无法，任何人都无法改变的共产党灭亡的事实，还有这个大时代。啥都不说了，抽时间再直播。哈哈哈，谢谢！谢谢！
+5、文贵先生在直播中也说，拜登总统上任后第一个就想灭中共，川普总统在位时已将“板砖”准备好，只要拜登总统采取实际行动灭共，他就能名垂青史；
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/799944/](https://gnews.org/zh-hans/799944/)
+6、现在所有党内高层都在关注爆料革命，爆料的有关习健康的信息对习影响巨大，习作为当权者已经恐惧，这就是他奔溃的起点，现在党内形式千钧一发，以共灭共的大时代全面开始。
 
-翻译：【Cyndi】校对：【Isaiah4031】字幕：【Pamila（文明）】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+二、拜登政府将延续川普对以色列政策
 
-喜马拉雅玫瑰园小队出品
+Zerohedge新闻网1月24日报道[2]：拜登将美国大使馆留在耶路撒冷，不太可能扭转川普的以色列政策。在本周参议院确认听证会上，拜登（Joe Biden）政府的国务卿被提名人表示，新政府将把美国驻以色列大使馆保留在耶路撒冷。
 
-敬请关注:
 
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
 
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+> Biden Will Keep US Embassy In Jerusalem, Unlikely To Reverse Trump's Israel Policies [https://t.co/s7iKPTTulf](https://t.co/s7iKPTTulf)
+> — zerohedge (@zerohedge) [January 24, 2021](https://twitter.com/zerohedge/status/1353183391978500098?ref_src=twsrc%5Etfw)
 
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
-0
+路德社评论：
+
+美国将驻以色列大使馆继续保留在耶路撒冷有非常重要的意义，耶路撒冷是基督教和伊斯兰教的圣城，是各宗教势力必争之地，拜登政府此举也是对川普政府期间彭佩奥国务卿取得的外交政绩的认可，拜登政府也不太可能扭转美国对华政策。
+
+三、美国定义中共种族灭绝罪开始发酵
+
+「美国国际宗教自由委员会」委员鲍尔接受「美国思想领袖」采访时说[3]：
+
+中共被认定犯下「种族灭绝」罪，这与当年纳粹对犹太人的大屠杀等同！而且美国认定后，全世界的国家和组织都会跟进承认这一认定。
+
+
+
+> 「美国国际宗教自由委员会」委员鲍尔接受「美国思想领袖」采访时说：
+> 中共被认定犯下「种族灭绝」罪，这与当年纳粹对犹太人的大屠杀等同！而且美国认定后，全世界的国家和组织都会跟进承认这一认定
+> 
+> 🆕囍站新号 [pic.twitter.com/1X6Rdfty25](https://t.co/1X6Rdfty25)
+> — 雙囍展 (@Global\_XiZhan) [January 24, 2021](https://twitter.com/Global_XiZhan/status/1353278320897531910?ref_src=twsrc%5Etfw)
+
+
+
+路德社评论：
+
+1、结合拜登政府将延续川普政府对以色列政策，全世界犹太势力也将跟进美国对中共反人类罪和种族大屠杀罪的认定，由于历史原因，犹太人对反人类罪和种族大屠杀罪恨之入骨，犹太势力也是美国沼泽地力量中一个极为重要的组成部分，这些犹太势力必会与中共划清界限；
+
+2、中共国当时影响全世界的第一站就是影响犹太人，因为中华民国在二战时接纳了大量流亡犹太人，犹太民族对中国抱有感恩之心，中共也借此与以色列建立良好的关系，并获得以色列大量帮助；
+
+3、美国将大使馆建立在耶路撒冷就意味着此城被真正控制住了，这为基督教文明回归耶路撒冷迈出重要的一步，川普政府当时推动这件事受到民主党的强烈反对，这件事对美国来说比灭共还重要；
+
+4、犹太人在国际上以经济利益为导向，拜登作为政客以政治利益为导向，川普政府已经彻底扭转了美国对华政策，美国民意已屈从于灭共，拜登为在政坛上留下政绩就必须灭共，犹太人曾因唯利是图差点被希特勒灭族，他们绝对不会再在中共上重蹈覆辙。
+
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+
+参考文章：
+
+[1][http://www.xinhuanet.com/politics/xxjxs/2021-01/24/c\_1127017485.htm](http://www.xinhuanet.com/politics/xxjxs/2021-01/24/c_1127017485.htm)
+
+[2][https://twitter.com/zerohedge/status/1353183391978500098](https://twitter.com/zerohedge/status/1353183391978500098)
+
+[3][https://twitter.com/Global\_XiZhan/status/1353278320897531910](https://twitter.com/Global_XiZhan/status/1353278320897531910)
+
+文章撰写：【重生】  编辑：【香柏树】
+
++1
