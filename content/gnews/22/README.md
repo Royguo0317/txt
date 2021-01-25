@@ -1,49 +1,98 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新CCP病毒变种可能更致命
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/809690/)
+## 《路德时评》解读习开启“政治大扫荡”运动，及吉林通化因疫情断粮断药
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/809976/)
 
-编辑：喜马拉雅农场联盟新西兰奥克兰伊甸农场
-
-编者：喜马拉雅文白
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/image001-31.jpg)
-简评：
-
-早期证据表明，英国出现的CCP病毒变种不仅传播速度更快，可能更加致命。CCP病毒强变异的特点就预示着短期内消除它的可能性大大降低，随着传播速度更快、可能带来更高致死率病毒的出现，更多的人的生命受到威胁，涉及到对人类生命，精神健康和任何长期并发症造成难以量化的经济损失。新的变种似乎要增加30%左右的致命性，将再次带走数以万计的生命，重创面临崩溃的世界经济。
-
-原文翻译：
-
-ITV政治编辑罗伯特-佩斯顿周五在推特上表示，根据政府的科学咨询小组之一证据表明，上个月在英国发现的COVID-19变种可能会带来更高的致死风险，尽管数据有限。
-
-首相鲍里斯-约翰逊说：“早期证据表明，英国出现的冠状病毒变种可能更加致命。除了传播速度更快之外，现在似乎也有一些证据表明，新的变种–首先在伦敦和东南部发现的变种–可能与更高的死亡率有关。主要是这种新变异体的影响，这意味着NHS面临着非常大的压力。”
-
-虽然新变种的传染性更强，但英国首席卫生和科学官员迄今表示，没有证据表明它更致命或引起更严重的疾病。
-
-不过，佩斯顿表示，政府的呼吸道病毒威胁咨询小组(Nervtag)目前已经得出结论，它”可能比现有的病毒株更致命一些”。
-
-他援引帝国学院教授、Nervtag成员尼尔-弗格森的声明说。”英国的新变种增加了死亡风险，这是一个现实的可能性，但仍有相当大的不确定性。”
-
-覆盖Nervtag的英国卫生部没有人立即发表评论。
-
-Peston引用的声明列出了该变种的死亡风险增加了1.3倍，但也强调只有某些类型的测试可以明确患者感染了哪种病毒变种。
-
-Peston援引Ferguson的话说：”最大的警告是，我们只知道人们在大约8%的死亡病例中感染了哪种病毒。”Peston还列出了现有数据的进一步限制。
-
-政府的首席科学顾问帕特里克-瓦兰斯爵士告诉BBC，关于致死率的证据 “还不是很强”。
-
-他说：”我想强调的是，这些数字有很多不确定性，我们需要更多的工作来精确地掌握它，但这显然是一个关注，这有死亡率的增加，以及传播性的增加。”
-
-新的变种似乎要增加30%左右的致命性。例如，1000名60岁的人感染旧变种，其中10人可能会死亡。但在新变种下，这个数字会上升到13人左右。
+直播视频：
 
 
 
-[原文连结](https://www.newsmax.com/newsfront/covid-uk-variant-deadlier/2021/01/22/id/1006806/)
+《路德时评》2021年1月25日早间节目主要内容：
 
-【文章仅限作者个人观点】
+一、习“出席”达沃斯经济论坛
 
-审核校对：玫瑰天空
+北京时间1月25日最新报道[1]：习总加速师出席世界经济论坛“达沃斯议程”对话会并发表特别致辞。
 
-上传排版：糊糊文婴
+
+
+> 完整版有22分鐘 [https://t.co/pCAU80AtMp](https://t.co/pCAU80AtMp) [pic.twitter.com/oDu3gKA8Rq](https://t.co/oDu3gKA8Rq)
+> — Andy5 (@andy5\_123) [January 25, 2021](https://twitter.com/andy5_123/status/1353685163704651779?ref_src=twsrc%5Etfw)
+
+
+
+有战友将今天习发言的视频图片与22日新华社发布的照片进行对比，发现这两人明显不同。
+
+
+
+> 請問習天線寶寶
+> 你自己信這倆是同一個人嗎？🤣🤣🤣
+> 兩天不見，胖了不少啊
+> 該不會前幾天出來的叫「習總加速師2號」
+> 今天出來的叫「慶豐帝2號」吧？[@ding\_gang02](https://twitter.com/ding_gang02?ref_src=twsrc%5Etfw) [@aliah0031](https://twitter.com/aliah0031?ref_src=twsrc%5Etfw) [@maryann\_3040](https://twitter.com/maryann_3040?ref_src=twsrc%5Etfw) [@BoDiplo](https://twitter.com/BoDiplo?ref_src=twsrc%5Etfw) [@Guan\_PhD](https://twitter.com/Guan_PhD?ref_src=twsrc%5Etfw) [pic.twitter.com/47MFFQ7Csx](https://t.co/47MFFQ7Csx)
+> — Andy5 (@andy5\_123) [January 25, 2021](https://twitter.com/andy5_123/status/1353686168571834369?ref_src=twsrc%5Etfw)
+
+
+
+路德社评论：
+
+此次视频为习录播视频，达沃斯论坛至少都提前一年策划和预约，无法证明就是习今天录制的视频，况且视频中未出现习与其他参会者打招呼的画面，据可靠消息，习只要连续说话几分钟就会出现状况，所以习现在绝对不可能露面。
+
+二、吉林通化因疫情断粮断药
+
+新华社北京1月24日报道[2]，新华每日电讯微信公号刊发题为《吉林通化部分地方“断粮断药”：物资配送承诺别落而不实 》的评论。吉林通化市东昌区实行按区管控后，有市民反映政府通告的“必需品免费配送”政策没有及时落实，部分家庭出现“断粮断药”危机，有的家庭“一个苹果俩孩子吃3天”。24日，吉林通化市副市长就生活物资配送不及时向市民道歉，称正在积极采取措施，尽快解决相关问题。
+
+路德社评论：
+
+1、吉林通化因疫情全面封锁导致民众粮食紧缺，甚至出现老人因粮食匮乏自杀和因买不到粮食杀人的事件，自从疫情爆发以来，这种事以发生数起；
+
+2、中共国至今总感染人数才八万多，美国确诊人数已接近三千万也没有出现药品和粮食断供的局面，由此可以看出，中共确诊人数至少上百万；
+
+3、只要吉林通化的战友听了路德社的劝告提前屯粮，就能避免此次人道危机，甚至还能帮助周边邻舍，听信爆料革命必定能保命保财；
+
+4、中共国经历过吉林通化断粮断药事件后绝对会认真总结经验，更加严格地管控人民言论，全面封锁所有消息。
+
+三、习“政治大扫荡”运动
+
+中共铺天盖地的“文革”大字报开始了，昨天9连发，今天15连发，果然中共在内斗上比怼任何外国政要都积极，中国新闻报1篇，新华社又来3篇。
+
+
+
+> CCP鋪天蓋地的大字報開始了
+> 昨天9連發，今天15連發，果然CCP在內鬥上比懟任何外國政要都積極。
+> 中國新聞報1篇
+> 新華社又來3篇
+> 下文繼續[@ding\_gang02](https://twitter.com/ding_gang02?ref_src=twsrc%5Etfw) [@maryann\_3040](https://twitter.com/maryann_3040?ref_src=twsrc%5Etfw) [@aliah0031](https://twitter.com/aliah0031?ref_src=twsrc%5Etfw) [@BoDiplo](https://twitter.com/BoDiplo?ref_src=twsrc%5Etfw) [@Guan\_PhD](https://twitter.com/Guan_PhD?ref_src=twsrc%5Etfw) [https://t.co/dwkm4582IB](https://t.co/dwkm4582IB) [pic.twitter.com/8ScBhMND5N](https://t.co/8ScBhMND5N)
+> — Andy5 (@andy5\_123) [January 25, 2021](https://twitter.com/andy5_123/status/1353675631578411008?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> 今天CCP一改往常「盤勢一塊」地懟美國
+> 反而把8連發（事實上只少9連發）的槍口對內，頗有一番毛臘肉的「炮打司令部，我的一張大字報」的感覺
+> 新華社3篇、日人民報一篇，都是吹捧「全面從嚴治黨」
+> 接下↓[@ding\_gang02](https://twitter.com/ding_gang02?ref_src=twsrc%5Etfw) [@maryann\_3040](https://twitter.com/maryann_3040?ref_src=twsrc%5Etfw) [@aliah0031](https://twitter.com/aliah0031?ref_src=twsrc%5Etfw) [@BoDiplo](https://twitter.com/BoDiplo?ref_src=twsrc%5Etfw) [@Guan\_PhD](https://twitter.com/Guan_PhD?ref_src=twsrc%5Etfw) [pic.twitter.com/WZLGzKYfuI](https://t.co/WZLGzKYfuI)
+> — Andy5 (@andy5\_123) [January 24, 2021](https://twitter.com/andy5_123/status/1353316095902371840?ref_src=twsrc%5Etfw)
+
+
+
+路德社评论：
+
+1、120之后，中共党内势力的平衡被彻底打破，习发起的“新反腐运动”就是一场残酷的政治大扫荡，中共只要谈及政治正确就相当于毛时代的政治斗争，邓小平好不容易改革过来，现在又回到毛时代的政治的斗争；
+
+2、从新华社发文来看，习不仅要对军队下狠手，还将对中纪委下狠手，这意味着他将对王派势力开炮，中共党内又一次血雨腥风即将开始，中共党内四股势力都掏出自己的杀手锏，习利用军队搞政治运动为杀手锏，江以隐藏的海内外组织力量和资金力量为杀手锏，胡利用手上残余的团派势力，王则以掌控的经济力量和反腐了力量为杀手锏进行互相厮杀；
+
+3、这再次验证爆料革命提供的重要情报，以共灭共的时代正式来临。
+
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+
+参考文章：
+
+[1][https://twitter.com/andy5\_123/status/1353685163704651779](https://twitter.com/andy5_123/status/1353685163704651779)
+
+[2][https://www.163.com/dy/article/G14K92JE05346RC6.html](https://www.163.com/dy/article/G14K92JE05346RC6.html)
+
+文章撰写：【重生】  编辑：【香柏树】
 
 0
