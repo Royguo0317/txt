@@ -1,16 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年1月24日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/805465/)
+## 2021年1月24日 文贵先生盖特 6
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/805535/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-【疫情快訊】上海疫情升级：上海2所医院已实施“封院”措施 [Pandemic Express]The epidemic in Shanghai is expanding: Jan 21st, 2 local hospitals in Shanghai have implemented lockdown measures
-
-
-
-[【2021年1月24日】文贵先生盖特原文](https://gtv.org/getter/600d60c6c3245d7c59e73a7f)
+20211年1月24日：全人类只有一个国家的政府．这样的残酷连畜生都不如的……西方的猪狗都不如的待遇的对待自己的老百姓！只有中国共产党能干的出来……还干了70年！这不仅仅是种族大屠杀，这是绝对的反人类罪，任何人．再爱所谓共产党国！所谓听党的话，一切都是党的这样的人……根本不需要。拯救不了的人……说明是自己的业障太深，也不可挽救了！14亿中国人真的到了站起来的时候了……任何一个不国民都可以通过国家的危机……和国家的灾难自然灾害才能体验出一个国家的政府执政能力……是好是坏．C C P的病毒充分的验证了共产党是个流氓黑社会性质的政府反人类的政府！
+![]()![](https://gnews.org/wp-content/uploads/2021/01/photo_2021-01-25_00-42-43-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/photo_2021-01-25_00-42-41-12.jpg)
+[【2021年1月24日】文贵先生盖特原文](https://gtv.org/getter/600df9d6c3245d7c59e7919e)
 
 **喜联盟Gnews编辑部**
 

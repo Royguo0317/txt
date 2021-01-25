@@ -1,26 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武汉封城一周年，重回病毒源头：21所实验室评论文章暗示实验室来源
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/800979/)
+## 【每日快讯】24/01/2021:啥都可以不做，这辈子必须灭共！
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/805698/)
 
-作者：Stephen(文文)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/2401.jpg)
-一年前的今天，2020年1月23日，史无前例的武汉封城，让世人震惊武汉疫情的真实严重程度。而事情已经过去一年，关于病毒来源真相却始终被掩盖。中共炮制各种动物来源，同WHO及一众其控制的科学家一起欺骗全世界。
+**制作:Cantonese工作室**
+播报：鱼摆摆（文驋）
+<br>资料收集：郁金香 蚁蚁文依 Annie喜马拉雅 鱼摆摆
+<br>视频制作：Shawn
+<br>海报制作：侬民、文绉绉
+<br>上传: Shawn
+**摘要:**
 
-2020年9月，由来自美国、新西兰、意大利等多国的21个实验室的科学家以letter to the editor形式的评论文章《Questions concerning the proximal origin of SARS-CoV-2》，直接挑战病毒自然来源说，为病毒实验室来源打开了一扇门。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/2402.jpg)
-这篇评论文章中主要从以下两个方面来说明SARS-CoV-2非自然来源的疑点：
-
-1. 自然进化能感染人的病毒，通常都符合“峡谷假说”，即病毒表面蛋白应有凹陷区/空洞，用来隐藏糖结合位点，因为暴露的糖基容易被抗体识别，从而被免疫系统清除。但SARS-CoV-2的S蛋白表面光滑，不能隐藏糖结合位点，不符合病毒的自然进化规律。所以SARS-CoV-2不应是自然进化而来，换言之，应该是人工实验室产物，然后直接感染人类，不存在进化过程。
-
-2. SARS-CoV-2的S1/S2蛋白结合处有特异性的弗林酶切位点，这是所有beta类冠状病毒都不具备的。SARS-CoV-2的这一酶切位点只有通过重组获得，也就是说这一位置是重组热点。但是，在目前所有临床分离出来的SARS-CoV-2病毒中，都没有发现任何的S1/S2结合处重组现象。这与此位点为重组热点的前提相矛盾，可见S1/S2蛋白结合处特异性的弗林酶切位点并非自然重组而来。也就是说通过实验室人工重组的可能性极大。
-
-[援引原文](https://onlinelibrary.wiley.com/doi/full/10.1002/jmv.26478)
-
-【文章仅代表作者个人观点】
-
-审核校对：玫瑰天空
-上传排版：糖果儿
-
-+1
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210124-zhTW-01-1.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210124-zhTW-02.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210124-zhTW-03-1.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210124-zhTW-04-1.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210124-zhTW-05-2.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210124-zhTW-06.jpg)
+7.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210124-zhTW-07-1.jpg)
+8.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210124-zhTW-08-1.jpg)
+9.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210124-zhTW-09-2.jpg)
+0
