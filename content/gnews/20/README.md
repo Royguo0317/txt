@@ -1,44 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统宣布“全国人类生命神圣日”意味为何？
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/809360/)
+## 海航7000亿债务危机未来如何处置？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/809624/)
 
-*作者：此心不变| 校对：Tang0426| 审核：海阔天空| Page：Cathy*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NSbxoUcBYa3Ua/images/9f072970-b05e-4029-b76a-97dda0836ae3.jpg?asset_id=0b9d6e6b-89a4-4b4c-986f-b60f2a392fff&amp;img_etag=%2234472f656dbab652a1ecc09db62541bd%22&amp;size=2560)](https://spark.adobe.com/page/NSbxoUcBYa3Ua/images/9f072970-b05e-4029-b76a-97dda0836ae3.jpg?asset_id=0b9d6e6b-89a4-4b4c-986f-b60f2a392fff&amp;img_etag=%2234472f656dbab652a1ecc09db62541bd%22&amp;size=1024)
-
-🔗[川普总统在1月18日签署行政命令，宣布2021年1月22日为 “全国人类生命神圣日”](https://www.thegatewaypundit.com/2021/01/president-trump-issues-executive-order-january-22-two-days-bidens-planned-inauguration-proclaiming-sanctity-life/)
-
-President Trump today issued another Executive Order – this one to proclaim January 22, 2021, as National Sanctity of Human Life Day. The unique thing about this EO is that it is after Joe Biden is expected to be sworn into the office of the Presidency on January 20th.
-
-川普总统今天又发布了一项行政命令–这一项行政命令宣布2021年1月22日为 “全国人类生命神圣日”。 这项行政命令的独特之处在于，它是在拜登预计将于1月20日宣誓就职总统办公室之后。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NSbxoUcBYa3Ua/images/c100b257-a020-49a6-acf3-a3b82c2c98f3.png?asset_id=9ab6d998-ddd2-4053-ae50-b7066764ab59&amp;img_etag=%22409ebab523e94baaa6006a9dc71fa32e%22&amp;size=4438)](https://spark.adobe.com/page/NSbxoUcBYa3Ua/images/c100b257-a020-49a6-acf3-a3b82c2c98f3.png?asset_id=9ab6d998-ddd2-4053-ae50-b7066764ab59&amp;img_etag=%22409ebab523e94baaa6006a9dc71fa32e%22&amp;size=1024)
-
-行政命令规定：
-
-每个人的生命都是送给世界的礼物，无论出生或未出生，年轻或年长，健康或生病，每个人都是按照上帝的圣洁形象所造。万能的造物主赋予每个人独特的天赋、美丽的梦想和伟大的目标。在国家人类生命神圣日，我们庆祝人类生存的奇迹，并重申我们的决心，以建立一种生命文化，让每个年龄段的人都受到保护、重视和珍惜。
-
-#### ***简评：***
-
-这项行政命令显示出川普真正的生命价值观。“万能的造物主赋予每个人独特的天赋”，意思是这个世界没有人是一模一样的，即便双胞胎，我们每一个人都是独一无二的。“万能的造物主还赋予每个人美丽的梦想和伟大的目标”，意思是我们每一个人来到这个世上都是带有使命的，我们爆料革命战友们目前的使命就是灭共大业。我们坚信川普总统必定会王者归来。川普总统的归来不是民主的归来，也不是法治的归来，而是生命灵性的归来。民主和法治不过是工具，只有生命的灵性才能带来人类生存的奇蹟。那麽什麽是生命的灵性？我们在川普总统身上看到的生命的灵性就是他的真实个性和自由意志。美国开国元勛之一班杰明•富兰克林(Benjamin Franklin)说：“Without freedom of thought, there can be no such thing as wisdom – and no such thing as public liberty without freedom of speech.” 意思是：没有思想自由，就没有智慧；没有言论自由，就没有公共自由。面对当今的状况，我补充一句：“Without freedom of thought and freedom of speech, there can be no truth.” 即没有思想自由和言论自由，就没有真相。这跟我们爆料革命所追求的“唯真不破”的价值观是相吻合的。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NSbxoUcBYa3Ua/images/202147e8-d153-41a7-9b49-d72c3037e995.png?asset_id=314a9fc1-ce08-407d-b2c9-4f6422ff9008&amp;img_etag=%22c900bd8e22477b032188c910818b9a86%22&amp;size=2560)](https://spark.adobe.com/page/NSbxoUcBYa3Ua/images/202147e8-d153-41a7-9b49-d72c3037e995.png?asset_id=314a9fc1-ce08-407d-b2c9-4f6422ff9008&amp;img_etag=%22c900bd8e22477b032188c910818b9a86%22&amp;size=1024)
-
-“在国家人类生命神圣日，我们庆祝人类生存的奇蹟”，但是现在这个奇蹟正在被共产主义和社会主义的思想所摧毁，所以川普总统要在这一任期内颁布这项行政命令，并跨越到下一个任期。
-
-美国过去生存的奇蹟是建立在自由的基础上。自由是美国《独立宣言》的灵魂，是美国的立国之本。民主和法治不过是用来维护自由的工具。现在川普总统發现，民主和法治这两个工具无效，要想让每个年龄段的人得到保护、重视和珍惜，还得靠生命文化的传承。那麽川普总统要建立一种什麽样的生命文化呢？即使每个人的生命都是神圣不可侵犯。而自由是神圣生命的基础。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NSbxoUcBYa3Ua/images/8d0cc052-abb0-459d-94b4-def7b3335c8f.jpg?asset_id=dcbc7c1c-6631-400c-8a72-37084b328c3a&amp;img_etag=%223f0d7a45e156c364a04f7679a791ea19%22&amp;size=2560)](https://spark.adobe.com/page/NSbxoUcBYa3Ua/images/8d0cc052-abb0-459d-94b4-def7b3335c8f.jpg?asset_id=dcbc7c1c-6631-400c-8a72-37084b328c3a&amp;img_etag=%223f0d7a45e156c364a04f7679a791ea19%22&amp;size=1024)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+- 编辑：Victor Torres
+- 作者：peacelv
 
 
-编辑：[【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/NSbxoUcBYa3Ua/)
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NSbxoUcBYa3Ua/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/NSbxoUcBYa3Ua/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+**西班牙2021年1月25日电/西喜社——**1月22日下午收盘后，海航集团官网和公众号的两份公告，将海航的风险化解工作推向了新的阶段。
+
+这份公告主要传递了几个信息：
+
+一、工作组进驻海航一年来，保持了海航日常运营的稳定。
+
+二、工作组通过一年的时间摸清了海航的底数，制定了风险化解方案，并基本取得了各方的认可，风险化解方案进入实施阶段，工作组的工作也阶段性告一段落。
+
+三、接下来海航集团的执行董事长顾刚和首席执行官任清华将退出海航集团董事会，工作组则继续做好海航的稳控管理。
+
+这份历时一年制定的风险化解方案，将在2月开始进入实质性实施阶段，海航的真实债务情况和债务处理方式也将正式浮出水面。
+
+让我们回顾一下过去三年多来海航在处理债务上的一些做法。
+
+实际上，2019年的海航集团也曾入驻过“风险化解联合工作组”，主要职责是帮助海航化解流动性危机，包括监管集团获得新增贷款的流向，以及监管集团不得挪用航空等封闭运营企业的资金等，但对海航集团的具体经营、资产处理和人事任命等没有决定权。
+
+也就是说，2019年海航集团出售的资产、旗下相关航司与地方政府的重组签约等，还都是由海航集团自己在主导。
+
+2020年2月29日，新成立的联合工作组进驻海航。这一由十多人组成的工作组，来自央行、银保监会、国开行等多个单位，组长由海南省直属最大的国有企业—海南省发展控股有限公司董事长顾刚担任，常务副组长由海南洋浦经济开发区管理委员会主任任清华担任。其他副组长则来自民航系统以及债权方的代表。
+
+顾刚和任清华还同时被聘任进入海航集团的董事会，分别担任公司的执行董事长和首席执行官，原海航集团的三名董事局成员出局。
+
+工作组进驻时，海航集团内部有高达几万亿的内部资金往来，之前每做一个并购，都有多层的结构设置，各种交叉持股，资金随意调拨。工作组用了几个月的时间，调动海航集团所有财务人员来对账，才把各种资金链条理清楚。
+
+同时，工作组还与中介机构一起，第一次完整画出了海航集团将近2300家企业的股权关系树状图，第一次把海航集团的资产负债情况摸清，相当于把王岐山的海航摸个透，**为以后的瓜分或者蚕食做好准备**。
+
+同时也有相关报道显示尽管海航处于风险化解之中，但是其并购交易动作亦未停止。
+
+2021年1月20日，海航基础公告称，拟向关联方收购德国海航机场集团有限公司100%股权和洋浦国兴游艇制造有限公司56.7%股权。公告显示，协议经生效后30日内，海航基础支付给洋浦游艇及德国海航机场集团相关股东60%股权转让款，金额共计3.9亿元。
+
+同日，上交所便向海航基础下达了问询函，要求其补充说明交易的付款方式和资金来源，以及是否会对公司资金周转造成压力。截至目前，海航基础尚未回复上述问询函。
+
+2020年12月18日，海航投资(000616，SZ)宣布欲耗资8.26亿元，一次性签下关联方四家瑕疵酒店15年的租约，拓展养老业务，受到投资者的广泛关注。
+
+2020年12月22日，深交所向海航投资下发关注函，要求说明在交易标的经营不佳、相关资产存在明显瑕疵的情况下，仍与关联方签订长期租赁合同的主要考虑，是否存在向关联方输送利益的情形，是否有利于维护上市公司和中小股东的合法权益。
+
+据媒体报道，去年12月份，美国私募基金公司已与海航集团旗下上市公司海航科技达成协议，收购海航科技持有的英迈国际（Ingram Micro Inc.）全部股权。海航科技也在上交所发布重大资产出售预案，确认出售英迈国际的消息，交易对价以59亿美元为基准计算。
+
+**海航下一步**
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-50.png)海航集团目前董事会成员，陈峰和其儿子在列
+
+对于海航集团目前的资产和债务情况，尚没有公开的披露。不过根据海航集团的发债报告，截至2019年上半年，海航集团已有7067.26亿债务待偿。**海航集团巨大的债务如何处理**，是风险化解方案中最关键的内容。
+
+如果按照市场化、法治化的原则来实施风险化解方案，可能的路径将是海航集团或债权人向法院申请进入**破产重整程序，通过相关债权的减免或递延，资产的处置，引进战略投资者**等方式，来解决海航的债务和资金问题。
+
+所谓破产重整，是指专门针对可能或已经具备破产原因但又有维持价值和再生希望的企业，在法院的主持和利害关系人的参与下，进行业务上的重组和债务调整，以帮助债务人摆脱财务困境、恢复营业能力。破产重整程序的目标是让企业重生，**避免被清算**。而破产清算的目的则是使破产企业的债权人公平受偿，使破产企业归于消灭。
+
+目前，海航集团旗下仍有包括海航控股（600221）、天津航空、首都航空、祥鹏航空等多家航空公司，并有海航科技（600751）、海航基础（600515）、海航控股（600221）等多家上市公司，此前，包括乌鲁木齐航空、首都航空、北部湾航空、西部航空都陆续与当地政府签署了重组框架协议，但重组实施都因海航集团的风险化解整体方案而暂停。这些航空公司未来的命运，以及上市公司的走向，都将随着2月开始实施的风险化解方案逐步揭晓。**未来的处置也会随着中南海内部极度紧张的政治局势演变，而发生动荡和变化。各方角力的结果才是最终决定海航未来走向的关键。**
+
+相关链接：
+[https://www.time-weekly.com/post/278017](https://www.time-weekly.com/post/278017)
+
+[https://www.reuters.com/article/%E4%B8%AD%E5%9B%BD%E6%B5%B7%E8%88%AA%E5%8F%8A%E9%99%88%E5%B3%B0%E9%A6%96%E6%AC%A1%E8%A2%AB%E9%99%90%E5%88%B6%E9%AB%98%E6%B6%88%E8%B4%B9%EF%BC%8C%E6%AD%A4%E5%89%8D%E8%A2%AB%E5%88%A4%E4%B8%BA30%E5%A4%9A%E4%B8%87%E5%85%83%E7%BD%91%E8%B4%B7%E6%89%BF%E6%8B%85%E8%BF%9E%E5%B8%A6%E8%B4%A3%E4%BB%BB-idCNL4S2GD18J](https://www.reuters.com/article/%E4%B8%AD%E5%9B%BD%E6%B5%B7%E8%88%AA%E5%8F%8A%E9%99%88%E5%B3%B0%E9%A6%96%E6%AC%A1%E8%A2%AB%E9%99%90%E5%88%B6%E9%AB%98%E6%B6%88%E8%B4%B9%EF%BC%8C%E6%AD%A4%E5%89%8D%E8%A2%AB%E5%88%A4%E4%B8%BA30%E5%A4%9A%E4%B8%87%E5%85%83%E7%BD%91%E8%B4%B7%E6%89%BF%E6%8B%85%E8%BF%9E%E5%B8%A6%E8%B4%A3%E4%BB%BB-idCNL4S2GD18J)
+
+[http://finance.eastmoney.com/a/202101101768701942.html](http://finance.eastmoney.com/a/202101101768701942.html)
+
+[http://finance.eastmoney.com/a/202101211784285636.html](http://finance.eastmoney.com/a/202101211784285636.html)
+
+[http://www.nbd.com.cn/articles/2021-01-20/1604628.html](http://www.nbd.com.cn/articles/2021-01-20/1604628.html)
+
+[http://www.guandian.cn/article/20210105/252841.html](http://www.guandian.cn/article/20210105/252841.html)
+
+[https://m.yicai.com/news/100925034.html](https://m.yicai.com/news/100925034.html)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
 0

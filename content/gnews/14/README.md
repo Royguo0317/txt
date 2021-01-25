@@ -1,44 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 百余位专家因人权问题要求暂停欧中投资协议
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/809568/)
+## 评共和党议员宣布重启新冠病毒国际调查并敦促拜登政府追责中共
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/809695/)
 
-- 编辑：Victor Torres
+*简评：随波逐流|审核：海阔天空|Page: Cathy*
+
+[!\[\]()!\[\](https://spark.adobe.com/page/YQw3ifbnFYEjS/images/3769d2a0-91be-461d-ac0d-21c01863158a.jpg?asset_id=f27b118b-855d-47ac-abf6-cf10c48cdcaa&amp;img_etag=%2233a60a2539ed7be42204028bdc62c400%22&amp;size=2560)](https://spark.adobe.com/page/YQw3ifbnFYEjS/images/3769d2a0-91be-461d-ac0d-21c01863158a.jpg?asset_id=f27b118b-855d-47ac-abf6-cf10c48cdcaa&amp;img_etag=%2233a60a2539ed7be42204028bdc62c400%22&amp;size=1024)
+
+## **共和党议员宣布重启新冠病毒国际调查并敦促拜登政府追责中共**
+
+📍🔗[原文链接](https://www.oann.com/sen-hawley-rep-stefanik-call-for-intl-probe-into-chinese-communist-partys-involvement-in-covid-19-cover-up/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=sen-hawley-rep-stefanik-call-for-intl-probe-into-chinese-communist-partys-involvement-in-covid-19-cover-up)
+
+星期五，密苏里州的共和党参议员乔什•霍利和纽约州的共和党众议员爱丽丝•斯特凡尼克宣布，他们将重新提出一项法案，以启动一项国际调查，这次调查将由美国卫生专家牵头，找出世界卫生组织（WHO）宣传中共国虚假信息的原因，重点关注中国共产党在掩盖新冠大流行中的作用，追究中共国掩盖冠状病毒大流行起源的责任。同时，敦促国际社会找到一种方式，让中共国补偿所有受影响国家。他们强调了大流行病给人类造成的毁灭性伤亡，要求拜登政府为美国利益而战，勇敢对抗世界卫生组织和中共国。
+
+无论谁执掌美国政府，新冠病毒大流行问题始终无法逃避，这绝对是一块烫手山芋，在这一点上，谁都无法出卖美国人民的利益。美国大选风波过后，美国和世界的焦点又回到如何解决新冠病毒问题上，怎样才能让美国人民满意是本届政府面临的一项巨大挑战，同时也可以显示他们对中共的态度和未来对中共国政策的走向。这也是美国两党和国际社会对拜登政府执政能力的评估。任何与犯下 “种族灭绝罪”和“反人类罪”的“中共恐怖政权”勾兑的国家都无法面对来自全世界的谴责。因此无论哪个政党上台执政，美国两党对病毒起源的调查仍将继续，接下来美国及国际社会对中共的追责和赔偿要求一样也不会少，灭共是全世界的共同需要。中共释放病毒造成了全球数百万人死亡，同时控制世卫组织、媒体、专家、学术期刊宣传虚假信息、掩盖真相，并阻挠调查。它所犯下的反人类罪行一定会得到全世界的审判，最终将其送入坟墓。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/YQw3ifbnFYEjS/images/67948bdc-24b9-4147-beac-322a21b07d2f.jpg?asset_id=1038d0a1-cbfe-4cf0-902d-0cfbe9ff19c8&amp;img_etag=%22347d73e8a6402c8b23bd2999b36c370e%22&amp;size=2560)](https://spark.adobe.com/page/YQw3ifbnFYEjS/images/67948bdc-24b9-4147-beac-322a21b07d2f.jpg?asset_id=1038d0a1-cbfe-4cf0-902d-0cfbe9ff19c8&amp;img_etag=%22347d73e8a6402c8b23bd2999b36c370e%22&amp;size=1024)
+
+同时我们必须看到，美国人民的死亡，美国政府对此有不可推卸的责任。爆料革命发起人郭文贵先生，早在2019年香港危机时，就反复提醒美国政府和全世界，中共会实施生化武器攻击。更有闫丽梦博士在2020年1月19日，冒死将病毒真相通过路德社传递给世界。还有为传递病毒真相而牺牲了的、至今不能具名的多少新中国联邦人。而美国两党在一年多的时间里做了什么?
+
+消灭中共，让其为CCP病毒负责，是正义的需要。但任何CCP掌握的财富，属于中国人民，必须归还给能代表中国人民的机构——新中国联邦。请美国两党反思自己，在人类大危机中，迄今为止你们做了什么?
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+编辑：[【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/YQw3ifbnFYEjS/)
 
-**西班牙2021年1月25日电/西喜社——**据DER SPIEGEL周一报道，有一百多名专家要求终止欧盟—中国投资协议。他们将中国严重侵犯人权和压制民主运动作为理由。
-
-过去几天，反对该协议的广泛阵线已经形成。全球100多位著名的中国问题专家、研究人员和人权活动家呼吁暂停欧盟—中国全面投资协定（CAI）。
-
-“尽管有证据表明存在种族清洗、强迫劳动和其他严重侵犯人权的行为，但欧洲机构的领导层还是选择签署了一项协议，该协议没有要求中国政府做出任何有意义的承诺，以保证结束反人类罪或奴役罪。”致欧盟机构的公开信写道。
-
-12月30日，欧盟委员会主席乌苏拉·冯德莱恩宣布与中国历时七年的谈判圆满结束。”今天的协议是我们与中国关系的重要里程碑，也是我们基于价值观的贸易议程的重要里程碑，”冯德莱恩说。
-
-该协议旨在改善欧洲企业进入中国市场的机会，确保公平竞争。协议尚未生效，还必须得到欧洲议会的批准。公开信的签署方急于阻止批准。
-
-这笔交易 “建立在对中国共产党本质的一套天真的假设之上”，信中写道，”巩固了欧洲现有的对华战略依赖，并与欧洲的核心价值观背道而驰”。作者写道，甚至目前的依赖程度也 “令人震惊”。他们认为，中共国有企业利用2008年金融危机后的时期，”购买了欧洲关键基础设施的大量股权”。
-
-投资协议的支持者提出的论点是，中国在谈判过程中被迫在劳工权利方面做出重大让步，但这些论点被公开信的作者断然拒绝。他们写道：“这些让步非常模糊，基本上毫无用处。”
-
-“此外，近年来中共经常违背承诺，想象中共会在这些投资和贸易问题上履行承诺是妄想。”信中写道。作为例子，作者们列举了香港镇压民运、对穆斯林维吾尔族的强制劳改营、北京最近对澳大利亚的制裁以及对台湾方向的剑拔弩张。
-
-签名者中除了居住在德国的世界维吾尔大会主席多尔昆·艾萨外，还有来自伦敦经济学院和普林斯顿大学的研究人员。意大利前外交部长朱利奥·泰尔齐·迪·圣阿加塔和威斯敏斯特大学教授、中国性别和人权问题专家哈里特·埃文斯也加入了这项努力。
-
-签署人呼吁欧盟 “立即退出中国—欧盟全面投资协定”，并搁置任何进一步的谈判，直到中国的人权状况取得 “实质性和可核查的 “进展。
-
-这封信的发起人之一、诺丁汉大学亚洲研究所高级研究员安德烈亚斯·富尔达说：”欧盟委员会的行为就好像可以把政治和经济分开一样，在中国的情况下，这是不可能的。”
-
-德国马歇尔基金亚洲项目高级研究员、中国问题专家马雷克·奥尔贝格同样指责布鲁塞尔的做法很天真。”他们正试图将该协议作为一个成功的例子来推销。由此可见，人们对中共作为条约伙伴的可靠性缺乏了解。”
-
-布拉格欧洲价值中心主任雅各布·詹达（Jakub Janda）认为，欧洲的主权正处于危险之中，他还对德国在谈判中的角色提出批评。”德国在欧盟内部推动协议的达成，从而将某些公司的利己主义贪婪置于欧洲地缘政治安全之上。”
-
-欧盟委员会认为，该条约将在2022年初完成。确切的文本将很快公布。
-
-**新闻来源：**[https://www.spiegel.de/international/business/human-rights-concerns-experts-demand-suspension-of-eu-china-investment-deal-a-f81c9641-9ed6-4a59-bfb8-5a4508201bfd-amp?\_\_twitter\_impression=true](https://www.spiegel.de/international/business/human-rights-concerns-experts-demand-suspension-of-eu-china-investment-deal-a-f81c9641-9ed6-4a59-bfb8-5a4508201bfd-amp?__twitter_impression=true)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+[!\[\]()!\[\](https://spark.adobe.com/page/YQw3ifbnFYEjS/images/c534342f-087b-41d4-9db0-56b4deba0686.jpg?asset_id=37ac2167-578c-4983-948c-24aea314d4af&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/YQw3ifbnFYEjS/images/c534342f-087b-41d4-9db0-56b4deba0686.jpg?asset_id=37ac2167-578c-4983-948c-24aea314d4af&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
