@@ -1,58 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国授权海岸警卫队在必要时向外国船只开火
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/809830/)
+## 用央视新闻推出的总书记一周核验习近平总书记过去一周未发声
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/809504/)
 
-*新闻来源：Sideny Morning Herald《悉尼晨驱报》| 作者：Yew Lun Tian 游润恬 | 发布时间：2021年1月22日*
+![]()![](https://gnews.org/wp-content/uploads/2021/01/封面-37.png)
+撰稿：巴黎七星农场；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-*翻译/简评：Cathy r |校对：Linda B |审核：freedust |Page：小雨*
+郭文贵先生在[2021年1月24日 文贵直播](https://gtv.org/video/id=600d705db819717e79adcc50)中透露出来了重要情报，其中一条就是郭先生提到的［**我可以今天负责人的告诉大家，最起码过去在六天来习近平从来没有一次声音传出来过，过去两周来习近平没有一次亲笔签字，全部是打印版，这在习近平执政以来从来没有过。**］
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/012502-1.jpg)
+然后有巧不巧的就看到了中央广播电视总台央视新闻 2021年01月25日 09:45发布的[时政微周刊丨总书记的一周（1月18日—1月24日）](https://news.cctv.com/2021/01/25/ARTItco5aj8E2VkHpfNEem1a210125.shtml)，专门做的习总书记一周活动的汇报——
 
-**简评：**
+中央电视台作的这份习总书记周报里倒是再一次验证了郭先生视频中提到的内容——在1月18日至1月24日这段时间内，习近平总书记的确是没有正式对外发出他自己的声音。
 
-拜登上台以后，中共迫不及待地在周五通过一项法律，第一次明确允许其海岸警卫队向外国船只开火，这使中共国周围有争议的水域更加动荡。这是中共自认为可以再次和美国勾兑以后，对世界各国开始秀武力, 给原来和川普建立反共同盟的各国政府施加压力。中共秋后算账的行为模式马上开启。
+那么视频里的那一句疑似习近平总书记喊出来的“加油”算不算他的原声呢？不算，因为我们可以对照已经不是确认造假的往期的**[时政微周刊丨总书记的一周（2020年12月28日——2021年1月3日）](https://search.cctv.com/link_p.php?targetpage=https://news.cctv.com/2021/01/04/ARTIV6HHRT3TeDaUnv5QVAKx210104.shtml&amp;point=web_normal&amp;ref=https%3A%2F%2Fsearch.cctv.com%2Fsearch.php%3Fqtext%3D%E6%80%BB%E4%B9%A6%E8%AE%B0%E7%9A%84%E4%B8%80%E5%91%A8%26type%3Dweb%26sort%3Drelevance%26vtime%3D%26datepid%3D1%26channel%3D%26page%3D1)**来源：新闻发布时间：2021-01-04 07:58:35
 
-**原文翻译：**
+这里边是清清楚楚的习总书记原声！怎么才算是习近平总书记的原声呢？在我看来，应该是以其总书记身份发出的官方公告、正式会面或元旦献词这种官方正式活动，而不是[时政微周刊丨总书记的一周（1月18日—1月24日）](https://news.cctv.com/2021/01/25/ARTItco5aj8E2VkHpfNEem1a210125.shtml)视频里的一句疑似习总书记本人的那声“加油”。
 
-# **中共国授权海岸警卫队在必要时向外国船只开火**
+既然郭文贵先生美国当地时间2021年1月24日已经说出了习近平总书记在过去的六天来习近平从来没有一次声音传出来过，既然中央电视台每周都做总书记的一周，那么在接下来的一周，习近平总书记到底会不会出原声呢？到底会不会出画面呢？全军、全党、全国人民、全世界人民都期待天线宝宝、斩监候的习近平总书记能够露一下脸，在接下来的一周内，央视和新华社到底是要假造习总书记的视频呢？还是要造假习总书记的视频呢？这是一个问题！
 
-**北京：**中共国周五通过一项法律，第一次明确允许其海岸警卫队向外国船只开火，此举可能使中共国周围有争议的水域更加动荡。
+（文章内容仅代表作者个人观点）
 
-中共国在东海与日本以及在南海与几个东南亚国家有海洋主权争端。它已派出海岸警卫队赶走了其它国家的渔船，有时导致这些渔船沉没。
-
-[![](https://spark.adobe.com/page/2TK9YDCsZ2f2S/images/95c410c5-16e6-4ee5-9c5b-6cc2f35e4242?asset_id=29aa53e0-36e4-4a13-867e-8c2bda2363ea&amp;img_etag=%22054ac79ebe5fece666017b319fa04f42%22&amp;size=2560)](https://spark.adobe.com/page/2TK9YDCsZ2f2S/images/95c410c5-16e6-4ee5-9c5b-6cc2f35e4242?asset_id=29aa53e0-36e4-4a13-867e-8c2bda2363ea&amp;img_etag=%22054ac79ebe5fece666017b319fa04f42%22&amp;size=1024)
-
-中共国人民解放军海军水手队站队列
-
-据官方媒体报道，中共国最高立法机构全国人民代表大会常务委员会于上周五通过了《海岸警卫队法》（Coast Guard Law）。
-
-根据先前公布的法案中的草案措词，海岸警卫队被允许使用“一切必要手段”制止或防止外国船只的威胁。
-
-该法案规定了在何种情况下可以使用各种类型的武器——手持、舰载或机载武器。
-
-该法案允许海岸警卫队人员拆除在中共国宣称主权的岛礁上其他国家的建筑物，并在中共国宣称拥有主权的水域登上和检查外国船只。
-
-该法案还授权海岸警卫队“根据需要”创建临时禁区，以阻止其它船只和人员进入。
-
-回应对此的担忧时，中共国外交部发言人华春莹周五表示，该法律符合国际惯例。
-
-法案第一条解释说，维护中共国的主权、安全和海权需要法律。
-
-这项法律是在中共国合并数家民间海上执法机构成立海岸警卫局七年之后制定的。
-
-该局于2018年在人民武装警察的指挥下，成为军队的适当分支。
-
-🔗[原文链接](https://www.smh.com.au/world/asia/china-authorises-coast-guard-to-fire-on-foreign-vessels-if-needed-20210122-p56was.html)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：[【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/2TK9YDCsZ2f2S/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/2TK9YDCsZ2f2S/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/2TK9YDCsZ2f2S/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
-
-+1
+0

@@ -1,24 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 斯裏蘭卡本周將開始疫苗接種
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/810995/)
+## 中共立即宣布制裁蓬佩奥及班农等28人（玫瑰看新闻一月二十一日）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/810563/)
 
-- 編輯：Victor Torres
-
-
-***更多真相，請關註*** ***[Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2021年1月25日電/西喜社——**斯裏蘭卡政府表示，將於本周開始為民眾接種中共病毒疫苗。
-
-斯裏蘭卡將於周三收到印度捐贈的50萬劑牛津-阿斯利康疫苗，接種工作將於次日開始。疫苗將首先提供給衛生部門、軍隊和警察等壹線人員。
-
-斯裏蘭卡還訂購了壹批輝瑞-生物技術公司的疫苗，並將通過世衛組織的COVAX計劃為20%的人口接種疫苗。
-
-**新聞來源：**[https://apnews.com/article/pandemics-andrej-babis-coronavirus-pandemic-czech-republic-germany-cb92fa172f477c2008e98536d9523a5f](https://apnews.com/article/pandemics-andrej-babis-coronavirus-pandemic-czech-republic-germany-cb92fa172f477c2008e98536d9523a5f)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/708abdfc-3cdf-4d0e-b4a7-abacde178131-15.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
-
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00001-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00002-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00003-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00004-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00005-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00006-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00007-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00008-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00009-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00010-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00011-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00012-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00013-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00014-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00015-4.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00016-4.jpg)
 0

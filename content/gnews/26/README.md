@@ -1,63 +1,98 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/01/24 英喜实时速递
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/809248/)
+## 《路德时评》解读习开启“政治大扫荡”运动，及吉林通化因疫情断粮断药
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/809976/)
 
-收集：Alicia，Cathy，Near，文大石，CharlesS | 制作：Alicia
-*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/julius-drost-nsrSyI-JUYg-unsplash-2.jpg)
-1. [GNEWS 文章新加坡狮城农场：警惕！第二波疫情到来，“教会”恐成为中共拉仇恨对象](https://gnews.org/zh-hans/802554/)
-**评：中共将病毒甩锅给“境外输入”显然已不能满足维稳需求，开始继续为人民制造新的仇恨对象，将责任甩锅给“地下教会”。中共对宗教迫害永远停止。**
-
-2.[夜空最亮的星：吉林通化疫情防控封锁，已经导致当地30万百姓食物短缺，大批市民跑到人民日报、新华社微博下留言求救！](http://新华社微博下留言求救！%201%20von%201%20Kontext:%20Q5%20吉林通化疫情防控封锁，已经导致当地30万百姓食物短缺，大批市民跑到人民日报、新华社微博下留言求救！%20%20%20%20https://t.me/youshuigongming/19406)
-**评：中共盲目封城，不考虑民生问题已经造成了人道危机，有人已6天断粮，无人问津！视人命如草芥的政府部门比比皆是。**
-
-4．CCAV 新闻资讯：【[网曝吉林通化被封户者断粮 出门购物被拒 拔刀杀人](https://t.me/CCAVCombatgroup/374)】
-**评：不解决民众生存基本需要，只能让民众暴力反抗防疫人员，激化矛盾形成犯罪。最终就是邪恶的制度让人民内斗。**
-
-5. 腾讯：[周末紧急回应！4000亿苹果链巨头遭美国337调查，32万股民被卷入](http://周末紧急回应！4000亿%201%20von%201%20Kontext:%20Y5%20腾讯：周末紧急回应！4000亿苹果链巨头遭美国337调查，32万股民被卷入%20%20%20%20https://new.qq.com/rain/a/20210124A0B95I00)
-**评：立讯精密因为对美出口、在美进口或在美销售上述产品侵犯其专利权而被调查。无论美国内部政治如何争斗，反共大势不可逆转。**
-
-6. 网易：[最新回国规定：全国8省市需隔离28天，包括北京、江苏、浙江等！](http://最新回国规定：全国8省市需隔离28天，包%201%20von%201%20Kontext:%20Z5%20网易：最新回国规定：全国8省市需隔离28天，包括北京、江苏、浙江等！%20%20%20%20https://www.163.com/dy/article/G14CKCEI05371E5Q.html)
-**评：继前日宣称新一波疫情源头查明，皆为海外输入型之后，现在规定对海外入境人员的全部隔离28天，程序 (酒店集中隔离+居家隔离+健康监测）。**
-
-7. 推文： [他终于红了：“全国脱贫”之后 1月4日，20来岁的自媒体人 B站（哔哩哔哩） UP主（上传人） 墨茶，每日泡面，贫困而亡。他的粉丝，从100多人一下升到50万❗️](https://t.me/mianjuxiansheng/205039) 
-**评：又一个凄惨的中共国“网红”故事！这才是中共国真正的普通老百姓！谁能在视人命如草芥的中共国重视这么一个悲惨的生命个体，只有由生命同样如草芥的中国人自己。**
-
-8. CCAV 资讯：[近日，被断电、断水六十几天后又被强抢住房的北京小汤山抗暴居民——李强母子，在寒冬腊月里，露宿镇政府门口。](https://t.me/CCAVCombatgroup/365)
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/image-287.png)
-
-**评：这就是专制统治下的暴政典型例子，可能发生在每一个韭菜身上！**
-
-9. CCAV 资讯：[2021年1月23日, 吉林通化市封城封戶, 很多小区开始喊楼。](https://t.me/CCAVCombatgroup/384)
-**评：中共疫情之下造成的次生灾难可能比疫情本身更可怕。 **
-
-10. 网易：[“我们德国不欢迎中国人！”德议员亚洲餐馆叫骂动手，引爆批评](http://我们德国不欢迎中国人%201%20von%201%20Kontext:%20X5%20网易：“我们德国不欢迎中国人！”德议员亚洲餐馆叫骂动手，引爆批评%20%20%20%20https://www.163.com/dy/article/G10TQEPB0514BIJT.html)
-**评：文章直指一位德国基民盟议员Harald Sielaff，非常大可能是他得罪了共产党，中共就用这种政治正确造势打压。同时也映射出德国政界反中共的声音**
-
-11. 新唐人電視台推文:[【禁闻】上海疫情连爆，地铁频现随地倒。 上海多地连续爆发疫情，1月24号，黄浦区和，贵西小区又被升为中风险区。 此前黄浦区的昭通路居民区、“中福世福汇”大酒店已被列为中风险区。](https://www.ntdtv.com/b5/2021/01/24/a103039193.html)
-**评：中共国内疫情全面爆发。**
-
-12. 澎湃：[从中央纪委五次全会看全面从严治党新征程](https://www.sohu.com/a/446546763_260616)
-**评：再提习的“政治判断力、领悟力、执行力”，即对党内其他派系的技能公告与打压。党内清洗工具中纪委又要开动了。**
-
-13. 搜狐：[五天吃掉六斤车厘子 女子一夜“血便”20多次后晕倒](https://www.sohu.com/a/446601513_132336)
-中国日报：[石家庄通报进口车厘子复检结果：检测结果均呈阴性](https://www.sohu.com/a/446601513_132336)
-**评：中国每年消耗全球七成以上的车厘子。前几日号称进口车厘子表面检测阳性影响了谁的利益？又开始“逆向辟谣“。**
-
-14. 澎湃：[多地对拒服兵役人员联合惩戒：不得录用为公务员，列为失信人](https://m.thepaper.cn/yidian_promDetail.jsp?contid=10922620&amp;from=yidian)
-**评：两点：一，信息时代，老百姓不愿为共军卖命。二，各地政府完美展现中共假法治，以假治国，各种处罚五花八门巧立名目。**
-
-15. 搜狐：[得知矿工升井，省委书记立即中断行程，赶赴现场](https://www.sohu.com/a/446513098_167569)
-**评：真是恶心，遇到天灾人祸最后当事人还得“感谢党”。**
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+直播视频：
 
 
-编辑：【英国伦敦喜庄园编辑部】
-[!\[\]()!\[\](https://spark.adobe.com/page/AAeSoJ2Q4F6lV/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/AAeSoJ2Q4F6lV/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+《路德时评》2021年1月25日早间节目主要内容：
+
+一、习“出席”达沃斯经济论坛
+
+北京时间1月25日最新报道[1]：习总加速师出席世界经济论坛“达沃斯议程”对话会并发表特别致辞。
+
+
+
+> 完整版有22分鐘 [https://t.co/pCAU80AtMp](https://t.co/pCAU80AtMp) [pic.twitter.com/oDu3gKA8Rq](https://t.co/oDu3gKA8Rq)
+> — Andy5 (@andy5\_123) [January 25, 2021](https://twitter.com/andy5_123/status/1353685163704651779?ref_src=twsrc%5Etfw)
+
+
+
+有战友将今天习发言的视频图片与22日新华社发布的照片进行对比，发现这两人明显不同。
+
+
+
+> 請問習天線寶寶
+> 你自己信這倆是同一個人嗎？🤣🤣🤣
+> 兩天不見，胖了不少啊
+> 該不會前幾天出來的叫「習總加速師2號」
+> 今天出來的叫「慶豐帝2號」吧？[@ding\_gang02](https://twitter.com/ding_gang02?ref_src=twsrc%5Etfw) [@aliah0031](https://twitter.com/aliah0031?ref_src=twsrc%5Etfw) [@maryann\_3040](https://twitter.com/maryann_3040?ref_src=twsrc%5Etfw) [@BoDiplo](https://twitter.com/BoDiplo?ref_src=twsrc%5Etfw) [@Guan\_PhD](https://twitter.com/Guan_PhD?ref_src=twsrc%5Etfw) [pic.twitter.com/47MFFQ7Csx](https://t.co/47MFFQ7Csx)
+> — Andy5 (@andy5\_123) [January 25, 2021](https://twitter.com/andy5_123/status/1353686168571834369?ref_src=twsrc%5Etfw)
+
+
+
+路德社评论：
+
+此次视频为习录播视频，达沃斯论坛至少都提前一年策划和预约，无法证明就是习今天录制的视频，况且视频中未出现习与其他参会者打招呼的画面，据可靠消息，习只要连续说话几分钟就会出现状况，所以习现在绝对不可能露面。
+
+二、吉林通化因疫情断粮断药
+
+新华社北京1月24日报道[2]，新华每日电讯微信公号刊发题为《吉林通化部分地方“断粮断药”：物资配送承诺别落而不实 》的评论。吉林通化市东昌区实行按区管控后，有市民反映政府通告的“必需品免费配送”政策没有及时落实，部分家庭出现“断粮断药”危机，有的家庭“一个苹果俩孩子吃3天”。24日，吉林通化市副市长就生活物资配送不及时向市民道歉，称正在积极采取措施，尽快解决相关问题。
+
+路德社评论：
+
+1、吉林通化因疫情全面封锁导致民众粮食紧缺，甚至出现老人因粮食匮乏自杀和因买不到粮食杀人的事件，自从疫情爆发以来，这种事以发生数起；
+
+2、中共国至今总感染人数才八万多，美国确诊人数已接近三千万也没有出现药品和粮食断供的局面，由此可以看出，中共确诊人数至少上百万；
+
+3、只要吉林通化的战友听了路德社的劝告提前屯粮，就能避免此次人道危机，甚至还能帮助周边邻舍，听信爆料革命必定能保命保财；
+
+4、中共国经历过吉林通化断粮断药事件后绝对会认真总结经验，更加严格地管控人民言论，全面封锁所有消息。
+
+三、习“政治大扫荡”运动
+
+中共铺天盖地的“文革”大字报开始了，昨天9连发，今天15连发，果然中共在内斗上比怼任何外国政要都积极，中国新闻报1篇，新华社又来3篇。
+
+
+
+> CCP鋪天蓋地的大字報開始了
+> 昨天9連發，今天15連發，果然CCP在內鬥上比懟任何外國政要都積極。
+> 中國新聞報1篇
+> 新華社又來3篇
+> 下文繼續[@ding\_gang02](https://twitter.com/ding_gang02?ref_src=twsrc%5Etfw) [@maryann\_3040](https://twitter.com/maryann_3040?ref_src=twsrc%5Etfw) [@aliah0031](https://twitter.com/aliah0031?ref_src=twsrc%5Etfw) [@BoDiplo](https://twitter.com/BoDiplo?ref_src=twsrc%5Etfw) [@Guan\_PhD](https://twitter.com/Guan_PhD?ref_src=twsrc%5Etfw) [https://t.co/dwkm4582IB](https://t.co/dwkm4582IB) [pic.twitter.com/8ScBhMND5N](https://t.co/8ScBhMND5N)
+> — Andy5 (@andy5\_123) [January 25, 2021](https://twitter.com/andy5_123/status/1353675631578411008?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> 今天CCP一改往常「盤勢一塊」地懟美國
+> 反而把8連發（事實上只少9連發）的槍口對內，頗有一番毛臘肉的「炮打司令部，我的一張大字報」的感覺
+> 新華社3篇、日人民報一篇，都是吹捧「全面從嚴治黨」
+> 接下↓[@ding\_gang02](https://twitter.com/ding_gang02?ref_src=twsrc%5Etfw) [@maryann\_3040](https://twitter.com/maryann_3040?ref_src=twsrc%5Etfw) [@aliah0031](https://twitter.com/aliah0031?ref_src=twsrc%5Etfw) [@BoDiplo](https://twitter.com/BoDiplo?ref_src=twsrc%5Etfw) [@Guan\_PhD](https://twitter.com/Guan_PhD?ref_src=twsrc%5Etfw) [pic.twitter.com/WZLGzKYfuI](https://t.co/WZLGzKYfuI)
+> — Andy5 (@andy5\_123) [January 24, 2021](https://twitter.com/andy5_123/status/1353316095902371840?ref_src=twsrc%5Etfw)
+
+
+
+路德社评论：
+
+1、120之后，中共党内势力的平衡被彻底打破，习发起的“新反腐运动”就是一场残酷的政治大扫荡，中共只要谈及政治正确就相当于毛时代的政治斗争，邓小平好不容易改革过来，现在又回到毛时代的政治的斗争；
+
+2、从新华社发文来看，习不仅要对军队下狠手，还将对中纪委下狠手，这意味着他将对王派势力开炮，中共党内又一次血雨腥风即将开始，中共党内四股势力都掏出自己的杀手锏，习利用军队搞政治运动为杀手锏，江以隐藏的海内外组织力量和资金力量为杀手锏，胡利用手上残余的团派势力，王则以掌控的经济力量和反腐了力量为杀手锏进行互相厮杀；
+
+3、这再次验证爆料革命提供的重要情报，以共灭共的时代正式来临。
+
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+
+参考文章：
+
+[1][https://twitter.com/andy5\_123/status/1353685163704651779](https://twitter.com/andy5_123/status/1353685163704651779)
+
+[2][https://www.163.com/dy/article/G14K92JE05346RC6.html](https://www.163.com/dy/article/G14K92JE05346RC6.html)
+
+文章撰写：【重生】  编辑：【香柏树】
+
 0
