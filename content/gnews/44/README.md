@@ -1,34 +1,98 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 评共和党议员宣布重启新冠病毒国际调查并敦促拜登政府追责中共
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/809695/)
+## 《路德时评》解读习开启“政治大扫荡”运动，及吉林通化因疫情断粮断药
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/809976/)
 
-*简评：随波逐流|审核：海阔天空|Page: Cathy*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/YQw3ifbnFYEjS/images/3769d2a0-91be-461d-ac0d-21c01863158a.jpg?asset_id=f27b118b-855d-47ac-abf6-cf10c48cdcaa&amp;img_etag=%2233a60a2539ed7be42204028bdc62c400%22&amp;size=2560)](https://spark.adobe.com/page/YQw3ifbnFYEjS/images/3769d2a0-91be-461d-ac0d-21c01863158a.jpg?asset_id=f27b118b-855d-47ac-abf6-cf10c48cdcaa&amp;img_etag=%2233a60a2539ed7be42204028bdc62c400%22&amp;size=1024)
-
-## **共和党议员宣布重启新冠病毒国际调查并敦促拜登政府追责中共**
-
-📍🔗[原文链接](https://www.oann.com/sen-hawley-rep-stefanik-call-for-intl-probe-into-chinese-communist-partys-involvement-in-covid-19-cover-up/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=sen-hawley-rep-stefanik-call-for-intl-probe-into-chinese-communist-partys-involvement-in-covid-19-cover-up)
-
-星期五，密苏里州的共和党参议员乔什•霍利和纽约州的共和党众议员爱丽丝•斯特凡尼克宣布，他们将重新提出一项法案，以启动一项国际调查，这次调查将由美国卫生专家牵头，找出世界卫生组织（WHO）宣传中共国虚假信息的原因，重点关注中国共产党在掩盖新冠大流行中的作用，追究中共国掩盖冠状病毒大流行起源的责任。同时，敦促国际社会找到一种方式，让中共国补偿所有受影响国家。他们强调了大流行病给人类造成的毁灭性伤亡，要求拜登政府为美国利益而战，勇敢对抗世界卫生组织和中共国。
-
-无论谁执掌美国政府，新冠病毒大流行问题始终无法逃避，这绝对是一块烫手山芋，在这一点上，谁都无法出卖美国人民的利益。美国大选风波过后，美国和世界的焦点又回到如何解决新冠病毒问题上，怎样才能让美国人民满意是本届政府面临的一项巨大挑战，同时也可以显示他们对中共的态度和未来对中共国政策的走向。这也是美国两党和国际社会对拜登政府执政能力的评估。任何与犯下 “种族灭绝罪”和“反人类罪”的“中共恐怖政权”勾兑的国家都无法面对来自全世界的谴责。因此无论哪个政党上台执政，美国两党对病毒起源的调查仍将继续，接下来美国及国际社会对中共的追责和赔偿要求一样也不会少，灭共是全世界的共同需要。中共释放病毒造成了全球数百万人死亡，同时控制世卫组织、媒体、专家、学术期刊宣传虚假信息、掩盖真相，并阻挠调查。它所犯下的反人类罪行一定会得到全世界的审判，最终将其送入坟墓。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/YQw3ifbnFYEjS/images/67948bdc-24b9-4147-beac-322a21b07d2f.jpg?asset_id=1038d0a1-cbfe-4cf0-902d-0cfbe9ff19c8&amp;img_etag=%22347d73e8a6402c8b23bd2999b36c370e%22&amp;size=2560)](https://spark.adobe.com/page/YQw3ifbnFYEjS/images/67948bdc-24b9-4147-beac-322a21b07d2f.jpg?asset_id=1038d0a1-cbfe-4cf0-902d-0cfbe9ff19c8&amp;img_etag=%22347d73e8a6402c8b23bd2999b36c370e%22&amp;size=1024)
-
-同时我们必须看到，美国人民的死亡，美国政府对此有不可推卸的责任。爆料革命发起人郭文贵先生，早在2019年香港危机时，就反复提醒美国政府和全世界，中共会实施生化武器攻击。更有闫丽梦博士在2020年1月19日，冒死将病毒真相通过路德社传递给世界。还有为传递病毒真相而牺牲了的、至今不能具名的多少新中国联邦人。而美国两党在一年多的时间里做了什么?
-
-消灭中共，让其为CCP病毒负责，是正义的需要。但任何CCP掌握的财富，属于中国人民，必须归还给能代表中国人民的机构——新中国联邦。请美国两党反思自己，在人类大危机中，迄今为止你们做了什么?
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+直播视频：
 
 
-编辑：[【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/YQw3ifbnFYEjS/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/YQw3ifbnFYEjS/images/c534342f-087b-41d4-9db0-56b4deba0686.jpg?asset_id=37ac2167-578c-4983-948c-24aea314d4af&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/YQw3ifbnFYEjS/images/c534342f-087b-41d4-9db0-56b4deba0686.jpg?asset_id=37ac2167-578c-4983-948c-24aea314d4af&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+《路德时评》2021年1月25日早间节目主要内容：
+
+一、习“出席”达沃斯经济论坛
+
+北京时间1月25日最新报道[1]：习总加速师出席世界经济论坛“达沃斯议程”对话会并发表特别致辞。
+
+
+
+> 完整版有22分鐘 [https://t.co/pCAU80AtMp](https://t.co/pCAU80AtMp) [pic.twitter.com/oDu3gKA8Rq](https://t.co/oDu3gKA8Rq)
+> — Andy5 (@andy5\_123) [January 25, 2021](https://twitter.com/andy5_123/status/1353685163704651779?ref_src=twsrc%5Etfw)
+
+
+
+有战友将今天习发言的视频图片与22日新华社发布的照片进行对比，发现这两人明显不同。
+
+
+
+> 請問習天線寶寶
+> 你自己信這倆是同一個人嗎？🤣🤣🤣
+> 兩天不見，胖了不少啊
+> 該不會前幾天出來的叫「習總加速師2號」
+> 今天出來的叫「慶豐帝2號」吧？[@ding\_gang02](https://twitter.com/ding_gang02?ref_src=twsrc%5Etfw) [@aliah0031](https://twitter.com/aliah0031?ref_src=twsrc%5Etfw) [@maryann\_3040](https://twitter.com/maryann_3040?ref_src=twsrc%5Etfw) [@BoDiplo](https://twitter.com/BoDiplo?ref_src=twsrc%5Etfw) [@Guan\_PhD](https://twitter.com/Guan_PhD?ref_src=twsrc%5Etfw) [pic.twitter.com/47MFFQ7Csx](https://t.co/47MFFQ7Csx)
+> — Andy5 (@andy5\_123) [January 25, 2021](https://twitter.com/andy5_123/status/1353686168571834369?ref_src=twsrc%5Etfw)
+
+
+
+路德社评论：
+
+此次视频为习录播视频，达沃斯论坛至少都提前一年策划和预约，无法证明就是习今天录制的视频，况且视频中未出现习与其他参会者打招呼的画面，据可靠消息，习只要连续说话几分钟就会出现状况，所以习现在绝对不可能露面。
+
+二、吉林通化因疫情断粮断药
+
+新华社北京1月24日报道[2]，新华每日电讯微信公号刊发题为《吉林通化部分地方“断粮断药”：物资配送承诺别落而不实 》的评论。吉林通化市东昌区实行按区管控后，有市民反映政府通告的“必需品免费配送”政策没有及时落实，部分家庭出现“断粮断药”危机，有的家庭“一个苹果俩孩子吃3天”。24日，吉林通化市副市长就生活物资配送不及时向市民道歉，称正在积极采取措施，尽快解决相关问题。
+
+路德社评论：
+
+1、吉林通化因疫情全面封锁导致民众粮食紧缺，甚至出现老人因粮食匮乏自杀和因买不到粮食杀人的事件，自从疫情爆发以来，这种事以发生数起；
+
+2、中共国至今总感染人数才八万多，美国确诊人数已接近三千万也没有出现药品和粮食断供的局面，由此可以看出，中共确诊人数至少上百万；
+
+3、只要吉林通化的战友听了路德社的劝告提前屯粮，就能避免此次人道危机，甚至还能帮助周边邻舍，听信爆料革命必定能保命保财；
+
+4、中共国经历过吉林通化断粮断药事件后绝对会认真总结经验，更加严格地管控人民言论，全面封锁所有消息。
+
+三、习“政治大扫荡”运动
+
+中共铺天盖地的“文革”大字报开始了，昨天9连发，今天15连发，果然中共在内斗上比怼任何外国政要都积极，中国新闻报1篇，新华社又来3篇。
+
+
+
+> CCP鋪天蓋地的大字報開始了
+> 昨天9連發，今天15連發，果然CCP在內鬥上比懟任何外國政要都積極。
+> 中國新聞報1篇
+> 新華社又來3篇
+> 下文繼續[@ding\_gang02](https://twitter.com/ding_gang02?ref_src=twsrc%5Etfw) [@maryann\_3040](https://twitter.com/maryann_3040?ref_src=twsrc%5Etfw) [@aliah0031](https://twitter.com/aliah0031?ref_src=twsrc%5Etfw) [@BoDiplo](https://twitter.com/BoDiplo?ref_src=twsrc%5Etfw) [@Guan\_PhD](https://twitter.com/Guan_PhD?ref_src=twsrc%5Etfw) [https://t.co/dwkm4582IB](https://t.co/dwkm4582IB) [pic.twitter.com/8ScBhMND5N](https://t.co/8ScBhMND5N)
+> — Andy5 (@andy5\_123) [January 25, 2021](https://twitter.com/andy5_123/status/1353675631578411008?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> 今天CCP一改往常「盤勢一塊」地懟美國
+> 反而把8連發（事實上只少9連發）的槍口對內，頗有一番毛臘肉的「炮打司令部，我的一張大字報」的感覺
+> 新華社3篇、日人民報一篇，都是吹捧「全面從嚴治黨」
+> 接下↓[@ding\_gang02](https://twitter.com/ding_gang02?ref_src=twsrc%5Etfw) [@maryann\_3040](https://twitter.com/maryann_3040?ref_src=twsrc%5Etfw) [@aliah0031](https://twitter.com/aliah0031?ref_src=twsrc%5Etfw) [@BoDiplo](https://twitter.com/BoDiplo?ref_src=twsrc%5Etfw) [@Guan\_PhD](https://twitter.com/Guan_PhD?ref_src=twsrc%5Etfw) [pic.twitter.com/WZLGzKYfuI](https://t.co/WZLGzKYfuI)
+> — Andy5 (@andy5\_123) [January 24, 2021](https://twitter.com/andy5_123/status/1353316095902371840?ref_src=twsrc%5Etfw)
+
+
+
+路德社评论：
+
+1、120之后，中共党内势力的平衡被彻底打破，习发起的“新反腐运动”就是一场残酷的政治大扫荡，中共只要谈及政治正确就相当于毛时代的政治斗争，邓小平好不容易改革过来，现在又回到毛时代的政治的斗争；
+
+2、从新华社发文来看，习不仅要对军队下狠手，还将对中纪委下狠手，这意味着他将对王派势力开炮，中共党内又一次血雨腥风即将开始，中共党内四股势力都掏出自己的杀手锏，习利用军队搞政治运动为杀手锏，江以隐藏的海内外组织力量和资金力量为杀手锏，胡利用手上残余的团派势力，王则以掌控的经济力量和反腐了力量为杀手锏进行互相厮杀；
+
+3、这再次验证爆料革命提供的重要情报，以共灭共的时代正式来临。
+
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+
+参考文章：
+
+[1][https://twitter.com/andy5\_123/status/1353685163704651779](https://twitter.com/andy5_123/status/1353685163704651779)
+
+[2][https://www.163.com/dy/article/G14K92JE05346RC6.html](https://www.163.com/dy/article/G14K92JE05346RC6.html)
+
+文章撰写：【重生】  编辑：【香柏树】
 
 0

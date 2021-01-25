@@ -1,26 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港九龙部分地区封锁周一被解除
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/811001/)
+## 美媒揭福奇资助中共病毒功能增强研究
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/811454/)
 
-- 编辑：Victor Torres
+俄罗斯莫斯科喀秋莎农场     文雪
+
+编辑   水星      上传    银河
+![]()![](https://cdn.discordapp.com/attachments/799010586356351066/803316539725971476/F.JPG)ahrp.org
+据门户专家 (The Gateway Pundit) 创始人吉姆·霍夫特 (Jim Hoft) 1月24日援引福克斯新闻主持人史蒂夫·希尔顿 (Steve Hilton) 在周日晚间的节目中的报道，安东尼·福奇博士 (Dr. Anthony Fauci) 对资助导致中共病毒大流行的功能增强研究负有直接责任。
+
+“希尔顿以中共病毒起源的惊人进展开场，讨论了有助于定义人类与病原体相互作用的基本性质的功能增强研究。研究功能增强科学最厉害的实验室之一是位于中共国武汉的武汉病毒研究所。福奇博士公开为实验室中生成潜在危险病毒的研究而欢呼。史蒂夫·希尔顿还透露了福奇博士是如何给那些导致中共病毒大流行的项目提供资金的。”
+
+希尔顿 周日（1月24日）晚上在福克斯的节目是一段重磅报道，视频链接如下：
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月25日电/西喜社——**在数千名居民接受病毒检测后，香港九龙部分地区的封锁周一被解除。
+功能增强研究备受争议。在2014年，奥巴马政府削减了对这项高风险生物研究的资助。在联邦研究实验室发生生物安全事件后，政府做出了这一决定。
 
-周六一早开始的封锁覆盖了油尖旺地区工薪阶层的16栋大楼。在封锁期间，居民不得离开他们的住所，直到他们的中共病毒测试呈阴性。
+门户专家 (The Gateway Pundit) 曾于2020年4月14日报道，在美国项目被关闭后，奥巴马政府后来给武汉病毒研究所提供了370万美元。
 
-该地区一直是中共病毒疫情恶化的中心，在1月份的头三周内，该区报告了超过160宗病例。在污水样本中也发现了较高浓度的病毒，这促使人们担心病毒可能会通过缺乏通风的小区单位中安装不良的管道系统传播。
+从以上的报道可以看出福奇博士明确知道中共病毒的危害性，还曾经为中共研究这些危险的冠状病毒提供资金，但是在中共疫情爆发的时候，他却没有提供真实可靠的信息给当时的川普政府，一直在和中共政府以及WTO配合遮掩中共病毒的危害及真相。
 
-政府在周一早些时候的一份声明中说，在封锁期间，约有7000人接受了病毒检测，发现了13个阳性感染者。截至周日，香港总计报告了10,086例中共病毒病例，有169人死亡。
+福奇博士曾经发表文章指出硫酸羟氯喹可以治疗中共病毒，但是在此次中共病毒全球大流行中他却声称硫酸羟氯喹无效。有很多临床医生已经证实硫酸羟氯喹在初期有很高的疗效，并且安全、廉价，但是仍然遭到了他对这些真实信息的压制。
 
-**新闻来源：**[https://apnews.com/article/pandemics-andrej-babis-coronavirus-pandemic-czech-republic-germany-cb92fa172f477c2008e98536d9523a5f](https://apnews.com/article/pandemics-andrej-babis-coronavirus-pandemic-czech-republic-germany-cb92fa172f477c2008e98536d9523a5f)
+福奇博士已经完全忘记了医生的誓言，俨然成了邪恶和资本驱动的机器。他所作的恶，一定会有公正的评断，真相不会一直被掩盖！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/4c0bb18f-732d-492a-90a1-1b77c8bab9a3-14.jpg)
+参考链接：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+
+
+> [Steve Hilton Report: Dr. Anthony Fauci Is Directly Responsible with Funding the Gain-of-Function Studies that Resulted in Coronavirus Pandemic (VIDEO)](https://www.thegatewaypundit.com/2021/01/steve-hilton-report-dr-anthony-fauci-directly-responsible-funding-gain-function-studies-resulted-coronavirus-pandemic-video/)
+
+
 
 0

@@ -1,45 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】英国会传召汇丰银行CEO能为许智峰讨回公道吗？
-` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/810699/)
+## 恐怖场面 大重启-施瓦布谈大流行病后的网络大流行病
+` Mild Seven` [轉載自GNews](https://gnews.org/zh-hans/811377/)
 
-搜集：文燕
+**2021****年1****月25****日**
 
-撰稿：岁月如歌
+一篇在线德语文章的中文翻译
 
-审稿：卡西欧
+**标题****: ****恐怖场面 ****大重启-****施瓦布谈大流行病后的网络大流行病**
 
-上传：文粤
+**原文标题: ****🇩🇪 [SCHRECKENSSZENARIO Great-Reset-Schwab spricht von Cyber-Pandemie nach der Pandemie](https://www.wochenblick.at/great-reset-schwab-spricht-von-cyber-pandemie-nach-der-pandemie/)**
 
-**立场新闻今日报道：英国会传召汇丰 CEO****　质询许智峰冻结户口事件。汇丰银行冻结立法会前议员许智峰及家人，以至「好邻舍北区教会」的户口，英国国会辖下外交事务委员会将于英国时间周二（26****日）下午两时半（即香港时间晚上十时半）举行会议，汇控行政总裁祈耀年（Noel Quinn****）、首席法规部主管Colin Bell ****将出席接受议员质询。**
-![]()![](https://gnews.org/wp-content/uploads/2021/01/jpg-202101125-11_UdmNb_1200x0-1.jpg)图片：立场新闻
-外交事务委员将要求汇丰高层回应「近期香港发生的一些事情，包括《国安法》的实施，以及部分参与示威人士户口遭冻结的问题。」
+**原文发表日期****：2021****年1****月18****日**
 
-祈耀年早前曾电邮许智峰解释事件，称汇丰在收到警方通知下有法律责任采取行动，在冻结户口一事上并无选择。许智峰表明不接受其解释。
+**原文作者****：**Wochenblick.at
 
-外交事务委员会主席董勤达（Tom Tugendhat）曾表示，企业在处理政治问题上得非常小心，一般而言，不沾政治较好，但部分公司支持价值观跟本身相违的政权，「英国的跨国公司是建立在民主的国际秩序之上，与非民主国家交易最终可能破坏其成功的基础。」《每日电讯报》曾引述董勤达指，在冻结许智峰等人户口一事上，祈耀年意图「卸责」 。
+**翻译:** Mild Seven, 英国伦敦喜庄园
 
-**战友评论：**
+**校对：**拱卒， 英国伦敦喜庄园
 
-香港上海汇丰银行冻结客户账号不只是许智峰及其家人的而已。苹果日报老板黎智英及其高层也被汇丰银行冻结账号。这些行为都是政治打压，汇丰银行在助纣为虐，帮中共港共政府打压香港上街人士。这不是简单的帮凶了，而是涉及侵犯个人财产等法律问题。
+— 全文翻译（中德对照）–
 
-香港上海汇丰银行为何要帮助中共打压港人呢？汇丰银行在中共掠夺香港镇压港人上扮演什么角色？我们从汇丰银行的管理层探个究竟。
+**SCHRECKENSSZENARIO**
 
-王冬胜，，GBS，JP，香港出生，现任香港上海汇丰银行副主席兼行政总裁。汇丰控股有限公司常务总监及集团管理委员会成员。 2020年10月获得金紫荆星章奖。王冬胜先生不止这点头衔，还有很多公职：
-![]()![](https://gnews.org/wp-content/uploads/2021/01/jpg-0125-ss-2.jpg)图片：王冬胜（部分头衔）
-光看王冬胜先生的职务涉及的范围有多广就知道汇丰银行被渗透程度。这只是一个执行董事的身份，覆盖的行业光，也涉及到政治范畴，王先生在国内的政治身份并非一般。
+**Great-Reset-Schwab spricht von Cyber-Pandemie nach der Pandemie**
 
-郭文贵先生不止一次谈论过汇丰银行。中共在英国及汇丰银行的渗透也非常严重。据《星期日邮报》透露，中国共产党的忠实党员目前正在英国领事馆，大学和英国的一些主要公司里工作。一个庞大的数据库泄漏，有195万注册党员，揭示中共恶性影响，是如何延伸到英国的几乎每个角落，包括国防公司，银行和制药巨头等等。据分析，2016年，英国汇丰银行（HSBC）和渣打银行（Standard Chartered）的19家分支机构有600多名中共党员。我们从这数据可以看出，汇丰银行已经严重被渗透，所以汇丰银行配合中共冻结许智峰及其家人，黎智英和其高管的账号也就很正常不过了。即使汇丰银行不想这样做，但是被流氓土匪威胁着也不得不做。
+**恐怖场面**
 
-文贵先生对中共的了解世上唯一。他说跟着共产党走进火葬场，这句话就是说与狼共舞绝对没有好下场。汇丰银行与中共的勾当太多，最终被中共夹持着最坏事。
+**大重启****–****施瓦布谈大流行病后的网络大流行病**
 
-美国大律师@SidneyPowell1指出，汇丰银行作为代理在2019年获得的Dominion投票系统专利权的作抵押。汇丰银行获得了选举、投票、系统、网络和互联网能力等知识产权的专利所有权。专利协议。
+**Umbau der Gesellschaft, Transformation, Neugestaltung, Digitalisierung, das große Zurücksetzen … das sind Worte, die der Gründer des Weltwirtschaftsforums (WEF), Klaus Schwab, gerne nutzt. Der Multimillionär war auch daran beteiligt, die Pandemie mit einem Planspiel vorwegzunehmen – Kritiker sprechen von einer Vorbereitung. Im Juli des Vorjahres legte Schwab nach und warnte vor Cyberangriffen, welche die Stromversorgung lahmlegen könnten. Folglich würden Lieferketten zusammenbrechen und Chaos ausbrechen. Man könnte seine Worte fast schon als Drohung auffassen, da er exakt aufzeigt, was passieren könnte, wenn nicht alle seinen Vorschlägen folgen.**
 
-《港区国安法》在香港强行实施，香港上海汇丰银行竟然是支持的。 2020年6月4日. 中国金融网讯汇丰银行6月3日在其微信企业号发文称，汇丰亚太区行政总裁、全国政协委员（港区）兼香港总商会主席王冬胜日前到“撑国安立法”的街站签名声援。深圳大湾区正在大量招贤纳才，2021年1月8日，香港总商会宣布其旗下公司将提供约300个就业岗位，以响应政府的“大湾区青年就业计划”，企业没聘请一个员工，政府将补助该员工10000港元/月，一直补贴一年半时间。用高薪形式吸引年轻人去就业。以达到支持中共在大湾区的计划。王冬胜先生以香港总商会主席名义支持政府大湾区计划的同时，也得到了汇丰银行的支持。可见汇丰银行在王先生的执行下深深陷入中共的泥潭中，扮演者非常不光彩的角色。由于许智峰先生的努力，英国会终于对汇丰银行CEO进行质询，这是个好的开始，我们希望英国国会能够不畏中共强权魔抓，伸出正义之手，帮助被中共打压的人士，尽其与香港的特殊姻缘大力帮助香港，不只是谴责，而是实际行动。感恩。
+**重建社会、转型、重塑、数字化、大重置****……****这是世界经济论坛（****WEF****）创始人克劳斯****–****施瓦布喜欢用的词。这位百万富翁还参与了对流行病的预测，并进行了一场商业游戏****—****评论家称之为准备。去年****7****月，施瓦布预警由于网络受到攻击而导致电力供应瘫痪，由此引发供应链崩溃，及出现混乱。人们几乎可以把他的话当作是一种威胁，因为他明确指出，如果大家不听从他的警告将会发生什么后果。**
 
-本文仅代表作者个人观点
+Ein Kommentar von Alina Adair
 
-参考链接：[立场新闻](https://www.thestandnews.com/politics/%E8%8B%B1%E5%9C%8B%E6%9C%83%E5%82%B3%E5%8F%AC%E5%8C%AF%E8%B1%90-ceo-%E8%B3%AA%E8%A9%A2%E8%A8%B1%E6%99%BA%E5%B3%AF%E5%87%8D%E7%B5%90%E6%88%B6%E5%8F%A3%E4%BA%8B%E4%BB%B6/)
+Alina Adair的评论
+
+## Wenn Virus nicht reicht, kommt Blackout? 如果病毒还不够，那就停电？
+
+Wenn die Pandemie nicht zum Zusammenbruch der Wirtschaft führt, folgt eine Cyber-Pandemie, die uns den Rest gibt?
+
+如果大流行病没有导致经济崩溃，那么网络大流行病会不会跟着把我们干掉？
+
+In dem WEF Bericht [„Der Aufbau eines cyberresistenten Elektrizitätssektors ist eine Schlüsselpriorität für die Zeit nach COVID“](https://www.weforum.org/agenda/2020/11/cyber-resilient-electricity-sector-priority-post-covid/) heißt es: *„Cyberangriffe auf kritische Energieinfrastrukturen stellen ein Risiko für Energiesysteme, Volkswirtschaften und das Wohl der Gesellschaft dar. Der Macht- und Kontrollverlust in einer großen Region über einen längeren Zeitraum würde schwerwiegende Auswirkungen auf Unternehmen, Regierungen und Gesellschaften im weiteren Sinne haben. In den letzten zehn oder mehr Jahren hat die Elektrizitätsindustrie eine rasche und transformative Digitalisierung ihres Ökosystems durchlaufen, die für die Gewährleistung der Zuverlässigkeit und Kontinuität der Stromversorgung während der Pandemie von entscheidender Bedeutung ist. Diese digitalen Technologien haben das Maß an Interkonnektivität und Konvergenz von Betriebstechnologie (OT) und Informationstechnologie (IT) verbessert –****und erweitern die Cyberangriffsfläche, die böswillige Akteure nutzen können. Ohne Anpassung werden zuvor sichere Systeme und Umgebungen unsicher.****„*
+
+世界经济论坛的报告指出 “建设具有能抗击网络攻击能力的电力部门是后COVID时代的关键优先事项 “，”对关键能源基础设施的网络攻击构成对能源系统、经济和社会稳定的巨大风险。如果一个大区域长期失去权力和控制权，将对企业、政府和社会产生严重的影响。在过去的十几年里，电力行业的生态系统经历了快速的数字化转型，它对确保大流行病期间可靠性和连续性的电力供应至关重要。这些数字技术一方面提高了业务技术(OT)和信息技术(IT)的关联及融合水平—**另一方面也****扩大了对网络恶意攻击范围。如果做出相应的改变，以前安全的系统和环境就会变得不安全**。”
+
+## COVID im Vergleich nur eine kleine Störung 相比之下，COVID只是一个小的干扰
+
+In dem Video anlässlich einer Konferenz im Juli 2020 spricht Schwab maskenfrei davon, dass „wir alle wissen, dass das erschreckende Szenario eines umfassenden Cyberangriffs die Stromversorgung, den Transport, die Krankenhausleistungen **und unsere Gesellschaft insgesamt vollständig zum Erliegen bringen könnte.** Die COVID-19-Krise würde in dieser Hinsicht als kleine Störung im Vergleich zu einem großen Cyberangriff angesehen werden.“
+
+在2020年7月的一次会议上，施瓦布不戴口罩在视频中谈到，”众所周知，全面网络攻击能到之后电力、交通、医院服务以及我们整个社会彻底瘫痪，这是非常可怕的情况。与之相比，COVID-19危机只是一个微不足道的故障而已。”
+
+**Wie man von einer Pandemie **[**auf eine Cyber-Pandemie kommt**](https://www.weforum.org/agenda/2020/07/vaccinate-organization-cyberattack-pandemic/)**, weiß wohl nur Klaus Schwab selbst.** Es ist zu vermuten, dass er diese Warnung ins Spiel bringt, um die Digitalisierung weiter voranzutreiben, die er als Grundvoraussetzung für die von ihm propagierte neue Weltordnung betrachtet. Klaus Schwab präsentiert sich im Video vor dem Schriftzug des Weltwirtschaftsforums und dem „Great Reset“. Während Schwab zu glauben scheint, der Welt Befehle erteilen zu können, hat ihn kein Volk zum Anführer gewählt. Das ändert nichts an der Tatsache, dass ihn weltweit Regierungschefs hofieren und seinen Anweisungen Folge leisten. Denn es geht um viel Geld.
+
+网络流行病的说法是如何从大流行病引申出来的，可能只有克劳斯-施瓦布自己知道。可以推测，他提出这个警告是为了进一步推动数字化，他认为数字化是他所推动的世界新秩序的基本前提。视频中，克劳斯-施瓦布在世界经济论坛字样和 “大重启 “前展示了自己的风采。虽然施瓦布似乎相信他可以对世界发号施令，但没有人推举他为领袖。这并不能改变全世界的政府领导人都在追随他，听从他的命令的事实。因为这关系到很多钱。
+
+Gemeinnützige Organisation 非营利组织
+
+Klaus Schwab gründete seine Stiftung [„Weltwirtschaftsforum“](https://de.wikipedia.org/wiki/Weltwirtschaftsforum#:~:text=Das%20Weltwirtschaftsforum%20%28englisch%20World%20Economic,Davos%20im%20Kanton%20Graub%C3%BCnden%20stattfindet.) („World Economic Forum“) im Jahr 1971, die Geschäftsräume befinden sich im Kanton Genf in der Schweiz. Seitdem lädt er zum jährlichen Treffen, bei dem international führende Wirtschaftsexperten, Politiker, Wissenschaftler, gesellschaftliche Akteure und Journalisten zusammenkommen, um über aktuelle globale Fragen zu diskutieren und um Pläne wie den Great Reset zu schmieden. Die Stiftung WEF gilt als „gemeinnützig“ und erhielt 2015 den Status einer Organisation.
+
+克劳斯-施瓦布于1971年成立了他的基金会–世界经济论坛，在瑞士日内瓦州设有办事处。此后，他每年都会邀请大家参加年会，国际知名的经济学家、政治家、科学家、社会人士和记者齐聚一堂，讨论当前的全球问题，并制定大重置等计划。WEF基金会被认为是 “非营利性 “的，并在2015年被授予组织地位。
+
+Abseits demokratischer Strukturen 远离民主结构
+
+Besonders harte Kritiker bezeichnen diese Organisation nicht zuletzt deshalb als mafiös, weil offenbar superreiche Menschen, die nicht demokratisch gewählt wurden, über fremde Länder entscheiden wollen. **Geld regiert die Welt. Klaus Schwab ist der lebende Beweis dafür. Sein Traum ist die vierte industrielle Revolution, die der rüstig wirkende 82-Jährige wohl unbedingt noch miterleben möchte.** Er erhofft sich, dass er durch die Zerstörung der Wirtschaft in den Industrienationen und das „nachhaltigere“ Verteilen der Wirtschaft weltweit, als Retter der Menschheit in die Geschichtsbücher eingehen wird. Das Gegenteil könnte der Fall sein. Klaus Schwab gilt für manche seiner Gegner, welche die Pläne zum Great Reset kennen ([Wochenblick berichtete](https://www.wochenblick.at/the-great-reset-wenn-verschwoerungstheorien-real-werden/)) als Teufel in Menschengestalt. An seinem Weltwirtschaftsforum hängt ein Rattenschwanz an Unternehmen, die ihm hörig aus der Hand fressen.
+
+特别严厉的批评者称这个组织类似于黑手党，特别是因为没有经过民主选举的超级富豪却想要决定他国的事情。钱是世界的主宰。 克劳斯-施瓦布就是活生生的证明。他的梦想是第四次工业革命，这位看起来春风得意的82岁老人可能决心要活到亲身体验大重启的那一刻。他希望通过破坏工业化国家的经济使其在世界范围内更加 “可持续发展”，他将作为人类的救世主载入史册。其实不会是这样的。克劳斯-施瓦布被一些知道大重置计划的反对者视为人形的魔鬼（Wochenblick报道）。在他的世界经济论坛上，世界上很多的大企业都言听计从。
+
+Mitwirkung an Zerstörung der Wirtschaft参与破坏经济
+
+Der dringende Verdacht, dass Schwab die bewusste Zerstörung der Industrie in allen Industriestaaten nicht nur von langer Hand plante, sondern jetzt auch an ihrer Umsetzung mitwirkt, sollte in Rechtsstaaten dazu beitragen, dass er vor Gericht gestellt wird. Kein Mensch alleine sollte über eine solche Machtfülle verfügen, wie sie Schwab aber auch anderen großen Spielern zugeschrieben wird. Es wäre an der Zeit, dass sich die Justiz dieser Strukturen und den Hintermänner der aktuellen Entwicklungen annimmt und eine genaue Untersuchung anordnet. **Überall auf der Welt werden Existenzen vernichtet, um die Agenda vom Great Reset voranzutreiben. Es ist unbekannt, wie viele Menschenleben bereits durch Suizide oder auch Hunger zu beklagen sind oder noch zu beklagen sein werden.** Wir wollen es nicht hoffen, aber schreiten die Dinge weiter so voran, sind Ausschreitungen und Unruhen zu befürchten.  Noch besteht Hoffnung, dass die Rechtsstaatlichkeit siegt. (AA)
+
+人们迫切地怀疑，施瓦布蓄意破坏所有工业化国家的工业的计划不仅由来已久，而且现在又参与了计划实施的执行活动，这足以让法治国家将他绳之以法。任何一个人都不应该单独拥有这样的权力，这不仅包括施瓦布，也包括其他主要角色。现在是司法机关对这些机构和当前事态发展的幕后黑手进行处理并下令进行彻底调查的时候了。**为了推进大重置计划，世界各地的正常生活正在被摧毁。不知道有多少人已经会因自杀甚至饥饿而失去生命。**我们希望这些都不会发生，但是如果事情继续以这种速度发展下去，骚乱和内乱将难以避免。至少目前法治至上的希望尚存。
 
 0

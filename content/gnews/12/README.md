@@ -1,8 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共立即宣布制裁蓬佩奥及班农等28人（玫瑰看新闻一月二十一日）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/810563/)
+## 福奇&#8211;美国政府最高工资拥有者
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/811560/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00001-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00002-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00003-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00004-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00005-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00006-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00007-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00008-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00009-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00010-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00011-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00012-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00013-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00014-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00015-4.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00016-4.jpg)
+俄罗斯莫斯科喀秋莎农场   仰望七星
+
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/下载-8.png)[jsonline.com](https://www.jsonline.com/story/news/2020/04/01/anthony-fauci-getting-his-own-bobblehead-courtesy-milwaukee-museum/5108592002/)
+福奇的年薪为41.76万美元，是美国政府最高的工资,《新闻最大》（News Max）发文揭示。
+
+文章说，据《福布斯》报道，这位目睹了100多年来世界范围内最严重流行病的人，不仅是美国政府薪酬最高的医生，也是美国400万联邦雇员中薪酬最高的。
+
+80岁的安东尼·福奇最近在乔·拜登任内的首次白宫简报会上诋毁了前总统川普，这位美国首屈一指的传染病专家，在2019年身价达到了417,608美元。
+
+在2020年，一种全球性冠状病毒（中共病毒）席卷了全球，这期间福奇担任了美国国家卫生研究所（NIH）、国家过敏和传染病研究所（NIAID）所长、以及总统首席医学顾问。他眼睁睁地看着超过419,228名美国人死于中共病毒，全世界有210多万人死于病毒大流行。
+
+《福布斯》引用《翻开书本》（OpenTheBooks.com）的《信息自由法》说，福奇的薪水，就连总统40万的年薪还显逊色，都是由美国纳税人来支付。
+
+据《福布斯》报道，从2019年到2024年，如果他没有——或者还没有——得到加薪，并在拜登的第一个任期结束前一直留任，那么他的收入将达到250万美元。
+
+此外，据报道，在2010-2019年的十年里，福奇收获了360万美元，奥巴马政府时期的2014年增加到33.5万美元。
+
+通过关闭（经济）来减缓中共病毒传播是福奇去年春天的创意。前副总统彭斯的年薪是23.51万美元，尽管他是白宫中共病毒特别工作组的组长，但收入却不太高。
+
+根据《福布斯》统计，在其他值得注意的美国政府（官员的）薪酬中：
+
+（疫情）工作组协调员德博拉（Deborah Birx）2019年年薪305,972美元。
+
+众议院议长南希·佩洛西223,500美元。
+
+最高法院首席大法官约翰·罗伯茨270,700美元。
+
+众议院议员和参议员174,000美元。
+
+四星军事将领268,000美元。
+
+据《福布斯》报道，美国行政部门有210万联邦机构雇员，140万军人，50万邮政雇员。
+
+最高的薪水，换来了最糟糕的抗疫局面，有脸站在镜头前推卸责任！
+千方百计地阻止天使闫博士使用羟氯喹的建议，大肆鼓动疫苗研制的投入，主张关闭（经济），一年过去了，唯有“疫苗经济”在看涨，这都是邪共预先设计的套路。
+
+福奇，这位身居要职、大权在握、良心泯灭的伪科学家是典型的中共鼓手！
+
+参考链接：
+
+[https://www.newsmax.com/newsfront/doctor-anthony-fauci-nih-covid19/2021/01/25/id/1007077/](https://www.newsmax.com/newsfront/doctor-anthony-fauci-nih-covid19/2021/01/25/id/1007077/)
+
 0
