@@ -1,49 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 喀秋莎新闻参考- 2021年1月23日 (星期六)
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/804688/)
+## 爆料革命战友被共产党迫害的证据
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/807349/)
 
-俄罗斯莫斯科喀秋莎农场 土星
+在2021年1月6日的大选直播中，文贵先生与战友小皮匠针对墙内战友被喝茶的情况展开了探讨。其中提到尽管遭到了国安人员以暴力手段进行的胁迫，但多位战友都拒绝了与国安合作做出诋毁爆料革命的行为。
+视频源: [https://gtv.org/video/id=5ff5c2d8f579a75e0bc6d010](https://gtv.org/video/id=5ff5c2d8f579a75e0bc6d010) (1:22:43-1:24:31,1:28:10-1:31:53)
 
-编辑上传 星河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/789456123-10.jpg)
-一、新中国联邦新闻
 
-1. “路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=oCxg406Fmsg)、[晚间](https://www.youtube.com/watch?v=8zIbVRKOmP0)）:
+**Evidence of CCP’s Persecution of BIAs**
 
-Ⅰ. 中共大规模入侵台湾防空识别区。随即，美国国务院网站发布声明，直指中共对台湾的军事压力破坏地区和平与稳定。并表示，美国将与朋友和盟友站在一起，以促进在印度太平洋地区的共同繁荣，安全和价值观，其中包括加深与民主台湾的联系。习自喻为取得1月20日“终极之战”的胜利，并将下一步瞄准台湾。美国在声明中表态美方将恪守《三个联合公报》，这意味着美方目前只承认中共是中国唯一合法政权。
+**爆料革命战友被共产党迫害的证据**
 
-Ⅱ. 福克斯新闻１月23日发文称，拜登总统在一个问题上同意川普政府的意见，即中共国对维吾尔族犯下种族灭绝罪。拜登认定将中共定为反人类罪是最重要的表态，这将给习近平带来巨大的压力，并将使习摆脱困局的方式局限到“武统台湾”。胡派、江派和王派深知对台军事行动，将使自己在美国的大量财富受到制裁，这将加剧中共党内斗争。
+*(1:22:43-1:24:31)*
 
-Ⅲ. 世卫组织官员首次表态中共病毒可能来自实验室泄漏，同时美国左派媒体《华尔街日报》也发文说，拜登政府重新加入世卫组织后要推动世卫组织调查病毒来源真相。美国两党在威胁到美国安全的问题上，会彼此团结，一致对外。
+**Xiao Pijiang:** Look at this picture. It was attached in a message from a staff member of the MSS of P.R.C. to a brother-in-arms who was asked to drink tea (summoned to have an investigative chat) with them. The BIA (Brothers-in-arms) was asked to comment on GTV to slander the Whistleblower Movement and Mr. Guo, saying that they scammed the hard-earned money out of the Old-Hundred-Names, which means that they (Ministry of State Security) were trying to frame us (Whistleblower Movement).
 
-Ⅳ.1月23日，中共国最高人民检察院发布消息称，辽宁省政协原党组副书记、副主席刘国强涉嫌受贿一案，由国家监察委员会调查终结，移送检察机关审查起诉。事件表明，习现在牢牢掌控中纪委，准备以反腐为名进行党内大清洗，要求党内官员们保持政治正确，以此清洗党内其他派系势力。
+**小皮匠：**这个图片，这个是国安的一个工作人员,他给被喝茶的一位战友发的信息。说你先去GTV的官方平台上你先去留言，你去骂爆料革命、骂郭先生，说他们骗了老百姓们的血汗钱呀什么什么的，给咱们栽赃陷害。
 
-2. 因中共肺炎疫情反复，港府自1月23日起封锁佐敦区内四条街道，强制区内约一万名市民接受核酸检测，期间居民不可进出，商店停业。这是香港首次以封锁区域方式应对疫情。
+Next, this BIA was asked to continue to comment on GTV with four other GTV accounts, and to send a screenshot of his comments to the MSS to prove that his task was completed.
 
-3. 自2019年香港反修例运动以来，多次参加民主派示威的“王婆婆”王凤瑶，当地时间1月22日晚在香港将军澳尚德邨对面一灯位高举标语期间，被港警以涉嫌妨碍公务为由再次缉捕。
+接下来又要求这位战友用另外四个GTV的账号继续发言，然后发言之后还得截屏，把这个信息告诉国安的说，你交给我的任务完成了。
 
-4. 中共为抑制房地产大幅下滑给银行带来大规模坏帐，中共央行于去年12月31日联合银保监会发布《关于建立银行业金融机构房地产贷款集中管理制度》。一周前招商银行深圳分行、广州分行及其下辖广东省内各家分支行已暂停按揭贷款放款，而对外前端业务层面则声称“节制接单”。其他股份行中，光大银行在深圳地区分行和广发银行已经暂停按揭贷款。
+Only in this way could the MSS let this BIA pass. This was a nationwide, integrated action, and each victim was forced to cooperate with the government to participate in the so-called “safeguarding of their own rights”. This was purely the consistent style of the CCP, forcing our brothers-in-arms to turn their coats. So sometimes when we see some (Wumao) remarks on GTV, they may be, very likely, from some BIAs who were forced to do that by the MSS.
 
-5. 1月23日，中共国务院联防联控机制印发《冬春季农村地区新冠肺炎疫情防控工作方案》，规定今天春节外地返回农村地区的人员，需要持核酸检测阴性证明返乡，并进行14天居家健康监测。另据消息，大陆部分城市拟规定药店限制出售治疗感冒或发热症状的药剂，以迫使发生上述症状的民众赴医疗单位就诊。
+这样国安才会给战友一个关注啊，并且这是一个全国性的一个整体行动，并且每个受害者都要求必须得配合政府去参与所谓的“维护自身权益”。这纯属于CCP的一贯作风吧，在这儿逼迫着咱们的战友们去做一些反水的活动，所以咱们有时候经常看到在GTV上的一些这样的言论，可能是、非常有可能是国安逼迫做的。
 
-6. 1月23日，加拿大外交部表示，加拿大驻华大使鲍达民获准再和加拿大前外交官康明凯进行”视频探视”，这是康明凯被中共扣押后，第3次获安排”领事视频探视”。
+Khaleesi, who sent us this message? At that time, when I saw the messages from some BIAs, to be honest, I didn’t feel shocked anymore. Because I’ve followed the Whistleblower Movement and Uncle Guo for a long time, I felt that they were just a bunch of jerks after seeing the message, but their actions have never exceeded my expectations. Brother Seven might not have been very angry when he saw this picture. Is there something else behind the scenes, Brother Seven? Can you explain some?
 
-7. 根据美国专利商标局于1月23日发布的报告，因为中共政府鼓励和补贴等非市场因素，导致中共国境内和来自中共的专利申请迅速攀升。中共统治集团并不是由人民选举产生的，其非常渴望证明其合法性。在经济和科技方面的成就是中共政权用来证明其领导能力和执政合法性的最重要工具。中共宣传部门将大量专利申请描述为重大科技成就，帮助“抵消”西方国家指控的盗窃知识产权的指控。
+卡丽熙，这是哪位战友发上来的信息？当时我看到战友的信息我都，说实话我已经不觉得震撼，因为之前听郭叔之前更长时间的爆料，对这种信息就感觉他们虽然很流氓，但是流氓到几乎都是能想象的程度了。七哥估计看到这个照片的时候也估计不会很生气，七哥在这里边是不是背后还有一些，能不能解释解释？
 
-8. 中共针对网络舆论的监管力度再次升级，其国家网信办1月22日发布新修订的《互联网用户公众账号信息服务管理规定》，特别针对公众账号信息服务平台和生产运营者增加23条相应监管内容。
+*(1:28:10-1:31:53)*
 
-9.Natrue杂志1月21日发表《快速传播的COVID-19变异体可躲避免疫反应》一文，证明中共病毒变异体可以绕开人体免疫反应，降低疫苗有效性。
+**Mr. Miles Guo:** We have a family of brothers-in-arms who are from Guangxi who were asked by the MSS of P.R.C. to drink tea (have an investigative talk) with them. The family has six or seven members. At first it was his daughter who was arrested. The girl supports the Whistleblower Movement. Then his brother was arrested. Later his parents were arrested. And finally his brother’s children were arrested. All of them support the Whistleblower Movement.
 
-二、世界新闻
+**郭先生：**我们有一个战友一家人全是广西的，被国安找去喝茶了。一家六七口口，一开始抓的先是他家的闺女，闺女是支持爆料革命的，后来又把他哥给抓了，后来又把他爸他妈给抓了，然后他哥家的孩子也给抓了，全支持爆料革命的。
 
-1. 1月22日，美国拜登总统签署行政令，加速把疫情纾困支票送到有困难的美国家庭的手中，给那些依赖校餐的孩子提供更多的食品补助。这是新政府为缓解美国家庭困难，等待国会完成有关1.9万亿美元的经济刺激方案谈判而作出的一项努力。
+I believe you guys know them, they have made many videos for us. The family was forced to act according to the script fabricated by the MSS, such as: how Miles Guo cheated you; how Miles Guo scammed your money. They even forced his daughter to say that she had nude video chats with Miles Guo. But the girl refused, saying that Brother Seven never asked her to do that.
 
-2. 台湾国防部表示，继1月23日有8架中共轰炸机和4架战斗机飞入台湾防区之后，1月24日又有15架飞机飞入同一空域。此次扰台中共派出6架歼-10战斗机、4架歼-16战斗机、2架苏-30战斗机、1架Y-8侦察机和2架Y-8反潜机。台湾附近的紧张局势陡然上升。
+我相信你们知道，还给我们做过很多视频，就这样这一家人家就给编剧本，你怎么说郭文贵骗你的，然后这郭文贵怎么被骗的、骗你钱，还让你闺女脱衣服裸聊，她说我没有啊，七哥没让我这样。
 
-3. 媒体透露，美国司法部主管国安事务的助理部长德默斯等高官，最近数月都在讨论一款特赦计划， 学者若如实交代自己收取外国资助的情况，可以无需面对刑责。美国政府希望，此举能鼓励研究人员坦白从宽，有助调查部门掌握外国科研渗透的状况。
+The staff members asked her to read the script that they had written. They spoke with her with a voice changer, and the voice was totally the same as mine. And this BIA told me about something that was too exaggerated and beyond her imagination –that she was secretly video-recorded for a long time. Then they showed her the video and asked her to dub for the video with some words they prepared. These are all too common.
 
-4. 美国国际媒体署的署理首席执行官赵克露1月22日已解雇自由欧洲电台总监科茨（Victoria Coates）、自由亚洲电台主席叶望辉（Stephen Yates）及中东广播网络主席利平（Ted Lipien）。
+欸，他说你看啊，我们已经编好了，用我的那个变声器，旁边那个人当场说给他听，这边说话跟我一模一样，更让人这个战友告诉我说，夸张到什么程度，她说七哥我都没有想到的事情，我过去我很长时间被他偷录了一段就是个人的视频给放在那里，他说让我跟那段视频然后他说还要配一些话，这都太正常了。
 
-0
+This family was amazing. Truth be told, I’m very unhappy about that. I said that she should have done whatever they asked her to do, but she refused, saying that she can’t do that for the life of her. And finally the MSS gave in. There were too many such stories.
+
+最后这一家战友很了不起的。我说的是实话，我很不高兴，我说他让你干啥你就干啥，结果她坚决不干，七哥你打死我也不能干这事，我们死也不干。最后也就拉倒、不了了之了，就这事太多了。
+
+Do you remember what I exposed three years ago? About one of my bodyguards who returned back home from the U.S. to get married. He was called to the police at night after he finished his work in Zhengquan. He was constantly beaten by the police from as soon as he arrived. He himself was a Chinese wrestling champion and a boxing champion, so he had great resistance, and the policemen were exhausted after beating him. After the abuse, they asked him to film a video, in which he must say that Miles Guo hid in the 18th floor in New York, living in fear every day. He ran to his room after hearing the police siren every time. He often cried in the bathroom. That was what they asked him to say in the video.
+
+我三年前，你记得我爆料吗，就我们一个保镖从美国回去的保镖，是回去结婚去了，被给叫去以后，天天晚上，白天在证泉上班，晚上叫去公安上，进去先打。他本身是中国的摔跤冠军和拳击冠军，他也抗揍，就把揍他的警察累得呼哧带喘，打完以后就是说你看啊，你要配合我录像，郭文贵在纽约啊，在十八楼啊，他天天恐惧，一听到警车就吓到跑到屋里去，一听到警车叫吓得他就躲到屋里去，经常在洗手间哭啊，完了之后让他出来说这段话。
+
+The video took two weeks to make, but nothing was released in the end. It was a policeman on our side who told me this, not the bodyguard. The policeman said that this dude was so strong that he refused for the life of him to work with them. I’ve talked about this in a live broadcast before. It happened three years ago.
+
+就录这录了一俩个星期，但是最后它为啥没给放出来呢。是内部警察告诉了我这个事儿，不是我这个保镖告诉我的。这个警察说你这保镖还真能，打死也不配合，那个保镖打死也没配合他，但是这个警察告诉了我这个事，所以我有一次直播时我讲了，这是三年前的事儿了。
+
+Another thing, in the second half of 2018, the WM-Extermination Task Force summoned more than a dozen Hong Kong celebrities, including Joey Yung and some same-level ones, the ones who had met me before, as well as some older and obsolete stars. They were told that the Anti-WM Group knew they had met Miles Guo before, and they were asked to say that Miles Guo had molested them. Not only that, they were also asked to say that some WM supporters in HK, who have kept in touch with me but you don’t know their names, had molested them. These celebrities truly had balls that they refused for the lives of them to work with the Anti-WM Group, even when they were coerced by the mafia and black police in HK. This was an old story.
+
+另外的就是大概在2018年下半年，“灭爆小组”就香港的那波人找出香港十几个明星啊，明星包括容祖儿都包含里边，那个级别的，容祖儿的还有什么，就是跟我见过面的，还有那年龄稍大的几个人，还有那几个老明星都找出来了。说你们都跟郭文贵见过面我们都了解你们，你们要说出来郭文贵性骚扰你们；然后不但这个，就把香港几个支持咱“爆料革命”的人、你们都不知道的人，一直给我联系的，说这几个人也骚扰你们了。这几个明星还真有点脸，还真有点人性，坚决不干，打死也不干，黑社会逼、警察逼也不干，这都是老菜了。
+
+Today, the MSS will use many tricks. You’ve seen what happened with VOG and the Phoenix Base. You cannot imagine what had happened in last 48 hours. Even I could not have imagined what happened. Yesterday both Lude and our scientist (Dr. Yan) were shocked when they heard it.
+
+今天这个国保这个招儿，这个弄一定会很多，你看VOG、你看凤凰基地发生了什么事情，你不敢想象昨天前48小时发生了啥事儿，你们都不敢想象，就连我都不敢想象，昨天路德听了路德也傻了、科学家也傻了，
+
+My goodness, my brothers and sisters. What your Brother Seven experienced are beyond your imagination. The contributions of many BIAs in the Whistleblower Movement are beyond your imagination. Alright? Thank you!
+
+哎哟，天哪天哪，兄弟姐妹们，你七哥经历的事情，都是你们不敢想象的，爆料革命当中很多战友付出的都是你们不敢想象的。好吧？谢谢，谢谢！
+
+*鸣谢：感谢巴黎七星农场、喜马拉雅的馍夹肉、Maarago提供中文文本于[https://gnews.org/zh-hans/728957/](https://gnews.org/zh-hans/728957/)*
+
+*翻译:【Winston Jackson】 校对：【noraTina】 视频解碼：【恒久忍耐】字幕：【Pamila（文明）】选题：【Isaiah4031】 编辑：【Mark】*
+
+*喜马拉雅玫瑰园小队出品*
+
+*以上翻译整理仅代表作者个人观点，不代表**GNEWS**或其他方立场。*
+
+*敬请关注: 
+GTV: [喜马拉雅玫瑰园中文频道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)  
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/) 
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)*
+
++2

@@ -1,24 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国超2500万例中共病毒确诊病例
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/804475/)
+## 国务院文件披露彭斯幕僚长推荐弗兰克·伦茨担任国务卿相关职务
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/807420/)
 
-- 编辑：Victor Torres
+翻译：康州盘古-Bruce
+
+校对：康州盘古-Antsee-GTV
+
+审核：康州盘古-Truemanman
+
+《国家脉动》看到一份流出的美国国务院文件似乎显示，前副总统迈克·彭斯的幕僚长马克·肖特（Marc Short）推荐弗兰克·伦茨（Frank Luntz）担任负责公共外交和公共事务的副国务卿一职。
+
+伦茨是由肖特推荐担任这个职位的，该职位旨在 “领导美国的公共外交外联工作，其中包括打击恐怖主义和暴力极端主义的信息传递”，川普总统认为他对彭斯1月6日的选民认证负有部分责任，他的白宫访问权也因此被取消。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/图片2-13.png)*国务院泄露的文件透露了伦茨的建议*
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+这些披露来自一份泄露的 “高度机密 “的国务院文件，该文件概述了肖特担任这一职务的理由是伦茨之前从事 “公关 “工作，并担任 “共和党政治民意调查员”。
 
-**西班牙2021年1月24日电/西喜社——**自流行病开始以来，美国已经超过了2500万例中共病毒的确诊病例。约翰·霍普金斯大学周日报告的新的里程碑是一个严峻的提醒，中共病毒广泛影响美国，远远超过任何其他国家的确诊病例和死亡。
+（文件中描述）：”通过向外国公众提供信息并施加影响，支持实现美国外交政策的目标和宗旨，推进国家利益，加强国家安全，[文件被遮挡缺失]通过扩大和加强美国人民和政府与世界其他地区公民之间的关系。”该文件补充说，这是该职位的 “核心任务”。
 
-美国约占全球每四例报告和每五例死亡中的一例。印度的病例数居第二位，约为1070万。
+伦茨也曾在2017年在推特上公开讨好肖特。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/图片3-13.png)伦茨关于肖特的推特 
 
-美国的新病例数量最近有放缓的迹象，过去一周平均每天报告17.6万例，低于1月初的24.4万例。该国首例感染病例被确诊于几乎整整一年前。
 
-**新闻来源：**[https://apnews.com/article/europe-coronavirus-pandemic-new-zealand-1b6085aa5fe229d4ad7caba33dd43cb9](https://apnews.com/article/europe-coronavirus-pandemic-new-zealand-1b6085aa5fe229d4ad7caba33dd43cb9)
+其他一些“职务”推荐人有：纽特·金里奇（前众议员议长）、参议员詹姆斯·兰克福德、雷克斯·蒂勒森（前国务卿）、斯图尔特·乔利（Stuart Jolly）、吉姆·卡拉法诺（道格拉斯和莎拉·艾莉森对外政策研究中心）、布里奇·科尔比和比尔·乔治。其他候选人包括,斯图尔特·霍利徳、约翰·奎尔奇、比尔·罗迪、J.D.戈登、爱德华·麦克法登、威廉·奥格本、布伦达·巴威克和希瑟·霍普金斯。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/d8c2412b-ca14-40ca-83f8-29dd6c8da53c-38.jpg)
+原文作者：莱希姆·卡萨姆（Raheem Kassam），娜塔丽·温特斯（Natalie Winters）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+发布时间：2021年1月23日
 
-0
+文章链接：[https://thenationalpulse.com/exclusive/state-dept-doc-secretary-rec/](https://thenationalpulse.com/exclusive/state-dept-doc-secretary-rec/)
+
++2
