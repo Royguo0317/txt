@@ -1,24 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 用央视新闻推出的总书记一周核验习近平总书记过去一周未发声
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/809504/)
+## 欧盟施压阿斯利康提供更多疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/810146/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/封面-37.png)
-撰稿：巴黎七星农场；审核：喜马拉雅的馍夹肉；校对：Maarago
+- 编辑：Victor Torres
 
-郭文贵先生在[2021年1月24日 文贵直播](https://gtv.org/video/id=600d705db819717e79adcc50)中透露出来了重要情报，其中一条就是郭先生提到的［**我可以今天负责人的告诉大家，最起码过去在六天来习近平从来没有一次声音传出来过，过去两周来习近平没有一次亲笔签字，全部是打印版，这在习近平执政以来从来没有过。**］
 
-然后有巧不巧的就看到了中央广播电视总台央视新闻 2021年01月25日 09:45发布的[时政微周刊丨总书记的一周（1月18日—1月24日）](https://news.cctv.com/2021/01/25/ARTItco5aj8E2VkHpfNEem1a210125.shtml)，专门做的习总书记一周活动的汇报——
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-中央电视台作的这份习总书记周报里倒是再一次验证了郭先生视频中提到的内容——在1月18日至1月24日这段时间内，习近平总书记的确是没有正式对外发出他自己的声音。
+**西班牙2021年1月25日电/西喜社——**欧盟正在向制药公司阿斯利康施压，要求其向27个国家提供更多的疫苗，并坚持最初的承诺，尤其是在其投资提高产能之后。
 
-那么视频里的那一句疑似习近平总书记喊出来的“加油”算不算他的原声呢？不算，因为我们可以对照已经不是确认造假的往期的**[时政微周刊丨总书记的一周（2020年12月28日——2021年1月3日）](https://search.cctv.com/link_p.php?targetpage=https://news.cctv.com/2021/01/04/ARTIV6HHRT3TeDaUnv5QVAKx210104.shtml&amp;point=web_normal&amp;ref=https%3A%2F%2Fsearch.cctv.com%2Fsearch.php%3Fqtext%3D%E6%80%BB%E4%B9%A6%E8%AE%B0%E7%9A%84%E4%B8%80%E5%91%A8%26type%3Dweb%26sort%3Drelevance%26vtime%3D%26datepid%3D1%26channel%3D%26page%3D1)**来源：新闻发布时间：2021-01-04 07:58:35
+欧盟委员会主席乌尔苏拉·冯·德·莱恩(Ursula von der Leyen)周一与阿斯利康的负责人举行了紧急会谈。欧盟各国也在与阿斯利康会面，推动其提高产量，实现合同目标。
 
-这里边是清清楚楚的习总书记原声！怎么才算是习近平总书记的原声呢？在我看来，应该是以其总书记身份发出的官方公告、正式会面或元旦献词这种官方正式活动，而不是[时政微周刊丨总书记的一周（1月18日—1月24日）](https://news.cctv.com/2021/01/25/ARTItco5aj8E2VkHpfNEem1a210125.shtml)视频里的一句疑似习总书记本人的那声“加油”。
+欧洲药品管理局定于周五对牛津-阿斯利康的中共病毒疫苗进行审查，该疫苗的批准备受关注。
 
-既然郭文贵先生美国当地时间2021年1月24日已经说出了习近平总书记在过去的六天来习近平从来没有一次声音传出来过，既然中央电视台每周都做总书记的一周，那么在接下来的一周，习近平总书记到底会不会出原声呢？到底会不会出画面呢？全军、全党、全国人民、全世界人民都期待天线宝宝、斩监候的习近平总书记能够露一下脸，在接下来的一周内，央视和新华社到底是要假造习总书记的视频呢？还是要造假习总书记的视频呢？这是一个问题！
+整个欧盟的领导人正因为该集团缓慢地推出疫苗接种计划而承受沉重的压力，特别是与以色列或英国相比。
 
-（文章内容仅代表作者个人观点）
+**新闻来源：**[https://apnews.com/article/pandemics-andrej-babis-coronavirus-pandemic-czech-republic-germany-cb92fa172f477c2008e98536d9523a5f](https://apnews.com/article/pandemics-andrej-babis-coronavirus-pandemic-czech-republic-germany-cb92fa172f477c2008e98536d9523a5f)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/4ed06a27-957b-4023-a6de-33a29deff94a-17.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
 0

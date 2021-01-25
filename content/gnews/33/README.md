@@ -1,62 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 1/25/2021 财经快讯：谷歌威胁澳大利亚，英国首相渴望新英美贸易协定
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/809316/)
+## 百余位专家因人权问题要求暂停欧中投资协议
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/809568/)
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/Picture111.jpg)
-图片来源： https://www.bbc.com
+- 编辑：Victor Torres
 
-**1.谷歌威胁在澳停止搜索服务**
 
-谷歌周五威胁说，如果澳大利亚政府实施让科技巨头为新闻内容付费的法规条例，谷歌将停止对澳大利亚提供搜索服务。澳大利亚总理斯科特·莫里森（Scott Morrison）迅速回击，称不会因威胁做出让步。在22日的澳大利亚议会听证会上，谷歌澳大利亚和新西兰董事总经理梅尔·席尔瓦（Mel Silva）认为新规定不可行。在澳大利亚制度下，如果在线平台和新闻业务无法就新闻价格达成一致，将由仲裁小组做出决定。席尔瓦（Silva）表示，谷歌愿意付费给新闻发布商，但不能按照新规定的要求，为链接和摘要付费。她说这种“有偏见的仲裁模式”给谷歌带来了难以控制的财务和运营风险。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-[https://www.newsmax.com/t/newsmax/article/1006809/8](https://www.newsmax.com/t/newsmax/article/1006809/8)
+**西班牙2021年1月25日电/西喜社——**据DER SPIEGEL周一报道，有一百多名专家要求终止欧盟—中国投资协议。他们将中国严重侵犯人权和压制民主运动作为理由。
 
-**2.英国首相渴望新的英美贸易协定**
+过去几天，反对该协议的广泛阵线已经形成。全球100多位著名的中国问题专家、研究人员和人权活动家呼吁暂停欧盟—中国全面投资协定（CAI）。
 
-英国首相鲍里斯·约翰逊（Boris Johnson）周六向拜登总统（Joe Biden）表示渴望达成新的英美贸易协定。英国在脱欧过渡期结束后恢复了对本国贸易政策的自主权。唐宁街当日发表声明说，拜登和约翰逊讨论了两国之间潜在的自由贸易协定的好处，约翰逊重申他打算尽快解决现有贸易问题的意图。白宫新闻发言人詹·普萨基（Jen Psaki）表示，目前由于拜登的注意力集中在控制CCP病毒疫情和敦促国会通过1.9万亿美元的救助计划，政府还没有把新贸易协定纳入具体议程。
+“尽管有证据表明存在种族清洗、强迫劳动和其他严重侵犯人权的行为，但欧洲机构的领导层还是选择签署了一项协议，该协议没有要求中国政府做出任何有意义的承诺，以保证结束反人类罪或奴役罪。”致欧盟机构的公开信写道。
 
-[https://www.newsmax.com/t/newsmax/article/1006932/8](https://www.newsmax.com/t/newsmax/article/1006932/8)
+12月30日，欧盟委员会主席乌苏拉·冯德莱恩宣布与中国历时七年的谈判圆满结束。”今天的协议是我们与中国关系的重要里程碑，也是我们基于价值观的贸易议程的重要里程碑，”冯德莱恩说。
 
-**3.德国敦促台湾帮助缓解汽车芯片短缺**
+该协议旨在改善欧洲企业进入中国市场的机会，确保公平竞争。协议尚未生效，还必须得到欧洲议会的批准。公开信的签署方急于阻止批准。
 
-路透台北1月24日报道，德国已要求台湾说服台湾制造商帮助缓解汽车产业半导体芯片的短缺。由于芯片的交付问题，世界各地的汽车制造商都在关闭组装线。芯片短缺影响了大众，福特，斯巴鲁，丰田，日产汽车，菲亚特克莱斯勒和其他汽车制造商。德国经济部长彼得·阿尔特迈尔（Peter Altmaier）要求台湾经济部长王美花在与全球最大的合同芯片制造商和德国供应商之一的台积电（TSMC）的会谈中解决这个问题，其目标是在短期和中期实现更多的芯片产能和交付。台积电在一份声明中说，汽车产业的芯片短缺问题和解决产能支持是台积电的首要任务。
+这笔交易 “建立在对中国共产党本质的一套天真的假设之上”，信中写道，”巩固了欧洲现有的对华战略依赖，并与欧洲的核心价值观背道而驰”。作者写道，甚至目前的依赖程度也 “令人震惊”。他们认为，中共国有企业利用2008年金融危机后的时期，”购买了欧洲关键基础设施的大量股权”。
 
-[https://www.reuters.com/article/us-taiwan-autos-chips/germany-urges-taiwan-to-help-ease-auto-chip-shortage-idUSKBN29T04V](https://www.reuters.com/article/us-taiwan-autos-chips/germany-urges-taiwan-to-help-ease-auto-chip-shortage-idUSKBN29T04V)
+投资协议的支持者提出的论点是，中国在谈判过程中被迫在劳工权利方面做出重大让步，但这些论点被公开信的作者断然拒绝。他们写道：“这些让步非常模糊，基本上毫无用处。”
 
-**4.疫苗推出缓慢推迟了世界经济复苏**
+“此外，近年来中共经常违背承诺，想象中共会在这些投资和贸易问题上履行承诺是妄想。”信中写道。作为例子，作者们列举了香港镇压民运、对穆斯林维吾尔族的强制劳改营、北京最近对澳大利亚的制裁以及对台湾方向的剑拔弩张。
 
-彭博社报道，由于病毒感染激增，疫苗接种需要时间，尽管全球经济增长仍有望从去年的衰退中反弹，但可能需要更长的时间，而且增长不如预期。世界银行本月已将2021年全球经济增长预测下调至4％。今年年初全球经济活动进展缓慢。但是金融市场继续在政府刺激下反弹，上周全球股市创历史新高，疫苗的推出将推动复苏。
+签名者中除了居住在德国的世界维吾尔大会主席多尔昆·艾萨外，还有来自伦敦经济学院和普林斯顿大学的研究人员。意大利前外交部长朱利奥·泰尔齐·迪·圣阿加塔和威斯敏斯特大学教授、中国性别和人权问题专家哈里特·埃文斯也加入了这项努力。
 
-[https://www.bloomberg.com/news/articles/2021-01-24/world-s-economic-recovery-gets-delayed-by-slow-vaccine-rollouts](https://www.bloomberg.com/news/articles/2021-01-24/world-s-economic-recovery-gets-delayed-by-slow-vaccine-rollouts)
+签署人呼吁欧盟 “立即退出中国—欧盟全面投资协定”，并搁置任何进一步的谈判，直到中国的人权状况取得 “实质性和可核查的 “进展。
 
-**5.伊拉克将削减石油产量**
+这封信的发起人之一、诺丁汉大学亚洲研究所高级研究员安德烈亚斯·富尔达说：”欧盟委员会的行为就好像可以把政治和经济分开一样，在中国的情况下，这是不可能的。”
 
-伊拉克负责销售石油的国有公司称，该国计划在1月和2月削减石油产量，以弥补去年违反OPEC+配额的影响。
+德国马歇尔基金亚洲项目高级研究员、中国问题专家马雷克·奥尔贝格同样指责布鲁塞尔的做法很天真。”他们正试图将该协议作为一个成功的例子来推销。由此可见，人们对中共作为条约伙伴的可靠性缺乏了解。”
 
-SOMO的副负责人阿里·尼扎尔（Ali Nizar）表示，该国将在这两个月内每日生产约360万桶石油。彭博汇编的数据显示，这将是自2015年初以来的最低水平。油轮跟踪数据表明，伊拉克已经减少了原油销售。彭博社汇编的数据显示，在一月的前15天，出口量每天降至略高于300万桶。沙特阿拉伯本月早些时候采取了类似的行动，由于病毒仍在肆虐，它将在2月和3月每天减产100万桶，这一出人意料的举动导致油价上涨。
+布拉格欧洲价值中心主任雅各布·詹达（Jakub Janda）认为，欧洲的主权正处于危险之中，他还对德国在谈判中的角色提出批评。”德国在欧盟内部推动协议的达成，从而将某些公司的利己主义贪婪置于欧洲地缘政治安全之上。”
 
-[https://www.bloomberg.com/news/articles/2021-01-24/iraq-says-it-will-lower-oil-output-to-compensate-for-opec-breach](https://www.bloomberg.com/news/articles/2021-01-24/iraq-says-it-will-lower-oil-output-to-compensate-for-opec-breach)
+欧盟委员会认为，该条约将在2022年初完成。确切的文本将很快公布。
 
-**6**.**多家银行被曝停贷**
+**新闻来源：**[https://www.spiegel.de/international/business/human-rights-concerns-experts-demand-suspension-of-eu-china-investment-deal-a-f81c9641-9ed6-4a59-bfb8-5a4508201bfd-amp?\_\_twitter\_impression=true](https://www.spiegel.de/international/business/human-rights-concerns-experts-demand-suspension-of-eu-china-investment-deal-a-f81c9641-9ed6-4a59-bfb8-5a4508201bfd-amp?__twitter_impression=true)
 
-年初一个月不到，就已经有各地多家银行传出消息，对于房贷暂停发放。受房地产贷款“两道红线”影响，近日广东多家股份行暂停按揭贷款。招商银行深圳分行，广州分行及其下辖省内各家分支行已于一周前暂停按揭贷款放款。从中介按揭部获得的最新信息表示，招商银行深圳分行虽然暂未表示停贷，但放款速度很慢。光大在深圳地区已经暂停按揭贷款，广发银行也表示不接单。四大行现在房贷放款周期也已拉长到一个月左右，而且贷款申请能否被批准也难保证。
-
-[https://finance.sina.com.cn/money/bank/bank\_hydt/2021-01-24/doc-ikftpnny1315232.shtml](https://finance.sina.com.cn/money/bank/bank_hydt/2021-01-24/doc-ikftpnny1315232.shtml)
-
-**7.中国投资人转向香港股市**
-
-路透上海1月22日 – 随着中国蓝筹股指数逼近历史高位，因为对估值泡沫的担忧加剧，一些投资者转向在香港上市的中资企业股票，尤其是在美国交易所将这些企业退市，美国投资者被迫卖出这些股票之际。投资者通过内地与香港股市联通机制购买的股票周二创纪录高位，达到266亿港元 (34.3亿美元)，截至1月21日，今年以来南下资金总额已达2,218亿港元。
-
-[https://cn.reuters.com/article/graphic-china-stock-bubble-risk-0123-idCNKBS29S0F4](https://cn.reuters.com/article/graphic-china-stock-bubble-risk-0123-idCNKBS29S0F4)
-
-[金融团队]
-
-素材搜集: 文罡、Sharon、Totoro
-
-翻译写作: Kate
-
-校对: 小蚂蚁在行动
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
 0

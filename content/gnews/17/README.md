@@ -1,36 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美新任防长首次与日韩盟友通话
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/809710/)
+## 中共国授权海岸警卫队在必要时向外国船只开火
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/809830/)
 
-- 编辑：Victor Torres
+*新闻来源：Sideny Morning Herald《悉尼晨驱报》| 作者：Yew Lun Tian 游润恬 | 发布时间：2021年1月22日*
+
+*翻译/简评：Cathy r |校对：Linda B |审核：freedust |Page：小雨*
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/012502-1.jpg)
+
+**简评：**
+
+拜登上台以后，中共迫不及待地在周五通过一项法律，第一次明确允许其海岸警卫队向外国船只开火，这使中共国周围有争议的水域更加动荡。这是中共自认为可以再次和美国勾兑以后，对世界各国开始秀武力, 给原来和川普建立反共同盟的各国政府施加压力。中共秋后算账的行为模式马上开启。
+
+**原文翻译：**
+
+# **中共国授权海岸警卫队在必要时向外国船只开火**
+
+**北京：**中共国周五通过一项法律，第一次明确允许其海岸警卫队向外国船只开火，此举可能使中共国周围有争议的水域更加动荡。
+
+中共国在东海与日本以及在南海与几个东南亚国家有海洋主权争端。它已派出海岸警卫队赶走了其它国家的渔船，有时导致这些渔船沉没。
+
+[![](https://spark.adobe.com/page/2TK9YDCsZ2f2S/images/95c410c5-16e6-4ee5-9c5b-6cc2f35e4242?asset_id=29aa53e0-36e4-4a13-867e-8c2bda2363ea&amp;img_etag=%22054ac79ebe5fece666017b319fa04f42%22&amp;size=2560)](https://spark.adobe.com/page/2TK9YDCsZ2f2S/images/95c410c5-16e6-4ee5-9c5b-6cc2f35e4242?asset_id=29aa53e0-36e4-4a13-867e-8c2bda2363ea&amp;img_etag=%22054ac79ebe5fece666017b319fa04f42%22&amp;size=1024)
+
+中共国人民解放军海军水手队站队列
+
+据官方媒体报道，中共国最高立法机构全国人民代表大会常务委员会于上周五通过了《海岸警卫队法》（Coast Guard Law）。
+
+根据先前公布的法案中的草案措词，海岸警卫队被允许使用“一切必要手段”制止或防止外国船只的威胁。
+
+该法案规定了在何种情况下可以使用各种类型的武器——手持、舰载或机载武器。
+
+该法案允许海岸警卫队人员拆除在中共国宣称主权的岛礁上其他国家的建筑物，并在中共国宣称拥有主权的水域登上和检查外国船只。
+
+该法案还授权海岸警卫队“根据需要”创建临时禁区，以阻止其它船只和人员进入。
+
+回应对此的担忧时，中共国外交部发言人华春莹周五表示，该法律符合国际惯例。
+
+法案第一条解释说，维护中共国的主权、安全和海权需要法律。
+
+这项法律是在中共国合并数家民间海上执法机构成立海岸警卫局七年之后制定的。
+
+该局于2018年在人民武装警察的指挥下，成为军队的适当分支。
+
+🔗[原文链接](https://www.smh.com.au/world/asia/china-authorises-coast-guard-to-fire-on-foreign-vessels-if-needed-20210122-p56was.html)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+编辑：[【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/2TK9YDCsZ2f2S/)
 
-**西班牙2021年1月25日电/西喜社——**五角大楼上周末透露，新任国防部长劳埃德·奥斯汀（Lloyd Austin）首次与韩国和日本的同行进行了两次正式的海外通话—这两个长期盟友很可能是应对中国和朝鲜的关键。
+[!\[\]()!\[\](https://spark.adobe.com/page/2TK9YDCsZ2f2S/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/2TK9YDCsZ2f2S/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
-五角大楼对通话内容的解读说，奥斯汀先生强调了美国保卫这两个国家的承诺，特别是重申了美国长期以来的承诺，即在日本与中国就有争议的尖阁列岛的争端中保卫日本，并反对 “任何改变东海现状的单方面企图”。
-
-中共国上周晚些时候颁布了一项法律，授权其海岸警卫队在中共国主权受到 “海上外国组织或个人 “威胁时采取武装行动。国家控制的媒体将该法律描述为加强中共国对战略位置岛屿链主张的措施。
-
-日本防卫省表示，奥斯汀先生和防卫大臣岸信夫讨论了双边联盟对 “印度洋—太平洋地区的和平与安全 “的重要性—川普政府喜欢用这个词来定义旨在遏制中共国侵略的美国—东亚联盟环。
-
-过去四年来，随着川普政府推动这两个盟友承担更大的联合防务负担的财政份额，与首尔和东京的关系紧张。在拜登先生上任时，与两国就新的费用分担协议进行的谈判尚未完成。
-
-岸信夫周六对日本记者表示，在当前协议3月到期之前，华盛顿和东京迅速为驻日美军重新谈判新的费用分担协议 “至关重要”。
-
-韩国国防部长徐旭说，周日的通话是应奥斯汀先生的要求。
-
-美国和韩国的声明都没有提到陷入僵局的费用分摊谈判或美国在韩国的兵力。
-
-奥斯汀先生 “强调了美国通过美韩联合防御态势和美国延伸的威慑力来保卫(韩国)的承诺，”五角大楼在对通话的解读中说。
-
-韩国国防部表示，两人同意 “在不久的将来 “亲自会面，进行更深入的会谈。
-
-**新闻来源：**[https://m.washingtontimes.com/news/2021/jan/24/joe-biden-administration-faces-early-tests-china-r/](https://m.washingtontimes.com/news/2021/jan/24/joe-biden-administration-faces-early-tests-china-r/)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
-
-0
++1

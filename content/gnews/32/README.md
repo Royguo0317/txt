@@ -1,44 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统宣布“全国人类生命神圣日”意味为何？
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/809360/)
+## 【澳洲热点】关于《中澳自由贸易协定》的争议
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/809583/)
 
-*作者：此心不变| 校对：Tang0426| 审核：海阔天空| Page：Cathy*
+译者：翼族
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture3-15.png)图片来源：澳广
+《中澳自由贸易协定》（英文：China-Australia Free Trade Agreement，通常缩写为ChAFTA）到2020年底庆祝成立五周年。令人觉得存疑的是这个协议是否还能再延续另一个五年？
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NSbxoUcBYa3Ua/images/9f072970-b05e-4029-b76a-97dda0836ae3.jpg?asset_id=0b9d6e6b-89a4-4b4c-986f-b60f2a392fff&amp;img_etag=%2234472f656dbab652a1ecc09db62541bd%22&amp;size=2560)](https://spark.adobe.com/page/NSbxoUcBYa3Ua/images/9f072970-b05e-4029-b76a-97dda0836ae3.jpg?asset_id=0b9d6e6b-89a4-4b4c-986f-b60f2a392fff&amp;img_etag=%2234472f656dbab652a1ecc09db62541bd%22&amp;size=1024)
+值得注意的是，现在即使是当年负责谈判的人也表示应该将其撕毁，或至少进行大刀阔斧的修改。最近我们的前任总理，现任英国贸易顾问托尼·艾伯特（Tony Abbott）争辩说，应该“在严格的互惠基础上”处理澳大利亚与中共国的贸易和投资关系。只有“我们的投资者可以去（中共国）……以及我们的技术在中共国不受限制，（澳大利亚）才应该对他们开放（市场）。”
 
-🔗[川普总统在1月18日签署行政命令，宣布2021年1月22日为 “全国人类生命神圣日”](https://www.thegatewaypundit.com/2021/01/president-trump-issues-executive-order-january-22-two-days-bidens-planned-inauguration-proclaiming-sanctity-life/)
+这种互相挂钩的新立场，显然与艾伯特政府当时签署的协议不一致。举一个明显的例子，中共国领先的技术公司可以在澳洲自由开展业务（阿里巴巴，微信，TikTok，滴滴等），但反过来对澳大利亚公司则是不可能的，实际上任何一家外国公司都无法在中国大陆以这种相同的方式开展业务。中共国的公司还可以自由投资澳大利亚其它一系列领域，但这对在中共国的澳大利亚投资者来说则是不可能的。
 
-President Trump today issued another Executive Order – this one to proclaim January 22, 2021, as National Sanctity of Human Life Day. The unique thing about this EO is that it is after Joe Biden is expected to be sworn into the office of the Presidency on January 20th.
+现实就是，要么坚持与中共国进行贸易和投资“严格的互惠”，要么就只能支持ChAFTA，不可能两者兼顾。有些人认为，虽然ChAFTA的规则不一定是完全对等的，但这并不重要。传统的观点是中澳之间拥有“互补经济”（该领域中最过度使用的短语之一），因此ChAFTA很自然地反映了这一点。然而，实际上这意味着澳大利亚主要销售初级产品给中国，而中共国销售给澳大利亚的制成品占了主导地位。
 
-川普总统今天又发布了一项行政命令–这一项行政命令宣布2021年1月22日为 “全国人类生命神圣日”。 这项行政命令的独特之处在于，它是在拜登预计将于1月20日宣誓就职总统办公室之后。
+长期以来澳大利亚联邦政府的态度是，我们不应该为此担心——制造业并没有什么特别之处。我记得前财政部长彼得·科斯特洛（Peter Costello）有一次澳大利亚国庆日，在香港的午餐会上曾经说，他甚至觉得中国为美国生产所有的汽车也不是问题，如果他现在仍然相信这一点的话，我会感到非常惊讶，而实际上许多人仍然是这么想的。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NSbxoUcBYa3Ua/images/c100b257-a020-49a6-acf3-a3b82c2c98f3.png?asset_id=9ab6d998-ddd2-4053-ae50-b7066764ab59&amp;img_etag=%22409ebab523e94baaa6006a9dc71fa32e%22&amp;size=4438)](https://spark.adobe.com/page/NSbxoUcBYa3Ua/images/c100b257-a020-49a6-acf3-a3b82c2c98f3.png?asset_id=9ab6d998-ddd2-4053-ae50-b7066764ab59&amp;img_etag=%22409ebab523e94baaa6006a9dc71fa32e%22&amp;size=1024)
+目前制造业在我们的经济中所占的比例低于联邦成立之前。现在有新的政治热情想改变这种状况：“我们要成为一个重新制造产品的国家”，而不是相反的观点。但是，只要我们拥有这项贸易协定，允许几乎所有的中国制造商品都免税进入澳大利亚，那么这不会有任何的意义。那些认为通过其它手段（例如降低能源价格，改善劳资关系，建立更强大的反倾销制度，直接补贴，增长中心）可以实现某个行业的边际改善以外的任何事情的人，只是在欺骗自己和公众。
 
-行政命令规定：
+要么真正复兴澳大利亚的制造业，要么就保留ChAFTA，不可能两者兼顾。
 
-每个人的生命都是送给世界的礼物，无论出生或未出生，年轻或年长，健康或生病，每个人都是按照上帝的圣洁形象所造。万能的造物主赋予每个人独特的天赋、美丽的梦想和伟大的目标。在国家人类生命神圣日，我们庆祝人类生存的奇迹，并重申我们的决心，以建立一种生命文化，让每个年龄段的人都受到保护、重视和珍惜。
+在更广泛地涉及我们的外交政策时，也有类似不一致的方法。
 
-#### ***简评：***
+一方面，我们看到政客们热衷于说他们“挺身而出”反对中共，并支持增加军费开支（例如我们光荣的法国潜艇）。另一方面，外交部坚持的态度是不管如何还是希望与中共国更紧密地“接触”，在经济上建立“更紧密的联盟”。这是没有道理的。就像古雅典的政界人士一边要求建造新船来防范来自于波斯不断上升的威胁，一边又坚持与波斯这种增长的威胁进行自由贸易一样。修昔底德会认为这些人都是疯子。第一次世界大战前的英国建立了最先进的无畏舰，但仍继续与德意志帝国进行单边自由贸易（当时最重要的贸易伙伴），而不幸的是，这种紧密的贸易关系并不会自动带来和平。这是我们千万不能忘记的。
 
-这项行政命令显示出川普真正的生命价值观。“万能的造物主赋予每个人独特的天赋”，意思是这个世界没有人是一模一样的，即便双胞胎，我们每一个人都是独一无二的。“万能的造物主还赋予每个人美丽的梦想和伟大的目标”，意思是我们每一个人来到这个世上都是带有使命的，我们爆料革命战友们目前的使命就是灭共大业。我们坚信川普总统必定会王者归来。川普总统的归来不是民主的归来，也不是法治的归来，而是生命灵性的归来。民主和法治不过是工具，只有生命的灵性才能带来人类生存的奇蹟。那麽什麽是生命的灵性？我们在川普总统身上看到的生命的灵性就是他的真实个性和自由意志。美国开国元勛之一班杰明•富兰克林(Benjamin Franklin)说：“Without freedom of thought, there can be no such thing as wisdom – and no such thing as public liberty without freedom of speech.” 意思是：没有思想自由，就没有智慧；没有言论自由，就没有公共自由。面对当今的状况，我补充一句：“Without freedom of thought and freedom of speech, there can be no truth.” 即没有思想自由和言论自由，就没有真相。这跟我们爆料革命所追求的“唯真不破”的价值观是相吻合的。
+当今天面对中共国时，应该做一个外交政策上的现实主义者。你们甚至可以自称“金刚狼”（正如我们的一些后座议员喜欢给自己贴的标签那样），但是你们不能又同时支持ChAFTA贸易协定当前的条款。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NSbxoUcBYa3Ua/images/202147e8-d153-41a7-9b49-d72c3037e995.png?asset_id=314a9fc1-ce08-407d-b2c9-4f6422ff9008&amp;img_etag=%22c900bd8e22477b032188c910818b9a86%22&amp;size=2560)](https://spark.adobe.com/page/NSbxoUcBYa3Ua/images/202147e8-d153-41a7-9b49-d72c3037e995.png?asset_id=314a9fc1-ce08-407d-b2c9-4f6422ff9008&amp;img_etag=%22c900bd8e22477b032188c910818b9a86%22&amp;size=1024)
+今天澳大利亚和中共国政府之间关于贸易和投资的争议比协议签署之初更甚。北京以虚假的理由不管不顾地提高了我们商品的关税。反过来，我们对各种中共国的投资事实上都施加了更大的限制。
 
-“在国家人类生命神圣日，我们庆祝人类生存的奇蹟”，但是现在这个奇蹟正在被共产主义和社会主义的思想所摧毁，所以川普总统要在这一任期内颁布这项行政命令，并跨越到下一个任期。
+核心的问题是ChAFTA协议提高了人们对更高水平的双边贸易和投资的期望，鉴于我们两个社会的性质，从长远来看这在地缘政治上或政治上都是不明智的。该协议并没有使我们两个国家团结在一起，实际上反而起到了对抗双边关系的作用。
 
-美国过去生存的奇蹟是建立在自由的基础上。自由是美国《独立宣言》的灵魂，是美国的立国之本。民主和法治不过是用来维护自由的工具。现在川普总统發现，民主和法治这两个工具无效，要想让每个年龄段的人得到保护、重视和珍惜，还得靠生命文化的传承。那麽川普总统要建立一种什麽样的生命文化呢？即使每个人的生命都是神圣不可侵犯。而自由是神圣生命的基础。
+好消息是，该协议可以在任何一方发出通知180天后终止，不需要像英国脱欧那样的冗长流程。这样每个国家都可以更加自由地按自己的条件调整贸易和投资政策，这将会出现一些更适度的贸易安排。交易仍然可以执行，贸易仍然可以进行，但采用的方式将更为温和，结构更好，也更加平衡。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NSbxoUcBYa3Ua/images/8d0cc052-abb0-459d-94b4-def7b3335c8f.jpg?asset_id=dcbc7c1c-6631-400c-8a72-37084b328c3a&amp;img_etag=%223f0d7a45e156c364a04f7679a791ea19%22&amp;size=2560)](https://spark.adobe.com/page/NSbxoUcBYa3Ua/images/8d0cc052-abb0-459d-94b4-def7b3335c8f.jpg?asset_id=dcbc7c1c-6631-400c-8a72-37084b328c3a&amp;img_etag=%223f0d7a45e156c364a04f7679a791ea19%22&amp;size=1024)
+中共国可能会继续削减初级（农牧）产品的关税以养活其众多的人口，而我们将能够重建我们的制造业，并重新获得经济的主权。花俏的分析师喜欢使用“脱钩”一词，随便怎么叫吧，很明显的是保持澳中两国之间的战略距离对双方都有利。为了适应过度使用的COVID-19政策：与中共国保持距离可以使我们（和平）地生活在一起。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+作者丹·瑞安（Dan Ryan）是澳中理事会的前董事会成员，在大中华地区从事律师工作超过20年。
 
-
-编辑：[【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/NSbxoUcBYa3Ua/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NSbxoUcBYa3Ua/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/NSbxoUcBYa3Ua/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[原文链接](https://www.theaustralian.com.au/subscribe/news/1/?sourceCode=TAWEB_WRE170_a&amp;dest=https%3A%2F%2Fwww.theaustralian.com.au%2Fcommentary%2Fabbotts-free-trade-deal-with-china-needs-a-rethink%2Fnews-story%2F4ac9ff43a612e8086ac20c506ed7461a&amp;memtype=anonymous&amp;mode=premium)
 
 0

@@ -1,34 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 评共和党议员宣布重启新冠病毒国际调查并敦促拜登政府追责中共
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/809695/)
+## 2021/01/24 英喜实时速递
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/809248/)
 
-*简评：随波逐流|审核：海阔天空|Page: Cathy*
+收集：Alicia，Cathy，Near，文大石，CharlesS | 制作：Alicia
+*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/julius-drost-nsrSyI-JUYg-unsplash-2.jpg)
+1. [GNEWS 文章新加坡狮城农场：警惕！第二波疫情到来，“教会”恐成为中共拉仇恨对象](https://gnews.org/zh-hans/802554/)
+**评：中共将病毒甩锅给“境外输入”显然已不能满足维稳需求，开始继续为人民制造新的仇恨对象，将责任甩锅给“地下教会”。中共对宗教迫害永远停止。**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/YQw3ifbnFYEjS/images/3769d2a0-91be-461d-ac0d-21c01863158a.jpg?asset_id=f27b118b-855d-47ac-abf6-cf10c48cdcaa&amp;img_etag=%2233a60a2539ed7be42204028bdc62c400%22&amp;size=2560)](https://spark.adobe.com/page/YQw3ifbnFYEjS/images/3769d2a0-91be-461d-ac0d-21c01863158a.jpg?asset_id=f27b118b-855d-47ac-abf6-cf10c48cdcaa&amp;img_etag=%2233a60a2539ed7be42204028bdc62c400%22&amp;size=1024)
+2.[夜空最亮的星：吉林通化疫情防控封锁，已经导致当地30万百姓食物短缺，大批市民跑到人民日报、新华社微博下留言求救！](http://新华社微博下留言求救！%201%20von%201%20Kontext:%20Q5%20吉林通化疫情防控封锁，已经导致当地30万百姓食物短缺，大批市民跑到人民日报、新华社微博下留言求救！%20%20%20%20https://t.me/youshuigongming/19406)
+**评：中共盲目封城，不考虑民生问题已经造成了人道危机，有人已6天断粮，无人问津！视人命如草芥的政府部门比比皆是。**
 
-## **共和党议员宣布重启新冠病毒国际调查并敦促拜登政府追责中共**
+4．CCAV 新闻资讯：【[网曝吉林通化被封户者断粮 出门购物被拒 拔刀杀人](https://t.me/CCAVCombatgroup/374)】
+**评：不解决民众生存基本需要，只能让民众暴力反抗防疫人员，激化矛盾形成犯罪。最终就是邪恶的制度让人民内斗。**
 
-📍🔗[原文链接](https://www.oann.com/sen-hawley-rep-stefanik-call-for-intl-probe-into-chinese-communist-partys-involvement-in-covid-19-cover-up/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=sen-hawley-rep-stefanik-call-for-intl-probe-into-chinese-communist-partys-involvement-in-covid-19-cover-up)
+5. 腾讯：[周末紧急回应！4000亿苹果链巨头遭美国337调查，32万股民被卷入](http://周末紧急回应！4000亿%201%20von%201%20Kontext:%20Y5%20腾讯：周末紧急回应！4000亿苹果链巨头遭美国337调查，32万股民被卷入%20%20%20%20https://new.qq.com/rain/a/20210124A0B95I00)
+**评：立讯精密因为对美出口、在美进口或在美销售上述产品侵犯其专利权而被调查。无论美国内部政治如何争斗，反共大势不可逆转。**
 
-星期五，密苏里州的共和党参议员乔什•霍利和纽约州的共和党众议员爱丽丝•斯特凡尼克宣布，他们将重新提出一项法案，以启动一项国际调查，这次调查将由美国卫生专家牵头，找出世界卫生组织（WHO）宣传中共国虚假信息的原因，重点关注中国共产党在掩盖新冠大流行中的作用，追究中共国掩盖冠状病毒大流行起源的责任。同时，敦促国际社会找到一种方式，让中共国补偿所有受影响国家。他们强调了大流行病给人类造成的毁灭性伤亡，要求拜登政府为美国利益而战，勇敢对抗世界卫生组织和中共国。
+6. 网易：[最新回国规定：全国8省市需隔离28天，包括北京、江苏、浙江等！](http://最新回国规定：全国8省市需隔离28天，包%201%20von%201%20Kontext:%20Z5%20网易：最新回国规定：全国8省市需隔离28天，包括北京、江苏、浙江等！%20%20%20%20https://www.163.com/dy/article/G14CKCEI05371E5Q.html)
+**评：继前日宣称新一波疫情源头查明，皆为海外输入型之后，现在规定对海外入境人员的全部隔离28天，程序 (酒店集中隔离+居家隔离+健康监测）。**
 
-无论谁执掌美国政府，新冠病毒大流行问题始终无法逃避，这绝对是一块烫手山芋，在这一点上，谁都无法出卖美国人民的利益。美国大选风波过后，美国和世界的焦点又回到如何解决新冠病毒问题上，怎样才能让美国人民满意是本届政府面临的一项巨大挑战，同时也可以显示他们对中共的态度和未来对中共国政策的走向。这也是美国两党和国际社会对拜登政府执政能力的评估。任何与犯下 “种族灭绝罪”和“反人类罪”的“中共恐怖政权”勾兑的国家都无法面对来自全世界的谴责。因此无论哪个政党上台执政，美国两党对病毒起源的调查仍将继续，接下来美国及国际社会对中共的追责和赔偿要求一样也不会少，灭共是全世界的共同需要。中共释放病毒造成了全球数百万人死亡，同时控制世卫组织、媒体、专家、学术期刊宣传虚假信息、掩盖真相，并阻挠调查。它所犯下的反人类罪行一定会得到全世界的审判，最终将其送入坟墓。
+7. 推文： [他终于红了：“全国脱贫”之后 1月4日，20来岁的自媒体人 B站（哔哩哔哩） UP主（上传人） 墨茶，每日泡面，贫困而亡。他的粉丝，从100多人一下升到50万❗️](https://t.me/mianjuxiansheng/205039) 
+**评：又一个凄惨的中共国“网红”故事！这才是中共国真正的普通老百姓！谁能在视人命如草芥的中共国重视这么一个悲惨的生命个体，只有由生命同样如草芥的中国人自己。**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/YQw3ifbnFYEjS/images/67948bdc-24b9-4147-beac-322a21b07d2f.jpg?asset_id=1038d0a1-cbfe-4cf0-902d-0cfbe9ff19c8&amp;img_etag=%22347d73e8a6402c8b23bd2999b36c370e%22&amp;size=2560)](https://spark.adobe.com/page/YQw3ifbnFYEjS/images/67948bdc-24b9-4147-beac-322a21b07d2f.jpg?asset_id=1038d0a1-cbfe-4cf0-902d-0cfbe9ff19c8&amp;img_etag=%22347d73e8a6402c8b23bd2999b36c370e%22&amp;size=1024)
+8. CCAV 资讯：[近日，被断电、断水六十几天后又被强抢住房的北京小汤山抗暴居民——李强母子，在寒冬腊月里，露宿镇政府门口。](https://t.me/CCAVCombatgroup/365)
 
-同时我们必须看到，美国人民的死亡，美国政府对此有不可推卸的责任。爆料革命发起人郭文贵先生，早在2019年香港危机时，就反复提醒美国政府和全世界，中共会实施生化武器攻击。更有闫丽梦博士在2020年1月19日，冒死将病毒真相通过路德社传递给世界。还有为传递病毒真相而牺牲了的、至今不能具名的多少新中国联邦人。而美国两党在一年多的时间里做了什么?
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/image-287.png)
 
-消灭中共，让其为CCP病毒负责，是正义的需要。但任何CCP掌握的财富，属于中国人民，必须归还给能代表中国人民的机构——新中国联邦。请美国两党反思自己，在人类大危机中，迄今为止你们做了什么?
+**评：这就是专制统治下的暴政典型例子，可能发生在每一个韭菜身上！**
+
+9. CCAV 资讯：[2021年1月23日, 吉林通化市封城封戶, 很多小区开始喊楼。](https://t.me/CCAVCombatgroup/384)
+**评：中共疫情之下造成的次生灾难可能比疫情本身更可怕。 **
+
+10. 网易：[“我们德国不欢迎中国人！”德议员亚洲餐馆叫骂动手，引爆批评](http://我们德国不欢迎中国人%201%20von%201%20Kontext:%20X5%20网易：“我们德国不欢迎中国人！”德议员亚洲餐馆叫骂动手，引爆批评%20%20%20%20https://www.163.com/dy/article/G10TQEPB0514BIJT.html)
+**评：文章直指一位德国基民盟议员Harald Sielaff，非常大可能是他得罪了共产党，中共就用这种政治正确造势打压。同时也映射出德国政界反中共的声音**
+
+11. 新唐人電視台推文:[【禁闻】上海疫情连爆，地铁频现随地倒。 上海多地连续爆发疫情，1月24号，黄浦区和，贵西小区又被升为中风险区。 此前黄浦区的昭通路居民区、“中福世福汇”大酒店已被列为中风险区。](https://www.ntdtv.com/b5/2021/01/24/a103039193.html)
+**评：中共国内疫情全面爆发。**
+
+12. 澎湃：[从中央纪委五次全会看全面从严治党新征程](https://www.sohu.com/a/446546763_260616)
+**评：再提习的“政治判断力、领悟力、执行力”，即对党内其他派系的技能公告与打压。党内清洗工具中纪委又要开动了。**
+
+13. 搜狐：[五天吃掉六斤车厘子 女子一夜“血便”20多次后晕倒](https://www.sohu.com/a/446601513_132336)
+中国日报：[石家庄通报进口车厘子复检结果：检测结果均呈阴性](https://www.sohu.com/a/446601513_132336)
+**评：中国每年消耗全球七成以上的车厘子。前几日号称进口车厘子表面检测阳性影响了谁的利益？又开始“逆向辟谣“。**
+
+14. 澎湃：[多地对拒服兵役人员联合惩戒：不得录用为公务员，列为失信人](https://m.thepaper.cn/yidian_promDetail.jsp?contid=10922620&amp;from=yidian)
+**评：两点：一，信息时代，老百姓不愿为共军卖命。二，各地政府完美展现中共假法治，以假治国，各种处罚五花八门巧立名目。**
+
+15. 搜狐：[得知矿工升井，省委书记立即中断行程，赶赴现场](https://www.sohu.com/a/446513098_167569)
+**评：真是恶心，遇到天灾人祸最后当事人还得“感谢党”。**
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 - [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
-编辑：[【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/YQw3ifbnFYEjS/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/YQw3ifbnFYEjS/images/c534342f-087b-41d4-9db0-56b4deba0686.jpg?asset_id=37ac2167-578c-4983-948c-24aea314d4af&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/YQw3ifbnFYEjS/images/c534342f-087b-41d4-9db0-56b4deba0686.jpg?asset_id=37ac2167-578c-4983-948c-24aea314d4af&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
+编辑：【英国伦敦喜庄园编辑部】
+[!\[\]()!\[\](https://spark.adobe.com/page/AAeSoJ2Q4F6lV/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/AAeSoJ2Q4F6lV/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
