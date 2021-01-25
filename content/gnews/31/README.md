@@ -1,41 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以共灭共大幕已经拉开
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/804675/)
+## 【世事解评】从《共产党宣言》看共产党的邪恶本质（七）
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/804473/)
 
-新闻简述：在2021年1月22日的GTV盖特视频中，郭先生表达了他对爆料革命新进展的兴奋激动的心情，那就是“以共灭共”的大幕已经拉开，“这种厮杀，不管哪一方倒下，都对我们爆料革命有好处，是上天送给我们的礼物和机会。”
-视频来源：[https://gtv.org/getter/600b5e2187fabe2daf3f93bb](https://gtv.org/getter/600b5e2187fabe2daf3f93bb) 
-**中英文对照全文**
+作者：纽约香草山 兰兰 校对/发稿：飞虹
 
-It’s the 22nd, between 6 and 7PM. Everyone is more anxious than me. [I’ve got] all kinds of messages. Brothers-in-arms from all sectors have texted me. Don’t worry, BIAs. The CCP is experiencing fierce internal struggles within itself. What a great era! Yes. There maybe some good news, or maybe not. But today history has been changed, without any doubt. Messages from all sources, no matter which source it is, all show that it is the biggest day of the Whistleblower Movement. This kind of struggle, no matter which side falls, will benefit our Whistleblower Movement and will be a gift and opportunity sent from the heavens.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-38.jpg)
 
-22号下午6点多，大家都比我着急呀。各种消息，各种战友给我发信息。别着急，战友们。[共产党正在]激烈的较量中，时代啊，大时代！嗯。也可能有好消息，也可能没有。但是今天绝对是改变历史的一个时刻，这是毋容置疑的。各种消息，不管哪一种，都是爆料革命最重要的一天。这种厮杀，不管哪一方倒下，都对我们爆料革命有好处，是上天送给我们的礼物和机会。
 
-Everyone is so anxious, and I can totally understand these feelings. But did you see how they [the CCP] faked the [news]? So fake! All nonsense! As long as the relevant individuals don’t show up, the truth isn’t revealed yet. In other words, whether it is someone coming out standing or lying dead, there has to be someone coming out. As long as no one from these four factions [of the CCP] coming out, either standing or lying, then … [what you see is not the truth]. Now, all those videos from the CCTV are fake. Don’t ever trust them. They are all fake news and bullshit.
 
-大家都很着急，我特能理解这种心情啊。但是你看见他们造假了吗？造成啥了，那假？！胡扯八道！只要相关人没有全面出场，这个真相就没有出来。或者说，要不就站着出来，要么就横着出来，反正得有[人]出来。这四波人，只要没有[人]站着、横着出来的结果，[真相就没有出来]。现在中央电视台那[些视频]都是假的。千万别信，都是假的，胡扯的。
+《共产党宣言》说：“不断扩大产品销路的需要，驱使资产阶级奔走于全球各地。它必须到处落户，到处开发，到处建立联系。”“资产阶级，由于开拓了世界市场，使一切国家的生产和消费都成为世界性的了。使反动派大为惋惜的是，资产阶级挖掉了工业脚下的民族基础。古老的民族工业被消灭了，并且每天都还在被消灭。它们被新的工业排挤掉了，新的工业的建立已经成为一切文明民族的生命有关的问题；这些工业所加工的，已经不是本地的原料，而是来自极其遥远的地区的原料；他们的产品不仅供本国消费，而且同时供世界各地消费。旧的、靠本国产品来满足的需要，被新的、要靠极其遥远的国家和地带的产品来满足的需要所代替了。过去那种地方的和民族的自给自足和闭关自守状态，被各民族的各方面的互相往来和各方面的互相依赖所代替了。物质的生产是如此，精神的生产也是如此。各民族的精神产品成了公共的财产。民族的片面性和局限性日益成为不可能，于是由许多民族的和地方的文学形成了一种世界的文字。”
 
-Let’s see, God is helping us. Hopefully this is not another frustration. The BIAs are marvelous! This kind of feeling is so wonderful. Talking about men, especially men like us, whenever we have such feeling, we’ll be in a very different mood. It’s just like you are able to make a big hole on earth with one punch. When thinking about being able to take down the CCP or about those poor, old bastards from the Zhongnan Pit being cremated and burnt, oh my, I will be excited. Excellent! Ho-ho! Stay tuned, brothers and sisters. We may go live at any moment. The final outcome will be known tomorrow. Good or not, you will know tomorrow.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/图片4-8.png)
 
-看着吧，上天正在帮我们。但愿这个不是另外一次的挫败。战友们太伟大了！这种感觉太奇妙了！这个男人啊，特别像我们这种男人，一遇到这种感觉的时候，心情不一样。就像，真是一拳，就能把这个地球砸个坑出来似的。一想到能灭共，一想到这些中南坑的老杂毛，要被火化，要被烧掉，哎哟！这兴奋啊，好啊！呵呵。等消息吧，兄弟姐妹们。随时直播。可能最终结果应该在明天，明天吧，好坏在明天。
+中国共产党（CCP）为了扩大其影响范围、统治范围，将触角伸向全球，涉及各个领域。它不断压迫本国人民以他们的廉价劳动力向全世界输出产品，打着中国是制造业大国的旗号奔走于全球各地。CCP必须到处落户，到处开发，到处建立联系才能到处愚弄、收买，才能建立它的邪恶统治帝国。你看中的是CCP给你带来的短期效益，而CCP盯着的却是对你长期的占领、统治。CCP以为开拓了世界市场，就使一切国家的生产和消费都成为世界性的了。令有良知的正派人士大为惋惜的是，CCP挖掉了古老的中华文明，古老的中华文明在逐渐被消亡，被CCP文化排挤掉，CCP文化的建立已经成为一切文明民族的生死存亡的问题。
 
-（*以上翻译整理仅代表作者个人观点，不代表GNEWS或他人立场。*）
+为了将中国打造成制造业大国，CCP大量引入外资，大量进口原材料，生产的产品再大量供应全世界各地消费。日积月累，CCP逐渐建立了完整的制造业体系，也在这种日积月累中，其他国家逐渐养成了对CCP的依赖。这种体系下生产的产品，在正常情况下是一种供应，在非正常情况下就成了战略物资，这次疫情期间的医疗产品供应就是一个很好的说明。CCP投毒并让病毒散播到全世界就已经构成反人类的罪行了，以病毒祸害全球，再以口罩、医疗产品的供应作为与CCP勾兑的条件，即使这样，CCP生产的口罩、医疗产品的质量也难以过关。这可谓用心之险恶，邪恶之深邃。
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/799944/](https://gnews.org/zh-hans/799944/)
+CCP打破了那种地方的和民族的自给自足，土地耕种费时费力，很多人选择外出打工，然而不管是留守家乡努力耕作还是外出打工努力拼搏，一年下来却也难有大成就。尽管表面上、数字上生活水平提高了，但这背后的辛酸、隐忍和委屈，谁又说得清？CCP虽然也打破了清朝那时的闭关自守状态，却给全中国建立了一个新的牢笼。仿佛全中国人民刚刚挣脱了一个束缚，还来不及呼吸新鲜空气却又被骗至一个更大的、更毒的牢笼里，任凭自身怎么挣扎都只能是苦苦挣扎。人心不足蛇吞象，CCP的野心何止是牢牢捆绑中国人民，它更想捆绑全世界人民。撒了一个慌，就得用另一个慌来圆，于是就只能一直撒谎，越撒越多，越撒越大，撒到了全世界。
 
-翻译：【gavinguo(文钦)】校对：【Isaiah4031】字幕：【班仔】视频解码：【相机过热啊】编辑：【Isaiah4031】
+CCP磨灭了人们的精神世界，用对物质的追求来麻痹人的精神。沟壑难填，物质的追求什么时候能适可而止呢？的确丰富多彩的文化需要传承，需要发扬，民族的是世界的，民族文化需要走向世界。可在CCP的带领下，一切的文化都只能为CCP服务，都只能绝对服从CCP的利益。打着民族文化的旗号，输出的是CCP文化。
 
-喜马拉雅玫瑰园小队出品
 
-敬请关注:
 
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声2台](https://gtv.org/user/5e9dcdd50dbf207957d89bcd)！
 
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
-
-+1
+0
