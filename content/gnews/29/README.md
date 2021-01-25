@@ -1,29 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄罗斯发言人称：不准备容忍美国的粗鲁和独断专行
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/809898/)
+## 欧盟施压阿斯利康提供更多疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/810146/)
 
-俄罗斯莫斯科喀秋莎农场  洛夫斯基灭ССР
+- 编辑：Victor Torres
 
-编辑上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/下载-11.jpg)[conservativerefocus.com](http://conservativerefocus.com/blogs/blog5.php/2015/09/06/economic-war-between-east-and)
-1月24日，俄罗斯总统发言人德米特里•佩斯科夫（Dmitry Peskov）在俄罗斯1号广播中说表示：莫斯科寻求与美国合作，但不会容忍华盛顿的“粗鲁”或“独断”。
 
-他解释说：“我们已经做好了灵活的准备，我们还没有做好独断专行的准备，我们还没有做好粗鲁的准备，我们还没有做好跨越‘红线’的准备”。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-佩斯科夫指出，莫斯科一贯主张与华盛顿保持“良好关系”，并一再表明必要的灵活性，但如果不向美方采取措施，这种情况不可能永远持续下去。发言人称，各个州还没有准备好承认俄罗斯为其合作伙伴。
+**西班牙2021年1月25日电/西喜社——**欧盟正在向制药公司阿斯利康施压，要求其向27个国家提供更多的疫苗，并坚持最初的承诺，尤其是在其投资提高产能之后。
 
-“我们愿意把美国人当作我们的合作伙伴。他们还没有准备好。但你不能在这里用武力。”佩斯科夫指出。
+欧盟委员会主席乌尔苏拉·冯·德·莱恩(Ursula von der Leyen)周一与阿斯利康的负责人举行了紧急会谈。欧盟各国也在与阿斯利康会面，推动其提高产量，实现合同目标。
 
-他说，克里姆林宫希望随着乔•拜登担任美国总统，两国关系得到改善。他认为，未来的对话将不可避免地涉及承认现有的分歧，但也有机会找到和解点。佩斯科夫澄清说：“对话总是有机会找到一些合理的和解点，找到我们关系触及的最小领域。”俄罗斯总统普京准备支持这种做法。
+欧洲药品管理局定于周五对牛津-阿斯利康的中共病毒疫苗进行审查，该疫苗的批准备受关注。
 
-此前，《华盛顿邮报》的消息报道称，拜登对与俄罗斯关系的“重设”并不感冒。此外，总统计划让莫斯科对“我们在最近几个月和几年中看到的鲁莽和侵略行动负责”。据该报消息人士透露，拜登打算让美国情报部门研究有关反对派人士阿列克谢•纳瓦尔尼涉嫌被毒害以及莫斯科与塔利班的关系和在阿富汗杀害美国士兵的信息。此前俄罗斯当局已否认参与上述任何活动。
+整个欧盟的领导人正因为该集团缓慢地推出疫苗接种计划而承受沉重的压力，特别是与以色列或英国相比。
 
-拜登政府希望将与俄罗斯签订的第三阶段裁减军备条约再延长5年，该协议将于2月5日到期。该报消息人士指出，延长条约并不意味着国家间关系的改善。
+**新闻来源：**[https://apnews.com/article/pandemics-andrej-babis-coronavirus-pandemic-czech-republic-germany-cb92fa172f477c2008e98536d9523a5f](https://apnews.com/article/pandemics-andrej-babis-coronavirus-pandemic-czech-republic-germany-cb92fa172f477c2008e98536d9523a5f)
 
-参考链接：
+![]()![](https://gnews.org/wp-content/uploads/2021/01/4ed06a27-957b-4023-a6de-33a29deff94a-17.jpg)
 
-https://www.rbc.ru/rbcfreenews/600d66f49a7947a7c8c143c5
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
 0

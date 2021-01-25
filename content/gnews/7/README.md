@@ -1,79 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 恐怖场面 大重启-施瓦布谈大流行病后的网络大流行病
-` Mild Seven` [轉載自GNews](https://gnews.org/zh-hans/811377/)
+## 中共病毒封城一周年 来自武汉的回忆与拷问
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/811428/)
 
-**2021****年1****月25****日**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/image.jpeg-1.jpg)图片来源：盖特
+去年1月23日，中共病毒大流行的发源地武汉全面封锁，封锁持续了数月。就在封城一周年的日子，来自台湾的独立记者威廉·杨（William Yang）在《独立报》（The Independent）发表了一篇采访报道，题为《风暴眼里：封城一周年，武汉市民反思病毒带来的代价》。
 
-一篇在线德语文章的中文翻译
+**恐怖的记忆，深重的灾难**
 
-**标题****: ****恐怖场面 ****大重启-****施瓦布谈大流行病后的网络大流行病**
+31岁的武汉英语教师梁（音译）老师说：“我还记得一年前武汉全面封锁的前一天，地铁里一片死寂。地铁上没有人发出任何声音，空气中弥漫着强烈的恐惧感。”
 
-**原文标题: ****🇩🇪 [SCHRECKENSSZENARIO Great-Reset-Schwab spricht von Cyber-Pandemie nach der Pandemie](https://www.wochenblick.at/great-reset-schwab-spricht-von-cyber-pandemie-nach-der-pandemie/)**
+武汉市民张海（音译）回忆，那一天，他的父亲在当地一家医院做完骨科手术后，感染了中共病毒。一个星期后，他的父亲就去世了。张先生告诉《独立报》：“我仍然相信武汉当局在宣布全面封城计划的前几周就知道病毒的危险性。然而他们选择在正式封城前几天公布这个计划使得50多万人离开了这个城市，我一直在想，他们中有多少人可能已经感染了冠状病毒。”
 
-**原文发表日期****：2021****年1****月18****日**
+（译者注：实际上只提前了不到十个小时，不是几天，而且是半夜宣布）
 
-**原文作者****：**Wochenblick.at
+封锁生效后，武汉的公共交通全部暂停，市民也禁止出门。因为当地医院不堪重负，没有足够的地方提供医治，所以很多出现感染中共病毒症状的患者被要求回家。张先生告诉记者：“当时如果家中有一人感染中共病毒，那很快全家人都会生病。这是个恶性循环，在封锁期间设定的非人道条件下，这个恶性循环被放大了。政府本质上是在牺牲公民的健康来实现控制疫情的目标。”
 
-**翻译:** Mild Seven, 英国伦敦喜庄园
+**表面的平静，暗藏的危机**
 
-**校对：**拱卒， 英国伦敦喜庄园
+在一个平常的早晨，武汉地铁里挤满了赶着去上班的人。很明显，除了脸上的口罩，一年前陷入长达数月全面封锁的城市，似乎如今已经从那段超现实的经历中恢复过来。梁老师说：“现在人们都在播放手机里的音乐，或者在地铁上大声说话，这和一年前的武汉完全不同。”
 
-— 全文翻译（中德对照）–
+经过几个月的全面封锁，武汉的疫情得到控制，政府于2020年4月结束封锁。然而，从最初疫情延伸出的恐惧，依然留存在很多武汉人的心中，挥之不去。
 
-**SCHRECKENSSZENARIO**
+梁老师告诉《独立报》：“在过去的一年里，戴口罩已经成为一种日常习惯，我们几乎走到哪里都要扫描健康码。尽管夏天一些商场稍微放松了扫描健康码的规定，但自从过去几周中国本地病例数再次上升后，他们又开始执行这一规定。”
 
-**Great-Reset-Schwab spricht von Cyber-Pandemie nach der Pandemie**
+对武汉的许多居民来说，长达数月的与世隔绝，使他们对中共病毒在中国的再次出现有了准备。武汉32岁的陈（音译）姓商人告诉记者：“我们知道当疫情重回武汉时会发生什么，我们也知道政府会期望我们做什么，我认为去年的封锁最大的影响是让我们为未来的疫情或其他流行病的爆发做好准备。”
 
-**恐怖场面**
+随着中国河北省、黑龙江省和吉林省的本地病例数开始上升，武汉市的人们也在加强防疫措施。陈老板说：“现在几乎每个地方都要求市民扫描健康码，很多小区现在已经进入半封锁模式。我们都做好了再次封城的准备。”
 
-**大重启****–****施瓦布谈大流行病后的网络大流行病**
+梁老师说：“虽然当中国其他地方发生类似的事情时，我们会想起这段记忆，但我们很多人尽量不把它放在心上。”看来，在武汉封城一周年之际，有人认为武汉人已经选择搁置源于封城的负面记忆。
 
-**Umbau der Gesellschaft, Transformation, Neugestaltung, Digitalisierung, das große Zurücksetzen … das sind Worte, die der Gründer des Weltwirtschaftsforums (WEF), Klaus Schwab, gerne nutzt. Der Multimillionär war auch daran beteiligt, die Pandemie mit einem Planspiel vorwegzunehmen – Kritiker sprechen von einer Vorbereitung. Im Juli des Vorjahres legte Schwab nach und warnte vor Cyberangriffen, welche die Stromversorgung lahmlegen könnten. Folglich würden Lieferketten zusammenbrechen und Chaos ausbrechen. Man könnte seine Worte fast schon als Drohung auffassen, da er exakt aufzeigt, was passieren könnte, wenn nicht alle seinen Vorschlägen folgen.**
+**中共正义不张，掩盖不止**
 
-**重建社会、转型、重塑、数字化、大重置****……****这是世界经济论坛（****WEF****）创始人克劳斯****–****施瓦布喜欢用的词。这位百万富翁还参与了对流行病的预测，并进行了一场商业游戏****—****评论家称之为准备。去年****7****月，施瓦布预警由于网络受到攻击而导致电力供应瘫痪，由此引发供应链崩溃，及出现混乱。人们几乎可以把他的话当作是一种威胁，因为他明确指出，如果大家不听从他的警告将会发生什么后果。**
+为了 “庆祝 ”成功遏制中共病毒疫情，中共政府在武汉举办了一场盛大的展览。展厅里摆满了身穿危险品防护服的医务人员模型和病床的装置。展览的另一个明显特点是中共书记习近平的大幅画像，并配以文字，赞扬他 “果断决策”，使中共“成功遏制”疫情。
 
-Ein Kommentar von Alina Adair
+然而，武汉的一些人觉得很难接受中共试图在中国各地传播的庆祝基调。梁老师介绍：“现在，在武汉每个小区的入口处，政府都会播放强调中国政府如何战胜疫情的宣传。我觉得很难简单地接受政府试图放大的这些信息，因为我们都知道在整个过程中，中国公民不得不付出的代价。”
 
-Alina Adair的评论
+张海仍然认为，武汉的政府官员在疫情爆发初期隐瞒了有关疫情的信息，应该受到起诉，因为如果他们在封锁前几周就披露了疫情的全部规模，他认为武汉许多人的生命本可以得到挽救。
 
-## Wenn Virus nicht reicht, kommt Blackout? 如果病毒还不够，那就停电？
+张先生说：“中共政府官员需要知道，他们应该在疫情期间优先考虑公民的生命，如果没有人因为隐瞒疫情信息而受到惩罚，我想当中国再次遭遇疫情时，类似的事情还是会发生。”
 
-Wenn die Pandemie nicht zum Zusammenbruch der Wirtschaft führt, folgt eine Cyber-Pandemie, die uns den Rest gibt?
+然而，对于那些在疫情中失去家人的人来说，还有一个未完成的任务：要求政府正式道歉。张先生告诉《独立报》：“无论政府有多少次试图封杀我寻求他们道歉的努力，我都会继续想方设法为我死去的父亲和其他许多在疫情爆发初期因政府的掩盖而失去生命的无辜民众说话，他们可以试图指控我犯罪，或者试图把我关起来，但这并不能阻止我为父亲讨回公道。我已经做好了最坏的打算，所以他们可以放心地来找我。”
 
-如果大流行病没有导致经济崩溃，那么网络大流行病会不会跟着把我们干掉？
+**简评**：
 
-In dem WEF Bericht [„Der Aufbau eines cyberresistenten Elektrizitätssektors ist eine Schlüsselpriorität für die Zeit nach COVID“](https://www.weforum.org/agenda/2020/11/cyber-resilient-electricity-sector-priority-post-covid/) heißt es: *„Cyberangriffe auf kritische Energieinfrastrukturen stellen ein Risiko für Energiesysteme, Volkswirtschaften und das Wohl der Gesellschaft dar. Der Macht- und Kontrollverlust in einer großen Region über einen längeren Zeitraum würde schwerwiegende Auswirkungen auf Unternehmen, Regierungen und Gesellschaften im weiteren Sinne haben. In den letzten zehn oder mehr Jahren hat die Elektrizitätsindustrie eine rasche und transformative Digitalisierung ihres Ökosystems durchlaufen, die für die Gewährleistung der Zuverlässigkeit und Kontinuität der Stromversorgung während der Pandemie von entscheidender Bedeutung ist. Diese digitalen Technologien haben das Maß an Interkonnektivität und Konvergenz von Betriebstechnologie (OT) und Informationstechnologie (IT) verbessert –****und erweitern die Cyberangriffsfläche, die böswillige Akteure nutzen können. Ohne Anpassung werden zuvor sichere Systeme und Umgebungen unsicher.****„*
+这篇采访报道从三个当事人的角度揭示了中共病毒爆发起点武汉在封城初期的恐怖情景和武汉老百姓付出的代价，以及一年来人心与市井发生的变化，揭示了一些中共政府通过压制言论自由和高调歌功颂德进行自我掩盖的罪恶企图。通过这篇文章可以看出：言论自由是多么重要。没有言论自由，就没有一切其他自由，人民只会被政权一轮又一轮的洗脑愚弄，并被夺走包括生命在内的一切！
 
-世界经济论坛的报告指出 “建设具有能抗击网络攻击能力的电力部门是后COVID时代的关键优先事项 “，”对关键能源基础设施的网络攻击构成对能源系统、经济和社会稳定的巨大风险。如果一个大区域长期失去权力和控制权，将对企业、政府和社会产生严重的影响。在过去的十几年里，电力行业的生态系统经历了快速的数字化转型，它对确保大流行病期间可靠性和连续性的电力供应至关重要。这些数字技术一方面提高了业务技术(OT)和信息技术(IT)的关联及融合水平—**另一方面也****扩大了对网络恶意攻击范围。如果做出相应的改变，以前安全的系统和环境就会变得不安全**。”
+根据爆料革命战友传递出的消息，中共病毒是来自实验室的，并且在武汉造成的死亡人数远远超过公布出的数据。一年以来，在爆料革命和新中国联邦的不懈努力下，世界上了解中共病毒来源真相的各国高层和老百姓越来越多。美国前国务卿蓬佩奥先生根据爆料革命和其他多方获取的信息，对病毒起源提出了多项质疑，这些都需要通过彻底调查中共实验室来解决。拜登总统上台以来，没有降低对于中共的高压态势，并且多名政要也在向中共病毒的实验室起源学说靠拢。看来，中共对中共病毒的世界大流行是无法逃脱罪责的，绝不会像文中说的那样：武汉市政府道个歉就够了。等待中共的必然是世纪大审判和大追责！
 
-## COVID im Vergleich nur eine kleine Störung 相比之下，COVID只是一个小的干扰
+[原文链接](https://www.independent.co.uk/news/world/asia/wuhan-covid-lockdown-pandemic-china-b1791665.html)
 
-In dem Video anlässlich einer Konferenz im Juli 2020 spricht Schwab maskenfrei davon, dass „wir alle wissen, dass das erschreckende Szenario eines umfassenden Cyberangriffs die Stromversorgung, den Transport, die Krankenhausleistungen **und unsere Gesellschaft insgesamt vollständig zum Erliegen bringen könnte.** Die COVID-19-Krise würde in dieser Hinsicht als kleine Störung im Vergleich zu einem großen Cyberangriff angesehen werden.“
+翻译报道：Toohigh
 
-在2020年7月的一次会议上，施瓦布不戴口罩在视频中谈到，”众所周知，全面网络攻击能到之后电力、交通、医院服务以及我们整个社会彻底瘫痪，这是非常可怕的情况。与之相比，COVID-19危机只是一个微不足道的故障而已。”
-
-**Wie man von einer Pandemie **[**auf eine Cyber-Pandemie kommt**](https://www.weforum.org/agenda/2020/07/vaccinate-organization-cyberattack-pandemic/)**, weiß wohl nur Klaus Schwab selbst.** Es ist zu vermuten, dass er diese Warnung ins Spiel bringt, um die Digitalisierung weiter voranzutreiben, die er als Grundvoraussetzung für die von ihm propagierte neue Weltordnung betrachtet. Klaus Schwab präsentiert sich im Video vor dem Schriftzug des Weltwirtschaftsforums und dem „Great Reset“. Während Schwab zu glauben scheint, der Welt Befehle erteilen zu können, hat ihn kein Volk zum Anführer gewählt. Das ändert nichts an der Tatsache, dass ihn weltweit Regierungschefs hofieren und seinen Anweisungen Folge leisten. Denn es geht um viel Geld.
-
-网络流行病的说法是如何从大流行病引申出来的，可能只有克劳斯-施瓦布自己知道。可以推测，他提出这个警告是为了进一步推动数字化，他认为数字化是他所推动的世界新秩序的基本前提。视频中，克劳斯-施瓦布在世界经济论坛字样和 “大重启 “前展示了自己的风采。虽然施瓦布似乎相信他可以对世界发号施令，但没有人推举他为领袖。这并不能改变全世界的政府领导人都在追随他，听从他的命令的事实。因为这关系到很多钱。
-
-Gemeinnützige Organisation 非营利组织
-
-Klaus Schwab gründete seine Stiftung [„Weltwirtschaftsforum“](https://de.wikipedia.org/wiki/Weltwirtschaftsforum#:~:text=Das%20Weltwirtschaftsforum%20%28englisch%20World%20Economic,Davos%20im%20Kanton%20Graub%C3%BCnden%20stattfindet.) („World Economic Forum“) im Jahr 1971, die Geschäftsräume befinden sich im Kanton Genf in der Schweiz. Seitdem lädt er zum jährlichen Treffen, bei dem international führende Wirtschaftsexperten, Politiker, Wissenschaftler, gesellschaftliche Akteure und Journalisten zusammenkommen, um über aktuelle globale Fragen zu diskutieren und um Pläne wie den Great Reset zu schmieden. Die Stiftung WEF gilt als „gemeinnützig“ und erhielt 2015 den Status einer Organisation.
-
-克劳斯-施瓦布于1971年成立了他的基金会–世界经济论坛，在瑞士日内瓦州设有办事处。此后，他每年都会邀请大家参加年会，国际知名的经济学家、政治家、科学家、社会人士和记者齐聚一堂，讨论当前的全球问题，并制定大重置等计划。WEF基金会被认为是 “非营利性 “的，并在2015年被授予组织地位。
-
-Abseits demokratischer Strukturen 远离民主结构
-
-Besonders harte Kritiker bezeichnen diese Organisation nicht zuletzt deshalb als mafiös, weil offenbar superreiche Menschen, die nicht demokratisch gewählt wurden, über fremde Länder entscheiden wollen. **Geld regiert die Welt. Klaus Schwab ist der lebende Beweis dafür. Sein Traum ist die vierte industrielle Revolution, die der rüstig wirkende 82-Jährige wohl unbedingt noch miterleben möchte.** Er erhofft sich, dass er durch die Zerstörung der Wirtschaft in den Industrienationen und das „nachhaltigere“ Verteilen der Wirtschaft weltweit, als Retter der Menschheit in die Geschichtsbücher eingehen wird. Das Gegenteil könnte der Fall sein. Klaus Schwab gilt für manche seiner Gegner, welche die Pläne zum Great Reset kennen ([Wochenblick berichtete](https://www.wochenblick.at/the-great-reset-wenn-verschwoerungstheorien-real-werden/)) als Teufel in Menschengestalt. An seinem Weltwirtschaftsforum hängt ein Rattenschwanz an Unternehmen, die ihm hörig aus der Hand fressen.
-
-特别严厉的批评者称这个组织类似于黑手党，特别是因为没有经过民主选举的超级富豪却想要决定他国的事情。钱是世界的主宰。 克劳斯-施瓦布就是活生生的证明。他的梦想是第四次工业革命，这位看起来春风得意的82岁老人可能决心要活到亲身体验大重启的那一刻。他希望通过破坏工业化国家的经济使其在世界范围内更加 “可持续发展”，他将作为人类的救世主载入史册。其实不会是这样的。克劳斯-施瓦布被一些知道大重置计划的反对者视为人形的魔鬼（Wochenblick报道）。在他的世界经济论坛上，世界上很多的大企业都言听计从。
-
-Mitwirkung an Zerstörung der Wirtschaft参与破坏经济
-
-Der dringende Verdacht, dass Schwab die bewusste Zerstörung der Industrie in allen Industriestaaten nicht nur von langer Hand plante, sondern jetzt auch an ihrer Umsetzung mitwirkt, sollte in Rechtsstaaten dazu beitragen, dass er vor Gericht gestellt wird. Kein Mensch alleine sollte über eine solche Machtfülle verfügen, wie sie Schwab aber auch anderen großen Spielern zugeschrieben wird. Es wäre an der Zeit, dass sich die Justiz dieser Strukturen und den Hintermänner der aktuellen Entwicklungen annimmt und eine genaue Untersuchung anordnet. **Überall auf der Welt werden Existenzen vernichtet, um die Agenda vom Great Reset voranzutreiben. Es ist unbekannt, wie viele Menschenleben bereits durch Suizide oder auch Hunger zu beklagen sind oder noch zu beklagen sein werden.** Wir wollen es nicht hoffen, aber schreiten die Dinge weiter so voran, sind Ausschreitungen und Unruhen zu befürchten.  Noch besteht Hoffnung, dass die Rechtsstaatlichkeit siegt. (AA)
-
-人们迫切地怀疑，施瓦布蓄意破坏所有工业化国家的工业的计划不仅由来已久，而且现在又参与了计划实施的执行活动，这足以让法治国家将他绳之以法。任何一个人都不应该单独拥有这样的权力，这不仅包括施瓦布，也包括其他主要角色。现在是司法机关对这些机构和当前事态发展的幕后黑手进行处理并下令进行彻底调查的时候了。**为了推进大重置计划，世界各地的正常生活正在被摧毁。不知道有多少人已经会因自杀甚至饥饿而失去生命。**我们希望这些都不会发生，但是如果事情继续以这种速度发展下去，骚乱和内乱将难以避免。至少目前法治至上的希望尚存。
+校对：沙拉猫
 
 0

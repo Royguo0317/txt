@@ -1,25 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP冠状病毒大流行 – 第354集
-` 新闻译制组` [轉載自GNews](https://gnews.org/zh-hans/810990/)
+## 中共立即宣布制裁蓬佩奥及班农等28人（玫瑰看新闻一月二十一日）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/810563/)
 
-**喜马拉雅大使馆译制组**
-
-
-
-**摘要**
-
-- **大选结束，美国医学协会批准了用羟氯喹治疗CCP病毒。**
-- 川普总统已经不当总统两天了，主流媒体和这么多人正在装作他从来没有存在过一样。
-- 拜登总统推动购买美国制造运动，以增强工业实力。
-- 阎博士发推说：“超限生物战争”是基于中国军事医学科学院的生物武器定义，由我对SARS-CoV-2本质做的重新定义。同时提醒大家注意还有“超限生物战争”。
-- 中共国专家：增加肛拭子检测可在一定程度上提高新冠病毒感染者的检出率。
-- 上海疫情扩大，仁济医院、肿瘤医院、黄浦区部分街道和小区先后被封。
-
-
-**G**|**TV 链接**
-
-[CCP冠状病毒大流行 – 第354集](https://gtv.org/video/id=600da4dbc3245d7c59e769f4)
-
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00001-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00002-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00003-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00004-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00005-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00006-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00007-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00008-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00009-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00010-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00011-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00012-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00013-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00014-8-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00015-4.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00016-4.jpg)
 0
