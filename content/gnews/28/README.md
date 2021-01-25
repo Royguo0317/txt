@@ -1,41 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以共灭共大幕已经拉开
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/804675/)
+## 班农战斗室WARROOM精选 671期 班农谈华盛顿现在仍然是一个武装营地 甚至比当年林肯总统就职典礼还戒备森严 不要存在幻想 回到现实重新定位
+` 新闻译制组` [轉載自GNews](https://gnews.org/zh-hans/804389/)
 
-新闻简述：在2021年1月22日的GTV盖特视频中，郭先生表达了他对爆料革命新进展的兴奋激动的心情，那就是“以共灭共”的大幕已经拉开，“这种厮杀，不管哪一方倒下，都对我们爆料革命有好处，是上天送给我们的礼物和机会。”
-视频来源：[https://gtv.org/getter/600b5e2187fabe2daf3f93bb](https://gtv.org/getter/600b5e2187fabe2daf3f93bb) 
-**中英文对照全文**
+供稿：班农战斗室译制组
 
-It’s the 22nd, between 6 and 7PM. Everyone is more anxious than me. [I’ve got] all kinds of messages. Brothers-in-arms from all sectors have texted me. Don’t worry, BIAs. The CCP is experiencing fierce internal struggles within itself. What a great era! Yes. There maybe some good news, or maybe not. But today history has been changed, without any doubt. Messages from all sources, no matter which source it is, all show that it is the biggest day of the Whistleblower Movement. This kind of struggle, no matter which side falls, will benefit our Whistleblower Movement and will be a gift and opportunity sent from the heavens.
+【班农】
 
-22号下午6点多，大家都比我着急呀。各种消息，各种战友给我发信息。别着急，战友们。[共产党正在]激烈的较量中，时代啊，大时代！嗯。也可能有好消息，也可能没有。但是今天绝对是改变历史的一个时刻，这是毋容置疑的。各种消息，不管哪一种，都是爆料革命最重要的一天。这种厮杀，不管哪一方倒下，都对我们爆料革命有好处，是上天送给我们的礼物和机会。
+甚至涉及国防部的自由主义者和高级官员，伙计们你们的统一口径。我们这里给大家传递的是信号而不是噪音，这就是信号。好，不要去听那些开心的鼓掌声，而噪音呢就是那个CNN主持人说的那些话。我想重申和继续详细说一下我们昨天所做的事情，以及多么荒唐的一场闹剧，华盛顿现在仍然是一个武装营地，我们仍然想司法部国防部有人站出来说一下。他们所说的喋喋不休的话到底指什么，能让华盛顿成为一个武装营地，甚至比当年林肯总统的就职典礼还戒备森严，我想当时从美国内战开始的30天或者45天，已经有5个或6个州脱离了联邦，当时是反叛战争。我们今天在绿色区域为您现场直播，现在仍然是绿色区域，我们有嘉宾要来到我们演播室，你们不能搞这么多的安检点，我们外面就有一个最高法院的安检点。
 
-Everyone is so anxious, and I can totally understand these feelings. But did you see how they [the CCP] faked the [news]? So fake! All nonsense! As long as the relevant individuals don’t show up, the truth isn’t revealed yet. In other words, whether it is someone coming out standing or lying dead, there has to be someone coming out. As long as no one from these four factions [of the CCP] coming out, either standing or lying, then … [what you see is not the truth]. Now, all those videos from the CCTV are fake. Don’t ever trust them. They are all fake news and bullshit.
+【拉希姆】
 
-大家都很着急，我特能理解这种心情啊。但是你看见他们造假了吗？造成啥了，那假？！胡扯八道！只要相关人没有全面出场，这个真相就没有出来。或者说，要不就站着出来，要么就横着出来，反正得有[人]出来。这四波人，只要没有[人]站着、横着出来的结果，[真相就没有出来]。现在中央电视台那[些视频]都是假的。千万别信，都是假的，胡扯的。
+别忘了演播室，我的意思是美国国会山让我最不可思议的事情是，无论你是游客还是当地居民都可以自由地在那里散步，是可以直接走到它那里。但是现在他们现在还是没有给出完整解释，他们仍然在说他们会继续保持这种状况，有国会议案的支持。我好好地读了一遍，它一直被清洗着，这是人民的建筑他们称之为人民的建筑附近人民的建筑。
 
-Let’s see, God is helping us. Hopefully this is not another frustration. The BIAs are marvelous! This kind of feeling is so wonderful. Talking about men, especially men like us, whenever we have such feeling, we’ll be in a very different mood. It’s just like you are able to make a big hole on earth with one punch. When thinking about being able to take down the CCP or about those poor, old bastards from the Zhongnan Pit being cremated and burnt, oh my, I will be excited. Excellent! Ho-ho! Stay tuned, brothers and sisters. We may go live at any moment. The final outcome will be known tomorrow. Good or not, you will know tomorrow.
+【班农】
 
-看着吧，上天正在帮我们。但愿这个不是另外一次的挫败。战友们太伟大了！这种感觉太奇妙了！这个男人啊，特别像我们这种男人，一遇到这种感觉的时候，心情不一样。就像，真是一拳，就能把这个地球砸个坑出来似的。一想到能灭共，一想到这些中南坑的老杂毛，要被火化，要被烧掉，哎哟！这兴奋啊，好啊！呵呵。等消息吧，兄弟姐妹们。随时直播。可能最终结果应该在明天，明天吧，好坏在明天。
+今天是2021年1月21日周四，我们的podcast下载量已经超过3000万，到处都可以聼我们的节目，JOHN Frederick广播网RealAmericasVoice新闻网哪里都有我们。我们会说一下大家如果帮我们推广这个节目，所有昨天没睡好的人，你们一个下午没有上班，当你返回工作岗位不要存在幻想，脱下你角色扮演的衣服，回到现实，重新定位，他们想按照他们的方式实现统一，Rush说的这就像一个一党专制的国家，这就是个要求一致的党，就像布什对一位将军说你拯救了整个国家，那就是布什家族。所有的努力所有的经济理论都是关于全球化，都是关于大重启，布什家族还有所有的支持者们。华尔街日报，福克斯新闻，如果你还想继续那一条路，就继续走吧。这是自由国度，你们是自由人士，就继续看那些吧。但是要记住，这是联合党，我们在这里号召的是，我们提供基于事实的不同选项和视角，以及基于对经济金融的理解这个系统机制。这个不是阴谋论，危机近在眼前，好吧，你可以知道拉西姆将马上过一下他们总统令做了什么，然后我们就能了解些事。他们将来的任期会做的事情，他们将在行政部门做的，当他们从政权的行政机构开始切入，他们签了17个行政令，意味着他们通过OLC，他们需要司法部签字，他们做的比我们2017上任做的还要过。他们签了17个行政令，他们要打掉曾经川普和我们提出的东西，至少我认为那些方案挺妙的，对国家会有好处的。他们在激烈改变这些东西，他们提出新的，而且你看得到方向，你要知道这个是因为他们要用这场危机，尤其是新冠CCP病毒危机，去驱动大量的事情。但是其中幕后两件事值得看的是，一个叫现代货币理论，是的，他们要做的就是大量赤字大量赤字。有人和我说全家医保，忘了那个吧，那个完了，你说啥呢。达医药公司会有保卫行动，在那些医药人员拥有的公司，共和党及国会会试图阻止的，但是会发生的，这个不是你最该担心的。他们要保障收入，他们要做的就是让你知道北京中国老百姓，奴隶制中国，现在你也要永远在美国有这个阶层，获得一些最低收入保障。
 
-（*以上翻译整理仅代表作者个人观点，不代表GNEWS或他人立场。*）
-
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/799944/](https://gnews.org/zh-hans/799944/)
-
-翻译：【gavinguo(文钦)】校对：【Isaiah4031】字幕：【班仔】视频解码：【相机过热啊】编辑：【Isaiah4031】
-
-喜马拉雅玫瑰园小队出品
-
-敬请关注:
-
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
-
-+1
+0
