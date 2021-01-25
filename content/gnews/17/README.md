@@ -1,55 +1,156 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中欧投资协议对西方是一场灾难
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/811466/)
+## 报告出错：接种&#8221;冠状病毒&#8221;疫苗后更可能发生 &#8220;严重 &#8220;感染
+` Mild Seven` [轉載自GNews](https://gnews.org/zh-hans/811449/)
 
-**作者: Robert Tyler**
+**2021****年1****月25****日**
 
-**编译: 莫黎**
+一篇在线德语文章的中文翻译
+
+**标题: 报告出错：接种”冠状病毒”疫苗后更可能发生 “严重 “感染**
+
+**原文标题: **🇩🇪 [Fehler im Protokoll: „Schwere“ Corona-Infektion mit Impfung wahrscheinlicher](https://www.epochtimes.de/gesundheit/fehler-im-protokoll-schwere-corona-infektion-mit-impfung-wahrscheinlicher-a3412034.html)
+
+**原文发表日期****：2021****年1****月12****日**
+
+**原文作者****：**[Tim Sumpf](https://www.epochtimes.de/autor?q=Tim%20Sumpf)
+
+**翻译:** Mild Seven, 英国伦敦喜庄园
+
+**校对：**拱卒， 英国伦敦喜庄园
+
+— 全文翻译（中德对照）–
+
+SARS-CoV-2, COVID-19 oder schlicht „Corona“ bestimmt derzeit das Leben – auch von Forschern, Ärzten und Statistikern, die immer mehr Fehler in den Dokumenten der Impfstoff-Hersteller finden. Während das Geschäft der Pharmakonzerne mit der Corona-Impfung brummt, sieht ein Arzt aus Kassel gar einen Vergleich von reifen Äpfeln und unreifen Birnen.
+
+SARS-CoV-2、COVID-19即”冠状病毒”目前左右着人们的生命，也包括那些从疫苗厂家的文件中发现越来越多错误的研究人员、医生和统计学家的生命。在医药集团的疫苗生意蓬勃发展的同时，卡塞尔的一位医生甚至在报告中发现驴唇不对马嘴的比较。）
+
+Die Nachricht über die Zulassung des Corona-Impfstoffes von BioNTech und Pfizer ruft nach wie vor geteilte Meinungen hervor. Während Politiker in ihm den erwünschten Impfstoff zum Schutz der Bevölkerung sehen, finden Wissenschaftler, Ärzte und Statistiker immer mehr Mängel in den Studien und Protokollen, die zur Zulassung geführt haben.
+
+针对BioNTech和辉瑞公司的新冠疫苗得到批准生产方面的消息一直以来都会引起意见分歧。政治家们视其为保护民众所需的疫苗，而科学家、医生和统计学家却在厂家的研究报告中发现越来越多的疑点，而正是这些研究报告让制造商获得了疫苗生产许可。
+
+Die größten Kritikpunkte: lebensbedrohliche Nebenwirkungen, ein kaum nachweisbarer positiver Effekt der Impfung und Fehler im Protokoll, die reife Äpfel und unreife Birnen vergleichen.
+
+最大的被质疑的几点是：**有****“****危及生命”**的副作用，几乎无法证实的接种疫苗后的正面效果，报告中出现的驴唇不对马嘴的比较。
+
+## **„Lebensbedrohliche“ Nebenwirkungen … gibt es nur im Anhang**
+
+## **“****危及生命”****的副作用****…****仅出现在附录当中**
+
+Auf insgesamt 376 Seiten des Protokolls zur Untersuchung der [„Sicherheit und Effektivität des BNT162b2 mRNA Covid-19 Impfstoffes“](https://www.nejm.org/doi/suppl/10.1056/NEJMoa2034577/suppl_file/nejmoa2034577_protocol.pdf) taucht das Wort „lebensbedrohlich“ ein Dutzend Mal auf. Kein einziges Mal wird erwähnt, dass 44 von etwa 44.000 Probanden lebensbedrohliche Nebenwirkungen zeigten, die – laut Definition aus dem Protokoll – „dringendes [medizinisches] Eingreifen erforderten. Diese Zahl steht erstmals in einem [separat veröffentlichten Anhang](https://www.nejm.org/doi/suppl/10.1056/NEJMoa2034577/suppl_file/nejmoa2034577_appendix.pdf). (vgl. Tabelle S3).
+
+**尽管“危及生命”**一词在376页的有关[“BNT162b2 mRNA Covid-19疫苗的安全性和有效性”的报告中共](https://www.nejm.org/doi/suppl/10.1056/NEJMoa2034577/suppl_file/nejmoa2034577_protocol.pdf)出现了十几次。但没有一次提及在约4万4千名受试者中有44人表现出有“危及生命”的副作用，在报告中把它定义为”需要紧急[医疗]干预“。 这个数字首次出现在一个单独发布的[附件](https://www.nejm.org/doi/suppl/10.1056/NEJMoa2034577/suppl_file/nejmoa2034577_appendix.pdf)中。 （参见表格S3）。
+
+Dass diese Reaktionen jedoch nicht auf die Studie beschränkt waren, belegt unter anderen eine Krankenpflegerin aus Juneau (Alaska). Sie musste [nach der Impfung eine Nacht auf der Intensivstation](https://www.epochtimes.de/gesundheit/alaska-krankenpfleger-nach-corona-impfung-auf-intensivstation-a3405607.html) verbringen. Vorerkrankungen oder Allergien hatte die Frau nach Angaben des Krankenhauses keine. Weitere Geimpfte berichteten vom kurzzeitigen Verlust des Bewusstseins bis zu anaphylaktischen Schocks.
+
+一位来自朱诺（阿拉斯加）的护士证明，这些副反应并不只出现在疫苗研究阶段。她在接种疫苗后[不得不在重症监护室过了一夜。](https://www.epochtimes.de/gesundheit/alaska-krankenpfleger-nach-corona-impfung-auf-intensivstation-a3405607.html) 医院说，该女士没有旧疾或过敏性史。同样其他接种过疫苗的人也出现短期的意识丧失甚至过敏性休克。
+
+Weiterhin steht im Protokoll, dass bis zu 84,1 Prozent der Probanden unerwünschte Reaktionen auf die Impfung zeigten. Insbesondere jüngere Menschen und Teilnehmer nach der zweiten Impfdosis berichteten von teils schweren Beeinträchtigungen des Alltags. Dass bis zu 45 Prozent der Geimpften im Anschluss Schmerzmittel oder andere Medikamente nahmen, kommt weder in den großen Medien noch im „Aufklärungsmerkblatt zur Schutzimpfung gegen COVID-19“ zur Sprache.
+
+此外，报告中提及，高达84.1%的受试者在接种疫苗后出现不良反应。尤其是年轻的受试者和接种了第二次疫苗的受试者报告其日常生活受到部分严重的影响。而主流媒体和“针对COVID-19的疫苗接种信息资料”中均未提及的是，有多达45%的接种疫苗者需要服用止痛药或其他药物。
+
+Auch die positiven Effekte der Impfung sind alles andere als überzeugend. Die Erfolgsmeldung „95 Prozent Effektivität“ wird kaum ihrem landläufigen Verständnis – [95 von 100 Geimpften sind vor Corona geschützt](https://www.epochtimes.de/gesundheit/unstatistik-des-monats-der-impfstoff-ist-zu-90-prozent-wirksam-a3408796.html) – gerecht.
+
+疫苗接种的积极作用也是毫无说服力的。成功率报告”95%的有效性 “这一说辞也不是公认的“100个接种者中就有95个不会再感染新冠病毒”的理解。
+
+Schaut man sich die Zahlen von BioNTech/Pfizer etwas genauer an, beziehen sich die Zahlen des Impfschutzes nicht auf die Geimpften, sondern auf die positiv Getesteten. Bezogen auf die Gesamtzahl der Studienteilnehmer schützte die Impfung 154 von 18.198 Personen. Das entspricht 0,84 Prozent der Geimpften.
+
+如果您仔细查看 BioNTech/辉瑞公司的数据就会发现，疫苗接种保护数据并不是指所有参与接种疫苗的人，而是指（核酸）测试为阳性的受试者。如果将所有参与研究的受试者作为总数计算，那么18198人在注射疫苗后只有154人受到保护。这相当于接种疫苗的人数的0.84%。
+
+Eine Entlastung des Gesundheitssystems ist aufgrund der [belegten Impfreaktionen und Nebenwirkungen](https://www.epochtimes.de/gesundheit/biontech-pfizer-bis-zu-84-prozent-nebenwirkungen-gesichtslaehmung-bei-vier-testpersonen-a3401040.html) nicht zu erwarten. Geschweige denn nachgewiesen. Per Definition „schwere Corona-Infektionen“ konnte die Impfung drei Mal verhindern. Nach offizieller Rechenart beträgt die (relative) Effektivität bezüglich schwerer COVID-19-Fälle 75 Prozent. [Die absoluten Zahlen der Studie sprechen von 3 von 21.259 oder 0,0141 Prozent.](https://www.epochtimes.de/gesundheit/00141-prozent-positiver-effekt-der-corona-impfung-kaum-nachweisbar-a3407982.html)
+
+根据报告中确认的接种疫苗后的反应及副作用，说明[卫生系统的压力不会得到缓解。](https://www.epochtimes.de/gesundheit/biontech-pfizer-bis-zu-84-prozent-nebenwirkungen-gesichtslaehmung-bei-vier-testpersonen-a3401040.html)更别说能证明了。按照这个说法，疫苗征集对”重症新冠感染”据有三倍的预防效果。根据官方计算方法，对重症COVID-19病例的（相对）有效性为75%。[研究中的绝对数字仅对21259人中的3人有效，即0.0141%。](https://www.epochtimes.de/gesundheit/00141-prozent-positiver-effekt-der-corona-impfung-kaum-nachweisbar-a3407982.html)
+
+Das heißt von 7.086 geimpften Personen profitiert eine von der Wirkung. 5.960 Personen (84 Prozent) zeigen mehr oder minder schwere Reaktionen auf die Impfung. Und 3.190 (45 Prozent) kaufen Schmerzmittel oder ähnliches.
+
+也就是说，在接种疫苗的7 086人中，仅有一人从中受益。5960人（84%）对疫苗表现出或多或少的严重反应。3190（45%）则需要购买止痛药等药剂。
+
+## **Nachträglicher Vergleich von reifen Äpfeln und unreifen Birnen**
+
+## **驴唇不对马嘴的后续比较**
+
+Zacharias Fögen, Arzt aus Kassel, verweist außerdem darauf, dass die Betrachtung schwerer COVID-19-Fälle ursprünglich nicht Teil der Untersuchung war. „Man hat [den Punkt] erst im Verlauf der Studie nachträglich eingefügt“, schreibt Fögen in einem Gastbeitrag auf [„reitschuster.de“](https://reitschuster.de/post/impfstoff-betrug-im-kleingedruckten/). Den Punkt 6.2.2.1 „Bestätigte schwere COVID-19-Inzidenz pro 1.000 Personenjahren“ habe es in einer früheren Version der Studie nicht gegeben.
+
+来自卡塞尔的医生费根在[„reitschuster.de“](https://reitschuster.de/post/impfstoff-betrug-im-kleingedruckten/)发文指出，对COVID-19重症患者的观察最初并不包括在研究范围内，而是在调查进行中后续增加的。研究报告中的第6.2.2.1条关于”每 1000 人/年 COVID-19重症发病率”的说法在研究的早期版本中不存在。
+
+Beim nachträglichen Einfügen scheinen die Autoren jedoch mit ihren eigenen Definitionen zu brechen. Während die Effektivität der Impfung auf den Zeitraum ab 7 oder 14 Tage nach der zweiten Impfung bezogen ist, zählt der Hersteller schwere COVID-19 Fälle ab dem Tag der ersten Impfung und leitet dann aus den Zahlen ab:
+
+*„Von den 10 Fällen von schwerem Covid-19, die nach der ersten Dosis beobachtet wurden, trat nur 1 in der Impfstoffgruppe auf. […] Die Aufteilung der schweren Fälle liefert einen vorläufigen Beweis für einen durch den Impfstoff vermittelten Schutz gegen schwere Erkrankungen […]“.*
+
+在增加了这部分新的研究观察后，作者们却无法自圆其说了。关于疫苗有效性的认定本应在第7天后或第二次接种的14 天后才能得出。但是由于疫苗生产商从第一次接种之日起计算疫苗对COVID-19 重症病例有效性，于是从中得出了以下结论：
+
+*“**在第一次注射疫苗后出现的**10**例**Covid**-19**重症病例中，只有**1**例发生在疫苗组。**[…]**对出现**重症**病例的分组为疫苗对重症病例的保护作用提供了初步证据**[…]”.* *（**\***）*
+
+Im weiteren Verlauf der Studie kommt BioNTech/Pfizer zu dem Schluss, dass die volle Impfwirkung erst etwa sieben Tage nach der zweiten Impfdosis zu erwarten ist. Ab diesem Zeitpunkt traten insgesamt nur noch fünf schwere Fälle auf, vier in der Placebo-Gruppe, einer in der Gruppe der Geimpften, sodass die Aufteilung der Fälle keineswegs deutlich ist.
+
+在进一步研究过程中BioNTech/辉瑞公司得出结论，疫苗的防预效果在第二剂疫苗接种后的大约七天后才会完整显现。从这个时间点开始，总共只出现5例重症，其中4例在安慰剂组，1例在接种组，因此重症病例的分布并不能一目了然。
+
+Zudem ist den [Unterlagen, die der amerikanischen Food and Drug Administration (FDA) zur Zulassung des Impfstoffs vorlagen](https://www.fda.gov/media/144245/download), zu entnehmen, dass nicht alle „schweren“ COVID-19-Fälle überhaupt, geschweige denn im Krankenhaus, behandelt wurden.
+
+此外，[提交给美国食品和药物管理局（FDA）的批准疫苗的申请文件表明](https://www.fda.gov/media/144245/download)，并非所有”严重”的COVID-19病例都接受了治疗，更不用说住院治疗了。
+
+Eine direkte Gegenüberstellung der Zahlen von nicht erkrankten Geimpften und ungeimpften schwer Erkrankten ist aufgrund der unterschiedlichen Zeiträume aus statistischer Sicht unzulässig und irreführend.
+
+从统计学的角度讲，不同时期，无病而注射疫苗者，与重病而未接受疫苗注射者的数据直接比对是不允许及具有误导性的。
+
+## **„Schwere“ Corona-Infektion mit Impfung wahrscheinlicher**
+
+Um die Zahlen dennoch zu vergleichen, müssen mindestens die betrachteten Zeiträume angeglichen werden. Alle nachfolgenden Fallzahlen beziehen sich daher auf den Zeitraum mindestens sieben Tage nach der zweiten Impfung.
+
+## **接种疫苗后更可能成为****“****重症”感染者**
+
+为了得到可比性数据，参照的时间段至少要保持一致。所有以下病例数均为第二次接种疫苗后七天。
+
+Eine weitere Differenzierung nach im Krankenhaus behandelt, per Definition schwere Fälle oder nur positiv getestet, kann aufgrund des vorliegenden Datenmaterials nicht erfolgen. [Asymptomatische Fälle wurden überhaupt nicht erfasst.](https://www.epochtimes.de/gesundheit/00141-prozent-positiver-effekt-der-corona-impfung-kaum-nachweisbar-a3407982.html) Dennoch lassen sich aus den Daten zwei Schlussfolgerungen ableiten:
+
+根据现有数据无法将所谓的“重症”或检测为阳性的在医院接受治疗的人做进一步区分。 “无症状病例”完全没有记录。 但是，我们可以从所知数据中得出两个结论：
+
+1. In der Gruppe der Geimpften gab es [weniger bestätigte Corona-Fälle](https://www.epochtimes.de/gesundheit/unstatistik-des-monats-der-impfstoff-ist-zu-90-prozent-wirksam-a3408796.html) und
 
 
+1. 在接种疫苗的群体中，确诊[的冠状病例较少](https://www.epochtimes.de/gesundheit/unstatistik-des-monats-der-impfstoff-ist-zu-90-prozent-wirksam-a3408796.html)，同时
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/00123-26.jpg)**图片: European Union **
-
-
-
-2020年12月，由冯德莱恩、查尔斯·米歇尔、习近平、默克尔和马克龙在联合虚拟新闻发布会上宣布的《中欧全面投资协议》是西方世界的灾难。它未能强调中国的侵犯人权的问题，也没有覆盖强制劳动（奴工）的问题。它使专制政权合法化。最重要的是，它不会像承诺的那样为欧洲人创造就业机会。
-
-该投资协议尚未向公众或欧洲议会成员公开，据称该协议是将中华人民共和国新的投资引入欧盟的工具。表面上看，这似乎不错，但根据少数看过该协议的人发表的文章来看，这是有附加条件的。
-
-其中最主要的是，欧盟坚持不迫使中国签署国际劳工组织关于使用强迫劳动力的公约。这意味着，中国共产党将获得一张空白支票，可以继续在全国各地使用维吾尔族和藏族人作为强迫劳动力。
-
-最近的证据表明，中国目前把将近300万藏族和维吾尔族人关押在拘留营，并将他们发派到全国各地（不仅仅是在他们的家乡），作为廉价的强迫劳动力。这些人经常被用来从事更艰苦的体力劳动，如采摘棉花或从事建筑工作— 没有适当的设备或工作休息时间。还有一些人被带到全国各地的工厂从事制造业工作。根据澳大利亚政府的一份报告，据称发现有维吾尔族劳工在欧洲大企业的汽车工业中工作。
-
-美国和英国都对这些指控作出了迅速反应，全面禁止进口农产品，包括来自中国的棉花。此外，还禁止进口在强迫劳动条件下生产的商品，政府对被发现使用在这些条件下生产的材料将处以重罚。相比之下，欧盟没有出台任何此类禁令。
-
-同样，该协议也没有保护作为协议的一部分而将要进入欧盟的中国劳工的权利。该协议中许多泄露的条款之一指出，无限量的中国劳工将可以随公司来到欧盟，并可停留长达3年。而这是连加拿大人、英国人和美国人都没有的权利。然而，已在欧盟的中国劳工的权利充其量也是令人质疑的— 华为前雇员最近发表的一篇文章揭露了企业压制工人的文化。
-
-在华为的一个欧洲办公室里，中国工人与欧洲人分楼层工作— 无论他们在公司的资历如何。他们被禁止与欧洲人发生恋爱关系，违反禁令的人会被召回中国，如果他们拒绝回去，则会被解雇。一个来自西班牙分部的造成严重后果的报告，一名中国工人因为流产后请假寻求生育治疗而被公司解雇。实际上，在欧洲的中国工人已经受到威胁，他们无法与欧洲的同事交流互动而孤立无援。而在解决这些问题方面几乎没有采取什么措施，因为工会发现，员工们太害怕寻求代表— 理由是担心国内的家庭。
-
-补充一点，如果中国劳工被带到中方的投资项目上工作，那么这在什么层面上为欧洲人创造了就业机会？在世界其他地区，我们已经看到了中国企业到来并带了他们自己的员工会发生什么。在南亚和非洲，中国的投资并没有为当地工人创造新的工作岗位，而是创造了充斥着公司自己带来工人所组成的事实殖民地哨所。在斯里兰卡，一个许诺建在南部海岸加勒的新港口变成了一个债务陷阱的噩梦，这成了一个中国人经营的港口，用来自中国的钱建造，而员工也是中国公民。
-
-除了对该协议结构的担忧外，布鲁塞尔还应该更加关切此协议对价值观的影响。欧盟签署这项《全面投资协议》，也就等于为中共北京政权签了一张空白支票，让它得以继续镇压少数民族和民主改革者。这不仅没有传递某些行为要承担后果的信息，反而向世界发出了这样的信息：如果你虐待人民，镇压他们，损害他们的基本权利，我们不会惩罚你，我们会用贸易协议来奖励你。
-
-整个协议似乎又是一个欧洲委员会的皇帝没穿衣服，而欧洲其他国家选择无视的情况。他们试图批准的协议破坏了欧盟本应代表的每一种价值。它撕毁了《基本权利宪章》，并使虐待基督徒、维吾尔人、藏人、香港人、民主倡导者、哈萨克族人和乌兹别克族人的行为合法化，而他们中的很多人目前正在共产党控制的拘留营中。
-
-令人难以想象的是，欧盟会与苏联或霍克沙的阿尔巴尼亚达成这样的协议，当那么多人被关在古拉格斯，被用来做强迫劳动，还有那么多的人仍然没有集会或公开发言的自由。然而，这些政权遵循的是与习近平的中国一样的专制主义。
-
-为什么今天欧洲愿意为了一个不会让每个人受益的协议而放弃自己的价值观，并为中国投资进入欧洲提供比英、美、日、韩、澳更容易的通道？欧盟执着于开辟自己的道路，而选择背弃了自己的民主盟友。
-
-欧盟没有优先考虑与日本、韩国、台湾、美国、澳大利亚或英国等与其有相同价值观的国家进行贸易和投资，而是选择了合法化一个对其构成生存威胁的政权。欧盟委员会应认真重新考虑其外交政策的优先事项，而欧洲议会至少应拒绝这项灾难性的协议。
+1. Die Wahrscheinlichkeit einer „schweren“ Erkrankung ist in der Gruppe der Geimpften deutlich höher.
 
 
+2发生”重症”疾病的概率在接种疫苗的群体中要高得多。
 
+In der Gruppe der Ungeimpften registrierte BioNTech/Pfizer 162 bestätigte Corona-Fälle, darunter vier „schwere“ Fälle. In der Gruppe der Geimpften gab es insgesamt acht bestätigte Corona-Fälle. Einer davon „schwer“.
 
+在未接种疫苗的群体中，BioNTech / 辉瑞公司记录了162例确诊新冠病例，其中包括4例“重症”。 在接种疫苗的群体中总共确诊了8例新冠病例，其中1例“重症”。
 
-**新闻来源: **
+Bezogen auf die Gesamtheit der bestätigten COVID-19-Fälle heißt das: Ungeimpfte erkranken häufiger, aber nur zu unter 2,5 Prozent „schwer“. In der Gruppe der Geimpften beträgt der Anteil „schwerer“ Fälle 12,5 Prozent und ist damit mehr als fünfmal so hoch.
 
+就确诊的COVID-19病例总数而言，这意味着未接种疫苗的人更容易出现症状，但只有低于2.5%为”重症”。在接种疫苗的群体中，”重症”病例的比例为12.5%，是未接种疫苗群体的5倍以上。
 
+## **Fehler im Protokoll und das Auslöschen der Kontrollgruppe**
 
-> [The EU-China investment agreement is a disaster for the West](https://www.neweurope.eu/article/the-eu-china-investment-agreement-is-a-disaster-for-the-west/)
+Allein die Tatsache, dass nur 2,5 Prozent der bestätigten (ungeimpften) Infizierten schwer erkranken, wirft laut Fögen die Frage auf „warum wir überhaupt impfen“. Aber auch die mitgelieferten statistischen Kenngrößen geben Anlass zum Nachdenken. Fögen schreibt:
 
+*„Das 95%-Konfidenzintervall geht von -152,6% bis 99,5%. Das bedeutet: Zu 95 Prozent liegt die Effektivität der Impfung zwischen minus 152,6 Prozent und 99,5 Prozent. Mit anderen Worten: […] Es könnte auch sein, dass die schweren Fälle verstärkt auftreten (eben bis zu minus 152,6 Prozent Effektivität).“*
 
+## **报告中的错误和控件组的删除**
+
+费根医生说，在未接种疫苗的人群中只有2.5%的确诊感染者为重症，这一事实就提出了”为什么我们要接种疫苗”的问题。提供的统计参数也让人们引起反思。费根写道：*“95%**的置信区间从**-152.6%**到**99.5%**。这意味着**95%**的疫苗有效性范围从负**152.6%**到**99.5%**。换句话说：**[…]**也可能严重病例更频繁（甚至高达负**152.6%**的有效性）。*
+
+Laut Fögen ist „der weitere Verlauf aufgrund der kurzen Studienzeit noch völlig unklar.“ Eine weiterführende Untersuchung wird jedoch in doppelter Hinsicht schwierig. „Einiges spricht dafür, dass der Nutzen der Impfung nach zwei Monaten genauso nachlässt wie die Immunität nach einer Infektion nach dem gleichen Zeitraum.“
+
+据费根医生说，“由于研究时间短，后续的进展完全不清楚”。更深入的研究在各方面都变得困难重重。“有证据表明，接种疫苗后的人体免疫力与对一般感染的免疫能力一样，都会在两个月后开始减弱。”
+
+**Unklar sei zudem,**** *****„ob [der Impfstoff] die Geimpften vor schweren Verläufen schützt oder
+ob er die Geimpften davon abhält, andere zu infizieren oder
+ob der Effekt überhaupt mehr als zwei Monate hält […] und somit auch
+ob der Effekt mehr als 1 % der Infizierten überhaupt ’schützt‘.“***
+
+**不清楚的是，****“[*****疫苗******]******是否能防止接种了疫苗的人出现“重症”，或者它是否能防止接种了疫苗的人继续感染他人******，或者其免疫效果能否持续两个月以上******[…]******，而其功效是否******能******“******保护******“******超过******1%******的感染者。***
+
+Obgleich sechs Probanden im Zeitraum der Untersuchung gestorben sind (unter anderem an Herzversagen, Arteriosklerose, Infarkt und Schlaganfall), war keiner von ihnen Corona-positiv. Von den seit Tag 1 der Studie registrierten 325 Corona-Positiven starb kein einziger.
+
+有六名受试者在研究期间死亡（死因包括心力衰竭、动脉硬化、梗死和中风），他们当中无一人是新冠阳性。而自研究第一天以来登记的325个新冠阳性受试者中，无一人死亡。
+
+Allerdings, so Fögen, sieht BioNTech/Pfizer den Impfstoff als unentbehrlich an und könne ihn den Teilnehmern der Placebo-Gruppe nicht vorenthalten. Eine mittel- oder langfristige Untersuchung der Effektivität des Impfstoffes – unter normalen Umständen dauert eine Impfstudie zwei Jahre statt zwei Monate – wird damit unmöglich.
+
+然而，费根医生认为，BioNTech/辉瑞公司认为这种疫苗是不可或缺的，同样要给得到安慰剂组的参与者注射。在正常情况下，疫苗的中长期有效性研究需要两年，两个月是不可能的。
 
 0

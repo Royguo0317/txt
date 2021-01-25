@@ -1,82 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 肯尼亚可延期偿还中共国的2.45亿美元债务
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/810341/)
+## 斯里兰卡本周将开始疫苗接种
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/810581/)
 
-*新闻来源：《南华早报》| 作者：Jevans Nyabiage | 发布时间：2021年1月23日*
-
-*翻译/简评：比丘泥 | 校对：SilverSpurs7 | 审核：万人往 | Page：拱卒*
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/covid-wuhan-clubbing_2.jpg)
-
-**简评：**
-
-中共伪善终究遮不住罪魁祸首真面目。还款假期，是指借款人暂停偿还本金的期限，在这期间，利息仍然计算，只是暂时为借款人赢得喘息之机。2021年1月23日，《南华早报》报道，东非肯尼亚由于受新冠病毒影响，税收大幅下降，不得不向中共申请还款假期。该笔贷款总额为14.8亿美元，用于修建铁路，此次还款假期的申请为2.45亿美元。
-
-中共推行“一带一路”计划，向受援国提供贷款，修建铁路、港口等基础设施。这些项目需要受援国用主权信誉和矿产等自然资源作为担保，工程项目往往由中方企业实施，资金绝大多数流入中企或权贵家族腰包，对当地就业促进作用非常小，修建的基础设施也几乎没有任何的经济效益。中共每年提供的贷款，都来自国内百姓的血汗钱，相当于中共财政每年用于社会福利的数倍。对中共来说，既可以借此洗钱，又可以在受援国制造经济泡沫，构建债务陷阱，导致受援国不堪重负，以达到控制该国的目的。
-
-肯尼亚，正遭受新冠病毒之痛。新冠病毒本就是中共制造释放，截止目前，已造成全球1亿多人感染，200多万人死亡。肯尼亚现在更是雪上加霜，这在非洲早已不是个例，多个受援助国怨声载道。肯尼亚虽然贫穷，但反抗是人的本能。仗剑之人必死于剑下，在新冠病毒真相大白之日，中共将很快面临非洲大地上群起而攻之的局面。
-
-**原文翻译：**
-
-# **中共国与肯尼亚达成2.45亿美元债务的还款假期协议**
-
-就在内罗毕即将偿还中共国进出口银行14.8亿美元贷款的几个小时前达成了这项协议。
-
-由于冠状病毒大流行，东非国家肯尼亚的税收大幅下降，陷入债务泥潭
-
-[!\[\]()!\[\](https://spark.adobe.com/page/IcQGF7s9pzRz7/images/0b59d7d2-4e33-47c1-b8e4-24dc59576242.jpg?asset_id=f36a5d46-51d7-4e80-b60c-171ef21430f9&amp;img_etag=%2216def4c200af7f1984b8d54703f6d662%22&amp;size=2560)](https://spark.adobe.com/page/IcQGF7s9pzRz7/images/0b59d7d2-4e33-47c1-b8e4-24dc59576242.jpg?asset_id=f36a5d46-51d7-4e80-b60c-171ef21430f9&amp;img_etag=%2216def4c200af7f1984b8d54703f6d662%22&amp;size=1024)
-
-肯尼亚与中共国的交易是在数小时前达成的，该交易原定要偿还用于修建铁路的14.8亿美元贷款的第一笔还款。新华网图片
-
-中共国批准了肯尼亚要求在1月至6月之间偿还价值2.45亿美元债务的还款假期请求，这给了这个东非国家以喘息的空间来振兴其经济，该国受到了冠状病毒大流行的严重破坏。
-
-肯尼亚国家财政部长乌库尔·亚塔尼（Ukur Yatani）表示，与北京达成的协议将为该国带来“我们所希望的资产流动性喘息之机”。
-
-就在几小时前，肯尼亚准备偿还中国进出口银行（Exim Bank）14.8亿美元的贷款，用于修建从首都内罗毕到中央裂谷奈瓦沙镇的铁路。
-
-“我们现在可以用这笔钱来履行我们的义务，包括继续资助中央政府和县政府。”亚塔尼周三对媒体说。
-
-他说：“我们很高兴收到现在不需要支付的反馈。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/IcQGF7s9pzRz7/images/8e22db8f-b9b9-416a-b14f-121d250bb067.jpg?asset_id=926468a9-2f2f-46dc-87f6-0ef79c487aea&amp;img_etag=%22d58d60a7bd963d1a48a48ed5e316e8da%22&amp;size=2560)](https://spark.adobe.com/page/IcQGF7s9pzRz7/images/8e22db8f-b9b9-416a-b14f-121d250bb067.jpg?asset_id=926468a9-2f2f-46dc-87f6-0ef79c487aea&amp;img_etag=%22d58d60a7bd963d1a48a48ed5e316e8da%22&amp;size=1024)
-
-肯尼亚国家财政部长乌库尔·亚塔尼（Ukur Yatani）表示，与北京的交易使该国“获得了我们所希望的资产流动性喘息之机”。 图片：推特
-
-与中共国达成协议一周前，巴黎俱乐部（Paris Club）同意给予肯尼亚在未来六个月内到期的价值3亿美元的债务一个服务假期。巴黎俱乐部是一个帮助陷入困境的借款人的非正式债权人组织。
-
-中共国驻内罗毕大使馆周二表示，北京“愿与肯尼亚加强协调，并协助肯尼亚努力应对债务挑战”，但未透露更多细节。
-
-代表团在声明中说，中共国国际开发合作署和进出口银行已经执行了发展中国家提出的所有符合条件的债务暂停请求。
-
-根据国库贷款记录，内罗毕应该在本周四至2035年7月21日之间向进出口银行付款30次。利率被设定为比作为基准的伦敦银行同业拆借利率高3%。
-
-肯尼亚从进出口银行获得的用于建造蒙巴萨-内罗毕标轨铁路一期工程的16亿美元独立贷款将于7月到期。
-
-此外，用于“经济和技术合作”的人民币5000万元（770万美元）贷款将于4月1日开始偿还，用于内罗毕电力网络升级的6.6亿元贷款将于9月开始偿还。
-
-根据世界银行债务报告系统，肯尼亚应在6月底前向中共国支付约4.99亿美元。
-
-中共国是肯尼亚最大的个人贷款国，截至9月底，已为肯尼亚提供约67亿美元的融资，用于修建公路、铁路、港口和其他基础设施。但是，这个非洲国家一直在努力偿还贷款，因为作为北京“一带一路”倡议一部分的一些项目，包括标轨铁路项目，都没有产生足够的收入来偿还自己的债务。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/IcQGF7s9pzRz7/images/e811d54d-1418-4c1a-8e8c-2fefc49a1d3d.jpg?asset_id=78987052-e93b-409b-a62e-048f4bdd9a08&amp;img_etag=%22b680d67f96e555b4c44f7f86c0c601ff%22&amp;size=2560)](https://spark.adobe.com/page/IcQGF7s9pzRz7/images/e811d54d-1418-4c1a-8e8c-2fefc49a1d3d.jpg?asset_id=78987052-e93b-409b-a62e-048f4bdd9a08&amp;img_etag=%22b680d67f96e555b4c44f7f86c0c601ff%22&amp;size=1024)
-
-肯尼亚最初拒绝申请由G20牵头的暂停偿债倡议（DSSI），担心这会对其信用评级产生负面影响并限制其进入私人资本市场。但据报道，国际货币基金组织（IMF）鼓励该政府寻求债务减免，因为该政府在新冠疫情导致税收大幅下滑后，开始努力偿还债务。
-
-肯尼亚是赞比亚、安哥拉等数十个受益于中共国减免债务的国家之一。中共国外交部本月表示，北京已与12个非洲国家签署了暂停付款协议，并对15个非洲国家到期的无息贷款给予豁免。
-
-尽管分析人士说，由于债务义务的条款并不总是公开的，所以有关交易的细节尚不清楚，但中共国大使馆表示，北京致力于实施暂停偿债倡议（DSSI），其中涉及欠中共国约20亿美元的债务。
-
-🔗[原文链接](https://www.scmp.com/news/china/diplomacy/article/3118845/china-kenya-agree-repayment-holiday-us245-million-worth-debt)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+- 编辑：Victor Torres
 
 
-编辑：[【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/IcQGF7s9pzRz7/)
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-[!\[\]()!\[\](https://spark.adobe.com/page/IcQGF7s9pzRz7/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/IcQGF7s9pzRz7/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+**西班牙2021年1月25日电/西喜社——**斯里兰卡政府表示，将于本周开始为民众接种中共病毒疫苗。
+
+斯里兰卡将于周三收到印度捐赠的50万剂牛津-阿斯利康疫苗，接种工作将于次日开始。疫苗将首先提供给卫生部门、军队和警察等一线人员。
+
+斯里兰卡还订购了一批辉瑞-生物技术公司的疫苗，并将通过世卫组织的COVAX计划为20%的人口接种疫苗。
+
+**新闻来源：**[https://apnews.com/article/pandemics-andrej-babis-coronavirus-pandemic-czech-republic-germany-cb92fa172f477c2008e98536d9523a5f](https://apnews.com/article/pandemics-andrej-babis-coronavirus-pandemic-czech-republic-germany-cb92fa172f477c2008e98536d9523a5f)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/708abdfc-3cdf-4d0e-b4a7-abacde178131-15.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
 0

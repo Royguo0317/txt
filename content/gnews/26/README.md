@@ -1,26 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港九龙部分地区封锁周一被解除
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/811001/)
+## CCP冠状病毒大流行 – 第354集
+` 新闻译制组` [轉載自GNews](https://gnews.org/zh-hans/810990/)
 
-- 编辑：Victor Torres
+**喜马拉雅大使馆译制组**
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月25日电/西喜社——**在数千名居民接受病毒检测后，香港九龙部分地区的封锁周一被解除。
+**摘要**
 
-周六一早开始的封锁覆盖了油尖旺地区工薪阶层的16栋大楼。在封锁期间，居民不得离开他们的住所，直到他们的中共病毒测试呈阴性。
+- **大选结束，美国医学协会批准了用羟氯喹治疗CCP病毒。**
+- 川普总统已经不当总统两天了，主流媒体和这么多人正在装作他从来没有存在过一样。
+- 拜登总统推动购买美国制造运动，以增强工业实力。
+- 阎博士发推说：“超限生物战争”是基于中国军事医学科学院的生物武器定义，由我对SARS-CoV-2本质做的重新定义。同时提醒大家注意还有“超限生物战争”。
+- 中共国专家：增加肛拭子检测可在一定程度上提高新冠病毒感染者的检出率。
+- 上海疫情扩大，仁济医院、肿瘤医院、黄浦区部分街道和小区先后被封。
 
-该地区一直是中共病毒疫情恶化的中心，在1月份的头三周内，该区报告了超过160宗病例。在污水样本中也发现了较高浓度的病毒，这促使人们担心病毒可能会通过缺乏通风的小区单位中安装不良的管道系统传播。
 
-政府在周一早些时候的一份声明中说，在封锁期间，约有7000人接受了病毒检测，发现了13个阳性感染者。截至周日，香港总计报告了10,086例中共病毒病例，有169人死亡。
+**G**|**TV 链接**
 
-**新闻来源：**[https://apnews.com/article/pandemics-andrej-babis-coronavirus-pandemic-czech-republic-germany-cb92fa172f477c2008e98536d9523a5f](https://apnews.com/article/pandemics-andrej-babis-coronavirus-pandemic-czech-republic-germany-cb92fa172f477c2008e98536d9523a5f)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/4c0bb18f-732d-492a-90a1-1b77c8bab9a3-14.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+[CCP冠状病毒大流行 – 第354集](https://gtv.org/video/id=600da4dbc3245d7c59e769f4)
 
 0

@@ -1,25 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP冠状病毒大流行 – 第354集
-` 新闻译制组` [轉載自GNews](https://gnews.org/zh-hans/810990/)
+## 韩国报告437例新病例并对一宗教学校爆发的疫情发出警报
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/811057/)
 
-**喜马拉雅大使馆译制组**
-
-
-
-**摘要**
-
-- **大选结束，美国医学协会批准了用羟氯喹治疗CCP病毒。**
-- 川普总统已经不当总统两天了，主流媒体和这么多人正在装作他从来没有存在过一样。
-- 拜登总统推动购买美国制造运动，以增强工业实力。
-- 阎博士发推说：“超限生物战争”是基于中国军事医学科学院的生物武器定义，由我对SARS-CoV-2本质做的重新定义。同时提醒大家注意还有“超限生物战争”。
-- 中共国专家：增加肛拭子检测可在一定程度上提高新冠病毒感染者的检出率。
-- 上海疫情扩大，仁济医院、肿瘤医院、黄浦区部分街道和小区先后被封。
+- 编辑：Victor Torres
 
 
-**G**|**TV 链接**
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-[CCP冠状病毒大流行 – 第354集](https://gtv.org/video/id=600da4dbc3245d7c59e769f4)
+**西班牙2021年1月25日电/西喜社——**韩国又报告了437例新的中共病毒感染病例，同时官员们对一所传教士培训学校爆发的疫情发出了警报。
+
+迄今为止，在位于中部城市大田的教会开办的学院中，大约有130名学生和教师被发现感染。
+
+总理丁世均在病毒会议上呼吁卫生官员迅速处理大田学校的疫情，防止传染进一步蔓延。
+
+在整个疫情中，韩国多次出现来自宗教团体的巨大感染群，包括去年春季在东南部地区推动大面积爆发的与秘密的新川寺耶稣会有关的5000多例感染。
+
+韩国疾病防治院周一公布的数字使全国病例数达到75,521例，其中包括11例死亡。
+
+**新闻来源：**[https://apnews.com/article/pandemics-andrej-babis-coronavirus-pandemic-czech-republic-germany-cb92fa172f477c2008e98536d9523a5f](https://apnews.com/article/pandemics-andrej-babis-coronavirus-pandemic-czech-republic-germany-cb92fa172f477c2008e98536d9523a5f)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/d3934b8f-8ef6-4a28-a767-290903b71f1d-3.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
 0

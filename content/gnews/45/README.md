@@ -1,74 +1,98 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 与内地同步，监控装置将进入香港教室
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/809979/)
+## 《路德时评》解读习开启“政治大扫荡”运动，及吉林通化因疫情断粮断药
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/809976/)
 
-*新闻来源：《香港自由新闻》| 发布时间：2021年1月22日*
-
-*翻译/简评：helloworld | 校对：X-Wing飞得更高 | 审核：万人往 | Page：拱卒*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/RSn6nSvz8QJtB/images/0941cedd-9d1d-4784-843b-1cfbb7c6aea0.jpg?asset_id=dda45691-a798-4782-9299-9aca5892ddb8&amp;img_etag=%229821b12bb84f0bdb694ca596ef3abd00%22&amp;size=2560)](https://spark.adobe.com/page/RSn6nSvz8QJtB/images/0941cedd-9d1d-4784-843b-1cfbb7c6aea0.jpg?asset_id=dda45691-a798-4782-9299-9aca5892ddb8&amp;img_etag=%229821b12bb84f0bdb694ca596ef3abd00%22&amp;size=1024)
-
-**简评：**
-
-大陆以慕课的名义早已悄无声息地在全国推行了闭路电视录像。而香港亲共议员也想“借鉴”大陆的“成功经验”，用道貌岸然的理由在香港推行。其行为也得到了其他同伙的配合支持，香港校园沦陷已成必然。
-
-香港的自由正在一点点的塌方。香港已经被国安法牢牢控制，为了不惊动其他人群，政府正在对最弱小的教师学生进行绞杀。香港教师学生主导的抗争承载了太多，他们在邪恶面前，勇敢抵抗，并向全世界曝光中共邪恶的伎俩。他们发起的抵抗若能够得到资本和国际力量的声援，本可以拯救太多的人。可惜背后有太多的利益，这些可能性已不再存在。作为第一个多米诺骨牌，他们的倒下，紧接着的就是在香港无法抽身的、之前软弱消极的利益集团，再接着就是已被邪恶控制的地区，最后将是整个世界。不知道还要造成多大的损失和灾难才能让世人警醒？
-
-**原文翻译：**
-
-# **亲北京的立法者敦促在香港教室安装摄像头监控老师**
-
-但是批评家说，此举将破坏教育者与学生间的融洽关系。
-
-亲共立法者周五表示，政府应该在香港的教室内安装闭路电视摄像头，以便更好地监控教师的行为和评论。
-
-香港自由党成员张宇人在立法会会议上说：“通过安装闭路电视摄像头……我们可以客观地监视教师的教室环境。”他还认为，视频记录可以保护受到审查的老师。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/RSn6nSvz8QJtB/images/4600172c-169e-4723-aab7-93eb329053a7.jpg?asset_id=b7e7d9c0-7832-49d1-92d0-2fd1ede23f51&amp;img_etag=%22f3b947c7d705403a9bacba2dc7552623%22&amp;size=2560)](https://spark.adobe.com/page/RSn6nSvz8QJtB/images/4600172c-169e-4723-aab7-93eb329053a7.jpg?asset_id=b7e7d9c0-7832-49d1-92d0-2fd1ede23f51&amp;img_etag=%22f3b947c7d705403a9bacba2dc7552623%22&amp;size=1024)
-
-带着口罩的香港学生。图片：香港政府一站通
-
-这位自由党的立法会议员说，录制教师的视频也能使学生和家长受益。通过视频，病休的学生能够参与课业，而家长也可以监控教学情况以及辅导功课。他澄清说，该提案仅针对录制教师，而不是学生。
-
-在有关行政长官施政报告的、为期三天的立法辩论的最后一天，张宇人发表了上述评论。其提议获得了近乎一致的称赞，只有2人发表了反对意见。
-
-在15名民主人士用集体退出声援北京当局决定罢免的4名同事之后，立法会目前没有反对团体。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/RSn6nSvz8QJtB/images/5ca80341-ac37-48f8-a1e7-7295cf9a8470.jpg?asset_id=a55fd834-593c-4ab5-8e81-d62c0686c7be&amp;img_etag=%22569e9fbe9daf37e40810f0651f94aa21%22&amp;size=2560)](https://spark.adobe.com/page/RSn6nSvz8QJtB/images/5ca80341-ac37-48f8-a1e7-7295cf9a8470.jpg?asset_id=a55fd834-593c-4ab5-8e81-d62c0686c7be&amp;img_etag=%22569e9fbe9daf37e40810f0651f94aa21%22&amp;size=1024)
-
-张宇人 照片：香港电台截图
-
-去年11月发表的施政报告中，香港领导人林郑月娥发誓要在学校树立中国人的认同感，并更好地监督和“加强”香港老师的素质。林郑月娥和教育局局长杨建文曾表示，当局需要从教育部门中识别和清除“烂苹果”。
-
-当《国家安全法》生效后，去年有两名教师被取消资格，其中一名教师因涉嫌在课堂上传播香港独立思想。而还有一名教师因正在进行的、对其涉嫌使用“有偏见”教材的调查，也可能被取消资格。
-
-教师工会负责人谴责当局对城市的教育部门愈发严格的审查是“白色恐怖”。
-
-**“浪费时间”**
-
-教育界反对派前议员叶建源告诉香港自由社，张宇人的建议是不必要的。“没人需要这种东西。它浪费金钱，也浪费时间。监视教师和学生将消耗大量的人力资源。”
-
-他还警告说，此举将造成“隐私问题”，并破坏师生之间的融洽关系。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/RSn6nSvz8QJtB/images/b5cb2615-ccf0-4d05-a03a-a52b030b4e1f.jpg?asset_id=58d30c2d-b497-4d52-9219-b849892acbfc&amp;img_etag=%221dc9254ebbc79763c0057d65486efe3e%22&amp;size=2560)](https://spark.adobe.com/page/RSn6nSvz8QJtB/images/b5cb2615-ccf0-4d05-a03a-a52b030b4e1f.jpg?asset_id=58d30c2d-b497-4d52-9219-b849892acbfc&amp;img_etag=%221dc9254ebbc79763c0057d65486efe3e%22&amp;size=1024)
-
-图片：香港政府一站通
-
-叶建源说：“这样的建议暗示对学校系统的不信任……对教师和学生的不信任。”他补充说，课堂录像将对教师和学生心理产生“负面影响”。
-
-叶建源补充说：“我敢肯定，（立法会议员张宇人）作为一名立法者，应该也不希望以这种方式遭到监视……”
-
-🔗[原文链接](https://hongkongfp.com/2021/01/22/install-cctv-in-hong-kong-classrooms-to-monitor-teachers-urges-pro-beijing-lawmaker/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+直播视频：
 
 
-编辑：【[英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/RSn6nSvz8QJtB/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/RSn6nSvz8QJtB/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/RSn6nSvz8QJtB/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+《路德时评》2021年1月25日早间节目主要内容：
+
+一、习“出席”达沃斯经济论坛
+
+北京时间1月25日最新报道[1]：习总加速师出席世界经济论坛“达沃斯议程”对话会并发表特别致辞。
+
+
+
+> 完整版有22分鐘 [https://t.co/pCAU80AtMp](https://t.co/pCAU80AtMp) [pic.twitter.com/oDu3gKA8Rq](https://t.co/oDu3gKA8Rq)
+> — Andy5 (@andy5\_123) [January 25, 2021](https://twitter.com/andy5_123/status/1353685163704651779?ref_src=twsrc%5Etfw)
+
+
+
+有战友将今天习发言的视频图片与22日新华社发布的照片进行对比，发现这两人明显不同。
+
+
+
+> 請問習天線寶寶
+> 你自己信這倆是同一個人嗎？🤣🤣🤣
+> 兩天不見，胖了不少啊
+> 該不會前幾天出來的叫「習總加速師2號」
+> 今天出來的叫「慶豐帝2號」吧？[@ding\_gang02](https://twitter.com/ding_gang02?ref_src=twsrc%5Etfw) [@aliah0031](https://twitter.com/aliah0031?ref_src=twsrc%5Etfw) [@maryann\_3040](https://twitter.com/maryann_3040?ref_src=twsrc%5Etfw) [@BoDiplo](https://twitter.com/BoDiplo?ref_src=twsrc%5Etfw) [@Guan\_PhD](https://twitter.com/Guan_PhD?ref_src=twsrc%5Etfw) [pic.twitter.com/47MFFQ7Csx](https://t.co/47MFFQ7Csx)
+> — Andy5 (@andy5\_123) [January 25, 2021](https://twitter.com/andy5_123/status/1353686168571834369?ref_src=twsrc%5Etfw)
+
+
+
+路德社评论：
+
+此次视频为习录播视频，达沃斯论坛至少都提前一年策划和预约，无法证明就是习今天录制的视频，况且视频中未出现习与其他参会者打招呼的画面，据可靠消息，习只要连续说话几分钟就会出现状况，所以习现在绝对不可能露面。
+
+二、吉林通化因疫情断粮断药
+
+新华社北京1月24日报道[2]，新华每日电讯微信公号刊发题为《吉林通化部分地方“断粮断药”：物资配送承诺别落而不实 》的评论。吉林通化市东昌区实行按区管控后，有市民反映政府通告的“必需品免费配送”政策没有及时落实，部分家庭出现“断粮断药”危机，有的家庭“一个苹果俩孩子吃3天”。24日，吉林通化市副市长就生活物资配送不及时向市民道歉，称正在积极采取措施，尽快解决相关问题。
+
+路德社评论：
+
+1、吉林通化因疫情全面封锁导致民众粮食紧缺，甚至出现老人因粮食匮乏自杀和因买不到粮食杀人的事件，自从疫情爆发以来，这种事以发生数起；
+
+2、中共国至今总感染人数才八万多，美国确诊人数已接近三千万也没有出现药品和粮食断供的局面，由此可以看出，中共确诊人数至少上百万；
+
+3、只要吉林通化的战友听了路德社的劝告提前屯粮，就能避免此次人道危机，甚至还能帮助周边邻舍，听信爆料革命必定能保命保财；
+
+4、中共国经历过吉林通化断粮断药事件后绝对会认真总结经验，更加严格地管控人民言论，全面封锁所有消息。
+
+三、习“政治大扫荡”运动
+
+中共铺天盖地的“文革”大字报开始了，昨天9连发，今天15连发，果然中共在内斗上比怼任何外国政要都积极，中国新闻报1篇，新华社又来3篇。
+
+
+
+> CCP鋪天蓋地的大字報開始了
+> 昨天9連發，今天15連發，果然CCP在內鬥上比懟任何外國政要都積極。
+> 中國新聞報1篇
+> 新華社又來3篇
+> 下文繼續[@ding\_gang02](https://twitter.com/ding_gang02?ref_src=twsrc%5Etfw) [@maryann\_3040](https://twitter.com/maryann_3040?ref_src=twsrc%5Etfw) [@aliah0031](https://twitter.com/aliah0031?ref_src=twsrc%5Etfw) [@BoDiplo](https://twitter.com/BoDiplo?ref_src=twsrc%5Etfw) [@Guan\_PhD](https://twitter.com/Guan_PhD?ref_src=twsrc%5Etfw) [https://t.co/dwkm4582IB](https://t.co/dwkm4582IB) [pic.twitter.com/8ScBhMND5N](https://t.co/8ScBhMND5N)
+> — Andy5 (@andy5\_123) [January 25, 2021](https://twitter.com/andy5_123/status/1353675631578411008?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> 今天CCP一改往常「盤勢一塊」地懟美國
+> 反而把8連發（事實上只少9連發）的槍口對內，頗有一番毛臘肉的「炮打司令部，我的一張大字報」的感覺
+> 新華社3篇、日人民報一篇，都是吹捧「全面從嚴治黨」
+> 接下↓[@ding\_gang02](https://twitter.com/ding_gang02?ref_src=twsrc%5Etfw) [@maryann\_3040](https://twitter.com/maryann_3040?ref_src=twsrc%5Etfw) [@aliah0031](https://twitter.com/aliah0031?ref_src=twsrc%5Etfw) [@BoDiplo](https://twitter.com/BoDiplo?ref_src=twsrc%5Etfw) [@Guan\_PhD](https://twitter.com/Guan_PhD?ref_src=twsrc%5Etfw) [pic.twitter.com/WZLGzKYfuI](https://t.co/WZLGzKYfuI)
+> — Andy5 (@andy5\_123) [January 24, 2021](https://twitter.com/andy5_123/status/1353316095902371840?ref_src=twsrc%5Etfw)
+
+
+
+路德社评论：
+
+1、120之后，中共党内势力的平衡被彻底打破，习发起的“新反腐运动”就是一场残酷的政治大扫荡，中共只要谈及政治正确就相当于毛时代的政治斗争，邓小平好不容易改革过来，现在又回到毛时代的政治的斗争；
+
+2、从新华社发文来看，习不仅要对军队下狠手，还将对中纪委下狠手，这意味着他将对王派势力开炮，中共党内又一次血雨腥风即将开始，中共党内四股势力都掏出自己的杀手锏，习利用军队搞政治运动为杀手锏，江以隐藏的海内外组织力量和资金力量为杀手锏，胡利用手上残余的团派势力，王则以掌控的经济力量和反腐了力量为杀手锏进行互相厮杀；
+
+3、这再次验证爆料革命提供的重要情报，以共灭共的时代正式来临。
+
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+
+参考文章：
+
+[1][https://twitter.com/andy5\_123/status/1353685163704651779](https://twitter.com/andy5_123/status/1353685163704651779)
+
+[2][https://www.163.com/dy/article/G14K92JE05346RC6.html](https://www.163.com/dy/article/G14K92JE05346RC6.html)
+
+文章撰写：【重生】  编辑：【香柏树】
 
 0

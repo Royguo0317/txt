@@ -1,79 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 恐怖场面 大重启-施瓦布谈大流行病后的网络大流行病
-` Mild Seven` [轉載自GNews](https://gnews.org/zh-hans/811377/)
+## 【点睛要闻】中共封户断粮 政府制造人道危机 实行种族灭绝
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/811273/)
 
-**2021****年1****月25****日**
+作者：三毛【㊙️翻Gnews原创组】
+责编：心声
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture1-58.jpg)来源：法新社
+**美东时间2021****年1****月23****日，在新的中共病毒疫情发生后突然宣布的 “****封户令”****，让吉林省通化市的百姓遭受严重的粮食和其他生活物资短缺。**
 
-一篇在线德语文章的中文翻译
+吉林省通化市因疫情迅速蔓延，14名中共干部被问责。但当地市民没有为处罚欢呼，而是透露，该市每家每户都被贴上封条，已导致严重缺粮。他们呼吁当局先办实事，解决民生问题。
 
-**标题****: ****恐怖场面 ****大重启-****施瓦布谈大流行病后的网络大流行病**
+1月23日，通化市召开新闻发布会称，当地第二轮核酸检测工作基本结束。截至22日，全市共检测36万余人，其中88人显示阳性，138人确诊，81人无症状感染。
 
-**原文标题: ****🇩🇪 [SCHRECKENSSZENARIO Great-Reset-Schwab spricht von Cyber-Pandemie nach der Pandemie](https://www.wochenblick.at/great-reset-schwab-spricht-von-cyber-pandemie-nach-der-pandemie/)**
+对此，通化市纪委发布通报称，”少数干部对省外输入病例管理不力，履职不到位，对疫情防控工作造成影响”，因此有14名干部被问责。
 
-**原文发表日期****：2021****年1****月18****日**
+**市民爆当局对潜在的粮食供应严重短缺问题毫不在意**
 
-**原文作者****：**Wochenblick.at
+中共政府这种做法，就像去年1月初武汉疫情爆发时一样，企图拿几个地方官当 “替罪羊 来平息民众的愤怒，但是这次市民似乎对中共政府这种老把戏失去了信任。几乎没有人关注官方新闻，相反微博博客、人民日报、新华网等评论区的留言板上充满了当地网民的求助和抱怨。
 
-**翻译:** Mild Seven, 英国伦敦喜庄园
+以下是一些留言板的评论，通过这些评论可以看出封锁期间城市的混乱局面。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/通话.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/通化2.png)![]()![](https://gnews.org/wp-content/uploads/2021/01/通化3.jpg)
+**中共的封户令与西方国家封锁/****隔离有天壤之别**
 
-**校对：**拱卒， 英国伦敦喜庄园
+人们可能会认为中国的 “封户 “与西方国家的封锁差不多，这是一个极大的误会。中共极权政府发布的任何命令，从没有从人性化的角度解决问题。”封户令 “发出到实施仅有3小时，让人措手不及。
 
-— 全文翻译（中德对照）–
+从1月18日晚上11点开始，通化市所有村镇全面封闭；从20日凌晨1点开始，整个市中心区被标注为高危区域。从22日晚上10点开始，市中心区居民户和楼房的大门被封，放行时间未定。
 
-**SCHRECKENSSZENARIO**
+人们都在苦苦哀哭中：
+——小区封户之前已经封了很久了
+——十天过去了，真的没有饭吃了
 
-**Great-Reset-Schwab spricht von Cyber-Pandemie nach der Pandemie**
+网名叫“通化修贤”的网友说：我们通化人没有被病毒击倒，但是现在民生问题得不到解决，被饥饿和基础病魔击倒！30万人没有饭吃，年轻人可以在家里喝水度日 ！可是我们年迈的父母老人以何维生？高血压、心脏病、糖尿病患者没有药吃？以最卑微的姿态问世人 ：谁来救救我们呀？
 
-**恐怖场面**
+有些人甚至开始大胆地批评政府：
 
-**大重启****–****施瓦布谈大流行病后的网络大流行病**
+——（政府）再不管吃饭的事儿！不怕暴动？很多人家里别说吃的，药都断了！
 
-**Umbau der Gesellschaft, Transformation, Neugestaltung, Digitalisierung, das große Zurücksetzen … das sind Worte, die der Gründer des Weltwirtschaftsforums (WEF), Klaus Schwab, gerne nutzt. Der Multimillionär war auch daran beteiligt, die Pandemie mit einem Planspiel vorwegzunehmen – Kritiker sprechen von einer Vorbereitung. Im Juli des Vorjahres legte Schwab nach und warnte vor Cyberangriffen, welche die Stromversorgung lahmlegen könnten. Folglich würden Lieferketten zusammenbrechen und Chaos ausbrechen. Man könnte seine Worte fast schon als Drohung auffassen, da er exakt aufzeigt, was passieren könnte, wenn nicht alle seinen Vorschlägen folgen.**
+——实行全程封闭后政府给出五个热线电话，没有一个能打通。联系社区或者打热线，结果无一例外：没人管。
 
-**重建社会、转型、重塑、数字化、大重置****……****这是世界经济论坛（****WEF****）创始人克劳斯****–****施瓦布喜欢用的词。这位百万富翁还参与了对流行病的预测，并进行了一场商业游戏****—****评论家称之为准备。去年****7****月，施瓦布预警由于网络受到攻击而导致电力供应瘫痪，由此引发供应链崩溃，及出现混乱。人们几乎可以把他的话当作是一种威胁，因为他明确指出，如果大家不听从他的警告将会发生什么后果。**
+压制来自疫情中心的信息和批评政府的热点关键词搜索并不奇怪。全国各地包括通化的确诊病例没有得到应有的重视，让当地人悲愤交加。通化建起了一个有1000多张床位的方舱医院，但医务人员严重不足，很多一线人员几天几夜不能睡觉，高负荷的工作让他们身心俱疲。
 
-Ein Kommentar von Alina Adair
+全人类只有一个国家的政府，如此残酷连畜生都不如。中共病毒在武汉造成的次生灾难和人道灾难还历历在目，除了病毒死去的武汉人还有多少人是饿死家中、病死家中？还记得吗？湖北黄冈，一名17岁患有疾病的孩子，由于父亲被强制隔离，饿死在了家中；武汉，一名新冠肺炎患者从武汉跳桥自杀。我们仿佛还能听到孩子在父母的灵车后嚎哭，看到空屋飘飞的窗帘在呼唤主人，医院里一个装尸袋装着三具小小的尸体……饥饿与疫情相加可以轻易的摧毁一个人的信念、求生欲。在缺粮少药的危机面前，老人、孩子和有基础疾病的人群会是第一波倒下的。而时隔正好一年，同样的悲剧又在通化、顺义、黑龙江、上海……发生中！CCP病毒充分的验证了共产党是个流氓黑社会政府。
 
-Alina Adair的评论
+中共这种黑社会行径能以执政能力不足可以解释和掩盖的吗？不！中共不但对新疆、西藏和香港进行大屠杀，他们还制造病毒，释放病毒，拿老百姓做人体实验，疫情爆发后采取封户、不给水、不给食品、不给药让人自然死亡的阴险手段杀人于无形，同时还在紧锣密鼓要对唯一一个没有在他们管辖下的民主台湾做屠杀的准备。这种种暴行还不够证明他们正在对中华民族进行“种族大屠杀”吗？这是绝对的种族大屠杀和反人类罪！全世界如果还不看透中共，将这个生于欧洲，产于黄俄，对中华民族进行大屠杀的邪灵定义成非法政府，还在和他勾兑，必将整个人类拖入万劫不复的地狱。世界灭共进入了倒计时中……
 
-## Wenn Virus nicht reicht, kommt Blackout? 如果病毒还不够，那就停电？
 
-Wenn die Pandemie nicht zum Zusammenbruch der Wirtschaft führt, folgt eine Cyber-Pandemie, die uns den Rest gibt?
 
-如果大流行病没有导致经济崩溃，那么网络大流行病会不会跟着把我们干掉？
+参考链接：
 
-In dem WEF Bericht [„Der Aufbau eines cyberresistenten Elektrizitätssektors ist eine Schlüsselpriorität für die Zeit nach COVID“](https://www.weforum.org/agenda/2020/11/cyber-resilient-electricity-sector-priority-post-covid/) heißt es: *„Cyberangriffe auf kritische Energieinfrastrukturen stellen ein Risiko für Energiesysteme, Volkswirtschaften und das Wohl der Gesellschaft dar. Der Macht- und Kontrollverlust in einer großen Region über einen längeren Zeitraum würde schwerwiegende Auswirkungen auf Unternehmen, Regierungen und Gesellschaften im weiteren Sinne haben. In den letzten zehn oder mehr Jahren hat die Elektrizitätsindustrie eine rasche und transformative Digitalisierung ihres Ökosystems durchlaufen, die für die Gewährleistung der Zuverlässigkeit und Kontinuität der Stromversorgung während der Pandemie von entscheidender Bedeutung ist. Diese digitalen Technologien haben das Maß an Interkonnektivität und Konvergenz von Betriebstechnologie (OT) und Informationstechnologie (IT) verbessert –****und erweitern die Cyberangriffsfläche, die böswillige Akteure nutzen können. Ohne Anpassung werden zuvor sichere Systeme und Umgebungen unsicher.****„*
+1．[通化市召开疫情防控第十场新闻发布会](https://www.163.com/dy/article/G11OEQHH05509UST.html)
+2．[通化隔离居民没有物资](https://s.weibo.com/weibo?q=%23%E9%80%9A%E5%8C%96%E9%9A%94%E7%A6%BB%E5%B1%85%E6%B0%91%E6%B2%A1%E6%9C%89%E7%89%A9%E8%B5%84%23&amp;from=default)
 
-世界经济论坛的报告指出 “建设具有能抗击网络攻击能力的电力部门是后COVID时代的关键优先事项 “，”对关键能源基础设施的网络攻击构成对能源系统、经济和社会稳定的巨大风险。如果一个大区域长期失去权力和控制权，将对企业、政府和社会产生严重的影响。在过去的十几年里，电力行业的生态系统经历了快速的数字化转型，它对确保大流行病期间可靠性和连续性的电力供应至关重要。这些数字技术一方面提高了业务技术(OT)和信息技术(IT)的关联及融合水平—**另一方面也****扩大了对网络恶意攻击范围。如果做出相应的改变，以前安全的系统和环境就会变得不安全**。”
-
-## COVID im Vergleich nur eine kleine Störung 相比之下，COVID只是一个小的干扰
-
-In dem Video anlässlich einer Konferenz im Juli 2020 spricht Schwab maskenfrei davon, dass „wir alle wissen, dass das erschreckende Szenario eines umfassenden Cyberangriffs die Stromversorgung, den Transport, die Krankenhausleistungen **und unsere Gesellschaft insgesamt vollständig zum Erliegen bringen könnte.** Die COVID-19-Krise würde in dieser Hinsicht als kleine Störung im Vergleich zu einem großen Cyberangriff angesehen werden.“
-
-在2020年7月的一次会议上，施瓦布不戴口罩在视频中谈到，”众所周知，全面网络攻击能到之后电力、交通、医院服务以及我们整个社会彻底瘫痪，这是非常可怕的情况。与之相比，COVID-19危机只是一个微不足道的故障而已。”
-
-**Wie man von einer Pandemie **[**auf eine Cyber-Pandemie kommt**](https://www.weforum.org/agenda/2020/07/vaccinate-organization-cyberattack-pandemic/)**, weiß wohl nur Klaus Schwab selbst.** Es ist zu vermuten, dass er diese Warnung ins Spiel bringt, um die Digitalisierung weiter voranzutreiben, die er als Grundvoraussetzung für die von ihm propagierte neue Weltordnung betrachtet. Klaus Schwab präsentiert sich im Video vor dem Schriftzug des Weltwirtschaftsforums und dem „Great Reset“. Während Schwab zu glauben scheint, der Welt Befehle erteilen zu können, hat ihn kein Volk zum Anführer gewählt. Das ändert nichts an der Tatsache, dass ihn weltweit Regierungschefs hofieren und seinen Anweisungen Folge leisten. Denn es geht um viel Geld.
-
-网络流行病的说法是如何从大流行病引申出来的，可能只有克劳斯-施瓦布自己知道。可以推测，他提出这个警告是为了进一步推动数字化，他认为数字化是他所推动的世界新秩序的基本前提。视频中，克劳斯-施瓦布在世界经济论坛字样和 “大重启 “前展示了自己的风采。虽然施瓦布似乎相信他可以对世界发号施令，但没有人推举他为领袖。这并不能改变全世界的政府领导人都在追随他，听从他的命令的事实。因为这关系到很多钱。
-
-Gemeinnützige Organisation 非营利组织
-
-Klaus Schwab gründete seine Stiftung [„Weltwirtschaftsforum“](https://de.wikipedia.org/wiki/Weltwirtschaftsforum#:~:text=Das%20Weltwirtschaftsforum%20%28englisch%20World%20Economic,Davos%20im%20Kanton%20Graub%C3%BCnden%20stattfindet.) („World Economic Forum“) im Jahr 1971, die Geschäftsräume befinden sich im Kanton Genf in der Schweiz. Seitdem lädt er zum jährlichen Treffen, bei dem international führende Wirtschaftsexperten, Politiker, Wissenschaftler, gesellschaftliche Akteure und Journalisten zusammenkommen, um über aktuelle globale Fragen zu diskutieren und um Pläne wie den Great Reset zu schmieden. Die Stiftung WEF gilt als „gemeinnützig“ und erhielt 2015 den Status einer Organisation.
-
-克劳斯-施瓦布于1971年成立了他的基金会–世界经济论坛，在瑞士日内瓦州设有办事处。此后，他每年都会邀请大家参加年会，国际知名的经济学家、政治家、科学家、社会人士和记者齐聚一堂，讨论当前的全球问题，并制定大重置等计划。WEF基金会被认为是 “非营利性 “的，并在2015年被授予组织地位。
-
-Abseits demokratischer Strukturen 远离民主结构
-
-Besonders harte Kritiker bezeichnen diese Organisation nicht zuletzt deshalb als mafiös, weil offenbar superreiche Menschen, die nicht demokratisch gewählt wurden, über fremde Länder entscheiden wollen. **Geld regiert die Welt. Klaus Schwab ist der lebende Beweis dafür. Sein Traum ist die vierte industrielle Revolution, die der rüstig wirkende 82-Jährige wohl unbedingt noch miterleben möchte.** Er erhofft sich, dass er durch die Zerstörung der Wirtschaft in den Industrienationen und das „nachhaltigere“ Verteilen der Wirtschaft weltweit, als Retter der Menschheit in die Geschichtsbücher eingehen wird. Das Gegenteil könnte der Fall sein. Klaus Schwab gilt für manche seiner Gegner, welche die Pläne zum Great Reset kennen ([Wochenblick berichtete](https://www.wochenblick.at/the-great-reset-wenn-verschwoerungstheorien-real-werden/)) als Teufel in Menschengestalt. An seinem Weltwirtschaftsforum hängt ein Rattenschwanz an Unternehmen, die ihm hörig aus der Hand fressen.
-
-特别严厉的批评者称这个组织类似于黑手党，特别是因为没有经过民主选举的超级富豪却想要决定他国的事情。钱是世界的主宰。 克劳斯-施瓦布就是活生生的证明。他的梦想是第四次工业革命，这位看起来春风得意的82岁老人可能决心要活到亲身体验大重启的那一刻。他希望通过破坏工业化国家的经济使其在世界范围内更加 “可持续发展”，他将作为人类的救世主载入史册。其实不会是这样的。克劳斯-施瓦布被一些知道大重置计划的反对者视为人形的魔鬼（Wochenblick报道）。在他的世界经济论坛上，世界上很多的大企业都言听计从。
-
-Mitwirkung an Zerstörung der Wirtschaft参与破坏经济
-
-Der dringende Verdacht, dass Schwab die bewusste Zerstörung der Industrie in allen Industriestaaten nicht nur von langer Hand plante, sondern jetzt auch an ihrer Umsetzung mitwirkt, sollte in Rechtsstaaten dazu beitragen, dass er vor Gericht gestellt wird. Kein Mensch alleine sollte über eine solche Machtfülle verfügen, wie sie Schwab aber auch anderen großen Spielern zugeschrieben wird. Es wäre an der Zeit, dass sich die Justiz dieser Strukturen und den Hintermänner der aktuellen Entwicklungen annimmt und eine genaue Untersuchung anordnet. **Überall auf der Welt werden Existenzen vernichtet, um die Agenda vom Great Reset voranzutreiben. Es ist unbekannt, wie viele Menschenleben bereits durch Suizide oder auch Hunger zu beklagen sind oder noch zu beklagen sein werden.** Wir wollen es nicht hoffen, aber schreiten die Dinge weiter so voran, sind Ausschreitungen und Unruhen zu befürchten.  Noch besteht Hoffnung, dass die Rechtsstaatlichkeit siegt. (AA)
-
-人们迫切地怀疑，施瓦布蓄意破坏所有工业化国家的工业的计划不仅由来已久，而且现在又参与了计划实施的执行活动，这足以让法治国家将他绳之以法。任何一个人都不应该单独拥有这样的权力，这不仅包括施瓦布，也包括其他主要角色。现在是司法机关对这些机构和当前事态发展的幕后黑手进行处理并下令进行彻底调查的时候了。**为了推进大重置计划，世界各地的正常生活正在被摧毁。不知道有多少人已经会因自杀甚至饥饿而失去生命。**我们希望这些都不会发生，但是如果事情继续以这种速度发展下去，骚乱和内乱将难以避免。至少目前法治至上的希望尚存。
+（本文仅代表作者个人观点）
 
 0
