@@ -1,48 +1,143 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0125IV:中共打台湾会加速死亡最大受益方是新中国联邦
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/815704/)
+## 白宫报告：川普政府的政绩——截至2021年1月（十五）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/815742/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/封一-6.jpg)
-编辑整理：
+五月花写作组 ｜ 翻译：紫丁香 ｜ 校对：虹陵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告15-1.jpg)
+## **Part 15 – Safeguarding the Environment**
 
-纽约香草山农场：贝贝
+## **第十五部分：保护环境**
 
-纽约香草山农场：文官
+* * *
 
-法国巴黎七星农场：枫丹白露
+### **Took strong action to protect the environment and ensure clean air and clean water.**
 
-篇首说明：郭文贵先生在[2021年1月25日 文贵直播](https://gtv.org/video/id=600f5b6ab819717e79b067dd)中对[1月25日 文贵直播： 当灾难到来时，就不让听党话了；国内疫情严重地区战友们要…](https://gtv.org/video/id=600f0803b819717e79b02303) 删除的后半部分内容进行了重新补录，在这次补录中，郭先生提到了中共打台湾会加速死亡最大受益方是新中国联邦；提到了拜登政府上台带来的机遇/与拜登政府合作的原则；提到了有条件的台湾战友赶快出来和新中国联邦的华丽转身等三个主要方面的内容，本系列将按郭先生谈到的内容逐一上传，以下为本系列第四部分——
+### 采取了强有力的手段来保护环境并确保**美国拥有**清洁的空气和水。
 
-据[2021年1月25日 文贵直播](https://gtv.org/video/id=600f5b6ab819717e79b067dd)时间点01：33——
+- Took action to protect vulnerable Americans from being exposed to lead and copper in drinking water and finalized a rule protecting children from lead-based paint hazards.
+- 采取行动保护易受伤害的美国人，让他们避免接触到饮用水中的铅和铜，并制定规则保护儿童免受铅基油漆的危害。
 
-喂喂喂，喂喂喂，中不中？战友们，喂喂喂，中，我得站好啊，自动调集，自动调集，行不行啊？行吗？兄弟姐妹们，中吗？中吗？中吗？兄弟姐妹们啊，尊敬的战友们好，今天是2021年1月26号（口误，应为2021年1月25号）下午，现在是几点钟，六七点钟文贵是第二次直播，因为今天上午啊，我直播的时候中间吃点东西，然后呢擦得嘴上有那个很不好看的、很不雅的那个纸屑，当时没发现，所以说呢我就今天赶快重新给大家补回来，给补回来。
 
-首先兄弟姐妹们，非常非常地抱歉，因为我把那个视频删了，很多战友们就发信息，说找不着那个视频，怎么回事，都在问我，所以说呢我呢就赶快重播一下。
+- Invested over $38 billion in clean water infrastructure.
+- 在净化水基础设施上投资超过380亿美元.
 
-（返身换眼镜）这光照着我难受，声音都可以啊，声音都可以啊，声音都可以，是吧？兄弟姐妹们，我再接着今天上午直播视频删除以后，很多战友都在问我，是咋回事儿，为什么给删除了，很多人都在问，我也没办法一一给你们回啦，这个就不好看难受，我就在这儿重新再录一遍。
 
-我想今天上午删除的那一段信息就是很多台湾的战友，还有在通化的、大连的很多战友都问我关于这两天台海发生的一些事情，特别是很多战友啊，就是台湾的战友啊说能做什么，我们台湾都知道有大牛、有巴黎、台湾巴黎，前天在会上也问我，说七哥我们能做什么，说实话，我是真不知道该做什么，两千多万人你不能都移民海外去呀，你也移不了啊，另外一个非常重要的事情，你说咱们现在台湾的战友，你到全世界各地有农场的咱们尽可能地安排我们战友们有吃好喝好、给予方便，这绝对没有问题，请和农场和联盟委员会来联系，我们尽可能去做好它。
+- In 2019, America achieved the largest decline in carbon emissions of any country on earth. Since withdrawing from the Paris Climate Accord, the United States has reduced carbon emissions more than any nation.
+- 2019年，美国的碳排放量在地球上所有国家中降幅最大。从退出《巴黎气候协定》以来，美国减少的碳排放量超过任何国家。
 
-但是兄弟姐妹们，我们要说的事情，**两千三百万同胞台湾的同胞确实面临着一个最大的一个历史性选择，**现在这是非常清楚的。这个是**习是多年来据我本人对他的了解，我亲自听到和看到还有他的想法，他一心就是要把台湾拿下，港澳台大湾区就是他的梦想，拿回来梦想，由于去年香港这个事件给他带来了很大的麻烦，同时由于爆料革命包括美国川普总统的政府对他带来了巨大的经济和国际舆论以及党内的各种压力，他没有去执行他的双龙计划，全世界只有爆料革命在最早的提出了共产党的爆料里头的双龙计划，双龙计划包括就是拿下香港和台湾，这就是真正的这是从2012年到现在，就是说亚洲共产党的扩张计划以及统治全世界的计划其中的一部分。**
 
-很多人觉得自己很高傲，觉得自己知道很多，事实上狗屁不懂，**这是共产党的真正的本质，这是2025、2035、2049的计划的基石，家门口怎么办、亚洲怎么办，怎么对付中东、怎么对付非洲，怎么对付欧洲、怎么对付美国，经济上、金融上、军事上、政治上、蓝金黄上，包括太空领域，这个它不是开玩笑的。**
+- American levels of particulate matter – one of the main measures of air pollution – are approximately five times lower than the global average.
+- 美国的颗粒物水平 – 空气污染的主要衡量指标之一 – 大约比全球平均水平低五倍。
 
-所以台湾呐，它一直没搞明白，它有着孤岛文化，它一直在威胁中，它也一直在侥幸中，它要不它就认为我跟共产党你不敢动我，我跟美国好，有时候在美国还玩两头挑、玩点小技巧，再一个就是国民党、民进党这帮人在大陆已经被共产党早就拿 下了，而且很多人带有侥幸心理，那么甚至有勾兑的心理，这种情况下它必然会形成和鼓励和怂恿了共产党要拿下台湾，**因为共产党的内部人都觉得台湾绝大部分两党的领导层都被拿下了、商界也被拿下了，那么媒体也被拿下了，那么再拿下台湾就不会有什么问题了，然后再搞定美国、搞定世界，大家知道，那个翟东升说过咱们有交易呀，交易啥呀，就是把你台湾先交易出去，你以为它交易德州的土地、交易夏威夷，那是不可能的，共产党最想要的就是台湾。**
 
-很多人还分析，台湾拿回来对什么东大门、潜水艇等等等分析，战友们，说实在话，**你看到中国十四亿人能在世界上能把地缘政治、现代军事、海洋军事、地域政治搞明白的， 一个没有，你但凡接触过世界上的大家，私下里跟你聊心里话，你谈，不是潜水艇出口也不是东南口，也不是对日本，也不是太平洋，它不是那么简单的。**
+- Between 2017 and 2019, the air became 7 percent cleaner – indicated by a steep drop in the combined emissions of criteria pollutants.
+- 在2017年至2019年期间，空气清洁度提高了7％，这表明标准污染物的综合排放量急剧下降。
 
-这是为什么我们爆料革命又再一次地向全世界展示头几天这四大帮派要PK，是吧，习就是，你看我这脑袋也没病是吧？我有啥病？我好好的呢，是不是？啥事没有。很多人说那脑子根本没病啊，那有啥病啊，很多战友今天上午我说的那个，你但凡有点常识，共产党是全人类第一个换脑袋的国家医疗上，甭说给你手术了，那叫创疗，叫什么什么创疗手术，就是给你开瓢它也能让你看不出来，何况那个摄像机、那个主席台、那个摆拍，那是孙瑶、刘呈杰、贯君那都播出来了，一模一样能找出来，迅速，就为了对付爆料革命郭文贵能马上在中国找出来类似于孙瑶的人、类似于刘呈杰和贯君的人，啊，你说找出仨习近平、五个习近平，那不是分分秒秒吗。再一个不行，该切的切、该割的割，那太容易啦，是不是啊？手指头给他切了给他换了，所以说这对共产党这都不是事儿。咱别用咱自己老百姓的level你以为你家里边没有吃过猪肉，你以为中南坑就没见过猪吗？你以为你没见过这个整容，你没整过容、你不能整容，你觉得共产党就不能整容吗？你还不能换肾呢，那王岐山换两三个了，那些老杂毛们换多少了，能换的都换了，除了小JJ不能换啥都换了，啊，那啥都换，你能换的了吗，你别拿你那个小心脏来量那个中南坑去了。
 
-那中南坑再怎么它叫中南坑啊，绑架着十四亿中国人民呢，那么就看看通化的战友们，很多战友发信息，哎呀，哭声一片呐，有的战友说，七哥，我过去相信百分之八十说的话，但是就这几天，七哥我全相信你了，比你说的还夸张，整个通化就是整个通化包括在大连和沈阳的战友们发信息，说这个比所有咱们知道的还要夸张，根本不拿你当人，他说关键的问题，我们的领导他说街道主任他都想干啥干啥，就是共产党但凡是个官儿戴上红袖箍，他就把所有别人当奴隶了，这是共产党的真正的病毒，权力就是真理、权力就是法律、权力就是正义、权力就可以要任何人的命、权力可以跟任何搞双修、还搞你双修一家子，这是共产党把权力代替了上天、权力代替了法治，在世界上是最最邪恶的一面，这就是你看到的全世界只要有共产党的地方，什么都不是叫权力主义，权力主义叫社会主义，社会主义有关系有主义、没关系没主义，有权力你叫社会主义、没权力不叫社会主义；什么叫资本主义，钱是爹、有钱就是爹，一切钱就是法律、钱就是正义、钱就是权力、钱也可以当上帝，还好西方现在信仰自由，很多人不认，钱不是上帝，我信上帝。那么**在大连、在沈阳、在台湾现在发生的，所有的根本溯其源头是共产主义和社会主义在作祟，在台湾被蓝金黄和台湾出卖台湾的这些叛贼们也是因为钱，还因为权力，在钱和权力面前所有的民族的个性都是懦弱的、自私的、没有勇气的，更没有勇气的，因为他不相信上天。**
+- Led the world in greenhouse gas emissions reductions, having cut energy-related CO2 emissions by 12 percent from 2005 to 2018 while the rest of the world increased emissions by 24 percent.
+- 在减少温室气体排放上领先世界，从2005年到2018年将与能源相关的二氧化碳排放量减少了12％，而同期世界其它地区的温室气体排放量则增加了24％。
 
-所以说我们通化的战友讲了很多具体的故事，他说旁边那邻居家他说七哥那是真是太惨了，孩子没吃的，老人没有药，没地方去买药，出去给人家打电话找半天人，让家里出去个人，花多少钱？花一千八百块钱。现在好在哪儿呢，就是东北呀，现在因为过冬，他就是猫冬的食品他家里有一些，还有一个就是准备年货，有些年货还能让他待一待，因为冬天嘛。但是很多人他住在公寓楼，就像我头一段说的，过一段就是楼没有电梯了、楼没有水了、楼没有暖气了，那就不是楼了，那就是地狱，所以为啥七哥说有些人可能是在这个时候你回老家比待在城里好，就为什么路德访谈厉害，就有战友跟我说，他说就是因为当时路德当时说让存粮、兑现金，他说他兑了以后旁边跟说他你傻吧，你该找路德要钱去，你该告路德去，白买粮食了吧？白弄钱了吧？这回用上了，全都在羡慕他，**所以路德访谈爆料革命给战友们给大家带来的好处，真的是前从来我没听说过历史上有这样的人有这样的事情发生过在中国大地上，这就是爆料革命、新中国联邦的力量。**
 
-包括台湾，台湾你说战友两千多万，你咋办，**共产党来了，共产党现在它现在已经开始了，只有俩结果，一个是把你砸烂它，打烂它把你台湾，它绝对有这个能力的，美国人也会来拉架，**拉啥偏架就今天早上我给大家也说了，七哥要去揍某个小孩，比如说，旁边某人来拉架，可能咱们的战友啊，长岛哥呀、大卫呀什么的，路德来拉架，抱着我，欸，别打别打七哥，把我甩过去了，直接就把那个小孩给摞倒了，已经把你撂倒了，拉偏架你还看不出来，这个时候是可以干啥的，**美国会在大连、青岛、海南、福建这些有军事基地的特别有潜水基地的，一定给你轰炸了，然后在北京啊上海也有一些给你炸了，但是炸的什么情况，啊，炸得可能是都不是最关键的，但也会造成你伤害，要向全世界表演一下，最终台湾给你拿回来了，所以说在海南、广东、上海、大连、青岛的这些战友们真的在军事基地旁边要注意，**特别像海南，像木兰湾，木兰湾那块有军事发射基地，木兰湾的高尔夫球场旁边有很多的太空的所谓发射基地还有导弹基地、控制中心都在那儿呢。
+- In FY 2019 the Environmental Protection Agency (EPA) cleaned up more major pollution sites than any year in nearly two decades.
+- 2019财年，环境保护署（EPA）清理的主要污染场地比近二十年来任何一年都多。
 
-**那美国也可能要打，台湾也得砸呀，**我看有战友推出个图什么台湾导弹，根本不准的、胡扯的，千万你能查到的东要准了，那就不叫消息了，那不叫信息也不叫新闻，那一定是假闻，台湾的导弹实际上是很先进的，由于美国的支持，而且台湾的研发在导弹上还是有进步的，包括日本也给了一定的桌子底下的支持，**那么这个时候要是一旦打起来的话，台湾是有很多办法一定会能打到北京和上海的，那青岛和大连它更不用说的，那肯定会打。**
 
-那么这种情况下就很多战友说，**一旦开战谁是最大受益方，非常抱歉台湾同胞肯定是受害方，受益方是谁？受益方真的是爆料革命、新中国联邦，**一打它就完了，那当然美国和日本了，是不是啊，**你共产党一打它就结束了**，**这就是我们爆料革命所说的，从它开始拿香港那天起，共产党半条命就没了，从它在京西宾馆和所谓中美贸易谈判开始准备下绊子的，开始准备放病毒直到它放病毒另外半条命基本没了，这就七七八八了，病毒、香港事件，病毒事件千万别忘了，这是中美贸易导致它提前释放潘多拉盒子的原因，它再打台湾它再有两条命它都得没了。** 但是这是转移内部的政治压力，共产党一直以来内部斗争，就像毛泽东搞的文化大革命死几千万人动机一样，就是为了干掉刘少奇和林彪、党内斗争、干掉这些老革命，让自己万岁万岁万万岁，是不是啊？然后自己的儿子接班，然后呢再一个儿子没接班成，把这些人，儿子在北朝鲜死了，把所有关于他儿子死的全弄死，报复、报复人类、报复社会，然后转移内部矛盾，它一直就是这样子的。**所以说台湾的问题，它开战共产党肯定死球了，而且加速死亡，那最大的（受益者）就是新中国联邦。**
+- The EPA delivered $300 million in Brownfields grants directly to communities most in need including investment in 118 Opportunity Zones.
+- 环保署直接向最急需的社区提供了3亿美元的“棕土”拨款，其中包括对118个“机会区”的投资。
 
-+1
+
+- Placed a moratorium on offshore drilling off the coasts of Georgia, North Carolina, South Carolina, and Florida.
+- 暂停在佐治亚州，北卡罗来纳州，南卡罗来纳州和佛罗里达州沿海的海上钻井。
+
+
+- Restored public access to Federal land at Bears Ears National Monument and Grand Staircase- Escalante National Monument.
+- 恢复了熊耳国家纪念碑和大阶梯-埃斯卡兰特国家纪念碑联邦土地的公共使用权
+
+
+- Recovered more endangered or threatened species than any other administration in its first term.
+- 恢复的濒危物种比其它任何一届政府第一任期内的都多。
+
+
+### **Secured agreements and signed legislation to protect the environment and preserve our Nation’s abundant national resources.**
+
+### 已达成协议并签署了立法，以保护环境并保护**美国**丰富**的**国家资源。
+
+- The USMCA guarantees the strongest environmental protections of any trade agreement in history.
+- 美墨加协议（USMCA）提供了有史以来所有贸易协定中最强有力的环境保护。
+
+
+- Signed the Save Our Seas Act to protect our environment from foreign nations that litter our oceans with debris and developed the first-ever Federal strategic plan to address marine litter.
+- 签署了《拯救我们的海洋法》，以保护我们的环境， 避免它国垃圾对我们国家海洋的破坏，并制定了史上第一个解决海洋垃圾的联邦战略计划。
+
+
+- Signed the Great American Outdoors Act, securing the single largest investment in America’s National Parks and public lands in history.
+- 签署了《伟大的美国户外法案》，确保了对美国国家公园和公共土地历史上最大的一笔投资。
+
+
+- Signed the largest public lands legislation in a decade, designating 1.3 million new acres of wilderness.
+- 签署了十年来最大规模的公共土地立法，指定了130万英亩的新荒野。
+
+
+- Signed a historic executive order promoting much more active forest management to prevent catastrophic wildfires.
+- 签署了一项历史性的行政命令，促进更加积极的森林管理，以防止灾难性的野火。
+
+
+- Opened and expanded access to over 4 million acres of public lands for hunting and fishing.
+- 开放并扩大了在超过400万英亩的公共土地上进行狩猎和捕鱼的机会。
+
+
+- Joined the One Trillion Trees Initiative to plant, conserve, and restore trees in America and around the world.
+- 加入 “一万亿棵树倡议”，在美国和世界各地种植、养护和复原树木。
+
+
+- Delivered infrastructure upgrades and investments for numerous projects, including over half a billion dollars to fix the Herbert Hoover Dike and expanding funding for Everglades restoration.
+- 为许多项目提供了基础设施升级和投资，其中包括用于修复赫伯特·胡佛堤坝的逾五亿美元资金，并加大用于大沼泽地恢复的资金投入。
+
+
+* * *
+
+原文来源：
+
+[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
+
+往期链接：
+
+[白宫报告：川普政府的政绩——截至2021年1月（一）](https://gnews.org/zh-hans/761018/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（二）](https://gnews.org/zh-hans/761213/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（三）](https://gnews.org/zh-hans/766962/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（四）](https://gnews.org/zh-hans/767022/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（五）](https://gnews.org/zh-hans/771076/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（六）](https://gnews.org/zh-hans/771727/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（七-1）](https://gnews.org/zh-hans/779811/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（七-2）](https://gnews.org/zh-hans/780079/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（八）](https://gnews.org/zh-hans/788066/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十一）](https://gnews.org/zh-hans/802251/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十二）](https://gnews.org/zh-hans/802307/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十三）](https://gnews.org/zh-hans/802335/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十四）](https://gnews.org/zh-hans/802367/)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+
+0

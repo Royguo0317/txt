@@ -1,42 +1,123 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0125V:拜登政府上台带来的机遇/与拜登政府合作的原则
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/815734/)
+## 白宫报告：川普政府的政绩——截至2021年1月（十六）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/815787/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/封二-1.png)
-编辑整理：
+五月花写作组 ｜ 翻译：zz17 ｜ 校对：Tom Cat ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告16.jpg)
+## **Part 16 – Expanding Educational Opportunity **
 
-纽约香草山农场：文官
+## **第十六部分：扩大教育机会**
 
-法国巴黎七星农场：枫丹白露
+* * *
 
-篇首说明：郭文贵先生在[2021年1月25日 文贵直播](https://gtv.org/video/id=600f5b6ab819717e79b067dd)中对[1月25日 文贵直播： 当灾难到来时，就不让听党话了；国内疫情严重地区战友们要…](https://gtv.org/video/id=600f0803b819717e79b02303) 删除的后半部分内容进行了重新补录，在这次补录中，郭先生提到了中共打台湾会加速死亡最大受益方是新中国联邦；提到了拜登政府上台带来的机遇/与拜登政府合作的原则；提到了有条件的台湾战友赶快出来和新中国联邦的华丽转身等三个主要方面的内容，本系列将按郭先生谈到的内容逐一上传，以下为本系列第五部分——拜登政府上台带来的机遇/与拜登政府合作的原则
+### **Fought tirelessly to give every American access to the best possible education. **
 
-据[2021年1月25日 文贵直播](https://gtv.org/video/id=600f5b6ab819717e79b067dd)时间点17：08——
+### **为让每个美国人尽可能获得最优质的教育作出不懈的努力。**
 
-今天我这你看我这脸一直戴一天口罩刚回来，一直在开会，好消息真是太多了，大家想一想听一听，我今天我跟某个大律师开会，他说你看**首先中国的在美国的学生在川普总统那个这届政府的压力没了，会好过多了，**欸，这很好，让中国包括共产党员的孩子能在美国待下来我们是高兴的，这些孩子是无辜的，这会很舒服，**另外一个，就以后住够八年，不管你怎么来的，只要来美国了，你住够八年你就有绿卡，甚至可能比这还要积极激进，甚至有大赦，不管啥原因就给你发卡了，另外一个，就现在从川普总统当时当总统，在边界上在全美国要求当时是非法移民要遣返的三十五万人，到现在的百万人，肯定基本上全部都要合法留在美国了，不会被遣返了。**因为现在新上任的局长非常非常地友好的移民。另外一个很多人在美国的已经说身份有问题的，这对你会非常好，比川普总统那届好。
+- The Tax Cuts and Jobs Act expanded School Choice, allowing parents to use up to $10,000 from a 529 education savings account to cover K-12 tuition costs at the public, private, or religious school of their choice.
+- 《减税和就业法案》扩大了择校范围，并允许家长们从529个教育储蓄账户中动用高达10,000美元来支付他们选择的公立、私立或宗教学校的K-12学费。
+- Launched a new pro-American lesson plan for students called the 1776 Commission to promote patriotic education.
+- 为学生推出新的亲美课程计划来促进爱国教育，该计划称为1776委员会。
+- Prohibited the teaching of Critical Race Theory in the Federal government.
+- 禁止在联邦政府中教学批判性种族理论。
+- Established the National Garden of American Heroes, a vast outdoor park that will feature the statues of the greatest Americans to ever live.
+- 建立了美国英雄国家公园，这个大型户外公园将承载有史以来最伟大的美国人的雕像。
+- Called on Congress to pass the Education Freedom Scholarships and Opportunity Act to expand education options for 1 million students of all economic backgrounds.
+- 呼吁国会通过《教育自由奖学金和机会法案》，为所有经济背景的100万名学生提供更多的教育选择。
+- Signed legislation reauthorizing the D.C. Opportunity Scholarship program.
+- 签署立法重新授权华盛顿特区机会奖学金项目。
+- Issued updated guidance making clear that the First Amendment right to Free Exercise of Religion does not end at the door to a public school.
+- 发布了最新指南，明确规定第一修正案信教自由的权利不会在公立学校终止。
 
-**另外一个，还在哪好呢，就是有一些像那G-Fashion生产的东西税肯定会降下来，G-Fashion以后咱从亚洲生产的包括中国的初级加工货肯定便宜，还有一个国内有些战友们就是走边缘的经济的，不是很敏感的高科技的，你可能往美国的进出口成本机会更多、更容易。**
 
-另外一个，大家要看到，还有对一个爆料革命、新中国联邦，现在新政府好在哪里？现在这一届政府就想找人了解中国，特别了解病毒，这几天我是感觉了，没什么他们相信的，**今天讨论我们GTV的时候，他们说你看你这GTV，所有的病毒的事情现在发现全世界只有你们说的是最准确的，包括G-News你们都是最准确的。**爆料革命啊，战友们，唯真不破呀，就这届政府它必须面对现实，它总不能把假的说成是真的吧，他说G-News、GTV只有我们说得是客观是真实的，对科学家对路德访谈那个119节目高度评价。
+### **Took action to promote technical education. **
 
-兄弟姐妹们，这就是我们要永远坚持的原则，我今天包括政府官员说你看我们需要怎么帮你呀，是不是啊，让你GTV赶快的全面的第二次啊、第三次的大发展啊，什么G-Club啊，哎呀我的天呐，这好事全来了，你知道我说什么吗，战友们？想想我说什么吗？你们知道我会说什么吗？**我说到目前为止，我们没有收到任何威胁，一旦我受到威胁了，我说非常简单，G-TV、G-News、G-Club所有的这些系列，一个小时以内，咔擦，我说就移走，我可以移到日本、我可以移到英国、我可以移到瑞士、我可以移到BVI（British Virgin Islands 英属维尔京群岛），我可以移到任何国家，澳大利亚。**我不是在曼哈顿有个大楼，我这18楼，搬不走，是吧，这我也没权利搬，这是家族基金的，我也搬不走，即（使）是我的，我也搬不走。
+### **采取行动促进技术教育。**
 
-G-系列发展那一天起，就想过一切的可能，我说我分分（钟）走，我不行我把这所有的系列我通通给它shock down一遍，我再重新建起来。我们背后的机构投资者，早在当初就有过一系列的设计，所有的风险，共产党给我玩，你再回你妈肚里生一百次，你也不是对手，你花那么大精力，你搞那么多假案子，结果现在整成我们信用最高了。
+- Signed into law the Strengthening Career and Technical Education for the 21st Century Act, which provides over 13 million students with high-quality vocational education and extends more than $1.3 billion each year to states for critical workforce development programs.
+- 签署了《加强21世纪职业和技术教育法案》，该法案为1300多万学生提供优质的职业教育,并每年向各州提供超过13亿美元,用于劳动力发展计划。
+- Signed the INSPIRE Act which encouraged NASA to have more women and girls participate in STEM and seek careers in aerospace.
+- 签署《激励(INSPIRE)法案》成为法律, 鼓励美国宇航局招收更多女性，鼓励女孩们参加科学、技术、工程和数学领域课程，并在航天领域寻求职业发展。
+- Allocated no less than $200 million each year in grants to prioritize women and minorities in STEM and computer science education.
+- 每年拨款不少于2亿元，优先考虑补助给在科学、技术、工程、数学和计算机教育的女性和少数裔人群。
 
-今天人说，哎呀，我们发现很多都是假的，1300个椅子投资者，没有一个有问题的，所有的开始到现在，它没有一个有问题的，没有一毛钱有问题的，只有我们能说，进行G系列到现在没花过一分钱，而且往里赔，花掉了几千万美元，谁能做到？所以说他们当时说，欸，傻了，所以说我们G-TV、G-News建设大家没想过吧，我们有一系列的计划，未来我就让大家看。
 
-**昨天到今天，听说啊，G-Coin、G-Dollar的整个数据中心受到了国防级、国家级的黑客，第一次啊，**原来一直有，但是，国家级的黑客， **地点看上去有来自美国、有中国，有这个俄罗斯，但都中共干的。**
+### **Drastically reformed and modernized our educational system to restore local control and promote fairness. **
 
-就是傻了，这团队当时，我给他们说过，我说你们如果没有受到这种国家级的攻击，你就不配拥有这个G-Coin、G-Dollar，而且攻击你的我说四步走，第一步怎么样，第二步、第三步、第四步，全告诉你们，现在他享受了第一步，为什么？共产党最怕的是什么，我给大家说过，它最怕的就是G-Coin、G-Dollar，这是为什么今天我跟这个朋友说，我说我请问你，拜登总统会不会让这个扎克伯格Libra这个虚拟货币过，他说一定会过，肯定过，我说它过了是不是，它过了以后其他货币都不能来，他说不可能，**现在很多虚拟货币的投资者已经说，要把它列为到美国所有基金、投资一揽子的和美国合法化，甚至是美国要领导全世界的虚拟货币，战友们，谁说过？我说过拜登政府上这对我们是有好处的。**
+### **大力改革和现代化教育体系，来恢复地方对教育的控制、促进公平。**
 
-我现在我告诉他，我说我们原则很清楚啊，**第一条，只要是拜登总统他反共，我们坚决跟他合作，很愿意合作，我们愿意提供像川普总统的所有的政府的官员当初得到的唯一的情报和信息，我们跟他合作，**有没有这本事？问问上届政府，把手伸出来看手里有啥，中国人说袖子里有没有胳膊，摸过来、抓一抓、看一看，老百姓的话说，是骡子还是啥呀还是马的咱出来溜溜，到底是啥咱遛一遛，所以说很兴奋吧，靠实力说话。
+- Restored state and local control of education by faithfully implementing the Every Student Succeeds Act.
+- 通过坚定执行《每位学生成功法案》，来恢复国家和地方对教育的控制。
+- Signed an executive order that ensures public universities protect First Amendment rights or they will risk losing funding, addresses student debt by requiring colleges to share a portion of the financial risk, and increases transparency by requiring universities to disclose information about the value of potential educational programs.
+- 签署了一项行政命令，确保公立大学会保护第一修正案的权利，否则它们将面临失去资金的风险； 通过要求学院分担部分财务风险来解决学生债务问题，并通过要求大学披露有关潜在教育方案的价值的信息，来提高透明度。
+- Issued a rule strengthening Title IX protections for survivors of sexual misconduct in schools, and that – for the first time in history – codifies that sexual harassment is prohibited under Title IX.
+- 发布了一项规定，在学校内遭受性行为不端的受害者，给予第九修正案保护，该规定是有史以来首次在第九修正案下将禁止性骚扰编撰成法律。
+- Negotiated historic bipartisan agreement on new higher education rules to increase innovation and lower costs by reforming accreditation, state authorization, distance education, competency-based education, credit hour, religious liberty, and TEACH Grants.
+- 关于在新高等教育规则方面达成历史性两党协议，通过改革认证、国家授权、远程教育、能力本位教育、学分、宗教自由和TEACH补助金(注:TEACH全称为The Teacher Education Assistance for College and Higher Education, 寻求学院和高等教育的教师教育帮助计划)来激发创新和降低成本。
 
-**另外，你得给我们新中国联邦有点态度啊，** 对吧？你有点态度保护我们，那我们更积极呀，**但是前提是，我们绝对不能有说半个川普总统的坏话，我们不掺和你美国政治，川普总统对中国人这个过去几年的灭共，我们永远感激他，你们俩怎么事儿跟咱没关系，但是我们绝不说半点坏话，这就是我的原则。**他说世界上没有一个像你那么疯狂的，你这会这样，必须的、我良心上过不去、我道德上过不去，我今天早上就在这旁边的时候，我跟这个哥们这个通电话，我说我良心、我道德我过不了这个坎，永远不可能我去攻击川普任何人，还有川普政府像蓬皮奥这必须的，这就是我们爆料革命，这是我们新中国联邦，我们有信仰、我们有道德要求、我们有良知要求，生死都不怕、共产党都敢对付，我们能把这点东西给放下吗？不可能的。今天上午说完以后，刚才给我说，欸，Miles，你厉害，是吧？我们就见你一个人还坚持着道德，我们就是坚持，**我们不会忘掉一个帮我们灭共的人，和帮助爆料革命、新中国联邦的人，和帮助保护我们战友的人，我们不会放过一个欺骗、欺负、侮辱我们战友的人。** 刚才我上楼前，有个人给我打电话说，欸，凤凰城的案子有大的进展，我说我说实话，到现在我也不希望什么海洋啊、Jennerson啊，什么Sara、她儿子进监狱，但是她要触犯了美国法律，我也管不着啊，是吧，我不希望他们成为爆料革命当初最牛叉的人、骗得最大的人，最后成为第一个进监狱的人，我也不希望，但是她自己作了跟我也没关系，我道德上我不会这么做，她自己作的那跟我没关系，对吧？你们懂的，兄弟姐妹们，咱走着看，永远那句话，莘县阳谷县搭县咱走走看，咱走走看，这个威廉王、唐平妹妹这个词整的太火，现在国内流行词，走走看，太棒了。
 
-接上文——
+### **Prioritized support for Historically Black Colleges and Universities. **
 
-[**郭先生0125IV:中共打台湾会加速死亡最大受益方是新中国联邦**](https://gnews.org/zh-hans/815704/)
+### **优先支持传统非洲裔美国人大学**
+
+- Moved the Federal Historically Black Colleges and Universities (HBCU) Initiative back to the White House.
+- 将联邦传统非洲裔美国人大学(HBCU)的倡议带回白宫。
+- Signed into law the FUTURE Act, making permanent $255 million in annual funding for HBCUs and increasing funding for the Federal Pell Grant program.
+- 签署《未来(FUTURE)法案》成为法律，为传统非洲裔美国人大学(HBCU)永久性提供2.55亿美元的年度资金，并增加联邦佩尔助学金(Federal Pell Grant)计划的资金。
+- Signed legislation that included more than $100 million for scholarships, research, and centers of excellence at HBCU land-grant institutions.
+- 签署了立法法案，为奖学金，研究项目和在HBCU赠地机构的英才中心提供了超过1亿的资金。
+- Fully forgave $322 million in disaster loans to four HBCUs in 2018, so they could fully focus on educating their students.
+- 2018年，向4所传统非洲裔美国人大学(HBCU)全额提供了3.22亿美元的救灾贷款，以便它们能够完全专注在学生教育上。
+- Enabled faith-based HBCUs to enjoy equal access to Federal support.
+- 使基于信仰的传统非洲裔美国人大学(HBCU)享有获得联邦支持的平等机会。
+
+
+* * *
+
+原文来源：
+
+[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
+
+往期链接：
+
+[白宫报告：川普政府的政绩——截至2021年1月（一）](https://gnews.org/zh-hans/761018/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（二）](https://gnews.org/zh-hans/761213/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（三）](https://gnews.org/zh-hans/766962/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（四）](https://gnews.org/zh-hans/767022/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（五）](https://gnews.org/zh-hans/771076/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（六）](https://gnews.org/zh-hans/771727/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（七-1）](https://gnews.org/zh-hans/779811/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（七-2）](https://gnews.org/zh-hans/780079/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（八）](https://gnews.org/zh-hans/788066/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十一）](https://gnews.org/zh-hans/802251/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十二）](https://gnews.org/zh-hans/802307/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十三）](https://gnews.org/zh-hans/802335/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十四）](https://gnews.org/zh-hans/802367/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十五）](https://gnews.org/zh-hans/815742/)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
 0

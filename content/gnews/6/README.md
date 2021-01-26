@@ -1,41 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 霍利：共产中国式社会信用评分系统正以“取消文化”的形式输入美国
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/815464/)
+## 查尔斯·弗林- 迈克尔·弗林的弟弟被任命领导美国陆军太平洋司令部
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/815575/)
 
-作者：杰克-菲利普斯      2021年1月25日更新
+**作者: WYATT OLSON**
 
-翻译：康州盘古农场-Mike Li
+**编译: 莫黎**
 
-校对：康州盘古农场-YY
 
-审核：康州盘古农场-Truemanman
-![]()![](https://gnews.org/wp-content/uploads/2021/01/下载-7.jpg)
-联邦参议员霍利（Josh Hawley）警告说，共产中国式的社会信用评分系统正以“取消文化”的形式输入美国。
 
-霍利周日在《纽约邮报》（New York Post）发文说：“每个人都知道什么是信用评分。但社会信用评分是新东西。它是来自共产中国的最新企业进口货。在那里，政府和大企业监视着每个公民的社会观点和言论。”
+![]()![](https://gnews.org/wp-content/uploads/2021/01/001234-2.jpg)**图片: USArmyWarCollege**
 
-“它是这个国家’取消文化’的最新形式，因为垄断企业和左派合伙封杀他们不喜欢的言论，并将其政治议程强加于美国。”霍利补充说，“那些仍然相信言论自由和第一修正案的人应当表态（反对）。”
 
-最近几周，霍利和参议员克鲁兹（Ted Cruz）因1月6日在国会联席会议上挑战大选结果而受到攻击。一些民主党人声称，他们俩帮助煽动了当天国会大厦发生的暴力，导致议员们和前副总统迈克-彭斯逃离。
 
-一家出版商取消了霍利即将出版的一本新书，一家连锁酒店取消了他的一项竞选筹款活动，还有人要求他辞职。
+查尔斯·弗林（Charles Flynn）中将被提名领导美国陆军太平洋司令部，该职位目前由2019年11月上任的保罗·拉卡梅拉将军（Paul LaCamera）担任。
 
-霍利补充说：“情况会变得更糟。科技巨头们已经从社交媒体上踢走了数十名保守派人士。如果任由他们为所欲为，众议院共和党会议的一半将被逐出国会。企业巨头们似乎相信，让民主符合他们胃口的唯一方式，就是消除对民主党统一控制政府的所有威胁。”
+弗林将会在参议院确认后晋升为四星将军，他目前在华盛顿特区担任陆军G-3/5/7部门的副参谋长，该部门负责规划和协调美国本土后备役力量的动员工作。
 
-中共支持的社会信用体系寻求惩罚所谓的违法行为，例如支持法轮功（一个受迫害的信仰群体）、维吾尔族或藏族、批评政府、逾期付款等等。惩罚可能包括禁止出国、禁止乘坐公共交通工具、禁止入住酒店、禁止在某些职位上被雇用，或者被列入公开黑名单。
+查尔斯·弗林是2017年短暂担任国家安全顾问的迈克尔·弗林（Michael Flynn）的弟弟。迈克尔·弗林曾在对联邦调查局（FBI）在调查俄罗斯与川普2016年总统竞选活动之间的关系作出”故意 “虚假陈述表示认罪，前总统川普在11月份赦免了他。
 
-霍利指出，随着“取消文化”的加剧，保守派也受到了更多的胁迫。
+查尔斯·弗林最近因1月6日示威者闯国会事件，国民警卫队的迟缓部署面临了审查。华盛顿市政府和国会警察局的官员指称，五角大楼对国民警卫队协助平息骚乱的请求反应缓慢。
 
-“当亚马逊可以关闭你的‘保守派’社交平台时，你的平台就没什么价值了。你的选票可能依然是你的，但如果垄断企业不让你的政党掌握有效组织的方法，那么你的党就不会获胜。你暂时仍可以去你的教堂，但（如果）去错了教堂，你几年内可能会失业。”他写道。
+据《华盛顿邮报》报道，陆军承认在当地官员提出打来请求的关键电话时查尔斯·弗林也在场，但该部门是在 “连日来虚假否认 “他没有在场之后才承认的。
 
-“比如说我，我不会退缩。”霍利说，“我的书将会出版，无论左派或那些企业怎么说，我都会继续代表我所在州的人民，不惧怕，不讨好。”
+根据查尔斯·弗林的官方简历，他毕业于美国海军战争学院，并获得了国家安全和战略研究的硕士学位。他有从排到师的指挥经验，并曾在伊拉克和阿富汗服役。
 
-霍利认为，那些珍视《第一修正案》的人现在应该站出来表态了。
+近年来，他曾在夏威夷指挥第25步兵师，之后担任了美国陆军太平洋司令部副司令。
 
-“有权势的人现在看到了巩固其对社会控制并压制异议的机会，”他写道，“这意味着，那些相信第一修正案和美国自由的基本原则的人，在我们仍然可以之时，现在必须表态（反对）。”
 
-文章链接：[https://www.theepochtimes.com/sen-hawley-communist-china-style-social-credit-scores-coming-to-us-in-form-of-cancel-culture\_3670473.html](https://www.theepochtimes.com/sen-hawley-communist-china-style-social-credit-scores-coming-to-us-in-form-of-cancel-culture_3670473.html)
+
+
+
+**新闻来源: **
+
+Charles Flynn, brother of former national security adviser, tapped to lead US Army Pacific
+
+[https://www.stripes.com/news/pacific/charles-flynn-brother-of-former-national-security-adviser-tapped-to-lead-us-army-pacific-1.659849](https://www.stripes.com/news/pacific/charles-flynn-brother-of-former-national-security-adviser-tapped-to-lead-us-army-pacific-1.659849)
+
+General Officer Assignments
+
+[https://www.defense.gov/Newsroom/Releases/Release/Article/2482280/general-officer-assignments/source/GovDelivery/](https://www.defense.gov/Newsroom/Releases/Release/Article/2482280/general-officer-assignments/source/GovDelivery/)
 
 0
