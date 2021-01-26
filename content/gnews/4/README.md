@@ -1,42 +1,123 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0125V:拜登政府上台带来的机遇/与拜登政府合作的原则
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/815734/)
+## 白宫报告：川普政府的政绩——截至2021年1月（十七）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/815901/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/封二-1.png)
-编辑整理：
+五月花写作组 ｜ 翻译：zz17 ｜ 校对：虹陵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告17.jpg)
+## **Part 17 – Combatting the Opioid Crisis **
 
-纽约香草山农场：文官
+## **第十七部分：抗击阿片类药物危机**
 
-法国巴黎七星农场：枫丹白露
+* * *
 
-篇首说明：郭文贵先生在[2021年1月25日 文贵直播](https://gtv.org/video/id=600f5b6ab819717e79b067dd)中对[1月25日 文贵直播： 当灾难到来时，就不让听党话了；国内疫情严重地区战友们要…](https://gtv.org/video/id=600f0803b819717e79b02303) 删除的后半部分内容进行了重新补录，在这次补录中，郭先生提到了中共打台湾会加速死亡最大受益方是新中国联邦；提到了拜登政府上台带来的机遇/与拜登政府合作的原则；提到了有条件的台湾战友赶快出来和新中国联邦的华丽转身等三个主要方面的内容，本系列将按郭先生谈到的内容逐一上传，以下为本系列第五部分——拜登政府上台带来的机遇/与拜登政府合作的原则
+### **Brought unprecedented attention and support to combat the opioid crisis. **
 
-据[2021年1月25日 文贵直播](https://gtv.org/video/id=600f5b6ab819717e79b067dd)时间点17：08——
+### 前所未有的关注和支持抗击阿片类药物危机。
 
-今天我这你看我这脸一直戴一天口罩刚回来，一直在开会，好消息真是太多了，大家想一想听一听，我今天我跟某个大律师开会，他说你看**首先中国的在美国的学生在川普总统那个这届政府的压力没了，会好过多了，**欸，这很好，让中国包括共产党员的孩子能在美国待下来我们是高兴的，这些孩子是无辜的，这会很舒服，**另外一个，就以后住够八年，不管你怎么来的，只要来美国了，你住够八年你就有绿卡，甚至可能比这还要积极激进，甚至有大赦，不管啥原因就给你发卡了，另外一个，就现在从川普总统当时当总统，在边界上在全美国要求当时是非法移民要遣返的三十五万人，到现在的百万人，肯定基本上全部都要合法留在美国了，不会被遣返了。**因为现在新上任的局长非常非常地友好的移民。另外一个很多人在美国的已经说身份有问题的，这对你会非常好，比川普总统那届好。
+- Declared the opioid crisis a nationwide public health emergency.
+- 宣布阿片类药物危机为全国公共卫生紧急事件。
+- Secured a record $6 billion in new funding to combat the opioid epidemic.
+- 创纪录拨款60亿美元新资金，用于抗击阿片类药物泛滥。
+- Signed the SUPPORT for Patients and Communities Act, the largest-ever legislative effort to address a drug crisis in our Nation’s history.
+- 签署了《对病患和社区支持法案》，该法案是我国在立法层面上，有史以来对解决药物危机做出的最大努力。
+- Launched the Initiative to Stop Opioid Abuse and Reduce Drug Supply and Demand in order to confront the many causes fueling the drug crisis.
+- 发起了《制止阿片类药物滥用和减少毒品供求的倡议》，以应对引发毒品危机的诸多因素。
+- The Department of Health and Human Services (HHS) awarded a record $9 billion in grants to expand access to prevention, treatment, and recovery services to States and local communities.
+- 卫生和公共服务部门(HHS)提供了创纪录的90亿美元款项，用于加强各州和当地社区的预防、治疗和服务恢复。
+- Passed the CRIB Act, allowing Medicaid to help mothers and their babies who are born physically dependent on opioids by covering their care in residential pediatric recovery facilities.
+- 通过了《CRIB法》。为了帮助母亲和她们一出生身体就依赖阿片类药物的婴儿，允许医疗保险支付他们在儿科康复机构住院期间的护理费用。
+- Distributed $1 billion in grants for addiction prevention and treatment.
+- 分发了10亿美元用于预防和治疗药物成瘾。
+- Announced a Safer Prescriber Plan that seeks to decrease the amount of opioids prescriptions filled in America by one third within three years.
+- 宣布了一项“更安全的处方计划”，旨在三年内将美国的阿片类药物处方数量减少三分之一。
+- Reduced the total amount of opioids prescriptions filled in America.
+- 在美国, 减少了阿片类药物处方的总量。
+- Expanded access to medication-assisted treatment and life-saving Naloxone.
+- 增加获得药物辅助治疗和救命的纳洛酮（Naloxone）的途径。
+- Launched FindTreatment.gov, a tool to find help for substance abuse.
+- 启动FindTreatment.gov，该工具可为药物滥用提供帮助。
+- Drug overdose deaths fell nationwide in 2018 for the first time in nearly three decades.
+- 2018年是近30年来，由药物过量导致的死亡在全国范围内的首次下降。
+- Launched the Drug-Impaired Driving Initiative to work with local law enforcement and the driving public at large to increase awareness.
+- 发起了“禁毒驾驶计划”，与地方执法部门和广大驾驶公众合作，以充分地提高认识。
+- Launched a nationwide public ad campaign on youth opioid abuse that reached 58 percent of young adults in America.
+- 发起了一场关于青年人阿片类药物滥用的全国性公共广告活动，惠及了美国58%的年轻人。
+- Since 2016, there has been a nearly 40 percent increase in the number of Americans receiving medication-assisted treatment.
+- 自2016年以来，接受药物辅助治疗的美国人数量增加了近40%。
+- Approved 29 state Medicaid demonstrations to improve access to opioid use disorder treatment, including new flexibility to cover inpatient and residential treatment.
+- 批准了29个州的医疗补助示范，用以改善阿片类药物使用障碍的治疗，包括为住院病人和住院治疗提供新的灵活性。
+- Approved nearly $200 million in grants to address the opioid crisis in severely affected communities and to reintegrate workers in recovery back into the workforce.
+- 批准了近2亿美元的款项，以解决严重受影响的社区的阿片类药物危机，并使工人得以恢复而重新融入劳动力队伍中。
 
-**另外一个，还在哪好呢，就是有一些像那G-Fashion生产的东西税肯定会降下来，G-Fashion以后咱从亚洲生产的包括中国的初级加工货肯定便宜，还有一个国内有些战友们就是走边缘的经济的，不是很敏感的高科技的，你可能往美国的进出口成本机会更多、更容易。**
 
-另外一个，大家要看到，还有对一个爆料革命、新中国联邦，现在新政府好在哪里？现在这一届政府就想找人了解中国，特别了解病毒，这几天我是感觉了，没什么他们相信的，**今天讨论我们GTV的时候，他们说你看你这GTV，所有的病毒的事情现在发现全世界只有你们说的是最准确的，包括G-News你们都是最准确的。**爆料革命啊，战友们，唯真不破呀，就这届政府它必须面对现实，它总不能把假的说成是真的吧，他说G-News、GTV只有我们说得是客观是真实的，对科学家对路德访谈那个119节目高度评价。
+### **Took action to seize illegal drugs and punish those preying on innocent Americans. **
 
-兄弟姐妹们，这就是我们要永远坚持的原则，我今天包括政府官员说你看我们需要怎么帮你呀，是不是啊，让你GTV赶快的全面的第二次啊、第三次的大发展啊，什么G-Club啊，哎呀我的天呐，这好事全来了，你知道我说什么吗，战友们？想想我说什么吗？你们知道我会说什么吗？**我说到目前为止，我们没有收到任何威胁，一旦我受到威胁了，我说非常简单，G-TV、G-News、G-Club所有的这些系列，一个小时以内，咔擦，我说就移走，我可以移到日本、我可以移到英国、我可以移到瑞士、我可以移到BVI（British Virgin Islands 英属维尔京群岛），我可以移到任何国家，澳大利亚。**我不是在曼哈顿有个大楼，我这18楼，搬不走，是吧，这我也没权利搬，这是家族基金的，我也搬不走，即（使）是我的，我也搬不走。
+### 采取行动缉获非法毒品**，**惩罚那些掠夺无辜美国人生命的人**。**
 
-G-系列发展那一天起，就想过一切的可能，我说我分分（钟）走，我不行我把这所有的系列我通通给它shock down一遍，我再重新建起来。我们背后的机构投资者，早在当初就有过一系列的设计，所有的风险，共产党给我玩，你再回你妈肚里生一百次，你也不是对手，你花那么大精力，你搞那么多假案子，结果现在整成我们信用最高了。
+- In FY 2019, ICE, HSI seized 12,466 pounds of opioids including 3,688 pounds of fentanyl, an increase of 35 percent from FY 2018.
+- 在2019财政年，移民及海关执法局（ICE）和国土安全部（HSI）缉获了包括3,688磅芬太尼在内的共12,466磅阿片类药物，比2018财年增加了35%。
+- Seized tens of thousands of kilograms of heroin and thousands of kilograms of fentanyl since 2017.
+- 自2017年以来缉获了数万公斤的海洛因和数千公斤芬太尼。
+- The Department of Justice (DOJ) prosecuted more fentanyl traffickers than ever before, dismantled 3,000 drug trafficking organizations, and seized enough fentanyl to kill 105,000 Americans.
+- 司法部（DOJ）起诉的芬太尼贩运者比以往任何时候都要多，捣毁了3,000个贩毒组织，并且缉获了大量的芬太尼，数量足以杀死105,000个美国人。
+- DOJ charged more than 65 defendants collectively responsible for distributing over 45 million opioid pills.
+- 司法部控告了超过65名被告, 他们共同负责分销超过4500万粒阿片类药物。
+- Brought kingpin designations against traffickers operating in China, India, Mexico, and more who have played a role in the epidemic in America.
+- 对在中国、印度、墨西哥等地活动的毒贩进行了毒枭认定，他们在美国的毒品泛滥中充当关键的角色。
+- Indicted major Chinese drug traffickers for distributing fentanyl in the U.S for the first time ever, and convinced China to enact strict regulations to control the production and sale of fentanyl.
+- 首次起诉了重要的中国毒贩，依据是他们在美国分销芬太尼。并说服中国政府制定严格的法规来控制芬太尼的生产和销售。
 
-今天人说，哎呀，我们发现很多都是假的，1300个椅子投资者，没有一个有问题的，所有的开始到现在，它没有一个有问题的，没有一毛钱有问题的，只有我们能说，进行G系列到现在没花过一分钱，而且往里赔，花掉了几千万美元，谁能做到？所以说他们当时说，欸，傻了，所以说我们G-TV、G-News建设大家没想过吧，我们有一系列的计划，未来我就让大家看。
 
-**昨天到今天，听说啊，G-Coin、G-Dollar的整个数据中心受到了国防级、国家级的黑客，第一次啊，**原来一直有，但是，国家级的黑客， **地点看上去有来自美国、有中国，有这个俄罗斯，但都中共干的。**
+（完结）
 
-就是傻了，这团队当时，我给他们说过，我说你们如果没有受到这种国家级的攻击，你就不配拥有这个G-Coin、G-Dollar，而且攻击你的我说四步走，第一步怎么样，第二步、第三步、第四步，全告诉你们，现在他享受了第一步，为什么？共产党最怕的是什么，我给大家说过，它最怕的就是G-Coin、G-Dollar，这是为什么今天我跟这个朋友说，我说我请问你，拜登总统会不会让这个扎克伯格Libra这个虚拟货币过，他说一定会过，肯定过，我说它过了是不是，它过了以后其他货币都不能来，他说不可能，**现在很多虚拟货币的投资者已经说，要把它列为到美国所有基金、投资一揽子的和美国合法化，甚至是美国要领导全世界的虚拟货币，战友们，谁说过？我说过拜登政府上这对我们是有好处的。**
+* * *
 
-我现在我告诉他，我说我们原则很清楚啊，**第一条，只要是拜登总统他反共，我们坚决跟他合作，很愿意合作，我们愿意提供像川普总统的所有的政府的官员当初得到的唯一的情报和信息，我们跟他合作，**有没有这本事？问问上届政府，把手伸出来看手里有啥，中国人说袖子里有没有胳膊，摸过来、抓一抓、看一看，老百姓的话说，是骡子还是啥呀还是马的咱出来溜溜，到底是啥咱遛一遛，所以说很兴奋吧，靠实力说话。
+原文来源：
 
-**另外，你得给我们新中国联邦有点态度啊，** 对吧？你有点态度保护我们，那我们更积极呀，**但是前提是，我们绝对不能有说半个川普总统的坏话，我们不掺和你美国政治，川普总统对中国人这个过去几年的灭共，我们永远感激他，你们俩怎么事儿跟咱没关系，但是我们绝不说半点坏话，这就是我的原则。**他说世界上没有一个像你那么疯狂的，你这会这样，必须的、我良心上过不去、我道德上过不去，我今天早上就在这旁边的时候，我跟这个哥们这个通电话，我说我良心、我道德我过不了这个坎，永远不可能我去攻击川普任何人，还有川普政府像蓬皮奥这必须的，这就是我们爆料革命，这是我们新中国联邦，我们有信仰、我们有道德要求、我们有良知要求，生死都不怕、共产党都敢对付，我们能把这点东西给放下吗？不可能的。今天上午说完以后，刚才给我说，欸，Miles，你厉害，是吧？我们就见你一个人还坚持着道德，我们就是坚持，**我们不会忘掉一个帮我们灭共的人，和帮助爆料革命、新中国联邦的人，和帮助保护我们战友的人，我们不会放过一个欺骗、欺负、侮辱我们战友的人。** 刚才我上楼前，有个人给我打电话说，欸，凤凰城的案子有大的进展，我说我说实话，到现在我也不希望什么海洋啊、Jennerson啊，什么Sara、她儿子进监狱，但是她要触犯了美国法律，我也管不着啊，是吧，我不希望他们成为爆料革命当初最牛叉的人、骗得最大的人，最后成为第一个进监狱的人，我也不希望，但是她自己作了跟我也没关系，我道德上我不会这么做，她自己作的那跟我没关系，对吧？你们懂的，兄弟姐妹们，咱走着看，永远那句话，莘县阳谷县搭县咱走走看，咱走走看，这个威廉王、唐平妹妹这个词整的太火，现在国内流行词，走走看，太棒了。
+[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
 
-接上文——
+往期链接：
 
-[**郭先生0125IV:中共打台湾会加速死亡最大受益方是新中国联邦**](https://gnews.org/zh-hans/815704/)
+[白宫报告：川普政府的政绩——截至2021年1月（一）](https://gnews.org/zh-hans/761018/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（二）](https://gnews.org/zh-hans/761213/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（三）](https://gnews.org/zh-hans/766962/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（四）](https://gnews.org/zh-hans/767022/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（五）](https://gnews.org/zh-hans/771076/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（六）](https://gnews.org/zh-hans/771727/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（七-1）](https://gnews.org/zh-hans/779811/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（七-2）](https://gnews.org/zh-hans/780079/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（八）](https://gnews.org/zh-hans/788066/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十一）](https://gnews.org/zh-hans/802251/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十二）](https://gnews.org/zh-hans/802307/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十三）](https://gnews.org/zh-hans/802335/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十四）](https://gnews.org/zh-hans/802367/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十五）](https://gnews.org/zh-hans/815742/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十六）](https://gnews.org/zh-hans/815787/)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
 0
