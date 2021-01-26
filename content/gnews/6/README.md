@@ -1,31 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【中美脱钩快讯】MSCI 明晟周一声明中称，27日收盘起剔除中共核电等五家军企，中美脱钩加速中
-` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/815322/)
+## 川普为未来初选起草共和党内部“敌对”名单，推进为人民创建“爱国者党”计划
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/815367/)
 
-收集: Meil​​en美伦
+翻译：康州盘古农场-Bruce
+校对：康州盘古农场-烟波浩淼
+编辑：康州盘古农场-Antsee-GTV
 
-撰写: Meil​​en美伦
+![leadership]()![leadership](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-26-at-18.25.03.png)
 
-校对：卡西欧
+据报道，川普正在为未来的初选起草一份共和党人的名单。
 
-发稿(上传)：文粤
-![]()![](https://gnews.org/wp-content/uploads/2021/01/jpg-IMG_20210126_175049-2.jpg)图片：喜马拉雅-国际金融组/素材/封面：
-据路透社2021年1月25日报道，MSCI 明晟在周一的声明中称，从1月27日收盘起，将从MSCI ACWI系列指数以及相关非市值加权指数和定制化指数中剔除五家中资企业的证券。但并未给出任何指引。
+（之前）失败的领导层名单包括：前任副总统迈克·彭斯，背叛了川普和国家，（参众两院）少数党领袖米奇·麦康奈尔和少数党领袖凯文·麦卡锡上周都出来指责川普对美国国会大厦的骚乱负责。
 
-这五家公司包括中广核电力 (1816.HK) 、中国化学 (601117.SS) 、中国核电 (601985.SS) 、中国船舶重工 (601989.SS) 和浪潮国际 (0596.HK) 。
+**川普还在考虑成立一个亲美的 “爱国者党”，代表人民，对抗腐败的共和党和民主党机器。**
 
-**这几家公司均为中共军方控制的企业。**
+**《每日邮报》坚称，川普此举是为了在弹劾期间保护自己。这一点值得怀疑。如果共和党人根据媒体的谎言投票弹劾川普，共和党就没有了。**
 
-此消息一出，今日香港上市的中广核电力与浪潮国际盘初跌逾 4%，分别低探 1.76 港元及 2.14 港元。其它三家被剔除的中国化学、中国核电以及中国船舶重工跌幅也在 1% 左右。
+不过话说回来，共和党就是这么傲慢和愚蠢。
 
-**战友观点：**
+来自[《帕米埃里报告》](https://thepalmierireport.com/trump-drafting-enemies-list-of-republicans-to-primary/)和[《每日邮报》](https://thepalmierireport.com/trump-drafting-enemies-list-of-republicans-to-primary/)：
 
-显而易见，拜登政府延续川普政策脱钩继续进行时，且在加速中！ MSCI是全世界目前来说，排名第一的对股票基金、收入型基金等分析工具提供商，任何做股指期货、投资、再融资等的机构，就是依据MSCI（分析）来参考的，它说你企业值钱就值钱，它说你企业不值钱你企业股票就算上市了也是垃圾股票。可见，中美金融脱钩进程无论是谁上台当总统也都已经无法扭转，中共被灭是早已成定局，时间不再长。
+*据报道，唐纳德**・川普正在推进他的计划创建一个 “爱国者党”，给反对他的共和党人施加压力，并试图阻止他在参议院第二次弹劾审判中被定罪。*
 
-（本文仅代表个人观点）
+*川普圈内的人士告诉《华盛顿邮报》，川普已经告诉人们，第三方威胁使他有能力阻止共和党参议员在下个月的参议院审判中投票对他定罪。*
 
-新闻来源：[路透社](https://www.reuters.com/article/msci-chinese-companies-0125-mon-idCNKBS29U2NZ)
+*自从乔·拜登总统上任以来，川普一直住在马拉哥，除了在周五告诉记者：“我们会做点什么，但还不是时候。”之外，他对自己的计划一直对公众保持着神秘。*
+
+*但消息人士告诉《邮报》，在闭门不出的情况下，川普已经在起草一份反对他对选举舞弊指控的共和党“敌对”名单，指示助手准备主要对他们进行初选挑战。*
+
+原文作者：吉姆·霍夫特（Jim Hoft）
+
+发布时间：2021年1月24日
+原文链接：[https://www.thegatewaypundit.com/2021/01/president-trump-drafting-list-dirtbag-republicans-primary-moving-forward-plans-create-patriot-party-people/](https://www.thegatewaypundit.com/2021/01/president-trump-drafting-list-dirtbag-republicans-primary-moving-forward-plans-create-patriot-party-people/)
 
 0

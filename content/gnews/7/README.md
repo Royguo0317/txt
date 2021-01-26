@@ -1,44 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒让世界付出了高昂的代价
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/815145/)
+## 【疫苗快讯】棒球本垒打之王注射疫苗后去世
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/815253/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-26-at-7.07.32-pm.png)图片来源:Getty Images
-根据《零对冲》财经博客的分析报导，假如考虑到中共病毒对生命、精神损失和后续后果，人类为中共病毒所付出的代价难以估算!
+【编译】
 
-全球线上发行商《视觉资本家》的艾利•库普（Avery Koop）指出，如果单从经济学的角度出发，研究人员可以从失业和GDP损失等经济数据，然后以美元计价将这些损失归咎于中共病毒疫情的爆发。
+被称为美国棒球本垒打之王的汉克·亚伦（Hank Aaron），于1月5日在电视上接种了Moderna 新冠疫苗。 他说“我希望向美国黑人发出一个信息，那就是这个疫苗是安全的。” 他于1月22号去世，享年86岁。
 
-而根据哈佛大学的一项研究数据可以了解，我们可以从另外一些参数来了解美国在中共病毒所付出的真正代价。为了有助于对中共病毒疫情相关的巨大代价有更进一步的了解，该研究还与其他情况做了比较，譬如美国长期面对反恐所付出的代价。
+- ![]()![](https://gnews.org/wp-content/uploads/2021/01/image-301.png)
 
-自从2020年3月，中共病毒在美国大面积爆发以来，失业一直是最严重的后果之一。美国最近的失业救济金已达6000万，而GDP损失估计为7.6万亿美元。
 
-失去工作、生活的不确定性、丧失亲爱的家人和失去社会支持系统都导致抑郁和焦虑症的发作。 2020年4月，约40％的美国成年人报告至少患有这些精神疾病中的一种。根据研究人员的说法，从这些在生活中努力挣扎载浮载沉的人数来看，精神受损的成本可能高达1.6万亿美元。
+推特正在阻止这个事情成为热点。当然像汉克·亚伦这种棒球传奇的死亡成为热点是理所应当的。他的家人说他接种疫苗之前是健康和充满活力的，可最后情况迅速恶化。
 
-虽然人命是无价的，美国和全球卫生政策都用“统计寿命的价值”(stastical lives)的概念来表达人类为挽救生命的所需付的代价，通常该指标所产生的价值是介于7到1000万美元之间。即便该指标使用了较低标准，美国因为中共病毒而导致的人民早发性死亡的”统计寿命”的成本估计是4.4万亿美元。
+【转载者评论】对于那些一直想要他家人谈论他的身体情况的链接， 大部分已经在推特中消失了。一位传奇人物去世了居然没有成为热点，所以让人怀疑推特是在删除信息。不过这个推是来自在汉克接种疫苗当天访问他的女记者, 让人不容置疑。
 
-最后，当考量到中共病毒患者与保险公司签订长期医疗保健费用时，成本的代价将近是2.6万亿美元。这些费用将持续数十年，因为某些终生病症可能会从中共病毒的疾病中衍生出来，譬如呼吸系统疾病和心血管疾病。呼吸系统疾病和心血管疾病可能最终导致过早死亡，甚至进一步拉高了美国为中共病毒所要付出的总成本。
+Hank Aaron, who was baseball’s home run king for 33 years, got the Moderna shot on TV January 5. “I hope to send a message to Black Americans that the vaccine is safe.” He died today at age 86.
 
-## **反恐战与中共病毒疫情代价的比较**
+Twitter is preventing this story from trending.  Of course the death of a legend like Hank Aaron would trend immediately. Family are saying he was healthy and vibrant until he got the shot and things started quickly deteriorating.
 
-中共病毒全球大流行和反恐战都会对健康造成长期影响，而且代价昂贵。那么，两者比较究竟那一个更耗费巨资呢?
+【Comments】For those who keep asking for the links to family talking about his health – most of them are gone from Twitter. Somehow a legend dies and it’s not trending, so I assume Twitter is deleting tweets. But here is the reporter who interviewed Hank the day he got the shot, January 5. She described him as “full of life” and “upbeat about life” in this thread.
 
-由美国国防部，美国国务院和美国国际开发署的支出计算得出，9/11之后的反恐战争的成本超过6万亿美元，这个费用包括现在与未来用于退伍军人的医疗和伤残护理方面的支出、反恐战争的各项成本，各个部门借贷所产生的利息以及国土安全部为预防和应对恐怖主义所做的支出。9/11之后，美国对于退伍军人的医疗和伤残护理已经达到了4,370亿美元，为因应他们未来照护的需求则高达1万亿美元。由于9/11之后的反恐战，美国国防部预算增加了8030亿美元，美国国土安全部在预防和应对恐怖主义方面则花费了1.05万亿美元。
+另有一位在12月份检测出COVID-19阳性的加利福尼亚居民在接种疫苗后死亡。 据报道，这位居民在接种新冠疫苗数小时后于周四在加利福尼亚普莱瑟县丧生。
 
-尽管战争的成本巨大，而战争的后果通常也是终身受害的，但这样的代价估计仍比美国为中共病毒付出的代价便宜约10万亿美元。
+尽管美国疾病控制中心CDC 建议不要在测试新冠得阳性的90天内接种疫苗，这位在12月感染了病毒的居民仍是接种了疫苗。 虽然现在尚不清楚患者是接受哪种新冠疫苗，卫生官员说人们不应太快地将死亡归咎于疫苗。
 
-## **钱真的用在刀口上了吗?**
+A California resident who tested positive for COVID-19 in December died after receiving a vaccine. The individual reportedly perished in Placer County, California on Thursday, several hours after getting the coronavirus vaccine.
 
-美国人或许认为，短期解决中共病毒疫情的方案就是中共病毒的疫苗投资，目前美国已经购买的疫苗超过10亿剂，将希望寄托在中共病毒疫苗，期待疫苗能使人们在身体健康及经济两方面都能回到以往的水准。
+They reportedly contracted the virus in December, and despite a CDC recommendation to not get vaccinated within 90 days of a positive test, received the vaccine.  While it is unclear which COVID-19 vaccine the patient received, health officials said people should not be too quick to blame the vaccine for the death.
 
-然而这样的想法或许为时过早，即便全球经济在短时间内复甦(事实上很难)，美国和全球其他国家/地区在未来的岁月里仍然必须为中共病毒所产生的恶果付出巨额的代价。
+【来源】
 
-点评:
+1. [https://www.reddit.com/r/conspiracy/comments/l2ulks/hank\_aaron\_got\_the\_moderna\_shot\_on\_tv\_january\_5\_i/](https://www.reddit.com/r/conspiracy/comments/l2ulks/hank_aaron_got_the_moderna_shot_on_tv_january_5_i/)
+2. https://twitter.com/KHollowayWSB/status/1352641971890872324?s=20
+3. [https://www.oann.com/calif-covid-19-vaccine-recipient-dies-hours-after-being-vaccinated/](https://www.oann.com/calif-covid-19-vaccine-recipient-dies-hours-after-being-vaccinated/)
 
-中共病毒造成全球经济重创、人身生命受到威胁、社会关系的疏离….，从2019年底武汉爆发中共病毒疫情开始，人类的厄运就开始了！对于从实验室人工制造的同时拥有几种不同的病毒特性中共病毒而言，”疫苗的有效”是天方夜谭！只会再次重创全球经济，让世界付出更高的代价。
-
-[文章链接](https://www.zerohedge.com/covid-19/putting-cost-covid-19-perspective)
-
-翻译报道:牛小妹
 
 0

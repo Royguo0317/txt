@@ -1,39 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【疫苗快讯】棒球本垒打之王注射疫苗后去世
-` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/815253/)
+## 班农战斗室WARROOM精选 678期 SG Cheah女士谈全球大重置不是阴谋论 比共产主义更糟是1984式的法西斯
+` 新闻译制组` [轉載自GNews](https://gnews.org/zh-hans/812918/)
 
-【编译】
-
-被称为美国棒球本垒打之王的汉克·亚伦（Hank Aaron），于1月5日在电视上接种了Moderna 新冠疫苗。 他说“我希望向美国黑人发出一个信息，那就是这个疫苗是安全的。” 他于1月22号去世，享年86岁。
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/01/image-301.png)
+#### *供稿：班农战斗室译制组*
 
 
-推特正在阻止这个事情成为热点。当然像汉克·亚伦这种棒球传奇的死亡成为热点是理所应当的。他的家人说他接种疫苗之前是健康和充满活力的，可最后情况迅速恶化。
+【班农先生】
+我们节目想做的还有，请一些推动进程的思想者，你们一般不容易找到他们。有一款电子杂志叫《Evie》 ，定位思想独立但感到被出版业遗忘的女性。这本杂志有位作家，我一直关注她的文章，非常精彩。今天要在直播中介绍她：SG Cheah，她是马来西亚华裔，她是位最优秀的思想者和作家。我想欢迎她来到节目中谈谈她的第一篇文章。
+很多年我都在谈Davos党 ，这不是阴谋论，全球经济和金融系统就是这么运作的。在全球化项目和世界许多国家的平民运动和民族运动之间，尤其是中国老百姓被中共和全球商业一伙人奴役。她在《Evie》杂志有篇文章 ，我们会让大家看到，标题是：大重置不是阴谋论 ，它就发生在我们眼前。(The Great Reset’ Isn‘t A Conspiracy Theory. It’s Happening Before Our Eyes.) 我认为她最言简意赅地解释了问题 ，从最基本谈起，非常简洁非常有力。我要欢迎 SG Cheah女士连线作战室，请谈谈大重置，给观众们谈谈这不是个阴谋论，这是进行时，正在发生着，人们可以理解。讲讲这是怎么一回事，我们观众怎样理解？
 
-【转载者评论】对于那些一直想要他家人谈论他的身体情况的链接， 大部分已经在推特中消失了。一位传奇人物去世了居然没有成为热点，所以让人怀疑推特是在删除信息。不过这个推是来自在汉克接种疫苗当天访问他的女记者, 让人不容置疑。
+【SG Cheah女士】
+好的谢谢叫我来连线，真的很荣幸。那么基本上如您所知，大重置、Davos精英、企业界、法西斯全球主义精英，他们不是什么新鲜事，了解共产国际的历史的话就知道。共产主义有个世界大会，他们开会、制定计划、策划如何推行共产主义，说实话Davos或许是一样的。Klaus Schwab貌似并非马克思主义者，但他有本书基本上是宣扬马克思主义，我很惊讶人们没能把他们关联起来。我认为问题在于人们不了解共产主义历史，没怎么读有关共产主义历史的内容，还有人们的遗忘，我这篇文章就是写的这些。
 
-Hank Aaron, who was baseball’s home run king for 33 years, got the Moderna shot on TV January 5. “I hope to send a message to Black Americans that the vaccine is safe.” He died today at age 86.
+【班农先生】
+那么我想问你，你提到Klaus Schwab，Klaus Schwab是世界经济论坛总负责。在滑雪胜地Davos举行，我们叫它Davos党，世界上所有精英、商界、对冲基金、高层人士、政府和媒体等等。Klaus Schwab表面推崇资本主义新形态，但如果看看中共的模式，真的是国家资本主义与当下专制独裁或极权独裁的结合。在美国已经看到了科技巨头、大企业集团、大媒体，对他们来说劳动阶层只是小齿轮。但为什么你说那就是共产主义？是中共的新模式吗？不是回到老马克思主义吗？【or it’s the it’s not the old throwback to Marxism? Is it?】
 
-Twitter is preventing this story from trending.  Of course the death of a legend like Hank Aaron would trend immediately. Family are saying he was healthy and vibrant until he got the shot and things started quickly deteriorating.
+【SG Cheah女士】
+我们得诚实面对，它其实比共产主义更糟，共产正义政府实在地告诉你一切归他们拥有，更糟因为它是法西斯主义，企业法西斯，企业法西斯幻象让你觉得你拥有私有财产，但其实是被政府控制的。所以说实在的，就说它是法西斯主义，它甚至不像意大利过去墨索里尼式法西斯，它是《1984》式的法西斯，他们跟踪定位你，你没有任何权利，永远生活在恐惧中。墨索里尼至少让意大利人觉得他在为他们服务，但那些精英、统治阶级并不是为了我们的福祉，他们只是推动自己的计划，他们的计划就是统治你。你不会拥有任何财富但还感觉幸福，他们不会告诉你“一切归我们所有”“你也归我们所有”。您也同意吧，这个“你会幸福”的说法。
 
-【Comments】For those who keep asking for the links to family talking about his health – most of them are gone from Twitter. Somehow a legend dies and it’s not trending, so I assume Twitter is deleting tweets. But here is the reporter who interviewed Hank the day he got the shot, January 5. She described him as “full of life” and “upbeat about life” in this thread.
+【班农先生】
+大重置是他们在新世界第一个拿出来卖的，他们说“你不会拥有任何东西但你会幸福”，“没有汽车房产一切靠租但你会幸福”，然后他们控制所有资产，运作金融系统，降到零利率、负利率，让他们的资产价值暴涨，让你不可能有资本积累。所以我一直在对30到35岁的年轻人说，你们只不过是沙俄的农奴。虽然吃的好些，有衣服穿，有更多信息，但你也只不过是个农奴。因为他们奴役了中国老百姓，被奴役的中国劳动力连同其他所有劳动阶层被奴役，产能过剩，压低价格，人们涨不了工资，这个体系就是这样，这不是阴谋论，这个体系就是这么运作的。
 
-另有一位在12月份检测出COVID-19阳性的加利福尼亚居民在接种疫苗后死亡。 据报道，这位居民在接种新冠疫苗数小时后于周四在加利福尼亚普莱瑟县丧生。
 
-尽管美国疾病控制中心CDC 建议不要在测试新冠得阳性的90天内接种疫苗，这位在12月感染了病毒的居民仍是接种了疫苗。 虽然现在尚不清楚患者是接受哪种新冠疫苗，卫生官员说人们不应太快地将死亡归咎于疫苗。
-
-A California resident who tested positive for COVID-19 in December died after receiving a vaccine. The individual reportedly perished in Placer County, California on Thursday, several hours after getting the coronavirus vaccine.
-
-They reportedly contracted the virus in December, and despite a CDC recommendation to not get vaccinated within 90 days of a positive test, received the vaccine.  While it is unclear which COVID-19 vaccine the patient received, health officials said people should not be too quick to blame the vaccine for the death.
-
-【来源】
-
-1. [https://www.reddit.com/r/conspiracy/comments/l2ulks/hank\_aaron\_got\_the\_moderna\_shot\_on\_tv\_january\_5\_i/](https://www.reddit.com/r/conspiracy/comments/l2ulks/hank_aaron_got_the_moderna_shot_on_tv_january_5_i/)
-2. https://twitter.com/KHollowayWSB/status/1352641971890872324?s=20
-3. [https://www.oann.com/calif-covid-19-vaccine-recipient-dies-hours-after-being-vaccinated/](https://www.oann.com/calif-covid-19-vaccine-recipient-dies-hours-after-being-vaccinated/)
-
+*发稿：喜马拉雅大使馆群 文月*
 
 0

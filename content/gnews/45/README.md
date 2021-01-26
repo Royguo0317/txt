@@ -1,42 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】「多猫腻」13亿美元的诉讼
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/813237/)
+## Twitter搜索关键词分析-Jan22
+` G-Talent技术社区` [轉載自GNews](https://gnews.org/zh-hans/813919/)
 
-**旧金山金喜准农场：**Wenwu
-
-据纽约邮报Ebony Bowden在美东时间1月25日12点24分报道，华盛顿众议院的共和党人员认为1月6日围睹美国国会与推特和脸书有关。在该报道中表明，这两家大科技公司曾经在大选期间给民主党输送过大量资金。
-
-[据福克斯新闻週一报道，立法者卡罗琳·马洛尼（D-NY）表示，这些科技巨头正在与民主党人发展一个日益紧密的联盟，以「压制某些观点」。而在暴乱发生后，Facebook、Instagram和Twitter还暂时禁止美国川普总统进入他们的平台，抢走了即将离任的美国川普总统的账号。这和我们爆料革命的战友在推特和脸书上的经历如此相似，值得注意的是这些大科技公司不想证明我们观点的真实性，直接封杀或者给需要压制的观点加标签。](https://www.foxnews.com/politics/house-oversight-fbi-probe-parler-capitol-riot-facebook-twitter)
-
-另外一方面，当下拜登已经是美国的现任总统。据OANN在美东时间1月25日3点43分报道，今日「多猫腻」投票系统向华盛顿联邦法庭对鲁迪·朱利安尼提起了诉讼。其指控朱利安尼散布虚假的选民欺诈指控。朱利安尼在不久后的一份声明中表示，诉讼的代价是「吓唬胆小的人」。朱利安尼作為美国前总统川普的私人律师，对他来说这起诉讼是相当对口。
-
-在该报道中称，朱利安尼对「多猫腻」提起反诉，指控其侵犯宪法规定的言论自由权和律师有力捍卫客户的能力。并反驳称，如果证明摇摆州选票有错，许多人将会坐牢。以下是朱利安尼先生的一则推特：
+*分析师：天使｜数据ETL：1324大数据分析作战室｜编辑/审核：G-Talent*
 
 
 
-> DISCOVERY: A 68% ERROR rate found in votes PROVES intentional fraud! 
-> 
-> PA, AZ, GA, MI, and WI should agree to let us audit the Dominion machines. If they didn’t cheat, what are they afraid of? We MUST have an audit!
-> 
-> Rudy Giuliani’s analysis HERE: [https://t.co/Ri9Q1GJMzF](https://t.co/Ri9Q1GJMzF) [pic.twitter.com/FpTtVfS7bg](https://t.co/FpTtVfS7bg)
-> — Rudy W. Giuliani (@RudyGiuliani) [December 21, 2020](https://twitter.com/RudyGiuliani/status/1341050325751492608?ref_src=twsrc%5Etfw)
+* * *
 
 
-朱利安尼去年12月21日的推特，声明68%的计票有误
-据NEW YORK (77WABC)1月25日Lidia Curanaj的报道，“多猫腻”的律师在周一上午在华盛顿特区地区法院提起的诉讼中写道：“对自治领业务和声誉的伤害是前所未有的，也是无法弥补的，因为数百万人非常热切地相信它。”
-![]()![](https://gnews.org/wp-content/uploads/2021/01/2020-12-09-1-scaled.jpg)Former Mayor of New York City Rudy Giuliani addresses delegates on the opening day of the Republican National Convention at the Quicken Loans Arena in Cleveland, OH, on July 18, 2016. (Photo by Anthony Behar) \*\*\* Please Use Credit from Credit Field \*\*\*
-WABC电台的主持人也发表了以下声明：
-「‘多猫腻’13亿美元的诽谤诉讼将允许我全面彻底调查他们的历史、财务和做法。显然，要的金额是為了吓唬胆小的人。这是充满仇恨的左翼的另一项恐吓行為，消灭和审查言论自由的行使，以及律师有力地為委託人辩护的能力。因此，我们将调查对侵犯这些宪法权利的反诉。」——鲁迪·朱利安尼
+![]()![](https://gnews.org/wp-content/uploads/2021/01/White-BG-16.png)
+1、上图是Twitter全球时报新闻最常用搜索关键词，字体越大说明越常用（搜索频率高），**China** 、**Wuhan**、字体最大，图中还可以看到Outbreak、Lockdown、BeiJing、Chinese，Cases、People、Virus 、One year、Reported。
 
-在这起事件中，社交平台也起到了相当大的作用。当人们在推特上发推文、转发并愤怒地抨击「多猫腻」窃取了他们的选票时，即在事情未被证实的情况下，传播受到了媒体的打压。这显然是在打压言论自由，是我们有权发声的。
+2、今天晚间路德社报道美国参议院科顿先生明确CCP病毒来自武汉病毒研究所，给之前英雄科学家闫丽梦博士的CCP病毒报告再一次证明，而我们从下图也可以看出中共国很多城市现在爆发疫情，城市被封锁，百姓身处危险中。郭先生今天发的盖特上可以看到河北省藁城区两万多人40多栋全是疑似病例。上海也因疫情导致2所医院实施“封院”措施，各大医院立即展开“全院全员”核酸检测工作。北京西城区1月22日也爆发疫情，并于23日组织区域内全员核酸检测。更有甚者黑龙江市爱辉区CCP病毒疫情工作领导小组指挥部将一家住户大门上贴了数十张封条，禁止住户出门。这种种事件再一次让世人看到之前中共一直在隐瞒疫情，并残酷的对待自己的百姓，中共的种族灭绝和反人类罪早已昭然若揭，加上现任总统拜登也奉行和定义中共是种族灭绝和反人类罪。接下来我们就等着看全世界对中共CCP的雷霆行动吧！
 
-这事情正如病毒真相在媒体传播被大科技公司打压一样，一定会追究。
 
-新闻来源：
-[https://wabcradio.com/2021/01/25/new-rudy-giuliani-responds-to-1-3b-dominion-lawsuit/](https://wabcradio.com/2021/01/25/new-rudy-giuliani-responds-to-1-3b-dominion-lawsuit/)
-[https://www.oann.com/giuliani-dominion-suit-is-act-of-intimidation-by-hate-filled-left/](https://www.oann.com/giuliani-dominion-suit-is-act-of-intimidation-by-hate-filled-left/)
-[https://nypost.com/2021/01/25/house-gop-want-to-add-facebook-twitter-to-parler-probe-of-dc-siege/](https://nypost.com/2021/01/25/house-gop-want-to-add-facebook-twitter-to-parler-probe-of-dc-siege/)
 
-+5
+* * *
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Dark-BG-6.png)
+1、上图是1月22日Twitter新闻常用搜索关键词，字体越大说明越常用（搜索频率高），Hong Kong、Police、U.S、 China、 Lockdown、Coronavirus、WuHan
+
+2、近日香港累计确诊宗数突破1万宗，香港政府随即宣布，将九龙油麻地、佐敦部分社区划为“指定区域”首次实施“禁足令”，强制指定区域约1万居民在48小时完成CCP病毒检测，目标是达到“小区清零”。社会各界要求香港政府全面封关已防止输入性病例在港蔓延，但香港政府一直拒绝对大陆全面封关。有专家分析，此次CCP病毒株和之前不同，其传染性更强。
+
+3、随着CCP病毒在全世界继续蔓延，郭先生直播中多次提到，CCP病毒的高变异性、高传染性，一直呼吁大家准备羟氯喹，少出门保命最重要，郭先生也一直牵挂着国内同胞、香港同胞、台湾同胞和全世界78亿人的生命，郭先生看到全球每分每秒都因CCP病毒而丧生的人痛心疾首，每次都苦口婆心的劝诫大家一定要保护好自己和家人的生命，在安全的情况下传递真相，希望战友们能够明白郭先生的良苦用心。
+
+
+
+**建议**：用您的大爱去尽可能的帮助身边的人，因为您是清醒者、您是吹哨人，我们都责无旁贷。加油⛽️战友们！为了加速中共CCP的灭亡，请战友们继续传递真相。
+
+
+
+#### [G-Talent BigData&AI \[1324大数据分析作战室\]](https://discord.gg/ZR9ZgCSCHq)
+
+#### [WBM爆料革命网址导航](https://gtalent.club)
+
+
+
++1

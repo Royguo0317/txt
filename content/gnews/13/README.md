@@ -1,156 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/01/25 &#8211; 01/26 美国政要每日推特重要信息汇总
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/815021/)
+## 【香港要闻】香港制造能回归原来的待遇吗？
+` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/815141/)
 
-编辑：Cathy
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/julius-drost-nsrSyI-JUYg-unsplash-1.jpg)
-**经授权转载自：**
+搜集：文燕
 
-- 川普等政要…直译推twitter：[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
-- 川普等政要…直译推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
-- 川普等政要…直译推GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
+撰文：岁月如歌
 
+审稿：卡西欧
 
-## 简评：
+上传：文粤
+![]()![](https://gnews.org/wp-content/uploads/2021/01/jpg-Untitled-1_AcBNK_1200x0-2.jpg)图片：『立场新闻』
+**2021.1.25****香港立场新闻：美国去年 8 ****月宣布，香港进口美国商品须由「香港制造」转标记为「中国制造」，引起香港政府不满。路透社报道，总部设于日内瓦的世界贸易组织周一 (25 ****日) ****就争议召开首次闭门会议，美国则在会上阻止并反对世贸处理该争议。**
 
-1月25-26日，朱利安尼和霍利重提新闻自由，汤姆•科顿谴责中共恐吓拜登政府，玛莎•布莱克本强调让与中共国解放军有联系的公司重新上市是对美国国家安全的威胁。可以看出美国选民已经对选举没有信心，才有众议员吉姆•班克斯说的需要《拯救民主法案》。
+路透社日引述美方会议演讲稿副本指，美国代表在世贸争端解决委员会 (DSB) 讲话期间，就香港要求成立专家组解决争端一事提出反对。不过美方只能阻止一次，香港属于世贸 164 个成员之一，可在下个月世贸会议上再次提出请求处理问题。
 
-## 参议员玛莎·布莱克本：
+美国去年 8 月宣布把香港商品标记为「中国制造」，港府则在同年 11 月 3 日就此要求世贸争端解决委员会，审理该产地来源标记新规定违反世贸规则的争端。港府亦曾批评美国有关新规定，试图削弱香港单独关税区地位，违反世贸规则，要求立即撤回。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/54138958_303-1.jpg)
+**战友点评：**
 
-让与中共国解放军有联系的公司重新上市是对美国国家安全的威胁。
-【转bbc报道：[中共国的(三大)电信巨头要求在华尔街重新上市](https://www.bbc.com/news/business-55744400)】
+长期以来香港出口商品都享受着优惠待遇，不同于“中国制造”，香港自由开放的经济体制吸引着各国商人来投资，使香港成为中国的东方明珠，亚洲四小龙之一。这都离不开美国的最优惠或待遇，香港是在《中英联合声明》基础上回归，并实行一国两制，在这基础上美国给予香港特殊经济贸易待遇。
 
+2020.6.30.中共在香港强硬实施备受争议的《港区国安法》，香港就正式进入中共管辖方式，一国两制彻底结束，中共依然挂着“一国两制”这个羊头，卖独裁，一党专制狗肉，妄图欺骗世界。但是世界各国都不是傻子也不是瞎子，尽管中共一再狡辩，和港共政府力争，大家都看得很明白。 《港区国安法》实施后不久，美国川区政府认为：‘’北京所制定的国家安全法破坏了香港自1984年中英两国就移交香港所达成的条件，也就是让香港保持自由。 1997年香港主权回归北京，中国政府保证高度自治至2047年。从现在起，香港将受到 「与中国大陆相同的待遇」，美国总统川普在下达取消香港所珍视的特殊经济地位的命令时这么说。 ‘’
 
+从时间上看，是中共破坏《中英联合声明》在先，美取消香港特殊待遇在后。半年过去了，香港事实上已经不再一国两制，所表现出来的种种迹象都是独裁政策，人们不但没有了言论自由，表达自己权利的自由，连说话都会获罪。公务员必须表忠，政府所有工作都必须中央把脉。此时的香港比中国大陆的省份还要严，还要赤化。
 
-> Relisting companies that have ties to the People’s Liberation Army is a threat to U.S. national security.[https://t.co/0po8nzWNv7](https://t.co/0po8nzWNv7)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [January 25, 2021](https://twitter.com/MarshaBlackburn/status/1353784293089288198?ref_src=twsrc%5Etfw)
+香港被取消特殊待遇后就和中国大陆的任何一个城市是一样的了。所有贸易关系也都和大陆没区别，美方在去年8月要求香港美国去年 8 月宣布，要求香港出口商品标签不再使用“香港制造”，换而代之“中国制造”。这宣布让香港政府很不爽，于是一纸诉状把美国告到世界世贸组织总部，要求评评理，香港是世贸成员164国之一，凭啥要香港贴上“中国制造”标签。美方当然是反对的拒绝的。扯皮了几个月依然无果，香港寄希望于拜登政府。
 
+世人不禁纳闷，香港政府一面为自己是中国的一部分而自豪，并强调香港是中国密不可分的一部分，美国要求贴上中国制造不正是证实香港是中国的一部分吗？它反而不高兴了，要坚决反对，这可是前后矛盾啊！看来香港政府表里不一呀。
 
+本文仅代表作者个人观点
 
-## 众议员吉姆·班克斯：
+参考链接：[立场新闻](https://www.thestandnews.com/international/%E7%BE%8E%E7%A6%81%E6%B8%AF%E8%B2%A8%E5%88%97-%E9%A6%99%E6%B8%AF%E8%A3%BD%E9%80%A0-%E9%A6%99%E6%B8%AF%E4%BF%83%E4%B8%96%E8%B2%BF%E8%A8%AD%E5%B0%88%E5%AE%B6%E7%B5%84%E8%99%95%E7%90%86%E7%88%AD%E8%AD%B0-%E9%81%AD%E7%BE%8E%E5%9C%8B%E9%98%BB%E6%AD%A2/)、[德国之声](https://www.dw.com/zh/%E7%BE%8E%E5%9B%BD%E5%8F%96%E6%B6%88%E7%89%B9%E6%AE%8A%E5%9C%B0%E4%BD%8D%E5%90%8E-%E9%A6%99%E6%B8%AF%E7%BB%8F%E6%B5%8E%E7%9A%84%E6%9C%AA%E6%9D%A5/a-54208866)
 
-**1．共和党研究委员会@RepublicanStudy的《拯救民主法案》：**
-
-要求公民身份验证
-禁止未主动申请的缺席选票
-禁止在计票过程中暂停
-此法案将会恢复对选举的信心，因为它让选民有理由来信任他们。
-[华盛顿观察家报@dcexaminer](https://www.washingtonexaminer.com/opinion/op-eds/democrats-are-shirking-congresss-duty-to-preserve-democracy)
-
-
-
-> .[@RepublicanStudy](https://twitter.com/RepublicanStudy?ref_src=twsrc%5Etfw)’s Save Democracy Act:
->  
-> ✔️Requires citizenship verification
-> ✔️Bans unsolicited absentee ballots 
-> ✔️Bans pauses in ballot counting 
->  
-> It will restore faith in elections because it gives voters reason to trust them. 
->  [@dcexaminer](https://twitter.com/dcexaminer?ref_src=twsrc%5Etfw) [https://t.co/snQ5XPjIJC](https://t.co/snQ5XPjIJC)
-> — Jim Banks (@RepJimBanks) [January 25, 2021](https://twitter.com/RepJimBanks/status/1353767274021347330?ref_src=twsrc%5Etfw)
-
-
-
-**2．社会主义毁了工作和美国人的生活！很讽刺啊:**
-【转Susan Crabtree Hennebury 推文：[伯尼•桑德斯的手套制造商责备高税收毁了她的小本生意](https://twitter.com/susancrabtree/status/1353404777061707776?s=20)】
-
-
-
-> Socialism kills jobs and the livelihood of working Americans! Lot of irony here👇 [https://t.co/MJFHvsGTZR](https://t.co/MJFHvsGTZR)
-> — Jim Banks (@RepJimBanks) [January 24, 2021](https://twitter.com/RepJimBanks/status/1353435227738185733?ref_src=twsrc%5Etfw)
-
-
-
-## 参议员汤姆·科顿：
-
-**1．中共国的游说者大肆鼓吹要回到过去，而那时美国的技术助长了进行 #灭绝种族 的 #中共 #CCP 的经济和军事发展。 美国总统@POTUS决不能再返回到过去的这些失败政策。**
-【转路透社：[科技产业集团敦促拜登政府对中国的出口管制进行复查](https://www.reuters.com/article/usa-china-chip-industry-idUSL1N2K003D)】
-
-
-
-> The China Lobby is furiously advocating for a return to the old days, where U.S. technology fueled the genocidal CCP’s economic and military development. [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) must not return to these failed policies of the past.[https://t.co/1GaZf5IDiI](https://t.co/1GaZf5IDiI)
-> — Tom Cotton (@SenTomCotton) [January 25, 2021](https://twitter.com/SenTomCotton/status/1353779190953345024?ref_src=twsrc%5Etfw)
-
-
-
-**2．#中共国 对前川普官员的制裁是对拜登政府的警告-中国要拜登官员知道，如果他们越过中共（红线）,也会成为目标。**
-拜登总统需要强有力地谴责这些制裁，并实行对等制裁。
-【附汤姆•科顿在接受福克斯电视台玛丽亚的采访讲话：(对美前官员）的报复是中共国施加影响危险而且阴险的升级】
-
-
-
-> China's sanctions against former Trump officials are a warning to the Biden administration–China wants Biden officials to know that if they cross the CCP, they too will be targeted.
-> 
-> President Biden needs to denounce these sanctions forcefully and impose reciprocal sanctions. [pic.twitter.com/9iTs38AxXR](https://t.co/9iTs38AxXR)
-> — Tom Cotton (@SenTomCotton) [January 24, 2021](https://twitter.com/SenTomCotton/status/1353389410721492995?ref_src=twsrc%5Etfw)
-
-
-
-## 众议员莫·布鲁克斯：
-
-**1．#中国共产党 (#CCP) 向亨特·拜登支付了数百万美元。**
-#JoeBiden 拜登毙掉了拱心石輸油管道项目(Keystone XL)和美国的就业岗位； 向 #中共 输送更便宜的石油。
-满洲里的候选人埃里克·斯沃威尔 #EricSwalwell（中共间谍=其情妇)是川普的弹劾经理人。
-还有连接这些点的其他人吗？
-
-
-
-> Communist Chinese Party (CCP) pays Hunter Biden millions.[#JoeBiden](https://twitter.com/hashtag/JoeBiden?src=hash&amp;ref_src=twsrc%5Etfw) kills Keystone XL pipeline & American jobs; sends cheaper oil to CCP.
-> 
-> Manchurian Candidate [#EricSwalwell](https://twitter.com/hashtag/EricSwalwell?src=hash&amp;ref_src=twsrc%5Etfw) (CCP spy = mistress) is Trump impeachment manager.
-> 
-> Anyone else connecting dots?[https://t.co/wbfyG0UO5s](https://t.co/wbfyG0UO5s)
-> — Mo Brooks (@RepMoBrooks) [January 25, 2021](https://twitter.com/RepMoBrooks/status/1353764731014803456?ref_src=twsrc%5Etfw)
-
-
-
-**2．参议员汤姆•科顿”中共恐吓拜登政府。”**
-中共支付了亨特•拜登大笔钱。拜登取消了Keystone XL管道，损失了1000多个美国工作，剥夺了美国获得安全的加拿大石油的权利，而现在石油很可能进入中共国。
-这就开始了。
-【附汤姆•科顿参议员的官网：[科顿警告中共国对美国的报复和影响](https://www.cotton.senate.gov/news/videos/watch/january-22-2021-cotton-warns-of-chinese-sanctions-influence)】
-
-
-
-> .[@TomCottonAR](https://twitter.com/TomCottonAR?ref_src=twsrc%5Etfw): “Chinese Communist Party intimidates Biden Admin.”. 
-> 
-> CCP paid Hunter Biden BIG $$. Biden cancels Keystone XL Pipeline, costing 1000s AMERICAN jobs, depriving USA of secure Canada oil, oil likely now to go Communist China.
-> 
-> So it begins.[https://t.co/2ZM9DTMWdE](https://t.co/2ZM9DTMWdE)
-> — Mo Brooks (@RepMoBrooks) [January 24, 2021](https://twitter.com/RepMoBrooks/status/1353394843192586241?ref_src=twsrc%5Etfw)
-
-
-
-## 川普律师朱利安尼：
-
-不仅仅有言论审查  #censorship 保护着拜登，还有讨好这位总统的报道，而他看起来刚签完文件一副迷惑和疲惫的样子。总有一天我们会再次拥有新闻自由
-
-
-
-> Not only is there a [#censorship](https://twitter.com/hashtag/censorship?src=hash&amp;ref_src=twsrc%5Etfw) protecting Biden but a fawning coverage of a President who seems to be getting confused and exhausted just signing papers.
-> 
-> Someday we may once again have a Free Press.
-> — Rudy W. Giuliani (@RudyGiuliani) [January 25, 2021](https://twitter.com/RudyGiuliani/status/1353579217083109376?ref_src=twsrc%5Etfw)
-
-
-
-## 参议员乔什·霍利：
-
-是时候站出来反对钳制美国的言论了。【[转推纽约邮报同名文章](https://nypost.com/2021/01/24/its-time-to-stand-up-against-the-muzzling-of-america/?utm_source=twitter_sitebuttons&amp;utm_medium=site%20buttons&amp;utm_campaign=site%20buttons)】
-
-
-
-> It's time to stand up against the muzzling of America [https://t.co/rrTrtfrYZn](https://t.co/rrTrtfrYZn) via [@nypost](https://twitter.com/nypost?ref_src=twsrc%5Etfw)
-> — Josh Hawley (@HawleyMO) [January 25, 2021](https://twitter.com/HawleyMO/status/1353531833884020738?ref_src=twsrc%5Etfw)
-
-
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
