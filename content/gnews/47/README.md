@@ -1,9 +1,9 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】1/25/2021文贵：蔡英文可能是台湾最后一届民选总统
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/813290/)
+## 1/21/2021 路德先生解读美国务院定义中共种族灭绝和反人类罪的意义
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/813221/)
 
-制作： 【彩虹桥】
+By: 【秘密翻譯組G-Translators】
 
-+2
+0

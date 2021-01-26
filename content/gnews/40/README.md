@@ -1,34 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 台湾Taiwan主题相关谷歌趋势分析
-` G-Talent技术社区` [轉載自GNews](https://gnews.org/zh-hans/813378/)
+## 印度中国交界的第九轮军事谈判会有结果吗？
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/813313/)
 
-*分析师：曾经傻白甜｜数据ETL：1324大数据分析作战室｜编辑/审核：G-Talent*
+翻译撰文：双城记
+审稿：光耀华夏 编辑: MG1
+![]()![](https://gnews.org/wp-content/uploads/2021/01/261-2-2.jpg)NDTV 截图
+Oneindia 新德里新闻：据PTI援引消息人士的话报导，1月24日的印中军事谈判于上午10点左右在拉达克东部实际控制线（LAC）中方一侧的莫尔多边境点开始。印度与中共解放军指挥官举行第九轮军事谈判。以缓和拉达克东部实际控制线沿线的紧张局势，并找到结束僵局的解决方案。在上一轮会谈中，印度军队强烈要求中国早日从拉达克东部的所有摩擦点撤出军队。
 
+NDTV报导1月23日：印度空军总元帅RKS Bhadauria週六在与北京的边境对峙中宣称，如果中国试图在实际控制线（LAC）沿线採取侵略性行动，印度也“可能具有侵略性”。“如果他们（中共）能变得咄咄逼人，我们也会变得咄咄逼人。”
 
+近9个月的军事对峙使拉加地区的紧张局势加剧。由于双方多轮谈判未能解决僵局，目前约有5万名印度陆军士兵部署在拉达克东部山区处于战备状态。
 
-* * *
+Oneindia 报导自去年5月以来，印度和中国一直处于边界僵持中。更在加尔万山谷衝突造成20名印度阿兵哥殉难，同样数量的中国阿兵哥死亡或失踪，紧张局势进一步升级。印度一直认为，中国有责任在山区的摩擦点上推进脱离接触和冲突降级的进程。印度陆军参谋长纳拉瓦内（M M Naravane）将军上周向中国发出了明确的资讯，他说，印度致力于通过谈判解决东部拉达克的僵局，但任何人都不应在考验其耐心方面犯任何错误。早期巴达乌里亚曾表示，与印度的任何严重衝突都不符合中国的全球愿望和“宏伟计画”，去年开始拉达克东部的山区对峙的导火索可能是多种原因造成的，其中包括“军事主导的灾难”，这灾难应著中共国新冠状病毒大流行升温。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/262-2-1.jpg)NDTV截图
+在谈判的同时，引人注目的消息是关于中共国在阿鲁纳恰尔邦建立新村的报导。NDTV新闻频道在一份报告中展示了阿鲁纳恰尔邦的两幅图片，称中国已经建立了一个新村庄，由大约101所房屋组成。根据该频道，2019 年 8 月 26 日的第一张图片没有显示任何人类居住，但 2020 年 11 月的第二张图片显示了一排结构。印度周一对这份报告做出谨慎回应，表示将密切关注影响印度国土安全的所有事态发展，并采取必要措施维护其主权和领土完整。新德里外交部声明说：「政府时刻关注影响印度安全的所有事态发展，并采取一切必要措施维护印度的主权和领土完整。印中边界争端涉及3，488公里长的实际控制线（LAC）。在这争议的边界区，中方建的新村让第九轮的谈判变得更有争议和火花。
 
+新闻来源：
 
-![01.25.2021 台湾相关谷歌趋势图]()![01.25.2021 台湾相关谷歌趋势图](https://gnews.org/wp-content/uploads/2021/01/1324大数据-01252021.jpg)
-1、图中为美国地区谷歌趋势，其中色曲线为 **Biden Taiwan China**，蓝色曲线为**Chinese Air Force**。从一周的谷歌趋势可见，23日以后有关的搜索迅速上升，今日（Jan25） **Biden Taiwan China**达到100点。台海局势紧张程度继续升温。
-
-2、台湾国防部宣布**1月23日**有13架中共解放军军机进入台湾西南防空识别区，包括8架H-6K轰炸机、4架歼-16和1架运-8反潜机。次日**1月24日**又有15架军机进入。据路透社报导，中共解放军在台海常规的任务通常只有一两架侦察机或反潜机，而这周末有将近30架多机种的军机甚至包括8架H-6K是不寻常的。
-
-3、1月23日，拜登就职后两天，罗斯福号航母打击群（**TRCSG**）进入南中国海“执行例行任务”。路透社指出H-6K协带中距离反舰导弹具有攻击航母打击群的能力，和航母打击群同时出现是特别有意思的。
-
-4、美国国务院发言人**Ned Price**在一份声明中提到“将继续协助台湾保持足够的自卫能力“。
-
-继续关注下一步的台海事态发展。
-Hashtags: #H-6Kbombers #TRCSG #USSTheodoreRoosevelt #SouthChinaSea #Taiwan #ChineseAirForce #PLAAircraft
-
-
-
-#### [G-Talent BigData&AI \[1324大数据分析作战室\]](https://discord.gg/ZR9ZgCSCHq)
-
-#### [WBM爆料革命网址导航](https://gtalent.club)
+1. https://www.ndtv.com/india-news/we-are-indians-protests-break-out-over-new-china-village-in-arunachal-territory-2355965
+2. https://www.ndtv.com/india-news/india-china-to-resume-military-talks-today-after-two-months-2357226
+3. https://www.oneindia.com/india/if-china-gets-aggressive-so-will-india-iaf-chief-amid-border-standoff-3206645.html
 
 
+澳喜文章：
+https://gnews.org/zh-hans/author/aujenny/
 
+欢迎加入澳喜农场：https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_5335-4.jpg)
 0
