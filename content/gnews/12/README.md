@@ -1,37 +1,74 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国语【香港快讯】 1.26 港警可随意提取银行客户资讯 港府坚称封区有效 将进一步「突袭封区」
-` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/816196/)
+## 就中共对新疆少数民族的种族灭绝罪致世界人民的公开信
+` Mild Seven` [轉載自GNews](https://gnews.org/zh-hans/816563/)
 
-制作团队：【喜马拉雅粤语组】阿恩
+尊敬的的女士们, 先生们，
 
-审核：【喜马拉雅粤语组】卡西欧、penny
+[2021年1月19日，美国政府认定中共对维吾尔族穆斯林少数民族的行为是种族灭绝。](https://2017-2021.state.gov/determination-of-the-secretary-of-state-on-atrocities-in-xinjiang/index.html)中共多年来对新疆少数民族进行着系统性的种族灭绝活动。
 
-上传：文粤
+美国拜登总统内阁，新任国务卿安东尼-布林肯针对这一对中共的谴责发表了如下[评论](https://www.foxnews.com/politics/biden-trump-china-genocide-uyghurs)：”这也是我的判断。强迫男人、女人和儿童进入集中营，并试图将他们真正转化为中共的追随者–所有这些都说明（中共）是在努力进行种族灭绝。”
+![]()![](https://gnews.org/wp-content/uploads/2021/01/uiguren-uden-4.jpg)
+我们绝不能允许灭绝种族这样可怕的历史重演。所以，我真诚地请您传播真相，把这个消息转告给您身边的人。
 
+此致敬礼
 
+Mild Seven
 
-主要内容
+德意志联邦共和国公民
 
-「港版国安法」引来国际关注，部份涉事官员已被制裁。行政会议成员个人利益登记册的资料显示，律政司司长郑若骅在本月11日删去国际律师协会成员，等同退会。会员须每年付费续会，可透过信用卡、银行汇款或支票付款，正受美国制裁的郑若骅，或因银行服务受影响，而无法以协会指定的方法付款，未知她是否因此退会。该协会自「港版国安法」出台后，多次为香港人权发声。特首林郑月娥也在个人利益申报中，删走香港大学建筑学院建筑文物保护课程学名誉教授一项，意味退回教授名衔。
+2021年1月26日
 
-政府动用大量人力物力封锁佐敦近48小时，施行强制检测，约7,000居民接受检测，只发现13宗确诊个案，比率为0.17%，要比有病征人士到诊所检测的0.4%至0.8%还要低。但林郑坚称封区「有成效」，她拒绝公布下次行动时间，并表示，未来还将采取「突袭封区」，以提高保密程度。
+—
 
-本港今日新增64宗确诊，港府宣布除扩大佐敦指定检测区域，亦在油麻地旺角和红磡，再划出2个指定检测区域，深水埗的指定检测区域则继续；4个区域的大厦一有确诊，就要全栋强制检测。
+公开信的英文翻译：
 
-本港去年起先后有大批民主派人士被捕。至少 6 名月初因民主派初选被捕的人士表示，在未得到他们同意下，警方已取得了他们的银行纪录，包括汇丰、恒生、花旗、渣打银行等。被捕人士邹家成刘和頴匡证实确有此事。
+English translation of my open letter:
 
-有银行业的高层向《路透社》称，警方过去大约半年，就要求银行提供财务纪录，受影响的人士大约双位元数，且数目的增加与民主派人士有关。该人士指，香港的银行别无选择，只能听从警方要求。
+**🇺🇸 An open letter to people worldwide regarding the genocide by the Chinese Communist Party against national minorities in Xinjiang**
 
-于德国汉堡留学的邝颂晴去年与曾在港就读德国学生 David Missal 发起联署，要求德国政府因应香港国安法立法制裁中国，形容香港正成为「准员警国家」，面临大规模监控。德国议会周一举行听证会讨论 《港区国安法》议题，德国外交部亚太司长席格孟特会上透露，欧盟正考虑制裁。
+January 26, 2021
 
-席格孟特在会上回应指，现时港人基本上无须签证入境德国，同时放宽港人居留规定，为港人学者提供奖学金，欢迎他们来德工作及居留。席格孟特指，由于香港警队镇压和平示威，政府已中止与港引渡协议，以及停止对港出口可用于镇压的物资。会上其他议员也对香港问题表达关注，亦有议员表明反对中欧《全面投资协定》。
+Dear Ladies and Gentlemen,
 
-市民去年11月11日发起三罢及「黎明行动」，有交通警在西湾河驱散市民期间连开三枪，近距离击中21岁学生周柏均，子弹伤及肝脏和肾脏，卡在背脊致骨折，须切除右肾及部份肝脏，至今仍未康复。周柏均在facebook上提及，一年来饱受严重痛症的困扰，他祈求新一年身体健康，亦呼吁市民在他下次出庭时，支持他和其他庭上「手足」。
+[On January 19, 2021, the US government accused the Chinese Communist Party (CCP) of genocide for its actions against the Uyghur Muslim minority.](https://2017-2021.state.gov/determination-of-the-secretary-of-state-on-atrocities-in-xinjiang/index.html) The CCP has been engaged in a systematic ethnic cleansing of national minorities in Xinjiang for years.
 
-去年底逆巿开业的元朗黄店「亚莱泰菜」，昨天在Facebook发文宣布，邀请一位本月出狱的反送中运动手足，出任「一日店员」，并将今日营业额扣除成本后，全数出粮给该名手足。今天开店前半小时，已有十几名巿民排队，中午更有近百人排队等候。今日担任一日店员的李先生，早于89年六四事件后已参与香港民主运动，因前年反送中运动被判监9个月，56岁的李先生表示，不想以后的香港人失去自由。
+Antony Blinken, the new US Secretary of State in US President Joe Biden’s cabinet made the [following comments](https://www.foxnews.com/politics/biden-trump-china-genocide-uyghurs) on the CCP’s condemnation:
 
-资料来源： 立场新闻 苹果日报 网路图片
+“That would be my judgment as well. Forcing men, women and children into concentration camps, trying to in effect re-educate them to be adherents to the Chinese Communist Party – all of that speaks to an effort to commit genocide.”
+
+Terrible history like genocide must never be repeated. Therefore, I sincerely ask you to pass on this message to your fellow citizens. You are helping by spreading the truth.
+
+Yours sincerely
+
+Mild Seven
+
+Citizen of the Federal Republic of Germany
+
+—
+
+公开信的德语翻译：
+
+German translation of my open letter:
+
+**🇩🇪 Ein offener Brief an die Bürger\*Innen im deutschsprachigen Raum bezüglich des Völkermords durch die Kommunistische Partei Chinas an nationalen Minderheiten in Xinjiang**
+
+26.01.2021
+
+Sehr geehrte Damen und Herren der deutschensprachigen Bürger\*Innen,
+
+die [US-Regierung hat am 19. Januar 2021](https://gnews.org/777259/) die Kommunistische Partei Chinas (KPCh) wegen des Vorgehens gegen die muslimische Minderheit der Uiguren des Genozids beschuldigt. Die KPCh betreibt seit Jahren eine systematische ethnische Säuberung der nationalen Minderheiten in Xinjiang.
+
+Antony Blinken, der neue US-Außenminister im Kabinett des US-Präsidenten Joe Biden [äußerte sich](https://gnews.org/809299/) zur Verurteilung der KPCh wie folgt:
+„Das wäre auch mein Urteil. Männer, Frauen und Kinder in Konzentrationslager zwingen und versuchen, sie tatsächlich zu Anhängern der Kommunistischen Partei Chinas umzubilden – all dies spricht für die Bemühungen, einen Völkermord zu begehen.“
+
+Schreckliche Geschichte wie Völkermord darf sich nie wieder wiederholen. Daher bitte ich Sie aufrichtig, diese Botschaft an Ihre Mitbürger\*Innen weiterzugeben. Sie helfen mit, indem Sie die Wahrheit verbreiten.
+
+Mit freundlichen Grüßen
+
+Mild Seven
+
+Bürger der Bundesrepublik Deutschland
 
 0

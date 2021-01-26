@@ -1,123 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫报告：川普政府的政绩——截至2021年1月（十七）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/815901/)
+## 1/26/2021 财经快讯：拜登政府签署购买美国商品行政命令; 中共病毒对世界经济冲击仍在继续
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/816244/)
 
-五月花写作组 ｜ 翻译：zz17 ｜ 校对：虹陵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告17.jpg)
-## **Part 17 – Combatting the Opioid Crisis **
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/Picture999-7.jpg)
+图片来源： [https://www.dw.com/](https://www.dw.com/)
 
-## **第十七部分：抗击阿片类药物危机**
-
-* * *
-
-### **Brought unprecedented attention and support to combat the opioid crisis. **
-
-### 前所未有的关注和支持抗击阿片类药物危机。
-
-- Declared the opioid crisis a nationwide public health emergency.
-- 宣布阿片类药物危机为全国公共卫生紧急事件。
-- Secured a record $6 billion in new funding to combat the opioid epidemic.
-- 创纪录拨款60亿美元新资金，用于抗击阿片类药物泛滥。
-- Signed the SUPPORT for Patients and Communities Act, the largest-ever legislative effort to address a drug crisis in our Nation’s history.
-- 签署了《对病患和社区支持法案》，该法案是我国在立法层面上，有史以来对解决药物危机做出的最大努力。
-- Launched the Initiative to Stop Opioid Abuse and Reduce Drug Supply and Demand in order to confront the many causes fueling the drug crisis.
-- 发起了《制止阿片类药物滥用和减少毒品供求的倡议》，以应对引发毒品危机的诸多因素。
-- The Department of Health and Human Services (HHS) awarded a record $9 billion in grants to expand access to prevention, treatment, and recovery services to States and local communities.
-- 卫生和公共服务部门(HHS)提供了创纪录的90亿美元款项，用于加强各州和当地社区的预防、治疗和服务恢复。
-- Passed the CRIB Act, allowing Medicaid to help mothers and their babies who are born physically dependent on opioids by covering their care in residential pediatric recovery facilities.
-- 通过了《CRIB法》。为了帮助母亲和她们一出生身体就依赖阿片类药物的婴儿，允许医疗保险支付他们在儿科康复机构住院期间的护理费用。
-- Distributed $1 billion in grants for addiction prevention and treatment.
-- 分发了10亿美元用于预防和治疗药物成瘾。
-- Announced a Safer Prescriber Plan that seeks to decrease the amount of opioids prescriptions filled in America by one third within three years.
-- 宣布了一项“更安全的处方计划”，旨在三年内将美国的阿片类药物处方数量减少三分之一。
-- Reduced the total amount of opioids prescriptions filled in America.
-- 在美国, 减少了阿片类药物处方的总量。
-- Expanded access to medication-assisted treatment and life-saving Naloxone.
-- 增加获得药物辅助治疗和救命的纳洛酮（Naloxone）的途径。
-- Launched FindTreatment.gov, a tool to find help for substance abuse.
-- 启动FindTreatment.gov，该工具可为药物滥用提供帮助。
-- Drug overdose deaths fell nationwide in 2018 for the first time in nearly three decades.
-- 2018年是近30年来，由药物过量导致的死亡在全国范围内的首次下降。
-- Launched the Drug-Impaired Driving Initiative to work with local law enforcement and the driving public at large to increase awareness.
-- 发起了“禁毒驾驶计划”，与地方执法部门和广大驾驶公众合作，以充分地提高认识。
-- Launched a nationwide public ad campaign on youth opioid abuse that reached 58 percent of young adults in America.
-- 发起了一场关于青年人阿片类药物滥用的全国性公共广告活动，惠及了美国58%的年轻人。
-- Since 2016, there has been a nearly 40 percent increase in the number of Americans receiving medication-assisted treatment.
-- 自2016年以来，接受药物辅助治疗的美国人数量增加了近40%。
-- Approved 29 state Medicaid demonstrations to improve access to opioid use disorder treatment, including new flexibility to cover inpatient and residential treatment.
-- 批准了29个州的医疗补助示范，用以改善阿片类药物使用障碍的治疗，包括为住院病人和住院治疗提供新的灵活性。
-- Approved nearly $200 million in grants to address the opioid crisis in severely affected communities and to reintegrate workers in recovery back into the workforce.
-- 批准了近2亿美元的款项，以解决严重受影响的社区的阿片类药物危机，并使工人得以恢复而重新融入劳动力队伍中。
+1. **拜登签署“购买美国商品”行政命令**
 
 
-### **Took action to seize illegal drugs and punish those preying on innocent Americans. **
+美国总统拜登1月25日签署了一项关于政府采购的规定行政命令，以支持美国国内制造业，并鼓励联邦政府购买更多在美国制造的产品。拜登的“购买美国商品”计划将通过减少现有的“购买美国商品”规则中的漏洞和豁免，并更改“美国制造”商品的定义，使联邦机构与海外公司签订合同购买海外产品更加困难。拜登在1月25日的发言中说：“正如大流行所表明的那样，我们再也不能使美国在国家紧急状态中，仍必须依靠一个没有共同利益的外国来保护自己的人民的地位的状况。”
 
-### 采取行动缉获非法毒品**，**惩罚那些掠夺无辜美国人生命的人**。**
+[https://www.forbes.com/sites/sarahhansen/2021/01/25/biden-signs-buy-american-executive-order-heres-what-it-means-for-businesses/?sh=71cfa75c2e4d](https://www.forbes.com/sites/sarahhansen/2021/01/25/biden-signs-buy-american-executive-order-heres-what-it-means-for-businesses/?sh=71cfa75c2e4d)
 
-- In FY 2019, ICE, HSI seized 12,466 pounds of opioids including 3,688 pounds of fentanyl, an increase of 35 percent from FY 2018.
-- 在2019财政年，移民及海关执法局（ICE）和国土安全部（HSI）缉获了包括3,688磅芬太尼在内的共12,466磅阿片类药物，比2018财年增加了35%。
-- Seized tens of thousands of kilograms of heroin and thousands of kilograms of fentanyl since 2017.
-- 自2017年以来缉获了数万公斤的海洛因和数千公斤芬太尼。
-- The Department of Justice (DOJ) prosecuted more fentanyl traffickers than ever before, dismantled 3,000 drug trafficking organizations, and seized enough fentanyl to kill 105,000 Americans.
-- 司法部（DOJ）起诉的芬太尼贩运者比以往任何时候都要多，捣毁了3,000个贩毒组织，并且缉获了大量的芬太尼，数量足以杀死105,000个美国人。
-- DOJ charged more than 65 defendants collectively responsible for distributing over 45 million opioid pills.
-- 司法部控告了超过65名被告, 他们共同负责分销超过4500万粒阿片类药物。
-- Brought kingpin designations against traffickers operating in China, India, Mexico, and more who have played a role in the epidemic in America.
-- 对在中国、印度、墨西哥等地活动的毒贩进行了毒枭认定，他们在美国的毒品泛滥中充当关键的角色。
-- Indicted major Chinese drug traffickers for distributing fentanyl in the U.S for the first time ever, and convinced China to enact strict regulations to control the production and sale of fentanyl.
-- 首次起诉了重要的中国毒贩，依据是他们在美国分销芬太尼。并说服中国政府制定严格的法规来控制芬太尼的生产和销售。
+1. **美国商务部宣布拜登-哈里斯政府团队任命**
 
 
-（完结）
+美国商务部于1月25日宣布了新的拜登-哈里斯政府领导下团队的任命。商务部称这是一个由多元化和有成就的个人组成的团队，致力于为所有美国人促进经济发展。这些关键成员将与公务员合作，以促进创造就业机会和经济增长，同时推进拜登-哈里斯政府的包括遏制COVID-19大流行，应对气候危机，确保公平创造就业机会，并帮助企业和社区更好地重建等领域的发展。
 
-* * *
+[https://www.commerce.gov/news/press-releases/2021/01/us-department-commerce-announces-first-biden-harris-appointments](https://www.commerce.gov/news/press-releases/2021/01/us-department-commerce-announces-first-biden-harris-appointments)
 
-原文来源：
+1. **华尔街日报称中共国在外国商业投资方面超过美国**
 
-[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
 
-往期链接：
+《华尔街日报》在1月24日报道称，中共国是2020年新的外国直接投资的最大目的地，超越了美国长期以来的领先地位。据联合国周日公布的数据显示，在2020年，美国新的外国直接投资下降了49％，而中共国上升了4％。该报告称，2016年，美国的外国投资达到创纪录的4720亿美元，大大高于当时在中国的外国投资1340亿美元。但是，2017年美国的外国投资开始下降，而中国的外国投资却有所增加。
 
-[白宫报告：川普政府的政绩——截至2021年1月（一）](https://gnews.org/zh-hans/761018/)
+评：中共国数据造假的传统以及长期以来一贯地与华尔街利益集团的蓝金黄和勾兑使人对报告的准确度存疑。
 
-[白宫报告：川普政府的政绩——截至2021年1月（二）](https://gnews.org/zh-hans/761213/)
+[https://dailycaller.com/2021/01/25/report-china-overtakes-united-states-foreign-business-investments/](https://dailycaller.com/2021/01/25/report-china-overtakes-united-states-foreign-business-investments/)
 
-[白宫报告：川普政府的政绩——截至2021年1月（三）](https://gnews.org/zh-hans/766962/)
+1. **拜登对石油的暂停引起了新墨西哥州的巨大关注**
 
-[白宫报告：川普政府的政绩——截至2021年1月（四）](https://gnews.org/zh-hans/767022/)
 
-[白宫报告：川普政府的政绩——截至2021年1月（五）](https://gnews.org/zh-hans/771076/)
+美国总统拜登对新的石油和天然气租约和钻探许可暂停60天的决定在新墨西哥州引起了广泛关注。该州的共和党高层以及美国产量最高的二叠纪盆地附近社区的当地领导人说，任何永久暂停生产的举措都将对该州的经济造成毁灭性打击。新墨西哥州的石油产量有一半是在联邦土地上生产的，每年的特许权使用费高达数亿美元。其他州的国会议员也表示担忧说，禁令的连锁反应将伤害那些已经受到疫情影响而苦苦挣扎的小企业。
 
-[白宫报告：川普政府的政绩——截至2021年1月（六）](https://gnews.org/zh-hans/771727/)
+[https://www.breitbart.com/news/bidens-pause-on-oil-cause-for-big-concern-in-new-mexico/](https://www.breitbart.com/news/bidens-pause-on-oil-cause-for-big-concern-in-new-mexico/)
 
-[白宫报告：川普政府的政绩——截至2021年1月（七-1）](https://gnews.org/zh-hans/779811/)
+1. **欧盟与阿斯利康因疫苗供应产生冲突**
 
-[白宫报告：川普政府的政绩——截至2021年1月（七-2）](https://gnews.org/zh-hans/780079/)
 
-[白宫报告：川普政府的政绩——截至2021年1月（八）](https://gnews.org/zh-hans/788066/)
+欧盟最高卫生官员在1月25日称不满意阿斯利康在解决延迟向欧盟交付COVID-19疫苗而引起的争端的答复。与牛津大学合作的阿斯利康在1月22日向欧盟表示，直到三月底，它都无法实现商定的供应目标。欧盟要求阿斯利康找到灵活的供应方式，并敦促其披露疫苗生产和分配数据。
 
-[白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
+评：真正解决冠状病毒的方法在于消灭制造病毒的中共。而疫苗生产和供应与中共利益有千丝万缕的联系，且疫苗的有效性和安全性还处于不确定状态。
 
-[白宫报告：川普政府的政绩——截至2021年1月（十一）](https://gnews.org/zh-hans/802251/)
+[https://www.reuters.com/article/us-health-coronavirus-eu-astrazeneca/eu-locks-horns-with-astrazeneca-on-vaccine-deliveries-amid-supply-shock-idUSKBN29U0Y9](https://www.reuters.com/article/us-health-coronavirus-eu-astrazeneca/eu-locks-horns-with-astrazeneca-on-vaccine-deliveries-amid-supply-shock-idUSKBN29U0Y9)
 
-[白宫报告：川普政府的政绩——截至2021年1月（十二）](https://gnews.org/zh-hans/802307/)
+1. **央行连续16个工作日逆回购 累计投放6870亿元**
 
-[白宫报告：川普政府的政绩——截至2021年1月（十三）](https://gnews.org/zh-hans/802335/)
 
-[白宫报告：川普政府的政绩——截至2021年1月（十四）](https://gnews.org/zh-hans/802367/)
+为维护银行体系流动性合理充裕，1月25日，中共国央行以利率招标方式开展了20亿元7天逆回购操作，中标利率维持2.2%不变。截至目前，央行1月份以来的所有工作日，均开展了7天逆回购操作，16个工作日累计逆回购投放6870亿元。川财证券研报称，逆回购的投放能够起到降低货币市场利率的作用，随着央行流动性的投放，影响效果会逐渐显现，银行资金面紧张的形势会得到缓解，资金利率将逐步回归常态。
 
-[白宫报告：川普政府的政绩——截至2021年1月（十五）](https://gnews.org/zh-hans/815742/)
+[https://finance.sina.com.cn/roll/2021-01-26/doc-ikftssap0764232.shtml](https://finance.sina.com.cn/roll/2021-01-26/doc-ikftssap0764232.shtml)
 
-[白宫报告：川普政府的政绩——截至2021年1月（十六）](https://gnews.org/zh-hans/815787/)
+1. **因芯片断供，大众、福特、丰田等多家车企巨头减产停工应对危机**
 
-* * *
 
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+据央视报道，受疫情影响，国际芯片市场出现了短缺潮，不止手机行业，汽车行业也受到波及，大众、福特、丰田等多家汽车企业不得不采取削减产量、减产等方式应对危机。美国伯恩斯坦研究公司预计，2021年全球范围内的汽车芯片短缺将造成多达450万辆汽车产量的损失，相当于全球汽车年产量的近5%。
 
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+[https://m.sohu.com/a/446631983\_639898/?pvid=000115\_3w\_a](https://m.sohu.com/a/446631983_639898/?pvid=000115_3w_a)
 
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+[金融团队]
+
+素材搜集: 文罡、Wendy、Totoro
+翻译写作: 雪梨Cheli
+校对: Tracy
 
 0

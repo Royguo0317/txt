@@ -1,27 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 哥伦比亚国防部长周二死于中共病毒并发症
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/816531/)
+## 中共国航空公司为限制旅行提供退票服务
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/816682/)
 
 - 编辑：Victor Torres
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月26日电/西喜社——**哥伦比亚官员说，国防部长卡洛斯·霍姆斯·特鲁希略死于中共病毒的并发症，享年69岁。
+**西班牙2021年1月26日电/西喜社——**由于中共病毒继续在中国东北地区蔓延，中国的航空公司正在提供退票服务。
 
-总统伊万·杜克说，霍尔姆斯·特鲁希略周二早些时候去世，并补充说:”他的一生反映了他对公共服务的渴望。”
+中共政府航空局周二推出的政策是在推动防止人们在下个月春节假期期间出行的情况下发出的。
 
-霍尔姆斯·特鲁希略在担任外交部长后，于2019年11月成为国防部长。他还曾在1988-1990年担任卡利市长。
+中国在发现疫情的地方，包括首都北京，仍然有旅行限制。学校提前一周放假，农民工被告知不要回乡。
 
-哥伦比亚1月中旬报告每天新增病例超过1.5万例，高于12月初的约7000例。
+中共国家卫生委员会报告说，在89197例病例中，全国死于中共病毒的人数增加了1人，达到4636人，大多数新病例发生在冬季气温远低于冰点的东北地区。
 
-哥伦比亚有5万多人确诊死于中共病毒。
+中共国家卫健委周二报告，黑龙江省有53例新病例，南部的吉林省也有7例。北京和商业中心上海都报告了两例新病例。
 
 **新闻来源：**[https://apnews.com/article/travel-beijing-migrant-workers-coronavirus-pandemic-china-ebf87fbc0ac60e7a591da9a3823bce6d](https://apnews.com/article/travel-beijing-migrant-workers-coronavirus-pandemic-china-ebf87fbc0ac60e7a591da9a3823bce6d)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/eb88eca2-3999-49ed-830d-c483d5ca6945-52.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/7388114b-18b1-40cb-9e28-fa5be20bb754-7.jpg)
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 

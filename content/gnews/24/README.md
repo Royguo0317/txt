@@ -1,143 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫报告：川普政府的政绩——截至2021年1月（十五）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/815742/)
+## 乔什· 霍利：是时候站出来对抗美国的言论审查了
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/815983/)
 
-五月花写作组 ｜ 翻译：紫丁香 ｜ 校对：虹陵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告15-1.jpg)
-## **Part 15 – Safeguarding the Environment**
+*新闻来源：New York Post《纽约邮报》| 作者：By Sen. Josh Hawley 乔什·霍利参议员| 发布时间：2021年1月25日*
 
-## **第十五部分：保护环境**
+*翻译/简评：Clau | 校对：Freedust | 审核：Freedust | Page：DoReMi Rose*
 
-* * *
+[!\[\]()!\[\](https://spark.adobe.com/page/FdAK5MWZUGy93/images/968efe5d-3e96-4be9-aa46-33a75e00bf27.jpg?asset_id=2de85630-55db-481c-b283-cbd2df475de6&amp;img_etag=%2267423076db59811971f3dccc5142c6d5%22&amp;size=2560)](https://spark.adobe.com/page/FdAK5MWZUGy93/images/968efe5d-3e96-4be9-aa46-33a75e00bf27.jpg?asset_id=2de85630-55db-481c-b283-cbd2df475de6&amp;img_etag=%2267423076db59811971f3dccc5142c6d5%22&amp;size=1024)
 
-### **Took strong action to protect the environment and ensure clean air and clean water.**
+**简评：**
 
-### 采取了强有力的手段来保护环境并确保**美国拥有**清洁的空气和水。
+美国的垄断企业和左派联合起来在美国推行社会信用评分机制，该机制源于中共国，用于监控每个公民的社会观点和言论。大量美国的保守派正在被打压，被从社交媒体上被禁声，乔什·霍利参议员也不能幸免。左派政客要求他辞职，他的新书被出版集团取消发行，仅仅是因为他代表他的选民的意见，并在参议院领导民主辩论。左派和垄断企业联盟希望利用社会信用评分机制能控制每个美国人的内心想法，从而潜移默化的推进他们的政治议程。
 
-- Took action to protect vulnerable Americans from being exposed to lead and copper in drinking water and finalized a rule protecting children from lead-based paint hazards.
-- 采取行动保护易受伤害的美国人，让他们避免接触到饮用水中的铅和铜，并制定规则保护儿童免受铅基油漆的危害。
+**原文翻译：**
 
+# **乔什·霍利：是时候站出来对抗，对美国的消音了 （言论审查）**
 
-- Invested over $38 billion in clean water infrastructure.
-- 在净化水基础设施上投资超过380亿美元.
+这些科技巨头已经将数十名保守派人士从社交媒体上赶走，如果他们得逞，一半的众议院共和党会议成员将被逐出国会。
 
+你最近查过自己的社会信用分吗？你可能想查一下。我的这个月似乎有一个急剧下降。你可能想看看你的情况如何。
 
-- In 2019, America achieved the largest decline in carbon emissions of any country on earth. Since withdrawing from the Paris Climate Accord, the United States has reduced carbon emissions more than any nation.
-- 2019年，美国的碳排放量在地球上所有国家中降幅最大。从退出《巴黎气候协定》以来，美国减少的碳排放量超过任何国家。
+大家都知道信用分是什么，但社会信用评分是新事物。它们是由大企业们从中共国最新引进的东西，在中共国政府和大企业监控着每个公民的社会观点和言论。
 
+它们是这个国家撤消文化的最新形式，垄断企业和左派联合起来封杀他们不喜欢的言论，并将他们的政治议程强加于美国。对于那些仍然相信言论自由和第一修正案的人来说，现在是需要站出来的时候了。
 
-- American levels of particulate matter – one of the main measures of air pollution – are approximately five times lower than the global average.
-- 美国的颗粒物水平 – 空气污染的主要衡量指标之一 – 大约比全球平均水平低五倍。
+[!\[\]()!\[\](https://spark.adobe.com/page/FdAK5MWZUGy93/images/c17fad03-5d19-4b9b-a501-c9f22a18e69a.jpg?asset_id=d44a8b3f-6aa7-4b07-92a4-ebc1b5e25386&amp;img_etag=%22d81e1000ba57df8d657f74b3c9318682%22&amp;size=2560)](https://spark.adobe.com/page/FdAK5MWZUGy93/images/c17fad03-5d19-4b9b-a501-c9f22a18e69a.jpg?asset_id=d44a8b3f-6aa7-4b07-92a4-ebc1b5e25386&amp;img_etag=%22d81e1000ba57df8d657f74b3c9318682%22&amp;size=1024)
 
+参议员乔希-霍利（Josh Hawley）表示，现在是站起来反对撤销文化的时候了。 (纽约邮报)
 
-- Between 2017 and 2019, the air became 7 percent cleaner – indicated by a steep drop in the combined emissions of criteria pollutants.
-- 在2017年至2019年期间，空气清洁度提高了7％，这表明标准污染物的综合排放量急剧下降。
+和老式的那种信用分一样，你的社会信用也需要大量的维护。你需要在学校里取得好成绩，不惹上法律的麻烦。但这仅仅是个开始—现在你必须赢得在文明社会中生活的权利。所以，如果你想找到一份好工作，住在酒店里，在餐馆里得到服务，你就需要做一些其他的事情。你需要有正确的舆论导向。你需要赞同正确的观点。你需要顺从。总之这就是企业领袖告诉我们的。
 
+他们这个月想训斥我，因为我没有（顺从）。我代表我州的选民向宾夕法尼亚州的总统选举人提出质疑，因为该州的选举违反了该州的宪法。也许你同意我的观点，也许你不同意。但无论你的观点如何，美国大公司急于禁声那些它不喜欢的人的做法应该让你感到困扰。
 
-- Led the world in greenhouse gas emissions reductions, having cut energy-related CO2 emissions by 12 percent from 2005 to 2018 while the rest of the world increased emissions by 24 percent.
-- 在减少温室气体排放上领先世界，从2005年到2018年将与能源相关的二氧化碳排放量减少了12％，而同期世界其它地区的温室气体排放量则增加了24％。
+针对我，开始于左派政客要求我辞职，因为我代表我的选民的意见，并在参议院领导民主辩论。
 
+霍利因道德投诉而抨击参议院民主党人，说他们在 “试图压制异议”。
 
-- In FY 2019 the Environmental Protection Agency (EPA) cleaned up more major pollution sites than any year in nearly two decades.
-- 2019财年，环境保护署（EPA）清理的主要污染场地比近二十年来任何一年都多。
+以此为契机，一家集团出版社就取消了它请我写的一本书。具有讽刺意味的是，这本书是关于美国最强大的公司的政治审查制度。(并将由一家独立出版社出版。)现在，美国企业取消了我的政治活动，因为两党相争显然是多此一举的。。
 
+情况会变得更糟。科技巨头们已经将数十名保守派人士从社交媒体上赶了出去，如果他们得逞，众议院共和党会议的一半成员将被驱逐出国会。企业巨头们似乎认为，要想让民主制度符合他们的胃口，唯一的办法就是消除对民主党一党控制政府的所有威胁。
 
-- The EPA delivered $300 million in Brownfields grants directly to communities most in need including investment in 118 Opportunity Zones.
-- 环保署直接向最急需的社区提供了3亿美元的“棕土”拨款，其中包括对118个“机会区”的投资。
+左翼分子和觉醒的资本家联盟希望能控制每个美国人的内心想法，从学生到退休的人。而且他们还训练了觉醒的正统派的执法者，来监督异议或不当行为。一个在交通中加塞了错误的人的 “凯伦 “被直播跟踪回家，被羞辱得哭着求饶，因为她的车牌被直播到网上平台迫使她失去了工作。
 
+[!\[\]()!\[\](https://spark.adobe.com/page/FdAK5MWZUGy93/images/4dc0958d-3b70-4b92-bf20-4ab0aa812fa1.jpg?asset_id=f480223d-2b27-49f7-b4c2-b105f574550d&amp;img_etag=%22f3f8ac050d98be6b257bb656cf362d52%22&amp;size=2560)](https://spark.adobe.com/page/FdAK5MWZUGy93/images/4dc0958d-3b70-4b92-bf20-4ab0aa812fa1.jpg?asset_id=f480223d-2b27-49f7-b4c2-b105f574550d&amp;img_etag=%22f3f8ac050d98be6b257bb656cf362d52%22&amp;size=1024)
 
-- Placed a moratorium on offshore drilling off the coasts of Georgia, North Carolina, South Carolina, and Florida.
-- 暂停在佐治亚州，北卡罗来纳州，南卡罗来纳州和佛罗里达州沿海的海上钻井。
+2021年1月20日（周三），在华盛顿的美国国会大厦，当选总统乔-拜登（Joe Biden）的就职典礼前，参议员乔希-霍利（Josh Hawley，中）观看。(Greg Nash/Pool Photo via AP)
 
+每个人都知道这可能发生在自己身上，所以每个人都闭嘴了。信任圈缩小了。对话–太容易被记录–转移到加密的消息应用上。暂时如此。直到这些应用也因为干扰有效的社会信用市场而被禁止。
 
-- Restored public access to Federal land at Bears Ears National Monument and Grand Staircase- Escalante National Monument.
-- 恢复了熊耳国家纪念碑和大阶梯-埃斯卡兰特国家纪念碑联邦土地的公共使用权
+有一段时间，保守派，认识到我们现在成了反主流文化的一派，沉迷于我们可以选择退出这一切的幻觉。我们会把我们的孩子送到不教授所有这些所谓觉醒的东西的学校。我们在教堂交朋友，而不是在工作中交朋友， 并在有共同目标社区自我安慰，信任和开放仍然是可能存在的 。我们会投下良心的一票，因为投票箱是任何选举都无法夺走的。
 
+如果我们的政治组织受到审查制度的阻碍–比如说，受到大型科技巨头的阻碍–我们可以建立自己的平台。
 
-- Recovered more endangered or threatened species than any other administration in its first term.
-- 恢复的濒危物种比其它任何一届政府第一任期内的都多。
+但左派和大企业们现在正在挑战这一切。当亚马逊可以关闭你的 “保守 “社交媒体平台时，它就不值钱了。你的选票可能还是你的，但如果你的政党对垄断企业无从下手，它是赢不了的。你的教堂，好吧，你现在还可以去，但去错了教堂，几年后你可能就没有工作了。
 
+“释放这个怪物，总有一天它会来找你”。格伦-格林沃德对删除文化运动发出警报。
 
-### **Secured agreements and signed legislation to protect the environment and preserve our Nation’s abundant national resources.**
+好消息是只有我们允许，删除文化议程才会成功。只有我们选择什么都不说，我们才需要生活在恐惧中。在这个考验的时刻，保守派不能退缩。我们需要挺身而出，争取每个美国人的发言权。
 
-### 已达成协议并签署了立法，以保护环境并保护**美国**丰富**的**国家资源。
+我们需要站出来捍卫将所有美国人团结在一起的基本原则–自由发言、公开辩论的权利，以及从容地解决我们的分歧，而不必担心因不同意见而被压制或受到惩罚。
 
-- The USMCA guarantees the strongest environmental protections of any trade agreement in history.
-- 美墨加协议（USMCA）提供了有史以来所有贸易协定中最强有力的环境保护。
+我自己是不会退缩的。我的书将被出版，我将继续代表我州的人民，无论左派或大公司们说什么，我都不会害怕或偏袒。
 
+强权者认为现在是巩固他们对社会的控制和压制异议的机会。这意味着，那些相信第一修正案和美国自由基本原则的人，现在必须表明立场，当我们还可以站出来的时候。
 
-- Signed the Save Our Seas Act to protect our environment from foreign nations that litter our oceans with debris and developed the first-ever Federal strategic plan to address marine litter.
-- 签署了《拯救我们的海洋法》，以保护我们的环境， 避免它国垃圾对我们国家海洋的破坏，并制定了史上第一个解决海洋垃圾的联邦战略计划。
+[🔗原文链接](https://www.foxnews.com/media/its-time-to-stand-up-against-the-muzzling-of-america)
 
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-- Signed the Great American Outdoors Act, securing the single largest investment in America’s National Parks and public lands in history.
-- 签署了《伟大的美国户外法案》，确保了对美国国家公园和公共土地历史上最大的一笔投资。
 
+编辑：[【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/FdAK5MWZUGy93/)
 
-- Signed the largest public lands legislation in a decade, designating 1.3 million new acres of wilderness.
-- 签署了十年来最大规模的公共土地立法，指定了130万英亩的新荒野。
-
-
-- Signed a historic executive order promoting much more active forest management to prevent catastrophic wildfires.
-- 签署了一项历史性的行政命令，促进更加积极的森林管理，以防止灾难性的野火。
-
-
-- Opened and expanded access to over 4 million acres of public lands for hunting and fishing.
-- 开放并扩大了在超过400万英亩的公共土地上进行狩猎和捕鱼的机会。
-
-
-- Joined the One Trillion Trees Initiative to plant, conserve, and restore trees in America and around the world.
-- 加入 “一万亿棵树倡议”，在美国和世界各地种植、养护和复原树木。
-
-
-- Delivered infrastructure upgrades and investments for numerous projects, including over half a billion dollars to fix the Herbert Hoover Dike and expanding funding for Everglades restoration.
-- 为许多项目提供了基础设施升级和投资，其中包括用于修复赫伯特·胡佛堤坝的逾五亿美元资金，并加大用于大沼泽地恢复的资金投入。
-
-
-* * *
-
-原文来源：
-
-[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
-
-往期链接：
-
-[白宫报告：川普政府的政绩——截至2021年1月（一）](https://gnews.org/zh-hans/761018/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（二）](https://gnews.org/zh-hans/761213/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（三）](https://gnews.org/zh-hans/766962/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（四）](https://gnews.org/zh-hans/767022/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（五）](https://gnews.org/zh-hans/771076/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（六）](https://gnews.org/zh-hans/771727/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（七-1）](https://gnews.org/zh-hans/779811/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（七-2）](https://gnews.org/zh-hans/780079/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（八）](https://gnews.org/zh-hans/788066/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十一）](https://gnews.org/zh-hans/802251/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十二）](https://gnews.org/zh-hans/802307/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十三）](https://gnews.org/zh-hans/802335/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十四）](https://gnews.org/zh-hans/802367/)
-
-* * *
-
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
-
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
-
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+[!\[\]()!\[\](https://spark.adobe.com/page/FdAK5MWZUGy93/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/FdAK5MWZUGy93/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

@@ -1,46 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国国务院：中共国对台湾的军事压力破坏地区和平与稳定
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/816121/)
+## 葡萄牙当局考虑向其他欧盟国家求助
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/816498/)
 
-*新闻来源：美国国务院 | 发言人：Ned Price 内德•普莱斯 | 发布时间：2021年1月23日*
-
-*翻译/简评：随波逐流 |校对：感恩 |审核：万人往 |Page：小雨*
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/United-States-Department-of-State-Security.jpg)
-
-**简评：**
-
-美国国务院发文指出，中共国不断企图恐吓包括台湾在内的邻国，敦促北京停止对台湾的军事、外交和经济施压，转而安排与台湾民选代表进行有意义的对话。同时美国表明了对台湾承诺不变的立场，继续协助台湾保持自卫能力。美国将与朋友和盟友站在一起，促进在印度太平洋地区的共同繁荣、安全和价值观，维护台湾海峡及整个地区的和平与稳定。
-
-美国国务院的声明，认为中共飞机干扰台湾，是破坏区域和平的做法，明确提出中共国对台湾的军事压力破坏地区和平与稳定，是区域安全和平的威胁。这显示，拜登政府上台会延续过去对中共国的对抗竞争态势不变，美国民主党政府仍秉持过去40多年的两岸架构，以《台湾关系法》、《六项保证》、《三个公报》为基础，鼓励两岸对话。拜登团队从去年底就开始表态支持符合台湾人民最佳利益的两岸方针，现总统拜登刚宣誓就职，国务院就针对中共军机扰台发表声明，并且用词对台湾非常正面、友善，对中共国态度强硬。之前大家关心美国的印太战略会不会改变，此举显示，不但没有改变，还凸显美国政策的延续性。
-
-美国继续认定中共是印太地区安全的威胁，北约之前的军事报告也把中共列为全球威胁。去年11月，美印日澳四国在阿拉伯海的联合军演也是针对中共的军事威胁而来。美国说将和其盟友一起维护印太地区和平与稳定，并派遣军舰在此紧张局势下进入台湾海峡地区，是否美国、北约及印太周边国家已做好了战略部署？他们会否袖手旁观，任由局势进一步恶化？如果中共攻打台湾，必将招致多国联军的打击，中共将迅速土崩瓦解。
-
-**原文翻译：**
-
-# **中共国对台湾的军事压力破坏地区和平与稳定**
-
-新闻发布
-
-内德•普莱斯，国务院发言人
-
-2021年1月23日
-
-美国关切地注意到，中共国不断企图恐吓包括台湾在内的邻国。我们敦促北京停止对台湾的军事、外交和经济压力，转而安排与台湾民选代表进行有意义的对话。
-
-我们将与朋友和盟友站在一起，以促进我们在印度太平洋地区的共同繁荣、安全和价值观——其中包括加深我们与民主台湾的联系。美国将遵从台湾人民的愿望和最大利益，继续支持以和平方式解决两岸问题。美国继续恪守《三个公报》、《台湾关系法》和《六项保证》所概述的长期承诺。我们将继续协助台湾保持足够的自卫能力。我们对台湾的承诺坚如磐石，并有助于维护台湾海峡及整个地区的和平与稳定。
-
-🔗[原文链接](https://www.state.gov/prc-military-pressure-against-taiwan-threatens-regional-peace-and-stability/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+- 编辑：Victor Torres
 
 
-编辑：[【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/6nF5RrMKSjn9l/)
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6nF5RrMKSjn9l/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/6nF5RrMKSjn9l/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+**西班牙2021年1月26日电/西喜社——**葡萄牙卫生部长表示，在中共病毒病例急剧增加的情况下，当局正在考虑向其他欧盟国家求助。
+
+根据约翰·霍普金斯大学的统计，过去一周，葡萄牙每10万人的日新增病例数和死亡数均为全球最严重。
+
+卫生部长玛尔塔·特米多说，将病人送往其他欧盟国家在该集团并不罕见。但她说，葡萄牙的劣势是地理位置偏远，整个欧洲大陆的医院都面临着疫情的压力。她说，该国可能反而会要求派遣医疗工作者。
+
+特米多告诉公共广播公司RTP，葡萄牙医院面临严重的压力。”我们有床位可用，”她说。”我们所努力的是寻找工作人员。”
+
+这一要求可能难以实现，因为27国集团中的所有国家都在处理自己的大流行病，现在由于病毒变种的出现而变得更加困难。
+
+**新闻来源：**[https://apnews.com/article/travel-beijing-migrant-workers-coronavirus-pandemic-china-ebf87fbc0ac60e7a591da9a3823bce6d](https://apnews.com/article/travel-beijing-migrant-workers-coronavirus-pandemic-china-ebf87fbc0ac60e7a591da9a3823bce6d)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/18dbb199-512c-4684-bece-ca81cf35e680-4.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
 0
