@@ -1,45 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 查尔斯·弗林- 迈克尔·弗林的弟弟被任命领导美国陆军太平洋司令部
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/815575/)
+## 台湾隔离5000人并寻找新病例来源
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/816735/)
 
-**作者: WYATT OLSON**
-
-**编译: 莫黎**
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/001234-2.jpg)**图片: USArmyWarCollege**
+**西班牙2021年1月26日电/西喜社——**台湾卫生当局正在隔离5000人，同时寻找与一家医院有关的两例新的中共病毒病例的来源。
 
+官员表示，他们还无法确定这对夫妻是如何在毗邻台湾首都的桃园市总医院短暂住院后被感染的。该男子因与中共病毒无关的健康问题在医院住了3天，而他的妻子则在医院照顾他。
 
+被要求隔离的人包括1月6日至19日期间出院的病人及其护理人员。
 
-查尔斯·弗林（Charles Flynn）中将被提名领导美国陆军太平洋司令部，该职位目前由2019年11月上任的保罗·拉卡梅拉将军（Paul LaCamera）担任。
+台湾在最新的国内群发事件后，目前已经有15例来自桃园医院的病例，台湾已进入高度戒备状态。
 
-弗林将会在参议院确认后晋升为四星将军，他目前在华盛顿特区担任陆军G-3/5/7部门的副参谋长，该部门负责规划和协调美国本土后备役力量的动员工作。
+台湾在遏制中共病毒方面的努力迅速而持续，尽管距离中国很近，但仅有7人死亡，确诊病例不到900例，这一点一直为人称道。
 
-查尔斯·弗林是2017年短暂担任国家安全顾问的迈克尔·弗林（Michael Flynn）的弟弟。迈克尔·弗林曾在对联邦调查局（FBI）在调查俄罗斯与川普2016年总统竞选活动之间的关系作出”故意 “虚假陈述表示认罪，前总统川普在11月份赦免了他。
+**新闻来源：**[https://apnews.com/article/travel-beijing-migrant-workers-coronavirus-pandemic-china-ebf87fbc0ac60e7a591da9a3823bce6d](https://apnews.com/article/travel-beijing-migrant-workers-coronavirus-pandemic-china-ebf87fbc0ac60e7a591da9a3823bce6d)
 
-查尔斯·弗林最近因1月6日示威者闯国会事件，国民警卫队的迟缓部署面临了审查。华盛顿市政府和国会警察局的官员指称，五角大楼对国民警卫队协助平息骚乱的请求反应缓慢。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/ea0dfda7-7122-411f-941c-d7a292446d32-5.jpg)
 
-据《华盛顿邮报》报道，陆军承认在当地官员提出打来请求的关键电话时查尔斯·弗林也在场，但该部门是在 “连日来虚假否认 “他没有在场之后才承认的。
-
-根据查尔斯·弗林的官方简历，他毕业于美国海军战争学院，并获得了国家安全和战略研究的硕士学位。他有从排到师的指挥经验，并曾在伊拉克和阿富汗服役。
-
-近年来，他曾在夏威夷指挥第25步兵师，之后担任了美国陆军太平洋司令部副司令。
-
-
-
-
-
-**新闻来源: **
-
-Charles Flynn, brother of former national security adviser, tapped to lead US Army Pacific
-
-[https://www.stripes.com/news/pacific/charles-flynn-brother-of-former-national-security-adviser-tapped-to-lead-us-army-pacific-1.659849](https://www.stripes.com/news/pacific/charles-flynn-brother-of-former-national-security-adviser-tapped-to-lead-us-army-pacific-1.659849)
-
-General Officer Assignments
-
-[https://www.defense.gov/Newsroom/Releases/Release/Article/2482280/general-officer-assignments/source/GovDelivery/](https://www.defense.gov/Newsroom/Releases/Release/Article/2482280/general-officer-assignments/source/GovDelivery/)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
 0

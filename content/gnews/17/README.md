@@ -1,74 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 就中共对新疆少数民族的种族灭绝罪致世界人民的公开信
-` Mild Seven` [轉載自GNews](https://gnews.org/zh-hans/816563/)
+## 地震过后
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/818146/)
 
-尊敬的的女士们, 先生们，
+作者：康州盘古农场-SillyLego
+编辑：康州盘古农场-Antsee-GTV
 
-[2021年1月19日，美国政府认定中共对维吾尔族穆斯林少数民族的行为是种族灭绝。](https://2017-2021.state.gov/determination-of-the-secretary-of-state-on-atrocities-in-xinjiang/index.html)中共多年来对新疆少数民族进行着系统性的种族灭绝活动。
+![Himalaya]()![Himalaya](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-27-at-02.30.28.png)
 
-美国拜登总统内阁，新任国务卿安东尼-布林肯针对这一对中共的谴责发表了如下[评论](https://www.foxnews.com/politics/biden-trump-china-genocide-uyghurs)：”这也是我的判断。强迫男人、女人和儿童进入集中营，并试图将他们真正转化为中共的追随者–所有这些都说明（中共）是在努力进行种族灭绝。”
-![]()![](https://gnews.org/wp-content/uploads/2021/01/uiguren-uden-4.jpg)
-我们绝不能允许灭绝种族这样可怕的历史重演。所以，我真诚地请您传播真相，把这个消息转告给您身边的人。
+**乞丐心态**
+所谓乞丐心态，是指乞丐被一次次无偿施予之后，有一次施惠者没给或者少给了，乞丐便觉得别人欠了自己的。文贵先生最近直播中也说到过一位老家的村长，饥荒的年代一次次去乡里为村民求粮，有一次没有求到，村民就围堵到村长家门口，最后村长倒因为自责而自杀，还被村民唾骂，多少年后才有明白人为这位村长说几句公道话。
 
-此致敬礼
+这几天和一位老大哥聊天，他说路德说几月几号灭共，结果共产党还在。说实话，当时我真的很生气。第一，路德何时说过什么预言？路德先生在情报安全允许范围内透露一点可以透露的信息，听到的战友可以根据各自情况做些准备，大概只有偶尔看一集路德节目的人才会这样断章取义吧；第二，文贵先生，路德，欠了谁吗？欠了喝着茶、嗑着瓜子、看别人出生入死在前线战斗，一场仗打得没合了心意，就说这说那甚至开骂的这些人吗？第三，想想哪些人是绝对不会失败、不会犯错的？恰是那些什么也不做的人，因为什么也不做，自然不存在犯错。我跟这位老大哥说，您要不再回去听听？多听几集看看是不是理解错了？其实对于一些被共产党深度洗坏了脑子的高级知识分子，想走出这种心态的确不容易。如果没有爆料革命、新中国联邦和文贵先生，我们这些被玩弄于权贵股掌之中的草民有几个人知道共产党、美国和世界是如何运作的？身边每个人都在骂共产党有多混蛋，但有几个人甚至敢去想象有生之年能看到这个政党的灭亡？眼看着衣冠楚楚的权贵、政要们对没有发生在自己国家的人间悲剧睁一只眼闭一只眼，试问有几个人有能力去为那些连名字都没有、连数字都算不上的受害者发声？
 
-Mild Seven
+其实在以前，这种乞丐心态也到处都有，但在现在这种大变革时代，鲜活地一个个发生在自己身边，才更能意识到这种心态的可恶与可悲。打个比方来说，就好比1930年约翰·阿坦那索夫教授发明了第一台电子计算机，身边有人骂街：这么大几个柜子，你让我怎么天天带在包里上班？有什么用？开拓者在执行革命性的项目时，周围从来不乏抱怨者。他们感觉自己想得更远、看得更高，然后喝着热茶、嗑着瓜子、吐槽着今天福利院的面包不够新鲜，然后洗洗睡了。有时候我羞于称自己是战友：多少人在这场“全球战争”中冒着随时失去一切的风险为了心中的正义和信仰在战斗？我没有牺牲自己的工作，没有冒什么生命财产的风险，就连休假都没怎么耽误，有什么资格去得到这些战士们的战斗果实？但眼看到在这些战士们的后方，却有那么多对勇士们评头论足，还下坏使绊的人，真心很难平静。无论勇士们付出多少，这些人始终一如既往地品头论足，一如既往地事不关已，一如既往地好吃懒做。他们很少去思考自己应该做什么而没做，即使偶尔想了，也不会去做，偶尔做了一点，也坚持不下去。
 
-德意志联邦共和国公民
+2019年我参加了美国一个规模非常大的无家可归者再教育中心的活动，一位老师说过一段相似的话：给饭给钱其实并不难，因为有信仰、善良的人其实很多，对于这些生活在福利院的无家可归的人而言，最难的其实是建立他们的内心，让他们有自立的心态。因为很多人，要么从小就没有一个家庭和教育让他们有过自立的心态，要么曾经历的重大挫折（比如入狱或生死）彻底击垮了他们对自己身份的肯定。回头来看我们自己，绝大多数人生在墙内、长在体制中，眼见了多少民主运动被击垮杀戮，还被所谓党天下跨国界、跨语种继续洗脑侵染到今天。这样的我们，有些人身不由己在国内受着摧残，更可悲的是能有机会进入自由民主国家享受福利的人们，在高等教育、稳定收入、外籍身份、宗教活动的装饰下，却仍被共产党幽灵一般无形的枷锁锁住了作为一个人基本的善恶感，锁住了最基本的逻辑是非判断力，锁住了追求真正信仰的心。
 
-2021年1月26日
+**地震检验地基**
+圣经中马太福音7章24-27节中耶稣说“因此，凡是听了我这些话而实行的人，就好比一个聪明的人把自己的房子建在磐石上。大雨降下，急流冲来，狂风刮起，撞击那房子，房子却没有倒塌，因为它在磐石上立定根基。可是，凡是听了我这些话而不实行的人，就好比一个愚拙的人把自己的房子建在沙滩上。大雨降下，急流冲来，狂风刮起，撞击那房子，房子就倒塌了，并且倒塌得非常厉害。”房屋建在磐石还是沙土上，在没有地震、洪水、风暴的日子里是不容易看出来的。旧金山的金门大桥旁边有一片非常漂亮的小楼，设计很漂亮而且面朝大海，每套房子其实面积很小，但在2021年的今天，每一套都在两百万美元往上。很多人知道，这一片楼房都是在80年代大地震之后建起来的。而那一场大地震把这附近几乎所有的房屋都报废了，不是因为建筑质量，而是因为地下是沙土。
 
-—
+同样2021年初的这场“地震”也不出意料地验明了好多看似美轮美奂的房屋，到底建立在磐石上还是沙土上。很感恩这场地震震得够强、够彻底，让沙土上的房子倒得也够彻底。1月20号以后，马上看出来支持爆料革命的人，谁冲着公义、谁冲着利益；谁为了灭共，谁为了利益；谁靠着信仰、谁靠着利益；谁相信上天、谁相信利益。而这个利益，说到底，信的其实是自己。信自己，抽丝剥茧掰开揉碎了，无非也是共产主义灌输给人的“伪信仰”：相信自己决定自己的命运，相信万物万事应该为自己服务，相信人死如灯灭，所以在今生今世就要获取最大的利益享受最大的荣华。感恩从2020年到现在的这场大地震，让多少自以为有信仰的信徒们，在一浪高过一浪的震动中，显明了自己信仰的根基：扒开所有宗教信仰的装饰以后，看清信的到底是什么？是创天造地的神，还是自己？如果没有这场地震，我不会想到原来在神和魔鬼交战之时，会有教会默不作声，还自我辩护、用各种活动来让教友不去看，不去想，不去参与这场正邪较量；如果没有这场地震，我不会想到原来自己欣赏的政治人物会为了爱惜自己的羽毛而退让；如果没有这场地震，我不会想到原本以“为人类科技、文明发展”为宗旨的公司不仅向施恶者下跪并直接参与作恶…… 这样的例子这几个月来太多了。马太福音第7章13-14节说到“你们要从窄门进去；因为那通向灭亡的门是大的，那条路是宽的，从那里进去的人也多；然而，那通向永生的门是多么小，路是多么窄，找到它的人是多么少。”感恩有这场地震，在验明太多建在沙土上的房子的同时，也验明了那些真正选择了走窄门的人。
 
-公开信的英文翻译：
+**非凡的谋略**
+很感恩路德、博士军团和文贵先生最近的直播把“地震”过后的思路理顺了。把中共定为反人类和种族灭绝是爆料革命取得的里程碑式的成果。中共习政权和中共内部的各方势力只能朝着共产党加剧内斗和加剧对外输出压力的方向去走，必然导致与包括美国新一届政府在内的国际社会更多的碰撞。以共灭共的逻辑其实就这么简单直接粗暴残忍，也是这个黑帮文化的本质决定的。
 
-English translation of my open letter:
+以赛亚书55章9节说“天怎样高过地，我的道路也怎样高过你们的道路，我的意念也怎样高过你们的意念。”这几天对这段圣经文特别感慨。无论是爆料革命还是各方力量，其实都在策略和利益上做出了自己团队能判断出的最好的选择，不论他人对此作何评价。我们应多问自己：第一，我们有没有自己去“行公义”而不是喝着茶看别人，我们是不是真心“好怜悯”而不是莫不关心地去把发生在身边的这场战争当作电影来看；第二，我们到底信不信在这场神和魔鬼的战争中，正义必然会胜？对于这个世界和我们每一个人个体而言，这是一场信仰的战争，而我们要做的选择就是把灵魂交给正义还是邪恶：或许有些人不想选择，或者各给一些，但这次恐怕是没有中间地带的。
 
-**🇺🇸 An open letter to people worldwide regarding the genocide by the Chinese Communist Party against national minorities in Xinjiang**
+**与信仰同行**
+2020年年末，在各种跨年活动中大家都急不可待地告别2020，但我们怎么知道2021年以及今后会比2020就要好呢？动画片《Happiness》中，作者Steve Cutts向人们展示出残酷的人生现实：多少人像老鼠一样，一生追求着别人打上”幸福”标签的各种事物，到头来不过被老鼠夹子钉在奴隶的案板上。而跳脱出这场Rat Race (老鼠竞赛）的唯一办法就是把目光投向更高远之处，选择与信仰同行。我们依然活在人世中，做着一件件实际的事，但我们的眼光、判断、智慧、幸福和平安就不会被这个世界的纷纷扰扰、一城一池的得失而困扰，而是站上了更高的维度。
 
-January 26, 2021
+追求心中的信仰，坚持为真不破，做力所能及的一件件小事，我们终将抵达心中的喜马拉雅之巅 – 与战友们共勉！
 
-Dear Ladies and Gentlemen,
+【本文仅代表作者观点】
 
-[On January 19, 2021, the US government accused the Chinese Communist Party (CCP) of genocide for its actions against the Uyghur Muslim minority.](https://2017-2021.state.gov/determination-of-the-secretary-of-state-on-atrocities-in-xinjiang/index.html) The CCP has been engaged in a systematic ethnic cleansing of national minorities in Xinjiang for years.
-
-Antony Blinken, the new US Secretary of State in US President Joe Biden’s cabinet made the [following comments](https://www.foxnews.com/politics/biden-trump-china-genocide-uyghurs) on the CCP’s condemnation:
-
-“That would be my judgment as well. Forcing men, women and children into concentration camps, trying to in effect re-educate them to be adherents to the Chinese Communist Party – all of that speaks to an effort to commit genocide.”
-
-Terrible history like genocide must never be repeated. Therefore, I sincerely ask you to pass on this message to your fellow citizens. You are helping by spreading the truth.
-
-Yours sincerely
-
-Mild Seven
-
-Citizen of the Federal Republic of Germany
-
-—
-
-公开信的德语翻译：
-
-German translation of my open letter:
-
-**🇩🇪 Ein offener Brief an die Bürger\*Innen im deutschsprachigen Raum bezüglich des Völkermords durch die Kommunistische Partei Chinas an nationalen Minderheiten in Xinjiang**
-
-26.01.2021
-
-Sehr geehrte Damen und Herren der deutschensprachigen Bürger\*Innen,
-
-die [US-Regierung hat am 19. Januar 2021](https://gnews.org/777259/) die Kommunistische Partei Chinas (KPCh) wegen des Vorgehens gegen die muslimische Minderheit der Uiguren des Genozids beschuldigt. Die KPCh betreibt seit Jahren eine systematische ethnische Säuberung der nationalen Minderheiten in Xinjiang.
-
-Antony Blinken, der neue US-Außenminister im Kabinett des US-Präsidenten Joe Biden [äußerte sich](https://gnews.org/809299/) zur Verurteilung der KPCh wie folgt:
-„Das wäre auch mein Urteil. Männer, Frauen und Kinder in Konzentrationslager zwingen und versuchen, sie tatsächlich zu Anhängern der Kommunistischen Partei Chinas umzubilden – all dies spricht für die Bemühungen, einen Völkermord zu begehen.“
-
-Schreckliche Geschichte wie Völkermord darf sich nie wieder wiederholen. Daher bitte ich Sie aufrichtig, diese Botschaft an Ihre Mitbürger\*Innen weiterzugeben. Sie helfen mit, indem Sie die Wahrheit verbreiten.
-
-Mit freundlichen Grüßen
-
-Mild Seven
-
-Bürger der Bundesrepublik Deutschland
-
-0
++1
