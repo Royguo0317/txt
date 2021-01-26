@@ -1,74 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 就中共对新疆少数民族的种族灭绝罪致世界人民的公开信
-` Mild Seven` [轉載自GNews](https://gnews.org/zh-hans/816563/)
+## 【香港要闻】香港还有言论自由?
+` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/816611/)
 
-尊敬的的女士们, 先生们，
+搜集: 叮当
 
-[2021年1月19日，美国政府认定中共对维吾尔族穆斯林少数民族的行为是种族灭绝。](https://2017-2021.state.gov/determination-of-the-secretary-of-state-on-atrocities-in-xinjiang/index.html)中共多年来对新疆少数民族进行着系统性的种族灭绝活动。
+编撰: 叮当
 
-美国拜登总统内阁，新任国务卿安东尼-布林肯针对这一对中共的谴责发表了如下[评论](https://www.foxnews.com/politics/biden-trump-china-genocide-uyghurs)：”这也是我的判断。强迫男人、女人和儿童进入集中营，并试图将他们真正转化为中共的追随者–所有这些都说明（中共）是在努力进行种族灭绝。”
-![]()![](https://gnews.org/wp-content/uploads/2021/01/uiguren-uden-4.jpg)
-我们绝不能允许灭绝种族这样可怕的历史重演。所以，我真诚地请您传播真相，把这个消息转告给您身边的人。
+覆核:文燕
 
-此致敬礼
+上传：文粤
+![]()![](https://gnews.org/wp-content/uploads/2021/01/photo_2021-01-26_21-55-44-1.jpg)图片来源:利君雅就『周梓乐堕楼』追问警方。
+**香港电台突然终止利君雅原先务员合约, ****扣起满约酬金, ****并且只提供120****日新的短期合约, ****这样做变相是希望利君自动离开香港电台, ****有指利君雅大呻“****逼我埋墙角”****。**
 
-Mild Seven
+**利君雅, ****很多人对他并不陌生, ****她是一位土生土长巴基斯坦裔的新闻从业员, ****并且能够说得一口流利广东话, ****给人印象非常深刻, ****由于她敢言敢语的性格, ****每次在政府记者会上, ****她都会提出尖锐问题,****曾经在林郑记者会上, ****她要求特首“****讲人话”****。**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/photo_2021-01-26_21-56-22-1.jpg)图片来源: 工盟
+在2019年元朗721事件, 白衣人无差别向途人袭击, 警方视而不理, 在记者招待会上, 利君雅质问特首, 黑帮和警察是否在做一场“ 大龙凤” 任由白衣人随意袭击元朗街坊以及经过的路人, 正如他不屈不挠的性格, 不断要求答非所问的林郑月娥回应问题, 因此林郑月娥已对她非常不满, 由于香港电台属于政府管理, 林郑月娥绝运用她的权利干预聘请事务。
 
-德意志联邦共和国公民
+至于香港电台台长梁家荣, 对利君雅的雇员合约终止并不知情, 是真是否, 很难定断, 因为他亦受到很大压力, 港台节目”铿锵集”报导事实, 得奖无数,但由于”721, 谁主真相” 编蔡玉玲被捕, 并且他被一名女商人控告公职行为失当, 监察港台节目不力。虽然最后取消控告, 但对梁家荣来说,作为一个台长, 都要不断承受的不同的压力。
 
-2021年1月26日
+**战友观点:**
 
-—
+香港公务员制度是从英国殖民地时代留下来的政府机构, 公务员应该是人民公仆, 服务人物, 由于中共对敢言敢语的人非常不满, 绝不容许有新闻自由。无论如何, 用尽一切办法, 控制言论自由, 政府机构更是他控制范围之内, 特首更是他们的傀儡, 现在的公务员已经不再是公仆, 而是共产党的 “ 共仆”。
 
-公开信的英文翻译：
-
-English translation of my open letter:
-
-**🇺🇸 An open letter to people worldwide regarding the genocide by the Chinese Communist Party against national minorities in Xinjiang**
-
-January 26, 2021
-
-Dear Ladies and Gentlemen,
-
-[On January 19, 2021, the US government accused the Chinese Communist Party (CCP) of genocide for its actions against the Uyghur Muslim minority.](https://2017-2021.state.gov/determination-of-the-secretary-of-state-on-atrocities-in-xinjiang/index.html) The CCP has been engaged in a systematic ethnic cleansing of national minorities in Xinjiang for years.
-
-Antony Blinken, the new US Secretary of State in US President Joe Biden’s cabinet made the [following comments](https://www.foxnews.com/politics/biden-trump-china-genocide-uyghurs) on the CCP’s condemnation:
-
-“That would be my judgment as well. Forcing men, women and children into concentration camps, trying to in effect re-educate them to be adherents to the Chinese Communist Party – all of that speaks to an effort to commit genocide.”
-
-Terrible history like genocide must never be repeated. Therefore, I sincerely ask you to pass on this message to your fellow citizens. You are helping by spreading the truth.
-
-Yours sincerely
-
-Mild Seven
-
-Citizen of the Federal Republic of Germany
-
-—
-
-公开信的德语翻译：
-
-German translation of my open letter:
-
-**🇩🇪 Ein offener Brief an die Bürger\*Innen im deutschsprachigen Raum bezüglich des Völkermords durch die Kommunistische Partei Chinas an nationalen Minderheiten in Xinjiang**
-
-26.01.2021
-
-Sehr geehrte Damen und Herren der deutschensprachigen Bürger\*Innen,
-
-die [US-Regierung hat am 19. Januar 2021](https://gnews.org/777259/) die Kommunistische Partei Chinas (KPCh) wegen des Vorgehens gegen die muslimische Minderheit der Uiguren des Genozids beschuldigt. Die KPCh betreibt seit Jahren eine systematische ethnische Säuberung der nationalen Minderheiten in Xinjiang.
-
-Antony Blinken, der neue US-Außenminister im Kabinett des US-Präsidenten Joe Biden [äußerte sich](https://gnews.org/809299/) zur Verurteilung der KPCh wie folgt:
-„Das wäre auch mein Urteil. Männer, Frauen und Kinder in Konzentrationslager zwingen und versuchen, sie tatsächlich zu Anhängern der Kommunistischen Partei Chinas umzubilden – all dies spricht für die Bemühungen, einen Völkermord zu begehen.“
-
-Schreckliche Geschichte wie Völkermord darf sich nie wieder wiederholen. Daher bitte ich Sie aufrichtig, diese Botschaft an Ihre Mitbürger\*Innen weiterzugeben. Sie helfen mit, indem Sie die Wahrheit verbreiten.
-
-Mit freundlichen Grüßen
-
-Mild Seven
-
-Bürger der Bundesrepublik Deutschland
+资料来源: [明报](https://news.mingpao.com/pns/%e6%b8%af%e8%81%9e/article/20210126/s00002/1611598674196/%e5%88%a9%e5%90%9b%e9%9b%85%e8%a2%ab%e4%b8%ad%e6%ad%a2%e5%90%88%e7%b4%84-%e6%a2%81%e5%ae%b6%e6%a6%ae%e7%a8%b1%e4%b8%8d%e7%9f%a5%e6%83%85)
 
 0

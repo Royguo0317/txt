@@ -1,80 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 乔什· 霍利：是时候站出来对抗美国的言论审查了
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/815983/)
+## 福奇资助的功能增强研究导致新冠病毒大流行
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/816266/)
 
-*新闻来源：New York Post《纽约邮报》| 作者：By Sen. Josh Hawley 乔什·霍利参议员| 发布时间：2021年1月25日*
+*新闻来源：The Gateway Pundit《门户专家》| 作者：Jim Hoft | 发布时间：2021年1月24日*
 
-*翻译/简评：Clau | 校对：Freedust | 审核：Freedust | Page：DoReMi Rose*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/FdAK5MWZUGy93/images/968efe5d-3e96-4be9-aa46-33a75e00bf27.jpg?asset_id=2de85630-55db-481c-b283-cbd2df475de6&amp;img_etag=%2267423076db59811971f3dccc5142c6d5%22&amp;size=2560)](https://spark.adobe.com/page/FdAK5MWZUGy93/images/968efe5d-3e96-4be9-aa46-33a75e00bf27.jpg?asset_id=2de85630-55db-481c-b283-cbd2df475de6&amp;img_etag=%2267423076db59811971f3dccc5142c6d5%22&amp;size=1024)
+*翻译/简评：Victory |校对：SilverSpurs7 |审核：万人往 |Page：小雨*
 
 **简评：**
 
-美国的垄断企业和左派联合起来在美国推行社会信用评分机制，该机制源于中共国，用于监控每个公民的社会观点和言论。大量美国的保守派正在被打压，被从社交媒体上被禁声，乔什·霍利参议员也不能幸免。左派政客要求他辞职，他的新书被出版集团取消发行，仅仅是因为他代表他的选民的意见，并在参议院领导民主辩论。左派和垄断企业联盟希望利用社会信用评分机制能控制每个美国人的内心想法，从而潜移默化的推进他们的政治议程。
+福奇肯定是造成新冠大流行的直接责任人之一。中共释放病毒后，福奇在美国配合中共撒谎，打压有效药物推广，从而造成了美国千万人感染，40多万人死亡（当前数据），其罪行绝不亚于中共。
+
+本报道更进一步说明，福奇是在实验阶段就资助了武汉病毒研究所，这更是坐实了他的罪行。中共所犯的反人类罪行中，福奇一定不能脱罪。
 
 **原文翻译：**
 
-# **乔什·霍利：是时候站出来对抗，对美国的消音了 （言论审查）**
+# **史蒂夫•希尔顿（Steve Hilton）报道：安东尼•福奇博士直接负责资助导致冠状病毒大流行的功能增强研究（视频）**
 
-这些科技巨头已经将数十名保守派人士从社交媒体上赶走，如果他们得逞，一半的众议院共和党会议成员将被逐出国会。
+[!\[\]()!\[\](https://spark.adobe.com/page/UUsiKb7LemetF/images/adec0b15-364f-4635-9da7-234e76af0102.jpg?asset_id=7441c58c-5659-4ed3-8908-497ad3daebb0&amp;img_etag=%227ed569f619220c640fc2d9c176bed1ea%22&amp;size=2560)](https://spark.adobe.com/page/UUsiKb7LemetF/images/adec0b15-364f-4635-9da7-234e76af0102.jpg?asset_id=7441c58c-5659-4ed3-8908-497ad3daebb0&amp;img_etag=%227ed569f619220c640fc2d9c176bed1ea%22&amp;size=1024)
 
-你最近查过自己的社会信用分吗？你可能想查一下。我的这个月似乎有一个急剧下降。你可能想看看你的情况如何。
+福克斯新闻主持人史蒂夫•希尔顿在周日晚间的节目中，以冠状病毒起源的惊人进展开场。
 
-大家都知道信用分是什么，但社会信用评分是新事物。它们是由大企业们从中共国最新引进的东西，在中共国政府和大企业监控着每个公民的社会观点和言论。
+希尔顿讨论了功能性增强研究，该研究有助于界定人类与病原体相互作用的基本性质。研究功能性增强科学的最大的实验室之一，是位于中共国的武汉病毒研究所。
 
-它们是这个国家撤消文化的最新形式，垄断企业和左派联合起来封杀他们不喜欢的言论，并将他们的政治议程强加于美国。对于那些仍然相信言论自由和第一修正案的人来说，现在是需要站出来的时候了。
+功能性增强研究备受争议。2014年，奥巴马政府削减了对这项高风险生物研究的资助。联邦研究实验室发生生物安全事件后，政府做出了这一决定。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/FdAK5MWZUGy93/images/c17fad03-5d19-4b9b-a501-c9f22a18e69a.jpg?asset_id=d44a8b3f-6aa7-4b07-92a4-ebc1b5e25386&amp;img_etag=%22d81e1000ba57df8d657f74b3c9318682%22&amp;size=2560)](https://spark.adobe.com/page/FdAK5MWZUGy93/images/c17fad03-5d19-4b9b-a501-c9f22a18e69a.jpg?asset_id=d44a8b3f-6aa7-4b07-92a4-ebc1b5e25386&amp;img_etag=%22d81e1000ba57df8d657f74b3c9318682%22&amp;size=1024)
+Gateway Pundit曾报道，奥巴马政府在美国项目被关闭后，向武汉病毒学研究所提供了370万美元。
 
-参议员乔希-霍利（Josh Hawley）表示，现在是站起来反对撤销文化的时候了。 (纽约邮报)
+[!\[\]()!\[\](https://spark.adobe.com/page/UUsiKb7LemetF/images/453c079a-43f1-4821-935e-dc9522fb0799.png?asset_id=26fdb01f-de99-496d-b8aa-9d242b938abb&amp;img_etag=%2238032c746a62ec7105b0d339e6cad19d%22&amp;size=2876)](https://spark.adobe.com/page/UUsiKb7LemetF/images/453c079a-43f1-4821-935e-dc9522fb0799.png?asset_id=26fdb01f-de99-496d-b8aa-9d242b938abb&amp;img_etag=%2238032c746a62ec7105b0d339e6cad19d%22&amp;size=1024)
 
-和老式的那种信用分一样，你的社会信用也需要大量的维护。你需要在学校里取得好成绩，不惹上法律的麻烦。但这仅仅是个开始—现在你必须赢得在文明社会中生活的权利。所以，如果你想找到一份好工作，住在酒店里，在餐馆里得到服务，你就需要做一些其他的事情。你需要有正确的舆论导向。你需要赞同正确的观点。你需要顺从。总之这就是企业领袖告诉我们的。
+史蒂夫•希尔顿周日报道说，安东尼•福奇博士正在为实验室中产生潜在危险病毒的研究欢呼。
 
-他们这个月想训斥我，因为我没有（顺从）。我代表我州的选民向宾夕法尼亚州的总统选举人提出质疑，因为该州的选举违反了该州的宪法。也许你同意我的观点，也许你不同意。但无论你的观点如何，美国大公司急于禁声那些它不喜欢的人的做法应该让你感到困扰。
+在他的周日报告中，史蒂夫•希尔顿透露了福奇博士如何向导致冠状病毒大流行的项目提供资金。
 
-针对我，开始于左派政客要求我辞职，因为我代表我的选民的意见，并在参议院领导民主辩论。
+这是史蒂夫•希尔顿在福克斯新闻上的一个很有杀伤力的片段。
 
-霍利因道德投诉而抨击参议院民主党人，说他们在 “试图压制异议”。
-
-以此为契机，一家集团出版社就取消了它请我写的一本书。具有讽刺意味的是，这本书是关于美国最强大的公司的政治审查制度。(并将由一家独立出版社出版。)现在，美国企业取消了我的政治活动，因为两党相争显然是多此一举的。。
-
-情况会变得更糟。科技巨头们已经将数十名保守派人士从社交媒体上赶了出去，如果他们得逞，众议院共和党会议的一半成员将被驱逐出国会。企业巨头们似乎认为，要想让民主制度符合他们的胃口，唯一的办法就是消除对民主党一党控制政府的所有威胁。
-
-左翼分子和觉醒的资本家联盟希望能控制每个美国人的内心想法，从学生到退休的人。而且他们还训练了觉醒的正统派的执法者，来监督异议或不当行为。一个在交通中加塞了错误的人的 “凯伦 “被直播跟踪回家，被羞辱得哭着求饶，因为她的车牌被直播到网上平台迫使她失去了工作。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/FdAK5MWZUGy93/images/4dc0958d-3b70-4b92-bf20-4ab0aa812fa1.jpg?asset_id=f480223d-2b27-49f7-b4c2-b105f574550d&amp;img_etag=%22f3f8ac050d98be6b257bb656cf362d52%22&amp;size=2560)](https://spark.adobe.com/page/FdAK5MWZUGy93/images/4dc0958d-3b70-4b92-bf20-4ab0aa812fa1.jpg?asset_id=f480223d-2b27-49f7-b4c2-b105f574550d&amp;img_etag=%22f3f8ac050d98be6b257bb656cf362d52%22&amp;size=1024)
-
-2021年1月20日（周三），在华盛顿的美国国会大厦，当选总统乔-拜登（Joe Biden）的就职典礼前，参议员乔希-霍利（Josh Hawley，中）观看。(Greg Nash/Pool Photo via AP)
-
-每个人都知道这可能发生在自己身上，所以每个人都闭嘴了。信任圈缩小了。对话–太容易被记录–转移到加密的消息应用上。暂时如此。直到这些应用也因为干扰有效的社会信用市场而被禁止。
-
-有一段时间，保守派，认识到我们现在成了反主流文化的一派，沉迷于我们可以选择退出这一切的幻觉。我们会把我们的孩子送到不教授所有这些所谓觉醒的东西的学校。我们在教堂交朋友，而不是在工作中交朋友， 并在有共同目标社区自我安慰，信任和开放仍然是可能存在的 。我们会投下良心的一票，因为投票箱是任何选举都无法夺走的。
-
-如果我们的政治组织受到审查制度的阻碍–比如说，受到大型科技巨头的阻碍–我们可以建立自己的平台。
-
-但左派和大企业们现在正在挑战这一切。当亚马逊可以关闭你的 “保守 “社交媒体平台时，它就不值钱了。你的选票可能还是你的，但如果你的政党对垄断企业无从下手，它是赢不了的。你的教堂，好吧，你现在还可以去，但去错了教堂，几年后你可能就没有工作了。
-
-“释放这个怪物，总有一天它会来找你”。格伦-格林沃德对删除文化运动发出警报。
-
-好消息是只有我们允许，删除文化议程才会成功。只有我们选择什么都不说，我们才需要生活在恐惧中。在这个考验的时刻，保守派不能退缩。我们需要挺身而出，争取每个美国人的发言权。
-
-我们需要站出来捍卫将所有美国人团结在一起的基本原则–自由发言、公开辩论的权利，以及从容地解决我们的分歧，而不必担心因不同意见而被压制或受到惩罚。
-
-我自己是不会退缩的。我的书将被出版，我将继续代表我州的人民，无论左派或大公司们说什么，我都不会害怕或偏袒。
-
-强权者认为现在是巩固他们对社会的控制和压制异议的机会。这意味着，那些相信第一修正案和美国自由基本原则的人，现在必须表明立场，当我们还可以站出来的时候。
-
-[🔗原文链接](https://www.foxnews.com/media/its-time-to-stand-up-against-the-muzzling-of-america)
+🔗[原文链接](https://www.thegatewaypundit.com/2021/01/steve-hilton-report-dr-anthony-fauci-directly-responsible-funding-gain-function-studies-resulted-coronavirus-pandemic-video/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 - [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
-编辑：[【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/FdAK5MWZUGy93/)
+编辑：[【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/UUsiKb7LemetF/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/FdAK5MWZUGy93/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/FdAK5MWZUGy93/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/UUsiKb7LemetF/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/UUsiKb7LemetF/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

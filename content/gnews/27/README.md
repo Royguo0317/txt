@@ -1,123 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫报告：川普政府的政绩——截至2021年1月（十七）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/815901/)
+## 中共利用病毒公开要价威胁全世界- 评习总加速师达沃斯论坛致辞
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/816008/)
 
-五月花写作组 ｜ 翻译：zz17 ｜ 校对：虹陵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告17.jpg)
-## **Part 17 – Combatting the Opioid Crisis **
+**撰稿: 天鹅 审核: pv0**
 
-## **第十七部分：抗击阿片类药物危机**
-
-* * *
-
-### **Brought unprecedented attention and support to combat the opioid crisis. **
-
-### 前所未有的关注和支持抗击阿片类药物危机。
-
-- Declared the opioid crisis a nationwide public health emergency.
-- 宣布阿片类药物危机为全国公共卫生紧急事件。
-- Secured a record $6 billion in new funding to combat the opioid epidemic.
-- 创纪录拨款60亿美元新资金，用于抗击阿片类药物泛滥。
-- Signed the SUPPORT for Patients and Communities Act, the largest-ever legislative effort to address a drug crisis in our Nation’s history.
-- 签署了《对病患和社区支持法案》，该法案是我国在立法层面上，有史以来对解决药物危机做出的最大努力。
-- Launched the Initiative to Stop Opioid Abuse and Reduce Drug Supply and Demand in order to confront the many causes fueling the drug crisis.
-- 发起了《制止阿片类药物滥用和减少毒品供求的倡议》，以应对引发毒品危机的诸多因素。
-- The Department of Health and Human Services (HHS) awarded a record $9 billion in grants to expand access to prevention, treatment, and recovery services to States and local communities.
-- 卫生和公共服务部门(HHS)提供了创纪录的90亿美元款项，用于加强各州和当地社区的预防、治疗和服务恢复。
-- Passed the CRIB Act, allowing Medicaid to help mothers and their babies who are born physically dependent on opioids by covering their care in residential pediatric recovery facilities.
-- 通过了《CRIB法》。为了帮助母亲和她们一出生身体就依赖阿片类药物的婴儿，允许医疗保险支付他们在儿科康复机构住院期间的护理费用。
-- Distributed $1 billion in grants for addiction prevention and treatment.
-- 分发了10亿美元用于预防和治疗药物成瘾。
-- Announced a Safer Prescriber Plan that seeks to decrease the amount of opioids prescriptions filled in America by one third within three years.
-- 宣布了一项“更安全的处方计划”，旨在三年内将美国的阿片类药物处方数量减少三分之一。
-- Reduced the total amount of opioids prescriptions filled in America.
-- 在美国, 减少了阿片类药物处方的总量。
-- Expanded access to medication-assisted treatment and life-saving Naloxone.
-- 增加获得药物辅助治疗和救命的纳洛酮（Naloxone）的途径。
-- Launched FindTreatment.gov, a tool to find help for substance abuse.
-- 启动FindTreatment.gov，该工具可为药物滥用提供帮助。
-- Drug overdose deaths fell nationwide in 2018 for the first time in nearly three decades.
-- 2018年是近30年来，由药物过量导致的死亡在全国范围内的首次下降。
-- Launched the Drug-Impaired Driving Initiative to work with local law enforcement and the driving public at large to increase awareness.
-- 发起了“禁毒驾驶计划”，与地方执法部门和广大驾驶公众合作，以充分地提高认识。
-- Launched a nationwide public ad campaign on youth opioid abuse that reached 58 percent of young adults in America.
-- 发起了一场关于青年人阿片类药物滥用的全国性公共广告活动，惠及了美国58%的年轻人。
-- Since 2016, there has been a nearly 40 percent increase in the number of Americans receiving medication-assisted treatment.
-- 自2016年以来，接受药物辅助治疗的美国人数量增加了近40%。
-- Approved 29 state Medicaid demonstrations to improve access to opioid use disorder treatment, including new flexibility to cover inpatient and residential treatment.
-- 批准了29个州的医疗补助示范，用以改善阿片类药物使用障碍的治疗，包括为住院病人和住院治疗提供新的灵活性。
-- Approved nearly $200 million in grants to address the opioid crisis in severely affected communities and to reintegrate workers in recovery back into the workforce.
-- 批准了近2亿美元的款项，以解决严重受影响的社区的阿片类药物危机，并使工人得以恢复而重新融入劳动力队伍中。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/00123-27.jpg)**图片: EURACTIVE**
 
 
-### **Took action to seize illegal drugs and punish those preying on innocent Americans. **
 
-### 采取行动缉获非法毒品**，**惩罚那些掠夺无辜美国人生命的人**。**
+2021年1月25日，总加速师在世界经济论坛 “达沃斯议程” 对话会中以视频方式发表了《让多边主义的火炬照亮人类前行之路》的致辞。
 
-- In FY 2019, ICE, HSI seized 12,466 pounds of opioids including 3,688 pounds of fentanyl, an increase of 35 percent from FY 2018.
-- 在2019财政年，移民及海关执法局（ICE）和国土安全部（HSI）缉获了包括3,688磅芬太尼在内的共12,466磅阿片类药物，比2018财年增加了35%。
-- Seized tens of thousands of kilograms of heroin and thousands of kilograms of fentanyl since 2017.
-- 自2017年以来缉获了数万公斤的海洛因和数千公斤芬太尼。
-- The Department of Justice (DOJ) prosecuted more fentanyl traffickers than ever before, dismantled 3,000 drug trafficking organizations, and seized enough fentanyl to kill 105,000 Americans.
-- 司法部（DOJ）起诉的芬太尼贩运者比以往任何时候都要多，捣毁了3,000个贩毒组织，并且缉获了大量的芬太尼，数量足以杀死105,000个美国人。
-- DOJ charged more than 65 defendants collectively responsible for distributing over 45 million opioid pills.
-- 司法部控告了超过65名被告, 他们共同负责分销超过4500万粒阿片类药物。
-- Brought kingpin designations against traffickers operating in China, India, Mexico, and more who have played a role in the epidemic in America.
-- 对在中国、印度、墨西哥等地活动的毒贩进行了毒枭认定，他们在美国的毒品泛滥中充当关键的角色。
-- Indicted major Chinese drug traffickers for distributing fentanyl in the U.S for the first time ever, and convinced China to enact strict regulations to control the production and sale of fentanyl.
-- 首次起诉了重要的中国毒贩，依据是他们在美国分销芬太尼。并说服中国政府制定严格的法规来控制芬太尼的生产和销售。
+战友们，我们都知道中共外交部是世界外交史上无耻排名位列前茅的，现在中共国总加速师在国际舞台上也展现出了史无前例的厚颜无耻。让我来揭露一下中共如何利用CCP病毒向全世界公开要价、威胁全世界。
+
+首先，他在致辞中提到“…坚持以国际法则为基础，坚持协商合作”。我们都知道中共国以及习近平本人刚刚被美国认定为种族灭绝、反人类罪不久，最近他更是销声匿迹不敢公开露面。此时却高调通过视频露面，无耻的是竟然在致辞中提到国际法、协商合作。请问你在香港问题、西藏问题、南中国海有没有遵守国际法？请问你们在国内的所作所为，在打砸抢、以黑治国、以警治国的时候有没有想过协商合作呢？
+
+他还重点提到了“…推动构建新型国际关系，向着构建人类命运共同体不断迈进”。“构建新型国际关系”，言下之意是要颠覆美国作为世界超级大国的格局，中共国要做第二个美国，甚至要超越美国；“构建人类命运共同体”则是中共要和你们全世界的国家绑在一起，和这些国家的黑暗势力勾兑在一起，只有这样中共才能永远奴役中国人民、奴役全世界人民。这两个主题中共很早就在宣传，包括“一带一路”、“中国制造2025”、“中国梦”等战略、规划，都是为了这两个邪恶目的而服务的。
+
+另外致辞中多次提到“新冠肺炎疫情”带来的危机与问题，但却不提病毒起源、病毒扩散到全世界都是来源于中共，反而出来扮演救世主的角色。这反映出了中共政府一贯的流氓本性。
+
+在国际政治形势上，总加速师再次向全世界开药方，指出“…解决问题的出路是维护和践行多边主义，推动构建人类命运共同体”，殊不知中共内部早已病入膏肓，各派系人心惶惶，内斗加剧，总加速师还继续做着一统江山的美梦。请问美国对CCP病毒造成的生命、经济损失不追究了？欧洲、全世界人民也不追究了？就能让你中共国来领导，来指挥吗？人家西方国家能和你“茅屎坑”成为共同体吗！老鹰能和蛆一起玩吗！不仅如此，目前中共国已被美国定义为敌对国家，犯下种族灭绝、反人类罪，请问这样的国家能让全世界放心吗？试问一个种族灭绝、反人类罪犯，他给你开的药方你敢信吗，敢用吗？
+
+最后，总加速师利用CCP病毒公然威胁全世界，和全世界交换利益、谈条件。“…继续积极参与国际抗疫合作…”，告诉全世界，没有我中共，你们的疫情好不了，人民还会死，经济还会继续走低，政府下台，人们恐慌；“…继续实施互利共赢的开放战略…”，告诉全世界，和中共合作、勾兑才能带来共赢，要对中共开放市场，搞“买买买”、“一带一路”战略，大家发财；“…打造开放、公平、公正、非歧视的科技发展环境…”科技领域上不要搞封锁，要允许中共国的投资，我们偷技术不叫偷，是合作发展，互惠互利。总之一句话，没有我们中共你们全世界国家都别想好过。
+
+庆幸的是，爆料革命横空出世，郭先生揭露了中共国的黑暗计划；爆料革命传播香港真相；让全世界认清、区分中共与中国人民；从美国与中共积极合作到定义中共为种族灭绝、反人类罪；闫博士揭露CCP病毒真相，全球战友大游行，推动全世界灭共——这一切都是正义的必须，全世界都应认识到人类最大的敌人就是中共！没有共产党才有光明、美好的新世界！
 
 
-（完结）
 
-* * *
 
-原文来源：
 
-[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
+**本文仅代表作者个人观点。**
 
-往期链接：
 
-[白宫报告：川普政府的政绩——截至2021年1月（一）](https://gnews.org/zh-hans/761018/)
 
-[白宫报告：川普政府的政绩——截至2021年1月（二）](https://gnews.org/zh-hans/761213/)
+**新闻来源：**
 
-[白宫报告：川普政府的政绩——截至2021年1月（三）](https://gnews.org/zh-hans/766962/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（四）](https://gnews.org/zh-hans/767022/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（五）](https://gnews.org/zh-hans/771076/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（六）](https://gnews.org/zh-hans/771727/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（七-1）](https://gnews.org/zh-hans/779811/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（七-2）](https://gnews.org/zh-hans/780079/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（八）](https://gnews.org/zh-hans/788066/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十一）](https://gnews.org/zh-hans/802251/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十二）](https://gnews.org/zh-hans/802307/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十三）](https://gnews.org/zh-hans/802335/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十四）](https://gnews.org/zh-hans/802367/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十五）](https://gnews.org/zh-hans/815742/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十六）](https://gnews.org/zh-hans/815787/)
-
-* * *
-
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
-
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
-
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+[http://www.xinhuanet.com/politics/2021-01/25/c\_1127023883.htm](http://www.xinhuanet.com/politics/2021-01/25/c_1127023883.htm)
 
 0

@@ -1,46 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国国务院：中共国对台湾的军事压力破坏地区和平与稳定
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/816121/)
+## 1/26/2021 财经快讯：拜登政府签署购买美国商品行政命令; 中共病毒对世界经济冲击仍在继续
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/816244/)
 
-*新闻来源：美国国务院 | 发言人：Ned Price 内德•普莱斯 | 发布时间：2021年1月23日*
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/Picture999-7.jpg)
+图片来源： [https://www.dw.com/](https://www.dw.com/)
 
-*翻译/简评：随波逐流 |校对：感恩 |审核：万人往 |Page：小雨*
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/United-States-Department-of-State-Security.jpg)
-
-**简评：**
-
-美国国务院发文指出，中共国不断企图恐吓包括台湾在内的邻国，敦促北京停止对台湾的军事、外交和经济施压，转而安排与台湾民选代表进行有意义的对话。同时美国表明了对台湾承诺不变的立场，继续协助台湾保持自卫能力。美国将与朋友和盟友站在一起，促进在印度太平洋地区的共同繁荣、安全和价值观，维护台湾海峡及整个地区的和平与稳定。
-
-美国国务院的声明，认为中共飞机干扰台湾，是破坏区域和平的做法，明确提出中共国对台湾的军事压力破坏地区和平与稳定，是区域安全和平的威胁。这显示，拜登政府上台会延续过去对中共国的对抗竞争态势不变，美国民主党政府仍秉持过去40多年的两岸架构，以《台湾关系法》、《六项保证》、《三个公报》为基础，鼓励两岸对话。拜登团队从去年底就开始表态支持符合台湾人民最佳利益的两岸方针，现总统拜登刚宣誓就职，国务院就针对中共军机扰台发表声明，并且用词对台湾非常正面、友善，对中共国态度强硬。之前大家关心美国的印太战略会不会改变，此举显示，不但没有改变，还凸显美国政策的延续性。
-
-美国继续认定中共是印太地区安全的威胁，北约之前的军事报告也把中共列为全球威胁。去年11月，美印日澳四国在阿拉伯海的联合军演也是针对中共的军事威胁而来。美国说将和其盟友一起维护印太地区和平与稳定，并派遣军舰在此紧张局势下进入台湾海峡地区，是否美国、北约及印太周边国家已做好了战略部署？他们会否袖手旁观，任由局势进一步恶化？如果中共攻打台湾，必将招致多国联军的打击，中共将迅速土崩瓦解。
-
-**原文翻译：**
-
-# **中共国对台湾的军事压力破坏地区和平与稳定**
-
-新闻发布
-
-内德•普莱斯，国务院发言人
-
-2021年1月23日
-
-美国关切地注意到，中共国不断企图恐吓包括台湾在内的邻国。我们敦促北京停止对台湾的军事、外交和经济压力，转而安排与台湾民选代表进行有意义的对话。
-
-我们将与朋友和盟友站在一起，以促进我们在印度太平洋地区的共同繁荣、安全和价值观——其中包括加深我们与民主台湾的联系。美国将遵从台湾人民的愿望和最大利益，继续支持以和平方式解决两岸问题。美国继续恪守《三个公报》、《台湾关系法》和《六项保证》所概述的长期承诺。我们将继续协助台湾保持足够的自卫能力。我们对台湾的承诺坚如磐石，并有助于维护台湾海峡及整个地区的和平与稳定。
-
-🔗[原文链接](https://www.state.gov/prc-military-pressure-against-taiwan-threatens-regional-peace-and-stability/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+1. **拜登签署“购买美国商品”行政命令**
 
 
-编辑：[【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/6nF5RrMKSjn9l/)
+美国总统拜登1月25日签署了一项关于政府采购的规定行政命令，以支持美国国内制造业，并鼓励联邦政府购买更多在美国制造的产品。拜登的“购买美国商品”计划将通过减少现有的“购买美国商品”规则中的漏洞和豁免，并更改“美国制造”商品的定义，使联邦机构与海外公司签订合同购买海外产品更加困难。拜登在1月25日的发言中说：“正如大流行所表明的那样，我们再也不能使美国在国家紧急状态中，仍必须依靠一个没有共同利益的外国来保护自己的人民的地位的状况。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6nF5RrMKSjn9l/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/6nF5RrMKSjn9l/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[https://www.forbes.com/sites/sarahhansen/2021/01/25/biden-signs-buy-american-executive-order-heres-what-it-means-for-businesses/?sh=71cfa75c2e4d](https://www.forbes.com/sites/sarahhansen/2021/01/25/biden-signs-buy-american-executive-order-heres-what-it-means-for-businesses/?sh=71cfa75c2e4d)
+
+1. **美国商务部宣布拜登-哈里斯政府团队任命**
+
+
+美国商务部于1月25日宣布了新的拜登-哈里斯政府领导下团队的任命。商务部称这是一个由多元化和有成就的个人组成的团队，致力于为所有美国人促进经济发展。这些关键成员将与公务员合作，以促进创造就业机会和经济增长，同时推进拜登-哈里斯政府的包括遏制COVID-19大流行，应对气候危机，确保公平创造就业机会，并帮助企业和社区更好地重建等领域的发展。
+
+[https://www.commerce.gov/news/press-releases/2021/01/us-department-commerce-announces-first-biden-harris-appointments](https://www.commerce.gov/news/press-releases/2021/01/us-department-commerce-announces-first-biden-harris-appointments)
+
+1. **华尔街日报称中共国在外国商业投资方面超过美国**
+
+
+《华尔街日报》在1月24日报道称，中共国是2020年新的外国直接投资的最大目的地，超越了美国长期以来的领先地位。据联合国周日公布的数据显示，在2020年，美国新的外国直接投资下降了49％，而中共国上升了4％。该报告称，2016年，美国的外国投资达到创纪录的4720亿美元，大大高于当时在中国的外国投资1340亿美元。但是，2017年美国的外国投资开始下降，而中国的外国投资却有所增加。
+
+评：中共国数据造假的传统以及长期以来一贯地与华尔街利益集团的蓝金黄和勾兑使人对报告的准确度存疑。
+
+[https://dailycaller.com/2021/01/25/report-china-overtakes-united-states-foreign-business-investments/](https://dailycaller.com/2021/01/25/report-china-overtakes-united-states-foreign-business-investments/)
+
+1. **拜登对石油的暂停引起了新墨西哥州的巨大关注**
+
+
+美国总统拜登对新的石油和天然气租约和钻探许可暂停60天的决定在新墨西哥州引起了广泛关注。该州的共和党高层以及美国产量最高的二叠纪盆地附近社区的当地领导人说，任何永久暂停生产的举措都将对该州的经济造成毁灭性打击。新墨西哥州的石油产量有一半是在联邦土地上生产的，每年的特许权使用费高达数亿美元。其他州的国会议员也表示担忧说，禁令的连锁反应将伤害那些已经受到疫情影响而苦苦挣扎的小企业。
+
+[https://www.breitbart.com/news/bidens-pause-on-oil-cause-for-big-concern-in-new-mexico/](https://www.breitbart.com/news/bidens-pause-on-oil-cause-for-big-concern-in-new-mexico/)
+
+1. **欧盟与阿斯利康因疫苗供应产生冲突**
+
+
+欧盟最高卫生官员在1月25日称不满意阿斯利康在解决延迟向欧盟交付COVID-19疫苗而引起的争端的答复。与牛津大学合作的阿斯利康在1月22日向欧盟表示，直到三月底，它都无法实现商定的供应目标。欧盟要求阿斯利康找到灵活的供应方式，并敦促其披露疫苗生产和分配数据。
+
+评：真正解决冠状病毒的方法在于消灭制造病毒的中共。而疫苗生产和供应与中共利益有千丝万缕的联系，且疫苗的有效性和安全性还处于不确定状态。
+
+[https://www.reuters.com/article/us-health-coronavirus-eu-astrazeneca/eu-locks-horns-with-astrazeneca-on-vaccine-deliveries-amid-supply-shock-idUSKBN29U0Y9](https://www.reuters.com/article/us-health-coronavirus-eu-astrazeneca/eu-locks-horns-with-astrazeneca-on-vaccine-deliveries-amid-supply-shock-idUSKBN29U0Y9)
+
+1. **央行连续16个工作日逆回购 累计投放6870亿元**
+
+
+为维护银行体系流动性合理充裕，1月25日，中共国央行以利率招标方式开展了20亿元7天逆回购操作，中标利率维持2.2%不变。截至目前，央行1月份以来的所有工作日，均开展了7天逆回购操作，16个工作日累计逆回购投放6870亿元。川财证券研报称，逆回购的投放能够起到降低货币市场利率的作用，随着央行流动性的投放，影响效果会逐渐显现，银行资金面紧张的形势会得到缓解，资金利率将逐步回归常态。
+
+[https://finance.sina.com.cn/roll/2021-01-26/doc-ikftssap0764232.shtml](https://finance.sina.com.cn/roll/2021-01-26/doc-ikftssap0764232.shtml)
+
+1. **因芯片断供，大众、福特、丰田等多家车企巨头减产停工应对危机**
+
+
+据央视报道，受疫情影响，国际芯片市场出现了短缺潮，不止手机行业，汽车行业也受到波及，大众、福特、丰田等多家汽车企业不得不采取削减产量、减产等方式应对危机。美国伯恩斯坦研究公司预计，2021年全球范围内的汽车芯片短缺将造成多达450万辆汽车产量的损失，相当于全球汽车年产量的近5%。
+
+[https://m.sohu.com/a/446631983\_639898/?pvid=000115\_3w\_a](https://m.sohu.com/a/446631983_639898/?pvid=000115_3w_a)
+
+[金融团队]
+
+素材搜集: 文罡、Wendy、Totoro
+翻译写作: 雪梨Cheli
+校对: Tracy
 
 0

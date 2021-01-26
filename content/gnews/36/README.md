@@ -1,45 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 查尔斯·弗林- 迈克尔·弗林的弟弟被任命领导美国陆军太平洋司令部
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/815575/)
+## 降维打击
+` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/815746/)
 
-**作者: WYATT OLSON**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/16116640421-1.png)（图片来自网络）
+原创作者：迷途狼
 
-**编译: 莫黎**
+审核校对：待命（文晓）
+
+编辑排版：待命（文晓）
+
+像同一个游戏
+
+别人：3D步兵射击游戏
+
+自己：2D地图航母指挥
+
+朋友说：你射击游戏再好也是活不过三分钟。
+
+回了他：不对吧，我这星期六玩了40多分钟都没死一次，一分钟5个人头，还让整个阵营都赢了。只要掌握降维打击技术，就好了。
+
+因为他们都是步兵，只有我造了航母在轰炸。前提是有能力造得出航母。有外挂也不算啥，他们只是3D世界的存在，在我眼里只是地图上一个随手抹掉的小红点。
+
+想到了现在的G系列，星链系统。这就是正在打造的具有降维打击能力，会完全击败现存经济体系，通信体系的星际母舰。当这新时代的母舰完全建成之时，这世界上现存的体系都会成为旧事物，摧枯拉朽的被淘汰掉。旧体系的即存利益者，他们恐惧失去现存利益，而不断的对战友们攻击和拖延。共产党只是其中一个马前卒，当G系列星链完工之时，共产党能算得上什么？
+
+这是一个将改变整个人类的计划，路上必然会有很多挫折乃至背叛，但这些挫折和成功相比能算得了什么，这不是一个庸人能随随便便评价的。鄙人不才，玩步兵时和朋友说的一样，活不过三分钟。只是和朋友不一样，死掉几十次是为了这个航母，那几十次失败和开航母比能算啥？
+
+好日子还没到呢，真战友从未放弃，真战友从未离开，战友们加油！
+
+当然也期待曾经的对手，也参与进来打造航母，成功过渡到下一个时代，何乐而不为。一句老话，王岐山来了，只要他反共，我们也要欢迎！
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/001234-2.jpg)**图片: USArmyWarCollege**
-
-
-
-查尔斯·弗林（Charles Flynn）中将被提名领导美国陆军太平洋司令部，该职位目前由2019年11月上任的保罗·拉卡梅拉将军（Paul LaCamera）担任。
-
-弗林将会在参议院确认后晋升为四星将军，他目前在华盛顿特区担任陆军G-3/5/7部门的副参谋长，该部门负责规划和协调美国本土后备役力量的动员工作。
-
-查尔斯·弗林是2017年短暂担任国家安全顾问的迈克尔·弗林（Michael Flynn）的弟弟。迈克尔·弗林曾在对联邦调查局（FBI）在调查俄罗斯与川普2016年总统竞选活动之间的关系作出”故意 “虚假陈述表示认罪，前总统川普在11月份赦免了他。
-
-查尔斯·弗林最近因1月6日示威者闯国会事件，国民警卫队的迟缓部署面临了审查。华盛顿市政府和国会警察局的官员指称，五角大楼对国民警卫队协助平息骚乱的请求反应缓慢。
-
-据《华盛顿邮报》报道，陆军承认在当地官员提出打来请求的关键电话时查尔斯·弗林也在场，但该部门是在 “连日来虚假否认 “他没有在场之后才承认的。
-
-根据查尔斯·弗林的官方简历，他毕业于美国海军战争学院，并获得了国家安全和战略研究的硕士学位。他有从排到师的指挥经验，并曾在伊拉克和阿富汗服役。
-
-近年来，他曾在夏威夷指挥第25步兵师，之后担任了美国陆军太平洋司令部副司令。
-
-
-
-
-
-**新闻来源: **
-
-Charles Flynn, brother of former national security adviser, tapped to lead US Army Pacific
-
-[https://www.stripes.com/news/pacific/charles-flynn-brother-of-former-national-security-adviser-tapped-to-lead-us-army-pacific-1.659849](https://www.stripes.com/news/pacific/charles-flynn-brother-of-former-national-security-adviser-tapped-to-lead-us-army-pacific-1.659849)
-
-General Officer Assignments
-
-[https://www.defense.gov/Newsroom/Releases/Release/Article/2482280/general-officer-assignments/source/GovDelivery/](https://www.defense.gov/Newsroom/Releases/Release/Article/2482280/general-officer-assignments/source/GovDelivery/)
+文章仅代表作者个人观点
 
 0

@@ -1,27 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 葡萄牙当局考虑向其他欧盟国家求助
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/816498/)
+## 瑞典延长疫情期间旅行建议至4月25日
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/816620/)
 
 - 编辑：Victor Torres
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月26日电/西喜社——**葡萄牙卫生部长表示，在中共病毒病例急剧增加的情况下，当局正在考虑向其他欧盟国家求助。
+**西班牙2021年1月26日电/西喜社——**瑞典外交部长表示，这个斯堪的纳维亚国家的人们不应该期望在复活节期间能够在全球范围内旅行。因为瑞典延长了其建议，以避免前往欧盟和欧洲申根旅行区以外的国家进行不必要的旅行。
 
-根据约翰·霍普金斯大学的统计，过去一周，葡萄牙每10万人的日新增病例数和死亡数均为全球最严重。
+“我们的评估是，全球将有几个月的不确定性。这是一个整体的评估，是关于目的地的情况会是什么样的，”外交部长安·林德(Ann Linde)周二表示。
 
-卫生部长玛尔塔·特米多说，将病人送往其他欧盟国家在该集团并不罕见。但她说，葡萄牙的劣势是地理位置偏远，整个欧洲大陆的医院都面临着疫情的压力。她说，该国可能反而会要求派遣医疗工作者。
+林德说，避免前往欧盟以外地区旅行的建议将持续到4月15日。复活节是在4月初。
 
-特米多告诉公共广播公司RTP，葡萄牙医院面临严重的压力。”我们有床位可用，”她说。”我们所努力的是寻找工作人员。”
+她补充说，在27个成员国的欧盟内部旅行 “绝不是没有风险的”，尽管并不建议反对。
 
-这一要求可能难以实现，因为27国集团中的所有国家都在处理自己的大流行病，现在由于病毒变种的出现而变得更加困难。
+瑞典保持社会大部分地区的开放，已经有11005例确诊病毒死亡，超过54.71万例感染。
 
 **新闻来源：**[https://apnews.com/article/travel-beijing-migrant-workers-coronavirus-pandemic-china-ebf87fbc0ac60e7a591da9a3823bce6d](https://apnews.com/article/travel-beijing-migrant-workers-coronavirus-pandemic-china-ebf87fbc0ac60e7a591da9a3823bce6d)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/18dbb199-512c-4684-bece-ca81cf35e680-4.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/03185094-8466-4cda-8c39-5f25ccee2451-12.jpg)
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 

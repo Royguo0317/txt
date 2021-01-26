@@ -1,28 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 台湾隔离5000人并寻找新病例来源
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/816735/)
+## 川普宣布设立“前总统”办公室
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/816935/)
 
-- 编辑：Victor Torres
+俄罗斯莫斯科喀秋莎农场 文强
 
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/下载-2-1.jpg)[livetradingnews.com](https://www.livetradingnews.com/us-president-donald-trump-completes-25th-week-oval-office-48227.html)
+周一（1月25日）第45届美国总统唐纳德·约翰·川普在佛罗里达州棕榈滩县正式开设了“前总统”办公室，主要作为川普总统公开回应、组织活动和发放声明的对外媒体平台。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+“前总统”办公室首份声明称，办公室将负责川普的通讯联络、公共声明、露面和正式活动，以推进美国的利益，并通过倡导、组织和公众行动来推进川普政府的议程。川普将一直和永远是美国人民的捍卫者。
 
-**西班牙2021年1月26日电/西喜社——**台湾卫生当局正在隔离5000人，同时寻找与一家医院有关的两例新的中共病毒病例的来源。
+20日川普在安德鲁斯空军基地告别演讲中说过，我们将会以某种形式卷土重来，再次回归。川普在卸任后几天，始终没有公开露面。据悉在他的高尔夫俱乐部曾接受《华盛顿观察家》记者的简短采访，只透露说：“我们会做些事情，并非现在，但很快。”然而没有提供更多细节。第45任总统办公室的设立是川普“再次回归”承诺的具体表现。
 
-官员表示，他们还无法确定这对夫妻是如何在毗邻台湾首都的桃园市总医院短暂住院后被感染的。该男子因与中共病毒无关的健康问题在医院住了3天，而他的妻子则在医院照顾他。
+1月6日国会骚乱事件之后，迄今为止川普的个人推特账号始终被禁止使用，其它主要社交媒体平台也暂停了他的账号。“前总统”办公室的设立也是川普对左媒“禁言”的有力回应。
 
-被要求隔离的人包括1月6日至19日期间出院的病人及其护理人员。
+目前川普正在为2月8日国会参议院的弹劾审讯准备辩护团队。据悉，众议院在13日以232对197票通过弹劾议案，指前总统川普煽动暴民1月6日袭击国会大厦，犯有“严重罪行与不检行为”。众议院周一（25日）晚7点多已经向参议院递交针对川普的第二次弹劾条款。参议员们将依照程序在周二（26日）宣誓参加审讯。川普成为有史以来唯一一位被众议院提案弹劾两次的总统。
 
-台湾在最新的国内群发事件后，目前已经有15例来自桃园医院的病例，台湾已进入高度戒备状态。
+参考链接：
 
-台湾在遏制中共病毒方面的努力迅速而持续，尽管距离中国很近，但仅有7人死亡，确诊病例不到900例，这一点一直为人称道。
+[https://thehill.com/homenews/administration/535771-trump-establishes-office-of-the-former-president-in-florida](https://thehill.com/homenews/administration/535771-trump-establishes-office-of-the-former-president-in-florida)
 
-**新闻来源：**[https://apnews.com/article/travel-beijing-migrant-workers-coronavirus-pandemic-china-ebf87fbc0ac60e7a591da9a3823bce6d](https://apnews.com/article/travel-beijing-migrant-workers-coronavirus-pandemic-china-ebf87fbc0ac60e7a591da9a3823bce6d)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/ea0dfda7-7122-411f-941c-d7a292446d32-5.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+[http://www.soundofhope.org/post/467672](http://www.soundofhope.org/post/467672)
 
 0
