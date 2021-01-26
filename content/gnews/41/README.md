@@ -1,26 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧盟施压阿斯利康提供更多疫苗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/810146/)
+## 达沃斯论坛习视频警告“傲慢孤立”必失败
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/813379/)
 
-- 编辑：Victor Torres
+俄罗斯莫斯科喀秋莎农场    银河
 
+编辑   水星    上传    银河
+![]()![](https://cdn.discordapp.com/attachments/799010586356351066/803458400003555359/X.JPG)facebook.com
+1月25日财经媒体CNBC报道，中共国家主席习近平在达沃斯会议上敦促国际社会把分歧放在一边，在拜登时代的首次讲话中呼吁团结，警告不要“傲慢孤立”。习称：历史已经表明，选择单打独斗的国家“将永远失败”。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+习近平本人没有露面，他通过视频发表讲演，“我们一再被证明，以邻为壑，单打独斗，陷入傲慢的孤立，永远不会成功。让我们携起手来，让多边主义照亮我们迈向人类命运共同体的道路。” 达沃斯论坛自2017年以来,首次提升到多边国际事务的议题。
 
-**西班牙2021年1月25日电/西喜社——**欧盟正在向制药公司阿斯利康施压，要求其向27个国家提供更多的疫苗，并坚持最初的承诺，尤其是在其投资提高产能之后。
+习说，“建立小圆圈或开始一个新的冷战，拒绝、威胁或恐吓他人，实施脱钩，供应中断或制裁，并创建隔离或隔阂只会将世界推向分裂甚至对抗。”习强调，“在一个分裂的世界里，我们无法应对共同的挑战，对抗只会让我们走到死胡同。”
 
-欧盟委员会主席乌尔苏拉·冯·德·莱恩(Ursula von der Leyen)周一与阿斯利康的负责人举行了紧急会谈。欧盟各国也在与阿斯利康会面，推动其提高产量，实现合同目标。
+这番言论明显指责美国前总统川普对中共的强硬政策及“美国优先”方针。美国总统拜登(Joe Biden) 就职不到一周，外界正密切关注美国领导层的变动会如何影响紧张的外交关系，关注拜登在人权、贸易政策、领土争端和中共病毒等问题上的反应。习近平的讲话无疑是隔空对拜登政府警告施压，提醒美方“对抗会把我们带进死胡同”。
 
-欧洲药品管理局定于周五对牛津-阿斯利康的中共病毒疫苗进行审查，该疫苗的批准备受关注。
+周六和周日中共空军飞机连续两天进入台湾防空识别区，分析人士称此举也是为了测试拜登政府对台湾的支持程度。中共已将武统台湾提上日程，拜登政府的态度将影响台海局势的发展。
 
-整个欧盟的领导人正因为该集团缓慢地推出疫苗接种计划而承受沉重的压力，特别是与以色列或英国相比。
+美国国务院周六重申了帮助台湾自卫的“坚如磐石”的承诺，并在周日派遣了航空母舰群进入有争议的南中国海，以促进“海洋自由”。
 
-**新闻来源：**[https://apnews.com/article/pandemics-andrej-babis-coronavirus-pandemic-czech-republic-germany-cb92fa172f477c2008e98536d9523a5f](https://apnews.com/article/pandemics-andrej-babis-coronavirus-pandemic-czech-republic-germany-cb92fa172f477c2008e98536d9523a5f)
+中共一边呼吁国际社会团结，一边一如既往地“战狼”恐吓。在国际社会已经认识到中共带给世界的威胁后，期待各方正义力量的团结，揭穿中共病毒真相，铲除邪恶共产专治政权这一真正影响世界和平安定的毒瘤。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/4ed06a27-957b-4023-a6de-33a29deff94a-17.jpg)
+参考链接：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+[China: Xi calls for unity in 2021 Davos speech; first remarks of Biden era (cnbc.com)](https://www.cnbc.com/2021/01/25/china-xi-calls-for-unity-in-first-remarks-of-biden-era-warns-against-arrogant-isolation.html)
 
-0
++1

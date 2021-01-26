@@ -1,28 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇:科学家准备升级中共病毒疫苗以应对变种
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/810189/)
+## 台湾Taiwan主题相关谷歌趋势分析
+` G-Talent技术社区` [轉載自GNews](https://gnews.org/zh-hans/813378/)
 
-- 编辑：Victor Torres
+*分析师：曾经傻白甜｜数据ETL：1324大数据分析作战室｜编辑/审核：G-Talent*
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月25日电/西喜社——**安东尼·福奇博士说，科学家们已经在准备升级中共病毒疫苗，以应对现在在英国和南非流传的中共病毒变种。
+* * *
 
-福奇说，这些变种不仅传染性更强，而且它们对治疗患者的单克隆抗体的反应也不好。他说，他特别关注南非的变异体，他形容这种变异体 “与英国的变异体不同，更不祥”。
 
-“数据还没有正式出来，但看看英国科学家分析的初步数据，我很相信实际感染的严重性有一定程度的增加，我们真的要保持关注，”福奇告诉NBC的 “今日 “节目。
+![01.25.2021 台湾相关谷歌趋势图]()![01.25.2021 台湾相关谷歌趋势图](https://gnews.org/wp-content/uploads/2021/01/1324大数据-01252021.jpg)
+1、图中为美国地区谷歌趋势，其中色曲线为 **Biden Taiwan China**，蓝色曲线为**Chinese Air Force**。从一周的谷歌趋势可见，23日以后有关的搜索迅速上升，今日（Jan25） **Biden Taiwan China**达到100点。台海局势紧张程度继续升温。
 
-他说，疫苗对这些变种的有效性也有 “非常轻微的、适度的减弱”，但 “我们拥有的疫苗有足够的缓冲，我们仍然认为它们对英国毒株和南非毒株都是有效的。”
+2、台湾国防部宣布**1月23日**有13架中共解放军军机进入台湾西南防空识别区，包括8架H-6K轰炸机、4架歼-16和1架运-8反潜机。次日**1月24日**又有15架军机进入。据路透社报导，中共解放军在台海常规的任务通常只有一两架侦察机或反潜机，而这周末有将近30架多机种的军机甚至包括8架H-6K是不寻常的。
 
-“我们真的需要确保我们开始，而且我们已经开始，准备如果有必要升级疫苗，”福奇说。”尽管我们现在拥有的疫苗确实有效，但我们已经在朝着这个方向采取措施了。”他在NBC的 “今日 “节目和 “CBS今晨 “节目中发表了讲话。
+3、1月23日，拜登就职后两天，罗斯福号航母打击群（**TRCSG**）进入南中国海“执行例行任务”。路透社指出H-6K协带中距离反舰导弹具有攻击航母打击群的能力，和航母打击群同时出现是特别有意思的。
 
-**新闻来源：**[https://apnews.com/article/pandemics-andrej-babis-coronavirus-pandemic-czech-republic-germany-cb92fa172f477c2008e98536d9523a5f](https://apnews.com/article/pandemics-andrej-babis-coronavirus-pandemic-czech-republic-germany-cb92fa172f477c2008e98536d9523a5f)
+4、美国国务院发言人**Ned Price**在一份声明中提到“将继续协助台湾保持足够的自卫能力“。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/ef67ad10-2516-4897-95d6-94dc3ba83fa7-12.jpg)
+继续关注下一步的台海事态发展。
+Hashtags: #H-6Kbombers #TRCSG #USSTheodoreRoosevelt #SouthChinaSea #Taiwan #ChineseAirForce #PLAAircraft
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+
+
+#### [G-Talent BigData&AI \[1324大数据分析作战室\]](https://discord.gg/ZR9ZgCSCHq)
+
+#### [WBM爆料革命网址导航](https://gtalent.club)
+
+
 
 0

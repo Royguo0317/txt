@@ -1,28 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德人口最多州老年人疫苗启动现混乱
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/810116/)
+## 密歇根县共和党一致 “指责和谴责”众议员弗雷德·厄普顿投票弹劾川普总统
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/813372/)
 
-- 编辑：Victor Torres
+翻译：康州盘古农场-Bruce
 
+校对：康州盘古农场-烟波浩淼
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+审核：康州盘古农场-Truemanman
+![]()![](https://gnews.org/wp-content/uploads/2021/01/图片3-17.png)
+密歇根州一个县的共和党投票谴责美国众议员弗雷德·厄普顿（Fred Upton），因为他投票弹劾总统唐纳德·川普。
 
-**西班牙2021年1月25日电/西喜社——**数千名德国老人正面临着在线错误信息和热线堵塞，因为技术问题破坏了该国人口最多的州80岁以上老人的中共病毒疫苗行动的启动。
+在众议院民主党人匆匆通过决议后，厄普顿与包括密歇根州同胞、大急流城众议员彼得·梅杰（Peter Meijer）在内的其他9名共和党人一起弹劾川普。
 
-北莱茵·威斯特法伦州的人口近1800万，比许多欧洲国家都要多，上个月开始给养老院的住户和工作人员注射疫苗。
+《密西根生活报》（MLive）报道称，阿勒根县共和党大会的代表们投票 “指责和谴责”厄普顿的投票。
 
-但80岁以上仍住在家里的人却要在庞大的疫苗中心等待预约打第一针，许多人可能要等待更长时间。
+代表团称厄普顿 “无视阿勒根县选民的声音”，投票支持弹劾川普。该代表团称，“证据不全、辩论不多、缺乏正当程序”导致对厄普顿的谴责。
 
-技术问题是州长阿明·拉谢特（Armin Laschet）的尴尬，他最近当选为总理默克尔的中右翼政党的新负责人。
+该代表团说:“在大会结束后,立即召开的执行委员会会议上，又一次全票通过语音投票确认了一致的语音投票，阿勒根县共和党（AGOP）问题委员会负责提出进一步行动的建议。”
 
-北莱茵-威斯特法伦州是科隆、杜塞尔多夫和多特蒙德等重要城市的所在地，目前在德国人均接种疫苗排行榜上遥遥领先，约有1.6%的人口接种了第一针。
+厄普顿对此表示：“我总是说，当我同意川普总统的观点时，我会支持他，当我认为他错了时,我会不同意,国会不应该容忍任何阻碍权力和平交接的努力。”
 
-**新闻来源：**[https://apnews.com/article/pandemics-andrej-babis-coronavirus-pandemic-czech-republic-germany-cb92fa172f477c2008e98536d9523a5f](https://apnews.com/article/pandemics-andrej-babis-coronavirus-pandemic-czech-republic-germany-cb92fa172f477c2008e98536d9523a5f)
+根据选票网的数据，在2020年，厄普顿轻松赢得竞选，55.8%比40.1%，战胜了民主党州议员Jon Hoadley。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/5fc2e03c-90cf-4813-b03a-a5f3fe51dec8-1.jpg)
+据该政治年鉴网站报道，在2018年——当川普不在选票上时——厄普顿以微弱优势获胜，50.2%比45.7%。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+厄普顿不是唯一一个因弹劾川普而受到强烈反对的共和党人。
 
-0
+据《Breitbart》新闻报道，上周末，怀俄明州卡本县（Carbon County）共和党中央委员会宣布正式谴责众议员切尼（Liz Cheney），因为她也投票弹劾了这位前任总统。
+
+这份全票通过的决议说: “切尼代表违反了选民的信任，没有忠实地代表怀俄明州大多数的有积极性的选民，忽视了她代表党的职责和选举她来代表他们的人民的意愿。”
+
+怀俄明州共和党还抨击切尼站在 “左派”一边。
+
+在我们的任期内，还没有一次看到过共和党同胞的这种强烈抗议，愤怒和沮丧在我们收到的评论中显而易见。我们的电话一直没有停止响起，我们的电子邮件也在不断充实，我们网站的访问量也比以往任何时候都多。大家的共识很清楚，那些向党伸出援手的人坚决不同意切尼代表的决定和行动。
+
+切尼的投票促使人们要求她辞去众议院共和党会议主席的职务。
+
+原文作者：凯尔·奥尔森（Kyle Olson）
+
+发布时间： 2021年1月24日
+
+文章链接：[https://www.breitbart.com/politics/2021/01/24/michigan-county-gop-unanimously-censures-condemns-rep-fred-upton-impeachment-vote/](https://www.breitbart.com/politics/2021/01/24/michigan-county-gop-unanimously-censures-condemns-rep-fred-upton-impeachment-vote/)
+
++2
