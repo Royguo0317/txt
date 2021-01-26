@@ -1,42 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】「多猫腻」13亿美元的诉讼
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/813237/)
+## 佩洛西：周一向参议院递交弹劾条款
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/814042/)
 
-**旧金山金喜准农场：**Wenwu
+翻译：康州盘古农场-Bruce
 
-据纽约邮报Ebony Bowden在美东时间1月25日12点24分报道，华盛顿众议院的共和党人员认为1月6日围睹美国国会与推特和脸书有关。在该报道中表明，这两家大科技公司曾经在大选期间给民主党输送过大量资金。
+校对：康州盘古农场-烟波浩淼
 
-[据福克斯新闻週一报道，立法者卡罗琳·马洛尼（D-NY）表示，这些科技巨头正在与民主党人发展一个日益紧密的联盟，以「压制某些观点」。而在暴乱发生后，Facebook、Instagram和Twitter还暂时禁止美国川普总统进入他们的平台，抢走了即将离任的美国川普总统的账号。这和我们爆料革命的战友在推特和脸书上的经历如此相似，值得注意的是这些大科技公司不想证明我们观点的真实性，直接封杀或者给需要压制的观点加标签。](https://www.foxnews.com/politics/house-oversight-fbi-probe-parler-capitol-riot-facebook-twitter)
+审核：康州盘古农场-Truemanman
+![]()![](https://gnews.org/wp-content/uploads/2021/01/图片4-14.png)
+参议院多数党领袖查克·舒默(Chuck Schumer)表示，众议院针对总统川普的弹劾文书将在周一递交给参议院，一些宪法专家表示这是不可能完成的任务。
 
-另外一方面，当下拜登已经是美国的现任总统。据OANN在美东时间1月25日3点43分报道，今日「多猫腻」投票系统向华盛顿联邦法庭对鲁迪·朱利安尼提起了诉讼。其指控朱利安尼散布虚假的选民欺诈指控。朱利安尼在不久后的一份声明中表示，诉讼的代价是「吓唬胆小的人」。朱利安尼作為美国前总统川普的私人律师，对他来说这起诉讼是相当对口。
+舒默周五在参议院会议上说：“我已经和佩洛西议长谈过了，她告诉我，文件将在周一递交给参议院。” 舒默指的是众议院议长南希·佩洛西（Nancy Pelosi）。
 
-在该报道中称，朱利安尼对「多猫腻」提起反诉，指控其侵犯宪法规定的言论自由权和律师有力捍卫客户的能力。并反驳称，如果证明摇摆州选票有错，许多人将会坐牢。以下是朱利安尼先生的一则推特：
+几个小时后，佩洛西证实，该文件确实将在1月25日移交。
 
+她在一份声明中提到了她的弹劾经理：“我们的宪法和我们的国家在首席经理杰米·拉斯金以及代表戴安娜·德盖特，大卫·西西林，华金·卡斯特罗，埃里克·斯沃尔韦尔，特德·利尤，斯泰西·普拉斯基特，马德琳·迪恩和乔·尼格塞的非凡领导下得到了很好的服务， 我们尊重参议院对审判的宪法权力，并始终关注程序的公平性，注意到前总统将有与我们的经理人相同的时间来准备审判。”
 
+这意味着参议院将在美国东部时间周二下午1点左右开始审判，除非参议院达成协议，将审判时间推后。在上一次弹劾审判中，首席大法官约翰·罗伯茨（John Roberts）主持了审判，但目前还不清楚他这次是否会主持审判。
 
-> DISCOVERY: A 68% ERROR rate found in votes PROVES intentional fraud! 
-> 
-> PA, AZ, GA, MI, and WI should agree to let us audit the Dominion machines. If they didn’t cheat, what are they afraid of? We MUST have an audit!
-> 
-> Rudy Giuliani’s analysis HERE: [https://t.co/Ri9Q1GJMzF](https://t.co/Ri9Q1GJMzF) [pic.twitter.com/FpTtVfS7bg](https://t.co/FpTtVfS7bg)
-> — Rudy W. Giuliani (@RudyGiuliani) [December 21, 2020](https://twitter.com/RudyGiuliani/status/1341050325751492608?ref_src=twsrc%5Etfw)
+参议院少数党领袖麦康奈尔(Mitch McConnell)提议将审判推迟到2月，以便给川普的法律团队准备时间。
 
+一些共和党参议员对这一前景表示反对。
 
-朱利安尼去年12月21日的推特，声明68%的计票有误
-据NEW YORK (77WABC)1月25日Lidia Curanaj的报道，“多猫腻”的律师在周一上午在华盛顿特区地区法院提起的诉讼中写道：“对自治领业务和声誉的伤害是前所未有的，也是无法弥补的，因为数百万人非常热切地相信它。”
-![]()![](https://gnews.org/wp-content/uploads/2021/01/2020-12-09-1-scaled.jpg)Former Mayor of New York City Rudy Giuliani addresses delegates on the opening day of the Republican National Convention at the Quicken Loans Arena in Cleveland, OH, on July 18, 2016. (Photo by Anthony Behar) \*\*\* Please Use Credit from Credit Field \*\*\*
-WABC电台的主持人也发表了以下声明：
-「‘多猫腻’13亿美元的诽谤诉讼将允许我全面彻底调查他们的历史、财务和做法。显然，要的金额是為了吓唬胆小的人。这是充满仇恨的左翼的另一项恐吓行為，消灭和审查言论自由的行使，以及律师有力地為委託人辩护的能力。因此，我们将调查对侵犯这些宪法权利的反诉。」——鲁迪·朱利安尼
+据美国有线电视新闻网（CNN）报道，共和党领导层成员、得克萨斯州参议员约翰·科宁（John Cornyn）说：”我们不进行任何确认，不进行任何COVID-19救济，除了弹劾一个连总统都不是的人之外，我们不做任何其他事情”。
 
-在这起事件中，社交平台也起到了相当大的作用。当人们在推特上发推文、转发并愤怒地抨击「多猫腻」窃取了他们的选票时，即在事情未被证实的情况下，传播受到了媒体的打压。这显然是在打压言论自由，是我们有权发声的。
+一些专家，包括哈佛大学法学名誉教授艾伦·德肖维茨表示，弹劾一位前总统的前所未有的，并且是违反宪法的。
 
-这事情正如病毒真相在媒体传播被大科技公司打压一样，一定会追究。
+“现在，唐纳德·川普是一个私人公民， 参议院应该以缺乏管辖权为由驳回对他的弹劾文件，”德肖维茨本周为《华尔街日报》写道，他在2020年的第一次参议院审判中帮助为川普辩护。“宪法明确规定：’总统…. …….应在弹劾…….和定罪后被免职”。…….和定罪··而不是在弹劾程序完成之前，因任期届满而被免职。它还规定，’弹劾案件的判决不得进一步延伸到免职和取消资格’——不是或取消资格。”
 
-新闻来源：
-[https://wabcradio.com/2021/01/25/new-rudy-giuliani-responds-to-1-3b-dominion-lawsuit/](https://wabcradio.com/2021/01/25/new-rudy-giuliani-responds-to-1-3b-dominion-lawsuit/)
-[https://www.oann.com/giuliani-dominion-suit-is-act-of-intimidation-by-hate-filled-left/](https://www.oann.com/giuliani-dominion-suit-is-act-of-intimidation-by-hate-filled-left/)
-[https://nypost.com/2021/01/25/house-gop-want-to-add-facebook-twitter-to-parler-probe-of-dc-siege/](https://nypost.com/2021/01/25/house-gop-want-to-add-facebook-twitter-to-parler-probe-of-dc-siege/)
+但舒默坚持认为，弹劾前总统并非违宪。
 
-+5
+舒默说：“参议院将对弹劾唐纳德·川普进行审判， 这将是一个完整的审判。这将是一个公平的审判。但不要搞错了，会有一个审判，当审判结束时，参议员们将不得不决定他们是否相信唐纳德·约翰·川普煽动了对美国的叛乱。”
+
+舒默没有详细说明诉讼的长度和形式。
+
+与此同时，川普的政治助理杰森·米勒在推特上写道，南卡罗来纳州的辩护律师布奇·鲍尔斯加入了川普的法律辩护团队。众议院此前曾投票弹劾川普，称他1月6日在国会联席会议上的演讲煽动了暴力。
+
+麦康奈尔表示，他希望将审判推迟到2月，以便给川普时间进行辩护。
+
+麦康奈尔周五说：“这次弹劾开始时，众议院那边的进程空前的快速和最小化，这个结果不能成为不充分的参议院程序， 否定前总统川普的正当程序， 或损害参议院或总统职位本身。”
+
+周五早些时候，参议院投票确认退役将军劳埃德·奥斯汀(Lloyd Austin)为总统拜登的五角大楼负责人。拜登还在推动立法者通过一项1.9万亿美元的CCP病毒支出方案。
+
+原文作者：杰克·飞利浦（Jack Philips）
+
+发布时间：2021年1月22日更新
+
+文章链接：[https://www.theepochtimes.com/articles-of-impeachment-to-be-delivered-to-senate-on-monday-schumer\_3667486.html](https://www.theepochtimes.com/articles-of-impeachment-to-be-delivered-to-senate-on-monday-schumer_3667486.html)
+
++2

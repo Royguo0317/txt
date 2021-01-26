@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【疫情快訊】上海疫情升级：宝山区新村小区列中风险地区，黄浦区拉起警戒线驱散市民!
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/813680/)
+## 【疫情快訊】上海疫情升级：宝山区临江一村二村全员核酸检测，中共一直在隐瞒疫情，实际可能远超其公布数据
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/813900/)
 
 By: 【秘密翻譯組G-Translators】
 
