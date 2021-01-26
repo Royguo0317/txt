@@ -1,37 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】警入夜搜查中大学生宿1.11 铁马被推翻案三人被捕
-` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/815146/)
+## 【疫苗快讯】棒球本垒打之王注射疫苗后去世
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/815253/)
 
-搜集：文燕
-编撰：文燕
-审稿：卡西欧
-上传：天网灰灰
+【编译】
 
-**昨日（25 日）晚上约9 时，约10名警员持搜查令进入中大校园，分别在善衡、和声及伍宜孙书院学生宿舍搜查约一小时，称调查1 月11 日港铁大学站外铁马被推翻一案。警方消息指被捕人士共 3 人，全是中大学生，他们并非在中大校园内被捕，其中一人是中大学生会前会长区倬僖，最后警员检走相关证物。现时被捕同学已被带返警署，义务律师团队正跟进。学生会对警方再次大规模拘捕中大学生以及进入中大校园搜查表示遗憾，并谴责校方拒绝处理校园保安问题，选择一再报警拘捕学生。**
+被称为美国棒球本垒打之王的汉克·亚伦（Hank Aaron），于1月5日在电视上接种了Moderna 新冠疫苗。 他说“我希望向美国黑人发出一个信息，那就是这个疫苗是安全的。” 他于1月22号去世，享年86岁。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/3-63.png)
-
-**据中大学生消息指，其中一名被捕人士为中大学生会前会长区倬僖，他原本在今天傍晚在沙田警署报到后被捕，被约****10 ****名警员带返宿舍「搜屋」，其间大学辅导长陈国康及中大保安人员亦在场。据中大学生提供的影片中显示，区倬僖被警员带返其善衡书院宿舍搜查，新界南总区重案组警员其后把他一同押离房间，区的宿友欲拍其身体鼓励他，即被警员厉声警告。**
+- ![]()![](https://gnews.org/wp-content/uploads/2021/01/image-301.png)
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/4-48.jpg)2021 年 1 月 25 日，警方新界南总区重案组探员在中大善衡书院宿舍搜屋，期间中大保安把守楼层通道。 （资料来源：立场新闻）
-警方亦分别进入和声及伍宜孙书院的学生宿舍搜查，未有人被捕。和声书院学生会会长胡筠弦表示，警方在宿舍房间内搜证及拍摄，过程约一小时，并检取一袋 A4 尺寸大的证物。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/5-61.jpg)2021 年1 月25 日，警方新界南总区重案组探员在中大和声书院宿舍搜屋，和声书院学生会会长胡筠弦回应指，警方在宿舍房间内搜证及拍摄过程约一小时。 （Sheryl Wong 摄）
-伍宜孙学生会临时会长黄同学亦透露，今晚9 时收到宿生通知宿舍西座8 楼有6 至8 名警员搜查房间，包括翻开涉事同学床褥及搜查房间内的物品，过程约45 分钟，期间只有舍监及保安曾查看搜查令。黄同学续指，警员离开时记录在场所有同学的个人资料；学生会将向校方了解事件，并要求校方解释为何不具透明度地容许警方进入校园。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/6-50.jpg)2021 年1 月25 日，警方新界南总区重案组探员在中大和声书院宿舍搜屋，不愿透露全名的伍宜孙学生会临时会长黄同学透露，警方搜屋过程约45 分钟，期间只有舍监及保安曾查看搜查令。警员离开时记录在场所有同学的个人资料。 （Sheryl Wong 摄）
-战友观点：
-1 月 25 日可以说是两所大学黑暗和沉沦的日子。
+推特正在阻止这个事情成为热点。当然像汉克·亚伦这种棒球传奇的死亡成为热点是理所应当的。他的家人说他接种疫苗之前是健康和充满活力的，可最后情况迅速恶化。
 
-中大校长段崇智本月 16 日亦透过 YouTube 影片批评，指袭击者的行为是「纯粹的恶意破坏」，威胁校内人士的安全，「绝对不能够用表达诉求或表达个人立场作辩解」。他表示，校方已即时作出检讨，并加强保安措施。
+【转载者评论】对于那些一直想要他家人谈论他的身体情况的链接， 大部分已经在推特中消失了。一位传奇人物去世了居然没有成为热点，所以让人怀疑推特是在删除信息。不过这个推是来自在汉克接种疫苗当天访问他的女记者, 让人不容置疑。
 
-据媒体报道指警方这次的入夜抓人与本月11 日在大学站保安岗位被撒不明粉末有关；中大3人被抓被搜；科技大学干事会多名学生因去年八月举办周梓乐逝世半年悼念会而被校方勒令休学一学期。
+Hank Aaron, who was baseball’s home run king for 33 years, got the Moderna shot on TV January 5. “I hope to send a message to Black Americans that the vaccine is safe.” He died today at age 86.
 
-从以上两件事，很难令外界对香港的未来有信心，我们不再相信大学是一个能保护学术的地方，能保护学生人身安全的地方。校方由之前站在学生一边，演变到今天站在警方那边，甚至与警方合作，校方完全在政权面前跪下。
+Twitter is preventing this story from trending.  Of course the death of a legend like Hank Aaron would trend immediately. Family are saying he was healthy and vibrant until he got the shot and things started quickly deteriorating.
 
+【Comments】For those who keep asking for the links to family talking about his health – most of them are gone from Twitter. Somehow a legend dies and it’s not trending, so I assume Twitter is deleting tweets. But here is the reporter who interviewed Hank the day he got the shot, January 5. She described him as “full of life” and “upbeat about life” in this thread.
 
+另有一位在12月份检测出COVID-19阳性的加利福尼亚居民在接种疫苗后死亡。 据报道，这位居民在接种新冠疫苗数小时后于周四在加利福尼亚普莱瑟县丧生。
 
-资料来源：[立场新闻](https://www.thestandnews.com/politics/%E8%AD%A6%E6%90%9C%E4%B8%AD%E5%A4%A7%E4%B8%89%E5%AD%B8%E7%94%9F%E5%AE%BF%E8%88%8D%E6%9F%A5-1-11-%E9%90%B5%E9%A6%AC%E8%A2%AB%E6%8E%A8%E7%BF%BB%E6%A1%88-%E8%AD%A6%E6%B6%88%E6%81%AF%E6%8C%87%E4%B8%89%E4%BA%BA%E8%A2%AB%E6%8D%95-%E5%8C%85%E6%8B%AC%E5%AD%B8%E7%94%9F%E6%9C%83%E5%89%8D%E6%9C%83%E9%95%B7%E5%8D%80%E5%80%AC%E5%83%96/)
+尽管美国疾病控制中心CDC 建议不要在测试新冠得阳性的90天内接种疫苗，这位在12月感染了病毒的居民仍是接种了疫苗。 虽然现在尚不清楚患者是接受哪种新冠疫苗，卫生官员说人们不应太快地将死亡归咎于疫苗。
+
+A California resident who tested positive for COVID-19 in December died after receiving a vaccine. The individual reportedly perished in Placer County, California on Thursday, several hours after getting the coronavirus vaccine.
+
+They reportedly contracted the virus in December, and despite a CDC recommendation to not get vaccinated within 90 days of a positive test, received the vaccine.  While it is unclear which COVID-19 vaccine the patient received, health officials said people should not be too quick to blame the vaccine for the death.
+
+【来源】
+
+1. [https://www.reddit.com/r/conspiracy/comments/l2ulks/hank\_aaron\_got\_the\_moderna\_shot\_on\_tv\_january\_5\_i/](https://www.reddit.com/r/conspiracy/comments/l2ulks/hank_aaron_got_the_moderna_shot_on_tv_january_5_i/)
+2. https://twitter.com/KHollowayWSB/status/1352641971890872324?s=20
+3. [https://www.oann.com/calif-covid-19-vaccine-recipient-dies-hours-after-being-vaccinated/](https://www.oann.com/calif-covid-19-vaccine-recipient-dies-hours-after-being-vaccinated/)
+
 
 0
