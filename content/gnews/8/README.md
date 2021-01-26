@@ -1,156 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/01/25 &#8211; 01/26 美国政要每日推特重要信息汇总
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/815021/)
+## 【香港要闻】警入夜搜查中大学生宿1.11 铁马被推翻案三人被捕
+` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/815146/)
 
-编辑：Cathy
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/julius-drost-nsrSyI-JUYg-unsplash-1.jpg)
-**经授权转载自：**
+搜集：文燕
+编撰：文燕
+审稿：卡西欧
+上传：天网灰灰
 
-- 川普等政要…直译推twitter：[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
-- 川普等政要…直译推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
-- 川普等政要…直译推GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
+**昨日（25 日）晚上约9 时，约10名警员持搜查令进入中大校园，分别在善衡、和声及伍宜孙书院学生宿舍搜查约一小时，称调查1 月11 日港铁大学站外铁马被推翻一案。警方消息指被捕人士共 3 人，全是中大学生，他们并非在中大校园内被捕，其中一人是中大学生会前会长区倬僖，最后警员检走相关证物。现时被捕同学已被带返警署，义务律师团队正跟进。学生会对警方再次大规模拘捕中大学生以及进入中大校园搜查表示遗憾，并谴责校方拒绝处理校园保安问题，选择一再报警拘捕学生。**
 
+![]()![](https://gnews.org/wp-content/uploads/2021/01/3-63.png)
 
-## 简评：
+**据中大学生消息指，其中一名被捕人士为中大学生会前会长区倬僖，他原本在今天傍晚在沙田警署报到后被捕，被约****10 ****名警员带返宿舍「搜屋」，其间大学辅导长陈国康及中大保安人员亦在场。据中大学生提供的影片中显示，区倬僖被警员带返其善衡书院宿舍搜查，新界南总区重案组警员其后把他一同押离房间，区的宿友欲拍其身体鼓励他，即被警员厉声警告。**
 
-1月25-26日，朱利安尼和霍利重提新闻自由，汤姆•科顿谴责中共恐吓拜登政府，玛莎•布莱克本强调让与中共国解放军有联系的公司重新上市是对美国国家安全的威胁。可以看出美国选民已经对选举没有信心，才有众议员吉姆•班克斯说的需要《拯救民主法案》。
 
-## 参议员玛莎·布莱克本：
+![]()![](https://gnews.org/wp-content/uploads/2021/01/4-48.jpg)2021 年 1 月 25 日，警方新界南总区重案组探员在中大善衡书院宿舍搜屋，期间中大保安把守楼层通道。 （资料来源：立场新闻）
+警方亦分别进入和声及伍宜孙书院的学生宿舍搜查，未有人被捕。和声书院学生会会长胡筠弦表示，警方在宿舍房间内搜证及拍摄，过程约一小时，并检取一袋 A4 尺寸大的证物。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/5-61.jpg)2021 年1 月25 日，警方新界南总区重案组探员在中大和声书院宿舍搜屋，和声书院学生会会长胡筠弦回应指，警方在宿舍房间内搜证及拍摄过程约一小时。 （Sheryl Wong 摄）
+伍宜孙学生会临时会长黄同学亦透露，今晚9 时收到宿生通知宿舍西座8 楼有6 至8 名警员搜查房间，包括翻开涉事同学床褥及搜查房间内的物品，过程约45 分钟，期间只有舍监及保安曾查看搜查令。黄同学续指，警员离开时记录在场所有同学的个人资料；学生会将向校方了解事件，并要求校方解释为何不具透明度地容许警方进入校园。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/6-50.jpg)2021 年1 月25 日，警方新界南总区重案组探员在中大和声书院宿舍搜屋，不愿透露全名的伍宜孙学生会临时会长黄同学透露，警方搜屋过程约45 分钟，期间只有舍监及保安曾查看搜查令。警员离开时记录在场所有同学的个人资料。 （Sheryl Wong 摄）
+战友观点：
+1 月 25 日可以说是两所大学黑暗和沉沦的日子。
 
-让与中共国解放军有联系的公司重新上市是对美国国家安全的威胁。
-【转bbc报道：[中共国的(三大)电信巨头要求在华尔街重新上市](https://www.bbc.com/news/business-55744400)】
+中大校长段崇智本月 16 日亦透过 YouTube 影片批评，指袭击者的行为是「纯粹的恶意破坏」，威胁校内人士的安全，「绝对不能够用表达诉求或表达个人立场作辩解」。他表示，校方已即时作出检讨，并加强保安措施。
 
+据媒体报道指警方这次的入夜抓人与本月11 日在大学站保安岗位被撒不明粉末有关；中大3人被抓被搜；科技大学干事会多名学生因去年八月举办周梓乐逝世半年悼念会而被校方勒令休学一学期。
 
+从以上两件事，很难令外界对香港的未来有信心，我们不再相信大学是一个能保护学术的地方，能保护学生人身安全的地方。校方由之前站在学生一边，演变到今天站在警方那边，甚至与警方合作，校方完全在政权面前跪下。
 
-> Relisting companies that have ties to the People’s Liberation Army is a threat to U.S. national security.[https://t.co/0po8nzWNv7](https://t.co/0po8nzWNv7)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [January 25, 2021](https://twitter.com/MarshaBlackburn/status/1353784293089288198?ref_src=twsrc%5Etfw)
 
 
+资料来源：[立场新闻](https://www.thestandnews.com/politics/%E8%AD%A6%E6%90%9C%E4%B8%AD%E5%A4%A7%E4%B8%89%E5%AD%B8%E7%94%9F%E5%AE%BF%E8%88%8D%E6%9F%A5-1-11-%E9%90%B5%E9%A6%AC%E8%A2%AB%E6%8E%A8%E7%BF%BB%E6%A1%88-%E8%AD%A6%E6%B6%88%E6%81%AF%E6%8C%87%E4%B8%89%E4%BA%BA%E8%A2%AB%E6%8D%95-%E5%8C%85%E6%8B%AC%E5%AD%B8%E7%94%9F%E6%9C%83%E5%89%8D%E6%9C%83%E9%95%B7%E5%8D%80%E5%80%AC%E5%83%96/)
 
-## 众议员吉姆·班克斯：
-
-**1．共和党研究委员会@RepublicanStudy的《拯救民主法案》：**
-
-要求公民身份验证
-禁止未主动申请的缺席选票
-禁止在计票过程中暂停
-此法案将会恢复对选举的信心，因为它让选民有理由来信任他们。
-[华盛顿观察家报@dcexaminer](https://www.washingtonexaminer.com/opinion/op-eds/democrats-are-shirking-congresss-duty-to-preserve-democracy)
-
-
-
-> .[@RepublicanStudy](https://twitter.com/RepublicanStudy?ref_src=twsrc%5Etfw)’s Save Democracy Act:
->  
-> ✔️Requires citizenship verification
-> ✔️Bans unsolicited absentee ballots 
-> ✔️Bans pauses in ballot counting 
->  
-> It will restore faith in elections because it gives voters reason to trust them. 
->  [@dcexaminer](https://twitter.com/dcexaminer?ref_src=twsrc%5Etfw) [https://t.co/snQ5XPjIJC](https://t.co/snQ5XPjIJC)
-> — Jim Banks (@RepJimBanks) [January 25, 2021](https://twitter.com/RepJimBanks/status/1353767274021347330?ref_src=twsrc%5Etfw)
-
-
-
-**2．社会主义毁了工作和美国人的生活！很讽刺啊:**
-【转Susan Crabtree Hennebury 推文：[伯尼•桑德斯的手套制造商责备高税收毁了她的小本生意](https://twitter.com/susancrabtree/status/1353404777061707776?s=20)】
-
-
-
-> Socialism kills jobs and the livelihood of working Americans! Lot of irony here👇 [https://t.co/MJFHvsGTZR](https://t.co/MJFHvsGTZR)
-> — Jim Banks (@RepJimBanks) [January 24, 2021](https://twitter.com/RepJimBanks/status/1353435227738185733?ref_src=twsrc%5Etfw)
-
-
-
-## 参议员汤姆·科顿：
-
-**1．中共国的游说者大肆鼓吹要回到过去，而那时美国的技术助长了进行 #灭绝种族 的 #中共 #CCP 的经济和军事发展。 美国总统@POTUS决不能再返回到过去的这些失败政策。**
-【转路透社：[科技产业集团敦促拜登政府对中国的出口管制进行复查](https://www.reuters.com/article/usa-china-chip-industry-idUSL1N2K003D)】
-
-
-
-> The China Lobby is furiously advocating for a return to the old days, where U.S. technology fueled the genocidal CCP’s economic and military development. [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) must not return to these failed policies of the past.[https://t.co/1GaZf5IDiI](https://t.co/1GaZf5IDiI)
-> — Tom Cotton (@SenTomCotton) [January 25, 2021](https://twitter.com/SenTomCotton/status/1353779190953345024?ref_src=twsrc%5Etfw)
-
-
-
-**2．#中共国 对前川普官员的制裁是对拜登政府的警告-中国要拜登官员知道，如果他们越过中共（红线）,也会成为目标。**
-拜登总统需要强有力地谴责这些制裁，并实行对等制裁。
-【附汤姆•科顿在接受福克斯电视台玛丽亚的采访讲话：(对美前官员）的报复是中共国施加影响危险而且阴险的升级】
-
-
-
-> China's sanctions against former Trump officials are a warning to the Biden administration–China wants Biden officials to know that if they cross the CCP, they too will be targeted.
-> 
-> President Biden needs to denounce these sanctions forcefully and impose reciprocal sanctions. [pic.twitter.com/9iTs38AxXR](https://t.co/9iTs38AxXR)
-> — Tom Cotton (@SenTomCotton) [January 24, 2021](https://twitter.com/SenTomCotton/status/1353389410721492995?ref_src=twsrc%5Etfw)
-
-
-
-## 众议员莫·布鲁克斯：
-
-**1．#中国共产党 (#CCP) 向亨特·拜登支付了数百万美元。**
-#JoeBiden 拜登毙掉了拱心石輸油管道项目(Keystone XL)和美国的就业岗位； 向 #中共 输送更便宜的石油。
-满洲里的候选人埃里克·斯沃威尔 #EricSwalwell（中共间谍=其情妇)是川普的弹劾经理人。
-还有连接这些点的其他人吗？
-
-
-
-> Communist Chinese Party (CCP) pays Hunter Biden millions.[#JoeBiden](https://twitter.com/hashtag/JoeBiden?src=hash&amp;ref_src=twsrc%5Etfw) kills Keystone XL pipeline & American jobs; sends cheaper oil to CCP.
-> 
-> Manchurian Candidate [#EricSwalwell](https://twitter.com/hashtag/EricSwalwell?src=hash&amp;ref_src=twsrc%5Etfw) (CCP spy = mistress) is Trump impeachment manager.
-> 
-> Anyone else connecting dots?[https://t.co/wbfyG0UO5s](https://t.co/wbfyG0UO5s)
-> — Mo Brooks (@RepMoBrooks) [January 25, 2021](https://twitter.com/RepMoBrooks/status/1353764731014803456?ref_src=twsrc%5Etfw)
-
-
-
-**2．参议员汤姆•科顿”中共恐吓拜登政府。”**
-中共支付了亨特•拜登大笔钱。拜登取消了Keystone XL管道，损失了1000多个美国工作，剥夺了美国获得安全的加拿大石油的权利，而现在石油很可能进入中共国。
-这就开始了。
-【附汤姆•科顿参议员的官网：[科顿警告中共国对美国的报复和影响](https://www.cotton.senate.gov/news/videos/watch/january-22-2021-cotton-warns-of-chinese-sanctions-influence)】
-
-
-
-> .[@TomCottonAR](https://twitter.com/TomCottonAR?ref_src=twsrc%5Etfw): “Chinese Communist Party intimidates Biden Admin.”. 
-> 
-> CCP paid Hunter Biden BIG $$. Biden cancels Keystone XL Pipeline, costing 1000s AMERICAN jobs, depriving USA of secure Canada oil, oil likely now to go Communist China.
-> 
-> So it begins.[https://t.co/2ZM9DTMWdE](https://t.co/2ZM9DTMWdE)
-> — Mo Brooks (@RepMoBrooks) [January 24, 2021](https://twitter.com/RepMoBrooks/status/1353394843192586241?ref_src=twsrc%5Etfw)
-
-
-
-## 川普律师朱利安尼：
-
-不仅仅有言论审查  #censorship 保护着拜登，还有讨好这位总统的报道，而他看起来刚签完文件一副迷惑和疲惫的样子。总有一天我们会再次拥有新闻自由
-
-
-
-> Not only is there a [#censorship](https://twitter.com/hashtag/censorship?src=hash&amp;ref_src=twsrc%5Etfw) protecting Biden but a fawning coverage of a President who seems to be getting confused and exhausted just signing papers.
-> 
-> Someday we may once again have a Free Press.
-> — Rudy W. Giuliani (@RudyGiuliani) [January 25, 2021](https://twitter.com/RudyGiuliani/status/1353579217083109376?ref_src=twsrc%5Etfw)
-
-
-
-## 参议员乔什·霍利：
-
-是时候站出来反对钳制美国的言论了。【[转推纽约邮报同名文章](https://nypost.com/2021/01/24/its-time-to-stand-up-against-the-muzzling-of-america/?utm_source=twitter_sitebuttons&amp;utm_medium=site%20buttons&amp;utm_campaign=site%20buttons)】
-
-
-
-> It's time to stand up against the muzzling of America [https://t.co/rrTrtfrYZn](https://t.co/rrTrtfrYZn) via [@nypost](https://twitter.com/nypost?ref_src=twsrc%5Etfw)
-> — Josh Hawley (@HawleyMO) [January 25, 2021](https://twitter.com/HawleyMO/status/1353531833884020738?ref_src=twsrc%5Etfw)
-
-
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

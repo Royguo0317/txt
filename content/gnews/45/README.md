@@ -1,30 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0125II: 中共在逼统台湾，台湾是中美之间最大的勾兑
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/813685/)
+## 【快讯】「多猫腻」13亿美元的诉讼
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/813237/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/封面-232.jpg)
-编辑整理：
+**旧金山金喜准农场：**Wenwu
 
-纽约香草山农场：文官
+据纽约邮报Ebony Bowden在美东时间1月25日12点24分报道，华盛顿众议院的共和党人员认为1月6日围睹美国国会与推特和脸书有关。在该报道中表明，这两家大科技公司曾经在大选期间给民主党输送过大量资金。
 
-法国巴黎七星农场：枫丹白露
+[据福克斯新闻週一报道，立法者卡罗琳·马洛尼（D-NY）表示，这些科技巨头正在与民主党人发展一个日益紧密的联盟，以「压制某些观点」。而在暴乱发生后，Facebook、Instagram和Twitter还暂时禁止美国川普总统进入他们的平台，抢走了即将离任的美国川普总统的账号。这和我们爆料革命的战友在推特和脸书上的经历如此相似，值得注意的是这些大科技公司不想证明我们观点的真实性，直接封杀或者给需要压制的观点加标签。](https://www.foxnews.com/politics/house-oversight-fbi-probe-parler-capitol-riot-facebook-twitter)
 
-篇首说明：郭文贵先生在[1月25日 文贵直播： 当灾难到来时，就不让听党话了；国内疫情严重地区战友们要…](https://gtv.org/video/id=600f0803b819717e79b02303) 直播中，谈到了危机时刻爹亲娘亲不如党亲的党让你听从死亡了；谈到了中共在逼统台湾，台湾是中共和美国之间最大的勾兑；谈到了习自居始皇定要拿下台湾对新疆西藏狠到无法想像。
+另外一方面，当下拜登已经是美国的现任总统。据OANN在美东时间1月25日3点43分报道，今日「多猫腻」投票系统向华盛顿联邦法庭对鲁迪·朱利安尼提起了诉讼。其指控朱利安尼散布虚假的选民欺诈指控。朱利安尼在不久后的一份声明中表示，诉讼的代价是「吓唬胆小的人」。朱利安尼作為美国前总统川普的私人律师，对他来说这起诉讼是相当对口。
 
-本系列将按郭先生提到的这三个部分逐一上传，以下为本系列第二部分：中共在逼统台湾，台湾是中美之间最大的勾兑
+在该报道中称，朱利安尼对「多猫腻」提起反诉，指控其侵犯宪法规定的言论自由权和律师有力捍卫客户的能力。并反驳称，如果证明摇摆州选票有错，许多人将会坐牢。以下是朱利安尼先生的一则推特：
 
-据[1月25日 文贵直播： 当灾难到来时，就不让听党话了；国内疫情严重地区战友们要…](https://gtv.org/video/id=600f0803b819717e79b02303) 05：35时间点——
 
-另外一个说到这儿，咱再说说台湾，很多台湾战友给我发信息，咋办？像昨天开会的时候我们台湾的战友大牛问我，七哥咋办，你说我能说咋办，台湾两千多万同胞，你不能都移民呐，那共产党希望你移民呐，它把岛给占了，留岛不留人嘛，那你是不是投降了吗？那么咱们战友们，我昨天给大牛说了，战友们，**如果台湾战友来美国，你到澳洲、你到欧洲、你到日本、你到任何新加坡这些地方，只要有战友的地方、有农场的地方，大家一定尽全力给大家提供住吃行的方便。但是全台湾同胞咱可就没办法了。**
 
-昨天晚上很多台湾的朋友真害怕了，过去三四年没联络的过去的台湾朋友也发信息，看来是真要打仗，我告诉他可能不会那么快，**共产党现在是在什么，现在是叫逼统，逼着你统，**现在表演表演，让美国让欧洲看看，是吧？我要打了，我真打了，按真的来，行动多着嘞，放心吧。**然后就台湾国民党就出来了，哎呀，投票投票投票啊，为了台湾的统一、为了台湾的未来识时务者为俊杰，就像那个俄罗斯搞多米尼亚（克里米亚）一样，投票吧，一投票同意回归或者是千年的和（平）协议，实质的回归，搞个什么一张纸出来。**就是共产党这套都学得普京的，学得很LOW。然后是什么？**只要是你一投票，只要内部有人响应，就是打了你也是合法的，这是中美之间最大的勾兑呀！**这是最大的勾兑。**翟东升这个王八蛋没说完的话就是这一段，就是有合同、有交易，就是把台湾给交易出去、把香港交易出去，然后就真的是港澳台大湾区了。**
+> DISCOVERY: A 68% ERROR rate found in votes PROVES intentional fraud! 
+> 
+> PA, AZ, GA, MI, and WI should agree to let us audit the Dominion machines. If they didn’t cheat, what are they afraid of? We MUST have an audit!
+> 
+> Rudy Giuliani’s analysis HERE: [https://t.co/Ri9Q1GJMzF](https://t.co/Ri9Q1GJMzF) [pic.twitter.com/FpTtVfS7bg](https://t.co/FpTtVfS7bg)
+> — Rudy W. Giuliani (@RudyGiuliani) [December 21, 2020](https://twitter.com/RudyGiuliani/status/1341050325751492608?ref_src=twsrc%5Etfw)
 
-台湾同胞以为自己在那岛上过着挺好，以为在那岛上共产党不敢来惹我，以为爆料革命你们不需要，新中国联邦不需要，蔡英文，蔡英文这个总统，小蔡可能真的最后一个台湾的民选总统啦，真可能就把台湾给葬送了，可能你们没有意识到，**小蔡的政治错误和政治的幼稚和这届政府的投机取巧，也相信以假治台、也相信所谓利益集团的勾兑能让自己和台湾安全。**你走着看！**今年是辛丑年啊，战友们查查历史上辛丑年台湾都发生过什么大事儿？这真是天时、地利、人和都对台湾不利呀。**
 
-接上文——
+朱利安尼去年12月21日的推特，声明68%的计票有误
+据NEW YORK (77WABC)1月25日Lidia Curanaj的报道，“多猫腻”的律师在周一上午在华盛顿特区地区法院提起的诉讼中写道：“对自治领业务和声誉的伤害是前所未有的，也是无法弥补的，因为数百万人非常热切地相信它。”
+![]()![](https://gnews.org/wp-content/uploads/2021/01/2020-12-09-1-scaled.jpg)Former Mayor of New York City Rudy Giuliani addresses delegates on the opening day of the Republican National Convention at the Quicken Loans Arena in Cleveland, OH, on July 18, 2016. (Photo by Anthony Behar) \*\*\* Please Use Credit from Credit Field \*\*\*
+WABC电台的主持人也发表了以下声明：
+「‘多猫腻’13亿美元的诽谤诉讼将允许我全面彻底调查他们的历史、财务和做法。显然，要的金额是為了吓唬胆小的人。这是充满仇恨的左翼的另一项恐吓行為，消灭和审查言论自由的行使，以及律师有力地為委託人辩护的能力。因此，我们将调查对侵犯这些宪法权利的反诉。」——鲁迪·朱利安尼
 
-[**郭先生0125I:危机时刻爹亲娘亲不如党亲的党让你听从死亡了**](https://gnews.org/zh-hans/813554/)
+在这起事件中，社交平台也起到了相当大的作用。当人们在推特上发推文、转发并愤怒地抨击「多猫腻」窃取了他们的选票时，即在事情未被证实的情况下，传播受到了媒体的打压。这显然是在打压言论自由，是我们有权发声的。
 
-0
+这事情正如病毒真相在媒体传播被大科技公司打压一样，一定会追究。
+
+新闻来源：
+[https://wabcradio.com/2021/01/25/new-rudy-giuliani-responds-to-1-3b-dominion-lawsuit/](https://wabcradio.com/2021/01/25/new-rudy-giuliani-responds-to-1-3b-dominion-lawsuit/)
+[https://www.oann.com/giuliani-dominion-suit-is-act-of-intimidation-by-hate-filled-left/](https://www.oann.com/giuliani-dominion-suit-is-act-of-intimidation-by-hate-filled-left/)
+[https://nypost.com/2021/01/25/house-gop-want-to-add-facebook-twitter-to-parler-probe-of-dc-siege/](https://nypost.com/2021/01/25/house-gop-want-to-add-facebook-twitter-to-parler-probe-of-dc-siege/)
+
++5

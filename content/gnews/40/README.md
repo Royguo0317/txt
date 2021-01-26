@@ -1,42 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】「多猫腻」13亿美元的诉讼
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/813237/)
+## 川普前助手萨拉·桑德斯宣布竞选阿肯色州州长
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/814029/)
 
-**旧金山金喜准农场：**Wenwu
+翻译：康州盘古农场-Bruce
+校对：康州盘古农场-烟波浩淼
+编辑：康州盘古农场-Antsee-GTV
 
-据纽约邮报Ebony Bowden在美东时间1月25日12点24分报道，华盛顿众议院的共和党人员认为1月6日围睹美国国会与推特和脸书有关。在该报道中表明，这两家大科技公司曾经在大选期间给民主党输送过大量资金。
+![sarah]()![sarah](https://gnews.org/wp-content/uploads/2021/01/Screen-Shot-2021-01-26-at-12.51.06.png)
 
-[据福克斯新闻週一报道，立法者卡罗琳·马洛尼（D-NY）表示，这些科技巨头正在与民主党人发展一个日益紧密的联盟，以「压制某些观点」。而在暴乱发生后，Facebook、Instagram和Twitter还暂时禁止美国川普总统进入他们的平台，抢走了即将离任的美国川普总统的账号。这和我们爆料革命的战友在推特和脸书上的经历如此相似，值得注意的是这些大科技公司不想证明我们观点的真实性，直接封杀或者给需要压制的观点加标签。](https://www.foxnews.com/politics/house-oversight-fbi-probe-parler-capitol-riot-facebook-twitter)
+前总统唐纳德·川普的助手萨拉·桑德斯（Sarah Sanders）周一宣布，她将竞选[阿肯色州](https://www.theepochtimes.com/t-arkansas)州长。
 
-另外一方面，当下拜登已经是美国的现任总统。据OANN在美东时间1月25日3点43分报道，今日「多猫腻」投票系统向华盛顿联邦法庭对鲁迪·朱利安尼提起了诉讼。其指控朱利安尼散布虚假的选民欺诈指控。朱利安尼在不久后的一份声明中表示，诉讼的代价是「吓唬胆小的人」。朱利安尼作為美国前总统川普的私人律师，对他来说这起诉讼是相当对口。
+“美国是伟大的，因为我们是自由的。但今天，我们的自由和法治正受到攻击，”桑德斯在宣布视频中说。
 
-在该报道中称，朱利安尼对「多猫腻」提起反诉，指控其侵犯宪法规定的言论自由权和律师有力捍卫客户的能力。并反驳称，如果证明摇摆州选票有错，许多人将会坐牢。以下是朱利安尼先生的一则推特：
+我是第一个因为我受到确实的暴力威胁而要求特勤局保护的白宫新闻秘书。我们已经看到在我们的街道上，在国会的棒球练习中发生了暴力事件。还有国会大厦的暴力事件，这不是我们美国人的本色。为了保持自由，我们必须有法律和秩序，并和平解决我们的分歧。激进左派的解决方案是自上而下地实行政府控制和审查。但他们的社会主义和取消文化不会治愈美国。它只会进一步分裂和摧毁我们。
 
+“我们对美国的一切热爱都岌岌可危。随着激进的左派现在控制了华盛顿，你的州长是你最后一道防线。事实上，你们的州长必须站在第一线。所以今天，我宣布参加阿肯色州州长的竞选，并请求你们的祈祷和支持。”
 
+由于共和党人阿萨·哈钦森（Asa Hutchinson）州长有任期限制，不能再参加竞选，所以州长竞选悬念很大。
 
-> DISCOVERY: A 68% ERROR rate found in votes PROVES intentional fraud! 
-> 
-> PA, AZ, GA, MI, and WI should agree to let us audit the Dominion machines. If they didn’t cheat, what are they afraid of? We MUST have an audit!
-> 
-> Rudy Giuliani’s analysis HERE: [https://t.co/Ri9Q1GJMzF](https://t.co/Ri9Q1GJMzF) [pic.twitter.com/FpTtVfS7bg](https://t.co/FpTtVfS7bg)
-> — Rudy W. Giuliani (@RudyGiuliani) [December 21, 2020](https://twitter.com/RudyGiuliani/status/1341050325751492608?ref_src=twsrc%5Etfw)
+桑德斯是继阿肯色州司法部长莱斯利·拉特利奇（Leslie Rutledge）和该州副州长蒂姆·格里芬（Tim Griffin）之后，第三位正式宣布参选的候选人。两人都是共和党人。
 
+多年来，州长府一直在共和党人和民主党人之间交替。在哈钦森之前，民主党人迈克·比伯（Mike Beebe）是州长。
 
-朱利安尼去年12月21日的推特，声明68%的计票有误
-据NEW YORK (77WABC)1月25日Lidia Curanaj的报道，“多猫腻”的律师在周一上午在华盛顿特区地区法院提起的诉讼中写道：“对自治领业务和声誉的伤害是前所未有的，也是无法弥补的，因为数百万人非常热切地相信它。”
-![]()![](https://gnews.org/wp-content/uploads/2021/01/2020-12-09-1-scaled.jpg)Former Mayor of New York City Rudy Giuliani addresses delegates on the opening day of the Republican National Convention at the Quicken Loans Arena in Cleveland, OH, on July 18, 2016. (Photo by Anthony Behar) \*\*\* Please Use Credit from Credit Field \*\*\*
-WABC电台的主持人也发表了以下声明：
-「‘多猫腻’13亿美元的诽谤诉讼将允许我全面彻底调查他们的历史、财务和做法。显然，要的金额是為了吓唬胆小的人。这是充满仇恨的左翼的另一项恐吓行為，消灭和审查言论自由的行使，以及律师有力地為委託人辩护的能力。因此，我们将调查对侵犯这些宪法权利的反诉。」——鲁迪·朱利安尼
+在此之前，川普的盟友、桑德斯的父亲、共和党人迈克·哈卡比（Mike Huckabee）担任这一职务。
 
-在这起事件中，社交平台也起到了相当大的作用。当人们在推特上发推文、转发并愤怒地抨击「多猫腻」窃取了他们的选票时，即在事情未被证实的情况下，传播受到了媒体的打压。这显然是在打压言论自由，是我们有权发声的。
+现年38岁的桑德斯曾担任川普的新闻秘书数年。她于2019年离职，搬回家乡与家人共度时光。
 
-这事情正如病毒真相在媒体传播被大科技公司打压一样，一定会追究。
+川普多次表示，桑德斯应该竞选阿肯色州州长。
 
-新闻来源：
-[https://wabcradio.com/2021/01/25/new-rudy-giuliani-responds-to-1-3b-dominion-lawsuit/](https://wabcradio.com/2021/01/25/new-rudy-giuliani-responds-to-1-3b-dominion-lawsuit/)
-[https://www.oann.com/giuliani-dominion-suit-is-act-of-intimidation-by-hate-filled-left/](https://www.oann.com/giuliani-dominion-suit-is-act-of-intimidation-by-hate-filled-left/)
-[https://nypost.com/2021/01/25/house-gop-want-to-add-facebook-twitter-to-parler-probe-of-dc-siege/](https://nypost.com/2021/01/25/house-gop-want-to-add-facebook-twitter-to-parler-probe-of-dc-siege/)
+川普在另一个时候说：“我认为她会做得很好。而我正试图让她做到这一点，”他一度表示：“她是一个非常特别的人，她有着非凡的才能，她的工作非常出色! 我希望她决定竞选阿肯色州州长–她会非常棒。”
 
-+5
+离开白宫后，桑德斯加入福克斯新闻，成为一名撰稿人。桑德斯在2019年11月[表示](https://www.theepochtimes.com/sarah-sanders-says-shes-been-called-to-run-for-office-considering-2022-run-for-governor_3157334.html)，她觉得自己被 “召唤 ”去当州长。
+
+“这是我被推到的角色，”桑德斯补充道。“如果我不是适合当时州政府需要的人，我就不会这么做。”
+
+原文作者：扎卡里·斯蒂伯（Zachary Stieber）
+
+发布时间：2021年1月25日
+
+原文链接：[https://www.theepochtimes.com/sarah-sanders-former-trump-aide-announces-run-for-arkansas-governor\_3670056.html](https://www.theepochtimes.com/sarah-sanders-former-trump-aide-announces-run-for-arkansas-governor_3670056.html)
+
+0
