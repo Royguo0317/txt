@@ -1,86 +1,74 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》再次揭穿新华社造假习出席会议新闻，及中美脱钩势不可挡！
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/815987/)
+## 就中共对新疆少数民族的种族灭绝罪致世界人民的公开信
+` Mild Seven` [轉載自GNews](https://gnews.org/zh-hans/816563/)
 
-直播视频：
+尊敬的的女士们, 先生们，
 
+[2021年1月19日，美国政府认定中共对维吾尔族穆斯林少数民族的行为是种族灭绝。](https://2017-2021.state.gov/determination-of-the-secretary-of-state-on-atrocities-in-xinjiang/index.html)中共多年来对新疆少数民族进行着系统性的种族灭绝活动。
 
+美国拜登总统内阁，新任国务卿安东尼-布林肯针对这一对中共的谴责发表了如下[评论](https://www.foxnews.com/politics/biden-trump-china-genocide-uyghurs)：”这也是我的判断。强迫男人、女人和儿童进入集中营，并试图将他们真正转化为中共的追随者–所有这些都说明（中共）是在努力进行种族灭绝。”
+![]()![](https://gnews.org/wp-content/uploads/2021/01/uiguren-uden-4.jpg)
+我们绝不能允许灭绝种族这样可怕的历史重演。所以，我真诚地请您传播真相，把这个消息转告给您身边的人。
 
-《路德时评》2021年1月25日晚间节目主要内容：
+此致敬礼
 
-一、习半年前视频和达沃斯视频差别巨大
+Mild Seven
 
-新华社又出幺蛾子[1]，习总加速师1月25日出席达沃斯论坛并致辞的视频再次造假，新闻中唯一的照片，XMP数据显示，摄于一月21日!
+德意志联邦共和国公民
 
+2021年1月26日
 
+—
 
-> 🚨新華社又出幺蛾子了🚨趁那邊半夜，戰友們幫忙確認一下：[https://t.co/TviUztKb3y](https://t.co/TviUztKb3y)
-> 新華社新聞，縂加速師一月25日視頻出席達沃斯論壇並致辭。新聞中唯一的照片，XMP數據顯示，攝於一月21日!
-> 😱😱😱 [pic.twitter.com/JNZHwBcx7p](https://t.co/JNZHwBcx7p)
-> — Dr. Bo 🇺🇸🇹🇼🇭🇰 (@BoDiplo) [January 25, 2021](https://twitter.com/BoDiplo/status/1353759702027526145?ref_src=twsrc%5Etfw)
+公开信的英文翻译：
 
+English translation of my open letter:
 
+**🇺🇸 An open letter to people worldwide regarding the genocide by the Chinese Communist Party against national minorities in Xinjiang**
 
-路德社评论：
+January 26, 2021
 
-1、图片XMP数据显示创建于1月21日，视频录制时间绝对要早于1月21日，所以新华社官网上的照片与视频都是造假，中共无论如何掩盖都会留下造假记录；
+Dear Ladies and Gentlemen,
 
-2、对比此前新华社发布的关于习总加速师亲自出席重要会议的视频新闻来看，每次发布的视频和照片的详细信息都与拍摄时间相吻合，唯独新华社最近报道的图文信息多次犯错，由此可以看到路德社爆料有关习身体情况的情报完全正确；
+[On January 19, 2021, the US government accused the Chinese Communist Party (CCP) of genocide for its actions against the Uyghur Muslim minority.](https://2017-2021.state.gov/determination-of-the-secretary-of-state-on-atrocities-in-xinjiang/index.html) The CCP has been engaged in a systematic ethnic cleansing of national minorities in Xinjiang for years.
 
-3、习2020年中在世界卫生大会上发言时言谈举止非常自然，非常自信，而此次发布的视频中，习的双手在二十多分钟的发言过程中始终牢牢紧握，神态僵硬；
+Antony Blinken, the new US Secretary of State in US President Joe Biden’s cabinet made the [following comments](https://www.foxnews.com/politics/biden-trump-china-genocide-uyghurs) on the CCP’s condemnation:
 
-4、从习近期一系列造假新闻来看，习深知党内斗争已进入白热化，他必须要通过制造假新闻来稳定军心，他的身体状况时刻关系到党内各官员们的身家性命，这决定党内官员站在哪个派系。
+“That would be my judgment as well. Forcing men, women and children into concentration camps, trying to in effect re-educate them to be adherents to the Chinese Communist Party – all of that speaks to an effort to commit genocide.”
 
-二、拜登总统延续“购买美国货”政策
+Terrible history like genocide must never be repeated. Therefore, I sincerely ask you to pass on this message to your fellow citizens. You are helping by spreading the truth.
 
-【大纪元2021年01月25日讯】[2]美国总统拜登预计周一（1月25日）将会签署一项行政命令，旨在加强“购买美国货”政策，作为政府增加对美国制造业和工人投资承诺的一部分。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/拜登签行政令-1.jpg)[图片地](https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-1230701452-1-600x400.jpg)址
+Yours sincerely
 
+Mild Seven
 
-路德社评论：
+Citizen of the Federal Republic of Germany
 
-拜登政府签署此行政命令再次延续川普政府推动的“美国优先”政策，拜登总统上任以来在多项政策上依然延续川普政府，在对共政策上尤为明显，这让中共大为失望。
+—
 
-三、意大利总理孔蒂即将辞职
+公开信的德语翻译：
 
-Sky新闻网1月25日报道[3]：意大利总理朱塞佩·孔蒂先生将在明天的内阁会议上正式宣布他将辞职，然后他去总统府正式递交辞呈。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/孔蒂-1.jpg)[图片地址](https://e3.365dm.com/21/01/1600x900/skynews-giuseppe-conte-italy_5250235.jpg?bypass-service-worker&amp;20210125192831)
+German translation of my open letter:
 
+**🇩🇪 Ein offener Brief an die Bürger\*Innen im deutschsprachigen Raum bezüglich des Völkermords durch die Kommunistische Partei Chinas an nationalen Minderheiten in Xinjiang**
 
-路德社评论：
+26.01.2021
 
-1、孔蒂先生将在周二想总统递交辞呈，意大利总统与英国女皇类似，同样没有实权，如果总统同意孔蒂离职，国会就将解散，意大利提前两年进行总理大选，未来右派领袖萨尔维尼即将上台；
+Sehr geehrte Damen und Herren der deutschensprachigen Bürger\*Innen,
 
-2、萨尔维尼上台对灭共起到至关重要的作用，一方面是因为它能影响梵蒂冈教廷，另一方面萨尔维尼绝对支持闫博士关于中共病毒真相的言论。
+die [US-Regierung hat am 19. Januar 2021](https://gnews.org/777259/) die Kommunistische Partei Chinas (KPCh) wegen des Vorgehens gegen die muslimische Minderheit der Uiguren des Genozids beschuldigt. Die KPCh betreibt seit Jahren eine systematische ethnische Säuberung der nationalen Minderheiten in Xinjiang.
 
-四、MSCI将继续剔除中共上市公司指数
+Antony Blinken, der neue US-Außenminister im Kabinett des US-Präsidenten Joe Biden [äußerte sich](https://gnews.org/809299/) zur Verurteilung der KPCh wie folgt:
+„Das wäre auch mein Urteil. Männer, Frauen und Kinder in Konzentrationslager zwingen und versuchen, sie tatsächlich zu Anhängern der Kommunistischen Partei Chinas umzubilden – all dies spricht für die Bemühungen, einen Völkermord zu begehen.“
 
-路透1月25日 – MSCI明晟称[4]，从1月27日收盘起，将从MSCI ACWI系列指数以及相关非市值加权指数和定制化指数中剔除五家中资企业的证券，但并未给出任何指引。MSCI明晟在周一的声明中称，这五家公司包括中广核电力、中国化学、中国核电、中国船舶重工和浪潮国际。
+Schreckliche Geschichte wie Völkermord darf sich nie wieder wiederholen. Daher bitte ich Sie aufrichtig, diese Botschaft an Ihre Mitbürger\*Innen weiterzugeben. Sie helfen mit, indem Sie die Wahrheit verbreiten.
 
-路德社评论：
+Mit freundlichen Grüßen
 
-1、这几家企业被川普政府列为中共军方控制的企业，拜登政府不可能轻易撤销对这些企业的制裁，截至目前，拜登政府上台后并未重新调整对共政策，中美脱钩依然在进行 ；
+Mild Seven
 
-2、MSCI是全球最具影响力的指数，这五家公司被踢出MSCI指数后，几乎不可能再从海外进行融资，中共国的核工业，化学工业和船舶运输业将遭到重创；
+Bürger der Bundesrepublik Deutschland
 
-3、习总加速师“120终极之战”计划彻底失败，拜登总统上台也没有阻止中美脱钩，这再次增加党内各派系间的矛盾；
-
-4、拜登总统上台后肯定要维护美国人民的利益，越来越多美国人民开始支持灭共，中共在大选期间抛出拜登家族三个硬盘内容也让拜登看清楚中共的邪恶，中共企业造假和军方控制的罪名证据确凿，无论谁上台无法更改这一事实，这些都将促使拜登总统坚定灭共。
-
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
-
-参考文章：
-
-[1][https://twitter.com/BoDiplo/status/1353759702027526145](https://twitter.com/BoDiplo/status/1353759702027526145)
-
-[2][https://www.epochtimes.com/gb/21/1/25/n12710948.htm](https://www.epochtimes.com/gb/21/1/25/n12710948.htm)
-
-[3][https://news.sky.com/story/italian-pm-giuseppe-conte-to-offer-resignation-after-defection-leaves-his-coalition-short-of-majority-12198854](https://news.sky.com/story/italian-pm-giuseppe-conte-to-offer-resignation-after-defection-leaves-his-coalition-short-of-majority-12198854)
-
-[4][https://twitter.com/caijingxiang/status/1353878463799726080](https://twitter.com/caijingxiang/status/1353878463799726080)
-
-文章撰写：【重生】  编辑：【香柏树】
-
-+1
+0

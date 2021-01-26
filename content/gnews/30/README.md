@@ -1,156 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/01/25 &#8211; 01/26 美国政要每日推特重要信息汇总
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/815021/)
+## 中共（战机）入侵（台防空识别区）被视为对拜登政府的早期考验
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/815436/)
 
-编辑：Cathy
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/julius-drost-nsrSyI-JUYg-unsplash-1.jpg)
-**经授权转载自：**
+翻译：康州盘古农场-Bruce
+校对：康州盘古农场-Mike Li
+编辑：康州盘古农场-Antsee-GTV
 
-- 川普等政要…直译推twitter：[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
-- 川普等政要…直译推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
-- 川普等政要…直译推GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
+一批15架中共战机周六侵入[台湾](https://www.washingtontimes.com/topics/taiwan/)防空识别区，促使[拜登新政府](https://www.washingtontimes.com/topics/biden-administration/)国务院对[北京](https://www.washingtontimes.com/topics/beijing/)对岛国的军事压力表示担忧。
 
+[台湾](https://www.washingtontimes.com/topics/taiwan/)国防部宣布，周六发现8架中共轰炸机和4架战斗机进入防空识别区西南角。还发现了两架反潜战机和一架侦察机。这些飞机在国际空域飞行，但在防空识别区内，促使台湾部署防空导弹应对。
 
-## 简评：
+[中共](https://www.washingtontimes.com/topics/china/)近几个月来一直在台湾周边进行定期的空中飞行，但一直停留在防空识别区之外。
 
-1月25-26日，朱利安尼和霍利重提新闻自由，汤姆•科顿谴责中共恐吓拜登政府，玛莎•布莱克本强调让与中共国解放军有联系的公司重新上市是对美国国家安全的威胁。可以看出美国选民已经对选举没有信心，才有众议员吉姆•班克斯说的需要《拯救民主法案》。
+中共飞机的大量入侵似乎是对[拜登新政府](https://www.washingtontimes.com/topics/biden-administration/)及其支持[北京](https://www.washingtontimes.com/topics/beijing/)认为是中共国领土一部分的岛屿民主的承诺的早期试探。
 
-## 参议员玛莎·布莱克本：
+“美国关切地注意到中共持续试图恐吓包括[台湾](https://www.washingtontimes.com/topics/taiwan/)在内的邻国的尝试，”国务院发言人奈德·普莱斯在一份声明中说。“我们将与朋友和盟友站在一起，推动我们在印太地区的共同繁荣、安全和价值观–这包括深化我们与民主[台湾](https://www.washingtontimes.com/topics/taiwan/)的关系。”
 
-让与中共国解放军有联系的公司重新上市是对美国国家安全的威胁。
-【转bbc报道：[中共国的(三大)电信巨头要求在华尔街重新上市](https://www.bbc.com/news/business-55744400)】
+这次大规模的空中入侵包括两架苏-30战斗轰炸机、六架歼-10和四架歼-16战斗机、两架Y-8Q反潜战机和一架Y-8G侦察机。
 
+[台湾](https://www.washingtontimes.com/topics/taiwan/)国防部表示，已下令喷气式拦截机追踪这些战机，并发出无线电警告，同时部署防空导弹系统监视这些活动。
 
+据一位美国官员说，美国情报机构一直在密切监视[中共](https://www.washingtontimes.com/topics/china/)军方是否有任何威胁[台湾](https://www.washingtontimes.com/topics/taiwan/)的活动迹象。最近几天没有发现中共地面或海军部队的活动。
 
-> Relisting companies that have ties to the People’s Liberation Army is a threat to U.S. national security.[https://t.co/0po8nzWNv7](https://t.co/0po8nzWNv7)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [January 25, 2021](https://twitter.com/MarshaBlackburn/status/1353784293089288198?ref_src=twsrc%5Etfw)
+在川普执政期间，提供了超过120亿美元的新武器出售，包括66架F-16喷气式飞机和射程范围辐射中共大陆的导弹。
 
+[台湾](https://www.washingtontimes.com/topics/taiwan/)国防部公开的地图显示，这些喷气式飞机进入了东南沿海的防区。
 
+执政的台湾民进党高级立法委员罗志诚（Lo Chih-Cheng）告诉路透社，这些活动表明[北京](https://www.washingtontimes.com/topics/beijing/)正在寻求阻止美国新政府支持[台湾](https://www.washingtontimes.com/topics/taiwan/)。“这是在向[拜登政府](https://www.washingtontimes.com/topics/biden-administration/)传递一个信息，”他说。
 
-## 众议员吉姆·班克斯：
+在一个相关的事态发展中，新任国防部长劳埃德·J·奥斯汀三世（Lloyd J. Austin III）告诉他的日本同行–防卫大臣岸信夫，美国将根据《美日防卫条约》捍卫日本对有争议的尖阁群岛的主张。
 
-**1．共和党研究委员会@RepublicanStudy的《拯救民主法案》：**
+“奥斯汀国务卿进一步申明，尖阁诸岛受《美日安保条约》第五条保护，美国仍然反对任何单方面改变东海现状的企图，”五角大楼新闻秘书约翰·柯比在一份声明中说。
 
-要求公民身份验证
-禁止未主动申请的缺席选票
-禁止在计票过程中暂停
-此法案将会恢复对选举的信心，因为它让选民有理由来信任他们。
-[华盛顿观察家报@dcexaminer](https://www.washingtonexaminer.com/opinion/op-eds/democrats-are-shirking-congresss-duty-to-preserve-democracy)
+日本声称无人居住的尖阁诸岛是其领土，并称其为钓鱼台。
 
+美国印太司令部周六宣布，美国海军罗斯福号航母打击群率领的航母已经进入南中国海，[中共](https://www.washingtontimes.com/topics/china/)对南中国海的争议岛屿提出了主张。该航母正在进行例行行动。
 
+[中共](https://www.washingtontimes.com/topics/china/)问题专家章家敦（Gordon Chang）说，“罗斯福 ”号在前往南海的途中经过台湾海峡时，是已经向[北京](https://www.washingtontimes.com/topics/beijing/)传达了信息。
 
-> .[@RepublicanStudy](https://twitter.com/RepublicanStudy?ref_src=twsrc%5Etfw)’s Save Democracy Act:
->  
-> ✔️Requires citizenship verification
-> ✔️Bans unsolicited absentee ballots 
-> ✔️Bans pauses in ballot counting 
->  
-> It will restore faith in elections because it gives voters reason to trust them. 
->  [@dcexaminer](https://twitter.com/dcexaminer?ref_src=twsrc%5Etfw) [https://t.co/snQ5XPjIJC](https://t.co/snQ5XPjIJC)
-> — Jim Banks (@RepJimBanks) [January 25, 2021](https://twitter.com/RepJimBanks/status/1353767274021347330?ref_src=twsrc%5Etfw)
+他在福克斯新闻频道说：“从本质上讲，拜登团队对[中共](https://www.washingtontimes.com/topics/china/)说的[是]他们最好不要想尝试干涉台湾，特别是我们的航母打击群”。
 
+章先生说，他相信[中共](https://www.washingtontimes.com/topics/china/)会加强挑衅行动。他说：“我们知道，[中共](https://www.washingtontimes.com/topics/china/)很早就在测试美国的行政管理，”他指出2001年涉及中共喷气式飞机和海军侦察机在空中相撞的事件。
 
+“这将升级，”章先生说。“我们在[拜登政府](https://www.washingtontimes.com/topics/biden-administration/)中有很多奥巴马[政府]官员。我希望他们从奥巴马时期相当软弱的政策中学到了一些东西，这些政策最终给美国乃至我们在太平洋地区的邻国和伙伴带来了不利的结果。”
 
-**2．社会主义毁了工作和美国人的生活！很讽刺啊:**
-【转Susan Crabtree Hennebury 推文：[伯尼•桑德斯的手套制造商责备高税收毁了她的小本生意](https://twitter.com/susancrabtree/status/1353404777061707776?s=20)】
+原文作者：比尔·格茨（Bill Gertz）
 
+发布时间：2021年1月24日
 
+文章链接：[https://www.washingtontimes.com/news/2021/jan/24/china-incursions-taiwan-air-defense-zone-seen-test/](https://www.washingtontimes.com/news/2021/jan/24/china-incursions-taiwan-air-defense-zone-seen-test/)
 
-> Socialism kills jobs and the livelihood of working Americans! Lot of irony here👇 [https://t.co/MJFHvsGTZR](https://t.co/MJFHvsGTZR)
-> — Jim Banks (@RepJimBanks) [January 24, 2021](https://twitter.com/RepJimBanks/status/1353435227738185733?ref_src=twsrc%5Etfw)
-
-
-
-## 参议员汤姆·科顿：
-
-**1．中共国的游说者大肆鼓吹要回到过去，而那时美国的技术助长了进行 #灭绝种族 的 #中共 #CCP 的经济和军事发展。 美国总统@POTUS决不能再返回到过去的这些失败政策。**
-【转路透社：[科技产业集团敦促拜登政府对中国的出口管制进行复查](https://www.reuters.com/article/usa-china-chip-industry-idUSL1N2K003D)】
-
-
-
-> The China Lobby is furiously advocating for a return to the old days, where U.S. technology fueled the genocidal CCP’s economic and military development. [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) must not return to these failed policies of the past.[https://t.co/1GaZf5IDiI](https://t.co/1GaZf5IDiI)
-> — Tom Cotton (@SenTomCotton) [January 25, 2021](https://twitter.com/SenTomCotton/status/1353779190953345024?ref_src=twsrc%5Etfw)
-
-
-
-**2．#中共国 对前川普官员的制裁是对拜登政府的警告-中国要拜登官员知道，如果他们越过中共（红线）,也会成为目标。**
-拜登总统需要强有力地谴责这些制裁，并实行对等制裁。
-【附汤姆•科顿在接受福克斯电视台玛丽亚的采访讲话：(对美前官员）的报复是中共国施加影响危险而且阴险的升级】
-
-
-
-> China's sanctions against former Trump officials are a warning to the Biden administration–China wants Biden officials to know that if they cross the CCP, they too will be targeted.
-> 
-> President Biden needs to denounce these sanctions forcefully and impose reciprocal sanctions. [pic.twitter.com/9iTs38AxXR](https://t.co/9iTs38AxXR)
-> — Tom Cotton (@SenTomCotton) [January 24, 2021](https://twitter.com/SenTomCotton/status/1353389410721492995?ref_src=twsrc%5Etfw)
-
-
-
-## 众议员莫·布鲁克斯：
-
-**1．#中国共产党 (#CCP) 向亨特·拜登支付了数百万美元。**
-#JoeBiden 拜登毙掉了拱心石輸油管道项目(Keystone XL)和美国的就业岗位； 向 #中共 输送更便宜的石油。
-满洲里的候选人埃里克·斯沃威尔 #EricSwalwell（中共间谍=其情妇)是川普的弹劾经理人。
-还有连接这些点的其他人吗？
-
-
-
-> Communist Chinese Party (CCP) pays Hunter Biden millions.[#JoeBiden](https://twitter.com/hashtag/JoeBiden?src=hash&amp;ref_src=twsrc%5Etfw) kills Keystone XL pipeline & American jobs; sends cheaper oil to CCP.
-> 
-> Manchurian Candidate [#EricSwalwell](https://twitter.com/hashtag/EricSwalwell?src=hash&amp;ref_src=twsrc%5Etfw) (CCP spy = mistress) is Trump impeachment manager.
-> 
-> Anyone else connecting dots?[https://t.co/wbfyG0UO5s](https://t.co/wbfyG0UO5s)
-> — Mo Brooks (@RepMoBrooks) [January 25, 2021](https://twitter.com/RepMoBrooks/status/1353764731014803456?ref_src=twsrc%5Etfw)
-
-
-
-**2．参议员汤姆•科顿”中共恐吓拜登政府。”**
-中共支付了亨特•拜登大笔钱。拜登取消了Keystone XL管道，损失了1000多个美国工作，剥夺了美国获得安全的加拿大石油的权利，而现在石油很可能进入中共国。
-这就开始了。
-【附汤姆•科顿参议员的官网：[科顿警告中共国对美国的报复和影响](https://www.cotton.senate.gov/news/videos/watch/january-22-2021-cotton-warns-of-chinese-sanctions-influence)】
-
-
-
-> .[@TomCottonAR](https://twitter.com/TomCottonAR?ref_src=twsrc%5Etfw): “Chinese Communist Party intimidates Biden Admin.”. 
-> 
-> CCP paid Hunter Biden BIG $$. Biden cancels Keystone XL Pipeline, costing 1000s AMERICAN jobs, depriving USA of secure Canada oil, oil likely now to go Communist China.
-> 
-> So it begins.[https://t.co/2ZM9DTMWdE](https://t.co/2ZM9DTMWdE)
-> — Mo Brooks (@RepMoBrooks) [January 24, 2021](https://twitter.com/RepMoBrooks/status/1353394843192586241?ref_src=twsrc%5Etfw)
-
-
-
-## 川普律师朱利安尼：
-
-不仅仅有言论审查  #censorship 保护着拜登，还有讨好这位总统的报道，而他看起来刚签完文件一副迷惑和疲惫的样子。总有一天我们会再次拥有新闻自由
-
-
-
-> Not only is there a [#censorship](https://twitter.com/hashtag/censorship?src=hash&amp;ref_src=twsrc%5Etfw) protecting Biden but a fawning coverage of a President who seems to be getting confused and exhausted just signing papers.
-> 
-> Someday we may once again have a Free Press.
-> — Rudy W. Giuliani (@RudyGiuliani) [January 25, 2021](https://twitter.com/RudyGiuliani/status/1353579217083109376?ref_src=twsrc%5Etfw)
-
-
-
-## 参议员乔什·霍利：
-
-是时候站出来反对钳制美国的言论了。【[转推纽约邮报同名文章](https://nypost.com/2021/01/24/its-time-to-stand-up-against-the-muzzling-of-america/?utm_source=twitter_sitebuttons&amp;utm_medium=site%20buttons&amp;utm_campaign=site%20buttons)】
-
-
-
-> It's time to stand up against the muzzling of America [https://t.co/rrTrtfrYZn](https://t.co/rrTrtfrYZn) via [@nypost](https://twitter.com/nypost?ref_src=twsrc%5Etfw)
-> — Josh Hawley (@HawleyMO) [January 25, 2021](https://twitter.com/HawleyMO/status/1353531833884020738?ref_src=twsrc%5Etfw)
-
-
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

@@ -1,29 +1,123 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班农战斗室WARROOM精选 678期 SG Cheah女士谈全球大重置不是阴谋论 比共产主义更糟是1984式的法西斯
-` 新闻译制组` [轉載自GNews](https://gnews.org/zh-hans/812918/)
+## 白宫报告：川普政府的政绩——截至2021年1月（十七）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/815901/)
 
-#### *供稿：班农战斗室译制组*
+五月花写作组 ｜ 翻译：zz17 ｜ 校对：虹陵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告17.jpg)
+## **Part 17 – Combatting the Opioid Crisis **
+
+## **第十七部分：抗击阿片类药物危机**
+
+* * *
+
+### **Brought unprecedented attention and support to combat the opioid crisis. **
+
+### 前所未有的关注和支持抗击阿片类药物危机。
+
+- Declared the opioid crisis a nationwide public health emergency.
+- 宣布阿片类药物危机为全国公共卫生紧急事件。
+- Secured a record $6 billion in new funding to combat the opioid epidemic.
+- 创纪录拨款60亿美元新资金，用于抗击阿片类药物泛滥。
+- Signed the SUPPORT for Patients and Communities Act, the largest-ever legislative effort to address a drug crisis in our Nation’s history.
+- 签署了《对病患和社区支持法案》，该法案是我国在立法层面上，有史以来对解决药物危机做出的最大努力。
+- Launched the Initiative to Stop Opioid Abuse and Reduce Drug Supply and Demand in order to confront the many causes fueling the drug crisis.
+- 发起了《制止阿片类药物滥用和减少毒品供求的倡议》，以应对引发毒品危机的诸多因素。
+- The Department of Health and Human Services (HHS) awarded a record $9 billion in grants to expand access to prevention, treatment, and recovery services to States and local communities.
+- 卫生和公共服务部门(HHS)提供了创纪录的90亿美元款项，用于加强各州和当地社区的预防、治疗和服务恢复。
+- Passed the CRIB Act, allowing Medicaid to help mothers and their babies who are born physically dependent on opioids by covering their care in residential pediatric recovery facilities.
+- 通过了《CRIB法》。为了帮助母亲和她们一出生身体就依赖阿片类药物的婴儿，允许医疗保险支付他们在儿科康复机构住院期间的护理费用。
+- Distributed $1 billion in grants for addiction prevention and treatment.
+- 分发了10亿美元用于预防和治疗药物成瘾。
+- Announced a Safer Prescriber Plan that seeks to decrease the amount of opioids prescriptions filled in America by one third within three years.
+- 宣布了一项“更安全的处方计划”，旨在三年内将美国的阿片类药物处方数量减少三分之一。
+- Reduced the total amount of opioids prescriptions filled in America.
+- 在美国, 减少了阿片类药物处方的总量。
+- Expanded access to medication-assisted treatment and life-saving Naloxone.
+- 增加获得药物辅助治疗和救命的纳洛酮（Naloxone）的途径。
+- Launched FindTreatment.gov, a tool to find help for substance abuse.
+- 启动FindTreatment.gov，该工具可为药物滥用提供帮助。
+- Drug overdose deaths fell nationwide in 2018 for the first time in nearly three decades.
+- 2018年是近30年来，由药物过量导致的死亡在全国范围内的首次下降。
+- Launched the Drug-Impaired Driving Initiative to work with local law enforcement and the driving public at large to increase awareness.
+- 发起了“禁毒驾驶计划”，与地方执法部门和广大驾驶公众合作，以充分地提高认识。
+- Launched a nationwide public ad campaign on youth opioid abuse that reached 58 percent of young adults in America.
+- 发起了一场关于青年人阿片类药物滥用的全国性公共广告活动，惠及了美国58%的年轻人。
+- Since 2016, there has been a nearly 40 percent increase in the number of Americans receiving medication-assisted treatment.
+- 自2016年以来，接受药物辅助治疗的美国人数量增加了近40%。
+- Approved 29 state Medicaid demonstrations to improve access to opioid use disorder treatment, including new flexibility to cover inpatient and residential treatment.
+- 批准了29个州的医疗补助示范，用以改善阿片类药物使用障碍的治疗，包括为住院病人和住院治疗提供新的灵活性。
+- Approved nearly $200 million in grants to address the opioid crisis in severely affected communities and to reintegrate workers in recovery back into the workforce.
+- 批准了近2亿美元的款项，以解决严重受影响的社区的阿片类药物危机，并使工人得以恢复而重新融入劳动力队伍中。
 
 
-【班农先生】
-我们节目想做的还有，请一些推动进程的思想者，你们一般不容易找到他们。有一款电子杂志叫《Evie》 ，定位思想独立但感到被出版业遗忘的女性。这本杂志有位作家，我一直关注她的文章，非常精彩。今天要在直播中介绍她：SG Cheah，她是马来西亚华裔，她是位最优秀的思想者和作家。我想欢迎她来到节目中谈谈她的第一篇文章。
-很多年我都在谈Davos党 ，这不是阴谋论，全球经济和金融系统就是这么运作的。在全球化项目和世界许多国家的平民运动和民族运动之间，尤其是中国老百姓被中共和全球商业一伙人奴役。她在《Evie》杂志有篇文章 ，我们会让大家看到，标题是：大重置不是阴谋论 ，它就发生在我们眼前。(The Great Reset’ Isn‘t A Conspiracy Theory. It’s Happening Before Our Eyes.) 我认为她最言简意赅地解释了问题 ，从最基本谈起，非常简洁非常有力。我要欢迎 SG Cheah女士连线作战室，请谈谈大重置，给观众们谈谈这不是个阴谋论，这是进行时，正在发生着，人们可以理解。讲讲这是怎么一回事，我们观众怎样理解？
+### **Took action to seize illegal drugs and punish those preying on innocent Americans. **
 
-【SG Cheah女士】
-好的谢谢叫我来连线，真的很荣幸。那么基本上如您所知，大重置、Davos精英、企业界、法西斯全球主义精英，他们不是什么新鲜事，了解共产国际的历史的话就知道。共产主义有个世界大会，他们开会、制定计划、策划如何推行共产主义，说实话Davos或许是一样的。Klaus Schwab貌似并非马克思主义者，但他有本书基本上是宣扬马克思主义，我很惊讶人们没能把他们关联起来。我认为问题在于人们不了解共产主义历史，没怎么读有关共产主义历史的内容，还有人们的遗忘，我这篇文章就是写的这些。
+### 采取行动缉获非法毒品**，**惩罚那些掠夺无辜美国人生命的人**。**
 
-【班农先生】
-那么我想问你，你提到Klaus Schwab，Klaus Schwab是世界经济论坛总负责。在滑雪胜地Davos举行，我们叫它Davos党，世界上所有精英、商界、对冲基金、高层人士、政府和媒体等等。Klaus Schwab表面推崇资本主义新形态，但如果看看中共的模式，真的是国家资本主义与当下专制独裁或极权独裁的结合。在美国已经看到了科技巨头、大企业集团、大媒体，对他们来说劳动阶层只是小齿轮。但为什么你说那就是共产主义？是中共的新模式吗？不是回到老马克思主义吗？【or it’s the it’s not the old throwback to Marxism? Is it?】
+- In FY 2019, ICE, HSI seized 12,466 pounds of opioids including 3,688 pounds of fentanyl, an increase of 35 percent from FY 2018.
+- 在2019财政年，移民及海关执法局（ICE）和国土安全部（HSI）缉获了包括3,688磅芬太尼在内的共12,466磅阿片类药物，比2018财年增加了35%。
+- Seized tens of thousands of kilograms of heroin and thousands of kilograms of fentanyl since 2017.
+- 自2017年以来缉获了数万公斤的海洛因和数千公斤芬太尼。
+- The Department of Justice (DOJ) prosecuted more fentanyl traffickers than ever before, dismantled 3,000 drug trafficking organizations, and seized enough fentanyl to kill 105,000 Americans.
+- 司法部（DOJ）起诉的芬太尼贩运者比以往任何时候都要多，捣毁了3,000个贩毒组织，并且缉获了大量的芬太尼，数量足以杀死105,000个美国人。
+- DOJ charged more than 65 defendants collectively responsible for distributing over 45 million opioid pills.
+- 司法部控告了超过65名被告, 他们共同负责分销超过4500万粒阿片类药物。
+- Brought kingpin designations against traffickers operating in China, India, Mexico, and more who have played a role in the epidemic in America.
+- 对在中国、印度、墨西哥等地活动的毒贩进行了毒枭认定，他们在美国的毒品泛滥中充当关键的角色。
+- Indicted major Chinese drug traffickers for distributing fentanyl in the U.S for the first time ever, and convinced China to enact strict regulations to control the production and sale of fentanyl.
+- 首次起诉了重要的中国毒贩，依据是他们在美国分销芬太尼。并说服中国政府制定严格的法规来控制芬太尼的生产和销售。
 
-【SG Cheah女士】
-我们得诚实面对，它其实比共产主义更糟，共产正义政府实在地告诉你一切归他们拥有，更糟因为它是法西斯主义，企业法西斯，企业法西斯幻象让你觉得你拥有私有财产，但其实是被政府控制的。所以说实在的，就说它是法西斯主义，它甚至不像意大利过去墨索里尼式法西斯，它是《1984》式的法西斯，他们跟踪定位你，你没有任何权利，永远生活在恐惧中。墨索里尼至少让意大利人觉得他在为他们服务，但那些精英、统治阶级并不是为了我们的福祉，他们只是推动自己的计划，他们的计划就是统治你。你不会拥有任何财富但还感觉幸福，他们不会告诉你“一切归我们所有”“你也归我们所有”。您也同意吧，这个“你会幸福”的说法。
 
-【班农先生】
-大重置是他们在新世界第一个拿出来卖的，他们说“你不会拥有任何东西但你会幸福”，“没有汽车房产一切靠租但你会幸福”，然后他们控制所有资产，运作金融系统，降到零利率、负利率，让他们的资产价值暴涨，让你不可能有资本积累。所以我一直在对30到35岁的年轻人说，你们只不过是沙俄的农奴。虽然吃的好些，有衣服穿，有更多信息，但你也只不过是个农奴。因为他们奴役了中国老百姓，被奴役的中国劳动力连同其他所有劳动阶层被奴役，产能过剩，压低价格，人们涨不了工资，这个体系就是这样，这不是阴谋论，这个体系就是这么运作的。
+（完结）
 
+* * *
 
-*发稿：喜马拉雅大使馆群 文月*
+原文来源：
+
+[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
+
+往期链接：
+
+[白宫报告：川普政府的政绩——截至2021年1月（一）](https://gnews.org/zh-hans/761018/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（二）](https://gnews.org/zh-hans/761213/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（三）](https://gnews.org/zh-hans/766962/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（四）](https://gnews.org/zh-hans/767022/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（五）](https://gnews.org/zh-hans/771076/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（六）](https://gnews.org/zh-hans/771727/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（七-1）](https://gnews.org/zh-hans/779811/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（七-2）](https://gnews.org/zh-hans/780079/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（八）](https://gnews.org/zh-hans/788066/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十一）](https://gnews.org/zh-hans/802251/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十二）](https://gnews.org/zh-hans/802307/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十三）](https://gnews.org/zh-hans/802335/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十四）](https://gnews.org/zh-hans/802367/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十五）](https://gnews.org/zh-hans/815742/)
+
+[白宫报告：川普政府的政绩——截至2021年1月（十六）](https://gnews.org/zh-hans/815787/)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
 0

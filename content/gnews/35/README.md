@@ -1,29 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共频频对台挑衅，台海战争一触即发
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/814738/)
+## 【疫苗快讯】棒球本垒打之王注射疫苗后去世
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/815253/)
 
-蒙特利尔皇家山战友团 Tao
-校对 小溪
-发稿 云起时
-![]()![](https://gnews.org/wp-content/uploads/2021/01/breitbart.com_-4.jpg)*图片来源：breitbart.com*
-据华盛顿时报（WashingTon Times）1月24日报道，周六，15架中共战机闯入台湾防空区，提醒拜登新任国务院，对北京向这个岛国施加军事压力表达关注。台湾国防部周六宣布，8架中共国轰炸机和4架战斗机被发现进入防空识别区的西南角。 还发现了2架反潜战机和1架侦察机。 这架飞机在国际领空飞行，但在防空识别区内，促使台湾部署了防空导弹作为回应。
+【编译】
 
-近几个月来，中共国一直在台湾各地进行定期空中飞行，但一直停留在防空区外。大量中共国飞机入侵，显示出其对拜登新政府承诺支持北京，认为这个民主岛国是其领土一部分的一次初期试探。国务院发言人内德·普莱斯（Ned Price）在一份声明中说：“美国密切关注到中共国不断企图恐吓包括台湾在内的邻国。” “我们将与朋友和盟友站在一起，促进我们在印太地区的共同繁荣、安全和价值观，其中包括加深我们与民主台湾的联系。”
+被称为美国棒球本垒打之王的汉克·亚伦（Hank Aaron），于1月5日在电视上接种了Moderna 新冠疫苗。 他说“我希望向美国黑人发出一个信息，那就是这个疫苗是安全的。” 他于1月22号去世，享年86岁。
 
-大规模入侵的中共战机包括2架苏-30轰炸机、6架歼-10和4架歼-16战斗机、2架Y-8Q反潜战机和1架Y-8G侦察机。台湾国防部表示，命令喷气拦截机追踪飞行情况，，并发出无线电警告，同时部署防空导弹系统监控动向。一位美国官员说，美国情报机构一直在密切监视中共国军方是否有任何威胁台湾的活动迹象。 最近几天没有发现中共国地面或海军的活动。 在川普政府执政期间，出售了超过120亿美元的新武器，包括66架F-16喷气式飞机和能够到达中共国大陆的导弹。台湾国防部公布的地图显示，这些飞机进入了东南沿海的防空区。执政的台湾民进党资深议员卢志成（Lo Chih-Cheng）告诉路透社，这些活动表明北京正试图阻止新政府支持台湾。他说：“它正在向拜登政府传达信息。”
+- ![]()![](https://gnews.org/wp-content/uploads/2021/01/image-301.png)
 
-在一项相关的事态发展中，新任国防部长劳埃德·J·奥斯丁（Lloyd J. Austin）对日本国防大臣岸信夫（Nobuo Kishi）表示，美国将根据《美日防卫条约》，捍卫日本对有争议的尖阁诸岛的主张。五角大楼新闻秘书约翰·柯比（John Kirby）在一份声明中说：“奥斯汀秘书长进一步确认，尖阁诸岛已被《美日安全条约》第五条所涵盖，美国仍然反对任何单方面企图改变东海现状的尝试。” 日本声称无人居住的尖阁列为领土，称其为钓鱼台。
 
-美国印度太平洋司令部宣布：周六，以罗斯福号航母为首的航母打击群已经进入南海，中共国宣称的有争议的岛屿区。该舰正在进行常规行动。中国专家章家敦（Gordon Chang）说，罗斯福号穿过台湾海峡去往南中国海途中，向北京传达了一个信息：“实质上，拜登团队对中共国说的是，他们最好独自离开台湾，特别是和我们的航母打击群一起”他在福克斯新闻频道说。 章先生说，他相信中共国将提升挑衅行为。他说：“我们知道中共国很早就在测试美国政府。”他指出2001年，涉及中共国喷气飞机与美海军侦察机之间发生的空中碰撞事故。“这将升级。”章先生说：“拜登政府中有很多奥巴马政府官员。我希望他们能从奥巴马任期内相当软弱的政策中学到一些东西，这些最终对美国、我们邻国和太平洋的合作伙伴都是不利的结果。”
+推特正在阻止这个事情成为热点。当然像汉克·亚伦这种棒球传奇的死亡成为热点是理所应当的。他的家人说他接种疫苗之前是健康和充满活力的，可最后情况迅速恶化。
 
-评论：中共这个给全世界开药方的“老中医”如今自己已经病入膏肓，随时可能土崩瓦解。中共国无论在经济还是政治上都几近崩溃。全世界投毒，截止目前已造成接近一亿人感染中共病毒，全球经济停摆。面临被全世界追责的中共，在国际上已经成了名副其实的“过街老鼠”。国内的情况则更为糟糕，虚假的泡沫经济随时可能轰塌。中共党内的纷争更是到了刺刀见红的时刻，老百姓对这个邪灵恶党的忍耐也已经到达极限…
+【转载者评论】对于那些一直想要他家人谈论他的身体情况的链接， 大部分已经在推特中消失了。一位传奇人物去世了居然没有成为热点，所以让人怀疑推特是在删除信息。不过这个推是来自在汉克接种疫苗当天访问他的女记者, 让人不容置疑。
 
-危机四伏的中共急需一场战争来凝聚党心，转移内部矛盾，延缓国内经济崩溃。他们当然没有能力，也没有胆量跟西方国家叫板，但是欺负和压迫华人同胞他们毫不手软。中共对外一直宣称台湾是中共国领土的一部分，台湾问题是“中共国内部事务”“不受任何外国势力的干涉”。中共多年来对台湾的“统战”和渗透培养了众多的“卖台贼”，台湾当局的软弱和短视也是中共敢对其耀武扬威的重要原因。
+Hank Aaron, who was baseball’s home run king for 33 years, got the Moderna shot on TV January 5. “I hope to send a message to Black Americans that the vaccine is safe.” He died today at age 86.
 
-在中共的频频挑衅下，台湾海峡形势严峻。台海战争一触即发，台湾安全面临空前挑战。正如七哥所说，只有消灭中共才能拯救台湾。中共如果不灭，台湾只有两个结局：要么台湾屈从于中共的淫威，下跪求饶，顺从中共；要么台湾被中共发动的侵略战争所摧毁。而这都是我们不愿意看到的。只有早日消灭中共，才有拯救台湾2300万同胞的可能。
+Twitter is preventing this story from trending.  Of course the death of a legend like Hank Aaron would trend immediately. Family are saying he was healthy and vibrant until he got the shot and things started quickly deteriorating.
 
-[原文链接](https://www.washingtontimes.com/news/2021/jan/24/china-incursions-taiwan-air-defense-zone-seen-test/%20https://gnews.org/zh-hans/809899/)
+【Comments】For those who keep asking for the links to family talking about his health – most of them are gone from Twitter. Somehow a legend dies and it’s not trending, so I assume Twitter is deleting tweets. But here is the reporter who interviewed Hank the day he got the shot, January 5. She described him as “full of life” and “upbeat about life” in this thread.
+
+另有一位在12月份检测出COVID-19阳性的加利福尼亚居民在接种疫苗后死亡。 据报道，这位居民在接种新冠疫苗数小时后于周四在加利福尼亚普莱瑟县丧生。
+
+尽管美国疾病控制中心CDC 建议不要在测试新冠得阳性的90天内接种疫苗，这位在12月感染了病毒的居民仍是接种了疫苗。 虽然现在尚不清楚患者是接受哪种新冠疫苗，卫生官员说人们不应太快地将死亡归咎于疫苗。
+
+A California resident who tested positive for COVID-19 in December died after receiving a vaccine. The individual reportedly perished in Placer County, California on Thursday, several hours after getting the coronavirus vaccine.
+
+They reportedly contracted the virus in December, and despite a CDC recommendation to not get vaccinated within 90 days of a positive test, received the vaccine.  While it is unclear which COVID-19 vaccine the patient received, health officials said people should not be too quick to blame the vaccine for the death.
+
+【来源】
+
+1. [https://www.reddit.com/r/conspiracy/comments/l2ulks/hank\_aaron\_got\_the\_moderna\_shot\_on\_tv\_january\_5\_i/](https://www.reddit.com/r/conspiracy/comments/l2ulks/hank_aaron_got_the_moderna_shot_on_tv_january_5_i/)
+2. https://twitter.com/KHollowayWSB/status/1352641971890872324?s=20
+3. [https://www.oann.com/calif-covid-19-vaccine-recipient-dies-hours-after-being-vaccinated/](https://www.oann.com/calif-covid-19-vaccine-recipient-dies-hours-after-being-vaccinated/)
+
 
 0

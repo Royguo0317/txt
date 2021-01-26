@@ -1,123 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫报告：川普政府的政绩——截至2021年1月（十六）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/815787/)
+## 1/26/2021 财经快讯：拜登政府签署购买美国商品行政命令; 中共病毒对世界经济冲击仍在继续
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/816244/)
 
-五月花写作组 ｜ 翻译：zz17 ｜ 校对：Tom Cat ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告16.jpg)
-## **Part 16 – Expanding Educational Opportunity **
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/Picture999-7.jpg)
+图片来源： [https://www.dw.com/](https://www.dw.com/)
 
-## **第十六部分：扩大教育机会**
-
-* * *
-
-### **Fought tirelessly to give every American access to the best possible education. **
-
-### **为让每个美国人尽可能获得最优质的教育作出不懈的努力。**
-
-- The Tax Cuts and Jobs Act expanded School Choice, allowing parents to use up to $10,000 from a 529 education savings account to cover K-12 tuition costs at the public, private, or religious school of their choice.
-- 《减税和就业法案》扩大了择校范围，并允许家长们从529个教育储蓄账户中动用高达10,000美元来支付他们选择的公立、私立或宗教学校的K-12学费。
-- Launched a new pro-American lesson plan for students called the 1776 Commission to promote patriotic education.
-- 为学生推出新的亲美课程计划来促进爱国教育，该计划称为1776委员会。
-- Prohibited the teaching of Critical Race Theory in the Federal government.
-- 禁止在联邦政府中教学批判性种族理论。
-- Established the National Garden of American Heroes, a vast outdoor park that will feature the statues of the greatest Americans to ever live.
-- 建立了美国英雄国家公园，这个大型户外公园将承载有史以来最伟大的美国人的雕像。
-- Called on Congress to pass the Education Freedom Scholarships and Opportunity Act to expand education options for 1 million students of all economic backgrounds.
-- 呼吁国会通过《教育自由奖学金和机会法案》，为所有经济背景的100万名学生提供更多的教育选择。
-- Signed legislation reauthorizing the D.C. Opportunity Scholarship program.
-- 签署立法重新授权华盛顿特区机会奖学金项目。
-- Issued updated guidance making clear that the First Amendment right to Free Exercise of Religion does not end at the door to a public school.
-- 发布了最新指南，明确规定第一修正案信教自由的权利不会在公立学校终止。
+1. **拜登签署“购买美国商品”行政命令**
 
 
-### **Took action to promote technical education. **
+美国总统拜登1月25日签署了一项关于政府采购的规定行政命令，以支持美国国内制造业，并鼓励联邦政府购买更多在美国制造的产品。拜登的“购买美国商品”计划将通过减少现有的“购买美国商品”规则中的漏洞和豁免，并更改“美国制造”商品的定义，使联邦机构与海外公司签订合同购买海外产品更加困难。拜登在1月25日的发言中说：“正如大流行所表明的那样，我们再也不能使美国在国家紧急状态中，仍必须依靠一个没有共同利益的外国来保护自己的人民的地位的状况。”
 
-### **采取行动促进技术教育。**
+[https://www.forbes.com/sites/sarahhansen/2021/01/25/biden-signs-buy-american-executive-order-heres-what-it-means-for-businesses/?sh=71cfa75c2e4d](https://www.forbes.com/sites/sarahhansen/2021/01/25/biden-signs-buy-american-executive-order-heres-what-it-means-for-businesses/?sh=71cfa75c2e4d)
 
-- Signed into law the Strengthening Career and Technical Education for the 21st Century Act, which provides over 13 million students with high-quality vocational education and extends more than $1.3 billion each year to states for critical workforce development programs.
-- 签署了《加强21世纪职业和技术教育法案》，该法案为1300多万学生提供优质的职业教育,并每年向各州提供超过13亿美元,用于劳动力发展计划。
-- Signed the INSPIRE Act which encouraged NASA to have more women and girls participate in STEM and seek careers in aerospace.
-- 签署《激励(INSPIRE)法案》成为法律, 鼓励美国宇航局招收更多女性，鼓励女孩们参加科学、技术、工程和数学领域课程，并在航天领域寻求职业发展。
-- Allocated no less than $200 million each year in grants to prioritize women and minorities in STEM and computer science education.
-- 每年拨款不少于2亿元，优先考虑补助给在科学、技术、工程、数学和计算机教育的女性和少数裔人群。
+1. **美国商务部宣布拜登-哈里斯政府团队任命**
 
 
-### **Drastically reformed and modernized our educational system to restore local control and promote fairness. **
+美国商务部于1月25日宣布了新的拜登-哈里斯政府领导下团队的任命。商务部称这是一个由多元化和有成就的个人组成的团队，致力于为所有美国人促进经济发展。这些关键成员将与公务员合作，以促进创造就业机会和经济增长，同时推进拜登-哈里斯政府的包括遏制COVID-19大流行，应对气候危机，确保公平创造就业机会，并帮助企业和社区更好地重建等领域的发展。
 
-### **大力改革和现代化教育体系，来恢复地方对教育的控制、促进公平。**
+[https://www.commerce.gov/news/press-releases/2021/01/us-department-commerce-announces-first-biden-harris-appointments](https://www.commerce.gov/news/press-releases/2021/01/us-department-commerce-announces-first-biden-harris-appointments)
 
-- Restored state and local control of education by faithfully implementing the Every Student Succeeds Act.
-- 通过坚定执行《每位学生成功法案》，来恢复国家和地方对教育的控制。
-- Signed an executive order that ensures public universities protect First Amendment rights or they will risk losing funding, addresses student debt by requiring colleges to share a portion of the financial risk, and increases transparency by requiring universities to disclose information about the value of potential educational programs.
-- 签署了一项行政命令，确保公立大学会保护第一修正案的权利，否则它们将面临失去资金的风险； 通过要求学院分担部分财务风险来解决学生债务问题，并通过要求大学披露有关潜在教育方案的价值的信息，来提高透明度。
-- Issued a rule strengthening Title IX protections for survivors of sexual misconduct in schools, and that – for the first time in history – codifies that sexual harassment is prohibited under Title IX.
-- 发布了一项规定，在学校内遭受性行为不端的受害者，给予第九修正案保护，该规定是有史以来首次在第九修正案下将禁止性骚扰编撰成法律。
-- Negotiated historic bipartisan agreement on new higher education rules to increase innovation and lower costs by reforming accreditation, state authorization, distance education, competency-based education, credit hour, religious liberty, and TEACH Grants.
-- 关于在新高等教育规则方面达成历史性两党协议，通过改革认证、国家授权、远程教育、能力本位教育、学分、宗教自由和TEACH补助金(注:TEACH全称为The Teacher Education Assistance for College and Higher Education, 寻求学院和高等教育的教师教育帮助计划)来激发创新和降低成本。
+1. **华尔街日报称中共国在外国商业投资方面超过美国**
 
 
-### **Prioritized support for Historically Black Colleges and Universities. **
+《华尔街日报》在1月24日报道称，中共国是2020年新的外国直接投资的最大目的地，超越了美国长期以来的领先地位。据联合国周日公布的数据显示，在2020年，美国新的外国直接投资下降了49％，而中共国上升了4％。该报告称，2016年，美国的外国投资达到创纪录的4720亿美元，大大高于当时在中国的外国投资1340亿美元。但是，2017年美国的外国投资开始下降，而中国的外国投资却有所增加。
 
-### **优先支持传统非洲裔美国人大学**
+评：中共国数据造假的传统以及长期以来一贯地与华尔街利益集团的蓝金黄和勾兑使人对报告的准确度存疑。
 
-- Moved the Federal Historically Black Colleges and Universities (HBCU) Initiative back to the White House.
-- 将联邦传统非洲裔美国人大学(HBCU)的倡议带回白宫。
-- Signed into law the FUTURE Act, making permanent $255 million in annual funding for HBCUs and increasing funding for the Federal Pell Grant program.
-- 签署《未来(FUTURE)法案》成为法律，为传统非洲裔美国人大学(HBCU)永久性提供2.55亿美元的年度资金，并增加联邦佩尔助学金(Federal Pell Grant)计划的资金。
-- Signed legislation that included more than $100 million for scholarships, research, and centers of excellence at HBCU land-grant institutions.
-- 签署了立法法案，为奖学金，研究项目和在HBCU赠地机构的英才中心提供了超过1亿的资金。
-- Fully forgave $322 million in disaster loans to four HBCUs in 2018, so they could fully focus on educating their students.
-- 2018年，向4所传统非洲裔美国人大学(HBCU)全额提供了3.22亿美元的救灾贷款，以便它们能够完全专注在学生教育上。
-- Enabled faith-based HBCUs to enjoy equal access to Federal support.
-- 使基于信仰的传统非洲裔美国人大学(HBCU)享有获得联邦支持的平等机会。
+[https://dailycaller.com/2021/01/25/report-china-overtakes-united-states-foreign-business-investments/](https://dailycaller.com/2021/01/25/report-china-overtakes-united-states-foreign-business-investments/)
+
+1. **拜登对石油的暂停引起了新墨西哥州的巨大关注**
 
 
-* * *
+美国总统拜登对新的石油和天然气租约和钻探许可暂停60天的决定在新墨西哥州引起了广泛关注。该州的共和党高层以及美国产量最高的二叠纪盆地附近社区的当地领导人说，任何永久暂停生产的举措都将对该州的经济造成毁灭性打击。新墨西哥州的石油产量有一半是在联邦土地上生产的，每年的特许权使用费高达数亿美元。其他州的国会议员也表示担忧说，禁令的连锁反应将伤害那些已经受到疫情影响而苦苦挣扎的小企业。
 
-原文来源：
+[https://www.breitbart.com/news/bidens-pause-on-oil-cause-for-big-concern-in-new-mexico/](https://www.breitbart.com/news/bidens-pause-on-oil-cause-for-big-concern-in-new-mexico/)
 
-[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
+1. **欧盟与阿斯利康因疫苗供应产生冲突**
 
-往期链接：
 
-[白宫报告：川普政府的政绩——截至2021年1月（一）](https://gnews.org/zh-hans/761018/)
+欧盟最高卫生官员在1月25日称不满意阿斯利康在解决延迟向欧盟交付COVID-19疫苗而引起的争端的答复。与牛津大学合作的阿斯利康在1月22日向欧盟表示，直到三月底，它都无法实现商定的供应目标。欧盟要求阿斯利康找到灵活的供应方式，并敦促其披露疫苗生产和分配数据。
 
-[白宫报告：川普政府的政绩——截至2021年1月（二）](https://gnews.org/zh-hans/761213/)
+评：真正解决冠状病毒的方法在于消灭制造病毒的中共。而疫苗生产和供应与中共利益有千丝万缕的联系，且疫苗的有效性和安全性还处于不确定状态。
 
-[白宫报告：川普政府的政绩——截至2021年1月（三）](https://gnews.org/zh-hans/766962/)
+[https://www.reuters.com/article/us-health-coronavirus-eu-astrazeneca/eu-locks-horns-with-astrazeneca-on-vaccine-deliveries-amid-supply-shock-idUSKBN29U0Y9](https://www.reuters.com/article/us-health-coronavirus-eu-astrazeneca/eu-locks-horns-with-astrazeneca-on-vaccine-deliveries-amid-supply-shock-idUSKBN29U0Y9)
 
-[白宫报告：川普政府的政绩——截至2021年1月（四）](https://gnews.org/zh-hans/767022/)
+1. **央行连续16个工作日逆回购 累计投放6870亿元**
 
-[白宫报告：川普政府的政绩——截至2021年1月（五）](https://gnews.org/zh-hans/771076/)
 
-[白宫报告：川普政府的政绩——截至2021年1月（六）](https://gnews.org/zh-hans/771727/)
+为维护银行体系流动性合理充裕，1月25日，中共国央行以利率招标方式开展了20亿元7天逆回购操作，中标利率维持2.2%不变。截至目前，央行1月份以来的所有工作日，均开展了7天逆回购操作，16个工作日累计逆回购投放6870亿元。川财证券研报称，逆回购的投放能够起到降低货币市场利率的作用，随着央行流动性的投放，影响效果会逐渐显现，银行资金面紧张的形势会得到缓解，资金利率将逐步回归常态。
 
-[白宫报告：川普政府的政绩——截至2021年1月（七-1）](https://gnews.org/zh-hans/779811/)
+[https://finance.sina.com.cn/roll/2021-01-26/doc-ikftssap0764232.shtml](https://finance.sina.com.cn/roll/2021-01-26/doc-ikftssap0764232.shtml)
 
-[白宫报告：川普政府的政绩——截至2021年1月（七-2）](https://gnews.org/zh-hans/780079/)
+1. **因芯片断供，大众、福特、丰田等多家车企巨头减产停工应对危机**
 
-[白宫报告：川普政府的政绩——截至2021年1月（八）](https://gnews.org/zh-hans/788066/)
 
-[白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
+据央视报道，受疫情影响，国际芯片市场出现了短缺潮，不止手机行业，汽车行业也受到波及，大众、福特、丰田等多家汽车企业不得不采取削减产量、减产等方式应对危机。美国伯恩斯坦研究公司预计，2021年全球范围内的汽车芯片短缺将造成多达450万辆汽车产量的损失，相当于全球汽车年产量的近5%。
 
-[白宫报告：川普政府的政绩——截至2021年1月（十一）](https://gnews.org/zh-hans/802251/)
+[https://m.sohu.com/a/446631983\_639898/?pvid=000115\_3w\_a](https://m.sohu.com/a/446631983_639898/?pvid=000115_3w_a)
 
-[白宫报告：川普政府的政绩——截至2021年1月（十二）](https://gnews.org/zh-hans/802307/)
+[金融团队]
 
-[白宫报告：川普政府的政绩——截至2021年1月（十三）](https://gnews.org/zh-hans/802335/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十四）](https://gnews.org/zh-hans/802367/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十五）](https://gnews.org/zh-hans/815742/)
-
-* * *
-
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
-
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
-
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+素材搜集: 文罡、Wendy、Totoro
+翻译写作: 雪梨Cheli
+校对: Tracy
 
 0

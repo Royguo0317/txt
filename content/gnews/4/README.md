@@ -1,123 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫报告：川普政府的政绩——截至2021年1月（十七）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/815901/)
+## 以上帝之名出卖上帝 与对灭共者的霸凌
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/816560/)
 
-五月花写作组 ｜ 翻译：zz17 ｜ 校对：虹陵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/01/白宫报告17.jpg)
-## **Part 17 – Combatting the Opioid Crisis **
+台湾农场(筹备) Amitofu
 
-## **第十七部分：抗击阿片类药物危机**
+以上帝之名出卖上帝，所谓性德、自性、圣灵、如来是信念的根本，天主教所说的三位一体指的是圣父、圣子、圣灵是共享上帝之名，换成我们可以理解的就是万佛万神系统、自性、德行的心法或是身、口、意的一致，也就是真正的信仰、言行举止乃至于意念都要一致，称为三位一体或是真如自性不二。在佛法的观念中以欺骗偷盗别人财富的因果和以佛菩萨的名义欺骗偷盗别人财富的因果那是天壤之别的，毁谤正法的重罪是假借佛菩萨名义，让众生完全失去对佛菩萨的信心因而断送众生的学佛信心。上帝与撒旦的一念之间，很多战友都是将自己的财富托付原VOG，8000位战友也就意味着8000个家庭的影响，奉上帝之名祈祷8000位战友的投资都能安全，而不至于出卖上帝。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/957.jpg)
+**VOG事件是共产党倾一国之力来破坏七哥、爆料革命与新中国联邦的邪恶势力，七哥在第一时间成立喜马拉雅联盟委员会直属群，陆续成立喜马拉雅大使馆群、官方法治基金、全球G系列咨服群与无数真战友来应对中共对爆料革命的渗透破坏，甚至扛起VOG与凤凰农场战友的资金安全而全面努力，联盟委员会老班长、长岛哥、马莎、草根小哥和背后无数名辛勤的义工迅速运作24个农场，真战友早已离开VOG的是非之地，也不会太在意其中对爆料革命批评的言论，任何的进化过程本身一定会遭受不断的折磨糟踏、恶意污辱甚至毁谤造谣，这是一种组织的萃取再进化，去芜存菁，透过一层一层的过程留下真正的战友。**
 
-* * *
+针对川普总统必定当选来指责七哥、路德社、爆料革命与新中国联邦的批评，认为不准确带有恶意情绪的评论，目地的本身就是共产党下的一种反社会行为，这是对灭共者的霸凌。119病毒真相、香港国安法、粮食短缺要战友存粮、食品供应链、大规模疫情、中共渗透美国、海航王建、渤海金控、中华能源叶简明、华锐世纪张博、中共人类种族灭绝罪是大屠杀等等3年来数不清的爆料真相，**真战友们都知道在共产党的毒害下做一件好事可真是阻碍重重，做一件坏事真是一大堆人来帮忙，真战友都懂得心不动如山**。本文仅代表个人立场。
 
-### **Brought unprecedented attention and support to combat the opioid crisis. **
+祈祷万佛万神加持七哥与新中国联邦每位战友都能平安。
 
-### 前所未有的关注和支持抗击阿片类药物危机。
+資料來源: 七哥直播、路德社、爆料革命
 
-- Declared the opioid crisis a nationwide public health emergency.
-- 宣布阿片类药物危机为全国公共卫生紧急事件。
-- Secured a record $6 billion in new funding to combat the opioid epidemic.
-- 创纪录拨款60亿美元新资金，用于抗击阿片类药物泛滥。
-- Signed the SUPPORT for Patients and Communities Act, the largest-ever legislative effort to address a drug crisis in our Nation’s history.
-- 签署了《对病患和社区支持法案》，该法案是我国在立法层面上，有史以来对解决药物危机做出的最大努力。
-- Launched the Initiative to Stop Opioid Abuse and Reduce Drug Supply and Demand in order to confront the many causes fueling the drug crisis.
-- 发起了《制止阿片类药物滥用和减少毒品供求的倡议》，以应对引发毒品危机的诸多因素。
-- The Department of Health and Human Services (HHS) awarded a record $9 billion in grants to expand access to prevention, treatment, and recovery services to States and local communities.
-- 卫生和公共服务部门(HHS)提供了创纪录的90亿美元款项，用于加强各州和当地社区的预防、治疗和服务恢复。
-- Passed the CRIB Act, allowing Medicaid to help mothers and their babies who are born physically dependent on opioids by covering their care in residential pediatric recovery facilities.
-- 通过了《CRIB法》。为了帮助母亲和她们一出生身体就依赖阿片类药物的婴儿，允许医疗保险支付他们在儿科康复机构住院期间的护理费用。
-- Distributed $1 billion in grants for addiction prevention and treatment.
-- 分发了10亿美元用于预防和治疗药物成瘾。
-- Announced a Safer Prescriber Plan that seeks to decrease the amount of opioids prescriptions filled in America by one third within three years.
-- 宣布了一项“更安全的处方计划”，旨在三年内将美国的阿片类药物处方数量减少三分之一。
-- Reduced the total amount of opioids prescriptions filled in America.
-- 在美国, 减少了阿片类药物处方的总量。
-- Expanded access to medication-assisted treatment and life-saving Naloxone.
-- 增加获得药物辅助治疗和救命的纳洛酮（Naloxone）的途径。
-- Launched FindTreatment.gov, a tool to find help for substance abuse.
-- 启动FindTreatment.gov，该工具可为药物滥用提供帮助。
-- Drug overdose deaths fell nationwide in 2018 for the first time in nearly three decades.
-- 2018年是近30年来，由药物过量导致的死亡在全国范围内的首次下降。
-- Launched the Drug-Impaired Driving Initiative to work with local law enforcement and the driving public at large to increase awareness.
-- 发起了“禁毒驾驶计划”，与地方执法部门和广大驾驶公众合作，以充分地提高认识。
-- Launched a nationwide public ad campaign on youth opioid abuse that reached 58 percent of young adults in America.
-- 发起了一场关于青年人阿片类药物滥用的全国性公共广告活动，惠及了美国58%的年轻人。
-- Since 2016, there has been a nearly 40 percent increase in the number of Americans receiving medication-assisted treatment.
-- 自2016年以来，接受药物辅助治疗的美国人数量增加了近40%。
-- Approved 29 state Medicaid demonstrations to improve access to opioid use disorder treatment, including new flexibility to cover inpatient and residential treatment.
-- 批准了29个州的医疗补助示范，用以改善阿片类药物使用障碍的治疗，包括为住院病人和住院治疗提供新的灵活性。
-- Approved nearly $200 million in grants to address the opioid crisis in severely affected communities and to reintegrate workers in recovery back into the workforce.
-- 批准了近2亿美元的款项，以解决严重受影响的社区的阿片类药物危机，并使工人得以恢复而重新融入劳动力队伍中。
-
-
-### **Took action to seize illegal drugs and punish those preying on innocent Americans. **
-
-### 采取行动缉获非法毒品**，**惩罚那些掠夺无辜美国人生命的人**。**
-
-- In FY 2019, ICE, HSI seized 12,466 pounds of opioids including 3,688 pounds of fentanyl, an increase of 35 percent from FY 2018.
-- 在2019财政年，移民及海关执法局（ICE）和国土安全部（HSI）缉获了包括3,688磅芬太尼在内的共12,466磅阿片类药物，比2018财年增加了35%。
-- Seized tens of thousands of kilograms of heroin and thousands of kilograms of fentanyl since 2017.
-- 自2017年以来缉获了数万公斤的海洛因和数千公斤芬太尼。
-- The Department of Justice (DOJ) prosecuted more fentanyl traffickers than ever before, dismantled 3,000 drug trafficking organizations, and seized enough fentanyl to kill 105,000 Americans.
-- 司法部（DOJ）起诉的芬太尼贩运者比以往任何时候都要多，捣毁了3,000个贩毒组织，并且缉获了大量的芬太尼，数量足以杀死105,000个美国人。
-- DOJ charged more than 65 defendants collectively responsible for distributing over 45 million opioid pills.
-- 司法部控告了超过65名被告, 他们共同负责分销超过4500万粒阿片类药物。
-- Brought kingpin designations against traffickers operating in China, India, Mexico, and more who have played a role in the epidemic in America.
-- 对在中国、印度、墨西哥等地活动的毒贩进行了毒枭认定，他们在美国的毒品泛滥中充当关键的角色。
-- Indicted major Chinese drug traffickers for distributing fentanyl in the U.S for the first time ever, and convinced China to enact strict regulations to control the production and sale of fentanyl.
-- 首次起诉了重要的中国毒贩，依据是他们在美国分销芬太尼。并说服中国政府制定严格的法规来控制芬太尼的生产和销售。
-
-
-（完结）
-
-* * *
-
-原文来源：
-
-[https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/](https://trumpwhitehouse.archives.gov/trump-administration-accomplishments/)
-
-往期链接：
-
-[白宫报告：川普政府的政绩——截至2021年1月（一）](https://gnews.org/zh-hans/761018/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（二）](https://gnews.org/zh-hans/761213/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（三）](https://gnews.org/zh-hans/766962/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（四）](https://gnews.org/zh-hans/767022/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（五）](https://gnews.org/zh-hans/771076/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（六）](https://gnews.org/zh-hans/771727/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（七-1）](https://gnews.org/zh-hans/779811/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（七-2）](https://gnews.org/zh-hans/780079/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（八）](https://gnews.org/zh-hans/788066/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（九）](https://gnews.org/zh-hans/793094/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十一）](https://gnews.org/zh-hans/802251/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十二）](https://gnews.org/zh-hans/802307/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十三）](https://gnews.org/zh-hans/802335/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十四）](https://gnews.org/zh-hans/802367/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十五）](https://gnews.org/zh-hans/815742/)
-
-[白宫报告：川普政府的政绩——截至2021年1月（十六）](https://gnews.org/zh-hans/815787/)
-
-* * *
-
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
-
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
-
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+[更多台灣農場文章](https://www.gnews.org/zh-hant/author/taiwangnews/)
 
 0
