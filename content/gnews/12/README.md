@@ -1,17 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快讯：中共军队在挑衅台湾后又要在南海演习
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/818703/)
+## HCQ对变异CCP病毒也管用
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/821678/)
 
-**作者： CPA Jim**
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1-145.jpg)
-据布莱特巴特2021年1月26日报道，中共国周二宣布将在南海举行军事演习，简要说明了演习地点，但没有提供具体细节。1月27日星期三至1月30日星期六，越南附近的东京湾部分地区被限制航行。同时一艘美国航母正在该区域进行自由航行，台湾在周二举行了应对中共军事威胁的防空演习。
+在2021年1月15日的Discord语音答疑中，郭文贵先生在回答战友提问时，明确了羟氯喹对于目前已经变异的中共病毒依然有效。
+音频来源：喜马拉雅大使馆Discord群
+**HCQ Works for the New Variants of the CCP Virus**
 
-据报道，越南共产党正在举行自己的代表大会会议，越南与中共国对南海地区的存在主权争端，谋求联手美国对抗中共，中共的演习试图在越南家门口羞辱越南。
+**HCQ****对****变异CCP****病毒****也管用**
 
-只能说，天线宝宝为了集权，无所不用其极，在台湾周边挑衅后，又去南海挑衅。难道加速师打算通过给拜登政府强拆南海制造借口，取悦美国军火商？按科索沃方案用军事手段追究中共种族灭绝罪、反人类罪、在香港的战争罪将能更好取悦美国军火商。强迫中国老百姓服役是没用的。科索沃方案下，北约只打击军事设施，如果涉及打击中南海的话，只需要无人机斩首，也和普通兵员关系不大。
+**GTV Xiao Mi Feng:** I am GTV Xiao Mi Feng. I am in Europe. There are so many mutated [CCP] virus in Europe and all over the world. Does Hydroxychloroquine (HCQ) still work now? Are you taking it now?
 
-[原文链接](https://www.breitbart.com/national-security/2021/01/26/china-to-hold-military-drills-in-south-china-sea-after-record-setting-taiwan-incursion/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+breitbart+%28Breitbart+News%29)：
+**GTV****小蜜蜂：**我是GTV小蜜蜂，我在欧洲，欧洲或者是世界各地现在变异的病毒这么多，现在羟氯喹还管用吗？您还在吃着、用着吗？
 
-+1
+**Mr. Miles Guo: **Thank you, Xiao Mi Feng. OK, so, I have not been out as often as before due to the [CCP] virus. Besides, the people I met were all important officials, and they were all very well protected. We met at extremely safe places. So, I cannot take it daily. Please don’t take it every day. I took it for five days with Zinc, and then I stopped for twelve days before I started the second cycle. Well, I am probably in the middle…I have taken one cycle in the past month. So, from today I have started another cycle. I believe it works. Currently, many fellow fighters, including those got infected reflected that after taking HCQ, they have completely recovered and the virus have been completely wiped out. I think it truly works for the [CCP] virus, and base on recent findings, it also works for the variant [CCP] virus at this moment. It demonstrates how important our great scientist [Dr. Li-Meng Yan] and Lude Media are, which have saved many lives. This is the power of Whistleblower Movement. It is very important, Xiao Mi Feng, thank you.
+
+**郭文贵****先生**：谢谢小蜜蜂。这个，我是这样，因为我最近啊，我出去的比原来少多了，因为这个病毒的问题。而且，跟我见面的人呢，都是这个一些重要的官员，防护都很严重，都是在极为安全的地方见面。那么我就，我不可能天天吃，千万不能天天吃。我都是这个吃五天，然后加锌，然后休息二十天再吃。那么我大概是从这个中间嘛，过去一个月吃了一个周期。那么从今天我又开始吃另外一个周期了。我相信它是管用的。这个，目前很多战友反映，包括很多已经患了病的战友，都是吃了羟氯喹已经完全恢复了生命，完全去消了病毒。我觉得是非常管用，包括这个新病毒，发现目前也是管用的，这就说明我们伟大的科学家还有路德访谈多么的重要，救了多少人。这就是爆料革命的力量啊，这太重要了，小蜜蜂，谢谢。
+
+*听写和翻译：【**Cyndi**】校对：【**Winston Jackson**】【**Isaiah4031**】字幕：【**Pamila**（文明）】视频剪辑：【**V%**】【**Isaiah4031**】编辑：【**Mark**】*
+
+*喜马拉雅玫瑰园小队出品*
+
+*以上翻译整理仅代表作者个人观点，不代表**GNEWS**或他人立场。*
+
+*敬请关注:*
+*GTV: [喜马拉雅玫瑰园中文频道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)*
+*Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)*
+*Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)*
+*Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)*
+
++3

@@ -1,29 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美将停止美墨边境墙的建设
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/818050/)
+## 朱利安尼反击多米尼克 13亿美元&#8221;恐吓行为&#8221;的诉讼
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/821368/)
 
-俄罗斯莫斯科喀秋莎农场 文强
+翻译： 康州盘古农场 –   一花一世界
+校对：康州盘古农场 – Mike Li
+审核：康州盘古农场-Truemanman
+![]()![](https://gnews.org/wp-content/uploads/2021/01/8558723_120620-cc-ap-rudy-covid-img-1.jpg)
+前纽约市长、《国家脉动新闻网》（National Pulse）2020年爱国者荣誉称号获得者鲁迪·朱利安尼（Rudy Giuliani）在受到13亿美元诉讼威胁后，对选举科技巨头多米尼克（Dominion）公司进行了回击。
 
-编辑上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/下载-17.jpg)[thetruthrevolution.net](https://thetruthrevolution.net/pentagon-grants-1-billion-to-build-trumps-border-wall/)
-据一位辖区位于美墨边界的国会议员称，美墨边境的建筑工人已被通知在周二（1月26日）结束前停止所有边境墙（也称川普墙）项目。
+多米尼克（Dominion）公司麾下员工几乎只向民主党候选人捐款。公司曾威胁对朱利安尼（Giuliani）提起诉讼，在其公开声明中甚至引用了阿道夫·希特勒（Adolf Hitler）的话。
 
-得克萨斯州民主党众议员亨利-奎利亚尔（Henry Cuellar）在周一晚些时候发表的一份声明中表示，与美国海关与边境保护局（CBP）合作的联邦承包商已接到该机构的通知，停止安装横跨加州、亚利桑那州、新墨西哥州和得克萨斯州的18至30英尺高的部分板条钢墙。
+“正如朱利安尼（Giuliani）和其盟友们所期望的那样，弥天大谎（（Big Lie）在社交媒体上传播开来，人们在推特上转发、怒斥多米尼克（Dominion）公司偷走了他们的选票。虽然有些谎言–小谎言–在社交媒体上爆发，但随著下一个新闻周期会消亡，但弥天大谎（Big Lie）却不同。” 多米尼克（Dominion）的律师在周一上午提交给华盛顿地区法院的诉讼中如此写道。
 
-“我收到通知，根据拜登总统的行政命令，CBP采购部现已正式通知所有CBP承包商，暂停CBP自行执行项目的施工活动，”奎利亚尔说。“虽然CBP不能代表美国国防部或美国陆军工程兵部队(USACE)发言，但预计国防部和USACE正在对其监督的CBP资助的边境墙项目采取平行行动。”
+“对多米尼克（（Dominion）公司的业务和声誉造成的伤害是空前的、无法弥补的，因为有数百万人如此狂热地相信谎言。”
 
-据了解，边境墙是川普政府时期一项主要的行政措施，主要目的是遏制非法跨境活动以增进国家安全。自从美国修建边境墙后，使得非法跨境活动降至多年来的最低点，非法移民比去年同期减少了84%。川普政府为大约750英里的边境墙募集了超过150亿美元的资金，其中大部分资金用于更换破旧的围栏。
+“弥天大谎 “（（Big Lie）的说法是希特勒在二战前铸造出来用于攻击德国犹太人的。
 
-拜登总统于1月20日上任后数小时内就停止了美墨边界的边界墙项目的建设，这标志着川普政府最引人注目的一项行政措施的终结。拜登周三上任后签署的17项新政中，其中9项直接推翻前总统川普的行政命令，包括重返《巴黎协定》及世界卫生组织、停止修筑美墨边境围墙等。
+如今，朱利安尼（Giuliani）正在反击。
 
-参考链接：
+在发给《国家脉动新闻网》（National Pulse）的一份声明中，这位911事件的英雄兼川普总统的律师宣称。
 
-[https://www.washingtonexaminer.com/news/all-border-wall-construction-to-be-stopped-tuesday-night](https://www.washingtonexaminer.com/news/all-border-wall-construction-to-be-stopped-tuesday-night)
+“多米尼克（Dominion）公司提出的13亿美元的诽谤诉讼 将使我能够全面彻底地调查他们的历史、财务和行径。所要求的金额，很明显是为了吓唬心虚的人。这是充满仇恨的左翼的又一个恐吓行为，目的是抹杀和审查言论自由，以及律师为其当事人积极辩护的能力。因此，我们将对他们侵犯这些宪法权利的行为进行反诉调查。”
 
-[https://www.cnn.com/2021/01/25/politics/biden-executive-orders-day-six/index.html](https://www.cnn.com/2021/01/25/politics/biden-executive-orders-day-six/index.html)
+换句话说，朱利安尼（Giuliani）希望得到真相。而伴随著真相显现，多米尼克（Dominion）的内部运作、历史以及与政治事业的联系等信息也会昭然若见。
+多米尼克（Dominion）选举系统因容易出错而被德州政府标记并拒绝使用。
 
-[https://share.america.gov/zh-hans/illegal-crossings-lowest-in-years-as-border-wall-expands/](https://share.america.gov/zh-hans/illegal-crossings-lowest-in-years-as-border-wall-expands/)
+原文出处：[https://thenationalpulse.com/breaking/giuliani-fires-back-at-act-of-intimidation-1-3bn-dominion-suit/](https://thenationalpulse.com/breaking/giuliani-fires-back-at-act-of-intimidation-1-3bn-dominion-suit/)
 
-+2
++3

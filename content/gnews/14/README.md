@@ -1,39 +1,76 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生谈河北、大连、沈阳爆发的原因
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/817703/)
+## 《路德社》精选新闻简讯：荷兰爆发40年来最严重骚乱罪恶之源：中共军方称霸自保【三种战法】-传媒战（亦即舆论战）、心理战和法律战
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/821407/)
 
-新闻简述：在2021年1月15日喜马拉雅大使馆Discord群的答疑时间，郭先生回答一位战友关于近期河北、沈阳、大连新出现的疫情的问题。郭先生认为这次爆发和几个军事基地和疫苗研究有关系，“绝不是正常的，不是人传人的。它不是一个医学上的传染，它是一个操纵的失控，或者是失当，或者是有目的的一个结果。”
-音频来源：喜马拉雅大使馆Discord群
-**中英文对照原文**
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-The outbreak of the CCP virus this time should be associated with several military bases in Hebei, such as an institute in Langfang of Hebei Province [possibly the Chinese People’s Police University], the Academy of Armored Forces Engineering [of PLA], as well as the several anti-chemical and biochemical research bases, including vaccine research bases. Many people did not think of this. The outbreak in Hebei this time should be the consequence of activities in these military bases and virus associated bases. The casualties were heavy. It is absolutely not caused by human-to-human transmission. Bullshit. If it were human-to-human transmission, why would it only happen in Hebei, not in Henan or other places? That is nonsense. There is a reason for it all.
+新冠疫情爆发一年以来，欧美国家屡有集会游行乃至抗议示威活动发生，其中不乏种种反智主义的荒唐举动。
 
-河北这次的病情的爆发，它是和河北的应该是一个几个军事基地有关系的，比如说河北廊坊学院呐，装甲兵学院呐，还有那个防化生化基地的几个研究基地啊，包括疫苗基地啊。很多人没有看这个问题。就是河北这一次是应该这几个军事基地和病毒有关基地的活动造成的结果。然后呢，这个伤亡惨重，伤亡惨重。绝对不是说一个人与人的传染，胡扯呢，人与人传染为啥只传河北，不传河南，不传其他地方呢？那是胡扯的，这都是有原因的。
+纵火焚烧新冠病毒检测站这种极端行为令人难以置信的发生在经济社会高度发达的国家——荷兰。并爆发了40年来最严重的骚乱。
 
-So, there is a project called the Moat Project. I believe you know this, Yu Zhou Zhi Shen [the nickname of the fellow fighter]. It is a moat security project of Beijing being surrounded by the whole Hebei province. In the Moat Project, there is a circle of chemical defense, a circle of public security defense, a circle of anti-petition effort, a circle of the so-called sky security defense, and a circle of garrison. So, these several institutions, I believe, are the main reason for this major outbreak in Hebei. Based on my estimation, it will be soon under control. This is because if these institutions are out of control, these military bases will be over.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/2708-3.jpg)荷兰多地发生大规模抗议示威，图为焚车现场。来源：***thetimes***
 
-那么在这个，有一个叫做护城河工程，我相信你知道，“宇宙之神”，就是整个河北周围护着北京的护城河安保工程。护城河工程里面，其中就有防化的这个一圈，也有这个治安圈，有上访圈，有这个这个所谓天空保护圈，还有驻军圈。那么这几个学院呢，我觉得是整个导致河北这次出现大的疫情传播的更大原因。我估计啊，很快会控制住。因为控制不住的话这些学院，这些军队的地方就完蛋了。
+事件的起因很简单——新冠疫情。截至昨日，荷兰累计确诊病例达近100万，死亡病例近15万，近7日平均每天新增超5000例。而荷兰总人口仅1700余万。
 
-The outbreak in Dalian and Shenyang is also associated with a few chemical defense institutions, chemical defense bases, military bases, and vaccine research activities in Dalian and Shenyang. I think these are the reasons for the outbreak in these areas. Where is the outbreak most likely to occur? It is not in Dalian, Hebei, or Shenyang. It should be in large and densely populated cities, such as Shanghai, Guangdong, and Beijing. This is basic common sense. These cases are definitely not normal or human-to-human transmission. It is not infection in a medical sense; rather, it is due to a manipulation out of control or improper handling, or a purposeful result.
+当地时间23日，为控制快速蔓延的新冠疫情，荷兰政府在全国实行“硬性封锁”的基础上，开始实施宵禁。其具体内容是：从晚上9:00到次日凌晨4:30无特殊情况不得外出，违者罚款95欧元（约合750元人民币），遛狗、送外卖或快递等人员除外。
 
-大连这个地方和这个沈阳出现的地方也是跟沈阳和大连的那几个防化兵学院，还有防化兵基地，还有一个那几个军事基地，还有这个做疫苗研究都是有关系的。我认为是这些原因导致的这几个地区的爆发。最应该爆发的地方应该是哪里呢？不是大连、河北，也不是沈阳，是应该是上海呀，广东啊，北京这些大的密集城市。这是个基本的常识，基本的常识。那么这里面绝不是正常的，不是人传人的。它不是一个医学上的传染，它是一个操纵的失控，或者是失当，或者是有目的的一个结果。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/2709.jpg)荷兰警察在街头巡逻。来源：路透社
 
-(以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。)
+自二战结束以来，荷兰还是第一次实施全国范围的宵禁。此次宵禁也得到了荷兰议会的批准，并非政府单方面所为。
 
-听写&翻译：【Cyndi】校对：【Isaiah4031】字幕：【相机过热啊】视频剪辑：【V%】【Isaiah4031】编辑：【Isaiah4031】
+连续三天以来，荷兰全国均发生反对宵禁的集会游行，并迅速演变成骚乱与冲突。
 
-喜马拉雅玫瑰园小队出品
+在阿姆斯特丹市中心，警方使用高压水炮、骑警驱散游行人群。期间，爆发了严重民众与警察冲突。
 
-敬请关注:
+标志性的事件发生在于尔克市，当地的一个新冠病毒检测站，竟然被示威者纵火烧毁了。
 
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/27111.jpg)荷兰卫生大臣愤怒地称，这件事***“***突破所有底线！***”***来源：推特
 
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+对于这一幕，荷兰政府可谓痛心疾首。
 
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+首相吕特痛骂：“这无法接受，这根本与抗议无关，就是暴力犯罪。我们将以此进行处置。”
 
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+埃因霍温市长痛骂这些暴徒是“地球上的渣滓”，并充满忧虑，“如果我们继续沿着这条路走下去，我们将走向内战。” 荷兰警方称，24日各地发生的暴力事件是该国40年来最严重的骚乱。警方在全国逮捕了大约250人。
 
-+3
+![]()![](http://img0.xinmin.cn/2021/01/26/20210126172952749448.gif)
+
+编者按：
+
+表象显示，世界各地疫情一波又一波，新冠病毒升级不断，变异速度惊人。各国民众都开始发泄不满情绪，由此产生各种社会骚乱，时局动荡。荷兰这番宵禁不过是“压倒骆驼的最后一根稻草”。
+
+世界民众经历着一次次病毒升级变异和一次次封禁解禁，由此爆发慌乱，不满，抑郁，愤怒……但是，很多人似乎忘记追寻一个问题：如此邪恶的新冠病毒究竟来自哪里？它为何造访了人类？躲在新冠病毒背后，制造了这场全球危机的始作俑者也许正在暗处伺机再次按需出击，达到其不可告人的目的。
+
+爆料革命早已揭示：这是一场生化武器超限战；新冠病毒源于中共武汉生物实验室；此外，这还是一场传媒大战！
+
+1999年，中共人民解放军两名军官乔良和王湘穗出版了一本书，题为《超限战》。
+
+书中写道：
+
+“超限战出自一种被外界长期围困的感觉。中国目睹苏共如何特别是在七八十年代进入一场不可能赢的与美国的军备战，并且输了。”
+
+以此为鉴，乔良和王湘穗提出一个新的战争概念。当时中国尽管也已经开始扩充常规武器，但两位作者认为，同时还要注意：“在今日世界，没有什么不可能成为武器。因此，我们必须以一种超限的意识来理解武器。……一场人工诱发的股市崩盘、一场黑客攻击、一桩传言或丑闻让敌方汇率崩盘或领导人在网上出丑，这些都属于新式战争的武器库。”
+
+这本书中的概念很快运用到2003年中央军委和军方批准的’三种战法’战略中。
+
+这三种战法是：传媒战法（亦即舆论战）、心理战法和法律战法。目标是，称霸以自保。源自这一战略的项目包括北京年复一年注资数十亿美元的’软实力’计划以及习近平自2012年上任后实施的’新丝路’倡议。
+
+中共多年策划的“超限战”如今祸及全球，已经威胁到全人类的生存安全。
+
+随着冠状病毒大流行使世界运行戛然而止，焦虑的各国民众在为了自由生存而采取行动，全球各国领导人正在动用行政权，抓住了实质上的独裁权力。而中共集权是否会借此机缘称霸世界以求控制更多领域呢？也许，值得世界警醒和思考！
+
+貌似，荷兰爆发的这场40年来最严重骚乱源于社会动荡因素，但是，实际其罪恶之源在于中共军方多年谋划的“超限战”。
+
+正如爆料革命所秉承的，追本溯源，一切源于CCP，也该止于CCP。全球灭共是根除这次人类病毒危机的唯一办法！
+
+也许，在这全球危机来临的时刻，人类真的需要放下党派，信仰和种族界限，一起思考和解决全人类未来生存和安全的问题了！
+
+[援引原文](https://tt.xinmin.cn/2021/01/26/31892661.htm?tt_from=copy_link&amp;tt_group_id=6922027169384235528&amp;tt_from=copy_link&amp;utm_campaign=client_share&amp;timestamp=1611667666&amp;app=news_article&amp;utm_source=copy_link&amp;utm_medium=toutiao_ios&amp;use_new_style=1&amp;req_id=20210126212746010131074200401F165C&amp;share_token=3A7A7493-A708-4283-963E-BF677EBB8C7B&amp;group_id=6922027169384235528)
+[参考文献](https://www.dw.com/zh/%E5%BE%B7%E8%AF%AD%E5%AA%92%E4%BD%93%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%98%AF%E4%B8%80%E5%9C%BA%E8%B6%85%E9%99%90%E6%88%98/a-53120820)
+
+本文作者：玫瑰天空
+审核校对：玫瑰天空
+上传排版：糖果儿
+
++2
