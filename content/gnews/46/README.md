@@ -1,28 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 瑞典延长疫情期间旅行建议至4月25日
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/816620/)
+## 拜登总统与普京通话 讨论核武器和选举干预问题
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/820510/)
 
-- 编辑：Victor Torres
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑   水星   上传   银河
+![]()![](https://cdn.discordapp.com/attachments/799010586356351066/803836078040940594/B.JPG)nytimes.com
+拜登总统星期二致电俄罗斯总统普京，就一系列有关国家安全的问题进行对话。让美国和俄罗斯回到谈判桌前，这是拜登政府重建与美国主要战略对手之一的外交关系的第一步。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+双方就同意将两国仅存的《削减战略武器条约》延长五年达成一致，话题还涉及了俄罗斯对驻阿富汗美军士兵的赏金以及对2020年大选的干预问题。
 
-**西班牙2021年1月26日电/西喜社——**瑞典外交部长表示，这个斯堪的纳维亚国家的人们不应该期望在复活节期间能够在全球范围内旅行。因为瑞典延长了其建议，以避免前往欧盟和欧洲申根旅行区以外的国家进行不必要的旅行。
+《削减战略武器条约》的延期在去年遭到了川普政府的拒绝。川普政府最初表示，他们不会同意延长将于2月到期的条约，除非中共国加入该协议，然而中共国断然拒绝这一提议。
 
-“我们的评估是，全球将有几个月的不确定性。这是一个整体的评估，是关于目的地的情况会是什么样的，”外交部长安·林德(Ann Linde)周二表示。
+白宫星期二证实，两位总统会谈后达成共识，美国和俄罗斯将“紧急工作”，在2月5日的最后期限前完成延期。同时，两国“还同意就一系列军控和新出现的安全问题探讨战略稳定合作”。
 
-林德说，避免前往欧盟以外地区旅行的建议将持续到4月15日。复活节是在4月初。
+拜登曾指责川普政府在俄罗斯问题上的软弱，批评其在有关美国驻阿富汗士兵被俄罗斯悬赏的报道后没有采取果断行动，并公开表明美国支持乌克兰主权的立场。
 
-她补充说，在27个成员国的欧盟内部旅行 “绝不是没有风险的”，尽管并不建议反对。
+白宫声明中说，“拜登总统明确表示，美国将坚决捍卫国家利益，回应俄罗斯伤害我们或我们盟友的行动。”
 
-瑞典保持社会大部分地区的开放，已经有11005例确诊病毒死亡，超过54.71万例感染。
+普京没有公开评论他与拜登的首次对话,但克里姆林宫发表声明指出,“两个超级大国之间关系正常化”，将有助于共同维护全球安全与稳定,。
 
-**新闻来源：**[https://apnews.com/article/travel-beijing-migrant-workers-coronavirus-pandemic-china-ebf87fbc0ac60e7a591da9a3823bce6d](https://apnews.com/article/travel-beijing-migrant-workers-coronavirus-pandemic-china-ebf87fbc0ac60e7a591da9a3823bce6d)
+拜登表示，他将通过改善与盟国的关系，扩大与俄罗斯和伊朗等对手的协约，把恢复美国外交作为他总统任期的基石。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/03185094-8466-4cda-8c39-5f25ccee2451-12.jpg)
+参考链接：
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+[https://www.foxnews.com/politics/biden-has-first-call-as-president-with-putin-addresses-nukes-and-election-interference](https://www.foxnews.com/politics/biden-has-first-call-as-president-with-putin-addresses-nukes-and-election-interference)
 
-0
++1
