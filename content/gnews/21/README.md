@@ -1,76 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：荷兰爆发40年来最严重骚乱罪恶之源：中共军方称霸自保【三种战法】-传媒战（亦即舆论战）、心理战和法律战
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/821407/)
+## HCQ对变异CCP病毒也管用
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/821678/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
+在2021年1月15日的Discord语音答疑中，郭文贵先生在回答战友提问时，明确了羟氯喹对于目前已经变异的中共病毒依然有效。
+音频来源：喜马拉雅大使馆Discord群
+**HCQ Works for the New Variants of the CCP Virus**
 
-新冠疫情爆发一年以来，欧美国家屡有集会游行乃至抗议示威活动发生，其中不乏种种反智主义的荒唐举动。
+**HCQ****对****变异CCP****病毒****也管用**
 
-纵火焚烧新冠病毒检测站这种极端行为令人难以置信的发生在经济社会高度发达的国家——荷兰。并爆发了40年来最严重的骚乱。
+**GTV Xiao Mi Feng:** I am GTV Xiao Mi Feng. I am in Europe. There are so many mutated [CCP] virus in Europe and all over the world. Does Hydroxychloroquine (HCQ) still work now? Are you taking it now?
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/2708-3.jpg)荷兰多地发生大规模抗议示威，图为焚车现场。来源：***thetimes***
+**GTV****小蜜蜂：**我是GTV小蜜蜂，我在欧洲，欧洲或者是世界各地现在变异的病毒这么多，现在羟氯喹还管用吗？您还在吃着、用着吗？
 
-事件的起因很简单——新冠疫情。截至昨日，荷兰累计确诊病例达近100万，死亡病例近15万，近7日平均每天新增超5000例。而荷兰总人口仅1700余万。
+**Mr. Miles Guo: **Thank you, Xiao Mi Feng. OK, so, I have not been out as often as before due to the [CCP] virus. Besides, the people I met were all important officials, and they were all very well protected. We met at extremely safe places. So, I cannot take it daily. Please don’t take it every day. I took it for five days with Zinc, and then I stopped for twelve days before I started the second cycle. Well, I am probably in the middle…I have taken one cycle in the past month. So, from today I have started another cycle. I believe it works. Currently, many fellow fighters, including those got infected reflected that after taking HCQ, they have completely recovered and the virus have been completely wiped out. I think it truly works for the [CCP] virus, and base on recent findings, it also works for the variant [CCP] virus at this moment. It demonstrates how important our great scientist [Dr. Li-Meng Yan] and Lude Media are, which have saved many lives. This is the power of Whistleblower Movement. It is very important, Xiao Mi Feng, thank you.
 
-当地时间23日，为控制快速蔓延的新冠疫情，荷兰政府在全国实行“硬性封锁”的基础上，开始实施宵禁。其具体内容是：从晚上9:00到次日凌晨4:30无特殊情况不得外出，违者罚款95欧元（约合750元人民币），遛狗、送外卖或快递等人员除外。
+**郭文贵****先生**：谢谢小蜜蜂。这个，我是这样，因为我最近啊，我出去的比原来少多了，因为这个病毒的问题。而且，跟我见面的人呢，都是这个一些重要的官员，防护都很严重，都是在极为安全的地方见面。那么我就，我不可能天天吃，千万不能天天吃。我都是这个吃五天，然后加锌，然后休息二十天再吃。那么我大概是从这个中间嘛，过去一个月吃了一个周期。那么从今天我又开始吃另外一个周期了。我相信它是管用的。这个，目前很多战友反映，包括很多已经患了病的战友，都是吃了羟氯喹已经完全恢复了生命，完全去消了病毒。我觉得是非常管用，包括这个新病毒，发现目前也是管用的，这就说明我们伟大的科学家还有路德访谈多么的重要，救了多少人。这就是爆料革命的力量啊，这太重要了，小蜜蜂，谢谢。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/2709.jpg)荷兰警察在街头巡逻。来源：路透社
+*听写和翻译：【**Cyndi**】校对：【**Winston Jackson**】【**Isaiah4031**】字幕：【**Pamila**（文明）】视频剪辑：【**V%**】【**Isaiah4031**】编辑：【**Mark**】*
 
-自二战结束以来，荷兰还是第一次实施全国范围的宵禁。此次宵禁也得到了荷兰议会的批准，并非政府单方面所为。
+*喜马拉雅玫瑰园小队出品*
 
-连续三天以来，荷兰全国均发生反对宵禁的集会游行，并迅速演变成骚乱与冲突。
+*以上翻译整理仅代表作者个人观点，不代表**GNEWS**或他人立场。*
 
-在阿姆斯特丹市中心，警方使用高压水炮、骑警驱散游行人群。期间，爆发了严重民众与警察冲突。
+*敬请关注:*
+*GTV: [喜马拉雅玫瑰园中文频道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)*
+*Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)*
+*Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)*
+*Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)*
 
-标志性的事件发生在于尔克市，当地的一个新冠病毒检测站，竟然被示威者纵火烧毁了。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/27111.jpg)荷兰卫生大臣愤怒地称，这件事***“***突破所有底线！***”***来源：推特
-
-对于这一幕，荷兰政府可谓痛心疾首。
-
-首相吕特痛骂：“这无法接受，这根本与抗议无关，就是暴力犯罪。我们将以此进行处置。”
-
-埃因霍温市长痛骂这些暴徒是“地球上的渣滓”，并充满忧虑，“如果我们继续沿着这条路走下去，我们将走向内战。” 荷兰警方称，24日各地发生的暴力事件是该国40年来最严重的骚乱。警方在全国逮捕了大约250人。
-
-![]()![](http://img0.xinmin.cn/2021/01/26/20210126172952749448.gif)
-
-编者按：
-
-表象显示，世界各地疫情一波又一波，新冠病毒升级不断，变异速度惊人。各国民众都开始发泄不满情绪，由此产生各种社会骚乱，时局动荡。荷兰这番宵禁不过是“压倒骆驼的最后一根稻草”。
-
-世界民众经历着一次次病毒升级变异和一次次封禁解禁，由此爆发慌乱，不满，抑郁，愤怒……但是，很多人似乎忘记追寻一个问题：如此邪恶的新冠病毒究竟来自哪里？它为何造访了人类？躲在新冠病毒背后，制造了这场全球危机的始作俑者也许正在暗处伺机再次按需出击，达到其不可告人的目的。
-
-爆料革命早已揭示：这是一场生化武器超限战；新冠病毒源于中共武汉生物实验室；此外，这还是一场传媒大战！
-
-1999年，中共人民解放军两名军官乔良和王湘穗出版了一本书，题为《超限战》。
-
-书中写道：
-
-“超限战出自一种被外界长期围困的感觉。中国目睹苏共如何特别是在七八十年代进入一场不可能赢的与美国的军备战，并且输了。”
-
-以此为鉴，乔良和王湘穗提出一个新的战争概念。当时中国尽管也已经开始扩充常规武器，但两位作者认为，同时还要注意：“在今日世界，没有什么不可能成为武器。因此，我们必须以一种超限的意识来理解武器。……一场人工诱发的股市崩盘、一场黑客攻击、一桩传言或丑闻让敌方汇率崩盘或领导人在网上出丑，这些都属于新式战争的武器库。”
-
-这本书中的概念很快运用到2003年中央军委和军方批准的’三种战法’战略中。
-
-这三种战法是：传媒战法（亦即舆论战）、心理战法和法律战法。目标是，称霸以自保。源自这一战略的项目包括北京年复一年注资数十亿美元的’软实力’计划以及习近平自2012年上任后实施的’新丝路’倡议。
-
-中共多年策划的“超限战”如今祸及全球，已经威胁到全人类的生存安全。
-
-随着冠状病毒大流行使世界运行戛然而止，焦虑的各国民众在为了自由生存而采取行动，全球各国领导人正在动用行政权，抓住了实质上的独裁权力。而中共集权是否会借此机缘称霸世界以求控制更多领域呢？也许，值得世界警醒和思考！
-
-貌似，荷兰爆发的这场40年来最严重骚乱源于社会动荡因素，但是，实际其罪恶之源在于中共军方多年谋划的“超限战”。
-
-正如爆料革命所秉承的，追本溯源，一切源于CCP，也该止于CCP。全球灭共是根除这次人类病毒危机的唯一办法！
-
-也许，在这全球危机来临的时刻，人类真的需要放下党派，信仰和种族界限，一起思考和解决全人类未来生存和安全的问题了！
-
-[援引原文](https://tt.xinmin.cn/2021/01/26/31892661.htm?tt_from=copy_link&amp;tt_group_id=6922027169384235528&amp;tt_from=copy_link&amp;utm_campaign=client_share&amp;timestamp=1611667666&amp;app=news_article&amp;utm_source=copy_link&amp;utm_medium=toutiao_ios&amp;use_new_style=1&amp;req_id=20210126212746010131074200401F165C&amp;share_token=3A7A7493-A708-4283-963E-BF677EBB8C7B&amp;group_id=6922027169384235528)
-[参考文献](https://www.dw.com/zh/%E5%BE%B7%E8%AF%AD%E5%AA%92%E4%BD%93%E6%96%B0%E5%86%A0%E7%96%AB%E6%83%85%E6%98%AF%E4%B8%80%E5%9C%BA%E8%B6%85%E9%99%90%E6%88%98/a-53120820)
-
-本文作者：玫瑰天空
-审核校对：玫瑰天空
-上传排版：糖果儿
-
-+2
++3

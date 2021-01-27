@@ -1,33 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## HCQ对变异CCP病毒也管用
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/821678/)
+## 【香港要闻】香港警员虐待被告「警暴」可以没有代价？
+` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/821367/)
 
-在2021年1月15日的Discord语音答疑中，郭文贵先生在回答战友提问时，明确了羟氯喹对于目前已经变异的中共病毒依然有效。
-音频来源：喜马拉雅大使馆Discord群
-**HCQ Works for the New Variants of the CCP Virus**
+搜集：Po
 
-**HCQ****对****变异CCP****病毒****也管用**
+编撰：文燕
 
-**GTV Xiao Mi Feng:** I am GTV Xiao Mi Feng. I am in Europe. There are so many mutated [CCP] virus in Europe and all over the world. Does Hydroxychloroquine (HCQ) still work now? Are you taking it now?
+审稿：卡西欧
 
-**GTV****小蜜蜂：**我是GTV小蜜蜂，我在欧洲，欧洲或者是世界各地现在变异的病毒这么多，现在羟氯喹还管用吗？您还在吃着、用着吗？
+上传：天网灰灰
 
-**Mr. Miles Guo: **Thank you, Xiao Mi Feng. OK, so, I have not been out as often as before due to the [CCP] virus. Besides, the people I met were all important officials, and they were all very well protected. We met at extremely safe places. So, I cannot take it daily. Please don’t take it every day. I took it for five days with Zinc, and then I stopped for twelve days before I started the second cycle. Well, I am probably in the middle…I have taken one cycle in the past month. So, from today I have started another cycle. I believe it works. Currently, many fellow fighters, including those got infected reflected that after taking HCQ, they have completely recovered and the virus have been completely wiped out. I think it truly works for the [CCP] virus, and base on recent findings, it also works for the variant [CCP] virus at this moment. It demonstrates how important our great scientist [Dr. Li-Meng Yan] and Lude Media are, which have saved many lives. This is the power of Whistleblower Movement. It is very important, Xiao Mi Feng, thank you.
+**四名男女被指2019年8月11日在红磡非法集结案昨续审。辩方继续盘问制服及押送首被告到警署的西九龙冲锋队警员吴振霆，爆出更多警暴指控，指被告在警署遭吴和其同袍虐待，包括掌掴、用委任证拍打头和脸、命令被告在白衣警面前下跪，逼他解锁电话，更有警员将口中可乐喷向被告脸和身，并​​向被告的头和身体倒水等。吴继续否认所有指控。**
 
-**郭文贵****先生**：谢谢小蜜蜂。这个，我是这样，因为我最近啊，我出去的比原来少多了，因为这个病毒的问题。而且，跟我见面的人呢，都是这个一些重要的官员，防护都很严重，都是在极为安全的地方见面。那么我就，我不可能天天吃，千万不能天天吃。我都是这个吃五天，然后加锌，然后休息二十天再吃。那么我大概是从这个中间嘛，过去一个月吃了一个周期。那么从今天我又开始吃另外一个周期了。我相信它是管用的。这个，目前很多战友反映，包括很多已经患了病的战友，都是吃了羟氯喹已经完全恢复了生命，完全去消了病毒。我觉得是非常管用，包括这个新病毒，发现目前也是管用的，这就说明我们伟大的科学家还有路德访谈多么的重要，救了多少人。这就是爆料革命的力量啊，这太重要了，小蜜蜂，谢谢。
+- ![]()![](https://gnews.org/wp-content/uploads/2021/01/1-157.jpg)
 
-*听写和翻译：【**Cyndi**】校对：【**Winston Jackson**】【**Isaiah4031**】字幕：【**Pamila**（文明）】视频剪辑：【**V%**】【**Isaiah4031**】编辑：【**Mark**】*
+西九龙冲锋队第四队警员6835吴振霆。
+西九龙冲锋队第四队警员6835吴振霆昨在辩方盘问下称，于红磡警署内从被告张汉东（26岁）的背囊搜出疑似爆炸品后便放在一旁，他没请示上司是否爆炸品，亦没将疑似爆炸品放进保护装置、防干扰证物袋或一般证物袋内保存。吴又称无法说出花了多少时间观察涉案思疑爆炸品，皆因他「一看就知是（爆炸品）」。
 
-*喜马拉雅玫瑰园小队出品*
+吴同意当晚只花了三分钟检查张背囊内的所有物品，坦言没仔细检查。辩方指吴在书面供词及记事册内，均只提及「发现」而非「捡取」怀疑爆炸品。吴回应：「我字眼上表达得不清晰。」
+![]()![](https://gnews.org/wp-content/uploads/2021/01/2-109.jpg)被告张汉东
+辩方指吴或其同袍在训示室趁张的脸贴着桌面，多次打张的头及背、掌掴其脸和踢他坐着的凳，又在落口供前对张说：「是不是好喜欢看委任证？给你看啦！」继而用委任证拍打他的头和脸。及后吴或其同袍又捉住张的手，图透过指纹解锁其电话，又强迫张说出电话密码，惟张拒绝就范，再遭吴或同袍打头打背。
 
-*以上翻译整理仅代表作者个人观点，不代表**GNEWS**或他人立场。*
+吴押送张上警车时，辩方指吴根本没问他需否求医，当张被带返警署会见值日官后，亦非如吴所言没回答值日官需否求医的提问，指张有讲头很晕，惟值日官回应：「等一下」、「你有投诉吗？」值日官未待张回答便已走开。吴不同意辩方说法，并说没为意值日官曾否走开。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/3-88.jpg)图片来源：苹果日报
+- ![]()![](https://gnews.org/wp-content/uploads/2021/01/4-58.jpg)
 
-*敬请关注:*
-*GTV: [喜马拉雅玫瑰园中文频道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)*
-*Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)*
-*Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)*
-*Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)*
 
-+3
+战友观点：
+
+警员的态度恶劣，手法卑鄙到了极致。到底是什么原因令香港警员如此肆无忌怛？是谁纵容警员施暴？
+
+郑月娥16日出席立法会答问大会时表示，不接受有人形容香港在处理社会动荡过程中出现所谓的「警暴」问题。她强调警队半年多以来维持治安，犯法者不断丑化抹黑警队，目的是削弱其执法能力。她呼吁大家支持警方严正执法。
+
+林郑企图淡化「警暴」问题，反称「犯法者不断丑化抹黑警队」。林郑这种粉色太平、助纣为虐的态度，对实行「警暴」的执法警员就是一种鼓励。
+
+721、831事件固然令人发指，但最让人义愤填膺的，其实是涉事的警员居然完全不用付上代价。警暴不能接受，社会不能让施暴者逍遥法外，绝对要向他们追究，并使其负起法律责任。
+
+
+
+资料来源：
+
+[苹果日报](https://hk.appledaily.com/local/20210127/TOGINB4TP5GK5AUWTIKTSLSG7Q/)
+
+**[明报](https://news.mingpao.com/ins/%E6%96%87%E6%91%98/article/20200916/s00022/1600176356050/%E6%9C%80%E5%A4%A7%E7%9A%84%E5%95%8F%E9%A1%8C%E4%B8%A6%E9%9D%9E%E8%AD%A6%E6%9A%B4%EF%BC%88%E6%96%87-%E9%BB%83%E4%BB%BB%E5%8C%A1%EF%BC%89)**
+
+0
