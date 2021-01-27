@@ -1,29 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 台湾与美国的紧密军备交流
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/822848/)
+## 巴林发现变异中共病毒毒株
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/823081/)
 
-台湾农场（筹备）追寻自由、民主法治公司联合编辑
+- 编辑：Victor Torres
 
-中共于2020年间派遣380架次军机侵扰台湾西南空域防空识别区，2021年1月更是加剧侵扰行动，造成台海形势越发紧张。中共解放军一直向外进行共产主义扩张的行为，加上2020年的中共病毒问题，导致共产党想藉由军事行动来转移全球对中共病毒的追责，同时企图淡化中共国内对于民生问题的聚焦。如今美国国务院发表声明，认定中共在新疆施政属于「犯种族灭绝和反人类罪」。在这样内外交迫的情况下，共产党内部更想用武力拿下台湾，但是台湾是否毫无招架之力？
-![]()![](https://gnews.org/wp-content/uploads/2021/01/fd1.jpg)
-台湾在面对层层进逼的中共解放军压力下，虽对台湾人带来偌大的心理压力，但也不用过度担忧。从一些军事资讯上，来思考现状，以免失去冷静判断与应对未知的能力。如若真的发生战争，最好的状况就是中共党内战，其次就是海战。中共不敢空战，至于为什么不敢空战，稍后会加以说明。那我们先来说海战，早在2014年开始，海军公布「未来兵力整建愿景」，其中包括多个造舰计划，台湾海军正在兴建排水量19000公吨的LPD（两栖船坞登陆舰），照此推测，未来美国有机会出售可以垂直起降于LPD两栖登陆舰的美国海军LHD舰载作战机AV-8B 猎鹰机给台湾，进行两栖登陆作战时空中支援打击火力。
 
-即是未来中华民国海军陆战队第99旅AAV-7 进行两栖登陆夺岛时，由同时垂直起飞于LPD的AV-8B 伴随进行海空同时两栖攻击，目前两栖船坞登陆舰是台湾海军最近的事，而且很多都是美国早就授权或技术支援台湾发展国防的军备。相比较来自网路社群的一张图：
-![]()![](https://gnews.org/wp-content/uploads/2021/01/fd2-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/fd3-2.jpg)
-雄二E巡弋飞弹这发射箱长度= 12米= 12公尺长，如同四层楼楼房高度，所以才采用美国雷松发射箱，这是美国原厂发射箱，可见台美如此密切交流。这个发射箱不是 Raytheon，是那一家制造的？何况已经是多年前的资料，所以美国前国务卿蓬佩奥说的没有错，美国一直以来都没有放弃过台湾，美国一直都知道台湾战略地位的重要性。下面我们来讲几个空军的F-16V
-![]()![](https://gnews.org/wp-content/uploads/2021/01/fd4.jpg)
-F-16V一次可以同时攻击16 架SU-35/BCM战机，它就是空中神盾战机。 F-16V 48架一在台湾空军服役后，台湾空军战力正式超越中共，而且科技领先中共空军高达 20年之久，因为俄罗斯不再输出航太科技给中共国。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/fd5.jpg)
-台湾的幻象2000经过升级后，寿命再延长25年，在台湾空域防卫上也占有重大的意义。台湾是海岛型国家，所以对于防卫空域的努力不曾间断。无论是在飞弹研发上或是军备升级上，都有长足的提升，因此，面对中共的军事威胁，虽然承受压力，但却也并非全无招架之力，若中共解放军低估台湾军队的飞弹射程能力，恐怕会付出极大代价。本文仅代表个人立场。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-參考資訊：LPD [http://www.mdc.idv.tw/mdc/navy/rocnavy/lpd-new.htm](http://www.mdc.idv.tw/mdc/navy/rocnavy/lpd-new.htm)
+**西班牙2021年1月27日电/西喜社——**巴林表示，在这个岛国发现了一种变异的中共病毒毒株，未来三周将让学生在家学习。
 
-雄二E巡弋飛彈 [https://www.upmedia.mg/news\_info.php?SerialNo=78499](https://www.upmedia.mg/news_info.php?SerialNo=78499)
+这个位于沙特阿拉伯附近波斯湾的岛国还表示，未来三周内也将停止餐厅和咖啡馆的就餐服务。
 
-F-16V [https://www.cna.com.tw/news/firstnews/202012060085.aspx](https://www.cna.com.tw/news/firstnews/202012060085.aspx)
+限制措施将从周日开始实施。巴林王国在国营巴林通讯社刊登的公告中，没有说明在那里发现的是什么病毒株。
 
-F/A-18 E/F超級大黃蜂式打擊戰鬥機 [https://reurl.cc/nn5MQd](https://reurl.cc/nn5MQd)
+巴林已经登记了大约100,000个病毒确诊病例和370人死亡。
+
+**新闻来源：**[https://apnews.com/article/coronavirus-pandemic-france-germany-coronavirus-vaccine-frankfurt-5eb7627c7abbda6516c18be99ffc1bf4](https://apnews.com/article/coronavirus-pandemic-france-germany-coronavirus-vaccine-frankfurt-5eb7627c7abbda6516c18be99ffc1bf4)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/db430d20-61a4-4432-bfab-805116cb74de-8.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
 0

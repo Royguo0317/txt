@@ -1,47 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 麦康奈尔在两个民主党人表示反对不允许少数党通过要求多数票来阻碍立法后，对保留阻碍议事有所让步
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/821473/)
+## HCQ对变异CCP病毒也管用
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/821678/)
 
-翻译： 康州盘古农场 – Freeearth
+在2021年1月15日的Discord语音答疑中，郭文贵先生在回答战友提问时，明确了羟氯喹对于目前已经变异的中共病毒依然有效。
+音频来源：喜马拉雅大使馆Discord群
+**HCQ Works for the New Variants of the CCP Virus**
 
-校对： 康州盘古农场 – 烟波浩淼
+**HCQ****对****变异CCP****病毒****也管用**
 
-审核：康州盘古农场-Truemanman
-![]()![](https://gnews.org/wp-content/uploads/2021/01/图片1-23.png)
-参议院肯塔基州共和党领袖米奇·麦康奈尔（Mitch McConnell）表示，在两名民主党弗吉尼亚州参议员西乔·曼钦（Joe Manchin）和亚利桑那州的凯尔斯顿·西内玛（Kyrsten Sinema）反对放弃允许少数党通过要求60票来推进大多数措施以阻止立法的政策后，对民主党保留阻碍议案的关键要求有所让步。
+**GTV Xiao Mi Feng:** I am GTV Xiao Mi Feng. I am in Europe. There are so many mutated [CCP] virus in Europe and all over the world. Does Hydroxychloroquine (HCQ) still work now? Are you taking it now?
 
-《彭博社》报道，由于参议院约纽州民主党多数党领袖查克·舒默（Chuck Schumer）拒绝了提供担保的想法，麦康奈尔拒绝放弃阻碍的决定，使权力分享协议陷入僵局。
+**GTV****小蜜蜂：**我是GTV小蜜蜂，我在欧洲，欧洲或者是世界各地现在变异的病毒这么多，现在羟氯喹还管用吗？您还在吃着、用着吗？
 
-双方都声称获胜时，麦康奈尔的立场正在变得站不住脚，有可能激怒民主党人，让他事与愿违，并使阻挠者力量削弱。 如果共和党人最大程度地阻挠并激怒曼钦和西内玛，也有潜在的危险。
+**Mr. Miles Guo: **Thank you, Xiao Mi Feng. OK, so, I have not been out as often as before due to the [CCP] virus. Besides, the people I met were all important officials, and they were all very well protected. We met at extremely safe places. So, I cannot take it daily. Please don’t take it every day. I took it for five days with Zinc, and then I stopped for twelve days before I started the second cycle. Well, I am probably in the middle…I have taken one cycle in the past month. So, from today I have started another cycle. I believe it works. Currently, many fellow fighters, including those got infected reflected that after taking HCQ, they have completely recovered and the virus have been completely wiped out. I think it truly works for the [CCP] virus, and base on recent findings, it also works for the variant [CCP] virus at this moment. It demonstrates how important our great scientist [Dr. Li-Meng Yan] and Lude Media are, which have saved many lives. This is the power of Whistleblower Movement. It is very important, Xiao Mi Feng, thank you.
 
-到目前为止，在内阁提名和安排弹劾审判方面，双方都设法避免党派僵局。 例如，乔·拜登总统提名的国务卿安东尼·布林肯将在周二中午得到参议院的确认。
+**郭文贵****先生**：谢谢小蜜蜂。这个，我是这样，因为我最近啊，我出去的比原来少多了，因为这个病毒的问题。而且，跟我见面的人呢，都是这个一些重要的官员，防护都很严重，都是在极为安全的地方见面。那么我就，我不可能天天吃，千万不能天天吃。我都是这个吃五天，然后加锌，然后休息二十天再吃。那么我大概是从这个中间嘛，过去一个月吃了一个周期。那么从今天我又开始吃另外一个周期了。我相信它是管用的。这个，目前很多战友反映，包括很多已经患了病的战友，都是吃了羟氯喹已经完全恢复了生命，完全去消了病毒。我觉得是非常管用，包括这个新病毒，发现目前也是管用的，这就说明我们伟大的科学家还有路德访谈多么的重要，救了多少人。这就是爆料革命的力量啊，这太重要了，小蜜蜂，谢谢。
 
-麦康奈尔在一份声明中写道：“立法阻碍是参议院在2001年达成的50-50权力共享协议基础的关键部分，有了这些保证，我期待着以该先例为蓝本的权力分享协议向前发展。”
+*听写和翻译：【**Cyndi**】校对：【**Winston Jackson**】【**Isaiah4031**】字幕：【**Pamila**（文明）】视频剪辑：【**V%**】【**Isaiah4031**】编辑：【**Mark**】*
 
-舒默的团队并不那么热情。 他们在一份声明中说：“我们很高兴麦康奈尔参议员放弃他荒谬的要求。我们期待着在民主党的控制下组织参议院，并开始为美国人民做一些大胆的事情。”
+*喜马拉雅玫瑰园小队出品*
 
-曼钦和西尔玛表示他们不会投票否决阻碍议事，这实际上给了麦康纳尔面子。
+*以上翻译整理仅代表作者个人观点，不代表**GNEWS**或他人立场。*
 
-周一，曼钦对记者说，他“不支持在任何情况下放弃阻碍议事程序”，而西内玛的发言人表示，她也反对摆脱这一规则。
+*敬请关注:*
+*GTV: [喜马拉雅玫瑰园中文频道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)*
+*Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)*
+*Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)*
+*Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)*
 
-正如《彭博社》指出的那样，曼钦和西内玛反对取消阻碍议事，这表明民主党人对众议院的控制是多么微弱，因为他们需要所有50名民主党人保持一致，以克服50-50的分裂（副总统卡马拉·哈里斯（Kamala Harris）是决定胜负者）。现在，除非需要简单多数，民主党人将需要10名参议院共和党人加入他们的大多数法案的推进 。
-
-根据2001年达成的协议，上一次参议院势均力敌时，两党的委员会席位数目相等，委员会共和党人和民主党人的预算相等，而且两位领导人都有能力从陷入僵持的委员会中提出立法。 但是民主党人将担任主席，而舒默将为会议设定议程。
-
-某些问题可以通过称为预算协调的过程以简单多数通过，但该方法对什么可以包括以及什么时候可以包括有限制。 民主党人已经在考虑是否在主要的病毒救助方案上绕过共和党人，舒默希望在3月中旬将其送交白宫，并在今年晚些时候提供后续方案。
-
-值得注意的是，参议院在美国历史上只有三次是两党平分秋色。分别是 1881、1953和2001。
-
-民主党人希望利用预算和解程序绕过共和党的病毒救援方案，如果没有曼钦和西尼玛，他们可能会陷入麻烦，他们正试图将两党的方案拼凑起来，这比拜登提议的19亿美元交易要小。 如果在前总统川普弹劾审判的2月8日开始之前没有实现，民主党人可能会决定单独行动。
-
-高盛和摩根大通（JPMorgan）表示，该方案继续缩减。 正如我们周一指出的那样，高盛最近实际将拜登刺激计划的最终规模的估计值从1.9万亿美元削减至1.1万亿美元，而摩根大通则走得更远，现在预计只有9000亿美元会通过，或者是两党12月刺激计划的复本（届时也将很大可能要延迟）。
-
-原文作者：泰勒·德登（TEDLER DURDEN）
-
-发布时间：星期二，2021年1月26日  8:49
-
-原文链接: [https://www.zerohedge.com/political/mcconnell-caves-preserving-filibuster-after-two-democrats-signal-no-eliminating](https://www.zerohedge.com/political/mcconnell-caves-preserving-filibuster-after-two-democrats-signal-no-eliminating)
-
-+2
++3
