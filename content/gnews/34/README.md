@@ -1,29 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 当生无可恋是不是一种至暗的悲哀：写在CCP墙内疫区自杀频发的现实下
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/821181/)
+## 2021年1月26日 文贵先生盖特 4
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/821623/)
 
-撰稿人 喜妈 喜安娜
-![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_0224.jpg)图片来源：gtv.org
-最近，在来势汹汹的第二波疫情冲击下，CCP治下的中国内地，出现疫区平民自杀频发的现实。正如上图所示：一个人在封城期间，趁半夜外出吊死在户外健身器材上。笔者认为，疫情固然是一个逼迫人的原因，可是疫情下CCP体制才是真正逼死人和让人们生无可恋的根源。
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-首先，从无数的墙内同胞在第二波疫情封城中所分享的各种社交媒体资讯上，我们可以清楚地看到，CCP的体制从没有将它治下的民众当成是所必须要去认真尊重和爱惜的群体；相反，民众就是它的体制下各级官员层层压迫和牟利的工具。人民常常是在毫无预警的情况下，就被突然剥夺了基本的公民自由和权利。种种粗暴的至上而下的简单疫情压制操作，让人们无法得到生存的保障。
+【疫情快讯】1月26日，上海疫情严重，知情网友曝上海浦东突击建造方舱医院，一周内要完工。 【Pandemic Express】Jan 26th, The epidemic is serious in Shanghai. Netizens exposed that the construction of an infectious disease hospital in Pudong, Shanghai, is to be completed within a week.
 
-其次，CCP的体制形成了长期的一种“官本位”思想，导致了疫情的控制从来就是以保住“乌纱帽”为出发，而不是以“民生”为出发。换句话说，只要疫情的确诊数字和感染数字好看，不致于让上级领导脸上无光，基层和中下层的各级政府，都只能用极为简单粗糙的方式，强行压制和限制。而因此，所造成的对民众在巨大恐惧中的伤害和冲击，是难以承受的。
 
-第三，CCP体制下的老百姓，深受其红色政权的洗脑和侵害。他们既无法提前预知可能的伤害，也没有能力在明显的压制下自觉反抗。他们当顺民成了习惯；同时他们仍然相信那是政府只能做到的，他们无法更多地要求。同时，他们深知，自己的要求对一个具有强大红色执政能力的政府来说，什么都不是。而最后，他们只能选择结束自己的生命，选择主动死亡。
 
-自杀其实是需要巨大勇气的，只有生无可恋的时候才能对自己下得了手。一个政府，不能站在人民对角度考虑，不能为民请命，相反是他们走向绝路的推手，这样的政府，已经失去了存在的价值和必要性。Take down CCP，还给人民一个生存的理由。
+[【2021年1月26日】文贵先生盖特原文](https://gtv.org/getter/6010c8c3c3245d7c59e8e5b0)
 
-Bibliography:
+**喜联盟Gnews编辑部**
 
-法国麦., (2021). 在疫情封城中自杀的人. [online]. [gtv.org](http://gtv.org). [Viewed 27 January 2021]. Available from:[https://gtv.org/video/id=600d3d00c3245d7c59e729f4](https://gtv.org/video/id=600d3d00c3245d7c59e729f4)
-
-澳喜文章：
-
-[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
-
-欢迎加入澳喜农场： [https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_5335-3.jpg)
-+2
++1

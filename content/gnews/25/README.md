@@ -1,17 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年1月26日 文贵先生盖特 5
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/821676/)
+## CCP冠状病毒大流行 – 第356集
+` 新闻译制组` [轉載自GNews](https://gnews.org/zh-hans/821888/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
-
-【疫情快讯】1月26日， 吉林通化市封城封户，居民生活物资严重短缺，食不果腹。 【Pandemic Express】Jan 26th, Tonghua City in Jilin imposed lockdown on every family in the city. The residents are starving because of the severe food shortage.
+**喜马拉雅大使馆译制组**
 
 
 
-[【2021年1月26日】文贵先生盖特原文](https://gtv.org/getter/6010ca8bc3245d7c59e8e65e)
+**摘要**
 
-**喜联盟Gnews编辑部**
+- **中共政府开始强制征兵，禁止拒绝服兵役的人员报考公务员，并列为失信（信益）人。**
+- 拜登政府寻求与俄罗斯续签5年核武器消减条约。
+- 参议院情报委员会科顿参议员最新采访时明确表示：所有的证据都指向中共武汉病毒所就是病毒来源。
+- 美国国际宗教自由委员会委员鲍尔接受采访时表示：中共被认定种族灭绝罪，这与当年纳粹对犹太人的大屠杀等同。而且美国认定后，全世界的国家和组织都会跟进承认这一认定。
+- 日增死亡病例再创新高，英国医护情绪崩溃，哭诉停尸房如尸体输送带。
+- 中共国老师强奸幼女学生，学校却回复他俩有感情。
 
-0
+
+**G**|**TV 鏈接**
+
+[CCP冠状病毒大流行 – 第356集](https://gtv.org/video/id=601104d1c3245d7c59e900d2)
+
++1
