@@ -1,52 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲健康部最新疫苗接种政策解读之二：疫苗推出阶段详情
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/832549/)
+## 今天是十世班禅大师圆寂32周年
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/832436/)
 
-撰稿人：喜妈
-![]()![](https://gnews.org/wp-content/uploads/2021/01/covid2.png)图片来源：canva.com
-COVID-19疫苗全国推广阶段 澳大利亚政府的目标是到2021年使尽可能多的人接种疫苗。确定的优先人群将获得被证明是安全有效的第一批可用剂量。随着2021年有更多的可用剂量，更多的人将可以使用疫苗。 《 COVID-19疫苗国家推广策略》详细介绍了提供疫苗的阶段。
+撰稿&字幕翻译：白雪
 
+视频剪辑：头上三尺有外星人 素材：Yumi
 
-| **1a****期** |
-| --- |
-| 检疫和边境工作人员 | <br> |
-| 一线医疗工作者小组 | <br> |
-| 老年护理和残疾护理人员 | <br> |
-| 老年护理和残疾护理居民 | <br> |
-| **剂量数** | **up to 1400****万** |
-| **1b****期** |
-| 80岁及以上的老年人 | <br> |
-| 70-79岁的老年人 | <br> |
-| 其他卫生保健工作者 | <br> |
-| 原住民和托雷斯海峡岛民&gt; 55 | <br> |
-| 患有潜在疾病的年轻人，包括残疾人 | <br> |
-| 关键和高风险工人，包括国防，警察，消防，紧急服务和肉类加工 | <br> |
-| **剂量数** | **up to 1480****万** |
-| **2a****期** |
-| 60-69岁的成年人 | <br> |
-| 50-59岁的成年人 | <br> |
-| 原住民和托雷斯海峡岛民18-54岁 | <br> |
-| 其他关键和高风险工人 | <br> |
-| **剂量数** | **up to 1580****万** |
-| **2b****期** |
-| 成人人口平衡 | <br> |
-| 追赶上一阶段未接种疫苗的澳大利亚人 | <br> |
-| **剂量数** | **up to 1600****万** |
-| **第三阶段** |
-| &lt;16，如果推荐\* | <br> |
-| **剂量数** | **up to 1360****万** |
+32年前的今天，第十世班禅 额尔德尼·因心肌梗塞去世。
 
+六天后，中共针对民众的抗议，进行了血腥的镇压。士兵们朝人群开枪，把他们驱散了。三天之内，数百人受伤，超过60人示威者被杀害。
 
-Reference:
+1989年1月28日,也就是农历戌辰龙年的未尾,生肖属虎的第十世班禅 额尔德尼·确吉坚赞,突然于后藏首府日喀则他的行宫“德庆格桑颇章”因心脏病突发去世，不幸地应验了此前有关他“龙虎斗”的宿命。
 
-health.gov.au., (2021). Who will get the vaccines. [online]. health.gov.au. [Viewed 28 January 2021]. Available from: [https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/getting-vaccinated-for-covid-19/who-will-get-the-vaccines](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/getting-vaccinated-for-covid-19/who-will-get-the-vaccines)
+自从1959年达赖喇嘛流亡海外后，班禅十世担任了西藏自治区筹备委员会代理主任。主张爱国统一和民主改革。
 
-澳喜文章：
+当时在民主改革中出现了一些不符合西藏实际的做法，班禅写那份著名的《七万言书》，结果不但遭到周恩来的批评，毛泽东的评价“班禅的尾巴翘得比U-2飞机还要高”更是直接将班禅打成反动派，被扣了三项帽子“反人民、反社会主义、蓄谋叛乱”。
 
-[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+班禅于一九七八年被释放并恢复党和国家领导人职务。
 
-欢迎加入澳喜农场： [https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_5335-3.jpg)
+一九八九年官方宣称因心脏病辞世。
+
+十世班禅的突然去世引发了许多传言和猜测。[西藏司政](https://zh.wikipedia.org/wiki/%E8%A5%BF%E8%97%8F%E5%8F%B8%E6%94%BF)[洛桑森格](https://zh.wikipedia.org/wiki/%E6%B4%9B%E6%A1%91%E6%A3%AE%E6%A0%BC)表示：“51岁的十世班禅仁波切在西藏日喀则扎西伦布寺的德庆格桑颇彰新宫，不明不白地突然圆寂。” 对此，十世班禅的女儿不发表评论，依然认为十世班禅的死是由于身体差、极度[超重](https://zh.wikipedia.org/wiki/%E8%B6%85%E9%87%8D)和慢性[失眠](https://zh.wikipedia.org/wiki/%E5%A4%B1%E7%9C%A0)所致。
+
+（本文纯属个人观点）
+
+视频剪辑来自：[https://youtu.be/VtuDIj2ANTs](https://youtu.be/VtuDIj2ANTs)
+
+相关引用链接：
+
+[https://m.bilezu.com/html/16046046.html](https://m.bilezu.com/html/16046046.html)
+
+[https://iask.sina.com.cn/b/4HkJ2XeCud.html](https://iask.sina.com.cn/b/4HkJ2XeCud.html)
+
+[第十世班禅额尔德尼 – 维基百科，自由的百科全书](https://zh.wikipedia.org/wiki/%E7%AC%AC%E5%8D%81%E4%B8%96%E7%8F%AD%E7%A6%85%E9%A2%9D%E5%B0%94%E5%BE%B7%E5%B0%BC)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-澳喜Logo-1.jpeg)
 0

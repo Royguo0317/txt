@@ -1,42 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共用漫画攻击闫丽梦博士和爆料革命，点出病毒真相是中共超限战的滑铁卢
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/832257/)
+## 澳洲健康部最新疫苗接种政策解读之一：那些人群优先接种及原因
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/832496/)
 
-作者：楼兰古城
+撰稿人 喜妈
+![]()![](https://gnews.org/wp-content/uploads/2021/01/covid.png)图片来源：Canva.com
+澳大利亚的COVID-19疫苗将分阶段提供，优先群体将获得第一剂疫苗。使用公共卫生，医学和流行病学证据来确定优先人群，这些证据表明谁感染了COVID-19谁将受到最大的影响，以及谁是那些最有可能受到感染的人。
 
+为什么优先考虑这些人群
 
+全球对结束COVID-19大流行的安全有效疫苗需求很大。随着疫苗的普及，将向高风险人群提供疫苗。优先人群的确定要考虑到当前的公共卫生，医学和流行病学证据，即谁感染了COVID-19谁将受到最大的影响。
 
-> 重大新聞：
-> 中共政府正在組織網軍（五毛部隊）和他們控制的媒體，又一次對我揭示病毒真相的「閆麗夢報告」發動攻擊，毀壞我的名聲。
-> 他們已經在網上傳播了大量不實漫畫和視頻。
-> 這充分表明中共對於美國將會就COVID19是生物武器而對其追責的恐懼！
-> CCP regime always HATES TRUTH!
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [January 26, 2021](https://twitter.com/DrLiMengYAN1/status/1354207750750957571?ref_src=twsrc%5Etfw)
+例如，卫生和老年护理工作者是优先考虑的人群，因为他们与人频繁接触，因此极有可能感染COVID-19。他们还更有可能通过他们在医院和老年护理机构中的工作将病毒传播给弱势人群。优先考虑该人群的疫苗接种对所有人都有好处，以便他们可以继续提供基本护理。
 
+Reference:
 
+health.gov.au., (2021). Who will get the vaccines. [online]. health.gov.au. [Viewed 28 January 2021]. Available from: [https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/getting-vaccinated-for-covid-19/who-will-get-the-vaccines](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/getting-vaccinated-for-covid-19/who-will-get-the-vaccines)
 
-近日中共政府大量招募五毛网军，并利用漫画这种吸引人观看的题材，丑化抹黑英雄科学家闫丽梦博士、文贵先生、班农先生。漫画中的所谓人物形象，内容描述可以反映出中共本身假丑恶的内部政治生态在政治上对待敌人的斗争行为。
+澳喜文章：
 
+[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
 
-
-> Bannon War Room 0125-Part1：
-> 🔸闫博士你是第一个站出来说新冠病毒来自武汉实验室，是生物武器计划，现在美国情报机构以及Mike Pompeo都告诉我们这是解放军控制的生物武器项目，事实证明闫博士所说的一切都是正确的；
-> 🔸习近平在达沃斯论坛的演讲只简单地提到了中共病毒，并不想承担任何责任，想这事 [pic.twitter.com/KtCNrjxdjD](https://t.co/KtCNrjxdjD)
-> — 占戈鹰 Tuan (@Tuan\_anti3316) [January 26, 2021](https://twitter.com/Tuan_anti3316/status/1354117625073324032?ref_src=twsrc%5Etfw)
-
-
-
-在War Room班农先生说：“闫博士你是第一个站出来说新冠病毒来自武汉实验室，是生物武器计划，现在美国情报机构以及Mike Pompeo都告诉我们这是解放军控制的生物武器项目，事实证明闫博士所说的一切都是正确的！中共可以控制宣传机器，却不能让真正的媒体闭嘴，让真相失去传播。也正是闫丽梦博士的站出来，中共反人类政权也遇到了这场布局几十年的超限战的滑铁卢，闫丽梦博士是中国版的威灵顿公爵，而拯救全人类的角度来说，其意义更深远！
-
-在中共统治的70年里民间有天量反映中共邪恶体制的漫画，这样的漫画都是中共害怕和恐惧的，因为它是真相！而中共五毛推出的漫画，只是一种大外宣政治斗争的产物。爆料革命新中国联邦提倡为真不破，而中共最擅长做的就是掩盖真相，解决提出问题的人甚至让其肉体消失，杀人诛心。假是中共一直以来的生存手段，它最怕的也是为真不破这四个字，真就是驱除那黑暗的光明力量。爆料革命和拜登政府合作推动灭共，病毒真相让美国和世界向中共追责，这些都是让中共每天提心吊胆万分恐惧的。
-
-中共每一次对世界的攻击和伤害，都会让一部分人觉醒，灭共的力量便会更强，相信世界上各个行业在未来都会产生像闫丽梦博士那样勇敢站出来的英雄，等邪恶达到巅峰之时，全球觉醒的灭共力量只需轻轻一个喷嚏，中共便在弹指间灰飞烟灭，而中共留下的一切宣传连个渣子都不会让其存在。强烈要求让天线宝宝出来走两步，为真不破！
-
-【文章仅代表作者个人观点】
-
-审核校对：玫瑰天空
-上传排版：糖果儿
-
+欢迎加入澳喜农场： [https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_5335-3.jpg)
 0

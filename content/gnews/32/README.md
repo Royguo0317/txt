@@ -1,31 +1,171 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美军跟日军对台湾的国防防御
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/832037/)
+## 2021/01/27 – 01/28 美国政要每日推特重要信息汇总
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/832293/)
 
-台湾农场 伊达正宗
+编辑：Cathy
 
-\* 背景：台海局势从 1945 年二战以来, 诡谲多变, 更成为东亚必争之地, 而台湾为连系南海与太平洋海运交通要道之地, 地位更为奇特. 从过去的大清帝国的统治, 经历日本治理, 直到中华民国在台湾的统治下, 俨然让台湾更具有历史上探讨的地位. 且现代社会上, 经历二战后的折冲, 台湾更成为目前中国, 日本, 与美国等多国战略折冲平衡点,  素有亚洲火药库之称. 一旦台海局势有变, 将牵动整个世界的势力平衡发展, 甚至演变成第三世界大战. 故在此探讨其重要性.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/AIT.jpg)
-\* 美军与日军的达成的协议：在二战时, 台湾为日本所统治, 直到二战结束后, 旧金山和平条约的签定下, 日本放弃对台湾的统治, 撤回日本本土, 然台湾目前就此为中华民国所统治. 而台湾防卫能力因此而薄弱? 其实不然, 日本在旧金山和平条约第六条的规定下, 与美国签订了美日安保条约, 继续防卫防卫日本与其领土保障远东地区的安全. 而在此条约中, 远东的范围既然还包括台湾地区.
+**经授权转载自：**
 
-\* 日本外务省的声明：日本与美国签订美日安保条约后, 对极东(远东)的范围定义不清, 而日后美国与日本协调后, 由日本先发出声明. 根据日本外务省极东の范囲（昭和35年2月26日政府统一见解」）,极东(远东)的定义在美日安保条约为北至朝鲜半岛, 南到中华民国统治的地域的台湾. 而对上述地区所遭受到的攻击,美国要在日本使用军事基地进行防卫反击.(附注一)
+- 川普等政要…直译推twitter：[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
+- 川普等政要…直译推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
+- 川普等政要…直译推GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
 
-\* 台海战事爆发对台湾有利的因素：由上得知, 在法律上, 台湾的防卫俨然已经经由美日安保条约的保护下, 美日联军可依台湾发生战事的情况, 由琉球出兵(战机)阻止任何在武力上企图破坏台湾安全的情况. 且台湾除了有美国在台协会驻守海军陆战队保护外(附注二), 更在新竹乐山基地设有目前最先进的阵相雷达站(附注三), 且完全由美军操作, 中华民国的人员完全不能触碰跟阵相雷达有关的机密设备. 在此情况下, 等同美军不可能放弃台湾的防卫, 美军岂有将雷达站整组重装高科技设备全数让与敌人的道理? 一旦台海发生战事, 美日联军会在第一时间反应, 战事可能在一个小时内结束.
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/julius-drost-nsrSyI-JUYg-unsplash-5-7.jpg)
+## 简评：
 
-\* 台海战事爆发对台湾不利的因素：虽然如此, 但台湾的威胁就此消失了吗? 其实不然, 中华人民共和国处心积虑想拿下台湾, 除了政治经济上的渗透外, 在军事上, 热战不可能跟美日联军硬碰硬, 但可以采取迂回方式来进行. 例如对美日军事单位投毒. 我们都知道, 美国国务院已发表声明, 2020年爆发的冠状病毒, 有大量证据显示, 中国的实验室制造出来的(附注四). 中国在热战上既然打不倒美日联军, 他可以采用病毒战的方式, 对日本大量的投毒, 扩散到日本自卫队, 以及在冲绳驻日的美军, 降低美日联军的实时战斗能力. 在其美日联军有防守漏洞空档的期间, 快速拿下台湾并非可能. 这是中国最有利的作战方式.
+1月27-28日，川普正式开设了前总统办公室，其团队否认和爱国党联系起来。参议员玛莎•布莱克本和众议员吉姆·乔丹都质疑关于中共宣称对抗疫的胜利和世卫称太早确认新冠病毒来自于中共国。参议员泰德•克鲁兹指责拜登的提名人与中共国越来越融洽。
 
-\* 总结：由上述得知, 台湾目前的安全防卫除了有美日联军共同防卫上, 台湾应与美国和日本合作, 避免中国藉由病毒降低美日联军的作战能力, 在台湾安全防疫的真实案例上, 更应该针对目前日本复发的病毒大流行, 予以实质上的帮助. 让美日联军的作战能力能够减少病毒的冲击, 维持防卫台湾的作战能力。本文仅代表个人立场。
+## 蓬佩奥：
 
-附註一：https://www.mofa.go.jp/mofaj/area/usa/hosho/qa/03\_2.html
+我很高兴能够以杰出人士的身份加入哈德逊研究所@HudsonInstitute，并于2月1日生效。我期待着为其促进美国的领导地位和全球参与的使命做出贡献。
+重要的是我们要继续将美国放在首位！
 
-附註二：https://www.cna.com.tw/news/firstnews/201904035004.aspx
 
-附註三：https://tw.appledaily.com/politics/20201013/XFUAMVMMSFGRZMTL6UYMWTUVFQ/
 
-附註四：https://www.rti.org.tw/news/view/id/2089008
+> I am pleased to be joining [@HudsonInstitute](https://twitter.com/HudsonInstitute?ref_src=twsrc%5Etfw) as a distinguished fellow, effective Feb. 1. I look forward to contributing to its mission of promoting American leadership and global engagement. 
+> 
+> It’s important that we keep putting America First! 🇺🇸
+> — Mike Pompeo (@mikepompeo) [January 27, 2021](https://twitter.com/mikepompeo/status/1354432575742345221?ref_src=twsrc%5Etfw)
 
-[更多台灣農場文章](https://www.gnews.org/zh-hant/author/taiwangnews/)
 
+
+## 众议员罗恩·赖特：
+
+总统拜登重新加入有缺陷的《巴黎协定》是一个错误。
+我们为什么要给 #中国共产党 免费通行证随意污染，而美国纳税人却要承担经济增长放缓的重担？
+我们需要对中共 #CCP 追责，而不是让他们摆脱困境！
+
+
+
+> President Biden re-joining the flawed Paris Accord is a mistake.
+> 
+> Why are we giving Communist China a free pass to pollute at will while American taxpayers are left carrying the burden of slowed economic growth?
+> 
+> We need to hold the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) accountable, not let them off the hook!
+> — Ron Wright (@RepRonWright) [January 26, 2021](https://twitter.com/RepRonWright/status/1354168449392664578?ref_src=twsrc%5Etfw)
+
+
+
+## 众议员兰斯·古登：
+
+支持率
+唐纳德J. 川普：51％
+国会：15％
+国会不应该对川普先生定罪，而应该担心一下其选民为什么认为他们做的很糟糕！
+
+
+
+> Approval ratings
+> 
+> Donald J. Trump: 51%
+> 
+> Congress: 15%
+> 
+> Instead of convicting Mr. Trump, Congress should be worried about why their constituents think they are doing a TERRIBLE job!
+> — Lance Gooden (@Lancegooden) [January 27, 2021](https://twitter.com/Lancegooden/status/1354451844702068737?ref_src=twsrc%5Etfw)
+
+
+
+## 众议员吉姆·乔丹：
+
+是#中共国 那样告诉他的吗？
+【转每日来电记者Chuck Ross 推文：[世卫组织官员称还太早下结论新冠病毒源自中共国](https://dailycaller.com/2021/01/26/world-health-organization-china-origins-michael-ryan/)】
+
+
+
+> Did China tell him that? [https://t.co/hm41EWsqlb](https://t.co/hm41EWsqlb)
+> — Rep. Jim Jordan (@Jim\_Jordan) [January 26, 2021](https://twitter.com/Jim_Jordan/status/1354208383205863426?ref_src=twsrc%5Etfw)
+
+
+
+## 参议员泰德•克鲁兹：
+
+**1．我对拜登团队的话：**联合国大使的作用不是为 #中国共产党 加油，而且以美国为代价。
+
+
+
+> My message to Team Biden: The role of the UN Ambassador is not to cheer on the Chinese Communist Party at the expense of America. [pic.twitter.com/5oR9EdAyNU](https://t.co/5oR9EdAyNU)
+> — Senator Ted Cruz (@SenTedCruz) [January 27, 2021](https://twitter.com/SenTedCruz/status/1354499454125158401?ref_src=twsrc%5Etfw)
+
+
+
+**2．这很糟糕。**
+
+中共利用孔子学院进行宣传和间谍活动。国会通过了我提写的两党立法，关闭了其中的数十家。
+为什么拜登的联合国大使提名人在孔子学院发表有偿演讲赞扬中共国？
+【转华盛顿邮报文章：[拜登的联合国大使提名人因过去对中共国的赞美而面临批评](https://www.washingtonpost.com/opinions/2021/01/27/linda-thomas-greenfield-china-biden-united-nations-ambassador/)】
+
+
+
+> This is BAD.
+> 
+> The CCP uses Confucius Institutes for propaganda & espionage. Congress passed bipartisan legislation, which I authored, closing dozens of them.
+> 
+> Why did Biden’s UN Ambassador nominee give a paid speech at a Confucius Institute praising China? [https://t.co/JRMwVnU6cN](https://t.co/JRMwVnU6cN)
+> — Ted Cruz (@tedcruz) [January 27, 2021](https://twitter.com/tedcruz/status/1354433947497852939?ref_src=twsrc%5Etfw)
+
+
+
+**3．乔·拜登大笔一挥，告诉工会工人们：你们的工作岗位无所谓。**
+现在，拜登的提名人们与中共国越来越融洽了！
+
+
+
+> With a stroke of a pen, Joe Biden has told union workers: Your jobs don’t matter.
+> 
+> Now Biden’s nominees are getting cozy with China! [pic.twitter.com/j8L4UAjBlJ](https://t.co/j8L4UAjBlJ)
+> — Ted Cruz (@tedcruz) [January 27, 2021](https://twitter.com/tedcruz/status/1354420346611523586?ref_src=twsrc%5Etfw)
+
+
+
+## 参议员瑞克·斯科特：
+
+总统（乔拜登）撤回禁止 #中共国 参与美国电网的行政命令是不可接受的。这是个向 #共产中国 敞开的危险的大门，对我们的国家安全形成了不必要的威胁。这一决定必须立即扭转。【转推美国军事新闻，[拜登停止了川普禁止共产中国渗透美国电网的行政命令](https://americanmilitarynews.com/2021/01/biden-pauses-trump-order-blocking-communist-chinese-infiltration-of-us-power-grid)】
+
+
+
+> Unacceptable that [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) would revoke an order blocking Chinese involvement in the U.S. power grid. This is a dangerous door to open to Communist China and poses an unnecessary risk to our nation’s security. This decision must be reversed immediately. [https://t.co/kitheZXVN5](https://t.co/kitheZXVN5)
+> — Rick Scott (@SenRickScott) [January 26, 2021](https://twitter.com/SenRickScott/status/1354080305121026048?ref_src=twsrc%5Etfw)
+
+
+
+## 参议员玛莎·布莱克本：
+
+北京想要宣称取得抗击新冠的“战役的决定性胜利“可悲的企图是错误的，也对全世界受这病毒影响的人们是不尊重的。北京效率和透明度的缺失并不应该得到庆祝。【转推华尔街，[一年后对中国新冠反应的愤怒在武汉冒火](https://www.wsj.com/articles/anger-at-chinas-covid-19-response-smolders-in-wuhan-11611336335)】
+
+
+
+> Beijing’s sad attempt to declare a “decisive victory in the battle” against COVID-19 is false and disrespectful to those around the world who have suffered the effects of this virus. Beijing’s lack of efficiency and transparency should not be celebrated. [https://t.co/z1vPetdJdJ](https://t.co/z1vPetdJdJ)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [January 26, 2021](https://twitter.com/MarshaBlackburn/status/1354076879972691969?ref_src=twsrc%5Etfw)
+
+
+
+## 川普高级顾问Jason Miller ：
+
+川普竞选团队否认将他与“爱国者党”联系起来的通知（[附detroit 新闻网同名报道](https://www.detroitnews.com/story/news/politics/2021/01/25/trump-campaign-disavows-notice-linking-him-patriot-party/4250579001/)）
+
+
+
+> Trump campaign disavows notice linking him to ‘Patriot Party’ [https://t.co/rzmnb7DNrc](https://t.co/rzmnb7DNrc)
+> — Jason Miller (@JasonMillerinDC) [January 25, 2021](https://twitter.com/JasonMillerinDC/status/1353854906726277125?ref_src=twsrc%5Etfw)
+
+
+
+## 前总统办公室的声明
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/buearo.jpg)
+
+(2021年1月25日) 佛罗里达州棕榈滩县 – 今天，美国第45任总统唐纳德J·川普正式开设了前总统办公室
+该办公室将负责管理川普总统的通讯联络、公开声明、出场和官方活动以促进美国的利益，并通过宣传、组织和公众行动来贯彻川普政府的议程
+川普总统会一直并永远是美国人民的拥护者
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

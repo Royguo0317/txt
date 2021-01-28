@@ -1,39 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 今天是十世班禅大师圆寂32周年
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/832436/)
+## 王者归来，川普成立「前总统办公室」
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/833140/)
 
-撰稿&字幕翻译：白雪
+编撰：天灭中共
 
-视频剪辑：头上三尺有外星人 素材：Yumi
+复核：Peace Wind / pv0
 
-32年前的今天，第十世班禅 额尔德尼·因心肌梗塞去世。
+美国当地时间1月25日，第45任总统川普在佛罗里达州开设办公室，管理其通讯及官方活动事宜，同时还设立两个智库，继续推进自己的政治主张，引外界猜测。
 
-六天后，中共针对民众的抗议，进行了血腥的镇压。士兵们朝人群开枪，把他们驱散了。三天之内，数百人受伤，超过60人示威者被杀害。
+川普设「前总统办公室」引外界关注
 
-1989年1月28日,也就是农历戌辰龙年的未尾,生肖属虎的第十世班禅 额尔德尼·确吉坚赞,突然于后藏首府日喀则他的行宫“德庆格桑颇章”因心脏病突发去世，不幸地应验了此前有关他“龙虎斗”的宿命。
+被多个社交平台恶意封杀的前美国总统川普透过发表声明公布消息，在佛州棕榈滩县成立办公室，并命名为「前总统办公室」，主要负责管理川普所有公共事务，包括信件、公开声明或露面，以及其他促进美国利益的官方活动，并将透过倡导、组织公众活动，来延续川普行政团队的政治理念。声明的最后，更以「川普总统永远会是美国人民的捍卫者」作结。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/image1-72.jpg)
+川普20日卸任时，在安德鲁斯联合基地的欢送仪式上向大批支持者喊话：「我们会以某种形式回归」，时隔不到一周，即宣布成立办公室，
 
-自从1959年达赖喇嘛流亡海外后，班禅十世担任了西藏自治区筹备委员会代理主任。主张爱国统一和民主改革。
+实际上，总统卸任后成立办公室是惯例，不过直接以「前总统」为办公室冠名，实属川普创举。
 
-当时在民主改革中出现了一些不符合西藏实际的做法，班禅写那份著名的《七万言书》，结果不但遭到周恩来的批评，毛泽东的评价“班禅的尾巴翘得比U-2飞机还要高”更是直接将班禅打成反动派，被扣了三项帽子“反人民、反社会主义、蓄谋叛乱”。
+不仅如此，川普还建立了两个智库，一个叫「复兴美国中心」，另一个是与之相应的「复兴美国行动」组织，前者是维护选举公正与应对大科技公司侵害言论自由的非营利组织，后者是社会福利团体，主要是推进各项议程。
 
-班禅于一九七八年被释放并恢复党和国家领导人职务。
+据悉，「前总统」办公室的首要工作之一，是协助前白宫发言人桑德斯出选阿肯色州州长。
 
-一九八九年官方宣称因心脏病辞世。
+参议院二次弹劾，川普赢面大
 
-十世班禅的突然去世引发了许多传言和猜测。[西藏司政](https://zh.wikipedia.org/wiki/%E8%A5%BF%E8%97%8F%E5%8F%B8%E6%94%BF)[洛桑森格](https://zh.wikipedia.org/wiki/%E6%B4%9B%E6%A1%91%E6%A3%AE%E6%A0%BC)表示：“51岁的十世班禅仁波切在西藏日喀则扎西伦布寺的德庆格桑颇彰新宫，不明不白地突然圆寂。” 对此，十世班禅的女儿不发表评论，依然认为十世班禅的死是由于身体差、极度[超重](https://zh.wikipedia.org/wiki/%E8%B6%85%E9%87%8D)和慢性[失眠](https://zh.wikipedia.org/wiki/%E5%A4%B1%E7%9C%A0)所致。
+参议院25日晚正式接手了众议院的川普弹劾案，众议院以232对197票通过，指控前总统川普煽动暴民于1月6日袭击国会大厦，犯有「严重罪行与行为不检」（High crimes and misdemeanors）。参议院计划2月9日开始，正式对该弹劾案进行审判。
 
-（本文纯属个人观点）
+共和党联邦参议员兰德·保罗（Rand Paul）则持不同意见，他认为弹劾卸任总统违宪，并于26日发起一项全体表决，表决结果最终显示为45对55票，未能阻止到弹劾案的继续进行。
 
-视频剪辑来自：[https://youtu.be/VtuDIj2ANTs](https://youtu.be/VtuDIj2ANTs)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/image2-29.jpg)Rand Paul 图片来源：维基百科
 
-相关引用链接：
+值得留意的是，在支持弹劾的55人中，5个为共和党人，包括参议院少数党领袖麦康奈尔。尽管如此，想要成功弹劾川普，根据议事规则，须有至少67位参议员赞成。也就是说，在反对弹劾川普的45位参议员中，需要至少17位倒戈方能成事。因此，弹劾案通过的机会并不大。
 
-[https://m.bilezu.com/html/16046046.html](https://m.bilezu.com/html/16046046.html)
+无论是否担任总统，身负民意众望的川普，始终是社会各界关注的焦点。而他的「前总统办公室」，面对的首项工作，很可能是准备应对2月9日国会参议院的弹劾审讯。
 
-[https://iask.sina.com.cn/b/4HkJ2XeCud.html](https://iask.sina.com.cn/b/4HkJ2XeCud.html)
+以上观点仅代表笔者
 
-[第十世班禅额尔德尼 – 维基百科，自由的百科全书](https://zh.wikipedia.org/wiki/%E7%AC%AC%E5%8D%81%E4%B8%96%E7%8F%AD%E7%A6%85%E9%A2%9D%E5%B0%94%E5%BE%B7%E5%B0%BC)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1-澳喜Logo-1.jpeg)
+「资料来源」
+
+[https://thehill.com/homenews/administration/535771-trump-establishes-office-of-the-former-president-in-florida](https://thehill.com/homenews/administration/535771-trump-establishes-office-of-the-former-president-in-florida)
+
+[https://thehill.com/homenews/senate/535995-senate-gop-signals-its-likely-to-acquit-trump-for-second-time](https://thehill.com/homenews/senate/535995-senate-gop-signals-its-likely-to-acquit-trump-for-second-time)
+
+[https://www.axios.com/former-omb-director-to-set-up-pro-trump-think-tanks-3b297535-23e6-427f-8723-763c6bbe358e.html](https://www.axios.com/former-omb-director-to-set-up-pro-trump-think-tanks-3b297535-23e6-427f-8723-763c6bbe358e.html)
+
 0
