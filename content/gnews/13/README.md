@@ -1,33 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士解释CCP不承担病毒责任的原因
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/827320/)
+## 为遭迫害做好准备：国内恐怖主义法、大型科技公司和大型媒体可能把美国变成中共国
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/827086/)
 
-HST-01C-202101-085
+根据CBN于2021年1月26日的报道，中共国家极权主义对中国人民的全方位操控现状，美国应引以为戒。报道进一步指出新一届美国政府可能会利用疫情大流行的严重问题，再次在大科技公司和大媒体的帮助下，对美国公民进行类似中国政府的控制和迫害，该报道最后呼吁美国人民警惕并做好准备。
+视频源: https://www.youtube.com/watch?v=4CXnn–F0PA (03:11-4:09)
+Transcript 正文:
 
-作者：身残志不坚
+**Is**** CCP’s Social Credit System Happening in the US?**
 
-Bannons War Room 680
+**中共的社会信用体系将在美国发生？**
 
-1.这是一场这场信息战，我们不要你捐款，而需要你成为信息的放大器，因为你的国家需要你。我之所以被中国制裁，就是因为我对受众的影响力。
+While the COVID-19 pandemic is a serious issue, it is also pushing an already dependent American society toward a willingness of being controlled. It has put us in a position and a mindset of fear and control, and where we can be open to being told what to do by the government. And I think that this has been a dry run, if you will, for greater control. One that covers nearly every aspect of your life, courtesy of big government, big tech, and big media. It’s already happening in China where the communist government has implemented a social credit system that forces citizens to conform to what the government wants. Those deemed to be good communists are rewarded with full access to the economy, travel, higher education, and good jobs. I think we’re going to see an informal version of that happen right here in America, and the hammer is going to come down on conservatives and traditional Christians.
 
-2.大谎言理论被希特勒创造并用来栽赃犹太人，诬陷他们让德国在一战中失利。如今却被媒体拿来污蔑右翼群体，说我们疯狂和极端，这令人难以置信。
+当病毒大流行成为目前的一个严重的问题时，它同时也将已有依赖惯性的美国社会导往自愿被操控的方向。它把我们推向了恐惧和控制的心态中，于是，我们便可以无条件地接受政府对我们的指使。我认为这是一次演习，如果可以的话，是为了更好的操控。它几乎涵盖了你生活的方方面面，这要归功于大政府、大科技和大媒体。这种情况已经在中国发生了，中共政府已经实施了一种社会信用体系，迫使公民遵从政府的要求。那些被认为是优秀共产党员的人会被给予在经济、旅游、高等教育和得到好的工作机会方面的奖励。我认为这种体系的非正式版本将在美国发生，而保守派和传统基督徒将受到打击。
 
-3.闫博士被一些评论家看作是女版郭文贵，但事实证明她也是对的。
+*出处: [https://www.youtube.com/watch?v=4CXnn–F0PA](https://www.youtube.com/watch?v=4CXnn--F0PA) (03:11-4:09)*
 
-4.闫博士说，CCP之所以不对病毒释放到全世界承担责任，因为他们把疫情蔓延世界视作巨大的成就，而非灾难。CCP借此向世界展示他们对疫情的控制，并借此推销疫苗。进而让别国政府听命于中共，并对美国政府施加舆论压力。而疫情之中死去的人对CCP不足为道。
+*听写 & 翻译：【奔腾的长江】校对：【JoyJoy】字幕：【相机过热啊】编辑：【Isaiah4031】【Mark】*
 
-5.而对CCP追责最重要的是，首先不能相信CCP以及他们控制的科学家，其次是对病毒展开彻查，包括已经分散到中共国各地的已建与在建实验室，最后要听取内部工作人员和受害者的证词。
+*喜马拉雅玫瑰园小队出品*
 
-6.拜登宣称会在一百天内接种一亿人，福奇却在节目中表示考虑到需要二次接种，实际接种人数无法达到一亿人。在听到预计接种6700万人的数字时，福奇表示“我没算过，不过听起来像是这个数”。这证明了福奇是个白痴和骗子，他会继续在主流媒体上表演。
+*以上翻译整理仅代表作者个人观点，不代表**GNEWS**或他人立场。*
 
-7.《拜登：未经授权》作者表示，拜登无法与习抗衡。作者与拜登共事十年，他亲历了拜登与习的第一次交手。当时习与拜登都是副总统/副主席。CCP认为拜登有野心，很容易被操控，所以当即给了他一个下马威。拜登很快顺应了CCP的规则，并最终得到了奖励。习在奥巴马时期访美，行程结束于好莱坞。在那里习与拜登达成了协议，放松了中国对美国进口电影的限制，最终各方都获得了利益，而钱进了亨特拜登的口袋。如今拜登的心智能力（mental capacity）下降明显，相比十年前，拜登现在只有一半的心智能力水平。
+*敬请关注:*
+*GTV: [喜马拉雅玫瑰园中文频道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)*
+*Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)*
+*Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)*
+*Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)*
 
-2021年1月25日星期一
-
-班农战斗室简报680 闫博士解释CCP不承担病毒责任 Bannons War
-
-[https://rumble.com/vd8zyh-ep-680-biden-50-mental-decline-w-dr.-yan-ocean-andrew-mike-mccormick-mike-l.html](https://rumble.com/vd8zyh-ep-680-biden-50-mental-decline-w-dr.-yan-ocean-andrew-mike-mccormick-mike-l.html)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/b2-1.png)
-0
++1
