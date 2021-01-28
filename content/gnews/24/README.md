@@ -1,24 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国预计未来四周内将有9万人死于中共病毒
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/825749/)
+## 班农战斗室简报679 战斗室大疫情开播一周年，习在达沃斯的胜利演说
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/826243/)
 
-- 编辑：Victor Torres
+HST-01C-202101-083
 
+作者：身残志不坚
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+Bannons War Room 679
 
-**西班牙2021年1月28日电/西喜社——**拜登政府预计，未来四周内将有多达9万名美国人死于中共病毒。
+1.一年前我们预测了病毒的大流行以及随之引发的经济危机、金融危机直至地缘政治危机。现在一年过去了，蔓延的疫情和总统弹劾却依然是主题（川普第一次弹劾案是在2019年末发起的）。
 
-这一警告是在周三政府进行首次关于中共病毒大流行的电视科学简报时发出的。
+2.四年前习近平在达沃斯论坛做了主旨演讲，两天后川普也做了一场伟大的就职演说。习的演讲没有对大屠杀和武汉病毒造成的浩劫做任何道歉，而是宣称中共国会与美国在气候变化和疫情议题上合作。
 
-拜登政府要求公民重新承诺采取社交距离措施和佩戴口罩，并指出科学模型表明这些做法可以在未来几个月内挽救5万人的生命。
+3.杰克波索维奇表示，习的演讲是胜利讲话，是在给各国领导人下达命令。习反对民族国家和国家联盟，全球的大机构都遭到CCP的侵害。
 
-**新闻来源：**[https://apnews.com/article/coronavirus-pandemic-france-germany-coronavirus-vaccine-frankfurt-5eb7627c7abbda6516c18be99ffc1bf4](https://apnews.com/article/coronavirus-pandemic-france-germany-coronavirus-vaccine-frankfurt-5eb7627c7abbda6516c18be99ffc1bf4)
+4.川普连任的大好形势被CCP病毒打断了。17年习在达沃斯论坛就提出了系统的全球化计划，这就是大重置计划。CCP是推动全球化的引擎，而达沃斯就是全球化的教会。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/7e570364-672f-48cc-b5cb-51e8fb91a925-8.jpg)
+5.全球化不是社会主义，而是国家资本主义。全球化实现后全世界的平民将一无所有，与俄国农奴无异，习宣称的团结就要你放弃一切服从于他。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+6.在参议院选举的关键时刻，川普听从了糟糕的建议，没有支持凯利沃德，转而向已故参议员约翰·麦凯恩的遗孀辛蒂·麦凯恩，最终导致共和党丢失了亚利桑那州的参议员席位。
 
-+1
+7.凯利沃德已经赢得州共和党主席，她表示会摒弃共和党建制派如罗姆尼的旧做法，解决选举中存在的各类问题，带领共和党重新回到台上。
+
+2021年1月25日星期一https://rumble.com/vd8z2t-ep-679-1-year-in-review-w-jack-posobiec-kelli-ward-taylor-allred-ocean-andr.html
+![]()![](https://gnews.org/wp-content/uploads/2021/01/679.png)
+0

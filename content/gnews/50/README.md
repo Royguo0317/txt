@@ -1,28 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 津巴布韦埋葬三名死于中共病毒的高级官员
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/824573/)
+## 漫画攻击暴露了邪共的黔驴技穷
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/824742/)
 
-- 编辑：Victor Torres
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传   银河
+![]()![](https://cdn.discordapp.com/attachments/793368005073567784/804019516580954173/0001-16073670104_20210128_000608_0000.png)
+天使闫博士揭露中共病毒的两篇科学论文发表了数月，人们期待着就科学问题出现质疑和辩论，然而，数月过后没有看到对闫博士论文的专业质疑，更没有“攻擂”的挑战者。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+只能说明，闫博士的论点、论据、结论是科学的，毋庸置疑的！
 
-**西班牙2021年1月27日电/西喜社——**津巴布韦在一个仪式上埋葬了三名死于中共病毒的高级官员。
+当然，邪恶的中共不会束手就擒，会使尽浑身解数抵赖、掩盖、混淆视听，中宣部CNN通讯社早在闫博士第二篇论文发表半个月后，用了几个有深厚中共背景的“领域人士”进行了不着边的攻击【1】，就连普通的战友也能看出“CNN专家们”的不专业和牵强附会，并在第一时间给予了揭露【2】。
 
-穿着全套防护装备的护柩者将两名内阁部长和一名津巴布韦前监狱长的棺材抬上红地毯，以军礼下葬。
+当然，闫博士对这些小丑的揭露更彻底、更专业。
 
-该国外交部长斯布西索·莫约（Sibusiso Moyo）最为人熟知，他是2017年在电视上宣布对时任总统罗伯特·穆加贝发动政变的军事将领。这次政变结束了穆加贝37年的统治。
+之后很少看到有技术含量的质疑，大多是请教、问询，搞清、弄懂专业问题的学习和探讨，闫博士则是耐心、细致地给予了解答（参考闫博士的推特，以及作客各媒体的采访）。
 
-津巴布韦已经有四名内阁部长因中共病毒而丧生。
+美国务院“必须彻查中共病毒来源”的声明，更是看到了闫博士的身影，受到了闫博士的指点，声明及随附的事实说明用语之专业，措施之到位，招招都是点穴，而且都是死穴。
 
-这个拥有1500万人口的国家已经记录了32,004个确诊病例，1,103人死亡。
+在得知文贵先生已经与美国新政府取得了联系，新政府要与闫博士请教、了解病毒真相等情况下，邪共全力反扑，于是上演了“漫画攻击”的拙剧，只能说明中共已是黔驴技穷，到了拙劣得不能再拙劣的程度。
 
-**新闻来源：**[https://apnews.com/article/coronavirus-pandemic-france-germany-coronavirus-vaccine-frankfurt-5eb7627c7abbda6516c18be99ffc1bf4](https://apnews.com/article/coronavirus-pandemic-france-germany-coronavirus-vaccine-frankfurt-5eb7627c7abbda6516c18be99ffc1bf4)
+当然，我们不能掉以轻心，恶魔只有想不到的，没有做不到的！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/e2dab651-6f9f-4c93-a4d8-9c9cc3656193-1-2.jpg)
+参考链接:
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+[1] [https://www.cnn.com/2020/10/21/politics/coronavirus-lab-theory-yan-bannon-invs/index.html](https://www.cnn.com/2020/10/21/politics/coronavirus-lab-theory-yan-bannon-invs/index.html)
 
-0
+[2] https://gnews.org/zh-hans/440969/
+
++3

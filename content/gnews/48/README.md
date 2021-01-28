@@ -1,15 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年1月27日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/824641/)
+## 弹劾川普总统议案大概率又是以闹剧告终
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/824801/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-2021年1月27号：经中南坑老杂毛们多次开会……论证盘古的龙头．是无神论的共产党……在风水上．天地之间．自然力量当中，对他们最大的威胁，这些老杂毛们最后决定将盘古大观的龙头，改成鸟头。共产党我R你八辈祖宗……你的四个自信在哪儿呢，竟然被一个龙头吓得这样了……，你们自称为龙的传人、将一个龙头建筑，改成鸟头，那你们是不是鸟人了和鸟的后人呢？天灭无神论的中共！
-![]()![](https://gnews.org/wp-content/uploads/2021/01/6cb24d6efb18a25e310779b709fc11f6-5.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/866341b01dc799538d85fe68bd03c592-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/6cb24d6efb18a25e310779b709fc11f6-5.jpg)
-[【2021年1月27日】文贵先生盖特原文](https://gtv.org/getter/6011a285c3245d7c59e94391)
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/下载-21.jpg)[truthuncensored.net](https://truthuncensored.net/rand-paul-furious-says-obama-administration-may-spied-campaign/)
+以妖婆佩洛西为代表的左翼议员，大有不闹到底不收场的气势，凡有正常思维的人都认为没有必要再折腾，应该把精力放在处理美国人民正常的事务中，于是就有了议员兰德保罗（Rand Paul）的提案，直接判定“弹劾违背宪法”，只要简单多数通过，就没有必要等到2月9日对弹劾川普总统议案的表决。
 
-**喜联盟Gnews编辑部**
+虽然参议院最终的投票以55:45否决了保罗议员的提案，但要想得到2/3的弹劾川普总统票数，似乎是难上加难。
 
-+2
+《门道专家》这样作了报道【1】：
+
+周二，参议员兰德•保罗（Rand Paul）提出了一个程序问题，即弹劾公民唐纳德•川普是违反宪法的。
+
+民主党多数党领袖舒默（Chuck Schumer）随后转向谈判桌，来否决保罗的程序问题，舒默只需要简单的多数票就可以把保罗的程序问题搁置一边。
+
+参议院随后以55票对45票反对参议员兰德·保罗的动议。
+
+参议院的50个民主党人投了反对票，共和党有5个人站到了民主党一边，他们是缅因州的苏珊·柯林斯（Susan Collins）、阿拉斯加州的丽莎·默科夫斯基（Lisa Murkowski）、犹他州的米特·罗姆尼（Mitt Romney）、内布拉斯加州的本萨斯（Ben Sasse）和宾夕法尼亚州的帕特·图密（Pat Toomey）。
+
+保罗参议员在自己的推文中说：
+
+“参议院刚刚就我的宪法程序问题进行了表决。
+
+45名参议员一致认为，这场假“审判”是违宪的。
+
+这比（需要反对弹劾的1/3票数）多得多，并最终会结束这一党派弹劾过程。
+
+这个“审判”一到参议院就死定了。”【2】
+
+是啊，闹剧该收场了！
+
+参考链接：
+
+[1][https://www.thegatewaypundit.com/2021/01/breaking-senate-votes-55-45-set-aside-rand-pauls-point-order-impeachment-unconstitutional-5-republicans-vote-democrats/](https://www.thegatewaypundit.com/2021/01/breaking-senate-votes-55-45-set-aside-rand-pauls-point-order-impeachment-unconstitutional-5-republicans-vote-democrats/)
+
+[2] https://twitter.com/RandPaul/status/1354163711917903872
+
++3
