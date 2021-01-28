@@ -1,33 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 为遭迫害做好准备：国内恐怖主义法、大型科技公司和大型媒体可能把美国变成中共国
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/827086/)
+## 班农战斗室简报681 受命于天
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/827856/)
 
-根据CBN于2021年1月26日的报道，中共国家极权主义对中国人民的全方位操控现状，美国应引以为戒。报道进一步指出新一届美国政府可能会利用疫情大流行的严重问题，再次在大科技公司和大媒体的帮助下，对美国公民进行类似中国政府的控制和迫害，该报道最后呼吁美国人民警惕并做好准备。
-视频源: https://www.youtube.com/watch?v=4CXnn–F0PA (03:11-4:09)
-Transcript 正文:
+HST-01C-202101-086
 
-**Is**** CCP’s Social Credit System Happening in the US?**
+作者：身残志不坚
 
-**中共的社会信用体系将在美国发生？**
+Bannons War Room 681
 
-While the COVID-19 pandemic is a serious issue, it is also pushing an already dependent American society toward a willingness of being controlled. It has put us in a position and a mindset of fear and control, and where we can be open to being told what to do by the government. And I think that this has been a dry run, if you will, for greater control. One that covers nearly every aspect of your life, courtesy of big government, big tech, and big media. It’s already happening in China where the communist government has implemented a social credit system that forces citizens to conform to what the government wants. Those deemed to be good communists are rewarded with full access to the economy, travel, higher education, and good jobs. I think we’re going to see an informal version of that happen right here in America, and the hammer is going to come down on conservatives and traditional Christians.
+1. 一年过去了，一切似乎都变了，但一切都没变。
 
-当病毒大流行成为目前的一个严重的问题时，它同时也将已有依赖惯性的美国社会导往自愿被操控的方向。它把我们推向了恐惧和控制的心态中，于是，我们便可以无条件地接受政府对我们的指使。我认为这是一次演习，如果可以的话，是为了更好的操控。它几乎涵盖了你生活的方方面面，这要归功于大政府、大科技和大媒体。这种情况已经在中国发生了，中共政府已经实施了一种社会信用体系，迫使公民遵从政府的要求。那些被认为是优秀共产党员的人会被给予在经济、旅游、高等教育和得到好的工作机会方面的奖励。我认为这种体系的非正式版本将在美国发生，而保守派和传统基督徒将受到打击。
 
-*出处: [https://www.youtube.com/watch?v=4CXnn–F0PA](https://www.youtube.com/watch?v=4CXnn--F0PA) (03:11-4:09)*
+2，彼得纳瓦罗博士是英雄，一年前纳瓦罗发给国家安全委员会的备忘录就警告了美国人，新冠病毒可能导致50万美国人死亡以及6万亿美元的经济损失。
 
-*听写 & 翻译：【奔腾的长江】校对：【JoyJoy】字幕：【相机过热啊】编辑：【Isaiah4031】【Mark】*
+3.纳瓦罗表示，早在2006年他的书中就预测，中共国可能会制造出让数百万人死亡的全球性流行病。因此当疫情发生时他非常清楚，第一要务是禁止从中国飞往美国的人员输入，其次是对付傲慢而无所作为的福奇。如今拜登政府的政策是奥巴马时期的延续，以为对话可以解决所有问题，但结果是看到习近平在达沃斯宣告自己的胜利。
 
-*喜马拉雅玫瑰园小队出品*
+4.福奇拿着美国政府的最高薪酬，比总统的薪酬还高，是总统助手纳瓦罗的两倍。对此纳瓦罗评论道：双倍工资福奇是应得的，因为他一张嘴可以说出两套话。
 
-*以上翻译整理仅代表作者个人观点，不代表**GNEWS**或他人立场。*
+5.福奇控制的机构资助了武汉病毒实验室，并允许其进行病毒功能性研究。
 
-*敬请关注:*
-*GTV: [喜马拉雅玫瑰园中文频道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)*
-*Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)*
-*Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)*
-*Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)*
+6.拜登解决疫情方案的最大问题是，相比开放学校和企业，封锁解决不了经济问题。
 
-+1
+7.就像中共古代帝王宣称自己“受命于天”，获得上天授权统治天下一样，习近平在达沃斯的演讲就是在宣告CCP奉天承运，强调它是遵循历史规律的必然性而合法统治全球人类。打倒共产党，不仅将解救中共老百姓，还会解救全世界的人民。
+
+8.《婴儿潮》一书的作者表示，如今的社会主义思潮流行与社会代际更迭有关。婴儿潮一代正是被称为“最伟大的一代”的子女（“最伟大的一代”指二战期间（1939-1945年）步入成年的年轻一代美国人，婴儿潮指二战后随之而来的生育大潮中出生的一代）。在经历了大萧条、牺牲了一切、打赢了二战后，最伟大的一代人给予了后代最优渥的条件。而这却塑造了婴儿潮一代人“一切都唾手可得”的世界观，从而让社会思潮整体向左转。
+
+2021年1月26日星期二https://rumble.com/vda0kt-ep-681-the-mandate-of-heaven-w-jack-posobiec-john-eastman-dr.-peter-navarro.html
+![]()![](https://gnews.org/wp-content/uploads/2021/01/b2-2.png)
+0
