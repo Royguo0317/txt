@@ -1,33 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 为遭迫害做好准备：国内恐怖主义法、大型科技公司和大型媒体可能把美国变成中共国
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/827086/)
+## 乔·拜登早期举动令中共国对中美和解的希望破灭
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/827788/)
 
-根据CBN于2021年1月26日的报道，中共国家极权主义对中国人民的全方位操控现状，美国应引以为戒。报道进一步指出新一届美国政府可能会利用疫情大流行的严重问题，再次在大科技公司和大媒体的帮助下，对美国公民进行类似中国政府的控制和迫害，该报道最后呼吁美国人民警惕并做好准备。
-视频源: https://www.youtube.com/watch?v=4CXnn–F0PA (03:11-4:09)
-Transcript 正文:
+翻译： 康州盘古农场 –   一花一世界
+校对：康州盘古农场 – 烟波浩渺
+审核：康州盘古农场-Truemanman
+![]()![](https://gnews.org/wp-content/uploads/2021/01/图片2-40.png)
+美国总统拜登早期的外交政策决定似乎令北京重建双边关系的期望破灭，中共国官员说，双方双边关系正处于40多年前正式建交以来最紧张的状态。
+在拜登就职仅一周后，中共国不得不向美国对其恐吓邻国的指控以及贸易和科技方面的不当行为进行辩护。
 
-**Is**** CCP’s Social Credit System Happening in the US?**
+随著2020年大选后拜登获胜的消息日益确定，中共国官员基本上保持沉默，直到习近平在11月底发来贺电。然而在此之前，中共国的国家媒体已经开始示好，并相信新总统及其内阁将把中美关系恢复到唐纳德·川普任期以来从未有过的水平。
+中共党报《环球时报》是对提名为国务卿的安东尼·布林肯（Antony Blinken）和国家安全顾问的杰克·沙利文（Jake Sullivan）作出积极反应的中共国媒体之一。
+这家拥护中共国政府一些最鹰派观点的国有小报将这两人形容为奥巴马时代的 “老面孔”。并称，布林肯对北京的态度将更加 “理性和务实”–在当时是川普和迈克·蓬佩奥（Mike Pompeo）一个可喜变化。
+上个月，该报还对劳埃德·奥斯汀（Lloyd Austin）被提名到五角大楼任职表示欢迎，称他将专注于中东问题，从而 “缓解与中共国的紧张关系”。
+拜登本人被描述为一位经验丰富的领导人，他了解北京的红线，不太可能在核心利益上挑战中共国，特别是新疆、香港和台湾等所谓的国内事务。
+但当布林肯在确认听证会上表示，川普对中共国采取 “更强硬的态度 “是正确的，他认为中共国对美国利益构成了 “最大的挑战 “时，（中共国幻想）和解的希望落空了。
+这位新任国务院负责人还同意上届政府将（中共国）对新疆维吾尔族穆斯林的人权侵犯行为定性为 “种族灭绝”，然后警告说，对民主台湾使用任何武力都是 “严重的错误”。
+奥斯汀（Austin）和财政部长耶伦（Janet Yellen）在参议院听证会上也表达了对中共国的类似看法，后者称北京在新疆的政策 “令人发指”，并称中共国是 “美国最重要的战略竞争对手”。
 
-**中共的社会信用体系将在美国发生？**
+当拜登政府呼吁跨党派谴责北京制裁包括蓬佩奥在内的28名川普前官员时，美中关系的新篇章开始变得摇摇欲坠。
+台湾驻华盛顿的执行大使萧必谦（Hsiao Bi-khim）应邀出席就职典礼，几天后，美国海军 “西奥多·罗斯福 “号（Theodore Roosevelt）航母被部署到南海争议海域。
+中共国的回应是，周六和周日在台湾附近共飞行了28架战机。北京的这一举动迅速引起了美国国务院的批评，美国国务院敦促中共国停止对台北的军事压力。
+习近平主席在达沃斯讲话中含蓄地向拜登传达信息达到了高潮。这一系列戏剧性的事件最终导致《环球时报》周二做出了鲜明承认。
+在一篇题为 “美国政府对中共国的态度难以改变 “的未署名专栏文章中，该报借鉴了白宫新闻秘书普萨基詹·普萨基（Jen Psaki）最近的评论，即华盛顿正在与北京 “进行一场严重的竞争”。
+她描述了中共国的 “经济虐待”，并称中共国现在 “正在挑战我们的安全、繁荣和价值观”。她补充说，中共国需要为其不公平和非法的做法负责。
+《环球时报》文章称：“普萨基的表态表明，拜登政府对中共国的看法和定性与川普政府几乎一模一样。”
+曾经对两个超级大国关系回暖持乐观态度的该报称，中国人应该做好准备，”面对中美关系如漫长冬天般的挑战”。
+党报建议，中共国应该等待时机，理由是中共国能更好地处理COVID-19加上不断增长的经济–根据政府数据，中共国是唯一一个在2020年记录GDP增长的主要经济体。
+文章将中共国希望改善双边关系比作 “示好”，坚称中共国不需要拜登政府。
+“如果华盛顿不急于做出改变，中共国又何必呢？”署名文章称，拜登失败于不调整美国对中共国的 “战略思维”，就像 “把旧酒装进了新瓶”。
+周二，中共国外交部表示，美国新政府需要从川普政府的对华政策中 “吸取教训”，包括将中共国视为 “威胁 “的错误观点。
+中共国的分析人士认为，拜登总统将延续川普在印太地区遏制中共国影响力的战略，只是现在有更多充满信心的地区盟友。
 
-While the COVID-19 pandemic is a serious issue, it is also pushing an already dependent American society toward a willingness of being controlled. It has put us in a position and a mindset of fear and control, and where we can be open to being told what to do by the government. And I think that this has been a dry run, if you will, for greater control. One that covers nearly every aspect of your life, courtesy of big government, big tech, and big media. It’s already happening in China where the communist government has implemented a social credit system that forces citizens to conform to what the government wants. Those deemed to be good communists are rewarded with full access to the economy, travel, higher education, and good jobs. I think we’re going to see an informal version of that happen right here in America, and the hammer is going to come down on conservatives and traditional Christians.
-
-当病毒大流行成为目前的一个严重的问题时，它同时也将已有依赖惯性的美国社会导往自愿被操控的方向。它把我们推向了恐惧和控制的心态中，于是，我们便可以无条件地接受政府对我们的指使。我认为这是一次演习，如果可以的话，是为了更好的操控。它几乎涵盖了你生活的方方面面，这要归功于大政府、大科技和大媒体。这种情况已经在中国发生了，中共政府已经实施了一种社会信用体系，迫使公民遵从政府的要求。那些被认为是优秀共产党员的人会被给予在经济、旅游、高等教育和得到好的工作机会方面的奖励。我认为这种体系的非正式版本将在美国发生，而保守派和传统基督徒将受到打击。
-
-*出处: [https://www.youtube.com/watch?v=4CXnn–F0PA](https://www.youtube.com/watch?v=4CXnn--F0PA) (03:11-4:09)*
-
-*听写 & 翻译：【奔腾的长江】校对：【JoyJoy】字幕：【相机过热啊】编辑：【Isaiah4031】【Mark】*
-
-*喜马拉雅玫瑰园小队出品*
-
-*以上翻译整理仅代表作者个人观点，不代表**GNEWS**或他人立场。*
-
-*敬请关注:*
-*GTV: [喜马拉雅玫瑰园中文频道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)*
-*Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)*
-*Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)*
-*Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)*
+原文作者：蒋峰 (John Feng)
+发布时间：2021年1月27日
+原文链接： [https://www.msn.com/en-us/news/world/joe-bidens-early-moves-dash-beijings-hopes-of-us-china-rapprochement/ar-BB1d8Ukt](https://www.msn.com/en-us/news/world/joe-bidens-early-moves-dash-beijings-hopes-of-us-china-rapprochement/ar-BB1d8Ukt)
 
 +1

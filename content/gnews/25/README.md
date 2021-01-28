@@ -1,37 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒=CCP Virus=超限生物武器
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/826941/)
+## 为遭迫害做好准备：国内恐怖主义法、大型科技公司和大型媒体可能把美国变成中共国
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/827086/)
 
-#### 作者：子喜太一
-审核：比卡丘
-校对：文锦
-![Fig01]()![Fig01](https://gnews.org/wp-content/uploads/2021/01/01-9.jpg)
-![Fig02]()![Fig02](https://gnews.org/wp-content/uploads/2021/01/02-8.jpg)
+根据CBN于2021年1月26日的报道，中共国家极权主义对中国人民的全方位操控现状，美国应引以为戒。报道进一步指出新一届美国政府可能会利用疫情大流行的严重问题，再次在大科技公司和大媒体的帮助下，对美国公民进行类似中国政府的控制和迫害，该报道最后呼吁美国人民警惕并做好准备。
+视频源: https://www.youtube.com/watch?v=4CXnn–F0PA (03:11-4:09)
+Transcript 正文:
 
-![Fig03]()![Fig03](https://gnews.org/wp-content/uploads/2021/01/03-1.png)
+**Is**** CCP’s Social Credit System Happening in the US?**
 
-中共病毒疫情肆虐全球一年有余，已过亿人感染病毒，几百万人死亡，令人触目惊心！
+**中共的社会信用体系将在美国发生？**
 
-西方民主国家的百姓被中共操纵的主流媒体洗脑，天真地认为这是继SARS后的又一次“源于自然“的疫情而已，唯一能做的就是向神祷告、忏悔，接受神的惩罚。
+While the COVID-19 pandemic is a serious issue, it is also pushing an already dependent American society toward a willingness of being controlled. It has put us in a position and a mindset of fear and control, and where we can be open to being told what to do by the government. And I think that this has been a dry run, if you will, for greater control. One that covers nearly every aspect of your life, courtesy of big government, big tech, and big media. It’s already happening in China where the communist government has implemented a social credit system that forces citizens to conform to what the government wants. Those deemed to be good communists are rewarded with full access to the economy, travel, higher education, and good jobs. I think we’re going to see an informal version of that happen right here in America, and the hammer is going to come down on conservatives and traditional Christians.
 
-因此，当路德社自2020年1月19日爆出这实际是来自中共军方、刻意制造的超限生物武器后，通过一年的推进和努力，川普总统迟迟不宣布该病毒就是来自中共的袭击，也许多数美国人还是无法接受这个残酷事实，不敢相信中共会比撒旦还邪恶、还丑陋，竟能对全人类进行无差别的杀戮。
+当病毒大流行成为目前的一个严重的问题时，它同时也将已有依赖惯性的美国社会导往自愿被操控的方向。它把我们推向了恐惧和控制的心态中，于是，我们便可以无条件地接受政府对我们的指使。我认为这是一次演习，如果可以的话，是为了更好的操控。它几乎涵盖了你生活的方方面面，这要归功于大政府、大科技和大媒体。这种情况已经在中国发生了，中共政府已经实施了一种社会信用体系，迫使公民遵从政府的要求。那些被认为是优秀共产党员的人会被给予在经济、旅游、高等教育和得到好的工作机会方面的奖励。我认为这种体系的非正式版本将在美国发生，而保守派和传统基督徒将受到打击。
 
-尽管迫于中共的淫威，很多人不敢公开支持闫丽梦博士，但闫博士的两份重量级报告，经过全球无数顶级病毒专家的审视及时间的检验，已经证明是无懈可击的。病毒就是中共制造的超限生物武器，其目的就是要重启世界新秩序，掌握话语权，当一个给全世界把脉的老中医。这就是中共的狼子野心，想让全世界都进入百姓被奴役的社会主义！
+*出处: [https://www.youtube.com/watch?v=4CXnn–F0PA](https://www.youtube.com/watch?v=4CXnn--F0PA) (03:11-4:09)*
 
-中共的病毒计划让川普没有连任总统，但它能继续成功下去吗？直到统治全世界？如今有中共掘墓人文贵先生发起的爆料革命，全球正义力量正在逐渐被唤醒，只是还需要一点时间。同时，世界各国都在因病毒而死人、经济衰退及造成其他次生灾害，谁来负责呢？一旦中共制造超限生物武器的事实被多数人接受时，中共将会被消灭的干干净净，这一天就在不远的将来！
+*听写 & 翻译：【奔腾的长江】校对：【JoyJoy】字幕：【相机过热啊】编辑：【Isaiah4031】【Mark】*
 
-共产党你完了！
+*喜马拉雅玫瑰园小队出品*
 
-相关链接：
-闫丽梦博士
-第一篇论文：
-SARS-CoV-2基因组的不寻常特征表明，该基因组是经过复杂的实验室改造而非自然进化，并确定了其可能的合成途径[https://zenodo.org/record/4028830#.YBG3cOhKg2y](https://zenodo.org/record/4028830#.YBG3cOhKg2y)
-第二篇论文：
-SARS-CoV-2是一种超限战生物武器：通过揭露大规模的、有组织的科学欺诈行为，揭示了真相
-[https://zenodo.org/record/4073131#.YBFI7egzat8](https://zenodo.org/record/4073131#.YBFI7egzat8)
+*以上翻译整理仅代表作者个人观点，不代表**GNEWS**或他人立场。*
 
+*敬请关注:*
+*GTV: [喜马拉雅玫瑰园中文频道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)*
+*Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)*
+*Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)*
+*Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)*
 
-
-0
++1
