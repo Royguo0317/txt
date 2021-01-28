@@ -1,37 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】拜登和菅义伟凌晨通话重申《日美安保条约》适用于尖阁诸岛（钓鱼岛）
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/827180/)
+## 为遭迫害做好准备：国内恐怖主义法、大型科技公司和大型媒体可能把美国变成中共国
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/827086/)
 
-作者：纽约香草山写作组   Wilson
+根据CBN于2021年1月26日的报道，中共国家极权主义对中国人民的全方位操控现状，美国应引以为戒。报道进一步指出新一届美国政府可能会利用疫情大流行的严重问题，再次在大科技公司和大媒体的帮助下，对美国公民进行类似中国政府的控制和迫害，该报道最后呼吁美国人民警惕并做好准备。
+视频源: https://www.youtube.com/watch?v=4CXnn–F0PA (03:11-4:09)
+Transcript 正文:
 
+**Is**** CCP’s Social Credit System Happening in the US?**
 
+**中共的社会信用体系将在美国发生？**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+While the COVID-19 pandemic is a serious issue, it is also pushing an already dependent American society toward a willingness of being controlled. It has put us in a position and a mindset of fear and control, and where we can be open to being told what to do by the government. And I think that this has been a dry run, if you will, for greater control. One that covers nearly every aspect of your life, courtesy of big government, big tech, and big media. It’s already happening in China where the communist government has implemented a social credit system that forces citizens to conform to what the government wants. Those deemed to be good communists are rewarded with full access to the economy, travel, higher education, and good jobs. I think we’re going to see an informal version of that happen right here in America, and the hammer is going to come down on conservatives and traditional Christians.
 
+当病毒大流行成为目前的一个严重的问题时，它同时也将已有依赖惯性的美国社会导往自愿被操控的方向。它把我们推向了恐惧和控制的心态中，于是，我们便可以无条件地接受政府对我们的指使。我认为这是一次演习，如果可以的话，是为了更好的操控。它几乎涵盖了你生活的方方面面，这要归功于大政府、大科技和大媒体。这种情况已经在中国发生了，中共政府已经实施了一种社会信用体系，迫使公民遵从政府的要求。那些被认为是优秀共产党员的人会被给予在经济、旅游、高等教育和得到好的工作机会方面的奖励。我认为这种体系的非正式版本将在美国发生，而保守派和传统基督徒将受到打击。
 
+*出处: [https://www.youtube.com/watch?v=4CXnn–F0PA](https://www.youtube.com/watch?v=4CXnn--F0PA) (03:11-4:09)*
 
-[共同社](https://china.kyodonews.net/news/2021/01/458955bb87e4--.html)1月28日凌晨急电，日本首相菅义伟28日凌晨与美国总统拜登举行首次电话会谈。双方确认将强化日美同盟，为实现“自由开放的印度太平洋”开展密切合作。拜登重申，尖阁诸岛（中国称钓鱼岛）是规定美国防卫义务的《日美安全保障条约》第五条的适用对象。
+*听写 & 翻译：【奔腾的长江】校对：【JoyJoy】字幕：【相机过热啊】编辑：【Isaiah4031】【Mark】*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/36.jpg)
+*喜马拉雅玫瑰园小队出品*
 
-中（共）国于1月22日出台新的《海警法》，肯定有多种考量及应对预案，其中就有试探“老朋友”拜登如何反应的算计。拜登今早的闪亮登场和强硬表态，扇了中共的耳光，这应该出乎中共意料之外。
+*以上翻译整理仅代表作者个人观点，不代表**GNEWS**或他人立场。*
 
-编辑/校对/发稿：Irene木木
+*敬请关注:*
+*GTV: [喜马拉雅玫瑰园中文频道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)*
+*Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)*
+*Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)*
+*Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)*
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-0
++1

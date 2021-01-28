@@ -1,22 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美新任国防部长与印度国防部长通话
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/824655/)
+## 漫画攻击暴露了邪共的黔驴技穷
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/824742/)
 
-- 编辑：Victor Torres
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传   银河
+![]()![](https://cdn.discordapp.com/attachments/793368005073567784/804019516580954173/0001-16073670104_20210128_000608_0000.png)
+天使闫博士揭露中共病毒的两篇科学论文发表了数月，人们期待着就科学问题出现质疑和辩论，然而，数月过后没有看到对闫博士论文的专业质疑，更没有“攻擂”的挑战者。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+只能说明，闫博士的论点、论据、结论是科学的，毋庸置疑的！
 
-**西班牙2021年1月27日电/西喜社——**美国国防部长劳埃德·奥斯汀三世今天与印度国防部长拉杰纳特·辛格通话。
+当然，邪恶的中共不会束手就擒，会使尽浑身解数抵赖、掩盖、混淆视听，中宣部CNN通讯社早在闫博士第二篇论文发表半个月后，用了几个有深厚中共背景的“领域人士”进行了不着边的攻击【1】，就连普通的战友也能看出“CNN专家们”的不专业和牵强附会，并在第一时间给予了揭露【2】。
 
-在通话中，奥斯汀部长强调了国防部对美印主要防务伙伴关系的承诺，认为它是建立在共同的价值观和确保印太地区保持自由和开放的共同利益之上的。
+当然，闫博士对这些小丑的揭露更彻底、更专业。
 
-奥斯汀部长指出，美印防务关系取得了巨大的进步，他承诺将与印度国防部长合作，以保持进展。
+之后很少看到有技术含量的质疑，大多是请教、问询，搞清、弄懂专业问题的学习和探讨，闫博士则是耐心、细致地给予了解答（参考闫博士的推特，以及作客各媒体的采访）。
 
-**新闻来源：**[https://www.defense.gov/Newsroom/Releases/Release/Article/2484283/readout-of-secretary-of-defense-lloyd-j-austin-iiis-phone-call-with-indian-mini/](https://www.defense.gov/Newsroom/Releases/Release/Article/2484283/readout-of-secretary-of-defense-lloyd-j-austin-iiis-phone-call-with-indian-mini/)
+美国务院“必须彻查中共病毒来源”的声明，更是看到了闫博士的身影，受到了闫博士的指点，声明及随附的事实说明用语之专业，措施之到位，招招都是点穴，而且都是死穴。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+在得知文贵先生已经与美国新政府取得了联系，新政府要与闫博士请教、了解病毒真相等情况下，邪共全力反扑，于是上演了“漫画攻击”的拙剧，只能说明中共已是黔驴技穷，到了拙劣得不能再拙劣的程度。
 
-0
+当然，我们不能掉以轻心，恶魔只有想不到的，没有做不到的！
+
+参考链接:
+
+[1] [https://www.cnn.com/2020/10/21/politics/coronavirus-lab-theory-yan-bannon-invs/index.html](https://www.cnn.com/2020/10/21/politics/coronavirus-lab-theory-yan-bannon-invs/index.html)
+
+[2] https://gnews.org/zh-hans/440969/
+
++3
