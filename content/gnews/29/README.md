@@ -1,34 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我帮你，但我不欠你！
-` 喜马拉雅 日本京都富士会` [轉載自GNews](https://gnews.org/zh-hans/827352/)
+## 为遭迫害做好准备：国内恐怖主义法、大型科技公司和大型媒体可能把美国变成中共国
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/827086/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/image0-320.jpg)（图片来自网路）
-原创作者：迷途狼
+根据CBN于2021年1月26日的报道，中共国家极权主义对中国人民的全方位操控现状，美国应引以为戒。报道进一步指出新一届美国政府可能会利用疫情大流行的严重问题，再次在大科技公司和大媒体的帮助下，对美国公民进行类似中国政府的控制和迫害，该报道最后呼吁美国人民警惕并做好准备。
+视频源: https://www.youtube.com/watch?v=4CXnn–F0PA (03:11-4:09)
+Transcript 正文:
 
-审核校对：待命（文晓）
+**Is**** CCP’s Social Credit System Happening in the US?**
 
-编辑排版：待命（文晓）
+**中共的社会信用体系将在美国发生？**
 
-朋友跟我说：这个新平台上给我打赏最多的不是我的粉丝，是一个连关注都不关注我的人。
+While the COVID-19 pandemic is a serious issue, it is also pushing an already dependent American society toward a willingness of being controlled. It has put us in a position and a mindset of fear and control, and where we can be open to being told what to do by the government. And I think that this has been a dry run, if you will, for greater control. One that covers nearly every aspect of your life, courtesy of big government, big tech, and big media. It’s already happening in China where the communist government has implemented a social credit system that forces citizens to conform to what the government wants. Those deemed to be good communists are rewarded with full access to the economy, travel, higher education, and good jobs. I think we’re going to see an informal version of that happen right here in America, and the hammer is going to come down on conservatives and traditional Christians.
 
-后来查了下，发现这个人几乎在每个直播上都打赏，自我介绍上只有，我不欠你的一行字。于是跟朋友说：这个人很有可能是这平台的投资者，为了让你们留下来用这个平台才这么做的。所以，他不欠你啥。
+当病毒大流行成为目前的一个严重的问题时，它同时也将已有依赖惯性的美国社会导往自愿被操控的方向。它把我们推向了恐惧和控制的心态中，于是，我们便可以无条件地接受政府对我们的指使。我认为这是一次演习，如果可以的话，是为了更好的操控。它几乎涵盖了你生活的方方面面，这要归功于大政府、大科技和大媒体。这种情况已经在中国发生了，中共政府已经实施了一种社会信用体系，迫使公民遵从政府的要求。那些被认为是优秀共产党员的人会被给予在经济、旅游、高等教育和得到好的工作机会方面的奖励。我认为这种体系的非正式版本将在美国发生，而保守派和传统基督徒将受到打击。
 
-朋友回我：这是什么资本主义思考方式。
+*出处: [https://www.youtube.com/watch?v=4CXnn–F0PA](https://www.youtube.com/watch?v=4CXnn--F0PA) (03:11-4:09)*
 
-回了他：俺是知道的，以前在国内送餐时和送餐软件的地区代理谈过。那代理说，这优惠你们尽管用，我不欠你们的，都是美国投资人的钱。
+*听写 & 翻译：【奔腾的长江】校对：【JoyJoy】字幕：【相机过热啊】编辑：【Isaiah4031】【Mark】*
 
-想到现在跟随着爆料革命。当郭叔或者路德说的会发生的事情没有发生，某些利益没有拿到，有些人觉得这是郭叔和路德欠他们的，这逻辑就很奇怪。
+*喜马拉雅玫瑰园小队出品*
 
-欠他们的明明是共产党，战友帮他们做了他们不敢做的事情，只是没有做到他们要的那样，就被指责。做的事情越多，错事越多。如果郭叔或者路德啥都没做，过好自己的小日子，他们是不是连了解真相的机会都没有。
+*以上翻译整理仅代表作者个人观点，不代表**GNEWS**或他人立场。*
 
-战友们不欠别人什么，相反战友里面又有多少人抛家舍业，去帮别人。好心被当成了义务，好坏不分，这真的可怕。
+*敬请关注:*
+*GTV: [喜马拉雅玫瑰园中文频道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)*
+*Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)*
+*Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)*
+*Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)*
 
-救急不救穷，帮忙不是我们的义务。我帮你，但我不欠你。
-
-
-
-文章仅代表作者个人观点
-
-+2
++1

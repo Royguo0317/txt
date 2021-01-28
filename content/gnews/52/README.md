@@ -1,20 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 莫里森喊话中共：重启对话必须无任何前提条件
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/825409/)
+## 美国预计未来四周内将有9万人死于中共病毒
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/825749/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-139-30.jpg)图片来源：https://www.theaustralian.com.au/
-根据《PerthNow》1月25日报道，澳大利亚总理斯科特·莫里森（Scott Morrison）周一在接受《澳大利亚人报》（Australian Australian）采访时表示，澳大利亚永远保持友好开放，他愿意与中共国重启对话，但中共不可以预设任何前提条件。同时他也警告说，中共国所期望望的已与澳大利亚的主权利益越来越不一致。
+- 编辑：Victor Torres
 
-有报道称，自去年在澳大利亚政府要求对中共病毒的起源进行调查后，两国外交关系迅速恶化，但莫里森对此予以否认。他认为，两国关系走向冰点并非一日之寒，实际上由于多年来各种因素所导致，不是某一时间某一事件而突然诱发的。中共国对澳大利亚的外交政策和投资法规多有埋怨，同时更对澳将华为5G排除在其网络建设外而不满。而莫里森政府曾对中共国侵犯人权行为进行了公开谴责，这使得中共再添怨气。最近几个月，中共国除了对采取限制进口澳大利亚产品的报复措施外，也列出了一份抱怨清单。
 
-澳大利亚外交大臣玛丽斯·佩恩（Marise Payne）表示，美国乔·拜登（Joe Biden）政府上台后， 会更密切关注澳美与中共国的关系。佩恩在《澳大利亚人报》发表了专栏文章，将美国描述为维护地区安全和团结各国必不可少的伙伴，特别是当一个国家企图凌驾于法规之上胡作非为时。她认为，从长期来看，澳大利亚将受益于由美国主导的多国网络体系，该体系能够秉承长期一贯的战略智慧，清楚表明在一个基于规则的体系，甚至是考虑到崛起大国利益而不断演变的体系下，什么才是合法行为。佩恩表示，澳大利亚会一直支持遵守国际规范和准则，促进提高透明度，反对如经济胁迫、侵犯人权和使用虚假信息等恶劣行为。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-[原文连结](https://www.perthnow.com.au/politics/federal-politics/scott-morrison-open-to-talks-with-china-if-no-preconditions-ng-b881777801z.amp)
+**西班牙2021年1月28日电/西喜社——**拜登政府预计，未来四周内将有多达9万名美国人死于中共病毒。
 
-翻译：明澈
+这一警告是在周三政府进行首次关于中共病毒大流行的电视科学简报时发出的。
 
-校对：沙拉猫
+拜登政府要求公民重新承诺采取社交距离措施和佩戴口罩，并指出科学模型表明这些做法可以在未来几个月内挽救5万人的生命。
 
-0
+**新闻来源：**[https://apnews.com/article/coronavirus-pandemic-france-germany-coronavirus-vaccine-frankfurt-5eb7627c7abbda6516c18be99ffc1bf4](https://apnews.com/article/coronavirus-pandemic-france-germany-coronavirus-vaccine-frankfurt-5eb7627c7abbda6516c18be99ffc1bf4)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/7e570364-672f-48cc-b5cb-51e8fb91a925-8.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+
++1

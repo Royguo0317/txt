@@ -1,26 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国防疫封锁将至少持续到3月8日
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/825797/)
+## 班农战斗室简报679 战斗室大疫情开播一周年，习在达沃斯的胜利演说
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/826243/)
 
-- 编辑：Victor Torres
+HST-01C-202101-083
 
+作者：身残志不坚
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+Bannons War Room 679
 
-**西班牙2021年1月28日电/西喜社——**英国首相鲍里斯·约翰逊（Boris Johnson）表示，英国的中共病毒封锁将至少持续到3月8日。
+1.一年前我们预测了病毒的大流行以及随之引发的经济危机、金融危机直至地缘政治危机。现在一年过去了，蔓延的疫情和总统弹劾却依然是主题（川普第一次弹劾案是在2019年末发起的）。
 
-约翰逊在向立法者发表的一份声明中，还确认了对来自被认为是高风险国家的旅行者抵达英国的新限制。他说，英国仍然处于 “危险的境地”，有超过3.7万名中共病毒患者住院，几乎是4月份上一个高峰期的两倍。
+2.四年前习近平在达沃斯论坛做了主旨演讲，两天后川普也做了一场伟大的就职演说。习的演讲没有对大屠杀和武汉病毒造成的浩劫做任何道歉，而是宣称中共国会与美国在气候变化和疫情议题上合作。
 
-约翰逊表示，虽然让学生们在2月中旬放假后重返教室的希望破灭，但3月8日的愿望是基于疫苗接种方面的进展。
+3.杰克波索维奇表示，习的演讲是胜利讲话，是在给各国领导人下达命令。习反对民族国家和国家联盟，全球的大机构都遭到CCP的侵害。
 
-周二，英国成为第五个记录超过10万例中共病毒相关死亡的国家。
+4.川普连任的大好形势被CCP病毒打断了。17年习在达沃斯论坛就提出了系统的全球化计划，这就是大重置计划。CCP是推动全球化的引擎，而达沃斯就是全球化的教会。
 
-**新闻来源：**[https://apnews.com/article/coronavirus-pandemic-france-germany-coronavirus-vaccine-frankfurt-5eb7627c7abbda6516c18be99ffc1bf4](https://apnews.com/article/coronavirus-pandemic-france-germany-coronavirus-vaccine-frankfurt-5eb7627c7abbda6516c18be99ffc1bf4)
+5.全球化不是社会主义，而是国家资本主义。全球化实现后全世界的平民将一无所有，与俄国农奴无异，习宣称的团结就要你放弃一切服从于他。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/73755970-8e55-436e-b2d7-3a2767339007-71.jpg)
+6.在参议院选举的关键时刻，川普听从了糟糕的建议，没有支持凯利沃德，转而向已故参议员约翰·麦凯恩的遗孀辛蒂·麦凯恩，最终导致共和党丢失了亚利桑那州的参议员席位。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+7.凯利沃德已经赢得州共和党主席，她表示会摒弃共和党建制派如罗姆尼的旧做法，解决选举中存在的各类问题，带领共和党重新回到台上。
 
+2021年1月25日星期一https://rumble.com/vd8z2t-ep-679-1-year-in-review-w-jack-posobiec-kelli-ward-taylor-allred-ocean-andr.html
+![]()![](https://gnews.org/wp-content/uploads/2021/01/679.png)
 0
