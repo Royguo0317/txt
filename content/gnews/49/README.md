@@ -1,33 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 为遭迫害做好准备：国内恐怖主义法、大型科技公司和大型媒体可能把美国变成中共国
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/827086/)
+## 《爆料革命发起人—郭文贵视频精品荟萃》第九集
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/826812/)
 
-根据CBN于2021年1月26日的报道，中共国家极权主义对中国人民的全方位操控现状，美国应引以为戒。报道进一步指出新一届美国政府可能会利用疫情大流行的严重问题，再次在大科技公司和大媒体的帮助下，对美国公民进行类似中国政府的控制和迫害，该报道最后呼吁美国人民警惕并做好准备。
-视频源: https://www.youtube.com/watch?v=4CXnn–F0PA (03:11-4:09)
-Transcript 正文:
+撰稿：澳喜Cindy
 
-**Is**** CCP’s Social Credit System Happening in the US?**
+审核：jim大叔 编辑：MG1
+![]()![](https://gnews.org/wp-content/uploads/2021/01/281-5.jpg)图片来自网络
+美国总统大选刚结束，习近平就连续几天派大批战斗机绕台挑衅。郭文贵先生基于对习近平的多年的了解及对新一届美国政府的认识告诉大家：CCP为什么要对台湾开战？开战的后果怎样？拜登政府会怎样应对？我们新中国联邦人如何在这场可能到来的战争中让CCP的邪恶面目大白于天下，像2019年的香港运动时那样。唤醒更多的国内百姓及世界人民，共同埋葬这个恶魔CCP。
 
-**中共的社会信用体系将在美国发生？**
+- 习近平2012年上台就立志要实现他的称霸世界的梦想。首先实现的就是双龙计划：拿下香港和台湾.实现亚洲扩张。
 
-While the COVID-19 pandemic is a serious issue, it is also pushing an already dependent American society toward a willingness of being controlled. It has put us in a position and a mindset of fear and control, and where we can be open to being told what to do by the government. And I think that this has been a dry run, if you will, for greater control. One that covers nearly every aspect of your life, courtesy of big government, big tech, and big media. It’s already happening in China where the communist government has implemented a social credit system that forces citizens to conform to what the government wants. Those deemed to be good communists are rewarded with full access to the economy, travel, higher education, and good jobs. I think we’re going to see an informal version of that happen right here in America, and the hammer is going to come down on conservatives and traditional Christians.
 
-当病毒大流行成为目前的一个严重的问题时，它同时也将已有依赖惯性的美国社会导往自愿被操控的方向。它把我们推向了恐惧和控制的心态中，于是，我们便可以无条件地接受政府对我们的指使。我认为这是一次演习，如果可以的话，是为了更好的操控。它几乎涵盖了你生活的方方面面，这要归功于大政府、大科技和大媒体。这种情况已经在中国发生了，中共政府已经实施了一种社会信用体系，迫使公民遵从政府的要求。那些被认为是优秀共产党员的人会被给予在经济、旅游、高等教育和得到好的工作机会方面的奖励。我认为这种体系的非正式版本将在美国发生，而保守派和传统基督徒将受到打击。
+2019年的香港人民不屈不挠的精神使习近平的拿下香港的野心没有顺利完成而是带来了很多麻烦，因此在世界范围内产生了巨大的舆论压力。同时美国川普总统政府也给习近平带来了巨大的经济压力。从而导致了中共党内的几股力量的失衡。更给习近平下决心以打台湾来缓解诸多的矛盾。
 
-*出处: [https://www.youtube.com/watch?v=4CXnn–F0PA](https://www.youtube.com/watch?v=4CXnn--F0PA) (03:11-4:09)*
+- 台湾多少年来一直处于被CCP威胁之中。两党很多人也已经被CCP蓝金黄拿下。媒体、商界也不例外。他们很多都抱着侥幸心理觉得共产党不敢打，我们跟美国好，美国卖给我们很多尖端的武器。甚至还有的人想跟CCP勾兑。这些更让习近平笃定能成功的关键。
+- 新上任的拜登政府在可能到来的这场战争中不太可能看着习近平的狂轰滥炸把台湾砸烂而无动于衷，但拉偏架还是有可能的。比如打一下海南、上海、青岛、福建等有重要的军事设施。而成全了习近平的拿下台湾的美梦。那么最受害者当然是两千多万的台湾老百姓和部分中国地区的老百姓。
+- 作为新中国联邦人，在这场可能到来的危机时刻，尽最大能力帮助战友。尽努力让全世界爱好和平的人们声援台湾人民。谴责邪恶的行动.通过此事唤醒国内百姓认清CCP的邪恶面目。只有全球正义的人们一起努力才有力量把这个恶魔怪兽灭掉。
 
-*听写 & 翻译：【奔腾的长江】校对：【JoyJoy】字幕：【相机过热啊】编辑：【Isaiah4031】【Mark】*
 
-*喜马拉雅玫瑰园小队出品*
+（本文纯属个人观点）
 
-*以上翻译整理仅代表作者个人观点，不代表**GNEWS**或他人立场。*
 
-*敬请关注:*
-*GTV: [喜马拉雅玫瑰园中文频道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)*
-*Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)*
-*Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)*
-*Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)*
 
-+1
+0:00-15:00
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_5335-4.jpg)
+0

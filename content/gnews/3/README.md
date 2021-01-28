@@ -1,44 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/01/27 英喜时事速递
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/832775/)
+## 王者归来，川普成立「前总统办公室」
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/833140/)
 
-收集：Alicia，Cathy，Near，文大石，CharlesS | 制作：Alicia
-*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/marie-bellando-mitjans-b8MpFt6hctY-unsplash-1.jpg)
-▶️**中国新闻网：已接种新冠疫苗者仍需遵循核酸检测要求**
-![]()![](https://n.sinaimg.cn/sinakd20210127ac/233/w951h882/20210127/f98b-kicwvzr0305869.jpg)📍 评论：一会对假疫苗无比自信，实际操作还是得按照无效来对待。
-▶️**环球网：国家卫健委强烈谴责！**
-![国家卫健委报道截图]()![国家卫健委报道截图](https://n.sinaimg.cn/sinakd2021127s/34/w1063h571/20210127/db2d-kicwvzr0695354.png)📍 评论：中共国卫健委对涉医暴力犯罪发表谴责。与近日某法官被杀案一样，中共国的机构除了会谴责暴力行为什么都不会。根源是什么？中共国居民的医疗保障如何？为何暴力事件频发？中共从来没有真正为人民考虑，它的能力也是极端低下
-▶️**楚天都市报：宜昌一民警6年助百多个失散家庭团圆，每年自费3万元帮人寻亲**
-![宜昌一民警6年助百多個失散家庭團圓，每年自費3萬元幫人尋親]()![宜昌一民警6年助百多個失散家庭團圓，每年自費3萬元幫人尋親](https://twgreatdaily.com/images/elastic/msC/msCiQ3cBuNNrjOWzBvU9.jpg)📍 评论：假设报道为真，帮助每一个失散家庭团圆，需要该民警平均自掏腰包1800RMB、20余天。随便对比一下，如大撒币600亿美元等等，你就能体会中共“为人民服务”的真谛——谎言。
-▶️**网易：支付宝、京东、滴滴等出手 互联网存款宣告”死亡”**
-![](https://nimg.ws.126.net/?url=http%3A%2F%2Fcms-bucket.ws.126.net%2F2021%2F0127%2Fa5b09160j00qnkesg002gc000mv00d7c.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)📍 评论：支付宝、京东金融、滴滴金融、天星金融等互联网平台已于25日晚关闭银行存款产品的老用户购买入口
-▶️**网易：又一外企撤离深圳?实探:搬走部分产线 未整体撤离**
-![](https://nimg.ws.126.net/?url=http%3A%2F%2Fspider.ws.126.net%2Fspecial%2Fc1196b0712955fcd3304deddf7d8ef2a.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)📍 评论：报道称德亨(Hanning)电机（深圳）有限公司并未撤离工厂，而是转移部分生产线至印度工厂。外资仍在持续撤出中国。这么一家无名小公司转移生产线，中国官方都需要出来稳定一下人心，看来这是中共的痛处
-▶️**新浪视频：通化志愿者躺雪地休息看哭居民：挨家挨户送菜太辛苦了**
-![]()![](https://imagepphcloud.thepaper.cn/pph/image/110/863/346.jpg)📍 评论：每遇大灾，中共就玩假感动，转移矛盾和注意力。还有一个问题的关键在于，为什么国人总能这样被忽悠？
-▶️**侠客岛：【#马克龙称现代资本主义行不通#：当前应消除贫富差距】**
-![]()![](https://n.sinaimg.cn/spider2021128/195/w626h369/20210128/ce0a-kicwvzr1427555.png)📍 评论：法国总统马克龙通过视频参加世界经济论坛“达沃斯议程”，他称“在当前的环境下，资本主义模式与开放经济行不通了”。马克龙认为从这场疫情中走出来的“唯一办法”，就是打造一个“更加专注于消除贫富差距的经济”。评：马克龙在达沃斯论坛上发表左棍言论。美国大选之后，达沃斯党开始举行派对狂欢。
-▶️**网易：深度垄断下的中国互联网：假货骗子横行，中小创业者断层**
-![](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0126%2F79c524afj00qnivq2001ac000fv00g0m.jpg&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)📍 评论：文章真实揭示了深度垄断下的中国互联网中的搜索行业，分类信息行业，房产行业，IM行业，微博，支付行业，外卖行业，出行行业。互联网巨头垄断扼杀了无数中小创业者。为敢言者鼓掌！（其实这篇文章还有解析的空间，战友可以深入）
-▶️**新唐人電視台 on Twitter: “#美國 德州告聯邦政府勝訴！暫停實施拜登政府的 #移民令**
+编撰：天灭中共
 
+复核：Peace Wind / pv0
 
+美国当地时间1月25日，第45任总统川普在佛罗里达州开设办公室，管理其通讯及官方活动事宜，同时还设立两个智库，继续推进自己的政治主张，引外界猜测。
 
-> [#美國](https://twitter.com/hashtag/%E7%BE%8E%E5%9C%8B?src=hash&amp;ref_src=twsrc%5Etfw) 德州告聯邦政府勝訴！暫停實施拜登政府的 [#移民令](https://twitter.com/hashtag/%E7%A7%BB%E6%B0%91%E4%BB%A4?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/4EXCqQONhv](https://t.co/4EXCqQONhv)
-> — 新唐人電視台 (@NTDChinese) [January 27, 2021](https://twitter.com/NTDChinese/status/1354550609274413056?ref_src=twsrc%5Etfw)
+川普设「前总统办公室」引外界关注
 
+被多个社交平台恶意封杀的前美国总统川普透过发表声明公布消息，在佛州棕榈滩县成立办公室，并命名为「前总统办公室」，主要负责管理川普所有公共事务，包括信件、公开声明或露面，以及其他促进美国利益的官方活动，并将透过倡导、组织公众活动，来延续川普行政团队的政治理念。声明的最后，更以「川普总统永远会是美国人民的捍卫者」作结。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/image1-72.jpg)
+川普20日卸任时，在安德鲁斯联合基地的欢送仪式上向大批支持者喊话：「我们会以某种形式回归」，时隔不到一周，即宣布成立办公室，
 
-📍 评论：美国政府之间的权力制衡，确保权力不被滥用
-* * *
+实际上，总统卸任后成立办公室是惯例，不过直接以「前总统」为办公室冠名，实属川普创举。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+不仅如此，川普还建立了两个智库，一个叫「复兴美国中心」，另一个是与之相应的「复兴美国行动」组织，前者是维护选举公正与应对大科技公司侵害言论自由的非营利组织，后者是社会福利团体，主要是推进各项议程。
 
+据悉，「前总统」办公室的首要工作之一，是协助前白宫发言人桑德斯出选阿肯色州州长。
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+参议院二次弹劾，川普赢面大
+
+参议院25日晚正式接手了众议院的川普弹劾案，众议院以232对197票通过，指控前总统川普煽动暴民于1月6日袭击国会大厦，犯有「严重罪行与行为不检」（High crimes and misdemeanors）。参议院计划2月9日开始，正式对该弹劾案进行审判。
+
+共和党联邦参议员兰德·保罗（Rand Paul）则持不同意见，他认为弹劾卸任总统违宪，并于26日发起一项全体表决，表决结果最终显示为45对55票，未能阻止到弹劾案的继续进行。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/image2-29.jpg)Rand Paul 图片来源：维基百科
+
+值得留意的是，在支持弹劾的55人中，5个为共和党人，包括参议院少数党领袖麦康奈尔。尽管如此，想要成功弹劾川普，根据议事规则，须有至少67位参议员赞成。也就是说，在反对弹劾川普的45位参议员中，需要至少17位倒戈方能成事。因此，弹劾案通过的机会并不大。
+
+无论是否担任总统，身负民意众望的川普，始终是社会各界关注的焦点。而他的「前总统办公室」，面对的首项工作，很可能是准备应对2月9日国会参议院的弹劾审讯。
+
+以上观点仅代表笔者
+
+「资料来源」
+
+[https://thehill.com/homenews/administration/535771-trump-establishes-office-of-the-former-president-in-florida](https://thehill.com/homenews/administration/535771-trump-establishes-office-of-the-former-president-in-florida)
+
+[https://thehill.com/homenews/senate/535995-senate-gop-signals-its-likely-to-acquit-trump-for-second-time](https://thehill.com/homenews/senate/535995-senate-gop-signals-its-likely-to-acquit-trump-for-second-time)
+
+[https://www.axios.com/former-omb-director-to-set-up-pro-trump-think-tanks-3b297535-23e6-427f-8723-763c6bbe358e.html](https://www.axios.com/former-omb-director-to-set-up-pro-trump-think-tanks-3b297535-23e6-427f-8723-763c6bbe358e.html)
+
 0
