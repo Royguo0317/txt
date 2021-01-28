@@ -1,33 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 为遭迫害做好准备：国内恐怖主义法、大型科技公司和大型媒体可能把美国变成中共国
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/827086/)
+## 郭先生0126X:美国的伟大在于资本可以让你安全中共国则不然
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/827929/)
 
-根据CBN于2021年1月26日的报道，中共国家极权主义对中国人民的全方位操控现状，美国应引以为戒。报道进一步指出新一届美国政府可能会利用疫情大流行的严重问题，再次在大科技公司和大媒体的帮助下，对美国公民进行类似中国政府的控制和迫害，该报道最后呼吁美国人民警惕并做好准备。
-视频源: https://www.youtube.com/watch?v=4CXnn–F0PA (03:11-4:09)
-Transcript 正文:
+![]()![](https://gnews.org/wp-content/uploads/2021/01/封面10.jpg)
+编辑整理：
 
-**Is**** CCP’s Social Credit System Happening in the US?**
+伦敦喜庄园农场：万物归一
 
-**中共的社会信用体系将在美国发生？**
+纽约香草山农场：月野兔
 
-While the COVID-19 pandemic is a serious issue, it is also pushing an already dependent American society toward a willingness of being controlled. It has put us in a position and a mindset of fear and control, and where we can be open to being told what to do by the government. And I think that this has been a dry run, if you will, for greater control. One that covers nearly every aspect of your life, courtesy of big government, big tech, and big media. It’s already happening in China where the communist government has implemented a social credit system that forces citizens to conform to what the government wants. Those deemed to be good communists are rewarded with full access to the economy, travel, higher education, and good jobs. I think we’re going to see an informal version of that happen right here in America, and the hammer is going to come down on conservatives and traditional Christians.
+法国巴黎七星农场：枫丹白露
 
-当病毒大流行成为目前的一个严重的问题时，它同时也将已有依赖惯性的美国社会导往自愿被操控的方向。它把我们推向了恐惧和控制的心态中，于是，我们便可以无条件地接受政府对我们的指使。我认为这是一次演习，如果可以的话，是为了更好的操控。它几乎涵盖了你生活的方方面面，这要归功于大政府、大科技和大媒体。这种情况已经在中国发生了，中共政府已经实施了一种社会信用体系，迫使公民遵从政府的要求。那些被认为是优秀共产党员的人会被给予在经济、旅游、高等教育和得到好的工作机会方面的奖励。我认为这种体系的非正式版本将在美国发生，而保守派和传统基督徒将受到打击。
+篇首说明：郭先生在[2021年1月26日 文贵直播爆料四周年](https://gtv.org/video/id=60102598b819717e79b1a5f8)直播中回顾了四年前的1月26号站出来那一刻之前的2015年1月10日他和共产党已经开战；谈到了他2017年1月26日决定站出来被身边所有人都认为是愚蠢的；谈到了他在2017年1月26日站出来说出保财保命报仇就已经开始了以共灭共的旅程等内容，本系列将根据郭先生主题内容的不同按时间段逐一上传。
 
-*出处: [https://www.youtube.com/watch?v=4CXnn–F0PA](https://www.youtube.com/watch?v=4CXnn--F0PA) (03:11-4:09)*
+以下为本系列第十部分：美国的伟大在于资本可以让你安全中共国则不然
 
-*听写 & 翻译：【奔腾的长江】校对：【JoyJoy】字幕：【相机过热啊】编辑：【Isaiah4031】【Mark】*
+据[2021年1月26日 文贵直播爆料四周年](https://gtv.org/video/id=60102598b819717e79b1a5f8)时间点1：28：46——
 
-*喜马拉雅玫瑰园小队出品*
+我这一到冬天了嘴就干，（念战友名字及战友留言）［侠能渡河、七道弯、美丽三文鱼、文敏，速心65667,疏风，哎呀，唯快不爆，唯快不破，灭共中共777,土共必亡，小闲，让美国国旗包裹］，现在美国国旗包包裹我了，美国国旗快没了，快灭了给，但是呢战友们要看到，今天我还要跟大家分享一下美国这个国家的伟大，你看美国这个政府，当时王岐山上台、习王上台，把你七哥从地球的另外一边赶到了美国，从北京到香港、从香港到英国、从英国到美国，结果钥匙澜吴征还威胁你七哥，然后还派人到美国纽约来要干掉你七哥，然后梁冠军，什么什么周什么，要干掉你，都到家来了，是吧？要干掉你七哥，今天人家拜登当上总统，美国的法律一样保护着你七哥。**当年川普政府说要用国旗把郭文贵保护起来，七哥是美国的战略资源；今天拜登政府照样说，爆料革命、新中国联邦是我们验证是否是中共病毒和我们要给共产党找个说法，唯一可以相信的对象；说不但我们要用国旗把你保护起来，我们还继续会让你有更大的空间与我们合作，一起来找到病毒的真相，他没有说灭共，找到病毒的真相。**
 
-*以上翻译整理仅代表作者个人观点，不代表**GNEWS**或他人立场。*
+**这就是美国的伟大，不会因为任何一个政权、一个政府的更迭，让这个社会变成了无法无天。**对待战友爆料革命个人来讲是利大于弊，拜登上来。而且我们正在和拜登政府要想尽一切办法合作。
 
-*敬请关注:*
-*GTV: [喜马拉雅玫瑰园中文频道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)*
-*Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)*
-*Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)*
-*Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)*
+**在美国资本主义社会，什么都可以用资本来解决的，在中共你能资本解决吗？**叶简明和吴小晖在被抓之前明确说了，我把资产都交出去，还有王健林，你交钱？还有马云，听说马云头两天被抓起来的时候给他商谈五个条件，马云通通不答应，最后马云是全部五个条件都答应以后，在监管的情况下出来露面，全答应了。为什么？你把钱交出来我要你的命，资本不能解决，说在中国钱不能保你安全，钱反而让你不安全，这就是中共和美国的不同之处。现在华盛顿的这些大佬们，民主党的朋友咱比共和党的多，共和党里有朋友也有敌人，那民主党真没敌人，都说我要代表你Lobbying、帮你公关呐，最起码有十家公关公司要代表我们公关，代表新中国联邦、代表文贵，**这叫资本主义社会，资本可以让你安全不要你的命，或者说不会因为资本更加加剧了让你不安全。中共国没钱你就是没有尊严，都在攀比，没钱你连药都买不起，连双修你连去找小姐的几百块钱都付不起。但你有钱的时候，钱会让你不安全，钱会让你失去自由、钱会要你的命、钱会让你全家没命。**马云、王健林、吴小晖、叶简明、肖建华，多了去了。美国不是的，**美国是钱让你摆脱别人对你的困扰，会让你有尊严、受尊重，还会让你安全，这就是美国这个社会的伟大、法治社会的伟大、民主社会的伟大、有信仰社会的伟大。**
 
-+1
+**虽然美国受到了巨大的挫折，我相信她一定会是我说过的，美国是全世界修复能力最强的国家，她一定在法律的基本面和信仰的基本面让美国再次强大，一定会的。**这就是为什么新中国联邦要让中国人拥有像美国人一样，比她还完美的独立的法律系统、信仰的自由、一人一票的选举的政府，这就是我们觉得快乐的原因啊，我们觉得这是对的。
+
+接上文——
+
+[**郭先生0126I:****四年前站出来,****但和共产党开战始于15****年1****月10****日**](https://gnews.org/zh-hans/821018/)
+
+[**郭先生0126II:****四年前身边人都认为站出来是愚蠢的只有自己坚信**](https://gnews.org/zh-hans/821124/)
+
+[**郭先生0126III: ****四年前提出保财保命报仇就已经开始了以共灭共**](https://gnews.org/zh-hans/821256/)
+
+[**郭先生0126IV:****四年来唯一的贪婪和欲望就是想要找到好人**](https://gnews.org/zh-hans/821936/)
+
+[**郭先生0126V:****四年来用钱和行动让欺民贼完全透明让大家看清楚**](https://gnews.org/zh-hans/822043/)
+
+[**郭先生0126VI:****四年来付出最多不求回报只因为相信正义和真相**](https://gnews.org/zh-hans/822175/)
+
+[**郭先生0126VII:****不理解爆料革命保命保财报仇的不是真正灭共者**](https://gnews.org/zh-hans/822345/)
+
+[**郭先生0126VIII:****爆料革命第一批进监狱的一定是Sara****和她儿子/****海洋等**](https://gnews.org/zh-hans/822628/)
+
+[**郭先生0126IX: 爆料革命新中国联邦要无欲无我不求权和名**](https://gnews.org/zh-hans/827899/)** **
+
+** **
+
+0

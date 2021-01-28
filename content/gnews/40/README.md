@@ -1,20 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 莫里森喊话中共：重启对话必须无任何前提条件
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/825409/)
+## 英国防疫封锁将至少持续到3月8日
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/825797/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-139-30.jpg)图片来源：https://www.theaustralian.com.au/
-根据《PerthNow》1月25日报道，澳大利亚总理斯科特·莫里森（Scott Morrison）周一在接受《澳大利亚人报》（Australian Australian）采访时表示，澳大利亚永远保持友好开放，他愿意与中共国重启对话，但中共不可以预设任何前提条件。同时他也警告说，中共国所期望望的已与澳大利亚的主权利益越来越不一致。
+- 编辑：Victor Torres
 
-有报道称，自去年在澳大利亚政府要求对中共病毒的起源进行调查后，两国外交关系迅速恶化，但莫里森对此予以否认。他认为，两国关系走向冰点并非一日之寒，实际上由于多年来各种因素所导致，不是某一时间某一事件而突然诱发的。中共国对澳大利亚的外交政策和投资法规多有埋怨，同时更对澳将华为5G排除在其网络建设外而不满。而莫里森政府曾对中共国侵犯人权行为进行了公开谴责，这使得中共再添怨气。最近几个月，中共国除了对采取限制进口澳大利亚产品的报复措施外，也列出了一份抱怨清单。
 
-澳大利亚外交大臣玛丽斯·佩恩（Marise Payne）表示，美国乔·拜登（Joe Biden）政府上台后， 会更密切关注澳美与中共国的关系。佩恩在《澳大利亚人报》发表了专栏文章，将美国描述为维护地区安全和团结各国必不可少的伙伴，特别是当一个国家企图凌驾于法规之上胡作非为时。她认为，从长期来看，澳大利亚将受益于由美国主导的多国网络体系，该体系能够秉承长期一贯的战略智慧，清楚表明在一个基于规则的体系，甚至是考虑到崛起大国利益而不断演变的体系下，什么才是合法行为。佩恩表示，澳大利亚会一直支持遵守国际规范和准则，促进提高透明度，反对如经济胁迫、侵犯人权和使用虚假信息等恶劣行为。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-[原文连结](https://www.perthnow.com.au/politics/federal-politics/scott-morrison-open-to-talks-with-china-if-no-preconditions-ng-b881777801z.amp)
+**西班牙2021年1月28日电/西喜社——**英国首相鲍里斯·约翰逊（Boris Johnson）表示，英国的中共病毒封锁将至少持续到3月8日。
 
-翻译：明澈
+约翰逊在向立法者发表的一份声明中，还确认了对来自被认为是高风险国家的旅行者抵达英国的新限制。他说，英国仍然处于 “危险的境地”，有超过3.7万名中共病毒患者住院，几乎是4月份上一个高峰期的两倍。
 
-校对：沙拉猫
+约翰逊表示，虽然让学生们在2月中旬放假后重返教室的希望破灭，但3月8日的愿望是基于疫苗接种方面的进展。
+
+周二，英国成为第五个记录超过10万例中共病毒相关死亡的国家。
+
+**新闻来源：**[https://apnews.com/article/coronavirus-pandemic-france-germany-coronavirus-vaccine-frankfurt-5eb7627c7abbda6516c18be99ffc1bf4](https://apnews.com/article/coronavirus-pandemic-france-germany-coronavirus-vaccine-frankfurt-5eb7627c7abbda6516c18be99ffc1bf4)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/73755970-8e55-436e-b2d7-3a2767339007-71.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
 0

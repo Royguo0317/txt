@@ -1,37 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】拜登和菅义伟凌晨通话重申《日美安保条约》适用于尖阁诸岛（钓鱼岛）
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/827180/)
+## 加拿大为中共训练警察及法官（二）
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/827425/)
 
-作者：纽约香草山写作组   Wilson
+*加拿大多伦多枫叶农场 文锦*
 
+*校对 小鸥*
 
+*发稿 文锦*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+[加拿大为中共训练警察及法官（一）](https://gnews.org/zh-hans/825684/)
 
+**中共以卑诗省司法学院为幌子渗透加拿大**
 
+卑诗省司法学院表示，中共输送的学员从不参加远程培训，只想要到加拿大境内学习。
 
-[共同社](https://china.kyodonews.net/news/2021/01/458955bb87e4--.html)1月28日凌晨急电，日本首相菅义伟28日凌晨与美国总统拜登举行首次电话会谈。双方确认将强化日美同盟，为实现“自由开放的印度太平洋”开展密切合作。拜登重申，尖阁诸岛（中国称钓鱼岛）是规定美国防卫义务的《日美安全保障条约》第五条的适用对象。
+中共通过卑诗省司法学院可能的渗透方式如下：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/36.jpg)
+1. 公安、法院等中共体制内的留学人员通过参加各种活动，将搜集到的信息汇报给上级。
 
-中（共）国于1月22日出台新的《海警法》，肯定有多种考量及应对预案，其中就有试探“老朋友”拜登如何反应的算计。拜登今早的闪亮登场和强硬表态，扇了中共的耳光，这应该出乎中共意料之外。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/communcation-2.jpg)图片来源：湖南警察学院
+2.学员通过了解加拿大的法律系统运作，找出漏洞，便于中共钻空子。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/learn-3.jpg)图片来源：湖南警察学院
+3.通过在当地警察支队的实战训练中，熟悉加拿大警察内部情况。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/photo6-1.png)图片来源：卑诗省司法学院
+4. 该学院学生可做私人保安，为中共不法勾当护航。
+5. 该学院为国际学生提供60学分的两年制课程的执法证书（PBDLES），是亲共者获得加拿大永久居留权和公民身份的一种移民途径。
 
-编辑/校对/发稿：Irene木木
+中共渗透的目的：为中共利益而进行跨国犯罪；对加拿大人，特别是华裔进行威胁和骚扰。
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+**中共在加拿大渗透严重**
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+卑诗省是加拿大距中共国最近的省份，被中共渗透严重。早在2005年，从国内镇压法轮功的 “610办公室 “逃到加拿大的郝凤京（Hao Fengjing音译）就爆出加拿大的间谍活动比其他任何国家都多。中共病毒疫情以来，加拿大政府一直对中共走狗WHO言听计从，而且加拿大政府隐瞒参加武汉军运会士兵染疫真相、中共从加拿大偷病毒毒株及生物技术、中共在加拿大培训解放军等的新闻不断被曝出，都验证了该国被中共严重渗透的事实。
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+卑诗省司法学院完全没有问责机制。前高等教育部部长威尔金森也拒绝透露与中共国签署的独特协议以及对该学院的监督。
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+那么这些接受了加拿大教育的警员及法官等在中共国是否有侵犯人权的恶行？
+![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图381.png)图片来源： Twitter
+是否有人作为黑警，扼杀了香港的民主？
+![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图378.png)图片来源：Getty Images
+是否有人在新疆集中营虐待关押人员、在西藏进行残酷镇压？
+![]()![](https://gnews.org/wp-content/uploads/2021/01/屏幕截图386.png)特警押送新疆集中营人员 图片来源： YouTube
+这些毕业学员是否会为中共盗国贼保驾护航？
+![]()![](https://gnews.org/wp-content/uploads/2021/01/p2636101a933138264-ss.jpg)图片来源： 看中国
+卑诗省司法学院院长米歇尔·塔科（Michel Tarko）曾多次到访中共国警察院校。对中共打手——警察及法官的恶行，他推托 “无权发表评论” 。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/tarke-3.jpg)米歇尔·塔科 图片来源：湖南警察学院
+一方面加拿大的两个迈克尔以莫须有的罪名被中共扣为人质，另一方面卑诗省司法学院为中共国的刑事司法人员来加接受教育大开方便之门。现实太荒唐了！不过毕竟有媒体开始报道中共危害加拿大的消息，笔者知道真相感到痛心的同时也为加拿大人开始觉醒而感到欣慰。虽然加拿大想摆脱中共的影响还有很长的路要走，但已步履蹒跚地上道了。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+*[原文链接](https://biv.com/article/2021/01/chinese-police-training-bc-espionage-risk-critics-say-glacier-investigates)*
 
+参考链接：
 
+[湖南警察学院第三届赴加拿大JIBC学分班毕业](https://www.163.com/dy/article/ELC3UOV1054502RO.html)
 
+[加拿大曾在军事基地训练中共军队](https://gnews.org/zh-hans/633455/)-GNews
 
+[特鲁多承认为中共军队举办了冬季战备训练](https://gnews.org/zh-hans/640377/)-GNews
+
+[北航等院校在加拿大前空军基地等处进行飞行员培训](https://gnews.org/zh-hans/657650/)-GNews
+
+[写在首个中共黑警节](https://gnews.org/zh-hans/738684/)-GNews
 
 0

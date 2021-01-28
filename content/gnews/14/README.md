@@ -2,7 +2,7 @@
 ---
 
 ## 《爆料革命发起人—郭文贵视频精品荟萃》第九集
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/827636/)
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/826812/)
 
 撰稿：澳喜Cindy
 
