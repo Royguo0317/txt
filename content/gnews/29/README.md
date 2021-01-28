@@ -1,24 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/01/28 疫情下墙国中的人生百态
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/832447/)
+## 澳洲健康部最新疫苗接种政策解读之三：优先群体可望从2021年初开始接种疫苗
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/832646/)
 
-翻译：yyshere | 校对：CharlesS
+撰稿人：喜妈
+![]()![](https://gnews.org/wp-content/uploads/2021/01/covid-2-1.png)图片来源：canva.com
+澳大利亚政府以及州和领地政府正在共同努力，计划安全有效地推广已批准的疫苗。澳大利亚免疫技术谘询小组（ATAGI）已向澳大利亚政府提供建议，指出应优先考虑在澳大利亚首次接种COVID-19疫苗的群组。
 
-## 舆论作秀：6岁儿童检测现场当义工
+澳大利亚政府以及州和领地政府正在共同努力，计划安全有效地推广已批准的疫苗。澳大利亚免疫技术谘询小组（ATAGI）已向澳大利亚政府提供建议，指出应优先考虑在澳大利亚首次接种COVID-19疫苗的群组。
 
-中共宣传机构、社区机构为了舆论造假需求，竟让6岁儿童到极易感染病毒的大规模核算检测现场当志愿者，又一现实版人血馒头。孩子的父母也是在中共洗脑下没有是非判断力
+随着更多信息的获得，这些群体可能会发生变化 ATAGI正在不断审查疫苗的数据和证据，并可能在获得新信息后更新其对政府的建议。如果优先级群组有任何变化，我们将更新我们的信息。 可以更改优先级组的信息包括： 有关COVID-19疾病和可能受到不成比例影响的人群的进一步证据
 
-## 华南海鲜市场现状 ，WHO去检验拆迁现场？
+根据临床试验结果，疫苗如何起作用以及对谁安全？
 
-近日，有武汉市民拍摄了华南海鲜市场的现状。海鲜市场内部早已于去年3月初被拆除、多次消毒。世卫组织来中共国调查不过是配合中共作秀而已，而华南海鲜市场可能也只是假的第一现场。
+COVID-19的最新暴发，传播和医疗建议
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+何时将在澳大利亚提供疫苗。
 
+为什么优先考虑这些人群 全球对结束COVID-19大流行的安全有效疫苗的需求很大。随着疫苗的普及，将向高风险人群提供疫苗。
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+优先人群的确定要考虑到当前的公共卫生，医学和流行病学证据，即谁感染了COVID-19谁将受到最大影响。例如，卫生和老年护理工作者是优先考虑的人群，因为他们与人频繁接触，因此极有可能感染COVID-19。他们还更有可能通过他们在医院和老年护理机构中的工作将病毒传播给弱势人群。优先考虑该人群的疫苗接种对所有人都有好处，以便他们可以继续提供基本护理。
+
+这对你意味着什么
+
+无论您是否在优先组中，最好的事情就是保持最新状态并继续成为冠状病毒安全状态（COVIDSafe）。澳大利亚政府将提供有关未来几个月如何推出疫苗的更多信息。同时，每个人仍然需要：
+
+保持良好的卫生习惯 保持身体距离
+
+如果你生病了要待在家里并得到测试
+
+下载COVIDSafe应用。
+
+Reference:
+
+health.gov.au., (2021). Who will get the vaccines. [online]. health.gov.au. [Viewed 28 January 2021]. Available from: [https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/getting-vaccinated-for-covid-19/who-will-get-the-vaccines](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/getting-vaccinated-for-covid-19/who-will-get-the-vaccines)
+
+澳喜文章：
+
+[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+
+欢迎加入澳喜农场： [https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_5335-3.jpg)
 0
