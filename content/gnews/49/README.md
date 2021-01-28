@@ -1,43 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】墙内其它地区同胞应做好疫情井喷式爆发的准备
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/825229/)
+## 莫里森喊话中共：重启对话必须无任何前提条件
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/825409/)
 
-作者：纽约香草山福音堂   Daxia
+![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-139-30.jpg)图片来源：https://www.theaustralian.com.au/
+根据《PerthNow》1月25日报道，澳大利亚总理斯科特·莫里森（Scott Morrison）周一在接受《澳大利亚人报》（Australian Australian）采访时表示，澳大利亚永远保持友好开放，他愿意与中共国重启对话，但中共不可以预设任何前提条件。同时他也警告说，中共国所期望望的已与澳大利亚的主权利益越来越不一致。
 
+有报道称，自去年在澳大利亚政府要求对中共病毒的起源进行调查后，两国外交关系迅速恶化，但莫里森对此予以否认。他认为，两国关系走向冰点并非一日之寒，实际上由于多年来各种因素所导致，不是某一时间某一事件而突然诱发的。中共国对澳大利亚的外交政策和投资法规多有埋怨，同时更对澳将华为5G排除在其网络建设外而不满。而莫里森政府曾对中共国侵犯人权行为进行了公开谴责，这使得中共再添怨气。最近几个月，中共国除了对采取限制进口澳大利亚产品的报复措施外，也列出了一份抱怨清单。
 
+澳大利亚外交大臣玛丽斯·佩恩（Marise Payne）表示，美国乔·拜登（Joe Biden）政府上台后， 会更密切关注澳美与中共国的关系。佩恩在《澳大利亚人报》发表了专栏文章，将美国描述为维护地区安全和团结各国必不可少的伙伴，特别是当一个国家企图凌驾于法规之上胡作非为时。她认为，从长期来看，澳大利亚将受益于由美国主导的多国网络体系，该体系能够秉承长期一贯的战略智慧，清楚表明在一个基于规则的体系，甚至是考虑到崛起大国利益而不断演变的体系下，什么才是合法行为。佩恩表示，澳大利亚会一直支持遵守国际规范和准则，促进提高透明度，反对如经济胁迫、侵犯人权和使用虚假信息等恶劣行为。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+[原文连结](https://www.perthnow.com.au/politics/federal-politics/scott-morrison-open-to-talks-with-china-if-no-preconditions-ng-b881777801z.amp)
 
+翻译：明澈
 
+校对：沙拉猫
 
-据GTV及盖特关于墙内疫情的报道，吉林通化、北京、河北等地，先后出现严重疫情，导致封城封门。随后，民众出现居家隔离粮食短缺，及配送生活物资不到位的情况。群众发出求救的声音——“我们需要物资”。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/30-3.png)
-
-现上海地区，宝山区临江新村(一、二村)，黄埔区昭通路及上海市中福世福汇大酒店，黄埔区贵西小区等地，先后调整为疫情中风险地区，并于一星期內火速建好方舱医院。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/31-4.png)
-
-中共墙内自疫情爆发以来，对民众进行了各方位的管制。但如今，国内已到严重疫情火山式井喷的地步。其它暂未被管控区域的同胞们，要备足应急药品及各类耐存易煮食品，包括大米或其它谷物，各类面食，饼干，罐头，腊肉，干菜，豆类，果仁，水果干，调料，食用油，饮用水等。
-
-病毒无情，中共政府更无情。爆料革命战友路德先生早就预警墙內同胞：疫情严重，存粮换钱，不染病毒，健康活下来。
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-+4
+0
