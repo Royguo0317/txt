@@ -14,141 +14,165 @@
 
 ---
 
-### [CCP病毒导致中欧班列运费上涨加剧经济崩溃](/content/gnews/1/README.md)
- ` 喜马拉雅农场新西兰站`
+### [【军事快讯】拜登和菅义伟凌晨通话重申《日美安保条约》适用于尖阁诸岛（钓鱼岛）](/content/gnews/1/README.md)
+ ` 纽约香草山MOS01`
 
-### [视频2021/01/26 疫情下墙国中的人生百态](/content/gnews/2/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [【军事快讯】美国防长奥斯汀和印度防长辛格通话强调防务合作](/content/gnews/2/README.md)
+ ` 纽约香草山MOS01`
 
-### [视频【精华版粤语配音】班农战斗室658期：朱利安尼说为避免舞弊发生必须彻查这次选举](/content/gnews/3/README.md)
- ` 喜馬拉雅大使館-粵語組`
+### [【灭共有我】一位台湾朋友染上的中共病毒](/content/gnews/3/README.md)
+ ` 墨尔本雅典娜农场`
 
-### [巴林发现变异中共病毒毒株](/content/gnews/4/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [【军事快讯】菲律宾就《海警法》正式向中（共）国提出外交抗议](/content/gnews/4/README.md)
+ ` 纽约香草山MOS01`
 
-### [大屠杀纪念日教皇警告发生另一次灭绝事件的可能性](/content/gnews/5/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [【文字版】路德时评2021.01.26晚间：中共发动国家宣传机器新一轮抹黑闫丽梦博士，新战场形成，病毒真相让中共害怕](/content/gnews/6/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共幻想拜登政府改变对华政策](/content/gnews/7/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [美日德三国向台湾求助解决晶片问题，今台经济部做出回应](/content/gnews/8/README.md)
- ` G-NEWS TAIWAN`
-
-### [视频国语【香港快讯】 1.27 港珠澳大桥鲸吞港人财富 林郑最新民意评分只有25.8分](/content/gnews/9/README.md)
- ` 喜馬拉雅大使館-粵語組`
-
-### [【五月花报】达沃斯论坛上，默克尔再次站队习近平](/content/gnews/10/README.md)
- ` 波士顿五月花农场`
-
-### [台湾与美国的紧密军备交流](/content/gnews/11/README.md)
- ` G-NEWS TAIWAN`
-
-### [1/27/2021 财经快讯：美国消费者信心指数增长;欧议会听证会邀科技巨头出席](/content/gnews/12/README.md)
- ` 秘密翻译组G-Translators`
-
-### [中共以抗疫为名在中缅边境兴建“长城”](/content/gnews/13/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [郭先生0126VIII:爆料革命第一批进监狱的一定是Sara和她儿子/海洋等](/content/gnews/14/README.md)
- ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
-
-### [共产党你完蛋了！](/content/gnews/15/README.md)
- ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
-
-### [“当委会”呼吁拜登总统立即将中共定为非法组织](/content/gnews/16/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [郭先生0126VII:不理解爆料革命保命保财报仇的不是真正灭共者](/content/gnews/17/README.md)
- ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
-
-### [中共调查监视外媒记者 甚至被迫离开](/content/gnews/18/README.md)
- ` G-NEWS TAIWAN`
-
-### [2021/01/25 &#8211; 01/26 英喜时事速递](/content/gnews/19/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [红色警报119](/content/gnews/20/README.md)
- ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
-
-### [视频路德时评简讯（视频版）: 美国新政府重提三个联合公报（2021.1.25 早间 路德社简讯之路安墨唐谈 ）](/content/gnews/21/README.md)
- ` 路德社`
-
-### [四年爆料，未來已來](/content/gnews/22/README.md)
- ` GM126`
-
-### [朋友的选择](/content/gnews/23/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [川普的未来，川普自己说了算](/content/gnews/24/README.md)
- ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
-
-### [国药集团新冠疫苗秘鲁试验中一参试者死于信冠病毒肺炎](/content/gnews/25/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [郭先生0126VI:四年来付出最多不求回报只因为相信正义和真相](/content/gnews/26/README.md)
- ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
-
-### [川普政府没有定性生化武器，爆料革命应如何继续前进？](/content/gnews/27/README.md)
- ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
-
-### [视频2021年1月27日中共病毒疫情要闻快报](/content/gnews/28/README.md)
- ` 秘密翻译组G-Translators`
-
-### [中共入侵台湾、俄罗斯示威游行，拜登政府面临中俄新挑战](/content/gnews/29/README.md)
- ` 秘密翻译组G-Translators`
-
-### [郭先生0126V:四年来用钱和行动让欺民贼完全透明让大家看清楚](/content/gnews/30/README.md)
- ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
-
-### [【文字版】路德时评2021.1.26早间（路安墨谈）:习近平为什么要着急对台湾提前下手？](/content/gnews/31/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [为了与中共签约, 欧盟出卖了自己的灵魂](/content/gnews/32/README.md)
- ` 秘密翻译组G-Translators`
-
-### [川普总统真的输了吗](/content/gnews/33/README.md)
- ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
-
-### [郭先生0126IV:四年来唯一的贪婪和欲望就是想要找到好人](/content/gnews/34/README.md)
- ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
-
-### [【每日快报】文贵直播爆料四周年纪念 2021.01.27](/content/gnews/35/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [信仰不是一朝一夕的事情](/content/gnews/36/README.md)
- ` 喜马拉雅 日本京都富士会`
-
-### [视频【疫情快訊】天津疫情持续，天津市滨海新区茶淀馨苑、泰安里封闭管理。](/content/gnews/37/README.md)
- ` 秘密翻译组G-Translators`
-
-### [视频CCP冠状病毒大流行 – 第356集](/content/gnews/38/README.md)
- ` 新闻译制组`
-
-### [中共国的爆雷狂潮：连养老市场也不放过？](/content/gnews/39/README.md)
+### [2021年01月27日澳喜要闻（每日更新）](/content/gnews/5/README.md)
  ` Himalaya Australia`
 
-### [【香港要闻】香港警员虐待被告「警暴」可以没有代价？](/content/gnews/40/README.md)
+### [疫情之下的芯片短缺](/content/gnews/6/README.md)
+ ` G-Talent技术社区`
+
+### [蓬佩奥在福克斯采访称：中共正在寻找拜登政府的 &#8220;软肋&#8221;](/content/gnews/7/README.md)
+ ` HimalayaRussia`
+
+### [【热点播报】加拿大媒体为CCP病毒疫苗安全性洗地](/content/gnews/8/README.md)
+ ` 纽约香草山MOS01`
+
+### [战友寄语:「安心出行」能否安心？](/content/gnews/9/README.md)
  ` 喜馬拉雅大使館-粵語組`
 
-### [酒店通风系统或是新冠病毒的温床](/content/gnews/41/README.md)
- ` 喜马拉雅农场新西兰站`
+### [【军事快讯】美国新国务卿与日本外相通话 承诺《日美安保条约》适用于钓鱼岛“态度没有变化”](/content/gnews/10/README.md)
+ ` 纽约香草山MOS01`
 
-### [视频HCQ对变异CCP病毒也管用](/content/gnews/42/README.md)
- ` 喜马拉雅玫瑰园小队`
-
-### [视频【疫情快訊】上海复兴中路、瑞金二路、黄埔剧场、北京路、贵州路封了](/content/gnews/43/README.md)
- ` 秘密翻译组G-Translators`
-
-### [《路德社》精选新闻简讯：荷兰爆发40年来最严重骚乱罪恶之源：中共军方称霸自保【三种战法】-传媒战（亦即舆论战）、心理战和法律战](/content/gnews/44/README.md)
- ` 路德社精选`
-
-### [中共漫画秀出了窝囊和智商](/content/gnews/45/README.md)
+### [班农战斗室简报679 战斗室大疫情开播一周年，习在达沃斯的胜利演说](/content/gnews/11/README.md)
  ` 日本东京樱花团`
 
-### [2021年1月26日 文贵先生盖特 5](/content/gnews/46/README.md)
+### [视频【字幕】1/27/2021文贵盖特：关于共产党中南坑的老杂毛们，为什么把中国的唯一的龙形建筑…龙头，改成鸟头！](/content/gnews/12/README.md)
+ ` 纽约香草山MOS01`
+
+### [意大利医生涉嫌疫情期间为腾出床位谋杀病人被捕](/content/gnews/13/README.md)
+ ` gnewscanada`
+
+### [加拿大为中共训练警察及法官（一）](/content/gnews/14/README.md)
+ ` gnewscanada`
+
+### [英国防疫封锁将至少持续到3月8日](/content/gnews/15/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【正道观察】中共以文革式漫画丑化揭露病毒真相的众英雄及背后原因](/content/gnews/16/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [《路德社》精选新闻简讯:用中新贸易敲打澳大利亚，中共大棒还管用吗？](/content/gnews/17/README.md)
+ ` 路德社精选`
+
+### [美国预计未来四周内将有9万人死于中共病毒](/content/gnews/18/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共病毒令美国焦虑和抑郁者激增](/content/gnews/19/README.md)
+ ` gnewscanada`
+
+### [世卫组织应立即调查伪造的穿山甲冠状病毒和蝙蝠冠状病毒](/content/gnews/20/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【世事解评】射向闫丽梦博士子弹的用意](/content/gnews/21/README.md)
+ ` 纽约香草山MOS01`
+
+### [莫里森喊话中共：重启对话必须无任何前提条件](/content/gnews/22/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [2021年1月27日 文贵先生盖特 3](/content/gnews/23/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+
+### [【战友心声】墙内其它地区同胞应做好疫情井喷式爆发的准备](/content/gnews/24/README.md)
+ ` 纽约香草山MOS01`
+
+### [视频【字幕】1/25/2021文贵：共产党的灭亡和方式可能像美国总统大选一样非常之滑稽](/content/gnews/25/README.md)
+ ` 纽约香草山MOS01`
+
+### [【战友心声】反思与展望——回顾中共七十年，开启灭共新时代](/content/gnews/26/README.md)
+ ` 纽约香草山MOS01`
+
+### [视频1/25/2021 郭先生直播：中共的所谓“双龙计划”是拿下香港、台湾](/content/gnews/27/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [中共坑人法律之《民法典》](/content/gnews/28/README.md)
+ ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
+
+### [视频1/24/2021 郭先生直播：所有VOG和Sara骗的钱都必须还到战友手里](/content/gnews/29/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [以共灭共的时代正式开始《路德社》每日简报晚间版 2021.01.22–NewYork Time](/content/gnews/30/README.md)
+ ` 路德社精选`
+
+### [郭爆料串珠（173）背叛川普的彭斯会非常惨，非常非常惨！](/content/gnews/31/README.md)
+ ` 喜马拉雅德国慕尼黑感恩农场`
+
+### [喀秋莎新闻参考- 2021年1月26日 (星期二)](/content/gnews/32/README.md)
+ ` HimalayaRussia`
+
+### [视频1/25/2021 郭先生直播：中共灭亡的速度和方式可能会和美国大选一样——非常之滑稽](/content/gnews/33/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频1/25/2021 郭先生直播：中共流氓政府造假第一、对待自己的人民无比凶残，全人类无人可比](/content/gnews/34/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [弹劾川普总统议案大概率又是以闹剧告终](/content/gnews/35/README.md)
+ ` HimalayaRussia`
+
+### [中共文宣近日对闫博士疯狂攻击的险恶用心](/content/gnews/36/README.md)
+ ` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels`
+
+### [漫画攻击暴露了邪共的黔驴技穷](/content/gnews/37/README.md)
+ ` HimalayaRussia`
+
+### [蓬佩奥正式宣布2024总统大选倒计时《路德社》每日简报早间版 2021.01.22–NewYork Time](/content/gnews/38/README.md)
+ ` 路德社精选`
+
+### [【看七哥视频】新中国联邦——中国人在茫茫的黑夜中，唯一的一个虚弱的希望和灯光！](/content/gnews/39/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [郭文贵先生1月27日直播精要文字版](/content/gnews/40/README.md)
+ ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
+
+### [美德国防部长通话，就中共病毒等全球挑战交换意见](/content/gnews/41/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [2021年1月27日 文贵先生盖特 2](/content/gnews/42/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+
+### [美新任国防部长与印度国防部长通话](/content/gnews/43/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [津巴布韦埋葬三名死于中共病毒的高级官员](/content/gnews/44/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [英国立法者称汇丰银行“镇压民主”](/content/gnews/45/README.md)
+ ` gnewscanada`
+
+### [蓬佩奥：中共企图在拜登政府中寻找突破的机会](/content/gnews/46/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【五月花评】末法恶灵——种族灭绝、反人类的中国共产党](/content/gnews/47/README.md)
+ ` 波士顿五月花农场`
+
+### [菲律宾取消了涉中共国企的100亿美元机场项目](/content/gnews/48/README.md)
+ ` HimalayaRussia`
+
+### [视频【字幕】1/27/2021文贵盖特：全球为了自己的生存，必须灭共……和爆料革命新联邦中国的联合灭共](/content/gnews/49/README.md)
+ ` 纽约香草山MOS01`
+
+### [【香港要闻】汇丰CEO称冻结许智峰户口因为要守法 祈耀年自欺欺人英议员不买账 （追踪报道）](/content/gnews/50/README.md)
+ ` 喜馬拉雅大使館-粵語組`
+
+### [新冠病毒，谁干的？！](/content/gnews/51/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [【香港要闻】汇控CEO祈耀年回应英国会质询的解释](/content/gnews/52/README.md)
+ ` 喜馬拉雅大使館-粵語組`
+
+### [前国务卿蓬佩奥加入哈德逊研究所](/content/gnews/53/README.md)
+ ` gnewscanada`
+
+### [【热点播报】福奇博士：戴双层口罩有助于预防新冠新变体](/content/gnews/54/README.md)
+ ` 纽约香草山MOS01`
 

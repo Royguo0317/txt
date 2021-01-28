@@ -1,28 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印尼截至周二确诊中共病毒感染人数突破100万
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/816570/)
+## 菲律宾取消了涉中共国企的100亿美元机场项目
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/824342/)
 
-- 编辑：Victor Torres
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑   水星    上传    银河
+![]()![](https://cdn.discordapp.com/attachments/799010586356351066/804035309469040711/A.JPG)asia.nikkei.com
+马尼拉(路透社)1月27日报道-菲律宾甲米地省（Cavite）取消了将100亿美元的机场项目授予有中共国有企业参与的财团的决定。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+甲米地省政府桑利机场升级项目是目前菲律宾最昂贵的基础设施项目之一。中（共）国交通建设公司(CCCC)和菲律宾宏亚公司(MacroAsia Corp)组成的财团是2019年竞标的唯一投标人，
 
-**西班牙2021年1月26日电/西喜社——**印尼自疫情开始以来，截至周二确诊的中共病毒感染人数突破100万，一些重灾区的医院已接近负荷。
+甲米地省长雷穆拉（Juanito Victor Remulla）周三对路透表示，该财团的文件有不足之处，“我们认为这是一个迹象，表明他们没有完全承担责任。”
 
-印尼卫生部宣布，周二每日新增感染人数增加13,094人，使全国总数达到1,012,350人，为东南亚之最。死亡总人数达到28,468人。
+雷穆拉称将开始与私营部门的合作伙伴进行新的谈判，同时表示这一决定与美国8月份对中（共）国交通建设公司和其他中共国有企业的制裁无关。
 
-这个里程碑发生在印尼发起大规模运动，启动为该国2.7亿人口中的三分之二接种疫苗后的几周，总统佐科·维多多接受了第一针中国制造的疫苗。在这个世界第四人口大国，医护人员、军人、警察、教师等高危人群被优先接种疫苗。
+美国已将多家中共公司列入黑名单，原因是它们参与了在南海争议地区的暗礁上建造军事设施。菲律宾外交部长曾建议终止涉及这些公司的项目，被杜特尔特总统否决。杜特尔特将赌注押注在中共身上，期待中共用数十亿美元投资改造菲律宾过时的基础设施，然而这些投资基本上没有实现，机场协议的失败将是杜特尔特政府的一个重要挫折。
 
-官员们说，印尼将需要近4.27亿剂疫苗，因为据估计，在这个由17000多个岛屿组成的广大国家，交通和基础设施有限的地方，15%的疫苗可能在分发过程中被浪费掉。
+杜特尔特的6年任期将于明年结束，他的“建设、建设、建设”计划下的几十个项目被推迟、取消或缩小。他因与中共深度勾兑，威胁要切断菲律宾与美国的盟友关系、力挺中共，并拒绝就中共海军和海岸警卫队在南中国海的扩张行为与中共国对峙的外交政策而备受批评。
 
-雅加达仍然是印度尼西亚受灾最严重的城市。
+参考链接：
 
-**新闻来源：**[https://apnews.com/article/travel-beijing-migrant-workers-coronavirus-pandemic-china-ebf87fbc0ac60e7a591da9a3823bce6d](https://apnews.com/article/travel-beijing-migrant-workers-coronavirus-pandemic-china-ebf87fbc0ac60e7a591da9a3823bce6d)
+[https://www.reuters.com/article/us-cccc-philippines/philippines-cancels-10-billion-airport-plan-with-chinese-led-group-idUSKBN29W067](https://www.reuters.com/article/us-cccc-philippines/philippines-cancels-10-billion-airport-plan-with-chinese-led-group-idUSKBN29W067)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/aea5954a-44d4-440d-825d-94a796aee3b5-13.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
-
-0
++2
