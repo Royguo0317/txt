@@ -1,45 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲健康部最新疫苗接种政策解读之三：优先群体可望从2021年初开始接种疫苗
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/832646/)
+## 今天是十世班禅大师圆寂32周年
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/832436/)
 
-撰稿人：喜妈
-![]()![](https://gnews.org/wp-content/uploads/2021/01/covid-2-1.png)图片来源：canva.com
-澳大利亚政府以及州和领地政府正在共同努力，计划安全有效地推广已批准的疫苗。澳大利亚免疫技术谘询小组（ATAGI）已向澳大利亚政府提供建议，指出应优先考虑在澳大利亚首次接种COVID-19疫苗的群组。
+撰稿&字幕翻译：白雪
 
-澳大利亚政府以及州和领地政府正在共同努力，计划安全有效地推广已批准的疫苗。澳大利亚免疫技术谘询小组（ATAGI）已向澳大利亚政府提供建议，指出应优先考虑在澳大利亚首次接种COVID-19疫苗的群组。
+视频剪辑：头上三尺有外星人 素材：Yumi
 
-随着更多信息的获得，这些群体可能会发生变化 ATAGI正在不断审查疫苗的数据和证据，并可能在获得新信息后更新其对政府的建议。如果优先级群组有任何变化，我们将更新我们的信息。 可以更改优先级组的信息包括： 有关COVID-19疾病和可能受到不成比例影响的人群的进一步证据
+32年前的今天，第十世班禅 额尔德尼·因心肌梗塞去世。
 
-根据临床试验结果，疫苗如何起作用以及对谁安全？
+六天后，中共针对民众的抗议，进行了血腥的镇压。士兵们朝人群开枪，把他们驱散了。三天之内，数百人受伤，超过60人示威者被杀害。
 
-COVID-19的最新暴发，传播和医疗建议
+1989年1月28日,也就是农历戌辰龙年的未尾,生肖属虎的第十世班禅 额尔德尼·确吉坚赞,突然于后藏首府日喀则他的行宫“德庆格桑颇章”因心脏病突发去世，不幸地应验了此前有关他“龙虎斗”的宿命。
 
-何时将在澳大利亚提供疫苗。
+自从1959年达赖喇嘛流亡海外后，班禅十世担任了西藏自治区筹备委员会代理主任。主张爱国统一和民主改革。
 
-为什么优先考虑这些人群 全球对结束COVID-19大流行的安全有效疫苗的需求很大。随着疫苗的普及，将向高风险人群提供疫苗。
+当时在民主改革中出现了一些不符合西藏实际的做法，班禅写那份著名的《七万言书》，结果不但遭到周恩来的批评，毛泽东的评价“班禅的尾巴翘得比U-2飞机还要高”更是直接将班禅打成反动派，被扣了三项帽子“反人民、反社会主义、蓄谋叛乱”。
 
-优先人群的确定要考虑到当前的公共卫生，医学和流行病学证据，即谁感染了COVID-19谁将受到最大影响。例如，卫生和老年护理工作者是优先考虑的人群，因为他们与人频繁接触，因此极有可能感染COVID-19。他们还更有可能通过他们在医院和老年护理机构中的工作将病毒传播给弱势人群。优先考虑该人群的疫苗接种对所有人都有好处，以便他们可以继续提供基本护理。
+班禅于一九七八年被释放并恢复党和国家领导人职务。
 
-这对你意味着什么
+一九八九年官方宣称因心脏病辞世。
 
-无论您是否在优先组中，最好的事情就是保持最新状态并继续成为冠状病毒安全状态（COVIDSafe）。澳大利亚政府将提供有关未来几个月如何推出疫苗的更多信息。同时，每个人仍然需要：
+十世班禅的突然去世引发了许多传言和猜测。[西藏司政](https://zh.wikipedia.org/wiki/%E8%A5%BF%E8%97%8F%E5%8F%B8%E6%94%BF)[洛桑森格](https://zh.wikipedia.org/wiki/%E6%B4%9B%E6%A1%91%E6%A3%AE%E6%A0%BC)表示：“51岁的十世班禅仁波切在西藏日喀则扎西伦布寺的德庆格桑颇彰新宫，不明不白地突然圆寂。” 对此，十世班禅的女儿不发表评论，依然认为十世班禅的死是由于身体差、极度[超重](https://zh.wikipedia.org/wiki/%E8%B6%85%E9%87%8D)和慢性[失眠](https://zh.wikipedia.org/wiki/%E5%A4%B1%E7%9C%A0)所致。
 
-保持良好的卫生习惯 保持身体距离
+（本文纯属个人观点）
 
-如果你生病了要待在家里并得到测试
+视频剪辑来自：[https://youtu.be/VtuDIj2ANTs](https://youtu.be/VtuDIj2ANTs)
 
-下载COVIDSafe应用。
+相关引用链接：
 
-Reference:
+[https://m.bilezu.com/html/16046046.html](https://m.bilezu.com/html/16046046.html)
 
-health.gov.au., (2021). Who will get the vaccines. [online]. health.gov.au. [Viewed 28 January 2021]. Available from: [https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/getting-vaccinated-for-covid-19/who-will-get-the-vaccines](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/getting-vaccinated-for-covid-19/who-will-get-the-vaccines)
+[https://iask.sina.com.cn/b/4HkJ2XeCud.html](https://iask.sina.com.cn/b/4HkJ2XeCud.html)
 
-澳喜文章：
-
-[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
-
-欢迎加入澳喜农场： [https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_5335-3.jpg)
+[第十世班禅额尔德尼 – 维基百科，自由的百科全书](https://zh.wikipedia.org/wiki/%E7%AC%AC%E5%8D%81%E4%B8%96%E7%8F%AD%E7%A6%85%E9%A2%9D%E5%B0%94%E5%BE%B7%E5%B0%BC)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-澳喜Logo-1.jpeg)
 0
