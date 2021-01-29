@@ -1,32 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## COVID-19与人权：保护最弱势群体（重点节选）
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/837896/)
+## 辉瑞疫苗澳洲代表在疫苗推出前对害怕疫苗注射的人称： 我们不会将病毒置于你体内
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/837981/)
 
 撰稿人 喜妈 喜安娜
-![]()![](https://gnews.org/wp-content/uploads/2021/01/united-nations.jpg)图片来源: YouTube.com
-COVID-19危机作为被认为是极度不平等的时期，正在考验世界的人性和快速恢复能力。由于大流行的社会经济影响严重打击了弱势群体和边缘化群体，企业可以加倍努力来支持有需要的社区。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_0233.jpg)图片来源: 7news.com.au
+最近，制药巨头的COVID-19疫苗获准在澳大利亚使用。辉瑞澳大利亚公司的董事总经理在接受Sunrise媒体采访时承认，某些人在接受这家制药巨头的COVID-19疫苗时可能会出现副作用，但这是人体产生免疫反应的原因。
 
-我们对这种流行病的应对必须包括-实际上是集中于-那些社会经常忽视或降级为低等地位的人。否则，它将失败。 3月中旬，联合国人权事务高级专员米歇尔·巴切莱特（Michelle Bachelet）敦促：每个人的健康与社区中最边缘化成员的健康息息相关。
-如果没有足够的资源来保护自己免受健康风险，获得医疗保健或购买必需品的费用，许多人将发现自己处于不稳定的境地。随着世界范围内令人震惊的工作机会流失，在这种情况下的人数将不可避免地增加。
+她在采访中解释了注射的工作原理并提及存在对可能产生副作用的担忧。 辉瑞疫苗已获得治疗药物管理局（TGA）的临时批准，适用于16岁以上的澳大利亚人。
 
-我们学到了什么？
+检疫和边境人员，一线卫生工作者以及老年护理和残疾人员和居民将是从2月下旬开始抢劫的第一批人。
 
-- COVID-19危机凸显了我们社会中的缺陷，我们曾经知道它的存在，但未能解决，现在加剧了。尽管该病毒没有歧视性，但它的影响确实存在。而且在世界所有地区，处于脆弱境地的人们受到的影响最大。
-- 一个国家拥有的最大资产就是人民，因此，即使在经济困难时期和这次公共卫生危机中，国家和公司也必须遵守《联合国企业与人权指导原则》，以保护这一人力资本。
-- 公私伙伴关系对于重新利用资产，技能和产品的努力至关重要。将生产转向必需品，例如肥皂和洗手液，以及公平分配此类产品至关重要。
-- 跨国公司呼吁尽可能避免取消订单，以控制工人在其供应链中的困境。
-- 由于我们仍未步入正轨，因此可持续发展目标应继续作为我们的路线图，而体面劳动，气候，不平等和贫困的挑战依然存在。这些挑战仍然需要政治意愿和资源来克服。
-- 多边主义与以往一样重要。为了克服这一全球危机，需要基于全球合作与团结的真正全球对策。我们需要使国家对策国际化。这场危机影响着我们所有人，我们必须采取集体行动来解决它，并使它更好地恢复。
-- 保护大流行中最脆弱的人群与保护那些易受气候变化影响的人群紧密相关。我们可以花时间了解并采取具体行动来减轻气候危机的危害，以减少更多的生命和生计损失。
-- 那些希望取得成功的企业需要将利益相关者置于股东之上，这是COVID-19之后的关键一步。
-- 保护妇女和女童的权利至关重要。妇女和女童的照料负担过大，家庭暴力，失业和经济不安全的风险更大。需要更加重视为他们提供安全的住所，替代性就业，获得WASH的机会和社会保护。
+哈里斯说，她对澳大利亚的医疗监管机构认为“我们的疫苗安全有效”感到“非常自豪”。 她谈到疫苗开发时说：“这是一项非凡的努力。” “当我们的首席执行官在去年三月站起来并说我们将在一年内使用所有可能的资源来找到疫苗时，我认为这震惊了所有人，这是前所未有的。”
 
+哈里斯说，辉瑞疫苗是基于mRNA技术的，该技术可以向人体提供制造冠状病毒刺突蛋白所需的遗传指令，然后产生免疫反应。 如果您遇到COVID-19病毒，其想法是“启动免疫系统”以发起保护性免疫反应。 我们不会将病毒带入您的体内，我们发送的是向您的身体传达一条信息，其中包含创建刺突蛋白的说明，然后您的身体会做出反应。” 她说，辉瑞注射的“价值”在于科学家可以“简单地改变信息或说明”来对抗COVID-19突变株。
 
-Reference:
+哈里斯（Harris）证实，某些人可能会在不久出现副作用，包括手臂酸痛，发烧和肌肉酸痛。 她解释说：“这就是您的身体告诉您它正在产生免疫反应的方式。” 极少数人可能会对药物产生严重的过敏反应。 哈里斯说，这就是为什么疫苗是由训练有素的医学专家在“监督”下给予疫苗的原因。希望这将减轻人们的困扰。
 
-UN Global Compact Academy., (2021). COVID-19 and Human Rights: Protecting the Most Vulnerable. [online]. unglobalcompact.org. [Viewed 29 January 2021]. Available from: [https://unglobalcompact.org/academy/covid-19-and-human-rights-protecting-the-most-vulnerable](https://unglobalcompact.org/academy/covid-19-and-human-rights-protecting-the-most-vulnerable)
+Reference：
+
+Goodall. H., (2021). ‘We’re not putting the virus in your body’: Pfizer Australia boss addresses jab jitters ahead of rollout. [online]. 7news.com.au. [Viewed 29 January 2021]. Available from: [https://7news.com.au/sunrise/on-the-show/pfizer-boss-addresses-concerns-about-covid-19-jab-ahead-of-australian-rollout-c-2030726](https://7news.com.au/sunrise/on-the-show/pfizer-boss-addresses-concerns-about-covid-19-jab-ahead-of-australian-rollout-c-2030726)
 
 澳喜文章：
 
