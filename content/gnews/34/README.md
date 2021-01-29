@@ -1,24 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/01/28 疫情下墙国中的人生百态
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/832447/)
+## 二十多名法国警官违反病毒防护规定面临内部处罚
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/836315/)
 
-翻译：yyshere | 校对：CharlesS
-
-## 舆论作秀：6岁儿童检测现场当义工
-
-中共宣传机构、社区机构为了舆论造假需求，竟让6岁儿童到极易感染病毒的大规模核算检测现场当志愿者，又一现实版人血馒头。孩子的父母也是在中共洗脑下没有是非判断力
-
-## 华南海鲜市场现状 ，WHO去检验拆迁现场？
-
-近日，有武汉市民拍摄了华南海鲜市场的现状。海鲜市场内部早已于去年3月初被拆除、多次消毒。世卫组织来中共国调查不过是配合中共作秀而已，而华南海鲜市场可能也只是假的第一现场。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+- 编辑：Victor Torres
 
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2021年1月28日电/西喜社——**至少有二十多名法国警官因在警察局内举行派对，被拍到跳马卡丽娜舞，违反多项病毒防护规定而面临内部处罚。
+
+警察总部发言人表示，参与巴黎郊区奥贝维利耶派对的人员被命令就其行为提交报告，”计划进行制裁”。
+
+在网上发布的一段活动视频中，可以看到几个人在一个拥挤的房间里没有戴口罩，紧密地跳着舞。
+
+这段视频引发了批评，当时法国警方正在执行晚上6点到早上6点的病毒宵禁，并因在暴力抗议和身份检查中滥用职权而受到审查。
+
+**新闻来源：**[https://apnews.com/article/world-news-japan-vietnam-coronavirus-pandemic-d4132018158671ef68451fad17ecd61c](https://apnews.com/article/world-news-japan-vietnam-coronavirus-pandemic-d4132018158671ef68451fad17ecd61c)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/810cfb7f-b40f-42d9-b626-c3b2727ad0c0-4.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+
 0

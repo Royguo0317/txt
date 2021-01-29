@@ -1,45 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲健康部最新疫苗接种政策解读之三：优先群体可望从2021年初开始接种疫苗
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/832646/)
+## 默克尔扛起了亲共大旗
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/836459/)
 
-撰稿人：喜妈
-![]()![](https://gnews.org/wp-content/uploads/2021/01/covid-2-1.png)图片来源：canva.com
-澳大利亚政府以及州和领地政府正在共同努力，计划安全有效地推广已批准的疫苗。澳大利亚免疫技术谘询小组（ATAGI）已向澳大利亚政府提供建议，指出应优先考虑在澳大利亚首次接种COVID-19疫苗的群组。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-澳大利亚政府以及州和领地政府正在共同努力，计划安全有效地推广已批准的疫苗。澳大利亚免疫技术谘询小组（ATAGI）已向澳大利亚政府提供建议，指出应优先考虑在澳大利亚首次接种COVID-19疫苗的群组。
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Snipaste_2021-01-28_20-04-51-5.png)[rt.com](https://www.rt.com/news/170868-merkel-spy-scandal-serious/)
+随着全世界对邪共恶行的清醒和认知，要对恶魔清算的时候，受惠于恶魔（暂时）利益的德国总理默克尔站出来，为中共背书。
 
-随着更多信息的获得，这些群体可能会发生变化 ATAGI正在不断审查疫苗的数据和证据，并可能在获得新信息后更新其对政府的建议。如果优先级群组有任何变化，我们将更新我们的信息。 可以更改优先级组的信息包括： 有关COVID-19疾病和可能受到不成比例影响的人群的进一步证据
+《政治》（Politico）发文透露，“德国总理默克尔星期二拒绝了欧洲在美国和中共国之间选边站的呼吁，以此回应了中共国主席习近平前一天提出的抗辩。”
 
-根据临床试验结果，疫苗如何起作用以及对谁安全？
+默克尔支持习近平避免（建立）冷战集团的观点，文章说，这位德国总理对对立派系表现出谨慎态度。虽然美国总统拜登（Joe Biden）的政府正寻求将民主国家聚集在一起遏制中共国，但默克尔对派系的形成持明显的谨慎态度。默克尔在达沃斯世界经济论坛上说：“我非常希望避免建立集团。”我认为，如果我们说这是美国，那边是中（共）国，而我们是围绕这一个或那一个来分组的话，这对许多社会都是不公平的，这不是我对事情应该怎样的理解。”
 
-COVID-19的最新暴发，传播和医疗建议
+在谈到习近平在同一论坛上的讲话时，默克尔说：“中（共）国国家主席昨天发表了讲话，他和我在这一点上意见一致，我们认为需要多边主义。”
 
-何时将在澳大利亚提供疫苗。
+“但有一个问题我们没有立即达成一致，可能是当你有不同的社会（制度）模式时意味着什么，对抗何时开始，何时结束？你什么时候支持不可分割的基本价值观？”她说。
 
-为什么优先考虑这些人群 全球对结束COVID-19大流行的安全有效疫苗的需求很大。随着疫苗的普及，将向高风险人群提供疫苗。
+默克尔说，她对欧中投资协议“非常满意”，理由是互惠互利、中（共）国国家补贴的透明度，以及开放 “更可预测的投资渠道……中（共）国有最先进的技术”。
 
-优先人群的确定要考虑到当前的公共卫生，医学和流行病学证据，即谁感染了COVID-19谁将受到最大影响。例如，卫生和老年护理工作者是优先考虑的人群，因为他们与人频繁接触，因此极有可能感染COVID-19。他们还更有可能通过他们在医院和老年护理机构中的工作将病毒传播给弱势人群。优先考虑该人群的疫苗接种对所有人都有好处，以便他们可以继续提供基本护理。
+她还呼吁拜登领导的新一届美国政府在向数字公司征税问题上与欧盟达成共识，他们周一通了电话。
 
-这对你意味着什么
+中共制造生物武器，向全世界撒毒，实施种族灭绝，因为有“非常满意”的中欧协议，你就视而不见，为邪恶撑腰。当一边代表了正义，一边是恶魔的化身，你不选边，这就是你默克尔的本质！
 
-无论您是否在优先组中，最好的事情就是保持最新状态并继续成为冠状病毒安全状态（COVIDSafe）。澳大利亚政府将提供有关未来几个月如何推出疫苗的更多信息。同时，每个人仍然需要：
+参考链接：
 
-保持良好的卫生习惯 保持身体距离
+[https://www.politico.eu/article/merkel-sides-with-xi-on-avoiding-cold-war-blocs/](https://www.politico.eu/article/merkel-sides-with-xi-on-avoiding-cold-war-blocs/)
 
-如果你生病了要待在家里并得到测试
-
-下载COVIDSafe应用。
-
-Reference:
-
-health.gov.au., (2021). Who will get the vaccines. [online]. health.gov.au. [Viewed 28 January 2021]. Available from: [https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/getting-vaccinated-for-covid-19/who-will-get-the-vaccines](https://www.health.gov.au/initiatives-and-programs/covid-19-vaccines/getting-vaccinated-for-covid-19/who-will-get-the-vaccines)
-
-澳喜文章：
-
-[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
-
-欢迎加入澳喜农场： [https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_5335-3.jpg)
-0
++4
