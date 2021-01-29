@@ -1,70 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中欧投资协议将使西方万劫不覆
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/835678/)
+## CPDC呼吁拜登认定中共为跨国犯罪组织
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/835905/)
 
-*新闻来源：《NewEurope》| 作者：Robert Tyler | 发布时间：2021年1月23日*
+俄罗斯莫斯科喀秋莎农场 文强
 
-*翻译/简评：helloworld | 校对：Beicy-数学老师 | 审核：freedust | Page：Daoiii*
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/下载-8.png)[centerforsecuritypolicy.org](https://www.centerforsecuritypolicy.org/2020/03/02/cpdc-briefs-at-cpac-in-maryland-on-the-present-and-growing-danger-from-china/)
+当前危险委员会（CPD），是美国的一个右翼外交政策团体，目的是游说美国政府，采取行动应对美国及其势力范围面临的当前危险。在美国历史上，此类委员会一共组建和发起过四次。第二次“应对当前危险委员会”曾帮助里根政府解体苏共。第四次委员会发起于2019年3月25日，全称为“当前危险委员会：中国”（CPDC），目标是解体中共。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/TZeuZQMhxopQK/images/2d63fb52-46ef-42c1-88e4-351cd529700b.jpg?asset_id=f154d229-d528-43b1-8c18-6cfa2433f258&amp;img_etag=%225d249690590ca2e4ebdf8c6cabc22d00%22&amp;size=2560)](https://spark.adobe.com/page/TZeuZQMhxopQK/images/2d63fb52-46ef-42c1-88e4-351cd529700b.jpg?asset_id=f154d229-d528-43b1-8c18-6cfa2433f258&amp;img_etag=%225d249690590ca2e4ebdf8c6cabc22d00%22&amp;size=1024)
+1月25日美国应对中共当前危机委员会（CPDC）发布“中共对维族人的种族灭绝”短片，并呼吁拜登总统应立即将中共定义为非法跨国犯罪组织。
 
-***简评：***
+这个13分钟的视频名为“偷偷和沉默：中共对维吾尔族的种族灭绝”，记录了中共对个人受害者、他们的家人和社区制造的苦难，为中共的种族灭绝和反人类罪提供了有力支持。前国务卿蓬佩奥在其任期最后一日宣布中共对维族人犯下种族灭绝罪和反人类罪。在本周参议院确认听证会上，拜登总统提名的国务卿布林肯（Anthony Blinken）和财政部长耶伦（Janet Yellen）也迅速认可了这一认定。
 
-**前段时间，在美国大选激战正酣、保守势力与激进势力激烈冲突、彭培奥国务卿与中共国外交官员争相向欧盟游说之后，欧盟委员会宣布了此项协议。协议名义上创造了投资和就业机会，将中共国工人和产品带向人权和自由受法律保护的欧洲，但是协议实际将会为中共国国内人权侵犯以及强迫劳动行为开绿灯，而且中共国企业有着丰富的压制员工经验，而且还有其在中共国家人作为人质，员工在欧洲能否真正享受人权和自由也存在着疑虑。而这种投资模式并不能够为欧洲民众创造就业机会，根据中共国一带一路的很多例子，反而会成为当地无法承受的债务包袱，从而损害合作国家的利益。**
+该视频展示了维吾尔人和其他少数民族如何遭受残酷的监禁、强迫劳动和可怕的社会政策，这些政策不仅旨在消灭他们的文化和信仰，而且正如蓬佩奥所说的，中共政策旨在“有计划地摧毁维吾尔族”。影片将新疆省描述为一个被监控地区、一个虚拟监狱，每个公民可以被政府摄像机进行追踪，并根据他们的活动获得社会信用评分。那些因祈祷或有着不被中共允许的行为者长期遭受殴打、强奸、监禁甚至杀害。
 
-**可能出于对美国将放弃欧洲合作的忧虑（川普政府在任时与欧盟摩擦不断），包括本文作者也猜测欧盟此举是为了找一条能够利于自身的出路。而在受欧洲政治家普遍表示欢迎的拜登政府上台，重新拥抱国际秩序（包括WHO、UN等）之后，欧美关系可能将升温。而这项难产至今，又饱受争议的协议多半会因此而被废止。而拜登政府仍然维持了川普政府对于中共国威胁和种族灭绝的认定，未来对中共的追责将产生巨大的政治和经济利益。与美国保持一致，共同声讨中共，想必会是欧盟政府更加明智、现实且获益更大的选择。**
+不幸的是，这些只是中共在中华人民共和国和世界范围内，包括在美国境内，违反美国规范、法令和（或）国际法而犯下的数不清的罪行的冰山一角。因此据前总统川普的13773号行政命令，执行联邦法律中对跨国犯罪组织和防止国际非法交易的规定，中共将被恰当地描述为跨国犯罪组织（TCO）。
 
-***原文翻译：***
+根据第13773号行政命，联邦政府先前已确定多个实体为跨国犯罪组织，包括真主党（Hezbollah），时任总检察长杰夫•塞申斯（Jeff Sessions）于2018年10月15日将真主党指定为跨国犯罪组织。此后，继任的美国官员将目光投注到了中共恶行，并多次公开描述了中共的各种犯罪活动，为宣布中共为种族灭绝罪奠定了基础。
 
-# **中欧投资协议对西方是一场灾难**
+中共现在已经正式被认定为国家资助的种族灭绝罪，将中共指定为跨国犯罪组织继而有成为非法政权指日可待。这将阻止美国个人和实体参与任何与中共相关的企业及活动，否则将被认定为中共帮凶。2020年7月23日民众表达了对这种认定的普遍支持，CPDC呼吁拜登总统应立即执行。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/TZeuZQMhxopQK/images/ef95336e-cbf5-47ad-a638-11368984f33f.png?asset_id=36c4b24d-e9db-44e8-a5ee-03046987668c&amp;img_etag=%22b6fde66499113ffac861463d19c94428%22&amp;size=2560)](https://spark.adobe.com/page/TZeuZQMhxopQK/images/ef95336e-cbf5-47ad-a638-11368984f33f.png?asset_id=36c4b24d-e9db-44e8-a5ee-03046987668c&amp;img_etag=%22b6fde66499113ffac861463d19c94428%22&amp;size=1024)
+资料来源：
 
-与中共国主席习近平举行虚拟峰会后，欧盟委员会主席乌尔苏拉·格特鲁德·冯德莱恩(Ursula von der Leyen)在新闻发布会上发表讲话（欧洲新闻图片社-艾菲通讯社 Yves Herman）
+[RELEASE: Committee Welcomes Designation of CCP Uyghur Persecution as Genocide, Releases Documentary Video Confirming This Crime Against Humanity – Committe on the Present Danger: China](https://presentdangerchina.org/release-committee-welcomes-designation-of-ccp-uyghur-persecution-as-genocide-releases-documentary-video-confirming-this-crime-against-humanity/)
 
-在2020年12月，由冯德莱恩(Ursula von der Leyen)、米歇尔(Charles Michel)、习近平、安格拉·默克尔(Agnela Merkel)和埃马纽埃尔·马克龙(Emmanuel Macron)主导的联合虚拟新闻发布会上宣布了《中欧综合投资协议》(EU-China Comprehensive Investment Agreement)。这项协议对于西方世界是一场灾难。它未能解决中共国对人权的侵犯。它没有触及到强迫劳动（奴隶制）的问题。它使专制政权合法化。最重要的是，它也没能为欧洲人创造承诺的工作机会。
+[https://zh.wikipedia.org/wiki/%E5%BD%93%E5%89%8D%E5%8D%B1%E9%99%A9%E5%A7%94%E5%91%98%E4%BC%9A](https://zh.wikipedia.org/wiki/%E5%BD%93%E5%89%8D%E5%8D%B1%E9%99%A9%E5%A7%94%E5%91%98%E4%BC%9A)
 
-这项尚未对公众及欧洲议会成员公开的投资协议，被认为是中共国对欧盟进行投资的一种新的手段。从表面上看，这似乎是个不错的协议。但是，根据少数查看过协议文本的人所撰写的文章描述，该协议具有一些附带条件。
+[https://www.secretchina.com/news/gb/2019/04/02/889221.html](https://www.secretchina.com/news/gb/2019/04/02/889221.html)
 
-其中最主要的是，协议要求，欧盟不会强迫中共国签署国际劳工组织(ILO) 关于废除强迫劳动公约。这意味着中国共产党获得了在全国使用维吾尔族和藏族进行强迫劳动的通行证。
-
-最新证据表明，中共国在“再教育营”中关押了近300万藏族和维吾尔族人。他们被派往全国各地（不止他们的家乡）并被作为廉价强迫劳力使用。通常，他们从事着重体力活，比如棉花采摘工人或建筑工人，并且缺乏适当的装备以及工间休息。其他人则被安插在全国各地的工厂中从事制造工作。根据澳大利亚政府的报告，据称有欧洲大型汽车行业公司的中共国合作伙伴被发现正在使用维吾尔劳工。
-
-美国和英国对于这些指控反应迅速。他们全面禁止了从中共国进口的农产品，包括棉花在内。在禁止进口强迫劳动生产的产品的同时，他们还判罚了使用这些强迫劳动产品的政府的罪责，并施以高额罚款。相比之下，欧盟尚未出台任何此类禁令。
-
-同样，该协议也没能保护作为因协议安排，将要进入欧盟的中共国工人的权利。该协议泄露的条款之一写道，无限量的中共国工人能够与他们的公司一起来到欧盟，并最多停留三年。这是加拿大人、英国人甚至美国人都没有的权利。然而，已在欧盟的中共国工人是否拥有所声称的权利也令人怀疑。华为前雇员最近发表了一篇文章，暴露了华为压制工人的企业文化。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/TZeuZQMhxopQK/images/135a06dd-5eda-4bf0-aa71-6c221b996ef5.jpg?asset_id=092b98f0-7297-4306-ac0f-516f07900b10&amp;img_etag=%22fb67a4e0183e2974c8ccc5aad8b4bd62%22&amp;size=3047)](https://spark.adobe.com/page/TZeuZQMhxopQK/images/135a06dd-5eda-4bf0-aa71-6c221b996ef5.jpg?asset_id=092b98f0-7297-4306-ac0f-516f07900b10&amp;img_etag=%22fb67a4e0183e2974c8ccc5aad8b4bd62%22&amp;size=1024)
-
-在华为的一个欧洲办公室，中共国的工人，无论履历如何，都与欧洲人在不同的楼层工作。他们被禁止与欧洲人建立恋情。那些以身犯险的人将被召回中共国，而若拒绝召回则会面临解雇风险。西班牙曾发生过一起重大事件，一名中共国工人因流产及后续治疗请假，结果招致公司开除。实际上，欧洲的中共国工人已被胁迫。他们孤立无援，无法与欧洲同事互动。工会发现员工担心牵连在中共国的家人，害怕寻求工会代表本人讨回公道，因此很难采取实际行动解决这些问题。
-
-更重要的是，如果中共国投资的项目使用来自中共国工人，那么何谈为欧洲创造就业机会呢？在世界其他地方，我们已经看到当中共国公司迁入，并带来自己员工时将发生什么。在南亚和非洲，中共国的投资并没有为当地工人创造新的就业机会，而是创建了由公司所带来的员工管理的、事实上的殖民哨所。在斯里兰卡，一座建于加勒(Galle)南部海岸的充满前途的新海港陷入了债务陷阱的噩梦。它由中共国出资建造，聘用中共国员工，最终成为了中共国经营的港口。
-
-除了对协议内容的担忧外，布鲁塞尔还应该更加关注协议对于价值观的影响。对于欧盟来说，签署这项《综合投资协议》，相当于给予了北京共产政权一张通行证，让其能够继续镇压少数民族和民主改革者。“行为将招致后果”的理念并未在其中彰显，相反，这项协议对世界传递了一个信息，如果你虐待、压制人民并破坏其基本权利，我们将不会惩罚你，我们将通过贸易协议奖励你。
-
-看起来，这整个协议就是欧盟委员会的另一个皇帝的新衣，而其他欧洲国家选择忽略这一点。他们试图批准的协议破坏了欧洲联盟理应捍卫的每一种价值。它撕毁了《欧洲联盟基本权利宪章》(Charter on Fundamental Rights)，使对基督徒、维吾尔人、藏人、港人、民主人士、哈萨克人和乌兹别克人的虐待合法化，而其中很多人目前仍关押在中共控制的拘留营中。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/TZeuZQMhxopQK/images/abad6b69-982e-47ae-a0d8-627fa097862c.png?asset_id=3aecf806-e83a-4ba5-ac97-1cef9ec1b04a&amp;img_etag=%22ead42ace0600591a9a1e67789e6fa3d5%22&amp;size=2560)](https://spark.adobe.com/page/TZeuZQMhxopQK/images/abad6b69-982e-47ae-a0d8-627fa097862c.png?asset_id=3aecf806-e83a-4ba5-ac97-1cef9ec1b04a&amp;img_etag=%22ead42ace0600591a9a1e67789e6fa3d5%22&amp;size=1024)
-
-2020年12月30日于布鲁塞尔举行的视频会议 从左至右：中共国国家主席习近平，欧洲理事会主席夏尔·米歇尔(Charles Michel)，德国总理安格拉·默克尔(Angela Merkel)，法国总统埃马纽埃尔·马克龙(Emmanuel Macron)，欧盟委员会主席乌尔苏拉·冯德莱恩(Ursula von der Leyen) （欧洲新闻图片社-艾菲通讯社 Johanna Geron）
-
-当那么多人被关押在古拉格（Gulags，苏联版集体农场）并被强迫劳动时，当无数人没有集会和言论自由时，无法想象欧盟会和苏联或者霍克沙的阿尔巴尼亚达成这样的协议。但是，习近平领导的中共国，正施行着与这些政权相同的专制主义。
-
-为什么今天欧洲愿意放弃自己的价值，而去获取一项不会惠及所有人的交易，并为中共国的投资提供了比英国、美国、日本、韩国和澳大利亚更加容易的途径？由于执著于开拓其自己的路径，欧盟选择背弃了其民主盟友。
-
-与其优先选择与日本、韩国、台湾、美国、澳大利亚和英国这样的，有共同价值的国家进行贸易和投资，欧盟选择了将一个对其构成生存威胁的政权合法化。欧盟委员会应认真考虑其外交政策优先事项，而且最起码欧洲议会必须否决这一灾难性的协议。
-
-**🔗[原文链接](https://www.neweurope.eu/article/the-eu-china-investment-agreement-is-a-disaster-for-the-west/)**
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
-
-
-编辑：[【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/TZeuZQMhxopQK/)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/TZeuZQMhxopQK/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/TZeuZQMhxopQK/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-0
++1
