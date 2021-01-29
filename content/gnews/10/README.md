@@ -1,25 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 调查显示香港民众不信任中共疫苗
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/837699/)
+## 辉瑞疫苗澳洲代表在疫苗推出前对害怕疫苗注射的人称： 我们不会将病毒置于你体内
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/837981/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+撰稿人 喜妈 喜安娜
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_0233.jpg)图片来源: 7news.com.au
+最近，制药巨头的COVID-19疫苗获准在澳大利亚使用。辉瑞澳大利亚公司的董事总经理在接受Sunrise媒体采访时承认，某些人在接受这家制药巨头的COVID-19疫苗时可能会出现副作用，但这是人体产生免疫反应的原因。
 
-编辑   水星   上传    银河
-![]()![](https://cdn.discordapp.com/attachments/799010586356351066/804469405773463632/H.JPG)uk.sports.yahoo.com
-香港(路透社)1月28日报道，香港大学(University of Hong Kong)本月对多达1000人进行的调查显示，香港民众对中共病毒疫苗的接受度普遍很低，只有46%的人可能接种疫苗，其中香港人对中共制造的中共病毒疫苗信任度低于欧洲和美国制造的疫苗。
+她在采访中解释了注射的工作原理并提及存在对可能产生副作用的担忧。 辉瑞疫苗已获得治疗药物管理局（TGA）的临时批准，适用于16岁以上的澳大利亚人。
 
-在2020年，北京方面因掩盖疫情真相并压制“吹哨者”的声音受到国际社会的严厉谴责。为改善负面国际形象，中共展开“疫苗外交”，向中低收入国家提供了数亿剂中共国制造的疫苗。中共推广疫苗时经常使用“可获得性”和“可负担性”，试图利益吸引、满足中等收入国家的需求来巩固其“战略终局”。
+检疫和边境人员，一线卫生工作者以及老年护理和残疾人员和居民将是从2月下旬开始抢劫的第一批人。
 
-洛伊研究院（Lowy Institute）权力与外交项目的研究助理阿里萨·冷（Alyssa Leng）表示，类似于“一带一路”倡议旨在通过基础设施项目取得成果的方式，疫苗是中共国实现其海外目标的另一个非常切实的途径。从短期来看，疫苗外交可能助中共国加强其全球领导力。
+哈里斯说，她对澳大利亚的医疗监管机构认为“我们的疫苗安全有效”感到“非常自豪”。 她谈到疫苗开发时说：“这是一项非凡的努力。” “当我们的首席执行官在去年三月站起来并说我们将在一年内使用所有可能的资源来找到疫苗时，我认为这震惊了所有人，这是前所未有的。”
 
-然而，中（共）国科兴生物近日公布与巴西合作研发疫苗的临床试验结果表明其疫苗有效率仅达50.4%，相较于辉瑞、莫德纳、牛津疫苗能达到90%以上，有效率明显偏低，中共研发疫苗还普遍缺少三期试验的数据。中共想用自制疫苗进行“疫苗外交”，如今仍需要面对信任危机。
+哈里斯说，辉瑞疫苗是基于mRNA技术的，该技术可以向人体提供制造冠状病毒刺突蛋白所需的遗传指令，然后产生免疫反应。 如果您遇到COVID-19病毒，其想法是“启动免疫系统”以发起保护性免疫反应。 我们不会将病毒带入您的体内，我们发送的是向您的身体传达一条信息，其中包含创建刺突蛋白的说明，然后您的身体会做出反应。” 她说，辉瑞注射的“价值”在于科学家可以“简单地改变信息或说明”来对抗COVID-19突变株。
 
-香港大学医学院院长梁伯韬教授在关于调查结果的新闻发布会上说，他认为只有开放，让科学真正发挥主导作用才能弥补中共疫苗的信任赤字。然而，对只认可政治正确、以假治国起家的中共政权，这个要求实数难上加难。
+哈里斯（Harris）证实，某些人可能会在不久出现副作用，包括手臂酸痛，发烧和肌肉酸痛。 她解释说：“这就是您的身体告诉您它正在产生免疫反应的方式。” 极少数人可能会对药物产生严重的过敏反应。 哈里斯说，这就是为什么疫苗是由训练有素的医学专家在“监督”下给予疫苗的原因。希望这将减轻人们的困扰。
 
-参考链接：
+Reference：
 
-[Polls shows Hong Kong residents’ distrust of Chinese vaccines | Reuters](https://www.reuters.com/article/us-health-coronavirus-hongkong/polls-shows-hong-kong-residents-distrust-of-chinese-vaccines-idUSKBN29X10P)
+Goodall. H., (2021). ‘We’re not putting the virus in your body’: Pfizer Australia boss addresses jab jitters ahead of rollout. [online]. 7news.com.au. [Viewed 29 January 2021]. Available from: [https://7news.com.au/sunrise/on-the-show/pfizer-boss-addresses-concerns-about-covid-19-jab-ahead-of-australian-rollout-c-2030726](https://7news.com.au/sunrise/on-the-show/pfizer-boss-addresses-concerns-about-covid-19-jab-ahead-of-australian-rollout-c-2030726)
 
+澳喜文章：
+
+[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+
+欢迎加入澳喜农场： [https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_5335-3.jpg)
 0
