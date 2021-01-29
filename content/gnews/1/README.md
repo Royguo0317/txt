@@ -1,16 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## COVID-19与人权：2020年疫情观察
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/839028/)
+## （深度报道）美国指责中国进行种族灭绝。现在它将抵制2022年北京奥运会吗？（第一部分）
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/839463/)
 
-撰稿&翻译：喜妈
+撰稿人：喜妈 喜安娜
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_0238.jpg)图片来源：edition.cnn.com
+美国认定中国将在新疆进行种族灭绝，对准备参加2022年北京冬季奥运会的运动员和国家来说，是一个罕见的道德困境。即将卸任的美国国务卿迈克·蓬佩奥（Mike Pompeo）在特朗普政府的最后一天宣布了这一消息，提请世界对中国遥远西部的维吾尔族少数民族系统性虐待的关注。
 
-视频剪辑：喜安娜
+该指控是美国国务院自2016年以来的第一个，当时美国国务卿约翰·克里（John Kerry）确定ISIS在伊拉克和叙利亚犯下的暴行属于种族灭绝，而且仅在少数情况下，美国政府就将该术语应用于持续的危机。
+
+联合国将种族灭绝定义为“意图全部或部分消灭一个民族，种族，种族或宗教团体”，尽管美国的确认不会立即引发任何惩罚，但它将对任何种族灭绝者施加压力。与中国开展业务-包括90个左右的国家/地区，这些国家/地区将在明年2月派遣运动员参加冬季奥运会。
+
+人权观察高级中国研究员王玛雅说：“目前，与中国政府进行的任何形式的重大接触都面临着很大的压力，涉及到贷款的合法性。” 美国运动员在一个被指控正在进行种族灭绝国家的首都竞争的前景，将甚少在华盛顿就人权承诺上发出混淆的信息。
+
+北京长期以来一直否认种族灭绝的说法，声称其在新疆的政策是大规模消除基层化和减轻贫困计划的一部分。上周，中国外交部的一位女发言人指责庞培传播“有毒的”谎言，邀请人们到新疆“用自己的眼睛看”。
+
+澳大利亚，英国，加拿大和美国的政客公开提出了2022年不派遣运动员前往北京的希望。去年3月，由共和党人里克·斯科特（Rick Scott）领导的12名美国参议员提交了一项两党决议，要求国际奥委会（IOC）从中国撤出2022年奥运会，并重新启动招标程序。但是到目前为止，还没有政府或国家体育主管部门正式宣布退出。
+
+CNN已向美国奥林匹克和残奥会委员会（USOPC）征求意见。国际奥委会在给美国有线电视新闻网的声明中说，它已经收到中国当局的“保证”，认为在北京2022年奥运会上将遵守《奥林匹克宪章》的原则。声明说：“将奥运会授予国家奥委会并不意味着国际奥委会同意其国家的政治结构，社会环境或人权标准。”
+
+活动人士和专家说，美国的指控无疑会加剧要求至少部分抵制奥运会的呼吁。 2020年9月，全球160多个人权团体致信国际奥委会，以改变其在北京举行2022年奥运会的决定。国际藏网的执行主任曼迪·麦基文（Mandie McKeown）对此信进行了协调。他说，如果现在将它们写成另一组信，“无疑”组织的数目将会更多。她说，如果不能取消奥运会，那么她的组织正在倡导以外交方式抵制该赛事，这将允许各队参加而世界领导人不参加比赛。麦克基恩说：“外交抵制的推动力肯定在增加，而且（政府）的声音是积极的。”
 
 Reference：
 
-Meyers-Belkin. H., (2021). From Covid-19 pandemic to repression of Uighurs in China: Human Rights Watch on 2020. [online]. france24.com. [Viewed 29 January 2021]. Available from: [https://www.france24.com/en/tv-shows/perspective/20210114-from-covid-19-pandemic-to-repression-of-uighurs-in-china-human-rights-watch-on-2020](https://www.france24.com/en/tv-shows/perspective/20210114-from-covid-19-pandemic-to-repression-of-uighurs-in-china-human-rights-watch-on-2020)
+Westcott. B., (2021). The US has accused China of carrying out genocide. Will it now boycott the 2022 Beijing Olympics?. [online]. edition.cnn.com. [Viewed 29 January 2021]. Available from: [https://edition.cnn.com/2021/01/26/sport/china-xinjiang-olympics-genocide-boycott-2022-intl-hnk/index.html](https://edition.cnn.com/2021/01/26/sport/china-xinjiang-olympics-genocide-boycott-2022-intl-hnk/index.html)
 
 澳喜文章：
 

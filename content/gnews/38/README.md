@@ -1,26 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 卢比奥呼吁两党在处理对华问题上达成共识
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/837093/)
+## 蓬佩奥的政治新领域&#8211;哈德逊研究所
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/837244/)
 
-- 编辑：Victor Torres
+![]()![](https://gnews.org/wp-content/uploads/2021/01/capture-139-31.jpg)图片来源： [CNN](https://edition.cnn.com/2018/05/06/politics/trump-intelligence-brief-pompeo-haspel/index.html)
+雅虎新闻转发新闻网站《Axios》1月26日报道，美国前国务卿迈克·蓬佩奥（Mike Pompeo）即将加入保守派智库哈德逊研究所，从而借助该平台，继续积极参与政治领域的政策讨论以及保持与共和党主要金主的沟通和联系，更为其2024年总统大选铺路。
 
+从《Axios》获得的一份蓬佩奥的声明显示，蓬佩奥很高兴加入哈德逊研究所， 并期待为加强美国领导力和参与国际事务作出贡献。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+哈德逊研究所一直是美国政府大量政策提案的参与者，并为共和党募集相当数量的政治资金。该研究所更引以为傲的是在川普政府时期，它俨然成为了两党协商合作的论坛。哈德逊研究所董事会主席萨拉·梅·斯特恩（Sarah May Stern）表示，蓬佩奥出色的政绩以及他对实现美国价值观的承诺使他的加入成为一个令人振奋的合作机会。
 
-**西班牙2021年1月28日电/西喜社——**参议员马克·卢比奥(Marco Rubio)周三表示，乔·拜登政府在与中共国打交道时应该遵循 “两党共识”。
+值得注意的是，当拜登新政府上台后的第二天，蓬佩奥在他的推特里发了一个只有一个数字“1384天”的推文，这正是距离2024年总统大选所剩天数，预示着蓬佩奥非常有可能参与下一届总统大选的角逐。
 
-“过去四年，这里有一个变化是非常戏剧性的，那就是真的没有多少声音说我们应该保持对中共国的方式，”这位佛罗里达州的共和党人在福克斯新闻的 “福克斯与朋友 “中说。”我认为现在有广泛的一致意见，必须重新思考这个问题。”
+**评论**：蓬佩奥国务卿在离任的最后一天宣布，中共政权对中国包括维吾尔族在内的少数民族犯下了种族灭绝和反人类罪，这为美国下一步地对中共的战略定下了基调，并会影响随后多年的美国对华政策。对于蓬佩奥本人来说，无疑是他今后在政坛发展的最大政治资本。由于他对中共的强硬态度，蓬佩奥将得到共和党内反共派和军火商等金主的支持，同时，美国的选民对共产主义的反感与厌恶也将为他带来巨大民意，为其四年后的总统竞选助力！
 
-不过，他说，他担心政府可能会说正确的话，但不会真正致力于与中共国打交道，会有一些不认为美国和中国被锁定在这种 “战略竞争 “中的人被任命或安排到岗位上。
+[原文报道](https://news.yahoo.com/scoop-pompeo-stay-dc-join-001813864.html)
 
-不过，在世界范围内，各国都在担心中共国如何做生意，担心自己的供应链会受到伤害。
+翻译：Leigh寶寶
 
-“他们正在采取自己的步骤，”卢比奥说。”他们比我们小，他们的经济规模较小，所以他们必须平衡这一点，不能完全被切断，因为这会伤害他们的经济，但他们确实希望美国的领导力—5G就是一个很好的例子。”
+校对：沙拉猫
 
-**新闻来源：**[https://www.newsmax.com/t/newsmax/article/1007442?section=politics&keywords=competition-economy-keystone-pipeline&year=2021&month=01&date=27&id=1007442&oref=t.co](https://www.newsmax.com/t/newsmax/article/1007442?section=politics&amp;keywords=competition-economy-keystone-pipeline&amp;year=2021&amp;month=01&amp;date=27&amp;id=1007442&amp;oref=t.co)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
-
-0
++1

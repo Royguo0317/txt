@@ -1,26 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 二十多名法国警官违反病毒防护规定面临内部处罚
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/836315/)
+## 默克尔扛起了亲共大旗
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/836459/)
 
-- 编辑：Victor Torres
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Snipaste_2021-01-28_20-04-51-5.png)[rt.com](https://www.rt.com/news/170868-merkel-spy-scandal-serious/)
+随着全世界对邪共恶行的清醒和认知，要对恶魔清算的时候，受惠于恶魔（暂时）利益的德国总理默克尔站出来，为中共背书。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+《政治》（Politico）发文透露，“德国总理默克尔星期二拒绝了欧洲在美国和中共国之间选边站的呼吁，以此回应了中共国主席习近平前一天提出的抗辩。”
 
-**西班牙2021年1月28日电/西喜社——**至少有二十多名法国警官因在警察局内举行派对，被拍到跳马卡丽娜舞，违反多项病毒防护规定而面临内部处罚。
+默克尔支持习近平避免（建立）冷战集团的观点，文章说，这位德国总理对对立派系表现出谨慎态度。虽然美国总统拜登（Joe Biden）的政府正寻求将民主国家聚集在一起遏制中共国，但默克尔对派系的形成持明显的谨慎态度。默克尔在达沃斯世界经济论坛上说：“我非常希望避免建立集团。”我认为，如果我们说这是美国，那边是中（共）国，而我们是围绕这一个或那一个来分组的话，这对许多社会都是不公平的，这不是我对事情应该怎样的理解。”
 
-警察总部发言人表示，参与巴黎郊区奥贝维利耶派对的人员被命令就其行为提交报告，”计划进行制裁”。
+在谈到习近平在同一论坛上的讲话时，默克尔说：“中（共）国国家主席昨天发表了讲话，他和我在这一点上意见一致，我们认为需要多边主义。”
 
-在网上发布的一段活动视频中，可以看到几个人在一个拥挤的房间里没有戴口罩，紧密地跳着舞。
+“但有一个问题我们没有立即达成一致，可能是当你有不同的社会（制度）模式时意味着什么，对抗何时开始，何时结束？你什么时候支持不可分割的基本价值观？”她说。
 
-这段视频引发了批评，当时法国警方正在执行晚上6点到早上6点的病毒宵禁，并因在暴力抗议和身份检查中滥用职权而受到审查。
+默克尔说，她对欧中投资协议“非常满意”，理由是互惠互利、中（共）国国家补贴的透明度，以及开放 “更可预测的投资渠道……中（共）国有最先进的技术”。
 
-**新闻来源：**[https://apnews.com/article/world-news-japan-vietnam-coronavirus-pandemic-d4132018158671ef68451fad17ecd61c](https://apnews.com/article/world-news-japan-vietnam-coronavirus-pandemic-d4132018158671ef68451fad17ecd61c)
+她还呼吁拜登领导的新一届美国政府在向数字公司征税问题上与欧盟达成共识，他们周一通了电话。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/810cfb7f-b40f-42d9-b626-c3b2727ad0c0-4.jpg)
+中共制造生物武器，向全世界撒毒，实施种族灭绝，因为有“非常满意”的中欧协议，你就视而不见，为邪恶撑腰。当一边代表了正义，一边是恶魔的化身，你不选边，这就是你默克尔的本质！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+参考链接：
 
-0
+[https://www.politico.eu/article/merkel-sides-with-xi-on-avoiding-cold-war-blocs/](https://www.politico.eu/article/merkel-sides-with-xi-on-avoiding-cold-war-blocs/)
+
++4
