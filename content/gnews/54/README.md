@@ -1,86 +1,127 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 港府罔顾疫情所致民生困顿 斥巨资15亿进行基建
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/835879/)
+## 2021/01/25《新闻快递》GTV直播节目新闻整理
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/835681/)
 
-*新闻来源：HKFP《香港自由新闻》| 作者：Candice Chau 安迪斯•周| 发布时间：2021年1月27日*
+《新闻快递》栏目组：Beicy数学老师，文玉，1818；
 
-*翻译/简评：wmorpho | 校对：Beicy-数学老师 | 审核：freedust |Page：小雨*
+校对：宁缺；审核：海阔天空；Page: 1818
 
-#### 
+[!\[\]()!\[\](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/1bba31dd-d061-4981-80f7-6cf5ad053c11.png?asset_id=9b54ce98-2ed8-4469-a0a6-a2512fe9d7f0&amp;img_etag=%225a188d3fb975706240f42d3a2074164d%22&amp;size=2560)](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/1bba31dd-d061-4981-80f7-6cf5ad053c11.png?asset_id=9b54ce98-2ed8-4469-a0a6-a2512fe9d7f0&amp;img_etag=%225a188d3fb975706240f42d3a2074164d%22&amp;size=1024)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/012806-1.jpg)
+引言：
 
-**简评：**
+英国伦敦喜庄园GTV直播节目《新闻快递News Express》，每周一和周五英国时间18:30为战友带来美国、英国及国内的热点新闻及专题分享。
 
-香港政府无视百姓的苦难，拒绝对因CCP冠状病毒大流行被封锁的居民提供补偿，却通过了为巨型天桥提供15亿港元巨额费用的法案，行事风格与中共国无异，由此可见，香港已沦为中共国的一个普通城市，她已失去了东方明珠的风采，香港人民的苦难已经开始，而林郑月娥的罪恶也与日俱增。邵家臻批评林郑月娥不援助受病毒大流行影响的小企业，并说林郑月娥愿意在哪里花钱已表明了她的工作重点是什么。邵家臻还说：“我知道林郑月娥是天主教徒，我引用圣经的话送给她：你重视的宝藏在哪里，你的心也就在哪里。”作为天主教徒，林郑月娥令天主教蒙羞。同时香港也为世界上了惨痛的一课，那就是，一旦被中共国控制，人民将失去自由的权利与尊严的生活，反抗将异常的艰难，生不如死将是人们共同的心声！
+**[🔗GTV-UK-1号台精彩回看](https://gtv.org/video/id=600f11fdb819717e79b02c03)**
 
-**原文翻译：**
+### 本期主题：
 
-# **香港政府在拒绝了对因CCP新冠病毒被封锁的居民提供补偿之后的第二天，香港立法机关却通过了为巨型大桥提供15亿港元巨额费用的法案**
+1. 美国航母进入南海，中共派出数十架次战机进入台湾领空；
 
-**香港行政长官林郑月娥在星期二的例行新闻发布会上被问及政府实行封锁对香港经济的影响时，她告诉香港人，“要咬紧牙关，继续前进”。**
+2. 国内多地施行野蛮封城政策，导致百姓民不聊生；国外屡爆疫苗致死案件；
 
-周三，香港立法机关委员会在无人有效反对的情况下，通过了一项15亿港元的法案，为香港的巨型桥梁提供资金。
+3. 对中政策保持延续川普政府，“灭共2.0”？；
 
-经过大约一个小时的辩论，立法会公共工程委员会通过了对港珠澳大桥的额外资金支持。
+4. 重温《新中国联邦宣言》；
 
-[!\[\]()!\[\](https://spark.adobe.com/page/i7G1t6N6yS6ob/images/cba13808-7a21-4fb6-bb55-033c817427a6.jpg?asset_id=223a3799-2af0-4bdb-8f11-c4d74dac5f64&amp;img_etag=%2226c247ae94eaf2c92612e9b9b7cd5d6e%22&amp;size=2560)](https://spark.adobe.com/page/i7G1t6N6yS6ob/images/cba13808-7a21-4fb6-bb55-033c817427a6.jpg?asset_id=223a3799-2af0-4bdb-8f11-c4d74dac5f64&amp;img_etag=%2226c247ae94eaf2c92612e9b9b7cd5d6e%22&amp;size=1024)
+5. 专题：独裁者的最后时刻 — 萨达姆之死
 
-港珠澳大桥的香港连接点。档案照片：香港政府
+## 新闻线索【1】病毒&疫苗次生危害持续全球
+[!\[\]()!\[\](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/30190c3e-0520-4cab-9521-ebfeb8ada042.jpg?asset_id=60173b1e-409e-4d2f-bd4f-854a3a5fc408&amp;img_etag=%22eb5235797cf1eb1da61600d79942fff5%22&amp;size=2560)](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/30190c3e-0520-4cab-9521-ebfeb8ada042.jpg?asset_id=60173b1e-409e-4d2f-bd4f-854a3a5fc408&amp;img_etag=%22eb5235797cf1eb1da61600d79942fff5%22&amp;size=1024)
+**[🔗 Gnews: 武汉居民回顾被中共病毒侵害一年付出的代价并誓言为逝去的亲人寻求正义](https://gnews.org/zh-hans/809530/)**
 
-这座大桥于2018年正式通车，超出预算且交通流量不足。拨款获批准后，主桥的费用将增加至约105亿港元，而支付的总金额将达到约660亿港元。
+**[🔗评共和党议员宣布重启新冠病毒国际调查并敦促拜登政府追责中共](https://gnews.org/zh-hans/809695/)**
 
-运输和房屋局局长陈帆承认，由于冠状病毒大流行削减了大桥的交通流量，大桥目前的收入“甚至无法支付其贷款的利息”。
+**[🔗门户专家：史蒂夫·希尔顿发表报告称福奇博士直接负责资助了功能增强研究，该研究导致了冠状病毒大流行（视频）](https://www.thegatewaypundit.com/2021/01/steve-hilton-report-dr-anthony-fauci-directly-responsible-funding-gain-function-studies-resulted-coronavirus-pandemic-video/)**
 
-在经过大约40分钟的辩论后，立法机关还同意，将为香港第六贫困地区深水埗的行人天桥再提供3.3亿港元的资金支持，并提交给公共工程委员会进一步讨论。
+**[🔗英国快报：生物武器“与原子弹一样具有威胁性” — 成千上万的实验室都可能泄漏（武汉实验室的事故很可能导致了Covid-19的初次传播）](https://www.express.co.uk/news/world/1388337/world-war-3-biological-weapon-covid-19-china-lab-coroanvirus-pandemic-ww3?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed:+daily-express-world-news+%28Express+::+World+Feed%29)**
+[!\[\]()!\[\](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/42920898-df45-49bf-949b-03b928dcb88a.jpg?asset_id=e54fa917-73de-4c00-ae6b-51e4268e41f0&amp;img_etag=%22b5b9cfc6f6cead588cbca3fd01b7adc6%22&amp;size=2560)](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/42920898-df45-49bf-949b-03b928dcb88a.jpg?asset_id=e54fa917-73de-4c00-ae6b-51e4268e41f0&amp;img_etag=%22b5b9cfc6f6cead588cbca3fd01b7adc6%22&amp;size=1024)
+**[🔗英国快报：北京建造了新的“长城”，在中国和缅甸越南的边界建墙以阻止走私和传播疫情](https://www.express.co.uk/news/world/1388474/China-news-Beijing-border-wall-coronavirus-Covid-19-Vietnam-Myanmar-smuggling-ont?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed:+daily-express-world-news+%28Express+::+World+Feed%29)**
 
-上星期，政府已拨出超过20亿港元的财政资助，用于海洋公园主题公园。
+**[🔗BBC：墨西哥总统检测CCP病毒阳性](https://www.bbc.co.uk/news/world-latin-america-55791743)**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/i7G1t6N6yS6ob/images/696f67a9-5b23-4376-9a6e-6fb9ba590394.jpg?asset_id=7196948c-cf77-4dc7-8067-c1bef6618b8e&amp;img_etag=%22ede9c77c7a2027c1bf7a90e5a221d927%22&amp;size=2560)](https://spark.adobe.com/page/i7G1t6N6yS6ob/images/696f67a9-5b23-4376-9a6e-6fb9ba590394.jpg?asset_id=7196948c-cf77-4dc7-8067-c1bef6618b8e&amp;img_etag=%22ede9c77c7a2027c1bf7a90e5a221d927%22&amp;size=1024)
+**[🔗英国医疗卫生大臣Hancock：英国疫苗注射速度全欧洲遥遥领先](https://twitter.com/MattHancock/status/1352923968819195905?s=20)**
 
-邵家臻脸书照片
+**[🔗BBC：1年后重回武汉海鲜市场](https://www.bbc.co.uk/news/av/world-asia-china-55757084)**
+[!\[\]()!\[\](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/9f3c4158-8d4d-47a3-a8bc-ec72a1ae1a67.jpg?asset_id=ca975a2a-93dd-402d-b125-2a63a9a1020f&amp;img_etag=%221a8c0f572234a7cd124c38842b366743%22&amp;size=2560)](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/9f3c4158-8d4d-47a3-a8bc-ec72a1ae1a67.jpg?asset_id=ca975a2a-93dd-402d-b125-2a63a9a1020f&amp;img_etag=%221a8c0f572234a7cd124c38842b366743%22&amp;size=1024)
+**[🔗零对冲：荷兰反对宵禁示威者烧毁CCP病毒检测中心](https://www.zerohedge.com/covid-19/dutch-youth-torch-covid-testing-facility-violent-curfew-backlash?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed:+zerohedge/feed+%28zero+hedge+-+on+a+long+enough+timeline,+the+survival+rate+for+everyone+drops+to+zero%29)**
 
-前国会议员邵家臻（Shiu Ka-chun）强烈抨击建制派草率通过政府提案。
+**[🔗BBC：荷兰爆发反对疫情封锁的游行示威](https://www.bbc.co.uk/news/av/world-europe-55794550)**
 
-“他们通过得如此之快，以至于他们自己都感到窘迫与尴尬，” 邵家臻对香港自由报说。 “在我们集体辞职之后，他们试图切断戈尔丁(Gordian)死结，并恢复邪恶的法律，例如修改我们过去精心研究的议事规则，批准《大屿山明天》的建设基金。”
+**[🔗英国快报：美国加州一人在注射疫苗几小时后死亡](https://www.express.co.uk/news/world/1388353/Covid-vaccine-news-side-effects-California-death-dead-vaccine-coronavirus-latest-update)**
 
-在四名前民主派议员因所谓危害国家安全而被政府取消资格后，所有香港民主派议员于去年11月集体辞职。
+**[🔗土耳其日报：挪威至少有23人在接种疫苗之后死亡](https://www.dailysabah.com/world/europe/at-least-23-die-after-receiving-covid-19-vaccine-in-norway)**
 
-#### ‘咬紧牙关’
-
-香港行政长官林郑月娥在星期二的例行新闻发布会上被问及政府实行封锁对香港经济的影响时，她告诉香港人，“要咬紧牙关，继续前进”。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/i7G1t6N6yS6ob/images/9b476c52-eaf7-42d8-bba2-7060e031b13f.jpg?asset_id=5d1260b4-a84e-496a-950b-2eb8f2a83d0e&amp;img_etag=%221ee2984bfb821157e39d6138a3daba67%22&amp;size=2560)](https://spark.adobe.com/page/i7G1t6N6yS6ob/images/9b476c52-eaf7-42d8-bba2-7060e031b13f.jpg?asset_id=5d1260b4-a84e-496a-950b-2eb8f2a83d0e&amp;img_etag=%221ee2984bfb821157e39d6138a3daba67%22&amp;size=1024)
-
-行政长官林郑月娥在1月26日的新闻发布会上。照片：郑慧琳/香港自由报
-
-林郑月娥说：“这种病毒大流行已经持续了将近一年，许多人，企业和部门都受到影响。政府曾多次尝试尽最大努力推出救济措施，但现在是我们需要咬紧牙关，继续行进的阶段。”
-
-“每个人都为此付出了代价，这就是为什么我们需要人们共同努力来解决问题的原因。”
-
-香港政府周六对油麻地实施了封锁，并表示该地区受影响的企业将得不到补偿。
-
-邵家臻批评林郑月娥不援助受病毒大流行影响的小企业，并指出林郑月娥愿意在哪里花钱已表明了她的工作重点是什么。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/i7G1t6N6yS6ob/images/2b78d916-1594-4393-996c-6af9eb3f9857.jpg?asset_id=b2e13c52-3530-4ba4-aa3f-07916b83a841&amp;img_etag=%223f66e21661258cdab6ac6ee9566fa3fa%22&amp;size=2560)](https://spark.adobe.com/page/i7G1t6N6yS6ob/images/2b78d916-1594-4393-996c-6af9eb3f9857.jpg?asset_id=b2e13c52-3530-4ba4-aa3f-07916b83a841&amp;img_etag=%223f66e21661258cdab6ac6ee9566fa3fa%22&amp;size=1024)
-
-油麻地封锁。照片：Incendo工作室
-
-邵家臻说：“我知道林郑月娥是天主教徒，我引用圣经的话送给她：‘你重视的宝藏在哪里，你的心也就在哪里’。”
-
-邵家臻告诉《香港自由报》，与他接触的小企业已“奄奄一息”，他希望香港政府能够为这些小企业开发一些市场以及提供资金支持。
-
-🔗[原文链接](https://hongkongfp.com/2021/01/27/hong-kong-legislature-passes-hk1-5-billion-for-mega-bridge-a-day-after-govt-denies-compensation-to-covid-lockdown-residents/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+**🎬视频：黑龙江鸡西市防疫举措，零下十几度的低温中，把老人家关在塑料膜搭成的留观室裡**
 
 
-编辑：[【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/i7G1t6N6yS6ob/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/i7G1t6N6yS6ob/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/i7G1t6N6yS6ob/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+**🎬视频：国内各城市疫情全面升级，封路封小区卷土重来**
 
-+1
+[**🔗点击GTV视频链接**](https://gtv.org/user/5ed199be2ba3ce32911df7ac)
+
+## 新闻线索【2】 香港圣城, 东方明珠变暗夜
+[!\[\]()!\[\](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/b2e6035e-4309-4f54-acea-5f32e5e6482b.jpg?asset_id=59609572-b1d5-4cb2-bead-bf5f2a5ea006&amp;img_etag=%227cdd41fc638c2c6340d7c08edd7045de%22&amp;size=2560)](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/b2e6035e-4309-4f54-acea-5f32e5e6482b.jpg?asset_id=59609572-b1d5-4cb2-bead-bf5f2a5ea006&amp;img_etag=%227cdd41fc638c2c6340d7c08edd7045de%22&amp;size=1024)
+**[🔗香港自由媒体：香港备受争议的街区封锁，7,000人检测后产生13个阳性病例](https://hongkongfp.com/2021/01/25/covid-19-hong-kongs-controversial-neighbourhood-lockdown-yields-13-positive-cases-after-7000-tested/)**
+
+**[🔗香港自由媒体：首个Covid-19封锁区内景](https://hongkongfp.com/2021/01/23/hkfp-lens-inside-hong-kongs-first-covid-19-lockdown-zone/)**
+
+## 新闻线索【3】全球灭共, 以共灭共: 共产党员必须自救
+[!\[\]()!\[\](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/5942235f-8907-45c2-b349-54979aa4c716.jpg?asset_id=f31ba18f-0ad5-4ae5-bc21-edf649e456cb&amp;img_etag=%229d8eb76a1b074590f9f7d9363bc2fc54%22&amp;size=2560)](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/5942235f-8907-45c2-b349-54979aa4c716.jpg?asset_id=f31ba18f-0ad5-4ae5-bc21-edf649e456cb&amp;img_etag=%229d8eb76a1b074590f9f7d9363bc2fc54%22&amp;size=1024)
+**[🔗美国国务院：中共国对台湾的军事压力破坏地区和平与稳定](https://www.state.gov/prc-military-pressure-against-taiwan-threatens-regional-peace-and-stability/)**
+
+**[🔗零对冲：随着美国航空母舰罗斯福的临近，15架中共国飞机连续第二天进入台湾防空区](https://www.zerohedge.com/geopolitical/15-chinese-aircraft-enter-taiwan-air-defense-zone-2nd-day-us-carrier-roosevelt?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed:+zerohedge/feed+%28zero+hedge+-+on+a+long+enough+timeline,+the+survival+rate+for+everyone+drops+to+zero%29)**
+
+**[🔗福克斯：乔什·霍利：是时候站出来对抗在美国的发生的言论审查](https://www.foxnews.com/media/its-time-to-stand-up-against-the-muzzling-of-america)**
+
+**[🔗Gnews：英国富时指数将中海油开除](https://gnews.org/zh-hans/799390/)**
+
+**[🔗Gnews: 肯尼亚可延期偿还中共国的2.45亿美元债务](https://gnews.org/zh-hans/810341/)**
+[!\[\]()!\[\](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/7e87abf8-401e-4bb1-a5f0-106be0542e72.jpg?asset_id=cf8bafec-aac7-4935-bd00-4ed5aac85c95&amp;img_etag=%220167feb98f298350e3e9b6962cd8f7d0%22&amp;size=2560)](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/7e87abf8-401e-4bb1-a5f0-106be0542e72.jpg?asset_id=cf8bafec-aac7-4935-bd00-4ed5aac85c95&amp;img_etag=%220167feb98f298350e3e9b6962cd8f7d0%22&amp;size=1024)
+**[🔗 日本时报：上周六（1月23号）美国罗斯福航母进入南中国海](https://www.apple.com/)**
+
+**[🔗台湾国防部twitter：中共国战机入侵台湾西南海域](https://twitter.com/MoNDefense/status/1352921079149301761?s=20)**
+
+**[🔗ABC新闻网：1月19日（拜登上台前），台湾进行军事演习，目标设定为击退CCP的进攻](https://abcnews.go.com/International/wireStory/taiwan-military-stages-drill-aimed-repelling-china-attack-75333944)**
+
+**[🔗美国之音：中国海警法为邻国敲响警钟，CCP授权海警在处理中国海域违法活动时可以使用武器。此举可能让海警成为中国的第二海军。](https://www.voachinese.com/a/gao-feng-hk-china-coast-guard-law-20210120/5745062.html)**
+
+🎬**视频：我相信中国人民还记得，中共一定记得，2001年拜登参议员批评布什对台湾的保护，他说我们没有义务保护台湾, 没有人要求我们这样做**
+
+[**🔗点击GTV视频链接**](https://gtv.org/video/id=600cf12fc3245d7c59e70694)
+
+
+
+## 新闻线索【4】 新中国联邦
+[!\[\]()!\[\](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/d675cb02-5e3d-4b1d-a0e9-58d9c30930e5.jpg?asset_id=cf70e138-a7dd-49d6-9763-707482e1add1&amp;img_etag=%223bc972f9cfec562adbd64ce2e1e62378%22&amp;size=2560)](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/d675cb02-5e3d-4b1d-a0e9-58d9c30930e5.jpg?asset_id=cf70e138-a7dd-49d6-9763-707482e1add1&amp;img_etag=%223bc972f9cfec562adbd64ce2e1e62378%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/12a9a1fe-616d-4b70-85ed-11fc4eddb9d5.jpg?asset_id=8be3edd8-4f3c-40c1-8b76-81362ad5c3db&amp;img_etag=%22e61e704e93f2e3ce7103ac56751c3d65%22&amp;size=2560)](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/12a9a1fe-616d-4b70-85ed-11fc4eddb9d5.jpg?asset_id=8be3edd8-4f3c-40c1-8b76-81362ad5c3db&amp;img_etag=%22e61e704e93f2e3ce7103ac56751c3d65%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/26b0a39d-6cfa-40c4-9d43-9bb29900309b.jpg?asset_id=74bb18ed-b4a9-48da-bf9b-eee0dfffbcda&amp;img_etag=%22e70b2f763be8ea5413a9bb70b110ac77%22&amp;size=2560)](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/26b0a39d-6cfa-40c4-9d43-9bb29900309b.jpg?asset_id=74bb18ed-b4a9-48da-bf9b-eee0dfffbcda&amp;img_etag=%22e70b2f763be8ea5413a9bb70b110ac77%22&amp;size=1024)
+[🎬**视频：郝海东“建国宣言”完整版 网民狂赞 中共狂删**](https://www.ntdtv.com/gb/2020/06/05/a102863846.html)
+
+## 新闻线索【5】七哥与战友Getter快递
+
+[!\[\]()!\[\](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/3f2ddfa8-727f-4f26-bc45-2bf6be11452c.png?asset_id=137407c0-aa97-4b9d-95ff-3c9ac6b13785&amp;img_etag=%2223eec60546c594b8276f85d9e40d0a9a%22&amp;size=2560)](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/3f2ddfa8-727f-4f26-bc45-2bf6be11452c.png?asset_id=137407c0-aa97-4b9d-95ff-3c9ac6b13785&amp;img_etag=%2223eec60546c594b8276f85d9e40d0a9a%22&amp;size=1024)[https://gtv.org/getter/600ef768c3245d7c59e80e26](https://gtv.org/getter/600ef768c3245d7c59e80e26)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/a0421989-c8bc-45bf-976c-54c798155c96.png?asset_id=58e72442-83c9-46ed-9b64-c2381e2e502c&amp;img_etag=%22a6f48af1e1a70cf2c15e9beb5ac82441%22&amp;size=2560)](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/a0421989-c8bc-45bf-976c-54c798155c96.png?asset_id=58e72442-83c9-46ed-9b64-c2381e2e502c&amp;img_etag=%22a6f48af1e1a70cf2c15e9beb5ac82441%22&amp;size=1024)[https://gtv.org/getter/600ec347c3245d7c59e7f14c](https://gtv.org/getter/600ec347c3245d7c59e7f14c)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/7922f722-896a-4dc7-91e7-691d54f1a200.png?asset_id=8052241b-86aa-40c4-866a-a70f4af87f76&amp;img_etag=%22a0d45bd5ee7795a565e54e5cc7ecb818%22&amp;size=2560)](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/7922f722-896a-4dc7-91e7-691d54f1a200.png?asset_id=8052241b-86aa-40c4-866a-a70f4af87f76&amp;img_etag=%22a0d45bd5ee7795a565e54e5cc7ecb818%22&amp;size=1024)[https://gtv.org/getter/600f0803b819717e79b02303](https://gtv.org/getter/600f0803b819717e79b02303)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/b2666e4c-5bf3-463b-997e-bae63c4284a6.png?asset_id=77422d57-250a-42b6-8f16-02bef93ae2c1&amp;img_etag=%2240384619c8f20ffea7cf1ebe0226aaaa%22&amp;size=2560)](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/b2666e4c-5bf3-463b-997e-bae63c4284a6.png?asset_id=77422d57-250a-42b6-8f16-02bef93ae2c1&amp;img_etag=%2240384619c8f20ffea7cf1ebe0226aaaa%22&amp;size=1024)[https://gtv.org/getter/600efaffc3245d7c59e81116](https://gtv.org/getter/600efaffc3245d7c59e81116)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/91b60bee-8196-4839-9f2d-3c7c749deee1.png?asset_id=25bd1224-5d70-497c-b8a4-a0e2b0bcd240&amp;img_etag=%22f6e6831ee69268224bd935237e998dfa%22&amp;size=2560)](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/91b60bee-8196-4839-9f2d-3c7c749deee1.png?asset_id=25bd1224-5d70-497c-b8a4-a0e2b0bcd240&amp;img_etag=%22f6e6831ee69268224bd935237e998dfa%22&amp;size=1024)[https://gtv.org/getter/600eb5c7c3245d7c59e7eb3e](https://gtv.org/getter/600eb5c7c3245d7c59e7eb3e)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/3443c4b3-d9a9-48dc-8a2f-4120e93aa38b.png?asset_id=038fe6f5-d07d-4fc2-8eaf-e60994639980&amp;img_etag=%227ba2716f4a98b18b407c837edc306f03%22&amp;size=2560)](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/3443c4b3-d9a9-48dc-8a2f-4120e93aa38b.png?asset_id=038fe6f5-d07d-4fc2-8eaf-e60994639980&amp;img_etag=%227ba2716f4a98b18b407c837edc306f03%22&amp;size=1024)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/0c4831c7-8b9b-4f07-a9a0-9a6da3b36355.png?asset_id=2de52628-0b05-4d22-885c-97b368126770&amp;img_etag=%2260c8cbe5bf5c77f1937f5ad913454d4e%22&amp;size=2560)](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/0c4831c7-8b9b-4f07-a9a0-9a6da3b36355.png?asset_id=2de52628-0b05-4d22-885c-97b368126770&amp;img_etag=%2260c8cbe5bf5c77f1937f5ad913454d4e%22&amp;size=1024)[https://gtv.org/getter/600e2673c3245d7c59e7aa37](https://gtv.org/getter/600e2673c3245d7c59e7aa37)
+
+
+
+**[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)**
+
+**[点击观看英国伦敦喜庄园在G-TV的精彩直播视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)**
+
+**[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)**
+
+编辑：[**【英国伦敦喜庄园编辑部】**](https://spark.adobe.com/page/yCA1fZG0Z1Klg/)
+[!\[\]()!\[\](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/c8ee1b1b-aa12-4846-be89-8d2db362a491.jpg?asset_id=a1ed0347-3113-42f9-9401-484fce093218&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/yCA1fZG0Z1Klg/images/c8ee1b1b-aa12-4846-be89-8d2db362a491.jpg?asset_id=a1ed0347-3113-42f9-9401-484fce093218&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+0

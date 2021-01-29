@@ -1,31 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 辉瑞疫苗澳洲代表在疫苗推出前对害怕疫苗注射的人称： 我们不会将病毒置于你体内
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/837981/)
+## WHO武汉中共病毒溯源调查公正性存疑
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/837994/)
 
-撰稿人 喜妈 喜安娜
-![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_0233.jpg)图片来源: 7news.com.au
-最近，制药巨头的COVID-19疫苗获准在澳大利亚使用。辉瑞澳大利亚公司的董事总经理在接受Sunrise媒体采访时承认，某些人在接受这家制药巨头的COVID-19疫苗时可能会出现副作用，但这是人体产生免疫反应的原因。
+加拿大多伦多枫叶农场 向真
 
-她在采访中解释了注射的工作原理并提及存在对可能产生副作用的担忧。 辉瑞疫苗已获得治疗药物管理局（TGA）的临时批准，适用于16岁以上的澳大利亚人。
+校对 上传 小鸥
+![]()![](https://gnews.org/wp-content/uploads/2021/01/c-27-21.jpg)图片来自 specialty.mims.com
+路透社1月28日报道， 由世界卫生组织(WHO)领导的中共病毒疫情溯源调查团队，在1月14日抵达中共国武汉后，28日结束隔离离开检疫酒店，展开田野调查。
 
-检疫和边境人员，一线卫生工作者以及老年护理和残疾人员和居民将是从2月下旬开始抢劫的第一批人。
+路透社于12月16日的相关报道指示，世界卫生组织允许中共国科学家进行初步研究的第一阶段。这个由约15名国际专家组成的团队，前往武汉调查证据就包括中国研究人员收集的人体和动物样本，并在中共国方面的初步研究基础上继续进行调查。
 
-哈里斯说，她对澳大利亚的医疗监管机构认为“我们的疫苗安全有效”感到“非常自豪”。 她谈到疫苗开发时说：“这是一项非凡的努力。” “当我们的首席执行官在去年三月站起来并说我们将在一年内使用所有可能的资源来找到疫苗时，我认为这震惊了所有人，这是前所未有的。”
+把最关键的样本收集和第一阶段研究，交由毫无诚信的中共来完成，确实令人不安。世卫组织动物疾病方面的顶级专家Peter Ben Embark表示“没有任何迹象表明病毒是人造的”。调查团队还未奔赴武汉，竟然结论先出来了！
 
-哈里斯说，辉瑞疫苗是基于mRNA技术的，该技术可以向人体提供制造冠状病毒刺突蛋白所需的遗传指令，然后产生免疫反应。 如果您遇到COVID-19病毒，其想法是“启动免疫系统”以发起保护性免疫反应。 我们不会将病毒带入您的体内，我们发送的是向您的身体传达一条信息，其中包含创建刺突蛋白的说明，然后您的身体会做出反应。” 她说，辉瑞注射的“价值”在于科学家可以“简单地改变信息或说明”来对抗COVID-19突变株。
+田野调查就是本次溯源探究的过程，不仅搜集可靠的样本资料，还要在现场科学客观地感知、分析及调研。如果中共提供的人体和动物样本不真实，已经掩盖或误导病毒的来源或传播路径，提供虚假的科研资料，世卫组织的调查团队将无功而返，甚至得出错误的结论。
 
-哈里斯（Harris）证实，某些人可能会在不久出现副作用，包括手臂酸痛，发烧和肌肉酸痛。 她解释说：“这就是您的身体告诉您它正在产生免疫反应的方式。” 极少数人可能会对药物产生严重的过敏反应。 哈里斯说，这就是为什么疫苗是由训练有素的医学专家在“监督”下给予疫苗的原因。希望这将减轻人们的困扰。
+顶级病毒专家闫丽梦博士，早于2020年1月19日就通过路德社告诉全世界，中共病毒不仅人传人，还是中共军方实验室制造、中共故意投放的生物武器。
 
-Reference：
+2020年9月14日，闫丽梦等四位博士在学术资源库网站Zenodo上发表未经同行评议的有关中共病毒相关报告〈Unusual Features of the SARS-CoV-2 Genome Suggesting Sophisticated Laboratory Modification Rather Than Natural Evolution and Delineation of Its Probable Synthetic Route〉，内容从基因、结构及文献为证提出该病毒为中国军方实验室人工强化功能的高度可能性及可能的人造合成方式。
 
-Goodall. H., (2021). ‘We’re not putting the virus in your body’: Pfizer Australia boss addresses jab jitters ahead of rollout. [online]. 7news.com.au. [Viewed 29 January 2021]. Available from: [https://7news.com.au/sunrise/on-the-show/pfizer-boss-addresses-concerns-about-covid-19-jab-ahead-of-australian-rollout-c-2030726](https://7news.com.au/sunrise/on-the-show/pfizer-boss-addresses-concerns-about-covid-19-jab-ahead-of-australian-rollout-c-2030726)
+2020年10月8日，闫丽梦等再次在学术资源库网站  Zenodo上发表未经同行评议的有关中共病毒相关的第二份报告〈SARS-CoV-2 Is an Unrestricted Bioweapon: A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud〉，再深究病毒来源并批判中共国与相关人之大规模造假掩盖。
 
-澳喜文章：
+闫丽梦的两篇论文不管是证据釆用还是科学论证都无懈可击，结论不容置疑地指向中共军方在实验室制造了病毒，通过将病毒武器化，发动了生物超限战。
 
-[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+闫博士的论文得到美国政府高层人事和顶尖生物武器专家的认可，闫博士在接受福克斯主持人塔克·卡尔森采访时指出，“他们都给予积极的回馈意见，并对此深信不疑，但我没有得到任何来自这些科学界大机构公开声明支持，包括世卫组织、国立卫生研究院、疾控中心或其他组织……”
 
-欢迎加入澳喜农场： [https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_5335-3.jpg)
+闫博士点名的世卫组织等机构，在中共病毒已然威胁到人类生存的时候，竟然一直装聋作哑。人们不禁要问，这些本应对全世界人民的健康承担责任、手中掌握巨大资源和权力的机构，为什么不敢公开质疑闫博士的论文？不敢和闫博士进行公开的学术辩论？为什么在病毒爆发已经过去一年，病毒变异加速，已造成近220万人死亡，上亿人感染的时侯WHO才前往武汉，而且是在中共第一阶段研究基础上进行第二阶段的研究？
+
+这真是一个黑暗压顶的世界！
+
+参考链接：
+
+https://cn.reuters.com/article/who-experts-wuhan-0128-mon-idCNKBS29X0TT
+
+https://cn.reuters.com/article/exclusive-who-china-1216-wedn-idCNKBS28R01U
+
 0

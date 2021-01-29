@@ -1,47 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【三票专栏】后川普时代的中美政治和蓬佩奥时代的开始
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/838018/)
+## 美国大选是世界的终极之战，这场终极之战的主角是爆料革命和新中国联邦
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/838470/)
 
-**作者： 三票先生Mr.3rights**
+郭先生于2021年1月6日美国大选最关键的日子在GTV现场直播，并再次重申大选会以滑稽的结果结束，并让战友们不要幻想彭斯副总统会改变大选结果使川普总统获胜。他说：“过去这几百年，从二战到今天，人类有太多的幻想，人类有太多的所谓美好的希望，选择性地漠视了挑战和黑暗，那么这个时候黑暗和挑战就一直在伴着我们。”他觉得2020年的美国总统大选是第三次世界大战正式的开启，是超限战、信息战、宗教战，它决定了十四亿中国人的命运，因为这场终极之战的主角就是十四亿中国人民，是新中国联邦。
+视频来源：[https://gtv.org/video/id=5ff5c2d8f579a75e0bc6d010](https://gtv.org/video/id=5ff5c2d8f579a75e0bc6d010)  (17:08-22:46)
+卡丽熙：今天是美国大选的决战的这个日子哈，我们的战友们，特别是我们的新中国联邦的这些战友们，大家呢都非常地期待。所以今天七哥有什么跟我们战友们分享的关于大选的内容，我们知道七哥在2019年就说过美国的大选将是这个非常滑稽的，以滑稽地开始、滑稽地结束。所以七哥今天，请七哥给我们战友们分享关于今天大选的内容。七哥请。
 
+Ka-Le-Ci: Today is the day of the final showdown in the U.S. election, and our fellow fighters, especially those of our New Federal State of China (NFSC), are all very much looking forward to it. So what does Brother Seven have to share with our fellow fighters about the election today? We know you said in 2019 that the U.S. election would be very absurd, starting and ending in an absurd way. So today, Brother Seven, please share with our fellow fighters your take about today’s election. Brother Seven, please.
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/11111111.jpg)
+郭先生：谢谢卡丽熙啊，谢谢各位战友啊。现在我觉得最重要的呢我觉得…刚才你说的这是美国的决战，严格讲，这不是美国的决战，这真的是世界的终极之战。即使今天我们看到全世界很多人很多人在讲这些事情的时候，但是很多人他并…真的没有意识到这个事情的（重要性），可能是超出他们所预测的、和想象的。
 
+Mr. Guo: Thank you, Ka-Le-Ci. Thanks to all brothers-in-arms. Now I think the most important thing, in my opinion…You just said this is a decisive battle for America, but strictly speaking, it’s not America’s battle; it really is the ultimate battle of the world. Even today, we see many people around the world talking about this event, without realizing its significance, which will likely exceed what they’ve predicted and imagined.
 
-概要：**蓬佩奥在卸任前宣布中共犯下种族灭绝和反人类罪，是套在美国政治家头上的紧箍咒。美国各派都会以此作为政治底线。蓬佩奥在西方政坛打响了全球灭共的第一枪，宣告了蓬佩奥时代的开始，全球将进入争着灭共的新阶段，爆料革命将起到越来越重要的作用。**
+因为现在这个美国这场的这个这个大选啊，2020大选，大家看都把（它）看（做）总统大选的时候，只有我们爆料革命没把它看成这个美国总统大选。而且我们早在三年前开始爆料的时候，说2020年是人类关键的一个一年，也是决定生死时刻吧。
 
-郭文贵先生今天直播中说到，美国政治舞台将有四派政治势力浮出水面并竞相角逐，一个是前总统川普领导的共和党MAGA运动（川普已经宣布放弃组建第三党），一个是蓬佩奥前国务卿领导的共和党西点派，一个是麦康奈尔领导的共和党建制派，还有一个就是拜登佩罗西领导的民主党派系。1月19号蓬佩奥宣布中共在新疆西藏等地犯下种族灭绝和反人类罪，笔者当天就写了一篇题为《您好，蓬佩奥主义》的文章，笔者在文章中首次提出蓬佩奥的宣布标志着蓬佩奥主义的诞生和蓬佩奥时代的开始。**蓬佩奥主义和蓬佩奥时代的核心就是两个字：灭共！**
+This U.S. presidential election, the 2020 election, when everyone else is seeing it as a presidential election, only we, the Whistleblower Movement (WM) do not see it as just a U.S. presidential election. Since three years ago, when we first started whistleblowing, we have already said that 2020 will be a critical year for humanity and also a moment of life-and-death.
 
-中共和全世界的角逐好比一场足球联赛，中共在和欧洲、澳洲、日本、加拿大等的比赛中节节胜利，最后对美国的比赛是最关键的，中共如果胜了美国，就可以称霸世界。在中共和美国的角逐中，2017年川普总统上任之前，球基本上在美国的半场，中共在场上压着美国打，并且先进了一球。川普总统上任后，逐步扭转了局面，基本上压着中共的半场打，在教练郭文贵先生的指导下，中场和边锋经常传出绝佳好球。可是主力中锋川普光有进攻没有进球，经常是在球门前几乎是面对空门却脚下发软，要么没有踢到球，要么是传球式射门，射出的球软而无力而且正对着守门员，屡屡被对方门将轻松化解，有惊无险（如果是郝海东来踢是闭着眼睛进的），要么是裁判不公被判犯规。幸好在终场前一秒钟，右边锋蓬佩奥拔脚怒射，球直入中共球门死角，将比分扳平，比赛进入加时赛。
+还有包括我们在今年的时候，也就说去年啦，2020年3月份的时候我们就公开地说，这个美国大选这个将成为将成为一个滑稽的结果而结束。那么刚才说的是，这是个美国的内部的大选的决战，这不是美国大选的决战，这是世界上、全人类的选择就是黑暗与光明、死亡与未来的生死之战、终极之战。
 
-1月20号拜登政府宣誓就任，美国政治进入了后川普时代。虽然拜登政府表示有意对中共恢复到川普之前奥巴马时代的 “战略耐心” 状态，但是此一时彼一时情况大不相同。由于郭文贵先生领导的爆料革命连续四年对中共在全球的渗透扩张、在香港的暴行、在新疆西藏的种族灭绝、对台湾的野心、尤其是制造和释放中共病毒的不断揭露，美国的民意以及精英阶层对中共的态度和对中共邪恶的认识已经有了不可逆转的改变。**蓬佩奥宣布的中共犯下种族灭绝和反人类罪以及中共病毒真相，是套在中共脖子上的两个绞索，也是套在美国和西方政治家头上的两个紧箍咒，**拜登政府即使有心对中共实施 “战略耐心” 政策，但是耐心的底线已经有了极大的提高。好比足球赛，原本奥巴马时代，美国的底线只是守在本方禁区线被动防守，任由中共狂轰滥炸，现在的底线至少已经推进到中场线。况且中共本身并没有多少实质性进攻技能，中共所使的就是贿赂裁判、贿赂对方球员的下三滥诡计，现在这个诡计已经被公开揭露，众人瞩目之下谁也不敢放中共的球进入本方半场，否则就会葬送自己的职业生命。这个底线就是蓬佩奥宣布的中共种族灭绝和反人类罪，也是政治正确红线。不管拜登之前和中共有多少勾兑，作为职业政客众目睽睽之下即使有心继续勾兑也断无此胆量，瓜田李下首先想到的就是避嫌。况且拜登之前只是副总统或者在野，现在登上总统大位（不管是以什么方式），手握全球最强大的政体和武装力量的权柄，想想之前被中共悄悄拿住把柄，内心里最想灭共的说不定就是他自己，只不过作为资深政客，其手法不像川普那样咄咄逼人，而是审时度势不动声色。从拜登政府上任一周的举动来看，拜登政府并没有对中共退让，尤其是在中共种族灭绝和反人类罪这一认定上，拜登政府是全面肯定和继承了蓬佩奥的认定，在病毒真相的问题上比川普还积极。
+We also said publicly this year, I mean last year, in March 2020, that the U.S. election will end with an absurd result. What we just said is that this is not just a decisive battle of the U.S. election. This is for the world, the whole humanity to choose between darkness and light, between demise and future, through a battle of life-and-death, an ultimate battle.
 
-蓬佩奥先生当初以第一名的成绩毕业于西点军校，随后服兵役官拜上尉，退役后进入哈佛大学法学院并获得博士学位。从政后先后担任联邦众议员、中情局局长和国务卿。政治观点和意识形态上他属于共和党保守派和茶党成员，并且坚决反共。他在军界、情报界和政界有广泛的人脉，言辞温文尔雅谈吐有风度，但内敛而坚定，作为川普政府的国务卿，既有川普的民意又有精英阶层的支持，精英阶层普遍对川普抵制但对蓬佩奥却少有微词，他的推特一直正常运行到他卸任。**最关键的是他有政治家的远见、勇气和担当，在卸任前勇敢宣布中共犯下种族灭绝和反人类罪！要知道他的这个宣布，除了他掌握很多真实的情报外，一定是背后有强大的力量在支持他**，**拜登政府全盘继承就说明了这一点，这就是他的政治实力。他的这一宣布在西方政坛打响了全球灭共的第一枪，石破惊天力挽狂澜，奠定了他未来政治领袖的地位，宣告了蓬佩奥时代的开始。**作为主要的在野力量，他的势力对拜登政府有很大的压力，拜登政府不能只是守着底线不动，需要对中共主动进攻才可能顺利执政并延续民主党的政治生命。
+那么今天大家坐在这里边，我们每个人都是个这次的生死之战、终极之战的重要的角色。我们爆料革命和新中国联邦，在过去几年我们所有的战友的，用生命和鲜血、生死、失去自由，付出的一切代价之后，我们今天每个人可能比任何一个国家、任何一个民族，都更加关心这次的大选结果，和这次终极之战的结果。
 
-川普总统离任的时候一直不服，不甘心自己的总统职位被盗，要借助巨大的民意组织MAGA力量卷土重来。从内心来讲我们很感激川普总统，他是四十年来对中共最强硬的美国总统，在他任上对中共强力遏制并扭转了中美格局，我们满心希望他能重返白宫。但是政治是很现实的，精英阶层普遍不接受他，他在自己还是总统的时候尚且无法翻盘，遑论在野。他只有配合蓬佩奥，才有可能延续政治影响力，在未来的政治分配中获得一定的地位。而共和党的建制派在这次大选中已经丧失民意，在未来的议会选举中，川普的MAGA派会削弱建制派的影响力，麦康奈尔作为共和党建制派的领袖，也只有和蓬佩奥的西点派以及川普的MAGA派合作，才能继续保持左右逢源的地位。也就是说，**蓬佩奥将重整共和党，在四年后冲击总统宝座。**
+So, as we sit here today, each of us is a key player in this battle of life-and-death, the ultimate battle. After our WM, the NFSC, and all our fellow fighters have paid all the prices with lives and blood, as well as the loss of freedom in the past few years, each of us today is probably more concerned than any country or nation about the outcome of this election and the outcome of this ultimate battle.
 
-至于中共，由于脖子上套着种族灭绝和病毒两个绞索，全球政治空间已经被极大地压缩，将处于人人避之唯恐不及的境地，并向过街老鼠人人喊打的局面发展，最终将被全球追责。即使美国拜登政府不继续进一步施压，中共内斗也将愈演愈烈，经济也每况愈下无法支撑。如果中共胆敢贸然侵犯台湾，那将加速中共的灭亡。总之灭共是迟早的事，不会太久，就看什么时间和什么方式，以及能给中国人民带来多大损失、全球将付出多大代价。
+今天我相信很多人都是带着一个希望的心情，这是人之本性吧。都觉得今天啊，这个彭斯会上来（宣布）会赢，然后川普总统会赢，然后呢怎么样怎么样。大家都是希望有这种结果，但是我想告诉大家的是，不可能有这种结果，绝对不可能。你们千万不要想，当你这个就是因为过去七十年、或者说过去这几百年，从二战到今天，人类有太多的幻想，人类有太多的所谓美好的希望，选择性地漠视了挑战和黑暗，那么这个时候黑暗和挑战就一直在伴着我们。
 
-如果说美国政坛将有四支政治力量，那么郭文贵先生领导的新中国联邦和爆料革命就是谁都想合作的第五支重要政治力量。在过去的四年中，爆料革命已经在美国建立了信用，积累了力量，有了巨大的影响力。在美国各派都争着灭共的形势下，唯有和爆料革命合作，才可能提前得到中共的准确情报，了解中共的行为特征，知道中共的七寸并有破解和打击之术。在新的形势下，爆料革命和各派没有任何利益冲突，谁灭共有力就和谁合作，这使得爆料革命和新中国联邦在灭共的目标下有了更大的纵横捭阖的政治空间，是最大的赢家。
+Today I believe that many people are in a wishful thinking, which is human nature after all. We all think that today, Pence will be coming out and [announce] victory, and then President Trump will win, and everything will be sorted out. We are all hoping for this kind of result, but what I want to tell you is that there will be no such result, absolutely impossible. Please do not think like this … this is because, for the past seventy years, or the past few centuries, from World War II to today, mankind has been obsessed with too many fantasies, has too many so-called beautiful hopes, and has selectively ignored challenges and the darkness. As a result, those darkness and challenges have been stalking us this whole time.
 
-后川普时代，实际上是蓬佩奥时代的开启，也是灭共的加速阶段。
+严格讲，是一战之后、到二战、到三战、到现在之前吧，就今天是第四次世界大战，对中国人（来说）是（这样的）啊。人类始终是选择了漠视，或者是不是正视，不去正视去解决人类存在的问题。那么我觉得2020年的美国总统大选已经将第三次世界大战正式的开启啊，它是超限战、信息战、宗教战，包括一切的现代的科技…（有画面无声音）…（卡壳完全听不清楚）…十四亿中国人的命运，因为这场终极之战的主角就是我们十四亿中国人民。
 
-阅读本人文章请搜索“三票先生”
+Strictly speaking, it was after World War I, to World War II, to the recent World War III, till now, for the Chinese people, today is World War III. Human beings have always chosen to ignore or turn their eyes away from the problems of mankind. So I think the 2020 U.S. presidential election has officially opened World War III. It is an un-restricted warfare, information warfare, religious warfare, and involves all of the modern technology … (inaudible) … with the fate of 1.4 billion Chinese people on stake. This is because the protagonist of this ultimate battle is our 1.4 billion Chinese people.
 
-本人相关文章导读：
+到底当奴才呢？还是继续当所谓的中国人的中国居民呢？还是当世界公民呢？还是当自己的属于自己国家以民为主的一个政治的、和一个良好的、真实的一个以民为主的政权的选择呢？我觉得今天会给大家一个基本上的一个答案。但是今天终极之战的结果是不可能有的，绝对不可能有的。但是会让我们学到、看到很多东西，而且非常残酷。
 
-[【三票专栏】您好，蓬佩奥主义 – GNEWS](https://gnews.org/zh-hans/776241/)
+Do we want to be slaves? Or should we continue to be the so-called the citizen of China or a citizen of the world? Or should we choose to be a citizen of our own country, which is centered around its people, with a political system which is positive, truthful, and democratic? I think today you will basically find an answer to these questions. But it’s impossible to get a result for today’s ultimate battle, absolutely impossible. But this will let us learn and see a lot, something very fierce.
 
-[【三票专栏】以共灭共的脚步越来越近 – GNEWS](https://gnews.org/zh-hans/752641/)
+从昨天晚上到现在，据我所知，白宫和华盛顿无人…（卡顿）…一次一次地交易、一个一个地交易啊，都在这个（发生）当中。所以说当大家站在这个、坐在这个镜头前的时候，你们想像看一个节目一样。我可以告诉大家就在你不经意间，卡丽熙咱两坐在这儿的时候，可能还有人现在在另外的半球还睡眠中的时候，或者将睡眠的时候，地球的存在、人类的存在，在地球存在十几亿年后，人类到了地球才万把年可都面临这个生死之存亡的选择，绝对不是那么简单。
 
-[【三票专栏】以共灭共的脚步越来越近（2） – GNEWS](https://gnews.org/zh-hans/809352/)
+From last night till now, as far as I know, in the White House and Washington D.C., nobody … one deal after another, one compromise after another, all happening right now. So, while we are standing in front of this, sitting in front of this camera, you would think this is a show. I can tell you that while you may not pay much attention, while Ka-Le-Ci and I are sitting here, while there may be others now in the other hemisphere asleep or going to sleep, after the Earth has existed for billions of years and the mankind have existed for tens of thousands years, humans are now facing a choice of life-and-death, definitely more than what meets the eyes.
 
-[【三票专栏】别了，基辛格 – GNEWS](https://gnews.org/zh-hans/595472/)
+现在太空中的所有太空武器，海里边的所有的潜水装备和武器，布着五大洋、七大洲的所有的各国的武器，我相信从现在起，没有任何人现在跑被窝睡觉去，不允许是吧。
 
-[【三票专栏】正道主义拯救资本主义于末法时代 – GNEWS](https://gnews.org/zh-hans/592096/)
+Now with all the space weapons in space, all the under-water equipment and weapons under the sea, all the weapons of different countries deployed in the five oceans and the seven continents, I believe that from now on, nobody will have sound sleep in their bed. It will be impossible.
 
-（本文仅代表作者个人观点）
+卡丽熙：对。
 
-0
+Ka-Le-Ci: That’s right.
+
+郭先生：那么和那[共产党的]老杂毛们，他[们]也知道啊，这意味着什么。就在就是这样的一个人类的生死选择的关键时刻，我们爆料革命我们新中国联邦是重要的角色。
+
+Mr. Guo: Well, the old mongrels [of the CCP], they must also know what this means. This is such a critical moment of life-and-death for humanity, in which our WM and NFSC are a key player.
+
+以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。
+
+听写: 【Embracer牙牙】 翻译: 【Dlrow】校对: 【Cyndi】【Isaiah4031】字幕: 【相机过热啊】 视频解码:【恒久忍耐】编辑: 【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+
++1
