@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 菲律宾外事总部将关闭，外长将隔离
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/836208/)
+## 二十多名法国警官违反病毒防护规定面临内部处罚
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/836315/)
 
 - 编辑：Victor Torres
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月28日电/西喜社——**菲律宾最高外交官表示，在一些人员的中共病毒检测呈阳性后，他将进行隔离，同时整个马尼拉的外事总部将关闭5天。
+**西班牙2021年1月28日电/西喜社——**至少有二十多名法国警官因在警察局内举行派对，被拍到跳马卡丽娜舞，违反多项病毒防护规定而面临内部处罚。
 
-外交部长小洛克辛（Teodoro Locsin Jr.）在推特中表示，他对中共病毒的检测结果为阴性，但周三接触了被感染的人。
+警察总部发言人表示，参与巴黎郊区奥贝维利耶派对的人员被命令就其行为提交报告，”计划进行制裁”。
 
-外交部表示，周五开始的关闭时间可能会延长，这取决于健康评估的结果。
+在网上发布的一段活动视频中，可以看到几个人在一个拥挤的房间里没有戴口罩，紧密地跳着舞。
 
-小洛克辛在推特上感谢新任命的美国国务卿安东尼·布林肯（Antony Blinken），此前美国外交官周四打电话给他，重申了他们国家的长期条约联盟。
-
-菲律宾确诊的中共病毒病例近52万例，居该地区第二位，确诊死亡病例10552例。
+这段视频引发了批评，当时法国警方正在执行晚上6点到早上6点的病毒宵禁，并因在暴力抗议和身份检查中滥用职权而受到审查。
 
 **新闻来源：**[https://apnews.com/article/world-news-japan-vietnam-coronavirus-pandemic-d4132018158671ef68451fad17ecd61c](https://apnews.com/article/world-news-japan-vietnam-coronavirus-pandemic-d4132018158671ef68451fad17ecd61c)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/7893df7b-af32-4b71-ad29-9889acbe7607-12.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/810cfb7f-b40f-42d9-b626-c3b2727ad0c0-4.jpg)
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
