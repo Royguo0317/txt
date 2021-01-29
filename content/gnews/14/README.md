@@ -1,41 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香草播报：【军事快讯】美国防部称台海紧张局势未必就导致“发生冲突”
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/838941/)
+## （深度报道）美国指责中国进行种族灭绝。现在它将抵制2022年北京奥运会吗？（第一部分）
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/839463/)
 
-作者：纽约香草山写作组 Wilson
+撰稿人：喜妈 喜安娜
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_0238.jpg)图片来源：edition.cnn.com
+美国认定中国将在新疆进行种族灭绝，对准备参加2022年北京冬季奥运会的运动员和国家来说，是一个罕见的道德困境。即将卸任的美国国务卿迈克·蓬佩奥（Mike Pompeo）在特朗普政府的最后一天宣布了这一消息，提请世界对中国遥远西部的维吾尔族少数民族系统性虐待的关注。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+该指控是美国国务院自2016年以来的第一个，当时美国国务卿约翰·克里（John Kerry）确定ISIS在伊拉克和叙利亚犯下的暴行属于种族灭绝，而且仅在少数情况下，美国政府就将该术语应用于持续的危机。
 
-【[路透社](http://路透社)】1月28日电，美国国防部于1月28日重申了对台湾自卫的支持，并称中共国大陆与台湾的紧张关系没有理由“导致发生冲突”。这是拜登政府上任后，军方首次对台海两岸的紧张关系表态。中共国防部周四稍早表示，“台独就意味着战争”。
+联合国将种族灭绝定义为“意图全部或部分消灭一个民族，种族，种族或宗教团体”，尽管美国的确认不会立即引发任何惩罚，但它将对任何种族灭绝者施加压力。与中国开展业务-包括90个左右的国家/地区，这些国家/地区将在明年2月派遣运动员参加冬季奥运会。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/image-352.png)
+人权观察高级中国研究员王玛雅说：“目前，与中国政府进行的任何形式的重大接触都面临着很大的压力，涉及到贷款的合法性。” 美国运动员在一个被指控正在进行种族灭绝国家的首都竞争的前景，将甚少在华盛顿就人权承诺上发出混淆的信息。
 
-图片来源：6do网
+北京长期以来一直否认种族灭绝的说法，声称其在新疆的政策是大规模消除基层化和减轻贫困计划的一部分。上周，中国外交部的一位女发言人指责庞培传播“有毒的”谎言，邀请人们到新疆“用自己的眼睛看”。
 
-习近平在1月13日的省部级会议上扬言，“当今世界正在经历百年之大变局，但时与势站在我们这一边”。他的底气从何而来？
+澳大利亚，英国，加拿大和美国的政客公开提出了2022年不派遣运动员前往北京的希望。去年3月，由共和党人里克·斯科特（Rick Scott）领导的12名美国参议员提交了一项两党决议，要求国际奥委会（IOC）从中国撤出2022年奥运会，并重新启动招标程序。但是到目前为止，还没有政府或国家体育主管部门正式宣布退出。
 
-从去年开始，美国在中共病毒持续一年的打击之后，负债率暴涨（仅去年，联邦政府的负债就从21万亿美元暴增至约33万亿美元）。由于中共病毒不断变异，对经济的打击越来越严重，美国的财政状况将继续恶化。这应该是美国底气不足的原因之一。
+CNN已向美国奥林匹克和残奥会委员会（USOPC）征求意见。国际奥委会在给美国有线电视新闻网的声明中说，它已经收到中国当局的“保证”，认为在北京2022年奥运会上将遵守《奥林匹克宪章》的原则。声明说：“将奥运会授予国家奥委会并不意味着国际奥委会同意其国家的政治结构，社会环境或人权标准。”
 
-另外，从美国大选的混乱中看出，美国社会内部已经陷入了严重的分裂。中共是否由此认定，美国的实力大不如前，因此很难应付一场大型的区域战争呢？而中共政府对14亿中共国民的长期奴化和仇外教育，则为战争做好了内部准备。 这应该是中共敢于主动挑畔美日的主要原因。如果这一次中共的战争威胁能够得逞，吓退西方阵营和拜登政府，侥幸逃脱种族灭绝罪与发动生化战争的惩罚，那么依照中共的邪恶本性，将来必将变本加厉，危害人类。
+活动人士和专家说，美国的指控无疑会加剧要求至少部分抵制奥运会的呼吁。 2020年9月，全球160多个人权团体致信国际奥委会，以改变其在北京举行2022年奥运会的决定。国际藏网的执行主任曼迪·麦基文（Mandie McKeown）对此信进行了协调。他说，如果现在将它们写成另一组信，“无疑”组织的数目将会更多。她说，如果不能取消奥运会，那么她的组织正在倡导以外交方式抵制该赛事，这将允许各队参加而世界领导人不参加比赛。麦克基恩说：“外交抵制的推动力肯定在增加，而且（政府）的声音是积极的。”
 
-信息来源：[https://cn.reuters.com/article/china-taiwan-usa-pentagon-0128-thur-idCNKBS29Y01W](https://cn.reuters.com/article/china-taiwan-usa-pentagon-0128-thur-idCNKBS29Y01W)
+Reference：
 
-编辑/校对/发稿：宁静致远
+Westcott. B., (2021). The US has accused China of carrying out genocide. Will it now boycott the 2022 Beijing Olympics?. [online]. edition.cnn.com. [Viewed 29 January 2021]. Available from: [https://edition.cnn.com/2021/01/26/sport/china-xinjiang-olympics-genocide-boycott-2022-intl-hnk/index.html](https://edition.cnn.com/2021/01/26/sport/china-xinjiang-olympics-genocide-boycott-2022-intl-hnk/index.html)
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+澳喜文章：
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
-
+欢迎加入澳喜农场： [https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_5335-3.jpg)
 0
