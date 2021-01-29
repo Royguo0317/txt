@@ -1,82 +1,89 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/01/25 班农作战室：中共利用病毒大流行和“多难兴邦”概念兜售其成功理念
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/837409/)
+## 50位共和党参议员中的45位不支持弹劾川普
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/840679/)
 
-视频字幕：雨中漫步、文府 | 听写/翻译：势不可挡、clau | 校对：Roberts
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/89-1.jpg)
-**简评：**
+根据CNB News 于2021年1月27日的报道，参议院关于川普弹劾案的最新投票结果：以50位共和党参议员中的45人宣布对前总统唐纳德·川普的弹劾诉讼是违宪的。到目前为止，弹劾前总统的表决还不存在。
+出处：[https://www.youtube.com/watch?v=uVZjSRRuhnY](https://www.youtube.com/watch?v=uVZjSRRuhnY)
+Transcript:
 
-2021年1月25日，作战室年度最受欢迎女士闫丽梦博士再次作客班农作战室，深入揭露了中共和习主席利用中共病毒和“多难兴邦”的概念来洗脑墙内老百姓，兜售其成功理念。
+**45 Out of 50 Republican Senators Don’t Support Impeachment**
 
-班农指出闫博士是第一个站出来说新冠病毒来自武汉实验室，是生物武器计划，现在美国情报机构以及前美国国务卿迈克·蓬佩奥（Mike Pompeo）都告诉我们这是解放军控制的生物武器项目，事实证明闫博士所说的一切都是正确的。班农补充说，习近平在达沃斯论坛的演讲只简单地提到了中共病毒，并不想承担任何责任，想这事就过去了，并且中共将这件事指向美国的生物武器计划。闫博士表示，对于中共，这并不是他们带来的灾难，这是他们获得的一个巨大成功，因为他们表面显示的死亡总数和确诊病例都少于世界其它国家。而中共一直在销售着个人防护装备和那些质量恶劣的疫苗给其他国家，其他政府由于这次未知的大流行病不得不听取中共政府的意。其次，整个科学界都喜欢赞扬中国共产党，并责怪美国政府。闫博士明确提到：中共利用“多难兴邦”的概念取得了巨大的成功，死亡的人只是一个数字，甚至连数字都不是，他们已经不复存在。
+**50**位共和党参议员中的**45**位不支持弹劾
 
-对于习近平在达沃斯论坛的讲话，班农表示美国也有一道防火墙，是因为科技寡头、主流媒体、巨头企业和华尔街都是习近平的商业伙伴，都是达沃斯党，崇尚共产主义。之所以对抗中共不仅仅是因为他们对中国人民的独裁统治和奴役，更是因为他们所做的渗透和改变西方历史进程的事情。拉希姆评论说，继续绥靖将是一场灾难，对大陆中国人、香港、自由世界的一场灾难，对中共来说将是一场全面的胜利。班农也呼吁如果西方世界继续走绥靖政策，很可能从冷战变成热战，这就是中共在台湾发出的信号。
+Republican senators sent a strong signal Tuesday, as 45 out of 50 voted to declare the impeachment trial of former President Donald Trump unconstitutional.
 
-班农最后提到，蓬佩奥认定中共是针对维吾尔人的种族灭绝政权，根据情报机构，这个病毒来自武汉病毒实验室，是人民解放军生物武器计划的一部分。Posobiec补充到，习近平在达沃斯论坛的演讲是在宣示自己的胜利，他的讲话不是暗示，而是在下命令。
+共和党参议员们周二发出强烈信号，50人中的45人宣布对前总统唐纳德·川普的弹劾诉讼是违宪的。
 
-**Youtube视频1：**
+“In this vote, the ayes are 55, the nays are 45. The motion to table is agreed to. The point of order is not sustained, majority leader.”
 
+“在这次表决中， 共55票同意，45票反对。同意议案被搁置。论点不成立。多数党领袖。”
 
+The trial goes on, but the vote set in motion by Senator Rand Paul makes it clear that Trump is almost certainly headed towards a second acquittal.
 
-**GTV视频链接 1：**[https://gtv.org/video/id=601019c4c3245d7c59e89ebc](https://gtv.org/video/id=601019c4c3245d7c59e89ebc)
+决议还在进行中，但参议员兰德·保罗发起的表决清楚地表明，川普几乎肯定会走向第二次无罪释放。
 
-**视频字幕****1****：**
+“This impeachment is nothing more than a partisan exercise designed to further divide the country. Democrats claim to want to unify the country but impeaching a former president, a private citizen is the antithesis of unity.”
 
-**班农：**闫博士你今天上节目是由于习主席（在达沃斯论坛）的讲话。大家都知道，你是第一个站出来说新冠病毒来自武汉实验室。它不是来自蝙蝠洞，也不来自武汉海鲜市场，蝙蝠女（石正丽）散慌，这全部是CCP安排的。
+“弹劾只不过是旨在进一步分裂国家的党派活动。 民主党人声称要使国家团结，但弹劾作为一位普通公民的前总统是在团结的对立面。”
 
-你是第一个说这是生物武器计划，现在美国情报机构以及上周迈克·蓬佩奥（Mike Pompeo）都告诉我们这是解放军控制的生物武器项目。你告诉西方的一切都是真实的，而你一直被嘲笑是一个疯狂的人，是女版郭文贵，说你疯了。但是事实证明一切都是正确的，闫博士所说的一切都是对的，对她的所有批评都是错误的。
+Senator Paul blasted the trial and called on his colleagues to put an end to it and instead get to work for America.
 
-今天习近平在达沃斯论坛的演讲，他想告诉我们世界的发展方向。他只简单地提到了Covid-19病毒，并不想承担任何责任，想这事就过去了，还说：“我们也许可以共同解决这个问题”。
+保罗参议员对审判进行了抨击，并呼吁他的同事们停止诉讼，而应该为美国工作。
 
-此外，本周中央卫视在黄金时间播出了8分钟的特别节目，他们说他们将聚焦马里兰州西部的德特里克堡。他们说：“我们认为这件事来自美国的生物武器计划”。
+“Instead of doing the nation’s work, with their new majorities in the house, the senate, and the executive branch, Democrats are wasting the nation’s time on a partisan vendetta against a man no longer in office.”
 
-闫博士，请告诉我们，习近平为何如此不思悔改，对他们释放给世界的病毒不想承担任何责任？
+“民主党刚刚在众议院、参议院和行政部门拿到多数席位，却不为国家做事，而是浪费国家的时间，搞党派之争去反对一个已经不在位的人。”
 
-**闫博士：**我认为只需要改变你的思维方式，你会很好地理解中共，因为对于中共，这并不是他们带来的灾难，这是他们获得的一个巨大奖杯。
+GOP lawmakers argued the trial is unconstitutional because Trump is no longer the President.
 
-人们会纪念所经历的悲惨遭遇和意外，例如911事件，人们总是每年在同一时间悼念逝者。他们仍然为失去的人感到痛苦。但是在中共国，这种事情实际上使当政者有完全不同的想法。对于中共而言，他们总是觉得这是一个巨大的成功，因为他们显示的死亡总数和确诊病例都少于世界其它国家。
+共和党议员们辩称，审判不符合宪法，因为川普已经不再是总统。
 
-而且他们一直在销售着个人防护装备和那些质量恶劣的疫苗给其他国家，其他政府由于这次未知的大流行病不得不听取中共政府的意见。还有整个科学界，他们都喜欢赞扬中国共产党，并责怪美国政府，就像责怪川普政府说：“你们做得比中国共产党差多了，你们应该向他们学习”。
+How can you put someone through a process where the automatic consequence of it is impossible? You can’t remove Donald Trump from office; he’s not in office.
 
-所以根据中国共产党的理论，他们取得了巨大的成功。死亡的人只是一个数字，甚至连数字都不是，他们已经不复存在了，这就是原因。
+你怎么能让一个人走一个注定不会有结果的程序呢？你不可能使唐纳德·川普离开[总统]办公室的，因为他已经不在位了。
 
-**视频字幕 2：**
+Democrats insist the constitution does not exempt a former president from impeachment.
 
-**Youtube视频 2：**
+民主党人坚持认为宪法并未使前总统免于被弹劾。
 
+“The theory that the senate can’t try former officials would amount to a constitutional get out of jail free card for any president who commits an impeachable offense.”
 
+“参议院不能审判前任官员的理论，旨在会使任何犯下可弹劾罪行的总统来说，获得一张免死金牌。”
 
-**GTV视频链接 2：**[https://gtv.org/video/id=60116bdbc3245d7c59e927d4](https://gtv.org/video/id=60116bdbc3245d7c59e927d4)
+While only five republicans voted in favor of moving forward with the trial, 17 would need to join Democrats in order to convict Trump.
 
-**班农：**之所以在美国这里有一道防火墙，是因为科技寡头、主流媒体、巨头企业和华尔街都是习近平的商业伙伴。他们是达沃斯党中活跃的商业伙伴，你们已经看到了习近平不希望对抗。
+虽然只有五名共和党人投票赞成推进案子，但还需要17名共和党人加入民主党才能给川普定罪。
 
-对抗中共是川普政府的标志，不仅仅是因为他们对中国人民的独裁统治，对中国人民的奴役，更是因为他们所做的渗透和改变西方历史进程的事情。他们想要是协商、迁就。绥靖一直大行其道，绥靖在西方，在我们的历史中有很好的记录。
+There may be another alternative, however, according to Axios, Republican Susan Collins of Maine and Democrat Tim Kaine of Virginia are trying to get their fellow Senators to go along with a bipartisan resolution censuring Trump。
 
-习近平说不会有重启，对吗？如果你们想继续走这条路，就会从冷战变成热战，这就是他们在台湾发出的信号。他们在本周末派出13架轰炸机，已经发表声明，他们希望所有的航母战斗群都离开台湾海峡。
+可能还有其它途径, 然而，根据值得新闻 (Axios），缅因州共和党人苏珊·柯林斯和弗吉尼亚州民主党人蒂姆·凯恩，他们试图让参议员们达成两党共识一起谴责川普。
 
-他们说得再清楚不过了，现在你知道为什么我在拜登宣誓就职四分钟后就被制裁了，包括迈克-蓬佩奥在内的28人，在他们卸任之际，认定他们是针对维吾尔人的种族灭绝政权。
+The impeachment trial will move forward on February 9th , Paul’s motion has officially put senators on the record and made very clear that as of now the votes to impeach the former president just aren’t there.
 
-迈克-蓬佩奥和情报机构还说，这个病毒来自武汉实验室。病毒要么泄露出去的，要么就是被人释放的，武汉实验室是人民解放军生物武器计划的一部分。对此我没有听到任何道歉的声音，没有。
+弹劾案将被推到2月9日进行。保罗的这项动议已正式将参议员们的态度公开化，那就是，从目前来看，弹劾前总统所需要的票数还未达到。
 
-习说，我们会帮助人们了解这个问题，但没听到他说为他们给世界造成的灾难承担任何责任。拉希姆，你对习近平以及他今天演讲的重要性有什么看法。
+Katelyn Burke, CBN news.
 
-**拉希姆：**我想对乔-拜登来说，这将是一个巨大的张伯伦时刻（绥靖政策时刻）。听完这个习近平的讲话，他本来只能站出来否定习近平暗示的一切，但他不会。
+CBN新闻凯特琳·伯克报道。
 
-这将是一个张伯伦时刻（绥靖政策时刻）。那是一场灾难，对自由世界的一场灾难，对普通中国人的一场灾难，对香港的一场灾难，对中国共产党去来说将是一场全面的胜利。
+*出处：[https://www.youtube.com/watch?v=uVZjSRRuhnY](https://www.youtube.com/watch?v=uVZjSRRuhnY)*
 
-**班农：**Posobiec，给我们讲讲你的想法，广告前我们有大约一分钟的时间，下一段你还会在，你对习近平讲话的想法。
+*听写 & 翻译：【JennyL】校对：【Isaiah4031】字幕：【V%】 编辑：【Mark】*
 
-**Posobiec****：**事实上我的想法和拉希姆完全一致，这是一个胜利的演讲，这是习近平在宣示自己。一年前的今天，我讲到天命，这个瘟疫是对中共天命的挑战。这次习近平在达沃斯，通过克劳斯-施瓦布，接受或者至少自诩为全世界的“真命天子”。
+*喜马拉雅玫瑰园小队出品*
 
-他的演讲的最后一句话：“人类只有一个地球，只有一个共同的未来。”当习近平这样告诉世界各国领导人的时候，他不是在暗示，他是在下命令。
+*以上翻译整理仅代表作者个人观点，不代表**GNEWS**或他人立场。*
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+*敬请关注**:*
 
+*GTV:**[喜马拉雅玫瑰园中文频道](https://gtv.org/user/6005ad73f579a75e0bde4d27)**，**[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)*
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-0
+*Gab:**[https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)*
+
+*Blog:**[https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)*
+
+*Vimeo:**[https://vimeo.com/user131524598](https://vimeo.com/user131524598)*
+
++1

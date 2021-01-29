@@ -1,37 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## COVID-19与人权：保护最弱势群体（重点节选）
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/837896/)
+## 共軍機又來踩台灣海峽中線了
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/840970/)
 
-撰稿人 喜妈 喜安娜
-![]()![](https://gnews.org/wp-content/uploads/2021/01/united-nations.jpg)图片来源: YouTube.com
-COVID-19危机作为被认为是极度不平等的时期，正在考验世界的人性和快速恢复能力。由于大流行的社会经济影响严重打击了弱势群体和边缘化群体，企业可以加倍努力来支持有需要的社区。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/china-flight-1-5.jpg)圖片來源台灣國防部提供
+新聞剪輯：雙城記 審稿：Jenny
 
-我们对这种流行病的应对必须包括-实际上是集中于-那些社会经常忽视或降级为低等地位的人。否则，它将失败。 3月中旬，联合国人权事务高级专员米歇尔·巴切莱特（Michelle Bachelet）敦促：每个人的健康与社区中最边缘化成员的健康息息相关。
-如果没有足够的资源来保护自己免受健康风险，获得医疗保健或购买必需品的费用，许多人将发现自己处于不稳定的境地。随着世界范围内令人震惊的工作机会流失，在这种情况下的人数将不可避免地增加。
+One America News Network 以路透社的報導（中國語言尖銳，警告臺灣獨立“意味著戰爭）為題在1月28日新聞網頁刊載說 中國週四對臺灣措辭强硬，在最近加强了在臺灣島附近的軍事活動後警告說，“獨立意味著戰爭”，中國武裝力量的行動是為了應對挑釁和外國干涉。被中國宣稱為自己領土的臺灣，上週末報告稱有多架中國戰鬥機和轟炸機進入其西南防空識別區，台灣方面促使華府敦促北京停止對臺灣施壓。
+文中表示中共國認為，臺灣的民選政府正在推動該島正式宣佈獨立，儘管臺灣總統蔡英文一再表示，臺灣已經是一個獨立的國家，其正式名稱叫中華民國。
+中國國防部發言人吳謙在每月一次的新聞發佈會上被問及空軍近期的活動時表示，臺灣是中國不可分割的一部分。
+“中國人民解放軍在臺灣海峽開展的軍事活動，是應對當前台海安全形勢、維護國家主權和安全的必要行動。“他說。“他還說，”它們是對’台獨’勢力外部干涉和挑釁的鄭重回應。吳說，臺灣有 「一小撮 」人在謀求台灣獨立。”我們警告那些’台獨’分子：玩火者必自焚，’台獨’意味著戰爭。” 他補充說。OANN文中表示雖然中共從未放棄使用武力將台灣置於其控制之下，但北京做出如此公開的、口頭上的衝突威脅是不尋常的。
+五角大樓發言人柯比（John Kirby）對中共的此言論回應，中國和臺灣之間的緊張關係 「沒有理由導致類似對抗的事情」。 他還重申了美國長期以來對臺灣自衛的軍事支援。”我們有義務協助台灣進行自衛，我想你們會看到這種情況繼續下去，” 
+臺灣 大陸事務委員會 （簡稱陸委會）表示，中國應慎重考慮，不要低估島內捍衛主權、維護自由民主的決心。台灣譴責中國的威脅和恐嚇努力，蔡英文誓言要捍衛島內的自由，不受脅迫。
+同時台灣西南海域中共軍機又擾台，中共在測試新美國的政府的底線。據台灣國防部報導：1月29日 [中共軍機](https://www.facebook.com/hashtag/%E4%B8%AD%E5%85%B1%E8%BB%8D%E6%A9%9F?__eep__=6&amp;__cft__%5b0%5d=AZUP_ZaaHKd7Z2Obgs9OUAwXBEg1FCQ6bzcSF33EDV5XH-WoAQbajLu-Q3TFAe9mWaN7rijmwPD2g6JCjeIKPduKgWDuOkd1w3vtzv54oOCyUv1t95vNg23qteQdv8iLl6k1Xu60QkkDwfERmSkasbS2&amp;__tn__=*NK-R) [運八反潛機](https://www.facebook.com/hashtag/%E9%81%8B%E5%85%AB%E5%8F%8D%E6%BD%9B%E6%A9%9F?__eep__=6&amp;__cft__%5b0%5d=AZUP_ZaaHKd7Z2Obgs9OUAwXBEg1FCQ6bzcSF33EDV5XH-WoAQbajLu-Q3TFAe9mWaN7rijmwPD2g6JCjeIKPduKgWDuOkd1w3vtzv54oOCyUv1t95vNg23qteQdv8iLl6k1Xu60QkkDwfERmSkasbS2&amp;__tn__=*NK-R) [#7A431A](https://www.facebook.com/hashtag/7a431a?__eep__=6&amp;__cft__%5b0%5d=AZUP_ZaaHKd7Z2Obgs9OUAwXBEg1FCQ6bzcSF33EDV5XH-WoAQbajLu-Q3TFAe9mWaN7rijmwPD2g6JCjeIKPduKgWDuOkd1w3vtzv54oOCyUv1t95vNg23qteQdv8iLl6k1Xu60QkkDwfERmSkasbS2&amp;__tn__=*NK-R) [#編號82011](https://www.facebook.com/hashtag/%E7%B7%A8%E8%99%9F82011?__eep__=6&amp;__cft__%5b0%5d=AZUP_ZaaHKd7Z2Obgs9OUAwXBEg1FCQ6bzcSF33EDV5XH-WoAQbajLu-Q3TFAe9mWaN7rijmwPD2g6JCjeIKPduKgWDuOkd1w3vtzv54oOCyUv1t95vNg23qteQdv8iLl6k1Xu60QkkDwfERmSkasbS2&amp;__tn__=*NK-R) 進入ADIZ(西南空域)，台灣空軍在空監控，並於09時09分廣播驅離。另 11時43分美軍在西南空域進行國際航行權宣告。本月累計進入我空域28天，本月廣播驅離紀錄共計87次。也在昨日1月28日 [中共軍機](https://www.facebook.com/hashtag/%E4%B8%AD%E5%85%B1%E8%BB%8D%E6%A9%9F?__eep__=6&amp;__cft__%5b0%5d=AZX6_D97aCh8Jkc--hlzHsB0bRWyNnIjKNn8WZVx6OxBJQtcEn5Su_7M8FZvr7kW87ZWcJX0IiborXtjSEbVCZjdg1qicgaHvxqgxi0ypR4Zqwc4HkJ5qg0LoW89nIWVeztBLxAAk-MR6CHatlt-wYD0&amp;__tn__=*NK-R) [空警500](https://www.facebook.com/hashtag/%E7%A9%BA%E8%AD%A6500?__eep__=6&amp;__cft__%5b0%5d=AZX6_D97aCh8Jkc--hlzHsB0bRWyNnIjKNn8WZVx6OxBJQtcEn5Su_7M8FZvr7kW87ZWcJX0IiborXtjSEbVCZjdg1qicgaHvxqgxi0ypR4Zqwc4HkJ5qg0LoW89nIWVeztBLxAAk-MR6CHatlt-wYD0&amp;__tn__=*NK-R) [7A42A3](https://www.facebook.com/hashtag/7a42a3?__eep__=6&amp;__cft__%5b0%5d=AZX6_D97aCh8Jkc--hlzHsB0bRWyNnIjKNn8WZVx6OxBJQtcEn5Su_7M8FZvr7kW87ZWcJX0IiborXtjSEbVCZjdg1qicgaHvxqgxi0ypR4Zqwc4HkJ5qg0LoW89nIWVeztBLxAAk-MR6CHatlt-wYD0&amp;__tn__=*NK-R) [編號81031](https://www.facebook.com/hashtag/%E7%B7%A8%E8%99%9F81031?__eep__=6&amp;__cft__%5b0%5d=AZX6_D97aCh8Jkc--hlzHsB0bRWyNnIjKNn8WZVx6OxBJQtcEn5Su_7M8FZvr7kW87ZWcJX0IiborXtjSEbVCZjdg1qicgaHvxqgxi0ypR4Zqwc4HkJ5qg0LoW89nIWVeztBLxAAk-MR6CHatlt-wYD0&amp;__tn__=*NK-R) [不明機型](https://www.facebook.com/hashtag/%E4%B8%8D%E6%98%8E%E6%A9%9F%E5%9E%8B?__eep__=6&amp;__cft__%5b0%5d=AZX6_D97aCh8Jkc--hlzHsB0bRWyNnIjKNn8WZVx6OxBJQtcEn5Su_7M8FZvr7kW87ZWcJX0IiborXtjSEbVCZjdg1qicgaHvxqgxi0ypR4Zqwc4HkJ5qg0LoW89nIWVeztBLxAAk-MR6CHatlt-wYD0&amp;__tn__=*NK-R) [#7BB2B1](https://www.facebook.com/hashtag/7bb2b1?__eep__=6&amp;__cft__%5b0%5d=AZX6_D97aCh8Jkc--hlzHsB0bRWyNnIjKNn8WZVx6OxBJQtcEn5Su_7M8FZvr7kW87ZWcJX0IiborXtjSEbVCZjdg1qicgaHvxqgxi0ypR4Zqwc4HkJ5qg0LoW89nIWVeztBLxAAk-MR6CHatlt-wYD0&amp;__tn__=*NK-R) 等多架次多空層進入西南空域，台空軍在空監控，並四度廣播驅離。同時巴士海峽有美國海軍P-8A以及美國空軍KC-135通過。 儘管此類的演習頻率增加，但共機這次編隊以戰鬥機和轟炸機為主，時機和編制似乎是給美國新政府傳達訊息，拜登才剛上任幾天就面臨重大外交挑戰。
 
-我们学到了什么？
+台灣自由時報一則溫馨報導說到中共解放軍近期在台灣西南海空域動作頻頻，並高調武嚇台灣，為支持國軍英雄，屏東陳姓黑豬農今早殺豬力挺東沙島上的國軍，該豬農共準備6頭頂級黑豬，其中1頭製成黑豬肉香腸，今天上午豬農親自將豬肉分裝上車，由海洋委員會海巡署東南沙分署派車運載，預計春節前夕，就能送抵東沙群島，幫國軍弟兄加菜。
 
-- COVID-19危机凸显了我们社会中的缺陷，我们曾经知道它的存在，但未能解决，现在加剧了。尽管该病毒没有歧视性，但它的影响确实存在。而且在世界所有地区，处于脆弱境地的人们受到的影响最大。
-- 一个国家拥有的最大资产就是人民，因此，即使在经济困难时期和这次公共卫生危机中，国家和公司也必须遵守《联合国企业与人权指导原则》，以保护这一人力资本。
-- 公私伙伴关系对于重新利用资产，技能和产品的努力至关重要。将生产转向必需品，例如肥皂和洗手液，以及公平分配此类产品至关重要。
-- 跨国公司呼吁尽可能避免取消订单，以控制工人在其供应链中的困境。
-- 由于我们仍未步入正轨，因此可持续发展目标应继续作为我们的路线图，而体面劳动，气候，不平等和贫困的挑战依然存在。这些挑战仍然需要政治意愿和资源来克服。
-- 多边主义与以往一样重要。为了克服这一全球危机，需要基于全球合作与团结的真正全球对策。我们需要使国家对策国际化。这场危机影响着我们所有人，我们必须采取集体行动来解决它，并使它更好地恢复。
-- 保护大流行中最脆弱的人群与保护那些易受气候变化影响的人群紧密相关。我们可以花时间了解并采取具体行动来减轻气候危机的危害，以减少更多的生命和生计损失。
-- 那些希望取得成功的企业需要将利益相关者置于股东之上，这是COVID-19之后的关键一步。
-- 保护妇女和女童的权利至关重要。妇女和女童的照料负担过大，家庭暴力，失业和经济不安全的风险更大。需要更加重视为他们提供安全的住所，替代性就业，获得WASH的机会和社会保护。
+新聞剪輯來源：
+
+[https://news.ltn.com.tw/news/politics/breakingnews/3425883?fbclid=IwAR0Rljt8BoGdN4B01LZH9vCX8e1L5H2y6Nvr61gjeItLhfqQzIz-WmLNk6E](https://news.ltn.com.tw/news/politics/breakingnews/3425883?fbclid=IwAR0Rljt8BoGdN4B01LZH9vCX8e1L5H2y6Nvr61gjeItLhfqQzIz-WmLNk6E)
 
 
-Reference:
 
-UN Global Compact Academy., (2021). COVID-19 and Human Rights: Protecting the Most Vulnerable. [online]. unglobalcompact.org. [Viewed 29 January 2021]. Available from: [https://unglobalcompact.org/academy/covid-19-and-human-rights-protecting-the-most-vulnerable](https://unglobalcompact.org/academy/covid-19-and-human-rights-protecting-the-most-vulnerable)
+> [China sharpens language, warns Taiwan that independence ‘means war’](https://www.oann.com/china-sharpens-language-warns-taiwan-that-independence-means-war/)
 
-澳喜文章：
 
-[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
 
-欢迎加入澳喜农场： [https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_5335-3.jpg)
-0
+[https://edition.cnn.com/2021/01/25/asia/china-us-taiwan-military-moves-intl-hnk-mil/index.html](https://edition.cnn.com/2021/01/25/asia/china-us-taiwan-military-moves-intl-hnk-mil/index.html)
+
+[https://news.ltn.com.tw/news/life/breakingnews/3425941?fbclid=IwAR1IiKUUGahLXJ7jb12LR3a5OvjCSQYoqTZey0760S9P9QJWALfP89FVcq4](https://news.ltn.com.tw/news/life/breakingnews/3425941?fbclid=IwAR1IiKUUGahLXJ7jb12LR3a5OvjCSQYoqTZey0760S9P9QJWALfP89FVcq4)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-澳喜Logo-8.jpeg)
++2

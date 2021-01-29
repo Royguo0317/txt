@@ -1,33 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德时评简讯（视频版）: 中共被定义为反人类罪全面发酵（2021.1.24 早间 路德社简讯之路安墨谈 ）
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/838948/)
+## 中共采取措施阻止回家过年
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/841738/)
 
-《路德社》出品
-
-以下视频是详细内容：
-
-内容摘要：
-
-1.中共新反腐运动直指军内权利大扫荡
-
-2.以共灭工的大时代已经开始
-
-3.从严治党
-
-4.中共被定义为反人类罪全面发酵
-
-5.拜登支持川普将美大使馆留在耶路撒冷的意义
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-翻译：路德社翻译组
+**西班牙2021年1月29日电/西喜社——**中共已经采取了各种措施来阻止中国人在这个季节的旅行，尽管这可能是他们一年中唯一的回家和见家人的机会。
 
-制作：路德社简讯视频组
+黑龙江省报告的新病例数量最多，在过去24小时内有21例，其次是吉林省。首都北京和其周边的河北省都各报告了一例新病例。
 
-审核校对：玫瑰天空
+**新闻来源：**[https://apnews.com/article/europe-united-nations-health-coronavirus-pandemic-coronavirus-vaccine-50c1f79fca97a6c2e46f7eaf8fd7afc0](https://apnews.com/article/europe-united-nations-health-coronavirus-pandemic-coronavirus-vaccine-50c1f79fca97a6c2e46f7eaf8fd7afc0)
 
-上传排版：糊糊文婴
+![]()![](https://gnews.org/wp-content/uploads/2021/01/d895b24c-ac70-471f-9a29-b5dd6b90f024-33.jpg)
 
-0
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+
++1
