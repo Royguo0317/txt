@@ -1,28 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 意大利检察官调查政府涉嫌的病毒死亡刑事责任
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/836852/)
+## 卢比奥呼吁两党在处理对华问题上达成共识
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/837093/)
 
 - 编辑：Victor Torres
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月28日电/西喜社——**检察官再次前往罗马询问卫生部长和其他人，作为调查意大利中共病毒死亡人数的任何可能的刑事指控的一部分。
+**西班牙2021年1月28日电/西喜社——**参议员马克·卢比奥(Marco Rubio)周三表示，乔·拜登政府在与中共国打交道时应该遵循 “两党共识”。
 
-贝加莫的刑事调查已经扩大，因为人们对意大利在大流行之前的准备工作提出了质疑。贝加莫成为意大利和欧洲第一的中共病毒疫情中心，去年3月份登记的超额死亡率比前五年的平均水平高出571%。
+“过去四年，这里有一个变化是非常戏剧性的，那就是真的没有多少声音说我们应该保持对中共国的方式，”这位佛罗里达州的共和党人在福克斯新闻的 “福克斯与朋友 “中说。”我认为现在有广泛的一致意见，必须重新思考这个问题。”
 
-世界卫生组织对意大利应对措施的报告中出现的一桩丑闻显示，该国的流感大流行计划自2006年以来一直没有更新。贝加莫的调查人员表示，他们正在进一步调查为什么2006年的计划从未付诸实施，这也是世卫组织所说的，意大利对造成伦巴第地区医院不堪重负的数千名病患的混乱反应的原因之一。
+不过，他说，他担心政府可能会说正确的话，但不会真正致力于与中共国打交道，会有一些不认为美国和中国被锁定在这种 “战略竞争 “中的人被任命或安排到岗位上。
 
-6月，贝加莫检察官对总理朱塞佩·孔蒂、卫生部长罗伯托·斯佩兰扎和其他高级官员，关于他们对两个早期报告感染的贝加莫镇迟迟没有实行封锁的事实进行了询问。
+不过，在世界范围内，各国都在担心中共国如何做生意，担心自己的供应链会受到伤害。
 
-意大利周四又报告了492人死亡。这个国家已经登记了近87,000例中共病毒相关的死亡，是欧洲仅次于英国的第二高死亡人数。
+“他们正在采取自己的步骤，”卢比奥说。”他们比我们小，他们的经济规模较小，所以他们必须平衡这一点，不能完全被切断，因为这会伤害他们的经济，但他们确实希望美国的领导力—5G就是一个很好的例子。”
 
-**新闻来源：**[https://apnews.com/article/world-news-japan-vietnam-coronavirus-pandemic-d4132018158671ef68451fad17ecd61c](https://apnews.com/article/world-news-japan-vietnam-coronavirus-pandemic-d4132018158671ef68451fad17ecd61c)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/c2b63a63-2629-4eaf-a655-04f95f0a2b82-10.jpg)
+**新闻来源：**[https://www.newsmax.com/t/newsmax/article/1007442?section=politics&keywords=competition-economy-keystone-pipeline&year=2021&month=01&date=27&id=1007442&oref=t.co](https://www.newsmax.com/t/newsmax/article/1007442?section=politics&amp;keywords=competition-economy-keystone-pipeline&amp;year=2021&amp;month=01&amp;date=27&amp;id=1007442&amp;oref=t.co)
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
-+2
+0

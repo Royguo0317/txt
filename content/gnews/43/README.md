@@ -1,70 +1,86 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中欧投资协议将使西方万劫不覆
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/835678/)
+## 港府罔顾疫情所致民生困顿 斥巨资15亿进行基建
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/835879/)
 
-*新闻来源：《NewEurope》| 作者：Robert Tyler | 发布时间：2021年1月23日*
+*新闻来源：HKFP《香港自由新闻》| 作者：Candice Chau 安迪斯•周| 发布时间：2021年1月27日*
 
-*翻译/简评：helloworld | 校对：Beicy-数学老师 | 审核：freedust | Page：Daoiii*
+*翻译/简评：wmorpho | 校对：Beicy-数学老师 | 审核：freedust |Page：小雨*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/TZeuZQMhxopQK/images/2d63fb52-46ef-42c1-88e4-351cd529700b.jpg?asset_id=f154d229-d528-43b1-8c18-6cfa2433f258&amp;img_etag=%225d249690590ca2e4ebdf8c6cabc22d00%22&amp;size=2560)](https://spark.adobe.com/page/TZeuZQMhxopQK/images/2d63fb52-46ef-42c1-88e4-351cd529700b.jpg?asset_id=f154d229-d528-43b1-8c18-6cfa2433f258&amp;img_etag=%225d249690590ca2e4ebdf8c6cabc22d00%22&amp;size=1024)
+#### 
 
-***简评：***
+![]()![](https://gnews.org/wp-content/uploads/2021/01/012806-1.jpg)
 
-**前段时间，在美国大选激战正酣、保守势力与激进势力激烈冲突、彭培奥国务卿与中共国外交官员争相向欧盟游说之后，欧盟委员会宣布了此项协议。协议名义上创造了投资和就业机会，将中共国工人和产品带向人权和自由受法律保护的欧洲，但是协议实际将会为中共国国内人权侵犯以及强迫劳动行为开绿灯，而且中共国企业有着丰富的压制员工经验，而且还有其在中共国家人作为人质，员工在欧洲能否真正享受人权和自由也存在着疑虑。而这种投资模式并不能够为欧洲民众创造就业机会，根据中共国一带一路的很多例子，反而会成为当地无法承受的债务包袱，从而损害合作国家的利益。**
+**简评：**
 
-**可能出于对美国将放弃欧洲合作的忧虑（川普政府在任时与欧盟摩擦不断），包括本文作者也猜测欧盟此举是为了找一条能够利于自身的出路。而在受欧洲政治家普遍表示欢迎的拜登政府上台，重新拥抱国际秩序（包括WHO、UN等）之后，欧美关系可能将升温。而这项难产至今，又饱受争议的协议多半会因此而被废止。而拜登政府仍然维持了川普政府对于中共国威胁和种族灭绝的认定，未来对中共的追责将产生巨大的政治和经济利益。与美国保持一致，共同声讨中共，想必会是欧盟政府更加明智、现实且获益更大的选择。**
+香港政府无视百姓的苦难，拒绝对因CCP冠状病毒大流行被封锁的居民提供补偿，却通过了为巨型天桥提供15亿港元巨额费用的法案，行事风格与中共国无异，由此可见，香港已沦为中共国的一个普通城市，她已失去了东方明珠的风采，香港人民的苦难已经开始，而林郑月娥的罪恶也与日俱增。邵家臻批评林郑月娥不援助受病毒大流行影响的小企业，并说林郑月娥愿意在哪里花钱已表明了她的工作重点是什么。邵家臻还说：“我知道林郑月娥是天主教徒，我引用圣经的话送给她：你重视的宝藏在哪里，你的心也就在哪里。”作为天主教徒，林郑月娥令天主教蒙羞。同时香港也为世界上了惨痛的一课，那就是，一旦被中共国控制，人民将失去自由的权利与尊严的生活，反抗将异常的艰难，生不如死将是人们共同的心声！
 
-***原文翻译：***
+**原文翻译：**
 
-# **中欧投资协议对西方是一场灾难**
+# **香港政府在拒绝了对因CCP新冠病毒被封锁的居民提供补偿之后的第二天，香港立法机关却通过了为巨型大桥提供15亿港元巨额费用的法案**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/TZeuZQMhxopQK/images/ef95336e-cbf5-47ad-a638-11368984f33f.png?asset_id=36c4b24d-e9db-44e8-a5ee-03046987668c&amp;img_etag=%22b6fde66499113ffac861463d19c94428%22&amp;size=2560)](https://spark.adobe.com/page/TZeuZQMhxopQK/images/ef95336e-cbf5-47ad-a638-11368984f33f.png?asset_id=36c4b24d-e9db-44e8-a5ee-03046987668c&amp;img_etag=%22b6fde66499113ffac861463d19c94428%22&amp;size=1024)
+**香港行政长官林郑月娥在星期二的例行新闻发布会上被问及政府实行封锁对香港经济的影响时，她告诉香港人，“要咬紧牙关，继续前进”。**
 
-与中共国主席习近平举行虚拟峰会后，欧盟委员会主席乌尔苏拉·格特鲁德·冯德莱恩(Ursula von der Leyen)在新闻发布会上发表讲话（欧洲新闻图片社-艾菲通讯社 Yves Herman）
+周三，香港立法机关委员会在无人有效反对的情况下，通过了一项15亿港元的法案，为香港的巨型桥梁提供资金。
 
-在2020年12月，由冯德莱恩(Ursula von der Leyen)、米歇尔(Charles Michel)、习近平、安格拉·默克尔(Agnela Merkel)和埃马纽埃尔·马克龙(Emmanuel Macron)主导的联合虚拟新闻发布会上宣布了《中欧综合投资协议》(EU-China Comprehensive Investment Agreement)。这项协议对于西方世界是一场灾难。它未能解决中共国对人权的侵犯。它没有触及到强迫劳动（奴隶制）的问题。它使专制政权合法化。最重要的是，它也没能为欧洲人创造承诺的工作机会。
+经过大约一个小时的辩论，立法会公共工程委员会通过了对港珠澳大桥的额外资金支持。
 
-这项尚未对公众及欧洲议会成员公开的投资协议，被认为是中共国对欧盟进行投资的一种新的手段。从表面上看，这似乎是个不错的协议。但是，根据少数查看过协议文本的人所撰写的文章描述，该协议具有一些附带条件。
+[!\[\]()!\[\](https://spark.adobe.com/page/i7G1t6N6yS6ob/images/cba13808-7a21-4fb6-bb55-033c817427a6.jpg?asset_id=223a3799-2af0-4bdb-8f11-c4d74dac5f64&amp;img_etag=%2226c247ae94eaf2c92612e9b9b7cd5d6e%22&amp;size=2560)](https://spark.adobe.com/page/i7G1t6N6yS6ob/images/cba13808-7a21-4fb6-bb55-033c817427a6.jpg?asset_id=223a3799-2af0-4bdb-8f11-c4d74dac5f64&amp;img_etag=%2226c247ae94eaf2c92612e9b9b7cd5d6e%22&amp;size=1024)
 
-其中最主要的是，协议要求，欧盟不会强迫中共国签署国际劳工组织(ILO) 关于废除强迫劳动公约。这意味着中国共产党获得了在全国使用维吾尔族和藏族进行强迫劳动的通行证。
+港珠澳大桥的香港连接点。档案照片：香港政府
 
-最新证据表明，中共国在“再教育营”中关押了近300万藏族和维吾尔族人。他们被派往全国各地（不止他们的家乡）并被作为廉价强迫劳力使用。通常，他们从事着重体力活，比如棉花采摘工人或建筑工人，并且缺乏适当的装备以及工间休息。其他人则被安插在全国各地的工厂中从事制造工作。根据澳大利亚政府的报告，据称有欧洲大型汽车行业公司的中共国合作伙伴被发现正在使用维吾尔劳工。
+这座大桥于2018年正式通车，超出预算且交通流量不足。拨款获批准后，主桥的费用将增加至约105亿港元，而支付的总金额将达到约660亿港元。
 
-美国和英国对于这些指控反应迅速。他们全面禁止了从中共国进口的农产品，包括棉花在内。在禁止进口强迫劳动生产的产品的同时，他们还判罚了使用这些强迫劳动产品的政府的罪责，并施以高额罚款。相比之下，欧盟尚未出台任何此类禁令。
+运输和房屋局局长陈帆承认，由于冠状病毒大流行削减了大桥的交通流量，大桥目前的收入“甚至无法支付其贷款的利息”。
 
-同样，该协议也没能保护作为因协议安排，将要进入欧盟的中共国工人的权利。该协议泄露的条款之一写道，无限量的中共国工人能够与他们的公司一起来到欧盟，并最多停留三年。这是加拿大人、英国人甚至美国人都没有的权利。然而，已在欧盟的中共国工人是否拥有所声称的权利也令人怀疑。华为前雇员最近发表了一篇文章，暴露了华为压制工人的企业文化。
+在经过大约40分钟的辩论后，立法机关还同意，将为香港第六贫困地区深水埗的行人天桥再提供3.3亿港元的资金支持，并提交给公共工程委员会进一步讨论。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/TZeuZQMhxopQK/images/135a06dd-5eda-4bf0-aa71-6c221b996ef5.jpg?asset_id=092b98f0-7297-4306-ac0f-516f07900b10&amp;img_etag=%22fb67a4e0183e2974c8ccc5aad8b4bd62%22&amp;size=3047)](https://spark.adobe.com/page/TZeuZQMhxopQK/images/135a06dd-5eda-4bf0-aa71-6c221b996ef5.jpg?asset_id=092b98f0-7297-4306-ac0f-516f07900b10&amp;img_etag=%22fb67a4e0183e2974c8ccc5aad8b4bd62%22&amp;size=1024)
+上星期，政府已拨出超过20亿港元的财政资助，用于海洋公园主题公园。
 
-在华为的一个欧洲办公室，中共国的工人，无论履历如何，都与欧洲人在不同的楼层工作。他们被禁止与欧洲人建立恋情。那些以身犯险的人将被召回中共国，而若拒绝召回则会面临解雇风险。西班牙曾发生过一起重大事件，一名中共国工人因流产及后续治疗请假，结果招致公司开除。实际上，欧洲的中共国工人已被胁迫。他们孤立无援，无法与欧洲同事互动。工会发现员工担心牵连在中共国的家人，害怕寻求工会代表本人讨回公道，因此很难采取实际行动解决这些问题。
+[!\[\]()!\[\](https://spark.adobe.com/page/i7G1t6N6yS6ob/images/696f67a9-5b23-4376-9a6e-6fb9ba590394.jpg?asset_id=7196948c-cf77-4dc7-8067-c1bef6618b8e&amp;img_etag=%22ede9c77c7a2027c1bf7a90e5a221d927%22&amp;size=2560)](https://spark.adobe.com/page/i7G1t6N6yS6ob/images/696f67a9-5b23-4376-9a6e-6fb9ba590394.jpg?asset_id=7196948c-cf77-4dc7-8067-c1bef6618b8e&amp;img_etag=%22ede9c77c7a2027c1bf7a90e5a221d927%22&amp;size=1024)
 
-更重要的是，如果中共国投资的项目使用来自中共国工人，那么何谈为欧洲创造就业机会呢？在世界其他地方，我们已经看到当中共国公司迁入，并带来自己员工时将发生什么。在南亚和非洲，中共国的投资并没有为当地工人创造新的就业机会，而是创建了由公司所带来的员工管理的、事实上的殖民哨所。在斯里兰卡，一座建于加勒(Galle)南部海岸的充满前途的新海港陷入了债务陷阱的噩梦。它由中共国出资建造，聘用中共国员工，最终成为了中共国经营的港口。
+邵家臻脸书照片
 
-除了对协议内容的担忧外，布鲁塞尔还应该更加关注协议对于价值观的影响。对于欧盟来说，签署这项《综合投资协议》，相当于给予了北京共产政权一张通行证，让其能够继续镇压少数民族和民主改革者。“行为将招致后果”的理念并未在其中彰显，相反，这项协议对世界传递了一个信息，如果你虐待、压制人民并破坏其基本权利，我们将不会惩罚你，我们将通过贸易协议奖励你。
+前国会议员邵家臻（Shiu Ka-chun）强烈抨击建制派草率通过政府提案。
 
-看起来，这整个协议就是欧盟委员会的另一个皇帝的新衣，而其他欧洲国家选择忽略这一点。他们试图批准的协议破坏了欧洲联盟理应捍卫的每一种价值。它撕毁了《欧洲联盟基本权利宪章》(Charter on Fundamental Rights)，使对基督徒、维吾尔人、藏人、港人、民主人士、哈萨克人和乌兹别克人的虐待合法化，而其中很多人目前仍关押在中共控制的拘留营中。
+“他们通过得如此之快，以至于他们自己都感到窘迫与尴尬，” 邵家臻对香港自由报说。 “在我们集体辞职之后，他们试图切断戈尔丁(Gordian)死结，并恢复邪恶的法律，例如修改我们过去精心研究的议事规则，批准《大屿山明天》的建设基金。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/TZeuZQMhxopQK/images/abad6b69-982e-47ae-a0d8-627fa097862c.png?asset_id=3aecf806-e83a-4ba5-ac97-1cef9ec1b04a&amp;img_etag=%22ead42ace0600591a9a1e67789e6fa3d5%22&amp;size=2560)](https://spark.adobe.com/page/TZeuZQMhxopQK/images/abad6b69-982e-47ae-a0d8-627fa097862c.png?asset_id=3aecf806-e83a-4ba5-ac97-1cef9ec1b04a&amp;img_etag=%22ead42ace0600591a9a1e67789e6fa3d5%22&amp;size=1024)
+在四名前民主派议员因所谓危害国家安全而被政府取消资格后，所有香港民主派议员于去年11月集体辞职。
 
-2020年12月30日于布鲁塞尔举行的视频会议 从左至右：中共国国家主席习近平，欧洲理事会主席夏尔·米歇尔(Charles Michel)，德国总理安格拉·默克尔(Angela Merkel)，法国总统埃马纽埃尔·马克龙(Emmanuel Macron)，欧盟委员会主席乌尔苏拉·冯德莱恩(Ursula von der Leyen) （欧洲新闻图片社-艾菲通讯社 Johanna Geron）
+#### ‘咬紧牙关’
 
-当那么多人被关押在古拉格（Gulags，苏联版集体农场）并被强迫劳动时，当无数人没有集会和言论自由时，无法想象欧盟会和苏联或者霍克沙的阿尔巴尼亚达成这样的协议。但是，习近平领导的中共国，正施行着与这些政权相同的专制主义。
+香港行政长官林郑月娥在星期二的例行新闻发布会上被问及政府实行封锁对香港经济的影响时，她告诉香港人，“要咬紧牙关，继续前进”。
 
-为什么今天欧洲愿意放弃自己的价值，而去获取一项不会惠及所有人的交易，并为中共国的投资提供了比英国、美国、日本、韩国和澳大利亚更加容易的途径？由于执著于开拓其自己的路径，欧盟选择背弃了其民主盟友。
+[!\[\]()!\[\](https://spark.adobe.com/page/i7G1t6N6yS6ob/images/9b476c52-eaf7-42d8-bba2-7060e031b13f.jpg?asset_id=5d1260b4-a84e-496a-950b-2eb8f2a83d0e&amp;img_etag=%221ee2984bfb821157e39d6138a3daba67%22&amp;size=2560)](https://spark.adobe.com/page/i7G1t6N6yS6ob/images/9b476c52-eaf7-42d8-bba2-7060e031b13f.jpg?asset_id=5d1260b4-a84e-496a-950b-2eb8f2a83d0e&amp;img_etag=%221ee2984bfb821157e39d6138a3daba67%22&amp;size=1024)
 
-与其优先选择与日本、韩国、台湾、美国、澳大利亚和英国这样的，有共同价值的国家进行贸易和投资，欧盟选择了将一个对其构成生存威胁的政权合法化。欧盟委员会应认真考虑其外交政策优先事项，而且最起码欧洲议会必须否决这一灾难性的协议。
+行政长官林郑月娥在1月26日的新闻发布会上。照片：郑慧琳/香港自由报
 
-**🔗[原文链接](https://www.neweurope.eu/article/the-eu-china-investment-agreement-is-a-disaster-for-the-west/)**
+林郑月娥说：“这种病毒大流行已经持续了将近一年，许多人，企业和部门都受到影响。政府曾多次尝试尽最大努力推出救济措施，但现在是我们需要咬紧牙关，继续行进的阶段。”
+
+“每个人都为此付出了代价，这就是为什么我们需要人们共同努力来解决问题的原因。”
+
+香港政府周六对油麻地实施了封锁，并表示该地区受影响的企业将得不到补偿。
+
+邵家臻批评林郑月娥不援助受病毒大流行影响的小企业，并指出林郑月娥愿意在哪里花钱已表明了她的工作重点是什么。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/i7G1t6N6yS6ob/images/2b78d916-1594-4393-996c-6af9eb3f9857.jpg?asset_id=b2e13c52-3530-4ba4-aa3f-07916b83a841&amp;img_etag=%223f66e21661258cdab6ac6ee9566fa3fa%22&amp;size=2560)](https://spark.adobe.com/page/i7G1t6N6yS6ob/images/2b78d916-1594-4393-996c-6af9eb3f9857.jpg?asset_id=b2e13c52-3530-4ba4-aa3f-07916b83a841&amp;img_etag=%223f66e21661258cdab6ac6ee9566fa3fa%22&amp;size=1024)
+
+油麻地封锁。照片：Incendo工作室
+
+邵家臻说：“我知道林郑月娥是天主教徒，我引用圣经的话送给她：‘你重视的宝藏在哪里，你的心也就在哪里’。”
+
+邵家臻告诉《香港自由报》，与他接触的小企业已“奄奄一息”，他希望香港政府能够为这些小企业开发一些市场以及提供资金支持。
+
+🔗[原文链接](https://hongkongfp.com/2021/01/27/hong-kong-legislature-passes-hk1-5-billion-for-mega-bridge-a-day-after-govt-denies-compensation-to-covid-lockdown-residents/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
-编辑：[【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/TZeuZQMhxopQK/)
+编辑：[【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/i7G1t6N6yS6ob/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/TZeuZQMhxopQK/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/TZeuZQMhxopQK/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/i7G1t6N6yS6ob/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/i7G1t6N6yS6ob/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
-0
++1

@@ -1,27 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【精华版粤语配音】班农战斗室663-664期：将中共认定为跨国犯罪组织会产生什么影响
-` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/836587/)
+## 美国首次发现南非病毒变种
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/836701/)
 
-制作单位：喜马拉雅大使馆—粤语组
+- 编辑：Victor Torres
 
-素材来源：WarroomPandemic
 
-片段选取：秘密翻译组
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-字幕翻译：秘密翻译组
+**西班牙2021年1月28日电/西喜社——**南卡罗来纳州发现美国首例南非中共病毒变种。
 
-视频剪辑：coco22
+南卡罗来纳州官员说，两个这样的病例已在该州被诊断。根据南卡罗来纳州卫生和环境控制部的消息，这两个病例似乎并无联系，也没有最近的旅行史。
 
-视频配音：Tina、wikimbao、NancyTT、Monica
+病毒不断变异，中共病毒的许多变种在全球范围内传播。然而，科学家们主要关注的是其中三个更容易传播的变种。
 
-上传：文粤
+最初分别认定于英国、巴西和南非的这三种病毒变种目前均已在美国被发现。
 
-概要：
+美国总统乔·拜登周一恢复了对大多数来自巴西、英国和南非的非美国旅行者的中共病毒旅行限制。疾控中心目前建议美国人不要出行。
 
-1.国家情报总监约翰·拉特克里夫重磅报告，中共试图影响2020年美国联邦选举的结果
+**新闻来源：**[https://apnews.com/article/world-news-japan-vietnam-coronavirus-pandemic-d4132018158671ef68451fad17ecd61c](https://apnews.com/article/world-news-japan-vietnam-coronavirus-pandemic-d4132018158671ef68451fad17ecd61c)
 
-2. 将中共定义为跨国犯罪组织的重要性
+![]()![](https://gnews.org/wp-content/uploads/2021/01/f4cd5b98-68cc-4adb-a8f0-48a782a0244d-64.jpg)
 
-+1
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+
+0
