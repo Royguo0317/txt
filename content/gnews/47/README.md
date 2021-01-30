@@ -1,37 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳前总理称澳洲不会屈服于中共胁迫
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/845954/)
+## 日本警告中共新海警法需遵守国际法则
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/846074/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑   水星    上传   银河
-![]()![](https://cdn.discordapp.com/attachments/795746853945081947/804957305648447528/Snipaste_2021-01-30_09-11-13.png)[news.com.au](https://www.news.com.au/national/politics/malcolm-turnbull-takes-a-swipe-at-the-liberals-heaping-praise-on-rebel-julia-banks/news-story/f582234212e0bda4d899e1128824ddb8)
-CNBC1月29日报道澳大利亚前总理马尔科姆·特恩布尔(Malcolm Turnbull)周五表示，面对来自中共国的压力，澳大利亚需要坚守立场，捍卫自己的利益。
+编辑    水星    上传   银河
+![]()![](https://cdn.discordapp.com/attachments/795746853945081947/804962113000177674/59022a8afc8af5af.jpg)[news.usni.org](https://news.usni.org/2012/10/16/senkaku-islands-dispute-risk-us-rebalancing-asia-pacific)
+中共十三届全国人大常委会1月22日通过了《海警法》草案，该法首次明确指出，中方在必要时可以向外国船只开火。日本外相茂木敏充1月29日警告中共需确保其允许海岸警卫队在其水域使用武器的新立法符合国际法。
 
-“从我们的角度来看，我们必须认识到，目前的情况是一种压力游戏，强迫澳大利亚更加顺从。”特恩布尔在接受CNBC关于达沃斯议程的采访时表示，面对中共的威胁，澳大利亚必须做的就是坚守自己的立场,“捍卫我们的价值观,捍卫我们的利益，证明欺凌与胁迫不会有用。”
+中共《海警法》将在2月1日开始正式实施。茂木敏充在该法正式实施前的新闻发布会上说，“我们将继续密切关注中（共）国海警的行动，包括立法的实施将如何影响现场的人员。”这项立法不应该以违反国际法的方式实施。
 
-中共喉舌《环球时报》(Global Times)本周发表了一篇评论文章，将澳大利亚描述为“破坏双边关系的罪魁祸首”。文章列举了澳大利亚导致事态恶化的几个问题，包括特恩布尔任职期间禁止华为参与澳大利亚5G部署的决定，以及澳大利亚关于中共国在南中国海的言论，当然还有呼吁追查中共病毒来源这一被中共指责的主要原因。
+中共新的《海警法》允许海警在外国船只在中共国声称拥有主权的水域从事非法活动时使用武器。而中共声称，位于东中国海(East China Sea，中共国称东海)、由日本政府管辖的尖阁诸岛(Senkaku Islands，中共国称钓鱼岛及其附属岛屿)是中共国领土的一部分，这项立法可能针对在这些无人居住的岛屿周围航行的日本船只。
 
-中共去年采取了多项措施限制从澳大利亚进口，从征收新关税到实施禁令。结果却事与愿违，引自路透社1月27日的报道，中共正为其禁止或限制澳大利亚商品进口的惩罚付出沉重代价，澳大利亚却并没有因为中共制裁而造成任何严重的金融后果。
+中共国外交部发言人华春莹表示，这部法律有助于中共国海警维护海上的良好秩序。她强调钓鱼岛及其附属岛屿是中共国固有领土，中方会维护其领土主权和海洋权益。此举引发了东京方面的抗议。
 
-煤炭是中共在澳大利亚竞购案中最引人注目的制裁目标。中共单方面限制对澳媒的进口，之后因为需求量的增加，造成煤炭价格走高，反助澳大利亚迅速打开了新的国际市场。
+日本政府近期多次抗议中共国海警进入尖阁诸岛附近海域并驱赶日本渔船。日方担心，日本渔民和日本海上保安厅的巡视船可能都会成为中共国《海警法》的袭击对象。茂木敏充称日本将“冷静和坚决地”回应任何可能的中（共）国海岸警卫队保护其领土的行动。
 
-能源咨询公司伍德·麦肯齐（Wood Mackenzie）的高级分析员洛瑞·西明顿（Rory Simington）指出， “中（共）国去（进口）了印度尼西亚、俄罗斯、南非等其他地方(的煤炭), 推高了这些地方煤炭的价格——这给澳大利亚煤炭机会进入其通常不会参与竞争的市场”，因为澳煤的品质一直优于其他国家，同样价位的竞争市场，让很多国际买家最终选择了品质更高的澳煤。
+路透社1月24日报道，美国新任国防部长劳埃德·奥斯汀在与日本国防部长的首次通话中，重申了美国对东京的承诺，称美国会保卫东海日本与中共国有争议岛屿主权。《美日安保条约》(U.S.-Japan security treaty)第5条规定了美国对日本的防御义务，涵盖了在日本被称为尖阁列岛，中共称之为钓鱼岛的无人居住的岛屿。
 
-另一个意想不到的收获是澳洲液化天然气出口量出现大幅度增长。中共禁止澳大利亚煤炭进口造成取暖能源紧缺，液化天然气作为取暖的代替能源需求变得强劲，这带动作为全球第二大液化天然气出口国的澳大利亚成为受益者。
+中共继暴力镇压香港，武力威胁台湾，种族灭绝残害新疆维吾尔族，南中国海军事扩张及与美国航母战斗群模拟攻击对峙后，再度激化中日钓鱼岛争端。美国政府已经明确表示会信守承诺守护台湾及维护日本钓鱼岛防御。
 
-在这场贸易争端中，澳大利亚不仅仅在煤炭和天然气方面保持了自己的优势，去年12月，谷物出口达到11.9亿澳元，创历史新高，几乎是11月出口额的3倍。去年5月，中共对澳大利亚进口大麦征收80.5%的关税，澳大利亚的大麦种植者当时受到了严重打击，但到年底他们已经成功地转向了其他市场或种植其他作物。
-
-中共还非正式禁止从澳大利亚进口铜矿和铜精矿，然而，全球铜矿开采短缺意味着中共正被迫支付更高价格。事实再次证明，在全球供应短缺之际，中共切断了自己的供应来源，此举给它增加了成本，而澳大利亚铜矿商却没有受到惩罚，因为他们可以轻易地将铜卖给其他买家。
-
-自从中共国开始对澳大利亚采取贸易行动以来，各种数据都表明了中共的愚蠢。澳大利亚面对中共的威胁没有屈服，坚守立场捍卫国家尊严，用事实戳破了中共表面强硬、实则愚蠢自大的面目，让世界看清了它完全不堪一击真相。
+中共霸权施压、挑战自由民主世界的底线，将让国际社会同仇敌忾，认清中共极权专治对国际社会的危害，群起攻之，最终祛除邪恶的中共毒瘤。
 
 参考链接：
 
-[https://www.cnbc.com/2021/01/29/turnbull-australia-needs-to-stand-its-ground-against-chinese-pressure.html](https://www.cnbc.com/2021/01/29/turnbull-australia-needs-to-stand-its-ground-against-chinese-pressure.html)
-
-[https://www.reuters.com/article/us-column-russell-commodities-china-aust/column-china-fails-to-learn-from-trump-backfire-in-trade-war-is-losing-against-australia-idUSKBN29W0HE](https://www.reuters.com/article/us-column-russell-commodities-china-aust/column-china-fails-to-learn-from-trump-backfire-in-trade-war-is-losing-against-australia-idUSKBN29W0HE)
+[https://news.abs-cbn.com/overseas/01/29/21/japan-to-china-new-coast-guard-law-must-follow-international-law](https://news.abs-cbn.com/overseas/01/29/21/japan-to-china-new-coast-guard-law-must-follow-international-law)
 
 0
