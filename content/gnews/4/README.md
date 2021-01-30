@@ -1,44 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共军机又来踩台湾海峡中线了
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/846938/)
+## 犹太领导人利用大屠杀日谴责对维吾尔人的迫害
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/847042/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/china-flight-1-5.jpg)图片来源台湾国防部提供
-新闻剪辑：双城记 审稿：Jenny
+撰稿人 喜妈 喜安娜
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20200630023456307-2.jpg)图片来源：abuoluowang.com
+英国犹太社区的主要人物正在利用1月27日的大屠杀纪念日，重点关注对维吾尔族穆斯林的迫害，他们说犹太人有表达自己的“道德权威和道德义务”。拉比斯，社区领袖和大屠杀幸存者一直站在向英国政府施加压力的努力的最前线，以对中国对维吾尔人的残酷对待采取更坚定的立场。
 
-One America News Network 以路透社的报导（中国语言尖锐，警告台湾独立“意味着战争）为题在1月28日新闻网页刊载说 中国周四对台湾措辞强硬，在最近加强了在台湾岛附近的军事活动后警告说，“独立意味着战争”，中国武装力量的行动是为了应对挑衅和外国干涉。被中国宣称为自己领土的台湾，上周末报告称有多架中国战斗机和轰炸机进入其西南防空识別区，台湾方面促使华府敦促北京停止对台湾施压。
+英国犹太人代表委员会主席玛丽·范·德·泽尔（Marie van der Zyl）在最近给总理的信中说：“作为一个社区，我们总是非常犹豫，不愿与将相关事件与大屠杀进行比较。” 她说，然而，据报道在中国发生的事情与在1930年代和40年代在纳粹德国发生的事情之间存在相似之处。她敦促鲍里斯·约翰逊（Boris Johnson）采取行动，她说侵犯维吾尔族人权的行为“正在形成我们时代最严重的愤怒”。
 
-文中表示中共国认为，台湾的民选政府正在推动该岛正式宣布独立，尽管台湾总统蔡英文一再表示，台湾已经是一个独立的国家，其正式名称叫中华民国。
+周一，犹太人权组织勒内·卡辛（René Cassin）将共同主持一次大屠杀纪念日的宗教间活动，着重强调在中国西北部新疆难民营中拘留着超过100万维吾尔人和其他少数民族的人。在该活动中一起播放的视频里，多位资深拉比与前坎特伯雷大主教罗文·威廉姆斯以及英国人文社科学院首席执行官安德鲁·科普森一起。
 
-中国国防部发言人吴谦在每月一次的新闻发佈会上被问及空军近期的活动时表示，台湾是中国不可分割的一部分。
+勒内·卡辛（René Cassin）的执行董事米娅·哈森森·格罗斯（Mia Hasenson-Gross）表示，利用大屠杀纪念日来关注另一批受迫害的人群对犹太人来说“意义重大”。她告诉观察家：“我们去过那里，我们经历过。现在的区别是还有时间采取行动。犹太人有道德权威和道德义务在现在说出来。民间社会，企业和决策者再也不应像1930年代那样保持沉默。”
 
-“中国人民解放军在台湾海峡开展的军事活动，是应对当前台海安全角势、维护国家主权和安全的必要行动。“他说。“他还说，”它们是对’台独’势力外部干涉和挑衅的郑重回应。吴说，台湾有 「一小撮 」人在谋求台湾独立。”我们警告那些’台独’分子：玩火者必自焚，’台独’意味着战争。” 他补充说。OANN文中表示虽然中共从未放弃使用武力将台湾置于其控制之下，但北京做出如此公开的、口头上的冲突威胁是不寻常的。
+Masorti犹太教的高级拉比乔纳森·维滕贝格在活动中说：“我们从自己的人民身上了解到迫害的含义。当罪行深透入对另外的人们而保持沉默时，在道义上是不可辩护的。”维滕伯格说，英国犹太社区“非常坚决地支持保护维吾尔人的行动呼吁”，他们其中有一些人的亲属在奥斯威辛集中营被杀。
 
-五角大楼发言人柯比（John Kirby）对中共的此言论回应，中国和台湾之间的紧张关系 「没有理由导致类似对抗的事情」。 他还重申了美国长期以来对台湾自卫的军事支援。”我们有义务协助台湾进行自卫，我想你们会看到这种情况继续下去，”
+上周，要求政府重新考虑与高等法院认定该国犯下种族灭绝罪的国家的任何贸易协定的企图在议会中以微弱差额败落。该措施得到宗教团体和强大的跨党派议员的支持，主要是为了保护维吾尔族。
 
-台湾 大陆事务委员会 （简称陆委会）表示，中国应慎重考虑，不要低估岛内捍卫主权、维护自由民主的决心。台湾谴责中国的威胁和恐吓努力，蔡英文誓言要捍卫岛内的自由，不受胁迫。
+在议会辩论之前，《犹太新闻》在周三刊登了一个罕见的特别头版新闻，说：“很少有问题……比目前在世界范围内针对维吾尔族穆斯林的人权暴行更为紧迫”。
 
-同时台湾西南海域中共军机又扰台，中共在测试新美国的政府的底线。据台湾国防部报导：1月29日 中共军机运八反潜机 #7A431A #编号82011 进入ADIZ(西南空域)，台湾空军在空监控，并於09时09分广播驱离。另 11时43分美军在西南空域进行国际航行权宣告。本月累计进入我空域28天，本月广播驱离纪录共计87次。也在昨日1月28日 #中共军机 #空警500 #7A42A3 #编号81031 #不明机型 #7BB2B1 等多架次多空层进入西南空域，台空军在空监控，并四度广播驱离。同时巴士海峡有美国海军P-8A以及美国空军KC-135通过。 尽管此类的演习频率增加，但共机这次编队以战斗机和轰炸机为主，时机和编制似乎是给美国新政府传达讯息，拜登才刚上任几天就面临重大外交挑战。
+该报的新闻编辑贾斯汀·科恩（Justin Cohen）告诉观察家杂志：“今天的大屠杀教育的两个主要目标是鼓励年轻人在最初的征兆上大声疾呼反对一切形式的歧视，并发出警告。如果曾经这样，纳粹对犹太人的迫害就不会从毒气室开始”。
 
-台湾自由时报一则温馨报导说到中共解放军近期在台湾西南海空域动作频频，并高调武吓台湾，为支持国军英雄，屏东陈姓黑猪农今早杀猪力挺东沙岛上的国军，该猪农共準备6头顶级黑猪，其中1头制成黑猪肉香肠，今天上午猪农亲自将猪肉分装上车，由海洋委员会海巡署东南沙分署派车运载，预计春节前夕，就能送抵东沙群岛，帮国军弟兄加菜。
+“这就是为什么大屠杀和其他种族灭绝的幸存者可以在大声疾呼维吾尔人方面发挥如此关键的作用，以及为什么他们的子孙后代对此有如此强大的推动力。”
 
-新闻剪辑来源：
+上周，即将卸任的美国国务卿迈克·蓬佩奥（Mike Pompeo）及其继任拜登政府的继任者安东尼·布林肯（Anthony Blinken）表示，中国正在对维吾尔族人进行种族灭绝。
 
+据报道，维吾尔族和其他穆斯林在中国称之为“再教育”营地时面临饥饿，酷刑，谋杀，性暴力，奴隶劳动和强迫器官摘除。 前被拘留者声称妇女被强行绝育。而中国坚持认为，维吾尔武装分子通过策划内乱和破坏活动，为独立国家进行暴力运动。
 
+Reference:
 
-> [China sharpens language, warns Taiwan that independence ‘means war’](https://www.oann.com/china-sharpens-language-warns-taiwan-that-independence-means-war/)
+Sherwood. H., (2021). Jewish leaders use Holocaust Day to decry persecution of Uighurs. [online]. amp.theguardian.com. [Viewed 30 January 2021]. Available from: [https://amp.theguardian.com/world/2021/jan/24/jewish-leaders-use-holocaust-day-to-decry-persecution-of-uighurs?utm\_term=Autofeed&CMP=twt\_b-gdnnews&utm\_medium=Social&utm\_source=Twitter&\_\_twitter\_impression=true](https://amp.theguardian.com/world/2021/jan/24/jewish-leaders-use-holocaust-day-to-decry-persecution-of-uighurs?utm_term=Autofeed&amp;CMP=twt_b-gdnnews&amp;utm_medium=Social&amp;utm_source=Twitter&amp;__twitter_impression=true)
 
+澳喜文章：
 
+[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
 
-[https://news.ltn.com.tw/news/politics/breakingnews/3425883?fbclid=IwAR0Rljt8BoGdN4B01LZH9vCX8e1L5H2y6Nvr61gjeItLhfqQzIz-WmLNk6E](https://news.ltn.com.tw/news/politics/breakingnews/3425883?fbclid=IwAR0Rljt8BoGdN4B01LZH9vCX8e1L5H2y6Nvr61gjeItLhfqQzIz-WmLNk6E)
-
-[https://edition.cnn.com/2021/01/25/asia/china-us-taiwan-military-moves-intl-hnk-mil/index.html](https://edition.cnn.com/2021/01/25/asia/china-us-taiwan-military-moves-intl-hnk-mil/index.html)
-
-[https://news.ltn.com.tw/news/life/breakingnews/3425941?fbclid=IwAR1IiKUUGahLXJ7jb12LR3a5OvjCSQYoqTZey0760S9P9QJWALfP89FVcq4](https://news.ltn.com.tw/news/life/breakingnews/3425941?fbclid=IwAR1IiKUUGahLXJ7jb12LR3a5OvjCSQYoqTZey0760S9P9QJWALfP89FVcq4)
-
-澳喜文章:https://gnews.org/zh-hans/author/aujenny/
-
-欢迎加入澳喜农场：https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840
-![]()![](https://gnews.org/wp-content/uploads/2020/12/IMG_1836-1-1.jpg)
+欢迎加入澳喜农场： [https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/IMG_5335-3.jpg)
 0
