@@ -10,8 +10,6 @@
 [郭文贵爆料革命 · 启蒙开智入门指南](https://github.com/ourhimalayas/txt/issues/1)
 [](https://github.com/ourhimalayas/txt/blob/master/content/templates/pandoras-box-opening.png)
 
-:fire: [:radio: 廣播](https://github.com/ourhimalayas/txt/blob/master/content/docs/g-radio/README.md) 收聽G|TV的直播節目 :fire:
-
 ---
 
 [ 2021年1月29日：尊敬的战友们好，明天星期六12:00前．文贵没有直播，可能在明天下午6:30左右直播，或后天星期天上午9:30直播，由于这几天来世界的疯...](/content/getter/content/2021/01/6014d44546c6c3519a3ca952.md)
