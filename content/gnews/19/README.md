@@ -1,31 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本警告中共新海警法需遵守国际法则
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/846074/)
+## 中共废除港人英国海外护照
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/846220/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑    水星    上传   银河
-![]()![](https://cdn.discordapp.com/attachments/795746853945081947/804962113000177674/59022a8afc8af5af.jpg)[news.usni.org](https://news.usni.org/2012/10/16/senkaku-islands-dispute-risk-us-rebalancing-asia-pacific)
-中共十三届全国人大常委会1月22日通过了《海警法》草案，该法首次明确指出，中方在必要时可以向外国船只开火。日本外相茂木敏充1月29日警告中共需确保其允许海岸警卫队在其水域使用武器的新立法符合国际法。
+编辑   水星    上传   银河
+![]()![](https://cdn.discordapp.com/attachments/799010586356351066/804940099670114304/p.JPG)columbian.com
+中共官媒报道，从1月31日起，将不承认英国国民海外护照(BNO)作为有效的旅行证件或身份证明，这一宣布正值英国准备向持有英国国民海外护照的数百万香港居民敞开大门之际。中共彻底撕毁与英国间关于香港回归的协议。
 
-中共《海警法》将在2月1日开始正式实施。茂木敏充在该法正式实施前的新闻发布会上说，“我们将继续密切关注中（共）国海警的行动，包括立法的实施将如何影响现场的人员。”这项立法不应该以违反国际法的方式实施。
+外交部发言人赵立坚告诉记者，“从1月31日起，中（共）国将不再承认所谓的BNO护照作为旅行证件和身份证件，并保留采取进一步行动的权利。”
 
-中共新的《海警法》允许海警在外国船只在中共国声称拥有主权的水域从事非法活动时使用武器。而中共声称，位于东中国海(East China Sea，中共国称东海)、由日本政府管辖的尖阁诸岛(Senkaku Islands，中共国称钓鱼岛及其附属岛屿)是中共国领土的一部分，这项立法可能针对在这些无人居住的岛屿周围航行的日本船只。
+中共单方面实施《国家安全法》，在香港暴力镇压和公然撕毁“一国两制”承诺，英国政府决定向符合英国护照条件的香港人提供庇护。根据此前的规定，英国国民海外护照持有者只能在英国停留6个月，且无权在英国工作或定居。现在根据这项新政策，那些拥有英国国民海外护照、想要离开香港的人从1月31日开始可在长达5年的时间内在英国生活和工作，并最终可申请英国公民身份。
 
-中共国外交部发言人华春莹表示，这部法律有助于中共国海警维护海上的良好秩序。她强调钓鱼岛及其附属岛屿是中共国固有领土，中方会维护其领土主权和海洋权益。此举引发了东京方面的抗议。
+护照问题激怒了中共，中共指责英国干涉内政。中共在英国宣布政策实施的同一天废除英国国民海外护照，意味着BNO持有者将被禁止作为香港任何形式的身份证明，不能用于出入境。
 
-日本政府近期多次抗议中共国海警进入尖阁诸岛附近海域并驱赶日本渔船。日方担心，日本渔民和日本海上保安厅的巡视船可能都会成为中共国《海警法》的袭击对象。茂木敏充称日本将“冷静和坚决地”回应任何可能的中（共）国海岸警卫队保护其领土的行动。
-
-路透社1月24日报道，美国新任国防部长劳埃德·奥斯汀在与日本国防部长的首次通话中，重申了美国对东京的承诺，称美国会保卫东海日本与中共国有争议岛屿主权。《美日安保条约》(U.S.-Japan security treaty)第5条规定了美国对日本的防御义务，涵盖了在日本被称为尖阁列岛，中共称之为钓鱼岛的无人居住的岛屿。
-
-中共继暴力镇压香港，武力威胁台湾，种族灭绝残害新疆维吾尔族，南中国海军事扩张及与美国航母战斗群模拟攻击对峙后，再度激化中日钓鱼岛争端。美国政府已经明确表示会信守承诺守护台湾及维护日本钓鱼岛防御。
-
-中共霸权施压、挑战自由民主世界的底线，将让国际社会同仇敌忾，认清中共极权专治对国际社会的危害，群起攻之，最终祛除邪恶的中共毒瘤。
+为了进一步控制香港，据《南华早报》报道，中共在过去一年派遣了100名干部到香港最高办事处工作。《华盛顿邮报》援引匿名消息人士的爆料，过去一年北京加强了对香港的控制，颁布了新的安全法，逮捕了政治反对派，更增派中共官员到港加强对这个城市的监督和政策执行。香港越来越成为一个内地城市，而失去国际化大都市的地位和风采，香港在中共治下变成了臭港。
 
 参考链接：
 
-[https://news.abs-cbn.com/overseas/01/29/21/japan-to-china-new-coast-guard-law-must-follow-international-law](https://news.abs-cbn.com/overseas/01/29/21/japan-to-china-new-coast-guard-law-must-follow-international-law)
+[https://www.dw.com/en/china-will-no-longer-recognize-british-passports-for-hong-kong-residents/a-56377978?maca=en-rss-en-all-1573-rdf](https://www.dw.com/en/china-will-no-longer-recognize-british-passports-for-hong-kong-residents/a-56377978?maca=en-rss-en-all-1573-rdf)
+
+[https://www.reuters.com/article/us-hongkong-security/china-boosts-cadres-in-hong-kong-by-100-as-beijing-tightens-supervision-of-city-media-report-idUSKBN29Y07Q](https://www.reuters.com/article/us-hongkong-security/china-boosts-cadres-in-hong-kong-by-100-as-beijing-tightens-supervision-of-city-media-report-idUSKBN29Y07Q)
 
 0
