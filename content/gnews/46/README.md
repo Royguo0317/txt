@@ -1,98 +1,76 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武汉医生接受BBC采访：中共当局阻止我对新冠疫情预警
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/842859/)
+## 武汉新冠死者家属微信群被删除
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/843271/)
 
-*新闻来源：*《卫报》*| 作者：*海伦•戴维森*| 发布时间：*2021年1月25日
+新闻来源：《The Guardian《卫报》》| 作者：Peter Beaumont彼得-博蒙特 | 发布时间：2021年1月27日
 
-*翻译/简评：*helloworld*| 校对：*SilverSpurs7*| 审核：*万人往*| Page：*Cathy
+翻译/简评：clau | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Jn3b5Qmi8Ru1G/images/69da9cbd-30f0-45ce-a7a9-a22124799dac.jpg?asset_id=e41cac3c-93f2-4990-b202-275c254ea261&amp;img_etag=%2238ecdc7277b8db1fdde32cdc7f46c6e6%22&amp;size=2560)](https://spark.adobe.com/page/Jn3b5Qmi8Ru1G/images/69da9cbd-30f0-45ce-a7a9-a22124799dac.jpg?asset_id=e41cac3c-93f2-4990-b202-275c254ea261&amp;img_etag=%2238ecdc7277b8db1fdde32cdc7f46c6e6%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/9aOJjGdGW0fnc/images/cde3da4d-3e18-4d86-a6c9-9ae32bcc0202.jpg?asset_id=e2fca55d-1651-420e-834e-41943831de9d&amp;img_etag=%22e1d1a7f2e52907631326dca28c651b3e%22&amp;size=1024)](https://spark.adobe.com/page/9aOJjGdGW0fnc/images/cde3da4d-3e18-4d86-a6c9-9ae32bcc0202.jpg?asset_id=e2fca55d-1651-420e-834e-41943831de9d&amp;img_etag=%22e1d1a7f2e52907631326dca28c651b3e%22&amp;size=1024)吹哨人李文亮医生（来源网络）
 
-**简评：**
+***简评：***
 
-在美国国务院发布被情报证实的新冠肺炎事实清单后，英国左翼媒体《卫报》也于25日发文，公开指责中共在病毒爆发初期在病毒序列、疫情程度、是否人传人等问题上延误、噤声并误导世界卫生组织。本文为BBC纪录片“54天”中内容节选，其将中文世界对中共政府的行径以及各种矛盾，罗列于英文世界。从武汉中心医院内部匿名爆料人的角度，阐述了当局对于信息的封锁和控制，以及世界卫生组织的矛盾表现。
+在世卫组织专家团到达武汉即将展开所谓的“病毒起源”调查之际，中共国的国家机器开始加强力度打压吹哨人和批评其抗疫不力的人士。武汉新冠病毒死者家属的微信聊天群被当局强行删除，同时当局还计划用各种手段阻止这些死者家属尝试接触即将在武汉开始调查工作的世卫组织专家团。
 
-在由CCP病毒释放引发的、无数人死伤的超限战一年之际，从2020年1月19日路德社首次爆料其由舟山蝙蝠病毒骨架、实验室培育、人传人、大爆发、强变异以来，经过漫长的宣传、游说和拉锯，今天，欧美终于达成了对于疫情隐瞒的一致认定。当初为中共站台背书，并误导了无数国家的世卫组织，现在也开始卸责站队，声讨中共对其的误导行为。
+CCP病毒在武汉爆发一年后，所谓的世卫组织专家调查团终于到达了武汉。他们是来考古的？是来旅游的？还是过来等着被蓝金黄的？调查团不过就是人形展板，让所谓的主流媒体拍照写故事用的活道具而已。爆料革命的战友们都知道和狼狈为奸的世卫组织得不出任何真实的调查结果。即便如此，我们在武汉在全国各地失去家人的同胞们，想要告诉外界真实的死亡人数，想要追究政府隐瞒疫情的责任，甚至想要借助微信聊天群抱团取暖的需求，都被CCP无情镇压了。CCP病毒已经在全球导致接近一亿人被感染，超过两百万人死亡。CCP能有本事镇压全世界的人吗？Take down the CCP!
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Jn3b5Qmi8Ru1G/images/fd0cea3b-59c4-421a-ad73-cdaa86a48ff9.jpg?asset_id=4c2f73f0-d09e-48f9-a1d1-df3eba4e0083&amp;img_etag=%22fcb51798c654c69bd2836ab0ece340e5%22&amp;size=1024)](https://spark.adobe.com/page/Jn3b5Qmi8Ru1G/images/fd0cea3b-59c4-421a-ad73-cdaa86a48ff9.jpg?asset_id=4c2f73f0-d09e-48f9-a1d1-df3eba4e0083&amp;img_etag=%22fcb51798c654c69bd2836ab0ece340e5%22&amp;size=1024)
+***原文翻译：***
 
-但是，本文反映出左翼仍然有“隔岸观火”的意味。其只是陈述了早已在3月份华文圈里众所周知的事实，而并未将其向前推进一步。这种认识仍然留下了“世卫组织调查组在中共国僵持数月，无功而返”的勾兑结果的可能性。而由于世界媒体过去对于中共国 “习惯掩盖事故、好面子、总是钻空子逃避罪责”等等绥靖描述，对于认定中共国是“蓄意”还是“过失”是不利的。虽然闫博士的报告从科学角度给出了无可辩驳的真相，但由于其缺乏了科学界及官方背书，距离成为普遍共识还差了一层窗户纸，这也使中共发动了社交媒体上对闫博士的疯狂攻击，妄图减缓真相的推进。
+## **武汉COVID死者家属说聊天群被当局删除**
 
-对于中共，病毒的扩散以及伴随的与日剧增的恐慌，成为了其最后一块邪恶砝码。而全世界正义人士，无论立场如何，都应推进真相，粉碎中共最后的阴谋。这，就是终极之战。
+[!\[\]()!\[\](https://spark.adobe.com/page/9aOJjGdGW0fnc/images/f259e6f6-3b56-4235-8416-c7b82314d7ad.png?asset_id=6f631756-ebb0-4e7d-aaba-e8695378bebf&amp;img_etag=%221d9b0c4d7ae2d1770f8bb0d096404851%22&amp;size=2560)](https://spark.adobe.com/page/9aOJjGdGW0fnc/images/f259e6f6-3b56-4235-8416-c7b82314d7ad.png?asset_id=6f631756-ebb0-4e7d-aaba-e8695378bebf&amp;img_etag=%221d9b0c4d7ae2d1770f8bb0d096404851%22&amp;size=1024)张海举着在武汉感染冠状病毒后去世的父亲的照片。照片：吴汉冠/AP
 
-**原文翻译：**
+武汉冠状病毒死亡者的亲属说，中共国当局删除了他们的社交媒体群，并告诉他们在世界卫生组织的一个小组在该市准备开始调查该流行病的起源时保持沉默。
 
-#### **武汉医生接受BBC采访：中共当局阻止我对新冠疫情预**警
+数十人曾在网上集结起来，共同寻求向武汉官员的问责，他们指责武汉官员在一年前的新冠疫情中处理不当，并在当地造成超过4000人死亡（官方记录）。
 
-**位于最初疫情爆发中心的医生告诉英国广播公司(BBC)纪录片记者，尽管担心人传人，但他们不被允许佩戴口罩**
+许多死亡者的亲属不相信官方的死亡人数，他们说，在疫情爆发的混乱初期，检测的严重不足意味着许多人很可能在没有被确认为感染冠状病毒的情况下死亡。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Jn3b5Qmi8Ru1G/images/a71618df-9450-472f-a0ea-76a100d09f3f.jpg?asset_id=6591328d-e235-4b14-8e82-a3e9e06896d5&amp;img_etag=%22892ea2ff3a355526a0c035326bb824a7%22&amp;size=2560)](https://spark.adobe.com/page/Jn3b5Qmi8Ru1G/images/a71618df-9450-472f-a0ea-76a100d09f3f.jpg?asset_id=6591328d-e235-4b14-8e82-a3e9e06896d5&amp;img_etag=%22892ea2ff3a355526a0c035326bb824a7%22&amp;size=1024)这位武汉医生说，2020年1月10日，当呼吸科病患满员后，工作人员开始陷入“恐慌”
+死者家属说，由于官方的阻挠、对社交媒体组群的监控和恐吓，迄今为止，追究责任的努力受挫。
 
-一位来自被新冠疫情严重影响的医院的医生表示，他和同事去年一月初（中共国当局承认人传人几周前）就怀疑这种病毒可高度传播，但因被阻止，他们未能警告任何人。
+[!\[\]()!\[\](https://spark.adobe.com/page/9aOJjGdGW0fnc/images/1dacf6f9-39e3-4f4f-9601-893ba3c67ddd.png?asset_id=37c455dd-66ba-48fc-8310-6a1a3461f7a3&amp;img_etag=%221f51929383610ef78dfe72f314cd6e26%22&amp;size=1024)](https://spark.adobe.com/page/9aOJjGdGW0fnc/images/1dacf6f9-39e3-4f4f-9601-893ba3c67ddd.png?asset_id=37c455dd-66ba-48fc-8310-6a1a3461f7a3&amp;img_etag=%221f51929383610ef78dfe72f314cd6e26%22&amp;size=1024)
 
-这位医生的证词出现在一个新的BBC纪录片中，该片记录了从第一例已知病例出现到武汉封城的54天。该纪录片为北京当局早期试图掩盖该病毒爆发、并威胁卫生工作者保持噤声的海量证据中，又新增了一笔。
+武汉亲属群体被打压后，一些人呼吁世卫组织团队与他们见面，其中包括张海，他的父亲到武汉旅游后感染新冠病毒，于2月1日死亡。
 
-武汉市中心医院距离（中共官方声称的）**中共病毒爆发“中心”**华南海鲜市场仅几公里，并在2019年12月第一例病例出现后迅速被海量患者淹没。**据报道**，有200名医院员工感染了该病毒，而其中，包括**吹哨人李文亮医生在内的数人因病去世。**
+“我希望世卫组织的专家不要成为传播谎言的工具。”张海说。“我们一直在不懈地寻找真相。”他说。“这是一种犯罪行为，我不希望世卫组织到中国来掩盖这些罪行。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Jn3b5Qmi8Ru1G/images/783ff44a-b117-47a9-b0d6-030e751cec75.jpg?asset_id=5a5e32d9-5b4d-4c09-897f-90d535dcd8c0&amp;img_etag=%221484e0a05524f11356a70f62fe587ba1%22&amp;size=2560)](https://spark.adobe.com/page/Jn3b5Qmi8Ru1G/images/783ff44a-b117-47a9-b0d6-030e751cec75.jpg?asset_id=5a5e32d9-5b4d-4c09-897f-90d535dcd8c0&amp;img_etag=%221484e0a05524f11356a70f62fe587ba1%22&amp;size=1024)
+“不要假装我们不存在，不要假装我们不寻求问责，”他补充道。“你们抹掉了我们所有的平台，但我们还是想通过媒体让大家知道，我们没有放弃。”
 
-在“54天”纪录片中，这位不愿透露姓名的医生告诉BBC，该医院的呼吸科在1月10日前就已满员。他说：“完全失控了，我们开始恐慌。”
+自疫情爆发以来，中共国当局一直在抓捕吹哨人和对其抗疫不力的批评者，因为北京一直试图暗示该病毒可能起源于国外。
 
-他说，尽管如此，医院当局禁止他们向任何人泄露病情，也不允许他们带口罩。“每个人都知道这就是人传人，傻子都知道。那为什么要说没有人传人呢？这让我们感到非常不解，也非常愤怒。”
+自世卫组织调查组1月14日抵达武汉以来，镇压行动不断升级，中共国当局似乎极力避免在这次高度敏感的访问中出现尴尬。
+[!\[\]()!\[\](https://spark.adobe.com/page/9aOJjGdGW0fnc/images/6504a2c8-ca23-4906-9bc4-82742eed2546.png?asset_id=55467667-f995-47ff-a2a8-cd322109ced3&amp;img_etag=%228e1c3c2a34fb98aad03f4a1845b30431%22&amp;size=1024)](https://spark.adobe.com/page/9aOJjGdGW0fnc/images/6504a2c8-ca23-4906-9bc4-82742eed2546.png?asset_id=55467667-f995-47ff-a2a8-cd322109ced3&amp;img_etag=%228e1c3c2a34fb98aad03f4a1845b30431%22&amp;size=1024)身着防护装备的人向抵达武汉的世卫组织团队成员示意。摄影：吴汉冠/AP
+世卫组织的考察团因谈判和挫折而一再推迟，甚至导致该组织负责人谭德赛博士罕见地公开抱怨。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Jn3b5Qmi8Ru1G/images/bb30fb14-882d-41ec-917f-be4f95425d4d.jpg?asset_id=f5c8d9c4-6601-463c-86d8-a635a55aef4d&amp;img_etag=%22e76ec7a2d80e80e80fe89d1aad518298%22&amp;size=1024)](https://spark.adobe.com/page/Jn3b5Qmi8Ru1G/images/bb30fb14-882d-41ec-917f-be4f95425d4d.jpg?asset_id=f5c8d9c4-6601-463c-86d8-a635a55aef4d&amp;img_etag=%22e76ec7a2d80e80e80fe89d1aad518298%22&amp;size=1024)
+张先生说，大约10天前，80至100名家属在过去一年里使用的微信上的一个群组突然被无故删除。
 
-这位医生说，几周内，出现了成千上万的可疑病例，但他们无法在医院系统内确诊或汇报诊断结果。而在那时，官方仅报告了41例确诊病例。
+许多人和张先生一样，对中共国当局在疫情爆发之初淡化病毒威胁的方式感到愤怒，并试图对武汉政府提起诉讼。
 
-先前的报道显示，北京当局的领导层在至少六天前就已经**意识到可能发生的疫情大流行**，但在**1月20日最终警告人传人风险**之前，他们一直向公众宣传，这个疾病的风险很低。当局还被指控阻止基因测序结果发布，直到张永振教授违抗严格的命令，将**他的测序结果在线发布为止**，导致基因序列共享（在争分夺秒的病毒爆发初期）被延误了几天时间。
+“这说明（中共国当局）非常紧张。他们害怕这些家庭会与世卫组织专家取得联系。”这位51岁的老人说。“当世卫组织抵达武汉时，[当局]强行删除了[该聊天群]。因此，我们与许多成员失去了联系。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Jn3b5Qmi8Ru1G/images/8bf341fb-96a5-4c06-8eeb-2c86ebc7cea4.jpg?asset_id=7de64559-1728-40d9-b96e-d3dcd82d4d21&amp;img_etag=%2203833f56a4316298510123488fa025f8%22&amp;size=2560)](https://spark.adobe.com/page/Jn3b5Qmi8Ru1G/images/8bf341fb-96a5-4c06-8eeb-2c86ebc7cea4.jpg?asset_id=7de64559-1728-40d9-b96e-d3dcd82d4d21&amp;img_etag=%2203833f56a4316298510123488fa025f8%22&amp;size=1024)
+世卫组织的专家们将于周四结束为期14天的隔离，预期届时他们将在严密安保下开始进行备受关注的调查。
 
-美国病毒学家伊恩•利普金(Ian Lipkin)告诉BBC，大约新年时，当病毒的消息刚开始流传，中共国疾病预防控制中心(CDC)负责人高福与他取得了联系。利普金说，高福告诉他，他们已经确定了这种病毒，它不是很容易传播。
+考虑到这次任务的外交敏感性，专家组成员本月初告诉《卫报》，这次调查不是为了“责怪和指手画脚”，而是为了确定在研究疫情起源时可以吸取哪些教训。
 
-“我不认为他是在欺诈，我认为他只是做错了，”利普金说，“他应该发布一些序列，并说这是我们所知现状。”
+除了张先生外，其他死者亲属也证实了该聊天群被删除的消息。微信由中共国数字公司腾讯运营。
 
-高福拒绝接受采访。他告诉中共国媒体，病毒序列已在第一时间及时发布，而且他从来没说过不会人传人。
+死者家属指责武汉和湖北省政府在2019年12月武汉首次出现疫情时，试图隐瞒疫情，然后没有向公众发出警报，并拙于应对，从而让新冠病毒失控。
 
-在1月23日**武汉封城**时，武汉市中心医院每天接待2500例病人。
+另一位家属说，她成年的女儿去年1月死于病毒，她告诉法新社记者，她上周被当局传唤，并警告她不要“对媒体说话或被他人利用”。
 
-“有些病人本不应逝去。我们无力挽救，当时的医疗资源太紧张了，”这位医生说，“我相信真正的历史不应被遗忘。我们需要吸取教训，不要让这样的事情再次发生。”
+当局周二找上门来，“老调重弹，给了我5000元人民币[564英镑]的‘慰问金’。”她补充说，要求匿名。
 
-中共国坚持认为，他们迅速发布了所有相关信息，并否认所有掩盖事实的指控。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Jn3b5Qmi8Ru1G/images/a1abd2c2-f5c1-4502-8523-7f87d8e7503f.jpg?asset_id=dac3cea9-9bbc-4409-941f-daad2fcb6e24&amp;img_etag=%226fbd3f2ba224e50a5dad4931741e83a9%22&amp;size=1024)](https://spark.adobe.com/page/Jn3b5Qmi8Ru1G/images/a1abd2c2-f5c1-4502-8523-7f87d8e7503f.jpg?asset_id=dac3cea9-9bbc-4409-941f-daad2fcb6e24&amp;img_etag=%226fbd3f2ba224e50a5dad4931741e83a9%22&amp;size=1024)
-
-乔治城大学，与世卫组织合作的健康政策研究中心主任劳伦斯•戈斯汀(Laurence Gostin)教授说，中共国未能报告该病毒出现，违反了国际卫生法规。中共重蹈了2003年非典流行期间的病情掩盖行为。
-
-戈斯汀说：“中共国有义务诚实、完整、透明地回答世卫组织的问题，我不认为中共国履行了义务。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Jn3b5Qmi8Ru1G/images/100ca482-d7e1-464c-82a3-8f05cec98da4.jpg?asset_id=983e54e9-21a6-4c7e-8595-a53a36648ef2&amp;img_etag=%22f17ce96591672fe2d605ccaceb4537f7%22&amp;size=2560)](https://spark.adobe.com/page/Jn3b5Qmi8Ru1G/images/100ca482-d7e1-464c-82a3-8f05cec98da4.jpg?asset_id=983e54e9-21a6-4c7e-8595-a53a36648ef2&amp;img_etag=%22f17ce96591672fe2d605ccaceb4537f7%22&amp;size=1024)
-
-BBC的纪录片还详细展示了世卫组织的回应。世卫组织持续公开支持中共国没有证据人传人的保证，而在同时其内部专家意见相反，他们**向各国领导人汇报**，要求做好（人传人的应对）准备。
-
-由美联社获得并与BBC和PBS前线节目共享的世卫组织会议内部泄漏的录音，揭示了世卫组织官员讨论与非典爆发时情形的相似性、“无休止地试图从中共国获得最新消息”、以及如果大流行发生，世卫组织**将会被“指责”的危险。**
-
-“（对于世卫组织，仅传达中共国宣称的）没有证据表明人传人是不够称职的。我们需要看到数据，我们需要能够由我们来做出地理分布、时间线、全盘的判断。”世卫组织紧急项目负责人迈克尔•瑞安(Michael Ryan)在一月初的一次会议上说。
-
-第二天，世卫组织官员再次称赞中共国对疫情的应对措施。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Jn3b5Qmi8Ru1G/images/fde8b584-3ac4-4aa2-af29-62b18fcda52f.jpg?asset_id=a6262c44-c15a-4358-b4c3-065ca422ecda&amp;img_etag=%22a5662e3671b8737da4e8562be285163f%22&amp;size=2560)](https://spark.adobe.com/page/Jn3b5Qmi8Ru1G/images/fde8b584-3ac4-4aa2-af29-62b18fcda52f.jpg?asset_id=a6262c44-c15a-4358-b4c3-065ca422ecda&amp;img_etag=%22a5662e3671b8737da4e8562be285163f%22&amp;size=1024)
-
-现在，中共国当局正在与该国自2020年初以来最严重的疫情爆发作斗争，尽管其（公开报告的病患）数量少的多，而世卫组织科学家在武汉的首要任务就是完成隔离，随后才能进行期待已久的**对病毒起源的调查**。尽管该小组成员强调这不是要分摊责任，但考虑到北京政权正在合力重写有关病毒起源的叙述，他们也担心着中共国能否给予他们调查所需的权限。
-
-该纪录片于周二在BBC2台播出。这是两部分系列的第一部，第二部将聚焦于美国对于疫情的应对。
-
-🔗[原文链接](http://：https://www.theguardian.com/world/2021/jan/26/wuhan-doctor-china-authorities-stopped-me-sounding-alarm-on-covid)
+**🔗[原文链接](https://www.theguardian.com/world/2021/jan/27/let-who-experts-meet-wuhan-families-says-coronavirus-victims-son)**
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
 
 
-编辑：【[英国伦敦喜庄园编辑部](https://spark.adobe.com/page/Jn3b5Qmi8Ru1G/)】
+编辑：【[英国伦敦喜庄园编辑部](https://spark.adobe.com/page/9aOJjGdGW0fnc/)】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Jn3b5Qmi8Ru1G/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/Jn3b5Qmi8Ru1G/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/9aOJjGdGW0fnc/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/9aOJjGdGW0fnc/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-+1
++2

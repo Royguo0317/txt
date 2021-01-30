@@ -1,39 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】29/01/2021:因拜登拒绝见中共外交官杨洁篪，中共取消美国之行
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/845564/)
+## 澳大利亚军舰和飞机将继续在南中国海巡逻
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/845717/)
 
-**制作:Cantonese工作室**
-播报：美国小李
-<br>资料收集：Elaine Lei、郁金香、极寒将至、美国小李、陆柒陆捌
-<br>视频制作：Shawn
-<br>海报制作：侬民、EA、文绉绉
-<br>上传: Shawn
-**摘要:**
+- 编辑：Victor Torres
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210129-zhTW-01-5.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210129-zhTW-02-2.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210129-zhTW-03-1.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210129-zhTW-04.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210129-zhTW-05.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210129-zhTW-06-1.jpg)
-7.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210129-zhTW-07-20.jpg)
-8.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210129-zhTW-08-1.jpg)
-9.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210129-zhTW-09-17.jpg)
-10.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210129-zhTW-10-1.jpg)
-11.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210129-zhTW-11-2.jpg)
-12.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210129-zhTW-12-2.jpg)
+
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2021年1月30日电/西喜社——**据《卫报》1月29日报道，随着台湾报告说其防空区的中共国军机增加，以及北京告诫独立势力不要 “玩火”，澳大利亚政府正在密切关注该地区的事态发展。
+
+澳大利亚国防部发言人表示：“澳大利亚的船只和飞机将继续行使国际法规定的航行和飞越自由的权利，包括在南中国海，我们支持其他国家也这样做。”
+
+“在台湾问题上，我们了解情况，并继续关注事态发展。”
+
+这番话是针对美国航母群到访，以及拜登新政府是否要求澳大利亚加入其在南海的演习，或者是否会很快进行自己的演习等问题而发表的。
+
+澳大利亚政府认为其对南海的稳定有着实质性的利益，部分原因是途经南海的贸易量巨大。
+
+虽然澳大利亚经常与美国和其他伙伴一起行动，但政府坚持不评论澳大利亚国防军行动具体细节的立场。
+
+在该地区紧张局势加剧的情况下，自治的台湾报告说，自上周末以来，中共国军机在其防空识别区的数量有所增加。
+
+中共国国防部发言人吴谦周四表示，台湾是 “中国不可分割的一部分”，中共国在台湾海峡的军事活动 “是对外部势力干涉和’台独’势力挑衅的郑重回应”。
+
+根据中国国防部月度记者会纪要，吴谦还表示要警告独立势力 “玩火者必自焚，谋求’台独’只意味着战争”。
+
+据了解，澳大利亚政府的立场是支持通过对话，在不威胁、使用武力或胁迫的情况下，和平解决台湾问题和其他地区问题的分歧。
+
+政府还认为，欢迎美国在印太地区发挥领导作用，以维护该地区的规则、规范和标准。
+
+澳大利亚国防部长琳达·雷诺兹（Linda Reynolds）周三在与美国新任国防部长劳埃德·奥斯汀（Lloyd Austin）首次通话后表示，澳大利亚和美国将 “继续与盟友和伙伴并肩工作，以维护一个安全、繁荣、包容和基于规则的地区”。
+
+五角大楼发表声明说，美国国防部长 “强调了在一个没有恶意行为的地区，维持一个建立在现有国际法和规范基础上的自由和开放的印太地区的重要性”。
+
+五角大楼和雷诺兹都没有直接提到中共国，但澳大利亚一直与其最大的贸易伙伴在一系列问题上存在分歧，包括北京将南海争议地区军事化，以及打击香港的异议人士。
+
+澳大利亚国防部负责人莫里亚蒂（Greg Moriarty）上个月表示，中共国的行为 “令人不安”，并通过其在南海的活动使澳大利亚的安全环境变得复杂。
+
+莫里亚蒂还说，印太地区的一些国家对未来的和平与稳定前景深感忧虑，大国的行为要让该地区放心。
+
+在堪培拉呼吁对中共病毒进行全球调查引发此类对话冻结后，澳大利亚政府一直在寻求与中共国恢复部长级和领导人级别的会谈。随后，中共国针对澳大利亚一系列出口行业征收关税、暂停或非正式禁令。
+
+**新闻来源：**[https://amp.theguardian.com/world/2021/jan/29/australian-military-to-continue-patrolling-south-china-sea-as-china-warns-taiwan-independence-means-war?\_\_twitter\_impression=true](https://amp.theguardian.com/world/2021/jan/29/australian-military-to-continue-patrolling-south-china-sea-as-china-warns-taiwan-independence-means-war?__twitter_impression=true)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+
 0
