@@ -1,28 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/01/29 疫情下墙国中的人生百态
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/847340/)
+## 数据分析结果表明新冠病毒为人工合成
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/847058/)
 
-翻译：Cathy | 校对：CharlesS | 字幕：雨中漫步
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/groesster-corona-ausbruch-seit-monaten-in-china-image.jpg)
-## 北京因疫情封锁大量进京公路，大量通勤人员步行进京，到了单位都下班了
+**作者/翻译**：夜星 **校对/发稿人: **Ting Guo
 
-河北疫病紧张，北京市堵住了周遭的很多公路，车辆基本很难进城，也非常堵车。所以一些住在京郊的人，只好选择步行进入北京市，但因为要排队过检查站，步行的人群同样拥堵，有人在网上发消息，说排队排了4个小时，都还没见到检查站，等到单位都该下班了。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Screenshot_20210130_115119-2.jpg)图片来源: [https://zenodo.org/record/4470233](https://zenodo.org/record/4470233)(截图)
 
-## 新冠肛拭的“惨象”
+纽约时间2021年1月29日，史蒂文·奎伊（Steven C. Quay）博士发表了他的长达193页的工作报告：贝叶斯分析结果表明，新冠病毒为实验室合成产物的几率，远远超出了合理的怀疑范围。（A Bayesian analysis concludes beyond a reasonable doubt that SARS-CoV-2 is not a natural zoonosis but instead is laboratory derived）
 
-新冠肛拭，菊花残，满腚伤！中共由于自己新冠病毒低测试准确率，又不去和先进国家合作，只有想方设法地折磨自己的国民。
+报告通过贝叶斯原理的推论统计方法，假定新冠病毒由动物传播而来的几率为98.8%，那么病毒是人工合成的几率则为1.2%。当出现了相关支持或反对的证据或信息时，这两个几率会进行相应的调整变化。在结合了二十多项的证据进行推理分析后，结果出现了惊人的反转：病毒为实验室产物的几率上升为99.8%，由动物传播而来的几率则下降为0.2%。
 
-## 河北南宫第7次核酸检测
+**评论: **笔者非医学背景出身，更不是病毒学专家，无法对报告的详细内容进行判断。（有兴趣的专业人士请参阅报告原文。）但是，结合闫丽梦博士的相关爆料，个人认为，这份报告的可信度很高。
 
-小朋友这么守规矩的排队测核酸，可无奈已经测了7次，大人的世界完全乱成一锅粥，真是一个天大的讽刺！
+想想过去四年来，全世界的新闻媒体，在金钱或权势面前，或是沦为利益集团的传声筒，或是对真相保持沉默。由此大概能推断出，有良知的医学界人士的声音完全被压制了，得不到传播。在社交媒体上，美国在任总统的帐号都能被封，发文被屏蔽。一个普通人，或者一个影响力没那么大的其他人，在社交媒体上发出的声音又能传出去多远呢？
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+也许只有当中国共产党灭亡了，疫苗经济过时了，医学界对于新冠病毒的更多声音才能有公诸于世的机会吧。
 
+**论文链接**：[https://zenodo.org/record/4470233](https://zenodo.org/record/4470233)
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-0
+#### （本文仅代表作者个人观点）
+
++2
