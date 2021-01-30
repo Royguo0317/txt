@@ -1,47 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 1/30/2021财经快讯：海航集团申请破产重整, 其航空业务利润不足偿债
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/847551/)
+## 2021/01/29 英喜时事速递
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/847554/)
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/Picture1-56.png)
-图片来源：[http://www.hnagroup.com/news/](http://www.hnagroup.com/news/%E6%B5%B7%E8%88%AA%E9%9B%86%E5%9B%A2%E6%9C%89%E9%99%90%E5%85%AC%E5%8F%B8%E5%A3%B0%E6%98%8E/)
+收集：Alicia，Cathy，Near，文大石，CharlesS | 制作：Alicia
+*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
 
-1. **海航集团申请破产重整**
+## 嵊州首例！使用蜂窝煤罚款3万元
+![临清一早餐店违规使用散煤作为燃料被处罚_综合]()![临清一早餐店违规使用散煤作为燃料被处罚_综合](https://5b0988e595225.cdn.sohucs.com/images/20190309/d2fe7ec02fc546a18a1416b37896183f.jpeg)评论：三万块也许是普通三口人家庭一年的开支，就这么罚了，土匪们表示甘拜下风，看来缺钱阿，共产党真的快完了
+## **人民日报钟声：全球合作抗疫需要大国牵手**
+![梁建章：抗击疫情需要全球合作- 知乎]()![梁建章：抗击疫情需要全球合作- 知乎](https://pic4.zhimg.com/v2-9a3d1af8b2fe268abcb495c74d8abc47_720w.jpg?source=172ae18b)评论：中国共产党向美国投放了病毒，现在跑来说：我帮你一起解决，我们和好。等以后看机会再下杀手。美国，全世界，你再给中共这样的机会？
+## 澎湃新闻：专家谈电子元器件：基础地位重要，但产业不强龙头企业匮乏
+![专家谈电子元器件：基础地位重要，但产业不强龙头企业匮乏]()![专家谈电子元器件：基础地位重要，但产业不强龙头企业匮乏](https://imagecloud.thepaper.cn/thepaper/image/111/269/846.png)评论：中国高端科技产业的冰冷现实也许可以惊醒“现代义和团”
+## 新浪财经：传蚂蚁集团将重组为央行监管的金融控股公司 官方：不予置评
+![报道指蚂蚁集团最快下周寻求通过港交所上市聆讯::: 六度新聞]()![报道指蚂蚁集团最快下周寻求通过港交所上市聆讯::: 六度新聞](https://s3.six-degrees.io/upload/media/20200916/facebook/72d549ec0e5bb77ceedb2f81e4946c21.jpg)评论：中国的民营企业彻底被党绞杀，走向死亡
+## 腾讯：2020债券违约启示录：评级“生意”乱象何时终结？
+![2020债券违约启示录：评级“生意”乱象如何终结？发债“注册制”如何革新评级市场？](https://empic.dfcfw.com/564116243228082177/art)评论：共产党治下，虚假信用评级比比皆是，社会经济的安全早已被无视
+## 第一财经：非洲猪瘟惊现变异毒株 疑非法使用“非洲猪瘟疫苗”所致
+![中国现2种新猪瘟毒株或由山寨疫苗引起- 禁闻网]()![中国现2种新猪瘟毒株或由山寨疫苗引起- 禁闻网](https://i1.wp.com/img3.secretchina.com/pic/2021/1-22/p2863241a848989044-ss.jpg)评论：”报道称，新希望六和集团首席科学家闫之春表示，在新希望六和公司下属母猪场中有超过1000头母猪感染了两种新毒株的非洲猪瘟病毒.该病毒缺失MGF360和CD2v两种基因。” 文章称，新毒株的产生可能是由于私自乱用未开发完的非洲猪瘟疫苗。不知道这样的信息是否有所暗示，但值得注意
+## **腾讯：TikTok遭永久禁止后，字节跳动在印度裁员近九成**
+![TikTok遭永久禁止后，字节跳动在印度裁员近九成|tiktok|印度政府_网易订阅](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0128%2Fb0ade0cdj00qnmkxc000zc000o100cfg.jpg&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)评论：拒绝这种挂羊头卖狗肉的共产党公司在国外丢中国人的脸
+## **胡锡进微博评论区翻车**
+![图片](https://mmbiz.qpic.cn/mmbiz_jpg/JAiaFStiahkuYmGfL0AG37QHJ26e0LCL3U3y8CZo6CyRcfUDrmEFbkzvP0r110VJrVdiaa95yUckr6sTmJlcNJzNg/640?wx_fmt=jpeg&amp;tp=webp&amp;wxfrom=5&amp;wx_lazy=1&amp;wx_co=1)评论：天下苦秦久矣！民意不可挡
+## 共青团中央：外交部：1月31日起，#中方不再承认所谓BNO护照为有效证件#。
+![外交部：中方不再承认所谓BNO护照为有效证件- YouTube]()![外交部：中方不再承认所谓BNO护照为有效证件- YouTube](https://i.ytimg.com/vi/86IbChKQ5Nk/maxresdefault.jpg)评论：中共离西方文明和契约精神越远，它离死亡也就越近。
+##  ​​
 
-
-1月29日晚间，海航集团传来大消息，海航申请破产重整。据不完全统计，海航涉及到多家A股/港股上市公司，包括海航投资、桂林旅游、渤海租赁、供销大集、海航创新、海越能源、海航基础、海航科技、海航控股、美兰空港等。目前，海航集团已被多家法院列为被执行人，被执行总金额超过13亿元。
-推特用户 “财经真相” 推文称，根据中国《企业破产法》，企业在资不抵债时可以申请破产重组后，其债务可以通过暂停支付本金，只支付利息，或削减无担保的债权和延期债务等办法处理；当期海航已经变卖了所有海外以及非核心业务，未来注定要回归航空本业，但是受疫情影响，航空业备受打击，海航紧靠航空利润，估计要还一百多年才行。
-[https://www.sohu.com/a/447528887\_114984
-https://twitter.com/caijingxiang/status/1355101300610924544?s=24](https://www.sohu.com/a/447528887_114984
-https://twitter.com/caijingxiang/status/1355101300610924544?s=24)
-
-1. **摩根大通即将在英国开展数字银行业务**
-
-
-据路透社01月27日报道，摩根大通（JPMorgan）将在几个月内以大通（Chase）为品牌在英国开设一家数字银行，这标志着摩根大通（JPMorgan）首次进军竞争激烈的英数字银行市场。该数字银行的总部位于伦敦的金丝雀码头金融区（London’s Canary Wharf financial district）。 摩根大通还表示，新业务已经招募了400名员工，并将提供一系列产品服务，包括经常账户服务。
-[https://www.reuters.com/article/us-jpmorgan-digital-uk/jpmorgan-to-join-british-online-banking-chase-within-months-idUSKBN29W1DE](https://www.reuters.com/article/us-jpmorgan-digital-uk/jpmorgan-to-join-british-online-banking-chase-within-months-idUSKBN29W1DE)
-
-1. **拜登政府即将对前任总统川普签订的中美贸易协定进行审核**
-
-
-路透社撰文称，白宫新闻秘书詹·普萨基（Jen Psaki）周五表示拜登政府将审查上届川普政府采取的所有国家安全措施，包括2020年1月签署的中美第一阶段贸易协议。当被问及拜登政府是否视中美贸易协议继续有效时，Jen表示上届政府实施的一切措施都在接受审查，由于这些措施涉及到国家安全，所以不会假设所有的协议都会继续有效。
-
-[https://www.reuters.com/article/us-usa-trade-china/white-house-says-u-s-china-trade-deal-among-issues-in-broad-review-idUSKBN29Y2DV](https://www.reuters.com/article/us-usa-trade-china/white-house-says-u-s-china-trade-deal-among-issues-in-broad-review-idUSKBN29Y2DV)
-
-1. **美国传统石油产业正在试图与生物燃料产业结盟以对抗拜登政府支持电动汽车发展的议程**
-
-
-据Newsmax报道，美国石油产业正寻求与国内玉米种植，生物燃料生产商结成联盟，游说反对拜登政府推动电动汽车的计划，但迄今进程缓慢，反响冷淡。推动液态燃料的发展和反对对电动汽车联邦补贴的努力，反映出对美国总统乔•拜登(Joe Biden)应对气候变化和减少化石燃料议程的担忧程度。这也反映了华盛顿政治格局的变化。自拜登取代川普成为总统以来，石油行业的影响力已经减弱。
-[https://www.newsmax.com/t/newsmax/article/1007724/8](https://www.newsmax.com/t/newsmax/article/1007724/8)
-
-1. **拜登安全顾问表示美国必须做好持续向中共国施压的准备**
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
-路透社报道称，拜登总统的国家安全顾问杰克·沙利文（Jake Sullivan）周五表示美国必须准备好让中共国为迫害新疆维吾尔族穆斯林，镇压香港及对威胁台湾的举动付出代价。沙利文在美国和平研究所(United States Institute of Peace)的一次活动上说，华府需要在这些问题上就观点和政策保持清晰一致。
-[https://www.reuters.com/article/us-usa-china-sullivan/us-must-be-prepared-to-impose-costs-on-china-biden-security-adviser-idUSKBN29Y2FC](https://www.reuters.com/article/us-usa-china-sullivan/us-must-be-prepared-to-impose-costs-on-china-biden-security-adviser-idUSKBN29Y2FC)
-
-密翻组·金融团队—文印
-资料提供：文罡，Wendy,Totoro, Sharon G
-
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
