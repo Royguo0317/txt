@@ -1,28 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法国周日起禁止欧盟以外人员入境
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/844002/)
+## Bill Gertz文章：美国解密情报支持病毒来源于武汉病毒所
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/843691/)
 
-- 编辑：Victor Torres
+作者：Stephen文文
+![]()![](https://gnews.org/wp-content/uploads/2021/01/3005-3.jpg)
+美国国务院最近解密的情报证明COVID-19大流行可能始于与中共军方PLA有联系的武汉病毒研究所（武毒所，Wuhan Institute of Virology，WIV）。即将卸任的川普政府1月解密的一份报告中，首次披露了在武汉研究所进行致命病毒研究的几名工作人员在2019年秋季患上了类似COVID-19的疾病症状。而武毒所的关键人物石正丽曾在疫情初期公开宣称WIV的员工和学生中SARS-CoV-2或SARS相关病毒的感染率是“零感染”。
 
+曾就职于德特里克堡陆军医学传染病研究所的医生兼生物武器专家罗伯特说：“根据我的经验和对科学的理解，很难相信这是自然发生的现象。”现为Patronus Medical首席医疗官的达林博士认为在武汉有人抓到了他们的（生物武器）实验。任卫生服务机构WorldClinic的Lang博士指出与环境因素有关的间接证据（而不是间接证据）非常有力的说明“中国共产党领导人故意释放这种病毒。”
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+武毒所工作人员的发病发生在COVID-19病例首次公开（2019年12月上旬）之前，但中共却拒绝透露对工作人员的发病影响。
 
-**西班牙2021年1月29日电/西喜社——**法国从周日开始对来自欧盟以外的人关闭边境，以试图阻止中共病毒新变种的传播。
+报告还指出：“中共国实验室的意外感染曾造成过几次病毒爆发，其中包括2004年在北京爆发的SARS感染了9人，还造成1人死亡。”
 
-法国总理让·卡斯特克斯(Jean Castex)周五晚在总统府召开紧急政府卫生安全会议后宣布了这一措施，并警告新变种的 “巨大风险”。
+武毒所科学家石正丽被称为“中国蝙蝠女侠”，是因为她在蝙蝠冠状病毒方面的工作，她所研究的病毒正是类似于导致COVID-19的病毒。她在2015年与他人合作了一项科学研究，其中提到了对蝙蝠病毒进行实验室操作的一部分，研究它们如何感染人类。
 
-他说，所有从其他欧盟国家抵达的人将被要求出具阴性的病毒检测报告。法国将从周日开始关闭所有大型购物中心，并限制进出其海外领土的旅行。
+[援引原文](https://www.washingtontimes.com/news/2021/jan/26/wuhan-lab-theory-coronavirus-outbreak-bolstered-de/)
 
-卡斯特克斯下令加强警方对那些违反法国每天12小时宵禁、举行秘密派对或重新开设餐馆，以对抗10月以来的关闭令的人的检查。
+【文章仅代表作者个人观点】
 
-最近几周，病毒感染、住院和死亡人数一直在稳步上升，但并没有急剧上升。许多医生一直敦促在全国范围内实施新的关闭，就像其他几个欧洲国家实施的那样。
+审核校对：楼兰古城
+上传排版：糖果儿
 
-卡斯特斯说，这些措施是为了避免第三次停工的经济成本。目前，超过60%的重症监护床位被中共病毒患者占据。法国报告的死亡人数已超过7.5万人，居世界第七位。
-
-**新闻来源：**[https://apnews.com/article/europe-united-nations-health-coronavirus-pandemic-coronavirus-vaccine-50c1f79fca97a6c2e46f7eaf8fd7afc0](https://apnews.com/article/europe-united-nations-health-coronavirus-pandemic-coronavirus-vaccine-50c1f79fca97a6c2e46f7eaf8fd7afc0)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/ff878835-6408-4649-948a-b1e1f60cda63-16.jpg)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
-
-0
++3

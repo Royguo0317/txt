@@ -1,49 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香草播报：【热点播报】金蝉脱壳 海航集团破产重组；乾坤大挪移 万亿资产易手— 中南坑，习王斗，刺刀见红！
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/845190/)
+## 医学博士史蒂芬（Steven Carl）指出了CCP病毒来源
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/845551/)
 
-作者：香草山写作组 April-四月 / Wakeup文醒
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+编辑上传   银河
+![]()![](https://cdn.discordapp.com/attachments/795746853945081947/804906617480020028/Snipaste_2021-01-30_05-49-18.png)zenodo.org
+医学博士史蒂芬（Steven Carl）刚刚在在《泽诺多》（Zendo）发表论文，“贝叶斯分析的结论是，SARS-CoV-2不是一种自然的人畜共患疾病，而是来自实验室”【1】
 
-美东时间2021年1月29日 下午12:15，CNN BUSINESS 撰文《曾经想统治世界的海航，现面临破产》，爆出海航集团面临破产的消息。
+这篇长达193页的论文，占用内存近15M，将为正在武汉进行病毒调查的WHO人员提供科学、实用、准确的溯源指导。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Screenshot-2021-01-29-190506.jpg)
+《PR Newswire》抢了个头条：【2】
 
-*图片来源：格雷格·贝克| 法新社| 盖蒂图片社*
+西雅图，2021年1月29日——今天，Atossa Therapeutics，Inc.（NASDAQ:ATOS）首席执行官史蒂芬博士发表了一篇论文，题为“贝叶斯分析得出的结论是，毫无疑问，SARS-CoV-2不是一种自然的人畜共患病，而是实验室衍生的。”这篇193页的论文可以从Zenodo下载，一个由欧洲核子研究中心运营的通用开放存取存储库。
 
-文中指出，海航曾是中共国最杰出的公司之一。它通过航空业、房地产和金融投资迅速发展，在海外一直是买买买的模式。然而它的迅速扩张是建立在天量债务的基础上，到2019年6月，其债务达到了7070亿人民币（文中给出的数据无法确定真实性，但是根据爆料革命揭示的数据，2017年海航债务已达到1万多亿人民币，银行贷款8000多亿人民币）。
+以下是论文作者作了一段简短的“解说”视频：【3】
 
-海航集团发布破产重组声明中称，“因不能清偿到期债务，申请破产重组”，细读之下不禁令人毛骨悚然：只要一宣布破产，其所有债务全部“清零”，而这些天量的债务绝大部分是银行贷款，换言之，这是中国人民的血汗钱！这把锋利的“破产”镰刀，着实收割了大大一波韭菜！（我就想问问那些至今还在助纣为虐的伪类、五毛们：你们和你们的家人，也在墙内银行存款了吧……. ）
+文章说，分析的目的是确定SARS-CoV-2的来源，SARS-CoV-2是一种引起COVID-19的病毒。从起初（确认为）98.2%的可能是人畜共患的自然跳离，只有1.2%的可能性是实验室逃逸，在系统地检查了26个不同的独立事实和证据后，最后的结论是，SARS-CoV-2来自实验室的概率为99.8%，来自自然界的概率仅为0.2%。
 
-**作者评：**
+史蒂芬博士说：“和其他许多人一样，我担心世卫组织小组成员与中共国科学家和医生之间似乎存在重大利益关联，这将在多大程度上阻碍对SARS-CoV-2来源的公正调查。”。
 
-在王岐山的“保驾护航”之下，海航集团从2008年到2017年短短的10年之间，创造了一个增长1万倍的神话。2017年鼎盛时期，海航集团位列世界500强的第170名。
+“尽管如此，我仅通过公开获得的有关SARS-CoV-2的科学证据，并在分析中使用高度保守的估计，得出结论：SARS-CoV-2从实验室逃逸是毫无疑问的。从2019年12月起，武汉病毒学研究所对5名患者的标本进行测序，需要对其中的腺病毒疫苗基因序列进行解释，例如，你会在疫苗挑战试验中看到这种数据，希望世卫组织的小组能够得到这些问题的答案。”
 
-4年前，文贵先生首次撕开了海航的神秘面纱，揭露了中南坑盗国贼们的恶行。随着4年来爆料革命多次揭露海航的黑幕，让世人真正了解和明白中共如何通过海外并购，把14亿中国人民的血汗钱放入中南坑里那几个人的腰包，借此掌控国外经济、政治、媒体宣传，并挟以经济打击中共党内的政治对手……
+为了帮助发现真相并获得关于本文所用方法和得出的结论的反馈，史蒂芬博士向全世界26名科学家发送了一份本论文出版前的副本，其中包括目前在武汉的世卫组织调查人员、武汉病毒学科学家研究所以及其他著名的病毒学专家。
 
-这次的海航“破产重组”，其实质就是习夺了王的钱，顺便收割一波成熟的韭菜，标志着中南坑内斗中的各派系开始彻底撕下了伪善的面具，进入拼刺刀阶段。
+不得不为史蒂芬博士点赞，他已经对WHO与中共勾兑的可能性作出了预见，并加以防范地送出26份论文副本，警示试图勾兑的人士，小心点，我们正盯着你们呢！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Screenshot-2021-01-29-190339.jpg)
+[1] [https://zenodo.org/record/4470233#.YBRJSehKiUl](https://zenodo.org/record/4470233#.YBRJSehKiUl)
 
-*配图来自GNews*
+[2][https://www.prnewswire.com/news-releases/new-study-by-dr-steven-quay-concludes-that-sars-cov-2-came-from-a-laboratory-301217952.html](https://www.prnewswire.com/news-releases/new-study-by-dr-steven-quay-concludes-that-sars-cov-2-came-from-a-laboratory-301217952.html)
 
-就在中共窝里斗的你死我活之际，国际大气候已经悄然变化！以美国正义力量为首的全世界灭共联盟已经与文贵先生发起的爆料革命集结，病毒真相、操控美国大选都是共匪绕不过去的坎儿……
+[3] https://zenodo.org/record/4477212#
 
-王岐山，依靠威胁真的能换来“免死金牌”吗？习近平，对中共党内的集权与清洗真的能稳坐江山吗？现在，轮到习王喊“保命”、“保财”了吧？！
-
-原文出自 [CNN Business](http://CNN%20Business)
-
-编辑/校对/发稿：宁静致远
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-+5
++2

@@ -1,8 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国参议院高票通过布林肯出任国务卿（玫瑰看新闻一月二十七日）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/843059/)
+## 警惕：中共式社会评分体系引入美国，共产幽灵正在侵蚀美国社会
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/839634/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00001-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00002-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00003-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00004-10-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00005-10-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00006-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00007-10-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00008-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00009-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00010-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00011-10-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00012-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00013-10-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00014-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00015-6-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00016-6.jpg)
-0
+作者：火枪手
+校对：Nio
+审核：小王子
+
+据大纪元新闻网报导:美国联邦参议员 #霍利（Josh Hawley）周日（24日）警告，共产中国式社会信用评分体系正以 #取消文化 的形式，被引入美国。
+
+美国作家詹姆斯·詹姆斯 林赛近期在接受英文大纪元专访时表示，取消文化运动，与中共发动的文化大革命类似，但针对的是西方传统文化。这与马克思主义的全球目标有关。他谈到，取消文化把西方文化作为消灭的目标，因为马克思主义的分支法兰克福学派认为，西方文化是马克思主义在西方传播的唯一阻碍。
+
+众所周知，中共国的社会评分体系，就是文革式的大数据独裁，这就是乔治奥威尔小说[一九八四]的老大哥正在看着你。全方位监控中国人，从日常生产生活的方方面面，如入学，就业，经营审批，个人银行信贷，社会基本福利，保险，等基本保障在这个评分体系下都会受到严重侵害。并且此信用体系大数据背后巨大的商业利益也被中共控制的企业瓜分，如阿里巴巴，百度，腾讯等大科技公司，它们会通过诸如信用历史，行为偏好，个人资产，人际关系网等个人隐私，对大众进行定制化的韭菜收割策略。
+
+更为恐怖的是，隐藏在这个体系背后，惩罚所谓的违法行为的政治审查。社会观点和言论的不同，会让你的生活举步维艰。例如支持法轮功（一个受迫害的信仰群体）、家庭教会，维吾尔族或藏族、批评政府，惩罚可能包括禁止出国、禁止乘坐公共运输工具、禁止入住酒店、禁止在某些职位上被雇用，或者被列入黑名单。 如今这套系统引入美国，“让有权势的人现在看到了巩固其对社会控制并压制异议的机会，”这正是霍利（Josh Hawley）参议员所担忧的。
+
+【文章仅代表作者个人观点】
+
++2
