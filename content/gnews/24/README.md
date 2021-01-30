@@ -1,27 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 台海紧张？澳再斥10亿提升导弹战力
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/846631/)
+## 更多的科学家认同新冠病毒来自实验室
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/846751/)
 
-#### 翻译报道：致敬香港！
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Picture18-1.png)图片来源：www.navy.gov.au
-据“澳洲国防杂志”（Australian Defence Magazine）网1月28日报道，面对日趋紧张的台海局势，澳大利亚政府本周宣布将投资10亿澳元为海军提升导弹战力，以促进和维护对海上的控制。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/7d8b209a_o.jpeg)
+新冠病毒在全球肆虐超过一年，目前已有210多万人死亡，超过1亿个确诊病例并造成数万亿美元的经济损失。闫丽梦博士在2020年1月19日就曾透过路德社向全世界预警，这是一种武汉P4实验室制造的生化武器，具有非常强的传染性且能致死，如果不果断采取措施将引发全球大流行。而中国政府、WHO、媒体都表示冠状病毒来自自然界，有的是直接从蝙蝠身上感染，有的是通过其他物种间接从蝙蝠身上感染。但随着时间的推移越来越多的机构和正义的，有良知的科学家通过实验和研究证明新冠病毒是在武汉实验室进行基因操作，使其更具传染性，训练它感染人体细胞。
 
-澳大利亚国防部长琳达·雷诺兹（Linda Reynolds）在新闻声明中称，澳大利亚皇家海军（RAN）将获得“先进的远程反舰导弹、增程型地对空导弹、高级轻型鱼雷，反舰和地对空导弹射程超过370公里、海上对陆打击能力1500公里” ，这些将被配置到潜艇和水面舰队。雷诺兹部长还提到将对“改进型海麻雀导弹计划”（Evolved Sea Sparrow Block 2 missile program）继续投资，并再次宣布购买雷神（Raytheon）公司的SM 2 Block IIIC型和SM 6 Block 1型导弹。
 
-澳大利亚去年7月公布了《新版国防战略》（Defence Strategic Update）和《军力架构计划》（Force Structure Plan），其中已经提出将为海上制导武器拨款240亿澳元。而澳洲国防杂志记者分析，考虑到对工业产出指数（IIP）及最新政策文件的不同解析，对澳大利亚国防军（ADF）的导弹装备支出实际可能会多达900亿澳元。
 
-2020年的《新版国防战略》中提到将购买洛克希德·马丁（Lockheed Martin）公司的AGM-158C型远程反舰导弹（LRASM）安装于“超级大黄蜂”（Super Hornet）战斗机，而美国国务院早在去年2月就批准了这项计划，200枚导弹的总价高达14.7亿澳元。AGM-158C导弹的射程约为370公里，并与澳大利亚皇家海军“对空作战驱逐舰”（Air Warfare Destroyer）上的Mk 41发射系统兼容。澳洲国防杂志认为，也许雷诺部长这次的声明中有一部分是对去年这项采购的重复，而新的射程1500 公里的海基攻陆导弹才是这次计划的主要内容。
+- **2021年1月14日**，
+**奥地利著名微生物学家Rossana Segreto称：病毒可能的确来自实验室。
+**🔵采访：[https://cutt.ly/xkewQBC](https://cutt.ly/xkewQBC)
+🔵论文：[https://cutt.ly/skewTtU](https://t.co/15Gmc4rxOF)
+- **2021年1月15日**，
+**美国国务院发表声明，确定武汉病毒研究所秘密项目上与军方的合作并要求必须彻查中共病毒来源。**
+🔵中文翻译：[https://gnews.org/zh-hans/761696/](https://gnews.org/zh-hans/761696/)
+🔵英文原文：[https://cutt.ly/QkrZEsW](https://cutt.ly/QkrZEsW)
+- **2021年1月24日**，
+**拜登有关联的前顾问称CCP病毒”很可能”来自武汉实验室**。
+🔵中文翻译：[https://gnews.org/zh-hans/809578/](https://gnews.org/zh-hans/809578/)
+🔵英文原文：[https://cutt.ly/ckeeEC3](https://cutt.ly/ckeeEC3)
+- **2021年1月26日**，
+**《华盛顿时报》报道，美国国务院最近解密的情报显示，有新的证据支持病毒源于与中共军方有关联的武汉病毒实验室的说法。**
+🔵中文翻译：[https://gnews.org/zh-hans/834146/](https://gnews.org/zh-hans/834146/)
+🔵英文原文：[https://cutt.ly/kkeey13](https://cutt.ly/kkeey13)
+- **2021年1月29日**，
+**史蒂文·奎伊博士研究认为CCP病毒来自实验室的概率是99.8%并发表了论文 “贝叶斯分析得出的结论是，SARS-CoV-2不是天然的人畜共患病，而是实验室衍生的。” 他向全球26位科学家发送了的副本，其中包括目前在武汉的WHO调查员和研究所的武汉病毒学科学家。**
+🔵论文：[https://cutt.ly/DkewFWz](https://cutt.ly/DkewFWz)
 
-从印太地区整体战略局势看，在中共战机违规进入台湾防空识别区的同时，澳大利亚发出了此项军备声明，美国总统乔·拜登则重申了美国将保卫台湾免遭袭击，而中共战机随即第二次违规，看来中共领导人习近平是在试探拜登的决心。这些事件再次印证了在2049年共产党统治中国满百年之前，澳大利亚国防军将面临的最有可能的突发事件就是台湾战争。
 
-虽然说，中共军方如果入侵台湾，那么由于美国海军的强大实力、向大面积海域排兵布阵的固有困难、以及台湾的特殊地理位置等因素综和在一起，都会使中共军堆损失惨重，但“人民解放军”（PLA）对美国和盟军战舰的杀伤力在近年里的确已经成倍提高，不可轻视。澳大利亚国防军打击能力范围的提升，将对美国领导的台湾防御联盟和澳美“极超音速导弹”联合计划（Australian-US hypersonic missile programs）做出更大贡献。
+**点击阅读闫丽梦博士论文：**
 
-澳洲国防杂志指出，澳大利亚在国防支出增加的同时，外交等预算将进一步被削减，导致原本就配不上其经济实力的外交影响力继续降低，而中共国一方的影响力却反而在提升。如果北京决定入侵台湾，新型导弹将无疑是有帮助的，但澳大利亚未来二十年将面临的问题并不能都被射程1500公里的导弹所攻破。
 
-评：澳大利亚政府及时认清中共极权政府给地区和世界带来的危害与威胁，不惜巨资坚守正义，是海峡两岸、印太地区、乃至世界人民之福，邪恶必将受到全球正义联盟的围剿！
 
-原文链接：[https://www.australiandefence.com.au/news/missile-purchase-prepares-adf-for-taiwan-contingency#.YBJp2-vVJfg.twitter](https://www.australiandefence.com.au/news/missile-purchase-prepares-adf-for-taiwan-contingency#.YBJp2-vVJfg.twitter)
 
-0
+
+[闫博士
+第一篇论文](https://zenodo.org/record/4028830#.YBRMk-nPxPY)
+
+
+
+
+
+[闫博士
+第二篇论文](https://zenodo.org/record/4073131#.YBRNXOnPxPZ)
+
+
+
+
+
+[闫博士对CNN不实报道的回击](https://zenodo.org/record/4283480#.YBRPRenPxPZ)
+
+
+
+
+
+
+[点击加入喜马拉雅德国慕尼黑!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/01/flag-germany_1f1e9-1f1ea.png)感恩农场（Discord）](https://discord.gg/kcKcTZuXqB)
+
+
+
+[点击关注喜马拉雅德国慕尼黑感恩农场 (Twitter)](https://twitter.com/himalayagermany)
+
+
+
+[点击关注喜马拉雅德国慕尼黑农场GTV平台官方账号](https://gtv.org/user/5fd28ac309267020eb49eaf0)
+
+
+
+[点击关注喜马拉雅德国慕尼黑感恩农场Youtube平台官方账号](https://www.youtube.com/channel/UCKj8Sz8LcWxfOjICrT8pddA)
+
+
+
+
++2
