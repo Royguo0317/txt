@@ -1,77 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 更多的科学家认同新冠病毒来自实验室
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/846751/)
+## 文明与野蛮
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/846652/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/7d8b209a_o.jpeg)
-新冠病毒在全球肆虐超过一年，目前已有210多万人死亡，超过1亿个确诊病例并造成数万亿美元的经济损失。闫丽梦博士在2020年1月19日就曾透过路德社向全世界预警，这是一种武汉P4实验室制造的生化武器，具有非常强的传染性且能致死，如果不果断采取措施将引发全球大流行。而中国政府、WHO、媒体都表示冠状病毒来自自然界，有的是直接从蝙蝠身上感染，有的是通过其他物种间接从蝙蝠身上感染。但随着时间的推移越来越多的机构和正义的，有良知的科学家通过实验和研究证明新冠病毒是在武汉实验室进行基因操作，使其更具传染性，训练它感染人体细胞。
-
+作者：傑喜拉亜
 
 
-- **2021年1月14日**，
-**奥地利著名微生物学家Rossana Segreto称：病毒可能的确来自实验室。
-**🔵采访：[https://cutt.ly/xkewQBC](https://cutt.ly/xkewQBC)
-🔵论文：[https://cutt.ly/skewTtU](https://t.co/15Gmc4rxOF)
-- **2021年1月15日**，
-**美国国务院发表声明，确定武汉病毒研究所秘密项目上与军方的合作并要求必须彻查中共病毒来源。**
-🔵中文翻译：[https://gnews.org/zh-hans/761696/](https://gnews.org/zh-hans/761696/)
-🔵英文原文：[https://cutt.ly/QkrZEsW](https://cutt.ly/QkrZEsW)
-- **2021年1月24日**，
-**拜登有关联的前顾问称CCP病毒”很可能”来自武汉实验室**。
-🔵中文翻译：[https://gnews.org/zh-hans/809578/](https://gnews.org/zh-hans/809578/)
-🔵英文原文：[https://cutt.ly/ckeeEC3](https://cutt.ly/ckeeEC3)
-- **2021年1月26日**，
-**《华盛顿时报》报道，美国国务院最近解密的情报显示，有新的证据支持病毒源于与中共军方有关联的武汉病毒实验室的说法。**
-🔵中文翻译：[https://gnews.org/zh-hans/834146/](https://gnews.org/zh-hans/834146/)
-🔵英文原文：[https://cutt.ly/kkeey13](https://cutt.ly/kkeey13)
-- **2021年1月29日**，
-**史蒂文·奎伊博士研究认为CCP病毒来自实验室的概率是99.8%并发表了论文 “贝叶斯分析得出的结论是，SARS-CoV-2不是天然的人畜共患病，而是实验室衍生的。” 他向全球26位科学家发送了的副本，其中包括目前在武汉的WHO调查员和研究所的武汉病毒学科学家。**
-🔵论文：[https://cutt.ly/DkewFWz](https://cutt.ly/DkewFWz)
 
+众所周知，DNA携带着我们的遗传信息（染色体），端粒就是镶嵌在每条DNA分子链两个末端的小螺帽，每次人体细胞分裂复制时，端粒就会挺身而出，护着所携带遗传信息，自己受损直至损耗殆尽。随着端粒的离去，生命衰老和死亡钟声也骤然敲响…… 根据1961年的”海弗里克极限“，人体细胞终极一生可以分裂40-60次，所以端粒也被称为“生命的时钟”。
 
-**点击阅读闫丽梦博士论文：**
+2009年10月5日，有三位杰出的美国科学家正是因为发现了保护人类染色体的端粒和端粒酶共同获得了诺贝尔生理学或医学奖。因为他们的发现使我们对人类衰老，癌症和干细胞等疑问有了答案，对控制疾病及延长生命有了新的方向。
+
+我们渴望延长生命，所以致力发展科学；我们渴望自由，所以提倡文明。然而，人类却一次次离经叛道：第一第二次世界大战夺走七千五百万人性命；希特勒是始作俑者；冠状病毒使全球死亡人数达到至今的二百二十一万；中国共产党是罪魁祸首！台湾海峡告急，欧洲告急，美国告急，澳洲告急……我们不是已经进入了文明时代了吗？为什么还不断的涌现战争预警？
+
+有人说，人类文明发展史就是摆脱野蛮的过程，但到底什么是野蛮？什么是文明呢？人类用了几千年是变得更加文明了，还是变得更加懂得掩饰野蛮呢？我们真的很难说清楚。如果那些引以为傲的文明是为了掩盖恶劣的人性，那跟真正的野蛮有什么分别呢？所以当文明不够文明时，那就让野蛮更加野蛮吧，就算冒着“灭族”的危险，也要抗争到底！
+
+台湾曾经的赛德克巴莱人曾说 “一个真正的人，可以失去身体，但一定要赢得灵魂”，这是一种悲怆的英雄主义，但这就是他们的信仰。
+![photo from reddit]()![photo from reddit](https://i.redd.it/y9mihx5hb8m51.jpg)Riding amongst the ruins of a fallen civilization. photo from reddit.
 
 
 
 
+校对发稿：Bingo
 
-[闫博士
-第一篇论文](https://zenodo.org/record/4028830#.YBRMk-nPxPY)
-
-
-
-
-
-[闫博士
-第二篇论文](https://zenodo.org/record/4073131#.YBRNXOnPxPZ)
-
-
-
-
-
-[闫博士对CNN不实报道的回击](https://zenodo.org/record/4283480#.YBRPRenPxPZ)
-
-
-
-
-
-
-[点击加入喜马拉雅德国慕尼黑!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/01/flag-germany_1f1e9-1f1ea.png)感恩农场（Discord）](https://discord.gg/kcKcTZuXqB)
-
-
-
-[点击关注喜马拉雅德国慕尼黑感恩农场 (Twitter)](https://twitter.com/himalayagermany)
-
-
-
-[点击关注喜马拉雅德国慕尼黑农场GTV平台官方账号](https://gtv.org/user/5fd28ac309267020eb49eaf0)
-
-
-
-[点击关注喜马拉雅德国慕尼黑感恩农场Youtube平台官方账号](https://www.youtube.com/channel/UCKj8Sz8LcWxfOjICrT8pddA)
-
-
-
-
-+2
++1
