@@ -1,35 +1,177 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战云长天时评】中共在病毒真相阻击战焦灼中疑似尿袋子王复出有何深意？
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/846899/)
+## 2021/01/28 – 01/29 美国政要每日推特重要信息汇总
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/847208/)
 
-HTS-02C-202101-091
+编辑：Cathy
 
-文：捆绑CCP一千年 喜马拉雅东京樱花团
+**经授权转载自：**
 
-战云长天时评
-![]()![](https://gnews.org/wp-content/uploads/2021/01/PHOTO-2021-01-29-17-48-46-8-e1612007535209.jpg)
-北京时间2021年1月29日，中共二号人物王岐山在北京以视频方式会见出席第十二轮中美工商领袖和前高官对话会议。不过，笔者对尿袋子王摇头晃脑的视频表示怀疑的同时，对他所表示的内容也表示怀疑。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/3-103.jpg)
-首先，我们对尿袋子王出镜表示有一定的可能，根据美国时间1月29号《 路德时评（路安墨谈）》视频节目看，赖小民的死，王岐山的出现有了一定可能性，至少传递一个信号，习近平被逼宫是真的处于下风。其二，也是最重大的嫌疑，笔者对新华社关于《王岐山会见第十二轮中美工商领袖和前高官对话美方代表》报道页面感到大为惊讶！，google搜索发现王岐山以图文形式报道了这一要闻。笔者截屏后用Ie浏览器搜索，更惊讶地发现照片上有视频。难道是google在自动识别新闻真假上禁止了视频出现？更为奇怪的是，此时的中共国真的出现了两颗“红太阳”吗？竟然是以《领导人活动报道专集》专栏出现，因为原来只有《习近平报道专集》，现在又出现《领导人报道专集》，而且是以毛体大红字出现，显然是中南坑权力机关出现两个中央。 王派暂时占据上风。其讲话字里行间意味深长。王岐山表示，中美关系建交40多年来，双边经贸发展展现了优势互补、互利共赢的客观事实。基辛格博士访华50年来，中美两个社会制度合作多于冲突，共同利益大于彼此分歧。美方代表表示，下阶段美中应相向而行，寻找双方合作的“最大公约数”，保证美中关系健康稳定发展。从上述文字看，有三点值得注意，1，中美关系退回到40年前，中共政权在杨洁篪、崔天凯隔空喊话石沉大海后呼唤土埋半截的基辛格出面解决中美这个死结。2，既然中共举国之力把拜登总统送进白宫，拿着作弊修改的满分考卷却为何得不到拜登政府橄榄枝？3，为何是美方表示下阶段应寻找中美合作“最大公约数”？而不是中美应继续保持合作最大公约数？不过这个要闻并没有外媒进行佐证和报道。看来，习王二人在互秀假新闻上要一比高低，仅凭这一点上，习总加速师更是技不如人。4.王岐山是不是在做一件大事……，以此回应郭先生曾经反复强调的话，就是王岐山此时此刻出来灭共都是我们的朋友？
+- 川普等政要…直译推twitter：[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
+- 川普等政要…直译推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
+- 川普等政要…直译推GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
 
-不过，习总加速师仍在加速，正如susan yuan战友的推文所说的那样，中共“以一国之力对付你这样一个弱女子，足见你的重要性，也足见邪共对你所揭示的真相的惧怕。…… 英雄之所以成为英雄，是因为选择了一条充满荆棘的道路！保重！”   想必习总加速师最害怕的人是闫博士，那为什尿袋子王不怕闫博士呢。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/2-128.jpg)
-你看他那副神气十足的样子，你习近平能出来晃脑袋吗？不过，抹黑闫博士无非是说中共有两怕，一怕自己真的死在闫博士手上，二怕“疫苗经济”无法继续下去。这不，北京时间1月30号，中新社连续两篇报道疫苗，分别以《接种中国疫苗！多国领导人“带头”做了同一个选择》、《全球首例！巴西发现两患者同时感染两种变异新冠病毒》报道了中共疫苗最新情况。前者认为（一带一路的）多国领导人购买并接种了中共疫苗，在列举了十三个亲共国家名单里并没有“中国人民的老朋友巴西”，于是，第二篇报道中提到了巴西出现了全球首例两种变异病毒，没有提出是什么病毒株。而在另一则报道以《科学家为何特别担心来自巴西的新冠病毒变异毒株？》的文章出现在新浪科技网页上。这篇报道提到了病毒株学名：P.1的变异毒株。科学家为什么特别担心呢？因为辉瑞疫苗显然是中共疫苗的主要竞争对手，于是乎，干脆投放新的毒株，你就没办法与我竞争了，该报道认为，“它迫使Moderna和辉瑞公司重新配制他们的COVID-19疫苗，并制造“加强版”疫苗”。文章奇葩的是援引哈佛大学的流行病学家Bill Hanage在Twitter上写道：“尽管我们不确切知道为什么这种变体在巴西如此成功，但没有一个很好的解释。”为何要用P.1病毒变体“在巴西如此成功”这个词呢？窃笑自己成功阻击了西方研发疫苗的努力吗？
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/software_update_by_gocmen_gettyimages-1146311500_2400x1600-100852481-large-1.jpg)
+## 简评：
 
-笔者觉得问题非常严重，一个制造生化武器的杀人凶手继续在逍遥法外之后仍然以毒疫苗的方式继续杀人，首先中共制造了生化武器却无法提供安全疫苗，而西方国家在无法获得原始毒株上研发的疫苗事实证明已经徒劳无益，而且也是在以“天使身份”的方式出现在疫苗市场拼杀却丝毫不顾及致命的副作用。除了血淋漓的事实外，我们还能说什么？不灭共，不对病毒进行病原体彻查，不可能有安全的疫苗，世界需要记住闫博士一再警告的声音！可喜的是，中共政权在无法连线美国的情况下习王的权力公开对决将会很快发生郭先生所说的脆断。我们继续拭目以待！
+1月29-30日，参议员玛莎•布莱克本和泰德•克鲁兹持续关注有关中共国的问题，从人权问题到和美国拜登政府的关系。新上任的美国国务卿部林肯也不得不承认美中关系可以说是今后世界上最重要的关系，也就是拜登政府无法回避的今后政治走向的问题。朱利安尼和参议员吉姆•班克斯仍是强调反对言论不自由。
 
-2021年1月30日14:28分写于 东亚
+## 参议员罗恩·约翰逊：
 
+看起来拜登公司仍在营业。据报道，尽管美国总统（拜登）承诺不会发生，但总统的儿子仍然拥有一家中国私募股权公司10％的股份。（附每日来电相关报道：[https://dailycaller.com/2021/01/27/hunter-biden-ownership-stake-bhr-partners/](https://dailycaller.com/2021/01/27/hunter-biden-ownership-stake-bhr-partners/)）
 
 
 
+> Looks like Biden Inc. is still in business.
+> 
+> The president’s son reportedly still has a 10% stake in a Chinese private equity firm despite [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) promising this wouldn't happen. [https://t.co/7oGw29Q5KE](https://t.co/7oGw29Q5KE)
+> — Senator Ron Johnson (@SenRonJohnson) [January 29, 2021](https://twitter.com/SenRonJohnson/status/1354996524380516354?ref_src=twsrc%5Etfw)
 
 
 
-[http://www.xinhuanet.com/politics/2021-01/29/c\_1127042968.htm](http://www.xinhuanet.com/politics/2021-01/29/c_1127042968.htm)
+## 美国国务院：
 
-[http://www.xinhuanet.com/politics/2021-01/29/c\_1127042968.htm](http://www.xinhuanet.com/politics/2021-01/29/c_1127042968.htm)
+国务卿布林肯：美中关系可以说是今后世界上最重要的关系。
 
+
+
+> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): The relationship between the United States and China is arguably the most important relationship that we have in the world going forward. [pic.twitter.com/j7u56AQpGJ](https://t.co/j7u56AQpGJ)
+> — Department of State (@StateDept) [January 29, 2021](https://twitter.com/StateDept/status/1355113459856199682?ref_src=twsrc%5Etfw)
+
+
+
+## 参议员瑞克·斯科特：
+
+联合国秘书长安东尼奥·古特雷斯@antonioguterres说，他想“重设”美中关系，并共同致力于气候行动。#中共国 是世界上污染最严重的国家之一，正在武力威胁对台湾并对维吾尔族犯下种族灭绝罪。 联合国@UN的人权进程就是个笑话。【附路透社推文：联合国秘书长希望重设美中关系：[https://twitter.com/Reuters/status/1354893307344793607?s=20](https://twitter.com/Reuters/status/1354893307344793607?s=20)】
+
+
+
+> .[@antonioguterres](https://twitter.com/antonioguterres?ref_src=twsrc%5Etfw) says he wants to “reset” U.S.-China relations & work together on climate action. Communist China is one the world's WORST polluters, is threatening war against Taiwan & committing a genocide against the Uyghurs. The [@UN](https://twitter.com/UN?ref_src=twsrc%5Etfw)'s approach to human rights is a joke. [https://t.co/5HyWzQ2Exf](https://t.co/5HyWzQ2Exf)
+> — Rick Scott (@SenRickScott) [January 29, 2021](https://twitter.com/SenRickScott/status/1355227787129462788?ref_src=twsrc%5Etfw)
+
+
+
+## 参议员吉姆·班克斯：
+
+想象一下刚逃离 #中国共产党 的宗教迫害和镇压，却发现大型科技已经将习近平的审查制度推向了世界……【附布赖特巴特新闻报道：油管剥夺了大纪元时报获利的权利，理由模糊不清：[https://www.breitbart.com/politics/2021/01/27/youtube-demonetizes-the-epoch-times/】](https://www.breitbart.com/politics/2021/01/27/youtube-demonetizes-the-epoch-times/】)
+
+
+
+> Imagine fleeing from the Chinese Communist Party religious persecution & suppression only to find out Big Tech has taken Xi Jinping’s censorship worldwide…
+>  [https://t.co/6OthbLUYz1](https://t.co/6OthbLUYz1)
+> — Jim Banks (@RepJimBanks) [January 28, 2021](https://twitter.com/RepJimBanks/status/1354881905620086789?ref_src=twsrc%5Etfw)
+
+
+
+## 朱利安尼（川普总统律师纽约前市长）：
+
+1. 中美否决言论自由有什么区别？在中国，由 #中共 领导。在美国，高科技寡头和主媒为民主党操刀。结果相同。
+
+
+
+
+> What’s the difference between the denial of free speech in China and the US? In China, it’s directed by the CCP. In the US, Big Tech and Big Media does it for the Democrat party. Same result.
+> — Rudy W. Giuliani (@RudyGiuliani) [January 29, 2021](https://twitter.com/RudyGiuliani/status/1355147288881065985?ref_src=twsrc%5Etfw)
+
+
+
+2．我们必须站在一起，否则我们的言论自由权将被民主党和高科技寡头新闻审查#BigTechCensorship消灭。与迈克·林德尔站在一起。实用建议：购买“我的枕头”@MyPillow物品并将其作为礼物分发出去，让新闻审查失败。
+
+
+
+> We must stand together or our right to free speech will be extinguished by Democrat and [#BigTechCensorship](https://twitter.com/hashtag/BigTechCensorship?src=hash&amp;ref_src=twsrc%5Etfw).
+> 
+> Stand with Mike Lindell. Practical Advice: Buy [#MyPillow](https://twitter.com/hashtag/MyPillow?src=hash&amp;ref_src=twsrc%5Etfw) items and give them out as gifts so the attempted censorship will fail.
+> — Rudy W. Giuliani (@RudyGiuliani) [January 28, 2021](https://twitter.com/RudyGiuliani/status/1354844823077986322?ref_src=twsrc%5Etfw)
+
+
+
+## 参议员泰德·克鲁兹：
+
+1．现在就调到Michael Berry的电台节目，与他一起谈谈关于拜登团队令人难以置信的与 #中共 的拥抱。【附该电台节目的介绍：[https://ktrh.iheart.com/featured/michael-berry/](https://ktrh.iheart.com/featured/michael-berry/)】
+
+
+
+> TUNE IN NOW 🎙️ Talking with [@MichaelBerrySho](https://twitter.com/MichaelBerrySho?ref_src=twsrc%5Etfw) about Team Biden’s troubling embrace of the Chinese Communist Party. [https://t.co/XuVHU5bEoS](https://t.co/XuVHU5bEoS)
+> — Senator Ted Cruz (@SenTedCruz) [January 29, 2021](https://twitter.com/SenTedCruz/status/1355185189425655808?ref_src=twsrc%5Etfw)
+
+
+
+2．没错，中国共产党正在新疆进行种族灭绝。否认其暴行的程度和性质是可耻的。（附视频：参议院质询拜登政府驻联合国大使提名人）
+
+
+
+> Make no mistake, the Chinese Communist Party is committing a genocide in Xinjiang. It is disgraceful to deny the extent and nature of their atrocities. [pic.twitter.com/7aSXskzKhK](https://t.co/7aSXskzKhK)
+> — Senator Ted Cruz (@SenTedCruz) [January 28, 2021](https://twitter.com/SenTedCruz/status/1354800385530208260?ref_src=twsrc%5Etfw)
+
+
+
+## 众议院共和党教育与劳工委员会：
+
+1．新闻：共和党委员会负责人Virginia Foxx，詹姆斯·科默和吉姆·乔丹发信，要求宾夕法尼亚大学@Penn和拜登中心@PennBiden披露与外国的财务往来。
+这项调查是在最近对正在进行的对亨特·拜登与 #中共国 的金钱交易进行刑事调查的消息发布之后进行的。（接下 1/2）
+
+
+
+> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s well known efforts to infiltrate American [#HigherEd](https://twitter.com/hashtag/HigherEd?src=hash&amp;ref_src=twsrc%5Etfw) by any means necessary is a national security threat.
+> 
+> To stop this threat we must hold 𝐀𝐋𝐋 parties accountable. 
+> 
+> More here 👇[https://t.co/Rwz01lZ2LN](https://t.co/Rwz01lZ2LN)
+> — House Ed & Labor Republicans (@EdLaborGOP) [January 28, 2021](https://twitter.com/EdLaborGOP/status/1354798407437570054?ref_src=twsrc%5Etfw)
+
+
+
+2．（接上）#CCP  中共采用各种必要手段渗透到美国高等教育，其众所周知的努力是对国家安全的威胁。 为了制止这种威胁，我们必须追究各方的责任。 这里更多（附共和党委员会相关报告：[https://republicans-edlabor.house.gov/news/documentsingle.aspx?DocumentID=407156](https://republicans-edlabor.house.gov/news/documentsingle.aspx?DocumentID=407156)） （2/2）
+
+
+
+> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s well known efforts to infiltrate American [#HigherEd](https://twitter.com/hashtag/HigherEd?src=hash&amp;ref_src=twsrc%5Etfw) by any means necessary is a national security threat.
+> 
+> To stop this threat we must hold 𝐀𝐋𝐋 parties accountable. 
+> 
+> More here 👇[https://t.co/Rwz01lZ2LN](https://t.co/Rwz01lZ2LN)
+> — House Ed & Labor Republicans (@EdLaborGOP) [January 28, 2021](https://twitter.com/EdLaborGOP/status/1354798407437570054?ref_src=twsrc%5Etfw)
+
+
+
+## 参议员但·沙利文：
+
+#中共国 对美国重返“战略耐心”的想法感到满意，这是奥巴马多年的失败政策，可以看到我们对手的影响力和恶性活动在增加。我今天警告拜登政府不要恢复对中共国的这种陈旧，消极的态度。
+
+
+
+> China relishes the idea of America returning to “strategic patience,” a failed policy of the Obama years that saw a rise in the influence and malign activities of our adversaries. I cautioned the Biden administration today against reviving this stale, passive approach to China. [pic.twitter.com/rSJ1YJdVDO](https://t.co/rSJ1YJdVDO)
+> — Sen. Dan Sullivan (@SenDanSullivan) [January 27, 2021](https://twitter.com/SenDanSullivan/status/1354513848485769224?ref_src=twsrc%5Etfw)
+
+
+
+## 参议员玛莎·布莱克本:
+
+1．#中国共产党 使用推特进行宣传时，中国的推特用户却因发表意见而被关起来。（附华盛顿邮报相关报道：[https://www.wsj.com/articles/china-is-now-sending-twitter-users-to-prison-for-posts-most-chinese-cant-see-11611932917](https://www.wsj.com/articles/china-is-now-sending-twitter-users-to-prison-for-posts-most-chinese-cant-see-11611932917)）
+
+
+
+> Twitter users in China get locked up for having an opinion while the Chinese Communist Party uses Twitter to spread propaganda. [https://t.co/eLZorKbnnn](https://t.co/eLZorKbnnn)
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [January 29, 2021](https://twitter.com/MarshaBlackburn/status/1355283275053465600?ref_src=twsrc%5Etfw)
+
+
+
+2．气候变化不是国家安全问题，但中共国是。
+
+
+
+> Climate change isn’t a national security issue, but China is.
+> — Sen. Marsha Blackburn (@MarshaBlackburn) [January 28, 2021](https://twitter.com/MarshaBlackburn/status/1354796700418899970?ref_src=twsrc%5Etfw)
+
+
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
