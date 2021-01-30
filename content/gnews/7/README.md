@@ -1,31 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本警告中共新海警法需遵守国际法则
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/846074/)
+## 美安全顾问称中共需要为其罪与恶付出代价
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/846140/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑    水星    上传   银河
-![]()![](https://cdn.discordapp.com/attachments/795746853945081947/804962113000177674/59022a8afc8af5af.jpg)[news.usni.org](https://news.usni.org/2012/10/16/senkaku-islands-dispute-risk-us-rebalancing-asia-pacific)
-中共十三届全国人大常委会1月22日通过了《海警法》草案，该法首次明确指出，中方在必要时可以向外国船只开火。日本外相茂木敏充1月29日警告中共需确保其允许海岸警卫队在其水域使用武器的新立法符合国际法。
+编辑   水星   上传   银河
+![]()![](https://cdn.discordapp.com/attachments/795746853945081947/804966645931966474/1.jpg)[cbsnews.com](https://www.cbsnews.com/news/biden-jake-sullivan-national-security-adviser/)
+路透华盛顿1月29日报道，美国拜登总统的国家安全顾问苏利文（Jake Sullivan）在美国和平研究所(United States Institute of Peace)的活动上呼吁，美国应“为中（共）国在新疆和香港的所作所为，以及对台湾的好战和威胁，做好行动准备，让其为此付出代价。”
 
-中共《海警法》将在2月1日开始正式实施。茂木敏充在该法正式实施前的新闻发布会上说，“我们将继续密切关注中（共）国海警的行动，包括立法的实施将如何影响现场的人员。”这项立法不应该以违反国际法的方式实施。
+华盛顿需要在这些问题上表达出一致的清晰立场。
 
-中共新的《海警法》允许海警在外国船只在中共国声称拥有主权的水域从事非法活动时使用武器。而中共声称，位于东中国海(East China Sea，中共国称东海)、由日本政府管辖的尖阁诸岛(Senkaku Islands，中共国称钓鱼岛及其附属岛屿)是中共国领土的一部分，这项立法可能针对在这些无人居住的岛屿周围航行的日本船只。
+苏利文认为中共问题是美国和欧洲盟友之间要解决的首要问题，美国需对中共滥用贸易和技术的问题与欧洲达成一致，共同应对。“在这些问题上，我们并没有完全一致的观点……我认为，中（共）国是我们需要共同努力的首要问题。”
 
-中共国外交部发言人华春莹表示，这部法律有助于中共国海警维护海上的良好秩序。她强调钓鱼岛及其附属岛屿是中共国固有领土，中方会维护其领土主权和海洋权益。此举引发了东京方面的抗议。
+越来越多的美国官员站出来呼吁拜登政府要重视中共威胁，对中共恶行追责。新任国务卿安东尼·布林肯(Antony Blinken)支持其前任迈克·蓬佩奥(Mike Pompeo)认定的中共在新疆犯下了种族灭绝罪行。拜登政府发表了支持台湾的强硬声明，强调美国对台北的承诺“坚如磐石”。
 
-日本政府近期多次抗议中共国海警进入尖阁诸岛附近海域并驱赶日本渔船。日方担心，日本渔民和日本海上保安厅的巡视船可能都会成为中共国《海警法》的袭击对象。茂木敏充称日本将“冷静和坚决地”回应任何可能的中（共）国海岸警卫队保护其领土的行动。
+中共用战狼外交对新任拜登政府进行威胁恐吓的做法将加速它的灭亡。中共暴力镇压香港，武力威胁台湾，伙同中共小弟“伊朗”对美国进行军事威胁，这些只会激怒美国，让试图与中共勾兑的势力必须在美国国家安全和与中共利益间作出取舍。
 
-路透社1月24日报道，美国新任国防部长劳埃德·奥斯汀在与日本国防部长的首次通话中，重申了美国对东京的承诺，称美国会保卫东海日本与中共国有争议岛屿主权。《美日安保条约》(U.S.-Japan security treaty)第5条规定了美国对日本的防御义务，涵盖了在日本被称为尖阁列岛，中共称之为钓鱼岛的无人居住的岛屿。
-
-中共继暴力镇压香港，武力威胁台湾，种族灭绝残害新疆维吾尔族，南中国海军事扩张及与美国航母战斗群模拟攻击对峙后，再度激化中日钓鱼岛争端。美国政府已经明确表示会信守承诺守护台湾及维护日本钓鱼岛防御。
-
-中共霸权施压、挑战自由民主世界的底线，将让国际社会同仇敌忾，认清中共极权专治对国际社会的危害，群起攻之，最终祛除邪恶的中共毒瘤。
+追溯中共病毒真相的呼声愈来愈高，国际社会有良知的科学家已经勇敢地站出来指认中共病毒源于实验室，各个国家把揭露病毒真相放在了首位，等待对中共追责。中共在末路狂奔，必将为它的邪恶狂妄付出代价。
 
 参考链接：
 
-[https://news.abs-cbn.com/overseas/01/29/21/japan-to-china-new-coast-guard-law-must-follow-international-law](https://news.abs-cbn.com/overseas/01/29/21/japan-to-china-new-coast-guard-law-must-follow-international-law)
+[https://www.reuters.com/article/us-usa-china-sullivan/u-s-must-be-prepared-to-impose-costs-on-china-biden-security-adviser-idUSKBN29Y2FC](https://www.reuters.com/article/us-usa-china-sullivan/u-s-must-be-prepared-to-impose-costs-on-china-biden-security-adviser-idUSKBN29Y2FC)
 
 0

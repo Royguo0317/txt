@@ -1,26 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 接种了疫苗的美众议员病毒检测呈阳性
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/845134/)
+## 《爆料革命发起人-郭文贵视频精品荟萃》第十集
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/843661/)
 
-- 编辑：Victor Torres
+撰稿人：澳喜cindy
+
+审稿：Jenny
+
+编辑：MG3
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2021年1月30日电/西喜社——**一名接受了两剂辉瑞公司中共病毒疫苗的马萨诸塞州的国会议员，其病毒检测结果呈阳性。
-
-美国众议员斯蒂芬·林奇的办公室周五表示，该议员在参加乔·拜登总统的就职典礼前曾有过阴性的测试结果。该办公室表示，在他波士顿办公室的一名工作人员本周早些时候检测呈阳性之后，林奇的检测结果呈阳性。
-
-一份声明说，林奇没有表现出任何中共病毒的症状。他将在未来一周内自我隔离并在国会进行代理投票。
-
-林奇是该州国会代表团中第二位在几天内检测呈阳性的成员。周四，美国众议员洛里·特拉汉宣布，她在多次测试后呈阳性。
-
-**信息来源：**[https://apnews.com/article/europe-united-nations-health-coronavirus-pandemic-coronavirus-vaccine-50c1f79fca97a6c2e46f7eaf8fd7afc0](https://apnews.com/article/europe-united-nations-health-coronavirus-pandemic-coronavirus-vaccine-50c1f79fca97a6c2e46f7eaf8fd7afc0)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
+18:00-20:00 郭文贵谈及新疆
+新疆人民遭受的苦难无法形容.被CCP杀死的人太多了！24小时/365天处在地狱般的世界里！
 
 
 
+32:00-33:15郭文贵谈及新疆
+
+CCP杀死了500多新疆人，新疆人就如同小白鼠，想杀就杀。一个小伙子被摘器官。很多人被摘肝摘肾，以满足CCP的高官及其家人的换器官的需要。
+
+
+
+39:20-46:35 郭文贵谈及新疆
+
+CCP为了霸占新疆的优质水资源为己用，派大量武警把守水企，其产品只供给中央高官及其家属享用.随意给新疆人带电子工具、限制人身自由，限制旅行，阉割人才。
+
+- 几年来郭文贵先生在3000多次的视频节目中就有近300次的提及新疆同胞所遭受的苦难，并且每次视频结束都在为新疆人而祈祷祝他们早日脱离苦难。正是他的不遗余力的传播CCP对新疆人的惨无人道的迫害的真相。才使得美国川普政府及全世界人民知道了CCP就是一个没有人性，惨绝人寰罪大恶极的犯罪组织。如今蓬佩奥国务卿在他的任期的最后一天宣告了：以习近平为首的中国共产党对新疆人民犯下了种族灭绝和反人类罪。
+
+
+国务卿蓬佩奥指出：中共在2017年以来关押了100多万维吾尔族穆斯林，并对他们实行酷刑和强迫劳动，严厉限制其宗教自由，信仰自由，言论自由和行动自由。对妇女采取强迫她们绝育、堕胎。这些行为是对中国人民和世界文明国家的侮辱。必须追究中共的责任！
+
+这个定性堪比二战期间希特勒对犹太人的大屠杀。这个定性必将把中国共产党送进地狱！
+
+（本文纯属个人观点）
+
+参考链接：
+
+[https://china.usembassy-china.org.cn/zh/determination-of-the-secretary-of-state-on-atrocities-in-xinjiang-cn/](https://china.usembassy-china.org.cn/zh/determination-of-the-secretary-of-state-on-atrocities-in-xinjiang-cn/)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-澳喜Logo-10.jpeg)
 0
