@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美安全顾问称中共需要为其罪与恶付出代价
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/846140/)
+## 美国佛奇在达沃斯会议 验证病毒学博士闫丽梦!? 若中共不公布改造病毒过程 疫苗不会有效
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/846205/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+台湾农场  一叶一菩提
 
-编辑   水星   上传   银河
-![]()![](https://cdn.discordapp.com/attachments/795746853945081947/804966645931966474/1.jpg)[cbsnews.com](https://www.cbsnews.com/news/biden-jake-sullivan-national-security-adviser/)
-路透华盛顿1月29日报道，美国拜登总统的国家安全顾问苏利文（Jake Sullivan）在美国和平研究所(United States Institute of Peace)的活动上呼吁，美国应“为中（共）国在新疆和香港的所作所为，以及对台湾的好战和威胁，做好行动准备，让其为此付出代价。”
+1月25日在网络上召开世界经济论坛达沃斯对话会议。在本次会议的核心议题——抗击疫情方面，德国总理梅克尔批评中共与世界卫生组织在爆发初期隐匿疫情，呼吁应记取教训。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1l11.jpg)
+美国总统拜登的首席医疗卫生顾问、美国国家过敏与传染病研究院（NIAID）院长佛奇(Anthony Fauci)说：「现有的中共病毒疫苗无法应对英国变种和南非变种，需要升级。」还说：「了解（中共病毒）起源确实很重要，我们现在还不知道。 这是一个大黑匣子，简直糟透了。 」
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1l12-1.jpg)
+验证了2020年8月逃亡美国的中国病毒学家闫丽梦博士在《班农战斗室》（War Room）网络节目受访时强调，我有很多一手的临床数据讯息来自中国医院与政府，病毒确实是来自解放军实验室。
 
-华盛顿需要在这些问题上表达出一致的清晰立场。
+若人们期望透过时间等待病毒变弱，恐怕全球都将受到严重伤害，所以必须查明中共如何改造病毒？以及这种病毒在改造后获得何种特性？但若中共不交代他们如何改造病毒，研发出来的疫苗不会真正有效。
 
-苏利文认为中共问题是美国和欧洲盟友之间要解决的首要问题，美国需对中共滥用贸易和技术的问题与欧洲达成一致，共同应对。“在这些问题上，我们并没有完全一致的观点……我认为，中（共）国是我们需要共同努力的首要问题。”
+闫丽梦博士还提到，中共政府知道很多事，但却动用举国之力影响全球，影响例如世卫组织（WHO）等各种国际组织、专业人士，还影响别国政策，中共政府就是不想让人们知道病毒的真正起源，也不想让人们了解为何这个病毒被如此强化来攻击人类，他们只想让人误以为这病毒是来自自然演化，这样人们就不知如何停止病毒传播。本文仅代表个人立场。
 
-越来越多的美国官员站出来呼吁拜登政府要重视中共威胁，对中共恶行追责。新任国务卿安东尼·布林肯(Antony Blinken)支持其前任迈克·蓬佩奥(Mike Pompeo)认定的中共在新疆犯下了种族灭绝罪行。拜登政府发表了支持台湾的强硬声明，强调美国对台北的承诺“坚如磐石”。
+参考数据:
 
-中共用战狼外交对新任拜登政府进行威胁恐吓的做法将加速它的灭亡。中共暴力镇压香港，武力威胁台湾，伙同中共小弟“伊朗”对美国进行军事威胁，这些只会激怒美国，让试图与中共勾兑的势力必须在美国国家安全和与中共利益间作出取舍。
+- [https://www.google.com.ar/amp/s/news.ltn.com.tw/amp/news/world/breakingnews/3256186](https://www.google.com.ar/amp/s/news.ltn.com.tw/amp/news/world/breakingnews/3256186)
+- https://www.ntdtv.com.tw/b5/20210127/video/288101.html?佛奇在达沃斯论坛称：病毒起源是大黑箱%20糟透了
 
-追溯中共病毒真相的呼声愈来愈高，国际社会有良知的科学家已经勇敢地站出来指认中共病毒源于实验室，各个国家把揭露病毒真相放在了首位，等待对中共追责。中共在末路狂奔，必将为它的邪恶狂妄付出代价。
-
-参考链接：
-
-[https://www.reuters.com/article/us-usa-china-sullivan/u-s-must-be-prepared-to-impose-costs-on-china-biden-security-adviser-idUSKBN29Y2FC](https://www.reuters.com/article/us-usa-china-sullivan/u-s-must-be-prepared-to-impose-costs-on-china-biden-security-adviser-idUSKBN29Y2FC)
 
 0

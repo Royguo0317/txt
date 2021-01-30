@@ -1,21 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国三任政府国安顾问同台发声 要让中共付出代价
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/846626/)
+## 更多的科学家认同新冠病毒来自实验室
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/846751/)
 
-台湾农场(筹备) Amitofu
+![]()![](https://gnews.org/wp-content/uploads/2021/01/7d8b209a_o.jpeg)
+新冠病毒在全球肆虐超过一年，目前已有210多万人死亡，超过1亿个确诊病例并造成数万亿美元的经济损失。闫丽梦博士在2020年1月19日就曾透过路德社向全世界预警，这是一种武汉P4实验室制造的生化武器，具有非常强的传染性且能致死，如果不果断采取措施将引发全球大流行。而中国政府、WHO、媒体都表示冠状病毒来自自然界，有的是直接从蝙蝠身上感染，有的是通过其他物种间接从蝙蝠身上感染。但随着时间的推移越来越多的机构和正义的，有良知的科学家通过实验和研究证明新冠病毒是在武汉实验室进行基因操作，使其更具传染性，训练它感染人体细胞。
 
-1月29日美国和平研究所（USIP）以『接棒2021共同确保美国未来』为主题，由前总统欧巴马的国务卿莱斯主持在线视讯研讨会，与现任拜登总统的国安顾问苏利文和上一任的川普总统国安顾问欧布莱恩共同讨论，通过其指标性的接棒事件来确认美国政权和平过渡和外交政策上的两党活动对话。USIP与美国企业研究所、大西洋理事会、卡内基国际和平基金会、美国进步中心、遗产基金会和哈德森研究所共同主办这次的两党活动。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/USIP-5-400x223.jpg)
-会谈中表示2021年比以往任何时候都更加重要，为确保美国的未来，需要共同团结一致对抗全球和平与安全威胁的重要性，欧布莱恩表示指川普政和拜登政府过渡时期，最重要的问题就是对中共的挑战，相信共和党与民主党在对中共的议题上已经有了共识，美国的外交政策会有很多延续性与一致性。现任国安顾问苏利文指出，中共对新疆维吾尔族和穆斯林的种族灭绝、对香港民主运动的暴力镇压、北京破坏一国两制的行为，以及对台湾不断侵略的威胁等，美国将准备好采取行动，要让中共付出代价。
 
-苏利文也指出，在美国与欧洲盟友之间最重要的问题就是中国，认为美国应与欧盟就中国贸易和技术问题达成联合应对措施。笔者认为刚就职的拜登政府国务卿布林肯，对于前任国务卿蓬佩奥在新疆种族灭绝、中共破坏香港民主、对台湾侵略、和中共对美国的威胁有了一致性的政策，再加上国务卿蓬佩奥卸任前发布的中共病毒起源于武汉实验室，造成美国至今2600万人感染、44万人死亡，为确保美国的最大利益，藉由公开讨论说明确保美国的未来，中共政权将是最大问题，我们已经准备好了。共产党你完了!X3 本文仅代表个人立场。
 
-資料圖片來源: 美國和平研究所（USIP）
+- **2021年1月14日**，
+**奥地利著名微生物学家Rossana Segreto称：病毒可能的确来自实验室。
+**🔵采访：[https://cutt.ly/xkewQBC](https://cutt.ly/xkewQBC)
+🔵论文：[https://cutt.ly/skewTtU](https://t.co/15Gmc4rxOF)
+- **2021年1月15日**，
+**美国国务院发表声明，确定武汉病毒研究所秘密项目上与军方的合作并要求必须彻查中共病毒来源。**
+🔵中文翻译：[https://gnews.org/zh-hans/761696/](https://gnews.org/zh-hans/761696/)
+🔵英文原文：[https://cutt.ly/QkrZEsW](https://cutt.ly/QkrZEsW)
+- **2021年1月24日**，
+**拜登有关联的前顾问称CCP病毒”很可能”来自武汉实验室**。
+🔵中文翻译：[https://gnews.org/zh-hans/809578/](https://gnews.org/zh-hans/809578/)
+🔵英文原文：[https://cutt.ly/ckeeEC3](https://cutt.ly/ckeeEC3)
+- **2021年1月26日**，
+**《华盛顿时报》报道，美国国务院最近解密的情报显示，有新的证据支持病毒源于与中共军方有关联的武汉病毒实验室的说法。**
+🔵中文翻译：[https://gnews.org/zh-hans/834146/](https://gnews.org/zh-hans/834146/)
+🔵英文原文：[https://cutt.ly/kkeey13](https://cutt.ly/kkeey13)
+- **2021年1月29日**，
+**史蒂文·奎伊博士研究认为CCP病毒来自实验室的概率是99.8%并发表了论文 “贝叶斯分析得出的结论是，SARS-CoV-2不是天然的人畜共患病，而是实验室衍生的。” 他向全球26位科学家发送了的副本，其中包括目前在武汉的WHO调查员和研究所的武汉病毒学科学家。**
+🔵论文：[https://cutt.ly/DkewFWz](https://cutt.ly/DkewFWz)
 
-[https://www.usip.org/events/passing-baton-2021-securing-americas-future-together](https://www.usip.org/events/passing-baton-2021-securing-americas-future-together)
 
-[更多台灣農場文章](https://www.gnews.org/zh-hant/author/taiwangnews/)
+**点击阅读闫丽梦博士论文：**
 
-+1
+
+
+
+
+[闫博士
+第一篇论文](https://zenodo.org/record/4028830#.YBRMk-nPxPY)
+
+
+
+
+
+[闫博士
+第二篇论文](https://zenodo.org/record/4073131#.YBRNXOnPxPZ)
+
+
+
+
+
+[闫博士对CNN不实报道的回击](https://zenodo.org/record/4283480#.YBRPRenPxPZ)
+
+
+
+
+
+
+[点击加入喜马拉雅德国慕尼黑!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/01/flag-germany_1f1e9-1f1ea.png)感恩农场（Discord）](https://discord.gg/kcKcTZuXqB)
+
+
+
+[点击关注喜马拉雅德国慕尼黑感恩农场 (Twitter)](https://twitter.com/himalayagermany)
+
+
+
+[点击关注喜马拉雅德国慕尼黑农场GTV平台官方账号](https://gtv.org/user/5fd28ac309267020eb49eaf0)
+
+
+
+[点击关注喜马拉雅德国慕尼黑感恩农场Youtube平台官方账号](https://www.youtube.com/channel/UCKj8Sz8LcWxfOjICrT8pddA)
+
+
+
+
++2
