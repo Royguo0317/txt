@@ -1,41 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 敦煌万亩防沙林场被毁，抵御库木塔格沙漠的最后绿色屏障恐将失守
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/840974/)
+## 美国参议院高票通过布林肯出任国务卿（玫瑰看新闻一月二十七日）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/843059/)
 
-撰稿：Gradient Boost
-
-审稿：Jenny
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Article-22.jpg)图片来源：Pexels免费照片素材库；作者：Gabriel Garcia
-自上周以来，中共国墙内的多家媒体及自媒体便开始关注敦煌阳关林场遭砍伐的消息。该林场之所以十分重要，在于它所面对的是全国沙漠中流动性排名第一位的库木塔格沙漠——该沙漠目前正以每年4米的速度整体向东南扩展，其东缘沙丘的推进目标正是敦煌阳关。如果阳关防护林失去阻挡效力，那么风沙必将长驱直入，最终敦煌恐怕完全变为沙漠！
-
-正是如此重要的防护林场，现在却被曝出遭到破坏，其原因则是为了发展林场的葡萄种植行业。问题在于葡萄在阻挡沙漠推进这件事情上毫无作用，而且其本身还是一种耗水量极大的作物，反而有可能进一步加速沙漠化进程。公益林场为何能够引进经济作物甚至还成为该林场的支柱产业？要知道现在阳关林场的葡萄种植面积已经达到了1.3万亩，而防护林面积还不到葡萄园面积的一半。这些葡萄售卖后的收益究竟去了哪里？或许林场和地方政府都有从中分得一杯羹？这些都是值得深入追究的问题。
-
-由于事态发酵引起了互联网上民众的愤慨，甘肃中共国政府立马表示“高度重视”，派出调查组奔赴该林场。说实话数天前看到这条消息时，笔者就有一种不好的预感：怕不是又要演一出双簧了吧？毕竟犯事的机构属于地方政府，前往调查的也是地方政府，虽然存在上下关系，可是中间难说没有勾兑和利益往来，这在中共国早已成为特色。
-
-果然，就在前两天，调查组的探查结果出炉：未发现大量林地大面积减少的情况，林场长期以来的防护林面积就是在6000亩左右。而一些所谓专家也出来发言，表示一般群众和记者对于采伐树木和森林经营缺乏了解。这类说辞的运用和专家的配合在中共政府面对诸如病毒疫情、猪肉价格、粮食问题以及金融风险等质疑都有纯熟的运用，只可惜每一次终究还是露出马脚，这一回也毫不例外。
-
-根据2016年酒泉市政府的一份文件显示：阳关林场的经营灌溉总面积1.7983万亩，其中林地面积1.47万亩，经济林面积3283亩。这与调查组所谓的防护林面积长期维持在6000亩左右相互矛盾。如果说酒泉市官方文件为真而调查组说明为假，那么大面积毁林事件确有发生，导致过去1.47万亩的林地减少到了如今的6000亩左右（部分报道甚至称不到5000亩）。如果酒泉市官方文件是假的，那么这里有存在着欺瞒上级，谎报实际林区面积的问题。不论是哪一种情况，对于敦煌防沙工程造成的负面影响都是极大的。
-
-中共国的官员大多只在乎个人的利益与得失，而对于华夏土地及其住民的未来，他们并没有太多关心和顾虑。他们早就把自己和华夏分割开来，加入了红色魔鬼的阵营，他们在破坏这片土地上的河流草木以及山川时从不手软，只为有利可图。为了保护属于我们的家园，为了让那些迷失在权利和金钱中的羔羊重新意识到自己真正的归属，中共必须被消灭。
-
-（本文纯属个人观点）
-
-新闻参考链接：
-
-[澎湃新闻](https://www.sohu.com/a/445588964_260616)（中共国墙内媒体）
-
-[新浪财经](https://finance.sina.com.cn/chanjing/gsnews/2021-01-28/doc-ikftssap1439362.shtml)（中共国墙内媒体）
-
-[新华网](http://www.xinhuanet.com/comments/2021-01/22/c_1127010979.htm)（中共党媒网站）
-
-[第一财经](https://www.sohu.com/a/447000318_114986)（中共国墙内媒体）
-
-[中国经济网](http://views.ce.cn/view/ent/202101/29/t20210129_36270889.shtml)（中共国墙内媒体）
-
-[澳喜文章](https://gnews.org/zh-hans/author/aujenny/)
-
-[欢迎加入澳喜农场](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2020/12/IMG_1836-1-1.jpg)
-+4
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00001-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00002-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00003-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00004-10-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00005-10-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00006-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00007-10-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00008-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00009-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00010-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00011-10-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00012-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00013-10-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00014-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00015-6-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/Page_00016-6.jpg)
+0

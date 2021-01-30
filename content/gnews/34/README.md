@@ -1,55 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 1/29/2021 财经快讯：手指头金融走向世界；中共财政赤字不断扩大
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/841344/)
+## 香草解评：【世事解评】川普政府的牌局
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/843362/)
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/Picture1-67.jpg)
-图片来源：[https://www.cybertalk.org/2020/06/11/fake-economic-impact-payments-the-real-money-that-appears-fake/](https://www.cybertalk.org/2020/06/11/fake-economic-impact-payments-the-real-money-that-appears-fake/)
-
-1. **美政界人士与散户投资者共同抨击华尔街虚假金融**
+作者：纽约香草山香港组   羟氯喹
 
 
-周四，由于罗宾汉公司（Robinhood）和华尔街其他承销商暂停对Gamestop（GME），AMC和其他做空类股票进行散客购买，近允许用户卖出股票，引发众怒。纽约众议院议员亚历山大·奥卡西奥·科尔特斯（AOC），德州参议院议员泰得·克鲁兹和小川普纷纷表示此种情况不可被接受且不公平
-[https://finance.yahoo.com/news/this-is-unacceptable-aoc-and-others-side-with-retail-investors-slam-robinhood-and-wall-street-amid-game-stop-mania-171906758.html](https://finance.yahoo.com/news/this-is-unacceptable-aoc-and-others-side-with-retail-investors-slam-robinhood-and-wall-street-amid-game-stop-mania-171906758.html)
 
-1. **苹果CEO批评社交媒体，或加剧与脸书的冲突**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
-周四苹果公司首席执行官蒂姆·库克（Tim Cook）批评社交媒体上的分化信息和错误信息，加剧了其与脸书之间的冲突。在计算机，隐私和数据保护会议上的讲话中，库克批评了一些应用程序，他认为这些应用程序收集了太多的个人信息，并把“阴谋论和暴力煽动归因于其过高的参与率”。
-[https://mobile.reuters.com/article/amp/idUSKBN29X2NB?\_\_twitter\_impression=true](https://mobile.reuters.com/article/amp/idUSKBN29X2NB?__twitter_impression=true)
 
-1. **美司法部展开对SpaceX的雇佣歧视调查**
+美国总统大选已完成新任总统就职仪式，拜登正式成为第46任总统。但这里要注意的是，这只是新任总统就职，尚未完成同样重要的新旧总统交接仪式。据悉，新旧总统交接中，有非常重要的核按钮交接程序。这次是否完成交接还待日后考证。
+
+我们先重点讨论一下，拜登总统上台对灭共进程的影响。令几乎所有川普支持者(尤其是绝大多数的华人)都非常诧异的是，在经历过这次历史性的选举风波之后，拜登依然可以完成总统就任仪式。其顺利入主白宫，是否代表着美国自由的灯塔彻底崩坏，人类从此将陷入万劫不复？其实目前下此定义还为时过早。这里先说下美国的政治体制价值观。美国之所以伟大，是因为美国的政治体制一直处在自我修复、完善和不断进化的历史进程中。这点比中共国的固步自封，甚至是开历史倒车不知道强了多少倍！再说回这次总统选举，双方犹如参与了一场世纪大赌局，压上了多少人、多少利益集团的毕生财富和心血。当川普最后转身离开牌桌时，桌子上还盖着一手必胜的皇家同花顺（ROYAL FLUSH），但川普并没有选择将它打开！这或许是川普做出的一次历史性选择。
+
+虽然，这让很多正义人士和灭共力量感到扼腕惋惜，但川普的确给全人类留下了最后一次难得的重生机会。如果川普选择摊牌，无疑会让所有参与了和魔鬼做交易的势力灰飞烟灭，但同样，会因为他们的垂死挣扎而导致世界崩塌，甚至可能给中共恶魔留下可乘之机。毕竟，川普在发生舞弊后，曾经希望通过正常司法途径来解决问题，却在几乎所有的环节(法院、最高法、国会、參院甚至副总统)都遭到了不同程度的背叛。试想，如果决然发起最后清算，万一中间有任何闪失，连个可靠的预备方案都没有。绝大多数政治势力和利益团体都会出于自保而选择挖坑甚至对抗，很大几率会导致美国分崩离析，元气大伤。
+
+相反，川普这次选择了退让，实际上是给所有曾经和中共做勾兑的各类人士一个改过自新，选择重生的机会。美国历史上不乏这种归化高智能罪犯的例子。大家可以看《猫鼠游戏》里的弗兰克·阿巴内尔，一个从诈骗高手蜕变成联邦调查员的故事。相信川普此举，无疑是给那些曾经一时糊涂或者大意却仍心存善念的政客们一次难得洗白的机会。因此，也就不难理解，为何投票系统遭到黑客篡改数据，却没被川普政府阻止，反而任由其发生。以美国的技术手段，如果连几个黑客都解决不了，其金融系统早就千疮百孔，灰飞烟灭了。当然，不排除川普的这个做法属于一相情愿——肯定仍有顽固不化的极端分子。但整体看来，阻力必然会降低。川普代表的保守势力也正密罗紧鼓筹备新的政治势力，整合、积聚更大的政治能量，防止顽固分子的冥顽不灵。一旦出现这种情况，再实行万不得已的大变革！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/38.png)
+
+个人看来，未来需要防止和加强的建议如下：
+
+1、防止中共利用时间差来引导舆论。中共现在最擅长利用时间差来消化各种对自己不利的负面信息和危机。我们要避免过高和急切的预期，要踏踏实实不断地传播真相信息，让越来越多的人了解。
+
+2、防止中共最终可能会找一个责任人出来承担所有的罪恶，并想方设法使得整个体制基本得以保存。
+
+3、防止拜登政府在追责中共现政府之后，在中国扶植另一个新的共产形式政权为己所用。
+
+4、加强G系列中GTV和GNEWS的社交媒体和新闻报道功能，抵消左派主流媒体的消极作用。
+
+5、加强喜马拉雅农场的建设，争取尽快实现一个成功的实体(无论是农场或者机构)，以锻炼产生成功的管理模式和更多优秀管理人才，并且吸引更多优秀的人才加入。只有充足的人才储备，才能将各项事业更好地发展起来。
+
+另外，中共虽然口口声声说，可以让百姓吃草三年。但我觉得恰恰相反。中共如果真敢让百姓吃草，反而会有助于以共灭共的进程。因为水能载舟，亦能覆舟。中共之所以敢全世界推销自己的体制优势，也是因为其邪恶体制下的泡沫经济。如果该泡沫被刺破，也能让更多的中国百姓看清中共的本质！中共现在已经陷入川普政府之前设定好的牌局之中，我们需要的只是坚定的信念和持久的执行力。一切都已经开始！
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
-据CNBC报道，美司法部周四提交的法庭文件显示，司法部正在调查马斯克的SpaceX公司是否在招聘时歧视非美国雇员。司法部移民和雇员权力科承认，其在去年5月收到来自非美国公民的投诉，称SpaceX没有遵守相关规定。司法部下令SpaceX须在2周内回复。
-[https://www.cnbc.com/amp/2021/01/28/doj-investigating-spacex-after-hiring-discrimination-complaint-.html?\_\_twitter\_impression=true](https://www.cnbc.com/amp/2021/01/28/doj-investigating-spacex-after-hiring-discrimination-complaint-.html?__twitter_impression=true)
-
-1. **提高最低薪资或损害服务员的权利**
 
 
-拜登政府近日提出将联邦最低工资提高至每小时15美元。华盛顿检查报发文称，此政策之前已在美7个州实施，可效果却差强人意。例如许多华盛顿州餐厅老板，为了规避高昂的工资成本，采用了服务收费模式。在这种新的付款系统下，所有客户都将被收取其账单的20％，不是作为服务生的小费，而是强制性费用。这笔钱的一部分退还给了小费工人，其余的则用于支付最低工资的增加和其他费用。即使如此，许多餐厅仍因负担不起高昂的薪资而关门大吉。
-[https://www.washingtonexaminer.com/opinion/op-eds/bidens-plan-for-minimum-wage-and-tips-would-harm-waiters-and-kill-off-restaurant-jobs](https://www.washingtonexaminer.com/opinion/op-eds/bidens-plan-for-minimum-wage-and-tips-would-harm-waiters-and-kill-off-restaurant-jobs)
 
-1. **脸书恢复该网站已删除的4条帖子**
-
-
-脸书监督委员会本周做出第一项裁定，撤销了之前5个已审案列中的四个。该公司的“纪检委”与去年10月首次成立，以审查脸书执行的内容审核决定。脸书董事会成员表示这些最终裁决与翻译的不准确性有关。
-[https://www.businessinsider.com/facebook-supreme-court-oversight-board-overturns-4-of-5-cases-2021-1](https://www.businessinsider.com/facebook-supreme-court-oversight-board-overturns-4-of-5-cases-2021-1)
-
-1. **中国地方财政2020年赤字扩大至13.44万亿人名币**
-
-
-昨天中共财政部公布2020年财政收支情况，2020年中共中央层面财政依旧处于盈余状态，但是地方财政赤字进一步扩大到13.44万亿，两者合并全口径赤字高达84969亿，同比2019年增加58.32%
-[https://twitter.com/caijingxiang/status/1354975933879341056](https://twitter.com/caijingxiang/status/1354975933879341056)
-
-1. **建行被罚270万**
-
-
-近日，建行重庆市分行再领270万大额罚单，其中涉及“五宗罪”。1月27日，银保监会网站公布，中国建设银行重庆市分行因贷款审查不尽职、小微快贷产品资金用途无法有效管控等原因，被重庆银保监局处以人民币270万元的罚单。
-[https://news.stcn.com/sd/202101/t20210128\_2783554.html](https://news.stcn.com/sd/202101/t20210128_2783554.html)
-
-密翻组·金融团队
-资料提供：文罡，Wendy, Totoro, Sharon G
-
-+2
+0

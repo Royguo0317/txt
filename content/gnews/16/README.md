@@ -1,37 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】王歧山露面称中美应聚焦合作管控分歧
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/841961/)
+## 接种了疫苗的美众议员病毒检测呈阳性
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/845134/)
 
-作者：Wilson
+- 编辑：Victor Torres
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/MOS1090-【热点播报】王歧山露面称中美应聚焦合作管控分歧.-1-1.jpg)
 
-[路透社](https://cn.reuters.com/article/china-wangqishan-us-relations-0129-idCNKBS29Y0VW)1月29日电，中国国家副主席王岐山周五表示，秉持不冲突不对抗、相互尊重、合作共赢的精神，聚焦合作，管控分歧，是推动中美关系健康稳定发展的关键。这是王岐山在北京以视频方式，会见出席第十二轮40年中美工商领袖和前高官对话时的说话。参会的美方代表也表示，下阶段美中应相向而行。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-美国国务卿布林肯周三表示，在气候变化等问题上与中国合作符合美国的利益，尽管这是在华盛顿对中国在很多领域存在关切的背景下。
+**西班牙2021年1月30日电/西喜社——**一名接受了两剂辉瑞公司中共病毒疫苗的马萨诸塞州的国会议员，其病毒检测结果呈阳性。
 
-该新闻有两个看点：
+美国众议员斯蒂芬·林奇的办公室周五表示，该议员在参加乔·拜登总统的就职典礼前曾有过阴性的测试结果。该办公室表示，在他波士顿办公室的一名工作人员本周早些时候检测呈阳性之后，林奇的检测结果呈阳性。
 
-一是在天线宝宝习近平本尊已有一个月不露面的情况下，王歧山反而公开露面，是否预示中共内斗已经导致权力结构发生了变化？
+一份声明说，林奇没有表现出任何中共病毒的症状。他将在未来一周内自我隔离并在国会进行代理投票。
 
-二是中共迫切希望和美国修复关系，这和联合国秘书长昨天公开表示希望中美“重置关系”异曲同工。这应是中共当前的核心诉求。中共在台海、南海、钓鱼岛上频繁制造事端，其真正用意可能并不是马上拿下台湾、急于在南海和钓鱼岛宣示主权，而是通过战争威胁，逼迫拜登政府回到中共的谈判桌。
+林奇是该州国会代表团中第二位在几天内检测呈阳性的成员。周四，美国众议员洛里·特拉汉宣布，她在多次测试后呈阳性。
 
-还是老话，外交是内政的延续，美国因内部分裂及经济受中共病毒重创在内政上自顾不暇，在国际事务中力不从心。在这样的情况下，选择和中共勾兑或绥靖是有可能的。
+**信息来源：**[https://apnews.com/article/europe-united-nations-health-coronavirus-pandemic-coronavirus-vaccine-50c1f79fca97a6c2e46f7eaf8fd7afc0](https://apnews.com/article/europe-united-nations-health-coronavirus-pandemic-coronavirus-vaccine-50c1f79fca97a6c2e46f7eaf8fd7afc0)
 
-近日美国国务院发布对台政策声明中的模糊策略，是一个值得持续关注的信号。如果中共逼迫美国为首的西方阵营对中共采取绥靖的阴谋得逞，黑暗才真的开始。
-
-（文章仅代表作者个人观点。）
+![]()![](https://gnews.org/wp-content/uploads/2021/01/农场.png)
 
 
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-+1
+0

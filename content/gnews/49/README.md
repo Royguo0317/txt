@@ -1,15 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年1月29日 文貴先生盖特 1
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/840595/)
+## 乌克兰禁俄罗斯卫星五型疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/842746/)
 
-编辑整理： 西班牙巴塞罗那喜悦农场 （文惜）
+- 编辑：Victor Torres
 
-2021年1月29日：这四幅文化大革命共产党……内斗的政治漫画，一下子将我带回到我儿时成长的那个时候，我上学的地方．在墙上有很多还保留着当时这样的漫画。没想到几十年后，郭文贵和爆料革命也享受了中国副主席和中共开国元勋的．被批斗待遇．70年来共产党的流氓，黑社会式统治……以黑治国．以骗治国，以假治国．打着为人民服务的幌子奴役人民手段本质从来没改变过．😡😡😡人们的智商也没有半点提高，这真是14亿中国人的悲剧！天灭中共🦠🦠🦠😡😡😡
-![]()![](https://gnews.org/wp-content/uploads/2021/01/e61d2e5d86a7a049eb613c73ba6ff11d.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/b58291eccb15f242cc9b28327086b82e.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/814e7397a7e361a810c9d9c0a2bace66-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/aec9d0f9de342e5240589a3827c7b808-9.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/7452d311054c34dc1860a33bc14a4bae-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/01/photo_2021-01-25_16-38-50-4.jpg)
-[【2021年1月29日】文贵先生盖特原文](https://gtv.org/getter/6013cc9546c6c3519a3c0a7b)
 
-**喜联盟Gnews编辑部**
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-+2
+**西班牙2021年1月29日电/西喜社——**乌克兰议会通过了一项法律，禁止注册俄罗斯研制的中共病毒疫苗。
+
+该疫苗名为 “卫星五型”，已在11个国家以及俄罗斯注册使用。议会上周五批准了美国、中国、日本和欧盟等国家使用的疫苗的注册，但特别排除了 “侵略国 “研制的疫苗。
+
+在2014年俄罗斯吞并克里米亚，以及该国东部与俄罗斯支持的分离主义分子持续发生冲突后，乌克兰与俄罗斯的关系骤然恶化。乌克兰资金不足的医疗系统受到中共病毒的重创。这个拥有4,400万人口的国家已记录了120多万例感染病例，超过22,000人确诊死亡。
+
+**新闻来源：**[https://apnews.com/article/europe-united-nations-health-coronavirus-pandemic-coronavirus-vaccine-50c1f79fca97a6c2e46f7eaf8fd7afc0](https://apnews.com/article/europe-united-nations-health-coronavirus-pandemic-coronavirus-vaccine-50c1f79fca97a6c2e46f7eaf8fd7afc0)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/9e9a89d9-f813-4c99-bfd8-779e7c7a5b04-12.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+
++1
