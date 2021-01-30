@@ -1,39 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】29/01/2021:因拜登拒绝见中共外交官杨洁篪，中共取消美国之行
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/845564/)
+## 美国安顾问沙利文称，拜登政府希望扩大太平洋 &#8220;四国 &#8220;关系以制衡中共国
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/845714/)
 
-**制作:Cantonese工作室**
-播报：美国小李
-<br>资料收集：Elaine Lei、郁金香、极寒将至、美国小李、陆柒陆捌
-<br>视频制作：Shawn
-<br>海报制作：侬民、EA、文绉绉
-<br>上传: Shawn
-**摘要:**
+- 编辑：Victor Torres
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210129-zhTW-01-5.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210129-zhTW-02-2.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210129-zhTW-03-1.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210129-zhTW-04.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210129-zhTW-05.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210129-zhTW-06-1.jpg)
-7.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210129-zhTW-07-20.jpg)
-8.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210129-zhTW-08-1.jpg)
-9.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210129-zhTW-09-17.jpg)
-10.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210129-zhTW-10-1.jpg)
-11.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210129-zhTW-11-2.jpg)
-12.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210129-zhTW-12-2.jpg)
+
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2021年1月30日电/西喜社——**据OSNI新闻1月29日报道，拜登政府的新任国家安全顾问周五表示，将美国在太平洋地区的松散盟友网络转变为比四个印太民主国家之间的非正式安全关系更重要的东西，是拜登政府的一个目标。
+
+杰克·沙利文周五在美国和平研究所的一个在线论坛上说，政府 “真的想推进 “唐纳德·川普总统开始的工作。最近几个月，美国、日本、印度和澳大利亚四国进行了联合军事演习，并承诺未来将举行更多演习。
+
+“四国 “的外长们也举行了会议，讨论共同的挑战，以及他们如何在经济、外交和军事上合作，以制衡中共国。但到目前为止，这一安排仍远未达到安全联盟的程度。使该安排的扩大复杂化的一个问题是日本二战后的宪法，它限制了国土防卫以外的军事活动。
+
+美国与日本和澳大利亚是条约伙伴。
+
+回顾他在川普政府担任国家安全顾问期间，罗伯特·奥布莱恩称四国关系 “最有可能是我们自二战以来发展的最重要关系”。
+
+他说，”美国面临的头号地缘政治挑战是中共国”。他称北京 “越来越具有民族主义色彩”，它镇压香港的民主异议人士和中国西部的穆斯林维吾尔人。它还有 “无情的全球野心”，从南中国海延伸到北极。
+
+沙利文称，中共国正在说美国的 “模式行不通”。北京正在 “明确表示，除了代议制民主之外，还有一种选择”，并指出其经济增长和围绕美国总统选举的政治动荡。
+
+沙利文说，美国需要 “与盟友和伙伴保持一致”。宣称”我们要坚持原则”的民主国家，愿意让中共国为公然侵犯人权和其他国家主权的行为付出代价。
+
+在这场与中共国的竞争中，美国 “需要保持在人工智能和量子计算方面的技术优势”，以显示它仍然是一个大国和典范。
+
+虽然两人都表示最近的过渡是平稳和专业的，但两届政府对国家安全的态度最尖锐的分歧集中在如何处理伊朗的核项目和导弹项目，以及伊朗对其他国家事务的持续干涉。
+
+奥布赖恩说，川普政府的 “最大压力 “运动在向以色列表明，在与德黑兰的任何潜在冲突中，以色列都是它的盟友。”我们在以色列建立了政治资本”，将大使馆迁往耶路撒冷，并承认其对与叙利亚交界的戈兰高地的主张。
+
+与这一新安排相关的是，美国得以缩减在中东(包括阿富汗)的部队，并将其重新部署到东欧等地区。它还 “框住 “中国，不让其进入以色列的技术部门，同时向愿意承认以色列的阿拉伯国家开放。
+
+**新闻来源：**[https://news.usni.org/2021/01/29/biden-administration-wants-to-expand-pacific-quad-relationship-national-security-advisor-sullivan-says](https://news.usni.org/2021/01/29/biden-administration-wants-to-expand-pacific-quad-relationship-national-security-advisor-sullivan-says)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+
 0

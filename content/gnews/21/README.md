@@ -1,42 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《爆料革命发起人-郭文贵视频精品荟萃》第十集
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/843661/)
+## 医学博士史蒂芬（Steven Carl）指出了CCP病毒来源
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/845551/)
 
-撰稿人：澳喜cindy
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-审稿：Jenny
+编辑上传   银河
+![]()![](https://cdn.discordapp.com/attachments/795746853945081947/804906617480020028/Snipaste_2021-01-30_05-49-18.png)zenodo.org
+医学博士史蒂芬（Steven Carl）刚刚在在《泽诺多》（Zendo）发表论文，“贝叶斯分析的结论是，SARS-CoV-2不是一种自然的人畜共患疾病，而是来自实验室”【1】
 
-编辑：MG3
+这篇长达193页的论文，占用内存近15M，将为正在武汉进行病毒调查的WHO人员提供科学、实用、准确的溯源指导。
 
+《PR Newswire》抢了个头条：【2】
 
-18:00-20:00 郭文贵谈及新疆
-新疆人民遭受的苦难无法形容.被CCP杀死的人太多了！24小时/365天处在地狱般的世界里！
+西雅图，2021年1月29日——今天，Atossa Therapeutics，Inc.（NASDAQ:ATOS）首席执行官史蒂芬博士发表了一篇论文，题为“贝叶斯分析得出的结论是，毫无疑问，SARS-CoV-2不是一种自然的人畜共患病，而是实验室衍生的。”这篇193页的论文可以从Zenodo下载，一个由欧洲核子研究中心运营的通用开放存取存储库。
 
+以下是论文作者作了一段简短的“解说”视频：【3】
 
+文章说，分析的目的是确定SARS-CoV-2的来源，SARS-CoV-2是一种引起COVID-19的病毒。从起初（确认为）98.2%的可能是人畜共患的自然跳离，只有1.2%的可能性是实验室逃逸，在系统地检查了26个不同的独立事实和证据后，最后的结论是，SARS-CoV-2来自实验室的概率为99.8%，来自自然界的概率仅为0.2%。
 
-32:00-33:15郭文贵谈及新疆
+史蒂芬博士说：“和其他许多人一样，我担心世卫组织小组成员与中共国科学家和医生之间似乎存在重大利益关联，这将在多大程度上阻碍对SARS-CoV-2来源的公正调查。”。
 
-CCP杀死了500多新疆人，新疆人就如同小白鼠，想杀就杀。一个小伙子被摘器官。很多人被摘肝摘肾，以满足CCP的高官及其家人的换器官的需要。
+“尽管如此，我仅通过公开获得的有关SARS-CoV-2的科学证据，并在分析中使用高度保守的估计，得出结论：SARS-CoV-2从实验室逃逸是毫无疑问的。从2019年12月起，武汉病毒学研究所对5名患者的标本进行测序，需要对其中的腺病毒疫苗基因序列进行解释，例如，你会在疫苗挑战试验中看到这种数据，希望世卫组织的小组能够得到这些问题的答案。”
 
+为了帮助发现真相并获得关于本文所用方法和得出的结论的反馈，史蒂芬博士向全世界26名科学家发送了一份本论文出版前的副本，其中包括目前在武汉的世卫组织调查人员、武汉病毒学科学家研究所以及其他著名的病毒学专家。
 
+不得不为史蒂芬博士点赞，他已经对WHO与中共勾兑的可能性作出了预见，并加以防范地送出26份论文副本，警示试图勾兑的人士，小心点，我们正盯着你们呢！
 
-39:20-46:35 郭文贵谈及新疆
+[1] [https://zenodo.org/record/4470233#.YBRJSehKiUl](https://zenodo.org/record/4470233#.YBRJSehKiUl)
 
-CCP为了霸占新疆的优质水资源为己用，派大量武警把守水企，其产品只供给中央高官及其家属享用.随意给新疆人带电子工具、限制人身自由，限制旅行，阉割人才。
+[2][https://www.prnewswire.com/news-releases/new-study-by-dr-steven-quay-concludes-that-sars-cov-2-came-from-a-laboratory-301217952.html](https://www.prnewswire.com/news-releases/new-study-by-dr-steven-quay-concludes-that-sars-cov-2-came-from-a-laboratory-301217952.html)
 
-- 几年来郭文贵先生在3000多次的视频节目中就有近300次的提及新疆同胞所遭受的苦难，并且每次视频结束都在为新疆人而祈祷祝他们早日脱离苦难。正是他的不遗余力的传播CCP对新疆人的惨无人道的迫害的真相。才使得美国川普政府及全世界人民知道了CCP就是一个没有人性，惨绝人寰罪大恶极的犯罪组织。如今蓬佩奥国务卿在他的任期的最后一天宣告了：以习近平为首的中国共产党对新疆人民犯下了种族灭绝和反人类罪。
+[3] https://zenodo.org/record/4477212#
 
-
-国务卿蓬佩奥指出：中共在2017年以来关押了100多万维吾尔族穆斯林，并对他们实行酷刑和强迫劳动，严厉限制其宗教自由，信仰自由，言论自由和行动自由。对妇女采取强迫她们绝育、堕胎。这些行为是对中国人民和世界文明国家的侮辱。必须追究中共的责任！
-
-这个定性堪比二战期间希特勒对犹太人的大屠杀。这个定性必将把中国共产党送进地狱！
-
-（本文纯属个人观点）
-
-参考链接：
-
-[https://china.usembassy-china.org.cn/zh/determination-of-the-secretary-of-state-on-atrocities-in-xinjiang-cn/](https://china.usembassy-china.org.cn/zh/determination-of-the-secretary-of-state-on-atrocities-in-xinjiang-cn/)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1-澳喜Logo-10.jpeg)
-0
++2

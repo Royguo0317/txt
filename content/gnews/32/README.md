@@ -1,28 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法国周日起禁止欧盟以外人员入境
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/844002/)
+## 香草播报：【军事快讯】美国空军参谋长：电磁频谱可能是能够击败敌人的便宜武器
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/844932/)
 
-- 编辑：Victor Torres
+作者：纽约香草山写作组 Wilson
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月29日电/西喜社——**法国从周日开始对来自欧盟以外的人关闭边境，以试图阻止中共病毒新变种的传播。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-法国总理让·卡斯特克斯(Jean Castex)周五晚在总统府召开紧急政府卫生安全会议后宣布了这一措施，并警告新变种的 “巨大风险”。
 
-他说，所有从其他欧盟国家抵达的人将被要求出具阴性的病毒检测报告。法国将从周日开始关闭所有大型购物中心，并限制进出其海外领土的旅行。
 
-卡斯特克斯下令加强警方对那些违反法国每天12小时宵禁、举行秘密派对或重新开设餐馆，以对抗10月以来的关闭令的人的检查。
+《[网络战争杂志](https://www.c4isrnet.com/electronic-warfare/2021/01/27/air-force-chief-electromagnetic-spectrum-could-be-cheaper-option-to-defeat-enemies/)》(C4isrnet)1月27日报道，美国空军参谋长查尔斯·布朗指出，运用电磁频谱武器可能会降低击败敌人的成本。“在某些方面，电子比非常昂贵的导弹便宜得多”，空军参谋长查尔斯·布朗在1月27日说。
 
-最近几周，病毒感染、住院和死亡人数一直在稳步上升，但并没有急剧上升。许多医生一直敦促在全国范围内实施新的关闭，就像其他几个欧洲国家实施的那样。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/41.jpg)
 
-卡斯特斯说，这些措施是为了避免第三次停工的经济成本。目前，超过60%的重症监护床位被中共病毒患者占据。法国报告的死亡人数已超过7.5万人，居世界第七位。
+布朗承认，在过去25到30年里，空军在电磁波频谱(研发)操作方面一直“睡着”。而包括中国和俄罗斯在内的军事强国，在电磁波谱(研究和应用)中表现出了巨大的实力，在某些方面可以与美国国防部匹敌。这是因为冷战结束后，美国军队放弃了许多相关系统和专业知识。
 
-**新闻来源：**[https://apnews.com/article/europe-united-nations-health-coronavirus-pandemic-coronavirus-vaccine-50c1f79fca97a6c2e46f7eaf8fd7afc0](https://apnews.com/article/europe-united-nations-health-coronavirus-pandemic-coronavirus-vaccine-50c1f79fca97a6c2e46f7eaf8fd7afc0)
-![]()![](https://gnews.org/wp-content/uploads/2021/01/ff878835-6408-4649-948a-b1e1f60cda63-16.jpg)
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+美国空军参谋部的计划和战略办公室已经创建了一个新的独立部门，以及即将成立的频谱战争部门，来进行研究和应用实验。布朗还谈到，跨军种合作。他的任务是，与海军合作，研究电磁攻击波形，以及如何攻击对手的通信或情报系统。
+
+现代战争最终比拼的是国家实力，其中最关健的胜负手是科技。冷战结束后，美国的经济优势逐年下降，实际上是国力对比的相应下降。当今的美国，已经难以对中（共）国保持绝对的战略优势。因此，美国利用自身卓越的创新环境，研发和装备低廉的高科技武器，对敌人形成威慑力，或将成为一种趋势选择。
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
 
 0
