@@ -1,27 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亚利桑那州周六报告5119例感染
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/848812/)
+## 分析证明中共病毒是实验室制造的
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/849083/)
 
 - 编辑：Victor Torres
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月30日电/西喜社——**美国亚利桑那州周六报告了5119例中共病毒病例和76例确诊死亡病例。
+**西班牙2021年1月30日电/西喜社——**一项新的中共病毒研究得出结论，有 “99.8%的可能性SARS-CoV-2来自实验室”。
 
-卫生服务部门说，该州的流行病总数增加到753,379例，13,098例确诊死亡。
+1月29日发表的这篇193页的论文标题为 “贝叶斯分析得出的结论是，SARS-CoV-2不是天然的人畜共患病，而是来自实验室。”
 
-亚利桑那州的病例、住院人数和死亡人数都在放缓。然而，在截至周五的一周内，亚利桑那州的中共病毒诊断率是全美最差的（1/178）。南卡罗来纳州（192分之1）、俄克拉荷马州（216分之1）和罗德岛州（225分之1）紧随其后。
+“分析的目的是确定SARS-CoV-2的来源，即引起COVID-19的病毒。从最初98.2%的可能性是来自自然界的人畜共患，只有1.2%的可能性是实验室逃逸开始，对26个不同的、独立的事实和证据进行了系统的研究。最后的结论是，SARS-CoV-2来自实验室的可能性是99.8%，来自自然界的可能性只有0.2%。”摘要指出。
 
-周五，该州宣布，三人检出英国病毒变种。
+作者史蒂文·奎伊博士发表了360多篇医学研究报告，被引用超过1万次，在全球科学家中排名前1%。
 
-该部门表示，它正在监测情况，并重申人们需要戴口罩和保持社会距离。
+并且他拥有近90项美国专利，发明了7种FDA批准的药品。
 
-**新闻来源：**[https://apnews.com/article/angela-merkel-germany-coronavirus-pandemic-coronavirus-vaccine-d43484836ede407a867225e3c4250c10](https://apnews.com/article/angela-merkel-germany-coronavirus-pandemic-coronavirus-vaccine-d43484836ede407a867225e3c4250c10)
+“通过只采取公开的、关于SARS-CoV-2的科学证据，并在我的分析中使用高度保守的估计，我还是得出结论，SARS-CoV-2从实验室中逃脱是毫无疑问的。在2019年12月5名患者的标本中，武汉病毒研究所测序的额外证据似乎是腺病毒疫苗的基因序列，这需要一个解释。例如，你会在疫苗挑战试验中看到这种数据。希望世卫组织团队能够得到这些问题的答案，”他补充道。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/e892e7f7-b96c-43fa-a45b-539b43f6dd51-3.jpg)
+
+
+> [CLAIM: Analysis Proves COVID is Lab-Made Virus](https://thenationalpulse.com/breaking/covid-made-in-lab/)
+
+
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
