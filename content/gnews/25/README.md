@@ -1,27 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文明与野蛮
-` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/846652/)
+## 中共军机又来踩台湾海峡中线了
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/846938/)
 
-作者：傑喜拉亜
+![]()![](https://gnews.org/wp-content/uploads/2021/01/china-flight-1-5.jpg)图片来源台湾国防部提供
+新闻剪辑：双城记 审稿：Jenny
+
+One America News Network 以路透社的报导（中国语言尖锐，警告台湾独立“意味着战争）为题在1月28日新闻网页刊载说 中国周四对台湾措辞强硬，在最近加强了在台湾岛附近的军事活动后警告说，“独立意味着战争”，中国武装力量的行动是为了应对挑衅和外国干涉。被中国宣称为自己领土的台湾，上周末报告称有多架中国战斗机和轰炸机进入其西南防空识別区，台湾方面促使华府敦促北京停止对台湾施压。
+
+文中表示中共国认为，台湾的民选政府正在推动该岛正式宣布独立，尽管台湾总统蔡英文一再表示，台湾已经是一个独立的国家，其正式名称叫中华民国。
+
+中国国防部发言人吴谦在每月一次的新闻发佈会上被问及空军近期的活动时表示，台湾是中国不可分割的一部分。
+
+“中国人民解放军在台湾海峡开展的军事活动，是应对当前台海安全角势、维护国家主权和安全的必要行动。“他说。“他还说，”它们是对’台独’势力外部干涉和挑衅的郑重回应。吴说，台湾有 「一小撮 」人在谋求台湾独立。”我们警告那些’台独’分子：玩火者必自焚，’台独’意味着战争。” 他补充说。OANN文中表示虽然中共从未放弃使用武力将台湾置于其控制之下，但北京做出如此公开的、口头上的冲突威胁是不寻常的。
+
+五角大楼发言人柯比（John Kirby）对中共的此言论回应，中国和台湾之间的紧张关系 「没有理由导致类似对抗的事情」。 他还重申了美国长期以来对台湾自卫的军事支援。”我们有义务协助台湾进行自卫，我想你们会看到这种情况继续下去，”
+
+台湾 大陆事务委员会 （简称陆委会）表示，中国应慎重考虑，不要低估岛内捍卫主权、维护自由民主的决心。台湾谴责中国的威胁和恐吓努力，蔡英文誓言要捍卫岛内的自由，不受胁迫。
+
+同时台湾西南海域中共军机又扰台，中共在测试新美国的政府的底线。据台湾国防部报导：1月29日 中共军机运八反潜机 #7A431A #编号82011 进入ADIZ(西南空域)，台湾空军在空监控，并於09时09分广播驱离。另 11时43分美军在西南空域进行国际航行权宣告。本月累计进入我空域28天，本月广播驱离纪录共计87次。也在昨日1月28日 #中共军机 #空警500 #7A42A3 #编号81031 #不明机型 #7BB2B1 等多架次多空层进入西南空域，台空军在空监控，并四度广播驱离。同时巴士海峡有美国海军P-8A以及美国空军KC-135通过。 尽管此类的演习频率增加，但共机这次编队以战斗机和轰炸机为主，时机和编制似乎是给美国新政府传达讯息，拜登才刚上任几天就面临重大外交挑战。
+
+台湾自由时报一则温馨报导说到中共解放军近期在台湾西南海空域动作频频，并高调武吓台湾，为支持国军英雄，屏东陈姓黑猪农今早杀猪力挺东沙岛上的国军，该猪农共準备6头顶级黑猪，其中1头制成黑猪肉香肠，今天上午猪农亲自将猪肉分装上车，由海洋委员会海巡署东南沙分署派车运载，预计春节前夕，就能送抵东沙群岛，帮国军弟兄加菜。
+
+新闻剪辑来源：
 
 
 
-众所周知，DNA携带着我们的遗传信息（染色体），端粒就是镶嵌在每条DNA分子链两个末端的小螺帽，每次人体细胞分裂复制时，端粒就会挺身而出，护着所携带遗传信息，自己受损直至损耗殆尽。随着端粒的离去，生命衰老和死亡钟声也骤然敲响…… 根据1961年的”海弗里克极限“，人体细胞终极一生可以分裂40-60次，所以端粒也被称为“生命的时钟”。
-
-2009年10月5日，有三位杰出的美国科学家正是因为发现了保护人类染色体的端粒和端粒酶共同获得了诺贝尔生理学或医学奖。因为他们的发现使我们对人类衰老，癌症和干细胞等疑问有了答案，对控制疾病及延长生命有了新的方向。
-
-我们渴望延长生命，所以致力发展科学；我们渴望自由，所以提倡文明。然而，人类却一次次离经叛道：第一第二次世界大战夺走七千五百万人性命；希特勒是始作俑者；冠状病毒使全球死亡人数达到至今的二百二十一万；中国共产党是罪魁祸首！台湾海峡告急，欧洲告急，美国告急，澳洲告急……我们不是已经进入了文明时代了吗？为什么还不断的涌现战争预警？
-
-有人说，人类文明发展史就是摆脱野蛮的过程，但到底什么是野蛮？什么是文明呢？人类用了几千年是变得更加文明了，还是变得更加懂得掩饰野蛮呢？我们真的很难说清楚。如果那些引以为傲的文明是为了掩盖恶劣的人性，那跟真正的野蛮有什么分别呢？所以当文明不够文明时，那就让野蛮更加野蛮吧，就算冒着“灭族”的危险，也要抗争到底！
-
-台湾曾经的赛德克巴莱人曾说 “一个真正的人，可以失去身体，但一定要赢得灵魂”，这是一种悲怆的英雄主义，但这就是他们的信仰。
-![photo from reddit]()![photo from reddit](https://i.redd.it/y9mihx5hb8m51.jpg)Riding amongst the ruins of a fallen civilization. photo from reddit.
+> [China sharpens language, warns Taiwan that independence ‘means war’](https://www.oann.com/china-sharpens-language-warns-taiwan-that-independence-means-war/)
 
 
 
+[https://news.ltn.com.tw/news/politics/breakingnews/3425883?fbclid=IwAR0Rljt8BoGdN4B01LZH9vCX8e1L5H2y6Nvr61gjeItLhfqQzIz-WmLNk6E](https://news.ltn.com.tw/news/politics/breakingnews/3425883?fbclid=IwAR0Rljt8BoGdN4B01LZH9vCX8e1L5H2y6Nvr61gjeItLhfqQzIz-WmLNk6E)
 
-校对发稿：Bingo
+[https://edition.cnn.com/2021/01/25/asia/china-us-taiwan-military-moves-intl-hnk-mil/index.html](https://edition.cnn.com/2021/01/25/asia/china-us-taiwan-military-moves-intl-hnk-mil/index.html)
 
-+1
+[https://news.ltn.com.tw/news/life/breakingnews/3425941?fbclid=IwAR1IiKUUGahLXJ7jb12LR3a5OvjCSQYoqTZey0760S9P9QJWALfP89FVcq4](https://news.ltn.com.tw/news/life/breakingnews/3425941?fbclid=IwAR1IiKUUGahLXJ7jb12LR3a5OvjCSQYoqTZey0760S9P9QJWALfP89FVcq4)
+
+澳喜文章:https://gnews.org/zh-hans/author/aujenny/
+
+欢迎加入澳喜农场：https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840
+![]()![](https://gnews.org/wp-content/uploads/2020/12/IMG_1836-1-1.jpg)
+0

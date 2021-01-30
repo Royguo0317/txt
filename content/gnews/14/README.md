@@ -1,47 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 1/30/2021财经快讯：海航集团申请破产重整, 其航空业务利润不足偿债
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/847551/)
+## 国语【香港快讯】 1.30 亲中阵营建议逼港人选择英国或中国公民身份 香港高铁经济圈成死城
+` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/847597/)
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/Picture1-56.png)
-图片来源：[http://www.hnagroup.com/news/](http://www.hnagroup.com/news/%E6%B5%B7%E8%88%AA%E9%9B%86%E5%9B%A2%E6%9C%89%E9%99%90%E5%85%AC%E5%8F%B8%E5%A3%B0%E6%98%8E/)
+制作团队：【喜马拉雅粤语组】阿恩
 
-1. **海航集团申请破产重整**
+审核：【喜马拉雅粤语组】卡西欧、penny
 
-
-1月29日晚间，海航集团传来大消息，海航申请破产重整。据不完全统计，海航涉及到多家A股/港股上市公司，包括海航投资、桂林旅游、渤海租赁、供销大集、海航创新、海越能源、海航基础、海航科技、海航控股、美兰空港等。目前，海航集团已被多家法院列为被执行人，被执行总金额超过13亿元。
-推特用户 “财经真相” 推文称，根据中国《企业破产法》，企业在资不抵债时可以申请破产重组后，其债务可以通过暂停支付本金，只支付利息，或削减无担保的债权和延期债务等办法处理；当期海航已经变卖了所有海外以及非核心业务，未来注定要回归航空本业，但是受疫情影响，航空业备受打击，海航紧靠航空利润，估计要还一百多年才行。
-[https://www.sohu.com/a/447528887\_114984
-https://twitter.com/caijingxiang/status/1355101300610924544?s=24](https://www.sohu.com/a/447528887_114984
-https://twitter.com/caijingxiang/status/1355101300610924544?s=24)
-
-1. **摩根大通即将在英国开展数字银行业务**
+上传：文粤
 
 
-据路透社01月27日报道，摩根大通（JPMorgan）将在几个月内以大通（Chase）为品牌在英国开设一家数字银行，这标志着摩根大通（JPMorgan）首次进军竞争激烈的英数字银行市场。该数字银行的总部位于伦敦的金丝雀码头金融区（London’s Canary Wharf financial district）。 摩根大通还表示，新业务已经招募了400名员工，并将提供一系列产品服务，包括经常账户服务。
-[https://www.reuters.com/article/us-jpmorgan-digital-uk/jpmorgan-to-join-british-online-banking-chase-within-months-idUSKBN29W1DE](https://www.reuters.com/article/us-jpmorgan-digital-uk/jpmorgan-to-join-british-online-banking-chase-within-months-idUSKBN29W1DE)
 
-1. **拜登政府即将对前任总统川普签订的中美贸易协定进行审核**
+主要内容
 
+去年底大幅裁员约250人的香港航空，在两期保就业计划中，共获批逾1.54亿元的工资补贴，却被发现违规。保就业计划秘书处接获举报，经查核港航的申请资料，包括去年6月及7月强积金供款纪录等，发现港航未有遵守计划守则和条款，需退回未有用于支付工资的补贴金额，或就未达承诺受薪雇员人数缴付罚款。
 
-路透社撰文称，白宫新闻秘书詹·普萨基（Jen Psaki）周五表示拜登政府将审查上届川普政府采取的所有国家安全措施，包括2020年1月签署的中美第一阶段贸易协议。当被问及拜登政府是否视中美贸易协议继续有效时，Jen表示上届政府实施的一切措施都在接受审查，由于这些措施涉及到国家安全，所以不会假设所有的协议都会继续有效。
+过去一星期，港府先后将三个地区列作「受限区域」，突击封区，要求居民强制检测。公务员事务局局长聂德权表示，未来还会继续加强检测的工作及行动，并已通知各部门组织队伍配合。
 
-[https://www.reuters.com/article/us-usa-trade-china/white-house-says-u-s-china-trade-deal-among-issues-in-broad-review-idUSKBN29Y2DV](https://www.reuters.com/article/us-usa-trade-china/white-house-says-u-s-china-trade-deal-among-issues-in-broad-review-idUSKBN29Y2DV)
+中联办在其官方网页公布，因应疫情防控，下月5日将在网上举办2021年新春酒会。
 
-1. **美国传统石油产业正在试图与生物燃料产业结盟以对抗拜登政府支持电动汽车发展的议程**
+中共国明日起，正式不承认BNO为有效旅游证件，港府将积极配合中共。但亲中人士表示，中共的反制效力不大。亲北京阵营建议采取更强硬的措施，逼港人在英国国籍，和中国公民身份当中二选一，一旦失去中国公民身份，可能连带香港永久居民身份也失去。
 
+英国首相约翰逊发言人回应，对香港的事我们不会假装看不见，任何持有 BN(O) 身份的人士，都有权选择到英国生活、工作和读书。此外，即使使用 BN(O) 以外的其他档，都一样可以进入英国。
 
-据Newsmax报道，美国石油产业正寻求与国内玉米种植，生物燃料生产商结成联盟，游说反对拜登政府推动电动汽车的计划，但迄今进程缓慢，反响冷淡。推动液态燃料的发展和反对对电动汽车联邦补贴的努力，反映出对美国总统乔•拜登(Joe Biden)应对气候变化和减少化石燃料议程的担忧程度。这也反映了华盛顿政治格局的变化。自拜登取代川普成为总统以来，石油行业的影响力已经减弱。
-[https://www.newsmax.com/t/newsmax/article/1007724/8](https://www.newsmax.com/t/newsmax/article/1007724/8)
+「港版国安法」下，政权及各间大学管理层对学生会的打压愈趋强硬，早前科大学生会会长，因办周梓乐追悼会被勒令休学，中大学生会临政主席区倬僖，亦因撒粉案被捕，惟仍有学子未怕因参与学运被拘捕。新一届中大学生会干事会候选内阁「朔夜」成员直言，已作好被捕准备，惟即使将面临风险，仍会坚持对「香港共同体」的信念。
 
-1. **拜登安全顾问表示美国必须做好持续向中共国施压的准备**
+造价逾800亿元的「天价铁路」高铁香港段，于2018年9月通车。因受疫情影响，政府宣布由去年1月30日起停运高铁至今。连累邻近的广东道佐敦段一带的店铺。该路段的10多个铺位，部份没有人租用，其余的大多数是地产铺，人流相当少。高铁核心经济区域，已沦为「死城」。
 
+小一统一派位首日交表，各区派位中心有家长一早到场排队轮候。九龙城区内名校，是普遍家长大热之选，有家长称，疫情打乱了子女的升学部署，也有家长依旧每月花过万元，安排子女参加各种课外活动，以适应小学衔接课程。
 
-路透社报道称，拜登总统的国家安全顾问杰克·沙利文（Jake Sullivan）周五表示美国必须准备好让中共国为迫害新疆维吾尔族穆斯林，镇压香港及对威胁台湾的举动付出代价。沙利文在美国和平研究所(United States Institute of Peace)的一次活动上说，华府需要在这些问题上就观点和政策保持清晰一致。
-[https://www.reuters.com/article/us-usa-china-sullivan/us-must-be-prepared-to-impose-costs-on-china-biden-security-adviser-idUSKBN29Y2FC](https://www.reuters.com/article/us-usa-china-sullivan/us-must-be-prepared-to-impose-costs-on-china-biden-security-adviser-idUSKBN29Y2FC)
-
-密翻组·金融团队—文印
-资料提供：文罡，Wendy,Totoro, Sharon G
+资料来源： 立场新闻 苹果日报 网路图片
 
 0
