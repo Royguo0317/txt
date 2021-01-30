@@ -1,27 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美安全顾问称中共需要为其罪与恶付出代价
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/846140/)
+## 中共废除港人英国海外护照
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/846220/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑   水星   上传   银河
-![]()![](https://cdn.discordapp.com/attachments/795746853945081947/804966645931966474/1.jpg)[cbsnews.com](https://www.cbsnews.com/news/biden-jake-sullivan-national-security-adviser/)
-路透华盛顿1月29日报道，美国拜登总统的国家安全顾问苏利文（Jake Sullivan）在美国和平研究所(United States Institute of Peace)的活动上呼吁，美国应“为中（共）国在新疆和香港的所作所为，以及对台湾的好战和威胁，做好行动准备，让其为此付出代价。”
+编辑   水星    上传   银河
+![]()![](https://cdn.discordapp.com/attachments/799010586356351066/804940099670114304/p.JPG)columbian.com
+中共官媒报道，从1月31日起，将不承认英国国民海外护照(BNO)作为有效的旅行证件或身份证明，这一宣布正值英国准备向持有英国国民海外护照的数百万香港居民敞开大门之际。中共彻底撕毁与英国间关于香港回归的协议。
 
-华盛顿需要在这些问题上表达出一致的清晰立场。
+外交部发言人赵立坚告诉记者，“从1月31日起，中（共）国将不再承认所谓的BNO护照作为旅行证件和身份证件，并保留采取进一步行动的权利。”
 
-苏利文认为中共问题是美国和欧洲盟友之间要解决的首要问题，美国需对中共滥用贸易和技术的问题与欧洲达成一致，共同应对。“在这些问题上，我们并没有完全一致的观点……我认为，中（共）国是我们需要共同努力的首要问题。”
+中共单方面实施《国家安全法》，在香港暴力镇压和公然撕毁“一国两制”承诺，英国政府决定向符合英国护照条件的香港人提供庇护。根据此前的规定，英国国民海外护照持有者只能在英国停留6个月，且无权在英国工作或定居。现在根据这项新政策，那些拥有英国国民海外护照、想要离开香港的人从1月31日开始可在长达5年的时间内在英国生活和工作，并最终可申请英国公民身份。
 
-越来越多的美国官员站出来呼吁拜登政府要重视中共威胁，对中共恶行追责。新任国务卿安东尼·布林肯(Antony Blinken)支持其前任迈克·蓬佩奥(Mike Pompeo)认定的中共在新疆犯下了种族灭绝罪行。拜登政府发表了支持台湾的强硬声明，强调美国对台北的承诺“坚如磐石”。
+护照问题激怒了中共，中共指责英国干涉内政。中共在英国宣布政策实施的同一天废除英国国民海外护照，意味着BNO持有者将被禁止作为香港任何形式的身份证明，不能用于出入境。
 
-中共用战狼外交对新任拜登政府进行威胁恐吓的做法将加速它的灭亡。中共暴力镇压香港，武力威胁台湾，伙同中共小弟“伊朗”对美国进行军事威胁，这些只会激怒美国，让试图与中共勾兑的势力必须在美国国家安全和与中共利益间作出取舍。
-
-追溯中共病毒真相的呼声愈来愈高，国际社会有良知的科学家已经勇敢地站出来指认中共病毒源于实验室，各个国家把揭露病毒真相放在了首位，等待对中共追责。中共在末路狂奔，必将为它的邪恶狂妄付出代价。
+为了进一步控制香港，据《南华早报》报道，中共在过去一年派遣了100名干部到香港最高办事处工作。《华盛顿邮报》援引匿名消息人士的爆料，过去一年北京加强了对香港的控制，颁布了新的安全法，逮捕了政治反对派，更增派中共官员到港加强对这个城市的监督和政策执行。香港越来越成为一个内地城市，而失去国际化大都市的地位和风采，香港在中共治下变成了臭港。
 
 参考链接：
 
-[https://www.reuters.com/article/us-usa-china-sullivan/u-s-must-be-prepared-to-impose-costs-on-china-biden-security-adviser-idUSKBN29Y2FC](https://www.reuters.com/article/us-usa-china-sullivan/u-s-must-be-prepared-to-impose-costs-on-china-biden-security-adviser-idUSKBN29Y2FC)
+[https://www.dw.com/en/china-will-no-longer-recognize-british-passports-for-hong-kong-residents/a-56377978?maca=en-rss-en-all-1573-rdf](https://www.dw.com/en/china-will-no-longer-recognize-british-passports-for-hong-kong-residents/a-56377978?maca=en-rss-en-all-1573-rdf)
+
+[https://www.reuters.com/article/us-hongkong-security/china-boosts-cadres-in-hong-kong-by-100-as-beijing-tightens-supervision-of-city-media-report-idUSKBN29Y07Q](https://www.reuters.com/article/us-hongkong-security/china-boosts-cadres-in-hong-kong-by-100-as-beijing-tightens-supervision-of-city-media-report-idUSKBN29Y07Q)
 
 0
