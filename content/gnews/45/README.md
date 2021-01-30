@@ -1,30 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 捷克禁止外国人非必要入境
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/843946/)
+## Bill Gertz文章：美国解密情报支持病毒来源于武汉病毒所
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/843691/)
 
-- 编辑：Victor Torres
+作者：Stephen文文
+![]()![](https://gnews.org/wp-content/uploads/2021/01/3005-3.jpg)
+美国国务院最近解密的情报证明COVID-19大流行可能始于与中共军方PLA有联系的武汉病毒研究所（武毒所，Wuhan Institute of Virology，WIV）。即将卸任的川普政府1月解密的一份报告中，首次披露了在武汉研究所进行致命病毒研究的几名工作人员在2019年秋季患上了类似COVID-19的疾病症状。而武毒所的关键人物石正丽曾在疫情初期公开宣称WIV的员工和学生中SARS-CoV-2或SARS相关病毒的感染率是“零感染”。
 
+曾就职于德特里克堡陆军医学传染病研究所的医生兼生物武器专家罗伯特说：“根据我的经验和对科学的理解，很难相信这是自然发生的现象。”现为Patronus Medical首席医疗官的达林博士认为在武汉有人抓到了他们的（生物武器）实验。任卫生服务机构WorldClinic的Lang博士指出与环境因素有关的间接证据（而不是间接证据）非常有力的说明“中国共产党领导人故意释放这种病毒。”
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+武毒所工作人员的发病发生在COVID-19病例首次公开（2019年12月上旬）之前，但中共却拒绝透露对工作人员的发病影响。
 
-**西班牙2021年1月29日电/西喜社——**捷克共和国为遏制中共病毒大流行，禁止外国人因非必要原因入境。
+报告还指出：“中共国实验室的意外感染曾造成过几次病毒爆发，其中包括2004年在北京爆发的SARS感染了9人，还造成1人死亡。”
 
-外交部表示，这项禁令从周六开始生效，适用于所有国家。
+武毒所科学家石正丽被称为“中国蝙蝠女侠”，是因为她在蝙蝠冠状病毒方面的工作，她所研究的病毒正是类似于导致COVID-19的病毒。她在2015年与他人合作了一项科学研究，其中提到了对蝙蝠病毒进行实验室操作的一部分，研究它们如何感染人类。
 
-禁令的例外情况包括在该国工作或学习的人。前往该国探亲和疗养院、接受医疗服务以及参加婚礼和葬礼也是允许的。
+[援引原文](https://www.washingtontimes.com/news/2021/jan/26/wuhan-lab-theory-coronavirus-outbreak-bolstered-de/)
 
-该禁令是一系列新的限制措施的一部分，这些措施正在加强该国的封锁。这些措施获得批准的目的是进一步限制人们的接触和行动。
+【文章仅代表作者个人观点】
 
-1月初，该国中共病毒病例的日增量自1月6日创下近1.8万例的历史新高后逐渐下降。但数字降得不够，本周又开始上升。
+审核校对：楼兰古城
+上传排版：糖果儿
 
-政府也担心传染性更强的英国变种对卫生系统的潜在影响，几个月来卫生系统一直承受着严重的压力。
-
-**新闻来源：**[https://apnews.com/article/europe-united-nations-health-coronavirus-pandemic-coronavirus-vaccine-50c1f79fca97a6c2e46f7eaf8fd7afc0](https://apnews.com/article/europe-united-nations-health-coronavirus-pandemic-coronavirus-vaccine-50c1f79fca97a6c2e46f7eaf8fd7afc0)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/1f19e0b3-87c3-4476-8520-9a51e6f4ef15-44.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
-
-+1
++3

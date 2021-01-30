@@ -1,41 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香草播报：【军事快讯】美国空军参谋长：电磁频谱可能是能够击败敌人的便宜武器
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/844932/)
+## 《爆料革命发起人-郭文贵视频精品荟萃》第十集
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/843661/)
 
-作者：纽约香草山写作组 Wilson
+撰稿人：澳喜cindy
+
+审稿：Jenny
+
+编辑：MG3
 
 
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
-
-《[网络战争杂志](https://www.c4isrnet.com/electronic-warfare/2021/01/27/air-force-chief-electromagnetic-spectrum-could-be-cheaper-option-to-defeat-enemies/)》(C4isrnet)1月27日报道，美国空军参谋长查尔斯·布朗指出，运用电磁频谱武器可能会降低击败敌人的成本。“在某些方面，电子比非常昂贵的导弹便宜得多”，空军参谋长查尔斯·布朗在1月27日说。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/41.jpg)
-
-布朗承认，在过去25到30年里，空军在电磁波频谱(研发)操作方面一直“睡着”。而包括中国和俄罗斯在内的军事强国，在电磁波谱(研究和应用)中表现出了巨大的实力，在某些方面可以与美国国防部匹敌。这是因为冷战结束后，美国军队放弃了许多相关系统和专业知识。
-
-美国空军参谋部的计划和战略办公室已经创建了一个新的独立部门，以及即将成立的频谱战争部门，来进行研究和应用实验。布朗还谈到，跨军种合作。他的任务是，与海军合作，研究电磁攻击波形，以及如何攻击对手的通信或情报系统。
-
-现代战争最终比拼的是国家实力，其中最关健的胜负手是科技。冷战结束后，美国的经济优势逐年下降，实际上是国力对比的相应下降。当今的美国，已经难以对中（共）国保持绝对的战略优势。因此，美国利用自身卓越的创新环境，研发和装备低廉的高科技武器，对敌人形成威慑力，或将成为一种趋势选择。
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+18:00-20:00 郭文贵谈及新疆
+新疆人民遭受的苦难无法形容.被CCP杀死的人太多了！24小时/365天处在地狱般的世界里！
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+32:00-33:15郭文贵谈及新疆
+
+CCP杀死了500多新疆人，新疆人就如同小白鼠，想杀就杀。一个小伙子被摘器官。很多人被摘肝摘肾，以满足CCP的高官及其家人的换器官的需要。
 
 
 
+39:20-46:35 郭文贵谈及新疆
+
+CCP为了霸占新疆的优质水资源为己用，派大量武警把守水企，其产品只供给中央高官及其家属享用.随意给新疆人带电子工具、限制人身自由，限制旅行，阉割人才。
+
+- 几年来郭文贵先生在3000多次的视频节目中就有近300次的提及新疆同胞所遭受的苦难，并且每次视频结束都在为新疆人而祈祷祝他们早日脱离苦难。正是他的不遗余力的传播CCP对新疆人的惨无人道的迫害的真相。才使得美国川普政府及全世界人民知道了CCP就是一个没有人性，惨绝人寰罪大恶极的犯罪组织。如今蓬佩奥国务卿在他的任期的最后一天宣告了：以习近平为首的中国共产党对新疆人民犯下了种族灭绝和反人类罪。
+
+
+国务卿蓬佩奥指出：中共在2017年以来关押了100多万维吾尔族穆斯林，并对他们实行酷刑和强迫劳动，严厉限制其宗教自由，信仰自由，言论自由和行动自由。对妇女采取强迫她们绝育、堕胎。这些行为是对中国人民和世界文明国家的侮辱。必须追究中共的责任！
+
+这个定性堪比二战期间希特勒对犹太人的大屠杀。这个定性必将把中国共产党送进地狱！
+
+（本文纯属个人观点）
+
+参考链接：
+
+[https://china.usembassy-china.org.cn/zh/determination-of-the-secretary-of-state-on-atrocities-in-xinjiang-cn/](https://china.usembassy-china.org.cn/zh/determination-of-the-secretary-of-state-on-atrocities-in-xinjiang-cn/)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/1-澳喜Logo-10.jpeg)
 0
