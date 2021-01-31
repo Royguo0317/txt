@@ -1,32 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 分析证明中共病毒是实验室制造的
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/849083/)
+## 香草播报：【热点播报】BLM被提名为2021年度诺贝尔和平奖
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/849208/)
 
-- 编辑：Victor Torres
-
-
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2021年1月30日电/西喜社——**一项新的中共病毒研究得出结论，有 “99.8%的可能性SARS-CoV-2来自实验室”。
-
-1月29日发表的这篇193页的论文标题为 “贝叶斯分析得出的结论是，SARS-CoV-2不是天然的人畜共患病，而是来自实验室。”
-
-“分析的目的是确定SARS-CoV-2的来源，即引起COVID-19的病毒。从最初98.2%的可能性是来自自然界的人畜共患，只有1.2%的可能性是实验室逃逸开始，对26个不同的、独立的事实和证据进行了系统的研究。最后的结论是，SARS-CoV-2来自实验室的可能性是99.8%，来自自然界的可能性只有0.2%。”摘要指出。
-
-作者史蒂文·奎伊博士发表了360多篇医学研究报告，被引用超过1万次，在全球科学家中排名前1%。
-
-并且他拥有近90项美国专利，发明了7种FDA批准的药品。
-
-“通过只采取公开的、关于SARS-CoV-2的科学证据，并在我的分析中使用高度保守的估计，我还是得出结论，SARS-CoV-2从实验室中逃脱是毫无疑问的。在2019年12月5名患者的标本中，武汉病毒研究所测序的额外证据似乎是腺病毒疫苗的基因序列，这需要一个解释。例如，你会在疫苗挑战试验中看到这种数据。希望世卫组织团队能够得到这些问题的答案，”他补充道。
+作者：纽约香草山写作组 天涯客
 
 
 
-> [CLAIM: Analysis Proves COVID is Lab-Made Virus](https://thenationalpulse.com/breaking/covid-made-in-lab/)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+BLM （Black Lives Matter） 是一个政治和社会运动组织，经常在街头抗议警察和对黑人的暴力行为。该组织最初是以黑人为主，现在也有其他族群加入。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/43.jpg)
+
+该组织被提名为2021年度诺贝尔和平奖候选人，以鼓励他们在世界范围内发起的系统改革的呼声和努力。
+
+该组织的某些暴力行为曾经受到社会各界的批评。但是，挪威方面的官员皮特·埃德（Petter Eide ）在提名文件中说，该运动迫使美国以外的其他国家努力应对自己社会中的种族主义。
+
+参考阅读：
+
+[https://www.theguardian.com/world/2021/jan/29/black-lives-matter-nobel-peace-prize-petter-eide-norweigan-mp](https://www.theguardian.com/world/2021/jan/29/black-lives-matter-nobel-peace-prize-petter-eide-norweigan-mp)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
 
 0

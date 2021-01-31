@@ -1,43 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香草播报：【热点播报】BLM被提名为2021年度诺贝尔和平奖
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/849208/)
+## 加国效仿中共 入境者须自费检测病毒入驻指定隔离酒店
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/849593/)
 
-作者：纽约香草山写作组 天涯客
+*加拿大多伦多枫叶农场 文锦*
 
+*校对 小鸥*
 
+*发布 文锦*
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Quarantine-canada_329193691-4.jpeg)图片来源： Immigration.ca
+2021年1月29日，加拿大政府网站公布了新的应对中共病毒措施。在未来几周，入境者将被要求：**1. 抵达后自费进行中共病毒检测；2. 等待测试结果期间，自费在加拿大政府批准的酒店预订一个房间，住三晚**。旅客将入驻并支付酒店费用，及所有相关食品、清洁和安全费用并仍需完成14天的强制隔离。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+为确保旅客了解并遵守检疫要求，加拿大公共卫生局（PHAC）让安保公司监督抵达加拿大的旅客。该局已将合同授予四家安全公司：加拿大专员团（The Canadian Corps of Commissionaires）、G4S安全解决方案（加拿大）有限公司（G4S Secure Solutions (Canada) Ltd.）、加拿大警卫公司（Garda Canada Security Corporation 简称GardaWorld)和帕拉丁风险解决方案（Paladin Risk Solutions）。这些公司的检查人员将去旅客的隔离点，确认旅客身份及其入境后的隔离点，以确保旅客遵守14天强制隔离。检查人员将于2021年1月29日在蒙特利尔和多伦多等全国35个城市实施监督。
 
+检查人员可根据需要提供合规教育或发出口头警告。任何需要采取更严厉执法行动的案件将提交公共卫生咨询中心，该中心将把案件提交执法部门采取后续行动。
 
+根据官员在边境和核查电话中获得的信息，以评估旅行者是否遵守规定。根据《检疫法》，不提供准确信息被认为是一种罪，此外，违反安检官员或检疫官员在旅客进入加拿大时向其提供的任何检疫或隔离指示，也属违法行为，可能导致一系列处罚，包括6个月的监禁和（或）75万加元的罚款。
 
-BLM （Black Lives Matter） 是一个政治和社会运动组织，经常在街头抗议警察和对黑人的暴力行为。该组织最初是以黑人为主，现在也有其他族群加入。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/43.jpg)
-
-该组织被提名为2021年度诺贝尔和平奖候选人，以鼓励他们在世界范围内发起的系统改革的呼声和努力。
-
-该组织的某些暴力行为曾经受到社会各界的批评。但是，挪威方面的官员皮特·埃德（Petter Eide ）在提名文件中说，该运动迫使美国以外的其他国家努力应对自己社会中的种族主义。
-
-参考阅读：
-
-[https://www.theguardian.com/world/2021/jan/29/black-lives-matter-nobel-peace-prize-petter-eide-norweigan-mp](https://www.theguardian.com/world/2021/jan/29/black-lives-matter-nobel-peace-prize-petter-eide-norweigan-mp)
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
+*[原文链接](https://www.canada.ca/en/transport-canada/news/2021/01/canada-to-implement-new-testing-and-quarantine-measures-to-reduce-covid-19-infection-related-to-non-essential-international-air-travel.html)*
 
 0

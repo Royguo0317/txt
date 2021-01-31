@@ -1,33 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 诺瓦克斯CCP病毒疫苗非常有效，但是针对南非毒株表现不佳
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/850426/)
+## 【每日快讯】30/01/2021:七哥火了，这个世界疯了，所有人都和我联系，要反共要灭共
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/850801/)
 
-翻译：康州盘古农场 -烟波浩淼
-校对：康州盘古农场 -Mike Li
-审核：康州盘古农场-Truemanman
+**制作:Cantonese工作室**
 
-诺瓦克斯（Novavax）公司周四宣布，该公司的候选疫苗对COVID-19的有效性几乎达到90%， 但对该病毒的南非新变种的有效性只有不到50%。
 
-该公司在一份新闻声明中说，英国的一项研究发现，诺瓦克斯疫苗在保护测试参与者不出现COVID-19症状方面的有效性为89.3%。
+播报: 美国小李
+资料收集: Cathy、Ruby、美国小李、Annie
+视频制作: Shawn
+海报制作: 侬民
+上传: Shawn
+**摘要:**
 
-尽管对现在英国流行的新型高传染性的冠状病毒变种仍然取得了良好的结果。
-
-总部位于马里兰州的公司负责人斯坦利·埃尔克（Stanley C. Erck）说：“这是令人惊喜的结果，我们非常高兴能够帮助诺瓦克斯开发这种疫苗。”
-
-据该公司称，诺瓦克斯COVID-19疫苗对南非病毒株的效果要差得多。但是对变异体所显示的疗效任然非常令人鼓舞。
-
-但在南非冠状病毒变异正在肆虐的地方进行的一项单独的小规模研究取得出的更多初步结果显示，诺瓦瓦克斯疫苗的有效性只有49.4%，这意味着只有一半以上的测试对象接受了注射，然后仍然生病。
-
-现在正在使用的现代（Moderna）和辉瑞疫苗对COVID-19的有效性都超过了90%。
-
-截至周四，纽约有22例英国新型冠状病毒株。官员周四宣布，美国刚刚在南卡罗来纳州发现两例南非毒株病例。
-
-现代公司表示，它正在开发一种疫苗增强剂，以抵御在南非首次发现的毒株。
-
-原文作者：雅伦·斯坦布赫（Yaron Steinbuch）
-发布时间：2021年1月28日| 上午9:11 | 更新
-原文链接:https://nypost.com/2021/01/28/novavax-covid-vax-effective-except-against-south-africa-strain/
-
-0
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-01-2.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-02-3.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-03-1.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-04-4.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-05-1.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-06-2.jpg)
+7.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-07.jpg)
+8.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-08-1.jpg)
+9.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-09.jpg)
++1

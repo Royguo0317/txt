@@ -1,39 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】美国太空部队打算构建由廉价卫星组成的坚不可摧的空间卫星系统
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/850779/)
+## 2021/01/30 英喜时事速递
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/851369/)
 
-作者：纽约香草山 Wilson 校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
-
-
-
-《网络战争杂志》（C4irsnet）2021年1月30日报道，美国太空部队打算构建一个更分散的天基卫星架构。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/PVEDQ4MCD5DIPASKNU6GBFP7UQ-1.jpg)图片来源：DARPA
-
-华盛顿太空部队首席投资组合架构师表示，即使一颗或多颗卫星瘫痪或被摧毁，这种架构系统仍然可以继续提供关键的天基能力，安全地为为航天局、导弹开发局提供数据信息服务。
-
-因此需要专注于开发在低地球轨道运行的(低价)卫星，传统上采用非常昂贵的大型卫星构建其空间系统。五角大楼认为太空是一个战争领域，这意味着不能再假设其卫星不会成为对手的打击目标，因此关注卫星的脆弱性，测试对手的各种反卫星武器是其重点。
-
-美国太空部队空间开发局成立于2019年，正在策划使用数百颗相对廉价、可更换的卫星，组成在低地球轨道上建造新的分布式架构卫星系统。
-
-随着全球以卫星互联网为核心的太空竞争时代的到来，不管是商用还是军用，低轨卫星都成了新发展战略的宠儿，因为低轨卫星传输时延短、研制周期短、发射成本低，只要加密技术过硬，就能安全使用。
-
-美国特斯拉CEO马斯克的SpaceX公司，已经全面启动天基互联网计划，规划向太空发射卫星1.2万颗，每颗的造价不到1000美元。1月25日SpaceX公司用一个发射器发射了143颗卫星，就连普通公司都可以拥有专用卫星。
-
-这对反卫星武器将形成压倒性的优势，因为用一枚昂贵的导弹去打一颗廉价的卫星是没有意义的。
+收集：Alicia，Cathy，Near，文大石，CharlesS | 制作：Alicia
+*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/1920px_Handy_Update-1100-3-3.jpg)
+## 【西班牙巴塞罗那喜悦农场】接种了疫苗的美众议员病毒检测呈阳性
+![微信截图_20210105135759.png]()![微信截图_20210105135759.png](https://p5.img.cctvpic.com/photoworkspace/contentimg/2021/01/05/2021010514330894238.png)评论：不但是中共制造的病毒疫苗没用，美国制造的病毒疫苗同样没用，宣传注射疫苗就是大重置计划的一部分。
+## 翟东升：外汇储备能够保护国家经济安全吗？先看个巴西的例子。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/35ac79bf4b6d7f05c53c70278202262f83992bad-1.jpg)评论：翟大忽悠指出这个观念本身是对90年代亚洲金融危机经验教训的一种误读，而且持有外汇储备对于储备国潜在的福利损失，其隐形成本其实是很昂贵的。下面评论还有人吹风：只有航母和核武才能保证安全。 评：翟大忽悠在吹风进一步脱钩化和流氓化。
+## 搜狐：物价涨对老百姓居然是好事？涨物价就是涨工资，是实体反击金融
+![搜狐财经-搜狐]()![搜狐财经-搜狐](https://p3.itc.cn/images01/20210130/24ccc6868c6b414382bfd79750a5dc04.jpeg)评论：物价上涨对老百姓是好事，是是实体反击金融的表现。欺骗大众无所顾忌。
+## **网易：特朗普被邻居们“嫌弃”**
+![尴尬！特朗普卸任后想搬回海湖庄园？邻居们很嫌弃……_手机网易网](https://nimg.ws.126.net/?url=http%3A%2F%2Fcrawl.ws.126.net%2F4a67c232408653155ef1af546792cfff.jpg&amp;thumbnail=750x2147483647&amp;quality=85&amp;type=jpg?imageView&amp;thumbnail=750x0&amp;quality=85&amp;type=jpg&amp;interlace=1)评论：无论何时，中共都要持续毁掉川普的信誉与形象，故事随便编。倒不妨问问世界邻居，对到处投放病毒的中国共产党嫌弃吗？
+## **腾讯：又一家千亿房企崩盘！2100亿债务告急**
+![又一位地产大佬梦碎！曾一年狂卖1200亿，如今债务危机全面爆发__财经头条]()![又一位地产大佬梦碎！曾一年狂卖1200亿，如今债务危机全面爆发__财经头条](https://n.sinaimg.cn/sinakd20210130ac/388/w1200h788/20210130/c8a0-kiksqxf9895850.jpg)评论：房地产企业华夏幸福，引爆2100亿元巨额债务，拟通过建立金融机构债委会化解当前债务危机，无非就是以债还债
+## 新唐人電視台
 
 
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+> 鍾原：習近平又擔憂「黑天鵝」和「灰犀牛」 
+> 
+> 1月28日，中共 [#政治局](https://twitter.com/hashtag/%E6%94%BF%E6%B2%BB%E5%B1%80?src=hash&amp;ref_src=twsrc%5Etfw) 上午召開會議，主要談政治監督，下午政治學習。這次學習沒有外請教師，而是中共政治局自學並交流工作體會。[https://t.co/lClGeEz8cJ](https://t.co/lClGeEz8cJ)
+> — 新唐人電視台 (@NTDChinese) [January 30, 2021](https://twitter.com/NTDChinese/status/1355630118144798726?ref_src=twsrc%5Etfw)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+评论：中共已到了火烧眉毛的地步
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

@@ -1,115 +1,125 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【2021/01/24～30】新闻回顾
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/851865/)
+## 中共国对维吾尔的种族大屠杀
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/852097/)
 
-台湾农场    新闻组摘要
+根据CBN News于2021年1月28日的报道，中共对维吾尔族人实施了种族大屠杀。
 
-国际
+在节目主持人提到“迈克·蓬佩奥作为美国国务卿的最后行动之一是将中国对待维吾尔族和突厥人的行为定为种族灭绝，而拜登政府也支持这一指认”话题时，受访嘉宾对此做了详细解释并特别强调：
 
-1.美国与南韩官方代表就维持东北亚和平稳定及「朝鲜无核化」等议题，进行讨论。强调美韩保持紧密合作，并加强沟通管道。（2021/01/24自由时报）
+“根据1948年《联合国防止和惩治灭绝种族罪公约》的规定，这一指认要求各国采取行动。我们敦促司法部执行1091条款，起诉中[共]国驻美国的外交官，包括中[共]国大使崔天凯的种族灭绝罪。同时还敦促其他国家，特别是美国的盟友承认种族灭绝的暴行，并将此问题提交联合国安全理事会，敦促联合国维护其种族灭绝公约。需要采取真正有力的，强硬有力的行动来阻止这种情况。”
 
-2.美国财政部长提名人耶伦表示：「北京尚未能兑现去年签署的第一阶段贸易协议中的承诺」。将积极研拟政策应对中共在两国贸易问题上使用的不公平竞争手段。（2021/01/23大纪元）
 
-3.英国染疫死亡率为全球最高，根据约翰·霍普金斯大学统计数据，截至美东时间（1月23日）早上7:00，全球的中共病毒病例总数超过9,827.2万例，死亡人数已超过210.9万（2021/01/23 大纪元）
 
-4.墨西哥总统因怕疫情影响国人生计，拒绝限制经济活动，而在公开行程上却未树立防疫典范，24日宣布确诊新冠肺炎。治疗期间仍不忘与俄罗斯总统商讨疫苗问题。（2021/01/25自由时报）
+**Communist China Commits Genocide Against Uyghurs**
 
-5.1/24美国多个城市同时举办全美联合抗议中共、抵制中共渗透美国活动。盼望拜登上任能重视中共对世界的威胁 （2021/01/26大纪元）
+**中共国对维吾尔的种族大屠杀**
 
-6.德国应对中共扩张，拟派巡防舰访日韩澳，内阁批准新的「印太地区政策准则」，希望加深与民主阵营伙伴的联系。据消息人士指出，执政党对于日、澳的军事支持要求将直接依从他们的请求。（2021/1/26大纪元时报）
+Today from the Global Lane: Chinese genocide against the Uyghurs.
 
-7.荷兰政府执行严格的全国封锁，周一更实行全国「宵禁」，愤怒民众已经出现失控抗议活动。欧盟执行长表示「疫苗」才能解决当前危机，希望欧洲各国都能「承诺」快速购买并施打疫苗。（2021/1/26 DailyMail News）
+今天的Global Lane来谈谈“中[共]国对维吾尔人的种族大屠杀”。
 
-简评：荷兰的宵禁政策彻底激怒人民，官方及媒体的说法完全与民意完全无法达成共识，警民冲突彻底升级。欧洲正演变成「封锁」人民行动后，强推疫苗的景象，人民正逐渐觉醒中。
+“Hundreds of thousands of Uyghurs and other Turkic women have been sterilized. Over 3.7 million babies forcibly being aborted.”
 
-8.印度尼西亚海警在西加里曼丹省附近查扣两艘插有伊朗和巴拿马国旗的油轮，因涉嫌在该国海域非法转运石油，将其扣押调查。海岸警卫队发言人表示，这跟美国制裁伊朗石油出口无关，但其中一艘船的东家为中国企业，名为上海未来船舶管理有限公司。（2021/01/27大纪元）
+数十万维吾尔和其他突厥妇女被绝育。超过370万婴儿被强行堕胎。
 
-9.美国德州总检查长于22日在联邦法院起诉拜登政府，认定其暂停国会制定的驱逐某些非法移民的命令是违宪，要求撤销。联邦地方法官于26日应德州要求发出临时限制令。（2021/01/27大纪元）
+**Host**: One of Mike Pompeo’s final actions as U.S. Secretary of State was to designate China’s treatment of ethnic Uyghurs and Turkic people as genocide. The Biden administration also supports that designation. So what does it mean? What is next?
 
-10.德国总理梅克尔26日在世界经济论坛发言，批评中国与世界卫生组织在疫情爆发初期，没有将信息与国际分享，盼其记取教训，「强化世卫组织」，并乐见拜登政府重返世卫组织。 （自由时报2021/01/27 ）
+**主持人**：迈克·蓬佩奥作为美国国务卿的最后行动之一是将中国对待维吾尔族和突厥人的行为定为种族灭绝。拜登政府也支持这一指认。那么这意味着什么？下一步会是什么？
 
-11.美国科学家联盟（FAS）日前提出的报告指出，中国在东部和西部地区部署大量新型东风-26中长程弹道飞弹（IRBM）发射车，进行密集训练，射程不仅涵盖与中国有边境争议的印度，也对美国驻日本基地构成威胁。（自由时报2021/01/28）
+**Guess**: Under terms of the 1948 United Nations’ convention, on the prevention and punishment of the crime of genocide, the designation requires nations to take action.
 
-12.拜登就俄国干涉2016和2020选举，「提出警告」 两位领导人似乎同意延长「新开端」（New Start）协议。「新开端」是奥巴马时代的一项协议，该协议限制美俄核武库中弹头、导弹和发射器的数量。 该协议将于下个月到期，而特朗普曾拒絶签字。（2021/01/28 BBC中文网）
+**嘉宾：**根据1948年《联合国防止和惩治灭绝种族罪公约》的规定，这一指认要求各国采取行动。
 
-13.美前国务卿庞皮欧（Mike Pompeo）在《福斯新闻》（FOX News）专访，挂念美国对台湾的承诺，期望拜登政府按美国民意对抗中共，呼吁全世界必须团结向中共迫害新疆维族、病毒疫情追责。 （2021/01/28自由时报）
+Starting about 2017, millions of people were thrown into what China calls re-education camps, but what are actually concentration camps, where they are forced to denounce their ethnic and religious identity, forced starvation, forced medication, both men and women have been raped in these facilities.
 
-14.美国务卿布林肯（Antony Blinken）于国务院27日就任记者会表示，美国与中国关系有可合作的领域－如全球暖化气候问题，然而延续上届政府，谴责中共在新疆犯下的「种族灭绝」（genocide）罪行，对中共持强硬对抗态度。（2021/01/28自由时报）
+从2017年左右开始，数百万人被扔进了中[共]国所谓的再教育营，但实际上是集中营。在那里，他们被迫放弃自己的种族和宗教身份，被迫挨饿，被迫吃药，在这些设施中，男子和妇女都遭到强奸。
 
-15.拜登总统就任一周已陆续与七个国家领袖举行电话会谈，日本时间廿八日与首相菅义伟通话。 主要重点有4点
+The Chinese government is harvesting the organs of select Uyghurs and other Turkic prisoners, and hundreds of thousands of Uyghurs and other Turkic women have been sterilized by the Chinese government, in addition to over 3.7 million babies forcibly being aborted by the Chinese government.
 
-1.尖阁诸岛（钓鱼台列屿）适用美日安保条约第五条，并提及同盟国遭到武力攻击时，美国将采取包括「核保护伞」（Nuclear Umbrella）在内的报复「遏止扩大」。
+中[共]国政府正在选择性收割维吾尔和其他突厥囚犯的器官，数十万维吾尔和其他突厥妇女被中[共]国政府绝育，此外还有370多万婴儿被中国政府强行流产。
 
-2.加强日美同盟，并对共同推动「自由且开放印度—太平洋」，及加强日美印澳四国合作
+And all of these constitute as genocide as defined under the U.N. genocide convention, and as defined under the Elie Wiesel Genocide Prevention Act, and section 1091 of the U.S. code on genocide.
 
-3.美将重返「巴黎气候协议」&WHO，邀请菅义伟参加四月廿二日举办的气候变迁领袖会议
+所有这些都构成了《联合国灭绝种族罪公约》所界定的灭绝种族罪，也构成了《埃利·维瑟尔防止种族灭绝法》和《美国法典》关于灭绝种族罪的第1091条所界定的灭绝种族罪。
 
-4.加强防疫合作 （2021/01/29自由时报）
+**Host**: Well, I want to talk about that forced sterilization again in a minute, but I know you’ve told us before about those concentration camps and prisons, and you have a map where you found close to 400 in total, or at least you say three million Uyghurs are being detained by the Chinese.
 
-中共
+**主持人**：好吧，我想一会儿再谈一下那个强制绝育的问题，但我知道你以前跟我们说过那些集中营和监狱，你有一张地图，你发现总共近400个，你说至少有300万维吾尔人被中[共]国拘留。
 
-1.中国于22日针对钓鱼台主权问题通过『海警法』。除可对外来船只动用武力外，还被授权运载飞机和武器，此举将令该区对抗局势加剧。且引来周边国家纷纷表达不满。 （2021/01/25 来源:自由时报）
+So tell us a little bit more about that in the forced labor and the re-education they’re enduring.
 
-2.美国总统拜登才刚刚上任几天，中共军机大肆扰台引起台海局势紧张，美派航母群驶入南中国海（2021/1/25大纪元时报）
+所以请再给我们讲讲，他们所承受的强迫劳役和再教育。
 
-3.被中共国赶跑的外媒，转而进驻台湾。瑞典记者奥森见证，中共政府对于记者的监控与跟踪，更使「受访者」陷入危险之中。2016年因报导两名瑞典公民遭中国拘禁，而被列入黑名单，无法再入境中国。在个人推特上幽默自介：若你向中国驻瑞典大使问起我，他们会说奥森都在制作「虚假夸大、恶意抺黑中国的内容」。（2021/01/26 太报The Sounds）
+**Guess**: So, initially the Chinese government began to send millions of people in the concentration camps to, you know, forcefully brainwash them, while also, you know, killing select number of them for their organs.
 
-简评：瑞典记者的经历，再对比港大阎丽梦博士，可验证阎博士提出关于「共产党打压讯息的作法」。一，破坏你在媒体及社交圈的正面形象，利用媒体重塑你的负面形象，然后孤立你。最后，让你「物理性的消失」。要看透共产党造假的手法，要拿事件来比对，才能揭穿它的谎言。瑞典记者的经历与阎博士到美国诉说中共病毒时的待遇，如出一彻。
+**嘉宾**：所以最初中[共]国政府开始把几百万人送进集中营，给他们强行洗脑，同时如你所知为了他们的器官而杀死了一些人。
 
-4.MSCI宣布：再次剔除5家中企股，据《路透》报导，MSCI明晟声明中称，自1月27日收盘起，将从MSCI明晟全球市场指数（MSCI ACWI）以及相关非市值加权指数中剔除5家（中广核电力、中国化学、中国核工业集团、中国船舶重工和浪潮国际）中资企业的证券。 （2021/1/26自由时报）
+However, in recent years, especially with the coronavirus pandemic, China has begun to shift to using them as slave labor.
 
-5.中国三大电信运营商公布，手机用户在这三家之间流动，三家电信统计消失和增长后，得到全中国骤减640万用户，而此前2019和2018年，这三大运营商的手机用户总量分别增加了3500万和1.49亿户。（2021/01/27大纪元）
+然而近年来特别是随着冠状病毒的疫情，中国已经开始转而把他们当作奴工来使用。
 
-6.针对英美政界指责汇丰（HSBC）支持中共港版国安法，冻结香港前立法会议员许智峯及其他支持抗议者的银行账户，汇丰执行长回应其无选择只能遵守当地法律。（2021/01/27自由时报）
+In fact, over half a million people were forced to pick cotton during the coronavirus pandemic, whereas millions are still, you know, working in slave labor factories, producing, you know, products for companies like Apple, Nike, Costco, and dozens of others.
 
-简评：在中共「一国一制」管辖下，香港不再自由，资产也不受保障，许多港人选择移民或将资产移往海外。香港前车之鉴是台湾的警钟。
+事实上，在冠状病毒疫情期间，超过50万人被迫采摘棉花，而数百万人如你所知仍然在血汗工厂工作，为苹果、耐克、好市多等公司生产产品，还有其他几十家公司。
 
-7.近日，中共藉联合国人权理事会例行审查各国人权状况之际，将矛头指向澳洲，指责澳洲存在种族主义、人权虚伪，无端指控他国的虚假言论，引发澳洲各界强烈回击。 人权自由指数：162个国家当中 澳洲为全球排名第6位 中国为全球排名第126位。（2021/01/27大纪元）
+**Host**: I know that Twitter recently actually locked the account of the Chinese embassy in Washington D.C. after it tweeted that, Uyghur women had been emancipated by government policy from being “baby making machines”. Your reaction to what happened.
 
-8.去年习近平女儿习明泽及习近平姐夫邓家贵的个人信息被支那（维基）」网站上，茂名警方四处抓捕，24名年轻网民被判刑 被判14年指是主犯的牛腾宇妈妈说：这是茂名警方想立功，移花接木嫁祸『恶俗网』（指「恶俗维基」），把『恶俗网』的会员全部给抓了，说是献了中央一份国庆大礼 （2021/01/28大纪元）
+**主持人**：我知道最近推特实际上封锁了中[共]国驻华盛顿大使馆的账号，因为它发推说，维吾尔族妇女已经被政府政策解放，不再是“生孩子机器”。说说你对此事的反应。
 
-9.绞肉机持续运行，华融前党委书记、董事长赖小民被执行死刑。（2021/01/29大纪元）
+**Guest**: This was a dehumanizing tweet, and we are you know happy that Twitter has blocked or barred the Chinese embassy from tweeting, from using its account.
 
-10.目前共传染203人，被称为（毒王）的吉林省（无症状带感染者）45岁林姓传销员，被官方认定为「零号病人」（2021/01/29自由时报）
+**嘉宾**：这是一条泯灭人性的推文，如你所知，我们高兴推特屏蔽或禁止中[共]国大使馆发推特，及使用其账号。
 
-11.史诗级大骗:【中国说了算】。中共自编自导自演要WHO去探访，最先通报武汉肺炎医院，查疫情源头所有行程都是中共安排假走跳的。 （2021/01/29自由时报）
+However, despite this there are numerous other Chinese state-run accounts or state-run affiliated media accounts that are continuing to spread propaganda, dehumanizing the Uyghurs and other Turkic peoples in East Turkistan.
 
-12.中共官方宣称，新版BNO居留权是中共违反【中英联合声明】。实施港区国安法后，英方立即签发延长BNO 保护港人。若中共不承认BNO护照有效，就是直接违反西方合约精神。（2021/01/29苹果日报）
+然而尽管如此，还有许多其他的中[共]国国营账号或国营附属媒体账号在继续宣传，非人化维吾尔族人和其他土耳其人，以及每一个东土耳其人。
 
-台湾
+**Host**: Okay, Salih, so we have that genocide designation now, what should the Biden administration do? How should the U.S respond?
 
-1.共机昨日以13架次军机扰台湾空域，对此美国敦促北京停止对台湾的军事、外交和经济施压。美国国务务发言人普莱斯重申，将恪守对台湾的长期承诺，协助台湾保持足够防卫能力。（2021/01/24自由时报）
+**主持人**：好吧，萨利赫，我们现在有了种族灭绝的指认，拜登政府应该怎么做？美国应该如何回应？
 
-2.台南一持有新冠病毒检测阴性报告的中年男性，1月15日澳门返国，自我隔离至昨日（24日）被发现倒毙于旅馆内，死者原有糖尿病相关病吏，采检报告结果等待中，酒店亦将进行切底消毒。（2021/01/25自由时报）
+**Guess**: One thing that we’re urging is that the Justice Department implements Section 1091, and prosecute China’s diplomats in the United States, including its Ambassador Cui Tiankai for genocide.
 
-3.彭博商业周刊评论，全球对台湾台积电晶圆厂的依赖程度已达危险等级！随着全球疫情爆发，车用芯片短缺，台湾成为全球瞩目焦点，各国领导人皆意识到台湾半导体产业的「巨大战略价值」。而近日，台湾与中共国之间关系紧张，面对中共对于台湾军事威胁，将形成新的国际关系角力战。（2021/01/25彭博商业周刊）
+**嘉宾**：我们敦促司法部执行1091条款，起诉中[共]国驻美国的外交官，包括中[共]国大使崔天凯的种族灭绝罪。
 
-4.国台办27日举办记者会，痛批民进党和蓬佩奥勾联，倚美谋独无所不用其极 甚至不惜以开放进口含有莱克多巴胺的美猪损害台湾民众生命健康福祉。 《联合报》驻北京记者陈言乔竟发问，「中对美旧高官制裁，台办什么时候也会宣布，对那些所谓表现恶劣的台独分子，实施制裁？」（2021/01/27宝岛通讯）
+While also urging other countries especially American allies to recognize the atrocities of genocide, and to take this to the U.N. Security Council, and urge the U.N. to uphold its genocide convention.
 
-简评：朱凤莲和国民党对莱猪议题同声一气，国民党的党媒记者和国台办的发言也是臭味相投。
+同时还敦促其他国家，特别是美国的盟友承认种族灭绝的暴行，并将此问题提交联合国安全理事会，敦促联合国维护其种族灭绝公约。
 
-5.为何不用中共新冠疫苗 陈时中提数字证明「无效」（2021/01/29自由时报）
+There needs to be real strong, real strong actions that need to be taken to stop this.
 
-6.台湾学龄孩童正面临统战威胁，驰名品牌「小红书」就是代表。「简体字」正从社交媒体、网络游戏、戏剧娱乐包围台湾人，中共从文化层面进行统战，最明显的例子在新疆、蒙古都已证实，台湾民众要多加留意。 （2021/01/30自由时报）
+需要采取真正有力的，强硬有力的行动来阻止这种情况。
 
-7.林园联成化工可塑剂工厂于29日晚间发生大火，为本月林园工业区的第4起事故。前三起分别是「台苯化工高雄厂」、「亚聚林园厂」、「信昌化工厂区」，由于皆为塑化原物料生产工厂，估计将对防疫用品生产产生某程度影响。（2021/01/30中央通讯社）
+**Host**: There is a lot of Chinese involvement in Middle East nations, especially Muslim ones. So how come your fellow Muslims aren’t speaking out about this? I’m thinking in particular those in the Middle East who are working deals with the Chinese. Your thoughts.
 
-8.彰化鹿港镇下午一处废弃家电回收场发生大火，现场冒出大量有毒黑烟，所幸警消迅速到场处理，无人受伤，起火原因待调查。（2021/01/30ETtoday新闻云）
+**主持人**：中[共]国在中东国家，尤其是穆斯林国家的参与度很高。那么，你的穆斯林同胞怎么就不发声呢？我具体想到的是那些在中东与中[共]国人做交易的那些人。你的想法如何。
 
-简评：根据消防人员指出，从2020年起，台湾发生火灾的事件数量，有异常上升的趋势。
+**Guess**: Again, this is they’re all working… you know, for their own economic interests, so they’re ultimately turning a blind eye, and in many cases selling Uyghurs to the Chinese government.
 
-疫情（变种病毒）
+**嘉宾**：他们都是为了自己的经济利益而服务，所以他们最终都是视而不见，并且在更多的情况下把维吾尔人出卖给中[共]国政府。
 
-1.根据美国「疫苗不良数据库VAERS」去年12底～1/13 两周时间已有181人施打辉瑞疫苗死亡，包含怀孕29周胎儿。 WHO公告用mRNA制作的COVID-19 疫苗（Moderna; 辉瑞；BionTech)，不建议孕妇使用。但美国CDC却辩解“尚未有数据“指出疫苗对孕妇会带来风险，因为mRNA不是活疫苗。（2021/01/28《GREATGAMEINDIA》）
+Turkey, in fact, is, you know, has an extradition treaty with China and they are deporting Uyghurs, and there are rumors that they’re about to deport even more Uyghurs in exchange for, you know, the coronavirus vaccine from China.
 
-简评：CDC福奇建议一次戴两个口罩；WHO表示无需戴口罩。对于疫苗问题两个组织又不同调。鉴于严博士第二份报告SARS-Cov-2定义为「超限生物武器」，疫苗产生的ADE抗体依赖性增强现象，不止会产生各种过敏反应，后续更容易结合ACE2造成患者严重伤害。
+如你所知，其实土耳其与中[共]国是有引渡条约的，他们正在驱逐维吾尔人，有传言说他们要驱逐更多的维吾尔人，以换取——你知道的——中[共]国的冠状病毒疫苗。
 
-2.派往中国的世卫（WHO）团队将展开疫调，外界质疑其所能调查的成效，因其调查过程将受中共限制，且如SARS疫调需经多年，依波拉病毒起源至今不明。 （2021/01/29自由时报）
+*出处:  [https://youtu.be/JrUzSGgWJEs](https://youtu.be/JrUzSGgWJEs) (00:00-00:16, 00:43-01:08, 01:57-06:25)*
 
-3.本周，YouTube将一名美国共和党参议员的频道上的多个视频删除。该频道上的关于一些医生作证的视频，这些医生为COVID-19病毒（中共病毒）检测结果呈阳性的病人提供了效果显著的治疗方法。（2021/01/29大纪元）
+*翻译:【Dlrow】 校对:【Isaiah4031】 字幕:【V%】 编辑:【Mark】*
 
-[更多台湾农场文章](https://www.gnews.org/zh-hant/author/taiwangnews/)
+*喜马拉雅玫瑰园出品*
+
+*以上翻译整理仅代表作者个人观点**，**不代表**GNEWS**或他人立场。*
+
+*敬请关注**:*
+
+*GTV:**[喜马拉雅玫瑰园中文频道](https://gtv.org/user/6005ad73f579a75e0bde4d27)**，**[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)*
+
+*Gab:**[https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)*
+
+*Blog:**[https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)*
+
+*Vimeo:**[https://vimeo.com/user131524598](https://vimeo.com/user131524598)*
 
 +1

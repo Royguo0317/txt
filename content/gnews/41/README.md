@@ -1,48 +1,102 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生早在2019年就曝光了习近平功打台湾的“双龙计划”
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/849705/)
+## 美国要与中共国共存还是冷战？
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/847263/)
 
-新闻简述：郭先生早在2019年9月1日就曝光了中共的“双龙计划”。他是以习近平为首的中共企图以香港事件为借口打击台湾的一个军事计划。郭先生呼吁台湾人民要站在香港和世界正义力量的一边才能获得安全。他也奉劝大陆的亿万中国人不要助纣为虐，那样等待人们的将是像二战后的日本和德国纳粹一样的下场。
-视频来源：[https://www.youtube.com/watch?v=5s4aSMrsubg](https://www.youtube.com/watch?v=5s4aSMrsubg) (30:01-32:19, 38:45-40:14)
-(30:01-32:19)
+*新闻来源：《零对冲（Zerohedge）》| 作者：TYLER DURDEN | 发布时间：2021年1月27日*
 
-共产党习近平和王岐山的国家安全委员会，和中国的“党天下、家天下”的中国政权已经做好了一切的计划。在福建，50万大军，导弹部队已经准备好了。当香港失去全面控制，美国全面进行制裁，全面进行封锁，像天安门六四事件一样，西方和美国世界对中国进行制裁的时候，共产党就会发起突然间的对台湾的定点斩首行动，军事打击，彻底收复台湾，这叫“双麟行动”（又名“双龙行动”）。
+*翻译/简评：Dreamer文童 | 校对：感恩 | 审核：万人往 | Page：Daoiii*
 
-The CCP’s National Security Commission led by Xi Jinping and Wang Qishan and the Chinese regime, under the ideology of “all under heaven belong to the party and the party’s few families”, have planned it all out. In Fujian, 500,000 troops and missile force are ready. Once Hong Kong’s situation is out of control and America imposes comprehensive sanctions and complete blockades, just like after the Tiananmen June Fourth Incident, the West and the US and the world imposed suctions on China, the CCP will suddenly launch a targeted decapitation operation and military strikes against Taiwan and take back Taiwan completely. This is called “Operation Shuanglin” (a.k.a. “Operation Shuanglong” or “Operation Dual Dragon”).
+[!\[\]()!\[\](https://spark.adobe.com/page/sDIkgSLHAkbW6/images/52f5e14a-b2cf-42e5-8a16-0f410ee71c16.jpg?asset_id=0bb42629-1c7b-4dbb-a680-a8103b5f9b58&amp;img_etag=%22c3e5e2be68f9cb61aad143c9e139f0c1%22&amp;size=2560)](https://spark.adobe.com/page/sDIkgSLHAkbW6/images/52f5e14a-b2cf-42e5-8a16-0f410ee71c16.jpg?asset_id=0bb42629-1c7b-4dbb-a680-a8103b5f9b58&amp;img_etag=%22c3e5e2be68f9cb61aad143c9e139f0c1%22&amp;size=1024)
 
-那么这个“双麟行动”，大家可以看到，它的理由就是香港发生的这场真正的返送中的行动他们说是美国和台湾的台独分子在背后策划的。很多香港的，所谓领导，运动的领导都在台湾，藏在台湾，他们要抓回，抓捕这些人。然后就对台湾进行军事行动，收复台湾。这才是他的真正的这场核心的目的的核心之一。
+***简评：***
 
-So, this “Operation Shuanglin”, as we can see, will use the excuse that the Hong Kong Movement, which is actually an anti-extradition bill protest, was plotted by the Americans and Taiwanese who secretly supported the independence of Taiwan. [They will say that] many leaders of the Hong Kong Movement are hiding in Taiwan, so in order to capture these people, they will need to have military actions toward Taiwan and liberate Taiwan. This is one of the real purposes and the core.
+台湾问题历来是中美之间的关键且敏感话题。近期，正值美国总统换届之际，中共国多架战斗机连续两日飞入台湾防空识别区，再次触动这个敏感话题。自1979年中美两国正式建交以来，美国一直遵循《上海公报》中所约定的，承认台湾是中国的一部分。川普总统上任后，一直采取强硬的对华政策，主要原因是因为爆料革命唤醒了美国高层，使其意识到中共对美国以及世界各国的威胁。根据《与台湾关系法》约定的“向台湾提供防御性质的武器”，也因为台湾在亚太地区对美国有着重要的战略意义。川普政府四年内共11次对台军售，包括最新型的F-16战斗机。
 
-接下来我想告诉大家的事情，台湾的这场可能随时在下一小时，下一天，下一分钟就有可能，有很大的可能是这个样子的。台湾政权的无知、自私、懦弱，以及多年来被共产党进行了“蓝金黄”，收买了国民党，以及民进党的各种政权，将付出巨大代价，将台湾人民毁于一旦。而且这次“双麟计划”也是不惜代价，不择手段，必须100%拿下台湾，不论死多少人，流多少血。
+在中共国方面，为了纾解内部种种不可调和的矛盾，以及回应美国对台湾的强力支持，习近平正试图武力攻台，实现所谓的民族统一大业。对于美国来说，究竟是延续与中共国之前四十年的和平共处，还是强力回击中共国咄咄逼人的霸权扩张，这是个问题。川普总统四年任期内，由于强力反共，收获大量民意。新任拜登总统上任不到十天，也已经显示出延续前任反共政策的意图。这一切皆因为，反共灭共不但符合美国的利益，也符合全世界的利益。
 
-So next what I want to tell everyone is that [the military action toward] Taiwan may happen the next hour, the next day, or the next minute, and anything is possible. So Taiwan government’s ignorance, selfishness, and cowardice, and the many years of the CCP’s BGY on the Nationalist Party and the Democratic Progressive Party in Taiwan will make Taiwan to pay big prices and will destroy the Taiwanese people. This “Operation Shuanglin” is to completely conquer Taiwan no matter what means are used and what prices are paid, no matter how many people are killed and how much blood is shed.
+[!\[\]()!\[\](https://spark.adobe.com/page/sDIkgSLHAkbW6/images/6b19995e-2fdd-4761-a085-8659cf8fa0eb.jpg?asset_id=113bdd2d-cf75-4051-ac9c-fce6bbebc817&amp;img_etag=%22885f129aa25e3430d01bba4225c63f9e%22&amp;size=2560)](https://spark.adobe.com/page/sDIkgSLHAkbW6/images/6b19995e-2fdd-4761-a085-8659cf8fa0eb.jpg?asset_id=113bdd2d-cf75-4051-ac9c-fce6bbebc817&amp;img_etag=%22885f129aa25e3430d01bba4225c63f9e%22&amp;size=1024)
 
-所以这一次香港成了台湾最大的保护的屏障。台湾只有站在香港的一边，保护香港人民，你才能安全，只有大胆行动和全世界站在一起，你才能，台湾才可能有安全。否则你很快将变成了炮灰，弹灰。
+**原文翻译：**
 
-So this time, Hong Kong has become the biggest shield for Taiwan. Taiwan will be safe only if it sides with Hong Kong and protects Hong Kong people. By taking brave actions and standing with the world, will Taiwan have security. Otherwise, it will become the ashes [in front of the military conquer of the CCP].
+# **与中共国共存还是冷战？**
 
-（38:45-40:14）
+***“美国承认，台湾海峡两岸的所有中国人都认为只有一个中国，并且台湾是中国的一部分。美国…不会质疑这一立场。”***
 
-同时在大陆的所有的党内的战友，军内的战友和14亿中国人民，你们要知道在二战的时候日本是什么样的下场，德国希特勒是什么下场，德国所谓的无辜的市民公民，日本无辜的百姓什么下场。习王发动这场要拿下香港的双龙台湾，征服世界，与世界叫板，不惜发动第三次世界大战的疯狂行动的本质是保护他们家族的利益，保护所谓共产党的利益，和保护他们的私生子女，和盗取国家的巨额财富，它不是为了中国人好。
+因此，尼克松总统在1972年《上海公报》（Shanghai Communique）中接受中共国对台湾岛的领土要求。
 
-Also, for the fellow fighters in mainland China, who are inside the CCP and the PLA, and the 1.4 billion Chinese people, you must understand the fate of the people in Japan in the Second World War, the fate of Hitler, and the fate of the so-called innocent people in Germany and Japan after the Second World War. This crazy action by Xi and Wang for conquering Hong Kong, conquering Taiwan by the “Operation Shuanglong”, conquering the world, even with a third world war is essentially for protecting their own family interests, protecting the CCP’s interests, protecting their own illegitimate children, and the huge wealth they stole from the country, rather than for the interest of the people.
+1979年，吉米·卡特（Jimmy Carter）与台湾断绝外交关系，承认北京为合法政府，并解除美国与中华民国关于台湾的共同安全条约。我们不再有义务为保卫台湾而开战。
 
-就像当年日本的天皇和希特勒都说是为了自己的民族好，最后绑架了国家和民族，最后都毁于一旦，国家和民族都毁了。中国人民必须站起来，和香港人民，台湾人民站在一起，才能不葬送自己的未来。如果你们要与贼为伍，与匪为伍，你们也将死无葬身之地，一定会被世界上的正义力量最后给销毁。像当年的日本被核武器袭击，像当年德国的希特勒和德军纳粹到现在还被追杀一样，死无葬身之地。
+时间快进四十年到乔·拜登（Joe Biden）总统执政的第一个周末。周六，中共国派出8架核能力轰炸机和4架战斗机进入台湾防空识别区。
 
-It’s just like the Japanese Emperor and Hitler. Both said that it was for the good of their own people. They kidnapped the country and the nation and destroyed them eventually. The Chinese people must stand up and stand with the people of Hong Kong and Taiwan, so as not to ruin their future. If you are to associate with thieves and bandits, you will die without a place to be buried, and you will definitely be destroyed by the righteous forces in the world. Just as Japan was attacked by nuclear weapons, like Hitler in Germany and the German Nazis were still hunted down till this day, you will have no place to buried even when you die.
+周日，北京向同一区域派出16架军机。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+看到美国对台军售和美国官员访问，中共国正向我们发出提醒：
 
-翻译：【Isaiah4031】字幕：【相机过热啊】听写：【BruhM】编辑：【Isaiah4031】
+**“你们美国人鼓励岛上那些寻求独立的人。这是不可能发生的。我们将开战，而不是让台湾分离。台湾是中国的一部分，这是我们的红线。”**
 
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+据称，北京正寻求与拜登进行面对面会晤。
+
+为什么？也许是因为新上任的国务卿安东尼·布林肯（Antony Blinken）在其确认听证会上表示，唐纳德·川普总统对中共国采取“更强硬的态度”是“正确的”。
+
+布林肯也同意即将离任的国务卿迈克·彭佩奥（Mike Pompeo）的观点，他曾称中共国对待其维吾尔少数民族的行为是“种族灭绝”，并补充说，我们对台湾的承诺是“我们坚定不移地坚持的事情。”
+
+**布林肯称，在习近平领导下，中共国力图“成为世界上的领先国家 – 制定准则、制定标准的国家。”简而言之，中共国的地缘战略目标是利用自己制定的世界新秩序去创造世界秩序，以取代美国。**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/sDIkgSLHAkbW6/images/c77e9842-1ced-44ad-a02b-aa22a21e673c.png?asset_id=87ee58d5-6585-438b-99fd-3d6d43f886d4&amp;img_etag=%229a277c28916d1a3a296bd6286c1ab70f%22&amp;size=2560)](https://spark.adobe.com/page/sDIkgSLHAkbW6/images/c77e9842-1ced-44ad-a02b-aa22a21e673c.png?asset_id=87ee58d5-6585-438b-99fd-3d6d43f886d4&amp;img_etag=%229a277c28916d1a3a296bd6286c1ab70f%22&amp;size=1024)
+
+在我们进一步沿着这条道路前行碰撞之前，需要回答一些问题。
+
+台湾属于谁？如果答案是自1972年以来一直认为的 – “台湾是中国的一部分”，那么从北京的立场来看，鼓励2500万台湾人寻求独立难道不是“煽动叛乱”吗？如果中共国使用武力迫使台湾放弃任何独立的权利，我们准备好与拥有核武器的中共国就该岛的政治地位和方向打一场战争吗？
+
+当1950年中共征服西藏，并开始对该地区的民族和文化进行清洗时，我们做了什么？
+
+基本上，什么也没做。
+
+当中共国占领并加固南海各处的岩礁时，我们做了什么？
+
+基本上，什么也没做。
+
+当中共国镇压我们所鼓励的香港民主抗争运动，并对该岛700万人民实施新的国家安全法时，我们做了什么？
+
+[!\[\]()!\[\](https://spark.adobe.com/page/sDIkgSLHAkbW6/images/c2c7a781-9b1f-4605-a066-174cb86ee1d5.jpg?asset_id=dcc1172f-eebd-45d7-8018-0d9c743b8d01&amp;img_etag=%228556941bb67b3df69aae8651ecb1aef6%22&amp;size=2560)](https://spark.adobe.com/page/sDIkgSLHAkbW6/images/c2c7a781-9b1f-4605-a066-174cb86ee1d5.jpg?asset_id=dcc1172f-eebd-45d7-8018-0d9c743b8d01&amp;img_etag=%228556941bb67b3df69aae8651ecb1aef6%22&amp;size=1024)
+
+基本上，什么也没做。
+
+现在，习近平直言不讳地告诉美国，中共国如何对待西藏人、维吾尔人、基督徒和法轮功学员，他们都是中共国公民，这与美国无关；就像我们对待北美土著人那样，那也与中华帝国无关。
+
+中共国的政治和经济发展模式在本世纪获得成功，作为西方自由民主模式的替代物。
+
+北京不相信不受限制的宗教、言论或新闻自由。它不相信通过投票箱选择领导人。
+
+中国不是一个平等主义社会。它不相信所有种族、宗教和族群都是平等的。它不赞美多样性，反而害怕多样性，因为它看到种族多样性对苏联的影响，使它分裂为15个国家。
+
+它不相信种族份额的进步，而相信奖励忠诚和业绩的任人唯贤。并且中共国学生的考试成绩是世界上最高的。
+
+当中共国窃取美国在华工厂的知识产权时，是谁把工厂搬到中共国利用廉价劳动力，在那里可以雇佣时薪2美元的工人？
+
+[!\[\]()!\[\](https://spark.adobe.com/page/sDIkgSLHAkbW6/images/7e2e8bf6-622a-4695-bfb6-7023d012aec5.png?asset_id=2cf7e196-0758-4264-90fd-779307123b9f&amp;img_etag=%22cfc66f8d5993fc2c4c809278a96d8408%22&amp;size=2560)](https://spark.adobe.com/page/sDIkgSLHAkbW6/images/7e2e8bf6-622a-4695-bfb6-7023d012aec5.png?asset_id=2cf7e196-0758-4264-90fd-779307123b9f&amp;img_etag=%22cfc66f8d5993fc2c4c809278a96d8408%22&amp;size=1024)
+
+北京称，任何将我们的“普世价值”强加给中共国的企图，都是对中共国内政的干涉。任何试图从北京割断其对台湾或南海的南沙群岛或西沙群岛的管辖权的行为都将受到武力抵制。
+
+此外，南海和东海有争议的岩礁都不涉及美国宣称的任何领土，并且我们已经承认台湾是“中国的一部分”达50年之久，为什么我们还要派航母战斗群进入这些海域并通过台湾海峡？
+
+我们在威胁什么？
+
+周日，由美国“西奥多·罗斯福”号航母率领的美国航母战斗群驶入南海进行“航行自由”演习，这是拜登总统领导的首次此类行动。
+
+就在这一天，那些中共国的轰炸机和战斗机飞入台湾的航空识别区。我们需要谈谈。
+
+**🔗[原文链接](https://www.zerohedge.com/geopolitical/coexistence-or-cold-war-china?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)**
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+
+
+编辑：[【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/sDIkgSLHAkbW6/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/sDIkgSLHAkbW6/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/sDIkgSLHAkbW6/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 +1
