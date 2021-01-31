@@ -1,33 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 不要指望疫苗，唯有灭共！初步试验结果显示疫苗可能对南非变种毒株无效
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/849241/)
+## 加国效仿中共 入境者须自费检测病毒入驻指定隔离酒店
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/849593/)
 
-编辑：喜马拉雅农场联盟新西兰奥克兰伊甸农场
+*加拿大多伦多枫叶农场 文锦*
 
-编者：Stephen(文文)
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/image0-351.jpg)
-近日疫苗研发公司Moderna及Novavax公布了其COVID-19疫苗对新变种病毒保护力试验数据，结果表明两家公司的疫苗或对南非变种病毒毒株501Y.V2（B.1.351）的保护力不足。对南非变种病毒而言，Moderna疫苗产生的抗体中和效果下降了6倍；Novavax疫苗对南非变种病毒的保护力仅为49.4％。
+*校对 小鸥*
 
-近期出现的英国、南非变种病毒比普通病毒具有更高的传播效率，人们也开始普遍担心疫苗对其防护效力。最初，几家疫苗公司均表示自己的疫苗仍然可有效防护新的变种病毒。但是实验结果表明并非如此乐观。
+*发布 文锦*
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Quarantine-canada_329193691-4.jpeg)图片来源： Immigration.ca
+2021年1月29日，加拿大政府网站公布了新的应对中共病毒措施。在未来几周，入境者将被要求：**1. 抵达后自费进行中共病毒检测；2. 等待测试结果期间，自费在加拿大政府批准的酒店预订一个房间，住三晚**。旅客将入驻并支付酒店费用，及所有相关食品、清洁和安全费用并仍需完成14天的强制隔离。
 
-1月25日，Moderna宣布了其CCP病毒疫苗mRNA-1273对英国、南非变种病毒的初步实验结果。其疫苗诱导产生的抗体对南非变种病毒501Y.V2（B.1.351）的中和效价降低了六倍。这些较低的滴度可能表明对新的B.1.351菌株免疫力较早减弱的潜在风险。这项研究是与NIH合作进行的，该手稿已作为bioRxiv的预印本提交，提交给同行评审出版。
+为确保旅客了解并遵守检疫要求，加拿大公共卫生局（PHAC）让安保公司监督抵达加拿大的旅客。该局已将合同授予四家安全公司：加拿大专员团（The Canadian Corps of Commissionaires）、G4S安全解决方案（加拿大）有限公司（G4S Secure Solutions (Canada) Ltd.）、加拿大警卫公司（Garda Canada Security Corporation 简称GardaWorld)和帕拉丁风险解决方案（Paladin Risk Solutions）。这些公司的检查人员将去旅客的隔离点，确认旅客身份及其入境后的隔离点，以确保旅客遵守14天强制隔离。检查人员将于2021年1月29日在蒙特利尔和多伦多等全国35个城市实施监督。
 
-1月28日，Novavax也公布了其重组蛋白疫苗NVX-CoV2373的临床实验结果。NVX-CoV2373是重组的全长SARS-CoV-2棘突S蛋白，与Moderna与辉瑞的mRNA疫苗不同。其中，在南非进行的2b期临床试验中显示的功效为49.4％（95% CI:6.1–72.8），在HIV阴性人群中，也仅观察到60％（95％ CI:19.9–80.1）的功效。特别是在已证实的试验感染者中南非变种病毒竟占92.6％（27个病例中的25个）。该提示该疫苗对南非变种病毒的保护力严重不足。
+检查人员可根据需要提供合规教育或发出口头警告。任何需要采取更严厉执法行动的案件将提交公共卫生咨询中心，该中心将把案件提交执法部门采取后续行动。
 
-流行病预防创新联盟（CEPI）资助了该2b期临床试验的剂量NVX-CoV2373的制造，其中部分获得比尔和梅琳达·盖茨基金会的1500万美元资助。
+根据官员在边境和核查电话中获得的信息，以评估旅行者是否遵守规定。根据《检疫法》，不提供准确信息被认为是一种罪，此外，违反安检官员或检疫官员在旅客进入加拿大时向其提供的任何检疫或隔离指示，也属违法行为，可能导致一系列处罚，包括6个月的监禁和（或）75万加元的罚款。
 
-爆料革命闫博士早在2020年就曾公开告诉过全世界，不要过多指望疫苗可以完全解决CCP病毒问题。只要疫苗出来，CCP就会释放其他毒株令现有疫苗失效。从两家疫苗公司的初步数据来看，果然新的变种毒株很有可能令这两款疫苗失效。唯有消灭病毒制造的来源CCP，才能保证没有人为的新毒株放出来，才能逐步想法解决病毒流行问题。
-
-[参考链接1](https://investors.modernatx.com/news-releases/news-release-details/moderna-covid-19-vaccine-retains-neutralizing-activity-against)
-
-[参考链接2](https://ir.novavax.com/news-releases/news-release-details/novavax-covid-19-vaccine-demonstrates-893-efficacy-uk-phase-3)
-
-【文章仅限作者个人观点】
-
-审核校对：玫瑰天空
-
-上传排版：糊糊文婴
+*[原文链接](https://www.canada.ca/en/transport-canada/news/2021/01/canada-to-implement-new-testing-and-quarantine-measures-to-reduce-covid-19-infection-related-to-non-essential-international-air-travel.html)*
 
 0

@@ -1,59 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香草播报：【世事解评】关于新冠病毒，闫丽梦博士如是说
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/850321/)
+## 【每日快讯】30/01/2021:七哥火了，这个世界疯了，所有人都和我联系，要反共要灭共
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/850801/)
 
-作者：香草山翻译组 GBWater
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-闫丽梦博士原是中共国眼科和病毒学专家，曾在香港大学世界卫生组织的参考实验室工作，是世卫组织与中共国政府之间的重要联系人。2020年1月，闫博士不顾个人生命危险，向世界预警了中共冠状病毒的破坏力，是世界人民的英雄！所有这些都已经被时间证明! 现在让我们回顾一下她说过的话。
+**制作:Cantonese工作室**
 
-2020年1月19日，闫博士通过路德社爆料:
 
-**“病毒会人传人，强变异，大爆发！”**
+播报: 美国小李
+资料收集: Cathy、Ruby、美国小李、Annie
+视频制作: Shawn
+海报制作: 侬民
+上传: Shawn
+**摘要:**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/Screenshot-2021-01-30-224102-11.jpg)
-
-当中共造谣病毒自然起源的时候，闫博士提供了很多强有力的证据，表明病毒是中共在实验室制造的。
-
-**“我们必须面对一个事实，新冠病毒就是生物武器，我们正处在与中国共产党发起的超限生物战争。病毒骨架来自中共军方独有的舟山蝙蝠病毒。独有的福林酶切位点加强了S 蛋白的稳定性和入侵性，重组的受体结合域增强了与人类ACE2受体结合的能力。”**
-
-世界一些顶尖的科学家与中共勾结，参与掩盖病毒真相，并且大多数科学家在中共的威胁下保持了沉默。
-
-**“勇敢的记者公布了科学界最具影响力的专家丽塔-科威尔博士的电子邮件，揭露了科学界隐藏的肮脏行径！”。
-“从生态健康联盟的邮件中，科学家们没有证明甚至没有查证冠状病毒的来源，他们被要求在一份报告上签字，报告上说病毒来自大自然，没有人可以怀疑。”**
-
-如今，世界各国政府都在为本国人民接种新冠疫苗，然而，闫博士指出了抗体依赖性增强效应（ADE）的潜在风险。
-
-**“这种病毒会使人们产生ADE 效应(抗体依赖增强)，如果人们已经接种了这种病毒的疫苗，ADE会使他们处于危险之中!”**
-
-ADE是指第一次感染后形成的次优抗体会在第二次感染时帮助病毒更容易进入细胞。这就是为什么我们看到很多人在第二次感染中共冠状病毒时，会出现更严重的症状，甚至死亡。冠状病毒疫苗会不会在部分人群中产生次优抗体呢？
-
-为了有效防治中共冠状病毒，确保今后不再发生同样的悲剧，闫博士指出：
-
-**“中共就像‘权力的游戏’中的‘夜王’！病毒是它的异鬼大军，袭击了人类世界。只要消灭夜王，就会找到病毒的解药！”
-“谁是这次大流行病的幕后黑手？中共！COVID-19是中共的超限生物武器！中共是人类的敌人！许多中国人正努力地从内部摧毁中共，干掉中共！”
-“COVID-19是中共的超限生物武器！统治世界是中共唯一的目标！觉醒吧！你还在等什么？我们必须反击！”
-“病毒真相与政治无关。关乎人类存亡。”**
-
-我们感谢闫博士的勇气和善良。我们要确保闫博士不是一个人在战斗。每个人都有责任加入到拯救我们人类的战斗中去。 让我们一起传播病毒真相！
-
-资料：
-1.科学界的腐败
-[https://twitter.com/andy5\_123/status/1330126111955709952?s=21](https://twitter.com/andy5_123/status/1330126111955709952?s=21)
-2.闫丽梦博士发布了她的第二份病毒报告：SARS-CoV-2是超限生物武器
-[https://t.co/Grrlr2LTS3](https://t.co/Grrlr2LTS3)
-3.“超限生物武器”：来自中国的吹哨人闫博士，发了第二份病毒报告，揭露冠状病毒是来自于中共军方实验室！
-[https://t.co/OPVI7ptktQ](https://t.co/OPVI7ptktQ)
-
-编辑/校对/发稿：宁静致远
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-0
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-01-2.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-02-3.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-03-1.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-04-4.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-05-1.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-06-2.jpg)
+7.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-07.jpg)
+8.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-08-1.jpg)
+9.
+![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-09.jpg)
++1
