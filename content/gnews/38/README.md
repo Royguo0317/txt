@@ -1,71 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国病毒专家Peter Daszak与科学女巫石正丽两个人谁在上边谁在下边
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/850292/)
+## 香草播报：【世事解评】关于新冠病毒，闫丽梦博士如是说
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/850321/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/封面-259.jpg)
-撰稿：巴黎七星农场；审核：喜马拉雅的馍夹肉；校对：Maarago
+作者：香草山翻译组 GBWater
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+闫丽梦博士原是中共国眼科和病毒学专家，曾在香港大学世界卫生组织的参考实验室工作，是世卫组织与中共国政府之间的重要联系人。2020年1月，闫博士不顾个人生命危险，向世界预警了中共冠状病毒的破坏力，是世界人民的英雄！所有这些都已经被时间证明! 现在让我们回顾一下她说过的话。
 
-据[\[email protected\]](https://twitter.com/wangqin56612794)回复[@PeterDaszak](https://twitter.com/PeterDaszak)和[@NBCNews](https://twitter.com/NBCNews)[上午11:16 · 2021年1月31日](https://twitter.com/wangqin56612794/status/1355716621935865862)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)
+2020年1月19日，闫博士通过路德社爆料:
 
+**“病毒会人传人，强变异，大爆发！”**
 
+![]()![](https://gnews.org/wp-content/uploads/2021/01/Screenshot-2021-01-30-224102-11.jpg)
 
-> [pic.twitter.com/y7RzEzIqHp](https://t.co/y7RzEzIqHp)
-> — wangqin (@wangqin56612794) [January 31, 2021](https://twitter.com/wangqin56612794/status/1355716621935865862?ref_src=twsrc%5Etfw)
+当中共造谣病毒自然起源的时候，闫博士提供了很多强有力的证据，表明病毒是中共在实验室制造的。
 
+**“我们必须面对一个事实，新冠病毒就是生物武器，我们正处在与中国共产党发起的超限生物战争。病毒骨架来自中共军方独有的舟山蝙蝠病毒。独有的福林酶切位点加强了S 蛋白的稳定性和入侵性，重组的受体结合域增强了与人类ACE2受体结合的能力。”**
 
+世界一些顶尖的科学家与中共勾结，参与掩盖病毒真相，并且大多数科学家在中共的威胁下保持了沉默。
 
-我们可以看出此次领衔主演赴中国进行冠状病毒溯源的主角是Perter Daszak同志，该同志与为中共卖命的蝙蝠女巫石正丽的友谊源远流长，那么Peter Daszak同志与石正丽同志到底谁在上边谁在下边呢？请大家不要误会，本文并非八卦，而是为了通过学术考证一下Peter Daszak同志与石正丽同志到底谁在上边谁在下边。
+**“勇敢的记者公布了科学界最具影响力的专家丽塔-科威尔博士的电子邮件，揭露了科学界隐藏的肮脏行径！”。
+“从生态健康联盟的邮件中，科学家们没有证明甚至没有查证冠状病毒的来源，他们被要求在一份报告上签字，报告上说病毒来自大自然，没有人可以怀疑。”**
 
-据他们共同发表的论文1：[Bat Severe Acute Respiratory Syndrome-Like Coronavirus WIV1 Encodes an Extra Accessory Protein, ORFX, Involved in Modulation of the Host Immune Response](https://pubmed.ncbi.nlm.nih.gov/27170748/)（蝙蝠严重急性呼吸系统综合症样冠状病毒WIV1编码额外的附件蛋白ORFX，参与宿主免疫反应的调节。）,这篇论文被收入闫丽梦博士的Unusual Features of theSARS-CoV-2Genome Suggesting Sophisticated Laboratory Modification Rather Than Natural Evolution and Delineation of Its ProbableSynthetic Route (SARS-CoV-2基因组的不寻常特征表明其经由实验室复杂改造的特性非源于自然进化及其可能的合成路径的描述)报告中的参考文献内，这篇论文的作者顺序是——
+如今，世界各国政府都在为本国人民接种新冠疫苗，然而，闫博士指出了抗体依赖性增强效应（ADE）的潜在风险。
 
-[Lei-Ping Zeng](https://pubmed.ncbi.nlm.nih.gov/?term=Zeng+LP&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Yu-Tao Gao](https://pubmed.ncbi.nlm.nih.gov/?term=Gao+YT&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Xing-Yi Ge](https://pubmed.ncbi.nlm.nih.gov/?term=Ge+XY&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Qian Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+Q&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Cheng Peng](https://pubmed.ncbi.nlm.nih.gov/?term=Peng+C&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Xing-Lou Yang](https://pubmed.ncbi.nlm.nih.gov/?term=Yang+XL&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Bing Tan](https://pubmed.ncbi.nlm.nih.gov/?term=Tan+B&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Jing Chen](https://pubmed.ncbi.nlm.nih.gov/?term=Chen+J&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Aleksei A Chmura](https://pubmed.ncbi.nlm.nih.gov/?term=Chmura+AA&amp;cauthor_id=27170748) [2](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-2), [Peter Daszak](https://pubmed.ncbi.nlm.nih.gov/?term=Daszak+P&amp;cauthor_id=27170748) [2](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-2), [Zheng-Li Shi](https://pubmed.ncbi.nlm.nih.gov/?term=Shi+ZL&amp;cauthor_id=27170748) [3](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-3)
+**“这种病毒会使人们产生ADE 效应(抗体依赖增强)，如果人们已经接种了这种病毒的疫苗，ADE会使他们处于危险之中!”**
 
-也就是说从顺序上看Peter Daszak同志在石正丽上边，但是从学术惯例上看，最后署名者才是No.1，也就是说虽然Peter Daszak同志的名字在石正丽同志上边，但是其学术地位在石正丽同志下边。
+ADE是指第一次感染后形成的次优抗体会在第二次感染时帮助病毒更容易进入细胞。这就是为什么我们看到很多人在第二次感染中共冠状病毒时，会出现更严重的症状，甚至死亡。冠状病毒疫苗会不会在部分人群中产生次优抗体呢？
 
-据他们共同发表的论文2：[Discovery of a rich gene pool of bat SARS-related coronaviruses provides new insights into the origin of SARS coronavirus](https://journals.plos.org/plospathogens/article?id=10.1371/journal.ppat.1006698)（蝙蝠SARS相关冠状病毒丰富基因库的发现为SARS冠状病毒的起源提供了新见解）,这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
+为了有效防治中共冠状病毒，确保今后不再发生同样的悲剧，闫博士指出：
 
-Ben Hu ,Lei-Ping Zeng ,Xing-Lou Yang ,Xing-Yi Ge,Wei Zhang,Bei Li,Jia-Zheng Xie,Xu-Rui Shen,Yun-Zhi Zhang,Ning Wang,Dong-Sheng Luo,Xiao-Shuang Zheng,Mei-Niang Wang,Peter Daszak,Lin-Fa Wang,Jie Cui ,Zheng-Li Shi
+**“中共就像‘权力的游戏’中的‘夜王’！病毒是它的异鬼大军，袭击了人类世界。只要消灭夜王，就会找到病毒的解药！”
+“谁是这次大流行病的幕后黑手？中共！COVID-19是中共的超限生物武器！中共是人类的敌人！许多中国人正努力地从内部摧毁中共，干掉中共！”
+“COVID-19是中共的超限生物武器！统治世界是中共唯一的目标！觉醒吧！你还在等什么？我们必须反击！”
+“病毒真相与政治无关。关乎人类存亡。”**
 
-也就是说在这篇论文里Peter Daszak同志在王林发同志上边，王林发同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边，王林发同志在石正丽同志下边，Peter Daszak同志在王林发同志下边。
+我们感谢闫博士的勇气和善良。我们要确保闫博士不是一个人在战斗。每个人都有责任加入到拯救我们人类的战斗中去。 让我们一起传播病毒真相！
 
-据他们共同发表的论文3：[Isolation and characterization of a bat SARS-like coronavirus that uses the ACE2 receptor](https://www.nature.com/articles/nature12711)（使用ACE2受体的蝙蝠SARS样冠状病毒的分离和鉴定）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
+资料：
+1.科学界的腐败
+[https://twitter.com/andy5\_123/status/1330126111955709952?s=21](https://twitter.com/andy5_123/status/1330126111955709952?s=21)
+2.闫丽梦博士发布了她的第二份病毒报告：SARS-CoV-2是超限生物武器
+[https://t.co/Grrlr2LTS3](https://t.co/Grrlr2LTS3)
+3.“超限生物武器”：来自中国的吹哨人闫博士，发了第二份病毒报告，揭露冠状病毒是来自于中共军方实验室！
+[https://t.co/OPVI7ptktQ](https://t.co/OPVI7ptktQ)
 
-Xing-Yi Ge, Jia-Lu Li, Xing-Lou Yang, Aleksei A. Chmura, Guangjian Zhu, Jonathan H. Epstein, Jonna K. Mazet, Ben Hu, Wei Zhang, Cheng Peng, Yu-Ji Zhang, Chu-Ming Luo, Bing Tan, Ning Wang, Yan Zhu, Gary Crameri, Shu-Yi Zhang, Lin-Fa Wang, Peter Daszak & Zheng-Li Shi
+编辑/校对/发稿：宁静致远
 
-也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-据他们共同发表的论文4：[Bat Severe Acute Respiratory Syndrome-Like Coronavirus WIV1 Encodes an Extra Accessory Protein, ORFX, Involved in Modulation of the Host Immune Response](https://jvi.asm.org/content/90/14/6573)（蝙蝠严重急性呼吸系统综合症样冠状病毒WIV1编码额外的附件蛋白ORFX，参与宿主免疫反应的调节。）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-Lei-Ping Zeng, Yu-Tao Gao, Xing-Yi Ge, Qian Zhang, Cheng Peng, Xing-Lou Yang, Bing Tan, Jing Chen, Aleksei A. Chmura, Peter Daszak, Zheng-Li Shi
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
-
-据他们共同发表的论文5：[Isolation and Characterization of a Novel Bat Coronavirus Closely Related to the Direct Progenitor of Severe Acute Respiratory Syndrome Coronavirus](https://pubmed.ncbi.nlm.nih.gov/26719272/)（与严重急性呼吸系统综合症冠状病毒直接祖细胞密切相关的新型蝙蝠冠状病毒的分离和鉴定）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
-
-Xing-Lou Yang 1, Ben Hu 1, Bo Wang 1, Mei-Niang Wang 1, Qian Zhang 1, Wei Zhang 1, Li-Jun Wu 1, Xing-Yi Ge 1, Yun-Zhi Zhang 2, Peter Daszak 3, Lin-Fa Wang 4, Zheng-Li Shi 5
-
-也就是说在这篇论文里Peter Daszak同志在王林发同志上边，王林发同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边，王林发同志在石正丽同志下边，Peter Daszak同志在王林发同志下边。
-
-据他们共同发表的论文6：[Fugong virus, a novel hantavirus harbored by the small oriental vole (Eothenomys eleusis) in China](https://virologyj.biomedcentral.com/articles/10.1186/s12985-016-0483-9)（扶公病毒，一种由东方小田鼠（Eothenomys eleusis）携带的新型汉坦病毒）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
-
-Xing-Yi Ge, Wei-Hong Yang, Hong Pan, Ji-Hua Zhou, Xi Han, Guang-Jian Zhu, James S. Desmond, Peter Daszak, Zheng-Li Shi & Yun-Zhi Zhang
-
-也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
-
-据他们共同发表的论文7：[Detection of diverse novel astroviruses from small mammals in China](https://pubmed.ncbi.nlm.nih.gov/25034867/)（从中国小型哺乳动物中检测出多种新型冠状病毒）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
-
-Ben Hu 1, Aleksei A Chmura 2, Jialu Li 1, Guangjian Zhu 2, James S Desmond 2, Yunzhi Zhang 3, Wei Zhang 1, Jonathan H Epstein 2, Peter Daszak 2, Zhengli Shi 1
-
-也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
-
-言而总之，Peter Daszak同志与石正丽同志谁在上边谁在下边的问题比较复杂，就像这次领衔主演去中国进行冠状病毒溯源闹剧一样的，名义上Peter Daszak同志在上边石正丽同志在下边，但实际上石正丽同志在上边Peter Daszak同志在下边，当Peter Daszak同志端起了baijiu，当石正丽同志端起了baijiu，我听到的声音是这样的——
-
-激动的心、颤抖的手，领导在上我在下，激动的心、颤抖的手，领导几口我几口。同志们，为了党为了国家，大家干了这碗酒！
-
-（文章内容仅代表作者个人观点）
-
-
-
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 0

@@ -1,76 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新的英国签证将向300万（BNO）持有人开放
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/852125/)
+## 实锤证据：孔子学院如何渗透美国校园
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/852217/)
 
-新闻来源：《天空新闻（Sky News)》| 作者：格雷格·赫弗（Greg Heffer） | 发布时间：2021年1月29日
+新闻来源：Campus Reform《校园改革》| 作者：Jezzamine Wolk 贾思敏•沃尔克| 发布时间：2021年1月29日
+翻译/简评：Cathy r| 校对：X-Wing飞得更高| 审核：万人往| Page：Cathy r
 
-翻译/简评：Marialu | 校对：感恩 | 审核：万人往 | Page：Daoiii
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/960-38.jpg)
-***简评：***
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/kzxy6-1.jpg)
 
-**根据英国《天空新闻》报道，自中共在香港实施《新国安法》以来，英国政府向那些持有英国国民海外(BNO)身份的人提供获得英国身份的途径。最新消息称，一个新的签证通道自本月31日(周日）起开放，到时将有近300万人可以申请赴英国生活、学习和工作，在英国居住5年后，他们将能够申请定居身份——再过12个月，他们将可以申请英国公民身份。这是英国政府以此作为“反对北京镇压异议”的手段。**
+**简评：**
 
-**英国首相鲍里斯·约翰逊说：“我感到非常自豪，我们为香港(BNO)持有人提供了这条新的途径，让他们在英国生活、工作和安家。我们这样做是为了尊重我们与香港人民之间深厚的历史关系和友谊，我们捍卫自由和自治——即英国和香港都珍视的价值观。”**
+《校园改革》独家获得了纽约州立大学与中共国孔子学院总部之间的2016年续签协议，以及纽约州立大学全球事务办公室与南京财经大学之间2016年续签商务孔子学院的补充协议。章家墩认为这些孔子学院的合同赋予中方很大的权力，中方可以提供教材或成为董事会主席。美国人已经意识到了孔子学院是中共政权的“宣传”中心，对美国国家安全构成重大的威胁。
 
-**然而，北京本周五表示：从1月31日（周日）起中方将不再承认(BNO)护照作为旅行证件和身份证明，试图阻止香港人离开。很明显，中共政府违犯《中英联合声明》，无视国际条约，现在更进一步践踏香港人的行动自由。**
-[!\[\]()!\[\](https://spark.adobe.com/page/BFFDw534JadbR/images/f12e8df2-a8c9-453f-b243-ed008c9fc8c5.jpg?asset_id=d4da8b54-8626-40fd-8317-907dda547500&amp;img_etag=%22e8723fd602bba13ac3dd950fe17712d6%22&amp;size=1024)](https://spark.adobe.com/page/BFFDw534JadbR/images/f12e8df2-a8c9-453f-b243-ed008c9fc8c5.jpg?asset_id=d4da8b54-8626-40fd-8317-907dda547500&amp;img_etag=%22e8723fd602bba13ac3dd950fe17712d6%22&amp;size=1024)来源：立場新聞
+**原文翻译：**
 
+## 独家：新获得的文件揭示了中共国对校园影响力的令人不安的细节
 
-**英国外交大臣多米尼克·拉布表示，英国政府“在香港问题上不会坐视不理”，并将“履行我们对香港人民的历史责任。英国将永远坚持正义，恪守我们的承诺”。反观中共对香港承诺的所谓“一国两制”五十年不变，中共亲自撕毁承诺。现在被中共“以警治港，以黑治港”的统治下，美丽的香港已沦为中共的一个新殖民地，没有了言论自由和集会自由，没有民主和法治，无处不受国安和香港伪政府的监控及骚扰。**
+- 多年来，《校园改革》（Campus Reform）报道了在美国广泛运营的中资中心。
+- 现在，《校园改革》独家获得的新文件显示了专家们长期以来一直在警告的事情。
 
-**我们强烈呼吁英国政府及其他民主国家向中共政府作出强硬的立场和回应，看清中共的残暴邪恶本质以及在香港犯下的滔天罪行。CCP是人类文明发展的最大威胁，揭露中共，消灭中共，这是每个有正义和良知的新中国联邦人的共同事业。**
+[!\[\]()!\[\](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/bc5a8860-35a7-4a9a-9438-c059d99013d0.png?asset_id=dd620629-100a-4fa4-a998-e0ca366a3116&amp;img_etag=%22bf2a1b50081cafe0be27e358a3f4c096%22&amp;size=2560)](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/bc5a8860-35a7-4a9a-9438-c059d99013d0.png?asset_id=dd620629-100a-4fa4-a998-e0ca366a3116&amp;img_etag=%22bf2a1b50081cafe0be27e358a3f4c096%22&amp;size=1024)
+根据《信息自由法》（a Freedom of Information Act）的要求，《校园改革》独家获得了纽约州立大学（State University of New York）与中共国孔子学院总部之间的2016年续签协议。
 
-***原文翻译：***
+[!\[\]()!\[\](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/3323a3bc-e258-4c49-8daa-b44462984945.jpg?asset_id=59ce94e4-3669-4632-9dae-f9cd4975ad41&amp;img_etag=%22dd1d2b78732c4f7709b02b651e5db897%22&amp;size=2560)](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/3323a3bc-e258-4c49-8daa-b44462984945.jpg?asset_id=59ce94e4-3669-4632-9dae-f9cd4975ad41&amp;img_etag=%22dd1d2b78732c4f7709b02b651e5db897%22&amp;size=1024)
 
-### 香港：新的英国签证途径将向多达300万人开放
+关于纽约州立大学商务孔子学院的文件揭示了中共国对纽约州立大学影响力的内部一瞥。
 
-**继中共国实施了一项有争议的新安全法后，（英国政府）正在向（BNO）身份的人提供获得英国身份的途径。**
-[!\[\]()!\[\](https://spark.adobe.com/page/BFFDw534JadbR/images/35cb0e02-6f3a-4b7e-9abc-aa3c39f664e8.png?asset_id=5d68e52b-74fe-4e4e-88a3-5c53190c5302&amp;img_etag=%2283dcfacc5a0ddb934a73ea417bd81f88%22&amp;size=1024)](https://spark.adobe.com/page/BFFDw534JadbR/images/35cb0e02-6f3a-4b7e-9abc-aa3c39f664e8.png?asset_id=5d68e52b-74fe-4e4e-88a3-5c53190c5302&amp;img_etag=%2283dcfacc5a0ddb934a73ea417bd81f88%22&amp;size=1024)图片：去年中共国对香港实施了一项颇具争议的新安全法
-一个新的签证通道周日开放，届时香港将有近300万人可以申请在英国生活、学习和工作。
+该文件以中英文书写，指出该协议的目标是“加强中美之间的教育合作，支持和促进汉语教学的发展，增进中美两国人民之间的相互了解。”
 
-去年夏天，政府为那些持有英国国民（海外）身份的人及其符合条件的家庭成员提供了一条获得英国公民身份的途径。
+根据该文件，孔子学院提供教授中文的服务；提供有关中共国商业、贸易和金融的培训；并提供有关中共国教育、文化和其他服务的咨询服务。
 
-此前，中共国在香港实施了一项颇具争议的新安全法，自那以后，英国将其描述为“反对北京镇压异议”的手段。
+在活动部分下，有一个“其他”部分未指定，但允许“经授权并经总部任命”。
 
-与其他签证一样，在英国居住5年后，他们将能够申请定居身份——再过12个月，他们将可以申请英国公民身份。
+《美中大型高技术战争》的作者和中国共产党频繁的批评家章家敦告诉《校园改革》，合同似乎有利于中共国。
 
-英国首相鲍里斯·约翰逊说：“我感到非常自豪，我们为香港的英国海外侨民(BNO)提供了这条新的途径，让他们在我们的国家生活、工作和安家。”
+[!\[\]()!\[\](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/e1616e4a-99fe-4828-80e1-af047dc90d66.jpg?asset_id=75007c4c-8b40-40d9-951a-c801a76615d0&amp;img_etag=%2221bb443cb5f3f1e10776c93df32d323a%22&amp;size=2560)](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/e1616e4a-99fe-4828-80e1-af047dc90d66.jpg?asset_id=75007c4c-8b40-40d9-951a-c801a76615d0&amp;img_etag=%2221bb443cb5f3f1e10776c93df32d323a%22&amp;size=1024)
 
-“我们这样做是为了尊重我们与香港人民之间深厚的历史关系和友谊，我们捍卫自由和自治——即英国和香港都珍视的价值观。”
+他说：“我认为这些孔子学院的合同赋予中方很大的权力，因为教育机构希望北京为语言教学提供资金，但更重要的是，他们希望中共国学生持续不断地来美学习，他们通常会缴纳全部学费。”
 
-英国政府之前已宣布中共国的新国安法违反了《中英联合声明》，即1997年香港从英国归回到中国的协议。
+他补充说：“中共国学费已经成为许多大学和学院收入的重要来源。”
 
-然而，北京周五表示，从周日起将不再承认BN(O)护照——这是一个重大的但主要是象征性的举措，因为这不应该阻止香港人离开。
+多年来，《校园改革》已报道这些中共国投资运营在美国的研究中心。孔子学院自我推销为中共国的文化中心，但很多专家和官员都警告说，他们是共产党政权的“宣传”中心。
 
-外交大臣多米尼克·拉布表示，英国政府“在香港问题上不会坐视不理”，并将“履行我们对香港人民的历史责任”。
+[!\[\]()!\[\](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/2229fdb8-348e-4ef3-b047-26d1706a698e.jpg?asset_id=8187b089-4c89-4c21-ac3c-02359203fe94&amp;img_etag=%22e776870a20faf6ea02cb7a9486b565bc%22&amp;size=2560)](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/2229fdb8-348e-4ef3-b047-26d1706a698e.jpg?asset_id=8187b089-4c89-4c21-ac3c-02359203fe94&amp;img_etag=%22e776870a20faf6ea02cb7a9486b565bc%22&amp;size=1024)
 
-英国内政大臣普里蒂·帕特尔（Priti Patel）补充说：“全球英国将永远坚持正确的立场，并恪守我们的承诺。”
+“孔子学院不是文化中心。”美国遗产基金会（Heritage Foundation）的道格拉斯和萨拉•艾里森外交政策中心（Douglas and Sarah Allison Center for Foreign Policy）资深研究员，《改变美国的阴谋》（The Plot to Change America）一书的作者迈克•冈萨雷斯（Mike Gonzalez）告诉《校园改革》。
 
-在新的签证途径开放前的过去6个月里，大约有7000名英国国民海外(BNO)身份的持有人及其家属已经获批“特许入境许可”(LOTR)到英国。
+他说：“孔子学院旨在遏制和限制美国人对中共国现实的了解。”
 
-英国政府估计，有290万英国国民海外(BNO)公民有资格移居英国，另外估计还有230万符合条件的家属。
+[!\[\]()!\[\](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/959be841-512c-439e-bf86-37e74892173a.jpg?asset_id=ec8ca3ea-60d9-4e12-ac6f-bb316d166fe4&amp;img_etag=%22737834bf4594e7b90c279130590fdcf1%22&amp;size=2560)](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/959be841-512c-439e-bf86-37e74892173a.jpg?asset_id=ec8ca3ea-60d9-4e12-ac6f-bb316d166fe4&amp;img_etag=%22737834bf4594e7b90c279130590fdcf1%22&amp;size=1024)
 
-他们预计，第一年将有多达15.5万名BN(O)身份持有者及其家属使用新的签证途径，五年内将有25万至32.5万人使用新的签证途径。
+根据美国国家学者协会（National Association of Scholars）的数据，截至2021年1月，全美共有63所孔子学院，其中一所位于美国最大的综合性大学纽约州立大学内。
 
-从2月23日起，那些符合条件的持有生物识别护照的人可以在线申请，然后使用智能手机应用程序扫描护照，而不是去签证申请中心。
+最初的五年协议于2010年签署，2016年由孔子学院总部首席执行官徐琳和纽约州立大学研究基金会（Research Foundation）的系统管理研究基金运营经理帕特里克•瑞安（Patrick Ryan）重新签署。
 
-逗留5年的签证费为每人250英镑，或者申请人还可以申请逗留30个月，费用为每人180英镑。
+根据该协议，中共国孔子学院总部有义务“根据教学要求派遣中共国讲师，并支付他们的机票和薪金”，而纽约州立大学则有义务“协助中共国讲师进行签证申请、居留程序和入境美国事宜”。
 
-这比许多其他签证（费）要低。
+中共国孔子学院总部还被要求提供教材和“根据需要”的一定数量的年度资金，而纽约州立大学仅需提供设施并补偿必要的行政人员。
 
-申请人必须自给自足，并需要证明他们在抵达英国后至少六个月内可以容纳并维持自己及其家人。
+“我们需要知道接受公共资金教育的学生将学习哪些有关中共国的知识。”冈萨雷斯说，并抨击纽约州立大学以这种方式使用纳税人的钱。
 
-他们还必须没有严重的刑事犯罪记录。
+冈萨雷斯继续说道：“中共国是一个对手，正在成为全球大国的竞争对手，我们需要充分意识到他们是谁。他们试图假冒自己作为另一个如法国、秘鲁或荷兰之类的国家，但事实并非如此。他们是专制政权。”
 
-🔗[原文链接](https://news.sky.com/story/hong-kong-new-uk-visa-route-to-open-for-up-to-three-million-people-12201782#:~:text=Travel-,Hong%20Kong%3A%20New%20UK%20visa%20route%20opens%20for%20up%20to,new%20security%20law%20by%20China.&amp;text=Just%20under%20three%20million%20people,a%20new%20visa%20route%20opened)
+[!\[\]()!\[\](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/4350fd18-f324-4ea7-9ec4-f6802553f363.jpg?asset_id=5935c8e6-27e2-4bec-90ac-c2c338734c27&amp;img_etag=%220c35e8f76bcaaaefce207b7f6647409e%22&amp;size=1024)](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/4350fd18-f324-4ea7-9ec4-f6802553f363.jpg?asset_id=5935c8e6-27e2-4bec-90ac-c2c338734c27&amp;img_etag=%220c35e8f76bcaaaefce207b7f6647409e%22&amp;size=1024)
+
+《校园改革》还获得了纽约州立大学全球事务办公室（Office of Global Affairs）与南京财经大学（NUFE）之间2016年续签商务孔子学院的补充协议。它确定了董事会的结构，描述主席将来自甲方（在中共国合法成立并注册的南京财经大学），而副主席将来自乙方（纽约州立大学的一个实体）。
+
+董事会的职责包括制定和发展战略、指南和财务计划。该文件还指出，该研究院应为“非营利性教育机构，应在中共国孔子学院总部的全面监督和指导下”。
+
+“我不知道有任何美国大学将管理外国合作企业的责任移交给外国，特别是与美国和中共国之间关系一样变紧张的大学。”美国哈德逊学院（Hudson Institute）美国海权研究中心（Center for American Seapower）高级研究员兼主任塞斯•克罗普西（Seth Cropsey）告诉《校园改革》。
+
+《校园改革》向纽约州立大学征求意见，但在发表此文时没有及时收到回复。
+
+🔗[原文链接](https://campusreform.org/article?id=16600)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
 编辑：【英国伦敦喜庄园编辑部】
-[!\[\]()!\[\](https://spark.adobe.com/page/BFFDw534JadbR/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/BFFDw534JadbR/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
