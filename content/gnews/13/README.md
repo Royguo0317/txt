@@ -1,125 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国对维吾尔的种族大屠杀
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/852097/)
+## 实锤证据：孔子学院如何渗透美国校园
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/852217/)
 
-根据CBN News于2021年1月28日的报道，中共对维吾尔族人实施了种族大屠杀。
+新闻来源：Campus Reform《校园改革》| 作者：Jezzamine Wolk 贾思敏•沃尔克| 发布时间：2021年1月29日
+翻译/简评：Cathy r| 校对：X-Wing飞得更高| 审核：万人往| Page：Cathy r
 
-在节目主持人提到“迈克·蓬佩奥作为美国国务卿的最后行动之一是将中国对待维吾尔族和突厥人的行为定为种族灭绝，而拜登政府也支持这一指认”话题时，受访嘉宾对此做了详细解释并特别强调：
+![]()![](https://www.gnews.org/wp-content/uploads/2021/01/kzxy6-1.jpg)
 
-“根据1948年《联合国防止和惩治灭绝种族罪公约》的规定，这一指认要求各国采取行动。我们敦促司法部执行1091条款，起诉中[共]国驻美国的外交官，包括中[共]国大使崔天凯的种族灭绝罪。同时还敦促其他国家，特别是美国的盟友承认种族灭绝的暴行，并将此问题提交联合国安全理事会，敦促联合国维护其种族灭绝公约。需要采取真正有力的，强硬有力的行动来阻止这种情况。”
+**简评：**
+
+《校园改革》独家获得了纽约州立大学与中共国孔子学院总部之间的2016年续签协议，以及纽约州立大学全球事务办公室与南京财经大学之间2016年续签商务孔子学院的补充协议。章家墩认为这些孔子学院的合同赋予中方很大的权力，中方可以提供教材或成为董事会主席。美国人已经意识到了孔子学院是中共政权的“宣传”中心，对美国国家安全构成重大的威胁。
+
+**原文翻译：**
+
+## 独家：新获得的文件揭示了中共国对校园影响力的令人不安的细节
+
+- 多年来，《校园改革》（Campus Reform）报道了在美国广泛运营的中资中心。
+- 现在，《校园改革》独家获得的新文件显示了专家们长期以来一直在警告的事情。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/bc5a8860-35a7-4a9a-9438-c059d99013d0.png?asset_id=dd620629-100a-4fa4-a998-e0ca366a3116&amp;img_etag=%22bf2a1b50081cafe0be27e358a3f4c096%22&amp;size=2560)](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/bc5a8860-35a7-4a9a-9438-c059d99013d0.png?asset_id=dd620629-100a-4fa4-a998-e0ca366a3116&amp;img_etag=%22bf2a1b50081cafe0be27e358a3f4c096%22&amp;size=1024)
+根据《信息自由法》（a Freedom of Information Act）的要求，《校园改革》独家获得了纽约州立大学（State University of New York）与中共国孔子学院总部之间的2016年续签协议。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/3323a3bc-e258-4c49-8daa-b44462984945.jpg?asset_id=59ce94e4-3669-4632-9dae-f9cd4975ad41&amp;img_etag=%22dd1d2b78732c4f7709b02b651e5db897%22&amp;size=2560)](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/3323a3bc-e258-4c49-8daa-b44462984945.jpg?asset_id=59ce94e4-3669-4632-9dae-f9cd4975ad41&amp;img_etag=%22dd1d2b78732c4f7709b02b651e5db897%22&amp;size=1024)
+
+关于纽约州立大学商务孔子学院的文件揭示了中共国对纽约州立大学影响力的内部一瞥。
+
+该文件以中英文书写，指出该协议的目标是“加强中美之间的教育合作，支持和促进汉语教学的发展，增进中美两国人民之间的相互了解。”
+
+根据该文件，孔子学院提供教授中文的服务；提供有关中共国商业、贸易和金融的培训；并提供有关中共国教育、文化和其他服务的咨询服务。
+
+在活动部分下，有一个“其他”部分未指定，但允许“经授权并经总部任命”。
+
+《美中大型高技术战争》的作者和中国共产党频繁的批评家章家敦告诉《校园改革》，合同似乎有利于中共国。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/e1616e4a-99fe-4828-80e1-af047dc90d66.jpg?asset_id=75007c4c-8b40-40d9-951a-c801a76615d0&amp;img_etag=%2221bb443cb5f3f1e10776c93df32d323a%22&amp;size=2560)](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/e1616e4a-99fe-4828-80e1-af047dc90d66.jpg?asset_id=75007c4c-8b40-40d9-951a-c801a76615d0&amp;img_etag=%2221bb443cb5f3f1e10776c93df32d323a%22&amp;size=1024)
+
+他说：“我认为这些孔子学院的合同赋予中方很大的权力，因为教育机构希望北京为语言教学提供资金，但更重要的是，他们希望中共国学生持续不断地来美学习，他们通常会缴纳全部学费。”
+
+他补充说：“中共国学费已经成为许多大学和学院收入的重要来源。”
+
+多年来，《校园改革》已报道这些中共国投资运营在美国的研究中心。孔子学院自我推销为中共国的文化中心，但很多专家和官员都警告说，他们是共产党政权的“宣传”中心。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/2229fdb8-348e-4ef3-b047-26d1706a698e.jpg?asset_id=8187b089-4c89-4c21-ac3c-02359203fe94&amp;img_etag=%22e776870a20faf6ea02cb7a9486b565bc%22&amp;size=2560)](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/2229fdb8-348e-4ef3-b047-26d1706a698e.jpg?asset_id=8187b089-4c89-4c21-ac3c-02359203fe94&amp;img_etag=%22e776870a20faf6ea02cb7a9486b565bc%22&amp;size=1024)
+
+“孔子学院不是文化中心。”美国遗产基金会（Heritage Foundation）的道格拉斯和萨拉•艾里森外交政策中心（Douglas and Sarah Allison Center for Foreign Policy）资深研究员，《改变美国的阴谋》（The Plot to Change America）一书的作者迈克•冈萨雷斯（Mike Gonzalez）告诉《校园改革》。
+
+他说：“孔子学院旨在遏制和限制美国人对中共国现实的了解。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/959be841-512c-439e-bf86-37e74892173a.jpg?asset_id=ec8ca3ea-60d9-4e12-ac6f-bb316d166fe4&amp;img_etag=%22737834bf4594e7b90c279130590fdcf1%22&amp;size=2560)](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/959be841-512c-439e-bf86-37e74892173a.jpg?asset_id=ec8ca3ea-60d9-4e12-ac6f-bb316d166fe4&amp;img_etag=%22737834bf4594e7b90c279130590fdcf1%22&amp;size=1024)
+
+根据美国国家学者协会（National Association of Scholars）的数据，截至2021年1月，全美共有63所孔子学院，其中一所位于美国最大的综合性大学纽约州立大学内。
+
+最初的五年协议于2010年签署，2016年由孔子学院总部首席执行官徐琳和纽约州立大学研究基金会（Research Foundation）的系统管理研究基金运营经理帕特里克•瑞安（Patrick Ryan）重新签署。
+
+根据该协议，中共国孔子学院总部有义务“根据教学要求派遣中共国讲师，并支付他们的机票和薪金”，而纽约州立大学则有义务“协助中共国讲师进行签证申请、居留程序和入境美国事宜”。
+
+中共国孔子学院总部还被要求提供教材和“根据需要”的一定数量的年度资金，而纽约州立大学仅需提供设施并补偿必要的行政人员。
+
+“我们需要知道接受公共资金教育的学生将学习哪些有关中共国的知识。”冈萨雷斯说，并抨击纽约州立大学以这种方式使用纳税人的钱。
+
+冈萨雷斯继续说道：“中共国是一个对手，正在成为全球大国的竞争对手，我们需要充分意识到他们是谁。他们试图假冒自己作为另一个如法国、秘鲁或荷兰之类的国家，但事实并非如此。他们是专制政权。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/4350fd18-f324-4ea7-9ec4-f6802553f363.jpg?asset_id=5935c8e6-27e2-4bec-90ac-c2c338734c27&amp;img_etag=%220c35e8f76bcaaaefce207b7f6647409e%22&amp;size=1024)](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/4350fd18-f324-4ea7-9ec4-f6802553f363.jpg?asset_id=5935c8e6-27e2-4bec-90ac-c2c338734c27&amp;img_etag=%220c35e8f76bcaaaefce207b7f6647409e%22&amp;size=1024)
+
+《校园改革》还获得了纽约州立大学全球事务办公室（Office of Global Affairs）与南京财经大学（NUFE）之间2016年续签商务孔子学院的补充协议。它确定了董事会的结构，描述主席将来自甲方（在中共国合法成立并注册的南京财经大学），而副主席将来自乙方（纽约州立大学的一个实体）。
+
+董事会的职责包括制定和发展战略、指南和财务计划。该文件还指出，该研究院应为“非营利性教育机构，应在中共国孔子学院总部的全面监督和指导下”。
+
+“我不知道有任何美国大学将管理外国合作企业的责任移交给外国，特别是与美国和中共国之间关系一样变紧张的大学。”美国哈德逊学院（Hudson Institute）美国海权研究中心（Center for American Seapower）高级研究员兼主任塞斯•克罗普西（Seth Cropsey）告诉《校园改革》。
+
+《校园改革》向纽约州立大学征求意见，但在发表此文时没有及时收到回复。
+
+🔗[原文链接](https://campusreform.org/article?id=16600)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
-
-**Communist China Commits Genocide Against Uyghurs**
-
-**中共国对维吾尔的种族大屠杀**
-
-Today from the Global Lane: Chinese genocide against the Uyghurs.
-
-今天的Global Lane来谈谈“中[共]国对维吾尔人的种族大屠杀”。
-
-“Hundreds of thousands of Uyghurs and other Turkic women have been sterilized. Over 3.7 million babies forcibly being aborted.”
-
-数十万维吾尔和其他突厥妇女被绝育。超过370万婴儿被强行堕胎。
-
-**Host**: One of Mike Pompeo’s final actions as U.S. Secretary of State was to designate China’s treatment of ethnic Uyghurs and Turkic people as genocide. The Biden administration also supports that designation. So what does it mean? What is next?
-
-**主持人**：迈克·蓬佩奥作为美国国务卿的最后行动之一是将中国对待维吾尔族和突厥人的行为定为种族灭绝。拜登政府也支持这一指认。那么这意味着什么？下一步会是什么？
-
-**Guess**: Under terms of the 1948 United Nations’ convention, on the prevention and punishment of the crime of genocide, the designation requires nations to take action.
-
-**嘉宾：**根据1948年《联合国防止和惩治灭绝种族罪公约》的规定，这一指认要求各国采取行动。
-
-Starting about 2017, millions of people were thrown into what China calls re-education camps, but what are actually concentration camps, where they are forced to denounce their ethnic and religious identity, forced starvation, forced medication, both men and women have been raped in these facilities.
-
-从2017年左右开始，数百万人被扔进了中[共]国所谓的再教育营，但实际上是集中营。在那里，他们被迫放弃自己的种族和宗教身份，被迫挨饿，被迫吃药，在这些设施中，男子和妇女都遭到强奸。
-
-The Chinese government is harvesting the organs of select Uyghurs and other Turkic prisoners, and hundreds of thousands of Uyghurs and other Turkic women have been sterilized by the Chinese government, in addition to over 3.7 million babies forcibly being aborted by the Chinese government.
-
-中[共]国政府正在选择性收割维吾尔和其他突厥囚犯的器官，数十万维吾尔和其他突厥妇女被中[共]国政府绝育，此外还有370多万婴儿被中国政府强行流产。
-
-And all of these constitute as genocide as defined under the U.N. genocide convention, and as defined under the Elie Wiesel Genocide Prevention Act, and section 1091 of the U.S. code on genocide.
-
-所有这些都构成了《联合国灭绝种族罪公约》所界定的灭绝种族罪，也构成了《埃利·维瑟尔防止种族灭绝法》和《美国法典》关于灭绝种族罪的第1091条所界定的灭绝种族罪。
-
-**Host**: Well, I want to talk about that forced sterilization again in a minute, but I know you’ve told us before about those concentration camps and prisons, and you have a map where you found close to 400 in total, or at least you say three million Uyghurs are being detained by the Chinese.
-
-**主持人**：好吧，我想一会儿再谈一下那个强制绝育的问题，但我知道你以前跟我们说过那些集中营和监狱，你有一张地图，你发现总共近400个，你说至少有300万维吾尔人被中[共]国拘留。
-
-So tell us a little bit more about that in the forced labor and the re-education they’re enduring.
-
-所以请再给我们讲讲，他们所承受的强迫劳役和再教育。
-
-**Guess**: So, initially the Chinese government began to send millions of people in the concentration camps to, you know, forcefully brainwash them, while also, you know, killing select number of them for their organs.
-
-**嘉宾**：所以最初中[共]国政府开始把几百万人送进集中营，给他们强行洗脑，同时如你所知为了他们的器官而杀死了一些人。
-
-However, in recent years, especially with the coronavirus pandemic, China has begun to shift to using them as slave labor.
-
-然而近年来特别是随着冠状病毒的疫情，中国已经开始转而把他们当作奴工来使用。
-
-In fact, over half a million people were forced to pick cotton during the coronavirus pandemic, whereas millions are still, you know, working in slave labor factories, producing, you know, products for companies like Apple, Nike, Costco, and dozens of others.
-
-事实上，在冠状病毒疫情期间，超过50万人被迫采摘棉花，而数百万人如你所知仍然在血汗工厂工作，为苹果、耐克、好市多等公司生产产品，还有其他几十家公司。
-
-**Host**: I know that Twitter recently actually locked the account of the Chinese embassy in Washington D.C. after it tweeted that, Uyghur women had been emancipated by government policy from being “baby making machines”. Your reaction to what happened.
-
-**主持人**：我知道最近推特实际上封锁了中[共]国驻华盛顿大使馆的账号，因为它发推说，维吾尔族妇女已经被政府政策解放，不再是“生孩子机器”。说说你对此事的反应。
-
-**Guest**: This was a dehumanizing tweet, and we are you know happy that Twitter has blocked or barred the Chinese embassy from tweeting, from using its account.
-
-**嘉宾**：这是一条泯灭人性的推文，如你所知，我们高兴推特屏蔽或禁止中[共]国大使馆发推特，及使用其账号。
-
-However, despite this there are numerous other Chinese state-run accounts or state-run affiliated media accounts that are continuing to spread propaganda, dehumanizing the Uyghurs and other Turkic peoples in East Turkistan.
-
-然而尽管如此，还有许多其他的中[共]国国营账号或国营附属媒体账号在继续宣传，非人化维吾尔族人和其他土耳其人，以及每一个东土耳其人。
-
-**Host**: Okay, Salih, so we have that genocide designation now, what should the Biden administration do? How should the U.S respond?
-
-**主持人**：好吧，萨利赫，我们现在有了种族灭绝的指认，拜登政府应该怎么做？美国应该如何回应？
-
-**Guess**: One thing that we’re urging is that the Justice Department implements Section 1091, and prosecute China’s diplomats in the United States, including its Ambassador Cui Tiankai for genocide.
-
-**嘉宾**：我们敦促司法部执行1091条款，起诉中[共]国驻美国的外交官，包括中[共]国大使崔天凯的种族灭绝罪。
-
-While also urging other countries especially American allies to recognize the atrocities of genocide, and to take this to the U.N. Security Council, and urge the U.N. to uphold its genocide convention.
-
-同时还敦促其他国家，特别是美国的盟友承认种族灭绝的暴行，并将此问题提交联合国安全理事会，敦促联合国维护其种族灭绝公约。
-
-There needs to be real strong, real strong actions that need to be taken to stop this.
-
-需要采取真正有力的，强硬有力的行动来阻止这种情况。
-
-**Host**: There is a lot of Chinese involvement in Middle East nations, especially Muslim ones. So how come your fellow Muslims aren’t speaking out about this? I’m thinking in particular those in the Middle East who are working deals with the Chinese. Your thoughts.
-
-**主持人**：中[共]国在中东国家，尤其是穆斯林国家的参与度很高。那么，你的穆斯林同胞怎么就不发声呢？我具体想到的是那些在中东与中[共]国人做交易的那些人。你的想法如何。
-
-**Guess**: Again, this is they’re all working… you know, for their own economic interests, so they’re ultimately turning a blind eye, and in many cases selling Uyghurs to the Chinese government.
-
-**嘉宾**：他们都是为了自己的经济利益而服务，所以他们最终都是视而不见，并且在更多的情况下把维吾尔人出卖给中[共]国政府。
-
-Turkey, in fact, is, you know, has an extradition treaty with China and they are deporting Uyghurs, and there are rumors that they’re about to deport even more Uyghurs in exchange for, you know, the coronavirus vaccine from China.
-
-如你所知，其实土耳其与中[共]国是有引渡条约的，他们正在驱逐维吾尔人，有传言说他们要驱逐更多的维吾尔人，以换取——你知道的——中[共]国的冠状病毒疫苗。
-
-*出处:  [https://youtu.be/JrUzSGgWJEs](https://youtu.be/JrUzSGgWJEs) (00:00-00:16, 00:43-01:08, 01:57-06:25)*
-
-*翻译:【Dlrow】 校对:【Isaiah4031】 字幕:【V%】 编辑:【Mark】*
-
-*喜马拉雅玫瑰园出品*
-
-*以上翻译整理仅代表作者个人观点**，**不代表**GNEWS**或他人立场。*
-
-*敬请关注**:*
-
-*GTV:**[喜马拉雅玫瑰园中文频道](https://gtv.org/user/6005ad73f579a75e0bde4d27)**，**[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)*
-
-*Gab:**[https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)*
-
-*Blog:**[https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)*
-
-*Vimeo:**[https://vimeo.com/user131524598](https://vimeo.com/user131524598)*
-
-+1
+编辑：【英国伦敦喜庄园编辑部】
+[!\[\]()!\[\](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/hKdXY4yS4EpGi/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+0

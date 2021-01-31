@@ -1,35 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】30/01/2021:七哥火了，这个世界疯了，所有人都和我联系，要反共要灭共
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/850801/)
+## 【军事快讯】美国太空部队打算构建由廉价卫星组成的坚不可摧的空间卫星系统
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/850779/)
 
-**制作:Cantonese工作室**
+作者：纽约香草山 Wilson 校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
 
-播报: 美国小李
-资料收集: Cathy、Ruby、美国小李、Annie
-视频制作: Shawn
-海报制作: 侬民
-上传: Shawn
-**摘要:**
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-01-2.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-02-3.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-03-1.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-04-4.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-05-1.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-06-2.jpg)
-7.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-07.jpg)
-8.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-08-1.jpg)
-9.
-![]()![](https://gnews.org/wp-content/uploads/2021/01/20210130-zhTW-09.jpg)
-+1
+《网络战争杂志》（C4irsnet）2021年1月30日报道，美国太空部队打算构建一个更分散的天基卫星架构。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/PVEDQ4MCD5DIPASKNU6GBFP7UQ-1.jpg)图片来源：DARPA
+
+华盛顿太空部队首席投资组合架构师表示，即使一颗或多颗卫星瘫痪或被摧毁，这种架构系统仍然可以继续提供关键的天基能力，安全地为为航天局、导弹开发局提供数据信息服务。
+
+因此需要专注于开发在低地球轨道运行的(低价)卫星，传统上采用非常昂贵的大型卫星构建其空间系统。五角大楼认为太空是一个战争领域，这意味着不能再假设其卫星不会成为对手的打击目标，因此关注卫星的脆弱性，测试对手的各种反卫星武器是其重点。
+
+美国太空部队空间开发局成立于2019年，正在策划使用数百颗相对廉价、可更换的卫星，组成在低地球轨道上建造新的分布式架构卫星系统。
+
+随着全球以卫星互联网为核心的太空竞争时代的到来，不管是商用还是军用，低轨卫星都成了新发展战略的宠儿，因为低轨卫星传输时延短、研制周期短、发射成本低，只要加密技术过硬，就能安全使用。
+
+美国特斯拉CEO马斯克的SpaceX公司，已经全面启动天基互联网计划，规划向太空发射卫星1.2万颗，每颗的造价不到1000美元。1月25日SpaceX公司用一个发射器发射了143颗卫星，就连普通公司都可以拥有专用卫星。
+
+这对反卫星武器将形成压倒性的优势，因为用一枚昂贵的导弹去打一颗廉价的卫星是没有意义的。
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+0
