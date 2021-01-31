@@ -1,68 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白色恐怖蔓延，香港警方逮捕抗议的中大学生
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/849572/)
+## 郭先生早在2019年就曝光了习近平功打台湾的“双龙计划”
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/849705/)
 
-*新闻来源：*hongkongfp《香港自由新闻》*| 作者：*《香港自由新闻》*| 发布时间：*2021年1月26日
+新闻简述：郭先生早在2019年9月1日就曝光了中共的“双龙计划”。他是以习近平为首的中共企图以香港事件为借口打击台湾的一个军事计划。郭先生呼吁台湾人民要站在香港和世界正义力量的一边才能获得安全。他也奉劝大陆的亿万中国人不要助纣为虐，那样等待人们的将是像二战后的日本和德国纳粹一样的下场。
+视频来源：[https://www.youtube.com/watch?v=5s4aSMrsubg](https://www.youtube.com/watch?v=5s4aSMrsubg) (30:01-32:19, 38:45-40:14)
+(30:01-32:19)
 
-*翻译/简评：*Victory*| 校对：*感恩*| 审核：*万人往*| Page：*Cathy
-[!\[\]()!\[\](https://spark.adobe.com/page/9gODhxeyFeddV/images/bb8211a5-bfda-40f6-8a5c-0b339c508b8e.jpg?asset_id=4ad98c8b-031f-4a0c-9a6a-3cce462d401e&amp;img_etag=%22dfd2f552bfc8f3dd3d600df60dc7c8cd%22&amp;size=1024)](https://spark.adobe.com/page/9gODhxeyFeddV/images/bb8211a5-bfda-40f6-8a5c-0b339c508b8e.jpg?asset_id=4ad98c8b-031f-4a0c-9a6a-3cce462d401e&amp;img_etag=%22dfd2f552bfc8f3dd3d600df60dc7c8cd%22&amp;size=1024)
-**简评：**
+共产党习近平和王岐山的国家安全委员会，和中国的“党天下、家天下”的中国政权已经做好了一切的计划。在福建，50万大军，导弹部队已经准备好了。当香港失去全面控制，美国全面进行制裁，全面进行封锁，像天安门六四事件一样，西方和美国世界对中国进行制裁的时候，共产党就会发起突然间的对台湾的定点斩首行动，军事打击，彻底收复台湾，这叫“双麟行动”（又名“双龙行动”）。
 
-香港中文大学本月发生抗议校园安保措施的事件，警方以“维护安全”为名，逮捕了3名学生，还搜查了他们的宿舍。
+The CCP’s National Security Commission led by Xi Jinping and Wang Qishan and the Chinese regime, under the ideology of “all under heaven belong to the party and the party’s few families”, have planned it all out. In Fujian, 500,000 troops and missile force are ready. Once Hong Kong’s situation is out of control and America imposes comprehensive sanctions and complete blockades, just like after the Tiananmen June Fourth Incident, the West and the US and the world imposed suctions on China, the CCP will suddenly launch a targeted decapitation operation and military strikes against Taiwan and take back Taiwan completely. This is called “Operation Shuanglin” (a.k.a. “Operation Shuanglong” or “Operation Dual Dragon”).
 
-香港已完全沦为中共暴政下的城市。共匪控制下的黑警按需随意给人加上莫须有的罪名就可以实施抓捕。这些年轻人本该在中大校园渡过一段最美好的时光，而如今他们的自由空间却被中共彻底剥夺。黑警居然公开直言不讳，要不择手段。香港已是无法无天。在共匪走向灭亡之前会越来越疯狂，希望港人尽量避免不必要的牺牲。相信我们很快会看到中共灭亡。
+那么这个“双麟行动”，大家可以看到，它的理由就是香港发生的这场真正的返送中的行动他们说是美国和台湾的台独分子在背后策划的。很多香港的，所谓领导，运动的领导都在台湾，藏在台湾，他们要抓回，抓捕这些人。然后就对台湾进行军事行动，收复台湾。这才是他的真正的这场核心的目的的核心之一。
 
-**原文翻译：**
+So, this “Operation Shuanglin”, as we can see, will use the excuse that the Hong Kong Movement, which is actually an anti-extradition bill protest, was plotted by the Americans and Taiwanese who secretly supported the independence of Taiwan. [They will say that] many leaders of the Hong Kong Movement are hiding in Taiwan, so in order to capture these people, they will need to have military actions toward Taiwan and liberate Taiwan. This is one of the real purposes and the core.
 
-## **香港警方因中大校园安全抗议逮捕前学生会主席及其他2人**
+接下来我想告诉大家的事情，台湾的这场可能随时在下一小时，下一天，下一分钟就有可能，有很大的可能是这个样子的。台湾政权的无知、自私、懦弱，以及多年来被共产党进行了“蓝金黄”，收买了国民党，以及民进党的各种政权，将付出巨大代价，将台湾人民毁于一旦。而且这次“双麟计划”也是不惜代价，不择手段，必须100%拿下台湾，不论死多少人，流多少血。
 
-警方证实，警官还搜查了宿舍，并带走了衣服、电脑和手机。
+So next what I want to tell everyone is that [the military action toward] Taiwan may happen the next hour, the next day, or the next minute, and anything is possible. So Taiwan government’s ignorance, selfishness, and cowardice, and the many years of the CCP’s BGY on the Nationalist Party and the Democratic Progressive Party in Taiwan will make Taiwan to pay big prices and will destroy the Taiwanese people. This “Operation Shuanglin” is to completely conquer Taiwan no matter what means are used and what prices are paid, no matter how many people are killed and how much blood is shed.
 
-香港中文大学(中大)本月发生校园抗议事件，一名保安被送往医院后，香港警方逮捕了三名学生，并搜查了三间宿舍。
+所以这一次香港成了台湾最大的保护的屏障。台湾只有站在香港的一边，保护香港人民，你才能安全，只有大胆行动和全世界站在一起，你才能，台湾才可能有安全。否则你很快将变成了炮灰，弹灰。
 
-本月初发生蒙面人推倒金属围栏并向警卫投掷白色粉末和鸡蛋以抗议校园安保措施的事件后，周一晚上发生了此次抓捕。
+So this time, Hong Kong has become the biggest shield for Taiwan. Taiwan will be safe only if it sides with Hong Kong and protects Hong Kong people. By taking brave actions and standing with the world, will Taiwan have security. Otherwise, it will become the ashes [in front of the military conquer of the CCP].
 
-![]()![](https://spark.adobe.com/page/9gODhxeyFeddV/images/3bab61fb-d8ce-438d-8963-2aab41b2ec68.jpg?asset_id=7a1bf2f4-dd78-4607-bc44-8b532f7f2dee&amp;img_etag=%22804a7cd17eba22a8dbdf9c7099a023cd%22&amp;size=1024)图片：中大校园广播截图
+（38:45-40:14）
 
-被捕三人年龄介乎19至22岁，包括前学生会主席欧倬僖。据警方的声明，他们涉嫌非法集会和蓄意袭击而被拘留。
+同时在大陆的所有的党内的战友，军内的战友和14亿中国人民，你们要知道在二战的时候日本是什么样的下场，德国希特勒是什么下场，德国所谓的无辜的市民公民，日本无辜的百姓什么下场。习王发动这场要拿下香港的双龙台湾，征服世界，与世界叫板，不惜发动第三次世界大战的疯狂行动的本质是保护他们家族的利益，保护所谓共产党的利益，和保护他们的私生子女，和盗取国家的巨额财富，它不是为了中国人好。
 
-“校方绝不容忍校园内发生非法暴力事件。”中大管理层的声明中写道，誓言将就此事 “与警方全面合作”。
+Also, for the fellow fighters in mainland China, who are inside the CCP and the PLA, and the 1.4 billion Chinese people, you must understand the fate of the people in Japan in the Second World War, the fate of Hitler, and the fate of the so-called innocent people in Germany and Japan after the Second World War. This crazy action by Xi and Wang for conquering Hong Kong, conquering Taiwan by the “Operation Shuanglong”, conquering the world, even with a third world war is essentially for protecting their own family interests, protecting the CCP’s interests, protecting their own illegitimate children, and the huge wealth they stole from the country, rather than for the interest of the people.
 
-中大校园广播视频资料显示，便衣警员用手铐将欧带出学生宿舍，上了一辆等候的车辆。
+就像当年日本的天皇和希特勒都说是为了自己的民族好，最后绑架了国家和民族，最后都毁于一旦，国家和民族都毁了。中国人民必须站起来，和香港人民，台湾人民站在一起，才能不葬送自己的未来。如果你们要与贼为伍，与匪为伍，你们也将死无葬身之地，一定会被世界上的正义力量最后给销毁。像当年的日本被核武器袭击，像当年德国的希特勒和德军纳粹到现在还被追杀一样，死无葬身之地。
 
-![]()![](https://spark.adobe.com/page/9gODhxeyFeddV/images/188d55ad-38aa-4bd3-a14d-2fb788e85957.jpg?asset_id=ef924d34-fee0-45e0-b3c3-bbbf7d6c7fb4&amp;img_etag=%22cc5c099ed0907a27e76b1d959091e14f%22&amp;size=2560)
+It’s just like the Japanese Emperor and Hitler. Both said that it was for the good of their own people. They kidnapped the country and the nation and destroyed them eventually. The Chinese people must stand up and stand with the people of Hong Kong and Taiwan, so as not to ruin their future. If you are to associate with thieves and bandits, you will die without a place to be buried, and you will definitely be destroyed by the righteous forces in the world. Just as Japan was attacked by nuclear weapons, like Hitler in Germany and the German Nazis were still hunted down till this day, you will have no place to buried even when you die.
 
-伍宜孙书院其中一间宿舍的另一段录像显示，约有5名警员搜查一间学生房间。一名学生会宿舍长告诉立场新闻，警员带走了一袋文件作为证据。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-本月初，一名20岁的学生曾因同一事件被捕，他在现场附近被校园保安抓获并移交警方。
+翻译：【Isaiah4031】字幕：【相机过热啊】听写：【BruhM】编辑：【Isaiah4031】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/9gODhxeyFeddV/images/cd28fc25-fd35-4876-92e0-39ee1cc26f28.jpg?asset_id=304fcfad-013f-488a-b3dc-8b4f5b00a039&amp;img_etag=%22eeecea1213d999d2f9a0f47bd8e51e36%22&amp;size=2560)](https://spark.adobe.com/page/9gODhxeyFeddV/images/cd28fc25-fd35-4876-92e0-39ee1cc26f28.jpg?asset_id=304fcfad-013f-488a-b3dc-8b4f5b00a039&amp;img_etag=%22eeecea1213d999d2f9a0f47bd8e51e36%22&amp;size=1024)
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
-1月11日新学期开学第一天，约有8名蒙面黑衣人破坏了中大校园地铁口的安全围栏。据报道，他们对进入校园的人大喊大叫，敦促他们不要出示身份证。
-
-2019年警方围攻后，校园一直不对公众开放，只有能出示学生证或校友证的人才能进入。
-
-***‘不择手段’***
-
-新界南区警察总部发言人星期二证实，共有四名中大男生因事件被捕。他呼吁其他涉案者向警方自首。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/9gODhxeyFeddV/images/faac3c9f-780a-4d38-b32e-e64871acd4b5.jpg?asset_id=21216190-3865-4c88-b891-d0a8269a9904&amp;img_etag=%226f97e60ef253214bd5ff0f7889361880%22&amp;size=1024)](https://spark.adobe.com/page/9gODhxeyFeddV/images/faac3c9f-780a-4d38-b32e-e64871acd4b5.jpg?asset_id=21216190-3865-4c88-b891-d0a8269a9904&amp;img_etag=%226f97e60ef253214bd5ff0f7889361880%22&amp;size=1024)
-
-“警方绝对不会容忍任何暴力和非法行为，”他说，”在这些情况下，警方将采取一切必要手段，将罪犯绳之以法。”
-
-他证实，警员搜查了宿舍，并带走了衣服、电脑和手机作为证据。
-
-🔗[原文链接](https://hongkongfp.com/2021/01/26/hong-kong-police-arrest-former-student-union-president-and-2-others-over-cuhk-campus-security-protest/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【[英国伦敦喜庄园编辑部](https://spark.adobe.com/page/9gODhxeyFeddV/)】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/9gODhxeyFeddV/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/9gODhxeyFeddV/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-0
++1

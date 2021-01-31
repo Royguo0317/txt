@@ -1,28 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香草播报：【热点播报】BLM被提名为2021年度诺贝尔和平奖
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/849208/)
+## 香草专栏：【香草时评】抵制2022年的北京冬季奥运会
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/849248/)
 
 作者：纽约香草山写作组 天涯客
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-BLM （Black Lives Matter） 是一个政治和社会运动组织，经常在街头抗议警察和对黑人的暴力行为。该组织最初是以黑人为主，现在也有其他族群加入。
+第二十四届冬季奥林匹克运动会计划于2022年2月4日-20日在北京和邻近的河北举行。北京是第一个举办了夏季和冬季两个奥运会的城市，之前于2008年，举行了空前的夏季奥运会。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/43.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/44.jpg)
 
-该组织被提名为2021年度诺贝尔和平奖候选人，以鼓励他们在世界范围内发起的系统改革的呼声和努力。
+但是，2022年那个时候中共还活着吗？这次奥运会会如期举行吗？如果他们能侥幸活到那一天，我们不能再像2008年那样为中共站台。
 
-该组织的某些暴力行为曾经受到社会各界的批评。但是，挪威方面的官员皮特·埃德（Petter Eide ）在提名文件中说，该运动迫使美国以外的其他国家努力应对自己社会中的种族主义。
+中共把病毒传播到全球。当世界各国还在死亡线上挣扎的时候，中共号称已经控制了疫情。但随着病毒真相逐渐地大白于天下，世界还会相信他们的谎言吗？为了运动员的安全，我呼吁：抵制这次奥运会！
 
-参考阅读：
+中共无恶不作。他们对新疆人的种族灭绝、对西藏人的镇压、对香港人的残害、以及对全中国人的暴政，世界各国慢慢看清楚了。为了中国人的尊严，我呼吁：抵制这次奥运会！
 
-[https://www.theguardian.com/world/2021/jan/29/black-lives-matter-nobel-peace-prize-petter-eide-norweigan-mp](https://www.theguardian.com/world/2021/jan/29/black-lives-matter-nobel-peace-prize-petter-eide-norweigan-mp)
+中共监视镜头无处不在。记者没法自由报道，网络受到严格管制。为了争取言论自由，我呼吁：抵制这次奥运会！
+
+中共过去几十年严重污染了中国的土地和空气。从南到北，从东到西，中（共）国已经不适合人类生存，更不适合体育竞技。我呼吁：抵制这次奥运会！
 
 编辑/校对/发稿：Irene木木
 
@@ -36,7 +38,7 @@ BLM （Black Lives Matter） 是一个政治和社会运动组织，经常在街
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
