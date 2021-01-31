@@ -1,93 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年1月27日郭先生直播内容整理
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/850287/)
+## 美国病毒专家Peter Daszak与科学女巫石正丽两个人谁在上边谁在下边
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/850292/)
 
-**GTV**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/封面-259.jpg)
+撰稿：巴黎七星农场；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-郭先生表示，GTV在四月份募资时候，中东、欧洲、日本、英国多个机构投资者所占股权是86%，GTV海外投资者占76%。现在要求继续投资的，87%在海外。当时耶鲁大学第三方评估GTV价值二十六亿美元。从四月份开始到现在，不含其他成本，GTV已经花了两千多万美元，但是里面没有一毛钱来自于GTV投资者。
-
-对比YouTube刚开始运行版就花了将近三年时间，到现在视频连线仍需要第三方。GTV才半年多，很多同类软件在技术上已经没法跟GTV比。在技术上、运行上、商业上发展如此之快。在功能上，更是唯一。这是郭先生拿最高标准要求GTV工程师的结果，也是对爆料革命投资者、战友们负责。现在一百多个工程师，二十四小时工作。我们一定要对GTV工程师保持绝对的尊重和感谢。
-
-美国大选最大的受益者就是GTV，从几百万的关注量上升到一个多亿。这个神话是建立爆料革命，冒着巨大的风险的基础上。引起争议，就是引起了关注。引起了关注，就有网络数据和传播媒体的更大力量的增长，这就是做新闻、做商业最根本的基本的常识。特别在1月20号以后，GTV，G-News数据的流量创造了媒体界的奇迹。任何未来投行，都不能把这一段数据给拿掉。
-
-战友投资GTV联系郭先生的有六万八千多个人，获得投资的椅子一千三百。跟郭先生的语音感动了美国政府官员和检察官。几个国内战友受威胁，打电话报案的，更让人看清共产党背后的操作，更加证明了GTV爆料革命是灭共的平台。
-
-现在跟美国证监会商量接下来2个选择：
-
-一是退回一千三百个投资者的钱，重新做选择。可以选择放弃椅子，还可以继续这把椅子。想退出椅子投资的，跟喜马拉雅联盟委员会联系，在美国监管部门的同意的情况下，协调你这椅子退回来，给其他战友。
-
-二是在美国关掉GTV，移到另外一个国家，结果很快会出来。
-
-**VOG：**
-
-郭先生爆料，SARA带着儿子到美国，找一个比自己大一二十岁的人结婚，拿到护照、绿卡，立马跟人家离婚。加入爆料革命后，打着郭先生的声音骗钱，在凤凰城建立了VOICE GUO media，这个公司跟郭先生没有任何关系。
-
-现在SARA把名字改成VOICE GOD media，打着上帝的声音继续骗钱，继续鼓励大家写遗嘱。之前代表GTV给战友椅子，弄走战友几十万、几百万的投资。行骗到这种程度，骗了那么多人的钱。从没告诉律师凤凰城的事，就代表律师发函，不给律师联络方式。因为投资VOG,很多战友受到警察威胁、被抓。团伙竟然有人要求得到战友被骗50%的钱，如此疯狂，全都是假的，都是骗，干着犯法、犯罪的事。
-
-**建议：**
-
-郭先生再次重申和强调：这是敲诈、威胁，绝对的诈骗罪，SARA团伙百分之百会进监狱。**凡是给****VOG汇款的****战友们，必须要有勇气站出来，只有站出来了。喜马拉雅联盟委员会和农场委员会，会想尽一切办法帮助战友把钱要回来。**
-
-**跟****VOG有关系的信息，更多的证据，****尽快发给农场。任何农场不配合，就把农场资格的取消。农场会综合到喜马拉雅联盟委员会交给美国政府方面。将通过行政诉讼和美国的刑事案调查，给国土安全部、FBI。**一定以最快的时间，需要半年一年甚至一年半两年都有可能，来解决这个事件。
-
-这次VOG事件，郭先生会负全责，承担一切责任。希望战友全力配合，从而减少战友的损失、时间和精力。
-
-**新中国联邦和****美国政治**
-
-郭先生希望，国内战友跟共产党斗争要用脑子，不用流血牺牲。共产党对你的威胁、证据，要学会留下来。在安全的情况下，出国可以申请政庇。例如参与爆料革命的一对七八十岁的老人家，因为支持爆料革命，被警察威胁。老人家把警察的威胁、信息、电话等录音，出国后用这个证据申请政治庇护。这是智慧的战友。
-
-郭先生透露，庞培奥现在得到了几乎是美国所有保守势力的支持。庞培奥和新生派会把美国共和党重组，将代表全人类的正义力量灭掉中国共产党。民主党的大佬也非常清楚，只有灭共才有4年的执政和未来。共和党和民主党灭共，都从现在开始。现在他们最想合作的对象就是新中国联邦。
-
-郭先生认为，**美国大选后遗症，大概需要半年的时间，之后所有的人都会问，这病毒是哪来的，都去了解整个中共的经济如何。**全世界和美国人都看到，共产党在美国的力量和渗透，看到了对美国安全的影响，对全世界人民安全的威胁、经济的掠夺。美国的新政府，还有澳大利亚、欧洲国家都感觉到了共产党的威胁，感觉到了共产党的在世界上邪恶。不仅放病毒，直接参与了美国大选。这次美国大选会让共产党死的更快。两党在对外问题上，对美国利益绝对是一致的。
-
-共产党的经济和面临着病毒责任的追查，以及操纵美国大选对美国人民的威胁，带来的恐惧，天然的凝聚在一起。共产党真是彻底的完球蛋了。
-
-**其他方面**：
-
-1、风水：先风后水，风是因，水是果。风在前，水在后。
-
-2、接下来共产党的大外宣，对闫博士，对班农，对路波切，对文贵，有国家级的抹黑行动，大漫画全都出来了。
-
-3、中南坑要把盘古大观上面搭的龙头改成鸟头甚至改成猫头。
-
-4、跟中南坑交手后，会发现他们就是低级的一帮流氓。只有中国人的懦弱和无知，才让这个流氓政权在中国那么多年。
-
-5、盘古被王岐山的侄子——北京金宇公司拿走以后，出租率只有30%，经营不善，也没人经营。
-
-6、盖特是独立公司，GNEWS独立发展，都跟G T V是没有任何关系。
-
-7、美国能合法的、平等的给有能力和思想的人，创造传奇的机会。
-
-金句：
-
-1、人的一辈子别犯大头症、贪嗔痴慢疑，拿自己特别当回事。
-
-内容来源：
-
-【字幕】1/27/2021文贵盖特：关于共产党中南坑的老杂毛们，为什么把中国的唯一的龙形建筑…龙头，改成鸟头！
+据[\[email protected\]](https://twitter.com/wangqin56612794)回复[@PeterDaszak](https://twitter.com/PeterDaszak)和[@NBCNews](https://twitter.com/NBCNews)[上午11:16 · 2021年1月31日](https://twitter.com/wangqin56612794/status/1355716621935865862)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)
 
 
 
-> [【字幕】1/27/2021文贵盖特：关于共产党中南坑的老杂毛们，为什么把中国的唯一的龙形建筑…龙头，改成鸟头！](https://gnews.org/zh-hans/826104/)
+> [pic.twitter.com/y7RzEzIqHp](https://t.co/y7RzEzIqHp)
+> — wangqin (@wangqin56612794) [January 31, 2021](https://twitter.com/wangqin56612794/status/1355716621935865862?ref_src=twsrc%5Etfw)
 
 
 
-【字幕】1/27/2021文贵盖特：全球为了自己的生存，必须灭共……和爆料革命新联邦中国的联合灭共
+我们可以看出此次领衔主演赴中国进行冠状病毒溯源的主角是Perter Daszak同志，该同志与为中共卖命的蝙蝠女巫石正丽的友谊源远流长，那么Peter Daszak同志与石正丽同志到底谁在上边谁在下边呢？请大家不要误会，本文并非八卦，而是为了通过学术考证一下Peter Daszak同志与石正丽同志到底谁在上边谁在下边。
+
+据他们共同发表的论文1：[Bat Severe Acute Respiratory Syndrome-Like Coronavirus WIV1 Encodes an Extra Accessory Protein, ORFX, Involved in Modulation of the Host Immune Response](https://pubmed.ncbi.nlm.nih.gov/27170748/)（蝙蝠严重急性呼吸系统综合症样冠状病毒WIV1编码额外的附件蛋白ORFX，参与宿主免疫反应的调节。）,这篇论文被收入闫丽梦博士的Unusual Features of theSARS-CoV-2Genome Suggesting Sophisticated Laboratory Modification Rather Than Natural Evolution and Delineation of Its ProbableSynthetic Route (SARS-CoV-2基因组的不寻常特征表明其经由实验室复杂改造的特性非源于自然进化及其可能的合成路径的描述)报告中的参考文献内，这篇论文的作者顺序是——
+
+[Lei-Ping Zeng](https://pubmed.ncbi.nlm.nih.gov/?term=Zeng+LP&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Yu-Tao Gao](https://pubmed.ncbi.nlm.nih.gov/?term=Gao+YT&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Xing-Yi Ge](https://pubmed.ncbi.nlm.nih.gov/?term=Ge+XY&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Qian Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+Q&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Cheng Peng](https://pubmed.ncbi.nlm.nih.gov/?term=Peng+C&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Xing-Lou Yang](https://pubmed.ncbi.nlm.nih.gov/?term=Yang+XL&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Bing Tan](https://pubmed.ncbi.nlm.nih.gov/?term=Tan+B&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Jing Chen](https://pubmed.ncbi.nlm.nih.gov/?term=Chen+J&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Aleksei A Chmura](https://pubmed.ncbi.nlm.nih.gov/?term=Chmura+AA&amp;cauthor_id=27170748) [2](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-2), [Peter Daszak](https://pubmed.ncbi.nlm.nih.gov/?term=Daszak+P&amp;cauthor_id=27170748) [2](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-2), [Zheng-Li Shi](https://pubmed.ncbi.nlm.nih.gov/?term=Shi+ZL&amp;cauthor_id=27170748) [3](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-3)
+
+也就是说从顺序上看Peter Daszak同志在石正丽上边，但是从学术惯例上看，最后署名者才是No.1，也就是说虽然Peter Daszak同志的名字在石正丽同志上边，但是其学术地位在石正丽同志下边。
+
+据他们共同发表的论文2：[Discovery of a rich gene pool of bat SARS-related coronaviruses provides new insights into the origin of SARS coronavirus](https://journals.plos.org/plospathogens/article?id=10.1371/journal.ppat.1006698)（蝙蝠SARS相关冠状病毒丰富基因库的发现为SARS冠状病毒的起源提供了新见解）,这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
+
+Ben Hu ,Lei-Ping Zeng ,Xing-Lou Yang ,Xing-Yi Ge,Wei Zhang,Bei Li,Jia-Zheng Xie,Xu-Rui Shen,Yun-Zhi Zhang,Ning Wang,Dong-Sheng Luo,Xiao-Shuang Zheng,Mei-Niang Wang,Peter Daszak,Lin-Fa Wang,Jie Cui ,Zheng-Li Shi
+
+也就是说在这篇论文里Peter Daszak同志在王林发同志上边，王林发同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边，王林发同志在石正丽同志下边，Peter Daszak同志在王林发同志下边。
+
+据他们共同发表的论文3：[Isolation and characterization of a bat SARS-like coronavirus that uses the ACE2 receptor](https://www.nature.com/articles/nature12711)（使用ACE2受体的蝙蝠SARS样冠状病毒的分离和鉴定）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
+
+Xing-Yi Ge, Jia-Lu Li, Xing-Lou Yang, Aleksei A. Chmura, Guangjian Zhu, Jonathan H. Epstein, Jonna K. Mazet, Ben Hu, Wei Zhang, Cheng Peng, Yu-Ji Zhang, Chu-Ming Luo, Bing Tan, Ning Wang, Yan Zhu, Gary Crameri, Shu-Yi Zhang, Lin-Fa Wang, Peter Daszak & Zheng-Li Shi
+
+也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
+
+据他们共同发表的论文4：[Bat Severe Acute Respiratory Syndrome-Like Coronavirus WIV1 Encodes an Extra Accessory Protein, ORFX, Involved in Modulation of the Host Immune Response](https://jvi.asm.org/content/90/14/6573)（蝙蝠严重急性呼吸系统综合症样冠状病毒WIV1编码额外的附件蛋白ORFX，参与宿主免疫反应的调节。）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
+
+Lei-Ping Zeng, Yu-Tao Gao, Xing-Yi Ge, Qian Zhang, Cheng Peng, Xing-Lou Yang, Bing Tan, Jing Chen, Aleksei A. Chmura, Peter Daszak, Zheng-Li Shi
+
+也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
+
+据他们共同发表的论文5：[Isolation and Characterization of a Novel Bat Coronavirus Closely Related to the Direct Progenitor of Severe Acute Respiratory Syndrome Coronavirus](https://pubmed.ncbi.nlm.nih.gov/26719272/)（与严重急性呼吸系统综合症冠状病毒直接祖细胞密切相关的新型蝙蝠冠状病毒的分离和鉴定）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
+
+Xing-Lou Yang 1, Ben Hu 1, Bo Wang 1, Mei-Niang Wang 1, Qian Zhang 1, Wei Zhang 1, Li-Jun Wu 1, Xing-Yi Ge 1, Yun-Zhi Zhang 2, Peter Daszak 3, Lin-Fa Wang 4, Zheng-Li Shi 5
+
+也就是说在这篇论文里Peter Daszak同志在王林发同志上边，王林发同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边，王林发同志在石正丽同志下边，Peter Daszak同志在王林发同志下边。
+
+据他们共同发表的论文6：[Fugong virus, a novel hantavirus harbored by the small oriental vole (Eothenomys eleusis) in China](https://virologyj.biomedcentral.com/articles/10.1186/s12985-016-0483-9)（扶公病毒，一种由东方小田鼠（Eothenomys eleusis）携带的新型汉坦病毒）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
+
+Xing-Yi Ge, Wei-Hong Yang, Hong Pan, Ji-Hua Zhou, Xi Han, Guang-Jian Zhu, James S. Desmond, Peter Daszak, Zheng-Li Shi & Yun-Zhi Zhang
+
+也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
+
+据他们共同发表的论文7：[Detection of diverse novel astroviruses from small mammals in China](https://pubmed.ncbi.nlm.nih.gov/25034867/)（从中国小型哺乳动物中检测出多种新型冠状病毒）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
+
+Ben Hu 1, Aleksei A Chmura 2, Jialu Li 1, Guangjian Zhu 2, James S Desmond 2, Yunzhi Zhang 3, Wei Zhang 1, Jonathan H Epstein 2, Peter Daszak 2, Zhengli Shi 1
+
+也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
+
+言而总之，Peter Daszak同志与石正丽同志谁在上边谁在下边的问题比较复杂，就像这次领衔主演去中国进行冠状病毒溯源闹剧一样的，名义上Peter Daszak同志在上边石正丽同志在下边，但实际上石正丽同志在上边Peter Daszak同志在下边，当Peter Daszak同志端起了baijiu，当石正丽同志端起了baijiu，我听到的声音是这样的——
+
+激动的心、颤抖的手，领导在上我在下，激动的心、颤抖的手，领导几口我几口。同志们，为了党为了国家，大家干了这碗酒！
+
+（文章内容仅代表作者个人观点）
 
 
-
-> [【字幕】1/27/2021文贵盖特：全球为了自己的生存，必须灭共……和爆料革命新联邦中国的联合灭共](https://gnews.org/zh-hans/824383/)
-
-
-
-郭先生直播：
-
-[https://gtv.org/video/id=60117e12b819717e79b3542f](https://gtv.org/video/id=60117e12b819717e79b3542f)
-
-软件听写未校对文本
-
-整理：pride文豪
 
 0
