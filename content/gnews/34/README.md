@@ -1,27 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美疾控中心： 公共交通工具上必须戴口罩
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/848985/)
+## 分析证明中共病毒是实验室制造的
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/849083/)
 
 - 编辑：Victor Torres
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月30日电/西喜社——**美国疾病预防控制中心已发布命令，要求乘客在美国的公共交通上戴上口罩，以呼应总统乔·拜登上任后不久的行政命令。
+**西班牙2021年1月30日电/西喜社——**一项新的中共病毒研究得出结论，有 “99.8%的可能性SARS-CoV-2来自实验室”。
 
-疾控中心的命令周一生效。它规定，乘坐飞机、火车、公共汽车、地铁、轮船、渡轮、出租车和拼车的乘客在进入这些交通工具时、在乘坐过程中和离开时必须戴上遮住鼻子和嘴的口罩。
+1月29日发表的这篇193页的论文标题为 “贝叶斯分析得出的结论是，SARS-CoV-2不是天然的人畜共患病，而是来自实验室。”
 
-此外，在机场、火车站、地铁站、公共汽车和轮渡码头、海港和入境口岸等交通枢纽场所，人们必须戴上口罩。人们在候车、上车、乘车和下车时，必须戴上口罩。
+“分析的目的是确定SARS-CoV-2的来源，即引起COVID-19的病毒。从最初98.2%的可能性是来自自然界的人畜共患，只有1.2%的可能性是实验室逃逸开始，对26个不同的、独立的事实和证据进行了系统的研究。最后的结论是，SARS-CoV-2来自实验室的可能性是99.8%，来自自然界的可能性只有0.2%。”摘要指出。
 
-拜登1月21日发布的行政命令已经强制要求商业飞机、火车和渡轮等公共交通工具上必须戴上口罩。总统还强制要求在联邦物业内佩戴口罩。
+作者史蒂文·奎伊博士发表了360多篇医学研究报告，被引用超过1万次，在全球科学家中排名前1%。
 
-疾控中心的命令提示司机、售票员和乘务员只能运载戴口罩的人。
+并且他拥有近90项美国专利，发明了7种FDA批准的药品。
 
-**新闻来源：**[https://apnews.com/article/angela-merkel-germany-coronavirus-pandemic-coronavirus-vaccine-d43484836ede407a867225e3c4250c10](https://apnews.com/article/angela-merkel-germany-coronavirus-pandemic-coronavirus-vaccine-d43484836ede407a867225e3c4250c10)
+“通过只采取公开的、关于SARS-CoV-2的科学证据，并在我的分析中使用高度保守的估计，我还是得出结论，SARS-CoV-2从实验室中逃脱是毫无疑问的。在2019年12月5名患者的标本中，武汉病毒研究所测序的额外证据似乎是腺病毒疫苗的基因序列，这需要一个解释。例如，你会在疫苗挑战试验中看到这种数据。希望世卫组织团队能够得到这些问题的答案，”他补充道。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/d4a10add-0ffa-4c11-97d3-fd89cbf1c1b3-5.jpg)
+
+
+> [CLAIM: Analysis Proves COVID is Lab-Made Virus](https://thenationalpulse.com/breaking/covid-made-in-lab/)
+
+
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
