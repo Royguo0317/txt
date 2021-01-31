@@ -1,76 +1,125 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新的英国签证将向300万（BNO）持有人开放
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/852125/)
+## 中共国对维吾尔的种族大屠杀
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/852097/)
 
-新闻来源：《天空新闻（Sky News)》| 作者：格雷格·赫弗（Greg Heffer） | 发布时间：2021年1月29日
+根据CBN News于2021年1月28日的报道，中共对维吾尔族人实施了种族大屠杀。
 
-翻译/简评：Marialu | 校对：感恩 | 审核：万人往 | Page：Daoiii
-![]()![](https://www.gnews.org/wp-content/uploads/2021/01/960-38.jpg)
-***简评：***
+在节目主持人提到“迈克·蓬佩奥作为美国国务卿的最后行动之一是将中国对待维吾尔族和突厥人的行为定为种族灭绝，而拜登政府也支持这一指认”话题时，受访嘉宾对此做了详细解释并特别强调：
 
-**根据英国《天空新闻》报道，自中共在香港实施《新国安法》以来，英国政府向那些持有英国国民海外(BNO)身份的人提供获得英国身份的途径。最新消息称，一个新的签证通道自本月31日(周日）起开放，到时将有近300万人可以申请赴英国生活、学习和工作，在英国居住5年后，他们将能够申请定居身份——再过12个月，他们将可以申请英国公民身份。这是英国政府以此作为“反对北京镇压异议”的手段。**
-
-**英国首相鲍里斯·约翰逊说：“我感到非常自豪，我们为香港(BNO)持有人提供了这条新的途径，让他们在英国生活、工作和安家。我们这样做是为了尊重我们与香港人民之间深厚的历史关系和友谊，我们捍卫自由和自治——即英国和香港都珍视的价值观。”**
-
-**然而，北京本周五表示：从1月31日（周日）起中方将不再承认(BNO)护照作为旅行证件和身份证明，试图阻止香港人离开。很明显，中共政府违犯《中英联合声明》，无视国际条约，现在更进一步践踏香港人的行动自由。**
-[!\[\]()!\[\](https://spark.adobe.com/page/BFFDw534JadbR/images/f12e8df2-a8c9-453f-b243-ed008c9fc8c5.jpg?asset_id=d4da8b54-8626-40fd-8317-907dda547500&amp;img_etag=%22e8723fd602bba13ac3dd950fe17712d6%22&amp;size=1024)](https://spark.adobe.com/page/BFFDw534JadbR/images/f12e8df2-a8c9-453f-b243-ed008c9fc8c5.jpg?asset_id=d4da8b54-8626-40fd-8317-907dda547500&amp;img_etag=%22e8723fd602bba13ac3dd950fe17712d6%22&amp;size=1024)来源：立場新聞
+“根据1948年《联合国防止和惩治灭绝种族罪公约》的规定，这一指认要求各国采取行动。我们敦促司法部执行1091条款，起诉中[共]国驻美国的外交官，包括中[共]国大使崔天凯的种族灭绝罪。同时还敦促其他国家，特别是美国的盟友承认种族灭绝的暴行，并将此问题提交联合国安全理事会，敦促联合国维护其种族灭绝公约。需要采取真正有力的，强硬有力的行动来阻止这种情况。”
 
 
-**英国外交大臣多米尼克·拉布表示，英国政府“在香港问题上不会坐视不理”，并将“履行我们对香港人民的历史责任。英国将永远坚持正义，恪守我们的承诺”。反观中共对香港承诺的所谓“一国两制”五十年不变，中共亲自撕毁承诺。现在被中共“以警治港，以黑治港”的统治下，美丽的香港已沦为中共的一个新殖民地，没有了言论自由和集会自由，没有民主和法治，无处不受国安和香港伪政府的监控及骚扰。**
 
-**我们强烈呼吁英国政府及其他民主国家向中共政府作出强硬的立场和回应，看清中共的残暴邪恶本质以及在香港犯下的滔天罪行。CCP是人类文明发展的最大威胁，揭露中共，消灭中共，这是每个有正义和良知的新中国联邦人的共同事业。**
+**Communist China Commits Genocide Against Uyghurs**
 
-***原文翻译：***
+**中共国对维吾尔的种族大屠杀**
 
-### 香港：新的英国签证途径将向多达300万人开放
+Today from the Global Lane: Chinese genocide against the Uyghurs.
 
-**继中共国实施了一项有争议的新安全法后，（英国政府）正在向（BNO）身份的人提供获得英国身份的途径。**
-[!\[\]()!\[\](https://spark.adobe.com/page/BFFDw534JadbR/images/35cb0e02-6f3a-4b7e-9abc-aa3c39f664e8.png?asset_id=5d68e52b-74fe-4e4e-88a3-5c53190c5302&amp;img_etag=%2283dcfacc5a0ddb934a73ea417bd81f88%22&amp;size=1024)](https://spark.adobe.com/page/BFFDw534JadbR/images/35cb0e02-6f3a-4b7e-9abc-aa3c39f664e8.png?asset_id=5d68e52b-74fe-4e4e-88a3-5c53190c5302&amp;img_etag=%2283dcfacc5a0ddb934a73ea417bd81f88%22&amp;size=1024)图片：去年中共国对香港实施了一项颇具争议的新安全法
-一个新的签证通道周日开放，届时香港将有近300万人可以申请在英国生活、学习和工作。
+今天的Global Lane来谈谈“中[共]国对维吾尔人的种族大屠杀”。
 
-去年夏天，政府为那些持有英国国民（海外）身份的人及其符合条件的家庭成员提供了一条获得英国公民身份的途径。
+“Hundreds of thousands of Uyghurs and other Turkic women have been sterilized. Over 3.7 million babies forcibly being aborted.”
 
-此前，中共国在香港实施了一项颇具争议的新安全法，自那以后，英国将其描述为“反对北京镇压异议”的手段。
+数十万维吾尔和其他突厥妇女被绝育。超过370万婴儿被强行堕胎。
 
-与其他签证一样，在英国居住5年后，他们将能够申请定居身份——再过12个月，他们将可以申请英国公民身份。
+**Host**: One of Mike Pompeo’s final actions as U.S. Secretary of State was to designate China’s treatment of ethnic Uyghurs and Turkic people as genocide. The Biden administration also supports that designation. So what does it mean? What is next?
 
-英国首相鲍里斯·约翰逊说：“我感到非常自豪，我们为香港的英国海外侨民(BNO)提供了这条新的途径，让他们在我们的国家生活、工作和安家。”
+**主持人**：迈克·蓬佩奥作为美国国务卿的最后行动之一是将中国对待维吾尔族和突厥人的行为定为种族灭绝。拜登政府也支持这一指认。那么这意味着什么？下一步会是什么？
 
-“我们这样做是为了尊重我们与香港人民之间深厚的历史关系和友谊，我们捍卫自由和自治——即英国和香港都珍视的价值观。”
+**Guess**: Under terms of the 1948 United Nations’ convention, on the prevention and punishment of the crime of genocide, the designation requires nations to take action.
 
-英国政府之前已宣布中共国的新国安法违反了《中英联合声明》，即1997年香港从英国归回到中国的协议。
+**嘉宾：**根据1948年《联合国防止和惩治灭绝种族罪公约》的规定，这一指认要求各国采取行动。
 
-然而，北京周五表示，从周日起将不再承认BN(O)护照——这是一个重大的但主要是象征性的举措，因为这不应该阻止香港人离开。
+Starting about 2017, millions of people were thrown into what China calls re-education camps, but what are actually concentration camps, where they are forced to denounce their ethnic and religious identity, forced starvation, forced medication, both men and women have been raped in these facilities.
 
-外交大臣多米尼克·拉布表示，英国政府“在香港问题上不会坐视不理”，并将“履行我们对香港人民的历史责任”。
+从2017年左右开始，数百万人被扔进了中[共]国所谓的再教育营，但实际上是集中营。在那里，他们被迫放弃自己的种族和宗教身份，被迫挨饿，被迫吃药，在这些设施中，男子和妇女都遭到强奸。
 
-英国内政大臣普里蒂·帕特尔（Priti Patel）补充说：“全球英国将永远坚持正确的立场，并恪守我们的承诺。”
+The Chinese government is harvesting the organs of select Uyghurs and other Turkic prisoners, and hundreds of thousands of Uyghurs and other Turkic women have been sterilized by the Chinese government, in addition to over 3.7 million babies forcibly being aborted by the Chinese government.
 
-在新的签证途径开放前的过去6个月里，大约有7000名英国国民海外(BNO)身份的持有人及其家属已经获批“特许入境许可”(LOTR)到英国。
+中[共]国政府正在选择性收割维吾尔和其他突厥囚犯的器官，数十万维吾尔和其他突厥妇女被中[共]国政府绝育，此外还有370多万婴儿被中国政府强行流产。
 
-英国政府估计，有290万英国国民海外(BNO)公民有资格移居英国，另外估计还有230万符合条件的家属。
+And all of these constitute as genocide as defined under the U.N. genocide convention, and as defined under the Elie Wiesel Genocide Prevention Act, and section 1091 of the U.S. code on genocide.
 
-他们预计，第一年将有多达15.5万名BN(O)身份持有者及其家属使用新的签证途径，五年内将有25万至32.5万人使用新的签证途径。
+所有这些都构成了《联合国灭绝种族罪公约》所界定的灭绝种族罪，也构成了《埃利·维瑟尔防止种族灭绝法》和《美国法典》关于灭绝种族罪的第1091条所界定的灭绝种族罪。
 
-从2月23日起，那些符合条件的持有生物识别护照的人可以在线申请，然后使用智能手机应用程序扫描护照，而不是去签证申请中心。
+**Host**: Well, I want to talk about that forced sterilization again in a minute, but I know you’ve told us before about those concentration camps and prisons, and you have a map where you found close to 400 in total, or at least you say three million Uyghurs are being detained by the Chinese.
 
-逗留5年的签证费为每人250英镑，或者申请人还可以申请逗留30个月，费用为每人180英镑。
+**主持人**：好吧，我想一会儿再谈一下那个强制绝育的问题，但我知道你以前跟我们说过那些集中营和监狱，你有一张地图，你发现总共近400个，你说至少有300万维吾尔人被中[共]国拘留。
 
-这比许多其他签证（费）要低。
+So tell us a little bit more about that in the forced labor and the re-education they’re enduring.
 
-申请人必须自给自足，并需要证明他们在抵达英国后至少六个月内可以容纳并维持自己及其家人。
+所以请再给我们讲讲，他们所承受的强迫劳役和再教育。
 
-他们还必须没有严重的刑事犯罪记录。
+**Guess**: So, initially the Chinese government began to send millions of people in the concentration camps to, you know, forcefully brainwash them, while also, you know, killing select number of them for their organs.
 
-🔗[原文链接](https://news.sky.com/story/hong-kong-new-uk-visa-route-to-open-for-up-to-three-million-people-12201782#:~:text=Travel-,Hong%20Kong%3A%20New%20UK%20visa%20route%20opens%20for%20up%20to,new%20security%20law%20by%20China.&amp;text=Just%20under%20three%20million%20people,a%20new%20visa%20route%20opened)
+**嘉宾**：所以最初中[共]国政府开始把几百万人送进集中营，给他们强行洗脑，同时如你所知为了他们的器官而杀死了一些人。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+However, in recent years, especially with the coronavirus pandemic, China has begun to shift to using them as slave labor.
 
+然而近年来特别是随着冠状病毒的疫情，中国已经开始转而把他们当作奴工来使用。
 
-编辑：【英国伦敦喜庄园编辑部】
-[!\[\]()!\[\](https://spark.adobe.com/page/BFFDw534JadbR/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/BFFDw534JadbR/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-0
+In fact, over half a million people were forced to pick cotton during the coronavirus pandemic, whereas millions are still, you know, working in slave labor factories, producing, you know, products for companies like Apple, Nike, Costco, and dozens of others.
+
+事实上，在冠状病毒疫情期间，超过50万人被迫采摘棉花，而数百万人如你所知仍然在血汗工厂工作，为苹果、耐克、好市多等公司生产产品，还有其他几十家公司。
+
+**Host**: I know that Twitter recently actually locked the account of the Chinese embassy in Washington D.C. after it tweeted that, Uyghur women had been emancipated by government policy from being “baby making machines”. Your reaction to what happened.
+
+**主持人**：我知道最近推特实际上封锁了中[共]国驻华盛顿大使馆的账号，因为它发推说，维吾尔族妇女已经被政府政策解放，不再是“生孩子机器”。说说你对此事的反应。
+
+**Guest**: This was a dehumanizing tweet, and we are you know happy that Twitter has blocked or barred the Chinese embassy from tweeting, from using its account.
+
+**嘉宾**：这是一条泯灭人性的推文，如你所知，我们高兴推特屏蔽或禁止中[共]国大使馆发推特，及使用其账号。
+
+However, despite this there are numerous other Chinese state-run accounts or state-run affiliated media accounts that are continuing to spread propaganda, dehumanizing the Uyghurs and other Turkic peoples in East Turkistan.
+
+然而尽管如此，还有许多其他的中[共]国国营账号或国营附属媒体账号在继续宣传，非人化维吾尔族人和其他土耳其人，以及每一个东土耳其人。
+
+**Host**: Okay, Salih, so we have that genocide designation now, what should the Biden administration do? How should the U.S respond?
+
+**主持人**：好吧，萨利赫，我们现在有了种族灭绝的指认，拜登政府应该怎么做？美国应该如何回应？
+
+**Guess**: One thing that we’re urging is that the Justice Department implements Section 1091, and prosecute China’s diplomats in the United States, including its Ambassador Cui Tiankai for genocide.
+
+**嘉宾**：我们敦促司法部执行1091条款，起诉中[共]国驻美国的外交官，包括中[共]国大使崔天凯的种族灭绝罪。
+
+While also urging other countries especially American allies to recognize the atrocities of genocide, and to take this to the U.N. Security Council, and urge the U.N. to uphold its genocide convention.
+
+同时还敦促其他国家，特别是美国的盟友承认种族灭绝的暴行，并将此问题提交联合国安全理事会，敦促联合国维护其种族灭绝公约。
+
+There needs to be real strong, real strong actions that need to be taken to stop this.
+
+需要采取真正有力的，强硬有力的行动来阻止这种情况。
+
+**Host**: There is a lot of Chinese involvement in Middle East nations, especially Muslim ones. So how come your fellow Muslims aren’t speaking out about this? I’m thinking in particular those in the Middle East who are working deals with the Chinese. Your thoughts.
+
+**主持人**：中[共]国在中东国家，尤其是穆斯林国家的参与度很高。那么，你的穆斯林同胞怎么就不发声呢？我具体想到的是那些在中东与中[共]国人做交易的那些人。你的想法如何。
+
+**Guess**: Again, this is they’re all working… you know, for their own economic interests, so they’re ultimately turning a blind eye, and in many cases selling Uyghurs to the Chinese government.
+
+**嘉宾**：他们都是为了自己的经济利益而服务，所以他们最终都是视而不见，并且在更多的情况下把维吾尔人出卖给中[共]国政府。
+
+Turkey, in fact, is, you know, has an extradition treaty with China and they are deporting Uyghurs, and there are rumors that they’re about to deport even more Uyghurs in exchange for, you know, the coronavirus vaccine from China.
+
+如你所知，其实土耳其与中[共]国是有引渡条约的，他们正在驱逐维吾尔人，有传言说他们要驱逐更多的维吾尔人，以换取——你知道的——中[共]国的冠状病毒疫苗。
+
+*出处:  [https://youtu.be/JrUzSGgWJEs](https://youtu.be/JrUzSGgWJEs) (00:00-00:16, 00:43-01:08, 01:57-06:25)*
+
+*翻译:【Dlrow】 校对:【Isaiah4031】 字幕:【V%】 编辑:【Mark】*
+
+*喜马拉雅玫瑰园出品*
+
+*以上翻译整理仅代表作者个人观点**，**不代表**GNEWS**或他人立场。*
+
+*敬请关注**:*
+
+*GTV:**[喜马拉雅玫瑰园中文频道](https://gtv.org/user/6005ad73f579a75e0bde4d27)**，**[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)*
+
+*Gab:**[https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)*
+
+*Blog:**[https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)*
+
+*Vimeo:**[https://vimeo.com/user131524598](https://vimeo.com/user131524598)*
+
++1
