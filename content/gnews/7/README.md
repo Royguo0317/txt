@@ -1,60 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】港府推手机卡实名 专家指剥夺私隐 「一步一步跟紧大陆步伐」
-` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/850064/)
+## 美国病毒专家Peter Daszak与科学女巫石正丽两个人谁在上边谁在下边
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/850292/)
 
-搜集：文燕
+![]()![](https://gnews.org/wp-content/uploads/2021/01/封面-259.jpg)
+撰稿：巴黎七星农场；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-编撰：文燕
-
-审稿：卡西欧
-
-上传：彩虹（Rainbow)
-
-香港政府在1月29日突然宣布，为了杜绝炸弹案与电话骗案等罪行，将推行手机电话卡实名制，咨询期只有1个月。执法部门在迫切情况下无手令，可要求电讯商提供客户个人资料。有专家质疑政府急于推行限制匿名权的举措目的是要全面监控市民。联合国人权报告中曾提出要保障「匿名权」（right to stay anonymous)，认为匿名权也是人权的一部份，很多国家也没有实施电话卡实名制。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/james-5.png)1月29日，港府公布将实施手机卡实名制。 （图片来源)大纪元 ETIENNE LAURENT/AFP via Getty Images)
-
-
-邱腾华：做法只是为了杜绝炸弹案与电话骗案等罪行
-
-香港商务及经济发展局局长邱腾华声称，今次做法对绝大部份人「绝对无影响」。港府在1月29日公布实施电话卡实名制的计划之后，只有1个月的咨询期，少于通常的3个月咨询期。在记者会上，邱腾华拒绝承诺不会要求人脸识别，只是表示没有计划索取更多登记资料。
-
-数据科学家黄浩华：港府「一步一步跟紧大陆步伐」
-
-在今年1月以来，香港资讯自由不断收紧。当局先是引用【港版国安法】封锁网站〈香港编年史〉，又收紧域名注册规定。
-
-资讯科技界选委、数据科学家黄浩华向【大纪元】表示，政府的做法损害市民的私隐，对杜绝犯罪则作用不大。他担心政府急于推行限制匿名权的举措是向大陆看齐，并且将继续推行一系列措施，这一系列的措施不断收窄网上行为。
-
-而对于骗徒或炸弹袭击者，如果他们使用境外电话卡犯案，或者使用虚拟电话卡（Virtual Sim)或网络电话（VoIP)技术，都可以回避实名登记。 「你禁止了太空卡，有其它途径做他们想做的事。」黄浩华担心，如果政府要继续​​堵塞这些匿名通讯的漏洞，下一步可能要禁止使用虚拟电话卡（Virtual Sim)或网络电话（VoIP)技术。
-
-在中国大陆，中共当局自2010年起即推出手机实名制，到2019年，又实施办理电话上网需人脸识别措施。黄浩华担心，港府正「一步一步跟紧大陆的步伐」。
-
-联合国人权报告： 「匿名权」 也是人权的一部份
-
-对于政府以一百多个国家都实行电话卡实名制为借口，黄浩华表示，政府没有讲另外一方面的意见。他指，联合国人权报告中曾提出要保障「匿名权」（right to stay anonymous)，认为匿名权也是人权的一部份，很多国家也没有实施电话卡实名制。
-
-黄浩华则指出，市民有隐匿身份的正当需求，不应该被无端剥夺。例如传媒记者可能因为采访对象敏感而使用「太空卡」(无用身份信息登记的SIM卡)，保持隐密性。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/james-1-6.png)不少香港示威者均另外购买不记名电话卡作沟通，以防当局监控。 （图片来源：BBC 中文网）
-点评
-
-手机实名制是一种手机管理模式，有的国家实施手机实名制或者有限度的实名制，也有许多国家允许手机匿名。有的网站或是网路服务，在建立帐号时必须使用手机简讯认证。因此在采取手机门号实名制的国家，会导致原本匿名的网路帐号与手机门号做连结。因此，当警方认为有必要时可以从网路帐号到手机门号，向电信业者调阅个人资料。
-
-在前年反修例运动中，不少示威者也有购买不记名的电话卡作沟通，防止当局监控。外界认为，今次举措是反修例运动后当局又一打压示威活动的举措。
-
-民主党对措施表示强烈反对，认为政府此举「令人怀疑是企图全面监控市民，特别是市民的网上活动」，加上执法机关可在紧急情况下绕过法庭向电讯商索取资料，此举「增加了政府滥权的风险，市民私隐完全不受保障」。
-
-实际上，保安和监控很多时候是一线之差，最后是取决于市民对政府的信任程度。林郑政府在信任度极低时推出这项计划，令社会产生许多担忧和猜疑。部分市民更认为，林郑政府是透过这个冠冕堂皇的借口，匆匆忙忙通过法令，把750万香港人的隐私献给中央做大礼，为她连任特首加分！
-
-资料来源 [大纪元香港](https://hk.epochtimes.com/news/2021-01-30/70014213) 、 [BBC 中文网](https://www.bbc.com/zhongwen/simp/chinese-news-55851665)[、   维基百科](https://zh.wikipedia.org/wiki/%E6%89%8B%E6%9C%BA%E5%AE%9E%E5%90%8D%E5%88%B6) 、
+据[\[email protected\]](https://twitter.com/wangqin56612794)回复[@PeterDaszak](https://twitter.com/PeterDaszak)和[@NBCNews](https://twitter.com/NBCNews)[上午11:16 · 2021年1月31日](https://twitter.com/wangqin56612794/status/1355716621935865862)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)
 
 
 
+> [pic.twitter.com/y7RzEzIqHp](https://t.co/y7RzEzIqHp)
+> — wangqin (@wangqin56612794) [January 31, 2021](https://twitter.com/wangqin56612794/status/1355716621935865862?ref_src=twsrc%5Etfw)
 
 
 
+我们可以看出此次领衔主演赴中国进行冠状病毒溯源的主角是Perter Daszak同志，该同志与为中共卖命的蝙蝠女巫石正丽的友谊源远流长，那么Peter Daszak同志与石正丽同志到底谁在上边谁在下边呢？请大家不要误会，本文并非八卦，而是为了通过学术考证一下Peter Daszak同志与石正丽同志到底谁在上边谁在下边。
 
+据他们共同发表的论文1：[Bat Severe Acute Respiratory Syndrome-Like Coronavirus WIV1 Encodes an Extra Accessory Protein, ORFX, Involved in Modulation of the Host Immune Response](https://pubmed.ncbi.nlm.nih.gov/27170748/)（蝙蝠严重急性呼吸系统综合症样冠状病毒WIV1编码额外的附件蛋白ORFX，参与宿主免疫反应的调节。）,这篇论文被收入闫丽梦博士的Unusual Features of theSARS-CoV-2Genome Suggesting Sophisticated Laboratory Modification Rather Than Natural Evolution and Delineation of Its ProbableSynthetic Route (SARS-CoV-2基因组的不寻常特征表明其经由实验室复杂改造的特性非源于自然进化及其可能的合成路径的描述)报告中的参考文献内，这篇论文的作者顺序是——
 
+[Lei-Ping Zeng](https://pubmed.ncbi.nlm.nih.gov/?term=Zeng+LP&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Yu-Tao Gao](https://pubmed.ncbi.nlm.nih.gov/?term=Gao+YT&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Xing-Yi Ge](https://pubmed.ncbi.nlm.nih.gov/?term=Ge+XY&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Qian Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+Q&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Cheng Peng](https://pubmed.ncbi.nlm.nih.gov/?term=Peng+C&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Xing-Lou Yang](https://pubmed.ncbi.nlm.nih.gov/?term=Yang+XL&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Bing Tan](https://pubmed.ncbi.nlm.nih.gov/?term=Tan+B&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Jing Chen](https://pubmed.ncbi.nlm.nih.gov/?term=Chen+J&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Aleksei A Chmura](https://pubmed.ncbi.nlm.nih.gov/?term=Chmura+AA&amp;cauthor_id=27170748) [2](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-2), [Peter Daszak](https://pubmed.ncbi.nlm.nih.gov/?term=Daszak+P&amp;cauthor_id=27170748) [2](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-2), [Zheng-Li Shi](https://pubmed.ncbi.nlm.nih.gov/?term=Shi+ZL&amp;cauthor_id=27170748) [3](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-3)
+
+也就是说从顺序上看Peter Daszak同志在石正丽上边，但是从学术惯例上看，最后署名者才是No.1，也就是说虽然Peter Daszak同志的名字在石正丽同志上边，但是其学术地位在石正丽同志下边。
+
+据他们共同发表的论文2：[Discovery of a rich gene pool of bat SARS-related coronaviruses provides new insights into the origin of SARS coronavirus](https://journals.plos.org/plospathogens/article?id=10.1371/journal.ppat.1006698)（蝙蝠SARS相关冠状病毒丰富基因库的发现为SARS冠状病毒的起源提供了新见解）,这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
+
+Ben Hu ,Lei-Ping Zeng ,Xing-Lou Yang ,Xing-Yi Ge,Wei Zhang,Bei Li,Jia-Zheng Xie,Xu-Rui Shen,Yun-Zhi Zhang,Ning Wang,Dong-Sheng Luo,Xiao-Shuang Zheng,Mei-Niang Wang,Peter Daszak,Lin-Fa Wang,Jie Cui ,Zheng-Li Shi
+
+也就是说在这篇论文里Peter Daszak同志在王林发同志上边，王林发同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边，王林发同志在石正丽同志下边，Peter Daszak同志在王林发同志下边。
+
+据他们共同发表的论文3：[Isolation and characterization of a bat SARS-like coronavirus that uses the ACE2 receptor](https://www.nature.com/articles/nature12711)（使用ACE2受体的蝙蝠SARS样冠状病毒的分离和鉴定）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
+
+Xing-Yi Ge, Jia-Lu Li, Xing-Lou Yang, Aleksei A. Chmura, Guangjian Zhu, Jonathan H. Epstein, Jonna K. Mazet, Ben Hu, Wei Zhang, Cheng Peng, Yu-Ji Zhang, Chu-Ming Luo, Bing Tan, Ning Wang, Yan Zhu, Gary Crameri, Shu-Yi Zhang, Lin-Fa Wang, Peter Daszak & Zheng-Li Shi
+
+也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
+
+据他们共同发表的论文4：[Bat Severe Acute Respiratory Syndrome-Like Coronavirus WIV1 Encodes an Extra Accessory Protein, ORFX, Involved in Modulation of the Host Immune Response](https://jvi.asm.org/content/90/14/6573)（蝙蝠严重急性呼吸系统综合症样冠状病毒WIV1编码额外的附件蛋白ORFX，参与宿主免疫反应的调节。）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
+
+Lei-Ping Zeng, Yu-Tao Gao, Xing-Yi Ge, Qian Zhang, Cheng Peng, Xing-Lou Yang, Bing Tan, Jing Chen, Aleksei A. Chmura, Peter Daszak, Zheng-Li Shi
+
+也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
+
+据他们共同发表的论文5：[Isolation and Characterization of a Novel Bat Coronavirus Closely Related to the Direct Progenitor of Severe Acute Respiratory Syndrome Coronavirus](https://pubmed.ncbi.nlm.nih.gov/26719272/)（与严重急性呼吸系统综合症冠状病毒直接祖细胞密切相关的新型蝙蝠冠状病毒的分离和鉴定）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
+
+Xing-Lou Yang 1, Ben Hu 1, Bo Wang 1, Mei-Niang Wang 1, Qian Zhang 1, Wei Zhang 1, Li-Jun Wu 1, Xing-Yi Ge 1, Yun-Zhi Zhang 2, Peter Daszak 3, Lin-Fa Wang 4, Zheng-Li Shi 5
+
+也就是说在这篇论文里Peter Daszak同志在王林发同志上边，王林发同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边，王林发同志在石正丽同志下边，Peter Daszak同志在王林发同志下边。
+
+据他们共同发表的论文6：[Fugong virus, a novel hantavirus harbored by the small oriental vole (Eothenomys eleusis) in China](https://virologyj.biomedcentral.com/articles/10.1186/s12985-016-0483-9)（扶公病毒，一种由东方小田鼠（Eothenomys eleusis）携带的新型汉坦病毒）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
+
+Xing-Yi Ge, Wei-Hong Yang, Hong Pan, Ji-Hua Zhou, Xi Han, Guang-Jian Zhu, James S. Desmond, Peter Daszak, Zheng-Li Shi & Yun-Zhi Zhang
+
+也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
+
+据他们共同发表的论文7：[Detection of diverse novel astroviruses from small mammals in China](https://pubmed.ncbi.nlm.nih.gov/25034867/)（从中国小型哺乳动物中检测出多种新型冠状病毒）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
+
+Ben Hu 1, Aleksei A Chmura 2, Jialu Li 1, Guangjian Zhu 2, James S Desmond 2, Yunzhi Zhang 3, Wei Zhang 1, Jonathan H Epstein 2, Peter Daszak 2, Zhengli Shi 1
+
+也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
+
+言而总之，Peter Daszak同志与石正丽同志谁在上边谁在下边的问题比较复杂，就像这次领衔主演去中国进行冠状病毒溯源闹剧一样的，名义上Peter Daszak同志在上边石正丽同志在下边，但实际上石正丽同志在上边Peter Daszak同志在下边，当Peter Daszak同志端起了baijiu，当石正丽同志端起了baijiu，我听到的声音是这样的——
+
+激动的心、颤抖的手，领导在上我在下，激动的心、颤抖的手，领导几口我几口。同志们，为了党为了国家，大家干了这碗酒！
+
+（文章内容仅代表作者个人观点）
 
 
 
