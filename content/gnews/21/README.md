@@ -1,48 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生早在2019年就曝光了习近平功打台湾的“双龙计划”
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/849705/)
+## 在爆料革命中开悟: 放下执念，坚定信念，继续前行! （一）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/849758/)
 
-新闻简述：郭先生早在2019年9月1日就曝光了中共的“双龙计划”。他是以习近平为首的中共企图以香港事件为借口打击台湾的一个军事计划。郭先生呼吁台湾人民要站在香港和世界正义力量的一边才能获得安全。他也奉劝大陆的亿万中国人不要助纣为虐，那样等待人们的将是像二战后的日本和德国纳粹一样的下场。
-视频来源：[https://www.youtube.com/watch?v=5s4aSMrsubg](https://www.youtube.com/watch?v=5s4aSMrsubg) (30:01-32:19, 38:45-40:14)
-(30:01-32:19)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/130-24.jpg)
+**图片来源：网络**
 
-共产党习近平和王岐山的国家安全委员会，和中国的“党天下、家天下”的中国政权已经做好了一切的计划。在福建，50万大军，导弹部队已经准备好了。当香港失去全面控制，美国全面进行制裁，全面进行封锁，像天安门六四事件一样，西方和美国世界对中国进行制裁的时候，共产党就会发起突然间的对台湾的定点斩首行动，军事打击，彻底收复台湾，这叫“双麟行动”（又名“双龙行动”）。
+**引言：川普总统败选**
 
-The CCP’s National Security Commission led by Xi Jinping and Wang Qishan and the Chinese regime, under the ideology of “all under heaven belong to the party and the party’s few families”, have planned it all out. In Fujian, 500,000 troops and missile force are ready. Once Hong Kong’s situation is out of control and America imposes comprehensive sanctions and complete blockades, just like after the Tiananmen June Fourth Incident, the West and the US and the world imposed suctions on China, the CCP will suddenly launch a targeted decapitation operation and military strikes against Taiwan and take back Taiwan completely. This is called “Operation Shuanglin” (a.k.a. “Operation Shuanglong” or “Operation Dual Dragon”).
+今年1月 20号，新当选的美国总统乔拜登宣誓就职美国第46任总统，前任总统川普卸任，离开白宫回到其位于佛罗里达棕榈滩的马阿拉歌私人俱乐部。不少战友为此感觉到伤心难过甚至绝望，感觉天都要塌下来了，纷纷联系文贵先生寻求答案和安慰，也有无数战友给文贵发安慰信息，然而我们更多的战友安之若素，跟往常一样淡定地继续致力于爆料革命的各项工作。次日文贵先生在直播中答复战友各种提问和总结[1]，开场第一句话就说“昨晚是最近一段时间文贵是睡得最好的一晚上，我这人呀没心没肺的，一到这个时候我就睡得特别好、特别踏实。”然后开始分享他在8964后从清丰看守所出来之后潜伏在CCP体制中，与CCP大大小小的盗国贼及其走狗们斗智斗勇的经历；以及他发动爆料革命4年来，CCP动用了国家机器和全部的潜伏、沉默的力量对他的造谣污蔑，发红通蓝通，没收上千亿的资产，抗议，威胁、利诱，暗杀；然而他不仅变得越来越安全，越来越强大，而且凝聚了全球亿万战友，创建了新中国联邦，将世界上一个最大的流氓集团犯罪组织CCP定义为反人类、种族大屠杀，并让它打开了潘多拉的盒子展示给世界——冠状病毒。不但如此，最重要的是成功的把共产党和中国人民和全世界分开，共产主义不代表中国，共产党是全人类的公敌。同时他也坦言“1月20号这一天确实是我们爆料革命的一个重大挫折，对灭共事业，它将有着一个不可确定的因素和巨大的挑战；但是绝对是上天给我们爆料革命带来的最大的机会！”从文贵先生1月20日当晚不但没有辗转反侧，反而睡得更加香甜，我们可以看出来他是经历过狂风巨浪和生死考验的人，是一个超越俗世，心中没有执念，真正开悟了的人，其境界和格局非常人所能及，如同登上泰山之巅，自然视野辽阔，一览众山之小。我们可以通过佛教的智慧来了解一下什么是执念，为什么执念带给我们烦恼和痛苦。
 
-那么这个“双麟行动”，大家可以看到，它的理由就是香港发生的这场真正的返送中的行动他们说是美国和台湾的台独分子在背后策划的。很多香港的，所谓领导，运动的领导都在台湾，藏在台湾，他们要抓回，抓捕这些人。然后就对台湾进行军事行动，收复台湾。这才是他的真正的这场核心的目的的核心之一。
+**1.****人的执念和烦恼**
 
-So, this “Operation Shuanglin”, as we can see, will use the excuse that the Hong Kong Movement, which is actually an anti-extradition bill protest, was plotted by the Americans and Taiwanese who secretly supported the independence of Taiwan. [They will say that] many leaders of the Hong Kong Movement are hiding in Taiwan, so in order to capture these people, they will need to have military actions toward Taiwan and liberate Taiwan. This is one of the real purposes and the core.
+[禅宗](https://safaritime.cn/%E7%A6%85%E5%AE%97)是最能体现佛教中国化的一个佛教宗派，赵州（今河北赵县）禅师（778～897），俗姓郝，曹州人（治所在今山东菏泽）；幼年出家，后得法于南泉普愿禅师，为禅宗六祖惠能大师之后的第四代传人，法号从谂，是禅宗史上一位震古烁今的大师；其证悟渊深、年高德劭，享誉南北禅林并称“南有雪峰，北有赵州”，赵州禅师住世120年，圆寂后，寺内建塔供奉衣钵和舍利，谥号“真际禅师”[2，3]。在赵州禅师的禅院中，有一位文远和尚，他整天以拜佛为己任，终日打坐，甚至不思劳作，他认为这样就能悟得禅的真谛。赵州禅师知道这件事情后，想让这位弟子明白虽然禅是释家的支脉，在很多方面还遗留着释家的形式，比如打坐、拜佛等，但是，只是执著于这样的形式并不能悟到什么真谛。他想把这位文远和尚从形式的执著中解脱出来。一天，赵州禅师看见文远正在佛殿里拜佛，就走过去，用禅杖打了他一下。然后赵州禅师问：“你在这里干什么呢？”
 
-接下来我想告诉大家的事情，台湾的这场可能随时在下一小时，下一天，下一分钟就有可能，有很大的可能是这个样子的。台湾政权的无知、自私、懦弱，以及多年来被共产党进行了“蓝金黄”，收买了国民党，以及民进党的各种政权，将付出巨大代价，将台湾人民毁于一旦。而且这次“双麟计划”也是不惜代价，不择手段，必须100%拿下台湾，不论死多少人，流多少血。
+“我在拜佛！”
 
-So next what I want to tell everyone is that [the military action toward] Taiwan may happen the next hour, the next day, or the next minute, and anything is possible. So Taiwan government’s ignorance, selfishness, and cowardice, and the many years of the CCP’s BGY on the Nationalist Party and the Democratic Progressive Party in Taiwan will make Taiwan to pay big prices and will destroy the Taiwanese people. This “Operation Shuanglin” is to completely conquer Taiwan no matter what means are used and what prices are paid, no matter how many people are killed and how much blood is shed.
+“拜佛干什么？”
 
-所以这一次香港成了台湾最大的保护的屏障。台湾只有站在香港的一边，保护香港人民，你才能安全，只有大胆行动和全世界站在一起，你才能，台湾才可能有安全。否则你很快将变成了炮灰，弹灰。
+文远一听，心中就犯起了嘀咕，堂堂大禅师怎么还问这种简单的事。出家人谁能不拜佛？但是他也想不出该说什么，就说：“拜佛也是好事呀！”
 
-So this time, Hong Kong has become the biggest shield for Taiwan. Taiwan will be safe only if it sides with Hong Kong and protects Hong Kong people. By taking brave actions and standing with the world, will Taiwan have security. Otherwise, it will become the ashes [in front of the military conquer of the CCP].
+那知赵州禅师听完后，缓缓地说：“好事不如无事！无事胜佛。”
 
-（38:45-40:14）
+禅宗认为无事就是最大的空、最大的幸福。修成正果的心境之中早已经没有了尘土，没有了外在的纷扰岂不是最大的快乐。一切的形式只能是一种执著，会给人们的心中带来些烦恼和不安。无事胜佛，说的就是这个道理。境由心造，老话说得好：万物皆由心生！心不动，万物皆不动，心不变，万物皆不变。我们常常被生活中的很多俗事紧紧纠缠，苦苦牵绊，内心久久不得解脱。我们总习惯去坚持不该坚持的，去执着不该执着的，明知只会徒增伤悲，却兀自舍不得放不下，不停地折磨自己。其实，真正束缚住自己的不是这些俗事，而是自己的内心。那些我们跨不过过的沟沟坎坎，转眼已经成为身后的风景；那些我们耿耿入怀的人和事，不知不觉中已经消散在岁月里。心中有快乐，所见皆快乐；心中有烦恼，所见皆烦恼。人的一生中，很多人，很多事，其实并不值得我们去纠结，心中无事便是佛，能达到这个境界，其实也就是开悟了。川普总统败选和他在最后的时刻没有如我们所愿抛出砸向CCP的板砖，在我们一些战友心中仍然不能释怀，这就是他们心中的执念，让他们烦恼和痛苦。我们必须明白的是，川普总统胜选只是对我们以美灭共的策略之一，除此以外我们还有无数的策略和途径，而且大选已经翻篇，我们再继续执着在这个上，只会徒增烦恼，浪费生命，对灭共没有什么帮助。因此我们需要从中跳出来，从外面完整地重新看待美国政府和灭共生态圈，才会有客观清醒的认识，寻找到新的灭共方向和策略。
 
-同时在大陆的所有的党内的战友，军内的战友和14亿中国人民，你们要知道在二战的时候日本是什么样的下场，德国希特勒是什么下场，德国所谓的无辜的市民公民，日本无辜的百姓什么下场。习王发动这场要拿下香港的双龙台湾，征服世界，与世界叫板，不惜发动第三次世界大战的疯狂行动的本质是保护他们家族的利益，保护所谓共产党的利益，和保护他们的私生子女，和盗取国家的巨额财富，它不是为了中国人好。
+我们所有的俗世人，最大的痛苦和烦恼是什么呢？— 就是于执念，于我执。我们心中所有的执念，只会给我们增加负担，增加压力，增加烦恼，扰乱我们的内心的平静。如上文的文远和尚执着于佛法，执着于他天天在学习佛法，那同样是我执，而且是一种更大的执念，同样会带给他烦恼和压力，让他的内心不能轻松，得不到不能真正的解脱。我们学习佛法，但不能一味的执迷于佛法，因为佛法不过是一种修佛借助的工具而已。又比如说我们要赏月，别人给你指出月亮的所在，那么你就去欣赏这个月亮就好了，而不要再盯着别人的这个手指，这就是所谓的执指为月。世上很多事物，你必须走进去才能有所领悟，也必须跳出来，才能真正受益。
 
-Also, for the fellow fighters in mainland China, who are inside the CCP and the PLA, and the 1.4 billion Chinese people, you must understand the fate of the people in Japan in the Second World War, the fate of Hitler, and the fate of the so-called innocent people in Germany and Japan after the Second World War. This crazy action by Xi and Wang for conquering Hong Kong, conquering Taiwan by the “Operation Shuanglong”, conquering the world, even with a third world war is essentially for protecting their own family interests, protecting the CCP’s interests, protecting their own illegitimate children, and the huge wealth they stole from the country, rather than for the interest of the people.
+未完待续。。。
 
-就像当年日本的天皇和希特勒都说是为了自己的民族好，最后绑架了国家和民族，最后都毁于一旦，国家和民族都毁了。中国人民必须站起来，和香港人民，台湾人民站在一起，才能不葬送自己的未来。如果你们要与贼为伍，与匪为伍，你们也将死无葬身之地，一定会被世界上的正义力量最后给销毁。像当年的日本被核武器袭击，像当年德国的希特勒和德军纳粹到现在还被追杀一样，死无葬身之地。
+作者：卢卡斯，圆成小象
 
-It’s just like the Japanese Emperor and Hitler. Both said that it was for the good of their own people. They kidnapped the country and the nation and destroyed them eventually. The Chinese people must stand up and stand with the people of Hong Kong and Taiwan, so as not to ruin their future. If you are to associate with thieves and bandits, you will die without a place to be buried, and you will definitely be destroyed by the righteous forces in the world. Just as Japan was attacked by nuclear weapons, like Hitler in Germany and the German Nazis were still hunted down till this day, you will have no place to buried even when you die.
+原创观点文章 – 2021/01/30
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+温哥华圆成农场
 
-翻译：【Isaiah4031】字幕：【相机过热啊】听写：【BruhM】编辑：【Isaiah4031】
+# 参考文献：
 
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+1.2021年1月21日文贵先生直播视频文字版。https://gnews.org/zh-hans/812626/
 
-+1
+2.赵州从谂禅师介绍。http://bailinsi.net:60001/02txzz/02zzgf/jj/gfjj.htm
+
+3.赵州禅。[https://baike.baidu.com/item/%E8%B5%B5%E5%B7%9E%E7%A6%85%E5%B8%88](https://baike.baidu.com/item/%E8%B5%B5%E5%B7%9E%E7%A6%85%E5%B8%88)
+
+4.押错下届美国总统，后果有多严重？[https://6do.news/article/3491829-61](https://6do.news/article/3491829-61)
+
+5.揭密：国共内战后期，美国为何抛弃蒋介石？[http://www.sgwritings.com/bbs/viewthread.php?tid=46044](http://www.sgwritings.com/bbs/viewthread.php?tid=46044)
+
+6. 1948年美国总统大选蒋介石提供了巨额竞选经费，结果押错了宝。[https://kknews.cc/history/ano5kvg.html](https://kknews.cc/history/ano5kvg.html)
+
+7. 郭先生1月28日直播精要文字版。https://gnews.org/zh-hans/838688/
+
+0

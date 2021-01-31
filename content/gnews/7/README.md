@@ -1,71 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国病毒专家Peter Daszak与科学女巫石正丽两个人谁在上边谁在下边
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/850292/)
+## 【观点】灭共是人类一项世界性的社会进化运动
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/850569/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/封面-259.jpg)
-撰稿：巴黎七星农场；审核：喜马拉雅的馍夹肉；校对：Maarago
+#### 作者：七彩光
 
-据[\[email protected\]](https://twitter.com/wangqin56612794)回复[@PeterDaszak](https://twitter.com/PeterDaszak)和[@NBCNews](https://twitter.com/NBCNews)[上午11:16 · 2021年1月31日](https://twitter.com/wangqin56612794/status/1355716621935865862)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)
+#### 编辑：翼族
 
+## 
+![]()![](https://gnews.org/wp-content/uploads/2021/01/111-12.png)
+图片来源：喜马拉雅大使馆，喜设计组
 
+1月20日已过去了十天，在美国前国务卿彭培奥先生领导的国务院认定和宣布“中国共产党(CCP)犯下了种族灭绝和反人类罪”后，以爆料革命力量推动的世界性灭共运动稳步前进，人类社会正在加快进化中。
 
-> [pic.twitter.com/y7RzEzIqHp](https://t.co/y7RzEzIqHp)
-> — wangqin (@wangqin56612794) [January 31, 2021](https://twitter.com/wangqin56612794/status/1355716621935865862?ref_src=twsrc%5Etfw)
+本文尝试从两个方面（正义光明力量，邪恶黑暗力量）的报道披露出来的进展来看目前的战争态势。
 
+从黑暗方看，会看到如下的现实：
 
-
-我们可以看出此次领衔主演赴中国进行冠状病毒溯源的主角是Perter Daszak同志，该同志与为中共卖命的蝙蝠女巫石正丽的友谊源远流长，那么Peter Daszak同志与石正丽同志到底谁在上边谁在下边呢？请大家不要误会，本文并非八卦，而是为了通过学术考证一下Peter Daszak同志与石正丽同志到底谁在上边谁在下边。
-
-据他们共同发表的论文1：[Bat Severe Acute Respiratory Syndrome-Like Coronavirus WIV1 Encodes an Extra Accessory Protein, ORFX, Involved in Modulation of the Host Immune Response](https://pubmed.ncbi.nlm.nih.gov/27170748/)（蝙蝠严重急性呼吸系统综合症样冠状病毒WIV1编码额外的附件蛋白ORFX，参与宿主免疫反应的调节。）,这篇论文被收入闫丽梦博士的Unusual Features of theSARS-CoV-2Genome Suggesting Sophisticated Laboratory Modification Rather Than Natural Evolution and Delineation of Its ProbableSynthetic Route (SARS-CoV-2基因组的不寻常特征表明其经由实验室复杂改造的特性非源于自然进化及其可能的合成路径的描述)报告中的参考文献内，这篇论文的作者顺序是——
-
-[Lei-Ping Zeng](https://pubmed.ncbi.nlm.nih.gov/?term=Zeng+LP&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Yu-Tao Gao](https://pubmed.ncbi.nlm.nih.gov/?term=Gao+YT&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Xing-Yi Ge](https://pubmed.ncbi.nlm.nih.gov/?term=Ge+XY&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Qian Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+Q&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Cheng Peng](https://pubmed.ncbi.nlm.nih.gov/?term=Peng+C&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Xing-Lou Yang](https://pubmed.ncbi.nlm.nih.gov/?term=Yang+XL&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Bing Tan](https://pubmed.ncbi.nlm.nih.gov/?term=Tan+B&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Jing Chen](https://pubmed.ncbi.nlm.nih.gov/?term=Chen+J&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Aleksei A Chmura](https://pubmed.ncbi.nlm.nih.gov/?term=Chmura+AA&amp;cauthor_id=27170748) [2](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-2), [Peter Daszak](https://pubmed.ncbi.nlm.nih.gov/?term=Daszak+P&amp;cauthor_id=27170748) [2](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-2), [Zheng-Li Shi](https://pubmed.ncbi.nlm.nih.gov/?term=Shi+ZL&amp;cauthor_id=27170748) [3](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-3)
-
-也就是说从顺序上看Peter Daszak同志在石正丽上边，但是从学术惯例上看，最后署名者才是No.1，也就是说虽然Peter Daszak同志的名字在石正丽同志上边，但是其学术地位在石正丽同志下边。
-
-据他们共同发表的论文2：[Discovery of a rich gene pool of bat SARS-related coronaviruses provides new insights into the origin of SARS coronavirus](https://journals.plos.org/plospathogens/article?id=10.1371/journal.ppat.1006698)（蝙蝠SARS相关冠状病毒丰富基因库的发现为SARS冠状病毒的起源提供了新见解）,这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
-
-Ben Hu ,Lei-Ping Zeng ,Xing-Lou Yang ,Xing-Yi Ge,Wei Zhang,Bei Li,Jia-Zheng Xie,Xu-Rui Shen,Yun-Zhi Zhang,Ning Wang,Dong-Sheng Luo,Xiao-Shuang Zheng,Mei-Niang Wang,Peter Daszak,Lin-Fa Wang,Jie Cui ,Zheng-Li Shi
-
-也就是说在这篇论文里Peter Daszak同志在王林发同志上边，王林发同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边，王林发同志在石正丽同志下边，Peter Daszak同志在王林发同志下边。
-
-据他们共同发表的论文3：[Isolation and characterization of a bat SARS-like coronavirus that uses the ACE2 receptor](https://www.nature.com/articles/nature12711)（使用ACE2受体的蝙蝠SARS样冠状病毒的分离和鉴定）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
-
-Xing-Yi Ge, Jia-Lu Li, Xing-Lou Yang, Aleksei A. Chmura, Guangjian Zhu, Jonathan H. Epstein, Jonna K. Mazet, Ben Hu, Wei Zhang, Cheng Peng, Yu-Ji Zhang, Chu-Ming Luo, Bing Tan, Ning Wang, Yan Zhu, Gary Crameri, Shu-Yi Zhang, Lin-Fa Wang, Peter Daszak & Zheng-Li Shi
-
-也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
-
-据他们共同发表的论文4：[Bat Severe Acute Respiratory Syndrome-Like Coronavirus WIV1 Encodes an Extra Accessory Protein, ORFX, Involved in Modulation of the Host Immune Response](https://jvi.asm.org/content/90/14/6573)（蝙蝠严重急性呼吸系统综合症样冠状病毒WIV1编码额外的附件蛋白ORFX，参与宿主免疫反应的调节。）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
-
-Lei-Ping Zeng, Yu-Tao Gao, Xing-Yi Ge, Qian Zhang, Cheng Peng, Xing-Lou Yang, Bing Tan, Jing Chen, Aleksei A. Chmura, Peter Daszak, Zheng-Li Shi
-
-也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
-
-据他们共同发表的论文5：[Isolation and Characterization of a Novel Bat Coronavirus Closely Related to the Direct Progenitor of Severe Acute Respiratory Syndrome Coronavirus](https://pubmed.ncbi.nlm.nih.gov/26719272/)（与严重急性呼吸系统综合症冠状病毒直接祖细胞密切相关的新型蝙蝠冠状病毒的分离和鉴定）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
-
-Xing-Lou Yang 1, Ben Hu 1, Bo Wang 1, Mei-Niang Wang 1, Qian Zhang 1, Wei Zhang 1, Li-Jun Wu 1, Xing-Yi Ge 1, Yun-Zhi Zhang 2, Peter Daszak 3, Lin-Fa Wang 4, Zheng-Li Shi 5
-
-也就是说在这篇论文里Peter Daszak同志在王林发同志上边，王林发同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边，王林发同志在石正丽同志下边，Peter Daszak同志在王林发同志下边。
-
-据他们共同发表的论文6：[Fugong virus, a novel hantavirus harbored by the small oriental vole (Eothenomys eleusis) in China](https://virologyj.biomedcentral.com/articles/10.1186/s12985-016-0483-9)（扶公病毒，一种由东方小田鼠（Eothenomys eleusis）携带的新型汉坦病毒）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
-
-Xing-Yi Ge, Wei-Hong Yang, Hong Pan, Ji-Hua Zhou, Xi Han, Guang-Jian Zhu, James S. Desmond, Peter Daszak, Zheng-Li Shi & Yun-Zhi Zhang
-
-也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
-
-据他们共同发表的论文7：[Detection of diverse novel astroviruses from small mammals in China](https://pubmed.ncbi.nlm.nih.gov/25034867/)（从中国小型哺乳动物中检测出多种新型冠状病毒）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
-
-Ben Hu 1, Aleksei A Chmura 2, Jialu Li 1, Guangjian Zhu 2, James S Desmond 2, Yunzhi Zhang 3, Wei Zhang 1, Jonathan H Epstein 2, Peter Daszak 2, Zhengli Shi 1
-
-也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
-
-言而总之，Peter Daszak同志与石正丽同志谁在上边谁在下边的问题比较复杂，就像这次领衔主演去中国进行冠状病毒溯源闹剧一样的，名义上Peter Daszak同志在上边石正丽同志在下边，但实际上石正丽同志在上边Peter Daszak同志在下边，当Peter Daszak同志端起了baijiu，当石正丽同志端起了baijiu，我听到的声音是这样的——
-
-激动的心、颤抖的手，领导在上我在下，激动的心、颤抖的手，领导几口我几口。同志们，为了党为了国家，大家干了这碗酒！
-
-（文章内容仅代表作者个人观点）
+1. CCP 正在世界和全国性范围内实施疫苗经济，一方面针对世界各国推销疫苗，大赚外汇，也通过疫苗来进一步控制和影响世界各国的政治力量和政府行政权；同时在国内全面推行核酸检测和“掏肛”检测，实现万亿的收入目标。
+2. 针对香港，CCP开始以情报治港，全面控制。“留港不留人，留钱不留人。”
+3. 针对台湾， CCP继续以武力进行恐吓，多次分批派遣军机进入台湾防空识别区进行挑衅，并且对美航母进行模拟打击指令训练；同时警告美国等西方国家，针对CCP武力收复台湾问题，要么赞成，要么闭嘴。
+4. 美国内部，民主党目前获得了行政权，230法案继续有效，Big Tech大科技公司，各大媒体继续针对真相进行封锁，继续攻击和抹黑MAGA（编者注：Make America Great Again的缩写，意思“让美国再次伟大”，是川普总统竞选的口号，现在MAGA已成为代表支持川普的运动）。
+5. 世界其它国家，继续遭受中共病毒的侵害而陷入泥淖中不能自拔，相关政治势力继续与CCP勾结在一起，意图继续贯彻实施“大重启”计划，实现对世界各国人民的洗脑和奴役；
+6. 在宗教内部，以教皇方济各为代表的与CCP沆瀣一气的一方仍然继续掌权，继续忽悠世界各地的信徒；而伊斯兰教为主的许多国家的政府力量，还在和中共合作，在疫苗经济中大赚特赚。
 
 
+再来看光明力量的情况：
 
-0
+1. 在真相的传播方面。国内的疫情、中共的内斗等信息通过GTV和Gnews两个平台大力传播，而两个平台来自于世界各国(主要集中于美国、加拿大、日本)的访问量也在快速增加中。
+2. 其次，在医学战线，闫丽梦博士团队的两篇论文仍然傲视群雄，没有任何一篇有力的反驳文章出现。同时，逐渐有巨大影响力的医学人士站出来力挺真相，如世界知名科学家奎伊博士发表论文病毒源于实验室概率高达99.8%。
+3. 在爆料革命力量的推动下，美国新政府继续承认CCP犯了种族灭绝和反人类罪；同时，百万级别的CCP数据库数据被泄露并被美媒披露出来，进一步坐实CCP的上述罪行并公之于众；
+4. 美国MAGA力量以及所有美国保守派力量在班农战斗室节目的影响下，对爆料革命的存在和真相的披露，继续披荆斩棘，力量大增，该节目的播客全世界下载量已超过了2千万次。
+5. 世界各国的政治力量有了初步变化，默克尔准备辞职，荷兰首相的更替等现象表明各方政治力量在世界性爆料革命的影响下正在发生初步的关键性变化。
+6. 随着路德社对于宗教方面的信息披露，越来越多的人们对于宗教的黑暗方面、局限性、不足性有了更多更深的了解，这对相关宗教人士的思维认知造成了越来越大的影响，对于人们追求真相，追求真正的符合实相的信仰产生了巨大的促进作用。
+7. 海航破产，表明在以共灭共这条战线取得了重大的进展。
+
+
+面对如此纷繁复杂的世界现实战争情势，结合CCP的一三五七九计划，自2019年底正式打响本次世界战争以来，我们当然需要看到本场斗争的艰巨性和长期性，但更需要看清斗争的方向和坚定必胜的信念。
+
+CCP是这场世界大战的核心黑暗力量，这场世界大战的本质如Gnews文章《[对于第三次世界大战的基本认知](https://gnews.org/zh-hans/651266/)》中所述：这次世界大战，是中国共产党(CCP)为代表的世界暗黑势力发动的对于正义善良人士的一场生化战争，它不分国家，不分种族，是对全人类发起战争的开端。发起本次生化战争的真正目的是通过病毒的爆发，结合长期以来的蓝金黄渗透，最终达到控制世界的资本、资源、媒体，以此后续奴役世界各国人民。
+
+因此，世界各国的暗黑势力，无论是政客还是“沼泽地的鳄鱼”，抑或是“沼泽地的主人”，只要与CCP勾结沆瀣一气的，都是附属于CCP，或者借助于CCP的力量来实现自己的目标，无论他们是通过奴役中国老百姓获取金钱，还是通过政治勾结实现政治的权力，都是各自有各自的算盘，都是为了自身的利益而做出选择。
+
+许多人意图消灭黑暗与邪恶力量，这其实是大错特错的想法。这种想法和当初CCP打着共产主义旗号忽悠普通中国人民是一个道理，打土豪，分田地，最后却将资源归于了CCP，于是CCP的一些家族成为了世界上最大的新土豪家族。之所以说这是错误的想法，是因为它违反了人类社会的规则，违反了神的初衷，违反了每个灵魂的进化道路的真理。关于这点，欢迎读者阅读Gnews文章《[从信仰的角度理解“唯善不败”](https://gnews.org/zh-hans/716498/)》；
+
+因此，读者就能理解为何爆料革命要与拜登新政府合作。只要是灭共，我们都支持，都是我们的盟友；只要是继续与CCP勾兑的，就是我们的敌人，我们就继续揭发和斗争。那些说我们抛弃了川普的人，要么是不明就里，要么就是别有用心来攻击爆料革命，或挑拨离间我们与MAGA力量的灭共合作。
+
+无论黑暗力量现在看起来多么的强大，但他们却只是纸老虎，是因为他们只是为了各自的利益而集合在一起的，同样最终也会因各自的利益而分崩离析。这就是为何郭文贵先生所讲：我们要大力发展G系列，在利益方面与各方合作，推动灭共的进程。同时国内政治斗争的现状也在证实他们最终是互相争斗，不是你死就是我活，这是以共灭共的具体体现。
+
+灭共，是一项世界性的运动，只有黑暗力量笼罩了全世界，肆虐全世界时，相应的光明力量自然就会出现并逐渐汇聚在爆料革命的周围。只有人们深切遭受苦难时，越来越多的人才会逐渐抛弃自私自利的一些想法，从思维意识上选择踏上服务他人的灵魂进化道路。只有旧有的信仰受到巨大的现实挑战的时刻，人们才会思考自己之前信奉的信仰是否是符合实相的，从而踏上新信仰之路，而人类群体意识对于符合实相的信仰的形成，才标志着人类社会的进化。
+
+(以上内容仅代表作者观点)
+
++2
