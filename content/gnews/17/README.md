@@ -1,182 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年1月26日郭先生直播内容整理
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/850269/)
+## 美国病毒专家Peter Daszak与科学女巫石正丽两个人谁在上边谁在下边
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/850292/)
 
-**爆料革命开始前的阶段**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/封面-259.jpg)
+撰稿：巴黎七星农场；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-2021年1月26日是爆料革命4周年纪念日，4年前的这一天，郭先生第一次出现在公众媒体。事实上六年前，郭先生已经跟共产党的开战了。到现在家人和同事、合作和有关系的人，被共产党经受折磨、虐待、恐吓也六年时间了。
+据[\[email protected\]](https://twitter.com/wangqin56612794)回复[@PeterDaszak](https://twitter.com/PeterDaszak)和[@NBCNews](https://twitter.com/NBCNews)[上午11:16 · 2021年1月31日](https://twitter.com/wangqin56612794/status/1355716621935865862)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)
 
-2015年1月10号，吴征代表中纪委、政法委专案组对郭先生家族的资产全部被查封。
 
-2017年1月26日四十八小时之前，郭先生女儿在第二次被抓后，刚释放。很多同事、家人还关在监狱和失踪状态。二三百人被抓、被消失，哥哥嫂子全部被抓走。共产党对待外国人从来没有这样过，对中国人非常的狠。
 
-共产党中纪委和中南坑明确要求不能爆料。因为他们知道，可能会对他们造成毁灭性的打击。那时候郭先生需要做出一系列的决定。但是二十七年前的恩怨、弟弟的生命、64情节、还有从小到大成长以来，明确了灭掉共产党目标。郭先生还是选择了爆料这条路。
+> [pic.twitter.com/y7RzEzIqHp](https://t.co/y7RzEzIqHp)
+> — wangqin (@wangqin56612794) [January 31, 2021](https://twitter.com/wangqin56612794/status/1355716621935865862?ref_src=twsrc%5Etfw)
 
-上节目之前和全家人都进行了视频。痛苦是不能言语的，因为最受伤害者就是家人、同事等。任何人认为这样选择都是愚蠢、不可思议的。但是这是必须要走的路，坐在镜头前，结果就已经决定了。这条路将永无回头之日，只有赢，否则就是死亡。没有第三项。
 
-**爆料革命开始的阶段**
 
-爆料后，郭先生提出保财、保命、报仇。但是很多人蒙住眼睛，泯灭了良心。中国知识分子、海外欺民贼等各个领域的人都嘲笑，却无一人的解释清楚。
+我们可以看出此次领衔主演赴中国进行冠状病毒溯源的主角是Perter Daszak同志，该同志与为中共卖命的蝙蝠女巫石正丽的友谊源远流长，那么Peter Daszak同志与石正丽同志到底谁在上边谁在下边呢？请大家不要误会，本文并非八卦，而是为了通过学术考证一下Peter Daszak同志与石正丽同志到底谁在上边谁在下边。
 
-今天看，连财都不保，怎么革命？保财才有了G系列。共产党就是控制了中国人生存的土地、水资源、财富等基础，管天管地才能强奸中国十四亿人民，有了今天70年的政权。欺民贼、Sara、以神的名义、捐款反共的名义，获得别人的财富，并给一个未来的幻想。
+据他们共同发表的论文1：[Bat Severe Acute Respiratory Syndrome-Like Coronavirus WIV1 Encodes an Extra Accessory Protein, ORFX, Involved in Modulation of the Host Immune Response](https://pubmed.ncbi.nlm.nih.gov/27170748/)（蝙蝠严重急性呼吸系统综合症样冠状病毒WIV1编码额外的附件蛋白ORFX，参与宿主免疫反应的调节。）,这篇论文被收入闫丽梦博士的Unusual Features of theSARS-CoV-2Genome Suggesting Sophisticated Laboratory Modification Rather Than Natural Evolution and Delineation of Its ProbableSynthetic Route (SARS-CoV-2基因组的不寻常特征表明其经由实验室复杂改造的特性非源于自然进化及其可能的合成路径的描述)报告中的参考文献内，这篇论文的作者顺序是——
 
-保命就是能活下去，对人民的生命都不保护的民族、国家、集体会好吗？上到共产党、中南坑下到Sara、欺民贼都是让我们到前线奉献,付出生命，他们要你的钱，你的命。有一个是好人吗？
+[Lei-Ping Zeng](https://pubmed.ncbi.nlm.nih.gov/?term=Zeng+LP&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Yu-Tao Gao](https://pubmed.ncbi.nlm.nih.gov/?term=Gao+YT&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Xing-Yi Ge](https://pubmed.ncbi.nlm.nih.gov/?term=Ge+XY&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Qian Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+Q&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Cheng Peng](https://pubmed.ncbi.nlm.nih.gov/?term=Peng+C&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Xing-Lou Yang](https://pubmed.ncbi.nlm.nih.gov/?term=Yang+XL&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Bing Tan](https://pubmed.ncbi.nlm.nih.gov/?term=Tan+B&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Jing Chen](https://pubmed.ncbi.nlm.nih.gov/?term=Chen+J&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Aleksei A Chmura](https://pubmed.ncbi.nlm.nih.gov/?term=Chmura+AA&amp;cauthor_id=27170748) [2](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-2), [Peter Daszak](https://pubmed.ncbi.nlm.nih.gov/?term=Daszak+P&amp;cauthor_id=27170748) [2](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-2), [Zheng-Li Shi](https://pubmed.ncbi.nlm.nih.gov/?term=Shi+ZL&amp;cauthor_id=27170748) [3](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-3)
 
-**保命、保财是人权最核心的基础。私人财产神圣不可侵犯，人命是天授。**
+也就是说从顺序上看Peter Daszak同志在石正丽上边，但是从学术惯例上看，最后署名者才是No.1，也就是说虽然Peter Daszak同志的名字在石正丽同志上边，但是其学术地位在石正丽同志下边。
 
-报仇是西方民主社会天赋的人权，保护我的基本的诉求。报仇有2种：私仇和公仇。郭先生报的是公仇，是替十四亿人民发声，推翻十四亿人民头上的黑山——共产党。
+据他们共同发表的论文2：[Discovery of a rich gene pool of bat SARS-related coronaviruses provides new insights into the origin of SARS coronavirus](https://journals.plos.org/plospathogens/article?id=10.1371/journal.ppat.1006698)（蝙蝠SARS相关冠状病毒丰富基因库的发现为SARS冠状病毒的起源提供了新见解）,这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
 
-郭先生还用捐钱验证中国有没有真正有良知、信仰、政治民主运动分子。期间受到的屈辱、欺骗，很多人都不知道。因为知道以后，很多人会抑郁，更消极。
+Ben Hu ,Lei-Ping Zeng ,Xing-Lou Yang ,Xing-Yi Ge,Wei Zhang,Bei Li,Jia-Zheng Xie,Xu-Rui Shen,Yun-Zhi Zhang,Ning Wang,Dong-Sheng Luo,Xiao-Shuang Zheng,Mei-Niang Wang,Peter Daszak,Lin-Fa Wang,Jie Cui ,Zheng-Li Shi
 
-此外，当时18个USB录像证据和马健副部长被抓。掩盖的不仅仅是王岐山，孟建柱和傅振华，孙立军，就是要利用所谓的党内斗争，以共灭共，把共产党整个流氓集团摧毁。
+也就是说在这篇论文里Peter Daszak同志在王林发同志上边，王林发同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边，王林发同志在石正丽同志下边，Peter Daszak同志在王林发同志下边。
 
-灭共不是2017年1月26日开始，没有三十年的积累，没有清风看守所的经历，没有8弟的命，没有参与8964，不可能说出这3个目标。**凡是没理解保命、保财、报仇的人，一定不是真正的灭共的。用四年爆料革命的行动和结果来评断保命、保财、报仇，给爆料革命一个公平。保命保财报仇这个事****,希望战友们认真理解。**
+据他们共同发表的论文3：[Isolation and characterization of a bat SARS-like coronavirus that uses the ACE2 receptor](https://www.nature.com/articles/nature12711)（使用ACE2受体的蝙蝠SARS样冠状病毒的分离和鉴定）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
 
-**新中国联邦的时代**
+Xing-Yi Ge, Jia-Lu Li, Xing-Lou Yang, Aleksei A. Chmura, Guangjian Zhu, Jonathan H. Epstein, Jonna K. Mazet, Ben Hu, Wei Zhang, Cheng Peng, Yu-Ji Zhang, Chu-Ming Luo, Bing Tan, Ning Wang, Yan Zhu, Gary Crameri, Shu-Yi Zhang, Lin-Fa Wang, Peter Daszak & Zheng-Li Shi
 
-6月4号，在伟大的战友和美国纽约自由女神的见证下成立了新中国联邦。没有一平方米办公室，开始了新中国联邦之旅。郝海东先生向世界呼喊灭共是正义的需要，科学家向全世界人民展示了人类的时间不多了，路德先生和博士军团对世界的呼唤。这样一个合法的、有希望的组织,。
+也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
 
-**爆料革命****4年的成就**
+据他们共同发表的论文4：[Bat Severe Acute Respiratory Syndrome-Like Coronavirus WIV1 Encodes an Extra Accessory Protein, ORFX, Involved in Modulation of the Host Immune Response](https://jvi.asm.org/content/90/14/6573)（蝙蝠严重急性呼吸系统综合症样冠状病毒WIV1编码额外的附件蛋白ORFX，参与宿主免疫反应的调节。）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
 
-1、在四年里，创建的爆料革命和新中国联邦，对共产党的政权合法的、事实上最大的形成了威胁和挑战。美国川普总统,这一届政府，向共产党定义为反人类罪，种族大屠杀,对共产党的制裁和打击前所未有，这就是四年的结果。
+Lei-Ping Zeng, Yu-Tao Gao, Xing-Yi Ge, Qian Zhang, Cheng Peng, Xing-Lou Yang, Bing Tan, Jing Chen, Aleksei A. Chmura, Peter Daszak, Zheng-Li Shi
 
-2、一边面临着人类上最大的威胁，共产党的迫害、威胁，创建了对共产党最大的威胁着金融系统和媒体平台。而且建立的G系列平台，不仅能挣钱，还能给大家安全。金融系统和平台所有的收益，是以我们的爆料革命素未谋面的战友们来分享的。
+也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
 
-3、香港运动个人出钱最多的是郭先生，不是香港的几个政治贩子。对西藏、台湾呼吁的最多，新疆说的最多干的最多，花的钱最多。
+据他们共同发表的论文5：[Isolation and Characterization of a Novel Bat Coronavirus Closely Related to the Direct Progenitor of Severe Acute Respiratory Syndrome Coronavirus](https://pubmed.ncbi.nlm.nih.gov/26719272/)（与严重急性呼吸系统综合症冠状病毒直接祖细胞密切相关的新型蝙蝠冠状病毒的分离和鉴定）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
 
-4、王建之死，全世界没有一个国家的政府和媒体敢放出来的，我们放了。
+Xing-Lou Yang 1, Ben Hu 1, Bo Wang 1, Mei-Niang Wang 1, Qian Zhang 1, Wei Zhang 1, Li-Jun Wu 1, Xing-Yi Ge 1, Yun-Zhi Zhang 2, Peter Daszak 3, Lin-Fa Wang 4, Zheng-Li Shi 5
 
-5、没有一个敢提灭共这个词，我们坚持说了四年。创造的名词：一切都是刚刚开始，一切都已经开始、肛门方、钥匙澜等家喻户晓。
+也就是说在这篇论文里Peter Daszak同志在王林发同志上边，王林发同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边，王林发同志在石正丽同志下边，Peter Daszak同志在王林发同志下边。
 
-6、在西方建立了一个完全百分之百透明的公益机构——法治基金、法治社会，所有的捐款百分之百用在了灭共的事业上。
+据他们共同发表的论文6：[Fugong virus, a novel hantavirus harbored by the small oriental vole (Eothenomys eleusis) in China](https://virologyj.biomedcentral.com/articles/10.1186/s12985-016-0483-9)（扶公病毒，一种由东方小田鼠（Eothenomys eleusis）携带的新型汉坦病毒）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
 
-7、七哥成了华人第一个在西方世界全球打榜的冠军。
+Xing-Yi Ge, Wei-Hong Yang, Hong Pan, Ji-Hua Zhou, Xi Han, Guang-Jian Zhu, James S. Desmond, Peter Daszak, Zheng-Li Shi & Yun-Zhi Zhang
 
-最后从香港运动到香港成死港，到中美贸易，CCP冠状病毒对世界的唤醒，台湾被威胁，告诉了世界黑暗即将来临，共产党是要统治整个世界。蓝金黄、3F计划，美国和世界变化等验证了郭先生所说的话和行动。低智商、低道德、卑劣之人，不懂这些。
+也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
 
-**爆料革命****4年的回顾**
+据他们共同发表的论文7：[Detection of diverse novel astroviruses from small mammals in China](https://pubmed.ncbi.nlm.nih.gov/25034867/)（从中国小型哺乳动物中检测出多种新型冠状病毒）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
 
-回看这4年，郭先生母亲去世，家人在监狱，几百同事被剥夺了资产，基金被查封。没有家人、同事，任何人接受和理解。但是郭先生也从来没渴望、没在乎他们能理解。为了不牵连别人, 从2017年到现在，跟谁也不联系。
+Ben Hu 1, Aleksei A Chmura 2, Jialu Li 1, Guangjian Zhu 2, James S Desmond 2, Yunzhi Zhang 3, Wei Zhang 1, Jonathan H Epstein 2, Peter Daszak 2, Zhengli Shi 1
 
-郭先生当时放弃那样好的生活，选择付出最多，风险最大的事业，连死都不怕，做出了14亿中国人，七十年没有一个人敢这么做的。是有史以来受到一个国家攻击，个人历史时间最长，遭受之陷害最残酷。唯一一个被人类都不敢惹的流氓政府定义为第一号的敌人。海外的欺民贼、党内的高知、文化界、知识界等没资格做评价，他们连一个作为人基本发生的勇气都没有。
+也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
 
-**郭先生这四年追求最高的境界就想找到好人，遇到战友，找到有良知，有脑子、有智慧的人是郭先生人生最快乐的，**是郭先生生活得最精彩、最快乐的岁月。一千多天,健身不会低于两千多个小时,工作效率和生命效率是十年的时间。生命中最好的时间里边，最佳的状态。没有被金钱、利益、名义、权力，没有任何威胁能引诱。没说任何违心的话,没有任何恐惧，现在一点都不后悔当初的选择。从共产党的叶简明、肖建华等大陆红顶商人消失来看，如果不搞爆料革命，不去灭共，会抑郁而死。
+言而总之，Peter Daszak同志与石正丽同志谁在上边谁在下边的问题比较复杂，就像这次领衔主演去中国进行冠状病毒溯源闹剧一样的，名义上Peter Daszak同志在上边石正丽同志在下边，但实际上石正丽同志在上边Peter Daszak同志在下边，当Peter Daszak同志端起了baijiu，当石正丽同志端起了baijiu，我听到的声音是这样的——
 
-这四年七哥不顾利益、不顾生死的灭共，一点没变。对人的相信一点也没变。面临着全世界最大的魔鬼集团对个人的生死挑战、威胁、背叛，灭共的决心和信心一点没变。自由的生活方式没有任何改变。更加坚信万福万神的力量，更相信勇气和正义是需要付出的。更相信灭共是正义的需要，更加相信共产党真的玩球蛋了。
+激动的心、颤抖的手，领导在上我在下，激动的心、颤抖的手，领导几口我几口。同志们，为了党为了国家，大家干了这碗酒！
 
-最后不会再有一个四年，把共产党给灭了，一定会在四年内把共产党给灭了。
+（文章内容仅代表作者个人观点）
 
-**Sara的VOG事件**
 
-郭先生表示，SARA不是差一个手指的问题，是缺人性。Sara阻止战友把钱从国内转出来投资GTV，而是转到自己的账号，然后以冻结的名义让大家登记，凡是战友登记的账号、信息，共产党就知道了。过去很多战友被Sara挑拨成敌人，现在跟共产党合作，VOG投资信息被泄露，很多人被喝茶。十万以上，一百万、两百万都被Sara劫走了，很多人是家破人亡。
-
-Sara的律师是七哥付的律师费，她以律师的名义发出公告，但不让和律师联系，就是犯法。VOG里有很多警察、国安人员，Sara成了共产党灭爆小组最大的功劳。很多战友在VOG被Sara欺骗，现在受到了各种威胁。她以人权、自由、神、律师、真相的名义，拿走你的钱和命。欺民贼直接让你捐款，Sara更是让你捐命。
-
-**郭先生强调，十万以下找****Sara是经过律师的意见，在两千把椅子范围内，是合法的。**根据掌握的证据，他们犯下的罪和愚蠢的错误，爆料革命第一个进监狱的，绝对不是把王岐山和孟建柱和孙立军，一定是Sara、海洋、杰森、Sara儿子团伙。SARA对爆料革命危害最大，海洋是共产党对派来危害最大。他们对战友的伤害是最大的。
-
-**郭先生希望战友们不要听****Sara任何话，只要钱或者保证钱的安全。**
-
-VOG事件，**郭先生对战友的建议：**
-
-1. **在美国投资****VOG的战友，找他们团伙，别让他们跑了。同时找当地凤凰城警察和FBI。**
-2. **委托喜马拉雅联盟委员会帮你把钱拿回来或你自己成立成立诉讼组织，对他们诉讼。**
-3. **国内的战友可以在有能力和安全的前提下，找海洋、****Sara在国内的家人。**
-
-
-他们拿走战友任何一分钱和对战友造成了伤害，我们一定通过合法手段绝不跟他拉倒。要让混进爆料革命的人看到，欺负、骗战友是什么代价，同时阻止未来的农场系列、G系列再出现下一个Sara。
-
-**美国的伟大**
-
-当年川普政府要用国旗把郭先生保护起来，拜登当上总统，美国的法律一样保护。不但保护，还继续让我们有更大的空间，要与我们合作一起来找到病毒的真相。美国不会因为任何一个政权一个政府的更迭，让这个社会变成了无法无天。
-
-拜登上来，利大于弊。我们正在和拜登政府要想尽一切办法合作。在美国资本主义社会，什么都可以用资本来解决的。资本可以让你摆脱别人对你的困扰，会让你有尊严，受尊重，还会让你安全。在中国没钱，就没有尊严，连药都买不起。有钱不能保你安全，反而让你不安全，失去自由，这就是中共和美国的不同之处。
-
-美国是全世界修复能力最强的国家，相信一定在法律的基本面和信仰的基本面让美国再次强大。**新中国联邦要让中国人拥有像美国一样，独立的法律系统、信仰自由，一人一票选举政府。**
-
-**G系列**
-
-1. 到现在战友投资GTV的钱，没有一分花掉。
-
-
-- 战友想参与G系列，有无数的门。
-
-
-- G T V有价值，不愁投资者。没价值，投资者都是你的敌人。
-
-
-- G系列不是不动产，是动产。
-
-
-- 去中心化和多中心化是对付共产党黑客的手段之一。
-
-
-- 在美国最起码有五千家地方银行都想和G系列合作。
-
-
-**7、G系列全面流通以后，会出现很多你想象不到的奸贼，叛徒。但是叛徒越多，说明我们越重要。网络上骂我们越多，说明我们越重要。大家做好防护。**
-
-8、G系列不会有任何灭共的承诺和责任。
-
-**灭爆小组新动作**
-
-1. 川普输掉之后，中共网上造谣，还让国内战友被叫去喝茶，表示被骗了，给fbi打电话，要求退钱。
-
-
-2、平爆小组最近增加一百多个网络人员和派出三百人在网络上、社交上攻击爆料革命。大家一定要擦亮眼睛，一定要小心。我们不鼓励流血牺牲，但是这是灭共，要做好心理准备。
-
-**其他方面：**
-
-1、120后，镜头前不再抽雪茄。
-
-2、马蕊强奸案，孙立军都进去，她本人到现在还不出来。
-
-3、这四年走过来的战友,不需要让七哥知道你是谁，也不需要别人知道你做了什么,没必要告诉别人. 在你力所能及的情况下，不影响你安全和生活的情况下,宣传爆料革命就行。
-
-4、财新的胡舒立现在还活着，孙立军还在秦城。
-
-5、不要把灭共变成压力，要把灭共当成自己的激情、动力。
-
-6、这世界真的吃屎容易,挣钱难。国内很多人没有挣钱的能力,就被骗了。
-
-7、爆料革命、新中国联邦能走到今天，最重要的原因是不用向别人讨钱，不在乎失去。
-
-8、我们不能有在乎,一有在乎，坏人就有市场。不能“我”太大，一定要无我。要真正能解脱、放得下。
-
-9、灭共不是爆料革命新中国联邦的承诺，也不是郭先生的承诺。灭不了共，也不是我们的责任。
-
-10、灭共事业来去自由，没有任何约束。完全凭良知，凭自愿，没有任何权利、名义的要求。
-
-11、世界上最可怕是共产党让中国人失去了对真相的判断的能力。因为没有对真假善恶的判断能力，就会无穷无尽的恐惧、欺骗伴随。不会有爱也不会有真朋友。
-
-12、没有辨别真假善恶的能力，是一个人基本失去尊严，失去安全，失去财富，失去所有机会的一切根本原因。
-
-13、爆料革命最基本的让人找回自己的自信和尊严。不仅是灭共，还要开智。让中国人真正的有信仰，知道法律并守法。
-
-**金句：**
-
-1、智慧就是在事情之外另外一个高度，看清事情更多的角度和他的真实面貌。智慧不是小聪明。你赢她输不是叫智慧，那是小聪明。我不会因为被欺骗，对人性失去希望。
-
-2、做到独立的人格，不用把手伸到人家腰包去。
-
-3、信与不信，别骗自己。喜不喜欢，别骗自己。
-
-- 不在乎任何人的评价，不在乎任何人给与不给。
-
-
-5、放下生死，一切都是小事。解脱生死，可以升华。把生死都看透，达到了悟和空的时候，没有任何东西可以影响你的心情。
-
-6、时间是一切事情最好的证明，是检验一切的最好的工具。能给你一切答案，让你看清一切。
-
-7、如果担心别人不相信你，那说明你的境界和追求根本不值得重视。
-
-内容来源：
-
-郭先生直播 [https://gtv.org/video/id=60102598b819717e79b1a5f8](https://gtv.org/video/id=60102598b819717e79b1a5f8)
-
-软件听写未校对文本
-
-整理：pride文豪
 
 0
