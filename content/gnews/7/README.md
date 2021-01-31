@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香草播报：【热点播报】BLM被提名为2021年度诺贝尔和平奖
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/849208/)
+## 香草播报：【军事快讯】美国军方大力支持印度航空展
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/849507/)
 
-作者：纽约香草山写作组 天涯客
+作者：纽约香草山写作组 Wilson
 
 
 
@@ -12,17 +12,11 @@
 
 
 
-BLM （Black Lives Matter） 是一个政治和社会运动组织，经常在街头抗议警察和对黑人的暴力行为。该组织最初是以黑人为主，现在也有其他族群加入。
+《[太平洋空军](https://www.pacaf.af.mil/News/Article-Display/Article/2487741/pacaf-sends-tailored-contingent-to-support-aero-india-2021/)》1月29日通报，美国军方派遣特别选定的空军关键领导人和飞机，支持两年一度的印度航空贸易展。这个印太地区最大的展会，于2月3日～5日在印度班加罗尔耶拉汉卡空军基地举行。美国派出的代表团，包括中将西博尔特等4名将军。美国国防部领导层的出席，强调了美印伙伴关系的重要性，显示出美印之间日趋密切的防务合作关系。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/43.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/45.jpg) (Photo by Ethan Miller/Getty Images)
 
-该组织被提名为2021年度诺贝尔和平奖候选人，以鼓励他们在世界范围内发起的系统改革的呼声和努力。
-
-该组织的某些暴力行为曾经受到社会各界的批评。但是，挪威方面的官员皮特·埃德（Petter Eide ）在提名文件中说，该运动迫使美国以外的其他国家努力应对自己社会中的种族主义。
-
-参考阅读：
-
-[https://www.theguardian.com/world/2021/jan/29/black-lives-matter-nobel-peace-prize-petter-eide-norweigan-mp](https://www.theguardian.com/world/2021/jan/29/black-lives-matter-nobel-peace-prize-petter-eide-norweigan-mp)
+2019年的印度航空展盛况空前：有来自30多个国家的50多个部长级要员到会，600多家公司参展，其中美国就有60多家公司。2019年的其他主要参与者是法国、比利时、英国和以色列。 据悉，中（共）国的代表团及飞机不会出现在展会上。
 
 编辑/校对/发稿：Irene木木
 

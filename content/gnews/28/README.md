@@ -1,70 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香草解评：【世事解评】人类需要防止种族灭绝的一再重演
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/848067/)
+## 拜登暂停川普政府阻止中共渗透美国电网的行政令
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/848526/)
 
-作者：纽约香草山写作组   四季
+新闻来源：《AMERICAN MILITARY NEWS》| 作者：RYAN MORGAN | 发布时间：2021年1月25日
 
+翻译/简评：乡间小路 | 校对：X-Wing飞得更高 | 审核：万人往 | Page：Daoiii
 
+[!\[\]()!\[\](https://spark.adobe.com/page/MpqmapYpYWu97/images/60ba0748-927c-47ac-8c24-897d2d45da25.png?asset_id=cb5fadb2-05b5-40a3-add7-bc7dcb3980bd&amp;img_etag=%22ae361f5df7f828e963f9fc04723d84c8%22&amp;size=1024)](https://spark.adobe.com/page/MpqmapYpYWu97/images/60ba0748-927c-47ac-8c24-897d2d45da25.png?asset_id=cb5fadb2-05b5-40a3-add7-bc7dcb3980bd&amp;img_etag=%22ae361f5df7f828e963f9fc04723d84c8%22&amp;size=1024)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+**简评：**
 
+拜登签署行政命令，将之前川普政府颁发的一项旨在阻止中共渗透美国电网的命令暂停90天。美国的大供电系统对美国的关键国防设施、经济和美国人的健康安全等发挥着不容忽视的支撑作用。中共认为，拜登的总统任期为中美关系带来“新的希望窗口”。
 
+在拜登的总统任期内，还会继续美国优先吗？七千多万选民拭目以待。而中共企图在拜登任期内改善中美关系的一切努力，都注定是一场空。因为中共在全世界投放新冠病毒，这已是大家心照不宣的事实。民主国家能有谁愿意和这样一个没有底线的流氓政权结交？其实大家心里都清楚，中共的灭亡只是早晚的事。
 
-第二次世界大战以后，随着纳粹德国的暴行大白于天下，国际社会希望达成一个共识。 1948 年 12 月 9 日，联合国通过了《防止及惩治灭绝种族罪公约》。公约规定“种族灭绝”为国际犯罪，签署国均表示“同意防止种族灭绝的发生，并会对这一犯罪进行严惩”。国际社会对种族灭绝的定义如下：
+[!\[\]()!\[\](https://spark.adobe.com/page/MpqmapYpYWu97/images/37bea64b-b5c3-44be-8090-98e2c6eebca3.jpg?asset_id=ed035e6e-4645-4ac7-ab6d-32e11e7aeb21&amp;img_etag=%22adff06f752714869dc5e918f31593daf%22&amp;size=1024)](https://spark.adobe.com/page/MpqmapYpYWu97/images/37bea64b-b5c3-44be-8090-98e2c6eebca3.jpg?asset_id=ed035e6e-4645-4ac7-ab6d-32e11e7aeb21&amp;img_etag=%22adff06f752714869dc5e918f31593daf%22&amp;size=1024)
 
-所谓种族灭绝，是指蓄意全部或部分消灭某一民族、人种、种族或宗教团体，具体行为包括：
+***原文翻译：***
 
-- 杀害该团体的成员；
-- 致使该团体的成员在身体上或精神上遭受严重伤害；
-- 故意使该团体处于某种生活状况下，以毁灭其全部或部分的生命；
-- 强制施行企图阻止该团体内部生育的措施；
-- 强迫转移该团体的儿童至另一团体。
+## 拜登暂停川普政府时期关于阻止中共渗透美国电网的命令
 
+[!\[\]()!\[\](https://spark.adobe.com/page/MpqmapYpYWu97/images/c51e4fcd-c9b2-42f4-b562-ea9a37ea08ff.jpg?asset_id=c99e0bb1-808c-4f06-bd0b-59debf01a431&amp;img_etag=%2247a974addf31ec5afc5e96ee777ebf5d%22&amp;size=2560)](https://spark.adobe.com/page/MpqmapYpYWu97/images/c51e4fcd-c9b2-42f4-b562-ea9a37ea08ff.jpg?asset_id=c99e0bb1-808c-4f06-bd0b-59debf01a431&amp;img_etag=%2247a974addf31ec5afc5e96ee777ebf5d%22&amp;size=1024)外界普遍担心，华为等中共电讯设备，给美国电网带来安全威胁
 
-历史上，针对特定团体的暴力事件一直在发生——即使是在《公约》生效之后也没有停止。这一术语在法律及国际上的发展集中于两个不同的历史时期：自该词汇产生直至被国际法接受（1944 年至 1948 年）的阶段，以及建立国际刑事法庭对种族灭绝罪行进行起诉（1991 年至 1998 年）的阶段。《公约》的另一重要职责是，防止种族灭绝行为的发生。这依然是所有国家以及个人要面对的挑战。
+周三，拜登签署了“关于保护公共卫生和环境，以及回归科学以应对气候危机的行政命令”。除了影响一系列与环境相关的新行政政策，拜登的行政命令还将之前由唐纳德·川普总统签署的一项行政命令暂停了90天。川普政府曾用该命令阻止中共参与美国电网的事务。
 
-《公约》确认灭绝种族行为不论发生在和平还是战争时期，均系国际法上的一种罪行。《公约》的缔约国承诺“预防和惩罚”（第一条）此种罪行，缔约国对预防和制止灭绝种族行为负有主要责任。
+川普在2020年5月1日签署的第13920号命令声明：“外国竞争对手正越来越多地制造和利用美国大供电系统的弱点。而大供电系统负责提供电力以支持我们的国防、至关重要的紧急服务、关键基础设施、经济和生活方式。大供电系统是那些企图对美国和美国人民采取恶意行动的人的目标，这其中包括蓄意的网络破坏。因为对我们大供电系统的一次成功攻击，将会给我们的经济、人的健康和安全带来极大风险；也会削弱美国保护自己及其盟国的行动能力。”
 
-在2005年世界首脑会议年世界首脑会议上，各成员国承诺保护其人民免遭灭绝种族、战争罪、族裔清洗、危害人类罪及其他煽动行为的伤害。他们一致认为，当国家需要援助以履行这一责任时，国际社会必须做好准备提供援助；如果一个国家明显无法保护其人民免受这几种罪行之害，那么国际社会必须依照《联合国宪章》准备采取集体行动。预防失败时，干预才开始。因此，预防是保护这一原则的基础。
+川普的命令禁止“任何人在美国司法管辖范围内，以任何方式获取、进口、转让或安装大供电系统的任何电气设备；或交易与之相关的财产。该交易涉及任何与外国或外国人有任何关联的任何财产（包括通过设备供应合同输送的利益）。”
 
-2020年12月9日是缅怀灭绝种族罪受害者、受害者尊严和防止此种罪行国际日，也是1948年《防止及惩治灭绝种族罪公约》（《灭绝种族罪公约》）通过72周年。这是大会通过的第一项人权条约。该公约标志着国际社会对“不让历史重演”的承诺，并就“种族灭绝”提供了首个国际法律定义。这一定义在国家和国际层面上得到广泛采用。该公约还规定，缔约国有义务防止及惩治灭绝种族罪。
+2020年12月，针对向美国关键国防设施（CDF）供应电力的公用事业公司，美国能源部援引川普时代的一个行政命令，让它们停止从中共（CCP）控制下的中华人民共和国采购电气设备。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/image-368.png)2020年10月1日，维吾尔族示威者在土耳其伊斯坦布尔抗议中共新疆政策
+该决定于2020年12月17日宣布。能源部说，当时的能源部长丹·布劳耶特下达命令以“降低那些和中共国有关联的实体给美国大供电系统（BPS）带来的风险”。
 
-美国国务卿蓬佩奥在任期的最后一日，于2021年1月19日发布官方声明，认定中共在新疆对维吾尔族及其他穆斯林少数民族犯下种族清洗与反人类罪。声明说，“在仔细研究现有事实之后，我确定中国在中共的领导和控制之下，对新疆的主要是穆斯林的维吾尔人和其他少数民族、宗教少数群体实施种族清洗。”他在声明中谴责，中国在新疆囚禁了超过一百万维族人及其他穆斯林少数族裔，并强制他们劳动、节育，实施酷刑，限制其宗教自由等。
+拜登的新命令说，川普的第13920号命令“特此暂停90天”，以及“能源部长、管理和预算办公室主任应该共同斟酌：是否推荐发布替代命令”。
 
-2021年1月27日是波兰奥斯维辛死亡集中营解放76周年纪念日。纳粹杀害了超过100万犹太人和其他人，总共约有600万欧洲犹太人和其他数百万人被德国人及其合作者杀害。教皇方济各在这一大屠杀纪念日警告说，扭曲的意识形态可以为另一次种族灭绝铺平道路。阿根廷教皇坚持认为有必要记住。他说，这是人性的标志，是未来和平的条件。那些声称要拯救一个民族的意识形态建议，最终会毁灭一个民族和人类。
+还不清楚拜登是否会恢复川普时代的这个命令，或者用一个相似的命令取代它，甚或在90天的搁置期结束后彻底废除它。
 
-联合国秘书长安东尼奥·古特雷斯在2020年12月9日的致辞中说，灭绝种族是最令人发指的罪行，它是践踏人类最基本共同价值观的暴行。可悲的是，如今仍有人在实施这些罪行而逍遥法外，无视人命的神圣性。
+中共国暗示了与拜登领导下的美国改善关系的可能性。美国和中共国之间的紧张局势在川普的总统任期内一直在上升。但最近几周，中共官方称，拜登的总统任期为中美关系提供了一个“新的希望窗口”。
 
-参考阅读：
+**🔗[原文链接](https://americanmilitarynews.com/2021/01/biden-pauses-trump-order-blocking-communist-chinese-infiltration-of-us-power-grid/)**
 
-[https://www.rfa.org/mandarin/pinglun/jujiaoweiwuer/ylxt-01252021094537.html](https://www.rfa.org/mandarin/pinglun/jujiaoweiwuer/ylxt-01252021094537.html)
-
-[https://encyclopedia.ushmm.org/content/zh/article/what-is-genocide](https://encyclopedia.ushmm.org/content/zh/article/what-is-genocide)
-
-[https://www.un.org/zh/observances/genocide-prevention-day](https://www.un.org/zh/observances/genocide-prevention-day)
-
-[https://apnews.com/article/pope-holocaust-warns-genocide-possible-5cad22f0e43abc3d3bc33d2b3526585f](https://apnews.com/article/pope-holocaust-warns-genocide-possible-5cad22f0e43abc3d3bc33d2b3526585f)
-
-[https://www.un.org/zh/observances/genocide-prevention-day/messages](https://www.un.org/zh/observances/genocide-prevention-day/messages)
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
 
 
+编辑：【[英国伦敦喜庄园编辑部](https://spark.adobe.com/page/MpqmapYpYWu97/)】
 
-
+[!\[\]()!\[\](https://spark.adobe.com/page/MpqmapYpYWu97/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/MpqmapYpYWu97/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

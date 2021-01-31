@@ -1,27 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亚利桑那州周六报告5119例感染
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/848812/)
+## 美疾控中心： 公共交通工具上必须戴口罩
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/848985/)
 
 - 编辑：Victor Torres
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月30日电/西喜社——**美国亚利桑那州周六报告了5119例中共病毒病例和76例确诊死亡病例。
+**西班牙2021年1月30日电/西喜社——**美国疾病预防控制中心已发布命令，要求乘客在美国的公共交通上戴上口罩，以呼应总统乔·拜登上任后不久的行政命令。
 
-卫生服务部门说，该州的流行病总数增加到753,379例，13,098例确诊死亡。
+疾控中心的命令周一生效。它规定，乘坐飞机、火车、公共汽车、地铁、轮船、渡轮、出租车和拼车的乘客在进入这些交通工具时、在乘坐过程中和离开时必须戴上遮住鼻子和嘴的口罩。
 
-亚利桑那州的病例、住院人数和死亡人数都在放缓。然而，在截至周五的一周内，亚利桑那州的中共病毒诊断率是全美最差的（1/178）。南卡罗来纳州（192分之1）、俄克拉荷马州（216分之1）和罗德岛州（225分之1）紧随其后。
+此外，在机场、火车站、地铁站、公共汽车和轮渡码头、海港和入境口岸等交通枢纽场所，人们必须戴上口罩。人们在候车、上车、乘车和下车时，必须戴上口罩。
 
-周五，该州宣布，三人检出英国病毒变种。
+拜登1月21日发布的行政命令已经强制要求商业飞机、火车和渡轮等公共交通工具上必须戴上口罩。总统还强制要求在联邦物业内佩戴口罩。
 
-该部门表示，它正在监测情况，并重申人们需要戴口罩和保持社会距离。
+疾控中心的命令提示司机、售票员和乘务员只能运载戴口罩的人。
 
 **新闻来源：**[https://apnews.com/article/angela-merkel-germany-coronavirus-pandemic-coronavirus-vaccine-d43484836ede407a867225e3c4250c10](https://apnews.com/article/angela-merkel-germany-coronavirus-pandemic-coronavirus-vaccine-d43484836ede407a867225e3c4250c10)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/e892e7f7-b96c-43fa-a45b-539b43f6dd51-3.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/d4a10add-0ffa-4c11-97d3-fd89cbf1c1b3-5.jpg)
 
 ![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
