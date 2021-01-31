@@ -1,59 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读新疆公安百万数据被美媒曝光，及中共开始一年两次征兵
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/850100/)
+## 美国病毒专家Peter Daszak与科学女巫石正丽两个人谁在上边谁在下边
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/850292/)
 
-直播视频：
+![]()![](https://gnews.org/wp-content/uploads/2021/01/封面-259.jpg)
+撰稿：巴黎七星农场；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-
-
-《路德时评》2021年1月30日晚间节目主要内容：
-
-一、新疆公安百万数据泄露被美媒曝光
-
-The Interecept新闻网1月29日发表题为《揭露：中共国庞大的警察数据库》的报道[1]：调查的详细信息包含在The Intercept获得的海量警察数据库中：这是私人防卫公司Landasoft开发的报告工具的产品，中国政府将其用于促进警察对新疆公民的监视。该数据库以乌鲁木齐为中心，包含治安报告，这些报告确认并提供了对该地区穆斯林的迫害和大规模拘禁的许多因素的更多细节。它进一步揭示了一场镇压运动，据报道，该运动曾在私人居民的家中安装了摄像头，建立了大规模拘留营，将儿童与家人强行分开并安置在有电围栏的学前班，维吾尔公墓的系统破坏，以及通过强迫流产，绝育和节育来压制维吾尔族婴儿的系统运动。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/兴江-1.png)[图片地址](https://theintercept.com/2021/01/29/china-uyghur-muslim-surveillance-police/)
+据[\[email protected\]](https://twitter.com/wangqin56612794)回复[@PeterDaszak](https://twitter.com/PeterDaszak)和[@NBCNews](https://twitter.com/NBCNews)[上午11:16 · 2021年1月31日](https://twitter.com/wangqin56612794/status/1355716621935865862)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)
 
 
-路德社评论：
 
-1、该文章资料来源于中共国兰登数据库，该公司注册地在中共国上海，西方军情系统早已监控该数据库信息，从这篇报告可以看到美国早已掌握中共在新疆进行种族灭绝行径的所有证据和情报资料，可以判断该媒体报道的资料数据肯定来自美国军情系统；
-
-2、这篇文章公布的信息详细涵盖了参与新疆种族灭绝行为的政府人员的电话和财务情况，宗教活动，银行记录，电话信息，微信监控，生物识别计划信息，会议信息资料，还有集中再教育营的数据信息，这完全是配合军情部门公布的信息，只差视频和音频没有爆料，拜登政府上台后绝对不可能推翻中共犯下“种族灭绝罪”和“反人类罪”定论；
-
-3、中共国高层看到这篇报告后必定会吓出一身冷汗，无论中共如何狡辩都难以推脱被国际问责，中共通过偷窃西方尖端科技打造数字化电子监狱时代来奴役中国老百姓，他们最终也同样会被这些高科技埋葬；
-
-4、该网站爆料的文件揭露了新疆复杂的监狱设施体系，大致可分为四类：临时拘留场所，“再教育”，更宽松的再教育形式，称为“职业培训”和长期监禁，一些证据表明，与诸如再教育等较不苛刻的监禁形式相比，拘留率高出“震惊”程度；
-
-5、川普政府在卸任前制裁大量中共军方控制的高科技企业就是要阻止中共国继续利用高科技监控中国人民，赵立坚此前强硬表态，中国没有种族灭绝，他不但混淆概念错将中国代替中共，现在中共在新疆犯下反人类罪的证据就摆在全世界人面前，它只要对国人进行大面积监控就构成反人类罪，二战后针对纳粹的纽伦堡大审判就有这项定罪；中共在新疆打造的再集中营绝对是史无前例；
-
-6、现任美国政府和西方国家一定会继续跟进，谴责中共，制裁中共，对抗中共这个极权暴政组织，这也是为中共国钉上棺材板的最有力武器之一。
-
-二、中共国开始推行一年两次征兵
-
-新闻一：新华社北京1月28日电[2]：国防部新闻发言人吴谦28日在国防部例行记者会上表示，经国务院、中央军委批准，今年起组织实施一年两次征兵。上半年征兵将于2月20日开始，3月31日结束；下半年征兵将于8月15日开始，9月30日结束。
-
-新闻二：VOA新闻网1月30日报道[3]：美国国会研究处(CRS)在最新的一份报告中分析了中国海军现代化努力取得的进展、意图以及可能对美国海军构成的挑战。报告说，中国海军被视为对美国海军实现和维持战时对西太平洋深海海域的控制构成的重大挑战，是自冷战结束以来美国海军第一次面临这样的挑战，而且是中国挑战美国长期作为西太平洋领先军事大国地位的关键要素。
-![]()![](https://gnews.org/wp-content/uploads/2021/01/美国海军-4.jpeg)[图片地址](https://5b0988e595225.cdn.sohucs.com/images/20200326/41bb5e275fc84ef18c43e5c817f6afe4.jpeg)
+> [pic.twitter.com/y7RzEzIqHp](https://t.co/y7RzEzIqHp)
+> — wangqin (@wangqin56612794) [January 31, 2021](https://twitter.com/wangqin56612794/status/1355716621935865862?ref_src=twsrc%5Etfw)
 
 
-路德社评论：
 
-1、路德社此前爆料中共现在军心涣散，军队出现严重的拒服兵役情况，中共国不仅为军队加薪，严厉惩罚逃兵，此行还增加征召入伍次数，由此可以看到中共国军人何等紧缺，这也威胁到中共国国防安全；
+我们可以看出此次领衔主演赴中国进行冠状病毒溯源的主角是Perter Daszak同志，该同志与为中共卖命的蝙蝠女巫石正丽的友谊源远流长，那么Peter Daszak同志与石正丽同志到底谁在上边谁在下边呢？请大家不要误会，本文并非八卦，而是为了通过学术考证一下Peter Daszak同志与石正丽同志到底谁在上边谁在下边。
 
-2、中共国在习总加速师的带领下在开历史倒车，所有企业、科技和经济都必须为军警特宪服务，中共国深知他们在新疆、香港、台湾和病毒上犯罪的种种罪行已经难逃全世界审判，他们现在只能想办法拖延时间。
+据他们共同发表的论文1：[Bat Severe Acute Respiratory Syndrome-Like Coronavirus WIV1 Encodes an Extra Accessory Protein, ORFX, Involved in Modulation of the Host Immune Response](https://pubmed.ncbi.nlm.nih.gov/27170748/)（蝙蝠严重急性呼吸系统综合症样冠状病毒WIV1编码额外的附件蛋白ORFX，参与宿主免疫反应的调节。）,这篇论文被收入闫丽梦博士的Unusual Features of theSARS-CoV-2Genome Suggesting Sophisticated Laboratory Modification Rather Than Natural Evolution and Delineation of Its ProbableSynthetic Route (SARS-CoV-2基因组的不寻常特征表明其经由实验室复杂改造的特性非源于自然进化及其可能的合成路径的描述)报告中的参考文献内，这篇论文的作者顺序是——
 
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+[Lei-Ping Zeng](https://pubmed.ncbi.nlm.nih.gov/?term=Zeng+LP&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Yu-Tao Gao](https://pubmed.ncbi.nlm.nih.gov/?term=Gao+YT&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Xing-Yi Ge](https://pubmed.ncbi.nlm.nih.gov/?term=Ge+XY&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Qian Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+Q&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Cheng Peng](https://pubmed.ncbi.nlm.nih.gov/?term=Peng+C&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Xing-Lou Yang](https://pubmed.ncbi.nlm.nih.gov/?term=Yang+XL&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Bing Tan](https://pubmed.ncbi.nlm.nih.gov/?term=Tan+B&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Jing Chen](https://pubmed.ncbi.nlm.nih.gov/?term=Chen+J&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Aleksei A Chmura](https://pubmed.ncbi.nlm.nih.gov/?term=Chmura+AA&amp;cauthor_id=27170748) [2](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-2), [Peter Daszak](https://pubmed.ncbi.nlm.nih.gov/?term=Daszak+P&amp;cauthor_id=27170748) [2](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-2), [Zheng-Li Shi](https://pubmed.ncbi.nlm.nih.gov/?term=Shi+ZL&amp;cauthor_id=27170748) [3](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-3)
 
-参考文章：
+也就是说从顺序上看Peter Daszak同志在石正丽上边，但是从学术惯例上看，最后署名者才是No.1，也就是说虽然Peter Daszak同志的名字在石正丽同志上边，但是其学术地位在石正丽同志下边。
 
-[1][https://theintercept.com/2021/01/29/china-uyghur-muslim-surveillance-police/](https://theintercept.com/2021/01/29/china-uyghur-muslim-surveillance-police/)
+据他们共同发表的论文2：[Discovery of a rich gene pool of bat SARS-related coronaviruses provides new insights into the origin of SARS coronavirus](https://journals.plos.org/plospathogens/article?id=10.1371/journal.ppat.1006698)（蝙蝠SARS相关冠状病毒丰富基因库的发现为SARS冠状病毒的起源提供了新见解）,这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
 
-[2][http://www.xinhuanet.com/politics/2021-01/28/c\_1127038596.htm](http://www.xinhuanet.com/politics/2021-01/28/c_1127038596.htm)
+Ben Hu ,Lei-Ping Zeng ,Xing-Lou Yang ,Xing-Yi Ge,Wei Zhang,Bei Li,Jia-Zheng Xie,Xu-Rui Shen,Yun-Zhi Zhang,Ning Wang,Dong-Sheng Luo,Xiao-Shuang Zheng,Mei-Niang Wang,Peter Daszak,Lin-Fa Wang,Jie Cui ,Zheng-Li Shi
 
-[3][https://www.voachinese.com/a/crs-report-china-navy-us-response-20210128/5756340.html](https://www.voachinese.com/a/crs-report-china-navy-us-response-20210128/5756340.html)
+也就是说在这篇论文里Peter Daszak同志在王林发同志上边，王林发同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边，王林发同志在石正丽同志下边，Peter Daszak同志在王林发同志下边。
 
-文章撰写：【重生】  编辑：【香柏树】
+据他们共同发表的论文3：[Isolation and characterization of a bat SARS-like coronavirus that uses the ACE2 receptor](https://www.nature.com/articles/nature12711)（使用ACE2受体的蝙蝠SARS样冠状病毒的分离和鉴定）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
+
+Xing-Yi Ge, Jia-Lu Li, Xing-Lou Yang, Aleksei A. Chmura, Guangjian Zhu, Jonathan H. Epstein, Jonna K. Mazet, Ben Hu, Wei Zhang, Cheng Peng, Yu-Ji Zhang, Chu-Ming Luo, Bing Tan, Ning Wang, Yan Zhu, Gary Crameri, Shu-Yi Zhang, Lin-Fa Wang, Peter Daszak & Zheng-Li Shi
+
+也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
+
+据他们共同发表的论文4：[Bat Severe Acute Respiratory Syndrome-Like Coronavirus WIV1 Encodes an Extra Accessory Protein, ORFX, Involved in Modulation of the Host Immune Response](https://jvi.asm.org/content/90/14/6573)（蝙蝠严重急性呼吸系统综合症样冠状病毒WIV1编码额外的附件蛋白ORFX，参与宿主免疫反应的调节。）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
+
+Lei-Ping Zeng, Yu-Tao Gao, Xing-Yi Ge, Qian Zhang, Cheng Peng, Xing-Lou Yang, Bing Tan, Jing Chen, Aleksei A. Chmura, Peter Daszak, Zheng-Li Shi
+
+也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
+
+据他们共同发表的论文5：[Isolation and Characterization of a Novel Bat Coronavirus Closely Related to the Direct Progenitor of Severe Acute Respiratory Syndrome Coronavirus](https://pubmed.ncbi.nlm.nih.gov/26719272/)（与严重急性呼吸系统综合症冠状病毒直接祖细胞密切相关的新型蝙蝠冠状病毒的分离和鉴定）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
+
+Xing-Lou Yang 1, Ben Hu 1, Bo Wang 1, Mei-Niang Wang 1, Qian Zhang 1, Wei Zhang 1, Li-Jun Wu 1, Xing-Yi Ge 1, Yun-Zhi Zhang 2, Peter Daszak 3, Lin-Fa Wang 4, Zheng-Li Shi 5
+
+也就是说在这篇论文里Peter Daszak同志在王林发同志上边，王林发同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边，王林发同志在石正丽同志下边，Peter Daszak同志在王林发同志下边。
+
+据他们共同发表的论文6：[Fugong virus, a novel hantavirus harbored by the small oriental vole (Eothenomys eleusis) in China](https://virologyj.biomedcentral.com/articles/10.1186/s12985-016-0483-9)（扶公病毒，一种由东方小田鼠（Eothenomys eleusis）携带的新型汉坦病毒）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
+
+Xing-Yi Ge, Wei-Hong Yang, Hong Pan, Ji-Hua Zhou, Xi Han, Guang-Jian Zhu, James S. Desmond, Peter Daszak, Zheng-Li Shi & Yun-Zhi Zhang
+
+也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
+
+据他们共同发表的论文7：[Detection of diverse novel astroviruses from small mammals in China](https://pubmed.ncbi.nlm.nih.gov/25034867/)（从中国小型哺乳动物中检测出多种新型冠状病毒）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
+
+Ben Hu 1, Aleksei A Chmura 2, Jialu Li 1, Guangjian Zhu 2, James S Desmond 2, Yunzhi Zhang 3, Wei Zhang 1, Jonathan H Epstein 2, Peter Daszak 2, Zhengli Shi 1
+
+也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
+
+言而总之，Peter Daszak同志与石正丽同志谁在上边谁在下边的问题比较复杂，就像这次领衔主演去中国进行冠状病毒溯源闹剧一样的，名义上Peter Daszak同志在上边石正丽同志在下边，但实际上石正丽同志在上边Peter Daszak同志在下边，当Peter Daszak同志端起了baijiu，当石正丽同志端起了baijiu，我听到的声音是这样的——
+
+激动的心、颤抖的手，领导在上我在下，激动的心、颤抖的手，领导几口我几口。同志们，为了党为了国家，大家干了这碗酒！
+
+（文章内容仅代表作者个人观点）
+
+
 
 0

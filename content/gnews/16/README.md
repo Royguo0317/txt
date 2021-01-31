@@ -1,28 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 病毒蔓延必将引起思想大碰撞
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/844665/)
+## 郭先生早在2019年就曝光了习近平功打台湾的“双龙计划”
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/849705/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/covid191.png)图片来源： 网络
+新闻简述：郭先生早在2019年9月1日就曝光了中共的“双龙计划”。他是以习近平为首的中共企图以香港事件为借口打击台湾的一个军事计划。郭先生呼吁台湾人民要站在香港和世界正义力量的一边才能获得安全。他也奉劝大陆的亿万中国人不要助纣为虐，那样等待人们的将是像二战后的日本和德国纳粹一样的下场。
+视频来源：[https://www.youtube.com/watch?v=5s4aSMrsubg](https://www.youtube.com/watch?v=5s4aSMrsubg) (30:01-32:19, 38:45-40:14)
+(30:01-32:19)
 
+共产党习近平和王岐山的国家安全委员会，和中国的“党天下、家天下”的中国政权已经做好了一切的计划。在福建，50万大军，导弹部队已经准备好了。当香港失去全面控制，美国全面进行制裁，全面进行封锁，像天安门六四事件一样，西方和美国世界对中国进行制裁的时候，共产党就会发起突然间的对台湾的定点斩首行动，军事打击，彻底收复台湾，这叫“双麟行动”（又名“双龙行动”）。
 
-从去年119，CCP病毒被路德社揭露出来以后，全世界长达一年多都处在一片迷茫之中，人类时时刻刻面临着病毒的威胁，一方面不知道病毒哪里来的，一方面看着政客、科学家、主流媒体的表演。直到今日，全球感染人数已经过亿，死亡人数多达二百多万，病毒丝毫没有减弱的迹象，人们的耐受力已经接近爆点，世界各国政客疲于应对，这个时候，问题又回到了原点，谁都无法规避病毒来源的问题。
+The CCP’s National Security Commission led by Xi Jinping and Wang Qishan and the Chinese regime, under the ideology of “all under heaven belong to the party and the party’s few families”, have planned it all out. In Fujian, 500,000 troops and missile force are ready. Once Hong Kong’s situation is out of control and America imposes comprehensive sanctions and complete blockades, just like after the Tiananmen June Fourth Incident, the West and the US and the world imposed suctions on China, the CCP will suddenly launch a targeted decapitation operation and military strikes against Taiwan and take back Taiwan completely. This is called “Operation Shuanglin” (a.k.a. “Operation Shuanglong” or “Operation Dual Dragon”).
 
-去年七月份，闫丽梦博士连续发表两篇论文，从专业的角度详细阐述了病毒来源，并且通过对信息和数据的分析，得出结论，这个病毒是来自中共军方实验室的生化武器。这两篇论文发表至今已经在全世界发酵半年，一方面一些如梦方醒的人们开始关注病毒来源，一些专业人士开始重新认真研究病毒；另一方面，中共发动一切力量抹黑闫博士，试图将病毒问题政治化，一些无良专家用非常不专业的方式攻击闫博士，主要流氓媒体也极力封杀闫博士的言论。但是迄今为止，没有一个人可以从科学、专业的角度来正面挑战闫博士，闫博士也在节目中说，欢迎同行来打擂，半年过去了，闫博士的大旗不但屹立不倒，还汇聚了越来越多的正义力量，要为人类找出病毒真相。随着真相的被揭露，这股正义力量必然觉醒，他们一定会在全世界范围内掀起一次大辩论，为什么病毒可以被制造、释放出来？各国政府在里面扮演了什么角色？媒体为什么误导舆论？科学界还值得信任吗？
+那么这个“双麟行动”，大家可以看到，它的理由就是香港发生的这场真正的返送中的行动他们说是美国和台湾的台独分子在背后策划的。很多香港的，所谓领导，运动的领导都在台湾，藏在台湾，他们要抓回，抓捕这些人。然后就对台湾进行军事行动，收复台湾。这才是他的真正的这场核心的目的的核心之一。
 
-这种反思我们可以参照一下历史上的类似情况。比如蒙古人横扫欧洲的时候，蒙古人也是用瘟疫，传播黑死病，导致欧州人口暴减，基本上死了一半，那个时候欧洲各国是中世纪时期。他们有梵蒂冈教皇，宗教力量绝对是超越世俗力量的，各国的国王都是教皇来加冕、承认。
+So, this “Operation Shuanglin”, as we can see, will use the excuse that the Hong Kong Movement, which is actually an anti-extradition bill protest, was plotted by the Americans and Taiwanese who secretly supported the independence of Taiwan. [They will say that] many leaders of the Hong Kong Movement are hiding in Taiwan, so in order to capture these people, they will need to have military actions toward Taiwan and liberate Taiwan. This is one of the real purposes and the core.
 
-但是黑死病来了，死了很多人。梵蒂冈开始对这个事情不是很在意，他们觉得是上帝对恶人的惩罚，没想到后面贵族、教堂的牧师、传教士、主教也都有死亡。还有很多人拼命祈祷，但是完全不管用，照样死那么多人。还有很多人平时都好好的修行，天天祈祷，从来不做坏事的人也死了。贵族死了，贵族的继承人也死了，土地也荒废了，当时那种封建制的架构被严重冲击，教会的力量被严重的削弱。本来教会对政治、思想以及人民的控制是非常强大的，他们垄断一切的思想，就一个基督教，没有其他任何思想。《圣经》只有他们来解释，只有拉丁文，《圣经》上到底怎么说的？他们说了算，人民是不知道的。瘟疫一来，死掉一大半人，大家对宗教的信心就动摇了。
+接下来我想告诉大家的事情，台湾的这场可能随时在下一小时，下一天，下一分钟就有可能，有很大的可能是这个样子的。台湾政权的无知、自私、懦弱，以及多年来被共产党进行了“蓝金黄”，收买了国民党，以及民进党的各种政权，将付出巨大代价，将台湾人民毁于一旦。而且这次“双麟计划”也是不惜代价，不择手段，必须100%拿下台湾，不论死多少人，流多少血。
 
-没办法大家就开始去找药，找治疗的方法。找着找着就找到古希腊、古罗马去了，发现古希腊、古罗马里面讲的这么多东西都非常有道理，不像基督教的教会说的，都是异端邪说。他们的思想获得解放，先从艺术开始，这就是文艺复兴。随着古腾堡印刷术的发明，本来手抄版的《圣经》，开始被大量印刷，这个时候马丁路德在德国进行宗教改革，新教就开始了。大家不愿意再被梵蒂冈教皇的思想所控制，各地的国王也不愿意被教皇控制，所以他们就扶持新教，这就是所谓的现代基督教。各种语言版本的《圣经》被大量的印刷，大家后来发现根本不是梵蒂冈教皇讲的那样，他们不再需要这些代理人来给他们解释《圣经》，他们都用本民族的语言自己看《圣经》，这就是宗教改革。后面思想越来越活跃了，就开始思想启蒙运动。整个过程经历了300年，思想解放了，就开始搞各种科研，后面就是工业革命，欧洲进入近现代。近现代以前的欧洲叫黑暗的中世纪，就是教皇一家独大，各种腐败，跟现在差不多，各种性丑闻、各种贿赂、卖赎罪券，这导致了整个基督教、天主教的不断衰败，新教应运而生。
+So next what I want to tell everyone is that [the military action toward] Taiwan may happen the next hour, the next day, or the next minute, and anything is possible. So Taiwan government’s ignorance, selfishness, and cowardice, and the many years of the CCP’s BGY on the Nationalist Party and the Democratic Progressive Party in Taiwan will make Taiwan to pay big prices and will destroy the Taiwanese people. This “Operation Shuanglin” is to completely conquer Taiwan no matter what means are used and what prices are paid, no matter how many people are killed and how much blood is shed.
 
-灾难之后，必定带来反思，我们现在也是一样。当人们对权威开始质疑的时候，就会唤起人们对真理的探索，接下来旧的平衡会被打破，新的秩序一定会伴随着新一轮的思想解放而被确立起来。在CCP病毒的肆虐下，人们在依靠上帝、政府、科学无果的情况下，必然会奋起自救，政府、媒体、法律、信仰都将会被重新定义 。我们GNEWS、GTV作为全球唯一一家讲真相的华人媒体，为这次思想大碰撞提供了广阔的舞台，我们坚持唯真不破，我们相信正义必胜。
+所以这一次香港成了台湾最大的保护的屏障。台湾只有站在香港的一边，保护香港人民，你才能安全，只有大胆行动和全世界站在一起，你才能，台湾才可能有安全。否则你很快将变成了炮灰，弹灰。
 
-作者：比卡丘
+So this time, Hong Kong has become the biggest shield for Taiwan. Taiwan will be safe only if it sides with Hong Kong and protects Hong Kong people. By taking brave actions and standing with the world, will Taiwan have security. Otherwise, it will become the ashes [in front of the military conquer of the CCP].
 
-原创观点文章 – 2021/01/30
+（38:45-40:14）
 
-温哥华圆成农场
+同时在大陆的所有的党内的战友，军内的战友和14亿中国人民，你们要知道在二战的时候日本是什么样的下场，德国希特勒是什么下场，德国所谓的无辜的市民公民，日本无辜的百姓什么下场。习王发动这场要拿下香港的双龙台湾，征服世界，与世界叫板，不惜发动第三次世界大战的疯狂行动的本质是保护他们家族的利益，保护所谓共产党的利益，和保护他们的私生子女，和盗取国家的巨额财富，它不是为了中国人好。
 
-0
+Also, for the fellow fighters in mainland China, who are inside the CCP and the PLA, and the 1.4 billion Chinese people, you must understand the fate of the people in Japan in the Second World War, the fate of Hitler, and the fate of the so-called innocent people in Germany and Japan after the Second World War. This crazy action by Xi and Wang for conquering Hong Kong, conquering Taiwan by the “Operation Shuanglong”, conquering the world, even with a third world war is essentially for protecting their own family interests, protecting the CCP’s interests, protecting their own illegitimate children, and the huge wealth they stole from the country, rather than for the interest of the people.
+
+就像当年日本的天皇和希特勒都说是为了自己的民族好，最后绑架了国家和民族，最后都毁于一旦，国家和民族都毁了。中国人民必须站起来，和香港人民，台湾人民站在一起，才能不葬送自己的未来。如果你们要与贼为伍，与匪为伍，你们也将死无葬身之地，一定会被世界上的正义力量最后给销毁。像当年的日本被核武器袭击，像当年德国的希特勒和德军纳粹到现在还被追杀一样，死无葬身之地。
+
+It’s just like the Japanese Emperor and Hitler. Both said that it was for the good of their own people. They kidnapped the country and the nation and destroyed them eventually. The Chinese people must stand up and stand with the people of Hong Kong and Taiwan, so as not to ruin their future. If you are to associate with thieves and bandits, you will die without a place to be buried, and you will definitely be destroyed by the righteous forces in the world. Just as Japan was attacked by nuclear weapons, like Hitler in Germany and the German Nazis were still hunted down till this day, you will have no place to buried even when you die.
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+
+翻译：【Isaiah4031】字幕：【相机过热啊】听写：【BruhM】编辑：【Isaiah4031】
+
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+
++1

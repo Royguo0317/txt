@@ -1,24 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 巴西众邻国限制国际旅行
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/848919/)
+## 香草播报：【热点播报】BLM被提名为2021年度诺贝尔和平奖
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/849208/)
 
-- 编辑：Victor Torres
+作者：纽约香草山写作组 天涯客
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年1月30日电/西喜社——**因为担心一种新的中共病毒变种的传播，巴西的邻国已经开始限制国际旅行，专家说这种病毒可能更具传染性。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-圭亚那政府周五关闭了与南美洲最大国家的边界，两天后哥伦比亚停止了往返巴西的客运航班。这两个国家都将新的变种作为他们的理由。据国家通讯社Telam 1月27日报道，阿根廷政府决定从2月1日起将飞往巴西的航班数量减半。
 
-秘鲁1月26日禁止了来自巴西的空中交通。与巴西接壤的秘鲁洛雷托省省长呼吁政府也关闭陆路口岸。
 
-**新闻来源：**[https://apnews.com/article/angela-merkel-germany-coronavirus-pandemic-coronavirus-vaccine-d43484836ede407a867225e3c4250c10](https://apnews.com/article/angela-merkel-germany-coronavirus-pandemic-coronavirus-vaccine-d43484836ede407a867225e3c4250c10)
+BLM （Black Lives Matter） 是一个政治和社会运动组织，经常在街头抗议警察和对黑人的暴力行为。该组织最初是以黑人为主，现在也有其他族群加入。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/2b9ee270-d7a8-4d87-9eca-64f775565f1e-44.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/43.jpg)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+该组织被提名为2021年度诺贝尔和平奖候选人，以鼓励他们在世界范围内发起的系统改革的呼声和努力。
+
+该组织的某些暴力行为曾经受到社会各界的批评。但是，挪威方面的官员皮特·埃德（Petter Eide ）在提名文件中说，该运动迫使美国以外的其他国家努力应对自己社会中的种族主义。
+
+参考阅读：
+
+[https://www.theguardian.com/world/2021/jan/29/black-lives-matter-nobel-peace-prize-petter-eide-norweigan-mp](https://www.theguardian.com/world/2021/jan/29/black-lives-matter-nobel-peace-prize-petter-eide-norweigan-mp)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
 
 0
