@@ -1,71 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国病毒专家Peter Daszak与科学女巫石正丽两个人谁在上边谁在下边
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/850292/)
+## 美国战略司令部警告，中共国是不应信任的核武竞争者
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/868389/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/封面-259.jpg)
-撰稿：巴黎七星农场；审核：喜马拉雅的馍夹肉；校对：Maarago
+#### 翻译报道：明澈
+责任编辑：文旺
+![]()![](https://gnews.org/wp-content/uploads/2021/02/capture-6.jpg)图片来源：https://cn.wsj.com/
+据《华盛顿时报》（Washington Times）2月1日报道，美国战略司令部司令在对全球核武平衡进行最新的大审查中警告说：“美国必须为与中俄核战争做好准备，同时应寻求新的方法来阻止中俄两国使用新进获得的战略武器。”
 
-据[\[email protected\]](https://twitter.com/wangqin56612794)回复[@PeterDaszak](https://twitter.com/PeterDaszak)和[@NBCNews](https://twitter.com/NBCNews)[上午11:16 · 2021年1月31日](https://twitter.com/wangqin56612794/status/1355716621935865862)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)
+查尔斯·理查德(Charles Richard )四星上将在本期《美国海军学院学报》（U.S. Naval Institute Journal）上发表的文章中，直接对中俄核武力量进行了评估，他认为核武战争一触即发。当中俄认为损失威胁到他们的政权或国家，那麽与中俄的区域危机很可能会迅速升级为涉及核武器的冲突。同时，他在新的调查中敦促五角大楼必须将主要假设转变为“核战争的可能性非常高”。他认为，美国政府和军事领导人需要正确地理解核冲突的新危险，并形成威慑和（必要时）核战争战略的新概念。
 
+中俄部署先进的战略力量，要求美国在面对新威胁时应採取更大的行动，以增强威慑力。理查德将军说，以危机或核战争阻吓两国，正在以前所未有的方式对世界进行考验。我们必须正确理解现在面对的挑战，以此制定应对措施；否则美国就会面临所制定的措施并不能有效实施或可能达不到预期效果的风险，因为我们必须以超出我们习惯的思维方式来制定应对措施，才能应对突发情况。近年来，中俄以限制美国行动为目标，在核武和战略能力上进行了投资，包括在他们靠近美国的同盟国进行战略部署。
 
+理查德将军对《华盛顿时报》表示：“这将是美国历史上首次不得不面对两个具有核武能力的竞争对手。我们假设战略威慑力将来会继续存在，但是随著环境的变化，情况也会随之改变，我们需要准备好应对跨地域威胁，以确保我们国家和盟国的安全。”他表示，对整个国防部来说，明智的做法是整个部门要制定统一战略，建立威慑方法，以解决中俄侵略的问题，并儘早地将这种思想纳入专业军事教育之中。对此，战略司令部已开始提供帮助，他们对威胁进行了重新思考，并对“战略威慑失败风险”的评估报告做了修订。五角大楼还需要改善对新型战略武器和系统的採购，并加强指挥控制系统和网络能力。
 
-> [pic.twitter.com/y7RzEzIqHp](https://t.co/y7RzEzIqHp)
-> — wangqin (@wangqin56612794) [January 31, 2021](https://twitter.com/wangqin56612794/status/1355716621935865862?ref_src=twsrc%5Etfw)
+理查德将军说：“我们必须通过了解对手的威胁及其决策考量来适应当今的战略环境，同时还须接受来自具备核武强国的竞争和挑战。”他认为，重中之重是必须要了解威胁。“直到我们对什麽是威胁以及为此要採取什麽行动有统一的认知之前，我们将处于令人尴尬的危险之中，或许更糟糕，将被对手所束缚。”
 
+**必须将中共视为重点关注国家**
 
+报道披露，理查德将军指出，中共的核武建设使其成为美国军方的“关注对象”。中共持续不断地挑战民主价值观，试图重塑全球经济秩序，不断在技术上投入大量资源来扩大其空间和反空间战的能力，因此，绝不该将中共国列入一般的观察对象。太空系统现在为中共提供了全球范围内的部队指挥和控制权，更进一步提供了情报搜集能力。同时中共还在南海那些有争议岛屿上部署了多种武器系统。随著中共几近完成新型远程轰炸机，陆基洲际弹道导弹和潜射导弹将很快与之合而为一。除此之外，中共战略部队还建立了新型警报指挥系统，同时提高了部队的战备能力。预计未来十年，中共的核武器库存将增加一倍，甚至三倍或四倍。
 
-我们可以看出此次领衔主演赴中国进行冠状病毒溯源的主角是Perter Daszak同志，该同志与为中共卖命的蝙蝠女巫石正丽的友谊源远流长，那么Peter Daszak同志与石正丽同志到底谁在上边谁在下边呢？请大家不要误会，本文并非八卦，而是为了通过学术考证一下Peter Daszak同志与石正丽同志到底谁在上边谁在下边。
+理查德将军还指出，近年来中共不断使用战略欺骗手段，试图打破“不率先使用核武”的诺言，意味著美国必须更多地关注中共的行动。同时，他指责中共和俄罗斯利用全球流行病来推进他们的国家战略。
 
-据他们共同发表的论文1：[Bat Severe Acute Respiratory Syndrome-Like Coronavirus WIV1 Encodes an Extra Accessory Protein, ORFX, Involved in Modulation of the Host Immune Response](https://pubmed.ncbi.nlm.nih.gov/27170748/)（蝙蝠严重急性呼吸系统综合症样冠状病毒WIV1编码额外的附件蛋白ORFX，参与宿主免疫反应的调节。）,这篇论文被收入闫丽梦博士的Unusual Features of theSARS-CoV-2Genome Suggesting Sophisticated Laboratory Modification Rather Than Natural Evolution and Delineation of Its ProbableSynthetic Route (SARS-CoV-2基因组的不寻常特征表明其经由实验室复杂改造的特性非源于自然进化及其可能的合成路径的描述)报告中的参考文献内，这篇论文的作者顺序是——
-
-[Lei-Ping Zeng](https://pubmed.ncbi.nlm.nih.gov/?term=Zeng+LP&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Yu-Tao Gao](https://pubmed.ncbi.nlm.nih.gov/?term=Gao+YT&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Xing-Yi Ge](https://pubmed.ncbi.nlm.nih.gov/?term=Ge+XY&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Qian Zhang](https://pubmed.ncbi.nlm.nih.gov/?term=Zhang+Q&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Cheng Peng](https://pubmed.ncbi.nlm.nih.gov/?term=Peng+C&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Xing-Lou Yang](https://pubmed.ncbi.nlm.nih.gov/?term=Yang+XL&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Bing Tan](https://pubmed.ncbi.nlm.nih.gov/?term=Tan+B&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Jing Chen](https://pubmed.ncbi.nlm.nih.gov/?term=Chen+J&amp;cauthor_id=27170748) [1](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-1), [Aleksei A Chmura](https://pubmed.ncbi.nlm.nih.gov/?term=Chmura+AA&amp;cauthor_id=27170748) [2](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-2), [Peter Daszak](https://pubmed.ncbi.nlm.nih.gov/?term=Daszak+P&amp;cauthor_id=27170748) [2](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-2), [Zheng-Li Shi](https://pubmed.ncbi.nlm.nih.gov/?term=Shi+ZL&amp;cauthor_id=27170748) [3](https://pubmed.ncbi.nlm.nih.gov/27170748/#affiliation-3)
-
-也就是说从顺序上看Peter Daszak同志在石正丽上边，但是从学术惯例上看，最后署名者才是No.1，也就是说虽然Peter Daszak同志的名字在石正丽同志上边，但是其学术地位在石正丽同志下边。
-
-据他们共同发表的论文2：[Discovery of a rich gene pool of bat SARS-related coronaviruses provides new insights into the origin of SARS coronavirus](https://journals.plos.org/plospathogens/article?id=10.1371/journal.ppat.1006698)（蝙蝠SARS相关冠状病毒丰富基因库的发现为SARS冠状病毒的起源提供了新见解）,这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
-
-Ben Hu ,Lei-Ping Zeng ,Xing-Lou Yang ,Xing-Yi Ge,Wei Zhang,Bei Li,Jia-Zheng Xie,Xu-Rui Shen,Yun-Zhi Zhang,Ning Wang,Dong-Sheng Luo,Xiao-Shuang Zheng,Mei-Niang Wang,Peter Daszak,Lin-Fa Wang,Jie Cui ,Zheng-Li Shi
-
-也就是说在这篇论文里Peter Daszak同志在王林发同志上边，王林发同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边，王林发同志在石正丽同志下边，Peter Daszak同志在王林发同志下边。
-
-据他们共同发表的论文3：[Isolation and characterization of a bat SARS-like coronavirus that uses the ACE2 receptor](https://www.nature.com/articles/nature12711)（使用ACE2受体的蝙蝠SARS样冠状病毒的分离和鉴定）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
-
-Xing-Yi Ge, Jia-Lu Li, Xing-Lou Yang, Aleksei A. Chmura, Guangjian Zhu, Jonathan H. Epstein, Jonna K. Mazet, Ben Hu, Wei Zhang, Cheng Peng, Yu-Ji Zhang, Chu-Ming Luo, Bing Tan, Ning Wang, Yan Zhu, Gary Crameri, Shu-Yi Zhang, Lin-Fa Wang, Peter Daszak & Zheng-Li Shi
-
-也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
-
-据他们共同发表的论文4：[Bat Severe Acute Respiratory Syndrome-Like Coronavirus WIV1 Encodes an Extra Accessory Protein, ORFX, Involved in Modulation of the Host Immune Response](https://jvi.asm.org/content/90/14/6573)（蝙蝠严重急性呼吸系统综合症样冠状病毒WIV1编码额外的附件蛋白ORFX，参与宿主免疫反应的调节。）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
-
-Lei-Ping Zeng, Yu-Tao Gao, Xing-Yi Ge, Qian Zhang, Cheng Peng, Xing-Lou Yang, Bing Tan, Jing Chen, Aleksei A. Chmura, Peter Daszak, Zheng-Li Shi
-
-也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
-
-据他们共同发表的论文5：[Isolation and Characterization of a Novel Bat Coronavirus Closely Related to the Direct Progenitor of Severe Acute Respiratory Syndrome Coronavirus](https://pubmed.ncbi.nlm.nih.gov/26719272/)（与严重急性呼吸系统综合症冠状病毒直接祖细胞密切相关的新型蝙蝠冠状病毒的分离和鉴定）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
-
-Xing-Lou Yang 1, Ben Hu 1, Bo Wang 1, Mei-Niang Wang 1, Qian Zhang 1, Wei Zhang 1, Li-Jun Wu 1, Xing-Yi Ge 1, Yun-Zhi Zhang 2, Peter Daszak 3, Lin-Fa Wang 4, Zheng-Li Shi 5
-
-也就是说在这篇论文里Peter Daszak同志在王林发同志上边，王林发同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边，王林发同志在石正丽同志下边，Peter Daszak同志在王林发同志下边。
-
-据他们共同发表的论文6：[Fugong virus, a novel hantavirus harbored by the small oriental vole (Eothenomys eleusis) in China](https://virologyj.biomedcentral.com/articles/10.1186/s12985-016-0483-9)（扶公病毒，一种由东方小田鼠（Eothenomys eleusis）携带的新型汉坦病毒）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
-
-Xing-Yi Ge, Wei-Hong Yang, Hong Pan, Ji-Hua Zhou, Xi Han, Guang-Jian Zhu, James S. Desmond, Peter Daszak, Zheng-Li Shi & Yun-Zhi Zhang
-
-也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
-
-据他们共同发表的论文7：[Detection of diverse novel astroviruses from small mammals in China](https://pubmed.ncbi.nlm.nih.gov/25034867/)（从中国小型哺乳动物中检测出多种新型冠状病毒）, 这篇论文被收入闫丽梦博士的第二篇报告SARS-CoV-2 Is an Unrestricted Bioweapon:A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud（SARS-CoV-2是超限生物武器：揭露大规模，有组织的科学欺诈行为揭示的真相）的参考文献中，这篇论文的作者顺序是——
-
-Ben Hu 1, Aleksei A Chmura 2, Jialu Li 1, Guangjian Zhu 2, James S Desmond 2, Yunzhi Zhang 3, Wei Zhang 1, Jonathan H Epstein 2, Peter Daszak 2, Zhengli Shi 1
-
-也就是说在这篇论文里Peter Daszak同志在石正丽同志上边，从学术地位上来看，石正丽同志在上边， Peter Daszak同志在下边。
-
-言而总之，Peter Daszak同志与石正丽同志谁在上边谁在下边的问题比较复杂，就像这次领衔主演去中国进行冠状病毒溯源闹剧一样的，名义上Peter Daszak同志在上边石正丽同志在下边，但实际上石正丽同志在上边Peter Daszak同志在下边，当Peter Daszak同志端起了baijiu，当石正丽同志端起了baijiu，我听到的声音是这样的——
-
-激动的心、颤抖的手，领导在上我在下，激动的心、颤抖的手，领导几口我几口。同志们，为了党为了国家，大家干了这碗酒！
-
-（文章内容仅代表作者个人观点）
-
-
+[原文链接](https://www.washingtontimes.com/news/2021/feb/1/charles-richard-us-strategic-command-chief-nuclear/)
 
 0

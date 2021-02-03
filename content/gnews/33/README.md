@@ -1,39 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】美国太空部队打算构建由廉价卫星组成的坚不可摧的空间卫星系统
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/850779/)
+## 黎巴嫩单日死亡81人破纪录
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/868754/)
 
-作者：纽约香草山 Wilson 校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-《网络战争杂志》（C4irsnet）2021年1月30日报道，美国太空部队打算构建一个更分散的天基卫星架构。
+**西班牙2021年2月2日电/西喜社——**黎巴嫩已经打破了单日中共病毒死亡的记录，有81人死亡，该国已连续第三周在全国范围内实行封锁。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/PVEDQ4MCD5DIPASKNU6GBFP7UQ-1.jpg)图片来源：DARPA
+卫生部自疫情开始以来共登记了30.6万个病例。
 
-华盛顿太空部队首席投资组合架构师表示，即使一颗或多颗卫星瘫痪或被摧毁，这种架构系统仍然可以继续提供关键的天基能力，安全地为为航天局、导弹开发局提供数据信息服务。
+黎巴嫩当局预计将在本周晚些时候举行会议，决定是否开始放松封锁。
 
-因此需要专注于开发在低地球轨道运行的(低价)卫星，传统上采用非常昂贵的大型卫星构建其空间系统。五角大楼认为太空是一个战争领域，这意味着不能再假设其卫星不会成为对手的打击目标，因此关注卫星的脆弱性，测试对手的各种反卫星武器是其重点。
+**新闻来源：**[https://apnews.com/article/travel-coronavirus-pandemic-accommodations-austria-immigration-182eb2881c16924fc4778ffce8b67d27](https://apnews.com/article/travel-coronavirus-pandemic-accommodations-austria-immigration-182eb2881c16924fc4778ffce8b67d27)
 
-美国太空部队空间开发局成立于2019年，正在策划使用数百颗相对廉价、可更换的卫星，组成在低地球轨道上建造新的分布式架构卫星系统。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/c8f9e5d1-0ce0-4135-9d0e-94968418acee-27.jpg)
 
-随着全球以卫星互联网为核心的太空竞争时代的到来，不管是商用还是军用，低轨卫星都成了新发展战略的宠儿，因为低轨卫星传输时延短、研制周期短、发射成本低，只要加密技术过硬，就能安全使用。
-
-美国特斯拉CEO马斯克的SpaceX公司，已经全面启动天基互联网计划，规划向太空发射卫星1.2万颗，每颗的造价不到1000美元。1月25日SpaceX公司用一个发射器发射了143颗卫星，就连普通公司都可以拥有专用卫星。
-
-这对反卫星武器将形成压倒性的优势，因为用一枚昂贵的导弹去打一颗廉价的卫星是没有意义的。
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
 0
