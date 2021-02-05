@@ -1,28 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 苏格兰将对来访者实行“管理隔离”计划
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/868841/)
+## 【灭共头条】前美国安顾问博明揭露中共攻台野心 台湾民众应放弃侥幸心理
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/879803/)
 
-- 编辑：Victor Torres
+编撰：MIYA【㊙️翻  Gnews原创组】
+责编：Ermat
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Picture1-33.jpg)图片来源：Twitter/fiu\_sipa
+位于佛罗里达的史蒂芬·格林国际与公共事务学院（The Steven J. Green School of International and Public Affairs）3日举办网络论坛，美国前副国家安全顾问博明（Matt Pottinger）在论坛上发言表示，台海愈演愈烈的紧张局势绝非偶然，攻占台湾是中共多年来处心积虑的欲望与野心。美国必须以实质行动坚决支持台湾，台湾民众一定不要抱有侥幸心理，而应与美国和各邻国紧密团结起来，积极做好备战工作。
 
+博明认为，若台湾被中共吞并，而美国屈服这样的结果，将破坏美国与盟友间的信赖，也会严重影响美国科技竞争力及创新优势，冲击半导体产业和电子供应链。并可能引发中共对日本甚至印度的战争。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+他在发言中特别强调前国务卿蓬佩奥在卸任前公开的一份文件，该文件首次披露：中共军方背景的武汉病毒研究所是其掩盖病毒来源真相的关键所在，美国已有确凿情报证明，早在2019年秋季该研究所就出现了内部员工的疑似病毒感染。
 
-**西班牙2021年2月2日电/西喜社——**苏格兰将对每个直接抵达该地的人实行 “管理隔离 “计划。
+此外博明还提醒美国要对中共施压，对中共暗中操纵危害美国国家安全和破坏民主宪政的行径实施制裁，不要再落入北京设下的一轮又一轮的所谓战略谈判陷阱。
 
-苏格兰第一部长尼古拉·斯特金(Nicola Sturgeon)告诉苏格兰立法者，作为尽量减少中共病毒变种风险的计划的一部分，入境旅客可能会被要求在酒店进行隔离。
+曾担任路透社和华尔街日报的驻华记者，因报道中共腐败而遭到中共警察的侮辱和拘捕的博明，对共产党的专制有深刻的研究和理解。博明的发言揭露了中共急欲吞并台湾和垂涎亚洲的野心，提醒拜登政府台湾对美国的重要战略意义，必须停止对中共的“绥靖”政策。台湾人民一定要警醒团结起来，为中共随时可能发起的对台超限战争做好准备。
 
-她说，隔离政策的细节将很快制定出来，并敦促英国政府采取类似的措施。
+**参考链接：**
 
-上周，英国政府表示，将对来自中共病毒热点地区巴西和南非的任何人实行10天的隔离。目前，所谓的 “红色名单 “上有33个国家。
+[博明在2月3日的史蒂芬·格林国际与公共事务学院论坛视频](https://www.facebook.com/fiusipa/videos/vb.202158559200/164889258527409/?type=2&amp;theater)
 
-苏格兰预计在2月22日让一些年龄较小的孩子回到学校。
-
-**新闻来源：**[https://apnews.com/article/travel-coronavirus-pandemic-accommodations-austria-immigration-182eb2881c16924fc4778ffce8b67d27](https://apnews.com/article/travel-coronavirus-pandemic-accommodations-austria-immigration-182eb2881c16924fc4778ffce8b67d27)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/02/bdca31ae-c333-435a-9958-acddf82ee66f-15.jpg)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
-
-0
++2
