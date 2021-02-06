@@ -1,49 +1,84 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 教宗方济各警告:全球化将成为新的 “殖民主义”
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/880138/)
+## 相关财务人员及管理人员的行为判断（四）
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/882767/)
 
-翻译：康州盘古农场-Bruce
-校对：康州盘古农场-烟波浩淼
-编辑：康州盘古农场-Antsee-GTV
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23164109/1223.jpg)
+Picture Source: https://www.groomassocies.com
 
-![Pop Francis]()![Pop Francis](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-05-at-11.11.28.png)
+在第四篇主题文章中，将继续介绍相关财务人员，以及管理人员的行为。并根据行为模式的解读与客观，审慎，勤勉的的态度作出有效评估关于潜在的在的欺诈以及诈骗风险。并有效衡量实际商业运营中可容忍的风险程度。
 
-**罗马****—****教宗方济各周二警告说，如果全球化不能尊重当地的多样性和个性，就有可能在世界范围内造成一种僵化的统一性。**
+1. Standard III（D）Performance Presentation
+    - 成员有尽到合理努力义务确保信息的 公平Fair /准确Accurate /完整Complete
+    - 此标准将禁止任何对于历史表现和预期表现的虚假陈述
+    - 声明GISP，但并未遵守
+    - 对于时间加权回报 / 匹配账户 的故意错误匹配 Length of Time
+    - 播/推广未经验证的历史表现
+    - 对于金融产品的表现是否为模拟产生，没有做到明确披露
+    - 使用多种投资策略报告时，仅报告最优结果 / 或对于部分结果故意隐瞒
+    - 效归因报告中：为掩盖人为的消极影响，进行的归因方法的有意识的替换/掩盖，并且没有向客户完全披露。
+2. Standard III（ E）Preservation of Confidentiality
+    - 三种特例无需保密（有权举报）：非法活动，法律要求，客户许可
+    - 此条款要求所有成员或候选人对于前任，现任，潜在客户信息的机密性给予保护
+    - 由于成员或候选人的特殊能力指导部分客户的商业或个人业务时所收到的信息
+    - 在成员或候选人与客户业务间存在特殊或机密关系中收集的信息
+3. Status of Client
+    - 即使已经结束业务关系或不再是客户，候选人或成员也必须维护信息机密性
+    - 客户信息面对其它合作方时，也必须被要求维护机密性
+    - 即使是由客户意外失误造成的信息泄露，成员也有义务做出最大努力进行弥补
+4. Compliance with Laws
+    - 法律要求披露，则必须披露
+    - 法律要求维护机密性，即使是非法活动也不得披露
+    - 对于潜在/可疑违法活动（未有明确法律强制措施）
+    - 首先通知雇主，纠正错误
+    - 仍有疑问：咨询合规部门或法律顾问，根据法律去判定随后行动
+5. Electronic Information and Security
+6. Professional Conduct Investigation by CFA Institute
+    - 在法律允许范围内帮助协会收集客户信息，支持对于会员和候选人的调查
+7. Standard IV (A) Loyalty
+    - 为雇主谋取利益，而不是剥夺雇主的技能和能力，泄露机密信息对雇主造成伤害
+    - Employer Responsibility
+8. Independent Practice
+    - 要求会员放弃可能与雇主利益冲突，独立的且重合的竞争性业务
+    - 但不阻止会员在独立商业运作的同时被雇佣，但必须将详细信息通知给雇主
+    - 在获得雇主许可之前仍不得开展业务
+9. Leaving an Employer
+    - 离任生效前：
+    - 成员仍必须为雇主最大利益行事，不得卷入利益冲突，不得招揽客户
+    - 非实质性冲突允许注册新公司，但不开展业务
+    - 离任生效后：
+    - 在工作时获得的经验和技巧就不再具有机密性（客户姓名，客户的存在）
+    - 客户资源/书面/电子材料，作为雇主财产不得带出，除非得到雇主许可允许保留
+    - 此条例不禁止与前任公司客户联系，只要不违反“不竞争协议”。
+    - 仔细阅读不竞争条款内容：同行利益冲突，不等于禁止联系。
+    - Consideration 对价也是判断准则，雇佣并不一定代表金钱交换
+    - 当雇主没有做出明确判断或没有书面合同，成员有义务让雇主意识到雇主权力，并在此权力上做出适当行动
+    - 也存在某种特定协议，允许会员使用前任公司的客户信息，但不得提供给新雇主
+10. Use of Social Media
+    - 离任生效前:在雇主拥有专属信息资源的同时，会员进行个人判断的投资表述，就会被判定损害雇主利益
+    - 离任生效后：更新离任状态在社交媒体上，是变相保护雇主的利益
+11. Whistleblowing
+    - 保护资本市场的完整性和客户利益，是高于雇主和会员的利益。
+12. Standard IV (B) Additional Compensation Arrangement
+    - 除非获得有关各方的书面同意（任何可以记录的任何形式的交流：电子邮件等），
+    - 否则会员禁止接受从客户或间接第三方与雇主利益相抵触或导致利益冲突的礼物，利益，补偿，对价等（Consideration）
+    - 事后及时通报雇主
+13. Standard IV (C) Responsibilities of Supervisors
+    - 成员必须确保监督人员或被监督人员遵守适用的法律，章程，CFA标准章程
+    - 对其他人进行监督时，大部分候选人及成员违反监督责任的原因是：被监督者违反其他&lt;行为管理守则&gt;而导致的。
+14. System for Supervision
+    - 监督人员有必要建立适当程序并形成文件，之后努力对程序进行监视执行
+    - 对于可能或已经违反程序的员工，有必要限制或停止员工的活动
+15. Supervision Includes Detection
+    - 成员也应该行使合理的努力去发现违规行为
+    - 没有监督者的情况下，被监督者任意行动违反其他条例，也属于违反监督责任
 
-教宗在向第五届土著人民论坛全球会议的与会者[发表讲话](http://www.vatican.va/content/francesco/en/messages/pont-messages/2021/documents/papa-francesco_20210202_messaggio-forum-popoli-indigeni.html)时谴责 “千篇一律”的全球主义心态，这种心态将同一性置于多样性之上。
 
-教宗说：共融和团结并非源于同质性，”全球化不能意味着忽视多样性和强加一种新的殖民主义的统一性”。
+Author：搞笑排行榜
 
-他说，”挑战是在团结的基础上创造替代方案，使任何人都不会感到被忽视，但又不把自己的方向压倒性地强加于人，认为它是唯一正确的方向”。
+Original opinion article by Himalaya G-farm Vancouver
 
-他补充说，当多样性得到阐述并相互充实时，”各国人民之间的交流就会蓬勃发展，焕发出生命力”。
+2021/02/06
 
-
-
-> Pope Francis urged Christians to care for creation Wednesday, insisting that the abuse of ecosystems is a “grave sin” while lamenting the negative effects of global warming. [https://t.co/wSRGrMyt9K](https://t.co/wSRGrMyt9K)
-> — Breitbart News (@BreitbartNews) [September 16, 2020](https://twitter.com/BreitbartNews/status/1306250704168914946?ref_src=twsrc%5Etfw)
-
-
-
-*教皇方济各星期三敦促基督徒关心创造，坚持认为滥用生态系统是“严重的罪过”，同时对全球变暖的负面影响感到遗憾。*
-*教皇方济各星期三敦促基督徒关心创造，坚持认为滥用生态系统是**“**严重的罪过**”**，同时对全球变暖的负面影响感到遗憾。*
-
-正如他在其他场合所做的那样，教宗利用讲话的机会宣传他的 “整体生态学 “理念。
-
-他说，世界需要的是 “一种不把消费作为手段和目的的发展，而是一种真正关心环境、倾听、学习和尊严的发展。”
-
-“这就是整体生态学，社会正义与保护地球相结合。”他接着说。”只有在这种精神谦卑的状态下，我们才能看到饥饿被彻底打败，才能看到一个建立在持久价值基础上的社会，它不是一时的潮流和偏见的成果，而是正义和善良的成果。”
-
-教宗还表示，希望当代人留给未来的世界是一笔财富，而不是 “一堆废物和碎片”。
-
-他说：”让我们关注有益于我们所有人的事，而这恰恰是让我们在经过这个世界时，留下利他主义和慷慨，而不被尘世的无常所伤害，不被精神的空虚所荒芜，不被自我中心所麻痹，也不被个人主义所悲哀”。
-
-原文作者：[托马斯·威廉姆斯博士（Thomas D. Williams, Ph.D.）](https://www.breitbart.com/author/thomas-d-williams/)
-
-发表时间：2021年2月3日
-
-原文链接：[https://www.breitbart.com/politics/2021/02/03/pope-francis-warns-of-globalization-becoming-new-colonialism/](https://www.breitbart.com/politics/2021/02/03/pope-francis-warns-of-globalization-becoming-new-colonialism/)
-
-+1
++2

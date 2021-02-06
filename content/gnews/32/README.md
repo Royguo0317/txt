@@ -1,24 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【灭共头条】前美国安顾问博明揭露中共攻台野心 台湾民众应放弃侥幸心理
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/879803/)
+## “情况已不是令人担忧，而是令人恐惧”：巴黎公立医院集团就接下来的几周发出警报
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/882183/)
 
-编撰：MIYA【㊙️翻  Gnews原创组】
-责编：Ermat
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Picture1-33.jpg)图片来源：Twitter/fiu\_sipa
-位于佛罗里达的史蒂芬·格林国际与公共事务学院（The Steven J. Green School of International and Public Affairs）3日举办网络论坛，美国前副国家安全顾问博明（Matt Pottinger）在论坛上发言表示，台海愈演愈烈的紧张局势绝非偶然，攻占台湾是中共多年来处心积虑的欲望与野心。美国必须以实质行动坚决支持台湾，台湾民众一定不要抱有侥幸心理，而应与美国和各邻国紧密团结起来，积极做好备战工作。
+```
+BFM TV
+Margaux de Frouville, Florian Bouhot, 2021.02.05
+翻译整理：旦旦 发稿人: Ting Guo
+```
 
-博明认为，若台湾被中共吞并，而美国屈服这样的结果，将破坏美国与盟友间的信赖，也会严重影响美国科技竞争力及创新优势，冲击半导体产业和电子供应链。并可能引发中共对日本甚至印度的战争。
 
-他在发言中特别强调前国务卿蓬佩奥在卸任前公开的一份文件，该文件首次披露：中共军方背景的武汉病毒研究所是其掩盖病毒来源真相的关键所在，美国已有确凿情报证明，早在2019年秋季该研究所就出现了内部员工的疑似病毒感染。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Un-membre-du-personnel-medical-dans-lunite-de-soins-intensifs-dedie-aux-patients-atteints-du-Covid-19-a-lhopital-AP-HP-Louis-Mourier-de-Comombes-dans-le-nord-ouest-de-Paris-le-9-novembre-2020-478647.jpg)图为2020年11月9日，巴黎西北部Comombes的AP-HP Louis Mourier医院重症监护病房的医务人员，负责治疗Covid-19患者 -ALAIN JOCARD©2019法新社
 
-此外博明还提醒美国要对中共施压，对中共暗中操纵危害美国国家安全和破坏民主宪政的行径实施制裁，不要再落入北京设下的一轮又一轮的所谓战略谈判陷阱。
+因为英国变种毒株的感染力，医院床位急剧紧张。 来自巴黎公立医院集团 (AP-HP) 的紧急医疗负责人Bruno Riou发表讲话：“现在的情况已不再是令人担忧，而是令人恐惧。必须应对接下来非常困难的几周…接下来的一波疫情可能很严重。”
 
-曾担任路透社和华尔街日报的驻华记者，因报道中共腐败而遭到中共警察的侮辱和拘捕的博明，对共产党的专制有深刻的研究和理解。博明的发言揭露了中共急欲吞并台湾和垂涎亚洲的野心，提醒拜登政府台湾对美国的重要战略意义，必须停止对中共的“绥靖”政策。台湾人民一定要警醒团结起来，为中共随时可能发起的对台超限战争做好准备。
+目前，AP-HP已经收纳大约700名重症患者，比圣诞节期间增加了200多人。
 
-**参考链接：**
+#### 评论：
 
-[博明在2月3日的史蒂芬·格林国际与公共事务学院论坛视频](https://www.facebook.com/fiusipa/videos/vb.202158559200/164889258527409/?type=2&amp;theater)
+正如闫博士所说，留给人类的时间不多了。法国，德国依旧跪在CCP脚下，眼睁睁地看着人民因为CCP病毒遭难，医护人员不堪重负，经济倒退。
 
-+2
+请战友们保护好自己及家人，并坚持宣传病毒真相，让周围人看清CCP的丑恶嘴脸。要相信在民主国家，即使政府给CCP下跪，而当民意沸腾之时，我们还是能够改变现状的。请胸怀信仰，坚定地生活下去，CCP的日子已经不多了！
+
+**原文链接：**[https://www.bfmtv.com/sante/la-situation-n-est-plus-inquietante-mais-terrorisante-l-ap-hp-alerte-sur-les-semaines-a-venir\_AN-202102050275.html](https://www.bfmtv.com/sante/la-situation-n-est-plus-inquietante-mais-terrorisante-l-ap-hp-alerte-sur-les-semaines-a-venir_AN-202102050275.html)
+
++5
