@@ -1,10 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国报告:中俄伊卢沙土六国大肆在海外镇压运动 异议人士全球350万人遭到直接或间接攻击（玫瑰看新闻二月五日）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/883286/)
+## 国语【香港快讯】 2.06 港府一周封锁15个区 仅两宗确诊 邓炳强将警民关系差归咎于「假消息」
+` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/883890/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00001-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00002-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00003-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00004-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00005-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00006-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00007-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00008-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00009-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00010-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00011-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00012-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00013-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00014-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00015-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00016-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00017-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00018-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00019-scaled.jpg)
+制作团队：【喜马拉雅粤语组】阿恩
 
+审核：【喜马拉雅粤语组】卡西欧、penny 上传：文粤
+
+
+
+主要内容
+
+6日内两度收紧强制检测 今起全港住宅有1宗即全幢验
+
+政务司司长张建宗2月1日才宣布调低大厦强制检测的门槛，但卫生防护中心总监林文健今日（6日）公布，即日起全港住宅只要有新增一宗个案，就会纳入强制检测，即使属有源头或有关联个案亦要强检，较之前一宗无源头个案才要强检再收窄。
+
+【封区强检】马鞍山元朗逾千人检测再次「零确诊」
+
+港府已连续 7 日「突袭」封区强检，一周内封锁过15 个区，今年共封锁过 17 区，只有两宗确诊个案。昨晚港府宣布马鞍山恒安村恒江楼，以及元朗富来花园，区域内所有人都要接受强制检测。政府今早表示，分别有 457 名及 576 名居民接受检测，两地都没有发现确诊个案。
+
+支联会维园花档展示「平反六四」「同抗争」　食环铁马围封收回摊位
+
+维园年宵今日开幕，支联会昨晚先后接到两封食环署警告信，指其摊档内展示「与鲜花无关」物品 ，要求移除。支联会成员及义工今早到场抢先「开档」；至早上 8 时许，10 多名食环署人员到场，在花档外围架起铁马，围封摊位。支联会成员亦被围在铁马阵内，到九时半左右，支联会决定搬走所有物资撤走。有支持支联会多年的市民直指，自己见证着时代一直进步，政权却一直倒行逆施，连硕果仅存的自由空间亦逐渐被消失，令人痛心；亦有市民质疑食环署做法有违合约精神。
+
+【通识变国教】中学生组织旺角摆街站　反国教还魂
+
+教育局将「改革」高中通识科，将被易名的新科目着重中国国情，被质疑是国民教育借尸还魂。由多个中学生关注组组成的「香港中学生关注组联盟」今天下午在旺角闹市摆街站，促市民关注并响应网上联署；联盟成员指，目标是在月内收集十万联署，促政府撤回「改革」。联盟成员、中三学生妙丽说，盼透过街站令更多市民知道中学生处境，并希望尽力「为自己想要慨未来去争取」。
+
+有线记者采访示威被喷蓝色水剂　投诉员警课：调查后裁定「并无过错」
+
+2019 年 9 月 15 日，一名有线新闻记者于中环添华道采访反修例活动现场期间，被警方水炮车喷中蓝色催泪水剂，事后投诉警员滥用职权。事隔一年多，有线新闻引述投诉员警课回应，指当时环境混乱，使用催泪水剂驱散符合警方程式及法律条文，将指控列为「并无过错」。
+
+反送中警方的投诉仅4宗裁定言语或武力不当 市民斥警员犯案多过礼貌
+
+警方早前公布有45名警员犯法被捕，按年飙升21宗，警队内部的守法意识备受关注。早前曾一度口误称「作为员警更需要知法犯法」的警务处长邓炳强，今早罕见出席电台烽烟节目，即有市民反映警员犯案多、礼貌差等问题，直言员警「不像保护市民的模样」。邓回应时称，同意警员要有同理心，表现得更专业，但再次将警民关系差归咎于「假消息」。
+
+资料来源：苹果日报 立场新闻 网路图片
 
 0
