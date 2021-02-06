@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2/4/2021 蓬佩奥：希望本届政府如川普政府一般认真对待中共的种族灭绝
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/883920/)
+## 2/3/2021 北京空军大院着火，消防员不让进，禁止围观民众录像
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/884382/)
 
 By： 【秘密翻译组 G-Translators】
 
