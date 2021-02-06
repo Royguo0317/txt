@@ -1,29 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 鲁·道布斯被福克斯封杀 川普发声力挺
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/885088/)
+## 美国务卿声明要追究中共破坏国际秩序的责任
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/885151/)
 
-俄罗斯莫斯科喀秋莎农场 文强
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
 编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-06_21-10-09.jpg)[rightedition.com](https://rightedition.com/2018/02/22/lou-dobbs-breaks-silence-fans-express-worry-absence-fox-business-news/)
-据《洛杉矶时报》2月5日报道，福克斯（FOXNEWS）突然取消著名保守派主持人鲁·道布斯（Lou Dobbs）主持的“今晚鲁·道布斯”节目。鲁·道布斯是全美新闻界最资深的主持人之一，也是川普总统的忠实支持者，2020年总统选举期间多次报道大选舞弊丑闻。川普总统获悉后，发声明“我是他的粉丝”力挺道布斯。
+![]()![](https://cdn.discordapp.com/attachments/799010586356351066/807687621244616734/u.JPG)in.news.yahoo.com
+02月06日，美国国务卿安东尼·布林肯（Anthony Blinken）在与中共外交事务的国务委员杨洁篪的电话交谈中表示，美国将试图追究中共违反国际准则的责任。美国国务院网站上刊登了此次电联声明。
 
-道布斯主持的”今晚鲁·道布斯”是全美收视率最高的商业新闻类节目，平均每晚有大约30万的观众。据福克斯新闻代表证实，道布斯的节目周五（2月5日）最后一次播出。从下周开始，该节目将被改为 “今晚福克斯商业”，轮流担任替补的主持人为杰基·德安格利斯（Jackie DeAngelis）和大卫·阿斯曼（David Asman）。
+声明指出，“美国将与盟国伙伴合作一起捍卫我们共同的价值观和利益，追究中共破坏了基于规则的国际秩序的责任”。
 
-现年75岁的道布斯目前仍与福克斯签有合约，但很可能不会再出现在该公司的直播节目中，他也许偶尔会在福克斯新闻频道担任评论员。
+布林肯特别指出，中共的行动威胁到了印太地区的稳定。他还指出，美国将继续在新疆、西藏和香港坚持民主价值。此外，国务卿还要求中共与国际社会一起谴责缅甸的军事政变。
 
-福克斯代表在一份声明中说，“正如我们在10月份所说，福克斯新闻会定期考虑节目变化，并计划在大选后适当推出新的节目，包括在福克斯商业频道”，他继续说，“这是计划变化的一部分。下午5点档的全新节目将很快宣布”。
+此前，布林肯曾表示，中美关系对美国来说是最重要的，它也变得越来越敌对。与此同时，华盛顿和北京已经成功地在某些方面建立了伙伴关系。
 
-据悉，福克斯自秋季以来一直在重新评估旗下福克斯新闻网和福克斯商业网的节目，并进行了一些节目和主持人变更，以迎接新总统乔‧拜登（Joe Biden）入主白宫。
+评论：美国务卿布林肯在此次电话会谈中重点强调了，将协同盟国一起追究中共违反国际准则的责任及继续在新疆、西藏和香港坚持民主价值。通过以上表态，表明美国新一届拜登政府一直在行动，极有可能已获得确切情报，其中最重要的CCP病毒来源真相和中共通过病毒控制世界的计划等一切都已被美国和盟国确切掌握。WHO在中共的“虚伪调查”，进一步激发世界正义力量将群起而攻之。
 
-川普总统在得知这一消息后不久，从前总统办公室发出官方声明， “无论现在还是过去，鲁‧道布斯都很棒。没有人比道布斯更爱美国。他有很多忠实的粉丝，这群粉丝中也包括我，我们将密切关注他未来的情况”。
+声明中并未提及台湾，但最近全球各国的军事力量正在向南海集结，以防中共向台湾发起攻击。相信美国、北约及盟国将会捍卫正义，消灭中共这个邪恶组织的行动势在必得。
 
 参考链接：
 
-[https://www.latimes.com/entertainment-arts/business/story/2021-02-05/fox-news-cancels-lou-dobbs-tonight](https://www.latimes.com/entertainment-arts/business/story/2021-02-05/fox-news-cancels-lou-dobbs-tonight)
-
-[https://www.independent.co.uk/news/world/americas/us-politics/fox-news-cancels-lou-dobbs-trump-b1798521.html](https://www.independent.co.uk/news/world/americas/us-politics/fox-news-cancels-lou-dobbs-trump-b1798521.html)
+[https://www.rbc.ru/rbcfreenews/601e109a9a7947446694a02b](https://www.rbc.ru/rbcfreenews/601e109a9a7947446694a02b)
 
 0
