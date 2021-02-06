@@ -1,44 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫确认亨特·拜登将从中共国私募基金公司撤资
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/882199/)
+## 香草播报：【军事快讯】拜登政府无限期暂停对沙特的导弹销售
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/882317/)
 
-- 编辑：Victor Torres
+作者：纽约香草山写作组 Wilson
+![]()![](https://gnews.org/wp-content/uploads/2021/02/GNEW-GTV-MOS-LOGO-2.jpg)
+【国防新闻】2月5日报道，拜登政府宣布无限期暂停对沙特阿拉伯两宗价值高达7.6亿美元的精确制导导弹的销售，旨在遏制也门暴力。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Screenshot-2021-02-05-175729.jpg)
+*图片来源：欧洲通讯社*
+
+近日总统拜登在国务院发表演讲时说：“我们正在结束美国对也门战争中进攻行动的所有支持，包括相关的武器销售”。这两项交易包括2.9亿美元3000枚波音制造的GBU-39小直径导弹，及雷神制造的4.78亿美元7000枚智能导弹。
+
+雷神首席执行官格雷格·海耶斯在1月26日的一次投资者电话中预示了这一举动。他说，该公司正在支持向一名未透露姓名的中东客户出售“进攻性武器系统”，因为它不相信新政府会颁发许可证。
+
+国防新闻指出，自2015年以来，由逊尼派沙特和阿联酋在也门组成并领导了一个国家联盟，反对由伊朗什叶派政府支持的叛军胡塞武装。胡塞武装与也门前总统阿里·阿卜杜拉·萨利赫结盟，于2014年9月占领了也门首都萨那。
+
+据人权观察组织称，也门的武装冲突导致了世界上最大的人道主义危机。自2015年以来，已有超过17,500名平民伤亡，在空袭中丧生的所有平民中，有四分之一是妇女和儿童。也门有2000多万人正在经历粮食不安全；其中1000万人面临饥荒的风险。
+
+伊朗和中共一样，被前川普政府后期的高压政策打得抱头鼠窜，然而在新拜登政府的这种截然不同的中东政策下，仅半个月，这两个邪恶轴心国不仅重新抬头，而且已经在国际舞台上制造了诸多令国际社会深感不安的恶劣事端。
+
+信息来源：
+
+[https://www.defensenews.com/global/mideast-africa/2021/02/05/boeing-raytheon-missile-sales-to-saudi-arabia-canceled-by-biden-administration/](https://www.defensenews.com/global/mideast-africa/2021/02/05/boeing-raytheon-missile-sales-to-saudi-arabia-canceled-by-biden-administration/)
+
+编辑/校对/发稿：宁静致远
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年2月5日电/西喜社——**白宫新闻秘书詹·普萨基（Jen Psaki）周五证实，亨特·拜登正在剥离其在中共国私募股权公司BHR Partners的股份所有权。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-此前，《每日呼声》新闻基金会在1月份的报道中称，尽管美国总统乔·拜登在竞选期间多次承诺，如果他赢得选举，他的家族中不会有人从事对外商业活动，但亨特·拜登仍继续持有该公司10%的股份。
 
-《每日邮报》和《福克斯新闻》都在12月底报道称，亨特·拜登正在脱手所持公司股份。这两家媒体都援引了一位了解亨特·拜登商业交易的未具名消息人士的说法。
 
-不过，根据启信宝和百度这两家基于中共国国家信用信息公示系统提供中共国企业商业记录的独立服务机构的数据，截至上周五，亨特·拜登继续通过其公司Skaneateles LLC拥有BHR 10%的股份。
-
-“他一直在努力解除他的投资，但我肯定会向你指出—他是一个私人公民—我会向你指出他或他的律师在外面，”Psaki在周五的新闻发布会上说。
-
-目前还不清楚亨特·拜登是否期望从他在BHR的约42万美元投资中获得回报。亨特·拜登的律师乔治·梅斯(George Mesires)没有立即回复置评请求。
-
-BHR管理着相当于21亿美元的资产，由中共国国有控股的中国银行共同拥有。
-
-乔治·梅斯在2019年10月的一份声明中表示，亨特·拜登在BHR的投资没有得到任何回报。
-
-然而，位于亨特·拜登据称的笔记本电脑副本上的电子邮件显示，他的商业伙伴埃里克·史威林(Eric Schwerin)多次告诉他，他可以期待从2019年开始从BHR获得大量付款。
-
-埃里克·史威林在2018年11月的一封电子邮件中告诉亨特·拜登：”由于CATL的退出，BHR将在2019年有重大的分配。”。
-
-在接下来的一个月，即2018年12月的另一封电子邮件中，埃里克·史威林告诉亨特·拜登，他可以期待BHR在 “未来几年内 “为他创造收入。
-
-乔·拜登在2019年10月承诺，如果他成为总统，他的家人中没有人会为外国公司工作。
-
-“我的家人不会在白宫有办公室，不会像内阁成员一样参加会议，事实上，不会与任何与外国公司或外国有关的人有任何业务关系，”乔·拜登在爱荷华州告诉记者。
-
-拜登在赢得大选后改变了他的承诺，他在12月说，他的家族中没有人会 “参与任何与总统职位和政府有冲突或看起来有冲突的业务、企业。”
-
-**新闻来源：**[https://dailycaller.com/2021/02/05/white-house-confirms-that-hunter-biden-will-divest-from-chinese-private-equity-firm/](https://dailycaller.com/2021/02/05/white-house-confirms-that-hunter-biden-will-divest-from-chinese-private-equity-firm/)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
-
-+3
+0
