@@ -1,72 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新国安法加速人才外流，2020年近1.1万香港人迁台
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/885040/)
+## 180多个人权组织和活动人士呼吁抵制北京2022年冬奥会
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/885077/)
 
-*新闻来源：HKFP《香港自由新闻》| 作者：AFP 法新社| 发布时间：2021年2月3日*
+*新闻来源：HKFP《香港自由新闻》| 作者：Kelly Ho| 发布时间：2021年2月4日*
 
-*翻译/简评：helloworld |校对：SilverSpurs7 |审核：万人往 |Page：小雨*
+*翻译/简评：helloworld |校对/审核：万人往 |Page：小雨*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/U5R4eXGDJU3VK/images/4989abce-bacb-4054-9500-02f0a978f547.jpg?asset_id=3ac15b76-277a-4615-9443-557369350892&amp;img_etag=%222825fae7943755ff5f88864bf38b7e8b%22&amp;size=2560)](https://spark.adobe.com/page/U5R4eXGDJU3VK/images/4989abce-bacb-4054-9500-02f0a978f547.jpg?asset_id=3ac15b76-277a-4615-9443-557369350892&amp;img_etag=%222825fae7943755ff5f88864bf38b7e8b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/LLK4Bc72YvXtr/images/3a13506c-7392-4263-b6fc-8191697f1975.jpg?asset_id=c264531f-c2ef-4976-b3c5-324e558a1b48&amp;img_etag=%22af07ebdb956e850672f245bb7134dc2f%22&amp;size=2560)](https://spark.adobe.com/page/LLK4Bc72YvXtr/images/3a13506c-7392-4263-b6fc-8191697f1975.jpg?asset_id=c264531f-c2ef-4976-b3c5-324e558a1b48&amp;img_etag=%22af07ebdb956e850672f245bb7134dc2f%22&amp;size=1024)
 
 **简评：**
 
-在中共用国安法的铁腕凌虐香港之时，大量的香港手足选择离开香港，前往台湾等地。
+中共执政期间迫害了大量的异议人士以及少数民族，在大陆施行商鞅五术，用铁腕牢牢控制内陆，残害中华同胞。其结果导致中共国形成逆向淘汰的畸形制度，经济发展主要依赖海外投资。而中共用利益与假象笼络各国，利用外国对利益的驱使，让其为中共侵犯人权的行为背书。而这种行为正在激起越来越大的民意指责和抵制呼声。试问一个漠视人民生命财产的邪恶政权，怎么配举办象征着世界和平、友谊和团结的奥运会？
 
-共产党一直叫嚣着留岛不留人，但其实，勇敢智慧的香港人，以及他们的智慧和财富，才是共产党的真正目标。在西方已经意识到香港现状的当下，香港人的离去，将让这座民主之光已经暗淡的城市彻底失去最后的光辉。同时，这也会让共匪吸血香港计划落空，以及让先前选择绥靖妥协的香港资本家和背后的西方势力，感受共匪残忍，从而逼迫他们站队。
-
-希望香港手足能在共匪疯狂之际暂避锋芒，保留实力，爆料革命将尽能力团结和争取西方力量，为香港手足报仇！
+在以往中美蜜月期，中共一直有恃无恐，甚至做出了“64”大屠杀和对新疆的种族灭绝。而伴随中美关系转向、中共外交政策不断激进，因疫情、科技盗窃等问题，欧美各国以及周边国家逐渐感受到威胁之时，各国政府最终会意识到与中共价值观根本区别，以及中共对于自由世界和制度的发自内心的敌视，是造成现今世界乱象的根本原因。病毒、经济、科技、人权方面，中共造成的威胁，都会成为未来自由世界反击的抓手。
 
 **原文翻译：**
 
-# **2020年，近1.1万名香港人移居台湾，因为国安法加快了移民的步伐**
+## **180多个人权组织和活动人士呼吁抵制北京2022年冬奥会，理由是打压异议人士**
 
-**此前的记录是2014年在香港金融中心的泛民主运动即“雨伞运动”期间的7,506人。**
+**关注香港、西藏、新疆和内蒙人权状况的活动人士呼吁世界各国领导人，避免参加这项体育赛事。**
 
-在北京当局对香港全面实施国安法后，2020年有将近1.1万香港人移居台湾，这几乎是一年前的两倍。
+超过180个人权团体和活动人士呼吁世界各国政府抵制即将在北京举行的2022年冬奥会，理由是中共国当局“骇人听闻的权利侵犯和对异议人士的镇压”。
 
-长期以来，由于香港的疯狂节奏和高昂租金，民主台湾一直吸引着香港人将其作为替代选择。
+在周三发表的一封联名信中，关注香港、西藏、新疆和内蒙人权状况的活动人士，在距离其开幕尚有一年时间的现在，呼吁世界各国领导人回避这项盛大的体育赛事。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/U5R4eXGDJU3VK/images/a2fb5019-4b46-44a2-aabc-7060741fde3d.jpg?asset_id=994f9ea2-9791-4664-a285-c1438e9a84a6&amp;img_etag=%2294f78385d3f4642541a8848a91cc776e%22&amp;size=2560)](https://spark.adobe.com/page/U5R4eXGDJU3VK/images/a2fb5019-4b46-44a2-aabc-7060741fde3d.jpg?asset_id=994f9ea2-9791-4664-a285-c1438e9a84a6&amp;img_etag=%2294f78385d3f4642541a8848a91cc776e%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/LLK4Bc72YvXtr/images/a213ba61-5863-4130-8baf-036e2c421f22.jpg?asset_id=be358025-7fe8-43ff-a85c-2a9e47937e09&amp;img_etag=%22ccda660627e631684a4904b9a0f9e703%22&amp;size=2560)](https://spark.adobe.com/page/LLK4Bc72YvXtr/images/a213ba61-5863-4130-8baf-036e2c421f22.jpg?asset_id=be358025-7fe8-43ff-a85c-2a9e47937e09&amp;img_etag=%22ccda660627e631684a4904b9a0f9e703%22&amp;size=1024)
 
-照片：Uming Photography，来源：Flickr
+2022年北京冬奥会和冬季残奥会的官方会徽 图片：国际奥委会
 
-然而，新国安法加速了香港人的外流。根据台湾国家移民局的数据，2019年，获得短期居留权的香港人，其人数从5858人飙升至10813人。
+人权组织和活动人士警告说，参加奥运会可能会鼓励（中共）进一步的虐待行为。他们认为，2008年在北京举行的夏季奥运会，使北京“有恃无恐”地加强了对西藏和维吾尔少数民族社区的控制。信中还提到，香港的年轻人“仅仅因为倡导民主而遭到数千人围捕”。
 
-而之前的2014年，在这个金融中心爆发寻求民主的“雨伞运动”时，有7506人获得了台湾短期居留权。
+信中写道：“他们必须抵制奥运会，否则中共国骇人听闻的人权侵犯和对不同政见者的镇压将变得更加肆无忌惮。”
 
-台湾《自由时报》援引未具名消息人士的话说，如果不是因冠状病毒而采取的边境限制措施，入境人数将会更高。
+活动人士说，国际奥委会(IOC)未能表达对中共国人权侵犯的担忧，并忽略了该地区民主活动人士遭受的“折磨”。他们敦促各国政府表现出“政治意愿”，对中共国“应受谴责的人权侵犯行为”进行反击。
 
-因担心大陆专制地区难民涌入的可能性，台湾没有庇护或难民法，也不接受难民申请。
+世界维吾尔代表大会宣传经理姆雷泰•阿金(Zumretay Arkin)说：“授予中共国的2022年冬季奥运会，是打在每一个维吾尔族、藏族、内蒙古人、香港人、台湾人和中国民主活动人士脸上的一记耳光。”
 
-不过，香港人可通过其他渠道（包括投资签证），申请岛内的居住资格。
+[!\[\]()!\[\](https://spark.adobe.com/page/LLK4Bc72YvXtr/images/f3e08678-6897-48bb-a4d4-0da57b6fe8ee.jpg?asset_id=3a12d624-8230-4b02-bf00-26872236606a&amp;img_etag=%225276a0d4097eb1943e8c594a72586417%22&amp;size=2560)](https://spark.adobe.com/page/LLK4Bc72YvXtr/images/f3e08678-6897-48bb-a4d4-0da57b6fe8ee.jpg?asset_id=3a12d624-8230-4b02-bf00-26872236606a&amp;img_etag=%225276a0d4097eb1943e8c594a72586417%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/U5R4eXGDJU3VK/images/8689a83f-2e82-4c3d-8261-b40f370a3a25.jpg?asset_id=5dd6281b-de86-4814-b738-6f83f2b06e46&amp;img_etag=%2274cde883cbc34fed8546f8fba5463661%22&amp;size=2560)](https://spark.adobe.com/page/U5R4eXGDJU3VK/images/8689a83f-2e82-4c3d-8261-b40f370a3a25.jpg?asset_id=5dd6281b-de86-4814-b738-6f83f2b06e46&amp;img_etag=%2274cde883cbc34fed8546f8fba5463661%22&amp;size=1024)
+香港示威者抗议中共国，指控其侵犯人权。图片：Studio Incendo
 
-去年1月11日选举日，支持香港民主的示威者在台北集会。（图：Viola Kam /联合社会出版社）
+另一位活动人士，“自由西藏学生运动”组织的多吉才旦表示，各国应维护民主、自由和人权的价值观，放弃参加奥运会。“在一个实施种族灭绝、种族清洗和占领的国家举办奥运会，就等于支持了这些罪行。”
 
-蔡英文总统的政府誓言支持香港的民主运动，并在去年成立了一个新的办公室，以处理寻求留岛的香港人。
+国际奥委会去年12月宣布，它将在自己的行动中履行其人权责任，并表示他们已经增加了与人权团体和专家的接触。
 
-在香港地方当局增加了基于《国家安全法》的起诉后，越来越多的香港人（包括一些著名的活动人士）选择流亡海外。
+国际奥委会主席托马斯•巴赫在2020年12月2日的一份声明中说：“国际奥委会仍然致力于继续并加强职责范围内的人权相关工作。”
 
-八月下旬，12名活动人士在试图乘船逃往台湾时，被中共国海岸警卫队逮捕。
-
-这艘船上的大多数人被指控涉嫌与去年在香港发生的大规模、经常带有暴力性质的民主抗议活动有关的罪行。
-
-自1989年天安门镇压以来，在一些帮助人们逃离北京的活动人士网络的帮助下，加拿大成为了一个受欢迎的逃亡目的地。
-
-英国还扩展了近300万具有英国国民（海外）护照资格的香港人的居住权。这些人是在1997年香港殖民地移交之前出生的。
-
-🔗[原文链接](https://hongkongfp.com/2021/02/03/nearly-11000-hongkongers-moved-to-taiwan-in-2020-as-security-law-accelerates-exodus/)
+🔗[原文链接](https://hongkongfp.com/2021/02/04/over-180-rights-groups-and-activists-call-for-boycott-of-beijing-2022-winter-olympics-citing-crackdown-on-dissent/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 - [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
-编辑：[【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/U5R4eXGDJU3VK/)
+编辑：[【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/LLK4Bc72YvXtr/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/U5R4eXGDJU3VK/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/U5R4eXGDJU3VK/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/LLK4Bc72YvXtr/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/LLK4Bc72YvXtr/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
-0
++1
