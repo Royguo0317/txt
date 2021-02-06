@@ -1,33 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 扼杀民主思想：中共对香港儿童进行洗脑教育
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/884992/)
+## 香草播报：【军事快讯】中共国海警船在海警法施行后首次进入日本声称拥有主权的尖阁领海
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/884967/)
 
-俄罗斯莫斯科喀秋莎农场 文强
+作者：纽约香草山写作组 Wilson
+![]()![](https://gnews.org/wp-content/uploads/2021/02/GNEW-GTV-MOS-LOGO-2.jpg)
+【共同社2月6日报道】日本海上保安总部6日表示，今晨4点45分左右，2艘中共国海警局船只驶入了尖阁诸岛（钓鱼岛）附近的日本领海。这是中共国《海警法》于2月1日生效后，中共国海警船首次进入尖阁附近领海。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Screenshot-2021-02-06-115922.jpg)
+*图片来源：自由亚洲电台*
 
-编辑上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-06_20-20-34.jpg)[cbc.ca](https://www.cbc.ca/news/world/hong-kong-teaches-children-about-subversion-1.5902310)
-周四（2月4日），香港教育局发出通告，为维护中共国家主权、安全和发展利益，要向全港学校推广国家安全教育，并要求学校在两个学年内全面落实国安教育相关内容。
+日本政府于当天向中共国政府抗议，称这是无法允许的行为。当天上午，日本政府把首相官邸的情报联络室升级为官邸对策室，并且和海上保安厅均加强了警戒。
 
-教育局发言人说，维护中共国家主权、安全和发展利益，是香港特别行政区的宪制责任，亦是所有香港居民（包括学校教职员和学生）的共同义务。
+据海保总部透露，海警船把船头朝向2艘日本渔船，做出了试图接近的动作，另有2艘中共国海警船在毗连区航行，其中1艘搭载了类似机关炮的装置。以上事件发生在日中两国3日“海洋事务高级别磋商”后仅3天，磋商会上日方向中方传达了关切，称“不能以违反国际法的形式适用(海警法)”。
 
-原文指出：“学校应帮助学生正确地认识《香港国安法》及国家安全所涵盖的重要理念，让他们了解法治精神，从而加强他们国家安全的观念和守法意识，培养他们成为守法的良好公民。”为支援学校推广国家安全教育，教育局持续更新或增加相关教学资源，初中阶段在现有宪法与《基本法》的基础上，加入三小时的国家安全方面教育内容。小学方面，制作了“国家安全•你我要知”有声绘本。教育局将继续适时向学校发布新增的学与教资源，以此对在港的青少年进行强制洗脑教育。
+现在回头再看中共在拜登政府上任后第二天出台的《海警法》，可谓老谋深算。首先，中共看清了拜登政府必定会对之采取绥靖政策；其次，在军事实力上，印度、日本和台湾还不能和中共正面抗衡。因此，中共似乎并不忌惮当前美国主导的亚太战略及“亚洲北约”。
 
-就在本通告发出的前几日，中共发表了“全面加强新时代少先队工作的意见”，其中提到要通过加强与港澳台少年儿童组织、机构的交流合作，增强港澳台少年儿童的国家认同、民族认同和文化认同。中共对思想意识控制的魔手已经伸向儿童，从小开始灌输“法西斯集权”洗脑，试图在根本上扼杀民主法治思想的萌芽。
+中共的险恶在于，见缝插针地利用拜登政府绥靖政策带来的安全期，频繁制造区域紧张局势，乃至发出战争威胁，从而迫使美国在当前由于中共病毒造成的经济崩溃和总统大选带来的严重社会分裂而自顾不暇的情况下，进入了中共设计的谈判陷阱。
 
-反送中运动以来，中共就将学校视为香港的头号不稳定因素。香港学校课程加入国安教育，本质是从小开始灌输红色意识形态。这不仅是中共最新少先队工作意见在港澳的具体表现，也是中共镇压异议的最新举措，加强对香港人政治倾向控制的同时，更是将洗脑教育与政治审查全面引入香港校园。妄图对少年儿童灌输邪恶的马克思共产主义的理论，确保红色政权代代相传。
+从昨天美国务卿布林肯和中共外交委员会主任杨洁篪的通话中可以看出，拜登政府与中共之间正在达成越来越多的“共识”。
 
-值得一提的是，去年中共香港领导人林郑月娥（Carrie Lam）将通识教育课程归咎于助长了2019年的香港民主抗议活动，并发誓要彻底改革教育体系。
+信息来源：
 
-资料来源：
+[https://china.kyodonews.net/news/2021/02/0adad3c528a7-2.html](https://china.kyodonews.net/news/2021/02/0adad3c528a7-2.html)
 
-[https://www.theguardian.com/world/2021/feb/05/lets-learn-about-national-security-hong-kong-releases-video-for-young-children](https://www.theguardian.com/world/2021/feb/05/lets-learn-about-national-security-hong-kong-releases-video-for-young-children)
+编辑/校对/发稿：宁静致远
 
-[教育局促學校防範違《國安法》教學 跟進及懲處違規個案 (yahoo.com)](https://hk.news.yahoo.com/%E6%95%99%E8%82%B2%E5%B1%80%E4%BF%83%E5%AD%B8%E6%A0%A1%E9%98%B2%E7%AF%84%E9%81%95-%E5%9C%8B%E5%AE%89%E6%B3%95-%E6%95%99%E5%AD%B8-%E8%B7%9F%E9%80%B2%E5%8F%8A%E6%87%B2%E8%99%95%E9%81%95%E8%A6%8F%E5%80%8B%E6%A1%88-095400232.html?guccounter=1)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-[https://m.secretchina.com/news/gb/2021/02/05/961547.html](https://m.secretchina.com/news/gb/2021/02/05/961547.html)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-[https://sc.isd.gov.hk/TuniS/www.info.gov.hk/gia/general/202102/05/P2021020500457.htm](https://sc.isd.gov.hk/TuniS/www.info.gov.hk/gia/general/202102/05/P2021020500457.htm)
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-0
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
++1
