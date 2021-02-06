@@ -1,28 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “情况已不是令人担忧，而是令人恐惧”：巴黎公立医院集团就接下来的几周发出警报
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/882183/)
+## 【灭共头条】拜登对华政策团队的内部分歧与中共的蠢蠢欲动
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/882281/)
 
-```
-BFM TV
-Margaux de Frouville, Florian Bouhot, 2021.02.05
-翻译整理：旦旦 发稿人: Ting Guo
-```
+编撰：MIYA【㊙️翻  Gnews原创组】 
+责编：Ermat
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Picture1-35.jpg)图片来源：自由亚洲电台
+《华尔街日报》5日发文评论称，拜登的中国政策团队中充满了竞争对手。他们之间虽长期联系，但在气候、人权和贸易政策上却有各自不同的目标。他们之间如何合作，决定了拜登政府的中国政策将是统一的，还是充满分歧、容易被利用的。
 
+例如，同为白宫国家安全会议成员，现推行国际气候的特使克里（John Kerry）和被称为“亚洲沙皇”的印太事务协调官坎贝尔（Kurt Campbell），两人在对中共问题上奉行的路线完全不一致。克里主张合作，而坎贝尔则想要大力反击。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Un-membre-du-personnel-medical-dans-lunite-de-soins-intensifs-dedie-aux-patients-atteints-du-Covid-19-a-lhopital-AP-HP-Louis-Mourier-de-Comombes-dans-le-nord-ouest-de-Paris-le-9-novembre-2020-478647.jpg)图为2020年11月9日，巴黎西北部Comombes的AP-HP Louis Mourier医院重症监护病房的医务人员，负责治疗Covid-19患者 -ALAIN JOCARD©2019法新社
+文中称，美国的战略仍在制定梳理中，不过重点是放在两个方面：一是在国内大力投资先进技术，二是团结民主盟友，以建立对抗中共的“统一战线”。这表现在拜登短期内仍未与习近平通话，并透过白宫发言人对外声称，美国首先要确保与盟友保持步调一致，其次才会与中方进行接触。不过，盟友们的预期是，拜登团队中的裂痕会在人权或产业政策等问题上凸显出来，这已是多年来美国政治圈的常态。
 
-因为英国变种毒株的感染力，医院床位急剧紧张。 来自巴黎公立医院集团 (AP-HP) 的紧急医疗负责人Bruno Riou发表讲话：“现在的情况已不再是令人担忧，而是令人恐惧。必须应对接下来非常困难的几周…接下来的一波疫情可能很严重。”
+《华尔街日报》表示，现如今关注的焦点主要是克里和坎贝尔能否进行团队合作，他们谁将尝试主导美国的对中关系。现年77岁的前国务卿克里直接向拜登汇报工作，他曾与拜登在参院外交关系委员会共事24年。2014年时任国务卿的克里曾在波士顿会见经验丰富的中共外交办主任杨洁篪，为奥巴马当时 11 月的访华做准备。曾与克里共事过的人说，他的态度是 “上飞机、马上与中共达成最终协议”。
 
-目前，AP-HP已经收纳大约700名重症患者，比圣诞节期间增加了200多人。
+与克里当时情景不同的是，如今的拜登已被身后支持的力量推上总统位置。表面上中共的阶段性目标也已达到，接下来各方能否继续保持一致抑或出现分歧？身在明处的拜登是久经沙场的政客，试图以不变应万变。而中共最近在外交、军事和疫情等方面频繁的蠢蠢欲动究竟是为自己争取到更多的利益还是极端的疯狂而导致其加速灭亡？让我们拭目以待！
 
-#### 评论：
+**参考链接：**
 
-正如闫博士所说，留给人类的时间不多了。法国，德国依旧跪在CCP脚下，眼睁睁地看着人民因为CCP病毒遭难，医护人员不堪重负，经济倒退。
+[拜登中国政策团队成形 班底成员却各有诉求](https://cn.wsj.com/articles/%E6%8B%9C%E7%99%BB%E4%B8%AD%E5%9B%BD%E6%94%BF%E7%AD%96%E5%9B%A2%E9%98%9F%E6%88%90%E5%BD%A2%EF%BC%8C%E7%8F%AD%E5%BA%95%E6%88%90%E5%91%98%E5%8D%B4%E5%90%84%E6%9C%89%E8%AF%89%E6%B1%82-11612419616)
 
-请战友们保护好自己及家人，并坚持宣传病毒真相，让周围人看清CCP的丑恶嘴脸。要相信在民主国家，即使政府给CCP下跪，而当民意沸腾之时，我们还是能够改变现状的。请胸怀信仰，坚定地生活下去，CCP的日子已经不多了！
-
-**原文链接：**[https://www.bfmtv.com/sante/la-situation-n-est-plus-inquietante-mais-terrorisante-l-ap-hp-alerte-sur-les-semaines-a-venir\_AN-202102050275.html](https://www.bfmtv.com/sante/la-situation-n-est-plus-inquietante-mais-terrorisante-l-ap-hp-alerte-sur-les-semaines-a-venir_AN-202102050275.html)
-
-+5
++3
