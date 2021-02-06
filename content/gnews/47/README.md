@@ -1,20 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年2月6日中共病毒疫情要闻快报
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/883258/)
+## 美国报告:中俄伊卢沙土六国大肆在海外镇压运动 异议人士全球350万人遭到直接或间接攻击（玫瑰看新闻二月五日）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/883286/)
 
-**重点内容：**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00001-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00002-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00003-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00004-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00005-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00006-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00007-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00008-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00009-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00010-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00011-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00012-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00013-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00014-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00015-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00016-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00017-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00018-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00019-scaled.jpg)
 
-- 世卫专家进入武汉P4实验室三小时得出结论；
-- 拜登称中国是对手， 但仍可合作 ；
-- 英国吊销中国环球电视网广播执照；
-- 春节返乡高峰各地核酸检测点人员爆满；
-- 香港立法会一言堂！恶法井喷！
-
-
-
-
-**By：【秘翻组-上天造灭疫组】**
 
 0

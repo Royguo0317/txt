@@ -1,29 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德时评简讯（视频版）：WHO调查组在武汉研究三小时考察结束(2021.2.3早间 路德社简讯之路安墨谈）
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/884317/)
+## 西班牙决定不给55岁以上的人注射阿斯利康疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/884582/)
 
-《路德社》出品
-
-以下视频是详细内容：
-
-内容摘要：
-
-一、美智库兰德公司出报告建议政府在台湾问题上闭嘴
-
-二、中共宣传兰德报告实为台湾传递信息
-
-三、WHO调查组在武汉研究三小时考察结束
+- 编辑：Victor Torres
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-翻译：路德社翻译组
+**西班牙2021年2月6日电/西喜社——**西班牙卫生部决定不给55岁以上的人注射阿斯利康-牛津大学疫苗。
 
-制作：路德社简讯视频组
+该部周五表示，首批疫苗将于本周末运抵西班牙，将用于非一线的医护人员和助理。
 
-审核校对：玫瑰天空
+其他几个欧洲国家已经对该疫苗进行了年龄限制，因为缺乏有关该疫苗对老年群体疗效的数据。
 
-上传排版：糊糊文婴
+西班牙目前正在为养老院的居民和工作人员使用辉瑞和Moderna疫苗。迄今为止，西班牙已经接种了198万剂疫苗，有68万多人接种了规定的两剂疫苗。
+
+**新闻来源：**[https://apnews.com/article/germany-india-coronavirus-pandemic-coronavirus-vaccine-00f4ee7af09143a881a09a44418929d5](https://apnews.com/article/germany-india-coronavirus-pandemic-coronavirus-vaccine-00f4ee7af09143a881a09a44418929d5)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/62803f93-eaeb-4c58-90db-aedefb318bbb.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
 0
