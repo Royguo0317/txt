@@ -1,10 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国报告:中俄伊卢沙土六国大肆在海外镇压运动 异议人士全球350万人遭到直接或间接攻击（玫瑰看新闻二月五日）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/883286/)
+## 圭亚那取消贸易办事处，台湾谴责邪恶中共
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/883443/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00001-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00002-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00003-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00004-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00005-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00006-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00007-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00008-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00009-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00010-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00011-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00012-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00013-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00014-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00015-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00016-3-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00017-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00018-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00019-scaled.jpg)
+翻译：康州盘古农场 – 烟波浩淼
+校对：康州盘古农场 – TrueSky
+编辑：康州盘古农场 – Antsee-GTV
 
+![Taiwan]()![Taiwan](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-06-at-20.37.52.png)
+
+*台北外交部在一份声明中说：“我们对中共国政府在国际领域再次欺凌和压制台湾表示最强烈的不满和谴责。”*
+
+台湾周五指责中共向圭亚那施压，要求圭亚那终止与台湾建立贸易办事处的协议，并称这突显了中共国政府的“邪恶本性”。
+
+在台湾官员宣布设立该办事处后不到一天，圭亚那外交部表示，该办事处已经取消，这个南美国家仍然致力于与中共国建交。
+
+台北外交部发表声明：“我们对中共国政府再次在国际上欺凌和压制台湾表示最强烈的不满和谴责。”
+
+“中共国政府的说一套做一套，只会凸显其邪恶的本性，进一步拉远两岸人民的距离。”
+
+只有15个国家正式承认台湾而不是中共国，中共国认为这个民主、自治的岛屿是其领土的一部分，等待统一，如果需要的话，可以使用武力。
+
+自2016年蔡英文总统上台以来，中共加大了军事压力，抢夺了台湾的7个外交盟友，因为她拒绝承认台湾属于“一个中国”的立场。
+
+台湾周四表示，其在圭亚那的代表处已于1月临时开始运作，美国称这一步是一个 “里程碑”。
+
+但圭亚那当天发表声明说， “希望澄清，继续坚持一个中国政策，与中华人民共和国的外交关系保持不变”。
+
+台湾总统府发言人张惇涵称圭亚那的决定是 “单方面的”。
+
+中共国外交部发言人周四警告说，台北 “任何试图获得外国支持并从事分裂活动的行为都注定要失败”。
+
+台北一直试图回击中共使其被孤立并被排除在世界卫生组织等国际机构之外的活动。
+
+因此，任何扩大或保护现有外交关系的成功举动都被台北及其最大的非官方盟友华盛顿视为重大胜利。
+
+译自《法新社》 2021年2月5日
+
+原文链接：[https://hongkongfp.com/2021/02/05/taiwan-condemns-evil-beijing-after-guyana-scraps-trade-office/](https://hongkongfp.com/2021/02/05/taiwan-condemns-evil-beijing-after-guyana-scraps-trade-office/)
 
 0
