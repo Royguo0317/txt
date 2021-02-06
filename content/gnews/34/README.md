@@ -1,26 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 葡萄牙周五904人需重症监护创新单日记录
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/884612/)
+## 【热点播报】拜登政府高官首次与中共通话
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/884673/)
 
-- 编辑：Victor Torres
+作者：纽约香草山  人间世 校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年2月6日电/西喜社——**葡萄牙创造了中共病毒患者需要重症监护的新日记录，周五有904名患者。
+美国国务院表示，美国国务卿安东尼·布林肯（Antony Blinken）周五在电话中告诉中（共）国高级外交官杨洁篪，美国将在新疆、西藏和香港问题上，捍卫人权和民主价值。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/图片1-15.png)图片来源：路透社
+布林肯还向中国施压，要求中（共）国谴责缅甸的军事政变。他还重申，华盛顿将与盟友合作，让中（共）国为其破坏包括台湾海峡在内的印太地区稳定承担责任。
 
-奥地利政府提出接收5名中共病毒患者和5名非该病毒患者，以减轻葡萄牙医院的负担。葡萄牙政府表示正在考虑这一提议。本周早些时候，一支德国军队医疗队抵达里斯本，开设了8张ICU病床。
+在中共国外交部的声明中，杨洁篪措辞强硬。他说希望美方“纠正一段时期以来的错误”，重新回到中美关系的“正确”轨道上来。杨洁篪告诉布林肯，“涉港、涉疆、涉藏等事务均为中（共）国内政，不容任何外部势力干涉”，他还强调，“世界各国应当维护的是以联合国为核心的国际体系，以国际法为基础的国际秩序，以联合国宪章宗旨和原则为核心的国际关系基本准则，……而不是少数国家所谓的以规则为基础的国际秩序”。
 
-总体而言，周五是连续第四天住院总人数降低，为6412人。
+美国总统拜登就职以来，已和多国领导人通过电话，但至今尚未和习近平有任何正式接触。布林肯和杨洁篪此次通话，是双方高层的首次正式交流。布林肯虽然在通话中表达了美国在民主、人权和印太地区稳定等问题上的强硬立场，美方是否会延续上届政府针对中共的高压政策，还是个未知数。前政府高官如蓬佩奥、博明等人，已反复向拜登政府发出警告，希望其不要采取错误的政策，向中共妥协。
 
-卫生当局周五报告了234例死亡病例，使全国总数达到9920例。近14,000个新病例是大流行期间第二高的病例，使总数增加到超过755,000个确诊病例。
 
-**新闻来源：**[https://apnews.com/article/germany-india-coronavirus-pandemic-coronavirus-vaccine-00f4ee7af09143a881a09a44418929d5](https://apnews.com/article/germany-india-coronavirus-pandemic-coronavirus-vaccine-00f4ee7af09143a881a09a44418929d5)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/e8eb774f-29c0-4da9-8e1a-32cd5321b8a2.jpg)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
