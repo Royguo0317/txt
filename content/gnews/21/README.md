@@ -1,25 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共若拿下台湾将损害美国的名声
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/883126/)
+## 香港年仅六岁儿童都将接受国安教育，包含在从地理到生物的各科目中
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/883079/)
 
-撰稿：永遠の小学生文筝
-![]()![](https://gnews.org/wp-content/uploads/2021/02/图片-9.png)图片来自维基百科
-目前中共国的军力仍被围在大陆上，所以中共拼命在外面投资港口，目的就是想用经济的方式占有这些港口，为它的扩张寻找驻足点。而美国在三条岛链上都有驻兵，随时能打到家门口，中共对此总是心里不安。所以中共一直想要把美国踢出第一岛链，要做到就必须拿下台湾，不管武统还是智统。
+翻译：康州盘古农场-Bruce
+校对：康州盘古农场-烟波浩淼
+编辑：康州盘古农场-Antsee-GTV
 
-如果台湾被中共拿下，对世界局势将产生巨大的影响，台湾的芯片产业对世界经济有着巨大的影响，目前很多企业缺芯片都在找台湾要芯片，更重要的是台湾企业拥有的专利，台积电2020年以2833个专利排名美国授予专利数第6名。一旦中共国得到了这些企业，这会跨越式的提升中共的军事力量，目前中共正为美国的芯片封锁缺货发愁。
+![security law]()![security law](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-06-at-17.27.14.png)
 
-对美国普通民众，台湾一旦落到中共手里，从心理上就会产生一定程度的不安。现在一只比苏联更恐怖的魔鬼野兽如果冲出第一岛链，下一步距离夏威夷就没太多障碍了，这又会让美国人想到珍珠港。
+*教育工作者也被要求向警方和家长通报学校的任何 “政治宣传”*
 
-明明跟台湾有台湾关系法，如果还是被中共染红了，那也就是说美国的军事施压对中共没有效果了。日本韩国想要保卫自己国家只能发展自己的军队，中共也就顺便把美国推出亚洲了。美国世界警察的名声就被搞臭了。
+根据教育局在2019年抗议活动后宣布的全面新指引，香港学校中年仅6岁的儿童将被教导有关国家安全的知识，而且该主题也将被纳入从《地理》到《生物》的科目中。
 
-(本文仅代表作者个人观点)
+根据周四公布的新规定，学校还被指示要将涉及 “政治宣传 “的事件告知警方和家长，包括学生高呼口号、张贴带有政治信息的材料，以及要求或胁迫其他孩子跟随自己的政治立场。
 
-编辑：文远Bruce
+六岁的儿童将被教导去年6月出台的《国家安全法》下的四种罪行：分裂国家、颠覆、与外国势力勾结和恐怖行为，这些罪行被广泛定义为包括干扰公共交通。
 
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+在一年的民主抗议和动荡之后，北京直接[将国家安全法插入](https://hongkongfp.com/2020/08/01/a-city-shackled-how-beijings-security-law-transformed-hong-kong-in-one-short-month/)香港的微型宪法中从而绕过了地方立法机构。[此举赋予警方广泛的新权力](https://hongkongfp.com/2020/05/22/this-is-the-end-of-hong-kong-reactions-pour-in-as-beijing-proposes-security-law/)，令民主人士、民间团体和贸易伙伴感到[震惊](https://hongkongfp.com/2020/05/22/this-is-the-end-of-hong-kong-reactions-pour-in-as-beijing-proposes-security-law/)，因为此类法律在中共被广泛用于压制和惩罚异见人士。
 
-[【澳喜文章】](https://gnews.org/zh-hans/author/aujenny/)
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-Logo.jpeg)
+警方就2019年反引渡法案抗议活动逮捕了1.02万人，其中40%是学生。另外，根据国家安全法，有97人被捕，该法规定最高可判处终身监禁。
+
+周四公布的指引还旨在教导高中生 “主动维护国家安全”，以及了解《国家安全法》对保护国家主权的重要性。
+
+将教育学生 “了解中华文化的辉煌”，”认识保护文化安全在维护国家和民族团结、国家稳定中的重要基础”。
+
+地理和生物等科目也将包括 “九段线 ”等主题，“九段线 ”是有争议的边界，中共声称几乎所有的南海都是其领土。
+
+**压力更大**
+
+香港教师专业联盟主席冯伟华表示，政府基本上把责任完全推给了学校。
+
+“让学校做这些把关的工作，会给学校带来巨大的压力。”冯伟华（Fung Wai-wah）告诉香港新闻网记者。“学校被要求处理这样的工作，正常的教学工作会受到影响。”
+
+“(指导意见) 将进一步增加教师和学校的负担，目前普通的教学和评分工作已经很紧张了，现在把政治把关的责任也交给学校，会给学校带来更大的压力，让管理层和教师难以应付。”
+
+原文作者：坎蒂丝·周（Candice Chau）
+
+发表时间：2021年2月5日
+
+原文链接：
+
+
+
+> [Hong Kong children as young as 6 to be taught about national security, topic to be included across subjects inc. geography, biology](https://hongkongfp.com/2021/02/05/hong-kong-children-as-young-as-6-to-be-taught-about-national-security-topic-to-be-included-across-subjects-inc-geography-biology/)
+
+
+
 0
