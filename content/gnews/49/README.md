@@ -1,28 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西班牙报告首例巴西变种病毒
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/884598/)
+## 【热点播报】拜登政府高官首次与中共通话
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/884673/)
 
-- 编辑：Victor Torres
+作者：纽约香草山  人间世 校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年2月6日电/西喜社——**西班牙报告了首例抵达马德里机场的乘客感染巴西变种病毒的病例。
+美国国务院表示，美国国务卿安东尼·布林肯（Antony Blinken）周五在电话中告诉中（共）国高级外交官杨洁篪，美国将在新疆、西藏和香港问题上，捍卫人权和民主价值。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/图片1-15.png)图片来源：路透社
+布林肯还向中国施压，要求中（共）国谴责缅甸的军事政变。他还重申，华盛顿将与盟友合作，让中（共）国为其破坏包括台湾海峡在内的印太地区稳定承担责任。
 
-马德里地区卫生部门周五表示，这名44岁的男子于1月29日从巴西抵达马德里，他的PCR文件呈阴性，但在机场的抗体测试中呈阳性。他被送往一家市立医院，该医院后来证实了这一变种。
+在中共国外交部的声明中，杨洁篪措辞强硬。他说希望美方“纠正一段时期以来的错误”，重新回到中美关系的“正确”轨道上来。杨洁篪告诉布林肯，“涉港、涉疆、涉藏等事务均为中（共）国内政，不容任何外部势力干涉”，他还强调，“世界各国应当维护的是以联合国为核心的国际体系，以国际法为基础的国际秩序，以联合国宪章宗旨和原则为核心的国际关系基本准则，……而不是少数国家所谓的以规则为基础的国际秩序”。
 
-西班牙本周开始加强对来自巴西和南非的航班的限制，原因是在这些国家检测到了变异体。它已经对英国有类似的限制。
+美国总统拜登就职以来，已和多国领导人通过电话，但至今尚未和习近平有任何正式接触。布林肯和杨洁篪此次通话，是双方高层的首次正式交流。布林肯虽然在通话中表达了美国在民主、人权和印太地区稳定等问题上的强硬立场，美方是否会延续上届政府针对中共的高压政策，还是个未知数。前政府高官如蓬佩奥、博明等人，已反复向拜登政府发出警告，希望其不要采取错误的政策，向中共妥协。
 
-每10万人口14天平均感染率继续缓解，从周四的783人降至周五的750人。中共病毒患者的ICU病床占用率仍为44%。
 
-周五，西班牙报告了28,565例新的中共病毒病例，恢复了下降趋势。西班牙已登记290万例病例，确诊死亡人数为61386人。
 
-**新闻来源：**[https://apnews.com/article/germany-india-coronavirus-pandemic-coronavirus-vaccine-00f4ee7af09143a881a09a44418929d5](https://apnews.com/article/germany-india-coronavirus-pandemic-coronavirus-vaccine-00f4ee7af09143a881a09a44418929d5)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/ef4752c8-f5fe-4f22-8f59-7fe69dd40412.jpg)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

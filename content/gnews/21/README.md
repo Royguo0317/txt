@@ -1,33 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 扼杀民主思想：中共对香港儿童进行洗脑教育
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/884992/)
+## 鲁·道布斯被福克斯封杀 川普发声力挺
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/885088/)
 
 俄罗斯莫斯科喀秋莎农场 文强
 
-编辑上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-06_20-20-34.jpg)[cbc.ca](https://www.cbc.ca/news/world/hong-kong-teaches-children-about-subversion-1.5902310)
-周四（2月4日），香港教育局发出通告，为维护中共国家主权、安全和发展利益，要向全港学校推广国家安全教育，并要求学校在两个学年内全面落实国安教育相关内容。
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-06_21-10-09.jpg)[rightedition.com](https://rightedition.com/2018/02/22/lou-dobbs-breaks-silence-fans-express-worry-absence-fox-business-news/)
+据《洛杉矶时报》2月5日报道，福克斯（FOXNEWS）突然取消著名保守派主持人鲁·道布斯（Lou Dobbs）主持的“今晚鲁·道布斯”节目。鲁·道布斯是全美新闻界最资深的主持人之一，也是川普总统的忠实支持者，2020年总统选举期间多次报道大选舞弊丑闻。川普总统获悉后，发声明“我是他的粉丝”力挺道布斯。
 
-教育局发言人说，维护中共国家主权、安全和发展利益，是香港特别行政区的宪制责任，亦是所有香港居民（包括学校教职员和学生）的共同义务。
+道布斯主持的”今晚鲁·道布斯”是全美收视率最高的商业新闻类节目，平均每晚有大约30万的观众。据福克斯新闻代表证实，道布斯的节目周五（2月5日）最后一次播出。从下周开始，该节目将被改为 “今晚福克斯商业”，轮流担任替补的主持人为杰基·德安格利斯（Jackie DeAngelis）和大卫·阿斯曼（David Asman）。
 
-原文指出：“学校应帮助学生正确地认识《香港国安法》及国家安全所涵盖的重要理念，让他们了解法治精神，从而加强他们国家安全的观念和守法意识，培养他们成为守法的良好公民。”为支援学校推广国家安全教育，教育局持续更新或增加相关教学资源，初中阶段在现有宪法与《基本法》的基础上，加入三小时的国家安全方面教育内容。小学方面，制作了“国家安全•你我要知”有声绘本。教育局将继续适时向学校发布新增的学与教资源，以此对在港的青少年进行强制洗脑教育。
+现年75岁的道布斯目前仍与福克斯签有合约，但很可能不会再出现在该公司的直播节目中，他也许偶尔会在福克斯新闻频道担任评论员。
 
-就在本通告发出的前几日，中共发表了“全面加强新时代少先队工作的意见”，其中提到要通过加强与港澳台少年儿童组织、机构的交流合作，增强港澳台少年儿童的国家认同、民族认同和文化认同。中共对思想意识控制的魔手已经伸向儿童，从小开始灌输“法西斯集权”洗脑，试图在根本上扼杀民主法治思想的萌芽。
+福克斯代表在一份声明中说，“正如我们在10月份所说，福克斯新闻会定期考虑节目变化，并计划在大选后适当推出新的节目，包括在福克斯商业频道”，他继续说，“这是计划变化的一部分。下午5点档的全新节目将很快宣布”。
 
-反送中运动以来，中共就将学校视为香港的头号不稳定因素。香港学校课程加入国安教育，本质是从小开始灌输红色意识形态。这不仅是中共最新少先队工作意见在港澳的具体表现，也是中共镇压异议的最新举措，加强对香港人政治倾向控制的同时，更是将洗脑教育与政治审查全面引入香港校园。妄图对少年儿童灌输邪恶的马克思共产主义的理论，确保红色政权代代相传。
+据悉，福克斯自秋季以来一直在重新评估旗下福克斯新闻网和福克斯商业网的节目，并进行了一些节目和主持人变更，以迎接新总统乔‧拜登（Joe Biden）入主白宫。
 
-值得一提的是，去年中共香港领导人林郑月娥（Carrie Lam）将通识教育课程归咎于助长了2019年的香港民主抗议活动，并发誓要彻底改革教育体系。
+川普总统在得知这一消息后不久，从前总统办公室发出官方声明， “无论现在还是过去，鲁‧道布斯都很棒。没有人比道布斯更爱美国。他有很多忠实的粉丝，这群粉丝中也包括我，我们将密切关注他未来的情况”。
 
-资料来源：
+参考链接：
 
-[https://www.theguardian.com/world/2021/feb/05/lets-learn-about-national-security-hong-kong-releases-video-for-young-children](https://www.theguardian.com/world/2021/feb/05/lets-learn-about-national-security-hong-kong-releases-video-for-young-children)
+[https://www.latimes.com/entertainment-arts/business/story/2021-02-05/fox-news-cancels-lou-dobbs-tonight](https://www.latimes.com/entertainment-arts/business/story/2021-02-05/fox-news-cancels-lou-dobbs-tonight)
 
-[教育局促學校防範違《國安法》教學 跟進及懲處違規個案 (yahoo.com)](https://hk.news.yahoo.com/%E6%95%99%E8%82%B2%E5%B1%80%E4%BF%83%E5%AD%B8%E6%A0%A1%E9%98%B2%E7%AF%84%E9%81%95-%E5%9C%8B%E5%AE%89%E6%B3%95-%E6%95%99%E5%AD%B8-%E8%B7%9F%E9%80%B2%E5%8F%8A%E6%87%B2%E8%99%95%E9%81%95%E8%A6%8F%E5%80%8B%E6%A1%88-095400232.html?guccounter=1)
-
-[https://m.secretchina.com/news/gb/2021/02/05/961547.html](https://m.secretchina.com/news/gb/2021/02/05/961547.html)
-
-[https://sc.isd.gov.hk/TuniS/www.info.gov.hk/gia/general/202102/05/P2021020500457.htm](https://sc.isd.gov.hk/TuniS/www.info.gov.hk/gia/general/202102/05/P2021020500457.htm)
+[https://www.independent.co.uk/news/world/americas/us-politics/fox-news-cancels-lou-dobbs-trump-b1798521.html](https://www.independent.co.uk/news/world/americas/us-politics/fox-news-cancels-lou-dobbs-trump-b1798521.html)
 
 0
