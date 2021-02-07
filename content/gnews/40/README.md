@@ -1,35 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香草播报：【军事快讯】杨洁篪将台湾列为核心问题，要求美国纠正错误
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/885806/)
+## 美日澳印筹划美新政府后首次“四方安全对话”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/885862/)
 
-作者：纽约香草山写作组 Wilson
-![]()![](https://gnews.org/wp-content/uploads/2021/02/GNEW-GTV-MOS-LOGO-2.jpg)
-【美联社2021年2月6日报道】中共国外事工作委员会办公室主任杨洁篪与美国新国务卿布林肯在（北京时间）6日的首次通话中，表达了对美国支持台湾的不满，要求美国纠正前总统川普对北京侵略政策的“错误”′，并将台湾标记为其最重要和最敏感的核心问题。中共认为台湾是中共国的一个叛乱省份，其必须与大陆统一，甚至不惜动用武力。
+俄罗斯莫斯科喀秋莎农场    银河
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Screenshot-2021-02-06-215714.jpg)
+编辑   水星   上传   银河
+![]()![](https://cdn.discordapp.com/attachments/799010586356351066/807835687801716736/Q.JPG)denfencenews.in
+《共同社》2月7日报道，针对中共在印太区域日益增长的影响力，美国、日本、澳大利亚和印度正在计划进行美新政府后的首次“四方安全对话”会议。
 
-*图片来源：多维新闻 网 2015年10月8日，杨洁篪（右）与当时任美国副国务卿的布林肯在北京中南海举行会议*
+据消息人士透露，美国已经向日、澳、印提出举行四方领导人在线会议的想法。会议主旨在讨论合作，维系建立“自由开放的印度洋-太平洋”，同时应对中共在该区域的经济影响力和海上扩张行为。会谈能否很快实现取决于印度，印度因相对谨慎的外交立场而闻名，也是四方联盟中唯一一个与中共边界接壤，并且在美国领导的安全联盟之外的国家。
 
-布林肯在电话中告诉杨洁篪，拜登政府将追究中共国滥用国际体系的责任，并向杨提出了关于新疆、西藏、香港的人权的问题，并敦促与中共国共同谴责缅甸军事政变。杨洁篪回应称，美国应严格遵守一个中（共）国原则，与香港、新疆和西藏有关的事务都属于中（共）国的内政，不允许任何外部势力干涉。
+四国合作最早始于 2004 年 12 月，当时因印度洋地震和海啸后进行救援而成立了四国合作同盟。2006 年日本安倍晋三首次以“民主国家的集合”之名提出了美、日、印、澳四方合作概念并得到各国的支持，四国领导在2007 年 5 月举行了首次会晤。当时四国就建立协调一致的“民主国家同盟战略”以应对非民主国家造成的问题或威胁进行了讨论。四方同盟的出现引起了中共和韩国的关注与担忧，2007 年 11 月澳大利亚政府宣布退出，四方联盟计划搁置。
 
-拜登总统在4日首次的国务院演讲中称：“美国回来了，外交工作会重回我们对外政策的中心。我们将修复与我们同盟的关系，再次与世界接触——不是为了应对昨天的挑战，而是为了应对今天和明天的挑战”。可以预计，美国重拾包括对中共、伊朗的空洞外交政策，那么在拜登政府的主政期间，美国将陷入无所作为的口水战中；相应地，中共的邪恶野心在经前总统川普的短暂打压之后，已经开始报复性反弹，而首当其冲遭受中共残害的极大可能就是台湾。即使中共为了从美国获得更大的战略利益而承诺维持台海现状，也将是暂时的，因为中共需要通过“收复”台湾来实现战略扩张、转移国内矛盾以及逃脱国际社会对中共病毒问题的追责。
+2017 年 11 月美国发表声明称，基于共同的民主价值观和原则，四国同盟承诺加强合作，重点推动“自由、开放和包容”的印度洋-太平洋地区，该组织重新恢复且将抵制中共威胁作为了主要目标之一。
 
-假若台湾沦陷，得到战略舒展的中共将以台湾为跳板和基地，直接威胁美国布防的第二岛链，同时美国的东亚、南亚传统盟友，在台湾沦陷后必将遭受中共国的军事压迫和牵制，很难进一步支援在太平洋纵深独自面对中共海、空军进逼的美国。这样的情形一旦发生，等于美国遭受了前所未有的战略失败。
+《美国国防战略》报告指出“中（共）国继续追求军事现代化，以便在短期内取得在印太地区的霸权”已经成为国家威胁，同时强调将“扩展同盟和伙伴关系为主要战略手段”，以达到“维持印太地区力量对比优势”的战略目的。
 
-信息来源：
+2019年，四国外长在该框架下在纽约举行首次会晤，2020年10月在东京举办了第二次会谈。东京会谈以推进 “自由与开放的印太”为议题，讨论了包括东中国海、南中国海在内的形势，被认为是对中共国在亚太海域谋求主导权、进行军事扩张的反击。
 
-[https://www.hindustantimes.com/world-news/china-flags-taiwan-as-core-issue-asks-us-to-rectify-aggressive-policies-101612618897451.html](https://www.hindustantimes.com/world-news/china-flags-taiwan-as-core-issue-asks-us-to-rectify-aggressive-policies-101612618897451.html)
+据日本外务省称，在拜登政府与日本首相菅义伟(Yoshihide Suga)的首次电话交谈中，双方同意继续推动四方谈话。目前还不清楚四方框架在美新政府下会如何发展，但拜登总统发誓要通过重建联盟来对抗中共的经济弊端和侵略行为。
 
-编辑/校对/发稿：宁静致远
+参考链接：
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+[https://asia.nikkei.com/Politics/International-relations/Quad-group-prepares-1st-meeting-of-leaders-to-keep-China-in-check](https://asia.nikkei.com/Politics/International-relations/Quad-group-prepares-1st-meeting-of-leaders-to-keep-China-in-check)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 0
