@@ -1,45 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福克斯新闻停播川普坚定支持者鲁道博(Lou Dobbs)商业节目
-` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/885217/)
+## 缅甸军政府封锁互联网 屏蔽抗议者声音
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/885621/)
 
-**翻译者：冰糖葫芦喵**
+俄罗斯莫斯科喀秋莎农场 仰望七星
+编辑上传 银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-07_01-43-57.jpg)[truthout.org](https://truthout.org/articles/biden-condemns-burma-military-coup-as-critics-question-claims-of-election-fraud/)
+中共统治世界的方式在缅甸上演，切断互联网，让人们禁声。《路透社》报道如下：【1】
 
-**英文原文报道链接：https://www.latimes.com/entertainment-arts/business/story/2021-02-05/fox-news-cancels-lou-dobbs-tonight   **
+数万人周六走上缅甸的城市街头，谴责本周的政变，并要求释放当选领导人昂山素季。在这个国家最大的城市仰光，愤怒情绪高涨的抗议者，举着“反对军事独裁”的横幅高呼，“军事独裁者，失败，失败；民主，胜利，胜利”，过路的人们向他们提供食物和水。
 
-据洛杉矶时报报道–福克斯新闻媒体(Fox News Media)本周五停播了《鲁道博今夜秀》(Lou Dobbs Tonight)节目，这位75岁的主持人是川普总统的坚定支持者。
+傍晚时分，一个关于昂山素季获释的谣言——引发了喧闹的街头庆祝活动——（但）很快被她的律师否认。当地居民在欢呼和放鞭炮庆祝，军方媒体《米亚瓦迪》（Myawady）也分享了这一信息，但昂山素季的律师钦茂泽（Khin Maung Zaw）否认这位75岁的领导人已经获释，并对路透社说，昂山素季仍被拘留。
 
-在鲁道博被取消节目的消息传出的前一天，福克斯新闻的三名主持人-鲁道博、玛丽亚.巴蒂罗姆、让恩.皮罗被投票机制造商Smartmatic提起的诽谤诉讼中均被列为被告。该公司称，这三名主持人虚假指控该公司帮助民主党操纵选举对抗唐纳德.川普。
+昂山素季领导的全国民主联盟（NLD）在11月8日的选举中以压倒性优势获胜，这一结果遭到将军们拒绝承认，声称（选举）存在欺诈行为。在缅甸第二大城市曼德勒和军方控制的首都内比都，还有数千人走上街头，示威者高呼反政变口号，要求释放昂山素季。
 
-![穿着西装笔挺的男子与图片配字
-描述已自动生成](https://lh6.googleusercontent.com/HPX2i-hJuk-3oJk0-7Iv5OxVQHgeLhWA3XjTf6CdWtUkN9q-n8Mb086wwjpAcSNA2zqyA2L8P2us-zEIxCqSapWYVjHzkh3Nauk_agsYhGlHXUTrV5lRMhG-CoAzXe4hFfnS3cg)**福克斯电视网表示，结束鲁道博节目的安排早就在计划之中，这是基于去年11月美国总统大选结果，共和党人川普被民主党人拜登击败后，福克斯新闻需要做出的一项调整。**
-图片来源：福克斯商业网络
+示威者开始聚集后，互联网被封锁。而国营电视台MRTV整天都在播放赞扬军方的场景。监测组织《网禁》（Net Blocks）互联网观察报告称，缅甸处于一次“全国范围的互联网大停电”，互联网连接已经下降到通常水平的16%。
 
-在11月30日的节目中，鲁道博告诉律师鲍威尔，他认为川普应该需要采取“激烈的行动，以确保这场选举的公正性得到理解，以及对拜登和美国人民犯下的罪行。”如果司法部不想这么做，如果联邦调查局不能这么做，那么我们就必须在联邦政府内部寻找其他资源。”
+军政府没有回应置评请求，在试图通过屏蔽占用户总数一半的Facebook来平息异见之后，军政府将社交媒体的打击范围扩大到了Twitter和Instagram。Facebook敦促军政府解除对社交媒体的封锁。Facebook亚太新兴国家公共政策主管拉斐尔·弗兰克尔（Rafael Frankel）在一份声明中说：“在这个关键时刻，缅甸人民需要获得重要信息，并能够与亲人沟通。”。
 
-关于Smartmatic诉讼案，福克斯周四表示，该电视台“为我们对2020年大选的报道感到自豪，并将在法庭上积极捍卫这一毫无价值的诉讼。”
+联合国人权办公室在推特上说，“必须全面恢复互联网和通信服务，以确保言论自由和获取信息的机会。”
 
-“就像我们在10月份说过的那样，福克斯新闻媒体经常考虑节目调整，并已制定计划，在选举后推出合适的新节目，包括福克斯商业频道，”福克斯新闻发言人表示。“这是计划改变的一部分。”
+挪威移动网络提供商泰勒诺（Telenor ASA）表示，当局已下令所有移动运营商暂时关闭数据网络，不过语音和短信服务仍然开放。
 
-福克斯电视台表示，在这起诉讼之前，结束鲁道博节目的行动就在筹划之中，这是基于去年11月美国总统大选，共和党人唐纳德川普在大选中被民主党人拜登击败后的一项改革。
+缅甸民间社会团体呼吁互联网供应商抵制军政府的命令称，他们“基本上是在使军方的权力合法化”。
+泰勒诺表示，对缅甸政府关闭（互联网禁令）对缅甸人民造成的影响感到遗憾，但表示受到当地法律的约束，其首要任务是保证当地工人的安全。
 
-鲁道博是福克斯新闻前首席执行官罗杰·艾尔斯(Roger Ailes)在2011年签下的，一直是该公司对川普总统的经济和移民政策最直言不讳的支持者。在选举结束后的几个星期里，他对自己的计划表示了愤怒，因为共和党没有采取更多行动来回应前总统关于选举被人为操纵、有利于拜登的说法。
+这就是中共的套路，当你不按照他的要求行事时，就策动你的反对势力推翻你，切断社交媒体，不让你发声，不让你听到异议的声音，整个就是愚弄本国人民套路的翻版。
 
-他的节目通常在晚上7点平均有30万观众收看。他还在福克斯新闻频道担任评论员。鲁道博虽然与福克斯还有合同在身，但是他不太可能再出现在福克斯频道了。
+仅凭禁言禁声这一条足能看清邪恶的本质，他们害怕真相，恐惧人民了解真相。缅甸事件是对世界的警示，如果继续放纵中共这个邪魔，今天的缅甸就是所在国的明天！
 
-从下周一开始，鲁道博的节目将被称为“今夜福克斯商业”(Fox Business Tonight)，将由杰姬·迪安吉利斯(Jackie DeAngelis)与大卫·阿斯曼(David Asman)轮流主持。
+参考链接：
 
-鲁道博周五表示，他不予置评。
-
-新闻来源：
-
-[https://www.latimes.com/entertainment-arts/business/story/2021-02-05/fox-news-cancels-lou-dobbs-tonight](https://www.latimes.com/entertainment-arts/business/story/2021-02-05/fox-news-cancels-lou-dobbs-tonight)
-
-[https://www.reuters.com/article/us-smartmatic-lawsuit-fox-corp-idUSKBN2A42JO](https://www.reuters.com/article/us-smartmatic-lawsuit-fox-corp-idUSKBN2A42JO)
-
-
-
-校对发稿：Bingo
+【1】https://www.reuters.com/article/us-myanmar-politics/thousands-protest-myanmar-coup-despite-internet-ban-idUSKBN2A52DE
 
 0

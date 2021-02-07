@@ -1,25 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以疫苗施压 中共迫使土耳其通过维吾尔人引渡条约
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/885190/)
+## 吹哨人李文亮医生逝世一周年
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/885588/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+- 编辑：Victor Torres
 
-编辑   水星    上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-06_22-47-53.jpg)[thediplomat.com](https://thediplomat.com/2015/07/can-china-turkey-relations-move-on/)
-中共国12月26日批准和土耳其的引渡条约，该条约尚未获得土耳其议会的批准，土耳其的维吾尔人担忧中共将利用提供经济利益来影响土耳其政府，借此罗织罪名、实施引渡逃亡在土耳其的维吾尔人，此担忧已经成真。美联社2月5日报道，近几个月来，土耳其警方搜查并拘留了大约50名维吾尔人到驱逐机构，土耳其反对派议员指责安卡拉领导人秘密向中共出卖维吾尔人，以换取中共病毒疫苗。
 
-尽管目前还没有确凿的证据，但这些立法委员和维吾尔人担心，北京方面正在利用疫苗作为筹码，争取通过引渡条约。这项法案一旦成为法律，将会给流亡在土耳其的维吾尔族人带来危及生命的终极噩梦，目前有超过5万不堪迫害的维族人逃到土耳其寻求庇护，这些人将面临被遣返回中共国的命运。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-据国外专家披露：超过100万维吾尔人和其他大多信仰伊斯兰教的少数民族人被拘押在中共国西部地区的集中营，进行全面拘禁和洗脑教育。美国前国务卿蓬佩奥发表声明证实了中共对新疆维吾尔族和其他少数民族实施严酷强制人口的控制政策，强制维吾尔族节育、绝育、监禁，犯下“种族灭绝”和“反人类”罪。
+**西班牙2021年2月6日电/西喜社——**这条信息被塞进了武汉市中心医院后方一位悼念者留下的一束菊花中，以纪念一年前死于中共病毒的中国吹哨医生。
 
-土耳其在很大程度上依赖中共国的疫苗来控制国内疫情，目前疫情已经造成250万人感染，2.6万多人死亡。中共国承诺到1月底，将发放3000万剂疫苗到土耳其，但只兑现了三分之一。
+这只是一段《圣经》诗句：”因义受压迫的人有福了，因为天国是他们的”。
 
-土耳其主要反对党的议员耶尔德勒姆·卡亚(Yildirim Kaya)表示，“这样的延迟是不正常的。我们已经为这些疫苗支付了费用。”延迟也因此引发了中共利用疫苗威胁土耳其通过引渡条约的担忧。驻北京大使赞扬了中共国的疫苗，同时补充称，安卡拉重视与中共国的“司法合作”—— 许多维吾尔人担心，这是可能遭到镇压的代名词。
+一年前，李文亮医生因在武汉首次发现的病毒而去世。医院里有一小股人流在纪念这个日子。34岁的李文亮在中国成为受人爱戴的人物，因为他是早先因在社交媒体群里 “散布病毒谣言 “而被当局处罚的举报人之一。
 
-参考链接：
+中国公众对李文亮表示了拥护，他在网上的出现曾给人们描绘了一个即将为人父的普通人的形象。
 
-[https://apnews.com/article/turkey-beijing-coronavirus-pandemic-ankara-china-c8b714974552c484c501a5784efc117a](https://apnews.com/article/turkey-beijing-coronavirus-pandemic-ankara-china-c8b714974552c484c501a5784efc117a)
+**新闻来源：**[https://apnews.com/article/nfl-beijing-super-bowl-football-coronavirus-pandemic-7fbc243aa2d3d2aec9b137c1f0d04390](https://apnews.com/article/nfl-beijing-super-bowl-football-coronavirus-pandemic-7fbc243aa2d3d2aec9b137c1f0d04390)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/3b53c0ae-2ba1-423a-8b20-0521396125ad.jpg)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
 0
