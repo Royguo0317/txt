@@ -1,43 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】噩梦何时了-亲历VOG诈骗 （一）
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/885923/)
+## 【每日快讯】06/02/2021:共产党手里有解药
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/886009/)
 
-作者： Kathy文艺
+**制作:Cantonese工作室**
+播报: 美国小李
+<br>资料收集: An，Ruby，美国小李
+<br>视频制作: Shawn
+<br>海报制作: 侬民
+**摘要:**
 
-实在不愿回顾这一场噩梦，如果不是听到Sara亲口讲，直到此刻还以为不是真的。
-
-关于Sara，不知为什么，一点都不想分心谈论。至于她为何诈骗战友钱，也懒得分析。只想把自己受骗及维权的经历记录下来，以示警醒。
-
-追随爆料革命就为了消灭CCP,，从未想到发财。2020年4月，听到文贵先生谈论G系列的美好蓝图，除了感动就是惊讶。不敢联系郭先生本人，只好联系声势如虹的几乎被神话了的VOG当家Sara，由此踏上VOG投资，借款，最后美梦幻灭，到恶梦的历程。
-
-2020年5月中，千辛万苦的汇出一笔多年攒下的积蓄，与VOG签了第一份“代理协议”，以一美元由Lihong Wei Lafrenz 为代理，投资GTV Media Group。没有收到回签，如石沉大海。
-
-6月，宣告投资不成功。
-
-煎熬中，到了2020年9月，签了所谓的“借款协议”。中间各种操作，终于对了账，拿到一个VAA编号。
-
-2020年11月23日，又签了一份“借款协议”，VAA 编号后面，再加一个Y， 表示对上账了。
-
-两份借款协议几乎相同，“借款用途”写明：借出方向借款方提供的借款款项，将被用于后者的一般商业运营之目的。利率百分之三，连同本金三年后归还。但从未收到回签。
-
-各种猜测，犹疑，打听，痛苦中迎来所谓“遗嘱”签订，还好本人未签。
-
-2021年1月，还沉浸在美大选挫折的沮丧中，噩耗终于传来。Sara成了“九指妖”，VOG成了诈骗窝。可怜的VOG投资者们纷纷相告，俨然成了热锅上的“蚂蚁”。
-
-好在郭先生一再承诺负责，联盟牵头向VOG讨伐，但投资人自己必须站出来自救。
-
-（文章仅代表个人观点。）
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210206-zhTW-01.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210206-zhTW-02.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210206-zhTW-03.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210206-zhTW-04.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210206-zhTW-05.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210206-zhTW-06.jpg)
+7.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210206-zhTW-07.jpg)
+8.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210206-zhTW-08.jpg)
 0

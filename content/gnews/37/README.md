@@ -1,22 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【灭共头条】新国安法下香港SIM卡注册计划令港人感到恐惧
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/886160/)
+## 没有法律保障，民工跳楼讨薪。消防队冲到天台那一刻懵了…
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/886187/)
 
-编译报道：Ermat【㊙️翻Gnews原创组】
-责任编辑：心声
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Picture1-41.jpg)图片来源：cn.nytimes.com
-香港回归只有20多年，然而现在的“一国两制”几乎荡然无存。中共在香港不仅大规模搜捕非建制派人士，斩断议会选举之路，而且扼杀民主思想，对香港儿童进行洗脑式教育。最近又把黑手伸向银行业务。
+听写/翻译:乐禧禧|PR: CharlesS|评论: 胖丁|翻译：PollyEsther|PR:小小妹
+![]()![](https://www.gnews.org/wp-content/uploads/2021/02/200507-1513-apachina-kenya-africa-media-newspaper-2.jpg)
+欠薪讨薪，上访喊冤，这是中共国的民生特色。为了所谓的政绩，维护所谓天朝大国的脸面，各级地方政府不是惩治欠薪者，而是暴力对待讨薪者。于是，为了活命，为了拿回自己的劳动所得，老百姓不得已采取各种极端的手段。
 
-据香港自由报（Hong Kong Free Press）2月5日报道，香港政府宣布一项计划, 要求购买预付SIM卡的人需提供真实姓名和身份证明，提供虚假信息者可判处10至14年监禁。并对外宣称这一计划是用以遏制购物诈骗、贩卖人口和身份盗窃等犯罪行为。
+中共国自非法夺取政权以来，每年大手笔以各种名义援助一些国家的金钱，不计其数。而中共国制下的老百姓，日子过得苦不堪言。没有法律监管，没有养老机制。辛苦辛苦工作，但是收入没有保障。怎么办？只能用生命来呐喊。我在想，如果有一天，中共国制下的工检法或者这些消防队员会不会也坐在那里，用生命来维护自己的权益呢？毕竟，在这种绞肉机的体制下，没有人是安全的，随时都会被绞灭。
 
-香港人的生活离不开银行业务，而SIM卡注册计划赋予了银行在没有法院令状的情况下，可以向香港民众索取个人数据的权力。这项政策还将允许电信公司将用户的个人资料储存一年，如果个人不提供个人资料，将终止服务。
+今天是我救你，明天当我遇难时，谁来救我？
 
-这次事件的曝光，令市民普遍感到害怕和不安。人们越来越清楚地意识到，根据国家安全法，他们所做的任何财务决定, 都可能被港政府用来对付他们。随着政府的打击和突击检查力度的加大，大多数香港人都明白，他们的工作场所和个人生活都无法免受国家的监控和惩罚。
 
-参考链接：
 
-[Hong Kong’s SIM card registration plan aims to sow fear, distrust and self-censorship](https://hongkongfp.com/2021/02/05/hong-kongs-sim-card-registration-plan-aims-to-sow-fear-distrust-and-self-censorship/)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
+
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
