@@ -1,35 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 浅谈美国广泛使用的mRNA疫苗
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/886084/)
+## 【灭共头条】新国安法下香港SIM卡注册计划令港人感到恐惧
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/886160/)
 
-撰稿：Jenny
+编译报道：Ermat【㊙️翻Gnews原创组】
+责任编辑：心声
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Picture1-41.jpg)图片来源：cn.nytimes.com
+香港回归只有20多年，然而现在的“一国两制”几乎荡然无存。中共在香港不仅大规模搜捕非建制派人士，斩断议会选举之路，而且扼杀民主思想，对香港儿童进行洗脑式教育。最近又把黑手伸向银行业务。
 
-视频翻译字幕：Jony（8 Mile）     视频剪辑：光耀华夏
-![]()![](https://gnews.org/wp-content/uploads/2021/02/IMG_7903.jpg)免费网络图片
-mRNA = messenger RNA, 中文翻译为：信使核糖核酸。
+据香港自由报（Hong Kong Free Press）2月5日报道，香港政府宣布一项计划, 要求购买预付SIM卡的人需提供真实姓名和身份证明，提供虚假信息者可判处10至14年监禁。并对外宣称这一计划是用以遏制购物诈骗、贩卖人口和身份盗窃等犯罪行为。
 
-1990年，科学家将体外转录的信使RNA（mRNA）注射入小鼠体内，通过检测发现其可在小鼠体内表达活性，产生相关蛋白且具有剂量依赖性。这种直接注射mRNA的方法能够通过表达特定蛋白，产生免疫反应，这就是mRNA疗法的雏形。
+香港人的生活离不开银行业务，而SIM卡注册计划赋予了银行在没有法院令状的情况下，可以向香港民众索取个人数据的权力。这项政策还将允许电信公司将用户的个人资料储存一年，如果个人不提供个人资料，将终止服务。
 
-近年来，mRNA合成、修饰技术和递送技术的发展让mRNA疗法重返生物制药公司的视线。相比传统疫苗，mRNA的安全性更有优势，不会插入基因突变，可以被正常细胞降解，通过调节序列修饰和递送载体可以改变其半衰期等。传统疫苗对很多新型病毒有心无力，更别提像癌症这种严重威胁人类健康的疾病了。而mRNA的作用机理使它就像一个菜谱一样，只要你编好RNA序列，就可以将细胞变成小型的药物工厂，mRNA引导细胞自己产生特定蛋白发挥系统药效。
+这次事件的曝光，令市民普遍感到害怕和不安。人们越来越清楚地意识到，根据国家安全法，他们所做的任何财务决定, 都可能被港政府用来对付他们。随着政府的打击和突击检查力度的加大，大多数香港人都明白，他们的工作场所和个人生活都无法免受国家的监控和惩罚。
 
-去年12月11日，美国食品和药品管理局(Food and Drug Administration)批准辉瑞和BioNTech共同研发的新冠病毒疫苗的紧急使用授权（ Emergency Use Authorization ) 。
+参考链接：
 
-但下面这短视频探讨的mRNA可能产生的特别是对老年人的“副作用”，令人担忧。
-视频截自Telegram
-**传统疫苗、和mRNA疫苗的区别**
+[Hong Kong’s SIM card registration plan aims to sow fear, distrust and self-censorship](https://hongkongfp.com/2021/02/05/hong-kongs-sim-card-registration-plan-aims-to-sow-fear-distrust-and-self-censorship/)
 
-传统疫苗是将一种减弱或灭活的细菌注入我们体内。通过全病原体灭活，重组蛋白或其他亚单位，并与佐剂共同使用来预防疾病。分灭活疫苗:又称死疫苗，弱毒疫苗又称活疫苗。但灭活不好会导致感染。
-
-mRNA疫苗是将刺蛋白（spike protein）信使核糖核酸打进身体，不需要很多佐剂（会产生副作用），mRNA教会我们的细胞如何制造一种蛋白质，甚至一种蛋白质片段，从而触发我们体内的免疫反应。如果真正的病毒进入我们的身体，这种产生抗体的免疫反应可以保护我们免受感染。 辉瑞（Pfizer）和德国生物科技公司BioNTech和莫德纳moderna的疫苗就属于这种。mRNA疫苗是把信使核糖核酸包埋在纳米微粒那么小的脂肪层，这种疫苗在制作时很困难，但需要低温物流运送。
-
-目前来看，mRNA的副作用比其它的腺病毒疫苗（英国的阿斯利康，俄罗斯卫星五号）灭活疫苗（中国的国药和科兴疫苗）小，相对安全，也有专业人士指出有效率仅为20%左右。
-
-（本文纯属个人观点）
-
-相关链接：[Messenger RNA (**mRNA**) – Genome.gov](https://www.genome.gov/genetics-glossary/messenger-rna)
-
-[Messenger RNA – Wikipedia](https://en.wikipedia.org/wiki/Messenger_RNA)
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-Logo.jpeg)
 0
