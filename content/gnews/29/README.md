@@ -1,24 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 没有法律保障，民工跳楼讨薪。消防队冲到天台那一刻懵了…
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/886187/)
+## 美医生回顾因给新冠病人使用羟氯喹治疗而被威胁解雇
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/886251/)
 
-听写/翻译:乐禧禧|PR: CharlesS|评论: 胖丁|翻译：PollyEsther|PR:小小妹
-![]()![](https://www.gnews.org/wp-content/uploads/2021/02/200507-1513-apachina-kenya-africa-media-newspaper-2.jpg)
-欠薪讨薪，上访喊冤，这是中共国的民生特色。为了所谓的政绩，维护所谓天朝大国的脸面，各级地方政府不是惩治欠薪者，而是暴力对待讨薪者。于是，为了活命，为了拿回自己的劳动所得，老百姓不得已采取各种极端的手段。
+翻译视频：灭共战友
 
-中共国自非法夺取政权以来，每年大手笔以各种名义援助一些国家的金钱，不计其数。而中共国制下的老百姓，日子过得苦不堪言。没有法律监管，没有养老机制。辛苦辛苦工作，但是收入没有保障。怎么办？只能用生命来呐喊。我在想，如果有一天，中共国制下的工检法或者这些消防队员会不会也坐在那里，用生命来维护自己的权益呢？毕竟，在这种绞肉机的体制下，没有人是安全的，随时都会被绞灭。
+撰稿：一灯一智
 
-今天是我救你，明天当我遇难时，谁来救我？
+随着爆料革命和闫丽梦博士不遗余力地披露新冠病毒COVID19的来源真相，大家越来越清楚地认识到COVID19就是中共的生化超限战武器，而羟氯喹（Hydroxychloroquine，HCQ）是预防和治疗中共病毒的有效药物。虽然HCQ安全廉价，但却由于中共的掩盖以及影响到了美国大医药公司的利益，他们不惜全面发动媒体战到处抹黑闫博士和HCQ。
 
+其实COVID19在美国爆发之初，美国一些有良知的一线医生就发现HCQ在新冠病人中使用具有良好的治疗效果。这里面有我们熟知的大胡子医生Vladimir Zelenko，Richard Urso医生，Kulvinder Kaur博士，以及Simone Gold医生等。他们因为推荐使用HCQ而受到媒体和主管部门的打压，意图让他们消声。
 
+日前，Simone Gold医生在她的Twitter账号上发布了一段视频，回顾她如何在COVID19大流行之初因为给病人开HCQ和锌片进行治疗而受到医务主任的解雇威胁，而原因亦被书面记录下来，竟然是“该医院的最大付款人，一家保险公司，向医院施压阻止医生使用HCQ处方”，这是“非常令人惊讶”和违背 “医疗行为独立”准则的。
+视频源自Twitter
+（本文仅代表个人观点）
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+视频来源：
 
+[https://twitter.com/drsimonegold/status/1353888445605711872](https://twitter.com/drsimonegold/status/1353888445605711872)
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[澳喜文章](https://gnews.org/zh-hans/author/aujenny/)
+
+[欢迎加入澳喜农场](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-Logo.jpeg)
 0
