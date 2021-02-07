@@ -1,15 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年2月6日 文贵先生盖特 3
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/886320/)
+## 美军战舰在南海中共控制岛屿附近航行
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/886383/)
 
-编辑整理： 西班牙巴塞罗那喜悦农场 （文惜）
+##### 翻译报道：Freedoom
 
-2月6号：新春将至这么多好酒……七哥只能看不能喝呀……非常感谢过去一起在金融商业市场一起战斗的兄弟姐妹们，还没有忘掉你们这个给你们带来麻烦的七哥……带到共产党被消灭时……希望兄弟姐妹们，咱们相聚共同的来喝掉这些……502还没有忘恩负义的．基金经理们送给我的过年酒……😂😂😂😂😂
-![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-07_09-51-24.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-07_09-51-27.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-07_09-51-29.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-07_09-51-31.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-07_09-51-34.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-07_09-51-36.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-07_09-51-38.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-07_09-51-40.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-07_09-51-42.jpg)
-[【2021年2月6日】文贵先生盖特原文](https://gtv.org/getter/601f5314f5b9e26ca9d915aa)
+##### 责编：白夜
 
-**喜联盟Gnews编辑部**
+国会山网记者卡梅隆·詹金斯报导，美国海军周五表示，作为南海自由航行的一部分，一艘军舰在中共控制的西沙群岛附近航行，这是拜登政府治下的首次航行。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-10.png)图片来源：德国之声中文网www.dw.com
+路透社报道称，中共立即谴责这一行为，并派出海军和空军跟踪并驱离该舰。中共曾表示，对南海岛礁以及周边海域拥有无可争辩的主权，此前曾敦促美国船只停止南海航行，称这种行为是 “挑衅”。
 
-0
+美军第七舰队称，该舰 “在西沙群岛附近的航海自由并未违背国际法”。中共南部战区司令部指责美国 “严重侵犯中共主权和安全”，”蓄意破坏南海和平、友好、合作的良好氛围”。
+
+美国有线通讯社也报道，同一艘驱逐舰约翰·麦凯恩号本周早些时候穿越台湾海峡时激怒了北京。
+
+评论：论实力，美军可以轻而易举将共军摁在地上反复摩擦，但是奥巴马时期的绥靖政策，给了中共军事化南海岛礁的机会。然而时过境迁，中共觊觎南海交通要道，严重威胁世界贸易的安全，加上近期频繁在台湾海峡炫耀武力，热战似乎一触即发。如何避免台海生灵涂炭？唯有灭共！
+
+[原文链接](https://thehill.com/homenews/news/537511-us-sails-warship-near-chinese-controlled-islands-in-south-china-sea?rl=1)
+
++2
