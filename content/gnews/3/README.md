@@ -1,25 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评粤语快报】02.05:SWIFT联手中共央行清算总中心运作数字人民币
-` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/885772/)
+## 香草播报：【军事快讯】中共为巴基斯坦制造8艘潜艇因德国不愿供应发动机将被搁置
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/885793/)
 
-製作團隊：【喜馬拉雅粵語組】北美教練(聞佑)、一簾幽夢、食飽飽
-
-上傳：流光飛舞
+作者：纽约香草山写作组 Wilson
 
 
 
-主要內容
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-新聞要點一：SWIFT與中共央行聯手清算總中心，數字貨幣研究所等成立新公司，其中在1月16號在北京成立了一家金融網關信息服務有限公司，未來還會和四家中國本地機構和基礎設施提供者成立一家合資公司…..
 
-這絕對是一件大事，SWIFT背後是美國沼澤地的力量，而這些所謂的研究所都是中共軍方控制的企業，中共央行的數字貨幣最終目的就是顛覆美元霸權，SWIFT也一定明白這點並聲稱和中國合資公司服務範圍會非常有限，但在路德看來這就同中共當時和西屋電氣合作一樣，先是成立一家合資公司忽悠說只生產一些小配件，然後逐步通過藍金黃去滲透去控制，最後的結果便是搞死了整個西屋。
 
-新聞要點二：FOX取消了Lou Dobbs的晚間秀，並立即生效，週一開始由一場臨時表演取代。據稱是因為Lou Dobbs報道了「多米尼」作弊事件導致，但Lou Dobbs是FOX收視率最高的主持人，本身自帶巨大流量，隨便去哪個電視臺，他都會讓其真正的收視率翻身，川普總統必看他的節目。
+[印度军事](https://idrw.org/germanys-reluctance-to-supply-engines-casts-shadow-on-chinas-desire-to-make-submarines-for-pakistan/)2021年2月5日报道，中国打算为巴基斯坦制造八艘元级空中独立推进潜艇或AIP潜艇，其中四艘潜艇将由CHOC在武汉武昌造船厂建造，另外四艘将在卡拉奇建造。但由于德国不热衷于供应发动机，中共未获得购买德国潜艇柴油机的许可证，整个数十亿美元的项目暗藏着阴影。巴基斯坦海军似乎并不热衷于中国河南生产的发动机。
 
-新聞是由CNN爆出來，可能存在誤導，也有可能是Lou Dobbs自己辭職，此外據瞭解川普總統正在搞一個新媒體集團，說不定他未來在那邊出現。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/75.jpg)
 
-[【路德時評】原視頻鏈接](https://youtu.be/lVt6TB0SPME)
+印度军事透露，印度目前也在孟买建造四艘法国设计的蝎子潜艇。巴基斯坦潜艇制造因发动机问题搁浅，令印度长吁了一口气。
+
+中共近年来通过在印度洋东岸的斯里兰卡、巴基斯坦等国，投入巨资购买港口长期使用权等手段，建设军民两用港口，把势力扩展到印度洋。其又通过帮助巴基斯坦建造潜艇留下后门，把印度洋的海底情报收入囊中。通过在潜艇上装配由中共掌握核心技术的核武和导弹，把巴基斯坦海军变成中共的附庸军队，对印度及印度洋地区形成战略威慑。
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
 
 0
