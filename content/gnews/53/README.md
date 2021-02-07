@@ -1,49 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 腾讯入主澳洲有无政治目的？
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/886307/)
+## 美军战舰在南海中共控制岛屿附近航行
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/886383/)
 
-撰稿：云彩
-![]()![](https://gnews.org/wp-content/uploads/2021/02/屏幕截图-2021-02-07-191047-2.png)图片来自网络截图
-自从腾讯成为澳洲“先买后付”服务公司Afterpay股东后，该公司的经营方针有了大改动。腾讯入主Afterpay,背后是有否有政治目的呢？不好说。
+##### 翻译报道：Freedoom
 
-2020年5月4日腾讯以3亿澳元收购Afterpay 5%的股份，成为其主要股东之一。5月25日Afterpay发布公告任命Sharon Rothstein为非执行董事。Rothstein女士在多家美国公司担任过董事。分析人士指出，此次高管调整是Afterpay进一步开拓美国市场的具体体现。
+##### 责编：白夜
 
-2020年5月29日Afterpay在向联邦参议院一个委员会提交的报告中表示，其服务平台上的客户大部分为年轻人，大多数无信用历史可查。7月15日Afterpay周三发布报告称，将与苹果公司和谷歌公司合作，从7月起美国客户可在部分商家实体店和网店通过Apple  pay 和Google pay 享受它 的服务。此次合作，有助于Afterpay 由在线业务扩展到实体零售市场。12月14日ASX200成分股进行调整，Afterpay挺进ASX20，股价由腾讯购买股份时大约29.16澳元到109.93澳元。2021年2月5日股价为151.30澳元。
+国会山网记者卡梅隆·詹金斯报导，美国海军周五表示，作为南海自由航行的一部分，一艘军舰在中共控制的西沙群岛附近航行，这是拜登政府治下的首次航行。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-10.png)图片来源：德国之声中文网www.dw.com
+路透社报道称，中共立即谴责这一行为，并派出海军和空军跟踪并驱离该舰。中共曾表示，对南海岛礁以及周边海域拥有无可争辩的主权，此前曾敦促美国船只停止南海航行，称这种行为是 “挑衅”。
 
-虽然腾讯投资浮盈约4.2倍，但是笔者认为也许其背后的政治利益远高于经济利益。
+美军第七舰队称，该舰 “在西沙群岛附近的航海自由并未违背国际法”。中共南部战区司令部指责美国 “严重侵犯中共主权和安全”，”蓄意破坏南海和平、友好、合作的良好氛围”。
 
-政治利益：控制美国年轻人市场
+美国有线通讯社也报道，同一艘驱逐舰约翰·麦凯恩号本周早些时候穿越台湾海峡时激怒了北京。
 
-Afterpay 把开拓美国市场作为首要目标，通过Apple pay和Google pay由线上进入线下市场，主要客户是年轻群体。大家可以试想一下，Afterpay 可以通过年轻群体的消费大数据分析，从而掌控他们的消费行为，最后控制他们的意识形态。腾讯背后有CCP。随着老年人去世和年轻人成长为社会的中坚力量，CCP不就可以轻易控制美国社会了吗？
+评论：论实力，美军可以轻而易举将共军摁在地上反复摩擦，但是奥巴马时期的绥靖政策，给了中共军事化南海岛礁的机会。然而时过境迁，中共觊觎南海交通要道，严重威胁世界贸易的安全，加上近期频繁在台湾海峡炫耀武力，热战似乎一触即发。如何避免台海生灵涂炭？唯有灭共！
 
-CCP的军民融合公司带着帮助CCP统治全世界的邪恶任务。表面上是简单的金融行为，背后有不可告人的目的。腾讯收购Afterpay就是一个小小例证。爆料革命让西方世界逐渐认清CCP的本质，全球灭共正在进行中。
+[原文链接](https://thehill.com/homenews/news/537511-us-sails-warship-near-chinese-controlled-islands-in-south-china-sea?rl=1)
 
-（本文纯属个人观点）
-
-审稿：Jenny  编辑：MG1
-
-参考资料：
-
-腾讯入股Afterpay
-
-[http://www.acbnews.com.au/companynews/20200504-49224.html](http://www.acbnews.com.au/companynews/20200504-49224.html)
-
-Afterpay 高管调整，进一步拓展美国市场
-
-[http://www.acbnews.com.au/companynews/20200525-50799.html](http://www.acbnews.com.au/companynews/20200525-50799.html)
-
-Afterpay主要客户是年轻群体
-
-[http://www.acbnews.com.au/companynews/20200529-51097.html](http://www.acbnews.com.au/companynews/20200529-51097.html)
-
-Afterpay入住ASX200
-
-[http://www.acbnews.com.au/transactionstock/20201214-57800.html](http://www.acbnews.com.au/transactionstock/20201214-57800.html)
-
-Afterpay与Googleˎ苹果合作
-
-[http://www.acbnews.com.au/companynews/20200715-53592.html](http://www.acbnews.com.au/companynews/20200715-53592.html)
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-Logo.jpeg)
-0
++2
