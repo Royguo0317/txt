@@ -1,37 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香草播报：【军事快讯】中共国海警船在海警法施行后首次进入日本声称拥有主权的尖阁领海
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/884967/)
+## 鲁·道布斯被福克斯封杀 川普发声力挺
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/885088/)
 
-作者：纽约香草山写作组 Wilson
-![]()![](https://gnews.org/wp-content/uploads/2021/02/GNEW-GTV-MOS-LOGO-2.jpg)
-【共同社2月6日报道】日本海上保安总部6日表示，今晨4点45分左右，2艘中共国海警局船只驶入了尖阁诸岛（钓鱼岛）附近的日本领海。这是中共国《海警法》于2月1日生效后，中共国海警船首次进入尖阁附近领海。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Screenshot-2021-02-06-115922.jpg)
-*图片来源：自由亚洲电台*
+俄罗斯莫斯科喀秋莎农场 文强
 
-日本政府于当天向中共国政府抗议，称这是无法允许的行为。当天上午，日本政府把首相官邸的情报联络室升级为官邸对策室，并且和海上保安厅均加强了警戒。
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-06_21-10-09.jpg)[rightedition.com](https://rightedition.com/2018/02/22/lou-dobbs-breaks-silence-fans-express-worry-absence-fox-business-news/)
+据《洛杉矶时报》2月5日报道，福克斯（FOXNEWS）突然取消著名保守派主持人鲁·道布斯（Lou Dobbs）主持的“今晚鲁·道布斯”节目。鲁·道布斯是全美新闻界最资深的主持人之一，也是川普总统的忠实支持者，2020年总统选举期间多次报道大选舞弊丑闻。川普总统获悉后，发声明“我是他的粉丝”力挺道布斯。
 
-据海保总部透露，海警船把船头朝向2艘日本渔船，做出了试图接近的动作，另有2艘中共国海警船在毗连区航行，其中1艘搭载了类似机关炮的装置。以上事件发生在日中两国3日“海洋事务高级别磋商”后仅3天，磋商会上日方向中方传达了关切，称“不能以违反国际法的形式适用(海警法)”。
+道布斯主持的”今晚鲁·道布斯”是全美收视率最高的商业新闻类节目，平均每晚有大约30万的观众。据福克斯新闻代表证实，道布斯的节目周五（2月5日）最后一次播出。从下周开始，该节目将被改为 “今晚福克斯商业”，轮流担任替补的主持人为杰基·德安格利斯（Jackie DeAngelis）和大卫·阿斯曼（David Asman）。
 
-现在回头再看中共在拜登政府上任后第二天出台的《海警法》，可谓老谋深算。首先，中共看清了拜登政府必定会对之采取绥靖政策；其次，在军事实力上，印度、日本和台湾还不能和中共正面抗衡。因此，中共似乎并不忌惮当前美国主导的亚太战略及“亚洲北约”。
+现年75岁的道布斯目前仍与福克斯签有合约，但很可能不会再出现在该公司的直播节目中，他也许偶尔会在福克斯新闻频道担任评论员。
 
-中共的险恶在于，见缝插针地利用拜登政府绥靖政策带来的安全期，频繁制造区域紧张局势，乃至发出战争威胁，从而迫使美国在当前由于中共病毒造成的经济崩溃和总统大选带来的严重社会分裂而自顾不暇的情况下，进入了中共设计的谈判陷阱。
+福克斯代表在一份声明中说，“正如我们在10月份所说，福克斯新闻会定期考虑节目变化，并计划在大选后适当推出新的节目，包括在福克斯商业频道”，他继续说，“这是计划变化的一部分。下午5点档的全新节目将很快宣布”。
 
-从昨天美国务卿布林肯和中共外交委员会主任杨洁篪的通话中可以看出，拜登政府与中共之间正在达成越来越多的“共识”。
+据悉，福克斯自秋季以来一直在重新评估旗下福克斯新闻网和福克斯商业网的节目，并进行了一些节目和主持人变更，以迎接新总统乔‧拜登（Joe Biden）入主白宫。
 
-信息来源：
+川普总统在得知这一消息后不久，从前总统办公室发出官方声明， “无论现在还是过去，鲁‧道布斯都很棒。没有人比道布斯更爱美国。他有很多忠实的粉丝，这群粉丝中也包括我，我们将密切关注他未来的情况”。
 
-[https://china.kyodonews.net/news/2021/02/0adad3c528a7-2.html](https://china.kyodonews.net/news/2021/02/0adad3c528a7-2.html)
+参考链接：
 
-编辑/校对/发稿：宁静致远
+[https://www.latimes.com/entertainment-arts/business/story/2021-02-05/fox-news-cancels-lou-dobbs-tonight](https://www.latimes.com/entertainment-arts/business/story/2021-02-05/fox-news-cancels-lou-dobbs-tonight)
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+[https://www.independent.co.uk/news/world/americas/us-politics/fox-news-cancels-lou-dobbs-trump-b1798521.html](https://www.independent.co.uk/news/world/americas/us-politics/fox-news-cancels-lou-dobbs-trump-b1798521.html)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-+1
+0
