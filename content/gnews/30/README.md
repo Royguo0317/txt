@@ -1,35 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美“自由之家”揭中共是最严重“跨国迫害”者
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/885688/)
+## 香草播报：【军事快讯】中共为巴基斯坦制造8艘潜艇因德国不愿供应发动机将被搁置
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/885793/)
 
-俄罗斯莫斯科喀秋莎农场    银河
+作者：纽约香草山写作组 Wilson
 
-编辑   水星    上传    银河
-![]()![](https://cdn.discordapp.com/attachments/799010586356351066/807769387947524156/c.JPG)the-sun.com
-亚洲新闻1月28日报道，著名人权律师郭飞雄在上海机场被边检人员阻止登上飞往美国的航班，自此以后音信全无。自1989年天安门事件以来，郭飞雄一直在为捍卫人权而奋斗，曾入狱11年并在狱中遭受酷刑。在中共国，异见人士被拘禁被消失已经成为常态，而现阶段中共对异见人士的镇压迫害已经扩及全球。
 
-援引自《自由亚洲》新闻，美国非政府人权组织自由之家（Freedom House）2月4日发表一份名为《看不见却够得着》（Out of Sight, Not Out of Reach）的报告纪录，详述全球多国政府使用恐吓与暴力等手段“跨国迫害”海外流亡者和侨民，中共国是目前为止最严重的迫害者。
 
-报告中记录了全球31个国家，至少608个案情记录为国家政府消除异见人士的非法迫害。除了引渡，跨国镇压的工具还包括“暗杀、非法驱逐、绑架、数字威胁、国际刑警组织的虐待和家庭恐吓”。记录中214起迫害案件来自中共，占全记录的三分之一。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-“自由之家”的报告中称，中共国的体制是“最复杂、最全球性、最全面的跨国压制运动”，是唯一一个在几乎所有与中共国持不同政见者的国家建立了跨国镇压专营权网络的国家。 《自由之家》将其描述为一个“多层面的跨国压制机构”。
 
-自由之家负责中共国、香港和台湾问题研究的高级研究分析员莎拉·库克（Sarah Cook）在接受采访时指出， 中共的国内安全和军事机构组织了严厉的打压行动，包括间谍活动、网路攻击、威胁和人身攻击。中共部署了在外国的统战代理机构进行监视渗透，利用外国的法律和政治制度进行拘留和引渡，同时利用其地缘政治影响力，以及商业市场对它国施压。
 
-中共对外的镇压目标不仅限于外籍人士与海外华人中的异见人士，还包括其他国家的“人权捍卫者、记者、和那些批评中国共产党”的人。报告指出，“习近平总书记领导下的集权，以及他对强硬外交政策的强调，导致中（共）国外交政策的立场越来越咄咄逼人，其中包括跨国压制。”
+[印度军事](https://idrw.org/germanys-reluctance-to-supply-engines-casts-shadow-on-chinas-desire-to-make-submarines-for-pakistan/)2021年2月5日报道，中国打算为巴基斯坦制造八艘元级空中独立推进潜艇或AIP潜艇，其中四艘潜艇将由CHOC在武汉武昌造船厂建造，另外四艘将在卡拉奇建造。但由于德国不热衷于供应发动机，中共未获得购买德国潜艇柴油机的许可证，整个数十亿美元的项目暗藏着阴影。巴基斯坦海军似乎并不热衷于中国河南生产的发动机。
 
-中共利用跨国压制手段在渗透、操纵自由国家的政治、法律和媒体以恐吓或攻击国外持不同政见者。中共利用恐怖主义和腐败指控、以及利用互联网操作舆论导向及控制言论自由的行径已经对自由民主国家构成了严重威胁。这个趋势已经引起国际社会各个国家的不安。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/75.jpg)
 
-根据“自由之家”(Freedom House)的报告，除了中共，土耳其、俄罗斯、卢旺达、沙特阿拉伯和伊朗等国家在镇压海外异见人士案件的排名也在世界前列。
+印度军事透露，印度目前也在孟买建造四艘法国设计的蝎子潜艇。巴基斯坦潜艇制造因发动机问题搁浅，令印度长吁了一口气。
 
-参考链接：
+中共近年来通过在印度洋东岸的斯里兰卡、巴基斯坦等国，投入巨资购买港口长期使用权等手段，建设军民两用港口，把势力扩展到印度洋。其又通过帮助巴基斯坦建造潜艇留下后门，把印度洋的海底情报收入囊中。通过在潜艇上装配由中共掌握核心技术的核武和导弹，把巴基斯坦海军变成中共的附庸军队，对印度及印度洋地区形成战略威慑。
 
-[https://www.breitbart.com/asia/2021/02/05/report-china-russia-turkey-iran-target-critics-dissidents-living-abroad/](https://www.breitbart.com/asia/2021/02/05/report-china-russia-turkey-iran-target-critics-dissidents-living-abroad/)
+编辑/校对/发稿：Irene木木
 
-[https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/cm-02052021103240.html](https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/cm-02052021103240.html)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-[中国 上海，异见人士郭飞雄在机场失踪 (asianews.it)](http://www.asianews.it/news-zh/%E4%B8%8A%E6%B5%B7%EF%BC%8C%E5%BC%82%E8%A7%81%E4%BA%BA%E5%A3%AB%E9%83%AD%E9%A3%9E%E9%9B%84%E5%9C%A8%E6%9C%BA%E5%9C%BA%E5%A4%B1%E8%B8%AA-52250.html)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
 
 0

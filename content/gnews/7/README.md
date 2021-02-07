@@ -1,33 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】美国土安全部长重申“打击国内恐怖主义”
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/885978/)
+## 【灭共头条】新国安法下香港SIM卡注册计划令港人感到恐惧
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/886160/)
 
-作者：纽约香草山  人间世 校对/发稿：飞虹
+编译报道：Ermat【㊙️翻Gnews原创组】
+责任编辑：心声
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Picture1-41.jpg)图片来源：cn.nytimes.com
+香港回归只有20多年，然而现在的“一国两制”几乎荡然无存。中共在香港不仅大规模搜捕非建制派人士，斩断议会选举之路，而且扼杀民主思想，对香港儿童进行洗脑式教育。最近又把黑手伸向银行业务。
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
+据香港自由报（Hong Kong Free Press）2月5日报道，香港政府宣布一项计划, 要求购买预付SIM卡的人需提供真实姓名和身份证明，提供虚假信息者可判处10至14年监禁。并对外宣称这一计划是用以遏制购物诈骗、贩卖人口和身份盗窃等犯罪行为。
 
+香港人的生活离不开银行业务，而SIM卡注册计划赋予了银行在没有法院令状的情况下，可以向香港民众索取个人数据的权力。这项政策还将允许电信公司将用户的个人资料储存一年，如果个人不提供个人资料，将终止服务。
 
+这次事件的曝光，令市民普遍感到害怕和不安。人们越来越清楚地意识到，根据国家安全法，他们所做的任何财务决定, 都可能被港政府用来对付他们。随着政府的打击和突击检查力度的加大，大多数香港人都明白，他们的工作场所和个人生活都无法免受国家的监控和惩罚。
 
-2021年2月6日，美国国土安全部部长亚历杭德罗·马约卡斯（Alejandro Mayorkas），重申将致力于打击美国最大威胁之一的“国内恐怖主义”。
+参考链接：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/图片5-15.png)图片来源：AP Photo / Evan Vucci
-
-马约卡斯是美国首位拉丁裔国土安全部部长，曾在奥巴马执政时期担任国土安全部(DHS)副部长。马约卡斯在周六晚间播出的采访中对CNN说，“看到叛乱，看到1月6日的恐怖行为不仅对个人造成了破坏，而且……这促使我下定决心，要加倍努力打击仇恨，打击我们目前在本土面临的最大威胁之一，即国内恐怖主义的威胁”。
-
-到目前为止，美国民主党和拜登政府对1月6日国会“暴动”的反应可谓相当激烈。国会正以此为借口第二次弹劾美国前总统特朗普。美防长劳埃德·奥斯汀2月3日下令，全军在未来60天内的某个时间点暂停常规活动，以便集中精力应对军内的“极端主义”问题，促使奥斯汀做出这一决定的直接原因也是国会暴动。
-
-然而，美国国内民众对1月6日国会暴动的看法存在很大分歧。至少相当一部分川普总统的支持者并不认为暴动乃川普支持者所为。假如美国民主党和拜登政府的上述一系列行动主要目的在于打击川普支持者的话，美国社会的内部分裂恐怕会因此变得更加严重。以中共为代表的邪恶势力，当然非常乐意看到这一幕发生。
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+[Hong Kong’s SIM card registration plan aims to sow fear, distrust and self-censorship](https://hongkongfp.com/2021/02/05/hong-kongs-sim-card-registration-plan-aims-to-sow-fear-distrust-and-self-censorship/)
 
 0
