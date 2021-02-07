@@ -1,33 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 扼杀民主思想：中共对香港儿童进行洗脑教育
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/884992/)
+## 新国安法加速人才外流，2020年近1.1万香港人迁台
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/885040/)
 
-俄罗斯莫斯科喀秋莎农场 文强
+*新闻来源：HKFP《香港自由新闻》| 作者：AFP 法新社| 发布时间：2021年2月3日*
 
-编辑上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-06_20-20-34.jpg)[cbc.ca](https://www.cbc.ca/news/world/hong-kong-teaches-children-about-subversion-1.5902310)
-周四（2月4日），香港教育局发出通告，为维护中共国家主权、安全和发展利益，要向全港学校推广国家安全教育，并要求学校在两个学年内全面落实国安教育相关内容。
+*翻译/简评：helloworld |校对：SilverSpurs7 |审核：万人往 |Page：小雨*
 
-教育局发言人说，维护中共国家主权、安全和发展利益，是香港特别行政区的宪制责任，亦是所有香港居民（包括学校教职员和学生）的共同义务。
+[!\[\]()!\[\](https://spark.adobe.com/page/U5R4eXGDJU3VK/images/4989abce-bacb-4054-9500-02f0a978f547.jpg?asset_id=3ac15b76-277a-4615-9443-557369350892&amp;img_etag=%222825fae7943755ff5f88864bf38b7e8b%22&amp;size=2560)](https://spark.adobe.com/page/U5R4eXGDJU3VK/images/4989abce-bacb-4054-9500-02f0a978f547.jpg?asset_id=3ac15b76-277a-4615-9443-557369350892&amp;img_etag=%222825fae7943755ff5f88864bf38b7e8b%22&amp;size=1024)
 
-原文指出：“学校应帮助学生正确地认识《香港国安法》及国家安全所涵盖的重要理念，让他们了解法治精神，从而加强他们国家安全的观念和守法意识，培养他们成为守法的良好公民。”为支援学校推广国家安全教育，教育局持续更新或增加相关教学资源，初中阶段在现有宪法与《基本法》的基础上，加入三小时的国家安全方面教育内容。小学方面，制作了“国家安全•你我要知”有声绘本。教育局将继续适时向学校发布新增的学与教资源，以此对在港的青少年进行强制洗脑教育。
+**简评：**
 
-就在本通告发出的前几日，中共发表了“全面加强新时代少先队工作的意见”，其中提到要通过加强与港澳台少年儿童组织、机构的交流合作，增强港澳台少年儿童的国家认同、民族认同和文化认同。中共对思想意识控制的魔手已经伸向儿童，从小开始灌输“法西斯集权”洗脑，试图在根本上扼杀民主法治思想的萌芽。
+在中共用国安法的铁腕凌虐香港之时，大量的香港手足选择离开香港，前往台湾等地。
 
-反送中运动以来，中共就将学校视为香港的头号不稳定因素。香港学校课程加入国安教育，本质是从小开始灌输红色意识形态。这不仅是中共最新少先队工作意见在港澳的具体表现，也是中共镇压异议的最新举措，加强对香港人政治倾向控制的同时，更是将洗脑教育与政治审查全面引入香港校园。妄图对少年儿童灌输邪恶的马克思共产主义的理论，确保红色政权代代相传。
+共产党一直叫嚣着留岛不留人，但其实，勇敢智慧的香港人，以及他们的智慧和财富，才是共产党的真正目标。在西方已经意识到香港现状的当下，香港人的离去，将让这座民主之光已经暗淡的城市彻底失去最后的光辉。同时，这也会让共匪吸血香港计划落空，以及让先前选择绥靖妥协的香港资本家和背后的西方势力，感受共匪残忍，从而逼迫他们站队。
 
-值得一提的是，去年中共香港领导人林郑月娥（Carrie Lam）将通识教育课程归咎于助长了2019年的香港民主抗议活动，并发誓要彻底改革教育体系。
+希望香港手足能在共匪疯狂之际暂避锋芒，保留实力，爆料革命将尽能力团结和争取西方力量，为香港手足报仇！
 
-资料来源：
+**原文翻译：**
 
-[https://www.theguardian.com/world/2021/feb/05/lets-learn-about-national-security-hong-kong-releases-video-for-young-children](https://www.theguardian.com/world/2021/feb/05/lets-learn-about-national-security-hong-kong-releases-video-for-young-children)
+# **2020年，近1.1万名香港人移居台湾，因为国安法加快了移民的步伐**
 
-[教育局促學校防範違《國安法》教學 跟進及懲處違規個案 (yahoo.com)](https://hk.news.yahoo.com/%E6%95%99%E8%82%B2%E5%B1%80%E4%BF%83%E5%AD%B8%E6%A0%A1%E9%98%B2%E7%AF%84%E9%81%95-%E5%9C%8B%E5%AE%89%E6%B3%95-%E6%95%99%E5%AD%B8-%E8%B7%9F%E9%80%B2%E5%8F%8A%E6%87%B2%E8%99%95%E9%81%95%E8%A6%8F%E5%80%8B%E6%A1%88-095400232.html?guccounter=1)
+**此前的记录是2014年在香港金融中心的泛民主运动即“雨伞运动”期间的7,506人。**
 
-[https://m.secretchina.com/news/gb/2021/02/05/961547.html](https://m.secretchina.com/news/gb/2021/02/05/961547.html)
+在北京当局对香港全面实施国安法后，2020年有将近1.1万香港人移居台湾，这几乎是一年前的两倍。
 
-[https://sc.isd.gov.hk/TuniS/www.info.gov.hk/gia/general/202102/05/P2021020500457.htm](https://sc.isd.gov.hk/TuniS/www.info.gov.hk/gia/general/202102/05/P2021020500457.htm)
+长期以来，由于香港的疯狂节奏和高昂租金，民主台湾一直吸引着香港人将其作为替代选择。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/U5R4eXGDJU3VK/images/a2fb5019-4b46-44a2-aabc-7060741fde3d.jpg?asset_id=994f9ea2-9791-4664-a285-c1438e9a84a6&amp;img_etag=%2294f78385d3f4642541a8848a91cc776e%22&amp;size=2560)](https://spark.adobe.com/page/U5R4eXGDJU3VK/images/a2fb5019-4b46-44a2-aabc-7060741fde3d.jpg?asset_id=994f9ea2-9791-4664-a285-c1438e9a84a6&amp;img_etag=%2294f78385d3f4642541a8848a91cc776e%22&amp;size=1024)
+
+照片：Uming Photography，来源：Flickr
+
+然而，新国安法加速了香港人的外流。根据台湾国家移民局的数据，2019年，获得短期居留权的香港人，其人数从5858人飙升至10813人。
+
+而之前的2014年，在这个金融中心爆发寻求民主的“雨伞运动”时，有7506人获得了台湾短期居留权。
+
+台湾《自由时报》援引未具名消息人士的话说，如果不是因冠状病毒而采取的边境限制措施，入境人数将会更高。
+
+因担心大陆专制地区难民涌入的可能性，台湾没有庇护或难民法，也不接受难民申请。
+
+不过，香港人可通过其他渠道（包括投资签证），申请岛内的居住资格。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/U5R4eXGDJU3VK/images/8689a83f-2e82-4c3d-8261-b40f370a3a25.jpg?asset_id=5dd6281b-de86-4814-b738-6f83f2b06e46&amp;img_etag=%2274cde883cbc34fed8546f8fba5463661%22&amp;size=2560)](https://spark.adobe.com/page/U5R4eXGDJU3VK/images/8689a83f-2e82-4c3d-8261-b40f370a3a25.jpg?asset_id=5dd6281b-de86-4814-b738-6f83f2b06e46&amp;img_etag=%2274cde883cbc34fed8546f8fba5463661%22&amp;size=1024)
+
+去年1月11日选举日，支持香港民主的示威者在台北集会。（图：Viola Kam /联合社会出版社）
+
+蔡英文总统的政府誓言支持香港的民主运动，并在去年成立了一个新的办公室，以处理寻求留岛的香港人。
+
+在香港地方当局增加了基于《国家安全法》的起诉后，越来越多的香港人（包括一些著名的活动人士）选择流亡海外。
+
+八月下旬，12名活动人士在试图乘船逃往台湾时，被中共国海岸警卫队逮捕。
+
+这艘船上的大多数人被指控涉嫌与去年在香港发生的大规模、经常带有暴力性质的民主抗议活动有关的罪行。
+
+自1989年天安门镇压以来，在一些帮助人们逃离北京的活动人士网络的帮助下，加拿大成为了一个受欢迎的逃亡目的地。
+
+英国还扩展了近300万具有英国国民（海外）护照资格的香港人的居住权。这些人是在1997年香港殖民地移交之前出生的。
+
+🔗[原文链接](https://hongkongfp.com/2021/02/03/nearly-11000-hongkongers-moved-to-taiwan-in-2020-as-security-law-accelerates-exodus/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：[【英国伦敦喜庄园编辑部】](https://spark.adobe.com/page/U5R4eXGDJU3VK/)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/U5R4eXGDJU3VK/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/U5R4eXGDJU3VK/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0
