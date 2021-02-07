@@ -1,23 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【看七哥视频】反美是工作、赴美是生活！
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/888782/)
+## 中共国利用西方高科技威胁和审查基督徒
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/888787/)
 
-**作者: **儒为  **校对/发稿人: **Ting Guo
+据CBN新闻2021年2月4日报道：中共利用西方科技手段，对中国境内的基督徒进行全方位的严密监控，其后果令人不寒而栗。大卫•库里敦促拜登政府将人权及宗教自由列为新政府上任之始所需要处理的优先级事项，并在国务院任命一个能为人权及宗教议题发声的大使。
+[下载字幕文件](https://gnews.org/cbn_20210204-taiwan-srt/)
+中英文对照全文：
 
-稍微关注中美关系、互联网媒体的国人都清楚这句话的出处，这个论调“反美是工作、赴美是生活”，一度成为各个媒体网上热议的话题。不去谈个体的褒贬，它已经成为中共国一种社会现象，它是体现了一个国家一小撮人扭曲的和变态的心理，无底线、无原则、无道义，只逐利的小人行径。这个一小撮人本应该是被社会唾弃的、不鼓励的，但是在中共国内确大行其道、风生水起。不知道是这一小撮人疯了，还是我们这个国家都疯了。
+For the first time in a decade, China re-enters the top 20, and new data information indicates the communist superpower is using western tech including Facebook, Zoom and Apple to threaten and censor Christians.
 
-七哥最近视频中也提到：共产党那些大外宣那帮孙子、国内所谓的教授们，他们的子女全都来美国了，然后在那个台上讲，“这次体现了社会主义的优越性”。你姥姥的，鸡蛋贵了、牛肉贵了、中国癌症高了、中国人的商场关了，你不是GDP涨了八千亿吗？那你别缺钱哪！你银行别倒闭呀！你们说你们这帮孙子，有多烂、瞪眼撒谎。GDP涨了，菜价、肉价也涨了，银行关闭了，老百姓钱取不出来了，他说：“美国不好你们别去”。为什么说美国好的却不去美国？他来不了美国呀！谁都想来美国，你不让人家来呀！你这帮孙子，你搞边控啊！人家爱美国人，你不让他来呀！所以说，兄弟姐妹们，你们说共产党有多不要脸，他们敢这么不要脸地说，也有人敢这么不要脸地传，也敢不要脸地信。
+十年来的首次，中国重新进入前20名。最新数据显示，这个共产主义超级大国正在使用包括Facebook、Zoom 和 Apple 在内的西方科技来威胁和审查基督徒。
 
-其实我们都清楚把“反美是工作、赴美是生活”当成借口的这些人，是“下三滥”、“不入流的”。他们跑到美国，回头跟中国说美国多不好，或者把老婆孩子送到美国，然后在中国大骂美国。两边儿的便宜都想占，这种人现实中还挺多的，他们知道美国哪里好，所以选择去了美国，但他们不说。因为这些人知道在中共国骂美国是有狗粮的拿的，而且在美国骂美国没有什么后果，没人管，特别是这些人在美国骂美国，用的都是中文，美国人也看不明白，就是为了给好不容易才翻墙的华人看，混淆视听，从而替中共粉饰。
+“There’s a hundred million christians right now in China, and they are using their technology to surveil the church. They’re watching their every move. They’re seeing when they go into church. They’re using facial recognition. They’re looking at their searches online. They have a massive surveillance system, which is monitoring religious practice in China, and it is absolutely chilling.”
 
-中共国最底层老百姓，对于美国的认知完全来自官方新闻媒体，根本没有了解真相的渠道，加上从小被洗脑，从来没有想过官方的新闻媒体会说假话。但是在中共内，凡是有点权的、有点钱的人，哪一个不对美国趋之若骛？看看那些移民海外的人，大部分都有权的、有钱的。作为被宣传的韭菜底层者，对于自已生活的种种不满，你敢放一个屁吗？放屁也只能嘲讽唾骂美国而已，即便你再穷再无助，你也不敢去骂你自已的那个环境。作为韭菜，就要有韭菜的觉悟，不失为是一种对自己的保护，这也是割韭菜的人最想看到的现象，同时也是韭菜们的最大悲哀。
+“中国目前有1亿基督徒。[中共]用他们的技术来监视教堂，监视人们的一举一动，看人们什么时候会去教堂。他们用的是脸部识别技术。他们在网上搜索。他们有一个庞大的监视系统用以监控在中国的宗教活动，这绝对令人不寒而栗。”
 
-“反美是工作、赴美是生活”这种扭曲的人格，是一种精神分裂；这些人是我华人中的垃圾、奸民，他们做的事情比共产党还坏、还恶。一方面，他们心中知道共产党是什么东西，但是为了那么点的狗粮，抛弃道德、人性，反过来帮着共产党一起给生活在底层老百姓洗脑、宣传虚假信息。另一方面，他们却拿着蘸着血的馒头到美国去生活，消费，这种人心中谁都没有，只有自己。
+Meanwhile, Curry hopes the Biden administration will make human rights and religious freedom a priority in its first 100 days.
 
-我们一定要时刻警醒，明辨是非，不能是别人都这么做，我们就认为这么做没问题；不能别人都是这么说，我们也可以这么说。唯真不破、善待自己和他人、对自己狠和对自己的敌人更狠，这才是我们永远需要学习和秉承的“新中国联邦精神”！
+与此同时，库里希望拜登政府在上任初始的100天内，将人权和宗教自由列为优先事项。
 
-#### 文章仅代表战友个人观点
+“Well, we’ve briefed the Biden administration. They’re aware of the World Watch List. They respect the data, and we’re suggesting, first, you appoint a respected person at the State Department, an ambassador for religious liberty. The Obama administration took almost two years to find somebody, and then it was wasn’t somebody who had direct access to the State Department.”
+
+“我们已经向拜登政府做了汇报，他们知晓 《世界观察名单》，他们尊重数据。我们建议，首先，你应该任命一个在国务院中受人尊敬的人，一个代表宗教自由的大使。奥巴马政府花了两年时间才寻找到这么个人，然而这个人还没有直接与国务院联系的权限。”
+
+Curry adds the church and other organizations need a place at the table and use their voice to keep a focus on human rights and religious freedom. Charlene Aaron,  CBN News.
+
+库里补充说，教会和其它组织需要具有话语权，去发出他们关注人权和宗教自由的声音。查琳·艾琳，CBN新闻。
+
+视频来源：[https://www.youtube.com/watch?v=OPij6uHSqE8&feature=youtu.be](https://www.youtube.com/watch?v=OPij6uHSqE8&amp;feature=youtu.be) (5:50-7:08)
+
+以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。
+
+听写 & 翻译：【奔腾的长江】校对：【Isaiah4031】字幕：【相机过热啊】编辑：【Mark】【Isaiah4031】
+
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
 0

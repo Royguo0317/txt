@@ -1,81 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【聚焦】从“群体免疫”被证无效说起
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/886516/)
+## 2/7/2021 财经快讯：全球或面临大通胀时代；核酸检测成核酸经济
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/886591/)
 
-#### ——中共病毒的关键细节：群体免疫、自身免疫和羟氯喹
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2021-02-07_230040.png)图片来源: https://www.tennessean.com
+**1.亚马逊或通过提高最低工资来压垮竞争对手**
 
-#### 作者：枳实
+亚马逊的一位高级主管杰伊·卡尼（Jay Carney）最近代表该公司写信支持民主党将美国最低工资提高一倍以上。华盛顿观察家报认为这是一个巨大的危险信号。 自2018年以来，亚马逊已经向其小时工支付15美元或以上的工资。它的真正目的是游说联邦政府提高竞争对手的成本，并帮助其取代更多的小型企业。大公司能够通过提价将大部分成本转嫁给消费者，对大公司的损失也很小。 对于像亚马逊这样的公司来说，最低工资的上涨存在着巨大的利益：它们通过使小企业破产而压制了这些企业的竞争。 世界各地的大公司拥有巨大的资源来抵御大幅加薪。 但是，即使在经济景气的时候，小企业也不会这样做。
 
-#### 编辑：翼族
-![]()![](https://gnews.org/wp-content/uploads/2021/02/11-3.png)
-图片来源：墨尔本雅典娜农场设计组
+[https://www.washingtonexaminer.com/opinion/amazons-swampy-lobbying-for-15-minimum-wage-proves-the-little-guy-really-loses](https://www.washingtonexaminer.com/opinion/amazons-swampy-lobbying-for-15-minimum-wage-proves-the-little-guy-really-loses)
 
-**【编者按：本篇文章上次发表后受到很多战友的认可，应西班牙巴塞罗那喜悦农场战友的要求，作者重新加了四个标题以方便阅读及传播，现重新发表。】**
+**2.全球原油价格小幅上涨**
 
-“魔鬼就藏在细节中”，中共病毒的疫苗也不例外。本文将试图从与免疫有关的几个细节揭示中共病毒一些关键的真相。
+本周伦敦期货市场原油价格升至每桶60美元，原因是全球供应趋紧，同时随着疫苗的推出，需求前景有所改善。 布伦特原油连续第六个交易日攀升，推升至2020年2月以来的最高盘中水平。数据分析公司OilX称，与中共国石油期货相关的原油库存跌至2020年6月以来的最低水平，这是全球最大进口国库存减少的最新迹象。 最近的反弹受到商品激增的支持, 石油输出国组织及其盟国已承诺将继续消耗石油盈余，并且人们预计今年全球经济将复苏，从而提高了对石油需求强劲的预测。西德克萨斯期货投资者持仓量飙升至2018年以来的最高水平。 瑞银集团（UBS Group AG）分析师乔凡尼·斯汤诺沃（Giovanni Staunovo）表示：“石油需求的状况好于预期，而石油联盟的增长并不多。在石油库存仍在下降的情况下，油价正在上涨。”
 
-#### 一，** **病毒变异导致群体免疫无效，预示疫苗将无法控制疫情
+[https://www.newsmax.com/t/newsmax/article/1008823/2](https://www.newsmax.com/t/newsmax/article/1008823/2)
 
-《柳叶刀》在2021年1月27日发表了一篇论文[1]，显示“群体免疫”并不能阻止中共病毒的流行。这项研究在巴西城市Manaus采取血样，发现在2020年10月之前已经有76%的献血者已经感染了中共病毒，这说明Manaus人口的感染率已经超过了公认的67%的群体免疫的标准。然而在2021年1月Manaus仍然出现了二次爆发。这说明群体免疫并不能通过人群的免疫力的建立而阻断病毒的流行。实际上，已经在巴西发现了2到3种毒性和传染性更强的变异毒株，事实证明了病毒变异足以使群体免疫失去控制疫情的作用。
+**3.美左派议员称1.9万亿美元刺激方案应该是援助底线而非上限**
 
-一般来说，真实的病毒感染产生的免疫要强于疫苗所能诱发的免疫。既然连病毒感染造成的群体免疫都不能阻止疫情二次爆发，又如何能指望广泛疫苗接种可以控制疫情呢？有些疫苗制造商声称其疫苗能比活病毒感染诱发更好的免疫，可是连中共病毒疫苗的铁杆支持者——澳大利亚广播公司医疗健康领域的记者诺曼·斯旺医生（Norman Swan）都半信半疑[2]，他评论说恐怕要等全部人口的疫苗接种完成才能看到疫苗是否能有防疫效果，如果疫情复燃可能需要继续接种更多疫苗，甚至要根据变异毒株情况对疫苗做调整。
+周五美左派议员亚历山大-奥卡西奥-科尔特斯 (Alexandria Ocasio-Cortez)为拜登总统的1.9万亿美元刺激法案进行了辩护，称将近2万亿美元的标价应该是“底线，而不是上限”, 参议院周五早上通过了这项方案。
 
-#### 二，反复疫苗注射将诱发自身免疫疾病
+由民主党领导的众议院通过的1.9万亿美元救助计划是继去年12月前总统唐纳德·特朗普（Donald Trump）签署2.3万亿美元政府支出后达成的。 几个月前，特朗普签署了一项规模达2.2万亿美元的CARES法案。 该法案向符合条件的美国人提供1,200美元的直接支票付款以及600美元的额外补助。 拜登的提案将提供1,400美元的个人支票，加上CARES法案中的600美元, 这相当于2,000美元的个人刺激付款。
 
-我们都知道，中共疫苗疫苗刚刚上市就已经出现了可能逃避疫苗免疫保护的毒株。即使疫苗研发能追得上病毒变异的速度，短期内人体能否耐受多次的疫苗注射呢？没有人知道答案，因为目前缺乏这方面的临床试验数据。
+[https://www.breitbart.com/politics/2021/02/06/alexandria-ocasio-cortez-1-9-trillion-relief-should-be-floor-not-ceiling/](https://www.breitbart.com/politics/2021/02/06/alexandria-ocasio-cortez-1-9-trillion-relief-should-be-floor-not-ceiling/)
 
-可是动物试验的结果并不乐观。日本神户大学在2009年发表的对小鼠的研究[3]发现，重复的疫苗接种刺激不可避免的会导致小鼠发生自身免疫现象。所谓自身免疫，也就是免疫系统不能分清敌我，对自身组织发起攻击。本来小鼠并没有发生自身免疫疾病的倾向，可是反复的免疫接种对免疫系统的过度刺激却导致了自身免疫的发生。
+**4.疫情期间全球芯片短缺重创汽车制造商**
 
-然而自身免疫性疾病对人类来说并不罕见，我们平常可能听到过的类风湿性关节炎，很多类型的甲状腺疾病，红斑狼疮等等，它们都是自身免疫引起的疾病。正常的疫苗接种诱发自身免疫病的副作用在人类更加不是新鲜事。比如在1976年美国大规模接种猪流感疫苗然后被迫中止的事件中，格林巴利综合症的发生率就明显升高。而格林巴利综合症正是一种自身免疫疾病，它是人体免疫系统对周围神经发起攻击破坏导致瘫痪和麻痹的病症。单次的疫苗接种就可能诱发这么严重的自身免疫疾病，那么多次反复的接种会带来什么后果呢？
+美议员本周要求拜登政府干预全球计算机芯片短缺的问题。 通用汽车，丰田，福特和斯巴鲁等汽车制造商在疫情爆发之初就被迫关闭工厂。 当工厂重新开放时，随着人们的需求，低利率，客户对汽车的需求激增, 汽车制造商则将产量提高到最高水平，进一步拉动了对芯片的需求和竞争。据彭博社报道，芯片制造商正在以最大的产能运转。一位接受彭博社采访的分析师表示，像苹果这样的手机制造商比汽车制造商更愿意为芯片支付更高的价格。不过，这并不意味着智能手机制造商并未受到芯片短缺的负面影响。据报道，苹果公司面临着为其10月份面世的配备5G的iPhone 12型号提供动力的芯片供应问题。但是汽车行业特别感到了压力，由于短缺，有些汽车甚至不得不停产。福特和菲亚特暂时没有生产，因为它们没有足够的芯片。咨询公司Alix Partners的数据显示，如果没有足够的芯片供应，到2021年，汽车制造业可能亏损610亿美元。
 
-更糟糕的事，中共病毒本来就很容易造成免疫系统的紊乱。本次疫情已经有很多病毒诱发自身免疫的报道。包括川普总统在被中共病毒感染后也曾接受糖皮质激素的治疗，以防止免疫系统过度反应攻击自身组织。《医学病毒学》杂志在2020年12月发表了一篇文章[4]，总结了中共病毒感染造成的免疫系统对神经组织的自身免疫攻击现象，标题就相当耸人听闻——“我们是否正面临自身免疫性脑炎的流行率增长？”
+[https://www.businessinsider.com/why-is-there-chip-shortage-car-companies-electronics-supply-chain-2021-2](https://www.businessinsider.com/why-is-there-chip-shortage-car-companies-electronics-supply-chain-2021-2)
 
-由此看来，一方面中共病毒感染本身就容易诱发自身免疫，另一方面免疫接种的刺激也可能诱发免疫系统的紊乱。如果因为变异株的出现又要注射更多疫苗的话，其结果就是大多数人的免疫系统将会承受中共病毒，多次注射的疫苗，若干种能逃避疫苗保护的变异毒株的三重乃至多重刺激压力。这很可能超过很多人的免疫系统的负荷，诱发自身免疫疾病。
+**5.大宗商品价格飙升25%或至全球通胀率达4%**
 
-就在几天前，一名19岁的青年接种辉瑞疫苗后因心肌炎被送入重症监护室抢救[6]。他在接受疫苗注射后就立即出现了心慌、呼吸困难和向左臂放射的胸痛症状，5天后病情危重被送入重症监护室。医生怀疑这是疫苗注射后的免疫反应诱发的心肌炎，换句话说其实就是自身免疫反应。最近福奇博士竟然声称要在春夏之际对儿童也进行免疫接种以建立群体免疫。两大药厂对儿童疫苗的临床研究最早是从去年的10月才开始的，大名鼎鼎的福奇博士就迫不及待要给儿童打疫苗。就这么几个月的研究怎能知道这种疫苗会不会造成儿童自身免疫疾病，怎么可能验证疫苗的安全性？当年法国赛诺菲药业的登革热疫苗虽然经过长达6年的临床研究，在大规模应用时仍然有几百名接种儿童死亡，最后被菲律宾卫生部门紧急叫停。福奇博士打算就这样匆忙对儿童大规模接种会造成多大的近期和远期危害？
+零对冲周六发文，全球大宗商品价格飙升25%。尽管每个主要发达经济体仍将所谓的核心通货膨胀率控制在2％以下，但这是有原因的：CPI和PCE等指标在政治上很方便，实际上剥夺了所有篮子组成部分， 物价飞涨，使央行有余地奉行政治上可接受的所有资产清算政策, 不过正如BMO的道格·波特（Doug Porter）所指出的，一篮子商品价格（大部分都显示出类似的模式）的同比增长现在略高于25％, 而在过去的20年中，这种同比增长与整体通货膨胀率不到4％保持一致，现在高于25%的模式则说明存在问题.
 
-#### 三，羟氯喹比疫苗更安全，更有效
+[https://www.zerohedge.com/markets/commodities-are-soaring-25-thats-consistent-headline-inflation-almost-4](https://www.zerohedge.com/markets/commodities-are-soaring-25-thats-consistent-headline-inflation-almost-4)
 
-由此看来，不管是疫苗还是中共病毒，本身都容易诱发自身免疫和免疫功能紊乱。那该怎么办呢？其实饱受抹黑的羟氯喹就是能发挥类似疫苗作用的现成预防药物。羟氯喹本来就是用来治疗常见的自身免疫疾病如红斑狼疮，类风湿性关节炎的药物。它不仅能调节免疫，抑制细胞因子风暴，而且它还能抑制中共病毒进入细胞，帮助锌离子进入细胞，而锌离子就能够抑制RNA病毒的复制（所有病毒的复制都必须在细胞内进行），从而能广泛抑制大多数RNA病毒，包括流感病毒，当然也囊括了所有中共病毒的变异毒株。更妙的是羟氯喹在体内可以停留很长时间，体内半衰期长达32天以上，所以预防用药时不需要每天服药，只需要每周服用就可以，同时羟氯喹预防疟疾已经有长期广泛的使用经验，安全性得到了可靠的验证，根据美国疾病控制中心（CDC）的指南[7]，孕妇、哺乳期妇女，包括婴儿都可以安全服用羟氯喹作为预防疟疾用药。
+**6.核酸检测成春运最大订单，第三方医检市场规模达千亿**
 
-有一组科学家在业余时间义务建立了一个中共病毒预防和治疗研究的非常优秀的网站”COVID-19 Studies”。 这个网站[8]总结了羟氯喹预防和治疗的240个临床研究，其中173个已经经过同行评议，结果证明羟氯喹无论是在暴露前预防，还是暴露后预防，以及早期治疗上都有33-67%的改善，尤其是早期治疗对死亡率的改善达到75%。这个网页最近也获得了川普总统前助理纳瓦罗教授的转推，他评论道：这再次证明福奇和CNN的手上沾满了鲜血（因为他们对羟氯喹的抹黑和压制）。
+中共交通部预测“有约17亿人次出行”的2021年春运，核酸检测成为必要通行证。巨大需求之下，远远超出公立医院能够承载的服务能力和市场，第三方/独立医学检验机构（ICL）将成为重要补位角色。1月20日，中共国家卫健委明确指出，春节返乡人员需持7天内有效的新冠病毒核酸检测阴性结果返乡，返乡后实行14天居家健康检测，期间每7天开展一次核酸检测。也就是说，返乡过程中每人要自费进行至少3次核酸检测。华安证券此前估算称，“包含城区和农村的返乡人次约为6亿人次。” 换算一下，18亿人次的核酸检测需求将在这个春节被释放。
 
-既然羟氯喹效果那么好，为什么主流科学界和医学界都没有大力推荐，甚至极力夸大其副作用呢？道理很简单，因为羟氯喹有一个致命的“缺点”：它实在是太便宜了！有羟氯喹在，要开发出比羟氯喹更安全，更有效预防中共病毒的疫苗更加成为不可能的任务。疫苗的生意对药品公司来说是稳赚不赔的大生意，疫苗就算再不安全，只要被政府批准，疫苗副作用产生的索赔再多，最后也基本上都是由纳税人买单，药厂不需要承担赔偿责任，只负责收钱就好。所以敢站出来支持羟氯喹，质疑疫苗的人就是公然挡人财路。胆敢这样做的科学家或医生或者是具备英雄气概和济世悲悯胸怀，比如闫丽梦博士；或者独立开业，不需要医药财团提供经费而勇于仗义执言的家庭医生，比如泽连科（Zelenko）医生；大多数科学家和医生们往往只能匿名说出真相，比如前面说的COVID-19 Studies网站的科学家团队，没有一个人敢署名，他们只能义务贡献时间，用数据替代他们说话。因为羟氯喹，有医生丢掉工作，有网站被关闭。在疫情已经蔓延全球1年之久，130多万人死亡之后，Facebook和《美国医学杂志》才刚刚承认他们在羟氯喹上的立场是错误的。[9]
+[https://ishare.ifeng.com/c/s/v004WiUmEom9ffMNa835Taxm-ic9bdI12XdZvTnBtmjCE–BnxQ3VOUzlwyqhNz1KglSArcCh38O–zonRgIli0QAo5Q\_\_\_?spss=np&aman=1cw40fDc672ef8q49b94b6Ad74Nc6fj418je01H305](https://ishare.ifeng.com/c/s/v004WiUmEom9ffMNa835Taxm-ic9bdI12XdZvTnBtmjCE--BnxQ3VOUzlwyqhNz1KglSArcCh38O--zonRgIli0QAo5Q___?spss=np&amp;aman=1cw40fDc672ef8q49b94b6Ad74Nc6fj418je01H305)
 
-#### 四，** **结语
+**7.比特币大涨，再次突破4万美元**
 
-闫丽梦博士从去年二月就已经开始告诉公众不会存在中共病毒的疫苗[10]，因为这种病毒经过了实验室的功能增强（用人工方法改变病毒以增加毒性和传染性，耐受力等等），而且具备很强的变异性。现在这些都被一一被验证了。中共病毒疫情蔓延一年多来，从人传人、封锁边境到戴口罩是否有用等问题上已经反复证明WHO和福奇博士为代表的主流科学界的声音不再可信。病毒真相事关每个人的切身利益，要寻求真相，需要我们自己努力挖掘，正如COVID-19 Studies网站中所说的，“您不需要相信我们的结论，所有的论文信息都是已经公开发表的，您只需要自己验证。”从闫博士在2020年1月19日通过路德社揭露中共病毒来源于实验室、强变异、大爆发以来，闫博士和爆料革命的话一一都得到了验证，相反，主流科学界的当初关于中共病毒的很多说法最终都被证明错的离谱。魔鬼就藏在细节中，如果您耐心找寻细节，就会发现这一年来谁的说法始终如一，得到事实验证，谁的言论前后矛盾，频频被证伪。无论您只想在大疫情中拯救自己和家人，还是希望拯救人类，都需要花时间了解细节，自行验证，广泛传播真相。正如闫博士所言，留给人类的时间不多了！
+周六，比特币再次站上40000美元/枚上方，为1月14日以来首次。截至发稿，比特币报40242.7美元，涨幅超5%。不过，随着涨幅进一步扩大，越来越多的空头爆仓，据比特币家园网实时数据显示，全网数字货币1小时有3083.93万美元，约合1.99亿元人民币爆仓；24小时有5.09亿美元，约合32.84亿元人民币有去无回，高达8.9万人爆仓。
 
-（文章内容仅代表作者观点）
+[https://www.163.com/dy/article/G265TBOI0512B07B.html](https://www.163.com/dy/article/G265TBOI0512B07B.html)
 
-**参考链接：**
+By 【密翻组-金融团队】
 
-1. Resurgence of COVID-19 in Manaus, Brazil, despite high seroprevalence
+素材搜集: 文罡、Totoro
 
-[https://www.thelancet.com/journals/lancet/article/PIIS0140-6736(21)00183-5/fulltext](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2821%2900183-5/fulltext)
-
-2. You thought herd immunity would save us? Maybe not
-
-[https://www.abc.net.au/radio/programs/coronacast/you-thought-herd-immunity-would-save-us-maybe-not/13100018](https://www.abc.net.au/radio/programs/coronacast/you-thought-herd-immunity-would-save-us-maybe-not/13100018)
-
-3. [https://journals.plos.org/plosone/article?id=10.1371/journal.pone.0008382](https://journals.plos.org/plosone/article?id=10.1371/journal.pone.0008382)
-
-4. COVID‐19 and anti‐N‐methyl‐D‐aspartate receptor (anti‐NMDAR) encephalitis: Are we facing an increase in the prevalence of autoimmune encephalitis?
-
-[https://onlinelibrary.wiley.com/doi/10.1002/jmv.26745](https://onlinelibrary.wiley.com/doi/10.1002/jmv.26745)
-
-5. [https://news.yahoo.com/vaccinating-children-for-covid-19-could-be-key-to-achieving-herd-immunity-231757915.html?guccounter=1&guce\_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&guce\_referrer\_sig=AQAAAKsuKt8sRmQvQwD2Z3\_blR4-RK-2fT8n4lGaKXXQLlacxePEX6fm0MLMz18VAkR4C6Y3Vf7kir7Wdi-mh4gNvLoYZIcrD7YyJTtPAhKHr-3Vfqq2YUJjTRFiPu9V2NMpyUitsI-KUMQ0g-TDY5lXPLhehGCQnrU1fYlFHjjASdK\_](https://news.yahoo.com/vaccinating-children-for-covid-19-could-be-key-to-achieving-herd-immunity-231757915.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&amp;guce_referrer_sig=AQAAAKsuKt8sRmQvQwD2Z3_blR4-RK-2fT8n4lGaKXXQLlacxePEX6fm0MLMz18VAkR4C6Y3Vf7kir7Wdi-mh4gNvLoYZIcrD7YyJTtPAhKHr-3Vfqq2YUJjTRFiPu9V2NMpyUitsI-KUMQ0g-TDY5lXPLhehGCQnrU1fYlFHjjASdK_)
-
-6. [https://www.jpost.com/health-science/19-year-old-hospitalized-with-heart-inflammation-after-pfizer-vaccination-657428](https://www.jpost.com/health-science/19-year-old-hospitalized-with-heart-inflammation-after-pfizer-vaccination-657428)
-
-7. [https://www.cdc.gov/malaria/resources/pdf/fsp/drugs/hydroxychloroquine.pdf](https://www.cdc.gov/malaria/resources/pdf/fsp/drugs/hydroxychloroquine.pdf)
-
-8. [https://c19study.com/](https://c19study.com/)
-
-9. [https://www.thegatewaypundit.com/2021/01/440000-americans-dead-facebook-american-journal-medicine-admit-stand-hcq-wrong-people-prosecuted/](https://www.thegatewaypundit.com/2021/01/440000-americans-dead-facebook-american-journal-medicine-admit-stand-hcq-wrong-people-prosecuted/)
-
-10. [https://twitter.com/drlimengyan1/status/1356406969922445312?s=12](https://twitter.com/drlimengyan1/status/1356406969922445312?s=12)
+校对: 小蚂蚁在行动
 
 0
