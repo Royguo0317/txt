@@ -1,23 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】中共向巴基斯坦军队提供中共病毒疫苗
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/888711/)
+## 中共国利用西方高科技威胁和审查基督徒
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/888787/)
 
-报道：Wilson
+据CBN新闻2021年2月4日报道：中共利用西方科技手段，对中国境内的基督徒进行全方位的严密监控，其后果令人不寒而栗。大卫•库里敦促拜登政府将人权及宗教自由列为新政府上任之始所需要处理的优先级事项，并在国务院任命一个能为人权及宗教议题发声的大使。
+[下载字幕文件](https://gnews.org/cbn_20210204-taiwan-srt/)
+中英文对照全文：
 
-[印度斯番时报](https://www.hindustantimes.com/world-news/chinas-pla-provides-covid-19-vaccines-to-pakistan-army-101612704520510.html)报道，中国人民解放军（PLA）在一份声明中表示，巴基斯坦军队已成为中国军队第一个接受新冠病毒疫苗援助的外国军队，声明未透露提供疫苗的数量，但疫苗将在近日陆续从中国启运。此前巴基斯坦已经从其全天候盟友中国获得50万剂疫苗，该国正准备启动其免疫运动。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/vaccine-1.jpg)MANJURUL/GETTY IMAGES
-解放军还向柬埔寨军方提供中共病毒疫苗。据中共新华社报道，柬埔寨军队是首批接受中国军队新冠病毒疫苗援助的外国军队之一。 目前中共国的两种病毒疫苗已获得国内生产批准，而世卫组织预计将紧急批准这两种疫苗在全球推广使用，这将使该国能够加强全球疫苗的供应。
+For the first time in a decade, China re-enters the top 20, and new data information indicates the communist superpower is using western tech including Facebook, Zoom and Apple to threaten and censor Christians.
 
-早在中共刚刚放毒时，郭文贵先生就做出了神预测，指中共不仅放毒毒害全世界，还会手握因造毒而掌握有效疫苗的优势，大搞疫苗经济和外交，既赚世界各国的钱，又要世界各国跪在中共的脚下。如今郭先生的这一预测如期发生，离不开世卫组织等国际机构，以及对中共绥靖甚至互相勾结的各国腐败政府的神助攻。这也体现了郭先生在洞察人性和世事上的过人之处。
+十年来的首次，中国重新进入前20名。最新数据显示，这个共产主义超级大国正在使用包括Facebook、Zoom 和 Apple 在内的西方科技来威胁和审查基督徒。
 
-发/审稿：瑞卡
+“There’s a hundred million christians right now in China, and they are using their technology to surveil the church. They’re watching their every move. They’re seeing when they go into church. They’re using facial recognition. They’re looking at their searches online. They have a massive surveillance system, which is monitoring religious practice in China, and it is absolutely chilling.”
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+“中国目前有1亿基督徒。[中共]用他们的技术来监视教堂，监视人们的一举一动，看人们什么时候会去教堂。他们用的是脸部识别技术。他们在网上搜索。他们有一个庞大的监视系统用以监控在中国的宗教活动，这绝对令人不寒而栗。”
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+Meanwhile, Curry hopes the Biden administration will make human rights and religious freedom a priority in its first 100 days.
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+与此同时，库里希望拜登政府在上任初始的100天内，将人权和宗教自由列为优先事项。
+
+“Well, we’ve briefed the Biden administration. They’re aware of the World Watch List. They respect the data, and we’re suggesting, first, you appoint a respected person at the State Department, an ambassador for religious liberty. The Obama administration took almost two years to find somebody, and then it was wasn’t somebody who had direct access to the State Department.”
+
+“我们已经向拜登政府做了汇报，他们知晓 《世界观察名单》，他们尊重数据。我们建议，首先，你应该任命一个在国务院中受人尊敬的人，一个代表宗教自由的大使。奥巴马政府花了两年时间才寻找到这么个人，然而这个人还没有直接与国务院联系的权限。”
+
+Curry adds the church and other organizations need a place at the table and use their voice to keep a focus on human rights and religious freedom. Charlene Aaron,  CBN News.
+
+库里补充说，教会和其它组织需要具有话语权，去发出他们关注人权和宗教自由的声音。查琳·艾琳，CBN新闻。
+
+视频来源：[https://www.youtube.com/watch?v=OPij6uHSqE8&feature=youtu.be](https://www.youtube.com/watch?v=OPij6uHSqE8&amp;feature=youtu.be) (5:50-7:08)
+
+以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。
+
+听写 & 翻译：【奔腾的长江】校对：【Isaiah4031】字幕：【相机过热啊】编辑：【Mark】【Isaiah4031】
+
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
 0
