@@ -1,45 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福克斯新闻停播川普坚定支持者鲁道博(Lou Dobbs)商业节目
-` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/885217/)
+## 立陶宛、爱沙尼亚冷待习近平邀请的峰会
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/885583/)
 
-**翻译者：冰糖葫芦喵**
+**作者: STUART LAU **
 
-**英文原文报道链接：https://www.latimes.com/entertainment-arts/business/story/2021-02-05/fox-news-cancels-lou-dobbs-tonight   **
+**编译: 莫黎**
 
-据洛杉矶时报报道–福克斯新闻媒体(Fox News Media)本周五停播了《鲁道博今夜秀》(Lou Dobbs Tonight)节目，这位75岁的主持人是川普总统的坚定支持者。
-
-在鲁道博被取消节目的消息传出的前一天，福克斯新闻的三名主持人-鲁道博、玛丽亚.巴蒂罗姆、让恩.皮罗被投票机制造商Smartmatic提起的诽谤诉讼中均被列为被告。该公司称，这三名主持人虚假指控该公司帮助民主党操纵选举对抗唐纳德.川普。
-
-![穿着西装笔挺的男子与图片配字
-描述已自动生成](https://lh6.googleusercontent.com/HPX2i-hJuk-3oJk0-7Iv5OxVQHgeLhWA3XjTf6CdWtUkN9q-n8Mb086wwjpAcSNA2zqyA2L8P2us-zEIxCqSapWYVjHzkh3Nauk_agsYhGlHXUTrV5lRMhG-CoAzXe4hFfnS3cg)**福克斯电视网表示，结束鲁道博节目的安排早就在计划之中，这是基于去年11月美国总统大选结果，共和党人川普被民主党人拜登击败后，福克斯新闻需要做出的一项调整。**
-图片来源：福克斯商业网络
-
-在11月30日的节目中，鲁道博告诉律师鲍威尔，他认为川普应该需要采取“激烈的行动，以确保这场选举的公正性得到理解，以及对拜登和美国人民犯下的罪行。”如果司法部不想这么做，如果联邦调查局不能这么做，那么我们就必须在联邦政府内部寻找其他资源。”
-
-关于Smartmatic诉讼案，福克斯周四表示，该电视台“为我们对2020年大选的报道感到自豪，并将在法庭上积极捍卫这一毫无价值的诉讼。”
-
-“就像我们在10月份说过的那样，福克斯新闻媒体经常考虑节目调整，并已制定计划，在选举后推出合适的新节目，包括福克斯商业频道，”福克斯新闻发言人表示。“这是计划改变的一部分。”
-
-福克斯电视台表示，在这起诉讼之前，结束鲁道博节目的行动就在筹划之中，这是基于去年11月美国总统大选，共和党人唐纳德川普在大选中被民主党人拜登击败后的一项改革。
-
-鲁道博是福克斯新闻前首席执行官罗杰·艾尔斯(Roger Ailes)在2011年签下的，一直是该公司对川普总统的经济和移民政策最直言不讳的支持者。在选举结束后的几个星期里，他对自己的计划表示了愤怒，因为共和党没有采取更多行动来回应前总统关于选举被人为操纵、有利于拜登的说法。
-
-他的节目通常在晚上7点平均有30万观众收看。他还在福克斯新闻频道担任评论员。鲁道博虽然与福克斯还有合同在身，但是他不太可能再出现在福克斯频道了。
-
-从下周一开始，鲁道博的节目将被称为“今夜福克斯商业”(Fox Business Tonight)，将由杰姬·迪安吉利斯(Jackie DeAngelis)与大卫·阿斯曼(David Asman)轮流主持。
-
-鲁道博周五表示，他不予置评。
-
-新闻来源：
-
-[https://www.latimes.com/entertainment-arts/business/story/2021-02-05/fox-news-cancels-lou-dobbs-tonight](https://www.latimes.com/entertainment-arts/business/story/2021-02-05/fox-news-cancels-lou-dobbs-tonight)
-
-[https://www.reuters.com/article/us-smartmatic-lawsuit-fox-corp-idUSKBN2A42JO](https://www.reuters.com/article/us-smartmatic-lawsuit-fox-corp-idUSKBN2A42JO)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/IMG_3384.png)**图片: medium**
 
 
 
-校对发稿：Bingo
+据Politico Europe报道，至少有两个波罗的海国家冷待中国的邀请出席习近平下周举行的 “17+1 “领导人视讯峰会，而将派低级别的部长参加。
+
+北京利用 “17+1 “外交形式来加强与17个东欧国家（其中的12个是欧盟成员国）的关系，主要是着眼于大型基础设施投资和 “一带一路 “倡议（中国到欧洲的货运通道）。
+
+但由于美国新任拜登政府正寻求形成有助于制衡北京的民主联盟，这一峰会所笼罩的地缘政治对于波罗的海小国而言充满了挑战。因为担心俄罗斯所构成的威胁，波罗的海国家对与华盛顿和北约建立紧密安全关系的需要比多数欧盟国家更加敏感。
+
+立陶宛和爱沙尼亚证实，他们的总统和总理都不会出席该峰会，这对中国方面是否有能力继续吸引”17+1 “国家成为该合作组织忠实成员产生质疑。
+
+立陶宛常驻欧盟代表处发言人表示: “目前我们可以确认，在”17+1 “会议上，立陶宛既不会派总统, 也不会派总理级别的代表出席。”
+
+爱沙尼亚政府发言人称，该国将由外交部长伊娃·玛丽亚·利梅茨 (Eva-Maria Liimets)出席峰会。
+
+拉脱维亚总理办公室在回复中表示: “由于新冠病毒疫情的形势，我们仍在确定我们参与此次峰会级别的细节。”
+
+所谓的 “17+1 “峰会创建于2012年，又称”17+1合作 “，是中国与中欧、东欧、2019年加入的希腊以及南欧建立联系的重要平台。长期以来，这一形式一直存在争议，有评论称”17+1 “是北京 “分而治之 “的策略。
+
+上周刚刚上台的爱沙尼亚总理卡亚·卡拉斯（Kaja Kallas）的发言人表示: “我们更倾向于使用欧盟”27+1″的形式，并通过欧盟共同政策来应对中国。”
+
+“17+1 “的其他欧盟成员国是保加利亚、克罗地亚、捷克、希腊、匈牙利、波兰、罗马尼亚、斯洛伐克和斯洛文尼亚，以及非欧盟国家的阿尔巴尼亚、波斯尼亚、北马其顿、黑山和塞尔维亚。
+
+中国方面目前没有提供峰会的细节，如具体日期和参加级别。中国驻欧盟代表团发言人说: “由于新冠病毒大流行，”17+1 “峰会比去年的原定计划有所推迟，峰会的筹备工作仍在进行。我们目前正在就峰会的安排与各方保持沟通。”
+
+
+
+
+
+
+
+
+
+**新闻来源:**
+
+Baltic vs. Beijing: Lithuania, Estonia snub Xi’s eastern summit
+
+[https://www.politico.eu/article/xi-jinping-eastern-summit-lithuania-estonia-snub-china/](https://www.politico.eu/article/xi-jinping-eastern-summit-lithuania-estonia-snub-china/)
 
 0

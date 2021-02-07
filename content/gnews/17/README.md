@@ -1,35 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美“自由之家”揭中共是最严重“跨国迫害”者
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/885688/)
+## 大批移民在墨西哥登上火车，前往美国
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/885724/)
 
-俄罗斯莫斯科喀秋莎农场    银河
+翻译：康州盘古农场-Layka
+校对：康州盘古农场-烟波浩淼
+编辑：康州盘古农场-Antsee-GTV
 
-编辑   水星    上传    银河
-![]()![](https://cdn.discordapp.com/attachments/799010586356351066/807769387947524156/c.JPG)the-sun.com
-亚洲新闻1月28日报道，著名人权律师郭飞雄在上海机场被边检人员阻止登上飞往美国的航班，自此以后音信全无。自1989年天安门事件以来，郭飞雄一直在为捍卫人权而奋斗，曾入狱11年并在狱中遭受酷刑。在中共国，异见人士被拘禁被消失已经成为常态，而现阶段中共对异见人士的镇压迫害已经扩及全球。
+![train]()![train](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-07-at-10.08.34.png)
 
-援引自《自由亚洲》新闻，美国非政府人权组织自由之家（Freedom House）2月4日发表一份名为《看不见却够得着》（Out of Sight, Not Out of Reach）的报告纪录，详述全球多国政府使用恐吓与暴力等手段“跨国迫害”海外流亡者和侨民，中共国是目前为止最严重的迫害者。
+大批移民，被发现通过称为拉杯斯蒂亚（La Bestia）铁路向北行驶，很大可能是前往美国寻求庇护。 火车始于瓜纳华托州(Guanajuato) 的铁拉布朗卡(Tierra Blanca), 并且根据德克萨斯州布赖特巴特(Breitbart)的消息来源：（队伍）可能会在几天之内到达美墨边境。
 
-报告中记录了全球31个国家，至少608个案情记录为国家政府消除异见人士的非法迫害。除了引渡，跨国镇压的工具还包括“暗杀、非法驱逐、绑架、数字威胁、国际刑警组织的虐待和家庭恐吓”。记录中214起迫害案件来自中共，占全记录的三分之一。
+在铁拉布朗卡(Tierra Blanca)的墨西哥移民官员和市政警察看着几百个人登上了列车并且出发了。他们的准确的目的地不详，但历史表明很可能去往里奥格兰德河谷(the Rio Grande Valley) 。
 
-“自由之家”的报告中称，中共国的体制是“最复杂、最全球性、最全面的跨国压制运动”，是唯一一个在几乎所有与中共国持不同政见者的国家建立了跨国镇压专营权网络的国家。 《自由之家》将其描述为一个“多层面的跨国压制机构”。
+铁拉布朗卡是沿途称为拉杯斯蒂亚（La Bestia）的许多停车点之一。 移民们通常在沿途被有同情心的居民提供食物，有些人在他们能够继续前行之前被当地的蛇头征税或“比索”（一种税金）。
 
-自由之家负责中共国、香港和台湾问题研究的高级研究分析员莎拉·库克（Sarah Cook）在接受采访时指出， 中共的国内安全和军事机构组织了严厉的打压行动，包括间谍活动、网路攻击、威胁和人身攻击。中共部署了在外国的统战代理机构进行监视渗透，利用外国的法律和政治制度进行拘留和引渡，同时利用其地缘政治影响力，以及商业市场对它国施压。
+在最近的美国总统大选周期中，对形成大蓬车的兴趣又增加了，最近的总统选举让中美洲的人兴奋不已，尽管拜登政府曾呼吁此时不要向北旅行。
 
-中共对外的镇压目标不仅限于外籍人士与海外华人中的异见人士，还包括其他国家的“人权捍卫者、记者、和那些批评中国共产党”的人。报告指出，“习近平总书记领导下的集权，以及他对强硬外交政策的强调，导致中（共）国外交政策的立场越来越咄咄逼人，其中包括跨国压制。”
+兰迪·克拉克（Randy Clark）是美国边境巡逻队的32年退伍军人。 在他退休之前，他曾担任执法部门的部门负责人 ，领导着德州里约(Del Rio)地区的9个边境巡逻站的运营。
 
-中共利用跨国压制手段在渗透、操纵自由国家的政治、法律和媒体以恐吓或攻击国外持不同政见者。中共利用恐怖主义和腐败指控、以及利用互联网操作舆论导向及控制言论自由的行径已经对自由民主国家构成了严重威胁。这个趋势已经引起国际社会各个国家的不安。
+原文作者：兰迪·克拉克（Randy Clark）
 
-根据“自由之家”(Freedom House)的报告，除了中共，土耳其、俄罗斯、卢旺达、沙特阿拉伯和伊朗等国家在镇压海外异见人士案件的排名也在世界前列。
+发表时间： 2021年2月5日
 
-参考链接：
-
-[https://www.breitbart.com/asia/2021/02/05/report-china-russia-turkey-iran-target-critics-dissidents-living-abroad/](https://www.breitbart.com/asia/2021/02/05/report-china-russia-turkey-iran-target-critics-dissidents-living-abroad/)
-
-[https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/cm-02052021103240.html](https://www.rfa.org/mandarin/yataibaodao/renquanfazhi/cm-02052021103240.html)
-
-[中国 上海，异见人士郭飞雄在机场失踪 (asianews.it)](http://www.asianews.it/news-zh/%E4%B8%8A%E6%B5%B7%EF%BC%8C%E5%BC%82%E8%A7%81%E4%BA%BA%E5%A3%AB%E9%83%AD%E9%A3%9E%E9%9B%84%E5%9C%A8%E6%9C%BA%E5%9C%BA%E5%A4%B1%E8%B8%AA-52250.html)
+原文链接：[https://www.breitbart.com/border/2021/02/04/exclusive-photos-large-migrant-group-in-mexico-boards-train-for-u-s/](https://www.breitbart.com/border/2021/02/04/exclusive-photos-large-migrant-group-in-mexico-boards-train-for-u-s/)
 
 0
