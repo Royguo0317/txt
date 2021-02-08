@@ -1,28 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登称习近平没有 “民主的骨头”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/891210/)
+## 以色列周日起放松防疫限制
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/891212/)
 
 - 编辑：Victor Torres
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年2月7日电/西喜社——**美国总统拜登预计，美国与中共国的竞争将采取 “极端竞争 “的形式，而不是两个世界大国之间的冲突。
+**西班牙2021年2月7日电/西喜社——**以色列在进入第三次全国范围旨在防止中共病毒传播的封锁后近六周，开始放松限制。
 
-拜登在周日播出的CBS采访节选中说，自从他担任美国总统以来，他还没有与中共国同行习近平交谈过。
+一些企业在周日开始重新开放，人们现在被允许在离家一公里（半英里）以上的地方活动。但学校仍然关闭，国际航班也受到严重限制。
 
-“他非常强硬。他没有—我没有批评的意思，只是现实—他身上没有民主的、民主观念的骨头，”拜登说。
+由于新的感染病例失控，以色列在12月底实施了第三次全国封锁。根据卫生部的数据，自去年大流行开始以来，以色列已经记录了超过68.6万例中共病毒病例，死亡人数为5074人。
 
-“我一直对他说，我们不需要有冲突。但会有极端的竞争。”拜登说。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/e315a024-1593-4bbc-9a84-ad290def5de4.jpg)
 
-“我不会像（唐纳德）川普那样做。我们将专注于国际道路规则。”
+**[新闻来源](https://apnews.com/article/nfl-pandemics-israel-super-bowl-football-6e3df11b3ff68134a02cd597ff4b3054)**
 
-在华盛顿，中共国被认为是美国的头号战略对手，也是世界舞台上的首要挑战。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/00110011.png)
 
-**[新闻来源](https://m.timesofindia.com/world/us/biden-says-xi-doesnt-have-a-democratic-bone-in-his-body/articleshow/80738183.cms?utm_source=twitter.com&amp;utm_medium=social&amp;utm_campaign=TOIDesktop)**
-
-![]()![](https://gnews.org/wp-content/uploads/2021/02/00110011-1.png)
-
-0
++1
