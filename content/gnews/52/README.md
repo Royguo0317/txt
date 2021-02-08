@@ -1,39 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生公布关于春节G-Clubs互动抽奖节目的细节
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/891415/)
+## 【战云长天时评】打破沉默-杨洁篪同布林肯通话释放何种信号
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/891457/)
 
-新闻简述：在2021年1月28日的 GTV 盖特视频中，郭先生公布了春节G-Clubs互动抽奖节目的一些细节，届时将有5辆汽车和多种奖品供会员抽奖。
-[下载字幕文件](https://gnews.org/miles_20210128_gt-srt/)
-After the broadcast this morning, I’ve got many messages. Many questions are related to G-Clubs’ interactive program for the Spring Festival. Brothers and sisters in arms, after watching the broadcast [on that day], we will have an interactive program, for it is a must and I have to interact with you. I guess that we will have probably 5,000 to 8,000 members online and approximately 20,000 members offline. But this will be an interactive moment, which is only for us, not for the public. In that moment, you can directly ask me any questions.  Although it will be the Chinese New Year [celebration], let’s not waste time talking about niceties but just get into questions someone might have for me since there will be so many people there, all right? If anyone wants to speak, just ask the question directly. It would be better if the questions are useful.
+作者：捆绑CCP一千年/喜马拉雅日本东京樱花团
+![]()![](https://gnews.org/wp-content/uploads/2021/02/5566.jpg)
+中共国新华社2月7日援引CCTV4报道称，杨洁篪应约同美国国务卿通电话。作为要闻报道，人民网等各大主流媒体纷转载。这被视为中共国和美国拜登政府打破外交沉默、重启对话吗？杨洁篪同美国国务卿布林肯通话释放何种信号？
 
-这个今天上午直播完以后的有很多信息给我留，关于G-Clubs春节互动的节目，很多问我的问题。战友兄弟姐妹们，除了你们看完视频以后，咱们互动的节目那是必须的，那是法定的，七哥必须跟你们互动，大概吧，我们是线上大概5000到8000，线下大概2万左右，我估计啊，但是这是封闭的，是不公开的，不公开的，就是谁想问七哥啥问题，你就直接，虽然是大过年的，咱也别说那么多，太热炕头的话，就是别耽误时间，因为那么多人，是吧？谁要是想说话，就直接问问题，最好有用。
+杨洁篪的电话内容展现了习总加速师一贯强硬的语气，所传递的信息表示：中共国同美国彼此巨大利益大到你不能忽视，我们将一如既往给你所应有的美元和美女，还有你需要的……，重要的是，还有权力。现在我要纠正你们美国一段时期以来对华政策的错误（川普政府制裁），你们美国只需要办好你们分内的事情就行，拜登总统执政后，我们会更加自信走我们的社会主义道路，我相信拜登总统不敢不俯首称臣。什么民主、自由，那是你们美国的无知，请不要来干预我们怎么做，我们干掉缅甸分分钟的事，你也看见了，不仅如此，你们有必要在国际社会为缅甸问题上多说有益于我们中共的话。至于台湾，我们有办法收入囊中，希望你们给与配合。至于我们在新疆等地杀人，你更管不着。任何在疫苗、病毒、人权等问题上抹黑污蔑中共是办不到的。杨洁篪继续强调，世界各国应当维护我们中共国控制的联合国组织权威，以我们制订的游戏规则为基础。而有关布林肯国务卿的回应则是轻描淡写，避重就轻，甚至完全虚构的回应（以上综述根据杨洁篪原话解读，原文见新华社、人民网链接）。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/0.jpg)
+其强盗精神可嘉，笔者首先认为这对于灭共绝对利好。至少表明中共仍在继续施压，还谈不上开启与拜登政府的对话，正如法新社所宣称的那样：“至今拜登尚未与习近平通话。”
 
-As we just finished our G-Fashion meeting, the lawyer yelled in disagreement. Thanks to Ms. Yanping Wang who argued firmly on just grounds.  She told the lawyer that it is what it is whether they agree or disagree. It is going to be a lottery drawing with the prize of 5 BMWs, or maybe 5 Mercedes-Benz, five cars for sure. Probably it will be 5 BMWs for now.  Then, perhaps the bags that I mentioned in the morning, for example, the shoulder bag and the waist bag.  However, there won’t be enough time to make them since it probably takes 40 days to make.  In such case, we can change to the Guo Warrior Suit instead, the black color that I wore before.  The Warrior Suit of G-Forever and G-Fashion, 500 hats, bracelets, and rings, all are lottery prizes free for the winning members.  Isn’t that something! Many brothers-in-arms sent me messages, saying, “Brother Seven [Miles], we will give them to you if we win the prizes.” Well, please don’t do this!  You will get me in trouble if your lottery drawings end up in my pocket.  Who is that? Only a thief, a liar, or the “Nine-Finger Queen” can do things like that.  Correct? It is not right to do that.
+首先，我们看到的美国国务卿布林肯的讲话完全不是中方所报道的那样，现将美国白宫原文摘录如下：“国务卿安东尼·布林肯今天与中华人民共和国进中共中央外交委员会办公室主任杨洁篪进行了对话，并向农历新年致以最良好的祝愿。布林肯国务卿强调，美国将继续捍卫包括新疆，西藏和香港在内的人权和民主价值观，并敦促中共国加入国际社会，谴责缅甸的军事政变。国务卿重申，美国将与盟国和伙伴一道捍卫我们的共同价值和利益，要求中共国对威胁印度太平洋（包括台湾海峡）稳定的努力承担责任。基于规则的国际体系。”显然这样一个小甜心式的讲话，中共都不敢放出来，所做出的新闻报道完全是墙内洗脑需要。从中共与美两国政府针对这一电话外交内容各表来看，拜登政府短期内不会解冻针对中共的关系。因为布林肯国务卿提到了捍卫香港、新疆等地人权和自由价值观，并谴责了中共颠覆缅甸问题。并要求中国对威胁台湾和印太地区负责。
 
-刚刚我们的 G-Fashion 开完会，律师刚才嗷嗷的叫，不同意。这得感谢王艳平同志，这王艳平据理力争，说你同意也得同意，不同意也得同意，就是这样了，抽奖，五台宝马，也可能五台奔驰，反正肯定五台车。大概目前定的是五台宝马，然后比如说我上午说的那个包，那个背包还有个腰包，但是那个时间实在来不及，可能是要40天才能做出来，那就改成郭战装，就一整套我穿的那个郭战装，就黑的那个，G-Forever，G-Fashion的战装，这都是送给大家的，抽奖抽给大家的，500个帽子，还有手环、戒指，这了不得了。还有个就战友很多说，我抽到以后七哥我送给你，很多人给我发这个信息，你千万别这么发，你送给我，我就出事了，哪有抽奖抽到七哥腰包里去了？那成啥人了？那不成欺民贼、九指王了吗？对不对？不可能。
+不过，目前看来仍然是口炮党做法，因为，美方针对中共病毒只字不提，这一点令人很不安，因为拜登政府就任以来有关中共病毒仍然只字未提。但布林肯国务卿在其官方推文里继续强调：“在与北京代表杨洁篪通话时，我明确表示，美国将捍卫我们的国家利益，捍卫我们的民主价值观，并追究北京对国际制度的滥用的责任。”这个推文内容看上去相对强硬一点，他提到了中共国架空联合国制订的国际规则，谴责中共是破坏国际准则方。
 
-In addition, you cannot donate your winning prize to the Rule of Law Foundation.  There will be two choices for you. With respect to the car lottery, for example, the BMW car is worth 100,000 dollars, which is at the 100,000 dollars level, so you can ask for cash, which can be given to you directly.  For example, as to the prize of 40,000 dollars, maybe 50,000 to 60,000 dollars, or the prize of 20,000 plus or 30,000 dollars, you can ask for cash, which can be wired to you directly. You can also ask for a bank card.  Either way will work. The price is based on the U.S. market. They will tell you what make and model the car is and how much it’s worth, you know? After they tell you those, you may say I want the car, then all of the tariffs when sending the car out to different countries from the U.S., for example, to Mainland China, Japan, Thailand, Africa… all the expenses are yours to bear after the car leaves the U.S.  Of course, you have to pay the tax. If you say, “I don’t want the car. I want the money,” then they will give you the cash immediately.
+通过杨洁篪空中喊话到实现电话外交，在笔者看来，杨传递了中共三点意思，第一步，中共将控制整个印太地区是首要任务，至于对中东北非以及欧洲的控制是一直在努力的事。显然，习近平急于称霸世界的野心昭然若见；下一步，就是从现在开始，美国谁当总统中共说了算，欧洲各国选举，中共一定会以2020美国大选那样颠覆。什么你们的选民说了算，完全胡扯；第三步，中共国的数字货币将和你们美国联姻，我们数字化货币将首先摧毁你们美元。根据郭文贵先生2月6号直播透漏，经济已经成为中共和美国较量最后的对抗。“较量的核心目的是干掉你美元。干掉美元的过程中，西方的情报、信仰、金融和生活方式，这都已经改变了。完全共产化、社会主义化，没有任何犹豫的。中共国能把美国Swift 系统和Chip拿下。在扎克伯格Facebook的设计下，美国卖国贼一定会给Chip一个特权，美国的数字货币时代的打开，意味着什么？美国的灭亡。美国经济的崩塌。欧元不会有任何好处。”郭先生警告说：“没有一个强大的美国，欧洲不可能成为一个现代文明世界”。
 
-所有的东西，你也不能捐法制基金，你有两个选择，就这个车抽奖，你比如说那个宝马车是10 万美元，10万美元的级别的，你可以要钱，你可以要现金的，直接给你的。比如说四万那个，可能是5万多6万美元，还有2万多、3万美元的那个，你可以要钱，直接把钱汇给你，你也可以要卡，都可以。这个价钱定义是美国的市场，他会给你写出来什么车，什么系列，什么价格，是吧？然后告诉你，然后你说我要车，从美国发出去所有的关税，不同的国家，你比如说发给大陆，你发给日本，发给泰国，非洲 … 所有离开美国之后，店里的费用全是你的，税当然是你的，你说我不要车，我要钱，“叭”就把现金给你了。
+干掉美元？你在开玩笑吧，中共那帮老杂毛们有这本事？熟悉中共内部运作机要的的郭先生在几年前就警告过，郭先生再次发出美元危机旨在再次提醒美国人不要在这次超限生化战争败局中失去最后翻转的机会。拜登执政后，现在的美国真到了诺曼底登陆和中途岛战役时刻了。根据中国外汇论坛官推“中国将结束美元的垄断”声称：“中国可能在数字领域击败美国，……数字人民币的推出将……导致现有国际金融体系发生重大变化。这将是朝着建立自己的支付系统迈出的一大步。”这或许是杨洁篪在同美国务卿电话强硬表态的底气因素之一。根据路德社美国时间2月6号路德时评（路安墨唐谈）节目透漏，杨洁篪曾经的杨娘娘变成杨公公的身份转换看得出，中共国一定要藉着掌控拜登政府达到控制美国的大好机会，这恰恰表明是美方灭共“巨大的机会”，因为中共正在飞速前进。笔者认为，中共急于给败登政府持续加压的情况下一定会发生物极必反的效应，这个物极必反原理在习拜二人之间一定不会是以习的意志为转变。因为，中共对拜登的认识仍然停留在与其蜜月期的幻想中，因此，中共一直视拜登为一个贪婪的老年痴呆患者，却错误地认为美国是总统一个人能搞定的。恰恰相反，以拜登老奸巨猾的政坛不倒翁看，拜登的复仇——洗刷羞辱应该是拜登和民主党人所要做的事情。
 
-If you say that you want to use the car in the U.S., you can just pick up the car and leave.  That’s how simple it is.  You can go to the nearby city to pick up the car.  The rest of the prizes, like rings, bracelets, Warrior Suits, and hats can be sent to your home without extra charge.  So, I won’t be able to reply to every one of you.  Brothers-in-arms, dose this sound okay to you?
+从大选后阶段看来，他一声不吭，却成功击败前总统川普也是整个民主党运作的结果。正如笔者之前说过，你以为你搞定了美国媒体帮你说话，赢得了拜登的大选。你怎么就不想想民主党阵营成功利用了你对大选的操控？成功打击了其政治对手。如今，对手不见了，剩下的自然就是中共国成为猎物了。试想、谁能视中共反人类罪、种族灭绝罪的帽子忽略不计？美国的沼泽地的力量真的能让你干掉美元？虽然笔者不愿意过于乐观看问题，美国拜登政府如果想要存在下去，留给他的只有一条路——灭共。当然，这并不等于不接触，要灭共还是要接触，他绝对不是在某一天突然下令美军实施27小时打击，而是需要在接触中干掉你，也许这是比较符合拜登总统的习性吧。正如路德所说的那样，“拜登现在还没有出招”。接下来，闷声不响做事的拜登老政客如何出招？我们继续拭目以待。
 
-然后你说你在美国用上了，你就直接提车走就行了，就这么简单，你到你的附近的城市提车就行了，剩余那些什么戒指啊，手链啊战装啊，是吧？帽子啊那都是到你家的，那不用再加钱了。所以说我就没办法一一回了，兄弟姐妹们，中不中？
+2021年2月7日16:45分 写于东亚
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+审稿：文小白/喜马拉雅日本东京樱花团
 
-视频来源：[https://gtv.org/getter/60133bbac3245d7c59e9ff05](https://gtv.org/getter/60133bbac3245d7c59e9ff05)
+（本文仅代表作者个人观点，与G-NEWS网站无关）
 
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/838734/](https://gnews.org/zh-hans/838734/)
+HTS-02C-202102-016
 
-翻译：【Cyndi】校对：【奔腾的长江】【Isaiah4031】【BruhM】字幕：【相机过热啊】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+新华社： [http://www.xinhuanet.com/video/2021-02/07/c\_1211015741.htm](http://www.xinhuanet.com/video/2021-02/07/c_1211015741.htm)
+
+布林肯国务卿： [https://www.state.gov/secretary-blinkens-call-with-prc-director-yang/](https://www.state.gov/secretary-blinkens-call-with-prc-director-yang/)
+
+法新社：[https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210206-%E6%8B%9C%E7%99%BB%E4%B8%8A%E4%BB%BB10%E5%A4%A9%E5%90%8E%E7%BE%8E%E5%9B%BD%E5%9B%BD%E5%8A%A1%E5%8D%BF%E5%B8%83%E6%9E%97%E8%82%AF%E4%B8%8E%E6%9D%A8%E6%B4%81%E7%AF%AA%E9%80%9A%E8%AF%9D](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210206-%E6%8B%9C%E7%99%BB%E4%B8%8A%E4%BB%BB10%E5%A4%A9%E5%90%8E%E7%BE%8E%E5%9B%BD%E5%9B%BD%E5%8A%A1%E5%8D%BF%E5%B8%83%E6%9E%97%E8%82%AF%E4%B8%8E%E6%9D%A8%E6%B4%81%E7%AF%AA%E9%80%9A%E8%AF%9D)
+
+郭先生：[https://gtv.org/video/id=601f22fc3f8a013ab47fc514](https://gtv.org/video/id=601f22fc3f8a013ab47fc514)
+
+路德社：2/6/2021路德时评（路安墨唐谈） [https://youtu.be/R5Q1otjaDdo](https://youtu.be/R5Q1otjaDdo)
+
+人民网：[http://world.people.com.cn/n1/2021/0207/c1002-32024520.html](http://world.people.com.cn/n1/2021/0207/c1002-32024520.html)
+
+图片链接：https://yahoo.jp/qiqh1M
 
 0

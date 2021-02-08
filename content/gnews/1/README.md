@@ -1,44 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国积贫积弱论
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/892447/)
+## 2/8/2021 财经快讯：对冲基金押注油价将&#8221;东山再起&#8221;；货运商称英国对欧盟出口下降68%
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/892481/)
 
-*作者：桂花酒 | 校对：宁缺 | 审核：海阔天空 | Page:Daoiii*
+![]()![](https://www.gnews.org/wp-content/uploads/2021/02/Picture1-48.jpg)
+图片来源：[https://cn.investing.com/](https://cn.investing.com/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/3esyKGuEl9isY/images/92dd6b20-f5b3-46c1-a1c2-a6f65849e158.jpg?asset_id=c778d2c7-6672-4fbb-9e89-93d535865bb6&amp;img_etag=%223df3aae1b9676189b8931726153ae95d%22&amp;size=2560)](https://spark.adobe.com/page/3esyKGuEl9isY/images/92dd6b20-f5b3-46c1-a1c2-a6f65849e158.jpg?asset_id=c778d2c7-6672-4fbb-9e89-93d535865bb6&amp;img_etag=%223df3aae1b9676189b8931726153ae95d%22&amp;size=1024)
-
-中共称1949之前的为“旧中国”，并说那是一个积贫积弱，民不聊生的、万恶的旧社会，旨在告诉人民它推翻民国上台执政的合法性。所谓“合法性”，中共的解释是人民选择了它。它嘴里的合法性就是自我标榜的政治开明、经济繁荣，再加上一条“人民幸福”。央视置党国一贯的闷声发大财作风于不顾，满大街问百姓“你幸福吗？”让人痛心。中共表里不一，嘴上一套，行动一套已成中共路人皆知的共识。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/3esyKGuEl9isY/images/3ec04481-518b-4dc1-a99b-aa8d7238f12c.jpg?asset_id=b5f3d49d-8b57-4950-b267-95e81a22fc94&amp;img_etag=%2233a5bdc6219ec5c262186f1110d4770f%22&amp;size=2560)](https://spark.adobe.com/page/3esyKGuEl9isY/images/3ec04481-518b-4dc1-a99b-aa8d7238f12c.jpg?asset_id=b5f3d49d-8b57-4950-b267-95e81a22fc94&amp;img_etag=%2233a5bdc6219ec5c262186f1110d4770f%22&amp;size=1024)
-
-1938年，中国，人们在进行饭前祈祷
-
-“积贫积弱”一词之所以出名是源自国学大师钱穆先生对宋朝的评价。那么，中共治下的中国是“积贫积弱”还是CCP自诩的“国富民强”呢？我们尝试从基本权利、居民收入、教育、医疗四方面分析：
-
-中共国每年花费60亿美元建防火墙蒙上中国人眼睛，而且巨资收买世界高科技公司、政治精英、科学界和文化界，全面渗透美国并剥夺川普总统话语权，闭目塞听远超防民之口甚于防川的周厉王。政治开明安在？
-
-1949年至2018年，中共国GDP翻了近70倍， 从全球倒数第二变成第二大经济体。2018年GDP约13万亿美元，除以13亿人均月创造财富六千元人民币。2018年国家统计局公布人均年收入为9470美元（新浪财经数字为9732美元），月均789美元，约5500元人民币。中共说国家的GDP≠百姓收入，同时又说人均可支配收入28228元，月收入2352元，每天11.2美元。到2020年中共总理说约6亿人口月均千元以下，约每月153美元，每天5.1美元。三年下降了一倍多！世行2018年宣称世界近半数人口每天生活费不到5.5美元。按经济学家陈志武说法，同行业中国人每小时工资是美国人的3%，是菲律宾的一半。世界上所有政府都不创造一分钱财富，GDP剩下的4500元都进谁腰包了？还有不同行业收入差距、企业事业公务员收入差、退休双轨制、等等……
-
-再看教育支出。2019年，中共国家财政性教育经费支出首次突破4万亿元，年均增长8.2%。但据财政部官网数据称“中央财政支出名义上的民生支出是3千多亿（教育支出1711.22亿、社会保障和就业支出1180.16亿、医疗卫生和计划生育支出209.05亿）。这3千多亿中……供养相关部门公务员、官员也要花一大笔钱。”前后相差十几倍的文字游戏愚弄人民于股掌，而同期的维稳经费则高达万亿。（据财政部《2018年中央和地方预算执行情况与2019年中央和地方预算草案的报告》）
-
-最后是医疗。2020年中国工程院副院长，中国医学科学院 北京协和医院院校长王辰表示，中国医疗卫生费用占总GDP大约是5%至6%，远低于世界平均水平的9.9%。2019年国家卫健委马晓伟称医疗卫生费用GDP占比6.6%。中共国在医疗方面的投入低不说，还仿佛是王小二过年，一年不如一年。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/3esyKGuEl9isY/images/95f80033-c63e-420b-b23d-fc041a878f3a.jpg?asset_id=05a98b74-e3d5-4f72-b4f0-c521138c238c&amp;img_etag=%225ae0baa43f3704507ac29ffcc1d8caec%22&amp;size=2560)](https://spark.adobe.com/page/3esyKGuEl9isY/images/95f80033-c63e-420b-b23d-fc041a878f3a.jpg?asset_id=05a98b74-e3d5-4f72-b4f0-c521138c238c&amp;img_etag=%225ae0baa43f3704507ac29ffcc1d8caec%22&amp;size=1024)
-
-综上所述，中共国积贫积弱是不争的事实。俗话说，贫居闹市无人问，富在深山有远亲。贫者，财分少也（说文）无财谓之贫(庄子），世态炎凉折射人情薄如纸的同时，也印证人们对美好生活的一个标准，就是富足。而中共国民弱与国富对立，说明国家实力不足，用中共自己的语言就是落后，而落后就要挨打，所以积贫积弱一词，可解释为民贫国弱。事实上现在全球爆发的病毒对经济的摧毁和大量逃避兵役的现象表明中共诸如一胎化恶政已经失去民心。民心不存，国将焉附？
-
-汉代就有国富民强的说法，唐代《贫女》诗云：苦恨年年压金线，为他人作嫁衣裳。千年过去了，华夏儿女依然为独裁的中共做嫁衣。是谁的财富被政府购买亿万摄像头用于监控浑然不觉使国积弱？又是谁70年不停洗脑培养了一批批粉红使民智积贫？每年超万亿的军费是与战狼虽远必诛的强盗逻辑相表里。中共说的落后挨打，就是恃强凌弱，一个满嘴复兴中华民族的政党，却不知孟子“威天下不以兵革之利”的祖训。CCP不能代表中国人！积贫积弱也不过是中共眼里的积全球百姓的贫，积世界各国的弱罢了。最终收益者永远只有区区十几个盗国贼家族。
-
-70年来中共以谎言立国，以杀人治国，罪恶滔天，罄竹难书。而中共所污蔑的台湾，不但此次抗疫全球第一，政治经济、科技民生都堪称华人楷模。如今美国将中共定义为反人类犯罪集团，我们盼望唤醒更多人不当炮灰为独裁续命，而中共必将被新中国联邦为代表的正义力量扫回地狱！
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+1. **对冲基金押注石油价格将”东山再起**“
 
 
-编辑：【英国伦敦喜庄园编辑部】
+(路透社)对冲基金再次转而看涨石油，押注疫情和投资者对环境的关注严重损害了公司提高产量的能力。几家对冲基金表示，这种对供应的限制将把价格推至多年高位，并将在高位维持两年或更长时间。自去年11月初出现疫苗成功消息以来，全球石油布伦特原油价格已经跳涨了59%，上周，它达到了疫情前的水平，接近每桶60美元。同期，美国原油已攀升54%，至每桶57美元左右。
+[https://www.reuters.com/article/us-global-oil-hedgefunds-focus/hedge-funds-bet-on-oils-big-comeback-after-pandemic-hobbles-producers-idUSKBN2A70IM](https://www.reuters.com/article/us-global-oil-hedgefunds-focus/hedge-funds-bet-on-oils-big-comeback-after-pandemic-hobbles-producers-idUSKBN2A70IM)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/3esyKGuEl9isY/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/3esyKGuEl9isY/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+1. **货运商称自退欧贸易协议达成以来，英国对欧盟出口下降68%**
+
+
+（路透社）据一个代表货运商的行业协会表示，在英国脱欧后的过渡期结束后，贸易受到扰乱，使得1月份英国对欧盟的出口下降了68%。政府不承认该出口数据，并表示自英国在2020年底完成脱欧以来，边境的扰乱微乎其微。
+[https://www.reuters.com/article/us-britain-eu-exports/exports-from-uk-to-eu-down-68-since-brexit-trade-deal-say-hauliers-idUSKBN2A70G3](https://www.reuters.com/article/us-britain-eu-exports/exports-from-uk-to-eu-down-68-since-brexit-trade-deal-say-hauliers-idUSKBN2A70G3)
+
+1. **美财政部长耶伦：现在说是否需要改变来应对市场波动为时过早**
+
+
+（路透社）美国财政部长珍妮特·耶伦周日表示，现在就说是否需要新的政策或法规来应对近期的市场波动还为时过早。耶伦在美国有限电视新闻网的节目中表示：“我们需要了解到底发生了什么，美国证券交易委员会正在全力汇总一份报告，将为我们提供事实，当有了这些事实之后，我们就可以看到是否有需要新政策或法规来解决的问题。”这里的市场波动主要是指过去两周出现的“美国散户大战华尔街“事件。周四耶伦召集相关会议讨论是否需要就此事件采取行动。
+[https://www.reuters.com/article/us-retail-trading-yellen/u-s-treasury-secretary-yellen-too-soon-to-say-if-changes-needed-to-address-market-volatility-idUSKBN2A70J4](https://www.reuters.com/article/us-retail-trading-yellen/u-s-treasury-secretary-yellen-too-soon-to-say-if-changes-needed-to-address-market-volatility-idUSKBN2A70J4)
+
+1. **美财政部长耶伦称年收入6万美元者应获得刺激支票**
+
+
+（路透社）美国财政部部长珍妮特·耶伦周日表示，作为白宫提出的1.9万亿美元新冠疫情救助计划的一部分，年收入6万美元的美国民众应该得到刺激支票。耶伦在美国有限电视新闻网的节目中说：“关于如何确定目标人群的细节有待确定，但是在困境中挣扎的中产阶级需要帮助。”
+[https://www.reuters.com/article/us-healthcare-coronavirus-usa-congress/u-s-treasurys-yellen-americans-earning-60000-should-get-stimulus-checks-idUSKBN2A70JE](https://www.reuters.com/article/us-healthcare-coronavirus-usa-congress/u-s-treasurys-yellen-americans-earning-60000-should-get-stimulus-checks-idUSKBN2A70JE)
+
+1. **港股市场即将失去最大的资金来源**
+
+
+从2月9日开始，通过香港交易所运营商进行的、允许内地交易员购买本地股票的“沪港通”将因春节假期休市至2月17日。沪港通的关闭将给创纪录的资金流入踩下刹车，这种资金流入曾推动香港股市创下1985年以来的最佳开局。今年的前五周，内地投资者净买入了价值近480亿美元的港股，已经超过2020年的一半。香港股市的交易员们即将知道，在没有最大的资金来源情况下，这个7.3万亿美元的市场是否还能坚持下去。
+[https://finance.yahoo.com/news/hong-kong-stocks-lose-biggest-023422548.html](https://finance.yahoo.com/news/hong-kong-stocks-lose-biggest-023422548.html)
+
+1. **中小银行掩盖不良贷款受监管处罚，年报难产评级报告被推迟**
+
+
+受新冠肺炎疫情等因素影响，银行业保险业信用风险有所上升。过去一年，各机构报告的不良贷款余额和不良贷款率总体有所上升。相对于较大银行而言，中小银行由于规模小，抗风险能力弱，资产质量承压更为明显。截至2月5日，年初以来共有7家中小银行因为掩盖“不良贷款”而遭到行政处罚。此外，近期山东有2家农商行由于年报难产而被推迟发布评级报告。
+[https://finance.sina.com.cn/tech/2021-02-06/doc-ikftssap4445275.shtml](https://finance.sina.com.cn/tech/2021-02-06/doc-ikftssap4445275.shtml)
+
+1. **结构性存款记入交易性金融资产**
+
+
+近日，财政部、国资委、银保监会、证监会四部委联合发布通知，要求企业编制年报时应严格执行财政部发布的企业会计准则、企业会计准则解释、企业会计准则应用指南、会计处理规定等有关规定。其中明确，企业持有的结构性存款，应当按照《企业会计准则第22号—金融工具确认和计量》中金融资产合同现金流量特征和管理金融资产的业务模式的规定确定其分类，并进行相应确认、计量和列报。对于商业银行吸收的结构性存款，应当分类为以公允价值计量且其变动计入当期损益的金融资产，记入“交易性金融资产”科目，并在资产负债表中“交易性金融资产”项目列示。
+[https://cj.sina.com.cn/articles/view/2004321037/7777830d01900thzc](https://cj.sina.com.cn/articles/view/2004321037/7777830d01900thzc)
+
+By 【Financial Team-Rosy Cloud】
+
+News Collection: Totoro 、文罡、Kate
+
+Proofreading: Tracy
 
 0
