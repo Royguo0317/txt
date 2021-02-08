@@ -1,32 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】07/02/2021:共产党搞数字货币的目的就是要让老百姓永世为奴
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/891548/)
+## 发达国家禁止印度和南非免费使用新冠病毒疫苗专利
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/891453/)
 
-**制作:Cantonese工作室**
-播报：鱼摆摆（文驋）
-<br>资料收集：郁金香 美国小李 幽灵小妹
-<br>视频制作：Shawn
-<br>海报制作：侬民、文绉绉
-**摘要:**
+**翻译者：Cassie B.** **编辑：冰糖葫芦喵**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/WTO-e1612751859398.png)这是世贸组织成员在瑞士日内瓦总部举行的会议。空中/路透社
+发达国家对世界贸易组织目前正在讨论的一项提案持反对态度，该提案要求暂停关于CCP病毒疫苗和治疗方法的知识产权规则。
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-01.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-02.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-03.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-04.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-05.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-06.jpg)
-7.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-07.jpg)
-8.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-08.jpg)
-9.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-09.jpg)
+去年10月，印度和南非接洽了这个全球贸易组织。这两个发展中国家要求他们放弃与贸易有关的知识产权协议。通过暂停专利版权，他们可以获得负担得起的疫苗、药物和医疗产品。
+
+然而，美国、英国、瑞士等发达国家以及欧盟都强烈反对这一想法。路透社指出，所有这些国家都是大型制药公司的总部所在地。在大流行期间，禁令将扼杀这些制药公司研发和创新的动力。
+
+此外，发达国家认为，放弃知识产权并不能解决阻碍药物供应的生产和分销能力的问题，反而不利于全球抵抗疫情。
+
+目前，一方面发达国家拥有的疫苗数远超其人口规模，甚至有的国家已经储备了人口数量的几倍；另一方面不发达国家因为疫苗价格昂贵，只能从俄罗斯和中国买未经测试的疫苗。尽管欧盟表示，他们投资了阿斯利康公司疫苗的研发，理所当然应该享有折扣，但实际上南非了人体临床测试。
+
+虽然世界贸易组织成员一致认为迫切需要确保疫苗和药品得到公平和迅速的分配，但他们无法就放弃知识产权为达成协议。
+
+**无国界医生组织（MédecinsSans Frontieres）**呼吁发达国家停止反对该提议，因为他们这么做可能会破坏挽救数十亿人生命的潜能。这个组织的执行联合主任西德尼·黄（Sidney Wong）博士说：“这个病毒大流行不会结束直到对于世界上每一个人来说它都结束。”
+
+目前为止，没有人知道CCP病毒疫苗的长期效果。
+
+**【观点】**这些大型制药商把利润放在人命之上，通过卖疫苗在疫情期间大赚疫苗钱。反观，印度和南非等不发达国家因为疫苗价格昂贵而买不起或者买不到足够的疫苗。与此同时，世贸组织没有通过阻止发达国家暂免制造疫苗专利的限制，制造廉价的仿制药品。
+
+这些疫苗的研发时间太短，使用的mRNA技术从没在人体上使用过，可能有增强病毒感染性的风险。一印度同事透露，他们每周会喝一种用草药做出来的汤增强免疫力来预防CCP病毒，同时他们也会使用羟氯喹来治疗病人。
+
+从数据上看印度确实减少了感染数量，死亡率降到1.4%，这是欧美国家都做不到的。这些不发达的国家虽然没有足够的疫苗，但他们也没有被大药厂封杀羟氯喹的使用，所以我觉得他们有可能会最先摆脱疫情，也不用担心疫苗的副作用。
+
+**难以想象**，当人们知道大型制药商为了利益，施压政府和媒体封杀羟氯喹的治疗作用，而是大力生产和推行未经完整人体临床测试的疫苗来赚的盆满钵满的真相，这个世界将会发生什么？
+
+【参考来源】
+
+[Wealthy countries block India, South Africa’s bid to ban COVID vaccine patents – NaturalNews.com](https://www.naturalnews.com/2021-02-06-wealthy-countries-block-ban-covid-vaccine-patents.html)
+
+DW.com
+
+Reuters.com
+
+MSF.org
+
+**【免责声明】**  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+**欢迎战友加入旧金山金喜准农场**
+
+**旧金山金喜准农场** GTV: [https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+
+**旧金山金喜准农场** Discord: [https://discord.gg/QQzQ79grEA](https://t.co/hPEjhr0AZA?amp=1)
+
+**旧金山金喜准农场** Twitter: [https://twitter.com/sf\_himalaya](https://twitter.com/sf_himalaya)
+
 0

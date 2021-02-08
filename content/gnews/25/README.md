@@ -1,43 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香草播报：【热点播报】拜登总统说“没有理由不给习近平打电话”
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/891429/)
+## 谷歌对支付澳洲本地新闻来源的议案做出让步
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/891461/)
 
-作者：纽约香草山写作组 Wilson
+翻译：Jony (8 Mile)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/001.jpg)(图片来源于网络)
+谷歌在澳大利亚改弦更张——为（部分）澳大利亚新闻开通付费平台。
 
+澳大利亚政府在与谷歌的对峙中可能取得了罕见的局部胜利。这家总部位于美国的科技巨头似乎已经改变了方向，因为澳大利亚正在举行听证会，旨在颁布立法，以有效地迫使谷歌为其链接的新闻和搜索引擎中的特色新闻向当地来源支付费用。
 
+谷歌上个月威胁要将其搜索引擎完全撤出澳洲，堪培拉则表示，他们不会让步。但周四，谷歌发布了以下官方声明: “为了满足读者和出版商日益增长的需求，去年我们加大了对新闻合作伙伴的投资，并推出了谷歌新闻展应用。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+新闻展 “Showcase “应用程序是该公司通过谈判，向一些注册该程序的澳大利亚新闻制作人支付报酬的结果。这是在试图削弱要求公司支付所有此类内容的拟议立法。不过，这不太可能阻止新的立法，但谷歌将其作为一种 “替代方案”。此举表明，这家科技巨头可以说是感受到了压力，正在寻求妥协。
 
+谷歌公告还说：”今天，我们很高兴地宣布，我们正在推出该产品的初始版本，以使澳大利亚的用户和出版商受益，鉴于本地信息的重要性及其在人们日常生活中的作用，我们非常关注领先的区域和独立出版商。”
 
+“新闻展应用旨在为出版商和读者带来价值，通过提供授权计划，向出版商支付费用，为谷歌服务中的故事板块策划内容，并让读者更深入地了解重要的故事，”声明说。
 
-印度《[斯番时报](https://www.hindustantimes.com/world-news/joe-biden-hasn-t-called-xi-jinping-yet-says-haven-t-had-occasion-to-talk-101612720262050.html)》2月7日报道，乔·拜登总统表示，他还没有与中国国家主席习近平交谈，并承诺将和北京建立与他的前任不同的关系。
+虽然细节尚未透露，例如哪些出版商最终将被允许加入该平台，但据路透社详细报道，这是一项重大的妥协，很可能首先奖励澳大利亚主要的全国性媒体：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/78.jpg)
+“目前该立法已提交议会调查，周五在澳大利亚推出的 “新闻展 “应用将向包括《堪培拉时报》在内的七家国内媒体支付费用，以使用其内容。
 
-拜登在接受哥伦比亚广播公司周五录制的采访(周日播放)时表示，他还没有与中国国家主席习近平交谈，并承诺和北京建立与他的前任不同的关系。“嗯，我们还没有机会与彼此交谈，”他说，“没有理由不给他打电话。”
+内容交易的财务细节没有披露，《堪培拉时报》出版商澳大利亚社区媒体没有立即回应评论请求。“
 
-拜登补充说，在担任巴拉克·奥巴马的副总统八年后，他对习近平“非常了解”。他说：“我花在习近平身上的时间可能比任何世界领导人都多。”
+酝酿数月的澳大利亚倡议旨在确保公司和内容提供商因其内容为谷歌和母公司Alphabet Inc.创造的价值而获得公平补偿，而此时国内行业正处于危机之中，传统报纸和内容生产商面临着不得不完全关闭的威胁。
 
-拜登说，他对中国的态度将与前总统唐纳德·特朗普不同，习近平知道这一点，因为他一直在“发出信号”。
+上个月，澳大利亚总理斯科特-莫里森（Scott Morrison）在该国被谷歌威胁关闭搜索引擎后进行了反击，他说：”我们不会回应威胁”。他当时补充道 “让我说清楚， 澳大利亚制定我们自己的关于你们在这里可以做的事情的规则。”
 
-本次访谈中，拜登总统对前政府判定的习近平和中共在新疆犯下反人类罪和种族灭绝罪只字不提，也不提及对已造成近50万美国人死亡的中共病毒追根溯源。镜头前的拜登总统侃侃而谈，显得非常大度！
+据普遍估计，与全球其他许多国家类似，Alphabet公司至少监管着澳大利亚94%的搜索流量，而此时Alphabet公司正受到越来越多的指责，指责它利用其垄断力量欺负内容提供商和较小的竞争对手。
 
-编辑/校对/发稿：Irene木木
+（本文纯属原文翻译无个人观点添加）
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+审稿：Gradient Boost
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+新闻原文来自：[Zerohedge](https://www.zerohedge.com/technology/google-reverses-course-australia-opens-paid-platform-some-australian-news?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+[澳喜文章](https://gnews.org/zh-hans/author/aujenny/)
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
-
+[欢迎加入澳喜农场](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-Logo.jpeg)
 0
