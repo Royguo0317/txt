@@ -1,31 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共警告将制裁抵制北京2022年冬奥会的国家
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/892934/)
+## 【快讯】Flash“遭”停用 多地政府官网受影响
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/893014/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：香草山农场  鹰(文言)
 
-编辑   水星    上传    银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-08_19-54-38.jpg)[sportzwiki.com](https://sportzwiki.com/news/ioc-pleased-with-beijings-preparation-for-2022-winter-games/)
-英国《每日邮报》2月8日报道，中共威胁将对英国和其他抵制2022年北京冬奥会的国家实施制裁，这些国家因穆斯林维吾尔族的“种族灭绝”呼吁抵制中共2022年冬奥会。
+校对： 加拿大多伦多枫叶农场 文锦
 
-包括自由民主党领袖戴维(Ed Davey)在内的英国议员呼吁英国队抵制北京冬奥会。工党议员克里斯·布莱恩特也呼吁抵制，他对《卫报》说，“我就是不明白为什么会有人想去北京看冬奥会。” 他说，我认为英国奥林匹克协会应该呼吁冬奥会搬迁，如果它不搬迁，我们就应该抵制它。他认为英国政府在这件事上似乎毫无骨气，这真是不可思议。
+据澎湃网2月7日报道，由于2021年起Adobe旗下Flash Player插件正式停用，国内多地政府网站功能受阻。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/726.jpeg)
+截至目前，安徽合肥、广东韶关、浙江嘉兴等地政府官网均受此影响，功能组件无法正常显示。1月20日合肥自然资源和规划局通知建议切换360安全浏览器（根据《路德时评》爆料，360一直是与中共军方深度合作的企业）。1月22日Adobe公告称将与重庆重橙网络科技有限公司合作，继续支持Flash Player在大陆的运营。
 
-官方媒体《环球时报》主编胡锡进周日警告说，中共将严厉制裁任何响应这一呼吁的国家。他说，抵制2022年北京冬奥会是一个不受欢迎的想法，不会得到广泛支持。
+此前1月12日因Flash 组件停用导致大连车务段的现在车系统瘫痪20余小时。根据大连车务段官方微信消息，由于Flash组件停用，造成沈阳铁路局现在车系统页面无法显示，导致车站调车区无法查看列车运行图，引发部分车站失控局面。1月15日大连车务段改口称事故原因是大连车务段部分电脑无法通过浏览器访问现在车系统，而非铁路调度系统瘫痪。无论如何，这些都揭示了中共政府官网对Flash插件技术的严重依赖。
 
-对于胡锡进的威胁言论，戴维先生今天反击说，“我们从中共听到的是赤裸裸的恃强凌弱，而他们却进行种族清洗和种族灭绝。”“我们不能被中（共）国政府欺负”，他补充说，没有人想要制裁，但我们不能允许我们的运动员、企业和我们的国家被一个正在进行种族灭绝的政府欺凌。
+Flash支持流媒体播放，适用于低速互联网内容，但却由于其内在的耗电量大（动用CPU资源，能耗大）、运行缓慢、存在安全隐患而被HTML5（有免费开放、无需插件、速度快等优势）取代，相比于Flash的封闭和安全隐患（许多勒索病毒都基于Flash编写），HTML5这一开源技术更受到微软、Google等大型科技公司的青睐。
 
-同时戴维指出，“如果他们没有什么要隐瞒的，他们应该允许独立的联合国观察员进入，核实或否决这些说法。我们看到国际媒体、人权组织和BBC的报道展示了证据。中共当局必须承担责任。” 戴维强调这是一些非常合理的要求，是国际社会都在提出的合理要求，中共政府不应该逃避。
+在2014年HTML5标准推出后，Google浏览器逐步移除对Flash的支持，17年Adobe宣布将于2020年底终止对Flash的技术维护，2019年微软宣布在2020年底移除对Flash的支持。然而，中共在HTML5推出的5年后迟迟未对这一先进技术进行普及，在“调度系统瘫痪”后手忙脚乱，这反映出中共只照搬西方技术却毫无创新和中共专制政府的低效率和尸位素餐。
 
-英国外交大臣多米尼克·拉布(Dominic Raab)去年接受议会委员会质询时，并未排除抵制2022年冬奥会的可能性。“总的来说，我的直觉是把体育与外交和政治分开，但到了某个时候，这可能不可能。”他承诺会收集证据，与国际伙伴合作，进而全面考虑需要采取哪些进一步行动。
+如同宣称“中国速度”后雷神山却被曝漏雨，鼓吹粮食大丰收却要求全民节俭还要立法反对粮食浪费，此次的Flash事件明显打脸中共频频鼓吹技术创新和所谓“高迭代”的假大空宣传。
 
-加拿大《国家邮报》2月7日报道，由于中共对穆斯林维吾尔族和其他少数民族犯下“种族灭绝”罪行，加拿大各方的10多名联邦议员呼吁将2022年冬奥会移出中共国。加国13个议员签署了公开信要求国际奥委会(International Olympic Committee)重新安排全球赛事的举办地，以避免运动员受到“玷污”。并表示若在北京举行，本届奥运会将成为堪比1936年纳粹统治下的柏林奥运会般“耻辱的奥运会”。
+文章仅代表个人观点。
 
-参考链接：
+新闻来源：
 
-[https://www.dailymail.co.uk/news/article-9236073/China-threatens-sanctions-2022-Winter-Olympics-boycott-calls.html](https://www.dailymail.co.uk/news/article-9236073/China-threatens-sanctions-2022-Winter-Olympics-boycott-calls.html)
+Flash停用后怎么办？多地政府网站发布应对措施
 
-[https://nationalpost.com/pmn/news-pmn/canada-news-pmn/mps-demand-relocation-of-2022-olympics-due-to-chinas-abuse-of-uighurs](https://nationalpost.com/pmn/news-pmn/canada-news-pmn/mps-demand-relocation-of-2022-olympics-due-to-chinas-abuse-of-uighurs)
+[https://www.thepaper.cn/newsDetail\_forward\_11257567](https://www.thepaper.cn/newsDetail_forward_11257567)
+
+Flash停用致沈阳铁路局下属站段系统瘫痪 铁路信息化建设亟待加强
+
+[https://baijiahao.baidu.com/s?id=1689008122513839899&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1689008122513839899&amp;wfr=spider&amp;for=pc)
 
 0

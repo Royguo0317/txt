@@ -1,54 +1,181 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0206VI九指妖要开发傻币的消息除了可以通便还有啥
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/892789/)
+## “他们的目标是摧毁所有人”：维吾尔集中营的被拘人员指控遭受系统性强奸（二）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/892883/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/封面-69.jpg)
-编辑整理：
+五月花写作组 ｜ 翻译：jiasen ｜ 校对：虹陵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/02/新疆迫害2.jpg)**‘Their goal is to destroy everyone’: Uighur camp detainees allege systematic rape** “他们的目标是摧毁所有人”：维吾尔集中营的被拘人员指控遭受系统性强奸（二）
+- By Matthew Hill, David Campanale and Joel Gunter
+- BBC News
+- 作者：马修·希尔，戴维·坎帕纳尔，乔尔·冈特
+- 英国广播公司
 
-康州盘古农场：Ara
 
-多伦多枫叶农场：Winner为自由而战（文祥）
+* * *
 
-纽约香草山农场：某某(文成)
+The Uighurs are a mostly Muslim Turkic minority group that number about 11 million in Xinjiang in north-western China. The region borders Kazakhstan and is also home to ethnic Kazakhs. Ziawudun, who is 42, is Uighur. Her husband is a Kazakh.
 
-法国巴黎七星农场：枫丹白露
+维吾尔族是约有1100万的少数民族，在中国西北部的新疆，主要由穆斯林突厥人构成。 该地区与哈萨克斯坦接壤，也是哈萨克族的家乡。42岁的齐亚乌敦（Ziawudun）是维吾尔族。 她的丈夫是哈萨克人。
 
-篇首说明：郭文贵先生在[2021年2月6号 文贵直播： 中共发展数字货币的本质和野心．与G系列产品的区别和对新中国联邦的重大意义！](https://gtv.org/video/id=601f22fc3f8a013ab47fc514)谈到了共产党为什么在过去二十年三千次提到美国的SWIFT系统，谈到了为什么共产党热衷于发展数字货币，谈到了爆料革命如何对付共产党的数字货币政策等一系列内容，本系列将根据郭先生提到的不同侧重逐一上传。
+The couple returned to Xinjiang in late 2016 after a five-year stay in Kazakhstan, and were interrogated on arrival and had their passports confiscated, Ziawudun said. A few months later, she was told by police to attend a meeting alongside other Uighurs and Kazakhs and the group was rounded up and detained.
 
-以下为第六部分——九指妖要开发傻币的消息除了可以通便还有啥
+齐亚乌敦说，在哈萨克斯坦呆了五年后，他们夫妇于2016年底返回新疆，并在抵达时受到讯问，被没收了护照。 几个月后，警方让她与其他维吾尔和哈萨克人一起参加一个会议，随后这些人被围捕并遭拘留。
 
-据[2021年2月6号 文贵直播： 中共发展数字货币的本质和野心．与G系列产品的区别和对新中国联邦的重大意义！](https://gtv.org/video/id=601f22fc3f8a013ab47fc514)时间点1：15：48——
+Her first stint in detention was comparatively easy, she said, with decent food and access to her phone. After a month she developed stomach ulcers and was released. Her husband’s passport was returned and he went back to Kazakhstan to work, but authorities kept Ziawudun’s, trapping her in Xinjiang. Reports suggest China has purposefully kept behind and interned relatives to discourage those who leave from speaking out. On 9 March 2018, with her husband still in Kazakhstan, Ziawudun was instructed to report to a local police station, she said. She was told she needed “more education”.
 
-听说那九指妖她也要搞那SA币叫傻币，就她，就我见过她，那个傻币，就是那九指妖，五魁手啊，六个六啊，就她，她再活一万辈子她都造不出来傻币出来。就她，就她那英文、就她那个两毛钱，就她靠给共产党那个勾兑，她只能蹲在监狱里面去画那个傻币去，你知道了吗？就那个龟头洋，你看那个孙子那个样儿，她是找死呢，一种货币的诞生，你要想真成一个国家的交易、你要推上市场、你要过的关，战友们去想去吧，证监会、银监会、网络管理委员会、交易市场资格、交易监督市场资格，你要有支付，支付牌照，你内部你得有最起码有五到十个，二十四小时要过的话，你就得有三十个到五十个叫内部风险控制，风险控制不是你的，是当地政府指定的、政府同意的，这边是律师专业团队，最起码二十个，工程师你没有一百个左右的工程师给你在那块儿给你折腾着，你不可能写出这样代码，然后它每一个货币发出去，什么叫数字货币大家记住，当你任何你的钱动的时候，是全球的电脑都被通知了，你想再改回来是绝不可能的，就这个我这个钱我只要是一出去，全球的电脑都被通知了，你想再回来是绝不可能，这是它为什么它安全、不可篡改。就凭你，六个六啊，献歌献啊，五魁首啊，九指妖，你这傻子在那儿，**我听说她要搞傻币的时候，我简直我就，我在厕所里，真的是我突然间憋的我有点拉不出来**，我一看到这个木兰发给我的，说Sara刚刚说要搞傻币的时候，我蹦的一下子喷出来、排出一大块去，一下子灵感来了，原来我发现原来傻币能帮大排泄，哇噻，感谢你了九指妖，哇噻还好七哥不便秘啊，谢谢了。哈哈。
+她说，她第一次被拘禁的经历没有那么痛苦，因为那里提供的食物还不错，而且人可以打电话。 一个月后，她因患上了胃溃疡而被释放。她丈夫的护照被退回，他回到哈萨克斯坦工作，但当局扣留了齐亚乌敦的护照，将她困在新疆。报道表明，中共国故意扣押被施放人员的亲属，以阻止他们发声。她说，2018年3月9日，当时她的丈夫仍在哈萨克斯坦，齐亚乌敦被指示向当地派出所汇报。 她被告知她需要接受“更多的教育”。
 
-**就凭她能说出这样的话来，她要不待在监狱里，那美国的监狱就白盖了。**美国是个人都比她强，被搞个傻币出来，她还搞个傻币。呵呵，她大爷的这种傻货，你说这种东西，你说你看我过去三年，我听说最近把我的WhatsApp，你看着没，**所有的砸郭的人一定把你通话的语音记录给你推出去，这是一贯的做法。**你看我们战友当中，任何人，当你随便把别人的语音都留着作为证据，这人早晚一天跟是你敌人的。我的手机是被黑客就没了，手机就全砸了，因为我老被黑客，我不留证据。你看这个九指妖就给你留成证据了，她还推出来，九指妖你要是个人物，你推出来我说过你多少次，我说Sara你敢这么做我再也不跟你联系了，一次都不跟你联系了，我说过多少次过去三、四年。
+According to her account, Ziawudun was transported back to the same facility as her previous detention, in Kunes county, but the site had been significantly developed, she said. Buses were lined up outside offloading new detainees “non-stop”.
 
-就她那个大嘴一咧咧就是真的是，就是我这小时候东北那个村里面，在村里面，那种最最那种流氓，上一趟镇上回来，一回来以后，哎呀呀呀呀，那个我刚才在镇上见谁谁谁了，然后跟我聊天了，他一看我长的，你说这小伙子长得好啊像达式常啊，所以你看他看我长得像达式常，下一步可能就让我去演电影了，想着想着，其实你说我演电影我怎么一个月也得给我三百或二百块钱工资吧。人家说他像达式常，他就该想着去达式常要去演电影了，然后就想着要多少钱工资了。待一会又想想，实际上我也可以要个高价，达式常一年也弄个四五百，我怎么也弄个三百呀，这就开始做梦了。到了那个镇上看到人家卖猪肉的旁边有炖熟的猪肉、猪头肉，人家说孩子过来了，你谁家孩子啊，人家“咔”割了一块猪耳朵搁那，吃了吧。回来就开始幻想了，给我切了块猪耳朵，你看谁都没给就给我了，就我长得好看，我长得好看，说这家人早晚他得来求我，得让我去帮他经营那个杀猪的摊去。就是我们村那个流氓，叫张四儿，我现在如果东北看我直播都知道是谁，最后就被抓了，偷盗罪被抓了。他老做梦啊、他老幻想啊，最后他发现那商店里头，那时候都是国营商店没有私人经营，叫红旗岭国营商店，这哥们到了店里面去了偷了一些鞋，挂着脖子鞋游览，那时候我还差点学小偷去，把我吓一大跳，哟，哇噻，把我吓我说那么惨呐，我那时候七、八岁一个孩子是吧，这就是那九指妖。
+根据齐亚乌敦的说法，她被转移回她先前在库内斯县被拘禁的同一设施，但该处所的情况已经大为改变。 公共汽车在外面排着队，“不停地”运来新的被拘禁者。
 
-**你说她现在认为所有的战友跟着她的都是因为她长的好看，**因为她会五魁手啊六个六啊三个三呐，她以为这。她以为龟头洋一去哇噻她今天就了不滴了，然后现在就觉得她现在就是可以生产傻币了，也可以搞GTV、 G-News、搞直播台了，然后觉得我是博士，我可以管理，哇噻，这就是九指妖。然后你看看现在真是，**我最近跟战友聊天才发现，他说七哥你原来都是你护着她，他说她跟你说话小鸟依人呐，一跟我们战友说话的时候那就是一个中央首长的级别，一说话就那口气呀。**我昨天我跟这旁边咱们战友还说呢，我说你观察一个人，只要这个人当着一种人一种嘴脸、当着另外一种人一种嘴脸、当面一套背后一套，这一定是王八蛋，一定是小人。我娘从小告诉我，她说孩子你看一种人见人说人话、见鬼说鬼话、当面一套背后一套一定是坏人。所以我家这些哥们，百分之百我可以向大家保证，绝对在当面背后说话都是一样的，因为我娘就不允许。我娘要看到谁在当面一套背后一套，我娘得把你骂死了。这就典型的Sara。
+The women had their jewellery confiscated. Ziawudun’s earrings were yanked out, she said, causing her ears to bleed, and she was herded into a room with a group of women. Among them was an elderly woman who Ziawudun would later befriend.
 
-今天好多战友给我发信息，就是跟Sara说话的语音这也不是好习惯啊，证据发给我，我真的听了Sara说话我都恶心的慌，这个九指妖哇，她跟战友说话我的天就像神一样，那种那种态度，我就想这TM在共产党的官里面她当一个村长大半个中国都得被她毁了，这是个九指妖真是个魔呀！咱们德州农场的战友有高人分析她是边界型人格、边缘化人格，我听了一段讲的非常好，这是有病，精神病这家伙你知道吗？这是挺搞笑的，搞傻币，呵呵，搞啊，你一定搞，你不搞你是孙子，你可千万得搞。有地方搞，**美国监狱里会给你留着位置让你去搞傻币去。到那时候，我一定叫人去看你去，给你拿一堆白纸让你画傻币出来。**
+妇女们的珠宝被没收。 齐亚乌敦说，她的耳环被拉出，导致耳朵流血，然后与一群妇女一起被塞进一个房间。 其中有一位老年妇女，齐亚乌敦后来与她成为了朋友。
 
-现在我现在说到九指妖这个事啊，九指妖现在事儿已经不是，（看手机信息）。这个我们现在喜马拉雅大使馆在GTV上的直播引起了很大的反响，文蕾、文斌大家做的非常非常棒，我听了一段我还没有全听呢，这个反响很大，很多人在问。**现在九指妖跟战友们的关系已经不是欺骗这么简单了，这是绝对的犯罪，她一定会进监狱的。**她已经不是说，战友们都很单纯、很善良，我看GTV、YouTube上、推特上直播还定位为九指妖骗，**她已经不是妖骗了，她这是有计划的，有计划的、有组织的、有预谋的杀人。我这话是第一次说出口来，九指妖记下来到法庭说去。**我让你们每天都看她说那话，战友们都是有钱的，有钱人都得写遗书，写遗书，美国人都写啊，继续写呀。这话有多恶呀？然后接着说跟共产党的国保喝茶非常好，根本不存在虐待殴打，你们继续找他喝茶。然后你填表，填表跟她账上数一对，很多人没填表，因为有些人被抓了，或者她把你的信息给了国内的国保叫你消失被抓了。**咱过去这些天有几乎90%上以上的国内被抓的、被威胁的都是VOG的打工（义工）和给VOG汇款的，她让你消失了。这是一个有计划、有预谋、有组织的杀人、杀人灭口犯罪，那已经不是诈骗了。**这个诈骗这个词已经对九指妖没用了，这是由海洋、龟头洋这小子叫什么王八蛋名字了，还有Johnathan，Johnathan，还有她的儿子令狐、还有PJ潘，**这是有组织、有预谋的、杀人团伙。她已经不是诈骗了。**
+The camp guards pulled off the woman’s headscarf, Ziawudun said, and shouted at her for wearing a long dress – one of a list of religious expressions that became arrestable offences for Uighurs that year.
 
-战友们发来的各种信息、视频、被证据，这都看的清清楚楚，它都会最后在法庭上和在她被审判的时候拿出来，她将永远无法改变这个事实。（郭先生与旁边人员说英语——what’s this？That’s new one）咱们的新的日本的（草莓），我这美国的这个草莓我从来不吃我只吃日本的。这一个多少钱，这一个？啊？是吗？好贵呀！一粒平均，一粒平均十几美金，太坑人了吧。（郭先生与战友互动）［日新月异说，**我亲自去监狱去看看这个傻，傻那词。龟头洋真名陈其生，**陈其生，陈其生。吃过台湾草莓也不错啊，但是跟这没发比。超级甜啊，你看看，你看看，透的。陈其生啊。耶路撒冷我的爱，七哥今天的网络声音很棒。好谢谢了，那就好。龟头洋真名陈其生，这孙子，这个孙子是太坏了，你想想写遗书，你写遗书钱是到你家去，你让战友写遗书钱是到你那去，然后你又说你不相信中国发生战争，或者共产党经济会崩塌，然后你让人家写遗书，写了遗书钱就给你去了，你这王八蛋，然后你再让人家去警察那喝茶再消失，然后钱就成是你的了。（与旁边管家说话并介绍——Thank you Rudy。朱利安尼的弟弟，管家，朱利安尼的弟弟，朱利亚）。
+齐亚乌敦说，集中营警卫拉下她的头巾，并因她穿着一件长裙而冲她大喊大叫——长裙是维吾尔人一系列宗教象征之一，也是维吾尔人被捕的原因。
 
-然后你看她竟然疯狂到什么程度，**头两天说”May wind跟我没关系啊”，然后呢”我一分钱没有啊，钱全都到总部了。”战友们穷追猛打要还钱，昨天说了:”我借的钱还你们”，**你在哪借的钱呀？”我后面有个很大的团队”。Sara 你能相信她能借到100万美元吗？她把她卖一万回她借不了100万美元，把她的信用卖1万回都赚不了，都借不了100万美元。结果怎么着兄弟姐妹们？最后是发现新账号——摩根的账号，账号还有这500万那500万。**然后现在煽动说要放出语音，说是王雁平让她关掉凤凰农场，你这个王八蛋撒谎，路德先生活着呢，科学家也活着呢，谁让你关的？是你自己要关的。我让你关的又咋了？让你关我也是我的权利呀，有意义吗？我让你关、王雁平让你关、路德让你关和你自己关都跟你还战友的钱没球关系，九指妖！**
+“They stripped everything off the elderly lady, leaving her with just her underwear. She was so embarrassed that she tried to cover herself with her arms,” Ziawudun said.
 
-如果说我们欠战友的钱我们必须还，我们不还有美国法院，你把拿到战友的钱还了，别你大爷的胡扯八扯的，什么正义呀、真相啊、God呀，你God啥呀你God？你God啥呀？你把战友的钱还了，你别废话，你头两天不是说没钱吗？你不是借到钱了吗？你不是说SEC把你账号给封了吗？那现在怎么能还了？SEC啥什么时候给你解的封啊？你不是说跟May wind没关系吗？那怎么有May wind账号还有钱呐？ May wind账号到底有多少钱你给战友说说行不行？是你家里地里产的还是习近平给你托梦梦来给你的钱！还有人跟她？**还有300多号人跟着她，这些人你们一定要投资妖的傻币，你不投你不够人格，你一定要投，你去投吧。我们爆料革命、农场除了不欢迎共产党要灭共之外，同时也不欢迎傻子来，我们特别不欢迎傻子，因为傻子误国呀。**不欢迎这种人来，还要跟着Sara，Sara有真相、有自由、民主、还有God，你跟她去，是吧？猪队友我们没问题的，我最恨的就是什么？你用完全自私，自私到你犯傻，自私到你傻你害你自己还不算、你害家人、你害别人，这样的人我坚决不欢迎。**害战友被判了8个月，**这好多呢，好多呢，她不是说没有战友因为被判刑吗？不是说国保对战友都很好吗？**现在国保、警察只要是找了战友，学豆豆、学Sara、学陈其生是吧？龟头洋。**
+齐亚乌敦说：“他们剥光了这位年长女士的一切衣服，只剩下内裤。她很尴尬，试图用胳膊遮挡住自己。”
 
-接上文——
+“I cried so much watching the way they treated her. Her tears fell like rain.”
 
-[**郭先生0206I****爆料革命唤醒了世界，要谈中共只有找爆料革命**](https://gnews.org/zh-hans/892328/)
+“看着他们对待她的方式，我哭了很久。她也泪如雨下。”
+![]()![](https://gnews.org/wp-content/uploads/2021/02/116778891_tz_composite.jpg)Ziawudun identified this site – listed as a school – as the location where she was held. Satellite images from 2017 (left) and 2019 (right) show significant development typical of camps, with what look like dormitory and factory buildings 齐亚乌敦确认了被列为学校的地点—她被拘禁的地方。  2017年（左）和2019年（右）的卫星图像显示了具有典型集中营特点的建筑被改造的过程，看起来像宿舍和工厂建筑物
+The women were told to hand over their shoes and any clothes with elastic or buttons, Ziawudun said, then taken to cellblocks – “similar to a small Chinese neighbourhood where there are rows of buildings”.
 
-[**郭先生0206II****共产党为何一直主攻SWIFT****系统并发展自己的数字货币**](https://gnews.org/zh-hans/892344/)
+齐亚乌敦说，这些妇女被告知要上交鞋和含松紧带或纽扣的任何衣物，然后被带到牢房里，“就像一个小的居民区，那里有一排排的建筑物”。
 
-[**郭先生0206III****布局数字货币摧毁美国之后接下来的核心是经济**](https://gnews.org/zh-hans/892365/)
+Nothing much happened for the first month or two. They were forced to watch propaganda programmes in their cells and had their hair forcibly cut short.
 
-[**郭先生0206IV****美国已摇摇欲坠,****中共的数字货币的软肋是什么**](https://gnews.org/zh-hans/892671/)
+前一两个月没有发生什么。 他们被迫在牢房中观看宣传节目，并被强行剪短头发。
 
-[**郭先生0206V共产党在数字货币推行成功前给谁留下最好机会**](https://gnews.org/zh-hans/892751/)
+Then police began interrogating Ziawudun about her absent husband, she said, knocking her on the floor when she resisted and kicking her in the abdomen.
 
-+1
+随后，警察审问她丈夫的情况。在她抵抗时将其打倒在地，并踢她腹部。
+
+“Police boots are very hard and heavy, so at first I thought he was beating me with something,” she said. “Then I realised that he was trampling on my belly. I almost passed out – I felt a hot flush go through me.”
+
+她说：“警靴很硬很重，所以起初我以为他在用什么其他的东西殴打我。后来我意识到他在踩我的肚子。我差点昏倒了，我感觉到一股热流在我体内涌动。”
+
+A camp doctor told her she might have a blood clot. When her cellmates drew attention to the fact that she was bleeding, the guards “replied saying it is normal for women to bleed”, she said.
+
+一名集中营的医生告诉她，她体内可能有血块。 她说，当她的囚友提醒警卫注意她正在流血时，警卫回答说“女性流血是正常的现象”。
+
+According to Ziawudun, each cell was home to 14 women, with bunk beds, bars on the windows, a basin and a hole-in-the-floor-style toilet. When she first saw women being taken out of the cell at night, she didn’t understand why, she said. She thought they were being moved elsewhere.
+
+根据齐亚乌敦的说法，每个牢房有十四名妇女，配有双层床，窗户上有栏杆，有一个洗手盆和蹲式厕所。 她说，当她第一次看到有女人在晚上被带出牢房时，她还不明白为什么。 她以为她们被转移到其他地方了。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/116769415_b73d1b77-b8b6-4050-84b0-de7c3a049697.jpg)Secret filming obtained by the Bitter Winter activist group showed cells with bars and cameras itter Winter 成员小组秘密拍摄的照片显示，牢房里有栅栏和监控摄像头
+
+Then sometime in May 2018 – “I don’t remember the exact date, because you don’t remember the dates inside there” – Ziawudun and a cellmate, a woman in her twenties, were taken out at night and presented to a Chinese man in a mask, she said. Her cellmate was taken into a separate room.
+
+在2018年5月的某个时候——“我不记得确切的日期，因为你不记得里面的日期”——齐亚乌敦和一个二十多岁的女性狱友在晚上被带出，带到一个带着口罩的中国男人面前。 她的狱友则被带到一个单独的房间。
+
+“As soon as she went inside she started screaming,” Ziawudun said. “I don’t know how to explain to you, I thought they were torturing her. I never thought about them raping.”
+
+齐亚乌敦说：“她一进去就开始尖叫。我不知道该如何向你解释，我以为他们在折磨她。我从没想过他们在强奸她。”
+
+The woman who had brought them from the cells told the men about Ziawudun’s recent bleeding.
+
+从牢房带走她们的女人告诉那几个男人齐亚乌敦最近在流血。
+
+“After the woman spoke about my condition, the Chinese man swore at her. The man with the mask said ‘Take her to the dark room’.
+
+“那个女人说了我的病情之后，那个中国男人开始骂她。那个戴着口罩的男人说“带她去黑屋”。
+
+“The woman took me to the room next to where the other girl had been taken in. They had an electric stick, I didn’t know what it was, and it was pushed inside my genital tract, torturing me with an electric shock.”
+
+“那个女人把我带到另一个女孩被带去的隔壁房间。他们有一个电棍，我不知道那是什么，它被推到我的阴道内，电击折磨我。”
+
+Ziawudun’s torture that first night in the dark room eventually came to an end, she said, when the woman intervened again citing her medical condition, and she was returned to the cell.
+
+齐亚乌敦说，她在黑屋的第一个晚上的酷刑终于结束了，当那名妇女以她的病情再次进行干预时，齐亚乌敦被送回了牢房。
+
+About an hour later, her cellmate was brought back.
+
+大约一个小时后，她的狱友被带回来了。
+
+“The girl became completely different after that, she wouldn’t speak to anyone, she sat quietly staring as if in a trance,” Ziawudun said. “There were many people in those cells who lost their minds.”
+
+齐亚乌敦说：“此后，这个女孩变得完全不同了，她不会和任何人说话，她精神恍惚静静地凝视着前方发呆。有很多人在牢房里精神失常。”
+![pastedGraphic_2.png]()![pastedGraphic_2.png](https://gnews.org/wp-content/uploads/2021/02/116684003_gettyimages-1173692131-1.jpg)Gulzira Auelkhan, centre, at home in her village. She was forced to restrain women in the camps, she said 古尔吉拉·奥埃尔汗（Gulzira Auelkhan）在她的农村家里。她说，她被迫在集中营里捆绑妇女。
+Alongside cells, another central feature of the camps is classrooms. Teachers have been drafted in to “re-educate” the detainees – a process activists say is designed to strip the Uighurs and other minorities of their culture, language and religion, and indoctrinate them into mainstream Chinese culture.
+
+除牢房外，集中营的另一个主要特征是教室。据活动人士说， 教师被招募进来对被拘禁者进行“再教育”。这一过程旨在剥夺维吾尔人和其他少数民族的文化，语言和宗教信仰，并给他们灌输主流中共国文化。
+
+Qelbinur Sedik, an Uzbek woman from Xinjiang, was among the Chinese language teachers brought into the camps and coerced into giving lessons to the detainees. Sedik has since fled China and spoken publicly about her experience.
+
+来自新疆的乌兹别克族妇女奎比奈·塞迪克（Qelbinur Sedik）是被带到集中营并被迫给被拘禁者上课的中文老师之一。 此后，塞迪克（Sedik）逃离中共国，公开讲述了她的经历。
+
+The women’s camp was “tightly controlled”, Sedik told the BBC. But she heard stories, she said – signs and rumours of rape. One day, Sedik cautiously approached a Chinese camp policewoman she knew.
+
+塞迪克告诉英国广播公司，妇女集中营受到“严格控制”。 但她说，她听到了一些故事——关于遭受强奸的迹象和流言。 有一天，塞迪克小心翼翼的与她认识的一名集中营里的女警接触。
+
+“I asked her, ‘I have been hearing some terrible stories about rape, do you know about it?’ She said we should talk in the courtyard during lunch.
+
+我问她：“我听到过一些关于强奸的可怕故事，你知道吗？” 她说我们应该在午餐时间在院子里谈。
+
+“So I went to the courtyard, where there were not many cameras. She said, ‘Yes, the rape has become a culture. It is gang rape and the Chinese police not only rape them but also electrocute them. They are subject to horrific torture.'”
+
+所以我去了没有很多摄像头的院子。她说：“是的，强奸已成为一种文化。这是轮奸，中共国警察不仅强奸了他们，还电击她们。她们遭受了可怕的酷刑。”
+
+That night Sedik didn’t sleep at all, she said. “I was thinking about my daughter who was studying abroad and I cried all night.”
+
+塞迪克说，那天晚上她根本没有睡觉。  “想到我正在国外学习的女儿，我哭了一整夜。”
+![pastedGraphic_3.png]()![pastedGraphic_3.png](https://gnews.org/wp-content/uploads/2021/02/116693915_gettyimages-1000391550-1.jpg)Sayragul Sauytbay, a teacher, said she witnessed a harrowing rape. She was later accused of crossing illegally into Kazakhstan 集中营教师塞拉古尔·索伊特贝（Sayragul Sauytbay），说她目睹了一场可怕的强奸。 她后来被指控非法越境进入哈萨克斯坦
+In separate testimony to the Uyghur Human Rights Project, Sedik said she heard about an electrified stick being inserted into women to torture them – echoing the experience Ziawudun described.
+
+在给《维吾尔人权项目》的另一次证词中，塞迪克（Sedik）说，她听说有人将一根电棍插入妇女的身体来折磨她们，这与齐亚乌敦描述的经历相呼应。
+
+There were “four kinds of electric shock”, Sedik said – “the chair, the glove, the helmet, and anal rape with a stick”.
+
+塞迪克说，有“四种电击”，即“椅子，手套，头盔和电棍肛奸”。
+
+“The screams echoed throughout the building,” she said. “I could hear them during lunch and sometimes when I was in class.”
+
+她说：“尖叫声在整个建筑中回荡。我可以在午餐时间，有时在上课的时候听到尖叫声。”
+
+Another teacher forced to work in the camps, Sayragul Sauytbay, told the BBC that “rape was common” and the guards “picked the girls and young women they wanted and took them away”.
+
+另一位被迫在集中营工作的老师塞拉古尔·索伊特贝（Sayragul Sauytbay）告诉英国广播公司，“强奸很普遍”，而警卫人员则“挑选他们想要的女孩和年轻妇女带走”。
+
+She described witnessing a harrowing public gang rape of a woman of just 20 or 21, who was brought before about 100 other detainees to make a forced confession.
+
+她描述了亲眼目睹一个只有20或21岁的年轻女子被公开轮奸的可怕情景，那女子被带到大约100名其他被拘禁者面前，强迫认罪。
+
+“After that, in front of everyone, the police took turns to rape her,” Sauytbay said.
+
+索伊特贝说：“在那之后，警察在所有人面前轮流强奸她。”
+
+“While carrying out this test, they watched people closely and picked out anyone who resisted, clenched their fists, closed their eyes, or looked away, and took them for punishment.”
+
+“进行这项测试时，警察密切注视所有人，并挑出任何表现出抵抗，握紧拳头，闭上眼睛或移开视线的人，将她们带走进行惩罚。”
+
+The young woman cried out for help, Sauytbay said.
+
+索伊特贝说，那名年轻女子大声呼救。
+
+“It was absolutely horrendous,” she said. “I felt I had died. I was dead.”
+
+她说：“那绝对是极其恐怖的。我觉得我已经死了。我死了。”
+
+* * *
+
+**来源：*****BBC News***
+
+参考链接：[https://www.bbc.com/news/world-asia-china-55794071](https://www.bbc.com/news/world-asia-china-55794071)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+
+0

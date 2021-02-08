@@ -1,58 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2/8/2021 财经快讯：对冲基金押注油价将&#8221;东山再起&#8221;；货运商称英国对欧盟出口下降68%
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/892481/)
+## 中共国船只连续两天进入尖阁领海
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/892634/)
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/02/Picture1-48.jpg)
-图片来源：[https://cn.investing.com/](https://cn.investing.com/)
-
-1. **对冲基金押注石油价格将”东山再起**“
+- 编辑：Victor Torres
+- 素材：meiping
 
 
-(路透社)对冲基金再次转而看涨石油，押注疫情和投资者对环境的关注严重损害了公司提高产量的能力。几家对冲基金表示，这种对供应的限制将把价格推至多年高位，并将在高位维持两年或更长时间。自去年11月初出现疫苗成功消息以来，全球石油布伦特原油价格已经跳涨了59%，上周，它达到了疫情前的水平，接近每桶60美元。同期，美国原油已攀升54%，至每桶57美元左右。
-[https://www.reuters.com/article/us-global-oil-hedgefunds-focus/hedge-funds-bet-on-oils-big-comeback-after-pandemic-hobbles-producers-idUSKBN2A70IM](https://www.reuters.com/article/us-global-oil-hedgefunds-focus/hedge-funds-bet-on-oils-big-comeback-after-pandemic-hobbles-producers-idUSKBN2A70IM)
+**西班牙2021年2月8日电/——西喜社**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2233566.jpeg)@«ê§Eët
+中共国海岸警卫队的船只周日连续第二天进入中共国主张的尖阁诸岛附近的日本领海。
 
-1. **货运商称自退欧贸易协议达成以来，英国对欧盟出口下降68%**
+日本海岸警卫队表示，两艘中共国海岸警卫队船只在凌晨3点50分左右侵入东海无人居住小岛群附近海域，并在上午9点后离开。
 
+这些入侵事件发生在中共国本月初一项新法律生效之后，该法律明确允许中共国海岸警卫队对北京认为非法进入其水域的外国船只使用武器。
 
-（路透社）据一个代表货运商的行业协会表示，在英国脱欧后的过渡期结束后，贸易受到扰乱，使得1月份英国对欧盟的出口下降了68%。政府不承认该出口数据，并表示自英国在2020年底完成脱欧以来，边境的扰乱微乎其微。
-[https://www.reuters.com/article/us-britain-eu-exports/exports-from-uk-to-eu-down-68-since-brexit-trade-deal-say-hauliers-idUSKBN2A70G3](https://www.reuters.com/article/us-britain-eu-exports/exports-from-uk-to-eu-down-68-since-brexit-trade-deal-say-hauliers-idUSKBN2A70G3)
+海岸警卫队称，中共国船只周日进入日本海域后，在其中一个小岛大正岛东南约22公里处，将船头指向一艘日本渔船，并做出接近该船的举动。
 
-1. **美财政部长耶伦：现在说是否需要改变来应对市场波动为时过早**
+据位于冲绳县那霸市的第11地区海岸警卫队总部称，这是中共国政府船只今年第五次进入日本海域。周六，入侵事件持续了约8个半小时，东京通过多种外交渠道向北京提出抗议。
 
+总部表示，这艘载有5人的渔船周日一直由巡逻艇看守，同时海岸警卫队警告中共国船只立即离开该海域。
 
-（路透社）美国财政部长珍妮特·耶伦周日表示，现在就说是否需要新的政策或法规来应对近期的市场波动还为时过早。耶伦在美国有限电视新闻网的节目中表示：“我们需要了解到底发生了什么，美国证券交易委员会正在全力汇总一份报告，将为我们提供事实，当有了这些事实之后，我们就可以看到是否有需要新政策或法规来解决的问题。”这里的市场波动主要是指过去两周出现的“美国散户大战华尔街“事件。周四耶伦召集相关会议讨论是否需要就此事件采取行动。
-[https://www.reuters.com/article/us-retail-trading-yellen/u-s-treasury-secretary-yellen-too-soon-to-say-if-changes-needed-to-address-market-volatility-idUSKBN2A70J4](https://www.reuters.com/article/us-retail-trading-yellen/u-s-treasury-secretary-yellen-too-soon-to-say-if-changes-needed-to-address-market-volatility-idUSKBN2A70J4)
+它说，与周六发生的情况一样，另外两艘中共国海岸警卫队的船只，其中一艘装备了似乎是大炮的船只，在日本领海外靠近尖阁海峡的所谓毗连区巡航。
 
-1. **美财政部长耶伦称年收入6万美元者应获得刺激支票**
+如果将毗连区包括在内，这是连续第九天在该区域附近发现中共国船只。
 
+中共国海岸警卫队的船只经常被派往尖阁诸岛附近，特别是在旨在使中共国成为海洋强国的习近平的领导下。
 
-（路透社）美国财政部部长珍妮特·耶伦周日表示，作为白宫提出的1.9万亿美元新冠疫情救助计划的一部分，年收入6万美元的美国民众应该得到刺激支票。耶伦在美国有限电视新闻网的节目中说：“关于如何确定目标人群的细节有待确定，但是在困境中挣扎的中产阶级需要帮助。”
-[https://www.reuters.com/article/us-healthcare-coronavirus-usa-congress/u-s-treasurys-yellen-americans-earning-60000-should-get-stimulus-checks-idUSKBN2A70JE](https://www.reuters.com/article/us-healthcare-coronavirus-usa-congress/u-s-treasurys-yellen-americans-earning-60000-should-get-stimulus-checks-idUSKBN2A70JE)
+去年，中共国船只被确认在毗连区航行共计333天，创历史新高。
 
-1. **港股市场即将失去最大的资金来源**
+除了对被其称为 “钓鱼岛 “的尖阁诸岛提出主张外，中共国还与东南亚多个国家在南海存在海洋主权争端，并因其单方面试图改变该地区现状而经常受到批评。
 
-
-从2月9日开始，通过香港交易所运营商进行的、允许内地交易员购买本地股票的“沪港通”将因春节假期休市至2月17日。沪港通的关闭将给创纪录的资金流入踩下刹车，这种资金流入曾推动香港股市创下1985年以来的最佳开局。今年的前五周，内地投资者净买入了价值近480亿美元的港股，已经超过2020年的一半。香港股市的交易员们即将知道，在没有最大的资金来源情况下，这个7.3万亿美元的市场是否还能坚持下去。
-[https://finance.yahoo.com/news/hong-kong-stocks-lose-biggest-023422548.html](https://finance.yahoo.com/news/hong-kong-stocks-lose-biggest-023422548.html)
-
-1. **中小银行掩盖不良贷款受监管处罚，年报难产评级报告被推迟**
-
-
-受新冠肺炎疫情等因素影响，银行业保险业信用风险有所上升。过去一年，各机构报告的不良贷款余额和不良贷款率总体有所上升。相对于较大银行而言，中小银行由于规模小，抗风险能力弱，资产质量承压更为明显。截至2月5日，年初以来共有7家中小银行因为掩盖“不良贷款”而遭到行政处罚。此外，近期山东有2家农商行由于年报难产而被推迟发布评级报告。
-[https://finance.sina.com.cn/tech/2021-02-06/doc-ikftssap4445275.shtml](https://finance.sina.com.cn/tech/2021-02-06/doc-ikftssap4445275.shtml)
-
-1. **结构性存款记入交易性金融资产**
-
-
-近日，财政部、国资委、银保监会、证监会四部委联合发布通知，要求企业编制年报时应严格执行财政部发布的企业会计准则、企业会计准则解释、企业会计准则应用指南、会计处理规定等有关规定。其中明确，企业持有的结构性存款，应当按照《企业会计准则第22号—金融工具确认和计量》中金融资产合同现金流量特征和管理金融资产的业务模式的规定确定其分类，并进行相应确认、计量和列报。对于商业银行吸收的结构性存款，应当分类为以公允价值计量且其变动计入当期损益的金融资产，记入“交易性金融资产”科目，并在资产负债表中“交易性金融资产”项目列示。
-[https://cj.sina.com.cn/articles/view/2004321037/7777830d01900thzc](https://cj.sina.com.cn/articles/view/2004321037/7777830d01900thzc)
-
-By 【Financial Team-Rosy Cloud】
-
-News Collection: Totoro 、文罡、Kate
-
-Proofreading: Tracy
-
+新闻来源：[https://www.japantimes.co.jp/news/2021/02/07/national/china-japan-senkakus-coast-guard/](https://www.japantimes.co.jp/news/2021/02/07/national/china-japan-senkakus-coast-guard/)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/00110011.png)
 0
