@@ -1,58 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2/8/2021 财经快讯：对冲基金押注油价将&#8221;东山再起&#8221;；货运商称英国对欧盟出口下降68%
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/892481/)
+## 中共国教授骗取美国国立卫生研究院200万美元的拨款
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/892575/)
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/02/Picture1-48.jpg)
-图片来源：[https://cn.investing.com/](https://cn.investing.com/)
+*新闻来源：The National Pulse《国家脉动》| 作者：NATALIE WINTERS| 发布时间：2021年2月4日*
 
-1. **对冲基金押注石油价格将”东山再起**“
+*翻译/简评：新街口 |校对：SilverSpurs7 |审核：万人往|Page：小雨*
+
+[!\[\]()!\[\](https://spark.adobe.com/page/3waB1DSnW4ytq/images/bd0eea0d-d9b4-4d98-b1d8-49a96d8e2ca8.jpg?asset_id=3fdd8d71-4105-480e-af41-21037a8dbb30&amp;img_etag=%221a855b2288f970ff27fe3bea793c9562%22&amp;size=2560)](https://spark.adobe.com/page/3waB1DSnW4ytq/images/bd0eea0d-d9b4-4d98-b1d8-49a96d8e2ca8.jpg?asset_id=3fdd8d71-4105-480e-af41-21037a8dbb30&amp;img_etag=%221a855b2288f970ff27fe3bea793c9562%22&amp;size=1024)
+
+**简评：**
+
+据美国之音1月30日报道，从2019年中期以来，在“中共国行动计划”的指导下，联邦检察官已提起了十多起刑事案件，指控学者在接受中共国政府资助方面撒谎，或指控来自中共国的访问研究人员瞒报自己与中共国军队的关系，其中一些嫌疑人已经认罪。
+
+本文中报道的这位杨林科学家，无疑是“中共国行动计划”的又一个成果。杨林为了自己的经济利益，隐瞒自己与中共的关系，来骗取美国政府机构的科研拨款；另一方面在中共国创立企业，参加中共的千人计划，把美国政府投资项目的科研成果偷偷输送到中共国，换取自身的利益，帮助中共偷窃美国纳税人的投资成果。
+
+这一次的杨林案件，再一次证明了中共的“千人计划”的实质就是以引进人才的名义偷窃美国的技术和科研成果。中共和某些中共体制培养出来的科学家既不遵循西方文明社会所遵循的学术诚信规则，也不遵守西方社会的法规秩序，以身试法、虚假陈述、隐瞒获利，必将付出惨重代价。
+
+最后，通过司法部对杨林的起诉，我们看到美国大学、科研机构和司法部门已经开始共同应对中共在科研领域对美国的渗透和偷窃行为。杨林的案子给每一位在美国的、正在或者准备和中共进行勾兑的科学家都提出了严重的警示。希望他们能够遵守美国的法律和学术诚信规则，不要惟利是图、见利忘义，把自己的知识、技术、智慧和灵魂出卖给中共。
+
+**原文翻译：**
+
+# **中共国教授拿了美国国立卫生研究院几百万美元，却没有披露与中共的关系**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/3waB1DSnW4ytq/images/6a83ad62-e1de-4583-924c-265c720f1407.png?asset_id=28ee6d67-71b1-40c3-82cf-816a6459f91a&amp;img_etag=%22c4ec1a9d21f8cb640c8f46d9ddacb90e%22&amp;size=2560)](https://spark.adobe.com/page/3waB1DSnW4ytq/images/6a83ad62-e1de-4583-924c-265c720f1407.png?asset_id=28ee6d67-71b1-40c3-82cf-816a6459f91a&amp;img_etag=%22c4ec1a9d21f8cb640c8f46d9ddacb90e%22&amp;size=1024)
+
+**佛罗里达大学教授兼研究员杨林因涉嫌隐瞒与中共的财务往来，从美国国立卫生研究院（National Institutes of Health）骗取了近200万美元的资金拨款而被起诉。**
+
+根据司法部，对杨的指控包括六项电汇欺诈和四项向美国机构作虚假陈述的指控：
+
+*杨从美国国立卫生研究院（NIH）获得了175万美元的拨款，用于开发和传播用于肌肉的成像信息学工具，称为“MuscleMiner”（肌肉矿工）。在2014年9月至2019年7月期间，杨担任佛罗里达大学NIH拨款项目的首席研究员。作为首席研究员，杨负责按照相应的联邦法律和机构政策合规的引导使用和管理资助款。除此之外，杨被要求披露其外国研究支持和财务利益冲突，包括其在外国公司的所有权或权益。*
+
+*在同一时期，杨林2016年在中共国建立了一家名为“Deep Informatics”(深度信息学）的公司。起诉书还指称，杨林将其产品推广到中共国是在数百万美元的美国政府资助下进行的多年研究的结果，从而促进了其在中共国的业务发展。同时，杨与位于中国西安的西北工业大学一起申请并被接受了中共国的千人计划（TTP）。TTP是中共政府制定的一项人才计划，旨在鼓励外国机构（例如美国大学）转让原创理念、技术和知识产权。*
+
+*为了维持他在佛罗里达大学的工作并继续获得美国国立卫生院的资助，起诉书称杨有意隐瞒与他的中共国业务、他参与的中共国政府人才计划、以及与中共国研究机构有联系的利益冲突和其他支持。杨多次向NIH提交披露，其中包含有关与外国政府和公司的隶属关系和研究工作的虚假陈述和重大遗漏。此外，在2019年1月，佛罗里达大学工程学院要求所有教职员工以书面形式提供有关在中共国和另外两个国家与外国实体的活动的最新披露。起诉书称，杨向佛罗里达大学提供了书面答复，虚假地表明他没有与中共国的任何企业、实体或大学有任何关系。*
+
+起诉书由川普政府领导的联邦大陪审团于2020年12月15日送达，但今天被解封。
+
+佛罗里达北区美国律师劳伦斯•基夫（Lawrence Keefe）说：“资助杨研究的纳税人钱款，旨在为了改善美国公民的健康和福祉。但我们的起诉书称，杨从事故意欺骗行为，以便他可以进一步推进中共政府的研究目标，并提高自己的商业利益。”
+
+[🔗原文链接](https://thenationalpulse.com/breaking/chinese-prof-indicted-for-government-ties/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
-(路透社)对冲基金再次转而看涨石油，押注疫情和投资者对环境的关注严重损害了公司提高产量的能力。几家对冲基金表示，这种对供应的限制将把价格推至多年高位，并将在高位维持两年或更长时间。自去年11月初出现疫苗成功消息以来，全球石油布伦特原油价格已经跳涨了59%，上周，它达到了疫情前的水平，接近每桶60美元。同期，美国原油已攀升54%，至每桶57美元左右。
-[https://www.reuters.com/article/us-global-oil-hedgefunds-focus/hedge-funds-bet-on-oils-big-comeback-after-pandemic-hobbles-producers-idUSKBN2A70IM](https://www.reuters.com/article/us-global-oil-hedgefunds-focus/hedge-funds-bet-on-oils-big-comeback-after-pandemic-hobbles-producers-idUSKBN2A70IM)
+编辑：【英国伦敦喜庄园编辑部】
 
-1. **货运商称自退欧贸易协议达成以来，英国对欧盟出口下降68%**
-
-
-（路透社）据一个代表货运商的行业协会表示，在英国脱欧后的过渡期结束后，贸易受到扰乱，使得1月份英国对欧盟的出口下降了68%。政府不承认该出口数据，并表示自英国在2020年底完成脱欧以来，边境的扰乱微乎其微。
-[https://www.reuters.com/article/us-britain-eu-exports/exports-from-uk-to-eu-down-68-since-brexit-trade-deal-say-hauliers-idUSKBN2A70G3](https://www.reuters.com/article/us-britain-eu-exports/exports-from-uk-to-eu-down-68-since-brexit-trade-deal-say-hauliers-idUSKBN2A70G3)
-
-1. **美财政部长耶伦：现在说是否需要改变来应对市场波动为时过早**
-
-
-（路透社）美国财政部长珍妮特·耶伦周日表示，现在就说是否需要新的政策或法规来应对近期的市场波动还为时过早。耶伦在美国有限电视新闻网的节目中表示：“我们需要了解到底发生了什么，美国证券交易委员会正在全力汇总一份报告，将为我们提供事实，当有了这些事实之后，我们就可以看到是否有需要新政策或法规来解决的问题。”这里的市场波动主要是指过去两周出现的“美国散户大战华尔街“事件。周四耶伦召集相关会议讨论是否需要就此事件采取行动。
-[https://www.reuters.com/article/us-retail-trading-yellen/u-s-treasury-secretary-yellen-too-soon-to-say-if-changes-needed-to-address-market-volatility-idUSKBN2A70J4](https://www.reuters.com/article/us-retail-trading-yellen/u-s-treasury-secretary-yellen-too-soon-to-say-if-changes-needed-to-address-market-volatility-idUSKBN2A70J4)
-
-1. **美财政部长耶伦称年收入6万美元者应获得刺激支票**
-
-
-（路透社）美国财政部部长珍妮特·耶伦周日表示，作为白宫提出的1.9万亿美元新冠疫情救助计划的一部分，年收入6万美元的美国民众应该得到刺激支票。耶伦在美国有限电视新闻网的节目中说：“关于如何确定目标人群的细节有待确定，但是在困境中挣扎的中产阶级需要帮助。”
-[https://www.reuters.com/article/us-healthcare-coronavirus-usa-congress/u-s-treasurys-yellen-americans-earning-60000-should-get-stimulus-checks-idUSKBN2A70JE](https://www.reuters.com/article/us-healthcare-coronavirus-usa-congress/u-s-treasurys-yellen-americans-earning-60000-should-get-stimulus-checks-idUSKBN2A70JE)
-
-1. **港股市场即将失去最大的资金来源**
-
-
-从2月9日开始，通过香港交易所运营商进行的、允许内地交易员购买本地股票的“沪港通”将因春节假期休市至2月17日。沪港通的关闭将给创纪录的资金流入踩下刹车，这种资金流入曾推动香港股市创下1985年以来的最佳开局。今年的前五周，内地投资者净买入了价值近480亿美元的港股，已经超过2020年的一半。香港股市的交易员们即将知道，在没有最大的资金来源情况下，这个7.3万亿美元的市场是否还能坚持下去。
-[https://finance.yahoo.com/news/hong-kong-stocks-lose-biggest-023422548.html](https://finance.yahoo.com/news/hong-kong-stocks-lose-biggest-023422548.html)
-
-1. **中小银行掩盖不良贷款受监管处罚，年报难产评级报告被推迟**
-
-
-受新冠肺炎疫情等因素影响，银行业保险业信用风险有所上升。过去一年，各机构报告的不良贷款余额和不良贷款率总体有所上升。相对于较大银行而言，中小银行由于规模小，抗风险能力弱，资产质量承压更为明显。截至2月5日，年初以来共有7家中小银行因为掩盖“不良贷款”而遭到行政处罚。此外，近期山东有2家农商行由于年报难产而被推迟发布评级报告。
-[https://finance.sina.com.cn/tech/2021-02-06/doc-ikftssap4445275.shtml](https://finance.sina.com.cn/tech/2021-02-06/doc-ikftssap4445275.shtml)
-
-1. **结构性存款记入交易性金融资产**
-
-
-近日，财政部、国资委、银保监会、证监会四部委联合发布通知，要求企业编制年报时应严格执行财政部发布的企业会计准则、企业会计准则解释、企业会计准则应用指南、会计处理规定等有关规定。其中明确，企业持有的结构性存款，应当按照《企业会计准则第22号—金融工具确认和计量》中金融资产合同现金流量特征和管理金融资产的业务模式的规定确定其分类，并进行相应确认、计量和列报。对于商业银行吸收的结构性存款，应当分类为以公允价值计量且其变动计入当期损益的金融资产，记入“交易性金融资产”科目，并在资产负债表中“交易性金融资产”项目列示。
-[https://cj.sina.com.cn/articles/view/2004321037/7777830d01900thzc](https://cj.sina.com.cn/articles/view/2004321037/7777830d01900thzc)
-
-By 【Financial Team-Rosy Cloud】
-
-News Collection: Totoro 、文罡、Kate
-
-Proofreading: Tracy
+[!\[\]()!\[\](https://spark.adobe.com/page/3waB1DSnW4ytq/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/3waB1DSnW4ytq/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

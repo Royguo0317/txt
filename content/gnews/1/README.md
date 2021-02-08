@@ -1,48 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中企巨资在澳打造自家后花园 &#8211; 新达鲁城
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/893295/)
+## 德国驱逐俄罗斯外交官
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/893331/)
 
-新闻来源：The National Pulse《国家脉动》| 作者：娜塔莉·温特斯（NATALIE WINTERS）| 发布时间：2021年2月5日
-
-翻译/简评：Marialu | 校对：X-Wing飞得更高 | 审核：万人往 | Page：拱卒
-
-[!\[\]()!\[\](https://spark.adobe.com/page/JEXdRRMvSBHrt/images/87bcc233-8089-408c-8ba4-4a6ce6aa3dd9.jpg?asset_id=6a272a51-a9f7-4667-9a79-32aa684e214c&amp;img_etag=%2240bf00e12b29b6c96748bef6492ce2b7%22&amp;size=2560)](https://spark.adobe.com/page/JEXdRRMvSBHrt/images/87bcc233-8089-408c-8ba4-4a6ce6aa3dd9.jpg?asset_id=6a272a51-a9f7-4667-9a79-32aa684e214c&amp;img_etag=%2240bf00e12b29b6c96748bef6492ce2b7%22&amp;size=1024)
-
-**简评：**
-
-据《每日邮报》报道，一份泄露的文件披露一家中共政府支持的中国公司（WYW控股有限公司）计划投资近400亿澳元，在巴布亚新几内亚的达鲁岛上建造一座城市，该岛距离澳大利亚北端不到150英里。根据泄露的文件，这个“新达鲁城”包括一个海港、工业区、商业区，以及一个度假区和住宅区。该岛与澳大利亚仅一水之隔，中共这种将手伸到澳大利亚家门口的举动，引发了澳洲政府对国家安全的紧张和担忧。
-
-这一地区是中共“一带一路”大战略的一部分，中共正通过这样“雄心勃勃的计划”，扩大在该地区的影响力。这也是中共对贫穷落后的国家采取的新型殖民方式，用榨取国内百姓的财富去支援贫困小国，一大半的财富被转移到盗国贼手中，剩下的财富转为小国的债务，通过给对方高层决策者或小国领导人巨额贿赂，让他们成为中共对外扩张的棋子，任由中共摆布。太平洋岛国巴布亚新几内亚处在大洋洲的显要地理位置，希望澳洲政府密切关注此事的进展，防止中共掠夺性的经济政策破坏印太地区的稳定与和平发展。
-
-**原文翻译：**
-
-## 泄露的文件披露了中共国政府支持的某公司在澳大利亚沿海建岛的交易
-
-[!\[\]()!\[\](https://spark.adobe.com/page/JEXdRRMvSBHrt/images/f75207eb-9031-4f84-b592-ed38c71129de.jpg?asset_id=07108a34-b5ea-480e-87e6-2417775977c3&amp;img_etag=%22793fc61ce625314d5a114ba56a347134%22&amp;size=1024)](https://spark.adobe.com/page/JEXdRRMvSBHrt/images/f75207eb-9031-4f84-b592-ed38c71129de.jpg?asset_id=07108a34-b5ea-480e-87e6-2417775977c3&amp;img_etag=%22793fc61ce625314d5a114ba56a347134%22&amp;size=1024)
-
-一家中共国公司提出了一个投资额近400亿澳元的项目，将在距离澳大利亚北端不到150英里的地方建造一个岛屿。
-
-《每日邮报》指出，鉴于该岛靠近澳大利亚，这“可能会让澳大利亚国家安全分析人士感到紧张”：
-
-[!\[\]()!\[\](https://spark.adobe.com/page/JEXdRRMvSBHrt/images/0a5a6bfa-10f2-4185-bea4-a450a954db3f.jpg?asset_id=e784aced-be70-4c03-8496-e3dbcaa633bb&amp;img_etag=%22b0031eabd7b332ba3326bb20ff5fce92%22&amp;size=2560)](https://spark.adobe.com/page/JEXdRRMvSBHrt/images/0a5a6bfa-10f2-4185-bea4-a450a954db3f.jpg?asset_id=e784aced-be70-4c03-8496-e3dbcaa633bb&amp;img_etag=%22b0031eabd7b332ba3326bb20ff5fce92%22&amp;size=1024)《每日邮报》图片
-
-该提案通过泄露的文件被披露出来，将由中共支持的WYW控股有限公司（WYW Holding Limited）在巴布亚新几内亚的达鲁岛(Daru)上建造一座城市。
-
-该岛将包括一个海港、工业区、商业（商务）区以及度假村和住宅区。
-
-《每日邮报》指出：“根据新达鲁城的提案，潜在的交易将以一个基于长期BOT（建设-经营-转让模式）合同、以商定的主权担保为基础。这意味着，这家由共产党支持的公司将在指定的时间内拥有该合资企业的全部所有权，时间尚待确定。”
-
-🔗[原文链接](https://thenationalpulse.com/breaking/ccp-developing-island-near-australia/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+翻译作者：杰西
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JEXdRRMvSBHrt/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/JEXdRRMvSBHrt/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+收稿及审阅：Maria
+
+
+
+编辑及发布：铜豌豆
+
+
+
+
+
+**针对德国一名外交官被驱逐出俄罗斯的事件，德国做出相应的反制措施——俄罗斯驻柏林大使馆的工作人员也不得不离开德国。德国外交部宣布：该外交官已被宣布为 “不受欢迎的人”。**
+
+德国驱逐了一名俄罗斯外交官。他被宣称是一位“不受欢迎的人”——正如柏林外交部所宣布的那样。这是德国联邦政府对俄罗斯上周五驱逐德国外交官事件相应措施的反应，外交部补充说。
+
+**与欧盟伙伴步调一致**
+
+该部门表示，莫斯科政府的这一决定 “绝无道理”。外交部消息人士还表示，此举是与波兰、瑞典和欧洲外交部一起行动的。
+
+瑞典外交部通过推特表示，瑞典也已经要求一名俄罗斯外交官离开该国。波兰说，一名俄罗斯领事馆人员也被宣布为 “不受欢迎的人”。
+
+**之前被驱逐的外交官**
+
+背景是莫斯科和柏林之间因克里姆林宫批评家阿列克谢·纳瓦尔尼（Alexej Nawalny）被拘留而产生的争端，这一争端持续升级。在俄罗斯各地发生要求释放纳瓦尔尼和反对总统普京的示威活动后，俄罗斯已于周五驱逐了德国、波兰和瑞典的三名外交官。
+
+俄罗斯的理由是，他们在1月23日参加了未经批准的抗议活动。这种行动不符合外交官行为。这些外交官是在欧盟外交特使约瑟普·博瑞尔（Josep Borrell）访问莫斯科期间被驱逐的。
+
+柏林联邦外交部表示，俄罗斯驱逐德国外交官的决定 “绝无道理”。“德国外交官完全履行了合乎《维也纳外交关系公约》规定的义务，他们以合法手段了解和通报了当地事态的发展”外交部长、德国社会民主党的海考·马斯（Heiko Maas）上周五也曾说过同样的话。驱逐进一步破坏了俄罗斯与欧洲的关系。
+
+**默克尔：驱逐完全没有道理**
+
+德国总理默克尔（基督教民主联盟党）也曾对驱逐事件提出尖锐批评：“我们认为这次驱逐是没有道理的，这是目前在俄罗斯可以观察到的、离法治相当远的另一个方面。”她说。
+
+纳瓦尔尼上周被判处三年半监禁，因为法官认为，他在2014年早些时候的一起刑事案件中多次违反缓刑。因而，他将被判处几个月的软禁和监禁时间，他的律师预计他将会被判服刑两年零八个月。
+
+原文链接：[https://www.tagesschau.de/ausland/russland-deutschland-ausweisung-103.html](https://www.tagesschau.de/ausland/russland-deutschland-ausweisung-103.html)
 
 0

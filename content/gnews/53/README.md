@@ -1,21 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美菲双方就《访问部队协定》展开新的磋商
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/892541/)
+## 中共国船只连续两天进入尖阁领海
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/892634/)
 
 - 编辑：Victor Torres
-- 作者：神奇四侠
 - 素材：meiping
 
 
 **西班牙2021年2月8日电/——西喜社**
-![]()![](https://gnews.org/wp-content/uploads/2021/02/12345.jpeg)
-根据路透社报道，菲律宾和美国本月将举行会议，以消除中止已有两年之久的《访问部队协定》（VFA）的分歧。
-菲律宾外交部长特奥多罗·洛辛周一在接受采访时说：“我们正在缩小问题的范围，在2月下旬我们将和美国磋商来消除存在的分歧。”
-美国国务卿布林肯在上月承诺南海是包含在《共同防御条约》中的，同时菲律宾外长特奥多罗·洛辛在和国务卿布林肯通过电话后对中共就实施《海警法》提出外交抗议。
-《访问部队协定》提供了法律框架，在该框架内美军可以在菲律宾展开行动。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2233566.jpeg)@«ê§Eët
+中共国海岸警卫队的船只周日连续第二天进入中共国主张的尖阁诸岛附近的日本领海。
 
-新闻来源：[https://www.scmp.com/news/asia/southeast-asia/article/3120985/south-china-sea-dispute-prompts-philippines-meet-us-month?utm\_term=Autofeed&utm\_medium=Social&utm\_content=article&utm\_source=Twitter#Echobox=1612768766](https://www.scmp.com/news/asia/southeast-asia/article/3120985/south-china-sea-dispute-prompts-philippines-meet-us-month?utm_term=Autofeed&amp;utm_medium=Social&amp;utm_content=article&amp;utm_source=Twitter#Echobox=1612768766)
+日本海岸警卫队表示，两艘中共国海岸警卫队船只在凌晨3点50分左右侵入东海无人居住小岛群附近海域，并在上午9点后离开。
+
+这些入侵事件发生在中共国本月初一项新法律生效之后，该法律明确允许中共国海岸警卫队对北京认为非法进入其水域的外国船只使用武器。
+
+海岸警卫队称，中共国船只周日进入日本海域后，在其中一个小岛大正岛东南约22公里处，将船头指向一艘日本渔船，并做出接近该船的举动。
+
+据位于冲绳县那霸市的第11地区海岸警卫队总部称，这是中共国政府船只今年第五次进入日本海域。周六，入侵事件持续了约8个半小时，东京通过多种外交渠道向北京提出抗议。
+
+总部表示，这艘载有5人的渔船周日一直由巡逻艇看守，同时海岸警卫队警告中共国船只立即离开该海域。
+
+它说，与周六发生的情况一样，另外两艘中共国海岸警卫队的船只，其中一艘装备了似乎是大炮的船只，在日本领海外靠近尖阁海峡的所谓毗连区巡航。
+
+如果将毗连区包括在内，这是连续第九天在该区域附近发现中共国船只。
+
+中共国海岸警卫队的船只经常被派往尖阁诸岛附近，特别是在旨在使中共国成为海洋强国的习近平的领导下。
+
+去年，中共国船只被确认在毗连区航行共计333天，创历史新高。
+
+除了对被其称为 “钓鱼岛 “的尖阁诸岛提出主张外，中共国还与东南亚多个国家在南海存在海洋主权争端，并因其单方面试图改变该地区现状而经常受到批评。
+
+新闻来源：[https://www.japantimes.co.jp/news/2021/02/07/national/china-japan-senkakus-coast-guard/](https://www.japantimes.co.jp/news/2021/02/07/national/china-japan-senkakus-coast-guard/)
 ![]()![](https://gnews.org/wp-content/uploads/2021/02/00110011.png)
 0

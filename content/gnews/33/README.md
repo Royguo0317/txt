@@ -1,81 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 海关数据显示：CCP病毒大流行期间，中共国向美国寄送了数百万个口罩和测试包伪劣品
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/892801/)
+## 《路德时评》重磅揭露拜登想方设法替中共取消种族灭绝罪，及纳瓦罗爆料巴尔才是阻挠灭共的潜伏力量
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/892855/)
 
-翻译：康州盘古农场-Layka
-校对：康州盘古农场-烟波浩淼
-编辑：康州盘古农场-Antsee-GTV
-
-![customs]()![customs](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-08-at-23.38.45.png)
-
-根据美国海关和边境保护局（CBP）最新发布的报告，从2019年10月到去年9月30日，**中共国约占美国海关官员查获的假冒或不合格**[**CCP****病毒**](https://www.theepochtimes.com/t-covid-19)**相关产品的****51****％。**
-
-在美国海关官员扣押的产品中，**有超过****1270****万个假冒**[**口罩**](https://www.theepochtimes.com/t-masks)， 被美国食品药品监督管理局（FDA）禁止使用的**177,356****个中共****病毒****测试试剂盒**，和**38,098****种美国食品药品监督管理局禁止的氯喹****药****片。**
-
-对抗疟药有效的硫酸羟氯喹，及其它的密切相关的氯喹治疗[CCP病毒](https://www.theepochtimes.com/giving-the-right-name-to-the-virus-causing-a-worldwide-pandemic-2_3277200.html)引起的症状方面有很多争论。
-
-美国食品药品监督管理局（FDA）最初针对这两种药物[发布](https://www.fda.gov/media/136534/download)了紧急使用授权， 但后来在去年6月[撤销](https://www.theepochtimes.com/fda-revokes-emergency-authorization-of-hydroxychloroquine-for-ccp-virus_3389032.html)了授权， 说他们“不可能有效地治疗CCP病毒引起的症状。”
-
-但是，已有研究表明它们的有效性： 一项[研究](https://www.theepochtimes.com/hydroxychloroquine-lowers-covid-19-death-rate-us-study-finds_3410208.html)表明硫酸羟氯喹可降低中共病毒感染者的死亡率， 而另一项[研究](https://www.theepochtimes.com/hydroxychloroquine-drug-cocktail-lowers-covid-19-hospitalizations-by-84-percent-study-suggests_3594328.html)表明，含有羟氯喹的药物鸡尾酒可以降低感染病毒的患者的住院率和死亡率。
-
-**美国食品药品监督管理局****(FDA)****目前有一个**[**数据库**](https://www.fda.gov/consumers/health-fraud-scams/fraudulent-coronavirus-disease-2019-covid-19-products)**，列出了包括测试包在内的中共病毒欺诈性产品。**** ****这个列表中包含了公司名称及其产品名称。**
-
-在去年的12月，辛辛那提的海关官员查获了10,080件假冒的外科口罩， 源自中共国的一批货被标记为“ 3M 口罩，型号1860” , [根据新闻报道](https://www.cbp.gov/newsroom/local-media-release/10080-counterfeit-surgical-masks-seized-cincinnati)。装有口罩的盒子被欺诈性地标记为“美国制造”。
-
-**如果是真品，这些假冒的****3M****制造商的建议零售估价为****65,520****美元。**
+直播视频：
 
 
 
-> CBP officers in Cincinnati made a significant seizure of counterfeit masks that were packaged advertising protection against communicable respiratory diseases. Officers seized the 21 shipping boxes that contained over 10K counterfeit mask.[https://t.co/L0x1I1qaXF](https://t.co/L0x1I1qaXF) [pic.twitter.com/2irnkDArZ6](https://t.co/2irnkDArZ6)
-> — CBP Chicago (@CBPChicago) [January 15, 2021](https://twitter.com/CBPChicago/status/1350211985737191424?ref_src=twsrc%5Etfw)
+《路德时评》2021年2月8日早间节目主要内容：
+
+一、拜登想方设法替中共取消种族灭绝
+
+联合国新闻网2月7日报道[1]：美国总统拜登5日宣布撤销将也门胡塞武装指定为恐怖组织。联合国秘书长发言人杜加里克在媒体声明中对此表示欢迎，这一决定将使数百万依赖人道援助和商业进口来满足其基本生存需要的也门人深感宽慰。这将有助于确保急需的必需品能够毫不延迟地抵达有需要的人。
+
+也门冲突始于2014年。在发源于北部的胡塞武装不断取得军事进展的情况下，沙特阿拉伯领导多个阿拉伯国家组成盟军针对胡塞武装发起军事行动，以支持国际承认的哈迪总统领导的政府。五年多的冲突给也门造成了严重的人道主义后果。五年来共有23.3万人死亡，其中13.1万人死于间接原因，如缺乏食物、医疗服务和基础设施。目前该国有2410万人需要人道主义援助。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/胡噻.jpg)[图片地址](https://global.unitednations.entermediadb.net/assets/mediadb/services/module/asset/downloads/preset/Libraries/Production+Library/14-01-2021_OCHA_Yemen-01.jpg/image1024x768.jpg)
 
 
-*在辛辛那提的美国海关和边境保护局（CBP）官员没收了大量的假冒的口罩，包装成抵抗传染性呼吸道疾病的广告保护。 官员缴获了21个装有超过1万只假冒口罩的运输箱。*
-*CBP芝加哥@CBP芝加哥* *2021年1月15日*
-假冒口罩也有从香港运抵美国。 辛辛那提海关官员于2020年12月6日[缉获](https://www.cbp.gov/newsroom/local-media-release/6080-counterfeit-3m-masks-stopped-cincinnati-cbp)了从香港来的6,080个假3M口罩货运。
+路德社评论：
 
-去年9月在芝加哥也发生了一次[缉获](https://www.theepochtimes.com/chicago-cbp-seizes-500000-counterfeit-n95-masks-from-china_3500324.html?utm_medium=social&amp;utm_source=twitter&amp;utm_campaign=digitalsub)， 官员阻止了装有500,000件伪造N95口罩的货物。 如果是正品, 经确定，这些口罩的零售估价为474,905美元。 这批货物来自中共国南方城市深圳，运往新泽西州马纳拉潘的一家公司。
+1、胡塞武装是也门的一个伊斯兰教什叶派的反政府武装组织，被多个国家定义为恐怖组织，兴起于2003年伊拉克战争，前国务卿彭佩奥在今年1月10日宣布将胡塞组织定义为恐怖组织，拜登总统上台后随即撤销将胡塞武装定义为种族灭绝的命令，这关乎人道灾难问题，此举影响了美国政府的国际信誉。
 
-**强迫劳动产品**
+2、中共已经清楚意识到种族灭绝罪将对它造成严重打击，中共手握拜登政府高层的黑材料，这对拜登政府构成极大的威胁，因此，中共私下肯定对拜登政府进行各种施压和威胁，拜登总统撤销将胡塞武装定义为恐怖组织就是在为撤销中共种族灭绝罪做准备，拜登政府为了继续与中共勾兑宣布撤销胡塞武装恐怖组织命令，这也削弱了国际社会对美国政府的信心。
 
-美国海关边防总署的报告还提到，海关官员发布了创纪录的13份[新的暂缓释放令](https://www.cbp.gov/trade/programs-administration/forced-labor)，禁止进口以强迫劳动制造的产品， 截止至2020年9月30日的12个月内。
+3、拜登政府上台后，大重启计划大有兴盛之势，虽然拜登总统至今没有和习通电话，但背地里都在配合中共推动一系列计划，此前，杨洁篪在与布林肯的对话中强调美方要回到以联合国为核心的国际秩序中解决问题，中共极有可能通过和联合国勾兑推动美国取消将中共定为种族灭绝罪。
 
-这些针对性产品大多数来自中共国，包括一次性手套，海鲜和棉花。 据该报告称，这些产品加起来价值近5,000万美元。
+4、**路德社在节目中明确爆料革命一贯坚持的不变立场，无论谁灭共就绝对支持，如果和中共勾兑，爆料革命绝对会检举揭发，绝不在乎对方身份高低实力强弱，爆料革命新中国联邦就是一股坚定不摧的灭共力量，同时，路德社再次呼吁所有战友继续在各媒体平台勇敢发声**。
 
-在1月13日，美国海关边防总署发布了一项新的预扣释放令，禁止从中共国西部新疆地区进口所有棉花，服装，纺织品和番茄制品。
+5、2016年川普政府上台时与中共国关系非常紧密，经过文贵先生和爆料革命战友们的不懈努力，川普政府最终在2017年调转政策决定灭共，现在的拜登政府虽然亲共，但是爆料革命依然有信心，有实力调转拜登政府对共政策，拜登政府只要继续亲共，一定会葬送美国的未来，葬送世界的未来。
 
-**中共在新疆的拘留所里已经****[拘留](https://www.state.gov/wp-content/uploads/2019/06/2019-Trafficking-in-Persons-Report.pdf)****了包括维吾尔族，哈萨克族和吉尔吉斯斯坦在内的超过****100****万以上的穆斯林民族。**** ****被拘留者受到强迫劳动，酷刑和政治灌输。**** ****中共声称这些集中营是****“****职业培训中心****”****。**
+二、纳瓦罗爆料巴尔才是阻挠川普灭共的潜伏力量
 
-在去年8月份，一家美国公司因进口了在中共国的监狱犯人劳工制作的甜菊粉及其衍生品而被[罚款](https://www.theepochtimes.com/us-company-fined-for-importing-sweetener-made-by-chinese-prison-labor_3461766.html)57.5万美元，几个月后在10月份，美国海关边防总署[要求](https://www.theepochtimes.com/us-orders-seizure-of-imports-of-chinese-sweetener-after-finding-forced-labor-was-used_3546355.html)美国所有港口扣押内蒙古一家公司生产的甜叶菊产品, 有证据表明该公司使用定罪，强迫或契约劳动的劳工来制造产品。
-
-据报告称：“目前，美国海关边防总署正在执行44份有效的预扣释放订单和7份[有效的调查结果](https://www.cbp.gov/trade/programs-administration/forced-labor/withhold-release-orders-and-findings)。”
-
-**一般产品**
-
-最后，该报告得出结论，美国海关边防总署官员共检获26,503批货物，发现其产品侵犯了美国知识产权，中共国是此类检获的“头号来源”。 **这些产品的制造商建议零售总额估计将超过****13****亿美元。**
+2月7日，纳瓦罗先生接受Maria访谈时说道[2]，川普的行政命令抵达总统办公室前，必须经过司法部审查，拜登上任第一天就签署17项行政命令，请问这是何时去司法部排队的？其中根源原因就是巴尔帮助拜登快速插队，最终通过行政命令，巴尔早该在川普政府最后一年就被解僱。纳瓦罗先生4年任职期间起草了50多项行政命令，川普总统每次准备执行这些命令时，都碰到来自司法部的阻挠。拜登上任后不久就撤回禁止中共国参与电力设施的行政命令，另一个就是他在商讨的数万亿刺激计划，这两个简直就是灾难。
 
 
 
-> ICE, [@CBP](https://twitter.com/CBP?ref_src=twsrc%5Etfw) and LAPD seize counterfeit Viagra pills, footwear, belts, car emblems and headphones worth more than $32 million at the Los Angeles/Long Beach Seaport. Learn more: [https://t.co/cK9jWDw1mo](https://t.co/cK9jWDw1mo) [pic.twitter.com/67QjuucuO2](https://t.co/67QjuucuO2)
-> — ICE (@ICEgov) [December 17, 2020](https://twitter.com/ICEgov/status/1339713237676400643?ref_src=twsrc%5Etfw)
+> 20210207納瓦羅先生接受Maria訪談1/2
+> 1.行政命令抵達總統辦公室前，必須經過司法部審查
+> 2.那麼拜登第一天簽署的17項命令什麼時候去排隊的？
+> 3.納瓦羅先生這4年起草了50多項行政命令
+> 4.Barr幫助拜登快速插隊通過行政命令
+> 5.拜登撤回的禁止中共國參與電力設施的命令是個災難[@ding\_gang02](https://twitter.com/ding_gang02?ref_src=twsrc%5Etfw) [@maryann\_3040](https://twitter.com/maryann_3040?ref_src=twsrc%5Etfw) [https://t.co/CC496W7bDe](https://t.co/CC496W7bDe) [pic.twitter.com/QqEfPO3mJq](https://t.co/QqEfPO3mJq)
+> — Andy5 (@andy5\_123) [February 8, 2021](https://twitter.com/andy5_123/status/1358781113821405185?ref_src=twsrc%5Etfw)
 
 
-*美国移民和海关执法 (ICE)@美国海关边防总署(CBP) 和洛杉矶警察局 (LAPD)在洛杉矶/长滩海港缉获了价值超过3200万美元的假冒伟哥药丸，鞋类，皮带，汽车标志和耳机。 了解更多：https：//xsm.link/gi72kd* 
-*冰@ ICEgov* *2020年12月17日*
-去年12月，洛杉矶海关官员[缉获](https://www.cbp.gov/newsroom/local-media-release/counterfeit-viagra-pills-footwear-belts-car-emblems-and-headphones)了来自中共国的三批包含假冒产品的货物，价值可能超过3200万美元。
 
-在查获的假冒产品中有100万个仿制的伟哥药丸，鞋类，皮带，钱包和耳机。
+路德社评论：
 
-美国海关总署于去年12月21日[宣布](https://www.cbp.gov/newsroom/local-media-release/counterfeit-viagra-pills-footwear-belts-car-emblems-and-headphones)，在纽约港/纽瓦克还查获了价值约130万美元的中共国假冒玩具。
+1、路德社此前多次爆料纳瓦罗就是川普政府行政命令的草拟人，纳瓦罗在采访中亲口承认此事，这再次验证爆料革命情报来源的准确，同时这也是中国历史上首次有团体能够直接影响到美国的政策制定。
 
-本文作者：泰勒·杜登 （Tyler Durden）
+2、纳瓦罗制定的众多行政命令中涉及到制裁中共国银行，冻结中共资产，调查中共病毒真相等众多能消灭中共的命令，最终都被司法部拦阻，巴尔一直潜伏在川普政府中，班农先生起初非常信任巴尔，经常和他商量灭共的行政命令，但是他在最后最关键的时刻才暴露出真正本性，虽然他被川普总统撤职，但是他在美国司法部依然有巨大的影响力，这就是美国沼泽地力量与中共勾兑的结果。
 
-弗兰克·方（Frank Fang）撰写发表于《大纪元》
+3、虽然爆料革命在川普总统任期没能灭共，但是我们在总结经验后依然会继续前进，接下来我们与中共将进入拉锯战和争夺战，每个人都要尽自己一份力，咱们中华民族要学会在逆境中锻炼出永不言弃的骑士精神。
 
-发表时间：2021年2月5日
+三、从巴尔的暴露看Sara的邪恶
+![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1188-【战友心声】噩梦何时了-亲历VOG诈骗-（一）-1.jpg)
+1、巴尔潜伏在川普政府中就像Sara潜伏在爆料革命中一样，都在最关键的时刻暴露，路德先生爆料刚开始只是建议Sara退出凤凰农场管理，但是Sara随即自行解散凤凰农场，然后又被爆出挪用战友投资款，配合中共谋财害命，如果Sara再晚些暴露，爆料革命将被中共一锅端。
 
-原文链接：[https://www.zerohedge.com/geopolitical/during-pandemic-china-sent-millions-counterfeit-masks-test-kits-us-customs-data](https://www.zerohedge.com/geopolitical/during-pandemic-china-sent-millions-counterfeit-masks-test-kits-us-customs-data)
+2、在私自挪用战友投资款建口罩厂的事情上，Sara一方面欺骗路德先生说这是文贵先生同意的，另一方面欺骗文贵先生说这是路德先生提议要建口罩厂，她始终在玩信息差的把戏来迷糊战友。
 
-+1
+3、此前由于文贵先生忙于灭共，不能期期观看路德社节目，Sara就安排战友向文贵先生汇报路德社节目的总结信息，她向文贵先生抹黑路德社，说路德社很少提及爆料革命。然后，Sara又欺骗路德先生说：“文贵先生批评你很少提及爆料革命，但是你放心，我已经给文贵先生说好了”。Sara就是通过这种方式挑拨战友，她也挑拨老江与其他战友的关系，经常假装哭诉，所以才导致原先VOG的很多战友因误会选择离开。
+
+4、我们必须承认巴尔和Sara的暴露暂缓了我们的灭共进程，给爆料革命带来伤害，但这也是爆料革命灭共路上要学习的必修课，我们面对的是这个世界上最邪恶的力量，这就是一场战争。
+
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+
+参考文章：
+
+[1][https://news.un.org/zh/story/2021/02/1077482](https://news.un.org/zh/story/2021/02/1077482)
+
+[2][https://twitter.com/andy5\_123/status/1358781113821405185](https://twitter.com/andy5_123/status/1358781113821405185)
+
+文章撰写：【重生】  编辑：【香柏树】
+
+0
