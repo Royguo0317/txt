@@ -1,181 +1,82 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “他们的目标是摧毁所有人”：维吾尔集中营的被拘人员指控遭受系统性强奸（二）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/892883/)
+## 冒充成记者的中共间谍遭英国驱逐
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/892917/)
 
-五月花写作组 ｜ 翻译：jiasen ｜ 校对：虹陵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/02/新疆迫害2.jpg)**‘Their goal is to destroy everyone’: Uighur camp detainees allege systematic rape** “他们的目标是摧毁所有人”：维吾尔集中营的被拘人员指控遭受系统性强奸（二）
-- By Matthew Hill, David Campanale and Joel Gunter
-- BBC News
-- 作者：马修·希尔，戴维·坎帕纳尔，乔尔·冈特
-- 英国广播公司
+*新闻来源：The Guardian 《卫报》| 作者：Dan Sabbagh and Patrick Wintour丹·萨巴格和帕特里克·温图尔 | 发布时间：2021年2月5日*
 
+*翻译/简评：clau | 校对：SilverSpurs7 | 审核：万人往 | Page：拱卒*
 
-* * *
+[!\[\]()!\[\](https://spark.adobe.com/page/m9obYmDIK12KN/images/004211f5-8b78-4396-89ae-cdedf404cdc0.jpg?asset_id=383e0cfd-a807-41d7-9b77-1e7c8930f9c9&amp;img_etag=%22ce30f67171d93e0e245a6e01e87a61a0%22&amp;size=2560)](https://spark.adobe.com/page/m9obYmDIK12KN/images/004211f5-8b78-4396-89ae-cdedf404cdc0.jpg?asset_id=383e0cfd-a807-41d7-9b77-1e7c8930f9c9&amp;img_etag=%22ce30f67171d93e0e245a6e01e87a61a0%22&amp;size=1024)
 
-The Uighurs are a mostly Muslim Turkic minority group that number about 11 million in Xinjiang in north-western China. The region borders Kazakhstan and is also home to ethnic Kazakhs. Ziawudun, who is 42, is Uighur. Her husband is a Kazakh.
+**简评：**
 
-维吾尔族是约有1100万的少数民族，在中国西北部的新疆，主要由穆斯林突厥人构成。 该地区与哈萨克斯坦接壤，也是哈萨克族的家乡。42岁的齐亚乌敦（Ziawudun）是维吾尔族。 她的丈夫是哈萨克人。
+最近媒体曝出去年英国政府驱逐了三名中共国国家安全部的间谍，他们以记者的身份作为掩护在英国进行间谍活动。外国间谍用为媒体工作为幌子的方法由来已久，英国军情五处对此并不陌生，他们正在被要求更积极地应对来自中共国的威胁。
 
-The couple returned to Xinjiang in late 2016 after a five-year stay in Kazakhstan, and were interrogated on arrival and had their passports confiscated, Ziawudun said. A few months later, she was told by police to attend a meeting alongside other Uighurs and Kazakhs and the group was rounded up and detained.
+英国最近逐渐开始转变对中共国态度，从过去尽量避免与之发生冲突导致关系紧张，到开始正面应对。立法层面，上议院保守派议员投票要求赋予法院判定一个国家是否在进行种族灭绝的权力，反对中共在香港问题和对待维吾尔族人问题上的暴行。媒体方面，BBC对维吾尔族妇女在中共国的集中营中被系统性强奸进行了报道，英国通讯管理局吊销了中国环球电视网（CGTN）在英国的广播执照。
 
-齐亚乌敦说，在哈萨克斯坦呆了五年后，他们夫妇于2016年底返回新疆，并在抵达时受到讯问，被没收了护照。 几个月后，警方让她与其他维吾尔和哈萨克人一起参加一个会议，随后这些人被围捕并遭拘留。
+英国作为受中共病毒伤害最深的国家之一，终于开始逐渐醒悟了，或者说不得不清醒了。就像文贵先生说的：“资本主义国家只有自己的钱没了、自己疼了，才会在乎，才会面对。”希望英国这次能够坚定自己的立场，毕竟留给人类的时间不多了。
 
-Her first stint in detention was comparatively easy, she said, with decent food and access to her phone. After a month she developed stomach ulcers and was released. Her husband’s passport was returned and he went back to Kazakhstan to work, but authorities kept Ziawudun’s, trapping her in Xinjiang. Reports suggest China has purposefully kept behind and interned relatives to discourage those who leave from speaking out. On 9 March 2018, with her husband still in Kazakhstan, Ziawudun was instructed to report to a local police station, she said. She was told she needed “more education”.
+**原文翻译：**
 
-她说，她第一次被拘禁的经历没有那么痛苦，因为那里提供的食物还不错，而且人可以打电话。 一个月后，她因患上了胃溃疡而被释放。她丈夫的护照被退回，他回到哈萨克斯坦工作，但当局扣留了齐亚乌敦的护照，将她困在新疆。报道表明，中共国故意扣押被施放人员的亲属，以阻止他们发声。她说，2018年3月9日，当时她的丈夫仍在哈萨克斯坦，齐亚乌敦被指示向当地派出所汇报。 她被告知她需要接受“更多的教育”。
+# **英国悄悄驱逐冒充记者的中共国间谍**
 
-According to her account, Ziawudun was transported back to the same facility as her previous detention, in Kunes county, but the site had been significantly developed, she said. Buses were lined up outside offloading new detainees “non-stop”.
+**军情五处的结论是，三名中共安全部的雇员用中共国新闻机构的工作作为掩护**
 
-根据齐亚乌敦的说法，她被转移回她先前在库内斯县被拘禁的同一设施，但该处所的情况已经大为改变。 公共汽车在外面排着队，“不停地”运来新的被拘禁者。
+[!\[\]()!\[\](https://spark.adobe.com/page/m9obYmDIK12KN/images/c0fe7084-3da2-4a99-9936-c86fa05cc528.jpg?asset_id=431fbb4c-8a3a-4db6-be32-3d9a2bb7424d&amp;img_etag=%22b03592589cd69ef7e4945b21400e4e34%22&amp;size=2560)](https://spark.adobe.com/page/m9obYmDIK12KN/images/c0fe7084-3da2-4a99-9936-c86fa05cc528.jpg?asset_id=431fbb4c-8a3a-4db6-be32-3d9a2bb7424d&amp;img_etag=%22b03592589cd69ef7e4945b21400e4e34%22&amp;size=1024)
 
-The women had their jewellery confiscated. Ziawudun’s earrings were yanked out, she said, causing her ears to bleed, and she was herded into a room with a group of women. Among them was an elderly woman who Ziawudun would later befriend.
+中共国大使馆没有立即对报道发表评论。照片：Hannah McKay/路透社
 
-妇女们的珠宝被没收。 齐亚乌敦说，她的耳环被拉出，导致耳朵流血，然后与一群妇女一起被塞进一个房间。 其中有一位老年妇女，齐亚乌敦后来与她成为了朋友。
+英国去年悄悄驱逐了三名中共国间谍，据说他们冒充记者，此事因为两国在一系列媒体问题上紧张关系而被暴露。
 
-The camp guards pulled off the woman’s headscarf, Ziawudun said, and shouted at her for wearing a long dress – one of a list of religious expressions that became arrestable offences for Uighurs that year.
+情报机构军情五处的结论是，这三人为中共国国家安全部工作，但一直在用新闻机构的工作当掩护。
 
-齐亚乌敦说，集中营警卫拉下她的头巾，并因她穿着一件长裙而冲她大喊大叫——长裙是维吾尔人一系列宗教象征之一，也是维吾尔人被捕的原因。
+政府消息人士证实，在《每日电讯报》报道后，3人已被要求离开，不过最初只公开了很少的细节。
 
-“They stripped everything off the elderly lady, leaving her with just her underwear. She was so embarrassed that she tried to cover herself with her arms,” Ziawudun said.
+英国很紧张与北京的关系，意味着英国倾向于安静地处理中共国所从事的间谍活动，以避免引起外交事件。
 
-齐亚乌敦说：“他们剥光了这位年长女士的一切衣服，只剩下内裤。她很尴尬，试图用胳膊遮挡住自己。”
+然而，尽管英国情报部门广泛警告，依然无法确定来自中共国的间谍活动威胁的真实规模和性质，对这些活动威胁的认识远远不足。
 
-“I cried so much watching the way they treated her. Her tears fell like rain.”
+利用记者身份作掩护在间谍活动中由来已久，也是中共在世界各地获取政治和经济情报时所青睐的方法。
 
-“看着他们对待她的方式，我哭了很久。她也泪如雨下。”
-![]()![](https://gnews.org/wp-content/uploads/2021/02/116778891_tz_composite.jpg)Ziawudun identified this site – listed as a school – as the location where she was held. Satellite images from 2017 (left) and 2019 (right) show significant development typical of camps, with what look like dormitory and factory buildings 齐亚乌敦确认了被列为学校的地点—她被拘禁的地方。  2017年（左）和2019年（右）的卫星图像显示了具有典型集中营特点的建筑被改造的过程，看起来像宿舍和工厂建筑物
-The women were told to hand over their shoes and any clothes with elastic or buttons, Ziawudun said, then taken to cellblocks – “similar to a small Chinese neighbourhood where there are rows of buildings”.
+去年，比利时情报部门与英国同行合作，开始调查有关英国商人、曾在军情六处工作的弗雷泽·卡梅伦（Fraser Cameron），指控他向两名在布鲁塞尔冒充记者的间谍出售有关欧盟的情报。卡梅伦否认这些指控。
 
-齐亚乌敦说，这些妇女被告知要上交鞋和含松紧带或纽扣的任何衣物，然后被带到牢房里，“就像一个小的居民区，那里有一排排的建筑物”。
+军情五处一直在政界受到压力，被要求加强对中共国的关注，因为人们认为伊斯兰恐怖主义的威胁正在消退。一位政治消息人士说，部长们被告知，去年没有军情五处特工脱离外交掩护行动——这一说法让他们不相信。
 
-Nothing much happened for the first month or two. They were forced to watch propaganda programmes in their cells and had their hair forcibly cut short.
+春天，部长们打算推出一项间谍法案，更新英国的《官方保密法》，该法案可追溯到1911年，上一次大幅修订是在1989年。
 
-前一两个月没有发生什么。 他们被迫在牢房中观看宣传节目，并被强行剪短头发。
+预计该法案将更新和扩大间谍活动的定义，使其更容易对从事经济间谍等活动的外国特工提起诉讼。此外，当局亦正考虑强制披露为外国政府工作的说客资料。
 
-Then police began interrogating Ziawudun about her absent husband, she said, knocking her on the floor when she resisted and kicking her in the abdomen.
+许多保守党后座议员希望英国对中共国采取更强硬的立场，因为中共国对维吾尔族穆斯林少数民族实施的种族灭绝行为被曝光，而且在香港强行出台国家安全法。
 
-随后，警察审问她丈夫的情况。在她抵抗时将其打倒在地，并踢她腹部。
+保守党议员鲍勃·西利（Bob Seely）表示，这些间谍活动表明英国对北京的态度一直很天真。“我们确实需要对中共国——以及俄罗斯——有更一致的看法，更清楚地了解专制和一党制国家在数字时代是如何运作的。”他说。
 
-“Police boots are very hard and heavy, so at first I thought he was beating me with something,” she said. “Then I realised that he was trampling on my belly. I almost passed out – I felt a hot flush go through me.”
+[!\[\]()!\[\](https://spark.adobe.com/page/m9obYmDIK12KN/images/1bea5cb0-a413-458c-9cea-e8f18ee2ff15.jpg?asset_id=7432c775-7b8b-49fe-a2f9-ac5db6e56938&amp;img_etag=%224159b0e006d715f73d574aabce15ef0f%22&amp;size=2560)](https://spark.adobe.com/page/m9obYmDIK12KN/images/1bea5cb0-a413-458c-9cea-e8f18ee2ff15.jpg?asset_id=7432c775-7b8b-49fe-a2f9-ac5db6e56938&amp;img_etag=%224159b0e006d715f73d574aabce15ef0f%22&amp;size=1024)
 
-她说：“警靴很硬很重，所以起初我以为他在用什么其他的东西殴打我。后来我意识到他在踩我的肚子。我差点昏倒了，我感觉到一股热流在我体内涌动。”
+中共国大使馆没有立即对这些报道发表评论，但当英国媒体监管机构英国通讯管理局（Ofcom）决定将中国环球电视网（CGTN）在英国停播后，北京周五进行了反击。
 
-A camp doctor told her she might have a blood clot. When her cellmates drew attention to the fact that she was bleeding, the guards “replied saying it is normal for women to bleed”, she said.
+中共国外交部发言人表示，中共国“保留作出必要回应的权利”，英国通讯管理局（Ofcom）的决定是基于“意识形态偏见和政治原因”。
 
-一名集中营的医生告诉她，她体内可能有血块。 她说，当她的囚友提醒警卫注意她正在流血时，警卫回答说“女性流血是正常的现象”。
+英国通讯管理局撤销了CGTN的广播权，理由是该频道最终由中共控制，但其牌照落在“一个对其节目没有编辑控制权的实体”。
 
-According to Ziawudun, each cell was home to 14 women, with bunk beds, bars on the windows, a basin and a hole-in-the-floor-style toilet. When she first saw women being taken out of the cell at night, she didn’t understand why, she said. She thought they were being moved elsewhere.
+周四，中共国外交部还指责BBC编撰了“虚假报道”，因为英国广播公司本周播出了一项调查，详细描述了关于中共国难民营中维吾尔族妇女被系统性强奸的指控。
 
-根据齐亚乌敦的说法，每个牢房有十四名妇女，配有双层床，窗户上有栏杆，有一个洗手盆和蹲式厕所。 她说，当她第一次看到有女人在晚上被带出牢房时，她还不明白为什么。 她以为她们被转移到其他地方了。
+与此同时，英国部长们提出了由议会专门的委员会，而不是高等法院来决定一个国家是否在进行种族灭绝的计划。当贸易法案周二回到下议院时，政府正面临这个议题的被驳回，因为许多保守党议员希望在中共国对待维吾尔族穆斯林的问题上采取更强硬的路线。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/116769415_b73d1b77-b8b6-4050-84b0-de7c3a049697.jpg)Secret filming obtained by the Bitter Winter activist group showed cells with bars and cameras itter Winter 成员小组秘密拍摄的照片显示，牢房里有栅栏和监控摄像头
+上议院本周早些时候进行了投票，恢复了关于授权高等法院在政府与一个国家签署自由贸易协议之前判断该国是否在进行种族灭绝的建议。大臣们之前曾确定这个问题应该远离英国司法机构。
 
-Then sometime in May 2018 – “I don’t remember the exact date, because you don’t remember the dates inside there” – Ziawudun and a cellmate, a woman in her twenties, were taken out at night and presented to a Chinese man in a mask, she said. Her cellmate was taken into a separate room.
+外交事务特别委员会及其在上议院的姐妹机构的成员拒绝了政府赋予他们这样一个角色的计划，他们说，他们不是对种族灭绝进行复杂调查的适当机构，而且政府的建议中没有任何内容要求他们在发现种族灭绝时采取行动。
 
-在2018年5月的某个时候——“我不记得确切的日期，因为你不记得里面的日期”——齐亚乌敦和一个二十多岁的女性狱友在晚上被带出，带到一个带着口罩的中国男人面前。 她的狱友则被带到一个单独的房间。
+🔗[原文链接](https://www.theguardian.com/world/2021/feb/05/uk-quietly-expelled-chinese-spies-who-posed-as-journalists)
 
-“As soon as she went inside she started screaming,” Ziawudun said. “I don’t know how to explain to you, I thought they were torturing her. I never thought about them raping.”
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-齐亚乌敦说：“她一进去就开始尖叫。我不知道该如何向你解释，我以为他们在折磨她。我从没想过他们在强奸她。”
 
-The woman who had brought them from the cells told the men about Ziawudun’s recent bleeding.
+编辑：【英国伦敦喜庄园编辑部】
 
-从牢房带走她们的女人告诉那几个男人齐亚乌敦最近在流血。
-
-“After the woman spoke about my condition, the Chinese man swore at her. The man with the mask said ‘Take her to the dark room’.
-
-“那个女人说了我的病情之后，那个中国男人开始骂她。那个戴着口罩的男人说“带她去黑屋”。
-
-“The woman took me to the room next to where the other girl had been taken in. They had an electric stick, I didn’t know what it was, and it was pushed inside my genital tract, torturing me with an electric shock.”
-
-“那个女人把我带到另一个女孩被带去的隔壁房间。他们有一个电棍，我不知道那是什么，它被推到我的阴道内，电击折磨我。”
-
-Ziawudun’s torture that first night in the dark room eventually came to an end, she said, when the woman intervened again citing her medical condition, and she was returned to the cell.
-
-齐亚乌敦说，她在黑屋的第一个晚上的酷刑终于结束了，当那名妇女以她的病情再次进行干预时，齐亚乌敦被送回了牢房。
-
-About an hour later, her cellmate was brought back.
-
-大约一个小时后，她的狱友被带回来了。
-
-“The girl became completely different after that, she wouldn’t speak to anyone, she sat quietly staring as if in a trance,” Ziawudun said. “There were many people in those cells who lost their minds.”
-
-齐亚乌敦说：“此后，这个女孩变得完全不同了，她不会和任何人说话，她精神恍惚静静地凝视着前方发呆。有很多人在牢房里精神失常。”
-![pastedGraphic_2.png]()![pastedGraphic_2.png](https://gnews.org/wp-content/uploads/2021/02/116684003_gettyimages-1173692131-1.jpg)Gulzira Auelkhan, centre, at home in her village. She was forced to restrain women in the camps, she said 古尔吉拉·奥埃尔汗（Gulzira Auelkhan）在她的农村家里。她说，她被迫在集中营里捆绑妇女。
-Alongside cells, another central feature of the camps is classrooms. Teachers have been drafted in to “re-educate” the detainees – a process activists say is designed to strip the Uighurs and other minorities of their culture, language and religion, and indoctrinate them into mainstream Chinese culture.
-
-除牢房外，集中营的另一个主要特征是教室。据活动人士说， 教师被招募进来对被拘禁者进行“再教育”。这一过程旨在剥夺维吾尔人和其他少数民族的文化，语言和宗教信仰，并给他们灌输主流中共国文化。
-
-Qelbinur Sedik, an Uzbek woman from Xinjiang, was among the Chinese language teachers brought into the camps and coerced into giving lessons to the detainees. Sedik has since fled China and spoken publicly about her experience.
-
-来自新疆的乌兹别克族妇女奎比奈·塞迪克（Qelbinur Sedik）是被带到集中营并被迫给被拘禁者上课的中文老师之一。 此后，塞迪克（Sedik）逃离中共国，公开讲述了她的经历。
-
-The women’s camp was “tightly controlled”, Sedik told the BBC. But she heard stories, she said – signs and rumours of rape. One day, Sedik cautiously approached a Chinese camp policewoman she knew.
-
-塞迪克告诉英国广播公司，妇女集中营受到“严格控制”。 但她说，她听到了一些故事——关于遭受强奸的迹象和流言。 有一天，塞迪克小心翼翼的与她认识的一名集中营里的女警接触。
-
-“I asked her, ‘I have been hearing some terrible stories about rape, do you know about it?’ She said we should talk in the courtyard during lunch.
-
-我问她：“我听到过一些关于强奸的可怕故事，你知道吗？” 她说我们应该在午餐时间在院子里谈。
-
-“So I went to the courtyard, where there were not many cameras. She said, ‘Yes, the rape has become a culture. It is gang rape and the Chinese police not only rape them but also electrocute them. They are subject to horrific torture.'”
-
-所以我去了没有很多摄像头的院子。她说：“是的，强奸已成为一种文化。这是轮奸，中共国警察不仅强奸了他们，还电击她们。她们遭受了可怕的酷刑。”
-
-That night Sedik didn’t sleep at all, she said. “I was thinking about my daughter who was studying abroad and I cried all night.”
-
-塞迪克说，那天晚上她根本没有睡觉。  “想到我正在国外学习的女儿，我哭了一整夜。”
-![pastedGraphic_3.png]()![pastedGraphic_3.png](https://gnews.org/wp-content/uploads/2021/02/116693915_gettyimages-1000391550-1.jpg)Sayragul Sauytbay, a teacher, said she witnessed a harrowing rape. She was later accused of crossing illegally into Kazakhstan 集中营教师塞拉古尔·索伊特贝（Sayragul Sauytbay），说她目睹了一场可怕的强奸。 她后来被指控非法越境进入哈萨克斯坦
-In separate testimony to the Uyghur Human Rights Project, Sedik said she heard about an electrified stick being inserted into women to torture them – echoing the experience Ziawudun described.
-
-在给《维吾尔人权项目》的另一次证词中，塞迪克（Sedik）说，她听说有人将一根电棍插入妇女的身体来折磨她们，这与齐亚乌敦描述的经历相呼应。
-
-There were “four kinds of electric shock”, Sedik said – “the chair, the glove, the helmet, and anal rape with a stick”.
-
-塞迪克说，有“四种电击”，即“椅子，手套，头盔和电棍肛奸”。
-
-“The screams echoed throughout the building,” she said. “I could hear them during lunch and sometimes when I was in class.”
-
-她说：“尖叫声在整个建筑中回荡。我可以在午餐时间，有时在上课的时候听到尖叫声。”
-
-Another teacher forced to work in the camps, Sayragul Sauytbay, told the BBC that “rape was common” and the guards “picked the girls and young women they wanted and took them away”.
-
-另一位被迫在集中营工作的老师塞拉古尔·索伊特贝（Sayragul Sauytbay）告诉英国广播公司，“强奸很普遍”，而警卫人员则“挑选他们想要的女孩和年轻妇女带走”。
-
-She described witnessing a harrowing public gang rape of a woman of just 20 or 21, who was brought before about 100 other detainees to make a forced confession.
-
-她描述了亲眼目睹一个只有20或21岁的年轻女子被公开轮奸的可怕情景，那女子被带到大约100名其他被拘禁者面前，强迫认罪。
-
-“After that, in front of everyone, the police took turns to rape her,” Sauytbay said.
-
-索伊特贝说：“在那之后，警察在所有人面前轮流强奸她。”
-
-“While carrying out this test, they watched people closely and picked out anyone who resisted, clenched their fists, closed their eyes, or looked away, and took them for punishment.”
-
-“进行这项测试时，警察密切注视所有人，并挑出任何表现出抵抗，握紧拳头，闭上眼睛或移开视线的人，将她们带走进行惩罚。”
-
-The young woman cried out for help, Sauytbay said.
-
-索伊特贝说，那名年轻女子大声呼救。
-
-“It was absolutely horrendous,” she said. “I felt I had died. I was dead.”
-
-她说：“那绝对是极其恐怖的。我觉得我已经死了。我死了。”
-
-* * *
-
-**来源：*****BBC News***
-
-参考链接：[https://www.bbc.com/news/world-asia-china-55794071](https://www.bbc.com/news/world-asia-china-55794071)
-
-* * *
-
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
-
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
-
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+[!\[\]()!\[\](https://spark.adobe.com/page/m9obYmDIK12KN/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/m9obYmDIK12KN/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

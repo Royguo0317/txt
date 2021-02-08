@@ -1,53 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【墙内热搜】2021年2月8日 墙国时事快讯
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/892808/)
+## 中共国正在盗取美国公民的DNA信息
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/892898/)
 
-作者：文笑
+*新闻来源：The Washington Free Beacon 《华盛顿自由灯塔报》| 作者：Jack Beyrer杰克·贝勒 | 发布时间：2021年2月5日*
 
-1，热闹的石家庄回来了？CCP暂时对石家庄解禁了。视频拍出了车水马龙的感觉，真的不知道，有多少病毒会穿梭其中。
+*翻译/简评：clau | 校对：SilverSpurs7 | 审核：万人往| Page：拱卒*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1200-【墙内热搜】2021年2月8日-墙国时事快讯-1.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/qhN94m5YCM8BL/images/01240100-f517-4629-b5f3-259c31fd3f01.jpg?asset_id=33861124-62c1-4491-91c5-fbfaeefe4355&amp;img_etag=%22a8fdce8f8d8dcf0b29007cb96b763a74%22&amp;size=2560)](https://spark.adobe.com/page/qhN94m5YCM8BL/images/01240100-f517-4629-b5f3-259c31fd3f01.jpg?asset_id=33861124-62c1-4491-91c5-fbfaeefe4355&amp;img_etag=%22a8fdce8f8d8dcf0b29007cb96b763a74%22&amp;size=1024)
 
-2，中共国向53个发展中国家援助疫苗。看来，厉害国又要大撒币了，在家割大小韭菜，出去充黑社会老大。
+**简评：**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1200-【墙内热搜】2021年2月8日-墙国时事快讯-2.jpg)
+《华盛顿自由灯塔报》用非常简短的篇幅阐述了以下事实：美国公民的DNA信息正在被中共盗取以及未来会导致的后果。被引用的美国国家情报总监的报告显示，这些被盗取的个人DNA数据结合过往被黑客盗取的其他个人数据会被中共整合成数据集，用来在美国进行精确的间谍活动。所有的个人都可能被监视、操纵或勒索。
 
-3，拜登谈儿子吸毒史在国内上了热搜，最有意思的是被大外宣划重点的一句话：”我敢打赌，没有哪个美国家庭中没人有毒品或酒精成瘾问题。“意思是，美国家家有一个瘾君子？为了洗白，不惜拉低国家素质？不明白CCP借这条热搜要表达什么。战友们细品。
+这段时间，美国的各派政治力量都开始醒悟，各派媒体都开始围绕DNA数据安全问题进行报道，包括CBS的《60分钟》栏目，《布莱特巴特网》等媒体。谁都不希望自己的个人和生物信息被敌对国家掌握。自新冠疫情爆发以来，中共正在按部就班的执行“13579”计划和各个层面的超限战，把在中共国应用成功的方案同样运用到西方民主国家。这场没有硝烟的第三次世界大战已经打响，一场场战役在各个维度、各个层面进行。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1200-【墙内热搜】2021年2月8日-墙国时事快讯-3.jpg)
+美国内科医生和外科医生协会(AAPS)前主席Lee Merritt博士近期在采访中提到，mRNA“疫苗”是一个完美的二元武器，配合上ADE（抗体依赖的增强作用），让接种“疫苗”后的宿主再次接触到病原体后如同二次中毒般死亡。现在“疫苗”已经开始在全球广泛接种，投毒的第一步已经启动，进展顺利，接下来就是要制造或者筛选病原体。基于什么样的标准来开展下一步工作，这时候各国家及各人种的DNA信息和健康数据就显得尤为关键。中共以盗取、黑客、投资收购等方式迅速积累大量的数据并加以分析，找到各个种族对于同样或不同变异病原体感染的差异，进而不断迭代更新病原体，最终实现运用不同的病原体，实现差异化打击特定种族，甚至打击具体个体的目的。这是真正完美的基因武器。那时“疫苗”就从解药变成真正的“人尸丸”。正如闫丽梦博士所言，留给人类的时间真的不多了。
 
-4，澳大利亚加入G7建议被推迟，因为G7拒绝反中共成员国？？？
+**原文翻译：**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1200-【墙内热搜】2021年2月8日-墙国时事快讯-4.jpg)
+# **报告：中共国正在窃取美国公民的DNA信息**
 
-5，最近，国内很多水果店检测出车厘子核酸阳性，这进口车厘子得罪谁了？没两天，浙江疾控中心又出来说，核酸阳性车厘子不一定具有传染性，让大众放心购买这类进口水果。这是闹哪样？自己打自己的脸么？这还让不让人吃水果了？
+[!\[\]()!\[\](https://spark.adobe.com/page/qhN94m5YCM8BL/images/0e6d67e2-028d-4897-b750-eb816ee1a4e1.jpg?asset_id=ffc79ef7-d88a-4a09-bd78-ca366ea5d270&amp;img_etag=%22d40a215373aaebd884f384a565690002%22&amp;size=2560)](https://spark.adobe.com/page/qhN94m5YCM8BL/images/0e6d67e2-028d-4897-b750-eb816ee1a4e1.jpg?asset_id=ffc79ef7-d88a-4a09-bd78-ca366ea5d270&amp;img_etag=%22d40a215373aaebd884f384a565690002%22&amp;size=1024)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1200-【墙内热搜】2021年2月8日-墙国时事快讯-5.jpg)
+插图：Jordan Speer
 
-6，立讯精密的3300亿白马股 ，10分钟暴跌7%，不到一个月蒸发1200亿，CCP真是好手段，割韭菜肆无忌惮。
+根据国家情报总监的一份新报告显示，中共正在窃取美国公民的DNA数据和医疗数据。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1200-【墙内热搜】2021年2月8日-墙国时事快讯-6.jpg)
+这份来自反间谍和安全中心局长的报告说，中共国非法利用美国医疗记录的数据，以获得“美国大部分人口”的DNA识别模式，也就是PII。报道称，中共国可以利用这些信息来针对美国人。
 
-7，北京发放5万个数字人民币红包，看来习包子推进数字化货币急不可耐啊。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1200-【墙内热搜】2021年2月8日-墙国时事快讯-7.jpg)
-8，这是一条想让人爆粗口说放屁的新闻。农业部居然声称猪肉价格连续下跌两个月，还将进入下行通道。事实上，最近一个月，猪肉价格持续上涨，而且过年期间会更贵。
+[!\[\]()!\[\](https://spark.adobe.com/page/qhN94m5YCM8BL/images/1883cc95-a9d0-47a0-9b5f-2902bdc09264.jpg?asset_id=1a54d2ca-c9a6-4d03-a812-5ff1d7a23611&amp;img_etag=%22fc3c592972a33cec51af4eb07f5d85ee%22&amp;size=2560)](https://spark.adobe.com/page/qhN94m5YCM8BL/images/1883cc95-a9d0-47a0-9b5f-2902bdc09264.jpg?asset_id=1a54d2ca-c9a6-4d03-a812-5ff1d7a23611&amp;img_etag=%22fc3c592972a33cec51af4eb07f5d85ee%22&amp;size=1024)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1200-【墙内热搜】2021年2月8日-墙国时事快讯-8.jpg)
+23莫方DNA检测试剂盒。摄影师：Justin Chin/Bloomberg。Justin Chin/Bloomberg
 
-9，唯品会被罚300万元。战友们有没有发现，最近墙内很多做的不错的平台都官司缠身，不停传出这个被罚款，那个被起诉的新闻。也许是小韭菜已经没什么可割的了，CCP把手伸向大企业的口袋。
+“被窃取的PII、个人健康信息和从国外收集的大型基因组数据集的结合，为中共国提供了巨大的机会，可以精确地针对外国政府、私营行业或其他部门的个人进行潜在的监视、操纵或勒索，”报告中写道，“这种数据集不仅可以帮助中共国在国外招募个人，还可以帮助中共国对外国异见人士采取行动。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1200-【墙内热搜】2021年2月8日-墙国时事快讯-9.jpg)
+北京当局以多种方式提取美国公民的个人数据，包括对联邦政府进行网络攻击。2014年，中共国对白宫的人事管理办公室进行了大规模的黑客攻击，获得了大约2100万美国人的个人信息。部分被盗数据包括美国政府人员的安全审查信息。
+
+据《华盛顿自由灯塔报》12月报道，美国政府和与中共国有关联的基因检测公司合作应对疫情，有可能向这个共产主义国家公开大量的美国医疗数据。
+
+🔗[原文链接](https://freebeacon.com/national-security/report-china-is-stealing-dna-of-american-citizens/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+[!\[\]()!\[\](https://spark.adobe.com/page/qhN94m5YCM8BL/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/qhN94m5YCM8BL/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-+1
+0
