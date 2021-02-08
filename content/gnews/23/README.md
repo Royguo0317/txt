@@ -1,26 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全球最大的基因组公司华大基因与中共军方合作收集外国人DNA
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/892402/)
+## 2021/01/15 围炉夜话第十二期
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/892457/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/BGI.jpg)
-**翻译报道：: Charline**
+*整理：1984、桂花酒 | 素材制作：健身健心、Bobby | 校对/审核：海阔天空 | Page：Daoiii*
 
-**责任编辑：人间四月**
+[!\[\]()!\[\](https://spark.adobe.com/page/2GTxI3NiVjPMJ/images/7ba67df6-b51e-4600-9a48-cbead43bb264.jpg?asset_id=95bc51f2-4081-4b1a-8483-3ddef1351c90&amp;img_etag=%2264c9fc02d0b3053fcd6564042edd2667%22&amp;size=2560)](https://spark.adobe.com/page/2GTxI3NiVjPMJ/images/7ba67df6-b51e-4600-9a48-cbead43bb264.jpg?asset_id=95bc51f2-4081-4b1a-8483-3ddef1351c90&amp;img_etag=%2264c9fc02d0b3053fcd6564042edd2667%22&amp;size=1024)
 
-据印度网络媒体greatgameindia曝光，华大基因（BGI GROUP）是全球最大的基因组公司，在包括印度在内的全球范围内提供中共病毒测试，目前已被暴露出是中共军方控制的对象。 根据美国最高反情报官员比尔·埃文纳（Bill Evanina）的说法，中共军方正试图以华大基因从外国收集DNA样本，以用于其生物武器计划。
+# **独裁者最害怕什么？**
 
-路透社对研究专利申请和其他文件的审查发现，全球最大的基因组公司华大基因与中共军方合作，开展了从呼吸道病原体的大规模检测到脑科学的研究。
+[G-TV直播视频链接](https://gtv.org/video/id=5ff05f18f579a75e0bc11642)
 
-该公司在深圳证券交易所上市的子公司在过去的12个月中股价上涨了一倍，市值约为90亿美元。
+[!\[\]()!\[\](https://spark.adobe.com/page/2GTxI3NiVjPMJ/images/a1d10b93-2a53-412a-92d6-96904887957c.png?asset_id=b5f299e6-2d79-4aff-ad09-17027081b6a2&amp;img_etag=%228db44c9bf740860a2681ac0129caa53f%22&amp;size=2560)](https://spark.adobe.com/page/2GTxI3NiVjPMJ/images/a1d10b93-2a53-412a-92d6-96904887957c.png?asset_id=b5f299e6-2d79-4aff-ad09-17027081b6a2&amp;img_etag=%228db44c9bf740860a2681ac0129caa53f%22&amp;size=1024)
 
-华大基因已向包括印度在内的世界各国提供了中共病毒测试。根据美国最高反情报官员比尔·埃瓦尼那（Bill Evanina）的说法，中国军方正试图利用BGI集团作为前线来收集外国的DNA样本。埃瓦尼那认为中共军方可以通过这种方式从测试中收集，存储和利用生物特征信息。他告诉哥伦比亚广播公司新闻，他相信中共政府正在为收集DNA作出一致努力，以便在医疗方面取得优势。
+本期我们接上期中共借仇恨美国转移矛盾，更进一步谈谈专制国家的独裁者们，他们最怕什么。
 
-正如网络媒体GreatGameIndia先前报道的那样，中共的军民融合战略已经将生物学作为首要任务，而中共军方可能处于扩大和利用这一知识的最前沿。中共军方正在寻求生物学方面的军事应用，并寻求与包括脑科学，超级计算和人工智能在内的其他学科。自2016年以来，中共中央军事委员资助了许多项目：军事脑科学，先进的仿生系统，生物和仿生材料，提高人类绩效以及“新概念”生物技术。
+从斯大林死因不明到齐奥塞斯库夫妇被百发子弹射杀，从卡扎菲被施虐到萨达姆钻地洞，从毛泽东被做成腊肉到习近平的将来，独裁者的下场早已注定。
 
-评: 中共正在加速扩大毁人类的野心，不惜用中国百姓的血汗钱，偷窃世界先进科技技术，去制造病毒和生化武器，从而达到它成为世界老大的形象，让全世界人跪在它的脚下。幸亏有了郭先生的爆料革命，挽救了全世界，让真相及时呈现在世人面前。中共的疯狂也加速了它的灭亡，邪不压正，真理和正义会永远战胜中共的狼子野心，爆料革命是正义的需要。
+独裁者也有例外，智利的皮诺切特经济上全面私有化、市场化，政治上由独裁和平过渡到民主，人民生活和自由远高于中共国百姓，他活到91岁得以善终。
 
-[新闻链接](https://greatgameindia.com/covid-19-litary/tests-chinese-mi)
+独裁者集权利于一身，无法无天，不受任何约束，却为何要害怕？就像捷克摇滚乐《百分之百》所说，他们害怕的东西很多。但他们最害怕的是失去权力和权威，害怕真相，害怕人民不怕他们。
+
+习总加速师,究竟是要做习奥赛斯库，还是习诺切特？
+
+每周六GTV-UK-2号台定时直播
+
+- 英国时间：12.00-14.00
+- 美东时间：7.00-9.00
+- 盘古时间：20.00-22.00
+
+
+欢迎关注英国伦敦喜庄园艺术组《缪斯殿堂》节目
+
+- 请订阅 英国伦敦喜庄园GTV-UK-1号台
+- 请订阅 英国伦敦喜庄园GTV-UK-2号台
+- 请订阅 英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/2GTxI3NiVjPMJ/images/84a37bd5-755a-4621-80b0-753567e84361.jpg?asset_id=08f4e8ed-a0ff-4dd7-a72c-281e72eea46d&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=2560)](https://spark.adobe.com/page/2GTxI3NiVjPMJ/images/84a37bd5-755a-4621-80b0-753567e84361.jpg?asset_id=08f4e8ed-a0ff-4dd7-a72c-281e72eea46d&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 0
