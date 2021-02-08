@@ -1,43 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香草播报：【热点播报】拜登总统说“没有理由不给习近平打电话”
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/891429/)
+## 纪念CCP病毒“吹哨人” 李文亮医生
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/891352/)
 
-作者：纽约香草山写作组 Wilson
+#### 作者：冰糖葫芦喵
 
+2021年2月7日中国武汉中心医院眼科医生李文亮医生去世的周年纪念日，他被认为是武汉新冠疫情CCP病毒大爆发的“吹哨人”。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/TOM-COTTON.png)
+美国共和党参议员Tom Cotton今天发推纪念：“一年前的今天，李文亮医生试图向世界发出# covid 19警告，但被中国共产党噤声。在他逝世一周年之际，我们必须继续斗争，让中国共产党对这种致命的病毒负责。“
 
+**【观点】**2019年12月底，李医生在一个网络聊天室警告他的医学院同行，说有一份实验室报告称，有种类似于严重急性呼吸综合征(SARS)病毒正在传播。然而他的警告没有获得官方的认可，反而在几天后被当地的派出所带走训诫，并被迫在训诫书上签字。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+直到疫情迅速恶化到无法控制，中共国才封锁了武汉，停止了所有国内飞往武汉的飞机、火车、高速公路。但是却没有封停武汉飞往香港、东南亚和世界各地其他国家，以致于病毒很快的蔓延到全世界。
 
+周日在中共国，一个纪念李医生的话题标签在微博上吸引了超过4.1亿的浏览量，甚至在审查的情况下，许多更长的帖子故意抨击官方审查和保密，导致李医生受到打压。
 
+一些哀悼李医生的人引用了他去世前几天接受采访时的个人言论:“我觉得一个健全的社会不应该只有一个声音。”
 
-印度《[斯番时报](https://www.hindustantimes.com/world-news/joe-biden-hasn-t-called-xi-jinping-yet-says-haven-t-had-occasion-to-talk-101612720262050.html)》2月7日报道，乔·拜登总统表示，他还没有与中国国家主席习近平交谈，并承诺将和北京建立与他的前任不同的关系。
+时光飞逝，李医生逝世已经一周年了，病毒的传播已经成了当今全世界面临的最大的挑战，倘使李文良医生的警讯得到重视并广泛传播，我们这个世界也许比现在要好很多。我们向这位勇敢的、有良心、有大爱的医生致以最崇高敬意。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/78.jpg)
+**【参考来源】**
 
-拜登在接受哥伦比亚广播公司周五录制的采访(周日播放)时表示，他还没有与中国国家主席习近平交谈，并承诺和北京建立与他的前任不同的关系。“嗯，我们还没有机会与彼此交谈，”他说，“没有理由不给他打电话。”
+TWITTER:[https://twitter.com/SenTomCotton/status/1358474694094184448](https://twitter.com/SenTomCotton/status/1358474694094184448)
 
-拜登补充说，在担任巴拉克·奥巴马的副总统八年后，他对习近平“非常了解”。他说：“我花在习近平身上的时间可能比任何世界领导人都多。”
+**【免责声明】**  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-拜登说，他对中国的态度将与前总统唐纳德·特朗普不同，习近平知道这一点，因为他一直在“发出信号”。
+**欢迎战友加入旧金山金喜准农场**
 
-本次访谈中，拜登总统对前政府判定的习近平和中共在新疆犯下反人类罪和种族灭绝罪只字不提，也不提及对已造成近50万美国人死亡的中共病毒追根溯源。镜头前的拜登总统侃侃而谈，显得非常大度！
+**旧金山金喜准农场** GTV: [https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
 
-编辑/校对/发稿：Irene木木
+**旧金山金喜准农场** Discord: [https://discord.gg/QQzQ79grEA](https://t.co/hPEjhr0AZA?amp=1)** **
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+**旧金山金喜准农场** Twitter: [https://twitter.com/sf\_himalaya](https://twitter.com/sf_himalaya)
 
 
 
-0
++1
