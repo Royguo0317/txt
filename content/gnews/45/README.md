@@ -1,24 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英部长: 疫苗护照是歧视性的
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/888688/)
+## 印尼紧急授权60岁以上人口使用高风险中共科兴疫苗
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/888759/)
 
 - 编辑：Victor Torres
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年2月7日电/西喜社——**一名英国官员表示，该国不考虑为那些接种过中共病毒疫苗的人发放所谓的 “免疫护照”，但如果他们需要旅行，可以要求医生提供书面证明，证明他们的接种状况。
+**西班牙2021年2月7日电/西喜社——**印尼食品和药品管理局日前宣布了一项紧急使用授权，授权中国科兴生物技术有限公司生产的中共病毒疫苗给60岁以上的人使用。
 
-疫苗部长纳丁·扎哈维（Nadhim Zahawi）周日表示，疫苗护照是歧视性的，官员们不希望通过护照 “以某种方式强制接种疫苗”。
+“中共病毒导致的死亡率统计数据显示，老年人占了很高的一部分。”印尼食品药品监督局局长潘妮·卢基托（Penny Lukito）周日在新闻发布会上说。
 
-包括希腊在内的国家已经表示，他们将免除对接种过疫苗的人的检疫要求。
+她补充说，该机构根据中国和巴西的临床试验情况，为疫苗接种开了绿灯。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/8a7504de-e7fe-41b1-becc-ffa6757b1669.jpg)
+印尼卫生部长布迪·古纳迪·萨迪金说，老年人的疫苗接种将在周一开始。
 
-[**新闻来源**](https://apnews.com/article/nfl-pandemics-israel-super-bowl-football-6e3df11b3ff68134a02cd597ff4b3054)
+印尼从1月开始为医护人员和公共服务人员实施大规模疫苗接种计划。目前已有70多万人接受了第一针疫苗接种。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/5fce35fe-b05a-44d6-8eaf-4d47b442d3ac.jpg)
+
+**[新闻来源](https://apnews.com/article/nfl-pandemics-israel-super-bowl-football-6e3df11b3ff68134a02cd597ff4b3054)**
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/00110011-1.png)
 
 0
