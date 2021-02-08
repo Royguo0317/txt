@@ -1,43 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 谷歌对支付澳洲本地新闻来源的议案做出让步
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/891461/)
+## 【每日快讯】07/02/2021:共产党搞数字货币的目的就是要让老百姓永世为奴
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/891548/)
 
-翻译：Jony (8 Mile)
-![]()![](https://gnews.org/wp-content/uploads/2021/02/001.jpg)(图片来源于网络)
-谷歌在澳大利亚改弦更张——为（部分）澳大利亚新闻开通付费平台。
+**制作:Cantonese工作室**
+播报：鱼摆摆（文驋）
+<br>资料收集：郁金香 美国小李 幽灵小妹
+<br>视频制作：Shawn
+<br>海报制作：侬民、文绉绉
+**摘要:**
 
-澳大利亚政府在与谷歌的对峙中可能取得了罕见的局部胜利。这家总部位于美国的科技巨头似乎已经改变了方向，因为澳大利亚正在举行听证会，旨在颁布立法，以有效地迫使谷歌为其链接的新闻和搜索引擎中的特色新闻向当地来源支付费用。
-
-谷歌上个月威胁要将其搜索引擎完全撤出澳洲，堪培拉则表示，他们不会让步。但周四，谷歌发布了以下官方声明: “为了满足读者和出版商日益增长的需求，去年我们加大了对新闻合作伙伴的投资，并推出了谷歌新闻展应用。”
-
-新闻展 “Showcase “应用程序是该公司通过谈判，向一些注册该程序的澳大利亚新闻制作人支付报酬的结果。这是在试图削弱要求公司支付所有此类内容的拟议立法。不过，这不太可能阻止新的立法，但谷歌将其作为一种 “替代方案”。此举表明，这家科技巨头可以说是感受到了压力，正在寻求妥协。
-
-谷歌公告还说：”今天，我们很高兴地宣布，我们正在推出该产品的初始版本，以使澳大利亚的用户和出版商受益，鉴于本地信息的重要性及其在人们日常生活中的作用，我们非常关注领先的区域和独立出版商。”
-
-“新闻展应用旨在为出版商和读者带来价值，通过提供授权计划，向出版商支付费用，为谷歌服务中的故事板块策划内容，并让读者更深入地了解重要的故事，”声明说。
-
-虽然细节尚未透露，例如哪些出版商最终将被允许加入该平台，但据路透社详细报道，这是一项重大的妥协，很可能首先奖励澳大利亚主要的全国性媒体：
-
-“目前该立法已提交议会调查，周五在澳大利亚推出的 “新闻展 “应用将向包括《堪培拉时报》在内的七家国内媒体支付费用，以使用其内容。
-
-内容交易的财务细节没有披露，《堪培拉时报》出版商澳大利亚社区媒体没有立即回应评论请求。“
-
-酝酿数月的澳大利亚倡议旨在确保公司和内容提供商因其内容为谷歌和母公司Alphabet Inc.创造的价值而获得公平补偿，而此时国内行业正处于危机之中，传统报纸和内容生产商面临着不得不完全关闭的威胁。
-
-上个月，澳大利亚总理斯科特-莫里森（Scott Morrison）在该国被谷歌威胁关闭搜索引擎后进行了反击，他说：”我们不会回应威胁”。他当时补充道 “让我说清楚， 澳大利亚制定我们自己的关于你们在这里可以做的事情的规则。”
-
-据普遍估计，与全球其他许多国家类似，Alphabet公司至少监管着澳大利亚94%的搜索流量，而此时Alphabet公司正受到越来越多的指责，指责它利用其垄断力量欺负内容提供商和较小的竞争对手。
-
-（本文纯属原文翻译无个人观点添加）
-
-审稿：Gradient Boost
-
-新闻原文来自：[Zerohedge](https://www.zerohedge.com/technology/google-reverses-course-australia-opens-paid-platform-some-australian-news?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
-
-[澳喜文章](https://gnews.org/zh-hans/author/aujenny/)
-
-[欢迎加入澳喜农场](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-Logo.jpeg)
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-01.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-02.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-03.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-04.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-05.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-06.jpg)
+7.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-07.jpg)
+8.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-08.jpg)
+9.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-09.jpg)
 0
