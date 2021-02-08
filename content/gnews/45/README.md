@@ -1,39 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香草播报：【军事快讯】日本执政党议员提议建立《台湾关系法》助台抗共
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/891372/)
+## 纪念CCP病毒“吹哨人” 李文亮医生
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/891352/)
 
-作者：纽约香草山写作组 Wilson
+#### 作者：冰糖葫芦喵
+
+2021年2月7日中国武汉中心医院眼科医生李文亮医生去世的周年纪念日，他被认为是武汉新冠疫情CCP病毒大爆发的“吹哨人”。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/TOM-COTTON.png)
+美国共和党参议员Tom Cotton今天发推纪念：“一年前的今天，李文亮医生试图向世界发出# covid 19警告，但被中国共产党噤声。在他逝世一周年之际，我们必须继续斗争，让中国共产党对这种致命的病毒负责。“
+
+**【观点】**2019年12月底，李医生在一个网络聊天室警告他的医学院同行，说有一份实验室报告称，有种类似于严重急性呼吸综合征(SARS)病毒正在传播。然而他的警告没有获得官方的认可，反而在几天后被当地的派出所带走训诫，并被迫在训诫书上签字。
+
+直到疫情迅速恶化到无法控制，中共国才封锁了武汉，停止了所有国内飞往武汉的飞机、火车、高速公路。但是却没有封停武汉飞往香港、东南亚和世界各地其他国家，以致于病毒很快的蔓延到全世界。
+
+周日在中共国，一个纪念李医生的话题标签在微博上吸引了超过4.1亿的浏览量，甚至在审查的情况下，许多更长的帖子故意抨击官方审查和保密，导致李医生受到打压。
+
+一些哀悼李医生的人引用了他去世前几天接受采访时的个人言论:“我觉得一个健全的社会不应该只有一个声音。”
+
+时光飞逝，李医生逝世已经一周年了，病毒的传播已经成了当今全世界面临的最大的挑战，倘使李文良医生的警讯得到重视并广泛传播，我们这个世界也许比现在要好很多。我们向这位勇敢的、有良心、有大爱的医生致以最崇高敬意。
+
+**【参考来源】**
+
+TWITTER:[https://twitter.com/SenTomCotton/status/1358474694094184448](https://twitter.com/SenTomCotton/status/1358474694094184448)
+
+**【免责声明】**  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+**欢迎战友加入旧金山金喜准农场**
+
+**旧金山金喜准农场** GTV: [https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+
+**旧金山金喜准农场** Discord: [https://discord.gg/QQzQ79grEA](https://t.co/hPEjhr0AZA?amp=1)** **
+
+**旧金山金喜准农场** Twitter: [https://twitter.com/sf\_himalaya](https://twitter.com/sf_himalaya)
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
-
-《[日经亚洲](https://asia.nikkei.com/Politics/International-relations/Japan-lawmakers-want-Taiwan-Relations-Act-of-their-own)》2021年2月7日报导，日本执政党5日在自民党内部会议中，有议员提议日本应仿效美国，制订类似于《台湾关系法》的法案，在没有正式外交关系的状况下与台湾维持牢固的双边关系，甚至建立台、日外交部长与国防部长的“2+2”对话机制，协助台湾增进自我防卫能力。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/02/77.png)
-
-自民党即将成立的台湾小组，将由自民党外交部会长、现任参议员佐藤正久担任召集人，研议台湾相关政策，并讨论如何与美国在安全领域展开合作。该小组在本周就会正式启动。
-
-日本非常清楚，帮助台湾抗击中共，就是抵御中共的共产主义专制。但是，日本和台湾建立共同防卫关系当前还停留在提议阶段，但中共已经磨刀霍霍向台湾。
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
-
-0
++1

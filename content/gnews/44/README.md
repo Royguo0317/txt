@@ -1,39 +1,78 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生公布关于春节G-Clubs互动抽奖节目的细节
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/891415/)
+## 军情六处担心英国大学与北京的联系
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/891458/)
 
-新闻简述：在2021年1月28日的 GTV 盖特视频中，郭先生公布了春节G-Clubs互动抽奖节目的一些细节，届时将有5辆汽车和多种奖品供会员抽奖。
-[下载字幕文件](https://gnews.org/miles_20210128_gt-srt/)
-After the broadcast this morning, I’ve got many messages. Many questions are related to G-Clubs’ interactive program for the Spring Festival. Brothers and sisters in arms, after watching the broadcast [on that day], we will have an interactive program, for it is a must and I have to interact with you. I guess that we will have probably 5,000 to 8,000 members online and approximately 20,000 members offline. But this will be an interactive moment, which is only for us, not for the public. In that moment, you can directly ask me any questions.  Although it will be the Chinese New Year [celebration], let’s not waste time talking about niceties but just get into questions someone might have for me since there will be so many people there, all right? If anyone wants to speak, just ask the question directly. It would be better if the questions are useful.
+- 编辑：Victor Torres
 
-这个今天上午直播完以后的有很多信息给我留，关于G-Clubs春节互动的节目，很多问我的问题。战友兄弟姐妹们，除了你们看完视频以后，咱们互动的节目那是必须的，那是法定的，七哥必须跟你们互动，大概吧，我们是线上大概5000到8000，线下大概2万左右，我估计啊，但是这是封闭的，是不公开的，不公开的，就是谁想问七哥啥问题，你就直接，虽然是大过年的，咱也别说那么多，太热炕头的话，就是别耽误时间，因为那么多人，是吧？谁要是想说话，就直接问问题，最好有用。
 
-As we just finished our G-Fashion meeting, the lawyer yelled in disagreement. Thanks to Ms. Yanping Wang who argued firmly on just grounds.  She told the lawyer that it is what it is whether they agree or disagree. It is going to be a lottery drawing with the prize of 5 BMWs, or maybe 5 Mercedes-Benz, five cars for sure. Probably it will be 5 BMWs for now.  Then, perhaps the bags that I mentioned in the morning, for example, the shoulder bag and the waist bag.  However, there won’t be enough time to make them since it probably takes 40 days to make.  In such case, we can change to the Guo Warrior Suit instead, the black color that I wore before.  The Warrior Suit of G-Forever and G-Fashion, 500 hats, bracelets, and rings, all are lottery prizes free for the winning members.  Isn’t that something! Many brothers-in-arms sent me messages, saying, “Brother Seven [Miles], we will give them to you if we win the prizes.” Well, please don’t do this!  You will get me in trouble if your lottery drawings end up in my pocket.  Who is that? Only a thief, a liar, or the “Nine-Finger Queen” can do things like that.  Correct? It is not right to do that.
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-刚刚我们的 G-Fashion 开完会，律师刚才嗷嗷的叫，不同意。这得感谢王艳平同志，这王艳平据理力争，说你同意也得同意，不同意也得同意，就是这样了，抽奖，五台宝马，也可能五台奔驰，反正肯定五台车。大概目前定的是五台宝马，然后比如说我上午说的那个包，那个背包还有个腰包，但是那个时间实在来不及，可能是要40天才能做出来，那就改成郭战装，就一整套我穿的那个郭战装，就黑的那个，G-Forever，G-Fashion的战装，这都是送给大家的，抽奖抽给大家的，500个帽子，还有手环、戒指，这了不得了。还有个就战友很多说，我抽到以后七哥我送给你，很多人给我发这个信息，你千万别这么发，你送给我，我就出事了，哪有抽奖抽到七哥腰包里去了？那成啥人了？那不成欺民贼、九指王了吗？对不对？不可能。
+**西班牙2021年2月8日电/西喜社——**据《星期日邮报》披露，十多所英国大学正因与中共国政府的商业关系而接受调查，这些关系可能会违反旨在保护国家安全和人权的法律。
 
-In addition, you cannot donate your winning prize to the Rule of Law Foundation.  There will be two choices for you. With respect to the car lottery, for example, the BMW car is worth 100,000 dollars, which is at the 100,000 dollars level, so you can ask for cash, which can be given to you directly.  For example, as to the prize of 40,000 dollars, maybe 50,000 to 60,000 dollars, or the prize of 20,000 plus or 30,000 dollars, you can ask for cash, which can be wired to you directly. You can also ask for a bank card.  Either way will work. The price is based on the U.S. market. They will tell you what make and model the car is and how much it’s worth, you know? After they tell you those, you may say I want the car, then all of the tariffs when sending the car out to different countries from the U.S., for example, to Mainland China, Japan, Thailand, Africa… all the expenses are yours to bear after the car leaves the U.S.  Of course, you have to pay the tax. If you say, “I don’t want the car. I want the money,” then they will give you the cash immediately.
+这些机构—其中包括一些最负盛名的大学—可能因涉嫌违反出口管制与北京的交易，收到由女王陛下的税收和海关施加的 “执行通知 “。
 
-所有的东西，你也不能捐法制基金，你有两个选择，就这个车抽奖，你比如说那个宝马车是10 万美元，10万美元的级别的，你可以要钱，你可以要现金的，直接给你的。比如说四万那个，可能是5万多6万美元，还有2万多、3万美元的那个，你可以要钱，直接把钱汇给你，你也可以要卡，都可以。这个价钱定义是美国的市场，他会给你写出来什么车，什么系列，什么价格，是吧？然后告诉你，然后你说我要车，从美国发出去所有的关税，不同的国家，你比如说发给大陆，你发给日本，发给泰国，非洲 … 所有离开美国之后，店里的费用全是你的，税当然是你的，你说我不要车，我要钱，“叭”就把现金给你了。
+据了解，安全部门担心一些学者一直在与中共国分享英国的先锋技术，而这些技术可能为独裁的共产党政府镇压少数民族和持不同政见者提供便利。
 
-If you say that you want to use the car in the U.S., you can just pick up the car and leave.  That’s how simple it is.  You can go to the nearby city to pick up the car.  The rest of the prizes, like rings, bracelets, Warrior Suits, and hats can be sent to your home without extra charge.  So, I won’t be able to reply to every one of you.  Brothers-in-arms, dose this sound okay to you?
+国安部同意以国家安全为由，不透露调查中心的大学名称。
 
-然后你说你在美国用上了，你就直接提车走就行了，就这么简单，你到你的附近的城市提车就行了，剩余那些什么戒指啊，手链啊战装啊，是吧？帽子啊那都是到你家的，那不用再加钱了。所以说我就没办法一一回了，兄弟姐妹们，中不中？
+由军情六处借调给外交和联邦事务部的官员领导的安全部门调查，是在唐宁街越来越担心学术界人士从事“新的淘金热”，与中共国就尖端科学突破达成交易的情况下发起的。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+政府发言人说：“《2008年出口管制令》中规定的军品出口商和从事军事技术转让的人—包括大学和学者—需要从英国出口或转让的许可证。”
 
-视频来源：[https://gtv.org/getter/60133bbac3245d7c59e9ff05](https://gtv.org/getter/60133bbac3245d7c59e9ff05)
+“遵守法规是他们的责任。”
 
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/838734/](https://gnews.org/zh-hans/838734/)
+上周，曼彻斯特大学取消了与一家中共国军事技术公司的协议，因为该公司提供的技术平台和应用程序被北京的安全部队用于大规模监控维吾尔族穆斯林。
 
-翻译：【Cyndi】校对：【奔腾的长江】【Isaiah4031】【BruhM】字幕：【相机过热啊】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+该大学表示，在收到下议院外交事务特别委员会指出这些联系的信件之前，它并不知道中国电子科技集团公司涉嫌在迫害维吾尔人方面的作用。
+
+委员会主席汤姆·图根达特在今天的《教育部》上写道：“英国大学中的一些人已经失去了道德方向，不是在促进学术自由，而是在损害我们的战略利益。”
+
+这位保守党议员认为，英国过于开放大学是一个错误。“我们正在交出秘密，这些秘密将帮助一个经常敌对的国家成为21世纪最伟大的军事强国。”
+
+政府的调查是在亨利·杰克逊协会去年10月的一份报告中批评政府没有起诉任何违反出口管制的学者之后进行的。
+
+独立地，明天发布的一份报告将揭露英国大学与中国学术中心之间惊人的合作程度，其中许多中心与中国人民解放军有着深厚的研究联系。智库Civitas的研究报告指责英国24所顶尖大学中，有14所与中国武器集团和与军方有关的研究中心有联系，参与核武器计划和开发未来科技。
+
+研究表明，英国大学的科学发现有可能通过协助中共国发展高超音速导弹、雷达干扰系统、机器人、航天器和隐形飞行器，助长中共国的军事霸权。
+
+该研究的主要作者、前财政部官员拉多米尔·泰尔科特说：“英国纳税人正在为可能无意中帮助中共国军队很快取得潜在主导地位的研究付费。”“这在战略上是不一致的—尤其是当英国为自己的军事需求而进行的研究支出是如此贫乏的时候。”
+
+智库Civitas透露，中国电子科技集团公司（China Electronics Technology Corporation）—该公司已承认其目的是为了中共国军队的利益而 “利用 “民用电子系统—支持中华人民共和国四所与军事有关的大学的工作，并与七所英国大学有联系。
+
+这家巨大的公司被视为北京险恶的监控国家的主要设计者之一。
+
+该智库报告—题为《武装中国？中国军事综合体及其对英国大学科研的潜在利用》—研究了20所英国大学与29所与军事有关的大学和9家与军事有关的公司的关系，这些公司包括该国最大的一些武器供应商。
+
+其中十几所中国大学被澳大利亚战略政策研究所认为是 “非常高的风险”，而另外十所大学则被称为 “高风险”。
+
+Civitas强调所有的英国大学都是出于善意，随着对中共国日益增长的好战性的担忧，该组织将焦点转向了英国最著名的一些学术机构。
+
+这些大学都坚持他们的工作是为了更广泛地造福社会，许多研究成果都在科学文献中公开发表，并努力遵守所有旨在保护安全和知识产权的规则。
+
+智库Civitas的报告说，剑桥大学与国防科技大学合作，这是一个受到美国制裁的军方研究机构。
+
+北京曾吹嘘这一合作将“大大提高国家在国防、通信和……高精度导航领域的实力。”
+
+剑桥大学发言人告诉卫生部：“该大学的所有研究都受到伦理治理和出口管制条例的约束。”帝国理工学院是另一个世界领先的英国科学中心，它有三个研究单位，由中共国主要武器制造商赞助。发言人说：“科学是一项全球性的事业，我们很自豪能与全世界学术界和工业界的同行合作。”
+
+Civitas指责曼彻斯特大学为“中国主要的核导弹集团提供了一个英国纳税人资助的研究中心。”这家公司的一个子公司—受美国制裁—还资助了斯特拉思克莱德大学的一个单位，该单位在英国的太空研究中起着主导作用。
+
+曼彻斯特大学还与中共国的资助者合作开发石墨烯，这种革命性的新材料为该校的两名研究人员赢得了诺贝尔奖，由于其巨大的强度和灵活性，它被视为具有巨大的军事潜力。曼彻斯特和斯特拉思克莱德都坚持与相关部门密切合作，以确保他们完全遵守所有政策和出口协议。
+
+伦敦玛丽女王大学与中国西北工业大学（NPU）建立了 “协作伙伴关系”，称赞这所自称 “致力于提高和服务于国防科技工业 “的大学在航空航天和海洋工程方面的 “特殊优势”。
+
+中国西北工业大学至少有13个国防实验室，分为喷气推进、空间技术和鱼雷制导等领域。“我们为与中国西北工业大学的跨国教育和研究合作感到自豪，”玛丽女王大学发言人说，并补充说，“它遵循有关安全和道德的’严格程序’。”
+
+根据Civitas的报告，南安普顿与哈尔滨工程大学有联系，因帮助中共国机构在海军建筑方面建立“世界一流”的地位而受到赞扬。它在中共国建设世界上最大、装备最好的海军的雄心壮志中起着关键作用。
+
+南安普顿发言人说，他们的合作有“创造广泛社会效益的潜力”，并补充说，他们听从了政府的建议，哈尔滨的合作只是复制了他们的本科学习。哈尔滨也是15所中国民间大学之一，这些大学被牵涉到网络攻击、非法出口或间谍行动中。中共国向伊朗、缅甸和朝鲜等世界上一些最具压迫性的政权出售武器的历史由来已久。
+
+前中国政府官员、现为主要民主活动人士的韩连潮说，北京长期以来一直将学术交流项目视为通过利用开放的西方研究机构来实现军事现代化的一种方式。“中共国发明了各种各样的计划，从邀请西方教授来国内讲学，到聘请他们从事咨询工作，再到资助大学之间的联合研究项目。这些计划使它能够获得军民两用的技术，并建立一支强大的军队。可悲的是，大多数西方大学和研究机构目光短浅，仍然看不清中共国的战略意图。”
+
+**[新闻来源](https://www.dailymail.co.uk/news/article-9232151/amp/MI6-fears-dozen-UK-universities-links-Beijing.html?__twitter_impression=true)**
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/00110011.png)
 
 0
