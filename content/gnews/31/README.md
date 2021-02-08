@@ -1,27 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：美国参议员汤姆．科顿发推缅怀李文亮医生逝世一周年，中共国呢？
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/891952/)
+## 继新南威尔士州后，南澳考虑进行归国旅客的中共病毒额外测试
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/892244/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
+翻译 喜妈 喜安娜
+![]()![](https://gnews.org/wp-content/uploads/2021/02/方方日记-8.png)图片来源：Canva.com
+南澳大利亚州将考虑为从海外归国的澳大利亚人增加额外的中共病毒测试，以加强酒店检疫系统的安全性。
 
-参议员汤姆．科顿在美国时间二月七日发推：＂一年多前，李文亮医生试图对全世界发出中共病毒警告，但是他被中共禁声了！今天在他的一周年祭日，我们必须要继续战斗，让中共承担制造并释放致命病毒的巨大责任！＂
-![]()![](https://gnews.org/wp-content/uploads/2021/02/0804.jpg)
-＂去年，我已经发起了一项议案，要授予李文亮医生荣誉，并呼吁中共给出李文亮医生真正的死因及病毒真相，李医生的死不能是徒劳的！＂
-![]()![](https://gnews.org/wp-content/uploads/2021/02/0805.jpg)
-科顿议员的推文附上了纽约时报的文章链结《同一天，两个国家，两个人的祭日》，里面提到了在美国时间2020年2月6日（中国时间2月7日），吹哨人李文亮医生逝世，美国第一例中共病毒感染者Patricia Dowd离逝！
+根据目前的安排，任何被迫进入南澳隔离区的人都将在第一，第五和第十二天接受测试。但是新南威尔士州现已在第十六天推出了一项测试，虽然这并非完全强制的措施。它旨在收集可能在十四天期限结束时可能出现的病例。
 
-同时参议员也附上了他在2020年2月11日和其它几位参议员发起的这份议案。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/0806.jpg)
-两日前有战友在getter发文：＂有探访者去中共国武汉九峰山所谓的革命烈士陵园去探望李文亮医生，结果发现唯独＂李文亮＂医生的名字被遮蔽了，这位探访者写道：都英雄了，也为吹哨立法了，咋还怕见光呢？ ＂它们当然会怕，因为病毒真相就是灭掉它们的武器，所以要掩盖，收买，恐吓，这两项不行了，就直接毙了宣传真相的人！
-![]()![](https://gnews.org/wp-content/uploads/2021/02/0807.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/0808.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/0809.jpg)
-一个国家的议员对于非自己国家的吹哨人医生的死表达纪念，并坚持寻求真相和谴责中共是真凶，而这个医生自己所在的国家先是禁声打压他，并最终害死了他，再后来却反过来利用他，封他为＂烈士＂，利用他的名来妆点所谓的抗疫…！邪恶不！该灭不！
+南澳州长史蒂文·马歇尔（Steven Marshall）表示，在确保人们安全方面，南澳大利亚州将继续遵循最佳医疗建议。
 
-[援引推特](https://mobile.twitter.com/SenTomCotton/status/1358474695176310790)
+他在周日对记者说：“过去的每一天，我们都在越来越多地了解这种疾病。” “我们正在从其他州获取更多信息，我们正在从海外获取信息。” “我们会非常仔细地考虑这个病毒的信息。如果需要，我们要在南澳大利亚做到这一点，那也就是我们所将要做的。”
 
-本文作者：上進哥
-审核校对：玫瑰天空
-上传排版：糖果儿
+从星期一开始，南澳当局将接手阿德莱德市中心新建汤姆法院酒店大楼，该大楼将成为容纳已确诊冠状病毒感染者的专用设施。该设施已经升级了通风系统，以使其尽可能安全，并提高了CCTV的覆盖范围。该场地有72张床，包括四个可容纳家庭的公寓式客房和两个专用残疾人套房。工作人员将从星期一入驻，以便从2月15日起接待客人。
 
-0
+在十一月份阿德莱德爆发是由隔离旅馆中的一名染疫保安引起的。在那之后，政府承诺启用新的建筑设施。南澳周日没有报告新的中共病毒病例。该州目前只有两个活跃的病例，而且都是处在隔离中的归国旅行者。
+
+(本文纯属原文翻译无个人观点添加)
+
+Reference:
+
+SBS.com.au., (2021). SA considers extra COVID-19 test for returned travellers after NSW adopts measure. [online]. SBS.com.au. [Viewed 8 February 2021]. Available from: [https://www.sbs.com.au/news/sa-considers-extra-covid-19-test-for-returned-travellers-after-nsw-adopts-measure](https://www.sbs.com.au/news/sa-considers-extra-covid-19-test-for-returned-travellers-after-nsw-adopts-measure)
+
+[澳喜文章](https://gnews.org/zh-hans/author/aujenny/)
+
+[欢迎加入澳喜农场](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-Logo.jpeg)
++1

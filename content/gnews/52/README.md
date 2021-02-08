@@ -1,32 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】07/02/2021:共产党搞数字货币的目的就是要让老百姓永世为奴
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/891548/)
+## 《门道专家》将巴尔归类为“深层政府”一员
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/891730/)
 
-**制作:Cantonese工作室**
-播报：鱼摆摆（文驋）
-<br>资料收集：郁金香 美国小李 幽灵小妹
-<br>视频制作：Shawn
-<br>海报制作：侬民、文绉绉
-**摘要:**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-01.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-02.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-03.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-04.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-05.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-06.jpg)
-7.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-07.jpg)
-8.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-08.jpg)
-9.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-09.jpg)
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-08_07-09-41.jpg)[axios.com](https://www.axios.com/bill-barr-senate-judiciary-committee-unrepentant-1e3399f7-a4a8-44ec-9095-edf250dfc4ba.html)
+《门道专家》2月7日的文章说，川普总统的助理、贸易和制造业政策总监、国防生产法政策协调员彼得·纳瓦罗（Peter Navaro）今天上午作客福克斯玛丽亚的《周日早间未来》节目，“巴尔确实在很多方面与川普总统的政府作对”，纳瓦罗透露道。《门道专家》则把巴尔归类到了“深层政府”的一员。他称比尔·巴尔（Bill Barr）正在快速跟踪拜登的行政命令，而他（之前）却在磨磨蹭蹭地对待总统川普的命令。纳瓦罗表示，行政命令（EO）必须经司法部（DOJ）检查后方可执行，这是一个行政命令形成的最后一道程序。
+
+“这里有新闻背后的新闻，比尔·巴尔，川普总统的司法部长，也恰好是乔·拜登第一任司法部长（的角色），因为发生了这样的事情，在选举日之后，我们有30多个行政命令排着队，随时准备执行，但我们不断遇到（他们设置的）路障和阻碍。事实证明，比尔·巴尔的法律顾问办公室正在快速追踪拜登所有的竞选活动，基本上这是一场“深层政府”的政变。现在这也影响了玛丽亚。”
+
+纳瓦罗接着解释道，美国司法部是如何帮助批准拜登的一项意向书的，他允许中共国进入美国电网，如果美国陷入与中共国的困境，这将产生可怕的后果。拜登的命令允许中共国拆除美国电网，巴尔的司法部批准了这一命令，与此同时，（由于）司法部设置阻碍，纳瓦罗无法通过一项关于离岸外包的命令。
+
+“是的，我们在司法部那里走得很慢，这个问题我告诉巴尔很多次了，他应该在被解雇前几个月被解雇。在本届政府的最后一年，他确实在很多方面与本届政府作对。”
+
+几个月前，巴尔将自己永久地放在“深层政府”的臭鼬名单上，当时他忽略了所有选举舞弊的证据，最终导致拜登窃取了选举。（原文引用了曾经发表过的文章）。
+
+比尔·巴尔是“深层政府”的耻辱，他背叛了川普总统和美国。
+
+《门道专家》是川普总统的支持与捍卫者，对巴尔自然是毫不留情！
+
+巴尔扮演了亲共、护共的角色，许多法令是惩治中共的却被他们阻止。说他是邪共一员尚无确凿的证据，但至少是对邪共没有清醒的认知，所以，巴尔也将被钉在历史的耻辱柱上！
+
+参考链接：
+
+[https://www.thegatewaypundit.com/2021/02/really-working-administration-lot-ways-trump-administrations-peter-navaro-deep-states-ag-bill-barr/](https://www.thegatewaypundit.com/2021/02/really-working-administration-lot-ways-trump-administrations-peter-navaro-deep-states-ag-bill-barr/)
+
 0
