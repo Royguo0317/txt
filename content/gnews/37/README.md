@@ -1,39 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 纪念CCP病毒“吹哨人” 李文亮医生
-` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/891352/)
+## 【每日快讯】07/02/2021:共产党搞数字货币的目的就是要让老百姓永世为奴
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/891548/)
 
-#### 作者：冰糖葫芦喵
+**制作:Cantonese工作室**
+播报：鱼摆摆（文驋）
+<br>资料收集：郁金香 美国小李 幽灵小妹
+<br>视频制作：Shawn
+<br>海报制作：侬民、文绉绉
+**摘要:**
 
-2021年2月7日中国武汉中心医院眼科医生李文亮医生去世的周年纪念日，他被认为是武汉新冠疫情CCP病毒大爆发的“吹哨人”。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/TOM-COTTON.png)
-美国共和党参议员Tom Cotton今天发推纪念：“一年前的今天，李文亮医生试图向世界发出# covid 19警告，但被中国共产党噤声。在他逝世一周年之际，我们必须继续斗争，让中国共产党对这种致命的病毒负责。“
-
-**【观点】**2019年12月底，李医生在一个网络聊天室警告他的医学院同行，说有一份实验室报告称，有种类似于严重急性呼吸综合征(SARS)病毒正在传播。然而他的警告没有获得官方的认可，反而在几天后被当地的派出所带走训诫，并被迫在训诫书上签字。
-
-直到疫情迅速恶化到无法控制，中共国才封锁了武汉，停止了所有国内飞往武汉的飞机、火车、高速公路。但是却没有封停武汉飞往香港、东南亚和世界各地其他国家，以致于病毒很快的蔓延到全世界。
-
-周日在中共国，一个纪念李医生的话题标签在微博上吸引了超过4.1亿的浏览量，甚至在审查的情况下，许多更长的帖子故意抨击官方审查和保密，导致李医生受到打压。
-
-一些哀悼李医生的人引用了他去世前几天接受采访时的个人言论:“我觉得一个健全的社会不应该只有一个声音。”
-
-时光飞逝，李医生逝世已经一周年了，病毒的传播已经成了当今全世界面临的最大的挑战，倘使李文良医生的警讯得到重视并广泛传播，我们这个世界也许比现在要好很多。我们向这位勇敢的、有良心、有大爱的医生致以最崇高敬意。
-
-**【参考来源】**
-
-TWITTER:[https://twitter.com/SenTomCotton/status/1358474694094184448](https://twitter.com/SenTomCotton/status/1358474694094184448)
-
-**【免责声明】**  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-**欢迎战友加入旧金山金喜准农场**
-
-**旧金山金喜准农场** GTV: [https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
-
-**旧金山金喜准农场** Discord: [https://discord.gg/QQzQ79grEA](https://t.co/hPEjhr0AZA?amp=1)** **
-
-**旧金山金喜准农场** Twitter: [https://twitter.com/sf\_himalaya](https://twitter.com/sf_himalaya)
-
-
-
-+1
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-01.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-02.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-03.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-04.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-05.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-06.jpg)
+7.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-07.jpg)
+8.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-08.jpg)
+9.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210207-zhTW-09.jpg)
+0

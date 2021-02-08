@@ -1,31 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】美先进驱逐舰部署日本，普京认为远东局势“不容乐观”
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/892045/)
+## 继新南威尔士州后，南澳考虑进行归国旅客的中共病毒额外测试
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/892244/)
 
-作者：纽约香草山  人间世 校对/发稿：飞虹
+翻译 喜妈 喜安娜
+![]()![](https://gnews.org/wp-content/uploads/2021/02/方方日记-8.png)图片来源：Canva.com
+南澳大利亚州将考虑为从海外归国的澳大利亚人增加额外的中共病毒测试，以加强酒店检疫系统的安全性。
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
+根据目前的安排，任何被迫进入南澳隔离区的人都将在第一，第五和第十二天接受测试。但是新南威尔士州现已在第十六天推出了一项测试，虽然这并非完全强制的措施。它旨在收集可能在十四天期限结束时可能出现的病例。
 
+南澳州长史蒂文·马歇尔（Steven Marshall）表示，在确保人们安全方面，南澳大利亚州将继续遵循最佳医疗建议。
 
+他在周日对记者说：“过去的每一天，我们都在越来越多地了解这种疾病。” “我们正在从其他州获取更多信息，我们正在从海外获取信息。” “我们会非常仔细地考虑这个病毒的信息。如果需要，我们要在南澳大利亚做到这一点，那也就是我们所将要做的。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/图片8-10.png)U. S. Navy/MC2 Jason Isaacs 图片来源：俄罗斯卫星通讯社
+从星期一开始，南澳当局将接手阿德莱德市中心新建汤姆法院酒店大楼，该大楼将成为容纳已确诊冠状病毒感染者的专用设施。该设施已经升级了通风系统，以使其尽可能安全，并提高了CCTV的覆盖范围。该场地有72张床，包括四个可容纳家庭的公寓式客房和两个专用残疾人套房。工作人员将从星期一入驻，以便从2月15日起接待客人。
 
-2月4日，美国第七舰队发布消息称，“阿利•伯克级导弹驱逐舰‘拉斐尔•佩拉尔塔’号已于周四抵达美国海军在日本横须贺军事基地的新泊位”。该舰具备极强的导弹拦截能力。
+在十一月份阿德莱德爆发是由隔离旅馆中的一名染疫保安引起的。在那之后，政府承诺启用新的建筑设施。南澳周日没有报告新的中共病毒病例。该州目前只有两个活跃的病例，而且都是处在隔离中的归国旅行者。
 
-据俄罗斯卫星通讯社2月7日报道，俄罗斯军事专家认为，美国近日将最先进驱逐舰部署到日本，主要有两个目的。其一是针对朝鲜，不到一个月前，朝鲜展示了配备液体发动机的“北极星-5”新型潜射弹道导弹，射程可达美国。朝鲜正在为其建造专用潜艇。因此，美国需要有所防范。其二是为遏制中（共）国和俄罗斯。俄罗斯专家指出，“有人推测这是在为对华重大冲突做准备。同时，五角大楼代表不排除在与中俄发生冲突时会升级为‘核冲突’。美国计划在韩国和日本部署中短程导弹也非常适合这种军事布局”。
+(本文纯属原文翻译无个人观点添加)
 
-俄罗斯卫星通讯社在报道中还提到，俄罗斯总统普京在近期举行的安全会议上指出，远东局势“不容乐观”，对俄罗斯有潜在威胁。
+Reference:
 
+SBS.com.au., (2021). SA considers extra COVID-19 test for returned travellers after NSW adopts measure. [online]. SBS.com.au. [Viewed 8 February 2021]. Available from: [https://www.sbs.com.au/news/sa-considers-extra-covid-19-test-for-returned-travellers-after-nsw-adopts-measure](https://www.sbs.com.au/news/sa-considers-extra-covid-19-test-for-returned-travellers-after-nsw-adopts-measure)
 
+[澳喜文章](https://gnews.org/zh-hans/author/aujenny/)
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-0
+[欢迎加入澳喜农场](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-Logo.jpeg)
++1

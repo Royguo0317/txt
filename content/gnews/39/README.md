@@ -1,39 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生公布关于春节G-Clubs互动抽奖节目的细节
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/891415/)
+## 谷歌对支付澳洲本地新闻来源的议案做出让步
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/891461/)
 
-新闻简述：在2021年1月28日的 GTV 盖特视频中，郭先生公布了春节G-Clubs互动抽奖节目的一些细节，届时将有5辆汽车和多种奖品供会员抽奖。
-[下载字幕文件](https://gnews.org/miles_20210128_gt-srt/)
-After the broadcast this morning, I’ve got many messages. Many questions are related to G-Clubs’ interactive program for the Spring Festival. Brothers and sisters in arms, after watching the broadcast [on that day], we will have an interactive program, for it is a must and I have to interact with you. I guess that we will have probably 5,000 to 8,000 members online and approximately 20,000 members offline. But this will be an interactive moment, which is only for us, not for the public. In that moment, you can directly ask me any questions.  Although it will be the Chinese New Year [celebration], let’s not waste time talking about niceties but just get into questions someone might have for me since there will be so many people there, all right? If anyone wants to speak, just ask the question directly. It would be better if the questions are useful.
+翻译：Jony (8 Mile)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/001.jpg)(图片来源于网络)
+谷歌在澳大利亚改弦更张——为（部分）澳大利亚新闻开通付费平台。
 
-这个今天上午直播完以后的有很多信息给我留，关于G-Clubs春节互动的节目，很多问我的问题。战友兄弟姐妹们，除了你们看完视频以后，咱们互动的节目那是必须的，那是法定的，七哥必须跟你们互动，大概吧，我们是线上大概5000到8000，线下大概2万左右，我估计啊，但是这是封闭的，是不公开的，不公开的，就是谁想问七哥啥问题，你就直接，虽然是大过年的，咱也别说那么多，太热炕头的话，就是别耽误时间，因为那么多人，是吧？谁要是想说话，就直接问问题，最好有用。
+澳大利亚政府在与谷歌的对峙中可能取得了罕见的局部胜利。这家总部位于美国的科技巨头似乎已经改变了方向，因为澳大利亚正在举行听证会，旨在颁布立法，以有效地迫使谷歌为其链接的新闻和搜索引擎中的特色新闻向当地来源支付费用。
 
-As we just finished our G-Fashion meeting, the lawyer yelled in disagreement. Thanks to Ms. Yanping Wang who argued firmly on just grounds.  She told the lawyer that it is what it is whether they agree or disagree. It is going to be a lottery drawing with the prize of 5 BMWs, or maybe 5 Mercedes-Benz, five cars for sure. Probably it will be 5 BMWs for now.  Then, perhaps the bags that I mentioned in the morning, for example, the shoulder bag and the waist bag.  However, there won’t be enough time to make them since it probably takes 40 days to make.  In such case, we can change to the Guo Warrior Suit instead, the black color that I wore before.  The Warrior Suit of G-Forever and G-Fashion, 500 hats, bracelets, and rings, all are lottery prizes free for the winning members.  Isn’t that something! Many brothers-in-arms sent me messages, saying, “Brother Seven [Miles], we will give them to you if we win the prizes.” Well, please don’t do this!  You will get me in trouble if your lottery drawings end up in my pocket.  Who is that? Only a thief, a liar, or the “Nine-Finger Queen” can do things like that.  Correct? It is not right to do that.
+谷歌上个月威胁要将其搜索引擎完全撤出澳洲，堪培拉则表示，他们不会让步。但周四，谷歌发布了以下官方声明: “为了满足读者和出版商日益增长的需求，去年我们加大了对新闻合作伙伴的投资，并推出了谷歌新闻展应用。”
 
-刚刚我们的 G-Fashion 开完会，律师刚才嗷嗷的叫，不同意。这得感谢王艳平同志，这王艳平据理力争，说你同意也得同意，不同意也得同意，就是这样了，抽奖，五台宝马，也可能五台奔驰，反正肯定五台车。大概目前定的是五台宝马，然后比如说我上午说的那个包，那个背包还有个腰包，但是那个时间实在来不及，可能是要40天才能做出来，那就改成郭战装，就一整套我穿的那个郭战装，就黑的那个，G-Forever，G-Fashion的战装，这都是送给大家的，抽奖抽给大家的，500个帽子，还有手环、戒指，这了不得了。还有个就战友很多说，我抽到以后七哥我送给你，很多人给我发这个信息，你千万别这么发，你送给我，我就出事了，哪有抽奖抽到七哥腰包里去了？那成啥人了？那不成欺民贼、九指王了吗？对不对？不可能。
+新闻展 “Showcase “应用程序是该公司通过谈判，向一些注册该程序的澳大利亚新闻制作人支付报酬的结果。这是在试图削弱要求公司支付所有此类内容的拟议立法。不过，这不太可能阻止新的立法，但谷歌将其作为一种 “替代方案”。此举表明，这家科技巨头可以说是感受到了压力，正在寻求妥协。
 
-In addition, you cannot donate your winning prize to the Rule of Law Foundation.  There will be two choices for you. With respect to the car lottery, for example, the BMW car is worth 100,000 dollars, which is at the 100,000 dollars level, so you can ask for cash, which can be given to you directly.  For example, as to the prize of 40,000 dollars, maybe 50,000 to 60,000 dollars, or the prize of 20,000 plus or 30,000 dollars, you can ask for cash, which can be wired to you directly. You can also ask for a bank card.  Either way will work. The price is based on the U.S. market. They will tell you what make and model the car is and how much it’s worth, you know? After they tell you those, you may say I want the car, then all of the tariffs when sending the car out to different countries from the U.S., for example, to Mainland China, Japan, Thailand, Africa… all the expenses are yours to bear after the car leaves the U.S.  Of course, you have to pay the tax. If you say, “I don’t want the car. I want the money,” then they will give you the cash immediately.
+谷歌公告还说：”今天，我们很高兴地宣布，我们正在推出该产品的初始版本，以使澳大利亚的用户和出版商受益，鉴于本地信息的重要性及其在人们日常生活中的作用，我们非常关注领先的区域和独立出版商。”
 
-所有的东西，你也不能捐法制基金，你有两个选择，就这个车抽奖，你比如说那个宝马车是10 万美元，10万美元的级别的，你可以要钱，你可以要现金的，直接给你的。比如说四万那个，可能是5万多6万美元，还有2万多、3万美元的那个，你可以要钱，直接把钱汇给你，你也可以要卡，都可以。这个价钱定义是美国的市场，他会给你写出来什么车，什么系列，什么价格，是吧？然后告诉你，然后你说我要车，从美国发出去所有的关税，不同的国家，你比如说发给大陆，你发给日本，发给泰国，非洲 … 所有离开美国之后，店里的费用全是你的，税当然是你的，你说我不要车，我要钱，“叭”就把现金给你了。
+“新闻展应用旨在为出版商和读者带来价值，通过提供授权计划，向出版商支付费用，为谷歌服务中的故事板块策划内容，并让读者更深入地了解重要的故事，”声明说。
 
-If you say that you want to use the car in the U.S., you can just pick up the car and leave.  That’s how simple it is.  You can go to the nearby city to pick up the car.  The rest of the prizes, like rings, bracelets, Warrior Suits, and hats can be sent to your home without extra charge.  So, I won’t be able to reply to every one of you.  Brothers-in-arms, dose this sound okay to you?
+虽然细节尚未透露，例如哪些出版商最终将被允许加入该平台，但据路透社详细报道，这是一项重大的妥协，很可能首先奖励澳大利亚主要的全国性媒体：
 
-然后你说你在美国用上了，你就直接提车走就行了，就这么简单，你到你的附近的城市提车就行了，剩余那些什么戒指啊，手链啊战装啊，是吧？帽子啊那都是到你家的，那不用再加钱了。所以说我就没办法一一回了，兄弟姐妹们，中不中？
+“目前该立法已提交议会调查，周五在澳大利亚推出的 “新闻展 “应用将向包括《堪培拉时报》在内的七家国内媒体支付费用，以使用其内容。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+内容交易的财务细节没有披露，《堪培拉时报》出版商澳大利亚社区媒体没有立即回应评论请求。“
 
-视频来源：[https://gtv.org/getter/60133bbac3245d7c59e9ff05](https://gtv.org/getter/60133bbac3245d7c59e9ff05)
+酝酿数月的澳大利亚倡议旨在确保公司和内容提供商因其内容为谷歌和母公司Alphabet Inc.创造的价值而获得公平补偿，而此时国内行业正处于危机之中，传统报纸和内容生产商面临着不得不完全关闭的威胁。
 
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/838734/](https://gnews.org/zh-hans/838734/)
+上个月，澳大利亚总理斯科特-莫里森（Scott Morrison）在该国被谷歌威胁关闭搜索引擎后进行了反击，他说：”我们不会回应威胁”。他当时补充道 “让我说清楚， 澳大利亚制定我们自己的关于你们在这里可以做的事情的规则。”
 
-翻译：【Cyndi】校对：【奔腾的长江】【Isaiah4031】【BruhM】字幕：【相机过热啊】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+据普遍估计，与全球其他许多国家类似，Alphabet公司至少监管着澳大利亚94%的搜索流量，而此时Alphabet公司正受到越来越多的指责，指责它利用其垄断力量欺负内容提供商和较小的竞争对手。
 
+（本文纯属原文翻译无个人观点添加）
+
+审稿：Gradient Boost
+
+新闻原文来自：[Zerohedge](https://www.zerohedge.com/technology/google-reverses-course-australia-opens-paid-platform-some-australian-news?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+
+[澳喜文章](https://gnews.org/zh-hans/author/aujenny/)
+
+[欢迎加入澳喜农场](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-Logo.jpeg)
 0

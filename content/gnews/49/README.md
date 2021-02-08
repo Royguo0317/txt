@@ -1,24 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以色列周日起放松防疫限制
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/891212/)
+## 香草播报：【军事快讯】中共今天开始在渤海黄海举行15天军事演习
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/891300/)
 
-- 编辑：Victor Torres
+作者：纽约香草山写作组 Wilson
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年2月7日电/西喜社——**以色列在进入第三次全国范围旨在防止中共病毒传播的封锁后近六周，开始放松限制。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-一些企业在周日开始重新开放，人们现在被允许在离家一公里（半英里）以上的地方活动。但学校仍然关闭，国际航班也受到严重限制。
 
-由于新的感染病例失控，以色列在12月底实施了第三次全国封锁。根据卫生部的数据，自去年大流行开始以来，以色列已经记录了超过68.6万例中共病毒病例，死亡人数为5074人。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/e315a024-1593-4bbc-9a84-ad290def5de4.jpg)
+[风军事](https://www.storm.mg/article/3460778)2021年2月7日报道，中国海事局官网7日发布最新航警称，解放军将于2月7日下午4时至2月21日下午4时，在渤海海峡和黄海北部执行军事任务，期间禁止船只驶入。
 
-**[新闻来源](https://apnews.com/article/nfl-pandemics-israel-super-bowl-football-6e3df11b3ff68134a02cd597ff4b3054)**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/76.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/00110011.png)
+今年以来，解放军在渤海、黄海、东海3大海域密集演习：1月31日、2月1日，渤海海域军演；1月31日至2月7日，渤海海峡和黄海北部军演。此外，东部战区海军某驱逐舰支队，在东海某海域，组织主炮射击、综合攻防等20多个课目的实战化训练。
 
-+1
+溯源中共病毒来源和追究中共放毒罪责，以及国际社会定性的中共犯下种族灭绝罪，无疑将成为国际社会和中共角力、矛盾的焦点。因此，中共军演大致有两个目的：一是在习近平久未露面，中共内斗加激，中（共）国经济一片萧条，中美关系异常诡异等复杂形势下，中共通过频繁的大规模海空军事演习，达到震慑国内外敌对势力及暂时稳定政权的目的；二是为攻占台湾、和美日在台海、南海发生大规模军事冲突，以及和印度在印度洋及中印边境发生战争做准备。
+
+到目前为止，丝毫看不到中共放弃作恶的迹象。回顾历史，以美国为首的西方对中共的每一次绥靖，都是一个大灾难的开始。
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
+
+0
