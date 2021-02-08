@@ -1,26 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全球最大的基因组公司华大基因与中共军方合作收集外国人DNA
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/892402/)
+## 美菲双方就《访问部队协定》展开新的磋商
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/892541/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/BGI.jpg)
-**翻译报道：: Charline**
+- 编辑：Victor Torres
+- 作者：神奇四侠
+- 素材：meiping
 
-**责任编辑：人间四月**
 
-据印度网络媒体greatgameindia曝光，华大基因（BGI GROUP）是全球最大的基因组公司，在包括印度在内的全球范围内提供中共病毒测试，目前已被暴露出是中共军方控制的对象。 根据美国最高反情报官员比尔·埃文纳（Bill Evanina）的说法，中共军方正试图以华大基因从外国收集DNA样本，以用于其生物武器计划。
+**西班牙2021年2月8日电/——西喜社**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/12345.jpeg)
+根据路透社报道，菲律宾和美国本月将举行会议，以消除中止已有两年之久的《访问部队协定》（VFA）的分歧。
+菲律宾外交部长特奥多罗·洛辛周一在接受采访时说：“我们正在缩小问题的范围，在2月下旬我们将和美国磋商来消除存在的分歧。”
+美国国务卿布林肯在上月承诺南海是包含在《共同防御条约》中的，同时菲律宾外长特奥多罗·洛辛在和国务卿布林肯通过电话后对中共就实施《海警法》提出外交抗议。
+《访问部队协定》提供了法律框架，在该框架内美军可以在菲律宾展开行动。
 
-路透社对研究专利申请和其他文件的审查发现，全球最大的基因组公司华大基因与中共军方合作，开展了从呼吸道病原体的大规模检测到脑科学的研究。
-
-该公司在深圳证券交易所上市的子公司在过去的12个月中股价上涨了一倍，市值约为90亿美元。
-
-华大基因已向包括印度在内的世界各国提供了中共病毒测试。根据美国最高反情报官员比尔·埃瓦尼那（Bill Evanina）的说法，中国军方正试图利用BGI集团作为前线来收集外国的DNA样本。埃瓦尼那认为中共军方可以通过这种方式从测试中收集，存储和利用生物特征信息。他告诉哥伦比亚广播公司新闻，他相信中共政府正在为收集DNA作出一致努力，以便在医疗方面取得优势。
-
-正如网络媒体GreatGameIndia先前报道的那样，中共的军民融合战略已经将生物学作为首要任务，而中共军方可能处于扩大和利用这一知识的最前沿。中共军方正在寻求生物学方面的军事应用，并寻求与包括脑科学，超级计算和人工智能在内的其他学科。自2016年以来，中共中央军事委员资助了许多项目：军事脑科学，先进的仿生系统，生物和仿生材料，提高人类绩效以及“新概念”生物技术。
-
-评: 中共正在加速扩大毁人类的野心，不惜用中国百姓的血汗钱，偷窃世界先进科技技术，去制造病毒和生化武器，从而达到它成为世界老大的形象，让全世界人跪在它的脚下。幸亏有了郭先生的爆料革命，挽救了全世界，让真相及时呈现在世人面前。中共的疯狂也加速了它的灭亡，邪不压正，真理和正义会永远战胜中共的狼子野心，爆料革命是正义的需要。
-
-[新闻链接](https://greatgameindia.com/covid-19-litary/tests-chinese-mi)
-
+新闻来源：[https://www.scmp.com/news/asia/southeast-asia/article/3120985/south-china-sea-dispute-prompts-philippines-meet-us-month?utm\_term=Autofeed&utm\_medium=Social&utm\_content=article&utm\_source=Twitter#Echobox=1612768766](https://www.scmp.com/news/asia/southeast-asia/article/3120985/south-china-sea-dispute-prompts-philippines-meet-us-month?utm_term=Autofeed&amp;utm_medium=Social&amp;utm_content=article&amp;utm_source=Twitter#Echobox=1612768766)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/00110011.png)
 0

@@ -1,54 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国正在盗取美国公民的DNA信息
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/892898/)
+## 英国为认定中共种族灭绝罪斗争正酣
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/892985/)
 
-*新闻来源：The Washington Free Beacon 《华盛顿自由灯塔报》| 作者：Jack Beyrer杰克·贝勒 | 发布时间：2021年2月5日*
+俄罗斯莫斯科喀秋莎农场    银河
 
-*翻译/简评：clau | 校对：SilverSpurs7 | 审核：万人往| Page：拱卒*
+编辑   水星    上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-08_20-11-49.jpg)[reddit.com](https://www.reddit.com/r/islam/comments/ldi1vd/great_piece_by_washington_editorial_board_about/)
+《欧洲政治报》2月7日报道，维族支持者告诉英国首相鲍里斯·约翰逊，他试图阻止议会对种族灭绝认定的行为，“无异于向中共拘留营幸存者的脸上吐口水”。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/qhN94m5YCM8BL/images/01240100-f517-4629-b5f3-259c31fd3f01.jpg?asset_id=33861124-62c1-4491-91c5-fbfaeefe4355&amp;img_etag=%22a8fdce8f8d8dcf0b29007cb96b763a74%22&amp;size=2560)](https://spark.adobe.com/page/qhN94m5YCM8BL/images/01240100-f517-4629-b5f3-259c31fd3f01.jpg?asset_id=33861124-62c1-4491-91c5-fbfaeefe4355&amp;img_etag=%22a8fdce8f8d8dcf0b29007cb96b763a74%22&amp;size=1024)
+一个跨党派的国会议员小组本周将再次尝试提议修订英国政府的贸易法案，目的是在法案中添加一项条款，该条款将阻止与任何被英国法院认定犯有种族灭绝罪的国家达成贸易协议。
 
-**简评：**
+1月20日，英国下院以微弱的优势否决了英国上议院早前通过的“种族灭绝修正案”。该修正案拟授予英国高等法院调查他国是否犯下种族灭绝罪行的特别权力，如法院认定属实，英国政府将不能与这些国家签订自由贸易协定，已有协议也要取消。
 
-《华盛顿自由灯塔报》用非常简短的篇幅阐述了以下事实：美国公民的DNA信息正在被中共盗取以及未来会导致的后果。被引用的美国国家情报总监的报告显示，这些被盗取的个人DNA数据结合过往被黑客盗取的其他个人数据会被中共整合成数据集，用来在美国进行精确的间谍活动。所有的个人都可能被监视、操纵或勒索。
+当天，苏格兰民族党在英国议会的领袖伊恩•布莱克福德表示，“如果昨夜首相没有下令其议员否决阻止英国与犯下种族灭绝的国家达成自贸协定的修正案，人们会认为他声称英国要领导全球的表态多能点可信度。”他呼吁约翰逊与美国前任及现任国务卿——蓬佩奥和布林肯保持一致立场，认定中共对维吾尔人正在犯下“种族灭绝”的罪行。
 
-这段时间，美国的各派政治力量都开始醒悟，各派媒体都开始围绕DNA数据安全问题进行报道，包括CBS的《60分钟》栏目，《布莱特巴特网》等媒体。谁都不希望自己的个人和生物信息被敌对国家掌握。自新冠疫情爆发以来，中共正在按部就班的执行“13579”计划和各个层面的超限战，把在中共国应用成功的方案同样运用到西方民主国家。这场没有硝烟的第三次世界大战已经打响，一场场战役在各个维度、各个层面进行。
+英国反对派保守党支持允许英国高等法院(而不是国际机构)对一个国家是否犯下种族灭绝罪做出裁决，该修正案将赋予国会议员取消英国与任何被发现已达成贸易协议的国家的权力。然而政府以保守党议员鲍勃·尼尔的名义提出的妥协提议，并没有将终止贸易协议的权力交给议会，而是允许下议院外交事务委员会考虑种族灭绝的证据，并提出不具约束力的建议。如果尼尔的妥协提案成功，英国法院不会介入，种族灭绝修正案将被废除。
 
-美国内科医生和外科医生协会(AAPS)前主席Lee Merritt博士近期在采访中提到，mRNA“疫苗”是一个完美的二元武器，配合上ADE（抗体依赖的增强作用），让接种“疫苗”后的宿主再次接触到病原体后如同二次中毒般死亡。现在“疫苗”已经开始在全球广泛接种，投毒的第一步已经启动，进展顺利，接下来就是要制造或者筛选病原体。基于什么样的标准来开展下一步工作，这时候各国家及各人种的DNA信息和健康数据就显得尤为关键。中共以盗取、黑客、投资收购等方式迅速积累大量的数据并加以分析，找到各个种族对于同样或不同变异病原体感染的差异，进而不断迭代更新病原体，最终实现运用不同的病原体，实现差异化打击特定种族，甚至打击具体个体的目的。这是真正完美的基因武器。那时“疫苗”就从解药变成真正的“人尸丸”。正如闫丽梦博士所言，留给人类的时间真的不多了。
+在一封给约翰逊的信中，世界维吾尔代表大会主席多力坤·伊萨说，他对这个替代提议感到“震惊又震惊”。一名政府发言人表示，部长们都“对新疆侵犯人权现象表示严重关切”，并理解“在这个问题上的情绪强度”。
 
-**原文翻译：**
+《英国独立报》2月8日报道，英国提交的一份正式法律意见书称，针对中共政府对新疆维吾尔族穆斯林少数民族进行种族灭绝的指控“非常可信”。
 
-# **报告：中共国正在窃取美国公民的DNA信息**
+这份由全球法律行动网络(GLAN)、世界维吾尔人大会和维吾尔人人权项目委托撰写的法律意见书——首先由BBC报道——描述了这个少数民族是如何遭受“奴役、酷刑、强奸、强制绝育和迫害”的。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/qhN94m5YCM8BL/images/0e6d67e2-028d-4897-b750-eb816ee1a4e1.jpg?asset_id=ffc79ef7-d88a-4a09-bd78-ca366ea5d270&amp;img_etag=%22d40a215373aaebd884f384a565690002%22&amp;size=2560)](https://spark.adobe.com/page/qhN94m5YCM8BL/images/0e6d67e2-028d-4897-b750-eb816ee1a4e1.jpg?asset_id=ffc79ef7-d88a-4a09-bd78-ca366ea5d270&amp;img_etag=%22d40a215373aaebd884f384a565690002%22&amp;size=1024)
+意见书中指出，“基于我们所看到的证据，该意见得出的结论是，这是一个非常可信的案件，中共政府对新疆维吾尔自治区维吾尔人的行为构成了反人类罪和种族灭绝罪。”
 
-插图：Jordan Speer
+这份意见书花了6个月时间才出炉，其中包含了包括幸存者和政府文件在内的大量证据。英国法官可能会在未来任何涉及在华维族人待遇的案件中使用这份意见书。
 
-根据国家情报总监的一份新报告显示，中共正在窃取美国公民的DNA数据和医疗数据。
+GLAN法律官员西沃恩•艾伦(Siobhan Allen)表示:“这份具有开创性的法律意见书得出的结论是，发生在新疆维吾尔自治区的暴行的严重程度和系统性，足以构成反人类罪和种族灭绝罪”，“政府和企业不能再袖手旁观、不采取行动，确保他们不会串通一气，让这些可怕的罪行继续下去。”
 
-这份来自反间谍和安全中心局长的报告说，中共国非法利用美国医疗记录的数据，以获得“美国大部分人口”的DNA识别模式，也就是PII。报道称，中共国可以利用这些信息来针对美国人。
+世界维吾尔代表大会英国分会主任拉希马·马赫穆特（Rahima Mahmut）认为该意见书对维吾尔人来说是一个“里程碑式的时刻”。维族人权项目(Uighur Human Rights Project)的彼得•欧文(Peter Irwin)补充称，“这一发现使得负责任的政府不可能继续将中共视为国际社会的正常成员。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/qhN94m5YCM8BL/images/1883cc95-a9d0-47a0-9b5f-2902bdc09264.jpg?asset_id=1a54d2ca-c9a6-4d03-a812-5ff1d7a23611&amp;img_etag=%22fc3c592972a33cec51af4eb07f5d85ee%22&amp;size=2560)](https://spark.adobe.com/page/qhN94m5YCM8BL/images/1883cc95-a9d0-47a0-9b5f-2902bdc09264.jpg?asset_id=1a54d2ca-c9a6-4d03-a812-5ff1d7a23611&amp;img_etag=%22fc3c592972a33cec51af4eb07f5d85ee%22&amp;size=1024)
+今年5月，一个独立法庭将在英国伦敦市中心举行公开听证会，以确定中共政府侵犯维吾尔族穆斯林人权行为是否构成种族灭绝，法庭的研究人员已经筛选了1500份文件和证据。
 
-23莫方DNA检测试剂盒。摄影师：Justin Chin/Bloomberg。Justin Chin/Bloomberg
+世界各国政府——连同维族活动人士和人权组织——指控中共关押了多达100万维族人，并在中共的全球供应链中使用他们的强迫劳动。他们还指责中共强制绝育、洗脑和毁坏清真寺。
 
-“被窃取的PII、个人健康信息和从国外收集的大型基因组数据集的结合，为中共国提供了巨大的机会，可以精确地针对外国政府、私营行业或其他部门的个人进行潜在的监视、操纵或勒索，”报告中写道，“这种数据集不仅可以帮助中共国在国外招募个人，还可以帮助中共国对外国异见人士采取行动。”
+英国BBC新闻公开报道中共对维吾尔人的镇压暴行，可以理解在一定程度上英国对待中共“种族灭绝”政策的转向。
 
-北京当局以多种方式提取美国公民的个人数据，包括对联邦政府进行网络攻击。2014年，中共国对白宫的人事管理办公室进行了大规模的黑客攻击，获得了大约2100万美国人的个人信息。部分被盗数据包括美国政府人员的安全审查信息。
+中共是英国五大贸易伙伴之一，2019年1月至8月，中共企业对英国的投资约为60亿英镑。如果修正案获得通过，将对英国的外来投资造成重大影响。英国首相鲍里斯·约翰逊与中共勾兑试图保护英国经济不受影响，但是面对种族灭绝的反人类罪行，任何勾兑妥协都是站在维族人的血泪和生命上谋求利益，毫无疑问将会遭所有人唾弃，被钉在历史的耻辱柱上。
 
-据《华盛顿自由灯塔报》12月报道，美国政府和与中共国有关联的基因检测公司合作应对疫情，有可能向这个共产主义国家公开大量的美国医疗数据。
+各国政府、世界人权组织和维吾尔维权人士都在持续关注英国对“种族灭绝”认定的进一步发展。
 
-🔗[原文链接](https://freebeacon.com/national-security/report-china-is-stealing-dna-of-american-citizens/)
+参考链接：
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+[https://www.independent.co.uk/news/world/asia/china-uighhur-muslims-genocide-legal-opinion-b1799057.html](https://www.independent.co.uk/news/world/asia/china-uighhur-muslims-genocide-legal-opinion-b1799057.html)
 
+[https://www.politico.eu/article/uighur-campaign-anger-as-uk-boris-johnson-bids-to-halt-genocide-law-rebellion/?utm\_source=RSS\_Feed&utm\_medium=RSS&utm\_campaign=RSS\_Syndication](https://www.politico.eu/article/uighur-campaign-anger-as-uk-boris-johnson-bids-to-halt-genocide-law-rebellion/?utm_source=RSS_Feed&amp;utm_medium=RSS&amp;utm_campaign=RSS_Syndication)
 
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/qhN94m5YCM8BL/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/qhN94m5YCM8BL/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-0
++1

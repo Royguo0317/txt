@@ -1,45 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/01/15 围炉夜话第十二期
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/892457/)
+## 中共国教授骗取美国国立卫生研究院200万美元的拨款
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/892575/)
 
-*整理：1984、桂花酒 | 素材制作：健身健心、Bobby | 校对/审核：海阔天空 | Page：Daoiii*
+*新闻来源：The National Pulse《国家脉动》| 作者：NATALIE WINTERS| 发布时间：2021年2月4日*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/2GTxI3NiVjPMJ/images/7ba67df6-b51e-4600-9a48-cbead43bb264.jpg?asset_id=95bc51f2-4081-4b1a-8483-3ddef1351c90&amp;img_etag=%2264c9fc02d0b3053fcd6564042edd2667%22&amp;size=2560)](https://spark.adobe.com/page/2GTxI3NiVjPMJ/images/7ba67df6-b51e-4600-9a48-cbead43bb264.jpg?asset_id=95bc51f2-4081-4b1a-8483-3ddef1351c90&amp;img_etag=%2264c9fc02d0b3053fcd6564042edd2667%22&amp;size=1024)
+*翻译/简评：新街口 |校对：SilverSpurs7 |审核：万人往|Page：小雨*
 
-# **独裁者最害怕什么？**
+[!\[\]()!\[\](https://spark.adobe.com/page/3waB1DSnW4ytq/images/bd0eea0d-d9b4-4d98-b1d8-49a96d8e2ca8.jpg?asset_id=3fdd8d71-4105-480e-af41-21037a8dbb30&amp;img_etag=%221a855b2288f970ff27fe3bea793c9562%22&amp;size=2560)](https://spark.adobe.com/page/3waB1DSnW4ytq/images/bd0eea0d-d9b4-4d98-b1d8-49a96d8e2ca8.jpg?asset_id=3fdd8d71-4105-480e-af41-21037a8dbb30&amp;img_etag=%221a855b2288f970ff27fe3bea793c9562%22&amp;size=1024)
 
-[G-TV直播视频链接](https://gtv.org/video/id=5ff05f18f579a75e0bc11642)
+**简评：**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/2GTxI3NiVjPMJ/images/a1d10b93-2a53-412a-92d6-96904887957c.png?asset_id=b5f299e6-2d79-4aff-ad09-17027081b6a2&amp;img_etag=%228db44c9bf740860a2681ac0129caa53f%22&amp;size=2560)](https://spark.adobe.com/page/2GTxI3NiVjPMJ/images/a1d10b93-2a53-412a-92d6-96904887957c.png?asset_id=b5f299e6-2d79-4aff-ad09-17027081b6a2&amp;img_etag=%228db44c9bf740860a2681ac0129caa53f%22&amp;size=1024)
+据美国之音1月30日报道，从2019年中期以来，在“中共国行动计划”的指导下，联邦检察官已提起了十多起刑事案件，指控学者在接受中共国政府资助方面撒谎，或指控来自中共国的访问研究人员瞒报自己与中共国军队的关系，其中一些嫌疑人已经认罪。
 
-本期我们接上期中共借仇恨美国转移矛盾，更进一步谈谈专制国家的独裁者们，他们最怕什么。
+本文中报道的这位杨林科学家，无疑是“中共国行动计划”的又一个成果。杨林为了自己的经济利益，隐瞒自己与中共的关系，来骗取美国政府机构的科研拨款；另一方面在中共国创立企业，参加中共的千人计划，把美国政府投资项目的科研成果偷偷输送到中共国，换取自身的利益，帮助中共偷窃美国纳税人的投资成果。
 
-从斯大林死因不明到齐奥塞斯库夫妇被百发子弹射杀，从卡扎菲被施虐到萨达姆钻地洞，从毛泽东被做成腊肉到习近平的将来，独裁者的下场早已注定。
+这一次的杨林案件，再一次证明了中共的“千人计划”的实质就是以引进人才的名义偷窃美国的技术和科研成果。中共和某些中共体制培养出来的科学家既不遵循西方文明社会所遵循的学术诚信规则，也不遵守西方社会的法规秩序，以身试法、虚假陈述、隐瞒获利，必将付出惨重代价。
 
-独裁者也有例外，智利的皮诺切特经济上全面私有化、市场化，政治上由独裁和平过渡到民主，人民生活和自由远高于中共国百姓，他活到91岁得以善终。
+最后，通过司法部对杨林的起诉，我们看到美国大学、科研机构和司法部门已经开始共同应对中共在科研领域对美国的渗透和偷窃行为。杨林的案子给每一位在美国的、正在或者准备和中共进行勾兑的科学家都提出了严重的警示。希望他们能够遵守美国的法律和学术诚信规则，不要惟利是图、见利忘义，把自己的知识、技术、智慧和灵魂出卖给中共。
 
-独裁者集权利于一身，无法无天，不受任何约束，却为何要害怕？就像捷克摇滚乐《百分之百》所说，他们害怕的东西很多。但他们最害怕的是失去权力和权威，害怕真相，害怕人民不怕他们。
+**原文翻译：**
 
-习总加速师,究竟是要做习奥赛斯库，还是习诺切特？
+# **中共国教授拿了美国国立卫生研究院几百万美元，却没有披露与中共的关系**
 
-每周六GTV-UK-2号台定时直播
+[!\[\]()!\[\](https://spark.adobe.com/page/3waB1DSnW4ytq/images/6a83ad62-e1de-4583-924c-265c720f1407.png?asset_id=28ee6d67-71b1-40c3-82cf-816a6459f91a&amp;img_etag=%22c4ec1a9d21f8cb640c8f46d9ddacb90e%22&amp;size=2560)](https://spark.adobe.com/page/3waB1DSnW4ytq/images/6a83ad62-e1de-4583-924c-265c720f1407.png?asset_id=28ee6d67-71b1-40c3-82cf-816a6459f91a&amp;img_etag=%22c4ec1a9d21f8cb640c8f46d9ddacb90e%22&amp;size=1024)
 
-- 英国时间：12.00-14.00
-- 美东时间：7.00-9.00
-- 盘古时间：20.00-22.00
+**佛罗里达大学教授兼研究员杨林因涉嫌隐瞒与中共的财务往来，从美国国立卫生研究院（National Institutes of Health）骗取了近200万美元的资金拨款而被起诉。**
 
+根据司法部，对杨的指控包括六项电汇欺诈和四项向美国机构作虚假陈述的指控：
 
-欢迎关注英国伦敦喜庄园艺术组《缪斯殿堂》节目
+*杨从美国国立卫生研究院（NIH）获得了175万美元的拨款，用于开发和传播用于肌肉的成像信息学工具，称为“MuscleMiner”（肌肉矿工）。在2014年9月至2019年7月期间，杨担任佛罗里达大学NIH拨款项目的首席研究员。作为首席研究员，杨负责按照相应的联邦法律和机构政策合规的引导使用和管理资助款。除此之外，杨被要求披露其外国研究支持和财务利益冲突，包括其在外国公司的所有权或权益。*
 
-- 请订阅 英国伦敦喜庄园GTV-UK-1号台
-- 请订阅 英国伦敦喜庄园GTV-UK-2号台
-- 请订阅 英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台
+*在同一时期，杨林2016年在中共国建立了一家名为“Deep Informatics”(深度信息学）的公司。起诉书还指称，杨林将其产品推广到中共国是在数百万美元的美国政府资助下进行的多年研究的结果，从而促进了其在中共国的业务发展。同时，杨与位于中国西安的西北工业大学一起申请并被接受了中共国的千人计划（TTP）。TTP是中共政府制定的一项人才计划，旨在鼓励外国机构（例如美国大学）转让原创理念、技术和知识产权。*
+
+*为了维持他在佛罗里达大学的工作并继续获得美国国立卫生院的资助，起诉书称杨有意隐瞒与他的中共国业务、他参与的中共国政府人才计划、以及与中共国研究机构有联系的利益冲突和其他支持。杨多次向NIH提交披露，其中包含有关与外国政府和公司的隶属关系和研究工作的虚假陈述和重大遗漏。此外，在2019年1月，佛罗里达大学工程学院要求所有教职员工以书面形式提供有关在中共国和另外两个国家与外国实体的活动的最新披露。起诉书称，杨向佛罗里达大学提供了书面答复，虚假地表明他没有与中共国的任何企业、实体或大学有任何关系。*
+
+起诉书由川普政府领导的联邦大陪审团于2020年12月15日送达，但今天被解封。
+
+佛罗里达北区美国律师劳伦斯•基夫（Lawrence Keefe）说：“资助杨研究的纳税人钱款，旨在为了改善美国公民的健康和福祉。但我们的起诉书称，杨从事故意欺骗行为，以便他可以进一步推进中共政府的研究目标，并提高自己的商业利益。”
+
+[🔗原文链接](https://thenationalpulse.com/breaking/chinese-prof-indicted-for-government-ties/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/2GTxI3NiVjPMJ/images/84a37bd5-755a-4621-80b0-753567e84361.jpg?asset_id=08f4e8ed-a0ff-4dd7-a72c-281e72eea46d&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=2560)](https://spark.adobe.com/page/2GTxI3NiVjPMJ/images/84a37bd5-755a-4621-80b0-753567e84361.jpg?asset_id=08f4e8ed-a0ff-4dd7-a72c-281e72eea46d&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/3waB1DSnW4ytq/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/3waB1DSnW4ytq/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

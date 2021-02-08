@@ -1,17 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 科兴毒疫苗尚未获批，中共就向尼泊尔施压要求使用
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/892769/)
+## 【墙内热搜】2021年2月8日 墙国时事快讯
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/892808/)
 
-- 审核 编辑：Victor Torres
-- 作者 发稿：神奇四侠
+作者：文笑
 
-![]()
-中共外交部部长王毅在上周五（2月5日）与尼泊尔总理普拉德普·库马尔·贾瓦利通了电话，在电话里王毅要求尼泊尔要先接受科兴毒疫苗，至于毒疫苗的数据将在稍后寄出。
-尼泊尔官员证实中国驻加德满都大使馆也发信给尼泊尔政府，表示将在晚些时候提供必要文件，但尼泊尔必须立刻接种该疫苗。
-如果尼泊尔不使用该毒疫苗，中共威胁尼泊尔将等待更长的时间才能获得疫苗。
+1，热闹的石家庄回来了？CCP暂时对石家庄解禁了。视频拍出了车水马龙的感觉，真的不知道，有多少病毒会穿梭其中。
 
-参考链接：[https://www.timesnownews.com/international/article/leaked-document-reveals-china-pressurized-nepal-to-take-sinovac-vaccine-no-permission-given-by-govt-for-use/717222](https://www.timesnownews.com/international/article/leaked-document-reveals-china-pressurized-nepal-to-take-sinovac-vaccine-no-permission-given-by-govt-for-use/717222)
-![]()![](https://gnews.org/wp-content/uploads/2021/02/00110011.png)
-0
+![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1200-【墙内热搜】2021年2月8日-墙国时事快讯-1.jpg)
+
+2，中共国向53个发展中国家援助疫苗。看来，厉害国又要大撒币了，在家割大小韭菜，出去充黑社会老大。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1200-【墙内热搜】2021年2月8日-墙国时事快讯-2.jpg)
+
+3，拜登谈儿子吸毒史在国内上了热搜，最有意思的是被大外宣划重点的一句话：”我敢打赌，没有哪个美国家庭中没人有毒品或酒精成瘾问题。“意思是，美国家家有一个瘾君子？为了洗白，不惜拉低国家素质？不明白CCP借这条热搜要表达什么。战友们细品。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1200-【墙内热搜】2021年2月8日-墙国时事快讯-3.jpg)
+
+4，澳大利亚加入G7建议被推迟，因为G7拒绝反中共成员国？？？
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1200-【墙内热搜】2021年2月8日-墙国时事快讯-4.jpg)
+
+5，最近，国内很多水果店检测出车厘子核酸阳性，这进口车厘子得罪谁了？没两天，浙江疾控中心又出来说，核酸阳性车厘子不一定具有传染性，让大众放心购买这类进口水果。这是闹哪样？自己打自己的脸么？这还让不让人吃水果了？
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1200-【墙内热搜】2021年2月8日-墙国时事快讯-5.jpg)
+
+6，立讯精密的3300亿白马股 ，10分钟暴跌7%，不到一个月蒸发1200亿，CCP真是好手段，割韭菜肆无忌惮。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1200-【墙内热搜】2021年2月8日-墙国时事快讯-6.jpg)
+
+7，北京发放5万个数字人民币红包，看来习包子推进数字化货币急不可耐啊。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1200-【墙内热搜】2021年2月8日-墙国时事快讯-7.jpg)
+8，这是一条想让人爆粗口说放屁的新闻。农业部居然声称猪肉价格连续下跌两个月，还将进入下行通道。事实上，最近一个月，猪肉价格持续上涨，而且过年期间会更贵。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1200-【墙内热搜】2021年2月8日-墙国时事快讯-8.jpg)
+
+9，唯品会被罚300万元。战友们有没有发现，最近墙内很多做的不错的平台都官司缠身，不停传出这个被罚款，那个被起诉的新闻。也许是小韭菜已经没什么可割的了，CCP把手伸向大企业的口袋。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1200-【墙内热搜】2021年2月8日-墙国时事快讯-9.jpg)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
++1
