@@ -1,167 +1,99 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “他们的目标是摧毁所有人”：维吾尔集中营的被拘人员指控遭系统性强奸（三）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/896013/)
+## 红魔的俘虏：昂山素季
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/894801/)
 
-五月花写作组 ｜ 翻译：虹陵 ｜ 校对：jiasen ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/02/新疆迫害3.jpg)**‘Their goal is to destroy everyone’: Uighur camp detainees allege systematic rape**
-- By Matthew Hill, David Campanale and Joel Gunter
-- BBC News
-- 作者：马修·希尔，戴维·坎帕纳尔，乔尔·冈特
-- 英国广播公司
+作者：滴水穿石
 
 
-* * *
+> **摘要：**昂山素季之于缅甸，曾有如曼德拉之于南非。她抛家弃子从西方返回缅甸，被民众寄予厚望，一度成为在缅甸反抗暴政与推进民主化的政治领袖，”缅甸的女儿”。1991年昂山素季被授予诺贝尔和平奖而集百誉於一身。然而，2017年发生了缅甸军方对罗兴亚穆斯林回教袭击灭村事件。2019年在海牙国际法庭上，面对上萬人被屠殺的事实，昂山素季竟然公开为缅甸军方的种族灭绝罪行作辩护，随即遭到国际社会的唾弃。2020大选中，昂山素季贪恋权力，跪舔中共，暗中操纵选举，令其顺利当选“国务資政”，继续“垂帘听政” 。今年二月缅甸军方却在中共的支持下，再次发动政变，把昂山素季赶下了台。
+> 
+> 从“人权斗士”到“种族屠杀的辩护者“，再沦为中共的人质“红魔的俘虏” ，昂山素季经历了怎样的人生？笔者试以缅甸的历史大事件为线索，看昂山素季本人与其家族对缅甸的影响。
 
-### 往期链接：
 
-[“他们的目标是摧毁所有人”：维吾尔集中营的被拘人员指控遭受系统性强奸（一）](https://gnews.org/zh-hans/881745/)
 
-[“他们的目标是摧毁所有人”：维吾尔集中营的被拘人员指控遭受系统性强奸（二）](https://gnews.org/zh-hans/892883/)
 
-* * *
+缅甸原本是英国的殖民地缅甸，为了脱离英国，转向国民政府与日本寻求援助，在1940年七月，英国首相丘吉尔做了一件不光彩的事情，与日本切断中国西南交通，中华民国在缅甸的远东军。因此从缅甸入境的补给断绝，中华民国抗战面临弹尽粮绝。
 
-In the camp in Kunes, Ziawudun’s days drifted into weeks and then months. The detainees’ hair was cut, they went to class, they underwent unexplained medical tests, took pills, and were forcibly injected every 15 days with a “vaccine” that brought on nausea and numbness.
+昂山素季的父亲昂山将军在1944年九月被日本天皇授予日升勋章。他让手下军队士兵給日本軍队當帶路党一同对中华民国十万远征军将士围剿，清除后方运输人员和伤员。这是昂山家族最不光采的一个历史污点。
 
-在库纳斯的营地中，齐亚乌敦（Ziawudun）被拘禁的日子持续了数周甚至数月。被拘禁者的头发被剪掉，被破上课，接受不明医学检查，被迫吃药，每15天被强行注射一种“疫苗”，会使人感到恶心和麻木。
+二战结束后，缅甸独立，昂山的投机努力，美国同盟国在亚太歼灭了日军，缅甸的人民不知道真相，还以为昴山将军击败了日本而缅甸独立，他成为缅甸民族英雄。正是这一个与日本帝国勾結被其他的派别勢力抓住把柄，面对内部权利斗争中，1947年7月昂山被刺杀，在当时的缅甸人民的眼中，算是緬甸民族英雄英年早逝。
 
-Women were forcibly fitted with IUDs or sterilised, Ziawudun said, including a woman who was just about 20 years old. (“We begged them on her behalf,” she said.) Forced sterilisation of Uighurs has been widespread in Xinjiang, according to a recent investigation by the Associated Press. The Chinese government told the BBC the allegations were “completely unfounded”.
+缅甸有个政治常规，自从第二次世界大战起，缅甸军人对国家的影响力巨大，军人在国家的每一个历史事件担当更多負面影响，武装冲突局势在这个国家如家常便饭。也影响缅甸对外关系及发展走向。
 
-齐亚乌敦说，妇女被强行插入宫内节育器（IUDs）或绝育，其中包括一名只有20岁左右的妇女。 （“我们替她向他们求情” 她说。）根据美联社最近的调查，在新疆，维吾尔人被强迫绝育的情况很普遍。中共国政府告诉英国广播公司，这些指控“完全没有根据”。
+昂山素季（Aung San Suu Kyi）出生在1945年6月。两岁时她就失去了父亲，所以她的母亲带着她离开缅甸，1960年母女去了印度，她的母亲杜钦季被任命为缅甸政府驻德里大使。之后，她在19岁的时候到英国牛津大学求学，认识了她的丈夫迈克尔阿里，之后结婚成家，昂山素季与丈夫两个孩子在英国享受天伦之乐的生活。
 
-As well as the medical interventions, detainees in Ziawudun’s camp spent hours singing patriotic Chinese songs and watching patriotic TV programmes about Chinese President Xi Jinping, she said.
+1988年8月，因为她母亲突然生病中风，所以她回到缅甸意外地开始了她的政治生涯。那一个月，缅甸百姓不堪忍受政府极权统治，全国发生了一场規模不小的民主运动，而且贏得民心所向。
 
-她说，除了医疗干预外，在集中营的被拘禁者还被迫花很多时间演唱爱国歌曲，并观看有关中共国国家主席习近平的爱国电视节目。
+她在英國接受西方教育与生活，了解美国民权领袖马丁·路德·金和印度英雄甘地的非暴力运动的启发，她发表演讲并组织集会，在全国各地游行，主张国家和平和民主改革，并建立自己的党派民主同盟。但奈溫将军用军队力量镇压 了反抗的学生与民众。
 
-“You forget to think about life outside the camp. I don’t know if they brainwashed us or if it was the side effect of the injections and pills, but you can’t think of anything beyond wishing you had a full stomach. The food deprivation is so severe.”
+1989年七月，缅甸军政府以她＂危害国家＂罪名开始六年军队政府软禁。
 
-“你开始遗忘集中营以外的生活。我不知道是他们在给我们洗脑，还是注射剂和药丸产生了副作用。你除了希望自己可以填饱肚子外，什么都不想。食物匮乏非常的严重。”
+1990年5月27号民主联盟在大选中压倒性获胜，但军政府拒绝选举结果。
 
-Detainees had food withheld for infractions such as failing to accurately memorise passages from books about Xi Jinping, according to a former camp guard who spoke to the BBC via video link from a country outside China.
+因为昂山素季为緬甸民主作出的奉献，她於1991年获得诺贝尔和平奖。
 
-一名前集中营的警卫通过来自境外国家的视频向BBC揭露，被拘禁者因违规而被扣留食物，例如未能准确记住有关习近平的书籍中的段落。
+1991年，昂山素季第一次参加选举，患有审美疲劳的缅甸人民眼睛睜一亮，他们联想到半世纪之前、他们的民族英雄昂山将军！昂山素季是他的女儿！人民的一个习惯本能反应，在他们经过半个世纪的军队铁权高要管控之下，人民需要换一个国家领袖的形象了⋯⋯
 
-“Once we were taking the people arrested into the concentration camp, and I saw everyone being forced to memorise those books. They sit for hours trying to memorise the text, everyone had a book in their hands,” he said.
+而且昂山素季来自英国、接受西方的教育必将能给缅甸带来真正的民主，所以大部分人民把票投给了她。可是缅甸人民空欢喜一场，因为执政权为军方掌握。
 
-他说：“一旦我们把被捕的人带到集中营，每个人都被强迫背诵这些书里的内容。他们会坐上好几个小时，去背诵书中的内容，每个人手里都有一本书。”
+她在监狱里长久的坐牢，活生生地炼狱，佛教信仰是昂山素姬的精神支柱，她克服恐惧威胁，用仁慈的方式进行抗争，所以她如同印度的甘地，成了緬甸的民族英雄。
 
-Those who failed tests were forced to wear three different colours of clothing based on whether they had failed one, two, or three times, he said, and subjected to different levels of punishment accordingly, including food deprivation and beatings.
+终于2015年她出狱了，如花似玉的她已熬成了婆，因为很多国内外时事证据已经发生变化的原因，因为军方开明派开窍觉悟，良心发现不能再让国家这样继续穷困潦倒与内乱不断，更想学习中国的经济发展模式，把国家的大门打开，招外资入场援助缅甸经济建设。
 
-那些考试不及格的人会被迫穿上三种不同颜色的衣服，视一次，两次或三次不及格而定。此外，还会受到不同程度的惩罚，包括扣减食物和殴打。
+但是，西方国家己不相信缅甸的军权政府，所以他们想到了一个折中的办法就把昂山素季放出来，让她走出来通过一种体面的民主大使形象，给西方国家信号，令西方取消对缅甸的制裁。
 
-“I entered those camps. I took detainees into those camps,” he said. “I saw those sick, miserable people. They definitely experienced various types of torture. I am sure about that.”
+更何况她是昂山将军的女儿，父亲昂山曾是缅甸的＂民族英雄＂。
 
-“我进入了那些集中营。我把被拘禁者带进了那些集中营。我看到了那些生了病的悲惨的人。他们绝对经历了各种形式的酷刑。我非常肯定。”
+然而，狡詐的军方政府交权前，进行修改宪法，＂限定有子女为外国国籍的人不能成为政府国家元首。军队内部绝对自治，即政府不能指挥军队＂。这一条就是给缅甸长期的政局动荡，埋下了伏笔。
 
-![pastedGraphic.png]()![pastedGraphic.png](https://gnews.org/wp-content/uploads/2021/02/116769413_gettyimages-182584636.jpg)Analysts say the policy against the Uighurs flows directly from President Xi Jinping 分析人士说，针对维吾尔人的政策直接来自习近平主席的指示
+昂山素季毕竟是女性，由于优柔寡断使她多次错过修改宪法将军队归属政府管制，无果而终，半世纪的军政府管制垄断缅甸的所有资源。缅甸灾难不断，向民主转型没有完全成功。国家宪法没有得到完善，体制架构不建全，关键的历史发展机遇卻在各派势力的武斗争夺中一次又一次的错失良机，当她开始与共产国家中共国接触的时候，她的国家就踏上不归路。
+![Image result for 昂山素季 国际法庭]()![Image result for 昂山素季 国际法庭](https://m.dw.com/image/51619302_401.jpg)为获得军方在政治上的支持，2019年昂山素季在海牙国际法庭上为她缅甸軍方的种族灭绝罪行辩护。
+2017年缅甸军方加大对罗兴亚穆斯林回教袭击灭村，上萬人被屠殺，军队对这个原住民进行驱逐追杀，昂山素季表現支持态度。由于屠杀和焚烧村庄，导致100多万人穆斯林少数民族的70万人逃往邻国孟加拉国，这就是种族灭绝行为。2019年在国际法庭上，时任缅甸外交部长的昂山素季，竟然公开为缅甸军方的种族灭绝罪行作辩护，认为暴力属于內部冲突，支持軍方使用武力。她对罗新雅人的藐视态度使西方失去了对他的信任。她更为她支持軍方的种族灭绝罪行辩护，为获得军方在政治上的支持。她与军方勢力合作扮演了丑恶的角色，一直到今天，一百万的罗兴亚人一直没有得到缅甸的合法身份而流离失所。
 
-It was not possible to independently verify the guard’s testimony but he provided documents that appeared to corroborate a period of employment at a known camp. He agreed to speak on condition of anonymity.
+罗兴亚种族伤害危机事件爆发后，东西方社会的国家均谴责昂山素季，在批评声不间断中，有的甚至提议取消她的诺贝尔和平奖。
 
-我们无法独立核实警卫的证词，但他提供的文件似乎证实了他曾在一个周知的集中营工作过一段时间。他同意在不透露姓名的情况下发声。
+早在七十年代中共国已经蚕食緬甸的雄心计划。出资在緬甸修建电力，水利，公路，铁路，矿物林业进行＂投资＂。說白了就是给他们几大家族借帮助缅甸的经济建设之名抢夺资源，且以转移从国内搜刮民脂民膏转移到海外，在緬甸建立的军事基地，通过邦助缅甸修铁路直达印度洋口岸，拋开长途经过马六甲海峡直冲印度洋港口。这是中共必操控缅甸政局暗中归属為自己的植民地的重要动机之一。中共侵吞缅甸的计划已经谋计很久，近乎成功。
 
-The guard said he did not know anything about rape in the cell areas. Asked if the camp guards used electrocution, he said: “Yes. They do. They use those electrocuting instruments.” After being tortured, detainees were forced to make confessions to a variety of perceived offences, according to the guard. “I have those confessions in my heart,” he said.
+![Image result for 昂山素季丈夫](https://www.rfa.org/mandarin/pinglun/heqinglian/hql-02032021114202.html/@@images/image)昂山素季与习近平的中共国签署一路帶一路各項经济合作项目，共建中缅命运共同体。（**Aung San Suu Kyi ）**图片来源：自由亚洲电台
 
-警卫说，他对牢房内的强奸一无所知。当被问及营中警卫是否使用过电刑时，他说：“是的，他们使用过电刑具。警卫说，在遭受酷刑折磨后，被拘者被迫对各种犯罪行为认罪。他说：“我还记得他们说过的认罪的话。”
+昂山素季自执政起, 与中国实施了经济往来。2020年1月，她与中共国签署各項经济合作项目，决定共建构建中缅命运共同体，一路帶一路，开启双边关系新时代，新的经济合作和部署。她所谓的＂合作＂无非就是为2020年十月份的大选做个铺垫，为的是寻求中共的暗中支持。
 
-President Xi looms large over the camps. His image and slogans adorn the walls; he is a focus of the programme of “re-education”. Xi is the overall architect of the policy against the Uighurs, said Charles Parton, a former British diplomat in China and now senior associate fellow at the Royal United Services Institute.
+所有的政客的动机外表光鮮华丽，但背后暗中看不见的灰色交易比比皆是。这就是为什么到了中共国访问的原因，中共的暗中支持以牺牲缅甸的某些利益。2020年11月昂山素季的民主联盟如愿以偿羸得了大选。
 
-习近平主席的形象在营地可谓随处可见。他的照片和口号装饰在墙上。他是“再教育”项目的中心。习近平是针对维吾尔人政策指定的总架构师。查尔斯·帕顿（Charles Parton），曾任驻中共国英国外交官，现为皇家联合服务学院的高级研究员说道。
+然而，或因受美国大选的影响，或者说中共国超限战战略的需要。2021年1月18日中共国外交部长王毅邀請与会见了缅甸国防军总司令令敏昂来，缅甸军方连滚帶爬，一箭而拨飞到中共国，双方达成共产联盟兄弟般的＂共识＂！
 
-“It is very centralised and it goes to the very top,” Parton said. “There is absolutely no doubt whatsoever that this is Xi Jinping’s policy.”
+当国防军司令回到缅甸，很快在2月1日缅甸军队发生军事政变，逮捕包括全国民盟总书记昂山素季在内的政府主要领导人，并宣布缅甸进入紧急状态一年。
 
-“这是非常集中化的政策制定，而且直通最高层。” 帕顿说，“毫无疑问，这是习近平的政策。”
+緬甸的军方政治生态与民主书生派前后不断间断与中共的钩兑，让多灾多难的南亚重地緬甸沦为中共的人质与沦陷国，并向西方文明国家要挟，看你们对这次军方政变做如何的评价与选择？把西方国家对缅甸的政局与判断。变得扑朔迷离，陷入难以抉择站台的境地。
 
-It was unlikely that Xi or other top party officials would have directed or authorised rape or torture, Parton said, but they would “certainly be aware of it”.
+缅甸局势将影响中共对东南亚国家的扩张霸权行动行进中，这是一个典型的计划己久的超限战。由于东南亚的地理位置的重要性，必是正义联盟与邪恶联盟的争战之地。
 
-帕顿说，习近平或其他党政高层不太可能指示或授权强奸或酷刑，但他们“肯定会意识到”。
+昂山素季的执政党与军方均把身家押宝给共产联盟钩兑的代价：一同终结缅甸。
 
-“I think they prefer at the top just to turn a blind eye. The line has gone out to implement this policy with great sternness, and that is what is happening.” That left “no real constraints”, he said. “I just don’t see what the perpetrators of these acts would have to hold them back.”
+昂山素季：一个曾经的诺贝尔奖民主圣者，转身为贪恋权力而沦为”红魔的俘虏”。
 
-“我认为他们更愿意身居高层却视而不见。严厉地实施这一政策已经越过人性底线了，这就是正在发生的事情。实施这一政策没有任何实际的限制。”他说：“我看不到有任何的行动可以阻止这些肇事者。”
+谁来拯救魔鬼統治下的世界？谁来拯救共产联盟控制下的缅甸？
 
-According to Ziawudun’s account, the perpetrators did not hold back.
+唯有全球正道主义正义联盟！
 
-根据齐亚乌敦的说法，罪犯并没有罢手。
 
-“They don’t only rape but also bite all over your body, you don’t know if they are human or animal,” she said, pressing a tissue to her eyes to stop her tears and pausing for a long time to collect herself.
 
-“他们不仅强奸，还咬你的全身，你都不知道他们到底是人还是动物。”她用纸巾止住眼泪，停顿了很久让自己平静下来 。
+**2021年2月5日 于美国**
 
-“They didn’t spare any part of the body, they bit everywhere leaving horrible marks. It was disgusting to look at.”
 
-“他们不放过你身体的任何一个部位，他们咬每一个地方，留下可怕的印记。看着就令人作呕。”
 
-“I’ve experienced that three times. And it is not just one person who torments you, not just one predator. Each time they were two or three men.”
+【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-“我经历过三次。并且不是只有一个掠食者在折磨你，每次都是两个或三个人。”
+**欢迎战友加入旧金山金喜准农场**
 
-Later, a woman who slept near Ziawudun in the cell, who said she was detained for giving birth to too many children, disappeared for three days and when she returned her body was covered with the same marks, Ziawudun said.
+[旧金山金喜准农场 GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
 
-后来，牢房里一名睡在齐亚乌敦附近的妇女，因为生了太多的孩子而被拘禁。她失踪了三天，当她返回时，她的身上布满了相同的印记。
+[旧金山金喜准农场 Discord](https://discord.gg/QQzQ79grEA)
 
-“She couldn’t say it. She wrapped her arms around my neck and sobbed continuously, but she said nothing.”
+[旧金山金喜准农场 Twitter](https://twitter.com/sf_himalaya)
 
-“她说不出来。她搂着我的脖子，不停地抽泣，但她什么也没说。”
+【**责任编辑**】：舊金山文宣组
 
-The Chinese government did not respond directly to questions from the BBC about allegations of rape and torture. In a statement, a spokeswoman said the camps in Xinjiang were not detention camps but “vocational education and training centres”.
-
-中共国政府并没有直接回应英国广播公司有关强奸和酷刑指控的问题。 一位女发言人在一份声明中说，新疆的营地不是集中营，而是“职业教育和培训中心”。
-
-“The Chinese government protects the rights and interests of all ethnic minorities equally,” the spokeswoman said, adding that the government “attaches great importance to protecting women’s rights”.
-
-发言人说：“政府平等地保护所有少数民族的权益。” 并补充说，政府“非常重视保护妇女的权利”。
-![pastedGraphic_1.png]()![pastedGraphic_1.png](https://gnews.org/wp-content/uploads/2021/02/116683931_tursunay_bbc_26jan21_23.jpg)Tursunay Ziawudun at home in the US with her landlady, who supports her 齐亚乌敦与资助她的房东一起在美国的家里
-Ziawudun was released in December 2018 along with others who had spouses or relatives in Kazakhstan – an apparent policy shift she still doesn’t fully understand.
-
-齐亚乌敦于2018年12月与在哈萨克斯坦（Kazakhstan）有配偶或亲戚的其他人一起被释放——她并不完全理解这一政策的转变。
-
-The state returned her passport and she fled to Kazakhstan and then, with the support of the Uyghur Human Rights Project, to the US. She is applying to stay. She lives in a quiet suburb not far from Washington DC with a landlady from the local Uighur community. The two women cook together and take walks in the streets around the house. It’s a slow, uneventful existence. Ziawudun keeps the lights low when she is in the house, because they shone brightly and constantly in the camp. A week after she arrived in the US, she had surgery to remove her womb – a consequence of being stamped on. “I have lost the chance to become a mother,” she said. She wants her husband to join her in the US. For now, he is in Kazakhstan.
-
-中共国归还了她的护照，她逃到哈萨克斯坦，随后通过《维吾尔人权项目》（Uyghur Human Rights Project）逃往美国。 她正在申请留在美国。 她生活在一个离华盛顿特区不远的安静郊区，房东来自当地的维吾尔族社区。 她与房东一起做饭，在街道散步。 这是一种舒缓，平稳的生活。齐亚乌敦在房间里会把灯光调暗。因为在集中营里，灯光刺眼，并且持续不断。 到达美国一周后，她接受了子宫切除手术——这是遭受虐待的结果。 她说：“我失去了成为母亲的机会。” 她希望丈夫能够来美国与她会合。 目前，她的丈夫还在哈萨克斯坦。
-
-For a while after her release, before she could flee, Ziawudun waited in Xinjiang. She saw others who had been churned through the system and released. She saw the effect the policy was having on her people. The birth rate in Xinjiang has plummeted in the past few years, according to independent research – an effect analysts have described as “demographic genocide”.
-
-齐亚乌敦在被释放并设法逃离之前的一段时间内，在新疆等待。她见到其他被这个系统迫害，后来又被释放的人。她看到了该政策对她的民族的影响。根据独立研究，新疆的出生率在过去几年中直线下降——分析师将其描述为“人口种族灭绝”。
-
-Many in the community had turned to alcohol, Ziawudun said. Several times, she saw her former cellmate collapsed on the street – the young woman who was removed from the cell with her that first night, who she heard screaming in an adjacent room. The woman had been consumed by addiction, Ziawudun said. She was “like someone who simply existed, otherwise she was dead, completely finished by the rapes”.
-
-齐亚乌敦说，社区中的许多人已经开始酗酒。有几次，她看到她的前狱友昏倒在街上——那名年轻女子在第一天晚上与她一起被带出了牢房，她随后听到了那位年轻女子在隔壁房间里的尖叫声。 齐亚乌敦说，这名妇女被毒瘾所吞噬，她“只是一个活着的人而已，其实她已经死了，完全被强奸毁了”。
-
-“They say people are released, but in my opinion everyone who leaves the camps is finished.”
-
-“政府说人们被释放了，但我认为离开集中营的每个人都被毁了。”
-
-And that, she said, was the plan. The surveillance, the internment, the indoctrination, the dehumanisation, the sterilisation, the torture, the rape.
-
-她说，那正是政府的计划。监视，拘禁，灌输，灭绝人性，绝育，酷刑和强奸。
-
-“Their goal is to destroy everyone,” she said. “And everybody knows it.”
-
-“他们的目标是摧毁所有人，” 她说，“而且每个人都知道这一点。”
-
-Photographs by Hannah Long-Higgins
-
-Readers in the UK affected by sexual abuse or violence can find support information via the BBC website here.
-
-(完结）
-
-* * *
-
-汉娜·朗·希金斯（Hannah Long-Higgins）摄影
-
-在英国遭受性虐待或暴力侵害的读者可以通过BBC网站找到支持信息。
-
-**来源：*****BBC News***
-
-参考链接：[https://www.bbc.com/news/world-asia-china-55794071](https://www.bbc.com/news/world-asia-china-55794071)
-
-* * *
-
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
-
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
-
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
-
-0
++1

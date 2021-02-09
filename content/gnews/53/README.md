@@ -1,26 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【灭共头条】中共驻美大使崔天凯提议 WHO 在美调查病毒起源
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/895019/)
+## 门户专家网站的推特被永久封杀
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/895334/)
 
-#### 编译报道：MIYA【㊙️翻 Gnews原创组】
-责任编辑：萌萌的朋克
-![]()![](https://gnews.org/wp-content/uploads/2021/02/淬体N-3.jpg)图片来源：新浪网
-中国驻美国大使崔天凯周日在接受CNN电视采访时建议，世界卫生组织（WHO）应该调查病毒爆发是否始于美国某地而非武汉。崔天凯还批评病毒从武汉病毒研究所泄露的说法没有证据，认为提出指控的人有举证的责任。
+*新闻来源：《零对冲》| 作者：TYLER DURDEN泰勒·杜登 | 发布时间：2021年2月6日*
 
-据福克斯新闻2月7日报道，采访中当电视主持人提出对该研究所内部员工的感染情况和对 WHO 团队在武汉调查自由度的疑问时，崔天凯回答说，科学家们正在那里“查看所有的事实”，各国不该针对病毒起源进行无端指责，鉴于媒体报道过世界其他地方的早期病例，WHO 有必要在世界各地进行溯源研究，找到病毒真正的源头。他还反问道，“世卫组织是否会被允许来美国做同样的事情？”
+*翻译/简评：Linda B | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii*
 
-回溯中共对病毒起源的说辞，从武汉突发至今的一年多时间，一直在频繁地变化。最初中共声称病毒来自武汉华南海鲜市场的野生动物；在多种野生动物来源说均站不住脚的情况下，中共开始大力宣传病毒境外输入，例如进口冷冻食品发现病毒、其他国家在武汉出现病例前检测出含有病毒的血清样本等。中共外交部发言人赵立坚曾在其推特上指出，病毒是由去年10月参加军运会的美国军人带入武汉。
+[!\[\]()!\[\](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/32bc2834-5a39-4ca0-bf59-c3e25f144202.jpg?asset_id=5c169d68-bb23-4fd0-9b26-89a4352ab4b9&amp;img_etag=%226d7a716fbbde04323a8703a358d4e599%22&amp;size=2560)](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/32bc2834-5a39-4ca0-bf59-c3e25f144202.jpg?asset_id=5c169d68-bb23-4fd0-9b26-89a4352ab4b9&amp;img_etag=%226d7a716fbbde04323a8703a358d4e599%22&amp;size=1024)
 
-当闫丽梦博士发布病毒来源报告后，武汉病毒研究所一度成为众人关注的焦点，面对病毒来自实验室理论的强大压力， 赵立坚再次公开指向美国德特里克堡基地（Fort Detrick），提出美国应接受WHO专家去基地开展溯源调查。
+**简评：**
 
-对病毒溯源的闪烁其辞掩盖不了中共军方拥有“舟山蝙蝠病毒骨架”的事实。已夺去230多万条生命的中共病毒与舟山蝙蝠病毒的基因图谱DNA相似度高达94.21%，做贼心虚的中共在武汉疫情初发时多次偷换上传给 WHO 的病毒序列号，闫丽梦博士密切跟踪中共造假留下的痕迹，用大量科学的证据和掌握的情报判断病毒会人传人、大爆发和强变异，她冒死通过自媒体《路德社》发出病毒会大爆发的警报，并发布揭露病毒是中共军方实验室的超限生物武器的报告。无论中共如何“甩锅“，关于病毒来源的海量情报和证据最终只会指向一个真相——中共就是幕后黑手！
+**美国不曾想到，只有在中共专制制度下的言论管控会在美国这个自由、民主的社会中出现。当一个政府不愿意听到反对意见，即使是真实的声音，它就会用权力扼杀人民的声音。在今年总统大选期间多次出现的选举不公正事件和对不公正现象的揭露和报道，都遭到了推特等社交媒体巨头的打击。对“门户专家”网站在推特上的帐号进行封杀和中共打击言论自由的行为如出一辙。美国渐渐沦陷，媒体、科技公司操纵言论，左右民意。美国这个经自由选举产生总统的制度已经徒有其表，人民的意愿已被资本巨头践踏。**
 
-参考链接：
-1、[China Ambassador Cui Tiankai suggests WHO investigate coronavirus origins in US in CNN interview](https://www.foxnews.com/world/china-ambassador-cui-tiankai-coronavirus-cnn)
-2、[错误信息 虚假信息 美中新冠病毒源头之争再起](https://www.voachinese.com/a/china-virus-origin-narrative-discredited-20200424/5389831.html)
+**今年的大选期间的种种舞弊是多年来中共对美国政客和资本巨头的腐蚀、勾结的结果。美国人民如果还不觉醒，当共产主义成为美国的主流意识，我们中国人的今天，就是美国人的明天。**
 
-（本文仅代表作者个人观点）
+**原文翻译：**
+
+# **推特因“门户专家”（Gateway Pundit）违反“公民诚信政策”而永久禁止其账号**
+
+推特已经永久封禁了受欢迎的保守网站门户专家(The Gateway Pundit)的创始人吉姆·霍夫特(Jim Hoft)的帐号，据说该帐号违反了社交媒体巨头的“公民诚信政策”。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/eb67c039-cc82-4ef7-835a-df4f4b9df5b6.png?asset_id=99ae1535-5947-466c-b03d-85a997b17b62&amp;img_etag=%22998255f28778a9ebd52afab864e82cb8%22&amp;size=2560)](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/eb67c039-cc82-4ef7-835a-df4f4b9df5b6.png?asset_id=99ae1535-5947-466c-b03d-85a997b17b62&amp;img_etag=%22998255f28778a9ebd52afab864e82cb8%22&amp;size=1024)
+
+霍夫特的推特账号@gatewaypundit有超过37.5万关注者，是该媒体频道在推特上的主要帐号。在门户专家网站发布了底特律TCF中心大选夜间监控视频录像一天之后，推特账号被禁。据媒体报道视频中一辆面包车“卸下成千上万张非法选票”，之后“拜登在密歇根获得领先”。
+
+据《公民自由报》报道，一名推特发言人称：“该帐号因屡次违反我们的公民诚信政策而被永久停用。”
+
+禁令发布后，“门户专家”说关于监控录像，“他们将在未来几天内就此事件进行更多报道”，因为他们尚未公布全部信息。霍夫特在被禁前几小时发布了以下推文：
+
+[!\[\]()!\[\](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/361a2d37-814c-4f93-8f21-db6675674856.png?asset_id=75d5f716-d8a3-4437-b0f5-638c4794d0b7&amp;img_etag=%2285ab37abd948753272f1ee4b237c8873%22&amp;size=2560)](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/361a2d37-814c-4f93-8f21-db6675674856.png?asset_id=75d5f716-d8a3-4437-b0f5-638c4794d0b7&amp;img_etag=%2285ab37abd948753272f1ee4b237c8873%22&amp;size=1024)
+
+推文翻译：仅供参考——假新闻媒体和其他媒体从周五开始挑战了我们的TCF中心视频报道。那是一个糟糕的举动。我们还会有更多报道！
+
+当自由派推特用户庆祝霍夫特被封杀——支持审查制度的组织“沉睡巨人”（Sleeping Giants）的创始人在呼吁彻底废除货币时，人们仍然可以在以下平台上找到“门户专家”：
+
+[Telegram](https://t.me/gatewaypunditofficial) | [Gab](https://gab.com/gatewaypundit) | [SafeChat](https://safechat.com/channel/2775585583991869440) | [MeWe](https://mewe.com/p-front/thegatewaypundit) | [Clouthub](https://app.clouthub.com/public/de31dfd6-a8c2-4d87-9229-fd615cea059f) | [Minds](https://www.minds.com/gatewaypundit_official) |[Politichatter](https://politichatter.com/gatewaypundit)
+
+**🔗[原文链接](https://www.zerohedge.com/political/twitter-permanently-bans-gateway-pundit-violating-civic-integrity-policy?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)**
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

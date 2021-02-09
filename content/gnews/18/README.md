@@ -1,31 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国实施更严格的入境隔离、测试措施
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/895927/)
+## 中俄伊二月中旬将在印度洋举行联合军演
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/895957/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+俄罗斯莫斯科喀秋莎农场 DongDong
 
+编辑  水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-09_20-49-28.jpg)[securingdemocracy.gmfus.org](https://securingdemocracy.gmfus.org/triad-of-disinformation-how-russia-iran-china-ally-in-a-messaging-war-against-america/)
+据路透社报导，莫斯科驻德黑兰大使黎文・扎加里安(Levan Dzhagaryan)在伊朗当地时间 2 月 8 日表示，俄罗斯、伊朗和中共国将于 2 月中旬在印度洋北部进行搜索和救援行动的演习， 从时间上看，俄、中、伊三国的精锐战舰应该在近日便开赴演习海域。此前， 2019 年，中俄伊三国曾在印度洋和阿曼湾举行联合海军演习。莫斯科称，这将是一次史无前例的海军合作和训练演习[1]。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+伊朗舰队对国家电视台表示，“这次演习传递的信息是和平、友谊、合作和团结，能够持久保持国家的安全，演习结果将表明，伊朗不会也不能被世界各国孤立。”该电视台表示，演习包括营救着火的船只或被海盗攻击的船只以及射击演习[2]。
 
-**西班牙2021年2月9日电/西喜社——**英国政府宣布对从南美和非洲国家返乡的英国和爱尔兰居民实行更严格的隔离和检测措施，以限制中共病毒的变异。
+阿曼湾一直是一条比较敏感的水路，因为它与霍尔木兹海峡相连，世界上大约五分之一的石油运输都会通过霍尔木兹海峡，它是连接波斯湾和印度洋的海峡，亦是唯一一个进入波斯湾的水道。
 
-卫生部长马特·汉考克（Matt Hancock）表示，这些国际入境者将需要在其为期10天的隔离期内进行两次中共病毒检测，以使当局能够更好地跟踪新病例。
+据俄罗斯卫星新闻通讯社 1 月 4 日报道[3]，卫星图像显示，在美国和伊朗关系紧张之际，伊朗伊斯兰革命卫队的舰船在霍尔木兹海峡开展活动。
 
-国际旅客已必须出示阴性测试证明，才能重新进入该国。
+2020 年伊朗在霍尔木兹海峡附近举行了多场海军演习。伊朗的演习引发了前川普政府的愤怒，美国当时向该地区派遣了一艘核潜艇和一艘导弹巡洋舰。而这次行动发生在伊朗高级军事将领苏莱曼尼被美军暗杀一周年纪念日，伊朗曾誓言要为苏莱曼尼复仇。
 
-对于来自英国政府的33个“红色名单”国家（主要是南美和非洲国家）的英国和爱尔兰居民，将建立新的酒店隔离系统。 这些旅行者将需要为酒店住宿支付1750磅（2,411美元）的套餐费用。
+现在，还不到两年的时间，俄罗斯就再次与伊朗和中共国举行联合海军演习，但这次美国等西方国家集体沉默了，美方尚未对此作出任何回应。
 
-英国目前禁止这33个国家/地区的其他旅行者。
+参考链接：
 
-新措施将于周一生效。 那些违反规定的人将面临最高10,000英镑（13,780美元）的罚款和最高10年的监禁。
+[1] [Russia, China, and Iran to hold joint naval drills in Indian Ocean soon](https://www.reuters.com/article/russia-military-iran-china/russia-china-and-iran-to-hold-joint-naval-drills-in-indian-ocean-soon-ria-idUSL8N2KE4G2)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/14ebcbf1-a2a5-47f6-9b83-caa3b37d450f-1.jpg)
+[2] [Russia announces joint naval drill with China and Iran in the Indian Ocean ’soon’](https://www.dailymail.co.uk/news/article-9237765/Russia-announces-joint-naval-drill-China-Iran-Indian-Ocean-soon.html)
 
-**[新闻来源](https://apnews.com/article/belgium-europe-coronavirus-pandemic-coronavirus-vaccine-6bdcd5b1aa25848a9debae56dd55e6e5)**
-
-![]()![](https://gnews.org/wp-content/uploads/2021/02/00110011.png)
+[3] [美国卫星拍到大批伊朗军舰在霍尔木兹海峡集结](http://www.xinhuanet.com/mil/2021-01/05/c_1210965961.htm)
 
 0
