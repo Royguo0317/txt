@@ -1,150 +1,167 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 相关财务人员及管理人员的行为判断（五）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/893214/)
+## “他们的目标是摧毁所有人”：维吾尔集中营的被拘人员指控遭系统性强奸（三）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/896013/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23164109/1223.jpg)
-Picture Source: https://www.groomassocies.com
+五月花写作组 ｜ 翻译：虹陵 ｜ 校对：jiasen ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/02/新疆迫害3.jpg)**‘Their goal is to destroy everyone’: Uighur camp detainees allege systematic rape**
+- By Matthew Hill, David Campanale and Joel Gunter
+- BBC News
+- 作者：马修·希尔，戴维·坎帕纳尔，乔尔·冈特
+- 英国广播公司
 
-在最后一篇文章中，将总结相关财务人员，以及管理人员的行为，并根据行为模式的解读与客观，审慎，勤勉的的态度作出有效评估关于潜在的在的欺诈以及诈骗风险，并有效衡量实际商业运营中可容忍的风险程度。
 
-1.Diligence and Reasonable Basis
+* * *
 
-- 在分析投资，提出投资建议，采取投资行动时应做到：勤奋，独立，完全，彻底。
-- 应该在适当的研究和调查下，拥有合理且充足的基础，进而采取任何分析/推荐/行动。
-- 当成员完成上述步骤，但仍然遭受损失。成员则不违反此条例。
+### 往期链接：
 
+[“他们的目标是摧毁所有人”：维吾尔集中营的被拘人员指控遭受系统性强奸（一）](https://gnews.org/zh-hans/881745/)
 
-2.Defining Diligence and Reasonable Basis
+[“他们的目标是摧毁所有人”：维吾尔集中营的被拘人员指控遭受系统性强奸（二）](https://gnews.org/zh-hans/892883/)
 
-- 任何单一标准 / 方案 构成的投资意见或行动方案，违反此条例。
+* * *
 
+In the camp in Kunes, Ziawudun’s days drifted into weeks and then months. The detainees’ hair was cut, they went to class, they underwent unexplained medical tests, took pills, and were forcibly injected every 15 days with a “vaccine” that brought on nausea and numbness.
 
-3.Using Secondary or Third-Party Research
+在库纳斯的营地中，齐亚乌敦（Ziawudun）被拘禁的日子持续了数周甚至数月。被拘禁者的头发被剪掉，被破上课，接受不明医学检查，被迫吃药，每15天被强行注射一种“疫苗”，会使人感到恶心和麻木。
 
-- 二级研究是指协会成员所在公司内其他人员进行的研究。
-- 第三方研究指公司外部进行的研究，若此研究存疑，成员则不得引用。此外非成熟的第三方列如互联网等，需要更严格的审查机制。
+Women were forcibly fitted with IUDs or sterilised, Ziawudun said, including a woman who was just about 20 years old. (“We begged them on her behalf,” she said.) Forced sterilisation of Uighurs has been widespread in Xinjiang, according to a recent investigation by the Associated Press. The Chinese government told the BBC the allegations were “completely unfounded”.
 
+齐亚乌敦说，妇女被强行插入宫内节育器（IUDs）或绝育，其中包括一名只有20岁左右的妇女。 （“我们替她向他们求情” 她说。）根据美联社最近的调查，在新疆，维吾尔人被强迫绝育的情况很普遍。中共国政府告诉英国广播公司，这些指控“完全没有根据”。
 
-4.Using Quantitative Oriented Research
+As well as the medical interventions, detainees in Ziawudun’s camp spent hours singing patriotic Chinese songs and watching patriotic TV programmes about Chinese President Xi Jinping, she said.
 
-- 外源计量模型绝不能直接引用，成员应做尽职调查。
+她说，除了医疗干预外，在集中营的被拘禁者还被迫花很多时间演唱爱国歌曲，并观看有关中共国国家主席习近平的爱国电视节目。
 
+“You forget to think about life outside the camp. I don’t know if they brainwashed us or if it was the side effect of the injections and pills, but you can’t think of anything beyond wishing you had a full stomach. The food deprivation is so severe.”
 
-5.Developing Quantitative Oriented Technique
+“你开始遗忘集中营以外的生活。我不知道是他们在给我们洗脑，还是注射剂和药丸产生了副作用。你除了希望自己可以填饱肚子外，什么都不想。食物匮乏非常的严重。”
 
-6.Selecting External Adviser and Subadvisor
+Detainees had food withheld for infractions such as failing to accurately memorise passages from books about Xi Jinping, according to a former camp guard who spoke to the BBC via video link from a country outside China.
 
-7.Grouping Research and Decision Making
+一名前集中营的警卫通过来自境外国家的视频向BBC揭露，被拘禁者因违规而被扣留食物，例如未能准确记住有关习近平的书籍中的段落。
 
-- 成员不同意多人决策报告时，有权利要求移除自己的姓名。
-- 成员愿意相信是有合理/充分的依据时，则并不需要移除姓名。
+“Once we were taking the people arrested into the concentration camp, and I saw everyone being forced to memorise those books. They sit for hours trying to memorise the text, everyone had a book in their hands,” he said.
 
+他说：“一旦我们把被捕的人带到集中营，每个人都被强迫背诵这些书里的内容。他们会坐上好几个小时，去背诵书中的内容，每个人手里都有一本书。”
 
-8.Standard V (B) Communication with Clients and Prospective
+Those who failed tests were forced to wear three different colours of clothing based on whether they had failed one, two, or three times, he said, and subjected to different levels of punishment accordingly, including food deprivation and beatings.
 
-- Informing Clients of the Investment Process
-- 成员必须对当前或潜在客户，应充分解释指导投资决策的过程。
-- 基于独立思考，理解投资最重要的基本特征在判断适用性时。但决定单一投资对于整个投资组合的影响才是尤其重要的。
+那些考试不及格的人会被迫穿上三种不同颜色的衣服，视一次，两次或三次不及格而定。此外，还会受到不同程度的惩罚，包括扣减食物和殴打。
 
+“I entered those camps. I took detainees into those camps,” he said. “I saw those sick, miserable people. They definitely experienced various types of torture. I am sure about that.”
 
-9.Report Presentation
+“我进入了那些集中营。我把被拘禁者带进了那些集中营。我看到了那些生了病的悲惨的人。他们绝对经历了各种形式的酷刑。我非常肯定。”
 
-- 对于应该披露的细节，没有解释。违反此条例。
-- 任何标准或投资的变化都应该及时通知：现有客户，潜在客户，第三方顾问。
-- 样本的评估计算不得作为事实。
+![pastedGraphic.png]()![pastedGraphic.png](https://gnews.org/wp-content/uploads/2021/02/116769413_gettyimages-182584636.jpg)Analysts say the policy against the Uighurs flows directly from President Xi Jinping 分析人士说，针对维吾尔人的政策直接来自习近平主席的指示
 
+It was not possible to independently verify the guard’s testimony but he provided documents that appeared to corroborate a period of employment at a known camp. He agreed to speak on condition of anonymity.
 
-10.Distinction between Facts and Opinions in Report
+我们无法独立核实警卫的证词，但他提供的文件似乎证实了他曾在一个周知的集中营工作过一段时间。他同意在不透露姓名的情况下发声。
 
-- 可能发生变化/不明确前景的逻辑推理：必须告知客户影响未来走向的决定素的事实。(Fact)
-- 推理结果 / 走向: 可以被视为会员观点，可以作为投资推荐。（Opinion）
+The guard said he did not know anything about rape in the cell areas. Asked if the camp guards used electrocution, he said: “Yes. They do. They use those electrocuting instruments.” After being tortured, detainees were forced to make confessions to a variety of perceived offences, according to the guard. “I have those confessions in my heart,” he said.
 
+警卫说，他对牢房内的强奸一无所知。当被问及营中警卫是否使用过电刑时，他说：“是的，他们使用过电刑具。警卫说，在遭受酷刑折磨后，被拘者被迫对各种犯罪行为认罪。他说：“我还记得他们说过的认罪的话。”
 
-11.Standard V (C) Record Retention
+President Xi looms large over the camps. His image and slogans adorn the walls; he is a focus of the programme of “re-education”. Xi is the overall architect of the policy against the Uighurs, said Charles Parton, a former British diplomat in China and now senior associate fellow at the Royal United Services Institute.
 
-- 候选人必须制定和维护适当的记录，去支持他们与当前 / 潜在客户的投资分析建议，行动，和其他投资相关的沟通。
-- 对于投资政策陈述及目标（IPS）的有效文件保留。
-- 对于制作报告后，必须保留副本。（File）
+习近平主席的形象在营地可谓随处可见。他的照片和口号装饰在墙上。他是“再教育”项目的中心。习近平是针对维吾尔人政策指定的总架构师。查尔斯·帕顿（Charles Parton），曾任驻中共国英国外交官，现为皇家联合服务学院的高级研究员说道。
 
+“It is very centralised and it goes to the very top,” Parton said. “There is absolutely no doubt whatsoever that this is Xi Jinping’s policy.”
 
-12.Records are Property of the firm
+“这是非常集中化的政策制定，而且直通最高层。” 帕顿说，“毫无疑问，这是习近平的政策。”
 
-- 创建的记录作为成员职业活动的一部分，以代表雇主为基础。
-- 被视为公司财产，不得带出。
-- 为新雇主必须创建新支持记录，而且只能从公共渠道或新雇主获取。
-- 不得使用记忆或前雇息。
+It was unlikely that Xi or other top party officials would have directed or authorised rape or torture, Parton said, but they would “certainly be aware of it”.
 
+帕顿说，习近平或其他党政高层不太可能指示或授权强奸或酷刑，但他们“肯定会意识到”。
 
-13.Local Requirement
+“I think they prefer at the top just to turn a blind eye. The line has gone out to implement this policy with great sternness, and that is what is happening.” That left “no real constraints”, he said. “I just don’t see what the perpetrators of these acts would have to hold them back.”
 
-- 通常需要遵守监管机构的保留要求，如果没有协会通常要求七年。
+“我认为他们更愿意身居高层却视而不见。严厉地实施这一政策已经越过人性底线了，这就是正在发生的事情。实施这一政策没有任何实际的限制。”他说：“我看不到有任何的行动可以阻止这些肇事者。”
 
+According to Ziawudun’s account, the perpetrators did not hold back.
 
-14.Standard VI (A) Disclosure of Conflicts
+根据齐亚乌敦的说法，罪犯并没有罢手。
 
-- 会员必须完整且公平的披露任何可能损害独立性，客观性或损害对于客户 / 潜在客户/雇主责任的事务。
-- 必须确保这类披露是突出的，通俗易懂的， 有效的语言去表达/交流相关信息。
-- 无需禁止，披露即可。
-- 大型多元化分散投资不适用此条款。
+“They don’t only rape but also bite all over your body, you don’t know if they are human or animal,” she said, pressing a tissue to her eyes to stop her tears and pausing for a long time to collect herself.
 
+“他们不仅强奸，还咬你的全身，你都不知道他们到底是人还是动物。”她用纸巾止住眼泪，停顿了很久让自己平静下来 。
 
-15.Conflicts with Stock Ownership
+“They didn’t spare any part of the body, they bit everywhere leaving horrible marks. It was disgusting to look at.”
 
-- 此条款要求披露：成员/雇主拥有的股份与客户持有股份的冲突。
+“他们不放过你身体的任何一个部位，他们咬每一个地方，留下可怕的印记。看着就令人作呕。”
 
+“I’ve experienced that three times. And it is not just one person who torments you, not just one predator. Each time they were two or three men.”
 
-16.Conflicts as a Director
+“我经历过三次。并且不是只有一个掠食者在折磨你，每次都是两个或三个人。”
 
-若成员或有关成员作为董事会成员则冲突可能发生在以下三点：
+Later, a woman who slept near Ziawudun in the cell, who said she was detained for giving birth to too many children, disappeared for three days and when she returned her body was covered with the same marks, Ziawudun said.
 
-- 履行客户的义务和股东的义务的冲突。
-- 交易期权奖励会造成的相关股票交易量的冲突，披露时应表明到期时间/占比金额。
-- 会员为董事会服务，有大量机会接收重大非公开信息。应设置防火墙使会员与投资决策人进行隔离。
+后来，牢房里一名睡在齐亚乌敦附近的妇女，因为生了太多的孩子而被拘禁。她失踪了三天，当她返回时，她的身上布满了相同的印记。
 
+“She couldn’t say it. She wrapped her arms around my neck and sobbed continuously, but she said nothing.”
 
-17.Priority of Transaction
+“她说不出来。她搂着我的脖子，不停地抽泣，但她什么也没说。”
 
-- 客户和雇主的交易必须优先于会员自身作为受益人的交易。
-- 而且客户的交易同时也优先于雇主或公司利益。
+The Chinese government did not respond directly to questions from the BBC about allegations of rape and torture. In a statement, a spokeswoman said the camps in Xinjiang were not detention camps but “vocational education and training centres”.
 
+中共国政府并没有直接回应英国广播公司有关强奸和酷刑指控的问题。 一位女发言人在一份声明中说，新疆的营地不是集中营，而是“职业教育和培训中心”。
 
-18.Avoiding Potential Conflicts （满足三点则不违反此条例）
+“The Chinese government protects the rights and interests of all ethnic minorities equally,” the spokeswoman said, adding that the government “attaches great importance to protecting women’s rights”.
 
-- 交易中客户不处于不利地位。
-- 不从客户的交易中使自己受益。
-- 符合监管要求。
-- 客户出于个人目的挪用资金，同样不违反此条例。
+发言人说：“政府平等地保护所有少数民族的权益。” 并补充说，政府“非常重视保护妇女的权利”。
+![pastedGraphic_1.png]()![pastedGraphic_1.png](https://gnews.org/wp-content/uploads/2021/02/116683931_tursunay_bbc_26jan21_23.jpg)Tursunay Ziawudun at home in the US with her landlady, who supports her 齐亚乌敦与资助她的房东一起在美国的家里
+Ziawudun was released in December 2018 along with others who had spouses or relatives in Kazakhstan – an apparent policy shift she still doesn’t fully understand.
 
+齐亚乌敦于2018年12月与在哈萨克斯坦（Kazakhstan）有配偶或亲戚的其他人一起被释放——她并不完全理解这一政策的转变。
 
-19.Standards for Non-public Information
+The state returned her passport and she fled to Kazakhstan and then, with the support of the Uyghur Human Rights Project, to the US. She is applying to stay. She lives in a quiet suburb not far from Washington DC with a landlady from the local Uighur community. The two women cook together and take walks in the streets around the house. It’s a slow, uneventful existence. Ziawudun keeps the lights low when she is in the house, because they shone brightly and constantly in the camp. A week after she arrived in the US, she had surgery to remove her womb – a consequence of being stamped on. “I have lost the chance to become a mother,” she said. She wants her husband to join her in the US. For now, he is in Kazakhstan.
 
-- 如果成员有雇主或客户的未决交易，则可能需要遵守重大非公开信息原则。
+中共国归还了她的护照，她逃到哈萨克斯坦，随后通过《维吾尔人权项目》（Uyghur Human Rights Project）逃往美国。 她正在申请留在美国。 她生活在一个离华盛顿特区不远的安静郊区，房东来自当地的维吾尔族社区。 她与房东一起做饭，在街道散步。 这是一种舒缓，平稳的生活。齐亚乌敦在房间里会把灯光调暗。因为在集中营里，灯光刺眼，并且持续不断。 到达美国一周后，她接受了子宫切除手术——这是遭受虐待的结果。 她说：“我失去了成为母亲的机会。” 她希望丈夫能够来美国与她会合。 目前，她的丈夫还在哈萨克斯坦。
 
+For a while after her release, before she could flee, Ziawudun waited in Xinjiang. She saw others who had been churned through the system and released. She saw the effect the policy was having on her people. The birth rate in Xinjiang has plummeted in the past few years, according to independent research – an effect analysts have described as “demographic genocide”.
 
-20.Impact on all Account with Beneficial Ownership
+齐亚乌敦在被释放并设法逃离之前的一段时间内，在新疆等待。她见到其他被这个系统迫害，后来又被释放的人。她看到了该政策对她的民族的影响。根据独立研究，新疆的出生率在过去几年中直线下降——分析师将其描述为“人口种族灭绝”。
 
-- 确认雇主和客户有足够的交易机会之后，才可能为个人作为利益拥有者的账户交易。
-- 包括但不限于：家庭成员，退休账户，和成员有直接或间接利益关系。
-- 家庭账户应视为公司其他付费账户，不得因为家庭关系受到特殊对待或处于不利地位。
-- 但是成员作为账户实际收益拥有者时，则可能根据法律/雇主规定要求报告或提前清除。
+Many in the community had turned to alcohol, Ziawudun said. Several times, she saw her former cellmate collapsed on the street – the young woman who was removed from the cell with her that first night, who she heard screaming in an adjacent room. The woman had been consumed by addiction, Ziawudun said. She was “like someone who simply existed, otherwise she was dead, completely finished by the rapes”.
 
+齐亚乌敦说，社区中的许多人已经开始酗酒。有几次，她看到她的前狱友昏倒在街上——那名年轻女子在第一天晚上与她一起被带出了牢房，她随后听到了那位年轻女子在隔壁房间里的尖叫声。 齐亚乌敦说，这名妇女被毒瘾所吞噬，她“只是一个活着的人而已，其实她已经死了，完全被强奸毁了”。
 
-21.Standard VI (C) Referral Fees
+“They say people are released, but in my opinion everyone who leaves the camps is finished.”
 
-- 成员必须向雇主或客户酌情披露因推荐产品或服务得到的对价/补偿/利益。
-- 成员所在公司被推荐给第三方，但成员没有给第三方披露与推荐主体之间的有偿推荐合约。违反此条例。
-- 由统一部门发放的附属部门转介费，成员也应该向附属部门客户披露转介合约费用。
-- 无论结果是否满意或遭受损失，都应该披露转介合约。
+“政府说人们被释放了，但我认为离开集中营的每个人都被毁了。”
 
+And that, she said, was the plan. The surveillance, the internment, the indoctrination, the dehumanisation, the sterilisation, the torture, the rape.
 
-Author：搞笑排行榜
+她说，那正是政府的计划。监视，拘禁，灌输，灭绝人性，绝育，酷刑和强奸。
 
-Original opinion article by Himalaya G-farm Vancouver
+“Their goal is to destroy everyone,” she said. “And everybody knows it.”
 
-温哥华圆成农场
+“他们的目标是摧毁所有人，” 她说，“而且每个人都知道这一点。”
 
-2021/02/09
+Photographs by Hannah Long-Higgins
+
+Readers in the UK affected by sexual abuse or violence can find support information via the BBC website here.
+
+(完结）
+
+* * *
+
+汉娜·朗·希金斯（Hannah Long-Higgins）摄影
+
+在英国遭受性虐待或暴力侵害的读者可以通过BBC网站找到支持信息。
+
+**来源：*****BBC News***
+
+参考链接：[https://www.bbc.com/news/world-asia-china-55794071](https://www.bbc.com/news/world-asia-china-55794071)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
 0
