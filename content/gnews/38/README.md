@@ -1,41 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄、伊、中举行海军联合军演剑指何方？
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/895093/)
+## 门户专家网站的推特被永久封杀
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/895334/)
 
-** **
+*新闻来源：《零对冲》| 作者：TYLER DURDEN泰勒·杜登 | 发布时间：2021年2月6日*
 
-##### 翻译报道：April-四月 / Wakeup文醒
+*翻译/简评：Linda B | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii*
 
-**责编：白夜**
+[!\[\]()!\[\](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/32bc2834-5a39-4ca0-bf59-c3e25f144202.jpg?asset_id=5c169d68-bb23-4fd0-9b26-89a4352ab4b9&amp;img_etag=%226d7a716fbbde04323a8703a358d4e599%22&amp;size=2560)](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/32bc2834-5a39-4ca0-bf59-c3e25f144202.jpg?asset_id=5c169d68-bb23-4fd0-9b26-89a4352ab4b9&amp;img_etag=%226d7a716fbbde04323a8703a358d4e599%22&amp;size=1024)
 
-美东时间2021年2月8日22:40  零对冲（Zero Hedge）发表题为《俄罗斯、伊朗和中国将举行联合海军演习，中央司令部司令抨击伊朗是 “不稳定动因”》的文章，各海外媒体纷纷转载该消息。
+**简评：**
 
-据路透社援引莫斯科驻德黑兰大使的评论称，周一俄罗斯宣布计划与伊朗和中国在印度洋举行联合海军演习。俄罗斯大使列万·德扎加良（Levan Dzhagaryan）说：”下一次多边海军演习将于2021年2月中旬在印度洋北部举行。”
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-15.png)*图片截取自网络*
-事情就发生在本月初美国尼米兹号航空母舰被命令撤离其中东责任区之后，尼米兹号正在返回位于华盛顿州的基地。由于与伊朗的紧张关系日益加剧，川普让尼米兹号在印度洋和海湾地区待命，但拜登在上任后的头几周就下令其返回。
+**美国不曾想到，只有在中共专制制度下的言论管控会在美国这个自由、民主的社会中出现。当一个政府不愿意听到反对意见，即使是真实的声音，它就会用权力扼杀人民的声音。在今年总统大选期间多次出现的选举不公正事件和对不公正现象的揭露和报道，都遭到了推特等社交媒体巨头的打击。对“门户专家”网站在推特上的帐号进行封杀和中共打击言论自由的行为如出一辙。美国渐渐沦陷，媒体、科技公司操纵言论，左右民意。美国这个经自由选举产生总统的制度已经徒有其表，人民的意愿已被资本巨头践踏。**
 
-宣布这一消息时，也正值美国、日本和澳大利亚在关岛外进行联合军演，专门用于应对未来来自中国或俄罗斯等大国的假想攻击。这些被称为 “应对北方2021 “的演习预计将持续到2月19日。
+**今年的大选期间的种种舞弊是多年来中共对美国政客和资本巨头的腐蚀、勾结的结果。美国人民如果还不觉醒，当共产主义成为美国的主流意识，我们中国人的今天，就是美国人的明天。**
 
-俄罗斯、中国和伊朗上次在该地区举行海军演习是在2019年12月，德扎加良大使在最初给俄罗斯国家媒体的评论中详细介绍说，预计联合演习的重点是 “搜救 “行动以及以航运为重点的海上安全。有趣的是，这是紧随2019年夏天与英美的 “油轮战 “对决之后发生的。
+**原文翻译：**
 
-此外，周一美国中央司令部负责人肯尼斯·麦肯齐（Kenneth McKenzie）将军也发表了上个月拜登总统入主白宫后的首次公开讲话。他抨击伊朗是该地区最主要和 “最具挑战性的不稳定因素”，同时进一步指出德黑兰和华盛顿目前处于 “有争议的威慑 “状态。
+# **推特因“门户专家”（Gateway Pundit）违反“公民诚信政策”而永久禁止其账号**
 
-麦肯齐将军说：”四十多年来，伊朗政权一直在资助并积极支持恐怖主义和恐怖组织，并无视国际准则，进行恶意活动，不仅破坏了该地区的稳定，也破坏了全球安全和商业。”
+推特已经永久封禁了受欢迎的保守网站门户专家(The Gateway Pundit)的创始人吉姆·霍夫特(Jim Hoft)的帐号，据说该帐号违反了社交媒体巨头的“公民诚信政策”。
 
-“我们在该地区的存在，主要是防御性的，使我们与伊朗进入了一个有争议的威慑时期，”他补充道。”这种存在发出了一个清晰明确的信号，即我们捍卫伙伴和国际利益的能力和意愿，伊朗政权已经清楚地收到了这一信号。”
+[!\[\]()!\[\](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/eb67c039-cc82-4ef7-835a-df4f4b9df5b6.png?asset_id=99ae1535-5947-466c-b03d-85a997b17b62&amp;img_etag=%22998255f28778a9ebd52afab864e82cb8%22&amp;size=2560)](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/eb67c039-cc82-4ef7-835a-df4f4b9df5b6.png?asset_id=99ae1535-5947-466c-b03d-85a997b17b62&amp;img_etag=%22998255f28778a9ebd52afab864e82cb8%22&amp;size=1024)
 
-这位中央司令部司令直言不讳指出，华盛顿和德黑兰是否会参与恢复2015年核协议（JCPOA）仍然是一个悬而未决的问题。伊朗已经告诉美国，如果美国希望恢复参与，就必须首先放弃制裁，而华盛顿则明确表示，伊朗必须按照协议的规定，迈出恢复铀浓缩上限的第一步。
+霍夫特的推特账号@gatewaypundit有超过37.5万关注者，是该媒体频道在推特上的主要帐号。在门户专家网站发布了底特律TCF中心大选夜间监控视频录像一天之后，推特账号被禁。据媒体报道视频中一辆面包车“卸下成千上万张非法选票”，之后“拜登在密歇根获得领先”。
 
-麦肯齐将军的大胆言论无疑只会加剧核协议未来命运的争议和不确定性。
+据《公民自由报》报道，一名推特发言人称：“该帐号因屡次违反我们的公民诚信政策而被永久停用。”
 
-#### 译评：
+禁令发布后，“门户专家”说关于监控录像，“他们将在未来几天内就此事件进行更多报道”，因为他们尚未公布全部信息。霍夫特在被禁前几小时发布了以下推文：
 
-最近印太地区波谲云诡，美国航母战斗群频频亮相，麦凯恩号驱逐舰穿越台湾海峡，在美国、日本和澳大利亚在关岛外联合军演之际，中共联合俄罗斯、伊朗——自己的大哥和小弟——也要秀一秀并不丰满的肌肉，其意不言自明。
+[!\[\]()!\[\](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/361a2d37-814c-4f93-8f21-db6675674856.png?asset_id=75d5f716-d8a3-4437-b0f5-638c4794d0b7&amp;img_etag=%2285ab37abd948753272f1ee4b237c8873%22&amp;size=2560)](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/361a2d37-814c-4f93-8f21-db6675674856.png?asset_id=75d5f716-d8a3-4437-b0f5-638c4794d0b7&amp;img_etag=%2285ab37abd948753272f1ee4b237c8873%22&amp;size=1024)
 
-现在的中共还可以勒紧裤腰带，拿出足够的利益与诱惑，把“俄爹”、伊朗等小弟绑上自己的战车，但是随着美国弱共、脱共政策的深入，中共的经济必然崩塌，现在就已经初见端倪，未来如果真的发生了战争，这几个“铁杆”兄弟恐怕会纷纷跳车各自保命了吧？！
+推文翻译：仅供参考——假新闻媒体和其他媒体从周五开始挑战了我们的TCF中心视频报道。那是一个糟糕的举动。我们还会有更多报道！
 
-[原文链接](https://www.zerohedge.com/geopolitical/russia-iran-china-hold-joint-naval-drills-centcom-chief-blasts-iran-driver-instability)
+当自由派推特用户庆祝霍夫特被封杀——支持审查制度的组织“沉睡巨人”（Sleeping Giants）的创始人在呼吁彻底废除货币时，人们仍然可以在以下平台上找到“门户专家”：
+
+[Telegram](https://t.me/gatewaypunditofficial) | [Gab](https://gab.com/gatewaypundit) | [SafeChat](https://safechat.com/channel/2775585583991869440) | [MeWe](https://mewe.com/p-front/thegatewaypundit) | [Clouthub](https://app.clouthub.com/public/de31dfd6-a8c2-4d87-9229-fd615cea059f) | [Minds](https://www.minds.com/gatewaypundit_official) |[Politichatter](https://politichatter.com/gatewaypundit)
+
+**🔗[原文链接](https://www.zerohedge.com/political/twitter-permanently-bans-gateway-pundit-violating-civic-integrity-policy?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)**
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
