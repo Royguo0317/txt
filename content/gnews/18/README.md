@@ -1,48 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/02/08 汤姆·科顿：拜登政府应意识到中共是最危险的威胁
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/895259/)
+## 门户专家网站的推特被永久封杀
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/895334/)
 
-视频字幕：文府 | 听写/翻译：Roberts | 翻译校正/简评/文字整理/编辑：势不可挡
+*新闻来源：《零对冲》| 作者：TYLER DURDEN泰勒·杜登 | 发布时间：2021年2月6日*
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/02/200827_abcnl_rnc4_cotton_hpMain_16x9_992-1.jpg)
+*翻译/简评：Linda B | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii*
+
+[!\[\]()!\[\](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/32bc2834-5a39-4ca0-bf59-c3e25f144202.jpg?asset_id=5c169d68-bb23-4fd0-9b26-89a4352ab4b9&amp;img_etag=%226d7a716fbbde04323a8703a358d4e599%22&amp;size=2560)](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/32bc2834-5a39-4ca0-bf59-c3e25f144202.jpg?asset_id=5c169d68-bb23-4fd0-9b26-89a4352ab4b9&amp;img_etag=%226d7a716fbbde04323a8703a358d4e599%22&amp;size=1024)
 
 **简评：**
 
-2021年2月8日，美国参议员汤姆·科顿（Tom Cotton）在FOXNEWS接受布莱恩·基尔梅德（Brian Kilmeade）的采访表示，拜登政府不会像川普政府那样对中共强硬，至少现在表现得不够强硬，甚至有绥靖趋势。科顿一年前就要求进入武汉病毒实验室调查中共释放给世界的病毒是否是瘟疫的源头，当时被媒体大肆宣扬为阴谋论，但现在媒体也承认这是合理的，需要进一步调查。科顿明确呼吁，拜登政府应立刻要求进入武汉病毒实验室，甚至连拜登的左媒朋友也这么要求。他最后指出，中共是全世界的威胁，它利用国际规则和国际组织，为了自己的利益威胁和腐蚀他们，美国不会对此听之任之。
+**美国不曾想到，只有在中共专制制度下的言论管控会在美国这个自由、民主的社会中出现。当一个政府不愿意听到反对意见，即使是真实的声音，它就会用权力扼杀人民的声音。在今年总统大选期间多次出现的选举不公正事件和对不公正现象的揭露和报道，都遭到了推特等社交媒体巨头的打击。对“门户专家”网站在推特上的帐号进行封杀和中共打击言论自由的行为如出一辙。美国渐渐沦陷，媒体、科技公司操纵言论，左右民意。美国这个经自由选举产生总统的制度已经徒有其表，人民的意愿已被资本巨头践踏。**
 
-**Youtube链接：**
+**今年的大选期间的种种舞弊是多年来中共对美国政客和资本巨头的腐蚀、勾结的结果。美国人民如果还不觉醒，当共产主义成为美国的主流意识，我们中国人的今天，就是美国人的明天。**
 
+**原文翻译：**
 
+# **推特因“门户专家”（Gateway Pundit）违反“公民诚信政策”而永久禁止其账号**
 
-**GTV链接：**[https://gtv.org/video/id=602282a2226e775907424254](https://gtv.org/video/id=602282a2226e775907424254)
+推特已经永久封禁了受欢迎的保守网站门户专家(The Gateway Pundit)的创始人吉姆·霍夫特(Jim Hoft)的帐号，据说该帐号违反了社交媒体巨头的“公民诚信政策”。
 
-**视频字幕：**
+[!\[\]()!\[\](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/eb67c039-cc82-4ef7-835a-df4f4b9df5b6.png?asset_id=99ae1535-5947-466c-b03d-85a997b17b62&amp;img_etag=%22998255f28778a9ebd52afab864e82cb8%22&amp;size=2560)](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/eb67c039-cc82-4ef7-835a-df4f4b9df5b6.png?asset_id=99ae1535-5947-466c-b03d-85a997b17b62&amp;img_etag=%22998255f28778a9ebd52afab864e82cb8%22&amp;size=1024)
 
-**布莱恩**：参议员，拜登不会像川普那样对中共强硬，但是拜登还没有给习近平打电话，川普在马拉哥庄园迎来的第一位客人是中共国主席。所以中共国传递给拜登的是什么信息？中共在各方面都完全没有减速。
+霍夫特的推特账号@gatewaypundit有超过37.5万关注者，是该媒体频道在推特上的主要帐号。在门户专家网站发布了底特律TCF中心大选夜间监控视频录像一天之后，推特账号被禁。据媒体报道视频中一辆面包车“卸下成千上万张非法选票”，之后“拜登在密歇根获得领先”。
 
-**科顿：**早上好，布莱恩，是的，他们没有减速。我很高兴乔·拜登做事的风格不同，你知道在竞选的时候他说中共国的领导不是坏蛋，他们不是我们的竞争者。当然他们是最危险的长期战略竞争对手。
+据《公民自由报》报道，一名推特发言人称：“该帐号因屡次违反我们的公民诚信政策而被永久停用。”
 
-但拜登为了指责川普总统，这个在两届政府之后第一个敢于对抗中共国的总统，他说自己会以不同的方式行事，然而却不明确如何行事，这并不是强硬的表现。
+禁令发布后，“门户专家”说关于监控录像，“他们将在未来几天内就此事件进行更多报道”，因为他们尚未公布全部信息。霍夫特在被禁前几小时发布了以下推文：
 
-一年前的这个星期，我开始要求进入武汉实验室调查中共国释放给世界的病毒是否是瘟疫的源头。要知道当时媒体大肆宣扬这是阴谋论，现在他们也承认这是合理的，应该调查。
+[!\[\]()!\[\](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/361a2d37-814c-4f93-8f21-db6675674856.png?asset_id=75d5f716-d8a3-4437-b0f5-638c4794d0b7&amp;img_etag=%2285ab37abd948753272f1ee4b237c8873%22&amp;size=2560)](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/361a2d37-814c-4f93-8f21-db6675674856.png?asset_id=75d5f716-d8a3-4437-b0f5-638c4794d0b7&amp;img_etag=%2285ab37abd948753272f1ee4b237c8873%22&amp;size=1024)
 
-一年以后，我们美国仍然在应付病毒危机，学校关闭，孩子不能上学，其主要原因就是因为中共的恶意和过失。
+推文翻译：仅供参考——假新闻媒体和其他媒体从周五开始挑战了我们的TCF中心视频报道。那是一个糟糕的举动。我们还会有更多报道！
 
-**布莱恩**：参议员，我的下一个问题是你希望拜登总统采取什么样的措施显示他对中共国的强硬呢？是立刻要求答应进入武汉实验室吗？
+当自由派推特用户庆祝霍夫特被封杀——支持审查制度的组织“沉睡巨人”（Sleeping Giants）的创始人在呼吁彻底废除货币时，人们仍然可以在以下平台上找到“门户专家”：
 
-**科顿：**这是一个很简单的可以做的事情。我的意思是甚至他的左媒朋友也要求进入那些中共国在一年前就开始清除（证据的）武汉实验室。
+[Telegram](https://t.me/gatewaypunditofficial) | [Gab](https://gab.com/gatewaypundit) | [SafeChat](https://safechat.com/channel/2775585583991869440) | [MeWe](https://mewe.com/p-front/thegatewaypundit) | [Clouthub](https://app.clouthub.com/public/de31dfd6-a8c2-4d87-9229-fd615cea059f) | [Minds](https://www.minds.com/gatewaypundit_official) |[Politichatter](https://politichatter.com/gatewaypundit)
 
-当然你也可以做其他事情，像继续加强台湾军售。川普政府明确表示，如果中共继续威胁台湾和印度地区，我们将与我们在中共国周边的盟国站在一起，也明确表示中共国是最危险的威胁。
-
-如果他们不遵循国际规则，向他们清楚地表明我们知道中共国利用国际规则和国际组织，为了自己的利益试图威胁和腐蚀他们，我们不会对此听之任之。
+**🔗[原文链接](https://www.zerohedge.com/political/twitter-permanently-bans-gateway-pundit-violating-civic-integrity-policy?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)**
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
 
 
 编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
 0
