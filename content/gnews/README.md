@@ -12,168 +12,165 @@
 
 ---
 
-### [德国驱逐俄罗斯外交官](/content/gnews/1/README.md)
- ` 喜马拉雅德国慕尼黑感恩农场`
-
-### [泄漏音频显示世卫组织于中共病毒疫情之初暗批中共](/content/gnews/2/README.md)
- ` gnewscanada`
-
-### [【文字版】路德时评2021.2.7早间（路郝叶安墨谈）:与郝海东，叶钊颖畅谈大家最近最关系的话题！](/content/gnews/3/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [燕郊房产变负产](/content/gnews/4/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
-
-### [中企巨资在澳打造自家后花园 &#8211; 新达鲁城](/content/gnews/5/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [波罗的海国家&#8221;忽悠&#8221;欧盟选择拜登结盟](/content/gnews/6/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [【灭共头条】Clubhouse软件爆出中共统治下新疆和香港的真实状况](/content/gnews/7/README.md)
+### [视频2/6/2021 Kevin Freeman: 中国进行系统性的努力尽可能排挤美元](/content/gnews/1/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频【字幕】2/8/2021文贵盖特：中共即将崩塌的经济和党员们对未来财富安全的恐惧，正在改变着世界的经济的格局](/content/gnews/8/README.md)
- ` 纽约香草山MOS01`
+### [中共超限生化战：一个至今仍被忽略的关键角度与四个实施攻击的可能性细节](/content/gnews/2/README.md)
+ ` 旧金山金喜准农场 Himalaya San Francisco Golden Farm`
 
-### [美众议员罗恩·赖特感染中共病毒去世](/content/gnews/9/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [【香港要闻】港台7投诉其一为转播央视节目 通讯局疑双重标准不接纳《另一个香港》投诉](/content/gnews/3/README.md)
+ ` 喜馬拉雅大使館-粵語組`
 
-### [无论是否有疫苗，科学家们现在相信中共病毒将持续存在](/content/gnews/10/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [视频中共抗疫层层加码，不管民死活：男子低风险区返乡被隔离7天](/content/gnews/11/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [涉为中共制大规模杀伤性武器 英过百名学者被调查](/content/gnews/12/README.md)
+### [拜登悄然撤销了川普对中共在美国学校进行宣传的禁令](/content/gnews/4/README.md)
  ` gnewscanada`
 
-### [【快讯】Flash“遭”停用 多地政府官网受影响](/content/gnews/13/README.md)
- ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
+### [民主之花的培养需要民主的土壤](/content/gnews/5/README.md)
+ ` 喜馬拉雅的文雅 Wenya Himalaya`
 
-### [【看七哥视频】中共不灭，一切都是空谈！](/content/gnews/14/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
+### [视频CCP宣传的黄色歌曲颠倒它与人民的关系以此对老百姓进行洗脑](/content/gnews/6/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [【每日快报】WHO专家组三小时在武毒所够干什么？就在会议室聊天和彼此拥抱吗？2021.02.08.](/content/gnews/15/README.md)
- ` 喜马拉雅-华盛顿DC农场`
+### [视频1/15/2021 Lee Merritt博士【精选汇总】: 病毒是中共的二元武器](/content/gnews/7/README.md)
+ ` 秘密翻译组G-Translators`
 
-### [参议员警告新政府勿全盘推翻川普的外交政策](/content/gnews/16/README.md)
- ` HimalayaRussia`
+### [中共扣押人质毫无歉意 加拿大却因T恤向中共屈膝致歉](/content/gnews/8/README.md)
+ ` gnewscanada`
 
-### [【香港要闻】学生组织抗赤化 吁市民联署反对通识科改革](/content/gnews/17/README.md)
+### [世卫参观P4实验室三个小时 党媒宣称病毒不可能从此处泄漏——打脸！](/content/gnews/9/README.md)
+ ` 旧金山金喜准农场 Himalaya San Francisco Golden Farm`
+
+### [视频【精华版粤语配音】班农战斗室 703期 福奇这个病态骗子必须被追责](/content/gnews/10/README.md)
  ` 喜馬拉雅大使館-粵語組`
 
-### [视频【路德时评粤语快报】02.07:郝董和叶女侠近期重大事件评论 路德揭露Sara背叛历程](/content/gnews/18/README.md)
- ` 喜馬拉雅大使館-粵語組`
-
-### [喀秋莎新闻参考- 2021年2月7日 (星期日)](/content/gnews/19/README.md)
- ` HimalayaRussia`
-
-### [美国计划重返联合国人权理事会](/content/gnews/20/README.md)
- ` HimalayaRussia`
-
-### [国内菜价不断上涨 中共损招频频](/content/gnews/21/README.md)
- ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
-
-### [从“九指妖”事件看中共在爆料革命中的超限战](/content/gnews/22/README.md)
- ` HimalayaRussia`
-
-### [【战友寄语】港共官员黑警害怕什么？迫不及待要封网](/content/gnews/23/README.md)
- ` 喜馬拉雅大使館-粵語組`
-
-### [2021年2月8日 文贵先生盖特 1](/content/gnews/24/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
-
-### [英国为认定中共种族灭绝罪斗争正酣](/content/gnews/25/README.md)
- ` HimalayaRussia`
-
-### [【战友寄语】：教育不应沦为政治的工具](/content/gnews/26/README.md)
- ` 喜馬拉雅大使館-粵語組`
-
-### [比利时应对中共病毒大流行战略取得成果](/content/gnews/27/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [首尔将给宠物猫狗免费检测中共病毒](/content/gnews/28/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [科顿参议员批拜登对中共政策缺少战略细节](/content/gnews/29/README.md)
- ` HimalayaRussia`
-
-### [中共警告将制裁抵制北京2022年冬奥会的国家](/content/gnews/30/README.md)
- ` HimalayaRussia`
-
-### [冒充成记者的中共间谍遭英国驱逐](/content/gnews/31/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共国正在盗取美国公民的DNA信息](/content/gnews/32/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [《路德时评》重磅揭露拜登想方设法替中共取消种族灭绝罪，及纳瓦罗爆料巴尔才是阻挠灭共的潜伏力量](/content/gnews/33/README.md)
+### [《路德时评》解读巡视组批评政法委余毒肃清不到位，及中共病毒真相调查越演越烈](/content/gnews/11/README.md)
  ` 香柏树`
 
-### [“他们的目标是摧毁所有人”：维吾尔集中营的被拘人员指控遭受系统性强奸（二）](/content/gnews/34/README.md)
- ` 波士顿五月花农场`
-
-### [【墙内热搜】2021年2月8日 墙国时事快讯](/content/gnews/35/README.md)
- ` 纽约香草山MOS01`
-
-### [郭先生0206VII手持钢叉的闰土终于退掉GTV的椅子，快走不送](/content/gnews/36/README.md)
- ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
-
-### [海关数据显示：CCP病毒大流行期间，中共国向美国寄送了数百万个口罩和测试包伪劣品](/content/gnews/37/README.md)
+### [中共政权在海外攻击本国公民，此举“领先世界”](/content/gnews/12/README.md)
  ` 康州盘古喜马拉雅农场`
 
-### [看CNN采访崔天凯的丑陋表演](/content/gnews/38/README.md)
+### [中共收紧对社交媒体的控制，时事评论需要许可证](/content/gnews/13/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [中共国海警连续两日骚扰日本海域航行渔船](/content/gnews/14/README.md)
+ ` Himalaya Australia`
+
+### [私自“炒房”不允许，官宣又可以？](/content/gnews/15/README.md)
+ ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
+
+### [【香港要闻】拟迫市民扫「安心出行」才可入食肆港府继续推行「智慧灯柱」](/content/gnews/16/README.md)
+ ` 喜馬拉雅大使館-粵語組`
+
+### [国民党在台进行报复性罢免](/content/gnews/17/README.md)
+ ` G-NEWS TAIWAN`
+
+### [郭先生0206XIX七哥教你用羊肉/高筋粉/鲍鱼汁穿羊肉丸子](/content/gnews/18/README.md)
+ ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
+
+### [郭先生0206XVIII灭共是战友凝聚的502不灭共假灭共就没有黏和力](/content/gnews/19/README.md)
+ ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
+
+### [蔡英文总统公开发表：国安没有假期](/content/gnews/20/README.md)
+ ` G-NEWS TAIWAN`
+
+### [华裔生物学家邱香果夫妇被解雇并正接受加拿大皇家骑警调查](/content/gnews/21/README.md)
+ ` gnewscanada`
+
+### [郭先生0206XVII昔日土匪起家的共产党比今天爆料革命实力差太远](/content/gnews/22/README.md)
+ ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
+
+### [郭先生0206XVI七哥要做个镜子把共产党想干的非法事儿合法做到](/content/gnews/23/README.md)
+ ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
+
+### [联合国报告揭朝鲜窃3亿美金发展核武和导弹](/content/gnews/24/README.md)
  ` HimalayaRussia`
 
-### [中共环球电视网在英国的广播许可证被英国通讯管理局依法撤销](/content/gnews/39/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [郭先生0206VI九指妖要开发傻币的消息除了可以通便还有啥](/content/gnews/40/README.md)
+### [郭先生0206XV Sara试图按需杀人造成很多人没有能力和机会取回钱](/content/gnews/25/README.md)
  ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
 
-### [奥地利警告不要前往蒂罗尔省](/content/gnews/41/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [深知自由可贵 波兰拟立法来保护公民的言论自由](/content/gnews/26/README.md)
+ ` gnewscanada`
 
-### [科兴毒疫苗尚未获批，中共就向尼泊尔施压要求使用](/content/gnews/42/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [民间段子，彰显老百姓的智慧与清醒](/content/gnews/27/README.md)
+ ` Himalaya Australia`
 
-### [【香港要闻】警方首次动用【港版国安法】拘捕众筹计划发起人 港网台主持杰斯被控四项煽动罪](/content/gnews/43/README.md)
+### [拜登叫停美加输油管道项目遭85名众议员挑战](/content/gnews/28/README.md)
+ ` gnewscanada`
+
+### [郭先生0206XIV只有不为所动不以物喜不以己悲才有资格谈灭共](/content/gnews/29/README.md)
+ ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
+
+### [郭先生0206XIII丹荷老师吉林战友香港的战友义无反顾救助战友](/content/gnews/30/README.md)
+ ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
+
+### [【观点】勿忘初心，继续灭共](/content/gnews/31/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [台湾防疫18年磨一剑，再次守住部桃群聚感染](/content/gnews/32/README.md)
+ ` G-NEWS TAIWAN`
+
+### [郭先生0206XII Sara不是玩拖延她是有预谋有组织的犯罪杀人集团](/content/gnews/33/README.md)
+ ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
+
+### [如何看待石家庄“隔离大叔”事件？](/content/gnews/34/README.md)
+ ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
+
+### [台湾防疫指挥中心表示：台列疫苗配送名单，但疫苗施打仍要酌情考量](/content/gnews/35/README.md)
+ ` G-NEWS TAIWAN`
+
+### [郭先生0206XI过了KYC共产党想把你垄断在墙里这事儿就失败了](/content/gnews/36/README.md)
+ ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
+
+### [【战云长天时评】拜习外交重启真的朝着打破沉默迈进了关键一步吗](/content/gnews/37/README.md)
+ ` 日本东京樱花团`
+
+### [郭先生0206X很多为爆料革命搭上全家生命的战友被九指妖出卖](/content/gnews/38/README.md)
+ ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
+
+### [郭先生0206IX G系列是完美的商业模型：虚拟货币&amp;实体经营](/content/gnews/39/README.md)
+ ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
+
+### [九指妖Sara吃战友肉！喝战友血！](/content/gnews/40/README.md)
+ ` 日本东京樱花团`
+
+### [郭先生0206VIII:GTV今天所有的数据和做得一切不是神话是传奇](/content/gnews/41/README.md)
+ ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
+
+### [视频香港是中共做恶的活生生的例子](/content/gnews/42/README.md)
+ ` 喜马拉雅玫瑰园小队`
+
+### [【百姓小妍】中共“扶贫慰问”的 “困难户” 名酒名茶样样有](/content/gnews/43/README.md)
+ ` 旧金山金喜准农场 Himalaya San Francisco Golden Farm`
+
+### [莫迪与拜登首次谈话未涉及具体合作细节](/content/gnews/44/README.md)
+ ` HimalayaRussia`
+
+### [【战友寄语] 林郑集团封区不封关 意在为中共维稳](/content/gnews/45/README.md)
  ` 喜馬拉雅大使館-粵語組`
 
-### [英国驱逐伪装成记者的中共间谍](/content/gnews/44/README.md)
- ` 康州盘古喜马拉雅农场`
+### [2021年02月08日澳喜要闻（每日更新）](/content/gnews/46/README.md)
+ ` Himalaya Australia`
 
-### [郭先生0206V共产党在数字货币推行成功前给谁留下最好机会](/content/gnews/45/README.md)
- ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
+### [英军情六处开始调查与中共合作的英国大学](/content/gnews/47/README.md)
+ ` HimalayaRussia`
 
-### [“当委会”敦促纽交所和拜登政府阻止中共三大运营商重新上市](/content/gnews/46/README.md)
+### [南非暂停阿斯利康疫苗接种](/content/gnews/48/README.md)
+ ` Himalaya Australia`
+
+### [【澳洲热点】澳大利亚第二大养老基金放弃中共国战略](/content/gnews/49/README.md)
+ ` 墨尔本雅典娜农场`
+
+### [【三票专栏】中共在缅甸的战略利益分析](/content/gnews/50/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [疫苗对中共病毒真的有效吗？](/content/gnews/51/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [《新闻快递》节目摘要2021.02.05](/content/gnews/52/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [视频国语【香港快讯】 2.08 亲共英籍大律师伦为中共传声筒 打压本港民主运动竞逐和平奖](/content/gnews/47/README.md)
+### [【香港要闻】《基本法》保护下的陪审团制度 在中共控制下也荡然无存](/content/gnews/53/README.md)
  ` 喜馬拉雅大使館-粵語組`
 
-### [【文字版】路德时评2021.2.7晚:爆料革命内部战友爆料拜登为什么说没有“时机”给习近平打电话](/content/gnews/48/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [郭先生0206IV美国已摇摇欲坠，中共的数字货币的软肋是什么](/content/gnews/49/README.md)
- ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
-
-### [【三票专栏】 《商君书》选读（3）](/content/gnews/50/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [中共谴责英国将百万港人变成“二等公民”](/content/gnews/51/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共推迟毒疫苗接种目标](/content/gnews/52/README.md)
+### [希腊反对派指责总理蔑视封锁规则](/content/gnews/54/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [中共国船只连续两天进入尖阁领海](/content/gnews/53/README.md)
- ` 西班牙巴塞罗那喜悦农场`
-
-### [驱逐孔子学院后，美国从台湾寻求中华文化的替代](/content/gnews/54/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
-
-### [中共国教授骗取美国国立卫生研究院200万美元的拨款](/content/gnews/55/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
 

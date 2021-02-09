@@ -1,81 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 海关数据显示：CCP病毒大流行期间，中共国向美国寄送了数百万个口罩和测试包伪劣品
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/892801/)
+## 【战云长天时评】拜习外交重启真的朝着打破沉默迈进了关键一步吗
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/893798/)
 
-翻译：康州盘古农场-Layka
-校对：康州盘古农场-烟波浩淼
-编辑：康州盘古农场-Antsee-GTV
+作者：捆绑CCP一千年/喜马拉雅东京樱花团
+![]()![](https://gnews.org/wp-content/uploads/2021/02/PHOTO-2021-02-08-16-56-15.jpg)
+北京时间2月8日，台视新闻转述了美国哥伦比亚广播公司CBS主持人采访拜登总统的报道。主持人就“美中关系可能是全球最重要的议题之一，为何您还没致电习近平”的问题时拜登总统羞涩地抬起脸回应说：“我们还没有机会跟他通话，没有理由不致电给他。别人告诉我，我跟习近平相处的时间可能比任何世界领袖都还多，曾与他有过24至25小时的私人会谈，跟他旅行1万7000英里，我很了解他，但我没有批评的意思，只是反映现实。在他的骨子里没有一点民主。但我一直以来都对他说，我们不必发生冲突，但是竞争将会非常激烈，”
 
-![customs]()![customs](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-08-at-23.38.45.png)
+拜登总统的确很了解习近平，毕竟曾经和习近平有过1万7000英里美好而漫长的蜜月旅行。这很有趣，更有趣的是，拜登总统急于表达了他想给习近平打电话的想法，认为他现在还没办法扫除拦阻在他们之间通话的一些障碍。希望通过媒体安抚习近平。甚至有点埋怨习近平连一点假民主的姿态都不会做，只是一味地勇敢直冲。尽管这样，拜登仍旧告诉习近平，似乎在说，至少我没有打你的计划，但我很难保住不打你，希望你好自为之，我在期待着与你共进晚餐。
 
-根据美国海关和边境保护局（CBP）最新发布的报告，从2019年10月到去年9月30日，**中共国约占美国海关官员查获的假冒或不合格**[**CCP****病毒**](https://www.theepochtimes.com/t-covid-19)**相关产品的****51****％。**
+对拜登总统这番讲话，路德社于美国时间2月7日的《路德时评（路博艾冠谈）》晚间节目也及时跟进，就“‘亲共者’拜登对华政策首提习近平”话题做了很详实的分析。笔者肯定路德对拜登总统的定性为“亲共者”。大意是拜登政府随时都有可能因为处理中共问题上发生大的变化，对拜登面临中共施压过程中仍有翻转的可能。笔者表示谨慎乐观，除非共和党能对现政府在延续川普总统对中共政策采取近乎敌对国战略的执行力上能做到有效监督，否则，拜登政府会继续在收买民意上采取更积极做法。使其政府的合法性得到美国人认可。毕竟时间有时候能冲淡一切。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/PHOTO-2021-02-08-16-56-13.jpg)
+2020年虽然已经翻篇了，但大选舞弊并没有翻过去。在世界和美国一道经历了史无前例的2020美国大选舞弊并成功窃取政权后，选民还会相信有公正的选举吗？民主党如果在第一任期成功执政四年，你会相信美国能解决Dominion选票机的问题吗？选举继续被操纵就成了必然。不过，根据笔者看来，这样的恶性循环不会继续下去，前国务卿蓬佩奥既然卸任后就宣布参选下一任总统，他们就一定有办法联络一切能联络的爱国者去改变这一现状，直到针对前总统川普选举舞弊案得以昭雪。不然，时间一定会抹去人们痛苦的记忆。
 
-在美国海关官员扣押的产品中，**有超过****1270****万个假冒**[**口罩**](https://www.theepochtimes.com/t-masks)， 被美国食品药品监督管理局（FDA）禁止使用的**177,356****个中共****病毒****测试试剂盒**，和**38,098****种美国食品药品监督管理局禁止的氯喹****药****片。**
+在时间中消灭敌人的做法，中共国最善于玩的战术就是在利用美国两党相互掣肘的时间缝隙中保存自己，从而获得或调整对超限战的主导权。对于拜登总统来说，同样需要时间的是他急需寻求其执政的合法性。于是，拜登总统试图效法罗斯福总统，用炉边谈话的方式展开对选民的沟通策略，希望在媒体配合下弥合美国的裂缝。中共国新华社2月8日报道了拜登总统这一举措。相比拜登总统涉中讲话的新闻来说，中共显然是避重就轻地进行了有利于重塑拜登形象的报道。现实经验告诉我们，拜登总统的形象不可能再次被高举。除非共产党政权在他手上被铲除。尽管如此，拜登总统还是为自己的合法性迈出了一个实质性的行动，企图利用《炉边谈话》的方式和1.9万亿美元的COVID19纾困法案来收获民意。
 
-对抗疟药有效的硫酸羟氯喹，及其它的密切相关的氯喹治疗[CCP病毒](https://www.theepochtimes.com/giving-the-right-name-to-the-virus-causing-a-worldwide-pandemic-2_3277200.html)引起的症状方面有很多争论。
+我们有必要简单了解一下“炉边谈话（Fireside chats）”，根据维基百科介绍，这是美国富兰克林·罗斯福（Franklin D. Roosevelt）总统在1933年间通过晚间广播讲话的方式发表的一系列针对选民关心的话题的讲话。在一系列的讲话中，罗斯福向成千上万的美国人讲述了从大萧条中如何复苏计划，比如面对银行危机出台的紧急银行法，以此来应对1936年的经济衰退。在处理这些问题上诞生了罗斯福新政。众所周知，拜登总统能在广播中复制“罗斯福新政”吗？他能够像罗斯福平息谣言那样平息亨特败登硬盘门吗？他能像罗斯福那样取信保守派报纸吗？并直接向美国人民解释他的政策时能取信选民吗？甚至在拜登本人通共事实的绝望中能处理他的不确定性吗？他的语气和举止还有底气向美国人传达自信吗？罗斯福被认为是广播方面的成功者，在他任职期间，炉边谈话使他倍受公众关注。而拜登总统显然在面对一连串的问号中无法取信于民。
 
-美国食品药品监督管理局（FDA）最初针对这两种药物[发布](https://www.fda.gov/media/136534/download)了紧急使用授权， 但后来在去年6月[撤销](https://www.theepochtimes.com/fda-revokes-emergency-authorization-of-hydroxychloroquine-for-ccp-virus_3389032.html)了授权， 说他们“不可能有效地治疗CCP病毒引起的症状。”
+笔者还是那句话，拜登总统仍然无法摆脱习近平招魂似的呼唤，正如笔者在《威胁与警告，中共指责拜登政府不给蜜月期》一文中所言，习近平“认为他才是拜登的盟友，既然你承认修复关系，就不要打口炮，继续敞开你的酥胸，我们同床双休才是朋友的做法。”甚至开启新的“拜习蜜月旅行”，最好是2万5000英里的蜜月旅行，只有这样，才能博得主人欢心才对啊。因此，新华社报道拜登的炉边谈话是对其拜习外交努力肯定的一个举措。然而，拜登却无法像中共摘除人体器官那样摘除中共头上那个反人类罪的帽子。这才是横亘在拜登投怀道路上的一个无法挪去的绊脚石。
 
-但是，已有研究表明它们的有效性： 一项[研究](https://www.theepochtimes.com/hydroxychloroquine-lowers-covid-19-death-rate-us-study-finds_3410208.html)表明硫酸羟氯喹可降低中共病毒感染者的死亡率， 而另一项[研究](https://www.theepochtimes.com/hydroxychloroquine-drug-cocktail-lowers-covid-19-hospitalizations-by-84-percent-study-suggests_3594328.html)表明，含有羟氯喹的药物鸡尾酒可以降低感染病毒的患者的住院率和死亡率。
+2021年1月20日15:20写于东亚
 
-**美国食品药品监督管理局****(FDA)****目前有一个**[**数据库**](https://www.fda.gov/consumers/health-fraud-scams/fraudulent-coronavirus-disease-2019-covid-19-products)**，列出了包括测试包在内的中共病毒欺诈性产品。**** ****这个列表中包含了公司名称及其产品名称。**
+台视新闻：[https://youtu.be/8nbfBZcXavY](https://youtu.be/8nbfBZcXavY)
 
-在去年的12月，辛辛那提的海关官员查获了10,080件假冒的外科口罩， 源自中共国的一批货被标记为“ 3M 口罩，型号1860” , [根据新闻报道](https://www.cbp.gov/newsroom/local-media-release/10080-counterfeit-surgical-masks-seized-cincinnati)。装有口罩的盒子被欺诈性地标记为“美国制造”。
+路德社：[https://youtu.be/WwM6Y6l6KUg](https://youtu.be/WwM6Y6l6KUg)
 
-**如果是真品，这些假冒的****3M****制造商的建议零售估价为****65,520****美元。**
+Fireside chats：[https://en.wikipedia.org/wiki/Fireside\_chats](https://en.wikipedia.org/wiki/Fireside_chats)
 
+新华号：[http://my-h5news.app.xinhuanet.com/xhh-pc/article/?id=2f7bb00a-5137-44fa-8a26-0f856a697c09](http://my-h5news.app.xinhuanet.com/xhh-pc/article/?id=2f7bb00a-5137-44fa-8a26-0f856a697c09)
 
+[http://www.xinhuanet.com/video/2021-02/07/c\_1211016125.htm](http://www.xinhuanet.com/video/2021-02/07/c_1211016125.htm)
 
-> CBP officers in Cincinnati made a significant seizure of counterfeit masks that were packaged advertising protection against communicable respiratory diseases. Officers seized the 21 shipping boxes that contained over 10K counterfeit mask.[https://t.co/L0x1I1qaXF](https://t.co/L0x1I1qaXF) [pic.twitter.com/2irnkDArZ6](https://t.co/2irnkDArZ6)
-> — CBP Chicago (@CBPChicago) [January 15, 2021](https://twitter.com/CBPChicago/status/1350211985737191424?ref_src=twsrc%5Etfw)
+审稿：文小白/喜马拉雅东京樱花团
 
+文章只代表作者观点，与Gnews网站无关
 
-*在辛辛那提的美国海关和边境保护局（CBP）官员没收了大量的假冒的口罩，包装成抵抗传染性呼吸道疾病的广告保护。 官员缴获了21个装有超过1万只假冒口罩的运输箱。*
-*CBP芝加哥@CBP芝加哥* *2021年1月15日*
-假冒口罩也有从香港运抵美国。 辛辛那提海关官员于2020年12月6日[缉获](https://www.cbp.gov/newsroom/local-media-release/6080-counterfeit-3m-masks-stopped-cincinnati-cbp)了从香港来的6,080个假3M口罩货运。
+HTS-02C-202102-020
 
-去年9月在芝加哥也发生了一次[缉获](https://www.theepochtimes.com/chicago-cbp-seizes-500000-counterfeit-n95-masks-from-china_3500324.html?utm_medium=social&amp;utm_source=twitter&amp;utm_campaign=digitalsub)， 官员阻止了装有500,000件伪造N95口罩的货物。 如果是正品, 经确定，这些口罩的零售估价为474,905美元。 这批货物来自中共国南方城市深圳，运往新泽西州马纳拉潘的一家公司。
-
-**强迫劳动产品**
-
-美国海关边防总署的报告还提到，海关官员发布了创纪录的13份[新的暂缓释放令](https://www.cbp.gov/trade/programs-administration/forced-labor)，禁止进口以强迫劳动制造的产品， 截止至2020年9月30日的12个月内。
-
-这些针对性产品大多数来自中共国，包括一次性手套，海鲜和棉花。 据该报告称，这些产品加起来价值近5,000万美元。
-
-在1月13日，美国海关边防总署发布了一项新的预扣释放令，禁止从中共国西部新疆地区进口所有棉花，服装，纺织品和番茄制品。
-
-**中共在新疆的拘留所里已经****[拘留](https://www.state.gov/wp-content/uploads/2019/06/2019-Trafficking-in-Persons-Report.pdf)****了包括维吾尔族，哈萨克族和吉尔吉斯斯坦在内的超过****100****万以上的穆斯林民族。**** ****被拘留者受到强迫劳动，酷刑和政治灌输。**** ****中共声称这些集中营是****“****职业培训中心****”****。**
-
-在去年8月份，一家美国公司因进口了在中共国的监狱犯人劳工制作的甜菊粉及其衍生品而被[罚款](https://www.theepochtimes.com/us-company-fined-for-importing-sweetener-made-by-chinese-prison-labor_3461766.html)57.5万美元，几个月后在10月份，美国海关边防总署[要求](https://www.theepochtimes.com/us-orders-seizure-of-imports-of-chinese-sweetener-after-finding-forced-labor-was-used_3546355.html)美国所有港口扣押内蒙古一家公司生产的甜叶菊产品, 有证据表明该公司使用定罪，强迫或契约劳动的劳工来制造产品。
-
-据报告称：“目前，美国海关边防总署正在执行44份有效的预扣释放订单和7份[有效的调查结果](https://www.cbp.gov/trade/programs-administration/forced-labor/withhold-release-orders-and-findings)。”
-
-**一般产品**
-
-最后，该报告得出结论，美国海关边防总署官员共检获26,503批货物，发现其产品侵犯了美国知识产权，中共国是此类检获的“头号来源”。 **这些产品的制造商建议零售总额估计将超过****13****亿美元。**
-
-
-
-> ICE, [@CBP](https://twitter.com/CBP?ref_src=twsrc%5Etfw) and LAPD seize counterfeit Viagra pills, footwear, belts, car emblems and headphones worth more than $32 million at the Los Angeles/Long Beach Seaport. Learn more: [https://t.co/cK9jWDw1mo](https://t.co/cK9jWDw1mo) [pic.twitter.com/67QjuucuO2](https://t.co/67QjuucuO2)
-> — ICE (@ICEgov) [December 17, 2020](https://twitter.com/ICEgov/status/1339713237676400643?ref_src=twsrc%5Etfw)
-
-
-*美国移民和海关执法 (ICE)@美国海关边防总署(CBP) 和洛杉矶警察局 (LAPD)在洛杉矶/长滩海港缉获了价值超过3200万美元的假冒伟哥药丸，鞋类，皮带，汽车标志和耳机。 了解更多：https：//xsm.link/gi72kd* 
-*冰@ ICEgov* *2020年12月17日*
-去年12月，洛杉矶海关官员[缉获](https://www.cbp.gov/newsroom/local-media-release/counterfeit-viagra-pills-footwear-belts-car-emblems-and-headphones)了来自中共国的三批包含假冒产品的货物，价值可能超过3200万美元。
-
-在查获的假冒产品中有100万个仿制的伟哥药丸，鞋类，皮带，钱包和耳机。
-
-美国海关总署于去年12月21日[宣布](https://www.cbp.gov/newsroom/local-media-release/counterfeit-viagra-pills-footwear-belts-car-emblems-and-headphones)，在纽约港/纽瓦克还查获了价值约130万美元的中共国假冒玩具。
-
-本文作者：泰勒·杜登 （Tyler Durden）
-
-弗兰克·方（Frank Fang）撰写发表于《大纪元》
-
-发表时间：2021年2月5日
-
-原文链接：[https://www.zerohedge.com/geopolitical/during-pandemic-china-sent-millions-counterfeit-masks-test-kits-us-customs-data](https://www.zerohedge.com/geopolitical/during-pandemic-china-sent-millions-counterfeit-masks-test-kits-us-customs-data)
-
-+1
++3
