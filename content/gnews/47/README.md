@@ -1,26 +1,76 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【灭共头条】中共驻美大使崔天凯提议 WHO 在美调查病毒起源
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/895019/)
+## 布林肯表示将延续川普对中共国的政策
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/895318/)
 
-#### 编译报道：MIYA【㊙️翻 Gnews原创组】
-责任编辑：萌萌的朋克
-![]()![](https://gnews.org/wp-content/uploads/2021/02/淬体N-3.jpg)图片来源：新浪网
-中国驻美国大使崔天凯周日在接受CNN电视采访时建议，世界卫生组织（WHO）应该调查病毒爆发是否始于美国某地而非武汉。崔天凯还批评病毒从武汉病毒研究所泄露的说法没有证据，认为提出指控的人有举证的责任。
+*新闻来源：《HKFP 香港自由新闻》| 作者：| 发布时间：2021年2月7日*
 
-据福克斯新闻2月7日报道，采访中当电视主持人提出对该研究所内部员工的感染情况和对 WHO 团队在武汉调查自由度的疑问时，崔天凯回答说，科学家们正在那里“查看所有的事实”，各国不该针对病毒起源进行无端指责，鉴于媒体报道过世界其他地方的早期病例，WHO 有必要在世界各地进行溯源研究，找到病毒真正的源头。他还反问道，“世卫组织是否会被允许来美国做同样的事情？”
+*翻译/简评：wmorpho | 校对：SilverSpurs7 | 审核：万人往 | Page：拱卒*
 
-回溯中共对病毒起源的说辞，从武汉突发至今的一年多时间，一直在频繁地变化。最初中共声称病毒来自武汉华南海鲜市场的野生动物；在多种野生动物来源说均站不住脚的情况下，中共开始大力宣传病毒境外输入，例如进口冷冻食品发现病毒、其他国家在武汉出现病例前检测出含有病毒的血清样本等。中共外交部发言人赵立坚曾在其推特上指出，病毒是由去年10月参加军运会的美国军人带入武汉。
+[!\[\]()!\[\](https://spark.adobe.com/page/NATQRmddATOxw/images/823a5ac6-b1f9-40fa-a067-acd8394c6e17.jpg?asset_id=3051d8f1-5145-4047-82da-fec26c19b858&amp;img_etag=%22c2d6ce5fdfe892a25f24ca37152d3e3f%22&amp;size=2560)](https://spark.adobe.com/page/NATQRmddATOxw/images/823a5ac6-b1f9-40fa-a067-acd8394c6e17.jpg?asset_id=3051d8f1-5145-4047-82da-fec26c19b858&amp;img_etag=%22c2d6ce5fdfe892a25f24ca37152d3e3f%22&amp;size=1024)
 
-当闫丽梦博士发布病毒来源报告后，武汉病毒研究所一度成为众人关注的焦点，面对病毒来自实验室理论的强大压力， 赵立坚再次公开指向美国德特里克堡基地（Fort Detrick），提出美国应接受WHO专家去基地开展溯源调查。
+**简评：**
 
-对病毒溯源的闪烁其辞掩盖不了中共军方拥有“舟山蝙蝠病毒骨架”的事实。已夺去230多万条生命的中共病毒与舟山蝙蝠病毒的基因图谱DNA相似度高达94.21%，做贼心虚的中共在武汉疫情初发时多次偷换上传给 WHO 的病毒序列号，闫丽梦博士密切跟踪中共造假留下的痕迹，用大量科学的证据和掌握的情报判断病毒会人传人、大爆发和强变异，她冒死通过自媒体《路德社》发出病毒会大爆发的警报，并发布揭露病毒是中共军方实验室的超限生物武器的报告。无论中共如何“甩锅“，关于病毒来源的海量情报和证据最终只会指向一个真相——中共就是幕后黑手！
+华盛顿时间上周五，美国与中共国两大强国政府高层进行了自乔·拜登总统就职以来的首次通话。美国国务院在声明中说，国务卿布林肯就中共国对待维吾尔人、藏人和香港人的暴行向北京施压；同时，中共国则表示要捍卫自己对待维吾尔人、藏人和香港人的政策。声明中还说，布林肯还应用缅甸的前称“向中共国施压并要求中共国加入国际社会谴责缅甸的军事政变”。与此同时，北京在对具有曾经确保独立运行体系的金融中心发生的大规模抗议活动提出了新的反颠覆法律，并加强了对香港的镇压行动，逮捕了主要的活动领导者。
 
-参考链接：
-1、[China Ambassador Cui Tiankai suggests WHO investigate coronavirus origins in US in CNN interview](https://www.foxnews.com/world/china-ambassador-cui-tiankai-coronavirus-cnn)
-2、[错误信息 虚假信息 美中新冠病毒源头之争再起](https://www.voachinese.com/a/china-virus-origin-narrative-discredited-20200424/5389831.html)
+布林肯在国会听证会上表示，他将继续前总统唐纳德·川普对中共国的政策，这是两届政府之间罕见的共同认同点。美国从上到下，从左至右都已经认清了中共真实的邪恶面目，新政府的表态是让中共国抛弃继续欺骗的幻想，要中共国对全世界人民所犯下的罪行负责！
 
-（本文仅代表作者个人观点）
+**原文翻译：**
+
+# **美国新任国务卿安东尼·布林肯（Antony Blinken）在首次通话中就维吾尔人和香港问题向中共国施压**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/NATQRmddATOxw/images/c07c0676-b87b-4fe0-97e8-c95a44d77f9c.jpg?asset_id=a5c30617-3486-4f78-93ea-e7f18ae96836&amp;img_etag=%22d63b6fc6d9aec641ebe378fbdc4b9d00%22&amp;size=2560)](https://spark.adobe.com/page/NATQRmddATOxw/images/c07c0676-b87b-4fe0-97e8-c95a44d77f9c.jpg?asset_id=a5c30617-3486-4f78-93ea-e7f18ae96836&amp;img_etag=%22d63b6fc6d9aec641ebe378fbdc4b9d00%22&amp;size=1024)
+
+自乔·拜登总统就职以来，在美国与中共国两大强国政府高层首次通话中，美国国务卿安东尼·布林肯就中共国对待维吾尔人、藏人和香港人的暴行向北京施压；同时，中共国则表示要捍卫自己对待维吾尔人、藏人和香港人的政策。
+
+布林肯在推特上谈到他与中共国高官杨洁篪通话时说：“我明确表示，美国将捍卫我们的国家利益，捍卫我们的民主价值观，并要求北京对国际体系的滥用负责。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/NATQRmddATOxw/images/5df734a0-d39c-42a6-91f1-0629e73d74a9.jpg?asset_id=4013feef-5693-496a-bbaa-0b4ac130fd10&amp;img_etag=%220b0931c9f132b3cb499c8247c4cebd8e%22&amp;size=2560)](https://spark.adobe.com/page/NATQRmddATOxw/images/5df734a0-d39c-42a6-91f1-0629e73d74a9.jpg?asset_id=4013feef-5693-496a-bbaa-0b4ac130fd10&amp;img_etag=%220b0931c9f132b3cb499c8247c4cebd8e%22&amp;size=1024)
+
+安东尼·布林肯。档案照片：通过Flickr拍摄的美国宣教照片/埃里克·布里迪尔斯。
+
+美国国务院在声明中说，在华盛顿时间星期五，布林肯在电话中告诉杨洁篪，美国将“继续捍卫人权和民主价值观，这包括新疆、西藏和香港在内。”
+
+声明中还说，布林肯还应用缅甸的前称“向中共国施压并要求中共国加入国际社会谴责缅甸的军事政变”。
+
+美国高级外交官表示，美国将要求北京“对其威胁包括整个台湾海峡在内的印度太平洋稳定的行为，以及中共国对国际体系规则的破坏负责。”
+
+布林肯在其任职国会听证会上表示，他将继续前总统唐纳德·川普对中共国的政策，之后，他发出了以上口气强硬的声明，这是两届政府之间罕见的共同认同点。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/NATQRmddATOxw/images/004708c4-86de-4b26-a61d-6d0a1c452923.jpg?asset_id=0c97075d-6cc6-4142-8d70-ddc403926be9&amp;img_etag=%224ab86f15394f32ebae2dfd50a476da2a%22&amp;size=2560)](https://spark.adobe.com/page/NATQRmddATOxw/images/004708c4-86de-4b26-a61d-6d0a1c452923.jpg?asset_id=0c97075d-6cc6-4142-8d70-ddc403926be9&amp;img_etag=%224ab86f15394f32ebae2dfd50a476da2a%22&amp;size=1024)
+
+但在中共国驻美使馆的一份声明中，杨洁篪警告说，香港、新疆和西藏是“中国的内政”，“不允许任何外部势力干涉”，敦促美国纠正近年来犯下的错误。
+
+杨洁篪还呼吁华盛顿“严格遵守一个中国原则”，根据该原则，北京认为台湾是其领土不可分割的一部分，他还说：“台湾问题是中美关系中最重要、最敏感的核心问题。”
+
+布林肯表示，他同意川普领导下的国务院的一项决议，即北京在新疆西部地区的行为是种族灭绝。人权组织称，新疆有超过一百万维吾尔族人和其他讲穆斯林语言的突厥人被关进集中营。
+
+北京在对具有曾经确保独立运行体系的金融中心发生的大规模抗议活动提出了新的反颠覆法律，并加强了对香港的镇压行动，逮捕了主要的活动领导者。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/NATQRmddATOxw/images/6362a633-5c34-4b26-8639-951c56dd1814.jpg?asset_id=52153788-c4d4-47e9-8f91-2c84f400a765&amp;img_etag=%2249aae6a3c15db3174f1f7076065f6a21%22&amp;size=2560)](https://spark.adobe.com/page/NATQRmddATOxw/images/6362a633-5c34-4b26-8639-951c56dd1814.jpg?asset_id=52153788-c4d4-47e9-8f91-2c84f400a765&amp;img_etag=%2249aae6a3c15db3174f1f7076065f6a21%22&amp;size=1024)
+
+九龙抗议活动。照片：Incendo工作室。
+
+尽管如此，拜登在周四关于外交政策的演讲中还是向中共国抛出了一个小小的橄榄枝，他说尽管美国将“对抗中共国”，但“为了美国的利益，我们愿意与北京合作。”
+
+布林肯以前曾说过在气候变化领域，中美两国有合作的空间，因为中共国和美国是两个最大的温室气体排放国。
+
+北京长期以来一直与缅甸保持特殊的利益关系，并在十年前与美国一起支持军方让位给民主的政府。
+
+东南亚国家缅甸的军方本周进行了一次政变，逮捕了平民领袖昂山素季，中共国官方媒体则称这是“一次重大的内阁改组”。
+
+在川普对专制国家领导人的示好后，拜登誓言要在世界范围内促进民主。他坚决谴责缅甸军方的政变，并威胁说如果缅甸军方不恢复民主权力，美国将对缅甸将实行制裁。
+
+🔗[原文链接](https://hongkongfp.com/2021/02/07/new-us-sec-of-state-antony-blinken-presses-china-on-uighurs-and-hong-kong-in-first-call/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/NATQRmddATOxw/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/NATQRmddATOxw/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
