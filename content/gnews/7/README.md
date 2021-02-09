@@ -1,44 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】疫苗质量无法保障，儿童入学强制接种
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/895141/)
+## 门户专家网站的推特被永久封杀
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/895334/)
 
-#### **作者：**香草山农场  鹰(文言)
-![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-6.jpg)
-环球网2月9日转载央视新闻客户端报道，中共教育部发布《儿童入托、入学预防接种证查验办法》，要求儿童入托、入学需出具预防接种证[1]。
+*新闻来源：《零对冲》| 作者：TYLER DURDEN泰勒·杜登 | 发布时间：2021年2月6日*
 
-1、《办法》要求幼儿园、学校在新生入学中要将预防接种证的查验作为重要工作，相关教育行政部门要加大对上述机构的工作环节和质量的检查力度。
+*翻译/简评：Linda B | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii*
 
-2、《办法》要求对全国的所有托育机构、幼儿园和小学全面开战预防接种证查验（新生报名时须出具预防接种证）；查验工作在新生开学、转学或插班30日内完成；需补种疫苗的儿童，学校在补种后登记相关情况，以备当年12月底前的再次查验。
+[!\[\]()!\[\](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/32bc2834-5a39-4ca0-bf59-c3e25f144202.jpg?asset_id=5c169d68-bb23-4fd0-9b26-89a4352ab4b9&amp;img_etag=%226d7a716fbbde04323a8703a358d4e599%22&amp;size=2560)](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/32bc2834-5a39-4ca0-bf59-c3e25f144202.jpg?asset_id=5c169d68-bb23-4fd0-9b26-89a4352ab4b9&amp;img_etag=%226d7a716fbbde04323a8703a358d4e599%22&amp;size=1024)
 
-综上，中共教育部要求国内所有涉及入学、转托的儿童均需全员预防接种，预防接种的类别和条目也有参照标准。
+**简评：**
 
-近年来中共国内的“假”疫苗案层出不穷。2005年安徽省泗县2500名学生接种甲肝疫苗中不良反应达216人，1人致死[2]；2009年2月大连金港安迪生物在部分狂犬病疫苗中违规添加核酸物质，导致合格率降为49%[3]；2009年12月河北福尔生物所产的7个批次21.58万份狂犬病疫苗被曝存在质量问题[4]；同年广西来宾一5岁男童接种狂犬病疫苗后致死，化验后该疫苗为假药（问题疫苗达1000多人份）[5]；2010年山西近百名儿童注射疫苗后致残、致死[6]；2012年潍坊报道42494支非法疫苗案（种类包含流感疫苗、乙肝疫苗、狂犬疫苗、水痘疫苗等）[7]；2016年3月山东价值5.7亿元非法疫苗流入24个省市[8]。
+**美国不曾想到，只有在中共专制制度下的言论管控会在美国这个自由、民主的社会中出现。当一个政府不愿意听到反对意见，即使是真实的声音，它就会用权力扼杀人民的声音。在今年总统大选期间多次出现的选举不公正事件和对不公正现象的揭露和报道，都遭到了推特等社交媒体巨头的打击。对“门户专家”网站在推特上的帐号进行封杀和中共打击言论自由的行为如出一辙。美国渐渐沦陷，媒体、科技公司操纵言论，左右民意。美国这个经自由选举产生总统的制度已经徒有其表，人民的意愿已被资本巨头践踏。**
 
-2018年8月长春长生和武汉生物分别被爆出2017年所产的部分批号疫苗出现严重质量问题（分别涉及25万支、40万支），引发亿万家长担心受怕[9-11]。虽然习近平和李克强做出“严查到底”的批示，但“省级背景”的长春长生相关责任人被判刑、企业破产；而拥有国务院背景的武汉生物却被“高拿轻放”，只是罚款了事，反而吞并了原长春长生的市场。“假”疫苗问题再次被中共的舆论导向和“杀鸡儆猴”一笔带过，而国内家长在一两年后又忘记了“惨痛教训”，重新恢复对婴幼儿接种的共识。
+**今年的大选期间的种种舞弊是多年来中共对美国政客和资本巨头的腐蚀、勾结的结果。美国人民如果还不觉醒，当共产主义成为美国的主流意识，我们中国人的今天，就是美国人的明天。**
 
-国人的麻木和“可控”的反应助长了中共无底线的作恶，在父母最关心的孩子疫苗接种问题都能被掩盖后，中共为了维持其统治地位恶意制造生化病毒并毒害全世界，治病救人的疫苗被中共用于发动“种族灭绝”和定点打击。近期中共在恬不知耻地推行“全民接种”的同时，又加大对儿童的预防接种证的查处力度，倒逼儿童接种。中共以假治国、以黑治国、鱼肉百姓，这才有了无视人命的假疫苗事件频发，如今疫苗已经从“无害”变为“有毒”，疫苗接种真的需要“量命而行”。
+**原文翻译：**
 
-(文章仅代表作者观点，与Gnews网站无关)
+# **推特因“门户专家”（Gateway Pundit）违反“公民诚信政策”而永久禁止其账号**
 
-参考链接：
-[1] [https://china.huanqiu.com/article/41rIphIbqYQ](https://china.huanqiu.com/article/41rIphIbqYQ)
-[2] [http://news.sina.com.cn/c/2005-06-28/13076290100s.shtml](https://news.sina.com.cn/c/2005-06-28/13076290100s.shtml)
-[3] [http://www.gov.cn/jrzg/2009-02/25/content\_1241689.htm](http://www.gov.cn/jrzg/2009-02/25/content_1241689.htm)
-[4][http://finance.sina.com.cn/consume/puguangtai/20100401/06587673567.shtml](http://finance.sina.com.cn/consume/puguangtai/20100401/06587673567.shtml)
-[5] [https://baike.baidu.com/item/广西来宾假狂犬疫苗致男童死亡事件/3289779?fromtitle=假狂犬疫苗&fromid=3794315](https://baike.baidu.com/item/广西来宾假狂犬疫苗致男童死亡事件/3289779?fromtitle=假狂犬疫苗&amp;fromid=3794315)
-[6] [http://news.ifeng.com/mainland/201003/0317\_17\_1578306.shtml](https://news.ifeng.com/mainland/201003/0317_17_1578306.shtml)
-[7] [https://zh.wikipedia.org/wiki/2012年山东潍坊非法疫苗案](https://zh.wikipedia.org/wiki/2012年山东潍坊非法疫苗案)
-[8][https://www.bbc.com/zhongwen/trad/china/2016/03/160320\_china\_vaccine\_ring](https://www.bbc.com/zhongwen/trad/china/2016/03/160320_china_vaccine_ring)
-[9] [https://www.guancha.cn/society/2018\_07\_25\_465635.shtml](https://www.guancha.cn/society/2018_07_25_465635.shtml)
-[10] [https://www.jiemian.com/article/2315714.html](https://www.jiemian.com/article/2315714.html)
-[11] [https://health.huanqiu.com/article/9CaKrnKaQ4K](https://health.huanqiu.com/article/9CaKrnKaQ4K)
+推特已经永久封禁了受欢迎的保守网站门户专家(The Gateway Pundit)的创始人吉姆·霍夫特(Jim Hoft)的帐号，据说该帐号违反了社交媒体巨头的“公民诚信政策”。
 
-* * *
+[!\[\]()!\[\](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/eb67c039-cc82-4ef7-835a-df4f4b9df5b6.png?asset_id=99ae1535-5947-466c-b03d-85a997b17b62&amp;img_etag=%22998255f28778a9ebd52afab864e82cb8%22&amp;size=2560)](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/eb67c039-cc82-4ef7-835a-df4f4b9df5b6.png?asset_id=99ae1535-5947-466c-b03d-85a997b17b62&amp;img_etag=%22998255f28778a9ebd52afab864e82cb8%22&amp;size=1024)
 
-***责任编辑：**华盛顿DC农场  光之子(沙加)
-**编辑/校对：**纽约香草山农场  七哩香
-**发布：**京都富士会农场 孤独的小生（文留）*
+霍夫特的推特账号@gatewaypundit有超过37.5万关注者，是该媒体频道在推特上的主要帐号。在门户专家网站发布了底特律TCF中心大选夜间监控视频录像一天之后，推特账号被禁。据媒体报道视频中一辆面包车“卸下成千上万张非法选票”，之后“拜登在密歇根获得领先”。
+
+据《公民自由报》报道，一名推特发言人称：“该帐号因屡次违反我们的公民诚信政策而被永久停用。”
+
+禁令发布后，“门户专家”说关于监控录像，“他们将在未来几天内就此事件进行更多报道”，因为他们尚未公布全部信息。霍夫特在被禁前几小时发布了以下推文：
+
+[!\[\]()!\[\](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/361a2d37-814c-4f93-8f21-db6675674856.png?asset_id=75d5f716-d8a3-4437-b0f5-638c4794d0b7&amp;img_etag=%2285ab37abd948753272f1ee4b237c8873%22&amp;size=2560)](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/361a2d37-814c-4f93-8f21-db6675674856.png?asset_id=75d5f716-d8a3-4437-b0f5-638c4794d0b7&amp;img_etag=%2285ab37abd948753272f1ee4b237c8873%22&amp;size=1024)
+
+推文翻译：仅供参考——假新闻媒体和其他媒体从周五开始挑战了我们的TCF中心视频报道。那是一个糟糕的举动。我们还会有更多报道！
+
+当自由派推特用户庆祝霍夫特被封杀——支持审查制度的组织“沉睡巨人”（Sleeping Giants）的创始人在呼吁彻底废除货币时，人们仍然可以在以下平台上找到“门户专家”：
+
+[Telegram](https://t.me/gatewaypunditofficial) | [Gab](https://gab.com/gatewaypundit) | [SafeChat](https://safechat.com/channel/2775585583991869440) | [MeWe](https://mewe.com/p-front/thegatewaypundit) | [Clouthub](https://app.clouthub.com/public/de31dfd6-a8c2-4d87-9229-fd615cea059f) | [Minds](https://www.minds.com/gatewaypundit_official) |[Politichatter](https://politichatter.com/gatewaypundit)
+
+**🔗[原文链接](https://www.zerohedge.com/political/twitter-permanently-bans-gateway-pundit-violating-civic-integrity-policy?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)**
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
