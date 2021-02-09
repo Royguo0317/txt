@@ -1,23 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登对中共的暧昧态度令世界关注
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/895150/)
+## 门户专家网站的推特被永久封杀
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/895334/)
 
-##### 翻译报道：Freedoom
+*新闻来源：《零对冲》| 作者：TYLER DURDEN泰勒·杜登 | 发布时间：2021年2月6日*
 
-##### **责编：白夜**
+*翻译/简评：Linda B | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii*
 
-美国政客网（politico.com）2月7日报道，谈到美中关系时，拜登计划以不同于其前任的方式对待中共。事实上，拜登在担任副总统期间，与习相处的时间比大多数世界领导人都要多， “我很了解习。”他说，”我一直对他说，美中不需要冲突，但存在激烈竞争。他知道我不会走川普的路，我们倾向于用国际规则处理美中关系。”他表示，”习很精明也很倔强，但骨子里抵触民主。”
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-16.png)图片来源：澳广新闻网 www.abc.net.au
-目前，拜登政府的美中关系政策正经受考验：从撤销川普对中共实施的关税和制裁，到缅甸军事政变的余波。而政府头几个月如何推进，将决定美中未来的发展方向。但自1月上任以来，拜登还未与习通话。
+[!\[\]()!\[\](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/32bc2834-5a39-4ca0-bf59-c3e25f144202.jpg?asset_id=5c169d68-bb23-4fd0-9b26-89a4352ab4b9&amp;img_etag=%226d7a716fbbde04323a8703a358d4e599%22&amp;size=2560)](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/32bc2834-5a39-4ca0-bf59-c3e25f144202.jpg?asset_id=5c169d68-bb23-4fd0-9b26-89a4352ab4b9&amp;img_etag=%226d7a716fbbde04323a8703a358d4e599%22&amp;size=1024)
 
-参议员林赛·格雷厄姆（Lindsey Graham）表示，中共将是拜登面临的最大国际挑战之一。”如何制定有别于川普的对伊朗政策、对华政策以及移民政策，是摆在拜登面前的三个问题。”格雷厄姆说，”我会告诫拜登，川普这么做并不代表政策是错的。”
+**简评：**
 
-#### 评论：
+**美国不曾想到，只有在中共专制制度下的言论管控会在美国这个自由、民主的社会中出现。当一个政府不愿意听到反对意见，即使是真实的声音，它就会用权力扼杀人民的声音。在今年总统大选期间多次出现的选举不公正事件和对不公正现象的揭露和报道，都遭到了推特等社交媒体巨头的打击。对“门户专家”网站在推特上的帐号进行封杀和中共打击言论自由的行为如出一辙。美国渐渐沦陷，媒体、科技公司操纵言论，左右民意。美国这个经自由选举产生总统的制度已经徒有其表，人民的意愿已被资本巨头践踏。**
 
-这两天，拜登政府的国务卿布林肯刚刚宣布解除对也门胡塞武装恐怖组织的认定，立马被爆料革命揭露拜登政府此举是为撤销对中共种族灭绝和反人类罪的认定作铺垫。由于爆料革命的存在，拜登家族与中共的关系全世界几乎都知道，数亿双眼睛都在盯着，拜登想干什么事大家心里都清楚。文贵先生说过，谁灭共就支持谁，谁与中共勾兑谁就是爆料革命的敌人。全球灭共如今已是不可扭转的大趋势，爆料革命是灭共进程中不可忽视的力量，谁妄想与中共勾兑都得先掂量掂量自己的分量。
+**今年的大选期间的种种舞弊是多年来中共对美国政客和资本巨头的腐蚀、勾结的结果。美国人民如果还不觉醒，当共产主义成为美国的主流意识，我们中国人的今天，就是美国人的明天。**
 
-[原文链接](https://www.politico.com/news/2021/02/07/biden-china-xi-jinping-466761)
+**原文翻译：**
+
+# **推特因“门户专家”（Gateway Pundit）违反“公民诚信政策”而永久禁止其账号**
+
+推特已经永久封禁了受欢迎的保守网站门户专家(The Gateway Pundit)的创始人吉姆·霍夫特(Jim Hoft)的帐号，据说该帐号违反了社交媒体巨头的“公民诚信政策”。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/eb67c039-cc82-4ef7-835a-df4f4b9df5b6.png?asset_id=99ae1535-5947-466c-b03d-85a997b17b62&amp;img_etag=%22998255f28778a9ebd52afab864e82cb8%22&amp;size=2560)](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/eb67c039-cc82-4ef7-835a-df4f4b9df5b6.png?asset_id=99ae1535-5947-466c-b03d-85a997b17b62&amp;img_etag=%22998255f28778a9ebd52afab864e82cb8%22&amp;size=1024)
+
+霍夫特的推特账号@gatewaypundit有超过37.5万关注者，是该媒体频道在推特上的主要帐号。在门户专家网站发布了底特律TCF中心大选夜间监控视频录像一天之后，推特账号被禁。据媒体报道视频中一辆面包车“卸下成千上万张非法选票”，之后“拜登在密歇根获得领先”。
+
+据《公民自由报》报道，一名推特发言人称：“该帐号因屡次违反我们的公民诚信政策而被永久停用。”
+
+禁令发布后，“门户专家”说关于监控录像，“他们将在未来几天内就此事件进行更多报道”，因为他们尚未公布全部信息。霍夫特在被禁前几小时发布了以下推文：
+
+[!\[\]()!\[\](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/361a2d37-814c-4f93-8f21-db6675674856.png?asset_id=75d5f716-d8a3-4437-b0f5-638c4794d0b7&amp;img_etag=%2285ab37abd948753272f1ee4b237c8873%22&amp;size=2560)](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/361a2d37-814c-4f93-8f21-db6675674856.png?asset_id=75d5f716-d8a3-4437-b0f5-638c4794d0b7&amp;img_etag=%2285ab37abd948753272f1ee4b237c8873%22&amp;size=1024)
+
+推文翻译：仅供参考——假新闻媒体和其他媒体从周五开始挑战了我们的TCF中心视频报道。那是一个糟糕的举动。我们还会有更多报道！
+
+当自由派推特用户庆祝霍夫特被封杀——支持审查制度的组织“沉睡巨人”（Sleeping Giants）的创始人在呼吁彻底废除货币时，人们仍然可以在以下平台上找到“门户专家”：
+
+[Telegram](https://t.me/gatewaypunditofficial) | [Gab](https://gab.com/gatewaypundit) | [SafeChat](https://safechat.com/channel/2775585583991869440) | [MeWe](https://mewe.com/p-front/thegatewaypundit) | [Clouthub](https://app.clouthub.com/public/de31dfd6-a8c2-4d87-9229-fd615cea059f) | [Minds](https://www.minds.com/gatewaypundit_official) |[Politichatter](https://politichatter.com/gatewaypundit)
+
+**🔗[原文链接](https://www.zerohedge.com/political/twitter-permanently-bans-gateway-pundit-violating-civic-integrity-policy?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)**
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/dzxYh6iSlyU6k/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
