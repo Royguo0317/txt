@@ -1,31 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中俄伊二月中旬将在印度洋举行联合军演
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/895957/)
+## 加拿大要求陆上旅客提供阴性证明否则面临罚款
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/896093/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+- 编辑：Victor Torres
+- 发稿：Ranting
 
-编辑  水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-09_20-49-28.jpg)[securingdemocracy.gmfus.org](https://securingdemocracy.gmfus.org/triad-of-disinformation-how-russia-iran-china-ally-in-a-messaging-war-against-america/)
-据路透社报导，莫斯科驻德黑兰大使黎文・扎加里安(Levan Dzhagaryan)在伊朗当地时间 2 月 8 日表示，俄罗斯、伊朗和中共国将于 2 月中旬在印度洋北部进行搜索和救援行动的演习， 从时间上看，俄、中、伊三国的精锐战舰应该在近日便开赴演习海域。此前， 2019 年，中俄伊三国曾在印度洋和阿曼湾举行联合海军演习。莫斯科称，这将是一次史无前例的海军合作和训练演习[1]。
 
-伊朗舰队对国家电视台表示，“这次演习传递的信息是和平、友谊、合作和团结，能够持久保持国家的安全，演习结果将表明，伊朗不会也不能被世界各国孤立。”该电视台表示，演习包括营救着火的船只或被海盗攻击的船只以及射击演习[2]。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-阿曼湾一直是一条比较敏感的水路，因为它与霍尔木兹海峡相连，世界上大约五分之一的石油运输都会通过霍尔木兹海峡，它是连接波斯湾和印度洋的海峡，亦是唯一一个进入波斯湾的水道。
+**西班牙2021年2月9日电/西喜社——**加拿大总理贾斯汀·特鲁多（Justin Trudeau）表示，从下周开始，任何非必要的陆上旅行者都需要出示基于PCR的阴性中共病毒测试，否则面临罚款。
 
-据俄罗斯卫星新闻通讯社 1 月 4 日报道[3]，卫星图像显示，在美国和伊朗关系紧张之际，伊朗伊斯兰革命卫队的舰船在霍尔木兹海峡开展活动。
+特鲁多说，海关人员如果没有进行测试就无法将加拿大人送回美国，因为他们在技术上是在加拿大境内，但是他说，罚款将高达3,000加元（2,370美元），并且还将被卫生官员跟进。
 
-2020 年伊朗在霍尔木兹海峡附近举行了多场海军演习。伊朗的演习引发了前川普政府的愤怒，美国当时向该地区派遣了一艘核潜艇和一艘导弹巡洋舰。而这次行动发生在伊朗高级军事将领苏莱曼尼被美军暗杀一周年纪念日，伊朗曾誓言要为苏莱曼尼复仇。
+加拿大已经要求乘飞机抵达的人提供三天内阴性测试证明。 上个月，特鲁多还宣布对旅客进行更严格的限制，以应对新的，可能更具传染性的病毒变种。 航空旅客必须自费在酒店隔离检疫。
 
-现在，还不到两年的时间，俄罗斯就再次与伊朗和中共国举行联合海军演习，但这次美国等西方国家集体沉默了，美方尚未对此作出任何回应。
+但政府尚未宣布何时开始强制性酒店住宿。 航空旅客将待在政府指定的酒店，直到检查出结果。
 
-参考链接：
+![]()![](https://gnews.org/wp-content/uploads/2021/02/6dcd51f2-a1aa-405a-81a3-4d7b872b88b0.jpg)
 
-[1] [Russia, China, and Iran to hold joint naval drills in Indian Ocean soon](https://www.reuters.com/article/russia-military-iran-china/russia-china-and-iran-to-hold-joint-naval-drills-in-indian-ocean-soon-ria-idUSL8N2KE4G2)
+[**新闻来源**](https://apnews.com/article/belgium-europe-coronavirus-pandemic-coronavirus-vaccine-6bdcd5b1aa25848a9debae56dd55e6e5)
 
-[2] [Russia announces joint naval drill with China and Iran in the Indian Ocean ’soon’](https://www.dailymail.co.uk/news/article-9237765/Russia-announces-joint-naval-drill-China-Iran-Indian-Ocean-soon.html)
-
-[3] [美国卫星拍到大批伊朗军舰在霍尔木兹海峡集结](http://www.xinhuanet.com/mil/2021-01/05/c_1210965961.htm)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/00110011.png)
 
 0
