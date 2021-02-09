@@ -1,63 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港是中共做恶的活生生的例子
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/893751/)
+## 郭先生0206X很多为爆料革命搭上全家生命的战友被九指妖出卖
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/893799/)
 
-新闻简述：在2021年2月1日发布的第三段Getter视频中，郭先生讲述了他的一位香港朋友的悲惨遭遇。他因爱中国倾尽家财投资中国建厂，却被中共政府无情掠夺，并遭受无尽凌辱。
-[下载字幕文件](https://gnews.org/miles_20210201_gt3-srt/)
-**香港是中共做恶的活生生的例子**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/封面-12.png)
+编辑整理：
 
-**Hong Kong Is a Living Example of the CCP’s Evil Deed**
+伦敦喜庄园农场：万物归一
 
-昨天晚上几个到达了欧洲的香港的几个老朋友，香港人是情绪上轻易不落泪的，不像大陆人那么爱哭，又那么爱背叛，被你共产党给精神上变成了侏儒的这么一个民族。
+纽约香草山农场：酸酸乳(文少)
 
-Several old friends of mine from Hong Kong arrived last night.  Hong Kong people do not shed tears easily in general, unlike the mainlanders of China, who cry easily and are also very easy to betray others, and who have been turned into spiritual dwarves by the CCP.
+法国巴黎七星农场：枫丹白露
 
-香港人嚎啕大哭。香港人说：“Miles，你原来给我所有说的共产党，我都觉得是笑话，我觉得不会发生在我生命里边。” 他说现在全发生了，比你说的只有过之啊。太悲哀了！
+篇首说明：郭文贵先生在[2021年2月6号 文贵直播： 中共发展数字货币的本质和野心．与G系列产品的区别和对新中国联邦的重大意义！](https://gtv.org/video/id=601f22fc3f8a013ab47fc514)谈到了共产党为什么在过去二十年三千次提到美国的SWIFT系统，谈到了为什么共产党热衷于发展数字货币，谈到了爆料革命如何对付共产党的数字货币政策等一系列内容，本系列将根据郭先生提到的不同侧重逐一上传。
 
-These Hong Kong friends howled and wailed.  They said to me, “Miles, the things that you told me about the CCP before, I took them as some kind of jokes, and I didn’t believe that those would ever happen to me in my life.”  He said, “Now, what have you said have all happened, only worse than what you’ve said.”  How sad!
+以下为第十部分——很多为爆料革命搭上全家生命的战友被九指妖出卖
 
-他说：“我是真爱这个国家呀，我真爱中国人啊，我真爱大陆啊。我在大陆开的厂，我把爷爷、我爸爸的钱全投到大陆去了。” 现在一分钱也拿不回来了，香港的银行钱也取不出来了。现在不但要查肛门，不但要查钱，要查你的资产，要查你祖宗几代，你咋来香港的？天理何在？全家受到威胁！
+据[2021年2月6号 文贵直播： 中共发展数字货币的本质和野心．与G系列产品的区别和对新中国联邦的重大意义！](https://gtv.org/video/id=601f22fc3f8a013ab47fc514)时间点1：55：21——
 
-He said, “I really love this country and the Chinese people.  I really love mainland China.  I have invested all the money of my grandfather and my father’s into the factory which I set up in mainland China.”  Now, he cannot get even a penny back, and cannot withdraw money from the bank in Hong Kong.  Now, not only they check your anus, check your bank savings, your assets, but also check multiple generations of your ancestors: How did they came to Hong Kong. Where is the justice on the earth?  The whole family is being threatened.
+哪是你九指妖六个六啊、三个三啊、五魁首啊，你就捏出来一个什么G-Fashion出来，你个傻货，你懂啥叫fashion吗？
 
-兄弟姐妹们，难道这个理大家还不容易搞清楚吗？是谁让香港人变成这样的？是大陆人吗？大陆人没有这样的，除了被你洗脑的人。是共产主义，是共产党。共产党不等同于大陆人，共产党不等同于中国人。
+Sara这上半截还有人样，她往下半截就那个走道的样子的时候，她就是一个绝对是个不健康的人，绝对有精神疾病和各种疾病，非常复杂的一个人，我真的说实在话是很可怜她，**七哥的可怜，我多少次忍不住的怒我都忍住了，但最后就没想到换到这个样子，受到这种结果，真的很可怕的。**
 
-Brothers and sisters, isn’t it easy for us to see clearly the reason?  Who has turned Hong Kong people to like this?  Is it the people in mainland China?  No, it is not the mainland Chinese except for those whom have been brainwashed. It’s the communism and the CCP.  However, the CCP is not equal to the mainland Chinese people, and the CCP is not equivalent to the Chinese people.
+活该，七哥一生被情所伤，这活该，我认为情是值得的，所以我付出代价我也认，啊我也认！不后悔，就这样，我还坚持相信好人多坏人少，绝对是好人多坏人少。（郭先生与战友们互动）［你看看你看看，澳大利亚的CC，不光是小羊，**好多人都以为哥哥被Sara强奸过，这倒没有啊，**这咱不能罔顾事实，这不可能啊！
 
-我愤慨呀，我生气呀！这个国家、这个民族怎么成这个样子了？为什么会成这个样子了？颠倒黑白，忘恩负义，忘恩负义还不说，恩将仇报啊。兄弟姐妹们，这就是一个活生生的一个实——香港。
+七哥绝对不止三秒之功吧，谁能把这个，这是我们的文喜说的，手持钢叉的闰土，七哥他又是佛系的，阿弥陀佛和张开闭口上帝一样的，假佛假基督实在是太多了。就是满口是佛祖、耶稣、仁义道德之人，你都值得怀疑他一下子］。咱们一个警察的战友，我得想想这话咋说呀，有一个找战友喝茶的战友——警察啊，给我说七哥，你要如果有一天Sara进了监狱的时候，他说七哥你一定别忘了，我这有很多料我能给她加上去，他说这个女人太恶毒了，他说都是那些为了这个爆料革命、新中国联邦把全家生命都给搭上去就让她给出卖了，这个战友就是哭得一塌糊涂，我这七哥一说头皮都麻，（七哥怒火中烧抓头皮）嗯！走着看！
 
-I’m indignant, and I’m angry.  What on earth have this country and this nation turned to be?  Why have they become like this? Right and wrong have been turned upside down?  It is such an ungrateful deed!  And it is not just an ungrateful deed but also is an action of returning kindness with hatred.  Brothers and sisters, Hong Kong is the living example of the CCP’s evil deed.
+走着看啊，我这眼睛有点花，装神弄鬼，戴上墨镜，戴上蛤蟆镜，所以说这个很多亲身经历者被害，七哥承担一切责任，七哥向你们道歉，万分道歉，这必须是我承担责任。
 
-新疆大屠杀，西藏大屠杀，难道汉人没有被大屠杀吗？香港难到没有大屠杀吗？他现在正在准备去台湾哪，还要去台湾大屠杀呢。没有人能阻止得了他是吗？没有人能阻止的了，就不会发生病毒这个事情。没有人能阻止得了他，就不会叫爆料革命、新中国联邦在。还是那句话，老子要多出生几十年，就不会让你共产党存在在这个世界上。
+接上文——
 
-The Xinjiang massacre, the Tibetan massacre, haven’t the Han people been massacred? Didn’t Hong Kong have a massacre? They are now preparing to go to Taiwan to do a massacre. Is there anyone to stop them? If there were no one stopping them, there wouldn’t be the virus. If there is no one that can stop them, then what are the Witshleblower Movement and New Federal State of China existing for? Again, if I were born a few decades earlier, there wouldn’t be the Communist Party existing in this world.
+[**郭先生0206I****爆料革命唤醒了世界，要谈中共只有找爆料革命**](https://gnews.org/zh-hans/892328/)
 
-共产党，你要知道现在全世界真正的形势。全世界的科学家，全世界的有良知的人都在站起来。不会有全世界75亿人口都被你共产党拿下，我绝对不信。你的经济还能继续撑下去，我绝对不信。 你自己知道你有没有钱，是吧？
+[**郭先生0206II****共产党为何一直主攻SWIFT****系统并发展自己的数字货币**](https://gnews.org/zh-hans/892344/)
 
-CCP, you need to know the real situation in the world. Scientists and conscientious people all over the world are standing up. It will never happen that all the 7.5 billion people in the world are over taken by you, the CCP. I absolutely don’t believe it. I absolutely don’t believe that your economy can hold up any longer. You know whether you have money yourself, right?
+[**郭先生0206III****布局数字货币摧毁美国之后接下来的核心是经济**](https://gnews.org/zh-hans/892365/)
 
-兄弟姐妹们，还是那句话：共产党是肯定完了，我们就是希望共产党少带走点无辜的中国同胞，少害点无辜的老百姓。共产党，你会…你在你完全你没有知觉的情况下，你会被解体。中国人会把你们这些王八蛋给吃掉你们，会找你们算账的。你对香港人的残害远远超过了种族大屠杀，这个历史的账是一定会给你们算的。咱走着看，你以为香港人现在都沉默了吗？有郭文贵在，有爆料革命在，就不会让你们得逞。
+[**郭先生0206IV****美国已摇摇欲坠,****中共的数字货币的软肋是什么**](https://gnews.org/zh-hans/892671/)
 
-Brothers and sisters in arms, let me say this again: the CCP is definitely over, and we just hope that the CCP will take away fewer innocent Chinese compatriots with them and harm fewer innocent people. CCP, you will be dissolved when you are completely unaware. The Chinese will swallow you bastards and will hold you accountable. Your cruelty to Hong Kong people far exceeds any genocide. This will not be forgotten in history, and you will definitely be held accountable. Let’s wait and see. Do you think Hong Kong people are silent now? As long as Miles Guo and the Witshleblower Movement are here, you will not be allowed to succeed.
+[**郭先生0206V****共产党在数字货币推行成功前给谁留下最好机会**](https://gnews.org/zh-hans/892751/)
 
-上天让谁亡，就让谁先猖狂，你先猖狂猖狂吧，走着看。谢谢（香港人说话）！
+[**郭先生0206VI****九指妖要开发傻币的消息除了可以通便还有啥**](https://gnews.org/zh-hans/892789/)
 
-Whom the God would destroy they first make mad. Let’s wait and see how long your madness will still be allowed. Thank you!
+[**郭先生0206VII****手持钢叉的闰土终于退掉GTV****的椅子，快走不送**](https://gnews.org/zh-hans/892857/)
 
-视频来源：[https://gtv.org/getter/60187efe46c6c3519a3e11a8](https://gtv.org/getter/60187efe46c6c3519a3e11a8) (5:31 – 结束)
+[**郭先生0206VIII:GTV****今天所有的数据和做得一切不是神话是传奇**](https://gnews.org/zh-hans/893754/)
 
-(以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。)
+[**郭先生0206IX G系列是完美的商业模型：虚拟货币&实体经营**](https://gnews.org/zh-hans/893787/)
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/862090/](https://gnews.org/zh-hans/862090/)
-
-翻译：【奔腾的长江】【Isaiah4031】校对：【Isaiah4031】字幕：【相机过热啊】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
-
-+2
++1
