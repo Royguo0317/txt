@@ -1,63 +1,122 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港是中共做恶的活生生的例子
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/893751/)
+## 九指妖Sara吃战友肉！喝战友血！
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/893780/)
 
-新闻简述：在2021年2月1日发布的第三段Getter视频中，郭先生讲述了他的一位香港朋友的悲惨遭遇。他因爱中国倾尽家财投资中国建厂，却被中共政府无情掠夺，并遭受无尽凌辱。
-[下载字幕文件](https://gnews.org/miles_20210201_gt3-srt/)
-**香港是中共做恶的活生生的例子**
+作者：李文星 / 喜马拉雅东京樱花团
+![]()![](https://gnews.org/wp-content/uploads/2021/02/unnamed-11-e1612830660482.jpg)
+记得18年左右进入战友之家群，依稀记得当时有大白，停机坪等…
 
-**Hong Kong Is a Living Example of the CCP’s Evil Deed**
+里面好热闹，也想参与话题，于是开口在里面聊天玩，扯国际形势和国内形势，大概不到几分钟Sara就说文星你是新人少说话，多多听听别人发言，好不容易找到战友们的激情瞬间被Sara干灭了。
 
-昨天晚上几个到达了欧洲的香港的几个老朋友，香港人是情绪上轻易不落泪的，不像大陆人那么爱哭，又那么爱背叛，被你共产党给精神上变成了侏儒的这么一个民族。
+后来干脆不在战友之家玩了，里面吹牛逼的太多了，慢慢就不关注了。
 
-Several old friends of mine from Hong Kong arrived last night.  Hong Kong people do not shed tears easily in general, unlike the mainlanders of China, who cry easily and are also very easy to betray others, and who have been turned into spiritual dwarves by the CCP.
+但是Sara那会参与直播还看，因为那会郭先生路德Sara经常一块做直播。
 
-香港人嚎啕大哭。香港人说：“Miles，你原来给我所有说的共产党，我都觉得是笑话，我觉得不会发生在我生命里边。” 他说现在全发生了，比你说的只有过之啊。太悲哀了！
+视频看一开始的Sara有点轻浮，后来视频印象她努力的想表现出宋美龄的典雅涵养和稳重，刻意的把自己包装成国母般范范，隔着屏幕总感觉就像一身旗袍穿在一个烟花女子身上浑身散发不协调特拧巴的感觉，一句话就是装叉！
 
-These Hong Kong friends howled and wailed.  They said to me, “Miles, the things that you told me about the CCP before, I took them as some kind of jokes, and I didn’t believe that those would ever happen to me in my life.”  He said, “Now, what have you said have all happened, only worse than what you’ve said.”  How sad!
+有一次郭先生做直播考战友们说谁要大概是一分钟还是两分钟说出北京亚运村奥运村鸟巢那一块设计师是谁？就奖励一万美金💲
 
-他说：“我是真爱这个国家呀，我真爱中国人啊，我真爱大陆啊。我在大陆开的厂，我把爷爷、我爸爸的钱全投到大陆去了。” 现在一分钱也拿不回来了，香港的银行钱也取不出来了。现在不但要查肛门，不但要查钱，要查你的资产，要查你祖宗几代，你咋来香港的？天理何在？全家受到威胁！
+当时好多连线的战友没说出答案，突然那个大白说出来了答案，是帮助希特勒设计帝国的那个建筑师家族。
 
-He said, “I really love this country and the Chinese people.  I really love mainland China.  I have invested all the money of my grandfather and my father’s into the factory which I set up in mainland China.”  Now, he cannot get even a penny back, and cannot withdraw money from the bank in Hong Kong.  Now, not only they check your anus, check your bank savings, your assets, but also check multiple generations of your ancestors: How did they came to Hong Kong. Where is the justice on the earth?  The whole family is being threatened.
+当时隔着屏幕感觉郭先生会奖励那个大白一万美金💲吧。但是Sara居然说人家大白超过郭先生规定的时间了，不能获得奖金。
 
-兄弟姐妹们，难道这个理大家还不容易搞清楚吗？是谁让香港人变成这样的？是大陆人吗？大陆人没有这样的，除了被你洗脑的人。是共产主义，是共产党。共产党不等同于大陆人，共产党不等同于中国人。
+郭先生当时也有点发蒙愣了一愣……整个过程都被Sara带偏了……
 
-Brothers and sisters, isn’t it easy for us to see clearly the reason?  Who has turned Hong Kong people to like this?  Is it the people in mainland China?  No, it is not the mainland Chinese except for those whom have been brainwashed. It’s the communism and the CCP.  However, the CCP is not equal to the mainland Chinese people, and the CCP is not equivalent to the Chinese people.
+当时感觉Sara这女的有病…郭先生根本就不在乎这点钱，她比郭先生还在乎，让人有说不出来的一种恶心感。
 
-我愤慨呀，我生气呀！这个国家、这个民族怎么成这个样子了？为什么会成这个样子了？颠倒黑白，忘恩负义，忘恩负义还不说，恩将仇报啊。兄弟姐妹们，这就是一个活生生的一个实——香港。
+直播结束后，那个大白不服气在战友之家找Sara理论，后来Sara就上纲上线说大白不懂事，大白后来还做反思说自己并不是光想要钱，而是想用这笔钱做些宣传爆料革命的例如做彩页夹在报纸里等。
 
-I’m indignant, and I’m angry.  What on earth have this country and this nation turned to be?  Why have they become like this? Right and wrong have been turned upside down?  It is such an ungrateful deed!  And it is not just an ungrateful deed but also is an action of returning kindness with hatred.  Brothers and sisters, Hong Kong is the living example of the CCP’s evil deed.
+这事最后以大白反思，Sara大格局处理事情结束。
 
-新疆大屠杀，西藏大屠杀，难道汉人没有被大屠杀吗？香港难到没有大屠杀吗？他现在正在准备去台湾哪，还要去台湾大屠杀呢。没有人能阻止得了他是吗？没有人能阻止的了，就不会发生病毒这个事情。没有人能阻止得了他，就不会叫爆料革命、新中国联邦在。还是那句话，老子要多出生几十年，就不会让你共产党存在在这个世界上。
+时间一晃2020年夏天，参加了游行认识了一些战友，从一些战友口里感受到对Sara的赞美之词几乎已经上升到菩萨了天使高度了。
 
-The Xinjiang massacre, the Tibetan massacre, haven’t the Han people been massacred? Didn’t Hong Kong have a massacre? They are now preparing to go to Taiwan to do a massacre. Is there anyone to stop them? If there were no one stopping them, there wouldn’t be the virus. If there is no one that can stop them, then what are the Witshleblower Movement and New Federal State of China existing for? Again, if I were born a few decades earlier, there wouldn’t be the Communist Party existing in this world.
+几乎每个人都说她如何如何善良，如何如何耐心，经过这几年的洗礼，伪类坏人们你方唱罢我登场的节奏也慢慢就感觉自己当初对Sara制止本人不让发言，是为了保护本人。
 
-共产党，你要知道现在全世界真正的形势。全世界的科学家，全世界的有良知的人都在站起来。不会有全世界75亿人口都被你共产党拿下，我绝对不信。你的经济还能继续撑下去，我绝对不信。 你自己知道你有没有钱，是吧？
+让子弹飞一会的智慧才明白好人坏人都在一锅粥里，再加上战友的对Sara的赞誉，本人在2020年对Sara一贯的看法有所改变，并感激当初她制止新人发言是一种深思熟虑的对新人的保护，两年后才豁然开朗感觉自己当初心胸不够开阔。
 
-CCP, you need to know the real situation in the world. Scientists and conscientious people all over the world are standing up. It will never happen that all the 7.5 billion people in the world are over taken by you, the CCP. I absolutely don’t believe it. I absolutely don’t believe that your economy can hold up any longer. You know whether you have money yourself, right?
+谁成想妖孽终究还是妖孽！狐狸尾巴还是爆露出来了，破坏暴力革命！泄漏战友信息！侵占战友的钱！
 
-兄弟姐妹们，还是那句话：共产党是肯定完了，我们就是希望共产党少带走点无辜的中国同胞，少害点无辜的老百姓。共产党，你会…你在你完全你没有知觉的情况下，你会被解体。中国人会把你们这些王八蛋给吃掉你们，会找你们算账的。你对香港人的残害远远超过了种族大屠杀，这个历史的账是一定会给你们算的。咱走着看，你以为香港人现在都沉默了吗？有郭文贵在，有爆料革命在，就不会让你们得逞。
+关键是打着上帝仁爱之心，打着爆料革命口号，战友们的每一分都不是奔着她去的，都是奔着爆料革命奔着郭先生去的！
 
-Brothers and sisters in arms, let me say this again: the CCP is definitely over, and we just hope that the CCP will take away fewer innocent Chinese compatriots with them and harm fewer innocent people. CCP, you will be dissolved when you are completely unaware. The Chinese will swallow you bastards and will hold you accountable. Your cruelty to Hong Kong people far exceeds any genocide. This will not be forgotten in history, and you will definitely be held accountable. Let’s wait and see. Do you think Hong Kong people are silent now? As long as Miles Guo and the Witshleblower Movement are here, you will not be allowed to succeed.
+投入爆料革命投入G系列每一分钱的背后是无数人的对美好生活的希望，是每个战友背负着战胜共产党的渴望和理想！
 
-上天让谁亡，就让谁先猖狂，你先猖狂猖狂吧，走着看。谢谢（香港人说话）！
+害得战友们白白感激她半年多！这个九指尾狐太阴了！
 
-Whom the God would destroy they first make mad. Let’s wait and see how long your madness will still be allowed. Thank you!
+Sara这个就指妖孽侵占的每一分钱都在折损她的福报！
 
-视频来源：[https://gtv.org/getter/60187efe46c6c3519a3e11a8](https://gtv.org/getter/60187efe46c6c3519a3e11a8) (5:31 – 结束)
+吃的每一份饭都是在吃战友的肉！喝的每一杯水都是在喝战友们的血！Sara你吃喝睡用的都是别人的钱！你晚上能睡的踏实吗？内心能安宁吗？
 
-(以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。)
+世间万物相生相克，一切都会回向。爆料革命最神奇是唯真不破，还有报应，现世报，而且很快！
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/862090/](https://gnews.org/zh-hans/862090/)
+圣经里有句话：
 
-翻译：【奔腾的长江】【Isaiah4031】校对：【Isaiah4031】字幕：【相机过热啊】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+凡称呼我“主啊，主啊”的人不能都进天国，惟独遵行我天父旨意的人才能进去。《马太福音7:21》
+
+Sara你认为上帝会宽恕你吗？
+
+圣经里还有这句话：
+
+记得18年左右进入战友之家群，依稀记得当时有大白，停机坪等…
+
+里面好热闹，也想参与话题，于是开口在里面聊天玩，扯国际形势和国内形势，大概不到几分钟Sara就说文星你是新人少说话，多多听听别人发言，好不容易找到战友们的激情瞬间被Sara干灭了。
+
+后来干脆不在战友之家玩了，里面吹牛逼的太多了，慢慢就不关注了。
+
+但是Sara那会参与直播还看，因为那会郭先生路德Sara经常一块做直播。
+
+视频看一开始的Sara有点轻浮，后来视频印象她努力的想表现出宋美龄的典雅涵养和稳重，刻意的把自己包装成国母般范范，隔着屏幕总感觉就像一身旗袍穿在一个烟花女子身上浑身散发不协调特拧巴的感觉，一句话就是装叉！
+
+有一次郭先生做直播考战友们说谁要大概是一分钟还是两分钟说出北京亚运村奥运村鸟巢那一块设计师是谁？就奖励一万美金💲
+
+当时好多连线的战友没说出答案，突然那个大白说出来了答案，是帮助希特勒设计帝国的那个建筑师家族。
+
+当时隔着屏幕感觉郭先生会奖励那个大白一万美金💲吧。但是Sara居然说人家大白超过郭先生规定的时间了，不能获得奖金。
+
+郭先生当时也有点发蒙愣了一愣……整个过程都被Sara带偏了……
+
+当时感觉Sara这女的有病…郭先生根本就不在乎这点钱，她比郭先生还在乎，让人有说不出来的一种恶心感。
+
+直播结束后，那个大白不服气在战友之家找Sara理论，后来Sara就上纲上线说大白不懂事，大白后来还做反思说自己并不是光想要钱，而是想用这笔钱做些宣传爆料革命的例如做彩页夹在报纸里等。
+
+这事最后以大白反思，Sara大格局处理事情结束。
+
+时间一晃2020年夏天，参加了游行认识了一些战友，从一些战友口里感受到对Sara的赞美之词几乎已经上升到菩萨了天使高度了。
+
+几乎每个人都说她如何如何善良，如何如何耐心，经过这几年的洗礼，伪类坏人们你方唱罢我登场的节奏也慢慢就感觉自己当初对Sara制止本人不让发言，是为了保护本人。
+
+让子弹飞一会的智慧才明白好人坏人都在一锅粥里，再加上战友的对Sara的赞誉，本人在2020年对Sara一贯的看法有所改变，并感激当初她制止新人发言是一种深思熟虑的对新人的保护，两年后才豁然开朗感觉自己当初心胸不够开阔。
+
+谁成想妖孽终究还是妖孽！狐狸尾巴还是爆露出来了，破坏暴力革命！泄漏战友信息！侵占战友的钱！
+
+关键是打着上帝仁爱之心，打着爆料革命口号，战友们的每一分都不是奔着她去的，都是奔着爆料革命奔着郭先生去的！
+
+投入爆料革命投入G系列每一分钱的背后是无数人的对美好生活的希望，是每个战友背负着战胜共产党的渴望和理想！
+
+害得战友们白白感激她半年多！这个九指尾狐太阴了！
+
+Sara这个就指妖孽侵占的每一分钱都在折损她的福报！
+
+吃的每一份饭都是在吃战友的肉！喝的每一杯水都是在喝战友们的血！Sara你吃喝睡用的都是别人的钱！你晚上能睡的踏实吗？内心能安宁吗？
+
+世间万物相生相克，一切都会回向。爆料革命最神奇是唯真不破，还有报应，现世报，而且很快！
+
+圣经里有句话：
+
+凡称呼我“主啊，主啊”的人不能都进天国，惟独遵行我天父旨意的人才能进去。《马太福音7:21》
+
+Sara你认为上帝会宽恕你吗？
+
+圣经里还有这句话：
+
+我就明明地告诉他们说：‘我从来不认识你们，你们这些作恶的人，离开我去吧！”―《圣经》马太福音7:23
+
+（本文仅代表作者个人观点，与G-News网站无关）
+
+审稿：捆绑CCP一千年 / 喜马拉雅日本东京樱花团
+ 编辑：東洋武士 / 喜马拉雅日本东京樱花团
+
+HTS-02C-202102-017
 
 +2
