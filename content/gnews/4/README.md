@@ -1,66 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 飞机闯台事件后，中共国宣布将在南海举行军事演习
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/900167/)
+## 中共监管机构约谈特斯拉意欲何为？
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/900214/)
 
-*新闻来源：BREITBART《布莱特巴特新闻网》| 作者：John Hayward| 发布时间：2021年1月26日*
+*新闻来源：《零对冲》| 作者：泰勒•杜登(Tyler Durden) | 发布时间：2021年2月8日*
 
-*翻译/简评：毛毛猫猫 |校对：感恩 |审核：万人往 |Page：小雨*
+*翻译/简评：helloworld | 校对：X-Wing飞得更高 | 审核：万人往 | Page：拱卒*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/sYSjMj8zyJBOU/images/c50011f6-5747-4df4-833c-f5d30aa88fcf.jpg?asset_id=8aba560e-6d51-4aa6-bd31-00837291a118&amp;img_etag=%222aa487a6be5587e06f66ad7526babf4e%22&amp;size=2560)](https://spark.adobe.com/page/sYSjMj8zyJBOU/images/c50011f6-5747-4df4-833c-f5d30aa88fcf.jpg?asset_id=8aba560e-6d51-4aa6-bd31-00837291a118&amp;img_etag=%222aa487a6be5587e06f66ad7526babf4e%22&amp;size=1024)创纪录的飞机闯台事件后，中共国终于宣布将在南海举行军事演习
-
-
+[!\[\]()!\[\](https://spark.adobe.com/page/KqGwiRkoGCCgc/images/d3f769f4-a59c-4462-8732-608a8528b84e.jpg?asset_id=4ff8d944-a374-4aa3-adc0-442dc02ec43d&amp;img_etag=%22c5b6dee82560b599107fe7b2ef92dd08%22&amp;size=2560)](https://spark.adobe.com/page/KqGwiRkoGCCgc/images/d3f769f4-a59c-4462-8732-608a8528b84e.jpg?asset_id=4ff8d944-a374-4aa3-adc0-442dc02ec43d&amp;img_etag=%22c5b6dee82560b599107fe7b2ef92dd08%22&amp;size=1024)
 
 **简评：**
 
-中共在美国政府换届之际，为了压缩台湾的国际空间，刻意矮化台湾，预使台湾问题国内化，不断向蔡英文当局进行施压，在军机闯入台湾空域次数不断刷新历史记录的同时，高调宣布将在南海举行军事演习。
+在上海政府给出无比丰厚的优惠后，特斯拉在上海建厂投产了特斯拉。但在3个月的蜜月期后，在公司财政越来越依赖中共国之时，中共国政府借故约谈，恐彻底打消特斯拉的黄粱美梦。
 
-中共此举不仅加剧了两岸的紧张关系，同时对地区安全产生巨大威胁。中共的疯狂举动必将招致台湾以及周边国家和美国更加紧密的军事合作，从而对中共日益增强的武力挑战进行强有力的回击。
+马斯克经营的企业涵盖着美国众多的科技创新方向。此次马斯克被中共国用利益要挟，恐使美国政府失去用马斯克企业的私有技术为美国国家安全压制中共国的可能性。鉴于中美关系日益紧张，而特斯拉作为上市公司，一举一动都为市值所困，这将给马斯克带来一个难解的困局。
+
+蝙蝠侠《黑暗骑士》中一幕是小丑雇了5人抢劫银行，而最后逃走时，劫匪挨个背叛，最后小丑杀光队友独吞了巨款。而欧美对于中共列宁政党体系认识不足，面对共产党的诱惑时，极其天真地逐一落入圈套。如果欧美各国无法认识到，真正需要真相从胁迫和劫难中醒来的不是爆料革命，而是他们自己时，还会有多少人因天真而将遭受伤害？不过这对于爆料革命是大好事，每一个被共产党制度背叛的欧美商人和政客，最终都将和爆料革命站在一起。
 
 **原文翻译：**
 
-# **创纪录的飞机闯台事件后，中共国终于宣布将在南海举行军事演习**
+# **中共国四家监管机构约谈特斯拉，敦促该公司“遵守中共国法律运营”**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/sYSjMj8zyJBOU/images/d65c99c6-4073-4bad-8114-6149ef1f365b.jpg?asset_id=3f58a2f4-fa33-4e25-9399-659c8bbf74ae&amp;img_etag=%226409b0dc197792a2c177f6f80be80116%22&amp;size=2560)](https://spark.adobe.com/page/sYSjMj8zyJBOU/images/d65c99c6-4073-4bad-8114-6149ef1f365b.jpg?asset_id=3f58a2f4-fa33-4e25-9399-659c8bbf74ae&amp;img_etag=%226409b0dc197792a2c177f6f80be80116%22&amp;size=1024)
+仅在大约三周前，我们发表了一篇题为《埃隆·马斯克的中共国童话最终将终结》的文章。文章旨在重申几个月来我们重复再三的话：埃隆·马斯克与中共国政府的童话故事，最终会像所有与中共的关系一样走到尽头。不信你问问马云。
 
-1月26日，中共国宣布将在南海举行军事演习，除了大致的演习地点外，几乎没有提供任何行动的细节。
+[!\[\]()!\[\](https://spark.adobe.com/page/KqGwiRkoGCCgc/images/7a116df6-68a0-4e7c-8325-d6c85b723255.jpg?asset_id=d6139981-31c3-4c65-a234-5cad6bc795dd&amp;img_etag=%22549978657d35b9bb38fbbadd0dfbb993%22&amp;size=2560)](https://spark.adobe.com/page/KqGwiRkoGCCgc/images/7a116df6-68a0-4e7c-8325-d6c85b723255.jpg?asset_id=d6139981-31c3-4c65-a234-5cad6bc795dd&amp;img_etag=%22549978657d35b9bb38fbbadd0dfbb993%22&amp;size=1024)不信你问问马云
 
-目前，美国有一个航母战斗群正在该地区进行自由航行巡逻。
+我们对马斯克在中共国能坚持这么久感到非常困惑。鉴于特斯拉的短暂历史：
 
-在中共国军队威胁性入侵台防空区的次数创下纪录后，台湾举行了防空演习。
+到目前为止，在中共国，马斯克一直成功回避着一些丑闻，包括失控的特斯拉汽车、强迫召回、不断降价和不满的客户。到目前为止，马斯克尚能控制住中共国的局面。
 
-根据中共国政府的通告，越南附近的北部湾部分地区已被受限，并用于从1月27日（周三）到1月30日（周六）的军演。
+但后来我们问道：“这样的好日子能持续多久？”
 
-越南目前正在召开本国的共产党代表大会。由于河内与北京的关系因南中国海领土的争端而变得日益紧张，越南人可能成为中共国令人生畏的最新军事力量的目标受众之一，而据报道，越南正在寻求与美国建立更密切的关系，以对抗中共国日益增长的威胁。
+彭博社报道“中共国的市场监管机构已就质量问题约谈特斯拉”之后，周一，特斯拉股价在盘前交易中下滑。因此看来，答案似乎是“3周左右”。
 
-中共国人民解放军近来在军事演习中一直强调交叉训练和多角色作战，力求使部队更加灵活，并明确训练他们来应对可能入侵台湾的海、陆、空的联合行动。
+显然，中共国政府似乎并不喜欢其居民驾驶需要召回的车辆在中共国的街道上失控，或者在停车场时随机爆炸。去看看吧，周一早上，各终端（专业金融系统）展示的头条新闻包括：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/sYSjMj8zyJBOU/images/e89e31ae-6af9-4811-a234-1dce29346acc.jpg?asset_id=7ce84fee-9267-4494-9f34-d19d8c9e70ab&amp;img_etag=%22c305a34979eaa3494e762bcb1e3a010b%22&amp;size=2560)](https://spark.adobe.com/page/sYSjMj8zyJBOU/images/e89e31ae-6af9-4811-a234-1dce29346acc.jpg?asset_id=7ce84fee-9267-4494-9f34-d19d8c9e70ab&amp;img_etag=%22c305a34979eaa3494e762bcb1e3a010b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/KqGwiRkoGCCgc/images/73b39476-5492-4238-9609-7b4a5020e632.jpg?asset_id=5dec4e5a-6742-41a7-84e3-9e804743f935&amp;img_etag=%22ed02a6932f2766b0fd96d0fd84b9a8dc%22&amp;size=2560)](https://spark.adobe.com/page/KqGwiRkoGCCgc/images/73b39476-5492-4238-9609-7b4a5020e632.jpg?asset_id=5dec4e5a-6742-41a7-84e3-9e804743f935&amp;img_etag=%22ed02a6932f2766b0fd96d0fd84b9a8dc%22&amp;size=1024)
 
-美国的“西奥多•罗斯福”号航母及其打击群周六进入南中国海进行自由航行活动（FONOP）。与往常一样，中共国强烈反对这一行动，并称这是对该地区稳定的威胁。
+**特斯拉被中共国国家市场监督管理总局和其他四个部门约谈。**
 
-美军打击群计划进行“固定翼和旋转翼飞机的飞行行动、海上打击演习以及水面部队和空中部队之间的协调战术训练”。该航母打击群除了西奥多•罗斯福号的大量作战和支援飞机外，还包括一艘导弹巡洋舰和两艘驱逐舰。
+**中共国工业部、交通运输部、网信办和应急管理部敦促特斯拉根据中共国法律开展业务**
 
-台湾进行了一次防空演习，这次演习从南部城市台南附近的一个基地调集战斗机，该基地经常被用来应对中共国对台湾防空识别区（ADIZ）的入侵。这次的重大入侵事件发生在周六和周日，就在西奥多•罗斯福打击群抵达南中国海的时候，也是美国总统拜登就职后的几天。
+特斯拉股价应声下滑。随后在披露该公司购买了15亿美元的比特币后，股价逆转了走势。然后，这些运营失误和生产挑战使股价再次打了折扣。那些最新的、与生产和制造无关狗尾续貂的表演根本于事无补。
 
-台军上校李庆熙说，这次演习是为了表明“我们已经准备好了”，“我们不会放弃一寸领土”。
+[!\[\]()!\[\](https://spark.adobe.com/page/KqGwiRkoGCCgc/images/008e7745-7c19-49bc-9982-c1ee79c67c1c.jpg?asset_id=13ddbf9d-6da4-47ec-b54a-6d05ca9ec6ce&amp;img_etag=%2269bf169d71d37011ea4814edf98908ba%22&amp;size=2560)](https://spark.adobe.com/page/KqGwiRkoGCCgc/images/008e7745-7c19-49bc-9982-c1ee79c67c1c.jpg?asset_id=13ddbf9d-6da4-47ec-b54a-6d05ca9ec6ce&amp;img_etag=%2269bf169d71d37011ea4814edf98908ba%22&amp;size=1024)
 
-“所有的分支部门都承受着相当大的压力，但只要空军在这里，我们就会按照相关战备规则做出反应。”一名驻扎台南基地的飞行员告诉路透社记者，中共国似乎是想通过让台湾空军疲于应对不断的，针对台湾防空识别区（ADIZ）的侵扰，来试图拖垮规模小得多的台湾空军。
+我们不能完全确定，来自中共国的审查行为会快速推进，还是仅局限于这一“约谈”。回想我们在1月底指出的来自《环球时报》的报道，他们曾指出特斯拉对中共国的“依赖程度越来越高”。以下是不到两周前，我们从中共国察觉到的氛围：
 
-台南基地是经国号战斗机的机翼生产地，这种飞机与美国的F-16类似，但根据台湾的需要进行了改装，并在当地生产。该型号的战斗机通常使用美国和台湾制造的空对空导弹发射，引以为豪的是它们能够在探测到台湾防空识别区（ADIZ）内不明飞机的几分钟内空降。
+中共国正处于与美国日渐紧张的关系之中，这种关系始于川普政府时期，是由于美国重新审查了美国证券交易所内的中共国公司以及与中共国军队有关的公司所导致的。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/sYSjMj8zyJBOU/images/2592cfa1-c164-4ba5-a0f2-7234ec4554ba.jpg?asset_id=85d29afa-c5ed-436d-b635-972c7291f95a&amp;img_etag=%22968c849163aeed52d501b342c06392a9%22&amp;size=2560)](https://spark.adobe.com/page/sYSjMj8zyJBOU/images/2592cfa1-c164-4ba5-a0f2-7234ec4554ba.jpg?asset_id=85d29afa-c5ed-436d-b635-972c7291f95a&amp;img_etag=%22968c849163aeed52d501b342c06392a9%22&amp;size=1024)
+**而根据《环球时报》文中所称的“不言而喻”，看起来这些紧张氛围非常可能在2021年一直持续。**
 
-🔗[原文链接](https://www.breitbart.com/national-security/2021/01/26/china-to-hold-military-drills-in-south-china-sea-after-record-setting-taiwan-incursion/)
+中共国似乎完全了解特斯拉对该国的依赖程度。现在，正如预期一样，看起来它可能准备好发挥一些力量。
+
+🔗[原文链接](https://www.zerohedge.com/markets/tesla-urged-operate-according-china-law-four-separate-ccp-agencies)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 - [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
-编辑：【英国伦敦喜庄园编辑部】Edited by：【Himalaya London Club UK】
+编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/sYSjMj8zyJBOU/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/sYSjMj8zyJBOU/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/KqGwiRkoGCCgc/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/KqGwiRkoGCCgc/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

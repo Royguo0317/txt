@@ -1,68 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共监管机构约谈特斯拉意欲何为？
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/900214/)
+## 2/10/2021 财经快讯：通用汽车延长减产计划; 欧盟准备针对大型科技公司立法
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/900169/)
 
-*新闻来源：《零对冲》| 作者：泰勒•杜登(Tyler Durden) | 发布时间：2021年2月8日*
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2021-02-10_232613.png)图片来源： https://gmauthority.com
+**1.全球芯片短缺导致通用汽车延长减产计划**
 
-*翻译/简评：helloworld | 校对：X-Wing飞得更高 | 审核：万人往 | Page：拱卒*
+(路透底特律) 2月9日 – 通用汽车公司周二表示，由于全球芯片短缺，它在北美三家工厂（分别位于美国堪萨斯州费尔法克斯，加拿大安大略省英格索尔，和墨西哥圣路易斯波托西）的减产将延长到至少三月中旬，并且另外两家工厂将只能部分生产组装。该公司将重点保持生产那些利润最高的车款，包括全尺寸皮卡和SUV。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/KqGwiRkoGCCgc/images/d3f769f4-a59c-4462-8732-608a8528b84e.jpg?asset_id=4ff8d944-a374-4aa3-adc0-442dc02ec43d&amp;img_etag=%22c5b6dee82560b599107fe7b2ef92dd08%22&amp;size=2560)](https://spark.adobe.com/page/KqGwiRkoGCCgc/images/d3f769f4-a59c-4462-8732-608a8528b84e.jpg?asset_id=4ff8d944-a374-4aa3-adc0-442dc02ec43d&amp;img_etag=%22c5b6dee82560b599107fe7b2ef92dd08%22&amp;size=1024)
+全球芯片短缺影响了包括丰田，大众，斯泰兰蒂斯在内的许多汽车制造商。AutoForecast Solutions周二更新了对今年汽车产量损失的估计，称全球可能因芯片短缺而减产了近130万辆汽车，其中通用汽车可能减产111,450辆汽车。
 
-**简评：**
+[https://www.reuters.com/article/us-gm-semiconductors-exclusive/gm-extends-vehicle-production-cuts-due-to-global-chip-shortage-idUSKBN2A91VY](https://www.reuters.com/article/us-gm-semiconductors-exclusive/gm-extends-vehicle-production-cuts-due-to-global-chip-shortage-idUSKBN2A91VY)
 
-在上海政府给出无比丰厚的优惠后，特斯拉在上海建厂投产了特斯拉。但在3个月的蜜月期后，在公司财政越来越依赖中共国之时，中共国政府借故约谈，恐彻底打消特斯拉的黄粱美梦。
+**2.欧盟准备效法澳大利亚迫使大型科技公司为新闻付费**
 
-马斯克经营的企业涵盖着美国众多的科技创新方向。此次马斯克被中共国用利益要挟，恐使美国政府失去用马斯克企业的私有技术为美国国家安全压制中共国的可能性。鉴于中美关系日益紧张，而特斯拉作为上市公司，一举一动都为市值所困，这将给马斯克带来一个难解的困局。
+据周二在英国《金融时报》上发表的一篇文章，监督欧洲新数字法规的欧盟立法者希望迫使大型科技公司为新闻付费，以呼应澳大利亚的类似举动。负责制定欧洲《数字服务法案》（DSA）和《数字市场法案》（DMA）的欧洲议会议员告诉《金融时报》，这些法律可能会在通过欧盟议会时进行修改，以便纳入类似澳大利亚法案中的一些规定。这些法规包括对许可协议进行约束性仲裁，并要求科技公司告知出版商其网站新闻报道排名的方式。但是欧洲议会议员在如何最好地实施此类改革以及具体实施的时间上还存在分歧。
 
-蝙蝠侠《黑暗骑士》中一幕是小丑雇了5人抢劫银行，而最后逃走时，劫匪挨个背叛，最后小丑杀光队友独吞了巨款。而欧美对于中共列宁政党体系认识不足，面对共产党的诱惑时，极其天真地逐一落入圈套。如果欧美各国无法认识到，真正需要真相从胁迫和劫难中醒来的不是爆料革命，而是他们自己时，还会有多少人因天真而将遭受伤害？不过这对于爆料革命是大好事，每一个被共产党制度背叛的欧美商人和政客，最终都将和爆料革命站在一起。
+[https://www.business-standard.com/article/international/eu-ready-to-follow-australia-s-lead-on-making-big-tech-pay-for-news-121021000061\_1.html](https://www.business-standard.com/article/international/eu-ready-to-follow-australia-s-lead-on-making-big-tech-pay-for-news-121021000061_1.html)
 
-**原文翻译：**
+**3.美国谷物销售强劲，农民展望乐观前景**
 
-# **中共国四家监管机构约谈特斯拉，敦促该公司“遵守中共国法律运营”**
+(路透) – 由于出口以及生产动物饲料和生物燃料的国内加工业的需求增加，美国农民多年来首次有望获得高利润。中共国2020年大豆采购量比2019年增长了77％，而且因干旱和病虫害的原因创纪录地购买了史上从未购买过的玉米。美国大豆和玉米的总种植面积预期将达到创纪录或接近创纪录的水平。由于小麦价格走高，农民已经八年来首次增加了冬小麦种植面积。农作物种植面积的扩大也会对种子，肥料和设备制造商有利。 Deere＆Co预测2021年美国和加拿大的农业设备销售将增长5％-10％。
 
-仅在大约三周前，我们发表了一篇题为《埃隆·马斯克的中共国童话最终将终结》的文章。文章旨在重申几个月来我们重复再三的话：埃隆·马斯克与中共国政府的童话故事，最终会像所有与中共的关系一样走到尽头。不信你问问马云。
+[https://www.reuters.com/article/us-usa-crops-farmers-insight-idUSKBN2A91J2](https://www.reuters.com/article/us-usa-crops-farmers-insight-idUSKBN2A91J2)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/KqGwiRkoGCCgc/images/7a116df6-68a0-4e7c-8325-d6c85b723255.jpg?asset_id=d6139981-31c3-4c65-a234-5cad6bc795dd&amp;img_etag=%22549978657d35b9bb38fbbadd0dfbb993%22&amp;size=2560)](https://spark.adobe.com/page/KqGwiRkoGCCgc/images/7a116df6-68a0-4e7c-8325-d6c85b723255.jpg?asset_id=d6139981-31c3-4c65-a234-5cad6bc795dd&amp;img_etag=%22549978657d35b9bb38fbbadd0dfbb993%22&amp;size=1024)不信你问问马云
+**4.冬季寒流震撼美国能源市场**
 
-我们对马斯克在中共国能坚持这么久感到非常困惑。鉴于特斯拉的短暂历史：
+(彭博社) – 冬季寒流在美国各地蔓延，导致对取暖燃料的需求不断增加。国家气象局（National Weather Service）数据显示，大平原和中西部地区的气温已经骤降。预计美国中部地区的温度将比正常低30至40华氏度（17至22摄氏度），东北地区下周温度将降低10-15度。寒流的到来导致天然气和供暖燃料的价格飙升。德克萨斯州Waha枢纽的现货天然气周一交易价格为两年最高，而在波士顿Algonquin City Gate枢纽的价格已接近两年新高。3月交割的天然气期货交易价格为四年来最高的季节性水平。
 
-到目前为止，在中共国，马斯克一直成功回避着一些丑闻，包括失控的特斯拉汽车、强迫召回、不断降价和不满的客户。到目前为止，马斯克尚能控制住中共国的局面。
+[https://www.bloomberg.com/news/articles/2021-02-09/coldest-blast-of-winter-shakes-energy-markets-across-the-u-s](https://www.bloomberg.com/news/articles/2021-02-09/coldest-blast-of-winter-shakes-energy-markets-across-the-u-s)
 
-但后来我们问道：“这样的好日子能持续多久？”
+**5.华为对FCC提出法律质疑**
 
-彭博社报道“中共国的市场监管机构已就质量问题约谈特斯拉”之后，周一，特斯拉股价在盘前交易中下滑。因此看来，答案似乎是“3周左右”。
+（路透华盛顿）2月9日 – 华为技术有限公司已就美国联邦通信委员会（Federal Communications Commission）指定该公司对美国通信网络的国家安全造成威胁提出法律质疑。FCC于6月正式将中共国的华为和中兴通讯指定为安全威胁，并禁止美国公司动用政府资金从这些公司购买设备。华为在周一向美国第五巡回上诉法院提交的请愿书中表示，FCC的命令超出了“法定权限；违反联邦法律和宪法；是任意的，反复无常的，并且滥用自由裁量权。”FCC没有立即对华为的请愿发表评论。
 
-显然，中共国政府似乎并不喜欢其居民驾驶需要召回的车辆在中共国的街道上失控，或者在停车场时随机爆炸。去看看吧，周一早上，各终端（专业金融系统）展示的头条新闻包括：
+[https://www.reuters.com/article/us-usa-fcc-huawei/huawei-challenges-u-s-fcc-over-national-security-threat-designation-idUSKBN2A92D2?il=0](https://www.reuters.com/article/us-usa-fcc-huawei/huawei-challenges-u-s-fcc-over-national-security-threat-designation-idUSKBN2A92D2?il=0)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/KqGwiRkoGCCgc/images/73b39476-5492-4238-9609-7b4a5020e632.jpg?asset_id=5dec4e5a-6742-41a7-84e3-9e804743f935&amp;img_etag=%22ed02a6932f2766b0fd96d0fd84b9a8dc%22&amp;size=2560)](https://spark.adobe.com/page/KqGwiRkoGCCgc/images/73b39476-5492-4238-9609-7b4a5020e632.jpg?asset_id=5dec4e5a-6742-41a7-84e3-9e804743f935&amp;img_etag=%22ed02a6932f2766b0fd96d0fd84b9a8dc%22&amp;size=1024)
+**6.中共国粮食安全的根本问题是饲料粮短缺**
 
-**特斯拉被中共国国家市场监督管理总局和其他四个部门约谈。**
+由于中国人膳食结构的改变，每年人均肉类消费量从1980年的10公斤上升到目前近70公斤。但是猪肉国内产量不能满足需求，导致每年进口不断增长。2020年以来，主要饲料价格尤其是玉米和大豆也纷纷上涨，带动肉类价格上涨。而且中共国对大豆进口依存度高，玉米2020年进口量也创历史最高。北京大学农业政策研究中心主任黄季焜指出，从中长期看，中国粮食安全的根本问题是饲料粮短缺。
 
-**中共国工业部、交通运输部、网信办和应急管理部敦促特斯拉根据中共国法律开展业务**
+[https://finance.sina.com.cn/money/future/roll/2021-02-09/doc-ikftpnny5931771.shtml](https://finance.sina.com.cn/money/future/roll/2021-02-09/doc-ikftpnny5931771.shtml)
 
-特斯拉股价应声下滑。随后在披露该公司购买了15亿美元的比特币后，股价逆转了走势。然后，这些运营失误和生产挑战使股价再次打了折扣。那些最新的、与生产和制造无关狗尾续貂的表演根本于事无补。
+**7.某些大型银行停售按月付息大额存单 **
 
-[!\[\]()!\[\](https://spark.adobe.com/page/KqGwiRkoGCCgc/images/008e7745-7c19-49bc-9982-c1ee79c67c1c.jpg?asset_id=13ddbf9d-6da4-47ec-b54a-6d05ca9ec6ce&amp;img_etag=%2269bf169d71d37011ea4814edf98908ba%22&amp;size=2560)](https://spark.adobe.com/page/KqGwiRkoGCCgc/images/008e7745-7c19-49bc-9982-c1ee79c67c1c.jpg?asset_id=13ddbf9d-6da4-47ec-b54a-6d05ca9ec6ce&amp;img_etag=%2269bf169d71d37011ea4814edf98908ba%22&amp;size=1024)
+2月9日 – 每日经济新闻记者获悉，交行近日叫停所有按月付息型存款产品，包括大额存单（按月付息型）及惠享存产品，并要求各支行也停止对按月付息大额存单和惠享存产品的宣传。工行上海地区有支行也接到分行通知，将于近期停售按月付息型大额存单。不过据记者了解，目前多家银行仍在售按月付息的大额存单。
 
-我们不能完全确定，来自中共国的审查行为会快速推进，还是仅局限于这一“约谈”。回想我们在1月底指出的来自《环球时报》的报道，他们曾指出特斯拉对中共国的“依赖程度越来越高”。以下是不到两周前，我们从中共国察觉到的氛围：
+[https://ishare.ifeng.com/c/s/v004WQZA6dhLOa0IT-L-\_jDTPbrtUnOcfxCEDyv6TGr-\_7NqQQ6gYF9JhbN8mvy9BsZ5jXmEdsFTSFT-\_I2Qu13hWtGSA\_\_\_](https://ishare.ifeng.com/c/s/v004WQZA6dhLOa0IT-L-_jDTPbrtUnOcfxCEDyv6TGr-_7NqQQ6gYF9JhbN8mvy9BsZ5jXmEdsFTSFT-_I2Qu13hWtGSA___)
 
-中共国正处于与美国日渐紧张的关系之中，这种关系始于川普政府时期，是由于美国重新审查了美国证券交易所内的中共国公司以及与中共国军队有关的公司所导致的。
+By 【Financial Team】
 
-**而根据《环球时报》文中所称的“不言而喻”，看起来这些紧张氛围非常可能在2021年一直持续。**
+News Collection: Wendy 、文罡、Kate
 
-中共国似乎完全了解特斯拉对该国的依赖程度。现在，正如预期一样，看起来它可能准备好发挥一些力量。
+Translation & Writer: Kate
 
-🔗[原文链接](https://www.zerohedge.com/markets/tesla-urged-operate-according-china-law-four-separate-ccp-agencies)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/KqGwiRkoGCCgc/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/KqGwiRkoGCCgc/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+Proofreading: 小蚂蚁在行动
 
 0
