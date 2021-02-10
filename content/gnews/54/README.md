@@ -1,36 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 意大利警方查获假冒伪劣防中共病毒药品
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/896515/)
+## 快讯：众议院表决对川普总统弹劾符合宪法
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/896628/)
 
-```
-新闻来源：欧元周刊新闻《EuroWeekly》
-报道时间：2021年1月22日
-简评/翻译：阿娜 校对/发稿人: Ting Guo
-```
+俄罗斯莫斯科喀秋莎农场 仰望七星
+编辑 水星 上传 银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-10_02-33-58.jpg)[vanityfair.com](https://www.vanityfair.com/news/2020/07/a-conclusive-diagnosis-of-donald-trumps-psychopathology)
+没有等到期望的结果，即川普总统的律师团队认定弹劾程序违背宪法的努力失败。
 
+参议院花了将近四个小时的时间，听取了众议院弹劾代表、川普总统的律师，对已经卸任的总统进行弹劾是否符合宪法规定的阐述后，进行了表决，表决结果是56：44，弹劾程序符合宪法。
 
-#### 简评：
+民主党人继续保持高度的一致，在巫婆佩洛西的魔幻施压下，没有相左意见的发声，而共和党又有1人“变节”，来自路易斯安娜州的比尔·卡西迪（Bill Cassidy），投了“弹劾符合宪法”的赞成票。
 
-很多意大利华人习惯于沉浸在微信圈，尤其是在爆料革命出现以前，大家每天浏览信息最多的还是来自于微信。中共病毒刚开始的时候，尤其是在去年，我还能看到认识的意大利华人，在微信圈卖钟南山推荐的莲花清瘟。可今年就没有再看到了，想必身在海外的华人多少都知道病毒真相了，自然莲花清瘟也就不能再忽悠人了。
+否决保罗参议员提案的5名共和党人继续投了“弹劾符合宪法”的赞成票，他们是：缅因州的苏珊·柯林斯（Susan Collins）、阿拉斯加州的丽莎·默科夫斯基（Lisa Murkowski）、犹他州的米特·罗姆尼（Mitt Romney）、内布拉斯加州的本萨斯（Ben Sasse）宾夕法尼亚州的帕特·图密（Pat Toomey）。
 
-身为在意大利的华人理应注重保护自己华人的形象，否则在这次中共制造的病毒真相面前，我们华人太容易成为受中共这个恶魔连累的对象了。如果不是爆料革命，提前宣传中国人不等于中共，很难想象我们华人的未来在海外，将面临艰难的生存环境。
+从明天起，川普总统弹劾案将继续审议，众议院的弹劾主管人员，以及川普总统的辩护团队将各有16个小时进行案情陈述，届时（双方）将有相同的时间，为参议员的提问、制止争论、议员审议等。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Caribinieri.jpeg)图为警方在罗马和托斯卡纳的超级市场发现了2000粒药丸 图片来源：Carabinieri
+（双方）主管（可以）要求证人作证。
 
-#### **参考新闻翻译如下****:**
+看来闹剧将继续进行！ 参考链接：
 
-#### 罗马和托斯卡纳的意大利警方查获了大量假冒的防病毒假药。
+参考链接：
 
-这些药丸声称可以治疗中共病毒（Covid-19）症状，并在五家中国超市和草药商店出售，其中四家在首都罗马，另一家在佛罗伦萨附近的托斯卡纳小镇普拉托（那里是著名的华人居住地和华人开的工厂所在地）。
+[https://www.thegatewaypundit.com/2021/02/breaking-senate-votes-56-44-proceed-impeachment-trial-private-citizen-donald-j-trump/；](https://www.thegatewaypundit.com/2021/02/breaking-senate-votes-56-44-proceed-impeachment-trial-private-citizen-donald-j-trump/；)
 
-意大利警察说，部队已查获437箱，总计约2000份无牌和非法药丸。假药品起源于中共国，并由未经处方或出售药品的企业销售。意大利公共检察官办公室将对在突击检查中被锁定的许多企业主进行调查，调查他们经营无牌药房以及进口和出售未经授权的药物的指控。
-
-由于怀疑他们的药效和潜在的不良副作用，在意大利药品局（AIFA）和欧盟药品管理局（EMA）卫生机构的授权下这些药被查获。在大流行病毒期间，由于不良的企业试图从该病毒中获利，许多此类骗人的药品已进入市场。
-
-这次行动是由罗马NAS部门的警察官员与Nucleo药品局警察、佛罗伦萨的NAS的警察和普拉托的当地警察合作进行的。尽管意大利的犯罪世界是由土著黑手党组织主导的，但据报道，中共国犯罪集团在意大利开展活动通常专门从事非法进口。
-
-**新闻来源：**[Italian Police Seize Fake Chinese Covid Medicine](https://www.euroweeklynews.com/2021/01/22/italian-police-seize-fake-chinese-covid-medicine/amp/)
+[https://gnews.org/zh-hans/896270/](https://gnews.org/zh-hans/896270/)
 
 0
