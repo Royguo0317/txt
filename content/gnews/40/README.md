@@ -1,150 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 相关财务人员及管理人员的行为判断（五）
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/893214/)
+## [五月花评】中共欲让美国成为共产党病毒的替罪羊
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/896223/)
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/23164109/1223.jpg)
-Picture Source: https://www.groomassocies.com
+五月花写作组 | 作者 & 翻译：伞兵 | 校对、编辑、发稿：jamie(文胤)
 
-在最后一篇文章中，将总结相关财务人员，以及管理人员的行为，并根据行为模式的解读与客观，审慎，勤勉的的态度作出有效评估关于潜在的在的欺诈以及诈骗风险，并有效衡量实际商业运营中可容忍的风险程度。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/CCP-Leads-America-to-Be-the-Scapegoat-of-CCP-Virus.jpg)[source: economictimes.indiatimes.com](https://economictimes.indiatimes.com/organizations-need-scapegoats-to-take-responsibility-for-failures/articleshow/45977333.cms)
 
-1.Diligence and Reasonable Basis
+随着CCP病毒的自然起源论受到越来越多的怀疑和批评，中共加紧了宣传机器，指责美国制造了这种病毒。[【1】](https://www.military.com/daily-news/2020/03/12/chinese-official-says-us-army-may-have-brought-epidemic-wuhan.html) 这种无耻的手段是为了洗刷中共的罪恶行为，避免被追究制造全球病毒大流行的责任。早在2020年3月，中共某官媒就曾指责参加武汉军运会的美国军方运动员将病毒传播到中国，影射病毒的爆发是在美国而不是在中国。在遭到时任国务卿蓬佩奥的严厉指责后，中共暂缓了这样的宣传。
 
-- 在分析投资，提出投资建议，采取投资行动时应做到：勤奋，独立，完全，彻底。
-- 应该在适当的研究和调查下，拥有合理且充足的基础，进而采取任何分析/推荐/行动。
-- 当成员完成上述步骤，但仍然遭受损失。成员则不违反此条例。
+然而在2021年1月23日，中共国故伎重演。政协委员何新引用OAN的报道，其中包括自称公民调查员的格雷格‧鲁比尼（Greg Rubini）的存档推文，称***“******冠状病毒是在北卡罗来纳大学教堂山分校的******BSL-4******设施中经过基因改造的生物武器。格雷格称，该病毒是在北卡罗来纳州制造的，并有目的地释放到包括伊朗、韩国、意大利和中国在内的国家，这是******“******深层政府******“******的杰作。******”*** [【2】](https://archive.fo/ssVpr)何新在微博上声称：”制造CCP病毒的科学家拉尔夫‧巴里克的科研经费由安东尼‧福奇博士领导的NIH资助。” [【3】](http://www.xilu.com/20210203/1000010001162969.html) 政协是中共的一个内部圈子。如果没有中共的批准，何新发布的信息是不会被允许在中国的社交媒体上流传的。
 
+美国在冠状病毒方面的研究远比中国先进。不过，美国以伦理问题和缺乏药用意义为由，停止了研究工作。而武汉病毒研究所则得到了经由福奇博士批准的NIH的资助。而巴里奇与“蝙蝠女“石正立一直保持着深度合作。他们在2015年共同发表了一篇论文，研究如何改造蝙蝠病毒使其能够感染人类。[【4】](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4797993/)福奇和巴里克都是新冠自然起源论的坚定拥护者，而拒绝实验室起源论。他们的说法符合中共的利益，使调查武汉实验室和追究中共责任的要求降低了合理性。不幸的是，何新的微博正在释放一个重要信号，中共正打算让他们二位成为制造冠状病毒和疫情的替罪羊。
 
-2.Defining Diligence and Reasonable Basis
+路德社认为，这是中共的应急计划，以防自然起源论被推翻。路德进一步预测，一旦国际社会和科学界达成共识，认为病毒来自于实验室，中共就会进一步贿赂或胁迫一些美国科学家，让他们背锅，如巴里奇或福奇。
 
-- 任何单一标准 / 方案 构成的投资意见或行动方案，违反此条例。
+然而，这样的计划并不能洗清中共的罪责，因为全世界只有中共军方独家拥有制造CCP病毒所需的骨架病毒。即便美国具备相应的技术，犯下反人类罪的也是中共。另一方面，这种铤而走险找替罪羊的做法，已经向美国发出了强烈的警告。如果拜登政府不采用强硬手段向中共追责，而试图尝试绥靖策略，中共将尽其所能让美国蒙受制造病毒的罪名。
 
+* * *
 
-3.Using Secondary or Third-Party Research
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
 
-- 二级研究是指协会成员所在公司内其他人员进行的研究。
-- 第三方研究指公司外部进行的研究，若此研究存疑，成员则不得引用。此外非成熟的第三方列如互联网等，需要更严格的审查机制。
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
 
-
-4.Using Quantitative Oriented Research
-
-- 外源计量模型绝不能直接引用，成员应做尽职调查。
-
-
-5.Developing Quantitative Oriented Technique
-
-6.Selecting External Adviser and Subadvisor
-
-7.Grouping Research and Decision Making
-
-- 成员不同意多人决策报告时，有权利要求移除自己的姓名。
-- 成员愿意相信是有合理/充分的依据时，则并不需要移除姓名。
-
-
-8.Standard V (B) Communication with Clients and Prospective
-
-- Informing Clients of the Investment Process
-- 成员必须对当前或潜在客户，应充分解释指导投资决策的过程。
-- 基于独立思考，理解投资最重要的基本特征在判断适用性时。但决定单一投资对于整个投资组合的影响才是尤其重要的。
-
-
-9.Report Presentation
-
-- 对于应该披露的细节，没有解释。违反此条例。
-- 任何标准或投资的变化都应该及时通知：现有客户，潜在客户，第三方顾问。
-- 样本的评估计算不得作为事实。
-
-
-10.Distinction between Facts and Opinions in Report
-
-- 可能发生变化/不明确前景的逻辑推理：必须告知客户影响未来走向的决定素的事实。(Fact)
-- 推理结果 / 走向: 可以被视为会员观点，可以作为投资推荐。（Opinion）
-
-
-11.Standard V (C) Record Retention
-
-- 候选人必须制定和维护适当的记录，去支持他们与当前 / 潜在客户的投资分析建议，行动，和其他投资相关的沟通。
-- 对于投资政策陈述及目标（IPS）的有效文件保留。
-- 对于制作报告后，必须保留副本。（File）
-
-
-12.Records are Property of the firm
-
-- 创建的记录作为成员职业活动的一部分，以代表雇主为基础。
-- 被视为公司财产，不得带出。
-- 为新雇主必须创建新支持记录，而且只能从公共渠道或新雇主获取。
-- 不得使用记忆或前雇息。
-
-
-13.Local Requirement
-
-- 通常需要遵守监管机构的保留要求，如果没有协会通常要求七年。
-
-
-14.Standard VI (A) Disclosure of Conflicts
-
-- 会员必须完整且公平的披露任何可能损害独立性，客观性或损害对于客户 / 潜在客户/雇主责任的事务。
-- 必须确保这类披露是突出的，通俗易懂的， 有效的语言去表达/交流相关信息。
-- 无需禁止，披露即可。
-- 大型多元化分散投资不适用此条款。
-
-
-15.Conflicts with Stock Ownership
-
-- 此条款要求披露：成员/雇主拥有的股份与客户持有股份的冲突。
-
-
-16.Conflicts as a Director
-
-若成员或有关成员作为董事会成员则冲突可能发生在以下三点：
-
-- 履行客户的义务和股东的义务的冲突。
-- 交易期权奖励会造成的相关股票交易量的冲突，披露时应表明到期时间/占比金额。
-- 会员为董事会服务，有大量机会接收重大非公开信息。应设置防火墙使会员与投资决策人进行隔离。
-
-
-17.Priority of Transaction
-
-- 客户和雇主的交易必须优先于会员自身作为受益人的交易。
-- 而且客户的交易同时也优先于雇主或公司利益。
-
-
-18.Avoiding Potential Conflicts （满足三点则不违反此条例）
-
-- 交易中客户不处于不利地位。
-- 不从客户的交易中使自己受益。
-- 符合监管要求。
-- 客户出于个人目的挪用资金，同样不违反此条例。
-
-
-19.Standards for Non-public Information
-
-- 如果成员有雇主或客户的未决交易，则可能需要遵守重大非公开信息原则。
-
-
-20.Impact on all Account with Beneficial Ownership
-
-- 确认雇主和客户有足够的交易机会之后，才可能为个人作为利益拥有者的账户交易。
-- 包括但不限于：家庭成员，退休账户，和成员有直接或间接利益关系。
-- 家庭账户应视为公司其他付费账户，不得因为家庭关系受到特殊对待或处于不利地位。
-- 但是成员作为账户实际收益拥有者时，则可能根据法律/雇主规定要求报告或提前清除。
-
-
-21.Standard VI (C) Referral Fees
-
-- 成员必须向雇主或客户酌情披露因推荐产品或服务得到的对价/补偿/利益。
-- 成员所在公司被推荐给第三方，但成员没有给第三方披露与推荐主体之间的有偿推荐合约。违反此条例。
-- 由统一部门发放的附属部门转介费，成员也应该向附属部门客户披露转介合约费用。
-- 无论结果是否满意或遭受损失，都应该披露转介合约。
-
-
-Author：搞笑排行榜
-
-Original opinion article by Himalaya G-farm Vancouver
-
-温哥华圆成农场
-
-2021/02/09
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
 0

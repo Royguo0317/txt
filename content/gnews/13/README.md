@@ -1,33 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国将制裁决定抵制北京冬奥会的国家
-` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/896423/)
+## 加国民众对“中共病毒源于动物”论嗤之以鼻
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/896612/)
 
-作者｜旧金山金喜准农场：wenwu
+***加拿大多伦多枫叶农场 文锦***
 
-素材｜JAY、霹雳年
+2月9日，加拿大《后千禧年报》报道了世卫组织宣称中共病毒源于动物的新闻，并在推特上发问，你认为中共病毒源于动物吗？这引发加拿大民众热议。
 
-据北京时间2021年2月9日《早报》报道，中共大外宣《环球日报》胡主编曾在微博上表示说：“所谓’180个国际团体’，实为‘疆独’‘藏独’‘港独’组织和它们联系团体的大杂烩，以及美英少数议员煽动抵制北京冬奥会，或者将其易地举行。老胡相信，这纯属他们的痴心妄想。”
+Mark Bernadet: 中共政府已花了数月为世卫组织的调查做准备，世卫组织将找到中共希望他们找到的东西。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/mark-benadet.png)
+dont mess with miles：（来自）实验室的动物实验，是的
+![]()![](https://gnews.org/wp-content/uploads/2021/02/屏幕截图631.png)
+What is Going on here: 在《千禧年报》之后加入队列，中共已经发表讲话，你永远不该质疑他们！
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Whatis-going-on-here-.png)
+Arturo B Brito: 中共需要怪罪些事。他们明年举办奥运会。他们可能会入侵朝鲜，以找到挽回面子的方法。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Arturo-B-Brito.png)
+Cam：中共为何要在爆发初期进行掩盖？
+![]()![](https://gnews.org/wp-content/uploads/2021/02/屏幕截图630.png)
+Nathan Eills: 我不相信你。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/屏幕截图624.png)
+Jerry Mason：通过宣布该病毒起源于动物，世卫组织和中共已经测试了人类的智力及其对传播谬论的耐受性。在媒体的帮助下，他们实际上取得了非常积极和有希望的结果。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Jerry-PHD.png)
+Dr.MasklessGypsy PHD: 中共病毒是制造出来的。与温尼伯P4实验室中的中共科学家（邱香果）有联系，他们去武汉旅行了……但他们永远不会告诉我们任何一种事实。腐败统治着世界。
 
-![](https://lh3.googleusercontent.com/YTQeMKjBwA23_LlJ3U7bkE3p34sCiPNDRHR5BNSyOCEPiNjEq3pBEfxFP9cSiFSFwzrph1NmxtuyBg2Hzj5tui41hV-P3bEptSr57232ic_XpmRA7d2ooII70yJSLURogko8Iwv7)
+AMY E JOHNSON：不是。
 
-胡锡进抵制2022年北京冬季奥运会是一个不受欢迎的想法，不会得到广泛支持。国际奥委会和运动员都会反对。”中共政府的加速师一如既往的加力踩油门。
+AroundTown: 它（中共病毒）源于动物——然后，武汉的实验室里花了一段时间把它研发成了生物武器。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/AroundTown.png)
+Ava Myjak: 胡说八道
 
-（[https://twitter.com/HuXijin\_GT/status/1358387752459411458?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1358387752459411458%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.zaobao.com.sg%2Frealtime%2Fchina%2Fstory20210209-1122940](https://twitter.com/HuXijin_GT/status/1358387752459411458?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1358387752459411458%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.zaobao.com.sg%2Frealtime%2Fchina%2Fstory20210209-1122940)
+Willnotcomply: CCP 宣传
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Willnotcomply.png)
+Mike Higgs T.T.M.Cl.：它不是来自动物，（而是）来自实验室。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Mike.png)
+ed walsh：不是
 
-《早报援引《卫报》[https://www.theguardian.com/world/2021/feb/04/beijing-2022-180-human-rights-groups-call-for-winter-olympics-boycott）的报道中可见，胡叼盘口中的“180个国际团体”实为支持西藏、台湾、维吾尔社区和香港的地区协会，即是“180多个人权组织”。该组织表示，自2015年授予北京奥运会起，中共政府对基本自由和人权进行了无情的镇压。可见，全世界了解中共对中国人自由和人权的迫害，和中共对国际自由和人权的充满了挑衅。所谓的制裁更有对各国威胁的意味在里面，这也是中共一贯的嘴脸。](https://www.theguardian.com/world/2021/feb/04/beijing-2022-180-human-rights-groups-call-for-winter-olympics-boycott%EF%BC%89%E7%9A%84%E6%8A%A5%E9%81%93%E4%B8%AD%E5%8F%AF%E8%A7%81%EF%BC%8C%E8%83%A1%E5%8F%BC%E7%9B%98%E5%8F%A3%E4%B8%AD%E7%9A%84%E2%80%9C180%E4%B8%AA%E5%9B%BD%E9%99%85%E5%9B%A2%E4%BD%93%E2%80%9D%E5%AE%9E%E4%B8%BA%E6%94%AF%E6%8C%81%E8%A5%BF%E8%97%8F%E3%80%81%E5%8F%B0%E6%B9%BE%E3%80%81%E7%BB%B4%E5%90%BE%E5%B0%94%E7%A4%BE%E5%8C%BA%E5%92%8C%E9%A6%99%E6%B8%AF%E7%9A%84%E5%9C%B0%E5%8C%BA%E5%8D%8F%E4%BC%9A%EF%BC%8C%E5%8D%B3%E6%98%AF%E2%80%9C180%E5%A4%9A%E4%B8%AA%E4%BA%BA%E6%9D%83%E7%BB%84%E7%BB%87%E2%80%9D%E3%80%82%E8%AF%A5%E7%BB%84%E7%BB%87%E8%A1%A8%E7%A4%BA%EF%BC%8C%E8%87%AA2015%E5%B9%B4%E6%8E%88%E4%BA%88%E5%8C%97%E4%BA%AC%E5%A5%A5%E8%BF%90%E4%BC%9A%E8%B5%B7%EF%BC%8C%E4%B8%AD%E5%85%B1%E6%94%BF%E5%BA%9C%E5%AF%B9%E5%9F%BA%E6%9C%AC%E8%87%AA%E7%94%B1%E5%92%8C%E4%BA%BA%E6%9D%83%E8%BF%9B%E8%A1%8C%E4%BA%86%E6%97%A0%E6%83%85%E7%9A%84%E9%95%87%E5%8E%8B%E3%80%82%E5%8F%AF%E8%A7%81%EF%BC%8C%E5%85%A8%E4%B8%96%E7%95%8C%E4%BA%86%E8%A7%A3%E4%B8%AD%E5%85%B1%E5%AF%B9%E4%B8%AD%E5%9B%BD%E4%BA%BA%E8%87%AA%E7%94%B1%E5%92%8C%E4%BA%BA%E6%9D%83%E7%9A%84%E8%BF%AB%E5%AE%B3%EF%BC%8C%E5%92%8C%E4%B8%AD%E5%85%B1%E5%AF%B9%E5%9B%BD%E9%99%85%E8%87%AA%E7%94%B1%E5%92%8C%E4%BA%BA%E6%9D%83%E7%9A%84%E5%85%85%E6%BB%A1%E4%BA%86%E6%8C%91%E8%A1%85%E3%80%82%E6%89%80%E8%B0%93%E7%9A%84%E5%88%B6%E8%A3%81%E6%9B%B4%E6%9C%89%E5%AF%B9%E5%90%84%E5%9B%BD%E5%A8%81%E8%83%81%E7%9A%84%E6%84%8F%E5%91%B3%E5%9C%A8%E9%87%8C%E9%9D%A2%EF%BC%8C%E8%BF%99%E4%B9%9F%E6%98%AF%E4%B8%AD%E5%85%B1%E4%B8%80%E8%B4%AF%E7%9A%84%E5%98%B4%E8%84%B8%E3%80%82)
+Andrew: 中国人真的那么肮脏吗？显然，这是一种生物武器。有人在1984年写一本关于2020年病毒的书是巧合吗？现在，世界上的所有领导人都在谈论一场伟大的重置，人们死于精英们的贪婪。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Andrew.png)
+Acting FBI Director: 如果我们将中美两国的深层政府称为动物，那是的。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/FBI.png)
+**评：**
 
-另外，关于胡叼盘所谓的英美“少数议员”之说更是对海内外华人同胞的欺诈。今年119美国前国务卿迈克·蓬佩奥曾在推特表示，现任美国政府已确定中共政府在新疆犯下的种族灭绝罪。英国参议院2日表决通过《贸易法案》修正案，据希望之声（“希望之声”文字加链接https://www.soundofhope.org/post/470915）2月4号的报道，其中一修正条款要求政府确定签署贸易协议是否侵犯英国人权，该条款以327票赞成、229票反对通过。由此可见，中共聘请的大外宣的本质一览无遗。
+虽然中共病毒疫情蔓延以来，加拿大政府和主流媒体追随中共走狗世卫组织，竭力掩盖病毒真相，但现在这个问题下压倒性的评论都指向中共病毒源于中共的生物武器，加拿大民众心里都有杆秤，知道谁是威胁他们生命健康的罪魁祸首。无论中共使出何种花招甩锅，都永远无法脱罪，全球灭共的结局已经注定。
 
-中共大外宣告知将主动制裁各国的抵制，其本身就是非常滑稽。无独有偶，据2月8日零对冲（1）援引路透社报道：俄罗斯周一宣布计划与**“伊中”在印度洋举行联合海军演习**，并引用了莫斯科驻德黑兰大使的评论。俄罗斯大使列万·扎加良说 ： “ 下一次多边海军演习将于**2021年2月中旬**在印度洋北部举行 。 ” 在该报道中，美日澳在关岛地区也将进行联合演习，并挑明是为了防御性震慑极权国家对世界的核威胁。
+*[参考链接](https://twitter.com/TPostMillennial/status/1359193204751536131)*
 
-值得一提的是在该报道里，拜登政府在上任头几周就命令尼米兹号航空母舰从中东地区返回华盛顿基地。至于目前，我们对于拜登政府在这轮正邪对弈中的下一步，仍然还不得而知。但由此可见，极权国家对人类的自由人权、和平是会致命的。而且它的言语充满了欺诈和谎言。在善良的正义力量面前，邪恶流氓势力最终一定会采取侵虐的手段向全世界进攻，来谋求利益，我们相信邪恶最终会因此导致失败。
+**校对 小鸥**
 
-新闻来源： https://www.zaobao.com.sg/realtime/china/story20210209-1122940
-![]()![](https://media.discordapp.net/attachments/807425982436868097/808787694125711430/images-1.jpeg)图片来自陕西论坛
-零对冲（1）https://www.zerohedge.com/geopolitical/russia-iran-china-hold-joint-naval-drills-centcom-chief-blasts-iran-driver-instability
+**发稿 文锦**
 
-审稿、发稿：Candy
-
-+1
+0
