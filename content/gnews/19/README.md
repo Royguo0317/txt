@@ -1,35 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## （快讯）中共的大外宣就是假擀面杖
-` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/897186/)
+## 量子科学在军事领域的应用实例
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/897316/)
 
-**作者｜旧金山金喜准农场**：wenwu 
-**素材｜编辑部内新闻**：07文川 
+翻译: Jony(8 Mile)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/101.png)图片来自网络截图
+Denfenseone 发文《美国军方研制出可检测整个射频频谱的量子传感器》
 
-近日，有网友在媒体平台上发现中共外交部的赵立坚，其在推特上关注一个色情又敏感的推特号。该推特号为@qornograficx，并推销着一款“假擀面杖子”。如下图：
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/02/image0-1-8.jpg)](https://twitter.com/qornograficx) 网友发现的推特账号
-另外一方面，据2月8日共同社报道，日本关于中国1日允许海警局使用武器的《海警法》施行表示，“完全无法接受通过运用在东海和南海海域加剧紧张的情况”。
+这项突破可以在电子频谱中帮助军方战斗。
 
-既成事实一向让中共百试不爽，至于事后中共是否敢对日本动手，笔者认为不会。因为中共一向是对外故弄玄虚，对内则是“老鼠扛枪窝里横”。
+一种能够探测整个无线电频谱的新型传感器，可能会在未来的电磁战和通信领域发挥重大作用。
 
-中共国的措施还有一个点：足够实惠，以最小的代价拿到最大的利益。值得关注的是，关于日本对于中共《海警法》的相继反击措施，相信唯有使出足够对付流氓的强硬方可有效。
+今年1月，陆军研究实验室的David Meyer、Paul Kunz和Kevin Cox发表了一篇新论文，描述了他们如何利用处于量子状态的原子，即所谓的Rydberg（中国译作里德堡太）状态来检测高达20GHz的电磁辐射。这包括承载蓝牙、WiFi和其他通信方式的频率。
 
-文章仅代表作者观点
+在他们的实验中，激光在真空室中激发铷原子，迫使它们进入Rydberg状态。
 
-相关链接、推特账号：
-[https://twitter.com/qornograficx](https://twitter.com/qornograficx)
-[https://china.kyodonews.net/news/2021/02/f27977dacda4.html](https://china.kyodonews.net/news/2021/02/f27977dacda4.html)
+“Rydberg状态对构成无线电波的波动电场高度敏感。 因此，当无线电波存在时，量子态本身也会发生波动，” Cox在一封电子邮件中告诉Defense One新闻网。”该设备将输入的无线电波收集到微波电路板中，并使用一种特殊技术来磨合和提升（射频）频谱目标区域的灵敏度。”
 
+超灵敏的无线电传感器可以更好地帮助保护通信设备免受干扰或其他形式的电磁干扰，或者可能帮助运营商找到使用无线电频谱进行通信的设备。但Cox说，陆军研究实验室的传感器仍然太大，而且耗电，无法部署，因此需要更多的工作来缩小它的体积，提高性能。
 
-**编辑｜旧金山金喜准农场**：wenwu
+该传感器是一个量子科学将来如何为军方开发新工具的例子。也许最著名的是量子计算，它可能有一天会允许更好的通信、代码制作和代码破解。在近期，陆军研究实验室正在研究的应用，包括无需GPS即可精确导航和计时的传感设备和原子钟。
 
-**欢迎战友加入旧金山金喜准农场**
+Cox说，这些应用利用了量子科学一个与众不同的方面，他称之为 “相同性”。
 
-**旧金山金喜准农场** GTV: [https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+“量子相同性是指量子粒子本质上都是完全相同的属性。这种现象使得量子探测器和传感设备成为可能，比如我们的Rydberg传感器，”Cox说。”量子技术的整个前沿领域在很大程度上仍未被探索。我们期待着在不久的将来取得更多颠覆性的突破。”
 
-**旧金山金喜准农场** Discord: [https://discord.gg/QQzQ79grEA](https://t.co/hPEjhr0AZA?amp=1)
+Source: [https://www.defenseone.com/technology/2021/02/army-creates-quantum-sensor-detects-entire-radio-frequency-spectrum/171939/](https://www.defenseone.com/technology/2021/02/army-creates-quantum-sensor-detects-entire-radio-frequency-spectrum/171939/)
 
-**旧金山金喜准农场** Twitter: [https://twitter.com/sf\_himalaya](https://twitter.com/sf_himalaya)
+（本文纯属原文翻译，无个人观点添加）
 
-+1
+素材:&审稿：Jenny 编辑：MG1
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-Logo.jpeg)
++2
