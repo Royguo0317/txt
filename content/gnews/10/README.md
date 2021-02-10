@@ -1,49 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## GTV长视频流量效果更好？
-` G-Talent技术社区` [轉載自GNews](https://gnews.org/zh-hans/897546/)
+## 2/10/2021 财经快讯：通用汽车延长减产计划; 欧盟准备针对大型科技公司立法
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/900169/)
 
-*分析师：曾经傻白甜｜数据采集：1324大数据分析作战室｜编辑/审核：G-Talent*
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2021-02-10_232613.png)图片来源： https://gmauthority.com
+**1.全球芯片短缺导致通用汽车延长减产计划**
 
+(路透底特律) 2月9日 – 通用汽车公司周二表示，由于全球芯片短缺，它在北美三家工厂（分别位于美国堪萨斯州费尔法克斯，加拿大安大略省英格索尔，和墨西哥圣路易斯波托西）的减产将延长到至少三月中旬，并且另外两家工厂将只能部分生产组装。该公司将重点保持生产那些利润最高的车款，包括全尺寸皮卡和SUV。
 
+全球芯片短缺影响了包括丰田，大众，斯泰兰蒂斯在内的许多汽车制造商。AutoForecast Solutions周二更新了对今年汽车产量损失的估计，称全球可能因芯片短缺而减产了近130万辆汽车，其中通用汽车可能减产111,450辆汽车。
 
-* * *
+[https://www.reuters.com/article/us-gm-semiconductors-exclusive/gm-extends-vehicle-production-cuts-due-to-global-chip-shortage-idUSKBN2A91VY](https://www.reuters.com/article/us-gm-semiconductors-exclusive/gm-extends-vehicle-production-cuts-due-to-global-chip-shortage-idUSKBN2A91VY)
 
+**2.欧盟准备效法澳大利亚迫使大型科技公司为新闻付费**
 
+据周二在英国《金融时报》上发表的一篇文章，监督欧洲新数字法规的欧盟立法者希望迫使大型科技公司为新闻付费，以呼应澳大利亚的类似举动。负责制定欧洲《数字服务法案》（DSA）和《数字市场法案》（DMA）的欧洲议会议员告诉《金融时报》，这些法律可能会在通过欧盟议会时进行修改，以便纳入类似澳大利亚法案中的一些规定。这些法规包括对许可协议进行约束性仲裁，并要求科技公司告知出版商其网站新闻报道排名的方式。但是欧洲议会议员在如何最好地实施此类改革以及具体实施的时间上还存在分歧。
 
-和一些战友私下交流，听到反馈在GTV每次做直播的时间长一点，会更占流量优势！事实真的如此，**GTV长视频流量效果更好？** 为此，1324数据分析作战室战友做了一番数据分析，很有趣，一起来看下吧
+[https://www.business-standard.com/article/international/eu-ready-to-follow-australia-s-lead-on-making-big-tech-pay-for-news-121021000061\_1.html](https://www.business-standard.com/article/international/eu-ready-to-follow-australia-s-lead-on-making-big-tech-pay-for-news-121021000061_1.html)
 
-*本分析报告数据不包含GTV中盖特视频数据*
+**3.美国谷物销售强劲，农民展望乐观前景**
 
-**Highlights**：
+(路透) – 由于出口以及生产动物饲料和生物燃料的国内加工业的需求增加，美国农民多年来首次有望获得高利润。中共国2020年大豆采购量比2019年增长了77％，而且因干旱和病虫害的原因创纪录地购买了史上从未购买过的玉米。美国大豆和玉米的总种植面积预期将达到创纪录或接近创纪录的水平。由于小麦价格走高，农民已经八年来首次增加了冬小麦种植面积。农作物种植面积的扩大也会对种子，肥料和设备制造商有利。 Deere＆Co预测2021年美国和加拿大的农业设备销售将增长5％-10％。
 
-1. 如果以平均每分钟观看量(观看量/分钟数)指标衡量视频流量吸引力强弱，数据清晰显示直播**视频越长流量吸引力越强**！
-2. 战友认为，在**首页视频排序推荐算法**上，应该给**短视频**稍多一些倾斜（10分钟之内），以让一些优秀的短视频有脱颖而出曝光机会。
+[https://www.reuters.com/article/us-usa-crops-farmers-insight-idUSKBN2A91J2](https://www.reuters.com/article/us-usa-crops-farmers-insight-idUSKBN2A91J2)
 
+**4.冬季寒流震撼美国能源市场**
 
+(彭博社) – 冬季寒流在美国各地蔓延，导致对取暖燃料的需求不断增加。国家气象局（National Weather Service）数据显示，大平原和中西部地区的气温已经骤降。预计美国中部地区的温度将比正常低30至40华氏度（17至22摄氏度），东北地区下周温度将降低10-15度。寒流的到来导致天然气和供暖燃料的价格飙升。德克萨斯州Waha枢纽的现货天然气周一交易价格为两年最高，而在波士顿Algonquin City Gate枢纽的价格已接近两年新高。3月交割的天然气期货交易价格为四年来最高的季节性水平。
 
+[https://www.bloomberg.com/news/articles/2021-02-09/coldest-blast-of-winter-shakes-energy-markets-across-the-u-s](https://www.bloomberg.com/news/articles/2021-02-09/coldest-blast-of-winter-shakes-energy-markets-across-the-u-s)
 
-* * *
+**5.华为对FCC提出法律质疑**
 
+（路透华盛顿）2月9日 – 华为技术有限公司已就美国联邦通信委员会（Federal Communications Commission）指定该公司对美国通信网络的国家安全造成威胁提出法律质疑。FCC于6月正式将中共国的华为和中兴通讯指定为安全威胁，并禁止美国公司动用政府资金从这些公司购买设备。华为在周一向美国第五巡回上诉法院提交的请愿书中表示，FCC的命令超出了“法定权限；违反联邦法律和宪法；是任意的，反复无常的，并且滥用自由裁量权。”FCC没有立即对华为的请愿发表评论。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/时长分类的视频数百分占比月.jpg)图1:GTV按时长分类的视频数占比
-图1为按**视频时长分类**的**每月视频个数所占百分比**。从上到下颜色依次对应为2分钟以内、2-5分钟、6-30分钟，30-60分钟、60-90分钟、90-120分钟、120-180、180+分钟以上视频个数所占百分比。可见**5分钟以内的视频个数占比超50%，30分钟以内的视频个数每月占比超过75%**。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/时长分类的观看量拆分月.jpg)图2:GTV按视频时长分类的观看量（百万）
-图2为GTV首页活跃帐号，过去8个月，截止到**北京时间1/31/2021**结束的所有**按视频时长分类每月的观看量分布**（图中数字单位为百万）。从上到下颜色对应的依次为60分钟、60-90分钟、90-120分钟、120-180分钟和180分钟以上视频的相应观看量。可见60分钟以下的视频的总观看量最低。近三个月的一些大型活动的长直播斩获了巨大观看量。**一月份的增长集中在120分钟以上视频的观看量**。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/视频每分钟观看量（观看量分钟数）-.jpg)图三：从上到下依次是视频总数，平均观看量、平均每分钟观看量(观看量/分钟数)
-图三从上到下依次是视频总数，平均观看量、平均每分钟观看量(观看量/分钟数)，如果以**平均每分钟观看量(观看量/分钟数)指标衡量视频流量吸引力强弱，底图清晰显示视频越长流量吸引力越强！**这个和当下GTV直播推荐规则强相关相关，目前首页直播视频，在结束之前会一直排序置顶。（注：时间跨度为去年12月到Jan14，但趋势Pattern月级别类似，可以拿来分析说明。从上到下依次是视频总数，平均观看量、平均每分钟观看量(观看量/分钟数)）
+[https://www.reuters.com/article/us-usa-fcc-huawei/huawei-challenges-u-s-fcc-over-national-security-threat-designation-idUSKBN2A92D2?il=0](https://www.reuters.com/article/us-usa-fcc-huawei/huawei-challenges-u-s-fcc-over-national-security-threat-designation-idUSKBN2A92D2?il=0)
 
-战友认为，**在首页视频排序推荐算法上，应该给短视频适当倾斜（10分钟之内），以让一些优秀的短视频有脱颖而出曝光机会**。短视频制作更考验制作者的综合能力（吸引力、内容密度等把控）。目前首页看到的大多是几十分钟的长直播视频，如果不是有目的的针对某个视频，我个人而言不敢轻易点开一个长视频（盲点），因为怕太长找不到重点，如果适当多一些短视频推荐话可以提高点击率和停留时长。
+**6.中共国粮食安全的根本问题是饲料粮短缺**
 
-以上分析仅代表战友们个人观点，数据来源于GTV WEB公开展示部分，欢迎兴趣战友进G-Talent技术社区一起沟通交流 （对了，别忘了G系列应聘可以G-Talent哦）
+由于中国人膳食结构的改变，每年人均肉类消费量从1980年的10公斤上升到目前近70公斤。但是猪肉国内产量不能满足需求，导致每年进口不断增长。2020年以来，主要饲料价格尤其是玉米和大豆也纷纷上涨，带动肉类价格上涨。而且中共国对大豆进口依存度高，玉米2020年进口量也创历史最高。北京大学农业政策研究中心主任黄季焜指出，从中长期看，中国粮食安全的根本问题是饲料粮短缺。
 
+[https://finance.sina.com.cn/money/future/roll/2021-02-09/doc-ikftpnny5931771.shtml](https://finance.sina.com.cn/money/future/roll/2021-02-09/doc-ikftpnny5931771.shtml)
 
+**7.某些大型银行停售按月付息大额存单 **
 
-* * *
+2月9日 – 每日经济新闻记者获悉，交行近日叫停所有按月付息型存款产品，包括大额存单（按月付息型）及惠享存产品，并要求各支行也停止对按月付息大额存单和惠享存产品的宣传。工行上海地区有支行也接到分行通知，将于近期停售按月付息型大额存单。不过据记者了解，目前多家银行仍在售按月付息的大额存单。
 
-#### [G-Talent BigData&AI \[1324大数据分析作战室\]](https://discord.gg/ZR9ZgCSCHq)
+[https://ishare.ifeng.com/c/s/v004WQZA6dhLOa0IT-L-\_jDTPbrtUnOcfxCEDyv6TGr-\_7NqQQ6gYF9JhbN8mvy9BsZ5jXmEdsFTSFT-\_I2Qu13hWtGSA\_\_\_](https://ishare.ifeng.com/c/s/v004WQZA6dhLOa0IT-L-_jDTPbrtUnOcfxCEDyv6TGr-_7NqQQ6gYF9JhbN8mvy9BsZ5jXmEdsFTSFT-_I2Qu13hWtGSA___)
 
-#### [WBM爆料革命网址导航](https://gtalent.club)
+By 【Financial Team】
+
+News Collection: Wendy 、文罡、Kate
+
+Translation & Writer: Kate
+
+Proofreading: 小蚂蚁在行动
 
 0
