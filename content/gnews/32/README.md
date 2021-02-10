@@ -1,47 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 为打破中共国垄断，澳政府斥资重开塔州钨矿
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/896314/)
+## 民调：绝大多数选民认为中共病毒“很可能 ”是在实验室里创造的
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/896415/)
 
-翻译： 康州盘古农场-Mike Li
-校对： 康州盘古农场-Freeearth
-编辑：康州盘古农场 -Antsee-GTV
+- 编辑：Victor Torres
+- 发稿：Ranting
 
-![Tungsten]()![Tungsten](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-10-at-04.19.06.png)
 
-澳洲在重要矿产的供应链上摆脱对中共国的依赖又迈出了重要步骤。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-塔斯马尼亚政府将为澳洲上市公司King Island Scheelite提供为期10年的1000万澳元贷款，以重新开发位于澳大利亚巴斯海峡偏远国王岛（King Island）上一个被称为海豚项目的钨矿。
+**西班牙2021年2月9日电/西喜社——**根据Just the News Daily与斯科特-拉斯穆森合作的一项新的民意调查，绝大多数美国选民认为中共病毒很可能是在实验室制造的。
 
-目前正在与联邦政府磋商，以获得另外1500万澳元的资金支持。
+65%的受访者认为它是 “有点 “或 “非常 “可能”，大流行的中共病毒出现在 “生物研究实验室”。
 
-钨是世界上仅次于钻石的第二硬的矿物，它的熔点极高。钨是一种被用于制造高端电钻、电动汽车，和军事硬件的重要稀有金属。
+只有21%的选民怀疑这种可能性。其余14%的人则不确定。
 
-澳大利亚国防部长琳达-雷诺兹（Linda Reynolds)曾经指出，每架F-35联合攻击战斗机需要417公斤稀土和其他关键矿物质。
+2021年2月4日至6日，斯科特-拉斯穆森采用混合模式的方式对1200名注册选民进行了调查。
 
-然而，全球82%的钨矿产量主要由中共控制，同时还有几条其他矿产供应链被中共国共产党控制。
+[**新闻来源**](https://justthenews.com/politics-policy/polling/poll-strong-majority-voters-believe-it-likely-covid-19-was-created-lab)
 
-近年来，澳大利亚和美国政府已经采取行动，并在中共国控制范围之外发展供应链，因为美澳两国担心中共可能会限制稀有矿产的供应，将其作为地缘政治纷争的一部分。
-
-King Island Scheelite执行主席雅各布（Johann Jacobs）表示，“我们注意到，一些西方国家政府最近注意到了关键矿产的供应链危机，尤其是钨矿。目前北美尚无此类矿产。”
-
-他说：“因此，我们认为公司的发展目标、塔斯马尼亚州政府在保持和增加塔斯马尼亚州就业和出口收入方面的利益、以及澳大利亚政府的战略目标之间是紧密一致的…… ”
-
-川普总统于10月宣布全国紧急状态，就是因为美国对中共国的稀土矿产依赖。
-
-川普签署行政命令，要求内政部调查实施《国防生产法》，该法将为本土或境外的矿物加工提供资金。
-
-川普还表示过，他正计划激励美国矿业公司将生产业务从中共国撤回美国。
-
-海豚项目的钨矿已经关闭了约30年，因为20世纪90年代钨价下跌使该矿在财务上难以为继。然而，由于新技术导致需求的恢复，价格得以上涨。
-
-“公司估计该项目在施工期间可以创造多达90个全职工作岗位，其中约55个正在进行的全职工作岗位在国王岛，”国家发展部长迈克尔-弗格森说。
-
-原文作者：丹尼尔.藤(DANIEL Y.  TENG) / 《大纪元时报》
-
-发表时间：2021年2月8日
-
-原文链接：[https://www.theepochtimes.com/australia-funds-tungsten-mine-while-slowly-prying-beijings-grip-on-global-supply\_3687830.html](https://www.theepochtimes.com/australia-funds-tungsten-mine-while-slowly-prying-beijings-grip-on-global-supply_3687830.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/00110011-1.png)
 
 0
