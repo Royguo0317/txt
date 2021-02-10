@@ -1,31 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英周一发出警告勿持BNO护照进入香港
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/896648/)
+## 加国民众对“中共病毒源于动物”论嗤之以鼻
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/896612/)
 
-俄罗斯莫斯科喀秋莎农场    银河
+***加拿大多伦多枫叶农场 文锦***
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-10_02-42-41.jpg)[ctvnews.ca](https://www.ctvnews.ca/world/china-derecognizes-british-national-overseas-passport-amid-hong-kong-dispute-1.5287303)
-英国《每日邮报》2月9日报道，英国外交部(UK Foreign Office)周一发出警告，持英国国民海外护照（BNO）进入香港的公民“可能被当地政府视为中（共）国公民”，如果他们被捕，可能无法获得领事协助。
+2月9日，加拿大《后千禧年报》报道了世卫组织宣称中共病毒源于动物的新闻，并在推特上发问，你认为中共病毒源于动物吗？这引发加拿大民众热议。
 
-《香港自由新闻》同天报道，香港特区行政长官林郑月娥周二表示，拥有双重国籍的香港人无权获得外国领事协助，证实了西方外交官的警告，即当局已开始在香港严格执行中共国国籍规定。
+Mark Bernadet: 中共政府已花了数月为世卫组织的调查做准备，世卫组织将找到中共希望他们找到的东西。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/mark-benadet.png)
+dont mess with miles：（来自）实验室的动物实验，是的
+![]()![](https://gnews.org/wp-content/uploads/2021/02/屏幕截图631.png)
+What is Going on here: 在《千禧年报》之后加入队列，中共已经发表讲话，你永远不该质疑他们！
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Whatis-going-on-here-.png)
+Arturo B Brito: 中共需要怪罪些事。他们明年举办奥运会。他们可能会入侵朝鲜，以找到挽回面子的方法。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Arturo-B-Brito.png)
+Cam：中共为何要在爆发初期进行掩盖？
+![]()![](https://gnews.org/wp-content/uploads/2021/02/屏幕截图630.png)
+Nathan Eills: 我不相信你。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/屏幕截图624.png)
+Jerry Mason：通过宣布该病毒起源于动物，世卫组织和中共已经测试了人类的智力及其对传播谬论的耐受性。在媒体的帮助下，他们实际上取得了非常积极和有希望的结果。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Jerry-PHD.png)
+Dr.MasklessGypsy PHD: 中共病毒是制造出来的。与温尼伯P4实验室中的中共科学家（邱香果）有联系，他们去武汉旅行了……但他们永远不会告诉我们任何一种事实。腐败统治着世界。
 
-加拿大外交部上周宣布，香港监狱的双重国籍囚犯必须做出选择单一国籍的声明。
+AMY E JOHNSON：不是。
 
-这一消息让来自英国、加拿大和美国的外交官们紧张不安，因为这可能会给香港成千上万拥有双重国籍的人以及那些到香港出差和旅游的人带来潜在影响。
+AroundTown: 它（中共病毒）源于动物——然后，武汉的实验室里花了一段时间把它研发成了生物武器。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/AroundTown.png)
+Ava Myjak: 胡说八道
 
-上个月，因中共公然撕毁“一国两制”承诺，单方面实施香港“国安法”，对香港民主法制的暴力镇压，英国决定向持有英国国民海外护照即BNO护照的人提供延长签证并可获得英国公民身份的援助。作为回应，中共国政府宣布将不再承认这些护照。
+Willnotcomply: CCP 宣传
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Willnotcomply.png)
+Mike Higgs T.T.M.Cl.：它不是来自动物，（而是）来自实验室。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Mike.png)
+ed walsh：不是
 
-在1997年香港回归之前出生的香港人都有权持有英国国民海外护照。中共国无视1997年英国向中共移交权力时签署的联合声明协议，拒绝承认英国双重公民身份，剥夺数百万香港人的合法权利。
+Andrew: 中国人真的那么肮脏吗？显然，这是一种生物武器。有人在1984年写一本关于2020年病毒的书是巧合吗？现在，世界上的所有领导人都在谈论一场伟大的重置，人们死于精英们的贪婪。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Andrew.png)
+Acting FBI Director: 如果我们将中美两国的深层政府称为动物，那是的。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/FBI.png)
+**评：**
 
-美国国务院表示，“我们深感担忧的是，香港这项新政策将迫使人们在被迫的情况下宣布其公民身份，而且没有机会了解声明的全部含义，执法部门滥用该政策的时机已经成熟。”
+虽然中共病毒疫情蔓延以来，加拿大政府和主流媒体追随中共走狗世卫组织，竭力掩盖病毒真相，但现在这个问题下压倒性的评论都指向中共病毒源于中共的生物武器，加拿大民众心里都有杆秤，知道谁是威胁他们生命健康的罪魁祸首。无论中共使出何种花招甩锅，都永远无法脱罪，全球灭共的结局已经注定。
 
-批评人士表示，港版“国安法”的实施表明中共对香港内地化的严苛控制明面化，该法律扼杀了言论自由，摧毁了香港的民主法制，让香港失去了亚洲经济金融中心的地位。此时再公然践踏香港人权，让大批中共干部入驻香港进行多方位清洗渗透，此类举动被认为是“香港的终结”。
+*[参考链接](https://twitter.com/TPostMillennial/status/1359193204751536131)*
 
-参考链接：
+**校对 小鸥**
 
-[https://www.dailymail.co.uk/news/article-9237405/British-foreign-office-warns-China-no-longer-recognise-Hong-Kong-dual-citizens.html](https://www.dailymail.co.uk/news/article-9237405/British-foreign-office-warns-China-no-longer-recognise-Hong-Kong-dual-citizens.html)
+**发稿 文锦**
 
 0
