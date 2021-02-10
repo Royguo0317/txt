@@ -1,89 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CBN新闻：中共近期在台海的军事动作和挑衅
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/896884/)
+## 郭先生0207XIV Sara有千条万条我们只有一条——你有什么资格收钱
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/897019/)
 
-新闻简述：据CBN新闻2021年2月4日报道：太平洋地区的美军对来自中共国日益增加的威胁发出了警报和采取了积极的行动。节目中一位中国问题专家认为中共正在测试拜登总统的底线。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/封面-74.jpg)
+编辑整理：
 
-这位专家也提醒美国人：“在中国没有一家公司是真正的私人企业。当他们接到北京和中共的电话命令，没有中国公司会拒绝 … 南中国海上的一艘中国渔船或一家试图在美国做生意的中国公司 … 在直接或间接地为中共工作 … 美国人需要了解，中共的这种威胁是全面的威胁，包括网络领域 … 中国对美国实施知识产权的盗窃，可以说是人类历史上最厉害的。”
-[下载字幕文件](https://gnews.org/zh-hant/cbn_20210204-taiwan-srt/)
-中英文对照全文：
+康州盘古农场：Ara
 
-The U.S. military in the Pacific sounding an alarm about the growing threat from China. We’re going to tell you about the aggressive actions of the U.S. response and why one analyst says Chinese are testing president Biden when we come back.
+法国巴黎七星农场：枫丹白露
 
-太平洋地区的美军对来自中国日益增加的威胁发出了警报。 广告过后我们将向您报道美国对此回应的积极的行动，以及为什么一位分析师认为中国人正在测试拜登总统。
+篇首说明：郭文贵先生在[2021年2月7号 文贵直播： 给战友们做美食；要用行动反击九指妖](https://gtv.org/video/id=602016773f8a013ab48167f5)直播中，演示了火辣海鲜蛋炒火腿并感激生活中的点点滴滴，谈到了从昨天到今天越来越多专家和官员指认病毒非自然，谈到了所有站出来揭露病毒真相的都是爆料革命的战友，谈到了九指妖赌定战友被消失不敢去领钱意味着什么，向平爆小组隔空喊话党不过是百年而我们的饮食文化同祖同宗几千年，谈到了共匪创使人带回的共产主义病毒使钓鱼台的饭超难吃，吃播&饮食版的冰与火之歌，谈到了国内的战友上下几代人一大家子跟爆料革命四年等十四个话题，本系列将根据郭先生直播侧重点不同逐一上传。
 
-**Host: **Aggressive and destabilizing – that’s how American observers describe recent military moves by Communist China. Late last month, the Chinese flew warplanes into the Taiwanese Defense Identification Zone and stepped up naval activities in the South China Sea. The U.S. responded by sending a carrier strike group to the region. On this week’s episode of the Global Lane, one China analyst says that China is testing President Biden’s resolve while advancing a long-term strategy.
+以下为第十四部分——Sara有千条万条我们只有一条——你有什么资格收钱
 
-**主持人：**挑衅举动和破坏稳定——这就是美国观察家描述中共最近的军事行动。 上个月底，中国战机进入台湾防卫识别区，并加强了在南中国海的海军活动。 美国的回应是向该地区派出了一个航母打击群。 在本周的《全球通道》(Global Lane) 节目中，一位中国分析师表示，中国正在测试拜登总统的决心并同时推进一项长期战略。
+据[2021年2月7号 文贵直播： 给战友们做美食；要用行动反击九指妖](https://gtv.org/video/id=602016773f8a013ab48167f5)时间点1：34：38——
 
-**Guest: **From an American Perspective, I see this long game as an effort to, uh, to recast the international order to make it more common accommodating for authoritarianism, and to do that, first region-ally and then globally, they need to push the American military back, so they can more effectively bully their neighbors and control resources. And so I see that we’re seeing a test of strength in the South China Sea and a test of strength in the Taiwan Strait and diplomacy and development all that is essential, but a lot of this is going to come down to whether Chinese military planners believe that they can successfully accomplish their political objectives through military force.
+所以说，兄弟姐妹们看看这一两周，**战友们，咱们一开始，战友们还劝我说，七哥啊，不要跟Sara九指妖一样的、不要理她，我们还抱着最善良的心，不攻击她，七条，关于不攻击Sara的七条，大家觉得善良吧，共产党就是这样被我们让他们弄了七十年的，咱受伤害了，咱光喊疼，甚至为了装作绅士咬着舌头忍着，**是吧？我不疼，欸，我不疼，结果人家掏你子宫了，现在掏肛门、掏子宫，啊，你还在那儿咬着，使劲，我不疼，是吧。
 
-**嘉宾：**从美国人的角度来看，我认为这场长期的博弈是为了重塑国际秩序，使世界更能普遍地适应独裁主义，要做到这一点，首先是在地区范围内，然后在全球范围内，他们需要迫使美国撤军，这样他们就可以更有效地霸凌邻国并控制资源。 因此，我看到我们正在见证在南中国海的军事实力测试，以及台湾海峡的军事实力的测试，所有这些对美国的外交政策与发展都是至关重要的，但很多事情会取决于中国军方策划者是否相信他们可以通过军事力量成功地实现其政治目标。
+**现在九指妖来了，我不疼，我也不疼，弄我钱了，我不在乎，不说Sara，多少战友给我发信息，七哥啊，不要在乎Sara，你不要提Sara，没啥了不起的，提她丢你的人，完了，咱不提，人家准备好了，现在咱才发现，人家一年前两年前就准备写好所谓的直播TV了、都准备好傻币了，**人家跟龟头洋已经在德州是全面会师了，咱们德州牛仔是最早抗议的，Sara第一个说德州牛仔是特务，后来那个旧金山的去的战友叫伊莎贝拉还是谁啊，说这全都是特务，还有那个原来在新西兰的一杯小浊叫面目不清，小羊，小羊，绝对是特务，啊，然后持枪挺郭，持枪挺郭一分钱不投，绝对是骗子、疯子，就是想敲诈、撒谎，啊，洛杉矶还有一个叫大海的，说大海这个女人就是个疯子，你说七哥糊涂不，信了她了，结果，老江也不是好东西，我问过她不下三次老江，她说老江这人不行，怎么怎么的，最起码，这是在跟老江见面后，我问过她三次，她把老江说的啥也不是，我当时也受影响，说实话，当时，她有多次和我说让我不要相信路德啊，多次说不要相信路德，你说七哥还好还有点坚持要不然完了。
 
-**Host: **Now, President Biden responded by denouncing China’s move and then he sent the U.S. carrier fleet into the area. So, what more should be done beyond that?
+所以你想想，**这就是咱中国人的毛病，Sara都那样了你还劝我呢，不要说她、不要跟她一样的，行了，人家那刀子、剑都准备好了，再给Sara三个月、五个月，爆料革命受到的损失可就大了去了。**昨天Sara竟然能把G-Club的名单给公布到网络上去，这个事儿美国政府已经接管了，我也不能多说了，这个你们放心，她把那个名单放到网站上去，战友们，**她帮了咱大忙了，她要撤了她就是王八蛋，这是第一个。第二个，她把人家的私人通信信息放到网上去，那就是她太，那就是她继续放，你们知道这意味是什么。第三个，她放出这样的信息更加证明战友们的所有的钱是多么地安全，为了你们的钱要达到目的是多么的不容易，**最后，战友很简单，你们的钱只要到了G系列的，包括有椅子的你随时都可以拿走，你只要Sara，Sara我想要把钱拿回来，郭文贵骗了我钱我找郭文贵去，**Sara你把我的钱还给我，九指妖，就这么简单，你别跟我说遗书，你也别说你是真相，你也别说你是上帝，你也别说你是多牛叉，自由，你给我的钱就这么简单，连喊疼的勇气都没有了。**
 
-**主持人：**现在， 拜登总统对此做出对中国举动的谴责，然后他派遣了美国的航母舰队进入该地区。 那么，除此之外还需要做些什么？
+不佛了，不佛了，对了，今天还没祈福呢。为75亿世界人民、14亿新中国联邦、西藏同胞、台湾同胞 、香港同胞、所有爆料革命的战友和家人们，祈福。
 
-**Guest: **I think there’s a ton to do, you know, bipartisan experts have been saying for a while now that if China and the United States were going to come to blows and we all want to avoid that, it most likely would come in the Taiwan Strait. In fact, there was a 2018 national defense driver’s commission commissioned by congress that looked at this with bipartisan experts on it, and the number one concern they had in the entire globe was in the Taiwan strait.
+阿弥陀佛。啪啪啪（击掌三声）！
 
-**嘉宾：**我想现在有很多事情要做，你们都知道，两党的专家们已经说了一阵子了，如果中国和美国发生军事冲突的话，虽然我们都想避免它发生，最有可能的是在台湾海峡。 实际上，有一个由国会委托的 2018 年国防驱动委员会与两党专家共同研究了这一问题，在全球范围内他们最关注的是台湾海峡的问题。
+行了，兄弟姐妹们，七哥，我给你们很多发的那个信息，我说我今天我会发盖特、我会直播，我直播也直播了，让很多战友们今天吃了很多东西，很抱歉啊，我还没洗澡呢，哎呀，弄了一身汗，哎呀，容易吗，兄弟姐妹们，不容易啊，不容易啊。希望各战友，都要到喜马拉雅大使馆GTV去，**希望各农场战友说出有真正的有观点的就是九指妖对爆料革命、对中国的人性和被共产党洗脑以后的反面的教育让我们深思，我们农场、我们喜马拉雅农场系列，一定要守法、按规矩、 重信用、有契约精神，然后真的要睁大眼睛，防止共产党这些王八蛋们、九指妖、这些妖帮们侵入以后对我们的分化，任何一个人都有起码的对真假善恶一个是非的判断能力，否则会永远成为人家待宰的羔羊、人家案板上的肉。**无论你走哪里去，无论新中国联邦，新新新中国联邦也给不了你未来。
 
-And for too long, frankly in the Obama administration, there was a reluctance to give Taiwan the arms they needed to defend themselves. The Trump administration to their credit reversed that policy and has been, and made the decision to provide a lot of weapons, but those weapons in and of themselves take time to deliver, and they’re not enough. There also has to be, as someone who served in the U.S. army, you have to be able to operate those weapons as individuals and as units.
+**因为你必须具备一个人起码的判断力真假善恶，千万记住投资不是赌博，不要听别人说，你就起码的逻辑，Sara，你有什么资格收钱、你为谁收的钱，你别管别人，郭文贵是骗、GTV是骗，我们去找他去，你别管人家，你把你的钱先给我们，就这点逻辑都没有吗？ ** 谁骗谁负责任啊，你把你的钱还给我们，你有什么理由收钱呐？**她个傻叉，我要起诉法治基金、我要起诉GTV，去你大爷的，你算个毛啊，她代表谁起诉啊，她代表谁啊，战友们，就没有人问问，你代表谁啊，你出过一分钱吗，你出过一分钱吗？你出过一分钱吗？你连个毛你都没出过，你维护战友的利益、战友的未来，还要搞TV、还要搞傻币，你到监狱去搞吧你，就这有战友们现在还有三百个人跟随着，还有三百个将领呢**，哇塞，还有三百多人，但愿这三百个人都是共产党派来的不是我们战友，这种脑残我们千万也不需要，唔盖噻了，七哥洗澡去喽，还要开会。
 
-而长期以来，坦白说，在奥巴马政府期间，他们一直不愿向台湾提供自卫所需的军事装备。 值得称赞的是，川普政府扭转了该政策，并且已经做出提供大量武器的决定，可是这些武器需要时间才能交付，然而这些还远远不够，还得有在美军服过役的人的经验，才能够以单兵和单元的形式操作这些武器。
+接上文——
 
-And, uh, you know, let’s not kid ourselves. We can give Taiwan, you know, all the weapons they would ever want, but in the end with enough time, given, uh, the historic military modernization effort that the People’s Liberation Army has undertaken, the most significant in the history of the People’s Republic of China, sooner or later Beijing will win that. So the point here is that Taiwan has to be able to hold on long enough for the U.S. military to come to their aid, uh, and so, the longer we can make Taiwan capable of holding off when under assault from the mainland, the sooner we can get there and help them.
+[**郭先生0207I****火辣海鲜蛋炒火腿&****米饭/****感激生活中的点点滴滴**](https://gnews.org/zh-hans/895629/)
 
-而且，呃，你知道，我们不要自欺欺人。你知道， 我们可以给台湾他们想要的所有武器，但是最终，只要给予足够的时间，在中华人民共和国历史上人民解放军所进行的最重要的军事现代化努力中，北京迟早会取得胜利。 因此，重点是，台湾必须能够坚持足够长的时间，能坚持等到美国军方所提供的援助，所以，在遭受大陆攻击的情况下，台湾能够抵挡的时间越长，我们能越快到达那里并帮助他们。
+[**郭先生0207II****过去一周但凡讲出病毒的无不引用科学家的报告**](https://gnews.org/zh-hans/895675/)
 
-And so, there really are multiple components there we need to, in short, we need to make Taiwan like a porcupine that is an unappealing candidate for consumption by a predator.
+[**郭先生0207III****很快会有不低于100****个科学家站出来无一不是战友**](https://gnews.org/zh-hans/895758/)
 
-因此，确实涉及到多个组成方面，简而言之，我们需要使台湾像豪猪一样，成为不被食肉动物吃掉的对象。
+[**郭先生0207IV****九指妖赌定战友被消失不敢去领钱意味着什么**](https://gnews.org/zh-hans/895783/)
 
-**Host: **Well, apparently the Chinese coast guard has been authorized to fire on foreign vessels if necessary in the Taiwan Strait and also in the South China Sea. So, your thoughts on that?
+[**郭先生0207V****党不过是百年而我们的饮食文化同祖同宗几千年**](https://gnews.org/zh-hans/895807/)
 
-**主持人：**好吧，中国海岸警卫队显然已获准在台湾海峡和南中国海，如果有必要的话可以向外国船只开火。 那么，您对此有何看法？
+[**郭先生0207VI****中共带回的共产主义病毒影响下钓鱼台的饭超难吃**](https://gnews.org/zh-hans/895826/)
 
-**Guest: **Because a lot of times, as Americans we think, you know, hey, we’re either at war or peace with someone. There’s nothing in between. That’s not how China views it. They really view it as a rheostat or dial. It gets dialed up or down, and they engage what we know gray zone warfare or hybrid warfare as various experts call it. We see China’s using their coast guard and also civilians, seemingly civilian fishing vessels, to undertake, uh, you know, state policy. And, you know, this is, this makes a larger point that I think Americans need to understand.
+[**郭先生0207VII****冰与火之歌七哥吃播版**](https://gnews.org/zh-hans/895897/)
 
-**嘉宾：**因为很多时候，正如美国人认为的那样，你知道的，嘿，我们和某一方要么战争，要么和平相处，没有介于两者之间的状态。 但是中国不这么看。  他们真的把这件事视为“变阻器”或“刻度盘”，能被调高或调低。他们卷入了我们所知的，正如专家们所称的，灰色地带战或混合战。 我们看到中国正在使用他们的海岸警卫队以及平民（看似民用渔船）来执行其国家政策。 而且，你要知道，这一点很重要，我认为美国人需要懂得。
+[**郭先生0207VIII****国内的战友上下几代人一大家子跟爆料革命四年**](https://gnews.org/zh-hans/895940/)
 
-There is no such thing, in my view, as a private Chinese company. There is no Chinese company that, when they get the call from Beijing and the Chinese Communist Party, is going to say no. So, when you’re talking about a Chinese fishing vessel in the South China Sea or Chinese company trying to do business here in the United States, uh, you need to understand that to some degree, they are either explicitly or implicitly working for the Chinese Communist Party.
+[**郭先生0207IX****富可敌国的七哥会以身家性命自由骗战友两亿吗**](https://gnews.org/zh-hans/896630/)
 
-在我看来，在中国没有一家公司是真正的私人企业。当他们接到北京和中共的电话命令，没有中国公司会拒绝。 因此，当您谈论南中国海上的一艘中国渔船或一家试图在美国做生意的中国公司时，您需要知道，在某种程度上，他们正在直接或间接地为中共工作。
+[**郭先生0207X****战友们的不反抗纵容了九指妖的欺骗和谋财害命**](https://gnews.org/zh-hans/896677/)
 
-This is not a xenophobic comment, right? We have no, we have no bone to pick with the Chinese people. The Chinese people deserve better than they’re getting from the government. But let’s be clear. In my view, the preeminent threat to the united states, our security, our prosperity, our freedom from abroad right now is the Chinese Communist Party because they combine wealth, their their economy is eight times larger than that of Russia, the most significant military modernization we’ve seen in decades from any country, uh, in a hostile authoritarian ideology that they’re honing at home and exporting abroad.
+[**郭先生0207XI****一分为二的本质让人是非不分由权力在中间作裁判**](https://gnews.org/zh-hans/896687/)
 
-这不是仇外评论，对不对？ 我们没有，我们跟中国人没有什么过节。 中国人民应该得到比他们从政府那里得到的更好的待遇。 我们必须清楚一点。 我认为，现在，对美国，我们的安全、我们的繁荣、我们的自由的突出外来威胁来自于中国共产党，因为他们汇聚了财富，其经济规模是俄罗斯的八倍，这是几十年来我们从任何国家所看到的最重要的军事现代化，呃，在他们怀着敌意的独裁意识形态中，在国内磨砺并输出到国外。
+[**郭先生0207XII Sara****纵有千条万条战友们只有一条——把钱还给我们**](https://gnews.org/zh-hans/896724/)
 
-**Host: **And, that threat continues an advanced cyber group affiliated with Chinese intelligence is using a new, never-seen-before powerful hacking weapon in a series of attacks on embassies, government offices, and state-owned technology and science companies in Asia and Australia. So, what can you tell us about how great of a threat does that pose to the USA?
+[**郭先生0207XIII****七哥的精力应该全用在灭共/****政治和全球运作上**](https://gnews.org/zh-hans/896947/)
 
-**主持人：**而且，这种威胁继续在一个隶属于中国情报局的先进网络组织正在使用一种新型的、从未见过的强大黑客武器对亚洲和澳大利亚的使馆、政府机关以及国有科技公司进行一系列攻击。 那么，您能告诉我们这对美国构成了多大的威胁吗？
-
-**Guest: **Yeah, you know, a lot of times there’s a tendency, including by people like me, to focus on ships and submarines and aircraft, but Americans need to understand that this threat from the Chinese Communist Party is a comprehensive one, including in the cyber domain. You know, our experts here in the United States have said the theft of intellectual property that China has undertaken against the United States is arguably the most significant transfer of intellectual property in human history. And most… a lot of this has been done licitly and illicitly and in the cyber domain. And so, we’re we’re in constant conflict with the Chinese Communist Party. The only question is whether Americans realize it and whether we’re willing to do something about it.
-
-**嘉宾：**是的，您知道，很多时候都有一种趋势，包括像我这样的人，倾向于将注意力放在船舶，潜艇和飞机上，但是美国人需要了解，中共的这种威胁是全面的威胁，包括网络领域。 您知道，我们在美国的专家曾说过，中国对美国实施知识产权的盗窃，可以说是人类历史上最厉害的知识产权转移。 而大多数……许多此类行为是在网络领域合法和非法进行的。 因此，我们与中国共产党一直处于冲突之中。 唯一的问题是美国人是否意识到了这一点，我们是否愿意为此做点什么。
-
-I think the Trump administration got something right, and they got something wrong. What they got right was taking the China threat seriously. What they got wrong was it’s too often they would try to take on this threat unilaterally rather than getting the good guys together first and then confronting Beijing together. Kind of like on the playground right when you’ve got a bully, you don’t go take on the bully by yourself, you go build a coalition of all the good guys and then you go to the bully.
-
-我认为川普政府做对了一些，他们也做错了一些事情。 做对的是他们非常重视中国的威胁；做错的是他们常常试图单方面应对这一威胁，而不先聚集正义力量，然后再与北京对峙。就像在操场上一样，当您被欺负时，您不会自己一个人面对欺负你的人，您会与所有好人建立联盟，然后再去找欺负你的人。
-
-So, we should be getting together more systematically with the G7, the seven largest economies, democracies, the cyber domain and other areas where we see that CCP engaged in this conflict that I’m talking about.
-
-因此，我们应该与七国集团，七个最大的经济体民主国家，网络领域以及我们看到中共参与我正在谈论的这场冲突的其他领域进行更加系统地合作。
-
-视频来源：[https://www.youtube.com/watch?v=OPij6uHSqE8&feature=youtu.be](https://www.youtube.com/watch?v=OPij6uHSqE8&amp;feature=youtu.be) (7:09-7:24，9:57-15:51)
-
-以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。
-
-翻译：【JennyL】校对：【rainbow】字幕：【相机过热啊】听写:【Isaiah4031】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+\*\*\*\*\*\*\*\*\*\*\*\*\*\*全文完，下次直播再见\*\*\*\*\*\*\*\*\*\*\*\*\*\*
 
 0

@@ -1,27 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国务院称正密切关注印中边界争端
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/897134/)
+## （快讯）中共的大外宣就是假擀面杖
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/897186/)
 
-俄罗斯莫斯科喀秋莎农场    银河
+**作者｜旧金山金喜准农场**：wenwu 
+**素材｜编辑部内新闻**：07文川 
 
-编辑   水星  上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-10_06-48-06.jpg)[news.statetimes.in](http://news.statetimes.in/ties-india-central-component-rebalance-asia-us/)
-路透社2月9日报道，美国国务院周二表示，美国正密切关注印度和中共国之间的边界争端，并支持通过直接对话和平解决争端，同时强调美国与印度等盟友站在一起。
+近日，有网友在媒体平台上发现中共外交部的赵立坚，其在推特上关注一个色情又敏感的推特号。该推特号为@qornograficx，并推销着一款“假擀面杖子”。如下图：
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/02/image0-1-8.jpg)](https://twitter.com/qornograficx) 网友发现的推特账号
+另外一方面，据2月8日共同社报道，日本关于中国1日允许海警局使用武器的《海警法》施行表示，“完全无法接受通过运用在东海和南海海域加剧紧张的情况”。
 
-美国国务院发言人普莱斯在新闻发布会上表示，“我们注意到印度和中共政府正在进行的谈判。” 普莱斯称，美国将继续支持直接对话的方式来和平解决这些边界争端。面对北京方面不断试图恐吓邻国的行为，美国会一如既往地与盟友和伙伴站在一起。
+既成事实一向让中共百试不爽，至于事后中共是否敢对日本动手，笔者认为不会。因为中共一向是对外故弄玄虚，对内则是“老鼠扛枪窝里横”。
 
-印度和中共因有争议的山区边界陷入军事对峙，印度公众对北京的态度由于士兵在冲突中丧生而变得强硬起来。
+中共国的措施还有一个点：足够实惠，以最小的代价拿到最大的利益。值得关注的是，关于日本对于中共《海警法》的相继反击措施，相信唯有使出足够对付流氓的强硬方可有效。
 
-继美国新总统拜登和印度总理莫迪在星期一进行了电话会谈后，今天早些时候，美国国务卿布林肯和印度外长杰尚卡尔也进行了电话交谈。美国国务院表示，此次电话会议的目的是“重申美印伙伴关系的力量”，以及共同关心的问题，包括缅甸问题。
+文章仅代表作者观点
 
-国务院声明中说，两人还讨论了在印度洋-太平洋地区的合作，期待扩大包括通过四方会谈在内的区域合作。
+相关链接、推特账号：
+[https://twitter.com/qornograficx](https://twitter.com/qornograficx)
+[https://china.kyodonews.net/news/2021/02/f27977dacda4.html](https://china.kyodonews.net/news/2021/02/f27977dacda4.html)
 
-四方会谈是指由美国、印度、日本和澳大利亚组成的非正式组织，被视为对抗中共日益增长的威胁和影响力的一种方式。期待四方会谈后美与其盟国会有具体的针对中共的行动方案。
 
-参考链接：
+**编辑｜旧金山金喜准农场**：wenwu
 
-[https://www.reuters.com/article/us-usa-china-india/us-is-closely-monitoring-india-china-border-disputes-state-dept-idUSKBN2A92QM](https://www.reuters.com/article/us-usa-china-india/us-is-closely-monitoring-india-china-border-disputes-state-dept-idUSKBN2A92QM)
+**欢迎战友加入旧金山金喜准农场**
 
-0
+**旧金山金喜准农场** GTV: [https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+
+**旧金山金喜准农场** Discord: [https://discord.gg/QQzQ79grEA](https://t.co/hPEjhr0AZA?amp=1)
+
+**旧金山金喜准农场** Twitter: [https://twitter.com/sf\_himalaya](https://twitter.com/sf_himalaya)
+
++1
