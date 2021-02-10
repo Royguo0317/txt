@@ -1,89 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CBN新闻：中共近期在台海的军事动作和挑衅
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/896884/)
+## 伊维菌素——治疗中共病毒的神奇药物
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/896898/)
 
-新闻简述：据CBN新闻2021年2月4日报道：太平洋地区的美军对来自中共国日益增加的威胁发出了警报和采取了积极的行动。节目中一位中国问题专家认为中共正在测试拜登总统的底线。
+加拿大多伦多枫叶农场 阿黎
+![]()![](https://gnews.org/wp-content/uploads/2021/02/yahoo.com1_.jpg)图片来源：Yahoo.com
+据DJHJ传媒2月8日报道，澳大利亚的研究人员说，伊维菌素可以在48小时内治愈中共冠状病毒，澳大利亚一位医生说伊维菌素能让该病毒很容易被杀死。
 
-这位专家也提醒美国人：“在中国没有一家公司是真正的私人企业。当他们接到北京和中共的电话命令，没有中国公司会拒绝 … 南中国海上的一艘中国渔船或一家试图在美国做生意的中国公司 … 在直接或间接地为中共工作 … 美国人需要了解，中共的这种威胁是全面的威胁，包括网络领域 … 中国对美国实施知识产权的盗窃，可以说是人类历史上最厉害的。”
-[下载字幕文件](https://gnews.org/zh-hant/cbn_20210204-taiwan-srt/)
-中英文对照全文：
+这种药物到目前为止还没有被用来专门治疗中共病毒，因为它通常被用来治疗寄生虫感染。 然而，澳大利亚莫纳什大学在4月份所做的一项同行评议研究发现，仅单剂量的伊维霉素就能在48小时内杀死中共冠状病毒。
 
-The U.S. military in the Pacific sounding an alarm about the growing threat from China. We’re going to tell you about the aggressive actions of the U.S. response and why one analyst says Chinese are testing president Biden when we come back.
+这种药自20世纪70年代以来一直在用，获得了美国食品和药物管理局的批准，并被列入世界卫生组织的 “基本药物 “名单。 这意味着它的副作用非常小，被认为是世界上最安全的药物之一。 2011年，该药原产地日本的一本科学杂志将伊维菌素称为与青霉素和阿司匹林齐名的 “神奇药物”。
 
-太平洋地区的美军对来自中国日益增加的威胁发出了警报。 广告过后我们将向您报道美国对此回应的积极的行动，以及为什么一位分析师认为中国人正在测试拜登总统。
+在前沿的中共病毒重症监护联盟（FLCCC）组织由三位懂得如何使他们的文章上头条的医生领导，他们将自己对伊维菌素的文献回顾和分析发布到了自己的网站上。 这些医生在12月初举行了一次新闻发布会，其中一位医生在参议院关于中共病毒早期治疗的听证会上作证。
 
-**Host: **Aggressive and destabilizing – that’s how American observers describe recent military moves by Communist China. Late last month, the Chinese flew warplanes into the Taiwanese Defense Identification Zone and stepped up naval activities in the South China Sea. The U.S. responded by sending a carrier strike group to the region. On this week’s episode of the Global Lane, one China analyst says that China is testing President Biden’s resolve while advancing a long-term strategy.
+这些医生说，伊维菌素里面有一种特殊的抗炎和抗病毒的组合，使它作为一种预防剂，对治疗早期以及晚期疾病都非常有用。
 
-**主持人：**挑衅举动和破坏稳定——这就是美国观察家描述中共最近的军事行动。 上个月底，中国战机进入台湾防卫识别区，并加强了在南中国海的海军活动。 美国的回应是向该地区派出了一个航母打击群。 在本周的《全球通道》(Global Lane) 节目中，一位中国分析师表示，中国正在测试拜登总统的决心并同时推进一项长期战略。
+这种药是不是好得不真实？ 这不是由FLCCC的共同领导保罗-马里克、 临床医学博士（MD）和诺福克东弗吉尼亚医学院肺部和重症医学主任得出的结论，而是马里克与其他人基于来自美国以外的研究，共同撰写了审查和元分析得出的结果。
 
-**Guest: **From an American Perspective, I see this long game as an effort to, uh, to recast the international order to make it more common accommodating for authoritarianism, and to do that, first region-ally and then globally, they need to push the American military back, so they can more effectively bully their neighbors and control resources. And so I see that we’re seeing a test of strength in the South China Sea and a test of strength in the Taiwan Strait and diplomacy and development all that is essential, but a lot of this is going to come down to whether Chinese military planners believe that they can successfully accomplish their political objectives through military force.
+“人们正在死亡，”马里克在接受采访时说。”我们在病床边治疗病人。我们没有象牙塔综合症，告诉人们该怎么做，但不知道你在做什么。”这些人在Facebook和Twitter上肯定会被审查，就像其他一群医生在谈论羟氯喹的效果如何一样。
 
-**嘉宾：**从美国人的角度来看，我认为这场长期的博弈是为了重塑国际秩序，使世界更能普遍地适应独裁主义，要做到这一点，首先是在地区范围内，然后在全球范围内，他们需要迫使美国撤军，这样他们就可以更有效地霸凌邻国并控制资源。 因此，我看到我们正在见证在南中国海的军事实力测试，以及台湾海峡的军事实力的测试，所有这些对美国的外交政策与发展都是至关重要的，但很多事情会取决于中国军方策划者是否相信他们可以通过军事力量成功地实现其政治目标。
+FLCCC的成员们大多是危重症医生，他们说，他们觉得不需要更多的数据，他们认为鉴于伊维菌素已确立的安全性，给患者服用安慰剂是不道德的。
 
-**Host: **Now, President Biden responded by denouncing China’s move and then he sent the U.S. carrier fleet into the area. So, what more should be done beyond that?
+FLCCC早在20202年3月，美国中共病毒大流行之初成立。 最初的目的是为了有一个让大家了解中共病毒最新科学信息的途径。 在此之前，小组成员之间主要是通过他们对研究维生素C的共同兴趣而认识的。
 
-**主持人：**现在， 拜登总统对此做出对中国举动的谴责，然后他派遣了美国的航母舰队进入该地区。 那么，除此之外还需要做些什么？
+马里克博士因创建治疗脓毒症的HAT方案而闻名。 该方案采用了氢化可的松、维生素C和硫胺的混合物。
 
-**Guest: **I think there’s a ton to do, you know, bipartisan experts have been saying for a while now that if China and the United States were going to come to blows and we all want to avoid that, it most likely would come in the Taiwan Strait. In fact, there was a 2018 national defense driver’s commission commissioned by congress that looked at this with bipartisan experts on it, and the number one concern they had in the entire globe was in the Taiwan strait.
+马里克博士对中共病毒被政治化感到不满。 他说，民主党利用病毒强行封锁美国，关闭小企业，让孩子们无法上学，所有这些都是为了在2020年的选举中伤害唐纳德-川普，把责任推给总统。 政治右派只是对民主党州长和市长采取的严厉措施进行反击，特别是当他们发现有一些治疗方法是有效的，但却被科技巨头、假新闻媒体和民主党进行审查和封锁。
 
-**嘉宾：**我想现在有很多事情要做，你们都知道，两党的专家们已经说了一阵子了，如果中国和美国发生军事冲突的话，虽然我们都想避免它发生，最有可能的是在台湾海峡。 实际上，有一个由国会委托的 2018 年国防驱动委员会与两党专家共同研究了这一问题，在全球范围内他们最关注的是台湾海峡的问题。
+马里克说：”这不是一个政治问题，也永远不应该是。…我们是由科学和数据驱动的，而不是由政治或其他东西驱动的。” 而科学说这种药物能杀死冠状病毒。
 
-And for too long, frankly in the Obama administration, there was a reluctance to give Taiwan the arms they needed to defend themselves. The Trump administration to their credit reversed that policy and has been, and made the decision to provide a lot of weapons, but those weapons in and of themselves take time to deliver, and they’re not enough. There also has to be, as someone who served in the U.S. army, you have to be able to operate those weapons as individuals and as units.
+马里克在YouTube上上传了一个关于使用伊维菌素的新闻报道的视频，仅仅几秒钟后，即被YouTube删除并被告知， 视频被删除，是因为视频是关于中共病毒的错误信息。 这段视频只有4分钟长，YouTube在5秒内就审核完毕,这难道不荒唐吗？这明显是将中共病毒政治化。
 
-而长期以来，坦白说，在奥巴马政府期间，他们一直不愿向台湾提供自卫所需的军事装备。 值得称赞的是，川普政府扭转了该政策，并且已经做出提供大量武器的决定，可是这些武器需要时间才能交付，然而这些还远远不够，还得有在美军服过役的人的经验，才能够以单兵和单元的形式操作这些武器。
+马里克说：”这让我很愤怒，当我听到这是一个阴谋，这个病毒并不存在，没有那么多的死亡… 你必须来重症监护室，看到人们正在死去，才能意识到这不是骗局，这是真的。” 这是基于民主党人对川普的谎言。 唐纳德-川普从来没有说过这种病毒是一个骗局，他说左派的宣传方式是一个骗局，他是对的。 我们现在发现中共病毒的存活率高达99%，那他们为什么要采取那么多严厉的封锁措施？
 
-And, uh, you know, let’s not kid ourselves. We can give Taiwan, you know, all the weapons they would ever want, but in the end with enough time, given, uh, the historic military modernization effort that the People’s Liberation Army has undertaken, the most significant in the history of the People’s Republic of China, sooner or later Beijing will win that. So the point here is that Taiwan has to be able to hold on long enough for the U.S. military to come to their aid, uh, and so, the longer we can make Taiwan capable of holding off when under assault from the mainland, the sooner we can get there and help them.
+马里克还说，我想知道为什么那些知道伊维菌素治疗中共病毒如此有效的人，在4月份的时候，当他们发现它对中共病毒患者有效的时候，什么都不说。 如果这些医生说出来的话，很多死于病毒的人都可以得到救治。 但当人们正在死去，而你又知道一种药物似乎正在创造奇迹，可以挽救人们的生命，你为什么不说点什么呢？
 
-而且，呃，你知道，我们不要自欺欺人。你知道， 我们可以给台湾他们想要的所有武器，但是最终，只要给予足够的时间，在中华人民共和国历史上人民解放军所进行的最重要的军事现代化努力中，北京迟早会取得胜利。 因此，重点是，台湾必须能够坚持足够长的时间，能坚持等到美国军方所提供的援助，所以，在遭受大陆攻击的情况下，台湾能够抵挡的时间越长，我们能越快到达那里并帮助他们。
+评：
 
-And so, there really are multiple components there we need to, in short, we need to make Taiwan like a porcupine that is an unappealing candidate for consumption by a predator.
+除了硫酸羟氯喹，另一种可在48小时内杀死中共病毒的药物-伊维菌素被有良心的专家们爆出。硫酸羟氯喹原来主要治疗疟疾，已被使用超过50年，安全无副作用，被列入世卫组织最安全100种药物名单中，价格低廉。同样地，伊维菌素通常被用来治疗寄生虫感染，有近50年的使用历史，被世卫组织列在“基本药物”单上，副作用很小，与青霉素和阿司匹林齐名为神奇药物，成本极低，任何国家的人均承担得起。
 
-因此，确实涉及到多个组成方面，简而言之，我们需要使台湾像豪猪一样，成为不被食肉动物吃掉的对象。
+这两种价廉物美的药物几乎都在去年中共病毒大流行之初，就被专家发现可在48小时内有效杀死病毒，并可用来预防病毒。是预防病毒和感染初期非常有效安全的治疗药物。但对此说真话的专家被左派权威人士打压，关于这两种药物对治疗和预防中共病毒的信息被大科技巨头和假新闻媒体审查和屏蔽，甚至将药物的处方权非法化，使医生不敢给病毒感染者开处方。
 
-**Host: **Well, apparently the Chinese coast guard has been authorized to fire on foreign vessels if necessary in the Taiwan Strait and also in the South China Sea. So, your thoughts on that?
+医生在处理轻度病毒感染者时，大多不给开任何处方，只让病人回家静养，隔离14天。如果病人病情变得严重，再去看医生。试想，如果医生可以自由地给病毒初期感染者开硫酸羟氯喹或伊维菌素处方，多少感染者可以快速被治愈，又有多少生命得到解救？同时又减少了多少人被感染？那样恐怕根本无须封城，那些小企业可以照常营业，目前由于封城造成的失业可能小到可以忽略不计，学生继续上学，人们的生活一切照旧…
 
-**主持人：**好吧，中国海岸警卫队显然已获准在台湾海峡和南中国海，如果有必要的话可以向外国船只开火。 那么，您对此有何看法？
+这一切都是谁之过？谁之罪？是中共！中共制造病毒并将病毒传播到全世界，他们向全世界发动了生化武器战争！他们企图用生化武器打垮全世界，最终统治全世界。爆料革命从没停止过先世界传播病毒真相，越来越多的有正义感的专家站出来说出病毒真相。世界在觉醒，追查病毒真相势不可挡，中共命不久矣！
 
-**Guest: **Because a lot of times, as Americans we think, you know, hey, we’re either at war or peace with someone. There’s nothing in between. That’s not how China views it. They really view it as a rheostat or dial. It gets dialed up or down, and they engage what we know gray zone warfare or hybrid warfare as various experts call it. We see China’s using their coast guard and also civilians, seemingly civilian fishing vessels, to undertake, uh, you know, state policy. And, you know, this is, this makes a larger point that I think Americans need to understand.
+[原文链接](https://djhjmedia.com/rich/ever-heard-about-the-drug-ivermectin-its-being-touted-by-doctors-as-a-miracle-cure-for-coronavirus/)
 
-**嘉宾：**因为很多时候，正如美国人认为的那样，你知道的，嘿，我们和某一方要么战争，要么和平相处，没有介于两者之间的状态。 但是中国不这么看。  他们真的把这件事视为“变阻器”或“刻度盘”，能被调高或调低。他们卷入了我们所知的，正如专家们所称的，灰色地带战或混合战。 我们看到中国正在使用他们的海岸警卫队以及平民（看似民用渔船）来执行其国家政策。 而且，你要知道，这一点很重要，我认为美国人需要懂得。
-
-There is no such thing, in my view, as a private Chinese company. There is no Chinese company that, when they get the call from Beijing and the Chinese Communist Party, is going to say no. So, when you’re talking about a Chinese fishing vessel in the South China Sea or Chinese company trying to do business here in the United States, uh, you need to understand that to some degree, they are either explicitly or implicitly working for the Chinese Communist Party.
-
-在我看来，在中国没有一家公司是真正的私人企业。当他们接到北京和中共的电话命令，没有中国公司会拒绝。 因此，当您谈论南中国海上的一艘中国渔船或一家试图在美国做生意的中国公司时，您需要知道，在某种程度上，他们正在直接或间接地为中共工作。
-
-This is not a xenophobic comment, right? We have no, we have no bone to pick with the Chinese people. The Chinese people deserve better than they’re getting from the government. But let’s be clear. In my view, the preeminent threat to the united states, our security, our prosperity, our freedom from abroad right now is the Chinese Communist Party because they combine wealth, their their economy is eight times larger than that of Russia, the most significant military modernization we’ve seen in decades from any country, uh, in a hostile authoritarian ideology that they’re honing at home and exporting abroad.
-
-这不是仇外评论，对不对？ 我们没有，我们跟中国人没有什么过节。 中国人民应该得到比他们从政府那里得到的更好的待遇。 我们必须清楚一点。 我认为，现在，对美国，我们的安全、我们的繁荣、我们的自由的突出外来威胁来自于中国共产党，因为他们汇聚了财富，其经济规模是俄罗斯的八倍，这是几十年来我们从任何国家所看到的最重要的军事现代化，呃，在他们怀着敌意的独裁意识形态中，在国内磨砺并输出到国外。
-
-**Host: **And, that threat continues an advanced cyber group affiliated with Chinese intelligence is using a new, never-seen-before powerful hacking weapon in a series of attacks on embassies, government offices, and state-owned technology and science companies in Asia and Australia. So, what can you tell us about how great of a threat does that pose to the USA?
-
-**主持人：**而且，这种威胁继续在一个隶属于中国情报局的先进网络组织正在使用一种新型的、从未见过的强大黑客武器对亚洲和澳大利亚的使馆、政府机关以及国有科技公司进行一系列攻击。 那么，您能告诉我们这对美国构成了多大的威胁吗？
-
-**Guest: **Yeah, you know, a lot of times there’s a tendency, including by people like me, to focus on ships and submarines and aircraft, but Americans need to understand that this threat from the Chinese Communist Party is a comprehensive one, including in the cyber domain. You know, our experts here in the United States have said the theft of intellectual property that China has undertaken against the United States is arguably the most significant transfer of intellectual property in human history. And most… a lot of this has been done licitly and illicitly and in the cyber domain. And so, we’re we’re in constant conflict with the Chinese Communist Party. The only question is whether Americans realize it and whether we’re willing to do something about it.
-
-**嘉宾：**是的，您知道，很多时候都有一种趋势，包括像我这样的人，倾向于将注意力放在船舶，潜艇和飞机上，但是美国人需要了解，中共的这种威胁是全面的威胁，包括网络领域。 您知道，我们在美国的专家曾说过，中国对美国实施知识产权的盗窃，可以说是人类历史上最厉害的知识产权转移。 而大多数……许多此类行为是在网络领域合法和非法进行的。 因此，我们与中国共产党一直处于冲突之中。 唯一的问题是美国人是否意识到了这一点，我们是否愿意为此做点什么。
-
-I think the Trump administration got something right, and they got something wrong. What they got right was taking the China threat seriously. What they got wrong was it’s too often they would try to take on this threat unilaterally rather than getting the good guys together first and then confronting Beijing together. Kind of like on the playground right when you’ve got a bully, you don’t go take on the bully by yourself, you go build a coalition of all the good guys and then you go to the bully.
-
-我认为川普政府做对了一些，他们也做错了一些事情。 做对的是他们非常重视中国的威胁；做错的是他们常常试图单方面应对这一威胁，而不先聚集正义力量，然后再与北京对峙。就像在操场上一样，当您被欺负时，您不会自己一个人面对欺负你的人，您会与所有好人建立联盟，然后再去找欺负你的人。
-
-So, we should be getting together more systematically with the G7, the seven largest economies, democracies, the cyber domain and other areas where we see that CCP engaged in this conflict that I’m talking about.
-
-因此，我们应该与七国集团，七个最大的经济体民主国家，网络领域以及我们看到中共参与我正在谈论的这场冲突的其他领域进行更加系统地合作。
-
-视频来源：[https://www.youtube.com/watch?v=OPij6uHSqE8&feature=youtu.be](https://www.youtube.com/watch?v=OPij6uHSqE8&amp;feature=youtu.be) (7:09-7:24，9:57-15:51)
-
-以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。
-
-翻译：【JennyL】校对：【rainbow】字幕：【相机过热啊】听写:【Isaiah4031】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+校对 文锦
+发稿 云起时
 
 0

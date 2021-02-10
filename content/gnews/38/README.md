@@ -1,36 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 意大利警方查获假冒伪劣防中共病毒药品
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/896515/)
+## 美法军舰相继在南中国海穿行
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/896566/)
 
-```
-新闻来源：欧元周刊新闻《EuroWeekly》
-报道时间：2021年1月22日
-简评/翻译：阿娜 校对/发稿人: Ting Guo
-```
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑    水星    上传    银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-10_02-23-50.jpg)[conservativefighters.org](http://conservativefighters.org/news/two-us-navy-warships-challenge-chinas-claims-to-south-china-sea/)
+路透社2月9日消息，法国武装部周二表示，一艘法国核推进攻击潜艇和军舰在南中国海巡逻，以强调国际航道的航行自由。当天早些时候，美国海军宣布两个美国航母战斗群在南中国海进行了联合演习。几天前，一艘美国军舰在有争议水域的中共控制岛屿附近航行。
 
-#### 简评：
+中共谴责了美国海军约翰·s·麦凯恩号驱逐舰在中共控制的西沙群岛附近的航行，美国称这是一次航行的自由行动，这是美国海军自乔·拜登总统上任以来首次执行这样的任务。
 
-很多意大利华人习惯于沉浸在微信圈，尤其是在爆料革命出现以前，大家每天浏览信息最多的还是来自于微信。中共病毒刚开始的时候，尤其是在去年，我还能看到认识的意大利华人，在微信圈卖钟南山推荐的莲花清瘟。可今年就没有再看到了，想必身在海外的华人多少都知道病毒真相了，自然莲花清瘟也就不能再忽悠人了。
+周二，美国海军表示，西奥多·罗斯福航母战斗群和尼米兹航母战斗群在南中国海“进行了大量演习，旨在增加操作性以及指挥和控制能力”，这是美军自2020年7月以来在繁忙的水道上首次双航母作战。
 
-身为在意大利的华人理应注重保护自己华人的形象，否则在这次中共制造的病毒真相面前，我们华人太容易成为受中共这个恶魔连累的对象了。如果不是爆料革命，提前宣传中国人不等于中共，很难想象我们华人的未来在海外，将面临艰难的生存环境。
+继美国派遣两个航空母舰打击群在南海举行演习，法囯也表示，法军两艘舰艇近日在南海巡逻，其中一艘是核动力攻击潜艇。法国提出国际法的论述，强调在南海自由航行的重要性，认为这一行动有助于支持多边主义、国际法和航行自由的原则。法国最近通过这条航道表明，美国的盟友越来越主张中共国附近国际航道的航行自由。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Caribinieri.jpeg)图为警方在罗马和托斯卡纳的超级市场发现了2000粒药丸 图片来源：Carabinieri
+法国武装部队部长帕利(Florence Parly)在推特(Twitter)上说，“这支特殊巡逻队刚才穿行南海。这显著证明了法国海军长期远地部署及与澳洲、美国和日本战略伙伴长期合作的能力。”
 
-#### **参考新闻翻译如下****:**
+中共外交部发言人汪文斌9日回应法国的航行自由原则称，“中（共）国一贯尊重各国依据国际法在南海享有的航行与飞越自由，但反对任何国家以航行自由为名，危害中方主权和安全，破坏地区和平安宁。” 汪文斌还表示，美国频繁派舰机进入南中国海活动，不利于地区的和平与稳定。中共将继续采取必要措施捍卫国家主权和安全。
 
-#### 罗马和托斯卡纳的意大利警方查获了大量假冒的防病毒假药。
+援引自《自由亚洲》报道，法国外交战略研究中心研究员巴桑表示，“在持续了10年的南海紧张局势中，中（共）国寻求维护自己的势力并重新要求追还其所谓基本利益，法国以国际法的论述，说明中（共）国违反‘以和平方式解决它们的领土和管辖权争议，而不诉诸武力或以武力相威胁’的国际法，在南海上有争议的军事扩张造成区域局势不稳。法国通过这次任务，间接表明它正在参加所谓的遏制中（共）国计划。”
 
-这些药丸声称可以治疗中共病毒（Covid-19）症状，并在五家中国超市和草药商店出售，其中四家在首都罗马，另一家在佛罗伦萨附近的托斯卡纳小镇普拉托（那里是著名的华人居住地和华人开的工厂所在地）。
+中共在该地区广泛的领土主张、军事化南海，恐吓马来西亚、菲律宾和越南等邻国等行为引发了多重国际紧张。以美国为首的多个国家宣称南中国海航行自由，并结盟捍卫各国主权和利益，使得南中国海紧张局势进一步升级。
 
-意大利警察说，部队已查获437箱，总计约2000份无牌和非法药丸。假药品起源于中共国，并由未经处方或出售药品的企业销售。意大利公共检察官办公室将对在突击检查中被锁定的许多企业主进行调查，调查他们经营无牌药房以及进口和出售未经授权的药物的指控。
+对于南中国海的行动，台湾总统蔡英文说，美国船只和飞机进行的航行自由行动令人放心，因为“这清楚地表明了美国对印度洋-太平洋地区安全现状面临挑战的态度。”
 
-由于怀疑他们的药效和潜在的不良副作用，在意大利药品局（AIFA）和欧盟药品管理局（EMA）卫生机构的授权下这些药被查获。在大流行病毒期间，由于不良的企业试图从该病毒中获利，许多此类骗人的药品已进入市场。
+参考链接：
 
-这次行动是由罗马NAS部门的警察官员与Nucleo药品局警察、佛罗伦萨的NAS的警察和普拉托的当地警察合作进行的。尽管意大利的犯罪世界是由土著黑手党组织主导的，但据报道，中共国犯罪集团在意大利开展活动通常专门从事非法进口。
+[https://www.reuters.com/article/us-southchinasea-usa-carriers/two-u-s-carrier-groups-conduct-exercises-in-south-china-sea-idUSKBN2A90I5?il=0](https://www.reuters.com/article/us-southchinasea-usa-carriers/two-u-s-carrier-groups-conduct-exercises-in-south-china-sea-idUSKBN2A90I5?il=0)
 
-**新闻来源：**[Italian Police Seize Fake Chinese Covid Medicine](https://www.euroweeklynews.com/2021/01/22/italian-police-seize-fake-chinese-covid-medicine/amp/)
+[https://www.reuters.com/article/southchina-sea-france-submarine/french-nuclear-submarine-patrolled-in-south-china-sea-navy-idUSL1N2KF1J7](https://www.reuters.com/article/southchina-sea-france-submarine/french-nuclear-submarine-patrolled-in-south-china-sea-navy-idUSL1N2KF1J7)
+
+[https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl-02092021081743.html](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl-02092021081743.html)
 
 0
