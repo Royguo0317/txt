@@ -1,31 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 调查显示中共“疫苗外交”难赢东盟民心
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/897155/)
+## （快讯）中共的大外宣就是假擀面杖
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/897186/)
 
-俄罗斯莫斯科喀秋莎农场    银河
+**作者｜旧金山金喜准农场**：wenwu 
+**素材｜编辑部内新闻**：07文川 
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-10_06-56-27.jpg)[knowledge.wharton.upenn.edu](http://knowledge.wharton.upenn.edu/article/asean-2015-will-lower-oil-prices-interfere-rapid-growth/)
-印尼新闻网NetralNews2月9日报道，新加坡东南亚研究所的一项调查显示，在中共病毒大流行期间，中共通过“疫苗外交”试图在东南亚赢得民心的努力面临失败。
+近日，有网友在媒体平台上发现中共外交部的赵立坚，其在推特上关注一个色情又敏感的推特号。该推特号为@qornograficx，并推销着一款“假擀面杖子”。如下图：
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/02/image0-1-8.jpg)](https://twitter.com/qornograficx) 网友发现的推特账号
+另外一方面，据2月8日共同社报道，日本关于中国1日允许海警局使用武器的《海警法》施行表示，“完全无法接受通过运用在东海和南海海域加剧紧张的情况”。
 
-11月18日至1月10日对东南亚国家联盟(Association of Southeast Asian Nations，简称东盟) 10个国家的学者、政府官员和商人等1032人进行的调查中，44.2%的受访者认同中共是在大流行期间向该地区提供最多援助的国家。
+既成事实一向让中共百试不爽，至于事后中共是否敢对日本动手，笔者认为不会。因为中共一向是对外故弄玄虚，对内则是“老鼠扛枪窝里横”。
 
-中共正积极与东盟地区国家签署新冠肺炎（中共病毒）疫苗协议，为该地区国家提供了大量的疫苗供应。尽管有这些努力，61.5%的受访者表示，如果他们被迫在美中竞争中站队，他们会选择美国而不是中共。
+中共国的措施还有一个点：足够实惠，以最小的代价拿到最大的利益。值得关注的是，关于日本对于中共《海警法》的相继反击措施，相信唯有使出足够对付流氓的强硬方可有效。
 
-调查的其他结果显示，尽管东盟国家继续将中共视为该地区的主要参与者，但许多国家对中共的影响力持谨慎态度。约76.3%的受访者表示，中共是该地区最具影响力的经济大国，超过80%的老挝、泰国、新加坡、缅甸和柬埔寨受访者认为中共是该地区最具影响力的国家和集团。然而，在认为中共最具影响力的受访者中，72.3%的人对中共不断增长的影响力表示担忧。受访者中约46.3%的人认为中共是“修正主义势力，打算把东南亚变成自己的领土”，此数据高于去年的38.2%；31.5%的人认为中共“逐渐取代美国，成为地区领袖”，数据低于去年的34.7%。
+文章仅代表作者观点
 
-东盟各国对中共的国际影响力也变得没有信心。63%的受访者表示，他们“对北京是否会为国际社会“做正确的事情”“缺乏信心”或“不确定”。“有信心”或“非常有信心”从两年前的19.6%降至16.5%。
+相关链接、推特账号：
+[https://twitter.com/qornograficx](https://twitter.com/qornograficx)
+[https://china.kyodonews.net/news/2021/02/f27977dacda4.html](https://china.kyodonews.net/news/2021/02/f27977dacda4.html)
 
-日本是该地区最受信任的国家，67.1%的受访者表示，他们希望日本为全球利益采取行动。与前一年相比，调查中对美国和欧盟的积极看法都出现了显著增长。
 
-中共是唯一一个负面评级从2020年的60.4%提高到2021年的63.0%的大国。人们认同中共在该地区占主导的经济地位和政治影响力，但并不欣赏。报告称，“大多数人担心，这种经济实力，加上中共的军事力量，可能被用来威胁他们国家的利益和主权。”
+**编辑｜旧金山金喜准农场**：wenwu
 
-中共称霸世界的野心已经引起国际社会的警惕，此份民意报告是世界民心的缩影。中共对香港民主的镇压，对台湾的武力威胁，在南中国海的军事扩张，在西藏的人权侵害和新疆的种族灭绝罪行让世界无法忽视它对本国人民的压榨迫害；中共在缅甸军事政变中扮演的不光彩角色更让世界警醒。当中共病毒是中共生物武器的真相公布于世时，全世界有正义感的人们必然都会发出伐共的呼声。
+**欢迎战友加入旧金山金喜准农场**
 
-参考链接：
+**旧金山金喜准农场** GTV: [https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
 
-[https://netral.news/en/chinas-vaccine-diplomacy-fails-to-win-asean-support-survey.html](https://netral.news/en/chinas-vaccine-diplomacy-fails-to-win-asean-support-survey.html)
+**旧金山金喜准农场** Discord: [https://discord.gg/QQzQ79grEA](https://t.co/hPEjhr0AZA?amp=1)
 
-0
+**旧金山金喜准农场** Twitter: [https://twitter.com/sf\_himalaya](https://twitter.com/sf_himalaya)
+
++1
