@@ -1,37 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美法军舰相继在南中国海穿行
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/896566/)
+## 加国民众对“中共病毒源于动物”论嗤之以鼻
+` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/896612/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+***加拿大多伦多枫叶农场 文锦***
 
-编辑    水星    上传    银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-10_02-23-50.jpg)[conservativefighters.org](http://conservativefighters.org/news/two-us-navy-warships-challenge-chinas-claims-to-south-china-sea/)
-路透社2月9日消息，法国武装部周二表示，一艘法国核推进攻击潜艇和军舰在南中国海巡逻，以强调国际航道的航行自由。当天早些时候，美国海军宣布两个美国航母战斗群在南中国海进行了联合演习。几天前，一艘美国军舰在有争议水域的中共控制岛屿附近航行。
+2月9日，加拿大《后千禧年报》报道了世卫组织宣称中共病毒源于动物的新闻，并在推特上发问，你认为中共病毒源于动物吗？这引发加拿大民众热议。
 
-中共谴责了美国海军约翰·s·麦凯恩号驱逐舰在中共控制的西沙群岛附近的航行，美国称这是一次航行的自由行动，这是美国海军自乔·拜登总统上任以来首次执行这样的任务。
+Mark Bernadet: 中共政府已花了数月为世卫组织的调查做准备，世卫组织将找到中共希望他们找到的东西。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/mark-benadet.png)
+dont mess with miles：（来自）实验室的动物实验，是的
+![]()![](https://gnews.org/wp-content/uploads/2021/02/屏幕截图631.png)
+What is Going on here: 在《千禧年报》之后加入队列，中共已经发表讲话，你永远不该质疑他们！
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Whatis-going-on-here-.png)
+Arturo B Brito: 中共需要怪罪些事。他们明年举办奥运会。他们可能会入侵朝鲜，以找到挽回面子的方法。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Arturo-B-Brito.png)
+Cam：中共为何要在爆发初期进行掩盖？
+![]()![](https://gnews.org/wp-content/uploads/2021/02/屏幕截图630.png)
+Nathan Eills: 我不相信你。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/屏幕截图624.png)
+Jerry Mason：通过宣布该病毒起源于动物，世卫组织和中共已经测试了人类的智力及其对传播谬论的耐受性。在媒体的帮助下，他们实际上取得了非常积极和有希望的结果。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Jerry-PHD.png)
+Dr.MasklessGypsy PHD: 中共病毒是制造出来的。与温尼伯P4实验室中的中共科学家（邱香果）有联系，他们去武汉旅行了……但他们永远不会告诉我们任何一种事实。腐败统治着世界。
 
-周二，美国海军表示，西奥多·罗斯福航母战斗群和尼米兹航母战斗群在南中国海“进行了大量演习，旨在增加操作性以及指挥和控制能力”，这是美军自2020年7月以来在繁忙的水道上首次双航母作战。
+AMY E JOHNSON：不是。
 
-继美国派遣两个航空母舰打击群在南海举行演习，法囯也表示，法军两艘舰艇近日在南海巡逻，其中一艘是核动力攻击潜艇。法国提出国际法的论述，强调在南海自由航行的重要性，认为这一行动有助于支持多边主义、国际法和航行自由的原则。法国最近通过这条航道表明，美国的盟友越来越主张中共国附近国际航道的航行自由。
+AroundTown: 它（中共病毒）源于动物——然后，武汉的实验室里花了一段时间把它研发成了生物武器。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/AroundTown.png)
+Ava Myjak: 胡说八道
 
-法国武装部队部长帕利(Florence Parly)在推特(Twitter)上说，“这支特殊巡逻队刚才穿行南海。这显著证明了法国海军长期远地部署及与澳洲、美国和日本战略伙伴长期合作的能力。”
+Willnotcomply: CCP 宣传
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Willnotcomply.png)
+Mike Higgs T.T.M.Cl.：它不是来自动物，（而是）来自实验室。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Mike.png)
+ed walsh：不是
 
-中共外交部发言人汪文斌9日回应法国的航行自由原则称，“中（共）国一贯尊重各国依据国际法在南海享有的航行与飞越自由，但反对任何国家以航行自由为名，危害中方主权和安全，破坏地区和平安宁。” 汪文斌还表示，美国频繁派舰机进入南中国海活动，不利于地区的和平与稳定。中共将继续采取必要措施捍卫国家主权和安全。
+Andrew: 中国人真的那么肮脏吗？显然，这是一种生物武器。有人在1984年写一本关于2020年病毒的书是巧合吗？现在，世界上的所有领导人都在谈论一场伟大的重置，人们死于精英们的贪婪。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Andrew.png)
+Acting FBI Director: 如果我们将中美两国的深层政府称为动物，那是的。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/FBI.png)
+**评：**
 
-援引自《自由亚洲》报道，法国外交战略研究中心研究员巴桑表示，“在持续了10年的南海紧张局势中，中（共）国寻求维护自己的势力并重新要求追还其所谓基本利益，法国以国际法的论述，说明中（共）国违反‘以和平方式解决它们的领土和管辖权争议，而不诉诸武力或以武力相威胁’的国际法，在南海上有争议的军事扩张造成区域局势不稳。法国通过这次任务，间接表明它正在参加所谓的遏制中（共）国计划。”
+虽然中共病毒疫情蔓延以来，加拿大政府和主流媒体追随中共走狗世卫组织，竭力掩盖病毒真相，但现在这个问题下压倒性的评论都指向中共病毒源于中共的生物武器，加拿大民众心里都有杆秤，知道谁是威胁他们生命健康的罪魁祸首。无论中共使出何种花招甩锅，都永远无法脱罪，全球灭共的结局已经注定。
 
-中共在该地区广泛的领土主张、军事化南海，恐吓马来西亚、菲律宾和越南等邻国等行为引发了多重国际紧张。以美国为首的多个国家宣称南中国海航行自由，并结盟捍卫各国主权和利益，使得南中国海紧张局势进一步升级。
+*[参考链接](https://twitter.com/TPostMillennial/status/1359193204751536131)*
 
-对于南中国海的行动，台湾总统蔡英文说，美国船只和飞机进行的航行自由行动令人放心，因为“这清楚地表明了美国对印度洋-太平洋地区安全现状面临挑战的态度。”
+**校对 小鸥**
 
-参考链接：
-
-[https://www.reuters.com/article/us-southchinasea-usa-carriers/two-u-s-carrier-groups-conduct-exercises-in-south-china-sea-idUSKBN2A90I5?il=0](https://www.reuters.com/article/us-southchinasea-usa-carriers/two-u-s-carrier-groups-conduct-exercises-in-south-china-sea-idUSKBN2A90I5?il=0)
-
-[https://www.reuters.com/article/southchina-sea-france-submarine/french-nuclear-submarine-patrolled-in-south-china-sea-navy-idUSL1N2KF1J7](https://www.reuters.com/article/southchina-sea-france-submarine/french-nuclear-submarine-patrolled-in-south-china-sea-navy-idUSL1N2KF1J7)
-
-[https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl-02092021081743.html](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/cl-02092021081743.html)
+**发稿 文锦**
 
 0
