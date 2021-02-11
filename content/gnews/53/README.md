@@ -1,33 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【商海纵横】G商业生态系统（二）独特价值链关系
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/900500/)
+## 香港首个国安法案件审理未设陪审团
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/900754/)
 
-五月花写作组 ｜ 作者：商业部 如水 ｜ 编辑、美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/02/商海纵横2v2.jpg)
-G商业生态系统的构建，是当今社会商业关系的一次革命。G系列是具有多种生命形态的生态系统，是非常坚强的生态系统，同样也是最有创造力的生态系统。这种多样化不仅表现在公司业务内容与业务模式上，而且表现在用人政策上。同时系列的各个个体之间是完全实现了共生、互生和重生完美组合。
+*新闻来源：HKFP《香港自由新闻》| 作者：AFP 法新社| 发布时间：2021年2月8日*
 
-共生是指两种或者多种生物互相合作，以提高生存能力。传统企业习惯于看其他单位为竞争关系，从不考虑互利或共生关系，主张“绝对别把钱留在桌面上”。而新型企业总是寻求双赢的共生关系，既在合作中竞争，又在竞争中合作。由此产生了一个新词汇：竞合。G系列中的个体单位，就是竞合关系。每个个体单位互相独立、互相竞争、互相依赖、互相共生，形成了一个价值无限的企业网。
+*翻译/简评：yyshere |校对：X-Wing飞得更高 |审核：万人往 |Page：小雨*
 
-G系列各个体单位分工协作，为共同的目标，有机的联合成一个整体，协同为用户创造价值，实现生态圈的整体价值最大化。G系列共生的核心，是创造一个价值平台，这个平台可供生态圈中各个体单位共同分享，从而使价值创造活动能够得以系统地组织。
+[!\[\]()!\[\](https://spark.adobe.com/page/stCKQpusyJ4cy/images/f127c23f-f9ce-4b89-8979-1a6c45419292.jpg?asset_id=9160cb3c-b8af-4338-8d4f-58d428512998&amp;img_etag=%22f25bebdb6c437a27302e508b5634e650%22&amp;size=2560)](https://spark.adobe.com/page/stCKQpusyJ4cy/images/f127c23f-f9ce-4b89-8979-1a6c45419292.jpg?asset_id=9160cb3c-b8af-4338-8d4f-58d428512998&amp;img_etag=%22f25bebdb6c437a27302e508b5634e650%22&amp;size=1024)
 
-在共生之上，G生态圈成员还呈现一种互相依赖关系，每个个体单位的利益都与其他个体单位，以及生态圈整体的健康发展相联系。个体单位所创造的价值会在整个生态圈中进行分享。GCOIN、 GDOLLA、GMALL、GFASHION、GBANK、GNEWS、GTV、GCLUB等等都是利益相关互相扶持共同发展的互生状态。
+**简评：**
 
-任何产业都有其发展边界，当外部环境变化或产业进入成熟期后，可能会发生整个产业的衰退。G系列生态圈会通过重新关注最适合的市场和微观经济环境的产业区域，将一些资源转移到新的生态圈，建立更好的合作框架和更健全的经济秩序，从而成功地开拓未来更宽广的市场范围。
+陪审团制度在香港的法律体系中存在了176年，曾是香港司法界引以为傲的重要特色之一，香港曾经拥有的完备的司法体系也备受世界称赞。然而，2020年7月1日，北京推行的国安法正式生效以来，人们看到了一个逐步向大陆专制司法体系靠拢的香港法律系统。
 
-* * *
+构建一个成熟、完备、可以给予民众普遍公平的法律保障的司法体系是何等漫长和艰辛的过程，如今摧毁它，只需朝夕。
 
-### 往期链接：
+**原文翻译：**
 
-[【商海纵横】G商业生态系统（一）引领商界新潮流](https://gnews.org/zh-hans/896073/)
+# **消息称：香港首个国安法案件审理未设陪审团**
 
-* * *
+周一，根据一个法律界信息源提供给法新社的消息，香港已决定在北京全面推行国安法后审理的首个案件的过程中，不设陪审团。
 
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+消息人士说，律政司司长郑若骅在2月初以“陪审员及其家属的人身安全”为由，通知了被告的律师团队。
 
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+[![](https://spark.adobe.com/page/stCKQpusyJ4cy/images/1a5edad1-951d-4fd1-9dd8-a07bf9c20aa4?asset_id=d4703f73-d160-4cbb-80c4-94fc217fe304&amp;img_etag=%2225c92a3cbc839da4726d689ee2e47f91%22&amp;size=2560)](https://spark.adobe.com/page/stCKQpusyJ4cy/images/1a5edad1-951d-4fd1-9dd8-a07bf9c20aa4?asset_id=d4703f73-d160-4cbb-80c4-94fc217fe304&amp;img_etag=%2225c92a3cbc839da4726d689ee2e47f91%22&amp;size=1024)File photo: GovHK.
 
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+取而代之的是，审判将由三名被任命审理国家安全案件的法官进行。
 
-+2
+一位律政司的发言人以诉讼正在进行中为由，拒绝对法新社的提问发表评论。
+
+这位律政司发言人也拒绝对“个案”发表评论。
+
+陪审团审判在香港的普通法法律体系中已经使用了176年，被香港本身的司法部门称为司法机构 “最重要的特色”之一。
+
+但从去年6月开始推行的新的国安法，允许在某些情况下由专职的国家安全法官进行审判。
+
+首位面临审判的是23岁的男性，唐英杰。他在国安法生效后的一天，因驾驶插有抗议旗帜的摩托车冲向警方阵线而遭到拘捕。
+
+目前，他被指控犯有恐怖主义和煽动分裂国家罪——两项新的国家安全罪，如果罪名成立，他将面临终身监禁。
+
+他的案件已经交由高等法院的初审法院审理，在那里，审判通常由一名法官和七到九名陪审员一起审理。
+
+根据法律依据，司法部长援引了《国家安全法》第46条，该条规定了可以撤销陪审团国家安全罪的三种情况。
+
+[![](https://spark.adobe.com/page/stCKQpusyJ4cy/images/86182c1e-2eec-4f05-befa-d7a8e1d78ae6?asset_id=2c4738bd-3337-4037-a588-ed1e48a3c9e8&amp;img_etag=%22f045c68ee2fa33b33f294aa67ba77b40%22&amp;size=2560)](https://spark.adobe.com/page/stCKQpusyJ4cy/images/86182c1e-2eec-4f05-befa-d7a8e1d78ae6?asset_id=2c4738bd-3337-4037-a588-ed1e48a3c9e8&amp;img_etag=%22f045c68ee2fa33b33f294aa67ba77b40%22&amp;size=1024)Photo: GovHK.
+
+他们的职责包含保护国家机密、涉外案件、保护陪审员及其家属的人身安全。
+
+香港大律师公会此前曾就这一法律条款表达过关切。
+
+该公会在法律公布后不久曾表示：“律政司司长可以基于某些理由剥夺由陪审团审判的权利，而不给法院留有在这方面的任何剩余酌处权。”
+
+这个法律界信息源透露，唐英杰的律师团队正在考虑下一步的行动。
+
+信息源表示“唯一可能的抗争方式就是通过司法审核”。
+
+在2019年大规模的民主抗议活动和随之而来的北京的镇压行动中，香港原本备受国际尊重的法律体系在政治上受到持续施压。
+
+北京推行的国安法压制了异议，也使香港这个商业中心与大陆之间的法律防火墙最终坍塌。
+
+中共国的资深政客、国有媒体以及亲北京的重要人物，还有香港境内的报纸也都在游说改革司法机构，或对那些他们不喜欢的近期判决和量刑进行抨击。
+
+反对者惧怕这些呼声可能预示着一个更接近于大陆的专制法律制度的降临。
+
+在中国内地，刑事法庭没有陪审团，只对党负责，定罪率普遍较高。
+
+🔗[原文链接](https://hongkongfp.com/2021/02/08/no-jury-for-hong-kongs-first-national-security-trial-source/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/stCKQpusyJ4cy/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/stCKQpusyJ4cy/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+
++1

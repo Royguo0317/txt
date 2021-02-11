@@ -1,37 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香草播报：【军事快讯】加拿大安全情报局指责中共对加拿大构成严重的战略性威胁
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/901314/)
+## 秘鲁总统接种了来自中共国的疫苗
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/901336/)
 
-作者：纽约香草山写作组 Wilson
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭ССР
 
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-11_02-19-34.jpg)[news.cri.cn](http://news.cri.cn/20201118/12972d54-2244-b005-231c-2cdd386eea41.html)
+02月10日，秘鲁总统弗朗西斯科·萨加斯蒂接受了中共国药集团冠状（中共）病毒疫苗的第一剂，秘鲁电视台现场直播了这一过程。
 
+疫苗接种是在利马的中央军医院进行的。除院长外，医院的医务人员也进行了接种。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+“今天，我支持秘鲁申明，疫苗是有用的、安全的和拯救生命的。疫苗是最好的盾牌。我带着希望和信心接种疫苗。”总统在他的Twitter上写道。他将在21天后接受第二剂药物。
 
+2月9日，秘鲁从中共国接收30万剂疫苗后，开始大规模接种。接下来的70万剂将在2月14日（周日）到达。
 
+此前，秘鲁卫生部报告称，该国当局正在与俄罗斯商谈供应“人造卫星-V”疫苗的事宜，该疫苗可能在今年年中抵达该国。
 
-[路透社](https://cn.reuters.com/article/canada-china-strategic-threat-0210-idCNKBS2AA03N)2月9日报道，加拿大安全情报局（CSIS）局长David Vigneault周二罕见地公开表示，中共试图窃取加拿大机密和恐吓华人社区，对加拿大构成了严重的战略性威胁。
+据秘鲁卫生部统计，截至2月9日，全国共记录1， 196 ，778人感染了冠状病毒。目前，有13，828人住院治疗，2，036人在重症监护室。共有42，626人死亡。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/88.jpg)图源网络
+1月21日，阿根廷总统阿尔贝托·费尔南德斯使用俄罗斯疫苗“人造卫星- V”接种了疫苗。该国副总统克里斯蒂娜·费尔南德斯·德基什内尔也对俄罗斯疫苗进行了测试。
 
-加拿大地广人稀，有极大的文化包容性，需要不断增加移民以弥补人口自然增长的不足。移民中的华人比例逐年上升，因此，加拿大成为中共进行共产主义极权专制扩张的主要对象之一，是被“蓝金黄”的重灾区。
+参考链接：
 
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
+[https://www.rbc.ru/rbcfreenews/602376ba9a7947306c31fdb5](https://www.rbc.ru/rbcfreenews/602376ba9a7947306c31fdb5)
 
 0
