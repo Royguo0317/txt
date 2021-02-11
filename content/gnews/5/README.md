@@ -1,47 +1,104 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】高校“延期开学”，打脸疫情“零骗局”
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/902468/)
+## CBN 新闻：中共国是自由和民主的最大威胁
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/902564/)
 
-**作者：**香草山农场  鹰(文言)
-![]()![](https://gnews.org/wp-content/uploads/2021/02/2021-02-11-3-coverphoto.png)
-澎湃网2月11日报道，为疫情防控和错峰开学，近日多地多所高校发布延迟开学通知[1]。
+新闻简述：据CBN2021年2月5日报道：美国智库警告中共国是美国最大的敌人，美国应该对与北京的无限期的对抗做好准备。
 
-2月10日，中国地质大学、中国农业大学、北京师范大学、北京交通大学等发布延期开学通知。2月20日至3月15日（或20日）进行线上学习，3月下旬正式开始线下授课。此前2月8日，北京工商大学、北京第二外国语学院通知返校时间定为3月20日；2日中央财经大学通知3月16日后错峰返校；华北电力大学通知3月19至26日分五批次返校[1]。
+**CBN News: Communist China Is the Greatest Threat to Freedom and Democracy**
 
-1月31日，中共教育部号召国内各校做好春节学期开学筹备工作，“特殊情况下”需要分批错峰开学，且中高风险地区暂缓返校[1]。而截至2月10日，北京市连续12天本地“0”新增[2]，国内31个省（自治区、直辖市）连续4天“0”新增[3]。仅从媒体报道看，在无新增又逐渐清零下，国内疫情即将进入“持久”稳定期。
+**CBN 新闻：中共国是自由和民主的最大威胁**
 
-但是，在疫情形势“大好”下，文旅部都号召80%的A级景区开放“鼓励外出”了，但延期开学的高校却显著增多了。北京连续12天的“0”新增，2月10号官宣的“北京中高风险地区全部清零”[4]，疫情防控都“稳定向好”了，却在既无“特殊情况”又无疫情形势加剧下纷纷延期开学，只能证明北京市的疫情现状仍然堪忧，同时也反映了中共高官的自私，“进京环节加码”以保自己和家人安全却反要其他地区放松管制。
+**Chris Mitchell: **China is the greatest threat to freedom and democracy. That warning came from the former top U.S. intelligence official, who said America should also prepare for an open-ended period of confrontation with Beijing. George Thomas has the details.
 
-除北京外，安徽中医药大学、安徽大学、合肥工业大学、吉林师范大学、吉林大学、燕山大学等也将开学时间延期一周。延期开学不仅体现出疫情形势严峻，开学后返校生“健康状态”也令人担忧。2020年8月份中共不顾疫情爆发风险强制国内高校、中小学幼儿园开学，为做戏国内形势大好而将孩子们的健康置于巨大风险之下，其后各地接连爆发食物中毒、诺如病毒事件，学校追责成了热点话题。
+**克里斯·米切尔**：中国是对自由和民主的最大威胁。这是来自美国前高级情报官员的警告。他说美国应该对与北京的无限期的对抗做好准备。请看乔治•托马斯的详细报告。
 
-此次的延期开学可看作各高校对疫情形势担忧的预判，既可以察社会各处的疫情形势，又可择机对开学防控准备做调整，归结起来都是由于中共对疫情真相的隐瞒造成了社会各界对管控措施的首鼠两端，各种有效的防疫手段被中共的形式主义涂改为“看领导防疫”和“表面工作”，防疫沦为“放疫”。
+**Host (George Thomas): **Napoleon Bonaparte, the French military leader said more than two centuries ago that China is a sleeping lion, let her sleep, for when she wakes, she will shake the world. China’s President Xi Jinping has emphatically declared that the lion has awakened.
 
-(文章只代表作者观点，与GNews网站无关)
+**主持人（乔治·托马斯）**：法國軍事領袖拿破崙•波拿巴兩個多世紀前說過：中國是一頭沉睡的獅子，讓她睡吧，因為當她醒來時，她將震撼世界。中[共]國國家主席習近平最近斷然宣布，獅子已經醒來。
 
-参考链接：
+John Ratcliffe, Director of National Intelligence wrote in a recent wall street journal editorial that China is America’s number one national security threat, and that Beijing intends to dominate the rest of the planet economically, militarily, and technologically. Michael O’hanlon is with Brookings Institute.
 
-[1] 多所高校推迟至3月开学，北京部分高校通知先线上开课后返校
+美国国家情报总监约翰•拉特克利夫最近在《华尔街日报》的一篇社论中写道：中国是美国国家安全的头号威胁，北京打算在经济、军事和技术上主宰世界其它地区。迈克尔•奥汉龙就职于布鲁金斯学会。
 
-[https://www.thepaper.cn/newsDetail\_forward\_11315307](https://www.thepaper.cn/newsDetail_forward_11315307)
+**Michael E. O’hanlon: **It is the way a great power with a non-democratic government chooses to seek to extend its influence worldwide.
 
-[2] 北京连续12天本地零新增！昨日新增治愈出院3例
+**迈克尔·奥汉隆**：这是一个非民主政府的大国在世界范围内寻求扩大影响力的方式。
 
-[https://baijiahao.baidu.com/s?id=1691354440778624028&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1691354440778624028&amp;wfr=spider&amp;for=pc)
+**Host: **Ratcliffe accuses China of deploying what he calls a rob, replicate, and replace approach in its ambitions to dominate the world.
 
-[3] 连续四天本土确诊零新增！
+**主持人**：拉特克利夫指责中共国采用了抢劫、复制和替换的战略来实现其主宰世界的野心。
 
-[https://baijiahao.baidu.com/s?id=1691359904901686004&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1691359904901686004&amp;wfr=spider&amp;for=pc)
+**Michael E. O’hanlon:** It’s been well known for decades that China tries to copy the industry of other countries and then takes it to scale, makes it more efficient, and largely operates, sort of built its way up through the global economic ranks with that approach.
 
-[4] 北京中高风险地区全部清零！全国现有6+16个高中风险区
+**迈克尔·奥汉隆**：几十年来，众所周知，中国试图复制其它国家的工业，然后将其发展成具有更加高效和更大生产规模的，一种名列全球经济前茅的中国特色工业。
 
-[https://baijiahao.baidu.com/s?id=1691262613272280589&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1691262613272280589&amp;wfr=spider&amp;for=pc)
+**Host: **China’s foreign ministry dismisses Radcliffe’s claims while accusing Washington of unnecessary playing the China threat.
 
-*责任编辑：华盛顿DC农场 光之子(沙加)*
+**主持人**：中共外交部在反驳拉特克利夫的同时，指责华盛顿没有必要宣扬中国威胁论。
 
-*校对：加拿大多伦多枫叶农场 文锦*
+**Chunying Hua: **The relevance article with his sensational title does not present any solid evidence at all. It offered nothing new but repeating the lies and rumors to smear China.
 
-*发布：喜联盟GNEWS编辑部  Isaiah4031*
+**华春莹**：这篇具有耸人听闻标题的文章根本没有提供任何确凿的证据，该文章除了陈词滥调外，就是不断地重复诽谤中国的谎言。
+
+**Host: **CBN News has documented China’s rise for more than two decades. Fast forward to 2020, as we examine how China’s President Xi Jinping has been massively overhauling the country’s military, economy, and political influence as part of his great rejuvenation project.
+
+**主持人：CBN新闻纪录了中国崛起长达20多年之久。当把记录带快进到2020年时，让我们来看看中共国家主席习近平是如何大规模地翻新该国的军事、经济和政治影响力，以此作为他伟大复兴计划的一部分。**
+
+**Tom Miller: **We should put it into sort of Trumpian terms, means to make China great again.
+
+**汤姆·米勒**：我们用川普式语言来说，就是：让中共再次变得伟大。
+
+**Host: **Tom Miller documents China’s rise in the book “China’s Asian Dream”. Miller says since taking the reins, she has been on a trajectory of preparing China to be the world’s dominant power.
+
+**主持人**：汤姆•米勒在《中国的亚洲梦》一书中纪录了中国式的崛起。米勒说，自从抓住了掌控权，中[共]国便开始为其成为世界主导力量而做准备。
+
+**Tom Miller: **China has been very very deliberately trying to realize its kind of ambition to become the global superpower.
+
+**汤姆·米勒：中国一直以来都非常刻意地试图实现其成为全球超级大国的野心。**
+
+**Host: **Chinese scholars say it’s also part of Xi’s deep belief that his country has a divine right to rule the world.
+
+**主持人**：中国学者说，这也是习近平最深的信仰，那就是，他的国家有统治世界的神圣使命。
+
+**Gordon Chang: **The mandate of heaven is from China’s imperial past, where Chinese emperors believed that they not only had the right, but they were compelled by heaven to rule the world. And there’s this notion of “Tian Xia” or “all under heaven”.
+
+**章家敦**：这个天命来自中国的皇权时代。中国的皇帝们认为，他们不仅拥有这个权利而且上天驱使着让他们统治世界。有一个词叫“天下”。
+
+**Host: **One way, is by military force. As Commander-In-Chief of the world’s largest fighting force, Xi has remade China’s People’s Liberation Army or PLA into a military, rapidly closing the gap on U.S. firepower. The Pentagon revealing for the first time that China now has the world’s largest navy and plans to double its nuclear warhead arsenal in this decade, which includes ballistic missiles that can reach the United States.
+
+**主持人**：一个途径就是通过武力。作为世界上具有最大军事力量的总司令，习对中国人民解放军，即 PLA，进行了改造，使其迅速缩小与美国军力的差距。五角大楼首次披露：中国现在拥有世界上最大的海军，并计划在10年内将其武器库增加一倍，其中包括那些能够打到美国的核弹道导弹。
+
+**Chad Sbragia:** It’s likely that China will seek to build a military that is equal to or in some cases superior to the U.S. military or the military of any other great power that China perceives as a potential threat.
+
+**乍得·布拉尼亚**：中国很可能会寻求建立一支军队，它是具有与美国同等水平甚至还可能超越美国，或者超越任何一个被认为对中国有潜在威胁的超级军事力量的中国军队。
+
+**Host: **O’Hamlon says China’s capabilities in emerging technologies such as robotics, artificial intelligence, and next generation technology and telecommunications now rival that of the United States.
+
+**主持人**：奥哈姆龙说，中国在新兴技术，如机器人、人工智能，以及下一代技术和电信方面的能力现在已经可与美国媲美。
+
+**Michael E. O’hanlon: **If we used to be ahead of China by, you know, half a lap on the proverbial track, now we’re ahead by maybe a few strides, and China is maybe even closing the gap further as we go.
+
+**迈克尔·奥汉隆**：如果我们以前领先中国，比方说，如果我们在跑道上领先中国半圈的话，那么现在，我们只领先几步了，而中国甚至还可以在赛跑的过程中继续缩小差距。
+
+**Host: **Ratcliffe insists that resisting China’s ambitions of becoming an economic, military, and technological superpower will be the challenge of our generation and warns that America should prepare for an open-ended period of confrontation with Beijing.
+
+**主持人**：拉特克利夫坚称，抵制中[共]国成为经济、军事和技术超级大国的野心，将是我们这一代人的挑战，他警告说：美国应该做好与北京进行无限期对抗的准备。
+
+George Thomas, CBN News
+
+乔治•托马斯，CBN新闻
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+
+听写 & 翻译：【奔腾的长江】校对：【Isaiah4031】字幕：【奔腾的长江】编辑：【Isaiah4031】
+
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
 +1
