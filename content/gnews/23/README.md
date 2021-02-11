@@ -1,47 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【快讯】高校“延期开学”，打脸疫情“零骗局”
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/902468/)
+## 史蒂文·奎伊博士致世卫组织病毒调查小组组长安巴雷克的一封信
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/902395/)
 
-**作者：**香草山农场  鹰(文言)
-![]()![](https://gnews.org/wp-content/uploads/2021/02/2021-02-11-3-coverphoto.png)
-澎湃网2月11日报道，为疫情防控和错峰开学，近日多地多所高校发布延迟开学通知[1]。
+**编译: 莫黎**
 
-2月10日，中国地质大学、中国农业大学、北京师范大学、北京交通大学等发布延期开学通知。2月20日至3月15日（或20日）进行线上学习，3月下旬正式开始线下授课。此前2月8日，北京工商大学、北京第二外国语学院通知返校时间定为3月20日；2日中央财经大学通知3月16日后错峰返校；华北电力大学通知3月19至26日分五批次返校[1]。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/00123-7.jpg)**图片: Business Journals **
 
-1月31日，中共教育部号召国内各校做好春节学期开学筹备工作，“特殊情况下”需要分批错峰开学，且中高风险地区暂缓返校[1]。而截至2月10日，北京市连续12天本地“0”新增[2]，国内31个省（自治区、直辖市）连续4天“0”新增[3]。仅从媒体报道看，在无新增又逐渐清零下，国内疫情即将进入“持久”稳定期。
 
-但是，在疫情形势“大好”下，文旅部都号召80%的A级景区开放“鼓励外出”了，但延期开学的高校却显著增多了。北京连续12天的“0”新增，2月10号官宣的“北京中高风险地区全部清零”[4]，疫情防控都“稳定向好”了，却在既无“特殊情况”又无疫情形势加剧下纷纷延期开学，只能证明北京市的疫情现状仍然堪忧，同时也反映了中共高官的自私，“进京环节加码”以保自己和家人安全却反要其他地区放松管制。
 
-除北京外，安徽中医药大学、安徽大学、合肥工业大学、吉林师范大学、吉林大学、燕山大学等也将开学时间延期一周。延期开学不仅体现出疫情形势严峻，开学后返校生“健康状态”也令人担忧。2020年8月份中共不顾疫情爆发风险强制国内高校、中小学幼儿园开学，为做戏国内形势大好而将孩子们的健康置于巨大风险之下，其后各地接连爆发食物中毒、诺如病毒事件，学校追责成了热点话题。
+亲爱的安巴雷克博士：
 
-此次的延期开学可看作各高校对疫情形势担忧的预判，既可以察社会各处的疫情形势，又可择机对开学防控准备做调整，归结起来都是由于中共对疫情真相的隐瞒造成了社会各界对管控措施的首鼠两端，各种有效的防疫手段被中共的形式主义涂改为“看领导防疫”和“表面工作”，防疫沦为“放疫”。
+希望您能收到这封电子邮件。
 
-(文章只代表作者观点，与GNews网站无关)
+当我在世卫组织关于此次疫情来源的访谈中读到您将实验室事故或实验室诱发感染（LAI）发生的频率描述为罕见时，我感到很惊讶，而更惊讶的是，您用此类数据排除了新冠病毒(SARS-CoV-2)大流行是实验室起源。
 
-参考链接：
+请浏览以下网址的一篇论文，该论文记录了亚洲在20年内每年发生实验室感染的频率为0.8。我希望在读过这篇论文后，您可以考虑修改您对此类事件描述为罕见的定性。
 
-[1] 多所高校推迟至3月开学，北京部分高校通知先线上开课后返校
+[A Review of Laboratory-Acquired Infections in the Asia-Pacific: Understanding Risk and the Need for Improved Biosafety for Veterinary and Zoonotic Diseases](http://A%20Review%20of%20Laboratory-Acquired%20Infections%20in%20the%20Asia-Pacific:%20Understanding%20Risk%20and%20the%20Need%20for%20Improved%20Biosafety%20for%20Veterinary%20and%20Zoonotic%20Diseases)
 
-[https://www.thepaper.cn/newsDetail\_forward\_11315307](https://www.thepaper.cn/newsDetail_forward_11315307)
 
-[2] 北京连续12天本地零新增！昨日新增治愈出院3例
 
-[https://baijiahao.baidu.com/s?id=1691354440778624028&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1691354440778624028&amp;wfr=spider&amp;for=pc)
+我还烦请您注意我所进行的贝叶斯分析，尽管开始时人畜共患病的先验概率大于98％，但在检查了26个证据链后得出实验室逃出的可能性大于99％。这篇论文已被浏览了86000多次，而且我收到了来自顶尖科学家的数十条评论，他们都没有对基本结论提出质疑。 这篇193页的论文可以在以下链接找到:
 
-[3] 连续四天本土确诊零新增！
+[A Bayesian analysis concludes beyond a reasonable doubt that SARS-CoV-2 is not a natural zoonosis but instead is laboratory derived](http://A%20Bayesian%20analysis%20concludes%20beyond%20a%20reasonable%20doubt%20that%20SARS-CoV-2%20is%20not%20a%20natural%20zoonosis%20but%20instead%20is%20laboratory%20derived)
 
-[https://baijiahao.baidu.com/s?id=1691359904901686004&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1691359904901686004&amp;wfr=spider&amp;for=pc)
+对我来说，新闻发布会上最没有科学依据的部分是新近报道的事实，即超过60,000个各种潜在的中间宿主动物样本已被检测，没有一个对SARS-CoV-2呈阳性。尽管这个非常有力的数据表明没有中间宿主，但您还是得出结论，极有可能来自中间宿主。如您所知，SARS-COV-1和MERS的中间宿主一旦被确认，就有超过90%的阳性率。
 
-[4] 北京中高风险地区全部清零！全国现有6+16个高中风险区
+如果我要在法庭上向陪审团辩论病毒来自实验室，(那么)让统计学家告诉我，当我的取样大于60,000个，却没有得到任何阳性样本（约0.005%）时，中间宿主人群的患病率是多少，这将是一个胜利的论点。
 
-[https://baijiahao.baidu.com/s?id=1691262613272280589&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1691262613272280589&amp;wfr=spider&amp;for=pc)
+在我看来历史是漫长的，对于任何出于政治上的便利而对(病毒)起源做出非基于科学的定论，那么历史都将会对此做出严厉的评判。期待您的回复。
 
-*责任编辑：华盛顿DC农场 光之子(沙加)*
+祝好，
 
-*校对：加拿大多伦多枫叶农场 文锦*
+史蒂文
 
-*发布：喜联盟GNEWS编辑部  Isaiah4031*
+—
 
-+1
+医学博士史蒂文·奎伊（Steven Quay）
+
+
+
+**原文来自史蒂文·奎伊博士的推文，如图: **
+![]()![](https://gnews.org/wp-content/uploads/2021/02/image0-77.jpg)
+* * *
+
+发布: 法国巴黎七星编辑组
+
+0
