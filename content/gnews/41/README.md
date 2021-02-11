@@ -1,32 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共跨国迫害维吾尔人
-` gnewscanada` [轉載自GNews](https://gnews.org/zh-hans/901971/)
+## 2021年2月10日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/901995/)
 
-蒙特利尔皇家山战友团 Tao
-![]()![](https://gnews.org/wp-content/uploads/2021/02/facebook-2.jpg)*图片来源：facebook*
-加拿大媒体《真北方》于2月8日介绍了自由之家（Freedom House）近日发表的一份名为“看不见不等于管不着”（Out of Sight, Not Out of Reach）的调查报告。报告中揭示了中共国、沙特阿拉伯和卢旺达等国家如何干预民主国家的法律，跨国迫害逃亡的公民。
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-报告中指出包括中共国在内的31个国家被发现对逃亡到加拿大等地的人继续进行恐吓或暴力活动，损害他们的权利和自由，违反并践踏了民主国家的法律。
+2月10号：衷心的感谢．每个农场的战友们．做的这些精美的海报．衷心地感谢战友们．你们花这么多时间．辛苦的制作这丝漂亮的艺术作品．万分感谢．感激亲爱的兄弟姐妹们，🙏🙏🙏🙏🙏🙏🙏🙏🙏
+![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-18.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-14.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-16.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-21.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-23.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-30.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-35.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-33-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-39.jpg)
+[【2021年2月10日】文贵先生盖特原文](https://gtv.org/getter/60244910226e77590742ab1d)
 
-在现代社会，由于个人身份信息的数字化，独裁专制政府如今比以往任何时候都有更多的手段和工具来寻找和定位异见者，并对其进行恐吓或迫害。
-
-通过对中共国、俄罗斯、伊朗、沙特阿拉伯、卢旺达和土耳其的608起案例的研究，自由之家（Freedom House）分析了专制政府即使在受害者逃亡国外后，继续进行跨国镇压和迫害的几种手段:
-
-**通过暗杀、袭击或绑架对个人进行直接攻击，造成人身伤害
-协同其他国家拘留、驱逐或引渡个人
-通过护照或证件管制限制个人的旅行
-通过间谍软件和网络跟踪进行远程威胁**
-
-报告中透露，中共国维吾尔族穆斯林即使在离开中共国后也成为被威胁的目标。中共的一般做法是联系居住在加拿大的维吾尔人，告诉他们保持沉默，否则他们留在中共国的家人将会受到影响。这种威胁方法的成本最低，只需要部署最少的资源，就能确保他们保持沉默。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/out-of-sight-not-out-of-reach.jpg)*图片来源：out of sight not out of reach*
-评论：中共国通过布置在全球的间谍监控系统，几乎可以对任何他们想要控制的人进行追踪和威胁。他们安装了全世界最多的监控设备，这些设备从来不是为了保护老百姓的生命财产安全，而是用来监控老百姓的一举一动，可以说中共国的老百姓对中共政府来说没有任何个人隐私可言。中共对维吾尔人犯下了反人类罪和种族灭绝罪，但是却鲜有维吾尔人出来指证，究其原因，中共触及整个世界的魔爪无时不刻不在恐吓威胁着即使是已经逃离中共魔窟的维吾尔人。
-
-校对 发稿 云起时
-
-[原文链接](https://tnc.news/2021/02/08/china-saudi-arabia-and-others-interfer-canadian-affairs-subvert-canadian-law-report/)
-
-
+**喜联盟Gnews编辑部**
 
 0
