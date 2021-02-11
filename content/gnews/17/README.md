@@ -1,21 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国印太司令部双航母打击群完成南海部署吓阻中共武统台湾
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/901969/)
+## 2021年2月10日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/901995/)
 
-台湾宝岛准农场 Amitofu
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-美国印太司令部官网发布讯息表示，CSG 9尼米兹号航空母舰打击群加入CSG 11西奥多·罗斯福号航空母舰（CVN 71）打击群，9日进入南海执行维护自由开放的印太地区任务。TRCSG已按计划部署尼米兹号、罗斯福号航空母舰到南海巡弋，进行了双重航母作战演练，确保印太地区安定，促进海上国家伙伴关系并进行广泛的行动。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/DK867-337x225.jpg)
-CSG 9司令官道格·弗里西西莫Doug Verissimo表示与CSG 11航母打击集群通过这样的演习合作，确保在战术上精通两个打击舰艇小组和飞机在人口密集地区的指挥性、操作性和控制能力上的协调行动，迎接维护印太地区和平的挑战。CSG 11指挥官吉姆·柯克Jim Kirk少校也表示与CSG 9航母打击集群军演合作，提高了我们的集体战术技能，其目的是维持美国的战备状态和实时可战斗部队。
+2月10号：衷心的感谢．每个农场的战友们．做的这些精美的海报．衷心地感谢战友们．你们花这么多时间．辛苦的制作这丝漂亮的艺术作品．万分感谢．感激亲爱的兄弟姐妹们，🙏🙏🙏🙏🙏🙏🙏🙏🙏
+![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-18.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-14.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-16.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-21.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-23.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-30.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-35.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-33-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-39.jpg)
+[【2021年2月10日】文贵先生盖特原文](https://gtv.org/getter/60244910226e77590742ab1d)
 
-TRCSG CSG 9由西奥多·罗斯福（CVN 71），航空母队（CVW）11，提康德罗加级导弹巡洋舰，邦克山号导弹巡洋舰（Bunker Hill CG 52），驱逐舰中队23和阿利·伯克级制导导弹驱逐舰组成拉塞尔号（Russell DDG 59）和约翰·芬恩号驱逐舰（John Finn）（DDG 113）所联合的海军部队，CSG 11由尼米兹号航空母舰（CVN 68），航空母舰（CVW）17，普林斯顿号巡洋舰（CG 59），阿利·伯克级导弹驱逐舰，斯特雷特号（DDG 104）和驱逐舰中队CSG 9和CSG 11的人员，目前按照TRCSG已完成在南海部署的美军战舰作战部署行动，随时可以针对南海发生的战争及时因应， TRCSG在印太地区的行动就是表明美国维护印太地区安全稳定的承诺。
-
-笔者记得海牙的常设仲裁法院曾于2016年裁定，中共2009年提出南海主张的9段线违反联合国海洋法公约，中共对于整个南海包含东沙、西沙、中沙、南沙等群岛都是中共领土的流氓主张，无法在国际与其他35个海上国家受到认可，中共生化病毒袭击全球，即便是中共企图对台湾发动战争，也清楚发动战争之时就是共产党灭亡之时。本文仅代表个人立场
-
-祈祷万佛万神加持七哥与新中国联邦战友、灭共者『早日消灭共产党』
-
-[U.S. Indo-Pacific Command](https://www.pacom.mil/Media/News/News-Article-View/Article/2498498/theodore-roosevelt-carrier-strike-group-operates-with-nimitz-carrier-strike-gro/)
+**喜联盟Gnews编辑部**
 
 0
