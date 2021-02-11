@@ -1,37 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香草播报：【军事快讯】加拿大安全情报局指责中共对加拿大构成严重的战略性威胁
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/901314/)
+## 《我们的七芒星》新春特辑 “七芒星全明星挑战赛” – 美东大年初二周六晚8点
+` GMusic` [轉載自GNews](https://gnews.org/zh-hans/901313/)
 
-作者：纽约香草山写作组 Wilson
+我们的七芒星文宣组
 
+GTV首档全民灭共竞猜节目《我们的七芒星》将在美东时间2月13日大年初二周六晚8点，暨北京时间2月14日初三早9点，隆重推出新春特辑 – “七芒星全明星挑战赛”。
 
+届时三位金牌主持人 – 安红，小王子，威廉王，和九位重量级“农场主明星挑战者” – 长岛伟哥，老班长，大卫，草根小哥，木兰，玛莎，文戈七雄，大牛，文科 – 将霸气登场，同台比拼！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+全新赛制，明星阵容，高手对决，洞见真知。 九位“农场主挑战者”将放手一搏，为所在农场的选手战友们奋力争夺三个复活的机会，和直接晋级半决赛的通行证，并为其农场参加 “农场代表队终极决战”提前积分！
 
+谁能“妙手回春” “牛”转乾坤？ 谁将“牛运亨通”力拔头筹？ 考脑力，拼运气。紧张刺激，欢乐有趣！ 精彩不容错过，让我们拭目以待！
 
+欢迎全球战友继续踊跃报名“挑战者”， “主持人”， “智囊团”，一起参与这档精彩有趣的“零门槛”全民灭共竞猜节目《我们的七芒星》。
 
-[路透社](https://cn.reuters.com/article/canada-china-strategic-threat-0210-idCNKBS2AA03N)2月9日报道，加拿大安全情报局（CSIS）局长David Vigneault周二罕见地公开表示，中共试图窃取加拿大机密和恐吓华人社区，对加拿大构成了严重的战略性威胁。
+**报名方式：**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/88.jpg)图源网络
+报名“挑战者”或“主持人”：
 
-加拿大地广人稀，有极大的文化包容性，需要不断增加移民以弥补人口自然增长的不足。移民中的华人比例逐年上升，因此，加拿大成为中共进行共产主义极权专制扩张的主要对象之一，是被“蓝金黄”的重灾区。
+[https://forms.gle/7VT3Qrz4yq861Bk69](https://forms.gle/7VT3Qrz4yq861Bk69)
 
-编辑/校对/发稿：Irene木木
+报名“智囊团”：
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
+[https://forms.gle/DHE6E78fwXT5nc5M9](https://forms.gle/DHE6E78fwXT5nc5M9)
 
 0

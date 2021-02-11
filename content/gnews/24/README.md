@@ -1,45 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 北京发千万数字人民币红包 一年内或正式推出
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/901851/)
+## 2021年2月10日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/901995/)
 
-撰稿：Gradient Boost
-![]()![](https://gnews.org/wp-content/uploads/2021/02/image-63.png)
-图片来源：Pexels免费照片资料库；作者：Jack Sparrow
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-2月10日，北京市 “数字王府井 冰雪购物节”数字人民币抽奖活动正式开奖。该活动于2月7日正式开始预约，通过下载数字人民币APP并开通个人数字钱包参加抽奖，每份红包金额为200元，共发出5万红包。本次活动是今年继深圳、苏州等地数字人民币红包活动后的又一次人民币数字化试点，共有252万市民参加了本次活动，按照参与规则，即又有252万人开通了数字人民币业务。
+2月10号：衷心的感谢．每个农场的战友们．做的这些精美的海报．衷心地感谢战友们．你们花这么多时间．辛苦的制作这丝漂亮的艺术作品．万分感谢．感激亲爱的兄弟姐妹们，🙏🙏🙏🙏🙏🙏🙏🙏🙏
+![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-18.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-14.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-16.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-21.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-23.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-30.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-35.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-33-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-11_08-48-39.jpg)
+[【2021年2月10日】文贵先生盖特原文](https://gtv.org/getter/60244910226e77590742ab1d)
 
-从去年下半年开始，中共国数字货币的试点工作就开始逐渐加快，今年两个月的时间内，笔者已查到的数字红包活动就有三个，发放总金额已达到6千万人民币。如此大力的宣传和频繁的环境测试，似乎也从侧面反映了中共推出数字货币的急切心情。根据新浪财经转载亚洲周刊的内容报导，数字人民币的实际推出最迟可能不会超过2022年的2月份，也就是明年这个时间。该文章甚至已经开始讨论数字人民币是否能够替代美元，虽然文本内容相对来说还是较为谦逊的。
+**喜联盟Gnews编辑部**
 
-根据新浪财经援引经济参考报的说法，数字人民币发行的大背景之一其实就是虚拟货币的流行。然而与比特币这样去中心化的虚拟货币不同，数字人民币依然是中心化的币种，与国家的主权信用相挂钩。比特币运用独特的记账方法，将交易历史储存在区块链中，如果有人要对交易记录进行篡改，其电脑计算能力必须超过比特币的整个对等网络，这几乎是不可能的事情。而数字人民币既然有“中心”，那么不论是账面余额还是交易记录，这个“中心”显然都有绝对权限进行干预。
-
-在纸质货币的时代，现金的使用记录还是难以掌握和追踪的；另外将现金放在保险柜里，只要不被盗取，现金数额也不会发生变化。然而“中心化”数字人民币的交易记录总是处于中共国政府的控制之下，其账面金额只要“中心”有意，冻结甚至直接对余额进行篡改都是完全可行的。掌握这个“中心”的人可以利用数字货币对他看不顺眼的个人或者群体进行迫害，只要修改一下交易历史再找个合理的借口（例如编造一个所谓涉黑交易），一切便名正言顺。
-
-根据中共喉舌媒体网站新华网的介绍，数字人民币将与纸质人民币长期共存，这句话虽然看似在安抚那些对于人民币数字化有疑虑的人们，实际上却也暗含着另外一个意思：那就是“共存”虽然是长期的，但并非永久。总有一天，人民币将进入完全的数字化时代，百姓的财富将受到中共盗国贼们完全的监视与掌控。
-
-（本文纯属个人观点）
-
-审核：MG3
-
-编辑：MG3
-
-新闻参考链接：
-
-新华网（中共党媒网站）：
-
-[http://www.xinhuanet.com/fortune/2021-02/11/c\_1127092409.htm](http://www.xinhuanet.com/fortune/2021-02/11/c_1127092409.htm)
-
-[http://www.xinhuanet.com/info/2021-02/10/c\_139734595.htm](http://www.xinhuanet.com/info/2021-02/10/c_139734595.htm)
-
-新浪财经（中共国墙内媒体网站）：
-
-[https://finance.sina.com.cn/money/bank/yhpl/2021-02-05/doc-ikftpnny4837162.shtml](https://finance.sina.com.cn/money/bank/yhpl/2021-02-05/doc-ikftpnny4837162.shtml)
-
-[https://finance.sina.com.cn/money/forex/forexroll/2021-01-15/doc-ikftpnnx7360660.shtml](https://finance.sina.com.cn/money/forex/forexroll/2021-01-15/doc-ikftpnnx7360660.shtml)
-
-东方财富网（中共国墙内媒体网站）：
-
-[http://finance.eastmoney.com/a/202102111810309397.html](http://finance.eastmoney.com/a/202102111810309397.html)j
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-Logo.jpeg)
 0
