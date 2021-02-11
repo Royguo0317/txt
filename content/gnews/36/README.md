@@ -1,28 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【灭共头条】拜登政府悄悄撤掉对孔子学院的限制政策
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/901246/)
+## 香草播报：【军事快讯】加拿大安全情报局指责中共对加拿大构成严重的战略性威胁
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/901314/)
 
-编译报道：MIYA【㊙️翻 Gnews原创组】 
-责任编辑：Ermat
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Picture1-53.jpg)图片来源：Axios
-据校园改革(Campusreform) 8日报道，拜登总统悄悄地撤掉了川普政府制定的一项政策。政策规定美国高校必须报告与中共政府的所有联系，因为有证据表明中共的宣传正在向美国教育系统渗透。
+作者：纽约香草山写作组 Wilson
 
-[Axios](https://www.axios.com/trump-chinese-funding-education-c34e3b73-0ec9-4e4c-ad30-fc183fa7f958.html)报道称，川普总统在任期的最后几天颁布了该项政策。政策规定，将强制中小学和高等教育机构披露与孔子学院的所有合同和交易，不报告信息的学校将失去学生和交流访问者项目的认证。
 
-信息和监管事务办公室的记录显示，拜登在1月26日取消了这项政策。 美国移民和海关执法局的发言人向校园改革证实，该政策已被取消。
 
-哈德逊研究所美国海上力量中心主任认为，撤销这项政策可能是拜登政府在中美关系上重新调整的一部分。他表示希望新政府不是在试图 “安抚中国”，不要试图 “做出过激的姿态……让人觉得美国对中共对邻国的侵略、对南海的军事化，以及对窃取知识产权的屡屡得逞不闻不问”。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-去年10月，前国务卿蓬佩奥曾[表示](https://gnews.org/zh-hans/428069/)，孔子学院佯装成文化语言机构，实际上是中共担保和控制的外宣组织。透过这些学院在美国校园发挥其全球影响力，甚至延伸到对美国幼儿的教育渗透。蓬佩奥与教育部长戴弗斯（Betsy DeVos）联合致函美国要求各学校审慎检视校园内与中共政权的相关活动，并呼吁关闭孔子学院。
 
-拜登政府选择重新与犯下反人类和种族灭绝罪的中共“伪教育机构”握手言和，势必会招致保守派势力的强烈反击。与中共的勾兑，结果证明要么被中共出卖，要么被中共生吞活剥吃掉。除非把这个反人类与种族屠杀犯罪集团彻底消灭，否则美国人的生活、资本和生命，将被中共玩弄于股掌之中。
 
-**参考链接：**
+[路透社](https://cn.reuters.com/article/canada-china-strategic-threat-0210-idCNKBS2AA03N)2月9日报道，加拿大安全情报局（CSIS）局长David Vigneault周二罕见地公开表示，中共试图窃取加拿大机密和恐吓华人社区，对加拿大构成了严重的战略性威胁。
 
-[Biden quietly nixes Trump-era rule combating Chinese Communist-funded ‘propaganda’ centers](https://campusreform.org/?id=16784)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/88.jpg)图源网络
 
-（本文仅代表作者个人观点）
+加拿大地广人稀，有极大的文化包容性，需要不断增加移民以弥补人口自然增长的不足。移民中的华人比例逐年上升，因此，加拿大成为中共进行共产主义极权专制扩张的主要对象之一，是被“蓝金黄”的重灾区。
 
-+3
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
+
+0
