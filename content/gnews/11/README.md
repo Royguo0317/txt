@@ -1,104 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CBN 新闻：中共国是自由和民主的最大威胁
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/902564/)
+## 墨茶的草莓与“贫困户”茅台的距离
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/902635/)
 
-新闻简述：据CBN2021年2月5日报道：美国智库警告中共国是美国最大的敌人，美国应该对与北京的无限期的对抗做好准备。
+作者：桂花酒 | 校对：仙女儿-文善 | 审核：海阔天空 | Page:Daoiii
 
-**CBN News: Communist China Is the Greatest Threat to Freedom and Democracy**
+[!\[\]()!\[\](https://spark.adobe.com/page/D5kEQyFOWd82L/images/54c4b538-b44c-420f-864a-1650f6aeeabc.png?asset_id=a9bfcaf0-d966-4ed3-9925-59a092d33093&amp;img_etag=%2267d0038c27da6730312ec3abe6944810%22&amp;size=2560)](https://spark.adobe.com/page/D5kEQyFOWd82L/images/54c4b538-b44c-420f-864a-1650f6aeeabc.png?asset_id=a9bfcaf0-d966-4ed3-9925-59a092d33093&amp;img_etag=%2267d0038c27da6730312ec3abe6944810%22&amp;size=1024)来源网络，记者探访墨茶家拍摄
 
-**CBN 新闻：中共国是自由和民主的最大威胁**
+#### 墨茶的草莓与“贫困户”茅台的距离
 
-**Chris Mitchell: **China is the greatest threat to freedom and democracy. That warning came from the former top U.S. intelligence official, who said America should also prepare for an open-ended period of confrontation with Beijing. George Thomas has the details.
+一天天临近的农历年将我带进了记忆深处的正月红，红红的灯笼，红红的炮竹，红红的窗花……，美极了。而相比之下，这几天热搜榜上关于墨茶临终也未能如愿品尝的红草莓与飘在“贫困户”家中茅台酒上的红绸带却显得如此的扎眼，着实令我心绪难平。
 
-**克里斯·米切尔**：中国是对自由和民主的最大威胁。这是来自美国前高级情报官员的警告。他说美国应该对与北京的无限期的对抗做好准备。请看乔治•托马斯的详细报告。
+草莓早已不是如同 “一骑红尘妃子笑”般的难得，而茅台酒却一直是朱门子弟所谓高端生活的象征。
 
-**Host (George Thomas): **Napoleon Bonaparte, the French military leader said more than two centuries ago that China is a sleeping lion, let her sleep, for when she wakes, she will shake the world. China’s President Xi Jinping has emphatically declared that the lion has awakened.
+2021年1月10日B站博主墨茶去世了，他的粉丝迅速突破百万。这位年青人的不幸一时间在网络平台上激起了千层浪，弹幕下的情绪发泄与哭泣代表着某种社会共鸣，它折射出当下一代人在悲凉命运下痛苦挣扎的真实写照。高达百万亿的GDP成了中共愚内慑外的资本，却对少得可怜的人均收入存而不论；70年来收入翻60倍，却避而不谈令人望而却步的高昂医疗费用。在中共宣传机器下只有举世瞩目的“成就”，而这所谓的“盛世”，一个鲜活的生命却卑微如蝼蚁。
 
-**主持人（乔治·托马斯）**：法國軍事領袖拿破崙•波拿巴兩個多世紀前說過：中國是一頭沉睡的獅子，讓她睡吧，因為當她醒來時，她將震撼世界。中[共]國國家主席習近平最近斷然宣布，獅子已經醒來。
+我们人类发明的电脑可以记忆所有的数据，而我们人类的大脑却越来越容易忘记。鲁迅作有《为了忘却的纪念》，许子东作有《为了忘却的集体记忆》，这些都在时刻提醒我们，健忘是一种病，唯有念念不忘，方可期待回响。2019年离世的43斤的吴花燕，一年前凭空消失的1800万手机用户，天空二氧化硫超标的武汉，都不能阻止815武汉三千人水上狂欢。墨茶生病没有住院治疗，内情虽无法知晓，但他生前贫病交加而仅以方便面为食，这足以显现他生前的艰难。在其生命的最后一段时光，他没有“卖惨”，相反却一直以积极阳光的态度走完他最后的人生，令人心痛，更引人深思。在中共治下，墨茶有其他选择吗？在中共治下，我们每一个人都是不同境遇中的墨茶。
 
-John Ratcliffe, Director of National Intelligence wrote in a recent wall street journal editorial that China is America’s number one national security threat, and that Beijing intends to dominate the rest of the planet economically, militarily, and technologically. Michael O’hanlon is with Brookings Institute.
+墨茶没能迎来这个春天，他的生命就这样结束了，在那个寂寥的出租屋内，一切都仿佛小说般虚幻得不真实，它猛烈地捶打着同龄人的心灵，它将中共伟光正的面具撕得粉碎。他去世不久，网络水军便开始蠢蠢欲动，抹黑一位逝者的言辞不绝于耳，油管更有诸如STONE记的畜类们肆意造谣：肥胖死、不是穷死等等脏水一起泼向逝者，难道22岁的年轻生命如此卑微？卑微到爆增的百万粉丝都无法得知真相？更遑论那6亿月入千元仍然挣扎在温饱线上的穷苦百姓。
 
-美国国家情报总监约翰•拉特克利夫最近在《华尔街日报》的一篇社论中写道：中国是美国国家安全的头号威胁，北京打算在经济、军事和技术上主宰世界其它地区。迈克尔•奥汉龙就职于布鲁金斯学会。
+呜呼中华！2020年大学毕业生875万，2021年将突破900万。中国的社保金亏空人尽皆知，高房价高税收全球称冠，病毒正在摧毁世界经济，墨茶的凄凉，正是无数人必须面对的现实。
 
-**Michael E. O’hanlon: **It is the way a great power with a non-democratic government chooses to seek to extend its influence worldwide.
+[!\[\]()!\[\](https://spark.adobe.com/page/D5kEQyFOWd82L/images/224af530-2891-4783-b65a-27a56144c03d.jpg?asset_id=e5dd4082-e3e8-4a74-bdbb-a121d523fb5c&amp;img_etag=%226cfd00ea1fada8a1caa2a13b81a2152f%22&amp;size=2560)](https://spark.adobe.com/page/D5kEQyFOWd82L/images/224af530-2891-4783-b65a-27a56144c03d.jpg?asset_id=e5dd4082-e3e8-4a74-bdbb-a121d523fb5c&amp;img_etag=%226cfd00ea1fada8a1caa2a13b81a2152f%22&amp;size=1024)
 
-**迈克尔·奥汉隆**：这是一个非民主政府的大国在世界范围内寻求扩大影响力的方式。
+[!\[\]()!\[\](https://spark.adobe.com/page/D5kEQyFOWd82L/images/fd802d87-297f-432a-8f51-87cb46975bc5.jpg?asset_id=46151317-9ecf-44e4-9fcf-54e32fd1ab9c&amp;img_etag=%2276228d7d0a56f3a0e8f427546e2d3c2a%22&amp;size=2560)](https://spark.adobe.com/page/D5kEQyFOWd82L/images/fd802d87-297f-432a-8f51-87cb46975bc5.jpg?asset_id=46151317-9ecf-44e4-9fcf-54e32fd1ab9c&amp;img_etag=%2276228d7d0a56f3a0e8f427546e2d3c2a%22&amp;size=1024)
 
-**Host: **Ratcliffe accuses China of deploying what he calls a rob, replicate, and replace approach in its ambitions to dominate the world.
+墨茶事件余温尚存，青岛“贫困户”的茅台事件又激起了民愤。据新闻报道，青岛市城阳区棘洪滩街道慰问当地贫困户，未曾开启的茅台酒赫然出现在荧屏里。价值500元的慰问品对于真正的“贫困户”真的是一份不小的惊喜，而它对这些朱门子弟而言，真的不值一口茅台酒的价格。面对质疑，街道办采用最愚蠢的方式—谎言掩盖真相，辩称茅台酒和茶叶盒都是空的。而网民有理有据的辩论与反驳，竟然得到了新华社、人民日报的垂青洗地。粉饰太平，丧事喜办是中共的拿手好戏，只是这“困难户”喝茅台的桥段再也不能愚弄百姓。敢问那些失独、失能、留守老人可曾有人慰问？中共治下，一个没有根基的草根起家，纵然走到财富顶峰又如何？曾经坐拥金山银山的赖小明，也终究魂归离恨天。
 
-**主持人**：拉特克利夫指责中共国采用了抢劫、复制和替换的战略来实现其主宰世界的野心。
+生于末世运偏消。早上八九点的太阳，梁任公的“少年强则中国强”在校园的操场上回荡。中共的末世狂奔正在上演，所以墨茶的离世才格外锥心。
 
-**Michael E. O’hanlon:** It’s been well known for decades that China tries to copy the industry of other countries and then takes it to scale, makes it more efficient, and largely operates, sort of built its way up through the global economic ranks with that approach.
+[!\[\]()!\[\](https://spark.adobe.com/page/D5kEQyFOWd82L/images/7815524a-d774-44a7-a38b-9c81c08dff96.jpg?asset_id=d5bcfde8-859a-4e4a-8597-d4efaa69da48&amp;img_etag=%227d5f4a718927fa19994f2dd272d1db7f%22&amp;size=1024)](https://spark.adobe.com/page/D5kEQyFOWd82L/images/7815524a-d774-44a7-a38b-9c81c08dff96.jpg?asset_id=d5bcfde8-859a-4e4a-8597-d4efaa69da48&amp;img_etag=%227d5f4a718927fa19994f2dd272d1db7f%22&amp;size=1024)
 
-**迈克尔·奥汉隆**：几十年来，众所周知，中国试图复制其它国家的工业，然后将其发展成具有更加高效和更大生产规模的，一种名列全球经济前茅的中国特色工业。
+墨茶吾爱！愿你爱的草莓的红，像朝霞般照进天堂，温暖你骄傲的灵魂。
 
-**Host: **China’s foreign ministry dismisses Radcliffe’s claims while accusing Washington of unnecessary playing the China threat.
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
 
-**主持人**：中共外交部在反驳拉特克利夫的同时，指责华盛顿没有必要宣扬中国威胁论。
 
-**Chunying Hua: **The relevance article with his sensational title does not present any solid evidence at all. It offered nothing new but repeating the lies and rumors to smear China.
+编辑：【英国伦敦喜庄园编辑部】
 
-**华春莹**：这篇具有耸人听闻标题的文章根本没有提供任何确凿的证据，该文章除了陈词滥调外，就是不断地重复诽谤中国的谎言。
+[!\[\]()!\[\](https://spark.adobe.com/page/D5kEQyFOWd82L/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/D5kEQyFOWd82L/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-**Host: **CBN News has documented China’s rise for more than two decades. Fast forward to 2020, as we examine how China’s President Xi Jinping has been massively overhauling the country’s military, economy, and political influence as part of his great rejuvenation project.
+[Adobe Spark](https://spark.adobe.com/about?r=reader_page_logo)[Create your own](https://spark.adobe.com/login?r=reader_page_topbar_createyourown)
 
-**主持人：CBN新闻纪录了中国崛起长达20多年之久。当把记录带快进到2020年时，让我们来看看中共国家主席习近平是如何大规模地翻新该国的军事、经济和政治影响力，以此作为他伟大复兴计划的一部分。**
-
-**Tom Miller: **We should put it into sort of Trumpian terms, means to make China great again.
-
-**汤姆·米勒**：我们用川普式语言来说，就是：让中共再次变得伟大。
-
-**Host: **Tom Miller documents China’s rise in the book “China’s Asian Dream”. Miller says since taking the reins, she has been on a trajectory of preparing China to be the world’s dominant power.
-
-**主持人**：汤姆•米勒在《中国的亚洲梦》一书中纪录了中国式的崛起。米勒说，自从抓住了掌控权，中[共]国便开始为其成为世界主导力量而做准备。
-
-**Tom Miller: **China has been very very deliberately trying to realize its kind of ambition to become the global superpower.
-
-**汤姆·米勒：中国一直以来都非常刻意地试图实现其成为全球超级大国的野心。**
-
-**Host: **Chinese scholars say it’s also part of Xi’s deep belief that his country has a divine right to rule the world.
-
-**主持人**：中国学者说，这也是习近平最深的信仰，那就是，他的国家有统治世界的神圣使命。
-
-**Gordon Chang: **The mandate of heaven is from China’s imperial past, where Chinese emperors believed that they not only had the right, but they were compelled by heaven to rule the world. And there’s this notion of “Tian Xia” or “all under heaven”.
-
-**章家敦**：这个天命来自中国的皇权时代。中国的皇帝们认为，他们不仅拥有这个权利而且上天驱使着让他们统治世界。有一个词叫“天下”。
-
-**Host: **One way, is by military force. As Commander-In-Chief of the world’s largest fighting force, Xi has remade China’s People’s Liberation Army or PLA into a military, rapidly closing the gap on U.S. firepower. The Pentagon revealing for the first time that China now has the world’s largest navy and plans to double its nuclear warhead arsenal in this decade, which includes ballistic missiles that can reach the United States.
-
-**主持人**：一个途径就是通过武力。作为世界上具有最大军事力量的总司令，习对中国人民解放军，即 PLA，进行了改造，使其迅速缩小与美国军力的差距。五角大楼首次披露：中国现在拥有世界上最大的海军，并计划在10年内将其武器库增加一倍，其中包括那些能够打到美国的核弹道导弹。
-
-**Chad Sbragia:** It’s likely that China will seek to build a military that is equal to or in some cases superior to the U.S. military or the military of any other great power that China perceives as a potential threat.
-
-**乍得·布拉尼亚**：中国很可能会寻求建立一支军队，它是具有与美国同等水平甚至还可能超越美国，或者超越任何一个被认为对中国有潜在威胁的超级军事力量的中国军队。
-
-**Host: **O’Hamlon says China’s capabilities in emerging technologies such as robotics, artificial intelligence, and next generation technology and telecommunications now rival that of the United States.
-
-**主持人**：奥哈姆龙说，中国在新兴技术，如机器人、人工智能，以及下一代技术和电信方面的能力现在已经可与美国媲美。
-
-**Michael E. O’hanlon: **If we used to be ahead of China by, you know, half a lap on the proverbial track, now we’re ahead by maybe a few strides, and China is maybe even closing the gap further as we go.
-
-**迈克尔·奥汉隆**：如果我们以前领先中国，比方说，如果我们在跑道上领先中国半圈的话，那么现在，我们只领先几步了，而中国甚至还可以在赛跑的过程中继续缩小差距。
-
-**Host: **Ratcliffe insists that resisting China’s ambitions of becoming an economic, military, and technological superpower will be the challenge of our generation and warns that America should prepare for an open-ended period of confrontation with Beijing.
-
-**主持人**：拉特克利夫坚称，抵制中[共]国成为经济、军事和技术超级大国的野心，将是我们这一代人的挑战，他警告说：美国应该做好与北京进行无限期对抗的准备。
-
-George Thomas, CBN News
-
-乔治•托马斯，CBN新闻
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-
-听写 & 翻译：【奔腾的长江】校对：【Isaiah4031】字幕：【奔腾的长江】编辑：【Isaiah4031】
-
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
-
-+1
+0
