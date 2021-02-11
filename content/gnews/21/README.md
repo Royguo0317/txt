@@ -1,41 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香草播报：【热点播报】华为就美国联邦通讯委员会将其认定为国家安全威胁发起法律挑战
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/901350/)
+## 中共国东南地区持续干旱将加重粮食危机
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/901377/)
 
-作者：纽约香草山写作组 Wilson
+新闻来源：《布赖特巴特（Breitbart）》| 作者： 加布里埃尔·雷耶斯（GABRIELLE REYES）| 发布时间：2021年2月8日
+
+翻译/简评：随波逐流 | 校对/审核：万人往 | Page：拱卒
+
+[!\[\]()!\[\](https://spark.adobe.com/page/yhsAC2Pv2IO3u/images/fd22b788-b8d6-4e00-9601-e68faf5eb132.jpg?asset_id=9baace50-96ec-4fec-8efa-37d4a52e9ca1&amp;img_etag=%22172bb8af435292329d0cb8e53ed06b2d%22&amp;size=1024)](https://spark.adobe.com/page/yhsAC2Pv2IO3u/images/fd22b788-b8d6-4e00-9601-e68faf5eb132.jpg?asset_id=9baace50-96ec-4fec-8efa-37d4a52e9ca1&amp;img_etag=%22172bb8af435292329d0cb8e53ed06b2d%22&amp;size=1024)
+
+**简评：**
+
+据《南华早报》周日报道，中共国南部和东部数月的干旱导致30多万人饮用水短缺。中共国水利部透露，到目前为止，中共国超过50万公顷耕地已经受到干旱影响，33万农村人口无法获得足够的饮用水。据央视报道，浙江省三门县已限制居民用水时间，某些非必要以及用水量大的商户已被迫暂停营业。降雨不足已经摧毁了中共国的秋冬季作物，包括马铃薯、辣椒、西红柿和香蕉，还可能威胁今年的水稻收成。
+
+中共国粮食问题一直存在，但为了不造成恐慌，中共官媒一直坚称本国不存在粮食安全问题，甚至连一丝端倪都没有。改革开放以来，中共以牺牲环境为代价来发展工业，导致河流、土地、空气大面积污染，又滥用耕地发展房地产，导致可用耕地严重不足，需要进口粮食来满足国内需求。再加上全国上下贪腐严重，官员欺上瞒下，大量粮食储备库空置以及陈化粮堆积，导致库存储备不足，当上面下来清查时，就以火灾为由掩盖真相。因此，在遇到危机时，中共国难以从容应对。去年出台的《粮食安全保障法》从粮食的生产、收购、加工、储备及消费等各个环节，设立了多个国家部委联合参与的执法进程；再加上习近平指示的“光盘行动”，大力整治粮食浪费之风，这都说明中共的粮食短缺问题绝不是空穴来风。如果再发生天灾，粮食危机定会随时爆发,中共就是有心掩盖恐怕也不行了。这次干旱会给中共一个借口承认粮食短缺问题。
+
+中共病毒全球大流行让全球贸易受阻，中共国的出口大幅下降，导致外汇储备减少，又有全球对中共的经济制裁，中共国政府现在很难买到足够的粮食来满足国内消费者的需求。今年的天灾造成粮食减产，势必会造成粮食危机迅速爆发。人民的基本生活保障如不能维持，何谈安居乐业？政府和人民之间的矛盾会集中爆发出来，势必会造成社会的动荡。没有吃的，维稳工作也不一定能够有效进行。内忧外患和天灾的到来，定会加速在国际上已声明狼藉的中共政权灭亡。
+
+**原文翻译：**
+
+## 中共国南方数十万人面临缺水
+
+[!\[\]()!\[\](https://spark.adobe.com/page/yhsAC2Pv2IO3u/images/ba86fa9c-e5b6-454c-a097-c3822fe8ff22.jpg?asset_id=f814c6f3-8238-4604-8edf-b1e29e5d7321&amp;img_etag=%22d0bd58fbf8812ddd5ce5dc004a2ae62b%22&amp;size=2560)](https://spark.adobe.com/page/yhsAC2Pv2IO3u/images/ba86fa9c-e5b6-454c-a097-c3822fe8ff22.jpg?asset_id=f814c6f3-8238-4604-8edf-b1e29e5d7321&amp;img_etag=%22d0bd58fbf8812ddd5ce5dc004a2ae62b%22&amp;size=1024)
+
+**据《南华早报》(SCMP)周日报道，中共国南部和东部数月的干旱导致30多万人饮用水短缺。**
+
+中共国水利部2月4日说，有记录显示，自10月以来，长江以南地区的降雨量已比平常低50％至80％。水利部表示，东南沿海省份浙江、福建和广东已有约240万人受干旱影响，而广西、湖南和云南省居民的担忧也正在“增加”。
+
+水利部透露：“到目前为止，中共国超过50万公顷耕地已经受到干旱影响， 33万农村人口无法获得足够的饮用水。”
+
+据官方媒体中央电视台（CCTV）报道，浙江三门县有关部门最近下令，对居民家庭实行隔日断水。县政府认为非必要且大量用水的企业已被要求暂停运营。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/yhsAC2Pv2IO3u/images/2af33d38-cb51-4d14-af2a-4f313ac04c67.jpg?asset_id=8f0f43d9-93e6-463e-be54-131a11a59452&amp;img_etag=%226deb2477b62c221ab2427687ecd038ab%22&amp;size=1024)](https://spark.adobe.com/page/yhsAC2Pv2IO3u/images/2af33d38-cb51-4d14-af2a-4f313ac04c67.jpg?asset_id=8f0f43d9-93e6-463e-be54-131a11a59452&amp;img_etag=%226deb2477b62c221ab2427687ecd038ab%22&amp;size=1024)
+
+中共国水利部上周表示，已派出政府官员到受灾地区视察局势。该部还补充说，已与中共国财政部协商，将救灾资金分配给“严重干旱地区”，确保居民供水。
+
+据浙江省气象服务中心高级工程师雷远说，到目前为止，大约浙江省四分之三的地区—— 相当于韩国那么大——受到了旱灾的影响。
+
+雷远在2月8日对中共国新闻网站《第六声》（Sixth Tone）说：“虽然秋天和冬天的降雨量总是比一年中的其它时间少，但通常的干燥不足以宣布干旱。但是，自10月以来，平均降雨量比去年同期下降了70％。”
+
+最近几周，浙江的几个城市发布了野火警告。浙江省政府最近预测，该省的干旱将至少持续到4月份。
+
+降雨不足已经摧毁了中共国的秋冬季作物，包括马铃薯、辣椒、西红柿和香蕉，还可能威胁今年的水稻收成。
+
+2月7日，中共国国家气象中心正研级高工钱永兰对《南华早报》说：“如果降水量持续偏低，可能会影响水稻播种和种植。”
+
+她补充说：“然而，由于早稻尚未大规模种植，到目前为止，其影响是有限的。”
+
+🔗[原文链接](https://www.breitbart.com/asia/2021/02/08/hundreds-thousands-running-out-water-southern-china/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/yhsAC2Pv2IO3u/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/yhsAC2Pv2IO3u/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-
-
-[路透社](https://cn.reuters.com/article/huawei-us-fcc-challenge-0210-idCNKBS2AA0BI)2月9日报道，华为就美国联邦通讯委员会（FCC）于去年6月将其认定为对美国通信网络安全构成威胁的决定，发起法律挑战。该决定禁止美国企业利用83亿美元的政府资金从华为和中兴两家公司购买设备。去年12月，FCC拒绝了华为提出重新考虑这一决定的请求。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/02/89.jpg)图源网络
-
-华为于8日提交给美国第五巡回上诉法院的诉状中指出，FCC的指令超出了其“法定权限”；违反了联邦法律和宪法；是武断的、任性的，也是对自由裁量权的滥用。FCC并未对华为的诉状置评。
-
-可以说，华为是习近平妄图控制世界的主要自信之一。班农先生曾直指，华为不是由解放军控制的公司，因为华为本身就是解放军。华为被FCC认定对美国国家安全构成威胁，是斩掉了中共伸向全球技术信息市场的一只利爪。所以，本次诉讼对于中共而言，意义重大。
-
-美国的上诉法院属于联邦法院。在刚刚过去的美国大选中，美国联邦法院的腐败暴露无遗。又由于拜登政府的上台，使得本次诉讼的结果更加难以预测。
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
-
-0
++3

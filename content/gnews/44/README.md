@@ -1,39 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【商海纵横】G商业生态系统（六）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/900998/)
+## 香草播报：【军事快讯】日本欢迎美军双航母在南海军演
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/901002/)
 
-五月花写作组 ｜ 作者：商业部 如水 ｜ 编辑、美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/02/商海纵横2v6.jpg)
-在资本运作里面，消费资本化，是人类经济发展的一个大的飞跃，G系列的消费资本化，将引领资本运作达到一个新高度。消费资本化将通过多种形式来实现，比如：消费者投资、消费者参股、消费者选择权等等，通过这些方式将消费向生产领域延伸，以在不同的层次上实现消费的资本化。这个理念和模式，同迄今为止的所有企业经营理念和销售方式都不同，具有极强的新鲜感和魅力，对消费者的心理会产生很大的影响——包括积极参与尝试的心理的亲和力，以及愿意长期合作的巨大的凝聚力。
+作者：纽约香草山写作组 Wilson
 
-当G商业生态系统，通过消费资本化将消费者（也可以说G系列投资者，参与者或者说GCLUB会员甚至包括那些一直关注的大众）作为G系列的投资人和成员时，其实消费者也在另一端做着同样的思考。消费资本化过程可以使消费者从G系列长期获益，分享G系列的发展成果。这个时候，消费者早就不再是单纯的消费者，这就会吸引更多消费者群体，聚拢到G系列的周围，并对G系列商业生态系统的经营和发展保持长期的关注。在这些基础上，G商业生态系统再通过优质的产品、细致的服务，在消费者心目中完全奠定信誉良好、亲和力强、具有独特魅力的美好形象，并逐步加强互动联系，通过完整的信息流通渠道，用诚意和服务来培养消费者忠诚度，G系列商业生态系统的强大发展将得到消费聚拢效应的大力推动。
 
-消费资本化将会为G系列创造出一个十分庞大的资本存量。随着消费规模的扩大，这个沉淀下来的资本存量将以几何级数递增，G商业生态系统的的发展因此也会得到了另一个渠道的资金支持。通过这种方式来丰富G系列的社会资本量，整合市场资源，形成以G系统为核心、由消费者推动的强势市场。消费者与生产者、创造者、投资者融为一体，推动整个生态系统中的价值链上的每个成员单位飞速发展，产品、服务、人员、企业合力而为，达成企业、个人、合作单位多赢的局面。
 
-（完结）
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-* * *
 
-### 往期链接：
 
-[【商海纵横】G商业生态系统（一）引领商界新潮流](https://gnews.org/zh-hans/896073/)
+[共同社](https://china.kyodonews.net/news/2021/02/a33635a79c6e.html)2月10日报道，日本官房长官加藤胜信在10日的记者会上，对美国海军两艘核动力航母在南海实施军演一事表示欢迎。他称，“在地区安全保障环境日益严峻的情况下，这显示出（美国）对地区和平与稳定毫不动摇的参与。”
 
-[【商海纵横】G商业生态系统（二）独特价值链关系](https://gnews.org/zh-hans/900500/)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/85-scaled.jpg)(U.S. Navy photo by Mass Communication Specialist 3rd Class Keenan Daniels/Released)
 
-[【商海纵横】G商业生态系统（三）G系列消费者](https://gnews.org/zh-hans/900786/)
+加藤同时强调：“为了在自由开放的印太理念下守护和平之海，以美国为首的国际社会携手合作十分重要。”针对中（共）国海警局船只反复驶入尖阁诸岛（中（共）国称钓鱼岛）周边日本领海，加藤再次谴责称：“绝对无法接受。违反了国际法。”
 
-[【商海纵横】G商业生态系统（四）操作独特性](https://gnews.org/zh-hans/900863/)
+拜登上台后，中共立即从雌伏状态中复活，西太平洋的紧张局势因而急速升温。美国的双航母在南海向中共展示肌肉的同时，拜登却在哥伦比亚节目中对习近平暧昧地示好。想必，加藤在作以上表态时，内心也会五味杂陈。
 
-[【商海纵横】G商业生态系统（五）三大重要资本](https://gnews.org/zh-hans/900916/)
+编辑/校对/发稿：Irene木木
 
-* * *
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-+1
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
+
+0
