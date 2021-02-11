@@ -1,66 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 飞机闯台事件后，中共国宣布将在南海举行军事演习
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/900167/)
+## 中共国东南地区持续干旱将加重粮食危机
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/901377/)
 
-*新闻来源：BREITBART《布莱特巴特新闻网》| 作者：John Hayward| 发布时间：2021年1月26日*
+新闻来源：《布赖特巴特（Breitbart）》| 作者： 加布里埃尔·雷耶斯（GABRIELLE REYES）| 发布时间：2021年2月8日
 
-*翻译/简评：毛毛猫猫 |校对：感恩 |审核：万人往 |Page：小雨*
+翻译/简评：随波逐流 | 校对/审核：万人往 | Page：拱卒
 
-[!\[\]()!\[\](https://spark.adobe.com/page/sYSjMj8zyJBOU/images/c50011f6-5747-4df4-833c-f5d30aa88fcf.jpg?asset_id=8aba560e-6d51-4aa6-bd31-00837291a118&amp;img_etag=%222aa487a6be5587e06f66ad7526babf4e%22&amp;size=2560)](https://spark.adobe.com/page/sYSjMj8zyJBOU/images/c50011f6-5747-4df4-833c-f5d30aa88fcf.jpg?asset_id=8aba560e-6d51-4aa6-bd31-00837291a118&amp;img_etag=%222aa487a6be5587e06f66ad7526babf4e%22&amp;size=1024)创纪录的飞机闯台事件后，中共国终于宣布将在南海举行军事演习
-
-
+[!\[\]()!\[\](https://spark.adobe.com/page/yhsAC2Pv2IO3u/images/fd22b788-b8d6-4e00-9601-e68faf5eb132.jpg?asset_id=9baace50-96ec-4fec-8efa-37d4a52e9ca1&amp;img_etag=%22172bb8af435292329d0cb8e53ed06b2d%22&amp;size=1024)](https://spark.adobe.com/page/yhsAC2Pv2IO3u/images/fd22b788-b8d6-4e00-9601-e68faf5eb132.jpg?asset_id=9baace50-96ec-4fec-8efa-37d4a52e9ca1&amp;img_etag=%22172bb8af435292329d0cb8e53ed06b2d%22&amp;size=1024)
 
 **简评：**
 
-中共在美国政府换届之际，为了压缩台湾的国际空间，刻意矮化台湾，预使台湾问题国内化，不断向蔡英文当局进行施压，在军机闯入台湾空域次数不断刷新历史记录的同时，高调宣布将在南海举行军事演习。
+据《南华早报》周日报道，中共国南部和东部数月的干旱导致30多万人饮用水短缺。中共国水利部透露，到目前为止，中共国超过50万公顷耕地已经受到干旱影响，33万农村人口无法获得足够的饮用水。据央视报道，浙江省三门县已限制居民用水时间，某些非必要以及用水量大的商户已被迫暂停营业。降雨不足已经摧毁了中共国的秋冬季作物，包括马铃薯、辣椒、西红柿和香蕉，还可能威胁今年的水稻收成。
 
-中共此举不仅加剧了两岸的紧张关系，同时对地区安全产生巨大威胁。中共的疯狂举动必将招致台湾以及周边国家和美国更加紧密的军事合作，从而对中共日益增强的武力挑战进行强有力的回击。
+中共国粮食问题一直存在，但为了不造成恐慌，中共官媒一直坚称本国不存在粮食安全问题，甚至连一丝端倪都没有。改革开放以来，中共以牺牲环境为代价来发展工业，导致河流、土地、空气大面积污染，又滥用耕地发展房地产，导致可用耕地严重不足，需要进口粮食来满足国内需求。再加上全国上下贪腐严重，官员欺上瞒下，大量粮食储备库空置以及陈化粮堆积，导致库存储备不足，当上面下来清查时，就以火灾为由掩盖真相。因此，在遇到危机时，中共国难以从容应对。去年出台的《粮食安全保障法》从粮食的生产、收购、加工、储备及消费等各个环节，设立了多个国家部委联合参与的执法进程；再加上习近平指示的“光盘行动”，大力整治粮食浪费之风，这都说明中共的粮食短缺问题绝不是空穴来风。如果再发生天灾，粮食危机定会随时爆发,中共就是有心掩盖恐怕也不行了。这次干旱会给中共一个借口承认粮食短缺问题。
+
+中共病毒全球大流行让全球贸易受阻，中共国的出口大幅下降，导致外汇储备减少，又有全球对中共的经济制裁，中共国政府现在很难买到足够的粮食来满足国内消费者的需求。今年的天灾造成粮食减产，势必会造成粮食危机迅速爆发。人民的基本生活保障如不能维持，何谈安居乐业？政府和人民之间的矛盾会集中爆发出来，势必会造成社会的动荡。没有吃的，维稳工作也不一定能够有效进行。内忧外患和天灾的到来，定会加速在国际上已声明狼藉的中共政权灭亡。
 
 **原文翻译：**
 
-# **创纪录的飞机闯台事件后，中共国终于宣布将在南海举行军事演习**
+## 中共国南方数十万人面临缺水
 
-[!\[\]()!\[\](https://spark.adobe.com/page/sYSjMj8zyJBOU/images/d65c99c6-4073-4bad-8114-6149ef1f365b.jpg?asset_id=3f58a2f4-fa33-4e25-9399-659c8bbf74ae&amp;img_etag=%226409b0dc197792a2c177f6f80be80116%22&amp;size=2560)](https://spark.adobe.com/page/sYSjMj8zyJBOU/images/d65c99c6-4073-4bad-8114-6149ef1f365b.jpg?asset_id=3f58a2f4-fa33-4e25-9399-659c8bbf74ae&amp;img_etag=%226409b0dc197792a2c177f6f80be80116%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/yhsAC2Pv2IO3u/images/ba86fa9c-e5b6-454c-a097-c3822fe8ff22.jpg?asset_id=f814c6f3-8238-4604-8edf-b1e29e5d7321&amp;img_etag=%22d0bd58fbf8812ddd5ce5dc004a2ae62b%22&amp;size=2560)](https://spark.adobe.com/page/yhsAC2Pv2IO3u/images/ba86fa9c-e5b6-454c-a097-c3822fe8ff22.jpg?asset_id=f814c6f3-8238-4604-8edf-b1e29e5d7321&amp;img_etag=%22d0bd58fbf8812ddd5ce5dc004a2ae62b%22&amp;size=1024)
 
-1月26日，中共国宣布将在南海举行军事演习，除了大致的演习地点外，几乎没有提供任何行动的细节。
+**据《南华早报》(SCMP)周日报道，中共国南部和东部数月的干旱导致30多万人饮用水短缺。**
 
-目前，美国有一个航母战斗群正在该地区进行自由航行巡逻。
+中共国水利部2月4日说，有记录显示，自10月以来，长江以南地区的降雨量已比平常低50％至80％。水利部表示，东南沿海省份浙江、福建和广东已有约240万人受干旱影响，而广西、湖南和云南省居民的担忧也正在“增加”。
 
-在中共国军队威胁性入侵台防空区的次数创下纪录后，台湾举行了防空演习。
+水利部透露：“到目前为止，中共国超过50万公顷耕地已经受到干旱影响， 33万农村人口无法获得足够的饮用水。”
 
-根据中共国政府的通告，越南附近的北部湾部分地区已被受限，并用于从1月27日（周三）到1月30日（周六）的军演。
+据官方媒体中央电视台（CCTV）报道，浙江三门县有关部门最近下令，对居民家庭实行隔日断水。县政府认为非必要且大量用水的企业已被要求暂停运营。
 
-越南目前正在召开本国的共产党代表大会。由于河内与北京的关系因南中国海领土的争端而变得日益紧张，越南人可能成为中共国令人生畏的最新军事力量的目标受众之一，而据报道，越南正在寻求与美国建立更密切的关系，以对抗中共国日益增长的威胁。
+[!\[\]()!\[\](https://spark.adobe.com/page/yhsAC2Pv2IO3u/images/2af33d38-cb51-4d14-af2a-4f313ac04c67.jpg?asset_id=8f0f43d9-93e6-463e-be54-131a11a59452&amp;img_etag=%226deb2477b62c221ab2427687ecd038ab%22&amp;size=1024)](https://spark.adobe.com/page/yhsAC2Pv2IO3u/images/2af33d38-cb51-4d14-af2a-4f313ac04c67.jpg?asset_id=8f0f43d9-93e6-463e-be54-131a11a59452&amp;img_etag=%226deb2477b62c221ab2427687ecd038ab%22&amp;size=1024)
 
-中共国人民解放军近来在军事演习中一直强调交叉训练和多角色作战，力求使部队更加灵活，并明确训练他们来应对可能入侵台湾的海、陆、空的联合行动。
+中共国水利部上周表示，已派出政府官员到受灾地区视察局势。该部还补充说，已与中共国财政部协商，将救灾资金分配给“严重干旱地区”，确保居民供水。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/sYSjMj8zyJBOU/images/e89e31ae-6af9-4811-a234-1dce29346acc.jpg?asset_id=7ce84fee-9267-4494-9f34-d19d8c9e70ab&amp;img_etag=%22c305a34979eaa3494e762bcb1e3a010b%22&amp;size=2560)](https://spark.adobe.com/page/sYSjMj8zyJBOU/images/e89e31ae-6af9-4811-a234-1dce29346acc.jpg?asset_id=7ce84fee-9267-4494-9f34-d19d8c9e70ab&amp;img_etag=%22c305a34979eaa3494e762bcb1e3a010b%22&amp;size=1024)
+据浙江省气象服务中心高级工程师雷远说，到目前为止，大约浙江省四分之三的地区—— 相当于韩国那么大——受到了旱灾的影响。
 
-美国的“西奥多•罗斯福”号航母及其打击群周六进入南中国海进行自由航行活动（FONOP）。与往常一样，中共国强烈反对这一行动，并称这是对该地区稳定的威胁。
+雷远在2月8日对中共国新闻网站《第六声》（Sixth Tone）说：“虽然秋天和冬天的降雨量总是比一年中的其它时间少，但通常的干燥不足以宣布干旱。但是，自10月以来，平均降雨量比去年同期下降了70％。”
 
-美军打击群计划进行“固定翼和旋转翼飞机的飞行行动、海上打击演习以及水面部队和空中部队之间的协调战术训练”。该航母打击群除了西奥多•罗斯福号的大量作战和支援飞机外，还包括一艘导弹巡洋舰和两艘驱逐舰。
+最近几周，浙江的几个城市发布了野火警告。浙江省政府最近预测，该省的干旱将至少持续到4月份。
 
-台湾进行了一次防空演习，这次演习从南部城市台南附近的一个基地调集战斗机，该基地经常被用来应对中共国对台湾防空识别区（ADIZ）的入侵。这次的重大入侵事件发生在周六和周日，就在西奥多•罗斯福打击群抵达南中国海的时候，也是美国总统拜登就职后的几天。
+降雨不足已经摧毁了中共国的秋冬季作物，包括马铃薯、辣椒、西红柿和香蕉，还可能威胁今年的水稻收成。
 
-台军上校李庆熙说，这次演习是为了表明“我们已经准备好了”，“我们不会放弃一寸领土”。
+2月7日，中共国国家气象中心正研级高工钱永兰对《南华早报》说：“如果降水量持续偏低，可能会影响水稻播种和种植。”
 
-“所有的分支部门都承受着相当大的压力，但只要空军在这里，我们就会按照相关战备规则做出反应。”一名驻扎台南基地的飞行员告诉路透社记者，中共国似乎是想通过让台湾空军疲于应对不断的，针对台湾防空识别区（ADIZ）的侵扰，来试图拖垮规模小得多的台湾空军。
+她补充说：“然而，由于早稻尚未大规模种植，到目前为止，其影响是有限的。”
 
-台南基地是经国号战斗机的机翼生产地，这种飞机与美国的F-16类似，但根据台湾的需要进行了改装，并在当地生产。该型号的战斗机通常使用美国和台湾制造的空对空导弹发射，引以为豪的是它们能够在探测到台湾防空识别区（ADIZ）内不明飞机的几分钟内空降。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/sYSjMj8zyJBOU/images/2592cfa1-c164-4ba5-a0f2-7234ec4554ba.jpg?asset_id=85d29afa-c5ed-436d-b635-972c7291f95a&amp;img_etag=%22968c849163aeed52d501b342c06392a9%22&amp;size=2560)](https://spark.adobe.com/page/sYSjMj8zyJBOU/images/2592cfa1-c164-4ba5-a0f2-7234ec4554ba.jpg?asset_id=85d29afa-c5ed-436d-b635-972c7291f95a&amp;img_etag=%22968c849163aeed52d501b342c06392a9%22&amp;size=1024)
-
-🔗[原文链接](https://www.breitbart.com/national-security/2021/01/26/china-to-hold-military-drills-in-south-china-sea-after-record-setting-taiwan-incursion/)
+🔗[原文链接](https://www.breitbart.com/asia/2021/02/08/hundreds-thousands-running-out-water-southern-china/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 - [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
-编辑：【英国伦敦喜庄园编辑部】Edited by：【Himalaya London Club UK】
+编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/sYSjMj8zyJBOU/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/sYSjMj8zyJBOU/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/yhsAC2Pv2IO3u/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/yhsAC2Pv2IO3u/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-0
++3
