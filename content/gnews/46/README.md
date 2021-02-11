@@ -1,33 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【商海纵横】G商业生态系统（四）操作独特性
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/900863/)
+## 香草播报：【军事快讯】日本首相防卫相均表示对中共《海警法》决不能接受
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/900960/)
 
-五月花写作组 ｜ 作者：商业部 如水 ｜ 编辑、美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/02/商海纵横2v4.jpg)
-消费者的忠诚对企业的成败也有决定作用，提高消费者忠诚度，有利于降低营销成本，有利于巩固现有市场。全球企业也都认识到这个问题的重要性，但是目前也就只有G系列能够如此按部就班、不动声色的做好消费者与服务、生产、产品、传媒等各个体系彻底融合，打造出自成一体的大商业生态系统。
+作者：纽约香草山写作组 Wilson
 
-G系列的一个独特的操作就是将消费向生产领域和经营领域延伸。把消费者对G系列产品的采购视同对G系列的投资，并用特殊的方式和渠道，将利润以一定比例回归给给消费者。这样，G系列消费者的消费行为，已不再是单纯的消费，而同时变成了一种储蓄行为和参与G系列生产的投资行为。这实际上把消费者从商业链条的末端，以投资者的身份，拉到前端，让单纯的消费者，通过一个绝妙操作提升为投资者。让消费者在购买G系列产品时，分享到整个G系列成长的成果，使消费和投资有机结合在一起，等于把买卖双方联为一体。这种联为一体的忠诚度，是其他竞争对手永远无法撬走的。
 
-G系列另一个独特的操作就是将消费资本化，着眼于从生产和消费两方面，双向看问题，从消费者的消费行为同时也是一种投资行为的新视角着手，使得消费者既是市场的主人，又同时为经济发展注入新的资本动力。 完美实现生产经营者和消费者的共赢，从而推动G系列经济持续发展。另外，通过把消费转化资本，也可以调动消费者的消费积极性 。
 
-* * *
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-### 往期链接：
 
-[【商海纵横】G商业生态系统（一）引领商界新潮流](https://gnews.org/zh-hans/896073/)
 
-[【商海纵横】G商业生态系统（二）独特价值链关系](https://gnews.org/zh-hans/900500/)
+[共同社](https://china.kyodonews.net/news/2021/02/769fa504c0ce.html)2月9日报道，日本防卫相岸信夫9日与美国驻日使馆代表举行会谈，就中共的《海警法》施行表示“抱有很大关切，决不能接受”。这是日本向国际社会发出的强硬讯息。此前，日本首相菅义伟在8日的众院上称：“完全无法接受（中共）通过运用（《海警法》）在东海和南海海域加剧紧张。”
 
-[【商海纵横】G商业生态系统（三）G系列消费者](https://gnews.org/zh-hans/900786/)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/84-scaled.jpg)图源：岸信夫推特
 
-* * *
+日本正在有条不紊的推进制定应对中共《海警法》的相关法案。一旦法案施行，日本的海警和自卫队将一丝不苟地执行。因此，日本最有可能和中共发生军事冲突。
 
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+编辑/校对/发稿：Irene木木
 
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-+3
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
+
++1
