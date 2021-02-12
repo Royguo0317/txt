@@ -1,26 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世卫首席科学家谈中共病毒：感染过的人可能会再次被感染
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/904104/)
+## 香草专栏：【战友心声】查经后感
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/904110/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
-
-
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2021年2月12日电/西喜社——**世界卫生组织首席科学家斯瓦米纳坦博士发布最新情报： “我们现在收到报告说有人重新感染了一种新的变种病毒… 这说明以前感染过的人可能会再次被感染。”
+作者：纽约香草山福音部 英子
 
 
 
-> “We are now getting reports of people getting reinfected with a new variant of the virus … suggesting people who’ve had prior infection could get infected again.”
-> 
-> — WHO Chief Scientist Dr. Soumya Swaminathan [pic.twitter.com/RIWGMLxlQh](https://t.co/RIWGMLxlQh)
-> — The Recount (@therecount) [February 12, 2021](https://twitter.com/therecount/status/1360261856313683971?ref_src=twsrc%5Etfw)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+最近，我在香草山福音部查考《圣经·旧约·创世纪》时，开头的第一句就是“起初神！一切都源于这位神”。当地还是空虚、混沌、黑暗的时候，先是神的灵来了，然后是神说话了。神一说话，光就来了！神看光是好的，就把光和暗分开了。神称光为昼、暗为夜。有晚上、有早晨，这是头一日。地球上的故事就这样开始了。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/image-66.png)
+
+作为一名基督徒，我觉得，这不也是我们信主的故事吗？
+
+在没有认识这位创造人和宇宙万物的神以前，我们常常活在一种黑暗的光景当中，没有光明感。 那时候，我们心里空空虚虚，混乱一团。人生没有方向，也没有目标。大多时候，都是别人做什么，我们就跟着做什么，甚至不知道为什么要那样做。有时候犯了罪、做了亏心事，要么被良心控告，永远走不出那种阴影；要么变得麻木不仁，困在罪中，走向生命的死亡。
+
+直到有一天，我们糊里糊涂被人拖着、拽着走进了教会，或不清不楚听人给我们传福音、讲信仰。似乎，神的灵，就开始运行在我们这个忙忙碌碌、昏昏沉沉的人里面。神也开始对我们说话了。神的话不像人说的话，它带着光，也带着能力，把我们里面的黑暗与光明就分开了。
+
+从此，我们对罪，对黑暗，对不义的人事物，开始有感觉，有反应，不再麻木了。我们的人生也不再空虚死沉，反而充满了光明与盼望！我们真正有意义的头一日就这样开始了！
+
+是呀，没有经过黑暗的恐惧，哪知光明的美丽！没有黑暗的侵袭，哪有对光明的渴慕！没有黑暗的绝望，哪有对光明的追求！
+
+我们晓得光伴同着生命，而黑暗总是表征死亡。哪里有生命，哪里就有光；哪里有黑暗，哪里就有死亡。
+
+《圣经》启示：“神是光，神是生命。”
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/image-67.png)
+
+愿有心追求生命与光的朋友们，都能谦卑的来到，这位神，这位起初的造物主面前，得着人生的答案！
+
+夜晚的黑暗不要紧，因为一定会有早晨的光明！我们被造，不是走向死亡，乃是得着一个光明的生命！何等的福音！
+
+朋友们，你有神起初的头一日开始了吗？
+
+（本文观点仅代表个人）
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
 
 0
