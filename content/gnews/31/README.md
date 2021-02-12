@@ -1,20 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年2月12日中共病毒疫情要闻快报
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/903227/)
+## 汪峰 -《满》
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/903482/)
 
-**重点内容：**
-
-- 福克斯：WHO在说谎，WHO听从中共指挥！
-- 石家庄医院测核酸人员爆满！
-- “正能量”假新闻，90岁奶奶坚持10年还债2077万；
-- 凤凰卫视公开国有化；
-- 耿潇男被控非法经营罪，被电视认罪。
+By： 【秘密翻译组 G-Translators】
 
 
-
-
-**By：【秘翻组-上天造灭疫组】**
 
 0
