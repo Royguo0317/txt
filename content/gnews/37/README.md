@@ -1,45 +1,104 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【经济商评】 墙国经济还好吗? （四）华夏幸福债务违约
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/902538/)
+## CBN 新闻：中共国是自由和民主的最大威胁
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/902564/)
 
-五月花写作组 ｜ 作者：商业部 Nanfeng99 ｜ 编辑：文合 ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/02/经纪商评4.jpg)
-《第一财经》2021年2月2日早间报道，2月1日晚间，曾经跻身地产销售榜TOP10强之列的华夏幸福（600340.SH）发布债务违约公告，透露华夏幸福及下属子公司发生债务逾期，涉及本息金额共52.55亿元。然而截至2021年1月31日，公司可动用货币资金余额为8亿元，无法偿付金融机构负债。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-12-at-2.20.28-AM.png)
-华夏幸福扣除预收款之后的债务总额已逼近3000亿。2021年开始，这是继小牛、海航之后，第三个债务千亿的爆雷企业。大债主工行和大股东平安银行被拖下水，数十家金融机构被牵连。这也是华夏幸福继1月份违约两次信托基金基金后的再次违约，可能将会走上海航之后的破产重组境地，事件严峻和影响之大，以致国务院、央行、财政部和银、保保监会紧急开会研讨，实属罕见，华夏幸福或已无力回天！
+新闻简述：据CBN2021年2月5日报道：美国智库警告中共国是美国最大的敌人，美国应该对与北京的无限期的对抗做好准备。
 
-房企巨头华夏幸福的爆雷早已在预料之中。中共把房地产作为第一支柱产业，并利用虚假经济全面推高房地产泡沫，企业爆雷是泡沫破灭时的必然结果。而关联其中的所有机构和产业，在房地产的第一块多米诺骨牌倒下后崩塌将随之而来，这预示着中共假经济的全面崩盘已经开始。
+**CBN News: Communist China Is the Greatest Threat to Freedom and Democracy**
 
-华夏幸福债务违约涉及到中国国内经济两大雷点。一是房地产，一是债务。债务可以简单的解释为一个自然人或公司、财团、组织、政府等机构法人亏欠其他个体的东西，可以是金钱，也可以是别的有价物。债务危机是金融危机的一种形式。近年来的金融危机越发呈现出混合了债务、银行、货币等多种形式危机的形式，往往伴随着企业大量倒闭，失业率提高，社会普遍的经济萧条，国家破产， 甚至有些时候伴随着社会动荡或国家政治层面的动荡。
+**CBN 新闻：中共国是自由和民主的最大威胁**
 
-《21世纪经济报道》2020年9月18日、19日接连发表两篇关于隐性债务的文章，一篇是“数十万亿隐性债务化解进行时 AMC参与两模式渐明晰”，另一篇是“中小银行密集介入隐性债务置换 监管提示关注金融风险”。文章中提到，AMC即金融资产管理公司参与到了数十万亿的隐性债务风险化解中，国有大行是隐性债务置换的主力，中小银行也在密集介入。隐性债务特指中共地方政府隐性债务，是相对于显性债务而言的。显性债务相当于“合法合规债务”，隐性债务则相当于“违法违规债务”。按2015年中共新《预算法》的规定，地方政府举债只能通过发行地方政府债券，地方隐性债务不属于政府债务。
+**Chris Mitchell: **China is the greatest threat to freedom and democracy. That warning came from the former top U.S. intelligence official, who said America should also prepare for an open-ended period of confrontation with Beijing. George Thomas has the details.
 
-隐性债务在中共国是神一样的存在，连地方政府都摸不清楚数据。数据只能通过估算来获得。不同研究机构按照不同的口径有不同的测算数据，其中有的从债务端计算地方政府融资平台的融资来源，有的从资产端估计基建规模中地方政府类项目的融资占比，基本上在30万亿～50万亿元之间。实际数据恐怕比上述要大得多。
+**克里斯·米切尔**：中国是对自由和民主的最大威胁。这是来自美国前高级情报官员的警告。他说美国应该对与北京的无限期的对抗做好准备。请看乔治•托马斯的详细报告。
 
-地方政府债务风险巨大，说到底还是银行系统的风险巨大，因为即使目前代替了银行信贷，地方政府债券中的86%以上仍由商业银行持有。2019年先后发生营口沿海银行和河南伊川农商行挤兑事件、包商银行被接管和锦州银行重组事件，2020年先后发生甘肃银行、山西某商行、葫芦岛银行等挤兑事件，无不说明中共银行系统的风险已经无处不在，会随时崩盘。
+**Host (George Thomas): **Napoleon Bonaparte, the French military leader said more than two centuries ago that China is a sleeping lion, let her sleep, for when she wakes, she will shake the world. China’s President Xi Jinping has emphatically declared that the lion has awakened.
 
-几十年来由于中共竭泽而渔，盗国贼中饱私囊，银行不良率飙升，中共政府信用尽失。目前中共面临多重危机，中共金融庞氏骗局也将被戳穿。隐性债务问题很可能将成为导致中共金融系统及整个经济大崩盘的最后一根稻草。
+**主持人（乔治·托马斯）**：法國軍事領袖拿破崙•波拿巴兩個多世紀前說過：中國是一頭沉睡的獅子，讓她睡吧，因為當她醒來時，她將震撼世界。中[共]國國家主席習近平最近斷然宣布，獅子已經醒來。
 
-（未完待续）
+John Ratcliffe, Director of National Intelligence wrote in a recent wall street journal editorial that China is America’s number one national security threat, and that Beijing intends to dominate the rest of the planet economically, militarily, and technologically. Michael O’hanlon is with Brookings Institute.
 
-* * *
+美国国家情报总监约翰•拉特克利夫最近在《华尔街日报》的一篇社论中写道：中国是美国国家安全的头号威胁，北京打算在经济、军事和技术上主宰世界其它地区。迈克尔•奥汉龙就职于布鲁金斯学会。
 
-### 往期链接：
+**Michael E. O’hanlon: **It is the way a great power with a non-democratic government chooses to seek to extend its influence worldwide.
 
-[【经济商评】 墙国经济还好吗? （一）从商业新闻看经济](https://gnews.org/zh-hans/901039/)
+**迈克尔·奥汉隆**：这是一个非民主政府的大国在世界范围内寻求扩大影响力的方式。
 
-[【经济商评】 墙国经济还好吗? （二）疫情经济之“掏肛”经济](https://gnews.org/zh-hans/901073/)
+**Host: **Ratcliffe accuses China of deploying what he calls a rob, replicate, and replace approach in its ambitions to dominate the world.
 
-[【经济商评】 墙国经济还好吗? （三）海航集团破产重整](https://gnews.org/zh-hans/901090/)
+**主持人**：拉特克利夫指责中共国采用了抢劫、复制和替换的战略来实现其主宰世界的野心。
 
-* * *
+**Michael E. O’hanlon:** It’s been well known for decades that China tries to copy the industry of other countries and then takes it to scale, makes it more efficient, and largely operates, sort of built its way up through the global economic ranks with that approach.
 
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+**迈克尔·奥汉隆**：几十年来，众所周知，中国试图复制其它国家的工业，然后将其发展成具有更加高效和更大生产规模的，一种名列全球经济前茅的中国特色工业。
 
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+**Host: **China’s foreign ministry dismisses Radcliffe’s claims while accusing Washington of unnecessary playing the China threat.
 
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+**主持人**：中共外交部在反驳拉特克利夫的同时，指责华盛顿没有必要宣扬中国威胁论。
 
-0
+**Chunying Hua: **The relevance article with his sensational title does not present any solid evidence at all. It offered nothing new but repeating the lies and rumors to smear China.
+
+**华春莹**：这篇具有耸人听闻标题的文章根本没有提供任何确凿的证据，该文章除了陈词滥调外，就是不断地重复诽谤中国的谎言。
+
+**Host: **CBN News has documented China’s rise for more than two decades. Fast forward to 2020, as we examine how China’s President Xi Jinping has been massively overhauling the country’s military, economy, and political influence as part of his great rejuvenation project.
+
+**主持人：CBN新闻纪录了中国崛起长达20多年之久。当把记录带快进到2020年时，让我们来看看中共国家主席习近平是如何大规模地翻新该国的军事、经济和政治影响力，以此作为他伟大复兴计划的一部分。**
+
+**Tom Miller: **We should put it into sort of Trumpian terms, means to make China great again.
+
+**汤姆·米勒**：我们用川普式语言来说，就是：让中共再次变得伟大。
+
+**Host: **Tom Miller documents China’s rise in the book “China’s Asian Dream”. Miller says since taking the reins, she has been on a trajectory of preparing China to be the world’s dominant power.
+
+**主持人**：汤姆•米勒在《中国的亚洲梦》一书中纪录了中国式的崛起。米勒说，自从抓住了掌控权，中[共]国便开始为其成为世界主导力量而做准备。
+
+**Tom Miller: **China has been very very deliberately trying to realize its kind of ambition to become the global superpower.
+
+**汤姆·米勒：中国一直以来都非常刻意地试图实现其成为全球超级大国的野心。**
+
+**Host: **Chinese scholars say it’s also part of Xi’s deep belief that his country has a divine right to rule the world.
+
+**主持人**：中国学者说，这也是习近平最深的信仰，那就是，他的国家有统治世界的神圣使命。
+
+**Gordon Chang: **The mandate of heaven is from China’s imperial past, where Chinese emperors believed that they not only had the right, but they were compelled by heaven to rule the world. And there’s this notion of “Tian Xia” or “all under heaven”.
+
+**章家敦**：这个天命来自中国的皇权时代。中国的皇帝们认为，他们不仅拥有这个权利而且上天驱使着让他们统治世界。有一个词叫“天下”。
+
+**Host: **One way, is by military force. As Commander-In-Chief of the world’s largest fighting force, Xi has remade China’s People’s Liberation Army or PLA into a military, rapidly closing the gap on U.S. firepower. The Pentagon revealing for the first time that China now has the world’s largest navy and plans to double its nuclear warhead arsenal in this decade, which includes ballistic missiles that can reach the United States.
+
+**主持人**：一个途径就是通过武力。作为世界上具有最大军事力量的总司令，习对中国人民解放军，即 PLA，进行了改造，使其迅速缩小与美国军力的差距。五角大楼首次披露：中国现在拥有世界上最大的海军，并计划在10年内将其武器库增加一倍，其中包括那些能够打到美国的核弹道导弹。
+
+**Chad Sbragia:** It’s likely that China will seek to build a military that is equal to or in some cases superior to the U.S. military or the military of any other great power that China perceives as a potential threat.
+
+**乍得·布拉尼亚**：中国很可能会寻求建立一支军队，它是具有与美国同等水平甚至还可能超越美国，或者超越任何一个被认为对中国有潜在威胁的超级军事力量的中国军队。
+
+**Host: **O’Hamlon says China’s capabilities in emerging technologies such as robotics, artificial intelligence, and next generation technology and telecommunications now rival that of the United States.
+
+**主持人**：奥哈姆龙说，中国在新兴技术，如机器人、人工智能，以及下一代技术和电信方面的能力现在已经可与美国媲美。
+
+**Michael E. O’hanlon: **If we used to be ahead of China by, you know, half a lap on the proverbial track, now we’re ahead by maybe a few strides, and China is maybe even closing the gap further as we go.
+
+**迈克尔·奥汉隆**：如果我们以前领先中国，比方说，如果我们在跑道上领先中国半圈的话，那么现在，我们只领先几步了，而中国甚至还可以在赛跑的过程中继续缩小差距。
+
+**Host: **Ratcliffe insists that resisting China’s ambitions of becoming an economic, military, and technological superpower will be the challenge of our generation and warns that America should prepare for an open-ended period of confrontation with Beijing.
+
+**主持人**：拉特克利夫坚称，抵制中[共]国成为经济、军事和技术超级大国的野心，将是我们这一代人的挑战，他警告说：美国应该做好与北京进行无限期对抗的准备。
+
+George Thomas, CBN News
+
+乔治•托马斯，CBN新闻
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+
+听写 & 翻译：【奔腾的长江】校对：【Isaiah4031】字幕：【奔腾的长江】编辑：【Isaiah4031】
+
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+
++1

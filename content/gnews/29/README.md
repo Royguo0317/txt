@@ -1,42 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒造成的人道悲剧正在上演
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/902657/)
+## Clubhouse被封锁前后显现的价值与问题
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/902707/)
 
-作者：文明明 | 编辑：海阔天空 | Page：小雨
+作者：Y.M.O
 
-[!\[\]()!\[\](https://spark.adobe.com/page/RRByHiC2WAEMn/images/caba7eb3-494f-4d04-b9c8-fba1e450987b.jpg?asset_id=c4a87175-9686-41ce-b897-8996e92eba3b&amp;img_etag=%22e3fa361238d4ef487d2b1a2f1b4827ed%22&amp;size=2560)](https://spark.adobe.com/page/RRByHiC2WAEMn/images/caba7eb3-494f-4d04-b9c8-fba1e450987b.jpg?asset_id=c4a87175-9686-41ce-b897-8996e92eba3b&amp;img_etag=%22e3fa361238d4ef487d2b1a2f1b4827ed%22&amp;size=1024)
+2月8日前，美国语音社群软体Clubhouse由于尚未遭到中共当局言论审查，因此吸引了大批墙内用户加入，平台也涌现大量关于人权、国家认同和其他敏感议题的讨论。而在2月8日大约晚上7点中共出手封锁，墙内民众需要翻越网络防火墙才能使用。
 
-当世界卫生组织（WHO）的中共病毒起源考察团厚颜无耻地为中共歌功颂德，大赞中共防疫得力，堪称世界典范的同时，墙内正在上演着一出出人道悲剧。
+而在Clubhouse被封锁后，阿里巴巴计划于农历新年前推出语音社交应用MeetClub，该应用与Clubhouse相似，同样有邀请入口以及创建房间功能，都可以选择角色（例如：管理员、听众以及特邀嘉宾），也可以举手申请发言或提问。另外，房间可以选择为公开或私聊。从UI设计来看，MeetClub与Clubhouse的极高相似度让人不得不怀疑其背后目的。
 
-**[悲剧一](https://gnews.org/zh-hans/886578/)：**
+特斯拉首席执行官埃隆·马斯克和罗宾汉首席执行官弗拉德·特内夫在该平台上进行了令人惊讶的讨论后，于2020年初推出的Clubhouse见证了用户数量的爆炸性增长。当然，Clubhouse背后有着那些大家所顾虑的地方，比如资本流向以及技术安全。但它也拥有在当下这个社会中所能闪光的价值，那就是这个以听觉、声音主导的社交方式。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/RRByHiC2WAEMn/images/d804afae-c655-4569-b81e-3d50a8f55645.png?asset_id=840ba6be-40da-4c4d-9bca-629ca762cdf2&amp;img_etag=%226932f8444571871a7f79dbdbf1f43153%22&amp;size=2560)](https://spark.adobe.com/page/RRByHiC2WAEMn/images/d804afae-c655-4569-b81e-3d50a8f55645.png?asset_id=840ba6be-40da-4c4d-9bca-629ca762cdf2&amp;img_etag=%226932f8444571871a7f79dbdbf1f43153%22&amp;size=1024)
+虽然大多数的外界信息是经由视觉获得的，但就笔者个人来说对于视觉的东西并不感兴趣。就像台湾校园民歌运动前后的发展一样，之前的年轻人借美军电台来跳脱戒严束缚，听到自由的声音，其中包括当时的西洋流行乐。而后来在民歌运动中大家唱自己的歌，中广陶晓清陶姐的节目中另开了一个“中西民歌”时段，来介绍年轻人自己创作的歌谣，现在来看成为很重要的一个平台。
 
-孩子发烧到39.8度，医院明明可以马上实施救治，却坚持要等到核酸检测结果出来，才肯给孩子打退烧针。在中共邪恶的体制下，被赞誉为白衣天使的医生也奈何不了上级的指示，残忍地演绎着“草菅人命”；救死扶伤的医院也变成了一架冷冰冰的、只知敛财的机器。孩子幼小的生命就这样在父亲无奈和愤怒的哀嚎中被医生冷漠和麻木地忽视。
+视觉虽然能很有效地接收信息，但如果大脑思考的深度跟不上信息接收速度的话，只会让你感到目不暇接，最后被完全误导，就像官媒上的各式照片以及视频中的各种大广角镜头一样，真相通通被埋在了深处。但在屏蔽视觉、只靠听觉的状况下，你必须通过更有深度的思考来填补视觉的空位，这样离真相当然就更近了。Clubhouse以及现在台湾很多音乐人开通的个人Podcast其实就是听觉、声音、电台这些关键词的现代化演绎。
 
-**[悲剧二](https://gnews.org/zh-hans/877981/)：**
+就是因为这其中传递的真相以及每一个个体所做出的思考，所以中共出手封锁也在意料之中。而中共的反制手段向来不只是封杀这单一层面，毕竟不山寨出新的傀儡来顶替也无法向民众交代。封杀谷歌之后有了百度，封杀推特、脸书之后给你一个新浪微博。阿里巴巴这么快推出MeetClub明显就是维稳需要，快速填补空缺，不让大多数人知道这回事，所以没时间搞自己的UI设计。当然Clubhouse也有可能很早就被盯上了，只是因为这个时间段出现了这些议题才选择出手，至于MeetClub的设计那只能归结为极权体制对创造力的扼杀了。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/RRByHiC2WAEMn/images/7933f2d0-e98e-4969-9fec-4fe62b57af57.png?asset_id=69e8621a-559e-4b42-ab91-15414d2f92ca&amp;img_etag=%22906457949dea465aae4fa6693a33b5c3%22&amp;size=2560)](https://spark.adobe.com/page/RRByHiC2WAEMn/images/7933f2d0-e98e-4969-9fec-4fe62b57af57.png?asset_id=69e8621a-559e-4b42-ab91-15414d2f92ca&amp;img_etag=%22906457949dea465aae4fa6693a33b5c3%22&amp;size=1024)
+而就像前文提到的那样，技术安全对于Clubhouse来说是一大问题。它的应用程序基于Agora进行构建，而Agora作为一家总部位于上海的公司，所有用户的个人信息就会受到中共国法律的“合法招待“。这就是一个简单的九层妖塔，在躲过了封锁，识别了MeetClub的虚伪之后，你的个人信息还是会被中共所掌控。本来多么好的一种方式，最后你得到的结果却还是刑事指控，甚至人间蒸发。
 
-2月3日，哈尔滨市市民陈成龙用刀刺杀了一名防疫志愿者，以故意杀人罪被起诉。事情经过是这样的：由于哈尔滨地区中共病毒每日新病例数量激增，当地政府加大了对人们行动的限制，并启动了大规模的检测活动。为配合政府的行动，康金小区对小区居民出入进行检测登记。小区居民陈成龙下楼倒垃圾被监管小区的防疫志愿者阻扰后，用30公分的刀将防疫志愿者扎伤，伤者被送往中医院，由于医院受疫情影响而关闭，未能及时得到抢救，最终死亡。据知情者透露，陈成龙是刑满释放人员、离异、有吸毒史，并患有有抑郁症，在想离开小区时受到志愿者阻挠后情绪失控，酿成惨祸。同时，知情者也透露，小区的防疫志愿者也利用他们的权力，区别对待居民，连出去买药的正当要求也要剥夺。这就是中共治下的社会，崇拜权力，无视道德良知，连最底层的老百姓之间还要互相倾轧、互相争斗。
+与其四处灭火徒劳无功，还不如去一举抓住纵火的人。只要中共还存在世上一天，无论再好的创意都会被它收为己用为非作歹，而消灭了中共现在社会上的许多问题都会迎刃而解，创造力、生命力也会得以回归。届时像声音所能带来的价值就可以真正影响整个社会，传播给不明真相的人们。
 
-**[悲剧三](https://www.breitbart.com/asia/2021/02/09/chinese-man-arrested-charges-fatally-stabbing-coronavirus-control-volunteer/)：**
+(文章只代表作者观点，与GNews网站无关)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/RRByHiC2WAEMn/images/ca6252ff-0016-481b-8f14-25f4315f30e9.jpg?asset_id=ee4b839a-95fa-4ea2-bccd-7d652c889aa3&amp;img_etag=%220ac33c2b45afbee7b06687a7ee73b0a8%22&amp;size=2560)](https://spark.adobe.com/page/RRByHiC2WAEMn/images/ca6252ff-0016-481b-8f14-25f4315f30e9.jpg?asset_id=ee4b839a-95fa-4ea2-bccd-7d652c889aa3&amp;img_etag=%220ac33c2b45afbee7b06687a7ee73b0a8%22&amp;size=1024)
+参考链接：
 
-1月24日，河北省秦皇岛某村，一名男子在被要求接受中共病毒检测时拒绝检查，并用车撞倒了一名防疫人员，逃跑后被拘捕。据中共喉舌《环球时报》报道，中共国一直在采取严格的措施，打击与疫情控制有关的非法行为。因为自2019年底武汉发现首例中共病毒病例以来，全国已有7200多起相关案件，超过11200人被起诉。
+Clubhouse users could face arrest under Chinese law
 
-这些悲剧的发生，说明中共实行的非人性化防疫措施已经导致了严重的社会问题，造成了众多的人道悲剧。人们在长期的经济和健康安全的多重高压下生活，已经疲于应付，人与人之间的矛盾，一触即发。我们能够看到的也仅仅是冰山一角，更多的悲剧每天都在上演，然而，这些都被“防火墙”给屏蔽掉了；被所谓的和谐社会给“和谐”掉了。事实上，这一切一切的根源都源于中共邪恶的病毒超限战计划，都源于中共所谓的“中国梦”的霸权主义野心，而老百姓们都是中共这些“计划”和“梦想”下的牺牲品。
+https://www.taiwannews.com.tw/en/news/4123186
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+Chinese users flock to U.S. chat app Clubhouse, evading censors
 
+https://www.taiwannews.com.tw/en/news/4123148
 
-编辑：【英国伦敦喜庄园编辑部】
+【商業熱話】Clubhouse內地被牆後，阿里計劃於農曆新年推meetclub
 
-[!\[\]()!\[\](https://spark.adobe.com/page/RRByHiC2WAEMn/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/RRByHiC2WAEMn/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+https://businessdigest.io/article/%E5%95%86%E6%A5%AD%E7%86%B1%E8%A9%B1/6319/%E5%95%86%E6%A5%AD%E7%86%B1%E8%A9%B1-Clubhouse%E5%85%A7%E5%9C%B0%E8%A2%AB%E7%89%86%E5%BE%8C-%E9%98%BF%E9%87%8C%E8%A8%88%E5%8A%83%E6%96%BC%E8%BE%B2%E6%9B%86%E6%96%B0%E5%B9%B4%E6%8E%A8meetclub
+
+***责任编辑：加拿大多伦多枫叶农场 文锦
+编辑/校对：加拿大多伦多枫叶农场 孙行者
+发布: 台湾宝岛农场 Cute panda***
 
 0
