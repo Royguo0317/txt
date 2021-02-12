@@ -1,40 +1,104 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 邪恶政权的受害者
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/902542/)
+## CBN 新闻：中共国是自由和民主的最大威胁
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/902564/)
 
-*作者：胖丁 | 校对：宁缺 | 审核：海阔天空 | Page:Daoiii*
+新闻简述：据CBN2021年2月5日报道：美国智库警告中共国是美国最大的敌人，美国应该对与北京的无限期的对抗做好准备。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ZWDDkzU3WehN8/images/cdf08f04-8b00-433a-bf8d-2e91f3a3c156.png?asset_id=6f1dbffc-3627-4c51-ba54-d3af705b9b17&amp;img_etag=%2271988a7911a5127a6fedd7e1ae7b46ee%22&amp;size=2560)](https://spark.adobe.com/page/ZWDDkzU3WehN8/images/cdf08f04-8b00-433a-bf8d-2e91f3a3c156.png?asset_id=6f1dbffc-3627-4c51-ba54-d3af705b9b17&amp;img_etag=%2271988a7911a5127a6fedd7e1ae7b46ee%22&amp;size=1024)
+**CBN News: Communist China Is the Greatest Threat to Freedom and Democracy**
 
-我在教会的英语老师曾经分享过她的童年经历：她是德国后裔，父亲曾经在部队服役，负伤退役后带着全家移民北美。她大概五、六岁的时候，有一天突然发现邻居的小伙伴们都不跟她玩了。问过之后才知道，是小朋友的妈妈不让孩子跟她玩。她跑回家告诉妈妈，妈妈什么也没有说。后来长大之后她才明白，因为她们是德国后裔，邻居是欧洲后裔，自己的国家饱受德国的蹂躏，对德国纳粹切齿痛恨。虽然知道她们是无辜的，但她来自那个曾经被恶魔统治的国家，还是从心理上排斥她。
+**CBN 新闻：中共国是自由和民主的最大威胁**
 
-说者无心，听者有意。我记住了这个故事，因为身边不时就有排华事件。不管发生什么事情，只要当事者拥有亚裔面孔，所有人都会认为是中国人，很少指向亚洲其他国家。而同样的事情如果发生在其他族裔，就会轻描淡写地过去。华人被“特别对待”，大家似乎都见怪不怪，排华似乎在各国都可以接受。很少有政府官员为了华裔群体而起身呼吁，没有原因，只有结果。因此我总是说话小心，做事谨慎，生怕惹上麻烦。
+**Chris Mitchell: **China is the greatest threat to freedom and democracy. That warning came from the former top U.S. intelligence official, who said America should also prepare for an open-ended period of confrontation with Beijing. George Thomas has the details.
 
-但是再小心翼翼，走路都怕踩着蚂蚁，该发生的事情还是会发生。2021年1月19日，美国国务卿蓬佩奥先生在卸任的前一天，宣布中国共产党对新疆维吾尔族人的残酷迫害已经犯下“种族灭绝与反人类罪”。这是等同于当年德国纳粹的罪行，消息一出，石破天惊！
+**克里斯·米切尔**：中国是对自由和民主的最大威胁。这是来自美国前高级情报官员的警告。他说美国应该对与北京的无限期的对抗做好准备。请看乔治•托马斯的详细报告。
 
-二战时期，德国纳粹对犹太人实施了惨绝人寰的种族大屠杀，导致六百万犹太人在这场浩劫中失去了生命。1945年1月27日，位于波兰的最大的一所奥斯维辛集中营被苏联红军攻破，几千名如骷髅般奄奄一息的幸存者揭示了这是一座曾经残害过无数生命的人间地狱。而类似这样的集中营，德国纳粹在欧洲修建了大约两万座。
+**Host (George Thomas): **Napoleon Bonaparte, the French military leader said more than two centuries ago that China is a sleeping lion, let her sleep, for when she wakes, she will shake the world. China’s President Xi Jinping has emphatically declared that the lion has awakened.
 
-这是人类历史上最黑暗的一段时期。2005年，联合国大会通过决议，指定1月27日，就是奥斯维辛集中营被解放的那一天为“国际大屠杀纪念日“。每一年的这一天，世界各地都会举行各种悼念活动，为了缅怀遇难者和提醒后人不忘那段惨痛的历史。
+**主持人（乔治·托马斯）**：法國軍事領袖拿破崙•波拿巴兩個多世紀前說過：中國是一頭沉睡的獅子，讓她睡吧，因為當她醒來時，她將震撼世界。中[共]國國家主席習近平最近斷然宣布，獅子已經醒來。
 
-圣经里提到：“已有的事，后必再有，日光之下并无新事。”就在二战结束的七十六年之后，尚有极少数纳粹集中营的幸存者还在世，而中共又被爆出在新疆实施了更加残酷的种族灭绝和种族大屠杀。上百万新疆维吾尔族人被关进了所谓的再教育集中营。他们被强迫接受所谓的“去极端化”教育，被迫放弃自己本民族的信仰、文化和饮食，接受汉族习俗。儿童被强制跟父母分开，女人被强迫堕胎、绝育，或者被迫与汉人通婚，接受所谓的基因改造。
+John Ratcliffe, Director of National Intelligence wrote in a recent wall street journal editorial that China is America’s number one national security threat, and that Beijing intends to dominate the rest of the planet economically, militarily, and technologically. Michael O’hanlon is with Brookings Institute.
 
-其实不只在新疆，在中共非法执政的七十年间，历次政治运动、所谓的三年自然灾害、文化大革命等等人为灾难中的非正常死亡人数加起来已经超过上亿人。我曾经跟本地人分享过中共执政的暴行和普通百姓生活的难处，没人相信我，因为中共的邪恶已经超出了常人的思维。在民主自由的国家生活的人们很难想象中共国的残暴，也不理解为什么华人绵绵不断地移民海外生活。因为在中共国没有法制，没有安全，人祸降临的可能性远远大于天灾。只要有条件，能离开的都离开了。不是我们不爱自己的祖国，是CCP共产党的残暴迫使我们背井离乡。
+美国国家情报总监约翰•拉特克利夫最近在《华尔街日报》的一篇社论中写道：中国是美国国家安全的头号威胁，北京打算在经济、军事和技术上主宰世界其它地区。迈克尔•奥汉龙就职于布鲁金斯学会。
 
-爆料革命新中国联邦的发起人郭文贵先生从2017年开始就持续不断地揭露中国共产党在新疆实施的种族灭绝行为和非法治国的残暴，包括在香港一直进行的大屠杀。但是在中共的“蓝金黄“面前，全世界装聋作哑，统一静默。除了郭媒体和班农战斗室，没有几家媒体敢站出来报道事实真相。这一次美国宣布了中共国的罪行，把CCP定义为”种族灭绝与反人类“的犯罪组织，可以预见的将来，CCP必将在全世界正义力量的绞杀中灭亡。
+**Michael E. O’hanlon: **It is the way a great power with a non-democratic government chooses to seek to extend its influence worldwide.
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ZWDDkzU3WehN8/images/28a0d45f-74d8-493a-ba27-875efb138eb3.jpg?asset_id=e571dd4c-23be-4d06-814c-ed0e0ecfa239&amp;img_etag=%2298a4996b862dccb8fe190665524799c1%22&amp;size=2560)](https://spark.adobe.com/page/ZWDDkzU3WehN8/images/28a0d45f-74d8-493a-ba27-875efb138eb3.jpg?asset_id=e571dd4c-23be-4d06-814c-ed0e0ecfa239&amp;img_etag=%2298a4996b862dccb8fe190665524799c1%22&amp;size=1024)
+**迈克尔·奥汉隆**：这是一个非民主政府的大国在世界范围内寻求扩大影响力的方式。
 
-同样也可以预见，未来我很有可能也会遭遇到我英语老师的经历，被不明真相的人们误解或排斥。感恩爆料革命新中国联邦，持续不断地告诉全世界：中国人不等于CCP，中国老百姓是CCP邪恶政权的受害者。为了我们自身的安全和子孙后代的生存，Take down the CCP。
+**Host: **Ratcliffe accuses China of deploying what he calls a rob, replicate, and replace approach in its ambitions to dominate the world.
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+**主持人**：拉特克利夫指责中共国采用了抢劫、复制和替换的战略来实现其主宰世界的野心。
 
+**Michael E. O’hanlon:** It’s been well known for decades that China tries to copy the industry of other countries and then takes it to scale, makes it more efficient, and largely operates, sort of built its way up through the global economic ranks with that approach.
 
-编辑：【英国伦敦喜庄园编辑部】
+**迈克尔·奥汉隆**：几十年来，众所周知，中国试图复制其它国家的工业，然后将其发展成具有更加高效和更大生产规模的，一种名列全球经济前茅的中国特色工业。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ZWDDkzU3WehN8/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/ZWDDkzU3WehN8/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+**Host: **China’s foreign ministry dismisses Radcliffe’s claims while accusing Washington of unnecessary playing the China threat.
 
-0
+**主持人**：中共外交部在反驳拉特克利夫的同时，指责华盛顿没有必要宣扬中国威胁论。
+
+**Chunying Hua: **The relevance article with his sensational title does not present any solid evidence at all. It offered nothing new but repeating the lies and rumors to smear China.
+
+**华春莹**：这篇具有耸人听闻标题的文章根本没有提供任何确凿的证据，该文章除了陈词滥调外，就是不断地重复诽谤中国的谎言。
+
+**Host: **CBN News has documented China’s rise for more than two decades. Fast forward to 2020, as we examine how China’s President Xi Jinping has been massively overhauling the country’s military, economy, and political influence as part of his great rejuvenation project.
+
+**主持人：CBN新闻纪录了中国崛起长达20多年之久。当把记录带快进到2020年时，让我们来看看中共国家主席习近平是如何大规模地翻新该国的军事、经济和政治影响力，以此作为他伟大复兴计划的一部分。**
+
+**Tom Miller: **We should put it into sort of Trumpian terms, means to make China great again.
+
+**汤姆·米勒**：我们用川普式语言来说，就是：让中共再次变得伟大。
+
+**Host: **Tom Miller documents China’s rise in the book “China’s Asian Dream”. Miller says since taking the reins, she has been on a trajectory of preparing China to be the world’s dominant power.
+
+**主持人**：汤姆•米勒在《中国的亚洲梦》一书中纪录了中国式的崛起。米勒说，自从抓住了掌控权，中[共]国便开始为其成为世界主导力量而做准备。
+
+**Tom Miller: **China has been very very deliberately trying to realize its kind of ambition to become the global superpower.
+
+**汤姆·米勒：中国一直以来都非常刻意地试图实现其成为全球超级大国的野心。**
+
+**Host: **Chinese scholars say it’s also part of Xi’s deep belief that his country has a divine right to rule the world.
+
+**主持人**：中国学者说，这也是习近平最深的信仰，那就是，他的国家有统治世界的神圣使命。
+
+**Gordon Chang: **The mandate of heaven is from China’s imperial past, where Chinese emperors believed that they not only had the right, but they were compelled by heaven to rule the world. And there’s this notion of “Tian Xia” or “all under heaven”.
+
+**章家敦**：这个天命来自中国的皇权时代。中国的皇帝们认为，他们不仅拥有这个权利而且上天驱使着让他们统治世界。有一个词叫“天下”。
+
+**Host: **One way, is by military force. As Commander-In-Chief of the world’s largest fighting force, Xi has remade China’s People’s Liberation Army or PLA into a military, rapidly closing the gap on U.S. firepower. The Pentagon revealing for the first time that China now has the world’s largest navy and plans to double its nuclear warhead arsenal in this decade, which includes ballistic missiles that can reach the United States.
+
+**主持人**：一个途径就是通过武力。作为世界上具有最大军事力量的总司令，习对中国人民解放军，即 PLA，进行了改造，使其迅速缩小与美国军力的差距。五角大楼首次披露：中国现在拥有世界上最大的海军，并计划在10年内将其武器库增加一倍，其中包括那些能够打到美国的核弹道导弹。
+
+**Chad Sbragia:** It’s likely that China will seek to build a military that is equal to or in some cases superior to the U.S. military or the military of any other great power that China perceives as a potential threat.
+
+**乍得·布拉尼亚**：中国很可能会寻求建立一支军队，它是具有与美国同等水平甚至还可能超越美国，或者超越任何一个被认为对中国有潜在威胁的超级军事力量的中国军队。
+
+**Host: **O’Hamlon says China’s capabilities in emerging technologies such as robotics, artificial intelligence, and next generation technology and telecommunications now rival that of the United States.
+
+**主持人**：奥哈姆龙说，中国在新兴技术，如机器人、人工智能，以及下一代技术和电信方面的能力现在已经可与美国媲美。
+
+**Michael E. O’hanlon: **If we used to be ahead of China by, you know, half a lap on the proverbial track, now we’re ahead by maybe a few strides, and China is maybe even closing the gap further as we go.
+
+**迈克尔·奥汉隆**：如果我们以前领先中国，比方说，如果我们在跑道上领先中国半圈的话，那么现在，我们只领先几步了，而中国甚至还可以在赛跑的过程中继续缩小差距。
+
+**Host: **Ratcliffe insists that resisting China’s ambitions of becoming an economic, military, and technological superpower will be the challenge of our generation and warns that America should prepare for an open-ended period of confrontation with Beijing.
+
+**主持人**：拉特克利夫坚称，抵制中[共]国成为经济、军事和技术超级大国的野心，将是我们这一代人的挑战，他警告说：美国应该做好与北京进行无限期对抗的准备。
+
+George Thomas, CBN News
+
+乔治•托马斯，CBN新闻
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+
+听写 & 翻译：【奔腾的长江】校对：【Isaiah4031】字幕：【奔腾的长江】编辑：【Isaiah4031】
+
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+
++1
