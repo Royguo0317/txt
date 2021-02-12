@@ -1,33 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】美日澳在关岛举行军事演习
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/903689/)
+## 假期开始，病例激增令韩国人担忧
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/903733/)
 
-作者：人间世
-
-为抗衡中俄，美国、日本、澳洲正在关岛举行代号为“对抗北方二O二一”（Cope North 2021）的联合演习。F-35A隐形战机因此首度部署于关岛安德森空军基地。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1222-【军事快讯】美日澳在关岛举行军事演习.jpg)美日澳三国战机参与共同军演（美国印太司令部官网/《上报》）
-
-据多家媒体报道，此次演习自2月3日开始，持续至19日在关岛举行联合军演习，为反制中共国及俄罗斯的军事威胁，演习内容包含人道救援、军队部署及战斗训练等项目。
-
-演习由日本航空自卫队 (Japan Air Self-Defense Force)领导，美国空军、澳洲皇家空军 (Royal Australian Air Force)参与。将有1800名美国空军、海军陆战队及水手参与训练，日本航空自卫队及澳洲皇家空军有400人参加，有95架飞机投入演习。军演地点是位于关岛北部、美国太平洋空军第36联队驻屯的安德森空军基地 (Andersen Air Force Base)。
-
-据台湾《上报》报道，“对抗北方”军演首创于1978年，当时美军和日本自卫队在三泽飞行场（Misawa Air Base）展开第一次演习，1999年美军将演习基地移到关岛。澳洲皇家空军于2011年正式加入。
-
-安德森基地第36联队指挥官斯隆（Brig. Gen. Jeremy T. Sloane）表示，中（共）国及俄罗斯对美军海外基地的威胁倍增，为应对这样的情况，空军不能过度依赖完整的机场，“虽然美军可以利用战略轰炸机克服部分劣势，但假如在战争中，飞弹已瘫痪所有空军基地时，则战略轰炸机也无用武之地”。
-
-香港军事专家、前人民解放军教员宋中平表示，这次军演是要强化在遭受中（共）国军队攻击的情况下，关岛和各基地之间的联系。“除此之外，四代战机和五代战机也会共同组成保护网以确保军事基地能够在遭受第一波攻击的情况下倖存以便进行有效反击”。日本及澳洲的加入一方面是要在战略上反制中（共）国，另一方面也能够让美军使用这些国家的基地以反制中（共）国的攻击。
+- 编辑：Victor Torres
+- 发稿：Ranting
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+**西班牙2021年2月12日电/西喜社——**据美联社2月11日报道，韩国最近24小时内报告了504例新的中共病毒病例。这是约两周来的最高日增长率，并引起人们对该国开始农历新年假期时病例可能激增的担忧。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+卫生官员周四表示，新报告的病例使该国的疫情总数达到82434例，其中有1496例死亡病例与中共病毒有关。
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+最近几周，韩国的病例数呈现出逐渐下降的轨迹，这主要得益于严格的疏导规则，比如禁止5人或以上的社交聚会。
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+官员们已经敦促公众保持警惕，在周四开始的四天农历新年假期期间呆在家里。预计数百万人将在假期期间前往全国各地探亲返乡。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/e3b98db6-c612-4573-ad2b-d36b0b657fbe.jpg)
+
+**[新闻来源](https://apnews.com/article/yoshihide-suga-tokyo-coronavirus-pandemic-coronavirus-vaccine-japan-0ad5076248602e3bfe19e297c74d849a)**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
 0

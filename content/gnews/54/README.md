@@ -1,45 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【经济商评】墙国经济还好吗? （六）瑞幸咖啡申请破产
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/902615/)
+## 中共病毒造成的人道悲剧正在上演
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/902657/)
 
-五月花写作组 ｜ 作者：商业部 Nanfeng99 ｜ 编辑：文合 ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/02/经纪商评6.jpg)
-2021年2月5日，瑞幸咖啡在其官网发布公告称，公司正根据美国破产法第15章申请破产保护。对此，瑞幸咖啡在其官方微博上作出解释，表示坊间认为的“破产”其实是错误理解，称其实是个“好消息”，让瑞幸重生之路又进一步。作为公司重组的重要步骤，也是开曼程序下常见做法，临时清盘人向美国法院提起程序，寻求美国法院对于公司目前在开曼进行的临时清盘程序的认可。该程序将会暂停美国境内针对公司的诉讼程序，为完成开曼重组创造条件并有序完成重组。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-12-at-2.45.22-AM.png)
-申请破产其实是个“好消息”，瑞幸公司的这个说法真是清新脱俗！这家一度被捧为星巴克(Starbucks)的中国竞争对手的公司，2019年在纽约上市。2020年，其伪造了数亿美元销售额的会计丑闻曝光，震惊了整个华尔街，该股随后从纳斯达克(Nasdaq)摘牌。在得知瑞幸篡改银行记录，还建立了一个虚假数据库以伪造账目之后，美国证券交易委员会(SEC) 12月对其处以1.8亿美元罚款。
+作者：文明明 | 编辑：海阔天空 | Page：小雨
 
-瑞幸咖啡的楼起楼塌是一个典型的中国特色的全球化炼金术故事。先是编故事融资圈钱，然后做假账海外上市，接着掩盖过去的假账，或者骗局越作越大或者轰然倒塌。最终不仅是海外投资者遭受损失，还有无法维系的国内中小加盟商，无法收到货款的供应商，无法领到工资的中国员工，无法偿还贷款的国内银行，以及全球范围信誉受损的全体中国人。
+[!\[\]()!\[\](https://spark.adobe.com/page/RRByHiC2WAEMn/images/caba7eb3-494f-4d04-b9c8-fba1e450987b.jpg?asset_id=c4a87175-9686-41ce-b897-8996e92eba3b&amp;img_etag=%22e3fa361238d4ef487d2b1a2f1b4827ed%22&amp;size=2560)](https://spark.adobe.com/page/RRByHiC2WAEMn/images/caba7eb3-494f-4d04-b9c8-fba1e450987b.jpg?asset_id=c4a87175-9686-41ce-b897-8996e92eba3b&amp;img_etag=%22e3fa361238d4ef487d2b1a2f1b4827ed%22&amp;size=1024)
 
-瑞幸咖啡是美国中概股的一个缩影。在美上市中概股被美国证监会认为95％以上造假，涉及到万亿美元市值。早在2018年12月7日，美国证券交易委员会（SEC）和美国公众公司会计监督委员会（Public Company Accounting Oversight Board, PCAOB）发布了一个声明，声明说中共国阻碍对中概股审计质量的监管，损害财务信息可靠度、审计质量及全球投资者知情权，伤害美国金融制度，属于全球资本市场的珍珠港事件。华尔街的金融机构不可能不知道中概股业绩造假，利益驱使让他们视而不见，甚至直接参与其中。多年以来，华尔街以中共国虚假经济数据，编造故事，发行相关交易所交易基金（ETF）一起在美国圈钱。
+当世界卫生组织（WHO）的中共病毒起源考察团厚颜无耻地为中共歌功颂德，大赞中共防疫得力，堪称世界典范的同时，墙内正在上演着一出出人道悲剧。
 
-盛宴终有时。2020年12月2日，为了修订《萨班斯法案2002》，美国参众两院通过了已经递交总统签字的《外国公司问责法案》，该法案要求在美国交易所挂牌上市的外国公司，必须遵守美国的审计标准，否则将面临退市。虽然法案针对所有外企，但目前美国监管部门未能有效获取审计文件的上市公司中，中国公司占比超九成，故该法案又被人称为中概股清理法案。
+**[悲剧一](https://gnews.org/zh-hans/886578/)：**
 
-瑞幸咖啡或将成为中概股的第一块多米诺骨牌。当时中概股清理法案生效后，不少中资企业公司就启动了回香港二次上市的流程，以规避新法案对公司的影响。瑞幸的美国退市和申请破产说明中共国美国海外融资的大门已经收紧，渠道正在切断。
+[!\[\]()!\[\](https://spark.adobe.com/page/RRByHiC2WAEMn/images/d804afae-c655-4569-b81e-3d50a8f55645.png?asset_id=840ba6be-40da-4c4d-9bca-629ca762cdf2&amp;img_etag=%226932f8444571871a7f79dbdbf1f43153%22&amp;size=2560)](https://spark.adobe.com/page/RRByHiC2WAEMn/images/d804afae-c655-4569-b81e-3d50a8f55645.png?asset_id=840ba6be-40da-4c4d-9bca-629ca762cdf2&amp;img_etag=%226932f8444571871a7f79dbdbf1f43153%22&amp;size=1024)
 
-（未完待续）
+孩子发烧到39.8度，医院明明可以马上实施救治，却坚持要等到核酸检测结果出来，才肯给孩子打退烧针。在中共邪恶的体制下，被赞誉为白衣天使的医生也奈何不了上级的指示，残忍地演绎着“草菅人命”；救死扶伤的医院也变成了一架冷冰冰的、只知敛财的机器。孩子幼小的生命就这样在父亲无奈和愤怒的哀嚎中被医生冷漠和麻木地忽视。
 
-* * *
+**[悲剧二](https://gnews.org/zh-hans/877981/)：**
 
-### 往期链接：
+[!\[\]()!\[\](https://spark.adobe.com/page/RRByHiC2WAEMn/images/7933f2d0-e98e-4969-9fec-4fe62b57af57.png?asset_id=69e8621a-559e-4b42-ab91-15414d2f92ca&amp;img_etag=%22906457949dea465aae4fa6693a33b5c3%22&amp;size=2560)](https://spark.adobe.com/page/RRByHiC2WAEMn/images/7933f2d0-e98e-4969-9fec-4fe62b57af57.png?asset_id=69e8621a-559e-4b42-ab91-15414d2f92ca&amp;img_etag=%22906457949dea465aae4fa6693a33b5c3%22&amp;size=1024)
 
-[【经济商评】 墙国经济还好吗? （一）从商业新闻看经济](https://gnews.org/zh-hans/901039/)
+2月3日，哈尔滨市市民陈成龙用刀刺杀了一名防疫志愿者，以故意杀人罪被起诉。事情经过是这样的：由于哈尔滨地区中共病毒每日新病例数量激增，当地政府加大了对人们行动的限制，并启动了大规模的检测活动。为配合政府的行动，康金小区对小区居民出入进行检测登记。小区居民陈成龙下楼倒垃圾被监管小区的防疫志愿者阻扰后，用30公分的刀将防疫志愿者扎伤，伤者被送往中医院，由于医院受疫情影响而关闭，未能及时得到抢救，最终死亡。据知情者透露，陈成龙是刑满释放人员、离异、有吸毒史，并患有有抑郁症，在想离开小区时受到志愿者阻挠后情绪失控，酿成惨祸。同时，知情者也透露，小区的防疫志愿者也利用他们的权力，区别对待居民，连出去买药的正当要求也要剥夺。这就是中共治下的社会，崇拜权力，无视道德良知，连最底层的老百姓之间还要互相倾轧、互相争斗。
 
-[【经济商评】 墙国经济还好吗? （二）疫情经济之“掏肛”经济](https://gnews.org/zh-hans/901073/)
+**[悲剧三](https://www.breitbart.com/asia/2021/02/09/chinese-man-arrested-charges-fatally-stabbing-coronavirus-control-volunteer/)：**
 
-[【经济商评】 墙国经济还好吗? （三）海航集团破产重整](https://gnews.org/zh-hans/901090/)
+[!\[\]()!\[\](https://spark.adobe.com/page/RRByHiC2WAEMn/images/ca6252ff-0016-481b-8f14-25f4315f30e9.jpg?asset_id=ee4b839a-95fa-4ea2-bccd-7d652c889aa3&amp;img_etag=%220ac33c2b45afbee7b06687a7ee73b0a8%22&amp;size=2560)](https://spark.adobe.com/page/RRByHiC2WAEMn/images/ca6252ff-0016-481b-8f14-25f4315f30e9.jpg?asset_id=ee4b839a-95fa-4ea2-bccd-7d652c889aa3&amp;img_etag=%220ac33c2b45afbee7b06687a7ee73b0a8%22&amp;size=1024)
 
-[【经济商评】 墙国经济还好吗? （四）华夏幸福债务违约](https://gnews.org/zh-hans/902538/)
+1月24日，河北省秦皇岛某村，一名男子在被要求接受中共病毒检测时拒绝检查，并用车撞倒了一名防疫人员，逃跑后被拘捕。据中共喉舌《环球时报》报道，中共国一直在采取严格的措施，打击与疫情控制有关的非法行为。因为自2019年底武汉发现首例中共病毒病例以来，全国已有7200多起相关案件，超过11200人被起诉。
 
-[【经济商评】墙国经济还好吗? （五）赖小民死刑与马云“失踪”](https://gnews.org/zh-hans/902575/)
+这些悲剧的发生，说明中共实行的非人性化防疫措施已经导致了严重的社会问题，造成了众多的人道悲剧。人们在长期的经济和健康安全的多重高压下生活，已经疲于应付，人与人之间的矛盾，一触即发。我们能够看到的也仅仅是冰山一角，更多的悲剧每天都在上演，然而，这些都被“防火墙”给屏蔽掉了；被所谓的和谐社会给“和谐”掉了。事实上，这一切一切的根源都源于中共邪恶的病毒超限战计划，都源于中共所谓的“中国梦”的霸权主义野心，而老百姓们都是中共这些“计划”和“梦想”下的牺牲品。
 
-* * *
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
 
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+编辑：【英国伦敦喜庄园编辑部】
 
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+[!\[\]()!\[\](https://spark.adobe.com/page/RRByHiC2WAEMn/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/RRByHiC2WAEMn/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0
