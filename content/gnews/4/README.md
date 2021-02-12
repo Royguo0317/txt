@@ -1,56 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国一名防疫志愿者被刺身亡
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/904010/)
+## 彭佩奥：有重要证据表明新冠病毒来自武汉实验室
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/904027/)
 
-新闻来源：Breitbart《布赖特巴特》| 作者：GABRIELLE REYES | 发布时间：2021年2月9日
+*新闻来源：Breitbart《布赖特巴特》| 作者：特伦·贝克(TRENT BAKER) | 发布时间：2021年2月9日*
 
-翻译/简评：文明明 | 校对：SilverSpurs7 | 审核：万人往 | Page：拱卒
+*翻译/简评：随波逐流 | 校对：helloworld | 审核：万人往 | Page：拱卒*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/dcb8c310-1aab-421f-b7d2-83f454d98e40.jpg?asset_id=20b42079-f72b-436e-8c0b-7a0e6ac6b953&amp;img_etag=%228093b23623cf940dc101d2c93b7c6d1f%22&amp;size=1024)](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/dcb8c310-1aab-421f-b7d2-83f454d98e40.jpg?asset_id=20b42079-f72b-436e-8c0b-7a0e6ac6b953&amp;img_etag=%228093b23623cf940dc101d2c93b7c6d1f%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/9euGNhXDf0NS2/images/94f53a82-6ea7-4887-8061-b4b327eb9be5.jpg?asset_id=ded8273d-e91d-4293-9935-76b6a2829b0a&amp;img_etag=%22b647f54863760f1a9e5d22a6379fbe88%22&amp;size=2560)](https://spark.adobe.com/page/9euGNhXDf0NS2/images/94f53a82-6ea7-4887-8061-b4b327eb9be5.jpg?asset_id=ded8273d-e91d-4293-9935-76b6a2829b0a&amp;img_etag=%22b647f54863760f1a9e5d22a6379fbe88%22&amp;size=1024)
 
 **简评：**
 
-据中共国营媒体《环球时报》2月8日报道，哈尔滨检察院批准逮捕陈成龙，因为他涉嫌在2月3日谋杀一名防疫志愿者，犯有故意杀人罪。陈某因扔垃圾需要离开居住的小区，被小区门卫阻挠后，用刀刺伤门卫并导致其死亡。在此十天前，河北省北部的秦皇岛某村也发生了类似事件，一名男子在被要求接受新冠病毒检测时，用车撞死一名防疫人员。
+美国前国务卿迈克·彭佩奥周二对世界卫生组织拒绝接受冠状病毒来自中共国武汉病毒实验室的说法做出了回应。彭佩奥在福克斯新闻台（Fox News Channel）的“美国新闻编辑室”（America’s Newsroom）节目上说，“没有一件事”改变了他对该病毒起源于武汉的看法，因为“有重要证据”。彭佩奥给出了美国退出世卫组织的原因——世卫组织腐败。他认为世卫组织已经完全政治化，并向中共国国家主席习近平卑躬屈膝，因此根本不能进行独立调查，一切调查都是在中共的监督下执行的，按照中共设计好的路线。
 
-中共国最高人民检察院2月2日表示，自2019年底中共国中部城市武汉发生首例有记录的中共病毒病例以来，全国已有7200多人因相关犯罪被逮捕，超过11200人被起诉。
+从彭佩奥的谈话中可得到的信息是，他似乎很期待世卫组织公布调查结果。美国可能已经知道世卫组织在中共国的全部调查过程以及将要公布的内容，并已掌握足够的证据驳倒他们的说法，就等着和他们对质。
 
-这些刑事案件的发生，说明中共实行的非人性化防疫措施已经导致了严重的社会问题，人们在经济和健康安全的多重高压下生活，已经疲于应付。人与人之间的矛盾一触即发，极容易酿成悲剧。
-
-这一切的根源都源于中共邪恶的病毒超限战计划，不管是老百姓还是党内官员，都是这个计划下的牺牲品。
+无论世卫组织的报告怎么想证明病毒不是来自武汉实验室，这样的结论都不可能成立。因为彭佩奥提到，美国已得到“重要的证据”，表明病毒很可能来自武汉实验室。这不禁让人有很多联想，这些证据可能是数据资料、录音录像、医生或患者的采访，甚至可能有另一个像闫丽梦一样的专家级爆料者将站出来。是否有来自武汉病毒研究所的爆料人？是否有中共国家级领导人要求发动“生物战”的秘密内部指示？如果是这样，中共在实锤证据面前就无从狡辩了，准备接受国际大审判吧！
 
 **原文翻译：**
 
-## 一名中国男子用刀刺杀一名中共病毒防疫志愿者，并致其死亡
+# **世界卫生组织拒绝了冠状病毒来自中共国武汉实验室的说法。前国务卿迈克·彭佩奥周二对此做出了回应。**
 
-周一，中共国东北城市哈尔滨当局逮捕了一名男子。该男子涉嫌在上周刺伤了一名中共病毒防疫工作者，并导致其死亡。
+[!\[\]()!\[\](https://spark.adobe.com/page/9euGNhXDf0NS2/images/a548691f-ae6a-44a4-8566-1839111127d1.jpg?asset_id=2763e08c-0c86-49ff-91f9-39c03b28bed5&amp;img_etag=%22cd0cb7a1b8a16b4473b63a0e399247d8%22&amp;size=2560)](https://spark.adobe.com/page/9euGNhXDf0NS2/images/a548691f-ae6a-44a4-8566-1839111127d1.jpg?asset_id=2763e08c-0c86-49ff-91f9-39c03b28bed5&amp;img_etag=%22cd0cb7a1b8a16b4473b63a0e399247d8%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/ea32acca-9a7a-4b6d-b5e0-1b80ef4a229f.jpg?asset_id=1638956a-b8bc-4727-9394-f3d69c6c5a86&amp;img_etag=%22208abdbf9ae1a743233363c4d9e6e2de%22&amp;size=2560)](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/ea32acca-9a7a-4b6d-b5e0-1b80ef4a229f.jpg?asset_id=1638956a-b8bc-4727-9394-f3d69c6c5a86&amp;img_etag=%22208abdbf9ae1a743233363c4d9e6e2de%22&amp;size=1024)
+世界卫生组织拒绝了冠状病毒来自中共国武汉实验室的说法。前国务卿迈克·彭佩奥周二对此做出了回应。
 
-据中共国营媒体《环球时报》2月8日报道，哈尔滨检察院批准逮捕陈成龙（Chen Chenglong），“因为他涉嫌在2月3日谋杀一名防疫志愿者，犯有故意杀人罪”。
+彭佩奥在福克斯新闻频道(Fox News Channel)的“美国新闻编辑室”(America’s Newsroom)节目上说，“没有一件事”改变了他对该病毒起源于武汉的看法，因为“有重要证据”。
 
-最近，由于哈尔滨地区新冠病毒每日新病例数量激增，当地政府官员加大了对人们行动的限制，并启动了大规模的检测活动。上周三，42岁的防疫志愿者张立彬（Zhang Libin）被派往哈尔滨一个居民小区担任门卫，他曾试图阻止陈某离开小区。
+彭佩奥概述说：“我必须说我们离开世界卫生组织的原因是因为我们相信它是腐败的。它已经被政治化了，已经向中共国国家主席习近平屈膝下跪。我希望他们今天宣布的情况并非如此。我期待着看到他们的报告和分析。但是我不认为他们得到了他们所需的访问权限。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/bc28a513-c5b6-4c48-85da-4e37bf18cd7a.jpg?asset_id=c66cdafb-8296-4340-aa55-c701a6c596ac&amp;img_etag=%22f339d57c903a367abfee7ddf8731e32f%22&amp;size=3666)](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/bc28a513-c5b6-4c48-85da-4e37bf18cd7a.jpg?asset_id=c66cdafb-8296-4340-aa55-c701a6c596ac&amp;img_etag=%22f339d57c903a367abfee7ddf8731e32f%22&amp;size=1024)
+他继续说：“我希望他们能够看到所有数据和科学、进入实验室、与医生交谈、采访他们……在私人的地方，在他们能够说出真相的地方，而不是在一个坐在房间后面的共产党人的监督下，确保他们遵守共产党的路线。因此，我期待着看到他们的结果。我仍然知道有重要的证据，比尔，这些证据表明病毒很可能来自那个实验室。”
 
-《北京新闻》报道称：“张立斌和另一名男子一起执勤时，陈某走过来，说他需要离开小区去扔垃圾。”
+主持人比尔·海默(Bill Hemmer)问道：“那么，你对病毒来源于实验室的看法没因此有任何改变吗？”
 
-引述哈尔滨一名防疫志愿者的话说：“张立彬拒绝让陈某离开小区，并提出要替他处理垃圾。陈某随即拿出一把刀，将其刺伤。”
+彭佩奥总结道：“什么也没有。”
 
-根据哈尔滨公安局的声明，张立彬在被送往当地医院的途中因刀伤死亡。陈某最初逃离案发现场，随后被市警方发现并拘留。
-
-当地刑事检察官说，2月3日发生在哈尔滨的刺杀事件，距1月24日河北省北部的秦皇岛某村所发生的一名男子在被要求接受中共病毒检测时撞死一名防疫人员的事件仅相隔十天。
-
-据《南华早报》报道，这名村民拒绝检查，并且变得非常愤怒，用车撞倒了防疫人员，逃跑后被拘捕。
-
-《环球时报》周一指出：“中共国一直在采取严格的措施，打击与疫情控制有关的非法行为。”
-
-中共国最高人民检察院2月2日表示，自2019年底中国中部城市武汉发生首例有记录的中共病毒病例以来，“全国已有7200多人因相关犯罪被逮捕，超过11200人被起诉”。
-
-新年伊始，位于中共国首都北京周边的河北省为了应对中共病毒病例在该地区激增的情况，政府当局对全省1100万人的出行进行了限制，其中也包括邻近的山西省。1月份，在香港和上海相继爆出中共病毒新增病例后，中共国卫生部对香港的150个住宅小区——近一万名居民——以及上海的主要医院进行了封锁。
-
-🔗[原文链接](https://www.breitbart.com/asia/2021/02/09/chinese-man-arrested-charges-fatally-stabbing-coronavirus-control-volunteer/)
+🔗[原文链接](https://www.breitbart.com/clips/2021/02/09/pompeo-not-a-thing-has-changed-my-suspicion-that-coronavirus-came-from-a-wuhan-lab/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -59,6 +45,6 @@
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/9euGNhXDf0NS2/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/9euGNhXDf0NS2/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
