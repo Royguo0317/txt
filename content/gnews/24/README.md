@@ -1,45 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【经济商评】 墙国经济还好吗? （七）危机重重，何来之好？
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/902634/)
+## 中共病毒造成的人道悲剧正在上演
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/902657/)
 
-五月花写作组 ｜ 作者：商业部 Nanfeng99 ｜ 编辑：文合 ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/02/经纪商评7.jpg)
-通常报纸电视等媒体上讲到经济时都会引用各种经济指标，用经济指标描述经济是比较通用的方法。经济指标是有关经济活动的统计数据，是反映一定社会经济现象数量方面的名称及其数值。 经济现象的名称用经济范畴表述，经济范畴的数量方面则通过数值反映。经济范畴就是对经济本质的概括和反映，通俗的说就是经济概念。 例如，衡量经济总量的国内生产总值（Gross Domestic Product，GDP）就是一个经济范畴，它也是一个常用的经济指标。表现该经济范畴数量方面的名称及其数值就是“国内生产总值（GDP）XX亿元”，这里“国内生产总值（GDP）XX亿元”就是经济指标。再例如，上面引用的经济新闻里说的经济增长率6-8%也是一个经济指标。
+作者：文明明 | 编辑：海阔天空 | Page：小雨
 
-用经济指标描述经济的方法可称为宏观经济数据法，但可能会遇到两个问题。一是经济指标产生于数据统计，数据不准确或造假，统计方法不当，指标就会背离现实或真实。二是经济指标很专业但不形象，一般公众不宜理解。所以，就需要另外的视角来帮助我们尽量形象具体地了解认识经济。从商业看经济就是想通过分析易于了解的商业事件现象来帮大家认识不易看明白的经济问题，可称之为商业案例分析法。
+[!\[\]()!\[\](https://spark.adobe.com/page/RRByHiC2WAEMn/images/caba7eb3-494f-4d04-b9c8-fba1e450987b.jpg?asset_id=c4a87175-9686-41ce-b897-8996e92eba3b&amp;img_etag=%22e3fa361238d4ef487d2b1a2f1b4827ed%22&amp;size=2560)](https://spark.adobe.com/page/RRByHiC2WAEMn/images/caba7eb3-494f-4d04-b9c8-fba1e450987b.jpg?asset_id=c4a87175-9686-41ce-b897-8996e92eba3b&amp;img_etag=%22e3fa361238d4ef487d2b1a2f1b4827ed%22&amp;size=1024)
 
-我们对最近发生的比较重要的商业案例和事件新闻加以分析，如：疫情经济之“掏肛” 经济、海航集团破产重整、华夏幸福债务违约、赖小民死刑与马云遭调查消失、瑞幸咖啡申请破产，发现中共国国内经济情况很糟糕，并不像主流媒体宣传的那样好。
+当世界卫生组织（WHO）的中共病毒起源考察团厚颜无耻地为中共歌功颂德，大赞中共防疫得力，堪称世界典范的同时，墙内正在上演着一出出人道悲剧。
 
-疫情经济表明中国国内经济没有新的增长点，强把防疫、抗疫变成一个个创收产业，这样的经济增长点怎好意思还大张旗鼓地宣扬？海航集团破产重整表明国家和百姓的财富被盗国贼持续不断地窃取转移，留下来的只是一堆烂账和庞大的债务，绚丽掩盖下其实已虚空。华夏幸福债务违约揭露出的是冰山一角，房地产泡沫和隐性债务的巨型隐患如影随行，随时可能引爆。赖小民和马云的事件说明中共国国内的经济只是政治的附庸，大量企业及企业家卷入政治内斗，惶惶不可终日，人人处于围猎中，如何有意愿、有能力去发展经济？瑞幸咖啡申请破产及海外上市公司频遭调查，预示着海外融资圈钱的路子越来越窄，钱少了或没了，擀面杖经济怎能继续撑下去呢？
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-12-at-2.55.15-AM.png)
-短时间内各种负面的经济及商业事件频频涌现，危机重重！如此这般，墙国经济何来之好？！
+**[悲剧一](https://gnews.org/zh-hans/886578/)：**
 
-（完结）
+[!\[\]()!\[\](https://spark.adobe.com/page/RRByHiC2WAEMn/images/d804afae-c655-4569-b81e-3d50a8f55645.png?asset_id=840ba6be-40da-4c4d-9bca-629ca762cdf2&amp;img_etag=%226932f8444571871a7f79dbdbf1f43153%22&amp;size=2560)](https://spark.adobe.com/page/RRByHiC2WAEMn/images/d804afae-c655-4569-b81e-3d50a8f55645.png?asset_id=840ba6be-40da-4c4d-9bca-629ca762cdf2&amp;img_etag=%226932f8444571871a7f79dbdbf1f43153%22&amp;size=1024)
 
-* * *
+孩子发烧到39.8度，医院明明可以马上实施救治，却坚持要等到核酸检测结果出来，才肯给孩子打退烧针。在中共邪恶的体制下，被赞誉为白衣天使的医生也奈何不了上级的指示，残忍地演绎着“草菅人命”；救死扶伤的医院也变成了一架冷冰冰的、只知敛财的机器。孩子幼小的生命就这样在父亲无奈和愤怒的哀嚎中被医生冷漠和麻木地忽视。
 
-### 往期链接：
+**[悲剧二](https://gnews.org/zh-hans/877981/)：**
 
-[【经济商评】 墙国经济还好吗? （一）从商业新闻看经济](https://gnews.org/zh-hans/901039/)
+[!\[\]()!\[\](https://spark.adobe.com/page/RRByHiC2WAEMn/images/7933f2d0-e98e-4969-9fec-4fe62b57af57.png?asset_id=69e8621a-559e-4b42-ab91-15414d2f92ca&amp;img_etag=%22906457949dea465aae4fa6693a33b5c3%22&amp;size=2560)](https://spark.adobe.com/page/RRByHiC2WAEMn/images/7933f2d0-e98e-4969-9fec-4fe62b57af57.png?asset_id=69e8621a-559e-4b42-ab91-15414d2f92ca&amp;img_etag=%22906457949dea465aae4fa6693a33b5c3%22&amp;size=1024)
 
-[【经济商评】 墙国经济还好吗? （二）疫情经济之“掏肛”经济](https://gnews.org/zh-hans/901073/)
+2月3日，哈尔滨市市民陈成龙用刀刺杀了一名防疫志愿者，以故意杀人罪被起诉。事情经过是这样的：由于哈尔滨地区中共病毒每日新病例数量激增，当地政府加大了对人们行动的限制，并启动了大规模的检测活动。为配合政府的行动，康金小区对小区居民出入进行检测登记。小区居民陈成龙下楼倒垃圾被监管小区的防疫志愿者阻扰后，用30公分的刀将防疫志愿者扎伤，伤者被送往中医院，由于医院受疫情影响而关闭，未能及时得到抢救，最终死亡。据知情者透露，陈成龙是刑满释放人员、离异、有吸毒史，并患有有抑郁症，在想离开小区时受到志愿者阻挠后情绪失控，酿成惨祸。同时，知情者也透露，小区的防疫志愿者也利用他们的权力，区别对待居民，连出去买药的正当要求也要剥夺。这就是中共治下的社会，崇拜权力，无视道德良知，连最底层的老百姓之间还要互相倾轧、互相争斗。
 
-[【经济商评】 墙国经济还好吗? （三）海航集团破产重整](https://gnews.org/zh-hans/901090/)
+**[悲剧三](https://www.breitbart.com/asia/2021/02/09/chinese-man-arrested-charges-fatally-stabbing-coronavirus-control-volunteer/)：**
 
-[【经济商评】 墙国经济还好吗? （四）华夏幸福债务违约](https://gnews.org/zh-hans/902538/)
+[!\[\]()!\[\](https://spark.adobe.com/page/RRByHiC2WAEMn/images/ca6252ff-0016-481b-8f14-25f4315f30e9.jpg?asset_id=ee4b839a-95fa-4ea2-bccd-7d652c889aa3&amp;img_etag=%220ac33c2b45afbee7b06687a7ee73b0a8%22&amp;size=2560)](https://spark.adobe.com/page/RRByHiC2WAEMn/images/ca6252ff-0016-481b-8f14-25f4315f30e9.jpg?asset_id=ee4b839a-95fa-4ea2-bccd-7d652c889aa3&amp;img_etag=%220ac33c2b45afbee7b06687a7ee73b0a8%22&amp;size=1024)
 
-[【经济商评】墙国经济还好吗? （五）赖小民死刑与马云“失踪”](https://gnews.org/zh-hans/902575/)
+1月24日，河北省秦皇岛某村，一名男子在被要求接受中共病毒检测时拒绝检查，并用车撞倒了一名防疫人员，逃跑后被拘捕。据中共喉舌《环球时报》报道，中共国一直在采取严格的措施，打击与疫情控制有关的非法行为。因为自2019年底武汉发现首例中共病毒病例以来，全国已有7200多起相关案件，超过11200人被起诉。
 
-[【经济商评】墙国经济还好吗? （六）瑞幸咖啡申请破产](https://gnews.org/zh-hans/902615/)
+这些悲剧的发生，说明中共实行的非人性化防疫措施已经导致了严重的社会问题，造成了众多的人道悲剧。人们在长期的经济和健康安全的多重高压下生活，已经疲于应付，人与人之间的矛盾，一触即发。我们能够看到的也仅仅是冰山一角，更多的悲剧每天都在上演，然而，这些都被“防火墙”给屏蔽掉了；被所谓的和谐社会给“和谐”掉了。事实上，这一切一切的根源都源于中共邪恶的病毒超限战计划，都源于中共所谓的“中国梦”的霸权主义野心，而老百姓们都是中共这些“计划”和“梦想”下的牺牲品。
 
-* * *
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
 
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+编辑：【英国伦敦喜庄园编辑部】
 
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+[!\[\]()!\[\](https://spark.adobe.com/page/RRByHiC2WAEMn/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/RRByHiC2WAEMn/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0
