@@ -1,51 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 史蒂文·奎伊博士致世卫组织病毒调查小组组长安巴雷克的一封信
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/902395/)
+## 邪恶政权的受害者
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/902542/)
 
-**编译: 莫黎**
+*作者：胖丁 | 校对：宁缺 | 审核：海阔天空 | Page:Daoiii*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/00123-7.jpg)**图片: Business Journals **
+[!\[\]()!\[\](https://spark.adobe.com/page/ZWDDkzU3WehN8/images/cdf08f04-8b00-433a-bf8d-2e91f3a3c156.png?asset_id=6f1dbffc-3627-4c51-ba54-d3af705b9b17&amp;img_etag=%2271988a7911a5127a6fedd7e1ae7b46ee%22&amp;size=2560)](https://spark.adobe.com/page/ZWDDkzU3WehN8/images/cdf08f04-8b00-433a-bf8d-2e91f3a3c156.png?asset_id=6f1dbffc-3627-4c51-ba54-d3af705b9b17&amp;img_etag=%2271988a7911a5127a6fedd7e1ae7b46ee%22&amp;size=1024)
 
+我在教会的英语老师曾经分享过她的童年经历：她是德国后裔，父亲曾经在部队服役，负伤退役后带着全家移民北美。她大概五、六岁的时候，有一天突然发现邻居的小伙伴们都不跟她玩了。问过之后才知道，是小朋友的妈妈不让孩子跟她玩。她跑回家告诉妈妈，妈妈什么也没有说。后来长大之后她才明白，因为她们是德国后裔，邻居是欧洲后裔，自己的国家饱受德国的蹂躏，对德国纳粹切齿痛恨。虽然知道她们是无辜的，但她来自那个曾经被恶魔统治的国家，还是从心理上排斥她。
 
+说者无心，听者有意。我记住了这个故事，因为身边不时就有排华事件。不管发生什么事情，只要当事者拥有亚裔面孔，所有人都会认为是中国人，很少指向亚洲其他国家。而同样的事情如果发生在其他族裔，就会轻描淡写地过去。华人被“特别对待”，大家似乎都见怪不怪，排华似乎在各国都可以接受。很少有政府官员为了华裔群体而起身呼吁，没有原因，只有结果。因此我总是说话小心，做事谨慎，生怕惹上麻烦。
 
-亲爱的安巴雷克博士：
+但是再小心翼翼，走路都怕踩着蚂蚁，该发生的事情还是会发生。2021年1月19日，美国国务卿蓬佩奥先生在卸任的前一天，宣布中国共产党对新疆维吾尔族人的残酷迫害已经犯下“种族灭绝与反人类罪”。这是等同于当年德国纳粹的罪行，消息一出，石破天惊！
 
-希望您能收到这封电子邮件。
+二战时期，德国纳粹对犹太人实施了惨绝人寰的种族大屠杀，导致六百万犹太人在这场浩劫中失去了生命。1945年1月27日，位于波兰的最大的一所奥斯维辛集中营被苏联红军攻破，几千名如骷髅般奄奄一息的幸存者揭示了这是一座曾经残害过无数生命的人间地狱。而类似这样的集中营，德国纳粹在欧洲修建了大约两万座。
 
-当我在世卫组织关于此次疫情来源的访谈中读到您将实验室事故或实验室诱发感染（LAI）发生的频率描述为罕见时，我感到很惊讶，而更惊讶的是，您用此类数据排除了新冠病毒(SARS-CoV-2)大流行是实验室起源。
+这是人类历史上最黑暗的一段时期。2005年，联合国大会通过决议，指定1月27日，就是奥斯维辛集中营被解放的那一天为“国际大屠杀纪念日“。每一年的这一天，世界各地都会举行各种悼念活动，为了缅怀遇难者和提醒后人不忘那段惨痛的历史。
 
-请浏览以下网址的一篇论文，该论文记录了亚洲在20年内每年发生实验室感染的频率为0.8。我希望在读过这篇论文后，您可以考虑修改您对此类事件描述为罕见的定性。
+圣经里提到：“已有的事，后必再有，日光之下并无新事。”就在二战结束的七十六年之后，尚有极少数纳粹集中营的幸存者还在世，而中共又被爆出在新疆实施了更加残酷的种族灭绝和种族大屠杀。上百万新疆维吾尔族人被关进了所谓的再教育集中营。他们被强迫接受所谓的“去极端化”教育，被迫放弃自己本民族的信仰、文化和饮食，接受汉族习俗。儿童被强制跟父母分开，女人被强迫堕胎、绝育，或者被迫与汉人通婚，接受所谓的基因改造。
 
-[A Review of Laboratory-Acquired Infections in the Asia-Pacific: Understanding Risk and the Need for Improved Biosafety for Veterinary and Zoonotic Diseases](http://A%20Review%20of%20Laboratory-Acquired%20Infections%20in%20the%20Asia-Pacific:%20Understanding%20Risk%20and%20the%20Need%20for%20Improved%20Biosafety%20for%20Veterinary%20and%20Zoonotic%20Diseases)
+其实不只在新疆，在中共非法执政的七十年间，历次政治运动、所谓的三年自然灾害、文化大革命等等人为灾难中的非正常死亡人数加起来已经超过上亿人。我曾经跟本地人分享过中共执政的暴行和普通百姓生活的难处，没人相信我，因为中共的邪恶已经超出了常人的思维。在民主自由的国家生活的人们很难想象中共国的残暴，也不理解为什么华人绵绵不断地移民海外生活。因为在中共国没有法制，没有安全，人祸降临的可能性远远大于天灾。只要有条件，能离开的都离开了。不是我们不爱自己的祖国，是CCP共产党的残暴迫使我们背井离乡。
 
+爆料革命新中国联邦的发起人郭文贵先生从2017年开始就持续不断地揭露中国共产党在新疆实施的种族灭绝行为和非法治国的残暴，包括在香港一直进行的大屠杀。但是在中共的“蓝金黄“面前，全世界装聋作哑，统一静默。除了郭媒体和班农战斗室，没有几家媒体敢站出来报道事实真相。这一次美国宣布了中共国的罪行，把CCP定义为”种族灭绝与反人类“的犯罪组织，可以预见的将来，CCP必将在全世界正义力量的绞杀中灭亡。
 
+[!\[\]()!\[\](https://spark.adobe.com/page/ZWDDkzU3WehN8/images/28a0d45f-74d8-493a-ba27-875efb138eb3.jpg?asset_id=e571dd4c-23be-4d06-814c-ed0e0ecfa239&amp;img_etag=%2298a4996b862dccb8fe190665524799c1%22&amp;size=2560)](https://spark.adobe.com/page/ZWDDkzU3WehN8/images/28a0d45f-74d8-493a-ba27-875efb138eb3.jpg?asset_id=e571dd4c-23be-4d06-814c-ed0e0ecfa239&amp;img_etag=%2298a4996b862dccb8fe190665524799c1%22&amp;size=1024)
 
-我还烦请您注意我所进行的贝叶斯分析，尽管开始时人畜共患病的先验概率大于98％，但在检查了26个证据链后得出实验室逃出的可能性大于99％。这篇论文已被浏览了86000多次，而且我收到了来自顶尖科学家的数十条评论，他们都没有对基本结论提出质疑。 这篇193页的论文可以在以下链接找到:
+同样也可以预见，未来我很有可能也会遭遇到我英语老师的经历，被不明真相的人们误解或排斥。感恩爆料革命新中国联邦，持续不断地告诉全世界：中国人不等于CCP，中国老百姓是CCP邪恶政权的受害者。为了我们自身的安全和子孙后代的生存，Take down the CCP。
 
-[A Bayesian analysis concludes beyond a reasonable doubt that SARS-CoV-2 is not a natural zoonosis but instead is laboratory derived](http://A%20Bayesian%20analysis%20concludes%20beyond%20a%20reasonable%20doubt%20that%20SARS-CoV-2%20is%20not%20a%20natural%20zoonosis%20but%20instead%20is%20laboratory%20derived)
-
-对我来说，新闻发布会上最没有科学依据的部分是新近报道的事实，即超过60,000个各种潜在的中间宿主动物样本已被检测，没有一个对SARS-CoV-2呈阳性。尽管这个非常有力的数据表明没有中间宿主，但您还是得出结论，极有可能来自中间宿主。如您所知，SARS-COV-1和MERS的中间宿主一旦被确认，就有超过90%的阳性率。
-
-如果我要在法庭上向陪审团辩论病毒来自实验室，(那么)让统计学家告诉我，当我的取样大于60,000个，却没有得到任何阳性样本（约0.005%）时，中间宿主人群的患病率是多少，这将是一个胜利的论点。
-
-在我看来历史是漫长的，对于任何出于政治上的便利而对(病毒)起源做出非基于科学的定论，那么历史都将会对此做出严厉的评判。期待您的回复。
-
-祝好，
-
-史蒂文
-
-—
-
-医学博士史蒂文·奎伊（Steven Quay）
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-**原文来自史蒂文·奎伊博士的推文，如图: **
-![]()![](https://gnews.org/wp-content/uploads/2021/02/image0-77.jpg)
-* * *
-
-发布: 法国巴黎七星编辑组
+[!\[\]()!\[\](https://spark.adobe.com/page/ZWDDkzU3WehN8/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/ZWDDkzU3WehN8/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

@@ -1,104 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CBN 新闻：中共国是自由和民主的最大威胁
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/902564/)
+## 中共病毒造成的人道悲剧正在上演
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/902657/)
 
-新闻简述：据CBN2021年2月5日报道：美国智库警告中共国是美国最大的敌人，美国应该对与北京的无限期的对抗做好准备。
+作者：文明明 | 编辑：海阔天空 | Page：小雨
 
-**CBN News: Communist China Is the Greatest Threat to Freedom and Democracy**
+[!\[\]()!\[\](https://spark.adobe.com/page/RRByHiC2WAEMn/images/caba7eb3-494f-4d04-b9c8-fba1e450987b.jpg?asset_id=c4a87175-9686-41ce-b897-8996e92eba3b&amp;img_etag=%22e3fa361238d4ef487d2b1a2f1b4827ed%22&amp;size=2560)](https://spark.adobe.com/page/RRByHiC2WAEMn/images/caba7eb3-494f-4d04-b9c8-fba1e450987b.jpg?asset_id=c4a87175-9686-41ce-b897-8996e92eba3b&amp;img_etag=%22e3fa361238d4ef487d2b1a2f1b4827ed%22&amp;size=1024)
 
-**CBN 新闻：中共国是自由和民主的最大威胁**
+当世界卫生组织（WHO）的中共病毒起源考察团厚颜无耻地为中共歌功颂德，大赞中共防疫得力，堪称世界典范的同时，墙内正在上演着一出出人道悲剧。
 
-**Chris Mitchell: **China is the greatest threat to freedom and democracy. That warning came from the former top U.S. intelligence official, who said America should also prepare for an open-ended period of confrontation with Beijing. George Thomas has the details.
+**[悲剧一](https://gnews.org/zh-hans/886578/)：**
 
-**克里斯·米切尔**：中国是对自由和民主的最大威胁。这是来自美国前高级情报官员的警告。他说美国应该对与北京的无限期的对抗做好准备。请看乔治•托马斯的详细报告。
+[!\[\]()!\[\](https://spark.adobe.com/page/RRByHiC2WAEMn/images/d804afae-c655-4569-b81e-3d50a8f55645.png?asset_id=840ba6be-40da-4c4d-9bca-629ca762cdf2&amp;img_etag=%226932f8444571871a7f79dbdbf1f43153%22&amp;size=2560)](https://spark.adobe.com/page/RRByHiC2WAEMn/images/d804afae-c655-4569-b81e-3d50a8f55645.png?asset_id=840ba6be-40da-4c4d-9bca-629ca762cdf2&amp;img_etag=%226932f8444571871a7f79dbdbf1f43153%22&amp;size=1024)
 
-**Host (George Thomas): **Napoleon Bonaparte, the French military leader said more than two centuries ago that China is a sleeping lion, let her sleep, for when she wakes, she will shake the world. China’s President Xi Jinping has emphatically declared that the lion has awakened.
+孩子发烧到39.8度，医院明明可以马上实施救治，却坚持要等到核酸检测结果出来，才肯给孩子打退烧针。在中共邪恶的体制下，被赞誉为白衣天使的医生也奈何不了上级的指示，残忍地演绎着“草菅人命”；救死扶伤的医院也变成了一架冷冰冰的、只知敛财的机器。孩子幼小的生命就这样在父亲无奈和愤怒的哀嚎中被医生冷漠和麻木地忽视。
 
-**主持人（乔治·托马斯）**：法國軍事領袖拿破崙•波拿巴兩個多世紀前說過：中國是一頭沉睡的獅子，讓她睡吧，因為當她醒來時，她將震撼世界。中[共]國國家主席習近平最近斷然宣布，獅子已經醒來。
+**[悲剧二](https://gnews.org/zh-hans/877981/)：**
 
-John Ratcliffe, Director of National Intelligence wrote in a recent wall street journal editorial that China is America’s number one national security threat, and that Beijing intends to dominate the rest of the planet economically, militarily, and technologically. Michael O’hanlon is with Brookings Institute.
+[!\[\]()!\[\](https://spark.adobe.com/page/RRByHiC2WAEMn/images/7933f2d0-e98e-4969-9fec-4fe62b57af57.png?asset_id=69e8621a-559e-4b42-ab91-15414d2f92ca&amp;img_etag=%22906457949dea465aae4fa6693a33b5c3%22&amp;size=2560)](https://spark.adobe.com/page/RRByHiC2WAEMn/images/7933f2d0-e98e-4969-9fec-4fe62b57af57.png?asset_id=69e8621a-559e-4b42-ab91-15414d2f92ca&amp;img_etag=%22906457949dea465aae4fa6693a33b5c3%22&amp;size=1024)
 
-美国国家情报总监约翰•拉特克利夫最近在《华尔街日报》的一篇社论中写道：中国是美国国家安全的头号威胁，北京打算在经济、军事和技术上主宰世界其它地区。迈克尔•奥汉龙就职于布鲁金斯学会。
+2月3日，哈尔滨市市民陈成龙用刀刺杀了一名防疫志愿者，以故意杀人罪被起诉。事情经过是这样的：由于哈尔滨地区中共病毒每日新病例数量激增，当地政府加大了对人们行动的限制，并启动了大规模的检测活动。为配合政府的行动，康金小区对小区居民出入进行检测登记。小区居民陈成龙下楼倒垃圾被监管小区的防疫志愿者阻扰后，用30公分的刀将防疫志愿者扎伤，伤者被送往中医院，由于医院受疫情影响而关闭，未能及时得到抢救，最终死亡。据知情者透露，陈成龙是刑满释放人员、离异、有吸毒史，并患有有抑郁症，在想离开小区时受到志愿者阻挠后情绪失控，酿成惨祸。同时，知情者也透露，小区的防疫志愿者也利用他们的权力，区别对待居民，连出去买药的正当要求也要剥夺。这就是中共治下的社会，崇拜权力，无视道德良知，连最底层的老百姓之间还要互相倾轧、互相争斗。
 
-**Michael E. O’hanlon: **It is the way a great power with a non-democratic government chooses to seek to extend its influence worldwide.
+**[悲剧三](https://www.breitbart.com/asia/2021/02/09/chinese-man-arrested-charges-fatally-stabbing-coronavirus-control-volunteer/)：**
 
-**迈克尔·奥汉隆**：这是一个非民主政府的大国在世界范围内寻求扩大影响力的方式。
+[!\[\]()!\[\](https://spark.adobe.com/page/RRByHiC2WAEMn/images/ca6252ff-0016-481b-8f14-25f4315f30e9.jpg?asset_id=ee4b839a-95fa-4ea2-bccd-7d652c889aa3&amp;img_etag=%220ac33c2b45afbee7b06687a7ee73b0a8%22&amp;size=2560)](https://spark.adobe.com/page/RRByHiC2WAEMn/images/ca6252ff-0016-481b-8f14-25f4315f30e9.jpg?asset_id=ee4b839a-95fa-4ea2-bccd-7d652c889aa3&amp;img_etag=%220ac33c2b45afbee7b06687a7ee73b0a8%22&amp;size=1024)
 
-**Host: **Ratcliffe accuses China of deploying what he calls a rob, replicate, and replace approach in its ambitions to dominate the world.
+1月24日，河北省秦皇岛某村，一名男子在被要求接受中共病毒检测时拒绝检查，并用车撞倒了一名防疫人员，逃跑后被拘捕。据中共喉舌《环球时报》报道，中共国一直在采取严格的措施，打击与疫情控制有关的非法行为。因为自2019年底武汉发现首例中共病毒病例以来，全国已有7200多起相关案件，超过11200人被起诉。
 
-**主持人**：拉特克利夫指责中共国采用了抢劫、复制和替换的战略来实现其主宰世界的野心。
+这些悲剧的发生，说明中共实行的非人性化防疫措施已经导致了严重的社会问题，造成了众多的人道悲剧。人们在长期的经济和健康安全的多重高压下生活，已经疲于应付，人与人之间的矛盾，一触即发。我们能够看到的也仅仅是冰山一角，更多的悲剧每天都在上演，然而，这些都被“防火墙”给屏蔽掉了；被所谓的和谐社会给“和谐”掉了。事实上，这一切一切的根源都源于中共邪恶的病毒超限战计划，都源于中共所谓的“中国梦”的霸权主义野心，而老百姓们都是中共这些“计划”和“梦想”下的牺牲品。
 
-**Michael E. O’hanlon:** It’s been well known for decades that China tries to copy the industry of other countries and then takes it to scale, makes it more efficient, and largely operates, sort of built its way up through the global economic ranks with that approach.
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-**迈克尔·奥汉隆**：几十年来，众所周知，中国试图复制其它国家的工业，然后将其发展成具有更加高效和更大生产规模的，一种名列全球经济前茅的中国特色工业。
 
-**Host: **China’s foreign ministry dismisses Radcliffe’s claims while accusing Washington of unnecessary playing the China threat.
+编辑：【英国伦敦喜庄园编辑部】
 
-**主持人**：中共外交部在反驳拉特克利夫的同时，指责华盛顿没有必要宣扬中国威胁论。
+[!\[\]()!\[\](https://spark.adobe.com/page/RRByHiC2WAEMn/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/RRByHiC2WAEMn/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
-**Chunying Hua: **The relevance article with his sensational title does not present any solid evidence at all. It offered nothing new but repeating the lies and rumors to smear China.
-
-**华春莹**：这篇具有耸人听闻标题的文章根本没有提供任何确凿的证据，该文章除了陈词滥调外，就是不断地重复诽谤中国的谎言。
-
-**Host: **CBN News has documented China’s rise for more than two decades. Fast forward to 2020, as we examine how China’s President Xi Jinping has been massively overhauling the country’s military, economy, and political influence as part of his great rejuvenation project.
-
-**主持人：CBN新闻纪录了中国崛起长达20多年之久。当把记录带快进到2020年时，让我们来看看中共国家主席习近平是如何大规模地翻新该国的军事、经济和政治影响力，以此作为他伟大复兴计划的一部分。**
-
-**Tom Miller: **We should put it into sort of Trumpian terms, means to make China great again.
-
-**汤姆·米勒**：我们用川普式语言来说，就是：让中共再次变得伟大。
-
-**Host: **Tom Miller documents China’s rise in the book “China’s Asian Dream”. Miller says since taking the reins, she has been on a trajectory of preparing China to be the world’s dominant power.
-
-**主持人**：汤姆•米勒在《中国的亚洲梦》一书中纪录了中国式的崛起。米勒说，自从抓住了掌控权，中[共]国便开始为其成为世界主导力量而做准备。
-
-**Tom Miller: **China has been very very deliberately trying to realize its kind of ambition to become the global superpower.
-
-**汤姆·米勒：中国一直以来都非常刻意地试图实现其成为全球超级大国的野心。**
-
-**Host: **Chinese scholars say it’s also part of Xi’s deep belief that his country has a divine right to rule the world.
-
-**主持人**：中国学者说，这也是习近平最深的信仰，那就是，他的国家有统治世界的神圣使命。
-
-**Gordon Chang: **The mandate of heaven is from China’s imperial past, where Chinese emperors believed that they not only had the right, but they were compelled by heaven to rule the world. And there’s this notion of “Tian Xia” or “all under heaven”.
-
-**章家敦**：这个天命来自中国的皇权时代。中国的皇帝们认为，他们不仅拥有这个权利而且上天驱使着让他们统治世界。有一个词叫“天下”。
-
-**Host: **One way, is by military force. As Commander-In-Chief of the world’s largest fighting force, Xi has remade China’s People’s Liberation Army or PLA into a military, rapidly closing the gap on U.S. firepower. The Pentagon revealing for the first time that China now has the world’s largest navy and plans to double its nuclear warhead arsenal in this decade, which includes ballistic missiles that can reach the United States.
-
-**主持人**：一个途径就是通过武力。作为世界上具有最大军事力量的总司令，习对中国人民解放军，即 PLA，进行了改造，使其迅速缩小与美国军力的差距。五角大楼首次披露：中国现在拥有世界上最大的海军，并计划在10年内将其武器库增加一倍，其中包括那些能够打到美国的核弹道导弹。
-
-**Chad Sbragia:** It’s likely that China will seek to build a military that is equal to or in some cases superior to the U.S. military or the military of any other great power that China perceives as a potential threat.
-
-**乍得·布拉尼亚**：中国很可能会寻求建立一支军队，它是具有与美国同等水平甚至还可能超越美国，或者超越任何一个被认为对中国有潜在威胁的超级军事力量的中国军队。
-
-**Host: **O’Hamlon says China’s capabilities in emerging technologies such as robotics, artificial intelligence, and next generation technology and telecommunications now rival that of the United States.
-
-**主持人**：奥哈姆龙说，中国在新兴技术，如机器人、人工智能，以及下一代技术和电信方面的能力现在已经可与美国媲美。
-
-**Michael E. O’hanlon: **If we used to be ahead of China by, you know, half a lap on the proverbial track, now we’re ahead by maybe a few strides, and China is maybe even closing the gap further as we go.
-
-**迈克尔·奥汉隆**：如果我们以前领先中国，比方说，如果我们在跑道上领先中国半圈的话，那么现在，我们只领先几步了，而中国甚至还可以在赛跑的过程中继续缩小差距。
-
-**Host: **Ratcliffe insists that resisting China’s ambitions of becoming an economic, military, and technological superpower will be the challenge of our generation and warns that America should prepare for an open-ended period of confrontation with Beijing.
-
-**主持人**：拉特克利夫坚称，抵制中[共]国成为经济、军事和技术超级大国的野心，将是我们这一代人的挑战，他警告说：美国应该做好与北京进行无限期对抗的准备。
-
-George Thomas, CBN News
-
-乔治•托马斯，CBN新闻
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-
-听写 & 翻译：【奔腾的长江】校对：【Isaiah4031】字幕：【奔腾的长江】编辑：【Isaiah4031】
-
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
-
-+1
+0

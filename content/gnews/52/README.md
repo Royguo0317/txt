@@ -1,31 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP病毒导致半导体芯片危机
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/902114/)
+## 2/11/2021 财经快讯：抖音海外版Tiktok出售被搁置；中共国与澳洲煤炭战争
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/902237/)
 
-编撰：喜马拉雅文白
-![]()![](https://www.gnews.org/wp-content/uploads/2021/02/image001-7.jpg)
-现在看来，半导体短缺正在从汽车行业的顽固之痛，变成一场全面的危机，也影响到手机和游戏机等消费电子产品。据彭博社报道，现在被称为”多年来最严重的短缺”，高通公司的CEO上周表示，现在 “全面”出现了短缺。但不仅仅是高通高管在发声：最近几周，其他行业领导者也警告说，他们容易受到短缺的影响。苹果公司最近表示，由于组件短缺，其新的高端iPhone手机被搁置。恩智浦半导体也警告称，问题不再仅仅局限于汽车行业。索尼上周也表示，由于短缺，可能无法完全满足2021年新游戏机的需求。联想等公司也已经感受到了紧缺。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/02/image002.png)
-Strategy Analytics的分析师尼尔·莫斯顿说。”病毒流行、工厂的社会疏远，以及来自平板电脑、笔记本电脑和电动汽车的竞争飙升，导致智能手机组件供应出现了多年来最艰难的状况。”莫斯顿表示，过去6个月，一些智能手机组件的价格涨幅高达15%。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/02/Picture1-12.png)
+图片来源： [https://securityboulevard.com/](https://securityboulevard.com/)
 
-处于短缺中心的是台湾及其最大的公司台湾半导体制造有限公司。该公司现在正处于中国和台湾之间更大的政治危机之中，而美国的拜登官员正在努力寻找解决方案，不仅是半导体问题，而且是两国之间发展的更大冲突。
+1.**抖音海外版Tiktok出售被搁置**
 
-更糟糕的是，华为被指责在2020年囤积元器件（几乎就像他们知道会发生这种情况一样）。这引发了其他厂商也这样做。根据该报告。行业高管还指责过度囤积，这始于夏季，当时华为技术有限公司–一家主要的智能手机和网络设备制造商–开始囤积元器件，以确保其在美国的严重制裁中生存。在华为的带动下，中共国各类芯片的进口额在2020年攀升至近3800亿美元–几乎占到了中共国当年整体进口额的五分之一。 包括苹果在内的竞争对手担心自己的库存，纷纷做出回应。与此同时，台积电高管在最近的两次财报电话会议上表示，客户一直在积累比正常情况下更多的库存，以对冲不确定性，他们认为这种做法将持续一段时间。
-![]()![](https://www.gnews.org/wp-content/uploads/2021/02/image003-7.png)
-虽然对消费电子的损害程度还有待观察，但预计短缺将使汽车行业损失价值610亿美元的销售额。回顾一下，我们在几天前就注意到，由于短缺，通用和福特已经和日产一起减产。据StreetInsider报道，周三中午，美国汽车制造商宣布，短缺将 “影响2021年的生产”。该公司在一份声明中表示，”全球汽车行业的半导体供应仍然非常不稳定”。它继续说道。”我们的供应链组织正在与我们的供应基地密切合作，为我们供应商的半导体需求找到解决方案，并减轻对通用汽车的影响。尽管我们做出了缓解努力，但半导体短缺将影响通用汽车2021年的生产。”该汽车制造商表示，”目前正在评估整体影响，但我们的重点是继续为客户生产我们需求量最大的产品–包括全尺寸卡车和SUV以及科沃兹。”
+据华尔街日报报道，由于拜登政府对其前任领导下的中共国科技公司构成的国家安全风险需要进行更广泛的审查，这导致TikTok被强制出售给沃尔玛和甲骨文计划被无限期搁置。
 
-日产周三还宣布，它已经成为短缺的受害者。因此，日产表示，由于芯片短缺，它将暂停密西西比州工厂的部分卡车生产。据雅虎财经报道，日产在北美的工厂正在努力进行 “短期生产调整”。此次停产是从密西西比州坎顿工厂的三个非生产日开始的。如果半成品短缺继续对业务造成负面影响，进一步的延误可能会继续。还注意到，就在几个小时前，福特还宣布在芝加哥装配厂进行更多的减产和临时裁员。最近一轮的裁员也被归结为半导体的供应链中断。
+美国前总统特朗普去年下令将中共国企业字节跳动拥有的抖音海外版应用Tiktok出售给一家美国公司，理由是该应用中的用户数据会落入中共国当局手中而对美国国家安全造成威胁。
 
-CCP病毒对供应链的打击是毁灭性的，半导体芯片只是冰山一角。CCP病毒造成了全球供应的突然中断到间歇性中断，它主要的本质是塑造垄断性的供应链，中共专制独裁的体制，掌控墙内十四亿人力和资源，收买胁迫东南亚国家和非洲国家，蓝金黄手段窃取西方的知识产权和技术。廉价劳动力、先进的技术、权力的集中这些因素加在一起能够使得中共垄断一部分不可或缺的供应链，进而掌控议价权。台湾是中共掌握全球芯片制造业生产，先进军事装备和优秀人才的突破口，台湾也是中共转移内部矛盾，解决假擀面经济的优先手段。中共用CCP病毒攻击全世界造成混乱后，还将威胁全球并造成更大的伤害。
+[https://adage.com/article/digital/tiktoks-sale-walmart-oracle-shelved-while-biden-assesses-threat-wsj/2313326](https://adage.com/article/digital/tiktoks-sale-walmart-oracle-shelved-while-biden-assesses-threat-wsj/2313326)
 
+**2.缅甸政变对本已脆弱的经济复苏造成威胁**
 
+缅甸政变宣告短暂的民主进程已经结束，这一事件危及了数十亿美元的外国投资。 欧盟和美国的强硬表态有可能将缅甸进一步推向中共国的经济怀抱。
 
-**[原文链接](https://www.zerohedge.com/markets/semi-chip-shortage-turning-crisis)**
+缅甸军方本月早些时候夺取了对该国的控制权，声称11月举行的给昂山素季的全国民主联盟带来了压倒性胜利的选举存在舞弊。这导致缅甸举行了十多年来全国规模最大的抗议活动，数以万计的民众走上街头反对这次政变。
 
-【文章仅限作者个人观点】
+[https://www.dw.com/en/myanmar-coup-economic-impact/a-56502199](https://www.dw.com/en/myanmar-coup-economic-impact/a-56502199)
 
-**编辑：喜马拉雅农场联盟新西兰奥克兰伊甸农场**
+**3.受疫苗提振需求，石油迎来两年来最长的反弹行情**
+
+纽约（路透社）- 由于受到石油输出国供应削减和疫苗将推动需求复苏的预期，周三油价的上涨将其反弹延长到第九天，这是两年来最长的连续上涨纪录。
+
+美国原油库存下降也是一个因素，美国能源信息署的数据显示，上周原油库存连续第三周下跌，下降了660万桶至4.69亿桶，为去年3月份以来的最低水平。
+
+[https://www.reuters.com/article/us-global-oil-idUSKBN2AA050](https://www.reuters.com/article/us-global-oil-idUSKBN2AA050)
+
+**4.由于通胀放缓和较低的国债收益率，美元跌至两周低点**
+
+纽约（路透社）-周三，随着数据显示美国通胀放缓和较低的国债收益率，
+美元对英镑和欧元下跌至两周低点。美国基准10年期收益率为1.137％，比周二的水平下降约2个基点。
+
+美联储主席杰罗姆-鲍威尔在周三保持了一个温和的基调，并确认美国央行将保持利率在当前水平，直到经济达到最大就业和通胀率保持在2％以上一段时间。
+
+[https://www.reuters.com/article/global-forex/forex-dollar-slides-to-two-week-low-as-tame-inflation-u-s-yields-weigh-idUSL1N2KG27X](https://www.reuters.com/article/global-forex/forex-dollar-slides-to-two-week-low-as-tame-inflation-u-s-yields-weigh-idUSL1N2KG27X)
+
+**5.美国股市连跌二天**
+
+2月11日，随着投资者评估了最新通胀数据对经济刺激前景的影响，美国股市在达到创纪录高度之后连续第二天小幅下跌，上个月核心消费物价指数维持不变，10年期国债收益率回落至1.15%以下。
+
+尽管1月份的CPI数字很低，但投资者仍然担心随着国会通过援助法案，更多的疫苗接种刺激消费者支出，未来几个月价格压力将增加，通胀飙升可能迫使美联储诉诸于收益率曲线控制。
+
+[https://finance.yahoo.com/news/global-stock-rally-stalls-dollar-230616352.html](https://finance.yahoo.com/news/global-stock-rally-stalls-dollar-230616352.html)
+
+**6.中共国与澳大利亚的煤炭战争**
+
+中共国对澳大利亚煤炭进口的禁令加剧了国内煤炭市场的危机。事情起源于澳洲当局要求对CCP病毒的起源进行独立的全球调查，此举惹怒了中共。中共因此在9月份左右开始实施一项非正式的禁令，迫使澳大利亚煤炭船搁置在海上，禁止他们入关。中共国在12月中旬与全国主要电力生产商举行的一次会议上正式宣布了禁运澳洲煤炭，这些电力生产商都是澳洲煤炭的大买家，这项禁令敦促这些公司从澳大利亚以外的任何地方增加进口煤炭，这些公司不得不支付高额保费，自去年中以来，这些其它地区进口的煤炭价格已经上涨了84%。
+
+[https://www.wsj.com/articles/chinas-coal-war-with-australia-fuels-shortage-at-home-11612953005?redirect=amp#click=https://t.co/qB8FHwcoFl](https://www.wsj.com/articles/chinas-coal-war-with-australia-fuels-shortage-at-home-11612953005?redirect=amp#click=https://t.co/qB8FHwcoFl)
+
+**7.中共国1月CPI同比下降0.3%？**
+
+2月10日，中共国国家统计局发布的最新数据显示，2021年1月份，全国居民消费价格（CPI）同比下降0.3%。其中，食品价格上涨1.6%，非食品价格下降0.8%。
+
+今年2月份过春节，加之局部散发疫情影响，1月份居民出行及一些接触式服务消费均有减少，出行类服务价格同比下降较多，其中飞机票和旅行社收费价格同比分别下降33.2%和9.9%。
+
+评：中共国利用旅游服务价格的大幅下跌来对冲老百姓生活成本特别是食品价格的飙升，要知道食品价格占CPI里面30％的权重，表面上CPI的负增长，背后民生压力并没有真正减轻，反而更重！
+
+[https://ishare.ifeng.com/c/s/v004SYDrbqR37G7Sjs4mUEtFexjBEfdyuQ5vIURCQU4sAMr00hgzz2vhZbCZKyJzpSHyXETTOITCCvxgz2PZOq1JOw\_\_\_\_?spss=np&aman=1co40flc67Cef8G49bp4b6rd74Tc6fq418Le01o305](https://ishare.ifeng.com/c/s/v004SYDrbqR37G7Sjs4mUEtFexjBEfdyuQ5vIURCQU4sAMr00hgzz2vhZbCZKyJzpSHyXETTOITCCvxgz2PZOq1JOw____?spss=np&amp;aman=1co40flc67Cef8G49bp4b6rd74Tc6fq418Le01o305)
+
+By 【Financial Team-小蚂蚁在行动】
+
+News Collection: Wendy 、文罡、Sharon
+
+Proofreading: Tracy
 
 0

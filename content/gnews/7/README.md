@@ -1,43 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香草播报：【军事快讯】美欧英将制裁缅甸军事政变领导人
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/903027/)
+## 美国疾控预防中心CDC强推新冠疫苗 可以结束大流行？
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/903074/)
 
-作者：纽约香草山写作组 Wilson
+**翻译者：冰糖葫芦喵**
+
+英文原文新闻链接：[CDC: Fully vaccinated people don’t need to quarantine after COVID exposure | TheHill](https://thehill.com/policy/healthcare/538384-cdc-fully-vaccinated-people-dont-need-to-quarantine-after-covid-exposure)
+
+**据国会山报报道：**“美国疾控中心在本周三的指导意见中表示：完全接种过辉瑞或者莫德纳公司疫苗，并且自第二次接种两周之后。符合这些标准的接种者，以后在接触疑似或者确诊是冠状病毒患者，都不需要再隔离。”
+
+疾控中心还表示，因为不清楚防护措施能持续多久，人们在接种第二针后已经超过三个月，而且也暴露在病毒之下的，也应该进行隔离。如果出现了冠状病毒症状了，人们一定要进行隔离。
+
+美国疾病控制与预防中心表示:“对具有疫苗衍生免疫力的人取消隔离的建议与对具有自然免疫力的人取消隔离的建议一致，这有助于实施。”
+![]()![](https://gnews.org/wp-content/uploads/2021/02/美国疾控中心CDC-e1613095796301.jpg)
+图片来源：凯文·考克斯/盖蒂图片社
+
+该机构坚持认为，接种疫苗的人应该继续遵循所有其他健康指导，包括戴口罩和尽可能保持社交距离。研究表明，那些已经接种过疫苗的人仍然可能在他们的鼻子和喉咙中携带病毒，并将其传播给他们周围的人。
+
+截止现在，病例和死亡人数仍然很高。根据冠状病毒跟踪项目(COVID – 19 Tracking Project)的最新数据显示，周三美国新增病例超过9.5万例，仅周二就有3445人死亡。
+
+新的指导方针出台之际，疫苗生产为结束大流行带来了一线希望。
+
+美国辉瑞疫苗和莫德纳疫苗的上市已经加速，未来几周可能会有更多的注射获得批准。
+
+**【观点】：**
+
+**然而，笔者对美国疾控中心做出的这一指导意见有诸多的疑问**：
+
+**世卫和美国医学界没有追溯到病毒的起源并进行彻底调查**
+
+越来越多的人相信这个病毒是来自实验室，是一种功能增强的经过实验室人工编辑的病毒。这种病毒修改和编辑的密码并没有得到破解。
+
+到目前为止，病毒除了已经显现的特性之外，其他隐藏的功能不得而知。所以在此基础上开发的疫苗有着必然的短板。
+
+**疫苗的有效性尚待数据和科学分析的证实**
+
+根据CDC发布的指导意见，接种疫苗的人还是要继续遵循所有的健康指导，包括戴口罩和保持社交距离。这些都说明CDC对这个疫苗效果并没有十足的信心。
+
+在疫苗并没有通过完整的人体临床试验证明其有效性以及可能存在的风险，赋予注射疫苗的人一些特权，显然对于没有注射疫苗的人产生了某种社会压力，某种意义上讲为将人们划分成不同的群类提供了依据，同时也强化大型制药公司对于疫苗市场的操控。
+
+**最后，全世界都全部的希望寄托于疫苗，而忽略了追寻病毒的真相，恐怕不会从根本上解决病毒大流行的问题。**
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+**【参考来源】**
+
+美国疾控预防中心:完全接种疫苗的人在接触COVID – 19后不需要隔离
+
+[https://thehill.com/policy/healthcare/538384-cdc-fully-vaccinated-people-dont-need-to-quarantine-after-covid-exposure](https://thehill.com/policy/healthcare/538384-cdc-fully-vaccinated-people-dont-need-to-quarantine-after-covid-exposure)
+
+COVID-19:世卫组织称，中国实验室泄露病毒的可能性“极低”：
+
+[https://www.bbc.com/news/world-asia-china-55996728](https://www.bbc.com/news/world-asia-china-55996728)
+
+COVID-19源于实验室泄露：
+
+[https://www.infectioncontroltoday.com/view/idea-that-covid-19-began-as-a-lab-leak-spreads](https://www.infectioncontroltoday.com/view/idea-that-covid-19-began-as-a-lab-leak-spreads)
+
+【审校】Summer
+
+**【免责声明】 ** 尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+欢迎战友加入旧金山金喜准农场
+
+旧金山金喜准农场 GTV: https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4
+
+旧金山金喜准农场 Discord: https://discord.gg/QQzQ79grEA
+
+旧金山金喜准农场 Twitter: https://twitter.com/sf\_himalaya
 
 
 
-[华盛顿时报](https://www.washingtontimes.com/news/2021/feb/10/biden-us-will-sanction-leaders-myanmar-coup/)2月11日报道，拜登总统10日表示，美国将制裁发动军事政变的缅甸军队领导人。他说，针对这些示威者及其民主权利的暴力是不可接受的。美国政府将冻结持有的10亿美元缅甸资金，同时，与印太盟友和美国两党的国会议员就惩罚问题进行磋商。欧盟和英国此前已经表示，将制裁发动政变的缅甸军政府。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/02/92.jpg)
-
-缅甸军事政变的背后主谋无疑是中共。中共盗国贼除了要控制缅甸的名贵木材、翡翠（国际市场上商业品级的翡翠玉石95%以上来自缅甸）及原油天然气（缅甸刚探明排在世界前十的巨量油气资源），更主要的是，中共在印度洋孟加拉湾的缅甸皎漂港，修建了一条直达昆明的石油管道。该管道摆脱了对由美国控制的马六甲海峡的依赖。中共除了要保卫这条管道，还要把势力伸展到印度洋——因为来自中东和非洲的油气途经印度洋。
-
-美国、欧盟、英国几乎同时启动对缅甸的制裁，而且是来真的。原因是，如果任由中共控制了缅甸，缅甸就会成为第二个巴基斯坦，对印度形成夹击的态势。美国川普政府在上个月解密的机密文件中显示，美国围堵中共的印太战略是以印度为基石的。如果拜登不继承川普的这一遗产，不仅美国的印太战略将破产，美国在印太的传统盟友也将四分五裂，部分国家将倒向中共，从而美国将失去印太的主导权。
-
-无疑，缅甸已经成为大国博弈的场所。因此，印度在对缅甸的争夺中不会缺席。日本在缅甸苦心经营多年，有巨大的利益：从去年日本对缅甸民选政府进行五年77亿美元的援助来看，日本在缅甸的利益至少会以千亿美元的规模来计算。那么，日本亦将卷入其中。
-
-世界将同时出现两个有极高战争风险的动荡地区:西太平洋和东印度洋。
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-
-
-+1
+0
