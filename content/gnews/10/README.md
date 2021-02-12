@@ -1,64 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国一名防疫志愿者被刺身亡
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/904010/)
+## 中共增加南中国海的军事部署
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/904073/)
 
-新闻来源：Breitbart《布赖特巴特》| 作者：GABRIELLE REYES | 发布时间：2021年2月9日
+俄罗斯莫斯科喀秋莎农场   银河
 
-翻译/简评：文明明 | 校对：SilverSpurs7 | 审核：万人往 | Page：拱卒
+编辑   水星   上传   银河
+![]()![](https://cdn.discordapp.com/attachments/799010586356351066/809858863980347472/sea.JPG)theduran.com
+《华盛顿时报》2月11日报道， 自美国航母战斗群在南中国海进行了联合演习以来，中共军方增加了军舰和战机在南中国海的任务。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/dcb8c310-1aab-421f-b7d2-83f454d98e40.jpg?asset_id=20b42079-f72b-436e-8c0b-7a0e6ac6b953&amp;img_etag=%228093b23623cf940dc101d2c93b7c6d1f%22&amp;size=1024)](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/dcb8c310-1aab-421f-b7d2-83f454d98e40.jpg?asset_id=20b42079-f72b-436e-8c0b-7a0e6ac6b953&amp;img_etag=%228093b23623cf940dc101d2c93b7c6d1f%22&amp;size=1024)
+美国海军少将、西奥多·罗斯福号航空母舰领导的打击群的指挥官道格·维里西莫(Doug Verissimo)在新闻发布会上说，看到该区域的中共飞机和军舰数量明显增加。
 
-**简评：**
+2月9日法国武装部派遣法国核推进攻击潜艇和军舰在南中国海巡逻，以强调国际航道的航行自由。同一天，美国海军宣布两个美国航母战斗群在南中国海进行了联合演习。几天前，一艘美国军舰在有争议水域的中共控制岛屿附近航行。
 
-据中共国营媒体《环球时报》2月8日报道，哈尔滨检察院批准逮捕陈成龙，因为他涉嫌在2月3日谋杀一名防疫志愿者，犯有故意杀人罪。陈某因扔垃圾需要离开居住的小区，被小区门卫阻挠后，用刀刺伤门卫并导致其死亡。在此十天前，河北省北部的秦皇岛某村也发生了类似事件，一名男子在被要求接受新冠病毒检测时，用车撞死一名防疫人员。
+中共海军经常在南中国海与美国军舰对峙，并命令它们离开该区域。中共声称南中国海90%的海域是其领海，这一主张在几年前被国际法庭驳回。
 
-中共国最高人民检察院2月2日表示，自2019年底中共国中部城市武汉发生首例有记录的中共病毒病例以来，全国已有7200多人因相关犯罪被逮捕，超过11200人被起诉。
+菲律宾对中共海警队在南海争议海域的行动表示关注。菲律宾陆军总司令索贝哈那(Cirilito Sobejana)2月9日表示，菲律宾将加强在南海派驻海军，以保护菲国渔民。
 
-这些刑事案件的发生，说明中共实行的非人性化防疫措施已经导致了严重的社会问题，人们在经济和健康安全的多重高压下生活，已经疲于应付。人与人之间的矛盾一触即发，极容易酿成悲剧。
+在索贝哈那宣布这项消息之前，菲律宾已经就中共通过的《海警法》表达了抗议。中共这项新法授权海警队在中共视为领土的海域执法时，可以对外国船只开火。
 
-这一切的根源都源于中共邪恶的病毒超限战计划，不管是老百姓还是党内官员，都是这个计划下的牺牲品。
+索贝哈那中将在记者会上表示，“我们将透过部署更多海军资产，以增加我们在南海的能见度。但我要清楚表明，我们海军派驻南海，不是要对中共开战，而是确保我们人民的安全。”
 
-**原文翻译：**
+尽管索贝哈那要增兵南中国海，但与中共的海军舰队和海警队相较，菲律宾海军的军力非常有限。美国国务卿布林肯(Antony Blinken)上个月强调了美菲共同防御条约(MDT)的重要性，以及如果菲律宾在南海地区遭受攻击，将可以明确引用这项条约。
 
-## 一名中国男子用刀刺杀一名中共病毒防疫志愿者，并致其死亡
+中共在南中国海增加了军事部署，让南中国海紧张局势再度升级。
 
-周一，中共国东北城市哈尔滨当局逮捕了一名男子。该男子涉嫌在上周刺伤了一名中共病毒防疫工作者，并导致其死亡。
+参考链接：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/ea32acca-9a7a-4b6d-b5e0-1b80ef4a229f.jpg?asset_id=1638956a-b8bc-4727-9394-f3d69c6c5a86&amp;img_etag=%22208abdbf9ae1a743233363c4d9e6e2de%22&amp;size=2560)](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/ea32acca-9a7a-4b6d-b5e0-1b80ef4a229f.jpg?asset_id=1638956a-b8bc-4727-9394-f3d69c6c5a86&amp;img_etag=%22208abdbf9ae1a743233363c4d9e6e2de%22&amp;size=1024)
-
-据中共国营媒体《环球时报》2月8日报道，哈尔滨检察院批准逮捕陈成龙（Chen Chenglong），“因为他涉嫌在2月3日谋杀一名防疫志愿者，犯有故意杀人罪”。
-
-最近，由于哈尔滨地区新冠病毒每日新病例数量激增，当地政府官员加大了对人们行动的限制，并启动了大规模的检测活动。上周三，42岁的防疫志愿者张立彬（Zhang Libin）被派往哈尔滨一个居民小区担任门卫，他曾试图阻止陈某离开小区。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/bc28a513-c5b6-4c48-85da-4e37bf18cd7a.jpg?asset_id=c66cdafb-8296-4340-aa55-c701a6c596ac&amp;img_etag=%22f339d57c903a367abfee7ddf8731e32f%22&amp;size=3666)](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/bc28a513-c5b6-4c48-85da-4e37bf18cd7a.jpg?asset_id=c66cdafb-8296-4340-aa55-c701a6c596ac&amp;img_etag=%22f339d57c903a367abfee7ddf8731e32f%22&amp;size=1024)
-
-《北京新闻》报道称：“张立斌和另一名男子一起执勤时，陈某走过来，说他需要离开小区去扔垃圾。”
-
-引述哈尔滨一名防疫志愿者的话说：“张立彬拒绝让陈某离开小区，并提出要替他处理垃圾。陈某随即拿出一把刀，将其刺伤。”
-
-根据哈尔滨公安局的声明，张立彬在被送往当地医院的途中因刀伤死亡。陈某最初逃离案发现场，随后被市警方发现并拘留。
-
-当地刑事检察官说，2月3日发生在哈尔滨的刺杀事件，距1月24日河北省北部的秦皇岛某村所发生的一名男子在被要求接受中共病毒检测时撞死一名防疫人员的事件仅相隔十天。
-
-据《南华早报》报道，这名村民拒绝检查，并且变得非常愤怒，用车撞倒了防疫人员，逃跑后被拘捕。
-
-《环球时报》周一指出：“中共国一直在采取严格的措施，打击与疫情控制有关的非法行为。”
-
-中共国最高人民检察院2月2日表示，自2019年底中国中部城市武汉发生首例有记录的中共病毒病例以来，“全国已有7200多人因相关犯罪被逮捕，超过11200人被起诉”。
-
-新年伊始，位于中共国首都北京周边的河北省为了应对中共病毒病例在该地区激增的情况，政府当局对全省1100万人的出行进行了限制，其中也包括邻近的山西省。1月份，在香港和上海相继爆出中共病毒新增病例后，中共国卫生部对香港的150个住宅小区——近一万名居民——以及上海的主要医院进行了封锁。
-
-🔗[原文链接](https://www.breitbart.com/asia/2021/02/09/chinese-man-arrested-charges-fatally-stabbing-coronavirus-control-volunteer/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[https://www.washingtontimes.com/news/2021/feb/11/china-rapidly-expanding-military-assets-in-south-c/](https://www.washingtontimes.com/news/2021/feb/11/china-rapidly-expanding-military-assets-in-south-c/)
 
 0
