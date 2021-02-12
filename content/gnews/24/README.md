@@ -1,63 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读拜登总统在中国除夕日与习通电话
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/903133/)
+## 美国疾控预防中心CDC强推新冠疫苗 可以结束大流行？
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/903074/)
 
-直播视频：
+**翻译者：冰糖葫芦喵**
+
+英文原文新闻链接：[CDC: Fully vaccinated people don’t need to quarantine after COVID exposure | TheHill](https://thehill.com/policy/healthcare/538384-cdc-fully-vaccinated-people-dont-need-to-quarantine-after-covid-exposure)
+
+**据国会山报报道：**“美国疾控中心在本周三的指导意见中表示：完全接种过辉瑞或者莫德纳公司疫苗，并且自第二次接种两周之后。符合这些标准的接种者，以后在接触疑似或者确诊是冠状病毒患者，都不需要再隔离。”
+
+疾控中心还表示，因为不清楚防护措施能持续多久，人们在接种第二针后已经超过三个月，而且也暴露在病毒之下的，也应该进行隔离。如果出现了冠状病毒症状了，人们一定要进行隔离。
+
+美国疾病控制与预防中心表示:“对具有疫苗衍生免疫力的人取消隔离的建议与对具有自然免疫力的人取消隔离的建议一致，这有助于实施。”
+![]()![](https://gnews.org/wp-content/uploads/2021/02/美国疾控中心CDC-e1613095796301.jpg)
+图片来源：凯文·考克斯/盖蒂图片社
+
+该机构坚持认为，接种疫苗的人应该继续遵循所有其他健康指导，包括戴口罩和尽可能保持社交距离。研究表明，那些已经接种过疫苗的人仍然可能在他们的鼻子和喉咙中携带病毒，并将其传播给他们周围的人。
+
+截止现在，病例和死亡人数仍然很高。根据冠状病毒跟踪项目(COVID – 19 Tracking Project)的最新数据显示，周三美国新增病例超过9.5万例，仅周二就有3445人死亡。
+
+新的指导方针出台之际，疫苗生产为结束大流行带来了一线希望。
+
+美国辉瑞疫苗和莫德纳疫苗的上市已经加速，未来几周可能会有更多的注射获得批准。
+
+**【观点】：**
+
+**然而，笔者对美国疾控中心做出的这一指导意见有诸多的疑问**：
+
+**世卫和美国医学界没有追溯到病毒的起源并进行彻底调查**
+
+越来越多的人相信这个病毒是来自实验室，是一种功能增强的经过实验室人工编辑的病毒。这种病毒修改和编辑的密码并没有得到破解。
+
+到目前为止，病毒除了已经显现的特性之外，其他隐藏的功能不得而知。所以在此基础上开发的疫苗有着必然的短板。
+
+**疫苗的有效性尚待数据和科学分析的证实**
+
+根据CDC发布的指导意见，接种疫苗的人还是要继续遵循所有的健康指导，包括戴口罩和保持社交距离。这些都说明CDC对这个疫苗效果并没有十足的信心。
+
+在疫苗并没有通过完整的人体临床试验证明其有效性以及可能存在的风险，赋予注射疫苗的人一些特权，显然对于没有注射疫苗的人产生了某种社会压力，某种意义上讲为将人们划分成不同的群类提供了依据，同时也强化大型制药公司对于疫苗市场的操控。
+
+**最后，全世界都全部的希望寄托于疫苗，而忽略了追寻病毒的真相，恐怕不会从根本上解决病毒大流行的问题。**
 
 
 
-《路德时评》2021年2月11日晚间节目主要内容：
+**【参考来源】**
 
-一、拜登总统在中国除夕日与习通电话
+美国疾控预防中心:完全接种疫苗的人在接触COVID – 19后不需要隔离
 
-中国日报新闻网2月12日[1]：2月11日中国农历除夕上午，习近平主席同美国总统拜登通电话。两国元首就中国牛年春节相互拜年，并就双边关系和重大国际及地区问题深入交换意见。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/勾兑.jpg)[图片地址](https://pub.creaders.net/upload_files/image/202102/20210210_16129943761647.jpg)
+[https://thehill.com/policy/healthcare/538384-cdc-fully-vaccinated-people-dont-need-to-quarantine-after-covid-exposure](https://thehill.com/policy/healthcare/538384-cdc-fully-vaccinated-people-dont-need-to-quarantine-after-covid-exposure)
+
+COVID-19:世卫组织称，中国实验室泄露病毒的可能性“极低”：
+
+[https://www.bbc.com/news/world-asia-china-55996728](https://www.bbc.com/news/world-asia-china-55996728)
+
+COVID-19源于实验室泄露：
+
+[https://www.infectioncontroltoday.com/view/idea-that-covid-19-began-as-a-lab-leak-spreads](https://www.infectioncontroltoday.com/view/idea-that-covid-19-began-as-a-lab-leak-spreads)
+
+【审校】Summer
+
+**【免责声明】 ** 尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+欢迎战友加入旧金山金喜准农场
+
+旧金山金喜准农场 GTV: https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4
+
+旧金山金喜准农场 Discord: https://discord.gg/QQzQ79grEA
+
+旧金山金喜准农场 Twitter: https://twitter.com/sf\_himalaya
 
 
-随后，拜登总统发推说道[2]：今天我与习近平主席交谈，向中国人民表示农历新年的良好祝愿。我也对北京的经济做法，侵犯人权和胁迫台湾感到担忧。我告诉他，当中国造福于美国人民时，我将与中国合作。
 
 
 
-> I spoke today with President Xi to offer good wishes to the Chinese people for Lunar New Year. I also shared concerns about Beijing’s economic practices, human rights abuses, and coercion of Taiwan. I told him I will work with China when it benefits the American people.
-> — President Biden (@POTUS) [February 11, 2021](https://twitter.com/POTUS/status/1359692096693817347?ref_src=twsrc%5Etfw)
 
-
-
-Zero Hedge则报道[3]：双方通电话后，白宫吹嘘说：“拜登总统强调了他对北京的强制性和不公平的经济做法，对香港的镇压，对新疆的侵犯人权以及在该地区包括对台湾的日趋自信的行动的基本关切。拜登总统承诺在促进美国人民和我们同盟的利益时，追求务实，注重结果的接触。”“两国领导人还就应对COVID-19流行病以及全球健康安全，气候变化和防止武器扩散的共同挑战交换了意见。拜登总统致力于在促进联合国的利益时追求务实，注重结果的接触。美国人民和我们的盟友”白宫说。但是，从中国方面转播时，电话的内容截然不同。
-
-
-
-> Biden Holds First Phone Call With Xi, Both Sides Offer Vastly Different Accounts Of What Was Said [https://t.co/gctDK9dC5n](https://t.co/gctDK9dC5n)
-> — zerohedge (@zerohedge) [February 11, 2021](https://twitter.com/zerohedge/status/1359708394098163712?ref_src=twsrc%5Etfw)
-
-
-
-路德社评论：
-
-1、拜登和习选择在中国农历除夕上午（美国时间晚上）互相通电话，从通话时间来看，拜登总统给习非常大的面子，习完全占据上风，川普总统执政期间都是在美国时间白天和习通电话。
-
-2、按照中共党媒报道，习在通话过程中多次使用“强调”，而拜登则进行回应，这在川普政府时期是绝对不可能发生的。习现在最关心三个问题，分别是新疆种族灭绝罪、中共病毒疫情真相和如何消灭爆料革命核心成员问题。
-
-3、拜登总统上台后并没有称呼中共国为敌人，而称呼为最严峻的竞争者，他们通完电话后，两国媒体迅速报道了通话内容，由此可见双方在通话前就已经定好通话内容，所以媒体才能提前写好文宣稿件，如果拜登政府选择和习展开合作，这又重新定义国际秩序，对海外灭共势力也会产生重大影响。
-
-4、拜登总统还是担心习手上握有他们家族的“三个硬盘”资料，这也促使他主动与习通电话，但他在对华政策上依旧非常谨慎，在不断试探美国国内的反应。双方互通电话不仅提升了习在党内的威望，还震慑了党内其他敌对势力，暂时缓解中共党内紧张的气氛。
-
-5、拜登在推特中说道只要对美国有利，他就会选择和中共国合作。这正中习下怀，路德社在美国大选前爆料习与拜登合作后，拜登可以将江、曾、孟家族在美国资产和企业冻结为美国输送利益，洗清他与中共勾兑的嫌疑，演戏给美国人看，另一方面还帮助习巩固党内权力，清楚敌对势力，习也能帮助拜登总统清楚川普总统及其他反对他的势力。
-
-6、拜登总统上台后彻底打破了中共党内的平衡，如果拜登总统配合习对江、曾、孟在美国的资产进行冻结，这将掀起一波残酷的党内厮杀，从近期党内数位高官落马以及习几次派替身出席活动就可以感受到党内紧张的气氛。
-
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
-
-参考文章：
-
-[1][http://cn.chinadaily.com.cn/a/202102/12/WS6025d492a3101e7ce973fa00.html](http://cn.chinadaily.com.cn/a/202102/12/WS6025d492a3101e7ce973fa00.html)
-
-[2][https://twitter.com/POTUS/status/1359692096693817347](https://twitter.com/POTUS/status/1359692096693817347)
-
-[3][https://www.zerohedge.com/markets/biden-holds-first-phone-call-xi-both-sides-offer-vastly-different-accounts-what-was-said](https://www.zerohedge.com/markets/biden-holds-first-phone-call-xi-both-sides-offer-vastly-different-accounts-what-was-said)
-
-文章撰写：【重生】  编辑：【香柏树】
 
 0
