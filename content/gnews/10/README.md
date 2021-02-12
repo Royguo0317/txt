@@ -1,26 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世卫首席科学家谈中共病毒：感染过的人可能会再次被感染
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/904104/)
+## 【灭共头条】中共央行“一把抓”颁布多项禁令 集中监管居民银行存款
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/904163/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+编写报道：MIYA【㊙️翻 Gnews原创组】
+责任编辑：心声、Ermat
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Picture1-56.jpg)图片来源：myzhongjin.com
+中国新年前的一个多月以来，中共针对各银行存款产品颁布一系列禁令，相继叫停银行为了吸引存款推出的多个促销产品，和包括支付宝在内的互联网金融平台存款产品。这意味着现有的储户资金都将被中共央行“集中管理”。
 
+大纪元2月11日报道，交通银行从2月6日开始，停止了一切按月付息型存款产品；工商银行上海地区某支行也接到分行通知，近期将停售按月付息型大额存单。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+此前2月8日，中共央行将“周期付息”和“靠档计息”等存款产品定性为“违规产品”，理由是实际利率高于同期限的存款利率违反了2020年货币政策的规定。去年12月14日，中共要求六大国有银行（工、农、中、建、交、邮储）集体叫停“靠档计息”。
 
-**西班牙2021年2月12日电/西喜社——**世界卫生组织首席科学家斯瓦米纳坦博士发布最新情报： “我们现在收到报告说有人重新感染了一种新的变种病毒… 这说明以前感染过的人可能会再次被感染。”
+除了对银行的“靠档计息”和“周期付息”产品叫停，最近一个月还相继对包含支付宝、腾讯理财通在内的互联网金融平台的存款产品、地方银行“异地存款”发出禁令，并对已在这些平台上的资金集中交由央行或特定商业银行存管。
 
+近年来中国民众的储蓄逐年减少，据搜狐网指出，2020年11月，有5.6亿民众没有存款。根据[CEIC的数据](https://www.ceicdata.com/zh-hans/indicator/china/gross-savings-rate)显示，自2010年以来总储蓄率持续下滑，从最高值55%跌至2019年的45%，创历史最低（见下图1）。与此同时，居民家庭负债率却在急骤上升，2020年12月已达到了62%（见下图2）。中国在短短的十多年之内，由一个“储蓄大国”变成了“负债大国”。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Picture1-57.jpg)
+图1   中国总储蓄率表截图来自CEIC
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Picture1-59.jpg)
+图2  中国家庭负债占国内生产总值百分比表截图来自CEIC
 
+2021年央行“一手抓”的禁令举动，预示着中共的金融大堤崩溃前的“堵溃坝”行为，并将其黑手伸向普通民众层面。伴随着中共数字货币的加快推进，未来14亿人民（包括党员干部及其家属）的每一分钱的动向都将纳入党中央无形黑手的绝对监控之中。
 
-> “We are now getting reports of people getting reinfected with a new variant of the virus … suggesting people who’ve had prior infection could get infected again.”
-> 
-> — WHO Chief Scientist Dr. Soumya Swaminathan [pic.twitter.com/RIWGMLxlQh](https://t.co/RIWGMLxlQh)
-> — The Recount (@therecount) [February 12, 2021](https://twitter.com/therecount/status/1360261856313683971?ref_src=twsrc%5Etfw)
+**参考链接：**
 
+[中共盯上银行存款年前突叫停部分产品](https://www.epochtimes.com/gb/21/2/10/n12745445.htm)
 
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+（本文仅代表作者个人观点）
 
 0
