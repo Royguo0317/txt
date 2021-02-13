@@ -1,56 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵看春晚XII连线路德4路德2021年有了吉祥新家未来会拥有更多
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/905317/)
+## 2/13/2021 财经快讯：英国经济遭受300年来最大下滑；疫苗和经济何去何从？
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/905462/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/封面-91.jpg)
-编辑整理：
+![]()![](https://www.gnews.org/wp-content/uploads/2021/02/Picture1-61.jpg)
+图片来源： [https://www.apnews.com](https://www.apnews.com)
 
-伦敦喜庄园：万物归一
+**1.为封城付出代价：英国经济遭受300多年以来的最大下滑**
 
-多伦多枫叶农场：Winner为自由而战（文祥）
+由于中共病毒导致商店和饭店被迫关闭，旅游业被摧毁，制造业被削减，英国经济在2020年经历了300多年来的最大下滑。英国国家统计局2月12日(周五)表示，去年英国经济萎缩了9.9％，是2009年全球金融危机最严重时的两倍多，这是自1709年以来的最大跌幅。
 
-法国巴黎七星农场：枫丹白露
+[https://www.breitbart.com/europe/2021/02/12/paying-the-price-for-lockdown-uk-economy-suffers-biggest-drop-in-300-years/](https://www.breitbart.com/europe/2021/02/12/paying-the-price-for-lockdown-uk-economy-suffers-biggest-drop-in-300-years/)
 
-郭文贵先生在[辛丑年文贵看春晚](https://gtv.org/video/id=60252a55be64150df850eb09)对庚子灭共年爆料革命的成就进行了回顾，把辛丑年定为以毒灭共年和以钱灭共年，与各位战友进行连线，在三小时四十三分钟的时间内全球战友们与郭文贵先生共同辞旧岁迎新春，本系列将根据本届[辛丑年文贵看春晚](https://gtv.org/video/id=60252a55be64150df850eb09)的不同内容逐一上传。
+**2.标普500指数创历史新高**
 
-以下为第十二部分——连线路德4路德2021年有了吉祥新家未来会拥有更多
+受到新一轮美国经济刺激预期的影响，投资者购买了能源，金融和材料股，并出售了大型科技股，标准普尔500和纳斯达克周五创下历史新高, 而权重个股苹果公司，特斯拉公司和微软公司则跌幅居前。华尔街的恐惧指数Cboe Volatility Index自2020年2月以来首次收于20以下。
 
-据[辛丑年文贵看春晚](https://gtv.org/video/id=60252a55be64150df850eb09)时间点2：46：42——
+[https://www.reuters.com/article/us-usa-stocks/sp-500-hits-record-peak-as-stocks-post-weekly-gain-idUSKBN2AC18A](https://www.reuters.com/article/us-usa-stocks/sp-500-hits-record-peak-as-stocks-post-weekly-gain-idUSKBN2AC18A)
 
-郭文贵先生：希望在2021年，你的路德访谈能使新中国联邦走向更大的，我给你讲个故事，昨天下午，律师给我打电话，就说那个给你转房子的事情，**我看你那个房子的时候，我看到一堆的鹿，我可以说我从来没看过房子，我看了最起码十几个房子，就为你看房子，在你那个房子里面，我在你那个卧室，主卧室里面，我躺在床上躺了一下，我到外面时我坐在那里，我真的是做了一个特别好的梦，**那个房子当时买你知道150万，今天你看到价值了，在房地产上的估价已经是220万了，房地产公司的估价一般比实际价格低一倍，低一倍的价格，就那个房子现在最起码350万到400万。**你说你七哥就去年以前给你买房，在美国房地产上涨一倍几乎不可能的，那个房子已经涨到三四百万了，涨了将近两倍，**然后把这房子你嫂子过给你了，人家这时候，第一，全家得同意；第二，你嫂子在美国一辈子有捐给别人500万的权利，每个人收受钱、被捐钱1100万，说岳庆芝同志，捐给路德先生这个房子200万她这个额度一生就被拿掉了。哎哟这我得问你嫂子，你嫂子说，给谁我不说，给路德先生赶快办、去年就让你办。所以路德先生你这个路德访谈，你看你嫂子是不看节目的，她是受到旁边人的影响、间接影响都那么大，而且知道你有个幸福家庭带着仨孩子，你嫂子一说就是路德带着仨孩子不容易，就你期望，**路德先生你是一个健身的榜样、一个正义的传播力量的榜样、还有一个有一个完美的家庭榜样、一个好父亲、好丈夫的榜样，希望你把这个名声弄下去，而且那个房子绝对是吉利的、吉祥的，在那个房子里边我相信，你不仅要认识到闫博士天使这样，你跟小蔡还有孩子还会有更美好的未来。**恭喜你在2021年，你真的有了新家，而且有了一个升值的家、而且有了一个吉祥的家。爆料革命、新中国联邦会让你拥有更多更多，而且这不是你要的，是自然而然给你的，这个就意义不一样了路德先生。你真的是值得拥有这一切，而且2021年你会拥有更多，明年的119咱看看有啥礼物，也可能就有个这样给你（文贵先生吹哨子）哈哈哈哈哈，好吧，谢谢您。
+**3.谷歌，微软，高通抗议英伟达收购安谋**
 
-路德先生：谢谢文贵先生！
+一些世界上最大的科技公司如谷歌，微软公司和高通公司正在向美国反托拉斯监管机构投诉英伟达公司（Nvidia Corp.）收购安谋（Arm Ltd.），因为这笔交易将损害这些公司的业务。此次收购将使英伟达控制一家关键供应商，该供应商将必不可少的芯片技术许可给苹果公司，英特尔公司，三星电子公司，亚马逊公司和中共国的华为技术公司。
 
-郭文贵先生：接下我们是要跟玩球的夫妻，玩球的夫妻咱谈谈床上的事。谢谢路德先生，代给小蔡问好！
+[https://finance.yahoo.com/news/google-microsoft-qualcomm-protest-nvidia-183045665.html](https://finance.yahoo.com/news/google-microsoft-qualcomm-protest-nvidia-183045665.html)
 
-路德先生：谢谢文贵先生，再见！
+**4.随着美国疫苗接种的增加，投资者开始关注酒店和邮轮公司类股票**
 
-郭文贵先生：再见再见再见！太帅了今天路德先生。
+随着美国疫苗的接种和评估的进行，投资者开始关注受到中共病毒冲击的酒店，邮轮公司和其他企业的收益报告，以了解大流行消退后哪些公司可能会首先回到正轨。希尔顿全球控股公司和凯悦酒店集团预计将于2月17日发布报告，随后是万豪酒店，挪威邮轮公司猫途鹰将于2月18日发布结果。
+评：疫苗的有效性和其对经济恢复的影响需要更广泛的评估，世界经济回到正轨的核心是向中共追责，找到病毒源头，消灭释放病毒扰乱世界的中共。
 
-接上文——
+[https://www.reuters.com/article/us-usa-stocks-weekahead/investors-eye-sha](https://www.reuters.com/article/us-usa-stocks-weekahead/investors-eye-shares-of-hotels-cruise-lines-as-u-s-vaccinations-pick-up-idUSKBN2AC2DQ)
 
-[**文贵看春晚I****送走庚子霹雳灭共年迎来辛丑以毒灭共以钱灭共年**](https://gnews.org/zh-hans/903289/)
+[res-of-hotels-cruise-lines-as-u-s-vaccinations-pick-up-idUSKBN2AC2DQ](https://www.reuters.com/article/us-usa-stocks-weekahead/investors-eye-shares-of-hotels-cruise-lines-as-u-s-vaccinations-pick-up-idUSKBN2AC2DQ)
 
-[**文贵看春晚II****联线简体中文战友谈中共经济危机四伏/G-News****病毒专题**](https://gnews.org/zh-hans/903414/)
+**5,原油价格预测继续看涨**
 
-[**文贵看春晚III****联线七星战友:****全世界已没有选择必定火战灭共**](https://gnews.org/zh-hans/903444/)
+根据FXEMPIRE的克里斯托弗·刘易斯分析，WTI原油市场在上周五再度反弹向$60突破。布伦特（Brent）市场也具有类似的基调，并突破了62.50美元的水平，他认为长期来看可能会达到70美元。
 
-[文贵看春晚IV连线班农先生，99%的兄弟姐妹希望川普回归白宫](https://gnews.org/zh-hans/905066/)
+[https://finance.yahoo.com/news/crude-oil-price-forecast-crude-180050036.html](https://finance.yahoo.com/news/crude-oil-price-forecast-crude-180050036.html)
 
-[文贵看春晚V连线闫博士1是否有神秘力量在主宰和安排着闫博士](https://gnews.org/zh-hans/905143/)
+**6.董事长“实锤”总经理后续，华信信托涉嫌经济犯罪，逾20只信托产品爆雷**
 
-[文贵看春晚VI连线闫博士2,病毒已被打磨已走向造成伤害的方向](https://gnews.org/zh-hans/905198/)
+2021年1月6日，华信信托董事长董某因持械伤害总裁王某，被公安机关依法采取刑事强制措施，随后被依法批捕。据大连公安微博2月10日晚间消息，华信信托投资人多次向相关部门举报华信信托及相关人员涉嫌违法发放贷款等经济犯罪。除此之外，截至目前，华信信托有近23个项目尚未按期兑付，陆续“爆雷”。
 
-[文贵看春晚VII连线闫博士3,期待回到那块土地那是我们的家乡](https://gnews.org/zh-hans/905225/)
+[https://3g.163.com/money/article/G2HOTE4H00258105.html?spss=adap\_pc#adaptation=pc](https://3g.163.com/money/article/G2HOTE4H00258105.html?spss=adap_pc#adaptation=pc)
 
-[文贵看春晚VIII连线闫博士4,一个政体把人逼成这样无人能幸免](https://gnews.org/zh-hans/905251/)
+**7,奈雪的茶冲刺港股IPO 去年前三季度亏损2700万元**
 
-[文贵看春晚IX连线路德1,路德访谈和闫博士已开启以毒灭共新时代](https://gnews.org/zh-hans/905267/)
+2月11日晚间，港交所文件显示，茶饮品牌奈雪的茶向港交所递交招股书，摩根大通、招银国际、华泰国际为保荐人。目前奈雪的茶处于亏损状态，2018年、2019年及2020年前三季度，分别亏损6973万元、3968万元、2751万元。据报道，奈雪的茶近日已完成C轮1亿美金融资，领投方为太盟投资集团（PAG），本轮融资后该品牌最新估值已接近20亿美元，约合人民币130亿元。
 
-[文贵看春晚X连线路德2最关键的问题是有无信仰信不信你能灭共](https://gnews.org/zh-hans/905289/)
+[http://m.caixin.com/m/2021-02-12/101663338.html?cx\_referer=http%3A%2F%2Fwww.caixin.com%2F2021-02-12%2F101663338.html](http://m.caixin.com/m/2021-02-12/101663338.html?cx_referer=http%3A%2F%2Fwww.caixin.com%2F2021-02-12%2F101663338.html)
 
-[文贵看春晚XI连线路德3健身意味着锻炼意志延长XO时间](https://gnews.org/zh-hans/905305/)
+By 【Financial Team-雪梨Cheli】
+
+News Collection: Kate、Totoro、文罡
+
+Proofreading: 小蚂蚁在行动
 
 0
