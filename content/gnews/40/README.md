@@ -1,61 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2/13/2021 财经快讯：英国经济遭受300年来最大下滑；疫苗和经济何去何从？
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/905462/)
+## 中英媒体战升级，中共报复英国，封杀BBC世界新闻台
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/905547/)
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/02/Picture1-61.jpg)
-图片来源： [https://www.apnews.com](https://www.apnews.com)
+一周前笔者在Gnews撰文，报道了英国取消CGTN（中共国环球电视网）广播许可，中共随即谴责BBC关于新疆种族灭绝报道失实，予以还击。今天事情进一步发酵，中英媒体战升级。美东时间2021年2月11日BBC、CBC、路透社、德国之声、华尔街日报等众多外媒纷纷报道了中共国封杀BBC世界新闻的消息。
 
-**1.为封城付出代价：英国经济遭受300多年以来的最大下滑**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-24.png)*图片来自BBC*
 
-由于中共病毒导致商店和饭店被迫关闭，旅游业被摧毁，制造业被削减，英国经济在2020年经历了300多年来的最大下滑。英国国家统计局2月12日(周五)表示，去年英国经济萎缩了9.9％，是2009年全球金融危机最严重时的两倍多，这是自1709年以来的最大跌幅。
+报道称，中共国家广电总局官网发声明说，发现英国广播公司世界新闻网有关中国的报道“严重违反”了广播准则，包括“新闻必须真实，公正”的要求，而不是“损害中共国的国家利益”，因此不允许BBC世界新闻台继续在中国境内落地。
 
-[https://www.breitbart.com/europe/2021/02/12/paying-the-price-for-lockdown-uk-economy-suffers-biggest-drop-in-300-years/](https://www.breitbart.com/europe/2021/02/12/paying-the-price-for-lockdown-uk-economy-suffers-biggest-drop-in-300-years/)
+BBC在一份声明中表示，对中共这一行动感到失望，并重申了BBC的公正是世界上最值得信赖的。英国外交大臣多米尼克·拉布（Dominic Raab）也发推支持BBC，称中共此举是剥夺媒体自由，是不可接受的。美国国务院同时对中共表示谴责。
 
-**2.标普500指数创历史新高**
+在实际已经被中共控制的香港，香港电视台表示将暂停转播BBC世界广播电台，还删除了BBC中文服务的每周广东话节目。港台工会对此举表示“极为遗憾”。
 
-受到新一轮美国经济刺激预期的影响，投资者购买了能源，金融和材料股，并出售了大型科技股，标准普尔500和纳斯达克周五创下历史新高, 而权重个股苹果公司，特斯拉公司和微软公司则跌幅居前。华尔街的恐惧指数Cboe Volatility Index自2020年2月以来首次收于20以下。
+BBC的一位女发言人说：“我们谴责中共的这一决定。获得准确和公正的新闻是一项基本人权，不应剥夺香港和中共国内地人民的权利，每周都有数百万人依靠我们的新闻获得信息。”
 
-[https://www.reuters.com/article/us-usa-stocks/sp-500-hits-record-peak-as-stocks-post-weekly-gain-idUSKBN2AC18A](https://www.reuters.com/article/us-usa-stocks/sp-500-hits-record-peak-as-stocks-post-weekly-gain-idUSKBN2AC18A)
+至于“始作俑者”CGTN，根据多个欧洲国家之间的协议，随着Ofcom撤销其许可证，CGTN亦将被取消在德国的广播权。该消息在2月12日由北莱茵·威斯特法伦州官方媒体的新闻发言人向DW News证实， CGTN不再获准在德国播放。
 
-**3.谷歌，微软，高通抗议英伟达收购安谋**
+根据我们之前的报道分析，显而易见，中共此举是对之前BBC报道中共在新疆的种族灭绝报道的报复，此举洽洽说明种族灭绝的报道真正打到了中共的痛处！
 
-一些世界上最大的科技公司如谷歌，微软公司和高通公司正在向美国反托拉斯监管机构投诉英伟达公司（Nvidia Corp.）收购安谋（Arm Ltd.），因为这笔交易将损害这些公司的业务。此次收购将使英伟达控制一家关键供应商，该供应商将必不可少的芯片技术许可给苹果公司，英特尔公司，三星电子公司，亚马逊公司和中共国的华为技术公司。
+BBC世界新闻台是卫星电视，并未接入中共国有线电视网，众所周知，中共国卫星电视需要用“锅”接收，这在中共国是违法的；另一种接收方式是卫星电视机顶盒，也是需要得到允许才能进入。可见，BBC世界新闻台在中国的受众非常小。
 
-[https://finance.yahoo.com/news/google-microsoft-qualcomm-protest-nvidia-183045665.html](https://finance.yahoo.com/news/google-microsoft-qualcomm-protest-nvidia-183045665.html)
+由此可知，该制裁，“面子”大于“限制收看”的实际意义，但是细思之下，中共此举真正的目的应该是三点：首先是通过封杀令来打击BBC的广告收入，借此打击背后的广告商，推动广告商借机向BBC索赔；其次，通过减少“收视覆盖率”、广告商索赔等操作影响BBC股票价格，最终用“经济战”击垮BBC；最后一点，中共这是“杀鸡骇猴”，BBC作为具有英国皇家背景的、世界上最古老的国家广播公司，中共想制裁就制裁、想封杀就封杀，向世界宣示了其独裁政权的本质，同时也是在向所有国家的媒体发出警告：敢负面报道中共的，一概封杀。
 
-**4.随着美国疫苗接种的增加，投资者开始关注酒店和邮轮公司类股票**
+自古枪打出头鸟，BBC是第一个，但绝对不是最后一个，任何正义的媒体都会被中共禁声，届时世界上将只有一个声音。这就是中共一直在执行的媒体超限战。如果世界各国无法认识到这一点，那么中共独裁的铁拳迟早会砸到自己的头上。
 
-随着美国疫苗的接种和评估的进行，投资者开始关注受到中共病毒冲击的酒店，邮轮公司和其他企业的收益报告，以了解大流行消退后哪些公司可能会首先回到正轨。希尔顿全球控股公司和凯悦酒店集团预计将于2月17日发布报告，随后是万豪酒店，挪威邮轮公司猫途鹰将于2月18日发布结果。
-评：疫苗的有效性和其对经济恢复的影响需要更广泛的评估，世界经济回到正轨的核心是向中共追责，找到病毒源头，消灭释放病毒扰乱世界的中共。
+翻译者：April-四月 / Wakeup文醒
 
-[https://www.reuters.com/article/us-usa-stocks-weekahead/investors-eye-sha](https://www.reuters.com/article/us-usa-stocks-weekahead/investors-eye-shares-of-hotels-cruise-lines-as-u-s-vaccinations-pick-up-idUSKBN2AC2DQ)
+原文链接：[1](https://www.wsj.com/articles/china-orders-bbc-off-the-air-in-its-territory-11613078980?mod=searchresults_pos2&amp;page=1)[2](https://www.dw.com/en/china-bans-bbc-world-news/a-56540684) [3](https://www.reuters.com/article/idUSKBN2AB292) [4](https://www.cbc.ca/news/world/china-bans-bbc-news-1.5912367) [5](https://www.bbc.com/news/world-asia-china-56030340)
 
-[res-of-hotels-cruise-lines-as-u-s-vaccinations-pick-up-idUSKBN2AC2DQ](https://www.reuters.com/article/us-usa-stocks-weekahead/investors-eye-shares-of-hotels-cruise-lines-as-u-s-vaccinations-pick-up-idUSKBN2AC2DQ)
 
-**5,原油价格预测继续看涨**
-
-根据FXEMPIRE的克里斯托弗·刘易斯分析，WTI原油市场在上周五再度反弹向$60突破。布伦特（Brent）市场也具有类似的基调，并突破了62.50美元的水平，他认为长期来看可能会达到70美元。
-
-[https://finance.yahoo.com/news/crude-oil-price-forecast-crude-180050036.html](https://finance.yahoo.com/news/crude-oil-price-forecast-crude-180050036.html)
-
-**6.董事长“实锤”总经理后续，华信信托涉嫌经济犯罪，逾20只信托产品爆雷**
-
-2021年1月6日，华信信托董事长董某因持械伤害总裁王某，被公安机关依法采取刑事强制措施，随后被依法批捕。据大连公安微博2月10日晚间消息，华信信托投资人多次向相关部门举报华信信托及相关人员涉嫌违法发放贷款等经济犯罪。除此之外，截至目前，华信信托有近23个项目尚未按期兑付，陆续“爆雷”。
-
-[https://3g.163.com/money/article/G2HOTE4H00258105.html?spss=adap\_pc#adaptation=pc](https://3g.163.com/money/article/G2HOTE4H00258105.html?spss=adap_pc#adaptation=pc)
-
-**7,奈雪的茶冲刺港股IPO 去年前三季度亏损2700万元**
-
-2月11日晚间，港交所文件显示，茶饮品牌奈雪的茶向港交所递交招股书，摩根大通、招银国际、华泰国际为保荐人。目前奈雪的茶处于亏损状态，2018年、2019年及2020年前三季度，分别亏损6973万元、3968万元、2751万元。据报道，奈雪的茶近日已完成C轮1亿美金融资，领投方为太盟投资集团（PAG），本轮融资后该品牌最新估值已接近20亿美元，约合人民币130亿元。
-
-[http://m.caixin.com/m/2021-02-12/101663338.html?cx\_referer=http%3A%2F%2Fwww.caixin.com%2F2021-02-12%2F101663338.html](http://m.caixin.com/m/2021-02-12/101663338.html?cx_referer=http%3A%2F%2Fwww.caixin.com%2F2021-02-12%2F101663338.html)
-
-By 【Financial Team-雪梨Cheli】
-
-News Collection: Kate、Totoro、文罡
-
-Proofreading: 小蚂蚁在行动
 
 0
