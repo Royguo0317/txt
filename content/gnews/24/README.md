@@ -1,33 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 春节期间，解放军仍骚扰台海安全
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/904984/)
+## 国务院：美将朝鲜核问题视为“紧急优先事项”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/905012/)
 
-台湾筹备农场 zhong
+俄罗斯莫斯科喀秋莎农场 DongDong
 
-[原新闻链接](https://news.ltn.com.tw/news/politics/breakingnews/3439045)
-![]()![](https://gnews.org/wp-content/uploads/2021/02/800px-PLA_Navy_Emblem.svg_.png)
-**解放军出动175舰队台海演习**
+编辑 水星 上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/K.jpg)forexnewsnow.com
+路透社报导，美东时间2月12日（周五）美国国务院表示，朝鲜的核武器和弹道导弹项目是美国的“紧急优先”问题，华盛顿仍然致力于朝鲜的无核化，但不会为下一步行动设定具体时间表。
 
-春节期间，解放军派出舰队在台湾海峡跨海区进行操演。本次操演主要向南沙守备部队、驻吉布地保障基地官兵表达慰问。
+1月20日，拜登新政府已承诺将对上届政府的朝鲜政策进行全面审查，但尚未披露任何具体细节。
 
-但个人认为就是消耗台湾、美国在南海的军事能量，不间断的消耗台军有限的军事资源，尝试使台湾军备承担重度负荷。
+周五的新闻发布会上，国务院发言人内德∙普莱斯（Ned Price）表示，尽管拜登政府缺乏与朝鲜政府直接接触，但外界不应将其解读为朝鲜武器项目一事正退居其次。“事实上，它（朝鲜武器项目）非常重要。”他在一次定期简报会上说。
 
-**中共官称：本次出航为向南海官兵表达慰问**
+近年来，朝鲜继续在其核计划和导弹计划方面取得进展，“对美国来说，这是一个紧迫优先事项。我们致力于与我们的盟友和合作伙伴一起解决此问题。”普莱斯说，“核心前提是，美国政府仍然致力于（推动）朝鲜无核化。”
 
-[中共国防部声明链接](http://www.mod.gov.cn/big5/power/2021-02/09/content_4878908.htm)
+但这位发言人强调，拜登政府正在努力创造一种“（与盟友和合作伙伴一起）协调的外交方式、协调的制裁执行方式、协调的信息传递方式”，这将使华盛顿处于“强势地位 ”以应对（朝鲜武器项目的）挑战。
 
-该声明表示，本次解放军舰队出航是为表慰问。
+“因此，我不想给你们可能看到此过程中下一步所设定时间表，但请知道，这种积极的协调一直在进行中。”他补充道。
 
-但台湾军事专家吕礼诗分析，去年175舰队出海同样为表达慰问。但在慰问影片中，可发现解放军目的是在穿越了第一、第二岛链后直接踩点第三岛链，随后又在太平洋实弹射击，并赴关岛海域以雷射干扰美军的P-8A海上巡逻机。
+2018年和2019年，川普与朝鲜领导人金正恩进行了三次史无前例的首脑外交。川普政府希望说服该国放弃对核武器的追求，但由于两国在平壤应在多大程度上获得无核化和制裁减免等问题上存在分歧，导致谈判进展甚微。
 
-因此，本次解放军出海目的可能同样是骚扰南海的台湾、美国军力。
+上个月就任的拜登政府表示，在前川普总统未能说服平壤放弃核武器之后，此届政府正在与盟友，特别是韩国和日本协商，对朝鲜政策进行全面审查。
 
-[更多台湾农场精采文章点击此处](https://gnews.org/zh-hant/author/taiwangnews/)
+路透社周一看到的一份联合国机密报告称，朝鲜在整个2020年间违反国际制裁发展了其核计划和弹道导弹计划，用通过网络黑客窃取的约3亿美元资助上述计划。
 
-文章审核：zhong
+参考链接
 
-发布者：Little Liu
+[1] [U.S. sees N. Korea nuke issue as “urgent priority”: State Department](https://english.kyodonews.net/news/2021/02/a8c667cda659-urgent-us-sees-n-korea-nuke-issue-as-urgent-priority-state-department.html)
+
+[2] [U.S. says North Korea an urgent priority for the United States](https://www.reuters.com/article/us-northkorea-usa/u-s-says-north-korea-an-urgent-priority-for-the-united-states-idUSKBN2AC2EK)
 
 0
