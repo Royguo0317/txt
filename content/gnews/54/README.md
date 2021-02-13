@@ -1,39 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香草播报：【军事快迅】美智库认为台湾是最危险的潜在战争引爆点，吁美国联手盟邦助台湾防卫
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/903835/)
+## 2021年2月12日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/903971/)
 
-作者：纽约香草山 Wilson 校对/发稿：飞虹
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
+2月12号：很多战友向文贵要照片，没办法一一回复！临时马上照几张发给大家！再次地祝所有的战友们新年快乐，文贵给你们拜年了……
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1e12bca863ebfc2964379ba121e0af21.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/5c57d31907c97e55e8f5b253dff7a61a.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/2a3c00aef0d243676db386aad12aa699.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/3a2bf332f2dac1bffc37c84bebc5f5cb.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/8501921a195ed0fea31ff2aa153f2931.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/a76966497cdfc960c9d63196ca8555d2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/caaf3b54aeba38bc09372e0728a92352.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/ed00ec78fe32bee9904f6e3d5bd2e6a3.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/cfe21acdef995d4ac80f17805a4b5b2b.jpg)
+[【2021年2月12日】文贵先生盖特原文](https://gtv.org/getter/6026a9b7226e775907434312)
 
+**喜联盟Gnews编辑部**
 
-
-风传媒（台湾）2021年2月12日报道，美国智库CFR11日发表报告，敦促华府申明不试图改变台湾地位，并与日本等盟邦反制中(共)国咄咄逼人的行径，协助台湾自卫，以实现战略目标，维护台海和平。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20200819-014745_U8719_M632820_0257.jpg)美航母战斗群穿越台海 图片来源：美联社
-
-报告写道，台湾逐渐成为全球最危险的潜在战争引爆点，台海一旦开战，美国、中国与其他大国都可能卷入其中。美国应维护台湾的民主自由，与盟邦一同吓阻中共，而不刺激中共对台动武。
-
-报告指出，中共侵略台湾本岛风险虽高，但长远报酬是一劳永逸解决台湾主权议题。因此，关键战略问题是台湾、美国及其盟邦是否有能力改变北京攻台的算计。
-
-报告认为，指望美军单独击败中共对台攻击是不现实的。假定发生冲突后，美国因全面封锁或打击中国本土升级成大规模战争，也是不现实的。美国作为全球第一强国也无可信选项面对这场军事危机。但美国和中(共)国极有可能为台湾开战。即使美国及盟邦做足吓阻中共的准备，仍不能排除美中开战的可能，拜登团队应该会高度重视双方爆发战争对全球产生的可怕后果。
-
-从中共的外宣得知，邪恶的习近平及中共赋予统一台湾多重“使命”，它们认为统一台湾可使习近平彪柄青史，可为实现“伟大复兴”打开战略局面。当前它们甚至有可能为摆脱发动超限生化战而发动台海战争，达到“以战止战”的目的。
-
-从习近平和拜登的除夕通话中，他对拜登发出美中对抗后果将是“灾难性”的警告可以判断，中共在病毒溯源、台湾、新疆等问题上将异常强硬，可见美国及其盟邦很难改变习近平对台湾的“统一”算计。
-
-中共武力犯台，本质上是共产主义极权专制的野蛮扩张，是对人类文明的公然践踏。美国及其盟邦知道，中共极权扩张的步伐肯定不限于台湾，保卫台湾就是保卫自己的国家。
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-0
++1

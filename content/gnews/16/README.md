@@ -1,31 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德时评简讯（视频版）：闫博士邀请中共走狗们进行公开电视辩论 (2021.2.9晚间 路德社简讯之路博艾冠谈嘉宾闫博士）
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/904329/)
+## 【每日快讯】12/02/2021:辛丑年以毒灭共，以钱灭共现在开始
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/904741/)
 
-《路德社》出品
+**制作:Cantonese工作室**
+播报: 【美国小李】
+资料收集: 【安妮】【Sunny64】【郁金香】【Ruby三鑫】【美国小李】
+视频制作: 【Shawn】
+海报制作: 【Miranda】
+上传: 【Shawn】
+**摘要:**
 
-以下视频是详细内容：
-
-内容摘要：
-
-1.**第二次川普弹劾案参议院56:44通过不违宪投票**
-
-2.**蓬佩澳及白宫否定中共联合世卫的溯源报告**
-
-3.**闫博士邀请中共走狗们进行公开电视辩论**
-
-4.**军事科学院出版的教材揭露一切真相**
-
-
-
-翻译：路德社翻译组
-
-制作：路德社简讯视频组
-
-审核校对：玫瑰新闻组
-
-上传排版：玫瑰新闻组
-
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-01.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-02.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-03.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-04.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-05.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-06.jpg)
+7.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-07.jpg)
+8.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-08.jpg)
+9.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-09.jpg)
 0
