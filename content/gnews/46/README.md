@@ -1,89 +1,98 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年02月12日澳喜要闻（每日更新）
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/904640/)
+## 朱利安尼市长接受新闻极限电视台采访谈川普总统弹劾案
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/904789/)
 
-撰稿：GTV澳喜影像视频组、新闻组
+新闻简述：朱利安尼市长2021年2月10日接受新闻极限电视台主持人格兰特·斯金菲尔德的采访，谈对国会的川普总统弹劾案的观感。他们指出川普总统被指责“煽动暴力”的视频是经过剪辑的，原话被掐头去尾，把川普总统明确说的“和平和爱国”两个词从演讲[1]中删掉，从而误导舆论。
 
-**路德社晚间访谈：**
+[1] [川普总统《拯救美国》集会演讲全文](https://gnews.org/wp-content/uploads/2021/02/WH_20210106_Trump-Speech-CN-traditional-EN.pdf)
 
-**拜习通话内容解读。**有消息透露，拜登与习近平通话时间将近两小时。中共发文称，习强调中美应相向而行，共同努力。拜登表示美中应避免冲突，可在气候变化等广泛领域合作。看起来似乎是上级给下级安排工作。环球时报还特意强调双方于农历除夕上午通话，传达出正逢中国传统节日且在拜登下班时间点，暗示习处于强势地位。拜登却发推称其对北京强制性和不公平的经济做法、侵犯人权以及胁迫台湾表示担忧。实际上，双方一定会把通话内容按最高机密处理，只是各自按需发布罢了。中共在通话结束后很快发出公告就能说明这一点。比尔格茨也要求拜登政府完整披露通话内容。但世界上没有不透风的墙，拜习勾兑，主要集中在消除种族灭绝、转移病毒来源和打击爆料革命这三个方面。就通话内容而言，更怕被出卖的人还是拜登，毕竟美国不是独裁国家。
+**Grant Stinchfield: **And yet the nation is forced to watch the sham impeachment of the one president who successfully put China on notice. Well, joining me now is a close confident and trusted advisor of President Trump, Mayor Rudy Giuliani. Mr. Mayor, great to have you on the program.
 
-**拜习勾兑后加速以共灭共。**拜习二人合作，双方均可达到政治目的。习可在党内斗争中占据优势地位，如随时制裁政治对手在美国资产。而拜登通过制裁中共企业，可展示其对中共的强硬态度，获取政治资本。但其真正要做的是循序渐进，有限度地拥护中共罢了。在此态势下，首先且最易被殃及的就是中共高官，主要是习的政治对手。习的替身被暴露就是以共灭共的迹象，拜习合作将在此基础上再添一把柴火，让青烟袅袅更快出现。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/AB-10-scaled.jpg)
-**澳洲新闻：**
+**格兰特·斯金菲尔德：**这个国家被迫观看了一场虚假的弹劾案，弹劾一位成功地将视线聚焦到中[共]国的总统。好的，现在来到我们访谈的是川普总统信任的亲密顾问：朱利安尼市长。市长先生，很高兴邀请您到我们的节目。
 
-**维多利亚州下令第三次封城。**SBS2月12日的消息，维多利亚州州长丹尼尔·安德鲁在今天的媒体通报会上宣布：“维州从今夜12点开始实行第四级封城要求，持续时间五天。”封城期间，学校停课，除弱势儿童和托儿中心；除必要行业外，零售业全部关门；聚会和婚礼取消，葬礼限制不超过10人可以参加；除工作、锻炼、医疗和购买必需品外，不可离家；每天外出锻炼限制在2小时以内；在任何地方都要强制带上口罩；酒店和餐厅行业仅限外卖，不允许堂食。据悉，维州今日确认5例本地传播病例，为了避免第三波中共病毒疫情爆发，州政府紧急宣布“封城令”。这也是维州自去年疫情爆发以来，第三次实行“封城令”。
+**Mayor Rudy Giuliani: **How are you, Grant? Good to see you.
 
-**澳洲部长表示：中共盼不到澳洲让步。**大纪元2月12日的消息，在外界期待中澳高层恢复对话之际，澳洲农业部长利托普劳德表示，中共期望澳洲为了重启对话而牺牲澳洲本土主权和价值观是痴心妄想。在拜登就任美国总统并首次与习近平通话后，利托普劳德表示，澳洲永远不会向中共妥协。利托普劳德对天空新闻说：“（澳洲）将继续确保中方知道我们已经准备好对话，纠正可能存在的任何问题”。“但我们不会在我们的主权或价值观上妥协，我们明确表示了这一点。如果有任何国家，不管是中共还是其它国家认为我们会（妥协），那么他们是盼不到这一天的。”
+**鲁迪·朱利安尼市长：**格兰特，你好吗？很高兴见到你。
 
-**香港前沿的报道：**
+**Grant Stinchfield: **Well, it’s good to see you, Sir. You and the president, President Trump that is warned about Joe Biden’s ties to China. We’re seeing it unfold right before our eyes, Sir.
 
-**香港昨天新增****21****宗“中共病毒”确诊病例。**香港电台2月12日的消息，香港昨日新增21宗“中共病毒”确诊个案，其中包括4宗输入及17宗本地个例，另外有7宗感染病例源头不明。初步阳性个例有10多宗。还有两名确诊患者离世。另外，又有8幢大厦纳入强制检测范围，包括葵涌石篱邨石怡楼、太子道西英美大楼、红磡家维邨家廉楼、沙田禾輋邨富和楼、将军澳显明苑、大角咀富多来新邨富殿楼、太和邨丽和楼以及深水埗庆华大厦。相关人士要在下星期一前接受检测。
+**格兰特·斯金菲尔德：**很高兴见到你，先生。你和川普总统警告说，乔·拜登和中国有紧密关系。我们现在看到这一切正在我们眼前展开。
 
-**【战友评论：郭先生在直播中说过，有北京方面的人士借着疫情之名，强行封锁香港部分区域，并且对香港人进行强制“肛门检查”。这么做的目的不仅是为了病毒检测，更是为了继续找出之前参与“反送中”的香港人，加大秋后算账的力度。现在这项强制检测的规定不仅没有消停，反而有扩大化趋势，对比之前的新闻，费大力气封锁一条街区，仅发现一人确诊，或****0****人确诊。中共一贯“挂羊头卖狗肉”的做法，很是明显。中共不灭，中国人和海外华人都要持续受难。】**
+**Mayor Rudy Giuliani: **Yeah, I mean you look at the executive orders in the first couple weeks, and he wasn’t going to do America first. He quite clearly is doing China first. I mean the Chinese are the big winners in the first two weeks of this administration. It’s really very unseemly when you consider how much money the Biden family has gotten from China over the years, that, uh, he is so blatantly helping China. I have … I put out a podcast today, called “CCP Goal”, and that is to defeat the us by 2049. That’s exactly the words of, uh, Xi Jinping at the Party Congress. He set 2049 as the goal to surpass the United States as the leading nation in the world. And, here we are that threat, and, uh, and favoring China with … I mean actually with money … You look, you look at the Paris Climate Accord. It’s gonna save China, you know, trillions of dollars that it’s going to cost us.
 
-**港台不再转播****BBC****世界新闻频道。**香港电台2月12日的消息，香港电台发言人表示，根据国家广播电视总局不允许BBC世界新闻台继续在中共境内落地，对其新一年度落地申请不予受理，香港电台今晚11时开始，不再转播BBC世界新闻频道和「BBC时事一周」。
+**鲁迪·朱利安尼市长：**是的， 看看前面几周的行政命令。他不是美国优先，很明显，他是中[共]国优先。这届政府的前二周，中[共]国才是最大的赢家。考虑到拜登过去这些年从中[共]国捞到那么多钱，他现在公然地帮助中[共]国就显得非常地过分。今天我上传了一个音频叫“中共的目标”，就是他们要在2049年打败美国，这是习近平在党代会上的原话。他设定的目标是2049年超过美国，领导全世界。我们是他们实现目标的障碍……在帮助中[共]国，在钱的问题上……你看，你看《巴黎气候协议》， 那将给中[共]国节省数万亿美元，以我们为代价。
 
-**【战友评论：香港现在的媒体政策逐渐和中共接轨，国家广电总局的规定开始干扰香港的“媒体自由”，很明显，“一国两制”已经死亡，香港正在迅速被中共化，香港的今天也会是台湾的明天、美国的明天和澳洲的明天。中共不灭，全世界人类都会处于恐惧和不安之中。】**
+**Grant Stinchfield:** It’s a shame. He appears to be getting help from the White House now with Joe Biden there clearly, which brings us to the impeachment, this giant sham, you know. We always talk about Democrats operating on emotions. Their whole case seems to be that destruction and violence occurred, but we all knew that happened. There’s been no mention really or any proof that President Trump had anything to do with it. What do you think of the Democrats case so far?
 
-**伪中共国新闻：**
+**格兰特·斯金菲尔德：**这是一个耻辱。他[习近平]显然正从白宫的乔·拜登那里得到帮助，还给我们带来了这场弹劾，您知道这是一场巨大的闹剧。 我们经常谈到民主党的运作是基于感情[而非理性]，他们所有的论据看起来就是发生了破坏和暴力，我们都知道那发生了。但是根本没有提及并没有证据表明川普总统与那有啥关系。目前为止，您是怎样看待民主党的论据的？
 
-**世卫专家组成员与武汉病毒所关系密切。**大纪元2月11日的消息，世卫组织专家组赴武汉调查疫情源头的报告出炉后，引发各界的质疑。世卫方面的调查成员皮特‧达札克的背景也引发外界关注，他曾与武汉病毒实验室合作研究蝙蝠冠状病毒项目。他是武汉病毒实验室的利益相关人，按理是不能参与此次独立调查。世卫专家组此次到武汉，其行程和受访人员皆为中共安排，包括专家组访问什么地方、会见什么人、拿到什么资料等。世卫专家还坦承，他们这次所要提出的任何问题，都得先“写在邮件里，提前两天发出，以便得到允许”。专家组所到之处都被警察保安包围着，不能与媒体过多接触，也不能随意跟社区居民交谈。
+**Mayor Rudy Giuliani: **I think their case is a prophetic appeal to emotions and hoping that people are stupid. I mean they, they, you have a speech and they… I saw that guy swallow, the words in the speech are perfectly normal, and he he treats them like there’re words of incitement. No one was incited by it. The difficulties that the congress started a half hour before the President even ended his speech, so he couldn’t have possibly incited anyone. They were in the congress already, and then, of course, he ended the speech by telling him to be peaceful, but and then they said, well, he didn’t really mean it. Well, I mean that means you can’t win. If he had said don’t be peaceful, he’d have been guilty; and if he says he’s peaceful, he’s guilty. It’s because they’re unfair. They’ve been unfair.
 
-**曝小米集团背后的中共军方人脉。**大纪元2月10日的消息，美国国防部1月14日列出的最新制裁名单中，以半导体、航空业为主的九家中共公司榜上有名，而手机制造商小米集团也赫然在列。小米否认自己与中共军方有任何联系，但从小米集团创始人雷军的生意链及人脉关系，就可以发现小米集团背后有军方背景和人脉。小米科技创办人雷军，同时也是金山软件的高管及股东。北京金山软件的前身是“香港金山”，创办人叫张铠卿，张铠卿的儿子张旋龙，也是金山软件的另一个创始人。1972年，张铠卿前往香港，他通过私人关系从国外往大陆运送很多芯片。中共国防科工委就对张铠卿说，“你不如成立一家公司，我们以后都从你这买。”雷军和这两父子关系颇深。另外，小米公司的作用也绝非民用科技产品那么简单，小米是中共卫星互联网计划的重要参与方，他们的目标是未来要实行全球通信垄断。
+**鲁迪·朱利安尼市长：**我认为他们就是说预言和煽情，并且希望大家都是傻子。 我是说您给了这么个演讲…… 我看到他[川普总统]演讲中的用词完全正常，而这些话被当作是有煽动性的。 没有人被这些话煽动。 国会在总统结束演讲半小时前就已经开始开会了，所以他[川普总统]不可能煽动到任何人。 他们[议员们]已经在国会上了，然后，当然，他[川普总统]以告诉大家要和平，结束了他的演讲。然而他们却说他[川普总统说要和平]不是真心的。好吧，那你跟[这帮人辩论]就永远都赢不了，因为如果他[川普]说不要和平，那他就有罪； 如果他说要和平，那他还是有罪。 这是因为[这些议员]是不公正的。 他们一直不公正。
 
-**美国新闻：**
+**Grant Stinchfield:** Clearly unfair, which shows us, Mr. Mayor, this video they ran yesterday. I’m gonna play one clip of it because, again, they selectively edit, which is so dishonest if you look at this as a supposed to be a fair trial. Let’s roll that clip from the Democrats presentation yesterday.
 
-**白宫预算局局长提名人主张对中共施压。**美国之音2月11日的消息，美国总统拜登提名的白宫行政管理和预算局局长尼拉·坦登本周三在美国国会参议院，提醒议员们要关注中共科技公司对美国国家安全构成的威胁。坦登在提名听证会上表示，她将会与国会一起保护美国供应链的安全，并将与美国的盟友一起向中共施加压力，要求中共遵守世界贸易规则。坦登在听证会还提到了拜登政府对人权问题的关注。她表示，她对香港新一代民主派领导人会努力争取“香港人的基本人权和基本保护”持乐观态度。
+**格兰特·斯金菲尔德：**显然这不公平，市长先生，向我们展示他们昨天播放的这段视频。 我要播放其中的一个片段，因为它们又有选择地进行编辑，太不诚实了，尤其是您认为这本来应该是一个公平审判。 让我们放一下昨天民主党演讲中播放的剪辑片段。
 
-**美国参议员提出新法案。**美国之音2月10日的消息，两位美国联邦参议员本周二提出了一项法案，要求世界卫生组织对帮助“共产中国”掩盖病毒疫情信息负责。法案还提出暂缓向世卫提供资金，直至其领导人换人，并接受台湾成为成员国。《世界卫生组织问责法》由共和党联邦参议员霍利和参议员斯科特共同提出。法案还限制美国每年向世卫组织提供的资金不得高于其最大捐助国。
+**President Trump: **After this we’re gonna walk down, and I’ll be there with you. We’re gonna walk down … we’re gonna walk down to the capital…
 
-**拜登谈中共。**美国之音2月12日的消息，美国总统拜登星期四谈到中共时说：“如果我们不行动起来，他们会吃掉我们的午餐。”他在白宫椭圆形办公室与副总统哈里斯和一组议员召开有关基础设施投资问题的会议之前作出了这番表示。“吃掉某人午餐”是一种英语表述，意为抢走对方的生意或打败竞争对手。
+**川普总统：**集会之后，我们将会走过去，我会跟你们在一起。我们将会走过去…….我们会走向国会大厦……
 
-**以下是美国保守派媒体****2****月****11****日的新闻导读，内容来自网关专家、****OANN****和****newsmax****：**
+**Grant Stinchfield:** Mr. Mayor, they didn’t leave the President up saying “peacefully and patriotically with our voices”.
 
-1. 在被参议员Mike Lee指责证据造假后，众议院弹劾管理者被迫撤回部分针对川普的证据。
-2. 罢免加州市长的领导者们宣布他们已经拿到超过150万份签名，已经达到了强制在今年举行罢免选举的门槛。
-3. 仅仅是在福奇一周前说可能需要戴多个口罩后，CDC今天公布研究发现戴2个口罩比戴1个好。
-4. 川普律师谴责弹劾流程存在破坏自由言论保护和缺乏处理流程等问题。
-5. 拜登同意制裁缅甸军官将领及其生意的命令，作为对缅甸政变的回应。
-6. 前CIA官员表示，我将离开民主党，因为他们偏执和暴力。
-7. 拜登要求最高法维护奥巴马医保。
-8. 台湾与美国在华盛顿新的拜登政权下第一次公开承认将举行正式会议，届时台湾的驻美大使与美国国务院高级官员将进行会谈。
+**格兰特·斯金菲尔德：**市长先生，他们没有留下总统说的“用我们的声音和平地和爱国地…… ”这句话。
+
+**Mayor Rudy Giuliani:** Yeah, I mean, that’s total deception. It would, in a trial, it would probably lead to a mistrial if they did that with a judge, or you would then play it and slam the lawyer in front of the jury for being a deceptive liar. I mean how can you leave out you’re trying to say he incited people, but he told them to be peaceful and patriotic? Well, how could he possibly be inciting them if he told them to be peaceful and patriotic?
+
+**鲁迪·朱利安尼市长：**是的，我的意思是，这完全是欺骗。 如果这发生在法官的庭审中，就可能会导致审判失败。您放这个[片段]就是自己当骗子，在陪审团面前给律师打脸。 我的意思是说，您怎么能说他[川普]煽动人民，却告诉人们要和平与爱国？ 好吧，如果他告诉人们要和平与爱国，那他[川普]怎么可能煽动人民呢？
+
+Plus, I was at that rally. Nobody was jumping up and down, acting crazy. Whatever happened at the capitol had already started. It already happened. And, we, and it took about an hour to walk from there to the capitol if anybody did. So, the two different events, the two different events that they’re trying to put together in a desperate effort to prevent him from getting real, getting elected in 2024 if he wants to.
+
+另外，我参加了那个集会。 没有人跳来跳去，表现得很疯狂。 [当时]国会山上发生的事情是已经开始了的。 它已经发生了。 而且，即使有人要走到国会山上去，那也得花大约一个小时的时间。 因此，这两个是不同的事件，他们[那些议员]正试图把两件不同的事情拼凑起来，以阻止他[川普总统]在2024年当选，如果他想参选的话。
+
+**Grant Stinchfield:** Yeah, desperate and of course dishonest as well. I put together this little clip, you know, the President’s team has been getting a lot of criticism apparently even from the President himself. I want to roll the first attorney to speak yesterday and then get your response. I hate to turn lawyers against each other, but I want to play this because I was troubled by it too. Roll it.
+
+**格兰特·斯金菲尔德：**是的，他们[议员]这是无计可施了，而且真的是不诚实。 我准备了下面这个[总统律师讲话的]小片段，您知道，总统的律师团队显然也受到了总统本人的批评。 我想放一下[总统]首席律师昨天的发言，然后想听一下您的评论。 虽然我不想让律师们互撕，但我真的想把它放出来，因为它是如此地困扰着我。放出来吧。
+
+**Bruce Castor Jr.: **The House managers who spoke earlier were brilliant. I loved listening to them. They’re smart enough to pick a new administration if they don’t like the old one. President Trump no longer is in office. He was removed by the voters.
+
+**小布鲁斯·卡斯特：**之前发言的众议院管理者们都很出色。 我喜欢听他们的发言。 如果他们不喜欢旧政府，他们可以足够聪明地选出一个新政府。 川普总统已经不是总统了。 他被选民给选下去了。
+
+**Grant Stinchfield:** So Mr. Mayor, that’s Bruce Castor. What in the world is he talking about there? I mean, it’s so disappointing for me to see that, and that’s the guy defending my guy, President Trump.
+
+**格兰特·斯金菲尔德：**所以说，市长先生，那位就是是布鲁斯·卡斯特。 他在到底说的是啥啊？ 我的意思是，我看了以后太失望了，那个家伙就是给我的川普总统辩护的人啊！
+
+**Mayor Rudy Giuliani:** I don’t know what he was thinking about. Lawyers make mistakes. Maybe maybe nobody had told him what side of the case he was on before he came in. He might have been a little confused about it. But it was a fundamental errors that.. I mean I can’t explain it. And just have to chalk it up to a bad day, I guess.
+
+**鲁迪·朱利安尼市长：**我不知道他脑子里想啥呢。 律师也会犯错。 也许没有人在他来[听证会]之前告诉过他，他是代表哪一方的律师。他可能有点犯糊涂了。 但这是一个基本的错误…… 我的意思是，我也无法解释。 我想，这只能归结到那是倒霉的一天。
+
+**Grant Stinchfield:** Well, Mr. Mayor, it’s great having you on the program, and I’ve told you before, I want to thank you for all you did during this time, leading up to today included, you and the entire team. God bless you, Sir, and I appreciate you coming on the program.
+
+**格兰特·斯金菲尔德：**好吧，市长先生，很高兴您参加节目，我之前就已经告诉过您，我要感谢您在这段时间内所做的一切，直到今天，包括您在内，以及整个团队。 上帝保佑您，先生，我感谢您参加节目。
+
+**Mayor Rudy Giuliani:** Thank you, Grant. God bless you too.
+
+**鲁迪·朱利安尼市长：**谢谢，格兰特，上帝也保佑您。
+
+视频来源：[https://www.youtube.com/watch?v=rAX\_MXCEO-4&feature=youtu.be](https://www.youtube.com/watch?v=rAX_MXCEO-4&amp;feature=youtu.be) (0:00-6:10)
+
+以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。
+
+翻译：【文灵】【Isaiah4031】字幕：【奔腾的长江】编辑：【Isaiah4031】
+
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
 
-**世界其他地区新闻：**
 
-**朝鲜利用网络攻击窃取核武研发经费。**美国之音2月10日的消息，联合国一份保密报告说，朝鲜利用网络攻击窃取数亿美元，用来资助其核项目与弹道导弹的研制，并违背了国际法。这份星期二泄露给媒体的报告说，尽管受到很多的国际制裁，朝鲜依然能在2020年加强核项目与导弹项目的发展。报告援引联合国一个成员国提供的消息说，朝鲜通过网络攻击与网络欺诈窃取了3亿多美元，用以资助其军事扩张。报告强调，朝鲜近期在军事阅兵式上展出的新型弹道导弹已经能够装载核弹头，射程有可能覆盖整个美国。
+> [川普总统2021年1月6日《拯救美国》集会演讲全文](https://gnews.org/zh-hans/760125/)
 
-**英美官员回应中共禁****BBC****一事。**大纪元2月12日的消息，北京时间2月12日，中共国家广播电视总局发布声明，禁止英国广播公司（BBC）世界新闻台在中共大陆境内落地。英国外交大臣和美国参议员对中共此举作出回应。英国外交大臣多米尼克·拉布在推特上回应说，这是对媒体自由的不可接受的剥夺行为。美国国会共和党参议员里克·斯科特发推说：“习近平总书记竭尽全力地使反对派噤声。共产主义中国没有新闻自由，或自由的时候。中共控制着任何事和任何人，我们需要像对待其他专政国家一样对待它们。”
 
-**爆料革命大事记：**
 
-**以下是澳喜要闻组****2021****年辛丑年贺辞，写稿人小治战友：**
-
-春节是中国人辞旧迎新的节日，结束了一年的忙碌，我们希望可以迎来新的美好生活。然而对于新中国联邦人来说，虽然我们仍未摆脱过去的阴霾，但我们不会灰心，并且充满希望，因为爆料革命依然在如火如荼地进行着。
-
-记得2020年的“文贵看春晚”由文贵先生、班农先生和凯莉女士坐镇，而今年我们看到了闫博士、郝海东夫妇、喜马拉雅联盟委员会、还有一些农场主。越来越多的华人面孔，预示着爆料革命的势力越来越强大，我们正在聚集华人精英们的力量。然而，CCP的“蠢人晚会”依旧被网友吐槽是史上最难看的晚会，一年不如一年，审美土气，价值观低级。中共衰落得远比我们想象得厉害得多。
-
-想想自17年爆料革命开始以来，我们见证了世界的巨变和中国人的觉醒和自救。从中美伙伴关系，到孔子学院被取消、中美贸易战、中共副国级官员被制裁、中共被定义为种族灭绝和反人类罪，中共和世界的关系已经不再是蓝金黄渗透和各种勾兑就能解决的了。中共的罪行已经被爆料革命摆到了台面上来。消灭中共、拯救中国人是世界人民的声音，也是历史的必然趋势。同时，世界各农场的建立，各地自发的游行和抗议中共的活动，还有GTV上24小时不间断的直播节目，全球华人都在想办法给中共加稻草，我们仍然相信，也许明天一睁眼，CCP就“嗝屁”的。
-
-当然，中共也在做着垂死的挣扎。从香港的大抓捕、倾一国之力收买华盛顿政客，到午夜制裁特朗普政府和放出了“中共病毒”，不管CCP如何作死，我们可以看到，中南坑的老杂毛们是真的很害怕，同时他们也是真的很low，能用的招数都是阴招和损招，一切只为了保住自己私生子女的钱和命。他们已经穷途末路了，他们越来越没有希望了。正义的阳光会让邪恶的黑暗无所遁形，中共一定会被灭，只是时间和方式的问题。我们希望共产主义消失，但不希望它带走任何中国人。
-
-今天是新中国联邦人的第一个农历春节，中国人民和海外华人正在一起创造新的历史局面。我们正在打破CCP的信息封锁，把海内外华人团结到一起，我们要让中国人重新加入世界人民大家庭，让世界看到新中国联邦人的良好面貌。我们相信自由、信仰和法制，我们要为人类文明创造更多希望和奇迹。中共早已不能代表中国人，我们可以代表世界华人新形象。
-
-最后澳喜要闻组祝愿全世界战友：新中国年快乐！身体健康！阖家欢乐！灭共我们仍在进行中！相信我们一定会赢！
-
-感谢新闻摘录，新闻撰稿，配音录制以及视频制作战友们的辛勤付出。
-
-感谢坦克人提供的技术支持。感谢路德社文宣群的支持。
-
-欢迎明天澳洲晚九点，北京晚六点继续收听观看“澳喜要闻”。
-
-[澳喜文章](https://gnews.org/zh-hans/author/aujenny/)
-
-[欢迎加入澳喜农场](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-Logo.jpeg)
-0
++2

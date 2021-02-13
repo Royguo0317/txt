@@ -1,29 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德时评简讯（视频版）：世卫组织顾问揭露新冠病毒武汉调查内幕(2021.2.10早间 路德社简讯之路安墨谈）
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/904331/)
+## 【每日快讯】12/02/2021:辛丑年以毒灭共，以钱灭共现在开始
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/904741/)
 
-《路德社》出品
+**制作:Cantonese工作室**
+播报: 【美国小李】
+资料收集: 【安妮】【Sunny64】【郁金香】【Ruby三鑫】【美国小李】
+视频制作: 【Shawn】
+海报制作: 【Miranda】
+上传: 【Shawn】
+**摘要:**
 
-以下视频是详细内容：
-
-内容摘要：
-
-**一、世卫组织顾问揭露新冠病毒武汉调查内幕**
-
-**二、世卫在中共调查结果新闻发布会的表演**
-
-**三、中共官方五年前的出版物“非典非自然起源**
-
-
-
-翻译：路德社翻译组
-
-制作：路德社简讯视频组
-
-审核校对：玫瑰新闻组
-
-上传排版：玫瑰新闻组
-
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-01.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-02.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-03.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-04.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-05.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-06.jpg)
+7.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-07.jpg)
+8.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-08.jpg)
+9.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-09.jpg)
 0
