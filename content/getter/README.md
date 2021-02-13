@@ -12,9 +12,9 @@
 
 ---
 
-[2月13日， 此视频除夕夜在国内广为流传：成功的打败了美帝国主义的细菌战  This video is widely in circulation cross ...](/content/getter/content/2021/02/6027f767226e775907439862.md)
+[2月13日， 此视频除夕夜在国内广为流传：成功的打败了美帝国主义的细菌战  This video is widely in circulation across...](/content/getter/content/2021/02/6027fc59226e7759074399f0.md)
 
-**郭文贵MILES** `2021-02-13T15:59:35`
+**郭文贵MILES** `2021-02-13T16:20:41`
 ##
 
 [2月13日 日前，有战友爆料九指妖违法事实!  Recently, fellow fighter reveal the fact that the Nine F...](/content/getter/content/2021/02/6027f50b226e7759074397ba.md)
