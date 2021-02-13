@@ -1,27 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 去年英国经济录得1799年以来最严重衰退
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/904682/)
+## 【每日快讯】12/02/2021:辛丑年以毒灭共，以钱灭共现在开始
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/904741/)
 
-加拿大多伦多枫叶农场 向真
+**制作:Cantonese工作室**
+播报: 【美国小李】
+资料收集: 【安妮】【Sunny64】【郁金香】【Ruby三鑫】【美国小李】
+视频制作: 【Shawn】
+海报制作: 【Miranda】
+上传: 【Shawn】
+**摘要:**
 
-校对 上传 小鸥
-![]()![](https://gnews.org/wp-content/uploads/2021/02/U-13.jpg)图片来自 hg-businessconsulting.com
-印度斯番时报2020年 2 月 12 日报道，即使在英国政府大力刺激经济的情况下，2020年英国全年的GDP仍然收缩了9.9%，创下了自1799年以来最严重衰退的一年。这是在政府的医疗保健和教育支出持续四个季度增长，建筑业发布最强数据（主要得益于大量香港移民进入英国后对房产的需求）的情况下发生的经济大萎缩。
-
-英国央行首席经济学家安迪·霍尔丹预计，在过去因疫情经济封锁期间，消费者消耗了约2500亿英镑（3450亿美元）储蓄，这表明英国未来几年将不得不生活在更高的失业率和政府借款中。
-
-英格兰 5500 万人口中，大多数人都受到疫情二级或三级限制。伦敦目前处于二级，这意味着酒吧和餐馆可以营业，但要遵守社交距离规；但在三级地区，除了外卖外，酒店场所必须关闭。
-
-以上在英国所发生的不幸都因中共病毒而起。英国首相对外宣称希望从3月8日开始放松对经济的限制。英国政府寄望于加大现有疫苗的使用，一旦达到安全免疫效果，就重新开放学校和企业，促进经济和就业迅速复苏。但市场对英国政府传达的信息信心不足，反应消极。英磅交易价格甚至下跌0.1%。
-
-欧美发达经济体的消费占GDP的比重高达80%左右，中共病毒肆虐造成大量失业，大量企业关停，这除了导致政府财税收入剧减之外，也令社会总体消费能力大幅下降，政府只能依靠增发货币来维系社会系统的运转。但这势必推高通胀，通胀反过来打击企业，稀释社会财富，削弱社会总体消费能力，政府的实际收入更快下降。这是一个互为因果、恶性循环的过程。
-
-世界各国只有不畏中共淫威，联合起来对中共病毒来源进行彻底追查，才有可能战胜中共病毒及其带来的巨大灾难。
-
-原文链接：
-
-[https://www.hindustantimes.com/world-news/uk-economy-surged-in-december-2020-capping-worst-year-since-1709-101613115944395.html](https://www.hindustantimes.com/world-news/uk-economy-surged-in-december-2020-capping-worst-year-since-1709-101613115944395.html)
-
-+1
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-01.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-02.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-03.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-04.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-05.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-06.jpg)
+7.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-07.jpg)
+8.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-08.jpg)
+9.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210212-zhTW-09.jpg)
+0

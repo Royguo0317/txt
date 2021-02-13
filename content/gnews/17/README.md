@@ -1,49 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】中国禁播 BBC 新闻　香港电台跟随停止转播
-` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/905020/)
+## 拜登给习近平打的拜年电话激怒了美国人，新中国联邦是最大赢家
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/905088/)
 
-蒐集\編撰：西西
+新闻简述：郭先生在2021年2月12日的视频中详细解析了拜登给习近平的新春电话给中美两国带来的伤害。“第一个，他激起了美国人的愤怒。第二，中国内部的政治加剧。最大受益者又是咱们中国联邦。”
+[下载字幕文件](https://gnews.org/wp-content/uploads/2021/02/Miles_20210212_getter-revised.srt.txt)
+**拜登给习近平打的拜年电话激怒了美国人，新中国联邦是最大赢家**
 
-**中國國家廣播電視總局2月12 日凌晨宣布，零時起即時在中國內地禁播BBC 世界新聞頻道（BBC World），並不允許BBC 世界新聞台繼續在中國境內「落地」，對其新一年度落地申請不予受理。香港電台發言人隨後即表示，根據國家廣播電視總局相關新措施，由當晚 11 時起，將不再轉播 BBC 國際頻道及「BBC時事一週」。香港電台作為港府的官方電台，此舉被質疑是【一國一制】的體現，與國策「同步」。歐盟就此發聲明，指事件證明在落實「港版國安法」後，本港的新聞自由進一步被侵蝕、削弱「一國兩制」下應有的自治權。**
-![]()![](https://gnews.org/wp-content/uploads/2021/02/jpg-1-2.jpg)图片：立场新闻
-港台回覆《立場》查詢時未有解釋決定，僅稱「根據國家廣播電視總局不允許BBC 世界新聞台繼續在中國境內落地，對其新一年度落地申請不予受理」，故停止轉播相關BBC電台節目。
+**Biden’s Phone Call to Xi Jiping on Lunar New Year Triggered the Anger of Americans; NFSC Is the Biggest Winner**
 
-國家廣電總局昨日凌晨以「簡訊」形式公佈有關決定，「簡訊」指「經調查」，BBC世界新聞台涉華報導有關內容嚴重違反《廣播電視管理條例》《境外衛星電視頻道落地管理辦法》有關規定，違反新聞應當真實、公正的要求，損害中國國家利益，破壞中國民族團結，不符合境外頻道在中國境內落地條件，國家廣播電視總局不允許BBC 世界新聞台繼續在中國境內落地，對其新一年度落地申請不予受理。
+前天，大家知道一周以前我就告诉大家了，给中南坑说了，必须在春节前让拜登打电话过来，给杨娘娘下令，给政治局下令。谁说的？只有七哥说了，咱掌握中南坑一切动向。昨天打电话了吧？而且选择那种时机，那种电话。路德访谈都解释了，但是我要告诉你的事情，这个电话打完，对美国、对中国，它都是双伤。
 
-**工會要求港台和商經局作出解釋**
+The day before yesterday, everyone knows that I told you a week ago that Biden must call the Zhongnan Pit before the Spring Festival, and the order had been given to Yang, the Queen [Yang Jiechi] and the Politburo. Who said it? Your Brother Seven was the only one who said that. I know every move of the Zhongnan Pit. So, they did call yesterday, right? And they chose that timing and that kind of call. Lude has interpreted everything for you, but what I want to tell you is that after this call, both the United States and China are hurt.
 
-香港電台節目製作人員工會發聲明，質疑在【一國兩制】下，過往從沒聽聞香港須跟隨國家廣電總局決定，認為港台和商經局應清楚解釋理據。
+第一个，他激起了美国人的愤怒。第二，中国内部的政治加剧。最大受益者又是咱们中国联邦。大家不服是吧？看到现在拜登电话之后的负面效应，全都出来了吧？绝对这个意义。这个总加速师，还有中南坑他们要面子，演戏给中国人，搞洗脑。过去它管用，它没有互联网，老百姓都已经不辨是非、不辨真假，你想说啥是啥，是吧？给你打电话了，他问你脚疼吗？你问他头疼吗？是不是？他说，我跟你去双修，他说，我跟你去双双修，那谁球知道啊？是吧？
 
-工會指，港台作為一個在香港屹立93 年的公共廣播機構，認為港台和商務及經濟發展局，應清楚解釋「如何從專業角度判斷BBC 的報道是『假新聞』，而促成停播的決定」，提供相關理據。
+First, he [Biden] triggered the anger of Americans. Second, the political strife within China has intensified. The biggest beneficiary is again our New Federal State of China. You don’t believe me, right? Look at all the negative effects after Biden’s phone call now, which have manifested, right? This is absolutely valuable. The “chief accelerator” (Xi Jinping) and the Zhongnan Pit wanted to save their face and act before the Chinese people and brainwash them. It would work in the past because back then there was no Internet and the common people could not tell right from wrong, real from fake, and so believed whatever you told them, right? [Biden] called you and he asked if your feet hurt? And you asked him if he had a headache? Isn’t it? He said, I will do double cultivation with you, and he said, I can do double double cultivation with you. Who would know? Right?
 
-聲明中，工會稱BBC 國際頻道，轉播自世界知名的公共廣播機構，亦是港台英文台其中一個最受歡迎的節目，在港啟播至今43 年；認為現時因政策改變而須停播，令人非常婉惜。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/jpg-2-2.jpg)图片：立场新闻
-**戰友點評：**
+那现在这电话一打完，全世界媒体都报道，然后共产党吹牛，是吧？把美国总统按跪在地上，在他规定的时间、规定的地点，双规的情况下，然后打电话，所以说在中美的历史上创造了叫双规电话。由习近平规定的时间、规定的方式，给他打电话，恭贺他新年，牛了。这叫中美双规电话。
 
-中國官媒中央廣播電視總台旗下的中國環球電視網（CGTN）曾屢被質疑報道偏頗，英國通訊管理局 2 月 4 日宣布，吊銷 CGTN 在當地的廣播牌照。局方稱，調查後證實 CGTN 的廣播牌照被「星空華文傳媒」（Star China Media）持有，然而這間公司一直無權控制該台的編採內容，因此不符合持牌的法定要求。
+Now when the call is over, the media all over the world will report this. And then the Communist Party can brag now, right? The President of the United States was forced onto his knees to make a call at the specified time and specified place (called “two-specification” or Shuanggui by the CCP), and so it is said that this phone call has created the so-called “two-specification call” in the history of China and the United States. At the time and in the way specified by Xi Jinping to call Xi to congratulate him on the lunar new year. Awesome. This should be called a “Sino-US, two-specification phone call”.
 
-中共駐英大使館及中共外交部發言人更「戰狼」上身，採用文攻武嚇方式對BBC媒體肆意指責抹黑。
+双规电话一打完，毕竟拜登总统代表的是美国人民，美国人民不愿意了，那你双规了他，你等于双规了我，听说爆烈，爆裂。昨天晚上就是咱们这里大年三十除夕夜，我这里的各国朋友，原来很多人都喜欢拜登的，我跟你们说过，那个曾经劝我跟拜登怎么怎么好，然后跟我说过，哎呀，文贵啊，拜登是个好人，如何如何的，昨天打电话“嗷嗷”地骂，祖宗八辈地骂，说他简直是软骨头。
 
-浸會大學新聞系高級講師呂秉權認為，港台在此事沒有話語權，形容香港已失以往的「特殊對待」，現時許多事情都要與國策「同步」；另一資深傳媒人，前立法會議員毛孟靜則表示，對港台決定不感意外，憂慮傳媒在未來日子會大規模集體自我審查。
+After the two-specification call is over, the American people became unhappy, after all, President Biden represents the American people. If you two-specification him [Biden], it’s equivalent to two-specification me. I heard that people were outrageous. Last night, which was the New Year’s Eve, my friends from all over the world contacted me. Many of them used to like Biden as I told you. The guy, who once persuaded me to be good with Biden and told me, “Wengui, Biden is a good guy, blah blah…”, called me yesterday to scold him [Biden] and his eight generations of ancestors, saying that Biden is simply a coward.
 
-呂秉權認為，BBC 日前報道有女性在新疆「再教育營」中遭受強暴性侵是「得罪中方」，故中國以禁播作為「制裁、懲罰」。他指，假若港台只是一個新聞機構未必會作此決定，因 BBC 的資訊來源可靠，是值得市民信賴的外國媒體。但港台同時亦是公營機構、政府部門，所以「自行決定」的空間很小。
+他说，死那么多人，谁来回答到底是哪来的病毒？还没搞明白，你打这个球电话是吧？双规电话，这说的对呀，说这还在死人呢，你打双规电话，你这不是傻嘛。然后美国的几大家族、几大药厂也惨了，说你打这双规电话，共产党先把疫苗推出来了，先把解药推出去了，我们赚谁的钱啊？你这是啥意思？
 
-他提到，以往內地禁止某位記者，或美國媒體於國內採訪，香港可以「不必跟大陸一套」，但現時已失「特殊對待」，許多事情亦要與國策「同步」，特別是傳媒制裁的一體化。
+He said, so many people have died, who will answer the question where the virus came from? This hasn’t been figured out yet, and you made this f\*cking phone call? The two-specification call. A point well made. People are dying and you made a two-specification call. Are you stupid or what? And then, a few major American families and major American pharmaceutical companies were pissed off, saying that you made this two-specification call and the CCP pushed out their vaccine and their antidote before us. Then, whose money can we still make? What do you mean by doing this?
 
-呂秉權預料，其他外國媒體或不敢再報導中國官方認為敏感的內容，扼殺採訪空間。而且，今次 BBC 事件並非獨立例子，將根本性影響傳媒生存，「中共要畫一把尺、一條紅線，如果（有傳媒）過了條線，就可能會有滅頂之災」。而岌岌可危的不僅是外媒，本地傳媒亦會大受影響。
+还有一个，沃尔玛、华尔街说，我们现在给共产党讲数啊，川普总统给了美国人一个最多的给共产党讲数的机会，就是你干了坏事，我现在美国已经把你封了，已经把你制裁了，华为、抖音啊，那我能帮你开了，你是不是叫我的人进去啊，让华尔街也进去？这是讲数的最好的牌，说你一个双规电话，不用讲了，真是这样子。
 
-【以上觀點僅代表筆者本人 】
+Besides, Wal-Mart and Wall Street said, President Trump created the best leverage for us when negotiating with the CCP, that is, you have done the bad things and we, American have sanctioned you. If I help you with the Huawei and TikTok case, can you help us to enter China and let Wall Street go in too? This would be the best card, but you made this double-specification call, and then we lost all our leverage. It’s really like this.
 
-資料來源：
+这本来川普总统做了一大锅菜，一个双规电话，就等于搁了锅里一堆屎，谁也别吃了。这个电话的负面作用太大了，但最新中国联邦太好了，不但如此，兄弟姐妹们，你还会看到更夸张的，双规电话将使很多人联合在一起，没有选择的联合灭共。大年初一，这是绝对的好消息，不管拜登在白宫待几天，他跟习近平和中南坑，他想勾兑的空间和能做的事儿，几乎越来越渺小了。
 
-[立場新聞：【一國一制】中國禁播 BBC 新聞　香港電台跟隨　今晚起停轉播](https://www.thestandnews.com/politics/%E4%B8%AD%E5%9C%8B%E7%A6%81%E6%92%AD-bbc-%E6%96%B0%E8%81%9E-%E6%B8%AF%E5%8F%B0%E8%B7%9F%E9%9A%A8-%E4%BB%8A%E6%99%9A%E8%B5%B7%E5%81%9C%E6%92%AD/)
+It’s like President Trump cooked a big pot of vegetable already, and this two-specification phone call is like putting a pile of shit in the pot. Now, no one can eat it anymore. The negative effect of this call is so huge, but to our NFSC, it is so good, and not only that, brothers and sisters, you will see something more exaggerating. This two-specification call will unite many people, leaving people with no choice but to take down the CCP together. This is absolutely good news on the first day of the Lunar New Year. Regardless of how many days Biden can stay in the White House, the possibility of him colluding and working with Xi Jinping and the Zhongnan Pit has been diminishing.
 
-[立場新聞：【終止轉播】香港電台轉播 BBC 新聞節目逾 40 年　2017 年黨媒節目取代 24 小時轉播](https://www.thestandnews.com/society/%E7%B5%82%E6%AD%A2%E8%BD%89%E6%92%AD-%E9%A6%99%E6%B8%AF%E9%9B%BB%E5%8F%B0%E8%BD%89%E6%92%AD-bbc-%E6%96%B0%E8%81%9E%E7%AF%80%E7%9B%AE%E9%80%BE-40-%E5%B9%B4-2017-%E5%B9%B4%E9%BB%A8%E5%AA%92%E7%AF%80%E7%9B%AE%E5%8F%96%E4%BB%A3-24-%E5%B0%8F%E6%99%82%E8%BD%89%E6%92%AD/)
+以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。
 
-[立場新聞：【一國一制】港台隨中國禁播 BBC World　呂秉權：與「國策」同步　毛孟靜憂箝制更嚴苛](https://www.thestandnews.com/society/%E4%B8%80%E5%9C%8B%E4%B8%80%E5%88%B6-%E6%B8%AF%E5%8F%B0%E9%9A%A8%E4%B8%AD%E5%9C%8B%E7%A6%81%E6%92%AD-bbc-world-%E5%91%82%E7%A7%89%E6%AC%8A-%E8%88%87-%E5%9C%8B%E7%AD%96-%E5%90%8C%E6%AD%A5-%E6%AF%9B%E5%AD%9F%E9%9D%9C%E6%86%82%E7%AE%9D%E5%88%B6%E6%9B%B4%E5%9A%B4%E8%8B%9B/)
+视频来源：[https://gtv.org/video/id=60269d2c226e775907433c58](https://gtv.org/video/id=60269d2c226e775907433c58)
 
-審稿：卡西歐 /上傳：文粵
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/904092/](https://gnews.org/zh-hans/904092/)
 
-0
+翻译：【Isaiah4031】校对：【BruhM】字幕：【Naomi (文花开)】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+
++1
