@@ -1,14 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年2月12日 文贵先生盖特 5
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/905097/)
+## 2021年2月12日 文贵先生盖特 6
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/905127/)
 
 编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-亲爱的战友们， 本周由于我们的信用卡供应商Square和我们G| Fashion之间的支付协议出现了中断，导致您在2021年1月17日至1月27日之间的订单付款被退回至您原始订购订单的信用卡上。我们就对此为您造成的不便深表歉意。 如果在上述期间，您是使用PayPal的支付方式，那么您的订单不会受到影响。目前G|Fashion接受PayPal和Stripe支付方式，您可以正常订购，没有任何的支付问题。 请放心，我们保存有您原始的订单详情。我们的团队正在努力寻找一个替代的解决方案来再次处理您的付款。请留意我们的进一步通知和说明如何来重新处理您的付款。 我们对此为您造成的不便再次表示歉意。感谢您成为G|Fashion的尊贵客户以及对我们的支持。 如果您有具体的疑问或者需要进一步的帮助，请联系G|Fashion客服团队，他们会给您更详细的解释和帮助。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/6bc90693135dd1215a9725ab9f7c6aad.jpg)
-[【2021年2月12日】文贵先生盖特原文](https://gtv.org/getter/60275587226e77590743722b)
+2/11/2021 郭先生班农春节连线 班农:” 如果世界听取了信使-郭先生的意见,世界今天会是什么样？我认为我们就不会有今天 – 就不会有全球疫情大爆发。他是第一个对病毒发出警报的人；他还警告世界，我们面临的是一个由十几个家族控制着的北京残暴独裁政权, 它们释放了生物武器。是他让我认识了CCP，让我觉醒，出现在这里是我的荣幸。” 2/11/2021 Mr. Guo and Mr. Bannon Chinese New Year Program Bannon: ” What would the world have look like if the world had listened to Miles Guo？ I tend to place we wouldn’t be we wouldn’t have a worldwide pandemic. He was the first to raise the alarm about the coronavirus; he also warned the world that we were facing a brutal dictatorship in Beijing controlled by a dozen families who had unleashed biological weapons. He was the one who introduced me to CCP and awakened me to the fact that it is an honor to be here today.”
+
+
+
+[【2021年2月12日】文贵先生盖特原文](https://gtv.org/getter/60277b16226e775907437c2d)
 
 **喜联盟Gnews编辑部**
 
