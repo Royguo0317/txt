@@ -1,27 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 克里姆林宫呼吁伊朗保持“克制”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/904460/)
+## 香草播报：【军事快讯】美国和西方在俄乌冲突问题上和俄罗斯发生冲突
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/904494/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：纽约香草山写作组 Wilson
 
-编辑   水星    上传    银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-13_01-53-31.jpg)[hartenergy.com](https://www.hartenergy.com/news/iran-russia-talks-raise-hopes-progress-opec-meeting-date-180743)
-《零对冲》（Zerohedge）2月11日消息，伊朗准备生产可用于核武器核心的铀金属，对此违反2015年核协议的行为，俄罗斯罕见呼吁伊朗保持“克制”。
 
-俄罗斯副外长里亚布科夫星期四说，“我们理解他们行动的逻辑以及使伊朗采取行动的原因。尽管如此，仍有必要表现出克制和负责任的态度。” 俄罗斯敦促德黑兰保持克制。
 
-周三，《华尔街日报》报道了国际原子能机构(IAEA)正式通知联合国，“该机构于2月8日证实，在伊朗伊斯法罕的燃料板制造厂(FPFP)发现3.6克铀金属。”报告还进一步强调，“伊朗威胁要生产铀金属，这引起了西方外交官的警觉，因为这种材料属于可用于民用目的的铀浓缩，是核武器的核心组成部分。”
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-俄罗斯和伊朗长期以来一直是中东地区的战略盟友，莫斯科不顾以色列、海湾国家和西方国家的反对，表现出愿意与伊朗进行武器交易。莫斯科还一直是敦促美国立即重返核协议(JCPOA)的主要倡导者。
 
-尽管克里姆林宫呼吁伊朗“克制”，但里亚布科夫也同时警告美国说，在乔·拜登(Joe Biden)竞选时承诺重新加入核协议之后，至今未见进展，德黑兰现在正在展示“不容忍当前的局势”的决心。
 
-与此同时，伊朗外交部长贾瓦德·扎里夫(Javad Zarif)周三向拜登总统发出警告，“很快，我的政府将被迫采取进一步的补救行动，以回应美国和欧洲未能履行其在核协议中的承诺。”扎里夫强调，恢复奥巴马时代协议的“当前窗口”正在迅速关闭。
+美联社2月12日报道，俄罗斯周四就乌克兰东部近七年的冲突与美国及其西方盟友发生冲突。联合国警告说，如果和平谈判陷入僵局，俄乌边境将重燃战火。
 
-参考链接：
+![]()![](https://gnews.org/wp-content/uploads/2021/02/95.jpg)
 
-[https://www.zerohedge.com/geopolitical/russia-issues-rare-call-restraint-iran-after-uranium-metal-production](https://www.zerohedge.com/geopolitical/russia-issues-rare-call-restraint-iran-after-uranium-metal-production)
+美国和欧洲盟友指责俄罗斯通过向乌克兰分离主义者提供财政和军事支持，助长了导致14,000多人死亡的冲突。
+
+俄罗斯联合国大使瓦西里·内本齐亚辩称，“乌克兰顿巴斯（冲突地区）的人民至今仍然没有感觉与乌克兰有任何联系。”
+
+地缘政治家、前美国国家安全顾问布热津斯基在他的畅销书《大棋局》中指出，只有拥有乌克兰，俄罗斯才可能成为其梦想中的“欧亚帝国”，而失去了乌克兰的俄罗斯，则最多成为一个亚洲帝国。因为乌克兰是俄罗斯进入欧洲的第一站。
+
+只有控制了乌克兰，俄罗斯才能经由乌克兰介入黑海、波兰以及巴尔干半岛的事务，进而牵制和威胁欧洲。近年来，乌克兰各有约一半的人口要求加入俄国或加入欧盟。乌克兰的民族分裂状况，在一定程度上是以美国为首的北约和俄罗斯激烈争夺乌克兰的结果。这种残酷的地缘政治角力还将继续，受苦受难的是这片土地的人民。
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
 
 0

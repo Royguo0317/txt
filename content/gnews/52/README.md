@@ -1,15 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年2月12日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/904020/)
+## 中共增加南中国海的军事部署
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/904073/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+俄罗斯莫斯科喀秋莎农场   银河
 
-亲爱的战友们， G｜Fashion新年系列已上线啦！ 这是这一季度的新款口哨项链🔥🔥🔥🔥 请大家关注G ｜Fashion 的 Instagram . 以下是链接： [https://instagram.com/gfashionclubs?igshid=mwr3k3xqvbsg](https://instagram.com/gfashionclubs?igshid=mwr3k3xqvbsg)
-![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-12_19-15-19.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-12_19-15-20.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-12_19-15-22.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-12_19-15-26.jpg)
-[【2021年2月12日】文贵先生盖特原文](https://gtv.org/getter/6026c0b2226e775907434af3)
+编辑   水星   上传   银河
+![]()![](https://cdn.discordapp.com/attachments/799010586356351066/809858863980347472/sea.JPG)theduran.com
+《华盛顿时报》2月11日报道， 自美国航母战斗群在南中国海进行了联合演习以来，中共军方增加了军舰和战机在南中国海的任务。
 
-**喜联盟Gnews编辑部**
+美国海军少将、西奥多·罗斯福号航空母舰领导的打击群的指挥官道格·维里西莫(Doug Verissimo)在新闻发布会上说，看到该区域的中共飞机和军舰数量明显增加。
+
+2月9日法国武装部派遣法国核推进攻击潜艇和军舰在南中国海巡逻，以强调国际航道的航行自由。同一天，美国海军宣布两个美国航母战斗群在南中国海进行了联合演习。几天前，一艘美国军舰在有争议水域的中共控制岛屿附近航行。
+
+中共海军经常在南中国海与美国军舰对峙，并命令它们离开该区域。中共声称南中国海90%的海域是其领海，这一主张在几年前被国际法庭驳回。
+
+菲律宾对中共海警队在南海争议海域的行动表示关注。菲律宾陆军总司令索贝哈那(Cirilito Sobejana)2月9日表示，菲律宾将加强在南海派驻海军，以保护菲国渔民。
+
+在索贝哈那宣布这项消息之前，菲律宾已经就中共通过的《海警法》表达了抗议。中共这项新法授权海警队在中共视为领土的海域执法时，可以对外国船只开火。
+
+索贝哈那中将在记者会上表示，“我们将透过部署更多海军资产，以增加我们在南海的能见度。但我要清楚表明，我们海军派驻南海，不是要对中共开战，而是确保我们人民的安全。”
+
+尽管索贝哈那要增兵南中国海，但与中共的海军舰队和海警队相较，菲律宾海军的军力非常有限。美国国务卿布林肯(Antony Blinken)上个月强调了美菲共同防御条约(MDT)的重要性，以及如果菲律宾在南海地区遭受攻击，将可以明确引用这项条约。
+
+中共在南中国海增加了军事部署，让南中国海紧张局势再度升级。
+
+参考链接：
+
+[https://www.washingtontimes.com/news/2021/feb/11/china-rapidly-expanding-military-assets-in-south-c/](https://www.washingtontimes.com/news/2021/feb/11/china-rapidly-expanding-military-assets-in-south-c/)
 
 0

@@ -1,39 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 水位极低 湄公河委员会要求中共提供水坝数据
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/904064/)
+## 世卫首席科学家谈中共病毒：感染过的人可能会再次被感染
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/904104/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+- 编辑：Victor Torres
+- 发稿：Ranting
 
-编辑   水星   上传  银河
-![]()![](https://cdn.discordapp.com/attachments/799010586356351066/809853333354446898/M.JPG)stimson.org
-路透社2月12日报道，湄公河委员会（MRC）周五表示，湄公河水位已降至“令人担忧的水位”，部分原因是中共国在上游的水电站限制了泄洪，该委员会呼吁北京共享其所有水资源数据。
 
-湄公河委员会表示，这条重要的水道在泰国和老挝的边界上已经从通常的暗棕色变成蓝色，这意味着水很浅，富含营养的沉积物含量很低，部分原因是由于中共云南省景洪大坝限制了泄洪。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-星期五的声明说，降雨量少以及湄公河下游和支流上的大坝也是水位下降的原因之一。
+**西班牙2021年2月12日电/西喜社——**世界卫生组织首席科学家斯瓦米纳坦博士发布最新情报： “我们现在收到报告说有人重新感染了一种新的变种病毒… 这说明以前感染过的人可能会再次被感染。”
 
-湄公河委员会秘书处技术支持部主任威奈（Winai Wongpimool）说，“为了帮助湄公河下游国家更有效地管理风险，我们呼吁中共和湄公河下游国家与我们分享它们的放水计划。”
 
-湄公河委员会表示，如果中共国水坝水库大量放水，可能会恢复正常状况。中共外交部对湄公河委员会的调查结果提出质疑，并补充说下游干旱的原因有很多。
 
-湄公河发源于中共国的青藏高原，先后流经缅甸、老挝、泰国、柬埔寨和越南，是全球第12大河流。湄公河是下游国家居民的生命线，但中共为了自身商业利益大肆兴建水电大坝，自从1992年起至今中共在湄公河上在使用中的大中型水电大坝已有近60座，在建的约30座。
+> “We are now getting reports of people getting reinfected with a new variant of the virus … suggesting people who’ve had prior infection could get infected again.”
+> 
+> — WHO Chief Scientist Dr. Soumya Swaminathan [pic.twitter.com/RIWGMLxlQh](https://t.co/RIWGMLxlQh)
+> — The Recount (@therecount) [February 12, 2021](https://twitter.com/therecount/status/1360261856313683971?ref_src=twsrc%5Etfw)
 
-援引自德国之声的报道，智库史汀生研究中心（Stimson Center）的负责人艾勒（Brian Eyler）说，“监控系统提供的证据表明，经过精心设计和运作，中共国的11个主要大坝得以最大限度从事水力发电，卖给中共国东部省份使用，根本不考虑下游影响。”
 
-《纽约时报》报导，美国水资源监测机构“地球之眼”（Eyes on Earth）2020年4月一份报告指出，中共国去年控制上游水量，导致下游国家严重干旱，部分河流完全干涸。
 
-斯廷森中心(Stimson Center)东南亚项目主任布赖恩·艾勒(Brian Eyler)说，西藏高原有大量的水，柬埔寨、泰国等国家却正面临极端缺水的威胁。中共的权贵阶层把水看作是供他们使用获利的东西，而不是一种共享资源。
-
-泰国湄公河专家猜那龙·瑟他赛(Chainarong Setthachua)指出，这是中共商业发展的一部分。他说，“依靠湄公河资源维持生计和创收的普通人被自动排除在外。”
-
-中共在湄公河的霸权行径引发国际社会关注。获美国国务院资助的“湄公大坝监控”（Mekong Dam Monitor）在2020年12月启动，可利用卫星数据追踪中共在湄公河上游兴建的水坝水位，以应对中共对湄公河下游国家的影响。
-
-参考链接：
-
-[https://www.reuters.com/article/us-mekong-river-idUSKBN2AC0K0](https://www.reuters.com/article/us-mekong-river-idUSKBN2AC0K0)
-
-[湄公河角力 美国卫星追踪中国大坝水位 | 德国之声 来自德国 介绍德国 | DW | 14.12.2020](https://www.dw.com/zh/%E6%B9%84%E5%85%AC%E6%B2%B3%E8%A7%92%E5%8A%9B-%E7%BE%8E%E5%9B%BD%E5%8D%AB%E6%98%9F%E8%BF%BD%E8%B8%AA%E4%B8%AD%E5%9B%BD%E5%A4%A7%E5%9D%9D%E6%B0%B4%E4%BD%8D/a-55928867)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
 0
