@@ -1,58 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵看春晚III连线班农先生，99%的兄弟姐妹希望川普回归白宫
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/905066/)
+## 拜登给习近平打的拜年电话激怒了美国人，新中国联邦是最大赢家
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/905088/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/封面-86.jpg)
-编辑整理：
+新闻简述：郭先生在2021年2月12日的视频中详细解析了拜登给习近平的新春电话给中美两国带来的伤害。“第一个，他激起了美国人的愤怒。第二，中国内部的政治加剧。最大受益者又是咱们中国联邦。”
+[下载字幕文件](https://gnews.org/wp-content/uploads/2021/02/Miles_20210212_getter-revised.srt.txt)
+**拜登给习近平打的拜年电话激怒了美国人，新中国联邦是最大赢家**
 
-洛杉矶天使准农场：文琪🌹
+**Biden’s Phone Call to Xi Jiping on Lunar New Year Triggered the Anger of Americans; NFSC Is the Biggest Winner**
 
-法国巴黎七星农场：黎明之前&枫丹白露
+前天，大家知道一周以前我就告诉大家了，给中南坑说了，必须在春节前让拜登打电话过来，给杨娘娘下令，给政治局下令。谁说的？只有七哥说了，咱掌握中南坑一切动向。昨天打电话了吧？而且选择那种时机，那种电话。路德访谈都解释了，但是我要告诉你的事情，这个电话打完，对美国、对中国，它都是双伤。
 
-郭文贵先生在[辛丑年文贵看春晚](https://gtv.org/video/id=60252a55be64150df850eb09)对庚子灭共年爆料革命的成就进行了回顾，把辛丑年定为以毒灭共年和以钱灭共年，与各位战友进行连线，在三小时四十三分钟的时间内全球战友们与郭文贵先生共同辞旧岁迎新春，本系列将根据本届[辛丑年文贵看春晚](https://gtv.org/video/id=60252a55be64150df850eb09)的不同内容逐一上传。
+The day before yesterday, everyone knows that I told you a week ago that Biden must call the Zhongnan Pit before the Spring Festival, and the order had been given to Yang, the Queen [Yang Jiechi] and the Politburo. Who said it? Your Brother Seven was the only one who said that. I know every move of the Zhongnan Pit. So, they did call yesterday, right? And they chose that timing and that kind of call. Lude has interpreted everything for you, but what I want to tell you is that after this call, both the United States and China are hurt.
 
-以下为第三部分——连线班农先生，99%的兄弟姐妹希望川普回归白宫，由于本部分目前并没有对照郭文贵先生和班农先生的逐句英文翻译，因此编者尽最大努力进行了听译，不足之处颇多，这一段内容是非常重要的访谈内容，如果稍后得到精准的逐句翻译文本将推出修正版，对于本部分的不足之处敬请在留言区指正。
+第一个，他激起了美国人的愤怒。第二，中国内部的政治加剧。最大受益者又是咱们中国联邦。大家不服是吧？看到现在拜登电话之后的负面效应，全都出来了吧？绝对这个意义。这个总加速师，还有中南坑他们要面子，演戏给中国人，搞洗脑。过去它管用，它没有互联网，老百姓都已经不辨是非、不辨真假，你想说啥是啥，是吧？给你打电话了，他问你脚疼吗？你问他头疼吗？是不是？他说，我跟你去双修，他说，我跟你去双双修，那谁球知道啊？是吧？
 
-据[辛丑年文贵看春晚](https://gtv.org/video/id=60252a55be64150df850eb09)时间点1：03：59——
+First, he [Biden] triggered the anger of Americans. Second, the political strife within China has intensified. The biggest beneficiary is again our New Federal State of China. You don’t believe me, right? Look at all the negative effects after Biden’s phone call now, which have manifested, right? This is absolutely valuable. The “chief accelerator” (Xi Jinping) and the Zhongnan Pit wanted to save their face and act before the Chinese people and brainwash them. It would work in the past because back then there was no Internet and the common people could not tell right from wrong, real from fake, and so believed whatever you told them, right? [Biden] called you and he asked if your feet hurt? And you asked him if he had a headache? Isn’t it? He said, I will do double cultivation with you, and he said, I can do double double cultivation with you. Who would know? Right?
 
-郭文贵先生：好，谢谢。好，好了，好了。
+那现在这电话一打完，全世界媒体都报道，然后共产党吹牛，是吧？把美国总统按跪在地上，在他规定的时间、规定的地点，双规的情况下，然后打电话，所以说在中美的历史上创造了叫双规电话。由习近平规定的时间、规定的方式，给他打电话，恭贺他新年，牛了。这叫中美双规电话。
 
-播放视频：英雄归来。
+Now when the call is over, the media all over the world will report this. And then the Communist Party can brag now, right? The President of the United States was forced onto his knees to make a call at the specified time and specified place (called “two-specification” or Shuanggui by the CCP), and so it is said that this phone call has created the so-called “two-specification call” in the history of China and the United States. At the time and in the way specified by Xi Jinping to call Xi to congratulate him on the lunar new year. Awesome. This should be called a “Sino-US, two-specification phone call”.
 
-郭文贵先生：（吹哨子），哈哈哈哈，（郭先生说的英文，以下为中文大意）我的先生，中国新年快乐，（班农先生敬礼），您知道您用这个手（左手。敬礼）是错的，应该是这只手（右手）（班农先生再用右手敬礼），您看上去太帅了先生，先生，您知道今天是个非常重要的日子，您知道过去的庚子年，我们一起在纽约直播，庚子年已经过去了，我们跨入了辛丑年，但是整个世界都因中共病毒而改变，你只能在DC而我在这里（连线直播），所有的事情都因中共病毒而走向了灾难，**现在我们度过了过去的一年，世界发生了巨变，川普总统因中共而离开了白宫，现在拜登和习近平通电话了，他们希望向中共叩头，他们正在出卖美国的未来，**但只有您史帝夫.K.班农依然坚持在为美国的自由而战，所有的中国人民爱戴您、敬仰您，在过去的一年里郝海东先生、您和我一起中共病毒肆虐的时候，我们创立了新中国联邦，新中国联邦是中国人民的未来，**我们看到了您每天两期的战斗室节目，为美国人民而战、为上帝而战、为新中国联邦而战，您为此赢得了人民的爱戴和敬仰，**我希望您能告诉我们答案，为什么川普总统失去了白宫，为什么他们拥有了您这样的天才的战略顾问却失去了白宫？另一个问题是，希望您能为中国人民说几句话，**在今年我们将用病毒真相打倒中国共产党，我们将用G系列，G-Fashion、G-Club、G-Coin、G-Dollar强大我们的经济以推翻中国共产党的经济，因为美国的每一个华尔街和白宫造成的灾难，他们每个人都是既得利益者，因为他们从中国共产党那里得到金钱，而他们可以从我们这里得到合法的、平和的、干净的钱，这也是为什么我们需要更强大的经济平台，我们可以使经济武器的力量更强大，**我们非常自豪地看到您在一整年里对帮助中国人民所付出的非常重要的力量，这也是为什么会有成千上万的朋友给我发信息对您的付出表示感激，他们喜欢看到您留着您的长发和您帅气的外表和您战斗的英姿，班农先生，请。
+双规电话一打完，毕竟拜登总统代表的是美国人民，美国人民不愿意了，那你双规了他，你等于双规了我，听说爆烈，爆裂。昨天晚上就是咱们这里大年三十除夕夜，我这里的各国朋友，原来很多人都喜欢拜登的，我跟你们说过，那个曾经劝我跟拜登怎么怎么好，然后跟我说过，哎呀，文贵啊，拜登是个好人，如何如何的，昨天打电话“嗷嗷”地骂，祖宗八辈地骂，说他简直是软骨头。
 
-班农先生：哦，我想从我是多么的荣幸谈起，这是我能够非常荣幸的获邀参与您的第三个除夕/春节直播，让我有机会分享我对中国人民的新春祝福。**我希望谈的两件事情是，就在2021年1月20日拜登已经手按圣经宣誓并开始了他的演讲的时候，中国共产党制裁了28个美国人员，我想我是唯一的一个被制裁的平民，蓬佩奥、博明、皮特.纳瓦罗以及我和其他的一些人，是因为在过去的四年里我们支持抗击中国共产党，我很荣幸地把您视为我的导师，您是我的帅气的兄弟，**但是我认为对中国老百姓对新中国联邦人来说是非常重要的一点就是，在我觉醒并我意识到应该专注于共产党的时候，并且认识到，这些获益源于“疯狂”的郭文贵先生，**这一切源于数年前，我觉得这是非常重要的尤其是在此刻中国新春佳节之际，因为我是一个基于事实的人、一个基于证据的人，但更重要的是我们一个结果导向的人，在我们回顾2017年的时候，至少我已经认识了您，我也了解了您要传递给西方的信息、您要向中国人民传递的信息，关于中共的独裁本质**，**并且在回看2017年的这个除夕的时候，我不禁会提出一个问题或者说是借设，如果说世界听了文贵先生的，那么今天，在2021年2月11号的今天这个世界将会是什么样子，**如果这个世界听了郭先生的话，我认为不会有这种给全世界带来巨大伤害、全人类难以计数的人死去，甚至在中国的人民他们遭受了什么样的苦难我们都无从得知，这个世界到底会怎么样？如果这个世界听懂郭先生的话，从整个事情看郭先生提供的信息都是百分之百正确的，他想要向这个世界传递什么呢？**他是第一个向世界揭发了控制着北京的这个中共的杀人本质，这些中共的盗国贼只是数几个家族，总共只有九十个成员，就是这些家族企图统治整个世界，由于他们挟持了中国的老百姓，他们通过持续奴役十四亿中国人民推行他们统治世界的邪恶企图，**但是他们通过输出腐败、洗钱拉拢世界的精英，世界的精英是中共的合作伙伴，这些精英们向中共叩头，这个世界的所有其他人，所有的小人物们，不管这些小人物们是中国的老百姓还是美国的老百姓或者法国的老百姓还是全世界的小人物们像印度的、日本的、西欧的、非洲的，这些小人物们也成了这个系统的一部分，习近平后来推出的也就是四年前他在在川普总统就职之前的达沃斯论坛上讲的那样，并且这些仅仅在数周前习近平总书记又一次在达沃斯论坛上再度提出他的言论，这些因中共病毒而进一步提升，郭文贵先生揭发了中共的腐败，从海航说起，海航就是一个从中国人民身上窃取财富并且在西方通过我们的政客、华尔街洗钱的集团，这也是中共通过一带一路向世界扩张窃取老百姓财富、影响沿钱国家，郭文贵先生揭露了中共残害维吾尔的真相，揭露了西藏和达赖喇嘛的真相，我认为就是在两年前我们举办了那场伟大的发布会，郭文贵先生详细的展示了有关达赖喇嘛的相关细节，等等等等，所有的这一切都是在西方的第一次发声，包括关于病毒的警告，这些都是郭文贵先生和G-News、GTV在2020年12月底最先开始谈论的，还有路德的119访谈，郭文贵先生，**我还记得在一年前我回到纽约，我们开始我们的日常访谈，谈我们要捍卫的法治等问题，郭文贵先生说不会再有春节了，我问我的兄弟郭文贵先生，中国的春节已经有两千年的历史了，为什么不会有春节了，他说不会再有春节了，他们放出了病毒，这个病毒会导致大流行，这个病毒将会造成中国很多人死亡，它会从湖北武汉向世界扩散，我记得这是在2020年一月份，也就是在这个时候中共的代表们在白宫签署了第一阶段贸易协议，而当时世卫组织还在说这个病毒没有什么可怕的宣传、有人传人，**这些就发生在2020年的一月份，世卫组织说没有人传人、不会发生社区传播、没有什么可怕的。郭文贵先生告诉我WHO是被中共控制和豢养的，WHO在制造弥天大谎，接下来我们看到了人传人和全世界的大爆发，我问郭先生，因为SARS是可以控制的，他说不是这样的，这次大流行将改变人类的历史，他们已经发现这种病毒是生物武器，**接下来发生的就是我们要建立War room Pandemic，在此前在华盛顿DC正在进行着对川普总统的弹劾，War room主要关注的是弹劾的事情，我说不不不，我们要建立War room Pandemic，周围的人说人是不是疯了，你听信了你的疯子朋友郭文贵，他是个疯子，我的回应是郭文贵先生在每件事情上都说对了，**是吧？每一件事情上，从海航到海航的死亡、到所有关于中共的腐败、到香港运动，我说他从未在一件事情上有任何错误，他也许是疯狂的，但是他从未错过，我说这一次他也不会错，基于所有的证据，这个世界今天到底走到哪里了？世界的经济有没有被击垮？习近平是不是打破了世界的平衡？人们必须要记住，这是在武汉通过获得性功能实验制造的生物武器，它将持续十年二十年，世界的经济因此受到重创，在这种深重的灾难面前我们并不知道这是为什么，对于中国共产党在武汉在湖北做了什么我们并没有早期的认识，**但是时至今日我们已经确知了，作为世界上最重要的一份报纸——伦敦的金融时报，它的今日头版头条是这样写的——WHO说病毒非常不可能是来源于武汉实验室，这就是世界第一的报纸，它的观点是全球很多政客和商业人士作出判断的依据，**不管你是在非洲还是在印尼还是在美国的亚利桑那州，所有的人都会基于这份报纸的观点作出决定，请看，头版头条——WHO说病毒非常不可能是来源于武汉实验室，WHO说——非常不可能——病毒来源于武汉病毒实验室，这与郭先生所说的完全相反，你看，我作为一个专注于平民主义的人，我做为一个平民主义的领导者，我内心里有对老百姓的感情，并且我自己就是美国版本的老百姓，我来自工薪阶层家庭，我父亲已经99岁了，马上就到了一百岁，他是一个和蔼的人，他辛苦养家让他的孩子们得到应有的教育，他是美国的老百姓，他把为他的家庭做着他的奉献，我从小就喜欢中国，一直到76年才做海军军官造访了香港，我与中国人民也是结识了并建立了非常深的感情,我认为中国的老百姓和西方的老百姓其实都是一样的，他们都想过着自己的日子，想法治、想自由发声、要自由集会。**而中国共产党作为一个独裁统治集团，它的哲学与常人的认知完全不同，西方的精英们与中共勾结在一起。全世界的老百姓们应该站在一起，他们应该拥有自由、民主、言论自由、信仰自由，而我们每天在班农战斗室里所做的事情、GTV和G-News以及爆料革命、新中国联邦所做的事情就是唤醒世界、告诉世界中国共产党的计划、中共病毒以及其他的事情，而我们让美国听众们震惊的是关于中国人民的声音，一部分是中国大陆的那些没有自由但是为自由为战的声音，**而且最重要的是那些离开中国的但依然深爱着他们祖国的现在沐浴着西方文明下所拥有的生活方式、拥有的信仰自由、拥有的言论自由、拥有的结社自由，在这个城市今年发生的一件最重要的事情就是爆料革命、新中国联邦的战友们1月6日在美国发起的抗议，形成鲜明对比的是在夏天在过去的这一年里，安提法占领了华盛顿DC，他们所制造的混乱，他们反上帝、反社会，我们再看一看爆料革命、新中国联邦战友们在中国大使馆的抗议，这些印证了那些体面的人们，他们的声音不可以被切断，他们在中共的大使馆前抗议，中共的使馆官员与相关部门交涉要驱散抗议者，接着爆料革命和新中国联邦的游行者们来到了的白宫，他们被提供了饮用水和警察服务，这样的抗议和游行是爆料革命和新中国联邦形象的良好展示，而这也是我要谈的要专注于中国共产党，世界的精英们、WHO、达沃斯党、金融时报的大外宣，这些是我今年要重点关注的。我们要盯着那些与中国共产党勾结的精英们，我们要持续的揭露他们，而这就是GTV和G-News、爆料革命、新中国联邦的力量所在，**美国人民和我们在一起，他们不希望回到旧的关系中去，相信我乔.拜登就是这些勾结者中的一员，这些精英们、华尔街、达沃斯党们向中国共产党叩头，他们只在乎赚钱，当他们只在乎赚钱而忽略上帝、不相信作为人的尊严的时候，显而易见的是就是他们可以和中国共产党做生意，他们乐见中国人民继续被奴役，**而这是我们在2020年说过的，显而易见的最重要的事情是在中国两千年的历史长河中，在整个世界上，鉴于中国的文化、中国人民的勤劳和作为我们二战对抗纳粹和日本军国主义盟友的一员，我们不能无视中国人民的牺牲——两千万中国军民的牺牲，鉴于中国人民为世界做出的牺牲，再看看中国人民身处中共残暴统治和奴役之下的现实，在我们看到香港运动的那些视频后，在我们看到中国人民没有自由的时候，我们该如何面对这种形势？对中国人民的奴役就是对全世界的奴役，请记住这个世界的精英们很享受目前的中国人民乃至全世界人民被奴役的现实，这是他们想要的商业模式，这也是他们仇恨老百姓的原因，他们仇恨这个世界上所有的小人物，他们享受着底层人民的付出并且让老百姓的儿女们继续服务于这个系统，这是他们想要的。我愿意奉献我的一生并且我也倍感荣幸的作为郭文贵先生、爆料革命的合作伙伴、新中国联邦的创使人之一，这是世界上最伟大的运动，中国人民不自由这个世界就不会有自由，**你可以看到今天美国的大的科技公司、资本家们，他们不在乎老百姓，让我们回顾历史，郭文贵先生有没有撒谎？没有，那为什么他的推特账号被关闭？为什么他的Youtube账号被关闭？为什么他被持续禁止发声？我们回看一下他撒谎了吗？恰恰相反，他警告了接下来会发生什么，那些大科技公司却移除了他让他消声、试图移除他的信息，为什么？因为郭文贵先生告诉了世界真相，这就是教训。**另一方面郭文贵先生现在展示的腐败的信息和中共对中国人民和世界人民的残暴统治，这些信息今天正在增加，在所有的这些压迫下，这些信息越来越多，为什么？因为全世界的老百姓们不傻，他们拥有常识，我作为老百姓的一员，我的祖父只上了三年级，郭文贵先生的家庭也类似，我们是聪明的人，这场运动也是由聪明的人们组成，这个世界应该由老百姓来管理，我知道这一点，我在哈佛大学念过书，我的生活就是被老百姓管理，我的哈佛生涯是快乐的，我所在说的这场战斗将会是漫长和艰苦的，我走访世界我认识世界上很多人，我们拥有最好的人民，我们拥有最好的应该拥有尊严、而世界精英则是和世界人民对抗的，**我们必须要赢得这场战争，**你看看中国共产党的所作所为，看看中共生物武器所造成的伤害，这种生物武器是最危险的东西，而这只是开端并且我们无法控制它，更重要的是，根据情报部门获得的信息，中国共产党让中国人民成为实验对象和扩散的工具，没有什么是中国共产党不能做的，为了维护它们的统治，中国共产党无所不用其极，中国共产党不相信上帝，不相信天赋的人权。每个中国人都拥有不可剥夺的天赋人权，没有政府可以把这种权利夺走，不管是美国政府还是欧洲政府还是中共政权，它们都不能夺走这种与生俱来的天赋人权，因此我们正在经历最困难的时期，中共病毒依然在肆虐，所有关于疫苗的问题，现在这些精英们正在勾结，我要告诉人的是，他们不会赢，我们不会放弃，我也很荣幸成为这场爆料革命运动的小小一分子，闫丽梦博士也是War room的2020年度人物和被美国人民爱戴的人，还有我的好兄弟、帅气的郭文贵先生。
+After the two-specification call is over, the American people became unhappy, after all, President Biden represents the American people. If you two-specification him [Biden], it’s equivalent to two-specification me. I heard that people were outrageous. Last night, which was the New Year’s Eve, my friends from all over the world contacted me. Many of them used to like Biden as I told you. The guy, who once persuaded me to be good with Biden and told me, “Wengui, Biden is a good guy, blah blah…”, called me yesterday to scold him [Biden] and his eight generations of ancestors, saying that Biden is simply a coward.
 
-郭文贵先生：天呐，谢谢您，我的先生，您今天太帅了，感谢您对于我们和所有中国人民的富含感情的亲切话语，现在时间不是太多了，这里有一千个问题要问您，现在我提两个问题，请您给出快捷的答复，所有的中国人希望我问一下您，您有任何川普总统将回归白宫的信息吗？这是第一个；第二个问题是，您会参加2024年总统竞选吗？这两个问题，请您直截了当地提供快捷答复，谢谢您。
+他说，死那么多人，谁来回答到底是哪来的病毒？还没搞明白，你打这个球电话是吧？双规电话，这说的对呀，说这还在死人呢，你打双规电话，你这不是傻嘛。然后美国的几大家族、几大药厂也惨了，说你打这双规电话，共产党先把疫苗推出来了，先把解药推出去了，我们赚谁的钱啊？你这是啥意思？
 
-班农先生：川普总统，哦，现在拜登在法律上是美国的总统，我们要揭露他和中共勾结的信息，但是坦率地讲现在拜登拥有总统职位，但我们现在要做的是必须要让他去反共，不能让他去和中共进行勾兑。我坚信川普总统将成为2024年的美国总统，如果您看War room的每期节目，我们为川普总统的弹劾而斗争，不要忘了MEGA运动，这是美国老百姓的合作者，我们只能越来越强大，我们必将赢得胜利。
+He said, so many people have died, who will answer the question where the virus came from? This hasn’t been figured out yet, and you made this f\*cking phone call? The two-specification call. A point well made. People are dying and you made a two-specification call. Are you stupid or what? And then, a few major American families and major American pharmaceutical companies were pissed off, saying that you made this two-specification call and the CCP pushed out their vaccine and their antidote before us. Then, whose money can we still make? What do you mean by doing this?
 
-郭文贵先生：**2024年川普总统回归就太晚了，时间太漫长了！**您需要速战速决。
+还有一个，沃尔玛、华尔街说，我们现在给共产党讲数啊，川普总统给了美国人一个最多的给共产党讲数的机会，就是你干了坏事，我现在美国已经把你封了，已经把你制裁了，华为、抖音啊，那我能帮你开了，你是不是叫我的人进去啊，让华尔街也进去？这是讲数的最好的牌，说你一个双规电话，不用讲了，真是这样子。
 
-班农先生：我们会每天与拜登政府斗争，我们将迎来一个又一个胜利，（班农先生拿起了前边提到的金融时报）第一个胜利只有您郭文贵先生可以做到，我们必须让世界对共产党的生物武器说不，闫丽梦博士、G-News、GTV，我们知道蝙蝠侠、武汉海鲜市场是个彻头彻尾的谎言，我认为今年对于新中国联邦、爆料革命、War room来说，我们要让世界抗击中国共产党，就像郭文贵先生您所说的那样，如果四年前这个世界听懂郭文贵的话，您对世界发出了警告，中国共产党不仅是中国人民的威胁，正在中国人民身上发生的将要是世界的未来，除非他们相信我们的警告，今年我们要唤醒世界上的每一个人、政治领导人、商业领袖联合灭共。
+Besides, Wal-Mart and Wall Street said, President Trump created the best leverage for us when negotiating with the CCP, that is, you have done the bad things and we, American have sanctioned you. If I help you with the Huawei and TikTok case, can you help us to enter China and let Wall Street go in too? This would be the best card, but you made this double-specification call, and then we lost all our leverage. It’s really like this.
 
-郭文贵先生：谢谢您，先生，谢谢您亲切的语言，所有的中国人都爱着您，您是中国最有名的一个白人，您知道在过去的两周里，我们做过调查99%的新中国联邦的兄弟姐妹们坚信您和川普总统将在今年或者明年回归白宫，这也是为什么我们需要您和川普总统回归白宫，我们不希望拜登占据白宫与中国共产党叩头，他们也威胁我们、不希望我们之间发生联系，您必须知道，我们不是人人可以吃掉的东西，我们是坚硬的磐石，我们要推翻每一个坏蛋，推翻每一个压迫您和我的人，我们是兄弟，现在我们一起喊七声——Take down CCP!然后我将进入下一节。非常荣幸您能参加这次连线，现在我们开始——Take down CCP!
+这本来川普总统做了一大锅菜，一个双规电话，就等于搁了锅里一堆屎，谁也别吃了。这个电话的负面作用太大了，但最新中国联邦太好了，不但如此，兄弟姐妹们，你还会看到更夸张的，双规电话将使很多人联合在一起，没有选择的联合灭共。大年初一，这是绝对的好消息，不管拜登在白宫待几天，他跟习近平和中南坑，他想勾兑的空间和能做的事儿，几乎越来越渺小了。
 
-（郭文贵先生与班农先生连喊七声——Take down CCP!）
+It’s like President Trump cooked a big pot of vegetable already, and this two-specification phone call is like putting a pile of shit in the pot. Now, no one can eat it anymore. The negative effect of this call is so huge, but to our NFSC, it is so good, and not only that, brothers and sisters, you will see something more exaggerating. This two-specification call will unite many people, leaving people with no choice but to take down the CCP together. This is absolutely good news on the first day of the Lunar New Year. Regardless of how many days Biden can stay in the White House, the possibility of him colluding and working with Xi Jinping and the Zhongnan Pit has been diminishing.
 
-班农先生：非常感谢您。非常感谢爆料革命，我们爱您，新年快乐。
+以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。
 
-郭文贵先生：所有的人都爱着您，班农先生，谢谢您，非常感谢您，新春快乐！
+视频来源：[https://gtv.org/video/id=60269d2c226e775907433c58](https://gtv.org/video/id=60269d2c226e775907433c58)
 
-（注：本段翻译非常吃力，如稍后有更加精准版本将单独推出修正版，不足之处请谅解）
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/904092/](https://gnews.org/zh-hans/904092/)
 
-郭文贵先生：谁呀？我星星儿，下一个是？现在要翻译一下，是吗？那你全屏，我去换一下衣服好不好，你全屏，我换一下衣服，你叫他简单翻译一下，好吧。
+翻译：【Isaiah4031】校对：【BruhM】字幕：【Naomi (文花开)】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
-翻译战友： 好，下面是班农先生的讲话的总结和翻译。首先班农先生非常感谢文贵先生在三到四年的这个春节晚会一直都让他来共享新年的祝福，然后很快他就提到就是在今年的1月20号，就是当拜登把他的手放到圣经，他宣誓的那一刻，当时中共就立刻的制裁了包括他在内的28人，只有他一个人是平民，当然这28名都是非常激进的，对抗中共的，所以说他为此感到非常的荣幸。他一直认为文贵先生是他的导师，是第一个让他认识到中共是如此邪恶，他之前对中共非常低估的，低估了中共的邪恶。然后他除了更注重这个事实和证据以外，他还是要看非常重要的结果的，所以说他借此就向…这是一个问题，一个借设吧。如果说世界听了文贵先生的，那么今天，今天2月11号这个世界将会是什么样子，至少他认为不会有病毒。他说文贵先生是这个矿井里的金丝雀，就是第一个向世界呼吁中共是非常邪恶的，这样一位英雄。然后他又提到了去年非常难忘的，所有我们爆料革命非常难忘的119，当时文贵先生告诉他说，这样不会有春节了，他非常震惊。因为中国两千年、五千年以来春节从来就一直持续过，然后只有去年这一年是没有春节的，因为当时世卫组织还在宣传说没有人传人，当时郭先生告诉他这个世卫在撒谎。他被华尔街骂，叫做非常疯子，听了文贵先生的都是疯子，他笑着说，也许文贵先生是疯子，但是他一直都是非常正确的。最后他还提到就是他做为一个平民主义的领导者，他对老百姓的感情，他说他自己就是美国版本的老百姓，他来自工薪阶层家庭，从小就喜欢中国，然后一直到76年才做海军军官造访了香港，然后与中国人民也是结识了非常深的感情。他认为中国的老百姓，中国的老百姓和西方的老百姓其实都是一样的，他们都想过着自己的日子，想法治、想自由发声，要自由集会，然后世界人民是站在一起，然后世界精英则是和世界人民对抗的，因为这些精英他们只想赚钱，没有信仰，所以他们必然也会跟中共结盟，因为中共就是靠这种商业模式来维持自己的统治的。所以他说只有中国老百姓有了自由，世界才会自由，只有世界被老百姓统治，世界才会和平，而且老百姓必须要赢，因为如果不赢的话这个世界就会被毁灭。然后文贵先生还问了两个非常简短的问题，简短的问题就是说这个，问川普现在是否还有机会回白宫？然后他问，就是2024年班农会和川普他还会不会竞选？然后班农先生说拜登根据法律他已经是总统了。但我们现在要做的是必须要让他去反共，不能让他去和中共进行勾兑。那当然在法律上他已经是赢了，但他也说川普总统在2024年必然会强势的回归。最后他呼吁我们今年必须要逼着这些政治精英，政治和商业领域的人必须要去对抗中共，完毕OVER，Thank you。
-
-接上文——
-
-[**文贵看春晚I****送走庚子霹雳灭共年迎来辛丑以毒灭共以钱灭共年**](https://gnews.org/zh-hans/903289/)
-
-[**文贵看春晚II****联线简体中文战友谈中共经济危机四伏/G-News****病毒专题**](https://gnews.org/zh-hans/903414/)
-
-[**文贵看春晚III****联线七星战友:****全世界已没有选择必定火战灭共**](https://gnews.org/zh-hans/903444/)
-
-0
++1
