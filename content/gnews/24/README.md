@@ -1,72 +1,98 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 人类的诺亚方舟 ——爆料革命心路历程（三）
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/904656/)
+## 朱利安尼市长接受新闻极限电视台采访谈川普总统弹劾案
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/904789/)
 
-作者：澳洲墨尔本雅典娜农场 美国漂移
-![]()![](https://gnews.org/wp-content/uploads/2021/02/121212.jpg)
-新中国联邦如何成为拯救人类的诺亚方舟？
+新闻简述：朱利安尼市长2021年2月10日接受新闻极限电视台主持人格兰特·斯金菲尔德的采访，谈对国会的川普总统弹劾案的观感。他们指出川普总统被指责“煽动暴力”的视频是经过剪辑的，原话被掐头去尾，把川普总统明确说的“和平和爱国”两个词从演讲[1]中删掉，从而误导舆论。
 
-自2017年1月26日文贵先生发起的爆料革命以来，从全世界各个角落加入灭共浪潮的战友与日俱增，一同见证了美国之音断播、王健被害、法治基金成立、新中国联邦诞生……文贵先生常说的 “一切都是刚刚开始” 甚至被中共害怕地在国内定性为 “反动标语” 。
+[1] [川普总统《拯救美国》集会演讲全文](https://gnews.org/wp-content/uploads/2021/02/WH_20210106_Trump-Speech-CN-traditional-EN.pdf)
 
-爆料革命警醒世界的经典一刻无疑是“英雄科学家闫丽梦博士”在2020年1月19日透过《路德社》，正式向全世界第一次发出揭露邪恶中共生物超限战的正义呐喊：“在武汉爆发的不明肺炎具有人传人的高传染性与高致命性，病毒来源于实验室人工编辑，病毒具有强变异特征，中共军方独有的舟山蝙蝠病毒为其骨架，控制不力恐会造成世界范围内的‘大爆发’，中共与世卫组织一道掩盖了病毒真相……”紧接着在十天后墨博士也同样地通过路德先生的直播向全世界第一次提出了墨太太的研究——羟氯喹对CCP病毒的预防和早期治疗有效。
+**Grant Stinchfield: **And yet the nation is forced to watch the sham impeachment of the one president who successfully put China on notice. Well, joining me now is a close confident and trusted advisor of President Trump, Mayor Rudy Giuliani. Mr. Mayor, great to have you on the program.
 
-2020年4月，闫丽梦博士在爆料革命法治基金的帮助下，从香港一路波折奔向美国，经历了无数次秘密听证，并在博士军团的帮助下发表了两篇至今全球任何科学界人士都无可争辩的关于CCP病毒真相的论文报告，彻底将CCP病毒做实为由中共军方背景的实验室基因改造而成。随后闫博士在接受媒体采访时更是首先将CCP病毒定义为“超限生化武器”，并获得美国军方生化武器专家首肯。紧接着闫博士也为解决这个席卷全球的CCP病毒疫情开出了解决方案：消灭中共政权，开放所有在中共国境内的生物实验室接受世界病毒调查联合组进驻调查，让中共国境内的所有与病毒相关的科学人员交出所有相关的实验数据记录并交代他们在基因编辑上所做出的所有改变。然后再联合全世界病毒领域和医药领域的科学家共同研究预防和治疗的药物与方案。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/3333333.jpg)
-“留给世界的时间已经不多了” 闫博士在一次媒体采访时沉重地说出了这句意味深长的话。很可惜川普总统没听明白闫博士这句话的真正含义，否则他也不会对闫博士的建议无动于衷，白白浪费了狙击CCP病毒疫情的最初的、也是最好的时刻。
+**格兰特·斯金菲尔德：**这个国家被迫观看了一场虚假的弹劾案，弹劾一位成功地将视线聚焦到中[共]国的总统。好的，现在来到我们访谈的是川普总统信任的亲密顾问：朱利安尼市长。市长先生，很高兴邀请您到我们的节目。
 
-全世界被CCP病毒感染的人数，从当时的只有国内被确诊的一百多个病例，到如今已全球过亿人被感染，超2百万人死亡。这些数据还不包括中共国、朝鲜、伊朗等那些掩盖真实数据的专制国家。全美境内也有超过2500万人被感染，超过41万人死于CCP病毒。即使我的数学是体育老师教的，我也知道一年后全球感染的人数约是一年前的1百万倍，死亡人数约是一年前的2百万倍。
+**Mayor Rudy Giuliani: **How are you, Grant? Good to see you.
 
-那么猜猜我们还剩多少时间？
+**鲁迪·朱利安尼市长：**格兰特，你好吗？很高兴见到你。
 
-疫情爆发一年后的今天与一年前相比，全世界在CCP病毒疫情面前的确有了些许改变，好的方面有：
+**Grant Stinchfield: **Well, it’s good to see you, Sir. You and the president, President Trump that is warned about Joe Biden’s ties to China. We’re seeing it unfold right before our eyes, Sir.
 
-1.戴口罩。
-2.人与人之间保持2米以上的社交距离。
-3.注意洗手，消毒保持个人清洁卫生。
-4.有治疗用的瑞德西韦和血清疗法，但价钱有点小贵（一般人要是消费不起就只能选择使用钟南山推荐的那些自家生产的双黄连，莲花清瘟，板蓝根等中药了）。
+**格兰特·斯金菲尔德：**很高兴见到你，先生。你和川普总统警告说，乔·拜登和中国有紧密关系。我们现在看到这一切正在我们眼前展开。
 
-坏的方面有：
+**Mayor Rudy Giuliani: **Yeah, I mean you look at the executive orders in the first couple weeks, and he wasn’t going to do America first. He quite clearly is doing China first. I mean the Chinese are the big winners in the first two weeks of this administration. It’s really very unseemly when you consider how much money the Biden family has gotten from China over the years, that, uh, he is so blatantly helping China. I have … I put out a podcast today, called “CCP Goal”, and that is to defeat the us by 2049. That’s exactly the words of, uh, Xi Jinping at the Party Congress. He set 2049 as the goal to surpass the United States as the leading nation in the world. And, here we are that threat, and, uh, and favoring China with … I mean actually with money … You look, you look at the Paris Climate Accord. It’s gonna save China, you know, trillions of dollars that it’s going to cost us.
 
-1.有多种有效果不明的疫苗，注射后有人严重过敏，有人不停抽搐，有人面瘫嘴斜，有人数日后被证实感染病毒，有人数日后暴毙，更神奇的是，有医生研究过辉瑞疫苗的报告发现实际效果是全部的7086人中只有1人约占0.01%有效，其中的5960人约占84%有或多或少的严重反应，其中的3190人约占45%需要服用止痛剂 ，而且注射疫苗后比没注射疫苗的人更容易感染CCP病毒（WTF）等等 。
-2.CCP病毒仍在不断变异，无症状感染着增多并具有传染他人的能力。据研究后发现，变异后的病毒传染性比原病毒增强70%，致死率也更强。而且现有疫苗对变异后的病毒基本无效，就更别说疫苗所产生的ADE问题了。
+**鲁迪·朱利安尼市长：**是的， 看看前面几周的行政命令。他不是美国优先，很明显，他是中[共]国优先。这届政府的前二周，中[共]国才是最大的赢家。考虑到拜登过去这些年从中[共]国捞到那么多钱，他现在公然地帮助中[共]国就显得非常地过分。今天我上传了一个音频叫“中共的目标”，就是他们要在2049年打败美国，这是习近平在党代会上的原话。他设定的目标是2049年超过美国，领导全世界。我们是他们实现目标的障碍……在帮助中[共]国，在钱的问题上……你看，你看《巴黎气候协议》， 那将给中[共]国节省数万亿美元，以我们为代价。
 
-虽然文贵先生说过“我从不预测，我所给出的结果都是情报分析。” 但在这里笔者还是想要任性一回。按照以上的事实，大胆的预测一年后到2022年1月，被CCP病毒感染的人数和死于该病毒的人数会是多少呢？就别说一百万倍了吧，这个数字也太吓人，就只在1的后面加一个0吧，也就是10倍。以现在的基数来算，一年后全世界将有10亿人被感染，2千万人死于CCP病毒。全美也将有2亿5千万人被感染。4百万人死于CCP病毒。就问你怕不怕吧！
+**Grant Stinchfield:** It’s a shame. He appears to be getting help from the White House now with Joe Biden there clearly, which brings us to the impeachment, this giant sham, you know. We always talk about Democrats operating on emotions. Their whole case seems to be that destruction and violence occurred, but we all knew that happened. There’s been no mention really or any proof that President Trump had anything to do with it. What do you think of the Democrats case so far?
 
-不怕？那好，再过一年到了2023年1月，全世界将有100亿人被感染（全世界才70多亿人），2亿人死亡。而全美有25亿人被感染（全美才3亿多人），4千万人死亡。这回你怕了吧！
+**格兰特·斯金菲尔德：**这是一个耻辱。他[习近平]显然正从白宫的乔·拜登那里得到帮助，还给我们带来了这场弹劾，您知道这是一场巨大的闹剧。 我们经常谈到民主党的运作是基于感情[而非理性]，他们所有的论据看起来就是发生了破坏和暴力，我们都知道那发生了。但是根本没有提及并没有证据表明川普总统与那有啥关系。目前为止，您是怎样看待民主党的论据的？
 
-你如果再勇敢，那到了2024年1月又会是啥情况呢？据霍普金斯大学的统计显示：在加州第一个1万人死亡花了6个月，4个月后死亡人数达到2万人，5周后死亡人数达到3万人，20天后死亡人数达到4万人….慌了吗？所以说，比起那些科学家整天说的什么所谓全球变暖、海平面上升、陨石小行星撞击地球之类而导致地球毁灭的假说来说，CCP病毒其实才是最真切的、正在发生的、并且即将毁灭人类的事实。你们也不必抬杠了，几年后一切都将会被证实。 “想啥那？” —-文贵说。
+**Mayor Rudy Giuliani: **I think their case is a prophetic appeal to emotions and hoping that people are stupid. I mean they, they, you have a speech and they… I saw that guy swallow, the words in the speech are perfectly normal, and he he treats them like there’re words of incitement. No one was incited by it. The difficulties that the congress started a half hour before the President even ended his speech, so he couldn’t have possibly incited anyone. They were in the congress already, and then, of course, he ended the speech by telling him to be peaceful, but and then they said, well, he didn’t really mean it. Well, I mean that means you can’t win. If he had said don’t be peaceful, he’d have been guilty; and if he says he’s peaceful, he’s guilty. It’s because they’re unfair. They’ve been unfair.
 
-目前摆在全世界所有人面前最客观存在的现实就是：“我到底能不能活下来？能活多长时间？”无论拜登是亲共或是灭共？我们其实都已经没有时间了！川普的傲慢，已经彻底耗费了闫博士对世人的警告！拜登也根本不会灭共。在我看来，他或许还是这场超限生化病毒攻击的策划者之一。要知道中共发起的这场超限生化病毒攻击离不开WHO在早期为他们掩盖人传人的病毒真相，即使后来承认人传人时，也同时要求全世界其它国家保持对中共国的人员流动开放，尽管当时中共国已经采取封城并禁止国内人员流动的措施了。
+**鲁迪·朱利安尼市长：**我认为他们就是说预言和煽情，并且希望大家都是傻子。 我是说您给了这么个演讲…… 我看到他[川普总统]演讲中的用词完全正常，而这些话被当作是有煽动性的。 没有人被这些话煽动。 国会在总统结束演讲半小时前就已经开始开会了，所以他[川普总统]不可能煽动到任何人。 他们[议员们]已经在国会上了，然后，当然，他[川普总统]以告诉大家要和平，结束了他的演讲。然而他们却说他[川普总统说要和平]不是真心的。好吧，那你跟[这帮人辩论]就永远都赢不了，因为如果他[川普]说不要和平，那他就有罪； 如果他说要和平，那他还是有罪。 这是因为[这些议员]是不公正的。 他们一直不公正。
 
-可以说WHO为CCP病毒传染的范围更广、人数更多立下了汗马功劳；中共同时也离不开以福奇、柳叶刀杂志、自然杂志、CDC、NIH为代表的邪恶科学界人士和组织，为病毒来源于自然背书，打压正义的科学家和医生们，阻止医学界医生推荐可用于预防以及对病毒感染初期治疗最有效的药物——羟氯喹的使用，相反他们极力推荐那些高价、无效，具有很强副作用甚至会注射后更容易被CCP病毒感染的疫苗，这就是在草菅人命。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/4444444.jpg)
-福奇一会说不需要戴口罩，一会说戴两层口罩效果更好。一会说羟氯喹对SARS病毒有效，一会又说羟氯喹对SARS加强版的CCP病毒无效。最无耻的是，他说就算是人工改造过的自然病毒，因为病毒的骨架来自于自然，所以病毒就是来源于自然。活脱脱就是一个满嘴喷粪的疯子摆着一副我是流氓我怕谁的丑态。由这些邪恶科学界人士的所作所为就可得知，他们的目的就是处心积虑地让更多人被感染。
+**Grant Stinchfield:** Clearly unfair, which shows us, Mr. Mayor, this video they ran yesterday. I’m gonna play one clip of it because, again, they selectively edit, which is so dishonest if you look at this as a supposed to be a fair trial. Let’s roll that clip from the Democrats presentation yesterday.
 
-中共还离不开美国众多的所谓的主流媒体们联合起来为他们审查，删除那些披露病毒真相的科学家们的文章，推文，视频。CNN，纽约时报更是把为拯救世界而奔走呼号的闫丽梦博士称为骗子。推特、Facebook、YouTube等也不顾廉耻地大举删贴封号，他们连川普都敢封杀，更何况那些传播病毒真相的科学家？这些所谓的主流媒体目的也同样是为了帮助病毒传播得越严重越好。因为只有这样，才能为拜登偷窃选举创造条件。
+**格兰特·斯金菲尔德：**显然这不公平，市长先生，向我们展示他们昨天播放的这段视频。 我要播放其中的一个片段，因为它们又有选择地进行编辑，太不诚实了，尤其是您认为这本来应该是一个公平审判。 让我们放一下昨天民主党演讲中播放的剪辑片段。
 
-当一切准备就绪后，在“多猫腻”计票机、州府官员、FBI 、DOJ、高级大法官等共同努力下，拜登终于成功窃取了总统大选。人类历史上将永远记住这一无比黑暗的时刻，如果人类还能继续存在的话。民主、法制、自由乃至人类文明都在这一刻烟消云散了。看明白了这些，你就应该明白拜登根本不会去灭共，他根本就是始作俑者之一。看看他儿子的硬盘里都有啥？关键词：“10% ”和“BIG GUY” 。再看不明白的话，就看他上任后立即重用福奇、重返WHO、任命与中共有渊源的内阁大臣、签发总统令禁止官员在称谓CCP病毒时使用中国和武汉,让中国设备进入美国大型电网设施，声称要耐心的对待与中国的关系等等。。。这一切不就是司马昭之心，路人皆知吗？
+**President Trump: **After this we’re gonna walk down, and I’ll be there with you. We’re gonna walk down … we’re gonna walk down to the capital…
 
-文贵先生早就警告过世界“共产党今天把毒放出来很容易，但想再收回去已经不可能了”。如今这个CCP病毒不断地发生变异，而每次变异都只会更加地强化病毒的传染性和致命性，完全没有任何将要停止的迹象。没人知道还将会发生多少次变异，更不知道要变异多少次后才可能停止并与人类共存。
+**川普总统：**集会之后，我们将会走过去，我会跟你们在一起。我们将会走过去…….我们会走向国会大厦……
 
-拜登虽然窃取了总统的宝座，可面对不断倍增的疫情，不断逝去的生命，不断萎缩的经济，不断滋生的次生灾难，试问他可以独善其身吗？文贵先生总在说：“这世界的政客没几个好东西，疫情都这样了，就没人去问一下，这个病毒咋来的？简直太疯狂了！”
+**Grant Stinchfield:** Mr. Mayor, they didn’t leave the President up saying “peacefully and patriotically with our voices”.
 
-或许当邪恶联盟打开潘多拉盒子之时，他们也完全没想到这个病毒会完全失控。毕竟可控才是作恶的前提啊！一旦失控连他们自己都玩完了。本想对他人作恶却不曾想反被自己作的恶反噬了，玩火自焚啊！首先他们要面对普通人群感染病毒的速度有增无减、呈几何式的倍增，其次他们本想通过疫苗去控制普通人群为他们服务，但最终却发现那些注射了疫苗的人却更容易感染病毒和更容易死亡，适得其反。
+**格兰特·斯金菲尔德：**市长先生，他们没有留下总统说的“用我们的声音和平地和爱国地…… ”这句话。
 
-现在据最新的医疗研究发现，感染上CCP病毒后，即使在患者肺部杀死所有的CCP病毒，但在脑部里依然会存留有CCP病毒，随时会爆发脑部疾病和神经疾病，比如中风，脑瘫等。也就是说患者很难被完全治愈。即使当前转阴了也仍然会有长期的后遗症，随时有出现其它并发症的危险。研究人员还发现CCP病毒传播途径非常广泛，除了气溶胶、接触、血液、母婴、还有性行为也会传播。这也就是说一旦有病毒潜伏在体内的话，你生育的后代也很可能会被遗传，如同艾滋病一样而成为天然感染者，并随时会传染其他人或病发死亡等等。
+**Mayor Rudy Giuliani:** Yeah, I mean, that’s total deception. It would, in a trial, it would probably lead to a mistrial if they did that with a judge, or you would then play it and slam the lawyer in front of the jury for being a deceptive liar. I mean how can you leave out you’re trying to say he incited people, but he told them to be peaceful and patriotic? Well, how could he possibly be inciting them if he told them to be peaceful and patriotic?
 
-假以时日, 可能连人类正常的繁衍都会受到威胁，不久的将来，人类可能将会进入寿命缩短，人口大面积锐减的时期。而这一切的一切其实并不是邪恶联盟所希望的，他们本来只是希望通过释放病毒而达到控制世界，从而进行“大重启”，夺取他国、他人的财富，奴役绝大多数人，满足他们的私欲。饿了吃你的肉，渴了喝你的血，困了就和你们去“双修”，要是哪个器官坏了就拿你的器官去置换……对他们来说，死些人是可以的，毕竟死人可以恫吓其它人乖乖就范。但要全死了，即使他们自己有药物保护活下来，估计也活不久。毕竟他们需要你来为他们洗衣做饭，双宿双修。他们本以为这病毒完全可控收放自如，才敢放出来肆虐人间，谁曾想反误了卿卿性命……唉！这究竟是天意弄人，还是……
+**鲁迪·朱利安尼市长：**是的，我的意思是，这完全是欺骗。 如果这发生在法官的庭审中，就可能会导致审判失败。您放这个[片段]就是自己当骗子，在陪审团面前给律师打脸。 我的意思是说，您怎么能说他[川普]煽动人民，却告诉人们要和平与爱国？ 好吧，如果他告诉人们要和平与爱国，那他[川普]怎么可能煽动人民呢？
 
-所以我认为很快在这个世界上，或许就只剩下我们新中国联邦人方可免遭CCP病毒的侵蚀了。真正的战友都得益于闫博士、墨博士等博士军团们还有路德先生、文贵先生的努力传播和警示：服用羟氯喹作为预防和早期治疗，因为多屯粮从而尽量减少出门次数以避免被感染的概率。这些看似简简单单的举动，或许就能够保护自己和家人们平安的度过这一惊世浩劫。等到浩劫过后，全世界早已满目疮痍。而能够幸存下来的战友们，无疑都将成为这个世界真正的中流砥柱。我们将参与重建这个世界的文明和秩序，就如同诺亚方舟上的幸存者如神一般的存在。文贵先生总是不停的告诫我们“战友们，保护好自己和家人，这个病毒太可怕了，你活着比什么都重要！” 忠言逆耳，良药苦口啊！
+Plus, I was at that rally. Nobody was jumping up and down, acting crazy. Whatever happened at the capitol had already started. It already happened. And, we, and it took about an hour to walk from there to the capitol if anybody did. So, the two different events, the two different events that they’re trying to put together in a desperate effort to prevent him from getting real, getting elected in 2024 if he wants to.
 
-到如今这个时间点，我甚至在想：其实共产党灭不灭，何时灭？都已经没那么重要了。全世界早已经浪费掉了闫丽梦博士给出的时间警告。灭世浩劫已经开始降临了，谁都无法阻止它的发生。要知道灭共的时间已经远远落后于人类灭亡的时间，就好比你已经看到滔天洪水滚滚袭来时才想到去造艘船一样，根本来不及了。这也就是为什么当初嘲笑诺亚愚蠢的人，最后都没能活下来的缘由。而诺亚虽然花了2百多年的时间去提醒旁人洪水将至，可到头来除了自己的家人之外也只就救了些动植物而已。“信者得永生” —约翰福音，或许没错吧！
+另外，我参加了那个集会。 没有人跳来跳去，表现得很疯狂。 [当时]国会山上发生的事情是已经开始了的。 它已经发生了。 而且，即使有人要走到国会山上去，那也得花大约一个小时的时间。 因此，这两个是不同的事件，他们[那些议员]正试图把两件不同的事情拼凑起来，以阻止他[川普总统]在2024年当选，如果他想参选的话。
 
-一年前，天使闫丽梦试图努力地唤醒这个世界有良知的人一起站出来拯救这个世界。但一年后的今天，战友们是该考虑拯救自己和家人的时候了，“备好药、备好粮、少出门”，就让“上帝的归上帝，凯撒的归凯撒”吧！只要我们能够存活下来，或许就是人类文明最后的希望。
+**Grant Stinchfield:** Yeah, desperate and of course dishonest as well. I put together this little clip, you know, the President’s team has been getting a lot of criticism apparently even from the President himself. I want to roll the first attorney to speak yesterday and then get your response. I hate to turn lawyers against each other, but I want to play this because I was troubled by it too. Roll it.
 
-(文章只代表作者观点，与GNews网站无关)
+**格兰特·斯金菲尔德：**是的，他们[议员]这是无计可施了，而且真的是不诚实。 我准备了下面这个[总统律师讲话的]小片段，您知道，总统的律师团队显然也受到了总统本人的批评。 我想放一下[总统]首席律师昨天的发言，然后想听一下您的评论。 虽然我不想让律师们互撕，但我真的想把它放出来，因为它是如此地困扰着我。放出来吧。
 
-责任编辑：加拿大多伦多枫叶农场 孙行者
-校对：加拿大多伦多枫叶农场 文锦
+**Bruce Castor Jr.: **The House managers who spoke earlier were brilliant. I loved listening to them. They’re smart enough to pick a new administration if they don’t like the old one. President Trump no longer is in office. He was removed by the voters.
 
-0
+**小布鲁斯·卡斯特：**之前发言的众议院管理者们都很出色。 我喜欢听他们的发言。 如果他们不喜欢旧政府，他们可以足够聪明地选出一个新政府。 川普总统已经不是总统了。 他被选民给选下去了。
+
+**Grant Stinchfield:** So Mr. Mayor, that’s Bruce Castor. What in the world is he talking about there? I mean, it’s so disappointing for me to see that, and that’s the guy defending my guy, President Trump.
+
+**格兰特·斯金菲尔德：**所以说，市长先生，那位就是是布鲁斯·卡斯特。 他在到底说的是啥啊？ 我的意思是，我看了以后太失望了，那个家伙就是给我的川普总统辩护的人啊！
+
+**Mayor Rudy Giuliani:** I don’t know what he was thinking about. Lawyers make mistakes. Maybe maybe nobody had told him what side of the case he was on before he came in. He might have been a little confused about it. But it was a fundamental errors that.. I mean I can’t explain it. And just have to chalk it up to a bad day, I guess.
+
+**鲁迪·朱利安尼市长：**我不知道他脑子里想啥呢。 律师也会犯错。 也许没有人在他来[听证会]之前告诉过他，他是代表哪一方的律师。他可能有点犯糊涂了。 但这是一个基本的错误…… 我的意思是，我也无法解释。 我想，这只能归结到那是倒霉的一天。
+
+**Grant Stinchfield:** Well, Mr. Mayor, it’s great having you on the program, and I’ve told you before, I want to thank you for all you did during this time, leading up to today included, you and the entire team. God bless you, Sir, and I appreciate you coming on the program.
+
+**格兰特·斯金菲尔德：**好吧，市长先生，很高兴您参加节目，我之前就已经告诉过您，我要感谢您在这段时间内所做的一切，直到今天，包括您在内，以及整个团队。 上帝保佑您，先生，我感谢您参加节目。
+
+**Mayor Rudy Giuliani:** Thank you, Grant. God bless you too.
+
+**鲁迪·朱利安尼市长：**谢谢，格兰特，上帝也保佑您。
+
+视频来源：[https://www.youtube.com/watch?v=rAX\_MXCEO-4&feature=youtu.be](https://www.youtube.com/watch?v=rAX_MXCEO-4&amp;feature=youtu.be) (0:00-6:10)
+
+以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。
+
+翻译：【文灵】【Isaiah4031】字幕：【奔腾的长江】编辑：【Isaiah4031】
+
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+
+
+
+> [川普总统2021年1月6日《拯救美国》集会演讲全文](https://gnews.org/zh-hans/760125/)
+
+
+
++2
