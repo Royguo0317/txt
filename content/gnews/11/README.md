@@ -1,16 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年2月13日 文贵先生盖特 3
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/906010/)
+## 2021年2月13日 文贵先生盖特 6
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/906168/)
 
 编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-2月13日 日前，有战友爆料九指妖违法事实! Recently, fellow fighter reveal the fact that the Nine Finger Witch broke the law!
+2月13号：(视频版） 继熊宪民被铐走等待审判之后……，今年大年初二．爆料革命开门大吉．孟维参又名韦石．涉嫌持枪开车威胁他人安全，可能涉及到二级谋.。杀已被警察逮捕……接下来的就是诈骗团伙，魏继红．九指妖．陈其生（龟头洋）还有PJ潘．等还有批判大家拭目以待……一个也逃不掉……这就是美国法律的伟大任何侥幸的犯罪分子，都将受到美国的严苛的法律的最严厉的惩罚！
 
 
 
-[【2021年2月13日】文贵先生盖特原文](https://gtv.org/getter/6027f50b226e7759074397ba)
+[【2021年2月13日】文贵先生盖特原文](https://gtv.org/getter/6028349e226e77590743a7c1)
 
 **喜联盟Gnews编辑部**
 

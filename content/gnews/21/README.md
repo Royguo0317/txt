@@ -1,27 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥敦促拜登必须“正面对抗中共”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/905881/)
+## 2021年2月13日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/905998/)
 
-俄罗斯莫斯科喀秋莎农场   土星
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-编辑   水星   上传    银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-13_20-46-33.jpg)[newsweek.com](https://www.newsweek.com/mike-pompeo-anti-china-alliance-work-seato-asian-nato-failed-before-1521977)
-美国前国务卿麦克·蓬佩奥周五（2月12日）接受FOX新闻“福克纳焦点”（The Faulkner Focus）节目的采访时表示，拜登政府必须以前任政府的方式 “正面对抗中共”。蓬佩奥的评论是在拜登总统在周三与习近平完成自上任以来首次通话后发表的，其对拜登政府对中共的政策表态显然很不满意。
+2月12日大年初二，尊敬的战友们，你们听听这像不像文贵的语音，九指妖和龟头洋他们竟然敢造这样的假语音，他们到底是不是共产党？这和当年共产党对付文贵的所有方法都是一样的！这回九指妖大暴露啊…… February 12th, the second day of Chinese New Year，Dear follower fighters， can you tell if this is Miles’s voice? Nine-fingers witch and the turtle-head Yang dare to fabricate my voice. Are they not CCP? This is so much like those tricks that CCP pulled against me! This time is the exposé of the Nine-fingers witch….
 
-拜登总统在通话中“强调了美国对中共政权胁迫性和不公平的经济做法、在香港的镇压、在新疆的侵犯人权行为，以及在该地区包括对台湾在内的日益强硬的行动的根本关切”，但宣称其领导的美国政府将在“符合国家利益的领域与中共合作”。
 
-蓬佩奥在节目中讲到“50年来，美国允许中共践踏，摧毁了这里数百万的工作岗位，他们窃取了知识产权。他们渗透到我们的研究机构。坦白说，所有这些都是在共和党和民主党总统的领导下进行的。”
 
-这位前国务卿指出，拜登总统曾经发誓要保护美国人不受中共国的侵害，那现任政府需要做好充分准备，这句话才有意义。他直截了当地说，“当中共从休斯敦领事馆对美国进行监视时，我们就将其关闭。当中共从事不公平的贸易，我们就对其施加关税。在中共涉及美国人民生计的每处地方，我们的政府都会监管。这就是拜登政府所需要做的。”
+[【2021年2月13日】文贵先生盖特原文](https://gtv.org/getter/6027d9ad226e77590743902d)
 
-蓬佩奥指出拜登政府全面应对中共威胁的重要性，分享了任职国务卿期间，中共处心积虑破坏美国社会的案例，“哈里斯，我在美国至少花了两年半的时间在州一级进行工作，向各州长了解情况。我去威斯康星州立法机构的时候，中共正在那里试图影响我们的州立法机构。我们与埃里克・斯沃尔韦尔在加利福尼亚州亲眼看到了发生了什么”，”这是对美国的全面攻击。”
-
-蓬佩奥最后强调说，美国最大的威胁是中共，并补充说，拜登政府需要以川普的方式 与中共“正面对抗”。
-
-参考链接：
-
-[https://www.foxnews.com/politics/mike-pompeo-biden-administration-confront-china-head-on](https://www.foxnews.com/politics/mike-pompeo-biden-administration-confront-china-head-on)
+**喜联盟Gnews编辑部**
 
 0
