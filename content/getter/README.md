@@ -12,6 +12,11 @@
 
 ---
 
+[2月13日 日前，有战友爆料九指妖违法事实!  Recently, fellow fighter reveal the fact that the Nine F...](/content/getter/content/2021/02/6027f50b226e7759074397ba.md)
+
+**郭文贵MILES** `2021-02-13T15:49:31`
+##
+
 [2月12日大年初二，尊敬的战友们，你们听听这像不像文贵的语音，九指妖和龟头洋他们竟然敢造这样的假语音，他们到底是不是共产党？这和当年共产党对付文贵的所有方法都是...](/content/getter/content/2021/02/6027d9ad226e77590743902d.md)
 
 **郭文贵MILES** `2021-02-13T13:52:45`
@@ -155,10 +160,5 @@
 [ 2021年2月3号：尊敬的战友们好，当我刚刚看到九指妖．发出的所谓的．能证明SEC： 凤凰城证监会发出来的文件．在控制他的钱：和能证明他清白．这个文件．是我真...](/content/getter/content/2021/02/601aa49cf5b9e26ca9d78f42.md)
 
 **郭文贵MILES** `2021-02-03T13:26:52`
-##
-
-[福克斯采访美前国务院官员克里斯汀·惠顿 ：中共正在竭尽全力收集美国人的DNA信息  Fox interviewing former State Departme...](/content/getter/content/2021/02/6019d964f5b9e26ca9d7446c.md)
-
-**郭文贵MILES** `2021-02-02T22:59:48`
 ##
 
