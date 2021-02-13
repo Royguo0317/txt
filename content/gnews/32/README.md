@@ -1,66 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 哈佛学生会全力营救被中共非法关押的校友亲人
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/904019/)
+## 彭佩奥：有重要证据表明新冠病毒来自武汉实验室
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/904027/)
 
-新闻来源：Campus Reform《校园改革》| 作者：Benjamin Zeisloft | 发布时间： 2021年2月8日
+*新闻来源：Breitbart《布赖特巴特》| 作者：特伦·贝克(TRENT BAKER) | 发布时间：2021年2月9日*
 
-翻译/简评：Dreamer文童 | 校对：感恩 | 审核：万人往 | Page：拱卒
+*翻译/简评：随波逐流 | 校对：helloworld | 审核：万人往 | Page：拱卒*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GeDx4jxtkQ1Cp/images/a35f9b36-afee-47a5-85ce-0f128dd38fe6.jpg?asset_id=aa3a6b4c-35ea-4408-9f20-b3d6c2d32fbf&amp;img_etag=%22b5373380b14a3bb77ee6b9cd4142af3b%22&amp;size=1024)](https://spark.adobe.com/page/GeDx4jxtkQ1Cp/images/a35f9b36-afee-47a5-85ce-0f128dd38fe6.jpg?asset_id=aa3a6b4c-35ea-4408-9f20-b3d6c2d32fbf&amp;img_etag=%22b5373380b14a3bb77ee6b9cd4142af3b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/9euGNhXDf0NS2/images/94f53a82-6ea7-4887-8061-b4b327eb9be5.jpg?asset_id=ded8273d-e91d-4293-9935-76b6a2829b0a&amp;img_etag=%22b647f54863760f1a9e5d22a6379fbe88%22&amp;size=2560)](https://spark.adobe.com/page/9euGNhXDf0NS2/images/94f53a82-6ea7-4887-8061-b4b327eb9be5.jpg?asset_id=ded8273d-e91d-4293-9935-76b6a2829b0a&amp;img_etag=%22b647f54863760f1a9e5d22a6379fbe88%22&amp;size=1024)
 
 **简评：**
 
-2021年1月19日，前美国国务卿彭佩奥发布一份声明，将中共在新疆对穆斯林维吾尔族人的压迫定义为“种族灭绝和反人类罪”，并列举数项罪行。彭佩奥表示美国政府经过充分研究事实，才决定作出这份声明，暗示美国政府已掌握足够的证据和情报对中共进行定罪。日前，BBC采访并报道数名曾被囚禁于新疆再教育营的妇女，她们称受到系统性强奸等虐待。本文报道称，哈佛法学院维吾尔族校友的弟弟被中共以莫须有的理由判刑15年。这些公开报道的中共暴行就是“种族灭绝和反人类罪”的证据，让更多西方世界人士了解在新疆再教育营所发生的真相。
+美国前国务卿迈克·彭佩奥周二对世界卫生组织拒绝接受冠状病毒来自中共国武汉病毒实验室的说法做出了回应。彭佩奥在福克斯新闻台（Fox News Channel）的“美国新闻编辑室”（America’s Newsroom）节目上说，“没有一件事”改变了他对该病毒起源于武汉的看法，因为“有重要证据”。彭佩奥给出了美国退出世卫组织的原因——世卫组织腐败。他认为世卫组织已经完全政治化，并向中共国国家主席习近平卑躬屈膝，因此根本不能进行独立调查，一切调查都是在中共的监督下执行的，按照中共设计好的路线。
 
-1948年12月9日通过的联合国《防止及惩治灭绝种族罪公约》第二条规定，“本公约内所称灭绝种族系指蓄意全部或局部消灭某一民族、人种、种族或宗教团体，犯有下列行为之一者：(a) 杀害该团体的成员；(b) 致使该团体的成员在身体上或精神上遭受严重伤害；(c) 故意使该团体处于某种生活状况下，以毁灭其全部或局部的生命；(d) 强制施行办法，意图防止该团体内的生育；(e) 强迫转移该团体的儿童至另一团体。”根据目前从新疆再教育营逃出来的证人所陈述，中共在新疆对维吾尔族人实施的暴行符合上述五项中的前四项，而根据本条规定，犯有其中一项罪行就已构成种族灭绝罪。
+从彭佩奥的谈话中可得到的信息是，他似乎很期待世卫组织公布调查结果。美国可能已经知道世卫组织在中共国的全部调查过程以及将要公布的内容，并已掌握足够的证据驳倒他们的说法，就等着和他们对质。
 
-随着全球灭共步伐的加大，将有越来越多的媒体敢于报道在新疆的真相，不但彻底坐实中共所犯的种族灭绝罪，而且要求对中共追责的声讨也会越来越响亮，最后就是实施全面制裁。
+无论世卫组织的报告怎么想证明病毒不是来自武汉实验室，这样的结论都不可能成立。因为彭佩奥提到，美国已得到“重要的证据”，表明病毒很可能来自武汉实验室。这不禁让人有很多联想，这些证据可能是数据资料、录音录像、医生或患者的采访，甚至可能有另一个像闫丽梦一样的专家级爆料者将站出来。是否有来自武汉病毒研究所的爆料人？是否有中共国家级领导人要求发动“生物战”的秘密内部指示？如果是这样，中共在实锤证据面前就无从狡辩了，准备接受国际大审判吧！
 
 **原文翻译：**
 
-## 在其它名校接受中共资金的情况下，哈佛组织努力使法学院校友的弟弟从中共集中营获释
-[!\[\]()!\[\](https://spark.adobe.com/page/GeDx4jxtkQ1Cp/images/43e53ae5-fbc6-45e0-9ac0-e61de28f73b6.jpg?asset_id=7c9264b4-5f55-425a-98db-e56ded9384bc&amp;img_etag=%223ef5a3b3925075a734b4a40d47422f80%22&amp;size=1024)](https://spark.adobe.com/page/GeDx4jxtkQ1Cp/images/43e53ae5-fbc6-45e0-9ac0-e61de28f73b6.jpg?asset_id=7c9264b4-5f55-425a-98db-e56ded9384bc&amp;img_etag=%223ef5a3b3925075a734b4a40d47422f80%22&amp;size=1024)
-至少76个哈佛大学学生组织发表声明，呼吁中共释放目前被关押在维吾尔族集中营的哈佛法学院学生的弟弟。
+# **世界卫生组织拒绝了冠状病毒来自中共国武汉实验室的说法。前国务卿迈克·彭佩奥周二对此做出了回应。**
 
-其它名校目前正接受中共的资助。
+[!\[\]()!\[\](https://spark.adobe.com/page/9euGNhXDf0NS2/images/a548691f-ae6a-44a4-8566-1839111127d1.jpg?asset_id=2763e08c-0c86-49ff-91f9-39c03b28bed5&amp;img_etag=%22cd0cb7a1b8a16b4473b63a0e399247d8%22&amp;size=2560)](https://spark.adobe.com/page/9euGNhXDf0NS2/images/a548691f-ae6a-44a4-8566-1839111127d1.jpg?asset_id=2763e08c-0c86-49ff-91f9-39c03b28bed5&amp;img_etag=%22cd0cb7a1b8a16b4473b63a0e399247d8%22&amp;size=1024)
 
+世界卫生组织拒绝了冠状病毒来自中共国武汉实验室的说法。前国务卿迈克·彭佩奥周二对此做出了回应。
 
+彭佩奥在福克斯新闻频道(Fox News Channel)的“美国新闻编辑室”(America’s Newsroom)节目上说，“没有一件事”改变了他对该病毒起源于武汉的看法，因为“有重要证据”。
 
-至少76个哈佛大学学生组织呼吁中共释放目前被关押在维吾尔族集中营的一名哈佛法学院毕业生的弟弟。
+彭佩奥概述说：“我必须说我们离开世界卫生组织的原因是因为我们相信它是腐败的。它已经被政治化了，已经向中共国国家主席习近平屈膝下跪。我希望他们今天宣布的情况并非如此。我期待着看到他们的报告和分析。但是我不认为他们得到了他们所需的访问权限。”
 
-他们的声明由哈佛法学院人权倡导者组织撰写，呼吁立即从维吾尔族集中营释放艾克拜尔·艾塞提——哈佛法学院校友热伊汗·艾塞提的弟弟。
+他继续说：“我希望他们能够看到所有数据和科学、进入实验室、与医生交谈、采访他们……在私人的地方，在他们能够说出真相的地方，而不是在一个坐在房间后面的共产党人的监督下，确保他们遵守共产党的路线。因此，我期待着看到他们的结果。我仍然知道有重要的证据，比尔，这些证据表明病毒很可能来自那个实验室。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GeDx4jxtkQ1Cp/images/59e01e66-47b6-4e21-82b3-2cae45e503f7.jpg?asset_id=0be427ff-ca50-408f-8db8-09bea4d54d31&amp;img_etag=%22105e22be105f024b098f6b7597af4d74%22&amp;size=1024)](https://spark.adobe.com/page/GeDx4jxtkQ1Cp/images/59e01e66-47b6-4e21-82b3-2cae45e503f7.jpg?asset_id=0be427ff-ca50-408f-8db8-09bea4d54d31&amp;img_etag=%22105e22be105f024b098f6b7597af4d74%22&amp;size=1024)照片由Rayhan Asat提供. 图片为Rayhan Asat和照片上的弟弟
+主持人比尔·海默(Bill Hemmer)问道：“那么，你对病毒来源于实验室的看法没因此有任何改变吗？”
 
-“我们加入广泛的呼吁，敦促美国政府和国际社会要求中共国政府结束对维吾尔族少数民族的长期和系统性压迫，并呼吁对继续针对这一族群实施的大规模暴行迅速问责”，该声明称。
+彭佩奥总结道：“什么也没有。”
 
-艾克拜尔·艾塞提是一名科技企业家，曾于2016年从新疆维吾尔自治区前往美国参加由美国国务院赞助的国际访客领导力计划（International Visitors Leadership Program）。他在回到中共国几周后就失踪了。
-
-热伊汗·艾塞提于2020年1月得知，艾克拜尔因“煽动民族仇恨与民族歧视”罪名被判处15年有期徒刑。哈佛组织的声明解释道，该罪名“通常被中共国政府用在对著名维吾尔族人的做秀审判中”。
-
-该声明呼吁美国国务院努力争取“立即无条件释放艾克拜尔·艾塞提”，并呼吁欧盟和联合国“确保在今后的任何访问中，中共国政府能够让他们对新疆地区的维吾尔族拘留营进行直接且有意义的接触”。
-
-哈佛肯尼迪学院、哈佛商学院、哈佛医学院等部门的相关学生组织签署了该声明。哈佛法学院民主党人和哈佛法学院共和党人分别赞助了该声明。
-
-《校园改革》（Campus Reform）近日报道，自2015年以来，美国高校接受了来自中共的超过2400万美元资金。
-
-例如，麻省理工学院——该学院与哈佛大学毗邻，位于马萨诸塞州剑桥，经常与哈佛大学合作开展研究项目——接受了未透露的中共国政府来源的一份39.5万美元合同，被美国教育部强制性文件所披露。
-
-布朗大学——哈佛大学在常春藤联盟中的同行——从另一个未公开的政府来源接受1865190.65美元。
-
-《校园改革》联系了哈佛大学征求意见，本文将进行相应更新。
-
-🔗[原文链接](https://campusreform.org/?id=16746)
+🔗[原文链接](https://www.breitbart.com/clips/2021/02/09/pompeo-not-a-thing-has-changed-my-suspicion-that-coronavirus-came-from-a-wuhan-lab/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 - [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
-编辑：【英国伦敦喜庄园编辑部】Edited by：【Himalaya London Club UK】
+编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GeDx4jxtkQ1Cp/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/GeDx4jxtkQ1Cp/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/9euGNhXDf0NS2/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/9euGNhXDf0NS2/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
