@@ -1,98 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朱利安尼市长接受新闻极限电视台采访谈川普总统弹劾案
-` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/904789/)
+## 《华盛顿邮报》出报道替闫丽梦博士说话
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/904861/)
 
-新闻简述：朱利安尼市长2021年2月10日接受新闻极限电视台主持人格兰特·斯金菲尔德的采访，谈对国会的川普总统弹劾案的观感。他们指出川普总统被指责“煽动暴力”的视频是经过剪辑的，原话被掐头去尾，把川普总统明确说的“和平和爱国”两个词从演讲[1]中删掉，从而误导舆论。
+加拿大多伦多枫叶农场 文所未闻
+![]()![](https://gnews.org/wp-content/uploads/2021/02/闫丽梦.jpg)*图片来源：NFSC*
+据《华盛顿邮报》（washingtonpost.com）2月12日报道，病毒学家闫丽梦博士在9月发表了一篇爆炸性的论文，揭露中共国在研究实验室里制造了致命的冠状病毒之际，来自约翰·霍普金斯大学、哥伦比亚大学和其他美国一流大学的科学家们以罕见的速度行动起来。美国科学家们得出结论，这篇论文漏洞百出。而且在闫博士发布该论文10天后，专门为审核与SARS-CoV-2相关说法而设立的麻省理工学院出版社的一份新的在线期刊称，闫博士的说法 “毫无根据，也没有数据支持”。
 
-[1] [川普总统《拯救美国》集会演讲全文](https://gnews.org/wp-content/uploads/2021/02/WH_20210106_Trump-Speech-CN-traditional-EN.pdf)
+但是，在一个任何人都可以通过点击几下在网上发布任何东西的时代，这种回应并没有足够快地阻止闫博士的争议曝料大量传播，迅速地在社交媒体和福克斯新闻上达到数百万的观众。根据虚假信息专家的说法，这是一个新状况，其凸显了为促进科学解释而建立的系统如何被用来传播与科学共识严重不符的政治性主张。
 
-**Grant Stinchfield: **And yet the nation is forced to watch the sham impeachment of the one president who successfully put China on notice. Well, joining me now is a close confident and trusted advisor of President Trump, Mayor Rudy Giuliani. Mr. Mayor, great to have you on the program.
+9月14日，闫博士的论文在没有经过任何审查的情况下被发布到科研库Zenodo上。根据哈佛大学研究媒体操纵的研究人员周五发表的一份报告称，在共和党战略家史蒂文·班农（Stephen K. Bannon）等保守派影响者在”战斗室：大流行病”在线节目中反复推送帮助下，闫博士的论文在Twitter，YouTube和极右翼网站上爆炸开来。10月8日，闫博士扩展了她的说法，明确指责中共国政府将冠状病毒开发为 “生物武器”。
 
-**格兰特·斯金菲尔德：**这个国家被迫观看了一场虚假的弹劾案，弹劾一位成功地将视线聚焦到中[共]国的总统。好的，现在来到我们访谈的是川普总统信任的亲密顾问：朱利安尼市长。市长先生，很高兴邀请您到我们的节目。
+在线研究资料库已成为揭示和辩论该流行病的重要论坛。它们的建立是为了更灵活地推动科学发展，它们一直站在报告有关口罩、疫苗、新的CCP病毒变种等发现的最前沿。但这些网站缺乏传统的，同时也是迟缓的同行评议的科学期刊所固有的保护措施，在那里，文章只有在经过其他科学家的评议后才会发表。研究表明，张贴在在线网站上的论文也可能被劫持以助长阴谋论。
 
-**Mayor Rudy Giuliani: **How are you, Grant? Good to see you.
+根据哈佛大学虚假信息研究人员的说法，尽管有几项引起轩然科学批评和对其所谓的缺陷的广泛新闻报道，闫博士在Zenodo网站上的论文现在已经被浏览了100多万次，使其可能成为关于冠状病毒大流行起源最广泛阅读的研究。他们得出的结论是，在线科学网站很容易受到他们所谓的 “隐蔽的科学 “的影响，试图给可疑的成果 “披上科学合法性的外衣”。”在意识到这个平台被滥用程度方面，他们滞后了很多年，”制作该报告的哈佛肯尼迪学院肖伦斯坦媒体、政治和公共政策中心的研究主任琼·多诺万（Joan Donovan）说，”在这一点上，一切开放的东西都会被利用。”
 
-**鲁迪·朱利安尼市长：**格兰特，你好吗？很高兴见到你。
+此前在香港大学做博士后，但4月逃往美国的闫博士在接受《华盛顿邮报》采访时也认为，在线科学网站很容易被滥用，但她不认为她的情况属于这种情形。闫博士说，她是一个持不同政见者，试图向世界发出警告，即中共国在制造冠状病毒中扮演的角色。她使用了Zenodo网站，它能够不受限制地即时发布信息，因为她担心中共国政府会阻挠她的论文的出版。她认为，她的学术批评者将被证明是错误的。”他们都不能根据真正的、确凿的、科学的证据来反驳。”闫博士说，”他们只能攻击我。”
 
-**Grant Stinchfield: **Well, it’s good to see you, Sir. You and the president, President Trump that is warned about Joe Biden’s ties to China. We’re seeing it unfold right before our eyes, Sir.
+Zenodo网站承认，这场风波促使其进行了改革，包括在《华盛顿邮报》询问Zenodo是否会删除它后，周四在闫博士论文上方贴注标签，称 “注意：潜在的误导性内容 “。该网站还在显著位置设置了乔治城大学病毒学家和麻省理工学院出版社的批评性链接。”我们对虚假信息真的很重视，所以这是我们想要解决的问题，” Zenodo是由欧洲核研究组织作为一个通用科学网站来运营的，该组织发言人阿奈斯·拉萨特（Anais Rassat）说， “我们不认为下架这个报告是最好的解决方案。我们希望它能留下来，并说明为什么专家认为它是错误的。”
 
-**格兰特·斯金菲尔德：**很高兴见到你，先生。你和川普总统警告说，乔·拜登和中国有紧密关系。我们现在看到这一切正在我们眼前展开。
+但主流研究人员看到闫博士的论点在互联网上传播的速度远远超过了他们反驳的速度，他们对这一经历感到不安–他们新近相信，传播虚假信息的能力远远超出了大名鼎鼎的社交媒体网站。任何没有强大和潜在昂贵的保障措施的在线平台都同样脆弱。”这与我们关于Facebook和Twitter的辩论类似。即我们在多大程度上创造了一个加速虚假信息的工具，而你又在多大程度上对此做出了贡献？”麻省理工学院出版社的在线期刊《中共病毒快速评论》的主编斯斯蒂法诺·贝尔托齐（Stefano M. Bertozzi）说道。该期刊对闫博士的观点提出了质疑。贝托齐还说：”大多数科学家没有兴趣在网络空间里搞一场徒劳无益的比赛”。
 
-**Mayor Rudy Giuliani: **Yeah, I mean you look at the executive orders in the first couple weeks, and he wasn’t going to do America first. He quite clearly is doing China first. I mean the Chinese are the big winners in the first two weeks of this administration. It’s really very unseemly when you consider how much money the Biden family has gotten from China over the years, that, uh, he is so blatantly helping China. I have … I put out a podcast today, called “CCP Goal”, and that is to defeat the us by 2049. That’s exactly the words of, uh, Xi Jinping at the Party Congress. He set 2049 as the goal to surpass the United States as the leading nation in the world. And, here we are that threat, and, uh, and favoring China with … I mean actually with money … You look, you look at the Paris Climate Accord. It’s gonna save China, you know, trillions of dollars that it’s going to cost us.
+十多年来，在线科学网站一直在增长，成为众多学术领域提出和审查观点的生态系统的重要组成部分，但由于迫切需要传播关于致命流行病的新发现，它们的增长势头迅猛。其中一些最著名的网站，如medRvix和bioRvix，拥有快速评估系统，旨在避免发表没有通过科学可信度初步测试的作品。medRxiv和bioRxiv的联合创始人理查德·塞维尔（Richard Sever）表示，他们还拒绝接受只评论他人工作的论文，或者未经同行评审就发布重大声明的论文。”我们希望创造一个足够高的门槛，让人们不得不做一些研究，”塞维尔说，”我们不想成为一个有一大堆阴谋论的地方”。
 
-**鲁迪·朱利安尼市长：**是的， 看看前面几周的行政命令。他不是美国优先，很明显，他是中[共]国优先。这届政府的前二周，中[共]国才是最大的赢家。考虑到拜登过去这些年从中[共]国捞到那么多钱，他现在公然地帮助中[共]国就显得非常地过分。今天我上传了一个音频叫“中共的目标”，就是他们要在2049年打败美国，这是习近平在党代会上的原话。他设定的目标是2049年超过美国，领导全世界。我们是他们实现目标的障碍……在帮助中[共]国，在钱的问题上……你看，你看《巴黎气候协议》， 那将给中[共]国节省数万亿美元，以我们为代价。
+在线出版网站通常被称为 “预印本服务器”，因为许多研究人员将其作为传统的同行评审的第一步，使作者有办法在更全面分析开始之前，将其成果公开，并有可能被新闻报道。预印本服务器的倡导者宣扬他们能够为重要发现创造早期可见性，并引发有益的辩论。他们指出，在传统的同行评审历程中，也有其偶尔会发表一些骗局和糟糕的科学的历史。”非常有趣的是，即使从整体上看，期刊在防止虚假信息流出方面做得并不好，大家却在担心预印本的问题。”塞维尔说道。不过，他和其他支持者都承认风险。
 
-**Grant Stinchfield:** It’s a shame. He appears to be getting help from the White House now with Joe Biden there clearly, which brings us to the impeachment, this giant sham, you know. We always talk about Democrats operating on emotions. Their whole case seems to be that destruction and violence occurred, but we all knew that happened. There’s been no mention really or any proof that President Trump had anything to do with it. What do you think of the Democrats case so far?
+当科学家们唇枪舌剑，非科学家们也会扫描预印本服务器，寻找可能出现的数据，以支持他们所喜欢的阴谋论。计算机科学家杰里米·布莱克本（Jeremy Blackburn）领导的一个研究小组追踪了来自社交媒体网站的预印本链接，如4chan，受到阴谋论者的欢迎。布莱克本和一名研究生（Satrio Yudhoatmojo）发现，在2016年至2020年期间，4chan上有4000多篇论文引用到主要预印本服务器上，主要科目是生物学、传染病和流行病学。他说，参差不齐的评审过程给预印本 “披上了一层可信的外衣”，专家们可能很快就会发现这些预印本有缺陷，但普通人不会。”这就是风险所在，”宾汉姆顿大学的助理教授布莱克本说，”来自预印本服务器的论文会出现在各种阴谋论中……并被疯狂曲解，因为这些人不是科学家。”
 
-**格兰特·斯金菲尔德：**这是一个耻辱。他[习近平]显然正从白宫的乔·拜登那里得到帮助，还给我们带来了这场弹劾，您知道这是一场巨大的闹剧。 我们经常谈到民主党的运作是基于感情[而非理性]，他们所有的论据看起来就是发生了破坏和暴力，我们都知道那发生了。但是根本没有提及并没有证据表明川普总统与那有啥关系。目前为止，您是怎样看待民主党的论据的？
+ASAPbio是一个非营利组织，推动更多的透明度和更广泛地使用预印本服务器。该组织的执行董事杰西卡·波尔卡（Jessica Polka）说他们依靠类似于众包的东西，其中来自外部研究人员的评论可以快速识别论文中的缺陷，但她承认基于服务器工作人员和顾问的审查层面的漏洞。ASAPbio最近的一项调查发现，有超过50个预印本服务器在运行–审查政策也几乎一样多。
 
-**Mayor Rudy Giuliani: **I think their case is a prophetic appeal to emotions and hoping that people are stupid. I mean they, they, you have a speech and they… I saw that guy swallow, the words in the speech are perfectly normal, and he he treats them like there’re words of incitement. No one was incited by it. The difficulties that the congress started a half hour before the President even ended his speech, so he couldn’t have possibly incited anyone. They were in the congress already, and then, of course, he ended the speech by telling him to be peaceful, but and then they said, well, he didn’t really mean it. Well, I mean that means you can’t win. If he had said don’t be peaceful, he’d have been guilty; and if he says he’s peaceful, he’s guilty. It’s because they’re unfair. They’ve been unfair.
+而且，也许重要的是，这项调查并不包括Zenodo，波尔卡说，鉴于其更广泛的使命，Zenodo不应该被视为预印本服务器。相反，她说，它是一个在线存储库，恰好托管一些预印本，以及会议幻灯片、原始数据和其他 “科学物件”，任何有电子邮件地址的人都可以容易上传。波尔卡说，Zenodo没有主要的预印本服务器常见的审查，也没有组织以有利于将批评或冲突的研究暴露出来。”如果没有这种背景，预印本服务器更容易受到虚假信息传播的影响，”波尔卡说道。但她补充说，一般来说，”预印本服务器没有资源成为某事是否真实的仲裁者”。
 
-**鲁迪·朱利安尼市长：**我认为他们就是说预言和煽情，并且希望大家都是傻子。 我是说您给了这么个演讲…… 我看到他[川普总统]演讲中的用词完全正常，而这些话被当作是有煽动性的。 没有人被这些话煽动。 国会在总统结束演讲半小时前就已经开始开会了，所以他[川普总统]不可能煽动到任何人。 他们[议员们]已经在国会上了，然后，当然，他[川普总统]以告诉大家要和平，结束了他的演讲。然而他们却说他[川普总统说要和平]不是真心的。好吧，那你跟[这帮人辩论]就永远都赢不了，因为如果他[川普]说不要和平，那他就有罪； 如果他说要和平，那他还是有罪。 这是因为[这些议员]是不公正的。 他们一直不公正。
+闫博士在接受《华盛顿邮报》采访时表示，Zenodo的开放性是促使她决定使用该网站的原因。她最初将论文提交给bioRxiv是因为，作为一名研究人员，她的工作已经出现在《自然》、《柳叶刀传染病》和其他传统出版物上，她知道这个预印本服务器在其他科学家看来会更加合理。闫博士说她拥有中南大学湘雅医学院的医学学位和南方医科大学的眼科博士学位（这两所大学都在中国），并曾是香港大学的博士后研究员。她在福克斯新闻上首次露面后，香港大学在7月宣布她不再隶属于该校，并在一份声明中说，她关于冠状病毒起源的说法 “没有科学依据，而类似于传闻”。
 
-**Grant Stinchfield:** Clearly unfair, which shows us, Mr. Mayor, this video they ran yesterday. I’m gonna play one clip of it because, again, they selectively edit, which is so dishonest if you look at this as a supposed to be a fair trial. Let’s roll that clip from the Democrats presentation yesterday.
+闫博士说，在逃离香港后，对当局可能阻止她的论文发表深表怀疑。当她在提交论文48小时后查看BioRxiv时，该网站似乎已经离线，闫博士说，由于担心出现最坏的情况，她撤回了论文，并将其上传到了Zenodo网站。bioRxiv联合创始人塞维尔表示，他无法对个人提交的材料发表评论，但他表示，尽管偶尔会出现故障，但据他所知，9月中旬该网站并没有出现 “长时间中断 “的情况，也没有迹象表明中国人或其他任何人对其进行了黑客攻击。
 
-**格兰特·斯金菲尔德：**显然这不公平，市长先生，向我们展示他们昨天播放的这段视频。 我要播放其中的一个片段，因为它们又有选择地进行编辑，太不诚实了，尤其是您认为这本来应该是一个公平审判。 让我们放一下昨天民主党演讲中播放的剪辑片段。
+在Zenodo网站上发表的论文，闫博士没有按照研究的惯例来列出学术所属性。相反，她列出了法治社会和法治基金，这两个组织是由郭文贵创立的纽约非营利组织，班农在2018年被宣布为法治社会的主席。闫博士说，她列出这些法治实体，是出于对他们帮助中共国异见人士的尊重，他们为她从香港飞来的机票支付了费用，并提供了安置津贴，而她主要靠自己的积蓄生活。她说自己的工作是独立的，她拒绝接受班农帮助传播政治诉求的说法。”我在香港的时候，不知道他有这么大的争议。”闫博士告诉邮报记者。
 
-**President Trump: **After this we’re gonna walk down, and I’ll be there with you. We’re gonna walk down … we’re gonna walk down to the capital…
+9月15日，也就是闫博士的论文出现在Zenodo上的第二天，她做客福克斯的塔克秀，根据哈佛大学研究人员的说法，这次出场有480万广播观众观看，YouTube上有280万观众观看，这也在Facebook和Twitter上引起了广泛的参与。班农在同一周出现在塔克秀中，并讨论了闫博士的说法。在Zenodo发表前后，他还在 “战斗室：大流行病”上采访了她22次。
 
-**川普总统：**集会之后，我们将会走过去，我会跟你们在一起。我们将会走过去…….我们会走向国会大厦……
+在热火朝天的选举中，政治环境显而易见。川普总统攻击他的民主党对手拜登（Joe Biden）据说过于同情中共国政府，称他为 “北京乔”。包括白宫贸易顾问纳瓦罗（Peter Navarro）在内的共和党人，在推送闫博士论文的同时，还附上了#CCPLiedPeopleDied的标签，这是指中共。档案显示，这篇论文在Zenodo上的第一天就有超过15万次的浏览量–对于一篇科学论文来说，尤其是一篇还没有经过任何独立专家评审的论文，其浏览量惊人。但这种关注度的激增也引起了反响，包括《国家地理》等媒体的批评性新闻报道，让人们对闫博士的说法产生了严重质疑。
 
-**Grant Stinchfield:** Mr. Mayor, they didn’t leave the President up saying “peacefully and patriotically with our voices”.
+在学术界，约翰·霍普金斯大学健康安全中心在闫博士的论文出现在Zenodo上一周后，发表了逐一回应，在报告中提出了39个单独的问题，并称 “对报告中包含的细节进行客观分析，这是同行评审过程中的惯例”。几天后，麻省理工学院出版社的在线期刊《中共病毒快速评论》刊登了四篇严厉的评论，其中一篇来自著名的艾滋病研究者、病毒学领域的巨人罗伯特·加洛（Robert Gallo）。他称闫博士的论文具有 “误导性”，并列举了 “可疑、虚假和欺诈性的说法”。大多数观点都具有很高的技术性，但加洛还质疑她关于所谓中共国军队在制造冠状病毒所扮角色的逻辑，加洛指出，如果那样，中共国军队将容易受到中共病毒的影响。”那中国人将如何保护他们自己呢？” 加洛在他的评论中问道，”好吧，根据那篇论文，中共军方知道瑞德西韦可以防止这个病毒，”（瑞德西韦后来被证明在治疗中共病毒方面有一些好处，虽然不一定能降低死亡风险。）”如果他们那么天真，我肯定不想呆在中共国军队里”。
 
-**格兰特·斯金菲尔德：**市长先生，他们没有留下总统说的“用我们的声音和平地和爱国地…… ”这句话。
+招聘加洛的想法来自贝托佐（Bertozzi），他是期刊编辑和加州大学伯克利分校公共卫生学院的名誉院长。和加洛一样，贝托佐也曾广泛从事艾滋病研究。在看到闫博士在福克斯节目中的露面后，他急于利用几个月前才创办的在线期刊来纠正这个科学记录。”我觉得它需要被具有科学公信力的人迅速揭穿，”贝托佐说道。他很快就想到了加洛。”我们需要像你这样的人说这是垃圾科学，”贝托佐回忆当时对加洛这样说。加洛和其他三位科学家的评论还附有编者按，对预印本程序本身提出了质疑，他说：”虽然预印本服务器提供了一个以前所未有的速度传播改变世界的科学研究的机制，但它们也是一个论坛，通过这个论坛，误导性的信息可以瞬间破坏国际科学界的信誉，破坏外交关系的稳定，并危及全球安全。”
 
-**Mayor Rudy Giuliani:** Yeah, I mean, that’s total deception. It would, in a trial, it would probably lead to a mistrial if they did that with a judge, or you would then play it and slam the lawyer in front of the jury for being a deceptive liar. I mean how can you leave out you’re trying to say he incited people, but he told them to be peaceful and patriotic? Well, how could he possibly be inciting them if he told them to be peaceful and patriotic?
+但是，这些来自病毒学界一些大腕的公开指责并没有让闫博士望而却步。美国有线电视新闻网（CNN）10月21日详细报道中引用了她的批评者的话和以及文档漏洞，也没有让闫博士退步。她拒绝接受CNN对于这个事情的采访，她说，因为CNN不允许她在电视直播中逐一解读他们发掘的问题。而她却于11月21日在Zenodo网站发表了自己的回应，标题为 “CNN利用谎言和虚假信息搅浑了SARS-CoV-2的起源”。
 
-**鲁迪·朱利安尼市长：**是的，我的意思是，这完全是欺骗。 如果这发生在法官的庭审中，就可能会导致审判失败。您放这个[片段]就是自己当骗子，在陪审团面前给律师打脸。 我的意思是说，您怎么能说他[川普]煽动人民，却告诉人们要和平与爱国？ 好吧，如果他告诉人们要和平与爱国，那他[川普]怎么可能煽动人民呢？
+在她的邮报采访中，闫博士承认–正如CNN所报道的那样–她在9月14日的原始论文上的三位合著者是假名，用于保护她所说的其他中共国研究人员，这些研究人员的家人在国内仍然处于危险之中。通常不鼓励作者在学术工作中使用假名。当世界卫生组织派往中国调查疫情起源的小组发表声明说，中共病毒来自实验室是 “极不可能 “时，她的说法在本周又遭受了一次打击。
 
-Plus, I was at that rally. Nobody was jumping up and down, acting crazy. Whatever happened at the capitol had already started. It already happened. And, we, and it took about an hour to walk from there to the capitol if anybody did. So, the two different events, the two different events that they’re trying to put together in a desperate effort to prevent him from getting real, getting elected in 2024 if he wants to.
+闫博士最早的评论家之一，病毒学家安吉拉·拉斯穆森（Angela Rasmussen），在闫博士的论文首次传播时就在哥伦比亚同意世卫组织的评估，但并未排除中共病毒实验室起源的可能性，尽管可能性不大。但她说，这一论点缺乏具体证据。”需要少一些猜测，多一些调查，”拉斯穆森说，她现在是在乔治城全球健康科学与安全中心的附属机构。”搞清楚这些东西需要很长的时间……这将需要数年甚至数十年的时间来解决它，如果我们做到了的话”。
 
-另外，我参加了那个集会。 没有人跳来跳去，表现得很疯狂。 [当时]国会山上发生的事情是已经开始了的。 它已经发生了。 而且，即使有人要走到国会山上去，那也得花大约一个小时的时间。 因此，这两个是不同的事件，他们[那些议员]正试图把两件不同的事情拼凑起来，以阻止他[川普总统]在2024年当选，如果他想参选的话。
+然而，闫博士继续捍卫自己的说法，并攻击批评者散布 “谎言”。她仍然认为中共政府故意制造冠状病毒，并继续竭尽全力让她闭嘴。闫博士也不讳言与班农和其他川普盟友共事。她说，作为一个持不同政见者，她并不完全能选择支持者。”如果中共要犯这个罪，谁能追究他们的责任呢……川普才是对中共强硬的人”，闫博士说，她的说法 “是基于事实，我不想误导大家”。
 
-**Grant Stinchfield:** Yeah, desperate and of course dishonest as well. I put together this little clip, you know, the President’s team has been getting a lot of criticism apparently even from the President himself. I want to roll the first attorney to speak yesterday and then get your response. I hate to turn lawyers against each other, but I want to play this because I was troubled by it too. Roll it.
+即使是现在，她也在准备另一篇接近30页的论文，希望这篇论文能驳倒批评者，让人们重新关注她关于中共、中共病毒和她所说的国际掩盖真相运动的说法。她计划在几周内出版，将会发布在Zenodo上。
 
-**格兰特·斯金菲尔德：**是的，他们[议员]这是无计可施了，而且真的是不诚实。 我准备了下面这个[总统律师讲话的]小片段，您知道，总统的律师团队显然也受到了总统本人的批评。 我想放一下[总统]首席律师昨天的发言，然后想听一下您的评论。 虽然我不想让律师们互撕，但我真的想把它放出来，因为它是如此地困扰着我。放出来吧。
+评：
 
-**Bruce Castor Jr.: **The House managers who spoke earlier were brilliant. I loved listening to them. They’re smart enough to pick a new administration if they don’t like the old one. President Trump no longer is in office. He was removed by the voters.
+中共对全世界科学界的收买和渗透经年已久，在这次中共病毒的问题上可见一斑。所谓科学界的公知，良知和公允性在金钱利益面前荡然无存。闫博士是上天派来的天使，一女子抵挡全世界的科学伪类，可叹、可敬、可期！如果没有闫博士出现，真难以想象人类的命运将是如何。
 
-**小布鲁斯·卡斯特：**之前发言的众议院管理者们都很出色。 我喜欢听他们的发言。 如果他们不喜欢旧政府，他们可以足够聪明地选出一个新政府。 川普总统已经不是总统了。 他被选民给选下去了。
+在CCP多年BGY下，不但科学界黑暗如此，主流媒体界也是同流合污，真假莫辨，混淆视听。这次《华盛顿邮报》的采访报道，字里行间还流露了一些基于事实的描述，没有一味的偏向，还算是有一丝希望。希望疫情肆虐下，越来越多的人逐渐认识到CCP病毒的危害和真相，越来越多有良知的媒体人和正义的科学家都能站出来。
 
-**Grant Stinchfield:** So Mr. Mayor, that’s Bruce Castor. What in the world is he talking about there? I mean, it’s so disappointing for me to see that, and that’s the guy defending my guy, President Trump.
+2021年，以毒灭共，以毒攻毒。闫博士身后，有无数爆料革命战友和追求真相的人跟随。全世界都在觉醒，中国共产党，你完啦！
 
-**格兰特·斯金菲尔德：**所以说，市长先生，那位就是是布鲁斯·卡斯特。 他在到底说的是啥啊？ 我的意思是，我看了以后太失望了，那个家伙就是给我的川普总统辩护的人啊！
+[原文链接](https://www.washingtonpost.com/technology/2021/02/12/china-covid-misinformation-li-meng-yan/)
 
-**Mayor Rudy Giuliani:** I don’t know what he was thinking about. Lawyers make mistakes. Maybe maybe nobody had told him what side of the case he was on before he came in. He might have been a little confused about it. But it was a fundamental errors that.. I mean I can’t explain it. And just have to chalk it up to a bad day, I guess.
+校对 文锦
+发稿 云起时
 
-**鲁迪·朱利安尼市长：**我不知道他脑子里想啥呢。 律师也会犯错。 也许没有人在他来[听证会]之前告诉过他，他是代表哪一方的律师。他可能有点犯糊涂了。 但这是一个基本的错误…… 我的意思是，我也无法解释。 我想，这只能归结到那是倒霉的一天。
-
-**Grant Stinchfield:** Well, Mr. Mayor, it’s great having you on the program, and I’ve told you before, I want to thank you for all you did during this time, leading up to today included, you and the entire team. God bless you, Sir, and I appreciate you coming on the program.
-
-**格兰特·斯金菲尔德：**好吧，市长先生，很高兴您参加节目，我之前就已经告诉过您，我要感谢您在这段时间内所做的一切，直到今天，包括您在内，以及整个团队。 上帝保佑您，先生，我感谢您参加节目。
-
-**Mayor Rudy Giuliani:** Thank you, Grant. God bless you too.
-
-**鲁迪·朱利安尼市长：**谢谢，格兰特，上帝也保佑您。
-
-视频来源：[https://www.youtube.com/watch?v=rAX\_MXCEO-4&feature=youtu.be](https://www.youtube.com/watch?v=rAX_MXCEO-4&amp;feature=youtu.be) (0:00-6:10)
-
-以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。
-
-翻译：【文灵】【Isaiah4031】字幕：【奔腾的长江】编辑：【Isaiah4031】
-
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
-
-
-
-> [川普总统2021年1月6日《拯救美国》集会演讲全文](https://gnews.org/zh-hans/760125/)
-
-
-
-+2
+0
