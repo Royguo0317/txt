@@ -1,27 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 假期开始，病例激增令韩国人担忧
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/903733/)
+## 朱利安尼：拜登有没有提到中共在全世界散播病毒？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/903745/)
 
 - 编辑：Victor Torres
-- 发稿：Ranting
+- 发稿：神奇四侠
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年2月12日电/西喜社——**据美联社2月11日报道，韩国最近24小时内报告了504例新的中共病毒病例。这是约两周来的最高日增长率，并引起人们对该国开始农历新年假期时病例可能激增的担忧。
+**西班牙2021年2月12日电/西喜社——**
 
-卫生官员周四表示，新报告的病例使该国的疫情总数达到82434例，其中有1496例死亡病例与中共病毒有关。
+朱利安尼周五发推称：
 
-最近几周，韩国的病例数呈现出逐渐下降的轨迹，这主要得益于严格的疏导规则，比如禁止5人或以上的社交聚会。
+拜登与中共领导人习近平首次对话。
 
-官员们已经敦促公众保持警惕，在周四开始的四天农历新年假期期间呆在家里。预计数百万人将在假期期间前往全国各地探亲返乡。
+拜登有没有提到中共在全世界散播病毒，撒谎……死了几百万人。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/e3b98db6-c612-4573-ad2b-d36b0b657fbe.jpg)
+对习近平来说，都是一天的工作。
 
-**[新闻来源](https://apnews.com/article/yoshihide-suga-tokyo-coronavirus-pandemic-coronavirus-vaccine-japan-0ad5076248602e3bfe19e297c74d849a)**
+对拜登来说，只是让数百万美元的合作伙伴满意。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
-0
+
+> Biden has first conversation with CCP leader Xi Jinping.
+> 
+> Did Biden mention CCP spreading virus all over the world and lying…millions died.
+> 
+> For Xi, all in a days work.
+> 
+> For Biden, it's just keeping multi-million dollar partner satisfied.
+> — Rudy W. Giuliani (@RudyGiuliani) [February 12, 2021](https://twitter.com/RudyGiuliani/status/1360212257888755716?ref_src=twsrc%5Etfw)
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/00110011-1.png)
++1
