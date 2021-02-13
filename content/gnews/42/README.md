@@ -1,64 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国一名防疫志愿者被刺身亡
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/904010/)
+## 哈佛学生会全力营救被中共非法关押的校友亲人
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/904019/)
 
-新闻来源：Breitbart《布赖特巴特》| 作者：GABRIELLE REYES | 发布时间：2021年2月9日
+新闻来源：Campus Reform《校园改革》| 作者：Benjamin Zeisloft | 发布时间： 2021年2月8日
 
-翻译/简评：文明明 | 校对：SilverSpurs7 | 审核：万人往 | Page：拱卒
+翻译/简评：Dreamer文童 | 校对：感恩 | 审核：万人往 | Page：拱卒
 
-[!\[\]()!\[\](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/dcb8c310-1aab-421f-b7d2-83f454d98e40.jpg?asset_id=20b42079-f72b-436e-8c0b-7a0e6ac6b953&amp;img_etag=%228093b23623cf940dc101d2c93b7c6d1f%22&amp;size=1024)](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/dcb8c310-1aab-421f-b7d2-83f454d98e40.jpg?asset_id=20b42079-f72b-436e-8c0b-7a0e6ac6b953&amp;img_etag=%228093b23623cf940dc101d2c93b7c6d1f%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/GeDx4jxtkQ1Cp/images/a35f9b36-afee-47a5-85ce-0f128dd38fe6.jpg?asset_id=aa3a6b4c-35ea-4408-9f20-b3d6c2d32fbf&amp;img_etag=%22b5373380b14a3bb77ee6b9cd4142af3b%22&amp;size=1024)](https://spark.adobe.com/page/GeDx4jxtkQ1Cp/images/a35f9b36-afee-47a5-85ce-0f128dd38fe6.jpg?asset_id=aa3a6b4c-35ea-4408-9f20-b3d6c2d32fbf&amp;img_etag=%22b5373380b14a3bb77ee6b9cd4142af3b%22&amp;size=1024)
 
 **简评：**
 
-据中共国营媒体《环球时报》2月8日报道，哈尔滨检察院批准逮捕陈成龙，因为他涉嫌在2月3日谋杀一名防疫志愿者，犯有故意杀人罪。陈某因扔垃圾需要离开居住的小区，被小区门卫阻挠后，用刀刺伤门卫并导致其死亡。在此十天前，河北省北部的秦皇岛某村也发生了类似事件，一名男子在被要求接受新冠病毒检测时，用车撞死一名防疫人员。
+2021年1月19日，前美国国务卿彭佩奥发布一份声明，将中共在新疆对穆斯林维吾尔族人的压迫定义为“种族灭绝和反人类罪”，并列举数项罪行。彭佩奥表示美国政府经过充分研究事实，才决定作出这份声明，暗示美国政府已掌握足够的证据和情报对中共进行定罪。日前，BBC采访并报道数名曾被囚禁于新疆再教育营的妇女，她们称受到系统性强奸等虐待。本文报道称，哈佛法学院维吾尔族校友的弟弟被中共以莫须有的理由判刑15年。这些公开报道的中共暴行就是“种族灭绝和反人类罪”的证据，让更多西方世界人士了解在新疆再教育营所发生的真相。
 
-中共国最高人民检察院2月2日表示，自2019年底中共国中部城市武汉发生首例有记录的中共病毒病例以来，全国已有7200多人因相关犯罪被逮捕，超过11200人被起诉。
+1948年12月9日通过的联合国《防止及惩治灭绝种族罪公约》第二条规定，“本公约内所称灭绝种族系指蓄意全部或局部消灭某一民族、人种、种族或宗教团体，犯有下列行为之一者：(a) 杀害该团体的成员；(b) 致使该团体的成员在身体上或精神上遭受严重伤害；(c) 故意使该团体处于某种生活状况下，以毁灭其全部或局部的生命；(d) 强制施行办法，意图防止该团体内的生育；(e) 强迫转移该团体的儿童至另一团体。”根据目前从新疆再教育营逃出来的证人所陈述，中共在新疆对维吾尔族人实施的暴行符合上述五项中的前四项，而根据本条规定，犯有其中一项罪行就已构成种族灭绝罪。
 
-这些刑事案件的发生，说明中共实行的非人性化防疫措施已经导致了严重的社会问题，人们在经济和健康安全的多重高压下生活，已经疲于应付。人与人之间的矛盾一触即发，极容易酿成悲剧。
-
-这一切的根源都源于中共邪恶的病毒超限战计划，不管是老百姓还是党内官员，都是这个计划下的牺牲品。
+随着全球灭共步伐的加大，将有越来越多的媒体敢于报道在新疆的真相，不但彻底坐实中共所犯的种族灭绝罪，而且要求对中共追责的声讨也会越来越响亮，最后就是实施全面制裁。
 
 **原文翻译：**
 
-## 一名中国男子用刀刺杀一名中共病毒防疫志愿者，并致其死亡
+## 在其它名校接受中共资金的情况下，哈佛组织努力使法学院校友的弟弟从中共集中营获释
+[!\[\]()!\[\](https://spark.adobe.com/page/GeDx4jxtkQ1Cp/images/43e53ae5-fbc6-45e0-9ac0-e61de28f73b6.jpg?asset_id=7c9264b4-5f55-425a-98db-e56ded9384bc&amp;img_etag=%223ef5a3b3925075a734b4a40d47422f80%22&amp;size=1024)](https://spark.adobe.com/page/GeDx4jxtkQ1Cp/images/43e53ae5-fbc6-45e0-9ac0-e61de28f73b6.jpg?asset_id=7c9264b4-5f55-425a-98db-e56ded9384bc&amp;img_etag=%223ef5a3b3925075a734b4a40d47422f80%22&amp;size=1024)
+至少76个哈佛大学学生组织发表声明，呼吁中共释放目前被关押在维吾尔族集中营的哈佛法学院学生的弟弟。
 
-周一，中共国东北城市哈尔滨当局逮捕了一名男子。该男子涉嫌在上周刺伤了一名中共病毒防疫工作者，并导致其死亡。
+其它名校目前正接受中共的资助。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/ea32acca-9a7a-4b6d-b5e0-1b80ef4a229f.jpg?asset_id=1638956a-b8bc-4727-9394-f3d69c6c5a86&amp;img_etag=%22208abdbf9ae1a743233363c4d9e6e2de%22&amp;size=2560)](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/ea32acca-9a7a-4b6d-b5e0-1b80ef4a229f.jpg?asset_id=1638956a-b8bc-4727-9394-f3d69c6c5a86&amp;img_etag=%22208abdbf9ae1a743233363c4d9e6e2de%22&amp;size=1024)
 
-据中共国营媒体《环球时报》2月8日报道，哈尔滨检察院批准逮捕陈成龙（Chen Chenglong），“因为他涉嫌在2月3日谋杀一名防疫志愿者，犯有故意杀人罪”。
 
-最近，由于哈尔滨地区新冠病毒每日新病例数量激增，当地政府官员加大了对人们行动的限制，并启动了大规模的检测活动。上周三，42岁的防疫志愿者张立彬（Zhang Libin）被派往哈尔滨一个居民小区担任门卫，他曾试图阻止陈某离开小区。
+至少76个哈佛大学学生组织呼吁中共释放目前被关押在维吾尔族集中营的一名哈佛法学院毕业生的弟弟。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/bc28a513-c5b6-4c48-85da-4e37bf18cd7a.jpg?asset_id=c66cdafb-8296-4340-aa55-c701a6c596ac&amp;img_etag=%22f339d57c903a367abfee7ddf8731e32f%22&amp;size=3666)](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/bc28a513-c5b6-4c48-85da-4e37bf18cd7a.jpg?asset_id=c66cdafb-8296-4340-aa55-c701a6c596ac&amp;img_etag=%22f339d57c903a367abfee7ddf8731e32f%22&amp;size=1024)
+他们的声明由哈佛法学院人权倡导者组织撰写，呼吁立即从维吾尔族集中营释放艾克拜尔·艾塞提——哈佛法学院校友热伊汗·艾塞提的弟弟。
 
-《北京新闻》报道称：“张立斌和另一名男子一起执勤时，陈某走过来，说他需要离开小区去扔垃圾。”
+[!\[\]()!\[\](https://spark.adobe.com/page/GeDx4jxtkQ1Cp/images/59e01e66-47b6-4e21-82b3-2cae45e503f7.jpg?asset_id=0be427ff-ca50-408f-8db8-09bea4d54d31&amp;img_etag=%22105e22be105f024b098f6b7597af4d74%22&amp;size=1024)](https://spark.adobe.com/page/GeDx4jxtkQ1Cp/images/59e01e66-47b6-4e21-82b3-2cae45e503f7.jpg?asset_id=0be427ff-ca50-408f-8db8-09bea4d54d31&amp;img_etag=%22105e22be105f024b098f6b7597af4d74%22&amp;size=1024)照片由Rayhan Asat提供. 图片为Rayhan Asat和照片上的弟弟
 
-引述哈尔滨一名防疫志愿者的话说：“张立彬拒绝让陈某离开小区，并提出要替他处理垃圾。陈某随即拿出一把刀，将其刺伤。”
+“我们加入广泛的呼吁，敦促美国政府和国际社会要求中共国政府结束对维吾尔族少数民族的长期和系统性压迫，并呼吁对继续针对这一族群实施的大规模暴行迅速问责”，该声明称。
 
-根据哈尔滨公安局的声明，张立彬在被送往当地医院的途中因刀伤死亡。陈某最初逃离案发现场，随后被市警方发现并拘留。
+艾克拜尔·艾塞提是一名科技企业家，曾于2016年从新疆维吾尔自治区前往美国参加由美国国务院赞助的国际访客领导力计划（International Visitors Leadership Program）。他在回到中共国几周后就失踪了。
 
-当地刑事检察官说，2月3日发生在哈尔滨的刺杀事件，距1月24日河北省北部的秦皇岛某村所发生的一名男子在被要求接受中共病毒检测时撞死一名防疫人员的事件仅相隔十天。
+热伊汗·艾塞提于2020年1月得知，艾克拜尔因“煽动民族仇恨与民族歧视”罪名被判处15年有期徒刑。哈佛组织的声明解释道，该罪名“通常被中共国政府用在对著名维吾尔族人的做秀审判中”。
 
-据《南华早报》报道，这名村民拒绝检查，并且变得非常愤怒，用车撞倒了防疫人员，逃跑后被拘捕。
+该声明呼吁美国国务院努力争取“立即无条件释放艾克拜尔·艾塞提”，并呼吁欧盟和联合国“确保在今后的任何访问中，中共国政府能够让他们对新疆地区的维吾尔族拘留营进行直接且有意义的接触”。
 
-《环球时报》周一指出：“中共国一直在采取严格的措施，打击与疫情控制有关的非法行为。”
+哈佛肯尼迪学院、哈佛商学院、哈佛医学院等部门的相关学生组织签署了该声明。哈佛法学院民主党人和哈佛法学院共和党人分别赞助了该声明。
 
-中共国最高人民检察院2月2日表示，自2019年底中国中部城市武汉发生首例有记录的中共病毒病例以来，“全国已有7200多人因相关犯罪被逮捕，超过11200人被起诉”。
+《校园改革》（Campus Reform）近日报道，自2015年以来，美国高校接受了来自中共的超过2400万美元资金。
 
-新年伊始，位于中共国首都北京周边的河北省为了应对中共病毒病例在该地区激增的情况，政府当局对全省1100万人的出行进行了限制，其中也包括邻近的山西省。1月份，在香港和上海相继爆出中共病毒新增病例后，中共国卫生部对香港的150个住宅小区——近一万名居民——以及上海的主要医院进行了封锁。
+例如，麻省理工学院——该学院与哈佛大学毗邻，位于马萨诸塞州剑桥，经常与哈佛大学合作开展研究项目——接受了未透露的中共国政府来源的一份39.5万美元合同，被美国教育部强制性文件所披露。
 
-🔗[原文链接](https://www.breitbart.com/asia/2021/02/09/chinese-man-arrested-charges-fatally-stabbing-coronavirus-control-volunteer/)
+布朗大学——哈佛大学在常春藤联盟中的同行——从另一个未公开的政府来源接受1865190.65美元。
+
+《校园改革》联系了哈佛大学征求意见，本文将进行相应更新。
+
+🔗[原文链接](https://campusreform.org/?id=16746)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 - [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+编辑：【英国伦敦喜庄园编辑部】Edited by：【Himalaya London Club UK】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/GeDx4jxtkQ1Cp/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/GeDx4jxtkQ1Cp/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
