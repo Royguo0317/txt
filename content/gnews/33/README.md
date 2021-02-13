@@ -1,42 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登悄悄撤销川普对孔子学院的禁令
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/903996/)
+## 中共国一名防疫志愿者被刺身亡
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/904010/)
 
-新闻来源：《国家脉动》| 作者：娜塔莉·温特斯 | 发布时间：2021年2月8日
+新闻来源：Breitbart《布赖特巴特》| 作者：GABRIELLE REYES | 发布时间：2021年2月9日
 
-翻译/简评：Marialu | 校对：SilverSpurs7 | 审核：万人往 | Page：拱卒
+翻译/简评：文明明 | 校对：SilverSpurs7 | 审核：万人往 | Page：拱卒
 
-[!\[\]()!\[\](https://spark.adobe.com/page/HTXAlubEaa5hM/images/b86c971e-17c9-4fe5-afc2-88a6c8ed3174.jpg?asset_id=08e9ddda-b2d2-4fa4-a53e-463026cf3f1a&amp;img_etag=%220c538d81b308e25246f17db2d55d66d9%22&amp;size=1024)](https://spark.adobe.com/page/HTXAlubEaa5hM/images/b86c971e-17c9-4fe5-afc2-88a6c8ed3174.jpg?asset_id=08e9ddda-b2d2-4fa4-a53e-463026cf3f1a&amp;img_etag=%220c538d81b308e25246f17db2d55d66d9%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/dcb8c310-1aab-421f-b7d2-83f454d98e40.jpg?asset_id=20b42079-f72b-436e-8c0b-7a0e6ac6b953&amp;img_etag=%228093b23623cf940dc101d2c93b7c6d1f%22&amp;size=1024)](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/dcb8c310-1aab-421f-b7d2-83f454d98e40.jpg?asset_id=20b42079-f72b-436e-8c0b-7a0e6ac6b953&amp;img_etag=%228093b23623cf940dc101d2c93b7c6d1f%22&amp;size=1024)
 
 **简评：**
 
-据《国家脉动》报道，拜登总统悄悄撤销了川普时期的一项政策，该政策强制规定中小学和大专院校披露它们与中共资助的孔子学院的关系。该规则要求获得对外交流项目认证的高校和K-12学校披露来自孔子学院或孔子课堂（中小学孔子学院分支机构）的任何合同、合作关系或财务交易。川普政府的建议是有充分理由的：这些资金充裕且饱受争议的行动，尽管其中充斥着“与中共国机构的关系不明、忠诚冲突”、中共国国家宣传和知识产权盗窃等问题，却把自己伪装成语言和文化倡议。拜登在1月26日，入驻白宫不到一周，就否认了这项政策。
+据中共国营媒体《环球时报》2月8日报道，哈尔滨检察院批准逮捕陈成龙，因为他涉嫌在2月3日谋杀一名防疫志愿者，犯有故意杀人罪。陈某因扔垃圾需要离开居住的小区，被小区门卫阻挠后，用刀刺伤门卫并导致其死亡。在此十天前，河北省北部的秦皇岛某村也发生了类似事件，一名男子在被要求接受新冠病毒检测时，用车撞死一名防疫人员。
 
-众所周知，“孔子学院”不是纯粹的文化机构，而是受中共中宣部管辖的间谍机构。孔子学院负责人早在2014年就公然表态指出孔子学院就是要向外国输出中共的价值观。中共在2018年提出口号，即：用孔子学院的软实力来宣传社会主义等，其目的是笼络全世界的民心，全面进行意识形态的统战工作。然而，最近几年中共的大外宣行径被西方世界开始认清，引起了国际社会的关注和谴责。同时许多孔子学院在世界各地逐渐被关闭。2020年川普政府已经把孔子学院视为中共的大外宣或“外国使团”对待，发出了禁止中共在美国学校进行大外宣的禁令。拜登政府上台没几天，就开始否定川普时期的行政命令、规则和政策。中共才被定义为种族灭绝，新一届美国政府却给中共控制的孔子学院“松绑”，难道要“开倒车”？
+中共国最高人民检察院2月2日表示，自2019年底中共国中部城市武汉发生首例有记录的中共病毒病例以来，全国已有7200多人因相关犯罪被逮捕，超过11200人被起诉。
 
-庆幸有郭文贵先生引领的爆料革命和新中国联邦战友们的挺身而出，揭露中共的邪恶本质，传递真相、伸张正义，使越来越多的世人被唤醒，中共妄图控制和统治世界的美梦势必要落空。
+这些刑事案件的发生，说明中共实行的非人性化防疫措施已经导致了严重的社会问题，人们在经济和健康安全的多重高压下生活，已经疲于应付。人与人之间的矛盾一触即发，极容易酿成悲剧。
+
+这一切的根源都源于中共邪恶的病毒超限战计划，不管是老百姓还是党内官员，都是这个计划下的牺牲品。
 
 **原文翻译：**
 
-## 拜登悄悄撤销了川普对中共在学校进行大外宣的禁令
+## 一名中国男子用刀刺杀一名中共病毒防疫志愿者，并致其死亡
 
-[!\[\]()!\[\](https://spark.adobe.com/page/HTXAlubEaa5hM/images/0d17b5e5-de5c-4a32-8179-0fae22ef9046.jpg?asset_id=203b9e01-1aea-4250-83ae-d5fe45295640&amp;img_etag=%2295b0ef53e3525530680ab8e50d4ee9bd%22&amp;size=1024)](https://spark.adobe.com/page/HTXAlubEaa5hM/images/0d17b5e5-de5c-4a32-8179-0fae22ef9046.jpg?asset_id=203b9e01-1aea-4250-83ae-d5fe45295640&amp;img_etag=%2295b0ef53e3525530680ab8e50d4ee9bd%22&amp;size=1024)
+周一，中共国东北城市哈尔滨当局逮捕了一名男子。该男子涉嫌在上周刺伤了一名中共病毒防疫工作者，并导致其死亡。
 
-**拜登总统悄然撤销了川普时期的一项政策，该政策强制规定中小学和高等教育机构披露它们与中共资助的孔子学院的关系。**
+[!\[\]()!\[\](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/ea32acca-9a7a-4b6d-b5e0-1b80ef4a229f.jpg?asset_id=1638956a-b8bc-4727-9394-f3d69c6c5a86&amp;img_etag=%22208abdbf9ae1a743233363c4d9e6e2de%22&amp;size=2560)](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/ea32acca-9a7a-4b6d-b5e0-1b80ef4a229f.jpg?asset_id=1638956a-b8bc-4727-9394-f3d69c6c5a86&amp;img_etag=%22208abdbf9ae1a743233363c4d9e6e2de%22&amp;size=1024)
 
-该政策于2020年12月31日提出，即：“规定要求学生及交流访问（学者）项目认证学校披露与孔子学院和孔子课堂的协议。”
+据中共国营媒体《环球时报》2月8日报道，哈尔滨检察院批准逮捕陈成龙（Chen Chenglong），“因为他涉嫌在2月3日谋杀一名防疫志愿者，犯有故意杀人罪”。
 
-Axios指出：“该规则将要求获得对外交流项目认证的高校和K-12学校披露来自孔子学院或孔子课堂（中小学孔子学院分支机构）的任何合同、合作关系或财务交易。”
+最近，由于哈尔滨地区新冠病毒每日新病例数量激增，当地政府官员加大了对人们行动的限制，并启动了大规模的检测活动。上周三，42岁的防疫志愿者张立彬（Zhang Libin）被派往哈尔滨一个居民小区担任门卫，他曾试图阻止陈某离开小区。
 
-而根据美国联邦调查局（FBI）和美国司法部（DOJ）的说法，川普政府的建议是有充分理由的：这些资金充裕且饱受争议的行动，尽管其中充斥着“与中共国机构的关系不明、忠诚冲突”、中共国国家宣传和知识产权盗窃等问题，却把自己伪装成语言和文化倡议。
+[!\[\]()!\[\](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/bc28a513-c5b6-4c48-85da-4e37bf18cd7a.jpg?asset_id=c66cdafb-8296-4340-aa55-c701a6c596ac&amp;img_etag=%22f339d57c903a367abfee7ddf8731e32f%22&amp;size=3666)](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/bc28a513-c5b6-4c48-85da-4e37bf18cd7a.jpg?asset_id=c66cdafb-8296-4340-aa55-c701a6c596ac&amp;img_etag=%22f339d57c903a367abfee7ddf8731e32f%22&amp;size=1024)
 
-然而，来自信息和监管事务办公室（Office of Information and Regulatory Affairs）的记录显示，拜登在1月26日——在他入主白宫不到一周的时间里，就否决了这项政策。
+《北京新闻》报道称：“张立斌和另一名男子一起执勤时，陈某走过来，说他需要离开小区去扔垃圾。”
 
-校园改革（Campus Reform）指出：“美国移民和海关执法局发言人证实，该政策已被取消。”
+引述哈尔滨一名防疫志愿者的话说：“张立彬拒绝让陈某离开小区，并提出要替他处理垃圾。陈某随即拿出一把刀，将其刺伤。”
 
-🔗[原文链接](https://thenationalpulse.com/breaking/biden-rescinds-confucius-institute-regulations/)
+根据哈尔滨公安局的声明，张立彬在被送往当地医院的途中因刀伤死亡。陈某最初逃离案发现场，随后被市警方发现并拘留。
+
+当地刑事检察官说，2月3日发生在哈尔滨的刺杀事件，距1月24日河北省北部的秦皇岛某村所发生的一名男子在被要求接受中共病毒检测时撞死一名防疫人员的事件仅相隔十天。
+
+据《南华早报》报道，这名村民拒绝检查，并且变得非常愤怒，用车撞倒了防疫人员，逃跑后被拘捕。
+
+《环球时报》周一指出：“中共国一直在采取严格的措施，打击与疫情控制有关的非法行为。”
+
+中共国最高人民检察院2月2日表示，自2019年底中国中部城市武汉发生首例有记录的中共病毒病例以来，“全国已有7200多人因相关犯罪被逮捕，超过11200人被起诉”。
+
+新年伊始，位于中共国首都北京周边的河北省为了应对中共病毒病例在该地区激增的情况，政府当局对全省1100万人的出行进行了限制，其中也包括邻近的山西省。1月份，在香港和上海相继爆出中共病毒新增病例后，中共国卫生部对香港的150个住宅小区——近一万名居民——以及上海的主要医院进行了封锁。
+
+🔗[原文链接](https://www.breitbart.com/asia/2021/02/09/chinese-man-arrested-charges-fatally-stabbing-coronavirus-control-volunteer/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -45,6 +59,6 @@ Axios指出：“该规则将要求获得对外交流项目认证的高校和K-1
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/HTXAlubEaa5hM/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/HTXAlubEaa5hM/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/lHVJXKq2aCjAm/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
