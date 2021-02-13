@@ -1,50 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登悄悄撤销川普对孔子学院的禁令
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/903996/)
+## 哈佛学生会全力营救被中共非法关押的校友亲人
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/904019/)
 
-新闻来源：《国家脉动》| 作者：娜塔莉·温特斯 | 发布时间：2021年2月8日
+新闻来源：Campus Reform《校园改革》| 作者：Benjamin Zeisloft | 发布时间： 2021年2月8日
 
-翻译/简评：Marialu | 校对：SilverSpurs7 | 审核：万人往 | Page：拱卒
+翻译/简评：Dreamer文童 | 校对：感恩 | 审核：万人往 | Page：拱卒
 
-[!\[\]()!\[\](https://spark.adobe.com/page/HTXAlubEaa5hM/images/b86c971e-17c9-4fe5-afc2-88a6c8ed3174.jpg?asset_id=08e9ddda-b2d2-4fa4-a53e-463026cf3f1a&amp;img_etag=%220c538d81b308e25246f17db2d55d66d9%22&amp;size=1024)](https://spark.adobe.com/page/HTXAlubEaa5hM/images/b86c971e-17c9-4fe5-afc2-88a6c8ed3174.jpg?asset_id=08e9ddda-b2d2-4fa4-a53e-463026cf3f1a&amp;img_etag=%220c538d81b308e25246f17db2d55d66d9%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/GeDx4jxtkQ1Cp/images/a35f9b36-afee-47a5-85ce-0f128dd38fe6.jpg?asset_id=aa3a6b4c-35ea-4408-9f20-b3d6c2d32fbf&amp;img_etag=%22b5373380b14a3bb77ee6b9cd4142af3b%22&amp;size=1024)](https://spark.adobe.com/page/GeDx4jxtkQ1Cp/images/a35f9b36-afee-47a5-85ce-0f128dd38fe6.jpg?asset_id=aa3a6b4c-35ea-4408-9f20-b3d6c2d32fbf&amp;img_etag=%22b5373380b14a3bb77ee6b9cd4142af3b%22&amp;size=1024)
 
 **简评：**
 
-据《国家脉动》报道，拜登总统悄悄撤销了川普时期的一项政策，该政策强制规定中小学和大专院校披露它们与中共资助的孔子学院的关系。该规则要求获得对外交流项目认证的高校和K-12学校披露来自孔子学院或孔子课堂（中小学孔子学院分支机构）的任何合同、合作关系或财务交易。川普政府的建议是有充分理由的：这些资金充裕且饱受争议的行动，尽管其中充斥着“与中共国机构的关系不明、忠诚冲突”、中共国国家宣传和知识产权盗窃等问题，却把自己伪装成语言和文化倡议。拜登在1月26日，入驻白宫不到一周，就否认了这项政策。
+2021年1月19日，前美国国务卿彭佩奥发布一份声明，将中共在新疆对穆斯林维吾尔族人的压迫定义为“种族灭绝和反人类罪”，并列举数项罪行。彭佩奥表示美国政府经过充分研究事实，才决定作出这份声明，暗示美国政府已掌握足够的证据和情报对中共进行定罪。日前，BBC采访并报道数名曾被囚禁于新疆再教育营的妇女，她们称受到系统性强奸等虐待。本文报道称，哈佛法学院维吾尔族校友的弟弟被中共以莫须有的理由判刑15年。这些公开报道的中共暴行就是“种族灭绝和反人类罪”的证据，让更多西方世界人士了解在新疆再教育营所发生的真相。
 
-众所周知，“孔子学院”不是纯粹的文化机构，而是受中共中宣部管辖的间谍机构。孔子学院负责人早在2014年就公然表态指出孔子学院就是要向外国输出中共的价值观。中共在2018年提出口号，即：用孔子学院的软实力来宣传社会主义等，其目的是笼络全世界的民心，全面进行意识形态的统战工作。然而，最近几年中共的大外宣行径被西方世界开始认清，引起了国际社会的关注和谴责。同时许多孔子学院在世界各地逐渐被关闭。2020年川普政府已经把孔子学院视为中共的大外宣或“外国使团”对待，发出了禁止中共在美国学校进行大外宣的禁令。拜登政府上台没几天，就开始否定川普时期的行政命令、规则和政策。中共才被定义为种族灭绝，新一届美国政府却给中共控制的孔子学院“松绑”，难道要“开倒车”？
+1948年12月9日通过的联合国《防止及惩治灭绝种族罪公约》第二条规定，“本公约内所称灭绝种族系指蓄意全部或局部消灭某一民族、人种、种族或宗教团体，犯有下列行为之一者：(a) 杀害该团体的成员；(b) 致使该团体的成员在身体上或精神上遭受严重伤害；(c) 故意使该团体处于某种生活状况下，以毁灭其全部或局部的生命；(d) 强制施行办法，意图防止该团体内的生育；(e) 强迫转移该团体的儿童至另一团体。”根据目前从新疆再教育营逃出来的证人所陈述，中共在新疆对维吾尔族人实施的暴行符合上述五项中的前四项，而根据本条规定，犯有其中一项罪行就已构成种族灭绝罪。
 
-庆幸有郭文贵先生引领的爆料革命和新中国联邦战友们的挺身而出，揭露中共的邪恶本质，传递真相、伸张正义，使越来越多的世人被唤醒，中共妄图控制和统治世界的美梦势必要落空。
+随着全球灭共步伐的加大，将有越来越多的媒体敢于报道在新疆的真相，不但彻底坐实中共所犯的种族灭绝罪，而且要求对中共追责的声讨也会越来越响亮，最后就是实施全面制裁。
 
 **原文翻译：**
 
-## 拜登悄悄撤销了川普对中共在学校进行大外宣的禁令
+## 在其它名校接受中共资金的情况下，哈佛组织努力使法学院校友的弟弟从中共集中营获释
+[!\[\]()!\[\](https://spark.adobe.com/page/GeDx4jxtkQ1Cp/images/43e53ae5-fbc6-45e0-9ac0-e61de28f73b6.jpg?asset_id=7c9264b4-5f55-425a-98db-e56ded9384bc&amp;img_etag=%223ef5a3b3925075a734b4a40d47422f80%22&amp;size=1024)](https://spark.adobe.com/page/GeDx4jxtkQ1Cp/images/43e53ae5-fbc6-45e0-9ac0-e61de28f73b6.jpg?asset_id=7c9264b4-5f55-425a-98db-e56ded9384bc&amp;img_etag=%223ef5a3b3925075a734b4a40d47422f80%22&amp;size=1024)
+至少76个哈佛大学学生组织发表声明，呼吁中共释放目前被关押在维吾尔族集中营的哈佛法学院学生的弟弟。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/HTXAlubEaa5hM/images/0d17b5e5-de5c-4a32-8179-0fae22ef9046.jpg?asset_id=203b9e01-1aea-4250-83ae-d5fe45295640&amp;img_etag=%2295b0ef53e3525530680ab8e50d4ee9bd%22&amp;size=1024)](https://spark.adobe.com/page/HTXAlubEaa5hM/images/0d17b5e5-de5c-4a32-8179-0fae22ef9046.jpg?asset_id=203b9e01-1aea-4250-83ae-d5fe45295640&amp;img_etag=%2295b0ef53e3525530680ab8e50d4ee9bd%22&amp;size=1024)
+其它名校目前正接受中共的资助。
 
-**拜登总统悄然撤销了川普时期的一项政策，该政策强制规定中小学和高等教育机构披露它们与中共资助的孔子学院的关系。**
 
-该政策于2020年12月31日提出，即：“规定要求学生及交流访问（学者）项目认证学校披露与孔子学院和孔子课堂的协议。”
 
-Axios指出：“该规则将要求获得对外交流项目认证的高校和K-12学校披露来自孔子学院或孔子课堂（中小学孔子学院分支机构）的任何合同、合作关系或财务交易。”
+至少76个哈佛大学学生组织呼吁中共释放目前被关押在维吾尔族集中营的一名哈佛法学院毕业生的弟弟。
 
-而根据美国联邦调查局（FBI）和美国司法部（DOJ）的说法，川普政府的建议是有充分理由的：这些资金充裕且饱受争议的行动，尽管其中充斥着“与中共国机构的关系不明、忠诚冲突”、中共国国家宣传和知识产权盗窃等问题，却把自己伪装成语言和文化倡议。
+他们的声明由哈佛法学院人权倡导者组织撰写，呼吁立即从维吾尔族集中营释放艾克拜尔·艾塞提——哈佛法学院校友热伊汗·艾塞提的弟弟。
 
-然而，来自信息和监管事务办公室（Office of Information and Regulatory Affairs）的记录显示，拜登在1月26日——在他入主白宫不到一周的时间里，就否决了这项政策。
+[!\[\]()!\[\](https://spark.adobe.com/page/GeDx4jxtkQ1Cp/images/59e01e66-47b6-4e21-82b3-2cae45e503f7.jpg?asset_id=0be427ff-ca50-408f-8db8-09bea4d54d31&amp;img_etag=%22105e22be105f024b098f6b7597af4d74%22&amp;size=1024)](https://spark.adobe.com/page/GeDx4jxtkQ1Cp/images/59e01e66-47b6-4e21-82b3-2cae45e503f7.jpg?asset_id=0be427ff-ca50-408f-8db8-09bea4d54d31&amp;img_etag=%22105e22be105f024b098f6b7597af4d74%22&amp;size=1024)照片由Rayhan Asat提供. 图片为Rayhan Asat和照片上的弟弟
 
-校园改革（Campus Reform）指出：“美国移民和海关执法局发言人证实，该政策已被取消。”
+“我们加入广泛的呼吁，敦促美国政府和国际社会要求中共国政府结束对维吾尔族少数民族的长期和系统性压迫，并呼吁对继续针对这一族群实施的大规模暴行迅速问责”，该声明称。
 
-🔗[原文链接](https://thenationalpulse.com/breaking/biden-rescinds-confucius-institute-regulations/)
+艾克拜尔·艾塞提是一名科技企业家，曾于2016年从新疆维吾尔自治区前往美国参加由美国国务院赞助的国际访客领导力计划（International Visitors Leadership Program）。他在回到中共国几周后就失踪了。
+
+热伊汗·艾塞提于2020年1月得知，艾克拜尔因“煽动民族仇恨与民族歧视”罪名被判处15年有期徒刑。哈佛组织的声明解释道，该罪名“通常被中共国政府用在对著名维吾尔族人的做秀审判中”。
+
+该声明呼吁美国国务院努力争取“立即无条件释放艾克拜尔·艾塞提”，并呼吁欧盟和联合国“确保在今后的任何访问中，中共国政府能够让他们对新疆地区的维吾尔族拘留营进行直接且有意义的接触”。
+
+哈佛肯尼迪学院、哈佛商学院、哈佛医学院等部门的相关学生组织签署了该声明。哈佛法学院民主党人和哈佛法学院共和党人分别赞助了该声明。
+
+《校园改革》（Campus Reform）近日报道，自2015年以来，美国高校接受了来自中共的超过2400万美元资金。
+
+例如，麻省理工学院——该学院与哈佛大学毗邻，位于马萨诸塞州剑桥，经常与哈佛大学合作开展研究项目——接受了未透露的中共国政府来源的一份39.5万美元合同，被美国教育部强制性文件所披露。
+
+布朗大学——哈佛大学在常春藤联盟中的同行——从另一个未公开的政府来源接受1865190.65美元。
+
+《校园改革》联系了哈佛大学征求意见，本文将进行相应更新。
+
+🔗[原文链接](https://campusreform.org/?id=16746)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 - [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+编辑：【英国伦敦喜庄园编辑部】Edited by：【Himalaya London Club UK】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/HTXAlubEaa5hM/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/HTXAlubEaa5hM/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/GeDx4jxtkQ1Cp/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/GeDx4jxtkQ1Cp/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
