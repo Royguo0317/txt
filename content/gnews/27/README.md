@@ -1,52 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵看春晚XI连线路德3健身意味着锻炼意志延长XO时间
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/905305/)
+## 2/13/2021 财经快讯：英国经济遭受300年来最大下滑；疫苗和经济何去何从？
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/905462/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/封面-90.jpg)
-编辑整理：
+![]()![](https://www.gnews.org/wp-content/uploads/2021/02/Picture1-61.jpg)
+图片来源： [https://www.apnews.com](https://www.apnews.com)
 
-伦敦喜庄园：万物归一
+**1.为封城付出代价：英国经济遭受300多年以来的最大下滑**
 
-法国巴黎七星农场：枫丹白露
+由于中共病毒导致商店和饭店被迫关闭，旅游业被摧毁，制造业被削减，英国经济在2020年经历了300多年来的最大下滑。英国国家统计局2月12日(周五)表示，去年英国经济萎缩了9.9％，是2009年全球金融危机最严重时的两倍多，这是自1709年以来的最大跌幅。
 
-郭文贵先生在[辛丑年文贵看春晚](https://gtv.org/video/id=60252a55be64150df850eb09)对庚子灭共年爆料革命的成就进行了回顾，把辛丑年定为以毒灭共年和以钱灭共年，与各位战友进行连线，在三小时四十三分钟的时间内全球战友们与郭文贵先生共同辞旧岁迎新春，本系列将根据本届[辛丑年文贵看春晚](https://gtv.org/video/id=60252a55be64150df850eb09)的不同内容逐一上传。
+[https://www.breitbart.com/europe/2021/02/12/paying-the-price-for-lockdown-uk-economy-suffers-biggest-drop-in-300-years/](https://www.breitbart.com/europe/2021/02/12/paying-the-price-for-lockdown-uk-economy-suffers-biggest-drop-in-300-years/)
 
-以下为第十一部分——连线路德3健身意味着锻炼意志延长XO时间
+**2.标普500指数创历史新高**
 
-据[辛丑年文贵看春晚](https://gtv.org/video/id=60252a55be64150df850eb09)时间点2：41：58——
+受到新一轮美国经济刺激预期的影响，投资者购买了能源，金融和材料股，并出售了大型科技股，标准普尔500和纳斯达克周五创下历史新高, 而权重个股苹果公司，特斯拉公司和微软公司则跌幅居前。华尔街的恐惧指数Cboe Volatility Index自2020年2月以来首次收于20以下。
 
-郭文贵先生：那么今天我想回答战友们个问题啊，这还真是很有意思的，咱们一开始爆料就是“一切都是刚刚开始”，后来是“今天你健身了吗”，健身不仅仅是个健身的问题，健身是一个心、意志、能力，刚才你讲那个，它体现一个意志能力，你减了17公斤兄弟，**你回答战友们，减了17公斤以后双修能力是长了是短了？**你回答这个问题。咱不告诉郝海东先生，不告诉叶钊颖妹妹，好，你先说。
+[https://www.reuters.com/article/us-usa-stocks/sp-500-hits-record-peak-as-stocks-post-weekly-gain-idUSKBN2AC18A](https://www.reuters.com/article/us-usa-stocks/sp-500-hits-record-peak-as-stocks-post-weekly-gain-idUSKBN2AC18A)
 
-路德先生：郭先生最难能可贵的，就是他的这种真、真实，这是第一，第二，因为你要知道在国内像百亿身价的这种一个个都很装，装得自己比谁都强，装得自己跟习近平一样，说白了双修能力都没有但还体现自己很厉害，文贵先生就是这种可爱之处啊，特别有意思，在这种场合下问这种问题，非常有意思啊，其实这个问题的核心是什么，就是这个17公斤的体重的下降意味着什么，是不是，其实首先啊，我们其实自己很多都意识不到，其实当时我也意识不到，我还觉得这挺好的、状态挺好，但**文贵先生说你要那个，就他很直接，直接说，你如果不那个明年你就要死掉去，这个中国人谁敢说这话，是不是啊，但是郭先生敢，说了其实他就有这个，就像佛法就是“当头棒喝”，这一棒子真的，很管用的，**安红，哦，这个郭先生，非常管用的。
+**3.谷歌，微软，高通抗议英伟达收购安谋**
 
-郭文贵先生：呵呵，想安红了，一说你床上功夫你就想安红你这。
+一些世界上最大的科技公司如谷歌，微软公司和高通公司正在向美国反托拉斯监管机构投诉英伟达公司（Nvidia Corp.）收购安谋（Arm Ltd.），因为这笔交易将损害这些公司的业务。此次收购将使英伟达控制一家关键供应商，该供应商将必不可少的芯片技术许可给苹果公司，英特尔公司，三星电子公司，亚马逊公司和中共国的华为技术公司。
 
-路德先生：呵呵，时评经常动不动就博博士怎么说，这都形成口头禅了啊，然后你也知道这个17公斤，我就减的过程中就发现，因为我之前也健身，之前的尽量的都是用无氧，但现在我用有氧，这个有氧速度快，再加上这个饮食的控制，这个饮食控制实际上也是对自己一个很大的，这个瘾啊，有的时候饿的不行的时候，是不是，其实也是一个巨大的挑战，这个诱惑对人的这个挑战有的时候我发现比健身还难，就看着这个忍不住吃两口，但一吃的话实际上它就会你就前功尽弃嘛相当于，是不是，但是主要这个文贵先生他的这种给人的力量、唤醒人的力量，他其实真的就在这里，力量很大，就是我们从如果学禅宗的角度讲，**就是你这当头一棒喝子，关键点上一打就可以醒，刚才说什么双修，能力强了啊！**郭先生，哈哈，要这个结果。
+[https://finance.yahoo.com/news/google-microsoft-qualcomm-protest-nvidia-183045665.html](https://finance.yahoo.com/news/google-microsoft-qualcomm-protest-nvidia-183045665.html)
 
-郭文贵先生：哈哈，我给你说，这个是很重要，就是我们的口号，非常重要，**非常非常重要的就是健身它锻炼一个人的意志，它绝不是那么简单，七哥这健身。第二个，人的命，说是你的爱也好、性也好，人都没了，你要啥呀，你对家人、对小蔡、对孩子负责，那我一看你印堂发暗了，你再不减那出事了，是不是，你这是非常重要的，**现在，爆料革命救命，他不仅仅说是光病毒救命，一个正确的人生观思想也可以救命。**你这个17公斤，那觉对延长你双修时间三倍以上，这个好不好只有小蔡知道，不可言语，不可言语啊，但是你的意志超级让我佩服。真的不可说、不可言、不可语，这也是佛家的禅宗境界，**只有你俩去床上感受去了。这个路德先生你是爆料革命新中国联邦的一股力量，是一个正义的力量，是一个榜样的力量，而且你这个减肥，就把整个爆料革命的第一句话，“今天你健身了吗”完美的体现出来，希望更多战友能有这种不可言语的美妙的感觉，妙不可言的感觉，谢谢路德先生。
+**4.随着美国疫苗接种的增加，投资者开始关注酒店和邮轮公司类股票**
 
-接上文——
+随着美国疫苗的接种和评估的进行，投资者开始关注受到中共病毒冲击的酒店，邮轮公司和其他企业的收益报告，以了解大流行消退后哪些公司可能会首先回到正轨。希尔顿全球控股公司和凯悦酒店集团预计将于2月17日发布报告，随后是万豪酒店，挪威邮轮公司猫途鹰将于2月18日发布结果。
+评：疫苗的有效性和其对经济恢复的影响需要更广泛的评估，世界经济回到正轨的核心是向中共追责，找到病毒源头，消灭释放病毒扰乱世界的中共。
 
-[**文贵看春晚I****送走庚子霹雳灭共年迎来辛丑以毒灭共以钱灭共年**](https://gnews.org/zh-hans/903289/)
+[https://www.reuters.com/article/us-usa-stocks-weekahead/investors-eye-sha](https://www.reuters.com/article/us-usa-stocks-weekahead/investors-eye-shares-of-hotels-cruise-lines-as-u-s-vaccinations-pick-up-idUSKBN2AC2DQ)
 
-[**文贵看春晚II****联线简体中文战友谈中共经济危机四伏/G-News****病毒专题**](https://gnews.org/zh-hans/903414/)
+[res-of-hotels-cruise-lines-as-u-s-vaccinations-pick-up-idUSKBN2AC2DQ](https://www.reuters.com/article/us-usa-stocks-weekahead/investors-eye-shares-of-hotels-cruise-lines-as-u-s-vaccinations-pick-up-idUSKBN2AC2DQ)
 
-[**文贵看春晚III****联线七星战友:****全世界已没有选择必定火战灭共**](https://gnews.org/zh-hans/903444/)
+**5,原油价格预测继续看涨**
 
-[文贵看春晚IV连线班农先生，99%的兄弟姐妹希望川普回归白宫](https://gnews.org/zh-hans/905066/)
+根据FXEMPIRE的克里斯托弗·刘易斯分析，WTI原油市场在上周五再度反弹向$60突破。布伦特（Brent）市场也具有类似的基调，并突破了62.50美元的水平，他认为长期来看可能会达到70美元。
 
-[文贵看春晚V连线闫博士1是否有神秘力量在主宰和安排着闫博士](https://gnews.org/zh-hans/905143/)
+[https://finance.yahoo.com/news/crude-oil-price-forecast-crude-180050036.html](https://finance.yahoo.com/news/crude-oil-price-forecast-crude-180050036.html)
 
-[文贵看春晚VI连线闫博士2,病毒已被打磨已走向造成伤害的方向](https://gnews.org/zh-hans/905198/)
+**6.董事长“实锤”总经理后续，华信信托涉嫌经济犯罪，逾20只信托产品爆雷**
 
-[文贵看春晚VII连线闫博士3,期待回到那块土地那是我们的家乡](https://gnews.org/zh-hans/905225/)
+2021年1月6日，华信信托董事长董某因持械伤害总裁王某，被公安机关依法采取刑事强制措施，随后被依法批捕。据大连公安微博2月10日晚间消息，华信信托投资人多次向相关部门举报华信信托及相关人员涉嫌违法发放贷款等经济犯罪。除此之外，截至目前，华信信托有近23个项目尚未按期兑付，陆续“爆雷”。
 
-[文贵看春晚VIII连线闫博士4,一个政体把人逼成这样无人能幸免](https://gnews.org/zh-hans/905251/)
+[https://3g.163.com/money/article/G2HOTE4H00258105.html?spss=adap\_pc#adaptation=pc](https://3g.163.com/money/article/G2HOTE4H00258105.html?spss=adap_pc#adaptation=pc)
 
-[文贵看春晚IX连线路德1,路德访谈和闫博士已开启以毒灭共新时代](https://gnews.org/zh-hans/905267/)
+**7,奈雪的茶冲刺港股IPO 去年前三季度亏损2700万元**
 
-[文贵看春晚X连线路德2最关键的问题是有无信仰信不信你能灭共](https://gnews.org/zh-hans/905289/)
+2月11日晚间，港交所文件显示，茶饮品牌奈雪的茶向港交所递交招股书，摩根大通、招银国际、华泰国际为保荐人。目前奈雪的茶处于亏损状态，2018年、2019年及2020年前三季度，分别亏损6973万元、3968万元、2751万元。据报道，奈雪的茶近日已完成C轮1亿美金融资，领投方为太盟投资集团（PAG），本轮融资后该品牌最新估值已接近20亿美元，约合人民币130亿元。
 
-+1
+[http://m.caixin.com/m/2021-02-12/101663338.html?cx\_referer=http%3A%2F%2Fwww.caixin.com%2F2021-02-12%2F101663338.html](http://m.caixin.com/m/2021-02-12/101663338.html?cx_referer=http%3A%2F%2Fwww.caixin.com%2F2021-02-12%2F101663338.html)
+
+By 【Financial Team-雪梨Cheli】
+
+News Collection: Kate、Totoro、文罡
+
+Proofreading: 小蚂蚁在行动
+
+0
