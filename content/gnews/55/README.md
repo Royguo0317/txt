@@ -1,48 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CDC数据显示：中共病毒mRNA疫苗已致死653人
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/906591/)
+## 2021年2月7日郭先生直播内容整理
+` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/906681/)
 
-加拿大多伦多枫叶农场 文永
-![]()![](https://gnews.org/wp-content/uploads/2021/02/forbes.com1_.jpg)*图片来源：Forbes.com*
-据健康影响新闻（Health Impact News）网站2月12日报道[\[1\]](https://healthimpactnews.com/2021/cdc-653-deaths-now-recorded-following-experimental-mrna-covid-injections-with-12697-reported-injuries/)，美国疾病防疫中心（CDC）近日在疫苗不良反应报告系统（VAERS）公布的数据显示，截止至2021年2月4日，使用辉瑞和莫得纳（Moderna）公司的中共病毒疫苗造成的不良反应病例共有12697人，致死653人。除此之外，接种疫苗还造成急诊2792例，永久性致残208例，住院1382例。数据显示，72%的疫苗致死事故发生于65岁以上的老人。
+**CCP病毒**
 
-该报道还指出，由于疫苗不良反应是采用个人自愿而非强制性的报告机制，所以VAERS系统的数据应该不会包含实际全部不良反应的数据信息，因为很多人可能会选择不报告。而根据2011年美国卫生及公共服务部HHS报告[\[2\]](https://www.nvic.org/CMSTemplates/NVIC/Pdf/FDA/ahrq-vaers-report-2011.pdf)显示，公众对疫苗不良反应的报告率只有不到1%，也就是说，实际不良反应的数字可能比上面给出的大100倍还多。
+2021年世界只有2个话题——灭共和病毒。现在全世界很多病毒专家、传染病专家、卫生官员、有良知的人都站出来表示，病毒绝对不是来自自然。这些人独立发表的意见，没有不引用科学家的两份报告，没有人不看119路德访谈。包括羟氯喹都跟我们保持一致。
 
-该网站在前几天报道了威斯康星州一名医生在接种疫苗后不幸流产的事件[\[3\]](https://healthimpactnews.com/2021/wisconsin-resident-doctor-has-miscarriage-3-days-after-being-injected-with-experimental-covid-mrna-shot/)。该报道的作者当时在VAERS数据库查找胎儿死亡的案例，当时发现了3例。而这次在CDC更新数据以后，胎儿死亡的案例依然只有3例，也就是说，这位威斯康星州的医生的案例并没有记录在内。也许她认为流产和中共病毒疫苗没有直接关系。
+今年我们要看到爆料革命在世界的力量，要跟拜登政府勾兑。不管遇到什么困难，今年的目标一定得实现。让全世界更多的科学家们，知识分子使用爆料革命的信息，像我们的闫博士一样站出来。只要跟我们有共同的理想，共同的目标，都叫战友或者都是新中国联邦的朋友。人类最终一定往前进，一定会追求光明和真相。
 
-对于这些报道的不良反应事件，官方和媒体的口径一致是：这些反应不是注射疫苗造成的。CDC的官方说法也是如此，估计如果让CDC说了算的话，它都会把VAERS系统停掉。实际上CDC到现在都没有“疫苗致死”的类别，也从没有开具过“疫苗致死”的死亡证明。
+**VOG事件**
 
-另外，该网站在1月6日报道了一名医生在接种疫苗后不久，不幸患上一种罕见的血液疾病并死亡的事件[\[4\]](https://healthimpactnews.com/2021/very-healthy-56-year-old-miami-obstetrician-dies-after-being-injected-with-the-experimental-pfizer-covid-vaccine/)。《纽约时报》前几天报道了该事件，并指出CDC发现数据库中另外有36例类似情况，目前正在介入调查。《纽约时报》用了2000字的篇幅报道该事件，最后的结论是这些症状和接种疫苗无关，因为正常人患该血液疾病的概率大概也是这个数字。如果真的没有关系，那么为什么该报会花2000字的大篇幅来报道这个导致罕见的疾病案例，而却对很多更为常见的不良反应置之不理呢？
+Sara团伙不仅是图财害命，最大的伤害是对中国70年来人们失去正义，现在有信心追求真相，刚刚萌芽的状态，对人的内心，伤害是巨大的。她们过去拿郭先生的背书，当成价值，都已经准备好了直播tv。一直处心积虑，说路德、老江等多人不行，拿战友们付出的奉献、鲜血、自由为己有。
 
-在社交媒体上至少能找到有三例接种疫苗以后发生肌肉抽搐和痉挛的视频（这些视频目前已经被Facebook、YouTube等网站删除），在这些视频公布以后，有很多人联系视频中的受害者，说自己也有同样的症状。而在VAERS数据库截至2月4日的数据中，有158例接种疫苗后产生肌肉痉挛和抽搐的症状。总共造成10例死亡。而相比之下，上面报道的罕见血液疾病造成死亡仅有一例。
+打时间差，灯下黑。用战友的钱，搞口罩厂。今天住的公寓，租的豪车，吃的高级餐，全部都是战友的钱。现在跟共产党站在一起，共产党的坏话一句不说。完全把战友们当傻叉，还要建立傻币，把战友们当成洗钱、发财的谋财害命的工具。
 
-那为什么CDC要来调查这种罕见的血液疾病，而对肌肉抽搐等不良反应置之不理呢？该报道的作者认为，有可能是因为罕见血液疾病可以帮助制药公司开发新型药物，从而进一步带来更大的收益。
+Sara有什么资格收钱？有什么理由收钱呢？为谁收的钱？搞凤凰农场，撒这么多谎，藏那么多钱，骗了多少战友，我们现在还不知道。在网站上推出信息，恰恰证明郭先生多么在乎战友的钱安全起来，合法化，快有着落。说郭先生骗战友的钱，七哥是拿千亿美元资产，老娘的命和全家自由都搭上。怎么骗你两个亿？GTV拿战友的钱投资，是战友愿意，美国政府批准的。
 
-作者指出，医药公司把患者看作是收入来源，而实现收益的最大化，这已经不再是所谓的阴谋论了。实际上华尔街的投资报告也公开承认这一点[\[5\]](https://healthimpactnews.com/2018/investment-report-reveals-medical-cures-not-profitable-for-big-pharma-sick-people-needed-to-sustain-drug-sales/)。
+Sara竟然能把G-CLUB名单给公布到网络，这个事已经是美国政府已经接管了。把人家的私人通信信息放到网上去，这些信息更加证明，战友们的所有的钱是多么的安全。为了你们的钱达到目的，是多么的不容易。再给Sara三、五个月，爆料割据可受到损失可就大了去了。
 
-近几年医药开发的方向就是针对罕见疾病开发高价药物，而不是针对常见疾病开发廉价药物。而很多有效治疗常见疾病的药物已经过了专利期，所以利润率也很低。这也是为什么对于中共病毒感染治愈率接近100%的现有廉价药物，比如羟氯喹和伊维菌素等，被打压的原因。
+**VOG事件展示的问题是没有反抗**
 
-当然CDC介入调查的真正原因，我们不得而知。但是该报道的作者认为，要想看清医药公司和它们控制的媒体背后的真相，必须要明白一点：对于医药公司来说，只有病人才能带来利润，而健康人和解药对它们来说毫无益处。这是医药公司的商业模式，也是它们赚钱的根本。
+没有爆料革命，没有战友们捧，不可能被Sara骗。今天Sara团伙，以为美国法律保护着我。因为战友没有收拾她们，无所顾忌的欺骗，找共产党人灭口，还得把你家灭口，灭口之前让你自愿的写遗书。还竟然提前写网站。很得意，没有人敢说实话。
 
-小结：
-爆料革命多次提醒广大同胞，目前仓促生产的中共病毒疫苗，只是医药公司用来赚钱的。闫丽梦博士也多次强调，在没有灭共以及找到病毒真正来源之前，仓促开发出来的疫苗是非常危险的。从CDC的数据来看，疫苗造成的灾难不可小视，希望大家一定要珍惜生命，远离中共病毒和早期疫苗！
+今天她说一千道一万，就是不还钱。这就是共产党的流氓逻辑。你的是我的，我的是我的，这是绝对化的。这帮人就是一个贪，就是觉得中国人好欺负，战友太善良，不欺负你，对不起你。
 
-[原文链接](https://medicalkidnap.com/2021/02/12/cdc-653-deaths-now-recorded-following-experimental-mrna-covid-injections-with-12697-reported-injuries/)
-校对 文锦
-发布 云起时
+中国人就是太没有自我保护，反抗意识。我们见不到像在西方文明长大的人，对待这种事情的那种发自内心的愤慨、恼怒、受不了。这就像陈峰掏女孩子宫一样，有些女孩不叫，他就不掏了。就是因为女孩喊叫，但没反抗，陈峰才去掏。
 
-该文是转载以下链接：
-[\[1\] CDC: 653 Deaths Now Recorded Following Experimental mRNA COVID Injections with 12,697 Reported Injuries](https://healthimpactnews.com/2021/cdc-653-deaths-now-recorded-following-experimental-mrna-covid-injections-with-12697-reported-injuries/)
+战友们到现在直喊疼，没有反击。为啥没有人敢站出来就指证她们？他们没有家人吗？他们家人听不见战友的呼唤吗？他们没有人性吗？**你是人，甭说用你来换钱，当你有危险生命的时候，必须反抗。我们中国人缺乏的就是斗争和反抗的精神。共产党就是这样把我们给弄了。七十年忍着，现在连喊疼的勇气都没有了。**
 
-文中提到的其他引文：
-[\[2\] Electronic Support for Public Health–Vaccine Adverse Event Reporting System (ESP:VAERS)](https://www.nvic.org/CMSTemplates/NVIC/Pdf/FDA/ahrq-vaers-report-2011.pdf)
+我们被共产党剥夺走了每个人内心世界的自我保护意识。从脑子里、从精神里、血液里，从你一切当中。什么一分为二看问题，万事不能绝对，相对的看问题；息事宁人，大事化小，小事化了；多一事，不如少一事；活着哪怕像猪狗一样的活着，全是驭民之术、愚民之术。
 
-[\[3\] Wisconsin Resident Doctor has Miscarriage 3 Days After Being Injected with Experimental COVID mRNA Shot](https://healthimpactnews.com/2021/wisconsin-resident-doctor-has-miscarriage-3-days-after-being-injected-with-experimental-covid-mrna-shot/)
+一分为二就是迷惑大家，让你失去了判断善恶、真假的理智。一分为二的中间裁决者就是权力。在善与恶之间没有什么一分为二，绝对就是绝对，善就是善，恶就是恶。面对魔鬼，战友们一定要要行动起来。如果爆料革命连这个妖精都灭不了，还灭什么共。
 
-[\[4\] “Very Healthy 56-Year-Old” Miami Obstetrician Dies after Being Injected with the Experimental Pfizer COVID Vaccine](https://healthimpactnews.com/2021/very-healthy-56-year-old-miami-obstetrician-dies-after-being-injected-with-the-experimental-pfizer-covid-vaccine/)
+我们喜马拉雅农场系列一定要守法、按规矩，永有契约精神。要睁大眼睛，防止共产党这些王八蛋们，潜入以后对我们的分化。七哥的精力应该全部用在灭共上、政治上和全球的运作上，剩下靠靠战友经营。
 
-[\[5\] Investment Report Reveals Medical Cures not Profitable for Big Pharma – Sick People Needed to Sustain Drug Sales](https://healthimpactnews.com/2018/investment-report-reveals-medical-cures-not-profitable-for-big-pharma-sick-people-needed-to-sustain-drug-sales/)
+任何一个人都有起码对真假善恶、是非的判断能力。否则永远会成为人家待宰的羔羊，人家案板上的肉。不论你走到哪去，新中国联邦也给不了你未来。希望各农场战友，对Sara说出真正有观点的话。对爆料革命，对于中国的人性和被共产党洗脑以后的反面的教育，让我们深思。
+
+**G系列**
+
+G系列最后是爆料革命、新中国联邦战友的，现在我们要利用大的投资机构，还有专业人士把它做强做大。光一个G-DOLLAR，写代码，要有经营执照、牌照，有经营金融业的历史和信用，还得有人背书，有大机构投资，才有人给你开户。现在没辙，战友的实力还不够，也没有国家权力，得求人家。等到战友通过G系列挣到了钱，未来战友强大了，都有钱了，战友就是股东。
+
+**其他方面：**
+
+1：七哥要是归隐山林了，最大的快乐就是给战友们做饭吃。
+
+2：中国人骨子里边是善良的，太善良的话，谁都想欺负，谁都敢欺负。
+
+3：候小宝骗走法治基金十万美金，一定要进监狱。
+
+4、怎么来解决肉体之身和达到佛家觉悟的境界，能放下当下？当想不开的时候，觉得自己被剥夺了，就想想萧建华、叶简明、吴晓辉等人的下场。
+
+**金句：**
+
+1：美好的生活就在我们旁边，只是你没有发现。
+
+2：人活着最懂得要珍惜，还要学会横向比较。
+
+内容来源：[https://gtv.org/video/id=602016773f8a013ab48167f5](https://gtv.org/video/id=602016773f8a013ab48167f5)
+
+软件听写未校对版
+
+整理：pride文豪
 
 0
