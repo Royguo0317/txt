@@ -1,51 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【聚焦】白宫警告世卫不要受中共对病毒起源调查的影响
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/906608/)
+## CDC数据显示：中共病毒mRNA疫苗已致死653人
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/906591/)
 
-#### 译者/编辑：翼族
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1102-1.png)
-图片来源：墨尔本雅典娜农场设计组（Anson）
+加拿大多伦多枫叶农场 文永
+![]()![](https://gnews.org/wp-content/uploads/2021/02/forbes.com1_.jpg)*图片来源：Forbes.com*
+据健康影响新闻（Health Impact News）网站2月12日报道[\[1\]](https://healthimpactnews.com/2021/cdc-653-deaths-now-recorded-following-experimental-mrna-covid-injections-with-12697-reported-injuries/)，美国疾病防疫中心（CDC）近日在疫苗不良反应报告系统（VAERS）公布的数据显示，截止至2021年2月4日，使用辉瑞和莫得纳（Moderna）公司的中共病毒疫苗造成的不良反应病例共有12697人，致死653人。除此之外，接种疫苗还造成急诊2792例，永久性致残208例，住院1382例。数据显示，72%的疫苗致死事故发生于65岁以上的老人。
 
-周六白宫警告世界卫生组织，在对致命的中共病毒起源进行调查时，不要受中共政府的影响。白宫国家安全顾问杰克·沙利文（Jake Sullivan）在一份声明中说：“我们对交流得到的中共病毒调查早期发现的方式，以及获得它们的程序的疑问，深表关切。”
+该报道还指出，由于疫苗不良反应是采用个人自愿而非强制性的报告机制，所以VAERS系统的数据应该不会包含实际全部不良反应的数据信息，因为很多人可能会选择不报告。而根据2011年美国卫生及公共服务部HHS报告[\[2\]](https://www.nvic.org/CMSTemplates/NVIC/Pdf/FDA/ahrq-vaers-report-2011.pdf)显示，公众对疫苗不良反应的报告率只有不到1%，也就是说，实际不良反应的数字可能比上面给出的大100倍还多。
 
-“当务之急是本报告必须独立，专家的发现不受中共国政府的干预或篡改。”
+该网站在前几天报道了威斯康星州一名医生在接种疫苗后不幸流产的事件[\[3\]](https://healthimpactnews.com/2021/wisconsin-resident-doctor-has-miscarriage-3-days-after-being-injected-with-experimental-covid-mrna-shot/)。该报道的作者当时在VAERS数据库查找胎儿死亡的案例，当时发现了3例。而这次在CDC更新数据以后，胎儿死亡的案例依然只有3例，也就是说，这位威斯康星州的医生的案例并没有记录在内。也许她认为流产和中共病毒疫苗没有直接关系。
 
-沙利文先生还说，北京应该向病毒调查人员提供疫情爆发的所有数据。他说：“为了更好地了解这一大流行并为下一次大流行做准备，中共国必须在疫情爆发的最初几天就提供其数据。”
+对于这些报道的不良反应事件，官方和媒体的口径一致是：这些反应不是注射疫苗造成的。CDC的官方说法也是如此，估计如果让CDC说了算的话，它都会把VAERS系统停掉。实际上CDC到现在都没有“疫苗致死”的类别，也从没有开具过“疫苗致死”的死亡证明。
 
-“展望未来，包括中共国在内的所有国家都应参与到一个透明而稳健的程序，以预防和应对卫生突发事件，以便世界尽早和尽量多地学习。”沙利文先生说，世卫组织的工作“从未像现在这样重要”，并指出美国“深切尊重”抗击大流行的世卫病毒学专家们。
+另外，该网站在1月6日报道了一名医生在接种疫苗后不久，不幸患上一种罕见的血液疾病并死亡的事件[\[4\]](https://healthimpactnews.com/2021/very-healthy-56-year-old-miami-obstetrician-dies-after-being-injected-with-the-experimental-pfizer-covid-vaccine/)。《纽约时报》前几天报道了该事件，并指出CDC发现数据库中另外有36例类似情况，目前正在介入调查。《纽约时报》用了2000字的篇幅报道该事件，最后的结论是这些症状和接种疫苗无关，因为正常人患该血液疾病的概率大概也是这个数字。如果真的没有关系，那么为什么该报会花2000字的大篇幅来报道这个导致罕见的疾病案例，而却对很多更为常见的不良反应置之不理呢？
 
-和川普政府脱离世界卫生组织的决定相反，拜登政府已经重新参与到世卫组织中。“但是重新参与世卫组织意味着（我们）仍要坚持最高标准。”沙利文先生说，“在这个关键时刻，保护世卫组织的信誉是当务之急。”
+在社交媒体上至少能找到有三例接种疫苗以后发生肌肉抽搐和痉挛的视频（这些视频目前已经被Facebook、YouTube等网站删除），在这些视频公布以后，有很多人联系视频中的受害者，说自己也有同样的症状。而在VAERS数据库截至2月4日的数据中，有158例接种疫苗后产生肌肉痉挛和抽搐的症状。总共造成10例死亡。而相比之下，上面报道的罕见血液疾病造成死亡仅有一例。
 
-批评人士指控中共国笼络世界卫生组织，世卫曾错误地宣布中共病毒在人与人之间不会传播，并敦促不要对中共国实行旅行限制，从而在中共病毒大流行的初期做出了处理不当的反应。
+那为什么CDC要来调查这种罕见的血液疾病，而对肌肉抽搐等不良反应置之不理呢？该报道的作者认为，有可能是因为罕见血液疾病可以帮助制药公司开发新型药物，从而进一步带来更大的收益。
 
-世卫组织的调查人员上周在中国武汉巡视了潜在的病毒起源机构，他们在这一巡视结束时宣布，他们认为这个病毒极不可能是从武汉实验室泄露的，并敦促停止这一假设。
+作者指出，医药公司把患者看作是收入来源，而实现收益的最大化，这已经不再是所谓的阴谋论了。实际上华尔街的投资报告也公开承认这一点[\[5\]](https://healthimpactnews.com/2018/investment-report-reveals-medical-cures-not-profitable-for-big-pharma-sick-people-needed-to-sustain-drug-sales/)。
 
-星期五，世卫组织总干事谭德塞在日内瓦撤回了这个明显的摈斥（译注：指病毒实验室起源说），告诉记者，有越来越多人质疑（世卫）摈斥这四种（病毒起源）理论中的一项。谭德塞说：“与团队的一些成员交谈后，我想确认的是所有推论都保持开放（讨论），需要进一步的分析和研究。”
+近几年医药开发的方向就是针对罕见疾病开发高价药物，而不是针对常见疾病开发廉价药物。而很多有效治疗常见疾病的药物已经过了专利期，所以利润率也很低。这也是为什么对于中共病毒感染治愈率接近100%的现有廉价药物，比如羟氯喹和伊维菌素等，被打压的原因。
 
-这四个理论包括从蝙蝠到人的自然爆发，病毒从蝙蝠到中间动物宿主然后再到人类的传播，以及从武汉两个从事蝙蝠病毒研究实验室的其中一个里泄露。世卫组织团队也正在调查中共国政府的说法，称该病毒是从进口到中国的冷冻食品包裹里来的。
+当然CDC介入调查的真正原因，我们不得而知。但是该报道的作者认为，要想看清医药公司和它们控制的媒体背后的真相，必须要明白一点：对于医药公司来说，只有病人才能带来利润，而健康人和解药对它们来说毫无益处。这是医药公司的商业模式，也是它们赚钱的根本。
 
-世卫组织病毒学家国际小组于2月9日宣布，大流行的致命病原体始于武汉，但专家们与中共国同行磋商后无法查明其源头。中共国坚决否认该病毒是从从事蝙蝠冠状病毒研究的武汉病毒研究所逃逸的。
+小结：
+爆料革命多次提醒广大同胞，目前仓促生产的中共病毒疫苗，只是医药公司用来赚钱的。闫丽梦博士也多次强调，在没有灭共以及找到病毒真正来源之前，仓促开发出来的疫苗是非常危险的。从CDC的数据来看，疫苗造成的灾难不可小视，希望大家一定要珍惜生命，远离中共病毒和早期疫苗！
 
-其中一位世卫组织调查小组成员，彼得·达斯扎克（Peter Daszak），来自于生态健康联盟（EcoHealth Alliance，总部位于纽约），他曾经在武汉病毒研究院进行过由美国政府资助的广泛研究。作为中共政府声明的反映，达斯扎克先生否认了这种病毒是从武汉实验室泄露的说法，认为这是一种阴谋论。
+[原文链接](https://medicalkidnap.com/2021/02/12/cdc-653-deaths-now-recorded-following-experimental-mrna-covid-injections-with-12697-reported-injuries/)
+校对 文锦
+发布 云起时
 
-达斯扎克先生出现在世卫（调查）团队中，引起了人们对利益冲突的担忧，这可能会损害调查团队进行病毒起源调查的信誉。达斯扎克在一条推文中驳斥了美国国务院公布的关于该病毒来源的情报，认为这是不可靠的。他说：“请不要过分依赖美国的情报：在川普政府下越来越不靠谱，并且坦率地说在许多方面是错的，”他补充说：“不要忘记它是‘先相信’，然后再‘去验证’！”
+该文是转载以下链接：
+[\[1\] CDC: 653 Deaths Now Recorded Following Experimental mRNA COVID Injections with 12,697 Reported Injuries](https://healthimpactnews.com/2021/cdc-653-deaths-now-recorded-following-experimental-mrna-covid-injections-with-12697-reported-injuries/)
 
-然而，美国国务院在一月份的报告中说，有间接证据表明该病毒是从武汉病毒研究所逃逸的。证据包括该研究所的几名工作人员，他们在众所周知病毒大爆发的时间之前就已有了感染中共病毒的类似症状。在实验室进行研究的蝙蝠病毒与该病毒的正式名称SARS-Cov-2有96％的相似性，并且该研究所与中共军方之间存在联系，至少从2017年开始军方就在该国进行生物战的研究。
+文中提到的其他引文：
+[\[2\] Electronic Support for Public Health–Vaccine Adverse Event Reporting System (ESP:VAERS)](https://www.nvic.org/CMSTemplates/NVIC/Pdf/FDA/ahrq-vaers-report-2011.pdf)
 
-美国国务院的报告说：“尽管武汉病毒研究所表现为一家平民机构，但美国已确定武汉病毒研究所与中共军方在出版物和秘密项目上进行了合作。”“至少从2017年起，武汉病毒研究所就代表中共军方从事机密研究，包括实验室动物实验。”
+[\[3\] Wisconsin Resident Doctor has Miscarriage 3 Days After Being Injected with Experimental COVID mRNA Shot](https://healthimpactnews.com/2021/wisconsin-resident-doctor-has-miscarriage-3-days-after-being-injected-with-experimental-covid-mrna-shot/)
 
-世卫组织调查小组负责人，丹麦食品安全和动物疾病专家彼得·本·恩巴雷克（Peter Ben Embarek）说，调查团队的初步发现表明该病毒是由中间动物宿主传入的，但指出需要进一步研究。恩巴雷克先生说，调查小组得出的结论是“实验室事件假说极不可能解释这病毒到人类群体的传入。”
+[\[4\] “Very Healthy 56-Year-Old” Miami Obstetrician Dies after Being Injected with the Experimental Pfizer COVID Vaccine](https://healthimpactnews.com/2021/very-healthy-56-year-old-miami-obstetrician-dies-after-being-injected-with-the-experimental-pfizer-covid-vaccine/)
 
-蝙蝠似乎是该病毒的可能起源，但调查小组称，武汉野生动物市场上并没有最初被认为是爆发源头的蝙蝠。
-
-中共国已经在提倡自己的关于病毒起源的阴谋论。北京方面已经表示，这种病毒是通过冷冻食品包装被带到中国的，但是病毒专家认为这种可能性极小。
-
-第一个已知的中共病毒的受害者于（2019年）12月1日出现在武汉一家医院，而他与野生动物市场没有任何联系。
-
-**原文链接：**
-
-[https://www.washingtontimes.com/news/2021/feb/13/white-house-warns-who-not-be-influenced-china-viru/](https://www.washingtontimes.com/news/2021/feb/13/white-house-warns-who-not-be-influenced-china-viru/)
+[\[5\] Investment Report Reveals Medical Cures not Profitable for Big Pharma – Sick People Needed to Sustain Drug Sales](https://healthimpactnews.com/2018/investment-report-reveals-medical-cures-not-profitable-for-big-pharma-sick-people-needed-to-sustain-drug-sales/)
 
 0
