@@ -1,25 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登政府寻求引渡阿桑奇
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/905918/)
+## 2021年2月13日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/905998/)
 
-俄罗斯莫斯科喀秋莎农场  洛夫斯基灭ССР
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-13_21-40-29.jpg)[sputniknews.cn](http://sputniknews.cn/politics/202004121031201756/)
-《纽约时报》2月13日报道，拜登政府打算寻求从英国引渡维基解密组织的创始人朱利安·阿桑奇。
+2月12日大年初二，尊敬的战友们，你们听听这像不像文贵的语音，九指妖和龟头洋他们竟然敢造这样的假语音，他们到底是不是共产党？这和当年共产党对付文贵的所有方法都是一样的！这回九指妖大暴露啊…… February 12th, the second day of Chinese New Year，Dear follower fighters， can you tell if this is Miles’s voice? Nine-fingers witch and the turtle-head Yang dare to fabricate my voice. Are they not CCP? This is so much like those tricks that CCP pulled against me! This time is the exposé of the Nine-fingers witch….
 
-据该刊报道，美国司法部本周向伦敦一家法院递交了文件，质疑不能将阿桑奇引渡到美国方面的裁决。《纽约时报》指出，美国当局此前曾打算向英国法院提供显示美国监狱中囚犯受到人道待遇的材料。
 
-1月初，伦敦一家法院拒绝保释阿桑奇，法官认为，阿桑奇可能潜逃，而美国当局正试图从英国引渡他。此前，法院拒绝将阿桑奇引渡到美国，对拒绝的解释是，阿桑奇可能因自闭症和临床抑郁症而自杀。
 
-2019年5月，美国当局指控阿桑奇被判处175年监禁。维基解密的创始人阿桑奇被指控非法公布秘密消息来源人的名字，以及与前美国军事分析家布拉德利·曼宁合谋获取美国国防秘密文件。
+[【2021年2月13日】文贵先生盖特原文](https://gtv.org/getter/6027d9ad226e77590743902d)
 
-2019年4月，厄瓜多尔总统列宁·莫雷诺剥夺了阿桑奇的政治庇护，阿桑奇在厄瓜多尔驻伦敦大使馆被拘留。他自2012年以来一直在那里，以避免被引渡到瑞典，在那里他被指控性骚扰和强奸。阿桑奇本人否认了这些指控。
-
-参考链接：
-
-[https://www.rbc.ru/rbcfreenews/60274c6e9a7947847fe0f28d](https://www.rbc.ru/rbcfreenews/60274c6e9a7947847fe0f28d)
+**喜联盟Gnews编辑部**
 
 0
