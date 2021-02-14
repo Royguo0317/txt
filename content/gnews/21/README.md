@@ -1,63 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】逆权者们的情人节：爱火未燃
-` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/907334/)
+## 2/14/2021 财经快讯：欧洲最大证券交易中心易主，摩根大通或将进入比特币市场
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/907339/)
 
-搜集/编撰：天灭中共
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2021-02-14_235845.png)图片来源： https://www.ft.com/
+**1.摩根大通将在某时进入比特币市场**
 
-**「Valentine’s Day」**
+摩根大通联席总裁丹尼尔·平托（Daniel Pint）周五表示，摩根大通是否决定推出比特币服务，将取决于客户对比特币交易的需求。虽然目前的需求还不够强劲，不过平托对需求的进一步增长有信心，他表示，如果发展出一种资产类别，不同的资产管理公司和投资者将去使用它，那我们将不得不参与进来，相信在某个时候会达到这个需求。
 
-今日是情人节，是「Valentine’s Day」。
+[https://ishare.ifeng.com/c/s/v004wtvL2yVnvjtYWT—1zwBF052AzYwv70SRTtkPrtK21kDZk-\_GXXVxiXyJFDe6bENCVcLsypwBuLOdl1BdsXmNeA\_\_\_](https://ishare.ifeng.com/c/s/v004wtvL2yVnvjtYWT---1zwBF052AzYwv70SRTtkPrtK21kDZk-_GXXVxiXyJFDe6bENCVcLsypwBuLOdl1BdsXmNeA___)
 
-相传在西元三世纪的古罗马年代，当时罗马帝国的君主克劳迪乌斯（Claudius）二世是有名的暴君，而且好大喜功，为了巩固政权，他下令全国都不准举行结婚典礼，强迫所有适龄男子，必须加入军队作战。
+**2.欧洲最大证券交易中心易主：阿姆斯特丹取代伦敦**
 
-这个时候，有个叫 Valentine 的神父站了出来，他不忍心见到相爱的男女因为暴政而不能缔结，就秘密为这些年轻人主持婚礼。事情很快传到暴君那里，Valentine 神父随即被关入大牢，最后被送上绞架绞死。而 Valentine 去世的那一天，正是二月十四日。
+德新社伦敦2月11日报道，根据周四公布的最新数据，上月在阿姆斯特丹的股票交易量已超过在伦敦股票交易量，伦敦因英国脱欧失去了欧洲最大证券交易中心的地位。在去年12月31日英国脱离欧盟单一市场后，1月份，伦敦的日均交易金额降至86亿欧元。由于达成的脱欧后贸易协议中没有金融服务协议，这导致总价值近65亿欧元的股票交易离开伦敦，一夜之间转向欧洲其他市场。
 
-**「离爱」**
+[https://ishare.ifeng.com/c/s/v004V9IpxxMplAst81Cb0IZNIDzjncw2ZnfKYUuNqLUueVWx–6dsMx7cP8-dcEva2X7ewnRKmfdSxTCIUxuwidJwyA\_\_\_](https://ishare.ifeng.com/c/s/v004V9IpxxMplAst81Cb0IZNIDzjncw2ZnfKYUuNqLUueVWx--6dsMx7cP8-dcEva2X7ewnRKmfdSxTCIUxuwidJwyA___)
 
-**暴政之下的爱情好像总是那么艰难。**
+**3.字节跳动或将TikTok印度业务售予当地竞争对手Glance**
 
-中共管治下的香港，苛政猛于虎，勇敢追求民主自由的逆权者们或被送入监狱，或被迫流亡海外。他们的情人节或是隔着铁窗，或是隔着屏幕。
+据路透社2月13日报道，彭博援引知情人士称，字节跳动据称正寻求将TikTok的印度业务出售给当地竞争对手Glance。由日本软银集团发起的讨论是私下进行的，目前仍处于早期阶段，并且较为复杂。
 
-透过《苹果日报》表达心迹的抗争者阿宁说「监狱的高墙分不开他们的心，真心相爱，可以排除万难。」
+Glance公司在获得谷歌和现有投资者秘银资本（Mithril Capital） 1.45亿美元的投资后，进入了 “独角兽” 俱乐部。Glance除了拥有自己的锁屏内容产品外，还拥有并运营着印度短视频内容平台罗波索（Roposo）。Glance安卓智能手机的锁屏上以多种语言提供人工智能驱动的个性化内容，内容包括流行新闻、娱乐、体育、时尚和新闻等类别。
 
-抗争者Hayley说「一起走上街头，携手抗暴，一起走出理大，劫后余生，那一刻，她已决定托付终身。」
-![]()![](https://gnews.org/wp-content/uploads/2021/02/image001-14.jpg)（车公庙附近的隧道，抗争者写下新年寄语）（图片来源：PSHK）
-**「大爱」**
+[https://finance.sina.com.cn/chanjing/gsnews/2021-02-13/doc-ikftssap5651428.shtml?cref=cj](https://finance.sina.com.cn/chanjing/gsnews/2021-02-13/doc-ikftssap5651428.shtml?cref=cj)
 
-**爱情，可以是男女之间，相濡以沫的小爱，亦可以是连结人心，传递温暖的大爱。**
+**4.马克·扎克伯格说Facebook不得不在隐私战争中给苹果“造成痛苦”**
 
-前立法会议员邵家臻今日也在个人脸书上简单分享了 Valentine 的故事。他认为情人节的初衷就是「以爱情战胜暴政」。
+最近有报道称，Facebook首席执行官马克·扎克伯格告诉员工，在这两家硅谷巨头之间持续的隐私纠纷中，Facebook需要给苹果造成“痛苦”。
 
-长期关注在囚人士的邵家臻为之创立囚权组织「石墙花」，希望借情人节，「以爱情穿透监狱」，向在囚手足送花传达关爱。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/image003-3.jpg)（图片来源：邵家臻Facebook）
-为连结一众「不愿向极权低头」的黄色小商户，公民党副主席谭文豪和党友林瑞华早前转战饮食界，合伙经营「一日三餐」，颇受市民支持。
+布莱巴特新闻广泛报道了最新的科技巨头大战，Facebook和苹果就即将推出的苹果隐私保护功能展开了较量。据报道，脸书计划将苹果告上法庭，指控其iOS 14系统的隐私保护功能涉及反垄断。指控苹果“强迫应用程序开发者遵守苹果自己的应用程序不必遵守的App Store规则，滥用其在智能手机市场的权力。”
 
-今日在另一党友，油尖旺区议会副主席余德宝安排下，三人为海富苑海泰阁独居长者，送出近百份招牌鸡饭，希望长者在情人节亦能感受到温暖。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/image005-2.jpg)（图片来源：余德宝Facebook）
-**「战友评论：爱火未燃」**
+[https://www.breitbart.com/tech/2021/02/13/report-mark-zuckerberg-said-facebook-has-to-inflict-pain-on-apple-in-privacy-war/](https://www.breitbart.com/tech/2021/02/13/report-mark-zuckerberg-said-facebook-has-to-inflict-pain-on-apple-in-privacy-war/)
 
-小爱可以令互不相识的男女携手并肩，而点滴的小爱可筑起大爱，令更多互不相识的人团结并进。
+**5.澳大利亚立法者拒绝对谷歌的威胁视而不见**
 
-香港的社会气氛在政治挂帅之下，充满压抑，所幸，港人没有被怒火所惑，仍然记得人间最大的力量不是恨，而是爱。
+据美联社报道，澳大利亚议会将讨论强制谷歌和Facebook为其内容向新闻出版商付费，此前参议院委员会于周五建议不修改迫使科技巨头向出版商支付费用的法律草案。自去年12月在国会提出该法案以来，参议院经济立法委员会一直在仔细审查该法案。
 
-昨日（13日）是农历正月初二，亦是车公诞日，按照惯例，会祈请车公为来年香港的运程卜卦，今年抽中第45签：「积薪历火非无事，识者能知火未燃。」
+[https://www.breitbart.com/tech/2021/02/12/australian-lawmakers-refuse-to-blink-after-google-threats/](https://www.breitbart.com/tech/2021/02/12/australian-lawmakers-refuse-to-blink-after-google-threats/)
 
-笔者不懂得解签，但相信车公一向灵验，而今年这只签里面提及的「火」，前者是指中共点燃的「怒火」，后者则是港人燃起的「爱火」。意在警示当权者：中共点燃的这把怒火，不会被暴政所压制，反而，令港人学会化恨为爱，更加团结一致，到时再燃起的这把「火」会令黑暗无所遁形。
+**6.华为将汇丰告上法庭，试图阻止引渡**
 
-以上观点仅代表笔者
+华为公司最近大动作不断。当地时间12日，据英国广播公司报道，中共国华为公司首席财务官孟晚舟的律师将向伦敦高等法院提出诉讼申请，以获取汇丰银行包括账簿在内的关键文件。
 
-「资料来源」:
+据报道，华为此举意在证明，美方指控孟晚舟“隐瞒”华为与香港星通技术有限公司关联，误导汇丰银行继续向华为提供服务的情况不属实，从而阻止孟晚舟被从加拿大引渡到美国。
 
-[苹果日报：抗争者的情人节︱相隔铁窗逾年 毕业后不做长工只为多见男友几面](https://hk.appledaily.com/local/20210214/GJCTWG5N2FGPNNRRF3OY4A7XRY/)
+[https://www.sohu.com/a/450625090\_465270?scm=1004.759016887454728192.0.0.0&spm=smpc.ch15.top-news-1.1.1613257697586fAlpM3W](https://www.sohu.com/a/450625090_465270?scm=1004.759016887454728192.0.0.0&amp;spm=smpc.ch15.top-news-1.1.1613257697586fAlpM3W)
 
-[苹果日报：抗争者的情人节︱理大外牵手逃亡定终身 十年后再可相拥亦难舍弃](https://hk.appledaily.com/local/20210214/S75YZZUVRFFP3GDVKKWF6HOCIM/)
+**7.油价最新调整消息，春节后或将继续上涨**
 
-[Andy Yu 余德宝-Facebook帖文](https://www.facebook.com/616177075066304/posts/4495219547162018/)
+上周油价继续上涨之后，年前的油价调整定格在连续6次上涨，这期间共上调油价超过870元/吨，按照升来算就是年前油价连涨了0.71元/升-0.85元/升。标号越高涨的越多，至少都上涨超过7毛/升。新一轮油价调整将在年后的2月18日24时进行，目前预计涨幅已经达到105元/吨(0.08元/升-0.10元/升)，而且目前国际油价还在涨，恐怕涨幅会继续增加。
 
-[邵家臻-Facebook:帖文](https://www.facebook.com/148053572047302/posts/1607352272784084/)
+[http://www.afinance.cn/new/gncj/202102/2540270.html](http://www.afinance.cn/new/gncj/202102/2540270.html)
 
-覆核： 卡西欧 /上传： 文粤
+By 【金融组-Tracy】
+
+素材搜集: Totoro、文罡
+
+校对: 小蚂蚁在行动
 
 0
