@@ -1,17 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年2月13日 文贵先生盖特 7
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/907067/)
+## 【精华版粤语配音】班农战斗室 709期 英国政府吊销了中共大外宣媒体CGTN的广播执照
+` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/907125/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+制作团队：【秘密翻译组】【喜马拉雅大使馆-粤语组】coco22、wikimbao、NancyTT、Monica
 
-2月13日：今天是个好日子…… 川普总统弹劾案失败。川普被认定无罪。这场企图彻底整垮川普的闹剧该到此结束了吧。 [https://www.nbcnews.com/politics/donald-trump/trump-acquitted-impeachment-trial-7-gop-senators-vote-democrats-convict-n1257876](https://www.nbcnews.com/politics/donald-trump/trump-acquitted-impeachment-trial-7-gop-senators-vote-democrats-convict-n1257876)
+概要：
 
+1.中共依赖CGTN、中国日报、环球时报等大外宣媒体来攻击川普总统、西方世界和民主国家，现在英国正在予以反击
 
+2.拜登政府应该把中共视为敌人，而不是危险的竞争对手，因为它犯下了种族灭绝罪和反人类罪
 
-[【2021年2月13日】文贵先生盖特原文](https://gtv.org/getter/6028452b226e77590743ac7a)
-
-**喜联盟Gnews编辑部**
+审核：\上传：文粤
 
 0
