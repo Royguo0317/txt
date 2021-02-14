@@ -1,66 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵看春晚XVIII连线铁血团2让联盟委员会总部在新西兰根深叶茂
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/906648/)
+## CDC数据显示：中共病毒mRNA疫苗已致死653人
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/906591/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/封面-96.jpg)
-编辑整理：
+加拿大多伦多枫叶农场 文永
+![]()![](https://gnews.org/wp-content/uploads/2021/02/forbes.com1_.jpg)*图片来源：Forbes.com*
+据健康影响新闻（Health Impact News）网站2月12日报道[\[1\]](https://healthimpactnews.com/2021/cdc-653-deaths-now-recorded-following-experimental-mrna-covid-injections-with-12697-reported-injuries/)，美国疾病防疫中心（CDC）近日在疫苗不良反应报告系统（VAERS）公布的数据显示，截止至2021年2月4日，使用辉瑞和莫得纳（Moderna）公司的中共病毒疫苗造成的不良反应病例共有12697人，致死653人。除此之外，接种疫苗还造成急诊2792例，永久性致残208例，住院1382例。数据显示，72%的疫苗致死事故发生于65岁以上的老人。
 
-奥克兰伊甸农场：柒号G币
+该报道还指出，由于疫苗不良反应是采用个人自愿而非强制性的报告机制，所以VAERS系统的数据应该不会包含实际全部不良反应的数据信息，因为很多人可能会选择不报告。而根据2011年美国卫生及公共服务部HHS报告[\[2\]](https://www.nvic.org/CMSTemplates/NVIC/Pdf/FDA/ahrq-vaers-report-2011.pdf)显示，公众对疫苗不良反应的报告率只有不到1%，也就是说，实际不良反应的数字可能比上面给出的大100倍还多。
 
-法国巴黎七星农场：枫丹白露
+该网站在前几天报道了威斯康星州一名医生在接种疫苗后不幸流产的事件[\[3\]](https://healthimpactnews.com/2021/wisconsin-resident-doctor-has-miscarriage-3-days-after-being-injected-with-experimental-covid-mrna-shot/)。该报道的作者当时在VAERS数据库查找胎儿死亡的案例，当时发现了3例。而这次在CDC更新数据以后，胎儿死亡的案例依然只有3例，也就是说，这位威斯康星州的医生的案例并没有记录在内。也许她认为流产和中共病毒疫苗没有直接关系。
 
-郭文贵先生在[辛丑年文贵看春晚](https://gtv.org/video/id=60252a55be64150df850eb09)对庚子灭共年爆料革命的成就进行了回顾，把辛丑年定为以毒灭共年和以钱灭共年，与各位战友进行连线，在三小时四十三分钟的时间内全球战友们与郭文贵先生共同辞旧岁迎新春，本系列将根据本届[辛丑年文贵看春晚](https://gtv.org/video/id=60252a55be64150df850eb09)的不同内容逐一上传。
+对于这些报道的不良反应事件，官方和媒体的口径一致是：这些反应不是注射疫苗造成的。CDC的官方说法也是如此，估计如果让CDC说了算的话，它都会把VAERS系统停掉。实际上CDC到现在都没有“疫苗致死”的类别，也从没有开具过“疫苗致死”的死亡证明。
 
-以下为第十八部分——连线铁血团2让联盟委员会总部在新西兰根深叶茂
+另外，该网站在1月6日报道了一名医生在接种疫苗后不久，不幸患上一种罕见的血液疾病并死亡的事件[\[4\]](https://healthimpactnews.com/2021/very-healthy-56-year-old-miami-obstetrician-dies-after-being-injected-with-the-experimental-pfizer-covid-vaccine/)。《纽约时报》前几天报道了该事件，并指出CDC发现数据库中另外有36例类似情况，目前正在介入调查。《纽约时报》用了2000字的篇幅报道该事件，最后的结论是这些症状和接种疫苗无关，因为正常人患该血液疾病的概率大概也是这个数字。如果真的没有关系，那么为什么该报会花2000字的大篇幅来报道这个导致罕见的疾病案例，而却对很多更为常见的不良反应置之不理呢？
 
-据[辛丑年文贵看春晚](https://gtv.org/video/id=60252a55be64150df850eb09)时间点3：25：20——
+在社交媒体上至少能找到有三例接种疫苗以后发生肌肉抽搐和痉挛的视频（这些视频目前已经被Facebook、YouTube等网站删除），在这些视频公布以后，有很多人联系视频中的受害者，说自己也有同样的症状。而在VAERS数据库截至2月4日的数据中，有158例接种疫苗后产生肌肉痉挛和抽搐的症状。总共造成10例死亡。而相比之下，上面报道的罕见血液疾病造成死亡仅有一例。
 
-郭文贵先生：那么今年在此时此刻，我们现在时间还有时间，我们将特别邀请一下老班长和草根小哥、大卫兄弟、长岛哥代表了各农场，你们分别自己先发一下言。老班长你你可以往下说，我就不在中间打断你们，你们接着说吧，到剩下时间我们来倒数时间，在美国时间还没有跨年呢。在中国已经跨了年了，谢谢了班长。
+那为什么CDC要来调查这种罕见的血液疾病，而对肌肉抽搐等不良反应置之不理呢？该报道的作者认为，有可能是因为罕见血液疾病可以帮助制药公司开发新型药物，从而进一步带来更大的收益。
 
-老班长：谢谢七哥，今天我听说七哥会给我们发一些很尖锐的问题，我很紧张，那么，
+作者指出，医药公司把患者看作是收入来源，而实现收益的最大化，这已经不再是所谓的阴谋论了。实际上华尔街的投资报告也公开承认这一点[\[5\]](https://healthimpactnews.com/2018/investment-report-reveals-medical-cures-not-profitable-for-big-pharma-sick-people-needed-to-sustain-drug-sales/)。
 
-郭先生：我得问你个问题，老班长，我先问，你知道你有咱们爆料革命双胞胎闺女啊，这是我们的战友，**你不能在家里边儿老以当爹的身份，你不是任何战友的爹，你是，你这是平等的战友，你别老欺负两个战友啊，她歌唱的那么好，而且影响巨大，特别你在新西兰做出的贡献。**我们的这个喜马拉雅联盟委员会将在新西兰驻扎，那么就很多人在问一个问题啊，你怎么认为我们新中国联邦未来在新西兰的发展和横跨澳大利亚澳洲的发展，你可以给简单给大家说一下，谢谢老班长。
+近几年医药开发的方向就是针对罕见疾病开发高价药物，而不是针对常见疾病开发廉价药物。而很多有效治疗常见疾病的药物已经过了专利期，所以利润率也很低。这也是为什么对于中共病毒感染治愈率接近100%的现有廉价药物，比如羟氯喹和伊维菌素等，被打压的原因。
 
-老班长：谢谢文贵先生，首先说我要感谢文贵先生对我的信任，可以说过去的这四年多来，尤其是过去这一年多，一年以来，特别是农场委员会成立以来，我得到了七哥的大力的支持，也得到了所有的农场的这些农场的负责人和我们广大战友的支持，现在农场联盟委员会被把总部设在了新西兰，这是对我们的信任，也是对我们的一个最大最大的考验。新西兰这个地方，地处地球的最南端，可以说在地理位置上，它是相当的偏僻。那么因为它的偏僻，使得我们有了一个独特的环境，他有个比较安全的政治环境，也比较好的自然环境。那么**未来的新中国联邦是全球布局，我们把总部设在新西兰，我认为它是一个整个全球布局的一个重要的一个部分。**她是在这里，我是设想她未来在这个几年中，**我想建设成一个实体的，以农场实体的有接待能力的俱乐部，让我们的这些战友，能够在这里欢聚、能够在这里开会，甚至一些机构就直接设在新西兰。同时我们把这里建设成一个我们的新中国联邦联盟委员会的一个行政总部，我们未来的很多法律问题也是在这里设立机构。**新西兰是英联邦的一个国家，它是英联邦体系也是海洋法系的一个重要的一个实践的国家，有比较完整的法律制度，我相信新中国联邦在这里的建设能够有比较好的一个政治的人文环境。我们跟当地的政党也在积极的沟通。我相信在未来经过我们的一番努力之后，我们能够，我们有能力、我们有信心达到文贵先生达到全世界爆料革命战友对我们的寄托，谢谢！
+当然CDC介入调查的真正原因，我们不得而知。但是该报道的作者认为，要想看清医药公司和它们控制的媒体背后的真相，必须要明白一点：对于医药公司来说，只有病人才能带来利润，而健康人和解药对它们来说毫无益处。这是医药公司的商业模式，也是它们赚钱的根本。
 
-郭先生：谢谢老班长，谢谢！非常感谢！我们现在还有时间，我们接下来可以跟这个……下个是谁呀？长岛哥，我们给长岛哥联一下，刚才老班长我们因为时间的问题，本来有好几个战友托付要问的问题，我们找个时间再问一下，这个你是一个好父亲，你是一个好先生，你是一个我们的好战友，你是大家这个公认的一个我们的喜马拉雅联盟的好主席，你公平公正，还有坚强的毅力啊，而且有强大的组织能力，希望在2021年以毒灭共！以钱灭共的这个新的一年里，辛丑年创造出更多的成绩，能更多地服务于喜马拉雅农场的各位战友们。
+小结：
+爆料革命多次提醒广大同胞，目前仓促生产的中共病毒疫苗，只是医药公司用来赚钱的。闫丽梦博士也多次强调，在没有灭共以及找到病毒真正来源之前，仓促开发出来的疫苗是非常危险的。从CDC的数据来看，疫苗造成的灾难不可小视，希望大家一定要珍惜生命，远离中共病毒和早期疫苗！
 
-接上文——
+[原文链接](https://medicalkidnap.com/2021/02/12/cdc-653-deaths-now-recorded-following-experimental-mrna-covid-injections-with-12697-reported-injuries/)
+校对 文锦
+发布 云起时
 
-[**文贵看春晚I****送走庚子霹雳灭共年迎来辛丑以毒灭共以钱灭共年**](https://gnews.org/zh-hans/903289/)
+该文是转载以下链接：
+[\[1\] CDC: 653 Deaths Now Recorded Following Experimental mRNA COVID Injections with 12,697 Reported Injuries](https://healthimpactnews.com/2021/cdc-653-deaths-now-recorded-following-experimental-mrna-covid-injections-with-12697-reported-injuries/)
 
-[**文贵看春晚II****联线简体中文战友谈中共经济危机四伏/G-News****病毒专题**](https://gnews.org/zh-hans/903414/)
+文中提到的其他引文：
+[\[2\] Electronic Support for Public Health–Vaccine Adverse Event Reporting System (ESP:VAERS)](https://www.nvic.org/CMSTemplates/NVIC/Pdf/FDA/ahrq-vaers-report-2011.pdf)
 
-[**文贵看春晚III****联线七星战友:****全世界已没有选择必定火战灭共**](https://gnews.org/zh-hans/903444/)
+[\[3\] Wisconsin Resident Doctor has Miscarriage 3 Days After Being Injected with Experimental COVID mRNA Shot](https://healthimpactnews.com/2021/wisconsin-resident-doctor-has-miscarriage-3-days-after-being-injected-with-experimental-covid-mrna-shot/)
 
-[文贵看春晚IV连线班农先生，99%的兄弟姐妹希望川普回归白宫](https://gnews.org/zh-hans/905066/)
+[\[4\] “Very Healthy 56-Year-Old” Miami Obstetrician Dies after Being Injected with the Experimental Pfizer COVID Vaccine](https://healthimpactnews.com/2021/very-healthy-56-year-old-miami-obstetrician-dies-after-being-injected-with-the-experimental-pfizer-covid-vaccine/)
 
-[文贵看春晚V连线闫博士1是否有神秘力量在主宰和安排着闫博士](https://gnews.org/zh-hans/905143/)
-
-[文贵看春晚VI连线闫博士2,病毒已被打磨已走向造成伤害的方向](https://gnews.org/zh-hans/905198/)
-
-[文贵看春晚VII连线闫博士3,期待回到那块土地那是我们的家乡](https://gnews.org/zh-hans/905225/)
-
-[文贵看春晚VIII连线闫博士4,一个政体把人逼成这样无人能幸免](https://gnews.org/zh-hans/905251/)
-
-[文贵看春晚IX连线路德1,路德访谈和闫博士已开启以毒灭共新时代](https://gnews.org/zh-hans/905267/)
-
-[文贵看春晚X连线路德2最关键的问题是有无信仰信不信你能灭共](https://gnews.org/zh-hans/905289/)
-
-[文贵看春晚XI连线路德3健身意味着锻炼意志延长XO时间](https://gnews.org/zh-hans/905305/)
-
-[文贵看春晚XII连线路德4路德2021年有了吉祥新家未来会拥有更多](https://gnews.org/zh-hans/905317/)
-
-[文贵看春晚XIII连线郝叶伉俪1他们的挺身而出展示了能力和信仰](https://gnews.org/zh-hans/905666/)
-
-[文贵看春晚XIV连线郝叶伉俪2运动对XO的能力到底有啥影响啊](https://gnews.org/zh-hans/905719/)
-
-[文贵看春晚XV连线郝叶伉俪3不再畏惧所有威胁一切都是向死而生](https://gnews.org/zh-hans/905848/)
-
-[文贵看春晚XVI连线郝叶伉俪4运动有真正的较量和竞争带来的愉悦](https://gnews.org/zh-hans/906559/)
-
-[文贵看春晚XVII连线铁血团1一年来天地大变打得共产党满地找牙](https://gnews.org/zh-hans/906615/)** **
+[\[5\] Investment Report Reveals Medical Cures not Profitable for Big Pharma – Sick People Needed to Sustain Drug Sales](https://healthimpactnews.com/2018/investment-report-reveals-medical-cures-not-profitable-for-big-pharma-sick-people-needed-to-sustain-drug-sales/)
 
 0
