@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 哈佛肖伦斯坦中心坐实与中共利益关联
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/906689/)
+## 柬埔寨暂停与中共的联合年度军事演习
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/906698/)
 
-俄罗斯莫斯科喀秋莎农场    银河
+俄罗斯莫斯科喀秋莎农场   银河
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-14_06-56-25.jpg)[elenaruvel.com](https://elenaruvel.com/obrazovanie-v-ssha-stipendii/)
-《国家脉搏》2月13日披露，最近一份试图诋毁闫丽梦博士撰写的COVID-19（中共病毒）研究报告的作者——哈佛大学肖伦斯坦中心(Shorenstein Center)及其研究主任肖伦斯坦，都与中共有着长期、广泛的联系。这份诋毁报告依赖于中共政府和中共军方提供的科学研究。
+编辑   水星    上传    银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-14_07-05-33.jpg)[khmertimeskh.com](https://www.khmertimeskh.com/50600946/hun-manet-leads-thousands-in-first-military-exercise-as-commander/)
+《美国之音》2月11日报道，柬埔寨政府已决定暂停将于下月与中共进行的为期两周的军事演习，理由是中共病毒疫情期间需要削减开支。反对派声称，柬埔寨这样做是为了避免激怒美国的新政府。
 
-闫博士撰写的研究报告得出的结论是，COVID-19（中共病毒）是一种源自中共的人造病毒。而肖伦斯坦中心发布的《媒体操纵案例汇编》则称，闫博士的研究是一篇“伪装成科学的误导性文章，错误地宣称新型冠状病毒是中共实验室制造的”。包括中共的商业伙伴《华盛顿邮报》在内的媒体再对该报告进行了放大宣传。《华盛顿邮报》的记者和编辑曾获免费前往中共国的机会作为“有利报道”的回报。
+柬埔寨国家副总理兼国防大臣狄班(Tea Banh)上周说到，由于2020年的严重洪灾摧毁了国内基础设施和食品供应，第四次与中共的联合年度军事演习将被取消。
 
-《华盛顿邮报》从未报道过肖伦斯坦中心几十年来与中共的联系。美国教育部(DOE)曾对这所常青藤联盟大学进行过调查，原因是这所大学未能披露“外国捐赠者(主要是中共)捐赠的数亿美元礼物和合同”。
+自2020年1月以来，柬埔寨共出现476例中共病毒感染病例，无一例死亡。中共承诺向柬埔寨提供100万剂国药控股的接种疫苗。尽管人们普遍担心中共士兵会将病毒带入该国，狄班却无视此担忧，去年照常举行了演习。
 
-肖伦斯坦中心有多位研究员为中共党员，如清华大学全球新闻学院主任董志军(Steven Dong)，中共外交部公共外交顾问委员会成员、曾任中共官媒新华社高级编辑的清华大学教授李锡光，以及曾任中共国传媒大学国家广播电视研究中心主任的胡正荣，在哈佛任职之前，胡的个人网站显示，他曾获得中共教育部颁发的“跨世纪优秀人才”奖和“中（共）国国务院颁发的国家政府特别奖”。
+对于今年暂停军演的决策，有社会发展研究人员认为，柬埔寨决定暂停演习是“早该做出的”，可避免该国卷入任何冲突。
 
-更重要的是，肖伦斯坦中心已经从与中共有关和拥有的公司收取了数百万美元，并发表了受中共官方媒体推广的研究报告。《华盛顿邮报》片面报道了肖伦斯坦的言论来诋毁闫丽梦博士的科研报告，却没有提及他们与中共的广泛联系。
-
-中共收买、腐蚀了这些所谓科学界和媒体界的“大佬”，让他们利用自己的影响力来为中共背书。然而，如闫丽梦博士所说，欢迎任何有质疑的人或机构来做辩论，详细的科学报告证实中共病毒源自实验室，是中共人为制造的生物武器。在事实面前，谎言永远不堪一击。
+反对党柬埔寨救国党(Cambodia National Rescue Party)副主席杨才英(Eng Chhai Eang)驳斥了狄班应对洪灾和疫情经费不足而取消演习的说法，称在前几年，“军事演习的所有费用都是由中共支付的。”他认为今年暂停演习是因为美国总统拜登刚刚就职，在华盛顿的外交政策变得更加明确之前，柬埔寨需要表现得中立，而不是向中共倾斜。
 
 参考链接：
 
-[https://thenationalpulse.com/exclusive/harvard-shorenstein-center-ccp-ties/](https://thenationalpulse.com/exclusive/harvard-shorenstein-center-ccp-ties/)
+[https://www.voanews.com/east-asia-pacific/cambodia-suspends-annual-military-exercises-china](https://www.voanews.com/east-asia-pacific/cambodia-suspends-annual-military-exercises-china)
 
 0
