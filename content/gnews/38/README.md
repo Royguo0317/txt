@@ -1,51 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香草播报：【热点播报】白宫对WHO新冠病毒报告“深切关注”，要求中国提供早期数据
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/906164/)
+## 【灭共头条】中共以国安法为名继续逮捕香港异议人士
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/906425/)
 
-作者：纽约香草山写作组 Wilson
+作者：Ermat【㊙️翻  Gnews原创组】
+责编：心声
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Picture1-65.jpg)图片来源：hongkongfp.com
+中共在对台湾文攻武吓的同时，仍不忘记已是囊中之物的香港。近日中共在香港不仅大规模搜捕非建制派人士，斩断议会选举之路，对香港儿童进行洗脑式教育，扼杀民主思想，而且加紧了对香港异议人士的迫害。
 
+香港自由报（Hong Kong Free Press）2月11日报道了周永康发布在脸书上的一段内容：“2月10日我因要延长保释期到警局报到时，警方以暴动罪逮捕了我。”现年24岁的周永康，在2017年就是雨伞革命”、“争取真普选”运动的领袖之一。
 
+在1月6日，警方根据北京实施的《港区国安法》抓捕了55名民主人士，他就是其中之一。被抓后这些人士几乎都被彻夜关押询问，最后以半年内不得离港为条件陆续获得保释。周永康获释后在脸书上写道：”极权的镇压只会越来越严重……但这个极权永远无法逮捕所有争取民主自由的人，希望我们都能平安度过这个白色恐怖的时代。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+而另一则是关于香港电台名嘴尹耀星的报道。2月10日香港自由报（Hong Kong Free Press）报出, 香港电台主持人尹耀星被指控在互联网节目中煽动对中国政府的仇恨和蔑视，违反了香港的煽动法。他在2月10日在西九龙裁判法院被拒绝保释申请，继续关押。尹耀星被控的罪行与去年8月至10月在一个互联网节目中主持和发言有关, 但当局没有详细说明这位电台主持人到底说了什么被认为是 “煽动性的”。
 
+以上两案反映了香港司法已名存实亡，香港的媒体也完全被“打压、管制、操控”。自从国安法实施以来，没有人知道红线在哪里，解释权完全在于港政府、港警及背后的中共反人类与种族大屠杀犯罪组织。人们的言语、行为稍有不慎就会有牢狱之灾，已有大批民众逃离香港。如今香港这颗璀璨的珍珠已迅速失去光彩，走向”衰败、没落”，而背后这一切的始作俑者中共也在癫狂之中末路狂奔、走向灭亡。
 
+**参考链接：**
 
-[路透社](https://www.reuters.com/article/us-health-coronavirus-usa-idUSKBN2AD0FX)2021年2月13日报道，美国政府今天呼吁中共提供新冠病毒爆发初期的数据，并表示对WHO新冠病毒调查报告结果中的传播方式“深表关切”。（这句话中的“传播方式”，笔者认为，这是白宫对WHO 调查团团长彼得·本·安巴雷克9日在记者会上称“病毒从武汉病毒所泄漏的可能性极低”表示不满：调查报告还没有出来，他的结论先来了，这是不遵守口径一致规矩的“传播方式”。）
-
-![]()![](https://gnews.org/wp-content/uploads/2021/02/98.jpg)
-
-白宫国家安全顾问杰克·沙利文在一份声明中表示，该报告必须独立，不受“中（共）国政府的改变”。这与前总统川普相呼应，川普也曾因此问题退出世卫组织。
-
-WHO总干事泰德罗斯·阿德哈诺姆·盖布雷耶苏斯周五表示，关于新冠病毒起源的所有假设仍然悬而未决。此前，华盛顿表示希望审查WHO中国访问团的数据。
-
-WHO代表团在中（共）国花了四周时间调查新冠病毒爆发的起源。其团长本周表示，他没有进一步研究病毒是否从实验室逃脱的问题，他认为这不太可能。川普政府曾表示，他怀疑该病毒可能从中（共）国实验室逃脱，但中共强烈否认。
-
-据领导WHO武汉调查的人员称，中共拒绝向调查疫情起源的团队提供早期新冠病毒病例的原始数据，这可能会使了解疫情是如何开始的调查复杂化。
-
-参与WHO武汉调查的澳大利亚传染病专家多米尼克·德怀尔说，该小组要求中（共）国提供在2019年12月武汉市疫情爆发初期发现的174例病例以及其他病例的原始患者数据，但只得到了摘要。
-
-沙利文说，这份调查报告必须独立，专家调查结果不受中（共）国政府干预或修改。中（共）国必须从疫情爆发的最初几天提供数据。
-
-目前中（共）国驻美大使馆或WHO没有立即发表评论。
-
-毫不夸张的说，当前全世界最大的事就是病毒溯源。拜登和他的内阁成员非常清楚，如果他们帮助中共掩盖病毒来源真相，不仅引来众怒而失去执政合法性，还会成为千古罪人。相反，如果他们顺应时势，抓住这一次通过病毒溯源消灭中共的机会，他们仍然可以成为一代天骄。
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+1. [Hong Kong radio host ‘Giggs’ denied bail ahead of trial for allegedly ‘seditious’ broadcast](https://hongkongfp.com/2021/02/10/hong-kong-radio-host-giggs-denied-bail-ahead-of-trial-for-allegedly-seditious-broadcast/)
+2. [Hong Kong activist accused of subversion may face rioting charge over 2019 storming of legislature](https://hongkongfp.com/2021/02/11/hong-kong-activist-accused-of-subversion-may-face-rioting-charge-over-2019-storming-of-legislature/)
 
 
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
+（本文仅代表作者个人观点）
 
 0

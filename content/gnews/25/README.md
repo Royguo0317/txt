@@ -1,55 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 超级士兵！大师种族！ &#8211; 中共想要做什么？
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/906554/)
+## CDC数据显示：中共病毒mRNA疫苗已致死653人
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/906591/)
 
-##### 翻译报道：Daisy MD
+加拿大多伦多枫叶农场 文永
+![]()![](https://gnews.org/wp-content/uploads/2021/02/forbes.com1_.jpg)*图片来源：Forbes.com*
+据健康影响新闻（Health Impact News）网站2月12日报道[\[1\]](https://healthimpactnews.com/2021/cdc-653-deaths-now-recorded-following-experimental-mrna-covid-injections-with-12697-reported-injuries/)，美国疾病防疫中心（CDC）近日在疫苗不良反应报告系统（VAERS）公布的数据显示，截止至2021年2月4日，使用辉瑞和莫得纳（Moderna）公司的中共病毒疫苗造成的不良反应病例共有12697人，致死653人。除此之外，接种疫苗还造成急诊2792例，永久性致残208例，住院1382例。数据显示，72%的疫苗致死事故发生于65岁以上的老人。
 
-##### 责编：白夜
+该报道还指出，由于疫苗不良反应是采用个人自愿而非强制性的报告机制，所以VAERS系统的数据应该不会包含实际全部不良反应的数据信息，因为很多人可能会选择不报告。而根据2011年美国卫生及公共服务部HHS报告[\[2\]](https://www.nvic.org/CMSTemplates/NVIC/Pdf/FDA/ahrq-vaers-report-2011.pdf)显示，公众对疫苗不良反应的报告率只有不到1%，也就是说，实际不良反应的数字可能比上面给出的大100倍还多。
 
-本文作者Gordon G. Chang是《中共即将崩溃》的作者，盖茨通研究所特聘资深研究员，及其顾问委员会成员。文章称：
+该网站在前几天报道了威斯康星州一名医生在接种疫苗后不幸流产的事件[\[3\]](https://healthimpactnews.com/2021/wisconsin-resident-doctor-has-miscarriage-3-days-after-being-injected-with-experimental-covid-mrna-shot/)。该报道的作者当时在VAERS数据库查找胎儿死亡的案例，当时发现了3例。而这次在CDC更新数据以后，胎儿死亡的案例依然只有3例，也就是说，这位威斯康星州的医生的案例并没有记录在内。也许她认为流产和中共病毒疫苗没有直接关系。
 
-前国家情报总监约翰·拉特克利夫（John Ratcliffe）于去年12月3日在《华尔街日报》(Wall Street Journal)专栏发文“中共是头号国家安全威胁吗?” 文中指出中共在人民解放军中进行人体实验， 企图增强士兵的生物功能。深圳的贺建奎因其危险和不道德的工作而引起国际骚动后，因“非法进行人类胚胎基因编辑”而被罚款和监禁，这意味着什么？
+对于这些报道的不良反应事件，官方和媒体的口径一致是：这些反应不是注射疫苗造成的。CDC的官方说法也是如此，估计如果让CDC说了算的话，它都会把VAERS系统停掉。实际上CDC到现在都没有“疫苗致死”的类别，也从没有开具过“疫苗致死”的死亡证明。
 
-布兰登·韦歇特(Brandon Weichert)在2021年2月接受盖茨通研究所(Gatestone Institute)的采访中表示：在这些科学进展中最令人不安的是，中共与美国和其他西方先进国家的关系。经由这些关系，中共已经获得了CRISPR基因编辑以及其他的先进基因和生物技术。
+另外，该网站在1月6日报道了一名医生在接种疫苗后不久，不幸患上一种罕见的血液疾病并死亡的事件[\[4\]](https://healthimpactnews.com/2021/very-healthy-56-year-old-miami-obstetrician-dies-after-being-injected-with-the-experimental-pfizer-covid-vaccine/)。《纽约时报》前几天报道了该事件，并指出CDC发现数据库中另外有36例类似情况，目前正在介入调查。《纽约时报》用了2000字的篇幅报道该事件，最后的结论是这些症状和接种疫苗无关，因为正常人患该血液疾病的概率大概也是这个数字。如果真的没有关系，那么为什么该报会花2000字的大篇幅来报道这个导致罕见的疾病案例，而却对很多更为常见的不良反应置之不理呢？
 
-中共的所有这些举动都是为了获得“生物优势”。正如拉特克利夫（Ratcliffe）指出的那样，“北京为追求权力完全没有道德界限”。实验唤起了人们对纳粹第三帝国创建“大师种族” (master race)优生计划的记忆。
+在社交媒体上至少能找到有三例接种疫苗以后发生肌肉抽搐和痉挛的视频（这些视频目前已经被Facebook、YouTube等网站删除），在这些视频公布以后，有很多人联系视频中的受害者，说自己也有同样的症状。而在VAERS数据库截至2月4日的数据中，有158例接种疫苗后产生肌肉痉挛和抽搐的症状。总共造成10例死亡。而相比之下，上面报道的罕见血液疾病造成死亡仅有一例。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-25.png)[中共人民解放军士兵于2019年10月1日在中共北京游行](https://news.ltn.com.tw/news/world/breakingnews/2932474)
+那为什么CDC要来调查这种罕见的血液疾病，而对肌肉抽搐等不良反应置之不理呢？该报道的作者认为，有可能是因为罕见血液疾病可以帮助制药公司开发新型药物，从而进一步带来更大的收益。
 
-中共政权没有道德或品格，不受法律约束，也没有束缚感。随着生物技术的迅速武器化，它确实拥有了一种技术，可以启动一种全新的，遗传改良的，踢着正步向前行的人类。
+作者指出，医药公司把患者看作是收入来源，而实现收益的最大化，这已经不再是所谓的阴谋论了。实际上华尔街的投资报告也公开承认这一点[\[5\]](https://healthimpactnews.com/2018/investment-report-reveals-medical-cures-not-profitable-for-big-pharma-sick-people-needed-to-sustain-drug-sales/)。
 
-国营昆明动物研究所的中共遗传学家苏兵最近将人类控制大脑发育的MCPH1基因植入到猴子体内。使低等灵长类动物的智力可以更像人类。苏的下一个实验是在猴子中植入直接与人类智力有关的SRGAP2C基因和与语言技能相关的FOXP2基因。
+近几年医药开发的方向就是针对罕见疾病开发高价药物，而不是针对常见疾病开发廉价药物。而很多有效治疗常见疾病的药物已经过了专利期，所以利润率也很低。这也是为什么对于中共病毒感染治愈率接近100%的现有廉价药物，比如羟氯喹和伊维菌素等，被打压的原因。
 
-在中共没有人看过《人猿星球》吗？也许正是因为他们看过了。 《韦氏报告》（The Weichert Report）的布兰登·韦彻（Brandon Weichert）在《美国伟大》(American Greatness)网站上发表的一篇文章中写道：“中共的生物技术发展正在朝着一个恐怖的方向发展。”在一个野心勃勃的共产主义社会中，研究人员正在追求古怪的科学。当您混合猪和猴子的DNA时会发生什么？中共实验人员可以告诉您。如何在动物体内生长类人器官呢？是的，这事他们也做了。
+当然CDC介入调查的真正原因，我们不得而知。但是该报道的作者认为，要想看清医药公司和它们控制的媒体背后的真相，必须要明白一点：对于医药公司来说，只有病人才能带来利润，而健康人和解药对它们来说毫无益处。这是医药公司的商业模式，也是它们赚钱的根本。
 
-而且，北京可能已经在制造“超级士兵”。国家情报局局长约翰·拉特克利夫（John Ratcliffe）于12月3日在《华尔街日报》（Wall Street Journal）上发表题为“中共是国家安全威胁第一吗？”的评论。文中表示目前尚不清楚中共军事研究人员已经走到了什么地步，但是可以确定的是，他们提倡使用CRISPR基因编辑工具来增强人类能力，而共产党中央军事委员会“正在支持增强人类性能和’新概念’生物技术的研究”。
+小结：
+爆料革命多次提醒广大同胞，目前仓促生产的中共病毒疫苗，只是医药公司用来赚钱的。闫丽梦博士也多次强调，在没有灭共以及找到病毒真正来源之前，仓促开发出来的疫苗是非常危险的。从CDC的数据来看，疫苗造成的灾难不可小视，希望大家一定要珍惜生命，远离中共病毒和早期疫苗！
 
-解放军全力以赴地进行人类基因编辑。正如分析家艾尔莎·卡尼亚（Elsa Kania）和威尔逊·沃恩·迪克（Wilson VornDick）的报告所述，“在深具影响力的机构里许多解放军学者和科学家都在此议题上反复提出类似的论述。”
+[原文链接](https://medicalkidnap.com/2021/02/12/cdc-653-deaths-now-recorded-following-experimental-mrna-covid-injections-with-12697-reported-injuries/)
+校对 文锦
+发布 云起时
 
-所有这些中共人的举动都是为了获得“生物优势”。正如拉特克利夫（Ratcliffe）指出的那样，“北京对权力的追逐不受任何道德约束”。显然，共产党在考虑的不仅仅是士兵。一位中共研究人员也是迄今为止唯一一个对产生活产的人类胚胎进行基因编辑的人。
+该文是转载以下链接：
+[\[1\] CDC: 653 Deaths Now Recorded Following Experimental mRNA COVID Injections with 12,697 Reported Injuries](https://healthimpactnews.com/2021/cdc-653-deaths-now-recorded-following-experimental-mrna-covid-injections-with-12697-reported-injuries/)
 
-深圳南方科技大学的贺建奎曾用CRISPR-Cas9工具去除胚胎中CCR5基因，使在2018年底出生的双胞胎女孩，产生对HIV免疫，并可能增强了智力。这实验让人想起了纳粹第三帝国的优生计划，为创造一个“大师种族” (master race)。
+文中提到的其他引文：
+[\[2\] Electronic Support for Public Health–Vaccine Adverse Event Reporting System (ESP:VAERS)](https://www.nvic.org/CMSTemplates/NVIC/Pdf/FDA/ahrq-vaers-report-2011.pdf)
 
-“赢得太空”（Winning Space）的作者韦彻特（Weichert）告诉盖茨通 (Gatestone)，中共正在建立“完美的共产党员”。 “中共政权迷信人类的完美性，随着现代基因和生物技术研究的出现，中共中央的核心策划者正根据其政治议程来完善人类基因组合的本身。”
+[\[3\] Wisconsin Resident Doctor has Miscarriage 3 Days After Being Injected with Experimental COVID mRNA Shot](https://healthimpactnews.com/2021/wisconsin-resident-doctor-has-miscarriage-3-days-after-being-injected-with-experimental-covid-mrna-shot/)
 
-与拒绝接受这些有争议的作法的国家相比，中共科学家已经在“基因掺杂” (gene-doping)的道路上使后代变得更加聪明和更具创新力。韦彻特写道：“您在中共所看到的是先进技术与尖端生物科学的融合，这使反复无常异想天开的共产主义政权，得以从根本上改变地球上的所有生命。”
+[\[4\] “Very Healthy 56-Year-Old” Miami Obstetrician Dies after Being Injected with the Experimental Pfizer COVID Vaccine](https://healthimpactnews.com/2021/very-healthy-56-year-old-miami-obstetrician-dies-after-being-injected-with-the-experimental-pfizer-covid-vaccine/)
 
-深圳的贺建奎因其被认为危险和不道德的基因编辑工作而引起国际骚动后，因“非法进行人类胚胎基因编辑”而被罚款和监禁，但整个中共社会一向处于近乎被共产党全盘监视的状态下，他得以进行基因编辑的实验显然是得到了国家的支持。
-
-贺建奎在基因编辑上的工作绝不是孤立事件。 《自然》杂志的新闻团队在2015年4月报导说，广州中山大学的中共研究人员在另一个世界第一的实验中，用CRISPR-Cas9编辑了“无生命”的人类胚胎。该杂志的网站说：“一位熟悉该领域发展的中共消息人士说，中共至少有四个组织正在对人类胚胎进行基因编辑。” 因此，北京对他的起诉似乎是在试图淡化谣言，阻止国际科学界对中共的活动进一步调查。
-
-不幸的是，中共在为超级士兵进行人类胚胎基因编辑方面的进程，迫使其他人也必须这样做。例如，我们很快就会看到法国“终结者”(terminator)的出现。法国的军事道德委员会刚刚批准了对士兵功能增强的研发。法国武装部队部长佛罗伦萨·帕里 (Florence Parly)说：“我们必须清楚，并不是每个人都有与我们相同的道德禁忌，我们必须为这样的未来做好准备。”
-
-伦敦国王学院的迈克尔·克拉克（Michael Clarke）告诉英国太阳报，如今中共掀起了一场生物竞赛。难道真如国际军事伦理学会所称的那样，我们很快就会有一场“机器人”（ homo robocopus）大竞赛吗？
-
-![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-7.png)[图片来源](https://halodepok.pikiran-rakyat.com/internasional/pr-1161173574/china-dan-prancis-kembangkan-tentara-super-bernama-homo-robocopus)
-
-如果真是这样，中共不会是唯一将为此负责的。韦彻特本月对盖特斯通说：“在这些科学发展中最令人不安的，是中共与美国和其他西方先进国家的关系。经由这些关系的建立，中共已经获得了基因编辑(CRISPR )以及其他先进生物技术。” “美国研究实验室，生物技术投资者和科学家们争先恐后地与中共新兴的生物技术领域开展研究和业务，正因为中共在研究这一敏感问题上设置的道德标准很低。”
-
-韦彻特指出：中共对生物技术的快速武器化将成为对美国的长期战略威胁，但是华盛顿，华尔街或矽谷只有很少的人能认清这点。
-
-[原文链接](https://www.gatestoneinstitute.org/17048/china-gene-editing)
+[\[5\] Investment Report Reveals Medical Cures not Profitable for Big Pharma – Sick People Needed to Sustain Drug Sales](https://healthimpactnews.com/2018/investment-report-reveals-medical-cures-not-profitable-for-big-pharma-sick-people-needed-to-sustain-drug-sales/)
 
 0

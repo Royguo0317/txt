@@ -1,28 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【灭共头条】中共以国安法为名继续逮捕香港异议人士
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/906425/)
+## 中共指责美对世卫组织中共病毒报告的质疑
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/906553/)
 
-作者：Ermat【㊙️翻  Gnews原创组】
-责编：心声
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Picture1-65.jpg)图片来源：hongkongfp.com
-中共在对台湾文攻武吓的同时，仍不忘记已是囊中之物的香港。近日中共在香港不仅大规模搜捕非建制派人士，斩断议会选举之路，对香港儿童进行洗脑式教育，扼杀民主思想，而且加紧了对香港异议人士的迫害。
+俄罗斯莫斯科喀秋莎农场   银河
 
-香港自由报（Hong Kong Free Press）2月11日报道了周永康发布在脸书上的一段内容：“2月10日我因要延长保释期到警局报到时，警方以暴动罪逮捕了我。”现年24岁的周永康，在2017年就是雨伞革命”、“争取真普选”运动的领袖之一。
+编辑   水星   上传   银河 文宣 剿匪打工仔
+![]()![](https://cdn.discordapp.com/attachments/793368005073567784/807305946854457365/0001-16492477824_20210206_014500_0000.png)
+路透社2月13日报道，中共大使馆周六表示，美国近年来破坏了世界卫生组织和多边合作，美国不应该指责中共和其他国家在中共病毒大流行期间对世卫组织的支持。
 
-在1月6日，警方根据北京实施的《港区国安法》抓捕了55名民主人士，他就是其中之一。被抓后这些人士几乎都被彻夜关押询问，最后以半年内不得离港为条件陆续获得保释。周永康获释后在脸书上写道：”极权的镇压只会越来越严重……但这个极权永远无法逮捕所有争取民主自由的人，希望我们都能平安度过这个白色恐怖的时代。”
+中共大使馆发言人在回应美国国家安全顾问杰克·沙利文对世卫组织中共病毒报告的质疑时表示，中共欢迎华盛顿决定重新与世卫组织接触，但美国应该坚持“最高标准”，而不是将矛头指向其他国家。
 
-而另一则是关于香港电台名嘴尹耀星的报道。2月10日香港自由报（Hong Kong Free Press）报出, 香港电台主持人尹耀星被指控在互联网节目中煽动对中国政府的仇恨和蔑视，违反了香港的煽动法。他在2月10日在西九龙裁判法院被拒绝保释申请，继续关押。尹耀星被控的罪行与去年8月至10月在一个互联网节目中主持和发言有关, 但当局没有详细说明这位电台主持人到底说了什么被认为是 “煽动性的”。
+沙利文周六呼吁中共提供中共病毒疫情爆发初期的数据，并对世卫组织对疫情起源调查结果的沟通方式表示“深切担忧”。
 
-以上两案反映了香港司法已名存实亡，香港的媒体也完全被“打压、管制、操控”。自从国安法实施以来，没有人知道红线在哪里，解释权完全在于港政府、港警及背后的中共反人类与种族大屠杀犯罪组织。人们的言语、行为稍有不慎就会有牢狱之灾，已有大批民众逃离香港。如今香港这颗璀璨的珍珠已迅速失去光彩，走向”衰败、没落”，而背后这一切的始作俑者中共也在癫狂之中末路狂奔、走向灭亡。
+沙利文表示，“我们对通报COVID-19（中共病毒）调查的早期结果的方式深表关切，并对得出这些结果的过程提出质疑。”他指出，“这份报告必须是独立的，专家的调查结果不受中共政府的干预或改变。为了更好地了解这次疫情并为下一次疫情做好准备，中共必须提供疫情爆发初期的数据。”
 
-**参考链接：**
+今年1月和2月，世卫组织官员在中共逗留了数周，调查冠状（中共）病毒的起源。
 
-1. [Hong Kong radio host ‘Giggs’ denied bail ahead of trial for allegedly ‘seditious’ broadcast](https://hongkongfp.com/2021/02/10/hong-kong-radio-host-giggs-denied-bail-ahead-of-trial-for-allegedly-seditious-broadcast/)
-2. [Hong Kong activist accused of subversion may face rioting charge over 2019 storming of legislature](https://hongkongfp.com/2021/02/11/hong-kong-activist-accused-of-subversion-may-face-rioting-charge-over-2019-storming-of-legislature/)
+调查员认为，中共政府不完全合作，数据不透明，他们被迫接受中共政府的说法，即病毒是从国外传入中共国。
 
+沙利文指出，“今后，包括中共在内的所有国家都应该参与到一个透明而有力的预防和应对突发卫生事件的过程中来，这样全世界才能尽快学到更多东西。”
 
-（本文仅代表作者个人观点）
+中共制造病毒生物武器并袭击了全世界，世界各国必须认真对待病毒溯源的真相，以毒灭共，撕开中共的丑恶嘴脸，让中共为它的所作所为付出代价。
+
+参考链接：
+
+[https://cn.reuters.com/article/us-health-coronavirus-usa-china/china-fires-back-at-washington-after-it-raises-concerns-about-who-covid-report-idUSKBN2AE00H](https://cn.reuters.com/article/us-health-coronavirus-usa-china/china-fires-back-at-washington-after-it-raises-concerns-about-who-covid-report-idUSKBN2AE00H)
 
 0
