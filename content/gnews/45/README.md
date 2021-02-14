@@ -1,49 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》深入解读国会第二次弹劾川普失败寓意为何
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/906630/)
+## CDC数据显示：中共病毒mRNA疫苗已致死653人
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/906591/)
 
-直播视频：
+加拿大多伦多枫叶农场 文永
+![]()![](https://gnews.org/wp-content/uploads/2021/02/forbes.com1_.jpg)*图片来源：Forbes.com*
+据健康影响新闻（Health Impact News）网站2月12日报道[\[1\]](https://healthimpactnews.com/2021/cdc-653-deaths-now-recorded-following-experimental-mrna-covid-injections-with-12697-reported-injuries/)，美国疾病防疫中心（CDC）近日在疫苗不良反应报告系统（VAERS）公布的数据显示，截止至2021年2月4日，使用辉瑞和莫得纳（Moderna）公司的中共病毒疫苗造成的不良反应病例共有12697人，致死653人。除此之外，接种疫苗还造成急诊2792例，永久性致残208例，住院1382例。数据显示，72%的疫苗致死事故发生于65岁以上的老人。
 
+该报道还指出，由于疫苗不良反应是采用个人自愿而非强制性的报告机制，所以VAERS系统的数据应该不会包含实际全部不良反应的数据信息，因为很多人可能会选择不报告。而根据2011年美国卫生及公共服务部HHS报告[\[2\]](https://www.nvic.org/CMSTemplates/NVIC/Pdf/FDA/ahrq-vaers-report-2011.pdf)显示，公众对疫苗不良反应的报告率只有不到1%，也就是说，实际不良反应的数字可能比上面给出的大100倍还多。
 
+该网站在前几天报道了威斯康星州一名医生在接种疫苗后不幸流产的事件[\[3\]](https://healthimpactnews.com/2021/wisconsin-resident-doctor-has-miscarriage-3-days-after-being-injected-with-experimental-covid-mrna-shot/)。该报道的作者当时在VAERS数据库查找胎儿死亡的案例，当时发现了3例。而这次在CDC更新数据以后，胎儿死亡的案例依然只有3例，也就是说，这位威斯康星州的医生的案例并没有记录在内。也许她认为流产和中共病毒疫苗没有直接关系。
 
-《路德时评》2021年2月13日晚间节目主要内容：
+对于这些报道的不良反应事件，官方和媒体的口径一致是：这些反应不是注射疫苗造成的。CDC的官方说法也是如此，估计如果让CDC说了算的话，它都会把VAERS系统停掉。实际上CDC到现在都没有“疫苗致死”的类别，也从没有开具过“疫苗致死”的死亡证明。
 
-一、国会第二次弹劾川普失败
+另外，该网站在1月6日报道了一名医生在接种疫苗后不久，不幸患上一种罕见的血液疾病并死亡的事件[\[4\]](https://healthimpactnews.com/2021/very-healthy-56-year-old-miami-obstetrician-dies-after-being-injected-with-the-experimental-pfizer-covid-vaccine/)。《纽约时报》前几天报道了该事件，并指出CDC发现数据库中另外有36例类似情况，目前正在介入调查。《纽约时报》用了2000字的篇幅报道该事件，最后的结论是这些症状和接种疫苗无关，因为正常人患该血液疾病的概率大概也是这个数字。如果真的没有关系，那么为什么该报会花2000字的大篇幅来报道这个导致罕见的疾病案例，而却对很多更为常见的不良反应置之不理呢？
 
-大纪元新闻网2月14日报道[1]：美东时间周六，美国参议院对前任总统唐纳德‧川普的弹劾审讯进行到第五天，下午3点49分，参议院最终以57票对43票判川普无罪。随后，川普“前总统办公室”发出声明说，感谢律师团队以及投下弹劾无罪的议员们；同时，他再次重申，美国建立在公正的法治基础上，不能接受某党将司法变成政治复仇的事情。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/川普弹劾.jpg)[图片地址](https://i.epochtimes.com/assets/uploads/2021/02/GettyImages-1230695483-600x400.jpg)
+在社交媒体上至少能找到有三例接种疫苗以后发生肌肉抽搐和痉挛的视频（这些视频目前已经被Facebook、YouTube等网站删除），在这些视频公布以后，有很多人联系视频中的受害者，说自己也有同样的症状。而在VAERS数据库截至2月4日的数据中，有158例接种疫苗后产生肌肉痉挛和抽搐的症状。总共造成10例死亡。而相比之下，上面报道的罕见血液疾病造成死亡仅有一例。
 
+那为什么CDC要来调查这种罕见的血液疾病，而对肌肉抽搐等不良反应置之不理呢？该报道的作者认为，有可能是因为罕见血液疾病可以帮助制药公司开发新型药物，从而进一步带来更大的收益。
 
-大纪元新闻网2月14日报道[2]：美国联邦参议员林赛‧格雷厄姆（Lindsey Graham）表示，正计划与前总统川普会面，讨论共和党的未来。川普高级顾问杰森‧米勒（Jason Miller）上个月在前白宫首席策略师的政论节目战情室（War Room）中表示，川普将“确保”共和党人在2022年赢得众议院。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/格雷厄姆.jpg)[图片地址](https://i.epochtimes.com/assets/uploads/2021/01/GettyImages-1295097893-1-600x400.jpg)
+作者指出，医药公司把患者看作是收入来源，而实现收益的最大化，这已经不再是所谓的阴谋论了。实际上华尔街的投资报告也公开承认这一点[\[5\]](https://healthimpactnews.com/2018/investment-report-reveals-medical-cures-not-profitable-for-big-pharma-sick-people-needed-to-sustain-drug-sales/)。
 
+近几年医药开发的方向就是针对罕见疾病开发高价药物，而不是针对常见疾病开发廉价药物。而很多有效治疗常见疾病的药物已经过了专利期，所以利润率也很低。这也是为什么对于中共病毒感染治愈率接近100%的现有廉价药物，比如羟氯喹和伊维菌素等，被打压的原因。
 
-路德社评论：
+当然CDC介入调查的真正原因，我们不得而知。但是该报道的作者认为，要想看清医药公司和它们控制的媒体背后的真相，必须要明白一点：对于医药公司来说，只有病人才能带来利润，而健康人和解药对它们来说毫无益处。这是医药公司的商业模式，也是它们赚钱的根本。
 
-1、川普总统成为美国历史上首位被国会弹劾两次，并且两次都失败的美国总统，共和党参议员中以罗姆尼为首的七位投票支持弹劾川普总统，可见共和党建制派仍然希望弹劾川普总统。同时，大部分共和党参议员依然支持川普总统，原参议院多数党领袖麦康奈尔也投出了反对票。
+小结：
+爆料革命多次提醒广大同胞，目前仓促生产的中共病毒疫苗，只是医药公司用来赚钱的。闫丽梦博士也多次强调，在没有灭共以及找到病毒真正来源之前，仓促开发出来的疫苗是非常危险的。从CDC的数据来看，疫苗造成的灾难不可小视，希望大家一定要珍惜生命，远离中共病毒和早期疫苗！
 
-2、川普总统现在代表着美国七千多万支持者，国会两次弹劾他都属于政治陷害，如果他被弹劾成功，他将无法在离任期间收到国家情报总监提供的情报报告，也无法参加2024年美国总统竞选，以及失去美国特情局对他退任后的保卫。
+[原文链接](https://medicalkidnap.com/2021/02/12/cdc-653-deaths-now-recorded-following-experimental-mrna-covid-injections-with-12697-reported-injuries/)
+校对 文锦
+发布 云起时
 
-3、现在参议院民主党与共和党议员比例为50比50，两党人数相当，因此如果参议院投票出现平局时，最后的决定权就交给参议院议长兼副总统哈里斯。此次选举之后，前参议院多数党领袖麦康奈尔也彻底失去了政治资本。
+该文是转载以下链接：
+[\[1\] CDC: 653 Deaths Now Recorded Following Experimental mRNA COVID Injections with 12,697 Reported Injuries](https://healthimpactnews.com/2021/cdc-653-deaths-now-recorded-following-experimental-mrna-covid-injections-with-12697-reported-injuries/)
 
-4、拜登总统虽然在竞选时高喊灭共口号，但是从他一月份上任至今的一系列举动也让美国各大利益集团和美国人民看清楚他倾向于选择亲共政策，由于中共握有大量拜登家族的黑材料，这让拜登总统不敢得罪中共。而川普总统弹劾案失败后，他明确表示将带领七千多万支持者继续发动MAGA运动，推动平民主义运动。这也预示在接下来几周，美国将有大事发生。
+文中提到的其他引文：
+[\[2\] Electronic Support for Public Health–Vaccine Adverse Event Reporting System (ESP:VAERS)](https://www.nvic.org/CMSTemplates/NVIC/Pdf/FDA/ahrq-vaers-report-2011.pdf)
 
-5、格莱厄姆说他将与川普总统共同探讨共和党的未来，他们当下目标就是要赢下2022年中期选举，川普总统团队成员此前曾表示愿意与麦卡锡合作，同时川普总统小唐纳德‧川普（Donald Trump Jr.）敦促共和党人要站出来解决选举诚信问题，否则将永远不会再赢下选举。
+[\[3\] Wisconsin Resident Doctor has Miscarriage 3 Days After Being Injected with Experimental COVID mRNA Shot](https://healthimpactnews.com/2021/wisconsin-resident-doctor-has-miscarriage-3-days-after-being-injected-with-experimental-covid-mrna-shot/)
 
-6、川普总统此前对外宣称他不会组建新的政党，现在有关他的弹劾案以失败告终后，川普总统也有可能组建新的政党，如果他组建新的政党，川普就无需参加共和党内部选举，可以直接参选2024总统选举，但是这也可能分走共和党的支持选票。
+[\[4\] “Very Healthy 56-Year-Old” Miami Obstetrician Dies after Being Injected with the Experimental Pfizer COVID Vaccine](https://healthimpactnews.com/2021/very-healthy-56-year-old-miami-obstetrician-dies-after-being-injected-with-the-experimental-pfizer-covid-vaccine/)
 
-7、美国民主党已经发展出严密的组织体系，能共同进退，这非常类似共产党，而共和党依然还保持比较松散的状态，党内各派势力并不团结，2020大选后共和党也失去了参众两院的席位优势。如果川普总统组建新政党，可以先尝试角逐2022年参众两院中期选举，若参选失败再选择与共和党合并也不迟，但是无论选择哪条路，川普都需要将他的支持者运作进参众两院。
+[\[5\] Investment Report Reveals Medical Cures not Profitable for Big Pharma – Sick People Needed to Sustain Drug Sales](https://healthimpactnews.com/2018/investment-report-reveals-medical-cures-not-profitable-for-big-pharma-sick-people-needed-to-sustain-drug-sales/)
 
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
-
-参考文章：
-
-[1][https://www.epochtimes.com/gb/21/2/13/n12751480.htm](https://www.epochtimes.com/gb/21/2/13/n12751480.htm)
-
-[2][https://www.epochtimes.com/gb/21/2/13/n12751542.htm](https://www.epochtimes.com/gb/21/2/13/n12751542.htm)
-
-文章撰写：【重生】  编辑：【香柏树】
-
-+1
+0
