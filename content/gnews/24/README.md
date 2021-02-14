@@ -1,15 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年2月13日 文贵先生盖特 5
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/906131/)
+## 香草播报：【热点播报】参议院在弹劾审判中宣布川普无罪
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/906257/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+作者：纽约香草山写作组 Wilson
 
-2月13号．继熊宪民被铐走等待审判之后……，今年大年初二．爆料革命开门大吉．孟维参又名韦石．涉嫌持枪开车威胁他人安全，可能涉及到二级谋.。杀已被警察逮捕……接下来的就是诈骗团伙，魏继红．九指妖．陈其生（龟头洋）还有PJ潘．等还有批判大家拭目以待……一个也逃不掉……这就是美国法律的伟大任何侥幸的犯罪分子，都将受到美国的严苛的法律的最严厉的惩罚！
-![]()![](https://gnews.org/wp-content/uploads/2021/02/003aa42f24c62c9369c9b1d1acc297a2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/5bd498d8c7a482ca946295c84327bc94.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/87d3833081abca02c0008570960837a6.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/221fb14a3c311ced863e8dd4764fa9ec.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/769f4bc702cd18b609975cd4fb0b0ac2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/70692685a0375a462bd561dd9977a50c.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/bae3a623cf7c2e80b6c02fdd6fe3a2af.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/c7fb3e0c086e6d23509a1b9b12408f4f.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/d27e4333d29876cf09eaa4a1483e674b.jpg)
-[【2021年2月13日】文贵先生盖特原文](https://gtv.org/getter/602830f3226e77590743a6f2)
 
-**喜联盟Gnews编辑部**
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
+
+印度[斯番时报](https://www.hindustantimes.com/world-news/former-us-president-trump-acquitted-by-the-us-senate-in-his-impeachment-trial-101613250209127.html)2月13日报道，在今天川普的弹劾审判中，100名参议员中需要有三分之二的同意才能定罪，但以57票对43票落空。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/100-1.jpg)
+
+川普因“煽动1月6日对美国国会大厦的致命袭击”被弹劾，今天最终获参议院无罪释放。有七名共和党人与民主党人一起投票认为川普有罪。
+
+川普当即表示对弹劾无效感到高兴，川普说他发起的运动“才刚刚开始”。
+
+我们深信美国的正义必定回归，是因为美国有川普、班农这样的爱国者，他们愈战愈勇，永不言败。
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
 
 0

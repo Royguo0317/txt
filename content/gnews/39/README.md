@@ -1,25 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国指责中俄将疫苗用于外交目的
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/905904/)
+## 2021年2月13日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/906010/)
 
-俄罗斯莫斯科喀秋莎农场   洛夫斯基灭ССР
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-编辑   水星   上传    银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-13_21-10-46.jpg)[zafigo.com](https://zafigo.com/stories/zafigo-stories/20200715-your-travel-vaccine-checklist/)
-02月13日，白宫新闻秘书詹妮弗·普萨基说，俄罗斯和中共国正试图利用其预防中共病毒感染的疫苗作为实现外交目标的手段。
+2月13日 日前，有战友爆料九指妖违法事实! Recently, fellow fighter reveal the fact that the Nine Finger Witch broke the law!
 
-“我们已经看到包括中共国和俄罗斯在内的其他国家试图利用疫苗作为实现外交进展的手段。”普萨基在一次发布会上说。据她介绍，美国对此很关注，国家安全局也在监测这一情况。
 
-前一天，俄罗斯直接投资基金报道，俄罗斯抗中共病毒“人造卫星V”疫苗在黑山以及圣文森特和格林纳丁斯注册。该疫苗在哈萨克斯坦也获得批准。这使得批准使用俄罗斯疫苗的国家总数达到27个。
 
-2月初，医学权威杂志《柳叶刀》发表了“人造卫星V”第三期试验的中期结果。据研究人员介绍，结果显示其对COVID-19的疗效为91.6%。这项研究是由荷兰合同研究组织番红花医疗（Crocus Medical）的莫斯科分部进行的。
+[【2021年2月13日】文贵先生盖特原文](https://gtv.org/getter/6027f50b226e7759074397ba)
 
-12月底，中共国批准了国药集团的中共病毒疫苗，该疫苗由中共国家生物技术集团(CNBG)(国药集团旗下)研发。该疫苗正在中国以外的多个国家进行临床试验，包括阿联酋、巴林、约旦、秘鲁和阿根廷。
+**喜联盟Gnews编辑部**
 
-参考链接：
-
-https://www.rbc.ru/rbcfreenews/6027361c9a79477f28f42eb0
-
-+1
+0

@@ -1,17 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年2月13日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/906016/)
+## 路德时评简讯（视频版）：拜登取消胡塞武装恐怖组织定义(2021.2.8早间 路德社简讯之路安墨谈）
+` 路德社` [轉載自GNews](https://gnews.org/zh-hans/905952/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+《路德社》出品
 
-2月13日， 此视频除夕夜在国内广为流传：成功的打败了美帝国主义的细菌战 This video is widely in circulation across mainland China on the Chinese New Year’s Eve : successful in defeating the American imperialist’s biological warfare
+以下视频是详细内容：
+
+内容摘要：
+
+一、拜登取消胡塞武装恐怖组织定义
+
+二、拜登想方设法替中共取消种族灭绝
+
+三、爆料革命在挫折和磨难中成长
 
 
 
-[【2021年2月13日】文贵先生盖特原文](https://gtv.org/getter/6027fc59226e7759074399f0)
+翻译：路德社翻译组
 
-**喜联盟Gnews编辑部**
+制作：路德社简讯视频组
+
+审核校对：玫瑰新闻组
+
+上传排版：玫瑰新闻组
 
 0
