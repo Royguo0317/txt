@@ -1,25 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国参议院宣布唐纳德·川普煽动叛乱罪名不成立
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/906173/)
+## 路德时评简讯（视频版）：拜登取消胡塞武装恐怖组织定义(2021.2.8早间 路德社简讯之路安墨谈）
+` 路德社` [轉載自GNews](https://gnews.org/zh-hans/905952/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+《路德社》出品
 
+以下视频是详细内容：
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+内容摘要：
 
-**西班牙2021年2月13日电/西喜社——**据Hannity网站2月13日报道，美国前总统唐纳德·川普周六下午被美国参议院宣告无罪；结束了他的第二次弹劾审判。
+一、拜登取消胡塞武装恐怖组织定义
 
-最后的结果是57人认定有罪，43人认定无罪，7名共和党人站在民主党一边；包括共和党参议员理查德·伯尔(Richard Burr)、比尔·卡西迪(Bill Cassidy)、苏珊·柯林斯（Susan Collins）、丽莎·默科夫斯基(Lisa Murkowski)、米特·罗姆尼 (Mitt Romney)、本·萨斯(Ben Sasse)和帕特·图密(Pat Toomey)。
+二、拜登想方设法替中共取消种族灭绝
 
-
-
-> [BREAKING NOW: Donald Trump Acquitted By the US Senate on Charges of Inciting an Insurrection](https://hannity.com/media-room/breaking-now-donald-trump-acquitted-by-the-us-senate-on-charges-of-inciting-an-insurrection/)
+三、爆料革命在挫折和磨难中成长
 
 
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+翻译：路德社翻译组
+
+制作：路德社简讯视频组
+
+审核校对：玫瑰新闻组
+
+上传排版：玫瑰新闻组
 
 0
