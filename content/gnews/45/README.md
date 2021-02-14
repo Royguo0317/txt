@@ -1,78 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵看春晚XVI连线郝叶伉俪4运动有真正的较量和竞争带来的愉悦
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/906559/)
+## 各国都应该找中南坑要解药；共产党员，枪口抬高一寸，停止作恶！
+` 喜马拉雅玫瑰园小队` [轉載自GNews](https://gnews.org/zh-hans/906570/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/封面-94.jpg)
-编辑整理：
+新闻简述：在2021年2月1日的第二段盖特视频中，郭文贵先生让各国找中南坑的共产党找病毒解药，还警告共产党的帮凶们停止作恶，对爆料革命的战友枪口抬高一寸，否则会成为共产党的陪葬。
+[下载字幕文件](https://gnews.org/wp-content/uploads/2021/02/Miles-20210201-Getter2.srt.txt)
+**All Nations Should Ask the Zhongnan Pit for the Antidote; CCP Members, Stop Doing Evil!**
 
-伦敦喜庄园：杯酒渐浓
+**各国都应该找中南坑要解药；共产党员，枪口抬高一寸，停止作恶！**
 
-纽约香草山农场：鹰(文言)
+Jeez! You just saw me in a suit and the heavy snow that I recorded. Now I’ve finished my meeting and am enjoying a cup of coffee. Aiya, nice coffee, pretty nice. Brother Seven’s bad habit – eating ice pops. Do you know the feeling of enjoying such nice coffee and eating ice pops like this one? I found that I’ve got two yellow Hermes sweaters like this one, Gosh! Haven’t worn this one before maybe. Mmmm…
 
-法国巴黎七星农场：枫丹白露
+乖乖！刚刚你们看我[穿]西装，录的那个下大雪的那个感觉[的视频]以后，我现在开完会啦，喝杯咖啡。哎呀，这好咖啡，相当[好]的咖啡。七哥的不良嗜好，冰棍儿。你说喝着这么好的咖啡，吃着这冰棍，啥感觉，啊？我发现这黄色爱马仕毛衣，我有两件儿，天哪！这件儿好像没穿过。呣嗯~
 
-郭文贵先生在[辛丑年文贵看春晚](https://gtv.org/video/id=60252a55be64150df850eb09)对庚子灭共年爆料革命的成就进行了回顾，把辛丑年定为以毒灭共年和以钱灭共年，与各位战友进行连线，在三小时四十三分钟的时间内全球战友们与郭文贵先生共同辞旧岁迎新春，本系列将根据本届[辛丑年文贵看春晚](https://gtv.org/video/id=60252a55be64150df850eb09)的不同内容逐一上传。
+Another thing, want to thank Mr. Hashimoto from Japan for the strawberries. Mmmm… look at this strawberry! Does it look the same as an ordinary strawberry? It is completely different. These are Japanese strawberries, which are over ten times more expensive than American ones. So, this is what “quality” means. Quality is time and wisdom. You have to pay for quality.
 
-以下为第十六部分——连线郝叶伉俪4运动有真正的较量和竞争带来的愉悦
+还有，谢谢日本的桥本先生，[给的]草莓。呣嗯~ 这个草莓，你看看！你看看[和普通的比]一样吗？完全不一样。这个草莓是日本草莓，这个日本草莓是美国草莓的十几倍[的]价格。所以说什么叫质量？质量就是时间，就是智慧。质量你是要付钱的。
 
-据[辛丑年文贵看春晚](https://gtv.org/video/id=60252a55be64150df850eb09)时间点3：08：16——
+Since this morning, I believe that, the military intelligence agencies of different countries have all been thinking that the CCP has this unsuccessful vaccine, so it definitely owns the antidote! Who said that? I, Miles said that. What should we do then? Ask the CCP for the antidote, right? It’s simple. Want to live? If you want to live, just go and ask for the antidote. Ask who? Ask the CCP. Where? The ZhongNan Pit. Brothers and sisters, do you think the foreigners would believe this or not? Do you think they would believe this? We have the verification from experts around the world when we say something.
 
-郝海东先生：郭先生，我得有贼心、有贼胆儿，贼也得行啊，对吧？新中国联邦给别人所有传达的价值观，你比如说刚才说的健身、运动分泌多巴胺，让你的雄性激素我们所谓的血睾酮。当时我们都高，我们最高的国奥的4个人，我、范志毅、翟飙、高玉勇我们都一千多，这都非常高的血睾酮了。那都不能吃药，你吃药被查出来，被那个，那也你就完蛋了。当时才90年当然年轻。但是你一定要有运动，**运动让男人有雄性激素啊。那你不仅在床上，你所有的代谢、所有的工作、所有的思维更敏捷、更健壮，更能让别人承认你，你也更自我控制好自己。你所有的能力都会提高，不仅仅是在床上。但是在床上也很重要，夫妻所有的性生活很愉悦、大家有感情，要不你怎么增进感情，这最基本的嘛，**人的这种关系，是吧？金钱关系、性关系、上下级关系，对吧，你非常重要的。
+今天上午到现在，各国军方情报机构，我相信他们都在想，共产党有这个没成功的疫苗，绝对有解药！谁说的？郭文贵说的。那咋办哪？找共产党要解药去啊，对吧？这好办，想活吧？想活就[去]要解药去。找谁？找共产党啊。地点，中南坑儿。兄弟姐妹们，你说外国人信不信？你们说他们信不信吧？咱说话的时候，它有全世界[各个]专家的印证。
 
-郭先生：上下级关系，呵呵。
+You don’t have to believe this. I didn’t charge you any money. What’s good about our WM and NFSC? We are pursuing a belief, we don’t care who will follow us, and we don’t care who wants to buy it or not, right? Also we don’t care if you believe it or not. You can choose not to believe it, right? The virus is not made by us after all, but I can tell you the answer.
 
-郝海东先生：对啊，唯真不破，就这样的。共产党给我们的所有的这些假丑恶，它的洗脑都是假的，对吧。我们在体制内更多的知道了他们的假丑恶，他们就会坐在那儿大头症、异想天开坐在那儿开会，动不动就开会，动不动就开会，打场比赛就开会，不有神经病吗。所有的这一切就是真实、真诚，感情流露、真情流露。小叶也一样，女孩子一样，她运动皮肤更好，对吗？
+你可以不信啊，我又不要你钱，咱这爆料革命和新中国联邦这个买卖做得好在哪儿啊？我们在追求一种信仰，不在乎谁跟随，不在乎你付不付钱，不在乎你买不买，对吧？也不在乎你信不信，你可以不信啊，是吧？这病毒又不是我们产的，但我告诉你们答案。
 
-郭先生：这只有你知道，我们不知道她皮肤好不好，这是问题啊。
+Why do all mankind love to read the story of Ali Baba? They all want to be the one who found the key and said “Open, sesame”. We can let everyone find that place where Ali Baba hided his treasures and let everyone know how to open the door. Right, BIAs? So, what do you compete for with the CCP? If you want to compete with it in terms of bravery, it doesn’t have bravery. If you want to compete with it in terms of wisdom, it doesn’t have wisdom. It has only ruthlessness and shamelessness. Then, what do we do now? Let’s compete selflessness with it, because we don’t care. Will they [intel agencies] believe? Look. Today they’ve said so and so. I said,”you can disbelieve it, right?” “Any proof?” “No proof.” “We have intelligence, and you can go verify that, right?”
 
-郝海东先生：这个有空是不能给大家所谓录视频啊，但是女孩子运动完欲望更强烈，对吧？
+这个人类啊，为什么都爱看阿里巴巴的故事啊？都想成为找到那把钥匙的人，都想成为芝麻开门[的]那个人。我们能让每个人都能找到阿里巴巴藏宝的那个地方，而且你都会芝麻开门，对吧，战友们？所以说跟共产党你得斗什么？你得跟他斗勇，他没有勇。你跟他斗智，他没有智。他只有狠、下流。那咱现在干什么呀？斗无我吧，因为我们不在乎。他们信不信？你看他们今天说，啊~怎么怎么样。我说你可以不信啊。证据？没有证据啊。我们有情报，你去核实去吧，对吧？
 
-郭先生：对呀，这是正常的。
+Just like so many people buying membership cards from G-CLUBS, right? Many people have asked me why they should buy. Give me a reason. I said, “You don’t have to buy. There are plenty of club cards out there. Go and buy from others. Don’t have to buy from G-CLUBS. Don’t buy, right? Don’t buy from G-Fashion, either. Brands from all over the world are losing money, go and buy from them, right? Don’t buy from our G-Fashion, right?”  They asked, “why should someone do live broadcast on GTV?” I said, “You’d better do your live broadcast on some LeeTV or YouTube, or some other platforms.” Wait for our GTV and Getter. Wait and see what secret weapons I will show you.
 
-郝海东先生：更好嘛、更多嘛，对吧？你更享受更舒服嘛，对男孩子也是一种更好的这种享受嘛，是吧？要不干不刺啦，对吧？（编者注：此处少儿不宜，未成年人请直接跳过这一段）肯定很难受。所以为什么说爆料革命新中国联邦所有的这些，就像咱们今年第一年的春晚一定不是像中央电视台的那种假的嘛，是吧？
+就像有人买G-CLUBS的，这么多人买G-CLUBS，是吧？很多人说我为什么[要]买？给我个理由。我说你可以不买啊，有的是俱乐部卡，你去买别人去，买什么G-CLUBS？不要买嘛，对吧？不要买G-Fashion。全世界的品牌全都赔钱，你买他们的[品牌]去，是吧？不要买我们G-Fashion，对不对？直播，他们说，为什么要到GTV直播？我说你去什么 LeeTV、YouTube，去别的地方直播去嘛。等着我们GTV、盖特。走着看，看给你们亮点儿什么杀器！
 
-郭先生：蠢人的春晚，蠢人的晚上。
+CCP, I know each and every member of you is watching me live, right? You know how many people are watching. The new order of countering the WM has been issued nationwide. I’ve known all of these too well. You guys, don’t do evil things. I have no grudges with you. To point your muzzle up one inch higher for our WM BIAs won’t do you any bad. You guys know what the CCP is like.
 
-郝海东先生：对呀，**我们的春晚是真实的春晚，是让大家真实的能听见我们的声音，我们讲的实话，真实的。**当时2000年、2001年春晚当时还找我上春晚什么的，袁德旺当时通过李小鹏找我，我说可以，给20万。他们说，哇！海东，别人上春晚要给他们钱，怎么你还要钱，还要20万。我说费TM话，你们请我去我当然要钱，对吧。这就是人生，你有脑子你有逻辑，你不用跳在他们的框里，对吧？他们都是骗人的。**只是我真的非常非常的感谢有了爆料革命，有了新中国联邦这个平台，让我们俩可以自由自在地毫无拘束地不用装不用什么的，我们来发自内心地去表达我们自己的看法，而且我们希望通过我们能启示、能传递很多的信息，让国内的老百姓更多的知道爆料革命、新中国联邦是什么。**这里边不是他们所谓你们黄色故事，八几年就开始严打，听邓丽君的歌都是靡靡之音，对吧。有流氓罪被判处死刑的多了去了，我们八一的小孩曹军回大连去探亲，就因为喝了点儿酒出来的时候没戴军帽、军装咧着搭着他一个女同学的肩膀，就被送到了大连警备区。完了告诉6点钟派出所下班之前，警备区不来接你你就回家了。好嘛，5点50来的人把他弄到大连警备区了，回到八一队处分、不让训练，最后再拔草。这都是我们的经历啊，当你越来越知道这种体制带来的恶对人性的践踏的时候，你肯定要挺身而出的，郭先生。
+共产党，我知道你们每个人都在看我在这儿直播，是吧？多少人看，你们自己知道。新的平爆的政策在全国下发，我都知道。你们别作恶，我跟你们无仇无冤。对我们爆料革命的战友，枪口抬高一寸，对你们没坏处。共产党啥样你们清楚。
 
-郭先生：今天东弟、颖妹妹你们讲的每句话，我觉得有智慧但凡能理解正义和邪恶、真和假、完全不同的人生最重要的两个标准的都会明白说，你们用亲身经历告诉了人们应该怎么活着。**这个健身真不是开玩笑的，我的人生如果没有伴随着健身和灭共的事业，我坚持不下来的。另外一个大家要记住，运动员，我问过这些世界上的运动员，他说你看我们在赛场上和所有人不一样的事情，我们所有的体力和付出、我们的生产和我们的追求都会在赛场上得出一个公平真实的结果。那个与人真正的较量和竞争给别人带来的愉悦，这个竞争是给别人带来愉悦而不是伤害第三方，没有人受伤害，这种结果快乐只有我们运动员知道。无论是输和赢，那一刻的愉悦和快乐和对社会他人带来的快乐和得到家人旁人的尊重，他说流多少汗你都是幸福的。**那么所有的政治家和你不一样的地方，还有一些Losser，还有没有健身的输者，他去的另外一个地方叫赌场。所有在赌场的人几乎都是不健身的，赌场的人都是精神病，在体育赛场上的都是真正的身心健康的健儿。这两个地方不同的人，就决定了一个人的最终的去向。那么在共产党的经济和共产党的社会里，全部都是赌场心里，投资、生活、爱情，嫁有钱的、嫁有权的、嫁有名的、傍大款，甚至专门儿傍什么大富豪的老婆的都出来了，这就是一个举国上下全部都是擀面杖子精神文化，这就是中国体育不行的（原因）。**一个这样的国家它不去弘扬职场的、赛场的予人快乐给第三方带来快乐这种健康人生的精神，它不可能有体育的。**你两个就是最好的榜样，所以说这些话题我还真没跟你们聊过，等哪天我们好好聊聊。你两个是中国人真正理解体育的最好的榜样，现在由于时间的问题我先不多说，我换套西装。然后今天我先问到这，还有好几个问题没问你呢，谢谢东弟、颖妹妹你们给中国男人、中国女人带来的最美好的榜样。而且你们带来的新中国联邦正义的影响的力量，还有你喊出的灭共是正义的必须，这对我们新中国联邦和爆料革命的每个人和14亿中国人都是不一样的。谢谢，星星儿现在转画面，我去换个衣服啊。谢谢东弟、颖妹妹。
+The family members of the superiors who gave you orders, will their anuses be examined? Where are their family members studying at? [What we are doing] doesn’t stand in your way. What I want to annihilate is the ZhongNan Pit, and you will be saved. Don’t be silly! It’s understandable that you need to fulfill your duty, but don’t cross the line. If you cross the line, when the time comes, you will be like the Kuomintang Party. Before Kuomintang ended its ruling, how many evil things had it done? Haven’t they all been “liquidated” after all? Never ever be the last killers of a dynasty in decline. That is a stupid thing to do.
 
-郝海东先生：谢谢！
+给你们下命令的领导，他家人会被检查肛门吗？他们家里边人在哪儿上学呢？碍你个毛的事儿啊？我要灭的是中南坑，救的是你们，别傻啦！你完成工作可以理解，但别做过分。[如果]做过分，到时候，像[当年的]国民党一样。国民党灭亡前，干了多少坏事啊？最后不都清算了吗？永远不要做没落的皇朝最后的杀手，那是愚蠢的。
 
-叶钊颖女士：谢谢郭先生，谢谢大家。
+Can you guys stop this [trend]? Over one billion Chinese trust Miles Guo and the WM. Can you stop this? No matter how harsh your punishments are to our BIAs, can you stop the progress of this great era? Did you develop the virus? Won’t your family die of the virus if infected? I’ve said that the CCP is corrupt, but are you corrupt? Is others’ bribe money in your pocket?  Why do you sacrifice your life to save them? Right? We are all grassroots, including me, Miles Guo. My family couldn’t even afford to eat salted pickles, or get treated when sick, right? We are on the same boat, right?
 
-接上文——
+你们能挡得住吗？十几亿中国人，他们信郭文贵，信爆料革命，你能挡得住吗？你对我们任何一个战友，[无论]实施多么严厉的刑罚，你能挡得住这个大时代吗？病毒是你研究[出来]的吗？你们家感染病毒了以后，就不死吗？共产党我说它腐败，你腐败了吗？他腐败的钱是不是你的？你干嘛替他卖命？对不对呀？我们都是草根儿，包括我郭文贵。我家原来连咸菜[这种]吃的都没有，家人有病看不起病，对吧？咱们是一样的，对不对呀？
 
-[**文贵看春晚I****送走庚子霹雳灭共年迎来辛丑以毒灭共以钱灭共年**](https://gnews.org/zh-hans/903289/)
+Can you afford this coffee? I can, why can’t you? I didn’t get it by cheating. I am not like the CCP, whose corrupt money are exploited from you. You are the ones who get exploited. Just like now, the whole world is going after the CCP for retaliation. The virus was made by this organization, right? Those who point their muzzles up one inch higher for any of our BIAs in China will be remembered by us forever, but about the ones who impose various penalties and inflict torture of any type on our BIAs, we will never let go any one of them! You don’t have to believe me, but let’s wait and see. Sun Lijun, Meng Jianzhu, Wang Qishan, Zhang Pengming, Liu Jianguo and Fu Zhenghua are your best examples. It’s said that Fu Zhenghua is done, and he will be more miserable than Sun Lijun.
 
-[**文贵看春晚II****联线简体中文战友谈中共经济危机四伏/G-News****病毒专题**](https://gnews.org/zh-hans/903414/)
+你喝得起这个咖啡吗？我喝得起，为啥你喝不起？我不是骗来的。我不是共产党，贪污的你们身上的钱。你们是被剥削者，就像现在全世界，都在找共产党算账，病毒是它家造的，对吧？任何对我们国内战友，枪口抬高一寸的，我们永远不会忘记。对我们战友施加各种刑罚的，一个也不会放过！你可以不信，走着看。孙立军、孟建柱、王岐山、张鹏明、刘建国，就是你们最好的例子，傅政华。听说傅政华要完了，傅政华比孙立军还要惨。
 
-[**文贵看春晚III****联线七星战友:****全世界已没有选择必定火战灭共**](https://gnews.org/zh-hans/903444/)
+Yummy! Brothers and sisters, wait for the good news. The whole world is looking for the antidote from the CCP. So many things happen in every hour and every quarter. The “black hand” behind the coup in Myanmar was the CCP. Many have asked me whether it was CCP or not. I said it was. The CCP did it.
 
-[文贵看春晚IV连线班农先生，99%的兄弟姐妹希望川普回归白宫](https://gnews.org/zh-hans/905066/)
+真好吃，兄弟姐妹们，等着好消息，全世界都去找解药去啦，找共产党。发生多少事儿啊，这每时每刻每小时。缅甸的事情背后黑手就是共产党，很多人在问我是不是？我说是的，就是共产党。
 
-[文贵看春晚V连线闫博士1是否有神秘力量在主宰和安排着闫博士](https://gnews.org/zh-hans/905143/)
+I’m going to stop here today and then resume a meeting. Will continue to take down the CCP, and continue to make money for BIAs. Thank you so much! The heavy snow outside looks really nice. Will let you have a look. Look at the heavy snow. Interesting.
 
-[文贵看春晚VI连线闫博士2,病毒已被打磨已走向造成伤害的方向](https://gnews.org/zh-hans/905198/)
+咱今天先聊到这，我还得继续开会去。继续灭共，继续为战友们挣钱，唔该晒啦！外面的大雪真舒服，让你们看一眼。你看看，看这大雪，是吧？有意思啊。
 
-[文贵看春晚VII连线闫博士3,期待回到那块土地那是我们的家乡](https://gnews.org/zh-hans/905225/)
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-[文贵看春晚VIII连线闫博士4,一个政体把人逼成这样无人能幸免](https://gnews.org/zh-hans/905251/)
+视频来源：[https://gtv.org/getter/6018472b46c6c3519a3e00b1](https://gtv.org/getter/6018472b46c6c3519a3e00b1)
 
-[文贵看春晚IX连线路德1,路德访谈和闫博士已开启以毒灭共新时代](https://gnews.org/zh-hans/905267/)
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/861280/](https://gnews.org/zh-hans/861280/)
 
-[文贵看春晚X连线路德2最关键的问题是有无信仰信不信你能灭共](https://gnews.org/zh-hans/905289/)
+翻译：【guocamole(文金欠)】校对：【Isaiah4031】字幕：【Naomi (文花开)】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
-[文贵看春晚XI连线路德3健身意味着锻炼意志延长XO时间](https://gnews.org/zh-hans/905305/)
-
-[文贵看春晚XII连线路德4路德2021年有了吉祥新家未来会拥有更多](https://gnews.org/zh-hans/905317/)
-
-[文贵看春晚XIII连线郝叶伉俪1他们的挺身而出展示了能力和信仰](https://gnews.org/zh-hans/905666/)
-
-[文贵看春晚XIV连线郝叶伉俪2运动对XO的能力到底有啥影响啊](https://gnews.org/zh-hans/905719/)
-
-[文贵看春晚XV连线郝叶伉俪3不再畏惧所有威胁一切都是向死而生](https://gnews.org/zh-hans/905848/)
-
-0
++1
