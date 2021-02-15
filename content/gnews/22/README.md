@@ -1,8 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2/12/2021 战友爆料Sara违法事实
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/909211/)
+## 2/13/2021蓬佩奥【精选汇总】:世卫所谓的调查完全就是洗白之举
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/909264/)
+
+【精选一】蓬佩奥：世卫所谓的调查完全就是洗白之举
+
+【精选二】蓬佩奥：中共绝非竞争对手，而是试图建立霸权的敌对方
+
+【精选三】蓬佩奥谈拜登同中共的经济利益及其对华政策的影响
+
+【精选四】章家敦谈中共发动的芬太尼战争
 
 By： 【秘密翻译组 G-Translators】
 
