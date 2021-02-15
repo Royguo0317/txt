@@ -1,27 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Project Veritas推特账号于2月10日突遭永久封杀
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/908046/)
+## 马云的钱哪儿去了？
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/908021/)
 
-#### 作者：wenwu 
-素材：文真真
-校对： 温哥华圆成农场 比卡丘
+#### 作者/素材：[wenwu](https://gtv.org/user/5e7163609a13a44f199e9730)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Cover-15.jpg)
+#### 编辑：[Amos文也](https://gtv.org/user/5e750fdd7fdb1049cc747023)
 
-据《门道专家》（Gateway Pundit）网站的作者克里斯蒂娜·莱拉（Cristina Laila)2月11日报道，推特以Project Veritas违反其“发布私人信息”的规则，永远禁止该账号再次进入推特。这表明，平民的言论自由已受到来自媒体平台的制裁，而非来自法律！
+据2月10日网易新闻报道，属于阿里巴巴创始人马云位于香港山顶白加道22号的豪宅，拖欠3000万工程费，至今已超过半年。不但如此，事后马云更拒绝回复港媒的联系，这在中共国的富豪身上发生这样的丑闻太让人震惊！
 
-（美国知名爆料网站Project Veritas放出脸书内部爆料人提供的视频：https://www.projectveritas.com/news/facebook-insider-leaks-hours-of-video-of-zuckerberg-and-execs-admitting-they/）
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-8.png)
 
-在该报道中，1月21日勇敢的脸书内部爆料者向Project Veritas提供会议录音，其中罗森（Rosen）在录音中解释说，这是他们“保护选举的努力”的一部分。也就是说，脸书高层涉嫌违法，即利用媒体平台宣传机器来影响美国总统大选的结果。
+过年本该是喜庆的事情，欠债还钱天经地义，一位成功的国际级别商人自然绝不会为区区一点工钱，来搞出这么大的新闻。但据该报道的“工头”称，上个月的时候有派发支票，但却只够支付工人约一个月工资。数十工人面临无钱过年的困局，无奈之下集体拉横联到马云这座豪宅门口拉横联抗议。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/image-89.png)（图片来自Gateway Pundit网站，推特封杀了脸书内部会议的内容）
+可见，中共国的马云应该是真没有钱了。据2月4日BBC中文新闻报道，近期诸多报章似乎齐声发问，“马云哪儿去了？”马云是否在中共政府被“隐身了”？这都将与电商大亨马云的“没有钱”有关系
 
-另一方面，据网友爆料【如下图】，脸书还封禁了与病毒真相有关的爆料革命游行示威活动，还有脸书也封禁了闫丽梦博士的中共制造中共病毒传播世界等相关新闻媒体的报道。其中也包括脸书旗下的INSTAGRAM，这些媒体平台的手上都有因中共病毒而死的无辜者的血债。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/3-6.png)
 
-目前，美国因中共病毒死亡的人数已超过48.86万人，唯有病毒的真相才可以带给他们公平，给活着的人了解到人类目前生存的真正威胁是在哪里！（文章仅代表读者观点）
+最终，在中共政府的富豪们也不得不思考，马云的钱去哪了？更多的富豪是否能够逃脱马云这样的命运，我想他们心里也知晓！
 
-原文链接：https://www.thegatewaypundit.com/2021/02/twitter-censors-project-veritas-report-facebook-censorship-says-violated-rule-posting-private-information/
+新闻来源：
+[马云15亿豪宅疑拖欠工程费！费用高达三千万，现场出现大量横幅](https://www.163.com/dy/article/G2G6AUJB0537B1I5.html)
+[马云近况：英国媒体发问 “马云哪儿去了？”](https://www.bbc.com/zhongwen/simp/chinese-news-55533427)
+
+**欢迎战友加入旧金山金喜准农场**
+
+[**旧金山金喜准农场** GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+
+[**旧金山金喜准农场** Discord](https://discord.gg/QQzQ79grEA)
+
+[**旧金山金喜准农场** Twitter](https://twitter.com/sf_himalaya)
 
 0
