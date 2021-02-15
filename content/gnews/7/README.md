@@ -1,23 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】14/02/2021:川普总统弹劾案失败 川普被认定无罪
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/908139/)
+## 2/12/2021郭先生：尊敬的战友们，你们听听这像不像文贵的语音？这回九指妖大暴露
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/908153/)
 
-**制作:Cantonese工作室**
-播报: 【鱼摆摆（文驋）】
-资料收集: 【郁金香】
-视频制作: 【Shawn】
-海报制作: 【侬民】【文绉绉】
-上传: 【Shawn】
-**摘要:**
+By： 【秘密翻译组 G-Translators】
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210214-zhTW-01.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210214-zhTW-02.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210214-zhTW-03.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210214-zhTW-04.jpg)
+
+
 0
