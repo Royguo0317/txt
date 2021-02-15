@@ -1,39 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】沙特反击拜登:会继续将胡塞武装视为恐怖组织
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/907877/)
+## 推特解禁俄罗斯驻维也纳代表团的账号
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/907922/)
 
-作者：纽约香草山写作组 Wilson
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭ССР
 
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-15_02-11-07.jpg)[nbcnews.com](https://www.nbcnews.com/tech/tech-news/wake-russia-probe-twitter-launching-ad-transparency-center-n813921)
 
+02月13日，推特社交网络的主持人已经解禁了参加维也纳军事安全和军备控制会谈的俄罗斯代表团的账户。代表团团长康斯坦丁·加夫里洛夫（Konstantin Gavrilov）宣布道，“亲爱的朋友们、同事们，账户从灰烬中复活了！非常感谢您的宝贵支持，我们非常重视！不幸的是，推特剥夺了我们所有的订阅者。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+此前，俄罗斯外交官报道称，推特封了俄罗斯代表团的账号。外交部发言人玛丽亚·扎哈罗娃表示，希望这只是一个“技术故障”，并指出莫斯科已向推特发出解释的要求。
 
+1月中旬，推特封锁了俄罗斯《人造卫星V》中共病毒疫苗的官方账号约为1小时的访问权限。事后的解释是，有人试图从美国弗吉尼亚州访问该页面。
 
+评论：利用自身的控制权限，自定义封杀个人或者各国代理人账号，足以证明社交媒体已无自由可言，倒把中共国控制言论自由、管控媒体的做法发挥得淋漓尽致。此次封锁俄罗斯驻维也纳代表团账号也是给俄罗斯及世界各国敲响了警钟，不仅是美国已经被所谓主流媒体控制，若不灭共，全世界都将被其绑架，最终被中共这个邪魔恶党控制全世界。
 
-印度[斯番时报](https://www.hindustantimes.com/world-news/saudi-arabia-will-continue-to-treat-houthis-as-terrorists-un-representative-101613299878603.html)2月14日报道，据沙特常驻联合国代表称，尽管美国决定取消对该组织的指认(将于2月16日正式生效)，但沙特仍会继续将也门胡塞武装视为恐怖组织。也门冲突被视为沙特和伊朗之间的代理战争。
+参考链接：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/102-1.jpg)
-
-由沙特国家控制的媒体中几位评论员批评了美国的决定。评论员称，这只会让与伊朗结盟的胡塞武装胆大妄为——他们最近加紧了对沙特阿拉伯的袭击。这是拜登政府给胡塞武装和伊朗的“礼物”，“发送了错误的信号”。 沙特专栏作家穆罕默德·谢赫写道，取消这一称号是一个“可怕的错误”，拜登应该在川普对伊朗的“最大压力”政策基础上再接再厉。
-
-拜登以结束人道灾难的名义，取消由伊朗支持的也门非法武装的恐怖组织指认。这一举动不仅得到也门合法政府及其邻国沙特的反对，国际社会也难以理解：为什么伊朗翻山过海，穿越多个国家来支持也门的叛军胡塞武装？为什么拜登要改变川普在中东的诸多政策？
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
+[https://www.rbc.ru/rbcfreenews/6027f84a9a794722f092d4dc](https://www.rbc.ru/rbcfreenews/6027f84a9a794722f092d4dc)
 
 0

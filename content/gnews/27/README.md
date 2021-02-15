@@ -1,23 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】14/02/2021:川普总统弹劾案失败 川普被认定无罪
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/908139/)
+## 蓬佩奥在福克斯谈拜登“双规电话”以及中共禁止BBC事件
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/908151/)
 
-**制作:Cantonese工作室**
-播报: 【鱼摆摆（文驋）】
-资料收集: 【郁金香】
-视频制作: 【Shawn】
-海报制作: 【侬民】【文绉绉】
-上传: 【Shawn】
-**摘要:**
+Part1. 蓬佩奥：拜登政府需要像上届政府一样直面中共，对中共进行全方位应对
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210214-zhTW-01.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210214-zhTW-02.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210214-zhTW-03.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210214-zhTW-04.jpg)
-0
+Part2. 蓬佩奥：世界必须对中共在其国内及世界上的所作所为作出回应，并确保以后不再发生此类事情
+
+**By： 【秘密翻译组 G-Translators】**
+
++1
