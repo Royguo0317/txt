@@ -1,45 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】日本就尖阁诸岛（钓鱼岛）防卫强调“无法完全依靠美国，必须有最终由日本死守的心理准备”
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/907621/)
+## 2021年2月14日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/907871/)
 
-作者：纽约香草山写作组 Wilson
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+2月14日，郭先生早在2018年就指出韦石，西诺一定会进监狱。韦石在2021年大年初二涉嫌二级谋杀在美国被警察逮捕 As early as 2018, Mr. Guo pointed out that Wei Shi, Xi Nuo would definitely go to jail. Wei Shi was arrested in the US on suspicion of second-degree murder on the second day of the Lunar New Year in 2021
 
 
 
-[共同社](https://china.kyodonews.net/news/2021/02/68ff7e64cb24--.html)2月14日报道，日本政府认识到在防卫尖阁诸岛（中（共）国称钓鱼岛）中强化自身力量不可或缺。日方注视着向西太平洋扩展军事能力的中（共）国，美方力争在日本西南诸岛、台湾、菲律宾组成的“第一岛链”内部署高机动部队。
+[【2021年2月14日】文贵先生盖特原文](https://gtv.org/getter/60292baf226e77590743e6ac)
 
-但正面临内部社会分裂和贫富差距扩大等国内问题的美国，能在多大程度上参与尖阁防卫仍是未知数。虽然，美国强调《美日安保条约》适用于尖阁诸岛，但防卫省干部强调：“无法完全依靠美国，必须有最终由日本死守的心理准备。”
+**喜联盟Gnews编辑部**
 
-研发出被称为“航母杀手”的反舰弹道导弹的中（共）国军队的威胁，对美军而言，也不容轻视。分散战力和提高机动性成为日美的当务之急。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/02/101.jpg)
-
-防卫省相关人士指出，面对持续公开挑战日本对尖阁有效控制的中国，“为避免有效控制被瓦解的事态，必须完善自身的防卫能力”。
-
-尖阁诸岛（钓鱼岛）距台湾高雄170公里，距温州330公里。一旦日本失去对尖阁诸岛（钓鱼岛）的控制，就等于丧失了对台湾海峡的制衡。台湾海峡是一条来自欧洲和中东的日本海上生命线：日本90%的石油进口、99%的矿产资源和100%的核燃料需求来自穿越这些海道的船只。每年共有5亿吨日本进口品经过台湾水域，日本80%的集装箱船直接通过海峡，相当于每十分钟有一艘日本货船。因此，这些水域将“直接影响日本的生死、生存或灭亡”。
-
-中共连放毒都能做得出来，日本等邻国对与中共和平共处已经不抱任何幻想。因此，中（共）国与各个邻国之间的摩擦和冲突将不断增加、升级。
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
-
-+2
+0
