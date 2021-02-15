@@ -1,20 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年2月15日中共病毒疫情要闻快报
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/909238/)
+## 2/12/2021 战友爆料Sara违法事实
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/909211/)
 
-**重点内容：**
-
-- 英国接种疫苗人数突破两成；
-- 蓬佩奥：本届政府要像上届一样直面中共；
-- 过年期间，哈尔滨市防疫人员到处抓返乡人员隔离；
-- 新疆乌鲁一男子因涉疆消息被拘留四年；
-- 博讯韦石因持枪威胁他人被警察抓捕。
+By： 【秘密翻译组 G-Translators】
 
 
-
-
-**By：【秘翻组-上天造灭疫组】**
 
 0
