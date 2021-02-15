@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法国东部大区议员致信区长让·罗特内重新考虑华为在本地建厂
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/909385/)
+## 周一起访英者须在酒店隔离
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/909450/)
 
-#### 编译：Ikonic 审核：Pv0
-![]()![](https://gnews.org/wp-content/uploads/2021/02/cover-24.png)
-*编者按：让有中共解放军背景的华为在法国建厂本来就是一个高风险的事情。随着爆料革命对中共统治全球的野心的揭露，越来越多的国家看清了中共的野心。尽管法国是中共在欧洲蓝金黄的重灾区，但是法国也有清醒的爱国者。此次当地议员向区长喊话停止华为建厂，虽然理由是维吾尔种族屠杀，实际的担忧还是落在了华为对所在地情报收集的问题上。*
+- 编辑：Victor Torres
+- 发稿：Ranting
 
-在一封公开信中，法国阿尔萨斯省的8名议员协同当地人权保护协会向所在的东部大区区长让·罗特内呼吁，由于华为被指参与了对新疆维吾尔人的种族大屠杀，希望停止华为所在大区边陲小镇布鲁玛特建厂。
 
-#### 原文链接：
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-[https://www.lalsace.fr/economie/2021/02/12/huawei-a-brumath-des-elus-locaux-appellent-jean-rottner-a-faire-machine-arriere](https://www.lalsace.fr/economie/2021/02/12/huawei-a-brumath-des-elus-locaux-appellent-jean-rottner-a-faire-machine-arriere)
+**西班牙2021年2月15日电/西喜社——**到达英国的人从周一开始必须在酒店隔离，因为政府试图防止中共病毒新变种的快速传播。
 
-#### 更多文章：
+从33个高风险国家抵达英格兰的人必须自费在隔离酒店住10天。在苏格兰，该规则适用于来自任何国家的入境者。
 
-[中国华为在法国陆军情报局驻地附近兴建工厂](https://gnews.org/zh-hans/673125/)
+批评者说，此举来得太晚了，南非的变种已经在该国流行。
 
-[華為將於2023年在法國大東部地 區開設第一家國外工廠](https://gnews.org/zh-hant/848782/)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1257b272-ce82-47ba-8307-3f80813284f4.jpg)
 
-* * *
+[**新闻来源**](https://apnews.com/article/pandemics-health-philippines-coronavirus-pandemic-games-bd67d2d9538b8d5b601f7bfc336c9cc9)
 
-发布：法国巴黎七星编辑组
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
 0

@@ -1,15 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年2月14日 文贵先生盖特 3
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/909060/)
+## 2月18日开始，法国医院进入危机模式
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/909165/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+- 编辑 审核：Victor Torres
+- 发稿 作者：神奇四侠
 
-2月14日：比爹娘还亲的……无 无 无 无 产阶级的共．共 共 共 产党，是世界上最大的诈骗谎言集团，如果人们活了一辈子，连这个还没看明白的人，那就是受到了上天最大的惩罚…… 【转自人民网！ 茂名市副市长杨光亮房产140套，现金12亿； 楚雄州长杨红卫房产230套，现金17亿； 杭州市副市长许迈永房产250套，现金14亿； 山西蒲县煤炭局长郝鹏俊房产350套，现金30亿； 山东副省长黄胜房产460套，现金90亿美元； 浙江省药监局长黄萌房产840套，现金20亿……[http://www.people.com.cn/n/2012/0627/c33232-18391823.html](http://www.people.com.cn/n/2012/0627/c33232-18391823.html)】
-![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-38-58.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-00.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-02.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-05.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-07.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-09.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-15.jpg)
-[【2021年2月14日】文贵先生盖特原文](https://gtv.org/getter/6029fddc226e775907441a41)
 
-**喜联盟Gnews编辑部**
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
+**西班牙2021年2月15日电/西喜社——**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/002.png)
+鉴于中共病毒大流行的持续压力，因传染性高的变种中共病毒病例可能激增。法国卫生部宣布在2月18日，法国医院将进入危机模式。
+要求区域卫生机构和医院加入“危机组织”，要求他们增加可用的病床数量，推迟非紧急手术和动员所有医务人员资源。
+卫生部长奥利维尔·韦兰（Olivier Veran）指出，变种的中共病毒占法国确诊新感染的25％，在上周四他表示，政府将在未来几周内决定是否需要实施更严格的隔离措施。
+
+为政府提供中共病毒政策咨询的科学委员会成员阿诺丰塔内在周六表示，他担心变异的中共病毒将会大流行，很可能3月新增病例中大部分都是这种变异病毒引起的。
+
+新闻来源：[路透社](https://www.reuters.com/article/us-health-coronavirus-france-hospitals/french-hospitals-to-move-into-crisis-mode-from-thursday-newspaper-idUSKBN2AE0EX)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/00110011.png)
 0
