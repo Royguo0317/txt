@@ -1,40 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 包工头50米塔吊向官府讨薪，中共警方：恶意讨薪，行拘十天
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/909755/)
+## 川普总统日登上推特趋势榜
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/909764/)
 
-翻译：乐禧禧 | 校对：yyshere| 字幕：雨中漫步|评论：胖丁|评论翻译: Mike hua|PR:小小妹
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/02/601fe3bfe4b065382b5f90e5.jpg)
-
-中共国流行跨界，商人拍电影、出唱片，明星扮政客、表忠心，粉饰太平。
-
-春节前夕，一位建筑工地的包工头迫不得已，也跨界演绎了一次杂技，在没有任何防护的情况下，徒手爬上50米高的塔吊向工地负责人讨要欠薪。
-
-可惜他没有博得满堂彩，反而被警方以“恶意索要工程款”的罪名，行拘10天。
-
-中共擅长曲解词义来定罪他人。何为“恶意”讨薪？以劳动换取收入，天经地义，但是在中共非法政权的统治下，老百姓的合法收入没有保障，付出的劳动得不到相应的报酬。
-
-正常的讨薪无人理睬，不得已采取的行为被定义为“恶意讨薪”。这就是中共国特色，欠薪的不是“恶意欠薪”，讨薪的却成了“恶意讨薪”。
-
-如果不是被逼到无路可走，讨薪者会不惜以自己的生命为代价，徒手爬上50米高的塔吊吗？
-
-如果失手掉下来，他自己的命没了，欠他薪水的人会把钱还给他的家人吗？
-
-警方可以花费4个小时劝解讨薪者息事宁人，却不能劝解工地负责人签一张还款的支票。最终结果，欠薪者逍遥法外，讨薪者行政拘留。
-
-![Bildergebnis für 包工头50米塔吊向官府讨薪，中共警方：恶意讨薪，行拘十天]()![Bildergebnis für 包工头50米塔吊向官府讨薪，中共警方：恶意讨薪，行拘十天](https://n.sinaimg.cn/sinacn10117/209/w617h392/20200111/2f48-imztzhm7885796.jpg)
-
-老百姓不出来打工会饿死，但是打工挣到的钱也不一定能够拿到，最基本的生活没有保障，也无处申冤。
-
-老百姓不出来打工会饿死，但是打工挣到的钱也不一定能够拿到，最基本的生活没有保障，也无处申冤。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+- 编辑：Victor Torres
+- 发稿：Ranting
 
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2021年2月15日电/西喜社——**唐纳德-J-川普（Donald J Trump）在推特上成为总统节的热门话题。
+
+许多用户都在为这位前总统送上节日的祝福。
+
+川普仍然被禁止使用该平台，Twitter首席财务官内德·西格尔（Ned Segal）最近表示，该禁令是永久性的—即使他再次竞选。
+
+
+
+> [‘Donald J Trump’ trends on Twitter for Presidents Day](https://saraacarter.com/donald-j-trump-trends-on-twitter-for-presidents-day/)
+
+
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+
 0

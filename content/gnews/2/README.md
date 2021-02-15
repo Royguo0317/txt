@@ -1,22 +1,81 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 去年武汉究竟死了多少人？
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/909862/)
+## 《新闻快递》专题：CCP对新疆维吾尔的种族灭绝罪行
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/909851/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/武汉2-2.jpg)照片来源：网络
-今天看到了一条新闻，说武汉每年初一有上新香，祭祀去年去世的亲人的习俗。今年有很多人没有办法买到祭祀用的菊花，售空断货！为什么会这样？按照商家的正常运做行为，都会按照提前预估当季的需求量，来进货销售，供应市场，那么为什么还会有供不应求的现象呢？去年武汉到底去世的人口数量是多少？又有多少人是因为疫情去世的？我粗略的查看了一下信息，据墙国官方公布出来的感染病毒死亡人数，全国共计8千多人，那么病毒初始爆发地武汉，又有多少人因病毒感染导致的死亡？人数是多少？再加上武汉三镇正常的自然死亡人数加一起都算到武汉这个城市上，就算一万人吧，祭祀去世亲人每人需要十朵菊花那就是十万朵，大家想象一下，偌大一个城市，一千多万人口，并且还有这样的民间习俗的前提下，连十万朵菊花都供应不了，卖到断货吗？据我在这里的一个客户告诉我说，她就是武汉本地人来这边留学的，父母都是在医院工作，专门采购医疗器械的，从医疗系统内部得到的信息，相对来说应该比较准确吧，但这并非是武汉官媒公开的信息。在她和家人聊天的时候说起疫情这个事情，在疫情最严重的时候，在封城期间，那边家里人告诉她说，按照官方公布出来的被病毒感染和病毒感染导致的死亡人数数据，光武汉这座城市再加上一个0都不止！这就意味着官方的数据有多大的水分！？
+《新闻快递》栏目组：Beicy数学老师，文玉，1818；
 
-事实就是事实，真相是永远不可能被掩盖的。每一个在这一年去世的逝者，墓碑上铭刻的时间是骗不了人的。难道墙国政府也能把这个掩盖住吗？想想看，当这些因病毒感染而失去亲人的人们，当他们知道病毒起源真相时候，是什么样的感受？我想但凡还能有点血性都会从内心发出怒吼声，将它变成一把冲天大火烧尽这个腐败堕落的体制。
+校对/审核：宁缺； Page: 1818
 
-同时，从这条新闻又看到另外的一个信息，那就是有些商家毫无怜悯之心，赚黑心钱！把这祭祀用的菊花，当成紧俏商品以100—200元一朵抬高价格，销售给客户，再次给那些悲痛欲绝，已经失去亲人的人们的伤口再上撒上一把盐！这叫缺德！这叫无耻！这叫没人性！这把墙国的社会文明美德教育体现的淋漓尽致！可悲！可恨！可叹！为那些因感染新冠病毒而去世的亡灵祈祷！为那些因感染病毒失去亲人的家庭祈福平安！
+引言：
 
-新中国联邦的战友们任重道远，再创人类历史文明，创造华夏辉煌历史还靠我们自己的努力！加油！
+英国伦敦喜庄园GTV直播节目《新闻快递News Express》，每周一和周五英国时间18:30为战友带来美国、英国及国内的热点新闻及专题分享。
+[!\[\]()!\[\](https://spark.adobe.com/page/VelTdskxQyqmL/images/570d8101-b36a-4249-a816-2b058b35cdc3.png?asset_id=eb1fbd71-50f9-4719-981a-60d4bd755abe&amp;img_etag=%22f222569657b555fedabbb7319ce213eb%22&amp;size=2560)](https://spark.adobe.com/page/VelTdskxQyqmL/images/570d8101-b36a-4249-a816-2b058b35cdc3.png?asset_id=eb1fbd71-50f9-4719-981a-60d4bd755abe&amp;img_etag=%22f222569657b555fedabbb7319ce213eb%22&amp;size=1024)
+**[🔗GTV-UK-1号台精彩回看（1:08:00开始）](https://gtv.org/video/id=601859f169dc393c0ff4995c)**
 
-作者：天空的鸿雁
+## 《新闻快递》专题：CCP对新疆维吾尔的种族灭绝罪行
 
-温哥华圆成农场
+随着美国宣布CCP在新疆犯下了种族灭绝的罪行，国际社会更加关注新疆少数民族的处境。在上周三的犹太大屠杀纪念日上，在英国的一位犹太教领袖表示当前CCP在新疆进行的种族灭绝行为和当年的纳粹屠杀犹太人有太多惊人的相似之处了。这位犹太人权组织发言人说，CCP“正在完全的清除掉维吾尔族的语言、文化和传统”，“我们现在要阻止CCP在新疆进行的种族屠杀行为”。
 
-20210215
+**[🔗印度发展报：在大屠杀纪念日，英国犹太组织公开指控中共在新疆的种族屠杀暴行](https://www.indiablooms.com/world-details/SA/27806/uyghur-british-jewish-national-target-china-on-holocaust-memorial-day.html)**
 
-+1
+CCP正在新疆进行惨绝人寰的种族灭绝行为，首先是抹杀穆斯林的文化。CCP已经开始禁止在新疆的学校教授维吾尔语。
+
+**[🔗印度观察报：新疆学校禁止开设维吾尔族语言课程](https://www.opindia.com/2021/02/china-xinjiang-province-uyghur-language-students-not-allowed-mandarin-only/)**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/VelTdskxQyqmL/images/dcfdd420-df9c-4f22-8e41-bf6c092e6e65.png?asset_id=8fe8cd8c-a94b-44f8-accd-029714faab41&amp;img_etag=%22584a01745bb6bb68f54e8dd7b1d4582c%22&amp;size=2560)](https://spark.adobe.com/page/VelTdskxQyqmL/images/dcfdd420-df9c-4f22-8e41-bf6c092e6e65.png?asset_id=8fe8cd8c-a94b-44f8-accd-029714faab41&amp;img_etag=%22584a01745bb6bb68f54e8dd7b1d4582c%22&amp;size=1024)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/VelTdskxQyqmL/images/82dee0d5-78e8-44ec-8c3c-b3b9ccd162e7.png?asset_id=a55fe778-a9b5-4d1a-a14e-98c8bc140111&amp;img_etag=%22f7e49ec73d1a656ab19b124a417dbcb3%22&amp;size=2560)](https://spark.adobe.com/page/VelTdskxQyqmL/images/82dee0d5-78e8-44ec-8c3c-b3b9ccd162e7.png?asset_id=a55fe778-a9b5-4d1a-a14e-98c8bc140111&amp;img_etag=%22f7e49ec73d1a656ab19b124a417dbcb3%22&amp;size=1024)
+
+农历新年期间，新疆信仰伊斯兰教的维吾尔族、哈萨克族等穆斯林被要求过春节。伊宁市官员以帮助贫困少数民族村民为名，向他们发放猪肉，还要求他们喝酒庆祝。官员威胁不过春节就要关进再教育营。
+
+**[🔗自由亚洲电台：新疆各地强迫穆斯林过春节及吃猪肉](https://www.rfa.org/mandarin/yataibaodao/shaoshuminzu/ql1-02062019101412.html)**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/VelTdskxQyqmL/images/16038eab-73de-4b42-bedd-6900194855f8.png?asset_id=a61ba01e-ce35-4f79-a42a-f39755eae629&amp;img_etag=%220b91e652e79994469202582a83e8374c%22&amp;size=4962)](https://spark.adobe.com/page/VelTdskxQyqmL/images/16038eab-73de-4b42-bedd-6900194855f8.png?asset_id=a61ba01e-ce35-4f79-a42a-f39755eae629&amp;img_etag=%220b91e652e79994469202582a83e8374c%22&amp;size=1024)
+
+CCP在新疆还进行严格的全民监控，人权观察的最新报告以新证据说明新疆的监控国家机器，当地1300万突厥裔穆斯林正遭中国政府以「严打暴恐活动专项行动」之名加强镇压。从2018年1月到2019年2月，人权观察对一种公安机关使用的手机APP进行逆向工程研究。该APP可以连结一体化联合作战平台（一体化平台），即新疆警方汇集个人数据、标示潜在威胁人员的警务方案。警察对维吾尔人精细化管理，甚至对每家每户的用电量进行监控，防止自制炸弹。维吾尔人在公开场合会被当成重点监视对象，会被随意抽查证件，没收手机，手机上有whatsup twitter等社交软件都会被拘留。
+
+**视频-人权观察：新疆大规模监控如何运作**
+
+
+
+警察对维吾尔人进行肆意逮捕，不需要任何理由进行拘留，关押进所谓的再教育中心，实际就是集中营。在里面对维吾尔人进行非人的虐待，包括遭到殴打和往体内注射不明液体。
+
+**视频-BBC：新疆再教育营幸存者控诉被打和注射液体**
+
+
+
+维吾尔族人还被强迫当成劳工。BBC获得的资料显示，在新疆地区，有大量少数民族人士在当局的要求下「被迫」采摘棉花。中国的棉花产量占世界总产量的五分之一。这些证据显示，该行业对强迫劳动的依赖程度可能远比此前所想的要高。
+
+**视频-BBC：中国棉花行业背后的维吾尔人强迫劳动**
+
+
+
+**[🔗The Spectator：西方世界应该如何面对中国维吾尔强迫劳工的问题](https://www.spectator.co.uk/article/what-the-west-can-do-about-chinas-uyghur-labour-camps)**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/VelTdskxQyqmL/images/9e9f7cb5-b753-4cd8-9707-b50f0373694e.png?asset_id=11b8c2e8-783a-4b75-aa18-76bbe36e360a&amp;img_etag=%22f54ee12d50d8e547c8628fce34ff1861%22&amp;size=2560)](https://spark.adobe.com/page/VelTdskxQyqmL/images/9e9f7cb5-b753-4cd8-9707-b50f0373694e.png?asset_id=11b8c2e8-783a-4b75-aa18-76bbe36e360a&amp;img_etag=%22f54ee12d50d8e547c8628fce34ff1861%22&amp;size=1024)
+
+根据the Spectator 的这篇报道，新疆使用维吾尔人强迫劳动的工厂，为诸多国际品牌提供原材料和加工服务，这些品牌包括Hugo Boss、Adidas、Muji、Uniqlo、Costco、Caterpillar、Lacoste、Ralph Lauren and Tommy Hilfiger。 在新疆强迫劳工的情况不仅限于服装产业，包括可口可乐、苹果公司以及大众汽车都在新疆直接开设工厂或者采购了来自新疆工厂的零部件，而这些工厂都无法避免使用了维吾尔族人强迫劳动的情况。所以这些大公司在美国国会不惜下重金进行游说，希望削弱国会调查并制裁新疆强迫劳工的法案。
+
+**[🔗纽约时报：耐克和可口可乐寻求削弱新疆强迫劳动法案](https://cn.nytimes.com/business/20201130/nike-coca-cola-xinjiang-forced-labor-bill/)**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/VelTdskxQyqmL/images/a96fc413-8628-4724-84fb-fed756c452d6.jpg?asset_id=0fcf10a4-c3e2-4baa-ae6f-2bb4164e3325&amp;img_etag=%22b62b58eb1c8ddde00a221adb30c30357%22&amp;size=2560)](https://spark.adobe.com/page/VelTdskxQyqmL/images/a96fc413-8628-4724-84fb-fed756c452d6.jpg?asset_id=0fcf10a4-c3e2-4baa-ae6f-2bb4164e3325&amp;img_etag=%22b62b58eb1c8ddde00a221adb30c30357%22&amp;size=1024)
+
+尽管有CCP的蓝金黄策略在西方竭力掩盖真相，加上华尔街势力在美国的鼎力相助。但在新疆犯下的罪行被美国定性，国际社会抵制中共罪行的呼声越来越高。国际社会对非法政权常用的第一步动作都是经济制裁，英国、美国已经有团体推动立法，进一步限制中共国的企业。
+
+**[🔗以色列报：30名拉比和社区领袖支持法案，要求停止中共在新疆对维吾尔人的压迫](https://jewishnews.timesofisrael.com/30-rabbis-and-community-leaders-back-bill-urging-end-to-uyghur-persecution/)**
+
+前国务卿蓬佩奥对中共种族灭绝行为的宣判，就是悬在CCP头顶的又一把利剑，CCP必将成为过街老鼠，人人喊打，最终被踢出历史舞台。CCP，你完了！
+
+
+
+**[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)**
+
+**[点击观看英国伦敦喜庄园在G-TV的精彩直播视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)**
+
+**[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)**
+
+编辑：[**【英国伦敦喜庄园编辑部】**](https://spark.adobe.com/page/VelTdskxQyqmL/)
+[!\[\]()!\[\](https://spark.adobe.com/page/VelTdskxQyqmL/images/288cee13-b396-4731-a490-e79f5dfa6649.jpg?asset_id=d9642d50-d293-4d69-9169-3d42dd1a6870&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/VelTdskxQyqmL/images/288cee13-b396-4731-a490-e79f5dfa6649.jpg?asset_id=d9642d50-d293-4d69-9169-3d42dd1a6870&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+0
