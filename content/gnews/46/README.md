@@ -1,11 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2/11/2021【文贵看春晚精选】闫丽梦博士：如果119我不站出来将会有更多人因病毒而死亡
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/908042/)
+## 【每日快讯】14/02/2021:川普总统弹劾案失败 川普被认定无罪
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/908139/)
 
-By： 【秘密翻译组 G-Translators】
+**制作:Cantonese工作室**
+播报: 【鱼摆摆（文驋）】
+资料收集: 【郁金香】
+视频制作: 【Shawn】
+海报制作: 【侬民】【文绉绉】
+上传: 【Shawn】
+**摘要:**
 
-
-
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210214-zhTW-01.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210214-zhTW-02.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210214-zhTW-03.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210214-zhTW-04.jpg)
 0
