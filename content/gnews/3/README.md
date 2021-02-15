@@ -1,43 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】英国支持美国 呼吁中共提供新冠病毒爆发的原始数据
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/907900/)
+## 普京就俄日关系发表讲话
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/907914/)
 
-作者：纽约香草山写作组 Wilson
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭ССР
 
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-15_02-04-21.jpg)[eurasiatx.com](http://eurasiatx.com/russia-japan-intergovernmental-commission-meet-nov-17/)
+2月14日，俄罗斯谋求发展与日本的关系，但不会为此而违反宪法。俄罗斯总统普京这样说，据《俄罗斯1台》报道。
 
+“我们希望发展与日本的关系，并将继续发展，但我们不会做任何与俄罗斯联邦基本法相违背的事情。”他说。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+普京还建议记者，应向俄罗斯外长谢尔盖·拉夫罗夫询问两国关系，他将解释“哪里是划界，哪里是分界”。
 
+库页岛是俄罗斯和日本之间长期争执的问题。由于第二次世界大战的结果，有争议的领土转给了苏联，东京认为它被侵占了。1956年苏日宣言后，俄日之间没有签订和平条约。
 
+日本首相菅义伟2月初表示，东京将继续与俄罗斯就南部库页岛的所有权问题进行谈判。首相还对俄日之间从未签署过和平条约表示遗憾。
 
-印度[斯番时报](https://www.hindustantimes.com/world-news/uk-thoroughly-supports-biden-over-call-for-china-to-release-covid-19-data-101613320941234.html)2月14日报道，英国首相鲍里斯·约翰逊支持美国总统乔·拜登呼吁中（共）国提供有关新冠病毒爆发的原始数据。此前，白宫对世卫组织的调查表示了深切的担忧，称调查结果必须不受中（共）国政府的干预。
+参考链接：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/103.jpg)
-
-最近访问中（共）国的世卫组织调查人员得出结论，冠状病毒不太可能是从武汉市的一个实验室泄漏。但于13日，世卫组织似乎不再完全拒绝实验室泄漏理论。总干事谭德塞在简报会上表示，所有研究渠道仍然开放。
-
-约翰逊在今天接受采访时表示，了解疫情起源至关重要。他说：“是在海鲜市场吗？它来自蝙蝠吗？蝙蝠与穿山甲有关吗？所有这些问题现在都是猜测的问题。我们需要查看数据。我们需要查看所有证据。因此，我完全支持拜登总统对此的看法。”
-
-人命关天！截至今日，中共病毒已夺去超过240万人的生命，近1.1亿人被感染，全球经济处于崩溃的边缘。如果中共病毒传播得不到有效扼制，次生灾害、人道灾难或即将在全世界范围內爆发。
-
-各国政府和全球精英已经逐渐认同闫丽梦博士的观点，即对病毒进行彻底的追根溯源是解决病毒问题的唯一办法。因此，中共在病毒问题上的勾兑收买难度将越来越大，中共离最终灭亡越来越近。
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
+[https://www.rbc.ru/rbcfreenews/602908af9a794758b0ae7ebf](https://www.rbc.ru/rbcfreenews/602908af9a794758b0ae7ebf)
 
 +1
