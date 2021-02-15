@@ -1,62 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2/14/2021 财经快讯：欧洲最大证券交易中心易主，摩根大通或将进入比特币市场
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/907339/)
+## 前民进党政要公投是台湾价值。是否成为在台推和统公投铺路？
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/907403/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/2021-02-14_235845.png)图片来源： https://www.ft.com/
-**1.摩根大通将在某时进入比特币市场**
+台湾筹备农场 zhong
 
-摩根大通联席总裁丹尼尔·平托（Daniel Pint）周五表示，摩根大通是否决定推出比特币服务，将取决于客户对比特币交易的需求。虽然目前的需求还不够强劲，不过平托对需求的进一步增长有信心，他表示，如果发展出一种资产类别，不同的资产管理公司和投资者将去使用它，那我们将不得不参与进来，相信在某个时候会达到这个需求。
+[风传媒新闻链接](https://www.storm.mg/article/3474607)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20200311-015428_U6571_M597933_9e05.jpg)
+（图片来源风传媒，图片人物为前民进党秘书长罗文嘉）
 
-[https://ishare.ifeng.com/c/s/v004wtvL2yVnvjtYWT—1zwBF052AzYwv70SRTtkPrtK21kDZk-\_GXXVxiXyJFDe6bENCVcLsypwBuLOdl1BdsXmNeA\_\_\_](https://ishare.ifeng.com/c/s/v004wtvL2yVnvjtYWT---1zwBF052AzYwv70SRTtkPrtK21kDZk-_GXXVxiXyJFDe6bENCVcLsypwBuLOdl1BdsXmNeA___)
+**前民进党秘书长罗文嘉：公投为台湾价值，民进党应尊重**
 
-**2.欧洲最大证券交易中心易主：阿姆斯特丹取代伦敦**
+发表此言论者为民进党前秘书长，而之所以会说公投为台湾价值，是因为上次总统大选同时举行十项公民投票案。其中，有一公投案是针对台湾未来能源政策。政府立场希望未来台湾废核，转以绿能发电。而人民立场因为现今台湾倚赖火力发电，且火力发电厂老旧、引发许多环境议题，故人民通过公投结果希望政府未来能源政策仍然以核能发点为主。
 
-德新社伦敦2月11日报道，根据周四公布的最新数据，上月在阿姆斯特丹的股票交易量已超过在伦敦股票交易量，伦敦因英国脱欧失去了欧洲最大证券交易中心的地位。在去年12月31日英国脱离欧盟单一市场后，1月份，伦敦的日均交易金额降至86亿欧元。由于达成的脱欧后贸易协议中没有金融服务协议，这导致总价值近65亿欧元的股票交易离开伦敦，一夜之间转向欧洲其他市场。
+即便公投结果显示人民多数支持台湾未来继续发展核能发电，藉由核能发电支撑台湾用电、晶圆制造产业用电等需求。但民进党政府并未依照公投结果在台湾能源政策上倚赖核电。
 
-[https://ishare.ifeng.com/c/s/v004V9IpxxMplAst81Cb0IZNIDzjncw2ZnfKYUuNqLUueVWx–6dsMx7cP8-dcEva2X7ewnRKmfdSxTCIUxuwidJwyA\_\_\_](https://ishare.ifeng.com/c/s/v004V9IpxxMplAst81Cb0IZNIDzjncw2ZnfKYUuNqLUueVWx--6dsMx7cP8-dcEva2X7ewnRKmfdSxTCIUxuwidJwyA___)
+因此，前民进党秘书长才会发表此言论。但经郭先生爆料，在台共匪、国民党早已经计画利用民主程序，在台湾推动签署两岸和平协议公投，进一步出卖台湾、消灭台湾民主存续可能。
 
-**3.字节跳动或将TikTok印度业务售予当地竞争对手Glance**
+综合观之，距离上次公投结果出炉、政府不依照公投结果行事已经有一大段距离。而在此敏感时刻，前秘书长罗文嘉却对外表示民进党应尊重公投结果。
 
-据路透社2月13日报道，彭博援引知情人士称，字节跳动据称正寻求将TikTok的印度业务出售给当地竞争对手Glance。由日本软银集团发起的讨论是私下进行的，目前仍处于早期阶段，并且较为复杂。
+是否此举是为了激起台湾人民要求政府完全依照公投结果行事做铺垫？
 
-Glance公司在获得谷歌和现有投资者秘银资本（Mithril Capital） 1.45亿美元的投资后，进入了 “独角兽” 俱乐部。Glance除了拥有自己的锁屏内容产品外，还拥有并运营着印度短视频内容平台罗波索（Roposo）。Glance安卓智能手机的锁屏上以多种语言提供人工智能驱动的个性化内容，内容包括流行新闻、娱乐、体育、时尚和新闻等类别。
+**执政政府未依照公投结果执政，经大法官解释为「合宪」，勿过度、不理性的解读**
 
-[https://finance.sina.com.cn/chanjing/gsnews/2021-02-13/doc-ikftssap5651428.shtml?cref=cj](https://finance.sina.com.cn/chanjing/gsnews/2021-02-13/doc-ikftssap5651428.shtml?cref=cj)
+所谓「民主国原则」，意思是所有国家行为皆应与人民意思有直接或间接连结。但并不代表政府需要完全依照人民意思行事，否则民主将变成民粹。
 
-**4.马克·扎克伯格说Facebook不得不在隐私战争中给苹果“造成痛苦”**
+凡事有关到专业事项，政府与人民因资讯不对等，且对于专业事务了解程度不同，故政府对于特定专业事项应享有一定程度的裁量权限。
 
-最近有报道称，Facebook首席执行官马克·扎克伯格告诉员工，在这两家硅谷巨头之间持续的隐私纠纷中，Facebook需要给苹果造成“痛苦”。
+而上次公投案，结果希望政府继续发展核电作为台湾未来主要能源政策。但核电厂攸关全民性的重大公共利益，又核电厂等事项属高度专业性、核电厂运作和建设涉及经费安排。因此，即便经过全民公投，政府还是有相当权利可以决定是否遵循公投结果。
 
-布莱巴特新闻广泛报道了最新的科技巨头大战，Facebook和苹果就即将推出的苹果隐私保护功能展开了较量。据报道，脸书计划将苹果告上法庭，指控其iOS 14系统的隐私保护功能涉及反垄断。指控苹果“强迫应用程序开发者遵守苹果自己的应用程序不必遵守的App Store规则，滥用其在智能手机市场的权力。”
+因此，千万不要将不遵守公投结果与极权做直接连结。
 
-[https://www.breitbart.com/tech/2021/02/13/report-mark-zuckerberg-said-facebook-has-to-inflict-pain-on-apple-in-privacy-war/](https://www.breitbart.com/tech/2021/02/13/report-mark-zuckerberg-said-facebook-has-to-inflict-pain-on-apple-in-privacy-war/)
+若读者对这方面法律知识有兴趣，可以再之后特别写篇文章做解释。
 
-**5.澳大利亚立法者拒绝对谷歌的威胁视而不见**
+[更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-据美联社报道，澳大利亚议会将讨论强制谷歌和Facebook为其内容向新闻出版商付费，此前参议院委员会于周五建议不修改迫使科技巨头向出版商支付费用的法律草案。自去年12月在国会提出该法案以来，参议院经济立法委员会一直在仔细审查该法案。
+文章审核：zhong
 
-[https://www.breitbart.com/tech/2021/02/12/australian-lawmakers-refuse-to-blink-after-google-threats/](https://www.breitbart.com/tech/2021/02/12/australian-lawmakers-refuse-to-blink-after-google-threats/)
-
-**6.华为将汇丰告上法庭，试图阻止引渡**
-
-华为公司最近大动作不断。当地时间12日，据英国广播公司报道，中共国华为公司首席财务官孟晚舟的律师将向伦敦高等法院提出诉讼申请，以获取汇丰银行包括账簿在内的关键文件。
-
-据报道，华为此举意在证明，美方指控孟晚舟“隐瞒”华为与香港星通技术有限公司关联，误导汇丰银行继续向华为提供服务的情况不属实，从而阻止孟晚舟被从加拿大引渡到美国。
-
-[https://www.sohu.com/a/450625090\_465270?scm=1004.759016887454728192.0.0.0&spm=smpc.ch15.top-news-1.1.1613257697586fAlpM3W](https://www.sohu.com/a/450625090_465270?scm=1004.759016887454728192.0.0.0&amp;spm=smpc.ch15.top-news-1.1.1613257697586fAlpM3W)
-
-**7.油价最新调整消息，春节后或将继续上涨**
-
-上周油价继续上涨之后，年前的油价调整定格在连续6次上涨，这期间共上调油价超过870元/吨，按照升来算就是年前油价连涨了0.71元/升-0.85元/升。标号越高涨的越多，至少都上涨超过7毛/升。新一轮油价调整将在年后的2月18日24时进行，目前预计涨幅已经达到105元/吨(0.08元/升-0.10元/升)，而且目前国际油价还在涨，恐怕涨幅会继续增加。
-
-[http://www.afinance.cn/new/gncj/202102/2540270.html](http://www.afinance.cn/new/gncj/202102/2540270.html)
-
-By 【金融组-Tracy】
-
-素材搜集: Totoro、文罡
-
-校对: 小蚂蚁在行动
+发布者：Little Liu
 
 0
