@@ -1,43 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武毒所的蝙蝠饲养笼专利打脸打杂客
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/907971/)
+## Project Veritas推特账号于2月10日突遭永久封杀
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/908046/)
 
-***加拿大多伦多枫叶农场 文锦***
+#### 作者：wenwu 
+素材：文真真
+校对： 温哥华圆成农场 比卡丘
 
-据英国《每日邮报》（Daily Mail）2月13日报道，武汉病毒学研究所（简称武毒所）于2018年6月15日申请了一项“能够在人工条件下健康生长和繁殖”的“一种食虫蝙蝠饲养笼”专利（简称蝙蝠笼专利）。该专利已于中共病毒疫情爆发之前的2019年1月4日获批。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/屏幕截图666.png)[图片来源](https://patents.google.com/patent/CN208317981U/zh?q=bat+cages&amp;before=priority:20190201&amp;after=priority:20180601&amp;language=CHINESE): Google Patents
-蝙蝠笼专利中包含了大量关于喂养、饮水和饲养条件的细节，称这些动物是 “根据需要捕获的，在采集（所需）样本或暂时饲养（一段时间）后释放”。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Cover-15.jpg)
 
-2019年11月武毒所申请了一项专利，用于治疗在生物安全实验室处理病原病毒时受伤的装置。申请专利的研究人员在武毒所工作了10多年，其中有一位曾参与研究蝙蝠的冠状病毒。这种专门的止血带装置，被设计用来缠绕在病毒学实验室事故中出血的人手指上。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/屏幕截图668.png)[图片来源](https://patents.google.com/patent/CN110755127A/zh?assignee=%E4%B8%AD%E5%9B%BD%E7%A7%91%E5%AD%A6%E9%99%A2%E6%AD%A6%E6%B1%89%E7%97%85%E6%AF%92%E7%A0%94%E7%A9%B6%E6%89%80&amp;after=priority:20191101&amp;language=CHINESE&amp;page=1): Google Patents
-武毒所于2020年10月16日申请了另一项专利——一种野生食虫蝙蝠的人工养殖方法（简称蝙蝠养殖法专利）。该专利讨论了中共冠状病毒从蝙蝠到人类和其他动物的跨物种传播，并说，“自然或人为感染病毒的蝙蝠没有明显的临床症状，其机制尚不清楚”。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/屏幕截图665.png)[图片来源](https://patents.google.com/patent/CN112205352A/zh): Google Patents
-其中明确指出该方法是用于科学实验的蝙蝠繁殖，“本发明旨在提供一种野生食虫蝙蝠的人工繁殖方法，其目的是克服现有技术中的缺陷，对野生食虫蝙蝠进行人工驯化、繁育和传代。以建立人工繁育群，从而为科学研究提供了一种全新的实验动物模型。”
+据《门道专家》（Gateway Pundit）网站的作者克里斯蒂娜·莱拉（Cristina Laila)2月11日报道，推特以Project Veritas违反其“发布私人信息”的规则，永远禁止该账号再次进入推特。这表明，平民的言论自由已受到来自媒体平台的制裁，而非来自法律！
 
-专利中指出了技术方案：一种野生食虫蝙蝠的人工繁殖方法，包括制备蝙蝠饲料、用捕食性昆虫驯化亲本蝙蝠、用捕食性昆虫越冬、用捕食性昆虫人工繁殖蝙蝠、用捕食性昆虫断奶和用捕食性昆虫繁殖蝙蝠6个步骤。
+（美国知名爆料网站Project Veritas放出脸书内部爆料人提供的视频：https://www.projectveritas.com/news/facebook-insider-leaks-hours-of-video-of-zuckerberg-and-execs-admitting-they/）
 
-**蝙蝠笼专利打脸打杂客（Peter Daszak****）**
-![]()![](https://gnews.org/wp-content/uploads/2021/02/下载-16.jpg)图片来源: Reuters
-2020年4月，世卫组织赴中共国调查小组的砖家打杂客曾回答有关研究人员是否保存活蝙蝠的问题，“研究人员不保存蝙蝠，也不杀死蝙蝠。采样后，所有蝙蝠都被放回洞穴。这是一种保护措施，在疾病传播方面要比杀死它们或试图将它们保留在实验室中更为安全。”
+在该报道中，1月21日勇敢的脸书内部爆料者向Project Veritas提供会议录音，其中罗森（Rosen）在录音中解释说，这是他们“保护选举的努力”的一部分。也就是说，脸书高层涉嫌违法，即利用媒体平台宣传机器来影响美国总统大选的结果。
 
-2020年12月，打杂客称他曾在武汉工作过15年的实验室 “其中没有活的或死的蝙蝠。任何地方都没有证据表明发生了这种情况” 。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/image-89.png)（图片来自Gateway Pundit网站，推特封杀了脸书内部会议的内容）
 
-中共刻意掩盖了武毒所的秘密，因此很难确定将专利转化为实践的程度，但是实验室工作的在线传记指出，研究人员有能力保留12个蝙蝠笼以及12个雪貂笼子。
+另一方面，据网友爆料【如下图】，脸书还封禁了与病毒真相有关的爆料革命游行示威活动，还有脸书也封禁了闫丽梦博士的中共制造中共病毒传播世界等相关新闻媒体的报道。其中也包括脸书旗下的INSTAGRAM，这些媒体平台的手上都有因中共病毒而死的无辜者的血债。
 
-对于此专利的曝料，打杂客拒绝置评。
+目前，美国因中共病毒死亡的人数已超过48.86万人，唯有病毒的真相才可以带给他们公平，给活着的人了解到人类目前生存的真正威胁是在哪里！（文章仅代表读者观点）
 
-**评：**
-
-专利网站清晰记录了武毒所申请蝙蝠笼专利早在中共病毒疫情爆发之前。中共未公布疫情前，武毒所就申请了包扎专利，说明已经在实施蝙蝠饲养，且针对实验室内受伤而发明的。蝙蝠养殖法专利表明武毒所不仅秘密养殖蝙蝠，还研究出一套方法。
-
-这些都揭露了中共的虚假、乱甩锅的宣传，揭露了打杂客等世卫组织成员与中共沆瀣一气，毒害全人类。随着中共疫情蔓延，世界不断在寻找病毒真相，真凶一定会受到应有的惩罚！
-
-*[原文链接](https://www.dailymail.co.uk/news/article-9257413/amp/Secret-bat-cages-Wuhan-lab-researchers-planned-breed-animals-virus-experiments.html)*
-
-**校对 小鸥**
-
-**发稿 文锦**
+原文链接：https://www.thegatewaypundit.com/2021/02/twitter-censors-project-veritas-report-facebook-censorship-says-violated-rule-posting-private-information/
 
 0
