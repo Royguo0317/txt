@@ -1,39 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 台湾防疫指挥官：马英九可能与中共有接触
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/908940/)
+## 2021年2月14日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/909060/)
 
-台湾筹备农场 zhong
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-[三立新闻网新闻链接](https://www.setn.com/News.aspx?NewsID=897405)
-![]()![](https://gnews.org/wp-content/uploads/2021/02/2015_Ma–Xi_Meeting_08-1.jpg)
-(图片来源为维基百科)
+2月14日：比爹娘还亲的……无 无 无 无 产阶级的共．共 共 共 产党，是世界上最大的诈骗谎言集团，如果人们活了一辈子，连这个还没看明白的人，那就是受到了上天最大的惩罚…… 【转自人民网！ 茂名市副市长杨光亮房产140套，现金12亿； 楚雄州长杨红卫房产230套，现金17亿； 杭州市副市长许迈永房产250套，现金14亿； 山西蒲县煤炭局长郝鹏俊房产350套，现金30亿； 山东副省长黄胜房产460套，现金90亿美元； 浙江省药监局长黄萌房产840套，现金20亿……[http://www.people.com.cn/n/2012/0627/c33232-18391823.html](http://www.people.com.cn/n/2012/0627/c33232-18391823.html)】
+![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-38-58.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-00.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-02.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-05.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-07.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-09.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-15.jpg)
+[【2021年2月14日】文贵先生盖特原文](https://gtv.org/getter/6029fddc226e775907441a41)
 
-**马英九坚持台湾应采用中共疫苗**
-
-台湾确定自数家国际疫苗厂取得疫苗，而同时台湾政府表示绝对不考虑中共疫苗。然而，马英九、赵少康以及其他国民党人士不断透过新闻媒体煽动朝野的纷争，施力点即在于「是否接受中共疫苗」。
-
-马英九主张：现在宣称买到的疫苗还需要等好几个月，若中共欲提供疫苗，台湾不应马上拒绝。
-
-对此，有人开始怀疑马英九此番言论是否代表中共已经与台湾政府有接触？
-
-然而，台湾防疫指挥官陈时中表示，可能是马英九有与中共接触，台方并未有与中共接触洽谈疫苗之事。
-
-在台匪类一系列夸张行径，不仅人民受不了，连一向温和理性的官员都忍不住加以反击，并透过公开方式将共匪名义冠在马英九、国民党头上。
-
-**台湾农场吉祥物游行「大吸睛」！**
-
-台湾农场近日采吉祥物游街方式游行，吸引到许多民众围观拍照，且许多民众主动索取揭露疫情真相的宣传单，这是台湾农场在台宣传真相非常大的进步。
-
-或许，配合现在的时事，台湾农场持续以此方式推动，可以使爆料革命的力量正式深入台湾社会。
-
-[更多台湾农场精采文章](https://gnews.org/zh-hant/author/taiwangnews/)
-
-[更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-
-文章审核：zhong
-
-发布者：Little Liu
+**喜联盟Gnews编辑部**
 
 0
