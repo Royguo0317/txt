@@ -1,51 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】FDA将允许Moderna增加单支疫苗剂量
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/909745/)
+## 英国政府考虑强行接种CCP病毒疫苗
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/909804/)
 
-作者：纽约香草山福音部 Daxia
+***加拿大多伦多枫叶农场 文所未闻***
+![]()![](https://gnews.org/wp-content/uploads/2021/02/kj.jpg)图片来源： The Ohio State University Wexner Medical Center
+据真知网站（True Pundit）2月11日文章，有报道称英国政府正在酝酿一项计划，派出国会工作人员去挨家挨户访问那些拒绝接受CCP病毒疫苗的家庭，达到强迫注射疫苗的目的。
 
+《伦敦地铁报》报道，疫苗部长纳迪姆·扎哈维（Nadhim Zahawi）告诉国会议员们，他想去甄别那些得到疫苗但拒接注射的个人。该报告解释说，这一计划是在为数众多对疫苗持怀疑态度的情况下开始酝酿的。扎哈维说，国会工作人员是去了解为什么人们拒绝接受CCP病毒疫苗，同时想办法说服他们改变主意。扎哈维拒绝透露政府如何知道谁没有注射CCP病毒疫苗，但是他在一次BBC电台节目中承认过，每个已经注射CCP病毒疫苗的人已经在一个国家免疫接种系统登记。扎哈维说，“我们肯定会想办法解决这个拒绝接种疫苗比率问题。”
 
+尽管扎哈维吹嘘英国人对CCP病毒疫苗有着很高的接受度，但是事实显示，有两成社工人员拒绝接种CCP病毒疫苗。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+***评：***
 
+截止今日，CCP病毒已经全球造成超过1亿9百万人感染，超过240万人死亡。在病毒肆虐下，各国封国封城，经济遭受重大打击，民生遭受极大影响。在这种形势下，很多政府寄希望于疫苗，一方面希望疫苗可以解决CCP病毒问题，另一方面，通过疫苗经济来受益。但是，正如闫博士指出的那样，CCP病毒不是自然界病毒，而是超限生物武器，传统的疫苗不但无法解决病毒，而且其后果未知。当前频频报道的因注射CCP病毒疫苗致死的例子层出不穷，就用事实验证闫博士的观点是科学的，有理有据。
 
+一方面CCP病毒肆虐，人们几近崩溃；一方面疫苗死亡事件频发，人们对疫苗并不放心；再此之上，如果政府强制注射CCP病毒疫苗，势必更加激化民众反抗，社会动乱。在相对民主和自由的社会里，笔者不认为这些政府强制性措施能成功进行。同时，随着越来越多的政府，科学家和普通民众都慢慢意识到这不是源于自然，要求真相的呼声越来越高，对疫苗的抵制只会越来越强。
 
-《[纽约时报](https://nypost.com/2021/02/12/fda-grants-moderna-permission-to-increase-doses-in-each-vial-from-10-to-14-report/?utm_campaign=iphone_nyp&amp;utm_source=pasteboard_app)》报道，Moderna与美国食品和药物管理局（FDA）正在讨论，有关增加单支疫苗剂量的可能性，希望将COVID-19疫苗的剂量从每瓶10增加到14。
+英国首相最近施压，要求中共政府提供病毒原始数据，是作秀，还是真正开始反击呢？虽然我们需要拭目以待，看看今后是否有实质动作。但是根据上面的分析，笔者相信这是向CCP讨伐的开始，而且刻不容缓。因为在更多和更清晰的真相面前，他们知道了，除了找CCP问责、拿数据、找解药，没有任何其他方法可以真正和彻底地解决这个可能毁国、毁人类的病毒问题。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/105.jpg)图源网络
+*[原文链接](https://truepundit.com/uk-government-considering-knocking-on-doors-of-vaccine-refusniks-report/)*
 
-Moderna生产能力的最大限制之一是疫苗的灌装数量。为了最大化资源以及最大化接种机会，更快地将更多的疫苗投放到每个市场，Moderna希望能提升单支疫苗剂量。
+* * *
 
-Moderna目前提供了美国大约一半的疫苗供应。增加单支剂量方法简单，每瓶增加的剂量并不需要使用的额外的瓶子。生产上的调整仅需要两到三个月的时间来实现。
-
-乔·拜登（Joe Biden）周四表示，美国将在7月底之前由Moderna和Pfizer提供6亿多支COVID-19疫苗，足以让几乎每个美国人完全接种。
-
-“我们又与Moderna和Pfizer签署了各1亿支疫苗的最终合同。”拜登当天也在美国国立卫生研究院说，“我们还能够将另外2亿支疫苗的交付日期提前到7月底，比我们预期的要快。”
-
-FDA目前正在考虑第三家制药公司强生（Johnson & Johnson）的COVID-19疫苗紧急使用授权申请。
-
-Moderna已签订的合同中，会向美国供应3亿支疫苗，并向世界其他各国总计供应3.415亿支疫苗。
-
-根据CDC的数据，到目前为止，在美国已经分发了69,014,725支疫苗，其中48,410,558支疫苗已被注射。
-
-当前，COVID-19变种病毒继续在全世界迅速蔓延。如果世界都无法避免注射这些所谓的“疫苗”，那么人类又将会得到怎样的一种结果。强烈呼吁世界上有良知的医学界科学家们站出来，勇敢说“不！”拯救人类！就象天使闫丽梦博士说的，“留给人类的时间真的不多了。”
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
+*校对、发稿 文锦*
 
 0

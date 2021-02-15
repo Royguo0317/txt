@@ -1,40 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 包工头50米塔吊向官府讨薪，中共警方：恶意讨薪，行拘十天
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/909755/)
+## 【热点播报】FDA将允许Moderna增加单支疫苗剂量
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/909745/)
 
-翻译：乐禧禧 | 校对：yyshere| 字幕：雨中漫步|评论：胖丁|评论翻译: Mike hua|PR:小小妹
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/02/601fe3bfe4b065382b5f90e5.jpg)
-
-中共国流行跨界，商人拍电影、出唱片，明星扮政客、表忠心，粉饰太平。
-
-春节前夕，一位建筑工地的包工头迫不得已，也跨界演绎了一次杂技，在没有任何防护的情况下，徒手爬上50米高的塔吊向工地负责人讨要欠薪。
-
-可惜他没有博得满堂彩，反而被警方以“恶意索要工程款”的罪名，行拘10天。
-
-中共擅长曲解词义来定罪他人。何为“恶意”讨薪？以劳动换取收入，天经地义，但是在中共非法政权的统治下，老百姓的合法收入没有保障，付出的劳动得不到相应的报酬。
-
-正常的讨薪无人理睬，不得已采取的行为被定义为“恶意讨薪”。这就是中共国特色，欠薪的不是“恶意欠薪”，讨薪的却成了“恶意讨薪”。
-
-如果不是被逼到无路可走，讨薪者会不惜以自己的生命为代价，徒手爬上50米高的塔吊吗？
-
-如果失手掉下来，他自己的命没了，欠他薪水的人会把钱还给他的家人吗？
-
-警方可以花费4个小时劝解讨薪者息事宁人，却不能劝解工地负责人签一张还款的支票。最终结果，欠薪者逍遥法外，讨薪者行政拘留。
-
-![Bildergebnis für 包工头50米塔吊向官府讨薪，中共警方：恶意讨薪，行拘十天]()![Bildergebnis für 包工头50米塔吊向官府讨薪，中共警方：恶意讨薪，行拘十天](https://n.sinaimg.cn/sinacn10117/209/w617h392/20200111/2f48-imztzhm7885796.jpg)
-
-老百姓不出来打工会饿死，但是打工挣到的钱也不一定能够拿到，最基本的生活没有保障，也无处申冤。
-
-老百姓不出来打工会饿死，但是打工挣到的钱也不一定能够拿到，最基本的生活没有保障，也无处申冤。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+作者：纽约香草山福音部 Daxia
 
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
+
+《[纽约时报](https://nypost.com/2021/02/12/fda-grants-moderna-permission-to-increase-doses-in-each-vial-from-10-to-14-report/?utm_campaign=iphone_nyp&amp;utm_source=pasteboard_app)》报道，Moderna与美国食品和药物管理局（FDA）正在讨论，有关增加单支疫苗剂量的可能性，希望将COVID-19疫苗的剂量从每瓶10增加到14。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/105.jpg)图源网络
+
+Moderna生产能力的最大限制之一是疫苗的灌装数量。为了最大化资源以及最大化接种机会，更快地将更多的疫苗投放到每个市场，Moderna希望能提升单支疫苗剂量。
+
+Moderna目前提供了美国大约一半的疫苗供应。增加单支剂量方法简单，每瓶增加的剂量并不需要使用的额外的瓶子。生产上的调整仅需要两到三个月的时间来实现。
+
+乔·拜登（Joe Biden）周四表示，美国将在7月底之前由Moderna和Pfizer提供6亿多支COVID-19疫苗，足以让几乎每个美国人完全接种。
+
+“我们又与Moderna和Pfizer签署了各1亿支疫苗的最终合同。”拜登当天也在美国国立卫生研究院说，“我们还能够将另外2亿支疫苗的交付日期提前到7月底，比我们预期的要快。”
+
+FDA目前正在考虑第三家制药公司强生（Johnson & Johnson）的COVID-19疫苗紧急使用授权申请。
+
+Moderna已签订的合同中，会向美国供应3亿支疫苗，并向世界其他各国总计供应3.415亿支疫苗。
+
+根据CDC的数据，到目前为止，在美国已经分发了69,014,725支疫苗，其中48,410,558支疫苗已被注射。
+
+当前，COVID-19变种病毒继续在全世界迅速蔓延。如果世界都无法避免注射这些所谓的“疫苗”，那么人类又将会得到怎样的一种结果。强烈呼吁世界上有良知的医学界科学家们站出来，勇敢说“不！”拯救人类！就象天使闫丽梦博士说的，“留给人类的时间真的不多了。”
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
+
 0
