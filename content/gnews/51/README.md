@@ -1,35 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】澳大利亚或于下月取消维州政府与中共签订的“一带一路”协议
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/908990/)
+## 2021年2月14日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/909060/)
 
-作者：纽约香草山 人间世 校对/发稿：飞虹
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29231938/logo-3-1-1.jpg)
+2月14日：比爹娘还亲的……无 无 无 无 产阶级的共．共 共 共 产党，是世界上最大的诈骗谎言集团，如果人们活了一辈子，连这个还没看明白的人，那就是受到了上天最大的惩罚…… 【转自人民网！ 茂名市副市长杨光亮房产140套，现金12亿； 楚雄州长杨红卫房产230套，现金17亿； 杭州市副市长许迈永房产250套，现金14亿； 山西蒲县煤炭局长郝鹏俊房产350套，现金30亿； 山东副省长黄胜房产460套，现金90亿美元； 浙江省药监局长黄萌房产840套，现金20亿……[http://www.people.com.cn/n/2012/0627/c33232-18391823.html](http://www.people.com.cn/n/2012/0627/c33232-18391823.html)】
+![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-38-58.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-00.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-02.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-05.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-07.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-09.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-15.jpg)
+[【2021年2月14日】文贵先生盖特原文](https://gtv.org/getter/6029fddc226e775907441a41)
 
+**喜联盟Gnews编辑部**
 
-
-澳大利亚总理莫里森（Scott Morrison）近日称，维州与中（共）国签订的“一带一路”协议没有任何好处，或于下月将其废除。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/图片1-31.png)Photo by Rohan Thomson/Getty Images
-澳大利亚维多利亚州州长安德鲁斯（Dan Andrews）于2018年与中共签署“一带一路”谅解备忘录，使北京能够控制维州的关键基础设施并获得资金。维多利亚州是澳大利亚人口第二大州，双方签署的“一带一路”建设框架协议，是中共“一带一路”项目与全球30个国家达成的135项协议之一
-
-莫里森日前对《先驱太阳报》说：“我还没有看到它有什么好处”，“如果存在利益，那么是什么？为了获得这个利益需要付出什么代价？目前我还没有这些问题的答案，但是对协议的评估还在继续。”
-
-澳大利亚联邦政府去年12月通过了《外交关系法》（ Foreign Relations Bill ），联邦外交部长因此有权审查并取消各州（领地）政府、地方议会、公立大学与外国签订的协议。按照法律规定，维州州长安德鲁斯必须在3月10日之前向联邦政府说明其与外国势力达成的所有协议，然后由联邦政府对这些协议进行评估。
-
-假如这项协议果真于下月被取消，澳大利亚与中共的关系势必进一步恶化。此举对于其他与中共签订“一带一路”的国家来说，也具有某种示范效应。为了防止他国“争相效仿”，中共届时必然会做出激烈反应。无论如何，澳中关系短期内没有改善的希望。
-
-自川普总统卸任以来，就“反共”而言，英国和澳大利亚大有赶超美国的趋势。相比之下，同为英联邦国家的加拿大则不甚积极。世界越早意识到灭共的必要性，为灭共付出的代价越小。我们期待跨越国界的反共势头越来越猛。
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-+1
+0
