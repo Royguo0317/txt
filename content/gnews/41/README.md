@@ -1,44 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生五月花联欢I接下来将推出三首音乐灭共歌曲
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/910867/)
+## 中国的私人企业家们，你们动动脑子吧，醒醒吧！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/910348/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/封面一.jpg)
-编辑整理：
+新闻简述：在2021年2月15日的第一次Getter视频中，郭先生爆光中共白手套马云和中共打手傅政华的下场，并奉劝中国的私人企业家们：“你们动动脑子吧，醒醒来吧！”
 
-华盛顿DC农场：YIMING（文鸣）
+**中国的私人企业家们，你们动动脑子吧，醒醒吧！**
 
-法国巴黎七星农场：枫丹白露
+**Chinese Private Entrepreneurs, Use Your Brains, Wake up!**
 
-2021年2月12日大年初一郭文贵先生做客[喜马拉雅波士顿五月花农场新春联欢会](https://gtv.org/video/id=60271f41be64150df8540315)，谈到了一系列的话题，本系列将根据郭先生与主持人互动的不同主题逐一上传，以下为本系列第一部分——接下来将推出三首音乐灭共歌曲
+昨天晚上醒来其中一次，原来代表马云的香港某律师给我打电话，吓我一大跳。一打电话说：“郭先生啊，不要再提马云了，Jack了。”我说，啥意思啊？我说这大过年的，啥意思啊？他说就是因为你们爆料革命老说马云，结果中纪委还有国家安全委员会，让马云坐出来，背后拿枪顶着坐在椅背上，在双规的地点面对摄像机，所谓的出来露了露面。他说不要再搞了，不要再提了。我说我没心情提 Jack 马，我说头两天有一个马云的前女友，因为给他生了个孩子，我原来说过，帮助他照顾的就是我一个哥们，找不着人了，说家里的钱房租都没人付，找我来了。我给你给我说啥？马云的事，我怎么会知道啊？
 
-据[喜马拉雅波士顿五月花农场新春联欢会](https://gtv.org/video/id=60271f41be64150df8540315)时间点15:30——
+Last night I was woken up by a phone call from a Hong Kong lawyer who previously represented Jack Ma, which scared me. He said in the call, “Mr. Guo, don’t mention Jack Ma again.” “What do you mean?” I said, “What do you mean by calling me during the Chinese New Year?” He said that it was because our Whistleblower Movement always broke the news about Jack Ma. As a result, the Central Commission for Discipline Inspection and the National Security Committee forced Jack Ma to sit on a chair facing a camera with a gun behind his back in a “double designation” (also known as “Shuanggui”) location. It’s called a public appearance. He said, “Don’t mention him anymore.” I said that I was not in the mood for mentioning Jack Ma. I said, a couple days ago, a buddy of mine who was taking care of a Jack Ma’s ex-girlfriend who had a child with Jack contacted me, for there was no one paying her rent anymore. I said, “Why do you tell me? How am I supposed to know anything about Jack Ma?”
 
-如水：好的，非常非常欢迎七哥，
+所以你说共产党让马云出来，让马云的钱连一个房租都付不上，给小女情人的。这抢钱，共产党是天下第一啊。抢了14亿中国人的钱，抢了14亿中国人的未来，就马云这号人连房租现在都不给人家留。所以中国的私人企业家们，你们动动脑子吧，醒醒来吧。
 
-七哥老妹：对的，对的，等七哥上来有两句话想跟七哥说。
+So you tell me. The Communist Party asked Jack Ma to make a public appearance and left him not enough money to pay the rent for his little lover. The CCP is the number one in the world in robbing people’s money! It robbed money from the 1.4 billion Chinese people and also the future of the 1.4 billion people, and didn’t even leave money to someone like Jack Ma to pay the rent. So Chinese private entrepreneurs, use your brains, wake up!
 
-如水：七哥。
+然后更重要的事情，我昨天无意中说了傅政华全家被抓的事。昨天中间两个电话给我打过来：“你看，你说傅政华干嘛？原来有默契的嘛，傅政华不说你，你不说傅政华，傅政华永远不再对你有任何敌意，大家已经坚守了两年了，你干嘛这样啊？”
 
-郭文贵先生：老妹，我们的梅妹，呵呵，如水，两位老妹好。
+Then more importantly, I accidentally disclosed yesterday about the arrest of Fu Zhenghua’s whole family. I received two calls yesterday in the middle [of the broadcast], “Look, why did you talk about Fu Zhenghua? There was an agreement that Fu Zhenghua won’t talk about you, and you won’t talk about Fu Zhenghua, and Fu Zhenghua will never have any hostility to you again. Both of you were holding on to that agreement for two years. Why did you do this to him?”
 
-主持人：七哥好。老妹和波士顿五月花准农场的所有战友给您拜年啦，新年快乐。
+他说昨天傅政华，这个政法委领导、中纪委领导，听说抓傅政华全都是军队抓的，说要求傅政华出来逛一逛，得露露面，为什么？要保持中央绝对权威，啥叫绝对权威啊？傅政华当年把他抓很多人、杀很多人、冤枉很多人，就这个人不能抓，抓了以后就是没人给你共产党干黑活了，所以说咬人的狗还是当人面得给点狗骨头，那怎么当着人面杀这个狗哪？疯狗哪？咬人的狗哪？不行。说傅政华出来转一转。能不能文贵不再说傅政华的事了？
 
-郭文贵先生：向如水、七哥老妹还有我们的背后的英雄星星儿向你们拜年了，牛年大吉，万事顺利！
+He said that yesterday the leaders of the Political and Legal Affairs Commission and the Central Discipline Inspection Commission (I heard that all the arrests of Fu Zhenghua [and his family] were done by the military) asked Fu Zhenghua to go out and show his face a little bit. Why? To maintain the absolute authority of the central government. What is absolute authority? Fu Zhenghua arrested a lot of people, killed a lot of people, and wronged a lot of people back then. So this person could not be arrested because if you arrest him, no one would do dirty work for you, the CCP. Therefore, a dog that bites people should be given bones in front others. How can you kill this dog in front of people? So, don’t kill a mad dog who bites people for you. So, Fu Zhenghua came out just for a walk. “So, Miles, can you stop talking about Fu Zhenghua?”
 
-主持人：谢谢，谢谢！昨天非常冒昧仓猝地邀请七哥联线，还请您多多包涵，能够邀请到您，战友们倍感地荣幸，而且都非常地激动，知道您是在百忙之中抽出时间联线的，我们不想耽误您太长的时间，我们农场就战友们准备的几个问题想向您请教，在联线的最后呢还想请您为我们五月花准农场的这个建设提一些建议和意见，给我们一些鼓励和寄语您看可以吗？
+兄弟姐妹们，咱这爆料革命啊，愣把海航王健给说死了，愣把海航的说破产了，愣把孙立军给说进去了，吴征现在也完球蛋了，杨澜估计钥匙也找不着了，现在目前能活口的只有一个王岐山了，所以这个爆料革命。
 
-郭文贵先生：非常地荣幸，首先向波士顿五月花农场的所有战友们拜年，祝你们牛年大吉，很荣幸参加今天的节目，首先别忘了你们这个今天的奖是不是得抽了啊，两套战装还有二十个战帽是不是都有啊？
+So, brothers and sisters-in-arms, our Whistleblower Movement has “talked” HNA’s Wang Jian to death, “talked” HNA to bankruptcy, and “talked” Sun Lijun to jail. Bruno Wu is also almost done. I guess that Yang Lan can’t play “find the key” game anymore. Now, there is only one who is still alive – Wang Qishan. So this Whistleblower [is really something].
 
-主持人：有的！
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-郭文贵先生：那就太好了，好！咱们开始吧，谢谢！
+视频来源：[https://gtv.org/getter/602aa081226e7759074440d6](https://gtv.org/getter/602aa081226e7759074440d6)
 
-主持人：好的，那问您第一个问题，郭叔下一曲灭共歌的主题是什么？这是我代一位战友问的。
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/909619/](https://gnews.org/zh-hans/909619/)
 
-郭文贵先生：好，谢谢啊，七哥老妹，实际上呢一直以来准备，**我们和唐平妹妹还有威廉王有一首歌是英文的歌儿，首先这个歌的意思都是一样的灭共，另外跟好莱坞团队还有一个歌也在进行中，是关于咱们兄弟姐妹的写兄弟和写姐妹的，**继母亲还有Take Down CCP之后呢，包括Fight For Hongkong，然后这是兄弟姐妹们**，还有第三首歌正在和咱们的强子我们的战友们，从国内被救出来以后，我们在写第三首歌是完全纯摇滚派的，这个歌的整个主题非常地简单，直接就是如何干倒共产党，**这三首歌都在进行中，由于春节前咱们都忙着G系列还有120大选之后都搁置下来了，现在专业的录歌间正在装修准备中，但是很快我相信过了节吧，会陆续推出的，谢谢七哥老妹。
+翻译：【Isaiah4031】校对：【BruhM】字幕：【奔腾的长江】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
-主持人：好的，好的，谢谢。
-
-0
++1

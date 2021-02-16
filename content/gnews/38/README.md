@@ -1,47 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中国的私人企业家们，你们动动脑子吧，醒醒吧！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/910348/)
+## 中共病毒见闻录&#8211;爆料革命普通战友看到听到的中共病毒
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/910939/)
 
-新闻简述：在2021年2月15日的第一次Getter视频中，郭先生爆光中共白手套马云和中共打手傅政华的下场，并奉劝中国的私人企业家们：“你们动动脑子吧，醒醒来吧！”
+*作者：大明 | 校对：宁缺 | 审核：海阔天空 | Page: Daoiii*
 
-**中国的私人企业家们，你们动动脑子吧，醒醒吧！**
+[!\[\]()!\[\](https://spark.adobe.com/page/ZvVnrAXgQIjJ7/images/7b2df5bd-948f-4916-8b7e-8ecddc5197dc.jpg?asset_id=7d1480b6-f46c-43af-b4bc-6818fd1f2d13&amp;img_etag=%2222a99c855d1d0c90ef046a47af5a6d03%22&amp;size=2560)](https://spark.adobe.com/page/ZvVnrAXgQIjJ7/images/7b2df5bd-948f-4916-8b7e-8ecddc5197dc.jpg?asset_id=7d1480b6-f46c-43af-b4bc-6818fd1f2d13&amp;img_etag=%2222a99c855d1d0c90ef046a47af5a6d03%22&amp;size=1024)
 
-**Chinese Private Entrepreneurs, Use Your Brains, Wake up!**
+新冠病毒、武汉病毒、中国病毒、Covid19病毒，真实名称中共病毒。闫丽梦博士用中共公开发表的论文作为证据证明新冠病毒是来源于中共军方实验室的超限战生物武器。美国军方情报同样证明病毒来源于中共军方实验室，并且除闫博士外还有逃到西方的武汉实验室的人员证明闫博士的观点是完全正确。留给人类的时间不多了…
 
-昨天晚上醒来其中一次，原来代表马云的香港某律师给我打电话，吓我一大跳。一打电话说：“郭先生啊，不要再提马云了，Jack了。”我说，啥意思啊？我说这大过年的，啥意思啊？他说就是因为你们爆料革命老说马云，结果中纪委还有国家安全委员会，让马云坐出来，背后拿枪顶着坐在椅背上，在双规的地点面对摄像机，所谓的出来露了露面。他说不要再搞了，不要再提了。我说我没心情提 Jack 马，我说头两天有一个马云的前女友，因为给他生了个孩子，我原来说过，帮助他照顾的就是我一个哥们，找不着人了，说家里的钱房租都没人付，找我来了。我给你给我说啥？马云的事，我怎么会知道啊？
+闫博士在世卫组织武汉考古作秀后公开喊话，可以和所有被中共蓝金黄的科学家对中共病毒来源进行电视公开辩论，中英文皆可。但全世界，包括中共国蝙蝠女石正丽、中共军方、老贼终南山等无一人接受辩论战书。一年多了，李文亮和无数的武汉同胞逝去了一周年，去年武汉同胞的血泪仿佛还没有远去，追着拉走母亲尸体的的车，哭嚎妈妈的女孩，一个尸袋装三个孩子，风雨中飘舞无人收回的红窗帘…这就是武汉被中共病毒屠城的悲惨的记忆。
 
-Last night I was woken up by a phone call from a Hong Kong lawyer who previously represented Jack Ma, which scared me. He said in the call, “Mr. Guo, don’t mention Jack Ma again.” “What do you mean?” I said, “What do you mean by calling me during the Chinese New Year?” He said that it was because our Whistleblower Movement always broke the news about Jack Ma. As a result, the Central Commission for Discipline Inspection and the National Security Committee forced Jack Ma to sit on a chair facing a camera with a gun behind his back in a “double designation” (also known as “Shuanggui”) location. It’s called a public appearance. He said, “Don’t mention him anymore.” I said that I was not in the mood for mentioning Jack Ma. I said, a couple days ago, a buddy of mine who was taking care of a Jack Ma’s ex-girlfriend who had a child with Jack contacted me, for there was no one paying her rent anymore. I said, “Why do you tell me? How am I supposed to know anything about Jack Ma?”
+[!\[\]()!\[\](https://spark.adobe.com/page/ZvVnrAXgQIjJ7/images/fe975ed7-00a2-4e85-a9ef-b1a543df254d.jpg?asset_id=6edd6b77-fbd2-4572-aafe-d23c349f4e10&amp;img_etag=%228f106e0bac23c507bba3194847ec6770%22&amp;size=2560)](https://spark.adobe.com/page/ZvVnrAXgQIjJ7/images/fe975ed7-00a2-4e85-a9ef-b1a543df254d.jpg?asset_id=6edd6b77-fbd2-4572-aafe-d23c349f4e10&amp;img_etag=%228f106e0bac23c507bba3194847ec6770%22&amp;size=1024)
 
-所以你说共产党让马云出来，让马云的钱连一个房租都付不上，给小女情人的。这抢钱，共产党是天下第一啊。抢了14亿中国人的钱，抢了14亿中国人的未来，就马云这号人连房租现在都不给人家留。所以中国的私人企业家们，你们动动脑子吧，醒醒来吧。
+中共病毒截至2021年2月11日，全球死亡200多万，并且看不出减弱和何时结束的迹象。对于中共病毒，路德去年1.19的节目第一个爆出来源于中共军方实验室，第一个打脸世卫组织和中共，病毒不人传入的谎言。更让人记忆深刻的是，墨博士的硫酸氢氯喹救了无数人。病毒爆发一年后，即使作为爆料革命忠实的战友，我还是觉得自己对中共病毒了解的太少太少了。同事说一个刚来半年的留学生感染了病毒在家隔离，症状就像重感冒，这是我听说到第四个感染病毒的华人案件。
 
-So you tell me. The Communist Party asked Jack Ma to make a public appearance and left him not enough money to pay the rent for his little lover. The CCP is the number one in the world in robbing people’s money! It robbed money from the 1.4 billion Chinese people and also the future of the 1.4 billion people, and didn’t even leave money to someone like Jack Ma to pay the rent. So Chinese private entrepreneurs, use your brains, wake up!
+对于病毒感染的症状，我特意查了网上的资料，却发现普通人根本无法判断自己是感染病毒还是感冒、流感，因为有共同的症状。有的全家感染，孩子出红疹，老公两个月咳嗽，她嗅觉味觉没有，后来康复后才知道自己家人感染过。有夫妻俩一个感染，另外一个却没有感染，每天生活在一起。在英国的华人也有同样的例子，孩子无症状感染，父亲住院，但是一起上班的同事却无一人感染，为何会出现感染病毒的人不感染密切接触的人？
 
-然后更重要的事情，我昨天无意中说了傅政华全家被抓的事。昨天中间两个电话给我打过来：“你看，你说傅政华干嘛？原来有默契的嘛，傅政华不说你，你不说傅政华，傅政华永远不再对你有任何敌意，大家已经坚守了两年了，你干嘛这样啊？”
+看欧洲国家感染病毒死亡数据，绝大数是老年人，但为何李文亮医生正值壮年却死亡？中共病毒是不是网上传的，死在武汉的都是死亡率高的病毒，而逃出来感染的人都是死亡率低的病毒？到今天中共病毒变异出英国，南非等病毒变异，究竟有多少种变异种类？往后的结果很大可能像闫博士说的，病毒不可能被消除，也就是说病毒将永远存在在人类当中。然后多多少少感染到动物，之后也会动物体内进化。只要传播的数量种群足够大、密度足够高，基于这个病毒的特性，就永远有变异的可能，永远有在种群之中来回传播的可能…
 
-Then more importantly, I accidentally disclosed yesterday about the arrest of Fu Zhenghua’s whole family. I received two calls yesterday in the middle [of the broadcast], “Look, why did you talk about Fu Zhenghua? There was an agreement that Fu Zhenghua won’t talk about you, and you won’t talk about Fu Zhenghua, and Fu Zhenghua will never have any hostility to you again. Both of you were holding on to that agreement for two years. Why did you do this to him?”
+病毒还包括很多未解开的密码藏在基因组中，依然有待通过功能解读，但留给人类的时间不多了。为何美军永远不许感染中共病毒的人参加美军？我真的不希望郭先生说的人类永远无法回到病毒爆发前的日子了，但是全世界却依然如同郭先生所说经受着病毒的施虐。全人类只有灭共才能防止再投毒，找中共要解药才能化解人类文明从未有的大灾难。我和孩子过去都看过生化危机，曾经希望人类永远不会发生电影中的情景，但是我觉得电影中的生化危机却真真切切地正在上演。为了自己和爱的家人亲朋，只有跟随爆料革命，为了全人类，只有灭共是唯一方法！
 
-他说昨天傅政华，这个政法委领导、中纪委领导，听说抓傅政华全都是军队抓的，说要求傅政华出来逛一逛，得露露面，为什么？要保持中央绝对权威，啥叫绝对权威啊？傅政华当年把他抓很多人、杀很多人、冤枉很多人，就这个人不能抓，抓了以后就是没人给你共产党干黑活了，所以说咬人的狗还是当人面得给点狗骨头，那怎么当着人面杀这个狗哪？疯狗哪？咬人的狗哪？不行。说傅政华出来转一转。能不能文贵不再说傅政华的事了？
+[!\[\]()!\[\](https://spark.adobe.com/page/ZvVnrAXgQIjJ7/images/c1892593-8488-426e-8a44-d03868a698ac.jpg?asset_id=aaa4b9df-b868-4dc3-a8f9-3895dcf14446&amp;img_etag=%22c127316eeb8273893ca80cd154fc6ef7%22&amp;size=2560)](https://spark.adobe.com/page/ZvVnrAXgQIjJ7/images/c1892593-8488-426e-8a44-d03868a698ac.jpg?asset_id=aaa4b9df-b868-4dc3-a8f9-3895dcf14446&amp;img_etag=%22c127316eeb8273893ca80cd154fc6ef7%22&amp;size=1024)
 
-He said that yesterday the leaders of the Political and Legal Affairs Commission and the Central Discipline Inspection Commission (I heard that all the arrests of Fu Zhenghua [and his family] were done by the military) asked Fu Zhenghua to go out and show his face a little bit. Why? To maintain the absolute authority of the central government. What is absolute authority? Fu Zhenghua arrested a lot of people, killed a lot of people, and wronged a lot of people back then. So this person could not be arrested because if you arrest him, no one would do dirty work for you, the CCP. Therefore, a dog that bites people should be given bones in front others. How can you kill this dog in front of people? So, don’t kill a mad dog who bites people for you. So, Fu Zhenghua came out just for a walk. “So, Miles, can you stop talking about Fu Zhenghua?”
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
 
-兄弟姐妹们，咱这爆料革命啊，愣把海航王健给说死了，愣把海航的说破产了，愣把孙立军给说进去了，吴征现在也完球蛋了，杨澜估计钥匙也找不着了，现在目前能活口的只有一个王岐山了，所以这个爆料革命。
 
-So, brothers and sisters-in-arms, our Whistleblower Movement has “talked” HNA’s Wang Jian to death, “talked” HNA to bankruptcy, and “talked” Sun Lijun to jail. Bruno Wu is also almost done. I guess that Yang Lan can’t play “find the key” game anymore. Now, there is only one who is still alive – Wang Qishan. So this Whistleblower [is really something].
+编辑：【英国伦敦喜庄园编辑部】
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+[!\[\]()!\[\](https://spark.adobe.com/page/ZvVnrAXgQIjJ7/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/ZvVnrAXgQIjJ7/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-视频来源：[https://gtv.org/getter/602aa081226e7759074440d6](https://gtv.org/getter/602aa081226e7759074440d6)
-
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/909619/](https://gnews.org/zh-hans/909619/)
-
-翻译：【Isaiah4031】校对：【BruhM】字幕：【奔腾的长江】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
-
-+1
+0
