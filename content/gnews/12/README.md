@@ -1,131 +1,284 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国国务卿呼吁科学家 &#8220;最大限度地开展合作&#8221;
-` Mild Seven, Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/910604/)
+## 【每日快报】中共利用LinkedIn收集&#8221;国家机密“ 2021.02.16.
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/910672/)
 
-**2021****年2****月16****日**
+** *****作者：罗马共和 ***
+![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2021/02/image-32-1024x534.png)
+# ***今日摘要***
 
-一篇在线德语文章的中文翻译
-
-标题: 德国国务卿呼吁科学家 “最大限度地开展合作”
-
-###### **原文标题: 🇩🇪 [Wenn der Staatssekretär Wissenschaftler zu „maximaler Kollaboration“ aufruft](https://www.welt.de/politik/deutschland/plus225868061/Corona-Politik-Wie-das-Innenministerium-Wissenschaftler-einspannte.html?notify=success_subscription)**
-
-**原文发表日期****：**2021年2月8日
-
-**原文作者****：**[Anette Dowideit](https://www.welt.de/autor/anette-dowideit/) und Alexander Nabert
-
-**翻译:** Mild Seven, 英国伦敦喜庄园
-
-**校对：**拱卒， 英国伦敦喜庄园
-
-— 全文翻译（中德对照）–
-
-## Wenn der Staatssekretär Wissenschaftler zu „maximaler Kollaboration“ aufruft
-
-国务卿呼吁科学家 “最大限度地开展合作”
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Bild61.jpg)Innenminister Horst Seehofer (M.) und sein Staatssekretär Kerber (r.) holten für ihre Politik Wissenschaftler ins Boot, unter anderen RKI-Chef Lothar Wieler 内政部长霍斯特·西霍弗（Horst Seehofer）（中）和他的国务卿科伯（Kerber）（右）拉科学家参政，其中包括罗伯特-科赫研究所（RKI）老板洛塔尔-维勒（Lothar Wieler）
+1. 中共利用LinkedIn收集”国家机密“
+2. 美联社强调中国宣扬美军制造冠状病毒的阴谋论
+3. 电子邮件显示，世卫组织COVID-19调查员试图掩盖参与亲共声明的事实
+4. 消灭中共才能打破《动物庄园》的极权魔咒
 
 
-Das Innenministerium erstellte im März 2020 intern ein Papier, das die Bedrohungen durch Corona dramatisch darstellte. Es sollte hartes politisches Handeln legitimieren. Ein umfangreicher interner Schriftverkehr zeigt, wie die Regierung Wissenschaftler dafür einspannte.
+# 重要事件
 
-内政部于2020年3月在制作了一份内部文件，它概述了Corona所带来的严重威胁。它的目的是使强硬的政治行动合法化。大量的内部通信显示了政府如何利用科学家达到这一目的。Mitte März vergangenen Jahres war Deutschland im ersten Lockdown. Schulen und Geschäfte waren geschlossen, die Nerven im Land lagen blank. Auch bei Bundesinnenminister Horst Seehofer (CSU). Denn gerade hatten der Virologe Christian Drosten und Lothar Wieler, der Chef des Robert-Koch-Instituts (RKI), seinem Haus einen Besuch abgestattet.
+- ** 02.15. National Pulse**[**中共利用LinkedIn收集”国家机密**“** Chinese Communist Party Using LinkedIn To Gather ‘State Secrets’**](https://thenationalpulse.com/breaking/ccp-using-linkedin-to-spy/)** **
 
-去年三月中旬德国处于第一次封锁状态。学校和商店都关门了，举国上下人心惶惶。联邦内政部长霍斯特·西霍弗（CSU）也是如此，病毒学家Christian Drosten和罗伯特·科赫研究所（RKI）的负责人Lothar Wieler刚刚造访了他。
 
-Die beiden hatten die Führungsriege des Innenministeriums eindringlich gewarnt: Deutschland drohten dramatische Folgen, kehre das Land zu schnell in den Alltag zurück. Seehofer sorgte sich nun davor, dass wie geplant an Ostern der Lockdown enden sollte. Der Minister war entschieden dagegen. Er schickte seinen Staatssekretär Markus Kerber in die Spur.
+中共正在利用LinkedIn等平台从西方人那里收集 “国家机密”。
 
-两人严肃地警告内政部领导：如果德国的日常生活过快恢复常态，那么德国将面临严重后果。Seehofer此前正在考虑在复活节的时候结束封锁状态。部长对此坚决反对。他派他的国务卿Markus Kerber去调查。
+“间谍们正在这个专业网络网站上建立虚假的商业档案，以便确定目标，获取机密信息。消息人士警告说，他们提供了丰厚的商业机会和诱人的金钱，以引诱现任和前任政府和私营部门的工作人员接触机密信息或商业敏感技术。”《泰晤士报》总结道。
 
-Kerber hatte einen Plan: Er wollte führende Wissenschaftler mehrerer Forschungsinstitute und Universitäten zusammen einspannen. Gemeinsam sollten sie ein Papier erarbeiten, das dann als Legitimation für weitere harte politische Maßnahmen dienen sollte, über Ostern hinaus. Er startete per E-Mail einen entsprechenden Aufruf an die Forscher.
+报道重点介绍了56岁的菲利普-英格拉姆（Phillip Ingram）的经历，他是一名前上校，专门从事网络情报工作和化学、生物、放射性和核武器的研究，他以 “罗宾 “的名字与一个账号对话。
 
-Kerber有一个计划：他想召集一些研究机构和大学的顶尖科学家写出一份支持在复活节后政府继续合法采取强硬政治措施的指导性文件。他通过电子邮件向研究人员发出了呼吁。
+英格拉姆说 “他的资料上没有任何信息表明他为哪家公司工作，只是仿制药，这似乎很奇怪。这似乎很奇怪。” 随着对话的继续，罗宾的要求变得更加令人担忧。他说，”我们会想得到任何人都不容易获得的内部信息”。当英格拉姆逼问更多细节时，罗宾说。”你可以猜到我在找什么样的东西”
 
-Nur wenige Tage später hatten diese den Auftrag des Ministeriums erfüllt. Sie lieferten Input für ein als geheim eingestuftes Papier des Innenministeriums (BMI), in dem die Gefahr durch das Coronavirus so dramatisch wie möglich dargestellt wurde, und das sich rasch über die Medien verbreitete. In einem „[Worst-Case-Szenario](https://www.welt.de/newsticker/dpa_nt/afxline/topthemen/article206847797/Corona-Szenarien-Innenministerium-fuer-viel-mehr-Tests.html)“ malten sie aus: Unternähme Deutschland nichts, wären am Ende der Pandemie mehr als eine Million Menschen im Land tot.
+英格拉姆已经猜到这份资料是中国情报人员伪造的，然后罗宾说，英格拉姆需要前往中国提交报告。”我说我宁愿在伦敦见面，但他拒绝了。”英格拉姆说。当罗宾建议他们改用除情报部门外无法在中国境内访问的加密电子邮件服务时，他的怀疑得到了证实。罗宾在10分钟内就给他发了邮件。”在那个阶段，我99.99%确定是与中国政府有关的人，”英格拉姆说。”这是典型的招聘。如果我决定去中国，他们会派我回来获取其他情报。他们实际上已经招募了一个特工。如果我去了，而我不合作，或者他们不确定我受他们控制，他们就会设计蓝金黄活动，收集策反材料进行勒索。”
 
-几天后他们就完成了内政部的任务。他们为这份被内政部视为机密的文件提供了相关内容，在文件中他们尽可能地夸大了冠状病毒所构成的危险，同时这消息通过媒体被迅速传播。他们所描述的“[最坏的情况](https://www.welt.de/newsticker/dpa_nt/afxline/topthemen/article206847797/Corona-Szenarien-Innenministerium-fuer-viel-mehr-Tests.html)”是：如果德国不采取措施，那么在大流行结束时德国将有超过100万人丧生。
+英国政府将发起一项活动，告知公民LinkedIn和机会主义的中共资源所带来的国家安全风险。
 
-WELT AM SONNTAG liegt ein umfangreicher Schriftverkehr vor, der zeigt, was genau sich in diesen kritischen Tagen im März 2020 zwischen der Führungsebene des Ministeriums und den Forschern abspielte. Er zeigt vor allem dies: dass Seehofers Behörde es darauf anlegte, die beauftragten Wissenschaftler für den von ihm angestrebten politischen Zweck einzuspannen – und dass diese dem Aufruf gern folgten.
+- ** 02.15. Breitbart **[**美联社强调中国宣扬美军制造冠状病毒的阴谋论** **AP Highlights China’s Campaign to Promote Conspiracy Theory that U.S. Army Created Coronavirus**](https://www.breitbart.com/national-security/2021/02/15/report-china-pushes-elaborate-conspiracy-theory-about-u-s-army-creating-covid-19/)
 
-WELT AM SONNTAG《世界报周日版》得到了详细的内政部与科学家们的通信，显示在2020年3月的这些关键日子里，该部的管理层与研究人员之间究竟发生了什么。我们首先看到的是：塞霍夫Seehofer所领导的机构利用科学家来达到他所追求的政治目的–而他们也乐于效劳。
 
-Die gut 200 Seiten an E-Mails belegen somit, dass die Forscher zumindest in diesem Fall längst nicht so unabhängig agierten, wie es Wissenschaftler und Bundesregierung seit Beginn der Pandemie stetig betonen – sondern auf ein von der Politik vorgegebenes, feststehendes Ergebnis hinwirkten.
+美联社周一发表了一篇内容广泛的报道，称中国政府宣传一种精心策划的阴谋论，声称武汉冠状病毒是美军实验室制造的生物武器。
 
-这200多页的电子邮件证明，至少在这件事情上，这些研究人员绝不是像科学家和联邦政府自疫情开始以来不断强调的那样要保持中立—而是在为既定的政治目标出谋划策。
+正如Breitbart新闻近一年来所报道的那样，中国政府官员公开宣扬这一理论，但没有提供任何证据证明中国冠状病毒来源于除中国武汉以外的任何地方，而武汉是首批病例报告地。美联社(AP)周一称中国是世界上最主要的冠状病毒虚假信息传播者，讲述了 “关于美国创造了导致COVID-19[源自中国的冠状病毒]的谣言如何被中国政府武器化，通过数百万个社交媒体帖子从互联网的黑暗角落传播到全球数百万人 “的故事。
 
-Der Schriftverkehr stammt aus dem RKI. Eine Gruppe Juristen, vertreten vom Berliner Rechtsanwalt Niko Härting, hat sie in einer monatelangen rechtlichen Auseinandersetzung mit der Behörde erstritten und der Redaktion zur Verfügung gestellt.
+据美联社报道，中国阴谋论的产生，是西方世界对中国冠状病毒可能从武汉附近的高级病毒研究实验室中泄露的日益增长的怀疑所作出的一种恐慌的反应。这并不仅仅是互联网上随意爆料者的猜测，一些美国高级官员，尤其是包括前国务卿迈克-蓬佩奥在内的官员表示，他们看到的证据表明，这场大瘟疫 “很可能来自武汉病毒研究所”。
 
-这些信件来自RKI(德国的CDC)。由柏林律师NikoHärting的代理的一群司法人员为此与当局进行了为期一个月的法律争议，并将其内容提供给《世界报》的编辑部。
+- ** 02.15. Daily Caller [电子邮件显示，世卫组织COVID-19调查员试图掩盖参与亲共声明的事实 WHO COVID-19 Investigator Tried To Hide Involvement In Pro-China Statement, Email Reveals](https://dailycaller.com/2021/02/15/world-health-organization-covid-19-coronavirus-investigation-peter-daszak-china-ecohealth-alliance-ralph-baric/)**
 
-Die Dokumente sind an vielen Stellen geschwärzt, und doch verraten sie viel darüber, wie das Innenministerium auf die Forscher einwirkte und wie diese daran mitwirkten, die Lage möglichst bedrohlich darzustellen.
 
-尽管这些文件的许多地方已被涂黑，但它们还是揭示了内政部如何影响研究人员以及如何在他们的协助下使局势尽可能地具有威胁性。
+最新披露的一封电子邮件显示，世界卫生组织（WHO）的一名COVID-19调查员试图掩盖他参与组织一份亲中国的声明，该声明谴责 “实验室泄露论 “是 “阴谋论”。
 
-### Es gehe um die „Aufrechterhaltung der inneren Sicherheit“
+世卫组织调查中国COVID-19起源的团队中的英美动物学家达扎克（Peter Daszak）博士，在2020年2月帮助召集科学家们签署了一份声明，谴责病毒起源于中国实验室的 “阴谋论”。根据调查组织 “美国知情权 “最新披露的一封电子邮件，达扎克在疫情发生前的几年里一直帮助向武汉病毒学研究所输送美国政府的资金，他故意试图隐瞒自己参与该声明的程度。
 
-### **这关乎于****“****维持内部安全****”**
+在邮件中，达斯扎克告诉北卡罗来纳大学(UNC)研究员拉尔夫-巴里奇（Baric）博士，他们不应该在谴责实验室泄密理论的声明上签字，这样显得更加独立和可信。”你、我和他都不应该签署这份声明，这样它与我们有一定的距离，因此不会起到反作用，”达斯扎克写道。
 
-Die Zusammenarbeit begann mit dem Aufruf des Staatssekretärs am 19. März. „Sehr geehrte Professoren“, schrieb Kerber an RKI-Chef Wieler sowie an Forscher des Leibniz-Instituts für Wirtschaftsforschung (abgekürzt RWI, weil es früher mal Rheinisch-Westfälisches Institut für Wirtschaftsforschung hieß), des Instituts der Deutschen Wirtschaft (IW), der Stiftung Wissenschaft und Politik (SWP) und mehrerer Universitäten.
+“然后，我们会以一种不会被将其与我们的合作联系起来的方式推出，以便我们最大限度地发出独立的声音，”他补充道。UNC的著名流行病学家巴里奇表示同意。”否则它看起来是自说自话，我们就会失去影响力，”他回信说。
 
-科学家与政府的合作始于国务卿在3月19日的呼吁，Kerber写信给RKI老板Wieler和莱布尼兹经济研究所（RWI）研究人员，科学与政治基金会（SWP）和多所大学：尊敬的教授们，
+由于一些利益冲突，达斯扎克已经被抨击了一段时间，这似乎影响了他参与世卫组织公正调查的公信力。他经营着非营利性的生态健康联盟，该联盟帮助武汉病毒学研究所（WIV）在2014年至2020年期间从美国国家卫生研究院获得经费。
 
-Das Ministerium wolle mit sofortiger Wirkung eine „Ad-hoc-Forschungsplattform“ zwischen seinem Haus und den Instituten bilden. Man brauche ein Rechenmodell, um „mental und planerisch ‚vor die Lage‘ zu kommen“. Es solle helfen, weitere „Maßnahmen präventiver und repressiver Natur“ planen zu können. Der Staatssekretär zeichnete ein dystopisches Bild: Es gehe um die „Aufrechterhaltung der inneren Sicherheit und Stabilität der öffentlichen Ordnung in Deutschland“.
+- **02.15. GNEWS[消灭中共才能打破《动物庄园》的极权魔咒](https://gnews.org/zh-hans/909956/)**
 
-他说，希望从即日起在该部和各研究所之间组建一个 “特设研究平台”。要想 “在思想上和计划上走在前面”，我们需要一个它应该有助于能够规划进一步的 “预防性和压制性措施”的计算模型。国务秘书描绘提出了一个荒诞的理由：这关乎于 “维护德国国内安全和公共秩序稳定 “。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Bild7-2.jpg)
-Kerber bat um Verschwiegenheit: Was in den kommenden Tagen in diesem kleinen Kreis besprochen werde, solle „außerhalb von operativ tätigen Krisenstabsinstitutionen“ vertraulich gehalten werden. „Ohne Bürokratie. Maximal mutig“, schrieb Kerber – und steigerte die Dramatik seines Tons zum Ende der E-Mail noch einmal: Da man nicht wisse, „ob und wie lange die Netze noch reliabel funktionieren“, sollten die Teilnehmer ihre Telefonnummern und privaten E-Mail-Adressen übermitteln.
 
-柯柏（Kerber）要求保密：“ 危机处理机构”小组成员在未来几天所讨论的内容要对外保密。“不官僚主义。拿出最大的勇气。„ 柯柏在电子邮件末尾再次强调：由于您不知道“网络是否仍将可靠运行多长时间”，参与者应提供电话号码和私人电子邮件。
+《动物庄园》是由英国作家乔治·奥威尔 (George Owell) 创作的托寓小说，是非常著名的反乌托邦的作品之一。奥威尔称，此一寓言反映了1917年俄国革命至踏入斯大林时期的历史事件，用动物对人类抗争后自建家园来再现前苏联的整个历史情形，是一则讽刺斯大林的寓言故事。他认为，苏联已是惨无人道的独裁统治，而这种统治手段建立在对斯大林的个人崇拜和大清洗上。另外，他在乌克兰译本的序中说：“对我来说，极其重要的是，西欧的人们应该看清苏联政权的真实面目。极权主义的宣传能多么轻易地控制民主国家开明人民的舆论。”如果奥威尔还活着，他一定会说，全世界都应该看清楚共产主义的本质和真实面貌并打破其魔咒！
 
-Er habe gegenüber seinem „Freund Lothar Wieler“ die Situation „mit Apollo 13 verglichen“. „Sehr schwierige Aufgabe, aber mit Happy End durch maximale Kollaboration.“
+小说中的《英格兰之兽》所唱的美梦也正像中共一直给老百姓描绘的美梦，中国梦，并且一个阶段一个梦，很多梦，一个也不能实现。中共宣布2020年实现消除贫困的梦，却还有6亿人每个月收入1000元人民币或不足1000元；更讽刺的是习近平在2020年5月还宣布基本实现了小康社会。中共创建之初提出的目标是“解放全人类”，看看100年后的今天，中共国人被解救到何种水深火热的境地？世界被中共渗透、祸害到如此地步，中共实现的是以一个个大梦来迷惑人，从而颠覆全人类的目标吧？
 
-他和他的朋友Wieler说，他把现状比作电影《阿波罗13号》，“这是一项艰巨的任务，但是要通过最大程度的合作来获得圆满的结局。”
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Bild8-2.jpg)
-Damit setzte er den Sound für das Vorgehen, das der Innenminister von den angeschriebenen Wissenschaftlern offenbar erwartete: eine möglichst bedrohliche Darstellung der Lage. Das Ergebnis lag nur vier Tage später vor: jenes [Geheimpapier](https://www.welt.de/politik/deutschland/article206832547/Vertrauliches-Corona-Papier-Massentests-Isolierung-Mobilfunk-Tracking.html) mit dem Stempel „VS – Nur für den Dienstgebrauch“ über die drohende Aussicht auf bis zu einer Million Toten. Darin stand auch, wie man die „gewünschte Schockwirkung“ in der Gesellschaft erzielen könne, um diesen schlimmsten annehmbaren Fall zu vermeiden.
+（继续阅读全文，请点击GNEWS文章 [消灭中共才能打破《动物庄园》的极权魔咒](https://gnews.org/zh-hans/909956/) （[上](https://gnews.org/zh-hans/909956/)）[(中](https://gnews.org/zh-hans/909971/)）[(下](https://gnews.org/zh-hans/910003/))）
 
-他以此给行动方式定了基调，内政部长希望被点名的科学家们尽可能地危言耸听描述现状。四天后结果出来了：每份文件都盖有 “VS–仅供官方使用 “的印章，内容是关于高达100万人死亡的威胁前景描述。文章里还提到如何在社会上达到所希望的”冲击效果”，以避免这种可接受的最糟糕的情况。
+# 每日文贵说
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/14052658/00145.jpg)
+# 文贵直播和盖特
 
-Man müsse in den Köpfen der Menschen Bilder wie diese entstehen lassen: „Viele Schwerkranke werden von ihren Angehörigen ins Krankenhaus gebracht, aber abgewiesen und sterben qualvoll um Luft ringend zu Hause.“ So hoffe man, bei den Bürgern Verständnis unter anderem für eine „scharfe, aber kurze Ausgangsbeschränkung“ akzeptabel zu machen.
+### 直播：
 
-有必要在人们的脑海中建立这样的场景：”虽然很多重病患者被亲属送到医院，但却被拒之门外，结果只能痛苦地因窒息而死在家里。” 这样一来，市民可以更容易接受突如其来的出行限制等措施。
+[**2021年2月15号 文贵直播:谈看完电影《白虎》的感受， 与宗教，中共，爆料革命的关系，第一次披露中共在全球的灭白计划；虚拟货币的好消息**](https://gtv.org/video/id=602b06fabe64150df858276b)
 
-In jenen vier Tagen verfolgten Kerber und andere hochrangige Beamte des Ministeriums die Arbeit der Forscher akribisch und diktierten das Vorgehen: Aus dem Schriftwechsel geht hervor, dass es in kurzen Abständen Telefonkonferenzen zwischen dem BMI und den Forschern gab, während diese an ihrem Modell und den daraus resultierenden Empfehlungen arbeiteten.
 
-在这四天里，Kerber和其他部级高官一丝不苟地跟踪研究人员的工作，并决定行动方案。通信显示，BMI和研究人员在创建模型及由此产生的结论期间他们非常频繁地召集电话会议。
 
-Die E-Mails der Wissenschaftler über den Fortschritt ihrer Arbeit gingen neben dem Staatssekretär auch an mehrere Abteilungs- und Referatsleiter des BMI. Das Ministerium gab sogar per E-Mail an den Verteiler die Gliederung für das Papier vor.
+### 盖特：
 
-科学家发送的有关其工作进展的电子邮件不仅发送给国务卿，而且还发送给BMI的多个部门和单位负责人。该部甚至通过电子邮件提供了论文的大纲。
+**2月15日：文贵分享雪中的照片……**
+![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2021/02/image-31.png)[https://gtv.org/getter/602ab8aa226e77590744467a](https://gtv.org/getter/602ab8aa226e77590744467a)
+**2月15号：文贵与友们赏雪……**
 
-### Die Forscher gaben politische Empfehlungen
 
-### **研究人员提出了政策建议**
 
-Die Forscher beschränkten sich nicht nur darauf, Zahlen zu liefern, sondern machten auch konkrete Vorschläge, wie sich etwa „Angst und Folgebereitschaft in der Bevölkerung“ thematisieren ließen, und sie gaben politische Empfehlungen. „Söder liegt intuitiv richtig“, schreibt einer, dessen Name im Dokument geschwärzt ist. „Das sich ausbreitende Ohnmachtsgefühl muss wohl durch den Eindruck eines starken staatlichen Interventionismus in Schach gehalten werden.“
+**2月15号：尊敬的战友们好，你们健身了吗？你们传播C C P病毒香港危机真相了吗？文贵今天晚上6:40乱聊电影直播……**
 
-研究者不仅提供数据还就如何解决 “民众的恐惧感和对后果的承受力”等问题提出了具体建议，并提出了政策性建议。”巴伐利亚州内政部长索德的直觉是对的，”一位在文件中名字被涂黑的人写道。”不断蔓延的无助感显然必须要由强有力的国家干预措施来遏制。”
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Bild9-1.jpg)
-Die E-Mails zeigen noch etwas anderes, vielleicht weitaus Gravierenderes: Über die wissenschaftliche Bewertung der Situation waren sich die Wissenschaftler nicht einig. Untereinander diskutierten sie zum Beispiel, welche Zahlen sie für die Berechnung der gewünschten Szenarien zugrunde legen sollten. Darüber tauschten sich etwa am Sonntag nach dem Aufruf des Staatssekretärs der zuständige Wissenschaftler des Robert-Koch-Instituts und jener des RWI aus. Es ging um die Frage: Welche Annahme solle man darüber treffen, wie viel Prozent der Infizierten in Deutschland am Virus sterben?
 
-这些电子邮件还显示了另一件事，也许要严重得多：科学家们对现状的科学评估并未达成一致。例如，他们之间讨论了应该用哪些数据来作为计算所需方案的基础。比如周日，在国务卿的电话之后，罗伯特-科赫研究所的科学家和RWI研究所的科学家进行了交流。他们讨论的问题是：应该如何假设德国死于病毒的感染者的比例？
 
-Dieser Wert war nicht leicht zu beziffern, es gab wenig Erfahrung mit dem Virus. Das RKI hatte gerade erst selbst ein Modell veröffentlicht. Demnach würden voraussichtlich 0,56 Prozent der Infizierten in Deutschland am Virus sterben. Das RWI nun plädierte aber dafür, mit einer Todesrate von 1,2 Prozent zu arbeiten. Dessen zuständiger Forscher schrieb, man solle im Papier „vom Ziel her“ argumentieren, nämlich „hohen Handlungsdruck aufzuzeigen“, und vom Vorsichtsprinzip „lieber schlimmer als zu gut“. Staatssekretär Kerber las bei all dem mit.
+[【字幕+文字版】2/8/2021文贵盖特：中共即将崩塌的经济和党员们对未来财富安全的恐惧，正在改变着世界的经济的格局](https://gnews.org/zh-hans/893250/) -GNEWS
 
-这个数值不容易量化，科学家对这新的冠装病毒没有什么经验。RKI刚刚公布了自己的模型：德国有0.56%的感染者可能会死于该病毒。然而，RKI研究所却坚持死亡率为1.2%。其负责的研究者写道，人们在论文中应该 “从目的”得出结论，即 “要表现出采取行动的必要性”，从审慎的原则出发 “（把病毒的预期描写的）宁可更糟也不能太好”。国务卿克尔伯也读了所有邮件。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Bild10-1.jpg)
-Auffällig ist, dass im schließlich erstellten Papier des Ministeriums beide Zahlen auftauchen. Dort heißt es: „Das RKI geht in einem sehr moderaten Szenario derzeit von einer Letalität von 0,56 Prozent aus. In der weiteren Modellierung wird mit einer Fallsterblichkeit von 1,2 Prozent gearbeitet.“ Das heißt: Das BMI entschied sich explizit dagegen, nur mit dem zurückhaltenden Wert des RKI zu rechnen – obwohl Wielers Behörde doch jene ist, die in Deutschland genau dafür zuständig ist: die Zahlen zu liefern, auf deren Basis die Regierung bei der Planung ihrer Maßnahmen argumentiert.
+# 路德社节目：
 
-值得注意的是，这两个数字都出现在该部最终编制的文件中。它说：”RKI目前假设在温和的情况下，致死率为0.56%。进一步的建模则采用1.2%的病例死亡率”。换句话说，BMI明确反对只使用RKI的保守数据–尽管Wieler的机构正是德国负责这项工作的机构：向政府提供规划措施时使用的论证数据。
+#### 2/15/2021 早 路德时评（路安墨谈）：中共和WHO明明一伙的，为什么依然不给WHO原始数据？为什么说改变人类的新的反制中共理论体系一定是新中国联邦闫博士建立？
 
-BMI-Staatssekretär Kerber erklärt das Zustandekommen des Papiers im Nachhinein gegenüber WELT AM SONNTAG so: „Wir brauchten keine allumfassende theoretische Abhandlung. Wir hatten konkrete Probleme vor Augen und standen vor der Aufgabe, ein Worst-Case-Szenario zu verhindern.“ Das RKI kommentiert seine Mitwirkung nicht – weil es sich um ein „internes Diskussionspapier“ gehandelt habe. Und das Forschungsinstitut RWI schreibt, es habe keine politische Vorgabe für die Forschungsergebnisse gegeben.
 
-BMI国务秘书Kerber事后对WELT AM SONNTAG《世界报周日版》关于论文的汇总作了如下解释：”我们不需要一篇包罗万象的理论论文。我们看到具体问题，我们面临的任务是防止最坏的情况发生。” RKI对其进行的参与不予评论—-因为这是一份 “内部讨论文件”。而RWI研究院写道，研究结论没有受到政治要求的左右。
 
-Aus Sicht des Innenministeriums jedenfalls ging das Projekt erfolgreich ins Ziel. Staatssekretär Kerber formulierte am 23. März an die Runde: „Unser Papier kam … sehr gut an und wird ob seiner hohen Qualität und Umsicht nun den Weg ins Krisenkabinett der Bundesregierung finden.“
+GTV MOS 战友总结：
 
-从内政部的角度来看，无论如何这个项目成功地达到了目的。国务秘书克尔伯于3月23日向论文的参与者说：”我们的论文很受欢迎，鉴于其高质量和审慎性，现在它将进入联邦政府的危机内阁”。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Bild11.jpg)
+1. 中共拒绝向世卫组织提供数据
+2. 章家敦\_建议拜登解密有关中共病毒文件
+3. 中共无法再玩美国两党政治钟摆效应，因为民主党控制了总统和立法机构
+4. 只有美国完善对生物武器和超限战的理论，才能打赢与中共的战争
+5. 闫博士可以为这项工作做出贡献
+6. 中共研究生物武器理论已有30年
 
+
+#### 2/15/2021 晚 路德时评（路博艾冠谈）：班农建议川普竞选众议院议长；纳瓦罗明确离职前尝试建立总统委员会调查病毒来源真相，闫博士在其中；皮特打杂客和王林发邮件被公开，揭露替中共站台
+
+
+
+这一期路德时评总结，请点击下面的GNews文章：
+
+[《路德时评》解读班农建议川普竞选众议院议长，纳瓦罗披露川普曾试图调查病毒真相，及奎伊博士发推揭露中共科学家是病毒自然来源的幕后推手](https://gnews.org/zh-hans/910189/)(GTV文章)
+
+# 推特文摘
+
+
+
+「Quay博士質問zenodo為什麼在他證實新冠來自實驗室的文章上加不實的聲明」 問：誰給預印版網站zenodo施壓，把展示COVID19病毒來自實驗室的具有扎實證據的文章都標註為「具潛在誤導內容」？ 那些發表在自然或柳葉刀或其他同行評議期刊上，捏造數據堅稱新冠來自自然的文章該怎麼辦呢？ 科學究竟是什麼？
+
+
+
+
+
+> 「Quay博士質問zenodo為什麼在他證實新冠來自實驗室的文章上加不實的聲明」
+> 問：誰給預印版網站zenodo施壓，把展示COVID19病毒來自實驗室的具有扎實證據的文章都標註為「具潛在誤導內容」？
+> 那些發表在自然或柳葉刀或其他同行評議期刊上，捏造數據堅稱新冠來自自然的文章該怎麼辦呢？
+> 科學究竟是什麼？
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [February 15, 2021](https://twitter.com/DrLiMengYAN1/status/1361133395171028995?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+不管結果如何，這是正確的方向。把拜登的總統位置取消應該可能性很小，但是對2022和今後的選舉是否能贏得選民信心至關重要。
+
+
+
+
+
+> 不管結果如何，這是正確的方向。把拜登的總統位置取消應該可能性很小，但是對2022和今後的選舉是否能贏得選民信心至關重要。
+> — Dr. Bo 🇺🇸🇹🇼🇭🇰 (@BoDiplo) [February 15, 2021](https://twitter.com/BoDiplo/status/1361312516446576640?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+美方重要人士今日致信郭文贵先生： 世界卫生组织(WHO)的调查报告证实了先生的爆料！调查发现，有迹象表明武汉肺炎在2019年12月发生的流行比之前报道的更广泛和严重！
+
+
+
+
+
+> ‼️‼️‼️美方重要人士今日致信郭文贵先生：
+> 世界卫生组织(WHO)的调查报告证实了先生的爆料！调查发现，有迹象表明武汉肺炎在2019年12月发生的流行比之前报道的更广泛和严重！ [pic.twitter.com/SHqFgWSg7O](https://t.co/SHqFgWSg7O)
+> — 文扬四海 Covid-19=CCP Virus (@wenyangsihai) [February 15, 2021](https://twitter.com/wenyangsihai/status/1361345607420440583?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+中共拿下东南亚，重新点燃中东战火，点燃三胖核问题，接下来就是台湾新加坡日本。彻底搞定亚洲。 拜登如果继续配合总加速师这么玩亚洲，就是彻底坐上了副驾驶的位置 亚太秩序被中共控制，沼泽地主人以后就基本结束 到时想不出手灭共都不行 一月二十的事就是之前病毒打的美国不够疼
+
+
+
+
+
+> 中共拿下东南亚，重新点燃中东战火，点燃三胖核问题，接下来就是台湾新加坡日本。彻底搞定亚洲。
+> 拜登如果继续配合总加速师这么玩亚洲，就是彻底坐上了副驾驶的位置
+> 亚太秩序被中共控制，沼泽地主人以后就基本结束
+> 到时想不出手灭共都不行
+> 一月二十的事就是之前病毒打的美国不够疼
+> — 冠军的亲爹(冠博士) (@Guan\_PhD) [February 15, 2021](https://twitter.com/Guan_PhD/status/1361178576553455619?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+Marion Koopmans作为世界卫生组织（WHO）的调查员，曾到武汉参与SARS-CoV-2的起源。 早在2008年，她就被聘为广东省疾控中心的科学顾问。 前几天的新闻发布会有她的身影
+
+
+
+
+
+> Marion Koopmans作为世界卫生组织（WHO）的调查员，曾到武汉参与SARS-CoV-2的起源。
+> 
+> 早在2008年，她就被聘为广东省疾控中心的科学顾问。
+> 
+> 前几天的新闻发布会有她的身影
+> — 500 𝕸𝖎𝖑𝖊𝖘 (@Safeguard008) [February 15, 2021](https://twitter.com/Safeguard008/status/1361306954228920323?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+P的.打杂客此次“冒死”力保中共，表演拙劣，破绽百出，任务完成很不理想，被闫博士军团轻易揭穿，现在全世界大都不认可WHO的“调查”报告，真相将无法遮盖！ 这让共党很不满意，相信打杂客这是和中共过的最后一次“情人节”了，今后再想去中共国享受白酒任喝，姑娘任选来招待的日子再也回不来啦！
+
+
+
+
+
+> P的.打杂客此次“冒死”力保中共，表演拙劣，破绽百出，任务完成很不理想，被闫博士军团轻易揭穿，现在全世界大都不认可WHO的“调查”报告，真相将无法遮盖！
+> 
+> 这让共党很不满意，相信打杂客这是和中共过的最后一次“情人节”了，今后再想去中共国享受白酒任喝，姑娘任选来招待的日子再也回不来啦！😂😂😂 [https://t.co/CLS6SFaNvB](https://t.co/CLS6SFaNvB)
+> — 危船愚夫 (@OAtxBKAdTP6KIEz) [February 14, 2021](https://twitter.com/OAtxBKAdTP6KIEz/status/1361100883203788800?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+GClub，不是打折卡，不是抽奖俱乐部。那是你身份的象征，你相誉的象征，你荣誉、能力的象征。文貴先生年纪轻轻从大牢出来，能短时间内积聚资本，那都是牢友慧眼识宝，介绍了文贵进入了一个高端的圈子，我们称之为某某Club。GClub就是新中国联邦人连接的纽带，是新中国人强大的摇篮！
+
+
+
+
+
+> GClub，不是打折卡，不是抽奖俱乐部。那是你身份的象征，你相誉的象征，你荣誉、能力的象征。文貴先生年纪轻轻从大牢出来，能短时间内积聚资本，那都是牢友慧眼识宝，介绍了文贵进入了一个高端的圈子，我们称之为某某Club。GClub就是新中国联邦人连接的纽带，是新中国人强大的摇篮！ [pic.twitter.com/3zySSvdVCA](https://t.co/3zySSvdVCA)
+> — Jersey17 (@Jersey1712) [February 15, 2021](https://twitter.com/Jersey1712/status/1361153322854604801?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+# 墙内咨讯
+
+#### 2021.02.14 环球网 社评：国安顾问和纽约时报如此继续误导美国公众
+
+美国国家安全顾问沙利文13日发声明，对世卫专家组在中国的沟通方式及获取结果的过程“深表关切”，要求专家组的报告“必须是独立的”“不受中国政府的干预或修改”。这位美国高官显然在试图带国际舆论质疑世卫专家组报告的节奏。
+
+新冠病毒溯源是严肃而艰难的工作，它是科学。但是美国一直在将这项工作政治化并且预设、散播病毒起源于中国的政治立场，极力推动世卫的溯源工作成为美国这一立场的验证过程。
+
+因为世卫组织拒绝配合，美国前任特朗普政府与世卫闹翻。民主党政府上台后重建了与世卫的联系，表示要尊重科学，但其实际态度似乎被特朗普团队之前的布阵套牢。他们延续了特朗普政府向中国甩锅的情绪，并且表现出想继续在疫情问题上诋毁中国、削弱中国影响力的政治操作策略。他们只是不再像特朗普那样“骂街”，重拾了言辞的克制，但反科学的态度几乎换汤不换药。
+
+由国家安全顾问出面质疑世卫专家组的溯源工作，给这项工作冠以“调查”的标签，华盛顿对自己的地缘政治意图几乎不加掩饰。沙利文的声明在对美国人进行从政治和国家竞争的角度看新冠疫情的煽动误导。“科学”在哪里？它只是有需要时被挂在嘴上罢了。
+
+稍早，《纽约时报》发文点名道姓引用多名世卫专家组成员的话，宣称他们在中国的调查受到了阻挠，并与中方发生激烈争执。被引用的美国专家达扎克、丹麦专家菲舍尔等分别发推特，愤怒声明自己的话被扭曲，达扎克直斥纽约时报“无耻”。官员如沙利文，媒体如《纽约时报》，美国政治和舆论精英们就是这样试图把科学溯源搞成对中国政治抹黑的。
+
+必须指出，这是华盛顿掀起并注定打不赢的一场肮脏舆论战。中国在认真配合世卫专家组的病毒溯源工作，之前和当下，中国也在进行卓有成效的抗击疫情斗争。在这个难熬的冬天，中国又一次成功实现了全国新冠确诊病例零新增，为全体民众保障了一个相对祥和的农历新年。相比之下，华盛顿仍有一天约10万的新增病例和以千计的单日人员死亡。中国与世卫一直在良好合作，美国像打摆子一样对世卫忽冷忽热。美国在疫情问题上攻击中国的唯一目的是给自己遮丑，全世界对此越看越清楚，世人不是傻子。
+
+美国新政府一边标榜自己与前任特朗普政府不同，一边在涉华涉疫重大问题上难与前朝政策切割。这样的摇摆和三心二意只会陷他们自己于前后矛盾之中，削弱他们制定清晰、坚定政策的能力。美国社会正在失去科学和理性的绝对主导权威，愿望常常将事实击倒。这是那个国家变得衰弱最为严重的信号。
+
+无论什么事中国都不用怕美国胡搅蛮缠。因为当他们那样做时，相关的结局已在冥冥之中确定了。
+
+***简评**：中共口口声声不要把科学政治化，一边却把包括世卫组织在内的各种国际组织渗透政治化成下属统战部门。聘请科学界豢养的走狗到武汉参观抗疫成果展的唯一目的是给病毒生化武器遮丑洗白，”全世界对此越看越清楚，世人不是傻子“！*
+
+#### 2021.02.15 参考消息 美媒：越来越多欧洲国家采购中国疫苗
+
+美媒称，由于欧盟采购工作受挫，西方疫苗企业生产出现中断，阻碍了欧洲抗击新冠肺炎疫情的斗争，一些欧洲小国的政府正转向中国购买新冠疫苗。
+
+美国《华尔街日报》网站2月13日发表文章指出，代表成员国购买疫苗的欧盟已批准使用德国、美国和英国研发的三种疫苗。但欧盟在签订合同和授权使用这些疫苗时行动迟缓，制造商则一直难以交付其所承诺的疫苗数量。在欧洲的非欧盟国家，供应短缺情况甚至更严重。随着选民的失望情绪加剧，一些更大的成员国现在也开始考虑中国的两种疫苗和俄罗斯研制的另一种疫苗。
+
+德国卫生部长延斯·施潘1月31日呼吁欧盟批准使用中国的疫苗。奥地利总理塞巴斯蒂安·库尔茨则表示，中方疫苗企业应该在奥地利生产其疫苗。
+
+文章称，上个月，匈牙利成为第一个独自授权使用中国国药集团疫苗的欧盟成员国，国药集团预计将在2月至4月间向其交付疫苗。同为欧盟成员国的捷克共和国也在考虑这样做。在欧盟以外，塞尔维亚是欧洲第一个开始使用中国疫苗的国家，黑山和北马其顿预计也将于近期推出这种疫苗。
+
+***简评：**明显标题党！文中明确指出目前欧盟仅批准使用德国、美国和英国研发的三种疫苗；文中提到的独自授权使用CCP疫苗的欧洲国家只有匈牙利和塞尔维亚这两个比较容易渗透控制的东欧穷国，其余提到的国家都只是“呼吁”或“将要”使用中共疫苗 – 文不对题，发回重写！*
+
+#### 2021.02.15 新华社 《求是》杂志发表习近平总书记重要文章《在河北省阜平县考察扶贫开发工作时的讲话》
+
+2月16日出版的第4期《求是》杂志将发表中共中央总书记、国家主席、中央军委主席习近平的重要文章《在河北省阜平县考察扶贫开发工作时的讲话》。
+
+文章强调，消除贫困、改善民生、实现共同富裕，是社会主义的本质要求。全面建成小康社会，最艰巨最繁重的任务在农村、特别是在贫困地区。没有农村的小康，特别是没有贫困地区的小康，就没有全面建成小康社会。对各类困难群众，我们要格外关注、格外关爱、格外关心，千方百计帮助他们排忧解难。
+
+文章指出，帮助困难群众特别是革命老区、贫困山区困难群众早日脱贫致富，到2020年稳定实现扶贫对象不愁吃、不愁穿，保障其义务教育、基本医疗、住房，是中央确定的目标。要坚定信心，找对路子。只要有信心，黄土变成金。要坚持因地制宜、科学规划、分类指导、因势利导，从实际出发，真正使老百姓得到实惠。
+
+文章指出，农村要发展，农民要致富，关键靠支部。要增强村党组织联系群众、服务群众、凝聚群众、造福群众的功能，真正发挥战斗堡垒作用，成为带领乡亲们脱贫致富奔小康的主心骨、领路人。要原原本本把政策落实好，真真实实把情况摸清楚，扎扎实实把支部建设好，切切实实把团结搞扎实，真正把乡亲们的事情办好。
+
+文章强调，我们讲宗旨，讲了很多话，但说到底还是为人民服务这句话。我们党就是为人民服务的。中央的考虑，是要为人民做事。各级干部要经常问问自己，我们是不是在忙着与党的根本宗旨毫不相关的事情？有没有一心一意在为老百姓做事情？是不是在围绕党和国家中心任务而工作？多想想我们干的事情是不是党和人民需要我们干的？要一心一意为老百姓做事，心里装着困难群众，多做雪中送炭的工作，常去贫困地区走一走，常到贫困户家里坐一坐，常同困难群众聊一聊，多了解困难群众的期盼，多解决困难群众的问题，满怀热情为困难群众办事。
+
+***简评：**“到2020年稳定实现扶贫对象不愁吃、不愁穿，保障其义务教育……是中央确定的目标”，2021年把提出要在去年完成的目标的“重要”讲话（讲话时间居然是2012年12月29日、30日）拿出来炒冷饭，是要羞辱讲话者没有实现既定目标，还是暗示讲话者最近开瓢手术后语言困难，纵有再多“重要”的话却讲不出来了?最近被查处的众多局级贪官都是动辄几百套房产，数十亿现金，如果还是要讲“为人民服务”这样的话，不如从这些局长们嘴里讲出来，会更有笑果！*
 
 0
