@@ -1,53 +1,94 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 批驳《环球屎报》的世卫赴华专家“通中证据”回怼
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/911213/)
+## 中共国的阴谋：疫苗外交迫使各国选边站
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/911341/)
 
-**加拿大多伦多枫叶农场 Kent**
+*新闻来源：《每日快报》| 作者：Ciaran McGrath | 发布时间：2021年2月7日*
 
-据天空电视台的夏里·马克森（Sharri Markson）2月14日报道，世界卫生组织对中共病毒起源的报告的公正性饱受质疑，因为有三名主要调查人员曾与中共相关机构有牵连。党媒《环球屎报》等进行疯狂回怼。
+*翻译/简评：新街口 | 校对/审核：万人往 | Page：拱卒*
 
-**天空电视台摆事实，认真进行思考和质疑**
+[!\[\]()!\[\](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/c18c294d-f493-4a61-a6ca-645298e4bb96.jpg?asset_id=266cd5ff-a947-40f5-845a-edde1bb01288&amp;img_etag=%227ca2d723119ece599fcd77869fe176b7%22&amp;size=2560)](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/c18c294d-f493-4a61-a6ca-645298e4bb96.jpg?asset_id=266cd5ff-a947-40f5-845a-edde1bb01288&amp;img_etag=%227ca2d723119ece599fcd77869fe176b7%22&amp;size=1024)
 
-世界卫生组织(WHO)在武汉实地考察28天后，上周结束了对中共病毒起源的调查。 本月早些时候，世卫组织领导的中共国调查团表示，他们不会进一步调查病毒从实验室泄漏的可能，它认为这种可能性极低。 调查也没有否认中共咬定的病毒可能是随进口冷冻食品进入武汉的说法。周五，总干事谭德塞说，他们的调查结果将于下周公布，美国表示要求审查数据。
+**简评：**
 
-公众对这一病毒起源的调查的信心是至关重要的，中共病毒已在全球造成200多万人死亡。 然而，三名首席调查员彼得·本·恩巴瑞克（Peter Ben Embarek）
-![]()![](https://gnews.org/wp-content/uploads/2021/02/屏幕截图690.png)图片来源：天空电视台
-彼得·达扎克（Peter Daszak）
-![]()![](https://gnews.org/wp-content/uploads/2021/02/EuUvWi9VgAENW1x.jpg)
-和马里恩·库普曼斯（Marion Koopmans）
-![]()![](https://gnews.org/wp-content/uploads/2021/02/屏幕截图691.png)图片来源：广东省疾病预防控制中心
-与中共政府有关系。 当一些调查人员与被调查国家有关系时，公众对报告的信任度就会受到影响。
+2020年1月开始的中共病毒全球爆发的事件，结合中共十几年前已建立的现代生物战争的体系（见2月15日路德时评），我们可以确定中共已经对美国和世界开始实施了现代生物战争。
 
-“武汉病毒研究所没有公开病毒相关的报告和记录，包括首批70名感染病人的资料，没有零号病人的信息。”马克森女士说，”事实是中共病毒可能是从蝙蝠或某个中间宿主传染给人类，它也可能是从实验室泄露出来的，而我们需要独立的调查人员，以开放的心态来寻找答案，而不是那些被中共政府贴上合格标签的科学家”。
+郭文贵先生多次警示过，中共最阴险的一个策略就是制造危机，即你的危（危险）就是中共的机（机会）。
 
-**对于天空电视台的这篇合情合理的报道，以《环球时报》为首的党媒开始群起而攻之，笔者对此进行批驳如下。**
+中共偷偷地把病毒撒向全球，给全人类的健康、经济和社会稳定造成了严重的危机后，现在开始通过疫苗来扩大自己的外交影响力。如本文作者所说：“向那些无法获得疫苗的国家提供了千载难逢的展示实力的机会。”
 
-首先，该媒体只是摆明事实，根本没有党媒罗织的“逢中必反”，而且爆料革命不断揭露真相，国际上大多数人已经清晰地认识到中共不等于中国，中共不能代表中国人。中共病毒是中共恶意制造并扩散，是无法抵赖的。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20201210-cn-scaled.jpg)
-其次，与中共有关的世卫组织调查员、荷兰病毒学家马里恩·库普曼斯所谓的“回怼”也是站不住脚的。她说自己除了为广东省疾控中心做科学顾问，还（曾）为欧盟、美国工作过。但是中共政府是邪恶的独裁专制，这与其他民主国家的机构有本质的不同。能为中共政府的疾控中心工作，很大可能被蓝金黄了，成为中共的传声筒。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/10.29_11.jpg)
-第三，中共确实“不透明、不配合调查”，且世卫组织与之沆瀣一气。以下为部分举例：
-![]()![](https://gnews.org/wp-content/uploads/2021/02/不能不明白.jpeg)
-2020年1月3号，中共惩罚了包括吹哨人李文亮在内的八名医生，掩盖了中共病毒人传人的事实, 同一天向世卫组织提供了 “武汉发现不明原因病毒性肺炎” 的信息。
+以前中共的霸权扩张计划是通过“一带一路”上投入大量资金进行基础设施建设来带动的。自从在全球制造了病毒危机后，中共开始用廉价的（不知道是否真正有效的）疫苗代替了投资巨大、周期长的基础建设，实现对其它国家的影响、胁迫和控制，真正实现了作者所说的“而这能够以相对较低的成本实现”。
 
-同年1月14号，世卫组织在新闻发布会上表示，根据呼吸道病原体的经验，中共41例确诊病例存在人际传播的可能性，但信誓旦旦地表示人际传播可能性有限。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/ERqx1h-UwAAG5Gr-1.jpg)
-随后又在推特上表示，中共当局的初步调查“没有明确的人际传播证据”。世卫组织在风险评估中表示，“需要进行更多调查，以确定是否存在人际传播、传播方式、常见接触源以及是否存在未检测到的无症状或轻微症状病例”。世卫组织这一天发布的信息使得全世界对中共病毒掉以轻心。
+这场中共病毒生物战，本质上是中共独裁体制对西方民主体制进行的一次偷袭。妄图通过病毒战打败以美国为首的自由、民主、法治体系国家，在全球实现中共的独裁、专政霸权，对全人类进行奴役。
 
-直到1月22号，世卫组织武汉代表团才发表声明称，有证据表明中共病毒在人与人之间传播，但需要进行更多调查，以了解传播的全部程度。
+**原文翻译：**
 
-从中共病毒事发到世卫组织向全时间发出像样的警告，已经过去近一个月，无数人从武汉涌向世界，中共阴谋得逞，目前全球已过亿人感染中共病毒，两百多万人因该病毒致死。
+# **中共国的阴谋: 随着欧盟争吵，中共国影响力的触角通过“疫苗外交”蔓延**
 
-第四，党媒理论、事实不去讲，却人身攻击沙里·马克森，又摆出“她对中国一无所知”的谬论。虽然很多地方人们没去过，但对常识有着基本的判断。朝鲜和韩国哪个好，需要亲身体会才知道吗？中共政府的反人类罪行，路人皆知，夏里·马克森只是一位根据事实认真思考的人。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/image4-8.jpg)
-中共病毒真相一定会大白于天下，反人类的中共及其走狗世卫组织一定会被钉在历史的耻辱柱上！
+[!\[\]()!\[\](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/3ecd0909-fca4-468d-ad3e-9df7ad5b32c6.jpg?asset_id=b5898593-bd05-49f3-b9e8-e0f5acbf2650&amp;img_etag=%22dea749a26bb78cc98965f90b227c2ba5%22&amp;size=2560)](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/3ecd0909-fca4-468d-ad3e-9df7ad5b32c6.jpg?asset_id=b5898593-bd05-49f3-b9e8-e0f5acbf2650&amp;img_etag=%22dea749a26bb78cc98965f90b227c2ba5%22&amp;size=1024)
 
-[原文链接](https://www.skynews.com.au/details/_6232098849001)
+曾銳生教授在北京宣布将向几内亚捐赠20万剂COVID-19中共病毒疫苗后发表讲话。伦敦东方与非洲研究学院中国研究所所长曾教授对《每日快报》表示：由于不发达国家在未来几个月内无法从领先的西方疫苗生产商那里获取疫苗，中共国实行“疫苗外交”主要是为了增强其软实力并获得这些不发达国家更广泛的支持。
 
-* * *
+“习近平决心在国内外让中共国富有、强大和受人尊敬。”
 
-*校对、发稿 文锦*
+他警告说：“西方民主国家关于疫苗的争论以及疫苗的短缺，提供了一个绝好的机会，可以通过向无法获得疫苗的国家提供中共国自己的疫苗，来展示中共国的实力。”
+
+“从北京的角度来看，这将有助于按照习近平的要求很好地讲述中共国的故事，而这能够以相对较低的成本实现。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/e876388a-a035-4208-8dc4-00d3d8203be9.jpg?asset_id=b77a9b84-e586-4806-9799-38093726722a&amp;img_etag=%223101d2c44a299d5a12aadff861e04bc1%22&amp;size=2560)](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/e876388a-a035-4208-8dc4-00d3d8203be9.jpg?asset_id=b77a9b84-e586-4806-9799-38093726722a&amp;img_etag=%223101d2c44a299d5a12aadff861e04bc1%22&amp;size=1024)© GETTY 中国疫苗 习近平
+
+西非国家外交部长易卜拉希马·哈利勒·卡巴（Ibrahima Khalil Kaba）本周表示，中共国驻几内亚首都科纳克里的大使在周二的一次会议上宣布了这一捐赠。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/dd3f3efa-d90e-45da-915c-135bc1a19222.jpg?asset_id=bc0a57ff-19e5-4ff8-a768-3c2f5e592adf&amp;img_etag=%22451b7aecec64b32b7e1e41e680629b72%22&amp;size=2560)](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/dd3f3efa-d90e-45da-915c-135bc1a19222.jpg?asset_id=bc0a57ff-19e5-4ff8-a768-3c2f5e592adf&amp;img_etag=%22451b7aecec64b32b7e1e41e680629b72%22&amp;size=1024)© GETTY 查尔斯-米歇尔, 安吉拉-默克尔, 乌苏拉-冯-德-莱恩 在一起
+
+卡巴先生没有具体说明哪些中共国研发的疫苗将得到捐赠，以及何时能够收到。
+
+在包括美国辉瑞公司在内的制药公司宣布出现供货短缺之后，中共国和俄罗斯所谓的疫苗外交正在世界多个地区建立信誉。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/e8ee3e34-5e1f-4be5-8bd9-e88bdc46708f.jpg?asset_id=56ce3aa4-2d0e-4f81-9184-bd0ca537b257&amp;img_etag=%22eab55f5ff7d366397dd14615f80de947%22&amp;size=2560)](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/e8ee3e34-5e1f-4be5-8bd9-e88bdc46708f.jpg?asset_id=56ce3aa4-2d0e-4f81-9184-bd0ca537b257&amp;img_etag=%22eab55f5ff7d366397dd14615f80de947%22&amp;size=1024)© GETTY 中共国一带一路
+
+大多数国家都在等待COVAX的拨款，这是由世界卫生组织（WHO）牵头的针对低收入国家的全球计划。
+
+几内亚人口为1240万，迄今已记录了超过1.45万例COVID-19中共病毒病例，83人死亡。
+
+中共国的疫苗战略与“一带一路”倡议所体现的更广泛的方法相吻合。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/05b0b9a4-f42f-4dd7-837a-5eaf39071862.jpg?asset_id=ba226d91-d08a-4b50-97a0-506f1d99e523&amp;img_etag=%2295fba75a9c99c9a34d7c406ce4afcaca%22&amp;size=2560)](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/05b0b9a4-f42f-4dd7-837a-5eaf39071862.jpg?asset_id=ba226d91-d08a-4b50-97a0-506f1d99e523&amp;img_etag=%2295fba75a9c99c9a34d7c406ce4afcaca%22&amp;size=1024)© GETTY 托比亚斯-艾伍德
+
+[!\[\]()!\[\](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/e938bb97-5b21-40c7-8101-0122b5030294.jpg?asset_id=3c3a1e60-d393-492f-92d2-fd68a842b349&amp;img_etag=%22254585be6e1ae93d2885a946441beaad%22&amp;size=2560)](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/e938bb97-5b21-40c7-8101-0122b5030294.jpg?asset_id=3c3a1e60-d393-492f-92d2-fd68a842b349&amp;img_etag=%22254585be6e1ae93d2885a946441beaad%22&amp;size=1024)© GETTY 丹尼 卡务宁斯基
+
+这个野心勃勃的计划已经使它在发展中国家的基础设施项目中消耗了大量资金。
+
+英国议会中共国研究小组成员，伯恩茅斯（Bournemouth）东区保守党议员Tobias Ellwood去年接受《每日快报》采访时表示：“中共国渴望获得超级大国的地位，但却逃避维护我们所享有的核心价值观念的责任感——自由、民主、法治等。”
+
+他说：“这样做是在制造一种相互竞争的假象，巧妙地迫使各国选择一方，即独裁的控制体系与我们的民主体系。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/88fc3d5d-873f-4c80-b303-2bec98c8cdd9.jpg?asset_id=e8976a34-db77-4742-85f7-3320e31e6db9&amp;img_etag=%221c78696572e802b349907eda2da0bc2d%22&amp;size=2560)](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/88fc3d5d-873f-4c80-b303-2bec98c8cdd9.jpg?asset_id=e8976a34-db77-4742-85f7-3320e31e6db9&amp;img_etag=%221c78696572e802b349907eda2da0bc2d%22&amp;size=1024)©Express《快报》习近平资料图
+
+“他们正在利用华为和其他东西吸引小国加入其影响力网络。”
+
+“而且我们也在南中国海看到这种情况。”
+
+Strewsbury和Atcham区的议员Daniel Kawczynski也在去年告诉《每日快报》：“每当我们去访问某些英国海外领土，当然是那些继续以英国女王殿下为国家元首的英联邦国家，都会有一场辩论。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/5033e352-8892-40cd-a693-a518aaf66d7f.jpg?asset_id=b1bf8f7d-857c-4d13-9b63-7104f8b4fef9&amp;img_etag=%226b6c9bc13f85e609414fc8ed14a2ea0a%22&amp;size=2560)](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/5033e352-8892-40cd-a693-a518aaf66d7f.jpg?asset_id=b1bf8f7d-857c-4d13-9b63-7104f8b4fef9&amp;img_etag=%226b6c9bc13f85e609414fc8ed14a2ea0a%22&amp;size=1024)© GETTY 俄罗斯斯普特尼克五号疫苗
+
+“很多人告诉我们，中国人已经在他们的国家进行了投资；但我可以说，他们都希望、期望并呼吁切断这些和中共国的联系。”
+
+“中共国希望完全控制其中一些非洲和加勒比国家。”
+
+“中共国想毫不含糊地向他们施加压力。”
+
+🔗[原文链接](https://www.msn.com/en-gb/news/world/china-plot-tentacles-of-influence-spreading-with-vaccine-diplomacy-as-eu-squabbles/ar-BB1dsE99)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

@@ -1,33 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友寄语】卢思位任全牛律师被吊销执照与12港人有关
-` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/910857/)
+## 中国的私人企业家们，你们动动脑子吧，醒醒吧！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/910348/)
 
-搜集：po / 撰文：岁月如歌
+新闻简述：在2021年2月15日的第一次Getter视频中，郭先生爆光中共白手套马云和中共打手傅政华的下场，并奉劝中国的私人企业家们：“你们动动脑子吧，醒醒来吧！”
 
-**卢思位律师和任全牛律师的律师执照被吊销与12港人案子有关是无容置疑的，这都是老套路了。中共最爱在律师受理案件中制造冤屈，污蔑律师或者在你出行途中袭击等方式打压律师，使其知难而退，各种损招用尽依然不能阻止律师停止脚步，最后一招就是吊销律师执照，让他们永远不能再干这工作。**律师的职责是为受理人提供法律援助，这是天经地义的事，但是在中共国是不可以出现的，不应该存在的。在中共国有律师这个职业处理些鸡毛蒜皮案件就行了，不要以为是尚方宝剑拿法律当回事，为民伸冤，或者认为政府能听取民意，向政府提出建议，这是万万不可的，找死的节奏。几年前震惊世界的“709律师大抓捕”就是这样惨遭灭绝。律师的存在在一定程度上和每个省市设立信访办一个样，是个幌子，糊弄老百姓的。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/image001-16.jpg)左：卢思位 /右：任全牛
-什么是维权律师？为什么有维权律师出现？维基百科是这样解释的：维权律师是指一群在中共国以行政及法律诉讼来维护中共国公民公共利益，宪法和公民权利的法律职业者法律学者或法律行动者。维基百科称中共国的老百姓为公民大概是据中共国宪法上称呼的，这个称呼是中共用来欺骗老百姓的，中共国没有公民只有居民，身份证明明白白的写着。公民和居民一字之差，意义相差甚远。生活中有很多人很多问题涉及到法律，但不是每个人你都懂得法律，维权律师就是帮助这些居民在法律方面解决问题的。
+**中国的私人企业家们，你们动动脑子吧，醒醒吧！**
 
-在名词解释中我们很清楚维权律师的工作是维护老百姓利益的。按目前香港形势，卢思位律师和任全牛律师为12香港人提供辩护，就是跟中共对着干，在中共眼里。秋后算账，打击反送中运动人员是中共必定要做的事情，包括抓捕，定罪，入狱甚至枪毙都是必须的，一切都以打击消灭为主，尽管法律程序上要走，也是做样子，做给世人看的。表示中共有法治，有公平，公正，演这场戏绝不可以自己找律师给它添麻烦，必须由政府指定。更何况12港人事件已经世界尽知，非常敏感，中共不可能再让这件事节外生枝。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/image003-10.jpg)
-德国之声采访曾在“709”被吊销执照的谢燕益也表示中共打压卢任两位律师绝非偶然。和笔者早前的两篇文章观点一致。自从2015年开始，全力打击维权律师就没停止过。中共打击两位律师不是因为个人言行或办理过程中侵犯公权力而吊销执照。笔者认为，这是709打压的延续，对这类维权一律赶尽杀绝，以扬党威。谢燕益还表示，维权律师无意挑战中共的威信，并非天生就是反体制的力量。律师的天职就是在法律上维护老百姓利益，仅此而已。人权至上，和平，民主与法治这是人最基本的权利，但是在中共国这点诉求都不可以有。当你善意传递，唤醒他人时，你就触犯了统治者。
+**Chinese Private Entrepreneurs, Use Your Brains, Wake up!**
 
-谢燕益说的这段话非常好，「因为中国的法治不能再这样恶化下去了，所以维权律师的群体也是责无旁贷的。我们不会回避自己面临的挑战，以及这个社会的各种不堪、人道灾难或冤狱。我们会直接面对这个现实，而且我个人认为很多维权律师会勇于担当这个人道使命。」
+昨天晚上醒来其中一次，原来代表马云的香港某律师给我打电话，吓我一大跳。一打电话说：“郭先生啊，不要再提马云了，Jack了。”我说，啥意思啊？我说这大过年的，啥意思啊？他说就是因为你们爆料革命老说马云，结果中纪委还有国家安全委员会，让马云坐出来，背后拿枪顶着坐在椅背上，在双规的地点面对摄像机，所谓的出来露了露面。他说不要再搞了，不要再提了。我说我没心情提 Jack 马，我说头两天有一个马云的前女友，因为给他生了个孩子，我原来说过，帮助他照顾的就是我一个哥们，找不着人了，说家里的钱房租都没人付，找我来了。我给你给我说啥？马云的事，我怎么会知道啊？
 
-卢思位律师和任全牛律师正是谢燕益说的这种人，面对被吊销执照两人坦荡无悔。他俩在接受苹果日报采访时表现出来的淡定和豪迈是令人钦佩的。在受到当局打压时，他们据理力争维护自己的权益，虽然明知道敌不过当局，但他们决不低头。现在失去了这份职业他们也不唉声叹气，而是坦然面对。在新的一年里，卢思位律师希望大家更有自由，有尊严的生活。他勉励港人不必悲观，没有明天会更好的信念，很难支撑自己走下去。任全牛律师寄望港人别放弃，盼望下一代坚守良知。
+Last night I was woken up by a phone call from a Hong Kong lawyer who previously represented Jack Ma, which scared me. He said in the call, “Mr. Guo, don’t mention Jack Ma again.” “What do you mean?” I said, “What do you mean by calling me during the Chinese New Year?” He said that it was because our Whistleblower Movement always broke the news about Jack Ma. As a result, the Central Commission for Discipline Inspection and the National Security Committee forced Jack Ma to sit on a chair facing a camera with a gun behind his back in a “double designation” (also known as “Shuanggui”) location. It’s called a public appearance. He said, “Don’t mention him anymore.” I said that I was not in the mood for mentioning Jack Ma. I said, a couple days ago, a buddy of mine who was taking care of a Jack Ma’s ex-girlfriend who had a child with Jack contacted me, for there was no one paying her rent anymore. I said, “Why do you tell me? How am I supposed to know anything about Jack Ma?”
 
-对于追求自由，人权的人来说，除了被吊销执照，更多异见人士，律师，公民记者等都身陷囹圄。爆料革命墙内战友又何尝不是和他们一样，追求正义自由民主法治，而遭受因九指妖出卖，多人被喝茶，被抓，甚至被消失，无数战友都被中共残忍的打压。但中共和九指这些垃圾的打压并没有吓怕我们追求公义的决心，我们一会坚持下去，直到消灭共匪魔党！
+所以你说共产党让马云出来，让马云的钱连一个房租都付不上，给小女情人的。这抢钱，共产党是天下第一啊。抢了14亿中国人的钱，抢了14亿中国人的未来，就马云这号人连房租现在都不给人家留。所以中国的私人企业家们，你们动动脑子吧，醒醒来吧。
 
-本文仅代表作者个人观点
+So you tell me. The Communist Party asked Jack Ma to make a public appearance and left him not enough money to pay the rent for his little lover. The CCP is the number one in the world in robbing people’s money! It robbed money from the 1.4 billion Chinese people and also the future of the 1.4 billion people, and didn’t even leave money to someone like Jack Ma to pay the rent. So Chinese private entrepreneurs, use your brains, wake up!
 
-资料来源：
+然后更重要的事情，我昨天无意中说了傅政华全家被抓的事。昨天中间两个电话给我打过来：“你看，你说傅政华干嘛？原来有默契的嘛，傅政华不说你，你不说傅政华，傅政华永远不再对你有任何敌意，大家已经坚守了两年了，你干嘛这样啊？”
 
-[香港电台：卢思位称相信自己被除牌与12港人案有关](https://news.rthk.hk/rthk/ch/component/k2/1575740-20210215.htm)
+Then more importantly, I accidentally disclosed yesterday about the arrest of Fu Zhenghua’s whole family. I received two calls yesterday in the middle [of the broadcast], “Look, why did you talk about Fu Zhenghua? There was an agreement that Fu Zhenghua won’t talk about you, and you won’t talk about Fu Zhenghua, and Fu Zhenghua will never have any hostility to you again. Both of you were holding on to that agreement for two years. Why did you do this to him?”
 
-[德国之声：“12港人案”又一律师遭吊照 美发声明谴责北京](https://www.dw.com/zh/12%E6%B8%AF%E4%BA%BA%E6%A1%88%E5%8F%88%E4%B8%80%E5%BE%8B%E5%B8%88%E9%81%AD%E5%90%8A%E7%85%A7-%E7%BE%8E%E5%8F%91%E5%A3%B0%E6%98%8E%E8%B0%B4%E8%B4%A3%E5%8C%97%E4%BA%AC/a-56435703)
+他说昨天傅政华，这个政法委领导、中纪委领导，听说抓傅政华全都是军队抓的，说要求傅政华出来逛一逛，得露露面，为什么？要保持中央绝对权威，啥叫绝对权威啊？傅政华当年把他抓很多人、杀很多人、冤枉很多人，就这个人不能抓，抓了以后就是没人给你共产党干黑活了，所以说咬人的狗还是当人面得给点狗骨头，那怎么当着人面杀这个狗哪？疯狗哪？咬人的狗哪？不行。说傅政华出来转一转。能不能文贵不再说傅政华的事了？
 
-审稿：卡西欧 / 上传：文粵
+He said that yesterday the leaders of the Political and Legal Affairs Commission and the Central Discipline Inspection Commission (I heard that all the arrests of Fu Zhenghua [and his family] were done by the military) asked Fu Zhenghua to go out and show his face a little bit. Why? To maintain the absolute authority of the central government. What is absolute authority? Fu Zhenghua arrested a lot of people, killed a lot of people, and wronged a lot of people back then. So this person could not be arrested because if you arrest him, no one would do dirty work for you, the CCP. Therefore, a dog that bites people should be given bones in front others. How can you kill this dog in front of people? So, don’t kill a mad dog who bites people for you. So, Fu Zhenghua came out just for a walk. “So, Miles, can you stop talking about Fu Zhenghua?”
 
-0
+兄弟姐妹们，咱这爆料革命啊，愣把海航王健给说死了，愣把海航的说破产了，愣把孙立军给说进去了，吴征现在也完球蛋了，杨澜估计钥匙也找不着了，现在目前能活口的只有一个王岐山了，所以这个爆料革命。
+
+So, brothers and sisters-in-arms, our Whistleblower Movement has “talked” HNA’s Wang Jian to death, “talked” HNA to bankruptcy, and “talked” Sun Lijun to jail. Bruno Wu is also almost done. I guess that Yang Lan can’t play “find the key” game anymore. Now, there is only one who is still alive – Wang Qishan. So this Whistleblower [is really something].
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+
+视频来源：[https://gtv.org/getter/602aa081226e7759074440d6](https://gtv.org/getter/602aa081226e7759074440d6)
+
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/909619/](https://gnews.org/zh-hans/909619/)
+
+翻译：【Isaiah4031】校对：【BruhM】字幕：【奔腾的长江】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+
++1
