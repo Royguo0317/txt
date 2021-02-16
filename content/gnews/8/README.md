@@ -1,87 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/02/15 英喜时事速递
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/910429/)
+## 川普的国会演讲 &#8220;不符合 &#8220;刑事煽动标准
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/910520/)
 
-收集：Alicia，Near，CharlesS
-*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
-![]()![](https://www.gnews.org/wp-content/uploads/2021/02/fotolia_59125087_subscription_xxl_9-1.jpg)
-## 最高院：农民工（班组）不属于法律意义上的实际施工人，无权直接要求发包人支付劳务款
+素材: Jenny, 翻译: Jony(8 Mile), 视频: Runaway/光耀华夏
+Fox News
+原标题：特利 (Turley) 谈弹劾：川普的国会演讲 “不符合 “刑事煽动标准
 
-![Bildergebnis für 最高院：农民工（班组）不属于法律意义上的实际施工人，无权直接要求发包人支付劳务款]()![Bildergebnis für 最高院：农民工（班组）不属于法律意义上的实际施工人，无权直接要求发包人支付劳务款](https://pic1.zhimg.com/v2-5c24a417c04803873f4bcc7cd78351e0_720w.jpg?source=172ae18b)
+周日在福克斯新闻频道的 “美国新闻总部 “上，乔治-华盛顿大学法学院教授乔纳森-特利 (Professor Jonathan Turley) 就前总统唐纳德-川普能否因1月份在美国国会大厦“煽动骚乱”而受到刑事指控的问题发表讲话。参议院周六投票决定川普“煽动暴乱”罪名不成立。
 
-简评：自称共产党信奉共产主义的国家最高法居然颁布这种法律，共产主义不是骗局是什么
+特利承认，川普作为前总统，不能免于被指控犯罪。但他认为，川普在国会大厦发生骚乱前的演讲”不符合煽动的标准”。
 
-## 国务院：因参与非法集资受到的损失，由集资参与人自行承担（2021.5.1施行）
+“好吧，他可以被起诉，这些言论是在驳斥众议院议长的观点，即总统可以不知何故而逍遥法外。总统也不能逃脱任何犯罪行为。”特利在谈到指控一位前总统犯罪的合法性时说。”他可以被指控，但你必须 (合法) 指控他。所以很多人说这是一个公开的犯罪煽动案——好吧，(以为这样就可以) 指控他。我必须告诉你——我非常怀疑，如果不是在审判中，而是在上诉中，这是否能持续下去。在我看来，如果你只看演讲的话，这不符合勃兰登堡案的标准。”
 
-![Bildergebnis für 国务院：因参与非法集资受到的损失，由集资参与人自行承担（2021.5.1施行）]()![Bildergebnis für 国务院：因参与非法集资受到的损失，由集资参与人自行承担（2021.5.1施行）](https://pic4.zhimg.com/v2-5122cb87ce7564d918859e97c85b74d0_1440w.jpg?source=172ae18b)
+（本文纯属原文翻译，无个人观点添加）
 
-简评：共产党先把无法控制的钱定为非法，再不保障这些人的利益，以达到牢牢掌控钱路的目的。
+信息来源: https://www.breitbart.com/clips/2021/02/14/fncs-turley-on-impeachment-trumps-capitol-speech-does-not-meet-standards-of-criminal-incitement/
 
-## 环球网：澳媒称发现世卫赴华专家“通中证据”，当事人回怼
-
-![]()![](https://inews.gtimg.com/newsapp_bt/0/13171383623/1000.jpg)
-
-简评：不错，感谢环球网把这些关联又宣传了一把：
-1.“关于生态健康联盟主席彼得·达扎克（Peter Daszak）”：该组织向武汉病毒所研究蝙蝠冠状病毒项目输送来自福奇控制的NIH资金。（该项目后被川普政府叫停） 
-2.“马里恩·库普曼斯是广东省疾控中心的科学顾问”。连什么是独立调查都搞不清楚。
-3.“彼得·达扎克18表示与石正丽在蝙蝠研究上有过长久合作。”ZC45、ZXC21毒株；舟山蝙蝠病毒、新冠病毒E蛋白100%吻合。
-
-## 澎湃：江西鄱阳一村民女儿订婚仪式上摆出巨额现金彩礼，被黑榜通报
-
-![]()![](https://p4.itc.cn/q_70/images03/20210215/6100e53084f749b19a3242b8b006b482.jpeg)
-
-简评：村民真正犯的错是他有钱了，违反了中共“奴民五策”的贫民，弱民。任何能让老百姓恢复对个人、自身意识觉醒的行动都是中共所害怕的。
-
-## 网易新闻：继英国后，中CGTN在德国也遭停播，可能失去整个欧洲播放权
-
-![Bildergebnis für 网易新闻：继英国后，中CGTN在德国也遭停播，可能失去整个欧洲播放权](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0215%2F0668c529j00qok3ps002uc000u000kkm.jpg&amp;thumbnail=750x2147483647&amp;quality=85&amp;type=jpg?imageView&amp;thumbnail=750x0&amp;quality=85&amp;type=jpg&amp;interlace=1)
-
-简评：反人类、种族灭绝犯罪集团中共被全球围剿的趋势不会停止
-
-## 观察者网：《南华早报》：特朗普卸任后，字节跳动搁置了TikTok与甲骨文的交易
-
-![Bildergebnis für 观察者网：《南华早报》：特朗普卸任后，字节跳动搁置了TikTok与甲骨文的交易]()![Bildergebnis für 观察者网：《南华早报》：特朗普卸任后，字节跳动搁置了TikTok与甲骨文的交易](https://p1.itc.cn/q_70/images03/20210215/77ef06f31c754274b5961ab8d220a9cd.jpeg)
-
-简评：抖音这个间谍监控软件确实是被中共看重，所以才如此紧张。“不过报道称，美国白宫10日表示，由于拜登政府的审查TikTok交易被‘无限期搁置’的报道‘不准确’”。
-
-## **澎湃：缅甸军方暂停部分公民隐私条款，曾是民盟政府立法成果**
-
-![Bildergebnis für 澎湃：缅甸军方暂停部分公民隐私条款，曾是民盟政府立法成果]()![Bildergebnis für 澎湃：缅甸军方暂停部分公民隐私条款，曾是民盟政府立法成果](https://k.sinaimg.cn/n/mil/crawl/114/w550h364/20210214/4af5-kkciesq3976713.jpg/w700h350z1l10t10ca6.jpg)
-
-简评：不愧是学习中共的手段。违法作恶，还要拿个假法假程序做幌子。
-
-## **和讯网： 这个春节，他们因违规燃放、销售烟花爆竹被罚，个人征信将受影响**
-
-![Bildergebnis für 和讯网： 这个春节，他们因违规燃放、销售烟花爆竹被罚，个人征信将受影响]()![Bildergebnis für 和讯网： 这个春节，他们因违规燃放、销售烟花爆竹被罚，个人征信将受影响](https://p2.itc.cn/q_70/images03/20210216/77781c2050e74bc2aa9e8ab76a371299.jpeg)
-
-简评：中共治下的假法制社会，用各种层出不穷的手段对付人民。而它的假法律法规是不能深究不能实用太多，否则就露馅了。
-
-## 观察者网：被忽略的疫苗战
-
-![Bildergebnis für 疫苗战]()![Bildergebnis für 疫苗战](https://i6.hexun.com/2020-12-26/202705837.jpg)
-
-简评：如题。疫苗不仅仅是关系到钱，而是中共病毒超限战下一阶段的战略武器、人尸丸。
-
-## 新唐人电视台
+审核: Runaway
+![This image has an empty alt attribute; its file name is 1-澳喜Logo.jpeg]()![This image has an empty alt attribute; its file name is 1-澳喜Logo.jpeg](https://gnews.org/wp-content/uploads/2021/02/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 
 
-
-> 卷土重来 幾內亞再爆埃博拉疫情 
-> 
-> 週日（14日）， [#幾內亞](https://twitter.com/hashtag/%E5%B9%BE%E5%85%A7%E4%BA%9E?src=hash&amp;ref_src=twsrc%5Etfw) 衛生官員宣布爆發新的 [#埃博拉](https://twitter.com/hashtag/%E5%9F%83%E5%8D%9A%E6%8B%89?src=hash&amp;ref_src=twsrc%5Etfw)（Ebola） [#疫情](https://twitter.com/hashtag/%E7%96%AB%E6%83%85?src=hash&amp;ref_src=twsrc%5Etfw)，這是自2016年世界上最致命的埃博拉疫情結束以來，該地區首次發現的新病例。[https://t.co/1vnxJkhAdL](https://t.co/1vnxJkhAdL)
-> — 新唐人電視台 (@NTDChinese) [February 15, 2021](https://twitter.com/NTDChinese/status/1361413223069618176?ref_src=twsrc%5Etfw)
-
-
-
-简评：人类也许最近几年都要保守病毒的摧残
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
