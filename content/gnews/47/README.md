@@ -1,45 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登政府威胁报复以色列也将禁止该国飞机降落美国机场
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/909927/)
+## 壹美新闻网向卢·道布斯抛出橄榄枝
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/909965/)
 
-翻译：ChinaDoll
+翻译：Freedom
+责编：文旺
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Picture2-8.png)图片来源：（[https://www.businessinsider.com/](https://www.businessinsider.com/)）
+美国《国家文档》（nationalfile.com）网站近日报道，福克斯新闻（Fox News）在收到智能公司（Smartmatic）27亿美元的诉讼后，解雇了著名主持人卢·道布斯（Lou Dobbs），并下架了他的节目《卢·道布斯今夜谈》（Lou Dobbs Tonight）。
 
-素材&评论：Jenny
-![]()![](https://gnews.org/wp-content/uploads/2021/02/IMG_8041.jpg)网络截图
-《贝鲁特报》于*2*月*13*日刊登了*Deborah Brandy*的快讯，题为*“*：美国威胁禁飞来自以色列飞机
+智能公司是一家投票机公司，被指控在2020年的美国大选中涉嫌参与选举欺诈。这家公司在纽约州最高法院提起诉讼，向福克斯新闻台，节目主持人卢·道布斯，玛丽亚·巴尔蒂罗莫（Maria Bartiromo），珍妮·皮罗（Jeanine Pirro）以及美国市长鲁迪·朱利安尼（Rudy Giuliani）和西德尼·鲍威尔（Sidney Powell）律师追讨27亿美元的赔偿，因为他们指控该公司与11月总统大选中出现的巨大选民欺诈有关。
 
-据以色列第12频道上周六，2月13日报道，拜登政府已发出最后通牒，称如果不允许美国的紧急飞机飞往以色列，美国将对来自以色列的飞机施以同样的待遇，不准降落。
+福克斯新闻在一份声明中声称，下架《卢·多布斯今夜谈》的决定是对节目内容进行更广泛改变的一部分。“福克斯新闻考虑定期优化节目内容，并计划在大选后推出新的播放形式。”但CNN（有线新闻网）把福克斯电视台取消该节目的决定描述为 “令人头疼的举动”，因为许多著名政客和经济学家是卢·道布斯节目的常客，他的节目经常让福克斯新闻的收视率翻倍，是“电视界罕见的壮举”。如果不是因为道布斯和福克斯目前是智能公司诉讼中的当事人，突然取消最成功的节目之一肯定会让人们感到困惑。
 
-以色列本古里安机场已经在过去的三周持续关闭。唯一获准降落的飞机属于该国El Al旗舰航空公司，他们是负责将滞留在海外的以色列人带回家。
+壹美新闻网（One America News Network，简称OANN）是与福克斯新闻台竞争的公司，其首席执行官罗伯特·赫林（Robert Herring）希望卢·道布斯能到OANN安家。他表示，可以给卢·道布斯提供一个不会因为说真话而被审查的职位。因为OANN坚持与川普总统合作，很多川普政府的成员和国会议员，在1月6日国会山抗议活动后开始反对该媒体。赫林说，”有人认为我们抛弃了美国有史以来最好的总统，我想说你们错了。我们将继续给予他最真实的报道。我非常惊讶与川普总统共事的人并不支持他。”
 
-报道说，美国运输部警告说，以色列这样做违反了两国之间的开放天空协议。
+评论：
 
-报道援引白宫官员对以色列说：”你为什么需要与新政府发生危机？允许我们的飞机飞往以色列。
+俗话说，欲使其灭亡，必先使其疯狂。拜登刚刚赢得美国总统大选，中共及其走狗们就开始群魔乱舞，仿佛黑暗力量赢得了全世界。全世界数亿双眼睛都目睹了中共及其走狗们在大选中的拙劣表演，即使拜登政府上台，也无法抹除大选舞弊的证据。单是美国，接近八千万人认为选举存在严重舞弊，中共妄想颠倒黑白是不可能完成的任务。这些小丑尽情表演对爆料革命来说是好事，能让更多人觉醒，认清中共的邪恶面目。
 
-与此同时，恐怕以色列也将面临其他国家包括英国，会发出类似的最后通令。
+原文：[https://nationalfile.com/breaking-one-america-news-offers-lou-dobbs-job-after-fox-news-fired-him-following-2-7bn-smartmatic-lawsuit/](https://nationalfile.com/breaking-one-america-news-offers-lou-dobbs-job-after-fox-news-fired-him-following-2-7bn-smartmatic-lawsuit/)
 
-根据以色列第13频道的另外一则新闻，卫生部官员建议机场至少再继续关闭一个月。
-
-美国威胁要制裁以色列飞机的报道，正值有关拜登总统推迟 [打电话给以色列总理](https://www.breitbart.com/middle-east/2021/02/11/bidens-ghosting-of-netanyahu-raises-concern-for-u-s-israel-ties/) 内塔尼亚胡的猜测。在上任三周之后，拜登给除内塔尼亚胡以外的几个主要盟国的领导人打电话，因此引发评论，这可以被看作美国与以色列紧密关系开始趋冷的迹象。
-
-与之形成对比的是，川普曾在当选总统的两天内，就给以色列总理内塔尼亚胡通了电话。
-
-评论：以色列总理内塔尼亚胡在拜登**“**有争议的获胜**”**后，跻身世界领导人前十名，第一时间向拜登发出贺电，曾引发热议。但看起来拜登政府并没有“领情”。
-
-该文章评论区网友评论：
-
-网友**Spike Springer: **那么，什么时候拜登政府将会关闭美国在以色列的大使馆呢？民主党与伊朗的关系胜过盟友。
-
-网友**Dtim2: **这个证明**Xiden **习拜登在从反犹太人小队的木偶大师那里征集命令。 与川普最好的朋友以色列进行战斗。 宇宙之神应将他的圣怒降在人类这个可悲的借口上。
-
-**以色列赶在川普政权移交之前，在约旦河西岸敏感地带的定居点，新批准增建780套住房，这会否成为拜登政府下一个“谴责话题”，我们拭目以待。**
-
-（本文纯属个人观点）
-
-译自：[https://www.breitbart.com/middle-east/2021/02/15/report-u-s-threatens-to-ban-israeli-plans-on-american-soil/](https://www.breitbart.com/middle-east/2021/02/15/report-u-s-threatens-to-ban-israeli-plans-on-american-soil/)
-
-澳喜文章[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-澳喜Logo.jpeg)
-+2
+0

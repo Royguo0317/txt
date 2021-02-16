@@ -1,27 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英首相提议制定全球流行病条约以共享数据
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/910251/)
+## 国民党朱立伦麻将文暗示：角逐总统大位？
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/910292/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+台湾筹备农场 zhong
 
-编辑   水星    上传    银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/下载-18.jpg)[trt.net.tr](https://www.trt.net.tr/japanese/jing-ji-bizinesu/2019/12/18/ziyonsonying-shou-xiang-dabosuhui-yi-henoge-liao-nochu-xi-wojin-zhi-1325621)
-路透社2月15日报道，英国首相鲍里斯·约翰逊周一表示，在起源于中共国的中共病毒爆发后，世界大国应该就全球流行病达成一项条约，以确保适当的透明度。
+[自由时报新闻链接](https://news.ltn.com.tw/news/politics/breakingnews/3440209)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/phpe6tO9Z-1.jpg)
+朱立伦只缺「东风」就能胡牌。 （图取自脸书专页「朱立伦」）
 
-英国首相鲍里斯·约翰逊和英国首席医疗官克里斯·威蒂2月15日在伦敦唐宁街参加了中共病毒疫情媒体会。约翰逊说，他热切希望就传染病透明度达成一项全球条约，要求各国同意共享数据。
+**朱立伦政途半路杀出赵舔共**
 
-约翰逊强调，“我认为这是一个有吸引力的想法，该条约的缔约国需确保他们提供所有的数据,让我们能够弄清发生了什么并阻止疫情再次发生。”目前，英国和美国对世界卫生组织(WHO)代表团到中共调查中共病毒起源的结果感到担忧。
+国民党籍朱立伦，曾任新北市市长，在位期间对于角逐总统的可望为众所皆知。又2016年，国民党总统候选人洪秀柱因争议遭撤换，临时由朱立伦参选总统，结果为落选。
 
-欧洲理事会主席查尔斯·米歇尔(Charles Michel)称赞该提议是明智的做法。他在推特上写道，他支持鲍里斯·约翰逊共同制定大流行条约，以提高全球防范能力、顺应力和恢复能力。
+2020年，再次举办总统大选，国民党并未推派朱立伦，而是推派当「**红**」炸子鸡韩国瑜为总统候选人，最后国民党高票落选。
 
-英国作为七国集团(G7)轮值主席国，约翰逊希望能领导全球应对流行病的努力，包括建立一个早期预警系统。但七国集团(G7)领导人将于周五召开的电话会议中并未包含此条约。
+2024年，国民党推派的总统候选人外界多预测为朱立伦。但近日，赵少康突击回复党籍，并且对外公布力争2024总统候选资格，又受到马英九的支持。
 
-当路透社问及谁该对疫情溯源缺乏透明度负责时，约翰逊表示，相当明显，大多数证据都说明病毒发源于武汉。
+朱立伦政路再次受阻。
 
-参考链接：
+**朱立伦2/15脸书贴文话中有话**
 
-[https://www.reuters.com/article/us-health-coronavirus-britain-johnson-ch/uks-johnson-says-world-needs-pandemic-treaty-to-ensure-transparency-idUSKBN2AF1OP](https://www.reuters.com/article/us-health-coronavirus-britain-johnson-ch/uks-johnson-says-world-needs-pandemic-treaty-to-ensure-transparency-idUSKBN2AF1OP)
+经新闻报导指出，朱立伦在脸书上贴出牌桌照片，并说道「今日迎财神，诸事大吉！过年期间，家家户户团聚打打麻将。大家帮忙看看，我听哪一支胡牌！」可见他正「单吊东风」，让不少网友认为他在暗示「万事俱备，只欠东风」，是话中有话、语带玄机。
+
+个人对于朱立伦是否有机会受国民党推荐没兴趣，但即便朱立伦最后受到东风助力，朱立伦是否同为中共帮凶即是全民应关注重点。
+
+**台湾应绝对严防国民党一切相关人事物**
+
+从朱立伦过去政绩来看，并无明显与中共挂钩的迹象。但鉴于国民党腐败，对于国民党籍的政治人物都必须做好最完善的准备，避免国民党将赵少康作为弃子，在赵少康作为众矢之的后，随即改推派名声较好的朱立伦骗取选票。
+
+（以上仅个人见解）
+
+[更多台湾农场精采文章](https://gnews.org/zh-hant/author/taiwangnews/)
+
+[更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+
+文章审核：zhong
+
+发布者：Little Liu
 
 0
