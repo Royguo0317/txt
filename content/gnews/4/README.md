@@ -1,94 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国的阴谋：疫苗外交迫使各国选边站
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/911341/)
+## 世卫组织配合中共企图掩盖病毒来源真相
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/911388/)
 
-*新闻来源：《每日快报》| 作者：Ciaran McGrath | 发布时间：2021年2月7日*
+#### 翻译：文萧
+校对：沙拉猫
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Capture-22.jpg)图片来源：香草山农场
+比尔·格茨（Bill Gertz）2月13日在《华盛顿时报》发表署名专栏文章称，白宫警告世卫组织不要受到中共政府对病毒起源调查的影响。
 
-*翻译/简评：新街口 | 校对/审核：万人往 | Page：拱卒*
+白宫国家安全顾问杰克·沙利文（Jake Sullivan）在一份声明中表示，调查报告必须独立，结果不应受到中共干预或改动，并敦促中共提供所有有关病毒大爆发的数据，特别是疫情早期的数据，以便更好的了解这一次的大流行。 他还认为，未来包括中共国在内的所有国家都应建立一个透明而稳健的机制，预防和应对卫生紧急情况，让世界尽早了解更多的信息。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/c18c294d-f493-4a61-a6ca-645298e4bb96.jpg?asset_id=266cd5ff-a947-40f5-845a-edde1bb01288&amp;img_etag=%227ca2d723119ece599fcd77869fe176b7%22&amp;size=2560)](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/c18c294d-f493-4a61-a6ca-645298e4bb96.jpg?asset_id=266cd5ff-a947-40f5-845a-edde1bb01288&amp;img_etag=%227ca2d723119ece599fcd77869fe176b7%22&amp;size=1024)
+川普政府因不满世卫组织在病毒大爆发过程中的表现退出了世卫组织，拜登政府上台之后立刻撤销了该决定。沙利文表示，世卫组织的工作“从未像现在这样重要”，当务之急是保护其信誉，坚持最高标准。批评者指责中共操控世卫组织，其早期宣称的病毒非人传人以及无需对中共国实行旅行限制误导了世界各国。
 
-**简评：**
+在武汉“病毒起源调查”结束时，世卫组织病毒学家国际小组于2月9日否定了病毒从武汉实验室中泄露的论点，并敦促抛弃这一假设。然而，世卫组织总干事谭德赛（Tedros Adhanom Ghebreyesus ）并不完全认可上述说法，他近日对外界称，人们对病毒起源假说还有疑问，有必要对所有假设进一步的分析和研究。
 
-2020年1月开始的中共病毒全球爆发的事件，结合中共十几年前已建立的现代生物战争的体系（见2月15日路德时评），我们可以确定中共已经对美国和世界开始实施了现代生物战争。
+世卫组织团队成员之一，纽约生态健康联盟的彼得·达扎克（Peter Daszak）为中共站台，否认了实验室泄露说。达萨克曾与武汉病毒研究所（WIV）进行了广泛的合作研究（有些由美国政府资助）。其作为调查团队成员显然存在利益冲突，损害世卫调查团队的信誉。
 
-郭文贵先生多次警示过，中共最阴险的一个策略就是制造危机，即你的危（危险）就是中共的机（机会）。
+今年1月，当时还在蓬佩奥领导下的美国国务院发布了一份报告，指出有间接证据表明病毒来自WIV。相关证据包括该研究所的几名雇员在病毒爆发之前就已经染上了类似于COVID的症状；WIV研究的蝙蝠病毒与SARS-Cov-2有96％的相似性； WIV表面上是民间研究机构，但至少从2017年起，其就代表军方从事机密研究，包括动物实验；中共军方至少从2017年就开始进行生物战研究等。然而，达扎克在一条推文中驳斥了上述国务院报告的情报可靠性。他认为川普政府的情报孤立不全面，很多方面是错误的。
 
-中共偷偷地把病毒撒向全球，给全人类的健康、经济和社会稳定造成了严重的危机后，现在开始通过疫苗来扩大自己的外交影响力。如本文作者所说：“向那些无法获得疫苗的国家提供了千载难逢的展示实力的机会。”
+世卫组织研究小组负责人，丹麦食品安全和动物疾病专家彼得·本·恩巴雷克（Peter Ben Embarek）说，初步发现表明该病毒是由中间动物宿主引入的。蝙蝠似乎是该病毒的可能起源，但最初认为的病毒爆发地——武汉华南海鲜市场上并没有蝙蝠。另外，他也不认同实验室泄露假说。
 
-以前中共的霸权扩张计划是通过“一带一路”上投入大量资金进行基础设施建设来带动的。自从在全球制造了病毒危机后，中共开始用廉价的（不知道是否真正有效的）疫苗代替了投资巨大、周期长的基础建设，实现对其它国家的影响、胁迫和控制，真正实现了作者所说的“而这能够以相对较低的成本实现”。
+目前，病毒起源理论包括：从蝙蝠到人类的自然爆发；病毒从蝙蝠到动物宿主再到人类的传播；从武汉蝙蝠病毒研究实验室的泄漏。中共坚决否认该病毒是从WIV泄露的，现在极力主张病毒是通过冷链传入中共国的，而病毒专家认为这种可能性极小。已知的第一个感染者出现于2019年12月1日，其与野生动物市场没有任何关系。
 
-这场中共病毒生物战，本质上是中共独裁体制对西方民主体制进行的一次偷袭。妄图通过病毒战打败以美国为首的自由、民主、法治体系国家，在全球实现中共的独裁、专政霸权，对全人类进行奴役。
+**评论**：
 
-**原文翻译：**
+中共坏事做的滴水不漏，WHO这一波配合中共的调查，完全在侮辱大家的智商。不过最后的报告结论都是在爆料革命的预料之中。前国务卿蓬佩奥认为WHO是一个腐朽的、被政治左右，且已经向CCP下跪的组织。WHO的检查组没有获得所需的访问权限，只能听到CCP编造好的谎言，因此无法得知真相。
 
-# **中共国的阴谋: 随着欧盟争吵，中共国影响力的触角通过“疫苗外交”蔓延**
+闫博士在路德节目中也戳穿了中共和WHO的技俩，并邀请所谓的专家来打擂台，让世界人民来判断谁代表的是真相。另外，中共在2015年出版的《非典非自然起源与人制人新种病毒基因武器》谈到了生物武器可以作为有力的战争威胁手段，以及谈判筹码，还能释放特异性激活剂来引发疾病。可以说，现在全世界正在经历着中共发起的一场生化战争，唯有消灭中共，才能解决这一危机，拯救人类。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/3ecd0909-fca4-468d-ad3e-9df7ad5b32c6.jpg?asset_id=b5898593-bd05-49f3-b9e8-e0f5acbf2650&amp;img_etag=%22dea749a26bb78cc98965f90b227c2ba5%22&amp;size=2560)](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/3ecd0909-fca4-468d-ad3e-9df7ad5b32c6.jpg?asset_id=b5898593-bd05-49f3-b9e8-e0f5acbf2650&amp;img_etag=%22dea749a26bb78cc98965f90b227c2ba5%22&amp;size=1024)
+相关阅读：
 
-曾銳生教授在北京宣布将向几内亚捐赠20万剂COVID-19中共病毒疫苗后发表讲话。伦敦东方与非洲研究学院中国研究所所长曾教授对《每日快报》表示：由于不发达国家在未来几个月内无法从领先的西方疫苗生产商那里获取疫苗，中共国实行“疫苗外交”主要是为了增强其软实力并获得这些不发达国家更广泛的支持。
+1.    [中共为掩盖病毒真相删除关键研究数据](https://gnews.org/zh-hans/741556/)
 
-“习近平决心在国内外让中共国富有、强大和受人尊敬。”
+2.    [Peter Daszak曾赞助病毒蝙蝠侠石正丽做冠状病毒 “功能增益 “实验](https://gnews.org/zh-hans/880280/)
 
-他警告说：“西方民主国家关于疫苗的争论以及疫苗的短缺，提供了一个绝好的机会，可以通过向无法获得疫苗的国家提供中共国自己的疫苗，来展示中共国的实力。”
+3.    [闫博士揭穿WHO调查报告谎言](https://gnews.org/zh-hans/897648/)
 
-“从北京的角度来看，这将有助于按照习近平的要求很好地讲述中共国的故事，而这能够以相对较低的成本实现。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/e876388a-a035-4208-8dc4-00d3d8203be9.jpg?asset_id=b77a9b84-e586-4806-9799-38093726722a&amp;img_etag=%223101d2c44a299d5a12aadff861e04bc1%22&amp;size=2560)](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/e876388a-a035-4208-8dc4-00d3d8203be9.jpg?asset_id=b77a9b84-e586-4806-9799-38093726722a&amp;img_etag=%223101d2c44a299d5a12aadff861e04bc1%22&amp;size=1024)© GETTY 中国疫苗 习近平
-
-西非国家外交部长易卜拉希马·哈利勒·卡巴（Ibrahima Khalil Kaba）本周表示，中共国驻几内亚首都科纳克里的大使在周二的一次会议上宣布了这一捐赠。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/dd3f3efa-d90e-45da-915c-135bc1a19222.jpg?asset_id=bc0a57ff-19e5-4ff8-a768-3c2f5e592adf&amp;img_etag=%22451b7aecec64b32b7e1e41e680629b72%22&amp;size=2560)](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/dd3f3efa-d90e-45da-915c-135bc1a19222.jpg?asset_id=bc0a57ff-19e5-4ff8-a768-3c2f5e592adf&amp;img_etag=%22451b7aecec64b32b7e1e41e680629b72%22&amp;size=1024)© GETTY 查尔斯-米歇尔, 安吉拉-默克尔, 乌苏拉-冯-德-莱恩 在一起
-
-卡巴先生没有具体说明哪些中共国研发的疫苗将得到捐赠，以及何时能够收到。
-
-在包括美国辉瑞公司在内的制药公司宣布出现供货短缺之后，中共国和俄罗斯所谓的疫苗外交正在世界多个地区建立信誉。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/e8ee3e34-5e1f-4be5-8bd9-e88bdc46708f.jpg?asset_id=56ce3aa4-2d0e-4f81-9184-bd0ca537b257&amp;img_etag=%22eab55f5ff7d366397dd14615f80de947%22&amp;size=2560)](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/e8ee3e34-5e1f-4be5-8bd9-e88bdc46708f.jpg?asset_id=56ce3aa4-2d0e-4f81-9184-bd0ca537b257&amp;img_etag=%22eab55f5ff7d366397dd14615f80de947%22&amp;size=1024)© GETTY 中共国一带一路
-
-大多数国家都在等待COVAX的拨款，这是由世界卫生组织（WHO）牵头的针对低收入国家的全球计划。
-
-几内亚人口为1240万，迄今已记录了超过1.45万例COVID-19中共病毒病例，83人死亡。
-
-中共国的疫苗战略与“一带一路”倡议所体现的更广泛的方法相吻合。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/05b0b9a4-f42f-4dd7-837a-5eaf39071862.jpg?asset_id=ba226d91-d08a-4b50-97a0-506f1d99e523&amp;img_etag=%2295fba75a9c99c9a34d7c406ce4afcaca%22&amp;size=2560)](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/05b0b9a4-f42f-4dd7-837a-5eaf39071862.jpg?asset_id=ba226d91-d08a-4b50-97a0-506f1d99e523&amp;img_etag=%2295fba75a9c99c9a34d7c406ce4afcaca%22&amp;size=1024)© GETTY 托比亚斯-艾伍德
-
-[!\[\]()!\[\](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/e938bb97-5b21-40c7-8101-0122b5030294.jpg?asset_id=3c3a1e60-d393-492f-92d2-fd68a842b349&amp;img_etag=%22254585be6e1ae93d2885a946441beaad%22&amp;size=2560)](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/e938bb97-5b21-40c7-8101-0122b5030294.jpg?asset_id=3c3a1e60-d393-492f-92d2-fd68a842b349&amp;img_etag=%22254585be6e1ae93d2885a946441beaad%22&amp;size=1024)© GETTY 丹尼 卡务宁斯基
-
-这个野心勃勃的计划已经使它在发展中国家的基础设施项目中消耗了大量资金。
-
-英国议会中共国研究小组成员，伯恩茅斯（Bournemouth）东区保守党议员Tobias Ellwood去年接受《每日快报》采访时表示：“中共国渴望获得超级大国的地位，但却逃避维护我们所享有的核心价值观念的责任感——自由、民主、法治等。”
-
-他说：“这样做是在制造一种相互竞争的假象，巧妙地迫使各国选择一方，即独裁的控制体系与我们的民主体系。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/88fc3d5d-873f-4c80-b303-2bec98c8cdd9.jpg?asset_id=e8976a34-db77-4742-85f7-3320e31e6db9&amp;img_etag=%221c78696572e802b349907eda2da0bc2d%22&amp;size=2560)](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/88fc3d5d-873f-4c80-b303-2bec98c8cdd9.jpg?asset_id=e8976a34-db77-4742-85f7-3320e31e6db9&amp;img_etag=%221c78696572e802b349907eda2da0bc2d%22&amp;size=1024)©Express《快报》习近平资料图
-
-“他们正在利用华为和其他东西吸引小国加入其影响力网络。”
-
-“而且我们也在南中国海看到这种情况。”
-
-Strewsbury和Atcham区的议员Daniel Kawczynski也在去年告诉《每日快报》：“每当我们去访问某些英国海外领土，当然是那些继续以英国女王殿下为国家元首的英联邦国家，都会有一场辩论。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/5033e352-8892-40cd-a693-a518aaf66d7f.jpg?asset_id=b1bf8f7d-857c-4d13-9b63-7104f8b4fef9&amp;img_etag=%226b6c9bc13f85e609414fc8ed14a2ea0a%22&amp;size=2560)](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/5033e352-8892-40cd-a693-a518aaf66d7f.jpg?asset_id=b1bf8f7d-857c-4d13-9b63-7104f8b4fef9&amp;img_etag=%226b6c9bc13f85e609414fc8ed14a2ea0a%22&amp;size=1024)© GETTY 俄罗斯斯普特尼克五号疫苗
-
-“很多人告诉我们，中国人已经在他们的国家进行了投资；但我可以说，他们都希望、期望并呼吁切断这些和中共国的联系。”
-
-“中共国希望完全控制其中一些非洲和加勒比国家。”
-
-“中共国想毫不含糊地向他们施加压力。”
-
-🔗[原文链接](https://www.msn.com/en-gb/news/world/china-plot-tentacles-of-influence-spreading-with-vaccine-diplomacy-as-eu-squabbles/ar-BB1dsE99)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/rU3Aevnb5wDqY/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[原文链接](https://www.washingtontimes.com/news/2021/feb/13/white-house-warns-who-not-be-influenced-china-viru/)
 
 0
