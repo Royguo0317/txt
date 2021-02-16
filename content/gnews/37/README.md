@@ -1,81 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《新闻快递》专题：CCP对新疆维吾尔的种族灭绝罪行
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/909851/)
+## 闫丽梦博士——我心目中的英雄，更是勇敢善良的中国人
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/909731/)
 
-《新闻快递》栏目组：Beicy数学老师，文玉，1818；
+*我想念香港 … … 我也想念青岛，因为那里是我的家乡… … 每个人在自己的年龄段，只要你是认真去选择 … … 他是那个引领我走进病毒这个领域的人，如果倒回一千遍，在那个时间，我选择的还是他 —— 闫博士，于2021年的文贵看春晚*
 
-校对/审核：宁缺； Page: 1818
+【作者】 Candy
 
-引言：
+一年以前，在WHO的参考实验室——香港大学P3实验室工作的闫丽梦博士 （Dr. Yan)，作为最早进行CCP病毒调查的科学家之一，她于2020年11月19日通过路德社频道向全世界揭露了CCP病毒的来源。同年4月29日她冒着生命危险逃离香港，来到美国。很快先后撰写了两篇报告，用详实的第一手材料揭露了CCP病毒的来源，以及CCP病毒的本质——生物武器。
 
-英国伦敦喜庄园GTV直播节目《新闻快递News Express》，每周一和周五英国时间18:30为战友带来美国、英国及国内的热点新闻及专题分享。
-[!\[\]()!\[\](https://spark.adobe.com/page/VelTdskxQyqmL/images/570d8101-b36a-4249-a816-2b058b35cdc3.png?asset_id=eb1fbd71-50f9-4719-981a-60d4bd755abe&amp;img_etag=%22f222569657b555fedabbb7319ce213eb%22&amp;size=2560)](https://spark.adobe.com/page/VelTdskxQyqmL/images/570d8101-b36a-4249-a816-2b058b35cdc3.png?asset_id=eb1fbd71-50f9-4719-981a-60d4bd755abe&amp;img_etag=%22f222569657b555fedabbb7319ce213eb%22&amp;size=1024)
-**[🔗GTV-UK-1号台精彩回看（1:08:00开始）](https://gtv.org/video/id=601859f169dc393c0ff4995c)**
+这些报告及后来因CCP病毒造成的亿万人在全球范围的死亡、感染，唤醒了无数普通人，也唤醒了很多有良知的科学家、名人政要等，他们纷纷站出来讲话。但在过去的一年里，甚至现在，WHO及某些机构或个人，仍在不遗余力地试图否认病毒来自中共武汉实验室的事实。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Li-Mengyan-1.jpg)闫丽梦博士2020年7月播出的被福克斯采访的图片
+一年来，闫博士每次都是以科学家的身份出现在世界各国的视频上。每次她出现在镜头前，都是那么泰然自若，洁净清纯，娓娓道来。无论是在班农先生的战斗室，在福克斯新闻，在印度、法国的专题频道，还是在路德社的直播中。每次回答任何一个问题，都是条理清楚，简单明了，对非常复杂的科学问题也能给出通俗易懂的解答。她是那么年轻，但又是那么胸有成竹。这些无不令人肃然起敬，佩服至极！
 
-## 《新闻快递》专题：CCP对新疆维吾尔的种族灭绝罪行
+闫博士对那些故意持质疑态度的人，所用语言也是非常犀利，要么讽刺有加。她最常说的一句话是：不信，是因为你的见识不够；对蓄意歪曲事实的人，她会非常自信地宣告：有谁想和我辩论，你们选平台，但要直播并能传播出去，我非常乐意举行一场象总统竞选一样的公开辩论赛，我只摆事实讲道理！
 
-随着美国宣布CCP在新疆犯下了种族灭绝的罪行，国际社会更加关注新疆少数民族的处境。在上周三的犹太大屠杀纪念日上，在英国的一位犹太教领袖表示当前CCP在新疆进行的种族灭绝行为和当年的纳粹屠杀犹太人有太多惊人的相似之处了。这位犹太人权组织发言人说，CCP“正在完全的清除掉维吾尔族的语言、文化和传统”，“我们现在要阻止CCP在新疆进行的种族屠杀行为”。
+然而，有谁知道，在她英雄般的坚强勇敢的一面的后面，有着多少触目惊心的故事：中共政府在2020年4月29日闫博士逃离香港之后的几个小时，为了找到她，在没有任何法律程序的情况下，竟然搜索了她的老家——青岛，以及她父母的家。尤其在闫博士逃到美国之后，中共更是几次逮捕她的高龄父母及家人并押送到北京问讯。这些行为对墙内的普通百姓而言，已经见怪不怪、习以为常，但在西方法治社会的国家，就是在侵犯人权！
 
-**[🔗印度发展报：在大屠杀纪念日，英国犹太组织公开指控中共在新疆的种族屠杀暴行](https://www.indiablooms.com/world-details/SA/27806/uyghur-british-jewish-national-target-china-on-holocaust-memorial-day.html)**
+![Image result for 闫丽梦图片](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSI6R_Phmzkgc6e39196IFjFDEwSwnfOTMCKA&amp;usqp=CAU)英雄闫丽梦
 
-CCP正在新疆进行惨绝人寰的种族灭绝行为，首先是抹杀穆斯林的文化。CCP已经开始禁止在新疆的学校教授维吾尔语。
+我们大家得知这个消息的时候，已经是闫博士在各大媒体上公开揭露中共病毒真相之后。记得在一次直播采访中，主持人问及中共是如何无法无天地对待老百姓时，她强忍泪水讲了这些事。并说：我不想让中共看到我在镜头前面流泪，那会显现出我软弱的一面。我一定要坚强，因为眼泪不能解决问题，更不能灭掉CCP！中共之所以这样对待她的家人，就是为了让她知道，让她看到：是她的不与中共合作，才使她的父母遭此待遇，从而让她对父母产生内疚感， 以达到停止揭露CCP病毒来源真相的目的。
 
-**[🔗印度观察报：新疆学校禁止开设维吾尔族语言课程](https://www.opindia.com/2021/02/china-xinjiang-province-uyghur-language-students-not-allowed-mandarin-only/)**
+闫博士没有被CCP的丑恶行径所吓倒。相反，她越战越勇！她在推特上用中英文发推，及时释疑或回击；接受美国BBC早间新闻、纽约时报、英国的ITV、苹果日报等记者或电视节目的采访。她曾被班农先生战斗室评为2020年“年度女士” ；被英国的ITV评为“20年来最具影响力的第一位女性”。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/VelTdskxQyqmL/images/dcfdd420-df9c-4f22-8e41-bf6c092e6e65.png?asset_id=8fe8cd8c-a94b-44f8-accd-029714faab41&amp;img_etag=%22584a01745bb6bb68f54e8dd7b1d4582c%22&amp;size=2560)](https://spark.adobe.com/page/VelTdskxQyqmL/images/dcfdd420-df9c-4f22-8e41-bf6c092e6e65.png?asset_id=8fe8cd8c-a94b-44f8-accd-029714faab41&amp;img_etag=%22584a01745bb6bb68f54e8dd7b1d4582c%22&amp;size=1024)
+值得一提的是：BBC早报和ITV电视的记者，曾经在和闫博士进行了深入的了解和有效的沟通后，BBC的记者不明去向，文章自然未能发表；ITV的记者以封城为由取消了预定的直播节目，也是自此消失。如果不是中共施予了干预或压力，怎么能有这样的结果呢？这也恰恰证实了闫博士的所言所述击中了中共的要害，揭露的正是中共病毒的真正来源。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/VelTdskxQyqmL/images/82dee0d5-78e8-44ec-8c3c-b3b9ccd162e7.png?asset_id=a55fe778-a9b5-4d1a-a14e-98c8bc140111&amp;img_etag=%22f7e49ec73d1a656ab19b124a417dbcb3%22&amp;size=2560)](https://spark.adobe.com/page/VelTdskxQyqmL/images/82dee0d5-78e8-44ec-8c3c-b3b9ccd162e7.png?asset_id=a55fe778-a9b5-4d1a-a14e-98c8bc140111&amp;img_etag=%22f7e49ec73d1a656ab19b124a417dbcb3%22&amp;size=1024)
+闫博士的优秀、智慧、勇敢、果断、思辨等专业方面的品质，令我从内心里折服，我一直认为她是我心目中的英雄。从她第一次在班农战斗室出境，到后来对她的了解越来越多，这种敬佩之情也越来越深。
 
-农历新年期间，新疆信仰伊斯兰教的维吾尔族、哈萨克族等穆斯林被要求过春节。伊宁市官员以帮助贫困少数民族村民为名，向他们发放猪肉，还要求他们喝酒庆祝。官员威胁不过春节就要关进再教育营。
+让我最受触动的是，在今年的“文贵看春晚”节目中，我们第一次看到闫博士一直不愿在公共场合的提及的个人家庭事宜。
 
-**[🔗自由亚洲电台：新疆各地强迫穆斯林过春节及吃猪肉](https://www.rfa.org/mandarin/yataibaodao/shaoshuminzu/ql1-02062019101412.html)**
+她对想念的青岛老家，充满感情地谈到美食美景，如数家珍，以至哽咽；谈到她思念的香港，她重复了两遍，因为那里有世界上最顶尖的科学家同事、相对纯净的科研氛围，还被评为A+ 内部资质，意味着她是被港大评选出的出类拔萃的科学家；讲到和她生活了8年的先生，她讲得非常客观。虽然在她决定一人逃离香港之前，她的先生几乎用药结束了她的生命，但她表现出她可以理解。因为那时他们都处在被CCP的蒙骗中，不清楚自己的工作是为了什么。她也并不后悔曾经的选择，因为他们8年的共同工作、生活给了她很多美好的回忆。比如他们经常工作到夜里，甚至凌晨一、两点钟。在走出实验室的路上，他们谈起居里夫妇研究镭的故事。我能想象，那个情景、那个故事、他们的身份，在那个时候是多么完美又浪漫的一个对比！
 
-[!\[\]()!\[\](https://spark.adobe.com/page/VelTdskxQyqmL/images/16038eab-73de-4b42-bedd-6900194855f8.png?asset_id=a61ba01e-ce35-4f79-a42a-f39755eae629&amp;img_etag=%220b91e652e79994469202582a83e8374c%22&amp;size=4962)](https://spark.adobe.com/page/VelTdskxQyqmL/images/16038eab-73de-4b42-bedd-6900194855f8.png?asset_id=a61ba01e-ce35-4f79-a42a-f39755eae629&amp;img_etag=%220b91e652e79994469202582a83e8374c%22&amp;size=1024)
+我相信，这么一小段视频让无数人为之动容，甚至潸然泪下。她是那么善良、细腻的一个年轻女人！当然，她也明确地说：我再想念中国也回不去了，我们都回不去了，只要CCP存在！
 
-CCP在新疆还进行严格的全民监控，人权观察的最新报告以新证据说明新疆的监控国家机器，当地1300万突厥裔穆斯林正遭中国政府以「严打暴恐活动专项行动」之名加强镇压。从2018年1月到2019年2月，人权观察对一种公安机关使用的手机APP进行逆向工程研究。该APP可以连结一体化联合作战平台（一体化平台），即新疆警方汇集个人数据、标示潜在威胁人员的警务方案。警察对维吾尔人精细化管理，甚至对每家每户的用电量进行监控，防止自制炸弹。维吾尔人在公开场合会被当成重点监视对象，会被随意抽查证件，没收手机，手机上有whatsup twitter等社交软件都会被拘留。
+闫博士出国之前，有那么优越的工作环境，工作那么优秀，又备受重视，可谓前途无量；生活方面也很惬意，只要一如既往地继续下去，应该不会太差。这可能也是她前夫不愿和她一起离开香港的理由之一。
 
-**视频-人权观察：新疆大规模监控如何运作**
+但她在发现病毒真相之后，正义、良知不允许她视而不见，机智的她在权衡、考虑之后，毅然地与路德联系。经过给路德三天的培训，终于出现在119的节目中，这也成了向全世界揭露CCP病毒的一个标志性的时间点。这一天为川普总统及时决定关闭从中共国过来的航班起到了关键的作用；为避免世界范围内病毒的迅速传播、挽救全世界更多人的生命起到了重要作用！
 
+闫丽梦博士在去港大之前是眼科医生，是给她的患者带来光明的白衣天使；在揭露病毒真相方面，她成了警醒世人、挽救全世界人们生命的天使！她不但是一个英雄，更是一个天使般的勇敢善良的真实的中国人！
 
-
-警察对维吾尔人进行肆意逮捕，不需要任何理由进行拘留，关押进所谓的再教育中心，实际就是集中营。在里面对维吾尔人进行非人的虐待，包括遭到殴打和往体内注射不明液体。
-
-**视频-BBC：新疆再教育营幸存者控诉被打和注射液体**
+【校对】Summer
 
 
 
-维吾尔族人还被强迫当成劳工。BBC获得的资料显示，在新疆地区，有大量少数民族人士在当局的要求下「被迫」采摘棉花。中国的棉花产量占世界总产量的五分之一。这些证据显示，该行业对强迫劳动的依赖程度可能远比此前所想的要高。
+**欢迎战友加入旧金山金喜准农****场**
 
-**视频-BBC：中国棉花行业背后的维吾尔人强迫劳动**
+[旧金山金喜准农场 GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
 
+[旧金山金喜准农场 Discord](https://discord.gg/QQzQ79grEA)
 
+[旧金山金喜准农场 Twitter](https://twitter.com/sf_himalaya)
 
-**[🔗The Spectator：西方世界应该如何面对中国维吾尔强迫劳工的问题](https://www.spectator.co.uk/article/what-the-west-can-do-about-chinas-uyghur-labour-camps)**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/VelTdskxQyqmL/images/9e9f7cb5-b753-4cd8-9707-b50f0373694e.png?asset_id=11b8c2e8-783a-4b75-aa18-76bbe36e360a&amp;img_etag=%22f54ee12d50d8e547c8628fce34ff1861%22&amp;size=2560)](https://spark.adobe.com/page/VelTdskxQyqmL/images/9e9f7cb5-b753-4cd8-9707-b50f0373694e.png?asset_id=11b8c2e8-783a-4b75-aa18-76bbe36e360a&amp;img_etag=%22f54ee12d50d8e547c8628fce34ff1861%22&amp;size=1024)
-
-根据the Spectator 的这篇报道，新疆使用维吾尔人强迫劳动的工厂，为诸多国际品牌提供原材料和加工服务，这些品牌包括Hugo Boss、Adidas、Muji、Uniqlo、Costco、Caterpillar、Lacoste、Ralph Lauren and Tommy Hilfiger。 在新疆强迫劳工的情况不仅限于服装产业，包括可口可乐、苹果公司以及大众汽车都在新疆直接开设工厂或者采购了来自新疆工厂的零部件，而这些工厂都无法避免使用了维吾尔族人强迫劳动的情况。所以这些大公司在美国国会不惜下重金进行游说，希望削弱国会调查并制裁新疆强迫劳工的法案。
-
-**[🔗纽约时报：耐克和可口可乐寻求削弱新疆强迫劳动法案](https://cn.nytimes.com/business/20201130/nike-coca-cola-xinjiang-forced-labor-bill/)**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/VelTdskxQyqmL/images/a96fc413-8628-4724-84fb-fed756c452d6.jpg?asset_id=0fcf10a4-c3e2-4baa-ae6f-2bb4164e3325&amp;img_etag=%22b62b58eb1c8ddde00a221adb30c30357%22&amp;size=2560)](https://spark.adobe.com/page/VelTdskxQyqmL/images/a96fc413-8628-4724-84fb-fed756c452d6.jpg?asset_id=0fcf10a4-c3e2-4baa-ae6f-2bb4164e3325&amp;img_etag=%22b62b58eb1c8ddde00a221adb30c30357%22&amp;size=1024)
-
-尽管有CCP的蓝金黄策略在西方竭力掩盖真相，加上华尔街势力在美国的鼎力相助。但在新疆犯下的罪行被美国定性，国际社会抵制中共罪行的呼声越来越高。国际社会对非法政权常用的第一步动作都是经济制裁，英国、美国已经有团体推动立法，进一步限制中共国的企业。
-
-**[🔗以色列报：30名拉比和社区领袖支持法案，要求停止中共在新疆对维吾尔人的压迫](https://jewishnews.timesofisrael.com/30-rabbis-and-community-leaders-back-bill-urging-end-to-uyghur-persecution/)**
-
-前国务卿蓬佩奥对中共种族灭绝行为的宣判，就是悬在CCP头顶的又一把利剑，CCP必将成为过街老鼠，人人喊打，最终被踢出历史舞台。CCP，你完了！
-
-
-
-**[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)**
-
-**[点击观看英国伦敦喜庄园在G-TV的精彩直播视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)**
-
-**[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)**
-
-编辑：[**【英国伦敦喜庄园编辑部】**](https://spark.adobe.com/page/VelTdskxQyqmL/)
-[!\[\]()!\[\](https://spark.adobe.com/page/VelTdskxQyqmL/images/288cee13-b396-4731-a490-e79f5dfa6649.jpg?asset_id=d9642d50-d293-4d69-9169-3d42dd1a6870&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/VelTdskxQyqmL/images/288cee13-b396-4731-a490-e79f5dfa6649.jpg?asset_id=d9642d50-d293-4d69-9169-3d42dd1a6870&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
