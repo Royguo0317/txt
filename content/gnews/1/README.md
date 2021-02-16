@@ -1,27 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英首相提议制定全球流行病条约以共享数据
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/910251/)
+## 世贸新秘书长：承诺公平对待台湾
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/910309/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+台湾筹备农场 zhong
 
-编辑   水星    上传    银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/下载-18.jpg)[trt.net.tr](https://www.trt.net.tr/japanese/jing-ji-bizinesu/2019/12/18/ziyonsonying-shou-xiang-dabosuhui-yi-henoge-liao-nochu-xi-wojin-zhi-1325621)
-路透社2月15日报道，英国首相鲍里斯·约翰逊周一表示，在起源于中共国的中共病毒爆发后，世界大国应该就全球流行病达成一项条约，以确保适当的透明度。
+[自由时报新闻链接](https://news.ltn.com.tw/news/world/breakingnews/3440345)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/216-3擷取.png)
+(图片来源于WTO官网)
 
-英国首相鲍里斯·约翰逊和英国首席医疗官克里斯·威蒂2月15日在伦敦唐宁街参加了中共病毒疫情媒体会。约翰逊说，他热切希望就传染病透明度达成一项全球条约，要求各国同意共享数据。
+**世界贸易组织为少数台湾有正式会籍的国际组织**
 
-约翰逊强调，“我认为这是一个有吸引力的想法，该条约的缔约国需确保他们提供所有的数据,让我们能够弄清发生了什么并阻止疫情再次发生。”目前，英国和美国对世界卫生组织(WHO)代表团到中共调查中共病毒起源的结果感到担忧。
+台湾于1990年1月1日依据GATT第33条规定，以在对外贸易关系上具自主权地位的「台湾、澎湖、金门及马祖个别关税领域」向GATT秘书处提出入会申请，历经多年努力，终于在2001年完成各项双边与多边入会经贸咨商。
 
-欧洲理事会主席查尔斯·米歇尔(Charles Michel)称赞该提议是明智的做法。他在推特上写道，他支持鲍里斯·约翰逊共同制定大流行条约，以提高全球防范能力、顺应力和恢复能力。
+（[更多台湾入会细节请点击查看](https://web.wtocenter.org.tw/Node.aspx?id=62)）
 
-英国作为七国集团(G7)轮值主席国，约翰逊希望能领导全球应对流行病的努力，包括建立一个早期预警系统。但七国集团(G7)领导人将于周五召开的电话会议中并未包含此条约。
+**知情人：世贸新任秘书长竞选期与台湾密切接触**
 
-当路透社问及谁该对疫情溯源缺乏透明度负责时，约翰逊表示，相当明显，大多数证据都说明病毒发源于武汉。
+经新闻报导指出，有知情人士透露，新任秘书长依卫拉在竞选期间与台湾有密切接触，且承诺会公平对待台湾。
 
-参考链接：
+而依卫拉在其他方面更表示：「一个强大的世贸组织对全球能够全面、迅速地从疫情灾难中复苏至关重要，期待与会员国一起制定和实施让全球经济再次发展所需的政策。世贸虽面临许多挑战，但透过共同努力能变得更强大」。
 
-[https://www.reuters.com/article/us-health-coronavirus-britain-johnson-ch/uks-johnson-says-world-needs-pandemic-treaty-to-ensure-transparency-idUSKBN2AF1OP](https://www.reuters.com/article/us-health-coronavirus-britain-johnson-ch/uks-johnson-says-world-needs-pandemic-treaty-to-ensure-transparency-idUSKBN2AF1OP)
+呈上可知，依卫拉对于台湾的口头承诺，应该是基于促进世贸组织会员国之间的互动，目的是为达到全球经济再次发展。
+
+故个人认为，依卫拉对台湾的承诺有可能只是政治互动上的手腕。不过，相信台湾政府身为国际弃儿数十年，面对这种场面可为经验丰富，政治专业就交由执政政府运作。
+
+但不论现存国际组织人事、政策如何异动，对台湾而言最重要的绝对是「坚决加入灭共力量」。先不论是否支持新中国联邦，因涉及高度政治性议题。但只要台湾加入坚决灭共力量，并且做出实质的行动，在某层面意义上，台湾即是爆料革命、新中国联邦灭共之途上的「盟友」。
+
+台湾内部民意，对于灭共结果还不太相信。但**全民早已深知**灭共是世界共荣必要的途径。中共倒台后，少了政治上挑拨离间，两岸发展在理性的菁英决策下，势必可以取得共荣的平衡。
+
+[更多台湾农场精采文章](https://gnews.org/zh-hant/author/taiwangnews/)
+
+[更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+
+文章审核：zhong
+
+发布者：Little Liu
 
 0
