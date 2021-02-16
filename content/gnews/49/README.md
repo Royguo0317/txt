@@ -1,87 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/02/15 英喜时事速递
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/910429/)
+## 【热点播报】蓬佩奥、奥布莱恩、博明等强硬“反共”派将齐聚尼克松基金会圆桌论坛
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/910532/)
 
-收集：Alicia，Near，CharlesS
-*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
-![]()![](https://www.gnews.org/wp-content/uploads/2021/02/fotolia_59125087_subscription_xxl_9-1.jpg)
-## 最高院：农民工（班组）不属于法律意义上的实际施工人，无权直接要求发包人支付劳务款
+作者：纽约香草山  人间世 校对/发稿：飞虹
 
-![Bildergebnis für 最高院：农民工（班组）不属于法律意义上的实际施工人，无权直接要求发包人支付劳务款]()![Bildergebnis für 最高院：农民工（班组）不属于法律意义上的实际施工人，无权直接要求发包人支付劳务款](https://pic1.zhimg.com/v2-5c24a417c04803873f4bcc7cd78351e0_720w.jpg?source=172ae18b)
-
-简评：自称共产党信奉共产主义的国家最高法居然颁布这种法律，共产主义不是骗局是什么
-
-## 国务院：因参与非法集资受到的损失，由集资参与人自行承担（2021.5.1施行）
-
-![Bildergebnis für 国务院：因参与非法集资受到的损失，由集资参与人自行承担（2021.5.1施行）]()![Bildergebnis für 国务院：因参与非法集资受到的损失，由集资参与人自行承担（2021.5.1施行）](https://pic4.zhimg.com/v2-5122cb87ce7564d918859e97c85b74d0_1440w.jpg?source=172ae18b)
-
-简评：共产党先把无法控制的钱定为非法，再不保障这些人的利益，以达到牢牢掌控钱路的目的。
-
-## 环球网：澳媒称发现世卫赴华专家“通中证据”，当事人回怼
-
-![]()![](https://inews.gtimg.com/newsapp_bt/0/13171383623/1000.jpg)
-
-简评：不错，感谢环球网把这些关联又宣传了一把：
-1.“关于生态健康联盟主席彼得·达扎克（Peter Daszak）”：该组织向武汉病毒所研究蝙蝠冠状病毒项目输送来自福奇控制的NIH资金。（该项目后被川普政府叫停） 
-2.“马里恩·库普曼斯是广东省疾控中心的科学顾问”。连什么是独立调查都搞不清楚。
-3.“彼得·达扎克18表示与石正丽在蝙蝠研究上有过长久合作。”ZC45、ZXC21毒株；舟山蝙蝠病毒、新冠病毒E蛋白100%吻合。
-
-## 澎湃：江西鄱阳一村民女儿订婚仪式上摆出巨额现金彩礼，被黑榜通报
-
-![]()![](https://p4.itc.cn/q_70/images03/20210215/6100e53084f749b19a3242b8b006b482.jpeg)
-
-简评：村民真正犯的错是他有钱了，违反了中共“奴民五策”的贫民，弱民。任何能让老百姓恢复对个人、自身意识觉醒的行动都是中共所害怕的。
-
-## 网易新闻：继英国后，中CGTN在德国也遭停播，可能失去整个欧洲播放权
-
-![Bildergebnis für 网易新闻：继英国后，中CGTN在德国也遭停播，可能失去整个欧洲播放权](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0215%2F0668c529j00qok3ps002uc000u000kkm.jpg&amp;thumbnail=750x2147483647&amp;quality=85&amp;type=jpg?imageView&amp;thumbnail=750x0&amp;quality=85&amp;type=jpg&amp;interlace=1)
-
-简评：反人类、种族灭绝犯罪集团中共被全球围剿的趋势不会停止
-
-## 观察者网：《南华早报》：特朗普卸任后，字节跳动搁置了TikTok与甲骨文的交易
-
-![Bildergebnis für 观察者网：《南华早报》：特朗普卸任后，字节跳动搁置了TikTok与甲骨文的交易]()![Bildergebnis für 观察者网：《南华早报》：特朗普卸任后，字节跳动搁置了TikTok与甲骨文的交易](https://p1.itc.cn/q_70/images03/20210215/77ef06f31c754274b5961ab8d220a9cd.jpeg)
-
-简评：抖音这个间谍监控软件确实是被中共看重，所以才如此紧张。“不过报道称，美国白宫10日表示，由于拜登政府的审查TikTok交易被‘无限期搁置’的报道‘不准确’”。
-
-## **澎湃：缅甸军方暂停部分公民隐私条款，曾是民盟政府立法成果**
-
-![Bildergebnis für 澎湃：缅甸军方暂停部分公民隐私条款，曾是民盟政府立法成果]()![Bildergebnis für 澎湃：缅甸军方暂停部分公民隐私条款，曾是民盟政府立法成果](https://k.sinaimg.cn/n/mil/crawl/114/w550h364/20210214/4af5-kkciesq3976713.jpg/w700h350z1l10t10ca6.jpg)
-
-简评：不愧是学习中共的手段。违法作恶，还要拿个假法假程序做幌子。
-
-## **和讯网： 这个春节，他们因违规燃放、销售烟花爆竹被罚，个人征信将受影响**
-
-![Bildergebnis für 和讯网： 这个春节，他们因违规燃放、销售烟花爆竹被罚，个人征信将受影响]()![Bildergebnis für 和讯网： 这个春节，他们因违规燃放、销售烟花爆竹被罚，个人征信将受影响](https://p2.itc.cn/q_70/images03/20210216/77781c2050e74bc2aa9e8ab76a371299.jpeg)
-
-简评：中共治下的假法制社会，用各种层出不穷的手段对付人民。而它的假法律法规是不能深究不能实用太多，否则就露馅了。
-
-## 观察者网：被忽略的疫苗战
-
-![Bildergebnis für 疫苗战]()![Bildergebnis für 疫苗战](https://i6.hexun.com/2020-12-26/202705837.jpg)
-
-简评：如题。疫苗不仅仅是关系到钱，而是中共病毒超限战下一阶段的战略武器、人尸丸。
-
-## 新唐人电视台
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
 
 
-> 卷土重来 幾內亞再爆埃博拉疫情 
-> 
-> 週日（14日）， [#幾內亞](https://twitter.com/hashtag/%E5%B9%BE%E5%85%A7%E4%BA%9E?src=hash&amp;ref_src=twsrc%5Etfw) 衛生官員宣布爆發新的 [#埃博拉](https://twitter.com/hashtag/%E5%9F%83%E5%8D%9A%E6%8B%89?src=hash&amp;ref_src=twsrc%5Etfw)（Ebola） [#疫情](https://twitter.com/hashtag/%E7%96%AB%E6%83%85?src=hash&amp;ref_src=twsrc%5Etfw)，這是自2016年世界上最致命的埃博拉疫情結束以來，該地區首次發現的新病例。[https://t.co/1vnxJkhAdL](https://t.co/1vnxJkhAdL)
-> — 新唐人電視台 (@NTDChinese) [February 15, 2021](https://twitter.com/NTDChinese/status/1361413223069618176?ref_src=twsrc%5Etfw)
+前美国国务卿蓬佩奥2月15日透露，他将与前国家安全顾问奥布莱恩共同主持尼克松基金会每月一次的外交政策圆桌论坛。前副国家安全顾问博明也将参与讨论。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/图片4-20.png)图片转自美国之音
+
+美国之音2月16日报道，这个名为“尼克松保守现实主义和国家安全圆桌论坛”的集会将“重新审视和推进尼克松总统50年前推进的保守派现实主义国际政策的愿景”。美中关系、全球科技创新以及推动中东长久和平将是论坛的重点议题。预计第一场讨论会将于3月2日举行。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/图片5-21.png)
+
+据美国之音报道，参与这个圆桌论坛的成员还包括前副国家安全顾问博明、前国务院发言人奥特加斯、共和党籍联邦众议员加拉格尔(Mike Gallagher, R-WI)等人。
+
+蓬佩奥现为保守派智库哈德逊研究所的杰出会士(distinguished fellow)，极有可能参加2024年美国总统大选。他政治观念保守，在职期间主张把中共与中国人民区别对待，离任前认定中共在新疆犯下种族灭绝和反人类罪，可谓国际政治舞台上对中共邪恶本质认知最深、反共立场最坚决的代表人物之一。
+
+1月20日，就在拜登宣誓就任总统的同时，中共以“在涉华问题上严重侵犯中国主权”为由，宣布对蓬佩奥、奥布莱恩、博明等28位特朗普政府卸任官员进行制裁。如今三位美国前政府的“反共派”代表人物再聚首，以每月一次的高频率对外发声，对于继续推进川普政府时期的国家安全议题，尤其是以强硬立场反击中共，意义重大，非常值得期待。
 
 
 
-简评：人类也许最近几年都要保守病毒的摧残
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
 0
