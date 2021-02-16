@@ -1,16 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共恐吓，各国媒体取消对闫丽梦博士的采访
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/910500/)
+## 2021/01/09 围炉夜话第十三期
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/910962/)
 
-#### 视频：般若
-简评：翼族
+*整理：桂花酒 | 素材制作：健身健心、Bobby | 校对/审核：海阔天空 | Page：Daoiii*
+[!\[\]()!\[\](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/da46d9ba-c8be-445d-9a7e-2e79f58eca0f.jpg?asset_id=f4a8b142-2074-4b25-9ba6-4dac02483791&amp;img_etag=%220289be5e0c8f02c990436a67a81c475a%22&amp;size=2560)](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/da46d9ba-c8be-445d-9a7e-2e79f58eca0f.jpg?asset_id=f4a8b142-2074-4b25-9ba6-4dac02483791&amp;img_etag=%220289be5e0c8f02c990436a67a81c475a%22&amp;size=1024)
+# **民主不是免费的午餐**
 
-2021年2月12日，闫丽梦博士接受《路德社》采访时披露有很多西方媒体节目由于中共施压而不得不停止对她的采访和报道，包括英国的BBC和Loose Woman，美国《纽约时报》，香港《苹果日报》和澳大利亚“60分钟”电视节目。相信以上这些只是冰山一角，在中共的胁迫之下西方自由媒体已经完全丧失了其公正性和报道真相的能力。这也再次验证了郭文贵先生所说，中共把媒体（包括社交媒体）作为控制西方民主自由社会的第一武器。
+[G-TV直播视频链接](https://gtv.org/video/id=5ff9a519f579a75e0bcd416e)
 
-闫博士不但欢迎全世界的病毒学家和她进行公开辩论，也欢迎全世界左中右媒体的采访和真实报道，由此可见某些无良媒体攻击闫丽梦博士受所谓“极右势力”蛊惑发布阴谋论完全就是无稽之谈。真相只有一个，是中共制造了病毒并对全世界发起了生化超限战！
+[!\[\]()!\[\](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/09e6c560-accc-4437-bb9c-192020b1c7da.png?asset_id=cfcaa4c9-d8c6-48b5-b4d9-6ba24966f1b2&amp;img_etag=%22a195592cdcd3a81cb5644d3076173b8c%22&amp;size=2560)](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/09e6c560-accc-4437-bb9c-192020b1c7da.png?asset_id=cfcaa4c9-d8c6-48b5-b4d9-6ba24966f1b2&amp;img_etag=%22a195592cdcd3a81cb5644d3076173b8c%22&amp;size=1024)
+
+我们从上期的独裁者转到当下美国大选的各种乱象，来谈谈什么是民主，以及民主的建立和制度的完善决不可能从天而降，甚至于要付出血的代价。但是正如文贵先生所言，将来灭共之后不能搞大清算，除盗国贼家族之外要合理大赦。因为民主制度的优越性，此次美国大选舞弊结果并未引发美国大面积流血。而中国百年来追求自由自强的道路上无数人悲惨地死去，鲜血并未换来民主，反而引狼入室中共当权。文贵先生的大智慧，对于指导我们将来如何建立和完善民主制度值得深思。
+
+每周六GTV-UK-2号台定时直播
+
+- 英国时间：12.00-14.00
+- 美东时间：7.00-9.00
+- 盘古时间：20.00-22.00
 
 
+欢迎关注英国伦敦喜庄园艺术组《缪斯殿堂》节目
+
+- 请订阅 英国伦敦喜庄园GTV-UK-1号台
+- 请订阅 英国伦敦喜庄园GTV-UK-2号台
+- 请订阅 英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/84a37bd5-755a-4621-80b0-753567e84361.jpg?asset_id=08f4e8ed-a0ff-4dd7-a72c-281e72eea46d&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=2560)](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/84a37bd5-755a-4621-80b0-753567e84361.jpg?asset_id=08f4e8ed-a0ff-4dd7-a72c-281e72eea46d&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 0

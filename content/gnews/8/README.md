@@ -1,47 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中国的私人企业家们，你们动动脑子吧，醒醒吧！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/910348/)
+## 《路德时评》重磅解读闫博士报告将奠定战争5.0版本认知，及中共称病毒总结报告已达成共识
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/911078/)
 
-新闻简述：在2021年2月15日的第一次Getter视频中，郭先生爆光中共白手套马云和中共打手傅政华的下场，并奉劝中国的私人企业家们：“你们动动脑子吧，醒醒来吧！”
+直播视频：
 
-**中国的私人企业家们，你们动动脑子吧，醒醒吧！**
 
-**Chinese Private Entrepreneurs, Use Your Brains, Wake up!**
 
-昨天晚上醒来其中一次，原来代表马云的香港某律师给我打电话，吓我一大跳。一打电话说：“郭先生啊，不要再提马云了，Jack了。”我说，啥意思啊？我说这大过年的，啥意思啊？他说就是因为你们爆料革命老说马云，结果中纪委还有国家安全委员会，让马云坐出来，背后拿枪顶着坐在椅背上，在双规的地点面对摄像机，所谓的出来露了露面。他说不要再搞了，不要再提了。我说我没心情提 Jack 马，我说头两天有一个马云的前女友，因为给他生了个孩子，我原来说过，帮助他照顾的就是我一个哥们，找不着人了，说家里的钱房租都没人付，找我来了。我给你给我说啥？马云的事，我怎么会知道啊？
+《路德时评》2021年2月16日早间节目主要内容：
 
-Last night I was woken up by a phone call from a Hong Kong lawyer who previously represented Jack Ma, which scared me. He said in the call, “Mr. Guo, don’t mention Jack Ma again.” “What do you mean?” I said, “What do you mean by calling me during the Chinese New Year?” He said that it was because our Whistleblower Movement always broke the news about Jack Ma. As a result, the Central Commission for Discipline Inspection and the National Security Committee forced Jack Ma to sit on a chair facing a camera with a gun behind his back in a “double designation” (also known as “Shuanggui”) location. It’s called a public appearance. He said, “Don’t mention him anymore.” I said that I was not in the mood for mentioning Jack Ma. I said, a couple days ago, a buddy of mine who was taking care of a Jack Ma’s ex-girlfriend who had a child with Jack contacted me, for there was no one paying her rent anymore. I said, “Why do you tell me? How am I supposed to know anything about Jack Ma?”
+**·**** **路德社解读中共说总结报告已达成共识
 
-所以你说共产党让马云出来，让马云的钱连一个房租都付不上，给小女情人的。这抢钱，共产党是天下第一啊。抢了14亿中国人的钱，抢了14亿中国人的未来，就马云这号人连房租现在都不给人家留。所以中国的私人企业家们，你们动动脑子吧，醒醒来吧。
+法新社2月16日报道[1]：国际专家组赴中国疫源研究后，美国政府发声质疑达成结论过程，对此世卫秘书长谭德塞今天表示，这是专家们独立的研究，强调“不是世卫的调查，世卫仅居中协调”。赴中国调查新冠肺炎病毒起源的国际专家小组2月9日在武汉召开记者会，针对病毒的起源、海鲜市场传播、蝙蝠作用以及武汉病毒研究所“泄漏病毒”等问题发表调查初步结果，掀起争议。对此谭德塞昨天在世卫（WHO）线上记者会表示，无论未来总结调查报告会有什么结论，这些都是专家们独立的研究。
 
-So you tell me. The Communist Party asked Jack Ma to make a public appearance and left him not enough money to pay the rent for his little lover. The CCP is the number one in the world in robbing people’s money! It robbed money from the 1.4 billion Chinese people and also the future of the 1.4 billion people, and didn’t even leave money to someone like Jack Ma to pay the rent. So Chinese private entrepreneurs, use your brains, wake up!
+据谭德塞说明，国际专家组中只有2人来自世卫，其它10位专家来自不同国家的10个机构。世卫不会指导他们该怎么做，是由专家们提供独立报告。他说，多次听到有人说这是世卫的研究及调查，但“并非如此”，强调这不是世卫的调查，而是一项独立进行的研究，世卫仅居中协调。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/谭德塞.jpg)[图片地址](https://m.dw.com/image/53136827_401.jpg)
 
-然后更重要的事情，我昨天无意中说了傅政华全家被抓的事。昨天中间两个电话给我打过来：“你看，你说傅政华干嘛？原来有默契的嘛，傅政华不说你，你不说傅政华，傅政华永远不再对你有任何敌意，大家已经坚守了两年了，你干嘛这样啊？”
 
-Then more importantly, I accidentally disclosed yesterday about the arrest of Fu Zhenghua’s whole family. I received two calls yesterday in the middle [of the broadcast], “Look, why did you talk about Fu Zhenghua? There was an agreement that Fu Zhenghua won’t talk about you, and you won’t talk about Fu Zhenghua, and Fu Zhenghua will never have any hostility to you again. Both of you were holding on to that agreement for two years. Why did you do this to him?”
+中国日报2月16日报道[2]：中国—世界卫生组织新冠病毒溯源研究联合专家组外方组长安巴雷克周一表示联合专家组已就病毒溯源总结性报告达成共识，将在未来几天内完成该份报告。他强调，这些报告的重点是在于专家组就调查结果、研究结论和未来研究方向达成共识，不存在其中一方影响另一方得出结论的情况。
 
-他说昨天傅政华，这个政法委领导、中纪委领导，听说抓傅政华全都是军队抓的，说要求傅政华出来逛一逛，得露露面，为什么？要保持中央绝对权威，啥叫绝对权威啊？傅政华当年把他抓很多人、杀很多人、冤枉很多人，就这个人不能抓，抓了以后就是没人给你共产党干黑活了，所以说咬人的狗还是当人面得给点狗骨头，那怎么当着人面杀这个狗哪？疯狗哪？咬人的狗哪？不行。说傅政华出来转一转。能不能文贵不再说傅政华的事了？
+路德社评论：
 
-He said that yesterday the leaders of the Political and Legal Affairs Commission and the Central Discipline Inspection Commission (I heard that all the arrests of Fu Zhenghua [and his family] were done by the military) asked Fu Zhenghua to go out and show his face a little bit. Why? To maintain the absolute authority of the central government. What is absolute authority? Fu Zhenghua arrested a lot of people, killed a lot of people, and wronged a lot of people back then. So this person could not be arrested because if you arrest him, no one would do dirty work for you, the CCP. Therefore, a dog that bites people should be given bones in front others. How can you kill this dog in front of people? So, don’t kill a mad dog who bites people for you. So, Fu Zhenghua came out just for a walk. “So, Miles, can you stop talking about Fu Zhenghua?”
+1、谭德塞在发言中说此次前往武汉调查的专家组成员仅有2两名来自世卫，其他10位专家则来自国际各机构，他们是开展独立性调查，而中共国媒体报道中共已经与世卫达成共识，并将共同发布调查报告，这两则新闻出现明显的矛盾，调查组成员各自出具独立调查报告就不可能和中共发表共识性报告。WHO病毒溯源调查组就是在配合中共掩盖病毒真相，整个调查过程充满各种荒唐，这也引起国际强烈反响，谭德塞的发言内容“揭露”出真相。
 
-兄弟姐妹们，咱这爆料革命啊，愣把海航王健给说死了，愣把海航的说破产了，愣把孙立军给说进去了，吴征现在也完球蛋了，杨澜估计钥匙也找不着了，现在目前能活口的只有一个王岐山了，所以这个爆料革命。
+2、英国政府明确要求中共病毒溯源调查报告必须具有独立性，不能发布联合性报告，中共着急发布新闻称世卫病毒溯源调查组已经与中共国专家达成共识就是要先入为主，以掩盖后续其他世卫专家发布独立性报告出现的异议。
 
-So, brothers and sisters-in-arms, our Whistleblower Movement has “talked” HNA’s Wang Jian to death, “talked” HNA to bankruptcy, and “talked” Sun Lijun to jail. Bruno Wu is also almost done. I guess that Yang Lan can’t play “find the key” game anymore. Now, there is only one who is still alive – Wang Qishan. So this Whistleblower [is really something].
+3、如果中共病毒来自自然，中共政府压根就不需要动用国家力量掩盖病毒真相。中共国至今都没有跟世界专家分享早期患者病毒样本，现在全世界所有的病毒样本都是传播到美国出现变异后的样本。闫博士早在去年2月份就爆料，中共政府明确规定不允许将国内病毒样本提供给海外。早期病毒样本非常重要，其基因序列中肯定有未经实验室打磨完全的部分，这对疫苗和药物的开发至关重要。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+4、中共现在依然拥有原始毒株样本，因为他们还需要进行其他生物武器研究，现在由于战争5.0版本的理论构架缺失，中共可以进行随意狡辩，中共也绝不可能交出原始毒株样本，他们非常清楚只要交出原始病毒样本，真相就显露无疑。
 
-视频来源：[https://gtv.org/getter/602aa081226e7759074440d6](https://gtv.org/getter/602aa081226e7759074440d6)
+5、《非典非自然起源和人制人新种病毒基因武器》这本书明确写道：“当病毒可以自然地改造成具有非常强毒的生物体，当这一切自然地发生，结果出现一种新的疾病，如果它是由人引起的，它将为生物恐怖主义。”其中所谓“自然的方式”就是指通过动物传代实验来进行病毒改造。由此可以看出，中共早就在通过动物传代实验来研跨物种传播生物武器。
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/909619/](https://gnews.org/zh-hans/909619/)
+6、人类在发展过程中由于认知性缺陷非常容易导致落后，中共病毒战已经超出现有的西方生物战认知体系，所以西方对于中共发起的病毒战迟迟没有采取行动，一旦他们认识到这就是一场战争5.0，各国都将进入战时状态，军方将掌管所有实验室。
 
-翻译：【Isaiah4031】校对：【BruhM】字幕：【奔腾的长江】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+7、爱因斯坦在1939年联合其他几位科学家给当时的美国总统罗斯福写了一封信件，名为《西拉德信》[3]，他在信中告诉美国总统德国已经开始研发原子弹，还告诉总统牛顿第三定律已经过时，现代物理学时代已经到来，如果原子弹成为武器，其杀伤力将极其恐怖，爱因斯坦这封信对美国是一个认知性概念的转变，所以罗斯福总统才立即推动曼哈顿计划。
 
-+1
+8、爱因斯坦之所以能站上历史的舞台，背后也有集团势力的支持，就像文贵先生一样，他推动灭共背后也有集团势力的鼎力支持，因此闫博士在顺利抵达美国后才可以迅速开展有关中共病毒的各种研究。
+
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+
+参考文章：
+
+[1][https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210216-%E9%9D%A2%E5%AF%B9%E6%9F%A5%E6%BA%90%E7%BB%93%E6%9E%9C%E9%81%AD%E8%B4%A8%E7%96%91-%E8%B0%AD%E5%BE%B7%E5%A1%9E%E6%BE%84%E6%B8%85%E4%B8%96%E5%8D%AB%E5%8F%AA%E6%98%AF%E4%B8%AD%E9%97%B4%E4%BA%BA-%E4%B8%93%E5%AE%B6%E4%B8%8D%E6%98%AF%E4%B8%96%E5%8D%AB%E4%BA%BA](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210216-%E9%9D%A2%E5%AF%B9%E6%9F%A5%E6%BA%90%E7%BB%93%E6%9E%9C%E9%81%AD%E8%B4%A8%E7%96%91-%E8%B0%AD%E5%BE%B7%E5%A1%9E%E6%BE%84%E6%B8%85%E4%B8%96%E5%8D%AB%E5%8F%AA%E6%98%AF%E4%B8%AD%E9%97%B4%E4%BA%BA-%E4%B8%93%E5%AE%B6%E4%B8%8D%E6%98%AF%E4%B8%96%E5%8D%AB%E4%BA%BA)
+
+[2][https://www.hntv.tv/interna/article/1/1361496900464939008?source=mobile](https://www.hntv.tv/interna/article/1/1361496900464939008?source=mobile)
+
+[3][https://zh.wikipedia.org/wiki/%E6%84%9B%E5%9B%A0%E6%96%AF%E5%9D%A6-%E8%A5%BF%E6%8B%89%E5%BE%B7%E4%BF%A1](https://zh.wikipedia.org/wiki/%E6%84%9B%E5%9B%A0%E6%96%AF%E5%9D%A6-%E8%A5%BF%E6%8B%89%E5%BE%B7%E4%BF%A1)
+
+文章撰写：【小虫】  校对：【无花果】
+
+0

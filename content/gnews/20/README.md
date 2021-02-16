@@ -1,66 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2/16/2021 财经快讯：澳大利亚欲废除“一带一路”，德国希望与拜登政府密切合作
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/910701/)
+## 中国的私人企业家们，你们动动脑子吧，醒醒吧！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/910348/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/2021-02-16_230324.png)图片来源： https://www.abc.net.au/
-**1.“一带一路”对澳大利亚没有任何好处**
+新闻简述：在2021年2月15日的第一次Getter视频中，郭先生爆光中共白手套马云和中共打手傅政华的下场，并奉劝中国的私人企业家们：“你们动动脑子吧，醒醒来吧！”
 
-澳大利亚总理莫里森近日表示，维多利亚州与中共签署的“一带一路”协议对澳大利亚没有任何好处，可能会在几周之内将其废除。澳大利亚维多利亚州州长安德鲁斯2018年与中共签署“一带一路”谅解备忘录。不过，这项协议一直饱受诟病。批评者认为，中共可能借机获取对维多利亚州基础设施的控制权。
+**中国的私人企业家们，你们动动脑子吧，醒醒吧！**
 
-安德鲁斯和澳大利亚其他州的州长以及领地的首席部长，必须在3月10日之前向澳大利亚联邦政府详细说明所有与外国签署的协议，然后由联邦政府进行评估。莫里森的上述表示被认为提前告知维多利亚州，与中共签署的“一带一路”协议会有什么结果。
+**Chinese Private Entrepreneurs, Use Your Brains, Wake up!**
 
-[https://www.voachinese.com/a/Morrison-could-tear-up-victoria-s-controversial-belt-and-road-deal-with-China-20210215/5779187.html](https://www.voachinese.com/a/Morrison-could-tear-up-victoria-s-controversial-belt-and-road-deal-with-China-20210215/5779187.html)
+昨天晚上醒来其中一次，原来代表马云的香港某律师给我打电话，吓我一大跳。一打电话说：“郭先生啊，不要再提马云了，Jack了。”我说，啥意思啊？我说这大过年的，啥意思啊？他说就是因为你们爆料革命老说马云，结果中纪委还有国家安全委员会，让马云坐出来，背后拿枪顶着坐在椅背上，在双规的地点面对摄像机，所谓的出来露了露面。他说不要再搞了，不要再提了。我说我没心情提 Jack 马，我说头两天有一个马云的前女友，因为给他生了个孩子，我原来说过，帮助他照顾的就是我一个哥们，找不着人了，说家里的钱房租都没人付，找我来了。我给你给我说啥？马云的事，我怎么会知道啊？
 
-**2.德国希望在贸易、中共国和气候问题上与拜登政府密切合作**
+Last night I was woken up by a phone call from a Hong Kong lawyer who previously represented Jack Ma, which scared me. He said in the call, “Mr. Guo, don’t mention Jack Ma again.” “What do you mean?” I said, “What do you mean by calling me during the Chinese New Year?” He said that it was because our Whistleblower Movement always broke the news about Jack Ma. As a result, the Central Commission for Discipline Inspection and the National Security Committee forced Jack Ma to sit on a chair facing a camera with a gun behind his back in a “double designation” (also known as “Shuanggui”) location. It’s called a public appearance. He said, “Don’t mention him anymore.” I said that I was not in the mood for mentioning Jack Ma. I said, a couple days ago, a buddy of mine who was taking care of a Jack Ma’s ex-girlfriend who had a child with Jack contacted me, for there was no one paying her rent anymore. I said, “Why do you tell me? How am I supposed to know anything about Jack Ma?”
 
-2021年2月10日，美国总统拜登在弗吉尼亚州阿灵顿的五角大楼对国防部人员发表讲话。德国希望欧洲和美国加强跨大西洋关系，达成一项取消工业关税的贸易协议，一项对中共国施加更大压力的世贸组织改革，以及建立一个联合碳排放交易体系以保护气候。
+所以你说共产党让马云出来，让马云的钱连一个房租都付不上，给小女情人的。这抢钱，共产党是天下第一啊。抢了14亿中国人的钱，抢了14亿中国人的未来，就马云这号人连房租现在都不给人家留。所以中国的私人企业家们，你们动动脑子吧，醒醒来吧。
 
-德国总理默克尔政府的跨大西洋事务协调员拜尔在周一发表的一篇采访中表示，德国和拜登总统领导的美国新政府应该“胸怀大志”，以基于共同价值观和关注共同利益的雄心勃勃的议程为目标。
+So you tell me. The Communist Party asked Jack Ma to make a public appearance and left him not enough money to pay the rent for his little lover. The CCP is the number one in the world in robbing people’s money! It robbed money from the 1.4 billion Chinese people and also the future of the 1.4 billion people, and didn’t even leave money to someone like Jack Ma to pay the rent. So Chinese private entrepreneurs, use your brains, wake up!
 
-[https://www.theglobeandmail.com/world/us-politics/article-germany-wants-to-work-closely-with-joe-biden-on-trade-china-climate/](https://www.theglobeandmail.com/world/us-politics/article-germany-wants-to-work-closely-with-joe-biden-on-trade-china-climate/)
+然后更重要的事情，我昨天无意中说了傅政华全家被抓的事。昨天中间两个电话给我打过来：“你看，你说傅政华干嘛？原来有默契的嘛，傅政华不说你，你不说傅政华，傅政华永远不再对你有任何敌意，大家已经坚守了两年了，你干嘛这样啊？”
 
-**3.随着日本企业离开中共国，孟加拉国看到了投资的增长**
+Then more importantly, I accidentally disclosed yesterday about the arrest of Fu Zhenghua’s whole family. I received two calls yesterday in the middle [of the broadcast], “Look, why did you talk about Fu Zhenghua? There was an agreement that Fu Zhenghua won’t talk about you, and you won’t talk about Fu Zhenghua, and Fu Zhenghua will never have any hostility to you again. Both of you were holding on to that agreement for two years. Why did you do this to him?”
 
-日本鼓励本国企业将制造设施迁出中共国，并将孟加拉国列为首选工厂迁出地，这可能会给这个南亚国家的经济带来提振。日本驻孟加拉国大使伊藤直树（Naoki Ito）在接受采访时说，“随着疫情在中共国开始蔓延，日本企业需要“进一步使供应链多元化。”这将为孟加拉国提供一个机会。”孟加拉国正在建设一个经济特区，以吸引日本企业的生产设施，预计将带来200亿美元的日本投资。
+他说昨天傅政华，这个政法委领导、中纪委领导，听说抓傅政华全都是军队抓的，说要求傅政华出来逛一逛，得露露面，为什么？要保持中央绝对权威，啥叫绝对权威啊？傅政华当年把他抓很多人、杀很多人、冤枉很多人，就这个人不能抓，抓了以后就是没人给你共产党干黑活了，所以说咬人的狗还是当人面得给点狗骨头，那怎么当着人面杀这个狗哪？疯狗哪？咬人的狗哪？不行。说傅政华出来转一转。能不能文贵不再说傅政华的事了？
 
-[https://finance.yahoo.com/news/bangladesh-sees-investment-boost-japanese-210000207.html](https://finance.yahoo.com/news/bangladesh-sees-investment-boost-japanese-210000207.html)
+He said that yesterday the leaders of the Political and Legal Affairs Commission and the Central Discipline Inspection Commission (I heard that all the arrests of Fu Zhenghua [and his family] were done by the military) asked Fu Zhenghua to go out and show his face a little bit. Why? To maintain the absolute authority of the central government. What is absolute authority? Fu Zhenghua arrested a lot of people, killed a lot of people, and wronged a lot of people back then. So this person could not be arrested because if you arrest him, no one would do dirty work for you, the CCP. Therefore, a dog that bites people should be given bones in front others. How can you kill this dog in front of people? So, don’t kill a mad dog who bites people for you. So, Fu Zhenghua came out just for a walk. “So, Miles, can you stop talking about Fu Zhenghua?”
 
-**4.随着美国大面积停电，天然气价格再次飙升至500美元**
+兄弟姐妹们，咱这爆料革命啊，愣把海航王健给说死了，愣把海航的说破产了，愣把孙立军给说进去了，吴征现在也完球蛋了，杨澜估计钥匙也找不着了，现在目前能活口的只有一个王岐山了，所以这个爆料革命。
 
-周一，因天气严寒导致对供暖和发电厂燃料的需求飙升，美国实际交付的天然气的交易价格高达500美元/百万英热单位。
+So, brothers and sisters-in-arms, our Whistleblower Movement has “talked” HNA’s Wang Jian to death, “talked” HNA to bankruptcy, and “talked” Sun Lijun to jail. Bruno Wu is also almost done. I guess that Yang Lan can’t play “find the key” game anymore. Now, there is only one who is still alive – Wang Qishan. So this Whistleblower [is really something].
 
-交易员称，美国中部两个中心的天然气价格为500美元/百万英热，周一为240美元/百万英热。自上周四以来，由于供暖需求激增，导致大面积停电，电价飙升，美国中部地区的现货天然气交易价格已达数百美元，而该地区的燃料交易价格通常低于3美元/百万英热单位。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-[https://finance.yahoo.com/news/natural-gas-skyrockets-again-500-220325461.html](https://finance.yahoo.com/news/natural-gas-skyrockets-again-500-220325461.html)
+视频来源：[https://gtv.org/getter/602aa081226e7759074440d6](https://gtv.org/getter/602aa081226e7759074440d6)
 
-**5.全球股市再创新高，中东紧张局势导致油价上涨**
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/909619/](https://gnews.org/zh-hans/909619/)
 
-全球股市连续第11天上涨，创下新高。与此同时，中东的紧张局势推动油价升至13个月高点。上周五，被称为华尔街“恐惧指标”的芝加哥期权交易所波动指数收于近一年来的最低水平，摩根士丹利资本国际全球股市指数周一上涨0.4%，英国富时100指数上涨2.2%，日本日经指数领涨1.9%，30多年来首次重拾30000点大关，标准普尔500指数的E-mini期货也走高，上涨0.5%。
+翻译：【Isaiah4031】校对：【BruhM】字幕：【奔腾的长江】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
-[https://www.reuters.com/article/uk-global-markets-idUSKBN2AF01L](https://www.reuters.com/article/uk-global-markets-idUSKBN2AF01L)
-
-**6.2021年养老金调整拉开序幕，两省已率先行动**
-
-中共国养老金分为两种：一种是城镇职工基本养老保险的养老金，另一种是城乡居民基本养老保险的养老金。此次率先发起调整的都是城乡居民养老保险的养老金，而不是前者。
-
-目前江苏和山东两个省已经率先宣布养老金上调，具体的上调情况为：江苏省的基础养老金最低标准从163元每月上调至170元每月；山东省的基础养老金最低标准从180元每月上调至190元每月。
-
-评：江苏和山东基础养老金每月分别增长7元和10元人民币，涨幅为4.3% 和5.5%，表面上看高于官方CPI 2.5%，但对于2020年猪肉价格同比上涨49.7%而言这种调整只是杯水车薪，民生堪忧！
-
-[https://ishare.ifeng.com/c/s/v004XWot4TS1Uh23hDlfh4VyfLgxZsRQ4Zq-MeAaRIFcb9ShwNNAgUFhLh2P3fa2Mn6O7ochh30X9VI4nmW7FLv7Mw\_\_\_?spss=np&aman=1co40fHc67qef8l49bl4b6Wd74Wc6fN418re017305](https://ishare.ifeng.com/c/s/v004XWot4TS1Uh23hDlfh4VyfLgxZsRQ4Zq-MeAaRIFcb9ShwNNAgUFhLh2P3fa2Mn6O7ochh30X9VI4nmW7FLv7Mw___?spss=np&amp;aman=1co40fHc67qef8l49bl4b6Wd74Wc6fN418re017305)
-
-**7.阿里巴巴股票被这些机构清仓**
-
-2月13日，中共知名私募高瓴资本、景林资产公布了它们2020年末的美股持仓情况。高瓴清仓阿里巴巴股票——去年四季度末，高瓴资本清仓阿里巴巴，而在去年三季度末，阿里巴巴还是高瓴资本的第四大重仓股，持股数量为404万股。景林也大幅减仓阿里巴巴，其披露的持仓数据显示，其所持阿里巴巴的股份数量，已从去年三季末的122.3万股，缩减至四季末的38万股。
-
-[https://finance.sina.com.cn/wm/2021-02-15/doc-ikftpnny6830945.shtml?cref=cj](https://finance.sina.com.cn/wm/2021-02-15/doc-ikftpnny6830945.shtml?cref=cj)
-
-By 【金融组-Tracy】
-
-素材搜集: 文罡、Wendy、Tracy
-
-校对: 小蚂蚁在行动
-
-0
++1

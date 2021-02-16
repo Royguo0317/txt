@@ -1,35 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/01/09 围炉夜话第十三期
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/910962/)
+## 斯洛伐克中共病毒死亡比例超葡萄牙居世界首位
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/911166/)
 
-*整理：桂花酒 | 素材制作：健身健心、Bobby | 校对/审核：海阔天空 | Page：Daoiii*
-[!\[\]()!\[\](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/da46d9ba-c8be-445d-9a7e-2e79f58eca0f.jpg?asset_id=f4a8b142-2074-4b25-9ba6-4dac02483791&amp;img_etag=%220289be5e0c8f02c990436a67a81c475a%22&amp;size=2560)](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/da46d9ba-c8be-445d-9a7e-2e79f58eca0f.jpg?asset_id=f4a8b142-2074-4b25-9ba6-4dac02483791&amp;img_etag=%220289be5e0c8f02c990436a67a81c475a%22&amp;size=1024)
-# **民主不是免费的午餐**
-
-[G-TV直播视频链接](https://gtv.org/video/id=5ff9a519f579a75e0bcd416e)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/09e6c560-accc-4437-bb9c-192020b1c7da.png?asset_id=cfcaa4c9-d8c6-48b5-b4d9-6ba24966f1b2&amp;img_etag=%22a195592cdcd3a81cb5644d3076173b8c%22&amp;size=2560)](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/09e6c560-accc-4437-bb9c-192020b1c7da.png?asset_id=cfcaa4c9-d8c6-48b5-b4d9-6ba24966f1b2&amp;img_etag=%22a195592cdcd3a81cb5644d3076173b8c%22&amp;size=1024)
-
-我们从上期的独裁者转到当下美国大选的各种乱象，来谈谈什么是民主，以及民主的建立和制度的完善决不可能从天而降，甚至于要付出血的代价。但是正如文贵先生所言，将来灭共之后不能搞大清算，除盗国贼家族之外要合理大赦。因为民主制度的优越性，此次美国大选舞弊结果并未引发美国大面积流血。而中国百年来追求自由自强的道路上无数人悲惨地死去，鲜血并未换来民主，反而引狼入室中共当权。文贵先生的大智慧，对于指导我们将来如何建立和完善民主制度值得深思。
-
-每周六GTV-UK-2号台定时直播
-
-- 英国时间：12.00-14.00
-- 美东时间：7.00-9.00
-- 盘古时间：20.00-22.00
+- 编辑：Victor Torres
+- 发稿：Ranting
 
 
-欢迎关注英国伦敦喜庄园艺术组《缪斯殿堂》节目
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-- 请订阅 英国伦敦喜庄园GTV-UK-1号台
-- 请订阅 英国伦敦喜庄园GTV-UK-2号台
-- 请订阅 英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台
+**西班牙2021年2月16日电/西喜社——**在一种传染性极强的中共病毒变种激增后，斯洛伐克按人口数计算的中共病毒死亡人数目前居世界首位。
 
+据约翰-霍普金斯大学的数据显示，尽管封锁严密，但斯洛伐克每日中共病毒死亡人数的7天滚动平均数已从2月1日的每10万人1.68人上升到周一的每10万人1.78人。
 
-编辑：【英国伦敦喜庄园编辑部】
+连续三周以上位居全球榜首的葡萄牙以每10万人死亡1.48人降至第二。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/84a37bd5-755a-4621-80b0-753567e84361.jpg?asset_id=08f4e8ed-a0ff-4dd7-a72c-281e72eea46d&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=2560)](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/84a37bd5-755a-4621-80b0-753567e84361.jpg?asset_id=08f4e8ed-a0ff-4dd7-a72c-281e72eea46d&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+卫生部表示，周一又有111人死于中共病毒，全国540万人口共6063人死亡。
+
+斯洛伐克政府表示，首次在英国发现的快速传播的中共病毒变种已成为该国的主流。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/50b17224-d7a8-4707-843c-beed00e8d468.jpg)
+
+[**新闻来源**](https://apnews.com/article/world-news-australia-coronavirus-pandemic-coronavirus-vaccine-scott-morrison-7fe16dc202778d207bd93b09f7d99d68)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
 0
