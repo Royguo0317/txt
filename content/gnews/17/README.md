@@ -1,21 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 普京祝贺意大利政府首脑上任
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/909653/)
+## 包工头50米塔吊向官府讨薪，中共警方：恶意讨薪，行拘十天
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/909755/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭ССР
+翻译：乐禧禧 | 校对：yyshere| 字幕：雨中漫步|评论：胖丁|评论翻译: Mike hua|PR:小小妹
 
-编辑   水星   上传   银河
-![]()![](https://cdn.discordapp.com/attachments/799010586356351066/810946253604782080/iu.png)[lopinion.fr](https://www.lopinion.fr/edition/economie/grace-a-mario-draghi-taux-francais-tombent-a-zero-190245)
-02月15日，俄罗斯总统普京对马里奥·德拉吉（Mario Draghi）就任意大利部长会议主席一职表示祝贺。克里姆林宫网站上公布了普金的贺电。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/02/601fe3bfe4b065382b5f90e5.jpg)
 
-“我祝愿您成功解决您组建的政府所面临的任务，同时祝您身体健康，万事如意。”总统写道。他还表示，希望德拉吉的工作能够促进俄意关系建设性的发展、加强欧洲乃至世界稳定与安全的双边合作。
+中共国流行跨界，商人拍电影、出唱片，明星扮政客、表忠心，粉饰太平。
 
-总统塞尔吉奥·马塔雷拉（Sergio Mattarella）的新闻处宣布，欧洲央行前行长德拉吉已同意在2月12日组建意大利新政府。上届政府由朱塞佩·孔特（Giuseppe Conte）领导，因意大利在中共病毒疫情期间出现了政治危机，他于1月26日辞职。
+春节前夕，一位建筑工地的包工头迫不得已，也跨界演绎了一次杂技，在没有任何防护的情况下，徒手爬上50米高的塔吊向工地负责人讨要欠薪。
 
-参考链接：
+可惜他没有博得满堂彩，反而被警方以“恶意索要工程款”的罪名，行拘10天。
 
-[https://www.rbc.ru/rbcfreenews/602a3f739a7947a88999e6d1](https://www.rbc.ru/rbcfreenews/602a3f739a7947a88999e6d1)
+中共擅长曲解词义来定罪他人。何为“恶意”讨薪？以劳动换取收入，天经地义，但是在中共非法政权的统治下，老百姓的合法收入没有保障，付出的劳动得不到相应的报酬。
 
+正常的讨薪无人理睬，不得已采取的行为被定义为“恶意讨薪”。这就是中共国特色，欠薪的不是“恶意欠薪”，讨薪的却成了“恶意讨薪”。
+
+如果不是被逼到无路可走，讨薪者会不惜以自己的生命为代价，徒手爬上50米高的塔吊吗？
+
+如果失手掉下来，他自己的命没了，欠他薪水的人会把钱还给他的家人吗？
+
+警方可以花费4个小时劝解讨薪者息事宁人，却不能劝解工地负责人签一张还款的支票。最终结果，欠薪者逍遥法外，讨薪者行政拘留。
+
+![Bildergebnis für 包工头50米塔吊向官府讨薪，中共警方：恶意讨薪，行拘十天]()![Bildergebnis für 包工头50米塔吊向官府讨薪，中共警方：恶意讨薪，行拘十天](https://n.sinaimg.cn/sinacn10117/209/w617h392/20200111/2f48-imztzhm7885796.jpg)
+
+老百姓不出来打工会饿死，但是打工挣到的钱也不一定能够拿到，最基本的生活没有保障，也无处申冤。
+
+老百姓不出来打工会饿死，但是打工挣到的钱也不一定能够拿到，最基本的生活没有保障，也无处申冤。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

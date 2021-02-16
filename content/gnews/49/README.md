@@ -1,20 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 伊拉克欲在中共建石油存储设施
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/909141/)
+## 2/13/2021蓬佩奥【精选汇总】:世卫所谓的调查完全就是洗白之举
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/909264/)
 
-- 编辑 审核：Victor Torres
-- 发稿 作者：神奇四侠
+【精选一】蓬佩奥：世卫所谓的调查完全就是洗白之举
+
+【精选二】蓬佩奥：中共绝非竞争对手，而是试图建立霸权的敌对方
+
+【精选三】蓬佩奥谈拜登同中共的经济利益及其对华政策的影响
+
+【精选四】章家敦谈中共发动的芬太尼战争
+
+By： 【秘密翻译组 G-Translators】
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年2月15日电/西喜社——**
-
-伊拉克正在与中共的国营公司商谈，准备在中共建立石油储存设施，同时也正在讨论巴基斯坦提出的建设原油储存设施的计划
-伊拉克石油部长表示这是增强对亚洲国家销售石油计划的一部分，用来维护伊拉克在石油销售方面的利益。
-
-新闻来源：[路透社](https://www.reuters.com/article/iraq-oil-asia-int-idUSKBN2AE0EZ?taid=6029490fbbd8010001ee5aed&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
-![]()![](https://gnews.org/wp-content/uploads/2021/02/00110011.png)
 0

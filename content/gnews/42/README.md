@@ -1,58 +1,103 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2/15/2021 财经快讯：全球首只比特币ETF获批上市；日经指数30多年后重回3万点上方
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/909381/)
+## 拜登和习近平2小时的通话说了什么？
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/909429/)
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/02/Picture2-6.jpg)
-图片来源： [https://www.readblocks.com/](https://www.readblocks.com/)
+*新闻来源：Daily Mail《每日邮报》| 作者：KATELYN CARALLE 凯特琳•卡拉雷| 发布时间：2021年2月11日*
 
-**1.全球首只比特币ETF获批上市**
+*翻译/简评：Linda B|校对：SilverSpurs7|审核：万人往|Page：小雨*
 
-(路透社)2月12日，加拿大主要证券监管机构已经批准全球首只比特币交易所交易基金（ETF）上市， 这为散户投资者提供了更多的接触这种飞速发展的加密货币的机会。据业内人士托德·罗森布鲁斯 (Todd Rosenbluth) 说，自2013年以来，美国已经有8家公司尝试创建比特币ETF, 但均未成功。
+[!\[\]()!\[\](https://spark.adobe.com/page/rzJTQ8uBwH7Pf/images/213ed767-aeeb-464f-919d-4ffa05b138ec.jpg?asset_id=194ce958-5314-4c19-9b64-68411fd2590c&amp;img_etag=%221be4fc09d5f1dbe4c54513e9cda0b74f%22&amp;size=2560)](https://spark.adobe.com/page/rzJTQ8uBwH7Pf/images/213ed767-aeeb-464f-919d-4ffa05b138ec.jpg?asset_id=194ce958-5314-4c19-9b64-68411fd2590c&amp;img_etag=%221be4fc09d5f1dbe4c54513e9cda0b74f%22&amp;size=1024)
 
-[https://www.reuters.com/article/crypto-currency-etf/canadian-regulator-clears-launch-of-worlds-first-bitcoin-etf-investment-manager-idUSL1N2KI1FX](https://www.reuters.com/article/crypto-currency-etf/canadian-regulator-clears-launch-of-worlds-first-bitcoin-etf-investment-manager-idUSL1N2KI1FX)
+**简评：**
 
-**2.日经指数30多年后重回3万点上方**
+拜登当了总统以后，中共极力寻求与美国通话的机会，并寄希望于拜登政府会改变川普政府的强硬政策，给中共这个奄奄一息、罪恶累累的政党一个生存的机会。
 
-（路透社）2月15日，日本日经指数30余年来首次突破3万点大关，收复了数十年经济停滞期间的失地。日经指数上一次站在3万点以上是1990年8月3日， 并于1989年12月29日达到历史最高点38915点，此后日本经济进入萧条时期。
+拜登由于有家族丑闻的证据——硬盘被中共习近平掌握，再加上他的家族在中共的渤海华美公司中有股份，是否会利用总统的权力为中共解除反人类罪，是否会对中共侵略台湾视而不见？
 
-[https://www.reuters.com/article/us-japan-stocks-recovery/nikkei-back-above-30000-after-more-than-three-decades-idUSKBN2AF02H?il=0](https://www.reuters.com/article/us-japan-stocks-recovery/nikkei-back-above-30000-after-more-than-three-decades-idUSKBN2AF02H?il=0)
+由于美国人已被川普唤醒，看清了中共的邪恶本质，如果立即对中共采取友好合作，恐遭到国内人民的反对，甚至民主党内也会反对。拜登表示将延续川普政府对中共的强硬政策，虽然话说的很强硬，但是这一通电话已让人们感到他和中共示好、示弱的信号。人们担心他在表演而已，光说不做。原因之一：他在通话中并未提及中共犯有反人类罪，只是提到了新疆的人权问题，这已是一个老生常谈的问题，只要是美国的政客，都常年谈及，并未更进一步。原因之二：对关于中共在武汉病毒所制造病毒，造成全球病毒大流行，他只字未提。美国的经济因为病毒遭受重创，因新冠病毒有48万人死亡。对中共的生物武器计划不追责，不问原因，拜登政府将如何重振经济给美国一个光明的未来？
 
-**3.伊拉克与中共就在华建立石油仓库进行了深入谈判**
+对于习近平，他认为拜登已被他掌控，他展示了越来越强硬的姿态，竟然警告美国，如果插手新疆的人权问题对两国都是灾难，这就是赤裸裸的威胁。这等同于在告诉美国：我会利用病毒等生物武器让美国陷入一场灾难。
 
-（路透社）伊拉克石油部长表示，伊拉克正与中共国有企业就在中共国建设原油储存设施进行深入谈判，这是提振对亚洲石油销售计划的一部分。伊拉克也在讨论在巴基斯坦建设原油存储设施的计划，并计划未来扩展到其他一些国家。
+拜登这个几十年在白宫的老政客当然心里明白中共的威胁，他是否会对中共进行强有力的打击，还是表面强硬，暗地里做利益的交换？请习总加速师再踩一脚油门，我们就知道美国是不是真的好惹。
 
-[https://mobile.reuters.com/article/amp/idUSKBN2AE0EZ?\_\_twitter\_impression=true](https://mobile.reuters.com/article/amp/idUSKBN2AE0EZ?__twitter_impression=true)
+**原文翻译：**
 
-**4.特斯拉将在印度设立电动汽车制造厂**
+# **乔•拜登说他与中共领导人习近平花了2个小时通电话，就人权、贸易和台湾问题向他质问，并警告美国人“如果我们不采取行动，他们会吃掉我们的午餐”**
 
-卡纳塔克邦政府周六在一份简短声明中正式确认:“美国公司特斯拉将在卡纳塔克邦开设一个电动汽车制造部门。”埃隆·马斯克曾多次表示，他的公司希望进入印度市场。上个月，这家电动汽车制造商在全球科技公司云集的卡纳塔克邦班加罗尔注册成立了特斯拉汽车印度和能源私人有限公司(Tesla Motors India and Energy Private Limited)，注册办事处设在班加罗尔。
+- 拜登表示，周三晚间他与中共国国家主席习近平的首个电话通话持续了两个小时，谈话涉及了广泛的问题。
+- 星期四，总统就与中共的竞争告诉记者说：“如果我们不采取行动，他们会吃掉我们的午餐。”
+- 他说，中共有“重大新举措”，并且“非常努力工作”
+- 拜登表示他与习讨论了中共国违反人权问题。
+- 习警告说在中国人权问题上搞对抗，对两国都将会是“灾难”。
 
-[https://www.reuters.com/article/us-tesla-india-electric/tesla-to-set-up-electric-car-manufacturing-unit-in-southern-india-idUSKBN2AD0GO?il=0](https://www.reuters.com/article/us-tesla-india-electric/tesla-to-set-up-electric-car-manufacturing-unit-in-southern-india-idUSKBN2AD0GO?il=0)
 
-**5.九家乌克兰公司被实施经济制裁**
+拜登星期四表示，他与中共国主席习近平于本周三首次电话通话了2个小时，总统称他们谈到了广泛的各种各样的问题——包括违反人权的问题。
 
-（路透社）2月13日，根据一项政府法令，俄罗斯对九家乌克兰公司实施经济制裁，扩大了其制裁对象的名单。受“特别经济措施”制裁的乌克兰企业包括船舶制造、货运以及冶金行业的公司。该法令并没有说明为什么这九家公司成为制裁的目标。
+星期四上午，拜登告诉聚集在椭圆形办公室（总统办公室）的记者：“昨晚我与习近平连续打了两个小时的电话。”
 
-[https://finance.sina.com.cn/tech/2021-02-14/doc-ikftpnny6774165.shtml?cref=cj](https://finance.sina.com.cn/tech/2021-02-14/doc-ikftpnny6774165.shtml?cref=cj)
+总统就与中共的竞争告诉记者说：“如果我们不采取行动，他们会吃掉我们的午餐。”
 
-**6.全球最大中共国股票基金1月减持茅台**
+他说，中共国有“重大新举措”，并且“非常努力工作”制造新技术车辆。
 
-（中正网讯）继全球持有茅台最多的基金——“美洲基金-欧洲亚太成长”基金在2020年四季度减持茅台之后，另一重磅基金近期也减持了茅台，即瑞银旗下的瑞银（卢森堡）股票基金-中国机遇（美元）。记者2月14日查询数据发现，截至1月底，贵州茅台为该基金的第五大重仓股，基金持有市值8.16亿美元。与2020年底相比，该基金持有贵州茅台减少3.66%。
+拜登与中共国主席的通话以贸易和侵犯人权为中心——习近平警告对抗将对两国都是“灾难”。
 
-[http://www.cs.com.cn/tzjj/jjdt/202102/t20210214\_6139259.html](http://www.cs.com.cn/tzjj/jjdt/202102/t20210214_6139259.html)
+习近平告诉拜登，根据中共国外交部的呼吁，双方应重新建立避免误判的手段。
 
-**7.中行成功发行首单“玉兰债”**
+[!\[\]()!\[\](https://spark.adobe.com/page/rzJTQ8uBwH7Pf/images/7c619f58-5605-446a-ba02-ccdbfd83359b.jpg?asset_id=f1e7e882-f42b-4e3b-97a3-61bb37c68525&amp;img_etag=%22f260129420192ab74860e9d1b65c30f8%22&amp;size=2560)](https://spark.adobe.com/page/rzJTQ8uBwH7Pf/images/7c619f58-5605-446a-ba02-ccdbfd83359b.jpg?asset_id=f1e7e882-f42b-4e3b-97a3-61bb37c68525&amp;img_etag=%22f260129420192ab74860e9d1b65c30f8%22&amp;size=1024)拜登表示，周三晚间他与中国国家主席习近平的首个电话通话持续了两个小时，谈话涉及了广泛的话题
 
-（新华社）2月11日，中共国中国银行近日完成境外5亿美元“玉兰债”定价，并获上海清算所发行登记，这是上海清算所和欧洲清算银行于去年12月8日宣布推出“玉兰债”业务后的首单交易。“玉兰债”通过上海清算所与欧洲清算银行建立的金融基础设施连接，为中资发行人面向国际市场发债提供便利。上海清算所作为境内金融基础设施，直接服务中资发行人，提供债券无纸化登记服务。国际投资人直接或间接通过欧洲清算银行持有“玉兰债”，并通过欧洲清算银行开展结算。
+[!\[\]()!\[\](https://spark.adobe.com/page/rzJTQ8uBwH7Pf/images/1ef3c3bd-b7a0-4e40-98cb-63230da429a7.jpg?asset_id=2c549509-583d-490e-95cd-30d472608843&amp;img_etag=%229dff7588529794fbb9b62e459aa0e9bd%22&amp;size=2560)](https://spark.adobe.com/page/rzJTQ8uBwH7Pf/images/1ef3c3bd-b7a0-4e40-98cb-63230da429a7.jpg?asset_id=2c549509-583d-490e-95cd-30d472608843&amp;img_etag=%229dff7588529794fbb9b62e459aa0e9bd%22&amp;size=1024)星期四，总统就与中共国的竞争告诉记者说：“如果我们不采取行动，他们会吃掉我们的午餐。”
 
-[http://www.cs.com.cn/yh/04/202102/t20210211\_6139158.html](http://www.cs.com.cn/yh/04/202102/t20210211_6139158.html)
+[!\[\]()!\[\](https://spark.adobe.com/page/rzJTQ8uBwH7Pf/images/1096818e-dd11-48ef-986b-0bea73235a94.jpg?asset_id=2eb75266-9b46-4ef6-92dd-46f96ddc66d4&amp;img_etag=%22e320bb83c88729586a639af051c93ba5%22&amp;size=2560)](https://spark.adobe.com/page/rzJTQ8uBwH7Pf/images/1096818e-dd11-48ef-986b-0bea73235a94.jpg?asset_id=2eb75266-9b46-4ef6-92dd-46f96ddc66d4&amp;img_etag=%22e320bb83c88729586a639af051c93ba5%22&amp;size=1024)中共国主席习近平警告说，在中国人权问题上搞对抗，对两国都将会是“灾难”，并且说在通话中他们应该避免错误判断。
 
-By 【金融组-Rosy Cloud】
+这次电话通话发生在北京时间周四的早上，美国时间的星期三晚上。
 
-素材搜集: Totoro、文罡、Sharon、Rosy Cloud
+白宫在一份声明中说，拜登在电话中还强调了他“对北京的强制性和不公平做法，对香港的镇压，报道的新疆侵犯人权行为以及该地区越来越强硬的行动，包括对台湾的行动的主要担忧”。
 
-校对: Tracy
+中共国领导人保持了对香港、新疆和台湾强硬的态度。
+
+他告诉拜登，所有这些都是“主权和领土完整”的问题，他希望美国将谨慎对待。
+
+台湾政府抱怨中共国在这个宣称拥有主权的民主制度的岛屿附近反复进行军事演习，对拜登表达的关注表示感谢。
+
+自从去年3月中共国领导人与前总统川普通话以后，这次电话是习与美国总统的首次通话。自那以来，两国之间的关系已跌至数十年来的最低水平，川普谴责中共国导致了冠状病毒的大流行。
+
+在川普政府执政期间，美国针对中共国采取了一系列行动，包括贸易战，对被视为国家安全威胁的中共国官员和公司进行制裁，并挑战北京对南中国海的领土主张。
+
+习近平在去年十一月发消息祝贺拜登当选总统，尽管拜登曾在竞选期间称习为“暴徒”，并誓言要领导一个国际力量对“中共进行施压、孤立和惩罚”。
+
+中共国官方对拜登政府将改善双边关系表示了谨慎的乐观态度，并敦促华盛顿方面与北京达成共识。
+
+美中两国在呼吁书中均提到了潜在合作领域，既关注气候变化，也应对新冠病毒大流行。
+
+据中共国外交部透露，习近平对拜登说：“您曾说过，可以用一个词来定义美国：可能性。我们希望现在的可能性将指向中美关系的改善。”
+
+拜登政府已经明确表示将继续对中共施加压力，尽管它也曾承诺采取更加多边的态度。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/rzJTQ8uBwH7Pf/images/9a39d11e-7749-4368-a92a-8578701b7e75.jpg?asset_id=85a68bc7-3c19-4470-8bba-bbb4fd3186ec&amp;img_etag=%2266891232de4e9a003f8e2ff202ca1ead%22&amp;size=2560)](https://spark.adobe.com/page/rzJTQ8uBwH7Pf/images/9a39d11e-7749-4368-a92a-8578701b7e75.jpg?asset_id=85a68bc7-3c19-4470-8bba-bbb4fd3186ec&amp;img_etag=%2266891232de4e9a003f8e2ff202ca1ead%22&amp;size=1024)时任副总统的拜登和习近平于2015年在华盛顿特区，由奥巴马时代的国务卿约翰•克里（John Kerry）为中共国领导人举行的国家午宴上合影
+
+拜登政府的一位高级官员在电话前告诉记者，拜登在与习近平的交往中会“务实，头脑冷静、清晰”，尽管美国对中共国的行为担忧，但他希望确保有机会保持开放的沟通渠道。
+
+该官员说，这一通话发生在美国与盟国和伙伴协商后，认为有能力提出对中共国的“侵略性活动和滥用权力”发出主要关切之际。
+
+这位官员说，拜登政府将在未来数月内与盟国和合作伙伴合作，对某些中共国敏感技术出口增加“新的有针对性的限制”。他还表示，将不会迅速采取行动取消前川普政府对中共国进口产品征收的关税。
+
+上周五，美国国务卿安东尼•布林肯（Antony Blinken）通过电话与中共国外交官员杨洁篪通话。这是自前国务卿迈克彭佩奥于去年6月在夏威夷会见杨以来，两国高层外交官之间首次宣布高级别交流。
+
+布林肯在电话中说，华盛顿将捍卫新疆、西藏和香港的人权——杨在几天前表示所有这些问题美国不应插手。
+
+拜登曾表示，北京是华盛顿“最强劲的竞争对手”，他的政府已表示将在很大程度上延续川普采取的强硬态度。
+
+🔗[原文链接](https://www.dailymail.co.uk/news/article-9248339/Presidents-Biden-Xi-hold-phone-call-amid-tense-U-S-China-relations.html)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/rzJTQ8uBwH7Pf/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/rzJTQ8uBwH7Pf/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

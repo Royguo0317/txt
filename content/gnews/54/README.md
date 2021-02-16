@@ -1,15 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年2月14日 文贵先生盖特 3
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/909060/)
+## 伊拉克欲在中共建石油存储设施
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/909141/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+- 编辑 审核：Victor Torres
+- 发稿 作者：神奇四侠
 
-2月14日：比爹娘还亲的……无 无 无 无 产阶级的共．共 共 共 产党，是世界上最大的诈骗谎言集团，如果人们活了一辈子，连这个还没看明白的人，那就是受到了上天最大的惩罚…… 【转自人民网！ 茂名市副市长杨光亮房产140套，现金12亿； 楚雄州长杨红卫房产230套，现金17亿； 杭州市副市长许迈永房产250套，现金14亿； 山西蒲县煤炭局长郝鹏俊房产350套，现金30亿； 山东副省长黄胜房产460套，现金90亿美元； 浙江省药监局长黄萌房产840套，现金20亿……[http://www.people.com.cn/n/2012/0627/c33232-18391823.html](http://www.people.com.cn/n/2012/0627/c33232-18391823.html)】
-![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-38-58.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-00.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-02.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-05.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-07.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-09.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-15_11-39-15.jpg)
-[【2021年2月14日】文贵先生盖特原文](https://gtv.org/getter/6029fddc226e775907441a41)
 
-**喜联盟Gnews编辑部**
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
+**西班牙2021年2月15日电/西喜社——**
+
+伊拉克正在与中共的国营公司商谈，准备在中共建立石油储存设施，同时也正在讨论巴基斯坦提出的建设原油储存设施的计划
+伊拉克石油部长表示这是增强对亚洲国家销售石油计划的一部分，用来维护伊拉克在石油销售方面的利益。
+
+新闻来源：[路透社](https://www.reuters.com/article/iraq-oil-asia-int-idUSKBN2AE0EZ?taid=6029490fbbd8010001ee5aed&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/00110011.png)
 0
