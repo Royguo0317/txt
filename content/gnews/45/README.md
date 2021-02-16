@@ -1,27 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法国东部大区议员致信区长让·罗特内重新考虑华为在本地建厂
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/909385/)
+## 昂山素季被还押至周三
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/909437/)
 
-#### 编译：Ikonic 审核：Pv0
-![]()![](https://gnews.org/wp-content/uploads/2021/02/cover-24.png)
-*编者按：让有中共解放军背景的华为在法国建厂本来就是一个高风险的事情。随着爆料革命对中共统治全球的野心的揭露，越来越多的国家看清了中共的野心。尽管法国是中共在欧洲蓝金黄的重灾区，但是法国也有清醒的爱国者。此次当地议员向区长喊话停止华为建厂，虽然理由是维吾尔种族屠杀，实际的担忧还是落在了华为对所在地情报收集的问题上。*
+- 编辑：Victor Torres
+- 发稿：Ranting
 
-在一封公开信中，法国阿尔萨斯省的8名议员协同当地人权保护协会向所在的东部大区区长让·罗特内呼吁，由于华为被指参与了对新疆维吾尔人的种族大屠杀，希望停止华为所在大区边陲小镇布鲁玛特建厂。
 
-#### 原文链接：
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-[https://www.lalsace.fr/economie/2021/02/12/huawei-a-brumath-des-elus-locaux-appellent-jean-rottner-a-faire-machine-arriere](https://www.lalsace.fr/economie/2021/02/12/huawei-a-brumath-des-elus-locaux-appellent-jean-rottner-a-faire-machine-arriere)
+**西班牙2021年2月15日电/西喜社——**据NHK周一报道，被赶下台的缅甸领导人昂山素季的一名律师说，她将被还押拘留至周三。自2月1日军事政变以来，她一直被软禁。
 
-#### 更多文章：
+根据警方提交给法官的文件，昂山素季涉嫌非法进口手持收音机，并在未经许可的情况下使用。她的拘留期将于周一到期。
 
-[中国华为在法国陆军情报局驻地附近兴建工厂](https://gnews.org/zh-hans/673125/)
+律师钦孟祖(Khin Maung Zaw)告诉NHK，昂山素季和被罢免的总统温敏(Win Myint)当天不会出庭。他引述法官的话说，警方提出还押申请的实际日期是2月3日，所以还押到期日是2月17日。
 
-[華為將於2023年在法國大東部地 區開設第一家國外工廠](https://gnews.org/zh-hant/848782/)
+昂山素季的全国民主联盟执行委员昂基纽特对NHK表示，延长对两名民盟领导人的拘留期限，进一步证明军方在滥用法律。他说，相关的法官、执法人员和警察都是同谋。
 
-* * *
+与此同时，周一全国各地反对军方夺权的抗议活动仍在继续。
 
-发布：法国巴黎七星编辑组
+在最大的城市仰光，抗议者要求释放昂山素季和其他被拘留的官员。示威活动已经连续进行了10天。
+
+军队正在对抗议者进行镇压。在仰光和其他主要城市部署了装甲车。
+
+美国、英国和其他西方国家的大使周日发表了一份联合声明。声明敦促缅甸的安全部队 “不要对示威者和平民使用暴力”。
+
+联合国秘书长安东尼奥-古特雷斯（Antonio Guterres）要求军方当局允许联合国缅甸问题特使访问该国。
+
+[**新闻来源**](https://www3.nhk.or.jp/nhkworld/en/news/20210215_29/?cid=wohk-tw-org_wn)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
 0

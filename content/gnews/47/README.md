@@ -1,58 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2/15/2021 财经快讯：全球首只比特币ETF获批上市；日经指数30多年后重回3万点上方
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/909381/)
+## 【香港要闻】港人讽刺香港警察购捷克枪械是侮辱中共国
+` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/909415/)
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/02/Picture2-6.jpg)
-图片来源： [https://www.readblocks.com/](https://www.readblocks.com/)
+搜集/撰文：岁月如歌
 
-**1.全球首只比特币ETF获批上市**
+**据香港媒体今天报道，香港警察早前在美国SIG厂订购的冲锋枪因禁运被迫取消订单，香港警队转向捷克，计划订购1000支捷克的乌尔斯基•布罗德兵工厂（CZUB）生产的CZ蝎式EVO3A1冲锋枪。用来替换MP5冲锋枪，供警察反恐部队使用。这个听起来有点恐怖啊，好像香港现在有恐怖组织似的，我们不忘记2019年6月的港人反送中运动，文明游行感动世界。但是中共“参沙子”制造混乱嫁祸港人，并将港人运动定义为暴动，对制造混乱视为恐怖袭击。这样我们对香港警队买冲锋枪供反恐部队使用的目的就很明朗了。**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/jpg-t_582f41540d1e4caaa4014de7846319fa_name_5654WGHYV5C67FY6OA2GE6D6NE.jpg)图片来自苹果新闻
+据说香港警队在向捷克订购前曾于俄罗斯和中共国试用过两地的枪支。俄罗斯枪支质量不错，但港警身材相对俄罗斯人矮小，枪支使用起来显得有点大不合适。照理中共是枪枝出口大国，大家又同属东方人种，又是港警老板，理应不该让这“肥水”便宜外帮人是吧，归根到底就是中共制造的东西质量实在不敢苟同，质量太差做工粗糙，毕竟便宜没好货。港警曾向中共的北方工业订购子弹做训练用，发现子弹太差，不稳定，打枪过程中常出现“废子弹”，打都打不响。经过斟酌，港警决定转向捷克订购。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/image003-9.jpg)图片来自苹果新闻
+香港警队这个做法引起港人的嘲讽。香港警方和港府在打压香港人抗争从不手软。在秋后算账上更是心狠手辣，利用港区国安法无情打压，赶尽杀绝。港府也只是中共的传声筒，对中共俯首帖耳，惟命是从。香港人对这群镇压他们的恶人非常痛恨，虽然打不过恶警，发泄不满和怨恨是少不了的。他们讽刺香港警队作为中共得力的打手，样样听命于中共，效忠献媚中共，在购枪这件事上不去趁机擦鞋（讨好中共）而去别国买，是警察嫌弃他们的祖国母亲，是对中共党国的不敬，是触犯国安法的。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/image005-3.jpg)香港吹水台截图：香港市民对采购『枪械』热议
+警队内部反映中共国北方工业制造的子弹质量不好，有次品。这是妄议祖国，歪曲事实，造谣传谣，这是罪大极恶行为。你们的中共祖国强大，繁荣昌盛，军事力量，军事水平早已远超欧美，怎么可能生产出“粗糙，稳定性不足”子弹呢？这分明是抹黑你们的祖国。如果是真的，香港警察更不应该说出来，这是泄露了国家机密，这是触犯国安法的，必须立刻逮捕。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/image007.jpg)香港吹水台截图：香港市民对采购『枪械』热议
+香港人很清楚中共有多少本事除了凶残、独裁、狡猾，阴毒，假、骗、偷是真的，其他都是假的。枪支弹药飞机大炮等都是靠抄袭山寨毫无自己的发明。市民嘲笑中共抄袭别国的枪都抄袭不好。世界各国都知道中共就是个惯偷，几十年发展就靠从发达国家偷技术、偷发明、偷资料回来再自己几乎不改动照抄地“研究”，山寨出自己的东西。中共的第一艘航母辽宁号就是真正的山寨版。花了十几年研制出一艘烧柴版外挂拖油瓶的航母，着实让国人脸上长了不少光。也功夫不负山寨人，得了个世界排行榜第一，倒数的。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/image009.jpg)香港吹水台截图：香港市民对采购『枪械』热议
+枪支弹药抄袭应该比航母火箭飞机简单多了，但是居然有打不响的子弹。说明中共国的人才、技术都不行，更别说创新了。郭文贵先生说过，中共国从没有花心思去研制任何东西，都靠骗，偷。技术上与他国合作，人家出技术中共出人出钱出地方，以各种优惠政策吸引外国人来投资，要求技术转让或者在合作过程中，偷偷把人家的技术学过来偷过来，到手了就一脚把傻乎乎的外国投资者踢了自己独吞。另外一个方法就是派人员出国留学，进修，交流等方式把在中共国内培养好的超级特务，超级神偷撒到世界各地，形成一股潮流，一个产业链，这就是郭文贵先生爆料，惊呆世人的“百人计划”，“千人计划”……
 
-(路透社)2月12日，加拿大主要证券监管机构已经批准全球首只比特币交易所交易基金（ETF）上市， 这为散户投资者提供了更多的接触这种飞速发展的加密货币的机会。据业内人士托德·罗森布鲁斯 (Todd Rosenbluth) 说，自2013年以来，美国已经有8家公司尝试创建比特币ETF, 但均未成功。
+【以上观点仅代表笔者本人 】
 
-[https://www.reuters.com/article/crypto-currency-etf/canadian-regulator-clears-launch-of-worlds-first-bitcoin-etf-investment-manager-idUSL1N2KI1FX](https://www.reuters.com/article/crypto-currency-etf/canadian-regulator-clears-launch-of-worlds-first-bitcoin-etf-investment-manager-idUSL1N2KI1FX)
+资料来源：[香港媒体](https://hk.appledaily.com/local/20210215/JBA36EFZS5AIDATTK7IYWYGIPE/)
 
-**2.日经指数30多年后重回3万点上方**
+审稿：卡西欧 / 上传：文粵
 
-（路透社）2月15日，日本日经指数30余年来首次突破3万点大关，收复了数十年经济停滞期间的失地。日经指数上一次站在3万点以上是1990年8月3日， 并于1989年12月29日达到历史最高点38915点，此后日本经济进入萧条时期。
-
-[https://www.reuters.com/article/us-japan-stocks-recovery/nikkei-back-above-30000-after-more-than-three-decades-idUSKBN2AF02H?il=0](https://www.reuters.com/article/us-japan-stocks-recovery/nikkei-back-above-30000-after-more-than-three-decades-idUSKBN2AF02H?il=0)
-
-**3.伊拉克与中共就在华建立石油仓库进行了深入谈判**
-
-（路透社）伊拉克石油部长表示，伊拉克正与中共国有企业就在中共国建设原油储存设施进行深入谈判，这是提振对亚洲石油销售计划的一部分。伊拉克也在讨论在巴基斯坦建设原油存储设施的计划，并计划未来扩展到其他一些国家。
-
-[https://mobile.reuters.com/article/amp/idUSKBN2AE0EZ?\_\_twitter\_impression=true](https://mobile.reuters.com/article/amp/idUSKBN2AE0EZ?__twitter_impression=true)
-
-**4.特斯拉将在印度设立电动汽车制造厂**
-
-卡纳塔克邦政府周六在一份简短声明中正式确认:“美国公司特斯拉将在卡纳塔克邦开设一个电动汽车制造部门。”埃隆·马斯克曾多次表示，他的公司希望进入印度市场。上个月，这家电动汽车制造商在全球科技公司云集的卡纳塔克邦班加罗尔注册成立了特斯拉汽车印度和能源私人有限公司(Tesla Motors India and Energy Private Limited)，注册办事处设在班加罗尔。
-
-[https://www.reuters.com/article/us-tesla-india-electric/tesla-to-set-up-electric-car-manufacturing-unit-in-southern-india-idUSKBN2AD0GO?il=0](https://www.reuters.com/article/us-tesla-india-electric/tesla-to-set-up-electric-car-manufacturing-unit-in-southern-india-idUSKBN2AD0GO?il=0)
-
-**5.九家乌克兰公司被实施经济制裁**
-
-（路透社）2月13日，根据一项政府法令，俄罗斯对九家乌克兰公司实施经济制裁，扩大了其制裁对象的名单。受“特别经济措施”制裁的乌克兰企业包括船舶制造、货运以及冶金行业的公司。该法令并没有说明为什么这九家公司成为制裁的目标。
-
-[https://finance.sina.com.cn/tech/2021-02-14/doc-ikftpnny6774165.shtml?cref=cj](https://finance.sina.com.cn/tech/2021-02-14/doc-ikftpnny6774165.shtml?cref=cj)
-
-**6.全球最大中共国股票基金1月减持茅台**
-
-（中正网讯）继全球持有茅台最多的基金——“美洲基金-欧洲亚太成长”基金在2020年四季度减持茅台之后，另一重磅基金近期也减持了茅台，即瑞银旗下的瑞银（卢森堡）股票基金-中国机遇（美元）。记者2月14日查询数据发现，截至1月底，贵州茅台为该基金的第五大重仓股，基金持有市值8.16亿美元。与2020年底相比，该基金持有贵州茅台减少3.66%。
-
-[http://www.cs.com.cn/tzjj/jjdt/202102/t20210214\_6139259.html](http://www.cs.com.cn/tzjj/jjdt/202102/t20210214_6139259.html)
-
-**7.中行成功发行首单“玉兰债”**
-
-（新华社）2月11日，中共国中国银行近日完成境外5亿美元“玉兰债”定价，并获上海清算所发行登记，这是上海清算所和欧洲清算银行于去年12月8日宣布推出“玉兰债”业务后的首单交易。“玉兰债”通过上海清算所与欧洲清算银行建立的金融基础设施连接，为中资发行人面向国际市场发债提供便利。上海清算所作为境内金融基础设施，直接服务中资发行人，提供债券无纸化登记服务。国际投资人直接或间接通过欧洲清算银行持有“玉兰债”，并通过欧洲清算银行开展结算。
-
-[http://www.cs.com.cn/yh/04/202102/t20210211\_6139158.html](http://www.cs.com.cn/yh/04/202102/t20210211_6139158.html)
-
-By 【金融组-Rosy Cloud】
-
-素材搜集: Totoro、文罡、Sharon、Rosy Cloud
-
-校对: Tracy
-
-0
++1
