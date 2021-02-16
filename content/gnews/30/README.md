@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 58国共同倡议 阻止以外交手段拘禁外国公民
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/910262/)
+## 川普的国会演讲 &#8220;不符合 &#8220;刑事煽动标准
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/910520/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+素材: Jenny, 翻译: Jony(8 Mile), 视频: Runaway/光耀华夏
+Fox News
+原标题：特利 (Turley) 谈弹劾：川普的国会演讲 “不符合 “刑事煽动标准
 
-编辑   水星   上传    银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/下载-1-6.jpg)gnews
+周日在福克斯新闻频道的 “美国新闻总部 “上，乔治-华盛顿大学法学院教授乔纳森-特利 (Professor Jonathan Turley) 就前总统唐纳德-川普能否因1月份在美国国会大厦“煽动骚乱”而受到刑事指控的问题发表讲话。参议院周六投票决定川普“煽动暴乱”罪名不成立。
 
+特利承认，川普作为前总统，不能免于被指控犯罪。但他认为，川普在国会大厦发生骚乱前的演讲”不符合煽动的标准”。
 
-路透社2月15日报道，加拿大周一启动了一项由58个国家共同参与的倡议，倡议阻止其他国家以外交手段拘禁外国公民。此举是出于对中共国、伊朗、俄罗斯和朝鲜逮捕外国人的担忧。
+“好吧，他可以被起诉，这些言论是在驳斥众议院议长的观点，即总统可以不知何故而逍遥法外。总统也不能逃脱任何犯罪行为。”特利在谈到指控一位前总统犯罪的合法性时说。”他可以被指控，但你必须 (合法) 指控他。所以很多人说这是一个公开的犯罪煽动案——好吧，(以为这样就可以) 指控他。我必须告诉你——我非常怀疑，如果不是在审判中，而是在上诉中，这是否能持续下去。在我看来，如果你只看演讲的话，这不符合勃兰登堡案的标准。”
 
-加拿大外长马克·加诺指出以外交手段拘禁外国公民是“不可接受的行为”。他说，“把人从他们的家人身边带走，并把他们当作谈判的筹码，既不合法，也不道德。”
+（本文纯属原文翻译，无个人观点添加）
 
-包括日本、英国、澳大利亚以及27个欧盟成员国的外长都签署了这份不具约束力的声明，谴责那些拘留外国人以及其他可能想这样做的国家。
+信息来源: https://www.breitbart.com/clips/2021/02/14/fncs-turley-on-impeachment-trumps-capitol-speech-does-not-meet-standards-of-criminal-incitement/
 
-在声明正式发布之前，中共官媒《环球时报》(Global Times)援引未具名专家的话称，这一倡议是“一场旨在挑衅中共的侵略性和欠考虑的攻击”。
+审核: Runaway
+![This image has an empty alt attribute; its file name is 1-澳喜Logo.jpeg]()![This image has an empty alt attribute; its file name is 1-澳喜Logo.jpeg](https://gnews.org/wp-content/uploads/2021/02/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
 
-2018年，温哥华警方根据美国的逮捕令逮捕了华为技术有限公司“公主”孟晚舟后，北京拘捕了两名加拿大人。加拿大谴责中共的“人质外交”。美国呼吁中共释放这两名加拿大人质，并谴责中共“将胁迫作为一种政治工具”。有加拿大官员表示，这一倡议将有助于向北京施压。
-
-参考链接：
-
-[https://www.reuters.com/article/us-canada-diplomacy-detainees-idUSKBN2AF0NV](https://www.reuters.com/article/us-canada-diplomacy-detainees-idUSKBN2AF0NV)
 
 0
