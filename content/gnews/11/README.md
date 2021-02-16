@@ -1,34 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》新闻快讯（视频版）:20210211 Dominic叫兽
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/910230/)
+## 英首相提议制定全球流行病条约以共享数据
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/910251/)
 
-《路德社》出品
+俄罗斯莫斯科喀秋莎农场   银河
 
-以下视频是详细内容：
+编辑   水星    上传    银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/下载-18.jpg)[trt.net.tr](https://www.trt.net.tr/japanese/jing-ji-bizinesu/2019/12/18/ziyonsonying-shou-xiang-dabosuhui-yi-henoge-liao-nochu-xi-wojin-zhi-1325621)
+路透社2月15日报道，英国首相鲍里斯·约翰逊周一表示，在起源于中共国的中共病毒爆发后，世界大国应该就全球流行病达成一项条约，以确保适当的透明度。
 
-主要内容：
+英国首相鲍里斯·约翰逊和英国首席医疗官克里斯·威蒂2月15日在伦敦唐宁街参加了中共病毒疫情媒体会。约翰逊说，他热切希望就传染病透明度达成一项全球条约，要求各国同意共享数据。
 
-1.叫兽坚持为CCP站台，说CCP没有撒谎：只是解释不到位
+约翰逊强调，“我认为这是一个有吸引力的想法，该条约的缔约国需确保他们提供所有的数据,让我们能够弄清发生了什么并阻止疫情再次发生。”目前，英国和美国对世界卫生组织(WHO)代表团到中共调查中共病毒起源的结果感到担忧。
 
-2.毕竟时间太久了，溯源很困难
+欧洲理事会主席查尔斯·米歇尔(Charles Michel)称赞该提议是明智的做法。他在推特上写道，他支持鲍里斯·约翰逊共同制定大流行条约，以提高全球防范能力、顺应力和恢复能力。
 
-3.中共国的政治因素也影响结论
+英国作为七国集团(G7)轮值主席国，约翰逊希望能领导全球应对流行病的努力，包括建立一个早期预警系统。但七国集团(G7)领导人将于周五召开的电话会议中并未包含此条约。
 
-4.武毒所表示没有泄露，所以WHO认为极不可能泄露
+当路透社问及谁该对疫情溯源缺乏透明度负责时，约翰逊表示，相当明显，大多数证据都说明病毒发源于武汉。
 
-5.不得不承认病毒爆发地只有武汉，却还说不知道起点
+参考链接：
 
-6.为了找起点，就得全世界找携带母体病毒的动物，您确定CCP是动物？
-
-7.洗地：CCP不是故意隐瞒的，是因为判断不了
-
-8.华南海鲜市场拆了快一年了、多次消毒、店铺门窗紧锁，居然还知道有可能非法的东西被交易；这幻视能力，您再多喝点白酒一定能见到马克思
-
-9.采访最后终于说漏嘴了：CCP直到这次才提供数据；感情去年WHO去的时候光顾着喝白酒了
-
-翻译：路德社翻译组
-制作：路德社视频组
+[https://www.reuters.com/article/us-health-coronavirus-britain-johnson-ch/uks-johnson-says-world-needs-pandemic-treaty-to-ensure-transparency-idUSKBN2AF1OP](https://www.reuters.com/article/us-health-coronavirus-britain-johnson-ch/uks-johnson-says-world-needs-pandemic-treaty-to-ensure-transparency-idUSKBN2AF1OP)
 
 0
