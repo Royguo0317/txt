@@ -1,131 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国国务卿呼吁科学家 &#8220;最大限度地开展合作&#8221;
-` Mild Seven, Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/910604/)
+## 2/16/2021 财经快讯：澳大利亚欲废除“一带一路”，德国希望与拜登政府密切合作
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/910701/)
 
-**2021****年2****月16****日**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2021-02-16_230324.png)图片来源： https://www.abc.net.au/
+**1.“一带一路”对澳大利亚没有任何好处**
 
-一篇在线德语文章的中文翻译
+澳大利亚总理莫里森近日表示，维多利亚州与中共签署的“一带一路”协议对澳大利亚没有任何好处，可能会在几周之内将其废除。澳大利亚维多利亚州州长安德鲁斯2018年与中共签署“一带一路”谅解备忘录。不过，这项协议一直饱受诟病。批评者认为，中共可能借机获取对维多利亚州基础设施的控制权。
 
-标题: 德国国务卿呼吁科学家 “最大限度地开展合作”
+安德鲁斯和澳大利亚其他州的州长以及领地的首席部长，必须在3月10日之前向澳大利亚联邦政府详细说明所有与外国签署的协议，然后由联邦政府进行评估。莫里森的上述表示被认为提前告知维多利亚州，与中共签署的“一带一路”协议会有什么结果。
 
-###### **原文标题: 🇩🇪 [Wenn der Staatssekretär Wissenschaftler zu „maximaler Kollaboration“ aufruft](https://www.welt.de/politik/deutschland/plus225868061/Corona-Politik-Wie-das-Innenministerium-Wissenschaftler-einspannte.html?notify=success_subscription)**
+[https://www.voachinese.com/a/Morrison-could-tear-up-victoria-s-controversial-belt-and-road-deal-with-China-20210215/5779187.html](https://www.voachinese.com/a/Morrison-could-tear-up-victoria-s-controversial-belt-and-road-deal-with-China-20210215/5779187.html)
 
-**原文发表日期****：**2021年2月8日
+**2.德国希望在贸易、中共国和气候问题上与拜登政府密切合作**
 
-**原文作者****：**[Anette Dowideit](https://www.welt.de/autor/anette-dowideit/) und Alexander Nabert
+2021年2月10日，美国总统拜登在弗吉尼亚州阿灵顿的五角大楼对国防部人员发表讲话。德国希望欧洲和美国加强跨大西洋关系，达成一项取消工业关税的贸易协议，一项对中共国施加更大压力的世贸组织改革，以及建立一个联合碳排放交易体系以保护气候。
 
-**翻译:** Mild Seven, 英国伦敦喜庄园
+德国总理默克尔政府的跨大西洋事务协调员拜尔在周一发表的一篇采访中表示，德国和拜登总统领导的美国新政府应该“胸怀大志”，以基于共同价值观和关注共同利益的雄心勃勃的议程为目标。
 
-**校对：**拱卒， 英国伦敦喜庄园
+[https://www.theglobeandmail.com/world/us-politics/article-germany-wants-to-work-closely-with-joe-biden-on-trade-china-climate/](https://www.theglobeandmail.com/world/us-politics/article-germany-wants-to-work-closely-with-joe-biden-on-trade-china-climate/)
 
-— 全文翻译（中德对照）–
+**3.随着日本企业离开中共国，孟加拉国看到了投资的增长**
 
-## Wenn der Staatssekretär Wissenschaftler zu „maximaler Kollaboration“ aufruft
+日本鼓励本国企业将制造设施迁出中共国，并将孟加拉国列为首选工厂迁出地，这可能会给这个南亚国家的经济带来提振。日本驻孟加拉国大使伊藤直树（Naoki Ito）在接受采访时说，“随着疫情在中共国开始蔓延，日本企业需要“进一步使供应链多元化。”这将为孟加拉国提供一个机会。”孟加拉国正在建设一个经济特区，以吸引日本企业的生产设施，预计将带来200亿美元的日本投资。
 
-国务卿呼吁科学家 “最大限度地开展合作”
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Bild61.jpg)Innenminister Horst Seehofer (M.) und sein Staatssekretär Kerber (r.) holten für ihre Politik Wissenschaftler ins Boot, unter anderen RKI-Chef Lothar Wieler 内政部长霍斯特·西霍弗（Horst Seehofer）（中）和他的国务卿科伯（Kerber）（右）拉科学家参政，其中包括罗伯特-科赫研究所（RKI）老板洛塔尔-维勒（Lothar Wieler）
+[https://finance.yahoo.com/news/bangladesh-sees-investment-boost-japanese-210000207.html](https://finance.yahoo.com/news/bangladesh-sees-investment-boost-japanese-210000207.html)
 
+**4.随着美国大面积停电，天然气价格再次飙升至500美元**
 
-Das Innenministerium erstellte im März 2020 intern ein Papier, das die Bedrohungen durch Corona dramatisch darstellte. Es sollte hartes politisches Handeln legitimieren. Ein umfangreicher interner Schriftverkehr zeigt, wie die Regierung Wissenschaftler dafür einspannte.
+周一，因天气严寒导致对供暖和发电厂燃料的需求飙升，美国实际交付的天然气的交易价格高达500美元/百万英热单位。
 
-内政部于2020年3月在制作了一份内部文件，它概述了Corona所带来的严重威胁。它的目的是使强硬的政治行动合法化。大量的内部通信显示了政府如何利用科学家达到这一目的。Mitte März vergangenen Jahres war Deutschland im ersten Lockdown. Schulen und Geschäfte waren geschlossen, die Nerven im Land lagen blank. Auch bei Bundesinnenminister Horst Seehofer (CSU). Denn gerade hatten der Virologe Christian Drosten und Lothar Wieler, der Chef des Robert-Koch-Instituts (RKI), seinem Haus einen Besuch abgestattet.
+交易员称，美国中部两个中心的天然气价格为500美元/百万英热，周一为240美元/百万英热。自上周四以来，由于供暖需求激增，导致大面积停电，电价飙升，美国中部地区的现货天然气交易价格已达数百美元，而该地区的燃料交易价格通常低于3美元/百万英热单位。
 
-去年三月中旬德国处于第一次封锁状态。学校和商店都关门了，举国上下人心惶惶。联邦内政部长霍斯特·西霍弗（CSU）也是如此，病毒学家Christian Drosten和罗伯特·科赫研究所（RKI）的负责人Lothar Wieler刚刚造访了他。
+[https://finance.yahoo.com/news/natural-gas-skyrockets-again-500-220325461.html](https://finance.yahoo.com/news/natural-gas-skyrockets-again-500-220325461.html)
 
-Die beiden hatten die Führungsriege des Innenministeriums eindringlich gewarnt: Deutschland drohten dramatische Folgen, kehre das Land zu schnell in den Alltag zurück. Seehofer sorgte sich nun davor, dass wie geplant an Ostern der Lockdown enden sollte. Der Minister war entschieden dagegen. Er schickte seinen Staatssekretär Markus Kerber in die Spur.
+**5.全球股市再创新高，中东紧张局势导致油价上涨**
 
-两人严肃地警告内政部领导：如果德国的日常生活过快恢复常态，那么德国将面临严重后果。Seehofer此前正在考虑在复活节的时候结束封锁状态。部长对此坚决反对。他派他的国务卿Markus Kerber去调查。
+全球股市连续第11天上涨，创下新高。与此同时，中东的紧张局势推动油价升至13个月高点。上周五，被称为华尔街“恐惧指标”的芝加哥期权交易所波动指数收于近一年来的最低水平，摩根士丹利资本国际全球股市指数周一上涨0.4%，英国富时100指数上涨2.2%，日本日经指数领涨1.9%，30多年来首次重拾30000点大关，标准普尔500指数的E-mini期货也走高，上涨0.5%。
 
-Kerber hatte einen Plan: Er wollte führende Wissenschaftler mehrerer Forschungsinstitute und Universitäten zusammen einspannen. Gemeinsam sollten sie ein Papier erarbeiten, das dann als Legitimation für weitere harte politische Maßnahmen dienen sollte, über Ostern hinaus. Er startete per E-Mail einen entsprechenden Aufruf an die Forscher.
+[https://www.reuters.com/article/uk-global-markets-idUSKBN2AF01L](https://www.reuters.com/article/uk-global-markets-idUSKBN2AF01L)
 
-Kerber有一个计划：他想召集一些研究机构和大学的顶尖科学家写出一份支持在复活节后政府继续合法采取强硬政治措施的指导性文件。他通过电子邮件向研究人员发出了呼吁。
+**6.2021年养老金调整拉开序幕，两省已率先行动**
 
-Nur wenige Tage später hatten diese den Auftrag des Ministeriums erfüllt. Sie lieferten Input für ein als geheim eingestuftes Papier des Innenministeriums (BMI), in dem die Gefahr durch das Coronavirus so dramatisch wie möglich dargestellt wurde, und das sich rasch über die Medien verbreitete. In einem „[Worst-Case-Szenario](https://www.welt.de/newsticker/dpa_nt/afxline/topthemen/article206847797/Corona-Szenarien-Innenministerium-fuer-viel-mehr-Tests.html)“ malten sie aus: Unternähme Deutschland nichts, wären am Ende der Pandemie mehr als eine Million Menschen im Land tot.
+中共国养老金分为两种：一种是城镇职工基本养老保险的养老金，另一种是城乡居民基本养老保险的养老金。此次率先发起调整的都是城乡居民养老保险的养老金，而不是前者。
 
-几天后他们就完成了内政部的任务。他们为这份被内政部视为机密的文件提供了相关内容，在文件中他们尽可能地夸大了冠状病毒所构成的危险，同时这消息通过媒体被迅速传播。他们所描述的“[最坏的情况](https://www.welt.de/newsticker/dpa_nt/afxline/topthemen/article206847797/Corona-Szenarien-Innenministerium-fuer-viel-mehr-Tests.html)”是：如果德国不采取措施，那么在大流行结束时德国将有超过100万人丧生。
+目前江苏和山东两个省已经率先宣布养老金上调，具体的上调情况为：江苏省的基础养老金最低标准从163元每月上调至170元每月；山东省的基础养老金最低标准从180元每月上调至190元每月。
 
-WELT AM SONNTAG liegt ein umfangreicher Schriftverkehr vor, der zeigt, was genau sich in diesen kritischen Tagen im März 2020 zwischen der Führungsebene des Ministeriums und den Forschern abspielte. Er zeigt vor allem dies: dass Seehofers Behörde es darauf anlegte, die beauftragten Wissenschaftler für den von ihm angestrebten politischen Zweck einzuspannen – und dass diese dem Aufruf gern folgten.
+评：江苏和山东基础养老金每月分别增长7元和10元人民币，涨幅为4.3% 和5.5%，表面上看高于官方CPI 2.5%，但对于2020年猪肉价格同比上涨49.7%而言这种调整只是杯水车薪，民生堪忧！
 
-WELT AM SONNTAG《世界报周日版》得到了详细的内政部与科学家们的通信，显示在2020年3月的这些关键日子里，该部的管理层与研究人员之间究竟发生了什么。我们首先看到的是：塞霍夫Seehofer所领导的机构利用科学家来达到他所追求的政治目的–而他们也乐于效劳。
+[https://ishare.ifeng.com/c/s/v004XWot4TS1Uh23hDlfh4VyfLgxZsRQ4Zq-MeAaRIFcb9ShwNNAgUFhLh2P3fa2Mn6O7ochh30X9VI4nmW7FLv7Mw\_\_\_?spss=np&aman=1co40fHc67qef8l49bl4b6Wd74Wc6fN418re017305](https://ishare.ifeng.com/c/s/v004XWot4TS1Uh23hDlfh4VyfLgxZsRQ4Zq-MeAaRIFcb9ShwNNAgUFhLh2P3fa2Mn6O7ochh30X9VI4nmW7FLv7Mw___?spss=np&amp;aman=1co40fHc67qef8l49bl4b6Wd74Wc6fN418re017305)
 
-Die gut 200 Seiten an E-Mails belegen somit, dass die Forscher zumindest in diesem Fall längst nicht so unabhängig agierten, wie es Wissenschaftler und Bundesregierung seit Beginn der Pandemie stetig betonen – sondern auf ein von der Politik vorgegebenes, feststehendes Ergebnis hinwirkten.
+**7.阿里巴巴股票被这些机构清仓**
 
-这200多页的电子邮件证明，至少在这件事情上，这些研究人员绝不是像科学家和联邦政府自疫情开始以来不断强调的那样要保持中立—而是在为既定的政治目标出谋划策。
+2月13日，中共知名私募高瓴资本、景林资产公布了它们2020年末的美股持仓情况。高瓴清仓阿里巴巴股票——去年四季度末，高瓴资本清仓阿里巴巴，而在去年三季度末，阿里巴巴还是高瓴资本的第四大重仓股，持股数量为404万股。景林也大幅减仓阿里巴巴，其披露的持仓数据显示，其所持阿里巴巴的股份数量，已从去年三季末的122.3万股，缩减至四季末的38万股。
 
-Der Schriftverkehr stammt aus dem RKI. Eine Gruppe Juristen, vertreten vom Berliner Rechtsanwalt Niko Härting, hat sie in einer monatelangen rechtlichen Auseinandersetzung mit der Behörde erstritten und der Redaktion zur Verfügung gestellt.
+[https://finance.sina.com.cn/wm/2021-02-15/doc-ikftpnny6830945.shtml?cref=cj](https://finance.sina.com.cn/wm/2021-02-15/doc-ikftpnny6830945.shtml?cref=cj)
 
-这些信件来自RKI(德国的CDC)。由柏林律师NikoHärting的代理的一群司法人员为此与当局进行了为期一个月的法律争议，并将其内容提供给《世界报》的编辑部。
+By 【金融组-Tracy】
 
-Die Dokumente sind an vielen Stellen geschwärzt, und doch verraten sie viel darüber, wie das Innenministerium auf die Forscher einwirkte und wie diese daran mitwirkten, die Lage möglichst bedrohlich darzustellen.
+素材搜集: 文罡、Wendy、Tracy
 
-尽管这些文件的许多地方已被涂黑，但它们还是揭示了内政部如何影响研究人员以及如何在他们的协助下使局势尽可能地具有威胁性。
-
-### Es gehe um die „Aufrechterhaltung der inneren Sicherheit“
-
-### **这关乎于****“****维持内部安全****”**
-
-Die Zusammenarbeit begann mit dem Aufruf des Staatssekretärs am 19. März. „Sehr geehrte Professoren“, schrieb Kerber an RKI-Chef Wieler sowie an Forscher des Leibniz-Instituts für Wirtschaftsforschung (abgekürzt RWI, weil es früher mal Rheinisch-Westfälisches Institut für Wirtschaftsforschung hieß), des Instituts der Deutschen Wirtschaft (IW), der Stiftung Wissenschaft und Politik (SWP) und mehrerer Universitäten.
-
-科学家与政府的合作始于国务卿在3月19日的呼吁，Kerber写信给RKI老板Wieler和莱布尼兹经济研究所（RWI）研究人员，科学与政治基金会（SWP）和多所大学：尊敬的教授们，
-
-Das Ministerium wolle mit sofortiger Wirkung eine „Ad-hoc-Forschungsplattform“ zwischen seinem Haus und den Instituten bilden. Man brauche ein Rechenmodell, um „mental und planerisch ‚vor die Lage‘ zu kommen“. Es solle helfen, weitere „Maßnahmen präventiver und repressiver Natur“ planen zu können. Der Staatssekretär zeichnete ein dystopisches Bild: Es gehe um die „Aufrechterhaltung der inneren Sicherheit und Stabilität der öffentlichen Ordnung in Deutschland“.
-
-他说，希望从即日起在该部和各研究所之间组建一个 “特设研究平台”。要想 “在思想上和计划上走在前面”，我们需要一个它应该有助于能够规划进一步的 “预防性和压制性措施”的计算模型。国务秘书描绘提出了一个荒诞的理由：这关乎于 “维护德国国内安全和公共秩序稳定 “。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Bild7-2.jpg)
-Kerber bat um Verschwiegenheit: Was in den kommenden Tagen in diesem kleinen Kreis besprochen werde, solle „außerhalb von operativ tätigen Krisenstabsinstitutionen“ vertraulich gehalten werden. „Ohne Bürokratie. Maximal mutig“, schrieb Kerber – und steigerte die Dramatik seines Tons zum Ende der E-Mail noch einmal: Da man nicht wisse, „ob und wie lange die Netze noch reliabel funktionieren“, sollten die Teilnehmer ihre Telefonnummern und privaten E-Mail-Adressen übermitteln.
-
-柯柏（Kerber）要求保密：“ 危机处理机构”小组成员在未来几天所讨论的内容要对外保密。“不官僚主义。拿出最大的勇气。„ 柯柏在电子邮件末尾再次强调：由于您不知道“网络是否仍将可靠运行多长时间”，参与者应提供电话号码和私人电子邮件。
-
-Er habe gegenüber seinem „Freund Lothar Wieler“ die Situation „mit Apollo 13 verglichen“. „Sehr schwierige Aufgabe, aber mit Happy End durch maximale Kollaboration.“
-
-他和他的朋友Wieler说，他把现状比作电影《阿波罗13号》，“这是一项艰巨的任务，但是要通过最大程度的合作来获得圆满的结局。”
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Bild8-2.jpg)
-Damit setzte er den Sound für das Vorgehen, das der Innenminister von den angeschriebenen Wissenschaftlern offenbar erwartete: eine möglichst bedrohliche Darstellung der Lage. Das Ergebnis lag nur vier Tage später vor: jenes [Geheimpapier](https://www.welt.de/politik/deutschland/article206832547/Vertrauliches-Corona-Papier-Massentests-Isolierung-Mobilfunk-Tracking.html) mit dem Stempel „VS – Nur für den Dienstgebrauch“ über die drohende Aussicht auf bis zu einer Million Toten. Darin stand auch, wie man die „gewünschte Schockwirkung“ in der Gesellschaft erzielen könne, um diesen schlimmsten annehmbaren Fall zu vermeiden.
-
-他以此给行动方式定了基调，内政部长希望被点名的科学家们尽可能地危言耸听描述现状。四天后结果出来了：每份文件都盖有 “VS–仅供官方使用 “的印章，内容是关于高达100万人死亡的威胁前景描述。文章里还提到如何在社会上达到所希望的”冲击效果”，以避免这种可接受的最糟糕的情况。
-
-Man müsse in den Köpfen der Menschen Bilder wie diese entstehen lassen: „Viele Schwerkranke werden von ihren Angehörigen ins Krankenhaus gebracht, aber abgewiesen und sterben qualvoll um Luft ringend zu Hause.“ So hoffe man, bei den Bürgern Verständnis unter anderem für eine „scharfe, aber kurze Ausgangsbeschränkung“ akzeptabel zu machen.
-
-有必要在人们的脑海中建立这样的场景：”虽然很多重病患者被亲属送到医院，但却被拒之门外，结果只能痛苦地因窒息而死在家里。” 这样一来，市民可以更容易接受突如其来的出行限制等措施。
-
-In jenen vier Tagen verfolgten Kerber und andere hochrangige Beamte des Ministeriums die Arbeit der Forscher akribisch und diktierten das Vorgehen: Aus dem Schriftwechsel geht hervor, dass es in kurzen Abständen Telefonkonferenzen zwischen dem BMI und den Forschern gab, während diese an ihrem Modell und den daraus resultierenden Empfehlungen arbeiteten.
-
-在这四天里，Kerber和其他部级高官一丝不苟地跟踪研究人员的工作，并决定行动方案。通信显示，BMI和研究人员在创建模型及由此产生的结论期间他们非常频繁地召集电话会议。
-
-Die E-Mails der Wissenschaftler über den Fortschritt ihrer Arbeit gingen neben dem Staatssekretär auch an mehrere Abteilungs- und Referatsleiter des BMI. Das Ministerium gab sogar per E-Mail an den Verteiler die Gliederung für das Papier vor.
-
-科学家发送的有关其工作进展的电子邮件不仅发送给国务卿，而且还发送给BMI的多个部门和单位负责人。该部甚至通过电子邮件提供了论文的大纲。
-
-### Die Forscher gaben politische Empfehlungen
-
-### **研究人员提出了政策建议**
-
-Die Forscher beschränkten sich nicht nur darauf, Zahlen zu liefern, sondern machten auch konkrete Vorschläge, wie sich etwa „Angst und Folgebereitschaft in der Bevölkerung“ thematisieren ließen, und sie gaben politische Empfehlungen. „Söder liegt intuitiv richtig“, schreibt einer, dessen Name im Dokument geschwärzt ist. „Das sich ausbreitende Ohnmachtsgefühl muss wohl durch den Eindruck eines starken staatlichen Interventionismus in Schach gehalten werden.“
-
-研究者不仅提供数据还就如何解决 “民众的恐惧感和对后果的承受力”等问题提出了具体建议，并提出了政策性建议。”巴伐利亚州内政部长索德的直觉是对的，”一位在文件中名字被涂黑的人写道。”不断蔓延的无助感显然必须要由强有力的国家干预措施来遏制。”
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Bild9-1.jpg)
-Die E-Mails zeigen noch etwas anderes, vielleicht weitaus Gravierenderes: Über die wissenschaftliche Bewertung der Situation waren sich die Wissenschaftler nicht einig. Untereinander diskutierten sie zum Beispiel, welche Zahlen sie für die Berechnung der gewünschten Szenarien zugrunde legen sollten. Darüber tauschten sich etwa am Sonntag nach dem Aufruf des Staatssekretärs der zuständige Wissenschaftler des Robert-Koch-Instituts und jener des RWI aus. Es ging um die Frage: Welche Annahme solle man darüber treffen, wie viel Prozent der Infizierten in Deutschland am Virus sterben?
-
-这些电子邮件还显示了另一件事，也许要严重得多：科学家们对现状的科学评估并未达成一致。例如，他们之间讨论了应该用哪些数据来作为计算所需方案的基础。比如周日，在国务卿的电话之后，罗伯特-科赫研究所的科学家和RWI研究所的科学家进行了交流。他们讨论的问题是：应该如何假设德国死于病毒的感染者的比例？
-
-Dieser Wert war nicht leicht zu beziffern, es gab wenig Erfahrung mit dem Virus. Das RKI hatte gerade erst selbst ein Modell veröffentlicht. Demnach würden voraussichtlich 0,56 Prozent der Infizierten in Deutschland am Virus sterben. Das RWI nun plädierte aber dafür, mit einer Todesrate von 1,2 Prozent zu arbeiten. Dessen zuständiger Forscher schrieb, man solle im Papier „vom Ziel her“ argumentieren, nämlich „hohen Handlungsdruck aufzuzeigen“, und vom Vorsichtsprinzip „lieber schlimmer als zu gut“. Staatssekretär Kerber las bei all dem mit.
-
-这个数值不容易量化，科学家对这新的冠装病毒没有什么经验。RKI刚刚公布了自己的模型：德国有0.56%的感染者可能会死于该病毒。然而，RKI研究所却坚持死亡率为1.2%。其负责的研究者写道，人们在论文中应该 “从目的”得出结论，即 “要表现出采取行动的必要性”，从审慎的原则出发 “（把病毒的预期描写的）宁可更糟也不能太好”。国务卿克尔伯也读了所有邮件。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Bild10-1.jpg)
-Auffällig ist, dass im schließlich erstellten Papier des Ministeriums beide Zahlen auftauchen. Dort heißt es: „Das RKI geht in einem sehr moderaten Szenario derzeit von einer Letalität von 0,56 Prozent aus. In der weiteren Modellierung wird mit einer Fallsterblichkeit von 1,2 Prozent gearbeitet.“ Das heißt: Das BMI entschied sich explizit dagegen, nur mit dem zurückhaltenden Wert des RKI zu rechnen – obwohl Wielers Behörde doch jene ist, die in Deutschland genau dafür zuständig ist: die Zahlen zu liefern, auf deren Basis die Regierung bei der Planung ihrer Maßnahmen argumentiert.
-
-值得注意的是，这两个数字都出现在该部最终编制的文件中。它说：”RKI目前假设在温和的情况下，致死率为0.56%。进一步的建模则采用1.2%的病例死亡率”。换句话说，BMI明确反对只使用RKI的保守数据–尽管Wieler的机构正是德国负责这项工作的机构：向政府提供规划措施时使用的论证数据。
-
-BMI-Staatssekretär Kerber erklärt das Zustandekommen des Papiers im Nachhinein gegenüber WELT AM SONNTAG so: „Wir brauchten keine allumfassende theoretische Abhandlung. Wir hatten konkrete Probleme vor Augen und standen vor der Aufgabe, ein Worst-Case-Szenario zu verhindern.“ Das RKI kommentiert seine Mitwirkung nicht – weil es sich um ein „internes Diskussionspapier“ gehandelt habe. Und das Forschungsinstitut RWI schreibt, es habe keine politische Vorgabe für die Forschungsergebnisse gegeben.
-
-BMI国务秘书Kerber事后对WELT AM SONNTAG《世界报周日版》关于论文的汇总作了如下解释：”我们不需要一篇包罗万象的理论论文。我们看到具体问题，我们面临的任务是防止最坏的情况发生。” RKI对其进行的参与不予评论—-因为这是一份 “内部讨论文件”。而RWI研究院写道，研究结论没有受到政治要求的左右。
-
-Aus Sicht des Innenministeriums jedenfalls ging das Projekt erfolgreich ins Ziel. Staatssekretär Kerber formulierte am 23. März an die Runde: „Unser Papier kam … sehr gut an und wird ob seiner hohen Qualität und Umsicht nun den Weg ins Krisenkabinett der Bundesregierung finden.“
-
-从内政部的角度来看，无论如何这个项目成功地达到了目的。国务秘书克尔伯于3月23日向论文的参与者说：”我们的论文很受欢迎，鉴于其高质量和审慎性，现在它将进入联邦政府的危机内阁”。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Bild11.jpg)
-
+校对: 小蚂蚁在行动
 
 0
