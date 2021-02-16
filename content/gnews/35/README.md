@@ -1,38 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 约翰逊：世界需要大流行病条约以确保透明度
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/909736/)
+## 【热点播报】FDA将允许Moderna增加单支疫苗剂量
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/909745/)
 
-- 编辑：Victor Torres
-- 素材：神奇四侠
-- 发稿：Ranting
+作者：纽约香草山福音部 Daxia
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年2月15日电/西喜社——**据路透社2月15日报道，英国首相鲍里斯-约翰逊周一表示，世界大国应该在起源于中国的中共病毒爆发后，达成一项关于流行病的全球条约，以确保适当的透明度。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-约翰逊说，在英国和美国对世界卫生组织(WHO)派往中国的代表团的访问权表示担忧的情况下，他将热衷于达成一项关于流行病的全球条约，各国同意共享数据。
 
-当路透社问及他希望采取什么行动来提高透明度时，约翰逊说。”我认为世界需要看到的是，我们如何追踪人畜共患大流行病的数据达成普遍共识……我们希望在透明度方面达成共同协议。”
 
-“我认为在过去几个月里，我们看到的一个有吸引力的想法是建议制定一项关于流行病的全球条约，这样签署国就可以确保他们贡献出他们所拥有的所有数据，我们就可以了解发生了什么，并阻止它再次发生，”他在新闻发布会上说。
+《[纽约时报](https://nypost.com/2021/02/12/fda-grants-moderna-permission-to-increase-doses-in-each-vial-from-10-to-14-report/?utm_campaign=iphone_nyp&amp;utm_source=pasteboard_app)》报道，Moderna与美国食品和药物管理局（FDA）正在讨论，有关增加单支疫苗剂量的可能性，希望将COVID-19疫苗的剂量从每瓶10增加到14。
 
-“这才是明智之举。”
+![]()![](https://gnews.org/wp-content/uploads/2021/02/105.jpg)图源网络
 
-作为英国担任七国集团(G7)主席国的一部分，约翰逊希望领导全球应对流行病的工作，包括预警系统。但在G7领导人周五召开电话会议之前的周末声明中，没有详细说明任何关于透明度的条约。
+Moderna生产能力的最大限制之一是疫苗的灌装数量。为了最大化资源以及最大化接种机会，更快地将更多的疫苗投放到每个市场，Moderna希望能提升单支疫苗剂量。
 
-2019年底在中国首次发现的中共病毒疫情已造成240万人死亡，使全球经济陷入自大萧条以来最严重的和平时期的低迷，并颠覆了数十亿人的正常生活。
+Moderna目前提供了美国大约一半的疫苗供应。增加单支剂量方法简单，每瓶增加的剂量并不需要使用的额外的瓶子。生产上的调整仅需要两到三个月的时间来实现。
 
-英国外交部长多米尼克-拉布周日表示，他与美国一样，对世界卫生组织中共病毒实况调查团对中国的访问程度表示担忧，而约翰逊则表示，他支持美国总统拜登需要更多的调查数据。
+乔·拜登（Joe Biden）周四表示，美国将在7月底之前由Moderna和Pfizer提供6亿多支COVID-19疫苗，足以让几乎每个美国人完全接种。
 
-当路透社问及他认为谁应对中共病毒疫情起源缺乏透明度负责时，约翰逊说。”我认为相当明显的是，大部分的证据似乎都指向了该疾病的起源地武汉。”
+“我们又与Moderna和Pfizer签署了各1亿支疫苗的最终合同。”拜登当天也在美国国立卫生研究院说，“我们还能够将另外2亿支疫苗的交付日期提前到7月底，比我们预期的要快。”
 
-“因此，我认为我们都需要尽可能多地看到这可能是如何发生的，人们提出的人畜共患问题。我认为我们需要尽可能多的数据。”他说。
+FDA目前正在考虑第三家制药公司强生（Johnson & Johnson）的COVID-19疫苗紧急使用授权申请。
 
-**新闻来源：[路透社](https://www.reuters.com/article/us-health-coronavirus-britain-johnson-ch-idUSKBN2AF1OP?taid=602ac00ba77dbd00013d23ec&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)**
+Moderna已签订的合同中，会向美国供应3亿支疫苗，并向世界其他各国总计供应3.415亿支疫苗。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+根据CDC的数据，到目前为止，在美国已经分发了69,014,725支疫苗，其中48,410,558支疫苗已被注射。
+
+当前，COVID-19变种病毒继续在全世界迅速蔓延。如果世界都无法避免注射这些所谓的“疫苗”，那么人类又将会得到怎样的一种结果。强烈呼吁世界上有良知的医学界科学家们站出来，勇敢说“不！”拯救人类！就象天使闫丽梦博士说的，“留给人类的时间真的不多了。”
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
 
 0
