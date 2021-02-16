@@ -1,25 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普的国会演讲 &#8220;不符合 &#8220;刑事煽动标准
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/910520/)
+## 【热点播报】蓬佩奥、奥布莱恩、博明等强硬“反共”派将齐聚尼克松基金会圆桌论坛
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/910532/)
 
-素材: Jenny, 翻译: Jony(8 Mile), 视频: Runaway/光耀华夏
-Fox News
-原标题：特利 (Turley) 谈弹劾：川普的国会演讲 “不符合 “刑事煽动标准
+作者：纽约香草山  人间世 校对/发稿：飞虹
 
-周日在福克斯新闻频道的 “美国新闻总部 “上，乔治-华盛顿大学法学院教授乔纳森-特利 (Professor Jonathan Turley) 就前总统唐纳德-川普能否因1月份在美国国会大厦“煽动骚乱”而受到刑事指控的问题发表讲话。参议院周六投票决定川普“煽动暴乱”罪名不成立。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
-特利承认，川普作为前总统，不能免于被指控犯罪。但他认为，川普在国会大厦发生骚乱前的演讲”不符合煽动的标准”。
 
-“好吧，他可以被起诉，这些言论是在驳斥众议院议长的观点，即总统可以不知何故而逍遥法外。总统也不能逃脱任何犯罪行为。”特利在谈到指控一位前总统犯罪的合法性时说。”他可以被指控，但你必须 (合法) 指控他。所以很多人说这是一个公开的犯罪煽动案——好吧，(以为这样就可以) 指控他。我必须告诉你——我非常怀疑，如果不是在审判中，而是在上诉中，这是否能持续下去。在我看来，如果你只看演讲的话，这不符合勃兰登堡案的标准。”
 
-（本文纯属原文翻译，无个人观点添加）
+前美国国务卿蓬佩奥2月15日透露，他将与前国家安全顾问奥布莱恩共同主持尼克松基金会每月一次的外交政策圆桌论坛。前副国家安全顾问博明也将参与讨论。
 
-信息来源: https://www.breitbart.com/clips/2021/02/14/fncs-turley-on-impeachment-trumps-capitol-speech-does-not-meet-standards-of-criminal-incitement/
+![]()![](https://gnews.org/wp-content/uploads/2021/02/图片4-20.png)图片转自美国之音
 
-审核: Runaway
-![This image has an empty alt attribute; its file name is 1-澳喜Logo.jpeg]()![This image has an empty alt attribute; its file name is 1-澳喜Logo.jpeg](https://gnews.org/wp-content/uploads/2021/02/1-%E6%BE%B3%E5%96%9CLogo.jpeg)
+美国之音2月16日报道，这个名为“尼克松保守现实主义和国家安全圆桌论坛”的集会将“重新审视和推进尼克松总统50年前推进的保守派现实主义国际政策的愿景”。美中关系、全球科技创新以及推动中东长久和平将是论坛的重点议题。预计第一场讨论会将于3月2日举行。
 
+![]()![](https://gnews.org/wp-content/uploads/2021/02/图片5-21.png)
+
+据美国之音报道，参与这个圆桌论坛的成员还包括前副国家安全顾问博明、前国务院发言人奥特加斯、共和党籍联邦众议员加拉格尔(Mike Gallagher, R-WI)等人。
+
+蓬佩奥现为保守派智库哈德逊研究所的杰出会士(distinguished fellow)，极有可能参加2024年美国总统大选。他政治观念保守，在职期间主张把中共与中国人民区别对待，离任前认定中共在新疆犯下种族灭绝和反人类罪，可谓国际政治舞台上对中共邪恶本质认知最深、反共立场最坚决的代表人物之一。
+
+1月20日，就在拜登宣誓就任总统的同时，中共以“在涉华问题上严重侵犯中国主权”为由，宣布对蓬佩奥、奥布莱恩、博明等28位特朗普政府卸任官员进行制裁。如今三位美国前政府的“反共派”代表人物再聚首，以每月一次的高频率对外发声，对于继续推进川普政府时期的国家安全议题，尤其是以强硬立场反击中共，意义重大，非常值得期待。
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
