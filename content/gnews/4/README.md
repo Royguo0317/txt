@@ -1,41 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美国共和党众议员提出决议案，敦促美国抵制北京冬奥
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/910573/)
+## 中共利用“一带一路”扩张全球的计划在澳大利亚面临破产
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/910660/)
 
-作者：纽约香草山  人间世 校对/发稿：飞虹
+撰稿：Shirley
+![]()![](https://gnews.org/wp-content/uploads/2021/02/屏幕截图-2021-02-16-214206-2.png)图片来源：Johannes leak
+澳大利亚维多利亚州州长安德鲁斯（Daniel Andrews）与中国政府达成的，有争议的“一带一路”协议，预计将在几周内被总理莫里森（Scott Morrison）强行终止。
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
+维州工党的安德鲁斯政府在2018年宣布签署了一份谅解备忘录，参与中共的1.5万亿美元的“一带一路”基础设施计划，这被广泛视为中共的全球权力扩张手段和对澳大利亚国家安全的威胁，该协议令堪培拉大跌眼镜。
 
+澳大利亚联邦政府在2020年出台了新的法律，如果联邦政府认为任何州或地方政府与外国势力的交易不符合“联邦外交政策”，就有权终止该交易。
 
+澳大利亚公共事务研究所（Institute of Public Affairs）智囊团进行的民调发现，大多数维多利亚州人希望州政府退出这项有争议的计划，甚至连工党选民也强烈反对。
 
-美国共和党众议员沃茨（Michael Waltz）2月15日推出决议案，敦促美国政府和180个人权组织站在一起，共同抵制2022年北京冬季奥运会。
+安德鲁斯坚持认为，“一带一路”协议关系到维多利亚州的就业和农产品出口等问题，拒绝承认“一带一路”协议是国家安全的威胁。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/图片6-19.png)国会众议员迈克尔·沃茨（Michael Waltz） 图片来源：李辰／大纪元
+安德鲁斯的个人立场让他与联邦工党的同行们产生了分歧，后者曾对维多利亚州加入“一带一路”的决定表示担忧。澳大利亚联邦反对党，工党领袖阿尔巴内塞（Anthony Albanese）去年表示，他 “非常支持 “对外关系法，而联邦工党由于中共近年来越来越多的 “干预主义 “行为，已经转而反对签署该计划。
 
-据美国之音报道，决议案首先敦促美国奥委会向国际奥委会提议将2022年冬奥会转移到中（共）国以外的地点，如不成功，则“美国奥委会和其他国家的奥委会应该退出2022奥运会比赛”。
+去年8月，阿尔巴内塞先生就发誓，联邦工党永远不会寻求“一带一路”倡议下的贸易协议。阿尔巴内塞先生告诉澳洲广播公司的节目Insiders说，”不符合澳洲国家利益或我们外交政策的协议，就不应该存在”。
 
-决议案指出，“……在中（共）国，有组织的暴行仍继续在新疆进行；香港公民的自由仍持续被践踏；人们参与宗教敬拜的基本权利仍受到残酷迫害；新冠病毒疫情仍在全球肆虐，在中（共）国举办2022冬奥会将是不道德、没有伦理且错误的”。
+目前看来，中共希望通过“一带一路”的扩张控制澳大利亚的计划，面临澳洲在野两大党的一致反对。这也就是郭先生说的，“联合灭共”的情形吧！
 
-沃茨在一篇为媒体撰写的文章中说，“奖励独裁者的恶劣行为只会让他们更加胆大妄为，没有比这更糟糕的时机来奖赏习近平完全鲁莽粗暴和不人道的行为”，“这就仿佛是在说中（共）国因种族和宗教而监禁数百万公民，或让全世界爆发大流行病的做法是正常的行为”。
+随着澳大利亚对中共集权扩张的反抗，相信会有越来越多的国家向中共说“不”。中共的“一带一路”必将是为自己奔赴“黄泉路”上准备的“上吊带”。
 
-作为众议院军事委员会成员的沃茨还提到，独裁国家都试图利用举办奥运会来将他们的行为合法化，纳粹德国、苏联、俄罗斯都曾经这么做过。
+[https://www.news.com.au/finance/economy/world-economy/scott-morrison-expected-to-tear-up-victorias-belt-and-road-deal-with-china-within-weeks/news-story/580f1d9baed69f064945bd38532becc3](https://www.news.com.au/finance/economy/world-economy/scott-morrison-expected-to-tear-up-victorias-belt-and-road-deal-with-china-within-weeks/news-story/580f1d9baed69f064945bd38532becc3)
 
-美国之音指出，共和党联邦参议员斯科特（Sen. Rick Scott, R-FL）本月早些时候也曾推出决议案，呼吁国际奥委会将2022冬奥会转移出中（中）国，“除非北京立即解决其严重且大量的人权侵犯问题”。这项决议案目前获得6位共和党参议员的联署支持。
+[https://www.abc.net.au/news/2020-12-08/what-are-the-governments-new-foreign-relations-laws-about/12947590](https://www.abc.net.au/news/2020-12-08/what-are-the-governments-new-foreign-relations-laws-about/12947590)
 
-来自全球180多个人权团体组成的国际联盟2月3日曾发表公开信，呼吁各国领导人关注中（共）国的人权纪录，抵制2022北京冬奥。中共喉舌《环球时报》2月8日曾扬言中共将以“严厉的制裁措施”回应抵制北京冬奥会的国家。
+[https://www.abc.net.au/insiders/anthony-albanese-joins-insiders/11992212](https://www.abc.net.au/insiders/anthony-albanese-joins-insiders/11992212)
 
-假如美国能带头抵制北京冬奥会，对在全世界肆意妄为的中共党魁习近平将是继被认定犯下反人类罪之后又一重大打击，对于唤醒全世界各个领域中的人们共同关注中共政权的邪恶性具有无法形容的重要意义。
+（本文仅代表个人观点）
 
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
+审核: Runaway  编辑：MG1
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-澳喜Logo.jpeg)
 0
