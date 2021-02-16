@@ -1,32 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 浅谈无我和爆料革命与战友的关系
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/910887/)
+## 中国的私人企业家们，你们动动脑子吧，醒醒吧！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/910348/)
 
-*作者：只有野草长的快 | 校对：宁缺 | 审核：海阔天空 | Page: Daoiii*
+新闻简述：在2021年2月15日的第一次Getter视频中，郭先生爆光中共白手套马云和中共打手傅政华的下场，并奉劝中国的私人企业家们：“你们动动脑子吧，醒醒来吧！”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yRiuPrdSpQHe4/images/bfc0450b-5d59-4fa3-8fd4-24b302ad7cc1.jpg?asset_id=b6a5471f-f8e7-49a6-ab9b-7fdc29e843fc&amp;img_etag=%22d839791aadfe0da12350c925bf9380c9%22&amp;size=2560)](https://spark.adobe.com/page/yRiuPrdSpQHe4/images/bfc0450b-5d59-4fa3-8fd4-24b302ad7cc1.jpg?asset_id=b6a5471f-f8e7-49a6-ab9b-7fdc29e843fc&amp;img_etag=%22d839791aadfe0da12350c925bf9380c9%22&amp;size=1024)
+**中国的私人企业家们，你们动动脑子吧，醒醒吧！**
 
-什么是“无我”这个话题很大很大，以我浅见，“无我”是终极境界，达到无我，可以说人世间所有的问题和课程也就都结束了；无我是真理，到达无我，也就是说了悟了真理。人世间所有的痛苦和烦恼都是因为不知道真理真相，以为有“我”，所以才有贪嗔痴，才有一切的争斗。简短说，有我就是私，无我就是无私。自私在我们人类思维里几乎是天经地义之事，是无可厚非的，是本能，所以也不会去真的批判。这点我也不否认，这个生命首先就应该爱护自己，为自己的利益努力，这是对的。可为什么我们的努力换来的却是无尽的烦恼和痛苦呢？那是因为我们不了解真相，我们不了解“无我”的真相，所以才逆天而行，得来的结果自然是相反的！自私和无私，根本是两种思维方式。老子说：以其无私所以才成其私，也就是真正能成就自己的方式是无私，只有为集体，为他人，为大众，你才能获得真正的成就和成就后的价值感。无私做事会自然而然地达到真正的成就，若是为了达到成功而做作无私，那是绝对不可能达到无私的，无私必然无我，无我必然无私，无私无我必然真。
+**Chinese Private Entrepreneurs, Use Your Brains, Wake up!**
 
-为什么说“无我”是真理呢，无我不是概念，是实实在在的事实。首先我们来思考一个问题，就是“我”和“我的”这个概念。我的，是我吗？我的朋友、我的衣服、我的名誉、我的概念、我的认知等等，这都是我吗？认真的思考，会发现我的一切都不是我，我的手，我的眼睛，是我吗？把它们拿掉就不是我了吗？我的心脏，我的细胞等等哪个是我呢？如果你真的思考会发现根本没有我。而所有一切包括宇宙都是我的，佛家说一切即我，我即一切。这句话的真正含义就是破除小我的概念，来到一体世界，一切是我，我是一切，无我，不是概念，是实际情况。
+昨天晚上醒来其中一次，原来代表马云的香港某律师给我打电话，吓我一大跳。一打电话说：“郭先生啊，不要再提马云了，Jack了。”我说，啥意思啊？我说这大过年的，啥意思啊？他说就是因为你们爆料革命老说马云，结果中纪委还有国家安全委员会，让马云坐出来，背后拿枪顶着坐在椅背上，在双规的地点面对摄像机，所谓的出来露了露面。他说不要再搞了，不要再提了。我说我没心情提 Jack 马，我说头两天有一个马云的前女友，因为给他生了个孩子，我原来说过，帮助他照顾的就是我一个哥们，找不着人了，说家里的钱房租都没人付，找我来了。我给你给我说啥？马云的事，我怎么会知道啊？
 
-这里还要谈“空”这个概念，因为所谓一体的意思就是你我他整个世界都是相连的。如同我的手，我的心脏，我的细胞，是身体相连的一样，“空”把我们，把所有一切都连结在了一起。空不同于空气和能量，空是很难理解的一个存在。道家说空中生妙有，空也是一切的源头。我们来自于空，最终也会回到空，空不是没有，空里有所有一切知识，有一切答案。而阻碍我们了解“空”的，就是“我”。佛家讲心与空相应，法身才遍一切处，也就是无处不在的意思。所谓道，所谓大爱，所谓上帝，都是用不同的词语，角度来描述空，入空一定无我。这个话题先到此为止，因为真正了悟真理，到达无我之境，是需要修行才能证实的。头脑里的了解和中毒是一样的，是障碍人入道、悟空的毒药！
+Last night I was woken up by a phone call from a Hong Kong lawyer who previously represented Jack Ma, which scared me. He said in the call, “Mr. Guo, don’t mention Jack Ma again.” “What do you mean?” I said, “What do you mean by calling me during the Chinese New Year?” He said that it was because our Whistleblower Movement always broke the news about Jack Ma. As a result, the Central Commission for Discipline Inspection and the National Security Committee forced Jack Ma to sit on a chair facing a camera with a gun behind his back in a “double designation” (also known as “Shuanggui”) location. It’s called a public appearance. He said, “Don’t mention him anymore.” I said that I was not in the mood for mentioning Jack Ma. I said, a couple days ago, a buddy of mine who was taking care of a Jack Ma’s ex-girlfriend who had a child with Jack contacted me, for there was no one paying her rent anymore. I said, “Why do you tell me? How am I supposed to know anything about Jack Ma?”
 
-我们再来聊聊文贵先生发起的爆料革命和无我的重要性。首先这个世界上最大的“我”就是共产党，所以他也成为了有史以来最大的邪恶。我即是假，无我即是真，假最怕真。唯真不破，文贵先生真人真语，真诚面对世间和他自己，凭借着真，也看破了这世间大多的假丑恶。文贵先生所奉行的真、无我，就是击垮中共的终极力量。郭先生真诚地无我地面对中共，也同样面对着所有战友，所以当有战友触及到利益，有了私心，很容易转成对立面。
+所以你说共产党让马云出来，让马云的钱连一个房租都付不上，给小女情人的。这抢钱，共产党是天下第一啊。抢了14亿中国人的钱，抢了14亿中国人的未来，就马云这号人连房租现在都不给人家留。所以中国的私人企业家们，你们动动脑子吧，醒醒来吧。
 
-文贵先生从开始爆料到现在从未变过，变来变去的都是战友。文贵先生并不是一个圣人，但他却能克己复礼的行圣人之道。这一场爆料革命不止是和邪魔的一场战斗，也可看作是文贵先生的一场修行，是他营造的道场，我们所有战友也同样会在这道场里认识自己提高自己。这世间比原子弹力量还大的是念力，文贵先生就是用巨大的念力和意志力在无畏地和人类有史以来最大的邪魔在斗争，这太不可思议了！这场爆料革命注定我们会赢。
+So you tell me. The Communist Party asked Jack Ma to make a public appearance and left him not enough money to pay the rent for his little lover. The CCP is the number one in the world in robbing people’s money! It robbed money from the 1.4 billion Chinese people and also the future of the 1.4 billion people, and didn’t even leave money to someone like Jack Ma to pay the rent. So Chinese private entrepreneurs, use your brains, wake up!
 
-也许是人类到了要提升和转变的时候了，所以才出现了文贵先生，能遇到文贵先生是我们的幸运。文贵先生一生的经历和高瞻远瞩的智慧、利他之心，为中华民族的心，是连接我们所有战友的理由。我们也必然会在这个过程中提升自己，理解利他和无我，只有真正地理解了“无我”才能是更近的战友。无我不是口号，是我们唯一要用生命了悟的真相真理，水平有限，随心而发，希望有缘的战友一起讨论！祝福所有战友，我们一定会赢！
+然后更重要的事情，我昨天无意中说了傅政华全家被抓的事。昨天中间两个电话给我打过来：“你看，你说傅政华干嘛？原来有默契的嘛，傅政华不说你，你不说傅政华，傅政华永远不再对你有任何敌意，大家已经坚守了两年了，你干嘛这样啊？”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yRiuPrdSpQHe4/images/71d3159b-b07a-4218-8c8f-edf3b15f9839.png?asset_id=a665fad1-2ce9-45d0-adf4-c07c8fcf833c&amp;img_etag=%2239a53dc7c557f6d52888c50bef864357%22&amp;size=2560)](https://spark.adobe.com/page/yRiuPrdSpQHe4/images/71d3159b-b07a-4218-8c8f-edf3b15f9839.png?asset_id=a665fad1-2ce9-45d0-adf4-c07c8fcf833c&amp;img_etag=%2239a53dc7c557f6d52888c50bef864357%22&amp;size=1024)
+Then more importantly, I accidentally disclosed yesterday about the arrest of Fu Zhenghua’s whole family. I received two calls yesterday in the middle [of the broadcast], “Look, why did you talk about Fu Zhenghua? There was an agreement that Fu Zhenghua won’t talk about you, and you won’t talk about Fu Zhenghua, and Fu Zhenghua will never have any hostility to you again. Both of you were holding on to that agreement for two years. Why did you do this to him?”
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+他说昨天傅政华，这个政法委领导、中纪委领导，听说抓傅政华全都是军队抓的，说要求傅政华出来逛一逛，得露露面，为什么？要保持中央绝对权威，啥叫绝对权威啊？傅政华当年把他抓很多人、杀很多人、冤枉很多人，就这个人不能抓，抓了以后就是没人给你共产党干黑活了，所以说咬人的狗还是当人面得给点狗骨头，那怎么当着人面杀这个狗哪？疯狗哪？咬人的狗哪？不行。说傅政华出来转一转。能不能文贵不再说傅政华的事了？
 
+He said that yesterday the leaders of the Political and Legal Affairs Commission and the Central Discipline Inspection Commission (I heard that all the arrests of Fu Zhenghua [and his family] were done by the military) asked Fu Zhenghua to go out and show his face a little bit. Why? To maintain the absolute authority of the central government. What is absolute authority? Fu Zhenghua arrested a lot of people, killed a lot of people, and wronged a lot of people back then. So this person could not be arrested because if you arrest him, no one would do dirty work for you, the CCP. Therefore, a dog that bites people should be given bones in front others. How can you kill this dog in front of people? So, don’t kill a mad dog who bites people for you. So, Fu Zhenghua came out just for a walk. “So, Miles, can you stop talking about Fu Zhenghua?”
 
-编辑：【英国伦敦喜庄园编辑部】
-[!\[\]()!\[\](https://spark.adobe.com/page/yRiuPrdSpQHe4/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/yRiuPrdSpQHe4/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-0
+兄弟姐妹们，咱这爆料革命啊，愣把海航王健给说死了，愣把海航的说破产了，愣把孙立军给说进去了，吴征现在也完球蛋了，杨澜估计钥匙也找不着了，现在目前能活口的只有一个王岐山了，所以这个爆料革命。
+
+So, brothers and sisters-in-arms, our Whistleblower Movement has “talked” HNA’s Wang Jian to death, “talked” HNA to bankruptcy, and “talked” Sun Lijun to jail. Bruno Wu is also almost done. I guess that Yang Lan can’t play “find the key” game anymore. Now, there is only one who is still alive – Wang Qishan. So this Whistleblower [is really something].
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+
+视频来源：[https://gtv.org/getter/602aa081226e7759074440d6](https://gtv.org/getter/602aa081226e7759074440d6)
+
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/909619/](https://gnews.org/zh-hans/909619/)
+
+翻译：【Isaiah4031】校对：【BruhM】字幕：【奔腾的长江】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+
++1

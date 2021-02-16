@@ -1,47 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中国的私人企业家们，你们动动脑子吧，醒醒吧！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/910348/)
+## 西方对缅甸政变的绥靖态度给了中共武统台湾的勇气
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/910916/)
 
-新闻简述：在2021年2月15日的第一次Getter视频中，郭先生爆光中共白手套马云和中共打手傅政华的下场，并奉劝中国的私人企业家们：“你们动动脑子吧，醒醒来吧！”
+*作者：宁缺 仙女儿-文善| 审核：海阔天空 |Page：小雨*
 
-**中国的私人企业家们，你们动动脑子吧，醒醒吧！**
+[!\[\]()!\[\](https://spark.adobe.com/page/bTjN7jHTtZWGs/images/65b17291-4489-4290-a9bc-0f2e11f06901.jpg?asset_id=52096c2e-a72b-404c-bd8d-6cc300c7c90a&amp;img_etag=%22d354780dc2293db245a792c007f86b1d%22&amp;size=2560)](https://spark.adobe.com/page/bTjN7jHTtZWGs/images/65b17291-4489-4290-a9bc-0f2e11f06901.jpg?asset_id=52096c2e-a72b-404c-bd8d-6cc300c7c90a&amp;img_etag=%22d354780dc2293db245a792c007f86b1d%22&amp;size=1024)
 
-**Chinese Private Entrepreneurs, Use Your Brains, Wake up!**
+2月1日，军方以昂山素季领导的全国民主联盟(民盟)在去年11月选举中以欺骗手段获得胜利为由发动了军事政变。两名民盟议员说，在2月2日晚些时候，警方突袭了民盟的仰光总部，而后以非法使用进口对讲机为由监禁昂山素季。军方在选举结果出炉四个月后才发动政变，显然醉翁之意不在酒。缅甸军事政变的本质是军方身后的中共势力和昂山素季身后美国力量的代理交锋，棋子交手背后是中共对美国新任政府的有意试探。
 
-昨天晚上醒来其中一次，原来代表马云的香港某律师给我打电话，吓我一大跳。一打电话说：“郭先生啊，不要再提马云了，Jack了。”我说，啥意思啊？我说这大过年的，啥意思啊？他说就是因为你们爆料革命老说马云，结果中纪委还有国家安全委员会，让马云坐出来，背后拿枪顶着坐在椅背上，在双规的地点面对摄像机，所谓的出来露了露面。他说不要再搞了，不要再提了。我说我没心情提 Jack 马，我说头两天有一个马云的前女友，因为给他生了个孩子，我原来说过，帮助他照顾的就是我一个哥们，找不着人了，说家里的钱房租都没人付，找我来了。我给你给我说啥？马云的事，我怎么会知道啊？
+从北京角度来说，按常理，川普总统下台换上拜登后，在过去四年被美国打压的中共政权似乎可以松一口气了。可事实并非如此，在此次美国大选过程中，中共几大派系已经公开决裂。一反过去对外定于一尊、保持一致的姿态，各大派系各自压注自己的候选人，并为此都使出浑身解数、刀刀见血。拜登上台仅仅是帮助习暂时稳住了国际外交形势，国内政治经济不仅没有缓和，反而愈演愈烈，因为政治斗争一旦摆上了公众的台面就再无回旋的余地。
 
-Last night I was woken up by a phone call from a Hong Kong lawyer who previously represented Jack Ma, which scared me. He said in the call, “Mr. Guo, don’t mention Jack Ma again.” “What do you mean?” I said, “What do you mean by calling me during the Chinese New Year?” He said that it was because our Whistleblower Movement always broke the news about Jack Ma. As a result, the Central Commission for Discipline Inspection and the National Security Committee forced Jack Ma to sit on a chair facing a camera with a gun behind his back in a “double designation” (also known as “Shuanggui”) location. It’s called a public appearance. He said, “Don’t mention him anymore.” I said that I was not in the mood for mentioning Jack Ma. I said, a couple days ago, a buddy of mine who was taking care of a Jack Ma’s ex-girlfriend who had a child with Jack contacted me, for there was no one paying her rent anymore. I said, “Why do you tell me? How am I supposed to know anything about Jack Ma?”
+本次美国大选结果尘埃落定，习大帝的对手面对中美领导人接下来几年联手的恐怖局面，已经失去耐心，惶惶不可终日。他们担心中美大概率修复关系的情况下，习的时运越走越好，地位越来越稳，会回过头来慢慢清算过去的所有敌人。因此，所有针对习的行动越快越好，随时会引发孤注一掷，政变火拼的结果。习作为中共台面上的领导人，一方面要面对经济崩溃，百姓民怨沸腾，另一方面又要面对此起彼伏的政变威胁。面前仅剩下武力统一台湾一条路可以走。
 
-所以你说共产党让马云出来，让马云的钱连一个房租都付不上，给小女情人的。这抢钱，共产党是天下第一啊。抢了14亿中国人的钱，抢了14亿中国人的未来，就马云这号人连房租现在都不给人家留。所以中国的私人企业家们，你们动动脑子吧，醒醒来吧。
+武统台湾，一是可以煽动底层民众民粹主义的思潮，充分转移国内视线，把民众的不满和愤怒引向阻碍中国统一的美国政府。二是利用军队震慑反对势力，找合适的借口把对手，同时把政变势力掌握的军队力量投入战场，借美国之手消灭对手肉身。三是一旦美国没有勇气介入台湾海战，中共成功收复台湾，中共和习执政的合法性则稳如泰山，再无倒台的可能。
 
-So you tell me. The Communist Party asked Jack Ma to make a public appearance and left him not enough money to pay the rent for his little lover. The CCP is the number one in the world in robbing people’s money! It robbed money from the 1.4 billion Chinese people and also the future of the 1.4 billion people, and didn’t even leave money to someone like Jack Ma to pay the rent. So Chinese private entrepreneurs, use your brains, wake up!
+中共虽说与美国新上台的拜登政府有旧谊存在，但毕竟是收复台湾如此之大的军事行动，就算贸然下赌注也需要提高赢面的概率，提升生存机会。缅甸与台湾同属东南亚地缘政治板块范围，国土面积是台湾的18倍。昂山素季也和蔡英文类似，都是美国一手扶植对抗中共的代理人，拿缅甸抢先下手试试武统台湾的水温是最好不过的选择。
 
-然后更重要的事情，我昨天无意中说了傅政华全家被抓的事。昨天中间两个电话给我打过来：“你看，你说傅政华干嘛？原来有默契的嘛，傅政华不说你，你不说傅政华，傅政华永远不再对你有任何敌意，大家已经坚守了两年了，你干嘛这样啊？”
+很遗憾，我们没有看到美国总统拜登、国务院和国防部对中共指使的军队政变有明确强硬的表态。目前，包括美国总统拜登、英国首相约翰逊、欧盟委员会主席都仅仅是口头表达了关注，且基调也基本一致，即谴责缅甸政变，呼吁释放被扣押的昂山素季等人，言语中丝毫没有叱令缅甸军方恢复正常秩序的最后通牒，甚至没有提及缅甸军方政变的幕后主使中共，如此这般，在南海巡弋的美国航空母舰就成了自欺欺人的摆设。而拜登政府拿出的实际惩罚仅仅是考虑重新审查缅甸的国际援助项目，没有进一步实质的军事武力干涉的威胁。拜登竟然还在春节前和习通了一个颇有象征意义的电话。
 
-Then more importantly, I accidentally disclosed yesterday about the arrest of Fu Zhenghua’s whole family. I received two calls yesterday in the middle [of the broadcast], “Look, why did you talk about Fu Zhenghua? There was an agreement that Fu Zhenghua won’t talk about you, and you won’t talk about Fu Zhenghua, and Fu Zhenghua will never have any hostility to you again. Both of you were holding on to that agreement for two years. Why did you do this to him?”
+西方国家领导人明显的绥靖反应给了中共进一步试探西方政治底线的勇气，2月9日，缅甸军方对参与抗议政变的民众开枪驱离，造成至少一人死亡，三人受伤的流血局面。可以预测到，如果西方继续采取鸵鸟策略对中共胆大妄为的冒险动作视而不见，台湾随时有可能成为中共政权稳定局面、欺骗民心的牺牲品。
 
-他说昨天傅政华，这个政法委领导、中纪委领导，听说抓傅政华全都是军队抓的，说要求傅政华出来逛一逛，得露露面，为什么？要保持中央绝对权威，啥叫绝对权威啊？傅政华当年把他抓很多人、杀很多人、冤枉很多人，就这个人不能抓，抓了以后就是没人给你共产党干黑活了，所以说咬人的狗还是当人面得给点狗骨头，那怎么当着人面杀这个狗哪？疯狗哪？咬人的狗哪？不行。说傅政华出来转一转。能不能文贵不再说傅政华的事了？
+无独有偶，二战前，希特勒派遣象征性数量的部队进驻莱茵河岸非军事化地区，援助西班牙反政府武装。历史解密，希特勒曾密令部队指挥官，如果英法派兵介入，则立即退兵。而事实上，英法两国对德国的试探动作并没有做出正确的判断和反应。英法的不作为不但没有息事宁人，反而助长了希特勒的狼子野心，激发了他嗜血的本性。希特勒纳粹政权发动的第二次世界大战是人类历史上规模最庞大、伤亡最惨烈、影响最深远的一场战争。血淋淋的历史无法改写，西方政府要让人类重蹈希特勒的覆辙吗？智者，以史鉴今，把握当下。
 
-He said that yesterday the leaders of the Political and Legal Affairs Commission and the Central Discipline Inspection Commission (I heard that all the arrests of Fu Zhenghua [and his family] were done by the military) asked Fu Zhenghua to go out and show his face a little bit. Why? To maintain the absolute authority of the central government. What is absolute authority? Fu Zhenghua arrested a lot of people, killed a lot of people, and wronged a lot of people back then. So this person could not be arrested because if you arrest him, no one would do dirty work for you, the CCP. Therefore, a dog that bites people should be given bones in front others. How can you kill this dog in front of people? So, don’t kill a mad dog who bites people for you. So, Fu Zhenghua came out just for a walk. “So, Miles, can you stop talking about Fu Zhenghua?”
+编辑：【英国伦敦喜庄园编辑部】
 
-兄弟姐妹们，咱这爆料革命啊，愣把海航王健给说死了，愣把海航的说破产了，愣把孙立军给说进去了，吴征现在也完球蛋了，杨澜估计钥匙也找不着了，现在目前能活口的只有一个王岐山了，所以这个爆料革命。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-So, brothers and sisters-in-arms, our Whistleblower Movement has “talked” HNA’s Wang Jian to death, “talked” HNA to bankruptcy, and “talked” Sun Lijun to jail. Bruno Wu is also almost done. I guess that Yang Lan can’t play “find the key” game anymore. Now, there is only one who is still alive – Wang Qishan. So this Whistleblower [is really something].
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-
-视频来源：[https://gtv.org/getter/602aa081226e7759074440d6](https://gtv.org/getter/602aa081226e7759074440d6)
-
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/909619/](https://gnews.org/zh-hans/909619/)
-
-翻译：【Isaiah4031】校对：【BruhM】字幕：【奔腾的长江】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+[!\[\]()!\[\](https://spark.adobe.com/page/bTjN7jHTtZWGs/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/bTjN7jHTtZWGs/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 +1
