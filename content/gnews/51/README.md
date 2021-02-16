@@ -1,30 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生五月花联欢II五月花是春天的希望和充满生机的开始
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/910878/)
+## 2021/01/09 围炉夜话第十三期
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/910962/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/封面二-1.jpg)
-编辑整理：
+*整理：桂花酒 | 素材制作：健身健心、Bobby | 校对/审核：海阔天空 | Page：Daoiii*
+[!\[\]()!\[\](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/da46d9ba-c8be-445d-9a7e-2e79f58eca0f.jpg?asset_id=f4a8b142-2074-4b25-9ba6-4dac02483791&amp;img_etag=%220289be5e0c8f02c990436a67a81c475a%22&amp;size=2560)](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/da46d9ba-c8be-445d-9a7e-2e79f58eca0f.jpg?asset_id=f4a8b142-2074-4b25-9ba6-4dac02483791&amp;img_etag=%220289be5e0c8f02c990436a67a81c475a%22&amp;size=1024)
+# **民主不是免费的午餐**
 
-华盛顿DC农场：YIMING（文鸣）
+[G-TV直播视频链接](https://gtv.org/video/id=5ff9a519f579a75e0bcd416e)
 
-法国巴黎七星农场：枫丹白露
+[!\[\]()!\[\](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/09e6c560-accc-4437-bb9c-192020b1c7da.png?asset_id=cfcaa4c9-d8c6-48b5-b4d9-6ba24966f1b2&amp;img_etag=%22a195592cdcd3a81cb5644d3076173b8c%22&amp;size=2560)](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/09e6c560-accc-4437-bb9c-192020b1c7da.png?asset_id=cfcaa4c9-d8c6-48b5-b4d9-6ba24966f1b2&amp;img_etag=%22a195592cdcd3a81cb5644d3076173b8c%22&amp;size=1024)
 
-2021年2月12日大年初一郭文贵先生做客[喜马拉雅波士顿五月花农场新春联欢会](https://gtv.org/video/id=60271f41be64150df8540315)，谈到了一系列的话题，本系列将根据郭先生与主持人互动的不同主题逐一上传，以下为本系列第二部分——五月花是春天的希望和充满生机的开始
+我们从上期的独裁者转到当下美国大选的各种乱象，来谈谈什么是民主，以及民主的建立和制度的完善决不可能从天而降，甚至于要付出血的代价。但是正如文贵先生所言，将来灭共之后不能搞大清算，除盗国贼家族之外要合理大赦。因为民主制度的优越性，此次美国大选舞弊结果并未引发美国大面积流血。而中国百年来追求自由自强的道路上无数人悲惨地死去，鲜血并未换来民主，反而引狼入室中共当权。文贵先生的大智慧，对于指导我们将来如何建立和完善民主制度值得深思。
 
-据[喜马拉雅波士顿五月花农场新春联欢会](https://gtv.org/video/id=60271f41be64150df8540315)时间点18：38——
+每周六GTV-UK-2号台定时直播
 
-主持人：我相信如水也有问题问七哥的对吗？
+- 英国时间：12.00-14.00
+- 美东时间：7.00-9.00
+- 盘古时间：20.00-22.00
 
-如水：对！我本来还想跟七哥介绍一下我们波士顿农场，因为我们波士顿农场只筹建了一个月嘛，目前我们整个农场的运营什么还是比较好的，就是想简单地给七哥说一下，那么我们五月花农场的精神呢，五月花我们这个名字起的是源于五月花号，七哥肯定应该知道的，对吧？
 
-郭文贵先生：五月花这个名字取得特别好，当时长岛哥跟我说的时候，我们的长岛秘书长，我觉得特别好，我觉得它意义很多，实际上不仅仅是这一个，**除了五月船号，还有现在咱们现在流行的五月花餐厅还有一个实际上五月花运动啊，还有五月花政治运动很多，你当真正了解五月花等，实际上它是一个春天的一个希望的一个充满了生机的开始，它不仅仅是你个五月船号还有五月花号还有宗教的信仰的，太多了，**所以我觉得五月花之所以我觉得波士顿这个农场起的好，就是因为它包含了人类文明历史上最好的一面，我觉得它不仅仅，千万别把它给狭隘的解释了，就是说这个波士顿五月花号一定不能狭隘，这也是我今天，今天你谈到这个话题了，当时因为忙我没有时间跟你们说，就是五月花这个名字起的就像一个爆料革命一样，爆料革命那不是光爆那个小视频，爆料革命包含的内容特别大，所以说如水呀、老妹呀你们都是有修养、有信仰的人，这个名字起得好，你们要用得好才行，谢谢！
+欢迎关注英国伦敦喜庄园艺术组《缪斯殿堂》节目
 
-主持人：好的，我们一定会努力，然后我们各方面都会努力做好。
+- 请订阅 英国伦敦喜庄园GTV-UK-1号台
+- 请订阅 英国伦敦喜庄园GTV-UK-2号台
+- 请订阅 英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台
 
-接上文——
 
-[郭先生五月花联欢I接下来将推出三首音乐灭共歌曲](https://gnews.org/zh-hans/910867/)
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/84a37bd5-755a-4621-80b0-753567e84361.jpg?asset_id=08f4e8ed-a0ff-4dd7-a72c-281e72eea46d&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=2560)](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/84a37bd5-755a-4621-80b0-753567e84361.jpg?asset_id=08f4e8ed-a0ff-4dd7-a72c-281e72eea46d&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 0

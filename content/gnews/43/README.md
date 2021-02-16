@@ -1,35 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/01/09 围炉夜话第十三期
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/910962/)
+## 2/15/2021 郭文贵：GClubs年会的意义
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/911013/)
 
-*整理：桂花酒 | 素材制作：健身健心、Bobby | 校对/审核：海阔天空 | Page：Daoiii*
-[!\[\]()!\[\](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/da46d9ba-c8be-445d-9a7e-2e79f58eca0f.jpg?asset_id=f4a8b142-2074-4b25-9ba6-4dac02483791&amp;img_etag=%220289be5e0c8f02c990436a67a81c475a%22&amp;size=2560)](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/da46d9ba-c8be-445d-9a7e-2e79f58eca0f.jpg?asset_id=f4a8b142-2074-4b25-9ba6-4dac02483791&amp;img_etag=%220289be5e0c8f02c990436a67a81c475a%22&amp;size=1024)
-# **民主不是免费的午餐**
+【精选一】GClubs年会的意义
 
-[G-TV直播视频链接](https://gtv.org/video/id=5ff9a519f579a75e0bcd416e)
+昨天的事情是华人在海外互相之间关系的一个新的开始，战友过上安全体面生活的方式
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/09e6c560-accc-4437-bb9c-192020b1c7da.png?asset_id=cfcaa4c9-d8c6-48b5-b4d9-6ba24966f1b2&amp;img_etag=%22a195592cdcd3a81cb5644d3076173b8c%22&amp;size=2560)](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/09e6c560-accc-4437-bb9c-192020b1c7da.png?asset_id=cfcaa4c9-d8c6-48b5-b4d9-6ba24966f1b2&amp;img_etag=%22a195592cdcd3a81cb5644d3076173b8c%22&amp;size=1024)
+【精选二】种族矛盾白人化
 
-我们从上期的独裁者转到当下美国大选的各种乱象，来谈谈什么是民主，以及民主的建立和制度的完善决不可能从天而降，甚至于要付出血的代价。但是正如文贵先生所言，将来灭共之后不能搞大清算，除盗国贼家族之外要合理大赦。因为民主制度的优越性，此次美国大选舞弊结果并未引发美国大面积流血。而中国百年来追求自由自强的道路上无数人悲惨地死去，鲜血并未换来民主，反而引狼入室中共当权。文贵先生的大智慧，对于指导我们将来如何建立和完善民主制度值得深思。
+【精选三】潘多拉盒子核心-灭白计划
 
-每周六GTV-UK-2号台定时直播
+共产党的3F方案、13579的征服世界和一带一路，2025、2035、2049就是一个灭白计划
 
-- 英国时间：12.00-14.00
-- 美东时间：7.00-9.00
-- 盘古时间：20.00-22.00
+【精选四】灭白战
 
+【精选五】今天将和2017年10月揭露“3F计划”那天一样伟大
 
-欢迎关注英国伦敦喜庄园艺术组《缪斯殿堂》节目
-
-- 请订阅 英国伦敦喜庄园GTV-UK-1号台
-- 请订阅 英国伦敦喜庄园GTV-UK-2号台
-- 请订阅 英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台
+By： 【秘密翻译组 G-Translators】
 
 
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/84a37bd5-755a-4621-80b0-753567e84361.jpg?asset_id=08f4e8ed-a0ff-4dd7-a72c-281e72eea46d&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=2560)](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/84a37bd5-755a-4621-80b0-753567e84361.jpg?asset_id=08f4e8ed-a0ff-4dd7-a72c-281e72eea46d&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
 
 0
