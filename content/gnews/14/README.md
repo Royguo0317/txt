@@ -1,35 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/01/09 围炉夜话第十三期
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/910962/)
+## 郭先生五月花联欢VII我们的GTV、盖特和G系列必将独步天下
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/911077/)
 
-*整理：桂花酒 | 素材制作：健身健心、Bobby | 校对/审核：海阔天空 | Page：Daoiii*
-[!\[\]()!\[\](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/da46d9ba-c8be-445d-9a7e-2e79f58eca0f.jpg?asset_id=f4a8b142-2074-4b25-9ba6-4dac02483791&amp;img_etag=%220289be5e0c8f02c990436a67a81c475a%22&amp;size=2560)](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/da46d9ba-c8be-445d-9a7e-2e79f58eca0f.jpg?asset_id=f4a8b142-2074-4b25-9ba6-4dac02483791&amp;img_etag=%220289be5e0c8f02c990436a67a81c475a%22&amp;size=1024)
-# **民主不是免费的午餐**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/封面七.jpg)
+编辑整理：
 
-[G-TV直播视频链接](https://gtv.org/video/id=5ff9a519f579a75e0bcd416e)
+康州盘古农场：Ara
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/09e6c560-accc-4437-bb9c-192020b1c7da.png?asset_id=cfcaa4c9-d8c6-48b5-b4d9-6ba24966f1b2&amp;img_etag=%22a195592cdcd3a81cb5644d3076173b8c%22&amp;size=2560)](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/09e6c560-accc-4437-bb9c-192020b1c7da.png?asset_id=cfcaa4c9-d8c6-48b5-b4d9-6ba24966f1b2&amp;img_etag=%22a195592cdcd3a81cb5644d3076173b8c%22&amp;size=1024)
+法国巴黎七星农场：枫丹白露
 
-我们从上期的独裁者转到当下美国大选的各种乱象，来谈谈什么是民主，以及民主的建立和制度的完善决不可能从天而降，甚至于要付出血的代价。但是正如文贵先生所言，将来灭共之后不能搞大清算，除盗国贼家族之外要合理大赦。因为民主制度的优越性，此次美国大选舞弊结果并未引发美国大面积流血。而中国百年来追求自由自强的道路上无数人悲惨地死去，鲜血并未换来民主，反而引狼入室中共当权。文贵先生的大智慧，对于指导我们将来如何建立和完善民主制度值得深思。
+2021年2月12日大年初一郭文贵先生做客[喜马拉雅波士顿五月花农场新春联欢会](https://gtv.org/video/id=60271f41be64150df8540315)，谈到了一系列的话题，本系列将根据郭先生与主持人互动的不同主题逐一上传，以下为本系列第七部分——我们的GTV、盖特和G系列必将独步天下
 
-每周六GTV-UK-2号台定时直播
+据[喜马拉雅波士顿五月花农场新春联欢会](https://gtv.org/video/id=60271f41be64150df8540315)时间点42：31——
 
-- 英国时间：12.00-14.00
-- 美东时间：7.00-9.00
-- 盘古时间：20.00-22.00
+郭文贵先生：所以现在这几天，拜登上来了，你看从这几天到今天，形势变成啥样儿啦？继中南坑习近平的双规电话后，他不是惹怒了一个人，是整个西方文明世界，都知道你不听话，你就是下一个电话，双规电话下一个就是双规你的一切，你说左媒干嘛，你去看看这两天左媒了吗？左媒这几天已经逐渐在变向，**因为在安全的所需上、在尊严的所需上、真假的所需上、善恶的所需上本质是一样的，**所以最后我要告诉你，老妹儿**，人类不管左和右最后他都不会接受假的，不管是左和右它不会接受恶的，**谁都是这样，所以我们是会成为绝大多数，成为绝大多数的前提前不要害怕有绝大多数发对我们，这就是我们要做的。**GTV、G-News谁都挡不住，她未来是中国人走向世界唯一一个必须的第一个选择看的媒体，GTV、盖特和G系列，**我们有中国这个大背景1４亿人，不要说四亿人、不要说两亿人，**两千万人待在我们GTV、G-News，我们是全人类也就是第一大了，我们的使用，不用想的！**谁能挡得住？如果海外一亿华人百分之十——一千万，百分之五——五百万，能让我们吃不完、喝不完，别说吃肉了，天天怎么吃都吃不完，这是市场价值。影响力？天呐，从五百万要变成五千万、变五个亿，在美国，记住：只是一个事件——克林顿的一个蓝裙子，让福克斯从每年赔十几亿美元变成了几百亿美元的市值，CNN一个川普骂了四年，现在川普走了直接下跌４０％。**在美国西方，我们要想从五百变成五千万到五个亿不是什么难事儿，这是市场行为。千万记住，但需要点时间，需要刚才我说的那个如水的那个——铁心！**不是信心，铁心相信，谢谢！
 
+接上文——
 
-欢迎关注英国伦敦喜庄园艺术组《缪斯殿堂》节目
+[郭先生五月花联欢I接下来将推出三首音乐灭共歌曲](https://gnews.org/zh-hans/910867/)
 
-- 请订阅 英国伦敦喜庄园GTV-UK-1号台
-- 请订阅 英国伦敦喜庄园GTV-UK-2号台
-- 请订阅 英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台
+[郭先生五月花联欢II五月花是春天的希望和充满生机的开始](https://gnews.org/zh-hans/910878/)
 
+[郭先生五月花联欢III衡量一切的根本是赚不赚钱以及赚了钱归谁](https://gnews.org/zh-hans/910950/)
 
-编辑：【英国伦敦喜庄园编辑部】
+[郭先生五月花联欢IV：G系列独有的稳定化/安全化/最低保本](https://gnews.org/zh-hans/910978/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/84a37bd5-755a-4621-80b0-753567e84361.jpg?asset_id=08f4e8ed-a0ff-4dd7-a72c-281e72eea46d&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=2560)](https://spark.adobe.com/page/Uk2iogkRnS0ub/images/84a37bd5-755a-4621-80b0-753567e84361.jpg?asset_id=08f4e8ed-a0ff-4dd7-a72c-281e72eea46d&amp;img_etag=%222f6863aac924743b3a478ba99290e524%22&amp;size=1024)
+[郭先生五月花联欢V郭先生家族与G-Coin、G-Dollar没有任何关系](https://gnews.org/zh-hans/911010/)
+
+[郭先生五月花联欢VI我们的GTV没有左右只有真假和善恶](https://gnews.org/zh-hans/911047/)
 
 0

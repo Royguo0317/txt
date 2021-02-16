@@ -1,37 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共利用“一带一路”扩张全球的计划在澳大利亚面临破产
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/910660/)
+## 又发现一位参与WHO调查CCP 病毒的成员与中共有长期业务往来
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/910749/)
 
-撰稿：Shirley
-![]()![](https://gnews.org/wp-content/uploads/2021/02/屏幕截图-2021-02-16-214206-2.png)图片来源：Johannes leak
-澳大利亚维多利亚州州长安德鲁斯（Daniel Andrews）与中国政府达成的，有争议的“一带一路”协议，预计将在几周内被总理莫里森（Scott Morrison）强行终止。
+##### 翻译报道： Alton
 
-维州工党的安德鲁斯政府在2018年宣布签署了一份谅解备忘录，参与中共的1.5万亿美元的“一带一路”基础设施计划，这被广泛视为中共的全球权力扩张手段和对澳大利亚国家安全的威胁，该协议令堪培拉大跌眼镜。
+##### 责编：白夜
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-29.png)图片来自： deccanherald.com
+根据《国家脉搏》2月15日报道，世界卫生组织最近在中共国开展的COVID-19溯源调查项目的成员玛丽昂·库普曼斯(Marion Koopmans)（图左1）曾担任中共国疾病预防控制中心顾问，并撰写了由中共国政府资助的研究报告。
 
-澳大利亚联邦政府在2020年出台了新的法律，如果联邦政府认为任何州或地方政府与外国势力的交易不符合“联邦外交政策”，就有权终止该交易。
+世界卫生组织(WHO)调查小组的结论是，尽管有报告显示中共拒绝分享COVID-19早期的所有相关数据，但病毒“极不可能”来自中国共产党的实验室。
 
-澳大利亚公共事务研究所（Institute of Public Affairs）智囊团进行的民调发现，大多数维多利亚州人希望州政府退出这项有争议的计划，甚至连工党选民也强烈反对。
+但库普曼斯与中国共产党的关系，跟世界卫生组织的另一位研究员彼得·达扎克(Peter Daszak)的关系类似，让人对该团队研究结果的有效性提出了质疑。
 
-安德鲁斯坚持认为，“一带一路”协议关系到维多利亚州的就业和农产品出口等问题，拒绝承认“一带一路”协议是国家安全的威胁。
+世界卫生组织一份 “科学顾问组成员 “的文件中，包含了库普曼斯的职业简历，其中显示她曾担任 “中共国广东省疾病控制中心科学顾问委员会成员”。作为中共国广东省疾病控制中心科学咨询委员会的成员，她就该地区新发传染病检测的实验室能力提出了建设性意见，并正在进行研究合作，试图揭示病毒在该地区动物生产链中的出现和传播。
 
-安德鲁斯的个人立场让他与联邦工党的同行们产生了分歧，后者曾对维多利亚州加入“一带一路”的决定表示担忧。澳大利亚联邦反对党，工党领袖阿尔巴内塞（Anthony Albanese）去年表示，他 “非常支持 “对外关系法，而联邦工党由于中共近年来越来越多的 “干预主义 “行为，已经转而反对签署该计划。
+更重要的是，库普曼斯在中共的资助下撰写了科学研究论文和期刊文章。2020年7月的一项研究—“探索利用基因组流行病学方法追踪广东省高致病性甲型/H7N9流感的起源”，得到了中共国国家重点研究发展计划的资助。
 
-去年8月，阿尔巴内塞先生就发誓，联邦工党永远不会寻求“一带一路”倡议下的贸易协议。阿尔巴内塞先生告诉澳洲广播公司的节目Insiders说，”不符合澳洲国家利益或我们外交政策的协议，就不应该存在”。
+而另一项由库普曼斯领导的2014年与广东省疾控中心研究人员一起完成的关于H7N9流感的研究则 “得到了中共国卫生部“十二五”重大项目的支持。库普曼斯还撰写了一系列由国家留学基金管理委员会资助的研究报告，包括关于诺如病毒、轮状病毒、钙蛋白和迁移的报告。
 
-目前看来，中共希望通过“一带一路”的扩张控制澳大利亚的计划，面临澳洲在野两大党的一致反对。这也就是郭先生说的，“联合灭共”的情形吧！
+#### 评论:
 
-随着澳大利亚对中共集权扩张的反抗，相信会有越来越多的国家向中共说“不”。中共的“一带一路”必将是为自己奔赴“黄泉路”上准备的“上吊带”。
+到中国进行CCP COVID-19溯源调查的小组成员真是“卧虎藏龙”。除了那位与武汉病毒所有千丝万缕关系的彼特·达扎克(Peter Daszak)之外，又被踢爆另一个成员玛丽昂·库普曼斯(Marion Koopmans)与广东省疾控中心也有密切的关系。中共同意这两位专家参与调查，就说明他们的背景和经历都已经过了中共这一关。达扎克因直接参与石正丽的研究，有极大的共谋嫌疑。他为了自保，也不会揭露病毒的真相。 库普曼斯虽然与CCP COVID-19 的病毒没直接关系，但她从2014年起就与中方合作，好处肯定没有少拿，并且中共已经摸到她的脾气了，知道她肯定不会给中共拆台。这样两个与中共深度合作过的专家本应避嫌，却堂而皇之的加入到调查小组，实在荒唐。现在WHO完成了调查任务，得到了中方希望的结果。但是WHO欠全世界一个公道，绝大多数人民不会接受这个结果。相信有一天病毒的真相一定会大白于天下。
 
-[https://www.news.com.au/finance/economy/world-economy/scott-morrison-expected-to-tear-up-victorias-belt-and-road-deal-with-china-within-weeks/news-story/580f1d9baed69f064945bd38532becc3](https://www.news.com.au/finance/economy/world-economy/scott-morrison-expected-to-tear-up-victorias-belt-and-road-deal-with-china-within-weeks/news-story/580f1d9baed69f064945bd38532becc3)
+[原文链接](https://thenationalpulse.com/news/exc-who-covid-investigator-is-chinese-cdc-advisor-who-accepted-ccp-research-grants/)
 
-[https://www.abc.net.au/news/2020-12-08/what-are-the-governments-new-foreign-relations-laws-about/12947590](https://www.abc.net.au/news/2020-12-08/what-are-the-governments-new-foreign-relations-laws-about/12947590)
-
-[https://www.abc.net.au/insiders/anthony-albanese-joins-insiders/11992212](https://www.abc.net.au/insiders/anthony-albanese-joins-insiders/11992212)
-
-（本文仅代表个人观点）
-
-审核: Runaway  编辑：MG1
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-澳喜Logo.jpeg)
 0

@@ -1,33 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国主流媒体的傲慢与偏见被川普总统律师打脸
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/910812/)
+## 中国的私人企业家们，你们动动脑子吧，醒醒吧！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/910348/)
 
-撰稿：光耀华夏
-视频来自Twitter
-2月14日，川普总统的律师迈克尔·范德文（Michael van der Veen）在为川普总统赢得1月6日国会暴动事件的无罪辩护之后接受CBS News主持人拉娜·扎克（Lana Zak）的采访。扎克一上来就提到参议院领袖共和党大佬麦康奈尔的演讲，并提到“川普总统被控参与暴动一事”，说到“前总统仍然应该对他任职期间的一切行为负责”，询问在暴动一事中“前总统扮演了什么角色”，并问及范德文律师“是否还希望继续为川普总统辩护”。
+新闻简述：在2021年2月15日的第一次Getter视频中，郭先生爆光中共白手套马云和中共打手傅政华的下场，并奉劝中国的私人企业家们：“你们动动脑子吧，醒醒来吧！”
 
-正所谓欲加之罪，何患无辞。明眼人一眼就能看出这显然是对川普总统的有罪推定，哪怕是川普已经胜诉被判无罪。范德文律师怼道这是“政客们的说辞”，他在结案陈词中使用“暴动”一词只是在引用起诉文件，而本案中检察官为了给川普总统定罪不惜“篡改证据”，并未对本案进行任何“实质性调查”。
+**中国的私人企业家们，你们动动脑子吧，醒醒吧！**
 
-主持人扎克继续故意为检察官篡改证据一事进行开脱，认为他们的伪证无非是不小心在Twitter的账户验证上打错了一个勾，弄错了时间，对录音带进行了选择性编辑。这再次被范德文律师打脸，因为检察官篡改时间显然是别有用心，意在制造伪证从而“和川普总统的案子关联上”。
+**Chinese Private Entrepreneurs, Use Your Brains, Wake up!**
 
-范德文律师直言“媒体正在试图分裂这个国家”，不惜利用“预先设置好有暗示的问题”进行设套，只是为了提高收视率而编造故事，进行非常“偏颇的报道”，而不是“实话实说”。美国真正需要的是“这个国家团结起来让左右一起找到中间立场”，美国人民应该“看看这些众议院经理是哪些人，并查看这些人是否是他们想要代表他们的”，对篡改证据的检察官则应该“零容忍”。节目最后，范德文律师摔掉麦克风扬长而去。
+昨天晚上醒来其中一次，原来代表马云的香港某律师给我打电话，吓我一大跳。一打电话说：“郭先生啊，不要再提马云了，Jack了。”我说，啥意思啊？我说这大过年的，啥意思啊？他说就是因为你们爆料革命老说马云，结果中纪委还有国家安全委员会，让马云坐出来，背后拿枪顶着坐在椅背上，在双规的地点面对摄像机，所谓的出来露了露面。他说不要再搞了，不要再提了。我说我没心情提 Jack 马，我说头两天有一个马云的前女友，因为给他生了个孩子，我原来说过，帮助他照顾的就是我一个哥们，找不着人了，说家里的钱房租都没人付，找我来了。我给你给我说啥？马云的事，我怎么会知道啊？
 
-美国主流媒体的傲慢与偏见由此可见一斑。与此形成鲜明对比的是，范德文律师尊重事实，“唯真不破”，和我们爆料革命坚持的立场是多么的一致。看着Youtube视频底下美国民众对范德文大律师的一边倒支持以及对CBSN主持人的嘲讽，这一切何尝不证明美国民众正在觉醒呢？这一番唇枪舌战下来，孰是孰非，美国人民心中自有定论。所谓的主流媒体想继续指鹿为马，混淆视听，强奸民意的时代一去不复返了，未来一定是像GTV，Gnews这样坚持传播真相和唯真不破的良心媒体崛起和百家争鸣的时代。毕竟谁代表民意，谁就能走得更远！
+Last night I was woken up by a phone call from a Hong Kong lawyer who previously represented Jack Ma, which scared me. He said in the call, “Mr. Guo, don’t mention Jack Ma again.” “What do you mean?” I said, “What do you mean by calling me during the Chinese New Year?” He said that it was because our Whistleblower Movement always broke the news about Jack Ma. As a result, the Central Commission for Discipline Inspection and the National Security Committee forced Jack Ma to sit on a chair facing a camera with a gun behind his back in a “double designation” (also known as “Shuanggui”) location. It’s called a public appearance. He said, “Don’t mention him anymore.” I said that I was not in the mood for mentioning Jack Ma. I said, a couple days ago, a buddy of mine who was taking care of a Jack Ma’s ex-girlfriend who had a child with Jack contacted me, for there was no one paying her rent anymore. I said, “Why do you tell me? How am I supposed to know anything about Jack Ma?”
 
-（本文仅代表个人观点）
+所以你说共产党让马云出来，让马云的钱连一个房租都付不上，给小女情人的。这抢钱，共产党是天下第一啊。抢了14亿中国人的钱，抢了14亿中国人的未来，就马云这号人连房租现在都不给人家留。所以中国的私人企业家们，你们动动脑子吧，醒醒来吧。
 
-素材：XO酱，Jenny
+So you tell me. The Communist Party asked Jack Ma to make a public appearance and left him not enough money to pay the rent for his little lover. The CCP is the number one in the world in robbing people’s money! It robbed money from the 1.4 billion Chinese people and also the future of the 1.4 billion people, and didn’t even leave money to someone like Jack Ma to pay the rent. So Chinese private entrepreneurs, use your brains, wake up!
 
-参考来源：
+然后更重要的事情，我昨天无意中说了傅政华全家被抓的事。昨天中间两个电话给我打过来：“你看，你说傅政华干嘛？原来有默契的嘛，傅政华不说你，你不说傅政华，傅政华永远不再对你有任何敌意，大家已经坚守了两年了，你干嘛这样啊？”
 
-1. CBS News油管: [https://youtu.be/F0G6mAMUAsA](https://youtu.be/F0G6mAMUAsA)
-2. CBS News推特：[https://twitter.com/CBSNews/status/1360716676778622978?s=19](https://twitter.com/CBSNews/status/1360716676778622978?s=19)
+Then more importantly, I accidentally disclosed yesterday about the arrest of Fu Zhenghua’s whole family. I received two calls yesterday in the middle [of the broadcast], “Look, why did you talk about Fu Zhenghua? There was an agreement that Fu Zhenghua won’t talk about you, and you won’t talk about Fu Zhenghua, and Fu Zhenghua will never have any hostility to you again. Both of you were holding on to that agreement for two years. Why did you do this to him?”
 
+他说昨天傅政华，这个政法委领导、中纪委领导，听说抓傅政华全都是军队抓的，说要求傅政华出来逛一逛，得露露面，为什么？要保持中央绝对权威，啥叫绝对权威啊？傅政华当年把他抓很多人、杀很多人、冤枉很多人，就这个人不能抓，抓了以后就是没人给你共产党干黑活了，所以说咬人的狗还是当人面得给点狗骨头，那怎么当着人面杀这个狗哪？疯狗哪？咬人的狗哪？不行。说傅政华出来转一转。能不能文贵不再说傅政华的事了？
 
-[澳喜文章](https://gnews.org/zh-hans/author/aujenny/)
+He said that yesterday the leaders of the Political and Legal Affairs Commission and the Central Discipline Inspection Commission (I heard that all the arrests of Fu Zhenghua [and his family] were done by the military) asked Fu Zhenghua to go out and show his face a little bit. Why? To maintain the absolute authority of the central government. What is absolute authority? Fu Zhenghua arrested a lot of people, killed a lot of people, and wronged a lot of people back then. So this person could not be arrested because if you arrest him, no one would do dirty work for you, the CCP. Therefore, a dog that bites people should be given bones in front others. How can you kill this dog in front of people? So, don’t kill a mad dog who bites people for you. So, Fu Zhenghua came out just for a walk. “So, Miles, can you stop talking about Fu Zhenghua?”
 
-[欢迎加入澳喜农场](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-澳喜Logo.jpeg)
-0
+兄弟姐妹们，咱这爆料革命啊，愣把海航王健给说死了，愣把海航的说破产了，愣把孙立军给说进去了，吴征现在也完球蛋了，杨澜估计钥匙也找不着了，现在目前能活口的只有一个王岐山了，所以这个爆料革命。
+
+So, brothers and sisters-in-arms, our Whistleblower Movement has “talked” HNA’s Wang Jian to death, “talked” HNA to bankruptcy, and “talked” Sun Lijun to jail. Bruno Wu is also almost done. I guess that Yang Lan can’t play “find the key” game anymore. Now, there is only one who is still alive – Wang Qishan. So this Whistleblower [is really something].
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+
+视频来源：[https://gtv.org/getter/602aa081226e7759074440d6](https://gtv.org/getter/602aa081226e7759074440d6)
+
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/909619/](https://gnews.org/zh-hans/909619/)
+
+翻译：【Isaiah4031】校对：【BruhM】字幕：【奔腾的长江】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+
++1
