@@ -1,51 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## G-Clubs抽奖活动影响巨大，G-Fashion 将是世界上最大的创新
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/912607/)
+## CCP病毒疫情下的全球经济2020 &amp;2021 （二）
+` 经济金融节目组` [轉載自GNews](https://gnews.org/zh-hans/913857/)
 
-新闻简述：在2021年2月15日的第二段 Getter 视频中，郭先生感叹 G-Clubs 的抽奖活动的巨大影响和看到战友中奖的快乐，还预期了 G-Fashion 的美好前景。
+作者：Opal
 
-**G-Clubs****抽奖活动影响巨大，****G-Fashion ****将是世界上最大的创新**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/全球疫情169.png)
 
-**G-Clubs’ Event Has Huge Impact, G-Fashion Will Be the Biggest Innovation in the World**
+**摘要：**2019年末在中国武汉大规模爆发的CCP病毒疫情，对全球经济造成重创，诱发了2020年全球经济危机，衰退几乎覆盖各个行业。 2021年注定是一个不平凡的年 （2021年注定不平凡），关键是病毒。只有CCP被灭后，制毒和放毒才会停止，世界各国才能拿到病毒原始数据，研制出管用的疫苗，结束疫情，人类社会才能回归正常。否则，全球的经济不会好转，而会更加恶化。 这里先感谢我们的英雄李文亮医生，感谢路德在2020年1月19号节目中首次爆料病毒，感谢闫丽梦博士揭露病毒真相，世界上越来越多的国家开始质疑CCP病毒起源，开始向中共要疫情爆发初期的原始数据。
 
-然后昨天 G-Clubs 抽奖，影响太大了，影响太大了。这个特别是对任何有脑子的人，它意味着什么？大家都很明白的。我们要培养一个一个的，一些有良知的人，有更多的机会。应该让他们活得更有的体面，特别是…… 这话还有些法律上不能说。接下来呢，据说啊据说，还有更大的活动，更高端的活动，很有意思。
+（接上篇）
 
-Yesterday’s G-Clubs lottery drawing had huge impact! Especially for those with a brain, what does it mean? Everyone knows it really well. We want to nourish people, people with a conscience, and give them more opportunities. We should allow them to live a more decent life, especially… Well, there is something that I can’t say due to legal concerns. It is said that there will be bigger events and more high-end events next, which will be very interesting.
+**对银行业的冲击**
 
-我特别特别地开心，当我看到战友们得到了这样的快乐，和有这些希望和机会的时候，我真的是最开心的。我以前我都感受不到，我现在我感受得更加地贴切。就真的是当你做了一个你自己愿意做，又不是为自己的是为他人的事，你特别开心的时候，那种感觉真的是佛家说的，那真的是，叫做不是清凉的法喜，应该是无缺漏的、真正的这种内心的莲花喜，和大欢喜的感觉。就是那种愉悦感是无法表达的，特别是昨天看到这些战友们抽的那些。
+虽然银行业没有像其他行业那样不堪一击，但它也一样受到冲击。房屋借款人面临失业，商家企业经历了惨不忍睹的销售业绩和下滑的盈利。 这些直接导致了一方面新的贷款申请爆增，而另一方面贷款的还款环境非常困难。
 
-I am very very happy. I was really the happiest when I saw my fellow fighters get such happiness, hopes and opportunities. I didn’t sense it before, but now I feel it more intimately. Seriously, when you do something willingly, not for yourself but for others, and feel extremely happy, that kind of feeling is really what the Buddhist says. It really is… it’s better than the coolness of dharma joy, it should be a flawless, true, inner, lotus joy and a great happiness. It’s that kind of pleasure that can’t even be expressed, especially yesterday when witnessing these fellow fighters winning those stuff.
+为了救助经济，国会于去年的3月27号通过了金额为2.2万亿 （$2.2 trillion ）的舒困案（CARES Act），后经川普总统签署成为法律。 该法案鼓励房屋贷款的银行和服务机构，对受疫情影响的房贷借款人 **延缓贷款的偿付 **(Forbearance)。就是说，让银行允许你有一段时间可以不付房贷。
 
-我的鞋你们看不到，这鞋太漂亮了，这鞋太漂亮，太漂亮了，这鞋。然后特别是听到这战友抽的这个奖是改变家庭命运的人。太重要了，而且是国内的，太重要了。
+在这里我顺便简单介绍一下美国的房贷情况。按照美国联邦法，房贷借款如果拖欠月供120天（4个月），那么银行就开始启动法拍程序 Foreclosure。当然在这120天期间，银行会联络你，和你沟通，分析你的财务情况，对这个房贷进行整改，给出选项，比如说，延缓几个月偿付（Forbearance）或者是重新贷款，通过调整利率、延长贷款期限等来降低月供的金额，让你付得起。如果你同意了选项之一，签了协议后，就重新开始；但如果你不同意，或者不管银行怎么整，你就是付不起这月供了，那么过了120天，银行就开始启动法拍程序，通过法律程序将房屋拍卖，它可以收回一部分贷款。因为虽然地契是你的，但理论上讲，银行是债主，房屋的产权还是银行的呀。所以银行不会轻易让你延缓贷款的偿付。
 
-You can’t see my shoes. These shoes are so awesome. So awesome, these shoes! It’s so important, especially when I heard that the prize won by this brother or sister in arms can change the fate of his/her family. It’s so important, considering that they are in mainland China.
+而这纾困案是鼓励银行和服务机构给受疫情影响的借款人提供这一选项。据房贷银行家协会 （Mortgage Bankers Association）统计，今年3月份的时候全美房贷延缓债务偿还率 Forbearance是0.5%，到了6月飙升到8.5%，之后又跌回到6% 以下，但还是大大高于疫情前的水平 （图4）。
 
-金鸡独立，可以吧，兄弟姐妹们？哇噻，我发现我的功夫可以啊，现在。现在一点也没有……当年的腿功没废啊，可以再战江湖啊。这个腿就没那个腿强，你看着了没有？腿疼就这个腿，就没这个腿强，你看到没有？哇！好，咱这个 G-Fashion 裤子，真是开司米的，太棒了，太棒了，又暖又好，特别的舒服。所以说兄弟姐妹们，我希望每个人都能跟文贵一样，找到那种真的是，那种独特的快乐和欢喜，特别特别的幸福，特别特别的舒服。
+图4. 全美房贷延缓债务偿还率
+![]()![](https://gnews.org/wp-content/uploads/2021/02/图4.png)
+你可以看到疫情初期，很多人申请延缓债务偿还，银行先是给予3个月的期限，3个月到后还可以再申请延长3个月。不管是3个月也好，6个月也好，在这期间，银行虽然收不到客户的一分本金和利息，但还是要提供优质服务，投入人力、物力，一单一单地做，他也损失啊。还要承受商业贷款的坏账压力。
 
-Look at my “golden rooster stand”, not bad, right? Brothers and sisters? Wow, I found that my kung fu is not bad. My leg skills now are still as good as the old days, and I can still fight. This leg is not as strong as the other leg, have you seen that? This leg hurts and is not as strong as the other leg. Have you seen? Wow! Well, my G-Fashion pants are cashmere. They are so great, so great, warm and nice, and very comfortable. So brothers and sisters, I hope everyone can be like Miles and find the kind of unique happiness and joy. Very very happy, very very comfortable.
+除了应对新冠病毒对经济造成的直接影响外，银行还必须把要考虑客户和员工的健康安全放在首位。很多银行鼓励员工在家上班，而对于那些必须在银行办公场地，比如说分行大厅或后勤部门上班的员工们，实行防疫措施。
 
-我没想到昨天 G-Clubs 的年会影响这么大，这么多机构主动跟我们联系，希望能跟我们合作，G-Fashion 最起码得一年两年才能成熟，G-Fashion 最起码一年到两年才能形成全世界的销售。现在是刚刚起步，漏洞百出，缺点、挑战，到处都有，包括整合。
+以上所有这些，直接造成银行收入减少、运作成本增加，最终影响到银行自身的盈利。
 
-I did not expect that yesterday’s G-Clubs annual event would have such a big impact. So many organizations reached to us, hoping to cooperate with us. G-Fashion will take at least one year or two to mature, and at least one year or two years to form a worldwide sale network. It is just taking off now, still with loopholes, shortcomings and challenges everywhere, and still need integration.
+讲到这里，我要特别讲一下。就是CCP病毒挑战了传统的银行习惯，也改变了商家和个人的银行模式，让客人亲自跑到银行去完成交易，和进行实质交换等变得不切实际，那么其他替代的选项就变得越来越受欢迎。对于50岁以上的人来说，为了省却一趟一趟地往分行跑，也为了自己的健康着想，被迫加入年轻一代的行列去适应网上银行和手机银行的操作。拜CCP病毒所赐，我们可以预期到，向数字银行的转变是必然的，而且正在加速。
 
-但是 G-Fashion 那种与众不同和那种独特的价值，已经大家看得到了。那个唯一性，还有那个特别是 G-Fashion 它给整个时尚世界，和未来整个时尚在全世界上，和质量最大的问题，质量和价格，和材料之间最大的矛盾，还有它的设计的艺术性，是所有品牌的挑战。我觉得 G-Fashion 将是世界上最大的创新，我相信它会走得非常非常远，飞得非常非常的高，而且会非常的成功。谢谢！谢谢，兄弟姐妹们，俺啥都不说了，谢谢！我要工作去了，开会去了。
+IDC 金融观察IDC Financial Insights研究副总裁Jerry Silva表示：”……，这场大流行创造了全新的环境，对那些至今仍在抵制转型的银行提出了挑战。在这场危机中，最适合生存和发展的银行是那些采用人工智能、移动性和云端等技术来提高可扩展性和弹性的银行。” 那些无法有效管理成本效率以及没有足够资金投入到IT基础设施的中小型及区域性银行将受到影响，那么被其他银行并购，可能是它们的一条逃生之路。
 
-But G-Fashion has its own uniqueness, its unique value, which has already been seen by everyone. The uniqueness of G-Fashion and especially what it has brought to the entire fashion world, and the entire fashion world in the future… the biggest problem faced by the fashion world is the conflict between quality and price and material. Also the artistry of the design is a challenge faced by all brands. I think G-Fashion will be the biggest innovation in the world. I believe it will go very, very far, and fly very, very high, and be very successful. Thank you! Thank you, brothers and sisters. I won’t talk more. Thank you! I’m going to work, to a meeting.
+随着疫情期间购买和交易越来越多地从现金转向数字渠道，世界各地的中央银行、私人银行和私人机构正在继续探索数字货币的潜力，其中包括加密货币、虚拟货币、央行货币和电子现金。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+各国央行正在研究中央银行数字货币Central Bank Digital Currencies (CBDCs)，将其作为在日益数字化的世界中进行交易的替代方式，以降低病毒传播的风险。CBDCs并不是一种新的货币类型，而是一种由中央银行支持和发行的硬通货的数字形式。10月，中国通过抽签向该国深圳地区的5万人发行了价值1000万元人民币（150万美元）的数字货币。总部设在瑞士的央行组织国际清算银行（BIS）与加拿大、英国、欧盟、日本、瑞典、瑞士和美国的央行一起，发布了他们的第一份关于中央银行数字货币CBDCs的报告。
 
-视频来源：[https://gtv.org/getter/602ab7e8226e775907444644](https://gtv.org/getter/602ab7e8226e775907444644) (3:33-最后)
+在这场疫情中，我们看到比特币、莱特币等一度火爆的加密货币再次攀升，这些货币正在成为新兴市场中人们缓解外汇风险的重要工具，在这些货币中，当地货币对美元的价值已经大幅下降。
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/909749/](https://gnews.org/zh-hans/909749/)
+而即将由爆料革命先驱郭文贵先生推出的G-Coin却因其黄金标准和加密区块链虚拟货币与实体货币的结合而大放异彩，备受关注。它将成为最安全、最值得信赖的数字货币。说不定，哪一天会取代墙内的冥币。
 
-翻译：【Isaiah4031】字幕：【奔腾的长江】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+总之，对于银行来说，可以肯定的是，银行实体分行的数量将不断减少，而被机器和人工智能淘汰的传统银行工作岗位将永远不会再回来，这也是一场革命。
 
-+1
+**对股市的冲击**
+
+对多数行业来说，都不能幸免的，一切的一切，都反应到股市。
+
+3月23号，标志性日期，礼拜一，开始全面封锁lockdown。这一天的道指 Dow Index 跌到最低点，以18,591点收盘；S&P 500 标普500 指数也跌到最低点，最后收于2,237.40；纳斯达克指数Nasdaq以低点6,860.67收盘 （图5，6，7）。
+
+图5. 道琼斯工业指数
+![]()![](https://gnews.org/wp-content/uploads/2021/02/图5.png)
+图6. S&P 500指数
+![]()![](https://gnews.org/wp-content/uploads/2021/02/图6.png)
+图7.纳斯达克指数
+![]()![](https://gnews.org/wp-content/uploads/2021/02/图7.png)
+图片来源： Fidelity.com
+
+**【中国的股市**】
+
+同样的，中国股市在2020年12月31日周四， 2020年的最后交易日，升至数年高位：沪深300指数收升1.91%，至5,211.29点，为2015年6月15日以来最高，沪综指收升1.72%报3,473.07点，为2018年2月5日以来最高。
+
+（未完待续）
+
+（本文仅代表作者个人观点）
+
+阅读本人文章请搜索“Opal”
+
+本人其他文章导读：
+
+[金融：G-Fashion 系列之三–浅谈产品理念](https://gnews.org/zh-hans/685914/)
+
+[CCP Virus’ Impact on Banking Industries](https://gnews.org/685343/)
+
+[What does the CCP Bring to the Developing World?](https://gnews.org/422669/)
+
+片头图：
+
+[https://foreignpolicy.com/2020/04/15/how-the-economy-will-look-after-the-coronavirus-pandemic/embed/](https://foreignpolicy.com/2020/04/15/how-the-economy-will-look-after-the-coronavirus-pandemic/embed/)
+
+参考：[https://www.lightico.com/blog/coronavirus-covid-19-and-the-banking-industry-impact-and-solutions/](https://www.lightico.com/blog/coronavirus-covid-19-and-the-banking-industry-impact-and-solution)
+
+[https://www.americanbanker.com/news/a-biden-cfpb-could-put-pressure-on-mortgage-servicers](https://www.americanbanker.com/news/a-biden-cfpb-could-put-pressure-on-mortgage-servicers)
+
+[https://www.bloomberg.com/news/articles/2021-01-05/u-s-bankruptcy-tracker-pandemic-spurs-most-filings-since-2009](https://www.bloomberg.com/news/articles/2021-01-05/u-s-bankruptcy-tracker-pandemic-spurs-most-filings-since-2009)
+
+[https://tradingeconomics.com/china/gdp-growth-annual](https://tradingeconomics.com/china/gdp-growth-annual)
+
+* * *
+
+0
