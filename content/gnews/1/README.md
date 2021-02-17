@@ -1,25 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 柬埔寨政府颁布法令 建中共式防火墙
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/914451/)
+## 中共取代美国成为欧盟最大贸易伙伴
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/914465/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑  水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-18_01-21-18.jpg)Youtube
-路透社2月17日报道，柬埔寨政府颁布了一项法令，将建立中共式的互联网门户，对网络流量进行控制和监控，这引发了当地民众对民主自由受到威胁的担忧。
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-18_01-30-44.jpg)[eubulletin.com](https://www.eubulletin.com/10550-a-world-of-two-or-three-the-us-china-and-the-eu-in-a-new-global-order.html)
+《布赖特巴特新闻》（Breitbart News）2月17日报道，随着布鲁塞尔和共产主义专政北京之间的关系不断加深，中共在2020年取代美国成为欧盟最大的贸易伙伴。
 
-该门户的运营商将支持当局“采取措施，防止和断开所有影响国家收入、安全、社会秩序、道德、文化、传统和习俗的网络连接”。
+过去的一年里，中共对欧盟进口增长5.6%，欧盟对华商品出口增长2.2%。与此同时，欧盟和美国之间的贸易大幅下降，部分原因是中共病毒疫情阻碍了跨大西洋贸易。欧盟统计局的一份报告显示，美国对欧盟商品的进口下降了惊人的13.2%，而欧洲对美国的出口下降了8.2%。
 
-柬埔寨首相洪森(Hun Sen)正因镇压公民社会和政治反对派而面临国际社会的批评。镇压导致洪森领导的政党权力垄断，许多竞争对手遭到刑事指控，并被判入狱。
+贸易依赖度的转变意味着，中共首次超过美国成为欧盟的主要贸易伙伴。去年欧盟与中共的贸易额为5860亿欧元(合7090亿美元/ 5100亿英镑)，与之相比，欧盟与美国的贸易额为5550亿欧元(合6720亿美元/ 4830亿英镑)。
 
-柬埔寨人权中心(Cambodian Center for Human Rights)执行主任查克·索普(Chak Sopheap)表示，该法对言论自由、隐私、数据保护和公共信息有巨大影响，而柬埔寨的法律框架几乎没有为数字自由提供保护。他强调，“在过去的几年里，因为使用互联网和行使言论自由权利而受到威胁、骚扰甚至起诉的公民数量急剧增加。”
+欧盟领导人对中共恶行保持沉默, 但他们不回避批评对中共态度强硬的美国川普政府。相反，欧盟领导人庆祝民主党人乔•拜登(Joe Biden)当选美国总统，因外界普遍认为拜登家族与中共有商业利益关系，拜登政府对中共更为友好。
 
-最近柬埔寨与美国和欧盟的关系恶化，中共国是柬埔寨的重要经济盟友，又实施完全的中共化言论自由控制模式。继香港、缅甸之后，柬埔寨也在中共高压控制下失去民主自由。中共不除，还有多少国家在共产极权的渗透与祸害下可以独善其身？
+布鲁塞尔与北京之间日益密切的关系已引起质疑。总部位于英国的独立智库Bow集团主席本·哈里斯-昆西（Ben Harris-Quinney）表示，欧盟把自己标榜为“基于规则体系“的全球仲裁人，但他们却毫不犹豫地否定了英国退欧和川普政府的民主决定，认为这是对他们理想规则的贬低。然而，欧盟对中共的违规运作及明显的侵犯人权行为保持沉默。因此贸易增长“不足为奇”。
+
+中共的工业实力依赖于与西方国家的贸易，尽管欧盟对贸易规则和法规有偏好，但欧盟对中共的不公平贸易做法和侵犯人权行为给予了宽容。中共和欧盟之间的贸易很可能会继续增长，谈判代表们在12月原则上同意了一项投资协定，预计贸易将增长1200亿欧元。
+
+尽管欧盟吹嘘自己已从中共政权获得了所谓的“让步”，但欧盟未能要求中共将废除新疆现代奴隶制集中营作为达成协议的先决条件，也未提及普遍的人权问题或香港的反民主镇压。在该协议中，中共政府承认只“努力”落实国际劳工权利。
+
+该协议仍需得到欧洲议会(European Parliament)和各成员国政府的批准，欧盟应该重申其价值观，确保任何贸易关系都包括对人权的高度保护并减少对中共的战略依赖。欧盟对华政策需要彻底反思。
 
 参考链接：
 
-[https://www.reuters.com/article/us-cambodia-internet/cambodia-adopts-china-style-internet-gateway-amid-opposition-crackdown-idUSKBN2AH1CZ](https://www.reuters.com/article/us-cambodia-internet/cambodia-adopts-china-style-internet-gateway-amid-opposition-crackdown-idUSKBN2AH1CZ)
+[https://www.breitbart.com/europe/2021/02/17/china-overtakes-america-as-european-unions-top-trading-partner/](https://www.breitbart.com/europe/2021/02/17/china-overtakes-america-as-european-unions-top-trading-partner/)
 
 0
