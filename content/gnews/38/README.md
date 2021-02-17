@@ -1,51 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## G-Clubs抽奖活动影响巨大，G-Fashion 将是世界上最大的创新
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/912607/)
+## 中共灭佛与佛法势微 贪嗔痴慢疑的集结恶到了极处
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/912719/)
 
-新闻简述：在2021年2月15日的第二段 Getter 视频中，郭先生感叹 G-Clubs 的抽奖活动的巨大影响和看到战友中奖的快乐，还预期了 G-Fashion 的美好前景。
+台湾宝岛准农场 Amitofu
 
-**G-Clubs****抽奖活动影响巨大，****G-Fashion ****将是世界上最大的创新**
+笔者在这里分享个人的浅见说明，释迦牟尼佛以一个王子的身分降生在种姓制度的印度国家里，这样的方式除了破除我相、人相、众生相、寿者相，更对名利、地位、权势舍弃的表法，然而真正的佛法在每个人的自性中，象征佛法精髓的无上正等正觉的觉悟是每个人都与生俱来的，不论是哪一种阶级身份，哪一种种族都有相同的自性，**决定没有分别妄想执着。佛是一念不迷，众生****(****阿赖耶****)****是一念不觉，众生迷了，自性就成了阿赖耶识****，****众生悟了阿赖耶识就是自性。迷与悟是一体的不同状态。**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/justyou-400x225.jpg)
+佛陀掌管的教区是三千大千世界，也就是十万个银河系的概念，佛千百亿万的报身不仅仅无数次在地球上演化教学，也同时存在其他无数的国度，三十六亿百千光一一又出三十六亿百千佛，无处不在，而我们众生的每一个慈悲也代表着佛的化身。
 
-**G-Clubs’ Event Has Huge Impact, G-Fashion Will Be the Biggest Innovation in the World**
+人有生老病死，空间有成住坏空，植物有生住异灭，佛陀在印度婆罗门种姓制度下诞生，所作所为就是打破阶级制度，不分阶级的自性，引导众生追求真正的信仰，赤脚经行脚踏实地与遍法界虚空界众生一同修习佛法，到后来佛法在印度的灭绝，各种湿生卵生胎生化生的生命转为人道出现在世上，加剧了世间的苦难，佛法渐渐消失的原因为何？
 
-然后昨天 G-Clubs 抽奖，影响太大了，影响太大了。这个特别是对任何有脑子的人，它意味着什么？大家都很明白的。我们要培养一个一个的，一些有良知的人，有更多的机会。应该让他们活得更有的体面，特别是…… 这话还有些法律上不能说。接下来呢，据说啊据说，还有更大的活动，更高端的活动，很有意思。
+笔者认为心、佛、众生三者无别，灭掉众生就是灭佛，伤害众生就是伤害佛，中共迫害14亿人民70年，伤害无数的众生，用各种手段统治人民，更可恶的是摧毁追求信仰的道路与追求信仰所具备的善根，灭掉千百年佛像也就意味着灭掉八识田中的佛种，佛法在印度、中国逐渐消失的原因就是**贪嗔痴慢疑的集结恶到了极处**，再加上没有人阻止恶的传播，导致高官菁英成天只能说假话才不致冒犯领导，而引来杀生之祸。在中共的体制下没人敢阻止恶法散布，吝啬佛的端正法要，导致恶果扩散善根的消失。中共不推行中国文化真善的精随，整天搞假杆面杖经济，人才很多但都被教坏了。而我们现在留下的经教虽与古圣大德典籍相近，但真正能教学的老师和能明了的学生，与佛要示现的佛法相差甚异。而佛法最后在印度消失，乃是当时印度国家对佛陀所传教法的吝法因缘所致，多次阻止正法流传久住。
 
-Yesterday’s G-Clubs lottery drawing had huge impact! Especially for those with a brain, what does it mean? Everyone knows it really well. We want to nourish people, people with a conscience, and give them more opportunities. We should allow them to live a more decent life, especially… Well, there is something that I can’t say due to legal concerns. It is said that there will be bigger events and more high-end events next, which will be very interesting.
+公元580年天台宗智者大师为求取破魔大法楞严经，在天台山华顶设置了拜经台，面向西方印度竭诚地礼拜十八年未果而终，后来印度天竺国般刺密谛法师，决定要把楞严经抄录藏匿，打算着带到中国，不料过印度边境时多次被驻守的官吏搜查没收，不许般刺密谛法师带出国。法师想把楞严经背下来，但因旅途艰辛的奔波跋涉疲劳至极以致于忘失，般刺密谛法师最后将经文写在一种极细的白布上，将自己臂膊肉割开，塞进写好的经文白布缝合后，等到刀口平复后再行出国，成功地将楞严经带来中国。
 
-我特别特别地开心，当我看到战友们得到了这样的快乐，和有这些希望和机会的时候，我真的是最开心的。我以前我都感受不到，我现在我感受得更加地贴切。就真的是当你做了一个你自己愿意做，又不是为自己的是为他人的事，你特别开心的时候，那种感觉真的是佛家说的，那真的是，叫做不是清凉的法喜，应该是无缺漏的、真正的这种内心的莲花喜，和大欢喜的感觉。就是那种愉悦感是无法表达的，特别是昨天看到这些战友们抽的那些。
+笔者认为时至今日中共的消灭信仰、灭佛、灭基督、灭天主、灭真主的因果是中共70年来，中南坑高层互相纵容彼此，以偷假骗治国最后高官整天说着违背良心的假话，中南坑听不下真话，也听不进去真话，无限制的伤害人民，最后才会造成中共消灭真理的信仰。本文仅代表个人立场
 
-I am very very happy. I was really the happiest when I saw my fellow fighters get such happiness, hopes and opportunities. I didn’t sense it before, but now I feel it more intimately. Seriously, when you do something willingly, not for yourself but for others, and feel extremely happy, that kind of feeling is really what the Buddhist says. It really is… it’s better than the coolness of dharma joy, it should be a flawless, true, inner, lotus joy and a great happiness. It’s that kind of pleasure that can’t even be expressed, especially yesterday when witnessing these fellow fighters winning those stuff.
+祈祷万佛万神加持七哥与新中国联邦每位战友都能吉祥如意。
 
-我的鞋你们看不到，这鞋太漂亮了，这鞋太漂亮，太漂亮了，这鞋。然后特别是听到这战友抽的这个奖是改变家庭命运的人。太重要了，而且是国内的，太重要了。
+审稿: Athena雅典娜
 
-You can’t see my shoes. These shoes are so awesome. So awesome, these shoes! It’s so important, especially when I heard that the prize won by this brother or sister in arms can change the fate of his/her family. It’s so important, considering that they are in mainland China.
-
-金鸡独立，可以吧，兄弟姐妹们？哇噻，我发现我的功夫可以啊，现在。现在一点也没有……当年的腿功没废啊，可以再战江湖啊。这个腿就没那个腿强，你看着了没有？腿疼就这个腿，就没这个腿强，你看到没有？哇！好，咱这个 G-Fashion 裤子，真是开司米的，太棒了，太棒了，又暖又好，特别的舒服。所以说兄弟姐妹们，我希望每个人都能跟文贵一样，找到那种真的是，那种独特的快乐和欢喜，特别特别的幸福，特别特别的舒服。
-
-Look at my “golden rooster stand”, not bad, right? Brothers and sisters? Wow, I found that my kung fu is not bad. My leg skills now are still as good as the old days, and I can still fight. This leg is not as strong as the other leg, have you seen that? This leg hurts and is not as strong as the other leg. Have you seen? Wow! Well, my G-Fashion pants are cashmere. They are so great, so great, warm and nice, and very comfortable. So brothers and sisters, I hope everyone can be like Miles and find the kind of unique happiness and joy. Very very happy, very very comfortable.
-
-我没想到昨天 G-Clubs 的年会影响这么大，这么多机构主动跟我们联系，希望能跟我们合作，G-Fashion 最起码得一年两年才能成熟，G-Fashion 最起码一年到两年才能形成全世界的销售。现在是刚刚起步，漏洞百出，缺点、挑战，到处都有，包括整合。
-
-I did not expect that yesterday’s G-Clubs annual event would have such a big impact. So many organizations reached to us, hoping to cooperate with us. G-Fashion will take at least one year or two to mature, and at least one year or two years to form a worldwide sale network. It is just taking off now, still with loopholes, shortcomings and challenges everywhere, and still need integration.
-
-但是 G-Fashion 那种与众不同和那种独特的价值，已经大家看得到了。那个唯一性，还有那个特别是 G-Fashion 它给整个时尚世界，和未来整个时尚在全世界上，和质量最大的问题，质量和价格，和材料之间最大的矛盾，还有它的设计的艺术性，是所有品牌的挑战。我觉得 G-Fashion 将是世界上最大的创新，我相信它会走得非常非常远，飞得非常非常的高，而且会非常的成功。谢谢！谢谢，兄弟姐妹们，俺啥都不说了，谢谢！我要工作去了，开会去了。
-
-But G-Fashion has its own uniqueness, its unique value, which has already been seen by everyone. The uniqueness of G-Fashion and especially what it has brought to the entire fashion world, and the entire fashion world in the future… the biggest problem faced by the fashion world is the conflict between quality and price and material. Also the artistry of the design is a challenge faced by all brands. I think G-Fashion will be the biggest innovation in the world. I believe it will go very, very far, and fly very, very high, and be very successful. Thank you! Thank you, brothers and sisters. I won’t talk more. Thank you! I’m going to work, to a meeting.
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-
-视频来源：[https://gtv.org/getter/602ab7e8226e775907444644](https://gtv.org/getter/602ab7e8226e775907444644) (3:33-最后)
-
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/909749/](https://gnews.org/zh-hans/909749/)
-
-翻译：【Isaiah4031】字幕：【奔腾的长江】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
-
-+1
+0
