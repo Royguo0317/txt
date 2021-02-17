@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥: 最大的挑战是中共的威胁以及把国内的事情做好
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/911390/)
+## 哈里斯代表拜登和国家元首通话
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/911400/)
 
 - 编辑：Victor Torres
 - 发稿：Ranting
@@ -10,14 +10,25 @@
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年2月16日电/西喜社——**蓬佩奥周二发推称:
+**西班牙2021年2月16日电/西喜社——**据《国家脉动》2月16日报道，美国副总统卡马拉-哈里斯开始代表总统乔-拜登接听电话，这让人们对他是否有能力胜任总统工作产生了质疑。
 
-我们今天最大的挑战是中共的威胁以及把国内的事情做好—我们需要发展经济，回归让美国如此卓越的传统。如果我们把这两件事做好了，美国下一代的天空是无限的。
+白宫昨天公布了一份题为 “副总统卡马拉-哈里斯与法国总统埃马纽埃尔-马克龙通电话的解读”。
+
+它指出：副总统卡马拉-哈里斯今天与法国总统埃马纽埃尔-马克龙进行了会谈，并表示她致力于加强美国和法国之间的双边关系，并致力于振兴跨大西洋联盟。哈里斯副总统和马克龙总统一致认为，需要开展密切的双边和多边合作，以应对中共病毒、气候变化以及支持国内和世界各地的民主。他们还讨论了众多地区性挑战，包括中东和非洲的挑战，以及共同应对这些挑战的必要性。副总统感谢马克龙总统在性别平等问题上的领导力，以及法国对美国宇航局火星2020毅力号探测器的贡献。
+
+一个副总统在新政府上任仅几周就与世界主要领导人接触，这很奇怪。
+
+哈里斯最近还与加拿大总理贾斯汀-特鲁多进行了交谈。
+
+总统也仍然拒绝给以色列总理内塔尼亚胡打电话。
+
+2020年，拜登称自己为 “过渡候选人”，这让人担忧他对这份工作的承诺以及他是否有能力担任完整的第一个任期，更不用说潜在的两个任期了。
+
+一些人还注意到，哈里斯可能会在6月的八国集团会议上领导美国代表团，特别是如果拜登还在忙着玩马里奥卡丁车的话。
 
 
 
-> Our biggest challenges today are the threat of the CCP & getting things right at home — we need to grow the economy and return to the traditions that made America so exceptional. If we get those two things right, the sky is the limit for the next generation of America.
-> — Mike Pompeo (@mikepompeo) [February 16, 2021](https://twitter.com/mikepompeo/status/1361703905126662148?ref_src=twsrc%5Etfw)
+> [Kamala Harris Is Now Making Joe Biden’s Head of State Calls for Him.](https://thenationalpulse.com/news/kamala-harris-is-now-taking-joe-bidens-head-of-state-calls-for-him/)
 
 
 
