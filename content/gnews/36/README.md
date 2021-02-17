@@ -1,27 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 缅甸政变军方对昂山素季提出新指控
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/911965/)
+## 华为改养猪也改不了被淘汰的命
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/912003/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+撰稿：冰沙奶茶
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-17_06-26-23.jpg)[reiffcenterblog.cnu.edu](https://reiffcenterblog.cnu.edu/2016/01/myanmar-and-the-karen-conflict-the-longest-civil-war-you-have-never-heard-of/)
-《印度快报》（The Indian Express）2月16日消息，缅甸当局对该国领导人昂山素季提出了第二项指控。
+审核：永远小学生 编辑：五饼二鱼
 
-缅甸军方于2月1日发动了军事政变，拘捕了民主政府领导人昂山素季。因其在家中使用了未经登记的进口对讲机，被起诉违反了缅甸的进出口法。现昂山素季再次面临违反缅甸自然灾害法的指控。有关指控的进一步细节目前尚不清楚，该违规行为被用于起诉那些违反中共病毒社交限制的人。
+据中共墙内新浪网2021年2月15日报道：近日，任正非首次公开提及华为“南泥湾”计划，即生产自救，包括在煤炭、钢铁、音乐、智慧屏、PC电脑、平板等各个领域的突破，华为不靠手机业务也可以存活。随后，华为机器视觉领域总裁段爱国推出了“华为智慧养猪解决方案”。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/16135326611.png)网络截图
+消息一出，引起网友一片哗然，看来靠偷是不能长久的。
 
-据美联社(Associated Press)报道，由于军政府上周对该国刑法进行了修改，这项指控可能会允许在没有法庭许可的情况下拘留嫌疑人，并无限期拘留。
+因为受到美国科技制裁影响，高端芯片的缺货给华手机业务造成巨大的影响。根据市场研究机构IDC发布的《2020年第四季度全球手机出货量报告显示》，华为的市场份额排名滑落至第五名，出货量仅有3230万占比8.4%，同比大幅下滑42.4%。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/16135326971.png)易网网络截图
+同樣的市場格局變化，在其他的研究機構報告中同樣有所體現。Counterpoint最新報告顯示，2020 年第四季度，華為智能手機出貨量排名全球第六，僅有3300萬部，市場份額僅有8%，較去年同期下降41%，環比上壹季度下降35%。另外，在 Canalys的報告中，華為更是被擠到了“others（其他）”隊列中，沒有具體的數據體現。在Canalys給出的全球智能手機排行榜中，分列華為之前的分別有蘋果、三星、小米、OPPO和vivo。而在中共國市場上，華為（包括榮耀）在2020年第四季度出貨量達1880萬，市場份額從上壹季度的41%下降至22%，而小米、OPPO和vivo等均實現了同比增長，分別增長了52%、23%、20%。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/16135327181.png)易网网络截图
+回顾华为的发迹，从头到尾就是一部官商勾结、偷窃、欺骗的历史。被美国认定为中共军方企业，我们确实看到华为这种奇葩的迅速成长，网络上广为流传顺口溜印证华为所谓的技术：“一靠买、二靠偷，研发秘籍记心头；买回来、偷回来，加班熬夜连忙改。”同时华为也是不折不扣的黑手在海外为中共从事间谍活动。只有中共这样腐败体制才能孕育一个如此劣迹斑斑的公司，竟能从一个无名小卒打造成全球最大的电信设备及智能手机制造商之一。好在有爆料革命，世界在觉醒，如今重锤之下所谓的行业大佬举步维艰，不得不“华丽”转身，投身并无多少高科技的养猪业也是糊弄人的把戏，华为最终将被淘汰掉。
 
-昂山素季的律师和她的全国民主联盟(National League for Democracy)表示，自从她被拘留以来，他们就无法与她取得联系。面对持续不断的反对政变抗议和要求释放昂山素季的呼声，缅甸军方回应，昂山素季“健康状况良好”。
+本文纯属个人观点
 
-周二，缅甸各地的抗议者再次走上街头。联合国缅甸问题特使表示缅甸军政府“没想到会有这么多人走上街头。” 美国、联合国和其他几十个国家敦促军政府还政于缅甸民选政府。联合国缅甸问题特使指出，“世界各地的团结非常重要，不能接受这次政变。”
+资料摘自
+[https://finance.sina.com.cn/tech/2021-02-15/doc-ikftssap5902148.shtml](https://finance.sina.com.cn/tech/2021-02-15/doc-ikftssap5902148.shtml)
 
-参考链接：
-
-[https://indianexpress.com/article/world/myanmar-coup-aung-san-suu-kyi-faces-new-charge-7191470/](https://indianexpress.com/article/world/myanmar-coup-aung-san-suu-kyi-faces-new-charge-7191470/)
-
-[https://indianexpress.com/article/world/myanmar-police-file-additional-charge-against-aung-san-suu-kyi-lawyer-7191141/](https://indianexpress.com/article/world/myanmar-police-file-additional-charge-against-aung-san-suu-kyi-lawyer-7191141/)
-
+[https://www.163.com/dy/article/G2V5TVQL0534NB1V.html](https://www.163.com/dy/article/G2V5TVQL0534NB1V.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-澳喜Logo.jpeg)
 0
