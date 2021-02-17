@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共长期发动灭白超限战
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/912256/)
+## 赢得川普弹劾案的大律师接受福克斯采访称被严重骚扰和恐吓
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/912168/)
 
-台湾宝岛准农场 Amitofu
+听写：光耀华夏 翻译：Jenny
 
-新的作战原理已不再是用武力手段强迫敌方接收自己的意志，『**而是用一切手段****，****用武力和非武力、军事和非军事、杀伤案非杀伤手段，强迫敌方接受自己的利益**』，这句话是从中国国防大学教授乔良少将与空军大校王湘穗合着的军事理论著作，1999年发表的『超限战』一书，其中提到的新型态战争方式。中共从传统战争转向隐形战争，中共对美国的3F计画13579征服世界2025、2035、2049最终是灭白计画，消灭全球白人菁英，从华尔街金融市场上取的资金，来左右美国政府政策，收买州长、参、众议员，收购窃取高科技产业，安排学者、学生到顶尖学院偷取和收集研究成果、奴役14亿人生产低价商品来打击其他国家经济产能，媒体超限战的言论审查，到今天中共发动生化病毒的准战争，改变了美国总统大选，也改变了全人类的生活方式。
-![](https://lh4.googleusercontent.com/ZJw_vfjDB1PCEKznaTw1a5bSrb1pOALQRRHgw03PxJLacO4ZKgxpksDdscpdg2Uk1H5fU3u7MMpWJgSF299xXFWqTOtXul5tivMEcMSflxUHPKt4_Of31piXvYa2uysNNfaOU0Fn)
-中共将军事武力的侵略，透过极权资本主义的科技与市场体制的转换，购买美国媒体高科技公司、好莱坞等，发动生化、政治、经济、技术、等暴力的超限战，我们才会看到美国总统大选中，中共对美国的媒体暴力、网路暴力到政治暴力，中共发动的是超越一切界线，没有道德底线，没有规范，全球化组合式的战争，中共70年来一直认为发展自我壮大，最大的挑战、最大的威胁就是美国，中共想要取代美国成为全球经济和军事上的霸主，实现统治全球的野心。
+视频字幕：Gradient /必有回响 校对：Jony（8 Mile）
 
-本文仅代表个人立场祈祷万佛万神加持七哥与新中国联邦战友
+日前，帮川普赢得无罪辩护的大律师迈克尔· 范· 德温（Michael Van Der Veen)，一时间爱他的人欢呼他为英雄，而恨他的”左疯“也立即拿出黑名贵，安提法流氓手段对其展开攻击，迈克尔在采访中几乎哽咽的谈到他的家人以及他的事务所被一群抗议者包围挟持。
 
-资料来源:七哥直播
+[大纪元也有报道：](https://www.epochtimes.com/gb/21/2/14/n12751817.htm?utm_source=dable)
 
-[更多台湾农场精采文章](https://gnews.org/zh-hant/author/taiwangnews/)
+现场的一张照片显示，有人在迈克尔·范德温家中的车道上喷涂了“叛徒”。
 
-[更多台湾农场精采直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+“昨晚我的家遭到袭击-窗户破损，喷漆，到处都喷漆着很不好的话，”
 
-文章审核：zhong、Amitofu
+“我有近100个死亡威胁。” 范德文告诉记者。
 
-发布者：Little Liu
+视频链接：YouTube[https://youtu.be/kvz4zUeRpxA](https://youtu.be/kvz4zUeRpxA)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-澳喜Logo.jpeg)
+
 
 0

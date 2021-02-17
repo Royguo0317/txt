@@ -1,51 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## G-Clubs抽奖活动影响巨大，G-Fashion 将是世界上最大的创新
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/912607/)
+## 因中共对维吾尔人的 &#8220;种族灭绝&#8221;，奥图尔呼吁北京奥运会迁址
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/913918/)
 
-新闻简述：在2021年2月15日的第二段 Getter 视频中，郭先生感叹 G-Clubs 的抽奖活动的巨大影响和看到战友中奖的快乐，还预期了 G-Fashion 的美好前景。
+- 编辑：Victor Torres
+- 发稿：Ranting
 
-**G-Clubs****抽奖活动影响巨大，****G-Fashion ****将是世界上最大的创新**
 
-**G-Clubs’ Event Has Huge Impact, G-Fashion Will Be the Biggest Innovation in the World**
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-然后昨天 G-Clubs 抽奖，影响太大了，影响太大了。这个特别是对任何有脑子的人，它意味着什么？大家都很明白的。我们要培养一个一个的，一些有良知的人，有更多的机会。应该让他们活得更有的体面，特别是…… 这话还有些法律上不能说。接下来呢，据说啊据说，还有更大的活动，更高端的活动，很有意思。
+**西班牙2021年2月17日电/西喜社——**据加拿大《CTV新闻》2月16日报道，在中共对少数民族维吾尔人进行 “种族灭绝 “的情况下，保守党领袖奥图尔(Erin O’Toole)呼吁政府推动明年北京奥运会的新东道主。
 
-Yesterday’s G-Clubs lottery drawing had huge impact! Especially for those with a brain, what does it mean? Everyone knows it really well. We want to nourish people, people with a conscience, and give them more opportunities. We should allow them to live a more decent life, especially… Well, there is something that I can’t say due to legal concerns. It is said that there will be bigger events and more high-end events next, which will be very interesting.
+“我想加拿大人会同意，参加一个对部分人口实施种族灭绝的国家主办的奥运会，将违反基本的道德原则，”他星期二说。
 
-我特别特别地开心，当我看到战友们得到了这样的快乐，和有这些希望和机会的时候，我真的是最开心的。我以前我都感受不到，我现在我感受得更加地贴切。就真的是当你做了一个你自己愿意做，又不是为自己的是为他人的事，你特别开心的时候，那种感觉真的是佛家说的，那真的是，叫做不是清凉的法喜，应该是无缺漏的、真正的这种内心的莲花喜，和大欢喜的感觉。就是那种愉悦感是无法表达的，特别是昨天看到这些战友们抽的那些。
+奥图尔说，总理贾斯汀-特鲁多应该与国际奥委会联系，以转移2022年冬季奥运会。
 
-I am very very happy. I was really the happiest when I saw my fellow fighters get such happiness, hopes and opportunities. I didn’t sense it before, but now I feel it more intimately. Seriously, when you do something willingly, not for yourself but for others, and feel extremely happy, that kind of feeling is really what the Buddhist says. It really is… it’s better than the coolness of dharma joy, it should be a flawless, true, inner, lotus joy and a great happiness. It’s that kind of pleasure that can’t even be expressed, especially yesterday when witnessing these fellow fighters winning those stuff.
+他说：”加拿大不应该在种族灭绝中向中共国派遣运动员。”但他没有说明加拿大应该抵制奥运会—或者出面主办奥运会。
 
-我的鞋你们看不到，这鞋太漂亮了，这鞋太漂亮，太漂亮了，这鞋。然后特别是听到这战友抽的这个奖是改变家庭命运的人。太重要了，而且是国内的，太重要了。
+中共一直被指责利用强制节育来限制维吾尔族人的出生，并利用拘留营将这个以穆斯林为主的少数民族灌输到中国主流社会。
 
-You can’t see my shoes. These shoes are so awesome. So awesome, these shoes! It’s so important, especially when I heard that the prize won by this brother or sister in arms can change the fate of his/her family. It’s so important, considering that they are in mainland China.
+北京否认在新疆有任何不法行为，称其正在实施一项自愿就业和语言培训计划。
 
-金鸡独立，可以吧，兄弟姐妹们？哇噻，我发现我的功夫可以啊，现在。现在一点也没有……当年的腿功没废啊，可以再战江湖啊。这个腿就没那个腿强，你看着了没有？腿疼就这个腿，就没这个腿强，你看到没有？哇！好，咱这个 G-Fashion 裤子，真是开司米的，太棒了，太棒了，又暖又好，特别的舒服。所以说兄弟姐妹们，我希望每个人都能跟文贵一样，找到那种真的是，那种独特的快乐和欢喜，特别特别的幸福，特别特别的舒服。
+特鲁多说，种族灭绝是一个 “极度负荷 “的词汇，应严格按照国际公认的标准谨慎使用，并警惕淡化其严重性。
 
-Look at my “golden rooster stand”, not bad, right? Brothers and sisters? Wow, I found that my kung fu is not bad. My leg skills now are still as good as the old days, and I can still fight. This leg is not as strong as the other leg, have you seen that? This leg hurts and is not as strong as the other leg. Have you seen? Wow! Well, my G-Fashion pants are cashmere. They are so great, so great, warm and nice, and very comfortable. So brothers and sisters, I hope everyone can be like Miles and find the kind of unique happiness and joy. Very very happy, very very comfortable.
+“毫无疑问，新疆出现了巨大的侵犯人权行为，”他周二说。
 
-我没想到昨天 G-Clubs 的年会影响这么大，这么多机构主动跟我们联系，希望能跟我们合作，G-Fashion 最起码得一年两年才能成熟，G-Fashion 最起码一年到两年才能形成全世界的销售。现在是刚刚起步，漏洞百出，缺点、挑战，到处都有，包括整合。
+使用这个词必须 “有适当的理由和证明，以便不削弱过去情况下‘种族灭绝’的适用性”。
 
-I did not expect that yesterday’s G-Clubs annual event would have such a big impact. So many organizations reached to us, hoping to cooperate with us. G-Fashion will take at least one year or two to mature, and at least one year or two years to form a worldwide sale network. It is just taking off now, still with loopholes, shortcomings and challenges everywhere, and still need integration.
+这个词是否适用于中共，是 “在维吾尔人的情况下，我们应该研究的问题，”他说。
 
-但是 G-Fashion 那种与众不同和那种独特的价值，已经大家看得到了。那个唯一性，还有那个特别是 G-Fashion 它给整个时尚世界，和未来整个时尚在全世界上，和质量最大的问题，质量和价格，和材料之间最大的矛盾，还有它的设计的艺术性，是所有品牌的挑战。我觉得 G-Fashion 将是世界上最大的创新，我相信它会走得非常非常远，飞得非常非常的高，而且会非常的成功。谢谢！谢谢，兄弟姐妹们，俺啥都不说了，谢谢！我要工作去了，开会去了。
+特鲁多补充说，加拿大奥委会和加拿大残奥会委员会以及国际奥委会 “正在非常密切地关注 “有关搬迁奥运会的呼吁。
 
-But G-Fashion has its own uniqueness, its unique value, which has already been seen by everyone. The uniqueness of G-Fashion and especially what it has brought to the entire fashion world, and the entire fashion world in the future… the biggest problem faced by the fashion world is the conflict between quality and price and material. Also the artistry of the design is a challenge faced by all brands. I think G-Fashion will be the biggest innovation in the world. I believe it will go very, very far, and fly very, very high, and be very successful. Thank you! Thank you, brothers and sisters. I won’t talk more. Thank you! I’m going to work, to a meeting.
+奥图尔提出该要求前，本月早些时候，来自各党派的十多个联邦立法者因对维吾尔族和其他穆斯林少数民族的 “种族灭绝运动 “而发出了呼吁搬迁冬奥会的信。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+这封信的签署人包括13名国会议员以及金牌得主让-吕克-布拉萨德（Jean-Luc Brassard），是在约180个人权组织呼吁抵制定于2022年2月4日开幕的北京奥运会之后发出的。
 
-视频来源：[https://gtv.org/getter/602ab7e8226e775907444644](https://gtv.org/getter/602ab7e8226e775907444644) (3:33-最后)
+渥太华对这一问题的微妙处理是在过去两年中与这个全球超级大国的紧张关系加剧的背景下进行的，此前北京要求加拿大释放一名因欺诈罪而被美国通缉的通信巨头华为公司的高管。
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/909749/](https://gnews.org/zh-hans/909749/)
+孟晚舟也是该公司创始人的女儿，她否认了这些指控，中共称这些指控是出于政治动机，是美国扼杀本国经济扩张努力的一部分。
 
-翻译：【Isaiah4031】字幕：【奔腾的长江】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+前加拿大外交官康明凯(Michael Kovrig)和加拿大企业家斯帕弗(Michael Spavor)在2018年12月加拿大皇家骑警根据美国的引渡令在温哥华机场逮捕孟晚舟9天后被中共国当局围捕。
 
-+1
+新民主党领袖贾格米特-辛格表示，他支持为2022年奥运会寻找新东道主的呼吁。
+
+“如果加拿大是一个选择，我当然会为加拿大能够举办奥运会而感到骄傲，”他告诉记者。
+
+绿党领袖安纳米-保罗上周建议加拿大主办奥运会，可能是与美国联合举办。
+
+加拿大驻联合国大使鲍勃-雷11月呼吁联合国调查中共对新疆穆斯林维吾尔族人的迫害是否构成种族灭绝。
+
+加拿大议会的一个小组委员会在10月的一份报告中得出结论说，中共对维吾尔人的待遇确实构成了种族灭绝，但中共拒绝接受这一定性，认为这是毫无根据的。
+
+**新闻来源：[CTV新闻](https://www.ctvnews.ca/mobile/politics/o-toole-calls-for-relocation-of-beijing-olympics-due-to-china-s-genocide-of-uighurs-1.5310842)**
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+
+0
