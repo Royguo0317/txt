@@ -1,37 +1,108 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 柏拉图的“洞穴隐喻”
-` GM65` [轉載自GNews](https://gnews.org/zh-hans/911483/)
+## 关于《非典非自然起源和人制人新种病毒基因武器》详解三
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/911517/)
 
-一
+#### 撰稿：Maarago 审核：pv0 / Peace Wind
 
-古希腊哲学家柏拉图在其经典著作《理想国》中，借助苏格拉底与朋友的对话，阐述了一个“洞穴隐喻”，其大概意思是：
+- ![]()![](https://gnews.org/wp-content/uploads/2021/02/详解三-1.png)
 
-在一个地下洞穴里住着一群囚徒，他们从出生就被枷锁禁锢了手脚和脖子，终生囚禁在洞里。因为他们的头被固定，所以只能看到面前的洞穴墙壁，看不到身后洞穴里的其他情景，以及一条通外洞外的、宽阔的通道。在他们身后有一堵矮墙，一群人时常沿着矮墙来回走动，手里高举着用木头和石头做的人、动物、器物的模型。在矮墙后面的高处，有一堆燃烧的篝火，将这些来回移动的模型的影子投射到囚徒面前的墙上。所以，囚徒们整日看到的是对面墙上反射的影子，听到的是来回走动的人说话的回音，（好像我们看过的皮影戏一样）。囚徒们可以交谈，于是他们争相给看到的东西起名字或猜测下一个出现什么，并褒奖他们中的优胜者。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/What-is-Platos-Allegory-of-the-Cave-1.jpg)（图片源自网络）
-突然有一天，其中一个囚徒松开了枷锁，变得可以自由活动身体。经过一番挣扎，他穿过通道来到洞穴外面，第一次感受到了树木、花草、动物的真实存在。刚从阴暗处来到光亮处时，他眼睛被光刺痛，感觉很痛苦。（柏拉图说这是一个打破旧习适应新环境的艰难、漫长的过程，而且需要别人帮助和指导。）当看到、摸到外面世界真实存在的事物时，自由人意识到以前在洞中看到的那些不过是影子，虚幻不实，而且毫无意义。当眼睛更适应一些，他抬头看到了天，蓝天、白云、星月，以及最重要的太阳，此时他意识到，在万事万物之上，还有一个涵盖和维持万物存在和生长的太阳。此时，他已经从过去被禁锢在幻象中的囚徒变成了真实世界的自由人。柏拉图认为教育开智从中起关键作用，正义、勇气等美德也必不可少，而太阳代表的则是超脱一切有形事物之上的真理。
 
-接下来有一个转折。出了洞穴的囚徒找到了自由和幸福，但回想起过去在洞中生活的痛苦和虚幻，想到那些玩偶模型的影子，想到他的囚徒同伴和他们为之争抢的愚蠢、琐碎、无意义的“游戏”，他感到了一种同情和责任，决定回到洞中告诉同伴真实世界是什么样的，而他们又是如何被控制和摆弄的。从光明到阴暗，他的眼睛再次经历痛苦的适应过程。但当囚徒们听了自由人的一番描述，却因为无知和不理解而认定自由人疯了，说的话无意义、疯狂，甚至危险、带有欺骗性，对他表示出厌恶和敌视。柏拉图说，囚徒们有三种可能的反应：嘲笑自由人，（而柏拉图说，只有自由人才有资格嘲笑当时的情景），认为自由人的目的是打击、损害他们已有的见解，还有暴力威胁，甚至找机会杀死自由人，（正如古希腊人判处苏格拉底死刑一样）。柏拉图不认为所有获得自由的囚徒都会选择返回洞中解救同伴，但在他的“理想国”中，这个自由人选择了回去。
+路德社自[2/9/2021路德时评（路博艾冠谈嘉宾闫博士）：川普弹劾案参议院通过不违宪投票；美国蓬佩澳以及白宫对中共联合世卫的溯源报告纷纷否定意味着什么？军事科学院出版的教材揭露](https://youtu.be/UmoUdW5r5fU)起开始探讨《非典非自然起源和人制人新种病毒基因武器》这本书，而这本书可以说是中共关于基因武器的最权威的理论基础。截至本稿发稿前路德社已经连续在[2/10/2021路德时评（路安墨谈）：](https://youtu.be/a4oIAEQveOg)和[2/10/2021路德时评（路博艾冠谈）：拜登和习近平最快今晚通电话会勾兑哪些？继续深入挖中共军事科学院教材的内容揭示众多真相（第三期）；](https://www.youtube.com/watch?v=V10SKiS1vpc)做了三期节目，解读什么是基因武器、到底哪些人参与了这本书的编纂、在这本书里到底谈了哪些关于基因武器的问题。本系列将根据路德社的解读和《非典非自然起源和人制人新种病毒基因武器》书中的内容进行详细解读。
 
-二
+以下为《非典非自然起源和人制人新种病毒基因武器》的第三部分，在这一部分里我们从该书第12页的“本书提出的新术语”说起——
 
-柏拉图的《理想国》被认为西方政治哲学，乃至西方文明的奠基之作，“洞穴隐喻”出现在第七卷，目的在于说明哲学教育的重要性，真理高于人们认知的存在，以及超越物质形式追求事物真谛的意义，是书中被引用最多的内容之一，不同时期、不同人有着不同的解读。笔者读后心有戚戚焉。
+原书注：［本书提出的新术语，指目前国内外尚未见的流行病学和基因武器术语；是由我们首次提出，用汉语表述。因此，括弧内的英文注，仅供国外学者参考。］
 
-柏拉图所描述的囚徒有一个特点，他们从一出生就被枷锁禁锢，见到、听到的都是对面墙壁上反射出的影子和回音，那些虚幻、毫无意义的影子是他们的认知世界里的全部，除此之外，他们一无所知。他们通过相互交谈选出了能猜中影子的“佼佼者”，推崇那些夸夸其谈和愚蠢的游戏，却排挤、打压那些对影子提出质疑的同伴。不但如此，他们对自己的“无知”也一无所知，反而认为他们感知的就是世间的一切，就是“现实”，却并不知道洞穴外面除了影子，还有真实存在的万物，以及超越万物代表真理的阳光。他们穷其一生，不过是维持生命地苟活着。
+关于这一段注解可以证明在本节中列明的基因武器的术语绝对为中共军事专家独创，而独创术语的背后则意味着独步全球的研究成果及对成果的定义——这同样证明了在基因武器方面中共及中共党卫军的反人类先驱地位。
 
-中国人70年，至少三代人，就是被类似防火墙、虚假繁荣这样的枷锁禁锢着，在被剥削和欺骗中成长起来的。我们看到的是“一切都是党的，一切都听党的”、“没有党就没有好生活”、“为人民服务”的影子，却生活在愚民、高压统治体系里，我们明明无法自由表达自己的思想、实践自己的信仰，没有拒绝一切侵犯自己人身和财产自由的权利，在那个“官大一级压死人”的体制中，很多人活的没有尊严和意义，却总是被冠以高大上的说辞，与洞穴里的囚徒何其相似？不但如此，即使柏拉图的隐喻也无法预见的一点是，中国人民在被禁锢的同时，血被渐渐抽干，创造的价值被源源不断地掠夺并输送到其它地方，留给中国人的是一个污染遍地、秩序混乱、人文倒退、病毒肆虐、隐患重重、千疮百孔的阴暗、巨大的“洞穴”。
+1、中东SARS（the Middle East severe acute respiratory syndrome, ME-SARS）：由中东呼吸综合征冠状病毒（the Middle East respiratory syndrome coronavirus，MERS-CoV）引起、中东为自然疫源地、动物为主要传染源、目前在家庭或医院具有限的人-人传播、其病毒和SARS-CoV同为一属且临床表现非常类似的新发传染病。
 
-柏拉图的隐喻意在说明教育的重要性和真理存在的形式。可知，解放第一个囚徒的是教育。但这并非中共国治下人们追逐的、一般意义上的升学考试，更不是通过书本、媒体、网络、舆论强加给中国人民的洗脑，而是真正的追求世界本质、追求真理的人性启蒙，正道主义。它应该让我们具备一种能力，可以区分影子和实物，认清我们自己和世界的关系，并且有能力和动力追求代表真理的阳光。从根本上说，让我们活成有尊严的个人，而不是金钱、权利和阶级的奴隶。现在，我们很多人已经挣脱了这个枷锁，看到了通往自由世界的通道。
+关于中东呼吸症的生化战争本质目前虽没有公开资料佐证，但从其冠状病毒属性和财新网关于中东呼吸症的报道轨迹看，非常有可能是中共在全球开展的另一起基因武器试验，限于篇幅，本文不对这一部分进行详细剖析，但请务必关注财新网关于中东呼吸症的报道轨迹，请读者自行寻找答案——[财新网关于MERS（中东呼吸综合症）的报道轨迹](https://search.caixin.com/newsearch/search?special=false&amp;keyword=MERS&amp;channel=&amp;type=1&amp;sort=1&amp;time=&amp;startDate=&amp;endDate=&amp;page=1)
 
-其实，成为自由人的囚徒在得到阳光下的幸福生活后有三种选择：
+2、自然进化型人类新发传染病（emerging human infectious diseases by natural evolution pathogen, EHID-bNEP）：由动物病原体，在自然界中经非常漫长持续的适应性进化，不断跨越一系列种间屏障，正在或部分或基本甚至完全适应于人群所致流行的新传染病。
 
-第一，留在洞外，独善其身，再也不要回到洞中，更不要与洞里的囚徒和影子有任何瓜葛。
+由于笔者并非此间专业人士，对于这条定义我能想象到的就是自然界发生的流行性感冒等自然存在的致病病毒。自然进化型人类新发传染病作为该书的专用术语列明，意味着导致这种所谓自然进化型人类新发传染病的病毒就是中共生物武器库的成员并且属于早期的生物武器。
 
-第二，自以为见过阳光，意图通过制造更多影子控制其他囚徒，于是穿梭于洞穴与外界之间，加入影子制造者的行列，成为欺骗和禁锢囚徒的帮手。像不像生活中我们所说的中共、“欺民贼”？还有袁腾飞老师说的“大pi眼子”？实际上，控制囚徒的是枷锁，而控制他们的是欲望和贪念，把生命浪费在洞穴与外界的交替穿梭中，他们亦失去了享受广阔天地的机会和追求真理的本能，而且还可能承担频繁交替带来的焦灼和后果。
+3、人制人病原体动物群体性适应试验（adaptive trial among animal groups for artificial human pathogen, ATagAHP）：将动物病原体（目前主要为病毒）以各种方式和途径，攻击与人类细胞受体十分相似的或与人类近亲的动物，并做多种多样的许多次传代，最终使之适应在该种动物群体内传播，再通过类似方式部分适应于人群。
 
-第三，自由人冒着被嘲笑、排挤甚至杀害的危险，返回洞穴，唤醒其他囚徒。他怀着同情心和责任感，知道外面世界亦充满艰险，明白人类社会只有分工合作、共同繁荣才能有未来。他的唤醒可能触怒那些仍在禁锢中的同伴，让他们感到不解、彷徨，甚至愤怒，是一个充满了被误解、被挑衅甚至被伤害的危险的选择。但如果没有人这么做，洞穴里的囚徒会渐渐死去，洞穴的问题会越来越多，总有一天可能因为无可挽回而最终坍塌，洞穴上面的世界也会随之陷落。如果真的到了那一天，阳光依旧照耀，真理永远存在，但人们有可能彻底失去追逐阳光、追求真理的机会。只有越来越多的“囚徒”被唤醒，才可能有未来和希望。“爆料革命”的战友和美国的有识之士便是明白了这一点，做出了这个选择。班农先生经常说，“只有中国人民自由了，世界人民才能真正自由”。中国社会如今面临的问题就是最真实的阐释。无论多难多险，这似乎是我们唯一的选择。2500年前，柏拉图的一个隐喻，似乎说中了今天现实的要害。
+关于这一部分的最佳例证见于石正丽的论文——[A SARS-like cluster of circulating bat coronaviruses shows potential for human emergence](https://www.nature.com/articles/nm.3985)发表于2015年11月9日（[Published: 09 November 2015](https://www.nature.com/articles/nm.3985%2523article-info) ）提到的：只要把蝙蝠身上的S蛋白里头ACE2这个受体开关只要一调，这个病毒马上就可以传染给人，对应的英文原文是——【Therefore, we synthesized the SHC014 spike in the context of the replication-competent, mouse-adapted SARS-CoV backbone (we hereafter refer to the chimeric CoV as SHC014-MA15) to maximize the opportunity for pathogenesis and vaccine studies in mice ([Supplementary Fig. 2a](https://www.nature.com/articles/nm.3985%2523MOESM18)). Despite predictions from both structure-based modeling and pseudotyping experiments, SHC014-MA15 was viable and replicated to high titers in Vero cells ([Supplementary Fig. 2b](https://www.nature.com/articles/nm.3985%2523MOESM18)). Similarly to SARS, SHC014-MA15 also required a functional ACE2 molecule for entry and could use human, civet and bat ACE2 orthologs ([Supplementary Fig. 2c,d](https://www.nature.com/articles/nm.3985%2523MOESM18)). To test the ability of the SHC014 spike to mediate infection of the human airway, we examined the sensitivity of the human epithelial airway cell line Calu-3 2B4 (ref. [9](https://www.nature.com/articles/nm.3985%2523ref-CR9)) to infection and found robust SHC014-MA15 replication, comparable to that of SARS-CoV Urbani ([Fig. 1c](https://www.nature.com/articles/nm.3985%2523Fig1)). To extend these findings, primary human airway epithelial (HAE) cultures were infected and showed robust replication of both viruses ([Fig. 1d](https://www.nature.com/articles/nm.3985%2523Fig1)). Together, the data confirm the ability of viruses with the SHC014 spike to infect human airway cells and underscore the potential threat of cross-species transmission of SHC014-CoV.】【The results indicate that group 2b viruses encoding the SHC014 spike in a wild-type backbone can efficiently use multiple orthologs of the SARS receptor human angiotensin converting enzyme II (ACE2), replicate efficiently in primary human airway cells and achieve in vitro titers equivalent to epidemic strains of SARS-CoV.】
 
-（文章仅代表作者本人观点。谢谢阅读。欢迎探讨。）
+**（该论文作者：**[Vineet D Menachery](https://www.nature.com/articles/nm.3985%2523auth-1)**, **[Boyd L Yount Jr](https://www.nature.com/articles/nm.3985%2523auth-2)**, **[Kari Debbink](https://www.nature.com/articles/nm.3985%2523auth-3)**, **[Sudhakar Agnihothram](https://www.nature.com/articles/nm.3985%2523auth-4)**, **[Lisa E Gralinski](https://www.nature.com/articles/nm.3985%2523auth-5)**, **[Jessica A Plante](https://www.nature.com/articles/nm.3985%2523auth-6)**, **[Rachel L Graham](https://www.nature.com/articles/nm.3985%2523auth-7)**, **[Trevor Scobey](https://www.nature.com/articles/nm.3985%2523auth-8)**, **[Xing-Yi Ge](https://www.nature.com/articles/nm.3985%2523auth-9)**, **[Eric F Donaldson](https://www.nature.com/articles/nm.3985%2523auth-10)**, **[Scott H Randell](https://www.nature.com/articles/nm.3985%2523auth-11)**, **[Antonio Lanzavecchia](https://www.nature.com/articles/nm.3985%2523auth-12)**, **[Wayne A Marasco](https://www.nature.com/articles/nm.3985%2523auth-13)**, **[Zhengli-Li Shi](https://www.nature.com/articles/nm.3985%2523auth-14)** & **[Ralph S Baric](https://www.nature.com/articles/nm.3985%2523auth-15)**）**
+
+类似的论文举不胜数，请移步闫丽梦博士两篇科学报告结尾部分参考文献查寻例证。
+
+请注意从这条定义开始往下依次展开基本可以绘制出中共生物基因武器的线路图，此为其中一环——人制人病原体动物群体性适应试验
+
+4、基因武器型人类新发传染病（emerging human infectious diseases by genetic weapon, EHID-bGW）：非自然起源，以基因改造技术和动物群体传代适应试验等方法，将动物病原体，制成人类新品种病原体战剂所致新传染病。目前至少又可分为两种（亚）类型，即“过客型（passenger type）”和“生态型（ecology type）”。
+
+关于这一部分以笔者的非专业人士眼光来看，主要是应用CRSPR技术进行基因编辑和动物迭代实验对病毒进行种群间迭代传染和进化产生致病型病毒的过程。
+
+这条术语与第3条术语的存在对应关系，用基因编辑方式生产出来的基因武器型人类新发传染病病毒必须经过人制人病原体动物群体性适应试验检验。
+
+5、过客病毒（passenger virus），即由非自然进化技术，将动物病毒改造成致人发病、并因完全不适应于人类且无贮存宿主，经一次（间断）流行后即在自然界和人群中消失之病毒。
+
+关于这一段从已经发生的2003年非典病毒的流行和消失可以窥见端倪，也就是说非典SARS-CoV完全具备过客病毒的特征。
+
+这条术语与本文第条术语对应，属于在中共掌握基因技术之前制备的生物武器类型，这种病毒与基因改造技术生产出来的病毒的不同之处在于过客病毒属于传统的实验改造，在改造过程中没有使用基因技术。
+
+6、过客型基因武器型人类新发传染病（emerging human infectious diseases by genetic weapon (passenger type)， EHID-bGWpt）：将动物病毒以基因技术发行和动物群体传代适应等试验后，研制成自然界无贮存宿主的人类新品种病原体战剂所致新传染病。
+
+中共病毒是否完全具备了这种过客型基因武器型人类新发传染病的定义特征呢？
+
+这条术语与第5条术语对应，属于中共在掌握了基因改造技术之后制造的生物武器类型。
+
+7、生态型基因武器型人类新发传染病［emerging human infectious diseases by genetic weapon（ecology type），EHID-bGWet］：指针对靶标目标区域某种动物作为或改造成贮存宿主，将动物病毒以相应的基因技术改造和动物群体传代适应等试验后，研制成自然界贮存宿主的人类新品种病原体战剂所致新传染病。
+
+这条术语与本文下边第10条所列的人制人新种病毒过客型基因武器和第11条人制人新种病毒生态型基因武器、第12条生态型战剂贮存宿主动物、第14条人制人新种病毒生态型基因战剂存在区别与关联，本文将在第14条术语下边进行综述。
+
+8、传统基因武器（traditional genetic weapon），指自然界病原体及其产物、其他生物和人类自然存在的基因，经生物技术等实验手段改造后并武器化。
+
+以笔者的非专业人士判断，传统的碳疽、鼠疫等烈性传染病病毒应属于此类。
+
+9、当代基因武器（contemporary genetic weapon），指应用不断发展的生物技术等实验手段结合动物群体性适应试验，对自然界病原体及其产物和动植物乃至人类之基因进行改造，人工产生危害人类和生物界或其某群（个）体之新的物种或致病基因并武器化。
+
+中共病毒是否完全具备了这种当代基因武器的定义特征呢？
+
+10、人制人新种病毒过客型基因武器［genetic weapon with artificial new species of human virus(passenger type)或genetic weapon with man-made new species of human virus(passenger type)］,指经基因改造结合一系列动物群体性适应试验等方式，将某些低级野生动物病毒制成对人类致病、致命之人工新品种病毒并武器化。可简称，人制人新种病毒基因武器。
+
+这条术语与本文上文第7条所列的生态型基因武器型人类新发传染病和下文第11条人制人新种病毒生态型基因武器、第12条生态型战剂贮存宿主动物、第14条人制人新种病毒生态型基因战剂存在区别与关联，本文将在第14条术语下边进行综述。
+
+11、人制人新种病毒生态型基因武器［genetic weapon with artificial new species of human virus(ecology type)或genetic weapon with man-made new species of human virus(ecology type)，指研制成对靶人群，作为载体的，已经一系列动物群体性适应试验后适应其生态环境和人群，且能作为人制新品种病原体（战剂）之贮存宿主的某种动物并武器化。可简称，生态型基因武器。
+
+这条术语与本文上文第7条所列的生态型基因武器型人类新发传染病和第10条人制人新种病毒过客型基因武器、第12条生态型战剂贮存宿主动物、第14条人制人新种病毒生态型基因战剂存在区别与关联，本文将在第14条术语下边进行综述。
+
+12、生态型战剂贮存宿主动物（animal reservoir with ecological genetic agent）,指研制生态型基因武器时，选择适合靶人群生态环境、能长期生存繁殖且和人类密切或较多接触、并能或人工改造为人制人新种病毒（病原体，战剂）贮存宿主的某种动物。可简称，战剂贮存宿主。在传染病流行病学理论上，又可称“人育贮存宿主”。
+
+这条术语与本文上文第7条所列的生态型基因武器型人类新发传染病和第10条人制人新种病毒过客型基因武器、第11条人制人新种病毒生态型基因武器、第14条人制人新种病毒生态型基因战剂存在区别与关联，本文将在第14条术语下边进行综述。
+
+13、有限空气传播的人制人新种病毒候选株（artificial new species of human virus candidate with limited air-borne transmission），指将能适应或易经人工改造适应“战剂贮存宿主”、具有毒力高和传播力强、传播媒介多、进化期短、便于基因改造的特定病毒（病原体），进行基因改造和系列动物群体性适应试验，使其产生具在如雪貂群体（相当于人群）内进行有限空气飞沫传播和流行之人制人新种病毒株。可简称有限空气传播新种病毒株。
+
+这条术语基本上算是对中共冠状病毒生物武器家族的精准描述和定义。
+
+14、人制人新种病毒生态型基因战剂（ecological genetic agent of artificial new species of human virus），指将有限空气传播新种病毒株在雪貂之类群体和战剂贮存宿主群体之间，进行传代-适应-世代循环试验，直至其完全适应于战剂贮存宿主，即能在后者群体内生长、繁殖、传播、流行，世代往复；然后将其武器化。可简称，生态型基因武器战剂。
+
+综合对比第7条生态型基因武器型人类新发传染病、第10条人制人新种病毒过客型基因武器、第11条人制人新种病毒生态型基因武器、第12条生态型战剂贮存宿主动物、第14条人制人新种病毒生态型基因战剂之间的相互关系，基本可以绘制出中共的生态型基因武器的线路图：以基因改造技术生产出［过客型基因武器型人类新发传染病（emerging human infectious diseases by genetic weapon (passenger type)］然后进行［人制人病原体动物群体性适应试验（adaptive trial among animal groups for artificial human pathogen, ATagAHP）］，对于没有培养成宿主的病毒即为［过客型基因武器型人类新发传染病（emerging human infectious diseases by genetic weapon (passenger type)］，对于培养或改造贮存宿主成功的就是［生态型基因武器型人类新发传染病［emerging human infectious diseases by genetic weapon（ecology type）］，而培养或改造的贮存宿主就是［生态型战剂贮存宿主动物（animal reservoir with ecological genetic agent）］。
+
+15、致病基因基因武器（genetic weapon with the pathogenic gene）,指针对人类某特定个体或群体的某种基因或免疫状态，经基因改造与研制技术结合包括一系列动物群体性适应试验等方式，制成使上述特定对象致病或致命之人工致病基因并武器化。
+
+这条术语属于对专门攻击人类某个特定基因的基因武器的定义。
+
+16、判定当代基因武器的“金标准”（the gold standard to recognize contemporary gene weapons）：突然出现之新疾病的发生和/或流行过程及其病原体或致病基因之进化历程均不符合其各自相应的自然史！
+
+用这条术语就可以对中共发起的生化战争中的生物武器攻击进行准确定义，而所有的其他的西方或者国际标准都太low，因为所有的其他标准都考虑了人性和国际法，而这些并不在中共的考虑范围之内，所以必须用中共的标准来判断中共是否发起了生物武器或者基因武器战争！
+
+续上篇——
+
+[关于《非典非自然起源和人制人新种病毒基因武器》详解一](https://gnews.org/zh-hans/901805/)
+
+[关于《非典非自然起源和人制人新种病毒基因武器》详解二](https://gnews.org/zh-hans/902170/)
+
+（文章内容仅代表作者个人观点）
+
+* * *
+
+*法国巴黎七星农场编辑部*
 
 0
