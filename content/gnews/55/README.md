@@ -1,67 +1,108 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世卫组织武汉病毒调查使世界处于危险之地
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/911420/)
+## 关于《非典非自然起源和人制人新种病毒基因武器》详解三
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/911517/)
 
-#### 翻译：牛小妹
-责编：人间四月
-![]()![](https://gnews.org/wp-content/uploads/2021/02/capture-23-1.jpg)图片来源:法新社
+#### 撰稿：Maarago 审核：pv0 / Peace Wind
 
-据《电讯报》报道，世界卫生组织（WHO）的调查团队否认武汉病毒是由“实验室洩漏”，世卫组织的结论只根基于极度脆弱松散的情报收集，没有运用其他专家提到的有力旁证，也无法找到让人信服的资料将中共病毒与矿洞学说相结合，而这个矿洞学说的蝙蝠病毒序列资料早已在武汉P4实验室被销毁。这使得人们无从对中共病毒大流行的根源进行令人满意的追踪调查。可以预见的是，任何对中共病毒起源“真相”的追查都将成为政治上有争议的话题，而世人皆知，中共瞒天过海的说谎技巧早已达到炉火纯青的地步。
+- ![]()![](https://gnews.org/wp-content/uploads/2021/02/详解三-1.png)
 
-**世卫组织关于中共病毒真相的结论荒诞可笑**
 
-虽然，中共病毒由“实验室洩漏”的理论或许被人认为是没有科学根据(事实上，前美国国务卿早已说明有大量证据证明中共病毒来自武汉实验室)，然而世卫组织呼吁人们相信该病毒是通过冷冻食品包装进入武汉的双标说法根本是胡说八道。毫无疑问地，这只是中国共产党（CCP）提供的剧本而已。
+路德社自[2/9/2021路德时评（路博艾冠谈嘉宾闫博士）：川普弹劾案参议院通过不违宪投票；美国蓬佩澳以及白宫对中共联合世卫的溯源报告纷纷否定意味着什么？军事科学院出版的教材揭露](https://youtu.be/UmoUdW5r5fU)起开始探讨《非典非自然起源和人制人新种病毒基因武器》这本书，而这本书可以说是中共关于基因武器的最权威的理论基础。截至本稿发稿前路德社已经连续在[2/10/2021路德时评（路安墨谈）：](https://youtu.be/a4oIAEQveOg)和[2/10/2021路德时评（路博艾冠谈）：拜登和习近平最快今晚通电话会勾兑哪些？继续深入挖中共军事科学院教材的内容揭示众多真相（第三期）；](https://www.youtube.com/watch?v=V10SKiS1vpc)做了三期节目，解读什么是基因武器、到底哪些人参与了这本书的编纂、在这本书里到底谈了哪些关于基因武器的问题。本系列将根据路德社的解读和《非典非自然起源和人制人新种病毒基因武器》书中的内容进行详细解读。
 
-对于世卫组织如此令人难以理解的错误行径，主流媒体并不讨论是否有阴谋而只是理解成无知的行为，其实是游戏人间的态度。在欧洲的主流概念里，认为”知蒋干用蒋干”，让中共加入世卫组织共同病毒防疫或许对大家的健康安全比较有保障。甚至有人可笑的认为，对比2003年中共对SARS疫情掩盖了5个月，而此次对病毒情报共享仅延迟了几周，证明将中共国纳入以规则为基础的世界秩序已取得进展。
+以下为《非典非自然起源和人制人新种病毒基因武器》的第三部分，在这一部分里我们从该书第12页的“本书提出的新术语”说起——
 
-然而如此无知的态度无法让世界更安全，只会让我们所有人面临更大的风险。如果只是为了希望进行一些合作，就要奉承阿谀中共，这样的想法本身就有很大的缺陷，只能算是卑微曲膝的现代自由主义的表现。
+原书注：［本书提出的新术语，指目前国内外尚未见的流行病学和基因武器术语；是由我们首次提出，用汉语表述。因此，括弧内的英文注，仅供国外学者参考。］
 
-**中共国正是全球病毒疫情大流行最薄弱的缺口**
+关于这一段注解可以证明在本节中列明的基因武器的术语绝对为中共军事专家独创，而独创术语的背后则意味着独步全球的研究成果及对成果的定义——这同样证明了在基因武器方面中共及中共党卫军的反人类先驱地位。
 
-中共对于全世界如火如荼的想消灭”中共病毒”的跨时代壮举一点也不感兴趣。事实上，”消灭中共病毒”这件事反而会对中共独霸世界及国内独裁体制构成威胁。
+1、中东SARS（the Middle East severe acute respiratory syndrome, ME-SARS）：由中东呼吸综合征冠状病毒（the Middle East respiratory syndrome coronavirus，MERS-CoV）引起、中东为自然疫源地、动物为主要传染源、目前在家庭或医院具有限的人-人传播、其病毒和SARS-CoV同为一属且临床表现非常类似的新发传染病。
 
-中共国密集的畜牧业、令人生畏的人畜共患病蔓延的记录（即使是1918年的西班牙流感也可以追溯到中国的劳动者），以及在西方世界”消灭中共病毒”的过程中都会让中共国暴露其对世界存在极大的生物性威胁。当牲畜因为感染并被扑杀，中共政府缺乏对在贫困线挣扎的农民给予补偿，让农民无法即时通报牲畜所发生的疫情。
+关于中东呼吸症的生化战争本质目前虽没有公开资料佐证，但从其冠状病毒属性和财新网关于中东呼吸症的报道轨迹看，非常有可能是中共在全球开展的另一起基因武器试验，限于篇幅，本文不对这一部分进行详细剖析，但请务必关注财新网关于中东呼吸症的报道轨迹，请读者自行寻找答案——[财新网关于MERS（中东呼吸综合症）的报道轨迹](https://search.caixin.com/newsearch/search?special=false&amp;keyword=MERS&amp;channel=&amp;type=1&amp;sort=1&amp;time=&amp;startDate=&amp;endDate=&amp;page=1)
 
-中共国人民最不满意的是农村贫困，贫瘠的医疗保健导致生病的人无法寻求治疗，而收入贫乏的地方官员贪腐无能，更掩盖了潜在的疫情爆发，这些都造成中共国成为防范全球疫情大流行最薄弱环节之一的原因。
+2、自然进化型人类新发传染病（emerging human infectious diseases by natural evolution pathogen, EHID-bNEP）：由动物病原体，在自然界中经非常漫长持续的适应性进化，不断跨越一系列种间屏障，正在或部分或基本甚至完全适应于人群所致流行的新传染病。
 
-**西方对中共国加入多边组织的不实际幻想**
+由于笔者并非此间专业人士，对于这条定义我能想象到的就是自然界发生的流行性感冒等自然存在的致病病毒。自然进化型人类新发传染病作为该书的专用术语列明，意味着导致这种所谓自然进化型人类新发传染病的病毒就是中共生物武器库的成员并且属于早期的生物武器。
 
-中共国对多边主义根本不感兴趣，充其量，它只是把参加世界卫生组织这样的多边组织视为获取中共国本身特定利益的一种手段。在中共病毒疫情爆发之前，这些手段只限于哄骗世卫组织（事实上是成功的）认同中医的治疗及阻止台湾加入世卫组织。
+3、人制人病原体动物群体性适应试验（adaptive trial among animal groups for artificial human pathogen, ATagAHP）：将动物病原体（目前主要为病毒）以各种方式和途径，攻击与人类细胞受体十分相似的或与人类近亲的动物，并做多种多样的许多次传代，最终使之适应在该种动物群体内传播，再通过类似方式部分适应于人群。
 
-更离谱的是，中共希望按照自己的路线重建国际秩序。中共领导阶层的野心就是利用惊人的速度向中共国的韭菜们(人民)宣扬所谓的中国梦，从而继续掌握政权。
+关于这一部分的最佳例证见于石正丽的论文——[A SARS-like cluster of circulating bat coronaviruses shows potential for human emergence](https://www.nature.com/articles/nm.3985)发表于2015年11月9日（[Published: 09 November 2015](https://www.nature.com/articles/nm.3985%2523article-info) ）提到的：只要把蝙蝠身上的S蛋白里头ACE2这个受体开关只要一调，这个病毒马上就可以传染给人，对应的英文原文是——【Therefore, we synthesized the SHC014 spike in the context of the replication-competent, mouse-adapted SARS-CoV backbone (we hereafter refer to the chimeric CoV as SHC014-MA15) to maximize the opportunity for pathogenesis and vaccine studies in mice ([Supplementary Fig. 2a](https://www.nature.com/articles/nm.3985%2523MOESM18)). Despite predictions from both structure-based modeling and pseudotyping experiments, SHC014-MA15 was viable and replicated to high titers in Vero cells ([Supplementary Fig. 2b](https://www.nature.com/articles/nm.3985%2523MOESM18)). Similarly to SARS, SHC014-MA15 also required a functional ACE2 molecule for entry and could use human, civet and bat ACE2 orthologs ([Supplementary Fig. 2c,d](https://www.nature.com/articles/nm.3985%2523MOESM18)). To test the ability of the SHC014 spike to mediate infection of the human airway, we examined the sensitivity of the human epithelial airway cell line Calu-3 2B4 (ref. [9](https://www.nature.com/articles/nm.3985%2523ref-CR9)) to infection and found robust SHC014-MA15 replication, comparable to that of SARS-CoV Urbani ([Fig. 1c](https://www.nature.com/articles/nm.3985%2523Fig1)). To extend these findings, primary human airway epithelial (HAE) cultures were infected and showed robust replication of both viruses ([Fig. 1d](https://www.nature.com/articles/nm.3985%2523Fig1)). Together, the data confirm the ability of viruses with the SHC014 spike to infect human airway cells and underscore the potential threat of cross-species transmission of SHC014-CoV.】【The results indicate that group 2b viruses encoding the SHC014 spike in a wild-type backbone can efficiently use multiple orthologs of the SARS receptor human angiotensin converting enzyme II (ACE2), replicate efficiently in primary human airway cells and achieve in vitro titers equivalent to epidemic strains of SARS-CoV.】
 
-中共认为全球的经济秩序正是阻碍中共发展的障碍，尤其是世贸组织“操纵”的经济体系，从世贸组织拒绝给予中共国“市场经济地位”的认定就可以了解为什么中共否定所谓的全球经济秩序。
+**（该论文作者：**[Vineet D Menachery](https://www.nature.com/articles/nm.3985%2523auth-1)**, **[Boyd L Yount Jr](https://www.nature.com/articles/nm.3985%2523auth-2)**, **[Kari Debbink](https://www.nature.com/articles/nm.3985%2523auth-3)**, **[Sudhakar Agnihothram](https://www.nature.com/articles/nm.3985%2523auth-4)**, **[Lisa E Gralinski](https://www.nature.com/articles/nm.3985%2523auth-5)**, **[Jessica A Plante](https://www.nature.com/articles/nm.3985%2523auth-6)**, **[Rachel L Graham](https://www.nature.com/articles/nm.3985%2523auth-7)**, **[Trevor Scobey](https://www.nature.com/articles/nm.3985%2523auth-8)**, **[Xing-Yi Ge](https://www.nature.com/articles/nm.3985%2523auth-9)**, **[Eric F Donaldson](https://www.nature.com/articles/nm.3985%2523auth-10)**, **[Scott H Randell](https://www.nature.com/articles/nm.3985%2523auth-11)**, **[Antonio Lanzavecchia](https://www.nature.com/articles/nm.3985%2523auth-12)**, **[Wayne A Marasco](https://www.nature.com/articles/nm.3985%2523auth-13)**, **[Zhengli-Li Shi](https://www.nature.com/articles/nm.3985%2523auth-14)** & **[Ralph S Baric](https://www.nature.com/articles/nm.3985%2523auth-15)**）**
 
-**中共企图弱化世界多边组织，****实现称霸全球****的春秋大梦**
+类似的论文举不胜数，请移步闫丽梦博士两篇科学报告结尾部分参考文献查寻例证。
 
-一些中共的领导阶层甚至认为，西方的全球领导地位是历史性的畸形产物。毕竟，中共认为中国是最先进的古代文明，也是世界的中心（毫不夸张的说，中国在中文的意思是处于中心的王国）。中共认为从国共内战到1971年一直被联合国孤立是残酷的历史现实，导致现在以西方为中心的不自然的国际秩序。然而中共相信可以”以时间换空间”，国际秩序绝对可以被中共扭转并重新创建以中共国为核心的世界新秩序。
+请注意从这条定义开始往下依次展开基本可以绘制出中共生物基因武器的线路图，此为其中一环——人制人病原体动物群体性适应试验
 
-这就是为什么中共国并不真正在乎世卫组织这样的多边机构，中共对双边卫生外交更感兴趣，因为中共可以借着一些资助的小国在它不屑一顾的多边世界中建立中共的投票部队。中共在非洲提供的资金、培训赤脚医生以及在医院建设方面所花费的资金远超过付给世卫组织项目的资金（中共提供给世卫组织的资金不足世卫所需要资金的0.21％）。
+4、基因武器型人类新发传染病（emerging human infectious diseases by genetic weapon, EHID-bGW）：非自然起源，以基因改造技术和动物群体传代适应试验等方法，将动物病原体，制成人类新品种病原体战剂所致新传染病。目前至少又可分为两种（亚）类型，即“过客型（passenger type）”和“生态型（ecology type）”。
 
-**中共病毒的真相必须超越政治议题**
+关于这一部分以笔者的非专业人士眼光来看，主要是应用CRSPR技术进行基因编辑和动物迭代实验对病毒进行种群间迭代传染和进化产生致病型病毒的过程。
 
-当美国坚定的以切断世卫组织的资金要胁与美国利益早已背道而驰的世卫组织，中共惯常以「画大饼」的方式对世卫提供未来难以捉摸的承诺与合作计划。
+这条术语与第3条术语的存在对应关系，用基因编辑方式生产出来的基因武器型人类新发传染病病毒必须经过人制人病原体动物群体性适应试验检验。
 
-令西方最困惑的问题是：关于中共病毒疫情的真相，难道除了设法安抚中共国之外，没有其他的选择？
+5、过客病毒（passenger virus），即由非自然进化技术，将动物病毒改造成致人发病、并因完全不适应于人类且无贮存宿主，经一次（间断）流行后即在自然界和人群中消失之病毒。
 
-毫无疑问的，第一步就是围绕在现实政治的问题，虽然我们永远都不知道中共病毒疫情大流行的”起源”可能是十分危险的事情，然而不知道造成中共病毒疫情大流行背后的政治因素才更加危险。
+关于这一段从已经发生的2003年非典病毒的流行和消失可以窥见端倪，也就是说非典SARS-CoV完全具备过客病毒的特征。
 
-如果世卫组织在2020年1月就对中共国的”中共病毒不会人传人”的虚假承诺保持更加怀疑的态度，今日的世界可能就不会陷入如此的混乱之中。为了防止下一次中共病毒疫情大爆发，即使中共对于疫情的真相感到难堪，西方也必须要努力追查有关中共病毒疫情悬而未决的问题。
+这条术语与本文第条术语对应，属于在中共掌握基因技术之前制备的生物武器类型，这种病毒与基因改造技术生产出来的病毒的不同之处在于过客病毒属于传统的实验改造，在改造过程中没有使用基因技术。
 
-**中共病毒侵略世界就是”特洛伊木马屠城记”**
+6、过客型基因武器型人类新发传染病（emerging human infectious diseases by genetic weapon (passenger type)， EHID-bGWpt）：将动物病毒以基因技术发行和动物群体传代适应等试验后，研制成自然界无贮存宿主的人类新品种病原体战剂所致新传染病。
 
-如今世卫组织否认证实”中共病毒是由实验室洩漏”，根本就是模糊了中共病毒疫情的真正焦点与事实。实际上，科学期刊到处充斥着有关研究最致命病原体的实验室引起世界不安全生物的巨大危险。最近的一项科学研究证实，保守估计禽流感洩漏的可能性为20％。
+中共病毒是否完全具备了这种过客型基因武器型人类新发传染病的定义特征呢？
 
-目前西方世界面临中共病毒疫情的挑战，最重要的思考关键点在于西方世界并未将中共国纳入现存的严谨检查体制之中，反而让整个世界愚昧的陷入”特洛伊木马屠城记”。像世界卫生组织这样愚蠢的组织根本完全无法驾驭野心勃勃的中共，世卫讨好中共的作法不仅是赌上自己的未来，甚至连我们所拥有的唯一地球的未来也可能一起被陪葬！
+这条术语与第5条术语对应，属于中共在掌握了基因改造技术之后制造的生物武器类型。
 
-**点评:**
+7、生态型基因武器型人类新发传染病［emerging human infectious diseases by genetic weapon（ecology type），EHID-bGWet］：指针对靶标目标区域某种动物作为或改造成贮存宿主，将动物病毒以相应的基因技术改造和动物群体传代适应等试验后，研制成自然界贮存宿主的人类新品种病原体战剂所致新传染病。
 
-世卫组织到武汉调查中共病毒，内容就是卡拉O.K的歌功颂德、茅台的酒酣耳热，再加上三天的匆匆作秀，这样的世界卫生组织早已成为中共蓝、金、黄诱惑下的走狗，根本谈不上甚么专家意见。对于世卫组织，人人得而诛之。对于世卫组织关于中共病毒的结论，当然也就弃之如敝屣。
+这条术语与本文下边第10条所列的人制人新种病毒过客型基因武器和第11条人制人新种病毒生态型基因武器、第12条生态型战剂贮存宿主动物、第14条人制人新种病毒生态型基因战剂存在区别与关联，本文将在第14条术语下边进行综述。
 
-阎丽梦博士之前已呼吁，欢迎关于中共病毒的专家与她打擂台，用实际的证据辩论，至今无人应战。可见世卫组织所谓的专家群个个如草包，完全经不起事实的验证。面对中共病毒，爆料革命早已有真相，美国前国务卿也称掌握大量的证据，“中共病毒就是来自武汉实验室”，中共想借世卫组织甩锅，无异是”痴人说梦”。
+8、传统基因武器（traditional genetic weapon），指自然界病原体及其产物、其他生物和人类自然存在的基因，经生物技术等实验手段改造后并武器化。
 
-[文章链接](https://www.telegraph.co.uk/politics/2021/02/11/scandalously-naive-approach-china-puts-world-danger/)
+以笔者的非专业人士判断，传统的碳疽、鼠疫等烈性传染病病毒应属于此类。
+
+9、当代基因武器（contemporary genetic weapon），指应用不断发展的生物技术等实验手段结合动物群体性适应试验，对自然界病原体及其产物和动植物乃至人类之基因进行改造，人工产生危害人类和生物界或其某群（个）体之新的物种或致病基因并武器化。
+
+中共病毒是否完全具备了这种当代基因武器的定义特征呢？
+
+10、人制人新种病毒过客型基因武器［genetic weapon with artificial new species of human virus(passenger type)或genetic weapon with man-made new species of human virus(passenger type)］,指经基因改造结合一系列动物群体性适应试验等方式，将某些低级野生动物病毒制成对人类致病、致命之人工新品种病毒并武器化。可简称，人制人新种病毒基因武器。
+
+这条术语与本文上文第7条所列的生态型基因武器型人类新发传染病和下文第11条人制人新种病毒生态型基因武器、第12条生态型战剂贮存宿主动物、第14条人制人新种病毒生态型基因战剂存在区别与关联，本文将在第14条术语下边进行综述。
+
+11、人制人新种病毒生态型基因武器［genetic weapon with artificial new species of human virus(ecology type)或genetic weapon with man-made new species of human virus(ecology type)，指研制成对靶人群，作为载体的，已经一系列动物群体性适应试验后适应其生态环境和人群，且能作为人制新品种病原体（战剂）之贮存宿主的某种动物并武器化。可简称，生态型基因武器。
+
+这条术语与本文上文第7条所列的生态型基因武器型人类新发传染病和第10条人制人新种病毒过客型基因武器、第12条生态型战剂贮存宿主动物、第14条人制人新种病毒生态型基因战剂存在区别与关联，本文将在第14条术语下边进行综述。
+
+12、生态型战剂贮存宿主动物（animal reservoir with ecological genetic agent）,指研制生态型基因武器时，选择适合靶人群生态环境、能长期生存繁殖且和人类密切或较多接触、并能或人工改造为人制人新种病毒（病原体，战剂）贮存宿主的某种动物。可简称，战剂贮存宿主。在传染病流行病学理论上，又可称“人育贮存宿主”。
+
+这条术语与本文上文第7条所列的生态型基因武器型人类新发传染病和第10条人制人新种病毒过客型基因武器、第11条人制人新种病毒生态型基因武器、第14条人制人新种病毒生态型基因战剂存在区别与关联，本文将在第14条术语下边进行综述。
+
+13、有限空气传播的人制人新种病毒候选株（artificial new species of human virus candidate with limited air-borne transmission），指将能适应或易经人工改造适应“战剂贮存宿主”、具有毒力高和传播力强、传播媒介多、进化期短、便于基因改造的特定病毒（病原体），进行基因改造和系列动物群体性适应试验，使其产生具在如雪貂群体（相当于人群）内进行有限空气飞沫传播和流行之人制人新种病毒株。可简称有限空气传播新种病毒株。
+
+这条术语基本上算是对中共冠状病毒生物武器家族的精准描述和定义。
+
+14、人制人新种病毒生态型基因战剂（ecological genetic agent of artificial new species of human virus），指将有限空气传播新种病毒株在雪貂之类群体和战剂贮存宿主群体之间，进行传代-适应-世代循环试验，直至其完全适应于战剂贮存宿主，即能在后者群体内生长、繁殖、传播、流行，世代往复；然后将其武器化。可简称，生态型基因武器战剂。
+
+综合对比第7条生态型基因武器型人类新发传染病、第10条人制人新种病毒过客型基因武器、第11条人制人新种病毒生态型基因武器、第12条生态型战剂贮存宿主动物、第14条人制人新种病毒生态型基因战剂之间的相互关系，基本可以绘制出中共的生态型基因武器的线路图：以基因改造技术生产出［过客型基因武器型人类新发传染病（emerging human infectious diseases by genetic weapon (passenger type)］然后进行［人制人病原体动物群体性适应试验（adaptive trial among animal groups for artificial human pathogen, ATagAHP）］，对于没有培养成宿主的病毒即为［过客型基因武器型人类新发传染病（emerging human infectious diseases by genetic weapon (passenger type)］，对于培养或改造贮存宿主成功的就是［生态型基因武器型人类新发传染病［emerging human infectious diseases by genetic weapon（ecology type）］，而培养或改造的贮存宿主就是［生态型战剂贮存宿主动物（animal reservoir with ecological genetic agent）］。
+
+15、致病基因基因武器（genetic weapon with the pathogenic gene）,指针对人类某特定个体或群体的某种基因或免疫状态，经基因改造与研制技术结合包括一系列动物群体性适应试验等方式，制成使上述特定对象致病或致命之人工致病基因并武器化。
+
+这条术语属于对专门攻击人类某个特定基因的基因武器的定义。
+
+16、判定当代基因武器的“金标准”（the gold standard to recognize contemporary gene weapons）：突然出现之新疾病的发生和/或流行过程及其病原体或致病基因之进化历程均不符合其各自相应的自然史！
+
+用这条术语就可以对中共发起的生化战争中的生物武器攻击进行准确定义，而所有的其他的西方或者国际标准都太low，因为所有的其他标准都考虑了人性和国际法，而这些并不在中共的考虑范围之内，所以必须用中共的标准来判断中共是否发起了生物武器或者基因武器战争！
+
+续上篇——
+
+[关于《非典非自然起源和人制人新种病毒基因武器》详解一](https://gnews.org/zh-hans/901805/)
+
+[关于《非典非自然起源和人制人新种病毒基因武器》详解二](https://gnews.org/zh-hans/902170/)
+
+（文章内容仅代表作者个人观点）
+
+* * *
+
+*法国巴黎七星农场编辑部*
 
 0

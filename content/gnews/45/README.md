@@ -1,25 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布林肯敦促土耳其不要保留俄罗斯S-400
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/911660/)
+## 普京与沙特王储讨论石油和疫苗问题
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/911697/)
 
 俄罗斯莫斯科喀秋莎农场 洛夫斯基灭ССР
 
-编辑   水星    上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/下载-19.jpg)[rferl.org](https://www.rferl.org/a/official-russian-to-begin-s-400-missile-delivery-to-india-by-end-of-2021/30418475.html)
-02月15日，美国国务卿安东尼·布林肯在与土耳其外长梅夫卢特·卡武什奥卢电话中敦促安卡拉不要保留俄罗斯的S-400防空导弹系统（SAM）。美国务院网站对此进行了报道。
+编辑  水星   上传  银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-17_01-38-45.jpg)[covid.hidubai.com](https://covid.hidubai.com/saudi-crown-prince-discusses-oil-markets-stability-with-russian-president-on-phone/)
+02月15日，据克里姆林宫报道，俄罗斯总统普京与沙特王储穆罕默德·本·萨勒曼·阿尔·沙特（Mohammed bin Salman Al Saud）举行了电话会谈。双方讨论了经贸领域的双边关系。他们还谈到了联合抗击中共病毒感染蔓延的问题，包括可能向王国提供俄罗斯疫苗。
 
-俄罗斯和土耳其在2017年签署了S-400的供应合同。第一批防空系统组件于2019年7月抵达土耳其。同年11月初，俄罗斯提前向土耳其交付了4架S-400系统，耗资25亿美元。
+“他们讨论了俄罗斯与沙特在各个领域的发展问题，包括在今年2月庆祝两国建交95周年的背景下。”声明中说。
 
-去年10月，土耳其在该国北部的西诺普市附近测试了S-400。该国国防部长胡鲁西·阿卡尔称，这些测试是技术性的。
+双方就执行以欧佩克+（OPEC+）形式达成的协议交换了意见。此外，他们还讨论了区域问题，即叙利亚和波斯湾的局势。
 
-华盛顿批评安卡拉购买俄罗斯系统的决定，并将土耳其排除在供应F-35战斗机的计划之外。去年12月，美国前政府对土耳其国防工业局及其负责人伊斯梅尔·德米尔实施制裁，原因是购买S-400防空系统。
-
-布林肯和卡武什奥卢电话中还讨论了叙利亚冲突、土耳其人质在伊拉克死亡以及土耳其和希腊关系正常化等问题。
+在1月5日举行的会谈中，欧佩克+（OPEC+）国家的代表决定在2021年2月和3月，两个国家——俄罗斯（两个月内每天增加6.5万桶）和哈萨克斯坦（每天增加1万桶）将能够增加石油产量。2月和3月，作为欧佩克+的一部分，沙特决定减产约100万桶/日，至812.5万桶，而不是911.9万桶的既定配额。
 
 参考链接：
 
-[https://www.rbc.ru/rbcfreenews/602ab74f9a7947de857283e1](https://www.rbc.ru/rbcfreenews/602ab74f9a7947de857283e1)
+[https://www.rbc.ru/rbcfreenews/602a90589a7947d0ef511dbe](https://www.rbc.ru/rbcfreenews/602a90589a7947d0ef511dbe)
 
 0
