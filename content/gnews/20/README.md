@@ -1,40 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加媒呼吁特鲁多应直面对抗恶霸中共
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/911874/)
+## 缅甸政变军方对昂山素季提出新指控
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/911965/)
 
-加拿大多伦多枫叶农场 Kent
-![]()![](https://gnews.org/wp-content/uploads/2021/02/thepostmillennial.com-2.jpg)*图片来源：thepostmillennial.com*
-加拿大主流媒体对中共的态度在逐渐转变。《多伦多太阳报》2月10日发文，抨击加拿大政府对中共的软弱。报道指出，加拿大政府向绑架加拿大公民的中共发出的信息应该是简短有力的——”去死吧”！相反，政府竟因驻中共国大使馆工作人员定制印有武汉和一个流行嘻哈团体标志的T恤衫向中共道歉。
+俄罗斯莫斯科喀秋莎农场   银河
 
-加拿大驻中共国大使馆在政府网站上的声明写道：”制作这些T恤衫的目的不是为了发表任何政治或其他方面的声明，我们对这些T恤衫可能造成的冒犯感到后悔。”
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-17_06-26-23.jpg)[reiffcenterblog.cnu.edu](https://reiffcenterblog.cnu.edu/2016/01/myanmar-and-the-karen-conflict-the-longest-civil-war-you-have-never-heard-of/)
+《印度快报》（The Indian Express）2月16日消息，缅甸当局对该国领导人昂山素季提出了第二项指控。
 
-原来，一些外交人员订购了印有嘻哈团体 “武当帮 “标志的T恤，并将 “武当 “二字换成了 “武汉”。该团体的标志也像一只蝙蝠。以前在网上看到过这个重制的标志，人们觉得很搞笑，就是一个简单的文字游戏，但中共的绑架者们不同意。
+缅甸军方于2月1日发动了军事政变，拘捕了民主政府领导人昂山素季。因其在家中使用了未经登记的进口对讲机，被起诉违反了缅甸的进出口法。现昂山素季再次面临违反缅甸自然灾害法的指控。有关指控的进一步细节目前尚不清楚，该违规行为被用于起诉那些违反中共病毒社交限制的人。
 
-中共崴脚部发言人汪文斌上周称”中方对这一行为感到震惊，我们已经向加拿大驻华使馆提出严正交涉。我们要求加方立即调查这一事件，给中方一个明确的解释。”
+据美联社(Associated Press)报道，由于军政府上周对该国刑法进行了修改，这项指控可能会允许在没有法庭许可的情况下拘留嫌疑人，并无限期拘留。
 
-如果特鲁多政府不喜欢简洁有力的回应，他们也可以用 “过你的日子去吧！”或 “能不能有点儿幽默感？！”来回答。相反，他们进行了道歉，这并没有什么用，政府主办的日报在道歉发出后，在推特上发文称加拿大需要从中吸取教训。
+昂山素季的律师和她的全国民主联盟(National League for Democracy)表示，自从她被拘留以来，他们就无法与她取得联系。面对持续不断的反对政变抗议和要求释放昂山素季的呼声，缅甸军方回应，昂山素季“健康状况良好”。
 
-他们援引一位官员的话说：”加拿大应该把这次事件当作一个警告，确保这样的事情不会再发生”。这让人觉得文首提到的简洁回应”去死吧！”仍是更好的选择。尤其是当考虑到中共国驻渥太华大使馆经常试图恐吓加拿大的媒体，而特鲁多政府一直对此保持沉默。
+周二，缅甸各地的抗议者再次走上街头。联合国缅甸问题特使表示缅甸军政府“没想到会有这么多人走上街头。” 美国、联合国和其他几十个国家敦促军政府还政于缅甸民选政府。联合国缅甸问题特使指出，“世界各地的团结非常重要，不能接受这次政变。”
 
-上周，针对《希尔时报》发表讨论台湾和香港问题的专栏，使馆发表声明说：”我们敦促加拿大媒体在涉及中国主权的问题上坚持正确的立场。”
+参考链接：
 
-本周，针对《国家邮报》关于中共进行种族灭绝的文章，他们又发表了一篇斥责声明，呼吁加拿大媒体 “为促进中加友谊和两国人民的相互理解多做工作。”
+[https://indianexpress.com/article/world/myanmar-coup-aung-san-suu-kyi-faces-new-charge-7191470/](https://indianexpress.com/article/world/myanmar-coup-aung-san-suu-kyi-faces-new-charge-7191470/)
 
-中共绑架了迈克尔-科夫里格和迈克尔-斯帕弗，对加拿大油菜籽和牛肉等产业发动经济战，从中能看到“中加友谊”吗？
-
-加拿大安全情报局（CSIS）第九任局长大卫·维尼奥特在一次演讲中说，中共政府动用了“国家力量，直接威胁我们国家安全和主权活动。”中共在加拿大国内进行工业间谍活动，并恐吓批评者。
-
-遗憾的是，政府完全不顾安全情报局的警告。虽然总理特鲁多看上去不像以前那样亲近中共，但他仍是对中共政府言听计从，这次道歉再次验证这一点。
-
-联邦政府不需要和中共国这样的全球巨头挑起无谓的争斗，但作为加拿大总理，特鲁多至少应该为本国人站出来对抗中共的霸凌。
-
-[原文链接](https://torontosun.com/opinion/columnists/lilley-trudeau-needs-to-stand-up-to-the-bully-that-is-china/wcm/d353242a-6281-4bf2-a6a6-28e75dbe8340/amp/?__twitter_impression=true)
-
-* * *
-
-校对 文锦
-发稿 云起时
+[https://indianexpress.com/article/world/myanmar-police-file-additional-charge-against-aung-san-suu-kyi-lawyer-7191141/](https://indianexpress.com/article/world/myanmar-police-file-additional-charge-against-aung-san-suu-kyi-lawyer-7191141/)
 
 0

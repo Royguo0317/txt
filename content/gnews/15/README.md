@@ -1,33 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯 】16/02/2021:中共灭白计划的杀手锏是虚拟货币打倒美元、用病毒干掉白人
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/911955/)
+## 华为改养猪也改不了被淘汰的命
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/912003/)
 
-**制作:Cantonese工作室**
-**播报：【安妮】 资料整理：【郁金香】【KEN】【文依】【专业家庭煮妇】 海报制作：【小豆芽】【米线】【文绉绉】视频制作：【文武全才】上传:【星星】**
-摘要:
+撰稿：冰沙奶茶
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-50.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-12.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/3-17.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/4-27.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/5-24.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/6-33.jpg)
-7.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/7-9.jpg)
-8.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/8-7.jpg)
-9.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/9-3.jpg)
-10.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/10-6.jpg)
-11.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/11-7.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/0-2.jpg)
+审核：永远小学生 编辑：五饼二鱼
+
+据中共墙内新浪网2021年2月15日报道：近日，任正非首次公开提及华为“南泥湾”计划，即生产自救，包括在煤炭、钢铁、音乐、智慧屏、PC电脑、平板等各个领域的突破，华为不靠手机业务也可以存活。随后，华为机器视觉领域总裁段爱国推出了“华为智慧养猪解决方案”。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/16135326611.png)网络截图
+消息一出，引起网友一片哗然，看来靠偷是不能长久的。
+
+因为受到美国科技制裁影响，高端芯片的缺货给华手机业务造成巨大的影响。根据市场研究机构IDC发布的《2020年第四季度全球手机出货量报告显示》，华为的市场份额排名滑落至第五名，出货量仅有3230万占比8.4%，同比大幅下滑42.4%。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/16135326971.png)易网网络截图
+同樣的市場格局變化，在其他的研究機構報告中同樣有所體現。Counterpoint最新報告顯示，2020 年第四季度，華為智能手機出貨量排名全球第六，僅有3300萬部，市場份額僅有8%，較去年同期下降41%，環比上壹季度下降35%。另外，在 Canalys的報告中，華為更是被擠到了“others（其他）”隊列中，沒有具體的數據體現。在Canalys給出的全球智能手機排行榜中，分列華為之前的分別有蘋果、三星、小米、OPPO和vivo。而在中共國市場上，華為（包括榮耀）在2020年第四季度出貨量達1880萬，市場份額從上壹季度的41%下降至22%，而小米、OPPO和vivo等均實現了同比增長，分別增長了52%、23%、20%。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/16135327181.png)易网网络截图
+回顾华为的发迹，从头到尾就是一部官商勾结、偷窃、欺骗的历史。被美国认定为中共军方企业，我们确实看到华为这种奇葩的迅速成长，网络上广为流传顺口溜印证华为所谓的技术：“一靠买、二靠偷，研发秘籍记心头；买回来、偷回来，加班熬夜连忙改。”同时华为也是不折不扣的黑手在海外为中共从事间谍活动。只有中共这样腐败体制才能孕育一个如此劣迹斑斑的公司，竟能从一个无名小卒打造成全球最大的电信设备及智能手机制造商之一。好在有爆料革命，世界在觉醒，如今重锤之下所谓的行业大佬举步维艰，不得不“华丽”转身，投身并无多少高科技的养猪业也是糊弄人的把戏，华为最终将被淘汰掉。
+
+本文纯属个人观点
+
+资料摘自
+[https://finance.sina.com.cn/tech/2021-02-15/doc-ikftssap5902148.shtml](https://finance.sina.com.cn/tech/2021-02-15/doc-ikftssap5902148.shtml)
+
+[https://www.163.com/dy/article/G2V5TVQL0534NB1V.html](https://www.163.com/dy/article/G2V5TVQL0534NB1V.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-澳喜Logo.jpeg)
 0
