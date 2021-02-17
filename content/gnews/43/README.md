@@ -1,17 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生2021年2月16日直播精要文字版
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/911930/)
+## 缅甸政变军方对昂山素季提出新指控
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/911965/)
 
-听写战友：旦旦 罗马达芬奇农场
-Shuizhuyu 罗马达芬奇农场
-校对整合：GForever(文紫) 纽约香草山农场
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Gnews12.jpg)
-1、00:06:45各领域的朋友给我发信息说“白虎”讲得特别好，但当我感受到，亲眼看到、听到的事情变为现实的时候，太可怕了。譬如说疫苗，共产党不光造病毒，还造了疫苗，而且疫苗在全世界大量的卖，几百亿疫苗的收益。这疫苗是真正的毒，得害死多少人啊！这就是共产党的灭白计划，以毒、以疫苗灭白人，这不是一般的可怕。
+俄罗斯莫斯科喀秋莎农场   银河
 
-2、00:10:30 爆料革命秉承天意，全世界75亿人口只有我们一家敢说真相。想想过去一波又一波砸郭的，你见过一个砸爆料革命、砸郭的日子越砸越好的吗？砸郭的现在都是灾难。他们做的一切都是假的，而我们爆的共产党、欺民贼，百分之百都是真的。一问九指妖要钱，她就说：“我的钱不能动啊，我的钱给郭文贵了。”最后一说她那儿还有6000-8000万美元。这事很简单，要么给钱，要么给欠条。 前几天她又说：“我的钱被SEC监管了，不能动。” 然后放出8月份SEC只是要求配合调查的一张纸，根本和查封钱没关系。这两天有的战友拿到退款了，这说明她从头到尾就是诈骗、撒谎，她现在能选择性的给战友，说明她的账户没有封！所以，我呼吁战友们都去找她要钱，否则后果很严重！在她进监狱之前你拿到钱，这是最安全的。农场联盟已经启动法律程序，她一定会进监狱，但她进去并不意味着你的钱就能拿回，一定要行动！
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-17_06-26-23.jpg)[reiffcenterblog.cnu.edu](https://reiffcenterblog.cnu.edu/2016/01/myanmar-and-the-karen-conflict-the-longest-civil-war-you-have-never-heard-of/)
+《印度快报》（The Indian Express）2月16日消息，缅甸当局对该国领导人昂山素季提出了第二项指控。
 
-3、00:23:40 现在俄罗斯和中国要出问题了。共产党内部的经济的崩溃，香港富豪的大逃亡，党内关于打不打台湾的剧烈的争论，还有中美之间用威胁不起作用了！经济、民生一塌糊涂！一年前我说的，别看欧洲行动慢，要看欧洲怎么干。欧洲、北约现在的行动简直是刀刀见血，日本没有选择最后一定是灭共。以毒灭共，以钱灭共的意义正在逐渐扩大！共产党你完蛋了！
+缅甸军方于2月1日发动了军事政变，拘捕了民主政府领导人昂山素季。因其在家中使用了未经登记的进口对讲机，被起诉违反了缅甸的进出口法。现昂山素季再次面临违反缅甸自然灾害法的指控。有关指控的进一步细节目前尚不清楚，该违规行为被用于起诉那些违反中共病毒社交限制的人。
+
+据美联社(Associated Press)报道，由于军政府上周对该国刑法进行了修改，这项指控可能会允许在没有法庭许可的情况下拘留嫌疑人，并无限期拘留。
+
+昂山素季的律师和她的全国民主联盟(National League for Democracy)表示，自从她被拘留以来，他们就无法与她取得联系。面对持续不断的反对政变抗议和要求释放昂山素季的呼声，缅甸军方回应，昂山素季“健康状况良好”。
+
+周二，缅甸各地的抗议者再次走上街头。联合国缅甸问题特使表示缅甸军政府“没想到会有这么多人走上街头。” 美国、联合国和其他几十个国家敦促军政府还政于缅甸民选政府。联合国缅甸问题特使指出，“世界各地的团结非常重要，不能接受这次政变。”
+
+参考链接：
+
+[https://indianexpress.com/article/world/myanmar-coup-aung-san-suu-kyi-faces-new-charge-7191470/](https://indianexpress.com/article/world/myanmar-coup-aung-san-suu-kyi-faces-new-charge-7191470/)
+
+[https://indianexpress.com/article/world/myanmar-police-file-additional-charge-against-aung-san-suu-kyi-lawyer-7191141/](https://indianexpress.com/article/world/myanmar-police-file-additional-charge-against-aung-san-suu-kyi-lawyer-7191141/)
 
 0
