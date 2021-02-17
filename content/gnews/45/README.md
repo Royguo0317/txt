@@ -1,23 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共海警船再次闯入尖阁诸岛（钓鱼岛）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/911610/)
+## 布林肯敦促土耳其不要保留俄罗斯S-400
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/911660/)
 
-- 编辑：Victor Torres
-- 作者：神奇四侠
-- 发稿：Ranting
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭ССР
 
+编辑   水星    上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/下载-19.jpg)[rferl.org](https://www.rferl.org/a/official-russian-to-begin-s-400-missile-delivery-to-india-by-end-of-2021/30418475.html)
+02月15日，美国国务卿安东尼·布林肯在与土耳其外长梅夫卢特·卡武什奥卢电话中敦促安卡拉不要保留俄罗斯的S-400防空导弹系统（SAM）。美国务院网站对此进行了报道。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+俄罗斯和土耳其在2017年签署了S-400的供应合同。第一批防空系统组件于2019年7月抵达土耳其。同年11月初，俄罗斯提前向土耳其交付了4架S-400系统，耗资25亿美元。
 
-**西班牙2021年2月16日电/西喜社——**两艘中共海警船于凌晨4时15分左右进入尖阁诸岛（钓鱼岛），与星期一进入该海域的另外两艘中共海警船会合。
-日本海上保安厅描述说星期二进入海域的新海警船将船头对准了一艘日本渔船，并采取了行动来接近渔船，其中一艘海警船上还配备了看起来像是自动加农炮的武器。
-日本内阁官房长官加藤胜信在周二的记者会上说：“这一事件令人遗憾，靠近日本船只绝对不可能接受，这些活动违反了国际法.”
-截至到周二中午，四艘中共海警船都离开了该海域，而日本政府如星期一一样，向中共提出了抗议。
+去年10月，土耳其在该国北部的西诺普市附近测试了S-400。该国国防部长胡鲁西·阿卡尔称，这些测试是技术性的。
 
-[**新闻来源**](https://www.voachinese.com/a/Japan-protests-Chinese-ship-enters-Japanese-waters-harasses-fishing-vessel-20210216/5780574.html)
+华盛顿批评安卡拉购买俄罗斯系统的决定，并将土耳其排除在供应F-35战斗机的计划之外。去年12月，美国前政府对土耳其国防工业局及其负责人伊斯梅尔·德米尔实施制裁，原因是购买S-400防空系统。
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+布林肯和卡武什奥卢电话中还讨论了叙利亚冲突、土耳其人质在伊拉克死亡以及土耳其和希腊关系正常化等问题。
 
-+1
+参考链接：
+
+[https://www.rbc.ru/rbcfreenews/602ab74f9a7947de857283e1](https://www.rbc.ru/rbcfreenews/602ab74f9a7947de857283e1)
+
+0
