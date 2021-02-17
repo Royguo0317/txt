@@ -1,35 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美威斯康星医护人员二次接种辉瑞中共病毒疫苗后脑死亡
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/913969/)
+## 美国国防部成立特别工作组应对中共国挑战
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/913988/)
 
-***加拿大多伦多枫叶农场 阿黎***
-![]()![](https://gnews.org/wp-content/uploads/2021/02/28-Year-Old-Wisconsin-Healthcare-Worker-Brain-Dead-5-Days-After-Second-Experimental-Pfizer-mRNA-COVID-Injection-e1613380323560.jpg)图片来源：Humans are free
-据自由人类（Humans are free） 2月15日报道，来自美国威斯康星州贝洛伊特（Beloit，美国威斯康星州南部城市）的28岁医护人员萨拉-斯蒂克斯（Sara Stickles）在接受辉瑞公司的第二支实验性mRNA 中共病毒疫苗注射后仅5天，就脑动脉瘤病发，现已脑死亡。这是又一个年轻健康的医护人员，接种实验性mRNA 中共病毒疫苗后死亡的例子。
+*新闻来源：《国防部新闻（DOD NEWS）》| 作者：吉姆·加拉莫内（ JIM GARAMONE） | 发布时间：2021年2月10日*
 
-她留下了一个幼子、兄弟姐妹、朋友和家人，他们在Facebook上对她的突然死亡表示震惊。她的姐姐杰米-林恩-克鲁兹于2021年2月11日在脸书上宣布，因为她没有康复的希望，所以全家都在告别。她说，我的妹妹实在是太优秀了!今天萨拉的妈妈、兄弟姐妹和我被要求来医院跟萨拉告别。
+*翻译/简评：随波逐流 | 校对：感恩 | 审核：万人往 | Page：Daoiii*
 
-萨拉在2月7日星期天，脑干发生了出血性中风。自此，她一直在接受生命支持系统的治疗。经过所有的测试和核磁共振的结果，医生确定她的身体已经没有康复的可能，最终会死亡。因为萨拉是器官捐献者，医院将继续维持她的生命直到摘取器官。
+[!\[\]()!\[\](https://spark.adobe.com/page/wBNpLrh22SlRt/images/62ddaf65-5f3a-439b-8133-d3d09010b73a.jpg?asset_id=0d33c321-d298-4246-8a5d-ad4ab401d9e9&amp;img_etag=%22206eed7ae7f7c4221d36b8e4454def5b%22&amp;size=2560)](https://spark.adobe.com/page/wBNpLrh22SlRt/images/62ddaf65-5f3a-439b-8133-d3d09010b73a.jpg?asset_id=0d33c321-d298-4246-8a5d-ad4ab401d9e9&amp;img_etag=%22206eed7ae7f7c4221d36b8e4454def5b%22&amp;size=1024)来源：China Uncensored
 
-2021年2月14日，萨拉的双胞胎妹妹卡拉在她的Facebook页面上分享了下面这篇帖子，这篇帖子因为提到萨拉注射了辉瑞公司的中共病毒 mRNA，而在社交媒体上被审查和删除。
+***简评：***
 
-*这位美丽健康的**28**岁母亲接受了一个实验性的、未经**FDA**批准的**“**医疗程序**“**，现在家人正在为她的葬礼筹款。*
+**总统拜登宣布成立国防部应对中共国特别工作组，为部门政策、计划和流程提供一个基本状况的评估，以应对有关中共国的挑战态势。美国国防部长奥斯汀称中共国在这个战略竞争时代，对美国来说是“旗鼓相当的威胁”，反击中共国的工作是目前工作组的重点。因为中共国正在寻求推翻目前使印度-太平洋地区的所有国家受益的、以规则为基础的结构，并利用国家权力的所有要素迫使其它国家屈服于其意愿。而美国及其盟国寻求在该地区继续保持自由开放的环境。美国正在进行航行自由行动，以确保所有国家都能使用国际水上航道和空中航线。美国正在与盟国合作，改善国家边界区和专属经济区的秩序，以确保主权。**
 
-从美国疾控中心（CDC）目前在VAERS数据库中公布的数据来看，威斯康星州共有176例不良事件，其中包括26例住院，5例永久性残疾，58例急诊，11例死亡，不过年龄都不低于44岁。萨拉的病例如果已经上报到CDC VAERS报告系统，那么显然还未公布。
+**国防部新闻中说，这个行动小组的15名成员来自国防部各个部门，该工作组还将与跨部门合作伙伴进行对话，以确保国防对策与总统希望的针对中共国的整个政府态度保持一致。这说明美国政府内部各部门就应对中共国的威胁早已有了周密部署，目前已经达成了协调一致的行动计划，正在进行到最后发力的“冲刺阶段”。同时美国还将与其盟友和伙伴国展开跨国合作，灭共的集结号已吹响，届时将会有大量国家的加入，全球灭共大潮势不可挡，中共必将灭亡！**
 
-CDC网站上显示，美国已经有1170例实验性mRNA 中共病毒注射后的死亡记录，而根据CDC和FDA的说法，这些死亡都与中共病毒疫苗无关。
+[!\[\]()!\[\](https://spark.adobe.com/page/wBNpLrh22SlRt/images/64fe8a07-48cf-4c2a-ae86-f58aa1d85698.jpg?asset_id=2856c0bf-7385-458f-a5df-be02b111cb1c&amp;img_etag=%223c05050c25a4ed0581f5c80bf65b5480%22&amp;size=2560)](https://spark.adobe.com/page/wBNpLrh22SlRt/images/64fe8a07-48cf-4c2a-ae86-f58aa1d85698.jpg?asset_id=2856c0bf-7385-458f-a5df-be02b111cb1c&amp;img_etag=%223c05050c25a4ed0581f5c80bf65b5480%22&amp;size=1024)来自英喜庄园海报组
 
-尽管主流媒体极力封锁对中共病毒疫苗不利的消息，仍有如此多的负面消息流出。
+***原文翻译：***
 
-英雄科学家闫丽梦早就指出，只有找到中共病毒原株和数据，才有可能研发出安全有效的疫苗。世界上的大药厂在不到一年的时间里就匆匆推出疫苗，其安全性和有效性令人担忧。况且，在科学家们在中共的蓝金黄和各种威胁之下，几乎集体禁声，仍有科学家指出，市场现有的疫苗大多含有估计人体免疫系统的成分。
+# **拜登宣布国防部成立中共国特别工作组**
 
-目前大众（网上）排队接种疫苗，疫苗需求远大于供应。甚至年轻力壮的医护人员也积极志愿参加疫苗试验，以至数人致残和死亡。大众对疫苗的信任度与主流媒体的宣传导向有极大的关系。几个月以后，那些注射疫苗的人会怎么样呢？让我们跟踪观察。
+乔·拜登（Joe Biden）总统宣布成立一个国防部中共国特别工作组，提供部门政策、计划和流程的基本状况评估，以应对有关中共国的挑战。
 
-[原文链接](https://humansarefree.com/2021/02/28-year-old-brain-dead-5-days-after-second-pfizer-vaccines.html)
+国防部长劳埃德·奥斯丁三世（Lloyd J. Austin III）的特别助理埃利·拉特纳（Ely Ratner）将领导这项工作。工作组有四个月的时间为高级国防领导人制定建议。
 
-* * *
+[!\[\]()!\[\](https://spark.adobe.com/page/wBNpLrh22SlRt/images/0fabdf45-623d-4b6a-aca1-b8b9acbe123d.png?asset_id=d87b6266-958f-4bab-bf51-24b530ef3a60&amp;img_etag=%2292df09635d2fee4b94d0a06615a613c2%22&amp;size=2560)](https://spark.adobe.com/page/wBNpLrh22SlRt/images/0fabdf45-623d-4b6a-aca1-b8b9acbe123d.png?asset_id=d87b6266-958f-4bab-bf51-24b530ef3a60&amp;img_etag=%2292df09635d2fee4b94d0a06615a613c2%22&amp;size=1024)
 
-校对、发稿 文锦
+奥斯汀和刚刚宣誓就职的国防部副部长凯瑟琳·希克斯（Kathleen H. Hicks）称中共国在这个战略竞争时代对美国来说是“旗鼓相当的威胁”。
+
+中共国正在寻求推翻目前以规则为基础的结构，该结构使印度 – 太平洋地区的所有国家受益。美国及其盟国寻求在该地区继续保持自由开放的环境。中共国正在利用国家权力的所有要素迫使其它国家屈服于其意愿。
+
+美国正在进行航行自由行动，以确保所有国家都能使用国际水道和空中航线。美国正在与盟国合作，改善国家边界区和专属经济区的秩序，以确保主权。
+
+反击中共国的工作是工作组的重点。
+
+国防官员称该工作组为“冲刺工作组”，它将审查高度优先的主题，包括战略、作战概念、技术和部队结构、部队姿态以及部队管理和情报。工作组还将研究美国的联盟和伙伴关系及其对中美关系和美国国防部与中共国关系的影响。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/wBNpLrh22SlRt/images/ed59d555-2fff-41d7-9143-aae6935d53ab.png?asset_id=8386cfc8-1e26-439d-bde8-9bab4884be02&amp;img_etag=%22aa344eb91e2d455fcff449ce7171e782%22&amp;size=2560)](https://spark.adobe.com/page/wBNpLrh22SlRt/images/ed59d555-2fff-41d7-9143-aae6935d53ab.png?asset_id=8386cfc8-1e26-439d-bde8-9bab4884be02&amp;img_etag=%22aa344eb91e2d455fcff449ce7171e782%22&amp;size=1024)
+
+组成这个工作组的15名成员将来自国防部的各个部门，包括国防部长办公室工作人员、联合参谋部、服务部门、战斗人员指挥部以及情报界的代表。
+
+该工作组还将与跨部门合作伙伴进行对话，以确保国防对策与总统希望的针对中共国的整个政府态度保持一致。
+
+**[原文链接](https://www.defense.gov/Explore/News/Article/Article/2500271/biden-announces-dod-china-task-force/)**
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/wBNpLrh22SlRt/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/wBNpLrh22SlRt/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
