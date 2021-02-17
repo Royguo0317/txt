@@ -1,35 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】港共政府： 威逼利诱香港人打毒疫苗 无所不用其极
-` 喜馬拉雅大使館-粵語組` [轉載自GNews](https://gnews.org/zh-hans/911773/)
+## 缅甸政变军方对昂山素季提出新指控
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/911965/)
 
-搜集 / 编撰：恩典
-![]()![](https://gnews.org/wp-content/uploads/2021/02/people-2.jpg)
-**相关新闻报导疫苗接种首批百万剂疫苗本月底终抵港， 3月初开始接种。暂时港府只批准一款有中共背影病毒疫苗紧急使用，若随即要求市民要有打针纪录，形同逼市民接种指定疫苗，如果有人想打阿斯利康疫苗，但是6月才到。**
+俄罗斯莫斯科喀秋莎农场   银河
 
-**原来第一批疫苗是有中共背景疫苗，港共政府急不及待提前威逼利诱等手法，督促香港人要打疫苗。港共政府最害怕香港市民的不合作，最怕又很少人打疫苗而告终，主子中共颜面何存？港共当然为中共主子想尽办法逼使香港市民打疫苗的。**
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-17_06-26-23.jpg)[reiffcenterblog.cnu.edu](https://reiffcenterblog.cnu.edu/2016/01/myanmar-and-the-karen-conflict-the-longest-civil-war-you-have-never-heard-of/)
+《印度快报》（The Indian Express）2月16日消息，缅甸当局对该国领导人昂山素季提出了第二项指控。
 
-据商业电台报道，食物及卫生局局长陈肇始表示，不排除日后把接种武肺疫苗，列为市民进入食肆等表列处所的条件之一，意味没有接种疫苗的市民，可能不能光顾食肆或到戏院等公众地方。
+缅甸军方于2月1日发动了军事政变，拘捕了民主政府领导人昂山素季。因其在家中使用了未经登记的进口对讲机，被起诉违反了缅甸的进出口法。现昂山素季再次面临违反缅甸自然灾害法的指控。有关指控的进一步细节目前尚不清楚，该违规行为被用于起诉那些违反中共病毒社交限制的人。
 
-港共机关算尽全力以赴信号出炉了，令其香港市民乖乖听话，手法如同不安心的「安心出行」二维条码，接下来所有进出餐饮服务的都要扫二维吗？由3月1日起，所有工作人员及香港市民在进入政府大楼​​或办公室前，必须使用「安心出行」扫描二维条码，或登记姓名、联络电话和到访的日期和时间。目的明显至极，为何感觉港共政府在收集香港市民的私人信息？而且心急如焚提前部署，为了香港市民主动打疫苗威胁论都用上，有可能不能进入餐厅、酒店、商场、戏院等等场所？
-![]()![](https://gnews.org/wp-content/uploads/2021/01/image0-318.jpg)图片：喜马拉雅大使馆粤语组
+据美联社(Associated Press)报道，由于军政府上周对该国刑法进行了修改，这项指控可能会允许在没有法庭许可的情况下拘留嫌疑人，并无限期拘留。
 
+昂山素季的律师和她的全国民主联盟(National League for Democracy)表示，自从她被拘留以来，他们就无法与她取得联系。面对持续不断的反对政变抗议和要求释放昂山素季的呼声，缅甸军方回应，昂山素季“健康状况良好”。
 
-**评论：**
+周二，缅甸各地的抗议者再次走上街头。联合国缅甸问题特使表示缅甸军政府“没想到会有这么多人走上街头。” 美国、联合国和其他几十个国家敦促军政府还政于缅甸民选政府。联合国缅甸问题特使指出，“世界各地的团结非常重要，不能接受这次政变。”
 
-**虽然卫生防护中心总监林文健在疫情记者会上，被问及对陈肇始有关疫苗言论的回应时指，从公共卫生角度，鼓励院舍长者、前线人员等高危群组接种，但认为打针应是市民自愿的行为。但事实上，曾几何时香港市民一直享有的自由意识选择权已经被剥夺了，回归中共国23年，最终香港换来被欺骗。中国人已经被奴役71年了，现在香港，下一步肯定是全球了。**
+参考链接：
 
+[https://indianexpress.com/article/world/myanmar-coup-aung-san-suu-kyi-faces-new-charge-7191470/](https://indianexpress.com/article/world/myanmar-coup-aung-san-suu-kyi-faces-new-charge-7191470/)
 
-
-**七哥2021年2月16日直播𥚃说：中共造冠状病毒还造毒疫苗，全世界贩卖得上百亿美元收益；中共灭白计划，以病毒㓕白，以疫苗灭白，要你的钱和命，还要你感谢共产党。相信共产党，走进火葬埸。**
-
-【以上观点仅代表笔者本人】
-
-资料来源 [: 苹果新闻](https://hk.appledaily.com/local/20210215/YQR4NS7ECNC4PERAJSFCPMPYAU/)
-
-覆核：文乔 / 上传：彩虹 (Rainbow)
-
-
+[https://indianexpress.com/article/world/myanmar-police-file-additional-charge-against-aung-san-suu-kyi-lawyer-7191141/](https://indianexpress.com/article/world/myanmar-police-file-additional-charge-against-aung-san-suu-kyi-lawyer-7191141/)
 
 0
