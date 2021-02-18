@@ -1,37 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战云长天时评】中共惧怕闫博士却怒斥英国指认疫源地就在中共国
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/914682/)
+## 《路德社》精选新闻简评：中共疫苗能挡中共病毒？公众质疑疫苗有效性
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/914763/)
 
-作者：捆绑CCP一千年/喜马拉雅东京樱花团
-
-据中新网2月17日，一篇题为《英方就新冠肺炎疫情起源问题表态 中国驻英国使馆回应》的报道表示，“日前，英国领导人称‘很显然大部分证据似乎表明，新冠肺炎疫情起源于武汉’，并赞同美国对世卫组织赴华调查病毒起源受限表示关切。”就此问题，中共国驻英国大使提出所谓抗议，其反击内容不但令人作呕，而且极度无耻。
-
-究竟多么无耻？我们不妨看看这位大使如何说的：“病毒溯源是一个复杂的科学问题，涉及多国多地，应由全球科学家合作开展有关工作。这需要科学的实证精神，不能让政治凌驾于科学之上，不能用无端猜疑和蓄意歪曲代替科学研究。”足见其虚伪之极，笔者不仅要问，CCP各国大使馆包括外交部和习近平以及石正丽、高福等人，你们为什么不去挑战一下闫博士有关中共病毒溯源的擂台邀请呢？没准你们能赢是吧？闫博士不止一次向你们宣战，你们除了对阎博士人生攻击的小人伎俩外，还有什么招？你们举国之力买下全世界，居然害怕一个弱女子闫丽梦。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/PHOTO-2021-02-17-21-20-55.jpg)
-这是闫丽梦博士在推特里发表的宣言，这是中共跨不过去的生死关，闫博士说：“**对于所有支持‘自然起源的科学家’#COVID19或‘中国不是它的发源地’，欢迎在任何有影响力的媒体、平台上进行实时讨论，就像总统大选辩论那样！ 让我们提供证据！每个人都应该得到真相**！”（见2020年2月11日的推文）CCP你要不向闫博士说清楚什么叫“不能让政治凌驾于科学之上，”笔者不管你们中共在科学之上收买了多少科学家，至少你用倾国之力也无法收买闫丽梦博士，还有很多有良心的美国科学家，对于你们CCP所痛恨的“无端猜疑和蓄意歪曲代替科学研究”的问题，全世界有良心的科学家和公民都很想搞清楚。如果你们CCP政府不配合，你们就是孬种，就是自己证明自己是流氓、反人类政权。你们用谎言和强权剥夺了“每个人都应该得到真相”的权利，杀戮全球将近千万条生命，而且死亡仍在继续的前提下却贼喊捉贼，搞出个所谓世卫专家给病毒下一个所谓最终报告，却被你收买的谭德塞否认，你应该问问谭德赛为什么不敢承认世卫组织为你背书？（见 2/16/2021路德时评（路安墨谈））不仅如此，CCP在掩盖病毒真相反击战上将会噩梦不断、连连暴雷。习近平总书记你应该知道你的情人拜登总统救不了你，因为闫博士即将发布最新报告，闫博士发推说：“不要着急，关于中共无限制生物武器的公开和现场讨论、辩论#COVID19病毒也很受欢迎。我有更多可靠的证据即将发布。人们将进一步了解基于SARS的PLA开发的独特BIOWEAPON策略！与SARS-CoV-2进行比较！”（见2020年2月16日的推文）在全球关注中共病毒真相的问题上，相信闫博士在公布中共病毒证据方面的最新报告后，将会全球震惊！
-![]()![](https://gnews.org/wp-content/uploads/2021/02/PHOTO-2021-02-17-21-20-53.jpg)
-至于驻英使馆强词夺理的答记者问所说的所谓“病毒溯源是一个复杂的科学问题。”笔者非常痛心地认为，在每分钟都在死人的情况下，你们CCP在病毒真相问题上利用国家机器杀人的同时搜刮纳税人的钱贿赂美国，将真相掩盖，继续杀人，造成的所谓复杂问题，而你们宣称的“事实证据的不断积累”在哪里？你们“科学假设的不断发展”难道想继续假设下去，直到你们实现郭文贵先生说的“13579灭白计划”吗？（见 2021年2月15号 文贵直播:谈看完电影《白虎》的感受）。CCP的邪恶用心就在其所说的，“溯源工作也将在地域上发生变化”。这似乎在说，英国和美国，你们老大哥听好了，我一定要把病毒发源地推给你们美国，拜登会答应的。这是中共的嘴脸，笔者相信他们的计划很快就会惨烈地破产，相信闫博士的报告出来，怕是在证据面前。中共将在全球视野关注下，无地自容了吧。最后，笔者要说的是你们习共也好，中共也好，你们有种向全球发动第三次世界大战，你习近平却没有勇气效法希特勒的自杀、也没有勇气效法日本的投降，那么，笔者要请问你CCP要选择怎样一个死法呢？
-
-2021年2月17日晚写于东亚
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
 
-```
-参考资料
-```
+
+> As [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) seeks to bolster its international standing through ‘vaccine diplomacy,’ public confidence in the safety and efficacy of China’s [#Vaccines](https://twitter.com/hashtag/Vaccines?src=hash&amp;ref_src=twsrc%5Etfw) for [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)—both in and outside China—appear mixed. [https://t.co/rYjs4zjoyZ](https://t.co/rYjs4zjoyZ)
+> — The Epoch Times – China Insider (@EpochTimesChina) [February 16, 2021](https://twitter.com/EpochTimesChina/status/1361807494524383238?ref_src=twsrc%5Etfw)
 
 
-[中新社](https://www.chinanews.com/gn/2021/02-17/9412773.shtml)
 
-[路德社](https://youtu.be/-ROKTwvLbdE)
+中共病毒2020年成功的释放全球，终于到了利益收割的时候，中国政权正在积极向国外推广其COVID-19疫苗，并试图利用其疫苗外交成为全球领导者。可惜“以前从来没有成功的开发出任何疫苗的中共国”，手握制造病毒的优势，生产出的疫苗仍然遭到世界民众的质疑。
 
-[郭先生](https://gtv.org/video/id=602b06fabe64150df858276b)
+英文大纪元时报2月16日撰文，中共疫苗大举进攻世界的同时，公众对中国的[COVID-19](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=en&amp;tl=zh-CN&amp;u=https://www.theepochtimes.com/t-covid-19)疫苗在中国[国内外](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=en&amp;tl=zh-CN&amp;u=https://www.theepochtimes.com/t-covid-19)的安全性和有效性的信心似乎参差不齐。
 
-文章只代表作者观点，与Gnews无关
+上个月，巴西总统贾尔·博尔索纳罗（Jair Bolsonaro）[质疑中国疫苗的功效](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=en&amp;tl=zh-CN&amp;u=https://www.theepochtimes.com/india-and-china-accidently-become-rivals-for-providing-brazils-covid-vaccine_3649007.html)。 中国的科兴生物（Sinovac）在巴西进行了最后阶段的临床疫苗试验，结果显示该药的有效率为50.4％，仅勉强超过了WHO批准的50％门槛。法国总统艾曼纽尔·马克龙（Emmanuel Macron）在本月初由美国智囊团大西洋理事会（Atlantic Council）举行的一次活动中，[批评](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=en&amp;tl=zh-CN&amp;u=https://www.today24.news/en/2021/02/macron-warns-about-the-chinese-vaccine-and-its-possible-risks.html)缺乏有关中国疫苗的透明信息，还对中国的疫苗是否有效预防已经出现的中共病毒新变种表示担忧。
 
-审核：文小白/喜马拉雅东京樱花团
+据报道，中共尚未发布有关其疫苗效力或副作用的任何数据。台湾卫生部长[告诉](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=en&amp;tl=zh-CN&amp;u=https://www.epochtimes.com/gb/21/2/14/n12751888.htm)记者，台湾不买中国制造的疫苗是由于其不完整的技术资料，缺乏科学报告。总部位于伦敦的研究数据和分析小组YouGov，[调查](https://translate.google.com/translate?hl=en&amp;prev=_t&amp;sl=en&amp;tl=zh-CN&amp;u=https://today.yougov.com/topics/health/articles-reports/2021/01/15/how-much-difference-does-it-make-people-where-covi)了来自17个国家/地区的19,000人，对他们在12个国家/地区生产的疫苗的态度。结果，中国得分平均倒数第二，为-19 。负分数意味着人们对从中共国来的疫苗更有可能感到担心。
 
-HTS-02C-202102-027
-![]()![](https://gnews.org/wp-content/uploads/2021/02/PHOTO-2021-02-15-15-06-54-1.jpg)
+担心就对了，中共制造的生化武器，导致全球超1亿人感染，现在正是利益收割的时候，疫苗到底有没有效果，安不安全对中共来说都是次要的！闫丽梦博士2020年9月在班农战斗室的采访中点明，中共病毒就是SARS病毒的增强版， SARS疫苗的研究历史表明疫苗带来的副作用比病毒本身更加严重，ADE (Antibody-dependent enhancement ), 抗体依赖性增强的问题不解决，就不会出现有效疫苗，反而会有导致重症感染的风险。
+
+不仅如此，2020年12月，由中国人民解放军军事科学院军事医学研究院牵头，中共国建成新型冠状病毒MRNA疫苗生产车间，预计一期产能为每年1.2亿剂。美国内科和外科医生协会的前任主席莉-梅里特医生对mRNA疫苗有详细的解释，认为可能隐藏有二元生物毒剂的阴谋， 疫苗把mRNA连接到病毒的刺突蛋白上。两年后又释放专门制造的任何东西，可以与这个基因片段相结合，然后它会导致这种免疫增强的死亡。这就是一种延迟死亡，所谓的二元毒药。
+
+为了给疫苗经济打前站，深层势力压制了羟氯喹的使用，本来就可以有效预防和治疗中共病毒的低廉药物，硬是被各国禁用。不顾数百万人的死亡就为了今天的疫苗市场，面对这块大蛋糕，中共及他的同伙们会让它这么快消失吗。正如闫博士反复强调的，病毒研究中从来都是大批病毒毒株一同实验，中共手中肯定有更多新冠病毒毒株，为了能敲骨吸髓，挽救本国摇摇欲坠的政权，它一定会一而再，再而三地放毒，那么中共病毒的疫苗，是不是要让全世界人民一针，两针，新型，变种地一直打下去呢？
+
+中共国老百姓韭菜般的命运眼见就要成为全世界人民的命运了!疫苗经济，疫苗外交都在转移世界对中共生化武器追责的视线。找中共要病毒真相，找中共要解药才是全世界摆脱病毒威胁的制胜关键。
+
+[参考链接](https://gnews.org/zh-hans/903047/)
+
+【文章仅代表作者个人观点】
+
+本文作者：Sherryok水云间
+审核校对：鲁邦五世
+上传排版：糖果儿
+
 0
