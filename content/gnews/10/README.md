@@ -1,49 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共和党议员提出抵制北京冬奥会决议
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/915328/)
+## 【香港要闻】英更新香港营商指引 港失「国际金融中心」地位
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/915295/)
 
-翻译：康州盘古农场- YY
-校对：康州盘古农场- Freeearth
-编辑：康州盘古农场- Antsee-GTV
+搜集\编撰：西西
 
-![olympics]()![olympics](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-18-at-16.40.47.png)***图片来源：《美联社》- 北京奥林匹克塔五环***
+**英国外交部于2月16日更新在香港贸易及投资的风险指引，也是英国外交部自2019年8月后，相隔1年半后再度更新与香港的营商指引。新指引批评《港区国安法》违反《中英联合声明》，并特别加入国安法容许不公开审讯或送中审讯、4名民主派议员被取消资格、以及英国国民（海外）护照（BNO）签证移居英国等内容。新指引首次删去香港「国际金融中心」的描述，不再直接描述香港有高度自治，仅指香港在一国两制模式下运作。**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/配圖-jpg-.jpg)
+**删「国际金融中心」、改称「区域枢纽」**
 
-据《美国第一新闻网》2月15日报道：
+英国发布最新香港营商指引，由过去形容香港为「国际金融中心」，改称「区域枢纽」（regional　hub），并删除对双方关系「积极」、「互利」等描述，同时不再直接描述香港享有高度自治。
 
-一位共和党议员谴责由中共国举办明年的奥运会，并表示这是在庆祝“残酷的独裁统治”。
+指引又提到香港的言论自由令人关注，又不点名提及有表面证据显示，有企业因员工的政见或曾参与过去两年的示威而承受中方压力。英国政府的新指引在行文上也由过去直接说「香港享有高度自治」，改为更小心的「中英联合声明下表明香港享有高度自治」。
 
-佛罗里达州共和党国会议员迈克尔·沃尔兹（Michael Waltz）周一提出一项决议，敦促美国奥委会将冬季运动会更改为中国境外的地点。 该决议要求美国在国际奥委会拒绝该提议的情况下退出2022年奥运会。
+港府发言人表示，英国对《国安法》的忧虑是「毫无事实根据」，并重申《国安法》让香港由乱变治、确保一国两制行稳致远及使香港长远繁荣稳定，亦保障香港免受各种威胁，有利保持香港政治和社会稳定、有助维持有利的营商和投资环境。
 
+**申请保释前夕 黎智英再被捕**
 
+就在英国删改「香港国际金融中心」以及不提香港高度自治之际，备受关注的本港壹传媒创办人黎智英再度在赤柱监狱被捕。
 
-> Today, Rep. Waltz introduced a resolution to call on the U.S. Olympic Committee to withdraw from the 2022 Winter Olympics in Beijing unless an alternative site is found due significant human rights violations carried out by the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw).[https://t.co/genTDIjCb6](https://t.co/genTDIjCb6)
-> — Congressman Waltz Press (@RepWaltzPress) [February 15, 2021](https://twitter.com/RepWaltzPress/status/1361383660604301315?ref_src=twsrc%5Etfw)
+黎智英在前年8‧18反修例「流水式集会」未经批准集结案中，与另外8名泛民人士被检控，案件于本周二（16日）起在西九龙法院开审，预计审期10天。然而警方再加辣，于16日晚于赤柱监狱再拘捕黎智英，控其涉嫌「串谋勾结外国或者境外势力危害国家安全」及「串谋协助罪犯」，指黎智英涉嫌协助12名港人案中的罪犯李宇轩潜逃至台湾。
 
+《港区国安法》去年七一前夕实施至今，共98 人被捕，当中被正式起诉的有5 人，除黎智英外，还包括陈梓华、在湾仔驾驶插上「光时」旗帜的电单车的唐英杰、学生动源前召集人钟翰林、有「美国队长二代」之称的马俊文。
 
-***今天，众议员华尔兹提出了一项决议，由于CCP （中共）严重侵犯人权，呼吁美国奥委会退出2022年北京冬季奥运会，除非找到替代地点。***
-尽管有180个团体签署了一封呼吁抵制北京奥运会的信，但中共官员仍然顽固地拒绝任何破坏性努力。
+**战友点评：**
 
-中国外交部发言人汪文斌表示：“我们也希望媒体正视事实，停止传播这种毫无根据和诽谤性的言论。” “出于政治动机企图干涉和破坏奥运会的正常筹备和举办是高度不负责任的。这样的举动不会得到国际社会的支持，也永远不会成功。”
+国安法实施后，不少西方国家纷纷提醒国民在港注意安全。最近港府提出不承认双重国籍后，包括澳洲、加拿大等国家都提醒国民是否需要申报更改国籍。加拿大《移民月刊》更指，加拿大准备撤侨计划。但就营商指引内容做出改变，英国应该是第一个。
 
+针对香港崩坏速度之快，时事评论员、资深中国问题专家程翔早前接受港媒专访时披露指，在2003年50万人抗争之前，中共已经部署要逐步消灭香港的反对派，20年来做了很详细的部署。程翔指，中共从九七年主权移交以后不久，就设计了一套慢慢打压反对派或者是泛民阵营的一套策略。早在2002年，前中共外交部长钱其琛就已经透露，中央不想香港的民主化进程太快，怕影响中国大陆。所以一直以来，「中共就怕香港实行真正的民主化」。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/image003-11.jpg)
+程翔披露了中共工委的一份内部文件，「2003年5月它们就已经开了一个会，研究怎样部署来镇压香港的反对力量，说明游行之前已经要镇压，这个诡计是很清楚。」
 
+他指，2019年6月中共《红旗》杂志刊登了一篇文章，提出「改造香港的司法」、「改造香港公务员系统」、「改造香港的立法会」、「要成立一个政党」及「深入到基层去联系香港群众」。程翔说：「我觉得那篇文章，如果它的建议全部实施的话，那就等于是把香港毁灭。」
 
-> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s actively:
-> – Committing genocide & mass internment of Uighurs & other Muslim minorities in Xinjiang
-> -Undermining democratic rights & dismantling of ‘one country, two systems’ framework in Hong Kong 
-> – Lying about COVID since the start
-> (1/2)
-> — Rep. Mike Waltz (@michaelgwaltz) [February 15, 2021](https://twitter.com/michaelgwaltz/status/1361333783157424128?ref_src=twsrc%5Etfw)
+美国前总统列根特别助理、卡托研究所高级研究员Doug Bandow早前发表文章《香港无救，香港人有救》，指去年《港区国安法》实施，令香港的自由继续痛苦地死亡，丧失自主权的事实将挥之不去，纵使香港仍然享有额外的经济自由，其它方面将与其它中国城市无差别。
 
+【以上观点仅代表笔者本人 】
 
-***CCP（中共）积极地：
--在新疆对维吾尔族和其他穆斯林少数民族进行种族灭绝和大规模拘留
- -破坏民主权利并废除香港的“一国两制”框架
- -从一开始就在C C P病毒的疫情问题上撒谎
-（1/2）***
-沃尔兹还对中国人民被政府残害表示关切。
+资料来源：
 
-原文链接：[https://www.oann.com/gop-resolution-demands-boycott-of-beijing-olympics/](https://www.oann.com/gop-resolution-demands-boycott-of-beijing-olympics/)
+[大纪元香港: 英改指引 港失「国际金融中心」地位](https://hk.epochtimes.com/news/2021-02-18/72854550)
 
-+2
+[立场新闻: 被指与「揽炒巴」勾结外国势力、协助 12 港人离境…](https://www.thestandnews.com/court/%E8%A2%AB%E6%8C%87%E8%88%87-%E6%94%AC%E7%82%92%E5%B7%B4-%E5%8B%BE%E7%B5%90%E5%A4%96%E5%9C%8B%E5%8B%A2%E5%8A%9B-%E5%8D%94%E5%8A%A9-12-%E6%B8%AF%E4%BA%BA%E9%9B%A2%E5%A2%83-%E9%BB%8E%E6%99%BA%E8%8B%B1%E8%B5%A4%E6%9F%B1%E7%9B%A3%E7%8D%84%E5%85%A7%E5%86%8D%E8%A2%AB%E6%8D%95/)
+
+[英国发布香港营商指引](https://www.gov.uk/government/publications/overseas-business-risk-hong-kong/overseas-business-risk-hong-kong)
+
+审稿：卡西欧/上传：文粤
+
++1
