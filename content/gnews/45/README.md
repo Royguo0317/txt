@@ -1,21 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 墙内春节特别传送：“有工作的地方没有家，有家的地方没有工作”
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/915212/)
+## 共和党议员提出抵制北京冬奥会决议
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/915328/)
 
-撰稿人 喜妈 麦子
-![]()![](https://gnews.org/wp-content/uploads/2021/02/small-snow-covered-christmas-house-on-the-floor-of-AX2FG79-2-scaled.jpg)图片来源：Elements.envato.com
-最近在澳喜农场的一次战友畅想频道聊天中，来自墙内的战友分享了今天墙内过春节的感想：今年的墙内春节，号召大家都就地过节，不要走动；很多人回不了家，非常难过，他们感叹“有工作的地方没有家，有家的地方没有工作”。笔者认为，这句简单的话里包含非常深刻的CCP治下极为突出的一个问题，就是城乡分割，贫富巨大的差异。
+翻译：康州盘古农场- YY
+校对：康州盘古农场- Freeearth
+编辑：康州盘古农场- Antsee-GTV
 
-首先，怎么来理解“有工作的地方没有家”，笔者认为，这上半句话就说明，很多能够让自己谋生的机会都是在远离人们生长的地方，异地就业成为一个普遍的现象。同时，这个情况也说明，很多能够让人们找到工作的地方，都无法让人们同时负担起更多家人的生活，从而导致家与人的分离。
+![olympics]()![olympics](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-18-at-16.40.47.png)***图片来源：《美联社》- 北京奥林匹克塔五环***
 
-如果一个人可以找到工作，却只能保证自己一个人的生活，无法承担一个家庭的需求，这个正常吗？非常肯定的是，任何一个成年人，都会自动得到相应的答案：绝对不正常。这不是一个健康社会为一个公民所创造的环境。这绝对不是一个有序的体制所能为它的建设者所提供的人生机会。一个人的工作只能养活自己，或者只能在养活自己的同时，养活在生活水平非常低的二三级城市以及乡村的家人，这个只能说明这个社会体制已经走向了逆向发展和倒退。社会不是走向欣欣向荣，而是走向黯然低落。
+据《美国第一新闻网》2月15日报道：
 
-其次，怎么来理解“有家的地方没有工作”。如果“有家的” 却“没有工作”的地方，通常也一定是经济衰退和落后的地方。这样的地方同时也肯定是文化和物质生活都比较低下的区域。这样的地方当然吸引不了年轻人和有才能的人。而这样的地方却是这些在远方工作的人，他们“家”所在的地方，这说明什么呢？这就说明，在CCP体制下，人们的工作和生活是分裂和破碎的。
+一位共和党议员谴责由中共国举办明年的奥运会，并表示这是在庆祝“残酷的独裁统治”。
 
-当一个人的工作和生活，家庭和事业处在分离的状态，这个人的心理和身体会是健康的吗？这个人的家庭会是和谐和可持续发展的吗？这个社会是有序和积极的吗？一个人全力投入自己的工作，却不能和自己的家人随时亲密地相处；同时，自己的家人也只能最多在经济上得到资助，却不能有到位的面对面的相处机会与情感交流。我们需要问，这个社会，这样的体制，是一个为人民的体制和社会吗？我们必须要思考，这是一个健康和能够持续的社会与体制吗？
+佛罗里达州共和党国会议员迈克尔·沃尔兹（Michael Waltz）周一提出一项决议，敦促美国奥委会将冬季运动会更改为中国境外的地点。 该决议要求美国在国际奥委会拒绝该提议的情况下退出2022年奥运会。
 
-从以上分析，就在简单的逻辑中，我们可以看到的就是：中共体制下，非常分裂的人、家庭和社会的现实状态，让人象奴隶一样地工作糊口，却失去了一切人的基本权利如自由、独立和亲情。人靠工作换取劳动报酬，人要靠家庭的维系来获得生存的必要情感联系，而工作与家的普遍性分离，将人置于一个无法可持续发展的死胡同，这是让一个社会走向衰落和消亡的邪恶设计。我们必须灭共，我们必须让社会充满活力，充满人性，充满必要的福利保障和法律规范下的生存权利声张。只有灭共才能人之为人，家之为家，国之为家。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-澳喜Logo.jpeg)
-+5
+
+
+> Today, Rep. Waltz introduced a resolution to call on the U.S. Olympic Committee to withdraw from the 2022 Winter Olympics in Beijing unless an alternative site is found due significant human rights violations carried out by the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw).[https://t.co/genTDIjCb6](https://t.co/genTDIjCb6)
+> — Congressman Waltz Press (@RepWaltzPress) [February 15, 2021](https://twitter.com/RepWaltzPress/status/1361383660604301315?ref_src=twsrc%5Etfw)
+
+
+***今天，众议员华尔兹提出了一项决议，由于CCP （中共）严重侵犯人权，呼吁美国奥委会退出2022年北京冬季奥运会，除非找到替代地点。***
+尽管有180个团体签署了一封呼吁抵制北京奥运会的信，但中共官员仍然顽固地拒绝任何破坏性努力。
+
+中国外交部发言人汪文斌表示：“我们也希望媒体正视事实，停止传播这种毫无根据和诽谤性的言论。” “出于政治动机企图干涉和破坏奥运会的正常筹备和举办是高度不负责任的。这样的举动不会得到国际社会的支持，也永远不会成功。”
+
+
+
+> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s actively:
+> – Committing genocide & mass internment of Uighurs & other Muslim minorities in Xinjiang
+> -Undermining democratic rights & dismantling of ‘one country, two systems’ framework in Hong Kong 
+> – Lying about COVID since the start
+> (1/2)
+> — Rep. Mike Waltz (@michaelgwaltz) [February 15, 2021](https://twitter.com/michaelgwaltz/status/1361333783157424128?ref_src=twsrc%5Etfw)
+
+
+***CCP（中共）积极地：
+-在新疆对维吾尔族和其他穆斯林少数民族进行种族灭绝和大规模拘留
+ -破坏民主权利并废除香港的“一国两制”框架
+ -从一开始就在C C P病毒的疫情问题上撒谎
+（1/2）***
+沃尔兹还对中国人民被政府残害表示关切。
+
+原文链接：[https://www.oann.com/gop-resolution-demands-boycott-of-beijing-olympics/](https://www.oann.com/gop-resolution-demands-boycott-of-beijing-olympics/)
+
++2
