@@ -1,51 +1,113 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## G-Clubs抽奖活动影响巨大，G-Fashion 将是世界上最大的创新
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/912607/)
+## CCP病毒疫情下的全球经济&#8211;2020&amp;2021（一）
+` 经济金融节目组` [轉載自GNews](https://gnews.org/zh-hans/911346/)
 
-新闻简述：在2021年2月15日的第二段 Getter 视频中，郭先生感叹 G-Clubs 的抽奖活动的巨大影响和看到战友中奖的快乐，还预期了 G-Fashion 的美好前景。
+作者：Opal
 
-**G-Clubs****抽奖活动影响巨大，****G-Fashion ****将是世界上最大的创新**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/全球疫情169-3.png)
 
-**G-Clubs’ Event Has Huge Impact, G-Fashion Will Be the Biggest Innovation in the World**
+**摘要：**2019年末在中国武汉爆发的CCP病毒疫情，对全球经济造成重创，诱发了2020年全球经济危机，衰退几乎覆盖各个行业。 2021年注定不平凡，关键是病毒。只有CCP被灭后，制毒和放毒才会停止，世界各国才能拿到病毒原始数据，研制出管用的疫苗，结束疫情，人类社会才能回归正常。否则，全球的经济不会好转，而会更加恶化。
 
-然后昨天 G-Clubs 抽奖，影响太大了，影响太大了。这个特别是对任何有脑子的人，它意味着什么？大家都很明白的。我们要培养一个一个的，一些有良知的人，有更多的机会。应该让他们活得更有的体面，特别是…… 这话还有些法律上不能说。接下来呢，据说啊据说，还有更大的活动，更高端的活动，很有意思。
+这里先感谢我们的英雄李文亮医生，感谢路德在2020年1月19号节目中首次爆料病毒，感谢闫丽梦博士揭露病毒真相，世界上越来越多的国家开始质疑CCP病毒起源，开始向中共要疫情爆发初期的原始数据。
 
-Yesterday’s G-Clubs lottery drawing had huge impact! Especially for those with a brain, what does it mean? Everyone knows it really well. We want to nourish people, people with a conscience, and give them more opportunities. We should allow them to live a more decent life, especially… Well, there is something that I can’t say due to legal concerns. It is said that there will be bigger events and more high-end events next, which will be very interesting.
 
-我特别特别地开心，当我看到战友们得到了这样的快乐，和有这些希望和机会的时候，我真的是最开心的。我以前我都感受不到，我现在我感受得更加地贴切。就真的是当你做了一个你自己愿意做，又不是为自己的是为他人的事，你特别开心的时候，那种感觉真的是佛家说的，那真的是，叫做不是清凉的法喜，应该是无缺漏的、真正的这种内心的莲花喜，和大欢喜的感觉。就是那种愉悦感是无法表达的，特别是昨天看到这些战友们抽的那些。
 
-I am very very happy. I was really the happiest when I saw my fellow fighters get such happiness, hopes and opportunities. I didn’t sense it before, but now I feel it more intimately. Seriously, when you do something willingly, not for yourself but for others, and feel extremely happy, that kind of feeling is really what the Buddhist says. It really is… it’s better than the coolness of dharma joy, it should be a flawless, true, inner, lotus joy and a great happiness. It’s that kind of pleasure that can’t even be expressed, especially yesterday when witnessing these fellow fighters winning those stuff.
+CCP病毒2019年年末在中国武汉大规模爆发，中共政府非但对全世界隐瞒疫情，谎称疫情可控可防，而且没有及时切断飞向国外的航班，导致了病毒陆续传播到亚洲其他国家和欧美各国，进而导致全球疫情大爆发。
 
-我的鞋你们看不到，这鞋太漂亮了，这鞋太漂亮，太漂亮了，这鞋。然后特别是听到这战友抽的这个奖是改变家庭命运的人。太重要了，而且是国内的，太重要了。
+迫于压力，世界卫生组织于2020年3月11号宣布新冠病毒全球疫情爆发。 同年3月23号川普总统宣布纽约，加州和华盛顿州为“重大灾难”，这标志着疫情在美国开始大规模爆发。疫情急剧蔓延，导致全美各州各地封锁，到现在已经是10个多月了。
 
-You can’t see my shoes. These shoes are so awesome. So awesome, these shoes! It’s so important, especially when I heard that the prize won by this brother or sister in arms can change the fate of his/her family. It’s so important, considering that they are in mainland China.
+从一开始的经济完全停摆，到之后经济的部分开放，再到现在第二波、第三波疫情而导致的部分地区又封锁，全球经济因此陷入危机。我个人认为，撇开造成危机的原因、以及政府将疫情政治化等这些因素，光从这次疫情持续的时间久、打击面大来说，它和1931年的那场大萧条有很多相似之处。1931年的那场大萧条一开始，所有的经济活动、就业、消费和股市都剧烈下跌，持续了近4年，在尾声的时候，这些指数都远远低于危机前的水平。而2020年的这场全球经济危机一开始，所有这些经济活动、就业、股市等剧烈下跌的幅度等同于或者超过1931年大萧条的初期。当然，不同之处是现在这场危机还没有持续4年，各项指数就已经开始反弹。
 
-金鸡独立，可以吧，兄弟姐妹们？哇噻，我发现我的功夫可以啊，现在。现在一点也没有……当年的腿功没废啊，可以再战江湖啊。这个腿就没那个腿强，你看着了没有？腿疼就这个腿，就没这个腿强，你看到没有？哇！好，咱这个 G-Fashion 裤子，真是开司米的，太棒了，太棒了，又暖又好，特别的舒服。所以说兄弟姐妹们，我希望每个人都能跟文贵一样，找到那种真的是，那种独特的快乐和欢喜，特别特别的幸福，特别特别的舒服。
+这到底是回光返照，预示着下一轮的新的下跌呢？还是从此经济就复苏了？各路专家也是各执己见。
 
-Look at my “golden rooster stand”, not bad, right? Brothers and sisters? Wow, I found that my kung fu is not bad. My leg skills now are still as good as the old days, and I can still fight. This leg is not as strong as the other leg, have you seen that? This leg hurts and is not as strong as the other leg. Have you seen? Wow! Well, my G-Fashion pants are cashmere. They are so great, so great, warm and nice, and very comfortable. So brothers and sisters, I hope everyone can be like Miles and find the kind of unique happiness and joy. Very very happy, very very comfortable.
+我们下面来回顾一下，2020年CCP病毒疫情对全球经济造成的影响。
 
-我没想到昨天 G-Clubs 的年会影响这么大，这么多机构主动跟我们联系，希望能跟我们合作，G-Fashion 最起码得一年两年才能成熟，G-Fashion 最起码一年到两年才能形成全世界的销售。现在是刚刚起步，漏洞百出，缺点、挑战，到处都有，包括整合。
+在病毒的峰值期，也就是最高峰的时候，全球的1/3人口 ，将近26亿多人口处于封锁状态。在各个环节都紧密相连的世界经济中，供应和需求都同时被打乱了，各行各业都受到冲击，包括制造业、零售业、贸易、旅游业等等。以美国为例 （图1），2020年美国申请破产案例总共是244例，是自 2009 年以来最高的一年，（2009年为293例）。在申请破产案例中，零售业企业占据了27家、能源业的企业占据了47家、医疗健康护理业包括医院系统占据了22家比较大的公司、地产业有22家大公司，再加上其他行业，比如电影院、健身行业等等。就是说美国申请破产案例， 覆盖了各行各业，整个美国经济都受到影响。
 
-I did not expect that yesterday’s G-Clubs annual event would have such a big impact. So many organizations reached to us, hoping to cooperate with us. G-Fashion will take at least one year or two to mature, and at least one year or two years to form a worldwide sale network. It is just taking off now, still with loopholes, shortcomings and challenges everywhere, and still need integration.
+图1：美国每年申请破产案例数量
+![]()![](https://gnews.org/wp-content/uploads/2021/02/图1.png)
+下面是CCP病毒疫情对各行业的冲击：
 
-但是 G-Fashion 那种与众不同和那种独特的价值，已经大家看得到了。那个唯一性，还有那个特别是 G-Fashion 它给整个时尚世界，和未来整个时尚在全世界上，和质量最大的问题，质量和价格，和材料之间最大的矛盾，还有它的设计的艺术性，是所有品牌的挑战。我觉得 G-Fashion 将是世界上最大的创新，我相信它会走得非常非常远，飞得非常非常的高，而且会非常的成功。谢谢！谢谢，兄弟姐妹们，俺啥都不说了，谢谢！我要工作去了，开会去了。
+**对制造业的影响**
 
-But G-Fashion has its own uniqueness, its unique value, which has already been seen by everyone. The uniqueness of G-Fashion and especially what it has brought to the entire fashion world, and the entire fashion world in the future… the biggest problem faced by the fashion world is the conflict between quality and price and material. Also the artistry of the design is a challenge faced by all brands. I think G-Fashion will be the biggest innovation in the world. I believe it will go very, very far, and fly very, very high, and be very successful. Thank you! Thank you, brothers and sisters. I won’t talk more. Thank you! I’m going to work, to a meeting.
+CCP病毒疫情在现代史上第一次全球范围内影响制造业，因为疫情既影响各国劳动力的供应、也影响各国劳动力的需求。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+从不同产业领域来看，对于那些制造个人护理用品、纸张用品，还有医药用品的生产厂家，开足马力，也还满足不了因为疯狂购买造成的超大需求；而那些其他领域的制造业却因为需求的骤减而面临困境，承受着削减运作成本的巨大压力，再说，还受到社交距离规定的限制和员工的健康措施等，这就使得一半的劳动力不能在生产第一线发挥作用，半瘫痪状态。这个现象就是冰火两重天。
 
-视频来源：[https://gtv.org/getter/602ab7e8226e775907444644](https://gtv.org/getter/602ab7e8226e775907444644) (3:33-最后)
+而从地域来看，高端领域的制造业相对集中在美国欧州日本，比如重型机器制造业、飞机制造业等，处于半停滞状态；低端领域、劳动密集型的制造业相对集中在中国和其他第三世界国家，中国除了医药用品的生产厂家，还有休闲服装、床上用品等的生产厂家外，其他行业生产厂家都没有订单，处于停工或半停工状态，这么多的劳动力失业，中共政府又没有足够的福利保障，老百姓的日子很艰难。
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/909749/](https://gnews.org/zh-hans/909749/)
+在疫情期间，中国的医药用品的生产厂家，特别是口罩厂开足马力生产，满足大量的出口需要，因为世界其他国家没有口罩生产线，一时间口罩成为战略物资，可以控制全世界。去年的这时候，美国市面上买不到口罩，一罩难求。
 
-翻译：【Isaiah4031】字幕：【奔腾的长江】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+4月2日，川普总统扩大了《国防生产法》的使用范围，授权联邦机构从3M 公司获取抗击新冠疫情所必要的口罩。而在此之前，美国已经有50多家大型企业自愿转产生产医疗用品，一时解决了口罩以及呼吸机的生产，而这引起了中国口罩厂的倒闭潮。
 
-+1
+**对零售业的冲击**
+
+零售业受到重创，尤其大大小小的实体店。以纽约的 21世纪百货店（Century21）为例。 因为疫情，21世纪百货店好几个月处于关门状态，网店服务没有及时跟上。 即便是跟上了，销售额还是有限的，员工还不能遣散，高昂的商场的租金还得付，损失惨重。最关键的是，百货店向保险公司索赔，保险公司拒绝理赔，它的理由是，虽然是疫情造成的，但是百货店的硬件设施没有受到实质性的损坏。这里顺便提一下，上一次，2001年9∙11事件造成的纽约实体店关门，当时因为大楼、店面这类的硬件设施等确实有实质性的损坏，那么保险公司有赔偿的，百货店得以生存下来。而这一次保险公司不赔，百货店就把保险公司告上法庭，法庭按照商业法典UCC、保单条款等进行裁决，百货店不占上风，所以支撑不下去，就只能倒闭。这不是个案。 如果疫情继续，零售业的实体店会一个接一个地倒闭，而且已经开始了。
+
+这是美国，那么中国呢？在疫情爆发前，中国的实体零售业就已经面临电商渠道的分流。疫情爆发后，人们居家抗“疫”阻隔了实体零售与消费者的连接，尽管大型购物中心营运商主动免去租金和减租，但是商户业务回升还是不容乐观，因为租金和人流都是主要的问题。也就导致实体零售业倒闭，进而导致大量失业。
+
+去年5月底，李克强总理，公开称赞“地摊经济”促进就业，他讲完后，各地接连高调推出各种鼓励政策。堂堂一国的总理出来为“地摊经济”叫好，可想而知靠国企做大做强的策略走不下去了，只能靠中共政府之前一直打压的民营经济。
+
+我个人认为，“地摊经济”确实能促进就业，也是老百姓谋生的手段，有什么坏处呢？当年改革开放初期，也是“地摊经济”先冒头。要谋生、要解决吃饭的问题，摆个摊位，有什么错呢？慢慢做好了，可以升级啊，租个店面做大，或者转做其他行业等等，都可以。
+
+古今中外，不管是富国也好、穷国也好，或者用现在的话来说，发达国家、发展中国家，任何一个国家都有地摊经济，虽然不是主导经济，但这是不可或缺的。美国也有地摊经济啊，他们称为 Street Vendor，像那些中东穆斯林人，推着流动餐饮车，卖烤羊肉串或者卖一些盒饭。还有的小商小贩，索性把塑料布往地上一铺，就在街边吆喝，贩卖小商品，手机套子、太阳眼镜啊等等。他们中有的申请了正规的牌照，有些根本就没有。这就是五彩斑斓的社会的缩影。在美国这发达国家，地摊经济和主流经济也是共存的。
+
+“存在即合理”，这是德国哲学家黑格尔说的，任何事物，存在就有它的合理性，就应该顺其自然，只要合理地监管，就可以。
+
+但是，在李克强总理为“地摊经济”叫好的一个星期之后，中宣部就下令喊停。这简直在开玩笑，这种政策一会儿松，一会儿紧，让老百姓怎么搞？没有方向啊。这就是中共国，党高于一切，党领导经济，因为“地摊经济”有损体面、或者有损某些权贵集团的利益，就打压、强拆，政府完全不顾老百姓的死活，在这样的体制下，吃口饭也这么难。
+
+**对地产业（商业地产、个人居住地产）的冲击**
+
+【美国的房市】
+
+随着公司行号破产倒闭，商业地产的空置率直线上升，那么楼主没有租金收入，怎么支撑下去啊？只能抛售地产，大家都求快速脱手，价格就会往下压。但是美国的房地产业并非如想像中一蹶不振。
+
+图2. 美国房屋市场恢复指数
+![]()![](https://gnews.org/wp-content/uploads/2021/02/图2.png)
+图2是美国房屋市场的恢复指数图，这里的100表示2020年1月的水平，指数越高，恢复的水平越高，指数越低，恢复的水平越低。恢复的这个线，3、4月都是往下走的趋势，到了5月是低谷，之后就一直往上走高，像个V字形，显示美国房屋市场恢复得很好。 房屋指数是全国范围内的平均数，所以不同的地区差别挺大。
+
+【中国的房市】
+
+中国的疫情2019年就开始了，但楼市在疫情期间却逆势上扬，有点“热”。下面这张中指研究院的图（图3）显示出2020年TOP100房企的销售业绩也在逐渐回升，其中超级阵营、第一阵营、第二阵营房企的销售额增长率均值都在10%左右。
+
+图3. 100强房企销售业绩
+![]()![](https://gnews.org/wp-content/uploads/2021/02/图3.png)
+**数据来源：中指研究院**
+
+（未完待续）
+
+（本文仅代表作者个人观点）
+
+阅读本人文章请搜索“Opal”
+
+本人其他文章导读：
+
+[金融：G-Fashion 系列之三–浅谈产品理念](https://gnews.org/zh-hans/685914/)
+
+[CCP Virus’ Impact on Banking Industries](https://gnews.org/685343/)
+
+[What does the CCP Bring to the Developing World?](https://gnews.org/422669/)
+
+片头图：
+
+[https://foreignpolicy.com/2020/04/15/how-the-economy-will-look-after-the-coronavirus-pandemic/](https://foreignpolicy.com/2020/04/15/how-the-economy-will-look-after-the-coronavirus-pandemic/)
+
+参考：
+
+[https://www.dw.com/zh/%E6%AC%A7%E7%BE%8E%E7%96%AB%E6%83%85%E7%BB%AD%E5%8D%87-%E6%97%A5%E6%9C%AC%E8%80%83%E8%99%91%E5%BB%B6%E5%8A%9E%E5%A5%A5%E8%BF%90/a-52883034](https://www.dw.com/zh/%E6%AC%A7%E7%BE%8E%E7%96%AB%E6%83%85%E7%BB%AD%E5%8D%87-%E6%97%A5%E6%9C%AC%E8%80%83%E8%99%91%E5%BB%B6%E5%8A%9E%E5%A5%A5%E8%BF%90/a-52883034)
+
+[https://www.lightico.com/blog/coronavirus-covid-19-and-the-banking-industry-impact-and-solutions/](https://www.lightico.com/blog/coronavirus-covid-19-and-the-banking-industry-impact-and-solutions/)
+
+[https://www.americanbanker.com/news/a-biden-cfpb-could-put-pressure-on-mortgage-servicers](https://www.americanbanker.com/news/a-biden-cfpb-could-put-pressure-on-mortgage-servicers)
+
+[https://www.bloomberg.com/news/articles/2021-01-05/u-s-bankruptcy-tracker-pandemic-spurs-most-filings-since-2009](https://www.bloomberg.com/news/articles/2021-01-05/u-s-bankruptcy-tracker-pandemic-spurs-most-filings-since-2009)
+
+[https://tradingeconomics.com/china/gdp-growth-annual](https://tradingeconomics.com/china/gdp-growth-annual)
+
+* * *
+
+
+
+0
