@@ -1,26 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】辉瑞表示南非变种病毒将使疫苗抗体保护减少三分之二
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/915022/)
+## 【军事快讯】美专家呼吁美日台建立联合司令部应对中共
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/915302/)
 
-作者：纽约香草山写作组 Wilson
+作者：纽约香草山  人间世 校对/发稿：飞虹
 
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
 
 
-[路透社](https://www.reuters.com/article/us-health-coronavirus-vaccines-variants-idUSKBN2AH2VG)2月17日报道，辉瑞公司周三表示，一项实验室研究表明，南非冠状病毒的变种可能会将辉瑞公司/BioNTech SE疫苗的抗体保护减少三分之二，目前还不清楚该疫苗是否对突变有效。由于还没有确定的抗体水平来预防病毒，因此，目前还不清楚三分之二的减少是否会使疫苗无法有效对抗在世界各地传播的变异病毒。
+2021年2月17日，美国智库安全政策中心（the Center for Security Policy）召开网络研讨会。有美国专家在研讨会上指出，“美国必须与日本和台湾建立国防联合司令部”，以应对中共国日益加强的威胁。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/113.png)图源网络
+![]()![](https://gnews.org/wp-content/uploads/2021/02/图片13-7.png)正在参加联合军事演习的美日军人 图片来源：美联社/自由亚洲电台
 
-由于CCP病毒加速变异，当前病毒学术界、疫苗研制机构以及全世界两百多个国家的政府，除了被动防疫，根本拿不出有效应对CCP病毒的有效方案。因此，CCP病毒的危害在加速扩大。
+据自由亚洲电台报道，前美国参议院外交关系委员会高级参谋长、美国外交政策委员会国防研究高级研究员史蒂芬·布莱恩（Stephen Bryen）在研讨会上重申美国与日本、台湾建立国防联合司令部的重要性。他指出，台湾和中（共）国的军事实力实在相差太大，因此“美国必须与日本和台湾建立国防联合司令部，以应对中国大陆日益增长的威胁。一旦军事关系建立，中（共）国将面临的是三倍甚至以上的军事抵御能力。”
 
-到目前为止，竟然没有任何一个国家的官方机构或官方人士，以官方形式指名道姓地关注闫丽梦博士撰写的两份CCP病毒来源及定性报告。他们质疑世卫武汉病毒溯源公信度的态度也值得怀疑。
+另一美国专家，美国前外交官、日本战略研究论坛高级研究员格兰特·纽瑟姆（Grant Newsham）认为，台湾作为第一岛链上的关键环节，是兵家必争之地。他警告说：“多方利益使中（共）国认为收复台湾是值得的，……。无论是在军事力量投射还是影响力投射方面，中（共）国都已经做好了准备。”
 
-编辑/校对/发稿：Irene木木
+拜登总统上任以来，中共针对台湾的“文攻武吓”突然大幅升级，不仅连续派战机绕台，还模拟攻击美国航母。这些极具挑衅性的动作，是川普政府时期从未发生过的。而拜登政府的反应却并没有大幅升级的意思，依旧延续川普时期美军的常规操作，即在台湾海峡和南中国海自由航行或训练。根据郭文贵先生获得的情报，打台湾是习近平的既定计划，实际发生的概率极大。假如拜登政府拿不出实质性的反制方案，美国很可能“失去”台湾。现阶段，建立美日台联合司令部不失为一个表明态度的好办法。
+
+
 
 更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
@@ -28,8 +28,6 @@
 
 更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-0
++2

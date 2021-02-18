@@ -1,46 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0215XI坚守信仰,鸡笼/阶级/种姓/防火墙都是别人强加的
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/915018/)
+## 共和党议员提出抵制北京冬奥会决议
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/915328/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/封面-120.jpg)
-编辑整理：
+翻译：康州盘古农场- YY
+校对：康州盘古农场- Freeearth
+编辑：康州盘古农场- Antsee-GTV
 
-法国巴黎七星农场：黎明之前&枫丹白露
+![olympics]()![olympics](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-18-at-16.40.47.png)***图片来源：《美联社》- 北京奥林匹克塔五环***
 
-郭文贵先生在[2021年2月15号 文贵直播:谈看完电影《白虎》的感受， 与宗教，中共，爆料革命的关系，第一次披露中共在全球的灭白计划；虚拟…](https://gtv.org/video/id=602b06fabe64150df858276b) 直播中谈到了G-Club年会抽奖，谈到了印度电影《白虎》的感受及中共的干掉白人的重要话题，**尤其是在这次直播中郭文贵先生提到的共产党在全世界统治世界最大的一个阴谋，没有人敢谈、没有人敢说，这是个大问题，但是我们必须要谈，我们必须要说，而且我们要让全世界都知道共产党的这个惊天阴谋！还有一个非常重要的细节，郭先生在时隔331天之后在祈福中再次向包括新疆同胞在内的世界人民祈福，**下面我们将按郭先生在直接中提到的不同侧重点逐一上传。
+据《美国第一新闻网》2月15日报道：
 
-以下是本系列的第十一部分——坚守信仰,鸡笼/阶级/种姓/防火墙都是别人强加的
+一位共和党议员谴责由中共国举办明年的奥运会，并表示这是在庆祝“残酷的独裁统治”。
 
-据[2021年2月15号 文贵直播:谈看完电影《白虎》的感受， 与宗教，中共，爆料革命的关系，第一次披露中共在全球的灭白计划；虚拟…](https://gtv.org/video/id=602b06fabe64150df858276b)时间点1：34：14——
+佛罗里达州共和党国会议员迈克尔·沃尔兹（Michael Waltz）周一提出一项决议，敦促美国奥委会将冬季运动会更改为中国境外的地点。 该决议要求美国在国际奥委会拒绝该提议的情况下退出2022年奥运会。
 
-但是呢，这个巴拉姆在我们身边无处不在，我们每个人在中国的成长的巴拉姆的男主角的那种最坏的一面，我们都有。
 
-**我们任何人都要记住所有的种姓制度和阶级制度都是别人给你强加上的，如果你但凡你有信仰，但凡你能看透生命的三万多天你就一定不会成为所谓的种姓制度的奴隶，你不存在鸡笼子。**
 
-**但凡你不成为拜金主义，你把生命的本质搞明白、你真的心中有信仰，没有任何阶级主义，没有什么这主义那主义，更不存在任何所谓的什么鸡笼啊、防火墙把你干倒，绝不可能，一切在你心，**还是那句话，心定不为浮所动、不为利所动，千万不为这些烦恼和挑拨所动，你就少灾少祸免灾免劫，一定是这样的。
+> Today, Rep. Waltz introduced a resolution to call on the U.S. Olympic Committee to withdraw from the 2022 Winter Olympics in Beijing unless an alternative site is found due significant human rights violations carried out by the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw).[https://t.co/genTDIjCb6](https://t.co/genTDIjCb6)
+> — Congressman Waltz Press (@RepWaltzPress) [February 15, 2021](https://twitter.com/RepWaltzPress/status/1361383660604301315?ref_src=twsrc%5Etfw)
 
-接上文——
 
-[郭先生0215I展示无数好莱坞明星要穿的G-Fashion最新款衣服](https://gnews.org/zh-hans/913944/)
+***今天，众议员华尔兹提出了一项决议，由于CCP （中共）严重侵犯人权，呼吁美国奥委会退出2022年北京冬季奥运会，除非找到替代地点。***
+尽管有180个团体签署了一封呼吁抵制北京奥运会的信，但中共官员仍然顽固地拒绝任何破坏性努力。
 
-[郭先生0215II昨天的G-Club抽奖开辟了中国人百年的先河](https://gnews.org/zh-hans/913958/)
+中国外交部发言人汪文斌表示：“我们也希望媒体正视事实，停止传播这种毫无根据和诽谤性的言论。” “出于政治动机企图干涉和破坏奥运会的正常筹备和举办是高度不负责任的。这样的举动不会得到国际社会的支持，也永远不会成功。”
 
-[郭先生0215III昨天的年会表明让战友过上安全体面的生活不是口炮](https://gnews.org/zh-hans/914071/)
 
-[郭先生0215IV昨天的抽奖是华人在海外相互之间关系的新纪元](https://gnews.org/zh-hans/914086/)
 
-[郭先生0215V印度是天堂地狱共存中共国只有地狱没有天堂](https://gnews.org/zh-hans/914119/)
+> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s actively:
+> – Committing genocide & mass internment of Uighurs & other Muslim minorities in Xinjiang
+> -Undermining democratic rights & dismantling of ‘one country, two systems’ framework in Hong Kong 
+> – Lying about COVID since the start
+> (1/2)
+> — Rep. Mike Waltz (@michaelgwaltz) [February 15, 2021](https://twitter.com/michaelgwaltz/status/1361333783157424128?ref_src=twsrc%5Etfw)
 
-[郭先生0215VI印度经经济将快速增长,其文化和国际关系优于中国](https://gnews.org/zh-hans/914155/)
 
-[郭先生0215VII62年中印之战将中印关系打回唐僧取经之前](https://gnews.org/zh-hans/914185/)
+***CCP（中共）积极地：
+-在新疆对维吾尔族和其他穆斯林少数民族进行种族灭绝和大规模拘留
+ -破坏民主权利并废除香港的“一国两制”框架
+ -从一开始就在C C P病毒的疫情问题上撒谎
+（1/2）***
+沃尔兹还对中国人民被政府残害表示关切。
 
-[郭先生02158VIII中共在全世界制造种族矛盾白人化在印度取得巨大成功](https://gnews.org/zh-hans/914743/)
+原文链接：[https://www.oann.com/gop-resolution-demands-boycott-of-beijing-olympics/](https://www.oann.com/gop-resolution-demands-boycott-of-beijing-olympics/)
 
-[郭先生0215IX最底层的反抗到底是穷人杀富人的反抗还是什么](https://gnews.org/zh-hans/914821/)
-
-[郭先生0215X今天我们再创历史性一刻——告诉世界共产党的灭白计划](https://gnews.org/zh-hans/914894/)
-
-0
++2

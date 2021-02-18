@@ -1,37 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国重返WHO！
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/915084/)
+## 【军事快讯】爱沙尼亚情报机关发布报告，揭中共海外渗透野心
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/915363/)
 
-台湾宝岛农场 一叶一菩提
-![美國國務卿布林肯17日在聯合國安全理事會（UN Security Council）發表演說。（法新社）](https://lh4.googleusercontent.com/xrj5yR9lrYJ-SYIOSONlvjlZlg6F7OAUVCHSO2-R95K9FsDSHJlwFW0tOUNGQIFEJcXXEv-EPPe_JCJHjJUQd-UbNU6R0mkyivoUQW38fxfQ2gHlP7sljR5OuPom3M1TNxmyhw5O)
-美国总统拜登（Joe Biden）上任后积极让美国重返国际组织，国务卿布林肯2月17日在联合国安全理事会（UN Security Council）发表演说，将在本月底前支付世界卫生组织（WHO）超过2亿美元（约新台币56亿元）的分摊和当期债务。
+作者：纽约香草山  人间世 校对/发稿：飞虹
 
-**美国重返WHO**
-
-国务卿布林肯2月17日在联合国安理会（UN Security Council）发表演说时，更进一步表示，「这是我们履行世卫组织成员财务义务的关键一步，这反映了我们支持世卫组织在领导全球应对疫情的重新承诺，在未来我们也将展开改革世卫的工作。」
-
-并强调，应对下次大规模疫情，正在进行的中共肺炎溯源调查必须「独立」，根据科学和事实，并且不受干扰。还说，所有国家或地区必须提供任何疫情爆发初期的全部数据，所有国家都应参与透明且健全的程序，来预防和因应公卫紧急事件，好让全世界尽快且尽量获得资讯。
-![https://www.upmedia.mg/upload/article/20200903163931725142.jpg](https://lh6.googleusercontent.com/YwotVbxDII1gpWKPRRMd628Nv4npbvnPcXQgKZFTZxMQKFpuyAeWQ2rSUTxN5VpUKtOV3XElitakRJKvk264_hsgtR2xfHK9yrfQM5fGl-U36FjRSTsUPE-VVJGis_NEDW7aO1uN)
-话说2020年美国不满中共政府干预WHO运作，使WHO失去了警示作用，导致全球未能及时应对中共病毒，因而疫情蔓延，致使当时美国确诊人数突破611万、死亡人数破18.5万人。
-
-因此前美国总统川普政府一怒之下，于2020年9月2日，向联合国提出正式通知退出世界卫生组织（WHO），还召回美国驻WHO瑞士日内瓦总部的公卫专家，更拒绝加入由WHO创设的COVAX募资计画（COVAX financing scheme），还表示，美国拖欠WHO的会费，2019年有1800万美元，2020年则有6200万美元，共8千万美元（约新台币23.4亿元），这些钱不会支付WHO，将会被「重新安排」，用来支付联合国的会费。
-
-如今重返WHO，是否有妥协意味？是否真的能够对WHO展开改革？笔者认为，2016年中美贸易战打得如火如荼，美国占了绝大的优势，当时那么强势作为，都无法让WHO有所改变，现在妥协的姿态，想改革扭曲的WHO，可能要在等个至少4年吧！正所谓，一鼓作气，再而衰，三而竭。
-
-参考资料:
-
-- [川普：美国切断金援即日起退出WHO](https://www.businesstoday.com.tw/article/category/80392/post/202005300002/)
-- [美国重返WHO！布林肯：本月将支付逾56亿元分摊费](https://news.ltn.com.tw/news/world/breakingnews/3441879)
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
 
-[更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-[更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+近日，爱沙尼亚外国情报局在一份年度报告中强调，中共国试图在西方压制批评并主导爱沙尼亚和其他民主国家的关键技术，对中共在西方的渗透提出警告。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/图片14-3.png)爱沙尼亚外长雷因萨鲁 图片来源：路透社/美国之音
+据美国之音报道，2月12日爱沙尼亚外国情报局发表年度报告，点名批评中共“通过经济杠杆、监视海外中（共）国公民和培养当地精英”等方式加大在西方的渗透。报告警告说，中（共）国领导层“有一个明确的目标，就是让世界依赖中国技术”。如果响应北京的号召，建立一个所谓“命运共同体”，将导致一个“由北京主导的被静音的世界”。面对与西方的对抗，中共国的“主要目标是在美国和欧洲之间制造分歧。”
 
-文章审核：zhong
+中共国驻爱沙尼亚大使馆曾在报告发布前强烈要求做出修改，但被爱沙尼亚外长拒绝。
 
-文章发布：Little Liu
+自2019年以来，波罗的海三国相继把中共国列入“威胁名单”。去年2月份，爱沙尼亚外国情报局就在年度报告中把中共国而不是俄罗斯列为国家安全的头号威胁。曾经在苏联时期被“社会主义铁拳”残酷打击过的这三个国家，一定还对当年的惨状记忆犹新。如今面对重新高举“马列主义”大旗的习式中共国，他们也显得更加警觉和清醒，并在“反共”的道路上走在了德法等欧洲大国的前面。
 
-0
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
++3

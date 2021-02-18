@@ -1,25 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 柬埔寨政府颁布法令 建中共式防火墙
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/914451/)
+## 【澳洲热点】澳智库建议积极应对中共国渗透
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/914740/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+#### 翻译：Steven Hu
 
-编辑  水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-18_01-21-18.jpg)Youtube
-路透社2月17日报道，柬埔寨政府颁布了一项法令，将建立中共式的互联网门户，对网络流量进行控制和监控，这引发了当地民众对民主自由受到威胁的担忧。
+#### 校对/译评：文泓
 
-该门户的运营商将支持当局“采取措施，防止和断开所有影响国家收入、安全、社会秩序、道德、文化、传统和习俗的网络连接”。
+#### 编辑：翼族
+![]()![](https://gnews.org/wp-content/uploads/2021/02/116-6.jpg)
+图片来源：德国之声
 
-柬埔寨首相洪森(Hun Sen)正因镇压公民社会和政治反对派而面临国际社会的批评。镇压导致洪森领导的政党权力垄断，许多竞争对手遭到刑事指控，并被判入狱。
+#### 译评：
 
-柬埔寨人权中心(Cambodian Center for Human Rights)执行主任查克·索普(Chak Sopheap)表示，该法对言论自由、隐私、数据保护和公共信息有巨大影响，而柬埔寨的法律框架几乎没有为数字自由提供保护。他强调，“在过去的几年里，因为使用互联网和行使言论自由权利而受到威胁、骚扰甚至起诉的公民数量急剧增加。”
+此篇报道反映了澳洲智库对于中共国在亚太地区咄咄逼人态势的担忧，中共国通过“一带一路“的债务陷阱绑架投资国，通过在海外的商业投资带动军事渗透和扩张，已在亚太地区占据了很多战略港口，而现在中共又瞄向了澳洲的后院巴布亚新几内亚。
 
-最近柬埔寨与美国和欧盟的关系恶化，中共国是柬埔寨的重要经济盟友，又实施完全的中共化言论自由控制模式。继香港、缅甸之后，柬埔寨也在中共高压控制下失去民主自由。中共不除，还有多少国家在共产极权的渗透与祸害下可以独善其身？
+澳大利亚战略政策研究所(ASPI)作为澳大利亚最顶尖的国家智库，近期的这份报告反映了包括澳洲在内的西方社会终于意识到与中共国打交道做生意的成本巨大。面对中共国的渗透，目前澳大利亚只能穷于应付。中共正在采取分而治之的办法离间五眼联盟，新西兰受利益诱惑已经较少参与到五眼联盟的集体行动，而澳大利亚作为五眼联盟中关键的成员承受了中共的巨大压力。
 
-参考链接：
+在这种大形势下，爆料革命应一如既往向全世界揭示真相，让全世界人民启蒙开智，形成全球灭共之势，而澳大利亚的战友们则肩负着唤醒更多身边人的历史使命。
 
-[https://www.reuters.com/article/us-cambodia-internet/cambodia-adopts-china-style-internet-gateway-amid-opposition-crackdown-idUSKBN2AH1CZ](https://www.reuters.com/article/us-cambodia-internet/cambodia-adopts-china-style-internet-gateway-amid-opposition-crackdown-idUSKBN2AH1CZ)
+#### 译文：                                                                            
+
+一家最重要的国家安全智库已敦促联邦政府调查中共国对澳大利亚的渗透，包括有国家背景以及可能有军事背景的企业。
+
+周三澳大利亚战略政策研究所(ASPI)发布的报告，对中共在海洋和港口扩张提出了数个红色警告。在一系列的关键建议中，政府已被告知要评估这个共产国家的军事能力，并制定澳大利亚、日本和美国之间的国际港口战略。
+
+“北京在政治和军事上更愿意展示自己的力量，这得益于其对海外关键基础设施的投资。”报告指出，“中共国正越来越愿意将军事力量投射到海外，同时胁迫和拉拢那些国家接受中共的目标。”
+
+这一警告来自于一家中共国公司与巴布亚新几内亚政府接触并提议建造一座耗资390亿美元城市的恐惧，这个计划中的城市距离澳大利亚海上边界仅数公里之遥。
+
+报告作者查理·里昂斯.琼斯（Charlie Lyons Jones）和拉斐尔·韦特（Raphael Veit）表示，北京利用对关键基础设施的商业投资来支持其军事扩张的战略，这在一带一路的倡议中表现得最为明显。他们的报告警告说，中共国的国有企业对关键基础设施的大规模投资往往伴随着“隐蔽性或欺骗性的操作”，试图操纵外国政府来推进中共的利益。
+
+然而，这项海外投资带来了一个“重大挑战”，因为澳大利亚并不认同中共国的战略利益。
+
+**原文链接：**[https://www.news.com.au/finance/economy/australian-economy/new-aspi-report-recommends-australia-prepare-for-chinas-infiltration-in-the-region/news-story/3483e71ba767da4af26a72e2c4a7148d#.g77dl](https://www.news.com.au/finance/economy/australian-economy/new-aspi-report-recommends-australia-prepare-for-chinas-infiltration-in-the-region/news-story/3483e71ba767da4af26a72e2c4a7148d#.g77dl)
 
 0
