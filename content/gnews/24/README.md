@@ -1,29 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德时评简讯（视频版）：蓬佩奥呼吁全世界抵制北京奥运会2021.2.17早间 路德社简讯之路安墨谈)
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/915681/)
+## 墨尔本大部分疫情限制于周三晚11:59解除
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/915756/)
 
-《路德社》出品
-
-以下视频是详细内容：
-
-内容摘要：
-
-**一、蓬佩奥呼吁全世界抵制北京奥运会**
-
-**二、拜登总统和中共的关系如何定义**
-
-**三、北约国防部长讨论中共威胁**
+- 编辑：Victor Torres
+- 发稿：Ranting
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-翻译：路德社翻译组
+**西班牙2021年2月18日电/西喜社——**澳大利亚第二大城市将放松第三次疫情封锁，当局表示已经控制了以酒店为中心的中共病毒群的蔓延。
 
-制作：路德社简讯视频组
+维多利亚州州长丹尼尔-安德鲁斯表示，在最近24小时内没有发现新的感染病例后，墨尔本的大部分疫情限制于周三晚上11:59解除。
 
-审核校对：玫瑰新闻组
+维多利亚州政府尚未表示是否会允许观众在与封锁五天前相同的条件下重返澳网公开赛现场。
 
-上传排版：玫瑰新闻组
+维多利亚州全境实施封锁，以防止病毒从州府墨尔本蔓延。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/4c912ade-85f2-49f6-a183-b416a3cf9490.jpg)
+
+[**新闻来源**](https://apnews.com/article/world-news-australia-coronavirus-pandemic-coronavirus-vaccine-scott-morrison-7fe16dc202778d207bd93b09f7d99d68)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
 0
