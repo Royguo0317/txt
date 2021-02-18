@@ -1,49 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共和党议员提出抵制北京冬奥会决议
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/915328/)
+## 【军事快讯】爱沙尼亚情报机关发布报告，揭中共海外渗透野心
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/915363/)
 
-翻译：康州盘古农场- YY
-校对：康州盘古农场- Freeearth
-编辑：康州盘古农场- Antsee-GTV
+作者：纽约香草山  人间世 校对/发稿：飞虹
 
-![olympics]()![olympics](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-18-at-16.40.47.png)***图片来源：《美联社》- 北京奥林匹克塔五环***
-
-据《美国第一新闻网》2月15日报道：
-
-一位共和党议员谴责由中共国举办明年的奥运会，并表示这是在庆祝“残酷的独裁统治”。
-
-佛罗里达州共和党国会议员迈克尔·沃尔兹（Michael Waltz）周一提出一项决议，敦促美国奥委会将冬季运动会更改为中国境外的地点。 该决议要求美国在国际奥委会拒绝该提议的情况下退出2022年奥运会。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
 
 
-> Today, Rep. Waltz introduced a resolution to call on the U.S. Olympic Committee to withdraw from the 2022 Winter Olympics in Beijing unless an alternative site is found due significant human rights violations carried out by the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw).[https://t.co/genTDIjCb6](https://t.co/genTDIjCb6)
-> — Congressman Waltz Press (@RepWaltzPress) [February 15, 2021](https://twitter.com/RepWaltzPress/status/1361383660604301315?ref_src=twsrc%5Etfw)
+近日，爱沙尼亚外国情报局在一份年度报告中强调，中共国试图在西方压制批评并主导爱沙尼亚和其他民主国家的关键技术，对中共在西方的渗透提出警告。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/图片14-3.png)爱沙尼亚外长雷因萨鲁 图片来源：路透社/美国之音
+据美国之音报道，2月12日爱沙尼亚外国情报局发表年度报告，点名批评中共“通过经济杠杆、监视海外中（共）国公民和培养当地精英”等方式加大在西方的渗透。报告警告说，中（共）国领导层“有一个明确的目标，就是让世界依赖中国技术”。如果响应北京的号召，建立一个所谓“命运共同体”，将导致一个“由北京主导的被静音的世界”。面对与西方的对抗，中共国的“主要目标是在美国和欧洲之间制造分歧。”
+
+中共国驻爱沙尼亚大使馆曾在报告发布前强烈要求做出修改，但被爱沙尼亚外长拒绝。
+
+自2019年以来，波罗的海三国相继把中共国列入“威胁名单”。去年2月份，爱沙尼亚外国情报局就在年度报告中把中共国而不是俄罗斯列为国家安全的头号威胁。曾经在苏联时期被“社会主义铁拳”残酷打击过的这三个国家，一定还对当年的惨状记忆犹新。如今面对重新高举“马列主义”大旗的习式中共国，他们也显得更加警觉和清醒，并在“反共”的道路上走在了德法等欧洲大国的前面。
 
 
-***今天，众议员华尔兹提出了一项决议，由于CCP （中共）严重侵犯人权，呼吁美国奥委会退出2022年北京冬季奥运会，除非找到替代地点。***
-尽管有180个团体签署了一封呼吁抵制北京奥运会的信，但中共官员仍然顽固地拒绝任何破坏性努力。
 
-中国外交部发言人汪文斌表示：“我们也希望媒体正视事实，停止传播这种毫无根据和诽谤性的言论。” “出于政治动机企图干涉和破坏奥运会的正常筹备和举办是高度不负责任的。这样的举动不会得到国际社会的支持，也永远不会成功。”
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s actively:
-> – Committing genocide & mass internment of Uighurs & other Muslim minorities in Xinjiang
-> -Undermining democratic rights & dismantling of ‘one country, two systems’ framework in Hong Kong 
-> – Lying about COVID since the start
-> (1/2)
-> — Rep. Mike Waltz (@michaelgwaltz) [February 15, 2021](https://twitter.com/michaelgwaltz/status/1361333783157424128?ref_src=twsrc%5Etfw)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-
-***CCP（中共）积极地：
--在新疆对维吾尔族和其他穆斯林少数民族进行种族灭绝和大规模拘留
- -破坏民主权利并废除香港的“一国两制”框架
- -从一开始就在C C P病毒的疫情问题上撒谎
-（1/2）***
-沃尔兹还对中国人民被政府残害表示关切。
-
-原文链接：[https://www.oann.com/gop-resolution-demands-boycott-of-beijing-olympics/](https://www.oann.com/gop-resolution-demands-boycott-of-beijing-olympics/)
-
-+2
++3
