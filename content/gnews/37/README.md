@@ -1,23 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】17/02/2021:江家是中国的沼泽地 春节前的病毒大传染实质是一场叛乱
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/915123/)
+## 中共“拒绝”向世卫调查团提供早期新冠病例原始数据
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/915346/)
 
-**制作:Cantonese工作室**
-**播报：【安妮】资料整理：【文依】【Elaine【An】【安妮】海报制作：【文绉绉】【小豆芽】【米线】视频制作：【文德】上传:【星星】**
-摘要:
+翻译：康州盘古农场 -YY
+校对：康州盘古农场 -Mike Li
+编辑：康州盘古农场 -Antsee-GTV
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-54.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-13.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/3-18.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/4-28.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/5-25.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/6-34.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/7-10.jpg)
-0
+据《零对冲》泰勒·邓肯报道：
+
+毫不奇怪，中共阴险地抓住本月世界卫生组织（中国）之行的机会试图声称COVID-19 新冠大流行实际上始于国外，而与此同时许多全球头条新闻基本上都在随声附和“这里没什么可看的” -尤其是关于该病毒起源于武汉军事实验室的普遍怀疑。
+
+但是现在《华尔街日报》的最新报道强有力地表明，世卫组织有史以来第一次，被大肆宣传的“深入探查’’病毒起源的旅程可能甚至没有触及到一个真正意义调查的皮毛（有人真的期望过世卫的调查吗？…并且是在事后整整一年多才开始）。 特别是（世卫的）科学家和研究人员团队据报道被中共当局阻止接触有关该国174起最早病例的关键数据。
+
+据世卫组织调查人员称，由于缺乏透明度他们陷入了所谓的“激烈争吵”之中，中国当局“拒绝”向调查小组提供必要的“原始、个人的 Covid-19 早期病例数据”，以帮助他们确定冠状病毒如何以及何时开始在中国传播……”
+
+![WIV]()![WIV](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-18-at-17.05.09.png)***图片来源：《路透社》-世卫调查团在武汉***
+
+争议的前沿和中心是以下指控：
+
+*中国当局拒绝（世卫调查组的）请求，**不向他们提供 2019年12月在中国武汉市爆发初期确诊的174例 Covid-19 病例的数据**。*
+
+为了准备这次精心策划的武汉之旅，北京提供了他们自己的数据“摘要”，但没有提供硬数据本身。
+
+当世卫组织的调查人员提出访问原始数据的要求时，他们被拒绝了，基本上只得到了中共科学家们对数据显示了什么的看法。一位世卫组织研究人员在向《华尔街日报》发表的声明中强调，访问查看硬数据是标准程序，但在这次调查中并未被遵循。
+
+**“他们向我们展示了两个病例，但这与出示所有病例是不同的，这是标准的流行病学调查步骤。”** 澳大利亚微生物学家多米尼克·德威尔（Dominic Dwyer）在谈到世界卫生组织的旅行和调查结果时说，“因此从我们的角度来看对数据的解释变得更加局限 ，尽管对方可能会认为数据非常好。”
+
+
+
+> Obviously the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) is hiding something… 
+>  
+> But why did it take [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) over a year to investigate early COVID cases? [https://t.co/OLxXKqqF2u](https://t.co/OLxXKqqF2u)
+> — Jim Banks (@RepJimBanks) [February 12, 2021](https://twitter.com/RepJimBanks/status/1360296952026390530?ref_src=twsrc%5Etfw)
+
+
+***显然，CCP（中共）在隐藏一些东西……
+ 但是，为什么@WHO 世界卫生组织需要在一年多后才调查早期的COVID病例呢？
+-吉姆·班克斯 （2021年2月12日）***
+迄今为止中方尚未对此发表评论，并可能拒绝这些指控。尽管世卫组织团队在参观了实验室后最初说，在与之抗争的过程中把世界搞得乱七八糟的冠状病毒，“极不可能”来自武汉病毒研究所，但我们想知道他们的调查有多彻底？**还是这只是他们欣然与中共合作的一次无关痛痒的公关旅行？**
+
+毕竟这一最新揭露强有力地表明， 关于所有基本数据中最关键的数据即最早感染病例的“原始，个人化的数据’’ ，世卫组织团队仅接触到中（共）方对此的解释。 “中共不愿提供原始数据，使许多外国政府和科学家担心中共在寻找新冠大流行起源的处理上缺乏透明度” ，《华尔街日报》强调说。“美国国务院本周表示，它希望看到有关世卫组织调查的基础数据。” 因此听起来我们已经再次围绕“神秘的”起源和中共扮演的角色而转了一圈又回到原地。
+
+发表时间：2021年2月12日
+
+原文链接：[https://www.zerohedge.com/covid-19/who-reveals-china-refused-access-raw-data-earliest-covid-cases](https://www.zerohedge.com/covid-19/who-reveals-china-refused-access-raw-data-earliest-covid-cases)
+
++2

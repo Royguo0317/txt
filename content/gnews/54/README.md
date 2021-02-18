@@ -1,28 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美诉朝鲜黑客盗窃现金和加密货币超13亿美元
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/914791/)
+## 【热点播报】辉瑞表示南非变种病毒将使疫苗抗体保护减少三分之二
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/915022/)
 
-俄罗斯莫斯科喀秋莎农场    银河
+作者：纽约香草山写作组 Wilson
 
-编辑   水星    上传    银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-18_05-26-13.jpg)[gcn.com](https://gcn.com/articles/2019/04/29/fbi-cyber-crime-report.aspx)
-CNBC新闻2月17日报道，美国联邦当局指出三名朝鲜计算机程序员被起诉，罪名是实施一系列网络攻击，试图从金融机构和公司勒索窃取超过13亿美元的现金及加密货币。
 
-根据美司法部的一份新闻稿，这些程序员隶属朝鲜军事情报机构，他们还被指控创建和部署“多个恶意加密货币应用程序，并开发和欺骗性地营销区块链平台”。
 
-联邦当局说，从2016年到2020年初，该计划部署了“鱼叉式网络钓鱼行动”，目标是美国国防部、国务院雇员，以及美国批准的国防承包商、能源公司、航空航天公司和科技公司的工作人员。起诉书称，黑客控制银行的自动取款机，从里面盗取现金是该计划的一部分。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-加州中区(Central District of California)代理检察官特蕾西·威尔金森(Tracy Wilkinson)说，“朝鲜黑客的犯罪行为范围广泛，持续时间很长，他们的犯罪范围令人震惊。”她指出，“起诉书中详细描述的是一个国家犯罪的行为，他们不择手段地进行报复，获取资金来支持其政权。”
 
-起诉书已经递交到洛杉矶地方法院，指控31岁的张俊雄、27岁的金日成和36岁的朴金孝是朝鲜军事情报机构侦察总局(Reconnaissance General Bureau)的成员，从事黑客犯罪活动。
 
-该阴谋的动机是报复或获得经济利益。联邦当局表示，从2015年到2019年，黑客通过侵入越南、孟加拉国、台湾、墨西哥、马耳他和非洲的银行网络，通过SWIFT银行信息系统发送欺诈性信息，窃取银行逾12亿美元。作为计划的一部分，这些黑客被指控针对数百家加密货币公司，窃取了价值数千万美元的加密货币。自2018年3月以来，该计划开发了多个恶意加密货币应用程序，让朝鲜黑客通过后门进入受害者的电脑。
+[路透社](https://www.reuters.com/article/us-health-coronavirus-vaccines-variants-idUSKBN2AH2VG)2月17日报道，辉瑞公司周三表示，一项实验室研究表明，南非冠状病毒的变种可能会将辉瑞公司/BioNTech SE疫苗的抗体保护减少三分之二，目前还不清楚该疫苗是否对突变有效。由于还没有确定的抗体水平来预防病毒，因此，目前还不清楚三分之二的减少是否会使疫苗无法有效对抗在世界各地传播的变异病毒。
 
-美国司法部国家安全司助理司法部长约翰•德默斯(John Demers)表示，“朝鲜特工使用键盘而不是枪支，偷窃加密货币数字钱包而不是大袋现金，是世界上最大的银行劫匪。”
+![]()![](https://gnews.org/wp-content/uploads/2021/02/113.png)图源网络
 
-参考链接：
-https://www.cnbc.com/2021/02/17/north-korean-hackers-charged-in-massive-cryptocurrency-theft-scheme.html
+由于CCP病毒加速变异，当前病毒学术界、疫苗研制机构以及全世界两百多个国家的政府，除了被动防疫，根本拿不出有效应对CCP病毒的有效方案。因此，CCP病毒的危害在加速扩大。
+
+到目前为止，竟然没有任何一个国家的官方机构或官方人士，以官方形式指名道姓地关注闫丽梦博士撰写的两份CCP病毒来源及定性报告。他们质疑世卫武汉病毒溯源公信度的态度也值得怀疑。
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
 0

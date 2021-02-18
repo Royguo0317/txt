@@ -1,37 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国重返WHO！
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/915084/)
+## 共和党议员提出抵制北京冬奥会决议
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/915328/)
 
-台湾宝岛农场 一叶一菩提
-![美國國務卿布林肯17日在聯合國安全理事會（UN Security Council）發表演說。（法新社）](https://lh4.googleusercontent.com/xrj5yR9lrYJ-SYIOSONlvjlZlg6F7OAUVCHSO2-R95K9FsDSHJlwFW0tOUNGQIFEJcXXEv-EPPe_JCJHjJUQd-UbNU6R0mkyivoUQW38fxfQ2gHlP7sljR5OuPom3M1TNxmyhw5O)
-美国总统拜登（Joe Biden）上任后积极让美国重返国际组织，国务卿布林肯2月17日在联合国安全理事会（UN Security Council）发表演说，将在本月底前支付世界卫生组织（WHO）超过2亿美元（约新台币56亿元）的分摊和当期债务。
+翻译：康州盘古农场- YY
+校对：康州盘古农场- Freeearth
+编辑：康州盘古农场- Antsee-GTV
 
-**美国重返WHO**
+![olympics]()![olympics](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-18-at-16.40.47.png)***图片来源：《美联社》- 北京奥林匹克塔五环***
 
-国务卿布林肯2月17日在联合国安理会（UN Security Council）发表演说时，更进一步表示，「这是我们履行世卫组织成员财务义务的关键一步，这反映了我们支持世卫组织在领导全球应对疫情的重新承诺，在未来我们也将展开改革世卫的工作。」
+据《美国第一新闻网》2月15日报道：
 
-并强调，应对下次大规模疫情，正在进行的中共肺炎溯源调查必须「独立」，根据科学和事实，并且不受干扰。还说，所有国家或地区必须提供任何疫情爆发初期的全部数据，所有国家都应参与透明且健全的程序，来预防和因应公卫紧急事件，好让全世界尽快且尽量获得资讯。
-![https://www.upmedia.mg/upload/article/20200903163931725142.jpg](https://lh6.googleusercontent.com/YwotVbxDII1gpWKPRRMd628Nv4npbvnPcXQgKZFTZxMQKFpuyAeWQ2rSUTxN5VpUKtOV3XElitakRJKvk264_hsgtR2xfHK9yrfQM5fGl-U36FjRSTsUPE-VVJGis_NEDW7aO1uN)
-话说2020年美国不满中共政府干预WHO运作，使WHO失去了警示作用，导致全球未能及时应对中共病毒，因而疫情蔓延，致使当时美国确诊人数突破611万、死亡人数破18.5万人。
+一位共和党议员谴责由中共国举办明年的奥运会，并表示这是在庆祝“残酷的独裁统治”。
 
-因此前美国总统川普政府一怒之下，于2020年9月2日，向联合国提出正式通知退出世界卫生组织（WHO），还召回美国驻WHO瑞士日内瓦总部的公卫专家，更拒绝加入由WHO创设的COVAX募资计画（COVAX financing scheme），还表示，美国拖欠WHO的会费，2019年有1800万美元，2020年则有6200万美元，共8千万美元（约新台币23.4亿元），这些钱不会支付WHO，将会被「重新安排」，用来支付联合国的会费。
-
-如今重返WHO，是否有妥协意味？是否真的能够对WHO展开改革？笔者认为，2016年中美贸易战打得如火如荼，美国占了绝大的优势，当时那么强势作为，都无法让WHO有所改变，现在妥协的姿态，想改革扭曲的WHO，可能要在等个至少4年吧！正所谓，一鼓作气，再而衰，三而竭。
-
-参考资料:
-
-- [川普：美国切断金援即日起退出WHO](https://www.businesstoday.com.tw/article/category/80392/post/202005300002/)
-- [美国重返WHO！布林肯：本月将支付逾56亿元分摊费](https://news.ltn.com.tw/news/world/breakingnews/3441879)
+佛罗里达州共和党国会议员迈克尔·沃尔兹（Michael Waltz）周一提出一项决议，敦促美国奥委会将冬季运动会更改为中国境外的地点。 该决议要求美国在国际奥委会拒绝该提议的情况下退出2022年奥运会。
 
 
-[更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-[更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+> Today, Rep. Waltz introduced a resolution to call on the U.S. Olympic Committee to withdraw from the 2022 Winter Olympics in Beijing unless an alternative site is found due significant human rights violations carried out by the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw).[https://t.co/genTDIjCb6](https://t.co/genTDIjCb6)
+> — Congressman Waltz Press (@RepWaltzPress) [February 15, 2021](https://twitter.com/RepWaltzPress/status/1361383660604301315?ref_src=twsrc%5Etfw)
 
-文章审核：zhong
 
-文章发布：Little Liu
+***今天，众议员华尔兹提出了一项决议，由于CCP （中共）严重侵犯人权，呼吁美国奥委会退出2022年北京冬季奥运会，除非找到替代地点。***
+尽管有180个团体签署了一封呼吁抵制北京奥运会的信，但中共官员仍然顽固地拒绝任何破坏性努力。
 
-0
+中国外交部发言人汪文斌表示：“我们也希望媒体正视事实，停止传播这种毫无根据和诽谤性的言论。” “出于政治动机企图干涉和破坏奥运会的正常筹备和举办是高度不负责任的。这样的举动不会得到国际社会的支持，也永远不会成功。”
+
+
+
+> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s actively:
+> – Committing genocide & mass internment of Uighurs & other Muslim minorities in Xinjiang
+> -Undermining democratic rights & dismantling of ‘one country, two systems’ framework in Hong Kong 
+> – Lying about COVID since the start
+> (1/2)
+> — Rep. Mike Waltz (@michaelgwaltz) [February 15, 2021](https://twitter.com/michaelgwaltz/status/1361333783157424128?ref_src=twsrc%5Etfw)
+
+
+***CCP（中共）积极地：
+-在新疆对维吾尔族和其他穆斯林少数民族进行种族灭绝和大规模拘留
+ -破坏民主权利并废除香港的“一国两制”框架
+ -从一开始就在C C P病毒的疫情问题上撒谎
+（1/2）***
+沃尔兹还对中国人民被政府残害表示关切。
+
+原文链接：[https://www.oann.com/gop-resolution-demands-boycott-of-beijing-olympics/](https://www.oann.com/gop-resolution-demands-boycott-of-beijing-olympics/)
+
++2
