@@ -1,35 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 从烟院士到酒院士（1）
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/914914/)
+## 【热点播报】辉瑞表示南非变种病毒将使疫苗抗体保护减少三分之二
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/915022/)
 
-撰稿：闲云野鹤
-![]()![](https://gnews.org/wp-content/uploads/2021/02/image-119-edited.png)（图片截自网络）
-农历新年前后，强国一则新闻再一次引发人们深思。
+作者：纽约香草山写作组 Wilson
 
-2021年 2月17日，强国贵州茅台集团在其官方公众号上发布消息称，集团总工程师、首席质量官王莉入围中国工程院增选院士名单。回查贵州省科学技术协会网站，2021年2月8日消息称，在省科协召开的2021年贵州省推选中国工程院院士候选人评审会上，经专家评审，贵州省推选院士候选人工作领导小组审定，拟推选马建峰、周琦、王莉、张胜林4名同志2021年中国工程院院士贵州省候选人。一石激起千层浪。
 
-第一次跃入公众视野的王莉是何许人也？
 
-贵州省科学技术协会公开资料显示：王莉，女，汉族，1972年10月出生，中国贵州茅台酒厂（集团）有限责任公司总工程师、首席质量官，研究员，研究方向：发酵与轻工生物技术。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-而据茅台集团官网过往的消息，王是茅台集团总工程师、首席质量官，主持并参与了多项重要科研项目，获得了多项国家级、行业和贵州省级奖项。2019年3月，以其名命名的“王莉技能大师工作室”在茅台集团总部揭牌，这是贵州省迄今为止、唯一一家白酒品评勾调方面的国家级技能大师工作室。
 
-当时官网的新闻资料还介绍，该工作室已累计培养国家级白酒评委5人，贵州省级白酒评委20人，国家一级品酒师13人，国家二级品酒师21人，高级工程师1人、酿造工程师12人 ，主导了茅台基酒资源规划、酒体设计、品鉴文化推广等多领域项目研究，使茅台酒和系列酒产品品质稳定提升。
 
-网上查询了下王的个人简历，她最拿得出手的几项殊荣分别是：工程技术应用研究员，享受国务院特殊津贴，入选中国酒业大师、首席白酒品酒师、中国评酒大师。
+[路透社](https://www.reuters.com/article/us-health-coronavirus-vaccines-variants-idUSKBN2AH2VG)2月17日报道，辉瑞公司周三表示，一项实验室研究表明，南非冠状病毒的变种可能会将辉瑞公司/BioNTech SE疫苗的抗体保护减少三分之二，目前还不清楚该疫苗是否对突变有效。由于还没有确定的抗体水平来预防病毒，因此，目前还不清楚三分之二的减少是否会使疫苗无法有效对抗在世界各地传播的变异病毒。
 
-由此看来，王姓候选人在白酒领域还真是个“大师级”的“领军人物”。 当然，至于王在科学领域有什么杰出的贡献，有什么权威的研究，搜索良久都没有找到，在媒体报道的消息中亦没有提到。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/113.png)图源网络
 
-什么样的人可以入选院士？王有资格入选吗？为何王能入选？
+由于CCP病毒加速变异，当前病毒学术界、疫苗研制机构以及全世界两百多个国家的政府，除了被动防疫，根本拿不出有效应对CCP病毒的有效方案。因此，CCP病毒的危害在加速扩大。
 
-（待续）
+到目前为止，竟然没有任何一个国家的官方机构或官方人士，以官方形式指名道姓地关注闫丽梦博士撰写的两份CCP病毒来源及定性报告。他们质疑世卫武汉病毒溯源公信度的态度也值得怀疑。
 
-（本文纯属个人观点）
+编辑/校对/发稿：Irene木木
 
-审核：MG3
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-编辑：MG3
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-澳喜Logo.jpeg)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
 0
