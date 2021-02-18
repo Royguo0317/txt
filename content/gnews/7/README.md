@@ -1,46 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0215XI坚守信仰,鸡笼/阶级/种姓/防火墙都是别人强加的
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/915018/)
+## 【热点播报】辉瑞表示南非变种病毒将使疫苗抗体保护减少三分之二
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/915022/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/封面-120.jpg)
-编辑整理：
+作者：纽约香草山写作组 Wilson
 
-法国巴黎七星农场：黎明之前&枫丹白露
 
-郭文贵先生在[2021年2月15号 文贵直播:谈看完电影《白虎》的感受， 与宗教，中共，爆料革命的关系，第一次披露中共在全球的灭白计划；虚拟…](https://gtv.org/video/id=602b06fabe64150df858276b) 直播中谈到了G-Club年会抽奖，谈到了印度电影《白虎》的感受及中共的干掉白人的重要话题，**尤其是在这次直播中郭文贵先生提到的共产党在全世界统治世界最大的一个阴谋，没有人敢谈、没有人敢说，这是个大问题，但是我们必须要谈，我们必须要说，而且我们要让全世界都知道共产党的这个惊天阴谋！还有一个非常重要的细节，郭先生在时隔331天之后在祈福中再次向包括新疆同胞在内的世界人民祈福，**下面我们将按郭先生在直接中提到的不同侧重点逐一上传。
 
-以下是本系列的第十一部分——坚守信仰,鸡笼/阶级/种姓/防火墙都是别人强加的
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-据[2021年2月15号 文贵直播:谈看完电影《白虎》的感受， 与宗教，中共，爆料革命的关系，第一次披露中共在全球的灭白计划；虚拟…](https://gtv.org/video/id=602b06fabe64150df858276b)时间点1：34：14——
 
-但是呢，这个巴拉姆在我们身边无处不在，我们每个人在中国的成长的巴拉姆的男主角的那种最坏的一面，我们都有。
 
-**我们任何人都要记住所有的种姓制度和阶级制度都是别人给你强加上的，如果你但凡你有信仰，但凡你能看透生命的三万多天你就一定不会成为所谓的种姓制度的奴隶，你不存在鸡笼子。**
+[路透社](https://www.reuters.com/article/us-health-coronavirus-vaccines-variants-idUSKBN2AH2VG)2月17日报道，辉瑞公司周三表示，一项实验室研究表明，南非冠状病毒的变种可能会将辉瑞公司/BioNTech SE疫苗的抗体保护减少三分之二，目前还不清楚该疫苗是否对突变有效。由于还没有确定的抗体水平来预防病毒，因此，目前还不清楚三分之二的减少是否会使疫苗无法有效对抗在世界各地传播的变异病毒。
 
-**但凡你不成为拜金主义，你把生命的本质搞明白、你真的心中有信仰，没有任何阶级主义，没有什么这主义那主义，更不存在任何所谓的什么鸡笼啊、防火墙把你干倒，绝不可能，一切在你心，**还是那句话，心定不为浮所动、不为利所动，千万不为这些烦恼和挑拨所动，你就少灾少祸免灾免劫，一定是这样的。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/113.png)图源网络
 
-接上文——
+由于CCP病毒加速变异，当前病毒学术界、疫苗研制机构以及全世界两百多个国家的政府，除了被动防疫，根本拿不出有效应对CCP病毒的有效方案。因此，CCP病毒的危害在加速扩大。
 
-[郭先生0215I展示无数好莱坞明星要穿的G-Fashion最新款衣服](https://gnews.org/zh-hans/913944/)
+到目前为止，竟然没有任何一个国家的官方机构或官方人士，以官方形式指名道姓地关注闫丽梦博士撰写的两份CCP病毒来源及定性报告。他们质疑世卫武汉病毒溯源公信度的态度也值得怀疑。
 
-[郭先生0215II昨天的G-Club抽奖开辟了中国人百年的先河](https://gnews.org/zh-hans/913958/)
+编辑/校对/发稿：Irene木木
 
-[郭先生0215III昨天的年会表明让战友过上安全体面的生活不是口炮](https://gnews.org/zh-hans/914071/)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-[郭先生0215IV昨天的抽奖是华人在海外相互之间关系的新纪元](https://gnews.org/zh-hans/914086/)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-[郭先生0215V印度是天堂地狱共存中共国只有地狱没有天堂](https://gnews.org/zh-hans/914119/)
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-[郭先生0215VI印度经经济将快速增长,其文化和国际关系优于中国](https://gnews.org/zh-hans/914155/)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-[郭先生0215VII62年中印之战将中印关系打回唐僧取经之前](https://gnews.org/zh-hans/914185/)
-
-[郭先生02158VIII中共在全世界制造种族矛盾白人化在印度取得巨大成功](https://gnews.org/zh-hans/914743/)
-
-[郭先生0215IX最底层的反抗到底是穷人杀富人的反抗还是什么](https://gnews.org/zh-hans/914821/)
-
-[郭先生0215X今天我们再创历史性一刻——告诉世界共产党的灭白计划](https://gnews.org/zh-hans/914894/)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
 0
