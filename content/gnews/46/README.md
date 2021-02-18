@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 韩国周三新增621个中共病毒病例
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/915743/)
+## 中共滥用学术系统窃取研究成果美议员要求恢复孔子学院禁令
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/915901/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+台湾宝岛准农场 Amitofu
 
+根据美国媒体Axios报导，美国众议院共和党领袖麦卡锡Kevin McCarthy今天与众院外委会共和党首席议员麦考尔、众院教育委员会共和党首席议员福克斯，及众院国安委员会共和党首席议员卡特科等4位议员，致函拜登要求全美的大专院校与幼儿园到12年级的各级学校，揭露与中共孔子学院的任何协议、合作关系或财务往来，规定并适用于中国学生学者等与中共有关联的文化机构。
+![](https://lh3.googleusercontent.com/eVU0s6nqx7BK9PmpfBMrk_tmzFnDx8h61O7nHURF7x2dwfpNw7BmSBxEWvDigLxzNpnLvdUxNxbzVWCddk9U1QV-gN0ecltTOaVj2YlZ2fNRO60VRjLkTRRW4V2T1z-eNAijI-oy)
+图片来源AFP
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+美国大学院校的孔子学院是由中共和当地校方各派1人管理，导致中共审查言论、限制学术自由。记得北卡罗莱纳州立大学该校孔子学院主任威胁校方，导致取消达赖专访。中共滥用学术系统窃取研究成果、以各种名义资助经费渗透学院、留学生学费恐吓校方等手段，甚至控制校方行政人员，不予许中共异议人士当教授，监视中共公费留学生影响学术自由、并指使中共在校的特务偷取指定的机密情报。
 
-**西班牙2021年2月18日电/西喜社——**韩国正在报告621个新的中共病毒病例。这是该国一个多月来的最大日涨幅，并在放松疏导规则的情况下，引起人们对病毒复发的担忧。
+由于川普政府卸任前虽试图提出这项规定，但未完成最终的审议，在拜登总统上任发布冻结所有监管程序备忘录，导致全都被从审查程序中移除必须重新提交。麦卡锡认为拜登政府，没有让中共为了掩盖各种事实的行为负责，反而允许中共大外宣渗透全美大学院校。本文仅代表个人立场
 
-本周早些时候，韩国稍微放松了严格的疏导规则，因为病例数周来呈现逐渐下降的趋势。大首尔地区的餐厅、酒吧和咖啡店现在被允许延长营业时间一小时，而其他地方的就餐宵禁则被取消。
+[更多台湾农场精采文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-总理丁世均呼吁人们不要降低警惕。他说，放宽规定是为了帮助苦苦挣扎的小企业主，而不是为了放松对病毒的打击。
+[更多台湾农场精采直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-周三报告的数字使韩国的疫情总病例增至84946人，死亡人数为1538人。
+文章审核： Amitofu
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/083279ca-29e3-4130-bbe4-0268efd6164f.jpg)
-
-[**新闻来源**](https://apnews.com/article/world-news-australia-coronavirus-pandemic-coronavirus-vaccine-scott-morrison-7fe16dc202778d207bd93b09f7d99d68)
-
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
+文章发布：Little Liu
 
 0
