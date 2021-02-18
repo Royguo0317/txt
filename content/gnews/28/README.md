@@ -1,37 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国重返WHO！
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/915084/)
+## 秦城里的“袁世凯”
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/915215/)
 
-台湾宝岛农场 一叶一菩提
-![美國國務卿布林肯17日在聯合國安全理事會（UN Security Council）發表演說。（法新社）](https://lh4.googleusercontent.com/xrj5yR9lrYJ-SYIOSONlvjlZlg6F7OAUVCHSO2-R95K9FsDSHJlwFW0tOUNGQIFEJcXXEv-EPPe_JCJHjJUQd-UbNU6R0mkyivoUQW38fxfQ2gHlP7sljR5OuPom3M1TNxmyhw5O)
-美国总统拜登（Joe Biden）上任后积极让美国重返国际组织，国务卿布林肯2月17日在联合国安全理事会（UN Security Council）发表演说，将在本月底前支付世界卫生组织（WHO）超过2亿美元（约新台币56亿元）的分摊和当期债务。
+**撰稿人：东南**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/image-120.png)
+**图片来源：https://static.dw.com/image/16256875\_303.jpg**
 
-**美国重返WHO**
+**前不久中国共产党重庆市第五届纪律检查委员会第五次全体会议召开。，会议中强调全面彻底干净肃清孙政才恶劣影响和薄熙来、王立军流毒，用好邓恢林这个反面典型深入开展警示教育。其中，孙政才、薄熙来都曾担任重庆市委书记，二人先后被判无期徒刑。王立军、邓恢林都曾任重庆市副市长、市公安局局长，王立军被判了有期徒刑****15****年，邓恢林在今年****1****月被决定逮捕。**
 
-国务卿布林肯2月17日在联合国安理会（UN Security Council）发表演说时，更进一步表示，「这是我们履行世卫组织成员财务义务的关键一步，这反映了我们支持世卫组织在领导全球应对疫情的重新承诺，在未来我们也将展开改革世卫的工作。」
+**重庆这些年来从文强到王立军再到去年的邓恢林，让我们知道重庆的公安局长落马是最高概率的，他们回回说是反腐查处，但查处后贪腐的钱又在哪呢？眼看着马上要过年了能不能发一点给老百姓？**
 
-并强调，应对下次大规模疫情，正在进行的中共肺炎溯源调查必须「独立」，根据科学和事实，并且不受干扰。还说，所有国家或地区必须提供任何疫情爆发初期的全部数据，所有国家都应参与透明且健全的程序，来预防和因应公卫紧急事件，好让全世界尽快且尽量获得资讯。
-![https://www.upmedia.mg/upload/article/20200903163931725142.jpg](https://lh6.googleusercontent.com/YwotVbxDII1gpWKPRRMd628Nv4npbvnPcXQgKZFTZxMQKFpuyAeWQ2rSUTxN5VpUKtOV3XElitakRJKvk264_hsgtR2xfHK9yrfQM5fGl-U36FjRSTsUPE-VVJGis_NEDW7aO1uN)
-话说2020年美国不满中共政府干预WHO运作，使WHO失去了警示作用，导致全球未能及时应对中共病毒，因而疫情蔓延，致使当时美国确诊人数突破611万、死亡人数破18.5万人。
+**枯木不成林，还记得不久前陕西当地的媒体也发布了《中共陕西省委关于制定国民经济和社会发展第十四个五年规划和二〇三五年远景目标的建议》其中严肃查处矿产开发、土地利用、工程项目、国有企业等重点领域腐败问题和发生在群众身边的腐败问题，巩固拓展赵正永严重违纪违法案以案促改成果，坚决肃清其流毒和恶劣影响（赵正永曾任陕西省委书记，今年****7****月被判死缓，且终身监禁、不得减刑、假释），打击腐败义不容辞。**
 
-因此前美国总统川普政府一怒之下，于2020年9月2日，向联合国提出正式通知退出世界卫生组织（WHO），还召回美国驻WHO瑞士日内瓦总部的公卫专家，更拒绝加入由WHO创设的COVAX募资计画（COVAX financing scheme），还表示，美国拖欠WHO的会费，2019年有1800万美元，2020年则有6200万美元，共8千万美元（约新台币23.4亿元），这些钱不会支付WHO，将会被「重新安排」，用来支付联合国的会费。
+**一直跟随文贵先生的战友一定熟悉这些名字，他们都是秦城监狱的超级****“VIP”****，而且各自都有着自己的一方支脉，此时此刻这些大佬们与目前实权旁落的团派是否会汇流一处？秦城会否成为****“****新中国华盛顿与袁世凯的摇篮****”****？让我们拭目以待！**
 
-如今重返WHO，是否有妥协意味？是否真的能够对WHO展开改革？笔者认为，2016年中美贸易战打得如火如荼，美国占了绝大的优势，当时那么强势作为，都无法让WHO有所改变，现在妥协的姿态，想改革扭曲的WHO，可能要在等个至少4年吧！正所谓，一鼓作气，再而衰，三而竭。
+**本文纯属个人观点**
 
-参考资料:
+审核：MG3
 
-- [川普：美国切断金援即日起退出WHO](https://www.businesstoday.com.tw/article/category/80392/post/202005300002/)
-- [美国重返WHO！布林肯：本月将支付逾56亿元分摊费](https://news.ltn.com.tw/news/world/breakingnews/3441879)
+编辑：MG3
 
-
-[更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-
-[更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-
-文章审核：zhong
-
-文章发布：Little Liu
-
+**参考链接：[https://finance.sina.cn/china/gncj/2021-02-03/detail-ikftpnny3797008.d.html](https://finance.sina.cn/china/gncj/2021-02-03/detail-ikftpnny3797008.d.html)**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-澳喜Logo.jpeg)
 0

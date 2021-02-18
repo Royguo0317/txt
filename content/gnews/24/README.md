@@ -1,34 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国业界掀起“不接种，无工作”潮 敦促政府发疫苗证书
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/915130/)
+## 共和党议员提出抵制北京冬奥会决议
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/915328/)
 
-加拿大多伦多枫叶农场 文𤦍(Manpui）
-![]()![](https://gnews.org/wp-content/uploads/2021/02/static9.net_.au-2.jpg)*图片来源：static9.net.au*
-据英国每日邮报（Daily Mail）2月17日报道，顶级律师警告，养老院业以及包括能源公司在内的大型国际集团的老板正做出危险的举措，开始起草“不接种，无工作”合同，强迫员工必须注射疫苗。此举可能意味著准员工和现有员工都需要接种中共病毒疫苗才能在机构中工作。
+翻译：康州盘古农场- YY
+校对：康州盘古农场- Freeearth
+编辑：康州盘古农场- Antsee-GTV
 
-当被问及引入该计划的企业时，疫苗部长纳迪姆·扎哈维说，这取决于他们。迄今为止，政府表示没有计划实施疫苗证计划，扎哈维此前曾将其描述为“错误”和“歧视性”。扎哈维昨天表示，政府没有“国内疫苗证”计划。但会考虑用于国际旅行的疫苗护照。
+![olympics]()![olympics](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-18-at-16.40.47.png)***图片来源：《美联社》- 北京奥林匹克塔五环***
 
-据报道，议员们还敦促英国首相鲍里斯·约翰逊(Boris Johnson考虑「疫苗注射证书」。该证书是通过Express Plus Medicare或MyGov应用程序获得人们存储疫苗接种记录，然后就像使用手机电子钱包一样，可以用手机展示自己的疫苗接种记录，让个人能够取得中共病毒疫苗接种的加密数字证书。
+据《美国第一新闻网》2月15日报道：
 
-英国《金融时报》报道：总部位于伦敦并拥有200多个疗养院的巴切斯特医疗保健（Barchester Healthcare）表示，无医疗原因而没接种疫苗的申请人将不会被雇用。皮姆利科管道工公司(Pimlico Plumbers)表示，公司将会对新员工坚持“不接种，无工作”的态度。
+一位共和党议员谴责由中共国举办明年的奥运会，并表示这是在庆祝“残酷的独裁统治”。
 
-该报对拒绝透露姓名的律师事务所进行了采访，该律师事务所称一些公司已经在考虑为现有员工安排接种疫苗。位于伦敦的一名律师表示，在合同中加入条款以迫使人们接种疫苗是有风险的，但在医疗保健领域这更容易被辩称是为了保护患者。
+佛罗里达州共和党国会议员迈克尔·沃尔兹（Michael Waltz）周一提出一项决议，敦促美国奥委会将冬季运动会更改为中国境外的地点。 该决议要求美国在国际奥委会拒绝该提议的情况下退出2022年奥运会。
 
-另一位律师说，一些跨国公司（例如大型能源公司）正在考虑这一想法。
 
-评：
 
-这完全是一套中共做法——以疫情为名不让人工作，不让有收入。当人们没钱生活就迫使他们打疫苗，然后用疫苗注射证（疫苗护照）数码网络化存取你的私人资料（DNA）再然后数字货币通一世人的钱袋子，成为他们的奴隶！
+> Today, Rep. Waltz introduced a resolution to call on the U.S. Olympic Committee to withdraw from the 2022 Winter Olympics in Beijing unless an alternative site is found due significant human rights violations carried out by the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw).[https://t.co/genTDIjCb6](https://t.co/genTDIjCb6)
+> — Congressman Waltz Press (@RepWaltzPress) [February 15, 2021](https://twitter.com/RepWaltzPress/status/1361383660604301315?ref_src=twsrc%5Etfw)
 
-危机已迫在眉睫，来自健康护照产业与科技产业的12个组织在2月14日宣布成立「疫苗注射证书计划」，疫苗将带给人们的无法想象的“次生灾难”，觉醒的你该行动了！
 
-[原文链接](https://www.dailymail.co.uk/news/article-9267873/Companies-begin-drafting-no-jab-no-job-contracts-force-staff-Covid-vaccinations.html)
+***今天，众议员华尔兹提出了一项决议，由于CCP （中共）严重侵犯人权，呼吁美国奥委会退出2022年北京冬季奥运会，除非找到替代地点。***
+尽管有180个团体签署了一封呼吁抵制北京奥运会的信，但中共官员仍然顽固地拒绝任何破坏性努力。
 
-* * *
+中国外交部发言人汪文斌表示：“我们也希望媒体正视事实，停止传播这种毫无根据和诽谤性的言论。” “出于政治动机企图干涉和破坏奥运会的正常筹备和举办是高度不负责任的。这样的举动不会得到国际社会的支持，也永远不会成功。”
 
-校对 文锦
-发稿 云起时
 
-0
+
+> The [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s actively:
+> – Committing genocide & mass internment of Uighurs & other Muslim minorities in Xinjiang
+> -Undermining democratic rights & dismantling of ‘one country, two systems’ framework in Hong Kong 
+> – Lying about COVID since the start
+> (1/2)
+> — Rep. Mike Waltz (@michaelgwaltz) [February 15, 2021](https://twitter.com/michaelgwaltz/status/1361333783157424128?ref_src=twsrc%5Etfw)
+
+
+***CCP（中共）积极地：
+-在新疆对维吾尔族和其他穆斯林少数民族进行种族灭绝和大规模拘留
+ -破坏民主权利并废除香港的“一国两制”框架
+ -从一开始就在C C P病毒的疫情问题上撒谎
+（1/2）***
+沃尔兹还对中国人民被政府残害表示关切。
+
+原文链接：[https://www.oann.com/gop-resolution-demands-boycott-of-beijing-olympics/](https://www.oann.com/gop-resolution-demands-boycott-of-beijing-olympics/)
+
++2

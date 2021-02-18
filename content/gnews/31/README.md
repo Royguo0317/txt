@@ -1,35 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】辉瑞表示南非变种病毒将使疫苗抗体保护减少三分之二
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/915022/)
+## 英国业界掀起“不接种，无工作”潮 敦促政府发疫苗证书
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/915130/)
 
-作者：纽约香草山写作组 Wilson
+加拿大多伦多枫叶农场 文𤦍(Manpui）
+![]()![](https://gnews.org/wp-content/uploads/2021/02/static9.net_.au-2.jpg)*图片来源：static9.net.au*
+据英国每日邮报（Daily Mail）2月17日报道，顶级律师警告，养老院业以及包括能源公司在内的大型国际集团的老板正做出危险的举措，开始起草“不接种，无工作”合同，强迫员工必须注射疫苗。此举可能意味著准员工和现有员工都需要接种中共病毒疫苗才能在机构中工作。
 
+当被问及引入该计划的企业时，疫苗部长纳迪姆·扎哈维说，这取决于他们。迄今为止，政府表示没有计划实施疫苗证计划，扎哈维此前曾将其描述为“错误”和“歧视性”。扎哈维昨天表示，政府没有“国内疫苗证”计划。但会考虑用于国际旅行的疫苗护照。
 
+据报道，议员们还敦促英国首相鲍里斯·约翰逊(Boris Johnson考虑「疫苗注射证书」。该证书是通过Express Plus Medicare或MyGov应用程序获得人们存储疫苗接种记录，然后就像使用手机电子钱包一样，可以用手机展示自己的疫苗接种记录，让个人能够取得中共病毒疫苗接种的加密数字证书。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+英国《金融时报》报道：总部位于伦敦并拥有200多个疗养院的巴切斯特医疗保健（Barchester Healthcare）表示，无医疗原因而没接种疫苗的申请人将不会被雇用。皮姆利科管道工公司(Pimlico Plumbers)表示，公司将会对新员工坚持“不接种，无工作”的态度。
 
+该报对拒绝透露姓名的律师事务所进行了采访，该律师事务所称一些公司已经在考虑为现有员工安排接种疫苗。位于伦敦的一名律师表示，在合同中加入条款以迫使人们接种疫苗是有风险的，但在医疗保健领域这更容易被辩称是为了保护患者。
 
+另一位律师说，一些跨国公司（例如大型能源公司）正在考虑这一想法。
 
-[路透社](https://www.reuters.com/article/us-health-coronavirus-vaccines-variants-idUSKBN2AH2VG)2月17日报道，辉瑞公司周三表示，一项实验室研究表明，南非冠状病毒的变种可能会将辉瑞公司/BioNTech SE疫苗的抗体保护减少三分之二，目前还不清楚该疫苗是否对突变有效。由于还没有确定的抗体水平来预防病毒，因此，目前还不清楚三分之二的减少是否会使疫苗无法有效对抗在世界各地传播的变异病毒。
+评：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/113.png)图源网络
+这完全是一套中共做法——以疫情为名不让人工作，不让有收入。当人们没钱生活就迫使他们打疫苗，然后用疫苗注射证（疫苗护照）数码网络化存取你的私人资料（DNA）再然后数字货币通一世人的钱袋子，成为他们的奴隶！
 
-由于CCP病毒加速变异，当前病毒学术界、疫苗研制机构以及全世界两百多个国家的政府，除了被动防疫，根本拿不出有效应对CCP病毒的有效方案。因此，CCP病毒的危害在加速扩大。
+危机已迫在眉睫，来自健康护照产业与科技产业的12个组织在2月14日宣布成立「疫苗注射证书计划」，疫苗将带给人们的无法想象的“次生灾难”，觉醒的你该行动了！
 
-到目前为止，竟然没有任何一个国家的官方机构或官方人士，以官方形式指名道姓地关注闫丽梦博士撰写的两份CCP病毒来源及定性报告。他们质疑世卫武汉病毒溯源公信度的态度也值得怀疑。
+[原文链接](https://www.dailymail.co.uk/news/article-9267873/Companies-begin-drafting-no-jab-no-job-contracts-force-staff-Covid-vaccinations.html)
 
-编辑/校对/发稿：Irene木木
+* * *
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+校对 文锦
+发稿 云起时
 
 0

@@ -1,39 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【澳洲热点】澳智库建议积极应对中共国渗透
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/914740/)
+## 拜登的“文化说”替中共开脱种族灭绝罪引哗然
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/914841/)
 
-#### 翻译：Steven Hu
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-#### 校对/译评：文泓
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-18_05-57-45.jpg)[thelist.com](https://www.thelist.com/254247/expert-reveals-what-joe-bidens-body-language-at-the-first-presidential-debate-really-means/)
+就任总统后第一次公众露脸的拜登，在涉及中共问题上有了如下内容，“我不打算对中共在香港所做的事情，在中国西部地区对维吾尔人所做的，对台湾——试图通过强有力的政策来结束一个中国政策等发表言论”；“在文化上，每个国家及其领导人都应该遵循不同的准则”。
 
-#### 编辑：翼族
-![]()![](https://gnews.org/wp-content/uploads/2021/02/116-6.jpg)
-图片来源：德国之声
+此番言论一出，即遭到邪恶认知人士的警觉、反对、愤慨和质疑！
 
-#### 译评：
+《福克斯新闻》算是比较含蓄，“拜登在讨论中共国、人权问题时，因‘不同准则’的言论引起（公众的）不满”【1】。
 
-此篇报道反映了澳洲智库对于中共国在亚太地区咄咄逼人态势的担忧，中共国通过“一带一路“的债务陷阱绑架投资国，通过在海外的商业投资带动军事渗透和扩张，已在亚太地区占据了很多战略港口，而现在中共又瞄向了澳洲的后院巴布亚新几内亚。
+《纽约邮报》则直接用“拜登摒弃了维吾尔族种族灭绝罪的（提法），称它是中（共）国‘不同准则’的一部分”，拜登直言“不会对中共在香港、维吾尔族或台湾的镇压行为表示反对”。【2】
 
-澳大利亚战略政策研究所(ASPI)作为澳大利亚最顶尖的国家智库，近期的这份报告反映了包括澳洲在内的西方社会终于意识到与中共国打交道做生意的成本巨大。面对中共国的渗透，目前澳大利亚只能穷于应付。中共正在采取分而治之的办法离间五眼联盟，新西兰受利益诱惑已经较少参与到五眼联盟的集体行动，而澳大利亚作为五眼联盟中关键的成员承受了中共的巨大压力。
+这是什么时候？这是全世界都在期待着美国这座自由灯塔引领正义的力量，制止、清算邪恶的中共对新疆、香港人民的暴行，采取行动的关键时刻，英国已经走在了前列。拜登此番言论无疑是在泼冷水、踩刹车，替中共解围，为邪共的“反人类、种族灭绝罪”解套！
 
-在这种大形势下，爆料革命应一如既往向全世界揭示真相，让全世界人民启蒙开智，形成全球灭共之势，而澳大利亚的战友们则肩负着唤醒更多身边人的历史使命。
+这才登基一个月不到，难道还有为CCP病毒、更恶毒的生物武器解套的第二季？
 
-#### 译文：                                                                            
+奇怪的是，拜登那段令人惊讶的语句，各大左派媒体的表述与《纽约邮报》报道的完全相反。
 
-一家最重要的国家安全智库已敦促联邦政府调查中共国对澳大利亚的渗透，包括有国家背景以及可能有军事背景的企业。
+《路透社》这样报道，“拜登周二警告说，中共将为侵犯人权行为付出代价。美国总统拜登在一次电视转播中回答了有关亚洲国家在其遥远的新疆地区处理穆斯林少数群体的问题。中共国的习近平因将少数维吾尔人关押在拘留营和其他侵犯人权行为而受到全球批评。”【3】
 
-周三澳大利亚战略政策研究所(ASPI)发布的报告，对中共在海洋和港口扩张提出了数个红色警告。在一系列的关键建议中，政府已被告知要评估这个共产国家的军事能力，并制定澳大利亚、日本和美国之间的国际港口战略。
+《美国新闻》完全照搬了《路透社》的文章【4】，《澳洲广播网》（abc net）此部分的内容完全一样【5】。
 
-“北京在政治和军事上更愿意展示自己的力量，这得益于其对海外关键基础设施的投资。”报告指出，“中共国正越来越愿意将军事力量投射到海外，同时胁迫和拉拢那些国家接受中共的目标。”
+《福克斯新闻》直接解读成了“他必须呼吁反对北京在香港的镇压，在中（共）国西部地区的维吾尔人所做的事”，把“不打算”，说成了“必须”。
 
-这一警告来自于一家中共国公司与巴布亚新几内亚政府接触并提议建造一座耗资390亿美元城市的恐惧，这个计划中的城市距离澳大利亚海上边界仅数公里之遥。
+慎重起见，笔者重复听了拜登的这段话，确认《纽约邮报》的报道正确【6】。
 
-报告作者查理·里昂斯.琼斯（Charlie Lyons Jones）和拉斐尔·韦特（Raphael Veit）表示，北京利用对关键基础设施的商业投资来支持其军事扩张的战略，这在一带一路的倡议中表现得最为明显。他们的报告警告说，中共国的国有企业对关键基础设施的大规模投资往往伴随着“隐蔽性或欺骗性的操作”，试图操纵外国政府来推进中共的利益。
+中共安排的剧目哪个环节出了差错？让你先小骂一下，大外宣的文章都准备好了，结果，你提前透露了剧情。
 
-然而，这项海外投资带来了一个“重大挑战”，因为澳大利亚并不认同中共国的战略利益。
+无论怎样，必须引起警觉。就在今天，GNEWS发文透露，蓬佩奥前国务卿和奥布莱恩前国家安全顾问即将作为尼克松基金会(Nixon Foundation)每月一次的圆桌会议的联席主席，定期主持研讨会并就外交政策问题发表意见。【7】这是监督拜登政府外交政策的重要步骤。
 
-**原文链接：**[https://www.news.com.au/finance/economy/australian-economy/new-aspi-report-recommends-australia-prepare-for-chinas-infiltration-in-the-region/news-story/3483e71ba767da4af26a72e2c4a7148d#.g77dl](https://www.news.com.au/finance/economy/australian-economy/new-aspi-report-recommends-australia-prepare-for-chinas-infiltration-in-the-region/news-story/3483e71ba767da4af26a72e2c4a7148d#.g77dl)
+参考链接：
 
-0
+【1】 https://www.foxnews.com/politics/biden-takes-heat-for-different-norms-remark-while-discussing-china-human-rights
+【2】 https://nypost.com/2021/02/17/biden-says-uighur-genocide-is-part-of-chinas-different-norms/
+【3】https://www.reuters.com/article/us-usa-biden-china/biden-says-china-to-face-repercussions-on-human-rights-idUSKBN2AH0AC?il=0
+【4】https://www.usnews.com/news/world/articles/2021-02-16/biden-says-there-will-be-repercussions-for-china-over-human-rights
+【5】https://www.abc.net.au/news/2021-02-17/biden-says-china-to-face-repercussions-on-human-rights/13164206
+【6】https://www.cnn.com/videos/world/2021/02/17/china-uyghurs-human-rights-joe-biden-town-hall-vpx.cnn/video/playlists/joe-biden-town-hall/
+【7】https://gnews.org/zh-hans/914383/
+
++2
