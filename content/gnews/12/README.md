@@ -1,25 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 柬埔寨政府颁布法令 建中共式防火墙
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/914451/)
+## 1/6美国国会枪杀阿什利·巴比特的警员有可能是故意杀人
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/914498/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+**作者：**wenwu
 
-编辑  水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-18_01-21-18.jpg)Youtube
-路透社2月17日报道，柬埔寨政府颁布了一项法令，将建立中共式的互联网门户，对网络流量进行控制和监控，这引发了当地民众对民主自由受到威胁的担忧。
+据1月17日国家脉动的娜塔莉·温特斯（Natalie Winters)报道，黑命贵（BLM）的头目**约翰·沙利文**（**John Sullivan**）在面对参与国会骚乱的刑事指控时，其披露自己因拍摄**阿什利·巴比特（Ashli Babbitt）**，在国会被国会警员枪杀而获得七万七千美元的利益，而支付方为CCN和NBC等各主流媒体。看来，在这起事件的背后似乎隐藏着让人无法接受的事实真相呢！
 
-该门户的运营商将支持当局“采取措施，防止和断开所有影响国家收入、安全、社会秩序、道德、文化、传统和习俗的网络连接”。
+- ![]()![](https://gnews.org/wp-content/uploads/2021/02/image3-1-1.jpg)
+- ![]()![](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-01-14-at-5.42.07-PM-1160x646-1.png)
+- ![]()![](https://gnews.org/wp-content/uploads/2021/02/image2-5-1.jpg)
 
-柬埔寨首相洪森(Hun Sen)正因镇压公民社会和政治反对派而面临国际社会的批评。镇压导致洪森领导的政党权力垄断，许多竞争对手遭到刑事指控，并被判入狱。
+沙利文自己披露川普支持者占领了国会的内幕
+**沙利文**作为黑命贵（BLM）的创始人在这起国会枪杀案当天，其潜伏在川普的支持者当中煽动暴力。在该报道中也有明示，据称沙利文通过惊呼“我们必须烧掉这些狗屎”和“这是我们家混蛋”等话语来刺激人群，以试图打破和平示威的局面。而美国主流媒体给黑命贵（BLM）付钱，则无法与这起事件完全脱离关系。如果证据确凿，这是实打实美国主流媒体有计划的煽动暴力并陷害美国前总统川普！
 
-柬埔寨人权中心(Cambodian Center for Human Rights)执行主任查克·索普(Chak Sopheap)表示，该法对言论自由、隐私、数据保护和公共信息有巨大影响，而柬埔寨的法律框架几乎没有为数字自由提供保护。他强调，“在过去的几年里，因为使用互联网和行使言论自由权利而受到威胁、骚扰甚至起诉的公民数量急剧增加。”
+另外，这次事件已经一致认为是**国会暴动**，必定会追究到底。其中，美国军人被美国国会警员枪杀未发生之前，郭文贵先生曾在其GTV个人自媒体频道透露：如果川普的支持者冲进了国会，必然会有人开枪。之后，这句话随即得到OANN新闻的证实。我们发现这个世界真是太疯狂了！
 
-最近柬埔寨与美国和欧盟的关系恶化，中共国是柬埔寨的重要经济盟友，又实施完全的中共化言论自由控制模式。继香港、缅甸之后，柬埔寨也在中共高压控制下失去民主自由。中共不除，还有多少国家在共产极权的渗透与祸害下可以独善其身？
+美国人如今早已对主流媒体的报道价值失去信心。1月6日在美国国会枪杀美国军人**巴比特**的国会警员是故意杀人吗？在政府的最终调查结果出来之前，相信美国人民的愤怒也将形成一股不可轻视的力量。
 
-参考链接：
+（文章仅代表作者观点，与GNEWS无关）
 
-[https://www.reuters.com/article/us-cambodia-internet/cambodia-adopts-china-style-internet-gateway-amid-opposition-crackdown-idUSKBN2AH1CZ](https://www.reuters.com/article/us-cambodia-internet/cambodia-adopts-china-style-internet-gateway-amid-opposition-crackdown-idUSKBN2AH1CZ)
+新闻来源：
+`国家脉动的娜塔莉·温特斯（Natalie Winters)报道`
+`「突发」1/6川普支持者占领美国国会`
 
-0
++1
