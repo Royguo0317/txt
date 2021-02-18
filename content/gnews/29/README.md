@@ -1,25 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全球逾1亿878万例确诊冠状病毒 超过240万人病亡（玫瑰看新闻2021.02.17日第49期）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/916153/)
+## 美关切世卫疫源调查吁中国交资料 （玫瑰看新闻二月十五日）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/916164/)
 
-本期焦点新闻摘要：
- 
-\*美参议院否决特朗普弹劾条款，特朗普发声暗示后会有期
- 
-\*美国敦促为理解新冠大流行并为下一场做好准备，中国必须给出最早期数据
- 
-\*日本福岛东部海域爆发7.3级地震
- 
-\*伊朗总统示警：国内将出现第4波COVID-19疫情
- 
-\*缅甸断网部署军队 联合国称相当于朝自己的人民宣战
-
-\*打过疫苗可入境：以色列和塞浦路斯互推“新冠疫苗护照”
-
-\*瓦努阿图外海强震 规模6.2级
-
-\*全球逾1亿878万例确诊冠状病毒 超过240万人病亡
-
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-56.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-17.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/3-19.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/4-29.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/5-26.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/6-35.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/7-11.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00008-4-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/9-4.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/10-7.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/11-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00012-4-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/14.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/15.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00016-4-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/17-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/18.jpg)
 0
