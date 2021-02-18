@@ -1,25 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国务院发言人普赖斯称:美国对中国在科技方面的“掠夺性”行为深感担忧（玫瑰看新闻2021.02.14第48期）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/916017/)
+## 美关切世卫疫源调查吁中国交资料 （玫瑰看新闻二月十五日）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/916164/)
 
-本期焦点新闻摘要：
-
-\*拜登政府寻求暂停对微信的禁令诉讼
-
-\*拜登警告:如果什么都不做中国将压垮我们
-
-\*国务院发言人普赖斯称:美国对中国在科技方面的“掠夺性”行为深感担忧
-
-\*美元兑换部分主要货币下跌比特币刷新纪录高位
-
-\*中国拒绝向世卫组织调查人员提供早期新冠病例的原始数据
-
-\*墨尔本突封城澳网比赛不开放球迷进场
-
-\*意大利“超级马里奥”出任新总理
-
-\*香港政府拟法律修正案，禁止任何个人离开香港
-
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-56.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-17.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/3-19.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/4-29.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/5-26.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/6-35.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/7-11.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00008-4-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/9-4.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/10-7.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/11-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00012-4-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/14.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/15.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00016-4-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/17-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/18.jpg)
 0

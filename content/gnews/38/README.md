@@ -1,29 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德时评简讯（视频版）：蓬佩奥呼吁全世界抵制北京奥运会2021.2.17早间 路德社简讯之路安墨谈)
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/915681/)
+## 西班牙中共病毒疫情继续缓慢减退
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/915768/)
 
-《路德社》出品
-
-以下视频是详细内容：
-
-内容摘要：
-
-**一、蓬佩奥呼吁全世界抵制北京奥运会**
-
-**二、拜登总统和中共的关系如何定义**
-
-**三、北约国防部长讨论中共威胁**
+- 编辑：Victor Torres
+- 发稿：Ranting
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-翻译：路德社翻译组
+**西班牙2021年2月18日电/西喜社——**西班牙的中共病毒疫情继续缓慢减退，两周的感染率从1月底的近900例降至周二的每10万居民385例。
 
-制作：路德社简讯视频组
+住院人数也在逐渐下降。卫生部数据显示，中共病毒患者的病床占比已从2月1日的25%峰值降至15.35%。
 
-审核校对：玫瑰新闻组
+同期重症监护室的占用率已经从45%下降到37.4%。
 
-上传排版：玫瑰新闻组
+西班牙官方报告了300多万个病毒病例—略高于人口的6%—并将65400多人的死亡归咎于该病毒。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/404eb1e2-94b2-4153-85f3-5f5a03177003.jpg)
+
+[**新闻来源**](https://apnews.com/article/world-news-australia-coronavirus-pandemic-coronavirus-vaccine-scott-morrison-7fe16dc202778d207bd93b09f7d99d68)
+
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
 0
