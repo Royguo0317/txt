@@ -1,45 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共偷盗澳洲的国防机密和普通民众的个人信息
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/917320/)
+## 【战友心声】牛年，我们依然用力地活着
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/917333/)
 
-撰稿：Shirley
-![]()![](https://gnews.org/wp-content/uploads/2021/02/屏幕截图-2021-02-19-145503-2.png)图片来自网络截图
-过去十年来，数据存储公司Global Switch一直负责在悉尼内城Ultimo的设施中存储澳大利亚的国家军事机密，但当2016年总部位于伦敦的母公司奥尔德斯盖特（Aldersgate Investments）将49%的股份出售给一家中国数据技术财团雅居乐（Elegant Jubilee）时，情况发生了改变，此举当时引起了英国议会的关注。
+作者：纽约香草山 Williams 校对/发稿：飞虹
 
-时任财长、现任总理莫里森（Scott Morrison）2016年曾下令，在2020年底前将所有敏感数据从Ultimo仓库设施中转移出来。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
-澳大利亚国防部与Global Switch的合同本应在2020年10月到期，但在周二向联邦议会招标的一份新合同中显示，合同反而延长至2025年9月。新合同的价格是5350万美元，比原来的报价高出约25万美元。
 
-《澳大利亚人报》的外事编辑谢里丹（Greg Sheridan）说，“我认为莫里森政府在国家安全方面总体上是一个非常好的政府，但为什么要让一家中资公司控制机密的国防信息？”
 
-国防部发言人证实，国防部将保留其在Ultimo数据中心内的数据大厅的全部运营控制权，直到2025年数据全部迁移完毕。将国防部的文件从Global Switch设施中移出，估计需要花费约2亿美元。
+牛年将至，又像往年一样见见老朋友，只是这次没有像往年一样拿着礼品，也没像NGO组织那样唱着圣歌帶着爱给予深层问候……
 
-昆士兰州议员卡特（Bob Katter）和前陆军军官、独立的联邦议员威尔基（Andrew Wilkie）向议会提交了一份动议通知，呼吁政府立即终止所有与外资实体持有的数据存储合同，特别是中国拥有的设施Global Switch。
+楠姐是此文中第一位人物，十几年前，她丈夫遭遇交通事故意外死亡，十多年以来，她都靠一个人打散工养活两个孩子，孩子小的时候基本都是吃自己种的青菜，和亲戚朋友接济的大米，很少吃得上肉。孩子上中学了，她一天工作十多小时，维持着这个家庭。终于到了去年，她的大孩子毕业了，从事维修的技术工作。这次相聚，我看见一位母亲眼中的希望是如此闪亮，她说孩子出来工作了，一切都显得很简短……
 
-据了解，国防部并不是唯一一个将其敏感文件和在线网关访问文件存储在Global Switch的机构，澳大利亚税务局和澳大利亚证券和投资委员会也将其文件存放在那里，不过这两个机构都正在将文件转移出去。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/612230604461509-600x400-1.jpg)图片来源：大纪元网站
 
-Global Switch此前曾表示，其文件和客户都处于最高的安全级别，股东不得实际进入其中心。
+坐上汽车又飞奔到另一位大姐那里，她叫慧姐。同样是两个孩子，可是她显得更无助，大孩子是智障，小孩子还在念书，老公多年前生意失败抛弃了她们，曾经富足的生活，变得一无所有，没有了房子，没有了汽车，没有更多的家具与电器，只有少量的存款。她说如果有一天她老了不能动了，希望大孩子能去到养老院，有人照顾。
 
-相信澳大利亚并不是唯一一个被中共窃取国防机密的国家。中共国苦心孤诣经营多年，欲窃取西方民主国家的国防安全信息，以便在需要时彻底摧毁西方各国的国防系统。
+下午驱车到达城市的另一端，这里的阿水与他的老婆经营着一家小食店，阿水只有一只健康的手，每天都兢兢业业地工作十多个小时，自己解决养老金，自给自足，为附近工厂区的工人提供三餐。就是这样一位勤勉的小个体劳动者，依然活在贫穷的边缘，依然没有自己的房子。
 
-除了国防机密，中共也不放过普通民众的个人收入信息搜集，真可谓是无孔不入。在郭先生引领的爆料革命的影响下，西方的民意已经开始觉醒，中共的灭白人进而统治全球的计划注定要失败的。
+回去的路上，正好偶遇了小胡，因为残疾与拮据，他老婆离他而去，全部生活只能靠一台摩托接送客人。孩子留在老家，他说过年只有一些救济金，真不好意思回家见见孩子。
 
-（本文仅代表个人观点）
+第二天我们依然继续着旅程，第一站是老林家。老林依然像往常一样勤奋。如果不是那一针疫苗导致他孩子半生不死的命运，今天他们仍会过着中产的生活。那一针完全改变了这一家人的命运，妻离子散，房子变卖，更重要的是这一切完全没有经过任何医疗事故认定。
 
-初审：永遠の小学生(文筝)
+更多的人物在旅程中，但不再想多说了，有时候我在想《圣经》里的话，人活着，不是单靠食物，乃是靠神口里说出的一切话。我们缺失了信仰，缺乏了爱和怜悯，就会忽略了他们。为什么我们活得如此用力，却又如此卑微？在伟大的国度里，他们一生与苦难相伴。
 
-审核：光耀华夏
+这些活生生的人物，如果在西方的民主国家里，会显得该国的政府不负责任。然而在CCP的统治之下，这一切似乎都是正常的！？
 
-编辑：MG1
+…… …… ……
 
-参考来源：
 
-1. [https://www.dailymail.co.uk/news/article-9265893/Australias-defence-force-signs-storage-military-secrets-Chinese-owned-company.html](https://www.dailymail.co.uk/news/article-9265893/Australias-defence-force-signs-storage-military-secrets-Chinese-owned-company.html)
-2. [https://www.skynews.com.au/details/\_6232889533001](https://www.skynews.com.au/details/_6232889533001)
-3. [https://www.abc.net.au/news/2021-02-16/global-switch-deal-defence-data-security-files/13149592](https://www.abc.net.au/news/2021-02-16/global-switch-deal-defence-data-security-files/13149592)
-4. [https://www.news.com.au/world/asia/defence-department-backflip-over-chinese-data-storage-deal-sparks-new-security-concerns/news-story/0fcc99fb1d28863573f3bd01bb7d295d](https://www.news.com.au/world/asia/defence-department-backflip-over-chinese-data-storage-deal-sparks-new-security-concerns/news-story/0fcc99fb1d28863573f3bd01bb7d295d)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-澳喜Logo.jpeg)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
 0

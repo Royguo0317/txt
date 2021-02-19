@@ -1,38 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共继续在菲律宾专属经济区内的珊瑚礁上违建
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/916674/)
+## 德国汉堡大学纳米科学家：&#8221;大量旁证表明新冠病毒来源武汉市病毒研究所的实验室！&#8221;
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/916719/)
 
-加拿大多伦多枫叶农场 阿黎
-![]()![](https://gnews.org/wp-content/uploads/2021/02/cnnphilippines.com_.jpg)*图片来源：cnnphilippines.com*
-据《询问者报》（Inquirer） 2月17日报道，中共国继续在西菲律宾海上占领的彭加尼班珊瑚礁上进行非法建设。
+![]()![](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e5/Roland_Wiesendanger_NanoLab_II.jpg/800px-Roland_Wiesendanger_NanoLab_II.jpg)图片：wikipedia
+来自德国汉堡大学的著名纳米科学家Roland Wiesendanger教授（他在汉堡大学建立了德国国家纳米技术中心）收集并研究了2019年到2020年的间接证据发现：”关于病毒本身的证据和科学期刊上的大量出版物表明，武汉市病毒学研究所的实验室事故是造成本次疫情的原因！” Wiesendanger教授在论文中表示这项研究是基于跨学科的科学方法，在利用了可能的手段进行广泛研究的基础上进行的。
 
-美国科技公司Simularity的南海快速预警服务周二(2月16日)发布了彭加尼班（Panganiban)岛礁的图像，显示了自2020年底以来在中共病毒疫情中的新进展。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/globalnation.inquirer.net_.jpg)*图片来源：globalnation.inquirer.net*
-Similarity公司确定了彭加尼班岛礁上七个地点的变化。在拍摄的标记为1号站点的区域图像显示，截至2020年5月7日，该处是裸露的，但在2021年2月4日，图像显示了 “一个直径16米的永久性圆柱形结构的建筑”，该结构于2020年12月初开始，似乎是个天线安装结构。
+在论文中，Wiesendanger教授称自然杂志和柳叶刀杂志之前的某些观点不严谨和缺乏事实依据并叙述了一些重要观点和文献依据，例如： 
+1. 人畜共患理论作为对这次大流行的可能解释，没有充分的科学依据。与以往与冠状病毒有关的疫情，如SARS和MERS相比，到目前为止，即在本次大流行爆发后一年多的时间里，还没有确定中间宿主动物。于此同时科学文献出版物可以证明武汉病毒所有世界上最多的蝙蝠病原体，其中一个研究小组多年来一直在对冠状病毒进行基因操作，目的是使冠状病毒对人类的传染性、危险性和致命性更强。这些病原体来源于距离武汉2000多公里以外的南方省份的远古洞穴，极不可能自然来自武汉。并且早在冠状病毒大流行爆发前，武汉市病毒所就存在重大的安全隐患，这些隐患已经被记录在案。
 
-图像显示，被标记为2号站点的区域，出现了一个新的大型雷达罩和可能的固定雷达结构，而这些在一年前是不存在的。标识为4号和7号站点的区域，一年前曾有矩形结构，截至2021年2月4日，这些区域已被清理。标记为5号和6号场地的区域已确定可能出现新的建筑。
+2. SARS-CoV-2病毒非常善于与人体细胞受体结合，并能穿透人体细胞。这是由特殊的细胞受体结合域与冠状病毒之字形蛋白的特殊裂解位点结合而成的。这两个特性一起在冠状病毒中是以前未知的，表明SARS-CoV-2病原体的非自然来源。
 
-海事专家杰伊-巴东巴卡尔（Jay Batongbacal）博士在Facebook上发文称，新的雷达设施似乎处于完成阶段，施工设备和营房正在四处移动，一些区域可能正在为更新的建筑进行清理。
+3. 诸多迹象表明，早在2019年10月，SARS-CoV-2病原体就从病毒学研究所扩散到武汉市及其他地区。另外还有很多直接的迹象表明，SARS-CoV-2病原体的实验室来源，例如，武汉市病毒学研究所的一位年轻女科学家被认为是第一个被感染的人，她在研究所网站上的相关信息被删除。
 
-彭加尼班礁–国际上称为 “恶作剧礁”–位于菲律宾在南海370公里的专属经济区（EEZ）内，这一水域被当地人称为西菲律宾海。
+这份报告于2021年1月完成，并初步在科学界分发和讨论。现在旨在激发广泛的讨论，特别是关于所谓的 “**功能增益** “研究的伦理问题，这种研究使病原体对人类更具传染性、危险性和致命性。
 
-海牙法院2016年的裁决称，彭加尼班岛礁属于菲律宾。部分裁决称，该岛礁位于巴拉望岛约232公里处，是菲律宾专属经济区和大陆架的一部分，中共国占领并在该岛礁上进行建设，侵犯了菲律宾的主权。
+可以看到目前已经有越来越多有良知的科学家站出来向世界揭示新冠病毒的真相，希望那些声称病毒来自自然的科学家停止代表“世界的科学家们”，能够像闫丽梦博士号召的那样，站出来在公开的场合开展辩论，让世界上所有的科学家和人民了解病毒更多的真相，让世界各国无辜的人民不再继续受到病毒的攻击并向始作俑者中共追究责任。
 
-除了彭加尼班岛，中国还将卡吉廷安(烈焰十字)、卡尔德隆(库特隆)、布尔戈斯(加文)、马比尼(约翰逊南)、萨莫拉(苏比)和麦肯南(休斯)等珊瑚礁改造成人工岛。
+参考链接： 
+汉堡大学网站 [https://www.uni-hamburg.de/newsroom/presse/2021/pm8.html](https://www.uni-hamburg.de/newsroom/presse/2021/pm8.html) 德国媒体报道： [https://www.bild.de/bild-plus/ratgeber/gesundheit/gesundheit/professor-sicher-corona-kam-doch-aus-einem-labor-in-wuhan-75430738.bild.html](https://www.bild.de/bild-plus/ratgeber/gesundheit/gesundheit/professor-sicher-corona-kam-doch-aus-einem-labor-in-wuhan-75430738.bild.html) [https://www.ndr.de/nachrichten/hamburg/Hamburger-Forscher-Coronavirus-stammt-wohl-aus-Labor,corona6764.html](https://www.ndr.de/nachrichten/hamburg/Hamburger-Forscher-Coronavirus-stammt-wohl-aus-Labor,corona6764.html) [https://www.focus.de/gesundheit/coronavirus/kommt-aus-labor-in-wuhan-hamburger-uni-professor-veroeffentlicht-studie-zu-corona-ursprung-und-erntet-boese-kritik\_id\_12998230.html](https://www.focus.de/gesundheit/coronavirus/kommt-aus-labor-in-wuhan-hamburger-uni-professor-veroeffentlicht-studie-zu-corona-ursprung-und-erntet-boese-kritik_id_12998230.html) [https://www.merkur.de/politik/coronavirus-ursprung-laborunfall-uni-hamburg-studie-wiesendanger-professor-china-wuhan-verschwoerungstheorie-who-zr-90209794.html](https://www.merkur.de/politik/coronavirus-ursprung-laborunfall-uni-hamburg-studie-wiesendanger-professor-china-wuhan-verschwoerungstheorie-who-zr-90209794.html) [https://www.ln-online.de/Nachrichten/Norddeutschland/Universitaet-Hamburg-Corona-war-wohl-ein-Laborunfall-in-Wuhan](https://www.ln-online.de/Nachrichten/Norddeutschland/Universitaet-Hamburg-Corona-war-wohl-ein-Laborunfall-in-Wuhan) 
+论文原文： [http://doi.org/10.13140/RG.2.2.31754.80323](https://doi.org/10.13140/RG.2.2.31754.80323)
 
-2020年，从武汉开始的中共病毒疫情，并未阻止中共国在南海的恶行。除了始终如一地部署海岸警卫舰之外，中共国还加大了力度，设立了两个新的行政区，给所有地理特征起了中文名字，以标志其所有权，启动了两个新的研究设施，还有其他一些举动来执行其毫无根据的主张。这些活动引起了菲律宾和越南的抗议。
-
-中共向全世界发动超限生物战，妄图消灭白人、打垮美国甚至全世界的经济，同时肆意在南海的扩张建设，以图控制亚太地区的海上石油和其他货物运输、渔业和可能的资源霸占。
-
-世界在觉醒。中共向全世界投毒，杀害逾三百万人，超过亿人感染，世界各国经济面临崩溃，这一切一定会让中共偿还。中共在南海的非法设施只能是枉费力气。
-
-[原文链接](https://globalnation.inquirer.net/193887/china-construction-continues-on-reef-inside-ph-eez-satellite-images-show)
-
-* * *
-
-校对 文锦
-发稿 云起时
-
-0
++1
