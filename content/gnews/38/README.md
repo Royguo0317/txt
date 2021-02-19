@@ -1,91 +1,78 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫发布拜登的“文化常态“论
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/916399/)
+## 汤姆·科顿对抗中共“邪恶帝国”新 “冷战”的大胆战略
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/916660/)
 
-俄罗斯莫斯科喀秋莎农场 仰望七星
-编辑 水星 上传 银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-19_01-29-13.jpg)[vaandel.co.za](https://vaandel.co.za/die-biden-skandaal-vsa-deur-chinese-gekaap/)
-2月17日，白宫将拜登为中共的种族灭绝罪开脱的对话原稿全部发布【1】，这是他接受CNN白左记者库珀（Coop）采访所言。现将涉及中共国部分摘译，供战友参考。
+- 编辑：Victor Torres
+- 发稿：Ranting
 
-拜登：我们之所以能够与世界其他国家竞争如此激烈，其中一个原因是我们的主要竞争对手大多具有排外心理。你还记得——我记得我从中（共）国回来的时候你问过我，我说，“我预测，用不了一年，他们将结束他们的独生子女政策（ their One China policy）。”我受到了攻击——说——因为他们说拜登说话不靠谱——这是多么不道德。那是在我们和共和党候选人竞争的时候，由米特·罗姆尼领导，一个好人。
 
-库珀：我想你刚刚和中共国家主席习谈过了。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-拜登：是的，2个小时。
+**西班牙2021年2月19日电/西喜社——**据pjmedia2月18日报道，周四，参议员汤姆-科顿（Tom Cotton）发布了一份反击中共、在新的 “冷战” 中战胜这个 “邪恶帝国” 的路线图。
 
-库珀：维吾尔人怎么办？中共国侵犯人权问题怎么办？
+“这个邪恶帝国捕食和监视美国人。它把无辜的人关在集中营里。它使用奴隶劳工来为其工厂提供燃料。它剥夺了14亿人的基本自由，”科顿在芝加哥罗纳德-里根学院的一次演讲中宣布。”我们需要打败这个邪恶的帝国—把中共，像布尔什维克一样，托付给历史的灰堆。”
 
-拜登：我们必须捍卫人权，这是我们（的标准）。我们不能——对他指责，（要求）他也是这样——我很了解他，他也很了解我，我们有两个小时的谈话。
+他发布了一份报告题为 《打败中共国 ：有针对性的脱钩和经济长期战》，提出了打击中共国的三个核心目标：脱钩、减轻脱钩的影响、重组联邦政府以更好地应对中共。
 
-库珀：你跟他谈过这个？
+科顿赞扬了里根不鸣则已，一鸣惊人打败苏联的历史性成功，但他警告说，针对中共国的 “冷战””将比第一次更加复杂。中共国比美国曾经面对过的任何敌人都要富裕，人口也更多。它在经济上与我们的纠葛也更多。”
 
-拜登：我也谈过这个，这并不是什么难民问题，但我说的是——我说——听着，你知道，中（共）国领导人——如果你对中国历史有任何了解的话，那一直都是——中国历史上在没有统一的时候，饱受战乱的蹂躏。因此，习近平的核心——核心原则是，必须有一个统一的、严密控制的中（共）国。而他所做的都是基于这个道理。
+科顿承认，美国 “对中共国的深度依赖并不是一夜之间增长的”。相反，美国人积极追求与中共建立 “战略伙伴关系”，理由是开放市场和开放边界会让中共国富裕，然后带领中国走上自由之路。中共国确实富起来了，”但中共不但没有改革，反而开始利用我们的自由社会与其极权社会之间的新联系”。
 
-我向他指出，任何一位美国总统如果不体现美国的价值观，他就不可能继续担任总统。基于这一点，我不打算说反对他在香港做什么，他对中（共）国西部地区的维吾尔人和台湾做什么，试图强硬地推行一个中国政策（the One China policy）——我说——他说他——他明白了。在文化常态上，每个国家和他们的领导人都遵循不同的准则。
+正如科顿所指出的那样，中共把来美国大学学习的中国学生当成间谍。北京强迫公司交出专利技术，以换取进入中国市场的机会。中共国还威胁要切断美国外包给中国生产的必需品。本周，中共提议对稀土矿产品进行出口管制，而这些稀土矿产品对包括武器系统在内的各种形式的美国技术至关重要。
 
-但我的观点是，当我和他会面回来，经过了17000英里的行程，当时我是副总统，他是副主席——
-这就是为什么我这么了解他，是应胡主席的要求——不是开玩笑——他的前任胡主席——奥巴马总统希望我们互相了解，因为他会成为主席。
+中共在中共病毒疫情上的恶劣渎职行为也应强调反制中共国的必要性。中共在早期撒谎掩盖疫情，等到500万人离开武汉后才封锁武汉市。该党销毁了早期的病毒样本，让试图向全世界发出警告的医生噤声，向世卫组织施压，让他们在疫情问题上说谎，向全世界索要个人防护装备（PPE），当外国提出同样的要求时，又对其进行敲诈。中共甚至阻止美国公司将医疗设备运回国内。
 
-我回来说他们要结束中（共）国的独生子女政策（their One China — their one child policy），因为他们太排斥外国人，不让任何人进去，退休的人比工作的人还多，更多的人都是退休的了，他们如何维持经济增长？
+美国必须反击，科顿提出了反击的三个步骤。
 
-库珀：不过，当你和他谈论侵犯人权的问题时，这是否只是——就美国而言，是这样吗？或者对中共国有什么实际影响？
+1. 脱钩
 
-拜登：嗯，对中共国会有影响，他知道这一点。我要表明的是，事实上，我们将继续重申我们作为联合国和其他人权机构发言人的作用，这些机构对他们的态度有影响。
 
-中共国正非常努力地试图成为世界领袖并获得这个称号，要做到这一点，他们必须赢得其他国家的信任。只要他们从事与基本人权背道而驰的活动，他们就很难做到这一点。但要比这复杂得多。我不应该在电视上花10分钟内谈论中共国的政策。
+科顿的战略建立在脱钩的理念上，即在经济和政治方面将美国与中共国分开。”任何击败中共国的严肃战略都必须从承诺在关键领域使我们的国家脱钩开始，以便利用我们对中共国的影响力，并尽量减少它对我们的影响力，”他解释说。”在我们拉开距离的同时，我们也必须重建部分经济，以尽量降低分离的成本。”
 
-库珀先生：好吧，让我把问题带回美国……
+科顿鼓励乔-拜登政府在川普政府制裁中共臭名昭著的行为者，特别是人权侵犯者的政策基础上，切断他们与美国金融体系的联系。
 
-评：CNN的这次采访算是向世界提了个醒，拜登正在扮演中共爪牙的角色，如果美国、世界不予以及时阻止，任其发展下去，邪恶将蔓延全球！
+“我们应该把这场运动扩大到包括整个窃取美国知识产权的中国公司—或者甚至从窃取的知识产权中获益。这个信息应该是明确的：从美国人那里偷一次，就会永远回头看你的肩膀。”科顿敦促道。
 
-“如果你对中国历史有任何了解的话，那一直都是——中国在没有统一的时候，饱受战乱的蹂躏。因此，习近平的核心——核心原则是，必须有一个统一的、严密控制的中（共）国。” 这段真是鹦鹉学舌习近平，中共怎样教他，他就怎样说！
+他还呼吁国会和总统扭转比尔-克林顿总统在2000年签署成为法律的中共国永久正常贸易关系地位。在该法律之前，国会和总统每年都会根据中共在人权方面的进步来审查中共国的贸易特权。
 
-“我们将继续重申我们作为联合国和其他人权机构发言人的作用，这些机构对他们的态度有影响。”这句指望联合国人权机构对邪共产生影响，如同指望WHO调查CCP病毒。
+科顿敦促美国加强出口管制，”防止中共国获得具有军事用途的尖端技术”。
 
-由美国川普政府的国务院1月19日定下的“中共对新疆维吾尔族人犯下种族灭绝和反人类罪“，现在上任还未满一个月的拜登就想用泛泛的人权问题为中共罪行开脱，并且以”文化常态“来抹黑中国人，这激起了全世界人的愤怒。
+他还呼吁美国 “切断助长中共国崛起、腐蚀我们精英阶层的资金来源，这些资金建立了一个从纽约和华盛顿延伸到硅谷和好莱坞的中共国游说团，中间触及企业董事会和大学校园。” 美国应该严格审查来自中共国的入境投资，同时防止对中共国的出境投资。这将包括 “防止美国养老基金投资于与共产党或人民解放军关系密切的公司”。
 
-还有一个翻译过程中发现的问题，“独生子女政策”（one child policy）和“一个中国政策”（One China policy），此文中出现了3次”One China”，只有最后一次有前后文，也专门解释了，我们知道拜登指的是中共的独生子女政策，那开头他说自己当副总统的时候从中共国回来就说不出一年，他们将停止的也是“独生子女政策”。但中间说到香港、维吾尔族人和台湾问题时，他再次提到 One China policy时，我理解拜登不是指“独生子女政策”，而是在说“一个中国政策”。
+科顿呼吁美国减少接纳中共国公民工作和学习，在研究生及以上的高级STEM (科学、技术、工程和数学教育)领域，一律不接纳。
 
-众所周知，关于中共的国策既有之前被实行了几十年后来被停止执行的独生子女政策，也有长期宣传实行的“一国两制”、“一中一台”等强调“一个中国”的外交政策。这里显然拜登已经自己把自己弄糊涂了，他一个”One China policy” 将中共的一个内政和一个外交政策放一锅胡乱炖了。
+1. 重建美国
 
-哎，就这样的美国总统和他的白宫对中共能有什么杀伤力吗？
 
-原文链接：
+这些 “脱钩 “政策不仅会伤害中共国。它们还将使美国投资者的选择减少，美国大学的学生减少，美国工业的制成品减少，至少在短期内如此。
 
-【1】https://www.whitehouse.gov/briefing-room/speeches-remarks/2021/02/17/remarks-by-president-biden-in-a-cnn-town-hall-with-anderson-cooper/
+科顿坚持认为，美国必须加紧发展自己的经济，以应对来自中共国的威胁。
 
-附上原文部分（整稿后段）：
+他承认，削减STEM领域的中国学生数量将 “对那些依靠中国公民支付账单和为实验室配备人员的大学和大科技公司来说，是一场痛苦的离婚”。然而，科顿坚持认为，”只要有正确的激励和支持，我们可以用美国学生取代中共国公民—一旦聪明的美国年轻人的供应耗尽，我们可以转向我们的盟友，而不是加深我们头号敌人的人才库。”
 
-THE PRESIDENT:……And it shows up — one of the reasons why we have been able to compete with the rest of the world so well is most of our major competitors are xenophobic. You remember quite — I remember you questioned me when I came back from China. And I said, “I predict, within less than a year, they’re going to end their One China policy.” And I got clobbered by — saying — because they said Biden didn’t talk about the fact that — how immoral it was. And it was when we were running against a Republican ticket, led by Mitt Romney — a fine guy.
+这位参议员坚持认为，美国必须打破 “对中共国的依赖，以获得对生存至关重要的基本商品，如基本药物、医疗用品和稀土元素。美国愚蠢地将这些生产的大部分送到海外，认为它们’价值低’。现在我们必须把它带回来。一个不能自愈、不能照顾病人、不能让飞机上天的国家是不安全的—也不会长久地保持超级大国的地位。”
 
-MR. COOPER: You just talked to China’s President, I believe.
+科顿认为，美国应该将对尖端技术的出口管制与 “对研发和制造的投资 “搭配起来，这样这些关键技术的未来才是美国制造，而不是亚洲制造—当然也不是中国制造。”
 
-THE PRESIDENT: Yes, for two hours.
+1. 调整联邦政府的结构
 
-MR. COOPER: What about the Uyghurs? What about the human rights abuses in China?
 
-THE PRESIDENT: We must speak up for human rights. It’s who we are. We can’t — my comment to him was — and I know him well, and he knows me well. We’re — a two-hour conversation.
+科顿指出，联邦政府已经30年没有面临 “大国竞争”，”所以脱钩必须伴随着政府的重组”。
 
-MR. COOPER: You talked about this to him?
+他认为，像工业和安全局这样的出口管制部门应该从商务部转移到像国务院这样的国家安全部门。他呼吁财政部的外国资产控制办公室扩大规模，成立一个 “单独的专案组，专门负责制裁中共国的知识产权盗窃、军事公司和国有傀儡”。最后，他呼吁国防部长在美国外国投资委员会中发挥更突出的作用，”以确保在有关中共国对美国投资的决策中，国家安全观点优先。”
 
-THE PRESIDENT: I talked about this, too. And that’s not so much refugee, but I talked about — I said — look, you know, Chinese leaders — if you know anything about Chinese history, it has always been — the time when China has been victimized by the outer world is when they haven’t been unified at home. So the central — to vastly overstate it — the central principle of Xi Jinping is that there must be a united, tightly controlled China. And he uses his rationale for the things he does based on that.
+科顿承认，他的战略 “只是一个草图”，但他认为，美国必须重新定位，避开中共的利用，重建自己，”为一场决定世界命运的旷日持久的黄昏斗争做准备”。
 
-I point out to him: No American President can be sustained as a President if he doesn’t reflect the values of the United States. And so the idea I’m not going to speak out against what he’s doing in Hong Kong, what he’s doing with the Uyghurs in western mountains of China and Taiwan, trying to end the One China policy by making it forceful — I said — and by the — he said he — he gets it. Culturally, there are different norms that each country and they — their leaders — are expected to follow.
+可悲的是，拜登还没有表现出打击像中共这样强大和有影响力的敌人的坚定决心。虽然他承诺要追究中共对维吾尔族可怕的侵犯人权行为的责任，但他承认在中国 “文化上有不同的规范”。拜登尚未解释亨特-拜登在中国的大量商业交易—其中许多交易可以说是以美国为代价增强了中共的能力—也没有明确回应托尼-波布林斯基的说法，他声称乔-拜登本人亲自参与了其中一些交易。
 
-But my point was that when I came back from meeting with him and traveling 17,000 miles with him when I was vice president and he was the vice president — that’s how I got to know him so well, at the request of President Hu — not a joke — his predecessor, President Hu — and President Obama wanted us to get to know one another because he was going to be the president.
+相反，拜登签署了一项范围广泛的气候变化行政命令，将从根本上重组联邦政府以对抗所谓的 “危机”，实际上使美国更容易受到中共国的影响。
 
-And I came back and said they’re going to end their One China — their one child policy, because they’re so xenophobic, they won’t let anybody else in, and more people are retired than working. How can they sustain economic growth when more people are retired?
+虽然科顿为对抗中共国而重组联邦政府的计划可能会让一些保守派感到担忧，但与拜登试图将气候预警主义塞进华盛顿特区的每一个犄角旮旯相比，这只是一个微小的洗牌行为—中共对美国构成了真正的威胁，而气候预警主义者几十年来一直在错误地预测末日。
 
-MR. COOPER: When you talk to him, though, about human rights abuses, is that just — is that as far as it goes in terms of the U.S.? Or is there any actual repercussions for China?
+**新闻来源：[pjmedia](https://pjmedia.com/news-and-politics/tyler-o-neil/2021/02/18/tom-cotton-lays-out-a-strategy-to-fight-the-new-cold-war-against-china-n1426674)**
 
-THE PRESIDENT: Well, there will be repercussions for China, and he knows that. What I’m doing is making clear that we, in fact, are going to continue to reassert our role as spokespersons for human rights at the U.N. and other — other agencies that have an impact on their attitude.
-
-China is trying very hard to become the world leader and to get that moniker. And to be able to do that, they have to gain the confidence of other countries. And as long as they’re engaged in activity that is contrary to basic human rights, it’s going to be hard for them to do that.
-
-But it’s much more complicated than that. I’m — I shouldn’t have tried to talk China policy in 10 minutes on television here.
-
-MR. COOPER: Well, let me — let me bring it back to the United States……
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/21140607/002233.jpeg)
 
 0
