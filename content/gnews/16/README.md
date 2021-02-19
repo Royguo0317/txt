@@ -1,24 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共名企贵州茅台股价暴跌原因何在
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/917223/)
+## 中共偷盗澳洲的国防机密和普通民众的个人信息
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/917320/)
 
-撰稿人：冰沙奶茶
-![]()![](https://gnews.org/wp-content/uploads/2021/02/屏幕截图-2021-02-19-140931-3.png)财经网微博截图
-2月18日，牛年第一个交易日，中共名企贵州茅台（600519.SH）股价下跌。截至收盘，该股报2471.00元，跌幅5.00%，成交额167.04亿元，总市值31040.65亿元，换手率0.52%。当日，贵州茅台市值蒸发1633.06亿元。
+撰稿：Shirley
+![]()![](https://gnews.org/wp-content/uploads/2021/02/屏幕截图-2021-02-19-145503-2.png)图片来自网络截图
+过去十年来，数据存储公司Global Switch一直负责在悉尼内城Ultimo的设施中存储澳大利亚的国家军事机密，但当2016年总部位于伦敦的母公司奥尔德斯盖特（Aldersgate Investments）将49%的股份出售给一家中国数据技术财团雅居乐（Elegant Jubilee）时，情况发生了改变，此举当时引起了英国议会的关注。
 
-最近贵州茅台新闻不少，据墙内媒体报道，记者春节期间走访发现，以1499元/瓶的价格购买53度500毫升飞天茅台仍是一件几乎不可能完成的事情，而“新炒货”应运而生：一个茅台酒纸箱炒到500元，同规格普通纸箱每个售价不过3元。
+时任财长、现任总理莫里森（Scott Morrison）2016年曾下令，在2020年底前将所有敏感数据从Ultimo仓库设施中转移出来。
 
-业内人士透露，目前市场售价是茅台原箱酒（每箱6瓶）3300元/瓶、散瓶酒2700元/瓶，500元一个的纸箱起到重要作用。“买整箱茅台的人并不是自己饮用，不然不会在乎纸箱。就因为有纸箱，单瓶茅台身价才能再涨600元。”
+澳大利亚国防部与Global Switch的合同本应在2020年10月到期，但在周二向联邦议会招标的一份新合同中显示，合同反而延长至2025年9月。新合同的价格是5350万美元，比原来的报价高出约25万美元。
 
-此外，据中共国证券报称茅台全身是“宝”。除了箱子外，飘带、酒杯、绷带、提袋、验酒器等都可以流通：飘带一根2元，原装酒杯一套30元，绷带一条15元，手提袋一个100元。
+《澳大利亚人报》的外事编辑谢里丹（Greg Sheridan）说，“我认为莫里森政府在国家安全方面总体上是一个非常好的政府，但为什么要让一家中资公司控制机密的国防信息？”
 
-针对这次股价暴跌有网友嘲讽道，茅台总工程师都入选中科院院士候选名单了 ，标志着茅台正式跻身科技股，而A股科技股最近跌的妈都不认识了，茅台怎么能例外呢？也有网友说：肯定不是因为成为科技股而跌，祖国的未来不是天天让人喝完酒，吹出来的。茅台代表不了先进生产力，也代表不了先进技术，更代表不了先进人才。它只是中共权贵搜刮民脂民膏的工具之一，这才是股价暴跌的潜在原因。
+国防部发言人证实，国防部将保留其在Ultimo数据中心内的数据大厅的全部运营控制权，直到2025年数据全部迁移完毕。将国防部的文件从Global Switch设施中移出，估计需要花费约2亿美元。
 
-不管怎么说，一瓶白酒的诞生，经过选料、制曲、发酵、蒸馏、陈酿、勾兑、灌装这几个步骤，酿酒的原理无非就是利用微生物发酵生产含一定浓度酒精饮料的过程，茅台跟普通白酒也差不了多少。差的只是茅台与“红色特权”千丝万缕的关系，已成为名副其实的“腐败酒”，也是这一层关系让人有无限的想象与炒作空间，这些乱象的根源就是中共的腐败体制。
+昆士兰州议员卡特（Bob Katter）和前陆军军官、独立的联邦议员威尔基（Andrew Wilkie）向议会提交了一份动议通知，呼吁政府立即终止所有与外资实体持有的数据存储合同，特别是中国拥有的设施Global Switch。
 
-（本文纯属个人观点）
+据了解，国防部并不是唯一一个将其敏感文件和在线网关访问文件存储在Global Switch的机构，澳大利亚税务局和澳大利亚证券和投资委员会也将其文件存放在那里，不过这两个机构都正在将文件转移出去。
+
+Global Switch此前曾表示，其文件和客户都处于最高的安全级别，股东不得实际进入其中心。
+
+相信澳大利亚并不是唯一一个被中共窃取国防机密的国家。中共国苦心孤诣经营多年，欲窃取西方民主国家的国防安全信息，以便在需要时彻底摧毁西方各国的国防系统。
+
+除了国防机密，中共也不放过普通民众的个人收入信息搜集，真可谓是无孔不入。在郭先生引领的爆料革命的影响下，西方的民意已经开始觉醒，中共的灭白人进而统治全球的计划注定要失败的。
+
+（本文仅代表个人观点）
 
 初审：永遠の小学生(文筝)
 
@@ -28,6 +36,10 @@
 
 参考来源：
 
-[http://finance.eastmoney.com/a/202102181812518951.html](http://finance.eastmoney.com/a/202102181812518951.html)
+1. [https://www.dailymail.co.uk/news/article-9265893/Australias-defence-force-signs-storage-military-secrets-Chinese-owned-company.html](https://www.dailymail.co.uk/news/article-9265893/Australias-defence-force-signs-storage-military-secrets-Chinese-owned-company.html)
+2. [https://www.skynews.com.au/details/\_6232889533001](https://www.skynews.com.au/details/_6232889533001)
+3. [https://www.abc.net.au/news/2021-02-16/global-switch-deal-defence-data-security-files/13149592](https://www.abc.net.au/news/2021-02-16/global-switch-deal-defence-data-security-files/13149592)
+4. [https://www.news.com.au/world/asia/defence-department-backflip-over-chinese-data-storage-deal-sparks-new-security-concerns/news-story/0fcc99fb1d28863573f3bd01bb7d295d](https://www.news.com.au/world/asia/defence-department-backflip-over-chinese-data-storage-deal-sparks-new-security-concerns/news-story/0fcc99fb1d28863573f3bd01bb7d295d)
+
 ![]()![](https://gnews.org/wp-content/uploads/2021/02/1-澳喜Logo.jpeg)
 0
