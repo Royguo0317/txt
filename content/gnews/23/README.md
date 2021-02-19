@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本确认另一种变种中共病毒，多家公司的疫苗有效性或降低
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/917016/)
+## 日美印澳四国集团呼吁缅甸尽快恢复民主
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/917008/)
 
-**【日本大阪方舟农场】**作者：小李在大阪 校对：miumiu law
+俄罗斯莫斯科喀秋莎农场    银河
 
-2月18日据日本NHK报道，日本东京医科大学的研究小组已确认了与在英国、南非及巴西发现的变种不同的另一种变种中共病毒。该变种病毒的感染力并无增强，但可能使抗体的免疫效果下降，从而影响疫苗的有效性。
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-19_05-51-50.jpg)[foreignpolicy.com](https://foreignpolicy.com/2016/09/09/can-aung-san-suu-kyi-bring-an-end-to-civil-war-in-myanmar/)
+路透社2月18日报道，日本、美国、印度和澳大利亚四国集团外交部长强烈反对缅甸军方通过武力破坏国家政权,呼吁缅甸尽快恢复民主。
 
-该研究小组收集来院患者样本并对病毒的遗传信息进行了详细调查。结果从2020年12月下旬至2021年1月中旬期间的3位患者身上检出了另一种变种中共病毒，并确认了该变种病毒发生了“E484K”突变。虽然该变种病毒的感染力并无增强，但却能够避免抗体的攻击，从而影响疫苗的效果。目前已经检出的该变种病毒的感染者包括日本关东地区的91例及机场的2例。
+美国国务院在一份声明中表示，美国国务卿安东尼·布林肯(Antony Blinken)与印度、日本和澳大利亚的外长在拜登政府任期内首次会面中，讨论了缅甸、中共病毒、气候以及印度洋-太平洋领土和航行问题。
 
-2月12日，日本国立传染病研究所在官方网站上就变种中共病毒进行了分析。得出的结论是对发生了“E484K”突变的病毒而言，通过曾经感染而获得的免疫及通过已认可疫苗而获得的免疫的效果均可能下降，因此，多家公司的疫苗的有效性或降低。
+日本外相茂木敏充(Toshimitsu Motegi)对记者表示，”我们一致认为有必要迅速恢复(缅甸)的民主制度，并强烈反对一切用武力改变现状的单边企图。”茂木敏充说，“随着对现有国际秩序的挑战在各个领域继续存在，我们这些拥有基本价值观并致力于巩固基于法治自由和开放的国际秩序的国家，发挥的作用只会越来越大。”
 
-日本全国各地都发现无出国经历者或与出国者无密切接触者感染了变种中共病毒。今后的趋势是变种病毒感染者所占的比例将不断上升。这些变种病毒的感染性及传播性可能增强，在现有的政策下，若出现变种病毒的大蔓延，则患者人数及重症人数的增加将超过以往，医疗及公共卫生体制将面临更严峻的挑战。为了防止变种中共病毒蔓延，需要限制入国人数并进行入国检疫，最大限度避免变异病毒并带入国内。并且，需要早期检出变异中共变种病毒，尤其是要阻止变异病毒的集体感染。
+美国国务院说，布林肯和其他外长讨论了反恐、打击虚假信息、海上安全以及“恢复缅甸民主选举政府的迫切需要”，还谈到了“加强更广泛地区加强恢复民主的优先事项”。
 
-注：本文仅代表作者观点
+四国集团领导人重申承诺，四方将至少每年举行一次部长级会议，并定期举行高层及工作级别会议，“以加强在推进印度洋太平洋地区自由开放方面的合作，包括支持航行自由和领土完整。”
 
 参考链接：
 
-1）[https://www3.nhk.or.jp/news/html/20210218/k10012875341000.html](https://www3.nhk.or.jp/news/html/20210218/k10012875341000.html)
-
-2）[https://www.niid.go.jp/niid/ja/diseases/ka/corona-virus/2019-ncov/10169-covid19-35.html](//www.niid.go.jp/niid/ja/diseases/ka/corona-virus/2019-ncov/10169-covid19-35.html)
+[https://www.reuters.com/article/us-usa-blinken-quad-myanmar/japan-u-s-india-australia-call-for-return-of-democracy-in-myanmar-idUSKBN2AI20K](https://www.reuters.com/article/us-usa-blinken-quad-myanmar/japan-u-s-india-australia-call-for-return-of-democracy-in-myanmar-idUSKBN2AI20K)
 
 0

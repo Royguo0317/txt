@@ -1,25 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国汉堡大学纳米科学家：&#8221;大量旁证表明新冠病毒来源武汉市病毒研究所的实验室！&#8221;
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/916719/)
+## 西班牙疗养院接种中共病毒疫苗后46死 大量感染中共病毒
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/916702/)
 
-![]()![](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e5/Roland_Wiesendanger_NanoLab_II.jpg/800px-Roland_Wiesendanger_NanoLab_II.jpg)图片：wikipedia
-来自德国汉堡大学的著名纳米科学家Roland Wiesendanger教授（他在汉堡大学建立了德国国家纳米技术中心）收集并研究了2019年到2020年的间接证据发现：”关于病毒本身的证据和科学期刊上的大量出版物表明，武汉市病毒学研究所的实验室事故是造成本次疫情的原因！” Wiesendanger教授在论文中表示这项研究是基于跨学科的科学方法，在利用了可能的手段进行广泛研究的基础上进行的。
+加拿大多伦多枫叶农场 文所未闻
 
-在论文中，Wiesendanger教授称自然杂志和柳叶刀杂志之前的某些观点不严谨和缺乏事实依据并叙述了一些重要观点和文献依据，例如： 
-1. 人畜共患理论作为对这次大流行的可能解释，没有充分的科学依据。与以往与冠状病毒有关的疫情，如SARS和MERS相比，到目前为止，即在本次大流行爆发后一年多的时间里，还没有确定中间宿主动物。于此同时科学文献出版物可以证明武汉病毒所有世界上最多的蝙蝠病原体，其中一个研究小组多年来一直在对冠状病毒进行基因操作，目的是使冠状病毒对人类的传染性、危险性和致命性更强。这些病原体来源于距离武汉2000多公里以外的南方省份的远古洞穴，极不可能自然来自武汉。并且早在冠状病毒大流行爆发前，武汉市病毒所就存在重大的安全隐患，这些隐患已经被记录在案。
+据自由人类网站（Humans are Free）2月18日报道，西班牙玫瑰圣母疗养院因接种辉瑞mRNA中共病毒疫苗后，出现大量死亡而陷入困境。该疗养院的所有入住者和工作人员在1月初接种了第一剂辉瑞mRNA疫苗。注射后，多数疗养院入住者立即得了重病。滑稽的是，即使注射了所谓中共病毒疫苗，很多人还是染上了中共病毒。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/unnamed-1-8.jpg)*图片来源：oom2.com*
+安达卢西亚卫生局报告说，自1月以来，玫瑰圣母疗养院至少有46名入住者死亡，而玫瑰圣母疗养院的最大容量为145名。由于高死亡率，当地政府在2月初介入，由于死亡人数持续攀升，目前由西班牙卫生部接管处理。西班牙卫生部发表声明说：“由于目前的消毒和阳性患者的隔离措施无法得到保证，对公众健康，特别是该中心的入住者和工作人员构成了迫在眉睫的风险”。
 
-2. SARS-CoV-2病毒非常善于与人体细胞受体结合，并能穿透人体细胞。这是由特殊的细胞受体结合域与冠状病毒之字形蛋白的特殊裂解位点结合而成的。这两个特性一起在冠状病毒中是以前未知的，表明SARS-CoV-2病原体的非自然来源。
+上周有28名入住者和12名工作人员测试显阳性，事情仍然严峻，因此卫生官员叫停了所有下一步的mRNA注射。同时公共服务工会批评玫瑰圣母疗养院没有早点采取行动。该工会说，在1月18日之前有8人死亡后，疗养院反应不够充分。截止1月28日，死者增加到了30人。
 
-3. 诸多迹象表明，早在2019年10月，SARS-CoV-2病原体就从病毒学研究所扩散到武汉市及其他地区。另外还有很多直接的迹象表明，SARS-CoV-2病原体的实验室来源，例如，武汉市病毒学研究所的一位年轻女科学家被认为是第一个被感染的人，她在研究所网站上的相关信息被删除。
+卫生部长萨尔瓦多·伊利亚（Salvador Illa）在12月表示，该部有所有拒绝注射mRNA疫苗的公民的数据库，这些名单将与所有欧盟成员国共享。西班牙有关mRNA疫苗注射方面的丑闻不断曝出。西班牙的一位医护人员最近也报告说，已经有几位mRNA注射者因脑炎，在穆尔西亚地区的医院入院。
 
-这份报告于2021年1月完成，并初步在科学界分发和讨论。现在旨在激发广泛的讨论，特别是关于所谓的 “**功能增益** “研究的伦理问题，这种研究使病原体对人类更具传染性、危险性和致命性。
+评：
+放眼全球，当今病毒肆虐，各国封国封城，经济下行，怨声载道。在这种形势下，很多政府寄希望于疫苗，一方面希望疫苗可以解决CCP病毒问题，另一方面，通过疫苗经济来得益。但正如闫博士指出的那样，由于CCP病毒不是自然界病毒，而是超限生物武器，传统的疫苗不但无法解决病毒，而且其后果堪忧。西班牙玫瑰圣母疗养院爆出的高比例疫苗致死，就用事实再次验证闫博士的观点是科学的、有理有据的。
+一方面CCP病毒肆虐，人们几近崩溃；一方面疫苗死亡事件频发，人们对疫苗并不放心；如果政府继续强制注射CCP病毒疫苗，势必更加激化民众反抗，引起社会动乱。笔者相信，CCP病毒旷日持久，事态越来越严重，疫苗不灵，会有越来越多的科学家、政府和民众逐渐意识到这不是来自于自然，要求真相的呼声会越来越高，对疫苗的抵制只会越来越强。转折点即将到来–随着更多和更清晰的真相浮出水面，全世界都会明白，除了找CCP问责、拿数据、找解药，没有任何其他方法可以真正和彻底地解决这个可能毁国、毁人类的病毒问题，而且，刻不容缓！
 
-可以看到目前已经有越来越多有良知的科学家站出来向世界揭示新冠病毒的真相，希望那些声称病毒来自自然的科学家停止代表“世界的科学家们”，能够像闫丽梦博士号召的那样，站出来在公开的场合开展辩论，让世界上所有的科学家和人民了解病毒更多的真相，让世界各国无辜的人民不再继续受到病毒的攻击并向始作俑者中共追究责任。
+[原文链接](https://humansarefree.com/2021/02/spain-pfizer-shots-halted-after-46-nursing-home-residents-died.html)
 
-参考链接： 
-汉堡大学网站 [https://www.uni-hamburg.de/newsroom/presse/2021/pm8.html](https://www.uni-hamburg.de/newsroom/presse/2021/pm8.html) 德国媒体报道： [https://www.bild.de/bild-plus/ratgeber/gesundheit/gesundheit/professor-sicher-corona-kam-doch-aus-einem-labor-in-wuhan-75430738.bild.html](https://www.bild.de/bild-plus/ratgeber/gesundheit/gesundheit/professor-sicher-corona-kam-doch-aus-einem-labor-in-wuhan-75430738.bild.html) [https://www.ndr.de/nachrichten/hamburg/Hamburger-Forscher-Coronavirus-stammt-wohl-aus-Labor,corona6764.html](https://www.ndr.de/nachrichten/hamburg/Hamburger-Forscher-Coronavirus-stammt-wohl-aus-Labor,corona6764.html) [https://www.focus.de/gesundheit/coronavirus/kommt-aus-labor-in-wuhan-hamburger-uni-professor-veroeffentlicht-studie-zu-corona-ursprung-und-erntet-boese-kritik\_id\_12998230.html](https://www.focus.de/gesundheit/coronavirus/kommt-aus-labor-in-wuhan-hamburger-uni-professor-veroeffentlicht-studie-zu-corona-ursprung-und-erntet-boese-kritik_id_12998230.html) [https://www.merkur.de/politik/coronavirus-ursprung-laborunfall-uni-hamburg-studie-wiesendanger-professor-china-wuhan-verschwoerungstheorie-who-zr-90209794.html](https://www.merkur.de/politik/coronavirus-ursprung-laborunfall-uni-hamburg-studie-wiesendanger-professor-china-wuhan-verschwoerungstheorie-who-zr-90209794.html) [https://www.ln-online.de/Nachrichten/Norddeutschland/Universitaet-Hamburg-Corona-war-wohl-ein-Laborunfall-in-Wuhan](https://www.ln-online.de/Nachrichten/Norddeutschland/Universitaet-Hamburg-Corona-war-wohl-ein-Laborunfall-in-Wuhan) 
-论文原文： [http://doi.org/10.13140/RG.2.2.31754.80323](https://doi.org/10.13140/RG.2.2.31754.80323)
+* * *
 
-+1
+校对 文锦
+发稿 云起时
+
+0
