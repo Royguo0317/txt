@@ -1,31 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《纽约邮报》揭露中共是最可怕的刽子手
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/917253/)
+## 中共偷盗澳洲的国防机密和普通民众的个人信息
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/917320/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+撰稿：Shirley
+![]()![](https://gnews.org/wp-content/uploads/2021/02/屏幕截图-2021-02-19-145503-2.png)图片来自网络截图
+过去十年来，数据存储公司Global Switch一直负责在悉尼内城Ultimo的设施中存储澳大利亚的国家军事机密，但当2016年总部位于伦敦的母公司奥尔德斯盖特（Aldersgate Investments）将49%的股份出售给一家中国数据技术财团雅居乐（Elegant Jubilee）时，情况发生了改变，此举当时引起了英国议会的关注。
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-19_07-23-50.jpg)[rfa.org](https://www.rfa.org/english/news/china/death-04102013171051.html)
-2月18日，《纽约邮报》发布了一篇揭露中共死刑制度的文章，指控中共是世界上最可怕的刽子手，中共国每年因枪毙、注射死刑和死刑车杀死数千人。
+时任财长、现任总理莫里森（Scott Morrison）2016年曾下令，在2020年底前将所有敏感数据从Ultimo仓库设施中转移出来。
 
-人权组织认为被中共杀害的真实人数高得惊人，但中共为了维系政权严密隐瞒数据真相。自中共富豪赖小民1月份被执行死刑后，中共死刑制度再次成为公众关注的焦点。尽管其他国家有死刑总数，但中共不透明的死刑体系让人权组织只能给出“数千人”的粗略估计。
+澳大利亚国防部与Global Switch的合同本应在2020年10月到期，但在周二向联邦议会招标的一份新合同中显示，合同反而延长至2025年9月。新合同的价格是5350万美元，比原来的报价高出约25万美元。
 
-中共国刑法自1979年颁布后包含了68项死刑罪名，经过几次修改，现今保留死刑罪名46项，依然是全球保留死刑罪名最多的国家。中共将所有有关死刑适用的数据依法归类为国家秘密，蓄意系统性地隐瞒死刑的人数，因此中共每年实际上判处的死刑人数缺少透明的数据。
+《澳大利亚人报》的外事编辑谢里丹（Greg Sheridan）说，“我认为莫里森政府在国家安全方面总体上是一个非常好的政府，但为什么要让一家中资公司控制机密的国防信息？”
 
-枪毙和注射死刑是中共最喜欢使用的两种处决方式。在上世纪90年代，注射死刑被当局合法化，中共发明了死刑执行车这一“流动刑场”，这让注射死刑的成本更低，而且更隐秘。虽然中共声称死刑车已经停止使用，但仍有许多例子表明这种做法仍在继续。死刑车允许在不将囚犯送往监狱的情况下处决囚犯，由于中共的死刑车是保密的，受害者的名字通常不会被提及，因为他们被审判和处决的速度非常快且信息不透明。
+国防部发言人证实，国防部将保留其在Ultimo数据中心内的数据大厅的全部运营控制权，直到2025年数据全部迁移完毕。将国防部的文件从Global Switch设施中移出，估计需要花费约2亿美元。
 
-还有一种说法指控中共在没有得到任何许可的情况下，从死刑犯身上摘取器官用于医学和科学实验。
+昆士兰州议员卡特（Bob Katter）和前陆军军官、独立的联邦议员威尔基（Andrew Wilkie）向议会提交了一份动议通知，呼吁政府立即终止所有与外资实体持有的数据存储合同，特别是中国拥有的设施Global Switch。
 
-国际特赦组织(Amnesty International)将中共列为世界上最糟糕的刽子手，认为中共国因刑死亡人数超过了世界其他国家的总和，并指出中共政府仍然将死刑视为对犯罪的有效威慑。 国际特赦组织强调，“无条件地反对在任何情况下判处或执行死刑，无论犯罪性质或情形为何，个人是否有罪、清白或其具备何种特质，抑或是政府运用何种方式执行死刑，均无例外。我们一贯主张，死刑违反《世界人权宣言》所承认之生命权，是极端残忍、不人道并有辱人格的处罚方式”。
+据了解，国防部并不是唯一一个将其敏感文件和在线网关访问文件存储在Global Switch的机构，澳大利亚税务局和澳大利亚证券和投资委员会也将其文件存放在那里，不过这两个机构都正在将文件转移出去。
 
-遗憾的是由于中共洗脑式教育，及中国5000年封建制度的余毒，让民众漠视人权，对死刑缺乏抗议意识。《大赦国际死刑报告》的作者威廉·沙巴斯教授说，“公众舆论仍然对死刑持相当积极的态度”，中共国公众对死刑并没有那么在意，甚至还支持它。
+Global Switch此前曾表示，其文件和客户都处于最高的安全级别，股东不得实际进入其中心。
 
-即使消灭了中共政权，让中国人真正走出心霾，改变观念，走向民主法治仍需要一个很长的历程，甚至需要几代人的努力。新中国联邦人任重道远。
+相信澳大利亚并不是唯一一个被中共窃取国防机密的国家。中共国苦心孤诣经营多年，欲窃取西方民主国家的国防安全信息，以便在需要时彻底摧毁西方各国的国防系统。
 
-参考链接：
+除了国防机密，中共也不放过普通民众的个人收入信息搜集，真可谓是无孔不入。在郭先生引领的爆料革命的影响下，西方的民意已经开始觉醒，中共的灭白人进而统治全球的计划注定要失败的。
 
-https://nypost.com/2021/02/18/chinas-authoritarian-execution-
+（本文仅代表个人观点）
 
+初审：永遠の小学生(文筝)
+
+审核：光耀华夏
+
+编辑：MG1
+
+参考来源：
+
+1. [https://www.dailymail.co.uk/news/article-9265893/Australias-defence-force-signs-storage-military-secrets-Chinese-owned-company.html](https://www.dailymail.co.uk/news/article-9265893/Australias-defence-force-signs-storage-military-secrets-Chinese-owned-company.html)
+2. [https://www.skynews.com.au/details/\_6232889533001](https://www.skynews.com.au/details/_6232889533001)
+3. [https://www.abc.net.au/news/2021-02-16/global-switch-deal-defence-data-security-files/13149592](https://www.abc.net.au/news/2021-02-16/global-switch-deal-defence-data-security-files/13149592)
+4. [https://www.news.com.au/world/asia/defence-department-backflip-over-chinese-data-storage-deal-sparks-new-security-concerns/news-story/0fcc99fb1d28863573f3bd01bb7d295d](https://www.news.com.au/world/asia/defence-department-backflip-over-chinese-data-storage-deal-sparks-new-security-concerns/news-story/0fcc99fb1d28863573f3bd01bb7d295d)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-澳喜Logo.jpeg)
 0

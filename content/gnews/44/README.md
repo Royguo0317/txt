@@ -1,38 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共继续在菲律宾专属经济区内的珊瑚礁上违建
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/916674/)
+## 【军事快讯】美安全顾问沙利文和日本安保局长举行电话会谈
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/916826/)
 
-加拿大多伦多枫叶农场 阿黎
-![]()![](https://gnews.org/wp-content/uploads/2021/02/cnnphilippines.com_.jpg)*图片来源：cnnphilippines.com*
-据《询问者报》（Inquirer） 2月17日报道，中共国继续在西菲律宾海上占领的彭加尼班珊瑚礁上进行非法建设。
+作者：纽约香草山写作组 Wilson
 
-美国科技公司Simularity的南海快速预警服务周二(2月16日)发布了彭加尼班（Panganiban)岛礁的图像，显示了自2020年底以来在中共病毒疫情中的新进展。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/globalnation.inquirer.net_.jpg)*图片来源：globalnation.inquirer.net*
-Similarity公司确定了彭加尼班岛礁上七个地点的变化。在拍摄的标记为1号站点的区域图像显示，截至2020年5月7日，该处是裸露的，但在2021年2月4日，图像显示了 “一个直径16米的永久性圆柱形结构的建筑”，该结构于2020年12月初开始，似乎是个天线安装结构。
 
-图像显示，被标记为2号站点的区域，出现了一个新的大型雷达罩和可能的固定雷达结构，而这些在一年前是不存在的。标识为4号和7号站点的区域，一年前曾有矩形结构，截至2021年2月4日，这些区域已被清理。标记为5号和6号场地的区域已确定可能出现新的建筑。
 
-海事专家杰伊-巴东巴卡尔（Jay Batongbacal）博士在Facebook上发文称，新的雷达设施似乎处于完成阶段，施工设备和营房正在四处移动，一些区域可能正在为更新的建筑进行清理。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-彭加尼班礁–国际上称为 “恶作剧礁”–位于菲律宾在南海370公里的专属经济区（EEZ）内，这一水域被当地人称为西菲律宾海。
 
-海牙法院2016年的裁决称，彭加尼班岛礁属于菲律宾。部分裁决称，该岛礁位于巴拉望岛约232公里处，是菲律宾专属经济区和大陆架的一部分，中共国占领并在该岛礁上进行建设，侵犯了菲律宾的主权。
 
-除了彭加尼班岛，中国还将卡吉廷安(烈焰十字)、卡尔德隆(库特隆)、布尔戈斯(加文)、马比尼(约翰逊南)、萨莫拉(苏比)和麦肯南(休斯)等珊瑚礁改造成人工岛。
+[共同社](https://china.kyodonews.net/news/2021/02/f6cd6967a113.html)2月18日报道，日本国家安全保障局长北村滋18日与美国总统国家安全事务助理沙利文举行电话会谈，围绕包括中（共）国多次进入日本领海的尖阁诸岛（钓鱼岛）在内的东亚局势，就日美紧密合作的方针达成了一致。
 
-2020年，从武汉开始的中共病毒疫情，并未阻止中共国在南海的恶行。除了始终如一地部署海岸警卫舰之外，中共国还加大了力度，设立了两个新的行政区，给所有地理特征起了中文名字，以标志其所有权，启动了两个新的研究设施，还有其他一些举动来执行其毫无根据的主张。这些活动引起了菲律宾和越南的抗议。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/121.jpg)图源网络
 
-中共向全世界发动超限生物战，妄图消灭白人、打垮美国甚至全世界的经济，同时肆意在南海的扩张建设，以图控制亚太地区的海上石油和其他货物运输、渔业和可能的资源霸占。
+两人还就不断升温的缅甸局势、朝鲜及新冠疫情的应对交换了意见，还确认与澳大利亚、印度一同推进合作的重要性。这是两人继1月21日以来再次通电话，持续了约45分钟。
 
-世界在觉醒。中共向全世界投毒，杀害逾三百万人，超过亿人感染，世界各国经济面临崩溃，这一切一定会让中共偿还。中共在南海的非法设施只能是枉费力气。
+拜登上台后迅速改变川普的强硬政策，转而对中共绥靖，中共的战狼外交因而重新抬头。中共在西太平洋争议海岛海域、病毒溯源、新疆问题上，都展示了有异于以往的强硬态度，西太平洋由此陷入前所未有的动荡态势。
 
-[原文链接](https://globalnation.inquirer.net/193887/china-construction-continues-on-reef-inside-ph-eez-satellite-images-show)
+另一方面，美日最高层以及军事要员频频公开发声，再三申明《美日安保条约》适用于尖阁诸岛（钓鱼岛）。这是日本作为美国盟友对美国拜登政府缺乏信心的表现。当美国失去应有的地位和份量时，这些盟友在面对咄咄逼人的中共当然心生焦虑，只能以展示日美关系和不间断的公开声明来吓阻中共的进犯。
 
-* * *
+编辑/校对/发稿：Irene木木
 
-校对 文锦
-发稿 云起时
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
 
 0
