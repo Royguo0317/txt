@@ -1,15 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【精华版粤语配音】班农战斗室 720期 中共的目标是2049年取代美国，我们不能再重复历史的错误
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/917394/)
+## 【每日快讯】18/02/2021:习近平的所有行为都是江泽民想干没干成的 我们不承认拜登这个总统
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/917435/)
 
-制作团队：【秘密翻译组】【喜马拉雅-粤语组】coco22、wikimbao、NancyTT
+**制作:Cantonese工作室**
+播报：【安妮】 资料整理：【陆柒陆捌】【Ruby】【安妮】 海报制作：【文绉绉】【小豆芽】【米线 】视频制作：【文德】 上传:【星星】
+摘要:
 
-概要：
-
-中共的目标是在2049年取代美国，这是对我们的一个警告，我们曾经犯过这样的错误，我们曾忽视了希特勒，还曾忽视了斯大林，忽视了本·拉登，我们不能再重复错误，习近平已经说了，他要在20249年之前取代我们成为世界领袖，想想这对世界来说意味着什么?
-
-审核\上传：文粤
-
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-58.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-18.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/3-20.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/4-30.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/5-27.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/6-36.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/0-3.jpg)
 0
