@@ -1,41 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】美安全顾问沙利文和日本安保局长举行电话会谈
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/916826/)
+## 白宫高层致函感谢台湾协助纾解车用晶片荒
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/916946/)
 
-作者：纽约香草山写作组 Wilson
+台湾宝岛农场 一叶一菩提
+![](https://lh4.googleusercontent.com/dK15QG_vFYHYB33oOTX1dnPa_3GGtApgdiqzYKVWvXA-3DMXEWTO4MvqH3l_xCwJH5Q3kaPIQSpiR-lF8tQdjph8LL1mr4zaehv1wdp1S66uvZ92kTEvT78esjMOpIoxrO2i6xvK)
+路透社报导，在一封日期标注为17日的信函里，白宫经济顾问狄斯狄斯（Brian Deese）感谢王美花亲力亲为，协调台湾制造商帮忙解决美国车用晶片短缺问题。
 
+也表示，这是拜登政府就任初期遇到的难关之一。
 
+白宫官员2月17日指出，总统拜登政府已与车商及供应商举行过会议，知道了当前美国汽车业正面临半导体晶片短缺，导致全球各地被迫减产，为度过难关，除了敦促各家公司齐心合作，应付短缺问题，也指示海外大使馆，了解各国政府与有能力生产晶片的外国企业，包括台湾的台积电，期望他们的援助，以协助解决全球车用晶片短缺的问题。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+先前台美双方于2月5日，就进行半导体供应链合作前景会谈，聚焦车用晶片等合作方向与内容。中华民国经济部长王美花也表示，美国产业界建议美国政府回归CPTPP（跨太平洋伙伴关系协定），并邀请台湾、韩国参与，同时，台美应尽快签署FTA（自由贸易协定）；此外，随着科技产品演变，也建请美方推动ITA第三阶段（资讯科技协定（Information Technology Agreement，ITA）是资讯科技产品降税方案，为WTO下的协定。）。
 
+协定的谈判和签署是为了互相开放市场，取消大部分进出口贸易的限制措施，包括关税和其他非关税障碍，互相给予缔约国进入市场的优惠所签署的协定，无论协定的让台湾能走向国际市场，且更具竞争力。
 
+参考资料:[白宫高层致函王美花感谢台助纾解车用晶片荒](https://www.epochtimes.com/gb%20/21/2/18/n12759471.htm)
 
-[共同社](https://china.kyodonews.net/news/2021/02/f6cd6967a113.html)2月18日报道，日本国家安全保障局长北村滋18日与美国总统国家安全事务助理沙利文举行电话会谈，围绕包括中（共）国多次进入日本领海的尖阁诸岛（钓鱼岛）在内的东亚局势，就日美紧密合作的方针达成了一致。
+[更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/121.jpg)图源网络
+[更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-两人还就不断升温的缅甸局势、朝鲜及新冠疫情的应对交换了意见，还确认与澳大利亚、印度一同推进合作的重要性。这是两人继1月21日以来再次通电话，持续了约45分钟。
+文章审核：zhong
 
-拜登上台后迅速改变川普的强硬政策，转而对中共绥靖，中共的战狼外交因而重新抬头。中共在西太平洋争议海岛海域、病毒溯源、新疆问题上，都展示了有异于以往的强硬态度，西太平洋由此陷入前所未有的动荡态势。
-
-另一方面，美日最高层以及军事要员频频公开发声，再三申明《美日安保条约》适用于尖阁诸岛（钓鱼岛）。这是日本作为美国盟友对美国拜登政府缺乏信心的表现。当美国失去应有的地位和份量时，这些盟友在面对咄咄逼人的中共当然心生焦虑，只能以展示日美关系和不间断的公开声明来吓阻中共的进犯。
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
+文章发布：Little Liu
 
 0
