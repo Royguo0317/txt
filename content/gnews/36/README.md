@@ -1,40 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】美安全顾问沙利文和日本安保局长举行电话会谈
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/916826/)
+## 与红魔共舞的伪医学教父福奇
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/916591/)
 
-作者：纽约香草山写作组 Wilson
+作者:滴水穿石
 
+**摘要：***福奇博士控制下的美国国立卫生研究院(NIH)将美国纳税人的钱投入中共国武汉 病毒研究所，帮助中共进行病毒研究与实验；在C C P制造实验室病毒生物武器的过程中，福奇扮演了一个合作者与掩盖真相的帮凶的⻆色。当CCP病毒生物武器 疫情在全球爆发了一年之后，他们”表彰”同流合污者”的伪医学教父福奇，并奖励一百万美元因为他”捍卫科学”和“对强权讲真话”。这些美元沾满了因CCP病毒感染而丧生的全球200多万人（含40多万美国人）的鲜血。这个吸血⻤就是与魔共舞的福奇。*
 
+**BREAKING:** Dr. Anthony Fauci has won the $1 million Dan David prize for “ defending science “ and “ speaking truth to power” – 美国国家公共广播电台：“安东尼.福奇博士因其为“捍卫科学”和“对强权讲真话”而赢得了一 百万美金的丹·戴维奖。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+**【观点】**
 
+**80岁的福奇博士是美国免疫学家，**现任美国NIAID(美国国家过敏和病毒研究所）的所长，NIAID是美国NIH（美国国家卫生院）下辖的27个研究所之一。
 
+在他任职期间，将美国纳税人的钱投入到中共军方武汉实验室病毒研究所，帮助中共进行病毒研究与实验，其中与CCP合作研发多种变异性强的人工合成病毒实验，即使合作者也是帮凶。
 
-[共同社](https://china.kyodonews.net/news/2021/02/f6cd6967a113.html)2月18日报道，日本国家安全保障局长北村滋18日与美国总统国家安全事务助理沙利文举行电话会谈，围绕包括中（共）国多次进入日本领海的尖阁诸岛（钓鱼岛）在内的东亚局势，就日美紧密合作的方针达成了一致。
+**2019年11月，**中国在武汉测试生物武器病毒引发疫情大爆发，从武汉⻜往全球各国，把CCP病毒传播到美国及世界各地而引爆了各国大疫情。福奇加入川普政府的新冠疫情特别工作组，其所工作指导的防控措施以及医学临床治疗都是类同CCP的骗术路子”可控可防”去误导。对真正起到早期预防效果甚好的硫酸羟氯喹进行拦阻与否定。大力推出控制医药市场的利益集团所指定的新药品和疫苗，华尔街控制下的资本市场在其中参与主导控制的药品市场运作。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/121.jpg)图源网络
+**奥巴⻢政府期间**，NIH曾给予中共国武汉病毒研究370万美元的资助。福奇团队与比尔盖茨基金全力支持中共武汉病毒所研究病毒，设想当一些致病的病原体进入人体导致一种或多种疾病爆发的“疫情”，用患者原始病毒研制疫苗，用患者的血清研发出抗体，以检测为由提取每一个人的生物基因。接着疫苗和药品的临床实验都在中国老百姓身上进行试验。随后疫苗与 药品大规模生产，能及进入全球疾控与医疗市场，其利润巨大无限可期！
 
-两人还就不断升温的缅甸局势、朝鲜及新冠疫情的应对交换了意见，还确认与澳大利亚、印度一同推进合作的重要性。这是两人继1月21日以来再次通电话，持续了约45分钟。
+研制的新药来治疗，改变生物基因的药品研发，这是一种资本获利最大最稳定的利益产业链，医药集团的资本大佬通过药品管控权利在全球布局，暗中进行对人类的自由人权进行控制，达到他们对 没有红魔基因，但有坚定信仰的平⺠(尤其是白种人)进行无声息的一代又代的灭绝计划，之后他们这些共产国际邪恶势力达到控制人类世界的恶毒计划。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/02-17-21-Fauci-bubblehead.jpg)新闻来源：FOX6NOW
+**中共国通过资本市场控制美国主流媒体几十 年**，已经站到话语与舆论的至高点上，这些共产联盟的主流媒体⻓期对美国平 ⺠，大学院校，中小学进行假新闻播报与洗脑几十年，尤其是学术各界，已经大获成功，更有权威与成效。当CCP病毒生物武器 疫情在全球爆发了一年之后，他们”表彰”同流合污者”捍卫科学”和“对强权讲真话”，附上一百 万美元，这些美元沾满了因CCP病毒感染而失去生命的40多万美国人的鲜血，这个吸血⻤就是与红魔共舞的伪医学教父福奇。
 
-拜登上台后迅速改变川普的强硬政策，转而对中共绥靖，中共的战狼外交因而重新抬头。中共在西太平洋争议海岛海域、病毒溯源、新疆问题上，都展示了有异于以往的强硬态度，西太平洋由此陷入前所未有的动荡态势。
+虽然现在是黑白颠倒的至暗时刻，但是，对邪恶的审判从不迟到，黎明在眼前，正义必将战胜邪恶。
 
-另一方面，美日最高层以及军事要员频频公开发声，再三申明《美日安保条约》适用于尖阁诸岛（钓鱼岛）。这是日本作为美国盟友对美国拜登政府缺乏信心的表现。当美国失去应有的地位和份量时，这些盟友在面对咄咄逼人的中共当然心生焦虑，只能以展示日美关系和不间断的公开声明来吓阻中共的进犯。
+2021年2月17日于美国
+![]()![](https://gnews.org/wp-content/uploads/2021/02/福奇2-e1613688938464.jpg)
+**【参考来源】**
 
-编辑/校对/发稿：Irene木木
+[https://twitter.com/Breaking911/status/1361391413150298112](https://twitter.com/Breaking911/status/1361391413150298112)
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+[https://nypost.com/2021/02/15/fauci-wins-1-million-award-for-defending-science/](https://nypost.com/2021/02/15/fauci-wins-1-million-award-for-defending-science/)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+[安东尼·弗契 – 维基百科，自由的百科全书 (wikipedia.org)](https://zh.wikipedia.org/wiki/%E5%AE%89%E4%B8%9C%E5%B0%BC%C2%B7%E5%BC%97%E5%A5%91)
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+[奥巴马时期美曾资助武汉病毒实验室 川普：我们会停止资助 – 视频首页 美国中文网视频 (sinovision.net)](https://video.sinovision.net/?id=55573&amp;mobile=yes)
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+**路德社：**
 
+[(45) 路德社LUDE Media – YouTube](https://www.youtube.com/channel/UCm3Ysfy0iXhGbIDTNNwLqbQ/videos)
 
+**【免责声明】**  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+**欢迎战友加入旧金山金喜准农场**
+
+[旧金山金喜准农场 GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+
+[旧金山金喜准农场 Discord](https://discord.gg/QQzQ79grEA)
+
+[旧金山金喜准农场 Twitter](https://twitter.com/sf_himalaya)
+
+【**校对编辑**】：冰糖葫芦喵
 
 
 

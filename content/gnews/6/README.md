@@ -1,45 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共偷盗澳洲的国防机密和普通民众的个人信息
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/917320/)
+## 【热点播报】美国国务卿布林肯告诉欧洲人拜登准备与伊朗谈判
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/917334/)
 
-撰稿：Shirley
-![]()![](https://gnews.org/wp-content/uploads/2021/02/屏幕截图-2021-02-19-145503-2.png)图片来自网络截图
-过去十年来，数据存储公司Global Switch一直负责在悉尼内城Ultimo的设施中存储澳大利亚的国家军事机密，但当2016年总部位于伦敦的母公司奥尔德斯盖特（Aldersgate Investments）将49%的股份出售给一家中国数据技术财团雅居乐（Elegant Jubilee）时，情况发生了改变，此举当时引起了英国议会的关注。
+作者：纽约香草山   Naughty(文行)
 
-时任财长、现任总理莫里森（Scott Morrison）2016年曾下令，在2020年底前将所有敏感数据从Ultimo仓库设施中转移出来。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
-澳大利亚国防部与Global Switch的合同本应在2020年10月到期，但在周二向联邦议会招标的一份新合同中显示，合同反而延长至2025年9月。新合同的价格是5350万美元，比原来的报价高出约25万美元。
 
-《澳大利亚人报》的外事编辑谢里丹（Greg Sheridan）说，“我认为莫里森政府在国家安全方面总体上是一个非常好的政府，但为什么要让一家中资公司控制机密的国防信息？”
 
-国防部发言人证实，国防部将保留其在Ultimo数据中心内的数据大厅的全部运营控制权，直到2025年数据全部迁移完毕。将国防部的文件从Global Switch设施中移出，估计需要花费约2亿美元。
+据Breitbart新闻2月18日报道，美国国务卿布林肯在与法国、德国和英国（E3）的视频电话会议上转达了美国准备开始与伊朗谈判，以重建2015年核协议或类似协议。
 
-昆士兰州议员卡特（Bob Katter）和前陆军军官、独立的联邦议员威尔基（Andrew Wilkie）向议会提交了一份动议通知，呼吁政府立即终止所有与外资实体持有的数据存储合同，特别是中国拥有的设施Global Switch。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/图片1-44.png)
 
-据了解，国防部并不是唯一一个将其敏感文件和在线网关访问文件存储在Global Switch的机构，澳大利亚税务局和澳大利亚证券和投资委员会也将其文件存放在那里，不过这两个机构都正在将文件转移出去。
+根据 Axios 的一份报告，美国和 E3 强调伊朗必须恢复全面遵守核协议下的承诺。布林肯重申，如果伊朗能恢复严格遵守其义务，美国也会这样做，尽管没有具体说明美国承诺的详细内容。
 
-Global Switch此前曾表示，其文件和客户都处于最高的安全级别，股东不得实际进入其中心。
+盟国还要求伊朗从2月23日起停止执行《核不扩散条约》的“附加议定书”，这将减少伊朗与联合国视察员的合作，暂停他们对伊朗核场所进行突击访问的许可。
 
-相信澳大利亚并不是唯一一个被中共窃取国防机密的国家。中共国苦心孤诣经营多年，欲窃取西方民主国家的国防安全信息，以便在需要时彻底摧毁西方各国的国防系统。
+还有人对伊朗增加20%的浓缩铀和金属铀产量表示关切，这两项协议都违反了2015年协议。
 
-除了国防机密，中共也不放过普通民众的个人收入信息搜集，真可谓是无孔不入。在郭先生引领的爆料革命的影响下，西方的民意已经开始觉醒，中共的灭白人进而统治全球的计划注定要失败的。
+针对美国和E3，伊朗外交部长穆罕默德·贾瓦德·扎里夫建议：“他们必须遵守自己的承诺，结束特朗普对伊朗的经济恐怖主义遗留问题，而不是让伊朗承担责任。”
 
-（本文仅代表个人观点）
+这次电话会议内容还披露，拜登政府同意欧洲领导人就伊朗问题与俄罗斯和中共国外交部长进行更多谈判。
 
-初审：永遠の小学生(文筝)
 
-审核：光耀华夏
 
-编辑：MG1
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-参考来源：
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-1. [https://www.dailymail.co.uk/news/article-9265893/Australias-defence-force-signs-storage-military-secrets-Chinese-owned-company.html](https://www.dailymail.co.uk/news/article-9265893/Australias-defence-force-signs-storage-military-secrets-Chinese-owned-company.html)
-2. [https://www.skynews.com.au/details/\_6232889533001](https://www.skynews.com.au/details/_6232889533001)
-3. [https://www.abc.net.au/news/2021-02-16/global-switch-deal-defence-data-security-files/13149592](https://www.abc.net.au/news/2021-02-16/global-switch-deal-defence-data-security-files/13149592)
-4. [https://www.news.com.au/world/asia/defence-department-backflip-over-chinese-data-storage-deal-sparks-new-security-concerns/news-story/0fcc99fb1d28863573f3bd01bb7d295d](https://www.news.com.au/world/asia/defence-department-backflip-over-chinese-data-storage-deal-sparks-new-security-concerns/news-story/0fcc99fb1d28863573f3bd01bb7d295d)
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-澳喜Logo.jpeg)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
 0
