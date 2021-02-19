@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国汉堡大学纳米科学家：&#8221;大量旁证表明新冠病毒来源武汉市病毒研究所的实验室！&#8221;
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/916719/)
+## 郭先生2021年2月17日直播精要文字版
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/916824/)
 
-![]()![](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e5/Roland_Wiesendanger_NanoLab_II.jpg/800px-Roland_Wiesendanger_NanoLab_II.jpg)图片：wikipedia
-来自德国汉堡大学的著名纳米科学家Roland Wiesendanger教授（他在汉堡大学建立了德国国家纳米技术中心）收集并研究了2019年到2020年的间接证据发现：”关于病毒本身的证据和科学期刊上的大量出版物表明，武汉市病毒学研究所的实验室事故是造成本次疫情的原因！” Wiesendanger教授在论文中表示这项研究是基于跨学科的科学方法，在利用了可能的手段进行广泛研究的基础上进行的。
+听写战友：罗马达芬奇农场 旦旦
+康州盘古农场 Karen(海啸)
+罗马达芬奇农场 Shuizhuyu
+纽约香草山农场 369文驹
+纽约香草山农场 Dolores
+校对整合：纽约香草山农场 GForever(文紫)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/0218.jpg)
+1、00:15:30 昨天关于南普陀计划的直播，在国内引起了很大的反响。有一位国内的战友被所在单位的纪委书记三次约谈话并导致她损失了过年的高福利。她说“我和江、朱、江绵恒、江绵康、江志成、马云等多次接触，曾经以为共产党会成为文明、法治、爱护人民的国家，但是我亲身验证几十年，它是彻头彻尾的骗子、流氓，完全靠奴役人民，靠商鞅驭民之术来统治中国。她知道南普陀的存在，在这些人眼里习就是个二货，习搞的以毒灭白计划、潘多拉计划、双龙计划，国内企业迅速国有化，在世界上加入沼泽地统治全世界，把国际共产主义做强做大，很多人都不愿意去看。
 
-在论文中，Wiesendanger教授称自然杂志和柳叶刀杂志之前的某些观点不严谨和缺乏事实依据并叙述了一些重要观点和文献依据，例如： 
-1. 人畜共患理论作为对这次大流行的可能解释，没有充分的科学依据。与以往与冠状病毒有关的疫情，如SARS和MERS相比，到目前为止，即在本次大流行爆发后一年多的时间里，还没有确定中间宿主动物。于此同时科学文献出版物可以证明武汉病毒所有世界上最多的蝙蝠病原体，其中一个研究小组多年来一直在对冠状病毒进行基因操作，目的是使冠状病毒对人类的传染性、危险性和致命性更强。这些病原体来源于距离武汉2000多公里以外的南方省份的远古洞穴，极不可能自然来自武汉。并且早在冠状病毒大流行爆发前，武汉市病毒所就存在重大的安全隐患，这些隐患已经被记录在案。
+2、00:19:20邓小平为什么南下？因为江泽民上来后不想开放市场，不想搞政治和经济改革。他最要做的事情是中国取消私人企业，以国有企业为主，就是现在习搞的这一套，都是当年江要搞的，包括修宪。邓小平一怒之下到了南方，说谁不搞改革就要下台，然后江才开始搞改革。江上台后的权力核心就是拿下军队，王岐山干掉了还代表着邓家势力的王瑞林，就是江家没干的事王岐山帮他干，当年江想干没干成的事让习帮他干。中国企业国有化，一带一路，团结亚非拉中东，联合极端穆斯林和共产党连在一起，这都是江要干的事情。唯一习、江想法不同的是，江对香港、台湾希望软统一，而习要硬统一。这些事情干完，就要对不太听话的习卸磨杀驴了，总之上海派和习派最终要倒下一个。
 
-2. SARS-CoV-2病毒非常善于与人体细胞受体结合，并能穿透人体细胞。这是由特殊的细胞受体结合域与冠状病毒之字形蛋白的特殊裂解位点结合而成的。这两个特性一起在冠状病毒中是以前未知的，表明SARS-CoV-2病原体的非自然来源。
+3、00:24:30 上海的精英就是中国的沼泽地，上海人比较务实、国际化，每年中国留学英美70%来自上海，上海人管中国是有道理的。上海帮是看不起王岐山和习近平的，江、曾、孟、孙、韩、汪是骨子里有傲气的，根本不可能等他们修完宪法干一辈子。
+现在我们最好的武器就是以毒灭共，闫博士是我们的天使，无论共产党在世界如何折腾，它放出超限战生物武器都是跑不了的。另一个武器就是以钱灭共，企业国有化就是权贵化，权贵化就是财富集中化，财富集中化就是巨大的腐败和独裁，就是掠夺，这必然导致经济的崩塌。共产党目前到世界上到处大撒币，当它没有撒币的能力的时候它必然被背叛、消灭！
 
-3. 诸多迹象表明，早在2019年10月，SARS-CoV-2病原体就从病毒学研究所扩散到武汉市及其他地区。另外还有很多直接的迹象表明，SARS-CoV-2病原体的实验室来源，例如，武汉市病毒学研究所的一位年轻女科学家被认为是第一个被感染的人，她在研究所网站上的相关信息被删除。
+4、00:30:40 这两天共产党、九指妖、龟头洋等在油管上、推特上视频造假，都是逆增上缘！侯小宝被挖出来2014年在台湾因诈骗罪被拘捕过，还有手持钢叉的闰土一定会把你移交给美国的FBI。
 
-这份报告于2021年1月完成，并初步在科学界分发和讨论。现在旨在激发广泛的讨论，特别是关于所谓的 “**功能增益** “研究的伦理问题，这种研究使病原体对人类更具传染性、危险性和致命性。
+5、00:37:30 我们有120个战友为了川普总统日以继夜已经工作了半年了，我们2月5日上线的新平台就是为川普总统打造的。我是唯一一个说川普总统绝对是灭共的英雄，是我们永远的朋友，我们永远支持他。拜登在美国法律上是合法总统，但是我们爆料革命和路德访谈是唯一一个不承认他的。任何人都不能因为支持爆料革命了而侮辱我们的战友，包括我。如果你觉得吃亏就不要做，任何人没有权利来指挥我，咱们互相尊重。我从小到大从来不向人低头弯腰，我对战友们跪着都可以，但是你要把战友的事情当成你的本钱，我会一脚把你踢开。再说一遍，就算川普自己反川普, 郭文贵都不会反川普； 谁都可以承认拜登，郭文贵永远不可能跟拜登站在一起。
 
-可以看到目前已经有越来越多有良知的科学家站出来向世界揭示新冠病毒的真相，希望那些声称病毒来自自然的科学家停止代表“世界的科学家们”，能够像闫丽梦博士号召的那样，站出来在公开的场合开展辩论，让世界上所有的科学家和人民了解病毒更多的真相，让世界各国无辜的人民不再继续受到病毒的攻击并向始作俑者中共追究责任。
-
-参考链接： 
-汉堡大学网站 [https://www.uni-hamburg.de/newsroom/presse/2021/pm8.html](https://www.uni-hamburg.de/newsroom/presse/2021/pm8.html) 德国媒体报道： [https://www.bild.de/bild-plus/ratgeber/gesundheit/gesundheit/professor-sicher-corona-kam-doch-aus-einem-labor-in-wuhan-75430738.bild.html](https://www.bild.de/bild-plus/ratgeber/gesundheit/gesundheit/professor-sicher-corona-kam-doch-aus-einem-labor-in-wuhan-75430738.bild.html) [https://www.ndr.de/nachrichten/hamburg/Hamburger-Forscher-Coronavirus-stammt-wohl-aus-Labor,corona6764.html](https://www.ndr.de/nachrichten/hamburg/Hamburger-Forscher-Coronavirus-stammt-wohl-aus-Labor,corona6764.html) [https://www.focus.de/gesundheit/coronavirus/kommt-aus-labor-in-wuhan-hamburger-uni-professor-veroeffentlicht-studie-zu-corona-ursprung-und-erntet-boese-kritik\_id\_12998230.html](https://www.focus.de/gesundheit/coronavirus/kommt-aus-labor-in-wuhan-hamburger-uni-professor-veroeffentlicht-studie-zu-corona-ursprung-und-erntet-boese-kritik_id_12998230.html) [https://www.merkur.de/politik/coronavirus-ursprung-laborunfall-uni-hamburg-studie-wiesendanger-professor-china-wuhan-verschwoerungstheorie-who-zr-90209794.html](https://www.merkur.de/politik/coronavirus-ursprung-laborunfall-uni-hamburg-studie-wiesendanger-professor-china-wuhan-verschwoerungstheorie-who-zr-90209794.html) [https://www.ln-online.de/Nachrichten/Norddeutschland/Universitaet-Hamburg-Corona-war-wohl-ein-Laborunfall-in-Wuhan](https://www.ln-online.de/Nachrichten/Norddeutschland/Universitaet-Hamburg-Corona-war-wohl-ein-Laborunfall-in-Wuhan) 
-论文原文： [http://doi.org/10.13140/RG.2.2.31754.80323](https://doi.org/10.13140/RG.2.2.31754.80323)
-
-+1
+0
