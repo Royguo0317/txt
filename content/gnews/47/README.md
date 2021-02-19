@@ -1,8 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美关切世卫疫源调查吁中国交资料 （玫瑰看新闻二月十五日）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/916164/)
+## 意大利参议院已通过对新政府的信任投票
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/916293/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-56.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-17.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/3-19.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/4-29.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/5-26.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/6-35.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/7-11.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00008-4-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/9-4.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/10-7.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/11-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00012-4-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/14.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/15.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Page_00016-4-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/17-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/18.jpg)
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-18_22-28-32.jpg)[money.cnn.com](https://money.cnn.com/2018/06/14/news/economy/ecb-qe-quantitative-interest/index.html)
+塔斯社（IANS）2月18日在罗马报道，意大利参议院投票赞成欧洲央行前行长马里奥·德拉吉（Mario Draghi）领导的新内阁。议会上院新闻处周四表示，有262人投票支持政府，40人投票反对，两名参议员弃权。
+
+新内阁既包括技术专家，也包括政党代表，其中一些人是从以前的部长会议上转过来的，现在得到了绝大多数人的支持，包括通常互相反对的政党。由朱塞佩·孔戴（Giuseppe Conte）领导的上届政府由于小党“活着的意大利”从执政联盟撤出而在参议院失去绝对多数席位后被迫辞职。
+
+信任投票是内阁最终批准的必经程序，在此之前，德拉吉向参议员们发表了主旨演讲。在政府的优先事项中，他列举了抗击疫情、中共病毒危机后重建经济，包括合理利用欧洲专项基金、投资教育、绿色经济、技术发展和环境改造。德拉吉强调单一欧洲货币的不可侵犯性，对欧洲和跨大西洋联盟的承诺，以及在多边基础上建立贸易关系的必要性。
+
+新的议会多数派由各政党组成，他们自称是彼此的替代者。在这一背景下，已经成立了一个议会间小组，由“五星运动”、“民主党”和小规模的“自由平等党”等派别组成，这些派别构成了前执政联盟的基础。这样做的目的是为了与中右翼的新伙伴“意大利之路”和“西甲党”保持关系，这些党派也曾表示支持德拉吉。后者的联盟盟友“意大利兄弟党”以及小规模的意大利左翼集团仍然是反对派。
+
+周四，下议院将进行信任投票。在此之前，德拉吉将发表讲话并进行辩论。
+
+参考链接：
+
+[https://tass.ru/mezhdunarodnaya-panorama/10727057](https://tass.ru/mezhdunarodnaya-panorama/10727057)
+
 0
