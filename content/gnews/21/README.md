@@ -1,21 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统受访称拜登“在新冠疫苗一事上完全错了”
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/916957/)
+## 日美印澳四国集团呼吁缅甸尽快恢复民主
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/917008/)
 
-翻译：Jony(8 Mile)
-原视频来自Newsmax
-2月17日，川普总统在美国大选结束沉寂了一段时间之后，首次接受Newsmax主持人格雷格·凯利（Greg Kelly）采访时称现任总统拜登在“新冠病毒疫苗一事”上完全错了，指责他“要么是没有说实话，要么是精神失常了”。早在1月20日总统就职典礼日之前拜登就已经注射过疫苗，但却对民众说“我们没有疫苗”，他这句话“犯了众怒”，不得不说，拜登发布了“一个非常愚蠢的声明”。
+俄罗斯莫斯科喀秋莎农场    银河
 
-（视频内容纯属原文翻译，无个人观点添加）
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-19_05-51-50.jpg)[foreignpolicy.com](https://foreignpolicy.com/2016/09/09/can-aung-san-suu-kyi-bring-an-end-to-civil-war-in-myanmar/)
+路透社2月18日报道，日本、美国、印度和澳大利亚四国集团外交部长强烈反对缅甸军方通过武力破坏国家政权,呼吁缅甸尽快恢复民主。
 
-素材：Jenny
+美国国务院在一份声明中表示，美国国务卿安东尼·布林肯(Antony Blinken)与印度、日本和澳大利亚的外长在拜登政府任期内首次会面中，讨论了缅甸、中共病毒、气候以及印度洋-太平洋领土和航行问题。
 
-编辑/视频：光耀华夏
+日本外相茂木敏充(Toshimitsu Motegi)对记者表示，”我们一致认为有必要迅速恢复(缅甸)的民主制度，并强烈反对一切用武力改变现状的单边企图。”茂木敏充说，“随着对现有国际秩序的挑战在各个领域继续存在，我们这些拥有基本价值观并致力于巩固基于法治自由和开放的国际秩序的国家，发挥的作用只会越来越大。”
 
-[澳喜文章](https://gnews.org/zh-hans/author/aujenny/)
+美国国务院说，布林肯和其他外长讨论了反恐、打击虚假信息、海上安全以及“恢复缅甸民主选举政府的迫切需要”，还谈到了“加强更广泛地区加强恢复民主的优先事项”。
 
-[欢迎加入澳喜农场](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-澳喜Logo.jpeg)
+四国集团领导人重申承诺，四方将至少每年举行一次部长级会议，并定期举行高层及工作级别会议，“以加强在推进印度洋太平洋地区自由开放方面的合作，包括支持航行自由和领土完整。”
+
+参考链接：
+
+[https://www.reuters.com/article/us-usa-blinken-quad-myanmar/japan-u-s-india-australia-call-for-return-of-democracy-in-myanmar-idUSKBN2AI20K](https://www.reuters.com/article/us-usa-blinken-quad-myanmar/japan-u-s-india-australia-call-for-return-of-democracy-in-myanmar-idUSKBN2AI20K)
+
 0
