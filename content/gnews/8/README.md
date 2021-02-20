@@ -1,33 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 再现危机？法国卫生部长表示担忧
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/922905/)
+## 北约秘书长：将应对中共威胁纳入北约战略
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/922946/)
 
-```
-记者: Hugues Garnier, 2021.02.20, BFM TV
- 
-翻译整理：旦旦 校对/发稿人: Ting Guo
-```
+俄罗斯莫斯科喀秋莎农场 银河
 
+编辑上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/图片15-3.png)Twitter
+路透社2月19日报道，北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）周五呼吁欧洲、加拿大和美国维护俄罗斯和中共正在挑战的基于规则的国际秩序，并将北京的崛起形容为一个决定性问题。
 
-因为疫情在滨海阿尔卑斯省 (Alpes-Martimes)的迅速扩展，法国卫生部长韦郎 (Olivier Véran) 在该省的省会城市尼斯 (Nice) 发表讲话：“最近三天的趋势不再令人乐观，昨日的数据与上周五相比，增加了3000多例确诊。” 同时他提到，很可能会在尼斯实行局部封城。
+中共日益强大的实力正在重塑这个大西洋联盟的优先事项。该联盟传统上关注来自俄罗斯的威胁，但现在正寻求西方国家共识，将认定北京不再是一个友好的贸易伙伴。
 
-报道中还引用了Covid追踪网 (CovidTracker)于2月19日的数据，显示确诊病例的下降速度正在减缓，从18日的-6%到19日的-5%。
+斯托尔滕贝格在线上慕尼黑安全会议上表示:“中共和俄罗斯正试图改写国际规则，以造福各自的利益。”他指出，“中共的崛起是跨大西洋共同体的一个决定性问题，对我们的安全、我们的繁荣和我们的生活方式有潜在的后果。”
 
+尽管俄罗斯在这十年里仍将是北约的主要对手，但北约正在考虑将中共纳入北约的官方“战略概念”——以应对中共的军事崛起。
 
+斯托尔滕贝格说，这个由30个成员国组成的联盟还可以与澳大利亚和日本等非北约国家建立更紧密的关系。
 
-> La décroissance du nombre de cas continue de décélérer -5% sur une semaine (hier on était à -6%). On détecte 18 245 cas chaque jour. [https://t.co/h81zmT4L1e](https://t.co/h81zmT4L1e) [#ThreadCovid](https://twitter.com/hashtag/ThreadCovid?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1wRwmhjtEy](https://t.co/1wRwmhjtEy)
-> — GRZ – CovidTracker (@GuillaumeRozier) [February 19, 2021](https://twitter.com/GuillaumeRozier/status/1362837197481795590?ref_src=twsrc%5Etfw)
+美国总统拜登周五表示，美国对北约的承诺是“不可动摇的”，并承诺遵守“对一个成员国的攻击就是对所有成员国的攻击”的原则。拜登在线上慕尼黑安全会议上说:“美国完全支持于我们的北约联盟，我欢迎你们不断增加对军事能力的投资，使我们能够共同防御。”
 
+同时，拜登在与七国集团(G7)领导人进行的首次线上会晤中强调“美国回来了” ，
 
+他说:“我知道过去几年我们的关系有些紧张，对我们跨大西洋的关系是一种考验，但是美国决心和欧洲重新接触，和你们协商，以赢回我们可信任的领导地位。”
 
-根据BFM TV的消息，法国总统马克龙 (Emmanuel Macron)决定再等待8至10天来观察并决定下一步公共卫生令。
+北约的表态让我们看到“中共的灭亡”的曙光。近期国际宗教界、学术界都开始重视疫情真相并逐步认可闫丽梦博士“病毒源自实验室的科学报告”。中共病毒是中共制造的生物武器是毋庸置疑的事实。虽然拜登政府透露出“绥靖”意愿，但是在国际内外压力面前，拜登表态遵守北约承诺，“对一个成员国的攻击就是对所有成员国的攻击”。当中共被认定生物武器攻击世界的时刻，中共生物武器触发北约应对最高级攻击的条款，按照军事冲突对等原则，对共联军将不宣而战。美国将会依照承诺，毫无选择的加入伐共战营。
 
-**评论：法国及欧洲各国政府的举措不仅令人失望，更是让人愤怒。他们只做表面功夫，凭借数据来颁布所谓的公共卫生措施，没有人能够提出病毒危机的来源：共产党。如闫博士所说，共产党在这个病毒里埋了很多雷，现在世界各地出现的变种毒株以及高居不下的病例数，足以证明共产党的邪恶。请战友们保护好自己及家人的安全，继续宣传病毒真相！**
+参考链接：
 
-**（免责声明：本文的简评只代表译者观点，跟GNEWS平台无关。）**
+[https://www.reuters.com/article/us-germany-security-nato-idUSKBN2AJ24G](https://www.reuters.com/article/us-germany-security-nato-idUSKBN2AJ24G)
 
-**原文链接：**[COVID-19: Véran déplore que “la tendance sur les trois derniers jours n’est plus bonne” en France](https://www.bfmtv.com/sante/covid-19-veran-deplore-que-la-tendance-sur-les-trois-derniers-jours-n-est-plus-bonne-en-france_AV-202102200159.html)
+[https://www.reuters.com/article/g7-meeting-biden-munich/update-1-biden-says-us-commitment-to-nato-is-unshakeable-idUSL1N2KP1RU](https://www.reuters.com/article/g7-meeting-biden-munich/update-1-biden-says-us-commitment-to-nato-is-unshakeable-idUSL1N2KP1RU)
 
-+1
++2
