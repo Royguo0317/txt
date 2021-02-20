@@ -1,39 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美国参议员汤姆-科顿：中共入侵台湾意味着与美国的战争
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/922878/)
+## 再现危机？法国卫生部长表示担忧
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/922905/)
 
-作者：纽约香草山写作组 四季
+```
+记者: Hugues Garnier, 2021.02.20, BFM TV
+ 
+翻译整理：旦旦 校对/发稿人: Ting Guo
+```
 
 
+因为疫情在滨海阿尔卑斯省 (Alpes-Martimes)的迅速扩展，法国卫生部长韦郎 (Olivier Véran) 在该省的省会城市尼斯 (Nice) 发表讲话：“最近三天的趋势不再令人乐观，昨日的数据与上周五相比，增加了3000多例确诊。” 同时他提到，很可能会在尼斯实行局部封城。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
-
-[Zero Hedge](https://www.zerohedge.com/geopolitical/china-invasion-taiwan-means-war-us-tom-cotton-argues)2月19日报道，参议员汤姆-科顿（Tom Cotton）周四呼吁美国在中共入侵台湾的情况下，应该采取新的政策。目前，美国通过武器销售对台湾进行武装，并维持一项被称为“战略模糊”的政策。这意味着，如果中共采取行动夺取台湾岛，则不能保证美国会实施干预。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/02/126.jpg)图源网络
-
-科顿说，他希望清楚的表明，中共入侵台湾意味着与美国开战。他在里根研究所的一次活动中说：“美国需要明确，我们不会允许中共入侵台湾并征服它。这是肯定的，毫无争议的。”
-
-科顿在他的推特上说，中共一直在撒谎、偷窃、杀人上位。美国需要制定一个计划，打败这个新的邪恶帝国。 他提出了一些建议，包括：美国应该对与中共国的交易实行对外投资审查，美国人不应该资助中共国的科技和军事崛起；应该禁止向中共国的任何人出口美国最敏感的技术，而不仅仅是特定的中共公司；美国必须终止对中共国公民为期10年的多次入境签证计划——该计划允许中共间谍和知识产权窃贼随意进出美国。他说，中共正在使新疆人民遭受我们无法想象的恐怖。中共不是商业伙伴，它是对世界的威胁，我们必须阻止它；美国必须开始对窃取美国知识产权的中共国公司，甚至那些从窃取知识产权中受益的中共公司实行坚决的制裁。
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+报道中还引用了Covid追踪网 (CovidTracker)于2月19日的数据，显示确诊病例的下降速度正在减缓，从18日的-6%到19日的-5%。
 
 
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+> La décroissance du nombre de cas continue de décélérer -5% sur une semaine (hier on était à -6%). On détecte 18 245 cas chaque jour. [https://t.co/h81zmT4L1e](https://t.co/h81zmT4L1e) [#ThreadCovid](https://twitter.com/hashtag/ThreadCovid?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1wRwmhjtEy](https://t.co/1wRwmhjtEy)
+> — GRZ – CovidTracker (@GuillaumeRozier) [February 19, 2021](https://twitter.com/GuillaumeRozier/status/1362837197481795590?ref_src=twsrc%5Etfw)
 
 
+
+根据BFM TV的消息，法国总统马克龙 (Emmanuel Macron)决定再等待8至10天来观察并决定下一步公共卫生令。
+
+**评论：法国及欧洲各国政府的举措不仅令人失望，更是让人愤怒。他们只做表面功夫，凭借数据来颁布所谓的公共卫生措施，没有人能够提出病毒危机的来源：共产党。如闫博士所说，共产党在这个病毒里埋了很多雷，现在世界各地出现的变种毒株以及高居不下的病例数，足以证明共产党的邪恶。请战友们保护好自己及家人的安全，继续宣传病毒真相！**
+
+**（免责声明：本文的简评只代表译者观点，跟GNEWS平台无关。）**
+
+**原文链接：**[COVID-19: Véran déplore que “la tendance sur les trois derniers jours n’est plus bonne” en France](https://www.bfmtv.com/sante/covid-19-veran-deplore-que-la-tendance-sur-les-trois-derniers-jours-n-est-plus-bonne-en-france_AV-202102200159.html)
 
 +1

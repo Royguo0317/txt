@@ -1,33 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 再现危机？法国卫生部长表示担忧
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/922905/)
+## 【点睛要闻】加拿大总理特鲁多这一次真的要向中共跪下吗
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/922967/)
 
-```
-记者: Hugues Garnier, 2021.02.20, BFM TV
- 
-翻译整理：旦旦 校对/发稿人: Ting Guo
-```
+#### 作者：Ermat【㊙️翻Gnews原创组】
+责编：心声
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Picture1-96.jpg)图片来源：sohu.com
+病毒的肆虐让这个冬天显得格外漫长、单调、压抑。然而更让人感到郁闷和荒唐的是政客的丑陋表演。据Gnews近日报道，加拿大总理（Justin Trudeau）特鲁婉言拒绝称中共在新疆对维吾尔族犯下”种族灭绝罪”，而是以要进一步调查进行“推诿”。
+
+这与特鲁多对发生在去年6月5日的一场抗议活动的态度形成鲜明对比。事情的起因是美国警察对黑人暴力执法，总理特鲁多也参与了这场反种族歧视与迫害的抗议活动，并当众单膝下跪长达8分46秒。同样是种族歧视和种族迫害，态度却截然不同。显然前一次是政客的演戏下跪，而这一次虽没下跪但似乎真的跪下了。那是要向谁下跪呢？
+
+近来, 加拿大政府的一系列举措让人感到困惑。不但没有禁止华为，还扩大了与华为的合作关系；签署了谴责任意拘留的宣言，但却没有提到中国；拒绝宣布中共对维吾尔人的行动是“种族灭绝”；拒绝抵制在中共国举办的奥运。
+
+不仅如此，加拿大的政客、金融、媒体似乎在被一只无形的手所牵动。政客本应为选民服务，现在却变成了玩弄选民的戏子。 上帝、民权、自由、法律好似他们嘴里挂着的婴儿吸奶器，时不时的嚼一嚼、吐一吐，证明自己的嘴上功夫还不错。银行本是资金自由流动服务业，现在改行干起了限制自由流动的“钱霸王”，客户资金的流向, 它说了算。媒体本应传播真实的信息资讯，现在却掩盖真相、歪曲事实、误导民众。这就是真实的加拿大。
+
+表面看似平静，实则暗流涌动。在加拿大，一切都在潜移默化中发生了变化，变化的让人难以置信，仿佛又置身于我出生的国家，这不仅让我想起了那句歌词：“解放区的天是明朗的天”。莫非特鲁多这些政治精英心里的加拿大也向往着解放区那明朗的天吗?
+
+**参考链接：**
+
+1. [What Hold Does China Have Over Justin Trudeau?](https://www.nationalcitizens.ca/fernando_china_influence)
+2. [特鲁多拒称中共在新疆犯下”种族灭绝罪”](https://gnews.org/zh-hans/911777/)
 
 
-因为疫情在滨海阿尔卑斯省 (Alpes-Martimes)的迅速扩展，法国卫生部长韦郎 (Olivier Véran) 在该省的省会城市尼斯 (Nice) 发表讲话：“最近三天的趋势不再令人乐观，昨日的数据与上周五相比，增加了3000多例确诊。” 同时他提到，很可能会在尼斯实行局部封城。
+（本文仅代表作者个人观点）
 
-报道中还引用了Covid追踪网 (CovidTracker)于2月19日的数据，显示确诊病例的下降速度正在减缓，从18日的-6%到19日的-5%。
-
-
-
-> La décroissance du nombre de cas continue de décélérer -5% sur une semaine (hier on était à -6%). On détecte 18 245 cas chaque jour. [https://t.co/h81zmT4L1e](https://t.co/h81zmT4L1e) [#ThreadCovid](https://twitter.com/hashtag/ThreadCovid?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1wRwmhjtEy](https://t.co/1wRwmhjtEy)
-> — GRZ – CovidTracker (@GuillaumeRozier) [February 19, 2021](https://twitter.com/GuillaumeRozier/status/1362837197481795590?ref_src=twsrc%5Etfw)
-
-
-
-根据BFM TV的消息，法国总统马克龙 (Emmanuel Macron)决定再等待8至10天来观察并决定下一步公共卫生令。
-
-**评论：法国及欧洲各国政府的举措不仅令人失望，更是让人愤怒。他们只做表面功夫，凭借数据来颁布所谓的公共卫生措施，没有人能够提出病毒危机的来源：共产党。如闫博士所说，共产党在这个病毒里埋了很多雷，现在世界各地出现的变种毒株以及高居不下的病例数，足以证明共产党的邪恶。请战友们保护好自己及家人的安全，继续宣传病毒真相！**
-
-**（免责声明：本文的简评只代表译者观点，跟GNEWS平台无关。）**
-
-**原文链接：**[COVID-19: Véran déplore que “la tendance sur les trois derniers jours n’est plus bonne” en France](https://www.bfmtv.com/sante/covid-19-veran-deplore-que-la-tendance-sur-les-trois-derniers-jours-n-est-plus-bonne-en-france_AV-202102200159.html)
-
-+1
++2
