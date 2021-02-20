@@ -1,41 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】美国增派一艘伯克级驱逐舰前往南海
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/918644/)
+## 肯塔基州又有三郡共和党官员吁麦康奈尔下台
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/922655/)
 
-作者：纽约香草山写作组 Wilson
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-20_20-22-38.jpg)[yahoo.com](https://www.yahoo.com/lifestyle/mitch-mcconnell-takes-another-step-205949335.html)
+《门道专家》2月19日发表文章，题目“‘如果明天我们选他，他将崩塌式落败’——肯塔基州又有3个郡的共和党领导呼吁麦康奈尔下台”，全文如下：
 
+纳尔逊郡共和党官员周二写信给参议员米奇·麦康奈尔，要求他立即辞去共和党在参议院核心小组的领导职务。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+这是发生在上周六麦康奈尔发表评论，以及《华尔街日报》的爆炸性社论之后，他们恶意攻击和抹黑了川普总统。纳尔逊郡主席唐斯拉舍（Don Thrasher）指出，写这封信的理由是，麦康奈尔“完全彻底地鄙弃了你选民的意愿”。
 
+文章附上了信函照片：
 
-
-[国家利益](https://nationalinterest.org/blog/buzz/america-just-sent-another-us-navy-warship-south-china-sea-178395)2月18日报道，隶属美国海军第七舰队的拉塞尔号阿利·伯克级驱逐舰，近日进入中共国声称拥有主权的南沙群岛海域。海军第七舰队表示，拉塞尔号“根据国际法在南沙群岛主张航行权和自由。这次行动通过挑战中共国、越南和台湾对无辜通行船只施加的非法限制，维护了国际法承认的海洋权利的自由和合法使用”。值得注意的是，声明没有将中（共）国列为唯一或主要罪魁祸首。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/02/123-scaled.jpg)图源网络
-
-拉塞尔号配备多种进攻武器，包括战斧巡航导弹、RIM-67地对空导弹和RUM-139 ASROC反潜导弹。近年来，美国驱逐舰在南沙群岛和西沙群岛周围稳定巡航。中共国近几年为南沙群岛的军事化奠定了基础，岛上散布着一系列人造防御工事，包括跑道和其他军事基础设施。
-
-美国防部长奥斯汀在上个月的参议院武装部队委员会听证会上确定，中共国可能是美国最具威胁的长期竞争对手。奥斯汀认为俄罗斯也是一个威胁，但它正在衰落。而中共国可以造成很大破坏，对美国将产生持续性的威胁。
-
-拜登一直坚持认为俄罗斯才是美国最大的威胁，而中共国仅仅是竞争对手。至今，还未见到拜登改变以上观点的迹象。而奥斯汀是拜登上台以来，在该问题上首次提出和拜登不同观点的美国军方人士，而且是在最高权力机关国会听证会上宣称的。那么，拜登的公信力在哪里？
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+- ![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-20_20-13-23.jpg)
 
 
+米奇·麦康奈尔（现在的）的支持率是18%，接近利兹·切尼的水平！他不可能成为参议院多数党领袖！
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+又有几位共和党领导官员与斯拉舍尔主席一道呼吁米奇·麦康奈尔辞去美国参议院共和党领袖的职务，他们是巴特勒郡、哈特郡、辛普森郡。
 
+文中附上了三个郡领导人要求麦康奈尔辞职的信函：
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-20_20-15-19.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-20_20-15-37.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-20_20-15-54.jpg)
+评：中共女婿麦康奈尔在不得已情况下，很不情愿地投了反对弹劾闹剧的一票，这位心怀鬼胎的中共傀儡不甘心眼睁睁地看着川普总统重振共和党，于是对川普总统进行了荒诞、凶狠地攻击和抹黑，这些恶毒的攻击、抹黑言辞足以载入史册。
 
+但是，明智的人心中有数，这帮建制派共和党人，尤其是受惠于邪恶中共的人士，皆为断送美国，葬送文明的帮凶，不能让他们身处高位祸害大众，希望越来越多的美国人清醒地认识到这一点。
+
+原文链接：
+
+[https://www.thegatewaypundit.com/2021/02/election-tomorrow-lose-landslide-3-kentucky-gop-county-leaders-call-mitch-mcconnell-step/](https://www.thegatewaypundit.com/2021/02/election-tomorrow-lose-landslide-3-kentucky-gop-county-leaders-call-mitch-mcconnell-step/)
 
 +2

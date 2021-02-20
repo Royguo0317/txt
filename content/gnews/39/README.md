@@ -1,21 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 何时才能恢复“正常”？瑞士专家指望于2022年夏天
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/918471/)
+## 德国专家称：600条证据证明中共病毒起源于武汉病毒研究所
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/922372/)
 
-```
-克拉丽斯·马丁（Clarisse Martin），2021.02.19-BFM TV
-翻译整理：旦旦 发稿人: Ting Guo
-```
+- 编辑 审核：Victor Torres
+- 作者 翻译：葛大饼
+- 发稿：神奇四侠
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Unknown-3.jpeg)图片来源：[BFMTV | Facebook](https://www.google.se/url?sa=i&amp;url=https%3A%2F%2Fwww.facebook.com%2FBFMTV%2Fapp%2F168188869963563%2F&amp;psig=AOvVaw3fSJfzxBlJ1WysqR5N07Cv&amp;ust=1613849024912000&amp;source=images&amp;cd=vfe&amp;ved=2ahUKEwip9omg1vbuAhUWCHcKHTMKBiMQr4kDegUIARCdAQ)
-本周四，瑞士传染病及流行病学专家 迪迪埃·皮特（Didier Pittet）接受采访，当被问及何时人们的生活才能恢复正常时，他回答道：“首先要知道的问题是，什么是 ‘正常’？如果说是重启一万多人的聚会，或者公众音乐会之类的活动，今年夏天是不可能的。” 他还表示，2022年的夏天可能是一个平稳时期，那时一切将会变得更容易。
 
-与此同时，他预警大众，接下来的几周会非常艰难，所有有关部门必须做好准备。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-评论：我们都知道，中共不灭病毒不息。最近大家都看到了一丝曙光：捷克主教的发声，说出病毒真相的来源。我们要明白，真相的传播与公布，在这场战役中比任何专家的话都解燃眉之急。战友们请继续努力传播真相，只有点燃民意，才有可能除掉中共，真正回到正常生活！
+**西班牙2021年2月20日电/西喜社——**
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/12/09071940/%E4%B8%AD%E5%85%B1%E7%97%85%E6%AF%92%E5%9B%BE%E7%89%8702.jpeg)
+据《国家脉动》2月19日报道，汉堡大学著名物理学家罗兰德·维森丹格（Wiesendanger）的最新研究表明，武汉病毒研究所是中共病毒（COVID-19）起因。
 
-**[\[原文链接\](https://www.bfmtv.com/sante/covid-19-a-quand-un-retour-a-la-normalite-didier-pittet-table-sur-l-ete-2022-pour-un-premier-bilan_AV-202102190215.html) : COVID-19: À QUAND UN RETOUR À LA “NORMALITÉ”? DIDIER PITTET TABLE SUR L’ÉTÉ 2022 POUR UN “PREMIER BILAN”](https://www.bfmtv.com/sante/covid-19-a-quand-un-retour-a-la-normalite-didier-pittet-table-sur-l-ete-2022-pour-un-premier-bilan_AV-202102190215.html)**
+今年2月的这项研究反驳了两种关于中共病毒（COVID-19）流行的理论，即中共病毒（COVID-19）是通过菜市场或实验室事故传播给人类的。
 
-0
+迄今为止，上述两种理论都没有以科学为依据的严格证据，”三次获得著名的欧洲研究理事会(European Research Council)资助的罗兰德·维森丹格（Wiesendanger） 说。
+
+罗兰德·维森丹格（Wiesendanger）的长达105页的报告仍在继续追问:“是否当前全球危机实际上只是一个巧合的自然结果 —一个巧合的变异新冠蝙蝠病毒在一个中间宿主的协助下导致这场全球流行病 — 还是由于科学家们在进行这个高风险项目研究时的粗心大意导致了具有全球大流行?”
+
+为了回答这个问题，罗兰德·维森丹格引用了600个无可争议的事实来验证他的理论:“证据的数量和质量清楚地表明武汉病毒研究所发生了实验室事故。”
+
+该报告的摘要概述支持罗兰德·维森丹格的主要论点，需要强调的是，病毒宿主仍未被确定;这种病毒“与人类细胞受体结合得出奇的完美”;武汉实验室“多年来对冠状病毒进行基因操作，目的是使其更具传染性、危险性和致命性”;该设施存在“重大安全缺陷”:
+
+与SARS和中东呼吸综合征等较早的冠状病毒相关流行病相比，直到今天，也就是在目前中共病毒（COVID-19）大流行爆发一年多之后，还没有发现能够使SARS- cov -2病原体从蝙蝠传播给人类的中间宿主。因此，将人畜共患病理论作为大流行病的解释，没有坚实的科学基础。
+
+SARS-CoV-2病毒可以很好地与人类细胞受体结合，并穿透人类细胞。这是通过连接到冠状病毒刺突蛋白的一个特殊切割位点的特殊细胞受体结合域实现的。这两种特性之前在冠状病毒中是未知的，表明SARS-CoV-2病原体的非自然来源。
+
+武汉病毒研究所的一个研究小组多年来一直在对冠状病毒进行基因操作，目的是使它们对人类更具传染性、更危险、更致命。这已被大量的科学专家文献出版物所证实。
+
+甚至在中共病毒（COVID-19）大流行爆发之前，武汉病毒研究所就存在严重的安全缺陷，这都是有记录可查的。
+
+有许多直接迹象表明SARS-CoV-2病原体来自实验室。据悉，武汉病毒研究所的一名年轻科学家是首先被感染的，因此是中共病毒感染链的零号感染源。该研究所网站上的相关条目已被删除。有大量迹象表明，中共病毒（COVID-19）病原体早在2019年10月就从武汉市的病毒研究所传播开来。还有迹象表明，中共国有关部门于2019年10月上半月对病毒研究所进行了相应调查。
+
+自1986年以来，罗兰德·维森丹格的科研成果已被引用超过3.5万次，他为30多个国家和国际资助机构审查提案，撰写了2本教科书和620种出版物，主持或为130个国际会议提供咨询。他还获得了20多个奖项，包括当选为欧洲科学院院士和汉堡科学院汉堡科学奖。
+
+新闻来源：[国家脉动](https://thenationalpulse.com/news/wuhan-lab-was-covid-cause-says-scientist/)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/WhatsApp-Image-2021-02-20-at-06.24.16.jpeg)
++1
