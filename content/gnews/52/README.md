@@ -1,25 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国汉堡大学纳米科学家：&#8221;大量旁证表明新冠病毒来源武汉市病毒研究所的实验室！&#8221;
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/916719/)
+## 【信仰之声】过年和过逾越节
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/918276/)
 
-![]()![](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e5/Roland_Wiesendanger_NanoLab_II.jpg/800px-Roland_Wiesendanger_NanoLab_II.jpg)图片：wikipedia
-来自德国汉堡大学的著名纳米科学家Roland Wiesendanger教授（他在汉堡大学建立了德国国家纳米技术中心）收集并研究了2019年到2020年的间接证据发现：”关于病毒本身的证据和科学期刊上的大量出版物表明，武汉市病毒学研究所的实验室事故是造成本次疫情的原因！” Wiesendanger教授在论文中表示这项研究是基于跨学科的科学方法，在利用了可能的手段进行广泛研究的基础上进行的。
+作者：所罗门
 
-在论文中，Wiesendanger教授称自然杂志和柳叶刀杂志之前的某些观点不严谨和缺乏事实依据并叙述了一些重要观点和文献依据，例如： 
-1. 人畜共患理论作为对这次大流行的可能解释，没有充分的科学依据。与以往与冠状病毒有关的疫情，如SARS和MERS相比，到目前为止，即在本次大流行爆发后一年多的时间里，还没有确定中间宿主动物。于此同时科学文献出版物可以证明武汉病毒所有世界上最多的蝙蝠病原体，其中一个研究小组多年来一直在对冠状病毒进行基因操作，目的是使冠状病毒对人类的传染性、危险性和致命性更强。这些病原体来源于距离武汉2000多公里以外的南方省份的远古洞穴，极不可能自然来自武汉。并且早在冠状病毒大流行爆发前，武汉市病毒所就存在重大的安全隐患，这些隐患已经被记录在案。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1288-【信仰之声】过年和过逾越节.jpg)
 
-2. SARS-CoV-2病毒非常善于与人体细胞受体结合，并能穿透人体细胞。这是由特殊的细胞受体结合域与冠状病毒之字形蛋白的特殊裂解位点结合而成的。这两个特性一起在冠状病毒中是以前未知的，表明SARS-CoV-2病原体的非自然来源。
+大年初一这天郭先生直播中说到，中国人现在的过年方式不好，就像贪图虚荣、请客送礼、傻吃傻喝，甚至喝出毛病，或是耍酒疯打架等，我们要有更好的过年方式。
 
-3. 诸多迹象表明，早在2019年10月，SARS-CoV-2病原体就从病毒学研究所扩散到武汉市及其他地区。另外还有很多直接的迹象表明，SARS-CoV-2病原体的实验室来源，例如，武汉市病毒学研究所的一位年轻女科学家被认为是第一个被感染的人，她在研究所网站上的相关信息被删除。
+我也很认同，但为什么会有这样的糟粕呢？是基于什么样的文化传统，文化基因？我们要知其然，还要知其所以然。知其所以然，我们的行动就能更符合客观规律，也符合人们的心意，也更有效果。就像《大学》中所说的：事有本末，物有终始，知所先后，则近道矣。
 
-这份报告于2021年1月完成，并初步在科学界分发和讨论。现在旨在激发广泛的讨论，特别是关于所谓的 “**功能增益** “研究的伦理问题，这种研究使病原体对人类更具传染性、危险性和致命性。
+所以接下来，笔者将尝试探索一下春节和逾越节的关系。可能会有战友很惊讶：过年是中国人的习俗，过逾越节是犹太人的习俗，这两者有关系吗？不要急，先给大家简单介绍一下逾越节。
 
-可以看到目前已经有越来越多有良知的科学家站出来向世界揭示新冠病毒的真相，希望那些声称病毒来自自然的科学家停止代表“世界的科学家们”，能够像闫丽梦博士号召的那样，站出来在公开的场合开展辩论，让世界上所有的科学家和人民了解病毒更多的真相，让世界各国无辜的人民不再继续受到病毒的攻击并向始作俑者中共追究责任。
+约公元前15世纪，以色列人寄居在埃及，并受欺压奴役。神差摩西去向法老要求带以色列人出来的时候，法老不同意，于是神就给埃及降灾，直到降了第十灾，一夜之间，神杀了所有埃及人的长子，连牲畜的长子都杀了，法老和埃及人才允许他们离开。
 
-参考链接： 
-汉堡大学网站 [https://www.uni-hamburg.de/newsroom/presse/2021/pm8.html](https://www.uni-hamburg.de/newsroom/presse/2021/pm8.html) 德国媒体报道： [https://www.bild.de/bild-plus/ratgeber/gesundheit/gesundheit/professor-sicher-corona-kam-doch-aus-einem-labor-in-wuhan-75430738.bild.html](https://www.bild.de/bild-plus/ratgeber/gesundheit/gesundheit/professor-sicher-corona-kam-doch-aus-einem-labor-in-wuhan-75430738.bild.html) [https://www.ndr.de/nachrichten/hamburg/Hamburger-Forscher-Coronavirus-stammt-wohl-aus-Labor,corona6764.html](https://www.ndr.de/nachrichten/hamburg/Hamburger-Forscher-Coronavirus-stammt-wohl-aus-Labor,corona6764.html) [https://www.focus.de/gesundheit/coronavirus/kommt-aus-labor-in-wuhan-hamburger-uni-professor-veroeffentlicht-studie-zu-corona-ursprung-und-erntet-boese-kritik\_id\_12998230.html](https://www.focus.de/gesundheit/coronavirus/kommt-aus-labor-in-wuhan-hamburger-uni-professor-veroeffentlicht-studie-zu-corona-ursprung-und-erntet-boese-kritik_id_12998230.html) [https://www.merkur.de/politik/coronavirus-ursprung-laborunfall-uni-hamburg-studie-wiesendanger-professor-china-wuhan-verschwoerungstheorie-who-zr-90209794.html](https://www.merkur.de/politik/coronavirus-ursprung-laborunfall-uni-hamburg-studie-wiesendanger-professor-china-wuhan-verschwoerungstheorie-who-zr-90209794.html) [https://www.ln-online.de/Nachrichten/Norddeutschland/Universitaet-Hamburg-Corona-war-wohl-ein-Laborunfall-in-Wuhan](https://www.ln-online.de/Nachrichten/Norddeutschland/Universitaet-Hamburg-Corona-war-wohl-ein-Laborunfall-in-Wuhan) 
-论文原文： [http://doi.org/10.13140/RG.2.2.31754.80323](https://doi.org/10.13140/RG.2.2.31754.80323)
+此前，神提前告诉以色列人预备羊羔，在当月，以色列人的正月，十四日的下午杀羊羔，并将羊羔的血抹在房屋的门框和门楣上，并在当夜（注意，以色列人的一天从晚上开始，因为创世记第一章记载每一天的创造都是写到：有晚上，有早晨，是第几日），也就是十五日的晚上，吃羊羔的肉，并要吃无酵饼。
 
-+1
+这个晚上，神巡行埃及地，杀埃及人和牲畜的长子，而遇到门框和门楣上涂了血的，就从这家越过去，“逾越节”一词也因此命名。
+
+当夜，埃及人家家都死了人，于是法老连夜催促以色列人出埃及。以色列人就在夜间连夜出来了。
+
+以色列人看到埃及人着急，就向他们要金器银器和衣裳（当时衣裳是很有价值的）。
+
+因为被催促得急，以色列人并没有为自己预备什么路上用的食物。
+
+接下来，再看看中国过年的习俗，在很多方面都能和逾越节联系起来。
+
+1、中国人过年贴春联，位置就是门框和门楣，和逾越节抹血的位置一样，二者的颜色也都一样。
+
+从实际角度出发，中国人中放牧的只占很小一部分，真要按照以色列人的条例，家家吃羊羔抹羊血，恐怕承担不起。而只贴一幅春联就省钱得多了。或许这就是杀羊抹血的一种变通。
+
+说到这里，馒头这种食物的产生可能也与这种变通有关。有一种说法，开始的时候，祭祀的时候要用猪头之类。后来，为了省钱，就用面做成相同的形状，可能还会有一些化妆，为的是瞒过祭祀的对象，让对方以为这就是猪头，就把这种东西叫作“瞒头”，后来逐渐演变成现在的写法。
+
+2、逾越节和春节都在春天，都在正月，虽然二者的计算方法不一样，希伯来历法定正月的方法是基于春分（不是只有中国有春分），中国历法是基于冬至。
+
+3、过年的习俗是过完正月十五才算过完年，为什么是正月十五呢？联系逾越节就很容易理解了，因为十五的晚上神出来杀人嘛，十五的晚上没事，这年就算过去了。中国关于过年也有一个说法，当天晚上有怪兽出来杀人，而造成这样大规模死亡，被大家理解为怪兽也是正常。
+
+4、过年要吃年夜饭，逾越节要吃逾越节筵席。中国人家家吃羊羔有困难，但无酵饼呢？年夜饭虽然没有吃无酵饼的习俗，但是中国有吃春饼的习俗啊，春饼就是无酵饼啊。虽然现在都流行立春吃，但毕竟还是没出了春天。
+
+5、过年有个习俗是守岁，不管睡不睡觉，新年不是都会来吗？有什么好守的呢？但是放在逾越节背景里，是不敢睡觉啊。要不然万一哪个地方做的不合格了，神要来杀自己家的人怎么办啊？醒着没准还能求求情啊。
+
+6、中国人为什么要互相拜年，而不拜中秋，不拜端午呢？放在逾越节背景里也好理解，就是互相问候，问问你家没事吧？
+
+7、拜年都要拿礼物，主要都是食物。当时以色列人出埃及的时候被催逼不能耽延，没有预备什么食物，路上没有吃的，所以互相送啊。
+
+8、过年挂灯笼。以色列人是晚上出的埃及，不知道他们是不是一出家门就有火柱照明，要是没有的话，有个灯笼就方便多了。
+
+9、中国拜年给压岁钱。以色列人离开埃及的时候，从埃及人手里要来什么？金器银器和衣裳，似乎也能联系得上。
+
+10、有战友可能会问，过年是过的大年三十晚上，而逾越节是正月十五晚上，日期不一样。这个问题，笔者觉得经过长时间的演化，日期有些调整也是可能的。
+
+当然，从以上这些方面，也并不能确定过年就是从过逾越节来的，而是只是给大家作为一个参考。另外，过完年好几天了，现在发这个稍微有点晚了，也在这里给大家拜个晚年，祝大家“晚年”幸福！
+
+
+
+（文章仅代表个人观点。）
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+0
