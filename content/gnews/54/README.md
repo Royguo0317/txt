@@ -1,46 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国最大报社向中共发出强硬质问，索要病毒真相！
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/923921/)
+## 美国警告中共国不要在南中国海非法使用武力
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/924014/)
 
-![](https://images.unsplash.com/photo-1584757283930-246cb931242b?ixid=MXwxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHw%3D&amp;ixlib=rb-1.2.1&amp;auto=format&amp;fit=crop&amp;w=1050&amp;q=80)
+新闻来源：《海峡时报（StraitsTimes）》| 作者：法新社（AFP） | 发布时间：February, 19,2021 /2021年2月19日
 
-*撰文：西联777*
+翻译/简评：随波逐流 | 校对：感恩 | 审核：万人往 | Page：Daoiii
 
-德国发行量最大的报纸图片报在继报道了德国汉堡大学纳米学泰斗罗兰-维森丹格（Roland Wiesendanger）教授通过阅读包括闫博士论文等在内的诸多公开文献后得出 “99.9%确信中共病毒来自实验室” 结论的研究报告之后，昨天在**头版头条**公开向中共发出了针对病毒真相的强硬质问：
+[!\[\]()!\[\](https://spark.adobe.com/page/stWLN1E3MCOTA/images/0aff0f2f-c791-4b2f-91c7-c37779de26f5.jpg?asset_id=78258709-8265-4b42-855a-404f257ccf8b&amp;img_etag=%2246aa35b47aa1395bf3ee847d51310860%22&amp;size=1024)](https://spark.adobe.com/page/stWLN1E3MCOTA/images/0aff0f2f-c791-4b2f-91c7-c37779de26f5.jpg?asset_id=78258709-8265-4b42-855a-404f257ccf8b&amp;img_etag=%2246aa35b47aa1395bf3ee847d51310860%22&amp;size=1024)
 
-**1、您同意新冠病毒是从实验室传到世界上的这种说法吗？ **
+来自英喜海报组
 
-**2、您为什么没有早一点警告这个世界？ **
+***简评：***
 
-**3、为什么中国要试验新冠病毒？ **
+**美国在星期五（2月19日）警告中共国，不要在有争议的水域使用武力，拜登政府重申了前国务卿蓬佩奥在去年7月发表的关于南中国海的声明以表达自己的观点，即北京在南中国海的强硬行动是非法的。美国国务院对中共国颁布的新法律表示“担忧”，该法律授权中共国海岸警卫队对北京认为非法进入其水域的外国船只使用武力。国务院发言人内德·普莱斯称，该文本“强烈暗示该法律可被用来威吓中共国的海上邻国”。新任国务卿安东尼·布林肯早些时候在与日本外交大臣茂木敏充先生的电话中也表达了对中共国海事法的关注，并重申东海的尖阁诸岛和台湾的主权问题属于一项需美国和日本履行双方防御义务的条约范围内。**
 
-**4、您觉得什么时候让外界专家进驻武汉？ **
+**中共近年来在南中国海有争议的国际水域大肆修建人工岛屿，部署军事力量，威吓周边邻国，挑明了其意欲使用武力扩张在南中国海地区的主权和影响力的决心。由于多年来国际社会对中共的所作所为采取听之任之的态度，助长了中共的野心，中共出台新的海事法赋予中共国海岸警卫队对过往的船只使用武力的权力，以及中共参与缅甸的军事政变，都表明中共已变得越来越肆无忌惮地推行自己的军事霸权，已经对印太地区和全球安全构成潜在的威胁。现在美国重申了蓬佩奥的声明以及和日本通话的态度，又对中共发出了不要动武的警告，表明了美国不会再置身事外，释放了美国下决心解决这些争端的信号。中共若在南中国海继续自己的非法主张和军事行动，必将遭受来自美国、日本、周边邻国，甚至全世界联军的毁灭性打击。**
 
-**5、中国应该怎么补偿这个世界？ **
+[!\[\]()!\[\](https://spark.adobe.com/page/stWLN1E3MCOTA/images/4fd62d85-4b68-494d-be37-de7d172b2081.jpg?asset_id=bb2a1b6f-12f9-4557-9d54-da2dcf6cef4a&amp;img_etag=%22747070f13962847488ea64906a5fd76d%22&amp;size=1024)](https://spark.adobe.com/page/stWLN1E3MCOTA/images/4fd62d85-4b68-494d-be37-de7d172b2081.jpg?asset_id=bb2a1b6f-12f9-4557-9d54-da2dcf6cef4a&amp;img_etag=%22747070f13962847488ea64906a5fd76d%22&amp;size=1024)
+
+菲律宾抗议者，谴责中国渔船撞菲律宾渔船事件。
+
+***原文翻译：***
+
+## 美国警告中共国的海上武力行动，再次拒绝其对南中国海的主张
+
+[!\[\]()!\[\](https://spark.adobe.com/page/stWLN1E3MCOTA/images/9d0ce8b6-2ff8-44db-b745-0ca8a0311fd3.png?asset_id=b2a55028-23bf-4975-a821-d27350a62f64&amp;img_etag=%224dfd7208690205b057e5f6a4bf3d4c5c%22&amp;size=1024)](https://spark.adobe.com/page/stWLN1E3MCOTA/images/9d0ce8b6-2ff8-44db-b745-0ca8a0311fd3.png?asset_id=b2a55028-23bf-4975-a821-d27350a62f64&amp;img_etag=%224dfd7208690205b057e5f6a4bf3d4c5c%22&amp;size=1024)美国国务院发言人内德·普莱斯说，拜登总统的政府重申了去年7月发表的关于南中国海的声明。 照片：路透社
+
+华盛顿（法新社） – 美国在星期五（2月19日）警告中共国，不要在有争议的水域使用武力，同时再次重申了自己的观点，即北京在南中国海的强硬行动是非法的。
+
+美国国务院对中共国颁布的新法律表示“担忧”，该法律授权中共国海岸警卫队对北京认为非法进入其水域的外国船只使用武力。
+
+国务院发言人内德·普莱斯（Ned Price）在提到中华人民共和国时说，该法律条文“强烈暗示该法律可被用来威吓中共国的海上邻国。”
+
+普莱斯先生对记者说：“我们提醒中共国及其在南中国海执行任务的所有部队，负责任的海上部队在行使职权时要表现出专业精神和克制的态度。”
+
+“我们进一步担心中共国可能援引这项新法律来主张其在南中国海的非法海事要求。”
+
+普莱斯先生说，乔·拜登总统的政府重申了当时的国务卿迈克·蓬佩奥（Mike Pompeo）于去年七月发表的关于南中国海的声明，蓬佩奥因对北京的鹰派立场而闻名。
+
+蓬佩奥在声明中说，北京宣称拥有南中国海大部分地区海上资源的声明是“完全非法的”。
+
+美国长期以来一直拒绝中共国大肆宣扬的在战略航道上的所有权，但蓬佩奥先生进一步明确支持了菲律宾和越南等东南亚国家的立场，而不是避开争端。
+
+新任国务卿安东尼·布林肯（Antony Blinken）早些时候在与日本外交大臣茂木敏充（Toshimitsu Motegi）先生的电话中，表达了对中共国海事法的关注。
+
+布林肯当时重申，东中国海的尖阁诸岛（也被北京宣称拥有主权，北京称它们为钓鱼岛）和台湾——归属于一项安全条约，该条约承诺美国和日本相互的防御义务。
+
+[**原文链接**](https://www.straitstimes.com/world/united-states/us-warns-china-on-force-at-sea-again-rejects-claims-on-south-china-sea?utm_source=dlvr.it&amp;utm_medium=twitter)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
 
 
-
-这些问题刀刀见血，毫不手软，直击中共要害。将中共撒谎，试图隐瞒疫情真相的丑恶嘴脸暴露无疑，最后甚至质问中共要如何补偿世界的损失！就像闫博士2020年发表的论文里所说，新冠病毒就是中共试图欺骗和控制世界的生化武器！德国正在醒来！
-
-目前德国新冠疫情又有了上升的趋势，德国卫生当局在昨天向罗伯特-科赫研究所（Robert Koch-Institut）报告了7676例新的新冠感染病例。此外，根据罗伯特-科赫研究所周日公布的数据，24小时内登记了145例与该病毒有关的新死亡病例。根据RKI的数据，周日上午全国每10万居民7天发病率为60.2人，超出了前一天的数值（57,8）。
+编辑：【英国伦敦喜庄园编辑部】
+[!\[\]()!\[\](https://spark.adobe.com/page/stWLN1E3MCOTA/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/stWLN1E3MCOTA/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 
-
-*参考链接：*德国发行量最大报纸 图片报 头版报道（[Bild.de](https://www.bild.de/politik/ausland/politik-ausland/herkunft-von-corona-diese-fuenf-fragen-muss-china-jetzt-beantworten-75476194.bild.html#fromWall)）
-德国日镜报 （[Tagesspiegel.de](https://www.tagesspiegel.de/wissen/coronavirus-in-deutschland-inzidenz-steigt-leicht-auf-ueber-60/25560996.html)）
-闫丽梦博士的论文：[SARS-CoV-2是超限生化武器](https://zenodo.org/record/4073131#.YDIwpOnPxPZ)
-
-
-
-
-
-> [郭爆料串珠（172）冠狀病毒是生化、基因和種族滅絕武器，未來受到最大傷害的是白人！](https://gnews.org/zh-hant/922337/)
-
-
-
-*审核和收稿：Nena
-编辑和发布：西联777*
-
-+1
+0
