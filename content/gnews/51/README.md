@@ -1,41 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】蔡英文大手笔调整国防部国安局陆委会掌门人
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/923222/)
+## 是政治追杀还是真相的封锁
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/923357/)
 
-作者：纽约香草山写作组 Wilson
+文章作者：台湾准宝岛农场motdfry(文旦)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/擷取221-3.png)
+YouTube拿下了「Newsmax」新闻对前总统川普（特朗普）的最新采访，这是谷歌打击保守派的最新行动。
 
+美国新闻媒体「Newsmax」发言人通过电子邮件告诉英文《大纪元时报》，该公司被告知，2月17日对川普的采访已被从YouTube上删除，因为它违反了YouTube的社区准则。
 
+在总统大选过后，前美国总统川普先生，也开始露面并说话，但还是如同总统大选那一刻被社交媒体给封杀，封杀的缘由说明它违反了社区准则，但这与事实及事情完全没有帮助，因为害怕自己(社交媒体)当初所作的一切发生变故，怕前总统的演讲是为了消灭他们或揭发他们，所以害怕他所说的一切，已经不再总统选举之战中了，但还是持续地进行封杀，让这个问题变成一个常态性，这才是最可怕的，在一个民主自由的社会中，压制其他异议的声音，并编造理由让他不见，却让专制独裁的国家级人员可以自由的发声并宣传，如此的两极化，如此的不可思议，打着自由由论的平台，却限制为自由民主发声的人，一个是为了自己的利益，一个是为了他人的利益，这个明显的区别，明显的差异，及影响是我们要沉思的，因为这个可能将会发生在你头上，当发生在你头上之时，你又如何解决呢?，这一切背后的黑手中共，输出利益及威胁，影响着世界，影响着你我们生活，传播真相让更多人知道，让更多人沉思，你的一小步将是灭共的一大步。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+[参考资料:YouTube删除川普最新采访视频](https://www.epochtimes.com/b5/21/2/20/n12764450.htm)
 
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-[风传媒](https://www.storm.mg/new7/article/3487217)2月19日报道，中华民国总统蔡英文对当前最为重要的三个部门进行了人事调整。现任国安局长邱国正出任国防部长，現任陆委会主委陈明通转任国安局長，新任陆委会主委由前陆委副主委、前法务部長邱太三接任，国防部长严德发转任国安会咨询委员。
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/131.jpg)图源网络
+文章审核：zhong
 
-其中，最引人注目的新任国防部长邱国正，系美国陆军战争学院毕业，并于2018年入选该校名人堂。其极受美方重视与接受的背景，是他胜出的主因。
-
-据悉，蔡英文这次人事调整，是为了应对习近平大权独揽，和中共国这个不稳定因素可能对区域安全造成的重大挑战。蔡英文预计，在未来两年，习近平极有可能继续担任下一届总书记和国家主席，到时，大权独揽的他会对台湾釆取更加激烈的行动。
-
-现在的台湾人民正在享受民主政治带来的祥和幸福，他们与世无争，善良勤劳，但邪恶的中共一直对台湾虎视眈眈。在他们的字典中没有关爱、良知这样的词，更没有人权高于主权的概念。如果台湾真的沦陷了，美国的印太战略就彻底破产了，人类文明将面临严重的倒退！
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
+文章发布：Little Liu
 
 0

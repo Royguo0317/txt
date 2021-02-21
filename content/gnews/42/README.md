@@ -1,31 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大政府曾拨款$83万支持与武汉病毒所合作的项目
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/923190/)
+## 缅甸反军事政变抗议遭遇血腥镇压 两人丧生
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/923467/)
 
-加拿大多伦多枫叶农场 文永
-![]()![](https://gnews.org/wp-content/uploads/2021/02/whitehouse.news_.jpg)*图片来源: whitehouse.news*
-据加拿大《义军新闻》（RebelNews）报道[\[1\]](https://www.rebelnews.com/trudeau_research_grant_nearly_one_million_dollars_covid19_research_wuhan_virus_research_laboratory)，加拿大特鲁多政府出资$83万资助一项针对中共病毒的研究项目，而该项目将与中共病毒的发源地 — 武汉病毒研究所密切合作。
+俄罗斯莫斯科喀秋莎农场   银河
 
-根据加拿大政府官方网站公告[\[2\]](https://www.canada.ca/en/institutes-health-research/news/2020/03/government-of-canada-invests-27m-in-coronavirus-research--details-of-the-funded-projects.html)，加拿大政府拨款$82.8万加元，资助一项针对提高中共病毒即时检测技术的研究项目。该项目由阿尔伯塔大学乐晓春教授主导，参与方包括阿尔伯塔大学、加拿大食品检测局、以及武汉病毒研究所。而在项目内容中还赫然写着“项目的中期目标是在本次病毒大流行的中心地带进行测试，以此来验证我们的即时检测方法。我们项目组在武汉的成员将会主导这部分工作”。也就是说，这部分工作很可能是由武汉病毒研究所完成。根据加拿大政府网站[\[2\]](https://www.canada.ca/en/institutes-health-research/news/2020/03/government-of-canada-invests-27m-in-coronavirus-research--details-of-the-funded-projects.html)显示，该项目的开始时间为2020年3月1日，为期两年。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-44.png)*图片来源：Government of Canada*
-虽然该项目致力于研究中共病毒的检测技术，但是与武汉病毒研究所的密切合作，让人们深感不安。
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-21_07-08-09.jpg)[epochtimes.com](https://www.epochtimes.com/gb/11/12/4/n3447745.htm)
+路透社2月20日报道，缅甸第二大城市曼德勒周六反军方政变的抗议活动中有两人死亡，警察和士兵开枪驱散抗议民众，紧急救援人员说，这是两周多以来示威活动最血腥的一天。
 
-根据《华盛顿邮报》报道[\[3\]](https://webapps.cihr-irsc.gc.ca/funding/detail_e?pResearchId=9136708&amp;p_version=CIHR&amp;p_language=E&amp;p_session_id=3266369)，美国政府早在2018年就对武汉病毒研究所的研究内容表示担忧，并派出科研人员去武汉病毒研究所访问。在提交给华盛顿的一份报告中，美国科研人员警告本国政府，武汉病毒研究所正在从事的蝙蝠冠状病毒的潜在人传人可能性的研究有可能引发全球性病毒大流行。
+支持民主政府的民众走上缅甸街头，他们要求结束军方非法统治，释放被关押的民选领导人昂山素季(Aung San Suu Kyi)等人。曼德勒的紧张局势迅速升级，警察和士兵与抗议者对峙，一些示威者向警察发射弹弓，警方以催泪瓦斯和枪声回应，目击者说，他们在地上发现了实弹和橡皮子弹的弹头。据报道在这场示威游行中有20人受伤，两人死亡。
 
-而中共在中共病毒问题上的一贯不透明的做法，也已经是众所周知的问题。在本篇报道中也援引了美联社的文章[\[4\]](https://apnews.com/article/68a9e1b91de4ffc166acd6012d82c2f9)，指出中共去年一月份，在已经了解病毒传播可能造成大流行的情况下，依然压制病毒真相，并在6天后举行万家宴，造成更大面积感染，而武汉当地的医生也因为受到政府威胁而噤声。
+警方没有就此发表评论。而在上周，警察在首都内比都驱散人群时，一名年轻的抗议者头部中枪身亡，这是反政变示威者中死亡的第一人。
 
-中共制下的科学家，要么为了保全自身而与中共政府保持一致，要么就会被消失。由于此次全球疫情造成的死亡以及经济的重创，中共应负全部责任。而加拿大政府也应当停止把加拿大普通民众的血汗钱拿来与中共合作。
+美国国务院发言人普莱斯(Ned Price)说，美国对缅甸军方部队向抗议者开枪，并继续拘留和骚扰示威者的报道“深感关切”，并在推特上写道,“我们与缅甸人民站在一起”。
 
-评：
-加拿大特鲁多政府和中共的合作已久，而在中共病毒大流行后，这种做法引起加拿大民众的强烈不满。在该报道下面有大量留言，谴责加拿大政府的这种做法。我们可以看到，大量普通民众已经觉醒。
+法国外交部称这种暴力是“不可接受的”。 英国外交大臣多米尼克·拉布(Dominic Raab)在推特上说，“缅甸的和平抗议者遭到枪击是不可容忍的”，并表示将对那些对抗议者使用暴力的人采取进一步行动。他说，“我们将与我们的国际伙伴一起，考虑采取进一步行动，反对那些压制民主、扼杀异见的人。”
 
-[原文链接](https://www.rebelnews.com/trudeau_research_grant_nearly_one_million_dollars_covid19_research_wuhan_virus_research_laboratory)
+政变发生后，美国、英国、加拿大和新西兰宣布对缅甸军方主要领导人实施制裁措施。然而这有限的制裁和谴责并不能解决缅甸军方对民主的践踏和对民众的血腥镇压。甚至在政变之前，缅甸军政府领导人敏昂莱(Min Aung Hlaing)因为镇压罗兴亚人就已经受到西方国家的制裁。缅甸的将军们与中共有着更密切的关系，在他们身后有中共的支持，让他们无视西方的压力。
 
-* * *
+缅甸的言论封锁，网络封锁，血腥镇压正是中共用来摧毁香港的手段。西方需要觉醒，要想真正地挽救香港和缅甸的民主法治人权，根本的解决办法是消灭中共极权，彻底杜绝共产主义专制对世界的渗透和侵害。
 
-校对 文锦
-发稿 云起时
+参考链接：
+
+[https://www.reuters.com/article/uk-myanmar-politics/two-killed-in-myanmars-mandalay-city-in-bloodiest-day-of-protests-idUKKBN2AK04C](https://www.reuters.com/article/uk-myanmar-politics/two-killed-in-myanmars-mandalay-city-in-bloodiest-day-of-protests-idUKKBN2AK04C)
 
 0
