@@ -1,41 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】蔡英文大手笔调整国防部国安局陆委会掌门人
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/923222/)
+## 台湾首度对千人计划涉案开罚学者促国安介入
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/923317/)
 
-作者：纽约香草山写作组 Wilson
+# 文章作者：台湾准农场一叶一菩提 
+![https://media.discordapp.net/attachments/742415373571457025/812789370644856833/Captura_de_pantalla_2021-02-20_a_las_5.54.24_p._m..png?width=905&amp;height=513](https://lh5.googleusercontent.com/hvXVhw44SlKEeItvuFmmPVkfEOjXhIcw1jS7shEH2866uJc_2ayQ6tbvZiph2a7SzYUWT6BYFnWXKP54YC3i3OnHrpzrApBbUU46mFGi7Ftunx3vpPHm6TnVfDEiFxlYJ5ofHgZF)
+台大教授李笃中未经许可，主持中国4项研究计划，违反两岸条例，台湾教育部首度针对台湾教授、学者涉及中共「千人计画」，予以开罚。陆委会发言人邱垂正表示，将持续会同了解台湾有无相关人员违法情事。
+
+# **台大教授参与千人计划被罚**
+
+台湾大学化工系教授[李笃中](https://www.epochtimes.com/b5/tag/%e6%9d%8e%e7%af%a4%e4%b8%ad.html)去年参与台湾科技大学校长遴选时，被爆料曾出任中共长江学者，并涉及主持中共国家研究计划。当时李笃中发表退选声明，澄清依规定而且未接受对岸兼职合约。
+
+接获检举后，教育部随即展开调查，18日证实，[台大教授](https://www.epochtimes.com/b5/tag/%e5%8f%b0%e5%a4%a7%e6%95%99%e6%8e%88.html)[李笃中](https://www.epochtimes.com/b5/tag/%e6%9d%8e%e7%af%a4%e4%b8%ad.html)自2009年起，未经许可，连续11年以中国哈尔滨工业大学之名，担任多项中国科技部主管、国家自然科学基金委员会的研究计画负责人，进行了3项计划，金额共165万人民币，另外以复旦大学名义合作一项80万人民币的研究计划，共4案总研究经费245万人民币（约1000万元台币），皆未经主管机关许可，已违反两岸关系条例第33条之一第一项第一款规定，教育部也依两岸条例第90条之二第一项规定，处以30万新台币（约7万人民币）的罚款，成为台湾学者参加中共「千人计划」被开罚的首例。
+
+**涉案人所涉及之两岸关系条例**
+
+两岸关系条例第33条之一第一项第一款规定
+
+台湾地区人民、法人、团体或其他机构，非经各该主管机关许可，不得为下列行为：与大陆地区党务、军事、行政、具政治性机关(构)、团体或涉及对台政治工作、影响国家安全或利益之机关（构)、团体为任何形式之合作行为。
+
+两岸条例第90条之二第一项规定
+
+违反第三十三条之一第一项或第三十三条之二第一项规定者，处新台币十万元以上五十万元以下罚锾，并得按次连续处罚。违反第三十三条之一第二项、第三十三条之三第一项或第二项规定者，处新台币一万元以上五十万元以下罚锾，主管机关并得限期令其申报或改正；届期未申报或改正者，并得按次连续处罚至申报或改正为止。
+
+**学者敦促台湾政府应效法美国** **国安单位应介入调查**
+
+中共各项的研究计划不一定有公告，台湾各阶层是否有人涉及，只有同行、亲近的人泄露才会知道，或是在出版、发表的文章中露馅。这次李笃中案是因为参与台科大校长的遴选，才被爆料出来。
+
+台湾大学特聘教授吴瑞北认为，美国最近处理美国大学涉及中共「千人计划」，所开罚的金额是台湾三十倍到五十倍，甚至于逮捕、起诉、解聘的都有。但是台湾查了这么久，只有李笃中一人。他建议，台湾国安单位应该去美国请教怎么处理「千人计划」，教育部没这方面的能力及权限去审查中国，除非中共愿意配合，但是事实告诉我们“不可能”。
+
+此外吴瑞北还指出了一个非常严重的国安问题，中共明显用「千人计划」有系统地拿取智慧财产权。台湾曾有教授到大陆执行太空科学方面计划。台湾应该针对机密性领域做更严格地规范、把关。
+
+# 参考资料:
+
+- [【独家】【赴中兼职风暴】连续11年逾千万！李笃中再爆违法主持中国科技部研究计画](https://www.mirrormedia.mg/story/20200915inv018/)
+- [台大教授参与千人计划被罚学者促台国安介入](https://www.epochtimes.com/b5/%2021/2/20/n12764359.htm)
+- [台湾中华民国法规资料库](https://law.moj.gov.tw/LawClass/LawSingle.aspx?pcode=Q0010001&amp;flno=33-1)
+- [台湾中华民国法规资料库之二](https://law.moj.gov.%20tw/LawClass/LawSingle.aspx?pcode=Q0010001&amp;flno=90-2)
 
 
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
+文章审核：zhong
 
-[风传媒](https://www.storm.mg/new7/article/3487217)2月19日报道，中华民国总统蔡英文对当前最为重要的三个部门进行了人事调整。现任国安局长邱国正出任国防部长，現任陆委会主委陈明通转任国安局長，新任陆委会主委由前陆委副主委、前法务部長邱太三接任，国防部长严德发转任国安会咨询委员。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/02/131.jpg)图源网络
-
-其中，最引人注目的新任国防部长邱国正，系美国陆军战争学院毕业，并于2018年入选该校名人堂。其极受美方重视与接受的背景，是他胜出的主因。
-
-据悉，蔡英文这次人事调整，是为了应对习近平大权独揽，和中共国这个不稳定因素可能对区域安全造成的重大挑战。蔡英文预计，在未来两年，习近平极有可能继续担任下一届总书记和国家主席，到时，大权独揽的他会对台湾釆取更加激烈的行动。
-
-现在的台湾人民正在享受民主政治带来的祥和幸福，他们与世无争，善良勤劳，但邪恶的中共一直对台湾虎视眈眈。在他们的字典中没有关爱、良知这样的词，更没有人权高于主权的概念。如果台湾真的沦陷了，美国的印太战略就彻底破产了，人类文明将面临严重的倒退！
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
+文章发布：Little Liu
 
 0

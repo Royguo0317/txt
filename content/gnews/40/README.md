@@ -1,35 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 北约秘书长：将应对中共威胁纳入北约战略
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/922946/)
+## 【五月花报】95岁前纳粹集中营守卫被美国驱逐
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/923050/)
 
-俄罗斯莫斯科喀秋莎农场 银河
+五月花写作组 | 作者：伞兵 | 编辑、发稿：jamie(文胤)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/95岁纳粹集中营守卫被美国驱逐1.jpg)图片来源：abc7news.com
+据美国司法部的消息，前纳粹集中营守卫弗雷德里克‧卡尔‧伯杰 （Freidrich Karl Berger）已被遣送回德国，成为第70名被美国驱逐的纳粹分子。
 
-编辑上传 星河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/图片15-3.png)Twitter
-路透社2月19日报道，北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）周五呼吁欧洲、加拿大和美国维护俄罗斯和中共正在挑战的基于规则的国际秩序，并将北京的崛起形容为一个决定性问题。
+今年95岁的伯杰，自1959年起定居于美国田纳西州。他被遣返的原因是于1945年在汉堡附近的诺因加默集中营中担任武装守卫。根据法庭文件，他在集中营”残酷“的条件下，负责看守十几名囚犯，逼迫他们“劳作至死”。此外，伯杰还参与了1945年3月该集中营的强制疏散行动。两星期的行军，外加恶劣的生存条件，最终导致了70名囚犯的死亡。
 
-中共日益强大的实力正在重塑这个大西洋联盟的优先事项。该联盟传统上关注来自俄罗斯的威胁，但现在正寻求西方国家共识，将认定北京不再是一个友好的贸易伙伴。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/95岁纳粹集中营守卫被美国驱逐2.jpg)图片来源：Neuengamme Concentration Camp complex – Alamy Stock Photo
 
-斯托尔滕贝格在线上慕尼黑安全会议上表示:“中共和俄罗斯正试图改写国际规则，以造福各自的利益。”他指出，“中共的崛起是跨大西洋共同体的一个决定性问题，对我们的安全、我们的繁荣和我们的生活方式有潜在的后果。”
+由于在一艘于1945年五月被英军击沉的船中，发现了伯杰的名片，美国司法部据此得以确认伯杰在战争时期的身份。他一直不间断的领取来自德国的退伍养老金。
 
-尽管俄罗斯在这十年里仍将是北约的主要对手，但北约正在考虑将中共纳入北约的官方“战略概念”——以应对中共的军事崛起。
+根据 2010年《移民和国籍法》中的霍尔茨曼修正案，任何参与纳粹迫害、种族灭绝或实施任何酷刑或法外行刑的个人都将被美国驱逐。
 
-斯托尔滕贝格说，这个由30个成员国组成的联盟还可以与澳大利亚和日本等非北约国家建立更紧密的关系。
+西方世界对纳粹主义的声讨并没有因历史的远去而淡化，反而持续不断，愈演愈烈，这为悍然在21世纪犯下反人类罪且抱有侥幸心理的残暴政权CCP发出的一个最有力的警告。
 
-美国总统拜登周五表示，美国对北约的承诺是“不可动摇的”，并承诺遵守“对一个成员国的攻击就是对所有成员国的攻击”的原则。拜登在线上慕尼黑安全会议上说:“美国完全支持于我们的北约联盟，我欢迎你们不断增加对军事能力的投资，使我们能够共同防御。”
+* * *
 
-同时，拜登在与七国集团(G7)领导人进行的首次线上会晤中强调“美国回来了” ，
+参考来源：
 
-他说:“我知道过去几年我们的关系有些紧张，对我们跨大西洋的关系是一种考验，但是美国决心和欧洲重新接触，和你们协商，以赢回我们可信任的领导地位。”
+[US deports former Nazi concentration camp guard to Germany](https://nypost.com/2021/02/20/us-deports-former-nazi-concentration-camp-guard-to-germany/)
 
-北约的表态让我们看到“中共的灭亡”的曙光。近期国际宗教界、学术界都开始重视疫情真相并逐步认可闫丽梦博士“病毒源自实验室的科学报告”。中共病毒是中共制造的生物武器是毋庸置疑的事实。虽然拜登政府透露出“绥靖”意愿，但是在国际内外压力面前，拜登表态遵守北约承诺，“对一个成员国的攻击就是对所有成员国的攻击”。当中共被认定生物武器攻击世界的时刻，中共生物武器触发北约应对最高级攻击的条款，按照军事冲突对等原则，对共联军将不宣而战。美国将会依照承诺，毫无选择的加入伐共战营。
+[Judge Upholds Deportation Order For Former Nazi Concentration Camp Guard](https://www.newsweek.com/judge-upholds-deportation-order-former-nazi-concentration-camp-guard-1548903)
 
-参考链接：
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
 
-[https://www.reuters.com/article/us-germany-security-nato-idUSKBN2AJ24G](https://www.reuters.com/article/us-germany-security-nato-idUSKBN2AJ24G)
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
 
-[https://www.reuters.com/article/g7-meeting-biden-munich/update-1-biden-says-us-commitment-to-nato-is-unshakeable-idUSL1N2KP1RU](https://www.reuters.com/article/g7-meeting-biden-munich/update-1-biden-says-us-commitment-to-nato-is-unshakeable-idUSL1N2KP1RU)
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
-+2
+0

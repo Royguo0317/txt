@@ -1,86 +1,94 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武汉实验室竟能获得美国纳税人的资助直到2024年
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/922765/)
+## 布林肯的公司与中共国有关联，美中关系将走向何方？
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/922817/)
 
-新闻来源：Daily Caller《每日传讯新闻》| 作者：Andrew Kerr| 发布时间：2021年2月16日
+新闻来源：《布莱特巴特（BREITBART）》| 作者：EDWIN MORA | 发布时间：2021年2月16日
 
-翻译/简评：新街口 |校对：感恩 |审核：万人往|Page：小雨
+翻译/简评：Dreamer文童 | 校对：freedust | 审核：万人往 | Page：Daoiii
 
-[!\[\]()!\[\](https://spark.adobe.com/page/THC3t8RHEKglQ/images/fd110af5-6ea6-43af-a944-8a9d65265e4f.jpg?asset_id=282e2cd1-02f3-4afd-b321-4d13c8a8b6a3&amp;img_etag=%22ba638c4efae9c33f28645db75c59dbde%22&amp;size=2560)](https://spark.adobe.com/page/THC3t8RHEKglQ/images/fd110af5-6ea6-43af-a944-8a9d65265e4f.jpg?asset_id=282e2cd1-02f3-4afd-b321-4d13c8a8b6a3&amp;img_etag=%22ba638c4efae9c33f28645db75c59dbde%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/PmIMDCLvn2yMB/images/40ff61d8-5961-4c63-8fa2-585086340d2e.jpg?asset_id=a233345f-aad1-4874-9520-a576e0d1fb75&amp;img_etag=%228945b912998f51ff3fd25a6a04938b04%22&amp;size=1024)](https://spark.adobe.com/page/PmIMDCLvn2yMB/images/40ff61d8-5961-4c63-8fa2-585086340d2e.jpg?asset_id=a233345f-aad1-4874-9520-a576e0d1fb75&amp;img_etag=%228945b912998f51ff3fd25a6a04938b04%22&amp;size=1024)布林肯国务卿（右）与 乔·拜登总统
 
-**简评：**
+***简评：***
 
-“如雷贯耳”的达扎克再次成为这篇调查报告的主角。闫丽梦博士在情人节那天祝他和中共情人节快乐，因为达扎克在2018年CGTN采访中表示，他与中共国政府合作已经超过了15年。
+自拜登入驻白宫以来，现任美国政府对中共国的态度日渐缓和。共和党研究委员会近日发布一份报告，揭露了国务卿布林肯与中共的联系，即布林肯是咨询公司WestExec Advisors的联合创始人，而该公司帮助美国大学在中共国募集资金。此外，拜登任命的另外两名政客也在这家公司工作，美国国家情报总监(DNI)艾薇儿·海因斯和美国情报界负责人兼新闻秘书詹·普萨基。也就是说，拜登任命的外交和情报部门负责人均与中共国有业务往来关系。那么，在涉及中共国的政策制定时，这些从中共国赚钱的政客们会如何表态呢？这难道不是利益冲突吗？他们敢像前任川普政府那样强势反共吗？
 
-达扎克在本次进入中共国进行所谓的中共病毒起源调查之前就已经和石正丽公开在推特上相约白酒和卡拉ok。这一方面证明了他和石正丽等中共科技人员关系非同一般；更深层次则可以映射出他绝对是在中共“毛屎坑”中培养出来的一条走狗。
+拜登近日接受CNN采访时将中共对香港、维吾尔族和台湾的所作所为称作“文化常态”，凸显了美国现任政府在外交方面对中共的绥靖态度。这种公开将中共实施反人类的种族灭绝罪偷换概念为“文化常态”的言论已经突破人类认知底线，就是赤裸裸地为中共洗地。美国现任政府的对中共犯下的种种破坏民主、自由、法治的软弱表态，将使美国陷入内忧外困的境地，不仅会丢失在国际上自己建立的价值引领灯塔的地位，也将使国内矛盾进一步激化。
 
-在执行了本次由中共一手安排的调查后，达扎克不仅继续公开帮助中共掩盖病毒起源真相，还竟然要求美国政府不要过分依赖美国的情报系统，无条件地接受备受质疑的WHO工作组的调查结果。
+中共的“蓝金黄”的破坏力不容小视，成功拿下美国一个个商界和政界大佬，让这些向金钱利益下跪的人士甘愿被世人唾骂也要为中共洗地。可悲至极！
 
-本文还挖掘出了美国国立研究院的科研经费竟然是通过达扎克掌管的生态健康联盟授予武汉病毒研究所的。我们可以看到他不仅公开说谎，为中共掩盖病毒真相，还帮助中共窃取美国纳税人的科研经费。
+[!\[\]()!\[\](https://spark.adobe.com/page/PmIMDCLvn2yMB/images/6248577c-4a53-45e1-af74-383c7539c732.jpg?asset_id=64c6b0f7-46fe-4a58-89de-50665b04389e&amp;img_etag=%22e6f52279baa3fe95a71756e420cba831%22&amp;size=1024)](https://spark.adobe.com/page/PmIMDCLvn2yMB/images/6248577c-4a53-45e1-af74-383c7539c732.jpg?asset_id=64c6b0f7-46fe-4a58-89de-50665b04389e&amp;img_etag=%22e6f52279baa3fe95a71756e420cba831%22&amp;size=1024)
 
-中共的暗黑、下流手段在这场病毒中一览无余：首先利用美国的技术和资金研究制造病毒，然后再用病毒对付美国。最后，中共很有可能利用达扎克这类的美国科技领域败类和美国对武汉病毒所投资的事实，把整个病毒的黑锅甩给美国。
+***原文翻译：***
 
-**原文翻译：**
+## 共和党报告：国务卿布林肯成立接受中共国资金的公司，帮助国防部研究有关的大学
 
-## 美国国家卫生研究院证实，武汉实验室有资格在2024年之前获得美国纳税人的资助
+[!\[\]()!\[\](https://spark.adobe.com/page/PmIMDCLvn2yMB/images/f23ba4aa-ac54-4a37-ba92-5b91b9ccc605.png?asset_id=7ce55078-64ed-42a9-8070-13c0b35962fc&amp;img_etag=%22fdb7104319efdb1bc0a722265ea7fe15%22&amp;size=2560)](https://spark.adobe.com/page/PmIMDCLvn2yMB/images/f23ba4aa-ac54-4a37-ba92-5b91b9ccc605.png?asset_id=7ce55078-64ed-42a9-8070-13c0b35962fc&amp;img_etag=%22fdb7104319efdb1bc0a722265ea7fe15%22&amp;size=1024)美联社引用盖帝图片
 
-[!\[\]()!\[\](https://spark.adobe.com/page/THC3t8RHEKglQ/images/3c2a3c86-1079-4b41-a483-ed1364d36d51.jpg?asset_id=5cb48ad8-8908-46be-a29c-409ea32d37c2&amp;img_etag=%2243c74849665fc8faa3d9f6f063a8db9f%22&amp;size=1024)](https://spark.adobe.com/page/THC3t8RHEKglQ/images/3c2a3c86-1079-4b41-a483-ed1364d36d51.jpg?asset_id=5cb48ad8-8908-46be-a29c-409ea32d37c2&amp;img_etag=%2243c74849665fc8faa3d9f6f063a8db9f%22&amp;size=1024)调查记者 安德鲁·克尔
+共和党研究委员会（RSC）本周喊话拜登政府对共产中国政策的“软弱”，部分地揭露了包括国务卿安东尼·布林肯（Antony Blinken）在内的几名被任命的政客与北京的关系。
 
-- 根据美国国家卫生研究院的数据，武汉病毒研究所（WIV）被授权在2024年1月之前获得纳税人用于动物研究项目的资金。
-- 武汉病毒研究所在2014年至2019年期间通过非营利组织生态健康联盟获得了60万美元的纳税人资金，用于研究蝙蝠型冠状病毒。
-- 生态健康联盟主席彼得•达扎克(Peter Daszak)是调查新冠起源的世界卫生组织代表团中唯一的美国成员。
-- 达扎克说，白宫应该无条件地接受世卫组织的决定，即新冠不太可能是从武汉病毒研究所无意泄漏出来的。
+在推动该事情之前，《布莱特巴特新闻》（Breitbart News）的马特·博伊尔（Matt Boyle）从共和党研究委员会主席吉姆·班克斯（Jim Banks，印第安纳州共和党参议员）处独家获悉，该小组正在发起从周二开始针对拜登的立法闪电战，以揭露其在应对中共国威胁方面的软弱。
 
+共和党研究委员会发布的一份长达6页的备忘录显示，中共与国务卿安东尼·布林肯（拜登长期的亲信，现负责执行美国外交政策议程）之间的联系，可能会促使他在对抗中共国时产生利益冲突。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/THC3t8RHEKglQ/images/17945ce8-bb02-40d3-b77e-21bd01075f63.png?asset_id=08ce821e-5776-4a12-90a4-164781a77514&amp;img_etag=%2211126a8b226ff438d635c43caf2703a7%22&amp;size=1024)](https://spark.adobe.com/page/THC3t8RHEKglQ/images/17945ce8-bb02-40d3-b77e-21bd01075f63.png?asset_id=08ce821e-5776-4a12-90a4-164781a77514&amp;img_etag=%2211126a8b226ff438d635c43caf2703a7%22&amp;size=1024)
+由班克斯议员担任主席的共和党研究委员会在描述拜登挑选的几名有影响力的政治职位与中共国之间的联系时，在备忘录中指出：
 
-美国国立卫生研究院对《每日传讯新闻基金会》说，武汉病毒研究所被授权接受美国纳税人的资金用于动物研究，并且可以持续到2024年1月。
+布林肯是咨询公司WestExec Advisors的联合创始人，据《华盛顿自由灯塔》（Washington Free Beacon）报道，该公司“帮助美国大学从中共国筹集资金，在规避五角大楼的资助要求的情况下”。
 
-人们普遍猜测，由于实验室意外泄漏，新冠病毒可能已进入中国人群，武汉病毒研究所是其中的核心。该实验室的研究人员在疫情爆发之前正在研究蝙蝠类冠状病毒，该项目获得了美国纳税人通过非营利组织生态健康联盟(EcoHealth Alliance)向该实验室提供的60万美元资金的部分支持部分支持。
+该公司的一些工作似乎涉及美国国家安全问题。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/THC3t8RHEKglQ/images/494d8cf9-777d-4291-a909-b424b6ceff76.png?asset_id=cc4b8823-ab0d-4d3b-a588-a5d3d96826b4&amp;img_etag=%228daab99956cb9cf6e0a1e2fcaac8666b%22&amp;size=1024)](https://spark.adobe.com/page/THC3t8RHEKglQ/images/494d8cf9-777d-4291-a909-b424b6ceff76.png?asset_id=cc4b8823-ab0d-4d3b-a588-a5d3d96826b4&amp;img_etag=%228daab99956cb9cf6e0a1e2fcaac8666b%22&amp;size=1024)
+共和党研究委员会指出，在其他为该公司工作的拜登任命的政客中，还有美国国家情报总监(DNI)艾薇儿·海因斯(Avril Haines)、美国情报界负责人兼新闻秘书詹·普萨基（Jen Psaki）。
 
-生态健康联盟主席彼得•达扎克是世界卫生组织代表团的唯一美国成员，该代表团调查了1月和2月开始大爆发的疫情的起源。尽管世卫组织代表团尚未发布有关其发现的报告，但达扎克表示，白宫应该无条件地接受他们的结论，即病毒极不可能是从武汉病毒研究所中泄漏出来的。
+该小组还指责拜登的美国驻联合国大使琳达·托马斯·格林菲尔德（Linda Thomas Greenfield）与北京关系良好。她是一名国务院雇员，“曾发表过赞扬和欢迎中共国在非洲发挥作用的令人不安的言论”。
 
-达扎克还表示不应该相信美国情报机构所指证的，在2019年12月的首例已知病例之前武汉病毒研究所就有研究人员感染并出现了类似冠状病毒的症状。
+2020年12月初，《华盛顿自由灯塔》报道称，总部位于华盛顿特区的WestExec公司从其网站上删除了有关中共国工作的细节。此举发生在拜登赢得总统职位后，该公司的业务被审查。
 
-据《华尔街日报》报道，生态健康联盟在中共国研究蝙蝠型冠状病毒的工作是由美国国家过敏和传染病研究所于2014年提供370万美元资助的。
+“该公司在7月26日至8月2日期间，即拜登在8月底的民主党全国代表大会上接受提名前几周，从其网站上删除了对此类工作的提及。”《华盛顿自由灯塔》解释道。
 
-由于生态健康联盟与武汉病毒研究所之间的关系受到指责，美国国家卫生研究院（NIH）于4月终止了该项目拨款。NIH在一封信中说，该非营利组织在中共国的工作与“计划目标和机构优先事项”不符。
+《华盛顿自由灯塔》引用West-Exec网站的一个存档版本，进一步指出，该公司努力帮助：
 
-NIH在7月告诉生态健康联盟，如果满足某些条件，它将恢复拨款。其中之一是安排一个独立的团队调查武汉病毒研究所，以确定其是否在2019年12月首次确诊感染病例前就已经拥有了SARS-COV-2病毒。
+美国研究型大学…继续成为国防部赞助的研究资助的可信赖合作伙伴，同时扩大外国研究合作，接受外国捐赠，并欢迎外国学生参加关键的STEM[科学、技术、工程和数学]项目。
 
-达扎克对美国国家公共电台表示，NIH的条件是“荒谬”的。
+在1月19日和之后的参议院确认听证会上，布林肯称赞前总统唐纳德·川普对中共国“更强硬”，显示本届政府至少会接受前任政府对北京的部分政策内容。
 
-达扎克说：“我没有接受过私人侦探的培训。这样做并不是我的工作。” **（相关**：[与武汉实验室有密切联系的美国科学家在（新冠疫情）爆发前几周曾经讨论了如何操控基于蝙蝠的冠状病毒](http://US%20Scientist%20With%20Close%20Ties%20To%20Wuhan%20Lab%20Discussed%20Manipulating%20Bat-Based%20Coronaviruses%20Just%20Weeks%20Before%20Outbreak)**）**
+布林肯强调，拜登将寻求在气候变化等共同利益问题上与中共国合作，这与前任政府有所不同。
 
-但是，根据NIH实验动物福利办公室的说法，武汉病毒研究所仍在NIH实验动物福利办公室备有有效的外国保证书，这使其能够继续接受纳税人的资金从事动物研究。
+然而，共和党研究委员会报道称：
 
-NIH的一位女发言人告诉每日传讯新闻基金会，武汉病毒研究所的外国保证已于2019年1月9日获得批准，目前定于2024年1月31日到期。
+尽管对中共国的强硬表态，例如布林肯国务卿表示，川普对中共国采取更强硬的态度是正确的，但拜登政府的行动已经表明，他们将反其道而行之。
 
-女发言人未确认武汉病毒研究所是否正在接受直接或间接的纳税人资金用于涉及动物的研究活动。根据USASpending.Gov的说法，生态健康联盟对武汉病毒研究所的最后一次转赠拨款是在2019年5月。
+从根本上看，拜登政府对中共国的态度在很大程度上反映了奥巴马政府失败的政策和失败的团队，奥巴马政府没有将中共国视为竞争对手，而是[视为]一个可以参与一系列问题（从气候变化到全球发展）的国家。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/THC3t8RHEKglQ/images/1a31e008-d1ef-4f57-ac8f-38bba0419057.jpg?asset_id=674c3e71-b626-432c-8035-a08ab259bb97&amp;img_etag=%22c969a9237990e79a31c93854c8dcf9ff%22&amp;size=1024)](https://spark.adobe.com/page/THC3t8RHEKglQ/images/1a31e008-d1ef-4f57-ac8f-38bba0419057.jpg?asset_id=674c3e71-b626-432c-8035-a08ab259bb97&amp;img_etag=%22c969a9237990e79a31c93854c8dcf9ff%22&amp;size=1024)彼得•达扎克在CGTN接受采访的截屏(YouTube)
+拜登团队不是把中共国赶出中东或非洲等关键地区，而是欢迎中共国在这些地区的扩张，并相信过去的失败做法，即与中共合作的“双赢”，这威胁到国际安全并破坏了我们的联盟。中共正试图在共产党专制主义的基础上，以自己为模板从根本上重新布局国际体系。美国承受不起回到过去那种落后的领导地位和失败的政策。
 
-生态健康联盟从美国国家卫生研究院获得了新的750万美元款项，用于帮助建立新发传染病研究中心。达扎克对美国国家公共电台表示，他的组织获得的新拨款将不会用于在中共国的任何研究。
+布林肯一再强调，虽然中共国对美国构成了所有国家中最重大的挑战，但华盛顿与北京仍然存在合作的领域。
 
-无党派监督组织White Coat Waste项目的总裁Anthony Bellotti告诉DCNF，由于生态健康联盟资助了“不计后果的（病毒）功能增强动物实验，这可能导致新冠疫情的大流行”，对它的资金拨款应该立即停止。
+他在确认听证会上作证说：“在我看来，[美中]关系对抗性在上升，当然是竞争性的，但在符合我们共同利益的时候，还是有一些合作的可能。”
 
-“我们敦促国会和白宫立即停止为生态健康联盟拨款，并对其在武汉病毒研究所进行的危险的（病毒）功能增强动物实验是否导致新冠疫情大爆发进行独立的调查。
+在其确认听证会上，布林肯赞同其前任认定中共国正在对新疆的穆斯林维吾尔少数民族实施种族灭绝。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/THC3t8RHEKglQ/images/da9dc9af-7310-4532-af5e-701e71865153.png?asset_id=3d91df73-ae4d-4884-8f6a-7f8ba01fbe74&amp;img_etag=%2226ca40a1177ae2fc0e5abdf431fcc278%22&amp;size=1024)](https://spark.adobe.com/page/THC3t8RHEKglQ/images/da9dc9af-7310-4532-af5e-701e71865153.png?asset_id=3d91df73-ae4d-4884-8f6a-7f8ba01fbe74&amp;img_etag=%2226ca40a1177ae2fc0e5abdf431fcc278%22&amp;size=1024)
+他的言论与国家安全委员会(NSC)发言人艾米丽·霍恩(Emily Horne)称拜登认为北京正在实施种族灭绝的说法一致。
 
-[🔗原文链接](https://dailycaller.com/2021/02/16/wuhan-lab-eligible-taxpayer-funding/)
+然而，在布林肯发表言论后不久，白宫发生转机。白宫宣布，国务院正在对彭佩奥关于维吾尔人是种族灭绝受害者的历史认定进行审查。
+
+据报道，拜登政府认为，川普政府“没有遵循适当的程序”，“将坚持”中共国正在实施种族灭绝的认定，共和党研究委员会报告补充道，前任川普政府官员否认该说法。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/PmIMDCLvn2yMB/images/c637da20-6944-4165-85f6-ca745280d856.jpg?asset_id=a433e668-cecf-4bbe-aa63-c7f3fe0b8fa4&amp;img_etag=%2291f29cde6896ff35b1e5a92afe003f11%22&amp;size=1024)](https://spark.adobe.com/page/PmIMDCLvn2yMB/images/c637da20-6944-4165-85f6-ca745280d856.jpg?asset_id=a433e668-cecf-4bbe-aa63-c7f3fe0b8fa4&amp;img_etag=%2291f29cde6896ff35b1e5a92afe003f11%22&amp;size=1024)喜馬拉雅-粵語組制作
+
+2月初，布林肯宣布，美国正在重新加入联合国人权理事会。众所周知，该理事会允许违反人权的中共国、俄罗斯、委内瑞拉和古巴获得代表权。
+
+“它的一些成员利用该理事会使其可怕的人权记录合法化。”共和党研究委员会指出。
+
+[**原文链接**](https://www.breitbart.com/politics/2021/02/16/gop-report-secretary-of-state-blinken-founded-firm-that-received-chinese-money-for-dod-research-linked-universities/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/THC3t8RHEKglQ/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/THC3t8RHEKglQ/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/PmIMDCLvn2yMB/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/PmIMDCLvn2yMB/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-0
++1

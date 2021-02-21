@@ -1,29 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共再次军演入侵台湾防空识别区
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/923291/)
+## 是政治追杀还是真相的封锁
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/923357/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+文章作者：台湾准宝岛农场motdfry(文旦)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/擷取221-3.png)
+YouTube拿下了「Newsmax」新闻对前总统川普（特朗普）的最新采访，这是谷歌打击保守派的最新行动。
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-21_05-24-17.jpg)[economist.com](https://www.economist.com/china/2018/07/05/a-deadline-looms-in-chinas-battle-with-foreign-firms-over-taiwan)
-路透社2月20日消息，台湾国防部称，周六12架中共战斗机和轰炸机在有争议的南海台湾控制岛屿附近进行演习后，台湾空军连续第二天紧急起飞。
+美国新闻媒体「Newsmax」发言人通过电子邮件告诉英文《大纪元时报》，该公司被告知，2月17日对川普的采访已被从YouTube上删除，因为它违反了YouTube的社区准则。
 
-中共声称台湾是中共国领土，并毫不掩饰武力统一台湾的意图。近几个月来中共多次在台湾防空识别区西南角执行空中任务，主要是在普拉塔斯群岛附近。
+在总统大选过后，前美国总统川普先生，也开始露面并说话，但还是如同总统大选那一刻被社交媒体给封杀，封杀的缘由说明它违反了社区准则，但这与事实及事情完全没有帮助，因为害怕自己(社交媒体)当初所作的一切发生变故，怕前总统的演讲是为了消灭他们或揭发他们，所以害怕他所说的一切，已经不再总统选举之战中了，但还是持续地进行封杀，让这个问题变成一个常态性，这才是最可怕的，在一个民主自由的社会中，压制其他异议的声音，并编造理由让他不见，却让专制独裁的国家级人员可以自由的发声并宣传，如此的两极化，如此的不可思议，打着自由由论的平台，却限制为自由民主发声的人，一个是为了自己的利益，一个是为了他人的利益，这个明显的区别，明显的差异，及影响是我们要沉思的，因为这个可能将会发生在你头上，当发生在你头上之时，你又如何解决呢?，这一切背后的黑手中共，输出利益及威胁，影响着世界，影响着你我们生活，传播真相让更多人知道，让更多人沉思，你的一小步将是灭共的一大步。
 
-在9架中共空军飞机周五飞近普拉塔斯群岛后，台湾国防部表示，周六中共又再次向该区域派遣了8架战斗机、两架可携带核弹头的H-6轰炸机和一架反潜飞机， 报称，中共海军也参与其中任务，但没有给出细节。
+[参考资料:YouTube删除川普最新采访视频](https://www.epochtimes.com/b5/21/2/20/n12764450.htm)
 
-台湾空军警告中共飞机离开，并部署了导弹系统来监视活动。中共没有就此发表评论。此前，中共曾表示，此类演习是对台北与华盛顿之间“勾结”的回应，也是为了维护中共主权，因华盛顿是台湾的主要国际支持者和武器供应商。
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-周六，美国国务院发言人再次呼吁北京“停止对台湾的军事、外交和经济压力”并补充说，它应该“与台湾民选代表进行有意义的对话”。
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-参议员汤姆·科顿(Tom Cotton)周四呼吁美国就中共入侵台湾的情况出台新政策。他强调，“美国需要明确，我们不会允许中共入侵和征服台湾”。
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
-科顿议员最近表示，美国支持对台军售的战略还是比较模糊，当台湾真正受到中共武力袭击时并不能保证美国的干预。美国应该为中共划定“红线”，并要求华盛顿方面就台湾危机“做出回应”。他说，美国应该“非常清楚”地表明，中共入侵台湾意味着与美国开战。
+文章审核：zhong
 
-参考链接：
-
-[https://www.reuters.com/article/us-taiwan-china-security/taiwan-scrambles-air-force-again-after-chinese-exercises-in-south-china-sea-idUSKBN2AK0HX](https://www.reuters.com/article/us-taiwan-china-security/taiwan-scrambles-air-force-again-after-chinese-exercises-in-south-china-sea-idUSKBN2AK0HX)
+文章发布：Little Liu
 
 0

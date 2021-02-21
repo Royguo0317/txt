@@ -1,27 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港人口自2003年以来首次出现负增长
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/923261/)
+## 中共在南海军演扰台2月创最大规模
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/923346/)
 
-俄罗斯莫斯科喀秋莎农场    银河
+# 文章作者：台湾准农场一叶一菩提 
+![Resultado de imagen de 中共11架軍機](https://lh5.googleusercontent.com/i3RJxCVl9Dek-ncQm3mNQx27xqv8o6Q-2TlIFzXqQjbzftbhTXiySmIXgnBTE-oDF9aiiAuah1PO0cMHuKBvUqaTq9o06gXcWngcrSYvtdGT_8078w1HrsbbWwWLR9avOqxI5HeY)
+2月20日[台湾](https://www.epochtimes.com/b5/tag/%e5%8f%b0%e7%81%a3.html)国防部表示，中共军队近日在东沙岛（Pratas Island）北方，有争议的南海地区进行军演，军演后2架歼-10、2架歼-16、4架歼轰- 7、2架轰-6K以及1架运-8反潜机共11架中共军机侵扰台湾西南防空识别区（ADIZ），台湾立刻派遣空中巡逻兵力应对、广播警告驱离以及部署防空导弹追踪监控飞行行动，这是本周中共军机连续第三天的侵扰行动，也是2月以来最大规模的扰台行动。
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-21_05-16-45.jpg)[themilitant.com](https://themilitant.com/2019/06/29/massive-protests-in-hong-kong-push-back-hated-extradition-bill/)
-《布赖特巴特新闻》（Breitbart News）2月19日报道，香港政府统计处(Hong Kong Census and Statistics Department)周四公布，去年香港人口自2003年以来首次出现下降。
+美中台三国角力平衡台海、南海局势，抑制共产极权扩张。 （2月17日）美军伯克级驱逐舰拉塞尔号（DDG-59）在南沙群岛进行了自由航行活动。中国、越南、台湾、马来西亚、文莱和菲律宾都声称对南沙群岛的全部或部分海域拥有主权
 
-据人口普查局2月18日发布的年度人口报告，2020年香港人口为747万，比2019年减少0.6%。去年香港的死亡人数超过了出生人数，导致人口自1961年以来首次出现“自然下降”。离开香港的居民数量也超过了移居香港的人数，导致了“净流出”。
+2月19日台湾针对共军扰台加剧、侵台意图，对高层安全官员进行改组，包括任命一名新的、受过美国训练的国防部长，以帮助加强军事现代化和情报工作，以应对日益增长的中共军事威胁。
 
-“据记录，2020年人口首次减少6700人，出生人口为43,100人，死亡人口为49,800人。与此同时，2020年记录的净流出人数为39,800人，其中10,100名单程许可证持有人流入，以及49,900名香港居民流出。”
+中共一向反对美军在南海实施航行自由行动，所以此次演习对台湾和美国之间合作做出了相对的回应，也对台湾进行了另一波的威胁。
 
-据《日经亚洲评论》(Nikkei Asian Review)报道，2019年，香港申请“无犯罪记录证明”(移民到大多数国家通常需要的一份文件)同比激增43%，达到3.3万份。2020年的数据尚未公布。
+# 参考资料:
 
-中共在2020年6月对香港实施了《国家安全法》，这破坏了香港的半自治香港爆发了长达一年半的抗议活动，谴责中共侵蚀香港民主。《国安法》加强了香港的边境安全，令中共内地的移民人数整体下降，同时也迫使许多香港居民逃离香港，许多人前往英国。英国1月底宣布，计划在未来几个月欢迎多达500万选择离开香港的香港居民。
+- [中共在南海军演11军机扰台2月来最大规模](https://www.epochtimes.com/b5/21/2/20/n12764634.htm)
 
-因中共公然撕毁“一国两制”承诺，对港人暴力镇压，英国实施了对港人的庇护。持有英国公民海外护照——1997年香港回归中共国之前出生在香港的香港公民可以使用这种护照——可以和他们的家人申请5年签证。在此之后，他们可以申请英国国籍。此前，这些护照持有者只能获得6个月的英国签证。
 
-参考链接：
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-[https://www.breitbart.com/asia/2021/02/19/hong-kong-population-falls-for-first-time-since-2003/](https://www.breitbart.com/asia/2021/02/19/hong-kong-population-falls-for-first-time-since-2003/)
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+
+文章审核：zhong
+
+文章发布：Little Liu
 
 0

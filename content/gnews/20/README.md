@@ -1,26 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥：拜登的中共政策“令人沮丧”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/923315/)
+## 加拿大政府曾拨款$83万支持与武汉病毒所合作的项目
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/923190/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+加拿大多伦多枫叶农场 文永
+![]()![](https://gnews.org/wp-content/uploads/2021/02/whitehouse.news_.jpg)*图片来源: whitehouse.news*
+据加拿大《义军新闻》（RebelNews）报道[\[1\]](https://www.rebelnews.com/trudeau_research_grant_nearly_one_million_dollars_covid19_research_wuhan_virus_research_laboratory)，加拿大特鲁多政府出资$83万资助一项针对中共病毒的研究项目，而该项目将与中共病毒的发源地 — 武汉病毒研究所密切合作。
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/下载-23.jpg)[freenews.live](https://freenews.live/reuters-pompeo-to-meet-with-the-chinese-delegation/)
+根据加拿大政府官方网站公告[\[2\]](https://www.canada.ca/en/institutes-health-research/news/2020/03/government-of-canada-invests-27m-in-coronavirus-research--details-of-the-funded-projects.html)，加拿大政府拨款$82.8万加元，资助一项针对提高中共病毒即时检测技术的研究项目。该项目由阿尔伯塔大学乐晓春教授主导，参与方包括阿尔伯塔大学、加拿大食品检测局、以及武汉病毒研究所。而在项目内容中还赫然写着“项目的中期目标是在本次病毒大流行的中心地带进行测试，以此来验证我们的即时检测方法。我们项目组在武汉的成员将会主导这部分工作”。也就是说，这部分工作很可能是由武汉病毒研究所完成。根据加拿大政府网站[\[2\]](https://www.canada.ca/en/institutes-health-research/news/2020/03/government-of-canada-invests-27m-in-coronavirus-research--details-of-the-funded-projects.html)显示，该项目的开始时间为2020年3月1日，为期两年。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-44.png)*图片来源：Government of Canada*
+虽然该项目致力于研究中共病毒的检测技术，但是与武汉病毒研究所的密切合作，让人们深感不安。
 
-本周，美国总统乔·拜登(Joe Biden)在美国有线电视新闻网(CNN)市政厅发表了“文化常态”的侮辱性言论——拜登似乎接受中共对维吾尔族穆斯林侵犯人权的行为，将其视为不同的文化“规范”——令前国务卿迈克·蓬佩奥(Mike Pompeo)感到“沮丧”。
+根据《华盛顿邮报》报道[\[3\]](https://webapps.cihr-irsc.gc.ca/funding/detail_e?pResearchId=9136708&amp;p_version=CIHR&amp;p_language=E&amp;p_session_id=3266369)，美国政府早在2018年就对武汉病毒研究所的研究内容表示担忧，并派出科研人员去武汉病毒研究所访问。在提交给华盛顿的一份报告中，美国科研人员警告本国政府，武汉病毒研究所正在从事的蝙蝠冠状病毒的潜在人传人可能性的研究有可能引发全球性病毒大流行。
 
-蓬佩奥接受Newsmax TV的《周六议程》(Saturday Agenda)访谈时表示，“把这当作一种不同的规范或一套不同的行为，这是中国共产党的说法。”种族灭绝是反人类的罪行，“这与不同的文化或不同的规范无关，这是对人权的严重侵犯。”
+而中共在中共病毒问题上的一贯不透明的做法，也已经是众所周知的问题。在本篇报道中也援引了美联社的文章[\[4\]](https://apnews.com/article/68a9e1b91de4ffc166acd6012d82c2f9)，指出中共去年一月份，在已经了解病毒传播可能造成大流行的情况下，依然压制病毒真相，并在6天后举行万家宴，造成更大面积感染，而武汉当地的医生也因为受到政府威胁而噤声。
 
-蓬佩奥指出，美国国务卿布林肯同意川普政府将中共对待维吾尔族的做法归类为“种族灭绝”，因此拜登总统需要接受这个认定。“听到一位美国总统以这样一种方式谈论此事，并没有表明必须严肃对待此事，这令人沮丧。”蓬佩奥认为这是拜登上任后的一次失态之举，而拜登很快就会意识到这一严重后果。
+中共制下的科学家，要么为了保全自身而与中共政府保持一致，要么就会被消失。由于此次全球疫情造成的死亡以及经济的重创，中共应负全部责任。而加拿大政府也应当停止把加拿大普通民众的血汗钱拿来与中共合作。
 
-蓬佩奥警告到，拜登必须反对中共“习近平的霸权欲望”，因为美国人民不会允许中共侮辱美国。
+评：
+加拿大特鲁多政府和中共的合作已久，而在中共病毒大流行后，这种做法引起加拿大民众的强烈不满。在该报道下面有大量留言，谴责加拿大政府的这种做法。我们可以看到，大量普通民众已经觉醒。
 
-蓬佩奥在川普政府担任国务卿期间以强硬政策应对中共威胁，倍受赞誉。2月17蓬佩奥和前国家安全顾问罗伯特•奥布莱恩成为尼克松基金会(Nixon Foundation)“圆桌会议”的联席主席，从月起每月定期主持研讨会并就外交政策问题发表意见。该研讨会主要关注的一些问题包括美国与中共的关系、全球技术创新以及持久的中东和平，推进以保守现实主义为基础有利于美国国家利益的世界大国之间保持平衡的政策。讨论的建议将每月在网站上公布并推广给拜登政府和国会的政策制定者。
+[原文链接](https://www.rebelnews.com/trudeau_research_grant_nearly_one_million_dollars_covid19_research_wuhan_virus_research_laboratory)
 
-参考链接：
+* * *
 
-[https://www.newsmax.com/newsmax-tv/mike-pompeo-secretary-of-state-ccp-trade-war/2021/02/20/id/1010835/](https://www.newsmax.com/newsmax-tv/mike-pompeo-secretary-of-state-ccp-trade-war/2021/02/20/id/1010835/)
+校对 文锦
+发稿 云起时
 
 0
