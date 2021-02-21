@@ -1,27 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港人口自2003年以来首次出现负增长
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/923261/)
+## 中共再次军演入侵台湾防空识别区
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/923291/)
 
-俄罗斯莫斯科喀秋莎农场    银河
+俄罗斯莫斯科喀秋莎农场   银河
 
 编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-21_05-16-45.jpg)[themilitant.com](https://themilitant.com/2019/06/29/massive-protests-in-hong-kong-push-back-hated-extradition-bill/)
-《布赖特巴特新闻》（Breitbart News）2月19日报道，香港政府统计处(Hong Kong Census and Statistics Department)周四公布，去年香港人口自2003年以来首次出现下降。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-21_05-24-17.jpg)[economist.com](https://www.economist.com/china/2018/07/05/a-deadline-looms-in-chinas-battle-with-foreign-firms-over-taiwan)
+路透社2月20日消息，台湾国防部称，周六12架中共战斗机和轰炸机在有争议的南海台湾控制岛屿附近进行演习后，台湾空军连续第二天紧急起飞。
 
-据人口普查局2月18日发布的年度人口报告，2020年香港人口为747万，比2019年减少0.6%。去年香港的死亡人数超过了出生人数，导致人口自1961年以来首次出现“自然下降”。离开香港的居民数量也超过了移居香港的人数，导致了“净流出”。
+中共声称台湾是中共国领土，并毫不掩饰武力统一台湾的意图。近几个月来中共多次在台湾防空识别区西南角执行空中任务，主要是在普拉塔斯群岛附近。
 
-“据记录，2020年人口首次减少6700人，出生人口为43,100人，死亡人口为49,800人。与此同时，2020年记录的净流出人数为39,800人，其中10,100名单程许可证持有人流入，以及49,900名香港居民流出。”
+在9架中共空军飞机周五飞近普拉塔斯群岛后，台湾国防部表示，周六中共又再次向该区域派遣了8架战斗机、两架可携带核弹头的H-6轰炸机和一架反潜飞机， 报称，中共海军也参与其中任务，但没有给出细节。
 
-据《日经亚洲评论》(Nikkei Asian Review)报道，2019年，香港申请“无犯罪记录证明”(移民到大多数国家通常需要的一份文件)同比激增43%，达到3.3万份。2020年的数据尚未公布。
+台湾空军警告中共飞机离开，并部署了导弹系统来监视活动。中共没有就此发表评论。此前，中共曾表示，此类演习是对台北与华盛顿之间“勾结”的回应，也是为了维护中共主权，因华盛顿是台湾的主要国际支持者和武器供应商。
 
-中共在2020年6月对香港实施了《国家安全法》，这破坏了香港的半自治香港爆发了长达一年半的抗议活动，谴责中共侵蚀香港民主。《国安法》加强了香港的边境安全，令中共内地的移民人数整体下降，同时也迫使许多香港居民逃离香港，许多人前往英国。英国1月底宣布，计划在未来几个月欢迎多达500万选择离开香港的香港居民。
+周六，美国国务院发言人再次呼吁北京“停止对台湾的军事、外交和经济压力”并补充说，它应该“与台湾民选代表进行有意义的对话”。
 
-因中共公然撕毁“一国两制”承诺，对港人暴力镇压，英国实施了对港人的庇护。持有英国公民海外护照——1997年香港回归中共国之前出生在香港的香港公民可以使用这种护照——可以和他们的家人申请5年签证。在此之后，他们可以申请英国国籍。此前，这些护照持有者只能获得6个月的英国签证。
+参议员汤姆·科顿(Tom Cotton)周四呼吁美国就中共入侵台湾的情况出台新政策。他强调，“美国需要明确，我们不会允许中共入侵和征服台湾”。
+
+科顿议员最近表示，美国支持对台军售的战略还是比较模糊，当台湾真正受到中共武力袭击时并不能保证美国的干预。美国应该为中共划定“红线”，并要求华盛顿方面就台湾危机“做出回应”。他说，美国应该“非常清楚”地表明，中共入侵台湾意味着与美国开战。
 
 参考链接：
 
-[https://www.breitbart.com/asia/2021/02/19/hong-kong-population-falls-for-first-time-since-2003/](https://www.breitbart.com/asia/2021/02/19/hong-kong-population-falls-for-first-time-since-2003/)
+[https://www.reuters.com/article/us-taiwan-china-security/taiwan-scrambles-air-force-again-after-chinese-exercises-in-south-china-sea-idUSKBN2AK0HX](https://www.reuters.com/article/us-taiwan-china-security/taiwan-scrambles-air-force-again-after-chinese-exercises-in-south-china-sea-idUSKBN2AK0HX)
 
 0

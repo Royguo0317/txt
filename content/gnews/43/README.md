@@ -1,29 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共再次军演入侵台湾防空识别区
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/923291/)
+## 蓬佩奥：拜登的中共政策“令人沮丧”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/923315/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-21_05-24-17.jpg)[economist.com](https://www.economist.com/china/2018/07/05/a-deadline-looms-in-chinas-battle-with-foreign-firms-over-taiwan)
-路透社2月20日消息，台湾国防部称，周六12架中共战斗机和轰炸机在有争议的南海台湾控制岛屿附近进行演习后，台湾空军连续第二天紧急起飞。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/下载-23.jpg)[freenews.live](https://freenews.live/reuters-pompeo-to-meet-with-the-chinese-delegation/)
 
-中共声称台湾是中共国领土，并毫不掩饰武力统一台湾的意图。近几个月来中共多次在台湾防空识别区西南角执行空中任务，主要是在普拉塔斯群岛附近。
+本周，美国总统乔·拜登(Joe Biden)在美国有线电视新闻网(CNN)市政厅发表了“文化常态”的侮辱性言论——拜登似乎接受中共对维吾尔族穆斯林侵犯人权的行为，将其视为不同的文化“规范”——令前国务卿迈克·蓬佩奥(Mike Pompeo)感到“沮丧”。
 
-在9架中共空军飞机周五飞近普拉塔斯群岛后，台湾国防部表示，周六中共又再次向该区域派遣了8架战斗机、两架可携带核弹头的H-6轰炸机和一架反潜飞机， 报称，中共海军也参与其中任务，但没有给出细节。
+蓬佩奥接受Newsmax TV的《周六议程》(Saturday Agenda)访谈时表示，“把这当作一种不同的规范或一套不同的行为，这是中国共产党的说法。”种族灭绝是反人类的罪行，“这与不同的文化或不同的规范无关，这是对人权的严重侵犯。”
 
-台湾空军警告中共飞机离开，并部署了导弹系统来监视活动。中共没有就此发表评论。此前，中共曾表示，此类演习是对台北与华盛顿之间“勾结”的回应，也是为了维护中共主权，因华盛顿是台湾的主要国际支持者和武器供应商。
+蓬佩奥指出，美国国务卿布林肯同意川普政府将中共对待维吾尔族的做法归类为“种族灭绝”，因此拜登总统需要接受这个认定。“听到一位美国总统以这样一种方式谈论此事，并没有表明必须严肃对待此事，这令人沮丧。”蓬佩奥认为这是拜登上任后的一次失态之举，而拜登很快就会意识到这一严重后果。
 
-周六，美国国务院发言人再次呼吁北京“停止对台湾的军事、外交和经济压力”并补充说，它应该“与台湾民选代表进行有意义的对话”。
+蓬佩奥警告到，拜登必须反对中共“习近平的霸权欲望”，因为美国人民不会允许中共侮辱美国。
 
-参议员汤姆·科顿(Tom Cotton)周四呼吁美国就中共入侵台湾的情况出台新政策。他强调，“美国需要明确，我们不会允许中共入侵和征服台湾”。
-
-科顿议员最近表示，美国支持对台军售的战略还是比较模糊，当台湾真正受到中共武力袭击时并不能保证美国的干预。美国应该为中共划定“红线”，并要求华盛顿方面就台湾危机“做出回应”。他说，美国应该“非常清楚”地表明，中共入侵台湾意味着与美国开战。
+蓬佩奥在川普政府担任国务卿期间以强硬政策应对中共威胁，倍受赞誉。2月17蓬佩奥和前国家安全顾问罗伯特•奥布莱恩成为尼克松基金会(Nixon Foundation)“圆桌会议”的联席主席，从月起每月定期主持研讨会并就外交政策问题发表意见。该研讨会主要关注的一些问题包括美国与中共的关系、全球技术创新以及持久的中东和平，推进以保守现实主义为基础有利于美国国家利益的世界大国之间保持平衡的政策。讨论的建议将每月在网站上公布并推广给拜登政府和国会的政策制定者。
 
 参考链接：
 
-[https://www.reuters.com/article/us-taiwan-china-security/taiwan-scrambles-air-force-again-after-chinese-exercises-in-south-china-sea-idUSKBN2AK0HX](https://www.reuters.com/article/us-taiwan-china-security/taiwan-scrambles-air-force-again-after-chinese-exercises-in-south-china-sea-idUSKBN2AK0HX)
+[https://www.newsmax.com/newsmax-tv/mike-pompeo-secretary-of-state-ccp-trade-war/2021/02/20/id/1010835/](https://www.newsmax.com/newsmax-tv/mike-pompeo-secretary-of-state-ccp-trade-war/2021/02/20/id/1010835/)
 
 0

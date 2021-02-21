@@ -1,27 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 是政治追杀还是真相的封锁
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/923357/)
+## 加拿大政府曾拨款$83万支持与武汉病毒所合作的项目
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/923190/)
 
-文章作者：台湾准宝岛农场motdfry(文旦)
-![]()![](https://gnews.org/wp-content/uploads/2021/02/擷取221-3.png)
-YouTube拿下了「Newsmax」新闻对前总统川普（特朗普）的最新采访，这是谷歌打击保守派的最新行动。
+加拿大多伦多枫叶农场 文永
+![]()![](https://gnews.org/wp-content/uploads/2021/02/whitehouse.news_.jpg)*图片来源: whitehouse.news*
+据加拿大《义军新闻》（RebelNews）报道[\[1\]](https://www.rebelnews.com/trudeau_research_grant_nearly_one_million_dollars_covid19_research_wuhan_virus_research_laboratory)，加拿大特鲁多政府出资$83万资助一项针对中共病毒的研究项目，而该项目将与中共病毒的发源地 — 武汉病毒研究所密切合作。
 
-美国新闻媒体「Newsmax」发言人通过电子邮件告诉英文《大纪元时报》，该公司被告知，2月17日对川普的采访已被从YouTube上删除，因为它违反了YouTube的社区准则。
+根据加拿大政府官方网站公告[\[2\]](https://www.canada.ca/en/institutes-health-research/news/2020/03/government-of-canada-invests-27m-in-coronavirus-research--details-of-the-funded-projects.html)，加拿大政府拨款$82.8万加元，资助一项针对提高中共病毒即时检测技术的研究项目。该项目由阿尔伯塔大学乐晓春教授主导，参与方包括阿尔伯塔大学、加拿大食品检测局、以及武汉病毒研究所。而在项目内容中还赫然写着“项目的中期目标是在本次病毒大流行的中心地带进行测试，以此来验证我们的即时检测方法。我们项目组在武汉的成员将会主导这部分工作”。也就是说，这部分工作很可能是由武汉病毒研究所完成。根据加拿大政府网站[\[2\]](https://www.canada.ca/en/institutes-health-research/news/2020/03/government-of-canada-invests-27m-in-coronavirus-research--details-of-the-funded-projects.html)显示，该项目的开始时间为2020年3月1日，为期两年。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-44.png)*图片来源：Government of Canada*
+虽然该项目致力于研究中共病毒的检测技术，但是与武汉病毒研究所的密切合作，让人们深感不安。
 
-在总统大选过后，前美国总统川普先生，也开始露面并说话，但还是如同总统大选那一刻被社交媒体给封杀，封杀的缘由说明它违反了社区准则，但这与事实及事情完全没有帮助，因为害怕自己(社交媒体)当初所作的一切发生变故，怕前总统的演讲是为了消灭他们或揭发他们，所以害怕他所说的一切，已经不再总统选举之战中了，但还是持续地进行封杀，让这个问题变成一个常态性，这才是最可怕的，在一个民主自由的社会中，压制其他异议的声音，并编造理由让他不见，却让专制独裁的国家级人员可以自由的发声并宣传，如此的两极化，如此的不可思议，打着自由由论的平台，却限制为自由民主发声的人，一个是为了自己的利益，一个是为了他人的利益，这个明显的区别，明显的差异，及影响是我们要沉思的，因为这个可能将会发生在你头上，当发生在你头上之时，你又如何解决呢?，这一切背后的黑手中共，输出利益及威胁，影响着世界，影响着你我们生活，传播真相让更多人知道，让更多人沉思，你的一小步将是灭共的一大步。
+根据《华盛顿邮报》报道[\[3\]](https://webapps.cihr-irsc.gc.ca/funding/detail_e?pResearchId=9136708&amp;p_version=CIHR&amp;p_language=E&amp;p_session_id=3266369)，美国政府早在2018年就对武汉病毒研究所的研究内容表示担忧，并派出科研人员去武汉病毒研究所访问。在提交给华盛顿的一份报告中，美国科研人员警告本国政府，武汉病毒研究所正在从事的蝙蝠冠状病毒的潜在人传人可能性的研究有可能引发全球性病毒大流行。
 
-[参考资料:YouTube删除川普最新采访视频](https://www.epochtimes.com/b5/21/2/20/n12764450.htm)
+而中共在中共病毒问题上的一贯不透明的做法，也已经是众所周知的问题。在本篇报道中也援引了美联社的文章[\[4\]](https://apnews.com/article/68a9e1b91de4ffc166acd6012d82c2f9)，指出中共去年一月份，在已经了解病毒传播可能造成大流行的情况下，依然压制病毒真相，并在6天后举行万家宴，造成更大面积感染，而武汉当地的医生也因为受到政府威胁而噤声。
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+中共制下的科学家，要么为了保全自身而与中共政府保持一致，要么就会被消失。由于此次全球疫情造成的死亡以及经济的重创，中共应负全部责任。而加拿大政府也应当停止把加拿大普通民众的血汗钱拿来与中共合作。
 
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+评：
+加拿大特鲁多政府和中共的合作已久，而在中共病毒大流行后，这种做法引起加拿大民众的强烈不满。在该报道下面有大量留言，谴责加拿大政府的这种做法。我们可以看到，大量普通民众已经觉醒。
 
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+[原文链接](https://www.rebelnews.com/trudeau_research_grant_nearly_one_million_dollars_covid19_research_wuhan_virus_research_laboratory)
 
-文章审核：zhong
+* * *
 
-文章发布：Little Liu
+校对 文锦
+发稿 云起时
 
 0
