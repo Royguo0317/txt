@@ -1,33 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德时评简讯（视频版）：川普发表声明抨击参议员麦康奈尔 (2021.2.16晚间 路德社简讯之路博艾冠谈 ）
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/923116/)
+## 【每日快讯】20/02/2021:郭先生和联盟将成立一个公司承担VOG和凤凰的债权债务，战友在VOG所有的损失无条件承担
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/923216/)
 
-《路德社》出品
+**制作:Cantonese工作室**
+播报: 【安妮】
+资料整理: 【文依】【An】【安妮】【美国小李】
+海报制作: 【文绉绉】【侬民】
+视频制作: 【Shawn】
+上传: 【Shawn】
+**摘要:**
 
-以下视频是详细内容：
-
-主要内容：
-
-1.川普发表声明抨击参议员麦康奈尔
-
-2.川普总统计划全力改造共和党
-
-3.南华早报以中共口吻攻击闫丽梦博士
-
-4.袁国勇的行为再次验证了中共隐瞒疫情真相
-
-5.闫博士的论文必将青史留名
-
-
-
-翻译：路德社翻译组
-
-制作：路德社简讯视频组
-
-审核校对：玫瑰新闻组
-
-上传排版：玫瑰新闻组
-
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210220-zhTW-01.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210220-zhTW-02.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210220-zhTW-03.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210220-zhTW-04.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210220-zhTW-05.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210220-zhTW-06.jpg)
 0

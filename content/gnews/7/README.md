@@ -1,26 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥：拜登的中共政策“令人沮丧”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/923315/)
+## 中共在南海军演扰台2月创最大规模
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/923346/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+# 文章作者：台湾准农场一叶一菩提 
+![Resultado de imagen de 中共11架軍機](https://lh5.googleusercontent.com/i3RJxCVl9Dek-ncQm3mNQx27xqv8o6Q-2TlIFzXqQjbzftbhTXiySmIXgnBTE-oDF9aiiAuah1PO0cMHuKBvUqaTq9o06gXcWngcrSYvtdGT_8078w1HrsbbWwWLR9avOqxI5HeY)
+2月20日[台湾](https://www.epochtimes.com/b5/tag/%e5%8f%b0%e7%81%a3.html)国防部表示，中共军队近日在东沙岛（Pratas Island）北方，有争议的南海地区进行军演，军演后2架歼-10、2架歼-16、4架歼轰- 7、2架轰-6K以及1架运-8反潜机共11架中共军机侵扰台湾西南防空识别区（ADIZ），台湾立刻派遣空中巡逻兵力应对、广播警告驱离以及部署防空导弹追踪监控飞行行动，这是本周中共军机连续第三天的侵扰行动，也是2月以来最大规模的扰台行动。
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/下载-23.jpg)[freenews.live](https://freenews.live/reuters-pompeo-to-meet-with-the-chinese-delegation/)
+美中台三国角力平衡台海、南海局势，抑制共产极权扩张。 （2月17日）美军伯克级驱逐舰拉塞尔号（DDG-59）在南沙群岛进行了自由航行活动。中国、越南、台湾、马来西亚、文莱和菲律宾都声称对南沙群岛的全部或部分海域拥有主权
 
-本周，美国总统乔·拜登(Joe Biden)在美国有线电视新闻网(CNN)市政厅发表了“文化常态”的侮辱性言论——拜登似乎接受中共对维吾尔族穆斯林侵犯人权的行为，将其视为不同的文化“规范”——令前国务卿迈克·蓬佩奥(Mike Pompeo)感到“沮丧”。
+2月19日台湾针对共军扰台加剧、侵台意图，对高层安全官员进行改组，包括任命一名新的、受过美国训练的国防部长，以帮助加强军事现代化和情报工作，以应对日益增长的中共军事威胁。
 
-蓬佩奥接受Newsmax TV的《周六议程》(Saturday Agenda)访谈时表示，“把这当作一种不同的规范或一套不同的行为，这是中国共产党的说法。”种族灭绝是反人类的罪行，“这与不同的文化或不同的规范无关，这是对人权的严重侵犯。”
+中共一向反对美军在南海实施航行自由行动，所以此次演习对台湾和美国之间合作做出了相对的回应，也对台湾进行了另一波的威胁。
 
-蓬佩奥指出，美国国务卿布林肯同意川普政府将中共对待维吾尔族的做法归类为“种族灭绝”，因此拜登总统需要接受这个认定。“听到一位美国总统以这样一种方式谈论此事，并没有表明必须严肃对待此事，这令人沮丧。”蓬佩奥认为这是拜登上任后的一次失态之举，而拜登很快就会意识到这一严重后果。
+# 参考资料:
 
-蓬佩奥警告到，拜登必须反对中共“习近平的霸权欲望”，因为美国人民不会允许中共侮辱美国。
+- [中共在南海军演11军机扰台2月来最大规模](https://www.epochtimes.com/b5/21/2/20/n12764634.htm)
 
-蓬佩奥在川普政府担任国务卿期间以强硬政策应对中共威胁，倍受赞誉。2月17蓬佩奥和前国家安全顾问罗伯特•奥布莱恩成为尼克松基金会(Nixon Foundation)“圆桌会议”的联席主席，从月起每月定期主持研讨会并就外交政策问题发表意见。该研讨会主要关注的一些问题包括美国与中共的关系、全球技术创新以及持久的中东和平，推进以保守现实主义为基础有利于美国国家利益的世界大国之间保持平衡的政策。讨论的建议将每月在网站上公布并推广给拜登政府和国会的政策制定者。
 
-参考链接：
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-[https://www.newsmax.com/newsmax-tv/mike-pompeo-secretary-of-state-ccp-trade-war/2021/02/20/id/1010835/](https://www.newsmax.com/newsmax-tv/mike-pompeo-secretary-of-state-ccp-trade-war/2021/02/20/id/1010835/)
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+
+文章审核：zhong
+
+文章发布：Little Liu
 
 0

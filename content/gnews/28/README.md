@@ -1,33 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 再现危机？法国卫生部长表示担忧
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/922905/)
+## 【战友心声】从肢体语言解读闫博士
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/922936/)
 
-```
-记者: Hugues Garnier, 2021.02.20, BFM TV
- 
-翻译整理：旦旦 校对/发稿人: Ting Guo
-```
-
-
-因为疫情在滨海阿尔卑斯省 (Alpes-Martimes)的迅速扩展，法国卫生部长韦郎 (Olivier Véran) 在该省的省会城市尼斯 (Nice) 发表讲话：“最近三天的趋势不再令人乐观，昨日的数据与上周五相比，增加了3000多例确诊。” 同时他提到，很可能会在尼斯实行局部封城。
-
-报道中还引用了Covid追踪网 (CovidTracker)于2月19日的数据，显示确诊病例的下降速度正在减缓，从18日的-6%到19日的-5%。
+作者：纽约香草山福音部 小草
 
 
 
-> La décroissance du nombre de cas continue de décélérer -5% sur une semaine (hier on était à -6%). On détecte 18 245 cas chaque jour. [https://t.co/h81zmT4L1e](https://t.co/h81zmT4L1e) [#ThreadCovid](https://twitter.com/hashtag/ThreadCovid?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1wRwmhjtEy](https://t.co/1wRwmhjtEy)
-> — GRZ – CovidTracker (@GuillaumeRozier) [February 19, 2021](https://twitter.com/GuillaumeRozier/status/1362837197481795590?ref_src=twsrc%5Etfw)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
-根据BFM TV的消息，法国总统马克龙 (Emmanuel Macron)决定再等待8至10天来观察并决定下一步公共卫生令。
+新冠疫情爆发之后，闫博士勇敢地站了出来，发出呐喊、揭穿真相。她让我们看到了一个人的底色：不仅仅是为了活着，而是把自己的才能拿出来服务别人，是在多数人不敢讲话的时侯讲真话，真正有尊严的生活在这个世界上。我想从肢体语言的角度，来解读这位了不起的人。
 
-**评论：法国及欧洲各国政府的举措不仅令人失望，更是让人愤怒。他们只做表面功夫，凭借数据来颁布所谓的公共卫生措施，没有人能够提出病毒危机的来源：共产党。如闫博士所说，共产党在这个病毒里埋了很多雷，现在世界各地出现的变种毒株以及高居不下的病例数，足以证明共产党的邪恶。请战友们保护好自己及家人的安全，继续宣传病毒真相！**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/image-152.png)
 
-**（免责声明：本文的简评只代表译者观点，跟GNEWS平台无关。）**
+**音色和语调**
 
-**原文链接：**[COVID-19: Véran déplore que “la tendance sur les trois derniers jours n’est plus bonne” en France](https://www.bfmtv.com/sante/covid-19-veran-deplore-que-la-tendance-sur-les-trois-derniers-jours-n-est-plus-bonne-en-france_AV-202102200159.html)
+闫博士的音区偏高，声音相对尖细，喉区位置靠前，鼻息轻。如果她参加“我是音雄”节目，大概率会是高音区中的唱歌选手。她的口腔共鸣传达很清晰，即使说英文时有些许口音，也能让英文受众听得清楚。
+
+闫博士的语调是中频，不会让人听得很费劲，相反还能让人感受到她情感的波动，且无任何逼迫感。她语速平静，回答采访问题时，前面三句音域会先偏高和快速，后面节奏适中，重音和怒音也有恰当的使用。
+
+**肢体和步态**
+
+闫博士的故乡是青岛。山东的影视代表人物，巩俐，其体征偏向高、壮和丰满。闫博士确实高，但体脂薄，身材匀称。她活动时脚步轻盈，步伐稳，姿势舒张大方，且不喜欢过多应用手势。她说话时腿部活动少，手掌不握拳，手心向上，朝向观众。在川普酒店路德采访中的她，表现出视路德为朋友且信任的姿态，肌肉不僵硬，偶尔还有小姑娘的娇羞感。
+
+**眼神交流和着装**
+
+我们天使的眼神中，一直平静且带着信任。她从班农先生背后看他时，带着尊严和对等，表明“我们都是平等的，我说出真相是我的使命，我也不会依靠任何人”。她的眼神在任何采访者面前，都传达出真和善。而川普在新闻吹风会上，她望着福奇的眼神，展开来也是故事。
+
+闫博士喜欢裙装：从她的欧式婚纱，到第一次在川普酒店亮相的黑色连衣裙，再到自拍中的红色裙子。这是一位很温柔，心中很阳光的女性。在公众场合穿黑色连衣裙，既表现出场合的需要和尊重，也说明了病毒事实的黑暗——战胜它的人也需要黑色盔甲。在竞选夜班农直播中以米色开衫出现，表达了“我们是和平的新中国联邦人”。她的穿衣风格和人品达到了高度一致，用着装表达自己。
+
+**五官微表情和肌肉**
+
+闫博士来自文化之乡。她作为神童，传承了我们文化中的天道自强，而“北协和，南湘雅”的科学思维训练，让她具有足够的人文关怀。她的面部表情不复杂：若将她左右脸分开来对比，几乎重合；她用瞳孔和气息来表达情绪。她眨眼不多，脖子不前探，脊柱不倾斜，身体不晃荡。
+
+女神的美，体现在每一个细节中。
+
+（本文观点仅代表个人）
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
 
 +1
