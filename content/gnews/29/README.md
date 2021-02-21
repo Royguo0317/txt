@@ -1,60 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国将暂时维持对中共国征收关税
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/924041/)
+## 中共对2020年美国大选的网络战袭击，牵出共和党大佬麦康奈尔及妻子赵小兰
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/924086/)
 
-新闻来源：《路透社》| 作者：Andrea Shalal、David Lawder | 发布时间：2021年2月19日
+##### 翻译报道：迷迭香
 
-翻译/简评：helloworld | 校对：helloworld | 审核：万人往 | Page：Daoiii
+##### 责编：白夜
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-69.jpg)[图片来源](https://gnews.org/wp-content/uploads/2021/02/1-69.jpg)
+2020年总统大选中，中共黑客对美国的多猫腻（Dominion）等选举计票机发动网络袭击，把川普总统的票改为拜登的票，导致美国总统宝座被拜登及民主党偷窃，从美国IT网络安全专家截获的实时攻击的数据中，我们可看到11月3号66%的改票攻击来自中共国的IP地址，在中国这样一个防火墙严格管控的地区，想伪装中共IP地址几乎不可能，而这些对美国大选发起进攻的的公司包括华为，阿里巴巴，中国联通，中国移动等。这是中共搞垮美国超限战的一个部分，直接把中共可以掌控的拜登推送到总统宝座，美国的民主被中共邪魔偷窃。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/QqbeI9XlsbGyU/images/a8258e2d-7879-4508-82cc-6d93e19b3424.jpg?asset_id=51d5587c-9083-4eda-9140-67666661c4f0&amp;img_etag=%22849bd9de1536c399c1acb6391b3dfd47%22&amp;size=1024)](https://spark.adobe.com/page/QqbeI9XlsbGyU/images/a8258e2d-7879-4508-82cc-6d93e19b3424.jpg?asset_id=51d5587c-9083-4eda-9140-67666661c4f0&amp;img_etag=%22849bd9de1536c399c1acb6391b3dfd47%22&amp;size=1024)来源(finshots)
+参议院少数党领袖麦康奈尔的妻子赵小兰被涉入其中，根据纽约时报报道，赵小兰出生在台湾，他的父亲赵锡成(James S.C. Chao)在1949年共产党掌权前逃离中国，他曾经一度和后来的中国国家主席江泽民是同校同学。1964年，赵锡成建立了总部位于纽约的福茂集团(Foremost Group)，在江泽民成为中共领导人之后，赵氏家族的船运公司业务集中在中国，在赵小兰担任美国交通部长期间，美国的航运业日趋萧条，而她家的公司不仅在中共那里得到订单，没有船，中共直接出钱给她家造船，赚的金银满钵。在她的任命听证会上，赵小兰没有提及她的家族与中国航运业的广泛联系。尽管参议院的的问卷要求提名者列出所有荣誉职位，她也没有披露其曾在中国获得的荣誉，比如武汉市政府的国际顾问。一名交通部官员竟然称这是个疏忽。
 
-***简评：***
+赵小兰不仅仅隐瞒了她是武汉市政府的国际顾问，她还在美国国会及美国情报机构对总统内阁高级候选人提名的国家安全背景调查中隐瞒了她在一家和中国联通合资的公司Multicom 任董事。 而中国联通就是这次大选偷票的黑客公司之一。Multicom， 是一家位于美国加州洛杉矶的工业宽带提供商，与中国铁路电信公司组建的合资企业在中国拥有74，000网络线路和26，000英里的光缆。
 
-**美财政部长耶伦表示，拜登政府暂时保持着川普政府时期对中共国的关税水平，但将继续评估未来如何进行，并敦促中共国履行贸易协议承诺。拜登政府关注中共国人权、贸易、技术转让和高科技补贴问题，但也希望在结束疫情和气候变化方面与其合作。**
+据中国专家爆料，赵小兰与China gate，Muulticom，中共军方，中共网络间谍都有密切联系，不仅如此，她还和唐人街有洗钱丑闻的中心有联系。这也是为什么麦康奈尔 会背叛川普总统，第一个公开祝贺拜登，并呼吁所共和党人“停止抵抗”。显然这是中共的说客赵小兰和 麦康奈尔必然的选择。
 
-**由于中共国通过人造病毒疫情支持民主党上台，美国左派对中共国还存在幻想，认为能通过协议、谴责和合作对抗解决中共国造成的威胁。但是，由于中共国内部经济和民生压力，内化解决这些问题其实已经不可能。中共国所有采取的行为，像一带一路、缅甸、南海、香港、病毒等，与其说是战略手段，不如说是不得已采取的下下策，让其和平收手是绝不可能的。**
+前天川普总统抨击麦康奈尔不适合继续担任共和党的领袖职务。首先是麦康奈尔的能力不行。川普毫不客气的指出他缺乏政治智慧，非常不聪明，丢了参议院多数党的地位，被民主党玩弄得团团转，并明说麦康奈尔一直都是“华盛顿圈优先”而不是“美国优先”，因为他是华盛顿沼泽的一员。其实最重要的原因是他和赵小兰都是中共的走狗。我相信麦康奈尔和赵小兰有一天会跟中共一起走进历史的垃圾堆。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/QqbeI9XlsbGyU/images/7701fe6b-77e8-453e-97ce-4694f01eedfd.jpg?asset_id=fbb08aa3-d241-4b8f-a795-fd1f8f06f41b&amp;img_etag=%22e64dff8e21249e5521e694f1643ee0e1%22&amp;size=2560)](https://spark.adobe.com/page/QqbeI9XlsbGyU/images/7701fe6b-77e8-453e-97ce-4694f01eedfd.jpg?asset_id=fbb08aa3-d241-4b8f-a795-fd1f8f06f41b&amp;img_etag=%22e64dff8e21249e5521e694f1643ee0e1%22&amp;size=1024)
-
-**实践出真知，民主党等左派此前认为川普的做法过于激进，但在亲自上阵并收获失败苦果后才会认清现实，放弃绥靖。**
-
-***原文翻译：***
-
-## 耶伦表示，美国将暂时维持对中共国征收关税的做法
-
-路透社华盛顿报道——美国财政部长珍妮特·耶伦(Janet Yellen)周四对CNBC表示，美国将暂时维持前川普政府对中共国商品征收的关税，但将在全面审查后评估如何继续进行。
-[!\[\]()!\[\](https://spark.adobe.com/page/QqbeI9XlsbGyU/images/c55a9f22-2883-4bc0-b08b-baabc879ea0a.png?asset_id=8dd3a12a-de57-4675-b550-383a0b60d0ad&amp;img_etag=%2266378bb713ccf93e5813355d8afd4406%22&amp;size=1024)](https://spark.adobe.com/page/QqbeI9XlsbGyU/images/c55a9f22-2883-4bc0-b08b-baabc879ea0a.png?asset_id=8dd3a12a-de57-4675-b550-383a0b60d0ad&amp;img_etag=%2266378bb713ccf93e5813355d8afd4406%22&amp;size=1024)图片资料：2017年12月13日，在美国华盛顿举行了为期两天的联邦公开市场委员会(FOMC)。会后，美国财政部长、前美联储主席珍妮特·耶伦举行了新闻发布会。（图片来源：路透社/Jonathan Ernst）
-耶伦接受有线电视新闻网（CNN）采访时说：“目前，我们仍保持川普政府设定的关税水平……我们将评估我们认为合适的未来关税水平。”她补充说，华盛顿希望北京当局遵守贸易方面的承诺。
-
-当被问及关税是否起到作用时，耶伦犹豫了一下，然后说：“我们会研究这个问题。”
-
-白宫上月表示，将审查前总统唐纳德·川普所采取的所有国家安全措施，包括与北京达成的临时贸易协议。
-
-该协议缓解了全球两个最大经济体之间的紧张关系。此前美国专家估计，这场破坏性的贸易战导致美国损失高达24.5万个工作岗位。但至今，双方的大部分关税仍然存续。
-
-最近一项研究显示，根据川普在2020年1月签署的临时协议，中共国承诺在两年内额外购买2000亿美元的美国商品和服务，但北京距离去年承诺的目标还差42%。
-
-美国总统拜登发誓与盟友修复关系，但对中共国仍保持强硬立场。拜登总统本周警告说，北京将为侵犯人权的行为付出代价。
-
-耶伦对CNBC说：“我们正在评估我们应对中共国采取的做法。但我们看到了实践中存在的一系列不平等问题。”她提到了对中共国在贸易、强制技术转让和对高科技产业补贴方面行为的担忧。
-
-她说：“我们要确保我们确实解决并要求中共国履行在这些领域的国际义务。”
-
-她说，两国还需要在一些领域进行合作，例如努力结束疫情和应对气候变化。
-
-由Andrea Shalal和David Lawder报道，Leslie Adler和Karishma Singh编辑。
-
-[**原文链接**](https://www.reuters.com/article/us-usa-trade-china/yellen-says-u-s-will-keep-tariffs-on-china-in-place-for-now-idUSKBN2AI34D)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-[!\[\]()!\[\](https://spark.adobe.com/page/QqbeI9XlsbGyU/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/QqbeI9XlsbGyU/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
+[参考链接](https://theamericanreport.org/2021/02/19/chinas-cyberwarfare-attack-on-2020-us-election-tied-to-mcconnells-ccp-connected-wife-chao/)
 
 0
