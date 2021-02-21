@@ -1,53 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 台湾首度对千人计划涉案开罚学者促国安介入
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/923317/)
+## 加拿大政府曾拨款$83万支持与武汉病毒所合作的项目
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/923190/)
 
-# 文章作者：台湾准农场一叶一菩提 
-![https://media.discordapp.net/attachments/742415373571457025/812789370644856833/Captura_de_pantalla_2021-02-20_a_las_5.54.24_p._m..png?width=905&amp;height=513](https://lh5.googleusercontent.com/hvXVhw44SlKEeItvuFmmPVkfEOjXhIcw1jS7shEH2866uJc_2ayQ6tbvZiph2a7SzYUWT6BYFnWXKP54YC3i3OnHrpzrApBbUU46mFGi7Ftunx3vpPHm6TnVfDEiFxlYJ5ofHgZF)
-台大教授李笃中未经许可，主持中国4项研究计划，违反两岸条例，台湾教育部首度针对台湾教授、学者涉及中共「千人计画」，予以开罚。陆委会发言人邱垂正表示，将持续会同了解台湾有无相关人员违法情事。
+加拿大多伦多枫叶农场 文永
+![]()![](https://gnews.org/wp-content/uploads/2021/02/whitehouse.news_.jpg)*图片来源: whitehouse.news*
+据加拿大《义军新闻》（RebelNews）报道[\[1\]](https://www.rebelnews.com/trudeau_research_grant_nearly_one_million_dollars_covid19_research_wuhan_virus_research_laboratory)，加拿大特鲁多政府出资$83万资助一项针对中共病毒的研究项目，而该项目将与中共病毒的发源地 — 武汉病毒研究所密切合作。
 
-# **台大教授参与千人计划被罚**
+根据加拿大政府官方网站公告[\[2\]](https://www.canada.ca/en/institutes-health-research/news/2020/03/government-of-canada-invests-27m-in-coronavirus-research--details-of-the-funded-projects.html)，加拿大政府拨款$82.8万加元，资助一项针对提高中共病毒即时检测技术的研究项目。该项目由阿尔伯塔大学乐晓春教授主导，参与方包括阿尔伯塔大学、加拿大食品检测局、以及武汉病毒研究所。而在项目内容中还赫然写着“项目的中期目标是在本次病毒大流行的中心地带进行测试，以此来验证我们的即时检测方法。我们项目组在武汉的成员将会主导这部分工作”。也就是说，这部分工作很可能是由武汉病毒研究所完成。根据加拿大政府网站[\[2\]](https://www.canada.ca/en/institutes-health-research/news/2020/03/government-of-canada-invests-27m-in-coronavirus-research--details-of-the-funded-projects.html)显示，该项目的开始时间为2020年3月1日，为期两年。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-44.png)*图片来源：Government of Canada*
+虽然该项目致力于研究中共病毒的检测技术，但是与武汉病毒研究所的密切合作，让人们深感不安。
 
-台湾大学化工系教授[李笃中](https://www.epochtimes.com/b5/tag/%e6%9d%8e%e7%af%a4%e4%b8%ad.html)去年参与台湾科技大学校长遴选时，被爆料曾出任中共长江学者，并涉及主持中共国家研究计划。当时李笃中发表退选声明，澄清依规定而且未接受对岸兼职合约。
+根据《华盛顿邮报》报道[\[3\]](https://webapps.cihr-irsc.gc.ca/funding/detail_e?pResearchId=9136708&amp;p_version=CIHR&amp;p_language=E&amp;p_session_id=3266369)，美国政府早在2018年就对武汉病毒研究所的研究内容表示担忧，并派出科研人员去武汉病毒研究所访问。在提交给华盛顿的一份报告中，美国科研人员警告本国政府，武汉病毒研究所正在从事的蝙蝠冠状病毒的潜在人传人可能性的研究有可能引发全球性病毒大流行。
 
-接获检举后，教育部随即展开调查，18日证实，[台大教授](https://www.epochtimes.com/b5/tag/%e5%8f%b0%e5%a4%a7%e6%95%99%e6%8e%88.html)[李笃中](https://www.epochtimes.com/b5/tag/%e6%9d%8e%e7%af%a4%e4%b8%ad.html)自2009年起，未经许可，连续11年以中国哈尔滨工业大学之名，担任多项中国科技部主管、国家自然科学基金委员会的研究计画负责人，进行了3项计划，金额共165万人民币，另外以复旦大学名义合作一项80万人民币的研究计划，共4案总研究经费245万人民币（约1000万元台币），皆未经主管机关许可，已违反两岸关系条例第33条之一第一项第一款规定，教育部也依两岸条例第90条之二第一项规定，处以30万新台币（约7万人民币）的罚款，成为台湾学者参加中共「千人计划」被开罚的首例。
+而中共在中共病毒问题上的一贯不透明的做法，也已经是众所周知的问题。在本篇报道中也援引了美联社的文章[\[4\]](https://apnews.com/article/68a9e1b91de4ffc166acd6012d82c2f9)，指出中共去年一月份，在已经了解病毒传播可能造成大流行的情况下，依然压制病毒真相，并在6天后举行万家宴，造成更大面积感染，而武汉当地的医生也因为受到政府威胁而噤声。
 
-**涉案人所涉及之两岸关系条例**
+中共制下的科学家，要么为了保全自身而与中共政府保持一致，要么就会被消失。由于此次全球疫情造成的死亡以及经济的重创，中共应负全部责任。而加拿大政府也应当停止把加拿大普通民众的血汗钱拿来与中共合作。
 
-两岸关系条例第33条之一第一项第一款规定
+评：
+加拿大特鲁多政府和中共的合作已久，而在中共病毒大流行后，这种做法引起加拿大民众的强烈不满。在该报道下面有大量留言，谴责加拿大政府的这种做法。我们可以看到，大量普通民众已经觉醒。
 
-台湾地区人民、法人、团体或其他机构，非经各该主管机关许可，不得为下列行为：与大陆地区党务、军事、行政、具政治性机关(构)、团体或涉及对台政治工作、影响国家安全或利益之机关（构)、团体为任何形式之合作行为。
+[原文链接](https://www.rebelnews.com/trudeau_research_grant_nearly_one_million_dollars_covid19_research_wuhan_virus_research_laboratory)
 
-两岸条例第90条之二第一项规定
+* * *
 
-违反第三十三条之一第一项或第三十三条之二第一项规定者，处新台币十万元以上五十万元以下罚锾，并得按次连续处罚。违反第三十三条之一第二项、第三十三条之三第一项或第二项规定者，处新台币一万元以上五十万元以下罚锾，主管机关并得限期令其申报或改正；届期未申报或改正者，并得按次连续处罚至申报或改正为止。
-
-**学者敦促台湾政府应效法美国** **国安单位应介入调查**
-
-中共各项的研究计划不一定有公告，台湾各阶层是否有人涉及，只有同行、亲近的人泄露才会知道，或是在出版、发表的文章中露馅。这次李笃中案是因为参与台科大校长的遴选，才被爆料出来。
-
-台湾大学特聘教授吴瑞北认为，美国最近处理美国大学涉及中共「千人计划」，所开罚的金额是台湾三十倍到五十倍，甚至于逮捕、起诉、解聘的都有。但是台湾查了这么久，只有李笃中一人。他建议，台湾国安单位应该去美国请教怎么处理「千人计划」，教育部没这方面的能力及权限去审查中国，除非中共愿意配合，但是事实告诉我们“不可能”。
-
-此外吴瑞北还指出了一个非常严重的国安问题，中共明显用「千人计划」有系统地拿取智慧财产权。台湾曾有教授到大陆执行太空科学方面计划。台湾应该针对机密性领域做更严格地规范、把关。
-
-# 参考资料:
-
-- [【独家】【赴中兼职风暴】连续11年逾千万！李笃中再爆违法主持中国科技部研究计画](https://www.mirrormedia.mg/story/20200915inv018/)
-- [台大教授参与千人计划被罚学者促台国安介入](https://www.epochtimes.com/b5/%2021/2/20/n12764359.htm)
-- [台湾中华民国法规资料库](https://law.moj.gov.tw/LawClass/LawSingle.aspx?pcode=Q0010001&amp;flno=33-1)
-- [台湾中华民国法规资料库之二](https://law.moj.gov.%20tw/LawClass/LawSingle.aspx?pcode=Q0010001&amp;flno=90-2)
-
-
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
-
-文章审核：zhong
-
-文章发布：Little Liu
+校对 文锦
+发稿 云起时
 
 0
