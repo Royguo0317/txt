@@ -1,60 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国将暂时维持对中共国征收关税
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/924041/)
+## 德国纳米学泰斗Roland Wiesendanger教授是什么级别？
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/923960/)
 
-新闻来源：《路透社》| 作者：Andrea Shalal、David Lawder | 发布时间：2021年2月19日
+**撰文作者： Birdie**
 
-翻译/简评：helloworld | 校对：helloworld | 审核：万人往 | Page：Daoiii
+罗兰-威森丹格（Roland Wiesendanger）教授被全世界公认为纳米科学专家，是欧洲首位连续三次获得欧洲研究委员会授予的ERC高级资助的科学家，曾担任国际纳米科学委员会主席。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Bild_2021-02-21_123246.png)威森丹格教授与七位诺贝尔奖得主共同出席Otto Stern论坛
+他还因“终极磁显微镜”的研究而于2003年获得菲利普莫里斯研究奖，并于2014年获得了首枚“海因里希·罗勒大勋章”。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/QqbeI9XlsbGyU/images/a8258e2d-7879-4508-82cc-6d93e19b3424.jpg?asset_id=51d5587c-9083-4eda-9140-67666661c4f0&amp;img_etag=%22849bd9de1536c399c1acb6391b3dfd47%22&amp;size=1024)](https://spark.adobe.com/page/QqbeI9XlsbGyU/images/a8258e2d-7879-4508-82cc-6d93e19b3424.jpg?asset_id=51d5587c-9083-4eda-9140-67666661c4f0&amp;img_etag=%22849bd9de1536c399c1acb6391b3dfd47%22&amp;size=1024)来源(finshots)
+在2016年朱利叶斯·斯普林格应用物理学奖的获奖辞中，称赞他的贡献为“在自旋极化扫描隧道显微镜和磁交换力显微镜方面的开创性研究使表面上单个原子的磁性和固体的自旋结构具有原子空间分辨率的突出显示成为可能。
 
-***简评：***
+威森丹格教授的团队培养了世界性的研究人员，其中21人已经获得德国、美国、日本、台湾和中国大陆的教授席位。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-33.jpg)威森丹格教授桃李满天下 nanoscience.de![]()![](https://media.discordapp.net/attachments/781305163851104285/813007202511880212/unknown.png)2012获得哈工大荣誉教授 （颁奖人：校长王树国）
+威森丹格教授其实并不是一些人所谓的“反华”教授，他为中国培养了多位顶尖纳米科学人才，最新的团队名单中，有四位来自中国的博士。在2012年还获得了哈工大的荣誉教授称号。
 
-**美财政部长耶伦表示，拜登政府暂时保持着川普政府时期对中共国的关税水平，但将继续评估未来如何进行，并敦促中共国履行贸易协议承诺。拜登政府关注中共国人权、贸易、技术转让和高科技补贴问题，但也希望在结束疫情和气候变化方面与其合作。**
+威森丹格教授还是欧洲科学院院士，在汉堡大学建立了德国国家纳米技术中心，是600多篇科学出版物以多本专著的作者或合著者，在德国和欧洲绝对是算得上是泰斗级科学家。
 
-**由于中共国通过人造病毒疫情支持民主党上台，美国左派对中共国还存在幻想，认为能通过协议、谴责和合作对抗解决中共国造成的威胁。但是，由于中共国内部经济和民生压力，内化解决这些问题其实已经不可能。中共国所有采取的行为，像一带一路、缅甸、南海、香港、病毒等，与其说是战略手段，不如说是不得已采取的下下策，让其和平收手是绝不可能的。**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/QqbeI9XlsbGyU/images/7701fe6b-77e8-453e-97ce-4694f01eedfd.jpg?asset_id=fbb08aa3-d241-4b8f-a795-fd1f8f06f41b&amp;img_etag=%22e64dff8e21249e5521e694f1643ee0e1%22&amp;size=2560)](https://spark.adobe.com/page/QqbeI9XlsbGyU/images/7701fe6b-77e8-453e-97ce-4694f01eedfd.jpg?asset_id=fbb08aa3-d241-4b8f-a795-fd1f8f06f41b&amp;img_etag=%22e64dff8e21249e5521e694f1643ee0e1%22&amp;size=1024)
-
-**实践出真知，民主党等左派此前认为川普的做法过于激进，但在亲自上阵并收获失败苦果后才会认清现实，放弃绥靖。**
-
-***原文翻译：***
-
-## 耶伦表示，美国将暂时维持对中共国征收关税的做法
-
-路透社华盛顿报道——美国财政部长珍妮特·耶伦(Janet Yellen)周四对CNBC表示，美国将暂时维持前川普政府对中共国商品征收的关税，但将在全面审查后评估如何继续进行。
-[!\[\]()!\[\](https://spark.adobe.com/page/QqbeI9XlsbGyU/images/c55a9f22-2883-4bc0-b08b-baabc879ea0a.png?asset_id=8dd3a12a-de57-4675-b550-383a0b60d0ad&amp;img_etag=%2266378bb713ccf93e5813355d8afd4406%22&amp;size=1024)](https://spark.adobe.com/page/QqbeI9XlsbGyU/images/c55a9f22-2883-4bc0-b08b-baabc879ea0a.png?asset_id=8dd3a12a-de57-4675-b550-383a0b60d0ad&amp;img_etag=%2266378bb713ccf93e5813355d8afd4406%22&amp;size=1024)图片资料：2017年12月13日，在美国华盛顿举行了为期两天的联邦公开市场委员会(FOMC)。会后，美国财政部长、前美联储主席珍妮特·耶伦举行了新闻发布会。（图片来源：路透社/Jonathan Ernst）
-耶伦接受有线电视新闻网（CNN）采访时说：“目前，我们仍保持川普政府设定的关税水平……我们将评估我们认为合适的未来关税水平。”她补充说，华盛顿希望北京当局遵守贸易方面的承诺。
-
-当被问及关税是否起到作用时，耶伦犹豫了一下，然后说：“我们会研究这个问题。”
-
-白宫上月表示，将审查前总统唐纳德·川普所采取的所有国家安全措施，包括与北京达成的临时贸易协议。
-
-该协议缓解了全球两个最大经济体之间的紧张关系。此前美国专家估计，这场破坏性的贸易战导致美国损失高达24.5万个工作岗位。但至今，双方的大部分关税仍然存续。
-
-最近一项研究显示，根据川普在2020年1月签署的临时协议，中共国承诺在两年内额外购买2000亿美元的美国商品和服务，但北京距离去年承诺的目标还差42%。
-
-美国总统拜登发誓与盟友修复关系，但对中共国仍保持强硬立场。拜登总统本周警告说，北京将为侵犯人权的行为付出代价。
-
-耶伦对CNBC说：“我们正在评估我们应对中共国采取的做法。但我们看到了实践中存在的一系列不平等问题。”她提到了对中共国在贸易、强制技术转让和对高科技产业补贴方面行为的担忧。
-
-她说：“我们要确保我们确实解决并要求中共国履行在这些领域的国际义务。”
-
-她说，两国还需要在一些领域进行合作，例如努力结束疫情和应对气候变化。
-
-由Andrea Shalal和David Lawder报道，Leslie Adler和Karishma Singh编辑。
-
-[**原文链接**](https://www.reuters.com/article/us-usa-trade-china/yellen-says-u-s-will-keep-tariffs-on-china-in-place-for-now-idUSKBN2AI34D)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/U9F97ur)
+***评论：这样一位泰斗级的科学家有理有据的发布论文公开指责中共的新冠病毒来自实验室，无疑会在知识界和科学界引起巨大反响，以威森丹格教授的名望这个时候站出来无疑再次打脸中共的病毒自然来源一说，在德国民众中增加了定性病毒是生化武器的可行度，以实际行动为闫博士2020年1月19日在全世界第一个站出来揭露新冠病毒是武汉实验室制造的中共生化武器的英雄行为站台。结合目前各地红衣大主教陆续站出来支持新冠病毒是中共生化武器来看，文贵先生前两周提到的爆料革命以毒灭共时代已经正式到来。***
 
 
-编辑：【英国伦敦喜庄园编辑部】
-[!\[\]()!\[\](https://spark.adobe.com/page/QqbeI9XlsbGyU/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/QqbeI9XlsbGyU/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
+**参考链接：**
+德国最大报社向中共发出强硬质问，让中共赔偿损失。（[Gnews报道](https://gnews.org/zh-hans/923921/)）**
+**德国纳米科学网站 威森丹格 教授页面 （[Nanoscience](http://www.nanoscience.de/HTML/group/people.html)）
+汉堡大学权威发布报告揭示中共病毒来自武汉病毒研究所实验室! ([Gnews](https://gnews.org/zh-hans/923921/)[报](https://gnews.org/zh-hans/917482/)[道](https://gnews.org/zh-hans/923921/) )
 
-0
+*其他工作人员：
+编辑及发表：西联777*
+
++1
