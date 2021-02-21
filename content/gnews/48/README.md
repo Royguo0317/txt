@@ -1,39 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美国参议员汤姆-科顿：中共入侵台湾意味着与美国的战争
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/922878/)
+## 北约秘书长：将应对中共威胁纳入北约战略
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/922946/)
 
-作者：纽约香草山写作组 四季
+俄罗斯莫斯科喀秋莎农场 银河
 
+编辑上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/图片15-3.png)Twitter
+路透社2月19日报道，北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）周五呼吁欧洲、加拿大和美国维护俄罗斯和中共正在挑战的基于规则的国际秩序，并将北京的崛起形容为一个决定性问题。
 
+中共日益强大的实力正在重塑这个大西洋联盟的优先事项。该联盟传统上关注来自俄罗斯的威胁，但现在正寻求西方国家共识，将认定北京不再是一个友好的贸易伙伴。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+斯托尔滕贝格在线上慕尼黑安全会议上表示:“中共和俄罗斯正试图改写国际规则，以造福各自的利益。”他指出，“中共的崛起是跨大西洋共同体的一个决定性问题，对我们的安全、我们的繁荣和我们的生活方式有潜在的后果。”
 
+尽管俄罗斯在这十年里仍将是北约的主要对手，但北约正在考虑将中共纳入北约的官方“战略概念”——以应对中共的军事崛起。
 
+斯托尔滕贝格说，这个由30个成员国组成的联盟还可以与澳大利亚和日本等非北约国家建立更紧密的关系。
 
-[Zero Hedge](https://www.zerohedge.com/geopolitical/china-invasion-taiwan-means-war-us-tom-cotton-argues)2月19日报道，参议员汤姆-科顿（Tom Cotton）周四呼吁美国在中共入侵台湾的情况下，应该采取新的政策。目前，美国通过武器销售对台湾进行武装，并维持一项被称为“战略模糊”的政策。这意味着，如果中共采取行动夺取台湾岛，则不能保证美国会实施干预。
+美国总统拜登周五表示，美国对北约的承诺是“不可动摇的”，并承诺遵守“对一个成员国的攻击就是对所有成员国的攻击”的原则。拜登在线上慕尼黑安全会议上说:“美国完全支持于我们的北约联盟，我欢迎你们不断增加对军事能力的投资，使我们能够共同防御。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/126.jpg)图源网络
+同时，拜登在与七国集团(G7)领导人进行的首次线上会晤中强调“美国回来了” ，
 
-科顿说，他希望清楚的表明，中共入侵台湾意味着与美国开战。他在里根研究所的一次活动中说：“美国需要明确，我们不会允许中共入侵台湾并征服它。这是肯定的，毫无争议的。”
+他说:“我知道过去几年我们的关系有些紧张，对我们跨大西洋的关系是一种考验，但是美国决心和欧洲重新接触，和你们协商，以赢回我们可信任的领导地位。”
 
-科顿在他的推特上说，中共一直在撒谎、偷窃、杀人上位。美国需要制定一个计划，打败这个新的邪恶帝国。 他提出了一些建议，包括：美国应该对与中共国的交易实行对外投资审查，美国人不应该资助中共国的科技和军事崛起；应该禁止向中共国的任何人出口美国最敏感的技术，而不仅仅是特定的中共公司；美国必须终止对中共国公民为期10年的多次入境签证计划——该计划允许中共间谍和知识产权窃贼随意进出美国。他说，中共正在使新疆人民遭受我们无法想象的恐怖。中共不是商业伙伴，它是对世界的威胁，我们必须阻止它；美国必须开始对窃取美国知识产权的中共国公司，甚至那些从窃取知识产权中受益的中共公司实行坚决的制裁。
+北约的表态让我们看到“中共的灭亡”的曙光。近期国际宗教界、学术界都开始重视疫情真相并逐步认可闫丽梦博士“病毒源自实验室的科学报告”。中共病毒是中共制造的生物武器是毋庸置疑的事实。虽然拜登政府透露出“绥靖”意愿，但是在国际内外压力面前，拜登表态遵守北约承诺，“对一个成员国的攻击就是对所有成员国的攻击”。当中共被认定生物武器攻击世界的时刻，中共生物武器触发北约应对最高级攻击的条款，按照军事冲突对等原则，对共联军将不宣而战。美国将会依照承诺，毫无选择的加入伐共战营。
 
-编辑/校对/发稿：Irene木木
+参考链接：
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+[https://www.reuters.com/article/us-germany-security-nato-idUSKBN2AJ24G](https://www.reuters.com/article/us-germany-security-nato-idUSKBN2AJ24G)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+[https://www.reuters.com/article/g7-meeting-biden-munich/update-1-biden-says-us-commitment-to-nato-is-unshakeable-idUSL1N2KP1RU](https://www.reuters.com/article/g7-meeting-biden-munich/update-1-biden-says-us-commitment-to-nato-is-unshakeable-idUSL1N2KP1RU)
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
-
-+1
++2
