@@ -1,33 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 再现危机？法国卫生部长表示担忧
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/922905/)
+## 【五月花报】95岁前纳粹集中营守卫被美国驱逐
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/923050/)
 
-```
-记者: Hugues Garnier, 2021.02.20, BFM TV
- 
-翻译整理：旦旦 校对/发稿人: Ting Guo
-```
+五月花写作组 | 作者：伞兵 | 编辑、发稿：jamie(文胤)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/95岁纳粹集中营守卫被美国驱逐1.jpg)图片来源：abc7news.com
+据美国司法部的消息，前纳粹集中营守卫弗雷德里克‧卡尔‧伯杰 （Freidrich Karl Berger）已被遣送回德国，成为第70名被美国驱逐的纳粹分子。
 
+今年95岁的伯杰，自1959年起定居于美国田纳西州。他被遣返的原因是于1945年在汉堡附近的诺因加默集中营中担任武装守卫。根据法庭文件，他在集中营”残酷“的条件下，负责看守十几名囚犯，逼迫他们“劳作至死”。此外，伯杰还参与了1945年3月该集中营的强制疏散行动。两星期的行军，外加恶劣的生存条件，最终导致了70名囚犯的死亡。
 
-因为疫情在滨海阿尔卑斯省 (Alpes-Martimes)的迅速扩展，法国卫生部长韦郎 (Olivier Véran) 在该省的省会城市尼斯 (Nice) 发表讲话：“最近三天的趋势不再令人乐观，昨日的数据与上周五相比，增加了3000多例确诊。” 同时他提到，很可能会在尼斯实行局部封城。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/95岁纳粹集中营守卫被美国驱逐2.jpg)图片来源：Neuengamme Concentration Camp complex – Alamy Stock Photo
 
-报道中还引用了Covid追踪网 (CovidTracker)于2月19日的数据，显示确诊病例的下降速度正在减缓，从18日的-6%到19日的-5%。
+由于在一艘于1945年五月被英军击沉的船中，发现了伯杰的名片，美国司法部据此得以确认伯杰在战争时期的身份。他一直不间断的领取来自德国的退伍养老金。
 
+根据 2010年《移民和国籍法》中的霍尔茨曼修正案，任何参与纳粹迫害、种族灭绝或实施任何酷刑或法外行刑的个人都将被美国驱逐。
 
+西方世界对纳粹主义的声讨并没有因历史的远去而淡化，反而持续不断，愈演愈烈，这为悍然在21世纪犯下反人类罪且抱有侥幸心理的残暴政权CCP发出的一个最有力的警告。
 
-> La décroissance du nombre de cas continue de décélérer -5% sur une semaine (hier on était à -6%). On détecte 18 245 cas chaque jour. [https://t.co/h81zmT4L1e](https://t.co/h81zmT4L1e) [#ThreadCovid](https://twitter.com/hashtag/ThreadCovid?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1wRwmhjtEy](https://t.co/1wRwmhjtEy)
-> — GRZ – CovidTracker (@GuillaumeRozier) [February 19, 2021](https://twitter.com/GuillaumeRozier/status/1362837197481795590?ref_src=twsrc%5Etfw)
+* * *
 
+参考来源：
 
+[US deports former Nazi concentration camp guard to Germany](https://nypost.com/2021/02/20/us-deports-former-nazi-concentration-camp-guard-to-germany/)
 
-根据BFM TV的消息，法国总统马克龙 (Emmanuel Macron)决定再等待8至10天来观察并决定下一步公共卫生令。
+[Judge Upholds Deportation Order For Former Nazi Concentration Camp Guard](https://www.newsweek.com/judge-upholds-deportation-order-former-nazi-concentration-camp-guard-1548903)
 
-**评论：法国及欧洲各国政府的举措不仅令人失望，更是让人愤怒。他们只做表面功夫，凭借数据来颁布所谓的公共卫生措施，没有人能够提出病毒危机的来源：共产党。如闫博士所说，共产党在这个病毒里埋了很多雷，现在世界各地出现的变种毒株以及高居不下的病例数，足以证明共产党的邪恶。请战友们保护好自己及家人的安全，继续宣传病毒真相！**
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
 
-**（免责声明：本文的简评只代表译者观点，跟GNEWS平台无关。）**
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
 
-**原文链接：**[COVID-19: Véran déplore que “la tendance sur les trois derniers jours n’est plus bonne” en France](https://www.bfmtv.com/sante/covid-19-veran-deplore-que-la-tendance-sur-les-trois-derniers-jours-n-est-plus-bonne-en-france_AV-202102200159.html)
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
-+1
+0

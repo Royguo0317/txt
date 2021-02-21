@@ -1,35 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【五月花报】95岁前纳粹集中营守卫被美国驱逐
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/923050/)
+## 【字幕】2/19/2021文贵：以毒灭共，是新中国爆料革命巨大的利器
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/923183/)
 
-五月花写作组 | 作者：伞兵 | 编辑、发稿：jamie(文胤)
-![]()![](https://gnews.org/wp-content/uploads/2021/02/95岁纳粹集中营守卫被美国驱逐1.jpg)图片来源：abc7news.com
-据美国司法部的消息，前纳粹集中营守卫弗雷德里克‧卡尔‧伯杰 （Freidrich Karl Berger）已被遣送回德国，成为第70名被美国驱逐的纳粹分子。
+制作： 【彩虹桥】
 
-今年95岁的伯杰，自1959年起定居于美国田纳西州。他被遣返的原因是于1945年在汉堡附近的诺因加默集中营中担任武装守卫。根据法庭文件，他在集中营”残酷“的条件下，负责看守十几名囚犯，逼迫他们“劳作至死”。此外，伯杰还参与了1945年3月该集中营的强制疏散行动。两星期的行军，外加恶劣的生存条件，最终导致了70名囚犯的死亡。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/95岁纳粹集中营守卫被美国驱逐2.jpg)图片来源：Neuengamme Concentration Camp complex – Alamy Stock Photo
 
-由于在一艘于1945年五月被英军击沉的船中，发现了伯杰的名片，美国司法部据此得以确认伯杰在战争时期的身份。他一直不间断的领取来自德国的退伍养老金。
+2021年2月19日：以毒灭共，是新中国爆料革命巨大的利器
 
-根据 2010年《移民和国籍法》中的霍尔茨曼修正案，任何参与纳粹迫害、种族灭绝或实施任何酷刑或法外行刑的个人都将被美国驱逐。
+以毒灭共，我们有两条路要走。第一条，一定从宗教、文化、知识界，人家是专家，这个专家是知识界 科学界、宗教界，这些人有说服力有更高的信用，更加信服，影响更多的人群，这才是核心。第二条路，我们要让全世界人看到，全世界的人都知道就是军界，最后一锤定音的，说这玩意是不是生化武器？是不是共产党病毒？是不是来自实验室？就是军界。
 
-西方世界对纳粹主义的声讨并没有因历史的远去而淡化，反而持续不断，愈演愈烈，这为悍然在21世纪犯下反人类罪且抱有侥幸心理的残暴政权CCP发出的一个最有力的警告。
-
-* * *
-
-参考来源：
-
-[US deports former Nazi concentration camp guard to Germany](https://nypost.com/2021/02/20/us-deports-former-nazi-concentration-camp-guard-to-germany/)
-
-[Judge Upholds Deportation Order For Former Nazi Concentration Camp Guard](https://www.newsweek.com/judge-upholds-deportation-order-former-nazi-concentration-camp-guard-1548903)
-
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
-
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
-
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+这不是政客能决定的，能最后让人类相信和臣服的、依靠的，那只有军界。这两条路走完，以毒灭共，大事告罄，大家千万不要忘了，我们是唯一一个在世界上，传播是第一个定义，这是共产党生化武器病毒的。我们是唯一一个向世界提供了，专业的闫博士科学家，我们的天使英雄的权威的两个报告的。我们是唯一一个讲羥氯喹和锌管用的。我们是唯一一个给世界上军方提供一个专业情报，还没有公开的，所以世界上想听到真实的第三方声音，你们看到的过去的无奈，就是我们的价值那只有新中国联邦。以毒灭共，是我们新中国联邦爆料革命，真正的大的巨大的，可以说是第一的利器。第二个就是我们香港的运动，以钱灭共的核心，就是打破了共产党致富、体面生活的垄断。
 
 0

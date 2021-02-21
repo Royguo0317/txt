@@ -1,23 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 缅甸封杀所有语言的维基百科
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/922753/)
+## 科顿议员：中共入侵台湾意味着与美国开战
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/922792/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+俄罗斯莫斯科喀秋莎农场   银河
 
 编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-20_20-59-19.jpg)[desperadoj.com](https://desperadoj.com/15.html)
-02月20日，非营利组织NetBlocks在其推特上报道，在2月初发生军事政变的缅甸，互联网百科全书维基百科已被封杀。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-20_21-24-44.jpg)[asia.nikkei.com](https://asia.nikkei.com/Spotlight/Asia-Insight/Taiwan-caught-in-US-China-diplomatic-crossfire)
+《零对冲》（Zerohedge）2月19日报道，参议员汤姆·科顿(Tom Cotton)周四呼吁美国就中共入侵台湾的情况出台新政策。目前，美国支持对台军售，并保持着一种被称为“战略模糊”的政策，这意味着如果北京采取行动，美国不保证会干预。
 
-缅甸国内无法访问所有语言的在线百科全书版本。在此之前，Facebook、Instagram、WhatsApp都被封锁了。这也是缅甸连续第六天晚上网络中断。2月14日，几乎全部关停。
+科顿表示，他想“非常清楚”地表明，中共入侵台湾意味着与美国开战。“美国需要明确，我们不会允许中共入侵和征服台湾”。科顿说，“用战略上的明确性取代模糊性，即如果中共强力入侵台湾，或以其他方式改变台湾海峡两岸的现状，美国将提供援助。”
 
-2月初，缅甸军方夺取了国家政权，并宣布进入紧急状态。权力转移到武装部队指挥官敏昂莱身上。
+美国智库外交关系协会(CFR)发布2021年版报告，由台湾引发的美中军事冲突危机登上全球潜在冲突的最高等级。中共当局一直未放弃对台湾不使用武力的承诺，习近平重申了这个承诺，并且喊出“祖国必须统一”。 1月28日中共国防部月度新闻发布会强硬警告台湾，威胁其坚持台湾独立将导致战争。台北指责北京连续派遣军机进入其领空进行恐吓，美国观察人士认为这是中共对美国拜登政府的试探。
 
-总统温敏（Vin Mying）和国务委员、诺贝尔和平奖获得者昂山素季（Aung San Suu Kyi）被拘留。军方指责前领导层操纵了去年11月的议会选举，当时执政的全国民主联盟党赢得了选举。政变发生后，缅甸爆发了大规模的抗议活动。
+在中台对抗中，美国川普政府支持台湾的态度明朗。2020年12月27日川普总统签署了联邦拨款法案，其中包含《2020年台湾保护法》（Taiwan Assurance Act of 2020），公开支持常态化对台军售，协助台湾当局发展及“整合不对称战力”，增强台湾自我防卫能力，以抵抗台湾面对的军事危机。
+
+新上任的拜登政府国务卿安东尼·布林肯(Antony Blinken)认可前总统川普对中共国采取的强硬立场，认为中共政府是美国面对的最大挑战。在台湾问题上，他称美国将坚持对台湾的承诺，“这项承诺的一部分是确保台湾有能力保卫自己不受侵略。这是一个绝对持久的承诺。”
+
+科顿参议员指出，这种支持策略还比较模糊，当台湾真正受到中共武力袭击时并不能保证美国的干预。美国应该为中共划定“红线”，要求华盛顿方面就台湾危机“做出回应”。
+
+科顿发表上述言论时，同时提出经济对抗中共的建议。科顿呼吁经济上与中共脱钩。他强调“我们的经济与中共的经济纠缠得太深了，为中共提供了对美国政府和行业的影响力。我们早该与中共脱钩了。”
 
 参考链接：
 
-[https://www.rbc.ru/rbcfreenews/60306ea39a79472dd5517ebe](https://www.rbc.ru/rbcfreenews/60306ea39a79472dd5517ebe)
+[https://www.zerohedge.com/geopolitical/china-invasion-taiwan-means-war-us-tom-cotton-argues](https://www.zerohedge.com/geopolitical/china-invasion-taiwan-means-war-us-tom-cotton-argues)
 
-+1
++2
