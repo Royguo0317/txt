@@ -1,45 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】从历史中汲取智慧和力量？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/922901/)
+## 再现危机？法国卫生部长表示担忧
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/922905/)
 
-作者：纽约香草山写作组 兰兰
+```
+记者: Hugues Garnier, 2021.02.20, BFM TV
+ 
+翻译整理：旦旦 校对/发稿人: Ting Guo
+```
 
 
+因为疫情在滨海阿尔卑斯省 (Alpes-Martimes)的迅速扩展，法国卫生部长韦郎 (Olivier Véran) 在该省的省会城市尼斯 (Nice) 发表讲话：“最近三天的趋势不再令人乐观，昨日的数据与上周五相比，增加了3000多例确诊。” 同时他提到，很可能会在尼斯实行局部封城。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-2021年2月19日，墙国教育部官网上有一篇来自《人民日报》的文章：“从历史中汲取智慧和力量”。该文是教育部党组织书记、部长所写。这个标题很让人惊讶：难道这是对传统历史与文化的重视吗？是要教导人们重视历史、正视历史、规划未来吗？可一看内容，就让人发笑了。
-
-中华民族的历史源远流长。可在这篇文章中，对于中华民族的历史只字未提——全篇幅都是在写要重视党史、国史。文中追述了毛泽东同志的“指出”内容：“如果不把党的历史搞清楚，不把党的历史上所走的路搞清楚，便不能把事情办得更好。”还有邓小平同志的“指出”内容：“每个党、每个国家都有自己的历史，只有采取客观的实事求是的态度来分析和总结，才有好处。”同时也引用了习近平总书记的“指出”内容：“学习党史、国史，是坚持和发展中国特色社会主义、把党和国家各项事业继续推向前进的必修课。这门功课不仅必修，而且必须修好。”
-
-![]()![](https://gnews.org/wp-content/uploads/2021/02/127.jpg)图源网络
-
-原来这篇文章是在强调从党史中汲取智慧和力量呀。那党到底是怎么来的？仿佛他人不知道一样，要宣传得这么冠冕堂皇。党在每次宣传的时候，总是说：“泱泱大国，有着五千年的文明。”新浪网的一篇文章《【中华】泱泱大国 上下五千年历史的文化》，也提到了“中华文明以其独特性和源远流长屹立于世界民族之林，至今仍光彩夺目。五千年的中华历史，源远流长。”而到了《人民日报》的文章里，到了教育部党组织书记这里，就成了从党史、国史中汲取智慧和力量，这不是前后矛盾吗？又或者是，党人知道党史和中华民族的历史格格不入，需要区分：中华民族的历史是中华民族的历史，我党史是我党史。尽管我党史只有100年，国史只有71年，那也还是做出了伟大的贡献，值得学习和宣扬。可实际上，这100年来对于中华民族来说，是一部辛酸史、屈辱史、灾难史、消亡史。
-
-当一个人自我膨胀的时候，实质上正是这个人缺乏自信，对自我进行的一种过度补偿行为。自我为了避免陷入自卑的痛苦，会有意或无意地使用更多的自我膨胀机制来保护自己。当一个党自我膨胀的时候，那这是一群人使用自我膨胀的机制来保护自己，剩下的所有人都是那一群人自我膨胀机制下的牺牲品。
-
-邪恶的党创造的邪恶的历史让人唾弃，让人憎恨，让人不耻。如今，还要从邪恶的党史中来汲取智慧和力量，那只能是汲取更加邪恶的本质。真是党无底线，世界无敌。
-
-（本文观点仅代表个人）
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+报道中还引用了Covid追踪网 (CovidTracker)于2月19日的数据，显示确诊病例的下降速度正在减缓，从18日的-6%到19日的-5%。
 
 
 
+> La décroissance du nombre de cas continue de décélérer -5% sur une semaine (hier on était à -6%). On détecte 18 245 cas chaque jour. [https://t.co/h81zmT4L1e](https://t.co/h81zmT4L1e) [#ThreadCovid](https://twitter.com/hashtag/ThreadCovid?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1wRwmhjtEy](https://t.co/1wRwmhjtEy)
+> — GRZ – CovidTracker (@GuillaumeRozier) [February 19, 2021](https://twitter.com/GuillaumeRozier/status/1362837197481795590?ref_src=twsrc%5Etfw)
 
+
+
+根据BFM TV的消息，法国总统马克龙 (Emmanuel Macron)决定再等待8至10天来观察并决定下一步公共卫生令。
+
+**评论：法国及欧洲各国政府的举措不仅令人失望，更是让人愤怒。他们只做表面功夫，凭借数据来颁布所谓的公共卫生措施，没有人能够提出病毒危机的来源：共产党。如闫博士所说，共产党在这个病毒里埋了很多雷，现在世界各地出现的变种毒株以及高居不下的病例数，足以证明共产党的邪恶。请战友们保护好自己及家人的安全，继续宣传病毒真相！**
+
+**（免责声明：本文的简评只代表译者观点，跟GNEWS平台无关。）**
+
+**原文链接：**[COVID-19: Véran déplore que “la tendance sur les trois derniers jours n’est plus bonne” en France](https://www.bfmtv.com/sante/covid-19-veran-deplore-que-la-tendance-sur-les-trois-derniers-jours-n-est-plus-bonne-en-france_AV-202102200159.html)
 
 +1

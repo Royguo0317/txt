@@ -1,31 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多伦多的封锁和居家令至少延长到3月8日
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/922772/)
+## 20天内近5000港人已申请英国新签证
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/922767/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑   水星   上传    银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-20_21-13-06.jpg)[bayut.com](https://www.bayut.com/mybayut/british-licence-conversion-uae/)
+《布赖特巴特新闻》（Breitbart News）2月19日报道，数千名香港人已申请新的英国海外护照计划，该计划于1月底启动，以回应中共对香港——这个前英国直属殖民地——民主和自由的镇压。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+据《泰晤士报》报道，自1月31日新的移民路线启用以来，已有近5000名香港人申请。专家估计，如果保持目前的速度，到今年年底，申请总数可能会达到14.5万人。
 
-**西班牙2021年2月20日电/西喜社——**加拿大最大城市的封锁是在11月23日第二波中共病毒袭击该省后开始的。安省卫生部长埃利奥特(Christine Elliott)表示，将这些地区置于严格的公共卫生措施之下是一个困难但必要的决定。
+香港特别行政区在1997年被英国移交给北京共产党政权之前，英政府对香港人开放了英国海外公民护照(BNO)的发放和认可，近25年来，许多香港人仍与英国保持着强烈的亲近感。中共单方面实施《国家安全法》，在香港暴力镇压和公然撕毁“一国两制”承诺，英国政府决定从今年起向符合英国护照条件的香港人提供庇护。
 
-多伦多官员本周要求省政府延长封锁时间，此前多伦多的卫生医疗官员表示，由于新的中共病毒变种，她从来没有像现在这样担心未来。
+根据此前的规定，英国海外公民护照(BNO)持有者只能在英国停留6个月，且无权在英国工作或定居。现在根据这项新政策，那些拥有英国BNO护照、想要离开香港的人从1月31日开始可在长达5年的时间内在英国生活和工作，并最终可申请英国公民身份。该计划将向大约540万香港人开放，给了港人一条逃离中共暴政获得英国公民身份的明确道路。
 
-多伦多的学校本周刚刚重新开学，零售店原定于2月22日重新开业。
+作为反击，中共从1月31日起不承认英国海外公民护照(BNO)是有效的旅行证件或身份证明，同时声称拥有双重国籍的香港人无权获得外国领事协助。中共当局已开始在香港严格执行中共国国籍规定。
 
-本周早些时候，尽管有警告称可能会引发第三波感染，但随着政府推进经济重开，全省大部分地区的留守令被取消。
+参考链接：
 
-在皮尔和北湾-帕里湾地区，封锁时间也在延长。科学家说，在安省发现的英国变种更容易传播，可能更致命。
+[https://www.breitbart.com/europe/2021/02/19/thousands-hong-kongers-have-already-applied-uk-visa-under-new-scheme/](https://www.breitbart.com/europe/2021/02/19/thousands-hong-kongers-have-already-applied-uk-visa-under-new-scheme/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/6556a273-c6ba-4ce4-97a1-ac0429203192.jpg)
-
-[**新闻来源**](https://apnews.com/article/pandemics-coronavirus-pandemic-germany-coronavirus-vaccine-europe-924c3796b80097c69b18f8e2ac8e13b0)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/02/WhatsApp-Image-2021-02-20-at-06.24.16.jpeg)
-
-
-
-0
++1
