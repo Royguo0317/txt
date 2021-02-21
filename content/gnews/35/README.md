@@ -1,34 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【灭共头条】北约秘书长在2021年慕尼黑峰会上强调对抗中共是决定性战略问题
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/922845/)
+## 【五月花报】95岁前纳粹集中营守卫被美国驱逐
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/923050/)
 
-#### 编译报道：MIYA【㊙️翻 Gnews原创组】
-责任编辑：心声
-![]()![](https://gnews.org/wp-content/uploads/2021/02/210218b-002_rdax_775x440.jpg)北约秘书长主持2021慕尼黑防长峰会 图片来源：nato.int
+五月花写作组 | 作者：伞兵 | 编辑、发稿：jamie(文胤)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/95岁纳粹集中营守卫被美国驱逐1.jpg)图片来源：abc7news.com
+据美国司法部的消息，前纳粹集中营守卫弗雷德里克‧卡尔‧伯杰 （Freidrich Karl Berger）已被遣送回德国，成为第70名被美国驱逐的纳粹分子。
 
- 
-2021年慕尼黑防长峰会于2月19日在线上举行，北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）主持会议。斯托尔滕贝格强调中共的崛起已超过俄罗斯成为北约需要优先重视的决定性问题，他呼吁将中共国正式纳入北约的 “战略概念”，以应对其军事崛起。
+今年95岁的伯杰，自1959年起定居于美国田纳西州。他被遣返的原因是于1945年在汉堡附近的诺因加默集中营中担任武装守卫。根据法庭文件，他在集中营”残酷“的条件下，负责看守十几名囚犯，逼迫他们“劳作至死”。此外，伯杰还参与了1945年3月该集中营的强制疏散行动。两星期的行军，外加恶劣的生存条件，最终导致了70名囚犯的死亡。
 
-美国新闻（U.S. News）2月19日报道，斯托尔滕贝格秘书长在慕尼黑安全网络会议上指出，北约历来专注于敌对俄罗斯，但面对中（共）国日益增长的威胁，必须寻求跨大西洋联盟各国的共识，不再将中（共）国视为良性的贸易伙伴。他呼吁欧洲、加拿大和美国共同坚守国际秩序，积极应对中（共）国与俄罗斯对国际秩序的挑战。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/95岁纳粹集中营守卫被美国驱逐2.jpg)图片来源：Neuengamme Concentration Camp complex – Alamy Stock Photo
 
-斯托尔滕贝格通过视频会议说：“中（共）国日益增长的威胁是跨大西洋共同体的决定性问题，对我们的安全、繁荣和生活方式有着潜在的影响。”
+由于在一艘于1945年五月被英军击沉的船中，发现了伯杰的名片，美国司法部据此得以确认伯杰在战争时期的身份。他一直不间断的领取来自德国的退伍养老金。
 
-美国总统乔·拜登在会上抨击了中共对全球经济的破坏。他呼吁国际社会必须反击中共政府在经济活动中的胁迫行为。拜登说，美国和欧洲的所有公司，都必须遵守同一规则，公开披露其公司的企业和管理结构，以阻止腐败和垄断行为。中国的企业也不例外。
+根据 2010年《移民和国籍法》中的霍尔茨曼修正案，任何参与纳粹迫害、种族灭绝或实施任何酷刑或法外行刑的个人都将被美国驱逐。
 
-英国首相鲍里斯·约翰逊（Boris Johnson）在会上发表了自英国脱欧后的首次外交政策演讲。他宣告脱欧后的英国在国际社会上将率先捍卫人权并保护欧洲安全。约翰逊表示，英国首先颁布了马格尼茨基法案制裁海外侵犯人权的官员。目前，英国已对50多名侵害人权者实施了制裁，其中包括俄罗斯、缅甸和津巴布韦的官员。除此之外，英国政府也没有忽视中共在新疆对维吾尔族人的种族屠杀，以及中共对香港自由和法治的侵害。为此英国推出新政策，以拒绝中共在新疆侵犯人权的产品进入英国供应链，并为近300万香港人提供了获得英国公民身份的途径。约翰逊最后表示英国将再带头捍卫北约盟友的利益。
+西方世界对纳粹主义的声讨并没有因历史的远去而淡化，反而持续不断，愈演愈烈，这为悍然在21世纪犯下反人类罪且抱有侥幸心理的残暴政权CCP发出的一个最有力的警告。
 
-脱欧后的英国明显比拜登上任后的美国更注重对抗中共的实际行动：经济方面阻止中共加入“跨太平洋伙伴关系全面进步协议”扩展与亚洲的贸易合作；军事方面威慑中共，将“伊丽莎白女王”号航母派往印太地区维护区域安全；媒体方面打击中共，BBC连续报道中共在新疆的种族屠杀和中共隐瞒疫情纪实并吊销中共大外宣CGTN的广播牌照等等。显然，约翰逊抓住了中共这个全球焦点，抓住中共逃脱不了的人权和疫情劣行并直击要害，以英国如今的行动力和在欧洲的影响力来看，其在全球特别是欧洲推动联合灭共的力量不容小觑。
+* * *
 
-**参考链接：**
+参考来源：
 
-1、[China’s Rise to Define Transatlantic Ties, NATO Chief Says](https://www.usnews.com/news/world/articles/2021-02-19/chinas-rise-to-define-transatlantic-ties-nato-chief-says)
+[US deports former Nazi concentration camp guard to Germany](https://nypost.com/2021/02/20/us-deports-former-nazi-concentration-camp-guard-to-germany/)
 
-2、[拜登：国际社会必须反击北京的经济威胁](///Users/hwei/Downloads/拜登：国际社会必须反击北京的经济威胁)
+[Judge Upholds Deportation Order For Former Nazi Concentration Camp Guard](https://www.newsweek.com/judge-upholds-deportation-order-former-nazi-concentration-camp-guard-1548903)
 
-3、[【慕尼黑安全会议】英相：英国将率先捍卫人权和欧洲安全](https://www.soundofhope.org/post/476228)
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
 
-（本文仅代表编者个人观点）
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
 
-+1
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+
+0

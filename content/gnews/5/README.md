@@ -1,31 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大政府曾拨款$83万支持与武汉病毒所合作的项目
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/923190/)
+## 中共国教育部所美化的一位“历史人物”
+` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/923430/)
 
-加拿大多伦多枫叶农场 文永
-![]()![](https://gnews.org/wp-content/uploads/2021/02/whitehouse.news_.jpg)*图片来源: whitehouse.news*
-据加拿大《义军新闻》（RebelNews）报道[\[1\]](https://www.rebelnews.com/trudeau_research_grant_nearly_one_million_dollars_covid19_research_wuhan_virus_research_laboratory)，加拿大特鲁多政府出资$83万资助一项针对中共病毒的研究项目，而该项目将与中共病毒的发源地 — 武汉病毒研究所密切合作。
+撰稿人： 般若
 
-根据加拿大政府官方网站公告[\[2\]](https://www.canada.ca/en/institutes-health-research/news/2020/03/government-of-canada-invests-27m-in-coronavirus-research--details-of-the-funded-projects.html)，加拿大政府拨款$82.8万加元，资助一项针对提高中共病毒即时检测技术的研究项目。该项目由阿尔伯塔大学乐晓春教授主导，参与方包括阿尔伯塔大学、加拿大食品检测局、以及武汉病毒研究所。而在项目内容中还赫然写着“项目的中期目标是在本次病毒大流行的中心地带进行测试，以此来验证我们的即时检测方法。我们项目组在武汉的成员将会主导这部分工作”。也就是说，这部分工作很可能是由武汉病毒研究所完成。根据加拿大政府网站[\[2\]](https://www.canada.ca/en/institutes-health-research/news/2020/03/government-of-canada-invests-27m-in-coronavirus-research--details-of-the-funded-projects.html)显示，该项目的开始时间为2020年3月1日，为期两年。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-44.png)*图片来源：Government of Canada*
-虽然该项目致力于研究中共病毒的检测技术，但是与武汉病毒研究所的密切合作，让人们深感不安。
+审稿：Jenny
+![]()![](https://gnews.org/wp-content/uploads/2021/02/IMG_8126.jpg)网络截图
+作者少时酷爱阅读历史书籍，在墙内读书时，学校语文书历史书不愿读，缺独独钟爱三联书店。列如由其出版的《六十年来中国与日本》等书。于作者中，最深刻的一位历史人物莫过于明末清初，建立大西政权的张献忠了。
 
-根据《华盛顿邮报》报道[\[3\]](https://webapps.cihr-irsc.gc.ca/funding/detail_e?pResearchId=9136708&amp;p_version=CIHR&amp;p_language=E&amp;p_session_id=3266369)，美国政府早在2018年就对武汉病毒研究所的研究内容表示担忧，并派出科研人员去武汉病毒研究所访问。在提交给华盛顿的一份报告中，美国科研人员警告本国政府，武汉病毒研究所正在从事的蝙蝠冠状病毒的潜在人传人可能性的研究有可能引发全球性病毒大流行。
+在CCP的教育部宣传中，张献忠是民族英雄，说是农民起义的领袖，解救人民于水火，其“美好品质”堪比“解放中国人民”的共产党。可事实真是如此吗？他真的是心系天下苍生？冲冠一怒为百姓吗？事实远非如此。
 
-而中共在中共病毒问题上的一贯不透明的做法，也已经是众所周知的问题。在本篇报道中也援引了美联社的文章[\[4\]](https://apnews.com/article/68a9e1b91de4ffc166acd6012d82c2f9)，指出中共去年一月份，在已经了解病毒传播可能造成大流行的情况下，依然压制病毒真相，并在6天后举行万家宴，造成更大面积感染，而武汉当地的医生也因为受到政府威胁而噤声。
+顺治三年（1646年）年正月，张献忠屠杀大西军中的川籍士兵，除14岁以下的全部杀尽。同年，张献忠派兵分剿成都府属32州县，定例每杀一人，剁两手掌，割两耳及一鼻解验。其军宣称屠杀了上千万人，将成都平原地区居民屠杀殆尽。《纪事略》
 
-中共制下的科学家，要么为了保全自身而与中共政府保持一致，要么就会被消失。由于此次全球疫情造成的死亡以及经济的重创，中共应负全部责任。而加拿大政府也应当停止把加拿大普通民众的血汗钱拿来与中共合作。
+张献忠随即屠杀重庆的居民，被砍手的人就有三十多万人，以至于流血有声。《明季南略》
 
-评：
-加拿大特鲁多政府和中共的合作已久，而在中共病毒大流行后，这种做法引起加拿大民众的强烈不满。在该报道下面有大量留言，谴责加拿大政府的这种做法。我们可以看到，大量普通民众已经觉醒。
+《客滇述》评论张献忠：“四川之祸，见人就杀，屠城，屠堡，屠山，屠野，屠全省，甚至千里无人，空如沙漠：自亘古以来，未尝有也！”。
 
-[原文链接](https://www.rebelnews.com/trudeau_research_grant_nearly_one_million_dollars_covid19_research_wuhan_virus_research_laboratory)
+张献忠吃人更是恐怖至极，将投降的女人像腌渍畜生一样处理，随后喂战马和士兵，让天府之国如现世罗刹邪域一般。
 
-* * *
+共产党怎么敢这样歪曲这样的血泪历史，让这个该遭天诛地灭的魔头张献忠还被后世那些专家学者粉饰？共产党为什么要这样的粉饰张献忠？
 
-校对 文锦
-发稿 云起时
+我想两者本质无二，前者屠川蜀，尸积成山，血流成河，河为之塞，不能行船：后者在新疆建立两百万人的集中营，八九六四惨死的学生，三年饥荒死去的几千万人，十年文化大革命所波及的的人命，如今肆虐全球的生化武器，死在共产党手里的人命不知比死在张献忠手里的多出多少。共产党必遭天灭，如今我们爆料革命，新中国联邦承天意，灭中共。
 
+（本文纯属个人观点）
+![]()![](https://gnews.org/wp-content/uploads/2021/02/澳喜图标2-6.jpg)
 0

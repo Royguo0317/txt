@@ -1,36 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 肯塔基州又有三郡共和党官员吁麦康奈尔下台
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/922655/)
+## 科顿议员：中共入侵台湾意味着与美国开战
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/922792/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+俄罗斯莫斯科喀秋莎农场   银河
 
 编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-20_20-22-38.jpg)[yahoo.com](https://www.yahoo.com/lifestyle/mitch-mcconnell-takes-another-step-205949335.html)
-《门道专家》2月19日发表文章，题目“‘如果明天我们选他，他将崩塌式落败’——肯塔基州又有3个郡的共和党领导呼吁麦康奈尔下台”，全文如下：
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-20_21-24-44.jpg)[asia.nikkei.com](https://asia.nikkei.com/Spotlight/Asia-Insight/Taiwan-caught-in-US-China-diplomatic-crossfire)
+《零对冲》（Zerohedge）2月19日报道，参议员汤姆·科顿(Tom Cotton)周四呼吁美国就中共入侵台湾的情况出台新政策。目前，美国支持对台军售，并保持着一种被称为“战略模糊”的政策，这意味着如果北京采取行动，美国不保证会干预。
 
-纳尔逊郡共和党官员周二写信给参议员米奇·麦康奈尔，要求他立即辞去共和党在参议院核心小组的领导职务。
+科顿表示，他想“非常清楚”地表明，中共入侵台湾意味着与美国开战。“美国需要明确，我们不会允许中共入侵和征服台湾”。科顿说，“用战略上的明确性取代模糊性，即如果中共强力入侵台湾，或以其他方式改变台湾海峡两岸的现状，美国将提供援助。”
 
-这是发生在上周六麦康奈尔发表评论，以及《华尔街日报》的爆炸性社论之后，他们恶意攻击和抹黑了川普总统。纳尔逊郡主席唐斯拉舍（Don Thrasher）指出，写这封信的理由是，麦康奈尔“完全彻底地鄙弃了你选民的意愿”。
+美国智库外交关系协会(CFR)发布2021年版报告，由台湾引发的美中军事冲突危机登上全球潜在冲突的最高等级。中共当局一直未放弃对台湾不使用武力的承诺，习近平重申了这个承诺，并且喊出“祖国必须统一”。 1月28日中共国防部月度新闻发布会强硬警告台湾，威胁其坚持台湾独立将导致战争。台北指责北京连续派遣军机进入其领空进行恐吓，美国观察人士认为这是中共对美国拜登政府的试探。
 
-文章附上了信函照片：
+在中台对抗中，美国川普政府支持台湾的态度明朗。2020年12月27日川普总统签署了联邦拨款法案，其中包含《2020年台湾保护法》（Taiwan Assurance Act of 2020），公开支持常态化对台军售，协助台湾当局发展及“整合不对称战力”，增强台湾自我防卫能力，以抵抗台湾面对的军事危机。
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-20_20-13-23.jpg)
+新上任的拜登政府国务卿安东尼·布林肯(Antony Blinken)认可前总统川普对中共国采取的强硬立场，认为中共政府是美国面对的最大挑战。在台湾问题上，他称美国将坚持对台湾的承诺，“这项承诺的一部分是确保台湾有能力保卫自己不受侵略。这是一个绝对持久的承诺。”
 
+科顿参议员指出，这种支持策略还比较模糊，当台湾真正受到中共武力袭击时并不能保证美国的干预。美国应该为中共划定“红线”，要求华盛顿方面就台湾危机“做出回应”。
 
-米奇·麦康奈尔（现在的）的支持率是18%，接近利兹·切尼的水平！他不可能成为参议院多数党领袖！
+科顿发表上述言论时，同时提出经济对抗中共的建议。科顿呼吁经济上与中共脱钩。他强调“我们的经济与中共的经济纠缠得太深了，为中共提供了对美国政府和行业的影响力。我们早该与中共脱钩了。”
 
-又有几位共和党领导官员与斯拉舍尔主席一道呼吁米奇·麦康奈尔辞去美国参议院共和党领袖的职务，他们是巴特勒郡、哈特郡、辛普森郡。
+参考链接：
 
-文中附上了三个郡领导人要求麦康奈尔辞职的信函：
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-20_20-15-19.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-20_20-15-37.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-20_20-15-54.jpg)
-评：中共女婿麦康奈尔在不得已情况下，很不情愿地投了反对弹劾闹剧的一票，这位心怀鬼胎的中共傀儡不甘心眼睁睁地看着川普总统重振共和党，于是对川普总统进行了荒诞、凶狠地攻击和抹黑，这些恶毒的攻击、抹黑言辞足以载入史册。
-
-但是，明智的人心中有数，这帮建制派共和党人，尤其是受惠于邪恶中共的人士，皆为断送美国，葬送文明的帮凶，不能让他们身处高位祸害大众，希望越来越多的美国人清醒地认识到这一点。
-
-原文链接：
-
-[https://www.thegatewaypundit.com/2021/02/election-tomorrow-lose-landslide-3-kentucky-gop-county-leaders-call-mitch-mcconnell-step/](https://www.thegatewaypundit.com/2021/02/election-tomorrow-lose-landslide-3-kentucky-gop-county-leaders-call-mitch-mcconnell-step/)
+[https://www.zerohedge.com/geopolitical/china-invasion-taiwan-means-war-us-tom-cotton-argues](https://www.zerohedge.com/geopolitical/china-invasion-taiwan-means-war-us-tom-cotton-argues)
 
 +2
