@@ -1,86 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武汉实验室竟能获得美国纳税人的资助直到2024年
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/922765/)
+## 保守党称中加的外交 “蜜月期”已经结束
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/922822/)
 
-新闻来源：Daily Caller《每日传讯新闻》| 作者：Andrew Kerr| 发布时间：2021年2月16日
+俄罗斯莫斯科喀秋莎农场   银河
 
-翻译/简评：新街口 |校对：感恩 |审核：万人往|Page：小雨
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-20_21-34-38.jpg)[blacklistednews.com](https://www.blacklistednews.com/article/70334/in-retaliatory-travel-advisory-china-warns-of-arbitrary-detention-in.html)
+《国家邮报》2月19日报道指出，中共与加拿大外交的“蜜月期”已经结束。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/THC3t8RHEKglQ/images/fd110af5-6ea6-43af-a944-8a9d65265e4f.jpg?asset_id=282e2cd1-02f3-4afd-b321-4d13c8a8b6a3&amp;img_etag=%22ba638c4efae9c33f28645db75c59dbde%22&amp;size=2560)](https://spark.adobe.com/page/THC3t8RHEKglQ/images/fd110af5-6ea6-43af-a944-8a9d65265e4f.jpg?asset_id=282e2cd1-02f3-4afd-b321-4d13c8a8b6a3&amp;img_etag=%22ba638c4efae9c33f28645db75c59dbde%22&amp;size=1024)
+在当今的政治环境中，与中共打交道不存在“灰色地带”，各国的政治家应该明确对中共的态度只有强硬和不强硬之分。加拿大保守党领袖已明确表达了自己的观点，并抓住一切机会倡导对中共采取更强硬的立场。
 
-**简评：**
+保守党党魁艾林·奥图尔(Erin O’toole)经常试图推动特鲁多政府朝类似的方向前进，但似乎没有成功。对于许多加拿大人来说，政府对中共的立场并不明确。如果政府有一个清晰连贯的政策框架，决策就会更容易。
 
-“如雷贯耳”的达扎克再次成为这篇调查报告的主角。闫丽梦博士在情人节那天祝他和中共情人节快乐，因为达扎克在2018年CGTN采访中表示，他与中共国政府合作已经超过了15年。
+中共在新疆地区对穆斯林维吾尔族的迫害导致了种族灭绝的指控。把一个国家的行动定性为种族灭绝罪不是一项可以轻易作出的决定。所有的消息来源都证实中共对维吾尔人的罪行是真实存在的，越来越多的国家开始正视这一指控。加拿大驻联合国大使提出要求，要求加拿大政府将中共的行为定性为种族灭绝罪。加拿大总理贾斯廷·特鲁多仍在迟疑，随着下议院即将对此事进行投票，这种压力将进一步加剧。
 
-达扎克在本次进入中共国进行所谓的中共病毒起源调查之前就已经和石正丽公开在推特上相约白酒和卡拉ok。这一方面证明了他和石正丽等中共科技人员关系非同一般；更深层次则可以映射出他绝对是在中共“毛屎坑”中培养出来的一条走狗。
+艾林·奥图尔指出，前任美国国务卿蓬佩奥做出了这一声明，他的继任者安东尼·布林肯在美国参议院确认听证会上也同意这一评估。然而，我们的总理仍不信服。奥图尔认为，因为中共种族灭绝的罪行，应该呼吁重新安排2022年冬奥会的举办地点。我们有理由期待加拿大政府在发表强硬的声明之前收集足够的信息，但政府在任何涉及中共的决定上的拖延战术都令人费解。
 
-在执行了本次由中共一手安排的调查后，达扎克不仅继续公开帮助中共掩盖病毒起源真相，还竟然要求美国政府不要过分依赖美国的情报系统，无条件地接受备受质疑的WHO工作组的调查结果。
+他说，毫无疑问，还有地缘政治因素需要考虑，一个显而易见的事实中共是一个经济超级大国，而加拿大不是。中共已表明愿意使用经济胁迫，如果中共这样做可能会对加拿大经济造成重大损害。毫无疑问，在对华政策方面，特鲁多总理通常担心遭到报复。然而，向中共表明明确的立场，将使加拿大的许多政策决定变得更容易。
 
-本文还挖掘出了美国国立研究院的科研经费竟然是通过达扎克掌管的生态健康联盟授予武汉病毒研究所的。我们可以看到他不仅公开说谎，为中共掩盖病毒真相，还帮助中共窃取美国纳税人的科研经费。
+在整个2020年，自由党承诺重新审视加拿大与中共的双边关系。接近年底时，一些内阁部长发表的声明表明，随着政府准备公布其对中共的新态度，一种更为强硬的姿态即将到来。与此同时，民意调查显示，加拿大人对中共的印象越来越差——特别是在任意拘留“两名迈克尔”的背景下。越来越大的公众压力，加上奥图尔“对中共强硬”的倡议，促使自由党寻求重新调整政府的对华政策。加拿大人希望加拿大采取更强硬的立场，但他们从加拿大外交部长那里得到的却是一堆废话。
 
-中共的暗黑、下流手段在这场病毒中一览无余：首先利用美国的技术和资金研究制造病毒，然后再用病毒对付美国。最后，中共很有可能利用达扎克这类的美国科技领域败类和美国对武汉病毒所投资的事实，把整个病毒的黑锅甩给美国。
+批评派指出，本届政府对中共态度暧昧，似乎中共采取的任何行动都没有过分到值得加拿大强烈谴责的程度。现任政府在与中共打交道时，无法清晰地表达出新的姿态，这导致了自由党在看似无需动脑的政策回应上磕磕绊绊。建立一个清晰的、连贯的加拿大与中共双边接触政策, 决定是否要禁止华为参与加拿大5 G的基础设施, 决定未来加拿大是否参与亚洲基础设施建设项目和银行投资以及加拿大是否应该提倡搬迁2022年冬季奥运会，会让一切变得容易起来。看起来自由党仍想回归“一切如常”，继续与中共保持“阳光灿烂的方式”接触，这是不可能的了，那些日子已经结束。
 
-**原文翻译：**
+参考链接：
 
-## 美国国家卫生研究院证实，武汉实验室有资格在2024年之前获得美国纳税人的资助
+[https://nationalpost.com/opinion/shakir-chambers-canadas-days-of-sunny-ways-with-china-are-over](https://nationalpost.com/opinion/shakir-chambers-canadas-days-of-sunny-ways-with-china-are-over)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/THC3t8RHEKglQ/images/3c2a3c86-1079-4b41-a483-ed1364d36d51.jpg?asset_id=5cb48ad8-8908-46be-a29c-409ea32d37c2&amp;img_etag=%2243c74849665fc8faa3d9f6f063a8db9f%22&amp;size=1024)](https://spark.adobe.com/page/THC3t8RHEKglQ/images/3c2a3c86-1079-4b41-a483-ed1364d36d51.jpg?asset_id=5cb48ad8-8908-46be-a29c-409ea32d37c2&amp;img_etag=%2243c74849665fc8faa3d9f6f063a8db9f%22&amp;size=1024)调查记者 安德鲁·克尔
-
-- 根据美国国家卫生研究院的数据，武汉病毒研究所（WIV）被授权在2024年1月之前获得纳税人用于动物研究项目的资金。
-- 武汉病毒研究所在2014年至2019年期间通过非营利组织生态健康联盟获得了60万美元的纳税人资金，用于研究蝙蝠型冠状病毒。
-- 生态健康联盟主席彼得•达扎克(Peter Daszak)是调查新冠起源的世界卫生组织代表团中唯一的美国成员。
-- 达扎克说，白宫应该无条件地接受世卫组织的决定，即新冠不太可能是从武汉病毒研究所无意泄漏出来的。
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/THC3t8RHEKglQ/images/17945ce8-bb02-40d3-b77e-21bd01075f63.png?asset_id=08ce821e-5776-4a12-90a4-164781a77514&amp;img_etag=%2211126a8b226ff438d635c43caf2703a7%22&amp;size=1024)](https://spark.adobe.com/page/THC3t8RHEKglQ/images/17945ce8-bb02-40d3-b77e-21bd01075f63.png?asset_id=08ce821e-5776-4a12-90a4-164781a77514&amp;img_etag=%2211126a8b226ff438d635c43caf2703a7%22&amp;size=1024)
-
-美国国立卫生研究院对《每日传讯新闻基金会》说，武汉病毒研究所被授权接受美国纳税人的资金用于动物研究，并且可以持续到2024年1月。
-
-人们普遍猜测，由于实验室意外泄漏，新冠病毒可能已进入中国人群，武汉病毒研究所是其中的核心。该实验室的研究人员在疫情爆发之前正在研究蝙蝠类冠状病毒，该项目获得了美国纳税人通过非营利组织生态健康联盟(EcoHealth Alliance)向该实验室提供的60万美元资金的部分支持部分支持。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/THC3t8RHEKglQ/images/494d8cf9-777d-4291-a909-b424b6ceff76.png?asset_id=cc4b8823-ab0d-4d3b-a588-a5d3d96826b4&amp;img_etag=%228daab99956cb9cf6e0a1e2fcaac8666b%22&amp;size=1024)](https://spark.adobe.com/page/THC3t8RHEKglQ/images/494d8cf9-777d-4291-a909-b424b6ceff76.png?asset_id=cc4b8823-ab0d-4d3b-a588-a5d3d96826b4&amp;img_etag=%228daab99956cb9cf6e0a1e2fcaac8666b%22&amp;size=1024)
-
-生态健康联盟主席彼得•达扎克是世界卫生组织代表团的唯一美国成员，该代表团调查了1月和2月开始大爆发的疫情的起源。尽管世卫组织代表团尚未发布有关其发现的报告，但达扎克表示，白宫应该无条件地接受他们的结论，即病毒极不可能是从武汉病毒研究所中泄漏出来的。
-
-达扎克还表示不应该相信美国情报机构所指证的，在2019年12月的首例已知病例之前武汉病毒研究所就有研究人员感染并出现了类似冠状病毒的症状。
-
-据《华尔街日报》报道，生态健康联盟在中共国研究蝙蝠型冠状病毒的工作是由美国国家过敏和传染病研究所于2014年提供370万美元资助的。
-
-由于生态健康联盟与武汉病毒研究所之间的关系受到指责，美国国家卫生研究院（NIH）于4月终止了该项目拨款。NIH在一封信中说，该非营利组织在中共国的工作与“计划目标和机构优先事项”不符。
-
-NIH在7月告诉生态健康联盟，如果满足某些条件，它将恢复拨款。其中之一是安排一个独立的团队调查武汉病毒研究所，以确定其是否在2019年12月首次确诊感染病例前就已经拥有了SARS-COV-2病毒。
-
-达扎克对美国国家公共电台表示，NIH的条件是“荒谬”的。
-
-达扎克说：“我没有接受过私人侦探的培训。这样做并不是我的工作。” **（相关**：[与武汉实验室有密切联系的美国科学家在（新冠疫情）爆发前几周曾经讨论了如何操控基于蝙蝠的冠状病毒](http://US%20Scientist%20With%20Close%20Ties%20To%20Wuhan%20Lab%20Discussed%20Manipulating%20Bat-Based%20Coronaviruses%20Just%20Weeks%20Before%20Outbreak)**）**
-
-但是，根据NIH实验动物福利办公室的说法，武汉病毒研究所仍在NIH实验动物福利办公室备有有效的外国保证书，这使其能够继续接受纳税人的资金从事动物研究。
-
-NIH的一位女发言人告诉每日传讯新闻基金会，武汉病毒研究所的外国保证已于2019年1月9日获得批准，目前定于2024年1月31日到期。
-
-女发言人未确认武汉病毒研究所是否正在接受直接或间接的纳税人资金用于涉及动物的研究活动。根据USASpending.Gov的说法，生态健康联盟对武汉病毒研究所的最后一次转赠拨款是在2019年5月。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/THC3t8RHEKglQ/images/1a31e008-d1ef-4f57-ac8f-38bba0419057.jpg?asset_id=674c3e71-b626-432c-8035-a08ab259bb97&amp;img_etag=%22c969a9237990e79a31c93854c8dcf9ff%22&amp;size=1024)](https://spark.adobe.com/page/THC3t8RHEKglQ/images/1a31e008-d1ef-4f57-ac8f-38bba0419057.jpg?asset_id=674c3e71-b626-432c-8035-a08ab259bb97&amp;img_etag=%22c969a9237990e79a31c93854c8dcf9ff%22&amp;size=1024)彼得•达扎克在CGTN接受采访的截屏(YouTube)
-
-生态健康联盟从美国国家卫生研究院获得了新的750万美元款项，用于帮助建立新发传染病研究中心。达扎克对美国国家公共电台表示，他的组织获得的新拨款将不会用于在中共国的任何研究。
-
-无党派监督组织White Coat Waste项目的总裁Anthony Bellotti告诉DCNF，由于生态健康联盟资助了“不计后果的（病毒）功能增强动物实验，这可能导致新冠疫情的大流行”，对它的资金拨款应该立即停止。
-
-“我们敦促国会和白宫立即停止为生态健康联盟拨款，并对其在武汉病毒研究所进行的危险的（病毒）功能增强动物实验是否导致新冠疫情大爆发进行独立的调查。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/THC3t8RHEKglQ/images/da9dc9af-7310-4532-af5e-701e71865153.png?asset_id=3d91df73-ae4d-4884-8f6a-7f8ba01fbe74&amp;img_etag=%2226ca40a1177ae2fc0e5abdf431fcc278%22&amp;size=1024)](https://spark.adobe.com/page/THC3t8RHEKglQ/images/da9dc9af-7310-4532-af5e-701e71865153.png?asset_id=3d91df73-ae4d-4884-8f6a-7f8ba01fbe74&amp;img_etag=%2226ca40a1177ae2fc0e5abdf431fcc278%22&amp;size=1024)
-
-[🔗原文链接](https://dailycaller.com/2021/02/16/wuhan-lab-eligible-taxpayer-funding/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/THC3t8RHEKglQ/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/THC3t8RHEKglQ/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
-
-0
++1
