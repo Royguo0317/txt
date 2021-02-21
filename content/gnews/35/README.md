@@ -1,36 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 肯塔基州又有三郡共和党官员吁麦康奈尔下台
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/922655/)
+## 缅甸封杀所有语言的维基百科
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/922753/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
 编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-20_20-22-38.jpg)[yahoo.com](https://www.yahoo.com/lifestyle/mitch-mcconnell-takes-another-step-205949335.html)
-《门道专家》2月19日发表文章，题目“‘如果明天我们选他，他将崩塌式落败’——肯塔基州又有3个郡的共和党领导呼吁麦康奈尔下台”，全文如下：
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-20_20-59-19.jpg)[desperadoj.com](https://desperadoj.com/15.html)
+02月20日，非营利组织NetBlocks在其推特上报道，在2月初发生军事政变的缅甸，互联网百科全书维基百科已被封杀。
 
-纳尔逊郡共和党官员周二写信给参议员米奇·麦康奈尔，要求他立即辞去共和党在参议院核心小组的领导职务。
+缅甸国内无法访问所有语言的在线百科全书版本。在此之前，Facebook、Instagram、WhatsApp都被封锁了。这也是缅甸连续第六天晚上网络中断。2月14日，几乎全部关停。
 
-这是发生在上周六麦康奈尔发表评论，以及《华尔街日报》的爆炸性社论之后，他们恶意攻击和抹黑了川普总统。纳尔逊郡主席唐斯拉舍（Don Thrasher）指出，写这封信的理由是，麦康奈尔“完全彻底地鄙弃了你选民的意愿”。
+2月初，缅甸军方夺取了国家政权，并宣布进入紧急状态。权力转移到武装部队指挥官敏昂莱身上。
 
-文章附上了信函照片：
+总统温敏（Vin Mying）和国务委员、诺贝尔和平奖获得者昂山素季（Aung San Suu Kyi）被拘留。军方指责前领导层操纵了去年11月的议会选举，当时执政的全国民主联盟党赢得了选举。政变发生后，缅甸爆发了大规模的抗议活动。
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-20_20-13-23.jpg)
+参考链接：
 
+[https://www.rbc.ru/rbcfreenews/60306ea39a79472dd5517ebe](https://www.rbc.ru/rbcfreenews/60306ea39a79472dd5517ebe)
 
-米奇·麦康奈尔（现在的）的支持率是18%，接近利兹·切尼的水平！他不可能成为参议院多数党领袖！
-
-又有几位共和党领导官员与斯拉舍尔主席一道呼吁米奇·麦康奈尔辞去美国参议院共和党领袖的职务，他们是巴特勒郡、哈特郡、辛普森郡。
-
-文中附上了三个郡领导人要求麦康奈尔辞职的信函：
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-20_20-15-19.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-20_20-15-37.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-20_20-15-54.jpg)
-评：中共女婿麦康奈尔在不得已情况下，很不情愿地投了反对弹劾闹剧的一票，这位心怀鬼胎的中共傀儡不甘心眼睁睁地看着川普总统重振共和党，于是对川普总统进行了荒诞、凶狠地攻击和抹黑，这些恶毒的攻击、抹黑言辞足以载入史册。
-
-但是，明智的人心中有数，这帮建制派共和党人，尤其是受惠于邪恶中共的人士，皆为断送美国，葬送文明的帮凶，不能让他们身处高位祸害大众，希望越来越多的美国人清醒地认识到这一点。
-
-原文链接：
-
-[https://www.thegatewaypundit.com/2021/02/election-tomorrow-lose-landslide-3-kentucky-gop-county-leaders-call-mitch-mcconnell-step/](https://www.thegatewaypundit.com/2021/02/election-tomorrow-lose-landslide-3-kentucky-gop-county-leaders-call-mitch-mcconnell-step/)
-
-+2
++1

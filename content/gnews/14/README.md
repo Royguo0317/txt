@@ -1,33 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 再现危机？法国卫生部长表示担忧
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/922905/)
+## 【打脸中共】俄罗斯曝光去年中印冲突中，中共国死亡45名士兵
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/923029/)
 
-```
-记者: Hugues Garnier, 2021.02.20, BFM TV
- 
-翻译整理：旦旦 校对/发稿人: Ting Guo
-```
+**简评/翻译 :** 阿娜 **校对/发稿人: **Ting Guo
 
+![]()![](https://gnews.org/wp-content/uploads/2021/02/i_640x455_030874817-1594015132539.jpg)图为在印度B. Santosh Babu上校的葬礼上，士兵和家人向他致敬。图片来源：美联社
 
-因为疫情在滨海阿尔卑斯省 (Alpes-Martimes)的迅速扩展，法国卫生部长韦郎 (Olivier Véran) 在该省的省会城市尼斯 (Nice) 发表讲话：“最近三天的趋势不再令人乐观，昨日的数据与上周五相比，增加了3000多例确诊。” 同时他提到，很可能会在尼斯实行局部封城。
+去年6月中印两军在加勒万河谷(Gulwan Valley)发生冲突八个月后，中共国央媒发布了一段录像，宣称有四名中共国士兵被追授勇士，而五名士兵获得了英勇勋章。很显然，这是为了渲染一种民族主义精神而洗脑中共国百姓的视频。否则为什么在去年冲突发生后，没有任何有关于士兵死亡人数的报道，而印度对其死亡的20名士兵进行了国葬，印度总理莫迪也参加了葬礼。
 
-报道中还引用了Covid追踪网 (CovidTracker)于2月19日的数据，显示确诊病例的下降速度正在减缓，从18日的-6%到19日的-5%。
+《今日印度》电视台进行了一个专门的报道，揭露了中共的欺骗和奸诈，在印度与中国进行第十轮核心指挥官会谈前几个小时，也就是几天前，俄罗斯机构发布了一份报告。报告称有关在加勒万河谷发生的中印冲突中，有45名中国军事人员死亡。而中共国的央媒的报道是，只有4名阵亡士兵。滑稽和让人匪夷所思的不是印度披露的这则消息，而是中共宣传的密友和战略朋友——俄罗斯，这无疑是打中共的脸。有45人伤亡如果被墙国的百姓知道了，那中共的脸放哪里呢？所以估计是这个原因，中共不得不发布此视频以洗脑百姓，试图强化印度是侵略者，而中共教训了印度。
 
+而事实恰恰相反，冲突中，中共国的士兵死亡人数是印度士兵死亡人数的2倍之多，特别是这一数字是俄罗斯提出。俄罗斯政府的新闻社明确宣布，中方在加勒万河谷失去了45名士兵，这一数字以前从未发表过，印度北方军队司令官随后认可了记录上的数字，甚至暗示称这个数字可能会更高。俄罗斯政府机构，普京向全世界宣布，有45名中共国军人在加勒万死亡。
 
-
-> La décroissance du nombre de cas continue de décélérer -5% sur une semaine (hier on était à -6%). On détecte 18 245 cas chaque jour. [https://t.co/h81zmT4L1e](https://t.co/h81zmT4L1e) [#ThreadCovid](https://twitter.com/hashtag/ThreadCovid?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1wRwmhjtEy](https://t.co/1wRwmhjtEy)
-> — GRZ – CovidTracker (@GuillaumeRozier) [February 19, 2021](https://twitter.com/GuillaumeRozier/status/1362837197481795590?ref_src=twsrc%5Etfw)
-
-
-
-根据BFM TV的消息，法国总统马克龙 (Emmanuel Macron)决定再等待8至10天来观察并决定下一步公共卫生令。
-
-**评论：法国及欧洲各国政府的举措不仅令人失望，更是让人愤怒。他们只做表面功夫，凭借数据来颁布所谓的公共卫生措施，没有人能够提出病毒危机的来源：共产党。如闫博士所说，共产党在这个病毒里埋了很多雷，现在世界各地出现的变种毒株以及高居不下的病例数，足以证明共产党的邪恶。请战友们保护好自己及家人的安全，继续宣传病毒真相！**
+中共国的国家宣传机器和媒体，在早些时候曾宣称他们不公开伤亡人数，是因为他们不想让印度尴尬，但是赤裸裸的真相却令中共非常尴尬。中共国在6月遭受的战斗死亡是自1979年中越战争以后的第一次战斗死亡，因此这些战斗死亡是对中共国的侮辱，与印度公开承认其死亡士兵人数的情况相比，中共是不可能公开真正的信息的。这是中国共产党保密文化，它们从不透露完整的真相，而通常的方式是公布片段，一切为了中共的宣传需要。这次他们只公布了几分钟的视频，在接下来的几个月中，很可能会再放出一些视频，但是他们永远不会拿出完整事实的真实画面！
 
 **（免责声明：本文的简评只代表译者观点，跟GNEWS平台无关。）**
 
-**原文链接：**[COVID-19: Véran déplore que “la tendance sur les trois derniers jours n’est plus bonne” en France](https://www.bfmtv.com/sante/covid-19-veran-deplore-que-la-tendance-sur-les-trois-derniers-jours-n-est-plus-bonne-en-france_AV-202102200159.html)
+**参考新闻来源：**
 
-+1
+
+
+[China, India commence withdrawal of forces from shared border – Chinese Defense Ministry](https://tass.com/world/1254813)
+
++4

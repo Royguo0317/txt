@@ -1,28 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【点睛要闻】加拿大总理特鲁多这一次真的要向中共跪下吗
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/922967/)
+## 【五月花报】95岁前纳粹集中营守卫被美国驱逐
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/923050/)
 
-#### 作者：Ermat【㊙️翻Gnews原创组】
-责编：心声
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Picture1-96.jpg)图片来源：sohu.com
-病毒的肆虐让这个冬天显得格外漫长、单调、压抑。然而更让人感到郁闷和荒唐的是政客的丑陋表演。据Gnews近日报道，加拿大总理（Justin Trudeau）特鲁婉言拒绝称中共在新疆对维吾尔族犯下”种族灭绝罪”，而是以要进一步调查进行“推诿”。
+五月花写作组 | 作者：伞兵 | 编辑、发稿：jamie(文胤)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/95岁纳粹集中营守卫被美国驱逐1.jpg)图片来源：abc7news.com
+据美国司法部的消息，前纳粹集中营守卫弗雷德里克‧卡尔‧伯杰 （Freidrich Karl Berger）已被遣送回德国，成为第70名被美国驱逐的纳粹分子。
 
-这与特鲁多对发生在去年6月5日的一场抗议活动的态度形成鲜明对比。事情的起因是美国警察对黑人暴力执法，总理特鲁多也参与了这场反种族歧视与迫害的抗议活动，并当众单膝下跪长达8分46秒。同样是种族歧视和种族迫害，态度却截然不同。显然前一次是政客的演戏下跪，而这一次虽没下跪但似乎真的跪下了。那是要向谁下跪呢？
+今年95岁的伯杰，自1959年起定居于美国田纳西州。他被遣返的原因是于1945年在汉堡附近的诺因加默集中营中担任武装守卫。根据法庭文件，他在集中营”残酷“的条件下，负责看守十几名囚犯，逼迫他们“劳作至死”。此外，伯杰还参与了1945年3月该集中营的强制疏散行动。两星期的行军，外加恶劣的生存条件，最终导致了70名囚犯的死亡。
 
-近来, 加拿大政府的一系列举措让人感到困惑。不但没有禁止华为，还扩大了与华为的合作关系；签署了谴责任意拘留的宣言，但却没有提到中国；拒绝宣布中共对维吾尔人的行动是“种族灭绝”；拒绝抵制在中共国举办的奥运。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/95岁纳粹集中营守卫被美国驱逐2.jpg)图片来源：Neuengamme Concentration Camp complex – Alamy Stock Photo
 
-不仅如此，加拿大的政客、金融、媒体似乎在被一只无形的手所牵动。政客本应为选民服务，现在却变成了玩弄选民的戏子。 上帝、民权、自由、法律好似他们嘴里挂着的婴儿吸奶器，时不时的嚼一嚼、吐一吐，证明自己的嘴上功夫还不错。银行本是资金自由流动服务业，现在改行干起了限制自由流动的“钱霸王”，客户资金的流向, 它说了算。媒体本应传播真实的信息资讯，现在却掩盖真相、歪曲事实、误导民众。这就是真实的加拿大。
+由于在一艘于1945年五月被英军击沉的船中，发现了伯杰的名片，美国司法部据此得以确认伯杰在战争时期的身份。他一直不间断的领取来自德国的退伍养老金。
 
-表面看似平静，实则暗流涌动。在加拿大，一切都在潜移默化中发生了变化，变化的让人难以置信，仿佛又置身于我出生的国家，这不仅让我想起了那句歌词：“解放区的天是明朗的天”。莫非特鲁多这些政治精英心里的加拿大也向往着解放区那明朗的天吗?
+根据 2010年《移民和国籍法》中的霍尔茨曼修正案，任何参与纳粹迫害、种族灭绝或实施任何酷刑或法外行刑的个人都将被美国驱逐。
 
-**参考链接：**
+西方世界对纳粹主义的声讨并没有因历史的远去而淡化，反而持续不断，愈演愈烈，这为悍然在21世纪犯下反人类罪且抱有侥幸心理的残暴政权CCP发出的一个最有力的警告。
 
-1. [What Hold Does China Have Over Justin Trudeau?](https://www.nationalcitizens.ca/fernando_china_influence)
-2. [特鲁多拒称中共在新疆犯下”种族灭绝罪”](https://gnews.org/zh-hans/911777/)
+* * *
 
+参考来源：
 
-（本文仅代表作者个人观点）
+[US deports former Nazi concentration camp guard to Germany](https://nypost.com/2021/02/20/us-deports-former-nazi-concentration-camp-guard-to-germany/)
 
-+2
+[Judge Upholds Deportation Order For Former Nazi Concentration Camp Guard](https://www.newsweek.com/judge-upholds-deportation-order-former-nazi-concentration-camp-guard-1548903)
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+
+0

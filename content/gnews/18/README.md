@@ -1,34 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【灭共头条】北约秘书长在2021年慕尼黑峰会上强调对抗中共是决定性战略问题
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/922845/)
+## 再现危机？法国卫生部长表示担忧
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/922905/)
 
-#### 编译报道：MIYA【㊙️翻 Gnews原创组】
-责任编辑：心声
-![]()![](https://gnews.org/wp-content/uploads/2021/02/210218b-002_rdax_775x440.jpg)北约秘书长主持2021慕尼黑防长峰会 图片来源：nato.int
-
+```
+记者: Hugues Garnier, 2021.02.20, BFM TV
  
-2021年慕尼黑防长峰会于2月19日在线上举行，北约秘书长延斯·斯托尔滕贝格（Jens Stoltenberg）主持会议。斯托尔滕贝格强调中共的崛起已超过俄罗斯成为北约需要优先重视的决定性问题，他呼吁将中共国正式纳入北约的 “战略概念”，以应对其军事崛起。
+翻译整理：旦旦 校对/发稿人: Ting Guo
+```
 
-美国新闻（U.S. News）2月19日报道，斯托尔滕贝格秘书长在慕尼黑安全网络会议上指出，北约历来专注于敌对俄罗斯，但面对中（共）国日益增长的威胁，必须寻求跨大西洋联盟各国的共识，不再将中（共）国视为良性的贸易伙伴。他呼吁欧洲、加拿大和美国共同坚守国际秩序，积极应对中（共）国与俄罗斯对国际秩序的挑战。
 
-斯托尔滕贝格通过视频会议说：“中（共）国日益增长的威胁是跨大西洋共同体的决定性问题，对我们的安全、繁荣和生活方式有着潜在的影响。”
+因为疫情在滨海阿尔卑斯省 (Alpes-Martimes)的迅速扩展，法国卫生部长韦郎 (Olivier Véran) 在该省的省会城市尼斯 (Nice) 发表讲话：“最近三天的趋势不再令人乐观，昨日的数据与上周五相比，增加了3000多例确诊。” 同时他提到，很可能会在尼斯实行局部封城。
 
-美国总统乔·拜登在会上抨击了中共对全球经济的破坏。他呼吁国际社会必须反击中共政府在经济活动中的胁迫行为。拜登说，美国和欧洲的所有公司，都必须遵守同一规则，公开披露其公司的企业和管理结构，以阻止腐败和垄断行为。中国的企业也不例外。
+报道中还引用了Covid追踪网 (CovidTracker)于2月19日的数据，显示确诊病例的下降速度正在减缓，从18日的-6%到19日的-5%。
 
-英国首相鲍里斯·约翰逊（Boris Johnson）在会上发表了自英国脱欧后的首次外交政策演讲。他宣告脱欧后的英国在国际社会上将率先捍卫人权并保护欧洲安全。约翰逊表示，英国首先颁布了马格尼茨基法案制裁海外侵犯人权的官员。目前，英国已对50多名侵害人权者实施了制裁，其中包括俄罗斯、缅甸和津巴布韦的官员。除此之外，英国政府也没有忽视中共在新疆对维吾尔族人的种族屠杀，以及中共对香港自由和法治的侵害。为此英国推出新政策，以拒绝中共在新疆侵犯人权的产品进入英国供应链，并为近300万香港人提供了获得英国公民身份的途径。约翰逊最后表示英国将再带头捍卫北约盟友的利益。
 
-脱欧后的英国明显比拜登上任后的美国更注重对抗中共的实际行动：经济方面阻止中共加入“跨太平洋伙伴关系全面进步协议”扩展与亚洲的贸易合作；军事方面威慑中共，将“伊丽莎白女王”号航母派往印太地区维护区域安全；媒体方面打击中共，BBC连续报道中共在新疆的种族屠杀和中共隐瞒疫情纪实并吊销中共大外宣CGTN的广播牌照等等。显然，约翰逊抓住了中共这个全球焦点，抓住中共逃脱不了的人权和疫情劣行并直击要害，以英国如今的行动力和在欧洲的影响力来看，其在全球特别是欧洲推动联合灭共的力量不容小觑。
 
-**参考链接：**
+> La décroissance du nombre de cas continue de décélérer -5% sur une semaine (hier on était à -6%). On détecte 18 245 cas chaque jour. [https://t.co/h81zmT4L1e](https://t.co/h81zmT4L1e) [#ThreadCovid](https://twitter.com/hashtag/ThreadCovid?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1wRwmhjtEy](https://t.co/1wRwmhjtEy)
+> — GRZ – CovidTracker (@GuillaumeRozier) [February 19, 2021](https://twitter.com/GuillaumeRozier/status/1362837197481795590?ref_src=twsrc%5Etfw)
 
-1、[China’s Rise to Define Transatlantic Ties, NATO Chief Says](https://www.usnews.com/news/world/articles/2021-02-19/chinas-rise-to-define-transatlantic-ties-nato-chief-says)
 
-2、[拜登：国际社会必须反击北京的经济威胁](///Users/hwei/Downloads/拜登：国际社会必须反击北京的经济威胁)
 
-3、[【慕尼黑安全会议】英相：英国将率先捍卫人权和欧洲安全](https://www.soundofhope.org/post/476228)
+根据BFM TV的消息，法国总统马克龙 (Emmanuel Macron)决定再等待8至10天来观察并决定下一步公共卫生令。
 
-（本文仅代表编者个人观点）
+**评论：法国及欧洲各国政府的举措不仅令人失望，更是让人愤怒。他们只做表面功夫，凭借数据来颁布所谓的公共卫生措施，没有人能够提出病毒危机的来源：共产党。如闫博士所说，共产党在这个病毒里埋了很多雷，现在世界各地出现的变种毒株以及高居不下的病例数，足以证明共产党的邪恶。请战友们保护好自己及家人的安全，继续宣传病毒真相！**
+
+**（免责声明：本文的简评只代表译者观点，跟GNEWS平台无关。）**
+
+**原文链接：**[COVID-19: Véran déplore que “la tendance sur les trois derniers jours n’est plus bonne” en France](https://www.bfmtv.com/sante/covid-19-veran-deplore-que-la-tendance-sur-les-trois-derniers-jours-n-est-plus-bonne-en-france_AV-202102200159.html)
 
 +1
