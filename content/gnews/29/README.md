@@ -1,45 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美国务院发言人对缅甸军队向抗议者开枪表示深切关注
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/923441/)
+## 缅甸反军事政变抗议遭遇血腥镇压 两人丧生
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/923467/)
 
-作者：纽约香草山写作组 Wilson
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-21_07-08-09.jpg)[epochtimes.com](https://www.epochtimes.com/gb/11/12/4/n3447745.htm)
+路透社2月20日报道，缅甸第二大城市曼德勒周六反军方政变的抗议活动中有两人死亡，警察和士兵开枪驱散抗议民众，紧急救援人员说，这是两周多以来示威活动最血腥的一天。
 
+支持民主政府的民众走上缅甸街头，他们要求结束军方非法统治，释放被关押的民选领导人昂山素季(Aung San Suu Kyi)等人。曼德勒的紧张局势迅速升级，警察和士兵与抗议者对峙，一些示威者向警察发射弹弓，警方以催泪瓦斯和枪声回应，目击者说，他们在地上发现了实弹和橡皮子弹的弹头。据报道在这场示威游行中有20人受伤，两人死亡。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+警方没有就此发表评论。而在上周，警察在首都内比都驱散人群时，一名年轻的抗议者头部中枪身亡，这是反政变示威者中死亡的第一人。
 
+美国国务院发言人普莱斯(Ned Price)说，美国对缅甸军方部队向抗议者开枪，并继续拘留和骚扰示威者的报道“深感关切”，并在推特上写道,“我们与缅甸人民站在一起”。
 
+法国外交部称这种暴力是“不可接受的”。 英国外交大臣多米尼克·拉布(Dominic Raab)在推特上说，“缅甸的和平抗议者遭到枪击是不可容忍的”，并表示将对那些对抗议者使用暴力的人采取进一步行动。他说，“我们将与我们的国际伙伴一起，考虑采取进一步行动，反对那些压制民主、扼杀异见的人。”
 
-印度[斯番时报](https://www.hindustantimes.com/world-news/us-deeply-concerned-by-reports-myanmar-security-forces-fired-on-protesters-101613865472861.html)2月20日报道，缅甸第二城市曼德勒因军队向抗议者开枪已造成两人死亡。当时，警察和士兵开枪驱散2月1日军事政变的抗议者，这是两个多星期的示威中，最血腥的一天。
+政变发生后，美国、英国、加拿大和新西兰宣布对缅甸军方主要领导人实施制裁措施。然而这有限的制裁和谴责并不能解决缅甸军方对民主的践踏和对民众的血腥镇压。甚至在政变之前，缅甸军政府领导人敏昂莱(Min Aung Hlaing)因为镇压罗兴亚人就已经受到西方国家的制裁。缅甸的将军们与中共有着更密切的关系，在他们身后有中共的支持，让他们无视西方的压力。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/133.jpg)图源网络
+缅甸的言论封锁，网络封锁，血腥镇压正是中共用来摧毁香港的手段。西方需要觉醒，要想真正地挽救香港和缅甸的民主法治人权，根本的解决办法是消灭中共极权，彻底杜绝共产主义专制对世界的渗透和侵害。
 
-美国国务院发言人内德·普莱斯周六在推特上表示，美国对缅甸安全部队向抗议者开火并继续拘留和骚扰示威者的报道，感到“深切关注”。普莱斯在推特上写道，我们与缅甸人民站在一起。
+参考链接：
 
-因为中共国幅员辽阔、人口众多，且产业链齐全。因此，邪恶的中共在与西方的对抗中，底气十足。但他也有致命软肋，那就是能源约80%依靠进口，主要进口来源为中东和非洲，而且必须途经印度洋。其中，每天约50桶原油通过缅旬的输油管道（还有天然气管道）输往昆明，其余经过马六甲海峡、南海、台海、东海，到达中共国沿海。
+[https://www.reuters.com/article/uk-myanmar-politics/two-killed-in-myanmars-mandalay-city-in-bloodiest-day-of-protests-idUKKBN2AK04C](https://www.reuters.com/article/uk-myanmar-politics/two-killed-in-myanmars-mandalay-city-in-bloodiest-day-of-protests-idUKKBN2AK04C)
 
-中共如果失去对缅甸的控制，能源安全就无法保障。一旦中共挑起战争，对手肯定首先武力封锁中共的能源运输线，中共国的经济就会瘫痪。这就是为什么中共急于通过缅甸军政府，全面控制缅甸的原因。如果中共控制缅甸，就可以在缅甸的印度洋孟加拉湾沿岸投放军事力量，和亲中共的巴基斯坦互为犄角，威慑和钳制印度，保护其能源航线。
-
-如果缅甸被中共控制，美国的印太战略将陷入被动——这是美国对缅甸政变屡表关切的原因。尤其是国务卿布林肯，在刚刚过去的美日印澳四国防卫框架会议上，发表了对缅甸政变极为严厉的声明。
-
-缅甸曾经是英国的殖民地，对民主的诉求更强烈。因此，中共和军政府将遇到顽强抵抗。如果局势持续恶化，美日印等是否借机出兵干预呢？
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
-
-+2
+0
