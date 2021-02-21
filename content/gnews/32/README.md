@@ -1,41 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】蔡英文大手笔调整国防部国安局陆委会掌门人
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/923222/)
+## 中共再次军演入侵台湾防空识别区
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/923291/)
 
-作者：纽约香草山写作组 Wilson
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-21_05-24-17.jpg)[economist.com](https://www.economist.com/china/2018/07/05/a-deadline-looms-in-chinas-battle-with-foreign-firms-over-taiwan)
+路透社2月20日消息，台湾国防部称，周六12架中共战斗机和轰炸机在有争议的南海台湾控制岛屿附近进行演习后，台湾空军连续第二天紧急起飞。
 
+中共声称台湾是中共国领土，并毫不掩饰武力统一台湾的意图。近几个月来中共多次在台湾防空识别区西南角执行空中任务，主要是在普拉塔斯群岛附近。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+在9架中共空军飞机周五飞近普拉塔斯群岛后，台湾国防部表示，周六中共又再次向该区域派遣了8架战斗机、两架可携带核弹头的H-6轰炸机和一架反潜飞机， 报称，中共海军也参与其中任务，但没有给出细节。
 
+台湾空军警告中共飞机离开，并部署了导弹系统来监视活动。中共没有就此发表评论。此前，中共曾表示，此类演习是对台北与华盛顿之间“勾结”的回应，也是为了维护中共主权，因华盛顿是台湾的主要国际支持者和武器供应商。
 
+周六，美国国务院发言人再次呼吁北京“停止对台湾的军事、外交和经济压力”并补充说，它应该“与台湾民选代表进行有意义的对话”。
 
-[风传媒](https://www.storm.mg/new7/article/3487217)2月19日报道，中华民国总统蔡英文对当前最为重要的三个部门进行了人事调整。现任国安局长邱国正出任国防部长，現任陆委会主委陈明通转任国安局長，新任陆委会主委由前陆委副主委、前法务部長邱太三接任，国防部长严德发转任国安会咨询委员。
+参议员汤姆·科顿(Tom Cotton)周四呼吁美国就中共入侵台湾的情况出台新政策。他强调，“美国需要明确，我们不会允许中共入侵和征服台湾”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/131.jpg)图源网络
+科顿议员最近表示，美国支持对台军售的战略还是比较模糊，当台湾真正受到中共武力袭击时并不能保证美国的干预。美国应该为中共划定“红线”，并要求华盛顿方面就台湾危机“做出回应”。他说，美国应该“非常清楚”地表明，中共入侵台湾意味着与美国开战。
 
-其中，最引人注目的新任国防部长邱国正，系美国陆军战争学院毕业，并于2018年入选该校名人堂。其极受美方重视与接受的背景，是他胜出的主因。
+参考链接：
 
-据悉，蔡英文这次人事调整，是为了应对习近平大权独揽，和中共国这个不稳定因素可能对区域安全造成的重大挑战。蔡英文预计，在未来两年，习近平极有可能继续担任下一届总书记和国家主席，到时，大权独揽的他会对台湾釆取更加激烈的行动。
-
-现在的台湾人民正在享受民主政治带来的祥和幸福，他们与世无争，善良勤劳，但邪恶的中共一直对台湾虎视眈眈。在他们的字典中没有关爱、良知这样的词，更没有人权高于主权的概念。如果台湾真的沦陷了，美国的印太战略就彻底破产了，人类文明将面临严重的倒退！
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
+[https://www.reuters.com/article/us-taiwan-china-security/taiwan-scrambles-air-force-again-after-chinese-exercises-in-south-china-sea-idUSKBN2AK0HX](https://www.reuters.com/article/us-taiwan-china-security/taiwan-scrambles-air-force-again-after-chinese-exercises-in-south-china-sea-idUSKBN2AK0HX)
 
 0
