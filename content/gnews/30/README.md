@@ -1,23 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 缅甸封杀所有语言的维基百科
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/922753/)
+## 余茂春表示自由世界应该划定&#8221;红线”来对抗中共 （玫瑰看新闻二月十七日）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/922569/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
-
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-20_20-59-19.jpg)[desperadoj.com](https://desperadoj.com/15.html)
-02月20日，非营利组织NetBlocks在其推特上报道，在2月初发生军事政变的缅甸，互联网百科全书维基百科已被封杀。
-
-缅甸国内无法访问所有语言的在线百科全书版本。在此之前，Facebook、Instagram、WhatsApp都被封锁了。这也是缅甸连续第六天晚上网络中断。2月14日，几乎全部关停。
-
-2月初，缅甸军方夺取了国家政权，并宣布进入紧急状态。权力转移到武装部队指挥官敏昂莱身上。
-
-总统温敏（Vin Mying）和国务委员、诺贝尔和平奖获得者昂山素季（Aung San Suu Kyi）被拘留。军方指责前领导层操纵了去年11月的议会选举，当时执政的全国民主联盟党赢得了选举。政变发生后，缅甸爆发了大规模的抗议活动。
-
-参考链接：
-
-[https://www.rbc.ru/rbcfreenews/60306ea39a79472dd5517ebe](https://www.rbc.ru/rbcfreenews/60306ea39a79472dd5517ebe)
-
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-67.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-27.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/3-25.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/4-34.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/5-30.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/6-39.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/7-14.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/8-11.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/9-7.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/10-10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/11-12.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/12-9.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/13-3.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/14-3.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/15-3.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/16-4.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/17-4.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/18-3.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/19-4.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/20-4.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/21-4.jpg)
 +1
