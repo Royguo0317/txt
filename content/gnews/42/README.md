@@ -1,41 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】蔡英文大手笔调整国防部国安局陆委会掌门人
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/923222/)
+## 香港人口自2003年以来首次出现负增长
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/923261/)
 
-作者：纽约香草山写作组 Wilson
+俄罗斯莫斯科喀秋莎农场    银河
 
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-21_05-16-45.jpg)[themilitant.com](https://themilitant.com/2019/06/29/massive-protests-in-hong-kong-push-back-hated-extradition-bill/)
+《布赖特巴特新闻》（Breitbart News）2月19日报道，香港政府统计处(Hong Kong Census and Statistics Department)周四公布，去年香港人口自2003年以来首次出现下降。
 
+据人口普查局2月18日发布的年度人口报告，2020年香港人口为747万，比2019年减少0.6%。去年香港的死亡人数超过了出生人数，导致人口自1961年以来首次出现“自然下降”。离开香港的居民数量也超过了移居香港的人数，导致了“净流出”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+“据记录，2020年人口首次减少6700人，出生人口为43,100人，死亡人口为49,800人。与此同时，2020年记录的净流出人数为39,800人，其中10,100名单程许可证持有人流入，以及49,900名香港居民流出。”
 
+据《日经亚洲评论》(Nikkei Asian Review)报道，2019年，香港申请“无犯罪记录证明”(移民到大多数国家通常需要的一份文件)同比激增43%，达到3.3万份。2020年的数据尚未公布。
 
+中共在2020年6月对香港实施了《国家安全法》，这破坏了香港的半自治香港爆发了长达一年半的抗议活动，谴责中共侵蚀香港民主。《国安法》加强了香港的边境安全，令中共内地的移民人数整体下降，同时也迫使许多香港居民逃离香港，许多人前往英国。英国1月底宣布，计划在未来几个月欢迎多达500万选择离开香港的香港居民。
 
-[风传媒](https://www.storm.mg/new7/article/3487217)2月19日报道，中华民国总统蔡英文对当前最为重要的三个部门进行了人事调整。现任国安局长邱国正出任国防部长，現任陆委会主委陈明通转任国安局長，新任陆委会主委由前陆委副主委、前法务部長邱太三接任，国防部长严德发转任国安会咨询委员。
+因中共公然撕毁“一国两制”承诺，对港人暴力镇压，英国实施了对港人的庇护。持有英国公民海外护照——1997年香港回归中共国之前出生在香港的香港公民可以使用这种护照——可以和他们的家人申请5年签证。在此之后，他们可以申请英国国籍。此前，这些护照持有者只能获得6个月的英国签证。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/131.jpg)图源网络
+参考链接：
 
-其中，最引人注目的新任国防部长邱国正，系美国陆军战争学院毕业，并于2018年入选该校名人堂。其极受美方重视与接受的背景，是他胜出的主因。
-
-据悉，蔡英文这次人事调整，是为了应对习近平大权独揽，和中共国这个不稳定因素可能对区域安全造成的重大挑战。蔡英文预计，在未来两年，习近平极有可能继续担任下一届总书记和国家主席，到时，大权独揽的他会对台湾釆取更加激烈的行动。
-
-现在的台湾人民正在享受民主政治带来的祥和幸福，他们与世无争，善良勤劳，但邪恶的中共一直对台湾虎视眈眈。在他们的字典中没有关爱、良知这样的词，更没有人权高于主权的概念。如果台湾真的沦陷了，美国的印太战略就彻底破产了，人类文明将面临严重的倒退！
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
+[https://www.breitbart.com/asia/2021/02/19/hong-kong-population-falls-for-first-time-since-2003/](https://www.breitbart.com/asia/2021/02/19/hong-kong-population-falls-for-first-time-since-2003/)
 
 0
