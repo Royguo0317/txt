@@ -1,57 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国物理学家罗兰德.维森丹格 新冠病毒溯源 新冠病毒是实验室泄露
-` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/925247/)
+## 【军事快讯】日美法海军在日本海域实施补给训练
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/925336/)
 
-**翻译者：筑基谈笑间**
+作者：纽约香草山写作组 Wilson
 
-美国网媒《国家脉动》（The National Pulse）2月19日报道，德国物理学家罗兰德·维森丹格(Roland Wiesendanger)**最新研究表明，新冠病毒来自武汉病毒研究所实验室。**
-![]()![](https://gnews.org/wp-content/uploads/2021/02/德国大学-e1613950958558.png)图片来源：德国汉堡大学
-自1986年以来，罗兰德.维森丹格的研究已被引用超过3.5万次，他为30多个国家和国际资助机构审查提案，撰写了2本教科书和620种出版物，并主持或为130个国际会议提供咨询。他还获得了20多个奖项，包括当选为欧洲科学院院士和荣获汉堡科学院汉堡科学奖。
 
-**维森丹格引用了大量的证据和事实清楚的证明了他的理论: 新冠病毒是武汉病毒研究实验室事故泄露，是引起当前新冠病毒大爆发的主要原因。**
 
-这项2月份的最新研究讨论了，相互矛盾的病毒来源理论：新冠病毒要么是武汉华南海鲜市场泄露，要么是武汉病毒研究所实验室泄露。维森达尔报告抛出了几个问题：1，新冠病毒是否是来源于自然？2，新冠病毒在中间宿主的协助下在蝙蝠身上发生的（巧合）突变？3，新冠病毒是科学家在进行冠状病毒研究时的无意泄露？
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-**新冠病毒至今没有找到宿主**
 
-维森丹格的报告中称：冠状病毒大爆发一年后的今天，还是没有找到能够使新冠病毒病原体从蝙蝠传播给人类的中间宿主。因此，将人畜共患病理论作为大流行的可能解释，没有坚实的科学基础。
 
-**新冠病毒并非来自自然**
+[共同社](https://china.kyodonews.net/news/2021/02/318be808ff34.html)2月21日报道，日本海上自卫队20日发布消息称，19日在九州西侧海域与美法两国海军实施了联合训练。海自出动补给舰“滨名”号，为美军驱逐舰“柯蒂斯·威尔伯”号、法军护卫舰“牧月”号进行了补给。海自方面说明称：“努力增进了相互理解并提高战术水平。”
 
-此报告还指出，通过连接到冠状病毒刺突蛋白的一个特殊弗林蛋白酶切位点的特殊细胞受体结合域，能够实现新冠病毒可以很好地与人类细胞受体结合，并穿透人类细胞。这两种特性之前在冠状病毒中是从未表现过的，这表明新冠病毒病原体并非源于自然。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/137.jpg)图源网络
 
-**新冠病毒是经过基因改造**
+本次训练或有意牵制中共在东海的活动。英德两国的海军也已表明，今后将向太平洋派遣舰艇。这是由防卫省展开协调，抗衡中共国之举措。据悉，“滨名”号在训练中为美法舰艇补给了燃料。2019年生效的日法《物资劳务相互提供协定》，允许自卫队与法军相互融通物资。
 
-大量的科学专家文献出版物证实，**武汉病毒学研究所的一个研究小组多年来一直在对冠状病毒进行基因改造，目的是使它们对人类更具传染性、更危险、更致命**。而且，有记录显示，在新冠病毒大流行爆发之前，武汉病毒学研究所就存在严重的安全隐患。
+编辑/校对/发稿：Irene木木
 
-报告指出，有大量直接迹象表明，武汉病毒研究所的一名年轻研究人员是第一个感染新冠病毒的人，因此是新冠病毒感染链的起点。但是该研究所网站上的此条目已经被删除。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-还有迹象表明，**新冠病毒病原体早在2019年10月就从武汉市及其他地区的病毒研究所传播开来**。而且，中共国有关部门于2019年10月上半月对病毒研究所进行了相应的调查。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-**维森丹格的新冠病毒来自实验室的理论一出，立即在学术界引起轩然大波。**
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-甚至连欧洲最大图片报，质问中共：**为什么中共要实验新冠病毒？为什么不让外界专家进驻武汉调查？为什么病毒爆发初期不警告全世界，而是任由病毒传遍全世界？，，，**
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-**【编辑校对】：冰糖葫芦喵**
 
-**【免责声明】**  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-**【参考来源】**
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-[https://thenationalpulse.com/news/wuhan-lab-was-covid-cause-says-scientist/](https://thenationalpulse.com/news/wuhan-lab-was-covid-cause-says-scientist/)
 
-[Roland Wiesendanger – Wikipedia](https://en.wikipedia.org/wiki/Roland_Wiesendanger)
 
-[郭文贵MILES – 盖特 – G|TV](https://gtv.org/getter/60315ac8195851590235df06)
-
-**欢迎战友加入旧金山金喜准农场**
-
-**旧金山金喜准农场** GTV: [https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
-
-**旧金山金喜准农场** Discord: [https://discord.gg/QQzQ79grEA](https://t.co/hPEjhr0AZA?amp=1)
-
-**旧金山金喜准农场** Twitter: [https://twitter.com/sf\_himalaya](https://twitter.com/sf_himalaya)
-
-+1
+0
