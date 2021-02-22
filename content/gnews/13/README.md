@@ -1,60 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0213连线樱花团VIII:Sara假造七哥求饶音频,一次造假一切结束
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/925400/)
+## 共产党货币绝对中心化造成共产党内部经济的绝对恐惧
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/925436/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/封面-32.png)
-编辑整理：
+新闻简述：在2021年2月8日的盖特视频中，郭先生说近日比特币的巨大涨幅是共产党搞货币绝对中心化带来的恐惧的结果。这种恐惧还带来了欧洲的古董、日本的古董、日本和欧洲房产的大热和中国精英的加速流失，最后加速共产党的灭亡。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/02/Miles_20210208_Getter.srt.txt)
+**共产党货币绝对中心化造成共产党内部经济的绝对恐惧**
 
-伦敦喜庄园：胖丁
+**The Consequence of the Centralization of Currency by the CCP**
 
-法国巴黎七星农场：枫丹白露
+从昨天到现在，华盛顿的咱们的战友们，说现在中南坑习下了命令，必须要在中国春节这个契机，牢牢地把握这个契机，让中美关系恢复正常化，让拜登要恭喜春节。看来三个硬盘发酵了，三个硬盘。所以说兄弟姐妹们，所谓美中春节外交即将开始，咱们拭目以待吧。
 
-郭文贵先生在2021年2月13日大年初二连线樱花团，在连线中郭先生与樱花团的战友们谈到了日本未来的经济走向、政治走向等内容，本系列将根据郭先生与樱花团战友互动过程中涉及的不同话题逐一上传，以下为八第部分——Sara假造七哥求饶音频,一次造假一切结束
+From yesterday till now, our fellow fighters in Washington D.C. have said that Xi [Jinping] in the Zhongnan Pit had given an order that they must firmly grasp this opportunity during the Chinese New Year to restore and normalize the Sino-US relation, and also make Biden greet Xi a happy new year. It seems that the “three hard drives” have worked, the three hard drives. So brothers and sisters-in-arms, the so-called Spring Festival diplomacy between the U.S. and China is about to begin, so let’s wait and see.
 
-据[樱花团新春联欢，郭先生连线寄语20210213](https://gtv.org/video/id=6027b4e8be64150df8548f53)时间点2：53：06——
+另外一个，这两天来看到比特币，涨、下、涨。大家要意识到，这是文贵两、三天前说的，这是共产党的所有的虚拟货币、共产党货币，让全世界的货币去中心化和其它的虚拟货币去中心化，他绝对中心化，造成的共产党内部经济的绝对恐惧。千万别忘了共产党内部的共产党员的钱不都是黑钱，也不都是赃钱，有些很多也是劳动获得的。但是共产党，在它的面前，一切都是党的，一切都听党的，你所有的钱都不合法，最大的受威胁的是共产党党员。所以这些财富的恐惧，一定想尽一切办法外移。
 
-郭文贵先生：你看，我再说这个九指妖，九指妖她开始发生这事，你看见没有？她要亮出来所有七哥的通话。**你亮出来这个通话，她以为能把我们打倒。如果你亮出来说，当时七哥有一段话说咱把这个钱给卷走把这个樱花团的钱给卷走，如果有一次这事情，完了，咱这就就彻底糟了 。**
+Also, the price of Bitcoin has been fluctuating greatly the last couple of days. People should realize that this is what Miles said two or three days ago: this is due to the extreme panic about the CCP’s domestic economy caused by the CCP’s centralization of its virtual currencies while asking the rest of the world to decentralize their currencies. Make no mistake, not all of the money of the CCP members’ is dirty money or corrupt money. There is money which is legal income from their work. But the CCP believes that everything belongs to the Party, everything must be at the Party’s will, and all your money is illegal, so the CCP members are facing the biggest threat. Therefore, this panic will inevitably cause them to transfer their wealth overseas by any means possible.
 
-第二，**她亮出来的东西证明了我们所有的钱都去向了应该去的地方，呵呵~这更证明了我们战友们、长岛哥、老班长、联盟委员会，为大家做事情，这个你们都是当事人，你们都很清楚的。另外一个钱去了该去的地方，**就像你到餐厅里吃饭，你必须把钱给人家这个餐厅里边的收款处，你不能把钱给到旁边吃饭的桌子上去，这是个基本的常识，对吧？
+这就是所说的“外溢效应”，叫“突然的外力的效应”，就是个马桶在经济学说里面，一个水桶水，这里突然一个大石头扔进来了，它把水不仅仅是给你漾出来了，它就给你砸出来了。这个时候由于“恐惧”，突然间的外力，把水外溢以后，这水去哪里你无法控制。那么这就是非正常现象。
 
-那么接着一次一次的撒谎，让人家，人家给她要钱，你让人家写遗书把钱给她。人家说这个为啥写遗书？她说路德这个说有战争不靠谱，但是说你还要继续写遗书。说那为什么写遗书啊？因为战友们都有钱，呵，你们有钱，说都有钱人你得写遗书，但遗书、把遗书的钱给我。当大家问她钱在哪呢？说钱都给郭文贵了、都给联盟了。说那你亮一亮，不亮，最后逼得急了，说自己亮出来了，那钱给的，结果她自己还留了四千多万，结果再一亮钱的时候，她自己个人帐上还有五百万，还有八十万的，
+This is called the “spillover effect” or the “sudden external force effect”. In the economics theory, that means when a big rock is suddenly thrown into a toilet full of water, the water will splash out rather than flow out. When there is panic or sudden external force, you will not be able to control where the water [or money] will go to. This is a phenomenon not under normal conditions.
 
-结果人家说你犯罪了、你诈骗，我要钱回来。说你要钱你先登记，凭啥登记呀？你必须登记，SEC让登记的，结果一亮SEC，是八月份让她配合了解这个钱的一个SEC，你说这个王八蛋你说这扯到什么犊子去了。结果大家说那你把钱还给我，我啥也不想要了，就是说，我要给你们公平。战友们说，你别跟我说公平，我不要公平，我要钱。我给你自由，人家说我不要公平，不要自由。我给你上帝，我不要公平自由和上帝，那我给你什么？我给你真相。
+这就是看到为什么我说的，欧洲的古董、日本的古董、日本在一些好的地方的房地产[大卖]。日本的经济会崩溃的，在奥运前后，日本的整个的QE太夸张了，而且日本的QE全到国外去了，日本的地产一定会崩盘的，就这，大量的钱进去买。原来是买香港，现在是买欧洲。像伦敦的是房子就卖，伦敦的经济未来也好不了。为什么？就是中共所有的绝对中心化，共产党内部人知道，所以说他先赶快把钱给弄出去。这种外溢效应对共产党的经济是灾难的结果，他本来已经不堪一击了，靠擀面杖子经济完全虚假经济，这时候把所有的绝大多数人，中国的财富70%到80%在共产党员手里边哪，这财富外溢。
 
-结果来了，如果她能干一件事，结果今天早晨我醒来，木兰发给我一个语音，竟然能造假出来跟共产党当年制造我的假音频、假视频一样，竟然是我给她求饶，这一下子九指妖彻底完了。
+That’s why I said that the European antiques, the Japanese antiques, and some Japanese real estate in good locations [are in high demand]. Actually, the Japanese economy is collapsing around the time of the Olympics, and Japan’s quantitative easing (QE) is crazy, with the QE money all being invested abroad, so Japan’s real estate is bound to collapse in the future. That being said, a huge amount of money [from the CCP] is pouring in [the Japanese real estate]. Previously, people bought properties in Hong Kong, now people buy properties in Europe. London’s economy will not be good in the future, but its housing market is hot. Why? It is caused by the CCP’s absolute centralization [of its currency]. The insiders in the CCP have known this, so they are moving their money overseas as quickly as they can. This “spillover effect” will lead to catastrophic results to the CCP’s economy. It is already on the edge of collapsing and is a completely fake economy only supported by fake data. And at this point, the vast majority of China’s wealth, 70 to 80% of which is in the hands of CCP members, is spilling out.
 
-所以说文艺啊，二尊你要记住这个，**一个人你造一次假一切结束。就这个假音频，你们一定要多上节目，好好听听说说，你们一定要好好说说。**樱花团最近节目做得太少，还要做得更多。这点魔女能折腾，哇塞，只要一直播，樱花无处不在。啊，而且老折腾，她这点真的很牛，我很佩服她啊，这种战斗力。就你们太害羞还，你们得有点这个，真得拿出来更多的这种猛劲来哈。
+而且这就是世界上虚拟货币、数字货币，未来两种货币。绝对去中心化的商业虚拟货币，和绝对中心化的国家为背书的基础性货币，这两个的对垒已经开始了。最终一定是去中心化货币赢，因为它安全、隐私，而且谁也控制不了。共产党绝对是打开了金融界的潘朵拉盒子。
 
-那么，你看那个音频，这个到法院、到法官，那简单得不能再简单了，是不是郭文贵给你说的？这是不是郭文贵？**技术一鉴定，不是的话，你能造这个音频假，郭文贵给你求饶？郭文贵连美国总统都不怕，共产党都不怕的，给你求饶？你得了什么神经病了呀？你得了什么样的精神病你才能这样疯狂啊？**
+Moreover, virtual currency and digital currency are the two forms of future currencies. The competition has begun between the absolutely decentralized commercial, virtual currency and the absolutely centralized state-endorsed currency. Ultimately, the decentralized currency will win because of its security, privacy, and the fact that it cannot be manipulated by anyone. The CCP has definitely opened the Pandora’s Box of the financial world.
 
-所以这个Sara九指妖之Low，和这个这个人之恶毒，这个人简直是用任何恶毒的任何语言形容这个烂货都已经不能再形容了，她太烂了。她不是中国女人，她是中国女人最恶的，**她不是一个生理上的问题，她是心理、生理、精神都有病。**
+那么大家能看到这些古董和在房地产市场的高昂，被共产党买走的时候，大家还有什么现象知道吗？这些人买完房子，买完古董，就要把更多的家人送到海外来。这在中国叫什么？它不仅是去中心化，是去精英化。而且是拔根儿，去几代。
 
-所以说我那个，昨天晚上有战友跟我说，他说七哥你怎么看待他们这个每天这些人说的这些话那些话？我说我告诉你，很简单，**天天把上帝、把佛祖、把穆罕穆德和把任何所谓的信仰挂在嘴上的人，只有两种人，一种是精神病、一种是骗子，绝对不可能有第三种人。**
+Do you guys know what else will happen after you see the rising prices in the antique and real estate markets? After they finish buying houses and antiques, they will send more family members overseas! What is this called in China? Not only decentralization, but also the escape of the elites. It is the uprooting of multiple generations of elites.
 
-一定就是这个，这个文艺你明白，我们的勇气跑哪去了？看不着勇气了，得让勇气说几句 。一定要记住，只要是把佛呀，祖呀、什么神哪，挂上边、挂嘴边，什么信仰呀、文化呀、自由呀、民主挂嘴上的，她要么是精神病要么就是骗子。
+那么现在看来，全世界在过去的几天里面，全人类都在想的是病毒的问题，都在找病毒的真正的来源。现在大家基本上都明白了，病毒就是共产党的武器。华盛顿今天2月8号以后，美国的真正的内部政治斗争，甚至引发内战是从今天开始，大家拭目以待吧。
 
-欺民贼说到这，**你看那个博讯的韦石这个王八蛋，这个孙子你去看看这几年，所有博讯出来的所有的东西它全是共产党的口号。但是他说得最多的就是民主、自由、法制，欺民贼讲的最多的民主、自由、法制，它全是假的。所以说这些人要么是神经病，要么是骗子。**
+Well, it seems that over the past few days, all humanity in this world are thinking about the virus problem and looking for its real source. Now everyone has known that the virus is the CCP’s weapon. Starting from today, February 8th, in Washington, D.C., a real political battle within America will begin, which might even lead to a civil war, so let’s wait and see.
 
-那你看九指妖，自由、信仰、真相、上帝，全让她卖完了，她就是个骗子，很Low的骗子，竟然那么快的速度造出七哥假音频出来。
+全球联合灭共，全球没有选择地一起灭共，和共产党内部要想保存自己的财富，咱先说你合法财富和子孙的未来，你已经没有任何选择了。共产党要把你们这所有人都给中心化的结果，那不是老百姓害怕，是你们害怕，是你们的子子孙孙都要脱离不了魔鬼的共产党的机器，你愿意吗？
 
-兄弟姐妹们，你们想过一次曾经的九指妖Sara，她能干出如此这样的事情，导致到今天，连我们文艺这号人都改不了口了，叫Sara姐都改不了口了，都叫顺了。因为大家已经被七哥背书，备成都把她当姐了。七哥真的是很抱歉，给所有战友们，我非常抱歉，就是因为七哥的背书让她这样的。但是七哥真是当时说的都是真话，这也是七哥，七哥有机会讲讲歌舞厅啊，呵呵，小吕驼讲歌舞厅。
+The world has no choice but to unite and take down the CCP, and those in the Communist Party who hope to protect their wealth – let’s first talk about their legal wealth and the future of their offsprings – will have no other choice. The consequence of the CCP centralizing all of you is not the panic of the common people. Rather, you [the CCP members] are panicked. Your offspring will never escape the evil CCP’s machine, are you willing to accept that?
 
-接上文——
+所以说现在病毒经济、疫苗经济，现在是数字化人民币和蓝金黄直接威胁全世界的大统领。你就觉得它能赢吗？我绝对不相信。还更重要的，病毒的源头一定会很快找来。大家全向共产党找解药。你给不给解药？你不给解药的结果是什么？给了解药的结果是什么？共产党都没了，你的绝对中心化的货币还会存在吗？共产党都没了，你共产党员的财产还能安全吗？毫不夸张地说，只有新中国联邦才能代表中国人民，包括一些善良的还有希望拯救的共产党员的利益。只有新中国联邦，谁也不行，是吧？兄弟姐妹们，信不信？
 
-[郭先生0213连线樱花团I二战后的日本用自强的方式让自己觉醒](https://gnews.org/zh-hans/924062/)
+Considering the current virus-based economy, the “vaccine economy”, and now the digital RMB and the “BGY” threatening all the world leaders, do you think the CCP will succeed? I absolutely do not believe it! And more importantly, the origin of the virus will definitely be found out soon. People will ask the CCP for the antidote. Will you [the CCP] give them the antidote? If you don’t give the antidote, what will be the consequence? If you do give the antidote, what will be the consequence? Once the CCP is gone, will the “absolutely centralized” currency still exist? Once the Communist Party is gone, will the assets of CCP members still be safe? It is no exaggeration to say that only the New Federal State of China can represent the interests of the Chinese people, including those good and redeemable members of the Communist Party! Only the New Federal State of China can do this. No one else, right? Brothers and sisters, do you believe it?
 
-[郭先生0213连线樱花团II日本被共产党搞成这样,经济绝对不看好](https://gnews.org/zh-hans/924198/)
+现在美国各派之间的较量你觉得会停止吗？你觉得各派之间的较量，所有能离开中共这个话题吗？各派之间的较量能不谈病毒吗？谈到病毒能不找病毒的真相吗？谈到病毒能不找我们的闫博士科学家吗？能不看路德访谈119吗？谁能跨过爆料革命、新中国联邦？
 
-[郭先生0213连线樱花团III日本的政治和经济大动荡即将双双来临](https://gnews.org/zh-hans/924376/)
+Do you think the current rivalry between the parties in the US will stop? Do you think the rivalry between the parties can avoid the topic of the CCP? Will they avoid talking about the virus? Will they only talk but not try to find the truth about the virus? Will they talk about the virus but not consult with our scientist, Dr. Yan? Is it possible for them not to watch the Jan. 19 episode of the Lude Show? Who can bypass the Whistleblower Movement and the New Federal State of China?
 
-[郭先生0213连线樱花团IV正道主义之追求与骑士和武士精神是云泥之别](https://gnews.org/zh-hans/924661/)
+共产党你能把香港事件、缅甸事件、病毒真相能掩盖的了吗？只要知道你掩盖不了，你不能让75亿人闭嘴，你共产党就一定被灭。现在是绝对的国内所谓的用数字人民币、数字货币的统治世界的绝对中心化，事实上是去共化，事实上是将所有的中国的精英逼到外国，去精英化，所有的精英和撵出来的钱都到新中国联邦化，你不信走着看。
 
-[郭先生0213连线樱花团V真正的日本一切的文化根源都是性都是男女](https://gnews.org/zh-hans/924734/)
+CCP, do you think you can cover up the truth about the Hong Kong crisis, the Myanmar coup, and the truth about the virus? As long as you fail to cover up the truth, fail to silence the 7.5 billion people, you, the CCP, will definitely be eliminated! The absolute centralization of digital RMB for controlling the world is essentially decommunization. In fact, it forces all the Chinese elites to flee to foreign countries. All the elites and the money will flow to the New Federal State of China. If you don’t believe me, you can wait and see.
 
-[郭先生0213连线樱花团VI魔女的创立与和平善意地离开迥异与九指妖](https://gnews.org/zh-hans/924823/)
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-[郭先生0213连线樱花团VII七哥着装花多长时间/关于腿疼和过敏](https://gnews.org/zh-hans/924925/)
+视频来源：[https://gtv.org/getter/602171fe226e77590741a594](https://gtv.org/getter/602171fe226e77590741a594) (0:16-7:10)
 
-0
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/893250/](https://gnews.org/zh-hans/893250/)
+
+翻译：【Isaiah4031】校对：【BruhM】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+
++2
