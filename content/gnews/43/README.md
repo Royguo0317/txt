@@ -1,17 +1,20 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年2月21日 文贵先生盖特 5
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/924888/)
+## 如果不接种疫苗教皇方济各会解雇其员工，包括神父
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/924970/)
 
-上传发布：**西班牙巴塞罗那喜悦农场**（文惜）
+**翻译整理：**小白鸽 **校对/发稿人: **Ting Guo
 
-2月21日：很多战友发信息问七哥的腿疼痛好了……是用什么办法治好的……七哥录制一个视频．展示一下！大家在视频中，你们看到我的腿不是直的没有问题，腿，但只要你坚持住加强腿部的这个肌肉……运动三天，休息一天，每天三组啊，每一组单边75个．每一天单边235个．你的腿，加强肌肉后一定会好的！
+![]()![](https://gnews.org/wp-content/uploads/2021/02/il-papa-licenzia-i-dipendenti-che-non-si-vaccinano-pure-i-preti-500.jpg)图片来源：ragusanews
 
 
+方济各对梵蒂冈内不接种疫苗者态度强硬：拒绝者有失去工作的危险
 
-[【2021年2月21日】文贵先生盖特原文](https://gtv.org/getter/60328f721958515902362d18)
+教皇方济各也颁布了法令，使用强硬手段对待梵蒂冈的员工：不接种冠状疫苗者不会被雇佣。“如果没有出于健康原因的证明”，“会有不同程度的后果直至终断工作关系”。
 
-**喜联盟Gnews编辑部**
+这一措施是由梵蒂冈宗教委员会主席Giuseppe Bertello (朱赛佩•贝尔特罗) 签署的，确定了降级及解除劳动关系的可能性。与教会有合同关系的还包括神父及教区神父， 他们都与信徒有最为密切的关系，所以从理论上来说不接种疫苗会被调离他们的职位。这是因为“ 会给公众健康带来危险。”
+
+[**原文链接**：Il Papa licenzia i dipendenti che non si vaccinano, pure i preti](https://www.ragusanews.com/attualita-il-papa-licenzia-i-dipendenti-che-non-si-vaccinano-pure-i-preti-120862/)
 
 0
