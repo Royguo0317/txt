@@ -1,29 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 甲骨文为中共军方提供新疆监控支持
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/925545/)
+## 快讯：美国因中共病毒死亡人数已近50万
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/925580/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑   水星    上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-22_07-08-11.jpg)cidschina.com
-《每日传讯》（The Daily Caller）分享了来自The Intercept的一份报告，报告指出中共一直在使用美国科技公司甲骨文(Oracle)制造的软件来对国本公民进行监视和跟踪。
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/下载-2-1.jpg)[masala.com](https://www.masala.com/coronavirus-symptoms-preventions-treatment-and-all-that-we-need-to-know-315966.html)
+《美联社》2月21日消息，美国死于中共病毒总人数已触及50万的边缘。
 
-报告称，甲骨文的产品被中共多个执法机构用于大数据分析，并帮助监视和跟踪公民。而甲骨文的安全服务被使用的地方之一正是发生种族灭绝罪行的新疆。中共政府在那里拘禁了上百万的维吾尔族穆斯林，并实施了惨无人道的暴行统治。
+据约翰霍普金斯大学(Johns Hopkins University)疫情报道，周日的死亡总人数约为49.8万人，这大致相当于密苏里州堪萨斯市的人口总量。
 
-甲骨文的营销部门称，该公司可以帮助中共执法部门利用来自社交媒体活动、面部识别软件、DNA数据库等方面的信息对公民进行监控。甲骨文发言人杰西卡·摩尔(Jessica Moore)辩驳称，甲骨文在中共进行的所有交易都符合美国的出口管制和制裁。
+1月19日，在唐纳德·川普总统任期的最后几个小时，死亡人数达到40万人。短短四周的时间，又有近10万人因中共病毒被夺取生命。
 
-然而甲骨文前高级主管泽维尔·洛佩兹(Xavier Lopez)却给出了不同的说法。
+始于2019年12月的中共病毒已经持续了一年以上。安东尼·福奇称这迫在眉睫的里程碑是可怕的和历史性的。
 
-“中共的警察部门使用了这种软件。”洛佩兹告诉记者。尽管目前还不清楚是否有中共国军事实体使用甲骨文的产品，但是甲骨文的营销对象包含中共军方，甲骨文被指针对中共解放军以及其他国家安全实体制作了多个中文营销演示文稿。
+截至周日，世界范围内感染人数已达1.11亿，死亡人数约为246万。
 
-据Intercept报道，该公司以其“美国团队”(team America)营销方式自夸，它与美国军方的所有五个分支机构都有合同。据报道，该公司最近或即将与美国国家航空航天局(NASA)、中央情报局(CIA)和一些美国警察部门达成协议。报告中指出，甲骨文利用与美国军工联合体的成功合作，向中共客户推销其服务，并试图赢得中共的云计算合同。
-
-最令人担忧的是该公司在新疆的参与。一份公开的甲骨文客户名单显示，新疆公安部门是“数据安全解决方案”的接收方。甲骨文发言人摩尔承认，甲骨文在2011年至2019年期间与新疆省公安局进行了“有限的授权交易”。而从2017年开始发生在新疆的维吾尔族种族灭绝便引起了人权组织的关注。
+近期世界各学术界与宗教界纷纷发声，指控病毒来源于中共实验室，是中共制造的生物武器。 各国已不再沉默，开始公开质疑并要求中共公布最早的疫情数据。中共罪恶滔天，必须为这些无辜逝去的生命付出应有的代价。
 
 参考链接：
 
-[https://dailycaller.com/2021/02/19/china-police-xinjiang-uighurs-spying-surveillance-oracle-ccp/](https://dailycaller.com/2021/02/19/china-police-xinjiang-uighurs-spying-surveillance-oracle-ccp/)
+[https://wxow.com/2021/02/21/us-coronavirus-death-toll-approaches-milestone-of-500000-2/](https://wxow.com/2021/02/21/us-coronavirus-death-toll-approaches-milestone-of-500000-2/)
 
-0
++1
