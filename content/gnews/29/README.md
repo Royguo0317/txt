@@ -1,65 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战云长天时评】中共是“完美犯罪”学理论践行者——案例二：制度优势
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/925370/)
+## 共产党货币绝对中心化造成共产党内部经济的绝对恐惧
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/925436/)
 
-作者：捆绑CCP一千年/喜马拉雅东京樱花团
+新闻简述：在2021年2月8日的盖特视频中，郭先生说近日比特币的巨大涨幅是共产党搞货币绝对中心化带来的恐惧的结果。这种恐惧还带来了欧洲的古董、日本的古董、日本和欧洲房产的大热和中国精英的加速流失，最后加速共产党的灭亡。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/02/Miles_20210208_Getter.srt.txt)
+**共产党货币绝对中心化造成共产党内部经济的绝对恐惧**
 
-BILD图片报五问习近平事件有力击中了中共国的制度优势，既然如此，为什么笔者仍将“制度优势”写进这篇文章呢？因为他和中共完美犯罪学理论是相辅相成，笔者会陆续在文章里列举一些案例来分析你就会发现，制度优势无论对内还是对外，在和平年代，他都成为中共的一杆利器。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/PHOTO-2021-02-21-19-55-47.jpg)
-德国时间2月19日晚，据德国BILD图片报的一篇《中国现在必须回答这五个问题！》的报道击碎了习近平和中共极权所宣称的“制度优势”。美国时间2月20日路德社也跟进报道了这一惊爆的消息。
+**The Consequence of the Centralization of Currency by the CCP**
 
-BILD报道称，“自汉堡纳米科学家罗兰·维森丹格（Roland Wiesendanger）于周四发表了他有关中共（病毒）的爆炸性研究以来，这个问题比以往任何时候都明显。从他的角度来看，可以肯定的是：‘该病毒来自病毒学研究所附近的**高安全性实验室**’，维森丹格说，‘**有****600****份参考文献证明（中共病毒）为严重的实验室事故**（据BILD报告）’。”根据这一爆炸性研究结果，欧盟的老大德国坐不住了，BILD图片报发威后，相信欧美社会都将会相继出现暴雷式的报道。2月18日，（路博艾冠胡谈）节目中，路德预测了这一点。笔者认为，现在轮到中共国习近平主席以他的制度优势来回答如下这些问题，如果你不回答或狡辩，你就等于宣告你的优势破产了。
+从昨天到现在，华盛顿的咱们的战友们，说现在中南坑习下了命令，必须要在中国春节这个契机，牢牢地把握这个契机，让中美关系恢复正常化，让拜登要恭喜春节。看来三个硬盘发酵了，三个硬盘。所以说兄弟姐妹们，所谓美中春节外交即将开始，咱们拭目以待吧。
 
-***1*****，您同意新冠病毒是从实验室传到世界上的这种说法吗？**
+From yesterday till now, our fellow fighters in Washington D.C. have said that Xi [Jinping] in the Zhongnan Pit had given an order that they must firmly grasp this opportunity during the Chinese New Year to restore and normalize the Sino-US relation, and also make Biden greet Xi a happy new year. It seems that the “three hard drives” have worked, the three hard drives. So brothers and sisters-in-arms, the so-called Spring Festival diplomacy between the U.S. and China is about to begin, so let’s wait and see.
 
-***2*****，您为什么没有早一点警告这个世界？**
+另外一个，这两天来看到比特币，涨、下、涨。大家要意识到，这是文贵两、三天前说的，这是共产党的所有的虚拟货币、共产党货币，让全世界的货币去中心化和其它的虚拟货币去中心化，他绝对中心化，造成的共产党内部经济的绝对恐惧。千万别忘了共产党内部的共产党员的钱不都是黑钱，也不都是赃钱，有些很多也是劳动获得的。但是共产党，在它的面前，一切都是党的，一切都听党的，你所有的钱都不合法，最大的受威胁的是共产党党员。所以这些财富的恐惧，一定想尽一切办法外移。
 
-***3*****，为什么要试验新冠病毒？**
+Also, the price of Bitcoin has been fluctuating greatly the last couple of days. People should realize that this is what Miles said two or three days ago: this is due to the extreme panic about the CCP’s domestic economy caused by the CCP’s centralization of its virtual currencies while asking the rest of the world to decentralize their currencies. Make no mistake, not all of the money of the CCP members’ is dirty money or corrupt money. There is money which is legal income from their work. But the CCP believes that everything belongs to the Party, everything must be at the Party’s will, and all your money is illegal, so the CCP members are facing the biggest threat. Therefore, this panic will inevitably cause them to transfer their wealth overseas by any means possible.
 
-***4*****，您觉得应该什么时候让外界专家进驻武汉？**
+这就是所说的“外溢效应”，叫“突然的外力的效应”，就是个马桶在经济学说里面，一个水桶水，这里突然一个大石头扔进来了，它把水不仅仅是给你漾出来了，它就给你砸出来了。这个时候由于“恐惧”，突然间的外力，把水外溢以后，这水去哪里你无法控制。那么这就是非正常现象。
 
-***5*****，中国应该怎么补偿这个世界？**
+This is called the “spillover effect” or the “sudden external force effect”. In the economics theory, that means when a big rock is suddenly thrown into a toilet full of water, the water will splash out rather than flow out. When there is panic or sudden external force, you will not be able to control where the water [or money] will go to. This is a phenomenon not under normal conditions.
 
-从这五个问题来看，相信中国人已经领略到了西方绅士们处理问题的方式，既文明而又直中要害！
+这就是看到为什么我说的，欧洲的古董、日本的古董、日本在一些好的地方的房地产[大卖]。日本的经济会崩溃的，在奥运前后，日本的整个的QE太夸张了，而且日本的QE全到国外去了，日本的地产一定会崩盘的，就这，大量的钱进去买。原来是买香港，现在是买欧洲。像伦敦的是房子就卖，伦敦的经济未来也好不了。为什么？就是中共所有的绝对中心化，共产党内部人知道，所以说他先赶快把钱给弄出去。这种外溢效应对共产党的经济是灾难的结果，他本来已经不堪一击了，靠擀面杖子经济完全虚假经济，这时候把所有的绝大多数人，中国的财富70%到80%在共产党员手里边哪，这财富外溢。
 
-笔者最感兴趣的是问题三和问题五。“为什么要试验新冠病毒？”这个问题前面并没出现“您”字。冠博士说：“做研究必须要找到好的目标。中共搞的这种研究实际编不出什么好的目的。”因此，无法回答，对联中的绝对；“中国应该怎么补偿这个世界？”割地赔款都已经赔不起，唯一办法是让整个中共政权集体负责——推翻他。因此，中共掘地三尺也无法回答这两个问题，习近平如果还有点人性，你最好效仿德国纳粹希特勒——畏罪自杀，或效法日本二战时期的天皇，投降——接受国际审判。或至少追加一问：你还准备了多少病毒用来攻击整个人类？
-![]()![](https://gnews.org/wp-content/uploads/2021/02/PHOTO-2021-02-21-19-27-45.jpg)
-先来看中共国驻德国外交官的回应：“《图片报》引用的所谓‘报告’并非严谨科学的研究报告，一发布即受到德学术界、媒体和民众广泛质疑和批评，厚颜无耻地提出所谓‘中国应回答的五个问题’，实在令人不齿。”中共骂人厚颜无耻，其实反讥了自己厚颜无耻，暴露了在所谓“严谨科学问题”上的恐慌心理。这不很简单吗？闫博士等着你们来科学擂台比试比试，而你们总是顾左右而言他，拿一些被收买的所谓国际顶级专家的否认仍旧不能成就你们所谓“谎言重复一千遍就变成真理”了呀。如果“疫情是天灾，中国同其他国家一样，都是受害者。”那你为何要伪造那么多病毒甩锅的说辞？不让国际独立调查团公正而不受限制地调查？奇怪的是，笔者废了很多力气才搜到路德说的《德媒又炒作所谓“武汉实验室泄露”等阴谋论、中方表明严正立场》这一篇报道，因为中共国其他主流媒体罕见地失声。这一则孤立报道背后可见其被吓傻到什么程度，因为他们也知道，这只是刚刚开始反击……。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/PHOTO-2021-02-21-19-17-20.jpg)
-中共国制度优势究竟如何？笔者引述《路德社》博博士的两点回应，1，中共国的所谓制度优势就是，（中共把病毒放出来）在中共国是没有人权的，可以把老百姓的楼门给焊起来，而西方国家是有人权的，他们不可能把老百姓的楼门给焊起来，所以这就是中共的制度优势。同理推论，用超限生物武器进行攻击方面的优势在于，中共可以用这个武器先攻击自己的老百姓（人体试验），让老百姓先熬过去，再攻击西方国家。所以，这对西方国家的伤害要大于对中共国的伤害。”2，另一个制度优势是“光脚的不怕穿鞋的”理论，大不了中共国再回到光脚的时代去。他们光脚很多年了，所以中共国不怕你西方国家穿鞋的。
+That’s why I said that the European antiques, the Japanese antiques, and some Japanese real estate in good locations [are in high demand]. Actually, the Japanese economy is collapsing around the time of the Olympics, and Japan’s quantitative easing (QE) is crazy, with the QE money all being invested abroad, so Japan’s real estate is bound to collapse in the future. That being said, a huge amount of money [from the CCP] is pouring in [the Japanese real estate]. Previously, people bought properties in Hong Kong, now people buy properties in Europe. London’s economy will not be good in the future, but its housing market is hot. Why? It is caused by the CCP’s absolute centralization [of its currency]. The insiders in the CCP have known this, so they are moving their money overseas as quickly as they can. This “spillover effect” will lead to catastrophic results to the CCP’s economy. It is already on the edge of collapsing and is a completely fake economy only supported by fake data. And at this point, the vast majority of China’s wealth, 70 to 80% of which is in the hands of CCP members, is spilling out.
 
-所谓制度优势，一派强盗逻辑，博博士继续说道，“这就是习近平他们现在的搞法。就是说，他们一定要把西方发达的现状拉回到一穷二白的状态里去。然后中共再传授给你一穷二白盐碱地的经验，最终打败西方。这就是使用超限生物武器怎样获胜的原理。他们在这方面早就在做准备，新冠病毒只是他们病毒库里的一种。可以讲，中共在使用超限生物武器方面已经从战略上和战术上达到了弯道超车的地步。而目前在这个基础上，西方国家竟然还在讨论怎样和中共国竞争！因此，爆料革命一定要让西方国家觉醒，让西方世界认识到中共的策略和野心。可以讲，中共在科技上的技术很粗糙，但他们弄死西方人的决心是很坚定的。比如P4实验室还是法国造，但他就是利用西方技术把这个世界毁掉。以中共丰富的盐碱地经验来打败美国，这就是他们的狼子野心。”
+而且这就是世界上虚拟货币、数字货币，未来两种货币。绝对去中心化的商业虚拟货币，和绝对中心化的国家为背书的基础性货币，这两个的对垒已经开始了。最终一定是去中心化货币赢，因为它安全、隐私，而且谁也控制不了。共产党绝对是打开了金融界的潘朵拉盒子。
 
-笔者认为，中国共产党建党将近一百年来，他们的确靠所谓优势，其实是“国家骗术”取得了所谓辉煌成就，位居世界第二大经济体。甚至不夸张地讲，中共现政权如果不是习近平小学文化的国家治理能力，而是江泽民式的闷声发大财式的识时务的治理模式，继续韬光养晦，可以肯定地讲，中共的制度优势中的国家骗术完全可以继续活跃在世界舞台上很长时间。甚至就连习近平这样的加速模式，如果没有爆料革命，没有闫丽梦博士戳穿中共的底牌，世界向谁要真相去？仍然会像2003年“非典”那样，完美的自然灾难。各国自己买单不说，还会继续臣服在中共黑石榴裙下，实现所谓大唐盛世，万国来朝的虚假盛况。那么，完美犯罪学心里就被成功地利用了。而中共这次发动的超限生物武器战却因为闫博士的出现触发了世界对其关注的完美犯罪典型案件，并且最终戳穿完美犯罪企图，得到法律制裁。
+Moreover, virtual currency and digital currency are the two forms of future currencies. The competition has begun between the absolutely decentralized commercial, virtual currency and the absolutely centralized state-endorsed currency. Ultimately, the decentralized currency will win because of its security, privacy, and the fact that it cannot be manipulated by anyone. The CCP has definitely opened the Pandora’s Box of the financial world.
 
-人民日报对其制度优势是这样阐述的，“我国制度优势是集中国家力量所起的基础作用。这个国家力量是什么？就是全国一盘棋，集中力量办大事，举国一致，行动高效。”
+那么大家能看到这些古董和在房地产市场的高昂，被共产党买走的时候，大家还有什么现象知道吗？这些人买完房子，买完古董，就要把更多的家人送到海外来。这在中国叫什么？它不仅是去中心化，是去精英化。而且是拔根儿，去几代。
 
-尽管中共的笔杆子很优秀，绞尽脑汁将文章写得空洞无物，但这里还是透漏了一点有关制度优势上的完美犯罪的关键信息，在解释中共国家力量上比喻成“一盘棋”，何为棋也？棋盘界限是国家力量的笼子，中规中矩，不越雷池。不言而喻，棋子就是老百姓。那个不断悔棋和操控棋子的无形的手就是国家机器——力量也。这位写手太妙了，诗意般高度概括的语言能力也几近完美。不要小看这些空洞理论说教，中共国百姓出生以来就受到这样监狱化、防火墙监管的生活方式影响，他们看不懂党报、看不懂政策，都在为那些“虚词”叫好，厉害了我的国总是形势一片大好。这些人不分教授还是农民。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/PHOTO-2021-02-21-19-17-14.jpg)
-而“集中力量办大事，举国一致，行动高效”呢？看看数不胜数的逆天的大项目，三峡水库、核电站、病毒库实验室等等，哪一件不都是军民融合的集中力量办大事，一个人说了算，亿万人跟着干，西方国家怎么可以做得到？举国犯罪体制不就是完美犯罪的表演优势所在吗？中共国外交部都是演员嘛。
+Do you guys know what else will happen after you see the rising prices in the antique and real estate markets? After they finish buying houses and antiques, they will send more family members overseas! What is this called in China? Not only decentralization, but also the escape of the elites. It is the uprooting of multiple generations of elites.
 
-最后，笔者讲一个小小的个人经历。这也许可以解释在中共国制度优势下的墙民是如何思想的？希望起到举一反三作用。
+那么现在看来，全世界在过去的几天里面，全人类都在想的是病毒的问题，都在找病毒的真正的来源。现在大家基本上都明白了，病毒就是共产党的武器。华盛顿今天2月8号以后，美国的真正的内部政治斗争，甚至引发内战是从今天开始，大家拭目以待吧。
 
-一天，笔者的一位师母发来一个短视频，内容是和尚庙里的方丈在佛教领袖面前举办国旗进宗教场所的交接仪式。和尚们都在宣读习近平思想和一些官话，还有念经。问我怎么看，我说，很简单啊，从画面语言就可以看得懂，那不就是有辱他们的佛祖吗？她说。问题不要这么看，你说，那些和尚愿意吗？他们也不愿意。我说，那不见得，也许有愿意的。她说，最后谁是受害方？我说，就是宗教受到伤害了呀。她说，不是，外界和国际社会谴责的还是中共政府啊。笔者恍然大悟，一套完美无缺的洗脑理论啊，为完美犯罪注入了新的解释。请问诸位，这有问题吗？中共受到谴责啊，和尚是无辜者。举一个不太恰当的例子，按照美国对强奸罪的定义，也许真的合理，因为你喊高潮了，怎能叫强奸呢？但熟悉中共完美犯罪思维逻辑的人都知道，中共国如果被谴责，就道歉、被谴责就调整政策、被谴责，领导人就引咎辞职，那我们都去谴责好了。但中共强国制度优势就是墙国理论，因他的百姓听不到声音，使其犯罪就变得看起来完美，但BILD图片报的报道不是一个孤立事件，它必然会带来连锁反应。因为闫博士的第三份中共生物武器证据报告即将出炉，这会再次助推媒体热，一定会倒逼各国政府采取行动。这就是为什么此番中共的反应之所以成为孤立反击，而不是群起攻之，足见已词穷气绝。
+Well, it seems that over the past few days, all humanity in this world are thinking about the virus problem and looking for its real source. Now everyone has known that the virus is the CCP’s weapon. Starting from today, February 8th, in Washington, D.C., a real political battle within America will begin, which might even lead to a civil war, so let’s wait and see.
 
-2021年2月21日17:20分写于东亚
+全球联合灭共，全球没有选择地一起灭共，和共产党内部要想保存自己的财富，咱先说你合法财富和子孙的未来，你已经没有任何选择了。共产党要把你们这所有人都给中心化的结果，那不是老百姓害怕，是你们害怕，是你们的子子孙孙都要脱离不了魔鬼的共产党的机器，你愿意吗？
 
-引用资料：
+The world has no choice but to unite and take down the CCP, and those in the Communist Party who hope to protect their wealth – let’s first talk about their legal wealth and the future of their offsprings – will have no other choice. The consequence of the CCP centralizing all of you is not the panic of the common people. Rather, you [the CCP members] are panicked. Your offspring will never escape the evil CCP’s machine, are you willing to accept that?
 
-[路德社](https://youtu.be/-HucSkjWxjs)
+所以说现在病毒经济、疫苗经济，现在是数字化人民币和蓝金黄直接威胁全世界的大统领。你就觉得它能赢吗？我绝对不相信。还更重要的，病毒的源头一定会很快找来。大家全向共产党找解药。你给不给解药？你不给解药的结果是什么？给了解药的结果是什么？共产党都没了，你的绝对中心化的货币还会存在吗？共产党都没了，你共产党员的财产还能安全吗？毫不夸张地说，只有新中国联邦才能代表中国人民，包括一些善良的还有希望拯救的共产党员的利益。只有新中国联邦，谁也不行，是吧？兄弟姐妹们，信不信？
 
-[BILD](https://www.bild.de/politik/ausland/politik-ausland/herkunft-von-corona-diese-fuenf-fragen-muss-china-jetzt-beantworten-75476194.bild.html)
+Considering the current virus-based economy, the “vaccine economy”, and now the digital RMB and the “BGY” threatening all the world leaders, do you think the CCP will succeed? I absolutely do not believe it! And more importantly, the origin of the virus will definitely be found out soon. People will ask the CCP for the antidote. Will you [the CCP] give them the antidote? If you don’t give the antidote, what will be the consequence? If you do give the antidote, what will be the consequence? Once the CCP is gone, will the “absolutely centralized” currency still exist? Once the Communist Party is gone, will the assets of CCP members still be safe? It is no exaggeration to say that only the New Federal State of China can represent the interests of the Chinese people, including those good and redeemable members of the Communist Party! Only the New Federal State of China can do this. No one else, right? Brothers and sisters, do you believe it?
 
-[人民日报](https://wap.peopleapp.com/article/5612149/5533459)
+现在美国各派之间的较量你觉得会停止吗？你觉得各派之间的较量，所有能离开中共这个话题吗？各派之间的较量能不谈病毒吗？谈到病毒能不找病毒的真相吗？谈到病毒能不找我们的闫博士科学家吗？能不看路德访谈119吗？谁能跨过爆料革命、新中国联邦？
 
-[驻德国外交官](http://www.xhby.net/index/202102/t20210221_6985498.shtml)
+Do you think the current rivalry between the parties in the US will stop? Do you think the rivalry between the parties can avoid the topic of the CCP? Will they avoid talking about the virus? Will they only talk but not try to find the truth about the virus? Will they talk about the virus but not consult with our scientist, Dr. Yan? Is it possible for them not to watch the Jan. 19 episode of the Lude Show? Who can bypass the Whistleblower Movement and the New Federal State of China?
 
-本文只代表作者观点，与GNews网站无关。
+共产党你能把香港事件、缅甸事件、病毒真相能掩盖的了吗？只要知道你掩盖不了，你不能让75亿人闭嘴，你共产党就一定被灭。现在是绝对的国内所谓的用数字人民币、数字货币的统治世界的绝对中心化，事实上是去共化，事实上是将所有的中国的精英逼到外国，去精英化，所有的精英和撵出来的钱都到新中国联邦化，你不信走着看。
 
-审核编辑：文小白、東洋武士/喜马拉雅东京樱花团
-![]()![](https://gnews.org/wp-content/uploads/2021/02/二维码.jpg)
-HTS-02C-202102-038
+CCP, do you think you can cover up the truth about the Hong Kong crisis, the Myanmar coup, and the truth about the virus? As long as you fail to cover up the truth, fail to silence the 7.5 billion people, you, the CCP, will definitely be eliminated! The absolute centralization of digital RMB for controlling the world is essentially decommunization. In fact, it forces all the Chinese elites to flee to foreign countries. All the elites and the money will flow to the New Federal State of China. If you don’t believe me, you can wait and see.
 
-0
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+
+视频来源：[https://gtv.org/getter/602171fe226e77590741a594](https://gtv.org/getter/602171fe226e77590741a594) (0:16-7:10)
+
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/893250/](https://gnews.org/zh-hans/893250/)
+
+翻译：【Isaiah4031】校对：【BruhM】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+
++2
