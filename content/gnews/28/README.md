@@ -1,37 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】日美法海军在日本海域实施补给训练
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/925336/)
+## 12家日本公司将终止涉及新疆强迫劳动的商业交易
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/925387/)
 
-作者：纽约香草山写作组 Wilson
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑   水星  上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/下载-25.jpg)[news.com.au](https://www.news.com.au/national/uyghur-people-imprisoned-pillaged-and-destroyed-for-natural-resources-in-xinjiang/video/28f8778b4994e4e7fd011eb61d91de99)
+日本共同社(Kyodo News)2月21日报道的一项调查显示，12家日本大公司已经制定了一项政策，将停止与从新疆穆斯林维吾尔族强迫劳动中获益的中共公司的商业交易。
 
+在美国和英国对来自新疆的棉花和其他产品实施进口限制后，日本企业面临的压力越来越大，要求它们对此类侵犯人权的行为采取行动。由于担心激怒中共，日本政府在解决这一问题上一直很被动。日本政府一直被批评制裁行动迟缓。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+澳大利亚战略政策研究所(Australian Strategic Policy Institute)在去年的一份报告中指出，80多家全球公司直接或间接受益于新疆地区维吾尔族人的虐待性的强迫劳动。共同社(Kyodo News)就此问题对14家日本公司进行了调查。
 
+除了拒绝置评的松下公司(Panasonic Corp.)以外，所有公司要么直接否认与涉嫌从强迫劳动中获益的公司有业务往来，要么表示无法核实针对其供应商的指控。
 
+在未来的政策方面，有12家公司回应说，它们将停止或考虑停止与被发现使用强迫劳工的商业伙伴的业务往来。这12家公司包括东芝公司(Toshiba Corp.)，优衣库休闲服装品牌运营商迅销公司(Fast Retailing Co.)、索尼公司(Sony Corp.)和日立公司(Hitachi Ltd.)。
 
-[共同社](https://china.kyodonews.net/news/2021/02/318be808ff34.html)2月21日报道，日本海上自卫队20日发布消息称，19日在九州西侧海域与美法两国海军实施了联合训练。海自出动补给舰“滨名”号，为美军驱逐舰“柯蒂斯·威尔伯”号、法军护卫舰“牧月”号进行了补给。海自方面说明称：“努力增进了相互理解并提高战术水平。”
+参考链接：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/137.jpg)图源网络
-
-本次训练或有意牵制中共在东海的活动。英德两国的海军也已表明，今后将向太平洋派遣舰艇。这是由防卫省展开协调，抗衡中共国之举措。据悉，“滨名”号在训练中为美法舰艇补给了燃料。2019年生效的日法《物资劳务相互提供协定》，允许自卫队与法军相互融通物资。
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
+[https://english.kyodonews.net/news/2021/02/b25bf2a754e7-12-japan-firms-will-kill-business-deals-involving-uyghur-forced-labor.html](https://english.kyodonews.net/news/2021/02/b25bf2a754e7-12-japan-firms-will-kill-business-deals-involving-uyghur-forced-labor.html)
 
 0

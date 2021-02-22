@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 甲骨文为中共军方提供新疆监控支持
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/925545/)
+## 亚投行将为印度提供50亿美元融资
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/925594/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑   水星    上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-22_07-08-11.jpg)cidschina.com
-《每日传讯》（The Daily Caller）分享了来自The Intercept的一份报告，报告指出中共一直在使用美国科技公司甲骨文(Oracle)制造的软件来对国本公民进行监视和跟踪。
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/下载-3-1.jpg)[dnaindia.com](https://www.dnaindia.com/business/column-dollar-rupee-may-trade-between-6350-and-6450-this-year-2571901)
+《印度快报》2月20日消息，总部位于北京的亚洲基础设施投资银行(亚投行)将在未来两年投资50亿美元，为印度的20-30个项目提供融资。
 
-报告称，甲骨文的产品被中共多个执法机构用于大数据分析，并帮助监视和跟踪公民。而甲骨文的安全服务被使用的地方之一正是发生种族灭绝罪行的新疆。中共政府在那里拘禁了上百万的维吾尔族穆斯林，并实施了惨无人道的暴行统治。
+亚投行投资运营副总裁DJ Pandian说，“到目前为止，我们已经在印度投资了21个项目，总计近55亿美元。我们还有20-30个项目正在筹备中，总计50亿美元，将在未来两年内融资。”
 
-甲骨文的营销部门称，该公司可以帮助中共执法部门利用来自社交媒体活动、面部识别软件、DNA数据库等方面的信息对公民进行监控。甲骨文发言人杰西卡·摩尔(Jessica Moore)辩驳称，甲骨文在中共进行的所有交易都符合美国的出口管制和制裁。
+此后随即传出中共与印度20日举行了第十轮的军长级会谈，在中印边境军事冲突爆发10个月后，双方于21日发布联合声明，表示双方军队已经从对峙边界撤离，并称此举将为解决其他边境争议奠定基础。
 
-然而甲骨文前高级主管泽维尔·洛佩兹(Xavier Lopez)却给出了不同的说法。
+因此有推测认为，中共用亚投行对印度提供50亿美金融资承诺换取了印度边界撤军。
 
-“中共的警察部门使用了这种软件。”洛佩兹告诉记者。尽管目前还不清楚是否有中共国军事实体使用甲骨文的产品，但是甲骨文的营销对象包含中共军方，甲骨文被指针对中共解放军以及其他国家安全实体制作了多个中文营销演示文稿。
-
-据Intercept报道，该公司以其“美国团队”(team America)营销方式自夸，它与美国军方的所有五个分支机构都有合同。据报道，该公司最近或即将与美国国家航空航天局(NASA)、中央情报局(CIA)和一些美国警察部门达成协议。报告中指出，甲骨文利用与美国军工联合体的成功合作，向中共客户推销其服务，并试图赢得中共的云计算合同。
-
-最令人担忧的是该公司在新疆的参与。一份公开的甲骨文客户名单显示，新疆公安部门是“数据安全解决方案”的接收方。甲骨文发言人摩尔承认，甲骨文在2011年至2019年期间与新疆省公安局进行了“有限的授权交易”。而从2017年开始发生在新疆的维吾尔族种族灭绝便引起了人权组织的关注。
+亚投行是由中共倡议成立的，中共是亚投行第一大股东且总部设在北京。亚投行倡议的主要目的是为了增强中共在亚洲的霸权地位，实现人民币国际化，、推广“一带一路”计划及中共国内过剩产能输出。因此中共对亚投行有着绝对的影响力。
 
 参考链接：
 
-[https://dailycaller.com/2021/02/19/china-police-xinjiang-uighurs-spying-surveillance-oracle-ccp/](https://dailycaller.com/2021/02/19/china-police-xinjiang-uighurs-spying-surveillance-oracle-ccp/)
+[https://indianexpress.com/article/india/aiib-to-provide-5-billion-for-projects-in-india-in-next-2-years-dj-pandian-7196340/](https://indianexpress.com/article/india/aiib-to-provide-5-billion-for-projects-in-india-in-next-2-years-dj-pandian-7196340/)
 
 0
