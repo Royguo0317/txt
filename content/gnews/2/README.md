@@ -1,35 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 保守派政治行动年会（CPAC）移师佛罗里达
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/925228/)
+## 【热点播报】日本世卫新冠溯源专家质疑中共冷链输入主张
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/925314/)
 
-俄罗斯莫斯科喀秋莎农场 仰望七星
-编辑上传 银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-22_01-33-58.jpg)[newsweek.com](https://www.newsweek.com/key-swing-state-voters-disapprove-donald-trump-coronavirus-polls-1504759)
-保守政治行动会议（CPAC）于1974年由美国保守联盟和争取自由的美国年轻人创立，是一个忠诚的保守派的小型集会，罗纳德·里根总统在首次的会议上发表了演说。【1】
+作者：纽约香草山写作组 Wilson
 
-CPAC年会一直在华盛顿特区或附近举行，在过去的八年里，紧挨着哥伦比亚特区，马里兰州的盖洛德国家度假村和会议中心，一直是CPAC的家，但由于一个世纪以来袭击全球最严重的CCP病毒（原因），这个大型度假村仍然被关闭。于是，今年的会议改在佛罗里达州奥兰多市的凯悦酒店举行。
 
-《福克斯新闻》报道，这次的保守政治行动年会召开时间是2月25日至28日，届时川普总统将出席，这将是川普总统离开白宫后的首次公开露面。【2】
 
-两位消息人士对《福克斯新闻》表示，川普总统预计将于2月28日（周日）发表讲话。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-川普总统将谈论共和党和保守运动的未来，另外，据一位了解川普总统讲话内容的消息人士透露，（人们）期待着第45任总统抨击拜登的“灾难性的特赦和边境政策”。
 
-川普总统自1月20日离开白宫前往佛罗里达州的马拉格度假胜地后，以及1月6日国会大厦骚乱推特禁止他进入社交媒体平台后，一直保持相对平静。
 
-但川普总统表示，他希望保持政治活跃，并在弹劾闹剧无果后告诉他的支持者，马加（MAGA）运动仍在走强。
+[共同社](https://china.kyodonews.net/news/2021/02/28049c8cacd8.html)2月21日报道，作为WHO派遣的CCP病毒溯源国际专家组成员到访中共国的日本国立感染症研究所兽医科学部长前田健，日前接受共同社在线采访时透露，专家组成员对中共国主张的病毒通过冷链物流从国外输入的说法持怀疑立场。前田表示，“专家组的想法和中方有分歧”，呼吁有必要尽早展开进一步调查。
 
-川普总统在上周的一份声明中说：“我们历史性的、爱国的、出色的让美国再次伟大的运动（MAGA）才刚刚开始。在接下来的几个月里，我有很多事情要和大家分享，我期待着继续我们难以置信的旅程，为我们所有的人民实现美国的伟大。这是从未有过的事情！”
+![]()![](https://gnews.org/wp-content/uploads/2021/02/136.jpg)图源网络
 
-组织者去年12月告诉《福克斯新闻》，这项活动在4天内吸引了近2万人参加，活动将主要在室内举行，有大量虚拟组件，地点是凯悦丽晶酒店，有1641间客房，与佛罗里达州奥兰治县会议中心相连。
+中共主张病毒可能附着在冷冻食品上从国外输入。专家组与中方9日在武汉召开记者会，表示冷链物流也包含在调查项目之中。但前田表示，专家组主流意见认为“可能性不太大”。专家组还认为，“应当调查活的哺乳类动物”类交易的信息，以进行调查追究。但该调查未能获得中共相关人士和商家的证言，并指出既然中方否认，专家组就很难掌握实际情况。前田还主张，应当调查以前在蝙蝠身上发现过类似病毒的云南省和临近该省的东南亚的动物。
 
-川普总统不会闲歇，病毒在蔓延，恶魔仍嚣张，危局在发展，使命在召唤，正义的人们期待川普总统早一天回归，与新中国联邦携手，让世人认清邪恶，铲除恶魔！
+前田介绍，调查开始时没有集齐必要数据，“在时间上很着急”，后来感觉中方“没有隐藏（信息）的意图”，获得了已有信息的恰当提供。但他也表示：“想要了解的情况还有很多，也留有课题。”
 
-参考链接：
+这位日本专家应该非常认真地看过闫丽梦博士两份无懈可击的CCP病毒科学报告。他在接受本国媒体采访时出言谨慎，但他肯定向日本政府提供了不一样的信息。因为，病毒溯源同样关乎日本民族的生死存亡！
 
-[1]https://en.wikipedia.org/wiki/Conservative\_Political\_Action\_Conference
-[2] https://www.foxnews.com/politics/2021-cpac-in-person-in-florida
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
 
 0
