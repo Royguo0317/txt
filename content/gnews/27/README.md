@@ -1,157 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《新闻快递》节目摘要2021.02.19
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/929094/)
+## 种族灭绝是新疆暴行的正确词汇
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/929133/)
 
-《新闻快递》栏目组：Beicy数学老师，文玉，1818;
+原文 [Forbes.com](https://www.forbes.com/sites/ewelinaochab/2021/02/19/genocide-is-the-right-word-for-the-atrocities-in-xinjiang/)
+**翻译：Terminator64**
 
-校对/审核：宁缺； Page: 1818
+这是英国伦敦埃塞克斯法院法庭的一组专家最近发表的法律意见书和美国国务院进行的分析的信息。此外，还有其他一些关于维吾尔人状况的简报和报告。维吾尔法庭是一个新的独立调查机构，负责评估指控暴行的证据，目前还没有对局势作出认定。不过，这是到目前为止对局势的分析。目前，联合国没有一个机构有权审议证据并作出决定。此外，也没有国际法庭参与处理这一问题。国际刑事法院(ICC)没有审议这一情况的管辖权，尽管正在试图改变这一状况。中国政府否认这些指控。
 
-引言：
+这意味着什么？这是否意味着这些暴行不能被视为或作为种族灭绝对待？
 
-英国伦敦喜庄园GTV直播节目《新闻快递News Express》，每周一和周五英国时间18:30为战友带来美国、英国及国内的热点新闻。
+灭绝种族是一个不应该被轻易使用的词。联合国《防止及惩治灭绝种族罪公约》（《灭绝种族罪公约》）第二条对灭绝种族有非常精确的法律定义。只要符合法律定义的所有要素，就应该标明罪行的真面目。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/d7e5a6d9-cf34-4063-ad0e-07d1213954e6.jpg?asset_id=5a2bb169-d518-46cb-baae-148311b6956f&amp;img_etag=%224b9ac239b633a9e9616b48f356e78abf%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/d7e5a6d9-cf34-4063-ad0e-07d1213954e6.jpg?asset_id=5a2bb169-d518-46cb-baae-148311b6956f&amp;img_etag=%224b9ac239b633a9e9616b48f356e78abf%22&amp;size=1024)
+然而，对于什么是灭绝种族罪和《灭绝种族罪公约》规定的义务，似乎存在一些误解。因此，有些人可能会说，用灭绝种族这个词来形容新疆的暴行是错误的。为了澄清事实，一些律师和种族灭绝问题学者发表了一封信，对一些误解作出了回应。
 
-**[🔗GTV-UK-1号台精彩回看](https://gtv.org/video/id=602ad052be64150df85802bf)**
 
-### 本期主题：
 
-1. 德国物理学泰斗发布“冠状病毒来自实验室”的报告
+**灭绝种族不一定需要大规模屠杀**
 
-2. 扶不起的双规总统，称种族灭绝为“文化常态”引众怒
+正如他们强调的那样，”《灭绝种族罪公约》和习惯国际法所定义的灭绝种族罪并不一定意味着以大规模屠杀的方式立即摧毁该群体。毁灭该群体(全部或部分)必须是预期的结果，但可以通过若干方式实现。就维吾尔人而言，在法律检验方面，指控包括杀害该群体的成员，对该群体的成员造成严重的身体或精神伤害(包括身体虐待、强奸和性暴力)，故意使该群体处于旨在毁灭该群体的生活状况(通过集中营，强迫劳动和其他暴行)，采取旨在防止该群体内生育的措施(通过强迫绝育、强迫堕胎和强奸)，强行将维吾尔族儿童转移到另一个群体。这些行为都有证据表明，他们有摧毁这一民族宗教群体的具体意图。除此之外，还可以从暴行的模式和系统性中推断出具体意图”。
 
-3. 川普接受采访称将组建新的社交媒体，准备加入G系列？！
+**灭绝种族罪的认定应遵循对证据的综合分析**
 
-4. 全球自动灭共，美加澳新加坡均发布抵制中共政策
+可以理解的是，种族灭绝的每一个要素都必须在考虑到所有现有证据的情况下进行审查。正如该信作者所强调的那样： “声称美国政府有一天醒来，决定把对维吾尔人的暴行称为种族灭绝是错误的。事实上，国务院已经就这一议题进行了数月的工作，并坚持自己在各方之间的义务”。”因此，不应忽视他们的调查结果，只是因为这迫使我们不得不面对一个非常困难的问题：现在该怎么办？
 
-5. 专题：谈谈数字货币（4）— SEC主席提名人 Gary Gensler
+**缺乏国际决心并不意味着种族灭绝没有发生**
 
-## 《新闻快递》节目摘要2021.02.19
+缺乏国际决心并不意味着种族灭绝没有发生。这一点应该非常清楚。正如信中所说： “在一个完美的世界里，对维吾尔人的种族灭绝指控将由一个国际法院或法庭或一个专门设立的联合国调查机制进行审议，但鉴于中国在联合国的强大地位以及对相关条约的保留或不加入条约的情况，这种情况尚未发生，也不太可能发生。这也是国家应该自己进行分析和认定的另一个原因。
 
-### 新闻线索【1】以毒灭共，病毒&疫苗次生危害持续全球
+**各国有责任做出自己的判断，为其应对措施提供信息。**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/23a9b6e2-8c14-4f7d-9664-f74ff6bca398.jpg?asset_id=8f9cfb26-f7b3-4290-84fb-98ecf99a1218&amp;img_etag=%22c30814e0f72b78d31660f0fed049b7e3%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/23a9b6e2-8c14-4f7d-9664-f74ff6bca398.jpg?asset_id=8f9cfb26-f7b3-4290-84fb-98ecf99a1218&amp;img_etag=%22c30814e0f72b78d31660f0fed049b7e3%22&amp;size=1024)
+国际上没有对灭绝种族罪作出认定，”并不妨碍各国作出自己的认定。事实上，各国作为《灭绝种族罪公约》规定的责任人，必须作出这样的认定，以便在作出反应时参考。”信中还说：”防止灭绝种族罪的义务，并不排除各国自己作出决定。”防止灭绝种族罪的责任是广泛而重要的。正如国际法院在 “波斯尼亚和黑塞哥维那诉塞尔维亚和黑山 “一案中所澄清的那样，有预防的义务：“在国家得知或通常本应得知存在灭绝种族罪的严重危险时即产生。如果是这样的话，各国必须尽早监测、分析和确定至少存在灭绝种族的严重危险，以便履行其义务。这最终意味着，各国需要围绕种族灭绝的法律要素和/或风险因素进行考虑，例如，根据《联合国暴行罪分析框架》和雅各布-布劳斯坦研究所的《防止种族灭绝的风险因素和法律规范汇编》。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/31da7ba1-3932-43eb-b9b4-615f14270a7c.jpg?asset_id=92e4b942-0324-45e3-a6e6-c9b1d6d02378&amp;img_etag=%22030379c5e18591fa7680efa50ec0dc29%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/31da7ba1-3932-43eb-b9b4-615f14270a7c.jpg?asset_id=92e4b942-0324-45e3-a6e6-c9b1d6d02378&amp;img_etag=%22030379c5e18591fa7680efa50ec0dc29%22&amp;size=1024)
+**认定必须引发行动**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/5ec373de-bb71-4d4e-9652-973a802cc9ef.jpg?asset_id=475c41ea-bec1-45c9-ad5e-4e5ea2532b39&amp;img_etag=%221649511723d339254737d09673384cd0%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/5ec373de-bb71-4d4e-9652-973a802cc9ef.jpg?asset_id=475c41ea-bec1-45c9-ad5e-4e5ea2532b39&amp;img_etag=%221649511723d339254737d09673384cd0%22&amp;size=1024)
+认定会产生实际影响。在确定存在灭绝种族的严重危险时，一国有义务在情况允许的情况下，利用一切可利用的手段，”可能对涉嫌准备灭绝种族的人产生威慑作用”。”正如该信最后所说： “尽管有 “永不重演 “的承诺，但在一个种族灭绝仍在发生的世界上，无所作为不是一种选择。我们需要确保我们有能力防止灭绝种族，因为允许灭绝种族的代价太大：这是生命的代价，也是我们人类的代价”。
 
-**[🔗 每日来电：美国国家卫生研究院确认武汉实验室有资格在2024年之前获得美国纳税人的资助](https://dailycaller.com/2021/02/16/wuhan-lab-eligible-taxpayer-funding/)**
+这些话不应该被扫到地毯下。在灭绝种族这个词的背后，是整个社区难以想象的痛苦，他们被告知，他们的生命不值得保护，可以被摧毁。如果不发言反驳这些说法，只会使犯罪者更加胆大妄为。
 
-**[🔗 路透社：英国首相呼吁世界需要大流行性条约，以确保透明度（世卫组织探查武汉）](https://www.reuters.com/article/us-health-coronavirus-britain-johnson-ch/uks-johnson-says-world-needs-pandemic-treaty-to-ensure-transparency-idUSKBN2AF1OP)**
+（以上内容仅代表作者的观点，不代表农场）
 
-**[🔗 Gnews：德国物理学泰斗发布“新冠病毒来自实验室”的报告](https://gnews.org/zh-hans/918095/)**
+*其他工作人员
+审核和发稿：西联*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/39c2ac3e-5149-4ddd-8fb2-09dfd20960dd.jpg?asset_id=d9751208-acdb-4d63-8ddb-bd1886dfa212&amp;img_etag=%2278e0e2e7509de252db70a85f95fb2ac4%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/39c2ac3e-5149-4ddd-8fb2-09dfd20960dd.jpg?asset_id=d9751208-acdb-4d63-8ddb-bd1886dfa212&amp;img_etag=%2278e0e2e7509de252db70a85f95fb2ac4%22&amp;size=1024)
-
-**[🔗 捷克要点：红衣主教杜卡(Duka)称冠状病毒为 “中共国生物武器”](https://czechpoints.com/cardinal-duka-calls-coronavirus-a-chinese-bioweapon/)**
-
-**[🔗 MSN：英国揭示部分冠状病毒患者难以重返工作岗位](https://www.msn.com/en-gb/news/world/china-plot-tentacles-of-influence-spreading-with-vaccine-diplomacy-as-eu-squabbles/ar-BB1dsE99)**
-
-**[🔗 闫博士推特：必看！东京电视台的详尽报道](https://twitter.com/DrLiMengYAN1/status/1362388081073131524?s=20)**
-
-
-
-> Elaborate report by TV Tokyo (Subtitles by Andy5)
-> 
-> Curious about dramatic impact in Anti-[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) trophy exhibition in Wuhan?
-> Curious about what content attracted WHO investigation team for 2+ hr there, and “smart enough to understand the meaning (Peter Daszak)”?
-> 
-> Must watch! [https://t.co/1JWzYcoCbA](https://t.co/1JWzYcoCbA)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [February 18, 2021](https://twitter.com/DrLiMengYAN1/status/1362388081073131524?ref_src=twsrc%5Etfw)
-
-
-
-### 新闻线索【2】 香港圣城, 东方明珠变暗夜
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/0560af12-f692-4884-bd27-3ecf0797e00b.jpg?asset_id=da74e22e-1b41-4054-b734-c03562f4590b&amp;img_etag=%22f5d599df4d6c4bd5eb9d76825c045d5d%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/0560af12-f692-4884-bd27-3ecf0797e00b.jpg?asset_id=da74e22e-1b41-4054-b734-c03562f4590b&amp;img_etag=%22f5d599df4d6c4bd5eb9d76825c045d5d%22&amp;size=1024)
-
-**[🔗 Gnews: 英国更新香港商业指南，删除“国际金融中心”的内容](https://gnews.org/zh-hans/918273/)**
-
-**[🔗 香港自由媒体：港医疗联盟因为隐私问题呼吁抵制冠状病毒追踪应用，政府对此表示 “愤怒”](https://hongkongfp.com/2021/02/19/covid-19-govt-expresses-anger-over-medical-unions-call-to-boycott-tracing-app-amid-privacy-concerns/)**
-
-**[🔗 香港自由媒体：香港警方周四拘捕另一名中大学生, 因参加去年11月和平民主校园示威](https://hongkongfp.com/2021/02/19/security-law-hong-kong-police-arrest-another-cuhk-student-over-peaceful-pro-democracy-campus-demo-last-nov/)**
-
-**[🔗 香港自由媒体：香港将为五个优先群体推出Covid-19大规模疫苗接种，下周二开放注册](https://hongkongfp.com/2021/02/18/hong-kong-to-roll-out-covid-19-mass-vaccination-for-five-priority-groups-registration-opens-next-tue/)**
-
-### 新闻线索【3】全球灭共, 以共灭共: 共产党员必须自救
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/e2120a97-da7d-4c7a-bfcb-3fef59fe73f6.jpg?asset_id=419651d9-e830-4cbe-844e-8d82ec06ba81&amp;img_etag=%22ca7910f34adc241565c8cef2426b09eb%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/e2120a97-da7d-4c7a-bfcb-3fef59fe73f6.jpg?asset_id=419651d9-e830-4cbe-844e-8d82ec06ba81&amp;img_etag=%22ca7910f34adc241565c8cef2426b09eb%22&amp;size=1024)
-
-🔗**[布赖特巴特：汤姆·科顿“我们需要把中国共产党分子打进历史的垃圾堆”](https://www.breitbart.com/politics/2021/02/18/tom-cotton-we-need-to-consign-the-chinese-communists-to-the-ash-heap-of-history/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed:+breitbart+%28Breitbart+News%29News)**
-
-**[🔗 Axios：众议院共和党议员敦促拜登重新采用川普有关孔子学院的规则](https://www.axios.com/house-republican-letter-biden-confucius-institute-rule-7ae1d581-ab7f-4c05-b9f8-47806481dcab.html)**
-
-**[🔗 布赖特巴特：在被共和党研究委员会（RSC）本周敲打其与北京的关系后，布林肯表态中共国正在实施种族灭绝](https://www.breitbart.com/politics/2021/02/16/gop-report-secretary-of-state-blinken-founded-firm-that-received-chinese-money-for-dod-research-linked-universities/)**
-
-🎞** 视频：美国国务院已经认定（中共）种族灭绝罪，实际上这种罪行正在发生**
-
-
-
-**🎞 视频：蓬佩奥：中共在新疆施行种族灭绝，不能允许他们举办冬奥会，这与当年抵制纳粹举办奥运会一样**
-
-
-
-**[🔗 国家脉动：拜登借口称维吾尔族种族灭绝是“文化常态”](https://thenationalpulse.com/breaking/biden-excuses-uyghur-genocide/)**
-
-**🎞视频：拉希姆：纳粹对犹太人做的，中共都正在做。而拜登昨天竟然称这是“文化标准”的不同！这是拜登给中共的「种族灭绝执照」「大屠杀执照」！**
-
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/17d82321-5d42-486c-b255-d4639122b3e2.jpg?asset_id=390fdbd3-449e-4fa1-af28-99a90e8bfe0b&amp;img_etag=%22972b407050465f39770f1a1bb645e87c%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/17d82321-5d42-486c-b255-d4639122b3e2.jpg?asset_id=390fdbd3-449e-4fa1-af28-99a90e8bfe0b&amp;img_etag=%22972b407050465f39770f1a1bb645e87c%22&amp;size=1024)
-
-**[🔗 零对冲：缅甸抗议者谴责中共国在支持军政府方面的“隐藏黑手”](https://www.zerohedge.com/geopolitical/myanmar-anti-coup-protesters-say-chinas-hidden-hand-propping-junta?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed:+zerohedge/feed+%28zero+hedge+-+on+a+long+enough+timeline,+the+survival+rate+for+everyone+drops+to+zero%29)**
-
-**[🔗 CNBC：新加坡调查显示，如果被迫选边站，东南亚会选择美国而不是中共](https://www.cnbc.com/2021/02/16/asean-would-choose-us-over-china-if-forced-to-pick-sides-survey.html?__source=sharebar%7Ctwitter&amp;par=sharebar)**
-
-**[🔗 OANN：加拿大发起58国联动制止任意拘留](https://www.oann.com/canada-launches-58-nation-initiative-to-stop-arbitrary-detentions/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=canada-launches-58-nation-initiative-to-stop-arbitrary-detentions)**
-
-**[🔗 SMH：澳大利亚加入加拿大领导的反对人质外交的联盟](https://www.smh.com.au/world/europe/urgently-needed-australia-joins-canadian-coalition-against-hostage-diplomacy-20210216-p572s4.html)**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/6dd111fe-b5ec-4fcb-af18-52b65fd53e87.jpg?asset_id=feba5e79-797c-45a1-aae3-281ab3f9d9b2&amp;img_etag=%22e68d3c5cd0c53009367a17d1f194c1c5%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/6dd111fe-b5ec-4fcb-af18-52b65fd53e87.jpg?asset_id=feba5e79-797c-45a1-aae3-281ab3f9d9b2&amp;img_etag=%22e68d3c5cd0c53009367a17d1f194c1c5%22&amp;size=1024)
-
-🔗 **[澳洲战略政策研究所：中共国海军扩张背后的港口运营商](https://www.aspistrategist.org.au/the-port-operators-behind-chinas-naval-expansion/)**
-
-🔗 **[美媒配图报道X级同性恋推特帐户吸引了顶级中共国外交官](https://www.breitbart.com/asia/2021/02/14/exclusive-chinese-foreign-minister-follows-x-rated-gay-porn-twitter-account/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed:+breitbart+%28Breitbart+News%29)**
-
-🔗 **[大纪元：川普正在考虑建立自己的社交媒体平台](https://www.theepochtimes.com/trump-says-hes-considering-new-social-media-platform-you-can-literally-build-your-own-site_3701853.html)**
-
-🔗**[天空新闻网：为什么Facebook在澳大利亚阻止新闻，这对世界其他地方意味着什么？](https://news.sky.com/story/why-has-facebook-blocked-australian-news-and-what-does-it-mean-for-the-rest-of-the-world-12221723)**
-
-**[🔗 Gnews: 表里不一！扎克伯格私下质疑新冠疫苗会产生长期副作用](https://gnews.org/zh-hans/918246/)**
-
-### 新闻线索【4】 新中国联邦
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/b9bf1811-bbd1-4970-a17f-7b5cee3bf893.jpg?asset_id=42585a73-f748-4df4-9936-bc51f90f462d&amp;img_etag=%22710d94203388dab171591cb9017a00c0%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/b9bf1811-bbd1-4970-a17f-7b5cee3bf893.jpg?asset_id=42585a73-f748-4df4-9936-bc51f90f462d&amp;img_etag=%22710d94203388dab171591cb9017a00c0%22&amp;size=1024)
-🎞 **视频：七哥揭露林郑妖蛾伏击肛门, 检查港人是否上街真相**
-
-**[🔗 英国BNO实战信息要点](https://www.gov.uk/british-national-overseas-bno-visa)**
-
-**[🔗 Gnews: 2021/02/09 大卫连线路德时评直播精要](https://gnews.org/zh-hans/910200/)**
-
-**[🔗 英国伦敦喜庄园的英文GTV直播频道《GTV UK English》正式建立](https://gtv.org/user/602f9f5c047c4c3086d4f215)**
-
-### 新闻线索【5】七哥与战友Getter快递
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/ddda43a8-4e3b-4434-b481-d6c84adfb267.png?asset_id=b7c83bee-77c7-40c9-a489-44c8897ecdba&amp;img_etag=%228eaecdd3f6ff809254b90d8233a4edb1%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/ddda43a8-4e3b-4434-b481-d6c84adfb267.png?asset_id=b7c83bee-77c7-40c9-a489-44c8897ecdba&amp;img_etag=%228eaecdd3f6ff809254b90d8233a4edb1%22&amp;size=1024)[https://gtv.org/getter/602fd783195851590235746f](https://gtv.org/getter/602fd783195851590235746f)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/f3c6aba0-3fab-481c-8d3c-24b077facaef.png?asset_id=602917aa-022b-4f2a-9e14-10621c1c4ac9&amp;img_etag=%22c9be034973a520eea64a85c448658799%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/f3c6aba0-3fab-481c-8d3c-24b077facaef.png?asset_id=602917aa-022b-4f2a-9e14-10621c1c4ac9&amp;img_etag=%22c9be034973a520eea64a85c448658799%22&amp;size=1024)[https://gtv.org/getter/602f27a4226e775907456f33](https://gtv.org/getter/602f27a4226e775907456f33)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/a7a6e795-c07e-4ab8-a44c-7772f8e87d97.png?asset_id=9b0095e4-5021-42e1-bcf8-7244a154b9f7&amp;img_etag=%222ad1021a44e58f573475925d16cb0e20%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/a7a6e795-c07e-4ab8-a44c-7772f8e87d97.png?asset_id=9b0095e4-5021-42e1-bcf8-7244a154b9f7&amp;img_etag=%222ad1021a44e58f573475925d16cb0e20%22&amp;size=1024)[https://gtv.org/getter/602f13a6226e77590745699d](https://gtv.org/getter/602f13a6226e77590745699d)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/345d69c3-ef61-419a-9c09-439c2307307e.png?asset_id=49b70bb5-3c1e-419a-9ff0-cb115787ea12&amp;img_etag=%22b0a264672531587554e1f56b718753a4%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/345d69c3-ef61-419a-9c09-439c2307307e.png?asset_id=49b70bb5-3c1e-419a-9ff0-cb115787ea12&amp;img_etag=%22b0a264672531587554e1f56b718753a4%22&amp;size=1024)[https://gtv.org/getter/602d94a6226e775907450122](https://gtv.org/getter/602d94a6226e775907450122)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/8bdfd150-d95f-4a19-ab96-4f036ab32230.png?asset_id=1570750c-42c3-40b8-bae5-f1942c83e47d&amp;img_etag=%2227b0f144e413a92d56af0c8d6700bcad%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/8bdfd150-d95f-4a19-ab96-4f036ab32230.png?asset_id=1570750c-42c3-40b8-bae5-f1942c83e47d&amp;img_etag=%2227b0f144e413a92d56af0c8d6700bcad%22&amp;size=1024)[https://gtv.org/getter/602fed1319585159023578e8](https://gtv.org/getter/602fed1319585159023578e8)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/31583eb2-8179-4c21-a84c-8946fa089b97.png?asset_id=2114999c-4c6f-4a81-a8fb-5005c9e9046c&amp;img_etag=%2222de48706ab32684a24cb98fe8c19b13%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/31583eb2-8179-4c21-a84c-8946fa089b97.png?asset_id=2114999c-4c6f-4a81-a8fb-5005c9e9046c&amp;img_etag=%2222de48706ab32684a24cb98fe8c19b13%22&amp;size=1024)[https://gtv.org/user/5ea435ffe538910ad4af603c](https://gtv.org/user/5ea435ffe538910ad4af603c)
-
-**[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)**
-
-**[点击观看英国伦敦喜庄园在G-TV的精彩直播视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)**
-
-**[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)**
-
-编辑：[**【英国伦敦喜庄园编辑部】**](https://spark.adobe.com/page/NnlWInNrFIkY8/)
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/52074c29-fe4e-475d-be27-cddb42e77350.jpg?asset_id=658f2e9c-6914-452e-acc1-3db0602a2df7&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/52074c29-fe4e-475d-be27-cddb42e77350.jpg?asset_id=658f2e9c-6914-452e-acc1-3db0602a2df7&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
