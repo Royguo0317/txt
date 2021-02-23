@@ -1,263 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 汤姆‧克顿议员报告（一）——《战胜中共国：针对性脱钩与经济持久战》
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/928067/)
+## 【香港要闻】中共疫苗首日预约率仅1.75%，林郑称「非常踊跃」
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/928363/)
 
-五月花写作组 ｜ 翻译：Rosy Cloud ｜ 校对：jiasen ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/02/汤姆克顿V1.jpg)Beat China: Targeted Decoupling and the Economic Long War 战胜中共国：针对性脱钩与经济持久战
-* * *
+搜集/编撰：天灭中共
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2231.jpg)
+**「林郑感受到****1.75%****预约率背后的急不可待」**
 
-### 往期链接：
+中共科兴疫苗于今日（23日）0时起开放予港府拟定的五类优先组别报名接种，特首林郑月娥昨日亦「一马当先」联同一众司局长、行政会议成员以及立法会议员接种疫苗，惟坊间普遍质疑官员打的是否确为科兴疫苗，显示市民对特区政府的不信任，以及对中共疫苗安全性的担忧。
 
-[汤姆‧科顿议员报告序言——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/918314/)
+林郑月娥今晨行会前见记者时，指预约接种首日，开放9小时，已有约4.2万人登记，「感到非常高兴」，林郑续指自己昨日接种后至今「感觉非常之好，甚至连针口都不痛」，而且亦未有听闻其他官员有任何不良反应。
 
-* * *
+随即Now新闻的记者就追问，「五类优先接种人士共计240万，但首日预约率仅1.75%，是否反映市民对疫苗信心不足？」
 
-## **EXECUTIVE SUMMARY **
+林郑马上反驳，认为开放至今的9个小时属于睡觉时间，能有这样「踊跃的数字」，令她感受到「有大批人的急不可待」。她反指有部分市民听信网上的失实报导，抹黑科兴疫苗，更借机推诿网上图文并茂的流传昨日她及一众官员，疑对科兴无信心而作假接种另一只疫苗的报导。
 
-## **执行摘要**
+林郑形容特区政府会「迎难而上」，不断教育、宣传及推广接种疫苗的好处及效能。
 
-The United States is in the middle of a strategic competition with China that may last as long as the Cold War. The U.S. and Chinese economies have grown too entangled, particularly in critical sectors such as defense, technology, and medicine. The urgent task for policymakers is to disentangle our economies, encourage strategic partners to do the same, and build new capabilities in America.
+**「菲律宾煞停医护人员接种科兴疫苗」**
 
-美国正处于与中共国的战略竞争之中，这种竞争有可能会像冷战一样旷日持久。美国和中共国的经济已经变得过于纠缠，尤其是在国防、科技和医疗等关键部门。决策者的当务之急是把我们的经济剥离出来，同时鼓励战略伙伴也这么做，并在美国建立新的（生产）能力。
+不过，相比起林郑政府对中共疫苗的「感觉非常之好」，菲律宾当局似有截然不同的看法。
 
-This report proposes a strategy of targeted decoupling from China, matched with policies to mitigate the economic costs of this strategy. The report also proposes to partly re-organize some key government agencies to prepare for the long economic war with China.
+菲律宾食品和药物管理局（FDA）局长周一（22日）引述当地专家指出，基于科兴疫苗的预防效力过低，将禁止前线医护人员接种，并形容「科兴对他们不是最好的」。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2232.jpg)（图片来源：丘品新闻）
+**「港府今日再安排****310****人优先接种科兴疫苗」**
 
-这份报告提出了与中共国针对性脱钩的战略，并提出了相应的减轻该战略经济成本的政策。报告还提出为了准备与中共国的长期经济战，应该重组一些重要的政府机构。
+港府今日在五类优先接种组别，即医护人员、安老院舍员工、机师及空中服务员等中，安排200人于两个时段分别到中央图书馆的社区疫苗接种中心，接种中共科兴疫苗。
 
-The costs of targeted decoupling with China pale in comparison to the costs of passivity. We cannot watch as America becomes less prosperous and cedes its position to a totalitarian power dedicated to bending the world to its will. Americans must act decisively to avoid this fate.
+负责统筹接种计划的公务员事务局局长聂德权亦来到接种中心，了解优先群组接种疫苗的情况。他称截至中午，已超过6万人预约接种。
 
-与被动不抵抗所付出的代价相比，有针对性地与中共国脱钩的成本就显得微不足道了。我们不能看着美国变得不如以往繁华，并让位于一个妄图奴役全世界的极权主义政权。美国必须果断采取行动，以避免这种命运。
+聂德权表示，今日开放110个接种名额予一般市民，主要是长者及照顾者，其后亦会有1500间私家诊所的一千多名医生参与疫苗接种计划，期望市民看到优先接种群组的情况后有信心。
 
-* * *
+**战友评论：「相信共产党，跑步进入火葬场」**
 
-### **TARGETED DECOUPLING**** **
+简单来说，港府今日在240万优先接种人士中选出200人「分甘同味」，另外，赐予110位亲共长者机会「感谢中央」，还要1500间私家诊所分别献上一位「勇士」，一起接种中共疫苗。
 
-### **针对性脱钩**
+70岁的退休人士李先生是这110个「幸运儿」的其中一个，他对独立媒体记者表示「不打的人是笨蛋」，形容自己「好兴奋，打完针更开心了」，更直言「我信政府，对共产党有信心，对科兴有信心！」
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2233-1.jpg)（图片来源：独立媒体）
+另一位幸运儿65岁退休人士胡先生指「我支持中共，打疫苖是帮国家，越早打越有好处」。
 
-A strategy of targeted decoupling from China will have the following objectives:
+笔者不想对这110位长者的政治立场作任何评论，不过对这些爱党人士的思觉及记忆系统就十分担忧。位高如林郑，平凡如李生，接种后都会产生「好兴奋、好开心」的反应，令人怀疑是否错打兴奋剂亦或爱党爱至思觉失调。另去年此时，武汉疫情爆发之际，仍然大搞「万人宴」的长者们，当时也是这般口吻「相信政府，相信中共」。
 
-针对性脱钩中共国的战略将包括以下目标：
+这般愚忠邪恶政权的结果，笔者不敢妄下猜测。套用爆料革命发起人郭文贵先生说的：「相信共产党，跑步进入火葬场」。
 
-⬛ Restore secure, scalable, domestic productive capacity in areas critical to national security
+以上观点仅代表笔者
 
-在对国家安全至关重要的领域，恢复安全的、可扩展的国内生产能力
+「资料来源」:
 
-⬛ Maintain technological advantage over China in strategic areas
+1、[獨立媒體](https://www.inmediahk.net/node/1080995?fbclid=IwAR0Afup0eSHP9vo-eNsIL8TbvMA_eDuSkSXzUuUY7Db-gij0LocH4it0biU)
 
-在战略领域保持对中共国的技术优势
+2、[丘品新聞](https://www.cupidproducer.com/post/%E3%80%90%E7%96%AB%E8%8B%97%E9%A2%A8%E9%9A%AA%E3%80%91%E8%8F%B2%E5%BE%8B%E8%B3%93fda%E6%8C%87%E9%A0%90%E9%98%B2%E6%95%88%E5%8A%9B%E9%81%8E%E4%BD%8E-%E7%A6%81%E5%89%8D%E7%B7%9A%E9%86%AB%E8%AD%B7%E4%BA%BA%E5%93%A1%E6%8E%A5%E7%A8%AE%E3%80%8C%E7%A7%91%E8%88%88%E7%96%AB%E8%8B%97%E3%80%8D)
 
-⬛ Preserve U.S. dollar dominance
+覆核： 卡西欧 /上传： 天网灰灰
 
-维护美元主导地位
-
-⬛ Slow China’s growth
-
-放缓中共国的增长
-
-Targeted decoupling requires policymakers to focus on broad areas of concern such as trade and investment. It also requires focus on specific sectors such as higher education, entertainment, semiconductors, telecommunications, rare-earth elements and critical minerals, medical supplies and equipment, and artificial intelligence and quantum computing.
-
-针对性脱钩需要决策者重点关注宽泛的领域，如贸易与投资。还需要关注高等教育、娱乐、半导体、电信、稀土元素与关键矿物、医疗用品与设备、以及人工智能与量子计算等具体部门。
-
-* * *
-
-### **RULE-BREAKERS, SANCTIONS, AND TRADE **
-
-### **规则破坏者、制裁以及贸易**
-
-• Sanction the perpetrators and beneficiaries of Chinese intellectual property theft
-
-制裁中共盗取知识产权的犯罪者及其受益者
-
-• Expand the Treasury Department’s Office of Foreign Assets Control to help it carry out this sanctions campaign
-
-扩大财政部海外资产控制办公室，以帮助其开展这一制裁行动
-
-• Expand the U.S. Intelligence Community’s collection efforts related to China’s economic and technological development
-
-扩大美国情报界对中共国经济和技术发展相关的情报收集工作
-
-• Apply targeted import duties on Chinese companies that engage in anti-competitive practices
-
-对从事反竞争行为的中共国公司征收有针对性的进口税
-
-• Tighten U.S. export controls on certain advanced technologies for all Chinese end-users
-
-收紧美国对所有中共国终端用户的某些先进技术的出口管制
-
-• Revoke China’s Permanent Normal Trade Relations status
-
-撤消中共国永久正常贸易关系地位
-
-* * *
-
-### **INVESTMENT **
-
-### **投资**
-
-• Expand restrictions on U.S. outbound investment in China to include investments in Chinese technology companies, companies tied to the Chinese Communist Party (CCP), and companies implicated in the CCP’s human-rights abuses
-
-扩大对美国对中共国投资的限制，包括对中共国科技公司、与中共有关联的公司以及与中共侵犯人权有牵连的公司的投资
-
-• Restrict certain investments in the Chinese market by U.S.-based investment funds, including public and private pension funds
-
-限制美国投资基金（包括公共和私人养老基金）在中共国市场的某些投资
-
-• Require the Committee on Foreign Investment in the United States (CFIUS) to scrutinize inbound Chinese investments into strategic sectors with a presumption of denial
-
-要求美国外资投资委员会对中共国进入战略领域的投资进行基于拒绝推定的严格审查
-
-* * *
-
-### **HIGHER EDUCATION **
-
-### **高等教育**
-
-• Bar funding from the Chinese government or nominally private entities acting on its behalf to U.S. universities, laboratories, and other research institutions
-
-禁止来自中共国政府或名义上的私人实则是代表中共国政府的实体向美国大学、实验室及研究机构的资金
-
-• Restrict university faculty and staff from accepting compensation from entities linked to the Chinese government
-
-限制大学教职员工接受来自于中共政府有关联实体的报酬
-
-• End American higher education’s satellite university system in China
-
-结束美国高等教育在中国设置大学分校的系统
-
-• Bar Chinese nationals in graduate and post-graduate programs in the United States from studying or conducting research in sensitive science, technology, engineering, and mathematics fields
-
-禁止中共国公民在美国读本科和研究生时学习或从事科学、技术、工程和数学等敏感领域的研究
-
-• Expand the State Department’s Visa Mantis program to vet Chinese national applicants
-
-扩大国务院“签证螳螂计划”用于审查中共国公民的申请
-
-• End the 10-year multi-entry visa program for Chinese nationals
-
-结束中共国公民的10年多次入境签证
-
-* * *
-
-### **ENTERTAINMENT **
-
-### **娱乐**
-
-• Ban all Chinese investment in U.S. film and television studios, streaming services, and platforms that show movies and TV shows in the United States, such as movie theater operators and cable and broadcast television providers
-
-禁止中国对美国电影和电视工作室、流媒体服务以及在美国放映电影和电视节目的平台，比如电影院运营商、有线电视以及广播电视提供商的所有投资
-
-• End DOD, CIA, and FBI support to any studio that allows content it releases in the U.S.  market to be censored by the CCP
-
-结束国防部、中情局和联邦调查局对任何允许中共审查其在美国市场所发布内容的工作室的支持
-
-* * *
-
-### **SEMICONDUCTORS **
-
-### **半导体**
-
-• Ban the sale of cutting-edge semiconductors, semiconductor machinery, and software-design tools developed or produced with U.S. technology to Chinese entities
-
-禁止向中共国实体出售使用美国技术开发或生产的尖端半导体、半导体机械和软件设计工具
-
-• Explore establishing a multilateral semiconductor trading and export-control bloc
-
-探索建立多边半导体贸易和出口管制阵营
-
-• Upgrade U.S. semiconductor manufacturing capacity via federal grants and public private partnerships
-
-通过联邦拨款和公私合作提升美国半导体制造能力
-
-* * *
-
-### **TELECOMS AND 5G **
-
-### **电信和****5G**
-
-• Continue efforts to halt Chinese firms from expanding their positions in global 5G telecoms networks and impose further sanctions on Huawei
-
-继续努力阻止中共国企业扩大其在全球5G电信网络的地位，并对华为实施进一步的制裁
-
-• Develop a viable 5G alternative to Chinese vendors within a reasonable timeframe, in conjunction with allies
-
-于盟友一起，在合理的时间内开发出5G的可行的替代方案以取代中共国厂商
-
-• Establish an American-led 5G coalition
-
-建立由美国领导的5G联盟
-
-* * *
-
-### **CRITICAL MINERALS AND RARE-EARTH ELEMENTS **
-
-### **关键矿物和稀土元素**
-
-• Diversify foreign sources of rare earths to reduce reliance on China
-
-• 多样化外国稀土来源以减少对中共国的依赖
-
-• Build domestic rare-earth production and processing infrastructure that can be scaled quickly in the event of a crisis or protracted conflict
-
-• 建立国内稀土生产和加工基础设施，以在发生危机或旷日持久的冲突时可以迅速扩大规模
-
-• Prohibit federal purchasing of items containing rare earths and critical minerals mined or processed in China by a certain date
-
-•  禁止联邦政府在某一日期之前购买在中国开采或加工的含有稀土和关键矿物的物品。
-
-• Establish a national strategic stockpile of rare-earth inputs large enough to sustain the military and economy for as long as it would take to reach full wartime production
-
-• 建立足够多的稀土投入的国家战略储备，以便在达到战时全面生产所需的时间内维持军事和经济。
-
-* * *
-
-### **MEDICINE AND MEDICAL EQUIPMENT **
-
-### **药品和医疗设备**
-
-• Prohibit federal purchasing and reimbursement of drugs that contain active pharmaceutical ingredients made in China by a certain date
-
-• 在某一日期之前，禁止联邦采购和报销含有中国生产的活性药物成分的药品，
-
-• Create an FDA requirement that all drugs sold in the United States must include conspicuous country-of-origin labeling for their active ingredients
-
-• 确立美国食品和药物管理局规定，所有在美国销售的药品必须在其活性成分上贴上明显的原产国标签。
-
-• Expand the Strategic National Stockpile so that it contains sufficient medical supplies and equipment to last at least six months during a crisis
-
-• 扩大医疗用品和设备的全国性战略储备，使其可以在危机期间至少维持六个月的供给
-
-• Retain or restore enough domestic medical-equipment manufacturing so that production can be increased to meet crisis-level demand within six months
-
-• 保留或恢复足够的国内医疗设备制造，以便可以在六个月内增加产量至满足危机等级的需求
-
-* * *
-
-### **ARTIFICIAL INTELLIGENCE AND QUANTUM INFORMATION SCIENCE **
-
-### **人工智能与量子信息科学**
-
-• Explore a series of data sharing and data export-control agreements with trusted allies and partners
-
-• 与可信赖的盟友和合作伙伴探讨一系列数据共享和数据导出控制协议
-
-• Close American artificial intelligence research and development (R&D) centers in China, as well as Chinese artificial intelligence R&D centers in the United States
-
-• 关闭在中共国的美国人工智能研发中心，以及在美国的中共国人工智能研发中心
-
-* * *
-
-### 原文链接：
-
-[Beat China: Targeted Decoupling and the Economic Long War](https://www.cotton.senate.gov/imo/media/doc/210216_1700_China%20Report_FINAL.pdf)
-
-* * *
-
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
-
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
-
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
-
-+1
++4
