@@ -1,23 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】22/02/2021 全世界目前只有两个话题：共产党制造的病毒和何时把美国引爆
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/928860/)
+## 《文贵说》| 图片连载 （一）
+` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/928557/)
 
-**Cantonese工作室**
-**播报：【美国小李】 资料收集：【极寒将至】【美国小李】【陆柒陆捌】【闪电】 视频制作:   【Shawn 】海报制作：【Miranda米线】上传:【星星】**
-摘要:
+![]()![](https://gnews.org/wp-content/uploads/2021/02/16944-2.png)
+**不计较，不怨恨，不制造仇恨，不挑拨离间，不传是非，不要把恨当成了你的勇敢，不要把你的希望和理想寄托在别人身上。不能用钱来实现你的理想，不要给自己没有做到的事情找任何借口，更不要给自己的错误找任何借口。**
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-78.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-49.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/3-32.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/4-43.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/5-36.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/6-43.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/7-18.jpg)
+**—— 郭文贵先生2019年8月18日**
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-50.jpg)
+**不能让香港这7000个非正常死亡的人白白死去，也不能再多死人了。大家要传播香港危机真相。**
+
+**—— 郭文贵先生2020年3月14日**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/3-33.jpg)
+**人类进入了一个百年不遇的金融市场供给的黑洞期，就是无人掌握了解和可以预测明天会发生什么，这些都是共产党制造的CCP冠状病毒的生化武器导致的结果。**
+
+**—— 郭文贵先生2020年3月18日**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/4-44.jpg)
+**一切最坏的时候还没来呢。共产党绝对完了！在它完之前不能把任何人带走，这是我们要做的。**
+
+**—— 郭文贵先生2020年3月18日**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/5-37.jpg)
+**中国人在历史上所有犯下的错误，就两个原因：第一是无知的狂妄；第二是所谓这个民族自私之后的鸵鸟心理，就是说自扫门前雪，最后叫人家给打趴下了，无论是唐朝、南北朝、三国等，全是这个结局。**
+
+**—— 郭文贵先生2020年3月18日**
+
 0
