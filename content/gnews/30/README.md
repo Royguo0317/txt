@@ -1,62 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新疆维吾尔集中营的罪行揭露
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/928813/)
+## 中共国试点数字货币，妄图向全世界推广
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/928892/)
 
-*新闻来源：《英国《独立报》 The INDEPENDENT》| 作者：萨姆.汉考克（Sam Hancock） | 发布时间：2021年2月20日*
+*新闻来源：《Bloomberg 彭博社》| 作者：Andrew Browne 安德鲁·布朗 | 发布时间：2021年2月20日*
 
-*翻译/简评：叶知秋（文义） | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii*
+*翻译/简评：wmorpho | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/P4vomHUoRgwJV/images/ba4517ce-9e50-4e02-894d-90f86e94485a.jpg?asset_id=6c9dfbba-2bf5-4955-806e-2995cfd42aa6&amp;img_etag=%225a1ba6921485a68b32aa7652e992192e%22&amp;size=2560)](https://spark.adobe.com/page/P4vomHUoRgwJV/images/ba4517ce-9e50-4e02-894d-90f86e94485a.jpg?asset_id=6c9dfbba-2bf5-4955-806e-2995cfd42aa6&amp;img_etag=%225a1ba6921485a68b32aa7652e992192e%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/Ys56jrPpJdJdS/images/846015fa-6bdf-4e2f-be84-969655da2175.jpg?asset_id=b02abf94-2b3c-4f07-9468-c0ac327b1872&amp;img_etag=%228ce973db889e92b35f3f386bcd5ed711%22&amp;size=2560)](https://spark.adobe.com/page/Ys56jrPpJdJdS/images/846015fa-6bdf-4e2f-be84-969655da2175.jpg?asset_id=b02abf94-2b3c-4f07-9468-c0ac327b1872&amp;img_etag=%228ce973db889e92b35f3f386bcd5ed711%22&amp;size=1024)文贵先生揭露共产党灭白计划—病毒干掉白人，虚拟货币打倒美元
 
 ***简评：***
 
-**中共国在新疆所犯下的罪行不断被知情者爆出来，美国前国务卿蓬佩奥也声称，中共国对新疆维吾尔族及其他穆斯林少数民族犯下的是种族清洗与反人类罪。作为前美国中央情报局局长，他的发言也说明从情报信息上来说，中共在新疆所犯下的罪行是毋庸置疑的，相信未来会有更多相关的证据将被外界知道。**
+**为了准备成为世界上第一个完全没有现金的主要经济体，2月12日，数个中共国大城市通过彩票行发放了数百万数字人民币的“红包”来庆祝农历牛年春节。虚拟货币应该在明年的冬季奥运会之前在全国范围内流通。随着数字货币使用范围的扩大，中共国将对国家的财富行使更大的控制权，这是任何主权国家都无法实现的。**
 
-**然而，中共政权70多年，所犯下的罪行又何止是对维吾尔族人的迫害？从打土豪分田地到文化大革命，再到“六四”…… 有多少中国人在他们的控制之下失去自由，甚至失去生命？到如今，他们甚至制造出新冠病毒这样的生物武器，危害全世界！种族屠杀和反人类罪是二战希特勒纳粹犯下的滔天罪行，在二十一世纪的今天，中共被指责犯下同样罪行，全世界却暂时无能为力制止这种恶行，值得深思。**
+**中共国老百姓在电话被监听、言论行为被监控后，他们的钱包也开始被控制，真正是被牢牢地捆绑，成为任人宰割的羔羊。这还不够，中共国还要推行数字货币国际贸易来取代美元，进而控制国际货币。如果国际货币被中共国控制了，那中共国控制全球的野心不就得以实现了吗？那将是多么可怕的景象啊！现在该是阻止这个怪兽的时候了，否则人人都会被它捆绑，成为它的口中餐！**
 
-**他们如此肆意妄为，皆因他们掌握着国家权力，同时利用这种权力压制正义，掩盖真相，愚弄人民。作为爆料革命的一份子，我们应该广泛传播真相，持续不断揭露中共政权的非法性以及他们所犯下的种种罪行，唤醒全世界的正义力量对其进行反击！**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/P4vomHUoRgwJV/images/460b7964-8d53-4db4-a517-4b9947d7c22b.jpg?asset_id=e62488b5-e9a1-455e-a0e3-31f6aa671227&amp;img_etag=%2254975cab9c755f2e3e31763f6080f5a2%22&amp;size=2560)](https://spark.adobe.com/page/P4vomHUoRgwJV/images/460b7964-8d53-4db4-a517-4b9947d7c22b.jpg?asset_id=e62488b5-e9a1-455e-a0e3-31f6aa671227&amp;img_etag=%2254975cab9c755f2e3e31763f6080f5a2%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/Ys56jrPpJdJdS/images/8aacf1aa-9738-4957-b6d5-a5fb22452ce5.jpg?asset_id=f7953ef4-bf99-48c5-a4f3-8836d4ec8fa9&amp;img_etag=%2204e9af3f3d33f1c0cd0832006b48df0d%22&amp;size=2560)](https://spark.adobe.com/page/Ys56jrPpJdJdS/images/8aacf1aa-9738-4957-b6d5-a5fb22452ce5.jpg?asset_id=f7953ef4-bf99-48c5-a4f3-8836d4ec8fa9&amp;img_etag=%2204e9af3f3d33f1c0cd0832006b48df0d%22&amp;size=1024)中共国数字货币就是电子枷锁
 
 ***原文翻译：***
 
-# **轮奸、镣铐、被摧毁的学生：中共国“恐怖”的维吾尔族拘留营内幕**
+# **彭博新经济：中共国的无现金经济和监管**
 
-*（老师回忆起教室上方的尖叫声，警卫承认这是“被拘留者在遭受酷刑”）*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/P4vomHUoRgwJV/images/46d16c3f-ca02-4130-8795-0703abb4ffaa.png?asset_id=09f4aba5-b18a-46d4-8bee-d21e62361bfc&amp;img_etag=%22854779d9779f3df9b423273c8bae0aca%22&amp;size=2560)](https://spark.adobe.com/page/P4vomHUoRgwJV/images/46d16c3f-ca02-4130-8795-0703abb4ffaa.png?asset_id=09f4aba5-b18a-46d4-8bee-d21e62361bfc&amp;img_etag=%22854779d9779f3df9b423273c8bae0aca%22&amp;size=1024)这张档案照片展示了一个据信是“再教育营”的设施，主要是穆斯林少数民族，如维吾尔人，在新疆被拘留。 （法新社从Getty获得的图片）
+十三世纪，马可·波罗在前往中国的旅途中遇到了许多奇观，其中之一就是纸币。中国的发明给这个威尼斯人旅行者留下了深刻的印象，以他的观察，认为当时的蒙古皇帝“比宇宙中任何其他君主都拥有更广泛的可支配的财富宝藏”。
 
-一个自称被强迫在中共国维吾尔族拘留营内教授那里“嚎啕大哭”男女囚犯普通话的女性，告诉我们在那些被关闭、被上锁并且有警卫把守的房门背后到底在发生着什么。
+今天，中共国再次站在货币创新的最前沿。它计划消除流通了1500年的纸币，仅发行数字货币。硬币也将消失。
 
-凯丽比努尔·西迪克（Qelbinur Sidik）是一名教师，她说，2016年她被召集到沙依巴克区（乌鲁木齐市辖区）教育局去开会，会上她接到通知，不久她就要与一群“文盲”一起工作。截止到2017年，她一直在两个政府运营的再教育营给那些带着镣铐的学生教授普通话课程。
+为了准备成为世界上第一个完全没有现金的主要经济体，2月12日数个中共国大城市通过彩票行发放了数百万人民币的数字“红包”来庆祝中国农历牛年。虚拟货币应该在明年的冬季奥运会之前在全国范围内流通。
 
-西迪克是一名乌兹别克斯坦女性，在新疆长大，任教28年，主要教授年龄在6到13岁之间的学童。
+随着数字货币使用范围的扩大，现代中共国的统治者将对国家的财富行使更大的控制权，这是任何主权国家都无法实现的。
 
-西迪克女士在周五接受美国有线电视新闻网（CNN）采访时说，被拘留者刚刚抵达“再教育中心”的时候，“健康、健壮、眼睛明亮”，但是很快他们就变得病弱。她回忆说，经常听到位于地下室的教室上方传来的尖叫声。当她询问时，一名男警察证实那是经受折磨的被拘留者的尖叫。
+[!\[\]()!\[\](https://spark.adobe.com/page/Ys56jrPpJdJdS/images/1db888ff-38e4-4209-872c-025a71aad00f.png?asset_id=11e8b1d2-37e6-4c1b-9dc4-10b5a0ed06cc&amp;img_etag=%2209f4759ee4d5e5a34cd2490ea96136fe%22&amp;size=2560)](https://spark.adobe.com/page/Ys56jrPpJdJdS/images/1db888ff-38e4-4209-872c-025a71aad00f.png?asset_id=11e8b1d2-37e6-4c1b-9dc4-10b5a0ed06cc&amp;img_etag=%2209f4759ee4d5e5a34cd2490ea96136fe%22&amp;size=1024)
 
-“我见证了极其可怕的惨剧。”她说。
+北京当局庞大的货币野心包括三个主要部分。首先，中国人民银行发行的数字货币将使中共国能够掌握其14亿人口的消费习惯。
 
-西迪克女士还声称，在她工作过的一个营地中，一名女警官告诉她，她正在调查有关警卫强奸犯人的报道。根据西迪克女士的说法，同一位女警说她的男同事有时候会喝醉，并“互相讲述他们如何强奸和折磨女孩”。
+中共国公民已经习惯了“老大哥”（Big Brother）监听他们的电话，用摄像机监视他们的行为以及从社交媒体来了解他们的想法（Clubhouse成为北京在线审查的最新目标）。现在，中共国将开始监视并控制他们的钱包。
 
-尽管这些说法都无法得到证实，因为中共国坚称，在所谓的“职业培训中心”中没有发生过诸如此类虐待事件，然而西迪克女士的事件版本与幸存者们一样，这些幸存者也说出了他们自己的经历。
+该系统的架构师强调了在打击欺诈和腐败方面的潜在利益。它还可以帮助微调货币政策。彭博资讯（Bloomberg Intelligence）的分析师认为，未来央行可以通过直接向人们分配电子人民币而不是降低利率来减轻农村家庭或陷入困境的企业的财务负担，这是一种较间接的救济形式，起效较慢。这种货币微观管理对个人的不利影响是什么？它将是一种全新状态的监视形式。
 
-图尔苏耐·孜亚吾顿（Tursunay Ziyawudum）早些时候在同一篇CNN报道中说，当她于2018年3月被抓获并被安置在新疆古尔哈市外的一个中心时，她没有犯任何罪行，然而她却被拘留在那里长达9个月之久。
+[!\[\]()!\[\](https://spark.adobe.com/page/Ys56jrPpJdJdS/images/f08adb0a-276a-4f32-9bc9-72f54992900b.png?asset_id=4ac875f8-cc24-4c13-a03b-3af559c9e9a0&amp;img_etag=%22cce4352f3ac2fa18a5afc95ce80a57b7%22&amp;size=2560)](https://spark.adobe.com/page/Ys56jrPpJdJdS/images/f08adb0a-276a-4f32-9bc9-72f54992900b.png?asset_id=4ac875f8-cc24-4c13-a03b-3af559c9e9a0&amp;img_etag=%22cce4352f3ac2fa18a5afc95ce80a57b7%22&amp;size=1024)10月1日，游客们站在长城八达岭段的监控摄像头附近。摄影师：严聪/彭博
 
-她提供了发生的“多起轮奸案”的细节，她说：“我听到一个女孩在另一个房间里哭泣和尖叫。我看到大约五六个男人进入那个房间，我以为他们在折磨她。”
+预期公众会抵制这种货币，金融监管机构一直在吹捧“可控制的匿名性”概念，据此，定期交易可能会在中央银行的监视下迅速达成（被认为与罪犯或恐怖分子有联系的交易除外）。西方评论家不相信他们。“新美国安全中心”上个月的一份报告说，数字货币“对长期以来在自由社会维护的金融隐私标准构成了重大风险”。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/P4vomHUoRgwJV/images/63889cb1-8370-453e-81bd-37c9234836a5.jpg?asset_id=3f594d10-e17c-4c8f-8e4b-b1057a445cd3&amp;img_etag=%22847e5d24ef91c5ad928624756ca96747%22&amp;size=2560)](https://spark.adobe.com/page/P4vomHUoRgwJV/images/63889cb1-8370-453e-81bd-37c9234836a5.jpg?asset_id=3f594d10-e17c-4c8f-8e4b-b1057a445cd3&amp;img_etag=%22847e5d24ef91c5ad928624756ca96747%22&amp;size=1024)
+一旦可以直接控制每个人的钱包，北京当局或许就能进一步控制在线支付巨头支付宝和微信，这两家公司共同拥有超过90％的市场。
 
-“但接下来，我自己被轮奸了，这时候我才意识到，他们对那个女孩做了什么。”
+中共国一直对负责消费者数据的私营企业感到不满。监管机构去年阻止了蚂蚁集团的上市，这已经足够说明了一切。《华尔街日报》本周报道说，中共国发现蚂蚁集团的某些受益人与被视为北京领导层潜在问题的家庭有联系后，便阻止了原本是全球最大的IPO。数字货币可能不会完全切断这些支付中介机构，但会削弱它们的垄断地位。
 
-孜亚吾顿女士在2020年被送到美国接受治疗后，从美国国内接受了电视台的采访。2019年9月，她在中共国当局的严格命令下，返回了哈萨克斯坦，她说，当局不允许她说出在“再教育营”这段时间的经历。
+最后，中共国领导人还看到了使用其虚拟货币将美元从其全球货币宝座踢下来的机会。但是，在这里，中共国可能会感到失望，因为他们在全球贸易和投资中推进电子人民币的目标与他们的前两个野心相悖，前两个野心都是关于国家内部控制的。正如一位香港商人告诉英国《金融时报》说：“如果共产党想通过数字人民币深入了解我们所做的每项交易，那么我认为中共国以外的许多人将不愿意使用它。”
 
-医生切除了她的子宫， CNN看到的医疗记录显示，她被诊断出患有盆腔脓肿、阴道出血以及结核病。孜亚吾顿女士指责说，是她在“再教育营”受到的虐待才导致了此次手术。
+从历史上看，当中国帝国失去对货币的控制权时，它的政权也随之崩溃了。蒙古元朝和随后的明朝都因财政问题而倒塌。共产党之所以从国民党手中夺取了权力，是因为国民党印刷过多的纸币来资助抗日战争，以至于仅一次估算，物价就上涨了3500万倍。
 
-中共国政府持续不断地驳斥他们针对维吾尔人的种族灭绝指控；在给CNN的一份声明中，中共声称：“新疆没有所谓的‘针对妇女的系统性侵犯和性虐待’。”
+当今的中共国领导人面临一个选择：他们或者完全控制国内流通的数字货币，或者完全控制国际货币。他们可能无法同时获得两者的控制权。
 
-**🔗[原文链接](https://www.independent.co.uk/news/world/asia/china-uighur-detention-camps-eyewitness-b1804804.html)**
+**🔗[原文链接](https://www.bloomberg.com/news/newsletters/2021-02-20/bloomberg-new-economy-china-cashless-economy-and-surveillance)**
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -65,6 +62,6 @@
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/P4vomHUoRgwJV/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/P4vomHUoRgwJV/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/Ys56jrPpJdJdS/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/Ys56jrPpJdJdS/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-+1
+0

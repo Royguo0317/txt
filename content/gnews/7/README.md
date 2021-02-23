@@ -1,157 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《新闻快递》节目摘要2021.02.19
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/929094/)
+## 财长耶伦会将美国数字货币发展引向何方
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/929194/)
 
-《新闻快递》栏目组：Beicy数学老师，文玉，1818;
+#### 译评：牛小妹
+责编：沙拉猫
+![]()![](https://gnews.org/wp-content/uploads/2021/02/capture-23-4.jpg)图片来源：AFP
+美国主要智库组织“大西洋理事会”（Atlantic Council）2月22日在官网发表文章，对美国新财长及其在未来数字货币领域的所为进行了探讨。文章称，美国财政部目前面临几个重大挑战，其中最重要的是中共病毒所造成的经济重创，这场危机导致人们忽略2020年全球加密货币的迅速崛起，然而这两件事其实是相互影响的。
 
-校对/审核：宁缺； Page: 1818
+**加密货币的种类**
 
-引言：
+目前世界上加密货币的种类繁多，全部或部分具有这几个特点：数字化、 区块链（blockchain）、 加密和去中心化。区块链是借由密码学串接并保护内容的串连文字记录（又称区块）。每一个区块包含了前一个区块的加密杂凑、相应时间戳记以及交易资料，这样的设计使得区块内容具有难以篡改的特性，用区块链技术所串接的分布式帐本能让交易双方有效记录交易，且可永久查验此交易，区块链就是加密货币的公共帐簿，储存了全部交易记录。
 
-英国伦敦喜庄园GTV直播节目《新闻快递News Express》，每周一和周五英国时间18:30为战友带来美国、英国及国内的热点新闻。
+有的加密货币是去中心化，有些则没有去中心化。加密货币已经成为各种共存的数字资产的统称，其中有真正“去中心“分散的网路，最着名的就是比特币。也有以政府机构运作的“非去中心”的网路，并且是以一国的货币计价，称为中央银行数字货币（CBDCs），在美元体系中也被称为”数字美元”。还有一些是私人数字货币，如Facebook发起的Diem和”稳定币”，它们通常与法定货币挂钩。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/d7e5a6d9-cf34-4063-ad0e-07d1213954e6.jpg?asset_id=5a2bb169-d518-46cb-baae-148311b6956f&amp;img_etag=%224b9ac239b633a9e9616b48f356e78abf%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/d7e5a6d9-cf34-4063-ad0e-07d1213954e6.jpg?asset_id=5a2bb169-d518-46cb-baae-148311b6956f&amp;img_etag=%224b9ac239b633a9e9616b48f356e78abf%22&amp;size=1024)
+世界上有许多其他的国家都已经开始认知数字货币即将来临的现实，据大西洋理事会和哈佛大学贝尔弗中心进行的最新全球调查显示，有超过70个国家正在研究中央银行数字货币。
 
-**[🔗GTV-UK-1号台精彩回看](https://gtv.org/video/id=602ad052be64150df85802bf)**
+**“限缩”加密货币的美国财政部长珍妮特·耶伦**
 
-### 本期主题：
+据大西洋理事会的报道，前美国联邦储备委员会主席、拜登政府第一位也是美国历史上首位女性财政部长珍妮特·耶伦（Janet Yellen），在华盛顿为期两天的联邦公开市场委员会（FOMC）会后的新闻发布会上表示，美国的政策制定者可能会”限缩”加密货币，此消息一出，引发了推特（Twitter）上的一场风波。第二天，她提出了一个完整的书面答复，强调数位货币促进金融包容性的潜力，暂时平息加密货币圈的骚动。但这一事件引发了一个急须解决的问题：美国财政部究竟对数字货币的出现采取什么样的态度？
 
-1. 德国物理学泰斗发布“冠状病毒来自实验室”的报告
+**美国打算延迟推行加密货币**
 
-2. 扶不起的双规总统，称种族灭绝为“文化常态”引众怒
+有一些国家进行数字货币的速度较快，例如，中共国已经实施了三个大规模数字货币实验项目，在日常支付交易中发放数字人民币。本月稍早，中共国宣布与跨境支付系统(SWIFT)建立重大的合作伙伴关系，表明中共国有意将数位人民币国际化。在欧洲中央银行行长克莉丝蒂娜·拉加德（Christine Lagarde’）的领导下，欧洲央行就中央银行数字货币进行了广泛的研究和大众谘询。然而美国迄今仍采取观望态度，只宣布波士顿联邦储备银行将在未来几年内对数字货币进行研究。
 
-3. 川普接受采访称将组建新的社交媒体，准备加入G系列？！
+然而，由于加密数字货币这一领域变化的速度很快，想要靠研究去阻挡它的前进是不可能的事。最近，大西洋理事会和哈佛大学与欧洲中央银行、日本银行、英格兰银行、瑞典的里克斯银行、加拿大银行、国际货币基金组织和美联储的代表举行了会议，许多美国的盟友都渴望了解美国将采用什么技术和隐私配置用于自己的数字货币的开发。如果美联储和财政部能快速行动，这将有助于美国成为数字货币隐私和安全的标准制定者。
 
-4. 全球自动灭共，美加澳新加坡均发布抵制中共政策
+**美国推迟加密货币开发或是种错误**
 
-5. 专题：谈谈数字货币（4）— SEC主席提名人 Gary Gensler
+鉴于数位金融市场的高风险与其他相关敏感问题，我们可以理解拜登政府的新经济团队为何不急于推行加密数字货币。然而西洋理事会认为，放慢推行加密货币会是一个错误的政策，美国财政部长耶伦和美联储主席杰罗姆·鲍威尔（Jerome Powell ）应该迅速行动以利用这些不断发展的金融工具的潜力，其中包括美国版的数字美元。
 
-## 《新闻快递》节目摘要2021.02.19
+耶伦和她的同事应该清楚地意识到，如果美国在中央银行数字货币开发上不积极行动，美国将在数字货币模板开发上落后于他国，同时失去共同技术标准制定的话语权。与此同时，中共国正全速进入数字货币新领域，将其中央银行对支付宝等其他金融技术的控制进行整合。也许在下次危机或是另一波疫情爆发时，美国人就会羡慕别的国家不用几个小时就可以把钱发放到其公民数字钱包的能力。
 
-### 新闻线索【1】以毒灭共，病毒&疫苗次生危害持续全球
+数字货币有助于美国和全世界更强劲的经济复甦，它可以更有效地刺激经济活动、实施货币政策，将那些没有或缺少银行服务的人纳入到金融体系中来。 想像一下这样的情景有多牛！数字货币可以使下一轮经济刺激支票立即发送到每个美国人的手机上，而不是要花费数周的时间通过存款或邮寄支票给民众。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/23a9b6e2-8c14-4f7d-9664-f74ff6bca398.jpg?asset_id=8f9cfb26-f7b3-4290-84fb-98ecf99a1218&amp;img_etag=%22c30814e0f72b78d31660f0fed049b7e3%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/23a9b6e2-8c14-4f7d-9664-f74ff6bca398.jpg?asset_id=8f9cfb26-f7b3-4290-84fb-98ecf99a1218&amp;img_etag=%22c30814e0f72b78d31660f0fed049b7e3%22&amp;size=1024)
+**美国财政部如何建立稳固的数字货币系统**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/31da7ba1-3932-43eb-b9b4-615f14270a7c.jpg?asset_id=92e4b942-0324-45e3-a6e6-c9b1d6d02378&amp;img_etag=%22030379c5e18591fa7680efa50ec0dc29%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/31da7ba1-3932-43eb-b9b4-615f14270a7c.jpg?asset_id=92e4b942-0324-45e3-a6e6-c9b1d6d02378&amp;img_etag=%22030379c5e18591fa7680efa50ec0dc29%22&amp;size=1024)
+首先美国可以在财政部内部发起一项倡议，加快数字货币的工作，换句话说，就是向美联储、国会和主要金融机构发出一个关键信号，表明财政部在创建公共数字美元方面将拥有更强的发言权。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/5ec373de-bb71-4d4e-9652-973a802cc9ef.jpg?asset_id=475c41ea-bec1-45c9-ad5e-4e5ea2532b39&amp;img_etag=%221649511723d339254737d09673384cd0%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/5ec373de-bb71-4d4e-9652-973a802cc9ef.jpg?asset_id=475c41ea-bec1-45c9-ad5e-4e5ea2532b39&amp;img_etag=%221649511723d339254737d09673384cd0%22&amp;size=1024)
+下一步则是为数字货币建立一个滴水不漏的监管框架。如果美国选择通过公共和私营部门发放数字美元（例如，英格兰银行正在讨论的架构），那么财政部的法规在法律方面的解释和澄清问题上就至关重要。同时，耶伦也可以利用她在联邦政府中的独特关系加强与大众的沟通与协商。
 
-**[🔗 每日来电：美国国家卫生研究院确认武汉实验室有资格在2024年之前获得美国纳税人的资助](https://dailycaller.com/2021/02/16/wuhan-lab-eligible-taxpayer-funding/)**
+相比之下，在川普政府执政时期，关于这些问题的跨机构的协商并不顺利。例如，财政部仅用了十一个小时就对数字钱包制定规则提出法案，并且几乎在耶诞节期间就匆匆通过，这种做法令其他联邦机构感到吃惊。（在大众的强烈抗议之后，财政部重新开启了规则制定过程。）
 
-**[🔗 路透社：英国首相呼吁世界需要大流行性条约，以确保透明度（世卫组织探查武汉）](https://www.reuters.com/article/us-health-coronavirus-britain-johnson-ch/uks-johnson-says-world-needs-pandemic-treaty-to-ensure-transparency-idUSKBN2AF1OP)**
+**美国财政部对数字货币发展的重要性**
 
-**[🔗 Gnews：德国物理学泰斗发布“新冠病毒来自实验室”的报告](https://gnews.org/zh-hans/918095/)**
+凭借美国财政部长耶伦以前在美联储的出色经历，她有极大的优势可以借由她在金融界的地位消除人们对加密货币的困惑，解释现有可能的不同选择、明白告知人们数字货币不必然与实体经济脱节。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/39c2ac3e-5149-4ddd-8fb2-09dfd20960dd.jpg?asset_id=d9751208-acdb-4d63-8ddb-bd1886dfa212&amp;img_etag=%2278e0e2e7509de252db70a85f95fb2ac4%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/39c2ac3e-5149-4ddd-8fb2-09dfd20960dd.jpg?asset_id=d9751208-acdb-4d63-8ddb-bd1886dfa212&amp;img_etag=%2278e0e2e7509de252db70a85f95fb2ac4%22&amp;size=1024)
+美国财政部长耶伦曾经信心十足、慷慨激昂地谈到美元可以确保全球金融稳定和创造经济繁荣，而这种谈话同样也需要应用在数字货币领域上，世界储备货币的未来或许可能取决于耶伦的态度。
 
-**[🔗 捷克要点：红衣主教杜卡(Duka)称冠状病毒为 “中共国生物武器”](https://czechpoints.com/cardinal-duka-calls-coronavirus-a-chinese-bioweapon/)**
+**点评**:
 
-**[🔗 MSN：英国揭示部分冠状病毒患者难以重返工作岗位](https://www.msn.com/en-gb/news/world/china-plot-tentacles-of-influence-spreading-with-vaccine-diplomacy-as-eu-squabbles/ar-BB1dsE99)**
+曾承诺将对抗不平等和贫富不均问题视为优先要务的美国财政部长耶伦曾警告，数位金融市场的风险激增，包括滥用加密货币等问题。不过她也表示，新的金融科技可用来协助对抗犯罪，并减少不平等，并提供数以百万计民众进入金融体系的管道，帮助更多人提高生活的水平。美国财政部对于加密数字货币似乎并不着急，然而未来的数字货币趋势是不可挡的，如何建立有效且安全的国家数字货币或许是所有国家都需要考量的事，美国当然也不例外。美国财政部长耶伦对于数字货币的态度是否如她对美元立场一般坚定，目前仍然无所知，可以肯定的是美国的数字货币绝对不可能如中共国的“中心化、未加密”。
 
-**[🔗 闫博士推特：必看！东京电视台的详尽报道](https://twitter.com/DrLiMengYAN1/status/1362388081073131524?s=20)**
+[文章链接](https://www.atlanticcouncil.org/blogs/new-atlanticist/how-janet-yellen-can-help-deliver-the-digital-dollar/)
 
-
-
-> Elaborate report by TV Tokyo (Subtitles by Andy5)
-> 
-> Curious about dramatic impact in Anti-[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) trophy exhibition in Wuhan?
-> Curious about what content attracted WHO investigation team for 2+ hr there, and “smart enough to understand the meaning (Peter Daszak)”?
-> 
-> Must watch! [https://t.co/1JWzYcoCbA](https://t.co/1JWzYcoCbA)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [February 18, 2021](https://twitter.com/DrLiMengYAN1/status/1362388081073131524?ref_src=twsrc%5Etfw)
-
-
-
-### 新闻线索【2】 香港圣城, 东方明珠变暗夜
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/0560af12-f692-4884-bd27-3ecf0797e00b.jpg?asset_id=da74e22e-1b41-4054-b734-c03562f4590b&amp;img_etag=%22f5d599df4d6c4bd5eb9d76825c045d5d%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/0560af12-f692-4884-bd27-3ecf0797e00b.jpg?asset_id=da74e22e-1b41-4054-b734-c03562f4590b&amp;img_etag=%22f5d599df4d6c4bd5eb9d76825c045d5d%22&amp;size=1024)
-
-**[🔗 Gnews: 英国更新香港商业指南，删除“国际金融中心”的内容](https://gnews.org/zh-hans/918273/)**
-
-**[🔗 香港自由媒体：港医疗联盟因为隐私问题呼吁抵制冠状病毒追踪应用，政府对此表示 “愤怒”](https://hongkongfp.com/2021/02/19/covid-19-govt-expresses-anger-over-medical-unions-call-to-boycott-tracing-app-amid-privacy-concerns/)**
-
-**[🔗 香港自由媒体：香港警方周四拘捕另一名中大学生, 因参加去年11月和平民主校园示威](https://hongkongfp.com/2021/02/19/security-law-hong-kong-police-arrest-another-cuhk-student-over-peaceful-pro-democracy-campus-demo-last-nov/)**
-
-**[🔗 香港自由媒体：香港将为五个优先群体推出Covid-19大规模疫苗接种，下周二开放注册](https://hongkongfp.com/2021/02/18/hong-kong-to-roll-out-covid-19-mass-vaccination-for-five-priority-groups-registration-opens-next-tue/)**
-
-### 新闻线索【3】全球灭共, 以共灭共: 共产党员必须自救
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/e2120a97-da7d-4c7a-bfcb-3fef59fe73f6.jpg?asset_id=419651d9-e830-4cbe-844e-8d82ec06ba81&amp;img_etag=%22ca7910f34adc241565c8cef2426b09eb%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/e2120a97-da7d-4c7a-bfcb-3fef59fe73f6.jpg?asset_id=419651d9-e830-4cbe-844e-8d82ec06ba81&amp;img_etag=%22ca7910f34adc241565c8cef2426b09eb%22&amp;size=1024)
-
-🔗**[布赖特巴特：汤姆·科顿“我们需要把中国共产党分子打进历史的垃圾堆”](https://www.breitbart.com/politics/2021/02/18/tom-cotton-we-need-to-consign-the-chinese-communists-to-the-ash-heap-of-history/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed:+breitbart+%28Breitbart+News%29News)**
-
-**[🔗 Axios：众议院共和党议员敦促拜登重新采用川普有关孔子学院的规则](https://www.axios.com/house-republican-letter-biden-confucius-institute-rule-7ae1d581-ab7f-4c05-b9f8-47806481dcab.html)**
-
-**[🔗 布赖特巴特：在被共和党研究委员会（RSC）本周敲打其与北京的关系后，布林肯表态中共国正在实施种族灭绝](https://www.breitbart.com/politics/2021/02/16/gop-report-secretary-of-state-blinken-founded-firm-that-received-chinese-money-for-dod-research-linked-universities/)**
-
-🎞** 视频：美国国务院已经认定（中共）种族灭绝罪，实际上这种罪行正在发生**
-
-
-
-**🎞 视频：蓬佩奥：中共在新疆施行种族灭绝，不能允许他们举办冬奥会，这与当年抵制纳粹举办奥运会一样**
-
-
-
-**[🔗 国家脉动：拜登借口称维吾尔族种族灭绝是“文化常态”](https://thenationalpulse.com/breaking/biden-excuses-uyghur-genocide/)**
-
-**🎞视频：拉希姆：纳粹对犹太人做的，中共都正在做。而拜登昨天竟然称这是“文化标准”的不同！这是拜登给中共的「种族灭绝执照」「大屠杀执照」！**
-
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/17d82321-5d42-486c-b255-d4639122b3e2.jpg?asset_id=390fdbd3-449e-4fa1-af28-99a90e8bfe0b&amp;img_etag=%22972b407050465f39770f1a1bb645e87c%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/17d82321-5d42-486c-b255-d4639122b3e2.jpg?asset_id=390fdbd3-449e-4fa1-af28-99a90e8bfe0b&amp;img_etag=%22972b407050465f39770f1a1bb645e87c%22&amp;size=1024)
-
-**[🔗 零对冲：缅甸抗议者谴责中共国在支持军政府方面的“隐藏黑手”](https://www.zerohedge.com/geopolitical/myanmar-anti-coup-protesters-say-chinas-hidden-hand-propping-junta?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed:+zerohedge/feed+%28zero+hedge+-+on+a+long+enough+timeline,+the+survival+rate+for+everyone+drops+to+zero%29)**
-
-**[🔗 CNBC：新加坡调查显示，如果被迫选边站，东南亚会选择美国而不是中共](https://www.cnbc.com/2021/02/16/asean-would-choose-us-over-china-if-forced-to-pick-sides-survey.html?__source=sharebar%7Ctwitter&amp;par=sharebar)**
-
-**[🔗 OANN：加拿大发起58国联动制止任意拘留](https://www.oann.com/canada-launches-58-nation-initiative-to-stop-arbitrary-detentions/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=canada-launches-58-nation-initiative-to-stop-arbitrary-detentions)**
-
-**[🔗 SMH：澳大利亚加入加拿大领导的反对人质外交的联盟](https://www.smh.com.au/world/europe/urgently-needed-australia-joins-canadian-coalition-against-hostage-diplomacy-20210216-p572s4.html)**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/6dd111fe-b5ec-4fcb-af18-52b65fd53e87.jpg?asset_id=feba5e79-797c-45a1-aae3-281ab3f9d9b2&amp;img_etag=%22e68d3c5cd0c53009367a17d1f194c1c5%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/6dd111fe-b5ec-4fcb-af18-52b65fd53e87.jpg?asset_id=feba5e79-797c-45a1-aae3-281ab3f9d9b2&amp;img_etag=%22e68d3c5cd0c53009367a17d1f194c1c5%22&amp;size=1024)
-
-🔗 **[澳洲战略政策研究所：中共国海军扩张背后的港口运营商](https://www.aspistrategist.org.au/the-port-operators-behind-chinas-naval-expansion/)**
-
-🔗 **[美媒配图报道X级同性恋推特帐户吸引了顶级中共国外交官](https://www.breitbart.com/asia/2021/02/14/exclusive-chinese-foreign-minister-follows-x-rated-gay-porn-twitter-account/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed:+breitbart+%28Breitbart+News%29)**
-
-🔗 **[大纪元：川普正在考虑建立自己的社交媒体平台](https://www.theepochtimes.com/trump-says-hes-considering-new-social-media-platform-you-can-literally-build-your-own-site_3701853.html)**
-
-🔗**[天空新闻网：为什么Facebook在澳大利亚阻止新闻，这对世界其他地方意味着什么？](https://news.sky.com/story/why-has-facebook-blocked-australian-news-and-what-does-it-mean-for-the-rest-of-the-world-12221723)**
-
-**[🔗 Gnews: 表里不一！扎克伯格私下质疑新冠疫苗会产生长期副作用](https://gnews.org/zh-hans/918246/)**
-
-### 新闻线索【4】 新中国联邦
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/b9bf1811-bbd1-4970-a17f-7b5cee3bf893.jpg?asset_id=42585a73-f748-4df4-9936-bc51f90f462d&amp;img_etag=%22710d94203388dab171591cb9017a00c0%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/b9bf1811-bbd1-4970-a17f-7b5cee3bf893.jpg?asset_id=42585a73-f748-4df4-9936-bc51f90f462d&amp;img_etag=%22710d94203388dab171591cb9017a00c0%22&amp;size=1024)
-🎞 **视频：七哥揭露林郑妖蛾伏击肛门, 检查港人是否上街真相**
-
-**[🔗 英国BNO实战信息要点](https://www.gov.uk/british-national-overseas-bno-visa)**
-
-**[🔗 Gnews: 2021/02/09 大卫连线路德时评直播精要](https://gnews.org/zh-hans/910200/)**
-
-**[🔗 英国伦敦喜庄园的英文GTV直播频道《GTV UK English》正式建立](https://gtv.org/user/602f9f5c047c4c3086d4f215)**
-
-### 新闻线索【5】七哥与战友Getter快递
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/ddda43a8-4e3b-4434-b481-d6c84adfb267.png?asset_id=b7c83bee-77c7-40c9-a489-44c8897ecdba&amp;img_etag=%228eaecdd3f6ff809254b90d8233a4edb1%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/ddda43a8-4e3b-4434-b481-d6c84adfb267.png?asset_id=b7c83bee-77c7-40c9-a489-44c8897ecdba&amp;img_etag=%228eaecdd3f6ff809254b90d8233a4edb1%22&amp;size=1024)[https://gtv.org/getter/602fd783195851590235746f](https://gtv.org/getter/602fd783195851590235746f)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/f3c6aba0-3fab-481c-8d3c-24b077facaef.png?asset_id=602917aa-022b-4f2a-9e14-10621c1c4ac9&amp;img_etag=%22c9be034973a520eea64a85c448658799%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/f3c6aba0-3fab-481c-8d3c-24b077facaef.png?asset_id=602917aa-022b-4f2a-9e14-10621c1c4ac9&amp;img_etag=%22c9be034973a520eea64a85c448658799%22&amp;size=1024)[https://gtv.org/getter/602f27a4226e775907456f33](https://gtv.org/getter/602f27a4226e775907456f33)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/a7a6e795-c07e-4ab8-a44c-7772f8e87d97.png?asset_id=9b0095e4-5021-42e1-bcf8-7244a154b9f7&amp;img_etag=%222ad1021a44e58f573475925d16cb0e20%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/a7a6e795-c07e-4ab8-a44c-7772f8e87d97.png?asset_id=9b0095e4-5021-42e1-bcf8-7244a154b9f7&amp;img_etag=%222ad1021a44e58f573475925d16cb0e20%22&amp;size=1024)[https://gtv.org/getter/602f13a6226e77590745699d](https://gtv.org/getter/602f13a6226e77590745699d)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/345d69c3-ef61-419a-9c09-439c2307307e.png?asset_id=49b70bb5-3c1e-419a-9ff0-cb115787ea12&amp;img_etag=%22b0a264672531587554e1f56b718753a4%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/345d69c3-ef61-419a-9c09-439c2307307e.png?asset_id=49b70bb5-3c1e-419a-9ff0-cb115787ea12&amp;img_etag=%22b0a264672531587554e1f56b718753a4%22&amp;size=1024)[https://gtv.org/getter/602d94a6226e775907450122](https://gtv.org/getter/602d94a6226e775907450122)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/8bdfd150-d95f-4a19-ab96-4f036ab32230.png?asset_id=1570750c-42c3-40b8-bae5-f1942c83e47d&amp;img_etag=%2227b0f144e413a92d56af0c8d6700bcad%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/8bdfd150-d95f-4a19-ab96-4f036ab32230.png?asset_id=1570750c-42c3-40b8-bae5-f1942c83e47d&amp;img_etag=%2227b0f144e413a92d56af0c8d6700bcad%22&amp;size=1024)[https://gtv.org/getter/602fed1319585159023578e8](https://gtv.org/getter/602fed1319585159023578e8)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/31583eb2-8179-4c21-a84c-8946fa089b97.png?asset_id=2114999c-4c6f-4a81-a8fb-5005c9e9046c&amp;img_etag=%2222de48706ab32684a24cb98fe8c19b13%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/31583eb2-8179-4c21-a84c-8946fa089b97.png?asset_id=2114999c-4c6f-4a81-a8fb-5005c9e9046c&amp;img_etag=%2222de48706ab32684a24cb98fe8c19b13%22&amp;size=1024)[https://gtv.org/user/5ea435ffe538910ad4af603c](https://gtv.org/user/5ea435ffe538910ad4af603c)
-
-**[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)**
-
-**[点击观看英国伦敦喜庄园在G-TV的精彩直播视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)**
-
-**[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)**
-
-编辑：[**【英国伦敦喜庄园编辑部】**](https://spark.adobe.com/page/NnlWInNrFIkY8/)
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/52074c29-fe4e-475d-be27-cddb42e77350.jpg?asset_id=658f2e9c-6914-452e-acc1-3db0602a2df7&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/52074c29-fe4e-475d-be27-cddb42e77350.jpg?asset_id=658f2e9c-6914-452e-acc1-3db0602a2df7&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
