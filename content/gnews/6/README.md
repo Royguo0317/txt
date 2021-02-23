@@ -1,29 +1,101 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大立法机构通过了中共种族灭绝提议
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/927921/)
+## 【香草诗词汇】乡野漫游
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/928921/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：木白；上传：雪梨
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-23_07-40-23.jpg)[muslimnews.co.uk](https://muslimnews.co.uk/news/human-rights/indonesia-denies-quiet-uyghur-persecution/)
-《卫报》2月22日报道，加拿大立法机构下议院通过了将中共针对新疆维吾尔穆斯林的行为定为种族灭绝罪，这加大了加拿大总理贾斯廷·特鲁多(Justin Trudeau)对北京采取更强硬态度的压力。
 
-周一下午，议员们通过了一项声明，承认“中华人民共和国正在犯下种族灭绝罪”。尽管不具约束力，但这一决定代表了议员们发出的明确信号，他们希望特鲁多在人权问题上继续对中共施压。
 
-此举将进一步加剧中加两国关系的紧张，两国关系已经处于1970年建交以来的最低点。自2018年华为技术有限公司(Huawei Technologies Co. Ltd.)高管孟晚舟因美国的引渡要求在温哥华被捕以来，双方的紧张关系不断加剧。中共当局随后以国家安全指控监禁了两名加拿大人。
+**檫木树**
 
-保守党党魁艾林·奥图尔(Erin O’toole)认为特鲁多政府对中共的立场不明确。所有的消息来源都证实中共对维吾尔人的罪行是真实存在的，越来越多的国家开始正视这一指控。奥图尔指出，前任美国国务卿蓬佩奥做出了这一声明，他的继任者安东尼·布林肯在美国参议院确认听证会上也同意这一评估。而加拿大总理贾斯廷·特鲁多仍在迟疑，他在任何涉及中共的决定上的拖延策略令人费解。
+早春，点醒沉默的枝丫，
 
-特鲁多和他的内阁在星期一的投票中弃权，然而他的自由派核心小组的大多数议员投了赞成票。这项提案以266票赞成、0票反对的结果获得通过，它还呼吁政府推动2022年冬奥会从中共迁至其他国家。
+在烂岩窠那头种下白月光。
 
-阿尔伯塔大学(University of Alberta)中国研究所(China institute)高级研究员玛格丽特·麦奎格-约翰斯顿(Margaret mccuag – johnston) 指出，加拿大政府应该极端严肃地对待任何关于种族灭绝罪的指控。我们有责任与国际社会其他各方合作，确保任何此类指控都由一个独立的国际法律专家机构进行调查。而这一明确的“种族灭绝罪”的决议，让加拿大与美国等盟国更加亲密地站在了一起。
+远处的鞭炮湮没于狗吠。
 
-参考链接:
+轻的风在刮。
 
-[https://www.theguardian.com/world/2021/feb/22/canada-china-uighur-muslims-genocide](https://www.theguardian.com/world/2021/feb/22/canada-china-uighur-muslims-genocide)
+瘦弱的木房子梳理着穷根和漏檐。
 
-[https://www.bloomberg.com/news/articles/2021-02-22/genocide-vote-pressures-trudeau-to-take-harder-line-on-china](https://www.bloomberg.com/news/articles/2021-02-22/genocide-vote-pressures-trudeau-to-take-harder-line-on-china)
+当松鼠的尾巴擦亮树林，
 
-+3
+檫木树点起了烟，催熟轻的云朵——
+
+飘荡在乡野，黄花朵朵，踩着轻的舞步。
+
+窗子打开新春的第一枝花和老的烟斗。
+
+你解开了大地的声音。轻如烟，如光。
+
+2021年2月17日
+
+注解：檫木开花于早春。花为黄色。
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1333-【香草诗词汇】乡野漫游-1.jpg)
+
+
+
+**乡野漫游**
+
+走着走着就到了坟头——无字的墓碑。
+
+走着走着就到了山头——无尽的枯草。
+
+走着走着就到了云的另一头——无声的风。
+
+走着走着，两三人家——无炊烟，无流水。
+
+走着走着就到了太阳的尽头——无言的黄昏。
+
+2021年2月17日
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1333-【香草诗词汇】乡野漫游-2.jpg)
+
+
+
+**烂岩窠**
+
+烂岩窠，在村里最穷的山头；
+
+烂岩窠，不适合种粮食；
+
+烂岩窠，是村里人骂人的话。
+
+它们无用而多余，像极了写诗和写诗的人。
+
+敬畏天地，向顽石鞠躬；
+
+敬畏先人，向顽石鞠躬。
+
+一块顽石棱角分明，在风吹日晒中更锋利。
+
+一群顽石臭味相投，千万年挺着刚硬的脊梁。
+
+烂岩窠，不毛之地，却是顽石的天堂。
+
+没有农药化肥的污染，怀着同一种纯真。
+
+烂岩窠吞下飞鸟落下的屎，以苔藓为裟，
+
+于天地间禅定；是庙宇，是修行，是无字的诗。
+
+2021年2月17日
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+0
