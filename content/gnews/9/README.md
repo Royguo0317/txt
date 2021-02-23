@@ -1,55 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 特鲁多什么时候才能意识到中共国是我们的敌人？
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/929151/)
+## 接种疫苗就可以回归正常生活？
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/929187/)
 
-翻译报道：木千
+```
+记者: Marcel Leubecher, Pia Heinemann 22.02.21 德国世界报
+翻译整理: Shuizhuyu 校对/发稿人: Ting Guo
+```
 
-据Financial Post记者Diane Francis于2021年2月22日报道
-![]()![](https://gnews.org/wp-content/uploads/2021/02/TRUDEAULILLEY06-scaled-e1609886978112.jpg)图片来源：网络
-**翻译整理：**
 
-特鲁多总理选择了投降并与北京合作的道路。这构成了生存危险，并解释了为什么加拿大安全情报局局长大卫·维尼奥特（David Vigneault）最近在渥太华的一次活动中异常地谈到了中共国的战略威胁1。“对加拿大国家安全的最大战略威胁来自外国的敌对活动，”维尼奥特直言不讳地补充说，中国“对我们的国家安全和主权构成了直接威胁”。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/55793544_303.jpg)图片来源：dw
 
-皇家骑警（RCMP）国家情报协调中心前负责人卡梅伦·奥尔蒂斯(Cameron Ortiz)已被监禁两年。他被指控与中共政府合作。其前任负责人也因做了同样的事情而被指控。两位官员都曾能够接触西方的高级情报机构，这些指控让加拿大的盟友感到不安。但加方几乎没做任何事以缓解他们的恐惧。
+Biontech疫苗可能有效地防止了病毒的传播。同时，司法部长也愿意考虑恢复接种疫苗者的基本权利。但是有一个问题现在还没有答案，就是现有数据还不能完全佐证， 接种疫苗后就不具有传染性。
 
-不同于其他五眼军事联盟的国家（英国、美国、澳大利亚和新西兰），加拿大拒绝终止华为为其建设5G网络。加上其面临的安全漏洞，这最终可能会破坏加国与盟友的协议，使加拿大更加脆弱。
+Biontech / Pfizer与以色列卫生部进行的一项观察性研究表明，疫苗的89.4％可以防止接种疫苗的人感染冠状病毒。这个好消息正在刺激人们要求德国政府考虑对德国采取宽松政策。
 
-加拿大在保护其高级知识产权方面做得很少。最近，国家研究委员会与中国疫苗制造商康希诺（CanSino）的协议破裂，从而允许中国人保留开发疫苗所需的知识产权，而加拿大一无所获。这也直接导致了加国目前的疫苗缺乏。
+但是结果对德国意味着什么？联邦司法部长克里斯汀·兰布雷希特（SPD）期望给接种疫苗的人更多的自由。社民党政治家向电视频道RTL和ntv补充说：“如果我们知道，接种了疫苗就没有传染性， 那么就没有任何理由限制基本权利。”目前， 关于疫苗接种后感染传播的数据还不够。 Lambrecht补充说： 对于进行快速测试的人们应该有同样的权力。
 
-加拿大位于温尼伯的世界级国家微生物实验室和中国武汉的实验室之间也共享了有关致命病原体的信息2。两名加拿大实验室官员在不明的情况下被解雇，但公众对事件的真实情况一无所知。自然科学工程研究委员会（Natural and Sciences Engineering Research Council）与华为之间的合作按理也不应该被允许。
+“如果结果得到证实，并且也适用于其他疫苗，那么人们就再也不能说接种疫苗的人享有特权了，” 联邦议院SPD议会小组副主席Dirk Wiese说。我认为可以开放旅馆和餐馆。
 
-在挑选驻华大使时，特鲁多总理选择了刚从麦肯锡公司（McKinsey & Company）出来的多米尼克·巴顿（Dominic Barton）。在公司期间，他作为董事长，通过向中共政府提供咨询服务公司致富。自他到中国以来，一事无成。
+欧盟议会组织法律政策发言人扬·马可·卢扎克（Jan-Marco Luczak）表示，这项新研究令人鼓舞，并希望不久以后将有更多自由。 “这既不是针对被接种疫苗者的特殊权利也不是特权，而是关于恢复基本权利。”卢扎克继续说道：“如果确定人们在接种疫苗后不再具有传染性，那么国家就没有理由干预。仍然保持限制出行就不合法。”
 
-中共国将两名加拿大公民扣为人质已经两年多了，但特鲁多没有采取任何报复行动。中共国限制了针对加拿大资源和其他出口的贸易，而特鲁多则任其摆弄。
+但是，仍然没有可靠的研究报告可以佐证， 即使以色列的研究者也敦促要谨慎对待。就是先要让尽可能多的人接种疫苗。
 
-加拿大拒绝与澳大利亚和美国一起反击中共国的不当行为。加国政府拒绝履行其北约承诺，以及最近提议与中共国军方举行联合训练演习，损害了加拿大武装部队的士气。加拿大没有就香港镇压或维吾尔种族灭绝罪对中国进行有力谴责\*。他还拒绝打击北京干涉华裔人士谈论其侵犯人权行为的企图。
+最近宣布的研究基于来自将近180万接种疫苗的以色列公民的数据，但该论文尚未得到独立专家的审查。以色列卫生部长也尚未确认数据。它尚未在专业杂志或所谓的预印服务器上发布，起初他有以色列记者Nadav Eyal在日报《 Yedioth Aharonoth》中报道了此事。
 
-那么，特鲁多为什么不有力地抵制北京政府以捍卫和保护加拿大呢？为什么自由党无视情报官员的急迫警告和公众对向中共国采取行动的呼吁？特鲁多在听谁的话？
+**原文链接：**[„Geimpfte haben dann Anspruch auf Wiederherstellung des Status quo“](https://www.welt.de/politik/deutschland/article226815659/Corona-Impfung-Dann-gibt-es-keinen-Grund-mehr-Grundrechte-einzuschraenken.html)
 
-\*注：加拿大议会已于当地时间2月22日下午投票通过将中共对维吾尔的暴行列为种族灭绝的议案，特鲁多及其内阁弃权3。
-
-**评：**
-
-该文逐一列举了当前加拿大政府与中共勾兑，可谓义正言辞。华为5G、中共疫苗、生物实验、亲共使臣、联合军演，各类耳熟能详的恶行竟在加拿大得了“满贯”，不得不令人心生疑虑。
-
-所幸，加拿大安全情报局长的直言不讳以及议会对中共种族灭绝案的投票通过暗示了由内部高层所涌现的清醒之声，与现任政府的作风形成鲜明对比。中共及其帮凶的狰狞面目正在各界的觉醒中加速曝之于众。
-
-原文链接：
-
-[https://financialpost.com/diane-francis/diane-francis-china-is-our-enemy-when-will-trudeau-see-that](https://financialpost.com/diane-francis/diane-francis-china-is-our-enemy-when-will-trudeau-see-that)
-
-相关链接：
-
-1 [https://ottawacitizen.com/opinion/gurski-if-the-head-of-a-spy-agency-speaks-publicly-shouldnt-we-listen](https://ottawacitizen.com/opinion/gurski-if-the-head-of-a-spy-agency-speaks-publicly-shouldnt-we-listen)
-
-2 [https://financialpost.com/diane-francis/diane-francis-questions-mount-over-trudeaus-vaccine-dealings-with-china](https://financialpost.com/diane-francis/diane-francis-questions-mount-over-trudeaus-vaccine-dealings-with-china)
-
-3  [https://gnews.org/zh-hans/927460/](https://gnews.org/zh-hans/927460/)
-
-责任编辑：比卡丘
-
-发布：比卡丘
-
-+2
+0

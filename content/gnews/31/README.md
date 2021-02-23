@@ -1,23 +1,101 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】22/02/2021 全世界目前只有两个话题：共产党制造的病毒和何时把美国引爆
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/928860/)
+## 【香草诗词汇】乡野漫游
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/928921/)
 
-**Cantonese工作室**
-**播报：【美国小李】 资料收集：【极寒将至】【美国小李】【陆柒陆捌】【闪电】 视频制作:   【Shawn 】海报制作：【Miranda米线】上传:【星星】**
-摘要:
+作者：木白；上传：雪梨
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-78.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-49.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/3-32.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/4-43.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/5-36.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/6-43.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/7-18.jpg)
+
+
+**檫木树**
+
+早春，点醒沉默的枝丫，
+
+在烂岩窠那头种下白月光。
+
+远处的鞭炮湮没于狗吠。
+
+轻的风在刮。
+
+瘦弱的木房子梳理着穷根和漏檐。
+
+当松鼠的尾巴擦亮树林，
+
+檫木树点起了烟，催熟轻的云朵——
+
+飘荡在乡野，黄花朵朵，踩着轻的舞步。
+
+窗子打开新春的第一枝花和老的烟斗。
+
+你解开了大地的声音。轻如烟，如光。
+
+2021年2月17日
+
+注解：檫木开花于早春。花为黄色。
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1333-【香草诗词汇】乡野漫游-1.jpg)
+
+
+
+**乡野漫游**
+
+走着走着就到了坟头——无字的墓碑。
+
+走着走着就到了山头——无尽的枯草。
+
+走着走着就到了云的另一头——无声的风。
+
+走着走着，两三人家——无炊烟，无流水。
+
+走着走着就到了太阳的尽头——无言的黄昏。
+
+2021年2月17日
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1333-【香草诗词汇】乡野漫游-2.jpg)
+
+
+
+**烂岩窠**
+
+烂岩窠，在村里最穷的山头；
+
+烂岩窠，不适合种粮食；
+
+烂岩窠，是村里人骂人的话。
+
+它们无用而多余，像极了写诗和写诗的人。
+
+敬畏天地，向顽石鞠躬；
+
+敬畏先人，向顽石鞠躬。
+
+一块顽石棱角分明，在风吹日晒中更锋利。
+
+一群顽石臭味相投，千万年挺着刚硬的脊梁。
+
+烂岩窠，不毛之地，却是顽石的天堂。
+
+没有农药化肥的污染，怀着同一种纯真。
+
+烂岩窠吞下飞鸟落下的屎，以苔藓为裟，
+
+于天地间禅定；是庙宇，是修行，是无字的诗。
+
+2021年2月17日
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
 0

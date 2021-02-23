@@ -1,81 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】春节是一场盛大的赌博
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/928958/)
+## 西班牙中共病毒疫情简报
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/929036/)
 
-作者：木白；审核/上传：雪梨
-
-![]()![](https://gnews.org/wp-content/uploads/2021/02/MOS1334-【香草诗词汇】春节是一场盛大的赌博.jpg)
-
-用一桌麻将忘记焦虑
-
-用一副牌醉生梦死
-
-同样的麻木，从工厂里疲惫身躯
-
-到牌桌上的敏捷身手
-
-从年头到年尾
-
-从肉体到精神
-
-被生活踩在脚下
-
-用麻将开口说话
-
-滔滔不绝，还需要一口酒
-
-满口酒话，心头苦水泛滥于潜意识
-
-偶尔用炫耀的口气攀比隐藏的自卑
-
-更多的是沉默，蹲坐一团不如狗
-
-几代人，从农民变成了农民工
-
-几百年，男人们剃头、磕头、扎辫子
-
-几千年，从刀板上的鱼肉变成防火墙里的鱼肉
-
-这个春节
-
-从老到小都赌、赌、赌
-
-赌得一炮翻身
-
-赌不出雾霾与愚昧的牢笼
-
-赌得一夜暴富
-
-赌不过下一夜的江湖
-
-赌得一张明天的大王
-
-赌不出世代为奴的悲惨命运
-
-这个春节
-
-大街小巷，村里村外
-
-老百姓们正用苦难的手自摸出高潮
-
-从肉体到精神
-
-这是唯一可以宣泄的语言
-
-滚烫的岩浆在将爆发的火山里翻滚
-
-2021年春节
+- 编辑 审核：Victor Torres
+- 翻译 作者：gokuabuela
+- 发稿：Ranting
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+**西班牙2021年2月23日电/西喜社——**据西班牙先锋报2月23日报道，西班牙已经发现了一例尼日利亚中共病毒变种，已经确认898例英国变种。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+西班牙面临着战胜第三波疫情的决定性时刻，将14天内累计发病率降至每10万居民252例，非常接近极度风险阈值。
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+本周四，首都马德里的万达大都会体育中心将启动为本地警察，消防员，以及专业民防人员的疫苗接种计划。
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+加泰罗尼亚自治区的病毒感染速率在上升，今天的感染速率是0.99， 比昨天上升了400分之一。
+
+**新闻来源：[西班牙先锋报](https://www.lavanguardia.com/vida/20210223/6258191/coronavirus-espana-restricciones-contagios-fallecidos-vacunacion-tercera-ola-ultimas-noticias-hoy-en-directo.html)**
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
 
 0
