@@ -1,130 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 汤姆‧克顿议员报告（二）——《战胜中共国：针对性脱钩与经济持久战》
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/928136/)
+## 【五月花报】美国怪现象：从CCP疫情保险欺诈看道德的缺失
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/928395/)
 
-五月花写作组 ｜ 翻译：mutanhuokaorou ｜ 校对：jiasen ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/02/汤姆克顿V2.jpg)Beat China: Targeted Decoupling and the Economic Long War 战胜中共国：针对性脱钩与经济持久战
-* * *
+五月花写作组 ｜ 生物医药部：罗斯林抹大拉 ｜ 编辑：jamie(文胤) ｜ 发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-23-at-4.44.57-PM.png)图片来源：dentalsleeppractice.com
+美国是全球保险业最发达的国家，而欺诈、诈骗骗保的案件也自然频频发生。据FBI官方网站报道，美国保险业由7,000多家公司组成，每年收取的保费超过1万亿美元，而非健康保险类的欺诈金额则高达400亿美元。2005年8月下旬，在卡特里娜飓风在美国墨西哥湾沿岸登陆后，美国政府用于灾区重建的800亿美元中，保险欺诈就占据了60亿美元。
 
-### 往期链接：
+而据美国卫生保健反欺诈协会保守估计，医疗保健欺诈每年给国家造成的损失约为680亿美元，占该国2.26万亿美元医疗保健支出的3％。其他机构则估计医疗保险欺诈数字可高达年医疗保健支出的10％，即2300亿美元。根据密歇根州的《医疗保健虚假申报法》（Health Care False Claims Act），医疗保健欺诈属于重罪，最高可处以四年监禁，5万美元罚款和医疗保险损失。《健康保险隐私及责任法案》（Health Insurance Portability and Accountability Act，HIPAA）中规定，医疗保健欺诈联邦刑事犯罪。
 
-[汤姆‧科顿议员报告序言——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/918314/)
+2020年初开始的CCP病毒疫情给美国保险欺诈人群、医疗人员及律师又带来了一次骗保的机会。按照著名犯罪学家Donald Cressey博士1953年推出的欺诈（舞弊）三角理论——三个关键要素：动机/压力，机会和合理化，如果同时存在，则会促发更多的欺诈行为。疫情带来的经济衰退、工作机会减少或丧失，会导致民众的财务危机，从而驱动某些训练有素的医疗人员及律师联合患者，向保险公司提出虚假或过度赔付的要求。
 
-[汤姆‧克顿议员报告（一）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928067/)
+美国司法部网站公布了多起有关CCP病毒欺诈有关的案件，其中不乏好莱坞的高层利用疫情诈骗贷款的丑闻。令人沮丧的道德诈骗问题，引起了美国当局诸多州、联邦政府和监管部门的重视。在CCP病毒大流行之后，亚特兰大新设立了一个州际跨部门的工作组，致力于打击失业保险（UI）福利欺诈。此工作组正在支持各调查机构并鼓励公民积极举报可疑的UI欺诈。
 
-* * *
+佐治亚州中区美国检察官查理·皮勒 (Charlie Peeler)表示：“欺诈者实际上是在窃取我们目前最困难的邻居的福利，从而破坏失业保险体系，这是不合理的。我希望迅速查明诈骗者，并将他们绳之以法，同时保护失业救济金制度的完整性。”
 
-### **MITIGATING THE COSTS OF DECOUPLING**** **
+“美国特勤局很荣幸能与众多致力于消除这些欺诈和身份盗窃计划的机构合作。”特勤局亚特兰大总部负责特工史蒂文·R·贝塞尔表示。在佐治亚州和阿拉巴马州负责国土安全调查（HSI）的卡特里娜·W·贝格（Katrina W. Berger）表示：“HSI亚特兰大及其合作伙伴致力于追捕这些犯罪分子，他们窃取了为帮助我们社区居民而准备的资源和利益。”
 
-### **降低脱钩成本**
+以佐治亚州的反欺诈行动为例，佐治亚州劳工局、调查局（GBI），检察长办公室，联邦调查局，美国特勤局，国土安全调查局（HSI），IRS刑事调查，美国邮政检查局、社会保障管理局监察长办公室等均加大了对CCP病毒欺诈行为的查处力度。
 
-Targeted decoupling with China will impose up-front costs and create risk, but government policy can soften the disturbances associated with decoupling. These policies will place the country on a stronger footing over the long term.
-
-与中国针对性的脱钩将增加前期成本并带来风险，但政府政策可以缓解与脱钩相关的阵痛。从长远来看，这些政策将使国家站稳脚跟。
-
-• Open new markets to American goods and negotiate high-standard, bilateral trade agreements that prioritize American jobs and exports
-
-• 为美国产品开放新市场，并谈判制定高标准的优先考虑美国的就业和出口的双边贸易协定
-
-• Use the U.S. Agency for International Development, International Development Finance Corporation, and Export-Import Bank to connect U.S. firms with new customers, migrate supply chains out of China, and combat Chinese attempts to dominate sales of key technology
-
-• 通过美国国际开发署，国际开发金融公司和进出口银行将美国公司与新客户联系起来，将供应链移出中共国，打击中共国试图主导关键技术销售的行为
-
-• Reclaim international institutions and standards-setting bodies from Chinese influence where possible, and establish new groups comprised of U.S. partners when existing institutions cannot be reclaimed
-
-• 尽可能夺回受中共国影响的国际机构和标准制定机构，并在无法收回现有机构的情况下建立由美国合作伙伴组成的新团体
-
-• Conduct a top-to-bottom regulatory and tax-code review to accelerate the development of advanced technologies and regain U.S. leadership in strategic industries where China has the advantage
-
-• 进行自上而下的监管和税法审查，以加快先进技术的发展并重新获得美国在中共国具有优势的战略性行业中的领导地位
-
-• Deepen the U.S. science, technology, engineering, and mathematics talent pool by training American engineers and specialists
-
-• 通过培训美国工程师和专家来深化美国的科学、技术、工程和数学人才库
-
-• Increase federal support for R&D to Cold War levels and pair this surge in R&D funds with strict controls to ensure American research does not flow back to China
-
-• 将联邦对技术研发的支持增加到冷战水平，并将这种技术研发资金的激增与严格的监管相结合，以确保美国的研究不会回流中共国
+CCP病毒不仅从肉体上摧毁人类，更从精神层面撼动了西方的文明。疫情期间的保险诈骗案件，恰恰体现了资本以逐利为唯一目的，无视道德和真相的本质。CCP病毒践踏了道德和社会公平的制度，造成了人与人之间相互伤害的恶果。新中国联邦用真相唤醒世人，希望世界快快觉醒，避免付出更多的血泪代价，尽快重归文明之路。
 
 * * *
 
-## **FEDERAL GOVERNMENT LEADERSHIP**** **
+### 参考链接： 
 
-## **联邦政府的领导权**
+[密歇根州蓝十字会](https://www.bcbsm.com/health-care-fraud/fraud-statistics.html)
 
-### **A FLAWED STATUS QUO **
+[Insurance Fraud](https://www.fbi.gov/stats-services/publications/insurance-fraud)
 
-### **有缺陷的现状**
+[Insurance fraud to spike due to COVID-19](https://www.insurancebusinessmag.com/nz/news/breaking-news/insurance-fraud-to-spike-due-to-covid19-233983.aspx)
 
-Our government failed before 2017 in most cases to engage and fight the economic long war with China for several reasons:
+[Unemployment Insurance Relief During COVID-19 Outbreak](https://www.dol.gov/coronavirus/unemployment-insurance)
 
-绝大多数案例显示，我们的政府在2017年之前未能与中共国打经济持久战，原因如下：
-
-⬛ Elected leaders and political appointees before the Trump administration failed to recognize and lead in the face of Beijing’s challenge, and so the federal bureaucracy did not work to counter China’s economic strategy
-
-⬛ 川普政府之前的领导人和委任官员未能认识到并领导来自北京的挑战，因此联邦官僚机构没有采取措施来对抗中共国的经济战略
-
-⬛ Powers vital to economic competition with China are vested in large organizations that focus primarily on economic development and corporate interests, not national security and strategic competition
-
-⬛ 与中共国的经济竞争至关重要的决策权被赋予了一些大机构，它们主要关注的是经济发展和企业利益，而不是国家安全和战略竞争
-
-⬛ Five separate government entities are responsible for U.S. export-control licensing, while some of these licensing entities—particularly the Bureau of Industry and Security—are buried within organizations hostile to the aggressive use of export controls
-
-⬛ 五个不同的政府部门负责美国的出口管制许可，而其中一些许可管控实体—尤其是工业和安全局—夹在某些对激进的出口管制怀有敌意的机构里
-
-⬛ CFIUS, until recently, suffered from serious loopholes
-
-⬛ 直到最近，美国海外投资委员会（CFIUS）仍存在严重漏洞
-
-⬛ The government has paid insufficient attention to America’s declining industrial base and reliance on foreign supply chains
-
-⬛ 政府对美国不断下降的工业基础和对外国供应链的依赖没有给予足够的重视
-
-⬛ Oversight of the U.S. research enterprise is inadequate
-
-⬛ 对美国研究事业的监督不足
-
-The federal government is unprepared to compete with China because it is organized in a haphazard manner that is damaging to national security.
-
-联邦政府没有做好与中共国竞争的准备，因为联邦政府的组织随意无秩序以至于危害到国家安全
-
-* * *
-
-### **A PATH FORWARD **
-
-### **前行之路**
-
-The government should make the following organizational changes to better position itself for the economic long war:
-
-政府应进行以下组织变革，以便使自己处于有利位置应对经济持久战：
-
-• Consolidate export-control licensing authorities across the federal government into a single licensing agency within the State Department
-
-•将联邦政府各部门的出口管制许可证发放机构合并为国务院内的单一许可证发放机构。
-
-• Give the Secretary of Defense a new role, Deputy Chair of CFIUS, to ensure that Treasury addresses national-security concerns raised by Defense and other organizations on the committee
-
-•赋予国防部长新角色–海外投资委员会副主席–以确保财政部能够解决国防部及委员会中其他组织提出的国家安全问题
-
-• Charge the Department of Commerce with continuous analysis of the industrial base and supply chain, resulting in an annual report on the state of America’s industrial base and dependency on key foreign inputs, as well as contingency plans to insulate the United States against supply-chain disruptions
-
-•要求商务部对工业基础和供应链进行持续分析，每年给出关于美国工业基础状况和对国外关键进口物的依赖情况，以及使美国免受供应链断裂影响的应急方案
-
-• Empower the Department of Commerce to support the regeneration of U.S. manufacturing in key sectors
-
-•授权商务部支持关键部门的美国制造业的复兴
-
-• Establish a permanent interagency committee to oversee the security of the U.S. research enterprise, coordinate federal funding of R&D, and create and enforce rigorous insider threat and foreign influence policies
-
-•建立一个常设跨机构委员会来监督美国研究事业的安全，协调联邦政府对研发的资金资助，制定并执行严格的管控内部威胁和外国影响的政策
-
-* * *
-
-### 原文链接：
-
-[Beat China: Targeted Decoupling and the Economic Long War](https://www.cotton.senate.gov/imo/media/doc/210216_1700_China%2520Report_FINAL.pdf)
+[Unemployment insurance task force targets fraud during COVID pandemic](https://www.justice.gov/usao-ndga/pr/unemployment-insurance-task-force-targets-fraud-during-covid-pandemic)
 
 * * *
 
