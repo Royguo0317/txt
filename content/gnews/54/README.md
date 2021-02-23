@@ -1,40 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【五月花报】美国怪现象：从CCP疫情保险欺诈看道德的缺失
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/928395/)
+## 【五月花评】CCP病毒疫苗相关欺诈事件带给我们的立法思考
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/928437/)
 
 五月花写作组 ｜ 生物医药部：罗斯林抹大拉 ｜ 编辑：jamie(文胤) ｜ 发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-23-at-4.44.57-PM.png)图片来源：dentalsleeppractice.com
-美国是全球保险业最发达的国家，而欺诈、诈骗骗保的案件也自然频频发生。据FBI官方网站报道，美国保险业由7,000多家公司组成，每年收取的保费超过1万亿美元，而非健康保险类的欺诈金额则高达400亿美元。2005年8月下旬，在卡特里娜飓风在美国墨西哥湾沿岸登陆后，美国政府用于灾区重建的800亿美元中，保险欺诈就占据了60亿美元。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-23-at-4.59.15-PM.png)图片来源：[http://i1.sinaimg.cn/cj/2015/0608/U5404P31DT20150608215212.png](https://www.sinaimg.cn/cj/2015/0608/U5404P31DT20150608215212.png)
+2020年12月22日，美国司法部官网刊登了一则有关CCP病毒相关的欺诈通告。通告内，伊利诺伊州北区美国检察官约翰·R·劳斯（J. R. Lausch，Jr.）警告了一个与CCP病毒疫苗有关的欺诈计划，他警告称诈骗者经常使用电话推销、短信、社交媒体发帖和上门拜访等方式进行欺诈，通过发布虚假的疫苗信息或提前让民众注射疫苗来换取美国公民的支付、社会安全号码、病例等个人信息。
 
-而据美国卫生保健反欺诈协会保守估计，医疗保健欺诈每年给国家造成的损失约为680亿美元，占该国2.26万亿美元医疗保健支出的3％。其他机构则估计医疗保险欺诈数字可高达年医疗保健支出的10％，即2300亿美元。根据密歇根州的《医疗保健虚假申报法》（Health Care False Claims Act），医疗保健欺诈属于重罪，最高可处以四年监禁，5万美元罚款和医疗保险损失。《健康保险隐私及责任法案》（Health Insurance Portability and Accountability Act，HIPAA）中规定，医疗保健欺诈联邦刑事犯罪。
+美国律师劳斯说：“很不幸，无情的罪犯利用民众急于接受CCP疫苗而毫无戒备的状态展开欺骗行动。”“任何主动提出有关CCP疫苗价格折扣或其他利益的情况均可能是骗局。”
 
-2020年初开始的CCP病毒疫情给美国保险欺诈人群、医疗人员及律师又带来了一次骗保的机会。按照著名犯罪学家Donald Cressey博士1953年推出的欺诈（舞弊）三角理论——三个关键要素：动机/压力，机会和合理化，如果同时存在，则会促发更多的欺诈行为。疫情带来的经济衰退、工作机会减少或丧失，会导致民众的财务危机，从而驱动某些训练有素的医疗人员及律师联合患者，向保险公司提出虚假或过度赔付的要求。
+为了获得有关疫苗的准确信息，劳斯律师鼓励公众直接与其医疗保健服务方联系。美国律师劳斯（Lausch）还提供了其他提示，有助于保持警惕和避免被欺诈：
 
-美国司法部网站公布了多起有关CCP病毒欺诈有关的案件，其中不乏好莱坞的高层利用疫情诈骗贷款的丑闻。令人沮丧的道德诈骗问题，引起了美国当局诸多州、联邦政府和监管部门的重视。在CCP病毒大流行之后，亚特兰大新设立了一个州际跨部门的工作组，致力于打击失业保险（UI）福利欺诈。此工作组正在支持各调查机构并鼓励公民积极举报可疑的UI欺诈。
+- 不要点击未知来源的链接。这些链接可能是试图将病毒下载到您的计算机或手机上。
+- 忽略在线或电话提供CCP病毒疫苗的优惠。实际的医疗保健提供者不会通过电话或在线向您索要银行卡支付或个人身份信息。
+- 切勿向陌生人汇款或透露您的社会安全号、生日、银行帐户或信用卡号。
+- 事实上某些疫苗可能会在美国免费提供，您无需支付任何费用就可以将自己的名字列在受益者清单上。
 
-佐治亚州中区美国检察官查理·皮勒 (Charlie Peeler)表示：“欺诈者实际上是在窃取我们目前最困难的邻居的福利，从而破坏失业保险体系，这是不合理的。我希望迅速查明诈骗者，并将他们绳之以法，同时保护失业救济金制度的完整性。”
 
-“美国特勤局很荣幸能与众多致力于消除这些欺诈和身份盗窃计划的机构合作。”特勤局亚特兰大总部负责特工史蒂文·R·贝塞尔表示。在佐治亚州和阿拉巴马州负责国土安全调查（HSI）的卡特里娜·W·贝格（Katrina W. Berger）表示：“HSI亚特兰大及其合作伙伴致力于追捕这些犯罪分子，他们窃取了为帮助我们社区居民而准备的资源和利益。”
+2021年2月2日，美国司法部再次更新其警告，称CCP病毒欺诈案件在全联邦范围内都在增加，欺诈模式甚至包含但不限于加密货币的勒索企图、诈骗者假冒国税局或财政部雇员对美国居民进行欺诈、虚假慈善机构骗取捐款、欺骗美国居民为莫须有的治疗进行付费、黑客盗取银行卡信息等。司法部所公布的诈骗手段种类繁多，诈骗人员可谓与时俱进，科技骗局、心理骗局、医疗骗局、虚拟币骗局、黑客技术骗局等，如雨后春笋般竞相亮相。
 
-以佐治亚州的反欺诈行动为例，佐治亚州劳工局、调查局（GBI），检察长办公室，联邦调查局，美国特勤局，国土安全调查局（HSI），IRS刑事调查，美国邮政检查局、社会保障管理局监察长办公室等均加大了对CCP病毒欺诈行为的查处力度。
-
-CCP病毒不仅从肉体上摧毁人类，更从精神层面撼动了西方的文明。疫情期间的保险诈骗案件，恰恰体现了资本以逐利为唯一目的，无视道德和真相的本质。CCP病毒践踏了道德和社会公平的制度，造成了人与人之间相互伤害的恶果。新中国联邦用真相唤醒世人，希望世界快快觉醒，避免付出更多的血泪代价，尽快重归文明之路。
+从公告内容很容易推断出，诈骗者在获得居民个人信息后，很可能与处于灰色地带的骗保职业律师联合，启动一系列的保险、社会补助诈骗流程的操作。美国诈骗行业猖狂的现状，令我们不得不思考如何在未来的新中国联邦国土之上，避免、杜绝诸多道德沦丧、民众互害的模式。在发达国家，无论收入和福利多么令民众满意，也无法杜绝人性恶毒的诈骗犯的客观存在。或许严刑峻法是在我们应对人性之恶时不得不面对的立法考量。全人类普遍存在的恶劣互杀、互骗、互相倾轧的现实，让新中国联邦的立法机构思考如何防患于未然时，绝无慈悲宽松的立法退路。
 
 * * *
 
 ### 参考链接： 
 
-[密歇根州蓝十字会](https://www.bcbsm.com/health-care-fraud/fraud-statistics.html)
+[COMBATTING COVID-19 FRAUD](https://www.justice.gov/coronavirus/combattingfraud)
 
-[Insurance Fraud](https://www.fbi.gov/stats-services/publications/insurance-fraud)
-
-[Insurance fraud to spike due to COVID-19](https://www.insurancebusinessmag.com/nz/news/breaking-news/insurance-fraud-to-spike-due-to-covid19-233983.aspx)
-
-[Unemployment Insurance Relief During COVID-19 Outbreak](https://www.dol.gov/coronavirus/unemployment-insurance)
-
-[Unemployment insurance task force targets fraud during COVID pandemic](https://www.justice.gov/usao-ndga/pr/unemployment-insurance-task-force-targets-fraud-during-covid-pandemic)
+[U.S. Attorney John Lausch Warns of Fraud Schemes Related to Covid-19 Vaccines](https://www.justice.gov/usao-ndil/pr/us-attorney-john-lausch-warns-fraud-schemes-related-covid-19-vaccines)
 
 * * *
 
@@ -44,4 +38,4 @@ CCP病毒不仅从肉体上摧毁人类，更从精神层面撼动了西方的�
 
 欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
-+1
++2
