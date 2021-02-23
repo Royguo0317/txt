@@ -1,41 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】日本世卫新冠溯源专家质疑中共冷链输入主张
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/925314/)
+## 谈谈阿克塞尔·斯普林格集团
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/927307/)
 
-作者：纽约香草山写作组 Wilson
+**作者：**Shuizhuyu **校对/发稿人: **Ting Guo
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1200px-Berlin_Kreuzberg_Rudi-Dutschke-Strasse_Axel-Springer-Hochhaus.jpg)图片来源：**维基百科**
+最近德国汉堡大学的纳米物理泰斗罗兰德·维森丹格，发表研究指出的有关新冠病毒来自于实验室事故的报道在不断的发酵！他的文章在德国的（Bild）图片报发表。这是个发行量极大的报纸，我们现在就来看看这个报纸出版公司的背景！
 
+**以下是维基百科的介绍**：
 
+该公司总部位于柏林的Axel Springer House，在全球40多个国家/地区拥有子公司，合资企业和许可证。  Axel Springer的业务分为广告平台（Classifieds Media），内容创建和融资（News Media），市场营销（Marketing Media）和服务/控业务四个运营部门。 在2019财年，约16,120名员工创造了约31亿欧元的合并销售额。 数字活动约占销售额的73％。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+Axel Springer SE是一个出版集团，旗下有多个多媒体品牌，例如Bild，Die Welt，Welt（电视台，以前是N24），Business Insider或Fakt。 自2020年以来，该公司已由美国控股公司KKR控股。
 
+**评论：此次图片报登出的这篇病毒来源，由德国纳米物理学家打造的论文，就是扔出来一枚炸弹，颠覆了人们对病毒的普遍认知，引起足够大众的关注，并就病毒真相进行大讨论、大辩论。图片报虽然不属于严肃的主流媒体，但是有足够的发行量，报社属于德国几乎最大的媒体集团，旗下有严肃的媒体世界报，有媒体电视台。这样就在媒体界成为了一个突破口，正向郭先生所说的，病毒真相要向宗教界、文化界、知识界进军。虽然还需要一定的时间发酵，毕竟已经有核弹级的突破口！**
 
+**（免责声明：本文的简评只代表作者个人观点，跟GNEWS平台无关。）**
 
-[共同社](https://china.kyodonews.net/news/2021/02/28049c8cacd8.html)2月21日报道，作为WHO派遣的CCP病毒溯源国际专家组成员到访中共国的日本国立感染症研究所兽医科学部长前田健，日前接受共同社在线采访时透露，专家组成员对中共国主张的病毒通过冷链物流从国外输入的说法持怀疑立场。前田表示，“专家组的想法和中方有分歧”，呼吁有必要尽早展开进一步调查。
+[**维基百科链接**](https://de.wikipedia.org/wiki/Axel_Springer_SE)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/136.jpg)图源网络
-
-中共主张病毒可能附着在冷冻食品上从国外输入。专家组与中方9日在武汉召开记者会，表示冷链物流也包含在调查项目之中。但前田表示，专家组主流意见认为“可能性不太大”。专家组还认为，“应当调查活的哺乳类动物”类交易的信息，以进行调查追究。但该调查未能获得中共相关人士和商家的证言，并指出既然中方否认，专家组就很难掌握实际情况。前田还主张，应当调查以前在蝙蝠身上发现过类似病毒的云南省和临近该省的东南亚的动物。
-
-前田介绍，调查开始时没有集齐必要数据，“在时间上很着急”，后来感觉中方“没有隐藏（信息）的意图”，获得了已有信息的恰当提供。但他也表示：“想要了解的情况还有很多，也留有课题。”
-
-这位日本专家应该非常认真地看过闫丽梦博士两份无懈可击的CCP病毒科学报告。他在接受本国媒体采访时出言谨慎，但他肯定向日本政府提供了不一样的信息。因为，病毒溯源同样关乎日本民族的生死存亡！
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
-
-0
++3

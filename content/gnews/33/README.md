@@ -1,25 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 12家日本公司将终止涉及新疆强迫劳动的商业交易
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/925387/)
+## 郭文贵先生2月22日盖特视频内容
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/927373/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+笔录：左媛
 
-编辑   水星  上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/下载-25.jpg)[news.com.au](https://www.news.com.au/national/uyghur-people-imprisoned-pillaged-and-destroyed-for-natural-resources-in-xinjiang/video/28f8778b4994e4e7fd011eb61d91de99)
-日本共同社(Kyodo News)2月21日报道的一项调查显示，12家日本大公司已经制定了一项政策，将停止与从新疆穆斯林维吾尔族强迫劳动中获益的中共公司的商业交易。
+### **文贵先生2月22日第一次盖特内容**
 
-在美国和英国对来自新疆的棉花和其他产品实施进口限制后，日本企业面临的压力越来越大，要求它们对此类侵犯人权的行为采取行动。由于担心激怒中共，日本政府在解决这一问题上一直很被动。日本政府一直被批评制裁行动迟缓。
+[https://gtv.org/getter/6033dac61958515902366f93](https://gtv.org/getter/6033dac61958515902366f93)
 
-澳大利亚战略政策研究所(Australian Strategic Policy Institute)在去年的一份报告中指出，80多家全球公司直接或间接受益于新疆地区维吾尔族人的虐待性的强迫劳动。共同社(Kyodo News)就此问题对14家日本公司进行了调查。
+![](https://lh3.googleusercontent.com/N4VfBCxsvS0SsOEok8RDjdFWwGnklOeKOmhq3kScloYJOfSTw6C2ejI5SFa0Fb6SQzIdWN6GQbrc_nD-dptMvYRFIDkz3lKwCmNvPegzvD6l_HjXTL2q7kclTVvOW5WUjkI8Pmfb)
 
-除了拒绝置评的松下公司(Panasonic Corp.)以外，所有公司要么直接否认与涉嫌从强迫劳动中获益的公司有业务往来，要么表示无法核实针对其供应商的指控。
+身在国内的战友，你们知道发生了什么吗，惨大了。最简单的一句话，从来没见一个国家靠内乱靠战争发财的，所有的内斗内乱战争都是牺牲穷人和绝大多数老实人的安全、财产和生命为代价的。县里的市里的政治斗争就是继承毛共产主义的“与天斗与地斗与人斗其乐无穷”，经济和民生一塌糊涂，到处造假，到处刻薄老百姓，城管和警察简直成了压迫百姓的工具打手，当官的想尽办法弄个外国护照。欧盟希腊德国警告，来自中国的移民可能远远超过当年非洲移民对欧洲的冲击，相当于当年大逃港。中共能把中国治理好吗？能把中国治理得像欧洲美国吗？能让中国人过上更幸福美好的生活吗？给它一千年也不可能。
 
-在未来的政策方面，有12家公司回应说，它们将停止或考虑停止与被发现使用强迫劳工的商业伙伴的业务往来。这12家公司包括东芝公司(Toshiba Corp.)，优衣库休闲服装品牌运营商迅销公司(Fast Retailing Co.)、索尼公司(Sony Corp.)和日立公司(Hitachi Ltd.)。
+它对美国的威胁千万别停，把美国引爆了才好。全世界军事界文化界科学界只有两件事：1. 这是共产党制造的病毒对全世界全人类的威胁，2. 他们什么时候引爆美国打起来。这才是核心。全世界绝大多数人比共产党聪明，绝大多数人没有他们恶毒。“以毒灭共”不仅到了关键时刻，更是全人类生死存亡和如何生存的问题。国内真有老百姓认为病毒是美国造的，越这么认为越好，因为美国人要澄清，澄清的过程就是寻找真相的过程。世界上最需要真相的不是别人而是新中国联邦。全世界都看到了共产党病毒和疫苗对世界的伤害。现在共产党不谈疫苗了，因为疫苗成了定时炸弹。是爆料革命闫丽梦博士和路德社博士军团告诉大家不要出去，要戴口罩，要吃羟氯喹预防病毒，现在打疫苗是最危险最愚蠢的事情了。这就是爆料革命“唯真不破”带给大家的力量、机会和安全。共产党正在走向火葬场，走向死亡的路上，谁都拉不住。
 
-参考链接：
+准备好过好日子吧，新中国联邦正紧锣密鼓地准备着没有共产党的日子和在全世界拯救人类的计划当中。
 
-[https://english.kyodonews.net/news/2021/02/b25bf2a754e7-12-japan-firms-will-kill-business-deals-involving-uyghur-forced-labor.html](https://english.kyodonews.net/news/2021/02/b25bf2a754e7-12-japan-firms-will-kill-business-deals-involving-uyghur-forced-labor.html)
+一切已经开始！
 
-0
+
+
+### **文贵先生2月22日第二次盖特内容：**
+
+[https://gtv.org/getter/6033f2ab19585159023673f8](https://gtv.org/getter/6033f2ab19585159023673f8)
+![](https://lh6.googleusercontent.com/14jte2FaqZwQP5-O4I7wN-CevlMvgA08ccXE6JSTamvoiQdq0FDlgegBbug-Xjo2BBeParQ7a5w3-jwjCke-wTsnvfHq9VFV6J8GIbj5HiuumT8csZrlrFMn-jDxNI3CVYmX4Btz)
+刚才欧洲有人给我信息，说miles，我们特别感谢你，给我们介绍了几个特别有良知的中国人，来欧洲的有中共背景的科学家们，他们经过几个月的思考……他们知道其中部分的事实，是七哥介绍他们给欧洲几个政府和情报部门的，他们要考虑国内外家人和生意的安全利益是很正常的。这些人经过深思熟虑后，决定和欧洲政府和情报部门合作，他们有非常重要的情报证明共产党有长期的有计划的“灭白计划”，对西方进行种族大屠杀，就像杨娘娘（杨洁篪）和王毅说的“潘多拉盒子”。没有办法形容这些人的震撼，他们说，miles，如果前几年听到这些，世界真的不至于到今天的灾难。
+
+美国正在病入膏肓之中，正在“享受”被“3F”之中，让它再受点伤流点血，它会醒过来的。欧洲的醒来对灭共至关重要。但我再说一遍，灭共，永远不要指望任何第三方，一定是“以共灭共”，中国人灭共，新中国联邦人灭共，谁也挡不了。“以毒灭共”“以钱灭共”，当大家真正意识到它的奥妙时，就会感到无穷无尽的快乐。有良知的中国人和放下恐惧和个人利益无我以后与新中国联邦人一起自然而然联合灭共是没有悬念的，只是时间和多少人参与的问题。这就是爆料革命和新中国联邦的魅力和力量。灭共没你不行，因为每个人的积累和行动一次又一次在社交媒体上在事实面前会扩大会延续，星星之火越烧越旺。
+
+新中国联邦开启被共产党洗脑的14亿人的智慧，唤醒中国人的良知，让中国人找回自己的尊严和勇气，和体面的生活，这是每个人的权利。每一句话都很重要，因为会让中国人找回真正的自己。但我们对共产党，对欺民贼要狠，要狠到家。
+
+**观看郭文贵先生2月22日二次盖特视频：**
+
+盖特1：
+
+[https://gtv.org/getter/6033dac61958515902366f93](https://gtv.org/getter/6033dac61958515902366f93)
+
+盖特2：
+
+[https://gtv.org/getter/6033f2ab19585159023673f8](https://gtv.org/getter/6033f2ab19585159023673f8)
+
+
+
+![](https://lh4.googleusercontent.com/K34647tg4k0YPePceFBkZef7Id3nIkMSg0HiLS5EAuehbeK_O71TxosrmWzFhj-A_RUePa_UK0wYBklY4h08u65vN7Qo-Aq2LLAGwWLSLBB5H3mcm_nKFlhT9sTqOJhezByrf17b)
+
+
+
+**欢迎战友加入旧金山金喜准农场**
+
+[旧金山金喜准农场 GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+
+[旧金山金喜准农场 Discord](https://discord.gg/QQzQ79grEA)
+
+[旧金山金喜准农场 Twitter](https://twitter.com/sf_himalaya)
+
+【**发稿编辑**】：bingo
+
++7
