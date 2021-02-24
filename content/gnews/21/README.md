@@ -1,62 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 华春莹：为什么中国人不能用推特？
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/930389/)
+## 2/24/2021 财经快讯：美国和盟国构建去中国化技术供应链;汇丰将退出美国零售银行业务
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/930428/)
 
-*新闻来源：《香港自由社》| 作者：TomGrundy | 发布时间：2021年2月22日*
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2021-02-24_230329.png)图片来源：[https://www.afcea.org/](https://www.afcea.org/)
+**1. 美国和盟国将构建“去中国化”技术供应链**
 
-*翻译/简评：helloworld | 校对/审核：万人往 | Page：Daoiii*
+[美国总统乔·拜登（Joe Biden）最早将于本月签署一项行政命令，与台湾、日本和韩国等国家和地区合作，加快构建芯片和其它具有战略意义的产品供应链，以减少对中共国的依赖。该命令将制定国家供应链战略，力求构建不易被灾难或国家制裁影响的供应网络。此措施将集中在半导体，电动汽车电池，稀土金属和医疗产品上。美国将寻求与台湾，日本和韩国在芯片生产的合作，包括和澳大利亚在内的亚太经济体建立稀土伙伴关系，并与盟国共享供应网络信息，进行互补性生产。](https://asia.nikkei.com/Politics/International-relations/Biden-s-Asia-policy/US-and-allies-to-build-China-free-tech-supply-chain)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6O8pnRGr1pRFJ/images/9b10386a-2b58-427f-aede-91c1438469ac.png?asset_id=94356a6a-ef70-438f-9691-27b0d80a4d64&amp;img_etag=%22f42a5a0695b6c9c7ad47899563f54202%22&amp;size=2560)](https://spark.adobe.com/page/6O8pnRGr1pRFJ/images/9b10386a-2b58-427f-aede-91c1438469ac.png?asset_id=94356a6a-ef70-438f-9691-27b0d80a4d64&amp;img_etag=%22f42a5a0695b6c9c7ad47899563f54202%22&amp;size=1024)
+**2.汇丰银行宣布退出美国零售银行业务**
 
-***简评：***
+[伦敦（路透社）- 据知情人士透露，汇丰银行在去年关闭了80家分支机构之后，将出售或关闭其在美国剩余的约150家分支机构，退出美国零售银行业务，这一举动是该行战略调整的一部分。汇丰银行首席执行官诺埃尔·奎因（Noel Quinn）力求削减成本，增加手续费收入并继续向亚洲转移。该行将在周二发布其战略调整的计划，并发布预期因中共病毒造成暴跌的年利润。](https://finance.yahoo.com/news/hsbc-announce-exit-u-retail-121723619.html)
 
-**这是一个华春莹应该问中共国政府的好问题。七十年来，中共一直标榜自己代表中国人民。但是，中共垄断了所有发声渠道，为了维持自己执政党的地位，不惜对任何胆敢在网上发声的中国居民施加迫害。不仅如此，为了彻底破坏人民反抗的意愿，中共不惜制造和收买伪类、大外宣，并且在海外潜藏特务，不断钓鱼、搜捕所有寄希望于海外助力的人士，同时制造舆论，让海外特务“反向引导”，使仅剩不多的反抗者无意识加入“中国人无能、不会反抗、都是施暴者”的所谓的“同温层”，从而变成中共反向用于证明自己的统治正确性的“证明”。**
+**3.比特币，特斯拉股票，方舟创新ETF周二下跌**
 
-**所以，郭先生挺身而出，由战友们共同构建的爆料革命的意义重大。这是一个平台，能让有志之士为信仰凝结，在生命不受威胁的情况下，为消灭共产红魔发声，为向往自由的人发声，为新中国联邦发声，为让民族摆脱桎梏、以令人尊敬的姿态重回世界而发声。我们欢迎任何有志之士的加入，成为战友，无论是为了财富、共同构筑独立于中共之外的经济力量，还是将红魔的邪恶、暴行以及您对民族、对未来的美好展望与理想告诉众人，我们都无比欢迎您的加入、参与和发声。全世界亿万战友会把您的正义之声传向世界每一个角落。**
+[伦敦/纽约（路透社）- 比特币最近下跌11％，至48,207美元；特斯拉股价下跌了13.4％，跌幅回落至2.1％。以特斯拉为最大持股的方舟创新ETF收盘也下跌3.3％。在过去一周半，侧重于区块链，大麻和可再生能源等行业的交易型开放式指数基金（ETF）也有所下跌。投资者可能越来越担心高估的估值，同时近期美国国债收益率的上升可能也减弱了股票和其他相对高风险投资的吸引力。](https://www.reuters.com/article/us-usa-markets/bitcoins-steep-drop-drags-tesla-ark-etfs-along-for-the-ride-idUSKBN2AN0XI)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6O8pnRGr1pRFJ/images/3f8f7cfc-f813-47f3-b883-648c2850f817.jpg?asset_id=e3844d69-a3fd-4da6-9ced-73a25e157c62&amp;img_etag=%221976b6e0291edda48b15231473aaf630%22&amp;size=2560)](https://spark.adobe.com/page/6O8pnRGr1pRFJ/images/3f8f7cfc-f813-47f3-b883-648c2850f817.jpg?asset_id=e3844d69-a3fd-4da6-9ced-73a25e157c62&amp;img_etag=%221976b6e0291edda48b15231473aaf630%22&amp;size=1024)
+**4.美国钢铁短缺，价格飞涨**
 
-**爆料革命以及全世界为自由民主发声的平台，将向中共发出最强的反抗之音：中共根本不配代表有爱、有良知、有正义感、道德高尚的中国人民。中共的存在，只是对这个民族的侮辱和抹黑，其行为也只是在无尽地挑拨中国各民族之间、以及中国人民与世界的关系。无论是病毒还是种族灭绝，中共的行为已触犯众怒。等待中共的，只有被扫入历史垃圾堆的必然命运。**
+[芝加哥（路透社）- 根据美国普查局的数据，上个季度的未完成钢铁订单达到五年来最高水平，而库存则接近三年半以来的最低点。本月热轧钢基准价格升至每吨1176美元，是至少13年以来的最高水平。自去年八月以来，美国国内钢铁价格已经上涨了160％以上，这使钢铁消费者陷入了困境 – 是吸收还是转嫁增加的成本。同时，创纪录的高价也导致钢铁制造商的股价自去年八月以来上涨了65％。](https://www.reuters.com/article/us-usa-economy-steel-insight/u-s-manufacturers-grapple-with-steel-shortages-soaring-prices-idUSKBN2AN0YQ)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6O8pnRGr1pRFJ/images/47aa0061-4cda-449e-8d06-1dc3cf117cbe.jpg?asset_id=f7bf2bb8-56e7-4856-992a-67010239bb4a&amp;img_etag=%22b31c8f4907ffeb6c6f5a0bec71891ca9%22&amp;size=2560)](https://spark.adobe.com/page/6O8pnRGr1pRFJ/images/47aa0061-4cda-449e-8d06-1dc3cf117cbe.jpg?asset_id=f7bf2bb8-56e7-4856-992a-67010239bb4a&amp;img_etag=%22b31c8f4907ffeb6c6f5a0bec71891ca9%22&amp;size=1024)
+[美国国内钢铁价格比全球市场价格高出68％，即使征收25％的关税，进口也比从国内钢厂购买便宜。去年美国进口了18％的钢铁需求。一些分销商预计，如果国内市场仍然紧张，进口将在六月前增加。](https://www.reuters.com/article/us-usa-economy-steel-insight/u-s-manufacturers-grapple-with-steel-shortages-soaring-prices-idUSKBN2AN0YQ)
 
-***原文翻译：***
+**5.印度制药公司在当地寻求原料药，努力消除对中共国的依赖**
 
-# **在政府禁令情况下，中共国政府发言人问道：“为什么中国人不能使用推特或脸书…？”**
+[由于中印关系在去年六月的边界冲突之后日益恶化，印度制药公司正在寻求活性药物成分（API）的本地制造商，或者试图内部生产，以终止对中共国的依赖。行业数据显示，尽管印度因其大量的非专利药和疫苗生产能力而被誉为世界药房，但中共国在2019年提供了一半印度需要的API。印度几家制药公司的高管表示，他们正在积极努力减少对原材料的依赖。Biocon的供应主管Prasad Deshpande表示，该公司的目标是“有多少百分比的收入不依靠于中国”，这个指标在上一个季度几乎达到了50％。但他还表示，为了实现中共国一样的规模和速度，印度必须改善其基础设施并加快审批程序。](https://www.businesstoday.in/sectors/pharma/indian-pharma-goes-local-for-apis-strives-to-end-dependence-on-china/story/432130.html)
 
-***华春莹说：“我们只是增加了一个与其他国家的人分享信息和交流的渠道。”***
+**6.清华紫光集团债务危机**
 
-中共国外交部发言人华春莹问道，为什么外国人可以访问中共国媒体平台，但中国人却不能使用推特或脸书。
+[中共国芯片制造商清华紫光集团于2月18日宣布，由于流动性资金紧张，它可能无法偿还2021年3月25日到期的200亿元人民币债券的本金和利息。此外，花旗银行于2月4日提起诉讼，要求紫光集团及其旗下的紫光芯盛偿还2亿美元债的本金和利息。 2月3日，紫光芯盛宣布无力偿还10.5亿美元债务及本金，并且对2023年到期的7.5亿美元债务和2028年到期的2亿美元债务也无力支付利息。](https://www.epochtimes.com/gb/21/2/23/n12770710.htm)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6O8pnRGr1pRFJ/images/0fe423a7-44c9-49c8-a65d-4d27111e929a.png?asset_id=0151741b-738e-4a79-af58-eb198c89d29c&amp;img_etag=%22e1cf51a9110ad36307208c05da78e01b%22&amp;size=2560)](https://spark.adobe.com/page/6O8pnRGr1pRFJ/images/0fe423a7-44c9-49c8-a65d-4d27111e929a.png?asset_id=0151741b-738e-4a79-af58-eb198c89d29c&amp;img_etag=%22e1cf51a9110ad36307208c05da78e01b%22&amp;size=1024)华春莹。图片来源：中共国外交部。
+**7.自1993年以来香港股票印花税首次调升30%，香港股市暴跌**
 
-在上周四的新闻发布会上，《中国评论新闻》向华春莹询问了美联社的一篇报道。该报道发现，北京已经发起了“可能是全球首个数字虚假宣传运动”，以传播暗示新冠肺炎起源于美国的故事。该报告称：“自2019年年中以来，推特上的中共国外交账号数量增加了三倍多，而脸书上的账号数量也增加了一倍多。”
+[香港政府宣布自1993年以来首次提高股票交易印花税，引发广泛抛售，并使股票跌至五年多以来的最大跌幅。 香港基准恒生指数在当地时间下午1:41下跌2.6％。香港交易及结算所有限公司下跌7.8％。将印花税从0.10％提高到0.13％是香港预算中新措施的一部分。](https://www.bloomberg.com/news/articles/2021-02-24/hkex-plunges-most-since-2015-after-deleted-stamp-duty-report)
 
-对此，华春莹指责美国官员和媒体传播虚假信息和阴谋论，称他们“公然恶意诋毁和抹黑中国。”
+By 【金融组 – Kate】
 
-她说，许多西方官员都是用中共国的微博和微信。华春莹回应道：“外国人可以使用中国的社交媒体平台，为什么中国人不能使用推特或脸书？我们只是增加了一个与其他国家的人分享信息和交流的渠道。”
+素材搜集: Wendy、Kate
 
-## **多年的审查制度**
-
-推特和脸书在中共国已被封锁了十多年。2009年，这些网站消失于“防火长城”之后，中国公民曾因使用这些平台而面临起诉。
-
-同时，西方国家的政府（例如英国驻北京大使馆）抱怨说，他们的帖子已被从中共国社交媒体平台上删除。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/6O8pnRGr1pRFJ/images/490a6e02-322c-4962-8a33-a28cf6f69abe.png?asset_id=147f744a-8a33-4b22-af7c-c60a182b9244&amp;img_etag=%2227f3cc6808323e68d4fc00db2c17b56e%22&amp;size=2560)](https://spark.adobe.com/page/6O8pnRGr1pRFJ/images/490a6e02-322c-4962-8a33-a28cf6f69abe.png?asset_id=147f744a-8a33-4b22-af7c-c60a182b9244&amp;img_etag=%2227f3cc6808323e68d4fc00db2c17b56e%22&amp;size=1024)图片来源：Tom Grundy/香港自由社。
-
-去年，推特删除了与中共国政府一场针对香港民主运动和美国的虚假信息运动有关的逾17万个账户。
-
-**🔗[原文链接](https://hongkongfp.com/2021/02/22/why-cant-chinese-people-use-twitter-or-facebook-asks-chinas-spokesperson-amid-govt-ban/)**
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/6O8pnRGr1pRFJ/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/6O8pnRGr1pRFJ/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+校对: 小蚂蚁在行动
 
 0
