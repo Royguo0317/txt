@@ -1,23 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】23/02/2021:江习斗江家处于劣势，江家被迫远走新加坡
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/930693/)
+## 《文贵说》| 图片连载 （二）
+` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/930676/)
 
-**Cantonese工作室**
-**播报：【安妮】 料整理：【文依】【专业家庭煮妇】【闪电 】海报制作：【文绉绉】【小豆芽】【米线】 视频制作：【文德】上传:【星星】**
-摘要:
+- ![]()![](https://gnews.org/wp-content/uploads/2021/02/2-1-1.jpg)
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-79.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-51.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/3-34.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/4-46.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/5-40.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/6-46.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/7-20.jpg)
-0
+
+**爆料革命就是为了拯救14亿同胞！绝不是也不能成为某些人报私仇狭隘自私的江湖革命！更不能成为民族对立的利用工具！**
+
+**—— 郭文贵先生 2020年3月19日**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2-2-1.jpg)
+**我们要的就是防止世界变成中国人的敌人，海外的华人和中国人把这个变成中国人的病毒，谁要碰这个高压线，谁就是我们的敌人！！！谁要引向这个方向就是我们的敌人！！！**
+
+**—— 郭文贵先生 2020年3月20日**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2-3-1.jpg)
+**造谣文贵是双面间谍的媒体“迈阿密风云”，因无法应对文贵对他们的巨额诉讼赔偿的要求！现在宣布破产！我们不会放过一个陷害我们的坏人！也不会忘掉一个帮助过我们的恩人！**
+
+**—— 郭文贵先生 2020年3月20日**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2-4-1.jpg)
+**维奸和共产党是一伙的，他们的目的是一样的，就是获利、绑架、威胁，打折宗教、民族利益的幌子。**
+
+**—— 郭文贵先生 2020年3月21日**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-52.jpg)
+**共产党要给世界道歉！中国人是受害者，也要共产党的一个道歉，包括台湾、香港，包括新疆同胞。**
+
+**—— 郭文贵先生 2020年3月21日**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2-6.png)
+**我们一定要让美国让西方看到，我们爆料革命的集体行动，执着的行动，不达目的不罢休的团结意志。**
+
+**—— 郭文贵先生 2020年3月23日**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2-7.png)
+**我再一次请求战友，在生命危机，全人类处在巨大挑战的时候，无私，无我，不要狂妄，活着是你现在唯一想要做的。**
+
+**—— 郭文贵先生 2020年3月23日**
+
+
+
+- [***更多精美海报请点击G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4)
+
+
+
+
++4

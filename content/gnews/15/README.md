@@ -1,33 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西方各国在联合国人权论坛上严厉批评中共
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/931020/)
+## 美国务院称新疆发生的事情是种族灭绝，构成危害人类罪
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/931054/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+- 编辑 ：Victor Torres
+- 发稿：神奇四侠
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-24_21-59-19.jpg)[bbc.com](https://www.bbc.com/news/magazine-34592336)
-《国家邮报》2月24日转发了路透社记者的报道，继周三美国国务卿布林肯(Antony Blinken)在联合国人权理事会发言谴责中共对新疆残酷暴行后，中共对这一批评进行了强烈反击。
 
-联合国人权理事会上西方各国对中共西藏的人权问题，香港的暴力镇压和新疆维吾尔人的种族灭绝罪行等方面进行了严厉批评。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-中共驻日内瓦联合国大使陈旭在会议上表示，英国、欧盟、德国、美国、加拿大等国滥用安理会这个论坛，对中共进行无端指责，干涉中共内政，“我们坚决反对并断然拒绝这些企图。”
+**西班牙2021年2月23日电/西喜社—**
 
-英国外交大臣多米尼克·拉布(Dominic Raab)周一率先发出了西方的谴责，谴责了酷刑、强迫劳动和绝育。他说，这些行为正在新疆以“工业规模”针对维吾尔族穆斯林。
 
-同天，加拿大立法机构下议院通过了对中共种族灭绝罪行的认定，加拿大议员们通过了声明，承认“中华人民共和国正在犯下种族灭绝罪”。
 
-欧盟外交政策负责人博雷尔星期二呼吁中共允许联合国人权事务负责人巴切莱特“有意义地”访问并调查新疆维吾尔族穆斯林和西藏人民受到虐待的指称。
+> .[@StateDeptSpox](https://twitter.com/StateDeptSpox?ref_src=twsrc%5Etfw) Price: On genocide, we have been very clear that Secretary Blinken has determined that what has taken place in Xinjiang was genocide. We’ve also been very clear that it constitutes crimes against humanity. [pic.twitter.com/ZQARDjGCvG](https://t.co/ZQARDjGCvG)
+> — Department of State (@StateDept) [February 24, 2021](https://twitter.com/StateDept/status/1364622262704480262?ref_src=twsrc%5Etfw)
 
-联合国人权专家指出，至少有100万穆斯林被关押在新疆偏远的西部地区。中共否认有虐待行为，并说集中营是中共成立的职业培训中心，是打击极端主义的必需。
 
-陈旭狡辩称，“上述国家无视现实，编造和传播有关新疆、西藏和香港的谎言。”他指责西方国家应该努力改善他们自己的人权记录，特别批评西方国家海外军事干预导致了“无辜人民的反复杀戮”。陈旭说“他们应该解决自己的人权问题，如根深蒂固的种族歧视、贫富差距、社会不平等、不公正、警察暴行。”
 
-正如美国政府没有回应中共要求改善两国关系的呼吁时提到的，美国国务院发言人内德·普赖斯(Ned Price)指中共的诉求表露出中共的一贯作风，即回避了其掠夺性经济行为、缺乏透明度、未能履行国际协议以及压制普世人权价值的一切指责，反而习惯性地推诿责任，混淆视听、掩盖真相。
+美国国务院官方推特于2月24日发布推文：
 
-参考链接：
-
-[https://nationalpost.com/pmn/news-pmn/crime-pmn/china-rejects-growing-western-criticism-at-u-n-rights-forum](https://nationalpost.com/pmn/news-pmn/crime-pmn/china-rejects-growing-western-criticism-at-u-n-rights-forum)
-
-0
+美国国务院发言人普莱斯发言称，关于种族灭绝，我们已经非常清楚，布林肯国务卿已经确定新疆发生的事情是种族灭绝。我们也非常清楚，这构成了危害人类罪。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
++2
