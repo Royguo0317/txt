@@ -1,47 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美国将CCP病毒变异测序的关键基因分析提高了5500%
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/929568/)
+## 心明眼亮照妖镜
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/929351/)
 
-作者：纽约香草山写作组 Wilson
+![](https://lh5.googleusercontent.com/GoRfR_zcwrxudMU06vPnYOSBYQZXJFjg3atJvEmzu3B4xX4tpANIMmItAl1fIk9fh6k5bIVIFWTkQlJTEmcwlT--BMexMj06pGp509bhcILs_-z7UGXkMGzfKXZJVVQQFUZZUdKC)
 
+撰稿：Xingfoo
 
+九指妖的骗术，可谓是炉火纯青，非数十年的骗史和功力所不能达到的。她绝非是看到数额巨大的账款才起的邪念，而是早就处心积虑，比一般的伪类高明、隐蔽和胃口大得多，说她是妖精一点也不为过。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+她应该是在郭先生发起爆料革命初始就冲到最前面，以精湛的演技和看似真心的付出骗得郭先生的信任。这个在常人看来如此毫不迟疑、毫无恐惧的举动似乎并不正常，但在郭先生最需要助攻的时候，君子无法度小人之腹。郭先生即使阅人无数，也就难免被妖精和自己心态上的弱点所困。
 
+另外一点，九🈯️妖所使用的套路乃家传或民间或自己修炼所致，与共产党的套路差异不小，这才使对共产党套路轻车熟路的郭先生，在眼泪、高大上的词汇以及一种让人不加严防的无知表现的面前踉跄险倒。幸运的是，九🈯️妖暴露的时间真是天意，险些给造成爆料革命带来致命性的伤害。
 
+九🈯️妖在获得郭先生的信任和背书后，在共产党的搅合下更加如鱼得水，频频地挑拨离间，意图以信息操纵的方式隔离郭先生和其他战友的关系和联系，以获得一人之下万人之上的地位，然后再与其他受她控制的小妖们沆瀣一气，谋财害命。
 
-*[斯番时报](https://www.hindustantimes.com/world-news/us-steps-up-key-genetic-analysis-for-coronavirus-variants-by-5500-101614099902199.html)*2月23日报道，美国疾控中心主任罗谢尔·瓦伦斯基宣称，美国现在每周通过基因测序，分析约14,000例CCP病毒病例，以检测和监控传播速度更快的变异病毒。
+暂且不论九🈯️妖对VOG里8000战友的伤害，作为一名母亲，她伤害最大的不是别人，正是她的儿子—魏修竹。恶人有恶报，恶母的报应一定会让她的儿子承受比她更长时间的伤害，从孩童时期开始的恶根一旦种下，难以修复，她儿子将惶惶不可终日地在监狱或在去监狱的路上度过余生。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/8-15.jpg)图源网络
+发稿编辑： Candy
 
-她说，首次在英国、南非和巴西检测到的SARS-CoV-2病毒新变种似乎传播效率更高，而且这些变体都在美国找到了——这增加了美国了解它们如何传播的紧迫性。
+**欢迎战友加入旧金山金喜准农场**
 
-目前，美国对大约3%的病例测序以找到变异。瓦伦斯基认为，需要扩大测序规模。她透露，疾控中心与七个学术机构合作，每周对大约4000个样本进行测序，其它商业实验室则每周对大约6000个病例进行测序。预计，它们将进一步扩大产能。
+[旧金山金喜准农场 GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
 
-闫丽梦博士在最近推文中指出，“只有认清新冠病毒=CCP释放的超限生物武器，才是通向大流行最终解決之道的唯一途径！”，“记住，新冠病毒在实验室里被恶意增強了功能。所以，依照自然來源理论去寻找解決之道，是得不到终结大流行的有效疫苗或方法的。我在两份《报告》中已传递出了如何控制新冠大流行的真实信息——勿略这些信息=浪费时间！”
+[旧金山金喜准农场 Discord](https://discord.gg/QQzQ79grEA)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/6-45.jpg)
+[旧金山金喜准农场 Twitter](https://twitter.com/sf_himalaya)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/7-19.jpg)
-
-不知道新任美国疾控中心主任罗谢尔·瓦伦斯基是否已读过闫博士的两份《报告》。但可以确定的是，她正在启动的这场规模浩大的病毒基因测序工程，很难跟上CCP病毒变异的速度。因而，效果将相当有限。
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
+**（文章仅代表作者个人观点）**
 
 +1
