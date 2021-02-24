@@ -1,32 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 来往新澳的航班将试用数字疫苗接种护照
-` Himalaya Australia` [轉載自GNews](https://gnews.org/zh-hans/929753/)
+## 公安局长赴香港就职。港恐被开启新疆模式
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/929847/)
 
-翻译：云彩
+文章作者：台湾准农场zhong
+![](https://lh6.googleusercontent.com/69obxhPWoGOoj8cHhGiAo8dLa8hUkncD5sqW8y9ASlC5cMdpyRDQIsZMdYO5NfQvs7I0vGpdmMbtd0owTAbDDQReaesohyAyIKjvGj1Uf5Kr61dcHQ1Kw8A9-DdaBXm7eZsHCgTj)
+原广东中山市副市长、公安局长、原广东佛山市委常委、政法委书记，于2021/02/23，以国安公署局长身份参加香港潮属社团总会就职典礼。
 
-审稿：永远小学生 编辑：五饼二鱼
+香港潮属总会：
 
-2021年2月22日新西兰航空宣布将从4月开始在奥克兰和悉尼之间的航班上试用数字COVID-19疫苗护照。由国际航空运输协会开发的Travel Pass app的试用版将允许旅客创建一个与其护照相关联的“数字健康钱包”。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/16141304641.png)网络截图
-旅客进行测试或接种疫苗后，实验室将其信息安全地发送到Travel Pass app。接着该app根据他们希望访问的国家/地区的旅行要求对信息进行交叉检查。
+根据香港潮属总会官网内容显示，香港潮籍人士一百多万，潮属社团有一百多个，协调各社团之工作。目的为支持特区政府依法施政，建设繁荣香港。
 
-新西兰航空首席数字官詹妮弗•塞普尔（Jennifer Sepull）认为Travel Pass app就像是数字健康证书，可以轻松和安全地与航空公司分享。
+总会于近年更以「团结潮人、扎根香港、凝聚力量、携手并进」新理念，重订目标，重组架构，吸纳更多各界潮籍精英，凝聚各阶层力量，密切各属会之间的联系，加强地区基层工作。以新的面貌，更大力度推进各项工作，支持特区政府依法施政，为香港社会安定、经济繁荣作贡献，促进香港与外地的交往与合作，配合及支持家乡潮汕地区的发展。
 
-她说：“实际上，确保旅客出行安全是我们的首要任务之一。通过使用Travel Pass app，旅客可以确信机上的每个人都符合相同的政府健康要求。”
+根据该团体官网内容，重组香港架构、支持特区政府依法行政、促进香港与外地合作，皆是为支持「家乡潮州」。而02/23，由中共人手就职香港潮属社团总会要职，着手接替实行「落实特区政府依法行政、重组香港架构、凝聚香港各阶层力量」等目标，已经使香港被动开启新疆模式。
 
-“通过把你的健康凭证数字化信息存储在一个地方，不仅能加快办理登机的速度，而且还让非接触性旅行成为可能。”
-该航空公司表示，4月份Travel Pass app将试使用三周，到时会邀请机组人员和旅客下载app。同时，没有集中的数据库来保存旅客的个人信息，航空公司仅是谨慎地分享这些信息。
+香港一国两制，所谓港人治港，于昨日中共人手正式就职之后，正式、光明正大的幻灭。
 
-点评：CCP病毒肆虐全球一年多。至今，病毒来源于哪里还没有一个说法。大重启黑暗势力想借着所谓的控制疫情，推行CCP实施的那套健康码制度，控制全球普通民众的日常生活，让他们做现代奴隶。
+香港潮属总会，打着稳定香港社会的名义，实质促成香港社会的动乱。此外，所谓凝聚力量，恐是凝聚中共迫害港的力量。所谓重组香港架构，恐是解散香港残余的一点民主存在。所谓落实香港依法行政，恐是迫使香港依照不合理、不恰当、极权的法律行政。
 
-新中国联邦和爆料革命是全人类的希望。文贵先生在2月22日的视频中透露我们的战友在欧洲已经和欧洲的军事部门开展了全面的合作。以毒灭共进入新的时刻。
+而新疆现存的人道悲剧，已经在香港持续发生近两年。接着，台湾内部匪类若持续的帮助中共实质入侵，台湾的民主恐被民主自身摧毁，近一步的复制香港一国两制惨案在台湾发生。
 
-（本文纯属个人观点）
+以上内容仅个人推测，文章资料来源由会员提供
+![](https://lh6.googleusercontent.com/hMJV1ihfWSPUefoemS53koJr5XRSfdZgAQzXHqP0nnyzhHn3Rs79iU6aa6_p5AMpFz9Lbs2DAPW59LoEllfdZH5BUof5uISo1-jOm_HMMjAnUhCqdquIpU3BON3MxfDe-QjOV_i5)
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-原文来源：[https://www.abc.net.au/news/2021-02-22/air-nz-to-trial-vaccination-passports-for-flights-to-australia/13180860](https://www.abc.net.au/news/2021-02-22/air-nz-to-trial-vaccination-passports-for-flights-to-australia/13180860)
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-澳喜Logo.jpeg)
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+
+文章审核：zhong
+
+文章发布：Little Liu
 
 0
