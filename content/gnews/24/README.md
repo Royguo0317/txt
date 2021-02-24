@@ -1,63 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共产党绝对是有解药；跟共产党的战争，不管经济战还是火战，不可避免
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/930168/)
+## 喀秋莎新闻参考- 2021年2月23日(星期二)
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/930224/)
 
-新闻简述：在2021年2月6日的第二次盖特视频中，郭文贵先生提到最近世界经济和政治的动荡，以及在亚洲缅甸军事政变之后产生的“惧共效应”。与此同时，各种创新型经济和金融工具正在世界经济中心曼哈顿诞生。郭先生还说，如果拜登政府倾斜于中共经济，那么中共造的假，超发的货币和在全世界金融领域的蓝金黄将给人类的经济带来灾难性的打击。并且，为得到病毒的解药，世界与中共之间将有一段巨大的政治、外交和金融较量，最后可能以战争结束。无论是经济战争还是火战，都不可避免。
+俄罗斯莫斯科喀秋莎农场 土星
 
-**共产党绝对是有解药；跟共产党的战争，不管经济战还是火战，不可避免**
+编辑上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/图片1-59.png)
+一、新中国联邦新闻
 
-**CCP Must Have the Antidote; A War with the CCP Is Unavoidable**
+1.“路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=raHFg_RS634)、[晚间](https://www.youtube.com/watch?v=a1ST79I19LE)）:
 
-尊敬的战友们好！现在我正在纽约的中央公园，中央公园，给大家录一段。中央公园啊人很多今天，绝大多数人是戴口罩的，但也有人不戴口罩，拉家带口，拉家带口，在一个自由广场的山丘上，现在看来这个美国的自由已经基本上结束了。
+Ⅰ. 前国务卿迈克·蓬佩奥和其幕僚余茂春先生在《华尔街日报》发表专栏文章说，进行病毒研究的中共国实验室对世界构成了威胁，应该要求中共政府对全球冠状病毒的大流行负责。这是病毒是“现代基因武器”的概念第一次通过美国左派媒体大本营发声，代表了美国左派核心利益集团对病毒为中共生物武器概念的认可。文章开启左派媒体对美国民众进行了生物武器的启蒙宣传，预计后期将有更多和更深入的内容跟进。
 
-Dear brothers-in-arms, I am broadcasting from Central Park in New York City right now. There are lots of people in Central Park today. The majority of people are wearing a mask, but there are still people not wearing masks. They’re with their family on a hill at the Freedom Plaza. It looks like the freedom in America has come to an end now.
+中共在世界卫生组织病毒调查事件中坚决否认实验室泄露说，反而做实了自己研究和释放生物武器。从文章内容看，爆料革命所曝光的中共教材《非典非自然起源和人制人新种病毒基因武器》中的“现代基因武器”概念已经进入美国情报界和军界。中共有制造完美犯罪的企图。
 
-那么从昨天到今天，虽然是一个在周末，全世界看到了世界上经济的动荡、政治的动荡，还有接下来下周所谓对川普总统的弹劾，这种对市场带来的各种不确定的因素。特别在亚洲，缅甸军事政变之后，在亚洲产生的“惧共效应”，每个人都害怕共产党。然后经济的不确定性，还有一个现在整个 CCP 病毒，整个对全世界经济和明年的整个经济市场、金融市场，这种带来的不确定性，在金融市场发酵。
+Ⅱ. 中共驻加拿大大使馆发言人就加拿大联邦众议院通过了涉疆动议予以严厉谴责。中共坚持要联合国来裁决其是否犯下种族灭绝罪，这是中共玩弄“完美犯罪学”的把戏。加拿大国会的认定是其内部定义，会对中共与加拿大各方面的合作将产生重大影响，也威胁到中共在加拿大的资产。加拿大同时也是英联邦和五眼联盟的成员，这些国家情报共享，接下来其他国家将跟进。中共首次提出要用国际法来裁决自己罪行，是给自己挖下一个巨坑。中共就是一个非法、非正统、非正义，且蓄谋设计连环完美犯罪的跨国犯罪组织。
 
-Although it still is the weekend, from yesterday till today, everybody has seen the turbulence in the world’s economy and politics, followed by the so-called impeachment of President Trump next week, all bringing different uncertain factors to the market. Particularly In Asia, due to the “fear of the CCP” effect arising in Asia after the Myanmar coup, everyone is scared of the CCP. And there is the uncertainty in the economy. The uncertainty that the CCP virus brings to the economic market and financial market of the whole world this year and next year has been fermented in the financial market.
+III. 金灿荣近期接受《政委点金》节目采访时表示，美国不让14亿中国人过上好日子，打败它才是中共国唯一出路。绑架14亿中国老百姓是中共完美犯罪学的必须环节之一。一直以来，中共无法解释其政权的合法性，妄图利用发展来解决其正义性，利用14亿人民解决其合法性，再以正义性和合法性来解决其正统性。金灿荣此番发言也印证，习近平将坚持对抗到底的策略。
 
-这几天的整个金融板块实在是太疯狂了，特别是在昨天星期五，你可以看到在西方金融市场上有几个从来没有的变化。严格讲这个没有信心的这种状态，远远超过1/20以前，特别是对共产党的金融、经济，大家更感觉得了恐惧，因为现在共产党不仅要搞病毒，在全世界要输出革命，还在全世界他正在搞着中国共产党为标准的叫做“CCP经济”。所以说从昨天到现在，美国这些大佬们，基金大佬们，包括有“沼泽地”能力的这些人，都在想下一周美国川普总统的弹劾会发生什么。
+2. 美国总统拜登财政部副部长的提名人沃利·阿德耶莫（Wally Adeyemo）周二在参议院确认时表明，美国愿意使用川普总统时代的投资禁令来惩罚北京违反国际贸易规则的行为。他说，“至关重要的是，我们必须使用财政部的工具对中共国所采取的与国际法不符的行为负责，中共这些行为将使我们的国家安全处于危险之中。”
 
-The whole financial sector has been crazy in the last few days, especially yesterday on Friday when you saw several changes that had never occurred in the financial market in the western world. Strictly speaking, this state of lacking confidence is much worse than before January 20. In particular, people are more fearful of the CCP’s finance and economy, because the CCP does not only want to produce viruses and export revolution, but also promote the CCP economy, based on the CCP’s standards, to the whole world. Therefore, from yesterday till today, all the American giants, the foundation giants, including those that can drain the swamp, are thinking about what would happen with the impeachment of President Trump next week.
+3. 媒体23日报道，世卫组织泄露的文件显示，在中共病毒爆发的前八个月，中共在寻找病毒源头方面 “几乎没有做任何事情 “。世卫组织故意透露文件信息，被疑推卸替中共站台的责任。
 
-听说中共接下来下周要有一系列的经济措施，然后也看到了中共将接下来有一系列的对美、对欧的政策的公布，这都给这个市场带来了巨大的不确定性。所以说，真的是现在这个世界瞬息万变，政治经济完全在不确定下，在生存着。就是完全啥都不确定。当然了在这种情况下，投机主义者，还有一些沼泽地的大佬们都想办法尽快的割韭菜。而且割韭菜的速度，割韭菜的力度越来越大。所以说，你看到现在曼哈顿这个地方真的像个死城一样。那么整个曼哈顿是世界的经济中心，那么曼哈顿都这样，那你想想其它地方又能什么样哪？好不了啊。
+4. 白宫新闻秘书詹·普萨基周二表示，世界卫生组织（WHO）对病毒的调查并没有“深入调查发生的事情”，并呼吁对这种流行病的起源进行另一次“强有力的国际调查”。这是普萨基对中共外交部长王毅重新开启中美交流很好的回应， “我认为他的评论反映了北京倾向于对其掠夺性的经济行为、缺乏透明度、不履行国际协议以及压制普遍人权的行为逃避责任的持续模式。”
 
-I heard that the CCP will carry out a series of economic measures next week and that they will announce a series of policies for the US and Europe. These all bring huge uncertainties to the market. The world is changing every minute. Politics and economy both exist in uncertainty. Nothing is certain. In this circumstance, of course, opportunists and some giants of the swampland are all trying to cut their chives as soon as possible, and they are doing it harder and faster. So, you see Manhattan is like a dead city now. Manhattan is the economic center of the world, and if Manhattan is like this, what would other places be like? They can’t be good.
+5. 欧盟外交政策负责人约瑟普·博雷尔（Josep Borrell）周二表示，中共应该允许联合国调查人员 “有意义地进入”，以调查有关维吾尔族穆斯林少数民族人权受到侵犯的报道。
 
-但是在这种情况下，在纽约，在曼哈顿，现在正在有各种创新型的经济和金融工具正在诞生。所有这些金融工具和诞生，都是围绕着虚拟货币、数字货币、数字经济而诞生的。任何一种新的货币形式，金融形式诞生的时候，一定会出现伴随着巨多的诈骗案，全球性的、区域性的、城市性的诈骗案，所以大家还真得小心。
+6. 德国内政部在周二公布的一封致议会人权委员会主席Gyde Jensen的信中说，自从两年前德国爆发民主抗议活动以来，中共一直试图恐吓居住在德国的香港居民。预计这封将会施压总理默克尔，要求她在人权问题上对中共采取更坚定的立场。
 
-However, in this situation, a variety of innovative economies and financial tools are emerging in the New York City and Manhattan. The emergence of all these financial tools are around virtual currency, digital currency and digital economy. With the emergence of any new form of currency or finance, there will be a large number of fraud cases, on a global scale, regional scale or local scale. So, everyone should be careful about this.
+7. 美国众议员埃里斯·斯特法尼克（ Elise Stefanik）周二推出了一项法案，该法案将限制联邦政府对与中共国建立伙伴关系的高等教育机构进行资助，因为共和党人已经注意到美国纳税人的钱用于中共的孔子学院。
 
-另外一个，绝对是一个重新利益分布，财产、财富重新分配的一个新的时代，咱要抓住这个机会。据说 Facebook 的 Libra 虚拟货币，和美国的 SWIFT 都将有重大的政策的公布。同时听说，听说，很多美国现在过去支持拜登总统的，包括过去支持川普总统的，在某些领域现在是达成了一致的。就是美国接下来的两三年内，要把数字经济、虚拟经济，特别是华尔街最在乎的，即将爆发的大型的债务，变成新的金融杠杆，新的金融模式，让它生存下来，在这方面上达成了共识。一旦这个达成共识，美国的金融市场华尔街，我相信会像过山车一样，跟过山车一样，因为任何和中共的勾兑，以中共经济为标准为基础的经济，一定是不长远的，一定是假的。
+8. 七国集团在周二表示“坚决谴责”缅甸安全部队对示威者施加的暴力，并敦促他们“行使最大的克制，尊重人权和国际法”，“对没有武装的人使用实弹是不可接受的，必须追究对进行和平抗议的任何人使用暴力的行为的责任。”
 
-In addition, this is absolutely a new era where interests, assets, and wealth will be re-distributed. We must take this opportunity. It is said that Facebook’s virtual currency Libra and SWIFT of the US will announce major policy changes. In the meantime, I heard…I heard that those who supported President Biden in the past and those who supported President Trump in the past have reached agreement in some areas. That is within the next two to three years, they will change the digital economy, virtual economy, especially what the Wall Street cares about the most – the large debt that is about to explode, into a new financial lever, a new financial model, and let it survive. They have reached a consensus in this aspect. As soon as this consensus is reached, I believe that the American financial market, Wall Street, will be like a roller coaster, because any economy that has colluded with the CCP and is based on the standard of the CCP economy definitely won’t last long and is definitely fake.
+9. 美国总统拜登最早将于本月签署一项行政命令，与台湾、日本和韩国等国合作，加快努力建立对中共国依赖程度较低的供应链，主要考虑芯片和其他具有战略意义产品的供应。
 
-所以说全球现在，在这个新的美国拜登总统这个政府，现在已经跟中共有可能缓和的情况下，大家倾斜于中共经济了。这一旦倾斜于中共经济，就是中共造的假，超发的货币和在全世界金融领域的蓝金黄，那将对人类的经济将是个灾难性的打击。而且不但如此，我觉得从昨天到今天，还有这两三天看来，这几天来全世界病毒感染率下降，死亡率提高，给人们带来了个小阳春，带来个小希望，以为病毒可能要结束了，很多人在筹划着，大胆地尝试着去干一些事。
+10. 2020的今天，谎言与真相并行: 习近平为中共应对中共病毒的措施辩护，称其 “及时有效”；白宫贸易顾问彼得·纳瓦罗给时任美国总统川普先生写了一份备忘录，警告说：”全面的病毒大流行的可能性越来越大，可能会感染多达一亿美国人，并造成多达一两百万人的生命损失。”目前看纳瓦罗基于爆料革命的备忘录挽救了许多人的生命。
 
-Therefore, when the new Biden administration will possibly ease its relationship with the CCP now, the whole world is leaning toward the CCP economy. Once they lean toward the CCP economy, the CCP’s fraud, over-issued currency, and their BGY in the financial field globally, will be a catastrophic strike to the economy. And not only this, from yesterday till today, and in the last two to three days, the infection rate of the virus declined worldwide, while the death rate increased, which brought a pinch of hope. People think the virus might come to an end, and many of them plan to do some brave things.
+11. 中共国社会发展智囊团的负责人最近提议，27岁以上的未婚女子应该到中共国农村寻找单身男人做丈夫。此牵线搭桥计划基于，中共长期执行计划生育政策已造成日益严重的性别不平衡现象，并酝酿着社会危机。
 
-如果病毒能控制住，这是人类最大的幸福。但是全世界的经济家、有脑子的人、精英们都知道，共产党绝对是有解药的。认为共产党有解药的这种心理状态，已经在全世界的政治家、经济学家、金融家里面普遍蔓延，以为共产党能给大家带来解药。如果共产党能把解药给拿出来，这也是人类的幸福啊，说一旦共产党拿出来解药，世界的经济将有一个大迸发、大复苏、大发展。希望如此吧，希望如此。
+12. 上周三，立陶宛议会外交事务和国家安全委员会商定起草一项关于在中共迫害维吾尔人的决议。
 
-It would be the greatest blessing of mankind if the virus could be controlled. However, the economists, the intelligent people, and the elites worldwide know that the CCP must have the antidote. This mental state of believing that the CCP has the antidote is widespread among the politicians, economists, and financiers. They believe that the CCP will bring the antidote to everyone. It would be a blessing to mankind if the CCP could bring out the antidote, and then the world economy will have a big burst, big recovery and big development. We hope so, hope so.
+二、世界新闻
 
-那么全世界咋跟共产党要解药啊？什么代价啊？这里面有意思了，所以说也可以呀，买卖成交，也可以利用所谓的武力方式。一旦要确认共产党有解药，或者未成功的疫苗，共产党又不给的话，那战争是不可避免的。那如果给了这个解药，那就坐实了共产党就是它制造的生化武器。这个跟共产党这个战争，经济战争还是火战，也不可避免。但不管如何，看来跟共产党之间将有一段巨大的政治、外交、金融方面的较量，最后可能以战争结束。目前看来呀大概就这情况，俺先报告到这，战友们。
+1. 联合国安理会委员会泄露的一份关于朝鲜制裁的报告称，金正恩政权和德黑兰正在合作，再次研发远程弹道导弹。有专家指出，这是威胁美国进入谈判桌的手段。
 
-But how does the world get the antidote from the CCP? What’s the price? This will be interesting. They could either buy it or use force. Once it is confirmed that the CCP has the antidote or unsuccessful vaccines, and the CCP does not want to give them out, a war will be unavoidable. If they give the antidote, then it becomes certain that the CCP made the bioweapon. Then the war with the CCP, whether it is an economic war or kinetic war, is also unavoidable. Whichever way, it looks like that there will be a huge contest with the CCP in terms of politics, diplomacy and finance, which could end up in war. This is where we are at for now. That’s all from me, brothers-in-arms.
+2. 谷歌前董事长埃里克·施密特周二在美国参议院军事委员会作证时表示，美国在AI和其他高科技领域（如量子计算）对“竞争对手”必须保持5至10年的优势。这表示美国已经意识到中共在科技、教育和人文上对美国的严重威胁。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+3. 日本内阁周三批准了一项法案，批准包括中共国在内的15个亚太国家去年签署的全球最大的自由贸易协定。日本贸易大臣梶山浩史在新闻发布会上表示，覆盖全球三分之一贸易和人口的区域全面经济伙伴关系将成为 “亚洲贸易的基础”。
 
-视频来源：[https://gtv.org/getter/601f15b6f5b9e26ca9d901c6](https://gtv.org/getter/601f15b6f5b9e26ca9d901c6)
+4. 美国参议员罗姆尼（Mitt Romney）周二在接受Fox采访时说，如果前总统川普在2024年再次竞选，将很可能会赢得共和党的提名。
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://www.gnews.org/zh-hans/885880/](https://www.gnews.org/zh-hans/885880/)
-
-翻译：【雷鸣（文鸣）】 校对：【Isaiah4031】【BruhM】字幕：【奔腾的长江】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+5. 美国国务卿布林肯星期一在祝贺加勒比海国家圣卢西亚独立42周年时，延续川普政府的做法在声明中主动提及台湾。布林肯对美国与台湾共同推动圣卢西亚的商业发展表示肯定，并感谢圣卢西亚持续为西半球的民主人权发声。
 
 0
