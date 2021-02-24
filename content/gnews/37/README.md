@@ -1,33 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 心明眼亮照妖镜
-` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/929351/)
+## 【军事快讯】七国集团谴责缅甸军政府镇压抗议者
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/929618/)
 
-![](https://lh5.googleusercontent.com/GoRfR_zcwrxudMU06vPnYOSBYQZXJFjg3atJvEmzu3B4xX4tpANIMmItAl1fIk9fh6k5bIVIFWTkQlJTEmcwlT--BMexMj06pGp509bhcILs_-z7UGXkMGzfKXZJVVQQFUZZUdKC)
+作者：纽约香草山写作组 Wilson
 
-撰稿：Xingfoo
 
-九指妖的骗术，可谓是炉火纯青，非数十年的骗史和功力所不能达到的。她绝非是看到数额巨大的账款才起的邪念，而是早就处心积虑，比一般的伪类高明、隐蔽和胃口大得多，说她是妖精一点也不为过。
 
-她应该是在郭先生发起爆料革命初始就冲到最前面，以精湛的演技和看似真心的付出骗得郭先生的信任。这个在常人看来如此毫不迟疑、毫无恐惧的举动似乎并不正常，但在郭先生最需要助攻的时候，君子无法度小人之腹。郭先生即使阅人无数，也就难免被妖精和自己心态上的弱点所困。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-另外一点，九🈯️妖所使用的套路乃家传或民间或自己修炼所致，与共产党的套路差异不小，这才使对共产党套路轻车熟路的郭先生，在眼泪、高大上的词汇以及一种让人不加严防的无知表现的面前踉跄险倒。幸运的是，九🈯️妖暴露的时间真是天意，险些给造成爆料革命带来致命性的伤害。
 
-九🈯️妖在获得郭先生的信任和背书后，在共产党的搅合下更加如鱼得水，频频地挑拨离间，意图以信息操纵的方式隔离郭先生和其他战友的关系和联系，以获得一人之下万人之上的地位，然后再与其他受她控制的小妖们沆瀣一气，谋财害命。
 
-暂且不论九🈯️妖对VOG里8000战友的伤害，作为一名母亲，她伤害最大的不是别人，正是她的儿子—魏修竹。恶人有恶报，恶母的报应一定会让她的儿子承受比她更长时间的伤害，从孩童时期开始的恶根一旦种下，难以修复，她儿子将惶惶不可终日地在监狱或在去监狱的路上度过余生。
+*[德国之声](https://www.dw.com/zh/%E4%B8%83%E5%9B%BD%E9%9B%86%E5%9B%A2%E5%A4%96%E9%95%BF%E8%B0%B4%E8%B4%A3%E7%BC%85%E7%94%B8%E9%95%87%E5%8E%8B%E6%8A%97%E8%AE%AE%E8%80%85/a-56663963)*2月23日报道，七国集团本周二“强烈谴责”缅甸军方暴力镇压2月1日反对其政变的示威抗议行动。七国集团外长在一份共同声明中强调，“对非武装人士使用真枪实弹是不可接受的。任何以暴力回应和平抗议的人必须被绳之以法。”该声明中敦促缅甸军方 “保持最大克制，尊重人权和国际法”。 迄今为止，至少有３名反政变的抗议者在示威中遭枪杀。
 
-发稿编辑： Candy
+![]()![](https://gnews.org/wp-content/uploads/2021/02/9-11.jpg)图源网络
 
-**欢迎战友加入旧金山金喜准农场**
+当前，缅甸的战略地位堪比二战时期。二战时，中国东南沿海被日军悉数占领和封锁，滇缅公路成了盟军支援国民党抗日前线及西南大后方唯一的陆地物资运输线。中共在缅甸搞这么大动静，就是为了在东海、台海、南海发动战争时被盟军封锁做准备。因此，缅甸或将成为当今大国博弈的战场——中共已出手，就看美国及其盟友“尚能饭否”了。
 
-[旧金山金喜准农场 GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+编辑/校对/发稿：Irene木木
 
-[旧金山金喜准农场 Discord](https://discord.gg/QQzQ79grEA)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-[旧金山金喜准农场 Twitter](https://twitter.com/sf_himalaya)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-**（文章仅代表作者个人观点）**
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-+1
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
+
+0

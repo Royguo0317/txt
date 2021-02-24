@@ -1,15 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年2月23日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/930023/)
+## 中共军方至少自2017年以来就在实验室里进行秘密动物实验
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/930105/)
 
-编辑整理：美东香草山农场（彩虹桥）
+【精选一】中共散布虚假消息，借助军队试图掩盖真相，直至事态失控
 
-2月23日：尊敬的战友们好！收到了太多战友们的信息．要求文贵直播，我会在明天2月24号上午10:00左右乱聊直播，一切都已经开始！
-![]()![](https://gnews.org/wp-content/uploads/2021/02/84d7cca71320006bc53f219d6c919e4c.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/5df072c766b47bfd4543abd61bf8c15e.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/43785ea4335e1eea8c5bf1855735994c.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/55505df387fb88a0b59f3596003ccea4.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/4d1ec811bb00dab3ce313018291372cf.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/4315ad321a247638831d1a9074889135.jpg)
-[【2021年2月23日】文贵先生盖特原文](https://gtv.org/getter/6035cdba195851590236c6ad)
+【精选二】实际被中共控制的世卫组织，对中共病毒做了各种不真实或误导性的声明
 
-喜联盟**Gnews**编辑部
+【精选三】中共军方至少自2017年以来就在实验室里进行秘密动物实验
 
-+1
+【精选四】博明建议CDC一些需要改进的具体领域
+
+By： 【秘密翻译组 G-Translators】
+
+
+
+0
