@@ -1,157 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《新闻快递》节目摘要2021.02.19
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/929094/)
+## 爆料革命是揭露共产党完美犯罪真相的一个圣斗士
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/929144/)
 
-《新闻快递》栏目组：Beicy数学老师，文玉，1818;
+**撰文作者：葛大饼**
 
-校对/审核：宁缺； Page: 1818
+2020年2月21日 美东时间 路博艾谈 小伙伴们！这期節目 敲黑板啦！！！重磅中的重磅啊！
 
-引言：
+关键词： 激活剂 ！ 嗜脑神经病毒！
 
-英国伦敦喜庄园GTV直播节目《新闻快递News Express》，每周一和周五英国时间18:30为战友带来美国、英国及国内的热点新闻。
+闫博士在之前的科学报告中已经指出，这场自2019年始于武汉的全球瘟疫大流行其实是源于中共实验室，是中共解放军背景的，以舟山蝙蝠病毒为骨架的中共军方专利技术。此病毒进行了人工加强的实验。为什么要人工加强，因为想要病毒更完美的和人体结合，达到更好的人传人的效果。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/d7e5a6d9-cf34-4063-ad0e-07d1213954e6.jpg?asset_id=5a2bb169-d518-46cb-baae-148311b6956f&amp;img_etag=%224b9ac239b633a9e9616b48f356e78abf%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/d7e5a6d9-cf34-4063-ad0e-07d1213954e6.jpg?asset_id=5a2bb169-d518-46cb-baae-148311b6956f&amp;img_etag=%224b9ac239b633a9e9616b48f356e78abf%22&amp;size=1024)
+闫博士之前把这个中共专有病毒比喻成乐高玩具太形象了。乐高玩具的专利，只有乐高能在这套模型基础上，进行各种设计，乐高玩具能每个部件都接上另一个部件，那是因为都是人为设计好的，你总不能在马路上随便捡个啥就能拼凑起一个变形金刚吧。比如忍者系列啦，星际争霸系列啦，
+（我好喜欢忍者系列哦。。。期待以后G fashion能出爆料革命周边玩具）
 
-**[🔗GTV-UK-1号台精彩回看](https://gtv.org/video/id=602ad052be64150df85802bf)**
+为什么说舟山蝙蝠冠状病毒骨架是中共军方专利呢，因为无论是舟山还是云南都是属于中共国，美洲， 欧洲 ，非洲， 澳洲都没这两个地。这也就是之前路德節目强调的原材料发源地的关键性。
 
-### 本期主题：
+路德節目也科普了自然进化的病毒，它为了要生存下去，它的毒性是会慢慢减弱的，才可以和人类长久共生存，而目前全球各地传出的变异高传染病毒，是完全违背了这个自然规律的，病毒没有变弱，反而是越来越强了，为啥呢！
 
-1. 德国物理学泰斗发布“冠状病毒来自实验室”的报告
+第一，病毒是人工的。第二，这压根不是变异变种病毒，这压根是中共在投放新病毒！另外病毒要从动物身上传播到人身上，物种的不同，它是需要一个中介的，也就是中间宿主。就好比咋们出国要携带一个万能充电转换器啊，插头不一样，不是随便就能通上电的。
 
-2. 扶不起的双规总统，称种族灭绝为“文化常态”引众怒
+我想起我外婆家养的猪啊， 鸡啊，以前什么鸡瘟，猪瘟，没见人被传染上啊…..
+路德節目透露,舟山蝙蝠病毒骨架有百分之十被改了，秘密都藏在这百分之十被改的序列里面。闫博士目前提供的是一些主要功能的一些变化，还有相当一部分需要继续破解。闫博士现在天天都在干这事，都在破解这个病毒序列。重点啊，重点啊！闫博士在破解中共生化武器病毒的密码!!!
 
-3. 川普接受采访称将组建新的社交媒体，准备加入G系列？！
+了不得了吧!我们的天使闫博士，看似一个小清新文艺范弱女子，愣是把中共整的慌兮兮的，发动媒体界，科学界，各种力量去攻击闫博士。接下来闫博士还会出科学报告，里面有重要的关于嗜神经性病毒，就是对脑神经的伤害。所以再次预警全世界，你不去看闫博士报告，就去搞疫苗，没用的。
 
-4. 全球自动灭共，美加澳新加坡均发布抵制中共政策
+老命伤财的事，以后致死致伤，疫苗公司钱都不够赔的！所有华尔街背后的大佬们其实都知道的，现在的这些疫苗其实都是骗钱的。未来一定是解决不了问题的。就算中共不再放新的病毒，老的病毒也解决不了!只能第一灭共! 但是灭共也只是把共产党未来要放的病毒给阻挡了，目前的病毒无解啊！第二，就是中共主动的把这个病毒序列密码交给你了，敞开来给大家看，这里面所有的密码都会被破解，但从共匪的欠扁德行来看，第二条不是很现实啊。第三条路，等不到共匪灭了，我们得自己动手去破解密码，这又必须回到闫博士，战友们，现在更能深刻明白为什么要叫天使闫博士吧。
 
-5. 专题：谈谈数字货币（4）— SEC主席提名人 Gary Gensler
+她在做的是拯救全人类的事啊！闫博士没有国家资金支持，没有什么一个大团队给她使唤，那些背后的大佬们，赶紧的啊，投资并且支持闫博士啊！
 
-## 《新闻快递》节目摘要2021.02.19
+让我们看看闫博士前两天推的新闻，据CGTN报道最新的武汉病毒研究所的科研成果，说武毒所确认甲型流感病毒具有独特能力使新冠病毒病情恶化，1. 带人ACE2受体的转基因老鼠，同时感染新冠和流感，体内新冠病毒量显著增多，严重肺损伤更明显2. 流感病毒似通过独特的方式，增加ACE2受体表达，以致新冠病毒感染能力增加强。路德先生惊呼，哇塞，这不就是激活剂嘛！！！因为这是嗜脑神经病毒，所以未来你真不知道怎么样!那么激活剂只有一个吗？ 为什么一直说中共疫苗是毒疫苗呢？难道疫苗也是激活剂嘛！？
 
-### 新闻线索【1】以毒灭共，病毒&疫苗次生危害持续全球
+这真是太恐怖了！悄无声息的把你变丧尸啊！电影中的僵尸其实就要在现实生活中上演!王长军书里面说了，他发现舟山蝙蝠病毒对老鼠的脑神经有侵害作用。这就是最好的骨架，因为它可以进入你的脑神经。就是说了舟山蝙蝠病毒可以穿越血脑屏障的，这是很恐怖的！！闫博士警告世界，留给人类的时间不多了。战友们，你们现在充分理解并且刻骨铭心了吗…共产党玩的是僵尸世界啊！
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/23a9b6e2-8c14-4f7d-9664-f74ff6bca398.jpg?asset_id=8f9cfb26-f7b3-4290-84fb-98ecf99a1218&amp;img_etag=%22c30814e0f72b78d31660f0fed049b7e3%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/23a9b6e2-8c14-4f7d-9664-f74ff6bca398.jpg?asset_id=8f9cfb26-f7b3-4290-84fb-98ecf99a1218&amp;img_etag=%22c30814e0f72b78d31660f0fed049b7e3%22&amp;size=1024)
+灭共！灭共! 灭共! 是唯一拯救自己的办法!
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/31da7ba1-3932-43eb-b9b4-615f14270a7c.jpg?asset_id=92e4b942-0324-45e3-a6e6-c9b1d6d02378&amp;img_etag=%22030379c5e18591fa7680efa50ec0dc29%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/31da7ba1-3932-43eb-b9b4-615f14270a7c.jpg?asset_id=92e4b942-0324-45e3-a6e6-c9b1d6d02378&amp;img_etag=%22030379c5e18591fa7680efa50ec0dc29%22&amp;size=1024)
+行动! 行动! 行动! 是唯一拯救自己的办法!
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/5ec373de-bb71-4d4e-9652-973a802cc9ef.jpg?asset_id=475c41ea-bec1-45c9-ad5e-4e5ea2532b39&amp;img_etag=%221649511723d339254737d09673384cd0%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/5ec373de-bb71-4d4e-9652-973a802cc9ef.jpg?asset_id=475c41ea-bec1-45c9-ad5e-4e5ea2532b39&amp;img_etag=%221649511723d339254737d09673384cd0%22&amp;size=1024)
+（以上内容仅代表作者本人观点，不代表农场和Gnews）
 
-**[🔗 每日来电：美国国家卫生研究院确认武汉实验室有资格在2024年之前获得美国纳税人的资助](https://dailycaller.com/2021/02/16/wuhan-lab-eligible-taxpayer-funding/)**
+参考链接：
+**文中路德视频剪辑版 ([下载](https://mega.nz/file/Ii5inZ6R#Vh2KnFBbSzYOFHflUi0s1gQwo6xvcXtOifwjl1GcXLE)，在[GTV观看](https://gtv.org/getter/60351097195851590236a6b4)）**
 
-**[🔗 路透社：英国首相呼吁世界需要大流行性条约，以确保透明度（世卫组织探查武汉）](https://www.reuters.com/article/us-health-coronavirus-britain-johnson-ch/uks-johnson-says-world-needs-pandemic-treaty-to-ensure-transparency-idUSKBN2AF1OP)**
+*其他工作人员：
+收稿和审核：铜豌豆
+编辑和发布：西联*
 
-**[🔗 Gnews：德国物理学泰斗发布“新冠病毒来自实验室”的报告](https://gnews.org/zh-hans/918095/)**
+*德国慕尼黑感恩农场欢迎您的加入！*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/39c2ac3e-5149-4ddd-8fb2-09dfd20960dd.jpg?asset_id=d9751208-acdb-4d63-8ddb-bd1886dfa212&amp;img_etag=%2278e0e2e7509de252db70a85f95fb2ac4%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/39c2ac3e-5149-4ddd-8fb2-09dfd20960dd.jpg?asset_id=d9751208-acdb-4d63-8ddb-bd1886dfa212&amp;img_etag=%2278e0e2e7509de252db70a85f95fb2ac4%22&amp;size=1024)
-
-**[🔗 捷克要点：红衣主教杜卡(Duka)称冠状病毒为 “中共国生物武器”](https://czechpoints.com/cardinal-duka-calls-coronavirus-a-chinese-bioweapon/)**
-
-**[🔗 MSN：英国揭示部分冠状病毒患者难以重返工作岗位](https://www.msn.com/en-gb/news/world/china-plot-tentacles-of-influence-spreading-with-vaccine-diplomacy-as-eu-squabbles/ar-BB1dsE99)**
-
-**[🔗 闫博士推特：必看！东京电视台的详尽报道](https://twitter.com/DrLiMengYAN1/status/1362388081073131524?s=20)**
-
-
-
-> Elaborate report by TV Tokyo (Subtitles by Andy5)
-> 
-> Curious about dramatic impact in Anti-[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) trophy exhibition in Wuhan?
-> Curious about what content attracted WHO investigation team for 2+ hr there, and “smart enough to understand the meaning (Peter Daszak)”?
-> 
-> Must watch! [https://t.co/1JWzYcoCbA](https://t.co/1JWzYcoCbA)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [February 18, 2021](https://twitter.com/DrLiMengYAN1/status/1362388081073131524?ref_src=twsrc%5Etfw)
-
-
-
-### 新闻线索【2】 香港圣城, 东方明珠变暗夜
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/0560af12-f692-4884-bd27-3ecf0797e00b.jpg?asset_id=da74e22e-1b41-4054-b734-c03562f4590b&amp;img_etag=%22f5d599df4d6c4bd5eb9d76825c045d5d%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/0560af12-f692-4884-bd27-3ecf0797e00b.jpg?asset_id=da74e22e-1b41-4054-b734-c03562f4590b&amp;img_etag=%22f5d599df4d6c4bd5eb9d76825c045d5d%22&amp;size=1024)
-
-**[🔗 Gnews: 英国更新香港商业指南，删除“国际金融中心”的内容](https://gnews.org/zh-hans/918273/)**
-
-**[🔗 香港自由媒体：港医疗联盟因为隐私问题呼吁抵制冠状病毒追踪应用，政府对此表示 “愤怒”](https://hongkongfp.com/2021/02/19/covid-19-govt-expresses-anger-over-medical-unions-call-to-boycott-tracing-app-amid-privacy-concerns/)**
-
-**[🔗 香港自由媒体：香港警方周四拘捕另一名中大学生, 因参加去年11月和平民主校园示威](https://hongkongfp.com/2021/02/19/security-law-hong-kong-police-arrest-another-cuhk-student-over-peaceful-pro-democracy-campus-demo-last-nov/)**
-
-**[🔗 香港自由媒体：香港将为五个优先群体推出Covid-19大规模疫苗接种，下周二开放注册](https://hongkongfp.com/2021/02/18/hong-kong-to-roll-out-covid-19-mass-vaccination-for-five-priority-groups-registration-opens-next-tue/)**
-
-### 新闻线索【3】全球灭共, 以共灭共: 共产党员必须自救
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/e2120a97-da7d-4c7a-bfcb-3fef59fe73f6.jpg?asset_id=419651d9-e830-4cbe-844e-8d82ec06ba81&amp;img_etag=%22ca7910f34adc241565c8cef2426b09eb%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/e2120a97-da7d-4c7a-bfcb-3fef59fe73f6.jpg?asset_id=419651d9-e830-4cbe-844e-8d82ec06ba81&amp;img_etag=%22ca7910f34adc241565c8cef2426b09eb%22&amp;size=1024)
-
-🔗**[布赖特巴特：汤姆·科顿“我们需要把中国共产党分子打进历史的垃圾堆”](https://www.breitbart.com/politics/2021/02/18/tom-cotton-we-need-to-consign-the-chinese-communists-to-the-ash-heap-of-history/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed:+breitbart+%28Breitbart+News%29News)**
-
-**[🔗 Axios：众议院共和党议员敦促拜登重新采用川普有关孔子学院的规则](https://www.axios.com/house-republican-letter-biden-confucius-institute-rule-7ae1d581-ab7f-4c05-b9f8-47806481dcab.html)**
-
-**[🔗 布赖特巴特：在被共和党研究委员会（RSC）本周敲打其与北京的关系后，布林肯表态中共国正在实施种族灭绝](https://www.breitbart.com/politics/2021/02/16/gop-report-secretary-of-state-blinken-founded-firm-that-received-chinese-money-for-dod-research-linked-universities/)**
-
-🎞** 视频：美国国务院已经认定（中共）种族灭绝罪，实际上这种罪行正在发生**
-
-
-
-**🎞 视频：蓬佩奥：中共在新疆施行种族灭绝，不能允许他们举办冬奥会，这与当年抵制纳粹举办奥运会一样**
-
-
-
-**[🔗 国家脉动：拜登借口称维吾尔族种族灭绝是“文化常态”](https://thenationalpulse.com/breaking/biden-excuses-uyghur-genocide/)**
-
-**🎞视频：拉希姆：纳粹对犹太人做的，中共都正在做。而拜登昨天竟然称这是“文化标准”的不同！这是拜登给中共的「种族灭绝执照」「大屠杀执照」！**
-
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/17d82321-5d42-486c-b255-d4639122b3e2.jpg?asset_id=390fdbd3-449e-4fa1-af28-99a90e8bfe0b&amp;img_etag=%22972b407050465f39770f1a1bb645e87c%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/17d82321-5d42-486c-b255-d4639122b3e2.jpg?asset_id=390fdbd3-449e-4fa1-af28-99a90e8bfe0b&amp;img_etag=%22972b407050465f39770f1a1bb645e87c%22&amp;size=1024)
-
-**[🔗 零对冲：缅甸抗议者谴责中共国在支持军政府方面的“隐藏黑手”](https://www.zerohedge.com/geopolitical/myanmar-anti-coup-protesters-say-chinas-hidden-hand-propping-junta?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed:+zerohedge/feed+%28zero+hedge+-+on+a+long+enough+timeline,+the+survival+rate+for+everyone+drops+to+zero%29)**
-
-**[🔗 CNBC：新加坡调查显示，如果被迫选边站，东南亚会选择美国而不是中共](https://www.cnbc.com/2021/02/16/asean-would-choose-us-over-china-if-forced-to-pick-sides-survey.html?__source=sharebar%7Ctwitter&amp;par=sharebar)**
-
-**[🔗 OANN：加拿大发起58国联动制止任意拘留](https://www.oann.com/canada-launches-58-nation-initiative-to-stop-arbitrary-detentions/?utm_source=rss&amp;utm_medium=rss&amp;utm_campaign=canada-launches-58-nation-initiative-to-stop-arbitrary-detentions)**
-
-**[🔗 SMH：澳大利亚加入加拿大领导的反对人质外交的联盟](https://www.smh.com.au/world/europe/urgently-needed-australia-joins-canadian-coalition-against-hostage-diplomacy-20210216-p572s4.html)**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/6dd111fe-b5ec-4fcb-af18-52b65fd53e87.jpg?asset_id=feba5e79-797c-45a1-aae3-281ab3f9d9b2&amp;img_etag=%22e68d3c5cd0c53009367a17d1f194c1c5%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/6dd111fe-b5ec-4fcb-af18-52b65fd53e87.jpg?asset_id=feba5e79-797c-45a1-aae3-281ab3f9d9b2&amp;img_etag=%22e68d3c5cd0c53009367a17d1f194c1c5%22&amp;size=1024)
-
-🔗 **[澳洲战略政策研究所：中共国海军扩张背后的港口运营商](https://www.aspistrategist.org.au/the-port-operators-behind-chinas-naval-expansion/)**
-
-🔗 **[美媒配图报道X级同性恋推特帐户吸引了顶级中共国外交官](https://www.breitbart.com/asia/2021/02/14/exclusive-chinese-foreign-minister-follows-x-rated-gay-porn-twitter-account/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed:+breitbart+%28Breitbart+News%29)**
-
-🔗 **[大纪元：川普正在考虑建立自己的社交媒体平台](https://www.theepochtimes.com/trump-says-hes-considering-new-social-media-platform-you-can-literally-build-your-own-site_3701853.html)**
-
-🔗**[天空新闻网：为什么Facebook在澳大利亚阻止新闻，这对世界其他地方意味着什么？](https://news.sky.com/story/why-has-facebook-blocked-australian-news-and-what-does-it-mean-for-the-rest-of-the-world-12221723)**
-
-**[🔗 Gnews: 表里不一！扎克伯格私下质疑新冠疫苗会产生长期副作用](https://gnews.org/zh-hans/918246/)**
-
-### 新闻线索【4】 新中国联邦
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/b9bf1811-bbd1-4970-a17f-7b5cee3bf893.jpg?asset_id=42585a73-f748-4df4-9936-bc51f90f462d&amp;img_etag=%22710d94203388dab171591cb9017a00c0%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/b9bf1811-bbd1-4970-a17f-7b5cee3bf893.jpg?asset_id=42585a73-f748-4df4-9936-bc51f90f462d&amp;img_etag=%22710d94203388dab171591cb9017a00c0%22&amp;size=1024)
-🎞 **视频：七哥揭露林郑妖蛾伏击肛门, 检查港人是否上街真相**
-
-**[🔗 英国BNO实战信息要点](https://www.gov.uk/british-national-overseas-bno-visa)**
-
-**[🔗 Gnews: 2021/02/09 大卫连线路德时评直播精要](https://gnews.org/zh-hans/910200/)**
-
-**[🔗 英国伦敦喜庄园的英文GTV直播频道《GTV UK English》正式建立](https://gtv.org/user/602f9f5c047c4c3086d4f215)**
-
-### 新闻线索【5】七哥与战友Getter快递
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/ddda43a8-4e3b-4434-b481-d6c84adfb267.png?asset_id=b7c83bee-77c7-40c9-a489-44c8897ecdba&amp;img_etag=%228eaecdd3f6ff809254b90d8233a4edb1%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/ddda43a8-4e3b-4434-b481-d6c84adfb267.png?asset_id=b7c83bee-77c7-40c9-a489-44c8897ecdba&amp;img_etag=%228eaecdd3f6ff809254b90d8233a4edb1%22&amp;size=1024)[https://gtv.org/getter/602fd783195851590235746f](https://gtv.org/getter/602fd783195851590235746f)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/f3c6aba0-3fab-481c-8d3c-24b077facaef.png?asset_id=602917aa-022b-4f2a-9e14-10621c1c4ac9&amp;img_etag=%22c9be034973a520eea64a85c448658799%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/f3c6aba0-3fab-481c-8d3c-24b077facaef.png?asset_id=602917aa-022b-4f2a-9e14-10621c1c4ac9&amp;img_etag=%22c9be034973a520eea64a85c448658799%22&amp;size=1024)[https://gtv.org/getter/602f27a4226e775907456f33](https://gtv.org/getter/602f27a4226e775907456f33)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/a7a6e795-c07e-4ab8-a44c-7772f8e87d97.png?asset_id=9b0095e4-5021-42e1-bcf8-7244a154b9f7&amp;img_etag=%222ad1021a44e58f573475925d16cb0e20%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/a7a6e795-c07e-4ab8-a44c-7772f8e87d97.png?asset_id=9b0095e4-5021-42e1-bcf8-7244a154b9f7&amp;img_etag=%222ad1021a44e58f573475925d16cb0e20%22&amp;size=1024)[https://gtv.org/getter/602f13a6226e77590745699d](https://gtv.org/getter/602f13a6226e77590745699d)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/345d69c3-ef61-419a-9c09-439c2307307e.png?asset_id=49b70bb5-3c1e-419a-9ff0-cb115787ea12&amp;img_etag=%22b0a264672531587554e1f56b718753a4%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/345d69c3-ef61-419a-9c09-439c2307307e.png?asset_id=49b70bb5-3c1e-419a-9ff0-cb115787ea12&amp;img_etag=%22b0a264672531587554e1f56b718753a4%22&amp;size=1024)[https://gtv.org/getter/602d94a6226e775907450122](https://gtv.org/getter/602d94a6226e775907450122)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/8bdfd150-d95f-4a19-ab96-4f036ab32230.png?asset_id=1570750c-42c3-40b8-bae5-f1942c83e47d&amp;img_etag=%2227b0f144e413a92d56af0c8d6700bcad%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/8bdfd150-d95f-4a19-ab96-4f036ab32230.png?asset_id=1570750c-42c3-40b8-bae5-f1942c83e47d&amp;img_etag=%2227b0f144e413a92d56af0c8d6700bcad%22&amp;size=1024)[https://gtv.org/getter/602fed1319585159023578e8](https://gtv.org/getter/602fed1319585159023578e8)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/31583eb2-8179-4c21-a84c-8946fa089b97.png?asset_id=2114999c-4c6f-4a81-a8fb-5005c9e9046c&amp;img_etag=%2222de48706ab32684a24cb98fe8c19b13%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/31583eb2-8179-4c21-a84c-8946fa089b97.png?asset_id=2114999c-4c6f-4a81-a8fb-5005c9e9046c&amp;img_etag=%2222de48706ab32684a24cb98fe8c19b13%22&amp;size=1024)[https://gtv.org/user/5ea435ffe538910ad4af603c](https://gtv.org/user/5ea435ffe538910ad4af603c)
-
-**[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)**
-
-**[点击观看英国伦敦喜庄园在G-TV的精彩直播视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)**
-
-**[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)**
-
-编辑：[**【英国伦敦喜庄园编辑部】**](https://spark.adobe.com/page/NnlWInNrFIkY8/)
-[!\[\]()!\[\](https://spark.adobe.com/page/NnlWInNrFIkY8/images/52074c29-fe4e-475d-be27-cddb42e77350.jpg?asset_id=658f2e9c-6914-452e-acc1-3db0602a2df7&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/NnlWInNrFIkY8/images/52074c29-fe4e-475d-be27-cddb42e77350.jpg?asset_id=658f2e9c-6914-452e-acc1-3db0602a2df7&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
