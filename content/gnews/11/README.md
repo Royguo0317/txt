@@ -1,25 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共和党领导的乔治亚州参议院通过法案，缺席投票需出示身份证
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/931009/)
+## 美国务院称新疆发生的事情是种族灭绝，构成危害人类罪
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/931054/)
 
-- 编辑 审核：Victor Torres
-- 发稿：Ranting
+- 编辑 ：Victor Torres
+- 发稿：神奇四侠
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年2月24日电/西喜社——**据国会山报2月23日报道，乔治亚州参议院周二通过立法，要求选民提交驾照号码、州身份证号码或经批准的身份证明复印件，才能在该州进行缺席投票。
+**西班牙2021年2月23日电/西喜社—**
 
-据美联社报道，州参议院67号法案周二以35-18的票数通过，现在将前往州众议院审议。 该法案已经遭到民主党人和投票权组织的反对，他们表示，这项立法将使没有驾照或州身份证的选民难以进行缺席投票。目前缺席选票采用签名验证的方式进行统计。 提出该法案的共和党人之一州参议员沃克（Larry Walker）表示，该法案不会影响约97%的选民。沃克说，其余比例的选民可以亲自投票。
 
-该法案有超过25个共和党人共同提案，是共和党人在乔治亚州议会提交的一些法案之一，这些法案将直接影响该州的投票，特别是缺席投票和选民登记。 另一项由州参议院小组委员会以党内3比2的投票结果推进的法案，如果通过，将要求希望进行缺席投票的乔治亚州人满足一定的要求才能进行投票。截至目前，该州不要求选民有理由进行缺席投票。
 
-共和党议员表示，投票立法的目的是为了帮助提高乔治亚人对选举安全的信心。 “这不是要剥夺选民的权利。这不是关于过分加重选民的负担。这是关于效率、诚信，让乔治亚州公众对投票有信心，”沃克周二声称。 “公众可以对我们选举结果的公正性有信心，”他说。
+> .[@StateDeptSpox](https://twitter.com/StateDeptSpox?ref_src=twsrc%5Etfw) Price: On genocide, we have been very clear that Secretary Blinken has determined that what has taken place in Xinjiang was genocide. We’ve also been very clear that it constitutes crimes against humanity. [pic.twitter.com/ZQARDjGCvG](https://t.co/ZQARDjGCvG)
+> — Department of State (@StateDept) [February 24, 2021](https://twitter.com/StateDept/status/1364622262704480262?ref_src=twsrc%5Etfw)
 
-**新闻来源：[国会山报](https://thehill.com/homenews/state-watch/540172-georgias-gop-led-senate-passes-bill-requiring-id-for-absentee-voting)**
 
+
+美国国务院官方推特于2月24日发布推文：
+
+美国国务院发言人普莱斯发言称，关于种族灭绝，我们已经非常清楚，布林肯国务卿已经确定新疆发生的事情是种族灭绝。我们也非常清楚，这构成了危害人类罪。
 ![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
-
-0
++2
