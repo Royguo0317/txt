@@ -1,25 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧盟外交政策负责人呼吁联合国进入新疆调查
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/929997/)
+## 2021年2月23日 文贵先生盖特 4
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/930023/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+编辑整理：美东香草山农场（彩虹桥）
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-24_07-36-57.jpg)[muslimgirl.com](https://muslimgirl.com/watch-the-uyghur-crisis-explained-in-140-seconds/)
-德国之音2月23日报道，欧盟外交政策负责人约瑟普·博雷尔（Josep Borrell）周二表示，中共应该允许联合国调查人员 “有意义地进入”，以调查有关维吾尔族穆斯林少数民族人权受到侵犯的指控。
+2月23日：尊敬的战友们好！收到了太多战友们的信息．要求文贵直播，我会在明天2月24号上午10:00左右乱聊直播，一切都已经开始！
+![]()![](https://gnews.org/wp-content/uploads/2021/02/84d7cca71320006bc53f219d6c919e4c.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/5df072c766b47bfd4543abd61bf8c15e.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/43785ea4335e1eea8c5bf1855735994c.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/55505df387fb88a0b59f3596003ccea4.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/4d1ec811bb00dab3ce313018291372cf.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/4315ad321a247638831d1a9074889135.jpg)
+[【2021年2月23日】文贵先生盖特原文](https://gtv.org/getter/6035cdba195851590236c6ad)
 
-联合国人权事务高级专员巴切莱特(Michelle Bachelet)希望派遣一个小组前往中共国西北部的新疆调查有关指控。博雷利向联合国人权理事会表示，“我们呼吁中共允许包括高级专员巴切莱特在内的独立观察员有意义地进入新疆。” 他说，“这是对国际社会所关切的严重问题进行独立、公正和透明评估的关键。”
-
-欧盟本身也因新疆问题受到人权组织的抨击，欧盟被批评无视新疆种族灭绝的人权问题与中共达成了一项初步投资协议。
-
-美国前国务卿蓬佩奥声明中共对新疆维吾尔人和少数民族犯下了种族灭绝和反人类罪行，他的继任者安东尼·布林肯在美国参议院确认听证会上也同意这一评估。所有的消息来源都证实中共对维吾尔人的罪行是真实存在的，越来越多的国家开始正视这一指控。2月22日加拿大立法机构下议院通过了对中共种族灭绝罪行的认定，加拿大议员们通过了一项声明，承认“中华人民共和国正在犯下种族灭绝罪”。这项提案在加拿大以266票赞成、0票反对的结果获得通过，同时还呼吁政府推动2022年冬奥会从中共迁至其他国家。
-
-中共一直在抵赖对此罪行的认定，2月1日中共授意新疆地方官员邀请美国政府官员参观新疆，这不过是中共粉饰太平，刻意打造虚假现状来掩盖真相的伎俩。因此欧盟呼吁中共应该允许联合国调查人员 “有意义地进入”直指中共要害，将让中共的滔天罪恶无处遁形。
-
-参考链接：
-
-[https://www.dw.com/en/eus-borrell-urges-china-to-grant-un-team-access-to-xinjiang/a-56664651](https://www.dw.com/en/eus-borrell-urges-china-to-grant-un-team-access-to-xinjiang/a-56664651)
+喜联盟**Gnews**编辑部
 
 +1
