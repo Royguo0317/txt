@@ -1,29 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共指责美日安全条约是冷战的产物
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/931515/)
+## 中共诋毁五眼联盟“白人至上”对世界构成威胁
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/931564/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-25_06-33-04.jpg)[blastinjuryresearch.amedd.army.mil](https://blastinjuryresearch.amedd.army.mil/index.cfm/about_us/international_collaboration)
-美联社2月24日报道，中共指责美日《共同安全协议》是冷战时期的产物。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-25_06-59-10.jpg)[nvestigoo.com](https://investigoo.com/content/five-eyes-alliance-could-expand-in-scope-to-counteract-china.html)
+布赖特巴特新闻(Breitbart News) 2月24日报道，联合国秘书长安东尼奥·古特雷斯警告称“白人至上”对全球安全构成日益严重的威胁，48小时后，中共官方媒体对此事件进行了全面报道，诋毁五连联盟成为是“白人至上”轴心国。
 
-此前美国上周末批评中共海警船出现在日本宣称拥有主权的领海。始于1960年的《安全条约》保证，如果日本军队或领土受到外部攻击，美国将向日本提供援助。
+中共喉舌《环球时报》发表了抨击五眼联盟白人至上思维的文章，称加拿大、英国、美国和澳大利亚正在对中共采取协同行动。第五个成员国新西兰没有参与直接攻击被中共忽略。
 
-此前有报道称，两艘中共海警船周日两次进入钓鱼岛附近的日本领海。日本对此提出抗议，中共船只试图接近日本渔船，导致日本巡逻船进行干预。日本称钓鱼岛为尖阁列岛(Senkaku)，中共称钓鱼岛。中共外交部发言人汪文斌重申，中共对日本控制的东海一系列无人居住的小岛拥有主权。
+“他们形成了一个以美国为中心的、种族主义的、黑手党风格的社区，蓄意和傲慢地挑衅中共，试图像所有黑帮一样巩固他们的霸权。”《环球时报》指控提出种族主义指控并称，“他们正在成为一个种族主义轴心，旨在扼杀14亿中国人的发展权。” 这样的种族主义轴心注定会侵蚀国际关系，让流氓罪在21世纪登上外交舞台。
 
-日本海上保安厅表示，这是中共海警船只今年第九次进入钓鱼岛附近的日本领海。去年，中共国船只被证实在南海毗连区航行了333天，创历史新高。
+这不是中共喉舌第一次抨击“五眼联盟”(Five Eyes)成员。正如布赖特巴特新闻(Breitbart News)所报道的那样，去年11月，该报抨击五眼联盟批评中共对香港民主的丑恶镇压，并嘲笑澳大利亚是“美国的附属国”。
 
-中共上月通过了新海警法，明确允许中共国海警对北京认为非法进入其水域的外国船只使用武器，引发该区域各国的担忧。
+《环球时报》总编胡锡进称，“五眼”更像是一个犯罪团伙，美国发号施令，它的爪牙去为它战斗或喝彩。即使华盛顿的要求是不合理的，“小兄弟们”也不敢反驳。听从美国指令已经成为这个群体中的‘政治正确’。”
 
-美国新任总统拜登(Joe Biden)上月底与日本首相菅义伟(Yoshihide Suga)通电话时，重申了华盛顿在两国长期安全条约下保护尖阁列岛的“坚定承诺”。五角大楼首席发言人柯比周二表示，中共若“继续藐视国际规则”，美国将与盟友合作共同应对挑战。
+中共此次谩骂是对加拿大本周宣布中共对待新疆维吾尔族人口的做法是种族灭绝行为，并要求将2022年冬奥会从北京移出的反击。
 
-中共外交部长王毅没有直接回应这些批评，但表示这些岛屿是“中共固有领土”。他批评“美日安全条约是冷战的产物，不应以此损害第三方利益或危及地区和平与稳定”。中共指责这些对中共霸权欺凌行为的反击为“冷战思维”。
+中共每次在面对挑战无力反击时便露出泼妇骂街的嘴脸，实在无耻，丢尽了东方大国的颜面。
 
 参考链接：
 
-[https://www.washingtontimes.com/news/2021/feb/24/china-says-japan-us-security-treaty-a-product-of-c/](https://www.washingtontimes.com/news/2021/feb/24/china-says-japan-us-security-treaty-a-product-of-c/)
+[https://www.breitbart.com/politics/2021/02/24/china-assails-five-eyes-intelligence-network-axis-of-white-supremacy/](https://www.breitbart.com/politics/2021/02/24/china-assails-five-eyes-intelligence-network-axis-of-white-supremacy/)
 
 0

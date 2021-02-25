@@ -1,33 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】对航母构成巨大威胁的五种反舰手段
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/931305/)
+## 【军事快讯】战场规则要改写——美国海军驱逐舰即将拥有高超音速导弹发射能力
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/931422/)
 
 作者：纽约香草山写作组 Wilson
 
-《国家利益》近来重新登载了不少仍然有现实意义的过往文章。今天发布的这一篇揭示了当今世界正在开发并突破了传统反舰理论的五种反航母高科技手段。
 
-一是无人驾驶潜艇。它可以在航母可能经过的路径安静地埋伏，在发现航母后进行攻击。这种自行操作仅需配备少量导弹的海底攻击无人潜艇，可能会让未来的航母非常头疼。
 
-二是网络攻击。航母由一个非常复杂的网络控制系统组成。航母中的导弹等武器系统和传感器系统需要和数百甚至数千公里之外的其它系统联接，因而给敌方攻击和破坏计算机系统提供了可能。后果是航母可能失明，舰船本身及舰载飞机无法执行任务。更糟糕的是，航母的位置可能暴露而成为攻击目标，由于关键系统的瘫痪，航母还无法自卫。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-三是无人驾驶飞行器。当前无人机已经大量应用，巡航导弹就是自杀式无人机。由于航母防空能力的进步，载人飞机已经很难和以前一样击沉航母了。而无人机能够同时使用远程和近程武器，由于其超高的灵活性，对防空网络有压倒性优势，特别是它不需要担心生命安全，可以连带弹药与目标相撞造成航母致命伤害。相比于价值连城的航母，这太值得了。
 
-四是高超音速武器。高超音速武器己经开始在部队服役(中共国、俄罗斯和美国)。与传统弹道导弹不同，高超音速导弹可以从距离目标更近的太空轨道发动袭击。又由于速度太快和可以变轨，传统拦截手段很难对其奏效。更可怕的是，超高音速导弹可以搭载核弹头。
 
-五是轨道轰炸系统(上帝之杖)。航母本身不能隐身但有机动性的优点，但配备钨棒或其他类型动能武器的卫星，可以找到航母并对其攻击，但敌方无法利用网络干扰来阻止动能攻击。即上帝之杖仅使用动能，就可以击沉航母，或使其无用。
-航母是一国国力的象征，被当作对地缘政治施加影响或对外侵略的工具。由于反航母技术的快速提升及多路径发展，航母的脆弱性已经显现，或许在不久的将来它将不堪一击并退出历史舞台。
+*[国家利益](https://nationalinterest.org/blog/reboot/us-navy-destroyers-could-soon-launch-hypersonic-missiles-178786)*2月24日报道，美国海军驱逐舰将很快具备“穿透现代敌人防空”的超高音速导弹打击能力。对于海军舰艇来说，拥有这种战略攻击能力意义非凡。这项在驱逐舰上应用的技术来源于美国空军的DARPA/空军程序，称为战术助推滑翔程序。
 
-今天谈论的航母现状确实为我们带来了警示灵感。以往人们总是对科技的飞速发展津津乐道，但现在更多的人因此产生了重重疑虑，杀人武器在不受道德约束、国际法形同虚设或滞后的情况下，拼命开发并快速发展，对人类形成越来越大的生存威胁。人类文明就象一艘行驶在风雨飘摇大海中的航母，随时有可能被击沉。特别是当毁灭性武器掌握在CCP这样的恶魔手里而不用担心被反制时，人类将危在旦夕。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/12-3.png)图源网络
 
-参考阅读：[https://nationalinterest.org/blog/reboot/worst-case-scenario-five-ways-enemy-could-sink-us-aircraft-carrier-178691](https://nationalinterest.org/blog/reboot/worst-case-scenario-five-ways-enemy-could-sink-us-aircraft-carrier-178691)
+DARPA的说明书介绍，该武器系统包括将火箭加速到高速。当助推器与有效载荷分离时，导弹将以每分钟60英里向地球大气层外层移动。穿过大气层后，导弹以7马赫以上的飞行速度（每小时8800公里以上）“无动力滑翔到目的地”。导弹起飞速度则高达5马赫（6125公里）。
 
-编辑/校对/发稿：天涯客
+海军普通驱逐舰拥有这种超远射程攻击能力，意味着仅仅依靠海上舰艇就能够对敌方产生战略威慑力。这样的舰艇可以远程摧毁敌人的陆地、海上和空中目标，包括但不限于军事设施、军营、无人战斗机，还可以进行快速反空拦截，在保护己方舰艇方面优势巨大。由于具有超远打击能力，可以将舰艇放置在敌人难以侦测或无法打击的安全海域。
+
+编辑/校对/发稿：Irene木木
 
 更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
- 更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
- 更多香草山节目资讯，欢迎登陆[G|TV — MOS Talk香草山访谈](https://gtv.org/) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
- 圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-+1
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
+
+
+
+0

@@ -1,15 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年2月24日 文贵先生盖特
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/931582/)
+## 澳通过新法迫使脸书和谷歌为新闻内容付费
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/931660/)
 
-编辑整理：美东香草山农场（彩虹桥）
+俄罗斯莫斯科喀秋莎农场   银河
 
-2月24号：这是共产党的依法抢劫的一贯手段，感谢智慧伟大的战友们……看到你们的留言非常的感动，请你们记住没有人可以抢走盘古，还有中原佛手，因为我们是新中国联邦人,最终一切都将归还到我们的手里。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/9b36e36ba27ae3aca6dd39b431a28744.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/6e22981be3b3b89b04c60b77814d57bb.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/4e2106b0442bd517682e5ac6b3c775b9.jpg)
-[【2021年2月24日】文贵先生盖特原文](https://gtv.org/getter/60371b6f1958515902371825)
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-25_07-22-32.jpg)[theglobalcoverage.com](https://theglobalcoverage.com/2021/02/19/will-facebook-and-google-pay-for-news-in-australia-tech-giants-vs-aus-govt/)
+英国《每日邮报》2月24日报道澳大利亚通过了一项全球首创的法律，要求谷歌和脸书（Facebook）为提供新闻内容的媒体机构付费。这两家科技巨头已经与一些澳大利亚最大的新闻公司达成了数百万美元的协议，更多的谈判正在进行中。
 
-喜联盟**Gnews**编辑部
+周四，该法案在两党支持下获得通过。此前，脸书屏蔽了澳大利亚的新闻以示抗议，政府在最后一刻做出了一些改变。周三修正案宣布后，脸书同意恢复澳大利亚新闻页面。这些变化给了科技公司额外的时间来与出版商谈判，如果它们通过提供足够的现金为新闻业做出“重大贡献”，它们就可以避开规定。
 
-+1
+批评人士称，政府已经“屈服”于脸书首席执行官马克•扎克伯格的欺凌，但竞争监管机构负责人罗德•西姆斯表示，这些变化只是澄清了脸书的一些“误解”。脸书负责全球事务的副总裁、英国前副首相尼克•克莱格(Nick Clegg)对这一变化表示欢迎， 他在一篇博客文章中写道，值得庆幸的是，经过进一步讨论，澳大利亚政府同意做出改变，这意味着鼓励公平谈判，而不存在迫在眉睫的高压和不可预测的仲裁威胁。
+
+澳大利亚的新法律旨在解决大型科技公司之间的巨大权力失衡。过去10年，仅在澳大利亚，就有数千名新闻工作者和数十家新闻机构失去工作，原因是该行业的广告收入流向了数字媒体。谷歌和脸书带头反对这些变化，担心这会开创国际先例，威胁到它们的商业模式，但上周放弃了，并开始与媒体进行交易。
+
+随着欧盟、加拿大和其他司法管辖区采取行动对该行业进行监管，脸书和谷歌仍面临不得不与世界各地媒体达成协议的前景。
+
+自从谷歌和脸书在上世纪出现以来，它们基本上不受监管，已经成长为世界上最大、最赚钱的两家公司。但有关虚假信息、侵犯隐私、收集数据以及它们对在线广告的虚拟垄断的一系列丑闻，已经引发了监管机构的关注。
+
+英国议员朱利安·奈特(Julian Knight)表示，脸书似乎是在把澳大利亚作为民主国家对新闻被禁的反应的“测试案例”，并呼吁世界各地的立法者让这家科技巨头“就范”。
+
+参考链接：
+
+[https://www.dailymail.co.uk/news/article-9297255/Australia-passes-world-new-law-forcing-Facebook-Google-pay-news.html](https://www.dailymail.co.uk/news/article-9297255/Australia-passes-world-new-law-forcing-Facebook-Google-pay-news.html)
+
+0
