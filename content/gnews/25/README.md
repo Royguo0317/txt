@@ -1,31 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美要求格鲁吉亚各方不要采取暴力行动
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/930976/)
+## 美加同意协调与中共国竞争的方式
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/930988/)
 
 俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
 编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-24_21-13-37.jpg)[wiadomosci.onet.pl](https://wiadomosci.onet.pl/swiat/nika-melia-zatrzymany-w-tibilsi-nie-wniosl-oplaty-za-kaucje/xnnm8kv)
-02月24日，美国对格鲁吉亚反对派人士被拘留表示关切，并呼吁各方不要采取暴力行动。美国国务院在声明中说。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-24_21-19-45.jpg)[nesaranews.blogspot.com](https://nesaranews.blogspot.com/2016/01/the-new-republic-does-that-possibly.html)
+02月24日，美国和加拿大将协调行动，以更好地与中共国竞争。中共反映出对其利益和价值观的威胁。这是美国总统乔·拜登在与加拿大总理贾斯汀·特鲁多举行视频会晤后说的。
 
-美国务院发言人内德·普莱斯在一份声明中说，“我们呼吁各方避免采取可能导致进一步升级的行动，真诚地进行谈判，以解决当前的政治危机。”
+拜登说，他与特鲁多讨论了美洲和世界各地“关注的问题”。“这包括协调我们的方式，以更好地与中共国竞争，更好地保护我们的价值和利益。”
 
-普莱斯还表示，华盛顿对反对派联合民族运动党主席尼基·梅利亚（Nika Melia）被拘留一事“深表关切”。
+拜登还表示支持加拿大要求释放在中共国被拘留的加拿大人迈克尔·科夫里格（Michael Kovrig）和迈克尔·斯帕弗（Michael Spavor）。
 
-梅利亚于2月23日被拘留。他被控在2019年夏天组织袭击议会大厦。该政治家被保释。
+中共国执法部门于2018年12月拘留了前外交官迈克尔·科夫里格和企业家迈克尔·斯帕弗。他们被指控窃取对中共国国家利益有重要意义的信息。这件事发生在中共国华为CFO孟晚舟在温哥华被扣押之后。孟被指控试图规避美国对伊朗的制裁，华盛顿坚持要求渥太华将她引渡到美国。
 
-警方表示，梅利亚被拘留时，市民聚集在“民族联合运动”办公室门前和大楼内，抗拒执法人员，因此执法人员对他们使用了武力和特殊手段。据《Rustavi 2》电视频道说，他们使用了催泪瓦斯。
-
-据《今日格鲁吉亚》报道，警方在对反对派联合民族运动党办公室的突击检查中拘留了21名支持者。所有被拘留者后来都被释放。
-
-梅利亚是格鲁吉亚前总统米哈伊尔·萨卡什维利（Georgia Mikhail Saakashvili）创建的联合民族运动党的领导人。该党执政时，萨卡什维利是国家元首。2012年，它在议会选举中失利，成为反对派。
-
-2019年夏天，俄罗斯国家杜马代表谢尔盖·加夫里洛夫（Sergei Gavrilov）取代议会议长的位置，召开了东正教议会间大会全体会议，开始了对议会的冲击。会议本身是以俄语进行的。这导致了抗议活动，期间有几百人受伤。
+此前，拜登表示，美国最大的竞争对手是中共国。他还说，鉴于来自中共国和俄罗斯的“战略挑战”越来越多，美国必须更新其国防重点。
 
 参考链接：
 
-[https://www.rbc.ru/rbcfreenews/603594819a7947df5de70639](https://www.rbc.ru/rbcfreenews/603594819a7947df5de70639)
+[https://www.rbc.ru/rbcfreenews/60359da79a7947e02bc775ca](https://www.rbc.ru/rbcfreenews/60359da79a7947e02bc775ca)
 
 0
