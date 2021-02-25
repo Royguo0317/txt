@@ -1,65 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生感谢战友们的信任和分享承担责任的快乐
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/932699/)
+## 【世事解评】为什么中共不代表中国人（3）
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/932728/)
 
-新闻简述：郭先生在继2月20日的给参与VOG和原凤凰农场投资战友的重要声明直播[1]之后，于2月21日发布盖特视频，跟战友分享了他宣布帮战友解决困难之后的喜悦心情，他也透露：“第一天我就想要这么做。这一点，我听了律师意见。七哥要有这个智慧，不能那么做。第二，七哥也钓鱼啊，是吧？咱得多钓钓鱼啊，钓钓鱼，同时也跟战友们健健身嘛，也健健心，是吧？战友咱们之间也互相考验考验。”
+作者：纽约香草山写作组 霍比特人
 
-参考链接：[1] [https://gtv.org/video/id=60311c9c047c4c3086d6f834](https://gtv.org/video/id=60311c9c047c4c3086d6f834)
-[下载字幕](https://gnews.org/wp-content/uploads/2021/02/Miles_20210221_Getter1.srt.txt)
-**郭先生感谢战友们的信任和分享承担责任的快乐**
+上次我们说到中国是由中共控制的“党国”，而不是由议会和政府管理的正常国家。这是明文写在中共国的宪法里的。
+![CCP is not equal to Chinese]()![CCP is not equal to Chinese](https://gnews.org/wp-content/uploads/2021/02/114-1-1.png)
+尽管中共国的所谓议会的选举只是作秀，可是毕竟还有个形式上的选举存在。而说到中国的实际统治者，中共，就连一个作秀的假选举都不存在。
 
-**Miles Thanks for the Trust of Fellow Fighters and Shares the Happiness of Taking Responsibilities for Others**
+中共党员和党内干部是提拔制，而不是选举制。
+这有点像选秀，选手是由评委选拔的，而不是观众投票选出的，即使是作秀的选举也不存在。每隔一到两年，一个党支部书记通常会观察寻找“合适”的人。他会把他看中的人叫来进行谈心，最后就会发展一到两个新党员。那么，什么样的人是“合适”的呢？据我的观察，合适的人必须符合三个标准：能干，聪明和忠诚。
 
-尊敬的战友们好！2月21号，很多战友说，今天七哥再直播一小会儿，我真的直播不了了今天！我锻炼完，还要[有]很多会要开，还要出去，所以抱歉！七哥今天是直播不了啦，没时间啦，非常的抱歉！我还得锻炼！兄弟姐妹们，千万别忘了健身呐！不要给自己的懒惰任何理由。今天的放弃，就是明天的失去。今天[有]再好的理由放弃，都是你巨大的失去。千万不要[放弃]，拜托了兄弟们。
+能干是很容易理解的。那么聪明是什么意思呢？是不是指技术好，职业能力强？从一定程度上讲这当然也算是聪明的一部分，但只是很小的一部分而已。在中共国，一个聪明的人知道他不能公开地、认真地反对共产党政府。你可以在私下里，开玩笑地挖苦党和政府，抱怨房子太小，物价太高，分配不均，接送孩子路太远，工资太低等。甚至支部书记本人也会加入你的讨论，和你一起抱怨种种工作生活学习各方面的不满意，但是不管是你还是书记，都不会在公开场合，在会议上当真把这些事情说出来，所以你和书记在中共国都算得上是聪明人。这样的聪明人，如果你很能干的话，你甚至可能会在没提出申请的情况下自动“被入党”。例如著名的足球运动员郝海东先生，他根本就没申请，突然就被告知他已经是党员了，中共国就是这么搞笑。我本人也是个政治上的不求上进者，直到进大学都还不是共青团员，同班同学中有个人已经是中共党员，当然同时也是团支部书记，当他知道我不是团员的时候乐坏了，这下他这个团支书可是有件事情做了，于是他一个人动笔起草，包办了包括申请书在内的所有文件，最后他跑到我们的寝室来大声问“\*\*\*入团了，大家还有什么意见吗？”我们寝室里的人都开玩笑地高声回答“我们不同意！”，他便高声回答道：“都同意了是吧，好，通过啦！”我当时就躺在自己的床上，这可笑滑稽的一幕直到今天记忆犹新。
 
-Hello, my honorable brother-in-arms (BIAs)! It’s February 21st. Many brothers-in-arms said they wanted me to broadcast for a little while, but I really can’t today! After I work out, I will have many meetings to go to, and I have to go out. So, sorry about that! Brother Seven has got no time to do live broadcast today. Deeply sorry! I still need to work out! Brothers and sisters, never forget to work out! Don’t give yourself any excuses for being lazy. Today’s giving up will result in tomorrow’s loss. Giving up for whatever good excuses you come up with today will make you lose big. Never ever give up, please, brothers.
+第三点，忠诚，是最最重要的一点。请不要误会，它并非指对国家的忠诚，甚至也跟对党的忠诚毫无关系。它指的是你对于介绍你入党的人，通常也就是支书本人，要绝对忠诚。你从此就是他的人了。当然，支书自己也必须要对他的介绍人，他的领导忠诚，他的领导也必须对领导的领导忠诚……最后，这条线索也许会追溯到习近平，王岐山或者江泽民，这就叫派系。当然，在你刚入党的时候你是无法知道自己属于哪个派系的。从入党开始，你就加入了某个派系，你必须对你所属的这个派系忠诚，否则你休想晋升，就只能永远做一个在底层做苦力的奴工头。你的领导，领导的领导当然也必须对上级忠诚。
 
-哎呀！看七哥，又帅，又老。哎呀！这人呐，千万别说过头话。小的时候成天说，我羡慕有白头发的人，[现在]白头发越来越多啦！很多战友说，[很多战友]给我发很多信息，[表达]感动感恩。不要感恩！确实，昨天我直播完以后，很多人攻击我。咱的合作者觉得我是疯子。
+一旦发生党内派系斗争，失败的一方的所有人都会受到牵连，受损的程度要看具体情况。派系斗争是入党之后永远的主题，因此叛变也就是永远的主题。你可以通过拍上级的马屁为上级卖命而得到升迁，也可以通过把他出卖给政治对手而转投其他阵营而获得升迁。这在中共国叫作“站队”。选边站队是永恒的主题，每当此时，所有的党内干部都会紧张得吃不下睡不着，因为这真的是非常残酷的。
 
-Aiya! Look at your Brother Seven, handsome and old. Aiya! Never overstate anything. When I was little, I always said that I admired people with gray hair, but now I’ve got more and more of it! Many brothers-in-arms told me or sent me messages, expressing how they have been moved and showing their gratitude. Save your gratitude! Indeed, after my live broadcast yesterday, many people have attacked me. My partners thought I was a lunatic.
+小结一下：党员以及党内干部是被选拔的，而不是选举产生的，为了发展自己的势力，支部书记会观察并选择“合适”的人，然后通过谈心来把他发展为新党员，同时也是自己的新手下。
 
-七哥从小到大都是被怀疑。郭骗子、郭疯子、郭三秒，还有啥呀？郭没钱，伴随着我的一生。我特别感谢郭骗子这个词儿，因为它始终告诉我，那个方向我不要去。它永远纠正[着]我，特别特别的好。但是兄弟姐妹们，这个世界上能跨过那个线的人，太少了，太少了。
+支部书记会很贴心坦诚地跟你聊入党后的种种好处：更多升迁的机会，更多的工资，社会地位的上升，有机会得到更好的住房条件。党支书不仅是你的领导，他还会试图在你和他之间建立一种类似师徒或者父子的关系，试图让你把他当作师长，虽然这种努力通常都不会成功。这像不像黑帮？很像，对不对？
 
-I have been doubted since I was young. “Fraudster Guo”, “lunatic Guo”, “three-second Guo”, what else, “penniless Guo”, – these names have accompanied me throughout my life. I specifically want to thank for the name, “Fraudster Guo”, because it always reminds me not to go that direction. It has always been correcting me, which is so fantastic, but brothers and sisters, very few people in this world can reach that state.
+中共很聪明，他们知道他们需要大量人手来承担海量的日常具体工作，因此绝大部分基层党员都是因为吃苦耐劳，工作能力强而被选拔入党的，除了少数虽然工作能力强但是却公开有反党言论的人（这些少数派通常会被排挤遭受打压而度过苦难的一生）。这也就是我为什么认为中共的基层党员一般都是好人。所谓好人就是勤劳能干，待人诚恳，有耐心，有人情味。要我说，他们最大的缺点，就是不敢对中共的入党劝说（某种程度上也是威胁）说“不”。这也不难理解，面对武装到牙齿的中共，谁敢随便说“不”呢，看看89六四的天安门。这些海量的基层党员承担着绝大部分繁杂的具体工作，直接和14亿人民打交道，相对于他们的工作而言，他们的工资并不高。而当中共对人民进行压迫的时候，这些基层党员在一定程度上像橡皮垫层一样起到了缓冲的作用。如果说中国人民是中共奴役的奴隶的话，这些基层党员只是高级奴隶而已。
 
-文贵不值得任何战友们说感恩和感谢，我们是平等的。凭什么[由于]你们相信七哥，就应该享受苦难呢？凭什么你们因为相信，就失去那么多呢？特别是[有的]战友有老人有孩子，哪有那么多时间[去]对付这个九指妖去。这种魔鬼，它利用了我们的信任和善良。它应该受到更猛烈的，最严厉的美国法律的惩罚。不是每个战友，都有这个能力，有这个时间。所以说[这是]七哥应该做的。在法律上，在现实当中，七哥没这个责任。从感情上，七哥必须这么做。所以说兄弟姐妹们，你们不要说感激感恩。这么多信息，我看不完啦！
+但是入党只不过相当于选秀的“初选”，在初选过后，真正的权力的角逐才刚刚开始。初选时支部书记多少是比较主动的，而新党员多少有点被动，但是一旦新人入了党，支部书记就不着急了。现在他有了更多的人手，他可以更加从容地继续他的贪污受贿、中饱私囊、少做多拿，而让手下去承担繁重的具体工作。我记得在1998年，国内最后一次福利分房截止前，我所在的工厂里我认识的几乎所有科级干部都恬不知耻地给自己分了一套住房，这相当于免费给了自己一笔巨款（通常超过普通中国人一生的积蓄），这不是福利分房，这是抢劫。如果你对此忍气吞声，你就注定只能一辈子是个“苦力”党员，就像我父母那样。要是你不能忍受这样的不公平待遇，那么就只有一条出路：你自己“努力”成为一个科级干部。
 
-I, Miles, don’t deserver gratitude from any BIA. We are equal. Why do you have to suffer because you have trusted Brother Seven, and why do you have to lose so much because you have believed in me? Especially those BIAs who have kids and elderlies, how can they find enough time to deal with this nine-finger demoness? Demons of this kind have used our trust and kindness, so they should bear harsher, perhaps the strictest punishments according to US law. Not every BIA has the ability and the time for this. This is what Brother Seven should do. Brother Seven has no liability by law or in reality, but from the heart, Brother Seven must do this. So brothers and sisters, you don’t need to express your gratitude. So many messages, I can’t read them all!
+显然，不是所有人都能淡泊名利抵制诱惑的。有些有雄心的人便也想获得这种能用权力夺取他人财富的地位。于是，从普通党员爬到科级（相当于军队里的连级），然后再到处级（营级），局级（团级），副部级（师级），部级（军级）等等，一直往上爬的权力之路就开始了。你将必须不断出卖良知，变得越来越无耻，越来越邪恶。地位越高，人品越坏。为什么呢？道理很简单，你是被上级提拔的，而不是人民推选的，所以你只能拍上级的马屁。吃苦耐劳逆来顺受这是最基本的啦，你还必须要帮着领导贪污受贿，挪用公款，造假弄假文凭假职称，给领导找女人找乐子，而所有这些都是花公款或者敲诈私企老板的钱。我举一些具体的事例吧。
 
-这就是我们中国人所必须拥有的。不能像共产党一样。需要别人的时候，就让别人信任你；不需要的时候，或者需要别人承担责任的时候，你就把信任一脚给踢开，[把信任]当成利用的工具。你不能说，你需要别人的时候，你让别人100%信任你，当需要你来给个公平和帮助的时候，让你讲信任的时候，你就完全忘掉了你过去的承诺。这不但不公平，[也]是不道德的。共产党的欺弱怕强，在中国几十年了。我们不能说，Sara九指妖这种坏人、龟头洋陈其生这帮孙子，还有魏修竹，这种坏人，我们怕他？让战友们去受虐，不可以的！坏人交给七哥，这是必然的。
+受贿的一个典型套路是这样的。某位领导要来视察一家公司了，你要帮他事先联络好，领导来的时候会一路骂，这个不好那个不好，被检查的公司经理只管点头认错，等到有一个机会，比如领导要上厕所，经理便马上跟进去给领导拎包，在领导方便的时候往空包（当然是空包啦）里塞进一叠钞票（经常是以十万为单位）。等他们两个从厕所出来，领导继续骂，经理继续点头表示接受批评，一切都已经搞定了，而帮领导联络的你也就为领导立下了功劳。这类事情我亲身经历过N多次了，没啥稀奇的。
 
-This [the courage of taking responsibility] is what we Chinese must have. We can’t be like the CCP, who asks for people’s trust when it needs others, and when it doesn’t need others or it needs others to be the scapegoat, it will kick away trust in no time, treating trust only as a tool. What you shouldn’t do is when you need others, you let them trust you 100%, and when they need you for your fairness and help or need you to prove your trustworthiness, you totally forget your past promises. Not only is it unfair, it’s also immoral. The CCP has been bullying the weak but being afraid of the strong in China for decades. Bad guys like Sara, the “nine-finger demoness”, and the SOBs such as Chen Qisheng, the “penis-head Yang”, and also Wei Xiuzhu, are we afraid of them? No! It’s not okay to let BIAs suffer. Let me handle these bad guys. I have to.
+除了钱，行贿的另一个形式就是性。我的一位朋友曾经亲身经历过，陪领导到地方党委的一个秘密俱乐部去行乐。那是一个山中别墅，他们一行人走到玻璃大门口，我朋友看到门里面站着全身赤裸的迎宾小姐热情地给他们开门，然后当然，那里有一堆裸体的女孩儿，领导们度过了愉快的一晚，而所有的费用都算作餐饮费。我可以诚实地告诉大家，所有性的消费基本上都是打在住宿费和餐饮费里面作为公款报销的（花纳税人的钱），这也是官方酒店住宿费昂贵的原因之一。你将不得不经常想办法给领导安排比他们的女儿甚至孙女还要小的女孩儿。至于说有的下属甚至贡献自己的妻子、女儿给领导以图晋升，虽然我没有亲自见证，但是绝对相信这种情况是存在的。
 
-我特别享受，虽然受到很多挑战，但是七哥很享受。律师这就又发信息来，让我跟他今天开会。我就是不跟他开，咋的？他能咋的你七哥啊？是不是？七哥做完了[这个]决定，醒来，天不[还]是天，地[不还]是地吗？谁能咋地呀？是不是？干了坏事，你今天不一定[能]那么舒服；干了好事，我老舒服了。多少战友啊！这个九指妖骗了8000个人，那就是，甚至是几万个家庭睡不着觉！七哥一人承担，多少人睡着觉，多少人踏实，而且你们就尽管去憧憬着美好的未来。不会超过两个月，你们会有更加切实的利益和感受。否则的话，[他们]伴随着痛苦[得]多长时间啊？七哥一人承担了，这么多人幸福，值不值？值得呢。我就在想，我这一辈子能有这样的承担，能让那么多人幸福，这是多美好的事？很多人不珍惜，不懂得，我特别珍惜。
+行贿的方式实在是太多了。珠宝、豪车、房产、股份等等。但是贿赂毕竟只是关系到钱，并不关系到身家性命，而派系斗争就非同小可了，那可真不是闹着玩的。我亲眼见证了我的兄弟背着领导暗中串联，每天打几个小时的电话，最后把领导出卖了，自己爬上了一个台阶，但是他为此付出了终身的代价，从此以后仕途处处受阻，再无出路。派系斗争真的是很可怕的。我在工厂工作的时候，一位长期在香港潜伏充当中共耳目的老党员回来之后被提拔了，随即就遇到了他的领导和另外一个领导之间的斗争，他长期在外，对厂里情况不了解，弄不清这里面的水深水浅，而又不敢贸然向别人去打探，那个焦虑啊，真是团团转。一天他拉住我到他办公室里一边抽烟一边跟我聊天，实际上是倒苦水。他没人说话，只能找我这个只知道埋头技术的无党无派不参与任何斗争的年纪轻轻的理工男发泄牢骚，真是可怜啊。
 
-I enjoy this so much. Although I’m facing many challenges, I enjoy it. My lawyer has just sent messages, asking me to meet with him. I just won’t meet him, so what? What can he do about your Brother Seven? Right? After I made the decision and woke up, the sky was still that sky and the earth was still that earth, right? Who can change that? Right? If you do a bad thing today, you won’t feel this good, but I’ve done something good, so I feel really great. So many BIAs have been cheated by this nine-finger demoness! Eight thousand people, which means tens of thousands of families can’t sleep well! I, Brother Seven, taking the responsibilities can make so many people sleep well and rest assured that they can have the wildest dreams about their wonderful future. In no more than two months, you will see real benefits. If [I didn’t do it], for how long will they be accompanied by agony? Brother Seven, just me, one person shouldering the burden will make so many people happy. Is it worthwhile? Yes, it is. I am thinking how beautiful it is if I take this responsibility so as to make so many people happy. What a wonderful thing! Many people don’t cherish this opportunity or understand it, but I really do.
+那么，我们总结一下。中共发展了多达九千万的基层党员做苦力，为他们处理繁重复杂的日常工作，然后，在这个基础上，真正的权力斗争才刚刚开始。所有野心勃勃的人都使出吃奶的气力，出卖良知无恶不作地往上爬，位置越高，人越邪恶，同时也越狡猾。而处在权力顶端的江泽民、王岐山、孟建柱这些，就不必再多说了，文贵先生已经揭露得非常彻底了。这就是中共的权力结构，这不是黑帮是什么？中共国不是一个国家，而是一个黑帮地盘，14亿中国人民（包括九千万基层党员）是被他们武装绑架的受害者，而掌握着军队拿着枪的中共权贵则是一群罪犯，是一个组织严密庞大的犯罪组织。那么，罪犯怎么可能代表受害者？这是何其荒唐，又是何其可悲啊！
 
-我感谢战友们曾经给我的信任，再一次考验了七哥，到底应该是信奉什么，也让我更坚定正道主义。还有里面很多战略战术的事，七哥还没说呐，等哪天我直播说了，吓你们一大跳！这里面是有战略战术的，兄弟姐妹们。为啥是昨天说呀？为什么第一天不说？第一天我就想要这么做。这一点，我听了律师意见。七哥要有这个智慧，不能那么做。第二，七哥也钓鱼啊，是吧？咱得多钓钓鱼啊，钓钓鱼，同时也跟战友们健健身嘛，也健健心，是吧？战友咱们之间也互相考验考验。
+而现在，在成功地绑架了全中国人民之后，他们的野心更加膨胀，开始要欺骗全世界控制全世界了。我们把这个话题留到下一次再讨论吧。（未完待续）
 
-I want to thank the BIAs who have given me trust, which has tested me for what my belief is, and also held me steadfast to the rule of righteousness. I, Brother Seven haven’t really talked about the strategies and tactics involved, which I will tell you someday through my live broadcast as a big surprise! There are strategies and tactics involved, brothers and sisters. Why did I make the announcement yesterday? Why didn’t I say it on the first day? I wanted to do that the very first day, while I listened to the lawyer’s advice. I had to have the wisdom of not doing it that way. Secondly, I needed to do some “fishing”, right? I needed to “fish” a little longer, and in the meantime, I could exercise my body and mind with the BIAs, to allow our BIAs to test each other out, right?
+编辑/校对/发稿：天涯客, 审稿/合作者：Helen
 
-你们无法想象啊，没有一个战友责备我。没有一个人这样说，七哥，因为你，我被骗了。一个都没有！这 8000 个人也好，几万个人也好，七哥得到了多高的信任，多高的尊重？七哥要不做这个事情，我这良心就大大的坏了。人生啊，谁要懂得做好事的快乐的时候，你就真的是修成正果了！就得到了清凉的法喜，破掉了你的缺漏，征服了贪嗔痴慢疑。那这个愉悦和清凉是真的不能言语，妙不可言！我们一起奋斗吧，兄弟姐妹们。人生无限的美好，但是都是建立在善良之上。没有一个美好，是建立在欺骗、作恶、伤害他人［之上］。永远的，在任何地方，任何国家，任何时间。
-
-You can’t imagine that not even a single BIA has blamed me. No one has told me anything like this, “Brother Seven, I’ve been scammed because of you.” Not even one! Whether it’s 8,000 people or tens of thousands of people, I have gained so much trust and so much respect! If I don’t do this, I will be the worst guy with no conscience. If one knows the joy of doing good in his life, he has truly “come to fruition”, obtained cool and clear pritijanana, remedied his omissions, and conquered his ignorance, egoism, attachments, aversions and anxiety. So, this clear and cool joy is so magical, beyond any words can describe. Let’s strive together, brothers and sisters. The happiness in one’s life has no limit, but it’s all built on conscience. No good things are built on decisiveness, evilness or hurting others. This is forever true, in any place, any country, at any time.
-
-九指妖等人，他们将面临着绝对的监狱［刑罚］，甚至［他们］是一生都坐不完。那条路是多么的危险！永远记住，法律的红线，道德红线，永远不要碰。不说了，俺得继续锻炼，中不中，兄弟姐妹们？Okay？
-
-Nine-finger demoness and others will face imprisonment for longer than their lifetime. That path is too dangerous! Always remember, never cross the red line of law and morality. Will say no more. I have to keep working out. Are you okay with that, brothers and sisters? Okay?
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-
-视频来源：[https://gtv.org/getter/60328ad31958515902362bc8](https://gtv.org/getter/60328ad31958515902362bc8)
-
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/925050/](https://gnews.org/zh-hans/925050/)
-
-翻译：【guocamole(文金欠)】校对：【Isaiah4031】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
-
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+更多香草山节目资讯，欢迎登陆[G|TV — MOS Talk香草山访谈](https://gtv.org/) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+ 
 0
