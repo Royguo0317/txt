@@ -1,82 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 港澳办主任夏宝龙提出“爱国者治港”
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/932345/)
+## 2/25/2021 财经快讯：习总宣告脱贫攻坚取得胜利；海外版抖音内容审查“成效显著”
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/932473/)
 
-*新闻来源：《卫报》| 发布时间：2021年2月22日*
+![]()![](https://www.gnews.org/wp-content/uploads/2021/02/Picture2-12.png)
+[图片来源](https://www.rfi.fr)
 
-*翻译/简评：叶知秋（文义） | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii*
+**1.贝克休斯、安盛集团和16家其它公司退出俄罗斯北溪2天然气管道工作**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/rgB77A0M0y10p/images/4d72a44c-f525-4167-925b-780162060d49.jpg?asset_id=4ebe9a57-8b78-473f-a454-2d2b520f09bf&amp;img_etag=%22bc3bcdef93981c14fc1cc6ea3255f136%22&amp;size=2560)](https://spark.adobe.com/page/rgB77A0M0y10p/images/4d72a44c-f525-4167-925b-780162060d49.jpg?asset_id=4ebe9a57-8b78-473f-a454-2d2b520f09bf&amp;img_etag=%22bc3bcdef93981c14fc1cc6ea3255f136%22&amp;size=1024)来自喜马拉雅设计组
+[华盛顿（路透社）- 拜登政府上周向国会发送的一份文件显示，贝克休斯公司（Baker Hughes Co) 和安盛集团（AXA Group) 以及其他16家公司最近退出了俄罗斯北溪2天然气管道的工作，不会受到制裁。
+俄罗斯能源公司Gazprom及其西方合作伙伴正在竞相建造管道，用于将俄罗斯天然气输送到德国，并希望今年完成。 而美国总统拜登认为，这条管道对欧洲来说是一笔”糟糕的交易”。](https://www.reuters.com/article/us-usa-nord-stream-2-companies-exclusive/exclusive-baker-hughes-axa-group-16-others-quit-nord-stream-2-pipeline-u-s-idUSKBN2AO285)
 
-***简评：***
+**2.海外版抖音2020年下半年删除了400,000与CCP病毒和美国大选相关的视频**
 
-**“爱国者”，一个在中共国有着独特意义的词语。台上把手放在宪法上宣誓的官员称自己是“爱国者”，然而他们却腰缠万贯，贪腐资产遍布世界各个角落；田间劳作的农民也会说自己是“爱国者”，然而他们却家徒四壁，老无所养！香港会问：爱国？国是谁的国？是你习近平的国？是你王岐山的国？是你林郑月娥的国？是你们贪官污吏的国吧？这样的国，如何爱？**
+[海外版抖音TikTok周三宣布，2020年下半年它在全球范围内删除了近9000万个视频。在这些视频中，有超过1100万个来源于美国；有约350,000关于美国大选和超过50000关于CCP病毒的误导信息视频被删除。](https://www.businessinsider.com.au/tiktok-removed-80-million-videos-including-misinformation-2021-2?r=US&amp;IR=T)
 
-**然而，香港从来不缺爱国者。大陆经济困难时期，香港人曾经接纳了几十万逃到香港的大陆人，帮助他们逃脱英政府的抓捕与遣返，给他们提供食物与药品，介绍工作；“六四”期间，香港很多民间人士秘密救助当时遭到中共政府抓捕的学生以及爱国义士，社会各界都有人站出来支持学生运动；1998年大陆洪灾，香港向内地捐款6.8亿，居世界第一；2008年汶川地震，香港捐款高达130亿港币…… 爱国不是爱政府，更不是爱党，而是爱这片土地，爱这个国家的人民，这就是香港的爱国者！那么，中共官员嘴里的“爱国者”是谁？很显然，是那些可以与他们沆瀣一气、欺压百姓的害国者，是那些拜服在他们的“蓝金黄”手段之下，一心只想着为自己的子孙后代谋私利的政治骗子！**
+评：这篇洗地的文章描述TikTok在删除视频方面做了很多“努力”，但绝口不提它删除这些所谓误导信息视频是否是按照它制定的标准进行的，TikTok能播放彭培奥公布的中共在新疆犯下的种族灭绝和反人类罪吗？
 
-[!\[\]()!\[\](https://spark.adobe.com/page/rgB77A0M0y10p/images/cce643ef-15c7-44a2-a617-22e5ae79a29d.jpg?asset_id=6a62f221-5b60-4e26-87e8-6df2f16309ed&amp;img_etag=%22b9eff205dec52ebb879d4a37ad12dcdd%22&amp;size=3268)](https://spark.adobe.com/page/rgB77A0M0y10p/images/cce643ef-15c7-44a2-a617-22e5ae79a29d.jpg?asset_id=6a62f221-5b60-4e26-87e8-6df2f16309ed&amp;img_etag=%22b9eff205dec52ebb879d4a37ad12dcdd%22&amp;size=1024)
+**3.印度交易所四小时停运，交易员面临”浩劫”**
 
-**郭文贵先生一直说，香港是中国人的圣城。香港人与强权作斗争的行动，香港人看透中共的假恶丑、不与邪恶为伍的精神，香港人至死都不妥协的斗志向我们诠释了圣城的意义！香港人用实际行动告诉世界华人“爱国者”三个字的意义，那些邪恶政权的拥护者，永远不会懂！**
+孟买（路透社）-印度最大的交易所周三关闭了近四个小时，据说是由于电信网络故障，该网络运营商因缺乏透明度而引起了交易员的怒火，他们说这一问题造成了”绝对的破坏”。交易所像往常一样在当地时间上午9:15左右开盘，但交易员表示，其主要指数的价格在大约一个小时后停止更新。上午11:40，交易所完全关闭交易，这让交易员非常担心他们的未平仓头寸。
 
-***原文翻译：***
+[https://www.reuters.com/article/us-india-exchange-traders/indian-traders-face-absolute-havoc-as-bourse-suffers-four-hour-outage-idUSKBN2AO1ZQ](https://www.reuters.com/article/us-india-exchange-traders/indian-traders-face-absolute-havoc-as-bourse-suffers-four-hour-outage-idUSKBN2AO1ZQ)
 
-# **填补漏洞，只有“爱国者”才能管理香港——中共国官员**
+**4.墨西哥获得紧急液化天然气供应**
 
-**投机心理助长中共国试图封锁反对派候选人并重置司法机构**
+[墨西哥城/纽约（路透社）- 由于来自美国南部，特别是邻近的德克萨斯州的天然气供应受到管道冻结和寒流造成的打击，墨西哥国营电力公司Comision Federal De Electricidad (CFE)上周向外界求助液化天然气进口。目前包括Trafigura在内的石油贸易公司正在向墨西哥提供紧急液化天然气供应，以克服因美国天然气供应中断而造成的电力危机，三位知情人士表示。](https://www.reuters.com/article/us-mexico-lng-traders/traders-including-trafigura-supply-mexico-with-emergency-lng-sources-idUSKBN2AN2FJ)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/rgB77A0M0y10p/images/ef2ac552-9b53-4625-a8ac-4448c53ff693.png?asset_id=65038bcf-f145-494b-bc49-a397f6d1a092&amp;img_etag=%22c7532a80f9d5b15b379fd318c822af08%22&amp;size=2560)](https://spark.adobe.com/page/rgB77A0M0y10p/images/ef2ac552-9b53-4625-a8ac-4448c53ff693.png?asset_id=65038bcf-f145-494b-bc49-a397f6d1a092&amp;img_etag=%22c7532a80f9d5b15b379fd318c822af08%22&amp;size=1024)夏宝龙：“爱国意味着爱中华人民共和国。”摄影：Imaginechina Limited / Alamy Stock Photo
+**5.巴西放弃与加拿大的航空争端，寻求全球补贴协议**
 
-一名中共国高级官员概述了确保只有“爱国者”才能治理香港的计划，因为北京试图遏制任何其他的民主反对派，以便于在香港如何管理的问题上发挥更直接的作用。
+[（路透社）- 巴西周四放弃了对加拿大飞机补贴的贸易投诉，并呼吁所有飞机生产国之间进行更广泛的谈判，以免走向航空贸易战，避开在世界贸易组织的争端。
+巴西是世界第三大飞机制造商巴西航空工业公司的所在地，这一举措正值较大的竞争对手空中客车公司和波音公司仍然被困在世贸组织的一场16年的争端中，该争端导致了针锋相对的跨大西洋关税。](https://www.reuters.com/article/us-brazil-trade-aircraft/brazil-drops-aero-spat-with-canada-seeks-global-subsidy-pact-idUSKBN2AI1XN)
 
-国务院港澳事务办公室主任夏宝龙发表的具有里程碑意义的讲话，是在中共国橡皮图章人大年度会议召开前两周发表的，越来越多的人猜测当局正在计划采取进一步措施来加强对香港的控制。
+**6.习总加速师庄严宣告：中共国脱贫攻坚战取得了全面胜利**
 
-夏宝龙在其办公室发表的讲话中说：“执行爱国者治港的最重要、最紧迫的任务是改善有关制度，特别是有关选举制度。爱国意味着爱中华人民共和国。”
+[习总加速师在全国脱贫攻坚总结表彰大会上发表重要讲话，庄严宣告，经过全党全国各族人民共同努力，在迎来中国共产党成立一百周年的重要时刻，我国脱贫攻坚战取得了全面胜利，现行标准下9899万农村贫困人口全部脱贫，832个贫困县全部摘帽，12.8万个贫困村全部出列，区域性整体贫困得到解决，完成了消除绝对贫困的艰巨任务，创造了又一个彪炳史册的人间奇迹！这是中国人民的伟大光荣，是中国共产党的伟大光荣，是中华民族的伟大光荣！](https://money.163.com/21/0225/11/G3M6NEEB00259DLP.html)
 
-香港从来都不存在民主制度，这加剧了对北京的抗议和不满。然而，直到最近，这座城市还拥有一种选择的表象，允许一些小规模、畅所欲言的反对派团体活跃在某些特定的地方选举中。
+评：什么时候脱，怎么算是脱，脱了多少都是习总说了算，真是滑天下之大稽！
 
-2019年，在规模宏大且常伴有暴力的民主抗议活动席卷整个香港之后，反对派政界人士在区议会选举中获得压倒性胜利，北京则对抗议活动进行了大规模的镇压。
+**7.沃尔沃汽车和吉利汽车宣布达成合并方案**
 
-去年中共国全国人大会议制定了一项内容广泛的《国家安全法》，该法将香港的许多异见人士定为非法，并从根本上改变了香港与威权大陆的关系。
+[2月24日晚，吉利控股集团发布消息称，沃尔沃汽车和吉利汽车宣布达成合并方案。双方将在保持各自现有独立公司架构、实现战略目标的同时，继续拓展合作领域，在汽车新四化（电气化、智能化、网联化、共享化）方面深化合作，发挥协同效应，真正实现业务整合的最大价值，强化科技优势，持续引领行业变革。](https://finance.sina.com.cn/chanjing/gsnews/2021-02-24/doc-ikftssap8546284.shtml?cref=cj)
 
-香港人正在密切关注下一次会议可能带来的后果。
+By 【金融组 – 小蚂蚁在行动】
 
-夏宝龙的评论暗示，北京正在努力确保没有任何反对派候选人能够参加香港有限的选举，并呼应中共国官方媒体持续数周的针对这一整肃的呼吁。
-
-他说，当局必须封闭可能令反华势力参政的漏洞。“改善有关选举制度必须由中央政府领导。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/rgB77A0M0y10p/images/e7d57cdd-39e0-4cc0-910f-029f3dccee5a.png?asset_id=1feed305-a0c2-42be-a025-bb6250e278d7&amp;img_etag=%22433c4398e7b587ac98c516c25832d9bc%22&amp;size=2560)](https://spark.adobe.com/page/rgB77A0M0y10p/images/e7d57cdd-39e0-4cc0-910f-029f3dccee5a.png?asset_id=1feed305-a0c2-42be-a025-bb6250e278d7&amp;img_etag=%22433c4398e7b587ac98c516c25832d9bc%22&amp;size=1024)“我们站在一起”，在反对派议员被议会驱逐后，整个香港反对派都退出了议会。
-
-夏宝龙还为如何造就一个“真正的爱国者”制定了标准，包括对中华人民共和国、其宪法和共产党的热爱。
-
-他补充说，司法部门也必须是爱国者——对于那些担心北京正在计划整顿香港独立法院的人来说，这可能是不祥的警告。香港独立法院是香港作为商业中心成功的支柱之一。
-
-在1997年香港移交给英国之前，中共国政府同意让香港以一种“一国两制”的模式保持一定的自由和自治50年。
-
-西方国家的政府和批评家指责北京在最近几年中撕碎了这一承诺。北京反驳说这是为了恢复稳定。
-
-选举改革将采取何种形式还有待观察。
-
-在法院以政治观点问题为由取消了一些反对派人事的资格之后，北京可能会进一步加强对这个经过一半选举产生的立法机关的管控，从而使得在一个没有任何反对派的议会里，它的支持者们拥有更加稳定的多数席位。
-
-这些管控也可能在区议会选举之后进行——这是香港人唯一一次可以投票选举每个席位。
-
-亲北京的香港立法机关主席梁安德（Andrew Leung）周一对记者说，夏先生“概述了在香港担任高级职务的人的红线”。
-
-香港行政长官林郑月娥对夏宝龙的讲话表示欢迎，并反驳了那些所谓不同的声音正在受到打压的忧虑。
-
-“如果必须使用打压这个词，那也是打压那些鼓吹香港独立的人，那些试图将香港推向暴力深渊的人，以及那些忘记血统的人，他们不承认自己是中国人，他们与外国政治组织勾结在一起来摧毁香港。”她说。
-
-**🔗[原文链接](https://www.theguardian.com/world/2021/feb/22/china-official-hints-at-electoral-reform-to-ensure-patriots-run-hong-kong)**
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/rgB77A0M0y10p/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/rgB77A0M0y10p/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+素材搜集: 文罡
 
 0

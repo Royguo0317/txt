@@ -1,76 +1,95 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拒绝做“鸡笼”里的白虎
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/931763/)
+## 汤姆‧科顿议员报告（三）——《战胜中共国：针对性脱钩与经济持久战》
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/931905/)
 
-作者：只有野草長的快 | 校对：仙女儿-文善 | 审核：宁缺 | Page:Daoiii
+五月花写作组 ｜ 翻译：紫丁香、虹陵 ｜ 校对：jiasen、伞兵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/02/汤姆克顿V3.jpg)Beat China: Targeted Decoupling and the Economic Long War 战胜中共国：针对性脱钩与经济持久战
+* * *
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JYWxpEy9NQM10/images/8ec6e324-872a-4745-b2cf-72d75addd2e7.jpg?asset_id=bbca9ce6-3c98-427b-a820-bcc84c6bce6a&amp;img_etag=%22b20ee8095c9c8f3466acbd532b2e0564%22&amp;size=1024)](https://spark.adobe.com/page/JYWxpEy9NQM10/images/8ec6e324-872a-4745-b2cf-72d75addd2e7.jpg?asset_id=bbca9ce6-3c98-427b-a820-bcc84c6bce6a&amp;img_etag=%22b20ee8095c9c8f3466acbd532b2e0564%22&amp;size=1024)
+### 往期链接：
 
-## 拒绝做“鸡笼”里的白虎
+[汤姆‧科顿议员报告序言——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/918314/)
 
-**——爆料革命战友解读影片《白老虎》**
+[汤姆‧克顿议员报告（一）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928067/)
 
-最近有幸聆听七哥（郭文贵先生）与战友们分享他对这部印度电影《白老虎》的深刻理解，在这之前我便观看过此片，记得当时就对主人公的宿命颇为感慨。在我的印象里，印度一直是一个愚昧落后，而且到处充斥着谎言与欺骗的无可救药的国家。然而，恰恰是这样一个被很多人蔑称为“印度阿三”的国家拍出了像《白老虎》这样有深度的电影。印度在某些方面的落后，是你无法想象的，例如印度人对随地大小便行为的视若无睹，在电影里便有这样一段演绎，主人公在光天化日之下在集市边上脱下裤子大便，却没有任何羞耻感，这真的不是艺术夸张，这就是底层印度人民生活的真实写照。但是我想说，正所谓择其善者而从之，其不善者而改之，我们不应该因为印度现代文明的落后而否定其民主自由的优势。像《白老虎》这样追求平等抨击当权者的影视作品在印度可以被自由的展现给观众是值得我们深思的，这至少说明了印度没有墙国内在文化界一手遮天的“广电总局”吧！与印度在艺术创作方面的自由土壤相比，我想中共国应该连盐碱地都不如吧！如果没有言论与思想的自由，那么有的便只是树碑立传与歌功颂德了，又何谈创作发人深省直击心灵的艺术作品呢？
+[汤姆‧克顿议员报告（二）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928136/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JYWxpEy9NQM10/images/0c40f2c0-8e2d-4fdd-8fbd-3ef988811118.jpg?asset_id=3d798995-ff74-4888-bd50-d98b2e28b896&amp;img_etag=%223bcc7a9fdea85d1e489da032890783b3%22&amp;size=3793)](https://spark.adobe.com/page/JYWxpEy9NQM10/images/0c40f2c0-8e2d-4fdd-8fbd-3ef988811118.jpg?asset_id=3d798995-ff74-4888-bd50-d98b2e28b896&amp;img_etag=%223bcc7a9fdea85d1e489da032890783b3%22&amp;size=1024)电影《白老虎》剧照
+* * *
 
-听了七哥对这部电影的一席分析，我着实受益匪浅，于是便有了要写一篇对于这部电影的理解以及关于印度的一些亲身感受的文章的念头。这要从我的专业说起，我是一位从事电影工作的职业摄影师，2018年因为工作原因，需要在印度拍摄一个纪录片，历时一个月，让我有机会身处其中感受它的温度。从佛陀出生地到佛陀修行、开悟、弘法，到佛陀涅槃的地方我都走了一遍，一路的所见所闻，让我对印度有了全新的认识。我们每天遇见最多的就是人山人海的乞丐，那是难以想象的。记得有一次我碰见一个怀抱婴儿的年轻女孩向我乞讨的情景，那个看上去也就刚刚出生几个小时的婴儿，连头上的几缕头发还是湿漉漉的。而女孩也就十五六岁的模样，漂亮，她一只手托着孩子另一只手伸向了我，睁着印度人典型的水汪汪的大眼睛望着我，女孩的一句流利的中文令我微微一怔， “给我点钱吧，吃饭，我很饿，给点钱吧，我很饿”，我的眼前是一个未成年的孩子抱着一个刚刚睁眼看世界的襁褓婴儿，我下意识的快速转过头，因为在那一瞬间我的泪水已夺眶而出，我明知道她大概率是一个骗子，可是这种悲伤不会因为她是一个骗子有丝毫削弱。我想，如果给她面包她是不会接受的，她只要钱，在印度生活的这一个月类似的事情我已经见得太多了，但凡有一点活路，谁愿意过这样的日子？我把口袋里的钱都给了她，大概两百多，对印度的底层民众来讲，这已经是一笔不菲的“收入”。
+## **SECTION ONE: The State of the U.S.-China Economic Relationship **
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JYWxpEy9NQM10/images/809347b0-244a-4aa2-8e4e-ad9e13d93292.jpg?asset_id=a7d5ac9d-4622-419e-8324-60d019e4c828&amp;img_etag=%228ba5444329f2b35a5363e04c5fd99b3c%22&amp;size=1024)](https://spark.adobe.com/page/JYWxpEy9NQM10/images/809347b0-244a-4aa2-8e4e-ad9e13d93292.jpg?asset_id=a7d5ac9d-4622-419e-8324-60d019e4c828&amp;img_etag=%228ba5444329f2b35a5363e04c5fd99b3c%22&amp;size=1024)来源网络
+## **第一部分：中美经济关系现状**
 
-那一次印度之行的经历，每天的生活点滴都被我记录在了微信朋友圈里，可惜那个微信账号已经被中共永久性“和谐”掉了。我从开始对这个佛陀诞生的国度的向往，到后来的接触体验，又开始对这个国家产生厌恶，再到后来对它由浅入深的了解，便对它产生了深深的同情与思考。这一路的变化，让我对印度的感受是错综复杂的，正如影片中女主人公说的，印度大部分地区还在原始社会。《白老虎》这部电影在我的理解中，它确实做到了真实客观的还原了印度的现实状况，包括剧作中人与人的残杀，那不是艺术夸张，婆罗门、刹帝利这些高种姓可以无缘由的打死一个首陀罗低种姓的人。我从邀请我拍片的合作伙伴那里得知，高种姓杀死一个低种姓，代价大概就是两千元人民币的赔偿金。事实上，种姓制度早已在印度被英国殖民的时候就被废除了，然而印度人仍然墨守成规坚守陋习，这恰恰说明了如果百姓不知觉醒不懂自救，别人再想施救也是无能为力的。这让我联想到爆料革命，唤醒被中共愚弄的华夏儿女是我们一如既往在努力的，因为如果没有国人的觉醒，便没有真正的法制民主与自由。《白老虎》这部电影把印度高种姓低种姓之间的关系，印度人民的生活环境，印度的民主制度，高层之间的尔虞我诈等等，通过电影的形式一览无余的展示给了我们，通过小人物的视角看大千世界，真实，平凡，更直击心灵深处。我们常说艺术源于生活，但高于生活，我想说印度人的真正生活状态与《白老虎》这部电影所诠释悲惨的只有过之而无不及吧。中共国治下的电影业所缺失的正是西方自由国度与印度所拥有的，那就是自由表达的空间。单从《白老虎》这部电影的创作上来看，印度的创作自由是中共国治下的艺术家们可望而不可求的，可是每当我们赞赏或提及邻国印度的自由的时候，总会听到一些反驳的声音，诸如自由过了头就是散漫与野蛮，贫穷与落后。然而，正如我在文章开头所引用的孔子的话“择其善者而从之，其不善者而改之”，自由本身无错，民主也是当代文明不可或缺的，如果有真正的法制做基础，信仰做加持，这一切都会变得更加美好。
+The Chinese Communist Party (CCP) should be worried. The U.S.-China trade war and the coronavirus pandemic have shattered an elite narrative about the benefits of economic integration between our two countries. This account had dismissed China’s unfair and deceptive practices as irritations that would melt away once China reached the nirvana of political and economic liberalization. It also deemphasized national security interests in return for unevenly distributed economic gains. The narrative served to normalize the CCP’s rule, enable China’s rise, and deeply entangle our two economies, generating points of reliance—and leverage—in both directions.
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JYWxpEy9NQM10/images/9bf5db97-dc02-40a5-8f5f-dc627d3ead9e.jpg?asset_id=d2505a76-2ae8-444c-8761-97fb813827b2&amp;img_etag=%22b7b4b00ca5a1699d6c6ad6018114fce2%22&amp;size=1024)](https://spark.adobe.com/page/JYWxpEy9NQM10/images/9bf5db97-dc02-40a5-8f5f-dc627d3ead9e.jpg?asset_id=d2505a76-2ae8-444c-8761-97fb813827b2&amp;img_etag=%22b7b4b00ca5a1699d6c6ad6018114fce2%22&amp;size=1024)来源网络
+中国共产党（CCP）应该感到担忧。美中贸易战和CCP病毒大流行已经粉碎了精英们关于我们两国之间经济一体化好处的论述。这一说法忽视了中共国的不公平和欺骗性做法，只将其看作是一种困扰，认为一旦中共国实现了政治经济自由化的涅槃，困扰就会化为乌有。 它还淡化了国家安全利益，以换取分配不均的经济利益。这一论调服务于使中共的统治正常化，让中共国得以崛起，并使我们两个经济体深深地纠缠在一起，产生了双向的依赖点和杠杆作用。
 
-在中共国的体制下，人民不知不觉中已经被洗脑整整70年，从“毛语录”到“习思想”，这些种在百姓大脑里面的毒素是扼杀我们自由创作艺术作品的根源，追求精神自由的有识之士在中共国体制下寸步难行，我们需要觉醒，我们需要更多人的觉醒，我们需要全民觉醒，我们需要冲破自身的枷锁和限制，因为我们有拥有自由的权力！《白老虎》就是说的一个低种姓的底层人，冲破了所有束缚他们的枷锁和限制，蜕变成了高等人的故事，同时这部电影的价值也在于它客观的记载了印度的人文状态，我想对后人研究这段历史，这部电影也可以作为参考文献起到一定的佐证作用吧。
+China has developed into an industrial and technological powerhouse relatively unchallenged, with the aid of American capital, technology, managerial expertise, and market access. China undeniably needed the United States in order to hit its ambitious economic-growth targets. It’s less obvious that the United States needed China, yet it was conventional wisdom for decades that we did.1,2
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JYWxpEy9NQM10/images/39953a77-3c30-47be-9ecd-16339e88d86b.jpg?asset_id=292eb6cb-cdd5-4da3-8b9c-62f9e19ae784&amp;img_etag=%221622aff307841332c5ad2732247caa96%22&amp;size=1024)](https://spark.adobe.com/page/JYWxpEy9NQM10/images/39953a77-3c30-47be-9ecd-16339e88d86b.jpg?asset_id=292eb6cb-cdd5-4da3-8b9c-62f9e19ae784&amp;img_etag=%221622aff307841332c5ad2732247caa96%22&amp;size=1024)
+借助美国的资本，技术，专业管理知识和市场准入，中共国已发展成为一个在相当程度上未受到挑战的工业和技术强国。中共国无可否认地需要美国才能实现其雄心勃勃的经济增长目标。美国需要中共国的迹象并不那么明显，然而数十年来，我们需要中共国却成了一个常识。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JYWxpEy9NQM10/images/e399bf02-92a0-448a-a2a7-016198d228fa.jpg?asset_id=13ba55cb-33b8-4848-b52a-b7d78bab754e&amp;img_etag=%222a80e992d6b43b8f02c7456997a2fc47%22&amp;size=1024)](https://spark.adobe.com/page/JYWxpEy9NQM10/images/e399bf02-92a0-448a-a2a7-016198d228fa.jpg?asset_id=13ba55cb-33b8-4848-b52a-b7d78bab754e&amp;img_etag=%222a80e992d6b43b8f02c7456997a2fc47%22&amp;size=1024)
+President Nixon’s opening to China in 1972 followed from a calculated decision to cultivate a partner bordering the Soviet Union and to thereby drive a deeper wedge between Beijing and Moscow. What began primarily as a strategic calculation turned into a gold rush for U.S. businesses after Deng Xiaoping’s reforms. Following the Soviet Union’s collapse, with globalization ascendant and great-power politics seemingly in the past, American businesses promoted integration with China as an opportunity to offshore manufacturing and open China’s vast market to American goods, services, and capital. U.S. investment flooded China in the 1990s, helping transform its  largely backward economy, reliant on agriculture and decrepit state-owned enterprises, into a hub  of low-cost, low-value manufacturing.3 Deeper ties followed China’s 2001 accession to the World  Trade Organization (WTO).4 This economic relationship in turn created a powerful, new “China  Lobby” composed of those working to protect their China-related interests from national-security  hawks, human-rights activists, labor organizers, and protectionists who supported a harder line  against Beijing.
 
-从艺术表达方面来说，这部电影应该是顶尖的，电影的形式，演员的表演，整体的节奏，可以说是无可挑剔。每一个角色，哪怕只是一个路人，甚至只有一秒钟的镜头，都是那么专业的展现在镜头里，每一个细微的动作和眼神都有着它隐晦的寓意，这也是电影的高级之处。片名《白老虎》贯穿整部影片，与主题紧紧相扣。男主人公从一个身份卑微的食物链最低端的贱民蜕变成为食物链顶尖的主宰者，这在印度等级森严的制度下几乎是不可能的，然而，这一切的不可能在男主人公身上切切实实的上演了。电影里，男主人公和他的主人都象征着对向往和追求自由的群体，寻找价值的力量，只是最终主人输的一败涂地，而主人的奴隶实行了其所谓的成功。《白老虎》，我们不妨就把男主人公称作白虎吧，白虎的奶奶以及家人，和主人的父亲与哥哥是代表着印度人骨子里的传统，也就是所谓的“鸡笼”文化的全部。主人的夫人代表着自由民主平等，代表着一切的美好，影片中出现的中共国总理温家宝则代表着至高无上的权力，那位女性社会活动家和政客则代表着印度的腐败与不完美的民主制度。和我们每一个人一样，白虎一开始只是想改变自己的生活窘境，让自己过的好一点，不要再无休止的做着繁重而乏味的体力劳动，砸煤，他已经砸了十年了，他要改变。天资聪颖的他很快就成功了，白虎学习汽车驾驶并很快拿了驾驶执照，这让他很快跳脱了原来的生活，他凭借着天资的聪明也找到了愿意接纳他的主人，这已经让当时的他心满意足了。白虎的主人可以说是有梦想的人，是要改变自己，他也要逃脱自己的处境，他去了美国并且拥有了他的太太，那个象征着一切美好的女人，但是他最终还是失去了，因为他没有战胜自己，他最终还是屈服于了印度的传统。这世界上最难的事莫过于敢于改变自己，从而战胜自己，这是一件很艰难的事，除非你有巨大的外力推动，而白虎就是那个幸运的人。白虎是一个通过自己的努力达成心愿的人，那时他所有的理想就只有一个了，那就是能服务好主人。我着迷于饰演白虎的这位演员的精彩演绎，他把底层印度人的那种谄媚与卑微诠释的淋漓尽致，我想如果没有后来发生的一系列偶然事件，白虎会心满意足的这样生活下去吧，拥有着一份稳定的工作，按时寄钱给家里，就这样做一个忠实的仆人。然而，对一个卑微的社会底层人来说，今天的午餐是最迫在眉睫的，他们没有意识甚至没有权力去思考明天，白虎也不例外，他不会去思考当他老了，或者主人有一天要抛弃他时，他就会失去今天的一切。他就像一只开心的小动物享受着主人今天的施舍，他唯一要做的就是讨好今天的主人。直到上帝以它的方式给白虎摊开了真相，在生存与消亡面前，让他不得不思考。一场突如其来的车祸结束了白虎的美好生活，劳累一天的他，心满意足，也很有成就感，睡梦中的他嘴角都挂着微笑。一觉醒来等着他的却是主人的父亲让他签一份车祸责任书，那可能是一份一命换一命的认罪书，他明白主人要拿他去顶罪了，然而思绪万千的他还是笑着，眼角却挂着泪，无助却仍然讨好式的在责任书上签下了自己的名字。低种姓人再怎样卑微也是有底线的，这件事情就像一记重拳实实在在的打在了白虎的心窝里，打开了他思考的开关，他不能再自欺欺人了，他明白了在这样一个不平等的社会，主人是靠不住的，自己是随时拿来被牺牲的。他的觉醒让他开始有了思考，他开始怀疑从小被灌输的观念、传统，他消除了恐惧，最终完成了他的第一次蜕变。白虎不仅是杀死了他的主人，更是杀死了他以前的自己。他就像电影里那些和他一样从底层爬上去的女政客一样，他们更懂底层，更知道如何摆弄那些鸡笼里曾经的自己。就这样，这只公鸡成功的越狱了，他逃出了底层社会的鸡笼，开启了他新的人生。他的主人事实上也想摆脱束缚，将自己从地狱的深渊解救出来，但是他没能最终如愿。相对中共国，印度是自由的民主的，可是这些远远不够，人民的觉醒对腐朽思想的摒弃和开启对平等法制的追求是实现真正的自由不可或缺的元素，这正如中共治下的墙国，无论你贫穷还是富贵，普通百姓还是权力在握的高官，没有人是真正自由与安全的。白虎亲手杀死了他曾经效忠过的主人，他庆幸又无奈，庆幸最终活着的那个人是自己，无奈他的主人不该是那样的下场，他后悔吗？在那样的社会大背景下，他想活着，他别无选择。这电影一直在阐述一个观念，如果人民不觉醒不改变，那么他们所谓的“成功”便只有两条路，要么成为如政客那样的骗子，要么成为白虎那样的罪犯！
+尼克松总统1972年对中共国的开放，是经过深思熟虑的决定，目的是培养一个与苏联接壤的伙伴，从而加深中共国和莫斯科之间的隔阂。但在邓小平改革后，最初的战略谋划转变成了美国企业的淘金热。苏联解体后，随着全球化的兴起，大国政治似乎成为过去，美国企业推动与中共国的一体化，认为这是制造业离岸的机会，同时打开中共国的巨大市场向美国商品、服务和资本开放。20世纪90年代，美国投资涌入中共国，帮助中共国将其依赖农业和破败国有企业的大规模落后经济，转变为低成本、低价值的制造业中心。2001年中共国正式加入世界贸易组织（WTO）后，双方关系更加深入。这种经济关系反过来又创造了一个强大的、新兴的 “中共国游说团”，其成员包括那些致力于保护其在华利益的人，他们不受国家安全鹰派、人权活动家、劳工组织者以及支持对中共国采取更强硬路线的保护主义者的影响。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JYWxpEy9NQM10/images/d6e8c2f0-d56c-48ba-a5ca-60cacf956f59.jpg?asset_id=fd66fda3-7d44-45d1-a2f2-8304596a8e29&amp;img_etag=%22a9282a38c34e2c26615da05009bff97c%22&amp;size=1024)](https://spark.adobe.com/page/JYWxpEy9NQM10/images/d6e8c2f0-d56c-48ba-a5ca-60cacf956f59.jpg?asset_id=fd66fda3-7d44-45d1-a2f2-8304596a8e29&amp;img_etag=%22a9282a38c34e2c26615da05009bff97c%22&amp;size=1024)
+This China Lobby dominated policymaking for decades, as administrations of both parties attempted to engage and balance a rising China—but in practice did more of the former than the latter. For example, President George H.W. Bush offered a muted response to the Tiananmen Square Massacre in 1989. Days after the slaughter, he stated, “now is the time to look beyond  the moment to important and enduring aspects of this vital relationship for the United States.”6 President Bill Clinton pledged early in his presidency that he would condition renewal of China’s  Most Favored Nation trading status with tangible progress on human rights, but ultimately broke that promise in the face of intransigence from Beijing and pressure from business interests.7 Clinton  ended his presidency championing Permanent Normal Trade Relations and WTO membership  for China, which he called a “win-win” that would “protect our prosperity” while “promot[ing] the  right kind of change in China.”8 The George W. Bush administration likewise promised a tougher  line with Beijing, stating China must become a “responsible stakeholder” in the world.9 However,  the administration further expanded commercial ties with China. It presided over the “China trade shock” that devastated America’s industrial communities following China’s accession to the WTO in 2001.10 If anything, the Obama administration proved more committed to engagement than its predecessors, despite unmistakable warning signs of the deteriorating political situation in China.  At best, this generational effort at engagement was an experiment to see whether greater economic integration would generate political change in China. The results are in.
 
-《白老虎》是一部发人深省的影视作品，每一位首陀罗低种姓人都是白虎，当他们观看这部电影的时候一定会陷入沉思，白虎的觉醒之路会感染每一个经历相似的印度民众，这必将给印度所谓的精英社会阶层带来危机，让自由土壤滋养的艺术之花开启民智，这就是艺术的魅力，自由的力量。
+几十年来，中共国的游说团主导了立法，因为两党政府都试图接触和平衡一个崛起中的中共国——但实际上，前者比后者做得更多。例如，老布什总统对1989年的天安门广场大屠杀作出了温和的回应。屠杀发生几天后，他说：”现在是时候超越当下，着眼于这种对美国至关重要的关系的重要性和持久性方面。”比尔-克林顿总统在执政初期曾承诺，他将以在人权方面取得实际进展作为延长中共国最惠国贸易地位的条件，但面对中共国的不妥协和商业利益的压力，他最终违背了这一承诺。克林顿以为中共国倡导建立永久正常贸易关系和加入世贸组织的政绩而结束总统任期，他称之为 “双赢”，将 “保护我们的繁荣”，同时 “促进中共国的正确变革”。小布什政府同样承诺对中共国采取更强硬的路线，称中共国必须成为世界上 “负责任的利益相关者”。然而，该政府进一步扩大了与中共国的商业关系，在2001年中共国加入世贸组织后，主导的 “中共国贸易冲击 ” 使美国的工业界受到重创。如果说有什么，就是尽管中共国的政治局势恶化有明显的警示信号，奥巴马政府仍表明比前任们更致力于与中共国的交往。充其量，这一代的接触努力只是一个实验，看看更深的经济一体化是否会在中共国产生政治变革。结果已经非常明了。
 
-在七哥与我们分享他理解的《白老虎》之前，我只是觉得这是一部艺术价值很高的电影。我知道一部优秀电影的影响力，也知道当权派一直利用同时也很忌惮影视文化对人民意识形态的引导作用。艺术、宗教、文化都是被当权者利用的统治工具，可是印度却允许这样抨击当权者的电影问世，至少印度在文化领域的自由度是远远高于中共国的。
+Today, China is far richer than it was several decades ago. Economic integration has turned China into an industrial powerhouse and, as its advocates note so often, lifted many millions out of grinding poverty. But the political change that was supposed to come from this transformation has failed to materialize. To the contrary, the CCP under Xi Jinping is more powerful and provocative than ever, rolling back the tentative reforms of earlier eras and recommitting to struggle against “false trends” such as “Western Constitutional Democracy,” “universal values,” and “civil society.”11 Instead of weakening the CCP and empowering the Chinese people, decades of engagement, investment, and encouragement have helped make the Party’s dictatorship a global force.
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JYWxpEy9NQM10/images/6e0b0504-b9ec-4439-bcbc-4f972098b348.jpg?asset_id=7ff45635-8c80-43d5-a112-cf42ec0cdbd9&amp;img_etag=%229a4d2431e065d09486e13743c8fe24f9%22&amp;size=1024)](https://spark.adobe.com/page/JYWxpEy9NQM10/images/6e0b0504-b9ec-4439-bcbc-4f972098b348.jpg?asset_id=7ff45635-8c80-43d5-a112-cf42ec0cdbd9&amp;img_etag=%229a4d2431e065d09486e13743c8fe24f9%22&amp;size=1024)
+今天，中国比几十年前富裕得多。 经济一体化已使中国成为一个工业强国，而且正如其拥护者经常指出的那样，它使数百万人摆脱了日益加剧的贫困。 但是，原本应该由这种转变带来的政治变革却未能实现。 相反，习近平领导的中共比以往任何时候都更强势和挑衅，中止了早期的尝试性改革，并致力于与“假趋势”作斗争，例如“西方宪政民主”，“普世价值”和“公民社会”。 几十年来的交涉，投资和鼓励并没有使中国共产党还权于民，反而使该党的独裁统治称霸全球。
 
-这几天，带着七哥对这部电影的别样认识，我又看了一遍《白老虎》。我想说阅历不同，看问题的角度与深度也会截然不同，七哥的智慧是超越这个时代的，他一眼便能洞穿这部电影到底想表达什么。这部电影是要在每一位观众的心里种下一种意识，抗争的意识，摆脱宿命的意识，底层人民不能自暴自弃但要勇于抗争的意识。抗争没有问题，问题是抗的是谁争的又是什么，电影中主人公多次不经意的流露白人大势已去的概念，传播黄种人才是世界未来的主导。中共在其70年统治下，不间断的向国人灌输西方资本主义国家亡我中华之心不死的思想，制造对白人的仇恨，而对西方文明国家近几十年来对我们改善民生与发展经济方面的帮助避而不谈，反称朝鲜与伊朗才是我们真正的朋友，拉拢包括印度与非洲各国在内的有色人种挑拨种族之争，把愚昧中国百姓的手段毫无保留的用在了这些国家。所以就算我们有了抗争意识，如果被共匪利用去抗争了西方国家的自由，民主，法制，文明与善意， 我们就真的成了共匪的帮凶，独裁者的刽子手。我们抵制任何以颜色种族划分人种高低贵贱的言论，不被中共挑拨利用。
+The United States is waking up to the reality that we are not in a cooperative and constructive partnership with China, but rather a strategic competition that could be even more protracted and difficult than the Cold War. China is already wealthier than the Soviet Union at its peak relative to the United States, and is far more entangled with us economically.
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JYWxpEy9NQM10/images/e597745b-677c-465f-8fa7-8ecc23dc393b.jpg?asset_id=3ba6ca4e-65e3-4330-86fc-a36a3c2c001b&amp;img_etag=%22bf7f96c0b624339f7daccea75c541c66%22&amp;size=1024)](https://spark.adobe.com/page/JYWxpEy9NQM10/images/e597745b-677c-465f-8fa7-8ecc23dc393b.jpg?asset_id=3ba6ca4e-65e3-4330-86fc-a36a3c2c001b&amp;img_etag=%22bf7f96c0b624339f7daccea75c541c66%22&amp;size=1024)
+美国正在意识到，我们并未与中共国建立了合作和建设性的伙伴关系，而是建立了一种比冷战更加持久和艰难的战略竞争关系。 对美国来说，中共国的富裕已经超过前苏联最发达的时期，并且在经济上与我们有更多瓜葛。
 
-影片中的男主人公最终取得了他所谓的“成功”，但是最终他也没能真正突破“鸡笼”，而是选择成为“鸡笼”文化的一部分，只是他已经是鸡笼的食物链顶端，所以他不是真正的白虎，这只白虎已经变成了黑虎。
+Two recent events illustrate the extent of interdependence between China and the United States. First, the coronavirus pandemic reveals how interdependence with China threatens the United States. Second, the tougher approach to trade initiated by President Trump reveals how interdependence also poses risks for China.
 
-七哥才是真正的白虎，一只上帝之手一直在推动着他。七哥与电影里的白虎不同，七哥有信仰，真正的信仰。在灭共之路上，七哥一直坚守的是无我，只有做到无我，才会有无穷的力量，这种力量和能力才不会被私欲所左右。男主人公白虎与那位出自底层社会主义的女政治家都有信仰，但是他们的信仰是被民族文化束缚的，是狭隘的，这也注定了他们无法逃脱“鸡笼”，只能在那个互害的死循环里挣扎到生命的结束。七哥传递给我们的则是无我的大爱，七哥引领的爆料革命吸引了来自五湖四海的志同道合的战友，面对强悍无底线的中共，只有做到无我才能披荆斩棘无往不克。遇到七哥是所有战友的福气与荣幸。
+最近发生的两个事件说明了中美之间相互依存的程度。 首先，CCP病毒大流行揭示了与中共国的相互依存如何威胁到美国。 其次，川普总统更强硬的贸易方式揭示了相互依存给中共国带来了风险。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JYWxpEy9NQM10/images/0bda3aa3-7a22-4e96-a937-8c92f7427669.jpg?asset_id=46edce04-0118-460c-b407-9eef7c156c19&amp;img_etag=%22b20ee8095c9c8f3466acbd532b2e0564%22&amp;size=1024)](https://spark.adobe.com/page/JYWxpEy9NQM10/images/0bda3aa3-7a22-4e96-a937-8c92f7427669.jpg?asset_id=46edce04-0118-460c-b407-9eef7c156c19&amp;img_etag=%22b20ee8095c9c8f3466acbd532b2e0564%22&amp;size=1024)
+The pandemic exposed major weaknesses in America’s supply chains and domestic manufacturing capacity for basic goods like personal protective equipment. In the early days of the pandemic, China repeatedly prevented American companies from exporting products made in their China-based factories to the United States. China also threatened to initiate other measures to withhold essential supplies.12,13
 
-最后借用《道德经》第七章来结束我的文章：
+病毒大流行暴露了美国供应链的主要弱点以及个人防护装备等基本商品的国内生产能力。 在大流行初期，中共国一再阻止美国公司将其在中国工厂生产的产品出口到美国。 中共国还威胁要采取其它措施来扣留基本物资。
 
-天长地久。
+The pandemic illustrated how an economic relationship that appeared tolerable in normal times could be exposed as foolish in times of crisis. When worldwide emergencies occur, nations logically protect their own interests before attending to the needs of others, even those of allies.  Meanwhile, opportunistic and aggressive powers like China exploit emergencies to weaken other nations. These are old lessons of history that recent events have made impossible to ignore.
 
-天地所以能长且久者，以其不自生，故能长生。
+病毒大流行展示了在正常时期可以容忍的经济关系，在危机时刻却可能暴露出它的愚蠢性。 当发生世界范围的紧急情况时，各国在顾及它国，甚至盟国的需求之前，在逻辑上首先要保护自己的利益。 同时，像中共国这样的机会主义和侵略性大国则利用紧急状况来剥削其它国家。 这些是过去的历史教训，最近的事件已使人们无法忽视。
 
-是以圣人后其身而身先，外其身而身存。
+The U.S.-China trade war also revealed an asymmetry in the two countries’ reliance on one another for foreign trade under normal conditions. The American economy grew at a healthy  clip from 2017 to early 2020 despite trade tensions.14 China’s official economic growth during  this period, though still higher than that of the United States, slowed to its lowest rate in  decades, even before the onset of the pandemic.15 Chinese industrial output growth fell to  nearly 18-year lows while its total debt ballooned to over 300 percent of Gross Domestic  Product (GDP).16,17 Despite the “Phase One” trade agreement, the trade war hastened the  closing of China’s strategic window of opportunity, the period of advantage Beijing enjoys  before the likely onset of a demographic crisis and all-but-inevitable balancing measures by  its foreign adversaries.18 The trade war also revealed the extent to which Chinese economic  growth relies on the U.S. consumer market, a reliance which cannot comfort the strategic  thinkers in Beijing.
 
-非以其无私耶？
+中美贸易战也显示，在正常情况下，两国相互依存的对外贸易不对称。尽管存在贸易紧张局势，美国经济在2017年至2020年初仍保持健康增长。在此期间，中共国的经济增长官方数据尽管仍高于美国，但已放缓至数十年来的最低水平，甚至在病毒大流行之前就已经放缓了。 中共国工业生产总值跌至近18年来的最低点，而其总债务却激增至国内生产总值（GDP）的300％以上。尽管达成了“第一阶段”贸易协议，但贸易战仍加速关闭了中共国的战略机会之窗，即中共国在人口危机可能爆发和外国对手不可避免的平衡措施之前享有的优势时期。贸易战还揭示了中共国经济在多大程度上依赖于美国消费市场，这种依赖令北京的战略家深感不安。
 
-故能成其私。
+It is now clear that the U.S. and Chinese economies are too entangled, particularly in critical sectors such as medicine, defense, and technology. The urgent task for policymakers and businesses is to end our dependence on China and build new capabilities in America.
 
-【**注：**文章仅代表作者观点】
+现在很明显，中美经济纠缠不清，特别是在医药、国防和技术等关键领域。 决策者和企业的当务之急是消除我们对中共国的依赖，并在美国建立新的产能。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+This is a major undertaking, fraught with difficulty. The good news is that China ultimately needs us more than we need China. The United States has more power than many realize to reshape the economic relationship with China on our own terms. We must use this power to forge a new American economic policy that will beat the CCP in the long run.
 
+这是一项艰巨的任务。 好消息是，相比我们需要中共国，中共国最终更需要我们。美国的力量比很多人想象的要大，可以按照我们自己的意愿来重塑与中共国的经济关系。 我们必须利用这种力量制定一项新的美国经济政策，从长远来看，该政策将击败中共。
 
-编辑：【英国伦敦喜庄园编辑部】
+The U.S. government needs to pursue targeted decoupling with China. America can reduce its dependence on its chief global rival by, for example, cutting off China from high-end semiconductor designs and equipment, sanctioning Chinese companies that steal and benefit from U.S. intellectual property, and preventing the federal government from buying products that contain Chinese active pharmaceutical ingredients and Chinese rare earths and critical minerals.
 
-[!\[\]()!\[\](https://spark.adobe.com/page/JYWxpEy9NQM10/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/JYWxpEy9NQM10/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+美国政府需要与中共国进行有针对性的脱钩。 美国可以通过以下方式来减少对全球主要竞争对手的依赖，例如，切断中共国获取高端半导体设计和设备，制裁窃取美国知识产权并从中受益的中共国公司，阻止联邦政府购买含有中共国活性药物成分以及中共国稀土和重要矿物质。
+
+At the same time, the United States can make investments to mitigate the effects of decoupling by, for example, boosting federal research and development (R&D) funding, rebuilding the STEM (science, technology, engineering, mathematics) talent pool, and restoring secure, scalable, domestic manufacturing in key sectors. Finally, this strategy demands a careful look at how key elements of the federal bureaucracy are organized and incentivized to fight the economic long war.
+
+同时，美国可以进行投资以减轻脱钩的影响，例如，增加联邦研究与开发（R＆D）资金，重建STEM（科学，技术，工程，数学）学科的人才储备，并且在一些关键领域重建安全的、大规模的国内制造。 最后，该战略需要仔细研究如何组织和激励联邦官僚机构的关键要素，以抗击长期的经济战争。
+
+* * *
+
+### 原文链接：
+
+[Beat China: Targeted Decoupling and the Economic Long War](https://www.cotton.senate.gov/imo/media/doc/210216_1700_China%2520Report_FINAL.pdf)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
 0

@@ -1,26 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】23/02/2021:G系列支付系统获批,20大习要做世界秦始皇
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/932632/)
+## 西班牙疫情简报
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/932705/)
 
-**制作:Cantonese工作室**
-**播报：【安妮】  资料整理：【文依】【An】【极寒将至】【美国小李】【Elaine 】
- 海报制作：【 小豆芽】【米线】 视频制作：【文德】**
-摘要:
+- 编辑：Victor Torres
+- 作者：gokuabuela
+- 发稿：神奇四侠
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-80.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-54.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/3-35.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/4-47.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/5-41.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/6-47.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/0-6.jpg)
+
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2021年2月25日电/西喜社—**
+
+截至到2021年2月24日，西班牙CCP病毒疫情：
+
+感染人数总计：3，170，644 人
+
+死亡人数总计： 68，468人
+
+14天10万人感染率： 216.8， 低于极度风险阈值。但是马德里，巴斯克，休达和梅里亚这几个自治区的数据高于极度风险阈值。
+
+ICU重症病房占有率： 30.5%
+
+CCP病毒住院人数： 13，495 人
+
+新闻来源：[世界报](https://www.elmundo.es/ciencia-y-salud/salud/2021/02/25/6036ddf621efa01a128b460f.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
 
 
 0
