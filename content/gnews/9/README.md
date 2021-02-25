@@ -1,10 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共大肆购买英国学校以灌输美化中共的理论
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/931968/)
+## 国际航空新冠病毒数字旅行通行证即将上线
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/932203/)
 
-By： 【秘密翻译组 G-Translators】
+**【日本东京方舟农场】**作者： 東山堂主 校对：miumiu law
+
+国际航空运输协会(IATA)表示，预计新冠病毒数字旅行通行证将在几周内上线。通行证是一款应用程序，用于验证乘客是否接受了进入一个国家所需的Covid-19检测或疫苗。该行业组织认为，通行证对重新开放航空旅行至关重要，因为许多国家仍有严格的限制或隔离措施。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-16.png)
+
+但这种做法一旦实施,可能引发深层次的问题，如伦理道德和歧视问题，疫苗接种不再考虑是否“知情自愿”而带有半强制性，那些不愿和无法接种疫苗的人将寸步难行。同时，什么机构检测更具权威，采用何种方法检测、使用何种试剂检测也涉及到如何界定和利益刮分问题。国际航空运输协会(IATA)的做法有为中共站台之嫌！检测阴性无法保证100%健康，接种疫苗不可能保证100%有效，疫苗研发也跟不上“施毒者”的步伐，跟不上病毒变异的节奏。要从根本上解决疫情扩散问题只有：彻底追溯病毒来源，根据基因序列研发更有效的疫苗和药物，并Take Down The CCP!
+
+注：本文仅代表作者观点
+
+参考链接：
+
+[1. https://www.bbc.com/news/business-56165563](http://1.	https://www.bbc.com/news/business-56165563)
+
+[2. https://twitter.com/warriors\_mom/status/1364390513370009600](http://2.	https://twitter.com/warriors_mom/status/1364390513370009600)
 
 
 
