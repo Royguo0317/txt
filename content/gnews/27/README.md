@@ -1,26 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国务院称新疆发生的事情是种族灭绝，构成危害人类罪
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/931054/)
+## 关于中共病毒起源，拜登政府依然顾左右而言他
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/931192/)
 
-- 编辑 ：Victor Torres
-- 发稿：神奇四侠
+#### 译评：Freedoom
+责编：沙拉猫
+![]()![](https://gnews.org/wp-content/uploads/2021/02/capture-23-7.jpg)图片来源： [voachinese](https://www.voachinese.com/a/Sullivan-allies-japan-europe-china-20210122/5748368.html)
+2月21日，《国会山报》（thehill）和《纽约邮报》（NYPOST）同时报道了白宫国家安全顾问杰克·沙利文（Jake Sullivan）有关世卫组织病毒起源调查的采访。沙利文上周日在哥伦比亚广播公司“直面美国”（Face the Nation）节目中表示，中共官方未提供中共病毒在国内外传播的 “完整原始数据”。
 
+有可靠情报表明疫情2019年底在武汉爆发，中共大量销毁证据的同时还进行大规模造谣，暗示病毒是美军实验室制造并故意释放的生物武器，以此推卸责任。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+沙利文指出，美国对世卫组织即将发布的关于病毒起源的报告仍有疑问。世卫组织和中共国在病毒调查一事上要做的应该更多。但他同时指责川普政府对疫情监控不力，声明要从多种渠道审查上届政府的抗疫措施，吸取教训确保这种情况不再发生。
 
-**西班牙2021年2月23日电/西喜社—**
+当主持人玛格丽特·布伦南（Margaret Brennan）问沙利文，世卫组织在调查病毒来源时是否被中共国操纵时，沙利文顾左右而言他，称调查结果要有科学依据，唯一方法是获得所有数据，不仅要知道这次疫情如何发生，还要预防未来再次爆发疫情，本次经验教训对未来很有帮助等等，并未对问题进行直接回答。
 
+当被问及是否支持川普政府关于病毒源于武汉P4实验室制造的说法，沙利文未置可否，表示他和拜登政府都没资格说中共病毒是如何来到这个世界上的，一定程度上是因为中共国政府缺乏透明度，世卫组织需要做更多的工作去弄清楚病毒究竟是如何出现的。
 
+** 评论**：
 
-> .[@StateDeptSpox](https://twitter.com/StateDeptSpox?ref_src=twsrc%5Etfw) Price: On genocide, we have been very clear that Secretary Blinken has determined that what has taken place in Xinjiang was genocide. We’ve also been very clear that it constitutes crimes against humanity. [pic.twitter.com/ZQARDjGCvG](https://t.co/ZQARDjGCvG)
-> — Department of State (@StateDept) [February 24, 2021](https://twitter.com/StateDept/status/1364622262704480262?ref_src=twsrc%5Etfw)
+由于爆料革命以及闫丽梦博士这样的证人存在，世界上任何人都无法在中共病毒起源上信口雌黄。拜登一来与中共勾兑由来已久，二来有把柄握在中共手中，成为美国有史以来最尴尬的总统，既不敢承认病毒来源于自然，也不能承认病毒源于中共军方实验室，唯一的办法就是打太极不表态。这也许是除财富之外，拜登从中共学到的最大本事。这种状态，对爆料革命最为有利，只需按计划推动以毒灭共即可。君不见，捷克的红衣主教站了出来，德国的教授站了出来，甚至被中共蓝金黄最深的加拿大也通过中共种族灭绝的议案。环顾全球，敢为中共说话的国家越来越少，与之沆瀣一气的国家更是凤毛麟角。这样的情况下，如果是其他中共党魁，早就跑到美国磕头了，但此时偏偏是总加速师亲自指挥亲自布置，高傲的伟大领袖怎能屈尊这种丢人现眼之事？于是乎，党内斗争必然加剧，中共破车的末日狂奔根本停不下来，以共灭共正在加速上演。
 
+[原文地址1](https://thehill.com/homenews/sunday-talk-shows/539772-national-security-adviser-china-has-not-made-sufficient-original-data?rl=1)：
 
+[原文地址2](https://nypost.com/2021/02/21/china-has-not-given-sufficient-original-data-on-covid-origin-wh/)
 
-美国国务院官方推特于2月24日发布推文：
-
-美国国务院发言人普莱斯发言称，关于种族灭绝，我们已经非常清楚，布林肯国务卿已经确定新疆发生的事情是种族灭绝。我们也非常清楚，这构成了危害人类罪。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
-+2
++1
