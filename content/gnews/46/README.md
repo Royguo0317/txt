@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共指责美日安全条约是冷战的产物
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/931515/)
+## 罗姆尼：川普可能成为2024年共和党总统候选人
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/931550/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-25_06-33-04.jpg)[blastinjuryresearch.amedd.army.mil](https://blastinjuryresearch.amedd.army.mil/index.cfm/about_us/international_collaboration)
-美联社2月24日报道，中共指责美日《共同安全协议》是冷战时期的产物。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/下载-28.jpg)[mediaite.com](https://www.mediaite.com/election-2020/mitt-romney-slams-trump-for-trying-to-overturn-2020-election-difficult-to-imagine-a-worse-more-undemocratic-action/)
+犹他州共和党参议员米特·罗姆尼(Mitt Romney)周二在接受采访时说，在最近的民意调查中指出，川普和其他潜在的共和党候选人相比，“他赢得了压倒性的胜利”。如果前总统川普在2024年再次参选，他可能会赢得共和党提名。
 
-此前美国上周末批评中共海警船出现在日本宣称拥有主权的领海。始于1960年的《安全条约》保证，如果日本军队或领土受到外部攻击，美国将向日本提供援助。
+“到目前为止，他在我们党内有着最大的声音和巨大的影响力。”罗姆尼告诉《纽约时报》，川普有着巨大号召力和影响力。“我不知道他是否计划参加2024年的竞选，但如果他计划参加，我很肯定他会赢得提名。”
 
-此前有报道称，两艘中共海警船周日两次进入钓鱼岛附近的日本领海。日本对此提出抗议，中共船只试图接近日本渔船，导致日本巡逻船进行干预。日本称钓鱼岛为尖阁列岛(Senkaku)，中共称钓鱼岛。中共外交部发言人汪文斌重申，中共对日本控制的东海一系列无人居住的小岛拥有主权。
+在11月大选后不久，罗姆尼对媒体说，“我相信，绝大多数投票给川普的人希望确保他的原则和政策得到贯彻。所以他无论如何都不会消失。” 川普将成为2024年“不可忽视的力量”。
 
-日本海上保安厅表示，这是中共海警船只今年第九次进入钓鱼岛附近的日本领海。去年，中共国船只被证实在南海毗连区航行了333天，创历史新高。
+据消息称川普计划在本周末举行的CPAC演讲中宣布自己是“2024年假定提名人”，但是还没有消息表示他是否计划参加2024年的竞选。
 
-中共上月通过了新海警法，明确允许中共国海警对北京认为非法进入其水域的外国船只使用武器，引发该区域各国的担忧。
-
-美国新任总统拜登(Joe Biden)上月底与日本首相菅义伟(Yoshihide Suga)通电话时，重申了华盛顿在两国长期安全条约下保护尖阁列岛的“坚定承诺”。五角大楼首席发言人柯比周二表示，中共若“继续藐视国际规则”，美国将与盟友合作共同应对挑战。
-
-中共外交部长王毅没有直接回应这些批评，但表示这些岛屿是“中共固有领土”。他批评“美日安全条约是冷战的产物，不应以此损害第三方利益或危及地区和平与稳定”。中共指责这些对中共霸权欺凌行为的反击为“冷战思维”。
+一些弹劾川普的批评者表示，民主党人想给川普定罪，并禁止他再次竞选，因为他们不想与一个获得7400万张选票的人竞争。拜登总统获得了8100多万张选票，使拜登和川普成为美国总统选举历史上得票最多的两位候选人。当然，前提是所有选票都是真实可信的。
 
 参考链接：
 
-[https://www.washingtontimes.com/news/2021/feb/24/china-says-japan-us-security-treaty-a-product-of-c/](https://www.washingtontimes.com/news/2021/feb/24/china-says-japan-us-security-treaty-a-product-of-c/)
+[https://www.foxnews.com/politics/romney-says-trump-likely-republican-nominee-if-he-runs-in-2024](https://www.foxnews.com/politics/romney-says-trump-likely-republican-nominee-if-he-runs-in-2024)
 
 0
