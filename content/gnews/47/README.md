@@ -1,33 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】美国高官对钓鱼岛主权不持特定立场
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/930900/)
+## 美加同意协调与中共国竞争的方式
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/930988/)
 
-作者：纽约香草山 Wilson 校对/发稿：飞虹
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29231938/logo-3-1-1.jpg)
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-24_21-19-45.jpg)[nesaranews.blogspot.com](https://nesaranews.blogspot.com/2016/01/the-new-republic-does-that-possibly.html)
+02月24日，美国和加拿大将协调行动，以更好地与中共国竞争。中共反映出对其利益和价值观的威胁。这是美国总统乔·拜登在与加拿大总理贾斯汀·特鲁多举行视频会晤后说的。
 
+拜登说，他与特鲁多讨论了美洲和世界各地“关注的问题”。“这包括协调我们的方式，以更好地与中共国竞争，更好地保护我们的价值和利益。”
 
+拜登还表示支持加拿大要求释放在中共国被拘留的加拿大人迈克尔·科夫里格（Michael Kovrig）和迈克尔·斯帕弗（Michael Spavor）。
 
-共同社华盛顿2月24日报道，美国国防部高官本周三表示，仅认可日本对尖阁诸岛(钓鱼岛)的管辖权，坚持美国政府对以上岛屿及附属海域主权不持特定立场的原则。这和国防部发言人柯比称“支持日本主权”的发言相矛盾。
+中共国执法部门于2018年12月拘留了前外交官迈克尔·科夫里格和企业家迈克尔·斯帕弗。他们被指控窃取对中共国国家利益有重要意义的信息。这件事发生在中共国华为CFO孟晚舟在温哥华被扣押之后。孟被指控试图规避美国对伊朗的制裁，华盛顿坚持要求渥太华将她引渡到美国。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Senkaku-uotsuri.jpg)图片来源：维基百科
+此前，拜登表示，美国最大的竞争对手是中共国。他还说，鉴于来自中共国和俄罗斯的“战略挑战”越来越多，美国必须更新其国防重点。
 
-柯比在23日的记者会上表示日本对尖阁(钓鱼岛)拥有“主权”，不知道是不是口误。中共国外交部发言人汪文斌24日回应称，钓鱼岛是中国固有领土，日美安全保障条约是冷战产物。
+参考链接：
 
-以上报道未透露这位美国防高官是谁。但他(她)和国防部发言人在敏感而且至关重要的主权表述上大相径庭，或将加剧中共国、中华民国和日本在该争议区域的纷争。
-
-二战结束后，钓鱼岛实际由美国控制，直至1972年5月15日美国将琉球群岛管理权移交日本，同时一并将钓鱼岛及其附属岛屿的行政管辖权也交给日本（维基）。
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+[https://www.rbc.ru/rbcfreenews/60359da79a7947e02bc775ca](https://www.rbc.ru/rbcfreenews/60359da79a7947e02bc775ca)
 
 0

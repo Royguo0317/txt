@@ -1,26 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国务院称新疆发生的事情是种族灭绝，构成危害人类罪
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/931054/)
+## 【军事快讯】 美国出于国家安全考虑将重建芯片等高科技产业链
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/931092/)
 
-- 编辑 ：Victor Torres
-- 发稿：神奇四侠
+作者：纽约香草山写作组 Wilson
 
+共同社华盛顿2月24日报道，美国政府24日表示，为了应对中共对稀土的垄断，实施对中共高端芯片的封锁，重建多年来依赖中共的产业，修复在CCP病毒冲击下支离破碎的美国及其盟友的产业链，美国和盟国之间将重新构建半导体和重要矿物等供应链，力争供需渠道多样化。拜登当天签署了相关实施调整总统令。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+目前该总统令能够得到企业多大的响应及支持尚不得而知，因为产业链重构将涉及很多复杂的问题，其中就包括政府是否能够及时跟上出台相应的支持政策，部分问题甚至需要政府掏腰包解决。
 
-**西班牙2021年2月23日电/西喜社—**
+当前美国及其同盟需要面对的产业链问题有: 在高科技领域不可或缺的稀土等矿物、半导体(主要是高端芯片)、电动汽车（EV）用电池和医疗用品为中心等的供应链重建。以上除了高端芯片，其它供应端都被中共操控。
 
-
-
-> .[@StateDeptSpox](https://twitter.com/StateDeptSpox?ref_src=twsrc%5Etfw) Price: On genocide, we have been very clear that Secretary Blinken has determined that what has taken place in Xinjiang was genocide. We’ve also been very clear that it constitutes crimes against humanity. [pic.twitter.com/ZQARDjGCvG](https://t.co/ZQARDjGCvG)
-> — Department of State (@StateDept) [February 24, 2021](https://twitter.com/StateDept/status/1364622262704480262?ref_src=twsrc%5Etfw)
+目前美国80%的稀土釆购来自中共国。由于CCP病毒对全球半导体产业链的严重破坏而面临全球性的供应短缺，已严重影响到全球汽车生产等产业的正常运营。台湾的台积电在高端芯片技术及制造能力上均独步全球，不仅美国及其盟友需耍加强与台湾的合作，中共对台积电也是垂涎三尺。因为高端芯片在民用、军事领域，都堪称大脑和灵魂，而中共由于体制造成的研发能力低下，连中低端芯片都不能生产自足。因此，霸占台积电，或许是大盗中共进攻台湾的诱因之一。
 
 
 
-美国国务院官方推特于2月24日发布推文：
+编辑/校对/发稿：天涯客
 
-美国国务院发言人普莱斯发言称，关于种族灭绝，我们已经非常清楚，布林肯国务卿已经确定新疆发生的事情是种族灭绝。我们也非常清楚，这构成了危害人类罪。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
-+2
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV — MOS Talk香草山访谈](https://gtv.org/) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+0
