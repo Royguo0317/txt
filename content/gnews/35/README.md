@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美副财长提名人称将坚持川普对中共贸易禁令
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/931502/)
+## 罗姆尼：川普可能成为2024年共和党总统候选人
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/931550/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-25_06-25-41.jpg)[rnbcincy.com](https://rnbcincy.com/357440/nigerian-born-adewale-wally-adeyemo-set-to-be-deputy-treasury-secretary-in-historic-appointment/)
-彭博社2月24日报道，美国拜登政府财政部副部长的提名人沃利·阿德耶莫（Wally Adeyemo）周二在参议院提名听证会上表示，美国愿意使用川普总统时代的投资禁令来惩罚北京违反国际贸易规则的行为。他说，“至关重要的是，我们要利用财政部的工具，让中共国为他们采取的不符合国际法、危及我们国家安全的行动负责。”
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/下载-28.jpg)[mediaite.com](https://www.mediaite.com/election-2020/mitt-romney-slams-trump-for-trying-to-overturn-2020-election-difficult-to-imagine-a-worse-more-undemocratic-action/)
+犹他州共和党参议员米特·罗姆尼(Mitt Romney)周二在接受采访时说，在最近的民意调查中指出，川普和其他潜在的共和党候选人相比，“他赢得了压倒性的胜利”。如果前总统川普在2024年再次参选，他可能会赢得共和党提名。
 
-阿德耶莫指出，中共这些行为将使我们的国家安全处于危险之中，尤其要“批判性地审视中共企业可能如何利用我们的金融体系来实现这一目标。”包括参议院主席、俄勒冈州民主党人罗恩·怀登在内的几位议员要求他详细说明是否会遵守川普总统要求美国投资者从中共军方拥有或控制的公司撤除资产的行政指令， 阿德耶莫说，一旦他的任命得到确认，他将与财政部官员会晤，以“了解它是如何实施的”，并“研究目前存在的可让中共承担责任的工具”。
+“到目前为止，他在我们党内有着最大的声音和巨大的影响力。”罗姆尼告诉《纽约时报》，川普有着巨大号召力和影响力。“我不知道他是否计划参加2024年的竞选，但如果他计划参加，我很肯定他会赢得提名。”
 
-投资禁令引发了证券交易所和投资者的困惑。去年12月，纽约证券交易所(New York Stock Exchange)宣布了责令三家大型中共电信公司退市的计划，但在时任美国财政部长史蒂文·姆努钦(Steven Mnuchin)的压力下，该计划一度被搁浅随后又恢复了这一决定。
+在11月大选后不久，罗姆尼对媒体说，“我相信，绝大多数投票给川普的人希望确保他的原则和政策得到贯彻。所以他无论如何都不会消失。” 川普将成为2024年“不可忽视的力量”。
 
-为了澄清这一点，姆努钦财政部今年1月发表声明称，中国移动(China Mobile Ltd.)、中国电信(China Telecom Corp.)和中国联通(China Unicom Hong Kong Ltd.)是必须退市的公司。
+据消息称川普计划在本周末举行的CPAC演讲中宣布自己是“2024年假定提名人”，但是还没有消息表示他是否计划参加2024年的竞选。
 
-阿德耶莫表示，美国对采取单边行动持开放态度，尽管寻求多边解决方案“总是最好的”，可“证明如果中共违反国际规则，就会被孤立”。
-
-阿德耶莫是前奥巴马政府官员，预计他的提名将通过参议院的审议。
+一些弹劾川普的批评者表示，民主党人想给川普定罪，并禁止他再次竞选，因为他们不想与一个获得7400万张选票的人竞争。拜登总统获得了8100多万张选票，使拜登和川普成为美国总统选举历史上得票最多的两位候选人。当然，前提是所有选票都是真实可信的。
 
 参考链接：
 
-[https://www.bloomberg.com/news/articles/2021-02-23/biden-nominee-open-to-using-trump-era-order-to-punish-china](https://www.bloomberg.com/news/articles/2021-02-23/biden-nominee-open-to-using-trump-era-order-to-punish-china)
+[https://www.foxnews.com/politics/romney-says-trump-likely-republican-nominee-if-he-runs-in-2024](https://www.foxnews.com/politics/romney-says-trump-likely-republican-nominee-if-he-runs-in-2024)
 
 0
