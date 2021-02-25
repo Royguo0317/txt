@@ -1,37 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 越南在南沙群岛建立对中共国的防御措施
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/931032/)
+## 美国务院称新疆发生的事情是种族灭绝，构成危害人类罪
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/931054/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+- 编辑 ：Victor Torres
+- 发稿：神奇四侠
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年2月24日电/西喜社——**据WION新闻2月24日报道，在北京于南海地区活动日益频繁的情况下，越南在过去两年里一直在南沙群岛加强防御，”以确保能够打击中共国的设施”。
+**西班牙2021年2月23日电/西喜社—**
 
-战略与国际研究中心《亚洲海上透明度倡议》的报告称，越南在南沙群岛的大部分基地都安装了防空和海岸防御系统的设施，其中西礁和新沟岛的升级最为显著。
 
-报道还称，越南的建设工程是为了强调其对中共国的立场，也是为了确保中共国基地在打击范围内。
 
-根据报告，最近在西礁和新沟岛的升级改造’遵循了在南沙群岛其他越南前哨基地看到的既定模式’。
+> .[@StateDeptSpox](https://twitter.com/StateDeptSpox?ref_src=twsrc%5Etfw) Price: On genocide, we have been very clear that Secretary Blinken has determined that what has taken place in Xinjiang was genocide. We’ve also been very clear that it constitutes crimes against humanity. [pic.twitter.com/ZQARDjGCvG](https://t.co/ZQARDjGCvG)
+> — Department of State (@StateDept) [February 24, 2021](https://twitter.com/StateDept/status/1364622262704480262?ref_src=twsrc%5Etfw)
 
-“海岸防御设施—通常连接到碉堡的混凝土炮台—在越南较大的前哨基地无处不在，”报告说。
 
-“在过去的两年里，西礁出现了大量的新建筑，包括几个海岸防御设施，行政大楼，混凝土垫和碉堡，以及一个大型塔楼结构，大概是用于通信或信号情报。岛的北端和南端还修建了与其他越南地貌类似的隧道网，并种植了植被，”报告写道。
 
-报道还称，新科威岛在过去两年中进行了重大升级，最引人注目的是在海岸线上建造了一系列防御设施。
+美国国务院官方推特于2月24日发布推文：
 
-“这项工作始于2019年，主要集中在2013年至2016年期间建造的大约26英亩的填海土地上。在2018年的图片中，新科威北侧的填海区域被植被覆盖，为建造新的隧道和海岸防御工事进行了清理。”它补充说。
-
-南海被归为三个群岛，包括帕拉塞尔群岛和南沙群岛。中共国宣称几乎整个南海都是其主权领土，近年来中共国积极维护其的利益。
-
-帕拉塞尔岛在中共国、台湾和越南之间存在争议。它一直被中共国占领。同时，中共国、台湾、越南、马来西亚、菲律宾和文莱也对南沙岛提出了主张，但程度较轻。
-
-**新闻来源：[WION新闻](https://www.wionews.com/world/vietnam-builds-up-defences-against-china-in-spratly-islands-365951)**
-
+美国国务院发言人普莱斯发言称，关于种族灭绝，我们已经非常清楚，布林肯国务卿已经确定新疆发生的事情是种族灭绝。我们也非常清楚，这构成了危害人类罪。
 ![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
-
-0
++2
