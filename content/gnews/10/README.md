@@ -1,26 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】23/02/2021:G系列支付系统获批,20大习要做世界秦始皇
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/932632/)
+## 两剂疫苗不行，还要让人注射第三剂？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/932698/)
 
-**制作:Cantonese工作室**
-**播报：【安妮】  资料整理：【文依】【An】【极寒将至】【美国小李】【Elaine 】
- 海报制作：【 小豆芽】【米线】 视频制作：【文德】**
-摘要:
-
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-80.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-54.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/3-35.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/4-47.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/5-41.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/6-47.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/0-6.jpg)
+- 编辑：Victor Torres
+- 作者：gokuabuela
+- 发稿：神奇四侠
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2021年2月25日电/西喜社—**
+
+辉瑞公司和德国的BioNTech公司已经宣布启动研究第三剂疫苗，来针对新变异CCP病毒，正在对其安全性和免疫原性（诱导免疫反应的能力）进行评估。
+
+该研究将以美国疫苗1期研究的参与者为基础，他们将在接受最初的两剂疗程后的6-12个月内，再接受30微克的疫苗加强剂，即第三剂疫苗。
+
+新闻来源： [EL MUNDO](https://www.elmundo.es/ciencia-y-salud/salud/2021/02/25/6036ddf621efa01a128b460f.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
 0
