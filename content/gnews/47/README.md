@@ -1,41 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】战场规则要改写——美国海军驱逐舰即将拥有高超音速导弹发射能力
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/931422/)
+## 担忧习近平整肃，香港博裕总部转移新加坡
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/931434/)
 
-作者：纽约香草山写作组 Wilson
+文章作者:台湾宝岛准农场一叶一菩提
+![https://img.ltn.com.tw/Upload/business/page/800/2021/02/23/3447466_1.jpg](https://lh4.googleusercontent.com/8ZBB9sl_DmLa1YHYOl5RsqQGFJi-TARSx34N4c0vjbFltQs113B_yMOvQ73hqJtscuj8oVqWnEo6TrFA1Xj_gaCGqvnZsWupsZLwRBMbHbza0hq-MwVuJ3KmKSEco2SmFi_sN7RT)
+华尔街日报报导，中国领先的私募股权投资公司博裕资本(Boyu Capital)的两名联合创始人已搬至新加坡，公司的部分业务也已从香港总部迁至当地。该公司由中国前国家主席江泽民的孙子江志成创立，因此该公司的成功和江泽民的支持是息息相关。知情人士声称，此一迁移是对94岁的江泽民逐渐下降的影响力忧心，害怕其家人与盟友遭到中共领导人习近平的整肃。
 
+**中共对香港和异见的管控迫使中外企业加速逃离**
 
+知情人士表示，从2019年底开始这一迁移，当时中共领导人习近平，为了遏制退休党内元老的影响力并加强对香港的管控，所采取一系列的措施，使博裕资本（也被称作太子党基金）忧心进而远离，防范中共当局可能进行的审查或不利行动和避开党内政治斗争，所以选择新加坡办事处同样名为「博裕」 ，作为在中国以外的第一个办事处，将部分业务从香港的总部转移到了新加坡，两名公司的联合创始人也已移居，一名是童小幪，在当地的基金管理公司担任执行长，另一名张子欣。显见，中共加强对香港的管控所产生的动荡和镇压异见所产生的恐惧，已深深撼动了香港的商业信心，迫使中外企业加速逃离。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+**博裕资本的政经实力**
 
+1、博裕资本2010年成立于香港，联合创始人有，中国前国家主席江泽民的孙子江志成、童小幪和张子欣还有已经去世的张雪征。博裕资本当时还获得香港首富李嘉诚和新加坡主权财富基金淡马锡控股的投资。
 
+2、博裕本也被称作太子党基金，曾因收购北京和上海机场免税店的股权而备受瞩目。
 
-*[国家利益](https://nationalinterest.org/blog/reboot/us-navy-destroyers-could-soon-launch-hypersonic-missiles-178786)*2月24日报道，美国海军驱逐舰将很快具备“穿透现代敌人防空”的超高音速导弹打击能力。对于海军舰艇来说，拥有这种战略攻击能力意义非凡。这项在驱逐舰上应用的技术来源于美国空军的DARPA/空军程序，称为战术助推滑翔程序。
+3、华尔街日报曾报导，博裕资本2016年是蚂蚁的早期投资者之一，因为在香港注册的博裕，受到中国的法规限制，也就是离岸（中国以外）企业对支付服务的所有权，但是支付服务是蚂蚁业务的核心部分。所以博裕资本先设立子公司在上海，子公司再投资一家上海的投资公司，然后由投资公司投资一家名为北京京管投资中心的私募股权公司，后者购买了蚂蚁股份。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/12-3.png)图源网络
+**党内斗争加剧浮上台面**
 
-DARPA的说明书介绍，该武器系统包括将火箭加速到高速。当助推器与有效载荷分离时，导弹将以每分钟60英里向地球大气层外层移动。穿过大气层后，导弹以7马赫以上的飞行速度（每小时8800公里以上）“无动力滑翔到目的地”。导弹起飞速度则高达5马赫（6125公里）。
+华尔街日报曾报导，博裕资本是蚂蚁集团的幕后投资者之一。中国官方2020年11月初停止了蚂蚁集团在上海和香港上市（IPO）计画，一方面除了担忧金融系统风险也对马云言论批评的愤怒，另一方面是，中央政府在一项调查发现，在持有层层不透明投资工具的蚂蚁集团股权的背后，有一个小圈子，由人脉广泛的中国权贵组成，其中一些人与那些对习近平构成潜在挑战的政治家族有关联。报导还声称，该圈子的核心是前领导人江泽民孙子江志成、以及有「江派上海帮」之称的中共政治局前常委贾庆林的女婿李伯潭等「江派」人物以及其他「红二代」均是蚂蚁的秘密投资者。
 
-海军普通驱逐舰拥有这种超远射程攻击能力，意味着仅仅依靠海上舰艇就能够对敌方产生战略威慑力。这样的舰艇可以远程摧毁敌人的陆地、海上和空中目标，包括但不限于军事设施、军营、无人战斗机，还可以进行快速反空拦截，在保护己方舰艇方面优势巨大。由于具有超远打击能力，可以将舰艇放置在敌人难以侦测或无法打击的安全海域。
+参考资料:
 
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+- [怕遭习近平整肃江泽民之孙将「太子党基金」部分业务移出香港](https://ec.ltn.com.tw/article/breakingnews/3447466)
+- [江泽民之孙江志成创立的中国私募股权公司博裕资本已悄迁离香港](https://www.rfi.fr/tw/%E4%B8%AD%E5%9C%8B/20210223-%E6%B1%9F%E6%BE%A4%E6%B0%91%E4%B9%8B%E5%AD%AB%E6%B1%9F%E5%BF%97%E6%88%90%E5%89%B5%E7%AB%8B%E7%9A%84%E4%B8%AD%E5%9C%8B%E7%A7%81%E5%8B%9F%E8%82%A1%E6%AC%8A%E5%85%AC%E5%8F%B8%E5%8D%9A%E8%A3%95%E8%B3%87%E6%9C%AC%E5%B7%B2%E6%82%84%E9%81%B7%E9%9B%A2%E9%A6%99%E6%B8%AF)
+- [江泽民孙-贾庆林婿秘密投资蚂蚁惹习近平不满](https://www.rfi.fr/tw/%E4%B8%AD%E5%9C%8B/20210218-%E7%BE%8E%E5%AA%92-%E6%B1%9F%E6%BE%A4%E6%B0%91%E5%AD%AB-%E8%B3%88%E6%85%B6%E6%9E%97%E5%A9%BF%E7%A7%98%E5%AF%86%E6%8A%95%E8%B3%87%E8%9E%9E%E8%9F%BB%E6%83%B9%E7%BF%92%E8%BF%91%E5%B9%B3%E4%B8%8D%E6%BB%BF)
+- [华尔街日报-蚂蚁股权涉江泽民孙及贾庆林婿](https://www.rfi.fr/tw/%E4%B8%AD%E5%9C%8B/20210217-%E8%8F%AF%E7%88%BE%E8%A1%97%E6%97%A5%E5%A0%B1-%E8%9E%9E%E8%9F%BB%E8%82%A1%E6%AC%8A%E6%B6%89%E6%B1%9F%E6%BE%A4%E6%B0%91%E5%AD%AB%E5%8F%8A%E8%B3%88%E6%85%B6%E6%9E%97%E5%A9%BF)
 
 
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+
+文章审核：zhong
+
+文章发布：Little Liu
 
 0
