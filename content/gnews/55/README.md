@@ -1,25 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 罗姆尼：川普可能成为2024年共和党总统候选人
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/931550/)
+## 中共诋毁五眼联盟“白人至上”对世界构成威胁
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/931564/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/下载-28.jpg)[mediaite.com](https://www.mediaite.com/election-2020/mitt-romney-slams-trump-for-trying-to-overturn-2020-election-difficult-to-imagine-a-worse-more-undemocratic-action/)
-犹他州共和党参议员米特·罗姆尼(Mitt Romney)周二在接受采访时说，在最近的民意调查中指出，川普和其他潜在的共和党候选人相比，“他赢得了压倒性的胜利”。如果前总统川普在2024年再次参选，他可能会赢得共和党提名。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-25_06-59-10.jpg)[nvestigoo.com](https://investigoo.com/content/five-eyes-alliance-could-expand-in-scope-to-counteract-china.html)
+布赖特巴特新闻(Breitbart News) 2月24日报道，联合国秘书长安东尼奥·古特雷斯警告称“白人至上”对全球安全构成日益严重的威胁，48小时后，中共官方媒体对此事件进行了全面报道，诋毁五连联盟成为是“白人至上”轴心国。
 
-“到目前为止，他在我们党内有着最大的声音和巨大的影响力。”罗姆尼告诉《纽约时报》，川普有着巨大号召力和影响力。“我不知道他是否计划参加2024年的竞选，但如果他计划参加，我很肯定他会赢得提名。”
+中共喉舌《环球时报》发表了抨击五眼联盟白人至上思维的文章，称加拿大、英国、美国和澳大利亚正在对中共采取协同行动。第五个成员国新西兰没有参与直接攻击被中共忽略。
 
-在11月大选后不久，罗姆尼对媒体说，“我相信，绝大多数投票给川普的人希望确保他的原则和政策得到贯彻。所以他无论如何都不会消失。” 川普将成为2024年“不可忽视的力量”。
+“他们形成了一个以美国为中心的、种族主义的、黑手党风格的社区，蓄意和傲慢地挑衅中共，试图像所有黑帮一样巩固他们的霸权。”《环球时报》指控提出种族主义指控并称，“他们正在成为一个种族主义轴心，旨在扼杀14亿中国人的发展权。” 这样的种族主义轴心注定会侵蚀国际关系，让流氓罪在21世纪登上外交舞台。
 
-据消息称川普计划在本周末举行的CPAC演讲中宣布自己是“2024年假定提名人”，但是还没有消息表示他是否计划参加2024年的竞选。
+这不是中共喉舌第一次抨击“五眼联盟”(Five Eyes)成员。正如布赖特巴特新闻(Breitbart News)所报道的那样，去年11月，该报抨击五眼联盟批评中共对香港民主的丑恶镇压，并嘲笑澳大利亚是“美国的附属国”。
 
-一些弹劾川普的批评者表示，民主党人想给川普定罪，并禁止他再次竞选，因为他们不想与一个获得7400万张选票的人竞争。拜登总统获得了8100多万张选票，使拜登和川普成为美国总统选举历史上得票最多的两位候选人。当然，前提是所有选票都是真实可信的。
+《环球时报》总编胡锡进称，“五眼”更像是一个犯罪团伙，美国发号施令，它的爪牙去为它战斗或喝彩。即使华盛顿的要求是不合理的，“小兄弟们”也不敢反驳。听从美国指令已经成为这个群体中的‘政治正确’。”
+
+中共此次谩骂是对加拿大本周宣布中共对待新疆维吾尔族人口的做法是种族灭绝行为，并要求将2022年冬奥会从北京移出的反击。
+
+中共每次在面对挑战无力反击时便露出泼妇骂街的嘴脸，实在无耻，丢尽了东方大国的颜面。
 
 参考链接：
 
-[https://www.foxnews.com/politics/romney-says-trump-likely-republican-nominee-if-he-runs-in-2024](https://www.foxnews.com/politics/romney-says-trump-likely-republican-nominee-if-he-runs-in-2024)
+[https://www.breitbart.com/politics/2021/02/24/china-assails-five-eyes-intelligence-network-axis-of-white-supremacy/](https://www.breitbart.com/politics/2021/02/24/china-assails-five-eyes-intelligence-network-axis-of-white-supremacy/)
 
 0
