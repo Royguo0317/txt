@@ -1,22 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班农先生号召共和党清除党内“战争罪犯”
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/932969/)
+## 【紧急新闻】巴伐利亚基督教社会联盟的政客通过口罩交易赚了钱
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/932981/)
 
-#### 翻译：WEN JIE
-责编：WEN WANG
-![]()![](https://gnews.org/wp-content/uploads/2021/02/capture-23-10.jpg)图片来源：GENWS
-战斗室（The War Room Pandemic）主持人史蒂芬·K·班农（Stephen K. Bannon）在2月24日的第753/754期节目（Episode 753/754）中表示，是时候应该将莉兹·切尼（Liz Cheney）这样的“战争罪犯”清除出共和党了。他说，在我们新的一届共和党委员会大家庭中，首要的任务就是清除类似莉兹·切尼之类的“战争罪犯”。
+```
+新闻来源: 德国图片报
+发布时间：25.02.2021 - 11:14 Uhr
+翻译整理：Shuizhuyu 校对/发稿人: Ting Guo
+```
 
-共和党议员莉兹·切尼先前在里根图书馆发表演讲中表示，她支持成立一个类似9/11事件的委员会来调查2020年1月6日发生在国会山的暴力事件。 对此，班农回应说，“我发现她很讨厌。”
 
-班农先生在节目中说：“我同意莉兹·切尼的意见。我在此建议我们大家牵头，让我们重新回到9/11委员会，然后我们不做任何删减，进行没有任何删减的完整的在线（直播）调查，使每个人都可以明白什么是沙特阿拉伯的关系…，沙特只是我们两党的‘遮羞布’而已。”“然后我们还可以重新开始对您父亲进行全面而真实的审查，我认为他就是一个战争罪犯。”
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1w993qhighc0.bild_.jpg)图为调查人员在巴伐利亚州格茨堡的乔治·纽斯莱因（GeorgNüßlein）房子前
+照片：罗伯特贡戈尔
 
-**评：**
+联邦议院提高联邦议会副主席格奥尔格·努斯莱因的豁免权 ——- 搜索办公室
 
-从班农先生的这番表述来看，共和党中有些狂热份子，罔顾事实真相，鼓吹谋谋论，需要被清理。另外，班农先生透露出，9/11调查报告并不真实可靠。
+突袭联邦议院联邦议会副主席乔治·纽斯莱因（51）！
 
-[原文](https://pandemic.warroom.org/2021/02/24/get-rid-of-the-war-criminals-first-bannon-says-liz-cheney-doesnt-belong-in-gop/)
+据说这位健康政治家已经从口罩制造商那里获得了订单，并亲自致富。
 
-0
+搜寻巴伐利亚基督教社会联盟政治家的办公室。由于这一指控，联邦议院先前已解除了豁免权。
+
+**评：巴伐利亚基督教社会联盟CSU是与德国默克尔执政党一起执政的政党**
+
+[🔗新闻来源链接](https://www.bild.de/politik/2021/politik/geld-mit-masken-deal-verdient-razzia-beim-csu-abgeordneten-georg-nuesslein-75534644.bild.html)
+
++2
