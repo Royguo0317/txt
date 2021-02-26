@@ -1,37 +1,74 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 作秀加班，形式主义“简政”，中共体制基层苦不堪言
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/933987/)
+## 国家开发投资集团投资华大基因
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/934039/)
 
-#### 作者：美国纽约香草山农场  鹰(文言)
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-86.jpg)
-澎湃网2月26日转载《中国青年报》文章，针对近期中共国社会热议的“形式主义加班”进行理性批判和劝诫。
+*新闻来源：Reuters《路透社》| 作者：Kirsty Needham | 发布时间：2021年2月22日*
 
-对任何企业而言，形式主义加班只是做给领导看的戏码，营造勤工敬业的假象，实际则是耗费了精力的同时平白增加了工作时限。虽然社会对此批判不断，但此类现象却层出不穷。
+*翻译/简评：文意|校对：SilverSpurs7 |审核：万人往 |Page：小雨*
 
-如果说地方企业的作秀加班，可看作迎合领导或老板辛勤工作的要求，以及为自己升职加薪所做的努力，还情有可原。然而体制内旱涝保收的职员加班以及“陪领导”，则完全是中共治下极度奴役人民的体现。中共官场的“逆淘汰体制”就是劣币驱逐良币，将大量业务能力强的实干者筛除，留下擅长迎来送往、阿谀奉承的奸佞小人。中共官场成了拉山头、讲人情的“戏台”，久而久之其体制内真正的专业人才越来越少。中共各级领导中大量谄上媚下的贪官，毫无担当。借用郭文贵先生的话说，现在的体制内充斥着大量的酒囊饭袋，所以拍脑袋政策、朝令夕改的奇葩规定现象屡见不鲜。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-64.jpg)
-2012年后，习近平为加强集权强推“妄议中央”罪名，导致中央、地方各级机构为躲避罪责而照本宣科“一刀切”推行政令。但在基层实践中又屡屡与实际情况相悖，基层压力只增不减；除本职工作的负担加重、任务繁多外，习又大搞特搞巡视组、检查组等检查工作，迎检优先的“政治态度”更加剧了基层工作量；再有定期的考核评比、季度总结、汇报等，各种政务APP的“打卡签到”和关注微信公众号，以及各种强调“听党话”的洗脑会议不断，基层工作苦不堪言。简政放权被中共滥用，反而成为了基层的公职人员头上的又一座“大山”。
+[!\[\]()!\[\](https://spark.adobe.com/page/axdv7R6hZ5nYr/images/e3ce30c8-ca14-406b-a680-a320b6cd69f2.jpg?asset_id=73ecd196-b670-4736-b18d-e03a1bb3216a&amp;img_etag=%226228e590dd8d5111b5b589ba99d02e2b%22&amp;size=2560)](https://spark.adobe.com/page/axdv7R6hZ5nYr/images/e3ce30c8-ca14-406b-a680-a320b6cd69f2.jpg?asset_id=73ecd196-b670-4736-b18d-e03a1bb3216a&amp;img_etag=%226228e590dd8d5111b5b589ba99d02e2b%22&amp;size=1024)
 
-2012年习王开启以贪反贪的“打老虎”运动。编织各种名义抓捕了百万党员，在习王开战、习江开战后，利用反腐排除异己的行径愈演愈烈。在此背景下上至中央下至地方，各级头头脑脑为保命保官只能更加迎合上级，全盘执行各种政令，所以“领导在职工在”、“加班时间看领导”等现象愈演愈烈。至于“简政放权”对外宣称是为了简化办理流程、减少基层业务量而推出的政策。但在具体执行中却依旧成为各级领导层，掌控牟利的弹性操作空间（如视情节严重、特殊情况下允许“开后门”等），而经办人这类基层人员的工作量却只增不减。
+**简评：**
 
-古云：上梁不正，下梁歪。中共上级用“形式主义”的做法反对下级搞“形式主义”，焉有为基层减负之效用？
+华大基因2月1日提交给深交所的文件显示，该公司通过定向增发募集了3亿多美元的资金，投资者包括中共国最大的国有投资机构——国家开发投资集团。
 
-新闻来源：
-没有指令不能下班、白天摸鱼加班干活：形式主义加班害了
-[https://www.thepaper.cn/newsDetail\_forward\_11470660](https://www.thepaper.cn/newsDetail_forward_11470660)
-为什么基层各单位工作都越来越多，工作人员普遍感觉压力越来越大
-[https://www.sohu.com/a/300654712\_522635](https://www.sohu.com/a/300654712_522635)
-观察 | 指尖留痕加重基层负担
-[http://www.hbjwjc.gov.cn/lzyw/125252.htm](http://www.hbjwjc.gov.cn/lzyw/125252.htm)
-不加班=不上进？别让“形式主义加班”污染了奋斗精神
-[http://www.xinhuanet.com/2019-05/18/c\_1124510755.htm](http://www.xinhuanet.com/2019-05/18/c_1124510755.htm)
+华大基因在全世界各地销售和发放COVID-19检测盒应该引起世界各国的重视。基因科学在最近几年日新月异，中共派遣了很多生物科技人源来西方社会学习最先进的生物科学技术。在未来的国防科技领域里，生物武器将成为更具大面积杀伤能力的无声的先进技术。中共正在尽全力来研究开发这种生物核武器，其中最重要的数据就是各人种的基因数据。只有知道了基因的秘密，才能有的放矢地研究和发展针对特定基因的有效杀伤武器。 世界人民、各国政客、和有良知的科技人员要清醒了，正如闫博士所说：“留给人类的时间不多了！”
 
-* * *
+**原文翻译：**
 
-***责任编辑：**加拿大多伦多枫叶农场 文锦
-**编辑校对：**日本大阪方舟农场 老蚂蚁666
-**发布：**美国纽约香草山农场 孤独的小生（文留）*
+# **中共国国家基金投资基因公司华大基因**
+
+悉尼（路透社）——中共国政府对华大基因（BGI Genomics） 公司进行了投资。华大基因公司是一家在中共国上市的公司，该公司已在全球范围内提供了数百万剂COVID-19检测， 因疫情导致业务指数级增长而寻求融资。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/axdv7R6hZ5nYr/images/f05f5b37-754a-4e72-8ac8-7cb6b5ac47e7.png?asset_id=9ab6915a-61ec-415f-8cb9-f3bbd318ed2b&amp;img_etag=%22d3f9ded9bd77497729adfb1a500cf534%22&amp;size=2560)](https://spark.adobe.com/page/axdv7R6hZ5nYr/images/f05f5b37-754a-4e72-8ac8-7cb6b5ac47e7.png?asset_id=9ab6915a-61ec-415f-8cb9-f3bbd318ed2b&amp;img_etag=%22d3f9ded9bd77497729adfb1a500cf534%22&amp;size=1024)文件照片：2018年12月26日，一名技术人员在中国云南昆明的华大基因（BGI）基因测试实验室工作，该实验室以前称为北京基因研究所。
+
+华大基因集团（BGI Group）在中共国拥有庞大的基因数据库，并与世界各地的医疗公司和大学签订了DNA测序合同，过去曾对美国安全机构关于它与中共国政府紧密联系的说法做出回应，声称其没有中共国政府的资金投入。
+
+华大基因是在深圳证券交易所上市的子公司，2月1日提交给深交所的文件显示，该公司通过定向增发募集了相当于3亿多美元的资金，投资者包括中共国最大的国有投资机构国家开发投资集团(SDIC)。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/axdv7R6hZ5nYr/images/f52654f8-3661-4081-8b9a-271b8a746fe9.png?asset_id=0f13c0fe-621b-4bdb-838f-d43a7a865032&amp;img_etag=%2261a863af536160b0b00525069f02d525%22&amp;size=2560)](https://spark.adobe.com/page/axdv7R6hZ5nYr/images/f52654f8-3661-4081-8b9a-271b8a746fe9.png?asset_id=0f13c0fe-621b-4bdb-838f-d43a7a865032&amp;img_etag=%2261a863af536160b0b00525069f02d525%22&amp;size=1024)
+
+根据“国投”的公开声明，国投公司是中共国中央政府全资拥有的公司，中央政府指派董事会，并专注于战略性新兴产业，包括生物技术和人工智能，以及服务于中共国国家利益的基础设施。
+
+国投创投发言人告诉路透社，由国投旗下全资创业投资子公司国投创益管理的中央企业贫困地区产业投资基金，斥资2亿人民币(3080万美元)购买了华大基因140万股股票。
+
+华大基因表示，这项投资使国投创益持有华大基因约0.33%的股权。
+
+国投创益董事长王维东在一份声明中对路透社表示，这项投资的目的是通过改善医疗保健和抗击新冠病毒疫情来促进中共国的利益。
+
+王说：“流行病的预防和控制也是一种社会利益。”
+
+美国安全官员警告美国实验室不要使用中共国的COVID-19测试盒，因为担心中共国试图为其研究收集外国遗传基因数据。华大基因否认了这一点。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/axdv7R6hZ5nYr/images/25a0fbf1-065f-4e59-ba57-c1a665d13f2d.jpg?asset_id=c877891c-6229-4ea6-8d3d-fe708cb30fbf&amp;img_etag=%225cebe6440de222869cadf0e4d0879d25%22&amp;size=2560)](https://spark.adobe.com/page/axdv7R6hZ5nYr/images/25a0fbf1-065f-4e59-ba57-c1a665d13f2d.jpg?asset_id=c877891c-6229-4ea6-8d3d-fe708cb30fbf&amp;img_etag=%225cebe6440de222869cadf0e4d0879d25%22&amp;size=1024)
+
+投资华大基因的中央企业贫困地区产业投资基金已经投资了一家医药经销公司和一家关键的锂电池材料供应商，并在最近几个月重组了中共国最大的铁路材料公司。
+
+华大基因的文件显示，筹集的资金将用于缓解营运资金的压力，提高遗传数据的存储能力并建立生物样本库。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/axdv7R6hZ5nYr/images/aaa25c8a-06aa-440d-8730-f5f3bf8ce51d.jpg?asset_id=fffcc107-8b1e-4ab1-b312-defebb7db9f6&amp;img_etag=%22a305639e46fafffcf4cabcfb0b67c835%22&amp;size=2560)](https://spark.adobe.com/page/axdv7R6hZ5nYr/images/aaa25c8a-06aa-440d-8730-f5f3bf8ce51d.jpg?asset_id=fffcc107-8b1e-4ab1-b312-defebb7db9f6&amp;img_etag=%22a305639e46fafffcf4cabcfb0b67c835%22&amp;size=1024)
+
+中共国的两家大型国有证券公司，华泰证券和招商证券，也持有华大基因的股份。配售后，华泰证券成为华大基因的第五大股东。
+
+华大基因在给路透社的一份声明中说，其控股股东仍然是私人企业和个人。
+
+深圳华大基因在声明中说：“目前，国投创益在华大基因集团的持股比例为0.3332%，在议案表决中没有决定性作用。”
+
+该公司表示：“拥有这种所有权的股东可能无法任命董事参与华大基因的决策，也不会对华大基因的运营、战略或其他事项产生任何重大影响。”
+
+华大基因创始人兼董事长汪健直接持有华大基因0.46%的股份。与华大基因集团有关联的两家私人公司控制着华大基因45%的股份（1美元= 6.4555人民币）
+
+🔗[原文链接](https://www.reuters.com/article/us-china-genomics-state/chinese-state-fund-invests-in-gene%20firm-bgi-idUSKBN2AM0AT)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/axdv7R6hZ5nYr/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/axdv7R6hZ5nYr/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0
