@@ -1,44 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 最后的决战之 彭斯背后的男人——科氏兄弟
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/933093/)
+## 【热点播报】荷兰国会通过议案，中（共）国在新疆实行“种族灭绝”
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/933124/)
 
-俄罗斯莫斯科喀秋莎农场 坐看云起时
+作者：纽约香草山美食部 蓝天大海
 
-编辑   水星   上传   银河
 
-美国总统大选时的心酸随着时间正慢慢散去，当初对民主党各种作弊的愤怒，对共和党内部的背叛也随着时间慢慢地淡忘。当然作为局外人，我们其实还是有很多的疑虑。比如彭斯在2021年1月6号的时候为什么不动用他的权力阻止作弊的6个州的选票？难道他不想做副总统？难道一定要阻止川普？近日随着皮特·纳瓦罗透露：他曾经和彭斯打过电话，讨论1/6号的事情，当时电话被直接挂断了。现在发现挂断他们两个人谈话的是彭斯办公室主任马克·肖特（Marc Short），坊间传闻马克是科氏兄弟的马仔……
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-26_01-15-24.jpg)[breitbart.com](http://www.breitbart.com/big-government/2017/09/13/outrageous-selling-out-base-immigration-patriots-blast-trump-staffer-marc-short-trading-daca-amnesty-tax-cuts/)
-图为彭斯办公室主任马克·肖特（Marc Short）
 
-如果我们再仔细探究一下，发现科氏兄弟（查尔斯·科赫/Charles Koch；大卫H·科赫/David H. Koch ）是共和党长期最大的金主，号称深海章鱼，而他们兄弟俩和川普不合！
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-在2016年，川普开始竞选总统的时候，科氏兄弟 (Koch Brothers) 就看不上。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-26_01-17-19.jpg)
-当然以川普的性格，你看不上我？我还看不上你呢！
 
-下面是2018年川普总统的推特。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-26_01-18-16.jpg)
-我们再探究一下科氏兄弟，他们为何在川普最需要帮忙的时候，他们出手阻止川普成为美国总统！
 
-![]()
-如下是科氏兄弟的照片：
-![]()![](https://gnews.org/wp-content/uploads/2021/02/下载-1-11.jpg)trofire.com
-这些沼泽地的人，基本上是以利益为出发点，其他的东西，方便的的时候会考虑一下。让我们来看看他的利益版图。
+荷兰议会今天通过一项议案，确认中共国政府在新疆地区，针对维吾尔少数民族实施的限制生育和设立劳改营等举措，为“种族灭绝”。这是继美国国务院、加拿大下议院之后，又一个国家——也是欧洲第一个国家——确认中共在新疆犯下的罪行。值得注意的是，首相吕特（Mark Rutte）领导的自由民主人民党在表决时，投了反对票。
 
-科氏家族（Koch Family），来自荷兰的移民，由弗雷德·C·科赫（Fred C. Koch 1900–1967) 起家，其家族企业由老科赫/弗雷德·C·科赫创办，他是麻省理工的化学专业学生，开发了一种新的裂解方法，用于将重油提炼成汽油，正是此项技术帮助他们家族的成长。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/12-15.jpg)图源网络
 
-政治立场：反对气候变化立法、自由主义、刑事司法改革、共和党事业捐款。
+除此之外，英国多名议员喊话首相约翰逊，要求英国政府也对中共在新疆的种族灭绝行为正式表态，谴责中共的罪行 。法国外长让·伊夫·勒·德里安本周三也在联合国人权理事会上，谴责中（共）国在西北地区对新疆维吾尔族穆斯林实行“制度化镇压”。
 
-家族业务：美国第二大私营公司科赫工业（Koch Industries）（2017年收入1000亿美元）拥有者。具体财富未知，因为他们家族不是上市企业，估计财富（净资产约1000亿美元）。主要经营造纸、石油、化学、纤维、聚脂、矿务、化肥、商品交易等行业。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-26_01-21-21-1.jpg)[democracychronicles.org](https://democracychronicles.org/koch-brothers-in-canada/)
-在中共国的业务：科氏公司于1999年6月进入中共国市场，已投资建立了鄂州、广州、镇江、西安、天津、三水、泸州和郑州8个沥青产品有限公司和北京沥青技术研发中心。到2003年，科氏为中共国20多个省、市和地区生产和供应了共计80余万吨的各种性能优异的沥青产品，其中SBS改性沥青达50万吨，占中共国近一半的市场份额。科氏材料（中国）公司已成为中共国目前最大的改性沥青和乳化沥青生产商。
+中（共）国外交部和驻联合国代表的反映，则是一如既往的：毫无新意的反对所谓个别国家就涉疆问题的无端指责，嚷嚷着要别人拿出证据。世界各国已经觉醒。在CNN等多家主流媒体的详细报导，且有新疆维吾尔人以证人身份现身指控下，中共的狡辩是徒劳的。
 
-显然中共国大规模的基础建设，以及石化市场，对科氏家族有巨大的吸引力，这20多年来为他们带来了巨大财富增长点。因此这是他反对川普中共国政策的重要原因吧。
+参考阅读：
 
-试想，川普在2021/1/6赢得美国总统，然后实施那被巴尔阻止的30项总统行政令，现在中共已经灭了。但是历史没有如果，我们只能朝前看，一直朝前走，踏平中南坑！
+[法国谴责中（共）国在新疆针对维吾尔人制度性镇压](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210224-%E6%B3%95%E5%9B%BD%E8%B0%B4%E8%B4%A3%E4%B8%AD%E5%9B%BD%E5%9C%A8%E6%96%B0%E7%96%86%E9%92%88%E5%AF%B9%E7%BB%B4%E5%90%BE%E5%B0%94%E4%BA%BA%E5%88%B6%E5%BA%A6%E6%80%A7%E9%95%87%E5%8E%8B)
 
-（文章仅代表作者个人观点）
+[荷兰国会通过动议　称中（共）国在新疆进行“种族灭绝”](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20210225-%E8%8D%B7%E5%85%B0%E5%9B%BD%E4%BC%9A%E9%80%9A%E8%BF%87%E5%8A%A8%E8%AE%AE-%E7%A7%B0%E4%B8%AD%E5%9B%BD%E5%9C%A8%E6%96%B0%E7%96%86%E8%BF%9B%E8%A1%8C-%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D)
 
-+1
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
+
+0
