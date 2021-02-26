@@ -1,27 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 五角大楼称俄罗斯是美欧的“持续威胁”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/933044/)
+## 【热点播报】荷兰国会通过议案，中（共）国在新疆实行“种族灭绝”
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/933124/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
-编辑 水星 上传 银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-26_00-48-34.jpg)[dreamstime.com](https://www.dreamstime.com/tense-relations-russia-great-britain-concept-conflict-stress-tense-relations-russia-great-britain-image112704786)
-2月25日，尽管对俄罗斯施加了限制，但俄罗斯仍继续对美国及其欧洲伙伴构成威胁。据五角大楼新闻处报道，这是美国欧洲司令部（Eucom）负责人、空军上将托德•沃尔特斯（Todd Walters）宣布的。
+作者：纽约香草山美食部 蓝天大海
 
-“俄罗斯仍然是对美国和我们欧洲盟友的存在构成持续威胁。”沃尔特斯指出，自前苏联时代以来，莫斯科一直试图维持其势力范围。他说，它使用私人军事公司等非常规工具来 “恐吓、削弱和分裂”美国盟友。
 
-“尽管受到国际社会的谴责和持续的经济制裁，但俄罗斯在世界各地从事破坏稳定和恶意活动。”这位将军补充说，美国和欧洲的对手正在通过网络攻击和虚假信息增加他们的侵略性。如果不制止这些行动，它们可能会升级为更大的侵略。
 
-“我们生活在一个全球权力竞争的时代。”沃尔特斯强调，“在这个时代取胜，意味着全球力量的竞争不会演变成全球力量的战争。”他还指责俄罗斯和中共国试图将“北极地区军事化”。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-美国定期发表声明，称俄罗斯对其或其盟友构成威胁。2月早些时候，五角大楼表示，莫斯科是所有北约成员国的威胁。
 
-“俄罗斯破坏了透明度和可预测性。它正在使用军事力量来实现其目标。”军事部门指出，我们看到俄罗斯希望用其独裁的方式破坏世界安全与稳定。
 
-去年秋天美国务院表示，尽管中共国的影响力越来越大，但俄罗斯仍然是华盛顿的主要军事威胁。随着乔•拜登总统的上台，白宫表示打算让莫斯科对其侵略行动负责。
+荷兰议会今天通过一项议案，确认中共国政府在新疆地区，针对维吾尔少数民族实施的限制生育和设立劳改营等举措，为“种族灭绝”。这是继美国国务院、加拿大下议院之后，又一个国家——也是欧洲第一个国家——确认中共在新疆犯下的罪行。值得注意的是，首相吕特（Mark Rutte）领导的自由民主人民党在表决时，投了反对票。
 
-参考链接：
-https://www.rbc.ru/politics/25/02/2021/6037179d9a794757a00d6451
+![]()![](https://gnews.org/wp-content/uploads/2021/02/12-15.jpg)图源网络
+
+除此之外，英国多名议员喊话首相约翰逊，要求英国政府也对中共在新疆的种族灭绝行为正式表态，谴责中共的罪行 。法国外长让·伊夫·勒·德里安本周三也在联合国人权理事会上，谴责中（共）国在西北地区对新疆维吾尔族穆斯林实行“制度化镇压”。
+
+中（共）国外交部和驻联合国代表的反映，则是一如既往的：毫无新意的反对所谓个别国家就涉疆问题的无端指责，嚷嚷着要别人拿出证据。世界各国已经觉醒。在CNN等多家主流媒体的详细报导，且有新疆维吾尔人以证人身份现身指控下，中共的狡辩是徒劳的。
+
+参考阅读：
+
+[法国谴责中（共）国在新疆针对维吾尔人制度性镇压](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210224-%E6%B3%95%E5%9B%BD%E8%B0%B4%E8%B4%A3%E4%B8%AD%E5%9B%BD%E5%9C%A8%E6%96%B0%E7%96%86%E9%92%88%E5%AF%B9%E7%BB%B4%E5%90%BE%E5%B0%94%E4%BA%BA%E5%88%B6%E5%BA%A6%E6%80%A7%E9%95%87%E5%8E%8B)
+
+[荷兰国会通过动议　称中（共）国在新疆进行“种族灭绝”](https://www.rfi.fr/cn/%E6%AC%A7%E6%B4%B2/20210225-%E8%8D%B7%E5%85%B0%E5%9B%BD%E4%BC%9A%E9%80%9A%E8%BF%87%E5%8A%A8%E8%AE%AE-%E7%A7%B0%E4%B8%AD%E5%9B%BD%E5%9C%A8%E6%96%B0%E7%96%86%E8%BF%9B%E8%A1%8C-%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
 
 0
