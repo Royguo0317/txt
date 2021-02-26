@@ -1,17 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年2月25日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/933345/)
+## 2021年2月25日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/933427/)
 
 编辑整理：美东香草山农场（彩虹桥）
 
-2月25号：今天七哥和战友开玩笑撒娇说．七哥变老的视频，发出后，收到了无数战友对七哥哥……的健康的关心的信息.…文贵万分的感谢，只要真心灭共．就不会衰老，这是最好的长生不老的妙方!
-
-
-
-[【2021年2月25日】文贵先生盖特原文](https://gtv.org/getter/60384ebc19585159023761cc)
+2月25号：开心的七哥永远不会老……因为有无数个．新中国联邦……伟大的兄弟姐妹们！
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-82.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-56.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/3-36.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/4-48.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/5-42.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/6-48.jpg)
+[【2021年2月25日】文贵先生盖特原文](https://gtv.org/getter/60384f1419585159023761e2)
 
 喜联盟**Gnews**编辑部
 
-+1
+0
