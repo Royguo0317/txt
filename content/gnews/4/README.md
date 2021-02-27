@@ -1,22 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西班牙延长非必要旅行临时限制至3月31日
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/936388/)
+## 中共以防疫控制公民自由 加剧人权纪录恶评
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/936405/)
 
-- 编辑：Victor Torres
-- 翻译：gokuabuela
-- 发稿：Ranting
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-27_20-58-57-1.jpg)[youtube.com](https://www.youtube.com/watch?v=Oo6wspVVjAA)
+路透社消息，联合国人权事务高级专员米歇尔·巴切莱特（Michelle Bachelet）周五在日内瓦论坛上表示，中共正在以国家安全和中共病毒防疫措施的名义限制公民的基本政治自由，加剧了对中共人权记录的批评浪潮。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+巴切莱特对人权理事会说，“活动人士、律师和人权捍卫者，以及一些外国人，面临任意的刑事指控、拘留或不公平的审判。”
 
-**西班牙2021年2月27日电/西喜社——**据ABC新闻2月26日报道，由于中共病毒引发的健康危机，西班牙出于公共秩序和公共卫生的考虑，于本周五开始，对第三国前往欧盟及相关申根国家的非必要旅行的临时限制，延长至3月31日。
+她说，香港有超过600人因参与抗议活动而接受调查，其中一些人是根据中共大陆对这个前英国殖民地实施的新《国家安全法》被拘捕调查的。而香港律政司司长郑若骅颠倒黑白地狡辩称，自《国安法》通过以来，市民骚乱已消退，居民可享有合法的自由。
 
-这项命令发布于“国家官方公报”( BOE), 而在此之前，内政部长延长了于1月28日结束的限令至2月28日。现在，此限令再次延长一个月，至3月31日。
+在谈到中共新疆地区时，巴切莱特说，鉴于有关任意拘留、虐待、性暴力和强迫劳动的报道，有必要对情况进行彻底和独立的评估。她希望与中共官员就访问该国达成协议。
 
-**新闻来源：[ABC新闻](https://www.abc.es/sociedad/abci-coronavirus-espana-directo-brasil-supera-250000-muertes-coronavirus-202102260617_directo.html#vca=mod-lo-mas-p4&amp;vmc=leido&amp;vso=sociedad&amp;vli=noticia.foto.sociedad&amp;vtm_loMas=si)**
+自美国前国务卿确认了中共对新疆维吾尔族的暴行为种族灭绝后，西方各国对中共对待新疆和西藏少数民族以及香港公民的方式提出了越来越多的批评。拜登政府支持川普政府在最后几天做出的决定，即中共在新疆犯下了种族灭绝罪行，并表示美国必须准备让中共付出代价。英国外交大臣多米尼克·拉布(Dominic Raab)表示，酷刑、强迫劳动和绝育正在新疆以“工业规模”进行。法国外交部长让-伊夫·勒德里安谴责了“大规模监视和镇压的制度化体系”。 加拿大和荷兰通过议案认定中共罪行为种族灭绝。欧盟外交政策负责人博雷尔呼吁中共允许联合国人权事务负责人巴切莱特“有意义地”访问并调查新疆维吾尔族穆斯林和西藏人民受到虐待的指称。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
+中共使出浑身解数想摆脱掉种族灭绝的控诉，但是在越来越多揭露出来的事实真相面前，一切都是徒劳。中共无计可施，只能苍白无力地狡辩称“新疆从未发生过所谓的种族灭绝、强迫劳动或宗教压迫。”并开始无耻的语言攻击，用谩骂来反击。中共抨击英国呼吁调查种族灭绝是“无耻的帝国主义行为”，批评加拿大对种族灭绝的认定是“白人至上”的流氓行径，并污蔑五眼联盟“正在成为一个种族主义轴心，旨在扼杀14亿中国人的发展权。”
+
+中共官媒新华社更由此发表了一篇“愤怒”的社评，谴责所有对新疆维吾尔族暴行的言论都是“谎言”，是“西方反华势力”捏造的阴谋。
+
+正如美国国务院发言人内德·普赖斯(Ned Price)对中共的评价，中共缺乏透明度，习惯性回避其掠夺性经济行为、未能履行国际协议以及压制普世人权价值的一切指责。
+
+参考链接：
+
+[https://www.reuters.com/article/us-china-rights-un/u-n-rights-chief-decries-arrests-in-china-abuses-in-xinjiang-idUSKBN2AQ1MF?il=0](https://www.reuters.com/article/us-china-rights-un/u-n-rights-chief-decries-arrests-in-china-abuses-in-xinjiang-idUSKBN2AQ1MF?il=0)
 
 0

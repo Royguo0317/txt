@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西班牙中共病毒疫情简报
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/936363/)
+## 塞维利亚一监狱爆发中共病毒感染
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/936393/)
 
 - 编辑：Victor Torres
 - 翻译：gokuabuela
@@ -11,19 +11,11 @@
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年2月27日电/西喜社——**据ABC新闻2月27日报道，2月尽管是最短的月份，但西班牙因中共病毒而死亡的人数却创下了纪录。虽然卫生部的下一次数据更新将在下周一3月1日进行，但是我们已经可以说，2月份的死亡人数已经达到了去年4月份以来没有的记录。在这几周内，已经有10823人丧生，这个数字显示了第三波疫情的残酷性。
+**西班牙2021年2月27日电/西喜社——**据ABC新闻2月26日报道，塞维利亚一座监狱爆发中共病毒感染，目前34名囚犯和7名管理人员检测阳性，检测还在积极进行中。
 
-最近24小时内，新增死亡329人，比上周五减少68人。
+根据监狱管理部门的披露，这次爆发从1月30日开始，已有一名感染病毒的囚犯死亡。最初，是从两名囚犯的感染开始的，其中一名是当时正好要定期去医院做化疗的囚犯，在医院被测试出阳性，才知道他感染了病毒，从而开始对整个监狱的检测。
 
-而新增感染人数8,341例，也低于上周同一天的 11,435例。
-
-至此，西班牙的感染者总数正式上升到318万。
-
-累计发病率，上周二成功地从极度风险水平继续下降，目前是14天内10万人发病率为193例，是自去年 12 月 9 日以来记录的最低数字。
-
-目前，在西班牙，因为中共病毒共收治了12207名患者，其中有3021名患者需要在ICU进行护理。在过去的24小时内，出院人数（1 461人）多于入院人数（1 022人），中共病毒的病床占用率在普通病房和重症监护室都下降了，普通病房的病床占用率为9.67%，重症监护室的中共病毒患者占用率为28.77%。
-
-**新闻来源：[ABC新闻](https://www.abc.es/sociedad/abci-febrero-termina-como-mas-fallecidos-coronavirus-desde-abril-202102261906_noticia.html)**
+**新闻来源：[ABC新闻](https://www.abc.es/sociedad/abci-coronavirus-espana-directo-brasil-supera-250000-muertes-coronavirus-202102260617_directo.html#vca=mod-lo-mas-p4&amp;vmc=leido&amp;vso=sociedad&amp;vli=noticia.foto.sociedad&amp;vtm_loMas=si)**
 
 ![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
 

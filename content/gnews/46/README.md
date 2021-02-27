@@ -1,129 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 汤姆‧科顿议员报告（四）——《战胜中共国：针对性脱钩与经济持久战》
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/935835/)
+## 【战云长天时评20期】中共是“完美犯罪”学理论践行者——案例六：（二）瞒天过海与数字极权
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/935884/)
 
-五月花写作组 ｜ 翻译：风云九霄（文萧） ｜ 校对：伞兵 ｜ 编辑：jamie(文胤) ｜ 美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/02/汤姆克顿V5.jpg)
-* * *
+作者：捆绑CCP一千年/喜马拉雅东京樱花团
 
-### 往期链接：
+孙子兵法“瞒天过海”在现代科技互联网大数据中彰显的淋漓尽致。因为你的数据在不知不觉中被交易、你的银行账户没有秘密、你的存款在银行消失却没有人为此负责。甚至你的性生活也暴露在智能世界中。在智能化社会语境中，中国人在个人隐私上普遍感觉自己在“裸奔”。当有人提醒你要注意网络安全隐私的时候，你可能会立刻被嘲笑，你还有隐私吗？在星云密布的摄像头下，中共所谓智慧城市其实是一个大数据监狱。而被体制化的囚徒心里自然会嘲笑享有自由的人所谓善意的提醒——你要注意隐私。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/PHOTO-2021-02-26-20-25-20.jpg)
+图片：CSDN博客
 
-[汤姆‧科顿议员报告序言——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/918314/)
+据新华网北京时间2月26日《周鸿祎：用好大数据，须运营安全两手抓》的报道中，周鸿祎直言不讳地说，“他们在服务用户过程中收集积累了海量的数据，”360网络科技公司创始人周鸿祎继续说道，“大数据是数字化的中心，要以数据运营为抓手做好大数据的开发利用，以网络安全为基础同步推进大数据开发利用和保护。”要读懂中共瞒天过海的欺骗术，就必须要学会读懂中共的政治语言，在中共军民融合的营商环境下，几乎没有真正的民营企业。像360以杀毒软件起家的科技公司，其创始人周鸿祎的政治头衔就是新纳粹中共政权的政治协商委员会的委员（如西方国家议会议员），因此，你相信他会注意你的网络隐私吗？
 
-[汤姆‧克顿议员报告（一）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928067/)
+他的政治语言有哪些可以窥视的信息？如“抓手”一词，这是只有中国人才懂的词汇，简单意义讲就是控制和掌握。中共词库里也承认这是一个说不清楚的，只能意会的使用频率最高的政治词汇。更多地指在办一件大事的时候，或完成艰巨任务的时候，如何寻找到切入点，以便迅速取得控制权。比如中共利用金钱与美色贿赂美国政客，以期达到在美国内部控制其权力；比如被操控的美国大选，他们的抓手就是为操控大选投放了病毒、以疫情为借口，邮寄选票等（这已是不公开的秘密）。而另一串政治词汇，比如“推进”、“利用”、“保护”，当你看到这些词汇，你只能骂他们说话空洞，没有内容，而中共法律条文同样模糊不清。但这不是水准低的问题，而是有意为之，以便在出了问题时，可以瞒天过海，推卸责任。瞒天过海，用西方人的语境来讲，就是在达到欺骗上帝的前提下对中共一切想控制的人、事、物，以及国家主权进行控制，多用在战争上。而，“推进”就成了战略进攻、“利用”就是一切骗术的伎俩，而最具迷惑的词汇就是“保护”。请记住，当他说要保护你的数据时，你就要小心你的数据。举个例子，城市共享单车，你用完车，在手机APP中打开你的行程账单，你几点、几分、几秒从哪里出发，途径哪些地方，何时还车，有没有锁好车等都记录在云端。当你成为一个中共需要控制的人，他就会随机找到你。当然，如果你是一只毫无价值的羊，对你来说，你是安全的。比如，在瘟疫大流行期间，你去医院看病，要使用手机扫行程码，你近期去过的地方一览无余。而这些，中国人早已被体制化了。没有人会因为这些事惊讶得目瞪口呆，只能嘲讽你天真可爱。这就是中共数字极权统治。
 
-[汤姆‧克顿议员报告（二）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928136/)
+中共这样一个14亿人口的国家，对云数据库的控制已经达到一个世界巨大无比的大中心化极权中央。而数字化中央的隐形权利又通过“智慧城市”建设这个概念隐藏其完美犯罪心理。因为在利用数据犯罪的同时披上“城市化建设”、“利国利民”的欺骗口号来隐藏自己的邪恶。这种国家犯罪行为也就显得更加完美化，而寻求完美犯罪过程的心理本身就是撒旦行为，是犯罪行为。作为具备这种犯罪本质的政权来说，他的合法性就不复存在，因为他对人类没有丝毫的建设性，有的只是拆毁。
 
-[汤姆‧科顿议员报告（三）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/931905/)
+灭共者郭文贵先生1月6号在G｜TV自己的账号中说过这样一句话，一旦体制和环境让人性恶的一面有了足够发挥的空间时，制定这个体制的人本身就是魔。（大意）因为在中共数字极权统治下，人们已经不能保护自己的隐私，也没有反抗的机会。就是移民到其他国家，他也会通过社交媒体控制你，给你灌输思想。他会持续在西方国家制造安提法（Antifa）运动，他会告诉你，西方国家不安全，中共是人类宜居国，比如他在新闻报导中专门报导西方阴暗面，或者制造西方犯罪的虚假信息进行报道，相比国内被伪造的虚假阳光一面，其欺骗性不言而喻，人们自己会说出“还是共产党好”的话来。这样有意歪曲引导对比手段在媒体大外宣中早已经武器化。这些瞒天过海的欺骗术被赋予高科技后，他的威力是巨大的。全球正在发生和已经发生的事情告诉了你想要的答案。
 
-* * *
+startme网站一篇《“数据所有权”不仅无法解决现有问题，它还制造了新的问题》的报告提出“数据所有权”的新问题证明了新纳粹化的中共政府利用高科技全球数字化激活了新奴隶主时代的大重启。
 
-## **HOW ARE THE U.S. AND CHINESE ECONOMIES INTERTWINED? **
+《美国男人》栏目制作的一部纪录片中谈到了大重启，“他们企图引发一场全球大重启，却触发了全球大觉醒。”这句话可以用来警告中共急于取代毛泽东的习近平，习应该已经忘记了他的导师说过的话，“哪里有压迫，哪里就有反抗”，美国人同样意识到这一点。只有觉醒的人才会起来反抗，才会想着去击溃中共的控制。如美军在诺曼底登陆、美军在中途岛反击。美军在二战中击败纳粹德国后主导了世界正义的话语权，而70年后，却发现自己在二战中的战利品给了中共国。这不得不说，通过亨特·败登硬盘门事件后，人们似乎明白，美国在中共营造的温暖如春的床上所做成的交易起到了瞒天过海地控制了（抓手）美国的目的。
 
-## **美中两国经济是如何交织在一起的？**
+美国如何被控制了？《美国男人》拍摄的纪录片继续说道，“当我们不再有言论自由和新闻自由来监督政府的那一刻，我们就不再有民主。”（见《美国男人》链接）可见，言论自由权受到打击就是民主宣布死亡的风向标。而纪录片提到一个惊人的事实，“1963年，共产主义推翻美国的目标已经被国会记录在案，其中提到，共产主义要夺取（美国）一个或两个政党，渗透媒体，控制广播、电视和电影中的关键位置，”正如纪录片说的那样，他们已经实现目标了，不是苏联，而是中国共产党。
 
-Before outlining an economic strategy to beat China, we need to understand how precisely our economies are intertwined.
+郭文贵先生在1月6日的直播视频中还说，“共产党对美国社会的渗透、分化、瓦解，对人与人间建立的信任的拆毁”的认识也是这部纪录片所说的观点，因为你越深入研究这一运动真相，就会发现这一切的问题都指向中国共产党。“敌人已经不再使用枪支和弹药来作战，而是通过言语、思想和舆论，因为他们想要征服我们的思想。1956年共产主义头目赫鲁晓夫说过，‘我们不费一枪一弹就能占领美国，我们从你内部将你瓦解，’”（见《美国男人》链接）2020年的美国大选做到了这一点，可以称为中共完美犯罪的典型案例之一。即便中共日后被摧毁，这一场大选的颠覆计划堪称完美。因为他完美袭击了美国而至今未被定罪。与其说这是美国两党中的政客和主流媒体被收买后卖国行为所致，不如说这是中共瞒天过海的完美犯罪计划使然。
 
-在概述击败中共国的经济战略之前，我们需要了解下两国经济是多么紧密地交织在一起。
+他不仅颠覆了美国大选，更具破坏性在于“他播种共产主义种子，企图让我们相信谎言就是真理，”（见《美国男人》链接）而谎言并非简单意义上的谎言，毛泽东一个颠覆性的做法就是把真理模糊化，认为“人应该在实践中证明自己思维的真理性，”这样的认识是对真理的玷污，而西方价值观里的真理只能是圣经的标准。共产主义之所以颠覆了真理观，他把检验真理的标准推向个体的人，而个体的人对真理标准的认定上又被中共教科书给统一了认识。按圣经原则，个体的人就是带有原罪的罪人。在社会体验中是检验真理的过程和标准，如果还不明白，他会告诉你，这是一个经济哲学问题，需要继续在实践中检验。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/PHOTO-2021-02-26-20-25-05.jpg)
+图片来源：BBC 红色疯狂年代的影像记录者李振盛：我拍下的那些疯狂文革照
 
-## **TRADE**
+于是，“恶即是善、恨即是爱、分裂才是团结，叫我们互相为敌，让男人对抗女人，富人对抗穷人、黑人对抗白人、左派对抗右派。当我们感到孤独害怕无助的时候，他（共产主义种子）就会生根发芽。”这完全是中共国文化大革命时期的悲惨世界的再现。那时起中国的男男女女被迫接受所谓改造，当人们在政治认知上出现不一致的时候，就会在家庭之间出现父女反目成仇，夫妻彼此为敌，学生举报老师。整个社会在拆毁被视为正确的东西。（毛泽东的原话：造反有理）
 
-## **贸易**
+“他抹杀我们的历史，诽谤我们的先辈，教导我们的孩子去仇恨自身，他们的国家和家庭，他嘲笑我们的信仰、破坏我们的价值观，攻击我们的生活方式，甚至要求我们在屈辱中下跪。”（见《美国男人》链接）在中共国信奉基督教在人们看来仍被嘲讽。中共不断歪曲民主、自由与法治的定义，当他提到人民民主的时候，一定是专政的。这是写进中共党章的说教，当他们宣称“人民当家做主”，一定是说，中央国家主席一人说了算。该纪录片讲述了一个真实的中共政权真实面目、深度地分析了共产主义的本质就是有毒的种子，笔者将《圣经》中有关撒旦播撒的种子和中共的种子作为比较时，你会发现圣经记录了“奸淫、污秽、邪荡、拜偶像、邪术、仇恨、争竞、忌恨、恼怒、结党、纷争、异端、嫉妒、醉酒、荒宴等，”这些邪灵的种子，那一样中共没有呢？完全符合圣经对其定义的邪恶政权。（见《新约加拉太书》五章19—21节）这些邪灵所结的果子无论哪一条都是人性的东西，这正是郭先生提到的那句话，如果一个体制和环境让人性恶的一面得到激活，那么，这个体制就是邪恶的。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/PHOTO-2021-02-26-20-26-25.jpg)
+中史教室- blogger
 
-The U.S. and Chinese economies remain deeply intertwined despite the recent trade war, leaving both countries vulnerable to the other. The early days of the coronavirus pandemic underscored the significance of this connection, when calls to restrict travel with China in the interest of public health elicited sharp criticism from groups whose fortunes are tied to China. Our dependence on Chinese producers for medicine, surgical masks, and other essential supplies became tragically clear later in the crisis.
+一个更具挑战的问题被释放出来——中共数字极权统治下的世界，如果你还相信“你拥有自己的数据！”那么邪恶的扎克伯格会说，“我们保证你的数据不会被人分享”等安全告知。这就是典型的完美欺骗，因为脸书和推特自己所做的一切自证其罪。“来自夏威夷的民主党人参议员布莱恩·沙茨（Brian Schatz）在12月提出了一项叫《数据保护法》的法案，”这的确是在向邪恶制度“说不”这个方向迈进了一步。不过，人们不要乐观地认为，善于寻找突破口的中共政权是可以在一切可行的制度上找到攻入的切入点。
 
-尽管最近发生了贸易战，但美中经济仍然交织在一起，两国很容易相互影响。CCP病毒大流行的初期凸显了这种联系的显著性，当时出于公共卫生的利益而限制与中共国的旅行，这引起了与中共国有联系的团体的尖锐批评。疫情危机凸显了我们所需要的药品，口罩和其他基本用品极度依赖中共国生产商。
+不过，“来自阿拉巴马州的参议员道格·琼斯（Doug Jones）表示，‘在线隐私和安全的权利应该是一项基本人权。’”（见《数据所有权》链接）把网络隐私权和言论自由权和人权联系起来的这个概念的提出的确是一个进步。因为，现实世界中，人们似乎在230法案的掩护下切割了自己的身体和灵魂一样，忘记了现实中的“我”和虚拟空间的“我”是灵魂与肉体统一的“我”。为什么不这样认为呢？我的言论受到了审查，230法案说，社交媒体有言论自由审查的权利。“而英国《金融时报》认为 ‘关键部分在于让消费者拥有自己的个人数据’。苹果首席执行官蒂姆库克在最近的一次演讲中也表示，‘公司应该认识到数据属于用户。听起来很美？其实都是在骗人的’。”（见《数据所有权》链接）
 
-The United States buys far more from China than the other way around. In 2019, $634.8 billion in trade passed between the two. That trade consisted of $471.8 billion in U.S. imports from China and $163.0 billion in U.S. exports to China, for a bilateral trade deficit of $308.8 billion.
+只要美国的230法案不被废除，只要中共反人类政府不推翻，网络云数据库控制权仍在他们手里，他们把数据安全的钥匙交给你的同时他也拥有一份秘钥。在他们需要的时候，你说的言论随着你的关键词自动触发审查机制。就像中共病毒，在被设置的基因秘钥中可能在侵入你的身体里后随时攻破你的免疫系统秘钥一样。因为中共和美国数字大佬们掌握数字极权的秘钥，而你只能被迫裸奔。如果掌握秘钥的源头——中共政权无法得到控制，任何看上去很美的《个人在线隐私和安全权利保护法案》都将是瞒天过海式的中共骗术。问题有时候很简单，只是世界在陷入共产主义黑洞里太深、太久。世界苏醒并为之反抗仍需要时间。相信世界觉醒的人都在跨国界地手牵手，自发地形成第三次世界大战的反战联盟。当正义的能量聚集后，击溃新纳粹中共党集团军只在一瞬间就会做到！
 
-美国从中共国购买的商品远多于其他方式。2019年，两国之间的贸易额为6348亿美元。该贸易额包括美国从中共国进口的4,718亿美元和美国对中共国的出口1,630亿美元，双边贸易逆差为3,088亿美元。
+2021年2月26日写于东亚
 
-While U.S.-China trade is substantial, it accounts for only a small share of overall economic activity and growth in the United States. U.S. exports to all countries accounted for a mere 11.7 percent of U.S. GDP in 2019, after peaking at 13.5 percent in 2013. U.S. exports to China accounted for under one percent of U.S. GDP in 2019.
+参考资料
 
-美中贸易虽然很大，但只占美国总体经济活动和增长的一小部分。美国对所有国家的出口在2013年达到GDP的13.5％的峰值之后，在2019年仅占GDP的11.7％。美国对中共国的出口在2019年占美国GDP低于1％。
+[数据所有权](https://www.iyouport.org/%E6%95%B0%E6%8D%AE%E6%89%80%E6%9C%89%E6%9D%83%E4%B8%8D%E4%BB%85%E6%97%A0%E6%B3%95%E8%A7%A3%E5%86%B3%E7%8E%B0%E6%9C%89%E9%97%AE%E9%A2%98%EF%BC%8C%E5%AE%83%E8%BF%98%E5%88%B6%E9%80%A0/)
 
-China is our single largest goods supplier, far surpassing key allies like the United Kingdom, Japan, and Australia.Eighteen percent of all U.S. imports by value came from China in 2019. And although China first entered our market by selling low-cost, low-quality consumer goods, today it occupies a higher position on the value chain, producing both high- and low-value manufactures.  China’s top exports to the United States by category in 2019 were electrical machinery ($125 billion), machinery ($92 billion), furniture and bedding ($27 billion), toys and sports equipment ($25 billion), and plastics ($18 billion).
+[新华网](http://www.xinhuanet.com/tech/2021-02/26/c_1127142466.htm)
 
-中共国是我们最大的商品供应国，远远超过了英国，日本和澳大利亚等主要盟国。2019年，按价值计算，美国所有进口商品的18％来自中共国。尽管中共国最初是通过出售低价低质的商品进入美国市场的，今天它在价值链上占据较高的位置，同时生产高价值和低价值的产品。按类别划分，2019年中共国对美国的最大出口商品是电机（1250亿美元），机械（920亿美元），家具和床上用品（270亿美元），玩具和运动器材（250亿美元）以及塑料（180亿美元）。
+[《美国男人》](https://gtv.org/video/id=5fe8730087fabe2daf2acb1d)
 
-American exports to China also are sizeable, accounting for six percent of overall U.S. exports in 2019. Our exported goods consist mostly of high-end manufactures in areas where China has not developed cutting-edge capabilities. Top exports by category were electrical machinery ($14 billion), machinery ($14 billion), aircraft ($10 billion), optical and medical instruments ($9.7 billion), and vehicles ($9.1 billion), with an additional $14 billion of agricultural products such as soybeans, cotton, and pork.
+本文只代表作者观点，与GNews网站无关。
 
-美国对中共国的出口也相当可观，占2019年美国总出口的6％。我们的出口商品主要是高端产品，那些中共国尚未掌握的尖端产能。出口最多的类别是电机（140亿美元），机械（140亿美元），飞机（100亿美元），光学和医疗仪器（97亿美元）和车辆（91亿美元），另外还有140亿美元的农产品，例如大豆，棉花和猪肉。
-
-China exported $20.1 billion in services to the United States in 2019, principally in categories related to transportation, travel, and R&D. U.S. provision of services to China was much higher in 2019, reaching $56.5 billion.
-
-中共国在2019年向美国出口了201亿美元的服务，主要类别与运输，旅行和研发有关。2019年美国对华服务的金额更高，达到565亿美元。
-
-## **CAPITAL **
-
-## *Foreign Direct Investment (FDI)*
-
-## **资本**
-
-## 外商直接投资（*FDI*）
-
-The United States and China invest billions of dollars in each other’s countries. These financial flows have slowed in recent years due to investor uncertainty about the trade war, capital controls imposed by the Chinese government, tougher scrutiny of Chinese acquisitions by the Committee on Foreign Investment in the United States (CFIUS), and, most recently, the pandemic.
-
-美国和中共国相互投资数十亿美元。近年来，这些资金流动近年来有所减缓，由于投资者对贸易战的不确定性，中共国政府施加的资本控制，美国外国投资委员会（CFIUS）对中共国收购的严格审查，以及最近的CCP病毒疫情。
-
-Chinese FDI in the United States peaked in 2016 at $46.5 billion. That same year, U.S. FDI into China was $12.9 billion, down from a high of $20 billion in 2008. Yet by the end of 2019, Chinese FDI into the United States had plummeted to less than $4.8 billion, a 90 percent decline from 2016. U.S. FDI into China remained relatively constant at $13.3 billion in 2019.
-
-中共国在美国的外国直接投资在2016年达到465亿美元的峰值。同年，美国对华直接投资额为129亿美元，低于2008年的200亿美元。然而，到2019年底，中共国对美直接投资已降至48亿美元以下，较2016年下降了90％；美国对华直接投资则相对稳定，为133亿美元。
-
-While foreign investment is typically a good thing for the recipient country, the details matter. Foreign investment can build factories, warehouses, plants, and other physical infrastructure in the recipient country. It also can license a country’s most valuable technology and intellectual property.  Licensing is profitable in the short term for the lawful owners of intellectual property, but it can also facilitate the development of foreign competitors.
-
-虽然外国投资对接受国通常是一件好事，但投资细节很重要。外国投资可以在接受国建造厂房，仓库，工厂和其他有形基础设施。它还可以授予一国最有价值的技术和知识产权的许可。对于合法的知识产权所有者而言，授权许可在短期内是有利可图的，但它也可以促进外国竞争者的发展。
-
-Roughly two-thirds—over $170 billion—of American investment in China over the last 30 years funded ‘greenfield’ projects to expand China’s industrial base and productive capacity. By contrast, Chinese entities devoted eight percent of their investment in the United States to building new physical infrastructure. The other 92 percent of Chinese investment funded acquisitions of American companies and intellectual property.
-
-在过去的30年中，美国对华投资中约有三分之二（超过1,700亿美元）用于“绿地”项目，以扩大中共国的工业基础和生产能力。相比之下，中共国实体将其在美国投资的8％用于建立新的基础设施，另外的92％用来对美国公司和知识产权的收购。
-
-Until recently, Chinese venture capital and private equity have been active in U.S. biotech, health, technology, and other sectors. These financial relationships, which have historically not always been captured in foreign-investment figures, have acted as a Chinese gateway to sensitive American technology.
-
-直到最近，中共国的风险投资和私募股权都一直活跃在美国的生物技术，健康，技术和其他领域。这些投资关系构成了敏感美国技术进入中共国的入口，一直以来外国投资数据中都未曾捕捉到这一点。
-
-The CCP has directed Chinese firms to acquire stakes in American companies in order to obtain cutting-edge technology in strategically important areas. Between 2013 and 2016, Chinese firms spent $37 billion in an attempt to acquire or invest in at least 27 American semiconductor firms.  Chinese firms also invested in at least 51 American AI startups between 2010-16. Over the past decade, one Chinese defense contractor has purchased at least seven U.S. general aviation companies. Due to state involvement, Chinese acquisitions are not made on a purely commercial basis. Chinese firms can thus offer patient capital to firms with promising technology, while profit seeking investors operating on shorter timeframes pass over those same firms.
-
-中共指示中国公司收购美国公司的股份，以便在具有战略意义的领域获得尖端技术。 2013-2016年，中共国公司花费了370亿美元，试图收购或投资至少27家美国半导体公司。在2010-2016年之间，中共国公司还投资了至少51家美国AI初创公司。在过去的十年中，一家中共国国防承包商至少购买了7家美国通用航空公司。由于国家的介入，中共国的并购并非纯粹出于商业目的。因此，中共国公司可以为有技术前途的公司提供长期资本，而寻求利润的投资者则可以通过较短时间的运营超越同类公司。
-
-Chinese VC investments, while harder to trace, have followed a similar model. They target firms in areas that the government prioritizes, such as AI, autonomous vehicles, virtual reality, robotics, and blockchain technologies.Chinese investors targeted advanced technologies in more than three-quarters of the funding rounds they participated in between 2000 and mid-2018.
-
-中共国的风险投资虽然较难追寻，但却遵循了类似的模式。他们将投资目标对准了政府优先考虑的领域，例如人工智能，自动驾驶汽车，虚拟现实，机器人技术和区块链技术。在2000年至2018年年中，中共国投资者参与的融资中有四分之三瞄准了先进技术。
-
-China also has exploited Joint Ventures (JV) by forcing foreign companies to hand over proprietary technology as a condition for producing or selling goods in the Chinese market. Technology transferred from foreign firms is often the Chinese partners’ most advanced technology. These forced transfers give Chinese firms a shortcut in the innovation process, allowing them to reverse engineer the technology and spur future domestic innovation.
-
-中共国还利用合资企业（JV）迫使外国公司交出专有技术，作为其在中共国市场生产或销售商品的条件。外国公司转让的技术通常是中共国合作伙伴最先进的技术。这些强制性转让为中共国的企业提供了创新过程中的捷径，使他们能够对技术进行逆向工程并刺激未来的国内创新。
-
-## ***Debt***
-
-## **债务**
-
-U.S. sovereign debt surpassed $27 trillion at the end of October 2020. China (including Hong Kong but not Taiwan) held $1.28 trillion of that debt in U.S. Treasury securities, making it the United States’ largest foreign creditor, barely ahead of Japan.
-
-到2020年10月底，美国主权债务超过27万亿美元。中共国（包括香港但不包括台湾）持有的1.28万亿美元美国国债，使其成为美国最大的外国债权国，稍高于日本。
-
-Despite this large sum, China’s appetite for U.S. debt has waned. Mainland China in October 2020 held only five percent of U.S. outstanding public debt, down from a high of 14 percent in 2011. Beijing appears to be exploring alternatives to the U.S. dollar as a long-term store of value. In January 2020, China’s State Administration of Foreign Exchange (SAFE), which manages China’s foreign reserves, announced plans to diversify its holdings.
-
-尽管有巨额资金，但中共国对美国债务的胃口有所减弱。到2020年10月，中共国大陆仅持有美国未偿付公共债务的5％，低于2011年的14％。中共国似乎正在探索替代美元的长期价值存储货币。 2020年1月，负责管理中共国外汇储备的中国国家外汇管理局（SAFE）宣布了多元化其持有股份的计划。
-
-China’s long-term goal is to develop an alternative to the U.S. dollar trading system. In 2005, U.S. dollar assets comprised 79 percent of China’s foreign reserves. By 2019, this figure fell to an estimated 59 percent. China has tried to develop alternative cross-border trading mechanisms to the ubiquitous, U.S.-dependent SWIFT (Society for Worldwide Interbank Financial Telecommunication) clearing system, such as the Cross-Border Interbank Payment System (CIPS). As early as 2009, China called for a global currency to replace the dollar trading system.
-
-中共国的长期目标是开发一种替代美元交易系统的方案。2005年，美元资产占中共国外汇储备的79％，2019年，这一数字下降到大约59％。中共国试图开发跨境交易机制，来替代无处不在的，依赖美国的SWIFT（环球银行金融电信协会）结算系统，例如跨境银行间支付系统（CIPS）。早在2009年，中共国就呼吁使用全球货币取代美元交易系统。
-
-* * *
-
-### 原文链接：
-
-[Beat China: Targeted Decoupling and the Economic Long War](https://www.cotton.senate.gov/imo/media/doc/210216_1700_China%20Report_FINAL.pdf)
-
-* * *
-
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
-
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
-
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+审稿：文小白、东洋武士/喜马拉雅东京樱花团
+![]()![](https://gnews.org/wp-content/uploads/2021/02/二维码-1.jpg)
+210227C1a
 
 0
