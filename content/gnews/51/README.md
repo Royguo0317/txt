@@ -1,15 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年2月26日 文贵先生盖特 3
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/934555/)
+## 中共媒体宣传报道福奇抹黑川普的言论
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/934610/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
+*作者：Tang 0426 | 校对：宁缺 | 审核：万人往 | Page：拱卒*
 
-2月26号：尊敬的兄弟姐妹好，元宵节快乐，这是七嫂子的，元宵节壮肾汤😂😂😂！鲅鱼饺子！
-![]()![](https://www.gnews.org/wp-content/uploads/2021/02/photo_2021-02-26_18-46-06.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/02/photo_2021-02-26_18-46-10.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/02/photo_2021-02-26_18-46-08.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/02/photo_2021-02-26_18-46-12.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/02/photo_2021-02-26_18-46-14.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/02/photo_2021-02-26_18-46-16.jpg)
-[【2021年2月26日】文贵先生盖特原文](https://gtv.org/getter/603930061958515902379235)
+[!\[\]()!\[\](https://spark.adobe.com/page/rDcY70fzBEoiB/images/bf25a5e5-3492-4528-87de-3fde36641ff4.jpg?asset_id=b4d637a7-0804-43f1-89c5-efdc41534101&amp;img_etag=%2211f79358da930021b7766feaef016e19%22&amp;size=2560)](https://spark.adobe.com/page/rDcY70fzBEoiB/images/bf25a5e5-3492-4528-87de-3fde36641ff4.jpg?asset_id=b4d637a7-0804-43f1-89c5-efdc41534101&amp;img_etag=%2211f79358da930021b7766feaef016e19%22&amp;size=1024)
 
-**喜联盟Gnews编辑部**
+近日，中共媒体澎湃新闻援引不知名的英媒报导称，美国知名传染病专家福奇反映川普曾对他做出可怕的事。新闻中夸张地列举了福奇在上届总统任期内受到的一系列排挤、打压和死亡威胁，还奋力为福奇高歌，将他比作美国应对中共病毒的“抗疫队长”。文章中精心布局的逻辑安排，无非是通过夸大福奇科学专业的职业背景来反证川普所谓的刚愎自用、反智激进的执政作风。除此之外，还拐弯抹角地把班农先生拎出来批判一番，可是事实真的如此吗？
+
+自中共病毒染疫全球以来，美国传染病专家福奇因为多次随同川普总统出镜而声名远播。福奇在传染病领域早已大名鼎鼎，自里根时代开始就一直担任美国总统首席医疗顾问。但在此次中共疫情席卷美国的过程中，福奇与川普总统总是唱反调，经常发布前后不一、自相矛盾的防疫建议。让人印象最深刻的是中共病毒刚刚在美国爆发时，他曾说：“没必要戴着口罩走动。”而最近，福奇却改口称：“到2022年，美国人可能仍会戴口罩。”当川普总统表示，羟氯喹治疗中共病毒早期试验结果“非常令人鼓舞”时，福奇称“没有有力证据显示其可以有效治疗此病症”。一线医生有充分数据证明羟氯喹在临床中的疗效，福奇却视而不见，一直将羟氯喹列在处方药名单。
+
+我们一直欣赏美国的民主制度，尊重个体思想，不必对上级屈从。福奇对川普总统的忤逆可以视为美国民主制度的优越性，但问题是，福奇在他的岗位上对美国人民抗击中共病毒做出过什么样的成绩？他有溯源病毒的起源吗？有探寻病毒的真相吗？换句话说，他连病毒问题的实质都没清楚，如何抗疫？福奇一直以来听命于沼泽大鳄，罔顾事实，与中共、世卫组织暧昧不清，其专业知识不是用于解救患者，而是混淆视听，到最后把所有的责任都推到川普头上。
+
+时至今日，中共病毒已经造成超过50万美国人死亡。现在，福奇在拜登政府里如鱼得水，依然享受着尊荣。面对美国几千万染疫者，几十万的死亡者，福奇毫无愧色，顾左右而言他，甚至还配合一些政客抹黑川普。美国用这样的“抗疫队长”能有效抵抗中共病毒吗？
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/rDcY70fzBEoiB/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/rDcY70fzBEoiB/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 +2
