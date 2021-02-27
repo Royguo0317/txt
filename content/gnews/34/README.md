@@ -1,8 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中南海附近爆炸后致7伤官媒报导后又迅速删除 （玫瑰看新闻二月二十五日）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/935383/)
+## 农用拖拉机被挂牌整治 农民经济压力激增
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/935500/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-87.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-65.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/3-39.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/4-51.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/5-45.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/6-51.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/7-21.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/8-16.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/9-12.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/10-15.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/11-17.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/12-16.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/13-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/14-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/15-7.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/16-8.jpg)
+#### 作者：美国纽约香草山农场  鹰(文言)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-88.jpg)图片来源：网易
+环球网2月26日转载中新网消息，中共国农业农村部和公安部发布《关于进一步加强拖拉机安全管理工作的通知》，要求继续严格农用拖拉机的挂牌以及变形拖拉机“清理”工作。
+
+一、《通知》要求各地政府加强对农用拖拉机的牌证管理，加强驾驶员培训考试，严格考试标准，提高拖拉机登记、检验、持证率。
+
+拖拉机常用于翻地、播种、喷洒农药、收割、运输（配合拖斗）等农耕环节，可以说拖拉机是机械化农耕的重要设备，以往农民购买拖拉机后自学驾驶，根本没有所谓的“考证”，而现在中共以“道路安全、安全驾驶”为名，将敛财黑手伸向农用拖拉机使用者，无论是检验还是考证都可为中共提供汽车般的营收，但对农民而言，这些冠冕堂皇的环节只会徒增生活开支。
+
+二、《通知》要求加大变形拖拉机的报废力度，确保2025年全部清零，同时严查变形拖拉机的违法上路。
+
+变形拖拉机是货箱与底盘一体化的拖拉机，可用于装载卸货，价格从1到4万不等，相比于普通货车，价格低廉，驾驶门槛低，路桥、保险、营运管理费少，因此受到众多农民的青睐。而中共“报废变形拖拉机”的做法，变相加高了农民的运输成本，相比于减少事故率，增加保险、路桥等费用才是中共各地政府纷纷提前清零的动力。
+
+三、《通知》要求加强农机安全执法，组织执法人员入农田、场院、合作社等场所排查。
+
+此举涉及的“全面清查”完全可筛查出农民手中的无牌照、无证拖拉机，变相逼迫农民支付可观的注册登记、检验和持证费用。
+
+综上，中共再次开启了对农民的“打土豪分田地”，除利用宅基地法规吞并农民多余的宅基地、利用审批建房各环节抽成外，更将敛财直接对准了农耕相关的农业拖拉机使用者，无论是考取驾照、提供安检，再有路桥费和保险费，都只是中共充实党库及官员私人腰包的敛财途径。在当今粮食严重紧缺，中共再三强调粮食生产安全的当下，中共政府所做的进一步收割韭菜，加重农民经济负担。
+
+(本文仅代表作者观点，与GNEWS网站无关)
+
+新闻来源：
+两部门：严格查处变型拖拉机违法上路行驶等行为
+[https://china.huanqiu.com/article/425iV5i6P0M](https://china.huanqiu.com/article/425iV5i6P0M)
+江苏变型拖拉机提前全国计划5年率先实现“清零”
+[https://www.sohu.com/a/443712779\_115402](https://www.sohu.com/a/443712779_115402)
+变型拖拉机将退出历史舞台！
+[https://3g.163.com/dy/article/FHGB70VE0514D74H.html](https://3g.163.com/dy/article/FHGB70VE0514D74H.html)
+
+* * *
+
+***责任编辑：**加拿大多伦多枫叶农场 文锦
+**编辑/校对：**首尔喜韩农场 文迹～见证神迹
+**发布：**美国纽约香草山农场 孤独的小生（文留）*
+
 0
