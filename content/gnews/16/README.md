@@ -1,29 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】26/02/2021:金灿荣视频灭白打台计划昭然若揭，中共内斗白热化会否发生新林彪坠机事件？
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/935032/)
+## CCP病毒对新生婴儿的攻击-您不会相信医生的发现
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/935036/)
 
-**制作:Cantonese工作室**
-播报: 【安妮】
-资料整理: 【郁金香】【极寒将至】【安妮】【Elaine】
-海报制作: 【侬民】
-视频制作: 【Shawn】
-上传: 【Shawn】
-**摘要:**
+翻译&评论：Runaway
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210226-zhTW-01.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210226-zhTW-02.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210226-zhTW-03.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210226-zhTW-04.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210226-zhTW-05.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210226-zhTW-06.jpg)
-7.
-![]()![](https://gnews.org/wp-content/uploads/2021/02/20210226-zhTW-07.jpg)
+素材：Jenny
+![]()![](https://gnews.org/wp-content/uploads/2021/02/newborn-baby-tests-positive-for-covid-19-you-wont-believe-what-doctors-found-780x470-1.jpg)图片取自网络
+在华盛顿特区，医生令人震惊的发现一个被诊断出感染了COVID-19的新生婴儿，其体内病毒含量比其他年轻患者至少高51,000倍。
+
+《华盛顿邮报》周三报道，专家们无法解释为什么这个孩子具有如此高的病毒载量，后来确定感染的是一种新的冠状病毒变种，并在其他几个病例中也被发现。 这个不知名的孩子9月份出生并最终康复。邮报指出：“大多数被感染的孩子几乎没有症状，甚至住院的孩子也只是患有轻度病症。”
+
+知情人周四报道说，不确定这种特定的变体对儿童是否更危险，但其结构可能使其比其他菌株更具传染性。“目前尚不清楚这种新变种可能有多普遍或有多大风险。根据一项尚未进行同行评审的关于儿童冠状病毒变异的研究，在美国中大西洋地区发现了八个这种变异的病例。”
+
+他们指出，该变种独特的刺突蛋白结构“可能使其更具感染力，尚不清楚这种新变种是否可以解释婴儿鼻子中检测到的大量病毒颗粒。”
+
+据《邮政》报道，自病毒大流行开始以来，截至2月11日，已有超过300万美国儿童对该病毒的检测呈阳性。“最大的爆发出现在11月中旬以后，当时案件数量以每周10万至20万的速度增长。但是全国的基因组测序几乎只针对成年人。”
+
+波士顿儿童医院的基因学专家艾伦·贝格斯（Alan Beggs）表示，经验表明，美国“在识别病毒的演变中令人担忧的变化方面做得不好。这就是需要改变的证据。”
+
+**评论：**
+
+CCP病毒已出现越来越多的变异和越来越强的传染性，连曾经被认为具有较强免疫力的婴儿也成为了病毒攻击的目标。婴儿患病对其一生的健康成长都是巨大的隐患。CCP病毒对人类的伤害，已经不只是现在，而且祸及未来。病毒带来的危害远远超过了我们的认知，正如闫博士所说，留给人类的时间已经不多了。因此迫在眉睫的是找到病毒的来源和制造病毒的人，而这一切必须以灭共为前提
+
+信息来源:
+https://thetruereporter.com/newborn-baby-tests-positive-for-covid-19-you-wont-believe-what-doctors-found/
+![]()![](https://gnews.org/wp-content/uploads/2021/02/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-6.jpg)
 +2
