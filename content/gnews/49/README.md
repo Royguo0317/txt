@@ -1,74 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 不宣誓效忠中共的香港人将无权参政
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/934628/)
+## 英国必须立即扭转学校被中共接管的困境
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/934615/)
 
-*新闻来源：《香港卫报》| 作者：海伦.大卫森（Helen Davidson）| 发布时间：2021年2月23日*
+新闻来源：《每日邮报》| 作者：尼古拉·法拉奇 | 发布时间：2021年2月21日
 
-*翻译/简评：文意 | 校对：SilverSpurs7 | 审核：万人往 | Page：拱卒*
+翻译/简评：云影Julia | 校对/审核：万人往 | Page：拱卒
 
-[!\[\]()!\[\](https://spark.adobe.com/page/nyuYHA14m2IEb/images/8c7f8ca8-7cf5-4266-bf1d-49290617a022.jpg?asset_id=15a84b3a-a665-40b4-ac1e-872a94ee55d2&amp;img_etag=%22ff9ba5979279e6b822ea1101bff758d3%22&amp;size=2560)](https://spark.adobe.com/page/nyuYHA14m2IEb/images/8c7f8ca8-7cf5-4266-bf1d-49290617a022.jpg?asset_id=15a84b3a-a665-40b4-ac1e-872a94ee55d2&amp;img_etag=%22ff9ba5979279e6b822ea1101bff758d3%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/FOUi1csK0Bl39/images/2366f3df-a5d4-4ce8-bc88-aeb1e80ae5c2.jpg?asset_id=4f7d2b9f-dbd9-4140-9065-0905a515c1cd&amp;img_etag=%22e02cd85a767290a8ffbf9c77b6f697d9%22&amp;size=1024)](https://spark.adobe.com/page/FOUi1csK0Bl39/images/2366f3df-a5d4-4ce8-bc88-aeb1e80ae5c2.jpg?asset_id=4f7d2b9f-dbd9-4140-9065-0905a515c1cd&amp;img_etag=%22e02cd85a767290a8ffbf9c77b6f697d9%22&amp;size=1024)
 
 **简评：**
 
-香港政制及内地事务局局长曾国卫在星期二的新闻发布会上宣布，根据下个月提交表决的法案，所有选举参与者必须宣誓效忠中共，否则将面临五年不得参选的禁令。
+本文再次验证爆料革命揭露的：中国共产党通过“蓝金黄”和大量疯狂的“买买买”投资收购了欧美的核心军工企业、科技企业、媒体互联网企业和中学大学教育机构，并以此进行渗透，配合大外宣和当地的驻华机构领事馆一起实施对海外华人的洗脑控制，对西方权力阶层利益集团进行经济绑架的事实。
 
-香港政府在中共的控制之下已经不再是一个民主、法治的香港。邓小平当年承诺的香港自治50年不变之说今天已经成为历史。中共的食言和从不信守诺言的本质再一次被历史见证。可惜的是，西方世界对中共的倒行逆施还是只停留在言辞谴责的表面上并没有实质的行动。这也让中共更加狂妄，更加肆无忌惮。
-
-人类社会的健康发展是建立在所有人生下来就是平等的，每一个人都享受平等的权利、义务和自由的基础之上的。共产主义是建立在少数人利用人类对自由、民主的乌托邦式的向往来洗脑和统治大多数。香港曾是中共走向世界的大门，现在会变成他们走向灭亡的开始。
+英国的学校从小学、中学到大学、研究机构、智囊团，如果不能够认真的重视中共资金控制之暗黒术，并且在立法上果断地采取措施，严厉禁止中共资金收购并购任何企业、机构、学校，将无法摆脱中共的红魔之爪。幸运的是，今天的英国、欧盟、北约、东欧的国家都一致地警醒意识到亲共的后果和危害，将来必定要在法律上实施有实质意义的行动，比如和中共经济脱钩、政治脱钩、外交脱钩、科技脱钩、媒体脱钩。全球灭共的大势已定，贸易、媒体甚至军事上的灭共行动会紧锣密鼓般实施。
 
 **原文翻译：**
 
-# **香港计划让政客宣誓效忠北京**
+## 尼古拉·法拉奇：共产党人接管我们的学校，英国必须立即制止
 
-**根据下个月提交表决的法案，所有选举参与者将不得不宣誓效忠（中共），否则将面临五年的禁令**
+[!\[\]()!\[\](https://spark.adobe.com/page/FOUi1csK0Bl39/images/3331788d-73e7-4080-9e9b-68e515651d30.jpg?asset_id=a10b379c-053d-4514-8440-c480ca251b06&amp;img_etag=%225017bec90b0cceb095edae8c735ea92a%22&amp;size=1024)](https://spark.adobe.com/page/FOUi1csK0Bl39/images/3331788d-73e7-4080-9e9b-68e515651d30.jpg?asset_id=a10b379c-053d-4514-8440-c480ca251b06&amp;img_etag=%225017bec90b0cceb095edae8c735ea92a%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/nyuYHA14m2IEb/images/533929da-4dce-4e52-895a-e277e5a26b1d.jpg?asset_id=6c822b13-2c13-44b2-8be5-26c2d19acc64&amp;img_etag=%2283caa9ba3e7a60f606d8b688e9ead52d%22&amp;size=2560)](https://spark.adobe.com/page/nyuYHA14m2IEb/images/533929da-4dce-4e52-895a-e277e5a26b1d.jpg?asset_id=6c822b13-2c13-44b2-8be5-26c2d19acc64&amp;img_etag=%2283caa9ba3e7a60f606d8b688e9ead52d%22&amp;size=1024)香港政制及内地事务局局长曾国卫在星期二的新闻发布会上宣布了这些变动。摄影：Tyrone Siu /路透社
+世界正在被中国共产党暗中控制。在一个新殖民主义项目规划下，习近平主席希望通过大规模国际投资实现全球经济统治。
 
-香港政府已宣布选举变更，要求办公室负责人宣誓并维持对香港和北京的忠诚誓言，否则将被取消竞选资格，并被禁止在5年内竞选连任。
+它的范围远不止收购矿产资产或西方电信系统。文化层面散发着宣传和灌输的臭味
 
-香港政制及内地事务局局长曾国卫在星期二的新闻发布会上说，一项“确保爱国者统治香港的法案”已获执行委员会通过，并将于三月提交。
+他们并不仅仅满足于在经济上资助英国的大学，而且现在我们了解到，与共产党最高层有直接联系的中共国公司在我们的学校有重大的经济利益。
 
-曾国卫说：“如果你声称爱国，不尊重或试图破坏我们制度的基本特征，即以 [中华人民共和国] 为首的制度，那将是不可接受的。你不能说：‘我爱国，但不是中国共产党领导下的那个国。’”
+[!\[\]()!\[\](https://spark.adobe.com/page/FOUi1csK0Bl39/images/145bf52c-a331-425f-b33a-fd0c3f462775.jpg?asset_id=dafe7580-bd96-41b1-90a8-5fdf83a41680&amp;img_etag=%22c3840d65668220a395ecf1305ad02661%22&amp;size=2560)](https://spark.adobe.com/page/FOUi1csK0Bl39/images/145bf52c-a331-425f-b33a-fd0c3f462775.jpg?asset_id=dafe7580-bd96-41b1-90a8-5fdf83a41680&amp;img_etag=%22c3840d65668220a395ecf1305ad02661%22&amp;size=1024)在一个新殖民主义项目下，中共国国家主席习近平(如图)希望通过大规模国际投资实现全球经济统治
 
-[!\[\]()!\[\](https://spark.adobe.com/page/nyuYHA14m2IEb/images/4d003428-e18f-4b4f-b580-73a7f52b20d7.jpg?asset_id=45bf0fa9-3c0b-4523-9bbc-dad8081778c1&amp;img_etag=%22b277eeecc5e4791163ea512e79aa4797%22&amp;size=2560)](https://spark.adobe.com/page/nyuYHA14m2IEb/images/4d003428-e18f-4b4f-b580-73a7f52b20d7.jpg?asset_id=45bf0fa9-3c0b-4523-9bbc-dad8081778c1&amp;img_etag=%22b277eeecc5e4791163ea512e79aa4797%22&amp;size=1024)
+英国政府必须意识到危险并迅速采取行动。
 
-在宣布这一消息之前，北京一位高级官员暗示将进行重大改变，以确保香港由“爱国者”治理。这清楚表明，中共在香港这一前英国殖民地回归23年后，打算不再宽容反对的声音了，尽管中共承诺将维持香港的权利和自由50年不变。
+尤其危险的是私立学校。通货膨胀意味着学费在过去20年里迅速上涨，因此除了最富有的人之外，所有人都负担不起学费。
 
-去年，中共对香港实施了全面的国家安全法后，当局已采取行动驱逐被认为忠诚度不高的香港立法委员会成员，并以包括非法集会和与外国部队勾结在内的指控逮捕了资深反对派领导人。
+因此，这类学校——尤其是寄宿生的学校——依赖中国学生来帮助平衡收支。
 
-政府批评人士和多个西方领导人指责北京不履行承诺，并暴力终止了治理金融中心的“一国两制”框架。
+自2014年以来，一个由中共国企业组成的网络一直在悄悄收购陷入困境的企业。
 
-该法案允许该规则追溯适用，并将效忠宣誓要求扩大到区议员——当地政治家，自2019年末选举以来，他们绝大多数是赞成民主的。根据这些修正案，他们必须保证效忠作为中共国特别行政区的香港，并效忠香港的微型宪法，即基本法。
+没人知道这会发展到什么程度。
 
-任何被发现违反效忠宣誓的人都可能被停职，等待法院开庭审理并可能丧失资格。如果丧失资格，个人将无法在五年内再次竞选，这一时期可能会阻止该候选人参加两个四年一度的选举周期。
+有些人会耸耸肩，说用中共国的资金支持这些机构比眼睁睁看着它们倒闭要好。但这忽略了更重要的问题。
 
-曾国卫说，任何主张或支持香港独立的人，或者拒绝承认中共国对香港的主权或行使这种主权的人，都可以根据拟议的修正案取消资格。
+例如，目前有三所学校和一系列大学由杨惠妍经营的光明学者集团(Bright Scholar Group)所有。杨惠妍的亿万富翁父亲是中国共产党的高级成员。从本质上讲，这无异于共产主义接管了部分英国私立教育部门。
 
-该法案还禁止采取行动，包括无歧视地反对政府法案，敦促行政长官下台并举行“变相公投”。它列出了侮辱或亵渎香港和中共国国旗、国歌或任何其他国家象征等可以取消资格的罪行。
+[!\[\]()!\[\](https://spark.adobe.com/page/FOUi1csK0Bl39/images/34cd21cf-5920-42cf-83e4-81d41b8d2e3b.jpg?asset_id=df48069f-cb08-4278-a31f-540f1aff5664&amp;img_etag=%223860244b569f67dc854a2a981906a73b%22&amp;size=2560)](https://spark.adobe.com/page/FOUi1csK0Bl39/images/34cd21cf-5920-42cf-83e4-81d41b8d2e3b.jpg?asset_id=df48069f-cb08-4278-a31f-540f1aff5664&amp;img_etag=%223860244b569f67dc854a2a981906a73b%22&amp;size=1024)英国教育大臣加文·威廉姆森(Gavin Williamson，如图)必须把这作为一件紧急的事情来处理
 
-曾国卫说：“为反映宣誓的庄严性，我们认为任何不遵守誓言的人都应对其参选能力构成限制。”
+同时，还有孔子学院的作用。在中共国政府的控制下，学生们被教授的是一套洗脑式的中共国历史和政治。
 
-过去的行为将被考虑在内，从而增加了由民主核心小组举行的去年非官方初选的所有参与者（其中许多人在一月份被捕）遭受影响的可能性。曾国卫证实，四名丧失去年选举资格的区议员将受到影响。
+（这种教育）没有提及维族穆斯林的困境，也没有提及香港民主的毁灭。
 
-曾国卫继续说：“该法案没有具体的追溯效力， 但我们是否会判断某个人过去的行为，将视个人情况而定。”
+具有极大讽刺意味的是，位于诺福克的Thetford文法学校如今落入了总部位于香港的中国金融服务控股有限公司(China Financial Services Holdings)之手。
 
-“如果你认真对待宣誓，那么没什么可担心的。”
+这所学校是激进思想家托马斯·潘恩（Thomas Paine）的母校，他是《人权》的作者，他的信念帮助建立了美利坚合众国。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/nyuYHA14m2IEb/images/201b3243-9b5b-49c4-9a49-0474db36477d.jpg?asset_id=b8aadbed-1a16-48a4-93d0-0ec8a73c38a4&amp;img_etag=%2274606b85768767f412658947b60933d9%22&amp;size=2560)](https://spark.adobe.com/page/nyuYHA14m2IEb/images/201b3243-9b5b-49c4-9a49-0474db36477d.jpg?asset_id=b8aadbed-1a16-48a4-93d0-0ec8a73c38a4&amp;img_etag=%2274606b85768767f412658947b60933d9%22&amp;size=1024)
+事实是，我们的政府太长时间以来都太亲中共国了——这都是因为钱说了算。
 
-港澳事务办公室主任夏宝龙在本周的一次演讲中提出了选举改革，这表明北京正在努力确保反对派候选人不能参加香港已经非常有限的选举。
+鉴于数千名英国儿童的教育诚信正处于危险之中，教育大臣加文·威廉姆森必须将此作为一件紧急的事情来处理。
 
-夏宝龙概述了由中央政府领导的“改善”香港选举制度的计划，并说当局必须封闭使“反华的麻烦制造者”参政的漏洞。
-
-大赦国际中国团队负责人约书亚·罗森茨威格（Joshua Rosenzweig）说，该法案似乎是当局试图“压制批评人士并剥夺人们的政治参与权”的又一例证。
-
-“让每个人都承担公共服务的法律义务是一回事；但本质上是试图清除所有拥有和表达与政府不同观点的政府部门中的人，这完全是另一回事。”
-
-去年，民主派议员在四名同事被取消参选资格后集体辞职抗议之后，香港议会没有任何有效的反对派。根据2020年国家安全法，已有100多人被捕，还有数千人因参与2019年的抗议活动而受到起诉。
-
-🔗[原文链接](https://www.theguardian.com/world/2021/feb/23/hong-kong-plans-to-make-politicians-swear-oath-of-loyalty-to-beijing)
+🔗[原文链接](https://www.dailymail.co.uk/debate/article-9282657/NIGEL-FARAGE-Communist-takeover-schools-Britain-end-once.html?ns_mchannel=rss&amp;ns_campaign=1490&amp;ito=1490)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -77,6 +67,6 @@
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/nyuYHA14m2IEb/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/nyuYHA14m2IEb/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/FOUi1csK0Bl39/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/FOUi1csK0Bl39/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 +1

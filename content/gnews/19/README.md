@@ -1,30 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## CCP病毒对新生婴儿的攻击-您不会相信医生的发现
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/935036/)
+## 拜登的中情局局长提名人谎报与中共已断绝关系
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/935071/)
 
-翻译&评论：Runaway
+**新闻来源：**TheNationalPulse《国家脉动》｜**作者：**Natalie Winters（娜塔莉·温特斯）｜**发布时间：**2021年2月25日
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-26-at-7.20.12-PM.png)**`图片来自推特`**
+**简评：**
 
-素材：Jenny
-![]()![](https://gnews.org/wp-content/uploads/2021/02/newborn-baby-tests-positive-for-covid-19-you-wont-believe-what-doctors-found-780x470-1.jpg)图片取自网络
-在华盛顿特区，医生令人震惊的发现一个被诊断出感染了COVID-19的新生婴儿，其体内病毒含量比其他年轻患者至少高51,000倍。
+维基解密于2017年4月12日下午5点左右在推特上面发推文，其内容如下：拜登时代与奥巴马时代的白宫高级官员**杰克·苏利文（Jacob Jeremiah Sullivan）**在2012年2月给奥巴马时代的美国国务卿希拉里发了一封电邮。该电邮中显示，见最后一项——**在叙利亚的基地组织（AQ）是我们的人**，否则事情基本就定了。这封电邮让人有理由去质疑美国总统的政治立场。
 
-《华盛顿邮报》周三报道，专家们无法解释为什么这个孩子具有如此高的病毒载量，后来确定感染的是一种新的冠状病毒变种，并在其他几个病例中也被发现。 这个不知名的孩子9月份出生并最终康复。邮报指出：“大多数被感染的孩子几乎没有症状，甚至住院的孩子也只是患有轻度病症。”
+大部分美国人对拜登作为美国总统的立场产生了怀疑：拜登正在推翻川普总统“美国优先”的主张。他会不会突然像苏利文一样具有隐藏性的站在中共那边，这事情更值得去怀疑，毕竟他美国总统的合法性还没有一个最终定论！另外，据2021年2月24日《新唐人》**`援引`**《每日来电者》的报道，**伯恩斯（William J. Burns）**告诉参议院情报委员会，他在2015年接管**`卡内基`**后不久，就切断了与中美的联系。但实际上双方仍然保持最少两年的关系！
 
-知情人周四报道说，不确定这种特定的变体对儿童是否更危险，但其结构可能使其比其他菌株更具传染性。“目前尚不清楚这种新变种可能有多普遍或有多大风险。根据一项尚未进行同行评审的关于儿童冠状病毒变异的研究，在美国中大西洋地区发现了八个这种变异的病例。”
+在该报道中，也提及该提名的情报局局长是中共“蓝金黄”美国的一部分，并特意提及了香港特首`董建华`此人。可见，拜登政府的内阁与中共有无法脱离的内幕在里面，可能都是穿同一条裤子的。
 
-他们指出，该变种独特的刺突蛋白结构“可能使其更具感染力，尚不清楚这种新变种是否可以解释婴儿鼻子中检测到的大量病毒颗粒。”
+中共在新疆犯有反人类罪行已经逐步被全球认可，美国的国家安全顾问会不会再次电邮确定中共是“我们的人”，谁又说得准！现今，这话题已经成为了热点。
 
-据《邮政》报道，自病毒大流行开始以来，截至2月11日，已有超过300万美国儿童对该病毒的检测呈阳性。“最大的爆发出现在11月中旬以后，当时案件数量以每周10万至20万的速度增长。但是全国的基因组测序几乎只针对成年人。”
+**原文翻译：**
 
-波士顿儿童医院的基因学专家艾伦·贝格斯（Alan Beggs）表示，经验表明，美国“在识别病毒的演变中令人担忧的变化方面做得不好。这就是需要改变的证据。”
+**拜登总统的中央情报局局长提名人，他曾担任卡内基国际和平基金会主席，他错误地声称，他加入了智库“不久后”，与中国共产党断绝了关系。**
 
-**评论：**
+被提名人威廉·伯恩斯告诉参议员马可·卢比奥，他“继承”了**智库与中美交流基金会（CUSEF）**的关系，但在确认听证会上“不久”就[切断了](https://www.ntd.com/cia-nominee-says-he-cut-ties-with-chinese-propaganda-group-as-president-of-foreign-policy-think-tank_572210.html)与该组织的联系。
 
-CCP病毒已出现越来越多的变异和越来越强的传染性，连曾经被认为具有较强免疫力的婴儿也成为了病毒攻击的目标。婴儿患病对其一生的健康成长都是巨大的隐患。CCP病毒对人类的伤害，已经不只是现在，而且祸及未来。病毒带来的危害远远超过了我们的认知，正如闫博士所说，留给人类的时间已经不多了。因此迫在眉睫的是找到病毒的来源和制造病毒的人，而这一切必须以灭共为前提
+然而，伯恩斯于2014年加入智库，他继续参与CUSEF。
 
-信息来源:
-https://thetruereporter.com/newborn-baby-tests-positive-for-covid-19-you-wont-believe-what-doctors-found/
-![]()![](https://gnews.org/wp-content/uploads/2021/02/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872-6.jpg)
-+2
+CUSEF是中国共产党联合阵线[努力](https://www.uscc.gov/sites/default/files/Research/China's%20Overseas%20United%20Front%20Work%20-%20Background%20and%20Implications%20for%20US_final_0.pdf)的一部分，旨在“选择和消除潜在反对派的来源”，并鼓励外国行为者“采取支持北京首选政策的立场”，自2009年以来，它与卡内基基金会关系密切，包括赞助中国共产党官员在智库发表演讲。
+
+然而，《每日来电者》指出，“根据卡内基的发言人及其2018年年度报告，CUSEF上一次向卡内基捐款是在2017年。”
+
+CUSEF的创始主席董建华也于2017年3月[访问了](https://carnegietsinghua.org/about/anniversary/?mkt_tok=eyJpIjoiTmpVd01EbGxNakprTlRRMiIsInQiOiJMeHRIZWJTN3hjNHZGRGlmc0dUdFBcL0JseW9pWXpKVzdpMEpNekpqTllnSHBzZEJTS1FkOXVQckdWZGZVakZCRW9KdVc2R2hXQWpnSm5EYis0c2ZLMFZFOHRRWGl6R20rWk9NTUZ0amZrOFY4OWwwczRYdjhDXC9zd3lyNWVWdkVNIn0%3D)卡内基-清华大学中心——这两起事件都发生在伯恩斯加入智库三年后。
+
+包括其副主席道格拉斯·帕尔在内的许多卡内基捐赠基金领导人也为CUSEF的季刊《[中美焦点](https://www.cusef.org.hk/en/what-we-do/china-us-focus?page=1)》做出了贡献。
+
+🔗**`原文链接`**
+
++4
