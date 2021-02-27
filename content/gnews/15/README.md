@@ -1,30 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西班牙中共病毒疫情简报
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/936363/)
+## 布莱克本议员: 大科技公司在助中共谋求全球主导地位
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/936391/)
 
-- 编辑：Victor Torres
-- 翻译：gokuabuela
-- 发稿：Ranting
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-27_20-50-33.jpg)[salon.com](https://www.salon.com/2020/09/18/gop-sen-marsha-blackburn-reveals-she-doesnt-know-what-an-amendment-is--on-constitution-day_partner/)
+布赖特巴特新闻(Breitbart News)报道，在周五举行的保守派政治行动会议(CPAC)上，参议员玛莎·布莱克本(Marsha Blackburn)表示，大型科技公司正在协助中共国实现 “全球主导地位 “的使命。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+“中共和大型科技公司的关系很好，”布莱克本说。“他们允许中国共产党传播所有信息。我找不到任何中共被审查、封锁或禁止的地方。”她强调说，“大型科技公司在协助中国共产党争取全球主导地位，我们将不得不反对它。”
 
-**西班牙2021年2月27日电/西喜社——**据ABC新闻2月27日报道，2月尽管是最短的月份，但西班牙因中共病毒而死亡的人数却创下了纪录。虽然卫生部的下一次数据更新将在下周一3月1日进行，但是我们已经可以说，2月份的死亡人数已经达到了去年4月份以来没有的记录。在这几周内，已经有10823人丧生，这个数字显示了第三波疫情的残酷性。
+布莱克本表示，美国人要反击大型科技公司的主导地位和审查做法。“我们会告诉大型科技公司:‘在没有得到你（本人）的明确同意的情况下，不能跟踪、窃听、挖掘数据，或与第三方分享你的信息’”她说，“这是你的隐私。”
 
-最近24小时内，新增死亡329人，比上周五减少68人。
+布莱克本评论说，脸书首席执行官马克·扎克伯格曾经承认，脸书的行为“更像一个政府，而不是一家公司”。
 
-而新增感染人数8,341例，也低于上周同一天的 11,435例。
+这位田纳西州共和党人表示，她将努力取消第230条法律对大型科技公司的豁免权，并建议对大型科技公司的较小竞争对手提供保护，以便老牌科技巨头和较新的公司在一个更公平的环境中竞争。这是为了保护言论自由，对科技巨头关闭川普总统及其支持者社交账号和强迫关闭Paler平台的反击。
 
-至此，西班牙的感染者总数正式上升到318万。
+参考链接：
 
-累计发病率，上周二成功地从极度风险水平继续下降，目前是14天内10万人发病率为193例，是自去年 12 月 9 日以来记录的最低数字。
-
-目前，在西班牙，因为中共病毒共收治了12207名患者，其中有3021名患者需要在ICU进行护理。在过去的24小时内，出院人数（1 461人）多于入院人数（1 022人），中共病毒的病床占用率在普通病房和重症监护室都下降了，普通病房的病床占用率为9.67%，重症监护室的中共病毒患者占用率为28.77%。
-
-**新闻来源：[ABC新闻](https://www.abc.es/sociedad/abci-febrero-termina-como-mas-fallecidos-coronavirus-desde-abril-202102261906_noticia.html)**
-
-![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
+[https://www.breitbart.com/politics/2021/02/26/marsha-blackburn-big-tech-aiding-and-abetting-chinas-push-global-dominance/](https://www.breitbart.com/politics/2021/02/26/marsha-blackburn-big-tech-aiding-and-abetting-chinas-push-global-dominance/)
 
 0

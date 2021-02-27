@@ -1,22 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 塞维利亚一监狱爆发中共病毒感染
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/936393/)
+## 美在打击叙利亚后提高驻伊军队防卫等级
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/936441/)
 
-- 编辑：Victor Torres
-- 翻译：gokuabuela
-- 发稿：Ranting
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-27_21-27-38.jpg)[salon.com](https://www.salon.com/2017/02/25/mission-unaccomplished-15-years-later-the-misuse-of-american-military-power-the-middle-east-in-chaos_partner/)
+2月27日福克斯新闻电视频道援引两位消息人士的话报道称，军事行动“不屈不挠的决心”的指挥部已经提高了驻扎在伊拉克的美国军人的防卫等级。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+防卫等级的提升源于美国最近对亲伊朗民兵在叙利亚使用的设施的打击。“保护联军是重中之重，所以提高部队的危险等级是一个明智的决定。”电视台的一位对话者说。
 
-**西班牙2021年2月27日电/西喜社——**据ABC新闻2月26日报道，塞维利亚一座监狱爆发中共病毒感染，目前34名囚犯和7名管理人员检测阳性，检测还在积极进行中。
+此外，在巴格达附近的巴拉德空军基地，在那里工作的承包商Sallyport Global的美方人员已进入高度戒备状态。现在，禁止员工在当地时间18:30至5:00进行与执行战斗任务无直接关系的活动。所有到防御工事外的人都必须穿上防护服。
 
-根据监狱管理部门的披露，这次爆发从1月30日开始，已有一名感染病毒的囚犯死亡。最初，是从两名囚犯的感染开始的，其中一名是当时正好要定期去医院做化疗的囚犯，在医院被测试出阳性，才知道他感染了病毒，从而开始对整个监狱的检测。
+2月，叛乱分子对美国在伊拉克的设施发动了三次袭击——袭击了巴拉德基地、美国驻巴格达绿地大使馆和埃尔比勒国际机场附近的设施。10余人受伤，其中至少有5名美国人。
 
-**新闻来源：[ABC新闻](https://www.abc.es/sociedad/abci-coronavirus-espana-directo-brasil-supera-250000-muertes-coronavirus-202102260617_directo.html#vca=mod-lo-mas-p4&amp;vmc=leido&amp;vso=sociedad&amp;vli=noticia.foto.sociedad&amp;vtm_loMas=si)**
+对此，2月25日至26日晚，根据美国总统拜登的命令，对叙利亚东部一个边境检查站附近的设施发动空袭。五角大楼负责人劳埃德·奥斯汀说，国防部对目标选择充满信心，袭击美国人的是什叶派组织。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
+对亲伊朗民兵的袭击涉及两架F-15战斗机，发射了7枚导弹。结果，阿布凯末尔（Abu Kamal）镇附近的9个目标被完全摧毁，另有两个目标受到严重破坏。
+
+据俄罗斯外交部长谢尔盖·拉夫罗夫称，华盛顿在袭击发生前5分钟就向莫斯科发出了即将发生袭击的警告。俄外交部谴责美国的行动。俄联邦委员会国际事务委员会委员谢尔盖·谢科夫说，美国人对一个主权国家领土的打击令人愤慨。
+
+空袭后，拜登警告伊朗要“小心”。按照总统的说法，美国不会允许德黑兰的行为逍遥法外。拜登并没有详细说明对伊朗采取的行动。
+
+参考链接：
+
+[https://www.rbc.ru/politics/27/02/2021/6039e7b49a7947b5b984550e](https://www.rbc.ru/politics/27/02/2021/6039e7b49a7947b5b984550e)
 
 0
