@@ -1,25 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 抖音将为盗取隐私诉讼支付9200万美元和解金
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/935226/)
+## 【信仰之声】爆料革命是路上的光
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/935343/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：纽约香草山福音部  apple拍（苹果乐园） 编辑：光明 校对/发稿：飞虹
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-27_08-57-43.jpg)[news.sky.com](https://news.sky.com/story/tiktok-trump-issues-order-for-us-ban-in-45-days-12044080)
-布赖特巴特新闻网 (Breitbart News)报道，中共公司旗下的社交媒体应用——抖音海外版（TikTok）同意支付9200万美元来解决数十起对其盗窃用户隐私的诉讼，这些诉讼指控称TikTok在未经用户同意的情况下获取了用户的个人数据，并将这些数据分享给包括中共在内的第三方。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
-拟议的和解适用于8900万在美国的TikTok用户，他们的个人数据被跟踪并出售给广告商，这违反了联邦法律。该案的律师称这是历史上最大的与隐私有关的赔偿案件。
 
-此次和解是21起主要代表未成年人提起的联邦诉讼的最终结果，这些诉讼指控TikTok公司“窃取个人隐私和可识别个人身份的用户数据”。 这些数据可能在未经允许的情况下被用于监视用户。
 
-2019年初，美国智库彼得森国际经济研究所发布一篇分析文章称，中共所有的社交媒体应用TikTok被用于大量收集用户数据。若TikTok将搜集的信息分享给中共，将成为中共政府搜集情报的工具，这对美国及其他国家构成严重的安全威胁。
+经文 “行仁义公平比献祭更蒙耶和华悦纳”（《箴言》21:3），是我每天与上帝的互动，也是我的灵粮，因为上帝的话语是我脚前的灯，路上的光。
 
-2019年底，川普政府宣布对TikTok展开国家安全审查。第二年8月川普政府以网络安全威胁为由禁止在政府的移动设备使用该应用软件，并禁止受美国司法管辖的任何人或企业与TikTok的母公司字节跳动以及微信母公司腾讯进行交易。随后川普总统发布行政令，要求字节跳动在90天内剥离TikTok，TikTok提起了诉讼。12月7日，华盛顿特区联邦地区法院否决美国商务部对TikTok的限制措施。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/image0-106.jpg)
 
-参考链接：
+今天，这篇经文让我想起新中国联邦的意义：唤醒全人类的良知，行仁义公平的事。
 
-[https://www.breitbart.com/tech/2021/02/26/tiktok-to-pay-92m-to-settle-lawsuit-over-user-privacy/](https://www.breitbart.com/tech/2021/02/26/tiktok-to-pay-92m-to-settle-lawsuit-over-user-privacy/)
+新中国联邦是七哥郭文贵带引战友，爱战友以及行动的结果。七哥也带引全球战友参与G系列的投资，为的就是让草根战友在过上体面、安全、尊严生活的同时，让我们了解这世界正在发生的我们所不知道的大事，这一切都使我更加懂得灭共事业不分国界、不分肤色，因为这关系到全世界人类的未来。当然我们新中国联邦人对此事业更是义不容辞。
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

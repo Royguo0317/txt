@@ -1,8 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中南海附近爆炸后致7伤官媒报导后又迅速删除 （玫瑰看新闻二月二十五日）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/935383/)
+## 中共解放军的贪腐 习近平亲信不列为反贪腐对象
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/935545/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-87.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-65.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/3-39.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/4-51.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/5-45.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/6-51.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/7-21.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/8-16.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/9-12.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/10-15.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/11-17.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/12-16.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/13-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/14-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/15-7.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/16-8.jpg)
+台湾宝岛准农场Amitofu
+
+中共解放军自1985年以来，在中央军事委员会认可的军方经营企业项目中，包含造林业、畜牧业、养殖业、运输业、机械制造业、酒店旅馆经营、对外贸易、军医院甚至军用仓库、军用港口、机场等多家军方企业项目，作战总参谋部成立大型贸易保利公司，海军则成立海洋航运公司，空军成立联合航空公司，各地军方情报部门利用军方特权成立公司，不择手段获得巨大利益，甚至经营走私石油、军火等生意，而多数公司是表面民营化，幕后还是以解放军干部担任要职，由于解放军经商导致从上到下都在贪污，层层贿络以求得官位，当官的主要目的是以赚钱营利为主，导致真正人才遭受排挤，甚至遭受威胁。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/ccpxiarm-400x222.jpg)图片来源美联社
+解放军的总参谋部、总政治部、总后勤部、总装备部各自经营副业，掌握情报系统的总参谋部会将窃听的机密与产业讯息出售私企，总政治部的人事升迁可作为买卖官位获利，总后勤部可利用绑标、低价贩卖军用土地而致富，总装备部门更可以将军方核武器军火装备私下与伊朗等恐怖组织进行交易，尽管习近平2012年展开以贪反贪后，超过一百万官员遭受严惩，甚至高阶军官为了不连累家人、上司而选择自杀。习近平的强势作风引起解放军内部极大不满，连江泽民爱将中央军委副主席徐才厚与郭伯雄也被整肃，2015年徐才厚在聆判前身故，郭伯雄则被判处无期徒刑，然而并非习近平派系的亲信比较清廉，即使将4大总部改成15部门贪腐依旧存在，支持习近平身旁的太子党，依然掌握特权而不被列为反贪腐对象，北京延安儿女联谊会的太子党子女更是效忠习近平政权，利用特权获取巨额财富，这些子女的父母都是前军方高层，协助习近平掌握军权，但也因此产生派系内斗。笔者认为习主导江山是人民的，人民是以习主席为代表，所以江山也是习主席的，一切听党的，党一切听习的，任何妄议党中央就是妄议习主席，就是妄议人民的代表，当然解放军也要听习的 也要属于习的私人军队。笔者参照七哥以往直播节目精辟的见解写作，本文仅代表个人立场
+
+資料來源:七哥直播
+
+审核:Athena雅典娜 發佈:Amitofu
+
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+
 0
