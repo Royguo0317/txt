@@ -1,15 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年2月26日 文贵先生盖特 5
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/935308/)
+## 中南海附近爆炸后致7伤官媒报导后又迅速删除 （玫瑰看新闻二月二十五日）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/935383/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
-
-2月26号：尊敬的战友们好，现在出现的这两个假Gcoin App已经出来了，有战友在打钱了，我们的还没开始，假的千万不要上当，真正的还没有上线🙏🙏🙏🙏🙏🙏
-![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-27_08-00-41.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/photo_2021-02-27_08-00-40.jpg)
-[【2021年2月26日】文贵先生盖特原文](https://gtv.org/getter/6039bf2c195851590237b873)
-
-**喜联盟Gnews编辑部**
-
-+1
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1-87.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-65.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/3-39.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/4-51.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/5-45.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/6-51.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/7-21.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/8-16.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/9-12.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/10-15.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/11-17.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/12-16.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/13-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/14-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/15-7.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/16-8.jpg)
+0

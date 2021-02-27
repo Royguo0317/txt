@@ -1,8 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中南海附近爆炸后致7伤官媒报导后又迅速删除 （玫瑰看新闻二月二十五日）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/935383/)
+## 【灭共头条】芯片“卡脖子”问题难解，华为或转向电动汽车制造领域
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/935480/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/1-87.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-65.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/3-39.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/4-51.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/5-45.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/6-51.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/7-21.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/8-16.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/9-12.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/10-15.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/11-17.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/12-16.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/13-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/14-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/15-7.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/16-8.jpg)
-0
+#### 撰稿：MIYA【㊙️翻 Gnews原创组】
+责编：萌萌的朋克
+![]()![](https://gnews.org/wp-content/uploads/2021/02/华为.jpg)图片来源： d1ev.com
+由于受到美国制裁的持续打击，华为作为全球最大的电信设备制造商正在探索战略转变，传闻华为计划以自己的品牌生产电动汽车，并可能在今年推出部分车型。
+
+据路透社26日报道，华为正与长安汽车（A股000625）和北汽集团蓝谷新能源科技股份有限公司（A股600733）商讨生产电动汽车事宜。路透社报道后，当日下午中共国A股收盘前一小时，长安汽车的股价一度最高上涨了8％，北汽蓝谷则在涨停后以8%收盘。
+
+尽管华为发言人公开声称公司的目标是致力于开发各种用于电动汽车的技术，包括车载软件系统、汽车传感器和5G通信硬件，致力于成为数字汽车和新型组件提供商。但据消息人士称，华为消费者业务部负责人余宇东（Richard Yu）已将目标瞄准大众市场，把重点转移到制造电动汽车上。公司内部已经开始设计电动汽车，并与供应商接洽，以期最早在今年正式启动该项目。长安汽车与北汽蓝谷均未对此做出回应。
+
+被美国制裁近两年地华为，供应链遭受重创，去年11月已被逼出售荣耀手机业务。本月初，华为CEO任正非曾喊话拜登政府放华为一条生路，不求移出美国实体黑名单，只求释放美国设备、元件和材料的禁售令，以解华为的燃眉之急。华为现有供应渠道的枯竭和技术服务的断档，将在2021年更为显著，转向芯片密集程度较低的行业，意味着华为潜在的重大方向转变，也标志着中共国与芯片相关的行业不得不调整未来的发展方向。
+
+回溯到2014年，中共国务院颁布《国家集成电路产业发展推进纲要》，由中央财政、国开金融和中国移动设立并启动产业投资基金后，全国各地掀起芯片产业发展热潮。2020年，突如其来的美国制裁让一个个动辄数百亿元乃至千亿元的芯片项目“烂尾”，成为资本市场的牺牲品，简直是芯片行业的噩梦年。
+
+华为是中共企业的风向标。今年1月底，深陷债务危机、沉寂多年的乐视集团 CEO 贾跃亭“东山再起”，其创办的法拉第未来（公司总部在美国加利福尼亚州）与浙江吉利控股集团有限公司合作，募集资金约10亿美元，借壳在纳斯达克上市。2021年，电动汽车行业已大有取代当年芯片行业的趋势。
+
+但是在中共治下，资本不以潜心行业发展为根本，仅靠玩转政策迅速圈钱，企业难以得到中共真正的扶持，做不到静心自主研发和创新，只能靠偷窃和“拿来主义”是企业生命脆弱的关键原因。“毒瘤”中共 不除，“烂尾潮”将再次席卷而来！
+
+参考链接：
+[Exclusive: China’s Huawei, reeling from U.S. sanctions, plans foray into EVs – sources](China's%20Huawei,%20reeling%20from%20U.S.%20sanctions,%20plans%20foray%20into%20EVs%20-%20sources)
+
+(本文仅代表作者个人观点）
+
++2
