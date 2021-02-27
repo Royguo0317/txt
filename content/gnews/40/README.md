@@ -1,82 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 不宣誓效忠中共的香港人将无权参政
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/934628/)
+## 【战友心声】对爆料革命翻译工作的一点思考和心得
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/934664/)
 
-*新闻来源：《香港卫报》| 作者：海伦.大卫森（Helen Davidson）| 发布时间：2021年2月23日*
-
-*翻译/简评：文意 | 校对：SilverSpurs7 | 审核：万人往 | Page：拱卒*
-
-[!\[\]()!\[\](https://spark.adobe.com/page/nyuYHA14m2IEb/images/8c7f8ca8-7cf5-4266-bf1d-49290617a022.jpg?asset_id=15a84b3a-a665-40b4-ac1e-872a94ee55d2&amp;img_etag=%22ff9ba5979279e6b822ea1101bff758d3%22&amp;size=2560)](https://spark.adobe.com/page/nyuYHA14m2IEb/images/8c7f8ca8-7cf5-4266-bf1d-49290617a022.jpg?asset_id=15a84b3a-a665-40b4-ac1e-872a94ee55d2&amp;img_etag=%22ff9ba5979279e6b822ea1101bff758d3%22&amp;size=1024)
-
-**简评：**
-
-香港政制及内地事务局局长曾国卫在星期二的新闻发布会上宣布，根据下个月提交表决的法案，所有选举参与者必须宣誓效忠中共，否则将面临五年不得参选的禁令。
-
-香港政府在中共的控制之下已经不再是一个民主、法治的香港。邓小平当年承诺的香港自治50年不变之说今天已经成为历史。中共的食言和从不信守诺言的本质再一次被历史见证。可惜的是，西方世界对中共的倒行逆施还是只停留在言辞谴责的表面上并没有实质的行动。这也让中共更加狂妄，更加肆无忌惮。
-
-人类社会的健康发展是建立在所有人生下来就是平等的，每一个人都享受平等的权利、义务和自由的基础之上的。共产主义是建立在少数人利用人类对自由、民主的乌托邦式的向往来洗脑和统治大多数。香港曾是中共走向世界的大门，现在会变成他们走向灭亡的开始。
-
-**原文翻译：**
-
-# **香港计划让政客宣誓效忠北京**
-
-**根据下个月提交表决的法案，所有选举参与者将不得不宣誓效忠（中共），否则将面临五年的禁令**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/nyuYHA14m2IEb/images/533929da-4dce-4e52-895a-e277e5a26b1d.jpg?asset_id=6c822b13-2c13-44b2-8be5-26c2d19acc64&amp;img_etag=%2283caa9ba3e7a60f606d8b688e9ead52d%22&amp;size=2560)](https://spark.adobe.com/page/nyuYHA14m2IEb/images/533929da-4dce-4e52-895a-e277e5a26b1d.jpg?asset_id=6c822b13-2c13-44b2-8be5-26c2d19acc64&amp;img_etag=%2283caa9ba3e7a60f606d8b688e9ead52d%22&amp;size=1024)香港政制及内地事务局局长曾国卫在星期二的新闻发布会上宣布了这些变动。摄影：Tyrone Siu /路透社
-
-香港政府已宣布选举变更，要求办公室负责人宣誓并维持对香港和北京的忠诚誓言，否则将被取消竞选资格，并被禁止在5年内竞选连任。
-
-香港政制及内地事务局局长曾国卫在星期二的新闻发布会上说，一项“确保爱国者统治香港的法案”已获执行委员会通过，并将于三月提交。
-
-曾国卫说：“如果你声称爱国，不尊重或试图破坏我们制度的基本特征，即以 [中华人民共和国] 为首的制度，那将是不可接受的。你不能说：‘我爱国，但不是中国共产党领导下的那个国。’”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/nyuYHA14m2IEb/images/4d003428-e18f-4b4f-b580-73a7f52b20d7.jpg?asset_id=45bf0fa9-3c0b-4523-9bbc-dad8081778c1&amp;img_etag=%22b277eeecc5e4791163ea512e79aa4797%22&amp;size=2560)](https://spark.adobe.com/page/nyuYHA14m2IEb/images/4d003428-e18f-4b4f-b580-73a7f52b20d7.jpg?asset_id=45bf0fa9-3c0b-4523-9bbc-dad8081778c1&amp;img_etag=%22b277eeecc5e4791163ea512e79aa4797%22&amp;size=1024)
-
-在宣布这一消息之前，北京一位高级官员暗示将进行重大改变，以确保香港由“爱国者”治理。这清楚表明，中共在香港这一前英国殖民地回归23年后，打算不再宽容反对的声音了，尽管中共承诺将维持香港的权利和自由50年不变。
-
-去年，中共对香港实施了全面的国家安全法后，当局已采取行动驱逐被认为忠诚度不高的香港立法委员会成员，并以包括非法集会和与外国部队勾结在内的指控逮捕了资深反对派领导人。
-
-政府批评人士和多个西方领导人指责北京不履行承诺，并暴力终止了治理金融中心的“一国两制”框架。
-
-该法案允许该规则追溯适用，并将效忠宣誓要求扩大到区议员——当地政治家，自2019年末选举以来，他们绝大多数是赞成民主的。根据这些修正案，他们必须保证效忠作为中共国特别行政区的香港，并效忠香港的微型宪法，即基本法。
-
-任何被发现违反效忠宣誓的人都可能被停职，等待法院开庭审理并可能丧失资格。如果丧失资格，个人将无法在五年内再次竞选，这一时期可能会阻止该候选人参加两个四年一度的选举周期。
-
-曾国卫说，任何主张或支持香港独立的人，或者拒绝承认中共国对香港的主权或行使这种主权的人，都可以根据拟议的修正案取消资格。
-
-该法案还禁止采取行动，包括无歧视地反对政府法案，敦促行政长官下台并举行“变相公投”。它列出了侮辱或亵渎香港和中共国国旗、国歌或任何其他国家象征等可以取消资格的罪行。
-
-曾国卫说：“为反映宣誓的庄严性，我们认为任何不遵守誓言的人都应对其参选能力构成限制。”
-
-过去的行为将被考虑在内，从而增加了由民主核心小组举行的去年非官方初选的所有参与者（其中许多人在一月份被捕）遭受影响的可能性。曾国卫证实，四名丧失去年选举资格的区议员将受到影响。
-
-曾国卫继续说：“该法案没有具体的追溯效力， 但我们是否会判断某个人过去的行为，将视个人情况而定。”
-
-“如果你认真对待宣誓，那么没什么可担心的。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/nyuYHA14m2IEb/images/201b3243-9b5b-49c4-9a49-0474db36477d.jpg?asset_id=b8aadbed-1a16-48a4-93d0-0ec8a73c38a4&amp;img_etag=%2274606b85768767f412658947b60933d9%22&amp;size=2560)](https://spark.adobe.com/page/nyuYHA14m2IEb/images/201b3243-9b5b-49c4-9a49-0474db36477d.jpg?asset_id=b8aadbed-1a16-48a4-93d0-0ec8a73c38a4&amp;img_etag=%2274606b85768767f412658947b60933d9%22&amp;size=1024)
-
-港澳事务办公室主任夏宝龙在本周的一次演讲中提出了选举改革，这表明北京正在努力确保反对派候选人不能参加香港已经非常有限的选举。
-
-夏宝龙概述了由中央政府领导的“改善”香港选举制度的计划，并说当局必须封闭使“反华的麻烦制造者”参政的漏洞。
-
-大赦国际中国团队负责人约书亚·罗森茨威格（Joshua Rosenzweig）说，该法案似乎是当局试图“压制批评人士并剥夺人们的政治参与权”的又一例证。
-
-“让每个人都承担公共服务的法律义务是一回事；但本质上是试图清除所有拥有和表达与政府不同观点的政府部门中的人，这完全是另一回事。”
-
-去年，民主派议员在四名同事被取消参选资格后集体辞职抗议之后，香港议会没有任何有效的反对派。根据2020年国家安全法，已有100多人被捕，还有数千人因参与2019年的抗议活动而受到起诉。
-
-🔗[原文链接](https://www.theguardian.com/world/2021/feb/23/hong-kong-plans-to-make-politicians-swear-oath-of-loyalty-to-beijing)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+作者：纽约香草山福音部 所罗门
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/nyuYHA14m2IEb/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/nyuYHA14m2IEb/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-+1
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/image-213.png)图：五旬节圣灵降临，门徒说各国方言。By Duccio di Buoninsegna (1308)
+
+在这场正义与邪恶的大战之中，郭先生所领导的新中国联邦是带领者。外国政客和媒体大量被“蓝金黄”，即使没有被“蓝金黄”的人好多也都过于天真，不愿相信中共的邪恶，而外国老百姓就更加糊涂了。所以，这种情况下，怎样把爆料革命的声音，把中共的邪恶传递给外国人，就非常重要。而要传递给他们，非常重要的一环，就是翻译工作。下面从组织层面和个人层面简单说几点：
+
+首先说组织层面。爆料革命现在有农场联盟委员会，统一协调各农场的工作。但翻译工作方面，很多团体还是各自为战，缺乏统一协调。虽然有秘密翻译组，但只存在于WHATSAPP上，而这个软件必须用手机号注册。如果墙内战友买了外国的号，也很容易被封，所以很多有才华的墙内战友就失去了参与秘密翻译组的机会。
+
+因此，建议组织DISCORD上的跨农场翻译协调组织，协调爆料革命各个翻译团队的工作，编写统一的翻译词汇库并保持更新，减少重复工作，并可进行后备梯队的培养。
+
+个人层面：
+
+1，翻译时，最重要的一点就是要理解和把握原文的意思，不能直接机械地词对词翻译，不管是一段话还是一个词。
+
+（1）拿一段话来说，比如拜登刚上台后，路德先生讲了一段话，大意如下：
+
+现在平衡被打破，美国这边搞定了，就要对党内进行更加强化版的所谓反腐的名义大清洗。
+
+有的战友就翻译为：Now the balance has been broken and the United States has settled it. It is necessary to carry out a more enhanced plan of the so-called anti-corruption cleansing within the party.
+
+这里的问题就在于，没有搞清楚“美国这边搞定了”是说“美国这边被搞定了”，结果把美国当成了主语。
+
+（2）拿一些短语来说，比如“低级红”“高级黑”。首先要明白这两个词都是用到CCP身上的。“低级红”是表示对CCP的吹捧笨拙低劣，反而让人对CCP反感；而“高级黑”则是把CCP捧上天，但说的是反话。效果其实都一样，而且这两个词也经常可以混用。所以，低级红我觉得可以用clumsy advocacy，而高级黑可以用sophisticated irony。
+
+2，用词要斟酌。
+
+做翻译的战友里很多并不是专业出身，这当然不能苛求。但翻译过程中，不能简单地直接用词典一搜，就从里面随便选一个来用。查词典当然可以，但使用之前，要搞清楚词的用法。
+
+比如，沉默力量，我看有的战友翻译为silencing forces。这里的silencing用的不对，可以用silent，因为silencing表达的是“使……安静的”，所以silencing forces表示的是“使……安静的力量”，就偏离原意了。
+
+3，翻译要符合目标语言的习惯，比如：
+
+（1）1月19日、20日彻底改变世界。
+
+这句话这么说中国人完全理解，但有的战友就翻译成：January 19th and 20th have already changed the world thoroughly. 虽然也能理解，但在英文里，以日期为主语，说是日期改变了世界，总是感觉不太对。可以说我们在这两天彻底改变了世界（We have thoroughly changed the world on Jan.19th and 20th），或说世界在这两天彻底改变了（The world was thoroughly changed on Jan.19th and 20th）。
+
+（2）又比如，1.19中共被定义为种族灭绝和反人类罪。
+
+这句话有战友就翻译为：On January 19, the CCP was defined as genocide and crime against humanity. 同样，也是能理解，但翻译的不好。因为虽然中文写成“定义”，但实际上这是“指控”。“定义”是对一件事物的描述，你不能说CCP是一种罪。当然，这些在中文里没问题，但英文这么说就很古怪。而这里的动词可以用charge，即指控。
+
+4，其他方面，比如平时多积累啊，多看英语新闻啊，我想是大家都明白的，我就不再赘述了。
+
+愿神赐福给各位战友，愿神赐福给新中国联邦。
+
+审核/编辑：光明
+
+校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
+
++4

@@ -1,51 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 北京官员发出信号 ：中共国主导香港选举改革确保只有 “爱国者 ”掌权
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/934618/)
+## 川普时期国家安全官员称武汉实验室“失误”的证据 ‘远超’ 其它理论
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/934679/)
 
 翻译：康州盘古农场 – 一花一世界
 校对：康州盘古农场 – Mike Li
 编辑：康州盘古农场 – Antsee-GTV
 
-![the four]()![the four](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-27-at-03.13.59.png)*(由左至右)郭家麒、杨岳桥、郭荣铿及梁继昌- 图片来源《立场新闻》*
+![WIV]()![WIV](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-27-at-04.03.40.png)*武汉病毒研究所 – 图片来源 (赫克托·丽塔摩尔（HECTOR RETAMAL）/《法新社》通过 Getty Images)*
 
-据《香港自由新闻》何凯莉（[KELLY HO](https://hongkongfp.com/author/kellyho/)）2月22日报道：
+据《每日来电》调查记者查克·罗斯（CHUCK ROSS）2月21日报道：
 
-“只有在香港，才会有人炫耀自己对祖国的反抗。”夏宝龙说。
+曾在前总统唐纳德·川普(Donald Trump)手下担任国家安全副顾问的马特·波廷格(Matt Pottinger)周日表示，冠状病毒是由中共国实验室的人为错误导致的证据 “远远超过 “其它关于疫情起源的理论。
 
-一位北京官员表示，香港将在中共国当局的领导下进行一系列选举改革，目的是将 “反华 ”的反对势力挡在香港的管理机构之外。
+“如果你权衡一下间接证据，解释说这是由某种人为错误导致的数量远远超过了说这是自然爆发的一方，”·波廷格在CBS新闻节目 “直面国家 “（“Face the Nation”）的采访中说。
 
-港澳办主任夏宝龙周一在北京举行的中国港澳研究会会议上概述了 “爱国者治港 ”的标准。
+“我们有非常充分的理由相信，早在2017年，中共国军方在同一个实验室里进行机密动物实验。”他继续说道。
 
-夏说，治理半自治区的权力必须掌握在爱国者手中，因为这是实现一国两制的 “基本原则”。他说，除了香港的一些人外，几乎所有国家和地区的人在竞选公职时都会表现出爱国主义。
+“我们有充分的理由相信，2019年秋天，紧接着第一例记录在案的病例被曝光之前，在武汉病毒研究所工作的研究人员中就爆发了类似流感的疾病。”
 
-“只有在香港，才会有一些人在宣誓就职时，以反叛祖国……甚至以反对国家、反对（中央政府）、妖魔化本民族为选举口号，做出极其丑陋的政治表演。”夏说。
+波廷格是在美国总统拜登的国家安全顾问杰克·沙利文（Jake Sullivan）对世界卫生组织即将发布的关于武汉病毒起源调查报告表示怀疑后接受的采访。
 
-这位港澳办负责人形容，爱国者是指真正维护中国主权、尊重香港特区宪制秩序的人。他说，给国家和城市 “抹黑 ”的人，以及 “乞求 ”外国制裁的人，不会被视为爱国者。
+沙利文指责中共国政府向调查人员隐瞒原始数据。他呼吁世卫组织 “加大 “调查力度。
 
-这位中国驻香港的高级官员说，违反国家安全法–经常被批评者称为 “暴徒”–的人也肯定会被排除在爱国者名单之外。去年6月30日颁布的全面立法将分裂、颠覆、勾结外国势力和恐怖行为定为犯罪。
 
-夏给香港反对派贴上了 “反中”、“港独 ”的标签，称 “激进分裂势力 ”通过不同的选举进入香港特区的管治框架，在立法会、行政长官选举委员会和区议会担任职务。
 
-“在我们这个实行社会主义民主的国家，允许不同的政见。但有一条红线，就是（人们）绝对不允许损害国家的根本制度。”他说。
+> [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) ORIGINS: Former Deputy NSA Matt Pottinger tells [@margbrennan](https://twitter.com/margbrennan?ref_src=twsrc%5Etfw) there’s “strong reason to believe” China’s military previously conducted secret “animal experiments” at the Wuhan Institute of Virology where in Fall 2019 there was an outbreak there of a “flu-like illness” [pic.twitter.com/oFn2EoaZ2W](https://t.co/oFn2EoaZ2W)
+> — Face The Nation (@FaceTheNation) [February 21, 2021](https://twitter.com/FaceTheNation/status/1363523317018279941?ref_src=twsrc%5Etfw)
 
-**‘爱国者治港**’
 
-去年11月，北京的最高立法机构通过了一项决议，使香港政府能够将四名 “不爱国 ”的民主派议员赶走。这导致了民主派人士的大规模辞职，使立法会中大部分是建制派议员，没有抗衡的反对派。
 
-夏表示，落实 “爱国者治港 ”最重要、最迫切的举措是 “完善 ”香港的选举制度，确保忠于中共国的人能够 “牢牢掌握 ”香港的管治权力。港澳办主任警告说，地方当局绝不能让支持 “独立 ”或支持 “互相破坏 ”和 “黑色暴力”（指2019年反引渡法案运动中的黑衣抗议者）的个人成为特区政权的一部分。
+![Twitter]()![Twitter](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-27-at-04.07.27.png)
 
-“香港的选举制度应该达到这些效果：充分尊重市民的民主权利，切实维护国家主权和安全……保证各类选举公正、公平、公开，有效防止扰乱香港的反华分子和国际反华势力的代理人进入特区权力机关。”
+沙利文没有接受实验室泄露论，只说中国对外界调查人员隐瞒信息，使人难以弄清疫情是如何开始的。
 
-改革必须在北京的领导下执行，夏说，当局必须制定政策，确保组成该市行政、立法和司法部门的人员，以及重要法定组织的负责人都是爱国者。
+波廷格还批评了世卫组织。
 
-“在任何情况下，政府重要职位都不能由扰乱香港的反华势力担任。”夏警告说。
+“世卫组织要承担很多责任，”他说。
 
-香港政府表示，计划修改现行的公职人士宣誓法例，将区议员纳入其中。批评人士抨击此举是试图进一步消除在港的反对派，此前民主派阵营在2019年对垒建制派候选人的区议会选举中取得历史性的压倒性胜利。
+“世界卫生组织对这种病毒提出了各种不真实或错误的说法。”
 
-去年12月，当地媒体报道称，北京已计划打击区议会，改革行政长官选举委员会。目前，区议员之间正相互投票，以填补选举委员会的117个席位。
+他指出，世卫组织早在2020年1月就声称，冠状病毒不是通过人与人之间的接触传播的。
 
-原文链接：[https://hongkongfp.com/2021/02/22/beijing-official-signals-china-led-electoral-reforms-for-hong-kong-to-ensure-only-patriots-hold-power/](https://hongkongfp.com/2021/02/22/beijing-official-signals-china-led-electoral-reforms-for-hong-kong-to-ensure-only-patriots-hold-power/)
+波廷格断言，世卫组织的科学家团队存在 “严重利益冲突”，是由中共国政府 “亲自挑选 “的。
 
-0
+原文链接 : [https://dailycaller.com/2021/02/21/matt-pottinger-wuhan-lab-china/](https://dailycaller.com/2021/02/21/matt-pottinger-wuhan-lab-china/)
+
++2
