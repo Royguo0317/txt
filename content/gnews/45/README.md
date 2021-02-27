@@ -1,37 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登的中情局局长提名人谎报与中共已断绝关系
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/935071/)
+## CPAC全力支持川普总统对选举舞弊的指控
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/935163/)
 
-**新闻来源：**TheNationalPulse《国家脉动》｜**作者：**Natalie Winters（娜塔莉·温特斯）｜**发布时间：**2021年2月25日
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Screen-Shot-2021-02-26-at-7.20.12-PM.png)**`图片来自推特`**
-**简评：**
+俄罗斯莫斯科喀秋莎农场 仰望七星
+编辑 水星 上传 银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/下载-1-12.jpg)[politico.com](https://www.politico.com/story/2016/09/donald-trumps-english-only-campaign-228559)
+极左媒体《广播电视新闻网》（NBC News）跟踪“保守派政治行动年会”动态，今天发文“保守派政治行动大会（CPAC）将全力支持川普总统对选举舞弊的指控”，指出保守派活动人士和领导人将在周末讨论选举欺诈问题，几周前，欺诈的选举引发了一场致命的骚乱。
 
-维基解密于2017年4月12日下午5点左右在推特上面发推文，其内容如下：拜登时代与奥巴马时代的白宫高级官员**杰克·苏利文（Jacob Jeremiah Sullivan）**在2012年2月给奥巴马时代的美国国务卿希拉里发了一封电邮。该电邮中显示，见最后一项——**在叙利亚的基地组织（AQ）是我们的人**，否则事情基本就定了。这封电邮让人有理由去质疑美国总统的政治立场。
+这个自始至终站在反川普总统阵营的极左媒体，以极不情愿、无可奈何，以及继续袒护选举欺诈的心态写出这则报道，反映了做贼心虚的一面，更是“压力山大”的胆怯。
 
-大部分美国人对拜登作为美国总统的立场产生了怀疑：拜登正在推翻川普总统“美国优先”的主张。他会不会突然像苏利文一样具有隐藏性的站在中共那边，这事情更值得去怀疑，毕竟他美国总统的合法性还没有一个最终定论！另外，据2021年2月24日《新唐人》**`援引`**《每日来电者》的报道，**伯恩斯（William J. Burns）**告诉参议院情报委员会，他在2015年接管**`卡内基`**后不久，就切断了与中美的联系。但实际上双方仍然保持最少两年的关系！
+选举舞弊欺诈，这事能完吗？
 
-在该报道中，也提及该提名的情报局局长是中共“蓝金黄”美国的一部分，并特意提及了香港特首`董建华`此人。可见，拜登政府的内阁与中共有无法脱离的内幕在里面，可能都是穿同一条裤子的。
+文章摘译如下：
 
-中共在新疆犯有反人类罪行已经逐步被全球认可，美国的国家安全顾问会不会再次电邮确定中共是“我们的人”，谁又说得准！现今，这话题已经成为了热点。
+保守派政治行动会议（Conservative Political Action Conference）的议程，是本周末在佛罗里达州举行颇具影响力的右翼峰会，该峰会最著名的名字是CPAC，它为与会者提供了多个论坛，（包括）对2020选举质疑的延续，也要讨论共和党推进新一轮的选举方式，会议结束日的主讲人是川普总统。
 
-**原文翻译：**
+这次活动包括七场关于“保护选举”的演讲和小组讨论会贯穿整个长周末，其中有“为什么法官和媒体拒绝看证据”，“左派混淆视听，掩盖事实”等具体主题。
 
-**拜登总统的中央情报局局长提名人，他曾担任卡内基国际和平基金会主席，他错误地声称，他加入了智库“不久后”，与中国共产党断绝了关系。**
+分组讨论中，引人注目的是“选民档案“，（里面有）“真相就在那里：向选举律师提问，你的选票被计入了吗？去问问专家吧！” 很多的赞助活动也关注舞弊和选举。
 
-被提名人威廉·伯恩斯告诉参议员马可·卢比奥，他“继承”了**智库与中美交流基金会（CUSEF）**的关系，但在确认听证会上“不久”就[切断了](https://www.ntd.com/cia-nominee-says-he-cut-ties-with-chinese-propaganda-group-as-president-of-foreign-policy-think-tank_572210.html)与该组织的联系。
+主办CPAC的美国保守党联盟主席马特·施拉普（Matt Schlapp）在CNN一个有争议的节目上为会议关注选举欺诈和选举政策进行了辩护，“我们将花费大量时间来研究各个州发生的事情，不能因为在法庭上失败了就说你打的官司不对。”
 
-然而，伯恩斯于2014年加入智库，他继续参与CUSEF。
+会议包括一个对比“失败”和“成功”的州的活动，看看那些共和党人正在十几个州推进的、可能提请注意的、（按照宪法进行的）一系列限制性的投票法。
 
-CUSEF是中国共产党联合阵线[努力](https://www.uscc.gov/sites/default/files/Research/China's%20Overseas%20United%20Front%20Work%20-%20Background%20and%20Implications%20for%20US_final_0.pdf)的一部分，旨在“选择和消除潜在反对派的来源”，并鼓励外国行为者“采取支持北京首选政策的立场”，自2009年以来，它与卡内基基金会关系密切，包括赞助中国共产党官员在智库发表演讲。
+评：是的，美国必须花费大量的时间和精力来研究这次大选发生的事情，否则民意将被滥用、被歪曲、被盗窃、被亵渎。州一级心怀鬼胎的立法人员提前有预谋地改变了宪法的相关内容，还得到了无节操最高法官的许可，为大量的选举舞弊行为得逞提供了机会；行政主管配合欺诈，或者无视舞弊，为舞弊掩盖，替舞弊挡驾；左派媒体封杀对欺诈舞弊的声讨，审查相关消息的传播，甚至封号；最高法院竟然出现对证据完全不受理的怪相……一切的一切，似乎有个巨大的魔掌在操控。
 
-然而，《每日来电者》指出，“根据卡内基的发言人及其2018年年度报告，CUSEF上一次向卡内基捐款是在2017年。”
+人们不敢相信这是发生在美国，这样的美国竟然还曾派出过观察员监督伊拉克、阿富汗等战乱国家的选举！
 
-CUSEF的创始主席董建华也于2017年3月[访问了](https://carnegietsinghua.org/about/anniversary/?mkt_tok=eyJpIjoiTmpVd01EbGxNakprTlRRMiIsInQiOiJMeHRIZWJTN3hjNHZGRGlmc0dUdFBcL0JseW9pWXpKVzdpMEpNekpqTllnSHBzZEJTS1FkOXVQckdWZGZVakZCRW9KdVc2R2hXQWpnSm5EYis0c2ZLMFZFOHRRWGl6R20rWk9NTUZ0amZrOFY4OWwwczRYdjhDXC9zd3lyNWVWdkVNIn0%3D)卡内基-清华大学中心——这两起事件都发生在伯恩斯加入智库三年后。
+希望CPAC这次会议成为唤醒美国，认清邪共的重要节点，文贵先生引领的爆料革命已经进入第五个年头，美国人民到觉醒的时候了吗？
+原文链接：
 
-包括其副主席道格拉斯·帕尔在内的许多卡内基捐赠基金领导人也为CUSEF的季刊《[中美焦点](https://www.cusef.org.hk/en/what-we-do/china-us-focus?page=1)》做出了贡献。
+[https://www.nbcnews.com/politics/donald-trump/cpac-goes-all-trump-s-false-election-fraud-claims-n1258895](https://www.nbcnews.com/politics/donald-trump/cpac-goes-all-trump-s-false-election-fraud-claims-n1258895)
 
-🔗**`原文链接`**
-
-+4
++1
