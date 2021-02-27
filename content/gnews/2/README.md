@@ -1,31 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 流行病学专家：中共病毒在未来一两年内会变成季节性病毒
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/936433/)
+## 中共对英的软实力扩张引起英国警觉
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/936504/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+俄罗斯莫斯科喀秋莎农场   银河
 
 编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-27_21-18-51.jpg)[techstartups.com](https://techstartups.com/2020/02/27/prepare-novel-coronavirus-covid-19-outbreak-symptoms/)
-莫斯科，2月27日。中共病毒感染可能会在未来一两年内成为季节性的，它已经具有这些特征。这是俄罗斯联邦消费者权益保护和公共服务部（Rospotrebnadzor）流行病学中央研究所负责临床和分析工作的副所长娜塔莉亚·本史尼侈娜亚（Natalia Pshenichna）向塔斯社报告的。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-27_21-51-28.jpg)[theloadstar.co.uk](https://theloadstar.co.uk/china-and-uk-agree-on-unlimited-number-of-freighter-flights/)
+《日经新闻》刊登了一篇英国《金融时报》前主编莱昂内尔·巴伯的评论文章，指出中共对英国软实力的扩张，已经深度渗透英国并影响了政府决断。
 
-“这可能会在未来一、两年内发生，现在已经开始显现中共病毒的季节性感染特征。这一点，可以从2020年秋季的大幅上涨中得到印证。”她说。
+文中指出，在伦敦金融城的边缘，矗立着皇家铸币局(Royal Mint)的原址。皇家铸币局的历史可以追溯到公元882年的阿尔弗雷德大帝(Alfred the Great)第一次铸造印有他肖像的银币时期。中共政府选择了这一具有历史意义的地点作为新使馆总部，包括大使官邸、工作人员住所和文化中心。该建筑群将占地约6.5万平方公里，使它成为世界上最大的大使馆之一。无论中英关系目前处于怎样的不稳定状态。高达数亿英镑的使馆项目是对未来的一场豪赌，是中共进一步在英国以及欧洲投射软实力的基础。
 
-她指出，季节性呼吸道感染的发病率上升通常发生在秋季和春季。“因此，从理论上讲，中共病毒疾病的发病率也可能在这些时间段增加。”本史尼侈娜亚说。
+2018年5月，中共驻英国大使刘晓明在泰晤士河皇家铸币厂举行的交接仪式上表示，“新时代需要与中（共）国当前在世界上的作用和影响力相适应的新建筑。”他宣称，这个新时代也是英中关系的“黄金时代”。
 
-另外，据她介绍，中共病毒在湿度和温度较高的时候最容易传播，这与过渡季节相对应。
+三年来，在香港的公民自由、新疆的人权侵犯以及英国禁止中共华为5G技术等问题上，双边关系迅速恶化。在最新的争执中，北京方面已禁止BBC世界电视新闻(BBC World TV News)在中共国播出，这显然是对英国监管机构吊销中共国环球电视网(China Global Television Network)牌照的报复，因其主要股东中央电视台(CCTV)完全受控于中共。
 
-本史尼侈娜亚说，即使在大多数人接种了中共病毒疫苗后，中共病毒感染率的激增也会持续数年。
+特别需要引起关注的是，中共在英国本土的渗透已经体现在了各个不同领域。中共政府对大学校园研究的赞助，不仅涉及国际关系领域，还涉及民用和军事“两用”技术。英国中右翼智库Civitas最近的一份报告发现，至少15所英国大学与和中共军方有关的制造商和大学建立了“富有成效的”研究关系。Civitas批评英国大学和中共政府资助机构之间的关系缺乏透明度。英国海关总署(HMRC)正在对此进行调查。
 
-“即使大部分人都接种了疫苗，还是会有一些人容易被感染。包括因为有些人随着时间的推移，保护性抗体滴度下降。这种感染的流行传播将停止，但周期性的起伏可能会持续数年。”她说。
+Civitas报告的作者拉多米尔·蒂尔科特(Radomir Tylecote)和罗伯特·克拉克(Robert Clark)说，“中共宣称要在2027年赶上美国的军事力量，并在2049年中华人民共和国成立100周年时利用先进的军事技术超越美国。”
 
-本史尼侈娜亚解释说，2009年的甲型H1N1流感就出现了这种情况。她说，自2009年这种菌株引起的疫情以来，几年来每年都有大量猪流感爆发。“只是近几年来，这种病毒株引起的流感年登记病例有所下降。”专家强调。
-
-1月18日，俄罗斯各地区开始大规模接种《人造卫星-V》中共病毒疫苗。为了形成集体免疫力，必须对全国60%的成年人口接种疫苗。
+中共的渗透还体现在政客与中共的勾兑上。在多个西方国家开始关注并呼吁中共在新疆暴行为种族灭绝，对中共进行抵制制裁之际，英国首相鲍里斯·约翰逊宣称自己是“狂热的亲共分子”，抵制维族人“种族灭绝”的呼吁并且拒绝抵制北京冬奥会。
 
 参考链接：
 
-[https://tass.ru/obschestvo/10795753?utm\_source=twitter.com&utm\_medium=social&utm\_campaign=smm\_social\_share](https://tass.ru/obschestvo/10795753?utm_source=twitter.com&amp;utm_medium=social&amp;utm_campaign=smm_social_share)
+[https://asia.nikkei.com/Opinion/China-s-soft-power-push-attracts-scrutiny-in-UK](https://asia.nikkei.com/Opinion/China-s-soft-power-push-attracts-scrutiny-in-UK)
 
 0

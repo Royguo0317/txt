@@ -1,24 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西班牙首相桑切斯关于“疫苗接种证书”的解释
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/936390/)
+## 流行病学专家：中共病毒在未来一两年内会变成季节性病毒
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/936433/)
 
-- 编辑：Victor Torres
-- 翻译：gokuabuela
-- 发稿：Ranting
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-27_21-18-51.jpg)[techstartups.com](https://techstartups.com/2020/02/27/prepare-novel-coronavirus-covid-19-outbreak-symptoms/)
+莫斯科，2月27日。中共病毒感染可能会在未来一两年内成为季节性的，它已经具有这些特征。这是俄罗斯联邦消费者权益保护和公共服务部（Rospotrebnadzor）流行病学中央研究所负责临床和分析工作的副所长娜塔莉亚·本史尼侈娜亚（Natalia Pshenichna）向塔斯社报告的。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+“这可能会在未来一、两年内发生，现在已经开始显现中共病毒的季节性感染特征。这一点，可以从2020年秋季的大幅上涨中得到印证。”她说。
 
-**西班牙2021年2月27日电/西喜社——**据ABC新闻2月26日报道，西班牙首相桑切斯在本周五向媒体解释了有关“疫苗接种证书“的更多细节。
+她指出，季节性呼吸道感染的发病率上升通常发生在秋季和春季。“因此，从理论上讲，中共病毒疾病的发病率也可能在这些时间段增加。”本史尼侈娜亚说。
 
-他指出：”已经就它们应该拥有的最低限度的共同数据达成了协议”，但关于它们的 “未来用途 “的辩论仍在继续。”目标是在不增加健康风险的情况下恢复正常生活和旅游。” “我们不应该满足于单方面的解决方案，应该在欧盟内部和其他多边论坛上进行公开辩论，”他补充说。
+另外，据她介绍，中共病毒在湿度和温度较高的时候最容易传播，这与过渡季节相对应。
 
-之前，他已经拒绝了这样会对未接种疫苗的人产生不平等的说法。
+本史尼侈娜亚说，即使在大多数人接种了中共病毒疫苗后，中共病毒感染率的激增也会持续数年。
 
-**新闻来源：[ABC新闻](https://www.abc.es/sociedad/abci-coronavirus-espana-directo-brasil-supera-250000-muertes-coronavirus-202102260617_directo.html#vca=mod-lo-mas-p4&amp;vmc=leido&amp;vso=sociedad&amp;vli=noticia.foto.sociedad&amp;vtm_loMas=si)**
+“即使大部分人都接种了疫苗，还是会有一些人容易被感染。包括因为有些人随着时间的推移，保护性抗体滴度下降。这种感染的流行传播将停止，但周期性的起伏可能会持续数年。”她说。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
+本史尼侈娜亚解释说，2009年的甲型H1N1流感就出现了这种情况。她说，自2009年这种菌株引起的疫情以来，几年来每年都有大量猪流感爆发。“只是近几年来，这种病毒株引起的流感年登记病例有所下降。”专家强调。
+
+1月18日，俄罗斯各地区开始大规模接种《人造卫星-V》中共病毒疫苗。为了形成集体免疫力，必须对全国60%的成年人口接种疫苗。
+
+参考链接：
+
+[https://tass.ru/obschestvo/10795753?utm\_source=twitter.com&utm\_medium=social&utm\_campaign=smm\_social\_share](https://tass.ru/obschestvo/10795753?utm_source=twitter.com&amp;utm_medium=social&amp;utm_campaign=smm_social_share)
 
 0
