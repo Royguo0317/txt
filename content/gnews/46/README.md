@@ -1,39 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 时隔一年，重看武汉上空二氧化硫含量
-` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/937423/)
+## 【香港要闻】世界新闻摄影展刊抗争的「香港动荡（Hong Kong Unrest）」系列因浸大惧怯临时取消
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/937541/)
 
-##### 作者：庚子
+搜集\编撰：西西
 
-2020年2月8日，根据国际数据提供商“Windy”追踪的数据，中国武汉市周围的大气中包含大量有毒物质二氧化硫（SO2）,遥遥领先其它城市，高达1700ug/㎥，重庆也高达惊人的800ug/㎥。二氧化硫是常见的硫化物，是石油、碳、天然气与生物类有机物等的燃烧都会产生该化合物。正常情况下80ug/㎥即为危险级别，时值中国春节，绝大多数工厂已停工停产，出现如此高浓度极为反常，推友“Interlwave”推断此现象很可能与大量焚烧新冠肺炎（中共生化武器）死者遗体有关，其推测要烧掉1.4万具尸体才能达到这样的排放量。
-![](https://lh5.googleusercontent.com/WD5L4xbtw-qq-KMXUw7Tmt697n4ifHhyWERdcD1Q-TdKwDYcdo5ZfA-5stuDX62LrnJ7YLuHb5mSyBpbK8LoW1TPJWYRBIqLcXCORS0ug1GBpdEkSnJ46VALUnKH42SUVlHym2g)
-*（2020年2月8日武汉二氧化硫SO2浓度，来源：Windy）*
-![](https://lh3.googleusercontent.com/WXW9yMGySfGKvYMD774HQ29LN7immuE0G92G5z_CVn8ohNVl6Hyb7PBiH4t6rHidXpyk60fsGKR7rOFjbqeJzXz6UJQzqns-jtytCu1XXkBX7B4X6hnw9K2UI_RRw28Sa3QCjYM)
-时隔一年，我们再看今日武汉上空的二氧化硫浓度，这个推测是否能得到验证？
-![](https://lh5.googleusercontent.com/sORLNiUWgYOg3tigGUqSucGvdr1iMlhspOAq5xtMyqCbp8r2TpCZvQqvzAnTxOcMzACZwn9vZk0zKcAhVmJU-zxjJ-BJjuyC33CNskvnrATWLOy_TPQrbn36TUjb4UOJFDIBpmU)
-*（2021年2月26日武汉二氧化硫SO2浓度，来源：Windy）*
+**【港版国安法】在教育界掀起极度寒蝉效应，导致浸会大学自我审查。被誉为新闻摄影界最高荣誉之一的「世界新闻摄影比赛」（World Press Photo）早前公布得奖结果，法新社记者Nicolas Asfouri去年拍摄香港的反送中运动，其中10张照片组成的图辑──「Hong Kong Unrest」，夺得「一般新闻类别照片故事」第一名。展览原定在2021年3月1日至21日，于香港浸会大学的顾明均展览厅举行，展出第63届世界新闻摄影年度大赛的获奖作品。日前突然宣布取消，但未有解释原因。**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2281.jpg)示威者在去年10月1日发起「十一・国殇」多区集会游行，警察以膝盖压在一名被捕者的颈上，他的眼镜镜片反映出香港城市轮廓。Nicolas Asfouri／AFP
+世界新闻摄影比赛」自1957年起举办，至今是第63届，今年一共收集了来自125个国家、4,282名摄影师，多达73,996张照片。
 
-从浓度颜色浅淡很明显地看到，武汉及重庆两地的二氧化硫浓度相对于北方大面积地区是极低的（5.05mg/㎡），何况现在企业也大都复产。与当时中共病毒起初在停工停产情况下武汉肆虐时的数据对比，很好的佐证了“Interlwave”焚烧尸体的推测。
-![](https://lh4.googleusercontent.com/eNYVm58CTtCVkHEelt2-nXaCq7gfbAK0y5db-qNsN524VdDALDPSuZ6H_K_DSWlotaEcqMZ5GelMhzGhsNHLqkazqZpomaGRnWPVXglRhPebxyNUfg-tFwmaV6LB1-fbRR9p41c)
-（2021年2月26日武汉二氧化氮NO2浓度，来源：Windy）
+展览共有60多项展品，包括法新社记者Nicolas Asfouri于2019年9至12月拍摄香港抗争的「香港动荡（Hong Kong Unrest）」系列，该系列共有十张照片，并获得「年度最佳照片故事——一般新闻类」，展览会展出其中4张照片； Robin Ewing表示，展览中60多项展品，只有4张照片与1条影片与2019年与反送中运动有关，不明白为何会引起麻烦。
 
-另外，数据提供商Windy一直以ug/㎥为NO2和SO2的浓度计量单位，但此时却改为以mg/㎡为SO2的浓度计量单位，让人很难跟去年SO2浓度做对比。但是却依然以ug/㎥为NO2的浓度计量单位。同样的气体浓度却以两种不同的单位计算浓度，这是不合逻辑的。可以断定这里面一定有中共的“蓝金黄”在做手脚，但是这样却更显得欲盖弥彰，更使人相信不仅当时的武汉，重庆也在大量烧人。而重庆的大量焚烧尸体从侧面也可以证实中共病毒在很早就已经传播开来。
+**法新社记者Nicolas Asfouri：有报道指「鼓吹暴力」而取消展览**
 
+拍下得奖作品的法新社记者Nicolas Asfouri回覆众新闻，对展览未能举行表明失望。香港摄影记者协会则认为，取消展览令香港市民错失欣赏全球优秀新闻摄影作品的机会，亦令人担忧新闻自由进一步受影响，如果因为有报道指「鼓吹暴力」而取消展览，浸大的做法将助长院校自我审查及灭声风气，情况令人忧虑。
 
+Nicolas Asfouri是生于黎巴嫩的丹麦人，做过战地记者，拥有丰富的战地摄影经验，他曾于2014年到香港纪录雨伞运动，Asfouri形容2019年的逆权运动与2014年有很大的分别，示威者更加年轻，当中甚至有很多是中学生，而示威是更具组织和更激烈。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2282.jpg)2019年10月5日，香港警察追捕一对戴着口罩的情侣。Nicolas Asfouri／AFP![]()![](https://gnews.org/wp-content/uploads/2021/02/2283.jpg)2019年9月15日，示威者在政府总部外抵挡警方水炮车的攻击。Nicolas Asfouri／AFP![]()![](https://gnews.org/wp-content/uploads/2021/02/2284.jpg)2019年12月1日，防暴警察在弥敦道上奔跑。Nicolas Asfouri／AFP
+**Robin Ewing：浸大高层担心展览会引发暴力和示威**
 
-2021年2月26日
+有份协助筹备展览的浸大国际新闻专修课程主任Robin Ewing向众新闻表示，浸大高层以安全理由，担心展览会引发暴力和示威，决定取消展览。
 
-【参考来源】
+据筹委会在Facebook指，是次展览筹备超过一年，在开展前三天才收到提供场地的浸会大学决定取消展览。本周一亲建制网媒《点新闻》曾有报道批评展览是「煽暴」，Robin Ewing表示不肯定大学决定与该报道是否有关，但认为可能有影响。她又认为大学决定与国安法没有关系。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2285.jpg)浸大国际新闻专修课程主任Robin Ewing。浸大新闻系图片
+战友点评：
+浸大回应记者查询表示，经详细考虑校园安全、保安和维持防疫措施等因素后，认为现时并非合适时间举办展览，公众可以在网上欣赏展览原本的展品。那么浸大这种自我审查、自我灭声到底是真相为大家着想，还是【港版国安法】在教育界掀起极度寒蝉效应在升级？
 
-【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+新闻照片作为纪录历史的初稿，是公众理解社会议题重要途径之一。主办机构原本已借用浸会大学的场地举办今年展览，并早在接近一年前已开始筹备，惜浸大却在原定展览开幕前三天，才突然以安全风险为由取消展览。从世界新闻摄影展给协会的信件中提及，有一篇报道指该次展览内有关2019香港示威的照片「鼓吹暴力」及「美化暴徒」，故浸大取消展览。协会表明若此属实，浸大的做法将助长院校自我审查及灭声的风气，甚至令香港新闻自由以及出版自由的空间进一步收窄，情况令人忧虑。
 
-**欢迎战友加入旧金山金喜准农场**
+以上观点仅代表笔者
 
-[旧金山金喜准农场 GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+审稿：卡西欧 / 上传：天网灰灰
 
-[旧金山金喜准农场 Discord](https://discord.gg/QQzQ79grEA)
+资料来源：
+1、[众新闻](https://www.hkcnews.com/article/38586/%E4%B8%96%E7%95%8C%E6%96%B0%E8%81%9E%E6%94%9D%E5%BD%B1-%E6%B5%B8%E6%9C%83%E5%A4%A7%E5%AD%B8-%E5%8F%8D%E9%80%81%E4%B8%AD-38599/%E4%B8%96%E7%95%8C%E6%96%B0%E8%81%9E%E6%94%9D%E5%BD%B1%E5%B1%95%E5%88%8A%E5%8F%8D%E9%80%81%E4%B8%AD%E7%9B%B8-%E6%B5%B8%E5%A4%A7%E4%BB%A5%E5%AE%89%E5%85%A8%E7%90%86%E7%94%B1%E8%87%A8%E6%99%82%E5%8F%96%E6%B6%88-%E6%94%9D%E8%A8%98%E5%8D%94%E6%9C%83%EF%BC%9A%E6%88%96%E5%8A%A9%E9%95%B7%E9%99%A2%E6%A0%A1%E8%87%AA%E6%88%91%E5%AF%A9%E6%9F%A5?__cf_chl)
 
-[旧金山金喜准农场 Twitter](https://twitter.com/sf_himalaya) 【**责任编辑**】：舊金山文宣组
+2、[众新聞](https://www.hkcnews.com/article/29052/%E6%B3%95%E6%96%B0%E7%A4%BE-nicolas_asfouri-%E4%B8%96%E7%95%8C%E6%96%B0%E8%81%9E%E6%94%9D%E5%BD%B1-29059/nicolas-asfouri)
 
 0
