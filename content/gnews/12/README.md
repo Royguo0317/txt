@@ -1,50 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0226IX据说接下来美国政治有大运动、大转折,还听说……
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/937066/)
+## 人类永远是往前走的，邪恶一定会被战胜
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/937215/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/封面-55.png)
-编辑整理：
+新闻简述：在2021年2月26日的盖特视频中，郭先生背靠着火炉，面对着大雪，感慨万千：“上天是公平的，用了美国大选，用了整个的种族大屠杀、反人类罪，新中国联邦爆料革命、香港事件、威胁台湾，唤醒世界的人民，你不得不说上天的安排，都是如此的美好和美妙。”
+[下载字幕](https://gnews.org/wp-content/uploads/2021/02/Miles_20210226-Getter1.srt.txt)
+**人类永远是往前走的，邪恶一定会被战胜**
 
-七哥听写组：neutron（文中）
+**Human Beings Are Always Moving Forward; The Wicked Will Surely Be Defeated**
 
-法国巴黎七星农场：枫丹白露
+熊熊的烈火，真棒啊，然后你看外面的大雪，然后这里是熊熊的烈火，欲望之火。
 
-郭文贵先生在[2021年2月26号 文贵直播](https://gtv.org/video/id=6039167f047c4c3086df9d5a)中谈到了中共要争取时间把美国干趴下然后称霸世界，谈到了中共用病毒摧毁世界金融系统同时剑指台湾，谈到了习以他爹的正统谋大位以人名的名义打台湾，谈到了台湾人妄想做苛安一世无人看透中共，谈到了中共党内派系斗争形成僵局没有任何一方可以独大，谈到了中共两派相斗但是打扫战场的是新中国联邦等内容，本系列将根据郭先生在直播中谈到的不同侧重点逐一上传，以下为本系列的第九部分，也是本系列的终结篇——据说接下来美国政治有大运动、大转折,还听说……
+Blazing fire, awesome! And you look at the heavy snow outside while the flame, the flame of lust, is burning here. Ho-ho!
 
-据[2021年2月26号 文贵直播](https://gtv.org/video/id=6039167f047c4c3086df9d5a)时间点1：04：21——
+真舒服，喝杯茶，吃个元宵，熊熊的烈火，你说想啥呀？饱暖思淫欲啊，人家在那玩接班人那，咱也玩不了什么接班人，只能玩火了，太棒了兄弟姐妹们，美好的生活。
 
-今天元宵节了，我可以告诉大家，世界上过元宵节最快乐的就是新中国联邦，没有多少人是快乐的，因为共产党的病毒。对吧，兄弟姐妹们？**我就给大家今天最后说一个消息，据说啊——七哥做梦梦见的啊，胡说八道啊，完全不算数——据说，接下来美国的政治将有大行动，大转折；还听说欧洲、美国要有一系列的联盟行动对付共产党。这事别告诉路德啊，要不然路德又搞重磅去了，不要告诉他啊，呵呵。**
+Aiya, so comfy! After a cup of tea and some glutinous rice balls, sitting by the blazing fire, what’s the next thing that comes in your mind? [A Chinese slang:] When one is well-fed and well-clad, he or she will seek sexual gratification! They [those old bastards in the Zhongnan Pit] are fighting each other for the successorship, while that’s not something that we can play with. We can only play with fire! Ho-ho! Fantastic, brothers and sisters. What a beautiful life!
 
-行了兄弟姐妹们，今天就是元宵节快乐，叫快乐的娱乐乱聊，七哥叫挠人乱聊，挠人挠人挠人挠人，哎哟这不对，这有点儿，哎呀，七哥昨天回来了，你七嫂子又给弄的新被子，哎呀卧室里边舒服得不得了，买的鲜花，哎呀昨天晚上吃的是七嫂子给煲的汤，然后煲的那个没有盐、不放盐的虫草汤——你们懂的啊，七嫂子让七哥喝汤啥意思啊——那都是煲汤啊、都是壮肾的呀，都是壮肾的呀，是吧。然后，昨天晚上跟你七嫂子在一个房间睡的，哎呀，好久没有俩人睡觉了，哎呀睡完了以后高兴得不行了，真是久别胜新婚啊。这个人我忽然发现，这不搞双修这人心情不好，双修完以后心情很好，今早上运动的时候就感觉这个运动得简直太容易了，出一身汗觉得不累！
+我在这边看，来自于世界各地的，关于以毒灭共的、以钱灭共的各种信息，感慨万千。共产党真是完球蛋了，它会像后面的木头一样，给烈火彻底的烧灭，彻底的消灭。这是没有任何悬念的，对吧？兄弟姐妹们？
 
-所以说男的必须跟女的在一起、女的必须跟男的在一起，男女搭配干活不累，男女双修过后，愉悦、能量可以成长很多很多倍，心情愉悦。今天是元宵节，听七哥建议回去双修去吧。现在我要去吃七嫂子给煲的鲅鱼饺子叫做元宵，弄的元宵，不是中秋啊，是元宵，七哥去吃去了。不跟你说了，不跟你聊了。
+While staying here, I have been reading all sorts of information on taking down the CCP by the virus and financial activities from all over the world, and I’ve got all sorts of feelings welled up in my mind. The CCP is truly going to have their balls destroyed. Just like this piece of wood back there, it will be burnt completely from top to the ground. There is no doubt in that, right? Brothers and sisters?
 
-隔着屏幕咱也不可能双修，咋办呢？我一说你们又笑了，**哈哈哈哈，我知道！你又笑了！哈哈哈，**我知道你们又笑了兄弟姐妹们，然后，别摸啊，不要顺便摸旁边的人啊，小心Me too，小心Me too，我这一说这这这这，行啊，两口子就摸吧。今天元宵节，是摸手元宵节啊，祝兄弟姐妹们元宵节双修快乐啊。**但是我告诉你啊，按照中国的日子初一、十五是不能搞双修的，**你们上网查一查，初一、十五每一年有三十五个日子不能搞双修，叫黑狗日——啊，嘿嘿这词儿是真不好——这个双修了以后对身体极不好，我不是乱开玩笑，你查查啊，你查查啊，这个不是开玩笑啊，注意身体健康。
+所以说真舒服，越是在这个时候我越想，上天是公平的，用了美国大选，用了整个的种族大屠杀、反人类罪，新中国联邦爆料革命、香港事件、威胁台湾，唤醒世界的人民，你不得不说上天的安排，都是如此的美好和美妙。但凡有真正信仰的人，都会知道上天在干什么，是吧？因为上天在惩罚恶人，没有人可以挡得住，没有人，没有人。
 
-现在为七十五亿的全世界人民、十四亿新中国联邦的公民们（郭先生把两个拳击手套放在前胸，哎呀，这整得，这整得，行了）新中国联邦、十四亿新中国联邦同胞、香港同胞、台湾同胞、西藏同胞，祝元宵节快乐，祈福！呵呵，这有点搞笑啊，这啥意思？（郭先生自己摸自己胸前的两个拳击手套），哎哟我的妈呀！呵呵。啪啪啪（击掌三下）！
+So, aiya, so comfy! At this moment, I believe more and more that God is fair. He has used the US election, the genocide, the crimes against humanity, the New Federal State of China (NFSC) and Whistleblower Movement (WM), the Hong Kong crisis and the [CCP’s] threatening of Taiwan to wake up people all around the world. You have to say that God’s plan has always been wonderful and beautiful. Anyone who has got true belief would understand what God is doing, right? That’s because God is punishing the wicked, and nobody can stand in His way, no one, not a single person.
 
-耶——，俺去吃饭饭去啦，不跟恁玩啦，再见，元宵节快乐！呵呵。
+这就是我们要相信的，我们人类之外的一种力量。美国人不但能上月球，也不仅仅能上火星，我相信会找到我们人类上所需要的另外一种力量，任何独裁和邪恶都将消失殆尽。没有任何所谓的侥幸和怀疑。人类永远是往前走的，邪恶一定会被战胜，正义一定像阳光和光明的力量一样存在人间。就像这火一样，不管你多强大，都能把你烧得灰飞弹尽，好啊，真好啊。
 
-接上文——
+This is what we shall believe in – there exists a force higher than human beings. The Americans not only can land on the moon and Mars, but also, I believe, will find another type of force that our human beings need. Any autocracies and evilness will be vanishing, and there is no room for being opportunistic or doubtful. Human beings are always moving forward. The wicked will surely be defeated, and justice will definitely prevail in this world like the sunlight. Just like this fire, no matter how big and strong you are, you will be burnt down and disappear in smoke and ash. Wonderful! So wonderful!
 
-[郭先生0226I中共要争取时间把美国干趴下然后称霸世界](https://gnews.org/zh-hans/935895/)
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-[郭先生0226II中共要打台湾并且让美国没有能力掺和台湾](https://gnews.org/zh-hans/935927/)
+视频来源：[https://gtv.org/getter/60395d191958515902379c61](https://gtv.org/getter/60395d191958515902379c61)
 
-[郭先生0226III人类经济充满泡沫而中共病毒正在摧毁世界金融](https://gnews.org/zh-hans/935950/)
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/934779/](https://gnews.org/zh-hans/934779/)
 
-[郭先生0226IV习以他爹的正统谋大位以人民的名义打台湾](https://gnews.org/zh-hans/935978/)
-
-[郭先生0226V台湾人妄想做驼鸟苛安一世无人看透中共本质](https://gnews.org/zh-hans/936084/)
-
-[郭先生0226VI中共江习斗必灭一派由新中国联邦来打扫战场](https://gnews.org/zh-hans/936258/)
-
-[郭先生0226VII如果知道七哥昨天和前天发生的事大家都回家喝酒去](https://gnews.org/zh-hans/936948/)
-
-[郭先生0226VIII拳头够硬钱够多意志够坚定再加上正义想不赢都不行](https://gnews.org/zh-hans/936988/)
-
-\*\*\*\*\*\*\*全文完，下次直播再见\*\*\*\*\*\*\*
+翻译：【guocamole(文金欠)】校对：【Isaiah4031】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
 0

@@ -1,47 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共匪在台湾是真要有动作
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/936651/)
+## 从美中互设联络处的细节看中共灭美的决心及泯灭人性
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/936696/)
 
-新闻简述：在2021年2月4日的盖特视频中，郭先生劝说台湾战友离开台湾，因为据中共内部战友的情报，“共匪在台湾是真要有动作”。但是同时他也说：“说实在话，共匪一打台湾，共匪就结束了。”
+**作者：**帕丁顿 **校对/发稿人:** Ting Guo
 
-**共匪在台湾是真要有动作**
+**美国堕落主要是三个原因：**
 
-**The CCP Is Seriously Considering Taking Actions in Taiwan**
+1. 在舒适环境生活了几代人，完全不知道，不理解，不相信中共国的邪恶；
+2. 宗教对政治的不关心;
+3. 有宗教信仰的人减少。
 
-就是台湾的战友，我的大牛兄弟，我的台湾巴黎妹妹，我们的台湾大帅哥，大美女，你们夫妻两个真的是，跟咱们战友都传达传达，今天刚刚我获得更多信息呀，这是共匪在台湾是真要有动作啊，不行台湾巴黎赶快来美国吧，只要能来，带着咱们战友，七哥保证你们，住的，吃的，工作，就是每年的工资，绝不亚于你在台湾的，只能比那多，不会比那少，七哥保证。
 
-It is about my fellow fighters in Taiwan, like my brother Da-Niu, my sister Taiwan-Paris, a handsome guy, and a stunner. You couple really need to inform all our fellow fighters in Taiwan. I just received more information today: the CCP is seriously considering taking actions in Taiwan. If possible, come to the United States quickly, along with our fellow fighters. As long as you can get here, I will guarantee your accommodations, food, and jobs. Your annual salary will be no less than what you make in Taiwan. It can only be more, not less. I promise.
+金无怠1944年被周恩来发展为中共间谍后，美国对中共的政策是较之以前更加灾难性的。除了真刀真枪开干，老美和中共打交道就没佔过便宜。金无怠1970年10月向中国传送尼克松打算跟中共建交的机密情报后，中共已经打算在美国的这个自认的巨型现代特洛伊城堡里建造木马了。
 
-吃的不比台湾差，这你放心，中餐就不行了，七哥吃啥就让你吃啥，这点保证。真的要想想了，台湾的兄弟姐妹们你们真的要想想了，看来啊真是要有事啊，哎呀。说实在话，共匪一打台湾，共匪就结束了。但是想起台湾我的大牛兄弟，巴黎妹妹，还有那么多兄弟姐妹在那，真是担心，还有很多朋友啊，我那李祖原大师虽然是因为懦弱把我给抛弃了，但是他公司李祖源事务所的人，还有李大师我还是很惦记他呀，还有很多兄弟呀，我还是很惦记的呀。
+1973年，被毛泽东禁止动手术治疗膀胱癌，忍受病痛折磨的周恩来批了900万美元（1973年100美元兑换198.94人民币，一斤猪肉0.80元人民币，学徒工月工资18元人民币，更要命的是，中华人民共和国1973年外汇储备是-8000万美元）给第一任中共驻美联络处主任黄镇在美国买房子，有400多个房间，另外有两处官邸，官邸旁还有三座花园小楼，而同一时期美国建造驻中共国联络处花费150万美元（设计，建造，装修，家具，通讯设备，保安设备，工资，其它非经常性项目），当然少不了磨磨叽叽各类审批讨论才获得这项预算，哪像中共国周恩来一个签字即可。
 
-The food will be no worse than Taiwan if not considering Chinese cuisine, so no worries about this. You will eat as well as I do, which is guaranteed. It is really time for you to think about this. Brothers and sisters in Taiwan, you really need to think about it. It seems that something is really going to happen. Truly I tell you, once the communist bandits attack Taiwan, the CCP will be finished. However, it worries me when thinking of my brother Da-Niu, my sister Taiwan-Paris, and so many brothers and sisters in Taiwan. There are also many other friends in Taiwan, like Master Chu-Yuan Lee. Although he abandoned me because of his cowardice, I am still concerned about him and the staff in his firm – the C.Y. Lee & Partners. There are many brothers out there that I still care about.
+1990年营业的SinoVision《美国中文电视》会转播CCTV4，当我知道美国境内可以播放中共国电视台，而中共国绝对不允许其它任何国家电视台登陆，大为不解，老美现在怎么这么蠢？现在明白了，老美跟共党正式开始接触就不对等。有了这么多不动产，中共就有了名正言顺的美国“井冈山”根据地。黄镇担任联络处主任四年半时间里，主要精力是用在了应付共产党这架绞肉机内斗，但不耽误中共亡美之心。
 
-这几天发生了各种迹象，内部战友的各种情报，台湾真是不妙，真是不妙，如果是共产党在台湾这一动手，生灵涂炭，血流成河呀。这就是疯狂啊。中国历史上的政治斗争，绝大多数都是朝廷的内斗，现在可悲的是几千年后，中共中国人要不打中国人，只杀中国人的故事一次一次重演，天天说中国人不打中国人，在香港把中国同胞，香港同胞，全扔海里去了，扔海里还得轮了强奸了，掏肛。成天说对着台湾喊，中国人不打中国人，天天吓得半死。这回可能真的是不打台湾人，是杀台湾。
+金无怠是1944年，被周恩来发展为特工。在韩战，越战，冷战中为中共提供了大量无价的情报，其地位是无人能比。金无怠被抓后狱中自杀，中国政府始终不承认他。当时中共外交部发言人李肇星在北京新闻发布会上说，“金无怠事件是美国反华势力编造的，中国政府爱好和平，从来没有向美国派遣过任何间谍”，“我们同那个人没有关係，美国方面的指控毫无根据。”
 
-In the past few days, there were all kinds of signs and all kinds of intelligence from fellow fighters inside the CCP, which are really not good for Taiwan, really not good. If the CCP indeed attacks Taiwan, there will be mass casualties and a lot of blood will be shed. This is insane. The vast majority of the political struggles in Chinese history have been internal strifes in the imperial court. Sadly, thousands of years later, the CCP’s story of “Chinese do not fight Chinese, only kill Chinese” has been a recurring theme. The CCP says that the Chinese do not oppose Chinese on a daily basis, but in Hong Kong, it threw many Chinese and Hong Kong compatriots into the ocean after gang-raping them and humiliating them. The CCP always propagandized to Taiwanese that Chinese people do not fight Chinese, whereas the Taiwanese are scared half to death every day. This time they may not fight Taiwanese, but to kill Taiwanese.
+被捕后，燕京大学法学系新闻专业毕业的金无怠在牢裡说：「至少要做给世界看，是不是？人员出了事情，结果，好，就一句『我根本不理』。这从人情上说不过去⋯⋯这个国家不负责任，不会永远不负责任，对不对？」。他老婆周谨予， 按照探监后得到的信息，到香港银行去取专门接收中共汇款的账户款，到了银行才知道，金无怠被抓，中共立刻冻结了账户。
 
-你说咋弄？这真没办法，这流氓土匪，七哥要是有本事，如探囊取物一样，就把他给捏死在中南坑这些老杂毛，七哥马上就干哪，是吧？现在七哥是干着急啊，担心哪。但是刚刚我在运动的时候，咱们内部战友说，让台湾的战友能离开台湾就离开吧，弄得我心里戈登戈登的，所以说赶快拿起来手机录一段，盖特一下子。哎呀，兄弟姐妹们，共产党真疯了，我就很难想象，连猪都不如的智商几个老杂毛，想统治世界？这到底是世界要灭他？还是他自己要灭自己？不管谁要灭他，他能不能少祸害这些老百姓呢？没法弄，没法弄，兄弟姐妹们。
+金无怠指望周谨予见邓小平，请邓给列根总统说情，亦被周和朋友拒绝。直到现在中共也不承认金无怠，北京的墓碑没有立碑时间，美国的墓碑也很不出名。笔者的朋友专门雇了退休警察才找到了金无怠墓地拍了照片，网上根本找不到。美国的墓碑也没有立碑时间。他祖上是驻守广东的清兵，他受中华民国教育，在国军任职多年，为什么要帮共产党，是不是痛恨国民党推翻了大清国啊？
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Screenshot_20210227_225003.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/02/Screenshot_20210227_225023.jpg)
+金无怠给中共的情报价值远在佐尔格带给苏联的情报之上，苏联在佐尔格死后二十年的1964年认了这个英雄，金无怠死了35年却还是黑户。佐尔格生在阿塞拜疆，爹是德国人，娘是俄国人，在德国入伍，后加入苏联国籍。算是遵循共产主义理念—工人阶级无祖国。金无怠祖籍广东南海，出生于北京，后去日本工作，1964年入美国籍。有人说他好赌好色，有人说赌是为了洗钱。他的动机有可能是“家国情怀”加报国民党推翻大清国之仇。
 
-What can you say? There is no way to deal with these rogue bandits! If I had magical powers, I would have crushed those old bastards of the CCP who live in the Zhongnan Pit in no time, right? But now I can do nothing but be anxious and worried. A moment ago, while I was working out, a friend inside the CCP told me to ask our fellow fighters leave Taiwan if they can. These words are disturbing to me, so I quickly picked up my phone and recorded a Getter video. Aiya, brothers and sisters, the CCP is really crazy! I can’t imagine that those old bastards who are less intelligent than pigs want to rule the world?  Is the world trying to destroy them? Or are they destroying themselves? No matter who wants to destroy them, can they do less harm to the old hundred names? Well, it’s absurd, brothers and sisters.
+美国人，西方人，他们没有家国情怀，理解不了受虐狂绞肉机系统里中共个体普遍的心态。安逸的生活久了，对来世，天堂的向往就越来越弱。西方人会觉得现在就在天堂里，导致邪恶的共产党势力迅速的在40多年占领了西方意识形态。“帝国主义亡我之心不死”我们每个中国人听了50年，西方人也认为中共一直在防守，给中共骗了50年，现在才开始睁开眼睛。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+我非常赞同蒋经国的三不政策，曾经给台湾带来长期和平环境，有数据说话，从1951-1998年之间，台湾没有一起通共间谍案。之前之后层出不穷。不理睬就可以消灭它。和中共脱钩，共匪就无计可施，共匪就立刻死翘翘。跟随爆料革命，定能灭掉这个人类历史上最大的犯罪集团！
 
-视频来源：[https://gtv.org/getter/601ca75ff5b9e26ca9d841e2](https://gtv.org/getter/601ca75ff5b9e26ca9d841e2) (4:59-8:40)
+**（免责声明：本文的简评只代表作者个人观点，跟GNEWS平台无关。）**
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/880326/](https://gnews.org/zh-hans/880326/)
+**资料来源：**
 
-参考链接：[https://gnews.org/902785/](https://gnews.org/902785/)
+1. **尹家民著《新中国外交史上的重要人物之一黃镇辞职风波》2300 Connecticut Avenue NW. Washington D.C. 20008, telephone 202 797 90291**
+2. **《Second Supplemental Appropriations for Fiscal Year 1973》第1362****页**
 
-* * *
 
-翻译：【rainbow】校对：【Isaiah4031】【BruhM】字幕：【奔腾的长江】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+
 
 0
