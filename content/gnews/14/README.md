@@ -1,32 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国巴里奇博士早在2019年12月就获得中共病毒候选疫苗
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/938570/)
+## 抖音将支付9200万美元以了结收集和共享用户数据的诉讼
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/938666/)
 
-加拿大多伦多枫叶农场 ctt
-![]()![](https://gnews.org/wp-content/uploads/2021/02/naturalnews.com_-3.jpg)*图片来源：naturalnews.com*
-据门户专家（Gateway Pundit）2月27日报道，福奇 (Fauci) 和拉尔夫-巴里奇 (Ralph Baric)很可能在西方公布中共病毒之前，就知道中共病毒在武汉泄露，并开始研究中共病毒疫苗。所以莫德纳（Moderna）疫苗能够很快进行人体试验。
+新闻来源：《布赖特巴特（Breitbart）》| 作者：卢卡斯·诺兰（LUCAS NOLAN | 发布时间：2021年2月26日
 
-2020年4月9日，门户专家是第一个报道中共病毒泄漏事件的媒体，他们怀疑泄漏的中共病毒来自武汉病毒学研究所。 石正丽是2014年与美国医生联合研究中共病毒项目的成员，该项目因风险太大被美国土安全部关闭。
+翻译/简评：随波逐流 | 校对/审核：万人往 | Page：Daoiii
 
-在美国研究项目被关闭后，石正丽在武汉继续进行冠状病毒研究。石正丽和巴里奇博士在同一团队，他们在2015年的《自然医学》杂志上发表了一篇文章。在文中，他们讨论了蝙蝠冠状病毒。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/gatewaypundit.com_.jpg)*图片来源：Thegatewaypundit.com*
-在美国的工作停止后，中共国继续推进这个项目，在武汉病毒学中心进行研发。从石正丽的论文和简历中可以看出，他们在实验室里成功地分离出了病毒，并积极地进行物种对物种传播的实验。
+[!\[\]()!\[\](https://spark.adobe.com/page/1PEM5pocRhs1T/images/7e92ec0f-d551-4f4e-9b8a-744e4f69cd9e.jpg?asset_id=13354f1f-98e1-4bc9-a58e-572ef86a147e&amp;img_etag=%2224c94c616ae76fa3f8809791fbdce2ec%22&amp;size=1024)](https://spark.adobe.com/page/1PEM5pocRhs1T/images/7e92ec0f-d551-4f4e-9b8a-744e4f69cd9e.jpg?asset_id=13354f1f-98e1-4bc9-a58e-572ef86a147e&amp;img_etag=%2224c94c616ae76fa3f8809791fbdce2ec%22&amp;size=1024)
 
-今天，为揭开中共病毒真相做出很大贡献的劳伦斯-塞林博士报告，2019年12月12日，拉尔夫-巴里奇博士签署了一份协议，他将获得 “由美国国家过敏和传染病研究所和莫德纳共同开发和拥有的mRNA中共病毒候选疫苗”。[【1】](https://twitter.com/LawrenceSellin/status/1365518656998936579?s=20)
-![]()![](https://gnews.org/wp-content/uploads/2021/02/twitter1.jpg)*图片来源：Twitter.com*
-在2019年12月12日, 巴里奇就被定为测试mRNA疫苗疗效的人选。这告诉我们，福西和巴里奇医生可能已经知道中共国发生的事情，福奇和莫德纳很可能在西方公布中共病毒之前就在研究中共病毒疫苗。福奇和巴里奇是否知道中共病毒被释放，他们是什么时候知道的？ 这很耐人寻味！
+***简评：***
 
-评：
+全国公共广播电台（NPR）报道称，中共国拥有的应用程序抖音已同意支付9200万美元以了结数十起诉讼。这些诉讼指控称，这家流行的视频共享应用程序未经用户同意，大肆收集了用户的个人数据，包括面部识别数据，并与第三方共享了这些数据，第三方包括其它中共国组织。本案律师称其为历史上最大的与隐私相关的支出之一。律师称，此次诉讼和解不仅为抖音用户提供了补偿，也要确保抖音将尊重用户的隐私权。
 
-中共一直在隐瞒病毒来源真相，而巴里奇博士在2019年12月就开始研究中共病毒疫苗，难道他早就知道要发生疫情？他是怎么知道的？中共与这些医药巨头是什么关系？真是细思极恐！
+这一案例说明，中共国拥有的社交媒体看似无害，也有很愉快的用户体验，但令人不安的数据收集、存储和披露随时可能会在后台发生，用户毫无隐私可言。中共通过网络平台收集用户数据信息的现象到处存在，抖音不是唯一一家。美国抖音的诉讼案应该只是一个开始，为今后的诉讼开了一个很好的先例。中共在美国及世界各地的抖音、腾讯等社交媒体平台，将不可避免面对类似的法律诉讼问题，也绝不仅仅是罚款可以了结的，有可能会完全被禁止使用。
 
-[原文链接](https://www.thegatewaypundit.com/2021/02/huge-exclusive-dr-baric-reviewing-modernas-dr-faucis-coronavirus-vaccine-december-2019-know/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
+***原文翻译：***
 
-* * *
+## 抖音将支付9200万美元解决其用户隐私诉讼
 
-校对 文锦
-发稿 云起时
+[!\[\]()!\[\](https://spark.adobe.com/page/1PEM5pocRhs1T/images/e906df6f-49b1-40db-b094-3a0041d19c6a.png?asset_id=24745636-0acd-43fa-98b4-11d55e814a4c&amp;img_etag=%22c15657643124654c013ff3f6eb9cdd18%22&amp;size=2560)](https://spark.adobe.com/page/1PEM5pocRhs1T/images/e906df6f-49b1-40db-b094-3a0041d19c6a.png?asset_id=24745636-0acd-43fa-98b4-11d55e814a4c&amp;img_etag=%22c15657643124654c013ff3f6eb9cdd18%22&amp;size=1024)路易克·维纳斯/法新社通过盖帝图片
+
+据报道，中共国拥有的社交媒体应用程序抖音（TikTok）已同意支付9200万美元，以了结数十起诉讼，这些诉讼指控该应用程序未经许可就从用户那里收集了个人数据，并与第三方（包括中共国的一些组织）共享了数据。专家称其为历史上最大的与隐私相关的支出之一。
+
+全国公共广播电台（NPR）报道称，中共国拥有的应用程序抖音已同意支付9200万美元以了结数十起诉讼，这些诉讼指控称，这家流行的视频共享应用程序未经用户同意即大肆收集了用户的个人数据，包括面部识别数据，并与第三方共享了这些数据，第三方包括其它中共国组织。
+
+拟议中的和解协议适用于美国8900万抖音用户，这些用户的个人数据已被追踪并出售给广告商，这违反了州和联邦法律。该案的律师称其为历史上最大的与隐私相关的支出之一。
+
+抖音用户的律师之一卡特里娜·卡洛尔（Katrina Carroll）表示：“首先，它为抖音用户提供了补偿，但同样重要的是，它确保抖音将尊重用户的隐私权。社交媒体似乎是无害的，但令人不安的数据收集、存储和披露可能会在幕后发生。”
+
+这项和解协议是主要代表未成年人提起的21项联邦诉讼的最终结果，这些诉讼指控该公司参与了“盗窃私人和个人可识别的抖音用户数据”。诉讼中的一些未成年人年龄只有六岁。
+
+抖音的一位发言人表示，尽管该公司不同意诉讼中的要求，但它做出该案的和解决定符合其最大利益。发言人说：“我们想将精力集中在为抖音社区建立安全愉快的体验上，而不是经历冗长的诉讼。”
+
+代表抖音用户的律师表示，该应用程序“秘密地吸取”了大量私人和个人可识别的用户数据，这些数据可能在未经许可的情况下被用于监视用户。
+
+原告律师聘用的调查员发现，抖音竭尽全力隐藏数据收集和共享行为。诉讼指出：“原告的调查表明，（抖音这样做）是通过混淆会暴露其不正当行为的源代码。”
+
+**🔗[原文链接](https://www.breitbart.com/tech/2021/02/26/tiktok-to-pay-92m-to-settle-lawsuit-over-user-privacy/)**
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/1PEM5pocRhs1T/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/1PEM5pocRhs1T/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
