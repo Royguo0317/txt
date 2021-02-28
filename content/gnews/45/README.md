@@ -1,25 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布莱克本议员: 大科技公司在助中共谋求全球主导地位
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/936391/)
+## 流行病学专家：中共病毒在未来一两年内会变成季节性病毒
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/936433/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
 编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-27_20-50-33.jpg)[salon.com](https://www.salon.com/2020/09/18/gop-sen-marsha-blackburn-reveals-she-doesnt-know-what-an-amendment-is--on-constitution-day_partner/)
-布赖特巴特新闻(Breitbart News)报道，在周五举行的保守派政治行动会议(CPAC)上，参议员玛莎·布莱克本(Marsha Blackburn)表示，大型科技公司正在协助中共国实现 “全球主导地位 “的使命。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-27_21-18-51.jpg)[techstartups.com](https://techstartups.com/2020/02/27/prepare-novel-coronavirus-covid-19-outbreak-symptoms/)
+莫斯科，2月27日。中共病毒感染可能会在未来一两年内成为季节性的，它已经具有这些特征。这是俄罗斯联邦消费者权益保护和公共服务部（Rospotrebnadzor）流行病学中央研究所负责临床和分析工作的副所长娜塔莉亚·本史尼侈娜亚（Natalia Pshenichna）向塔斯社报告的。
 
-“中共和大型科技公司的关系很好，”布莱克本说。“他们允许中国共产党传播所有信息。我找不到任何中共被审查、封锁或禁止的地方。”她强调说，“大型科技公司在协助中国共产党争取全球主导地位，我们将不得不反对它。”
+“这可能会在未来一、两年内发生，现在已经开始显现中共病毒的季节性感染特征。这一点，可以从2020年秋季的大幅上涨中得到印证。”她说。
 
-布莱克本表示，美国人要反击大型科技公司的主导地位和审查做法。“我们会告诉大型科技公司:‘在没有得到你（本人）的明确同意的情况下，不能跟踪、窃听、挖掘数据，或与第三方分享你的信息’”她说，“这是你的隐私。”
+她指出，季节性呼吸道感染的发病率上升通常发生在秋季和春季。“因此，从理论上讲，中共病毒疾病的发病率也可能在这些时间段增加。”本史尼侈娜亚说。
 
-布莱克本评论说，脸书首席执行官马克·扎克伯格曾经承认，脸书的行为“更像一个政府，而不是一家公司”。
+另外，据她介绍，中共病毒在湿度和温度较高的时候最容易传播，这与过渡季节相对应。
 
-这位田纳西州共和党人表示，她将努力取消第230条法律对大型科技公司的豁免权，并建议对大型科技公司的较小竞争对手提供保护，以便老牌科技巨头和较新的公司在一个更公平的环境中竞争。这是为了保护言论自由，对科技巨头关闭川普总统及其支持者社交账号和强迫关闭Paler平台的反击。
+本史尼侈娜亚说，即使在大多数人接种了中共病毒疫苗后，中共病毒感染率的激增也会持续数年。
+
+“即使大部分人都接种了疫苗，还是会有一些人容易被感染。包括因为有些人随着时间的推移，保护性抗体滴度下降。这种感染的流行传播将停止，但周期性的起伏可能会持续数年。”她说。
+
+本史尼侈娜亚解释说，2009年的甲型H1N1流感就出现了这种情况。她说，自2009年这种菌株引起的疫情以来，几年来每年都有大量猪流感爆发。“只是近几年来，这种病毒株引起的流感年登记病例有所下降。”专家强调。
+
+1月18日，俄罗斯各地区开始大规模接种《人造卫星-V》中共病毒疫苗。为了形成集体免疫力，必须对全国60%的成年人口接种疫苗。
 
 参考链接：
 
-[https://www.breitbart.com/politics/2021/02/26/marsha-blackburn-big-tech-aiding-and-abetting-chinas-push-global-dominance/](https://www.breitbart.com/politics/2021/02/26/marsha-blackburn-big-tech-aiding-and-abetting-chinas-push-global-dominance/)
+[https://tass.ru/obschestvo/10795753?utm\_source=twitter.com&utm\_medium=social&utm\_campaign=smm\_social\_share](https://tass.ru/obschestvo/10795753?utm_source=twitter.com&amp;utm_medium=social&amp;utm_campaign=smm_social_share)
 
 0

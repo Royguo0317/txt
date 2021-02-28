@@ -1,89 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 非法征税说明中国共产党是“汉奸”
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/936611/)
+## 共匪在台湾是真要有动作
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/936651/)
 
-作者： CPA Jim
-![]()![](https://gnews.org/wp-content/uploads/2021/02/image-226.png)
-2015年8月的《中南大学学报（社会科学版）》刊登的《孟德斯鸠的政治品德思想研究——以近代政治哲学中政治与道德关系为视角》引述了孟德斯鸠的观点：
+新闻简述：在2021年2月4日的盖特视频中，郭先生劝说台湾战友离开台湾，因为据中共内部战友的情报，“共匪在台湾是真要有动作”。但是同时他也说：“说实在话，共匪一打台湾，共匪就结束了。”
 
-“不同的政体有不同的原则，君主政体的原则是荣誉，专制政体的原则是恐怖，共和政体的原则是品德”，
+**共匪在台湾是真要有动作**
 
-“维持或支撑君主政体或专制政体，并不需要很多道义，但是在民主政体中道义却是必须的。……品德是能够支持该政府的唯一方式。”
+**The CCP Is Seriously Considering Taking Actions in Taiwan**
 
-“品德，在共和国里，是很简单的东西，就是爱共和国。”
+就是台湾的战友，我的大牛兄弟，我的台湾巴黎妹妹，我们的台湾大帅哥，大美女，你们夫妻两个真的是，跟咱们战友都传达传达，今天刚刚我获得更多信息呀，这是共匪在台湾是真要有动作啊，不行台湾巴黎赶快来美国吧，只要能来，带着咱们战友，七哥保证你们，住的，吃的，工作，就是每年的工资，绝不亚于你在台湾的，只能比那多，不会比那少，七哥保证。
 
-“在民主政治下， 爱共和国就是爱民主政治。爱民主政治就是爱平等”。
+It is about my fellow fighters in Taiwan, like my brother Da-Niu, my sister Taiwan-Paris, a handsome guy, and a stunner. You couple really need to inform all our fellow fighters in Taiwan. I just received more information today: the CCP is seriously considering taking actions in Taiwan. If possible, come to the United States quickly, along with our fellow fighters. As long as you can get here, I will guarantee your accommodations, food, and jobs. Your annual salary will be no less than what you make in Taiwan. It can only be more, not less. I promise.
 
-[i]从中华人民共和国这个字面意思上看，位于中华人民共和国理应是一个人民享有最高权力的共和国，即孟德斯鸠所属的民主政体共和国，那么在这样的国家爱共和国就是爱民主政治、爱平等，而不是爱党。
+吃的不比台湾差，这你放心，中餐就不行了，七哥吃啥就让你吃啥，这点保证。真的要想想了，台湾的兄弟姐妹们你们真的要想想了，看来啊真是要有事啊，哎呀。说实在话，共匪一打台湾，共匪就结束了。但是想起台湾我的大牛兄弟，巴黎妹妹，还有那么多兄弟姐妹在那，真是担心，还有很多朋友啊，我那李祖原大师虽然是因为懦弱把我给抛弃了，但是他公司李祖源事务所的人，还有李大师我还是很惦记他呀，还有很多兄弟呀，我还是很惦记的呀。
 
-但是在中共国，中共把无处不在的监控系统、特警、网警、及陆海空三军成为维持持其统治的主要方式。“枪杆子里出政权”的原则，已严重侵犯了民权，背叛了国家和人民，沦为维护少数人统治的工具。具体而言，中共国选举国家官员的计票、监票和宣布投票结果的过程从未公开现场直播。各政府部门的一把手的任命，也未经公开的人大问询过程，全部黑箱操作。如此非民选的官员，代表的是少数统治者的利益，是没有合法性去支配老百姓缴纳的税款，更无合法性在联合国、世界贸易组织等国际组织中代表中国。
+The food will be no worse than Taiwan if not considering Chinese cuisine, so no worries about this. You will eat as well as I do, which is guaranteed. It is really time for you to think about this. Brothers and sisters in Taiwan, you really need to think about it. It seems that something is really going to happen. Truly I tell you, once the communist bandits attack Taiwan, the CCP will be finished. However, it worries me when thinking of my brother Da-Niu, my sister Taiwan-Paris, and so many brothers and sisters in Taiwan. There are also many other friends in Taiwan, like Master Chu-Yuan Lee. Although he abandoned me because of his cowardice, I am still concerned about him and the staff in his firm – the C.Y. Lee & Partners. There are many brothers out there that I still care about.
 
-全国人大代表的产生过程多为领导内部指定，非民选，完全没有经过公开的候选人提名、投票、计票等过程。更未有与选区人民沟通纲领和政策主张。选民不知道谁是候选人，该人的政策主张，更不知道相关的选民登记日、投票日、计票日、监票安排。而这些被领导指定的所谓人大代表及其产生的所谓人大常委会委员就要投票决定中共国每年的财政预算、税法（比如企业所得税法、个人所得税法等），并授权中共国国务院制定税收条例。这导致在土地增值税、契税增值税、消费税等税种已经征收数十年，到现在为止增值税还没有完成全国人大立法。
+这几天发生了各种迹象，内部战友的各种情报，台湾真是不妙，真是不妙，如果是共产党在台湾这一动手，生灵涂炭，血流成河呀。这就是疯狂啊。中国历史上的政治斗争，绝大多数都是朝廷的内斗，现在可悲的是几千年后，中共中国人要不打中国人，只杀中国人的故事一次一次重演，天天说中国人不打中国人，在香港把中国同胞，香港同胞，全扔海里去了，扔海里还得轮了强奸了，掏肛。成天说对着台湾喊，中国人不打中国人，天天吓得半死。这回可能真的是不打台湾人，是杀台湾。
 
-**未经立法**** ****任意征税**
+In the past few days, there were all kinds of signs and all kinds of intelligence from fellow fighters inside the CCP, which are really not good for Taiwan, really not good. If the CCP indeed attacks Taiwan, there will be mass casualties and a lot of blood will be shed. This is insane. The vast majority of the political struggles in Chinese history have been internal strifes in the imperial court. Sadly, thousands of years later, the CCP’s story of “Chinese do not fight Chinese, only kill Chinese” has been a recurring theme. The CCP says that the Chinese do not oppose Chinese on a daily basis, but in Hong Kong, it threw many Chinese and Hong Kong compatriots into the ocean after gang-raping them and humiliating them. The CCP always propagandized to Taiwanese that Chinese people do not fight Chinese, whereas the Taiwanese are scared half to death every day. This time they may not fight Taiwanese, but to kill Taiwanese.
 
-[ii]请读者看看下面图片，结合第2条参考文献的链接，哪些税还没有完成一次由全国人大立法。不难看出中共国最大的税种增值税仍未能完成橡皮图章伪代表机构全国人大立法。
+你说咋弄？这真没办法，这流氓土匪，七哥要是有本事，如探囊取物一样，就把他给捏死在中南坑这些老杂毛，七哥马上就干哪，是吧？现在七哥是干着急啊，担心哪。但是刚刚我在运动的时候，咱们内部战友说，让台湾的战友能离开台湾就离开吧，弄得我心里戈登戈登的，所以说赶快拿起来手机录一段，盖特一下子。哎呀，兄弟姐妹们，共产党真疯了，我就很难想象，连猪都不如的智商几个老杂毛，想统治世界？这到底是世界要灭他？还是他自己要灭自己？不管谁要灭他，他能不能少祸害这些老百姓呢？没法弄，没法弄，兄弟姐妹们。
 
+What can you say? There is no way to deal with these rogue bandits! If I had magical powers, I would have crushed those old bastards of the CCP who live in the Zhongnan Pit in no time, right? But now I can do nothing but be anxious and worried. A moment ago, while I was working out, a friend inside the CCP told me to ask our fellow fighters leave Taiwan if they can. These words are disturbing to me, so I quickly picked up my phone and recorded a Getter video. Aiya, brothers and sisters, the CCP is really crazy! I can’t imagine that those old bastards who are less intelligent than pigs want to rule the world?  Is the world trying to destroy them? Or are they destroying themselves? No matter who wants to destroy them, can they do less harm to the old hundred names? Well, it’s absurd, brothers and sisters.
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/image-227.png)
-（图片来源：[https://m.21jingji.com/article/20170302/herald/a972bda94cc71d478f2f66e883116c36.html](https://m.21jingji.com/article/20170302/herald/a972bda94cc71d478f2f66e883116c36.html)）
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
+视频来源：[https://gtv.org/getter/601ca75ff5b9e26ca9d841e2](https://gtv.org/getter/601ca75ff5b9e26ca9d841e2) (4:59-8:40)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/image-228.png)
-（图片来源：[https://finance.sina.com.cn/china/gncj/2020-02-20/doc-iimxxstf2858997.shtml](https://finance.sina.com.cn/china/gncj/2020-02-20/doc-iimxxstf2858997.shtml)）
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/880326/](https://gnews.org/zh-hans/880326/)
 
-就这样，中共就依据这些甚至连其自己制定的“宪法”所规定的征税程序都违背的税法（税法包括税收相关法律、暂行条例、法规、规章等）征收税款。需要说明的是，中共国的税分为显性税和隐形税，上面说的是显性税，隐形税是纳税人为了办事发生的潜规则成本及中共专制制度带来的显性税以外的成本，例如为了访问外国网站购买VPN的成本或因防火墙未能访问外国网站获得真实客观信息而导致的损失。在实际征收显性税过程中，中共各级官员并不会遵从这些所谓税法（他们认为只有书呆子才会相信），而是为了完成不切实的目标、挟私报复、无限膨胀的私欲等。
-
-中共国人大常委会所谓选出的审计长主管的审计署多次发现过征收过头税问题，并在审计公告中说被审计单位做出了整改，但是过头税问题仍然在重复发生，说明非民主选举产生的审计长就是一个忽悠纳税人的玩偶角色，审计署的一个科员就有好几十处房产。
-
-从上面可以看出，中共国全国人大未经中国人民一人一票民主选举产生，由此产生的全国人大及国务院无权制定税法，因此，中共根本没有经过中国纳税人的同意征税。
-
-中共把这种未经纳税人同意擅自征税的模式运用到了香港。据BBC中文网报道，由于香港的选举制度并非遵循民主国家普遍认同的普选原则，建制派常年占据立法会多数席位无法撼动。[i]实际上就是香港纳税人在立法会中无足够的自己的代表，多数是中共的代理人，这就为中共利用香港立法会订立、修改香港税法埋下了伏笔，为未经香港纳税人同意征税打开了方便大门。最近看到了《金融时报》报道，陈茂波将港股交易印花税税率从0.1%增加到0.13%。[ii]
-
-另据BBC中文网报道，香港财政司司长陈茂波预期，政府仍须连续四年编列赤字预算。中共国于去年6月底颁布实施《香港国安法》，今年的预算案文件中首次出现80亿港元维护国家安全开支，但没有说明开销明细，引来舆论质疑。评论人士向BBC中文记者指出，这让中国大陆官场文化在香港国安开支上体现出来。[iii]从此可以推论，上面的印花税增税很大可能用于增加国安开支。中共未经香港纳税人代表同意从香港纳税人征税，用所征得的税款来实施国安法，迫害香港纳税人。
-
-那么由通过选举舞弊、指定等方式产生所谓的代表组成的立法机关全国人大及常委会、国务院或香港特别行政区政府？再由这些本质上的中共傀儡强行征税属于什么行为呢？历史上英国人和美国人分别给了答案。
-
-**征税权**
-
-1215年英王签署《大宪章》，确定除非得到普遍赞同，不得征税。
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/02/image-229.png)
-（图片来源：[https://slidesplayer.com/slide/11774112/](https://slidesplayer.com/slide/11774112/)）
-
-根据纽约时报中文网2013年4月9日发表的萧瀚缩写的一篇文章所述，1625年，查理一世继承英国王位后，与议会围绕征税权进行斗争，国王打算未经议会同意征税，最后1649年查理一世被以叛国罪送上断头台；1765年，英国征收北美殖民地的印花税，遭到麻省等北美殖民地“无代表不纳税”原则的严厉抵制，经过一连串事件，使得双方走向战争，最终导致美国独立。该文章还写道，
-
-“征税权是宪政制度最重要的基石之一，因为税收是政府开支的来源。中共政权作为一个没有合法性的政权，并不仅仅在于它建政的过程是通过暴力而不是通过民选，更在于建政以后它从人民手中掠夺的巨额财富，没有一分钱是经过人民同意的——没有相应的代议制民选机构，即使有人甘愿给它送钱也没有合法渠道。”
-
-“愚民政策给了统治者中共以巨大的统治红利，征税权合法性问题被活埋便是其中之一。直到现在，别说非法律或宪法科班学人，就是一些因追求自由民主而成名的极著名学者教授都会在征税这个问题上翻船——为中共官府征税出谋划策，每年两会期间这样的言论尤其多如过江之鲫”。[1]
-
-中共国立法机关从无纳税人的代表，只是中共利用的投票傀儡，用以强行征税。中共为了捍卫这种非法征税权，采取了持续的战争行为，用强征的税款维护其统治，如：镇压八九六四运动、反送中、执行香港国安法、建立覆盖全国的面部识别监控系统、防火墙，更通过中共病毒当代基因武器，将超限战争扩大到全世界，将中国大陆的选举舞弊方式用于操纵美国选举。侵犯美国人的征税权，使得这种非法征税权从中国大陆、香港扩张到全世界，属于真正意义上的叛国。
-
-美国把坚决捍卫选举程序公正的人叫爱国者（patriot），参与选举舞弊的人叫叛国者（traitor），拥护《新中国联邦宣言》一人一票民主制度的爆料革命战友才是真正的爱国者，中共才是叛国的“汉奸”，中共叛国的下场就是被送上远东国际军事法庭，接受全世界爱国者的审判。期待更多中国人成为真正的爱国者。
+参考链接：[https://gnews.org/902785/](https://gnews.org/902785/)
 
 * * *
 
-[1] 西方国家对征税权问题的解决. [https://cn.nytimes.com/china/20130409/cc09xiaohan/](https://cn.nytimes.com/china/20130409/cc09xiaohan/)
-
-* * *
-
-[i] 建制派常年控制立法会. [https://www.bbc.com/zhongwen/simp/chinese-news-53261712](https://www.bbc.com/zhongwen/simp/chinese-news-53261712)
-
-[ii] 香港提高股票交易印花税. https://www.ft.com/content/aa27d3bc-9d0c-4e11-bfc2-3dfe5deda130
-
-[iii] 国安支出80亿港元. https://www.bbc.com/zhongwen/simp/business-56179378
-
-* * *
-
-参考文献：
-
-[i] 孟德斯鸠政治品德思想研究. [http://www.zndxsk.com.cn/upfile/soft/2015/04\_skb/21-p0145-15skyd7.pdf](http://www.zndxsk.com.cn/upfile/soft/2015/04_skb/21-p0145-15skyd7.pdf)
-
-[ii] 2020年中共国几大税种的立法进度. [https://finance.sina.com.cn/roll/2020-06-22/doc-iirczymk8258333.shtml](https://finance.sina.com.cn/roll/2020-06-22/doc-iirczymk8258333.shtml)
-
-
+翻译：【rainbow】校对：【Isaiah4031】【BruhM】字幕：【奔腾的长江】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
 0

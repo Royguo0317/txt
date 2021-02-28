@@ -1,17 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年2月27日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/936362/)
+## 西班牙延长非必要旅行临时限制至3月31日
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/936388/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
+- 编辑：Victor Torres
+- 翻译：gokuabuela
+- 发稿：Ranting
 
-2月27日：这个视频中的老师！就是共产主义的邪恶！阶级斗争的结果，我们所有的中国的草根……都是这个邪恶的阶级斗争的牺牲品…不灭共！任何人都没有尊严和安全！
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
+**西班牙2021年2月27日电/西喜社——**据ABC新闻2月26日报道，由于中共病毒引发的健康危机，西班牙出于公共秩序和公共卫生的考虑，于本周五开始，对第三国前往欧盟及相关申根国家的非必要旅行的临时限制，延长至3月31日。
 
-[【2021年2月27日】文贵先生盖特原文](https://gtv.org/getter/603a7bd6195851590237e51d)
+这项命令发布于“国家官方公报”( BOE), 而在此之前，内政部长延长了于1月28日结束的限令至2月28日。现在，此限令再次延长一个月，至3月31日。
 
-**喜联盟Gnews编辑部**
+**新闻来源：[ABC新闻](https://www.abc.es/sociedad/abci-coronavirus-espana-directo-brasil-supera-250000-muertes-coronavirus-202102260617_directo.html#vca=mod-lo-mas-p4&amp;vmc=leido&amp;vso=sociedad&amp;vli=noticia.foto.sociedad&amp;vtm_loMas=si)**
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
 
 0
