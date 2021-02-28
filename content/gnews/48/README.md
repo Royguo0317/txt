@@ -1,31 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】2/27/2021文贵盖特：七哥边工作边在G-TV看大家的直播，战友们在G-TV上直播的质量大大提高
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/937059/)
+## 人类永远是往前走的，邪恶一定会被战胜
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/937215/)
 
-制作： 【彩虹桥】
+新闻简述：在2021年2月26日的盖特视频中，郭先生背靠着火炉，面对着大雪，感慨万千：“上天是公平的，用了美国大选，用了整个的种族大屠杀、反人类罪，新中国联邦爆料革命、香港事件、威胁台湾，唤醒世界的人民，你不得不说上天的安排，都是如此的美好和美妙。”
+[下载字幕](https://gnews.org/wp-content/uploads/2021/02/Miles_20210226-Getter1.srt.txt)
+**人类永远是往前走的，邪恶一定会被战胜**
 
+**Human Beings Are Always Moving Forward; The Wicked Will Surely Be Defeated**
 
+熊熊的烈火，真棒啊，然后你看外面的大雪，然后这里是熊熊的烈火，欲望之火。
 
-尊敬的战友们好！我今天是看了..同时开着视频会，这边办公，这边看着GTV，里面还有一个会议系统，也在开着大会，同时四方面工作，还能跟战友们保持沟通，还能给战友们点赞，这就是七哥，战友们你们啥时候能学会七哥这个工作方式的时候，你就不一样了，你就真的不一样了。
+Blazing fire, awesome! And you look at the heavy snow outside while the flame, the flame of lust, is burning here. Ho-ho!
 
-我刚才看了凤凰农场，挺郭灭共司令部，咱们战友，还有加州的大海，大海战友，然后在图桑，九指妖门口去要债，我心里面很不舒服，又佩服他们的勇敢，但是心里面还真是不舒服，因为这个被骗的真的是，都是七哥哥背书所导致的结果，非常不舒服，非常的抱歉！非常抱歉！
+真舒服，喝杯茶，吃个元宵，熊熊的烈火，你说想啥呀？饱暖思淫欲啊，人家在那玩接班人那，咱也玩不了什么接班人，只能玩火了，太棒了兄弟姐妹们，美好的生活。
 
-然后我同时要看GTV，然后刚才看了老顽童，然后又看到了咱们的现在的小福利和小Sara在做直播，因为GTV每周都有个新版本，那么这些新版本的技术上很大的提升，大家能感受到，画面效果真的是不一样的，真的是不一样的，但是你看这边，小福利那边，镜头还有灯光没好，显得就模糊，但是小Sara那块就比较清楚，就是灯光控制好了，那么图桑那个画面是最美的，清晰度是最好的，因为那块亮，阳光亮，我去过那里我知道，说灯光非常的重要，我们音频同步，有很大的提升，但是还不足够。
+Aiya, so comfy! After a cup of tea and some glutinous rice balls, sitting by the blazing fire, what’s the next thing that comes in your mind? [A Chinese slang:] When one is well-fed and well-clad, he or she will seek sexual gratification! They [those old bastards in the Zhongnan Pit] are fighting each other for the successorship, while that’s not something that we can play with. We can only play with fire! Ho-ho! Fantastic, brothers and sisters. What a beautiful life!
 
-另外老顽童，刚才我看到他用Skype，画面整得很明白，但是声音没整好，所以咱们的GTV虽然每天在进步，在提升，但是我们确实还有很大的空间，但是确实不简单，这已经是技术上的奇迹了，就是你看美国总统川普，他现在在加州搞的这个大会，事实上他们是很想在我们GTV上搞的，咨询了我们，咱做不到，咱说实在话，咱GTV撑不住，但是未来会撑住的，兄弟姐妹们，一定会撑住的。这个是需要一个过程，需要耐心。
+我在这边看，来自于世界各地的，关于以毒灭共的、以钱灭共的各种信息，感慨万千。共产党真是完球蛋了，它会像后面的木头一样，给烈火彻底的烧灭，彻底的消灭。这是没有任何悬念的，对吧？兄弟姐妹们？
 
-另外一个就是我在看到很多战友同时看到给我发信息，给我说，问的那些问题，我想给战友们说，很多战友们真是一定要记住，咱们在共产党那个地方出来的吧，咱老把投资当成赌博，啥事儿是今天进去明天出来，就像在赌场一样，一押，一翻两瞪眼，要么是21点，要么是17点，都想出21点，然后事实上99%的人都会爆掉，就是那一拍两瞪眼的，那叫赌博，那不叫投资，我非常非常非常严肃认真的告诉兄弟姐妹们，你们一定要记住，在你们投资也好，G系列、G-Coin也好，GTV也好，一定要想到兄弟姐妹们，他需要时间，它叫投资。没有时间的绝对都叫投机，你在一翻两个眼那叫赌博。千万千万别糊弄自己。
+While staying here, I have been reading all sorts of information on taking down the CCP by the virus and financial activities from all over the world, and I’ve got all sorts of feelings welled up in my mind. The CCP is truly going to have their balls destroyed. Just like this piece of wood back there, it will be burnt completely from top to the ground. There is no doubt in that, right? Brothers and sisters?
 
-另外一个，人生嘛，咱爆料革命说着说着就快四年了，是吧？如果四年前坚持到今天的战友们，你的一生中最快乐的可能就是这四年，但是要四个小时搞定的事你早忘了，那价值也是不一样的。所以说千万千万兄弟姐妹们，量力而行投资，赌博死路一条，那么现在国内的现在所有的那些挣快钱、挣大钱，除了腐败、抢劫、受贿，还有一个就是所谓的跟共产党同流合污，在进入市场上，搞擀面杖子经济，造假，就是欺骗那叫犯罪，既不是投机，也不是投资，连赌博都不是了，那叫犯罪。千万别羡慕那些所谓挣快钱，你要看到贼挨打的时候，别看贼吃饭的时候，兄弟姐妹们，这是非常非常重要的。
+所以说真舒服，越是在这个时候我越想，上天是公平的，用了美国大选，用了整个的种族大屠杀、反人类罪，新中国联邦爆料革命、香港事件、威胁台湾，唤醒世界的人民，你不得不说上天的安排，都是如此的美好和美妙。但凡有真正信仰的人，都会知道上天在干什么，是吧？因为上天在惩罚恶人，没有人可以挡得住，没有人，没有人。
 
-另外一个兄弟姐妹们一定要看到，整个这个世界上现在，包括美国和欧洲成熟的经济市场上，你看看几个证券公司一赔就几十亿美元，包括头一段所谓押期货的，多少人啊倾家荡产，一定要记住，一个挣钱的背后里面，可能有百个、千个、万个，百万的人陪去了钱，千万千万不要有任何投机心理，像昨天我们开GTV会的时候，有的战友问到我七哥，GTV什么时候上市啊？我当时回答他是，GTV上市大概需要5年时间，这是计划，已经花掉一年了，但还有四年时间，但是说实在话，我认为GTV三年也有可能上市，也有可能三年以后，但是它取决于我们整个灭共的事业，还整个取决于我们整个GTV的运作，还有一个，我们需要的是投资者，不需要的是投机者，但是就像今天你们看到了一样，去年的4月份和今天..这个料实在是太好了，但是这快儿一挂给挂出褶子来了。
+So, aiya, so comfy! At this moment, I believe more and more that God is fair. He has used the US election, the genocide, the crimes against humanity, the New Federal State of China (NFSC) and Whistleblower Movement (WM), the Hong Kong crisis and the [CCP’s] threatening of Taiwan to wake up people all around the world. You have to say that God’s plan has always been wonderful and beautiful. Anyone who has got true belief would understand what God is doing, right? That’s because God is punishing the wicked, and nobody can stand in His way, no one, not a single person.
 
-去年的4月份和到今天，GTV的品质和技术含金量和它的影响力，短了不到一年时间，能同日而语嘛，这就是结果，这不是你投机和投资，一翻两瞪眼在赌场，更不会是犯罪，完全是没有本儿的，拿命赌，把人家钱变成自己钱，就像九指妖一样，是吧？这不能等同而语。所以说我再一次的劝战友们，给我发那么多信息，问那么多问题，千万记住，要投资不要投机，更不要赌博，更不能有犯罪的这种赚钱的心理，而且更不能学九指妖、陈其生，还有那个叫什么？我忘了，看看这小子..Jonathan,Jonathan这个家伙大家要记住啊，现在发现这几个家伙还有账号，还有账号啊兄弟姐妹们，你们要小心那，所以说现在强烈的呼吁，任何有给这些人汇钱的，张新…弓长张，新旧的新，叫张新，山东人，这个王八蛋太坏了，这个Jonathan，张新，然后再一个就是那个龟头洋，陈其生..还有PJ潘，PJ潘的中文名叫彭坚，还有魏继红，还有她的儿子，她的儿子叫魏什么呀？这几个家伙是犯罪集团，他是靠犯罪挣钱，他不是靠什么投资挣钱，魏修竹，她儿子叫魏修竹，现在很多部门都在问我们关于他们情况，都很惊讶，现在他们是真出名了，在图桑、在凤凰、在美国、在中国，出大名了，那么这些人他的末路..他的最终一定是进监狱的。
+这就是我们要相信的，我们人类之外的一种力量。美国人不但能上月球，也不仅仅能上火星，我相信会找到我们人类上所需要的另外一种力量，任何独裁和邪恶都将消失殆尽。没有任何所谓的侥幸和怀疑。人类永远是往前走的，邪恶一定会被战胜，正义一定像阳光和光明的力量一样存在人间。就像这火一样，不管你多强大，都能把你烧得灰飞弹尽，好啊，真好啊。
 
-刚才有某位律师跟我说，看了这些文件以后，看他们作为简直是太震惊了，他说这是一个无法无天的一个想法，他觉得像在非洲，也不可能有这种事情，太疯狂了。另外一个就他造假撒谎的这种胆子，震惊了所有的人，任何有法律常识人，不可能的，像他们这样做人做事的，太可怕了，这是由于七哥给他们背书，助长了他们的这种..让他们诈骗，形成了事实，给战友们带来了损失和痛苦，七哥发自内心的每天在自责和道歉，七哥一定不会再让另外一个像九指妖再发生了，尽量杜绝，也不敢绝对保证。
+This is what we shall believe in – there exists a force higher than human beings. The Americans not only can land on the moon and Mars, but also, I believe, will find another type of force that our human beings need. Any autocracies and evilness will be vanishing, and there is no room for being opportunistic or doubtful. Human beings are always moving forward. The wicked will surely be defeated, and justice will definitely prevail in this world like the sunlight. Just like this fire, no matter how big and strong you are, you will be burnt down and disappear in smoke and ash. Wonderful! So wonderful!
 
-亲爱的兄弟姐妹们，我今天很幸福看到这些战友们做的节目，层次越来越高，质量越来越高，我也在学习，看到英国农场、德国农场、西班牙农场、加拿大农场，我们的美东农场，我们的樱花，还有现在我们在G-News上发出的一些文章，都太棒了，这就是我们爆料革命必须的，战友们，灭共没你不行，灭共需要行动，需要高质量的行动，高智商的行动，一切都已经开始。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+
+视频来源：[https://gtv.org/getter/60395d191958515902379c61](https://gtv.org/getter/60395d191958515902379c61)
+
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/934779/](https://gnews.org/zh-hans/934779/)
+
+翻译：【guocamole(文金欠)】校对：【Isaiah4031】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
 0
