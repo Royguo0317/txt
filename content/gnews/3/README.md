@@ -1,53 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】这样的教育就是对孩子的戕害
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/937137/)
+## 人类永远是往前走的，邪恶一定会被战胜
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/937215/)
 
-作者：纽约香草山写作组 Kathy（文艺）
+新闻简述：在2021年2月26日的盖特视频中，郭先生背靠着火炉，面对着大雪，感慨万千：“上天是公平的，用了美国大选，用了整个的种族大屠杀、反人类罪，新中国联邦爆料革命、香港事件、威胁台湾，唤醒世界的人民，你不得不说上天的安排，都是如此的美好和美妙。”
+[下载字幕](https://gnews.org/wp-content/uploads/2021/02/Miles_20210226-Getter1.srt.txt)
+**人类永远是往前走的，邪恶一定会被战胜**
 
+**Human Beings Are Always Moving Forward; The Wicked Will Surely Be Defeated**
 
+熊熊的烈火，真棒啊，然后你看外面的大雪，然后这里是熊熊的烈火，欲望之火。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+Blazing fire, awesome! And you look at the heavy snow outside while the flame, the flame of lust, is burning here. Ho-ho!
 
+真舒服，喝杯茶，吃个元宵，熊熊的烈火，你说想啥呀？饱暖思淫欲啊，人家在那玩接班人那，咱也玩不了什么接班人，只能玩火了，太棒了兄弟姐妹们，美好的生活。
 
+Aiya, so comfy! After a cup of tea and some glutinous rice balls, sitting by the blazing fire, what’s the next thing that comes in your mind? [A Chinese slang:] When one is well-fed and well-clad, he or she will seek sexual gratification! They [those old bastards in the Zhongnan Pit] are fighting each other for the successorship, while that’s not something that we can play with. We can only play with fire! Ho-ho! Fantastic, brothers and sisters. What a beautiful life!
 
-网上一段视频：一间中学教室里，一个泼妇般的女教师，声嘶力竭地冲着学生们吼着。仔细一听，除了高分贝刺耳的嗓音，更让人瞠目结舌的是，从她语言里飙出来的价值观念，完全颠覆人的世界观。
+我在这边看，来自于世界各地的，关于以毒灭共的、以钱灭共的各种信息，感慨万千。共产党真是完球蛋了，它会像后面的木头一样，给烈火彻底的烧灭，彻底的消灭。这是没有任何悬念的，对吧？兄弟姐妹们？
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/14-9.jpg)网络视频截图
+While staying here, I have been reading all sorts of information on taking down the CCP by the virus and financial activities from all over the world, and I’ve got all sorts of feelings welled up in my mind. The CCP is truly going to have their balls destroyed. Just like this piece of wood back there, it will be burnt completely from top to the ground. There is no doubt in that, right? Brothers and sisters?
 
-大概意思是说：家长的收入高低及社会地位的贵贱，决定了家长及其家庭素质。这种用物质条件的优劣来评判人的观念，在当今的“华夏大地”已是通识。但在中学课堂里，一个教书育人的教师，这样明目张胆的辱骂歧视，以及对穷困家庭出身的孩子进行人身攻击，简直是人神共愤，触及到了道德的底线。
+所以说真舒服，越是在这个时候我越想，上天是公平的，用了美国大选，用了整个的种族大屠杀、反人类罪，新中国联邦爆料革命、香港事件、威胁台湾，唤醒世界的人民，你不得不说上天的安排，都是如此的美好和美妙。但凡有真正信仰的人，都会知道上天在干什么，是吧？因为上天在惩罚恶人，没有人可以挡得住，没有人，没有人。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/截屏2021-02-27-下午9.45.39.png)网络视频截图
+So, aiya, so comfy! At this moment, I believe more and more that God is fair. He has used the US election, the genocide, the crimes against humanity, the New Federal State of China (NFSC) and Whistleblower Movement (WM), the Hong Kong crisis and the [CCP’s] threatening of Taiwan to wake up people all around the world. You have to say that God’s plan has always been wonderful and beautiful. Anyone who has got true belief would understand what God is doing, right? That’s because God is punishing the wicked, and nobody can stand in His way, no one, not a single person.
 
-在这里，笔者不想说“中华民族是一个历来重视教书育人的民族”等大道理。单从2000多年前孔孟儒家提倡的“有教无类”、“揽天下英才”而“教人各因其材”等教学理念中，就说明中国古圣贤的教学观念之公平和人性。可惜的是，秦大一统后，随着统治者集权利益的出现，科举制的选贤择录，使得读书做官成为主流这一价值观念深入民心，绵延下来。
+这就是我们要相信的，我们人类之外的一种力量。美国人不但能上月球，也不仅仅能上火星，我相信会找到我们人类上所需要的另外一种力量，任何独裁和邪恶都将消失殆尽。没有任何所谓的侥幸和怀疑。人类永远是往前走的，邪恶一定会被战胜，正义一定像阳光和光明的力量一样存在人间。就像这火一样，不管你多强大，都能把你烧得灰飞弹尽，好啊，真好啊。
 
-中共夺取统治以来，对中华文明的摧残有目共睹。同时，因其极权统治理念的不人道，反映在教育理念上，更是极为扭曲。近年来，中华大地物欲横流，人人“朝钱看”、权钱结合等价值观念极为盛行。14亿人就像疯魔一般——仿佛在一条狭长的小道上追赶一架超音速波音一样——追逐财富与权力，哪怕受到超出尊严与道德底线的屈辱。这样的社会价值观念，轻易地进入学校的课堂里——就像开头提到的视频里的那一幕。
+This is what we shall believe in – there exists a force higher than human beings. The Americans not only can land on the moon and Mars, but also, I believe, will find another type of force that our human beings need. Any autocracies and evilness will be vanishing, and there is no room for being opportunistic or doubtful. Human beings are always moving forward. The wicked will surely be defeated, and justice will definitely prevail in this world like the sunlight. Just like this fire, no matter how big and strong you are, you will be burnt down and disappear in smoke and ash. Wonderful! So wonderful!
 
-然而，可怜的是课堂上的孩子们。可以想见，那种情况下，穷困家庭孩子内心受到的煎熬与刺激和富裕家庭孩子心中的得意与猖狂，两相对比下是一种多么恐怖残忍又让人心灵激荡的场面。走笔至此，推特上有人发推，传中共国经济学家张维迎因发表鞭挞学校教育的大胆言论而被封杀。张的言论指出，“如果取消学校，中国人的素质水准可能会大大提升。中国几十年的教育是失败的。”笔者推测，张也许指出的是中共教育的根本理念及方法出现的严重问题。而文章开头的视频至少反映了教育的源头，即师资的素质与教学理念的根本性问题。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-这样的尴尬局面是中共统治者无能化解的。表面上的什么国学热、汉学潮，根本解决不了根本性的教育问题。唯有实行民主自由的，与世界普世价值合流的，代表世界进步趋势的先进制度，才能使中华民族重新回到世界文明的轨道，融入世界大家庭。中华大地的孩子们才能真正的享受到公平自由的教育权利。可喜的是，这一天不远了。
+视频来源：[https://gtv.org/getter/60395d191958515902379c61](https://gtv.org/getter/60395d191958515902379c61)
 
-参考阅读：
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/934779/](https://gnews.org/zh-hans/934779/)
 
-[https://gtv.org/getter/603a7bd6195851590237e51d](https://gtv.org/getter/603a7bd6195851590237e51d)
-
-审核：悟空
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
+翻译：【guocamole(文金欠)】校对：【Isaiah4031】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
 0
