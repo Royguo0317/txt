@@ -1,39 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 时隔一年，重看武汉上空二氧化硫含量
-` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/937423/)
+## 【国际新闻】市场急分疫苗经济蛋糕 强生单次疫苗美国获批
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/937539/)
 
-##### 作者：庚子
+搜集\编撰：之之; 插图：文粤
+![]()![](https://gnews.org/wp-content/uploads/2021/02/封面-173.jpg)
+据2月28日【香港电台】讯：美国食品及药物管理局，授权紧急使用强生研发的新型冠状病毒疫苗，强生表示，会即时开始付运，3月会向美国提供2千万剂疫苗，最快未来数星期开始接种。管理局表示，批准强生疫苗能够增加整体疫苗的可用性，是预防新冠病毒的最佳方法，帮助击退疫情。
 
-2020年2月8日，根据国际数据提供商“Windy”追踪的数据，中国武汉市周围的大气中包含大量有毒物质二氧化硫（SO2）,遥遥领先其它城市，高达1700ug/㎥，重庆也高达惊人的800ug/㎥。二氧化硫是常见的硫化物，是石油、碳、天然气与生物类有机物等的燃烧都会产生该化合物。正常情况下80ug/㎥即为危险级别，时值中国春节，绝大多数工厂已停工停产，出现如此高浓度极为反常，推友“Interlwave”推断此现象很可能与大量焚烧新冠肺炎（中共生化武器）死者遗体有关，其推测要烧掉1.4万具尸体才能达到这样的排放量。
-![](https://lh5.googleusercontent.com/WD5L4xbtw-qq-KMXUw7Tmt697n4ifHhyWERdcD1Q-TdKwDYcdo5ZfA-5stuDX62LrnJ7YLuHb5mSyBpbK8LoW1TPJWYRBIqLcXCORS0ug1GBpdEkSnJ46VALUnKH42SUVlHym2g)
-*（2020年2月8日武汉二氧化硫SO2浓度，来源：Windy）*
-![](https://lh3.googleusercontent.com/WXW9yMGySfGKvYMD774HQ29LN7immuE0G92G5z_CVn8ohNVl6Hyb7PBiH4t6rHidXpyk60fsGKR7rOFjbqeJzXz6UJQzqns-jtytCu1XXkBX7B4X6hnw9K2UI_RRw28Sa3QCjYM)
-时隔一年，我们再看今日武汉上空的二氧化硫浓度，这个推测是否能得到验证？
-![](https://lh5.googleusercontent.com/sORLNiUWgYOg3tigGUqSucGvdr1iMlhspOAq5xtMyqCbp8r2TpCZvQqvzAnTxOcMzACZwn9vZk0zKcAhVmJU-zxjJ-BJjuyC33CNskvnrATWLOy_TPQrbn36TUjb4UOJFDIBpmU)
-*（2021年2月26日武汉二氧化硫SO2浓度，来源：Windy）*
+强生在全球4万人身上测试疫苗，预防中至重症的有效率达到百分之66，在预防住院及死亡方面达到百分百，测试亦显示强生疫苗的严重副作用很少，初步显示能减少无症状感染。由于强生疫苗只需注射1剂，疫苗可以存放于普通雪柜的温度，较容易储存及运送，相信会获得广泛使用。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/image001-31.jpg)
+**战友观点：**
 
-从浓度颜色浅淡很明显地看到，武汉及重庆两地的二氧化硫浓度相对于北方大面积地区是极低的（5.05mg/㎡），何况现在企业也大都复产。与当时中共病毒起初在停工停产情况下武汉肆虐时的数据对比，很好的佐证了“Interlwave”焚烧尸体的推测。
-![](https://lh4.googleusercontent.com/eNYVm58CTtCVkHEelt2-nXaCq7gfbAK0y5db-qNsN524VdDALDPSuZ6H_K_DSWlotaEcqMZ5GelMhzGhsNHLqkazqZpomaGRnWPVXglRhPebxyNUfg-tFwmaV6LB1-fbRR9p41c)
-（2021年2月26日武汉二氧化氮NO2浓度，来源：Windy）
+**CCP病毒肆虐，经济停滞，每日病毒数据暴增，全球陷入无限煎熬**
 
-另外，数据提供商Windy一直以ug/㎥为NO2和SO2的浓度计量单位，但此时却改为以mg/㎡为SO2的浓度计量单位，让人很难跟去年SO2浓度做对比。但是却依然以ug/㎥为NO2的浓度计量单位。同样的气体浓度却以两种不同的单位计算浓度，这是不合逻辑的。可以断定这里面一定有中共的“蓝金黄”在做手脚，但是这样却更显得欲盖弥彰，更使人相信不仅当时的武汉，重庆也在大量烧人。而重庆的大量焚烧尸体从侧面也可以证实中共病毒在很早就已经传播开来。
+最新病毒数据可见，美国仍位榜首是全球疫情最严峻的国家。病毒爆发已超一年，影响仍在延续，重创世界经济，各国毫无应对之策，疫苗经济自然成为救命稻草，不顾后果群起而上。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/image002-4.jpg)
+翻查资料，美国2020年12月开始疫苗接种，强生是获批的第三款疫苗。
 
+该疫苗是由强生公司疫苗部门扬森（Janssen）生产，在美国，南非和巴西进行的试验结果表明，在预防严重疾病方面，该药的有效率超过85％，包括中度病例的总体有效率为66％。值得注意的是，接种疫苗的参与者在接种疫苗后28天没有死亡，也没有住院。
 
+在病毒变种已占主导地位的南非和巴西，总体保护水平较低，但对严重或严重疾病的防御能力“同样很高”。
 
-2021年2月26日
+该疫苗将成为辉瑞和Moderna疫苗的一种经济高效的替代品，可以储存在冰箱中而不是冷冻器中。
 
-【参考来源】
+由此可见，美国在疫苗选择过程中是以解决当前病毒状况，以便捷、快速供应市场来考量，至于疫苗接种后果、临床反应、各年龄层数据等传统标准基本忽略。
 
-【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+跟踪市场反应，该公司已同意在6月底之前向美国提供1亿剂。英国，欧盟和加拿大也已订购了剂量，并且还通过Covax计划订购了5亿剂，以向较贫穷的国家供应药品。
 
-**欢迎战友加入旧金山金喜准农场**
+所以疫苗经济是当前第一大蛋糕，即使多方质疑声不断，在对病毒了解有限，变种失控的情况下，各国饮鸠止渴，后患堪忧。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/image007-2.png)
+在各种抢市场蛋糕的疫苗中，有一个诡异的身影。中共国作为病毒发源地，14亿人口大国，内需极弱的经济体，在各种数据排行榜上隐身的情况下，却积极推出疫苗。
 
-[旧金山金喜准农场 GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+据2月19日，引述中共国科学院院士-高福：我国已接种3100万剂中共病毒疫苗，不良反应率低于流感疫苗。
 
-[旧金山金喜准农场 Discord](https://discord.gg/QQzQ79grEA)
+当前中共国声称援助和出口疫苗已超50国，更紧盯世卫组织和世界银行的疫苗援助计划，准备分一杯羹。
 
-[旧金山金喜准农场 Twitter](https://twitter.com/sf_himalaya) 【**责任编辑**】：舊金山文宣组
+【以上观点仅代表笔者本人 】
+
+资料来源
+
+BBC news：[Johnson & Johnson Covid vaccine: FDA approves single-shot jab](https://www.bbc.com/news/world-us-canada-56226979)
+
+香港电台 ：[美国批准使用强生新冠疫苗　预防中至重症有效率66%](https://news.rthk.hk/rthk/ch/component/k2/1577914-20210228.htm?spTabChangeable=0)
+
+审稿 \上传：文粤
 
 0
