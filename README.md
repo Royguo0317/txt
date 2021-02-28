@@ -12,168 +12,168 @@
 
 ---
 
-### [亲身经历告诉你中共国经济的现状](/content/gnews/1/README.md)
+### [非死不可（Facebook）给澳洲政府跪下了](/content/gnews/1/README.md)
+ ` JPHIMALAYA`
+
+### [亲身经历告诉你中共国经济的现状](/content/gnews/2/README.md)
  ` 澳喜农场`
 
-### [2021/02/26 英喜时事速递](/content/gnews/2/README.md)
+### [2021/02/26 英喜时事速递](/content/gnews/3/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [日本游戏商将游戏角色改名，全因习怕“翠”](/content/gnews/3/README.md)
+### [日本游戏商将游戏角色改名，全因习怕“翠”](/content/gnews/4/README.md)
  ` 澳喜农场`
 
-### [【热点播报】蓬佩奥：美国不可能重回对中共妥协政策时代](/content/gnews/4/README.md)
+### [【热点播报】蓬佩奥：美国不可能重回对中共妥协政策时代](/content/gnews/5/README.md)
  ` 纽约香草山MOS01`
 
-### [长江流域生态持续恶化，十年禁捕恐难有效](/content/gnews/5/README.md)
+### [长江流域生态持续恶化，十年禁捕恐难有效](/content/gnews/6/README.md)
  ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
 
-### [【军事快讯】冻干技术与生物战剂之武器化](/content/gnews/6/README.md)
+### [【军事快讯】冻干技术与生物战剂之武器化](/content/gnews/7/README.md)
  ` 纽约香草山MOS01`
 
-### [【香港要闻】世界新闻摄影展刊抗争的「香港动荡（Hong Kong Unrest）」系列因浸大惧怯临时取消](/content/gnews/7/README.md)
+### [【香港要闻】世界新闻摄影展刊抗争的「香港动荡（Hong Kong Unrest）」系列因浸大惧怯临时取消](/content/gnews/8/README.md)
  ` 喜馬拉雅-粵語組`
 
-### [2021年2月12日文贵先生做客喜马拉雅波士顿五月花农场新春联欢会](/content/gnews/8/README.md)
+### [2021年2月12日文贵先生做客喜马拉雅波士顿五月花农场新春联欢会](/content/gnews/9/README.md)
  ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
 
-### [【国际新闻】市场急分疫苗经济蛋糕 强生单次疫苗美国获批](/content/gnews/9/README.md)
+### [【国际新闻】市场急分疫苗经济蛋糕 强生单次疫苗美国获批](/content/gnews/10/README.md)
  ` 喜馬拉雅-粵語組`
 
-### [视频【每日快讯】27/02/2021:辛丑年是中国经济，政治大革命年](/content/gnews/10/README.md)
+### [视频【每日快讯】27/02/2021:辛丑年是中国经济，政治大革命年](/content/gnews/11/README.md)
  ` GM132 每日快訊`
 
-### [时隔一年，重看武汉上空二氧化硫含量](/content/gnews/11/README.md)
+### [时隔一年，重看武汉上空二氧化硫含量](/content/gnews/12/README.md)
  ` 旧金山金喜准农场 Himalaya San Francisco Golden Farm`
 
-### [【各抒己见】不作不死](/content/gnews/12/README.md)
+### [【各抒己见】不作不死](/content/gnews/13/README.md)
  ` 日本东京樱花团`
 
-### [视频中共掩盖全部真相，就像苏联在切尔诺贝利事件中一样](/content/gnews/13/README.md)
+### [视频中共掩盖全部真相，就像苏联在切尔诺贝利事件中一样](/content/gnews/14/README.md)
  ` 秘密翻译组G-Translators`
 
-### [“天下第一村”华西村深陷挤兑重围](/content/gnews/14/README.md)
+### [“天下第一村”华西村深陷挤兑重围](/content/gnews/15/README.md)
  ` 纽约香草山MOS01`
 
-### [【各抒己见】中国对部分入境人员进行 &#8220;肛门PCR检测&#8221; 美国外交官也被列为检测对象](/content/gnews/15/README.md)
+### [【各抒己见】中国对部分入境人员进行 &#8220;肛门PCR检测&#8221; 美国外交官也被列为检测对象](/content/gnews/16/README.md)
  ` 日本东京樱花团`
 
-### [2.27文贵先生盖特： 共产党即将崩溃, 开启灭共大时代](/content/gnews/16/README.md)
+### [2.27文贵先生盖特： 共产党即将崩溃, 开启灭共大时代](/content/gnews/17/README.md)
  ` 旧金山金喜准农场 Himalaya San Francisco Golden Farm`
 
-### [【正道观察】多国跟进落实“种族大屠杀”定性，全球灭共势不可挡](/content/gnews/17/README.md)
+### [【正道观察】多国跟进落实“种族大屠杀”定性，全球灭共势不可挡](/content/gnews/18/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频【路德时评粤语快报】2.27拜登宣布制裁沙特前高官及行动小组 中共声称要制裁 抵制北京奥运会的国家](/content/gnews/18/README.md)
+### [视频【路德时评粤语快报】2.27拜登宣布制裁沙特前高官及行动小组 中共声称要制裁 抵制北京奥运会的国家](/content/gnews/19/README.md)
  ` 喜馬拉雅-粵語組`
 
-### [视频美国必须抵制中共冬奥会，并呼吁盟友共同抵制](/content/gnews/19/README.md)
+### [视频美国必须抵制中共冬奥会，并呼吁盟友共同抵制](/content/gnews/20/README.md)
  ` 秘密翻译组G-Translators`
 
-### [爱国是个伪命题](/content/gnews/20/README.md)
+### [爱国是个伪命题](/content/gnews/21/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [视频【粤语】2/26/2021文贵：什么叫江湖？什么叫沼泽地？会否出现新的林彪事件？](/content/gnews/21/README.md)
+### [视频【粤语】2/26/2021文贵：什么叫江湖？什么叫沼泽地？会否出现新的林彪事件？](/content/gnews/22/README.md)
  ` Caihongqiao`
 
-### [中共外交部的撒泼行为让人无语](/content/gnews/22/README.md)
+### [中共外交部的撒泼行为让人无语](/content/gnews/23/README.md)
  ` 澳喜农场`
 
-### [视频人类永远是往前走的，邪恶一定会被战胜](/content/gnews/23/README.md)
+### [视频人类永远是往前走的，邪恶一定会被战胜](/content/gnews/24/README.md)
  ` Himalaya Rose Garden Team`
 
-### [《路德时评》重磅解读蓬佩奥称美国不可能重回对共妥协政策，及华西村出现银行挤兑](/content/gnews/24/README.md)
+### [《路德时评》重磅解读蓬佩奥称美国不可能重回对共妥协政策，及华西村出现银行挤兑](/content/gnews/25/README.md)
  ` 香柏树`
 
-### [【世事解评】这样的教育就是对孩子的戕害](/content/gnews/25/README.md)
+### [【世事解评】这样的教育就是对孩子的戕害](/content/gnews/26/README.md)
  ` 纽约香草山MOS01`
 
-### [美司法部指控中共国公民窃取通用电气商业机密](/content/gnews/26/README.md)
+### [美司法部指控中共国公民窃取通用电气商业机密](/content/gnews/27/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [加国部长：在中资社交媒体上所发信息或被敌方利用](/content/gnews/27/README.md)
+### [加国部长：在中资社交媒体上所发信息或被敌方利用](/content/gnews/28/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [【灭共头条】中海油被强制退市 三大电信公司暂逃一劫](/content/gnews/28/README.md)
+### [【灭共头条】中海油被强制退市 三大电信公司暂逃一劫](/content/gnews/29/README.md)
  ` 秘密翻译组G-Translators`
 
-### [由点及面刨析 为中共洗地的套路 评支持中共国举办2022冬奥会的文章](/content/gnews/29/README.md)
+### [由点及面刨析 为中共洗地的套路 评支持中共国举办2022冬奥会的文章](/content/gnews/30/README.md)
  ` 旧金山金喜准农场 Himalaya San Francisco Golden Farm`
 
-### [郭先生0226IX据说接下来美国政治有大运动、大转折,还听说……](/content/gnews/30/README.md)
+### [郭先生0226IX据说接下来美国政治有大运动、大转折,还听说……](/content/gnews/31/README.md)
  ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
 
-### [视频【字幕】2/27/2021文贵盖特：七哥边工作边在G-TV看大家的直播，战友们在G-TV上直播的质量大大提高](/content/gnews/31/README.md)
+### [视频【字幕】2/27/2021文贵盖特：七哥边工作边在G-TV看大家的直播，战友们在G-TV上直播的质量大大提高](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
 
-### [大陆非洲猪瘟病毒通过山寨疫苗发生突变](/content/gnews/32/README.md)
+### [大陆非洲猪瘟病毒通过山寨疫苗发生突变](/content/gnews/33/README.md)
  ` wenwu`
 
-### [视频【路德时评粤语快报】02.25：荷兰议会通过对中共种族灭绝认定议案 世界各国抵制2022年北京冬奥会](/content/gnews/33/README.md)
+### [视频【路德时评粤语快报】02.25：荷兰议会通过对中共种族灭绝认定议案 世界各国抵制2022年北京冬奥会](/content/gnews/34/README.md)
  ` 喜馬拉雅-粵語組`
 
-### [羟氯喹获批成为COVID-19的预防治疗方案](/content/gnews/34/README.md)
+### [羟氯喹获批成为COVID-19的预防治疗方案](/content/gnews/35/README.md)
  ` 康州盘古喜马拉雅农场`
 
-### [郭先生0226VIII拳头够硬钱够多意志够坚定再加上正义想不赢都不行](/content/gnews/35/README.md)
+### [郭先生0226VIII拳头够硬钱够多意志够坚定再加上正义想不赢都不行](/content/gnews/36/README.md)
  ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
 
-### [郭先生0226VII如果知道七哥昨天和前天发生的事大家都回家喝酒去](/content/gnews/36/README.md)
+### [郭先生0226VII如果知道七哥昨天和前天发生的事大家都回家喝酒去](/content/gnews/37/README.md)
  ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
 
-### [国会山暴乱真正责任人是佩洛西吗？](/content/gnews/37/README.md)
+### [国会山暴乱真正责任人是佩洛西吗？](/content/gnews/38/README.md)
  ` HimalayaRussia`
 
-### [【墙文推荐】从养老金看中共驭民之术](/content/gnews/38/README.md)
+### [【墙文推荐】从养老金看中共驭民之术](/content/gnews/39/README.md)
  ` 纽约香草山MOS04`
 
-### [揭底伪科学家福奇与其控制的国家卫生研究院（NIH)资助中共武毒所之背后的利益链](/content/gnews/39/README.md)
+### [揭底伪科学家福奇与其控制的国家卫生研究院（NIH)资助中共武毒所之背后的利益链](/content/gnews/40/README.md)
  ` 旧金山金喜准农场 Himalaya San Francisco Golden Farm`
 
-### [视频路德时评简讯（视频版）：布林肯确认中共犯下种族灭绝和反人类罪(2021.2.24晚间 路德社简讯之路博艾冠谈 ）](/content/gnews/40/README.md)
+### [视频路德时评简讯（视频版）：布林肯确认中共犯下种族灭绝和反人类罪(2021.2.24晚间 路德社简讯之路博艾冠谈 ）](/content/gnews/41/README.md)
  ` 路德社`
 
-### [2021年2月27日 文贵先生盖特 6](/content/gnews/41/README.md)
+### [2021年2月27日 文贵先生盖特 6](/content/gnews/42/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [2021年2月27日 文贵先生盖特 5](/content/gnews/42/README.md)
+### [2021年2月27日 文贵先生盖特 5](/content/gnews/43/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [德国汉堡大学罗兰-维森丹格教授：冠状病毒大流行的起源研究（中文译文）第三部分](/content/gnews/43/README.md)
+### [德国汉堡大学罗兰-维森丹格教授：冠状病毒大流行的起源研究（中文译文）第三部分](/content/gnews/44/README.md)
  ` 喜马拉雅德国慕尼黑感恩农场`
 
-### [从美中互设联络处的细节看中共灭美的决心及泯灭人性](/content/gnews/44/README.md)
+### [从美中互设联络处的细节看中共灭美的决心及泯灭人性](/content/gnews/45/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [【墙文推荐】真实的农村是一片人性的荒漠](/content/gnews/45/README.md)
+### [【墙文推荐】真实的农村是一片人性的荒漠](/content/gnews/46/README.md)
  ` 纽约香草山MOS04`
 
-### [视频【字幕】2/27/2021文贵盖特 2：即将崩溃的共产党的经济！和全世界联合以毒灭共的大时代的开启！最大的受益者，是新中国联邦和新中国联邦的中国人民](/content/gnews/46/README.md)
+### [视频【字幕】2/27/2021文贵盖特 2：即将崩溃的共产党的经济！和全世界联合以毒灭共的大时代的开启！最大的受益者，是新中国联邦和新中国联邦的中国人民](/content/gnews/47/README.md)
  ` 纽约香草山MOS01`
 
-### [中共国试图在没有梵蒂冈的许可下任命主教](/content/gnews/47/README.md)
+### [中共国试图在没有梵蒂冈的许可下任命主教](/content/gnews/48/README.md)
  ` 喜马拉雅巴黎七星农场`
 
-### [视频【字幕】2/26/2021文贵：什么叫江湖？什么叫沼泽地？会否出现新的林彪事件？](/content/gnews/48/README.md)
+### [视频【字幕】2/26/2021文贵：什么叫江湖？什么叫沼泽地？会否出现新的林彪事件？](/content/gnews/49/README.md)
  ` 纽约香草山MOS01`
 
-### [中共已在种族大屠杀定性和全世界抵制冬奥会声浪中节节败退](/content/gnews/49/README.md)
+### [中共已在种族大屠杀定性和全世界抵制冬奥会声浪中节节败退](/content/gnews/50/README.md)
  ` 喜马拉雅巴黎七星农场`
 
-### [【德教专栏】—何谓民主？](/content/gnews/50/README.md)
+### [【德教专栏】—何谓民主？](/content/gnews/51/README.md)
  ` 旧金山金喜准农场 Himalaya San Francisco Golden Farm`
 
-### [视频共匪在台湾是真要有动作](/content/gnews/51/README.md)
+### [视频共匪在台湾是真要有动作](/content/gnews/52/README.md)
  ` Himalaya Rose Garden Team`
 
-### [拜登在签署供应链行政命令时的讲话](/content/gnews/52/README.md)
+### [拜登在签署供应链行政命令时的讲话](/content/gnews/53/README.md)
  ` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels`
 
-### [霍利议员：没有言论自由我们国家不复存在](/content/gnews/53/README.md)
+### [霍利议员：没有言论自由我们国家不复存在](/content/gnews/54/README.md)
  ` HimalayaRussia`
 
-### [非法征税说明中国共产党是“汉奸”](/content/gnews/54/README.md)
+### [非法征税说明中国共产党是“汉奸”](/content/gnews/55/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [欧洲小国开始警惕中共向美国立场靠拢](/content/gnews/55/README.md)
- ` HimalayaRussia`
 

@@ -1,65 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读蓬佩奥称美国不可能重回对共妥协政策，及华西村出现银行挤兑
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/937200/)
+## 人类永远是往前走的，邪恶一定会被战胜
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/937215/)
 
-直播视频：
+新闻简述：在2021年2月26日的盖特视频中，郭先生背靠着火炉，面对着大雪，感慨万千：“上天是公平的，用了美国大选，用了整个的种族大屠杀、反人类罪，新中国联邦爆料革命、香港事件、威胁台湾，唤醒世界的人民，你不得不说上天的安排，都是如此的美好和美妙。”
+[下载字幕](https://gnews.org/wp-content/uploads/2021/02/Miles_20210226-Getter1.srt.txt)
+**人类永远是往前走的，邪恶一定会被战胜**
 
+**Human Beings Are Always Moving Forward; The Wicked Will Surely Be Defeated**
 
+熊熊的烈火，真棒啊，然后你看外面的大雪，然后这里是熊熊的烈火，欲望之火。
 
-《路德时评》2021年2月27日晚间节目主要内容：
+Blazing fire, awesome! And you look at the heavy snow outside while the flame, the flame of lust, is burning here. Ho-ho!
 
-一、胡锡进在钓鱼岛问题上松口
+真舒服，喝杯茶，吃个元宵，熊熊的烈火，你说想啥呀？饱暖思淫欲啊，人家在那玩接班人那，咱也玩不了什么接班人，只能玩火了，太棒了兄弟姐妹们，美好的生活。
 
-环球网快讯[1]：据日本共同社刚刚消息，日本政府25日在自民党国防小组与安全保障调查会联席会议上声称，如果中国海警船试图登陆“尖阁诸岛”（即我钓鱼岛及其附属岛屿），日方可能会将此认定为“凶恶犯罪”，可以向对方进行“危害射击”。报道称，自民党相关人士在会后透露了这一消息。
+Aiya, so comfy! After a cup of tea and some glutinous rice balls, sitting by the blazing fire, what’s the next thing that comes in your mind? [A Chinese slang:] When one is well-fed and well-clad, he or she will seek sexual gratification! They [those old bastards in the Zhongnan Pit] are fighting each other for the successorship, while that’s not something that we can play with. We can only play with fire! Ho-ho! Fantastic, brothers and sisters. What a beautiful life!
 
-随后，战狼媒体代表胡锡进发文一改强硬态度，说中日两国合作的领域很广泛，中国希望日本以邻为善，管控危机，共同维护东亚地区的和平稳定。有问题可以协商，不要用武力解决问题。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/射击.jpg)[图片地址](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0225%2Fb1f26cfdj00qp2trs000rd000sy0073p.jpg&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
-路德社评论：
+我在这边看，来自于世界各地的，关于以毒灭共的、以钱灭共的各种信息，感慨万千。共产党真是完球蛋了，它会像后面的木头一样，给烈火彻底的烧灭，彻底的消灭。这是没有任何悬念的，对吧？兄弟姐妹们？
 
-1、中共国本想通过新的《海警法》来欺负南海周边的东南亚国家，没想到却得罪日本，由此可以看到中共国外交手段之粗糙，这完全是搬起石头砸自己的脚。中共非常忌惮于日本，他深知自己的军事实力不如日本，日本不仅敢干，而且日本国内所推行的议会制使党内政权相对团结，中国与日本史上发生多次战争，中国都损失惨重，中共非常清楚他们的军事实力，中共只敢喊不敢干，所以胡锡进才一改往日战狼风格，呼吁中日友好谈判。
+While staying here, I have been reading all sorts of information on taking down the CCP by the virus and financial activities from all over the world, and I’ve got all sorts of feelings welled up in my mind. The CCP is truly going to have their balls destroyed. Just like this piece of wood back there, it will be burnt completely from top to the ground. There is no doubt in that, right? Brothers and sisters?
 
-2、中共长期炒作钓鱼岛的真正目的是在国内培养民族主义，中共现在的战略重点在缅甸、台湾和新加坡，目前不敢与日本发生擦枪走火事件，所以中共不可能将兵力对准日本。
+所以说真舒服，越是在这个时候我越想，上天是公平的，用了美国大选，用了整个的种族大屠杀、反人类罪，新中国联邦爆料革命、香港事件、威胁台湾，唤醒世界的人民，你不得不说上天的安排，都是如此的美好和美妙。但凡有真正信仰的人，都会知道上天在干什么，是吧？因为上天在惩罚恶人，没有人可以挡得住，没有人，没有人。
 
-二、美国不可能重回对中共妥协政策
+So, aiya, so comfy! At this moment, I believe more and more that God is fair. He has used the US election, the genocide, the crimes against humanity, the New Federal State of China (NFSC) and Whistleblower Movement (WM), the Hong Kong crisis and the [CCP’s] threatening of Taiwan to wake up people all around the world. You have to say that God’s plan has always been wonderful and beautiful. Anyone who has got true belief would understand what God is doing, right? That’s because God is punishing the wicked, and nobody can stand in His way, no one, not a single person.
 
-大纪元2月28日报道[1]：前美国国务卿迈克‧蓬佩奥（Mike Pompeo）周六（2月27日）出席全美保守政治行动大会（CPAC）表示，实力才能抵挡坏人，软弱什么都做不了。蓬佩奥在演讲中历数担任国务卿时，川普政府打破常规取得的成功案例。当有人因惧怕“战争”不断警告川普政府要继续给伊朗送钱、不要将美国驻以色列使馆搬迁到耶路撒冷、不要跟朝鲜谈判、不要触动中东问题时，川普政府大胆突破、不仅成功解决了这些棘手问题，而且没有引发一场战争。
+这就是我们要相信的，我们人类之外的一种力量。美国人不但能上月球，也不仅仅能上火星，我相信会找到我们人类上所需要的另外一种力量，任何独裁和邪恶都将消失殆尽。没有任何所谓的侥幸和怀疑。人类永远是往前走的，邪恶一定会被战胜，正义一定像阳光和光明的力量一样存在人间。就像这火一样，不管你多强大，都能把你烧得灰飞弹尽，好啊，真好啊。
 
-“中国（中共）依赖我们比我们依赖他们更多。”蓬佩奥在发言中说道。他还提到被美军无人机击毙的伊朗将军卡西姆‧苏莱曼尼（Qasem Soleimani），在苏莱曼尼试图找美国的麻烦、伤害美国人前，川普政府捷足先登，先下手为强。“所以最后，他（苏莱曼尼）没能再给美国人或其他任何人制造麻烦。”蓬佩奥调侃说。此举也同样获得绝大多数人、包括自由派的支持。除此之外，蓬佩奥还提及，川普政府与朝鲜的几次高层领导人会晤，以及美国带回朝鲜、伊朗被关押的美国人质都是在践行美国的价值观以及美国优先政策。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/蓬佩奥.jpg)[图片地址](https://i.epochtimes.com/assets/uploads/2021/02/90bd4a70bda5fbac-600x400.jpg)
-路德社评论：
+This is what we shall believe in – there exists a force higher than human beings. The Americans not only can land on the moon and Mars, but also, I believe, will find another type of force that our human beings need. Any autocracies and evilness will be vanishing, and there is no room for being opportunistic or doubtful. Human beings are always moving forward. The wicked will surely be defeated, and justice will definitely prevail in this world like the sunlight. Just like this fire, no matter how big and strong you are, you will be burnt down and disappear in smoke and ash. Wonderful! So wonderful!
 
-1、蓬佩奥在全国保守行动大会中发言明确表示拜登政府已经不可能重回原先的怯懦政策，川普政府在过去四年推行的对共政策已经证明中共就是倚靠美国才拥有今天的实力，川普的对共政策非常成功，新政府必须延续川普政府原先的对共政策，他作为前国务卿在保守派内拥有极大的影响力，此方发言也在为保守派未来四年的行动方向定调。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-2、美国共和党已经认识到他们现在面临巨大的危机，如果没有川普总统，他们将失去获取民意的方式。所以，对共和党来说，现在最重要的就是抓住民意，而现在获取民意最好的方式就是推动灭共，美国两党利益也逐渐开始导向一致。川普政府在过去四年彻底扭转了中美政策，美国人民已经意识到中共的崛起将对美国产生巨大的威胁，同时中共在新疆种族灭绝和病毒疫情上的犯罪是既成事实，中共的一系列犯罪行为彻底改变了美国的生活方式，沉重地打击了美国经济。
+视频来源：[https://gtv.org/getter/60395d191958515902379c61](https://gtv.org/getter/60395d191958515902379c61)
 
-3、蓬佩奥明确拜登政府不可能回到原先的亲共政策，其中有几点重要原因，首先是川普政府已经坐实中共种种行为威胁美国国家安全，其次就是美国沼泽地力量也不允许拜登政府亲共。蓬佩奥也是在告诉保守党内的各界大佬们，你们此前将产业和投资从中共国撤出是正确的选择，同时蓬佩奥也是在告诉中共，中共不可能通过买通拜登一人来扭转中美政策。
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/934779/](https://gnews.org/zh-hans/934779/)
 
-4、共和党中的亲共派议员罗姆尼和麦康奈尔均未出席该会议，参加全美保守政治行动大会（CPAC）的大多数议员都是川普总统MAGA运动的支持者，能在大会中发言的都是明星级议员，川普总统也将本次大会中发言。虽然此次大会票价高昂，最终依然销售一空，可见全美保守政治行动大会（CPAC）在保守派内拥有巨大的影响力。
+翻译：【guocamole(文金欠)】校对：【Isaiah4031】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
-三、华西村村民出现挤兑
-
-《南方周末》2月27日报道[2]：2月25日中午，一位投资人向21世纪经济报道记者透露，华西村遭“挤兑”。从投资人提供的两个简短视频看，在华西村特有的建筑广场外，数百人冒着小雨排着长队，诸多保安在维持秩序。另一个视频显示，疑似财务室的会计们正在帮办手续。随后，华西人党委发言人对21世纪经济报道记者表示，视频显示的内容是真实的，主要是“外面的引资款到期兑付”。发言人强调，华西资金没问题，兑付没问题。共同富裕是华西村的终极理念，但为何会出现“挤兑？”发言人表示，主要是“坊间传言，传来传去就都急着来兑付了”。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/华西村.jpg)[图片地址](https://lh3.googleusercontent.com/proxy/qqBURPD52tDGw5DswHjfkNVtuGdrnsY7CW2qE3oq6K0N7nA5ZbaBnbsnhZ3Ppo26JguS0ivKy3QFEWFKNHOERnhhaVY_afczn6cGWteBI6eH)
-路德社评论：
-
-1、根据数据显示，截止到2016年第一季度，华西集团旗下共有208家公司，总资产近542亿，可以说是个非常庞大的帝国了。但同时，在负债方面，总负债高达389.07亿元，资产负债率为68.78%，有息负债245.7亿元。华西村产业多，钢铁、纺织、旅游是三大支柱[3]。华西村地处江苏，位于长江中下游，拥有优越的地理条件，本村人民通过集资来发展企业。
-
-2、虽然华西村号称全国最富裕的村庄，但其银行信用负债比率就高达68.78%。华西村七十年代造田，八十年代造厂，是中共改革开发推动发展乡镇企业，集体致富的先驱，是中国经济的晴雨表。华西村三大产业大多涉及出口，川普总统在位期间增加关税，人民币升值以及中共病毒打击旅游业，这些都导致华西村利润断崖式下降，负债率急剧升高，才促使他们以10%的利息融资偿还负债，由于资金链出现问题，导致华西村数百位村民排队到银行挤兑。
-
-3、中共媒体爆出华西村挤兑危机，习也是想借华西村事件打击邓和江派势力，借此将中共国经济的危机转嫁给前任领导，缓解党内紧张的斗争气氛。
-
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
-
-参考文章：
-
-[1][https://www.epochtimes.com/gb/21/2/27/n12779471.htm](https://www.epochtimes.com/gb/21/2/27/n12779471.htm)
-
-[2][http://infzm.com/contents/201997](http://infzm.com/contents/201997)
-
-[3][https://www.sohu.com/a/211874243\_415321](https://www.sohu.com/a/211874243_415321)
-
-文章撰写：【重生】  编辑：【香柏树】
-
-+1
+0
