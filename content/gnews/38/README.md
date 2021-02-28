@@ -1,32 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【灭共头条】中海油被强制退市 三大电信公司暂逃一劫
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/937087/)
+## 人类永远是往前走的，邪恶一定会被战胜
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/937215/)
 
-#### 撰稿：MIYA【㊙️翻 Gnews原创组】
-责编：Ermat
-![]()![](https://gnews.org/wp-content/uploads/2021/02/中海油-1.jpg)图片来源：搜狐网
-纽约证券交易所（以下简称：纽交所）决定根据美国前总统唐纳德·川普（Donald Trump）去年11月签署的行政命令，将中国海洋石油有限公司（CNOOC，中海油）摘牌。而与中海油同期遭受同等制裁的中共三大电信公司却暂时躲过一劫。
+新闻简述：在2021年2月26日的盖特视频中，郭先生背靠着火炉，面对着大雪，感慨万千：“上天是公平的，用了美国大选，用了整个的种族大屠杀、反人类罪，新中国联邦爆料革命、香港事件、威胁台湾，唤醒世界的人民，你不得不说上天的安排，都是如此的美好和美妙。”
+[下载字幕](https://gnews.org/wp-content/uploads/2021/02/Miles_20210226-Getter1.srt.txt)
+**人类永远是往前走的，邪恶一定会被战胜**
 
-据彭博社报导，纽交所周五（2月26日）盘后发表声明称，中海油ADS（美国存托股票）将于3月9日开始停止交易，其股票发行人有权对该决议提出覆议。纽交所引用了行政命令及美国财政部外国资产管制办公室（OFAC）1月27日提供的最新指南。
+**Human Beings Are Always Moving Forward; The Wicked Will Surely Be Defeated**
 
-去年11月30日，时任总统川普以国家安全为由签署一项行政命令，禁止美企和个人投资与中共军方有关的公司，将近百家包括中海油在内的中共军民融合企业陆续被列入黑名单。行政命令将在60天后正式生效。随后国际指数公司MSCI明晟、标普道琼斯和富时罗素分别将中海油和三大电信公司等从各自指数中剔除。
+熊熊的烈火，真棒啊，然后你看外面的大雪，然后这里是熊熊的烈火，欲望之火。
 
-与中海油同一时期受到同等制裁的还有中共3大电信商：中国移动、中国电信、中国联通。征对这三家电信企业的ADS是否摘牌的 问题，纽交所表现反复，1月4日，纽交所撤回了摘牌要求，但在1月 6日，又表示会继续推进退市。1月21日，三大电信公司公告上显示出已向纽交所提出复议，要求纽交所董事会的一个委员会覆议下市决定。
+Blazing fire, awesome! And you look at the heavy snow outside while the flame, the flame of lust, is burning here. Ho-ho!
 
-纽交所此次摘牌声明里没有出现三大电信公司的身影，该交易所给出“正在遵守行政命令”的解释。值得注意的是，1月20日是美国总统更替日，纽交所的反复表明三大电信公司的幕后金主在川普政府的公关受挫，而拜登的上任让形势出现了转机。然而，同等制裁下的中海油似乎并没有如此的幸运。
+真舒服，喝杯茶，吃个元宵，熊熊的烈火，你说想啥呀？饱暖思淫欲啊，人家在那玩接班人那，咱也玩不了什么接班人，只能玩火了，太棒了兄弟姐妹们，美好的生活。
 
-郭文贵先生曾在2020年11月30日的GTV直播里曝光过中海油的真面目：除了是中共的洗钱平台，更是中共的情报平台，中海油控制着一个个万吨级的大货轮，它与以中交建（中国交通建设集团）为首的建筑公司合作，在货轮下面打造隐形的军事设施，这些“间谍”货轮停靠在台湾、中东波斯湾、吉布提等全球各个军事要塞，甚至在美军潜水艇出入基地等美国战略要地搜集情报。
+Aiya, so comfy! After a cup of tea and some glutinous rice balls, sitting by the blazing fire, what’s the next thing that comes in your mind? [A Chinese slang:] When one is well-fed and well-clad, he or she will seek sexual gratification! They [those old bastards in the Zhongnan Pit] are fighting each other for the successorship, while that’s not something that we can play with. We can only play with fire! Ho-ho! Fantastic, brothers and sisters. What a beautiful life!
 
-这就是为什么美国要把中海油、中交建等诸多企业纳入国防部的黑名单，因为有充足的情报证明这些中共军方企业布下的天罗地网威胁着美国的国家安全，这也是中海油放弃覆议的原因，中海油无法公开辩解“间谍货轮”的真相，中海油的退市将是未来所有中共军方企业的命运。
+我在这边看，来自于世界各地的，关于以毒灭共的、以钱灭共的各种信息，感慨万千。共产党真是完球蛋了，它会像后面的木头一样，给烈火彻底的烧灭，彻底的消灭。这是没有任何悬念的，对吧？兄弟姐妹们？
 
-参考链接：
-1、[Cnooc Faces NYSE Delisting of American Depositary Shares](https://www.bloomberg.com/news/articles/2021-02-26/china-s-cnooc-faces-nyse-delisting-of-american-depositary-shares)
-2、[Exclusive: Trump to add China’s SMIC and CNOOC to defense blacklist – sources](Trump%20to%20add%20China's%20SMIC%20and%20CNOOC%20to%20defense%20blacklist%20-%20sources)
-3、[美国投资者3月9日前仍可交易三大运营商港股股票](https://money.163.com/21/0129/11/G1GOGI2L00258105.html)
-4、[郭文贵2020年11月30日直播 20201130\_1](https://gwins.org/cn/milesguo/21406.html)
+While staying here, I have been reading all sorts of information on taking down the CCP by the virus and financial activities from all over the world, and I’ve got all sorts of feelings welled up in my mind. The CCP is truly going to have their balls destroyed. Just like this piece of wood back there, it will be burnt completely from top to the ground. There is no doubt in that, right? Brothers and sisters?
 
-(本文仅代表作者个人观点）
+所以说真舒服，越是在这个时候我越想，上天是公平的，用了美国大选，用了整个的种族大屠杀、反人类罪，新中国联邦爆料革命、香港事件、威胁台湾，唤醒世界的人民，你不得不说上天的安排，都是如此的美好和美妙。但凡有真正信仰的人，都会知道上天在干什么，是吧？因为上天在惩罚恶人，没有人可以挡得住，没有人，没有人。
 
-+1
+So, aiya, so comfy! At this moment, I believe more and more that God is fair. He has used the US election, the genocide, the crimes against humanity, the New Federal State of China (NFSC) and Whistleblower Movement (WM), the Hong Kong crisis and the [CCP’s] threatening of Taiwan to wake up people all around the world. You have to say that God’s plan has always been wonderful and beautiful. Anyone who has got true belief would understand what God is doing, right? That’s because God is punishing the wicked, and nobody can stand in His way, no one, not a single person.
+
+这就是我们要相信的，我们人类之外的一种力量。美国人不但能上月球，也不仅仅能上火星，我相信会找到我们人类上所需要的另外一种力量，任何独裁和邪恶都将消失殆尽。没有任何所谓的侥幸和怀疑。人类永远是往前走的，邪恶一定会被战胜，正义一定像阳光和光明的力量一样存在人间。就像这火一样，不管你多强大，都能把你烧得灰飞弹尽，好啊，真好啊。
+
+This is what we shall believe in – there exists a force higher than human beings. The Americans not only can land on the moon and Mars, but also, I believe, will find another type of force that our human beings need. Any autocracies and evilness will be vanishing, and there is no room for being opportunistic or doubtful. Human beings are always moving forward. The wicked will surely be defeated, and justice will definitely prevail in this world like the sunlight. Just like this fire, no matter how big and strong you are, you will be burnt down and disappear in smoke and ash. Wonderful! So wonderful!
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+
+视频来源：[https://gtv.org/getter/60395d191958515902379c61](https://gtv.org/getter/60395d191958515902379c61)
+
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/934779/](https://gnews.org/zh-hans/934779/)
+
+翻译：【guocamole(文金欠)】校对：【Isaiah4031】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+
+0

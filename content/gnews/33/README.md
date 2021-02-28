@@ -1,47 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 人类永远是往前走的，邪恶一定会被战胜
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/937215/)
+## 【路德时评粤语快报】2.27拜登宣布制裁沙特前高官及行动小组 中共声称要制裁 抵制北京奥运会的国家
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/937336/)
 
-新闻简述：在2021年2月26日的盖特视频中，郭先生背靠着火炉，面对着大雪，感慨万千：“上天是公平的，用了美国大选，用了整个的种族大屠杀、反人类罪，新中国联邦爆料革命、香港事件、威胁台湾，唤醒世界的人民，你不得不说上天的安排，都是如此的美好和美妙。”
-[下载字幕](https://gnews.org/wp-content/uploads/2021/02/Miles_20210226-Getter1.srt.txt)
-**人类永远是往前走的，邪恶一定会被战胜**
+制作团队：【喜马拉雅-粤语组】流光飞舞、sad3mom、文恩
 
-**Human Beings Are Always Moving Forward; The Wicked Will Surely Be Defeated**
 
-熊熊的烈火，真棒啊，然后你看外面的大雪，然后这里是熊熊的烈火，欲望之火。
 
-Blazing fire, awesome! And you look at the heavy snow outside while the flame, the flame of lust, is burning here. Ho-ho!
+主要内容：
 
-真舒服，喝杯茶，吃个元宵，熊熊的烈火，你说想啥呀？饱暖思淫欲啊，人家在那玩接班人那，咱也玩不了什么接班人，只能玩火了，太棒了兄弟姐妹们，美好的生活。
+1.美国周五公布的一份解密报告说，沙特王储穆罕默德.本.萨勒曼批准了杀害记者卡舒吉的行动。随后美国宣布制裁一位沙特前高管以及一个特别行动小组，但没有制裁王储。 59岁的卡舒吉是美国公民，是华盛顿邮报的专栏作家，经常批评穆罕默德的政策，于2018年10月在沙特驻土耳其伊斯坦布尔领事馆内被残忍杀害。此次虽然为了给沙特面子而没有制裁王储，但是传递出了一个重要信号：拜登敢干，只要有国家情报总监情报的支持，他就敢做任何事情。
 
-Aiya, so comfy! After a cup of tea and some glutinous rice balls, sitting by the blazing fire, what’s the next thing that comes in your mind? [A Chinese slang:] When one is well-fed and well-clad, he or she will seek sexual gratification! They [those old bastards in the Zhongnan Pit] are fighting each other for the successorship, while that’s not something that we can play with. We can only play with fire! Ho-ho! Fantastic, brothers and sisters. What a beautiful life!
+2.此前多年，美国对于这个阿拉伯盟友和主要产油国的人权问题及其对也门内战的干预，都选择睁一只眼闭一只眼，只要你不威胁全世界的秩序。美国对国际秩序的管理有个基本的底线，尊重每个国家的选择，前提是，一让所有人的声音表达出来，二表达完后必须按照国际秩序来。通过沙特的事可以看到，通过三十年来欺民贼呼吁人权的方式让美国灭共，是不可能的，哪怕中共种族灭绝，美国也不可能去灭共，顶多制裁一下。但是以毒灭共绝对是杀手锏。
 
-我在这边看，来自于世界各地的，关于以毒灭共的、以钱灭共的各种信息，感慨万千。共产党真是完球蛋了，它会像后面的木头一样，给烈火彻底的烧灭，彻底的消灭。这是没有任何悬念的，对吧？兄弟姐妹们？
+3.中共对全世界反对其新疆种族灭绝的态度非常紧张。 2月8号，胡锡进就发过文：中国将制裁决定抵制北京冬奥会的国家。昨天胡锡进又发文：围绕新疆问题，五问西方媒体和政客。声称中共和西方民主国家的治理国家的逻辑和价值尺度不一样，中共的价值尺度是合理的，别人没资格评判。但是大部分国家没有被吓住，依然在推进对中共的制裁。
 
-While staying here, I have been reading all sorts of information on taking down the CCP by the virus and financial activities from all over the world, and I’ve got all sorts of feelings welled up in my mind. The CCP is truly going to have their balls destroyed. Just like this piece of wood back there, it will be burnt completely from top to the ground. There is no doubt in that, right? Brothers and sisters?
+4.不管一个国家采用什么体制，只要不危害别的国家，都没问题。一个国家强大可以，但是不能结盟和称霸，更不能邪恶地结盟和称霸，搞一带一路。美国的原则是采取中立原则，但是如果你危害到我了，你就必死无疑。现在美国军方能不知道病毒是中共造的吗?只是不说而已，在做各种准备。中共的存在已经是对地球安全的极大威胁，不管哪个当美国总统，都要灭中共，等到说出来的时候，就已经是中共结束的时候了。
 
-所以说真舒服，越是在这个时候我越想，上天是公平的，用了美国大选，用了整个的种族大屠杀、反人类罪，新中国联邦爆料革命、香港事件、威胁台湾，唤醒世界的人民，你不得不说上天的安排，都是如此的美好和美妙。但凡有真正信仰的人，都会知道上天在干什么，是吧？因为上天在惩罚恶人，没有人可以挡得住，没有人，没有人。
+[【路德时评】原视频链接](https://youtu.be/AMCq7IbxOks)
 
-So, aiya, so comfy! At this moment, I believe more and more that God is fair. He has used the US election, the genocide, the crimes against humanity, the New Federal State of China (NFSC) and Whistleblower Movement (WM), the Hong Kong crisis and the [CCP’s] threatening of Taiwan to wake up people all around the world. You have to say that God’s plan has always been wonderful and beautiful. Anyone who has got true belief would understand what God is doing, right? That’s because God is punishing the wicked, and nobody can stand in His way, no one, not a single person.
-
-这就是我们要相信的，我们人类之外的一种力量。美国人不但能上月球，也不仅仅能上火星，我相信会找到我们人类上所需要的另外一种力量，任何独裁和邪恶都将消失殆尽。没有任何所谓的侥幸和怀疑。人类永远是往前走的，邪恶一定会被战胜，正义一定像阳光和光明的力量一样存在人间。就像这火一样，不管你多强大，都能把你烧得灰飞弹尽，好啊，真好啊。
-
-This is what we shall believe in – there exists a force higher than human beings. The Americans not only can land on the moon and Mars, but also, I believe, will find another type of force that our human beings need. Any autocracies and evilness will be vanishing, and there is no room for being opportunistic or doubtful. Human beings are always moving forward. The wicked will surely be defeated, and justice will definitely prevail in this world like the sunlight. Just like this fire, no matter how big and strong you are, you will be burnt down and disappear in smoke and ash. Wonderful! So wonderful!
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-
-视频来源：[https://gtv.org/getter/60395d191958515902379c61](https://gtv.org/getter/60395d191958515902379c61)
-
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/934779/](https://gnews.org/zh-hans/934779/)
-
-翻译：【guocamole(文金欠)】校对：【Isaiah4031】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+审核\上传：文粤
 
 0

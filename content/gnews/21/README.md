@@ -1,39 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 时隔一年，重看武汉上空二氧化硫含量
-` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/937423/)
+## 【军事快讯】冻干技术与生物战剂之武器化
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/937587/)
 
-##### 作者：庚子
+作者：纽约香草山 billwilliam 校对/发稿：飞虹
 
-2020年2月8日，根据国际数据提供商“Windy”追踪的数据，中国武汉市周围的大气中包含大量有毒物质二氧化硫（SO2）,遥遥领先其它城市，高达1700ug/㎥，重庆也高达惊人的800ug/㎥。二氧化硫是常见的硫化物，是石油、碳、天然气与生物类有机物等的燃烧都会产生该化合物。正常情况下80ug/㎥即为危险级别，时值中国春节，绝大多数工厂已停工停产，出现如此高浓度极为反常，推友“Interlwave”推断此现象很可能与大量焚烧新冠肺炎（中共生化武器）死者遗体有关，其推测要烧掉1.4万具尸体才能达到这样的排放量。
-![](https://lh5.googleusercontent.com/WD5L4xbtw-qq-KMXUw7Tmt697n4ifHhyWERdcD1Q-TdKwDYcdo5ZfA-5stuDX62LrnJ7YLuHb5mSyBpbK8LoW1TPJWYRBIqLcXCORS0ug1GBpdEkSnJ46VALUnKH42SUVlHym2g)
-*（2020年2月8日武汉二氧化硫SO2浓度，来源：Windy）*
-![](https://lh3.googleusercontent.com/WXW9yMGySfGKvYMD774HQ29LN7immuE0G92G5z_CVn8ohNVl6Hyb7PBiH4t6rHidXpyk60fsGKR7rOFjbqeJzXz6UJQzqns-jtytCu1XXkBX7B4X6hnw9K2UI_RRw28Sa3QCjYM)
-时隔一年，我们再看今日武汉上空的二氧化硫浓度，这个推测是否能得到验证？
-![](https://lh5.googleusercontent.com/sORLNiUWgYOg3tigGUqSucGvdr1iMlhspOAq5xtMyqCbp8r2TpCZvQqvzAnTxOcMzACZwn9vZk0zKcAhVmJU-zxjJ-BJjuyC33CNskvnrATWLOy_TPQrbn36TUjb4UOJFDIBpmU)
-*（2021年2月26日武汉二氧化硫SO2浓度，来源：Windy）*
-
-从浓度颜色浅淡很明显地看到，武汉及重庆两地的二氧化硫浓度相对于北方大面积地区是极低的（5.05mg/㎡），何况现在企业也大都复产。与当时中共病毒起初在停工停产情况下武汉肆虐时的数据对比，很好的佐证了“Interlwave”焚烧尸体的推测。
-![](https://lh4.googleusercontent.com/eNYVm58CTtCVkHEelt2-nXaCq7gfbAK0y5db-qNsN524VdDALDPSuZ6H_K_DSWlotaEcqMZ5GelMhzGhsNHLqkazqZpomaGRnWPVXglRhPebxyNUfg-tFwmaV6LB1-fbRR9p41c)
-（2021年2月26日武汉二氧化氮NO2浓度，来源：Windy）
-
-另外，数据提供商Windy一直以ug/㎥为NO2和SO2的浓度计量单位，但此时却改为以mg/㎡为SO2的浓度计量单位，让人很难跟去年SO2浓度做对比。但是却依然以ug/㎥为NO2的浓度计量单位。同样的气体浓度却以两种不同的单位计算浓度，这是不合逻辑的。可以断定这里面一定有中共的“蓝金黄”在做手脚，但是这样却更显得欲盖弥彰，更使人相信不仅当时的武汉，重庆也在大量烧人。而重庆的大量焚烧尸体从侧面也可以证实中共病毒在很早就已经传播开来。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
 
 
-2021年2月26日
+近日，笔者在徐德忠主编的生物战书籍《非典非自然起源和人制人新种病毒基因武器》的第二章上发现了一句非常奇怪的话，所以写这篇文章分享一下。
 
-【参考来源】
+![]()![](https://gnews.org/wp-content/uploads/2021/02/1600px-WMD_world_map.png)
 
-【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+该书的第二章主要介绍生物武器的特点、优点以及投放生物战剂最佳的方法、时间、天气。用最通俗的话讲就是怎么投毒。然后在第59页有以下这句话：
+![]()![](https://gnews.org/wp-content/uploads/2021/02/图片1-72.png)
+那么什么是冻干技术（freeze drying）呢？这是一种非常普遍的用来储存生物样品和食品的方法。大家可能有人吃过冻干技术做成的水果干（这个相对于腌制的蜜饯更能保持水果的形状）。它的主要操作流程就是先在低温下将样品冷冻，然后抽真空，使冰在真空下慢慢挥发，这个过程叫升华。大约20～30小时后，如果是生物武器的话，生物战剂的干燥粉末就制成了。在低温下脱水可以有效保护病毒等对温度敏感的病原体。然后通过喷洒干粉可以在目标上空形成生物战剂的气溶胶。喷洒的方式多种多样，书里说可以是飞机、汽车、船只。
 
-**欢迎战友加入旧金山金喜准农场**
+通过冻干技术制成干粉会大大加强病毒耐受较高温度的能力。打个比方说，干燥的牛肉干比新鲜牛肉更能长久保存。生物战剂在投放过程中可能会遇到比较高的温度，那么液体态的病毒可能会在短时间内失效，而干粉能维持更长时间，这就实现了生物战剂的武器化。而且病毒干燥粉末在冷藏条件下储存的时间也比冷冻液体时间长。武器化的生物战剂干粉从某种意义上具体实现了“招之即来，来之能战，战之能胜”。
 
-[旧金山金喜准农场 GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+当然，除了直接喷洒气溶胶，徐德忠的书还提到释放携带病毒的动物来投放“生态型基因武器”，让动物成为病原体的贮存宿主。
 
-[旧金山金喜准农场 Discord](https://discord.gg/QQzQ79grEA)
+那么对于中共新冠病毒的投毒方式大概有四种猜测：（1）病毒液体喷洒；（2）病毒干粉喷洒； （3）释放携带病毒的动物；（4）利用感染病毒的人进行“人肉”传播。
 
-[旧金山金喜准农场 Twitter](https://twitter.com/sf_himalaya) 【**责任编辑**】：舊金山文宣组
+需要指出目前的新冠疫情存在很多疑点:
+
+- 如果是投放动物传播病毒，那么第一轮感染的患者应该有某种动物的接触史，目前这方面没有新闻报道。
+- 美国等国在2020年初曾颁布命令限制来自武汉的航班，但是疫情仍然大爆发。对于旅行者传播病毒这种假设不能完全解释美国的严重疫情。
+- 目前因为英国等国对中共种族灭绝犯罪行为态度强硬，病毒疫情反而有所下降。那么为什么疫情和政治状况有关系？这个用普通人传人的流行病学模型不能解释。
+- 川普总统、英国王子和朱利安尼等重要人士不幸感染中共病毒，为什么病毒能进行精确打击？这个不正常。
+- 很多疫情爆发出现在老人院，这里的老人不应该和旅行者或者野生动物有密切接触。当然，护工感染病毒并成为超级传染者是有可能的。
+
+
+最后，笔者没有这方面的情报，不知道到底中共是怎么投毒的，只是觉得中共病毒疫情有可疑的地方。
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
