@@ -1,17 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共掩盖全部真相，就像苏联在切尔诺贝利事件中一样
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/937360/)
+## 【每日快讯】27/02/2021:辛丑年是中国经济，政治大革命年
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/937490/)
 
-【精选一】2/26/2021中共掩盖全部病毒真相，就像苏联在切尔诺贝利事件中一样
+**制作:Cantonese工作室**
+播报: 【美国小李】
+资料收集: 【文林】【Ruby】【An】【美国小李】
+视频制作: 【Shawn】
+海报制作: 【侬民】
+上传: 【Shawn】
+**摘要:**
 
-【精选二】2/26/2021由于中共在病毒上缺乏透明度，世界必须让中共国对我们的苦难负责
-
-【精选三】2/26/2021美国有很多方法可以让中共为它的所作所为负责
-
-By： 【秘密翻译组 G-Translators】
-
-
-
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210227-zhTW-01.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210227-zhTW-02.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210227-zhTW-03.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210227-zhTW-04.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210227-zhTW-05.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/20210227-zhTW-06.jpg)
 0
