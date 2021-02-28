@@ -1,33 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 非死不可（Facebook）给澳洲政府跪下了
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/937702/)
+## 科学家发现CCP病毒的“全天然”疗法，可预防重症患者的 “细胞因子风暴”
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/937691/)
 
-【日本东京方舟农场】作者：青衣 素材采编：武汉老温 校对：文小律
+翻译：康州盘古农场 – 一花一世界
+校对：康州盘古农场 – Freeearth
+编辑：康州盘古农场 – Antsee-GTV
 
-澳洲政府早前宣布将推出一项新法案，规定Facebook、Google等网络平台日后引用澳洲媒体的新闻内容时，必须先向媒体付费。Facebook随即对此做出反击报复，于上周禁止了澳洲用户在其平台上查看和分享新闻。此举在澳洲当地掀起轩然大波，各界纷纷发出谴责。澳大利亚国库部长弗赖登伯格(Josh Frydenberg)在一次媒体会议上表示：“Facebook做错了。该公司的行为是不必要的，他们的鲁莽将损害自己在澳大利亚的声誉。”
+![DNA]()![DNA](https://gnews.org/wp-content/uploads/2021/02/FullEpisode_636758_1920x1080.jpg)
 
-看上去Facebook这次是想要与澳洲政府硬杠。然而在事件发酵仅5天后，澳洲政府正式宣布通过法案时，Facebook却突然软了下来，马上与澳洲政府和解，宣布解除封锁，并表示正在与三家媒体公司达成初步共识。在影响到自身利益时，之前趾高气扬不可一世的Facebook立马就跪下了。
+据《零对冲》泰勒·杜登(TYLER DURDEN) 2月26日报道：
 
-此次澳洲政府成功要求Facebook和Google等网络平台为新闻付费，不仅为当地传统新闻业带来更多收入，也会为媒体生态带来正面影响。这项法案的通过在全球范围内受到广泛关注，并可能为其他国家提供一种模式，以迫使科技巨头为内容付费。据闻加拿大也会照此跟随，预计日后将给更多国家带来参考价值。
+来自以色列和冰岛的科学家团队发表了一份新的报告，显示螺旋藻类的提取物可能减轻晚期CCP病毒病例的严重程度。
 
-Facebook利用其大科技媒体公司的背景和资源为所欲为，在其平台上进行资讯和言论审查，封号禁言。就连美国总统川普的言论都受到审查，并且还被封号。尤其在美国大选期间，大面积封杀川普和其支持者的账号，禁止他们发声，有选择性地审查和封锁消息，从某种程度上看，它事实上起到了深度干预和操控美国大选的作用。 此外，Facebook还封禁了美国独立调查记者兼作家比尔·格茨在一年多前发出的有关中共病毒来源真相的报道信息，这无疑是在帮助中共隐瞒真相，它也成了中共病毒危害全球的罪恶帮凶。事实上Facebook在中共大陆是被禁止使用的，然而其创始人兼首席执行官扎克伯格却一直与中共关系密切。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/2-5-80.jpg)
-在向来崇尚新闻与言论自由的美国，像Facebook这类的科技巨头，为了其政治目的和经济利益，操控资讯，把持舆论，封号禁言，作恶多端。令人扼腕的是，美国至今还未出台任何举措来制约这些大科技媒体公司的作恶行径。
+这项研究首次发表在名为《海洋生物技术》（Marine Biotechnology）的同行评议杂志上. 该研究发现，**经过光合作用的螺旋藻提取物在抑制细胞因子TNF-a的释放方面有70%的效果**。**TNF-a是免疫系统使用的一种微型信号蛋白**。
 
-然而，多行不义必自毙。Facebook终有一天将受到严惩并最终被市场抛弃。如今，澳洲政府已打响了抗击之战第一枪，全球会有越来越多的正义力量紧随其后，汇集在一起共同对抗这些邪恶势力。
+据《耶路撒冷邮报》（[the Jerusalem Post](https://www.jpost.com/health-science/israeli-researchers-say-spirulina-algae-could-stop-covid-19-deaths-660064)）报道，这项研究是在以色列北部的MIGAL实验室进行的。其研究对象是以色列公司VAXA在冰岛种植和培育的藻类。VAXA公司从欧盟获得资金，用于探索和开发冠状病毒的 “天然 ”治疗方法。
 
-注：本文仅代表作者观点
+在一小部分患者中，感染冠状病毒会导致免疫系统释放过多的TNF-a细胞因子，从而**导致所谓的细胞因子风暴**。该风暴会引起急性呼吸窘迫综合征和其它器官的损害，是CCP病毒患者死亡的主要原因。
 
-参考链接：
+IDC Herzliya可持续发展学院的研究员、该研究的主要作者阿萨夫·扎乔（Asaf Tzachor）说：“**如果能控制或减少TNF-a的过度释放，你最终可以降低死亡率**。”
 
-1.[https://hk.news.yahoo.com/facebook-%E7%B5%82%E5%90%91%E6%BE%B3%E6%B4%B2%E6%94%BF%E5%BA%9C%E8%B7%AA%E4%BD%8E-%E6%81%A2%E5%BE%A9%E6%AD%A3%E5%B8%B8%E6%96%B0%E8%81%9E%E5%A0%B1%E5%B0%8E-154947807.html](https://hk.news.yahoo.com/facebook-%E7%B5%82%E5%90%91%E6%BE%B3%E6%B4%B2%E6%94%BF%E5%BA%9C%E8%B7%AA%E4%BD%8E-%E6%81%A2%E5%BE%A9%E6%AD%A3%E5%B8%B8%E6%96%B0%E8%81%9E%E5%A0%B1%E5%B0%8E-154947807.html)
+在培养过程中，对生长条件进行了调整，以控制藻类的代谢组谱和生物活性分子.扎乔将其称为 “增强型 ”藻类。
 
-2.[https://twitter.com/epochtimesau/status/1364357591241949184](https://twitter.com/epochtimesau/status/1364357591241949184)
+与此同时，在其它与以色列相关的CCP病毒新闻中，据报道，本雅明·内塔尼亚胡总理已经与巴林王储达成协议，以色列将加入中东国家开发本国疫苗的集体实验。
 
-3.[https://twitter.com/BillGertz/status/1364376459561873409](https://twitter.com/BillGertz/status/1364376459561873409)
+正在寻求3月23日连任的内塔尼亚胡周三表示，他正在与辉瑞公司和摩德纳公司的负责人进行谈判，拟在以色列开放设施，致力于在选举日到来之前让几乎所有的以色列人口都接种疫苗以有效地结束危机。
 
-4.[https://twitter.com/WSJ/status/1364076626284326915](https://twitter.com/WSJ/status/1364076626284326915)
+原文作者: 泰勒·杜登(TYLER DURDEN)
 
-0
+原文链接： [https://www.zerohedge.com/markets/israeli-scientists-discover-all-natural-covid-treatment](https://www.zerohedge.com/markets/israeli-scientists-discover-all-natural-covid-treatment)
+
++1
