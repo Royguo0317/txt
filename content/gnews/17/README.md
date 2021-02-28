@@ -1,47 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共匪在台湾是真要有动作
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/936651/)
+## 中共国试图在没有梵蒂冈的许可下任命主教
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/936708/)
 
-新闻简述：在2021年2月4日的盖特视频中，郭先生劝说台湾战友离开台湾，因为据中共内部战友的情报，“共匪在台湾是真要有动作”。但是同时他也说：“说实在话，共匪一打台湾，共匪就结束了。”
+#### 作者 : 泽维尔-勒诺曼 Xavier Le Normand 中文翻译：小蜜蜂
 
-**共匪在台湾是真要有动作**
+#### 校对、封面：Ikonic
 
-**The CCP Is Seriously Considering Taking Actions in Taiwan**
+原文发表日期18/02/2021 06 :20
+![]()![](https://gnews.org/wp-content/uploads/2021/02/cover-39.png)
+在宗教神职人员的新规定中，中共国政府似乎想在任命天主教主教问题上越过梵蒂冈。然而，在书面规则和实际操作上总存在一些差异。
 
-就是台湾的战友，我的大牛兄弟，我的台湾巴黎妹妹，我们的台湾大帅哥，大美女，你们夫妻两个真的是，跟咱们战友都传达传达，今天刚刚我获得更多信息呀，这是共匪在台湾是真要有动作啊，不行台湾巴黎赶快来美国吧，只要能来，带着咱们战友，七哥保证你们，住的，吃的，工作，就是每年的工资，绝不亚于你在台湾的，只能比那多，不会比那少，七哥保证。
+2018年9月中共国和梵蒂冈达成了协议，并在此后续签了协议，但现在中共政府是否想越过梵蒂冈而私自任命主教？这是在解读5月1日将在中国大陆生效的新《宗教教职人员管理办法》时出现的问题。《管理办法》由中共国宗教事务局于2月9日星期二公布。寒冬杂志将《办法》翻译成英文，这是一本关于中共国宗教自由的杂志。据与北京政府有着密切联系的英文媒体《环球时报》报道，新规定 “强调宗教人员不受外国势力影响的重要性”。在其他向共产党呈文的命令中，该管理办法第三条规定：”宗教教职人员必须热爱祖国，（……）坚持中共国宗教独立自主的原则。
 
-It is about my fellow fighters in Taiwan, like my brother Da-Niu, my sister Taiwan-Paris, a handsome guy, and a stunner. You couple really need to inform all our fellow fighters in Taiwan. I just received more information today: the CCP is seriously considering taking actions in Taiwan. If possible, come to the United States quickly, along with our fellow fighters. As long as you can get here, I will guarantee your accommodations, food, and jobs. Your annual salary will be no less than what you make in Taiwan. It can only be more, not less. I promise.
+特别是关于天主教方面，在第16条中明确了这些规定的具体执行措施。天主教主教是由 “当地天主教团体 “通过 “民主选举 “任命的。
 
-吃的不比台湾差，这你放心，中餐就不行了，七哥吃啥就让你吃啥，这点保证。真的要想想了，台湾的兄弟姐妹们你们真的要想想了，看来啊真是要有事啊，哎呀。说实在话，共匪一打台湾，共匪就结束了。但是想起台湾我的大牛兄弟，巴黎妹妹，还有那么多兄弟姐妹在那，真是担心，还有很多朋友啊，我那李祖原大师虽然是因为懦弱把我给抛弃了，但是他公司李祖源事务所的人，还有李大师我还是很惦记他呀，还有很多兄弟呀，我还是很惦记的呀。
+然后，”天主教主教由中共国天主教主教团批准和任命”。既没有提到梵蒂冈也没有提到教皇。 而根据天主教的传统，主教一直是由教皇任命的，那么现在中共国可以在没有教皇许可的情况下任命主教吗 ? 这一直是罗马和中共之间的争论焦点。对中共来说，长期以来，教皇任命主教被视为干涉其内政，与其希望 “独立自主的宗教 “政策形成鲜明的对比，但2018年9月，中共国就这一棘手问题和教皇达成了协议。根据教宗方济各的解释，今后主教的任命将是双方 “对话 “的结果。自协议签署以来，一些主教得到了罗马和中共国的任命和承认。
 
-The food will be no worse than Taiwan if not considering Chinese cuisine, so no worries about this. You will eat as well as I do, which is guaranteed. It is really time for you to think about this. Brothers and sisters in Taiwan, you really need to think about it. It seems that something is really going to happen. Truly I tell you, once the communist bandits attack Taiwan, the CCP will be finished. However, it worries me when thinking of my brother Da-Niu, my sister Taiwan-Paris, and so many brothers and sisters in Taiwan. There are also many other friends in Taiwan, like Master Chu-Yuan Lee. Although he abandoned me because of his cowardice, I am still concerned about him and the staff in his firm – the C.Y. Lee & Partners. There are many brothers out there that I still care about.
+不过，据美国天主教网站 “柱子 “匿名采访的中共国神父表示，新规定应该不会真正意义上和协议对立，没有教皇的授权，主教祝圣不应该进行。《支柱》的一个消息来源解释说，在这些行政措施中提及该协议，”将意味着公开承认一个外国势力的[干预]”，这和中共国的一个民族宗教的意愿是背道而驰的。因此，没有明确提到梵蒂冈，并不意味着它一定会被排除在外。
 
-这几天发生了各种迹象，内部战友的各种情报，台湾真是不妙，真是不妙，如果是共产党在台湾这一动手，生灵涂炭，血流成河呀。这就是疯狂啊。中国历史上的政治斗争，绝大多数都是朝廷的内斗，现在可悲的是几千年后，中共中国人要不打中国人，只杀中国人的故事一次一次重演，天天说中国人不打中国人，在香港把中国同胞，香港同胞，全扔海里去了，扔海里还得轮了强奸了，掏肛。成天说对着台湾喊，中国人不打中国人，天天吓得半死。这回可能真的是不打台湾人，是杀台湾。
-
-In the past few days, there were all kinds of signs and all kinds of intelligence from fellow fighters inside the CCP, which are really not good for Taiwan, really not good. If the CCP indeed attacks Taiwan, there will be mass casualties and a lot of blood will be shed. This is insane. The vast majority of the political struggles in Chinese history have been internal strifes in the imperial court. Sadly, thousands of years later, the CCP’s story of “Chinese do not fight Chinese, only kill Chinese” has been a recurring theme. The CCP says that the Chinese do not oppose Chinese on a daily basis, but in Hong Kong, it threw many Chinese and Hong Kong compatriots into the ocean after gang-raping them and humiliating them. The CCP always propagandized to Taiwanese that Chinese people do not fight Chinese, whereas the Taiwanese are scared half to death every day. This time they may not fight Taiwanese, but to kill Taiwanese.
-
-你说咋弄？这真没办法，这流氓土匪，七哥要是有本事，如探囊取物一样，就把他给捏死在中南坑这些老杂毛，七哥马上就干哪，是吧？现在七哥是干着急啊，担心哪。但是刚刚我在运动的时候，咱们内部战友说，让台湾的战友能离开台湾就离开吧，弄得我心里戈登戈登的，所以说赶快拿起来手机录一段，盖特一下子。哎呀，兄弟姐妹们，共产党真疯了，我就很难想象，连猪都不如的智商几个老杂毛，想统治世界？这到底是世界要灭他？还是他自己要灭自己？不管谁要灭他，他能不能少祸害这些老百姓呢？没法弄，没法弄，兄弟姐妹们。
-
-What can you say? There is no way to deal with these rogue bandits! If I had magical powers, I would have crushed those old bastards of the CCP who live in the Zhongnan Pit in no time, right? But now I can do nothing but be anxious and worried. A moment ago, while I was working out, a friend inside the CCP told me to ask our fellow fighters leave Taiwan if they can. These words are disturbing to me, so I quickly picked up my phone and recorded a Getter video. Aiya, brothers and sisters, the CCP is really crazy! I can’t imagine that those old bastards who are less intelligent than pigs want to rule the world?  Is the world trying to destroy them? Or are they destroying themselves? No matter who wants to destroy them, can they do less harm to the old hundred names? Well, it’s absurd, brothers and sisters.
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-
-视频来源：[https://gtv.org/getter/601ca75ff5b9e26ca9d841e2](https://gtv.org/getter/601ca75ff5b9e26ca9d841e2) (4:59-8:40)
-
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/880326/](https://gnews.org/zh-hans/880326/)
-
-参考链接：[https://gnews.org/902785/](https://gnews.org/902785/)
+[原文链接](https://www.la-croix.com/Religion/Chine-tentee-nommer-eveques-sans-Vatican-2021-02-18-1201141333)
 
 * * *
 
-翻译：【rainbow】校对：【Isaiah4031】【BruhM】字幕：【奔腾的长江】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+*发布：法国巴黎七星农场编辑部*
 
 0

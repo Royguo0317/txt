@@ -1,16 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年2月27日 文贵先生盖特 1
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/936313/)
+## 2021年2月27日 文贵先生盖特 4
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/936362/)
 
 编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
 
+2月27日：这个视频中的老师！就是共产主义的邪恶！阶级斗争的结果，我们所有的中国的草根……都是这个邪恶的阶级斗争的牺牲品…不灭共！任何人都没有尊严和安全！
 
 
 
-
-[【2021年2月27日】文贵先生盖特原文](https://gtv.org/getter/603a6bb1195851590237df94)
+[【2021年2月27日】文贵先生盖特原文](https://gtv.org/getter/603a7bd6195851590237e51d)
 
 **喜联盟Gnews编辑部**
 
