@@ -1,47 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 人类永远是往前走的，邪恶一定会被战胜
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/937215/)
+## 中共外交部的撒泼行为让人无语
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/937223/)
 
-新闻简述：在2021年2月26日的盖特视频中，郭先生背靠着火炉，面对着大雪，感慨万千：“上天是公平的，用了美国大选，用了整个的种族大屠杀、反人类罪，新中国联邦爆料革命、香港事件、威胁台湾，唤醒世界的人民，你不得不说上天的安排，都是如此的美好和美妙。”
-[下载字幕](https://gnews.org/wp-content/uploads/2021/02/Miles_20210226-Getter1.srt.txt)
-**人类永远是往前走的，邪恶一定会被战胜**
+撰稿：自由战士
 
-**Human Beings Are Always Moving Forward; The Wicked Will Surely Be Defeated**
+编辑：MG4
+![]()![](https://gnews.org/wp-content/uploads/2021/02/外交部.png)
+（图片来自网络）
 
-熊熊的烈火，真棒啊，然后你看外面的大雪，然后这里是熊熊的烈火，欲望之火。
+2月25日，外交部发言人赵立坚主持例行记者会。
 
-Blazing fire, awesome! And you look at the heavy snow outside while the flame, the flame of lust, is burning here. Ho-ho!
+有记者提问，近期，一些西方国家在人权理事会第46届高级别会议上，借涉疆问题指责中国侵犯人权，中方代表也作出了批驳。发言人对此有没有进一步的评论？
 
-真舒服，喝杯茶，吃个元宵，熊熊的烈火，你说想啥呀？饱暖思淫欲啊，人家在那玩接班人那，咱也玩不了什么接班人，只能玩火了，太棒了兄弟姐妹们，美好的生活。
+随后赵立坚的泼妇般的回答，真是让人大跌眼镜。为了掩盖事实，谎言一个接一个。
 
-Aiya, so comfy! After a cup of tea and some glutinous rice balls, sitting by the blazing fire, what’s the next thing that comes in your mind? [A Chinese slang:] When one is well-fed and well-clad, he or she will seek sexual gratification! They [those old bastards in the Zhongnan Pit] are fighting each other for the successorship, while that’s not something that we can play with. We can only play with fire! Ho-ho! Fantastic, brothers and sisters. What a beautiful life!
+造谣动动嘴，辟谣跑断腿。”赵立坚表示，所谓新疆存在“种族灭绝”等问题，在事实面前不堪一击。
 
-我在这边看，来自于世界各地的，关于以毒灭共的、以钱灭共的各种信息，感慨万千。共产党真是完球蛋了，它会像后面的木头一样，给烈火彻底的烧灭，彻底的消灭。这是没有任何悬念的，对吧？兄弟姐妹们？
+如果需要事实，可以把新疆给大家开放，让大家到现场一探究竟，总是靠嘴皮子胡乱吹嘘，不敢面对现实。
 
-While staying here, I have been reading all sorts of information on taking down the CCP by the virus and financial activities from all over the world, and I’ve got all sorts of feelings welled up in my mind. The CCP is truly going to have their balls destroyed. Just like this piece of wood back there, it will be burnt completely from top to the ground. There is no doubt in that, right? Brothers and sisters?
+在最近以美国为首的对中共的灭绝种族罪行进行确认后，西方社会，多个国家立即跟进发声。现在邪恶的中共国就是靠着无赖的行径在墙内自嗨以外，其他毫无建树。清醒的海外世界，已经把中共的邪恶逐渐扒开让他公之于众。如果不想让人知道，就不要做，一切都是为真不破。中共以为自己在新疆的大屠杀和对百姓的监控不会让外界知道，殊不知，现在的高科技全部被美国掌控，监控的点子设备，以美国现在的技术可以随时查到你的所有行径。听七哥过去的视频中说到：陈峰的双休视频都可以高清播放。何况你对百姓的监控了。现在对邪恶中共的罪行，我猜测美国已经全部100%掌控，现在就是需要制造舆论，让媒体和全球的人们对真相的了解，然后把正义的力量全部唤醒，让大家彻底看清这个邪恶的魔鬼政权是怎么对待他的子民的，而且中共用同样的方法在慢慢吞噬着全世界。我们可以看到最近的缅甸的游行，政府对百姓的镇压跟香港如出一辙，背后的邪恶力量大家可以猜想到是谁。
 
-所以说真舒服，越是在这个时候我越想，上天是公平的，用了美国大选，用了整个的种族大屠杀、反人类罪，新中国联邦爆料革命、香港事件、威胁台湾，唤醒世界的人民，你不得不说上天的安排，都是如此的美好和美妙。但凡有真正信仰的人，都会知道上天在干什么，是吧？因为上天在惩罚恶人，没有人可以挡得住，没有人，没有人。
+外交部的这个窝里横的行为，也就可以在墙内对百姓洗脑而已，外面的世界对他的撒泼表演就跟跳梁小丑一样，但是随着爆料革命的信息不断的输入墙内，大多数的百姓被唤醒，体制内的战友被集结。今年的一共灭共的趋势无法阻挡。最后我们自己的事情，还是需要我们华夏儿女来完成。
 
-So, aiya, so comfy! At this moment, I believe more and more that God is fair. He has used the US election, the genocide, the crimes against humanity, the New Federal State of China (NFSC) and Whistleblower Movement (WM), the Hong Kong crisis and the [CCP’s] threatening of Taiwan to wake up people all around the world. You have to say that God’s plan has always been wonderful and beautiful. Anyone who has got true belief would understand what God is doing, right? That’s because God is punishing the wicked, and nobody can stand in His way, no one, not a single person.
-
-这就是我们要相信的，我们人类之外的一种力量。美国人不但能上月球，也不仅仅能上火星，我相信会找到我们人类上所需要的另外一种力量，任何独裁和邪恶都将消失殆尽。没有任何所谓的侥幸和怀疑。人类永远是往前走的，邪恶一定会被战胜，正义一定像阳光和光明的力量一样存在人间。就像这火一样，不管你多强大，都能把你烧得灰飞弹尽，好啊，真好啊。
-
-This is what we shall believe in – there exists a force higher than human beings. The Americans not only can land on the moon and Mars, but also, I believe, will find another type of force that our human beings need. Any autocracies and evilness will be vanishing, and there is no room for being opportunistic or doubtful. Human beings are always moving forward. The wicked will surely be defeated, and justice will definitely prevail in this world like the sunlight. Just like this fire, no matter how big and strong you are, you will be burnt down and disappear in smoke and ash. Wonderful! So wonderful!
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-
-视频来源：[https://gtv.org/getter/60395d191958515902379c61](https://gtv.org/getter/60395d191958515902379c61)
-
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/934779/](https://gnews.org/zh-hans/934779/)
-
-翻译：【guocamole(文金欠)】校对：【Isaiah4031】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
-
-0
+（本文中观点只代表个人观点）
+![]()![](https://gnews.org/wp-content/uploads/2021/02/澳喜图标2-6.jpg)
++1
