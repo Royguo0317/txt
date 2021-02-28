@@ -1,47 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 人类永远是往前走的，邪恶一定会被战胜
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/937215/)
+## 【粤语】2/26/2021文贵：什么叫江湖？什么叫沼泽地？会否出现新的林彪事件？
+` Caihongqiao` [轉載自GNews](https://gnews.org/zh-hans/937241/)
 
-新闻简述：在2021年2月26日的盖特视频中，郭先生背靠着火炉，面对着大雪，感慨万千：“上天是公平的，用了美国大选，用了整个的种族大屠杀、反人类罪，新中国联邦爆料革命、香港事件、威胁台湾，唤醒世界的人民，你不得不说上天的安排，都是如此的美好和美妙。”
-[下载字幕](https://gnews.org/wp-content/uploads/2021/02/Miles_20210226-Getter1.srt.txt)
-**人类永远是往前走的，邪恶一定会被战胜**
+制作：Cantonese工作室
 
-**Human Beings Are Always Moving Forward; The Wicked Will Surely Be Defeated**
 
-熊熊的烈火，真棒啊，然后你看外面的大雪，然后这里是熊熊的烈火，欲望之火。
 
-Blazing fire, awesome! And you look at the heavy snow outside while the flame, the flame of lust, is burning here. Ho-ho!
+统筹：【文武全才】 剪輯：【文德】 【彩虹桥】 配音：【John Chen】 文本：【铁锅侠】 字幕：【彩虹桥】
 
-真舒服，喝杯茶，吃个元宵，熊熊的烈火，你说想啥呀？饱暖思淫欲啊，人家在那玩接班人那，咱也玩不了什么接班人，只能玩火了，太棒了兄弟姐妹们，美好的生活。
+2021年2月26日：什么叫江湖？什么叫沼泽地？会否出现新的林彪事件？
 
-Aiya, so comfy! After a cup of tea and some glutinous rice balls, sitting by the blazing fire, what’s the next thing that comes in your mind? [A Chinese slang:] When one is well-fed and well-clad, he or she will seek sexual gratification! They [those old bastards in the Zhongnan Pit] are fighting each other for the successorship, while that’s not something that we can play with. We can only play with fire! Ho-ho! Fantastic, brothers and sisters. What a beautiful life!
+二十大就是这样决定，我百分之百我代表着人民，江湖属于人民的，人民的代表就是我。那就是人民和江湖都是我的。那麽我指定的所有接班人。那就是人民的接班人。人民的接班人。那就是江湖的主人。江湖的主人，江湖是谁呀? 江山和江湖就是沼泽地。沼泽地这个词翻译过来就叫江湖，就叫江山。啥叫江山？啥叫江湖？啥叫沼泽地?我就告诉你那就是一个词儿，老大。
 
-我在这边看，来自于世界各地的，关于以毒灭共的、以钱灭共的各种信息，感慨万千。共产党真是完球蛋了，它会像后面的木头一样，给烈火彻底的烧灭，彻底的消灭。这是没有任何悬念的，对吧？兄弟姐妹们？
+天下万物江湖的老大，制定规则、修宪改宪、制定宪法、互宪，都是他说啦算的，叫沼泽地，就叫今天的江湖。你可以说政治江湖、金融江湖，这个电影江湖、名人江湖，但这就叫江湖，江湖就是沼泽地，江湖就是今天所说的世界的老大，就是习和江家的江湖之斗，没有一派绝对说了算。
 
-While staying here, I have been reading all sorts of information on taking down the CCP by the virus and financial activities from all over the world, and I’ve got all sorts of feelings welled up in my mind. The CCP is truly going to have their balls destroyed. Just like this piece of wood back there, it will be burnt completely from top to the ground. There is no doubt in that, right? Brothers and sisters?
+江志诚投资的几个虚拟货币在日本，还有在新加坡的那个交易市场，听说江志诚要大乾，但是听说习警告他了，你不能再搞虚拟货币挑战国家主权货币，说我搞的是商业虚拟货币呀，不是国家主权货币呀，还在较量中。江家也知道你拿虚拟货币搞美元，老子拿虚拟货币搞你人民币，江湖还是我江家的嘛。
 
-所以说真舒服，越是在这个时候我越想，上天是公平的，用了美国大选，用了整个的种族大屠杀、反人类罪，新中国联邦爆料革命、香港事件、威胁台湾，唤醒世界的人民，你不得不说上天的安排，都是如此的美好和美妙。但凡有真正信仰的人，都会知道上天在干什么，是吧？因为上天在惩罚恶人，没有人可以挡得住，没有人，没有人。
+所以说这种斗争，大家你们看出来，你觉得会用一直会有两派，你上我下较量中吗？一定不会的，一定会有一派被另外一派乾掉，或者说是借台湾把另外一派乾掉。他这是两虎相争必有一伤，就是七哥2017爆料所说的，在战场上没有一方是赢家，只有打扫战场人的才是赢家，那就是咱新中国联邦。
 
-So, aiya, so comfy! At this moment, I believe more and more that God is fair. He has used the US election, the genocide, the crimes against humanity, the New Federal State of China (NFSC) and Whistleblower Movement (WM), the Hong Kong crisis and the [CCP’s] threatening of Taiwan to wake up people all around the world. You have to say that God’s plan has always been wonderful and beautiful. Anyone who has got true belief would understand what God is doing, right? That’s because God is punishing the wicked, and nobody can stand in His way, no one, not a single person.
-
-这就是我们要相信的，我们人类之外的一种力量。美国人不但能上月球，也不仅仅能上火星，我相信会找到我们人类上所需要的另外一种力量，任何独裁和邪恶都将消失殆尽。没有任何所谓的侥幸和怀疑。人类永远是往前走的，邪恶一定会被战胜，正义一定像阳光和光明的力量一样存在人间。就像这火一样，不管你多强大，都能把你烧得灰飞弹尽，好啊，真好啊。
-
-This is what we shall believe in – there exists a force higher than human beings. The Americans not only can land on the moon and Mars, but also, I believe, will find another type of force that our human beings need. Any autocracies and evilness will be vanishing, and there is no room for being opportunistic or doubtful. Human beings are always moving forward. The wicked will surely be defeated, and justice will definitely prevail in this world like the sunlight. Just like this fire, no matter how big and strong you are, you will be burnt down and disappear in smoke and ash. Wonderful! So wonderful!
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-
-视频来源：[https://gtv.org/getter/60395d191958515902379c61](https://gtv.org/getter/60395d191958515902379c61)
-
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/934779/](https://gnews.org/zh-hans/934779/)
-
-翻译：【guocamole(文金欠)】校对：【Isaiah4031】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+他们只要斗，他只要打，有钱人就把钱往外转。 他只要斗，只要打就有一方被伤，就替我们消耗掉对方。他只要内部不稳定，就有机会發生重大的政治革命和林彪的坠机事件。你咋不知道下一分钟有人什麽坠机了，出访了，一个肩扛式的导弹“叭叽”给搞下来了，是不是呀，新的林彪事件都是有可能的。
 
 0

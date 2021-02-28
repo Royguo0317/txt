@@ -1,47 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共匪在台湾是真要有动作
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/936651/)
+## 中共已在种族大屠杀定性和全世界抵制冬奥会声浪中节节败退
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/936668/)
 
-新闻简述：在2021年2月4日的盖特视频中，郭先生劝说台湾战友离开台湾，因为据中共内部战友的情报，“共匪在台湾是真要有动作”。但是同时他也说：“说实在话，共匪一打台湾，共匪就结束了。”
+#### 撰稿：Maarago 审核：pv0 / Peace Wind
 
-**共匪在台湾是真要有动作**
+中共已经在全世界掀起的对其种族大屠杀的定性和抵制2022年北京冬奥会声浪中节节败退，为什么这么说，让我们先来看一段墙内的视频——
 
-**The CCP Is Seriously Considering Taking Actions in Taiwan**
+据[观察者网](https://weibo.com/1887344341?refer_flag=1001030103_) [02月25日 14:25](https://weibo.com/1887344341/K3yZGpB0L?refer_flag=1001030103_) 来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
 
-就是台湾的战友，我的大牛兄弟，我的台湾巴黎妹妹，我们的台湾大帅哥，大美女，你们夫妻两个真的是，跟咱们战友都传达传达，今天刚刚我获得更多信息呀，这是共匪在台湾是真要有动作啊，不行台湾巴黎赶快来美国吧，只要能来，带着咱们战友，七哥保证你们，住的，吃的，工作，就是每年的工资，绝不亚于你在台湾的，只能比那多，不会比那少，七哥保证。
+【有人要求“抵制北京冬奥”，英国首相：拒绝】24日，有英国议员在下院首相质询中大肆炒作涉疆问题，并以此为借口，呼吁英国抵制2022年北京冬奥会。英国首相约翰逊拒绝了这一要求，称英国“通常”不会抵制体育赛事，“这是本届政府的长期立场”。英国奥林匹克协会（BOA）也表示“完全支持”首相的立场。但约翰逊依旧对所谓的“种族灭绝”问题宣称，英国“正在联合国领导国际行动，让中国承担责任”。[#英首相拒绝抵制北京冬奥会#](https://s.weibo.com/weibo?q=%2523%25E8%258B%25B1%25E9%25A6%2596%25E7%259B%25B8%25E6%258B%2592%25E7%25BB%259D%25E6%258A%25B5%25E5%2588%25B6%25E5%258C%2597%25E4%25BA%25AC%25E5%2586%25AC%25E5%25A5%25A5%25E4%25BC%259A%2523)[L微丢的微博视频](http://t.cn/A6t66QHa) 收起全文d
 
-It is about my fellow fighters in Taiwan, like my brother Da-Niu, my sister Taiwan-Paris, a handsome guy, and a stunner. You couple really need to inform all our fellow fighters in Taiwan. I just received more information today: the CCP is seriously considering taking actions in Taiwan. If possible, come to the United States quickly, along with our fellow fighters. As long as you can get here, I will guarantee your accommodations, food, and jobs. Your annual salary will be no less than what you make in Taiwan. It can only be more, not less. I promise.
+为什么说中共已经进退失据呢？因为本来在只有种族大屠杀定性的时候，中共评判全世界的政治人物是敌是友的标准就是谁否决种族大屠杀定性，谁就是它的朋友，谁推动种族大屠杀定性，谁就是它的敌人。对敌人怎么办？蓝金黄加口诛笔伐再加桌子底下的颠覆；对于朋友怎么办？在我看来那些凡是反对种族大屠杀的政客无一不是已经被中共拿下的政客，中共为拿下这些政客肯定是下了血本的，拿下以后还需要继续支付维持这些政客站台的成本，但是只要是跟中共站在一起的，其重要性已经大打折扣了，因为这些政客已经被收入囊中。而对于支持大屠杀定性的政治人物，中共必须要评判一下如何拿下这些政治人物，不管这些政治人物是有良知的政治家还是流氓政客，总之从重要性方面，没有拿下的政治人物或政客其价值永远要高于已经被拿下的政治人物，也就是说那些想要卖自己的政客们，一定不要对中共轻易说“是”，因为说“不”的价值永远高于说“是”的价值。
 
-吃的不比台湾差，这你放心，中餐就不行了，七哥吃啥就让你吃啥，这点保证。真的要想想了，台湾的兄弟姐妹们你们真的要想想了，看来啊真是要有事啊，哎呀。说实在话，共匪一打台湾，共匪就结束了。但是想起台湾我的大牛兄弟，巴黎妹妹，还有那么多兄弟姐妹在那，真是担心，还有很多朋友啊，我那李祖原大师虽然是因为懦弱把我给抛弃了，但是他公司李祖源事务所的人，还有李大师我还是很惦记他呀，还有很多兄弟呀，我还是很惦记的呀。
+可是一波未平一波又起，本来在种族大屠杀定性的站队方面，各国的政治人物依表态不同或为中共的友或为中共的敌，但是又来了全球抵制2022年北京冬奥会，这就不好办了。本来大家是有一说一的嘛，现在可倒好，现在是有二说二了，那么这下敌友区分就麻烦了，出现了英国首相约翰逊这样的一个半了：本来在种族灭绝问题上约翰逊已经是“敌人”了，现在这个“敌人”又对中共脱掉了上衣，来嘛，和我双修嘛。这就不好办了。中共要是不和约翰逊“双修”的话，万一约翰逊彻底投入“敌营”怎么办？那么还是要修一下嘛，可是要修也心不甘情不愿的，在修之前还要说，你个烂货，你之前还和别人双修呢，所以会有观察者网这样的微博内容。不管怎么样，你总算是还向我投了怀送了抱，总不太算众判亲离嘛，所以，所以，我忝朝也还是从了你吧！
 
-The food will be no worse than Taiwan if not considering Chinese cuisine, so no worries about this. You will eat as well as I do, which is guaranteed. It is really time for you to think about this. Brothers and sisters in Taiwan, you really need to think about it. It seems that something is really going to happen. Truly I tell you, once the communist bandits attack Taiwan, the CCP will be finished. However, it worries me when thinking of my brother Da-Niu, my sister Taiwan-Paris, and so many brothers and sisters in Taiwan. There are also many other friends in Taiwan, like Master Chu-Yuan Lee. Although he abandoned me because of his cowardice, I am still concerned about him and the staff in his firm – the C.Y. Lee & Partners. There are many brothers out there that I still care about.
+但是，这恰恰说明了中共在全世界掀起的种族大屠杀和抵制冬奥会声浪中进退失据，再也没有办法非敌即友了，这同时也让所有想要对中共投怀送抱的流氓政客们手里多了一张勾兑的牌，来嘛，和我双修嘛，你要是不跟我双修，我就，我就，我就不告诉你我要跟谁投怀送抱！本来一带一路攻城掠地的中共现在阵脚已乱，不得不分出更多的神、拿出更多的蓝金黄手段来对这些半推半就的政客们进行拉拢和收买。
 
-这几天发生了各种迹象，内部战友的各种情报，台湾真是不妙，真是不妙，如果是共产党在台湾这一动手，生灵涂炭，血流成河呀。这就是疯狂啊。中国历史上的政治斗争，绝大多数都是朝廷的内斗，现在可悲的是几千年后，中共中国人要不打中国人，只杀中国人的故事一次一次重演，天天说中国人不打中国人，在香港把中国同胞，香港同胞，全扔海里去了，扔海里还得轮了强奸了，掏肛。成天说对着台湾喊，中国人不打中国人，天天吓得半死。这回可能真的是不打台湾人，是杀台湾。
+可是，我们不要忘了，在种族大屠杀和抵制冬奥会之外还有中共冠状病毒，在全人类都在被中共冠状病毒谋杀并且每天都在死人的情况下，那些哪怕是已经表态中共冠状病毒完全是来自自然的政客们，他们能面对爆料革命已经和正在向真相一方靠拢的宗教、文化、知识、科学界和军界吗？他们能挺过爆料革命已经和正在进行的直通沼泽地吗？当这些政客或下台或最终不得不转入向中共要病毒真相的阵营时，中共的一路高歌和攻城掠地还有可能吗？中共正在一步一步的龟缩中。
 
-In the past few days, there were all kinds of signs and all kinds of intelligence from fellow fighters inside the CCP, which are really not good for Taiwan, really not good. If the CCP indeed attacks Taiwan, there will be mass casualties and a lot of blood will be shed. This is insane. The vast majority of the political struggles in Chinese history have been internal strifes in the imperial court. Sadly, thousands of years later, the CCP’s story of “Chinese do not fight Chinese, only kill Chinese” has been a recurring theme. The CCP says that the Chinese do not oppose Chinese on a daily basis, but in Hong Kong, it threw many Chinese and Hong Kong compatriots into the ocean after gang-raping them and humiliating them. The CCP always propagandized to Taiwanese that Chinese people do not fight Chinese, whereas the Taiwanese are scared half to death every day. This time they may not fight Taiwanese, but to kill Taiwanese.
+而且我们不要忘记，这是防火墙内的中共媒体发出的微博，无论其语调多偏颇，但凡有一点点头脑的大陆网民，他们都能从这样的消息中品出一点——中国共产党正在成为全世界的过街老鼠！如果全世界成功抵制2022年冬奥会，那么现在的中共政权将越发连德国纳粹政权也自叹弗如，因为，纳粹政权当年的奥运会至少没有被抵制成功，或者这一次的抵制没有成功，现在的中共政权也已经让德国纳粹政权自叹弗如，因为德国纳粹政权的种族大屠杀是在纳粹被推翻后才定性的，而我“大兲朝”还没进棺材就已经定论了！
 
-你说咋弄？这真没办法，这流氓土匪，七哥要是有本事，如探囊取物一样，就把他给捏死在中南坑这些老杂毛，七哥马上就干哪，是吧？现在七哥是干着急啊，担心哪。但是刚刚我在运动的时候，咱们内部战友说，让台湾的战友能离开台湾就离开吧，弄得我心里戈登戈登的，所以说赶快拿起来手机录一段，盖特一下子。哎呀，兄弟姐妹们，共产党真疯了，我就很难想象，连猪都不如的智商几个老杂毛，想统治世界？这到底是世界要灭他？还是他自己要灭自己？不管谁要灭他，他能不能少祸害这些老百姓呢？没法弄，没法弄，兄弟姐妹们。
+可是让中共进退失据的就只有种族大屠杀定性、抵制冬奥会和以毒灭共吗？当然不是了，进退失据的中共此时最怕的是按下葫芦起了瓢，可是，我们大家都知道G-Coin正在一步一步摧毁中共，以钱灭共正在路上！葫芦和瓢都起来了，这该如何是好呢？丧钟正在敲响，可是在丧钟敲响之前，我们永远可以看到中共一直以来的丧事当作喜事办。何以见得？观察者网不就是把［英国“正在联合国领导国际行动，让中国承担责任”］的丧事办成了［英国首相约翰逊称英国“通常”不会抵制体育赛事］的喜事了吗？
 
-What can you say? There is no way to deal with these rogue bandits! If I had magical powers, I would have crushed those old bastards of the CCP who live in the Zhongnan Pit in no time, right? But now I can do nothing but be anxious and worried. A moment ago, while I was working out, a friend inside the CCP told me to ask our fellow fighters leave Taiwan if they can. These words are disturbing to me, so I quickly picked up my phone and recorded a Getter video. Aiya, brothers and sisters, the CCP is really crazy! I can’t imagine that those old bastards who are less intelligent than pigs want to rule the world?  Is the world trying to destroy them? Or are they destroying themselves? No matter who wants to destroy them, can they do less harm to the old hundred names? Well, it’s absurd, brothers and sisters.
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-
-视频来源：[https://gtv.org/getter/601ca75ff5b9e26ca9d841e2](https://gtv.org/getter/601ca75ff5b9e26ca9d841e2) (4:59-8:40)
-
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/880326/](https://gnews.org/zh-hans/880326/)
-
-参考链接：[https://gnews.org/902785/](https://gnews.org/902785/)
+（文章内容仅代表作者个人观点）
 
 * * *
 
-翻译：【rainbow】校对：【Isaiah4031】【BruhM】字幕：【奔腾的长江】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+*发布：法国巴黎七星农场编辑部*
 
 0

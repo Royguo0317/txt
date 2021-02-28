@@ -1,43 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 霍利议员：没有言论自由我们国家不复存在
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/936615/)
+## 共匪在台湾是真要有动作
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/936651/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+新闻简述：在2021年2月4日的盖特视频中，郭先生劝说台湾战友离开台湾，因为据中共内部战友的情报，“共匪在台湾是真要有动作”。但是同时他也说：“说实在话，共匪一打台湾，共匪就结束了。”
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-02-27_23-03-47.jpg)[nationalreview.com](https://www.nationalreview.com/2019/05/josh-hawley-attacks-silicon-valley-elites/)
-密苏里州参议员霍利（Josh Hawley）周五在CPAC大会的讲演中，敦促共和党同僚，支持拆分审查政治观点，以及“把我们出卖给中共国”的大科技“寡头”公司。他指出，“如果我们不能在这个国家进行自由和公开的辩论，我们的国家就不复存在了。”
+**共匪在台湾是真要有动作**
 
-霍利参议员呼吁建立一种“新的民族主义”，收回泰迪·罗斯福（Teddy Roosevelt）时代共和党人破坏信誉（反托拉斯）的言论，与大公司和民主党人进行斗争，（当时的共和党人）传递了这样一个错误的信息，即美国是“系统性的种族主义者”，“建立在谎言和邪恶之上”。
+**The CCP Is Seriously Considering Taking Actions in Taiwan**
 
-“这些现代寡头不会告诉我们该怎么办。“ 霍利参议员在CAPC大会上发表讲话时说，“我们需要的是一个新的民族主义，一个新的议题，让这个国家真正实现由人民来管理。”
+就是台湾的战友，我的大牛兄弟，我的台湾巴黎妹妹，我们的台湾大帅哥，大美女，你们夫妻两个真的是，跟咱们战友都传达传达，今天刚刚我获得更多信息呀，这是共匪在台湾是真要有动作啊，不行台湾巴黎赶快来美国吧，只要能来，带着咱们战友，七哥保证你们，住的，吃的，工作，就是每年的工资，绝不亚于你在台湾的，只能比那多，不会比那少，七哥保证。
 
-“我会从拆分大型科技公司开始，把他们分开，为了美国人民的利益和我们的自由，以人民管理政府的名义分解他们，我们需要把这些公司拆分，缩小规模。”
+It is about my fellow fighters in Taiwan, like my brother Da-Niu, my sister Taiwan-Paris, a handsome guy, and a stunner. You couple really need to inform all our fellow fighters in Taiwan. I just received more information today: the CCP is seriously considering taking actions in Taiwan. If possible, come to the United States quickly, along with our fellow fighters. As long as you can get here, I will guarantee your accommodations, food, and jobs. Your annual salary will be no less than what you make in Taiwan. It can only be more, not less. I promise.
 
-霍利列举了社交媒体对保守派的审查，包括1月6日国会大厦骚乱后对川普总统的审查。
+吃的不比台湾差，这你放心，中餐就不行了，七哥吃啥就让你吃啥，这点保证。真的要想想了，台湾的兄弟姐妹们你们真的要想想了，看来啊真是要有事啊，哎呀。说实在话，共匪一打台湾，共匪就结束了。但是想起台湾我的大牛兄弟，巴黎妹妹，还有那么多兄弟姐妹在那，真是担心，还有很多朋友啊，我那李祖原大师虽然是因为懦弱把我给抛弃了，但是他公司李祖源事务所的人，还有李大师我还是很惦记他呀，还有很多兄弟呀，我还是很惦记的呀。
 
-“像谷歌、脸书这样的人，你听说过吗？推特，这些公司比美国历史上任何一家公司都拥有更大的权力，他们与激进的左派结盟，试图把自己的观点强加给这个国家。” “他们想管理这个国家，如果我们不采取行动，他们就会实现。我们有话要说，这叫做寡头政治，这就是我们现在美国所面临的。”
+The food will be no worse than Taiwan if not considering Chinese cuisine, so no worries about this. You will eat as well as I do, which is guaranteed. It is really time for you to think about this. Brothers and sisters in Taiwan, you really need to think about it. It seems that something is really going to happen. Truly I tell you, once the communist bandits attack Taiwan, the CCP will be finished. However, it worries me when thinking of my brother Da-Niu, my sister Taiwan-Paris, and so many brothers and sisters in Taiwan. There are also many other friends in Taiwan, like Master Chu-Yuan Lee. Although he abandoned me because of his cowardice, I am still concerned about him and the staff in his firm – the C.Y. Lee & Partners. There are many brothers out there that I still care about.
 
-霍利说，共和党虽然长期被视为商业党，但也有破坏信用的历史——回顾罗斯福领导的对大公司的指控，（那件事）帮助了共和党在1912年的分裂，即罗斯福领导的派系和他的继任者威廉·霍华德·塔夫脱（William Howard Taft）（的分裂）。
+这几天发生了各种迹象，内部战友的各种情报，台湾真是不妙，真是不妙，如果是共产党在台湾这一动手，生灵涂炭，血流成河呀。这就是疯狂啊。中国历史上的政治斗争，绝大多数都是朝廷的内斗，现在可悲的是几千年后，中共中国人要不打中国人，只杀中国人的故事一次一次重演，天天说中国人不打中国人，在香港把中国同胞，香港同胞，全扔海里去了，扔海里还得轮了强奸了，掏肛。成天说对着台湾喊，中国人不打中国人，天天吓得半死。这回可能真的是不打台湾人，是杀台湾。
 
-“共和党，从前我们是反托拉斯党，你知道，我是说，基本上是我们发明了这个概念，是时候收回这一早期概念了。” 霍利说，“是时候放弃这一概念了，不仅是对大型科技企业，而且是对所有把我们出卖给中共国的大型跨国公司，这些跨国公司出卖了我们的工人，出卖了我们的工作。他们需要分开，我们需要在这个国家再次进行自由和公平的竞争。”
+In the past few days, there were all kinds of signs and all kinds of intelligence from fellow fighters inside the CCP, which are really not good for Taiwan, really not good. If the CCP indeed attacks Taiwan, there will be mass casualties and a lot of blood will be shed. This is insane. The vast majority of the political struggles in Chinese history have been internal strifes in the imperial court. Sadly, thousands of years later, the CCP’s story of “Chinese do not fight Chinese, only kill Chinese” has been a recurring theme. The CCP says that the Chinese do not oppose Chinese on a daily basis, but in Hong Kong, it threw many Chinese and Hong Kong compatriots into the ocean after gang-raping them and humiliating them. The CCP always propagandized to Taiwanese that Chinese people do not fight Chinese, whereas the Taiwanese are scared half to death every day. This time they may not fight Taiwanese, but to kill Taiwanese.
 
-霍利参议员说，他因反对对拜登在宾夕法尼亚州的选举进行认证，力争对选举欺诈的指控进行全国审查，而受到了不公平的攻击。
+你说咋弄？这真没办法，这流氓土匪，七哥要是有本事，如探囊取物一样，就把他给捏死在中南坑这些老杂毛，七哥马上就干哪，是吧？现在七哥是干着急啊，担心哪。但是刚刚我在运动的时候，咱们内部战友说，让台湾的战友能离开台湾就离开吧，弄得我心里戈登戈登的，所以说赶快拿起来手机录一段，盖特一下子。哎呀，兄弟姐妹们，共产党真疯了，我就很难想象，连猪都不如的智商几个老杂毛，想统治世界？这到底是世界要灭他？还是他自己要灭自己？不管谁要灭他，他能不能少祸害这些老百姓呢？没法弄，没法弄，兄弟姐妹们。
 
-霍利参议员说，“如果我们不能在这个国家进行自由和公开的辩论，我们的国家就不复存在了。”
+What can you say? There is no way to deal with these rogue bandits! If I had magical powers, I would have crushed those old bastards of the CCP who live in the Zhongnan Pit in no time, right? But now I can do nothing but be anxious and worried. A moment ago, while I was working out, a friend inside the CCP told me to ask our fellow fighters leave Taiwan if they can. These words are disturbing to me, so I quickly picked up my phone and recorded a Getter video. Aiya, brothers and sisters, the CCP is really crazy! I can’t imagine that those old bastards who are less intelligent than pigs want to rule the world?  Is the world trying to destroy them? Or are they destroying themselves? No matter who wants to destroy them, can they do less harm to the old hundred names? Well, it’s absurd, brothers and sisters.
 
-“如果我们不能根据美国的法律，在参议院进行自由公开的辩论，美国参议院还有什么用处？你为什么派人去华盛顿？我认为这是一个重要的立场。为此，左派一直在追我，他们试图让我闭嘴，他们取消了一本书——一本我正在写的书，名叫《大科技的暴政》，这些人真没趣，顺便告诉你们，我还是会出版的，（而且）很快就会出版。”
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-霍利参议员是在华盛顿后川普时代保守派民粹主义者中的领袖，去年12月，他与佛蒙特州的参议员伯尼·桑德斯（Bernie Sanders）合作，推动2000美元的经济刺激计划，但遭到共和党参议院领导人的抵制，上周五，他呼吁对收入超过10亿美元的公司实行每小时15美元的最低工资。
+视频来源：[https://gtv.org/getter/601ca75ff5b9e26ca9d841e2](https://gtv.org/getter/601ca75ff5b9e26ca9d841e2) (4:59-8:40)
 
-霍利属于对邪共认知比较清醒的参议员，在美国，这样秉持保守理念，又能对恶魔中共有清醒认知的议员实在太少。若不是文贵先生多年的付出，美国还一直生活在沾沾自喜的自我陶醉中，成为温水中的青蛙。
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/880326/](https://gnews.org/zh-hans/880326/)
 
-霍利参议员，加油！带动启蒙更多的美国人，铲除邪恶！
+参考链接：[https://gnews.org/902785/](https://gnews.org/902785/)
 
-原文链接：
+* * *
 
-[https://nypost.com/2021/02/26/hawley-rips-big-tech-as-oligarchs-that-sold-us-out-to-china/](https://nypost.com/2021/02/26/hawley-rips-big-tech-as-oligarchs-that-sold-us-out-to-china/)
+翻译：【rainbow】校对：【Isaiah4031】【BruhM】字幕：【奔腾的长江】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
 0
