@@ -1,27 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【各抒己见】不作不死
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/937390/)
+## 时隔一年，重看武汉上空二氧化硫含量
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/937423/)
 
-作者：半日闲/喜马拉雅东京樱花团
+##### 作者：庚子
 
-关键词：不作不死 战友感想
+2020年2月8日，根据国际数据提供商“Windy”追踪的数据，中国武汉市周围的大气中包含大量有毒物质二氧化硫（SO2）,遥遥领先其它城市，高达1700ug/㎥，重庆也高达惊人的800ug/㎥。二氧化硫是常见的硫化物，是石油、碳、天然气与生物类有机物等的燃烧都会产生该化合物。正常情况下80ug/㎥即为危险级别，时值中国春节，绝大多数工厂已停工停产，出现如此高浓度极为反常，推友“Interlwave”推断此现象很可能与大量焚烧新冠肺炎（中共生化武器）死者遗体有关，其推测要烧掉1.4万具尸体才能达到这样的排放量。
+![](https://lh5.googleusercontent.com/WD5L4xbtw-qq-KMXUw7Tmt697n4ifHhyWERdcD1Q-TdKwDYcdo5ZfA-5stuDX62LrnJ7YLuHb5mSyBpbK8LoW1TPJWYRBIqLcXCORS0ug1GBpdEkSnJ46VALUnKH42SUVlHym2g)
+*（2020年2月8日武汉二氧化硫SO2浓度，来源：Windy）*
+![](https://lh3.googleusercontent.com/WXW9yMGySfGKvYMD774HQ29LN7immuE0G92G5z_CVn8ohNVl6Hyb7PBiH4t6rHidXpyk60fsGKR7rOFjbqeJzXz6UJQzqns-jtytCu1XXkBX7B4X6hnw9K2UI_RRw28Sa3QCjYM)
+时隔一年，我们再看今日武汉上空的二氧化硫浓度，这个推测是否能得到验证？
+![](https://lh5.googleusercontent.com/sORLNiUWgYOg3tigGUqSucGvdr1iMlhspOAq5xtMyqCbp8r2TpCZvQqvzAnTxOcMzACZwn9vZk0zKcAhVmJU-zxjJ-BJjuyC33CNskvnrATWLOy_TPQrbn36TUjb4UOJFDIBpmU)
+*（2021年2月26日武汉二氧化硫SO2浓度，来源：Windy）*
 
-“不作不死”以前这句话是适用在淘气的孩子或是调皮捣蛋好奇、挑战欲强的人身上的一句忠告。但是现在这句话却被Sara和共产党表现得淋漓尽致。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/スクリーンショット-2021-02-28-15.15.24.png)
-首先我们来说Sara，她是很早出来挺七哥挺爆料革命的一员。所以深受七哥的信赖和战友的拥护。本来这样持续下去前途是一片大好的，可是偏偏“钱”惹了祸。自从接触到钱财，Sara的本质就变了，变得专横跋扈，开始计谋据为己有，开始撒谎，开始变得不可一世。欺瞒郭先生，陷害战友，满嘴的情怀、善良、借助上帝之名信誓旦旦。但谎言满满，心灵丑恶，全是魔鬼的嘴脸。七哥和爆料革命的战友绝对不会放过这个妖魔。她的好日子很快就要到头了，应了那句话不作不死。作下去一定会死得很惨。
+从浓度颜色浅淡很明显地看到，武汉及重庆两地的二氧化硫浓度相对于北方大面积地区是极低的（5.05mg/㎡），何况现在企业也大都复产。与当时中共病毒起初在停工停产情况下武汉肆虐时的数据对比，很好的佐证了“Interlwave”焚烧尸体的推测。
+![](https://lh4.googleusercontent.com/eNYVm58CTtCVkHEelt2-nXaCq7gfbAK0y5db-qNsN524VdDALDPSuZ6H_K_DSWlotaEcqMZ5GelMhzGhsNHLqkazqZpomaGRnWPVXglRhPebxyNUfg-tFwmaV6LB1-fbRR9p41c)
+（2021年2月26日武汉二氧化氮NO2浓度，来源：Windy）
 
-共产党也是。他们奴役着14亿人民，控制着香港，虎视着台湾。他们还是不满足还想控制世界。想当世界老大。
+另外，数据提供商Windy一直以ug/㎥为NO2和SO2的浓度计量单位，但此时却改为以mg/㎡为SO2的浓度计量单位，让人很难跟去年SO2浓度做对比。但是却依然以ug/㎥为NO2的浓度计量单位。同样的气体浓度却以两种不同的单位计算浓度，这是不合逻辑的。可以断定这里面一定有中共的“蓝金黄”在做手脚，但是这样却更显得欲盖弥彰，更使人相信不仅当时的武汉，重庆也在大量烧人。而重庆的大量焚烧尸体从侧面也可以证实中共病毒在很早就已经传播开来。
 
-他们不仅蓝金黄世界各国和各个领域还制造生化武器ccp病毒扰乱世界，残害世界人民，以此威胁利诱各国。可谓是机关算尽。但是有七哥，有爆料革命，他们的如意算盘很快会被瓦解。随着爆料革命揭穿丑恶，宣传真相。使得各国逐渐清醒。各国人民也逐渐认知，中国老百姓也渐渐觉醒。可谓是共产党你越是猖狂你灭亡得就越快。共产党你完了。
 
-本文只代表作者观点，与GNews网站无关
 
-校对：煙火1095/喜马拉雅东京樱花团
+2021年2月26日
 
-审核：文小白/喜马拉雅东京樱花团
-![]()![](https://gnews.org/wp-content/uploads/2021/02/二维码-1.jpg)
-0227C005b
+【参考来源】
+
+【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+**欢迎战友加入旧金山金喜准农场**
+
+[旧金山金喜准农场 GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+
+[旧金山金喜准农场 Discord](https://discord.gg/QQzQ79grEA)
+
+[旧金山金喜准农场 Twitter](https://twitter.com/sf_himalaya) 【**责任编辑**】：舊金山文宣组
 
 0

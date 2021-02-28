@@ -1,107 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登在签署供应链行政命令时的讲话
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/936610/)
+## 共匪在台湾是真要有动作
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/936651/)
 
-翻译：洛杉矶天使农场-烟波浩淼
-校对：洛杉矶天使农场-雨山溪桥客
-审核：洛杉矶天使农场-V
+新闻简述：在2021年2月4日的盖特视频中，郭先生劝说台湾战友离开台湾，因为据中共内部战友的情报，“共匪在台湾是真要有动作”。但是同时他也说：“说实在话，共匪一打台湾，共匪就结束了。”
 
-2021年2月24日•演讲和评论
-国宴厅
-美国东部时间下午4点40分
+**共匪在台湾是真要有动作**
 
-总统：下午好。副总统和我与一个由参议员和众议院议员组成的两党小组进行了卓有成效的会晤，讨论了一个既关系到我们的经济安全，也关系到我们的国家安全的问题：关键供应链的弹性和可靠性。
+**The CCP Is Seriously Considering Taking Actions in Taiwan**
 
-这是一个至关重要的领域，共和党人和民主党人一致认为这是最好的会议之一，我认为这是迄今为止我们举行的最好的会议，尽管我们在这里只呆了大约五个星期。但就像过去一样，实际上是没有什么突破的。
+就是台湾的战友，我的大牛兄弟，我的台湾巴黎妹妹，我们的台湾大帅哥，大美女，你们夫妻两个真的是，跟咱们战友都传达传达，今天刚刚我获得更多信息呀，这是共匪在台湾是真要有动作啊，不行台湾巴黎赶快来美国吧，只要能来，带着咱们战友，七哥保证你们，住的，吃的，工作，就是每年的工资，绝不亚于你在台湾的，只能比那多，不会比那少，七哥保证。
 
-现在两党合作的工作已经完成。参众两院这次行动的领导人已经做了很好的工作，我要感谢他们的领导。
+It is about my fellow fighters in Taiwan, like my brother Da-Niu, my sister Taiwan-Paris, a handsome guy, and a stunner. You couple really need to inform all our fellow fighters in Taiwan. I just received more information today: the CCP is seriously considering taking actions in Taiwan. If possible, come to the United States quickly, along with our fellow fighters. As long as you can get here, I will guarantee your accommodations, food, and jobs. Your annual salary will be no less than what you make in Taiwan. It can only be more, not less. I promise.
 
-我们是在这个基础上发展起来的。底线很简单：美国人民永远不应该面对他们所依赖的商品和服务的短缺，无论是汽车、处方药还是当地杂货店的食品。
+吃的不比台湾差，这你放心，中餐就不行了，七哥吃啥就让你吃啥，这点保证。真的要想想了，台湾的兄弟姐妹们你们真的要想想了，看来啊真是要有事啊，哎呀。说实在话，共匪一打台湾，共匪就结束了。但是想起台湾我的大牛兄弟，巴黎妹妹，还有那么多兄弟姐妹在那，真是担心，还有很多朋友啊，我那李祖原大师虽然是因为懦弱把我给抛弃了，但是他公司李祖源事务所的人，还有李大师我还是很惦记他呀，还有很多兄弟呀，我还是很惦记的呀。
 
-记住，在这次大流行期间，个人防护用品的短缺意味着我们没有口罩；我们没有防护服或手套来保护我们一线的医务工作者。
+The food will be no worse than Taiwan if not considering Chinese cuisine, so no worries about this. You will eat as well as I do, which is guaranteed. It is really time for you to think about this. Brothers and sisters in Taiwan, you really need to think about it. It seems that something is really going to happen. Truly I tell you, once the communist bandits attack Taiwan, the CCP will be finished. However, it worries me when thinking of my brother Da-Niu, my sister Taiwan-Paris, and so many brothers and sisters in Taiwan. There are also many other friends in Taiwan, like Master Chu-Yuan Lee. Although he abandoned me because of his cowardice, I am still concerned about him and the staff in his firm – the C.Y. Lee & Partners. There are many brothers out there that I still care about.
 
-我们听到过一些恐怖的故事，医生和护士把垃圾袋套在他们的防护服或白大褂外面，这样他们就不会有麻烦了，因为他们没有防护服了。他们在手术室里反复清洗和重复使用口罩。
+这几天发生了各种迹象，内部战友的各种情报，台湾真是不妙，真是不妙，如果是共产党在台湾这一动手，生灵涂炭，血流成河呀。这就是疯狂啊。中国历史上的政治斗争，绝大多数都是朝廷的内斗，现在可悲的是几千年后，中共中国人要不打中国人，只杀中国人的故事一次一次重演，天天说中国人不打中国人，在香港把中国同胞，香港同胞，全扔海里去了，扔海里还得轮了强奸了，掏肛。成天说对着台湾喊，中国人不打中国人，天天吓得半死。这回可能真的是不打台湾人，是杀台湾。
 
-这不应该发生在美国，这种情况永远不会再发生。为了要在我们国家处于紧急状况下为我们的人民提供保护，我们不应该依赖一个外国，尤其是不符合我们利益或价值观的国家。
+In the past few days, there were all kinds of signs and all kinds of intelligence from fellow fighters inside the CCP, which are really not good for Taiwan, really not good. If the CCP indeed attacks Taiwan, there will be mass casualties and a lot of blood will be shed. This is insane. The vast majority of the political struggles in Chinese history have been internal strifes in the imperial court. Sadly, thousands of years later, the CCP’s story of “Chinese do not fight Chinese, only kill Chinese” has been a recurring theme. The CCP says that the Chinese do not oppose Chinese on a daily basis, but in Hong Kong, it threw many Chinese and Hong Kong compatriots into the ocean after gang-raping them and humiliating them. The CCP always propagandized to Taiwanese that Chinese people do not fight Chinese, whereas the Taiwanese are scared half to death every day. This time they may not fight Taiwanese, but to kill Taiwanese.
 
-这就是为什么我把这个行政命令作为签署的第一批行政命令之一，正如一些人可能记得的那样，这是为了确保我们在本土为医护人员制造更多的防护设备。
+你说咋弄？这真没办法，这流氓土匪，七哥要是有本事，如探囊取物一样，就把他给捏死在中南坑这些老杂毛，七哥马上就干哪，是吧？现在七哥是干着急啊，担心哪。但是刚刚我在运动的时候，咱们内部战友说，让台湾的战友能离开台湾就离开吧，弄得我心里戈登戈登的，所以说赶快拿起来手机录一段，盖特一下子。哎呀，兄弟姐妹们，共产党真疯了，我就很难想象，连猪都不如的智商几个老杂毛，想统治世界？这到底是世界要灭他？还是他自己要灭自己？不管谁要灭他，他能不能少祸害这些老百姓呢？没法弄，没法弄，兄弟姐妹们。
 
-今天，我将很快签署另一项行政命令，帮助解决我国经济中他关键部门供应链的脆弱性环节，使美国人民准备好依靠自己抵御任何危机。
+What can you say? There is no way to deal with these rogue bandits! If I had magical powers, I would have crushed those old bastards of the CCP who live in the Zhongnan Pit in no time, right? But now I can do nothing but be anxious and worried. A moment ago, while I was working out, a friend inside the CCP told me to ask our fellow fighters leave Taiwan if they can. These words are disturbing to me, so I quickly picked up my phone and recorded a Getter video. Aiya, brothers and sisters, the CCP is really crazy! I can’t imagine that those old bastards who are less intelligent than pigs want to rule the world?  Is the world trying to destroy them? Or are they destroying themselves? No matter who wants to destroy them, can they do less harm to the old hundred names? Well, it’s absurd, brothers and sisters.
 
-这是为了确保美国能够应对我们在这个新时代面临的每一个挑战——流行病，但也包括国防、网络安全、气候变化等等。最好的办法就是通过在国内投资来保护和提高美国的竞争优势。正如我在竞选之初所说：我们将在美国投资。我们要投资美国工人。这样我们就可以处于一个更好的位置，甚至超越我们现在所做的竞争。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-弹性、多样性和安全的供应链将有助于振兴我们的国内制造能力，创造高薪工作岗位，而不是每小时15美元，这是我们有朝一日需要做的。在我看来，越早越好。但工作岗位是以现行工资为标准的。
+视频来源：[https://gtv.org/getter/601ca75ff5b9e26ca9d841e2](https://gtv.org/getter/601ca75ff5b9e26ca9d841e2) (4:59-8:40)
 
-我们将为小企业、有色人种社区和经济困难地区提供新的机会。我将推动对研究和创新以及我们的劳动力的新投资，投资于培训和与大学合作，这将带来新技术和新解决方案。
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/880326/](https://gnews.org/zh-hans/880326/)
 
-所有这一切不仅会增强我们的国内生产能力，还将有助于在世界各地开拓新市场，并为美国企业增加出口他们将要生产的产品创造机会。
+参考链接：[https://gnews.org/902785/](https://gnews.org/902785/)
 
-这些是所有美国人都能找到的常识性解决方案——工人和企业领导人、共和党人和民主党人。这是关于弹性，确定我们供应链中可能存在的弱点，并确保我们有备用方案或解决办法。
+* * *
 
-还记得那句老话吗：“因为缺少一颗钉子，鞋子就丢了。因为缺少一只鞋，这匹马就迷失了方向。“ 这一切都是因为缺少一颗马蹄钉。即使是供应链中某一点的小故障也会对供应链的上游造成更大的影响。
+翻译：【rainbow】校对：【Isaiah4031】【BruhM】字幕：【奔腾的长江】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
-最近，我们看到了计算机芯片的短缺——像我这里的这个——你几乎看不到它，我想，它被称为“半导体”——造成了汽车生产的延误，导致美国工人的工作时间减少，这就是 一个21世纪的马蹄钉。
-
-这种半导体比邮票还小，但它有80多亿个晶体管——80亿个晶体管，比这个芯片中一根头发还要细1万倍。这些芯片是创新和设计的奇迹，为我们国家的大部分地区提供动力，使我们的现代化生活得以继续——不仅仅是我们的汽车，还有我们的智能手机、电视、收音机、医疗诊断设备等等。
-
-我们需要确保这些供应链的安全可靠。我正在指示我的政府高级官员与行业领袖合作，找出解决半导体短缺的办法，并与参众两院一起努力工作。他们已经批准了这项法案，但他们需要（听不清）370亿美元，短期内，以确保我们有这个能力。我们也会推动这个工作。但我们都认识到这个特殊问题不会马上解决。
-
-与此同时，我们正在与我们的盟友、半导体公司和供应链中的其他公司接触，以提高产量，帮助我们解决目前面临的瓶颈问题。我们需要停止扮演在供应链危机袭来之后才开始追赶的角色。我们首先要防止供应链危机的发生。
-
-在某些情况下，增强抵御能力意味着增加我们国内某些类型元器件的产量。在其他情况下，这将意味着与我们值得信赖的朋友和合作伙伴以及与我们价值观相同的国家更加紧密地合作，这样我们的供应链就不会被利用来对付我们。
-
-这将意味着确定和建设能够在紧急情况下迅速转化和提高产量的激增能力。这将意味着投资于研发，就像我们在60年代所做的那样，以确保我们的制造业基地在未来几十年的长期竞争力。
-
-我要签署的命令有两件事。首先，它要求对四种重要产品进行为期100天的审查：一是半导体；二是关键矿物和材料，如稀土，用于制造从硬钢到飞机的各种产品；三是药品及其原料；四是先进的电池，如电动汽车所用的电池。
-
-两党都强烈支持对这四个领域进行快速审查，因为这对保护和加强美国的竞争力至关重要。
-
-其次，这项命令启动了对未来一年我国整体经济六个部门的行业基础的长期审查。这些审查将确定对[加强]我们的供应链中的40条的政策建议，以加强我们供应链的每一步，并且至关重要的是，立即开始实施这些建议。我们不会等到审查完成后才开始弥补现有差距。
-
-在我们实施这项工作的过程中，我的政府将吸引各类美国人才，包括劳工和工业领袖、政策专家、科学家、农民、工程师，听取他们的意见。
-
-我很感谢前来看望我的国会议员们，共和党领导人，以及民主党人。他们在领路。我们将与两党保持密切联系，不断推进我们的共同目标。
-
-每个人都可以在加强我们国家的供应链方面发挥作用。这是美利坚合众国。我们比世界上任何国家都更有能力应对21世纪的挑战。如果我们齐心协力，就没有什么，没有什么，没有什么我们不能实现的。这就是我们今天决定要做的，这就是我们要做的：共同努力。
-
-所以我感谢大家。我对我们今天与国会同僚的会面非常乐观。现在我要走过去签署行政命令。
-
-（行政命令已签署。）
-
-**问答环节：**
-
-问：总统先生，你是否对参议院尚未确认更多内阁候选人感到失望？
-
-总统：是的，但我并没有把责任推给参议院；而是怪罪于没有一个合理的过渡。
-
-如你所知，前几届政府有相当数量的内阁成员在他们宣誓就职之前就得到了确认。这是传统。但我们做得很好。我想我们的情况会很好的。
-
-问：尼拉·坦登呢？
-
-总统：谢谢。
-
-问：你要和沙特阿拉伯国王谈谈吗？
-
-总统：我要和他谈谈。我还没有和他说话。
-
-问：你今天要和他谈谈吗？
-
-问：先生，对不起，如果你读过卡舒吉的报告，你愿意说吗？
-
-总统：我要拿什么？我很抱歉。
-
-问：你看过国家情报总监卡舒吉的报告了吗？
-
-总统：是的。是的，我有。
-
-问：谢谢。
-
-总统：谢谢。
-
-东部时间下午4点50分
-
-原文链接：[https://www.whitehouse.gov/briefing-room/speeches-remarks/2021/02/24/remarks-by-president-biden-at-signing-of-an-executive-order-on-supply-chains/](https://www.whitehouse.gov/briefing-room/speeches-remarks/2021/02/24/remarks-by-president-biden-at-signing-of-an-executive-order-on-supply-chains/)
-
-+1
+0

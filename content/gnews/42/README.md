@@ -1,15 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年2月27日 文贵先生盖特 6
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/936858/)
+## 路德时评简讯（视频版）：布林肯确认中共犯下种族灭绝和反人类罪(2021.2.24晚间 路德社简讯之路博艾冠谈 ）
+` 路德社` [轉載自GNews](https://gnews.org/zh-hans/936785/)
 
-编辑整理：美东香草山农场（彩虹桥）
+《路德社》出品
 
-尊敬的战友们，明天G｜Fashion 即将推出春夏装系列，请大家拭目以待🔥🔥🔥
-![]()![](https://gnews.org/wp-content/uploads/2021/02/EvQ_DgRXAA8QwKy.png)![]()![](https://gnews.org/wp-content/uploads/2021/02/EvQ_FkaXIAM3OFY.png)
-[【2021年2月27日】文贵先生盖特原文](https://gtv.org/getter/603ac25d195851590237f288)
+以下视频是详细内容：
 
-喜联盟**Gnews**编辑部
+内容摘要：
+
+1.**国务卿布林肯已经确认中共犯下种族灭绝和反人类罪**
+
+2.**中共媒体继续攻击抹黑前国务卿蓬佩奥**
+
+3.**其他新闻**
+
+
+
+翻译：路德社翻译组
+
+制作：路德社简讯视频组
+
+审核校对：玫瑰新闻组
+
+上传排版：玫瑰新闻组
 
 0
