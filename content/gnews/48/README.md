@@ -1,47 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 人类永远是往前走的，邪恶一定会被战胜
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/937215/)
+## 2.27文贵先生盖特： 共产党即将崩溃, 开启灭共大时代
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/937329/)
 
-新闻简述：在2021年2月26日的盖特视频中，郭先生背靠着火炉，面对着大雪，感慨万千：“上天是公平的，用了美国大选，用了整个的种族大屠杀、反人类罪，新中国联邦爆料革命、香港事件、威胁台湾，唤醒世界的人民，你不得不说上天的安排，都是如此的美好和美妙。”
-[下载字幕](https://gnews.org/wp-content/uploads/2021/02/Miles_20210226-Getter1.srt.txt)
-**人类永远是往前走的，邪恶一定会被战胜**
+笔录整理：左媛
 
-**Human Beings Are Always Moving Forward; The Wicked Will Surely Be Defeated**
+大家最近有感觉了吗？华西村都崩塌了。经济债务是什么情况，昨天下午，大陆凌晨，某省的几大银行头子被纪委全部带走，了解这些银行的金融票据，了解他们银行的假数据假票据是咋回事儿，最后都放回来了。据说给北京汇报，北京也傻眼了，这就九指妖水平。
+![](https://lh4.googleusercontent.com/bsR6kMPwQ0kQa3Oft2Cb4cpPPU0k-AP0XntSEDw5zjCpm6rdNhdUT-4gQ3vqMPaHz9ofsml0tVC1Bt6oaEYq8QyY9jUdpbOzVJ3MrXGEmygZ_mp1PCsMUagSXHlbL-vdhtir4i3I)
+有人找我们了解九指妖儿子拿工资的事儿，了解她儿子在大陆撞死人的事，竟然说：你们给我们提供了比我们还要多的信息。九指妖作死，原来有人盯她盯好久了，她不但要进监狱，还要进最长的监狱，走着看！她害了她儿子，她儿子也害了她。千万别成为孩子的奴隶，也不要让孩子成为你的牺牲品。
 
-熊熊的烈火，真棒啊，然后你看外面的大雪，然后这里是熊熊的烈火，欲望之火。
+香港的经济到什么程度？香港换现钞受限制，限制流通。大陆只要大额交易都受限制，不能碰不能动。现在，大陆去银行人民币换美金美金换人民币，都不行。更夸张的是党内政治斗争。听说辽宁有人说，解救中国的秘方在曾庆红。黑吉辽，广西，江浙沪，新疆西藏所有人认为，解决中国目前困境的只有曾庆红。我2017年就说过，别看曾家对我那么狠那么坏，天天弄裕达，裕达流拍一次降20%，最后可能七八个亿就被曾家弄走了，曾家的曾宝宝,曾维,戴永革,想弄盘古裕达。曾庆红，是一股新力量，不仅是过去的江曾孟韩，听说曾庆红要上来当老大，韩正当老二。这斗争真的浮出水面了。蚂蚁金服，江家表态非常明确，让马云自由，蚂蚁金服要回到马云那里，实际是给到江家。据说现在江曾孟韩，上海帮，江浙帮都在说，澳英俄美加新都在通过外交渠道告诉中共：种族大屠杀的事情，你们要做好准备，我们和你们的来往方式要改革；病毒真相不搞清楚，两国关系不可能进行；香港事情再继续下去，西方国家将形成一个联盟，完全没法和你们打交道了。关键核心的是，种族屠杀、病毒真相和香港事件连结在一起的时候，共产党马上就成为全人类的公敌、非法政权。江曾孟，人家说了，如何解决共产党将成为世界犯罪组织的困局，非曾庆红韩正不可。
 
-Blazing fire, awesome! And you look at the heavy snow outside while the flame, the flame of lust, is burning here. Ho-ho!
+战友们，你知道现在上海流行什么话吗？说，辛丑年绝对是中国政治经济大革命年，非上海人救不了整个中国的经济政治和国际地位。有点像当年楚秦时代，灭秦非楚不可。正好，习来自于秦，楚地是今天的江浙湖北一带，热闹了！大家要看到世界上所有的经济都在兑水，印钞票。中共国的人民币现在非常硬，为什么要弄这么硬？它不敢也无能把人民币真正的汇率放开，超过7.5瞬间就会让人民币一文不值，中国人相信硬的不相信真的，只要一贬就大撒把失控。
 
-真舒服，喝杯茶，吃个元宵，熊熊的烈火，你说想啥呀？饱暖思淫欲啊，人家在那玩接班人那，咱也玩不了什么接班人，只能玩火了，太棒了兄弟姐妹们，美好的生活。
+共产党是真邪恶，昨天某国领导说：共产党的邪恶让美国彻底傻眼。这两天我高度关注美国保守派会议。所有的话题就两件事：偷盗选举和灭共。灭共必谈病毒，谈病毒必谈爆料革命，谈爆料革命必谈新中国联邦。谈美国的未来、美国的宗教、美国的自由，必谈中共，因为它干掉了推特和“非死不可”，推特和“非死不可”正在走向死亡，是因为背后共产党的控制。是我们告诉世界，这世界最大的武器是“社交媒体”。据说，在会议的多个私下讨论中，无数次的重放咱们的视频和中英文的视频。这就是爆料革命！战友们，你想不牛都不行。灭共，没你不行！这世界要想安全，要想生存，要想找到真相，没有爆料革命没有新中国联邦，绝对不中！就敢这么说，接下来，以毒灭共，以钱灭共会让全世界什么样的力量连结在一起！“沼泽地”这个江湖，我们要拿下，因为我们有这个能力！
 
-Aiya, so comfy! After a cup of tea and some glutinous rice balls, sitting by the blazing fire, what’s the next thing that comes in your mind? [A Chinese slang:] When one is well-fed and well-clad, he or she will seek sexual gratification! They [those old bastards in the Zhongnan Pit] are fighting each other for the successorship, while that’s not something that we can play with. We can only play with fire! Ho-ho! Fantastic, brothers and sisters. What a beautiful life!
+2021.2.27于纽约
+![](https://lh4.googleusercontent.com/Y7aAbIy_hlm1SHKzjne4szXh4sZSI8nNKGyXOGRzk-M4KgCpOhvTGxCZCCsLTQizkciyejsENhq6VlXSiuC-j6fU_2_ugbT-ObtVTYgcLQwK03DzoSsZ6HG9crx-tsV2huLP8hxN)
+【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-我在这边看，来自于世界各地的，关于以毒灭共的、以钱灭共的各种信息，感慨万千。共产党真是完球蛋了，它会像后面的木头一样，给烈火彻底的烧灭，彻底的消灭。这是没有任何悬念的，对吧？兄弟姐妹们？
+**欢迎战友加入旧金山金喜准农场**
 
-While staying here, I have been reading all sorts of information on taking down the CCP by the virus and financial activities from all over the world, and I’ve got all sorts of feelings welled up in my mind. The CCP is truly going to have their balls destroyed. Just like this piece of wood back there, it will be burnt completely from top to the ground. There is no doubt in that, right? Brothers and sisters?
+[旧金山金喜准农场 GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
 
-所以说真舒服，越是在这个时候我越想，上天是公平的，用了美国大选，用了整个的种族大屠杀、反人类罪，新中国联邦爆料革命、香港事件、威胁台湾，唤醒世界的人民，你不得不说上天的安排，都是如此的美好和美妙。但凡有真正信仰的人，都会知道上天在干什么，是吧？因为上天在惩罚恶人，没有人可以挡得住，没有人，没有人。
+[旧金山金喜准农场 Discord](https://discord.gg/QQzQ79grEA)
 
-So, aiya, so comfy! At this moment, I believe more and more that God is fair. He has used the US election, the genocide, the crimes against humanity, the New Federal State of China (NFSC) and Whistleblower Movement (WM), the Hong Kong crisis and the [CCP’s] threatening of Taiwan to wake up people all around the world. You have to say that God’s plan has always been wonderful and beautiful. Anyone who has got true belief would understand what God is doing, right? That’s because God is punishing the wicked, and nobody can stand in His way, no one, not a single person.
+[旧金山金喜准农场 Twitter](https://twitter.com/sf_himalaya)
 
-这就是我们要相信的，我们人类之外的一种力量。美国人不但能上月球，也不仅仅能上火星，我相信会找到我们人类上所需要的另外一种力量，任何独裁和邪恶都将消失殆尽。没有任何所谓的侥幸和怀疑。人类永远是往前走的，邪恶一定会被战胜，正义一定像阳光和光明的力量一样存在人间。就像这火一样，不管你多强大，都能把你烧得灰飞弹尽，好啊，真好啊。
+【**校稿编辑**】：bingo
 
-This is what we shall believe in – there exists a force higher than human beings. The Americans not only can land on the moon and Mars, but also, I believe, will find another type of force that our human beings need. Any autocracies and evilness will be vanishing, and there is no room for being opportunistic or doubtful. Human beings are always moving forward. The wicked will surely be defeated, and justice will definitely prevail in this world like the sunlight. Just like this fire, no matter how big and strong you are, you will be burnt down and disappear in smoke and ash. Wonderful! So wonderful!
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-视频来源：[https://gtv.org/getter/60395d191958515902379c61](https://gtv.org/getter/60395d191958515902379c61)
-
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/934779/](https://gnews.org/zh-hans/934779/)
-
-翻译：【guocamole(文金欠)】校对：【Isaiah4031】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
-
-0
++1
