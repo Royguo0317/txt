@@ -1,42 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加国部长：在中资社交媒体上所发信息或被敌方利用
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/937102/)
+## 人类永远是往前走的，邪恶一定会被战胜
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/937215/)
 
-加拿大多伦多枫叶农场 阿黎
-![]()![](https://gnews.org/wp-content/uploads/2021/02/youtubecensorship.com_.jpg)*图片来源：youtubecencorship.com*
-据国家《渥太华邮报》2月26日报道，加拿大联邦公共安全部长表示，加拿大人应该警惕使用中共国社交媒体平台，因为在那里发布的信息可能被外国用于 “敌对活动”。
+新闻简述：在2021年2月26日的盖特视频中，郭先生背靠着火炉，面对着大雪，感慨万千：“上天是公平的，用了美国大选，用了整个的种族大屠杀、反人类罪，新中国联邦爆料革命、香港事件、威胁台湾，唤醒世界的人民，你不得不说上天的安排，都是如此的美好和美妙。”
+[下载字幕](https://gnews.org/wp-content/uploads/2021/02/Miles_20210226-Getter1.srt.txt)
+**人类永远是往前走的，邪恶一定会被战胜**
 
-如果你经常在微信、微博甚至抖音等中共国社交媒体平台上发信息，加拿大政府向你发出严厉警告：要小心，因为敌对国家可能正在监视，试图利用这些数据来侵害加拿大的利益。
+**Human Beings Are Always Moving Forward; The Wicked Will Surely Be Defeated**
 
-周四晚间，在加中关系议会委员会的会上，自由党议员叶珍问公共安全部长布莱尔（Bill Blair），加拿大人是否应该担心使用中共国公司拥有的社交媒体平台。布莱尔回答说：”人们有理由担心，有时这些平台上公开的信息可能会被国家行为者的敌对活动所利用。”他还说，加拿大人应该对这些应用软件保持 “谨慎”。
+熊熊的烈火，真棒啊，然后你看外面的大雪，然后这里是熊熊的烈火，欲望之火。
 
-这是内阁部长首次如此明确地阐述对所有中资社交媒体平台的担忧，这些平台在加拿大有数百万用户。
+Blazing fire, awesome! And you look at the heavy snow outside while the flame, the flame of lust, is burning here. Ho-ho!
 
-多年来，许多数据和隐私专家都警告，这些应用软件会从用户那里收集大量数据。中共政府对国有公司拥有绝对的权力，包括查封其公司的数据，因此专家们对微信等平台分外担忧。
+真舒服，喝杯茶，吃个元宵，熊熊的烈火，你说想啥呀？饱暖思淫欲啊，人家在那玩接班人那，咱也玩不了什么接班人，只能玩火了，太棒了兄弟姐妹们，美好的生活。
 
-1月初，《温尼伯自由报》披露，加拿大武装部队（CAF）拒绝安装抖音这款在北美年轻人中爆红的应用软件，因为CAF认为这款应用会带来 “巨大的安全风险”——当时这两款应用的拥有者分别是中资公司字节跳动和腾讯控股。此前几个月美国政府宣布因国家安全问题而禁止抖音和微信。当时，川普政府担心中共利用这些应用程序及其收集的大量数据，以收集用户信息并进行中共洗脑宣传。
+Aiya, so comfy! After a cup of tea and some glutinous rice balls, sitting by the blazing fire, what’s the next thing that comes in your mind? [A Chinese slang:] When one is well-fed and well-clad, he or she will seek sexual gratification! They [those old bastards in the Zhongnan Pit] are fighting each other for the successorship, while that’s not something that we can play with. We can only play with fire! Ho-ho! Fantastic, brothers and sisters. What a beautiful life!
 
-布莱尔在开场白中不仅反复警告中共国越来越多地试图对加拿大进行干涉，还就中共国在当前阿片类药物危机中的作用明确指出：”虽然外国干涉（问题）是我的首要任务，但这绝不是唯一的问题。中共国是芬太尼以及用于制造这种高效力和致命的合成阿片类药物的前体化学品的主要来源国之一，这已经不是什么秘密了。””在过去4年里，加拿大边境服务局共查获毒品335次，总重量超过42.2公斤，在这些查获的毒品中，有129次将中共国列为这些毒品的来源国。”
+我在这边看，来自于世界各地的，关于以毒灭共的、以钱灭共的各种信息，感慨万千。共产党真是完球蛋了，它会像后面的木头一样，给烈火彻底的烧灭，彻底的消灭。这是没有任何悬念的，对吧？兄弟姐妹们？
 
-反对党议员还就《环球邮报》报道加拿大将位于中共国首都的签证申请中心外包给一家北京警方拥有的公司一事，向布莱尔提出质询。部长无法说出最初合同是由哪位政府官员授权给全球签证便利服务公司（VFS Global），而该公司当时与中共国警方拥有的北京双雄外事服务有限公司打交道。他说这是在2008年，也就是他的政府上台之前完成的。当被多次追问是否对该合同有顾虑时，布莱尔说：”加拿大移民、难民和公民事务部有一个IT部门，该部门提供了保证，我们所有的信息事实上都是安全的。没有任何关于间谍活动的说法，也没有提出任何担忧，只是说有一个中共国官方实体参与了这家公司”。
+While staying here, I have been reading all sorts of information on taking down the CCP by the virus and financial activities from all over the world, and I’ve got all sorts of feelings welled up in my mind. The CCP is truly going to have their balls destroyed. Just like this piece of wood back there, it will be burnt completely from top to the ground. There is no doubt in that, right? Brothers and sisters?
 
-“所以政府对这一安排完全满意，并且满意它应该永久地继续下去？” 新民主党议员杰克-哈里斯问道。部长在回答时没有说与北京双雄公司的合同是否会无限期地继续下去。他说：”我很满意加拿大移民局没发现任何问题，他们已提供了强有力的保证，加拿大的数据和利益在他们的系统中得到了很好的保护”。
+所以说真舒服，越是在这个时候我越想，上天是公平的，用了美国大选，用了整个的种族大屠杀、反人类罪，新中国联邦爆料革命、香港事件、威胁台湾，唤醒世界的人民，你不得不说上天的安排，都是如此的美好和美妙。但凡有真正信仰的人，都会知道上天在干什么，是吧？因为上天在惩罚恶人，没有人可以挡得住，没有人，没有人。
 
-部长回避了反对党议员关于他的政府是否会禁止中共国电信巨头华为进入加拿大5G网络的问题。
+So, aiya, so comfy! At this moment, I believe more and more that God is fair. He has used the US election, the genocide, the crimes against humanity, the New Federal State of China (NFSC) and Whistleblower Movement (WM), the Hong Kong crisis and the [CCP’s] threatening of Taiwan to wake up people all around the world. You have to say that God’s plan has always been wonderful and beautiful. Anyone who has got true belief would understand what God is doing, right? That’s because God is punishing the wicked, and nobody can stand in His way, no one, not a single person.
 
-评：
+这就是我们要相信的，我们人类之外的一种力量。美国人不但能上月球，也不仅仅能上火星，我相信会找到我们人类上所需要的另外一种力量，任何独裁和邪恶都将消失殆尽。没有任何所谓的侥幸和怀疑。人类永远是往前走的，邪恶一定会被战胜，正义一定像阳光和光明的力量一样存在人间。就像这火一样，不管你多强大，都能把你烧得灰飞弹尽，好啊，真好啊。
 
-加拿大政府终于开始担心中资社交媒体了，同时对中共国输入的大量芬太尼提出强烈不满。反对党议员质询安全部长关于加拿大在北京的签证处外包给中共警方所属公司之事。这一桩桩、一件件中共渗透和控制加拿大的例证，恐怕需要花很长时间才能全部列举出来。这正中了爆料革命领军人郭文贵在爆料革命之初常说的一句话：“一切都是刚刚开始！”
+This is what we shall believe in – there exists a force higher than human beings. The Americans not only can land on the moon and Mars, but also, I believe, will find another type of force that our human beings need. Any autocracies and evilness will be vanishing, and there is no room for being opportunistic or doubtful. Human beings are always moving forward. The wicked will surely be defeated, and justice will definitely prevail in this world like the sunlight. Just like this fire, no matter how big and strong you are, you will be burnt down and disappear in smoke and ash. Wonderful! So wonderful!
 
-加拿大政府似乎总是慢半拍、不情愿，但总是最终跟上美国。虽然加拿大政府回避华为的问题，但笔者认为这只是时间的问题。加拿大绝不甘心被中共控制，也绝不会屈服于中共的淫威。加拿大政府将做出正确的选择，那就是联合美国和世界正义力量，消灭中共这个威胁全世界的邪恶政权。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-[原文链接](https://nationalpost.com/news/politics/information-posted-on-chinese-social-media-platforms-could-be-used-for-hostile-activities-bill-blair-warns)
+视频来源：[https://gtv.org/getter/60395d191958515902379c61](https://gtv.org/getter/60395d191958515902379c61)
 
-* * *
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/934779/](https://gnews.org/zh-hans/934779/)
 
-校对 文锦
-发稿 云起时
+翻译：【guocamole(文金欠)】校对：【Isaiah4031】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
 0
