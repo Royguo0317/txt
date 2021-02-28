@@ -1,47 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 人类永远是往前走的，邪恶一定会被战胜
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/937215/)
+## 【正道观察】多国跟进落实“种族大屠杀”定性，全球灭共势不可挡
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/937338/)
 
-新闻简述：在2021年2月26日的盖特视频中，郭先生背靠着火炉，面对着大雪，感慨万千：“上天是公平的，用了美国大选，用了整个的种族大屠杀、反人类罪，新中国联邦爆料革命、香港事件、威胁台湾，唤醒世界的人民，你不得不说上天的安排，都是如此的美好和美妙。”
-[下载字幕](https://gnews.org/wp-content/uploads/2021/02/Miles_20210226-Getter1.srt.txt)
-**人类永远是往前走的，邪恶一定会被战胜**
+#### 作者：Ermat【㊙️翻 Gnews原创组】
+责编：萌萌的朋克
+![]()![](https://gnews.org/wp-content/uploads/2021/02/总加速师和新疆.jpg)图片来源：bowenpress.com/
+新疆是中国陆地面积最大的省区，但人口只有两千多万。新疆的黄金、宝石、玉石等资源多种多样，有和田玉、葡萄干、玛瑙、金丝玉、宝石光、戈壁彩石、碧玉等。此外，新疆的森林资源、水资源、生物资源、天然气和其他矿产也极其丰富。
 
-**Human Beings Are Always Moving Forward; The Wicked Will Surely Be Defeated**
+新疆文化是西域文化和中原文化的结合体。新疆人大多性情”粗犷豪放、勇敢、仗义”。相对于汉人的“收缩、内敛”，他们为人“开朗、坦率、爱恨分明”。相对于汉人对陌生人的排斥和不信任，他们”热情好客、易于亲近”。此外，新疆也不乏俊男美女，皮肤白皙，能歌善舞，且有一种少数民族特有的异国风情。
 
-熊熊的烈火，真棒啊，然后你看外面的大雪，然后这里是熊熊的烈火，欲望之火。
+然而，由于中共在新疆的政治、社会和文化领域，推行一系列的“汉化、奴化”政策，以及大规模迁入汉人，导致了新疆人的强烈不满。再加上文化传统、宗教信仰的不同，以及少数民族更加强烈的反抗精神，使这一区域动荡不安，民族冲突事件周期性爆发。
 
-Blazing fire, awesome! And you look at the heavy snow outside while the flame, the flame of lust, is burning here. Ho-ho!
+于是，中共以“种族分裂及反恐”为借口，对维吾尔族人进行了残酷的迫害。他们在新疆建立集中营、全面监控、大规模抓捕、强奸、轮奸、性虐、酷刑、洗脑、强迫节育、强迫放弃信仰、强迫接受 “政治再教育”、强迫放弃本民族文化、语言和传统。意图从肉体和精神上摧毁新疆人的信仰、尊严和意志。
 
-真舒服，喝杯茶，吃个元宵，熊熊的烈火，你说想啥呀？饱暖思淫欲啊，人家在那玩接班人那，咱也玩不了什么接班人，只能玩火了，太棒了兄弟姐妹们，美好的生活。
+然而，中共的丧心病狂不仅重创了新疆人，也给自己带来了灭顶之灾。川普政府在离任前一天发表声明，称中共在新疆对维吾尔族犯下“种族灭绝和反人类罪”。此举也引发了一系列连锁反应：
 
-Aiya, so comfy! After a cup of tea and some glutinous rice balls, sitting by the blazing fire, what’s the next thing that comes in your mind? [A Chinese slang:] When one is well-fed and well-clad, he or she will seek sexual gratification! They [those old bastards in the Zhongnan Pit] are fighting each other for the successorship, while that’s not something that we can play with. We can only play with fire! Ho-ho! Fantastic, brothers and sisters. What a beautiful life!
+● 加拿大国会通过动议确认中共在新疆推行“种族灭绝”；
+● 荷兰议会认定中共对新疆维吾尔族犯下“种族灭绝罪”；
+● 澳洲议员正在推动认定中共在新疆犯下的”种族灭绝罪”；
+● 美、英、日企将终止涉及维族被强迫劳动的业务；
+● 多国领导人谴责中共在新疆的“种族灭绝”行径；
+● 多国官员呼吁抵制北京2022年冬奥会；
+● 多国呼吁调查中共在新疆的“种族灭绝”行径；
+● BBC系列报道了在再教育集中营中的妇女遭到”系统性强奸”的事件。
 
-我在这边看，来自于世界各地的，关于以毒灭共的、以钱灭共的各种信息，感慨万千。共产党真是完球蛋了，它会像后面的木头一样，给烈火彻底的烧灭，彻底的消灭。这是没有任何悬念的，对吧？兄弟姐妹们？
+由此，灭共的星星之火已成燎原之势。更令人振奋的是，美国务院发言人再次确认，国务卿布林肯已经确认中共犯下种族灭绝和反人类罪。此消息一扫美国大选给人们心里带来的阴霾，使人们看到了美国强大的正义力量，和由美国引领全球灭共的希望。
 
-While staying here, I have been reading all sorts of information on taking down the CCP by the virus and financial activities from all over the world, and I’ve got all sorts of feelings welled up in my mind. The CCP is truly going to have their balls destroyed. Just like this piece of wood back there, it will be burnt completely from top to the ground. There is no doubt in that, right? Brothers and sisters?
+然而，亲中派的实力也不可小觑，如加拿大总理特鲁多及其内阁成员投弃权票；荷兰首相所在的自民党投了反对票；而且仍有很多国家领导人持观望态度。这些人仍幻想着从中共获利，依靠中共重启经济，殊不知，等待他们的是中共的“灭白计划”，真是“老鼠跟猫谈合作——要钱不要命了”！
 
-所以说真舒服，越是在这个时候我越想，上天是公平的，用了美国大选，用了整个的种族大屠杀、反人类罪，新中国联邦爆料革命、香港事件、威胁台湾，唤醒世界的人民，你不得不说上天的安排，都是如此的美好和美妙。但凡有真正信仰的人，都会知道上天在干什么，是吧？因为上天在惩罚恶人，没有人可以挡得住，没有人，没有人。
+继美国大选后，灭共与亲共两大阵营将再次较量。然而，纵观世界历史，犯下“种族灭绝罪”的希特勒、萨达姆和卡扎菲都以灭亡收场，相信中共同样逃不出这一结局！
 
-So, aiya, so comfy! At this moment, I believe more and more that God is fair. He has used the US election, the genocide, the crimes against humanity, the New Federal State of China (NFSC) and Whistleblower Movement (WM), the Hong Kong crisis and the [CCP’s] threatening of Taiwan to wake up people all around the world. You have to say that God’s plan has always been wonderful and beautiful. Anyone who has got true belief would understand what God is doing, right? That’s because God is punishing the wicked, and nobody can stand in His way, no one, not a single person.
+参考链接：
 
-这就是我们要相信的，我们人类之外的一种力量。美国人不但能上月球，也不仅仅能上火星，我相信会找到我们人类上所需要的另外一种力量，任何独裁和邪恶都将消失殆尽。没有任何所谓的侥幸和怀疑。人类永远是往前走的，邪恶一定会被战胜，正义一定像阳光和光明的力量一样存在人间。就像这火一样，不管你多强大，都能把你烧得灰飞弹尽，好啊，真好啊。
+1. [西班牙媒体报道“荷兰议会通过认定中共对新疆维吾尔族的种族灭绝的定义”](https://gnews.org/zh-hans/934528/)
+2. [加拿大国会通过动议确认中共新疆推行“种族灭绝”](https://www.rfa.org/mandarin/Xinwen/wul0223c-02232021005409.html)
 
-This is what we shall believe in – there exists a force higher than human beings. The Americans not only can land on the moon and Mars, but also, I believe, will find another type of force that our human beings need. Any autocracies and evilness will be vanishing, and there is no room for being opportunistic or doubtful. Human beings are always moving forward. The wicked will surely be defeated, and justice will definitely prevail in this world like the sunlight. Just like this fire, no matter how big and strong you are, you will be burnt down and disappear in smoke and ash. Wonderful! So wonderful!
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-
-视频来源：[https://gtv.org/getter/60395d191958515902379c61](https://gtv.org/getter/60395d191958515902379c61)
-
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/934779/](https://gnews.org/zh-hans/934779/)
-
-翻译：【guocamole(文金欠)】校对：【Isaiah4031】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+（本文仅代表作者个人观点）
 
 0

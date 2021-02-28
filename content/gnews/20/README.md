@@ -1,99 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 由点及面刨析 为中共洗地的套路 评支持中共国举办2022冬奥会的文章
-` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/936913/)
+## 人类永远是往前走的，邪恶一定会被战胜
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/937215/)
 
-**【翻译者】Xingfffooo **
+新闻简述：在2021年2月26日的盖特视频中，郭先生背靠着火炉，面对着大雪，感慨万千：“上天是公平的，用了美国大选，用了整个的种族大屠杀、反人类罪，新中国联邦爆料革命、香港事件、威胁台湾，唤醒世界的人民，你不得不说上天的安排，都是如此的美好和美妙。”
+[下载字幕](https://gnews.org/wp-content/uploads/2021/02/Miles_20210226-Getter1.srt.txt)
+**人类永远是往前走的，邪恶一定会被战胜**
 
-2021年2月25日，道格拉斯·班多(Douglas Bandow)在《美国保守派》杂志上撰写了一篇文章，题目是《不要因举办地在中共国就抵制2022年的冬奥会》（Don’t Boycott The 2022 Olympics Because They’re In China）。文章中该洗地专家扮演一个理性中立客观者的角色，用看似滴水不漏的常用套路帮中共洗地，可谓是用心良苦。殊不知，无论是走在阳光灿烂的大街上，还是烟雾缭绕的小巷里，皇帝的新衣永远是皇帝的新衣。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/DOUG-BANDOW-2-e1614472494526.png)
-图片来源：道格·班多在弗吉尼亚州尚蒂伊举行的2013年自由政治行动会议(LPAC)上发表讲话。
+**Human Beings Are Always Moving Forward; The Wicked Will Surely Be Defeated**
 
-（**原作者背景：**道格拉斯·班多(Douglas Bandow),美国政治作家，现任卡托研究所（Cato Institute）的高级研究员。2005年，曾因为接受报酬，发表对客户有利的文章，而被卡托研究所辞退，随后又返回卡托研究所。）
+熊熊的烈火，真棒啊，然后你看外面的大雪，然后这里是熊熊的烈火，欲望之火。
 
-**文章中的一些论点和以提问方式呈现的论据摘选如下：**
+Blazing fire, awesome! And you look at the heavy snow outside while the flame, the flame of lust, is burning here. Ho-ho!
 
-“一些批评中共国的人士，主张抵制2022年在中共国举行的冬季奥运会。2008年的夏季奥运会对北京的宣传起到了很大的推动作用；毫无疑问，习近平政权计划将明年的赛事变成另一场自恋者的盛宴。这次抵制如果成功，将令发生在中共国的赛事蒙羞，并使东道主难堪。”
+真舒服，喝杯茶，吃个元宵，熊熊的烈火，你说想啥呀？饱暖思淫欲啊，人家在那玩接班人那，咱也玩不了什么接班人，只能玩火了，太棒了兄弟姐妹们，美好的生活。
 
-“到目前为止，拜登政府还没有公开发表任何言论，不过据报道，鉴于川普政府认定北京对待维吾尔人的行为是种族灭绝罪，拜登政府已经开始与盟友讨论奥运会的问题，这一结论也得到了国务卿安东尼·布林肯(Antony Blinken)支持。**国会议员汤姆·马林诺夫斯基(Tom Malinowski)称: “如果一个政府在从事种族灭绝，就不能在那个国家举办奥运会，否则会造成它是一个正常社会的错觉。”**
+Aiya, so comfy! After a cup of tea and some glutinous rice balls, sitting by the blazing fire, what’s the next thing that comes in your mind? [A Chinese slang:] When one is well-fed and well-clad, he or she will seek sexual gratification! They [those old bastards in the Zhongnan Pit] are fighting each other for the successorship, while that’s not something that we can play with. We can only play with fire! Ho-ho! Fantastic, brothers and sisters. What a beautiful life!
 
-“这种抵制的想法是应该的，但仅凭良好的愿望是不够的，因为这样的立场并不能改善中国的人权状况。”
+我在这边看，来自于世界各地的，关于以毒灭共的、以钱灭共的各种信息，感慨万千。共产党真是完球蛋了，它会像后面的木头一样，给烈火彻底的烧灭，彻底的消灭。这是没有任何悬念的，对吧？兄弟姐妹们？
 
-“**最重要的抵制发生在1980年**，当时苏联正在举办夏季奥运会。在美国的领导下，66个国家离开，抗议苏联入侵阿富汗。1984年，莫斯科也给予同样的回击，联合18个国家共同抵制了洛杉矶奥运会，但效果不那么好。”“后两起事件最重要的影响可能是增加了人们对政治和体育混在一起的反感，这将使美国奥委会倾向于反对在2022年重新举办奥运会。**任何严肃的抵制提议都必须回答几个问题。**”
+While staying here, I have been reading all sorts of information on taking down the CCP by the virus and financial activities from all over the world, and I’ve got all sorts of feelings welled up in my mind. The CCP is truly going to have their balls destroyed. Just like this piece of wood back there, it will be burnt completely from top to the ground. There is no doubt in that, right? Brothers and sisters?
 
-**首先，还会有人支持美国吗？**
+所以说真舒服，越是在这个时候我越想，上天是公平的，用了美国大选，用了整个的种族大屠杀、反人类罪，新中国联邦爆料革命、香港事件、威胁台湾，唤醒世界的人民，你不得不说上天的安排，都是如此的美好和美妙。但凡有真正信仰的人，都会知道上天在干什么，是吧？因为上天在惩罚恶人，没有人可以挡得住，没有人，没有人。
 
-“……中共宣布将对任何拒绝参加奥运会的国家进行报复，这几乎是必然发生的……刘晓波获得2010年诺贝尔和平奖后，……在挪威政府发表了一份由中国主导的令人痛心疾首的顺从声明后，经过六年两国政府才最终修复了关系。”
+So, aiya, so comfy! At this moment, I believe more and more that God is fair. He has used the US election, the genocide, the crimes against humanity, the New Federal State of China (NFSC) and Whistleblower Movement (WM), the Hong Kong crisis and the [CCP’s] threatening of Taiwan to wake up people all around the world. You have to say that God’s plan has always been wonderful and beautiful. Anyone who has got true belief would understand what God is doing, right? That’s because God is punishing the wicked, and nobody can stand in His way, no one, not a single person.
 
-“今天，即使是美国的盟友也极不情愿在政治和贸易问题上与中共对抗。大多数亚洲和欧洲国家与中共国有着重要的经济联系；去年年底，欧洲和中共国签署的投资协议为中共提供了更多的筹码。” “……这看起来就像是一场出于政治动机的道德虚荣之战，代价是那些将失去比赛机会的运动员们……更糟糕的是，统一行动将凸显美国的孤立，甚至是无能，使未来任何建立联盟的努力变得更加困难。最后，中共政府将变得更加大胆，更加确信，即使是中共过最糟糕的行为，也没有人准备好面对。”
+这就是我们要相信的，我们人类之外的一种力量。美国人不但能上月球，也不仅仅能上火星，我相信会找到我们人类上所需要的另外一种力量，任何独裁和邪恶都将消失殆尽。没有任何所谓的侥幸和怀疑。人类永远是往前走的，邪恶一定会被战胜，正义一定像阳光和光明的力量一样存在人间。就像这火一样，不管你多强大，都能把你烧得灰飞弹尽，好啊，真好啊。
 
-**第二，还有其他人愿意带头推动抵制吗?**
+This is what we shall believe in – there exists a force higher than human beings. The Americans not only can land on the moon and Mars, but also, I believe, will find another type of force that our human beings need. Any autocracies and evilness will be vanishing, and there is no room for being opportunistic or doubtful. Human beings are always moving forward. The wicked will surely be defeated, and justice will definitely prevail in this world like the sunlight. Just like this fire, no matter how big and strong you are, you will be burnt down and disappear in smoke and ash. Wonderful! So wonderful!
 
-“……没有人愿意被夹在美国和中共国之间，尤其是美国推动的任何行动都会被视为新冷战的一部分。迈克·蓬佩奥(Mike Pompeo)为美国攻击中共国而向亚洲和欧洲国家发出的豪言壮语，严重受挫。再加上美国在人权问题上有着名声不佳的反复无常：因为侵犯人权而攻击对手，却忽视朋友犯下的更严重的罪行。……如果由别国组织起来，抵制运动的可信度会更高。”
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-**第三，如果退出2022****年的比赛，是否会减少强调北京侵犯人权的机会？**
+视频来源：[https://gtv.org/getter/60395d191958515902379c61](https://gtv.org/getter/60395d191958515902379c61)
 
-“奥运会带来了大量的外国人和大量的媒体报道。各国政府和运动员是否可以利用比赛来强调中共国的不当行为？抵制的焦点会集中在中美争端上，而不是中共国对其人民的虐待吗？仅仅是美国拒绝参加，还能激起外国舆论对中共的反感吗？或者反而对美国产生反感？”
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/934779/](https://gnews.org/zh-hans/934779/)
 
-**第四，这样的行动会帮助被压迫的人吗？**
-
-“让中共领导层难堪可能感觉不错，但这会改善对维吾尔人或其他人的待遇吗？……中共政府的维稳支出已经超过了军事支出，这意味着它将自己的人民束缚起来。来自美国或其他国家的高调攻击很可能会让该政权陷入防守状态。这样的抵制能引起其他国家政府以有利于中国人民的方式对待中国吗？”
-
-**第五，抵制会被中国民众，尤其是年轻人，视为对国家的攻击，而不是对政权及其镇压政策的攻击吗?**
-
-“中共国的未来将由自己的人民决定，而不是外国人。积极改革的最大希望在于国内对变革的需求。中共国的年轻人不喜欢政府对他们生活的限制，但更不喜欢攻击他们的国家。一场抵制，尤其是由美国主导的，有损中共国声誉的抵制，将有可能促使人们支持中共政权。这将加强习近平和其他强硬派的地位，使政治改革更加遥远。”
-
-**最后，是否可以采取其他措施来凸显中共国侵犯人权的行为？**
-
-“例如，可以采取外交抵制的方式，即让世界各地的政府高官和名人都避免参加奥运会。或者高调地敦促赞助商撤回他们的支持，或者组织抵制赛事广告商。所有这些都可以在不惩罚运动员的前提下表现出公众的不满，并鼓励讨论。”
-
-**【观点评论】**
-
-**这篇文章在为中共洗地的套路使用上非常到位，显然是在中共大外宣的框架下润笔的，其目的是让这场抵制运动知难而退。**
-
-**套路1：恐吓**
-
-文章里有几种恐吓方式：1. 中共是一定会报复的；2. 中共的报复是很吓人的、后果很严重的；3. 美国的盟友既不情愿也没有能力对抗中共，美国发起的抵制会让自己更加孤立无援；4. 抵制会让联盟脆弱不堪，成功的可能性很低；5. 万一抵制运动失败，中共将更加有恃无恐，还不如不抵制。
-
-**套路2：分化**
-
-文章里是如何利用偷换概念的方式分化观点和力量的？1. 装作一定程度上同意政治和体育相结合的抵制，但又在利益和权威上挑唆抵制运动与国际奥委会之间的关系；2. 找出一些例子挑拨美国与盟友之间的关系，突出和放大联盟内部的矛盾；3. 以奥运史上的相互抵制分化各国奥委会，尤其是未来的东道主与其他国家之间的关系；4. 混淆、分化体育精神与种族灭绝的联系；5. 分化运动员对抵制运动的看法。
-
-**套路3：淡化**
-
-文章中不断地将中共的种族灭绝进行淡化，通过词汇变换的伎俩逐渐将种族灭绝这个令人激愤的词汇转换为侵犯人权行为、非法违规行为、不当行为等代表情节轻微行为的词汇。
-
-**套路4：羞辱**
-
-文章中以美国人权以及在对待他国人权上的不足为理由羞辱美国的道德根基，误导读者的价值判断，让人陷入一种扭曲的、批评或抵制种族灭绝需要具备资格的思维当中。这种中共常用的以羞辱他人道德的下三滥招式，无非是为了瓦解对方的锐气，与中共在种族灭绝上罪大恶极的事实一点关系都没有。
-
-**套路5：捆绑**
-
-文章中把中共与中国人，尤其是年轻人捆绑在一起，把针对种族灭绝的抵制运动与政治改革、对抗中共的邪恶与立竿见影改善维吾尔人的现状捆绑在一起。文章还把对中共的反击转化成对中共的攻击，再与对国家的攻击捆绑在一起，这种招式很容易让那些思路不清晰的对手顾虑重重，左右为难，失去行动力。
-
-**最后：拖延**
-
-文章最后提出的一些对中共不痛不痒，甚至是根本不起作用的建议，实在是低劣的笑话。**明眼人都会看出其目的是：延缓抵制运动的议程，让中共国坐实了2022年冬奥会的举办权。**
-
-【参考来源】
-
-[Don’t Boycott the 2022 Olympics Because They’re in China | The American Conservative](https://www.theamericanconservative.com/articles/dont-boycott-the-2022-olympics-because-theyre-in-china/)
-
-[Doug Bandow – Wikipedia](https://en.wikipedia.org/wiki/Doug_Bandow)
-
-[联合抵制1984年夏季奥运会 – 维基百科，自由的百科全书 (wikipedia.org)](https://zh.wikipedia.org/wiki/%E8%81%94%E5%90%88%E6%8A%B5%E5%88%B61984%E5%B9%B4%E5%A4%8F%E5%AD%A3%E5%A5%A5%E8%BF%90%E4%BC%9A)
-
-**【编辑】冰糖葫芦喵**
-
-**【免责声明】**  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-**欢迎战友加入旧金山金喜准农场**
-
-**旧金山金喜准农场** GTV [https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
-
-**旧金山金喜准农场** Discord [https://discord.gg/QQzQ79grEA](https://t.co/hPEjhr0AZA?amp=1)
-
-**旧金山金喜准农场** Twitter [https://twitter.com/sf\_himalaya](https://twitter.com/sf_himalaya)
+翻译：【guocamole(文金欠)】校对：【Isaiah4031】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
 0

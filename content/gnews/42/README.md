@@ -1,47 +1,97 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共匪在台湾是真要有动作
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/936651/)
+## 【墙文推荐】真实的农村是一片人性的荒漠
+` 纽约香草山MOS04` [轉載自GNews](https://gnews.org/zh-hans/936742/)
 
-新闻简述：在2021年2月4日的盖特视频中，郭先生劝说台湾战友离开台湾，因为据中共内部战友的情报，“共匪在台湾是真要有动作”。但是同时他也说：“说实在话，共匪一打台湾，共匪就结束了。”
+作者：军师
 
-**共匪在台湾是真要有动作**
+就一般而言，抒写家乡的美文司空见惯，问题是家乡既然那么美那么好，为什么要背井离乡呢？回答这个问题理由可以千千万，但有一个回避不了的现实问题，往往都因为生存的空间被束缚资源匮乏所致，这些，无不隐藏着制度与人性的焦虑，那些走出去的人在家乡以外打拼，没走去的人依然在家乡熬日子。这让我想起普林斯顿大学华裔教授余英时老先生的话：我死后连骨灰都不要飘回去。
 
-**The CCP Is Seriously Considering Taking Actions in Taiwan**
+———————-推荐者纽约香草山 毛大拿
 
-就是台湾的战友，我的大牛兄弟，我的台湾巴黎妹妹，我们的台湾大帅哥，大美女，你们夫妻两个真的是，跟咱们战友都传达传达，今天刚刚我获得更多信息呀，这是共匪在台湾是真要有动作啊，不行台湾巴黎赶快来美国吧，只要能来，带着咱们战友，七哥保证你们，住的，吃的，工作，就是每年的工资，绝不亚于你在台湾的，只能比那多，不会比那少，七哥保证。
+原文
 
-It is about my fellow fighters in Taiwan, like my brother Da-Niu, my sister Taiwan-Paris, a handsome guy, and a stunner. You couple really need to inform all our fellow fighters in Taiwan. I just received more information today: the CCP is seriously considering taking actions in Taiwan. If possible, come to the United States quickly, along with our fellow fighters. As long as you can get here, I will guarantee your accommodations, food, and jobs. Your annual salary will be no less than what you make in Taiwan. It can only be more, not less. I promise.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/GNEW-GTV-MOS-LOGO-2-5.jpg)
 
-吃的不比台湾差，这你放心，中餐就不行了，七哥吃啥就让你吃啥，这点保证。真的要想想了，台湾的兄弟姐妹们你们真的要想想了，看来啊真是要有事啊，哎呀。说实在话，共匪一打台湾，共匪就结束了。但是想起台湾我的大牛兄弟，巴黎妹妹，还有那么多兄弟姐妹在那，真是担心，还有很多朋友啊，我那李祖原大师虽然是因为懦弱把我给抛弃了，但是他公司李祖源事务所的人，还有李大师我还是很惦记他呀，还有很多兄弟呀，我还是很惦记的呀。
 
-The food will be no worse than Taiwan if not considering Chinese cuisine, so no worries about this. You will eat as well as I do, which is guaranteed. It is really time for you to think about this. Brothers and sisters in Taiwan, you really need to think about it. It seems that something is really going to happen. Truly I tell you, once the communist bandits attack Taiwan, the CCP will be finished. However, it worries me when thinking of my brother Da-Niu, my sister Taiwan-Paris, and so many brothers and sisters in Taiwan. There are also many other friends in Taiwan, like Master Chu-Yuan Lee. Although he abandoned me because of his cowardice, I am still concerned about him and the staff in his firm – the C.Y. Lee & Partners. There are many brothers out there that I still care about.
 
-这几天发生了各种迹象，内部战友的各种情报，台湾真是不妙，真是不妙，如果是共产党在台湾这一动手，生灵涂炭，血流成河呀。这就是疯狂啊。中国历史上的政治斗争，绝大多数都是朝廷的内斗，现在可悲的是几千年后，中共中国人要不打中国人，只杀中国人的故事一次一次重演，天天说中国人不打中国人，在香港把中国同胞，香港同胞，全扔海里去了，扔海里还得轮了强奸了，掏肛。成天说对着台湾喊，中国人不打中国人，天天吓得半死。这回可能真的是不打台湾人，是杀台湾。
 
-In the past few days, there were all kinds of signs and all kinds of intelligence from fellow fighters inside the CCP, which are really not good for Taiwan, really not good. If the CCP indeed attacks Taiwan, there will be mass casualties and a lot of blood will be shed. This is insane. The vast majority of the political struggles in Chinese history have been internal strifes in the imperial court. Sadly, thousands of years later, the CCP’s story of “Chinese do not fight Chinese, only kill Chinese” has been a recurring theme. The CCP says that the Chinese do not oppose Chinese on a daily basis, but in Hong Kong, it threw many Chinese and Hong Kong compatriots into the ocean after gang-raping them and humiliating them. The CCP always propagandized to Taiwanese that Chinese people do not fight Chinese, whereas the Taiwanese are scared half to death every day. This time they may not fight Taiwanese, but to kill Taiwanese.
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Jietu20210221-160746.jpg)
+人人都说家乡好，其实，我一直不怎么喜欢我的农村老家。
 
-你说咋弄？这真没办法，这流氓土匪，七哥要是有本事，如探囊取物一样，就把他给捏死在中南坑这些老杂毛，七哥马上就干哪，是吧？现在七哥是干着急啊，担心哪。但是刚刚我在运动的时候，咱们内部战友说，让台湾的战友能离开台湾就离开吧，弄得我心里戈登戈登的，所以说赶快拿起来手机录一段，盖特一下子。哎呀，兄弟姐妹们，共产党真疯了，我就很难想象，连猪都不如的智商几个老杂毛，想统治世界？这到底是世界要灭他？还是他自己要灭自己？不管谁要灭他，他能不能少祸害这些老百姓呢？没法弄，没法弄，兄弟姐妹们。
+去年看到一则新闻，某地一个在外打工的儿子请7天假，回家看望病危的父亲，两三天过去，父亲仍没有死。儿子问父亲：“你到底死不死？我就请了7天假，是把做丧事的时间都算进来的。”老人随即自杀。儿子赶在一周内办完丧事，回城继续打工。
 
-What can you say? There is no way to deal with these rogue bandits! If I had magical powers, I would have crushed those old bastards of the CCP who live in the Zhongnan Pit in no time, right? But now I can do nothing but be anxious and worried. A moment ago, while I was working out, a friend inside the CCP told me to ask our fellow fighters leave Taiwan if they can. These words are disturbing to me, so I quickly picked up my phone and recorded a Getter video. Aiya, brothers and sisters, the CCP is really crazy! I can’t imagine that those old bastards who are less intelligent than pigs want to rule the world?  Is the world trying to destroy them? Or are they destroying themselves? No matter who wants to destroy them, can they do less harm to the old hundred names? Well, it’s absurd, brothers and sisters.
+看到这样的新闻，其实我并不感到特别震惊。在我的记忆里，农村就是这样的，只是我没有想到，过了这么多年，人心还是这么坏。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+我在农村——是那种只从事农业生产、几乎没有任何工业的真正农村——生活了21年，直到大学毕业参加工作才真正离开。
 
-视频来源：[https://gtv.org/getter/601ca75ff5b9e26ca9d841e2](https://gtv.org/getter/601ca75ff5b9e26ca9d841e2) (4:59-8:40)
+从过往经历看，我隐隐觉得，讴歌农村的都是酸腐文人。真实的农村没有田园牧歌和淳朴民风，有的是尔虞我诈、欺善怕恶、弱肉强食。
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/880326/](https://gnews.org/zh-hans/880326/)
+不客气地说，在我从小见识的农民中，冷漠、小气、因为嫉妒而心态扭曲，是其中不少人身上的标签。至于兄弟相残、父子反目、姐妹成仇等现象，更是屡见不鲜。
 
-参考链接：[https://gnews.org/902785/](https://gnews.org/902785/)
+贫穷的乡村里，什么故事都有，继父从小睡继女、老公婚外情、老婆偷汉子、叔叔毒死亲侄子、父亲服毒儿子不施救、子女不赡养父母、将年迈父母赶到猪栏居住……都是真实故事。
 
-* * *
+某台有个栏目叫“真实故事”，我妈最喜欢看。我有时对她说，不用看了，回老家拍剧，每天一个“真实故事”，可以拍一年，每个不重复。我妈听了很不高兴，但真实乡村的人生百态就是这么荒诞而丰富。
 
-翻译：【rainbow】校对：【Isaiah4031】【BruhM】字幕：【奔腾的长江】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+穷人在农村体会不到尊严和温暖，越穷越受欺凌。
+
+当然，越穷越不讲理、越蛮横霸道的也有，但主角必须是那种性格强横、身强力壮的，更多的是越穷越受欺凌。农村本就不富裕，而一些人要么因为头脑不灵活、要么因为身体有缺陷、要么因为性格不合群而比一般人更穷，穷就会自卑，就会懦弱，所以容易受欺凌。
+
+在我记忆中的农村，无论老少，有修养、讲文明的不多。单亲家庭的孩子、随母改嫁的孩子、服刑犯的孩子、非亲生被抱养的孩子是最容易被欺负被凌辱的对象。家庭越弱势，越是身体有缺陷，越是缺乏关爱，越是容易被奚落、取笑、欺凌。小时候，一些顽劣的小孩欺负、取笑残疾、智障、单亲的小孩，有些大人见了也不制止，甚至带头参与。
+
+村妇在背后议论是非、传播丑闻乐此不疲，也许是乡村娱乐生活极其缺乏，而生活圈子又太窄，一点点是非琐事、家长里短，两三天就能传遍整个村子——熟人社会有时非常可怕。过去是这样，现在不知道有没好点——毕竟我已经离开近多年——也许现在已经进化了吧。
+
+所以，记忆中的温暖和爱只来自父母，而不是农村。
+
+农村是熟人社会，以宗族血缘为纽带；城市是陌生人社会，住在同一栋楼，也可能对面相逢不相识，住满十年也可能从未踏进邻居的门。我比较适应陌生人社会，管闲事的人少，互不干涉，自得其乐。
+
+农村人嫌贫爱富的不在少数，他们在权贵面前奴颜媚膝——所以权贵富豪往往觉得农村人老实——但在比自己更弱势的人面前则趾高气扬。
+
+经过帝制社会几千年的专制统治，农民怕官怕富又仇官仇富。平时害怕，但一有机会，就恨不得置所有权贵、富人于死地。**农民的老实懦弱与狡猾凶狠是人性中的一体两面，往往同时存在于同一人身上。**
+
+**为什么历史上的造反、起义和某些群众性运动，破坏性那么强？就是充分调动了农民内心深处的暴戾之气和人性中的恶，一旦爆发，不可抑制。**
+
+听奶奶那一辈的老人讲过，当年斗地主，都是恶狠狠地往死里整。
+
+帝制社会里的农民，平时是容易统治的顺民，一被煽动，就是最可怕的暴民，无恶不作，没有底线。
+
+村妇的吵架，是世上最恶毒诅咒的大集合。我就是听着村妇的吵架、看着村民们打架长大的。田间地头，为了争夺一点水源，都能破口大骂、大打出手。
+
+打架和对骂是农村日常必备娱乐之一。为了一点蝇头小利，村民们能动起刀子。在城里老实巴交、屁也不敢放一个的农民，面对同宗同族兄弟，却能异常凶狠。为了争夺屋前屋后的一寸宅基地、相邻放养的一只鸡鸭鹅的归属，他们能大打出手。兄弟之间比邻而居，一方禁止对方房子的屋檐滴水越过排水巷的中线——这不是故事，这是真事。
+
+每到插秧季节，因为稻田蓄水问题——就是谁的稻田水多一点，谁的稻田抢先蓄水影响了别人，以及田埂堆筑问题——两家的稻田相邻，有的人总爱把中间的田埂向己方开挖以便多占一点面积——都能引发无数场对骂和十数场打架。现在农村大多数人出去打工，耕田的人少，类似事件可能大幅减少了。
+
+都说尊老爱幼是中国的优良传统，有时说起来却觉得并不是那么理直气壮。也许，爱护弱小只不过是人类天性，在这方面，似乎中国并不比其他国家做得更好。爱幼倒是普遍存在，但虐幼害幼也时有发生，至于各种形式的虐老害老，深究起来，那可真是触目惊心了。
+
+农村的老人，尤其是贫困家庭的老人，活得卑贱而无尊严。很多人将年迈的老人视为包袱和累赘，内心希望老人早死，有的甚至宣之于口。在农村死个70岁以上的老人，就像死条狗一样平常。前年我有个亲戚病逝，前来奔丧的人中，有几个人毫无悲戚之色，连装也不想装一下，居然还在丧礼上谈笑风生，打扑克牌玩游戏。
+
+老人死在家中，被视为一件晦气的事，所以，年迈行动不便或患病的老人，往往被赶到老屋居住，没有老屋，搭个茅棚暂且容身，也是常事。很多老人就在老屋或茅棚孤独、冷清地熬日子，直到死去。
+
+逃离令人厌恶的乡村，是我读书的重要动力。我至今仍然认为，农村只适合远观，不适合深入；只适宜度假，不适宜常住。
+
+讴歌美化农村的言论很多，农村有千百面，也许我看到的只是某些方面。但总的来说，经济越发达的地方，人类的行为越文明。古人说：仓廪实而知礼节，衣食足而知荣辱。诚不我欺。
+
+本文不想单纯停留于批判农村的不文明。我想，农村不文明现象比城市更多，符合人性和经济学规律。农村的资源比城市更紧张，为了争夺赖以生存的资源，农民没有动力讲文明，他们必须锱铢必较。将有限的资源用在能产出效益的人身上——通常是年轻年幼的——只不过是理性经济人的正常选择。
+
+10年前，老家65岁以上老人，得了重病，极少送医院诊治；15年前，则基本没有——为何？因为子女认为，活到这个岁数如果不能产出效益，也该死了。得重病后与其送医院浪费钱，还不如把钱省下来改善子孙的生活。近几年，农村合作医疗普及，费用报销结算也更方便，老人得病后送院的，也渐渐多了起来。
+
+有时候想想，对农民也不能责之太苛。道德需要物质保障，脱离现实讲道德，只不过是空谈。趋利避害是人性本能，也许，所有不文明，究其根源，都是穷之过吧。
+
+只有这样想，才不至于对人性太失望。
+
+编者：此文非作者投稿，而是從谷歌搜索救下的文章。为保护原作者人生安全署名为化名。
+
+校对/发稿 ：悟空
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/WhatsApp-Image-2020-10-24-at-04.33.05.jpeg)
+
+
+
+
 
 0
