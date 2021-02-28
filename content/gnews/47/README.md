@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西班牙延长非必要旅行临时限制至3月31日
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/936388/)
+## 西班牙首相桑切斯关于“疫苗接种证书”的解释
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/936390/)
 
 - 编辑：Victor Torres
 - 翻译：gokuabuela
@@ -11,9 +11,11 @@
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年2月27日电/西喜社——**据ABC新闻2月26日报道，由于中共病毒引发的健康危机，西班牙出于公共秩序和公共卫生的考虑，于本周五开始，对第三国前往欧盟及相关申根国家的非必要旅行的临时限制，延长至3月31日。
+**西班牙2021年2月27日电/西喜社——**据ABC新闻2月26日报道，西班牙首相桑切斯在本周五向媒体解释了有关“疫苗接种证书“的更多细节。
 
-这项命令发布于“国家官方公报”( BOE), 而在此之前，内政部长延长了于1月28日结束的限令至2月28日。现在，此限令再次延长一个月，至3月31日。
+他指出：”已经就它们应该拥有的最低限度的共同数据达成了协议”，但关于它们的 “未来用途 “的辩论仍在继续。”目标是在不增加健康风险的情况下恢复正常生活和旅游。” “我们不应该满足于单方面的解决方案，应该在欧盟内部和其他多边论坛上进行公开辩论，”他补充说。
+
+之前，他已经拒绝了这样会对未接种疫苗的人产生不平等的说法。
 
 **新闻来源：[ABC新闻](https://www.abc.es/sociedad/abci-coronavirus-espana-directo-brasil-supera-250000-muertes-coronavirus-202102260617_directo.html#vca=mod-lo-mas-p4&amp;vmc=leido&amp;vso=sociedad&amp;vli=noticia.foto.sociedad&amp;vtm_loMas=si)**
 
