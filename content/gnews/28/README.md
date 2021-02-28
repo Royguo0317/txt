@@ -1,47 +1,117 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共匪在台湾是真要有动作
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/936651/)
+## 【德教专栏】—何谓民主？
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/931038/)
 
-新闻简述：在2021年2月4日的盖特视频中，郭先生劝说台湾战友离开台湾，因为据中共内部战友的情报，“共匪在台湾是真要有动作”。但是同时他也说：“说实在话，共匪一打台湾，共匪就结束了。”
+![](https://lh5.googleusercontent.com/PW6-kzAddpk-cQFSjqV7P_LnVk9EMymeRc4sgnSVmLKGmikFYDoSmfJTcTcp1ZPGDp5KUsSPeVTpX0j3p0F10RKe79sPJnN-T3baL6u6r0BWjbJq2KxaZ8CkiDxvt9X0FdzX2ZJZ)
 
-**共匪在台湾是真要有动作**
+作者：[德先生](https://gtv.org/user/5e7d110e0b629f6c2cef3da3)
 
-**The CCP Is Seriously Considering Taking Actions in Taiwan**
+有人说民主政治对民众的素质要求比较高，就目前的国人水平，是不是就算近两年走向民主社会，也未必是好事？
 
-就是台湾的战友，我的大牛兄弟，我的台湾巴黎妹妹，我们的台湾大帅哥，大美女，你们夫妻两个真的是，跟咱们战友都传达传达，今天刚刚我获得更多信息呀，这是共匪在台湾是真要有动作啊，不行台湾巴黎赶快来美国吧，只要能来，带着咱们战友，七哥保证你们，住的，吃的，工作，就是每年的工资，绝不亚于你在台湾的，只能比那多，不会比那少，七哥保证。
+这个话题太大了，他牵涉到**民主政治的本质到底是什么？如何才能让民主政治走向成功？**很多人认为民主一定好，其实也不一定。全世界绝大多数的国家都是民主政治，都很好吗？我们看到他们有各种各样的问题，是什么原因导致这么多问题呢？我们要透过现象看到本质。
 
-It is about my fellow fighters in Taiwan, like my brother Da-Niu, my sister Taiwan-Paris, a handsome guy, and a stunner. You couple really need to inform all our fellow fighters in Taiwan. I just received more information today: the CCP is seriously considering taking actions in Taiwan. If possible, come to the United States quickly, along with our fellow fighters. As long as you can get here, I will guarantee your accommodations, food, and jobs. Your annual salary will be no less than what you make in Taiwan. It can only be more, not less. I promise.
+#### **多数人的意见就一定对吗？**
 
-吃的不比台湾差，这你放心，中餐就不行了，七哥吃啥就让你吃啥，这点保证。真的要想想了，台湾的兄弟姐妹们你们真的要想想了，看来啊真是要有事啊，哎呀。说实在话，共匪一打台湾，共匪就结束了。但是想起台湾我的大牛兄弟，巴黎妹妹，还有那么多兄弟姐妹在那，真是担心，还有很多朋友啊，我那李祖原大师虽然是因为懦弱把我给抛弃了，但是他公司李祖源事务所的人，还有李大师我还是很惦记他呀，还有很多兄弟呀，我还是很惦记的呀。
+民主的反面是独裁，独裁是一个人说了算，一个人做决定；民主是一堆人做决定，大多数人的意见，现在的关键问题是，**多数人的意见就一定对吗？**
 
-The food will be no worse than Taiwan if not considering Chinese cuisine, so no worries about this. You will eat as well as I do, which is guaranteed. It is really time for you to think about this. Brothers and sisters in Taiwan, you really need to think about it. It seems that something is really going to happen. Truly I tell you, once the communist bandits attack Taiwan, the CCP will be finished. However, it worries me when thinking of my brother Da-Niu, my sister Taiwan-Paris, and so many brothers and sisters in Taiwan. There are also many other friends in Taiwan, like Master Chu-Yuan Lee. Although he abandoned me because of his cowardice, I am still concerned about him and the staff in his firm – the C.Y. Lee & Partners. There are many brothers out there that I still care about.
+不一定，多数人的意见往往是错的，绝大多数都是错的，历史基本上是少数人改变的。在这个前提下，民主和独裁的本质就是谁做决定？决定的依据是什么？这是一个更深层次的问题。
 
-这几天发生了各种迹象，内部战友的各种情报，台湾真是不妙，真是不妙，如果是共产党在台湾这一动手，生灵涂炭，血流成河呀。这就是疯狂啊。中国历史上的政治斗争，绝大多数都是朝廷的内斗，现在可悲的是几千年后，中共中国人要不打中国人，只杀中国人的故事一次一次重演，天天说中国人不打中国人，在香港把中国同胞，香港同胞，全扔海里去了，扔海里还得轮了强奸了，掏肛。成天说对着台湾喊，中国人不打中国人，天天吓得半死。这回可能真的是不打台湾人，是杀台湾。
+**民主是尊重每个个体，大家都要发表自己的意见，每个人都看到一个角度，但是如何证明你看到的角度就是对的呢？**无法证明，只能折中，选大多数人认同的，不会是最差的，也绝对不是最好的决策，基本上是中等决策。独裁就是两个极端，要么是最好的，要么是最烂的。
 
-In the past few days, there were all kinds of signs and all kinds of intelligence from fellow fighters inside the CCP, which are really not good for Taiwan, really not good. If the CCP indeed attacks Taiwan, there will be mass casualties and a lot of blood will be shed. This is insane. The vast majority of the political struggles in Chinese history have been internal strifes in the imperial court. Sadly, thousands of years later, the CCP’s story of “Chinese do not fight Chinese, only kill Chinese” has been a recurring theme. The CCP says that the Chinese do not oppose Chinese on a daily basis, but in Hong Kong, it threw many Chinese and Hong Kong compatriots into the ocean after gang-raping them and humiliating them. The CCP always propagandized to Taiwanese that Chinese people do not fight Chinese, whereas the Taiwanese are scared half to death every day. This time they may not fight Taiwanese, but to kill Taiwanese.
+纵观中国整个历史，从一开始的**圣人民主**，那时候人民是圣人，领袖也是圣人，大家很容易达成共识；后来到**圣人独裁**，因为人民的素质越来越差，但是精英还是圣人，民众变得很普通，这时候就是精英做决定，圣人独裁；再到后面就变成上面也不是圣人，下面也不是圣人，德行都不大好，很多坏人，要互相防着，像西方的契约精神。
 
-你说咋弄？这真没办法，这流氓土匪，七哥要是有本事，如探囊取物一样，就把他给捏死在中南坑这些老杂毛，七哥马上就干哪，是吧？现在七哥是干着急啊，担心哪。但是刚刚我在运动的时候，咱们内部战友说，让台湾的战友能离开台湾就离开吧，弄得我心里戈登戈登的，所以说赶快拿起来手机录一段，盖特一下子。哎呀，兄弟姐妹们，共产党真疯了，我就很难想象，连猪都不如的智商几个老杂毛，想统治世界？这到底是世界要灭他？还是他自己要灭自己？不管谁要灭他，他能不能少祸害这些老百姓呢？没法弄，没法弄，兄弟姐妹们。
+#### **契约精神的来源**
 
-What can you say? There is no way to deal with these rogue bandits! If I had magical powers, I would have crushed those old bastards of the CCP who live in the Zhongnan Pit in no time, right? But now I can do nothing but be anxious and worried. A moment ago, while I was working out, a friend inside the CCP told me to ask our fellow fighters leave Taiwan if they can. These words are disturbing to me, so I quickly picked up my phone and recorded a Getter video. Aiya, brothers and sisters, the CCP is really crazy! I can’t imagine that those old bastards who are less intelligent than pigs want to rule the world?  Is the world trying to destroy them? Or are they destroying themselves? No matter who wants to destroy them, can they do less harm to the old hundred names? Well, it’s absurd, brothers and sisters.
+契约精神来源于古希腊，航海贸易时代，希腊的地理位置在爱琴海边上，土地贫瘠，种不了主粮，只能种一些经济作物，比如葡萄、橄榄之类的，于是大力发展贸易，和不认识的人做生意，当然会担心别人说话不算数，所以就需要白纸黑字写下来，还要找个担保，这就是**契约精神的来源**。后面的法治，也是因为不信任，契约精神就是基于不相信他，认为他会做坏事。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+包括后来美国的**三权分立**，把权力关在笼子里，在三权分立的基础，上再加上媒体、军队、人民持枪，**六权分立**，就是因为不相信政治家是好东西，如果权力不得到约束，一定会去干坏事。因为这是人性，前提是这些人是凡夫，当然不包括所有人。
 
-视频来源：[https://gtv.org/getter/601ca75ff5b9e26ca9d841e2](https://gtv.org/getter/601ca75ff5b9e26ca9d841e2) (4:59-8:40)
+#### **民主的反例**
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/880326/](https://gnews.org/zh-hans/880326/)
+举个反例，比如**文贵先生**，如果靠投票做决策，爆料革命早死了10万次了，我们有他的智慧吗？有他的情报来源吗？都没有，而且很多人都有自己的小算盘，在古人看来这是**虽有好心，但为名利之所夹杂**。比如Sara，可能一开始也是想干点好事，但是后来被名利收买，这就是人性，很正常，所以要抓住根本，根本是人心。
 
-参考链接：[https://gnews.org/902785/](https://gnews.org/902785/)
+光靠民主是不靠谱的，民主和独裁，引申到集中化还是去中心化，都是一个意思，很多人觉得要去中心化，人人都是中心，人人都说了算，一人一票，每个人都发挥主观能动性。
 
-* * *
+**开发每个人的智慧，开发每个人的内心，这话讲起来容易，但是如何开发每个人的内心？没有那么容易，这不是口号，这是一个专业，喊口号没用的，去除不了内心的贪嗔痴，这是很专业的技术。**
 
-翻译：【rainbow】校对：【Isaiah4031】【BruhM】字幕：【奔腾的长江】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+#### **民主和独裁的四种情况**
+
+古人是透过现象看本质的，从**圣人民主**到**圣人独裁**，从圣人独裁到**凡夫民主**，因为凡夫互相不相信，都是坏人，这是中国的法家思想，性恶论，人心是坏的，不能相信，所以要靠制度，再往下是**恶人独裁**，就是共产党这样的，更烂更坏。
+
+**民主和独裁分为这四种情况，我们不能因为共产党是恶人独裁就说凡夫民主是最好的，这是见识浅薄，只知其一，不知其二，只知道这两种，还有两种呢。最重要的核心是要不要去中心化？不能去中心化，要有中心，但不能以一个人为中心，是人就有可能犯错误，就有判断错误的时候，这很正常。我们要做的不是以人为中心，而是以道为中心。**
+
+传统文化讲的就是以道为中心，道是宇宙人生的规律，道是大智慧。如果我们所有的人都明白道是什么，就都有一把尺来衡量，到那时候民主就非常好了。在没有实现之前，负责开国家汽车的人就必须坚持这个道，不能开到沟里去，如果都投票选举的话，绝大多数人都是没智慧的，很可能选出个坏人，说的很好，要实现大同社会，但是最后开到沟里去了，这里面最重要的是**民众是否有判断力**。
+
+如果我们有判断力，车开歪了，我们可以立刻制止，踩刹车，告诉他该往哪儿开，前提是我们得知道往哪里开，方向确定，就像美国《独立宣言》一样，方向先定下来，开错了，就要弹劾他，换人，这时候**民主才能发挥作用**。
+
+#### **民主需要具备的两个前提**
+
+第一个必须要有**法治**，坏人做了坏事，必须要受到惩罚，要严惩不贷，否则一颗老鼠屎，会坏一锅粥。美国现在的法治被侵蚀了，有法治，人不去执行，就相当于没法治了。
+
+![This image has an empty alt attribute; its file name is AJXuXrUuZsyLj0bQrhOhC4Z1B2iP_LKMJXT6axvAsJStS3kIreQo2AtH8GFAHgHMzVKi9d9Mcs4SNdxm8o1pEkEFNpWFi4ypGbaTjTJ4OCa64qa_9OXHkCHtlA63MaLLkk46hzwg](https://lh3.googleusercontent.com/AJXuXrUuZsyLj0bQrhOhC4Z1B2iP_LKMJXT6axvAsJStS3kIreQo2AtH8GFAHgHMzVKi9d9Mcs4SNdxm8o1pEkEFNpWFi4ypGbaTjTJ4OCa64qa_9OXHkCHtlA63MaLLkk46hzwg)
+
+第二个前提是**人民必须开智**，这要靠四种教育。**家庭教育、学校教育、社会教育、信仰教育。**要有宗教的自由，媒体自由，学校教育要脱离政治，家庭教育必须要培养合格家长，社会教育要由媒体引导。如果媒体和教育都被控制，法治也被控制，就完了，民主一定是名存实亡，就像美国今天这样，他还能叫民主灯塔吗？
+
+坏人得不到惩罚，人民不断被愚弄，这样的民主还有用吗？美国现在就是这样，人民已经糊涂了，不断被媒体洗脑，被教育洗脑，这一车乘客都不知道要往哪儿去，就相信司机，司机又会骗，演讲的时候口若悬河，要给人民带来民主，结果只带来个狂许诺。
+
+#### 新中国联邦的民主走向何方？
+
+我们现在只能是要么司机知道去哪儿，要么乘客知道去哪儿。指望中国再回到圣人独裁，基本不可能，所以司机知道去哪就不存在了，就剩下一条路，**人民要知道去哪儿**。
+
+但现在中国人民知道去哪儿吗？人民已经被洗成动物性和魔性了，每天就知道物质，除了吃就是性，还互相斗争，人民已经没有智慧了，不知道去哪儿。
+
+这时候就要看司机了，碰上好的司机像文贵先生这样的，一心为人民，又有智慧，他一个人开车也可以，但是他不愿意干，剩下的能相信谁？在共产主义教育下的这些人，身上有太多魔性思想，已经中毒太深，没有权力监督的，一个都不可信。
+
+所以新中国首先要建立法治，其次是人民要开智，要有一批头脑清醒的人，监督新司机，这就是文贵先生打造GTV、GNEWS的意义。**新中国联邦要在外面监督他，但重点是要让人民开智，这是关键。**指望司机心又好，又有智慧，能开到好的地方去，这就是对人性的不了解，不要抱这个幻想。指望圣君，不可能的，都是凡夫不可能有好的，必须要有法治，防止他作恶，要有媒体监督他，媒体不能被控制。
+
+现在的美国虽然形式上有媒体监督，但是被收买了，还有教育，教育方面白左当道，白左思想不断渗透到教育里面，渗透太深，未来新中国联邦还要靠自己。
+
+**[德教云书院官方频道GTV](https://gtv.org/user/5ea9863c7a804e67f70522db)**
+
+**[德教云书院 Discord](https://discord.com/invite/zsME4jN)**
+
+#### 整理：[比卡丘](https://gtv.org/user/5e8534df6d2f547b2f763462)
+
+#### **编辑：[Amos文也](https://gtv.org/user/5e750fdd7fdb1049cc747023)** 
+
+#### [德教云书院] 其他文章：
+
+
+
+> [\[德教专栏\]—水的智慧](https://gnews.org/zh-hans/789084/)
+
+
+
+
+
+> [【德教专栏】—大重启和大觉醒—大重启（上）](https://gnews.org/zh-hans/917109/)
+
+
+
+
+
+> [【德教专栏】—大重启和大觉醒—大重启（下）](https://gnews.org/zh-hans/917303/)
+
+
+
+
+
+> [没有规矩 不成方圆](https://gnews.org/zh-hans/926887/)
+
+
+
+**（文章仅代表作者个人观点）**
+
+**【免责声明】**  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+**欢迎战友加入旧金山金喜准农场**
+
+[**旧金山金喜准农场 GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+
+[**旧金山金喜准农场 Discord**](https://discord.gg/QQzQ79grEA)
+
+**[旧金山金喜准农场 Twitter](https://twitter.com/sf_himalaya) **
 
 0
