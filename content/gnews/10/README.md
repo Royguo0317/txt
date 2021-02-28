@@ -1,26 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布林肯谴责缅甸部队对平民实施令人发指的暴力
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/938849/)
+## 捷克要求俄罗斯提供《人造卫星-V》疫苗
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/938894/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
+编辑   水星    上传    银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-03-01_01-39-08.jpg)[news.yahoo.com](https://news.yahoo.com/russias-suspiciously-fast-covid-vaccine-program-has-health-officials-concerned-163006017.html)
+2月28日，捷克总统米洛斯·泽曼已致信俄罗斯总统弗拉基米尔·普京（Vladimir Putin），要求他开始向该国提供针对中共病毒的《人造卫星-V》疫苗。泽曼向CNN普瑞玛电视频道介绍了这一情况。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+据捷克总统说，他与安德烈·巴比什总理协调了这一请求。泽曼明确表示，俄罗斯已经表示愿意向捷克提供该药物。
 
-**西班牙2021年2月28日电/西喜社——**美国国务卿布林肯周日发推称:
+总统还指出，要批准在捷克共和国使用《人造卫星-V》，只需国家监管机构的国家药物管制研究所（SUKL）作出决定即可。因此，总统不会坚持要求欧盟监管机构欧洲药品管理局（EMA）批准该疫苗。
 
-我们谴责缅甸安全部队对缅甸人民实施的令人发指的暴力，并将继续推动追究责任人的责任。我们坚定地与勇敢的缅甸人民站在一起，并鼓励所有国家异口同声地支持他们的意愿。
+俄罗斯在1月份向欧盟提交了疫苗注册申请，但到目前为止其尚未做出任何决定。今年2月，疫苗开发商加马利亚中心（NF Gamalei）收到了EMA关于疫苗研发的科学建议。该药物的另一个开发商俄罗斯直接投资基金（RDIF）负责人基里尔·德米特列耶夫（Kirill Dmitriev）承认，该疫苗可能在3月份获得欧洲监管机构的批准。
 
+2月初，泽曼对俄罗斯的中共病毒疫苗的使用给予了积极评价，“如果专家决定这种疫苗也可以在我国使用，我不反对。无论如何，这比单纯因为缺乏疫苗而导致人们死亡要好。”
 
+今年年初，捷克共和国的中共病毒传播形势开始恶化，应地区领导人的要求，政府将该国的紧急状态延长至2月底。他们报告说，鉴于目前的情况，他们目前应对这种大流行疫情的手段是不够的。另外，从3月1日起，市民只能在居住地范围内活动，只有在紧急情况下才可以离开。
 
-> We condemn the Burmese security forces’ abhorrent violence against the people of Burma & will continue to promote accountability for those responsible. We stand firmly with the courageous people of Burma & encourage all countries to speak with one voice in support of their will.
-> — Secretary Antony Blinken (@SecBlinken) [February 28, 2021](https://twitter.com/SecBlinken/status/1366131166584143883?ref_src=twsrc%5Etfw)
+自捷克开始爆发疫情以来，已发现122万名中共病毒感染者，2.01万人死亡。
 
+1月，匈牙利在没有等待欧洲药品管理局批准的情况下注册了《人造卫星-V》疫苗。当时宣布，全国将收到200万剂疫苗，足够100万人接种。
 
+2月中旬，另一个欧盟国家克罗地亚允许在欧盟批准使用该药之前，可以从俄罗斯购买《人造卫星-V》疫苗。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
+参考链接：
+
+[https://www.rbc.ru/politics/28/02/2021/603abb899a7947e356eb406e](https://www.rbc.ru/politics/28/02/2021/603abb899a7947e356eb406e)
 
 0

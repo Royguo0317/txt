@@ -1,29 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法拉奇指责英政府漠视中共“新殖民主义”扩张
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/938913/)
+## 病毒封城措施的支持率降低到百分之六十三
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/938973/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+```
+报道： Laurin Meyer 经济和金融编辑
+新闻来源：WELT
+翻译整理：shuizhuyu 校对/发稿人: Ting Guo
+```
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-03-01_01-45-57.jpg)[telegraph.co.uk](https://www.telegraph.co.uk/news/2017/06/04/nigel-farage-says-london-blighted-wholly-muslim-areas-defends/)
-布赖特巴特新闻(Breitbart News)报道，此前有消息传出中共收购了英国学校，英国退欧领导人奈杰尔·法拉奇(Nigel Farage) 指责英国政府将资金放在优先地位，而不是保护该国免受中共“新殖民主义”的侵害。
 
-法拉奇说,中共相关企业收购英国私立学校表示这个国家的精英阶层已经被中共收买和渗透——包括公务员,政府官员,商业精英,他将之描述为中共倾向于“全球统治”的“新殖民主义”扩张。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/3-formatOriginal.jpg)图片来源：[dpa](https://www.handelsblatt.com/politik/deutschland/hilfsprogramme-unternehmen-wollen-sich-selbst-helfen-zustimmung-der-unternehmen-fuer-corona-politik-sinkt/26599854.html?ticket=ST-7834266-L7MIfnVvXjLfjczdMtju-ap6)
 
-法拉奇在接受土耳其公共广播电视辩论中提到英国目前是利益优先，以被控为中共国有企业的华为为例，2014年以来仍就职于华为咨询委员会的名单中很多是全球知名企业家和前政府高级官员的政治人物——包括前英国石油(BP)首席执行官约翰·布朗（John Browne）、著名前公务员人员安德鲁·卡恩（Andrew Cahn）和南安普顿大学的前校长海伦·亚历山大（Helen Alexander)。本月早些时候，英国电信集团(BT Group)前总裁迈克尔·雷克 ( Michael Rake)退出了华为董事会。
+公民对因病毒导致的出行限制和封锁的支持继续下降。现在大多数人都希望解禁。 尽管如此，他们中的大多数仍继续遵守准则。但是有个别人群不遵守封锁准则。
 
-法拉奇还提到了前保守党首相戴维·卡梅伦（David Cameron），他目前正在致力于一项“英中基金”的中共投资计划，寻求从中共筹集超过7亿英镑的投资。
+公民对联邦政府抗病毒政策的耐心正在减少。信贷机构Schufa对WELT AM SONNTAG进行的一项调查表明了这一点。因此，只有63％的德国人仍然认为这些措施是适当的-11月为69％，9月为73％。
 
-卡梅伦不是唯一与中共勾兑的英前首相。2015年的一项调查发现,前工党首相托尼·布莱尔(Tony Blair)曾负责中共在新疆地区的国有企业与阿联酋阿布扎比的沟通，而新疆有100多万被拘禁在集中营的穆斯林维吾尔族人。布莱尔2007年在中共工业城市东莞的一次演讲曾获得23.7万英镑的报酬，超过了他担任首相时的年薪。
+同时，德国人越来越担心经济后果。因此，解禁的欲望增加了，从11月份的43％上升到了59％。
 
-法拉奇说，“如果你为了钱把自己的灵魂出卖给一个不尊重人权、民主和言论自由的政权，那么我认为你会得到报应。”
+政客们感到对其措施的认可正在减弱。很多部长及州长都不愿意在下一轮的联邦，州的会议前拿出他们的方案。 对新的可以自我病毒检测的期望， 更快速的疫苗接种等政客们的希望。 由此可能会放宽封锁的限制。
 
-英国至少有17所私立学校被与中共关系密切的中共投资者收购，同时英国大学校园里还有29所孔子学院，英国各地有148个孔子课堂。英国下议院外交事务委员会2019年的一份报告发现，中共宣传机构试图压制英国校园内有关中共所谓“敏感”问题的讨论，如台湾、新疆、西藏和6.4天安门大屠杀。
+但是，联邦政府本身还远远没有达到这个目标，而且正在消弱解禁的呼声。 联邦卫生部长詹斯·斯潘（Jens Spahn）（CDU）周五说：“我们希望以最大的耐心和谨慎， 研究这个问题 ”。
 
-参考链接：
+很多的年轻人并不遵守这个封锁的规则， 这个比例是在18至25岁之间的八分之一左右。
 
-[https://www.breitbart.com/europe/2021/02/27/money-money-money-farage-accuses-british-elites-of-covering-up-chinese-takeover/](https://www.breitbart.com/europe/2021/02/27/money-money-money-farage-accuses-british-elites-of-covering-up-chinese-takeover/)
+大多数公民似乎都相信快速接种疫苗的承诺。疫苗接种运动的最新进展使60％的被质疑者希望尽快放宽措施。 69％的人希望有机会立即接种疫苗。
+
+这个结果是Schufa在2月11日至25日之间对1001人进行的调查。
+
+[🔗新闻来源链接](https://www.welt.de/wirtschaft/article227233709/Umfrage-Zustimmung-zu-Corona-Massnahmen-sinkt-weiter.html)
 
 0
