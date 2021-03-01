@@ -1,26 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布林肯谴责缅甸部队对平民实施令人发指的暴力
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/938849/)
+## 美加将升级卫星为在北极与俄中对抗
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/938884/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-03-01_01-30-41.jpg)[sputniknews.com](https://sputniknews.com/analysis/201801201060904170-usa-russia-china-strategy-evidence/)
+据《华尔街日报》(WSJ) 2月28日报道，美国和加拿大正计划升级其在北极地区的卫星和雷达系统，以便更有效地对抗俄罗斯和中共国日益增长的军事存在。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+《华尔街日报》援引消息人士的话报道，美国总统拜登已要求加拿大总理贾斯汀·特鲁多增加国防开支，包括对北美航空防空司令部（NORAD）进行现代化改造。双方领导人在周二的会谈中讨论了这个问题。
 
-**西班牙2021年2月28日电/西喜社——**美国国务卿布林肯周日发推称:
+该刊物回顾说，“北美防空司令部”是冷战期间苏联威慑战略的核心要素。该系统由卫星、地面雷达和空军基地组成，主要位于阿拉斯加和加拿大北部地区。它的任务是预警美国和加拿大任何来自北方的攻击。
 
-我们谴责缅甸安全部队对缅甸人民实施的令人发指的暴力，并将继续推动追究责任人的责任。我们坚定地与勇敢的缅甸人民站在一起，并鼓励所有国家异口同声地支持他们的意愿。
+不过，加拿大北美防空司令部前政策顾问迈克尔·道森强调，防御系统已经过时了。他报告说，在俄罗斯和中共国一起服役的新导弹可以五倍音速飞行，而且飞行距离更远。道森认为，这将粉碎现有的航空航天防御系统。
 
+此外，据《华尔街日报》报道，因北冰洋“解冻”时间延长，舰船在一年内的较长时间内仍可通行，这加剧了美国和加拿大的脆弱性。
 
+在周二与特鲁多举行会谈后，拜登表示，他和总理已经同意对北美防空司令部进行现代化改造，“诺拉德仍然是两国之间唯一的军事指挥部”。
 
-> We condemn the Burmese security forces’ abhorrent violence against the people of Burma & will continue to promote accountability for those responsible. We stand firmly with the courageous people of Burma & encourage all countries to speak with one voice in support of their will.
-> — Secretary Antony Blinken (@SecBlinken) [February 28, 2021](https://twitter.com/SecBlinken/status/1366131166584143883?ref_src=twsrc%5Etfw)
+“而且我们将开始扩大美加在北极地区的对话，以涵盖与大陆安全、经济和社会发展以及北极治理有关的问题。”美国总统强调。
 
+在华盛顿，即使在上届政府时期，也一再表示要在北极地区遏制俄罗斯。1月初，美国海军报告了在北极地区俄罗斯海岸进行定期巡逻的计划。海军部长肯尼斯·布雷斯怀特（Kenneth Braithwaite）说，华盛顿需要在北极地区“采取更强硬的行动”，挑战来自俄罗斯和中共国的 “主张”。
 
+时任五角大楼负责人马克·埃斯博（Mark Esper）去年10月呼吁与俄罗斯和中共国在包括北极以内的地球所有地区进行积极竞争。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
+今年2月，五角大楼证实，俄罗斯仍然是美国及其欧洲盟友的“持续存在的威胁”。其中，美国欧洲司令部（Eucom）负责人、空军司令托德·沃尔特斯（Tod Walters）将军指责莫斯科和北京试图“将北极地区军事化”。
+
+俄罗斯国防部长谢尔盖·绍伊古（Sergei Shoigu）早在2018年就警告说，北极地区已经成为许多国家的利益对象，该地区可能因此发生军事冲突。部长称，保护国家利益、积极开发北极是俄罗斯的重点工作之一。
+
+2020年10月，弗拉基米尔·普京（Vladimir Putin）总统批准了直到2035年俄罗斯在北极区的发展战略。根据该文件，有必要改善该地区俄罗斯武装部队的组成和结构，保持部队的战备水平，“根据俄罗斯在北极地区的军事危险和军事威胁的实际和预测性质，对部队的战备状态进行升级”。
+
+参考链接：
+
+[https://www.rbc.ru/politics/28/02/2021/603ad4929a7947e9b3783f76](https://www.rbc.ru/politics/28/02/2021/603ad4929a7947e9b3783f76)
 
 0
