@@ -1,34 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 病毒封城措施的支持率降低到百分之六十三
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/938973/)
+## 路德节目中提到的嗜神经病毒与血脑屏障：E蛋白在乙脑病毒穿越血脑屏障中起关键作用
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/939015/)
 
-```
-报道： Laurin Meyer 经济和金融编辑
-新闻来源：WELT
-翻译整理：shuizhuyu 校对/发稿人: Ting Guo
-```
+作者：Stephen文文
+![]()![](https://gnews.org/wp-content/uploads/2021/02/0301.jpg)
+血脑屏障是脑毛细血管壁与神经胶质细胞形成的血浆与脑细胞之间的屏障，能够阻止某些物质由血液进入脑组织，为病原体抵御入侵中枢系统的天然屏障。但是某些病毒，如HIV、西尼罗病毒、麻疹病毒、乙脑病毒、脊髓灰质炎病毒等却具有突破血脑屏障，入侵中枢神经系统的能力。病毒一旦穿越血脑屏障，其表面蛋白就会与细胞表面蛋白或受体相互作用，通过炎症因子导致神经细胞变性坏死，引起意识障碍等脑炎症状。
 
+病毒穿越血脑屏障的机制尚未非常明确，有多种假设途径，并处于不断验证之中。乙脑病毒（JEV）的包膜蛋白（E蛋白）是乙脑病毒致病和免疫的关键蛋白。其E蛋白含有三个结构域，其中的结构域III负责识别神经细胞表面受体，结构域II负责介导病毒与神经细胞膜的融合（文献1）。并且E蛋白的244位氨基酸突变为谷氨酸后，可是小鼠产生严重的神经系统症状，对病毒的嗜神经性具有关键作用。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/3-formatOriginal.jpg)图片来源：[dpa](https://www.handelsblatt.com/politik/deutschland/hilfsprogramme-unternehmen-wollen-sich-selbst-helfen-zustimmung-der-unternehmen-fuer-corona-politik-sinkt/26599854.html?ticket=ST-7834266-L7MIfnVvXjLfjczdMtju-ap6)
+中共南京军区疾病预防控制中心的王长军所发现的舟山蝙蝠病毒ZXC21及ZC45同样具有侵入乳鼠大脑的能力（文献2）。目前还没有研究揭示舟山蝙蝠病毒穿越血脑屏障的机制及其作用。如果其E蛋白在穿越血脑屏障中起到了关键作用，那么就可以合理解释中共军方在使用舟山蝙蝠病毒作为SARS-Cov-2病毒骨架时保留其E蛋白100%氨基酸序列一致性的目的：即保留SARS-Cov-2病毒具备穿越血脑屏障的能力。已有多项研究和解剖学实验证实了SARS-Cov-2病毒确实具有侵入人中枢神经系统的能力。
 
-公民对因病毒导致的出行限制和封锁的支持继续下降。现在大多数人都希望解禁。 尽管如此，他们中的大多数仍继续遵守准则。但是有个别人群不遵守封锁准则。
+以上关于乙脑病毒E蛋白在病毒穿越血脑屏障中的作用基于已发表的论文。关于SARS-Cov-2、舟山蝙蝠病毒E蛋白是否在病毒穿越血脑屏障中是否也起到了类似作用属于笔者的猜想推理，未经研究证实。
 
-公民对联邦政府抗病毒政策的耐心正在减少。信贷机构Schufa对WELT AM SONNTAG进行的一项调查表明了这一点。因此，只有63％的德国人仍然认为这些措施是适当的-11月为69％，9月为73％。
+参考文献：
+1. Crystal Structure of the Japanese Encephalitis Virus Envelope Protein, J Virol. 2012 Feb 2. Genomic characterization and infectivity of a novel SARS-like coronavirus in Chinese bats , Emerg Microbes Infect. 2018
 
-同时，德国人越来越担心经济后果。因此，解禁的欲望增加了，从11月份的43％上升到了59％。
+【文章仅代表作者个人观点】
 
-政客们感到对其措施的认可正在减弱。很多部长及州长都不愿意在下一轮的联邦，州的会议前拿出他们的方案。 对新的可以自我病毒检测的期望， 更快速的疫苗接种等政客们的希望。 由此可能会放宽封锁的限制。
-
-但是，联邦政府本身还远远没有达到这个目标，而且正在消弱解禁的呼声。 联邦卫生部长詹斯·斯潘（Jens Spahn）（CDU）周五说：“我们希望以最大的耐心和谨慎， 研究这个问题 ”。
-
-很多的年轻人并不遵守这个封锁的规则， 这个比例是在18至25岁之间的八分之一左右。
-
-大多数公民似乎都相信快速接种疫苗的承诺。疫苗接种运动的最新进展使60％的被质疑者希望尽快放宽措施。 69％的人希望有机会立即接种疫苗。
-
-这个结果是Schufa在2月11日至25日之间对1001人进行的调查。
-
-[🔗新闻来源链接](https://www.welt.de/wirtschaft/article227233709/Umfrage-Zustimmung-zu-Corona-Massnahmen-sinkt-weiter.html)
+审核校对：鲁邦五世
+上传排版：糖果儿
 
 0

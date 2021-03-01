@@ -1,29 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法拉奇指责英政府漠视中共“新殖民主义”扩张
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/938913/)
+## 【新闻宅急便】2021年2月28日国内新闻摘要
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/938951/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：寂月/喜马拉雅东京樱花团
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-03-01_01-45-57.jpg)[telegraph.co.uk](https://www.telegraph.co.uk/news/2017/06/04/nigel-farage-says-london-blighted-wholly-muslim-areas-defends/)
-布赖特巴特新闻(Breitbart News)报道，此前有消息传出中共收购了英国学校，英国退欧领导人奈杰尔·法拉奇(Nigel Farage) 指责英国政府将资金放在优先地位，而不是保护该国免受中共“新殖民主义”的侵害。
+**1.**** ****暴毙！原武警总医院器官移植专家疑跳楼？全球追查重要目标死亡**
 
-法拉奇说,中共相关企业收购英国私立学校表示这个国家的精英阶层已经被中共收买和渗透——包括公务员,政府官员,商业精英,他将之描述为中共倾向于“全球统治”的“新殖民主义”扩张。
+[本文网址](https://www.aboluowang.com/2021/0228/1562494.html)
+![](https://lh4.googleusercontent.com/xE8eRUxF8dsX70nu4NM1gIKXYCNbNVvlmELJpAV7DvIxGL0f9Wk3CwJR7dmKHmVkIEQoKEjzPQvc93LmMC86vphxAC0K14wJiSRx05v-UHHmKFbUkZ8G-MU5OzZmoE_xeb08DpT2)
+评论：又一个医学界涉嫌活摘人体器官、迫害法轮功学员的所谓学术专家突然死亡。而且生前竟然完成肝脏移植手术超过2600例。其中仅在2004年至2008年期间，于天津第一中心医院就实施手术1600例。人体器官捐赠本应该有严格的审核管理，如此大量的健康肝脏从正常捐赠途径获取简直无法想象。在中共领导下，所谓专家教授都是两手沾满鲜血的刽子手，最后还落得暴毙下场。真是因果不虚，善恶终有报。
 
-法拉奇在接受土耳其公共广播电视辩论中提到英国目前是利益优先，以被控为中共国有企业的华为为例，2014年以来仍就职于华为咨询委员会的名单中很多是全球知名企业家和前政府高级官员的政治人物——包括前英国石油(BP)首席执行官约翰·布朗（John Browne）、著名前公务员人员安德鲁·卡恩（Andrew Cahn）和南安普顿大学的前校长海伦·亚历山大（Helen Alexander)。本月早些时候，英国电信集团(BT Group)前总裁迈克尔·雷克 ( Michael Rake)退出了华为董事会。
+**2.**** ****中国将落实延迟退休  对老百姓是福是祸？外界极大关注**
 
-法拉奇还提到了前保守党首相戴维·卡梅伦（David Cameron），他目前正在致力于一项“英中基金”的中共投资计划，寻求从中共筹集超过7亿英镑的投资。
+[本文网址](https://www.aboluowang.com/2021/0228/1562476.html)
+![](https://lh4.googleusercontent.com/Cpg9oOrcSowJHfQIL41trDjqwJrL4uikrZNSgx5uDBZB3Gqw8yiDH4rGosn0hlTxCR9if8VodP_NJOtYQworkKoBKwzIVWw2a0Yw2DH8bLiBarCHr-rQgIL2GvZMAJf1NzpNKWxh)
+评论：中共国人社部26日回应，正与相关部门研究有关延迟退休的落实方案，以缓解人口结构变化带来的冲击。据称未来5年中国老年人口将超过3亿人，劳动年龄人口也将减少3500万人。然而比起老龄化，导致劳动人口减少更重要的原因是出生率下降。而延迟退休，只是拖延时间，并不能实质上解决劳动年龄人口不足的问题。延迟退休更重要的原因在于养老金的入不敷出，中共国那些庞大的政府和党的机关需要广大老百姓养活，推迟5年退休，老百姓就要多缴纳5年养老金，少领5年养老金。老百姓的身体是否能承受工作强度是一点疑问，另一方面，也会对年轻人的就业产生负面影响。而最终退休后，养老金最终是否能发放到需要的人头上，至少在中共国，老百姓们不抱有任何期待。
 
-卡梅伦不是唯一与中共勾兑的英前首相。2015年的一项调查发现,前工党首相托尼·布莱尔(Tony Blair)曾负责中共在新疆地区的国有企业与阿联酋阿布扎比的沟通，而新疆有100多万被拘禁在集中营的穆斯林维吾尔族人。布莱尔2007年在中共工业城市东莞的一次演讲曾获得23.7万英镑的报酬，超过了他担任首相时的年薪。
+**3.**** ****拒绝效忠  香港公务员爆发离职潮**
 
-法拉奇说，“如果你为了钱把自己的灵魂出卖给一个不尊重人权、民主和言论自由的政权，那么我认为你会得到报应。”
+[本文网址](https://www.aboluowang.com/2021/0228/1562697.html)
+![](https://lh3.googleusercontent.com/HAyzSEXl2tKvSv9ewqtQb0rFOa8FvE7_ZXoJBIh-sY3j2Mmftb8JIzZEDCR5_WvEgNpoVWSqslMz8N6OJSxWqH0fOLgGhIRv7yRN9zFAiUE6Uibv---t7BZHWxOSO72717zohZW6)
+评论：为贯彻习近平的 “爱国者治港”政策，香港公务员被强制要求宣誓效忠中共和特区，最迟一批须于2月末前签署声明。因为不愿效忠宣誓，香港公务员纷纷请辞。据劳工处资料显示，仅于去年12月到今年1月期间，共有24人离职。而过去3年资料显示，每年请辞人数仅为21人，每月仅1至2人。甚至有资深公务员已近退休，但不愿宣誓效忠，宁愿请辞放弃退休后每月长俸。此种宣誓效忠文化，具有中共国特色，违背了公务员应有的政治中立原则。相信但凡是有良知有正义感之人，都无法违背自己的原则为此等邪恶的组织宣誓效忠。斗米事小，名节事大。人活一生，就是要无畏自心，坦坦荡荡。为所有辞职的公务员喝彩。
 
-英国至少有17所私立学校被与中共关系密切的中共投资者收购，同时英国大学校园里还有29所孔子学院，英国各地有148个孔子课堂。英国下议院外交事务委员会2019年的一份报告发现，中共宣传机构试图压制英国校园内有关中共所谓“敏感”问题的讨论，如台湾、新疆、西藏和6.4天安门大屠杀。
+本文只代表作者观点，与GNews网站无关。
 
-参考链接：
+校对、审核：東洋武士、文小白/喜马拉雅东京樱花团
+![]()![](https://gnews.org/wp-content/uploads/2021/02/二维码-1.jpg)
+0228C008e
 
-[https://www.breitbart.com/europe/2021/02/27/money-money-money-farage-accuses-british-elites-of-covering-up-chinese-takeover/](https://www.breitbart.com/europe/2021/02/27/money-money-money-farage-accuses-british-elites-of-covering-up-chinese-takeover/)
-
-0
++1

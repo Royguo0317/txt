@@ -1,33 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻宅急便】2021年2月28日国内新闻摘要
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/938951/)
+## 病毒封城措施的支持率降低到百分之六十三
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/938973/)
 
-作者：寂月/喜马拉雅东京樱花团
+```
+报道： Laurin Meyer 经济和金融编辑
+新闻来源：WELT
+翻译整理：shuizhuyu 校对/发稿人: Ting Guo
+```
 
-**1.**** ****暴毙！原武警总医院器官移植专家疑跳楼？全球追查重要目标死亡**
 
-[本文网址](https://www.aboluowang.com/2021/0228/1562494.html)
-![](https://lh4.googleusercontent.com/xE8eRUxF8dsX70nu4NM1gIKXYCNbNVvlmELJpAV7DvIxGL0f9Wk3CwJR7dmKHmVkIEQoKEjzPQvc93LmMC86vphxAC0K14wJiSRx05v-UHHmKFbUkZ8G-MU5OzZmoE_xeb08DpT2)
-评论：又一个医学界涉嫌活摘人体器官、迫害法轮功学员的所谓学术专家突然死亡。而且生前竟然完成肝脏移植手术超过2600例。其中仅在2004年至2008年期间，于天津第一中心医院就实施手术1600例。人体器官捐赠本应该有严格的审核管理，如此大量的健康肝脏从正常捐赠途径获取简直无法想象。在中共领导下，所谓专家教授都是两手沾满鲜血的刽子手，最后还落得暴毙下场。真是因果不虚，善恶终有报。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/3-formatOriginal.jpg)图片来源：[dpa](https://www.handelsblatt.com/politik/deutschland/hilfsprogramme-unternehmen-wollen-sich-selbst-helfen-zustimmung-der-unternehmen-fuer-corona-politik-sinkt/26599854.html?ticket=ST-7834266-L7MIfnVvXjLfjczdMtju-ap6)
 
-**2.**** ****中国将落实延迟退休  对老百姓是福是祸？外界极大关注**
+公民对因病毒导致的出行限制和封锁的支持继续下降。现在大多数人都希望解禁。 尽管如此，他们中的大多数仍继续遵守准则。但是有个别人群不遵守封锁准则。
 
-[本文网址](https://www.aboluowang.com/2021/0228/1562476.html)
-![](https://lh4.googleusercontent.com/Cpg9oOrcSowJHfQIL41trDjqwJrL4uikrZNSgx5uDBZB3Gqw8yiDH4rGosn0hlTxCR9if8VodP_NJOtYQworkKoBKwzIVWw2a0Yw2DH8bLiBarCHr-rQgIL2GvZMAJf1NzpNKWxh)
-评论：中共国人社部26日回应，正与相关部门研究有关延迟退休的落实方案，以缓解人口结构变化带来的冲击。据称未来5年中国老年人口将超过3亿人，劳动年龄人口也将减少3500万人。然而比起老龄化，导致劳动人口减少更重要的原因是出生率下降。而延迟退休，只是拖延时间，并不能实质上解决劳动年龄人口不足的问题。延迟退休更重要的原因在于养老金的入不敷出，中共国那些庞大的政府和党的机关需要广大老百姓养活，推迟5年退休，老百姓就要多缴纳5年养老金，少领5年养老金。老百姓的身体是否能承受工作强度是一点疑问，另一方面，也会对年轻人的就业产生负面影响。而最终退休后，养老金最终是否能发放到需要的人头上，至少在中共国，老百姓们不抱有任何期待。
+公民对联邦政府抗病毒政策的耐心正在减少。信贷机构Schufa对WELT AM SONNTAG进行的一项调查表明了这一点。因此，只有63％的德国人仍然认为这些措施是适当的-11月为69％，9月为73％。
 
-**3.**** ****拒绝效忠  香港公务员爆发离职潮**
+同时，德国人越来越担心经济后果。因此，解禁的欲望增加了，从11月份的43％上升到了59％。
 
-[本文网址](https://www.aboluowang.com/2021/0228/1562697.html)
-![](https://lh3.googleusercontent.com/HAyzSEXl2tKvSv9ewqtQb0rFOa8FvE7_ZXoJBIh-sY3j2Mmftb8JIzZEDCR5_WvEgNpoVWSqslMz8N6OJSxWqH0fOLgGhIRv7yRN9zFAiUE6Uibv---t7BZHWxOSO72717zohZW6)
-评论：为贯彻习近平的 “爱国者治港”政策，香港公务员被强制要求宣誓效忠中共和特区，最迟一批须于2月末前签署声明。因为不愿效忠宣誓，香港公务员纷纷请辞。据劳工处资料显示，仅于去年12月到今年1月期间，共有24人离职。而过去3年资料显示，每年请辞人数仅为21人，每月仅1至2人。甚至有资深公务员已近退休，但不愿宣誓效忠，宁愿请辞放弃退休后每月长俸。此种宣誓效忠文化，具有中共国特色，违背了公务员应有的政治中立原则。相信但凡是有良知有正义感之人，都无法违背自己的原则为此等邪恶的组织宣誓效忠。斗米事小，名节事大。人活一生，就是要无畏自心，坦坦荡荡。为所有辞职的公务员喝彩。
+政客们感到对其措施的认可正在减弱。很多部长及州长都不愿意在下一轮的联邦，州的会议前拿出他们的方案。 对新的可以自我病毒检测的期望， 更快速的疫苗接种等政客们的希望。 由此可能会放宽封锁的限制。
 
-本文只代表作者观点，与GNews网站无关。
+但是，联邦政府本身还远远没有达到这个目标，而且正在消弱解禁的呼声。 联邦卫生部长詹斯·斯潘（Jens Spahn）（CDU）周五说：“我们希望以最大的耐心和谨慎， 研究这个问题 ”。
 
-校对、审核：東洋武士、文小白/喜马拉雅东京樱花团
-![]()![](https://gnews.org/wp-content/uploads/2021/02/二维码-1.jpg)
-0228C008e
+很多的年轻人并不遵守这个封锁的规则， 这个比例是在18至25岁之间的八分之一左右。
 
-+1
+大多数公民似乎都相信快速接种疫苗的承诺。疫苗接种运动的最新进展使60％的被质疑者希望尽快放宽措施。 69％的人希望有机会立即接种疫苗。
+
+这个结果是Schufa在2月11日至25日之间对1001人进行的调查。
+
+[🔗新闻来源链接](https://www.welt.de/wirtschaft/article227233709/Umfrage-Zustimmung-zu-Corona-Massnahmen-sinkt-weiter.html)
+
+0
