@@ -1,21 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】2/26/2021文贵：中共逃不过世界各国的清算
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/938795/)
+## 布林肯谴责缅甸部队对平民实施令人发指的暴力
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/938849/)
 
-制作： 【彩虹桥】
+- 编辑：Victor Torres
+- 发稿：Ranting
+
+
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2021年2月28日电/西喜社——**美国国务卿布林肯周日发推称:
+
+我们谴责缅甸安全部队对缅甸人民实施的令人发指的暴力，并将继续推动追究责任人的责任。我们坚定地与勇敢的缅甸人民站在一起，并鼓励所有国家异口同声地支持他们的意愿。
 
 
 
-2021年2月26日：中共逃不过世界各国的清算
+> We condemn the Burmese security forces’ abhorrent violence against the people of Burma & will continue to promote accountability for those responsible. We stand firmly with the courageous people of Burma & encourage all countries to speak with one voice in support of their will.
+> — Secretary Antony Blinken (@SecBlinken) [February 28, 2021](https://twitter.com/SecBlinken/status/1366131166584143883?ref_src=twsrc%5Etfw)
 
-如何解决共产党放的病毒？拜登，美国全世界全世界跟你拉倒啦？去你大爷的吧，你别吹狼蛋了你。他没有说清楚，谁来为这个病毒负责，他也承认中美关系回到以前不可能了。但是，不管你回到以前，回不到以前，以毒灭共这个时代，你是改不了的。
 
-第二个，你的种族大屠杀、反人类罪，你想拿掉这个帽子？不可能！那么接下来，全世界一个一个的国家，把他定为种族大屠杀、反人类罪的时候，共产党在全世界上还能卖你的，所谓的…5G技术、网络技术吗？不可能！
 
-就这种族大屠杀不算啦，反人类罪不算啦，这个病毒事不算啦,上海帮和陝西帮、四方面军，和过去的老红军斗争较量，你觉得能停吗？不可能！
-
-然后你指定了江山主人，而且还修宪，你认为上海帮，中国的沼泽地、中国的江湖老大，会就这么拉倒吗？不可能！挠你..挠你..挠你..
+![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
 
 0
