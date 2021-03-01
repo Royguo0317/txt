@@ -1,71 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】港版『二二八』全民黑衣「我还在，你呢？」 反抗暴政行动再起
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/939745/)
+## 台湾啊，好事也要发生，坏事也要发生
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/939957/)
 
-搜集/编撰：天灭中共
+新闻简述：在2021年2月25日的盖特视频中，郭先生分析台湾的政治形势，感叹台湾没有真正的政治家，只有投机者，因此虽然有一手好牌，却不会打，把人民天天置于对中共的恐惧之中。在视频结束时他说：“台湾啊，好事也要发生，坏事也要发生。”
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210225-Getter1.srt.txt)
+**台湾啊，好事也要发生，坏事也要发生**
 
-**昨日（28日）是香港二二八大抓捕，是中共发起一场政治大屠杀，47位民主派人士被落案起诉「串谋颠覆国家政权」，并且即时还押，不得保释。预计今早11时将于西九龙裁判法院提堂。**
+**Both Good Things and Bad Things Will Happen in Taiwan**
 
-民间人权阵线（简称民阵）随即呼吁港人届时挤满西九龙裁判法院，展现民意，声援被中共滥捕滥告的手足。
+昨天几个台湾的兄弟姐妹给我通话，真是让我老感动了。没想到在台湾的地方，哇噻，有这么强大的爆料革命力量。让我感到非常非常的开心，还是有良知的人，有有脑子的人。但是有些观点我不敢苟同，例如，对蔡总统，小蔡总统，他们的看法是不对的。蔡没那么差，但是她在外交上绝对是一个胆小如鼠，小家子气，她最多能领导一个村吧。但是台湾的现状就是这样，都是政治玩家，没有政治大家。很快台湾人就会感受到，台湾将为政治玩家付出多大的代价。这就是中国人啊，不论任何时候，都不能让政治玩家操纵一个国家。
 
-港人亦连夜在网上发起「我还在，你呢？」，倡议全民穿黑衣声援47位民主派人士，获得一众网民支持。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image001.jpg)
-**我还在，没离开**
+Yesterday, a few brothers and sisters from Taiwan called me, which really moved me. Wow, I didn’t expect that there exists such a great power of our WM in Taiwan. It made me feel really, really happy to see people with conscience and brains. But some of their viewpoints I can’t quite agree with. For example, about President Tsai, President Little Tsai, their views are mistaken. Tsai is not that bad, but she is definitely a timid and short-sighted in diplomacy. She can only lead a village at most, but the status quo in Taiwan is like this – there are only players of politics but no real masters. Soon people in Taiwan will know how much Taiwan will need to pay for having these players. This is why Chinese should never allow players of politics to control a country.
 
-今早（3月1日）天还没亮，陆续开始有身着黑衣的市民在西九龙裁判法院门口聚集，轮候公众席位，其中不乏通宵等候的市民。
+听说啊，川普总统最近在马阿拉歌也开始看书学习了，也是认真反思了。政治上不能有天真，政治这个东西它是世界上最流氓的游戏，但是他必须还得遵守，服务绝大多数人的规则，否则必将被颠覆。而且你老玩弄手段，玩弄政治技术，你可以政治高度低一点，但你不能老靠玩政治技术，“政妓”是不行的，不是那个政治成绩，是妓女的“妓”，“政妓”不行，或政治“妓术”不行。
 
-至早上9时许，排队等候的人龙已可绕法院一圈，队尾加入的市民仍络绎不绝，相信港府连日来盲目配合中共暴政的打压举措已经将民愤推上又一高点，市民举出久违的五一手势，齐呼「五大诉求、缺一不可」、「光复香港，时代革命」、「没有暴徒，只有暴政」的口号，令人恍惚时光仿佛回到2年前。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image003.jpg)（图片来源：苹果日报）
-不仅如此，天主教香港教区荣休主教陈日君、民主党创党主席李柱铭、前主席刘慧卿和何俊仁、前立法会议员涂谨申、邝俊宇等悉数到场支持。而昨日中共在香港发起的二二八大抓捕事件太过嚣张，引起广泛的国际关注，今早英国、美国、加拿大等驻港领事馆人员、欧盟驻香港办事处副主任Charles Whiteley（韦理斯）亦到场轮候。
+I heard that President Trump has recently started reading and studying in Maralago, and also seriously reflecting on what has happened. You cannot be naive in politics. Politics is the most rogue game in the world, but it must still abide by the rules, which serve the vast majority of people, otherwise it will be overthrown for sure. And if you always play with tricks and employ political “skills and techniques”, you can stay at a lower level politically, but you can’t always rely on political skills. Political “prostitutes” are not good. I don’t mean political “achievements” (note: “prostitute” in Chinese is its homophone), I mean prostitutes. You can’t be a political prostitute. Political “prostitution” won’t work.
 
-其后，大批警员赶到戒备，有警员指限聚令正在生效，喝令人群疏散，更指市民口号有机会干犯《港区国安法》。
+所以说咱国内的昨天晚上一个哥儿们，给我说一句很精彩的话。他说：不是说中南坑这几个疯子一定要打台湾，让他们千秋万代，是台湾弱到不打他都不好意思。他说实际上台湾人有太多牌，可以对付那几个老杂毛们。这个人是完全是一个很有高度的人，曾经也是可以影响中国命运的人。他说他去过几次台湾，觉得台湾这个地方太好了，他说但是台湾的政客实在是太 low 了。他说就台湾有牌，你可以跟国际上来合作，甚至沼泽地里勾兑也好，你能把自己整得安全一些，没必要像现在这个样子，跪着活，然后天天让人家抽大嘴巴，然后现在还要弄死你，是吧？
 
-**全民黑衣，齐心抗暴**
+So last night, a buddy in mainland China told me something really brilliant. He said that it’s not like that the few lunatics in the Zhongnan Pit must attack Taiwan to keep them on the throne forever; the truth is that it would be too embarrassing if you don’t attack Taiwan because Taiwan is so weak. He said that Taiwanese actually have many good cards to play when dealing with those old bastards [in the Zhongnan Pit]. This person definitely has very high wisdom. He was once a figure who could influence the destiny of China. He said that he had been to Taiwan several times and thought that Taiwan was a great place. He said that Taiwan’s politicians were really too low. He said that Taiwan has cards in their hands to allow them to cooperate with the world, or even collude with the “swamp”. They can make Taiwan a safer place, and there is no need to live like this, sitting on their knees, and allow others [the CCP] to slap their face every day. And now they [the CCP] are even going to kill you, right?
 
-有黄店店家在网上发出「黑衣打折」的宣传指示，为到庭声援的市民做物资后备。
+台湾没有人有这感受的，都是一帮投机者。台湾说实在话，不战不归，这是最美好的对台湾，但是不能让大家活在这么恐惧之中啊，那就要有“大家”。从过去这些年看，也就蒋经国和李登辉是个大家，后有陈水扁还是有野心的，现在这些人都不中了。
 
-另有一间装修公司老板带同员工一同到场力撑，他们已非首次来到法庭声援。昨日看到有关47人被即时还押的新闻影片后「忍不住哭」，故大家一同来，希望47名民主派人士不要觉得孤单。虽然等到近12时都未能进入法庭，但仍未打算离开，「我想他们出来的时候看到有很多穿黑衣的市民，支持他们。」亦希望香港人「不要放弃不要习惯，保持愤怒。」
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image005.jpg)悲愤的市民相拥而泣
-**法庭现场混乱，法官措手不及**
+No one in Taiwan feels this way because they are a bunch of opportunists. To be honest, the best option for Taiwan is “no war, no return”. You can’t let everyone live in such a fear, so you need to have big masters [in politics]. In the past, only Chiang Ching-kuo and Lee Teng-hui were big masters, followed by Chen Shui-bian who had some ambitions, while none of the current people [politicians in Taiwan] has the same guts.
 
-据《苹果日报》文字描述的聆讯现场，接近下午1时，案件才开庭，由国安法指定法官苏惠德审理。
+所以说很多台湾战友们给我发来的信息，俺没法一一回哦，没法哦。你看看台湾那些媒体都是一帮垃圾一个个的，什么康啊，什么倩啊，都一帮垃圾都是。你看台湾出过一个在世界上的媒体人吗？一个都没有，一个都没有！台湾人那个小书啊，小诗啊，小历史啊，喃喃自语啊，自淫自乐啊，还仅限于在自己的岛内，是可以的，走出亚洲都走不出去，就甭说世界级的。世界上没有人、没有这些领域，大家啊，宗教领域，是吧？哲学领域，文学领域，世界上最核心的国际政治家，国际外交家一个都没有，他活不成的有，对吧？
 
-47位被告由公民党主席梁家杰、大律师公会主席夏博义、资深大律师许绍鼎、潘熙、大律师黄宇逸、吴宗銮、黄瑞红、马维騉、伍頴珊等代表。
+Many brothers-in-arms in Taiwan have sent me messages, which I can’t reply one by one. Look at those media people in Taiwan, a bunch of garbage. Kang something and Hsien something are garbage. Have you ever seen one Taiwanese media person who has been well-known in the world? No one, not a single one! Taiwanese authors’ little books, little poems, little history, mumbling-like and self-entertaining stuff are only known within the island, which is fine [within Taiwan], but you can’t even make your works known in the rest of Asia, no mention to become world-class works. There are no Taiwanese known in the world in these fields. There are no real masters in religious fields, philosophy, or literature. There is not a single core international politician or international diplomat in the world, not a living one, right?
 
-甫一开庭，法庭书记开始依序读出各被告姓名，被点名者须举手示意到庭，期间，被告何桂蓝大叫：「我要见律师，开庭之前不让我见律师」，另一被告大律师刘伟聪亦大叫「我连自己是第几被告都不知道」。最后，不知是遗漏还是什么原因，竟然被告徐子见未到庭，
+但是台湾出了什么？出了很多科技大家，企业家。为什么呀？大家想过没有。中国人的基因，台湾人的基因，是有真正的这种组织能力，实干家。政治高度不行，国际视野更不行，这就是为什么大家你们会很快会看到，台湾很快，今年一定是台湾年，遇到大事的时候，世界上没有几个能帮它的，就是世界上没有几个，没几个。
 
-辩方律师反映指，有多名法律代表已等候逾两个小时，都仍在羁留室外等待见当事人索取意见。
+Then what has Taiwan produced? They have a lot of tech giants, entrepreneurs. Why? Have you thought about it? The genes of the Chinese people, the genes of the Taiwanese have the true organizational ability and doers, but not political wisdom, not mention international visions. This is why very soon you will see that when Taiwan encounters serious problems this year (because this year is “Taiwan year”), few people in the world will help them. Very few.
 
-同时，法庭安排的影像设备，声音同画面均不清晰，另在场所有人相当困惑。
+真替台湾着急啊，但咱没办法，是吧？但咱人少、人笨，然后咱也做不了啥，咱也属于口炮党，没啥，是吧？咱咋能帮人家？咱到时候在台湾挂两口号：“你被北美教练骗了吗？你被郭文贵骗了吗？”咱弄这个吧。台湾啊，好事也要发生，坏事也要发生，是吧？
 
-无奈之下，裁判官苏惠德表示，押后至下午3时半再开庭。
+I really worry about Taiwan, but what can we do, right? We don’t have the manpower and we are not that smart, and we can’t do anything other than talking, right? How can we help them? We will put up two slogans in Taiwan at that time: “Have you been cheated by the “North American coach” (referred to Miles)? Have you been cheated by Miles Guo?” Let’s do this. Taiwan, some good things will happen to them, and bad things will happen too, right?
 
-**人群不散，黄店送食物支援**
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-大批在法院外等候的市民得悉押后庭审的消息后，选择继续留守等候，旺角黄店「皇茶」老板朱姐与员工特别到场，将一批三文治和饮品免费送给在场排队声援民主派的巿民。
+视频来源：[https://gtv.org/getter/6037b74a1958515902373eed](https://gtv.org/getter/6037b74a1958515902373eed) (00:48–6:04)
 
-朱姐坦言对47名民主派人士被捕感到很伤心，形容现时的香港已变得非常「陌生」，希望借今日行动为香港人打气，「希望民主派加油，我一定继续支持他们。」
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image007.jpg)（图片来源：苹果日报）
-**战友评论：**
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/932768/](https://gnews.org/zh-hans/932768/)
 
-**民意如水，水能载舟，亦能覆舟**
+* * *
 
-不出意外，聆讯的结果可以料想，47位民主派人士不论认罪与否，均不得保释，移送监狱收押，等待下一次庭审。
+翻译：【Isaiah4031】校对：【guocamole(文金欠) 】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
-其实，初选只是民主派内部协调的「君子协定」，并无任何法律效力，参加者选后亦可以不遵守协定，根本全无「颠覆国家政权」的法律基础。加上今次法庭的手忙脚乱，警方亦未对全数初选参加者提控，反映手执权柄之人，演绎《国安法》的随意性。
-
-中共将这种腐化、野蛮、落后的官僚制度引入香港，令奴颜卑膝之辈获得权力，陷高风亮节之人牢狱之灾。令港府官员、建制阵营醒觉，无须理会民生，争取民意，只要获得「爱党者」标签，手握司法大权，即可高枕无忧，平步青云。
-
-彻夜不眠的市民、排队等候的人龙、不离不散的人群，说明反送中运动激起的愤怒并没有因为《国安法》而减少一分，对中共暴政的厌恶亦没有因为「爱党教育」而减轻一毫。
-
-那么，将47个民意代表送入监狱，又有何用？民意依旧强烈，民愤愈加汹涌，相信这种愚不可及的施政智慧距离倒台之日已不远矣。
-
-以上观点仅代表笔者
-
-「资料来源」:[苹果日报](https://hk.appledaily.com/local/20210301/FFECH532ERAUDISCLREE4IY2GE/)
-
-覆核：卡西欧 上传：文粤
-
-0
++1
