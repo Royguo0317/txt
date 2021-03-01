@@ -1,45 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德意志时讯2021.02.28：中共对美驻华外交官及家人进行肛拭子测试？/ 德国多家出版社再版乔治·奥威尔经典
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/938546/)
+## 美国巴里奇博士早在2019年12月就获得中共病毒候选疫苗
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/938570/)
 
-*《德意志时讯》发表的译文和报道不代表我们认同原文作者的观点，仅供读者了解德国媒体的走向及德国社会状况*
+加拿大多伦多枫叶农场 ctt
+![]()![](https://gnews.org/wp-content/uploads/2021/02/naturalnews.com_-3.jpg)*图片来源：naturalnews.com*
+据门户专家（Gateway Pundit）2月27日报道，福奇 (Fauci) 和拉尔夫-巴里奇 (Ralph Baric)很可能在西方公布中共病毒之前，就知道中共病毒在武汉泄露，并开始研究中共病毒疫苗。所以莫德纳（Moderna）疫苗能够很快进行人体试验。
 
-- 翻译、评论：gogogo4
+2020年4月9日，门户专家是第一个报道中共病毒泄漏事件的媒体，他们怀疑泄漏的中共病毒来自武汉病毒学研究所。 石正丽是2014年与美国医生联合研究中共病毒项目的成员，该项目因风险太大被美国土安全部关闭。
 
+在美国研究项目被关闭后，石正丽在武汉继续进行冠状病毒研究。石正丽和巴里奇博士在同一团队，他们在2015年的《自然医学》杂志上发表了一篇文章。在文中，他们讨论了蝙蝠冠状病毒。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/gatewaypundit.com_.jpg)*图片来源：Thegatewaypundit.com*
+在美国的工作停止后，中共国继续推进这个项目，在武汉病毒学中心进行研发。从石正丽的论文和简历中可以看出，他们在实验室里成功地分离出了病毒，并积极地进行物种对物种传播的实验。
 
-**中共对美驻华外交官及家人进行肛拭子测试？**
+今天，为揭开中共病毒真相做出很大贡献的劳伦斯-塞林博士报告，2019年12月12日，拉尔夫-巴里奇博士签署了一份协议，他将获得 “由美国国家过敏和传染病研究所和莫德纳共同开发和拥有的mRNA中共病毒候选疫苗”。[【1】](https://twitter.com/LawrenceSellin/status/1365518656998936579?s=20)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/twitter1.jpg)*图片来源：Twitter.com*
+在2019年12月12日, 巴里奇就被定为测试mRNA疫苗疗效的人选。这告诉我们，福西和巴里奇医生可能已经知道中共国发生的事情，福奇和莫德纳很可能在西方公布中共病毒之前就在研究中共病毒疫苗。福奇和巴里奇是否知道中共病毒被释放，他们是什么时候知道的？ 这很耐人寻味！
 
-- 信息来源：Merkur
-- 原文标题：[„Würde bewahren“: US-Diplomaten in China peinlicher Corona-Prozedur unterzogen? Bidens Ministerium protestiert](https://www.merkur.de/politik/usa-china-corona-diplomaten-anal-abstrich-aussenministerium-beschwerde-90220237.html)
+评：
 
+中共一直在隐瞒病毒来源真相，而巴里奇博士在2019年12月就开始研究中共病毒疫苗，难道他早就知道要发生疫情？他是怎么知道的？中共与这些医药巨头是什么关系？真是细思极恐！
 
-美国驻中共国外交官告诉国务院，他们遭受了尴尬的肛拭子CCP病毒检测程序。美国务院发言人随即表示，他们已经想中共国投诉了这种“不体面的做法”。多家美国媒体也对此进行了报道。
+[原文链接](https://www.thegatewaypundit.com/2021/02/huge-exclusive-dr-baric-reviewing-modernas-dr-faucis-coronavirus-vaccine-december-2019-know/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
 
-在中共国的某些地方，旅客必须进行肛拭子检测。不过，中共现在保证，外交官可以避免这一检测。中共外交部长赵立坚否认了美国外交官及其家属被要求进行肛拭子检测的说法。
+* * *
 
-美国驻华外交官则表示：显然有几位美国人不得不接受肛拭子检查。
-
-美国务院表示，他们会致力于确保外交官及其家人的安全，同时也会维护他们的尊严。
-
-**评论：**中共国这一行为是在给拜登施压，还是赤裸裸的侮辱呢？赵立坚否认了美驻华外交官及其家属这一说法，就表示他说美国人在撒谎。但是谁会像你中共一样拿“捅后门”这个奇耻大辱来大张旗鼓的宣传？
-再来看美国务院的表态，充分说明了他们对肛拭子检测的看法——荒谬，并且践踏了他人的尊严。而中共国对待自己的百姓一直是这样，把他们当猪狗，能在猪圈里活下来就中共对他们最大的“尊重”了。
-
-**德国多家出版社再版乔治·奥威尔经典**
-
-- 信息来源：Deutschlandfunk
-- 原文标题：[George Orwell neu übersetzt Big Brother is still watching you](https://www.deutschlandfunk.de/george-orwell-neu-uebersetzt-big-brother-is-still-watching.700.de.html?dram:article_id=493205)
-
-
-英国作家乔治·奥威尔被认为是政治荒诞派的创始人之一。他的长篇小说《一九八四》和《动物农场》到现在都丝毫没有失去话题性。在奥威尔去世70年后，他的作品有了更多的新译本。
-
-《一九八四》和《动物农场》这两部小说属于乔治-奥威尔的晚期作品，奥威尔于1950年去世，年仅46岁。这些文章是在他在西班牙战争中的经历以及对斯大林的清洗和德国法西斯主义的观察中写成的。
-
-文学学者、奥威尔传记作者斯蒂芬·豪尔德说：“你可以将其与我们在中国看到的直接联系起来。”
-
-本地出版商Anaconda、Manesse、dtv、Insel、Nikol和S.Fischer等的新译本均涌入市场。著名的译者参与了这个项目，其中有吉斯贝特·海夫斯、艾克·舍恩菲尔德、弗兰克·海伯特。斯蒂芬·豪尔德表示，Dtv出版的卢茨·沃尔夫的注释版在《一九八四》的众多新译本中脱颖而出。
-
-**评论：**这篇报道中最引人注目的就是那句“你可以将其与我们在中共国看到的直接联系起来”。需要指出的是，Deutschlandfunk作为德国主流官媒，在报道中保留了这句针对中共国的评价，值得称赞。在这里也推荐各位去看这两部小说或是其改编电影，相信大家对其中的描述不会陌生。
+校对 文锦
+发稿 云起时
 
 0
