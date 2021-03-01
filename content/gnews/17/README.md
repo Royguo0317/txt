@@ -1,26 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布林肯谴责缅甸部队对平民实施令人发指的暴力
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/938849/)
+## 多米尼加总统宣布将在与海地交界处建墙
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/938865/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+编辑 水星 上传 银河
+![]()![](https://gnews.org/wp-content/uploads/2021/02/Snipaste_2021-03-01_01-14-17.jpg)[cn.depositphotos.com](https://cn.depositphotos.com/58044225/stock-photo-balloon-frame-with-flag-of.html)
+2月28日，多米尼加共和国总统路易斯·阿比纳德宣布将在与海地的边界修建边境墙。据《自由报》报道，他在给国会的致辞中宣布了自己的计划。
 
+据他介绍，多米尼加将在2021年下半年加强与邻国边境的安全措施，其中包括“物理和技术手段”，包括在冲突最严重地区的双层墙、运动传感器、面部识别系统、雷达和红外系统。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+在这隔离墙的帮助下，总统希望能够应对非法移民、贩毒和赃车交易的问题。
 
-**西班牙2021年2月28日电/西喜社——**美国国务卿布林肯周日发推称:
+之前美国前总统唐纳德·川普竞选前的承诺之一，也是在与墨西哥的边境修建一堵长约1.6千米的墙。然而，他没有完成此事。
 
-我们谴责缅甸安全部队对缅甸人民实施的令人发指的暴力，并将继续推动追究责任人的责任。我们坚定地与勇敢的缅甸人民站在一起，并鼓励所有国家异口同声地支持他们的意愿。
+川普已承诺让墨西哥支付建墙费用。墨西哥城拒绝支付，最终导致美国总统和国会民主党人之间的争执，后者不愿为此拨款。总统只收到了计划资金的20%左右。美国现任领导人乔·拜登在就职后下令停止了与墨西哥的边境墙建设项目。
 
-
-
-> We condemn the Burmese security forces’ abhorrent violence against the people of Burma & will continue to promote accountability for those responsible. We stand firmly with the courageous people of Burma & encourage all countries to speak with one voice in support of their will.
-> — Secretary Antony Blinken (@SecBlinken) [February 28, 2021](https://twitter.com/SecBlinken/status/1366131166584143883?ref_src=twsrc%5Etfw)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
+参考链接：
+https://www.rbc.ru/rbcfreenews/603b0c5e9a7947f406517c88
 
 0

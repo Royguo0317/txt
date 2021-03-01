@@ -1,32 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国巴里奇博士早在2019年12月就获得中共病毒候选疫苗
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/938570/)
+## 孔子学院是中共国的宣传工具
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/938722/)
 
-加拿大多伦多枫叶农场 ctt
-![]()![](https://gnews.org/wp-content/uploads/2021/02/naturalnews.com_-3.jpg)*图片来源：naturalnews.com*
-据门户专家（Gateway Pundit）2月27日报道，福奇 (Fauci) 和拉尔夫-巴里奇 (Ralph Baric)很可能在西方公布中共病毒之前，就知道中共病毒在武汉泄露，并开始研究中共病毒疫苗。所以莫德纳（Moderna）疫苗能够很快进行人体试验。
+新闻来源：《福克斯新闻 Fox News》| 作者：凯特琳·麦克弗尔|（Caitlin McFall） | 发布时间：2021年2月日
+翻译/简评：叶知秋（文义） | 校对/审核：万人往 | Page：Daoiii
+[!\[\]()!\[\](https://spark.adobe.com/page/NkzgfXOhElm8X/images/f06deb0b-ca51-49b8-9e14-492b793b3350.jpg?asset_id=b04c3364-7bc0-4ab2-84d2-fac90e008510&amp;img_etag=%223b3cff882e0bb221e5147762ab31345a%22&amp;size=2560)](https://spark.adobe.com/page/NkzgfXOhElm8X/images/f06deb0b-ca51-49b8-9e14-492b793b3350.jpg?asset_id=b04c3364-7bc0-4ab2-84d2-fac90e008510&amp;img_etag=%223b3cff882e0bb221e5147762ab31345a%22&amp;size=1024)
+**简评：**
 
-2020年4月9日，门户专家是第一个报道中共病毒泄漏事件的媒体，他们怀疑泄漏的中共病毒来自武汉病毒学研究所。 石正丽是2014年与美国医生联合研究中共病毒项目的成员，该项目因风险太大被美国土安全部关闭。
+**拜登总统提名的中情局局长伯恩斯表示，被称为“教育合作伙伴”的孔子学院是中共国的宣传工具，美国的大学应该切断与它们的联系。**
 
-在美国研究项目被关闭后，石正丽在武汉继续进行冠状病毒研究。石正丽和巴里奇博士在同一团队，他们在2015年的《自然医学》杂志上发表了一篇文章。在文中，他们讨论了蝙蝠冠状病毒。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/gatewaypundit.com_.jpg)*图片来源：Thegatewaypundit.com*
-在美国的工作停止后，中共国继续推进这个项目，在武汉病毒学中心进行研发。从石正丽的论文和简历中可以看出，他们在实验室里成功地分离出了病毒，并积极地进行物种对物种传播的实验。
+**在中共国，党支部都可以被设到外资企业内部，如此张扬的孔子学院是怎么一回事，作为中国人，自是心知肚明。这个世界的堕落超出了我们普通人的想象，爆料革命致力于追求的正道主义依然任重道远。既得利益阶层似乎在世界范围内围了一张网，他们彼此串联，互相勾结，不停地压榨着普通人的血汗。具有嗜血本质的中共更因此如鱼得水，对内强权镇压，洗劫人民的财富，荼毒百姓的思想，对外则输出腐败与邪恶，甚至联合世界的暗黑力量，以冠状病毒为超限生物武器，威胁全人类的安全。**
 
-今天，为揭开中共病毒真相做出很大贡献的劳伦斯-塞林博士报告，2019年12月12日，拉尔夫-巴里奇博士签署了一份协议，他将获得 “由美国国家过敏和传染病研究所和莫德纳共同开发和拥有的mRNA中共病毒候选疫苗”。[【1】](https://twitter.com/LawrenceSellin/status/1365518656998936579?s=20)
-![]()![](https://gnews.org/wp-content/uploads/2021/02/twitter1.jpg)*图片来源：Twitter.com*
-在2019年12月12日, 巴里奇就被定为测试mRNA疫苗疗效的人选。这告诉我们，福西和巴里奇医生可能已经知道中共国发生的事情，福奇和莫德纳很可能在西方公布中共病毒之前就在研究中共病毒疫苗。福奇和巴里奇是否知道中共病毒被释放，他们是什么时候知道的？ 这很耐人寻味！
+**跟随郭先生引领的爆料革命三年多了，从最初的厉害了我的国的思想，到如今逐渐理清了家国的概念与本质，这在思想上是质的飞跃。可惜的是，美国人似乎还在沉睡，美国的利益阶层与中共又有着千丝万缕的联系，所以文章提到的要切断与有着大外宣背景的孔子学院的联系，虽然非常急切，却又似乎并不容易。但是，如果再任由中共作恶下去，自称自由民主灯塔的美国可能真要被中共的共产主义的风暴给“浇灭”了。美国人，该醒醒了，美国所谓的精英们，应该在正义与邪恶之间做出正确的选择了。**
 
-评：
+[!\[\]()!\[\](https://spark.adobe.com/page/NkzgfXOhElm8X/images/4f53d4e5-8ec6-4feb-b663-e96a89f5098c.jpg?asset_id=b1b1c2ae-5b84-4ec6-86d6-38fff5b26240&amp;img_etag=%22e82b922bf31404ffc3c113625470806d%22&amp;size=1024)](https://spark.adobe.com/page/NkzgfXOhElm8X/images/4f53d4e5-8ec6-4feb-b663-e96a89f5098c.jpg?asset_id=b1b1c2ae-5b84-4ec6-86d6-38fff5b26240&amp;img_etag=%22e82b922bf31404ffc3c113625470806d%22&amp;size=1024)来源网络
 
-中共一直在隐瞒病毒来源真相，而巴里奇博士在2019年12月就开始研究中共病毒疫苗，难道他早就知道要发生疫情？他是怎么知道的？中共与这些医药巨头是什么关系？真是细思极恐！
+***原文翻译：***
 
-[原文链接](https://www.thegatewaypundit.com/2021/02/huge-exclusive-dr-baric-reviewing-modernas-dr-faucis-coronavirus-vaccine-december-2019-know/?utm_source=Twitter&amp;utm_medium=PostTopSharingButtons&amp;utm_campaign=websitesharingbuttons)
+#### 拜登的中央情报局提名人称，美国大学应切断与中共国支持的孔子学院的联系
 
-* * *
+伯恩斯表示，这些被称为“教育合作伙伴”的孔子学院是中共国的宣传工具
 
-校对 文锦
-发稿 云起时
+拜登总统挑选的中情局局长周三安抚了很多共和党的议员，此前他建议美国公立学校和大学应禁止孔子学院项目。
+
+孔子学院是为了让中共国以外的学生（包括美国）学习中国语言和文化的一项教育合作计划，它获得了来自中共国的大量资助。但是近年来，他们因为可疑的宣传企图而受到关注。
+
+美国众议员史蒂芬妮克提议立法限制联邦资金被用于与中共国有合作伙伴关系的大学。
+
+“我认为孔子学院所作的事情是在宣传习近平的中共国故事，这旨在建立对现实的共鸣，我虽然不是这方面的专家，但以我的观点来看，这是一个相当激进的领导层，在与美国的关系上采取敌对的态度。”前国务院驻俄罗斯外交官，拜登的中央情报局提名人，威廉·伯恩斯对国会委员会说。
+
+他补充说：“因此，从这个意义上讲，外国施加影响的行动的特定层面构成了真正的风险。所以，我对包括学术机构在内的所有美国机构的建议是，要格外小心各种类似机构的动机，在接触他们时要非常小心。”
+
+伯恩的警告可能会吸引国会的共和党人，他们担心拜登与中共国的关系会比他的前任政府更温和。
+
+10月，前国务卿迈克·彭佩奥和教育部长贝西·德沃斯（Betsy Devos）向所有50个州的学校（从幼儿园到大学）发出警告，称中共国正在开展“全球影响力运动”。
+
+当撤销了川普对孔子学院的命令之后，拜登受到了越来越多的共和党人的抵制。
+
+伯恩斯在委员会听证会前的书面答复中说：“北京试图通过美国学术机构的文化和教育计划来提高其软实力和亲中共国的宣传。诸如孔子学院之类的计划为汉语学习提供资金，并向中共提供直接与大学官员接触的机会。北京利用这种途径来传播对中共国的积极描述，引导对话远离对中共敏感的话题。”
+
+缅因州参议员苏珊·柯林斯（Susan Collins）询问伯恩斯，问他是否建议学校完全关闭孔子课程，伯恩斯说：“如果我是一所大学的校长，并且设有孔子学院的话，那肯定是我会做的事。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/NkzgfXOhElm8X/images/7c4c5ae0-f937-4538-9010-6ca153092308.png?asset_id=9abd4a34-0c66-40e6-a894-df16c1f0016b&amp;img_etag=%22b15062d82fd0062d2df5556cacd29b5a%22&amp;size=1024)](https://spark.adobe.com/page/NkzgfXOhElm8X/images/7c4c5ae0-f937-4538-9010-6ca153092308.png?asset_id=9abd4a34-0c66-40e6-a894-df16c1f0016b&amp;img_etag=%22b15062d82fd0062d2df5556cacd29b5a%22&amp;size=1024)图片来源 The University of Maryland
+
+伯恩斯告诉国会议员，习近平过去几年的行动是“一次非常敏锐的警钟”，使他警惕中共国在国际社会中寻求的侵略性统治。
+
+拜登从竞选开始就发誓会对中共国采取强硬态度，但是他对自己将会延续川普政府留下来的哪些政策一直保持相对沉默的态度。
+
+中共国发言人赵立坚在星期四的新闻发布会上敦促美国“放弃零和游戏思维”。
+
+他对记者说：“过去几年，美国前政府出于自身政治需要，对中国的走向和政策作出了严重误判和歪曲解释。中方希望拜登政府能够‘采取积极的、有建设性的对华政策’。”
+
+**🔗[原文链接](https://www.foxnews.com/politics/biden-cia-nominee-us-colleges-cut-ties-china-connected-confucius-institutes)**
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/NkzgfXOhElm8X/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/NkzgfXOhElm8X/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
