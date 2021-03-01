@@ -1,30 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 病毒英国变种毒株大爆发
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/938868/)
+## 【新闻宅急便】2021年2月28日海外新闻摘要
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/938968/)
 
-```
-记者：克拉里斯·马丁（Clarisse Martin） 2021.02.28
-新闻来源：BFM TV
-翻译整理：旦旦  校对/发稿人: Ting Guo
-```
+作者：寂月/喜马拉雅东京樱花团
 
+**继口罩之后****…****美****8****成疫苗针头和注射器来自中国****，****参议员震惊了**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/Le-variant-anglais-est-de-plus-en-plus-present-a-Dunkerque-966519.jpg)图片来源：BFM TV
+[本文网址](https://www.aboluowang.com/2021/0228/1562492.html)
+![](https://lh5.googleusercontent.com/xMQgICxsDo-zSnrAZE89OcONz9nA3tSK-cJfqdvmZNUI4CXvPXI30xYatMgcSFf9OQS5ENoFkWUCUaTRM2WHjGF6pIm8lCvMjfpZ3Bsw1PZzH1XlQERcZZRfJzYVkyJqTvV8R1pE)
+评论：美国开始施打中共病毒疫苗后，参议员英霍夫(Jim Inhofe)发现其中有80%的针头和注射器都来自中国，在向美国国防部证实之后相当震惊。由于订单激增，中共国的针头和注射器价格已涨至4倍，且工期已排到8月。由此可见，美国对中共国医疗物资生产的依赖远超想象，现在的疫苗注射用针头和注射器也只是其中一环。在这种背景下，美国要摆脱中共国的隐形操控是何其困难。然而贪图一时的方便，只会使美国原有的自由民主社会堕入更深的深渊。勿以恶小而为之啊。
 
-法国卫生部公卫署长沙罗孟 (Jérôme Salomon) 表示，感染英国变种毒株病毒的病人已经占到所有感染者的53%。
+**纽约证交所开始启动中海油除牌**
 
-今年1月初，感染该类变种毒株的患者在法国为3%，而短短两个月不到的时间，已经成为法国主要感染类型。
+[本文网址](https://www.aboluowang.com/2021/0228/1562481.html)
+![](https://lh4.googleusercontent.com/Ni6Zkn4iEaEpuIhaMNRMJBiSzXKYo0pM3QBL35-yI0mZZdu-LsI2JhLpQOeP8I4cpaKtQPo9rLzT9FQdPk1HAN3G-eS_1nICQjcaZFd_2n5d5bgFtdGj9op5PXNtZCrguq25gXNR)
+评论：纽约证交所于2月26日决定将中共国大型国有石油企业中海油有限公司除牌。此次行动是基于美国前总统特朗普去年11月签署的一个行政命令的更新。而早在去年，特朗普政府就表示要对由中共军方拥有或控制的中共国公司采取行动，可见此次对中海油的除牌只是一个开始。在拜登新政府下，北京中共政府将会面临怎样的压力，我们拭目以待。
 
-沙罗孟确信宵禁起到了重要作用，如果每个人遵守该卫生令，就可以避免再次封城。
+本文只代表作者观点，与GNews网站无关。
 
-#### 简评：
+校对：東洋武士/喜马拉雅东京樱花团
 
-**闫博士曾明确表示，如果必要，CCP会不间断地持续放毒。现在整个世界依然持续这种治标不治本的被动防疫方式，简直是劳民伤财。欧洲依然推崇疫苗，要求各国加速疫苗接种，这种可笑，罔顾事实的政策就是置人们于危险之中。请各位积极传播真相，经常出行的战友请根据闫博士的建议采取防疫措施。共产党内部经济已经开始崩塌，我们离胜利不远了！**
+审核：文小白/喜马拉雅东京樱花团
+![]()![](https://gnews.org/wp-content/uploads/2021/02/二维码-1.jpg)
+0228C009e
 
-**（免责声明：本文的简评只代表译者观点，跟GNEWS平台无关。）**
-
-[**🔗新闻原文链接**](https://www.bfmtv.com/sante/le-variant-britannique-du-covid-19-desormais-majoritaire-en-france_AN-202102280080.html)
-
-+3
++2
