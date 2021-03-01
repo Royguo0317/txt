@@ -1,29 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻宅急便】2021年2月28日海外新闻摘要
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/938968/)
+## SARS-CoV-2病毒可通过嗅觉透粘膜入侵中枢神经系统并感染大脑
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/937431/)
 
-作者：寂月/喜马拉雅东京樱花团
+作者：Stephen文文
 
-**继口罩之后****…****美****8****成疫苗针头和注射器来自中国****，****参议员震惊了**
+约三分之一感染SARS-CoV-2病毒的COVID-19患者会出现嗅觉和味觉丧失、头痛、疲劳、恶心和呕吐，也有报道表明SARS-CoV-2会导致急性脑血管疾病和意识障碍。已经有研究表明大脑和脑脊液（CSF）中存在病毒RNA。来自耶鲁医学院的一项研究表明SARS-CoV-2病毒可明显的感染人脑类器官，并伴随着被感染的和邻近神经元的代谢变化（参考文献1）。在死于COVID-19患者的尸检中，皮质神经元中检测到SARS-CoV-2。结果为SARS-CoV-2的神经侵袭能力提供了证据，也为SARS-CoV-2直接感染神经元带来了意想不到的后果。
 
-[本文网址](https://www.aboluowang.com/2021/0228/1562492.html)
-![](https://lh5.googleusercontent.com/xMQgICxsDo-zSnrAZE89OcONz9nA3tSK-cJfqdvmZNUI4CXvPXI30xYatMgcSFf9OQS5ENoFkWUCUaTRM2WHjGF6pIm8lCvMjfpZ3Bsw1PZzH1XlQERcZZRfJzYVkyJqTvV8R1pE)
-评论：美国开始施打中共病毒疫苗后，参议员英霍夫(Jim Inhofe)发现其中有80%的针头和注射器都来自中国，在向美国国防部证实之后相当震惊。由于订单激增，中共国的针头和注射器价格已涨至4倍，且工期已排到8月。由此可见，美国对中共国医疗物资生产的依赖远超想象，现在的疫苗注射用针头和注射器也只是其中一环。在这种背景下，美国要摆脱中共国的隐形操控是何其困难。然而贪图一时的方便，只会使美国原有的自由民主社会堕入更深的深渊。勿以恶小而为之啊。
+来自德国的研究提供了SARS-CoV-2神经嗜性的证据（路德节目中曾提出的“嗜神经病毒”）。他们的研究表明SARS-CoV-2可以通过嗅觉粘膜中的神经-粘膜界面，利用嗅觉粘膜、内皮和神经组织的近处进入神经系统。随后，SARS-CoV-2病毒穿透了限定的神经解剖区域，包括延髓中的主要呼吸和心血管控制中心（参考文献2）。
 
-**纽约证交所开始启动中海油除牌**
+在对33名死者的解刨研究中发现SARS-CoV-2中病毒RNA的最高水平嗅粘膜在筛状板的正下方。在角膜，结膜和口腔粘膜中发现了较低水平的病毒RNA，突显了口和眼也是SARS-CoV-2进入中枢神经系统的其他潜在途径。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2804.jpg)
+发现舟山蝙蝠病毒（ZXC21、ZC45）的解放军南京军区疾病预控制中心王长军曾在其论文中也表明舟山蝙蝠病毒（ZXC21、ZC45）可侵染乳鼠的中枢神经系统，通过电子显微镜发现被病毒感染的乳鼠大脑中存在病毒颗粒（参考文献3）。也就是说舟山蝙蝠病毒（ZXC21、ZC45）与SARS-CoV-2一样具有神经嗜性。
 
-[本文网址](https://www.aboluowang.com/2021/0228/1562481.html)
-![](https://lh4.googleusercontent.com/Ni6Zkn4iEaEpuIhaMNRMJBiSzXKYo0pM3QBL35-yI0mZZdu-LsI2JhLpQOeP8I4cpaKtQPo9rLzT9FQdPk1HAN3G-eS_1nICQjcaZFd_2n5d5bgFtdGj9op5PXNtZCrguq25gXNR)
-评论：纽约证交所于2月26日决定将中共国大型国有石油企业中海油有限公司除牌。此次行动是基于美国前总统特朗普去年11月签署的一个行政命令的更新。而早在去年，特朗普政府就表示要对由中共军方拥有或控制的中共国公司采取行动，可见此次对中海油的除牌只是一个开始。在拜登新政府下，北京中共政府将会面临怎样的压力，我们拭目以待。
+参考文献
+1: Neuroinvasion of SARS-CoV-2 in human and mouse brain, JEM, January 12, 2021
+2: Olfactory transmucosal SARS-CoV-2 invasion as a port of central nervous system entry in individuals with COVID-19, Nat Neurosci., 2021 Feb.
+3: Genomic characterization and infectivity of a novel SARS-like coronavirus in Chinese bats, Emerg Microbes Infect., 2018
 
-本文只代表作者观点，与GNews网站无关。
+【文章仅代表作者个人观点】
 
-校对：東洋武士/喜马拉雅东京樱花团
+审核校对：玫瑰天空
+上传排版：糖果儿
 
-审核：文小白/喜马拉雅东京樱花团
-![]()![](https://gnews.org/wp-content/uploads/2021/02/二维码-1.jpg)
-0228C009e
-
-+2
++1
