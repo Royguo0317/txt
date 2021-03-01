@@ -1,33 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻宅急便】2021年2月28日国内新闻摘要
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/938951/)
+## SARS-CoV-2病毒可通过嗅觉透粘膜入侵中枢神经系统并感染大脑
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/937431/)
 
-作者：寂月/喜马拉雅东京樱花团
+作者：Stephen文文
 
-**1.**** ****暴毙！原武警总医院器官移植专家疑跳楼？全球追查重要目标死亡**
+约三分之一感染SARS-CoV-2病毒的COVID-19患者会出现嗅觉和味觉丧失、头痛、疲劳、恶心和呕吐，也有报道表明SARS-CoV-2会导致急性脑血管疾病和意识障碍。已经有研究表明大脑和脑脊液（CSF）中存在病毒RNA。来自耶鲁医学院的一项研究表明SARS-CoV-2病毒可明显的感染人脑类器官，并伴随着被感染的和邻近神经元的代谢变化（参考文献1）。在死于COVID-19患者的尸检中，皮质神经元中检测到SARS-CoV-2。结果为SARS-CoV-2的神经侵袭能力提供了证据，也为SARS-CoV-2直接感染神经元带来了意想不到的后果。
 
-[本文网址](https://www.aboluowang.com/2021/0228/1562494.html)
-![](https://lh4.googleusercontent.com/xE8eRUxF8dsX70nu4NM1gIKXYCNbNVvlmELJpAV7DvIxGL0f9Wk3CwJR7dmKHmVkIEQoKEjzPQvc93LmMC86vphxAC0K14wJiSRx05v-UHHmKFbUkZ8G-MU5OzZmoE_xeb08DpT2)
-评论：又一个医学界涉嫌活摘人体器官、迫害法轮功学员的所谓学术专家突然死亡。而且生前竟然完成肝脏移植手术超过2600例。其中仅在2004年至2008年期间，于天津第一中心医院就实施手术1600例。人体器官捐赠本应该有严格的审核管理，如此大量的健康肝脏从正常捐赠途径获取简直无法想象。在中共领导下，所谓专家教授都是两手沾满鲜血的刽子手，最后还落得暴毙下场。真是因果不虚，善恶终有报。
+来自德国的研究提供了SARS-CoV-2神经嗜性的证据（路德节目中曾提出的“嗜神经病毒”）。他们的研究表明SARS-CoV-2可以通过嗅觉粘膜中的神经-粘膜界面，利用嗅觉粘膜、内皮和神经组织的近处进入神经系统。随后，SARS-CoV-2病毒穿透了限定的神经解剖区域，包括延髓中的主要呼吸和心血管控制中心（参考文献2）。
 
-**2.**** ****中国将落实延迟退休  对老百姓是福是祸？外界极大关注**
+在对33名死者的解刨研究中发现SARS-CoV-2中病毒RNA的最高水平嗅粘膜在筛状板的正下方。在角膜，结膜和口腔粘膜中发现了较低水平的病毒RNA，突显了口和眼也是SARS-CoV-2进入中枢神经系统的其他潜在途径。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/2804.jpg)
+发现舟山蝙蝠病毒（ZXC21、ZC45）的解放军南京军区疾病预控制中心王长军曾在其论文中也表明舟山蝙蝠病毒（ZXC21、ZC45）可侵染乳鼠的中枢神经系统，通过电子显微镜发现被病毒感染的乳鼠大脑中存在病毒颗粒（参考文献3）。也就是说舟山蝙蝠病毒（ZXC21、ZC45）与SARS-CoV-2一样具有神经嗜性。
 
-[本文网址](https://www.aboluowang.com/2021/0228/1562476.html)
-![](https://lh4.googleusercontent.com/Cpg9oOrcSowJHfQIL41trDjqwJrL4uikrZNSgx5uDBZB3Gqw8yiDH4rGosn0hlTxCR9if8VodP_NJOtYQworkKoBKwzIVWw2a0Yw2DH8bLiBarCHr-rQgIL2GvZMAJf1NzpNKWxh)
-评论：中共国人社部26日回应，正与相关部门研究有关延迟退休的落实方案，以缓解人口结构变化带来的冲击。据称未来5年中国老年人口将超过3亿人，劳动年龄人口也将减少3500万人。然而比起老龄化，导致劳动人口减少更重要的原因是出生率下降。而延迟退休，只是拖延时间，并不能实质上解决劳动年龄人口不足的问题。延迟退休更重要的原因在于养老金的入不敷出，中共国那些庞大的政府和党的机关需要广大老百姓养活，推迟5年退休，老百姓就要多缴纳5年养老金，少领5年养老金。老百姓的身体是否能承受工作强度是一点疑问，另一方面，也会对年轻人的就业产生负面影响。而最终退休后，养老金最终是否能发放到需要的人头上，至少在中共国，老百姓们不抱有任何期待。
+参考文献
+1: Neuroinvasion of SARS-CoV-2 in human and mouse brain, JEM, January 12, 2021
+2: Olfactory transmucosal SARS-CoV-2 invasion as a port of central nervous system entry in individuals with COVID-19, Nat Neurosci., 2021 Feb.
+3: Genomic characterization and infectivity of a novel SARS-like coronavirus in Chinese bats, Emerg Microbes Infect., 2018
 
-**3.**** ****拒绝效忠  香港公务员爆发离职潮**
+【文章仅代表作者个人观点】
 
-[本文网址](https://www.aboluowang.com/2021/0228/1562697.html)
-![](https://lh3.googleusercontent.com/HAyzSEXl2tKvSv9ewqtQb0rFOa8FvE7_ZXoJBIh-sY3j2Mmftb8JIzZEDCR5_WvEgNpoVWSqslMz8N6OJSxWqH0fOLgGhIRv7yRN9zFAiUE6Uibv---t7BZHWxOSO72717zohZW6)
-评论：为贯彻习近平的 “爱国者治港”政策，香港公务员被强制要求宣誓效忠中共和特区，最迟一批须于2月末前签署声明。因为不愿效忠宣誓，香港公务员纷纷请辞。据劳工处资料显示，仅于去年12月到今年1月期间，共有24人离职。而过去3年资料显示，每年请辞人数仅为21人，每月仅1至2人。甚至有资深公务员已近退休，但不愿宣誓效忠，宁愿请辞放弃退休后每月长俸。此种宣誓效忠文化，具有中共国特色，违背了公务员应有的政治中立原则。相信但凡是有良知有正义感之人，都无法违背自己的原则为此等邪恶的组织宣誓效忠。斗米事小，名节事大。人活一生，就是要无畏自心，坦坦荡荡。为所有辞职的公务员喝彩。
-
-本文只代表作者观点，与GNews网站无关。
-
-校对、审核：東洋武士、文小白/喜马拉雅东京樱花团
-![]()![](https://gnews.org/wp-content/uploads/2021/02/二维码-1.jpg)
-0228C008e
+审核校对：玫瑰天空
+上传排版：糖果儿
 
 +1

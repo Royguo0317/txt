@@ -1,25 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德节目中提到的嗜神经病毒与血脑屏障：E蛋白在乙脑病毒穿越血脑屏障中起关键作用
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/939015/)
+## 【热点播报】川普先生CPAC精彩演讲
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/939056/)
 
-作者：Stephen文文
-![]()![](https://gnews.org/wp-content/uploads/2021/02/0301.jpg)
-血脑屏障是脑毛细血管壁与神经胶质细胞形成的血浆与脑细胞之间的屏障，能够阻止某些物质由血液进入脑组织，为病原体抵御入侵中枢系统的天然屏障。但是某些病毒，如HIV、西尼罗病毒、麻疹病毒、乙脑病毒、脊髓灰质炎病毒等却具有突破血脑屏障，入侵中枢神经系统的能力。病毒一旦穿越血脑屏障，其表面蛋白就会与细胞表面蛋白或受体相互作用，通过炎症因子导致神经细胞变性坏死，引起意识障碍等脑炎症状。
+作者：纽约香草山美食部 蓝天大海
 
-病毒穿越血脑屏障的机制尚未非常明确，有多种假设途径，并处于不断验证之中。乙脑病毒（JEV）的包膜蛋白（E蛋白）是乙脑病毒致病和免疫的关键蛋白。其E蛋白含有三个结构域，其中的结构域III负责识别神经细胞表面受体，结构域II负责介导病毒与神经细胞膜的融合（文献1）。并且E蛋白的244位氨基酸突变为谷氨酸后，可是小鼠产生严重的神经系统症状，对病毒的嗜神经性具有关键作用。
 
-中共南京军区疾病预防控制中心的王长军所发现的舟山蝙蝠病毒ZXC21及ZC45同样具有侵入乳鼠大脑的能力（文献2）。目前还没有研究揭示舟山蝙蝠病毒穿越血脑屏障的机制及其作用。如果其E蛋白在穿越血脑屏障中起到了关键作用，那么就可以合理解释中共军方在使用舟山蝙蝠病毒作为SARS-Cov-2病毒骨架时保留其E蛋白100%氨基酸序列一致性的目的：即保留SARS-Cov-2病毒具备穿越血脑屏障的能力。已有多项研究和解剖学实验证实了SARS-Cov-2病毒确实具有侵入人中枢神经系统的能力。
 
-以上关于乙脑病毒E蛋白在病毒穿越血脑屏障中的作用基于已发表的论文。关于SARS-Cov-2、舟山蝙蝠病毒E蛋白是否在病毒穿越血脑屏障中是否也起到了类似作用属于笔者的猜想推理，未经研究证实。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-参考文献：
-1. Crystal Structure of the Japanese Encephalitis Virus Envelope Protein, J Virol. 2012 Feb 2. Genomic characterization and infectivity of a novel SARS-like coronavirus in Chinese bats , Emerg Microbes Infect. 2018
 
-【文章仅代表作者个人观点】
 
-审核校对：鲁邦五世
-上传排版：糖果儿
+2月28日下午三点半，美国前总统川普在保守派政治大会（CPAC）上发表演讲。会上，他首先批评了现任总统乔·拜登的某些政策：批评他不顾国家安全，第一时间下令停止在南部边境建墙；结束旅行禁令；放松难民政策。同时，川普也表示了虽然疫情仍然严重，但学校需要立刻开放，不要再有任何拖延。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/image-250.png)图源网络
+
+川普还批评了共和党的部分领袖：批评他们没有坚守共和党保守主义理念，反而向强权屈服。川普承诺不会组建新党——他会尽全力协助共和党在2022年重新夺回参众两院，并暗示也许他会再次参选美国总统。
+
+在对待中共国上面，川普继续前一天蓬佩奥前国务卿的发言，再次发出对中共仍然强硬的信号。川普号召让美国再次伟大——未来应由美国而不是中共国主导。共和党人在未来四年必须成为对抗社会主义、共产主义和拜登政府政策的壁垒。
+
+他还详细阐述了有关共和党及其保守主义运动的未来和愿景。共和党未来要成为一个捍卫美国劳动家庭的社会、经济、文化利益和价值的政党，一个捍卫每个种族、每个肤色、每个信仰的政党。共和党必须把普通公民的需求放在第一位。
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
 
 0
