@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻宅急便】2021年2月28日海外新闻摘要
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/938968/)
+## 路德节目中提到的嗜神经病毒与血脑屏障：E蛋白在乙脑病毒穿越血脑屏障中起关键作用
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/939015/)
 
-作者：寂月/喜马拉雅东京樱花团
+作者：Stephen文文
+![]()![](https://gnews.org/wp-content/uploads/2021/02/0301.jpg)
+血脑屏障是脑毛细血管壁与神经胶质细胞形成的血浆与脑细胞之间的屏障，能够阻止某些物质由血液进入脑组织，为病原体抵御入侵中枢系统的天然屏障。但是某些病毒，如HIV、西尼罗病毒、麻疹病毒、乙脑病毒、脊髓灰质炎病毒等却具有突破血脑屏障，入侵中枢神经系统的能力。病毒一旦穿越血脑屏障，其表面蛋白就会与细胞表面蛋白或受体相互作用，通过炎症因子导致神经细胞变性坏死，引起意识障碍等脑炎症状。
 
-**继口罩之后****…****美****8****成疫苗针头和注射器来自中国****，****参议员震惊了**
+病毒穿越血脑屏障的机制尚未非常明确，有多种假设途径，并处于不断验证之中。乙脑病毒（JEV）的包膜蛋白（E蛋白）是乙脑病毒致病和免疫的关键蛋白。其E蛋白含有三个结构域，其中的结构域III负责识别神经细胞表面受体，结构域II负责介导病毒与神经细胞膜的融合（文献1）。并且E蛋白的244位氨基酸突变为谷氨酸后，可是小鼠产生严重的神经系统症状，对病毒的嗜神经性具有关键作用。
 
-[本文网址](https://www.aboluowang.com/2021/0228/1562492.html)
-![](https://lh5.googleusercontent.com/xMQgICxsDo-zSnrAZE89OcONz9nA3tSK-cJfqdvmZNUI4CXvPXI30xYatMgcSFf9OQS5ENoFkWUCUaTRM2WHjGF6pIm8lCvMjfpZ3Bsw1PZzH1XlQERcZZRfJzYVkyJqTvV8R1pE)
-评论：美国开始施打中共病毒疫苗后，参议员英霍夫(Jim Inhofe)发现其中有80%的针头和注射器都来自中国，在向美国国防部证实之后相当震惊。由于订单激增，中共国的针头和注射器价格已涨至4倍，且工期已排到8月。由此可见，美国对中共国医疗物资生产的依赖远超想象，现在的疫苗注射用针头和注射器也只是其中一环。在这种背景下，美国要摆脱中共国的隐形操控是何其困难。然而贪图一时的方便，只会使美国原有的自由民主社会堕入更深的深渊。勿以恶小而为之啊。
+中共南京军区疾病预防控制中心的王长军所发现的舟山蝙蝠病毒ZXC21及ZC45同样具有侵入乳鼠大脑的能力（文献2）。目前还没有研究揭示舟山蝙蝠病毒穿越血脑屏障的机制及其作用。如果其E蛋白在穿越血脑屏障中起到了关键作用，那么就可以合理解释中共军方在使用舟山蝙蝠病毒作为SARS-Cov-2病毒骨架时保留其E蛋白100%氨基酸序列一致性的目的：即保留SARS-Cov-2病毒具备穿越血脑屏障的能力。已有多项研究和解剖学实验证实了SARS-Cov-2病毒确实具有侵入人中枢神经系统的能力。
 
-**纽约证交所开始启动中海油除牌**
+以上关于乙脑病毒E蛋白在病毒穿越血脑屏障中的作用基于已发表的论文。关于SARS-Cov-2、舟山蝙蝠病毒E蛋白是否在病毒穿越血脑屏障中是否也起到了类似作用属于笔者的猜想推理，未经研究证实。
 
-[本文网址](https://www.aboluowang.com/2021/0228/1562481.html)
-![](https://lh4.googleusercontent.com/Ni6Zkn4iEaEpuIhaMNRMJBiSzXKYo0pM3QBL35-yI0mZZdu-LsI2JhLpQOeP8I4cpaKtQPo9rLzT9FQdPk1HAN3G-eS_1nICQjcaZFd_2n5d5bgFtdGj9op5PXNtZCrguq25gXNR)
-评论：纽约证交所于2月26日决定将中共国大型国有石油企业中海油有限公司除牌。此次行动是基于美国前总统特朗普去年11月签署的一个行政命令的更新。而早在去年，特朗普政府就表示要对由中共军方拥有或控制的中共国公司采取行动，可见此次对中海油的除牌只是一个开始。在拜登新政府下，北京中共政府将会面临怎样的压力，我们拭目以待。
+参考文献：
+1. Crystal Structure of the Japanese Encephalitis Virus Envelope Protein, J Virol. 2012 Feb 2. Genomic characterization and infectivity of a novel SARS-like coronavirus in Chinese bats , Emerg Microbes Infect. 2018
 
-本文只代表作者观点，与GNews网站无关。
+【文章仅代表作者个人观点】
 
-校对：東洋武士/喜马拉雅东京樱花团
+审核校对：鲁邦五世
+上传排版：糖果儿
 
-审核：文小白/喜马拉雅东京樱花团
-![]()![](https://gnews.org/wp-content/uploads/2021/02/二维码-1.jpg)
-0228C009e
-
-+2
+0
