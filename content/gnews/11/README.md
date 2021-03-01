@@ -1,339 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快报】川普在CPAC上拒绝承认2020年败局 2021.03.01
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/939856/)
+## 台湾啊，好事也要发生，坏事也要发生
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/939957/)
 
-** 作者：**冰川
+新闻简述：在2021年2月25日的盖特视频中，郭先生分析台湾的政治形势，感叹台湾没有真正的政治家，只有投机者，因此虽然有一手好牌，却不会打，把人民天天置于对中共的恐惧之中。在视频结束时他说：“台湾啊，好事也要发生，坏事也要发生。”
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210225-Getter1.srt.txt)
+**台湾啊，好事也要发生，坏事也要发生**
 
+**Both Good Things and Bad Things Will Happen in Taiwan**
 
-![]()![](https://www.himalayawashingtondc.org/wp-content/uploads/2021/03/image-1024x541.png)
+昨天几个台湾的兄弟姐妹给我通话，真是让我老感动了。没想到在台湾的地方，哇噻，有这么强大的爆料革命力量。让我感到非常非常的开心，还是有良知的人，有有脑子的人。但是有些观点我不敢苟同，例如，对蔡总统，小蔡总统，他们的看法是不对的。蔡没那么差，但是她在外交上绝对是一个胆小如鼠，小家子气，她最多能领导一个村吧。但是台湾的现状就是这样，都是政治玩家，没有政治大家。很快台湾人就会感受到，台湾将为政治玩家付出多大的代价。这就是中国人啊，不论任何时候，都不能让政治玩家操纵一个国家。
 
+Yesterday, a few brothers and sisters from Taiwan called me, which really moved me. Wow, I didn’t expect that there exists such a great power of our WM in Taiwan. It made me feel really, really happy to see people with conscience and brains. But some of their viewpoints I can’t quite agree with. For example, about President Tsai, President Little Tsai, their views are mistaken. Tsai is not that bad, but she is definitely a timid and short-sighted in diplomacy. She can only lead a village at most, but the status quo in Taiwan is like this – there are only players of politics but no real masters. Soon people in Taiwan will know how much Taiwan will need to pay for having these players. This is why Chinese should never allow players of politics to control a country.
 
-# ***今日摘要***
+听说啊，川普总统最近在马阿拉歌也开始看书学习了，也是认真反思了。政治上不能有天真，政治这个东西它是世界上最流氓的游戏，但是他必须还得遵守，服务绝大多数人的规则，否则必将被颠覆。而且你老玩弄手段，玩弄政治技术，你可以政治高度低一点，但你不能老靠玩政治技术，“政妓”是不行的，不是那个政治成绩，是妓女的“妓”，“政妓”不行，或政治“妓术”不行。
 
-1. 川普在CPAC上拒绝承认2020年败局
-2. 伊朗正式拒绝与拜登政府直接进行欧盟调停的核谈判的提议
-3. 法拉奇指责英政府漠视中共“新殖民主义”扩张
-4. 缅甸抗议民众遭到血腥镇压
+I heard that President Trump has recently started reading and studying in Maralago, and also seriously reflecting on what has happened. You cannot be naive in politics. Politics is the most rogue game in the world, but it must still abide by the rules, which serve the vast majority of people, otherwise it will be overthrown for sure. And if you always play with tricks and employ political “skills and techniques”, you can stay at a lower level politically, but you can’t always rely on political skills. Political “prostitutes” are not good. I don’t mean political “achievements” (note: “prostitute” in Chinese is its homophone), I mean prostitutes. You can’t be a political prostitute. Political “prostitution” won’t work.
 
+所以说咱国内的昨天晚上一个哥儿们，给我说一句很精彩的话。他说：不是说中南坑这几个疯子一定要打台湾，让他们千秋万代，是台湾弱到不打他都不好意思。他说实际上台湾人有太多牌，可以对付那几个老杂毛们。这个人是完全是一个很有高度的人，曾经也是可以影响中国命运的人。他说他去过几次台湾，觉得台湾这个地方太好了，他说但是台湾的政客实在是太 low 了。他说就台湾有牌，你可以跟国际上来合作，甚至沼泽地里勾兑也好，你能把自己整得安全一些，没必要像现在这个样子，跪着活，然后天天让人家抽大嘴巴，然后现在还要弄死你，是吧？
 
-# 重要事件
+So last night, a buddy in mainland China told me something really brilliant. He said that it’s not like that the few lunatics in the Zhongnan Pit must attack Taiwan to keep them on the throne forever; the truth is that it would be too embarrassing if you don’t attack Taiwan because Taiwan is so weak. He said that Taiwanese actually have many good cards to play when dealing with those old bastards [in the Zhongnan Pit]. This person definitely has very high wisdom. He was once a figure who could influence the destiny of China. He said that he had been to Taiwan several times and thought that Taiwan was a great place. He said that Taiwan’s politicians were really too low. He said that Taiwan has cards in their hands to allow them to cooperate with the world, or even collude with the “swamp”. They can make Taiwan a safer place, and there is no need to live like this, sitting on their knees, and allow others [the CCP] to slap their face every day. And now they [the CCP] are even going to kill you, right?
 
-- ** 02.28. Washington Examiner [川普在CPAC上上演GOP逆袭，拒绝承认2020年败局 Trump stages GOP comeback at CPAC by refusing to concede 2020 defeat](https://www.washingtonexaminer.com/news/campaigns/trump-cpac-2024-speech-gop-comeback)**
- 前总统唐纳德-川普（Donald Trump）预告了2024年的白宫竞选，并重新强调了11月大选被窃取的毫无根据的说法，在保守派政治行动会议上向崇拜的支持者发表了一场旨在巩固他对共和党的指挥权的激动人心的演讲，开启了他政治生涯的第二幕。
- 演讲持续了一个多小时，期间川普两次提出他正在计划第三次总统竞选，并多次宣称自己在2020年赢得连任，却眼睁睁地看着民主党偷走了他的胜利，并非法安插了拜登总统。在川普离开白宫后的首次公开演讲中，CPAC的约1400名观众挤满了酒店宴会厅，他们对这些言论的掌声比其他任何言论都要多，交替高呼 “我们爱你 “和 “你赢了”。
- 川普的讲话被称为不挑战共和党的领导地位。前总统的政治团队还表示，这次演讲将为共和党在2022年中期选举及以后的复出提供蓝图。川普履行了前者，点名批评了支持他第二次弹劾的国会共和党人，并承诺要将他们赶下台。
- 在今年的CPAC大会上，支持川普的与会者比支持其他任何一位在主舞台上发言的著名共和党人都要多。
-- **02.28. Zerohedge [伊朗正式拒绝与拜登政府直接进行欧盟调停的核谈判的提议 Iran Formally Rejects Offer Of Direct EU-Brokered Nuclear Talks With Biden Admin](https://www.zerohedge.com/geopolitical/iran-formally-rejects-offer-direct-eu-brokered-nuclear-talks-biden-admin)**
- 据《华尔街日报》援引高级外交官的话称，伊朗周日对拜登政府提出的欧盟赞助的直接核谈判以恢复JCPOA核协议条款的提议发出了坚定而明确的拒绝。
- 也许正如预测的那样，美国并没有动摇其立场，即伊朗必须首先恢复履约–特别是在2015年协议规定的铀浓缩水平上–才能放松制裁。德黑兰同时指出，是华盛顿先从协议中走出来的。
- 鉴于华盛顿在制裁减免问题上的顽固态度，伊斯兰共和国断然 “排除 “了这次会谈。”WSJ写道：”两位西方高级外交官表示，伊朗目前已经排除了参加欧洲会议的可能性，他们说伊朗希望先得到美国的保证，在会议结束后解除一些制裁。
- 周日晚些时候，伊朗最高领袖阿里-哈梅内伊在推特上说，美国必须先履行承诺，因为 “伊斯兰共和国长期以来一直遵守#JCPOA的所有承诺”。
- 《华尔街日报》在其最新的报道中强调，更多的升级就在眼前，这越来越多地表明，恢复协议的希望可能实际上已经死亡。
-- **02.28. Gnews [布林肯谴责缅甸部队对平民实施令人发指的暴力](https://gnews.org/zh-hans/938849/) **
- 美国国务卿布林肯周日发推称:我们谴责缅甸安全部队对缅甸人民实施的令人发指的暴力，并将继续推动追究责任人的责任。我们坚定地与勇敢的缅甸人民站在一起，并鼓励所有国家异口同声地支持他们的意愿。
-- **02.28. Gnews [法拉奇指责英政府漠视中共“新殖民主义”扩张](https://gnews.org/zh-hans/938913/)**
- 布赖特巴特新闻(Breitbart News)报道，此前有消息传出中共收购了英国学校，英国退欧领导人奈杰尔·法拉奇(Nigel Farage) 指责英国政府将资金放在优先地位，而不是保护该国免受中共“新殖民主义”的侵害。
- 法拉奇说,中共相关企业收购英国私立学校表示这个国家的精英阶层已经被中共收买和渗透——包括公务员,政府官员,商业精英,他将之描述为中共倾向于“全球统治”的“新殖民主义”扩张。
- 法拉奇在接受土耳其公共广播电视辩论中提到英国目前是利益优先，以被控为中共国有企业的华为为例，2014年以来仍就职于华为咨询委员会的名单中很多是全球知名企业家和前政府高级官员的政治人物——包括前英国石油(BP)首席执行官约翰·布朗（John Browne）、著名前公务员人员安德鲁·卡恩（Andrew Cahn）和南安普顿大学的前校长海伦·亚历山大（Helen Alexander)。本月早些时候，英国电信集团(BT Group)前总裁迈克尔·雷克 ( Michael Rake)退出了华为董事会。
- 法拉奇还提到了前保守党首相戴维·卡梅伦（David Cameron），他目前正在致力于一项“英中基金”的中共投资计划，寻求从中共筹集超过7亿英镑的投资。
- 卡梅伦不是唯一与中共勾兑的英前首相。2015年的一项调查发现,前工党首相托尼·布莱尔(Tony Blair)曾负责中共在新疆地区的国有企业与阿联酋阿布扎比的沟通，而新疆有100多万被拘禁在集中营的穆斯林维吾尔族人。布莱尔2007年在中共工业城市东莞的一次演讲曾获得23.7万英镑的报酬，超过了他担任首相时的年薪。
- 英国至少有17所私立学校被与中共关系密切的中共投资者收购，同时英国大学校园里还有29所孔子学院，英国各地有148个孔子课堂。英国下议院外交事务委员会2019年的一份报告发现，中共宣传机构试图压制英国校园内有关中共所谓“敏感”问题的讨论，如台湾、新疆、西藏和6.4天安门大屠杀。
+台湾没有人有这感受的，都是一帮投机者。台湾说实在话，不战不归，这是最美好的对台湾，但是不能让大家活在这么恐惧之中啊，那就要有“大家”。从过去这些年看，也就蒋经国和李登辉是个大家，后有陈水扁还是有野心的，现在这些人都不中了。
 
+No one in Taiwan feels this way because they are a bunch of opportunists. To be honest, the best option for Taiwan is “no war, no return”. You can’t let everyone live in such a fear, so you need to have big masters [in politics]. In the past, only Chiang Ching-kuo and Lee Teng-hui were big masters, followed by Chen Shui-bian who had some ambitions, while none of the current people [politicians in Taiwan] has the same guts.
 
-# 每日文贵说
+所以说很多台湾战友们给我发来的信息，俺没法一一回哦，没法哦。你看看台湾那些媒体都是一帮垃圾一个个的，什么康啊，什么倩啊，都一帮垃圾都是。你看台湾出过一个在世界上的媒体人吗？一个都没有，一个都没有！台湾人那个小书啊，小诗啊，小历史啊，喃喃自语啊，自淫自乐啊，还仅限于在自己的岛内，是可以的，走出亚洲都走不出去，就甭说世界级的。世界上没有人、没有这些领域，大家啊，宗教领域，是吧？哲学领域，文学领域，世界上最核心的国际政治家，国际外交家一个都没有，他活不成的有，对吧？
 
+Many brothers-in-arms in Taiwan have sent me messages, which I can’t reply one by one. Look at those media people in Taiwan, a bunch of garbage. Kang something and Hsien something are garbage. Have you ever seen one Taiwanese media person who has been well-known in the world? No one, not a single one! Taiwanese authors’ little books, little poems, little history, mumbling-like and self-entertaining stuff are only known within the island, which is fine [within Taiwan], but you can’t even make your works known in the rest of Asia, no mention to become world-class works. There are no Taiwanese known in the world in these fields. There are no real masters in religious fields, philosophy, or literature. There is not a single core international politician or international diplomat in the world, not a living one, right?
 
-![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/02/1-1-1024x576.jpg)
-# 文贵直播和盖特
+但是台湾出了什么？出了很多科技大家，企业家。为什么呀？大家想过没有。中国人的基因，台湾人的基因，是有真正的这种组织能力，实干家。政治高度不行，国际视野更不行，这就是为什么大家你们会很快会看到，台湾很快，今年一定是台湾年，遇到大事的时候，世界上没有几个能帮它的，就是世界上没有几个，没几个。
 
-### 直播：
+Then what has Taiwan produced? They have a lot of tech giants, entrepreneurs. Why? Have you thought about it? The genes of the Chinese people, the genes of the Taiwanese have the true organizational ability and doers, but not political wisdom, not mention international visions. This is why very soon you will see that when Taiwan encounters serious problems this year (because this year is “Taiwan year”), few people in the world will help them. Very few.
 
-** 20210228 美國保守派大會 絕對讓華爾街硅谷好萊塢媒體界顫抖了; 美國兩黨鬥成這樣也不會把對方置於死地; 七哥講述拍老師板磚及中國草根窮人的悲慘命運; 美國的豬都比馬雲活得幸福快樂**
+真替台湾着急啊，但咱没办法，是吧？但咱人少、人笨，然后咱也做不了啥，咱也属于口炮党，没啥，是吧？咱咋能帮人家？咱到时候在台湾挂两口号：“你被北美教练骗了吗？你被郭文贵骗了吗？”咱弄这个吧。台湾啊，好事也要发生，坏事也要发生，是吧？
 
+I really worry about Taiwan, but what can we do, right? We don’t have the manpower and we are not that smart, and we can’t do anything other than talking, right? How can we help them? We will put up two slogans in Taiwan at that time: “Have you been cheated by the “North American coach” (referred to Miles)? Have you been cheated by Miles Guo?” Let’s do this. Taiwan, some good things will happen to them, and bad things will happen too, right?
 
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-### 盖特：
+视频来源：[https://gtv.org/getter/6037b74a1958515902373eed](https://gtv.org/getter/6037b74a1958515902373eed) (00:48–6:04)
 
-**2月28号：尊敬的战友们好！文贵正在尝试，让自己获得不高兴的心情，然后今天晚上在直播！文贵谈谈共产党的流氓文化……和把我们14亿中国人民不当猪狗的流氓逻辑。**
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/932768/](https://gnews.org/zh-hans/932768/)
 
+* * *
 
+翻译：【Isaiah4031】校对：【guocamole(文金欠) 】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
-
-
-> 郭文贵MILES
-> 亲爱的战友们， G | Fashion 即将推出全球限量版金口哨一共只有77个，你们准备好了吗？🔥🔥🔥🔥😉😉😉😉 [pic.twitter.com/TqqYeYuDfc](https://t.co/TqqYeYuDfc)
-> — wenqiao (@XkS5TmstaEZYrAS) [February 28, 2021](https://twitter.com/XkS5TmstaEZYrAS/status/1366067177628069894?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-
-
-
-
-# 秘密翻译组：
-
-**美国要处理中国的战略性盗窃**
-
-
-
-**2/26/2021 郭先生直播：中共病毒将如何影响世界？全世界的社会结构、生产力需求、生活方式及金融系统等必因中共病毒这一生物武器而发生天翻地覆的变化；二十大后中共对内高压统治和国有化速度将无法想象**
-
-
-
-**2/26/2021郭先生直播：习和上海帮之战势均力敌、谁是最后赢家？最近发生的几件事：江志成路演暴怒、布隆伯格的论坛被赶到新加坡等，都说明习江曾之战没有一派占绝对优势，战场上的赢家必是打扫战场的一方！**
-
-
-
-# 喜马拉雅国际工作站：
-
-**蓬佩奥参加CPAC期间接受大纪元采访说：美国与中共的脱钩几乎确定必须发生，这毫无疑问！**
-
-
-
-
-
-**纳瓦罗最新采访透露，川普2024年一定会参选，无论他今天宣不宣布。 纳瓦罗还强调，这次川普一定要听班农等人的。如果不听班农等人的，那么就听错了人（2/28）**
-
-
-
-
-
-# 路德社节目：
-
-### 2/28/2021 早 路德时评（路安墨谈）：蓬佩澳明确说了美中脱钩确定必须发生意味着什么？华为急了，喊话拜登尽快解除禁令给华为供货；
-
-
-
-- 蓬佩澳接受RAV采访时明确把中共隐瞒病毒真相对全世界造成的伤害比做是前苏联切尔诺贝利（核电站）事件——“蓬佩澳说这个，就是告诉全世界…做为国务卿…能直接获取一手情报，知道这个疫情真的就跟切尔诺贝利一样” “整个地球就在那几十个小时在死亡线上…
-- 闫博士出来那就是天意…因为我之前看过切尔诺贝利这个事情（来龙去脉），能来到美国真的是天意，并且能在1.19说出来又是天意。当时那个科学家（列加索夫，遭到苏联核能机密单位的政治审查压力，自杀以前曾经在录音带中录下当时未公开的灾难真相）出来也是天意…”
-- CCP≠中国人、脱钩、超限生物武器 … 影响世界格局的概念都是爆料革命提出！ “记不记得咱们这段时间一直说概念，中共就是…精心策划、持续完美犯罪的跨国犯罪组织，这种概念你必须得首先提出来，就像病毒来源于军方实验室这个概念。
-- “脱钩”这个词都不变…未来大家可以去看，超限生物武器，这就是闫博士第一个提出的概念。未来一定是用这个词去讨论，等你用这个词去讨论（病毒真相）的时候…就像现在都用脱钩这个词，你就知道爆料革命有多大的影响力！”
-
-
-文字内容见Gnews：[《路德时评》重磅解读蓬佩奥明确中美脱钩必须发生，及华为喊话拜登解除供货禁令](https://gnews.org/zh-hans/938402/)
-
-### 2/28/2021 晚 路德时评（路博艾冠谈）：纳瓦罗福克斯采访说川普2024年只要听班农的，就会赢意味着什么？川普CPAC演讲传递重磅信息；中共最高院裁决农民工不属于法律意义上的实际施工人；
-
-
-
-
-
-1. 朝鲜发展黑客网军，利用人海战术，广泛利用黑客工具，背后都有中共的支持。
-2. 中共发布规划修铁路修海底隧道，连接台湾。不投一分钱，收买忽悠台湾人民。不经商量，就按一国一治的方式处理了。以自己的想法，收买内鬼，统一台湾。
-3. 纳瓦罗最新采访透露，川普2024年一定会参选，无论他今天宣不宣布 纳瓦罗还强调，这次川普一定要听班农等人的。如果不听班农等人的，那么就听错了人。班农就说过，定义病毒是生化武器，就赢定了大选。
-4. 川普总统有钱，带了大部分的白宫班底，组建了前总统事物办公室，用自己的团队，为下次的选举打下基础。
-5. 余茂春VOA说病毒是实验室泄露，这是一个铺垫。对2015年的那本《非典非自然起源》那本生化武器的书，都是爆料革命战友提供的信息。川普2020年初禁飞美国的总统令，帮到了川普，否则，死定。
-6. 最高法的判例，农民工不是真正意义的“实际施工人”，今后农民工会变成要钱要不到。这反映了中共整个经济的下滑，内外交困，发不出工资。在法律上杜绝农民工和法讨薪的渠道。
-
-
-
-
-# 推特文摘
-
-
-
-新疆再教育营落户在香港
-
-
-
-
-
-> 新疆再教育營落户在香港😱 [pic.twitter.com/e7KB2pR4D2](https://t.co/e7KB2pR4D2)
-> — 安红橘绛轩 (@maryann\_3040) [February 28, 2021](https://twitter.com/maryann_3040/status/1366009092666368001?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-20210227蓬佩奥国务卿在CPAC集锦
-1.不再是外交人员说话不用中规中矩
-2.长达40年两党都允许中共国製造摧毁美国
-3.巴黎气候协议只是外交精英标榜美德的一个幻想
-4.拜登宣布重返巴黎气候协议后每一分钟习都在窃喜
-5.实践美国优先需要勇气更需要总统为国务卿撑腰（影射拜登）
-6.第一次问：拜登想回到哪儿？
-
-
-
-
-
-> 20210227蓬佩奧國務卿在CPAC集錦
-> 1.不再是外交人員說話不用中規中矩
-> 2.長達40年兩黨都允許中共國製造摧毀美國
-> 3.巴黎氣候協議只是外交精英標榜美德的一個幻想
-> 4.拜登宣布重返巴黎氣候協議後每一分鐘習都在竊喜
-> 5.實踐美國優先需要勇氣更需要總統為國務卿撐腰（影射拜登）
-> 6.第一次問：拜登想回到哪兒？ [pic.twitter.com/3ItnSwIgmc](https://t.co/3ItnSwIgmc)
-> — Andy5 (@andy5\_123) [February 28, 2021](https://twitter.com/andy5_123/status/1365943752158666758?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-据哈佛大学出版《共产主义黑皮书》，被共产主义杀害的人数，不包括战斗中被杀害的，仅是普通平民：朝鲜200万;苏联2000万;中国6500万…数字很保守，仅乌克兰，苏联及其乌克兰共党帮凶在两年内就饿死了500万以上，饥饿的乌克兰人被迫吃儿童的肉… 当您不憎恨共产主义时 这种邪恶会在美国发生 该清醒了!
-
-
-
-
-
-> 据哈佛大学出版《共产主义黑皮书》，被共产主义杀害的人数，不包括战斗中被杀害的，仅是普通平民：朝鲜200万;苏联2000万;中国6500万…数字很保守，仅乌克兰，苏联及其乌克兰共党帮凶在两年内就饿死了500万以上，饥饿的乌克兰人被迫吃儿童的肉…
-> 
-> 当您不憎恨共产主义时
-> 这种邪恶会在美国发生
-> 该清醒了! [https://t.co/DAWlbcfzGp](https://t.co/DAWlbcfzGp)
-> — 任公梦 (@Rengongmeng) [February 28, 2021](https://twitter.com/Rengongmeng/status/1365900586504314882?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-
-
-这是缅甸!
-
-今天是民众抗议以来，最血腥的一天!
-
-有报道20多人死难!
-
-
-
-
-
-> 這不是香港!
-> 
-> 這是緬甸!
-> 
-> 今天是民眾抗議以來，最血腥的一天!
-> 
-> 有報道20多人死難!🤔 [pic.twitter.com/IkqaRmxMB1](https://t.co/IkqaRmxMB1)
-> — 風再起時【香港挺郭后援會3】 (@dZnJUCdo4FlZqgd) [February 28, 2021](https://twitter.com/dZnJUCdo4FlZqgd/status/1366069767933599746?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-
-
-共产党的3F方案13579的征服世界和一带一路 2025, 2035, 2049….就是一个消灭白人的计划
-
-
-
-
-
-> 共产党的3F方案13579的征服世界和一带一路
-> 2025, 2035, 2049….就是一个消灭白人的计划 [pic.twitter.com/z2i7aHTEDI](https://t.co/z2i7aHTEDI)
-> — 存在主义咖啡馆 2 (@existcafe2020) [February 28, 2021](https://twitter.com/existcafe2020/status/1365961255165468672?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-这些人如果2019关注香港反送中很多人都很熟悉，他们都只是香港的泛民议员，反对派政党一员或是区议员，但他们都犯了颠覆国家政权罪!
-
-
-
-
-
-> 這些人如果2019關注香港反送中很多人都很熟悉，他們都只是香港的泛民議員，反對派政黨一員或是區議員，但他們都犯了顛覆國家政權罪! [pic.twitter.com/WDknMVgIKV](https://t.co/WDknMVgIKV)
-> — 風再起時【香港挺郭后援會3】 (@dZnJUCdo4FlZqgd) [February 28, 2021](https://twitter.com/dZnJUCdo4FlZqgd/status/1365998917813366790?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-衣分三色 食分五等 从延安到上海……
-
-
-
-
-
-> 衣分三色
-> 食分五等
-> 从延安到上海…… [pic.twitter.com/JNxPZK7Ymy](https://t.co/JNxPZK7Ymy)
-> — 安红橘绛轩 (@maryann\_3040) [February 28, 2021](https://twitter.com/maryann_3040/status/1366008455014674438?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-臧运金教授 中共党员 留美归国学者 曾任武警总医院肝移植研究所副所长 完成肝脏移植2600例 2月26日凌晨四点四十分离世… 好内涵的故事哦～ 这些肝脏从哪里来 分别移植到了谁的身上？ 这些故事就用“缅怀”二字搞定了吗？
-
-
-
-
-
-> 臧运金教授 中共党员 留美归国学者
-> 曾任武警总医院肝移植研究所副所长
-> 完成肝脏移植2600例
-> 
-> 2月26日凌晨四点四十分离世…
-> 好内涵的故事哦～
-> 这些肝脏从哪里来 
-> 分别移植到了谁的身上？
-> 这些故事就用“缅怀”二字搞定了吗？ [pic.twitter.com/0Kkx1n7Czx](https://t.co/0Kkx1n7Czx)
-> — 冠軍的后媽 (@caqiangzouhuoMG) [February 28, 2021](https://twitter.com/caqiangzouhuoMG/status/1365888384695111680?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-
-
-# 墙内咨讯
-
-
-
-### 02.28. 参考消息 中央政治局委员 书记处书记 全国人大常委会 国务院 全国政协党组成员 最高人民法院 最高人民检察院党组书记向党中央和习近平总书记述职
-
-根据党中央有关规定，中央政治局委员、书记处书记，全国人大常委会、国务院、全国政协党组成员，最高人民法院、最高人民检察院党组书记每年向党中央和习近平总书记书面述职。近期，有关同志按规定向党中央和习近平总书记书面述职。习近平认真审阅了述职报告并提出重要要求，强调今年是中国共产党成立100周年，是“十四五”开局之年。站在“两个一百年”奋斗目标的历史交汇点上，要更加紧密团结在党中央周围，深入学习贯彻新时代中国特色社会主义思想和党的十九届五中全会精神，增强“四个意识”，坚定“四个自信”，做到“两个维护”。要立足中华民族伟大复兴战略全局和世界百年未有之大变局，锚定宏伟蓝图，勇于担当作为，加强对分管领域工作的前瞻性思考，不断提高政治领悟力、政治判断力、政治执行力。要坚持以党的政治建设为统领，认真履行全面从严治党主体责任，严格执行中央八项规定及其实施细则精神，带头做到廉洁自律。要坚持以人民为中心的发展思想，更好发挥示范表率作用，团结带领广大党员、干部更加奋发有为，切实把党中央决策部署贯彻落实到各地区各部门各方面工作中去，以实际行动和优异成绩庆祝建党100周年。
- 有关同志对过去一年思想和工作情况进行全面梳理总结，以严肃诚恳的态度和高度负责的精神撰写述职报告。述职报告总结经验体会，分析问题不足，围绕大局提出下一步努力方向，主要有以下内容。
- 一是坚决把党中央决策部署和习近平总书记重要指示精神落到实处，始终坚持把“两个维护”作为最高政治原则和根本政治规矩，不断增强维护的自觉性和坚定性，提高维护能力和效果。
- 二是带头学习领会习近平新时代中国特色社会主义思想和党的十九届五中全会精神，努力在学懂弄通做实上下苦功、见真章，在积极投身新时代中国特色社会主义伟大实践中检验理论学习成效。
- 三是围绕统筹疫情防控和经济社会发展，在党中央统一部署下，扎实做好分管领域各项工作，沉着应对国内外风险挑战明显增多的复杂局面，积极在各自分管领域履职尽责。
- 四是严格执行请示报告制度，贯彻执行民主集中制，自觉将重大问题、重大事项、重要工作进展情况向党中央和习近平总书记请示报告，在分管领域、分管工作中充分发扬民主、实行正确集中。
- 五是坚决贯彻落实全面从严治党要求，严格执行中央八项规定精神，坚持严字当头，落实管党治党主体责任。深化整治形式主义、官僚主义。严格要求自己、亲属和身边工作人员，保持清正廉洁的政治本色。
-
-***简评：***习近平想疯狂集权，达到了登峰造极的地步。标题中的这些党政大员必须全部向他述职，他有时间看吗？这些大员的报告也是由秘书班子完成，不过是些互相哄骗的文字。这条新闻营造出习近平一统天下的虚幻局面，只有中共自己知道这个邪恶的政权已经到了危如累卵的地步。
-
-### 03.01.新浪网 我国人均GDP连续两年超1万美元
-
-2月28日，国家统计局发布的2020年国民经济和社会发展统计公报显示，2020年我国经济总量突破百万亿元大关。全年国内生产总值达101.6万亿元，比上年增长2.3%，是全球唯一实现经济正增长的主要经济体。人均国内生产总值连续两年超过1万美元。
- 国家统计局副局长盛来运用“不平凡之年书写非凡答卷”来形容过去的一年。他表示，2020年是新中国历史上极不平凡的一年。面对严峻复杂的国内外环境，特别是新冠肺炎疫情的严重冲击，经济运行稳定恢复、好于预期，发展目标任务全面完成。
- 具体来看，经济总量突破100万亿元大关，人均国内生产总值连续两年超过1万美元。2020年全年国内生产总值达101.6万亿元，比上年增长2.3%，是全球唯一实现经济正增长的主要经济体。按年平均汇率折算，2020年我国经济总量占世界经济的比重预计超过17%。经济恢复走在世界前列，走出了一条令世界惊叹的V形曲线，成为推动全球经济复苏的主要力量。
- 现行标准下农村贫困人口全部脱贫，2020年全年，贫困地区农村居民人均可支配收入12588元，实际增长5.6%，增速分别比全国居民和全国农村居民快3.5、1.8个百分点。根据国家脱贫攻坚普查结果，中西部22省（区、市）建档立卡户全面实现不愁吃、不愁穿，义务教育、基本医疗、住房安全有保障，饮水安全也有保障。
- 盛来运表示，2020年全年，研究与试验发展经费支出24426亿元，比上年增长10.3%。其中，基础研究经费比上年增长12.6%。
- 2020年全年，货物进出口、出口总值双双创历史新高，继续稳居全球货物贸易第一。东盟跃升为我国最大货物贸易伙伴。在疫情防控国际合作方面，2020年3月份至年底，中国出口口罩2242亿只，防护服23.1亿件，新冠病毒检测试剂盒10.8亿人份。
-
-***简评：***很难透过中共的铁幕了解到真实数据，所以他们说多少就是多少，或者连他们自己都不知道真实数据。2020年全球遭受来自中国武汉的病毒袭击，中国居然是“全球唯一实现经济正增长的主要经济体”、“农村贫困人口全部脱贫”、中西部”全面实现不愁吃、不愁穿，义务教育、基本医疗、住房安全有保障“。你信吗？
-
-### 02.28. 人民日报 政论专题片《摆脱贫困》出版物面向海内外发行
-
-2月27日，政论专题片《摆脱贫困》出版物海内外发行活动在北京举行。中宣部副部长、中央广播电视总台台长兼总编辑慎海雄，中央农办副主任、国家乡村振兴局局长王正谱等参加活动并共同启动出版发行。
- 慎海雄在致辞中强调，讴歌伟大时代、记录历史壮举是中央广播电视总台的职责所在。2月18日起在总台旗下全媒体多平台推出的政论专题片《摆脱贫困》，紧扣习近平总书记关于扶贫工作的重要论述，以清晰脉络梳理、关键细节挖掘、深刻意义阐释、感人影像塑造为创作目标，全景呈现了精准扶贫、精准脱贫和全面建成小康社会的恢弘历史进程。
- 截至目前，《摆脱贫困》专题片跨媒体总触达人次12.22亿，新媒体总阅读浏览量达到3.85亿次。首轮传播触达海外受众4.25亿。应海内外广大受众要求，总台决定推出《摆脱贫困》系列音像出版物，将于近日通过全国新华书店系统和网络平台面向全国公开发行，并通过44种语言面向海外发行。
-
-***简评：***2月25号习近平一句话宣布全国脱贫，27号就出自吹自擂的宣传片，仅仅过了一天，浏览量、海外受众就过亿，看来是早有预谋。说谎成性！靠宣传维持政权确实是中共的法宝。
-
-+2
++1

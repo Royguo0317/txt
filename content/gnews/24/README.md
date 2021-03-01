@@ -1,35 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国1.9万亿的援助计划只有8%用于对抗CCP病毒？
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/939650/)
+## 前美国驻联大使称中共比纳粹更危险 敦促拜登抵制北京冬奥
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/939722/)
 
-**【日本东京方舟农场】**翻译：Jay Cheung 校对：miumiu law
+台湾宝岛准农场Amitofu
 
-据华盛顿观察家报报道，日前民主党正在捍卫1.9万亿美元的援助方案里的特别有益的救助，这项援助计划专门针对CCP病毒而出台。该方案遭到共和党立法委员们的抨击，称它为“信息误导和舆论宣传”众议院预算委员会的共和党议员们周一就这一提案全部投了反对票，并辩解说这个法案一无是处，只是“一份特别的猪肉和慷慨的伪君子”。
-
-尽管该方案有着1.9万亿美元的规模，共和党指出该方案只有8%用在与CCP病毒相关的支出上，其中有几十亿用来帮助与民主党结盟的激进团体，工会，以及用于一些遭到强制关闭的社区的救助，这些都是与养老金相关的不负责任的预算决策。
-
-民主党完全无视共和党在救助清单上做出的与救济无关那些标记项目，声称这个救助计划的目的是刺激经济，而共和党只想阻止人们在疫情期间获得救助。
-
-来自肯塔基州的民主党议员，众议院预算委员会主席约翰·亚尔穆斯（John Yarmouth）在委员会投票通过了这个援助计划后说：“我们被贴上「信息误导和舆论宣传」的标签，事实真相是，病毒已经造成50多万美国人死亡。全国的工人，家庭，小企业和社区都在指望拜登总统的这份《美国救援计划》的救助，以让人们度过这次危机，他们都等不及了”。
-
-共和党指出这份援助方案有1.35亿美金直接拨付给国家艺术基金，860亿美金用于工会养老金计划，超过一亿美金用于硅谷的项目交换扩展计划，还有150万美元用于Seaway 国际大桥项目，该项目作为连接加拿大和纽约联系的延伸项目。
-
-另外有10亿美元在这个支付帐单中瞄准“社会弱势群体”，农民及类似一群人。这将包括成立股东委员会，同时作为农业培训机构，以进一步关注“农业中种族公正”。该方案还通过环保机构计划5000万美元用于“环境法律”方面的拨款。
-
-众议院议长南希·佩洛希（Nancy Pelosi）谴责共和党议员们的反对民主党的救助计划出于他们对救助方案的无力抗击而沮丧，从而竭力阻止该方案的通过。她在周一发表的一份声明中说“共和党曾公开抱怨他们无能为力发起民众反对这份消除CCP病毒的《美国救援计划》。现在他们转而操纵疫苗怀疑论，这一鲁莽行径将两党之间斗争关系置于全美国人民的健康，安全和就业之上”。
-
-来自科罗拉多州的民主党参议员迈克·本内特（Sen. Michael Bennet）认为所有那些在这份援助方案中被说成与病毒无关的救助实际上都直接和病毒有关，他对华盛顿观察家报说：“最好的例子就是儿童税收抵免计划。”
-
-罗德岛的民主党参议员杰克·里德（Sen. Jack Reed）告诉华盛顿观察家报说，我认为这些救助方案对这场危机会非常有用，这场危机对全国各地的家庭产生了巨大的影响，救助方案都很全面的考虑到了。
-
-评：对于救助方案译者无从评论，两党对于救助方案的争议应该要以符合美国人民的利益为根本，而不是出卖美国人民利益。在这里译者想强调美国两党如果不专注于CCP病毒来源问题，不接受这是中共用病毒作为生物武器投毒世界这个事实，那么任何的救助方案只是治标不治本。况且病毒还在不停的变异，如何开发有效的疫苗？最有效的疫苗就是消灭中国共产党，找出病毒完整的基因序列才是最终的最有效的免疫方法。
-
-注：本文仅代表译者观点
-
-原文链接：[https://www.google.com/url?q=https://www.washingtonexaminer.com/news/democrats-defend-pork-coronavirus-spending-bill?\_amp%3Dtrue%26\_\_twitter\_impression%3Dtrue&source=gmail&ust=1614665218025000&usg=AFQjCNHBbYERyPs8NXm-yGBEQxFZZkoXoQ](https://www.google.com/url?q=https://www.washingtonexaminer.com/news/democrats-defend-pork-coronavirus-spending-bill?_amp%3Dtrue%26__twitter_impression%3Dtrue&amp;source=gmail&amp;ust=1614665218025000&amp;usg=AFQjCNHBbYERyPs8NXm-yGBEQxFZZkoXoQ)
+国际奥委会曾在2015年7月宣布，北京获得2022年冬季奥运会的主办权，然而中共对新疆维族人实施集中营再教育，警察公安施暴、刑求维族人，对维族女性强暴、性虐待、电击生殖器、绝育手术，甚至在众人之下轮暴，犯下反人类罪和种族灭绝罪，美国国务院1月19日已认定，加上近日加拿大和荷兰国会相继通过认定中共对新疆构成种族灭绝，包括迫害新疆维吾尔族人、践踏西藏人民、侵犯香港的民主自由与军事威胁武统台湾等。
 
 
+
+> We must boycott the 2022 Winter Olympics in China.
+> 
+> It would be a terrible loss for our athletes, but that must be weighed against the genocide occurring in China and the prospect that empowering China will lead to even greater horrors down the road.[https://t.co/Omu14TKFpa](https://t.co/Omu14TKFpa)
+> — Nikki Haley (@NikkiHaley) [February 28, 2021](https://twitter.com/NikkiHaley/status/1366069389490065408?ref_src=twsrc%5Etfw)
+
+
+
+前美国驻联合国大使海利在推特发文表示，中共与1936年纳粹德国相比，今天中共的作为更加危险，习近平对2022年北京奥运会进行宣传，如果美国和其他自由民主国家参，将象征这是中共良好国际地位和世界的进一步证明。强调若中共持续侵犯人权、进行种族灭绝，那么中共很快就会变成1940年代的纳粹，呼吁美国总统拜登必须抵制北京冬奥，共和党参议员推动决议案将冬奥委会从北京撤离。2月16日美国前国务卿蓬佩奥也敦促国际奥委会更换主办国，更多的人权团体极力反对，对中共迫害基本人权和自由，国际奥委会一方面传达和平团结的运动家精神，却一方面漠视中共对新疆、西藏、香港、台湾人权侵犯的行为，表示国际奥委会应该将2022年奥运会改在一个尊重公民生命和权利的国家举办。本文仅代表个人立场
+
+审核:Athena雅典娜 發佈:Amitofu
+
+[FOXNEWS:Amb. Nikki Haley: Biden should boycott China’s Winter Olympics next year](https://www.foxnews.com/opinion/biden-boycott-china-winter-olympics-2022-nikki-haley)
+
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
 0
