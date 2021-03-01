@@ -1,27 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## SARS-CoV-2病毒可通过嗅觉透粘膜入侵中枢神经系统并感染大脑
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/937431/)
+## 【热点播报】川普先生CPAC精彩演讲
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/939056/)
 
-作者：Stephen文文
+作者：纽约香草山美食部 蓝天大海
 
-约三分之一感染SARS-CoV-2病毒的COVID-19患者会出现嗅觉和味觉丧失、头痛、疲劳、恶心和呕吐，也有报道表明SARS-CoV-2会导致急性脑血管疾病和意识障碍。已经有研究表明大脑和脑脊液（CSF）中存在病毒RNA。来自耶鲁医学院的一项研究表明SARS-CoV-2病毒可明显的感染人脑类器官，并伴随着被感染的和邻近神经元的代谢变化（参考文献1）。在死于COVID-19患者的尸检中，皮质神经元中检测到SARS-CoV-2。结果为SARS-CoV-2的神经侵袭能力提供了证据，也为SARS-CoV-2直接感染神经元带来了意想不到的后果。
 
-来自德国的研究提供了SARS-CoV-2神经嗜性的证据（路德节目中曾提出的“嗜神经病毒”）。他们的研究表明SARS-CoV-2可以通过嗅觉粘膜中的神经-粘膜界面，利用嗅觉粘膜、内皮和神经组织的近处进入神经系统。随后，SARS-CoV-2病毒穿透了限定的神经解剖区域，包括延髓中的主要呼吸和心血管控制中心（参考文献2）。
 
-在对33名死者的解刨研究中发现SARS-CoV-2中病毒RNA的最高水平嗅粘膜在筛状板的正下方。在角膜，结膜和口腔粘膜中发现了较低水平的病毒RNA，突显了口和眼也是SARS-CoV-2进入中枢神经系统的其他潜在途径。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/2804.jpg)
-发现舟山蝙蝠病毒（ZXC21、ZC45）的解放军南京军区疾病预控制中心王长军曾在其论文中也表明舟山蝙蝠病毒（ZXC21、ZC45）可侵染乳鼠的中枢神经系统，通过电子显微镜发现被病毒感染的乳鼠大脑中存在病毒颗粒（参考文献3）。也就是说舟山蝙蝠病毒（ZXC21、ZC45）与SARS-CoV-2一样具有神经嗜性。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-参考文献
-1: Neuroinvasion of SARS-CoV-2 in human and mouse brain, JEM, January 12, 2021
-2: Olfactory transmucosal SARS-CoV-2 invasion as a port of central nervous system entry in individuals with COVID-19, Nat Neurosci., 2021 Feb.
-3: Genomic characterization and infectivity of a novel SARS-like coronavirus in Chinese bats, Emerg Microbes Infect., 2018
 
-【文章仅代表作者个人观点】
 
-审核校对：玫瑰天空
-上传排版：糖果儿
+2月28日下午三点半，美国前总统川普在保守派政治大会（CPAC）上发表演讲。会上，他首先批评了现任总统乔·拜登的某些政策：批评他不顾国家安全，第一时间下令停止在南部边境建墙；结束旅行禁令；放松难民政策。同时，川普也表示了虽然疫情仍然严重，但学校需要立刻开放，不要再有任何拖延。
 
-+1
+![]()![](https://gnews.org/wp-content/uploads/2021/02/image-250.png)图源网络
+
+川普还批评了共和党的部分领袖：批评他们没有坚守共和党保守主义理念，反而向强权屈服。川普承诺不会组建新党——他会尽全力协助共和党在2022年重新夺回参众两院，并暗示也许他会再次参选美国总统。
+
+在对待中共国上面，川普继续前一天蓬佩奥前国务卿的发言，再次发出对中共仍然强硬的信号。川普号召让美国再次伟大——未来应由美国而不是中共国主导。共和党人在未来四年必须成为对抗社会主义、共产主义和拜登政府政策的壁垒。
+
+他还详细阐述了有关共和党及其保守主义运动的未来和愿景。共和党未来要成为一个捍卫美国劳动家庭的社会、经济、文化利益和价值的政党，一个捍卫每个种族、每个肤色、每个信仰的政党。共和党必须把普通公民的需求放在第一位。
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
+
+0
