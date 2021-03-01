@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## SARS-CoV-2病毒可通过嗅觉透粘膜入侵中枢神经系统并感染大脑
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/937431/)
+## 路德节目中提到的嗜神经病毒与血脑屏障：E蛋白在乙脑病毒穿越血脑屏障中起关键作用
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/939015/)
 
 作者：Stephen文文
+![]()![](https://gnews.org/wp-content/uploads/2021/02/0301.jpg)
+血脑屏障是脑毛细血管壁与神经胶质细胞形成的血浆与脑细胞之间的屏障，能够阻止某些物质由血液进入脑组织，为病原体抵御入侵中枢系统的天然屏障。但是某些病毒，如HIV、西尼罗病毒、麻疹病毒、乙脑病毒、脊髓灰质炎病毒等却具有突破血脑屏障，入侵中枢神经系统的能力。病毒一旦穿越血脑屏障，其表面蛋白就会与细胞表面蛋白或受体相互作用，通过炎症因子导致神经细胞变性坏死，引起意识障碍等脑炎症状。
 
-约三分之一感染SARS-CoV-2病毒的COVID-19患者会出现嗅觉和味觉丧失、头痛、疲劳、恶心和呕吐，也有报道表明SARS-CoV-2会导致急性脑血管疾病和意识障碍。已经有研究表明大脑和脑脊液（CSF）中存在病毒RNA。来自耶鲁医学院的一项研究表明SARS-CoV-2病毒可明显的感染人脑类器官，并伴随着被感染的和邻近神经元的代谢变化（参考文献1）。在死于COVID-19患者的尸检中，皮质神经元中检测到SARS-CoV-2。结果为SARS-CoV-2的神经侵袭能力提供了证据，也为SARS-CoV-2直接感染神经元带来了意想不到的后果。
+病毒穿越血脑屏障的机制尚未非常明确，有多种假设途径，并处于不断验证之中。乙脑病毒（JEV）的包膜蛋白（E蛋白）是乙脑病毒致病和免疫的关键蛋白。其E蛋白含有三个结构域，其中的结构域III负责识别神经细胞表面受体，结构域II负责介导病毒与神经细胞膜的融合（文献1）。并且E蛋白的244位氨基酸突变为谷氨酸后，可是小鼠产生严重的神经系统症状，对病毒的嗜神经性具有关键作用。
 
-来自德国的研究提供了SARS-CoV-2神经嗜性的证据（路德节目中曾提出的“嗜神经病毒”）。他们的研究表明SARS-CoV-2可以通过嗅觉粘膜中的神经-粘膜界面，利用嗅觉粘膜、内皮和神经组织的近处进入神经系统。随后，SARS-CoV-2病毒穿透了限定的神经解剖区域，包括延髓中的主要呼吸和心血管控制中心（参考文献2）。
+中共南京军区疾病预防控制中心的王长军所发现的舟山蝙蝠病毒ZXC21及ZC45同样具有侵入乳鼠大脑的能力（文献2）。目前还没有研究揭示舟山蝙蝠病毒穿越血脑屏障的机制及其作用。如果其E蛋白在穿越血脑屏障中起到了关键作用，那么就可以合理解释中共军方在使用舟山蝙蝠病毒作为SARS-Cov-2病毒骨架时保留其E蛋白100%氨基酸序列一致性的目的：即保留SARS-Cov-2病毒具备穿越血脑屏障的能力。已有多项研究和解剖学实验证实了SARS-Cov-2病毒确实具有侵入人中枢神经系统的能力。
 
-在对33名死者的解刨研究中发现SARS-CoV-2中病毒RNA的最高水平嗅粘膜在筛状板的正下方。在角膜，结膜和口腔粘膜中发现了较低水平的病毒RNA，突显了口和眼也是SARS-CoV-2进入中枢神经系统的其他潜在途径。
-![]()![](https://gnews.org/wp-content/uploads/2021/02/2804.jpg)
-发现舟山蝙蝠病毒（ZXC21、ZC45）的解放军南京军区疾病预控制中心王长军曾在其论文中也表明舟山蝙蝠病毒（ZXC21、ZC45）可侵染乳鼠的中枢神经系统，通过电子显微镜发现被病毒感染的乳鼠大脑中存在病毒颗粒（参考文献3）。也就是说舟山蝙蝠病毒（ZXC21、ZC45）与SARS-CoV-2一样具有神经嗜性。
+以上关于乙脑病毒E蛋白在病毒穿越血脑屏障中的作用基于已发表的论文。关于SARS-Cov-2、舟山蝙蝠病毒E蛋白是否在病毒穿越血脑屏障中是否也起到了类似作用属于笔者的猜想推理，未经研究证实。
 
-参考文献
-1: Neuroinvasion of SARS-CoV-2 in human and mouse brain, JEM, January 12, 2021
-2: Olfactory transmucosal SARS-CoV-2 invasion as a port of central nervous system entry in individuals with COVID-19, Nat Neurosci., 2021 Feb.
-3: Genomic characterization and infectivity of a novel SARS-like coronavirus in Chinese bats, Emerg Microbes Infect., 2018
+参考文献：
+1. Crystal Structure of the Japanese Encephalitis Virus Envelope Protein, J Virol. 2012 Feb 2. Genomic characterization and infectivity of a novel SARS-like coronavirus in Chinese bats , Emerg Microbes Infect. 2018
 
 【文章仅代表作者个人观点】
 
-审核校对：玫瑰天空
+审核校对：鲁邦五世
 上传排版：糖果儿
 
-+1
+0
