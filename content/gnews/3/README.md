@@ -1,41 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【国际新闻】CPAC川普回归 共和党选民2024民调曝光 觉醒者的时代
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/939647/)
+## 前美国驻联大使称中共比纳粹更危险 敦促拜登抵制北京冬奥
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/939722/)
 
-搜集\编撰：之之
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2291.jpg)
-据2月28日【自由时报】讯：2月28日，前美国总统川普现身「保守派政治行动会议」(Conservative Political Action Conference, CPAC)，发表闭幕演讲，高调重返政治舞台，力证自己在美国政坛的强劲势力。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2292.jpg)
-外媒1份针对2024大选的共和党初选调查民调发现，若今天就是共和党初选，川普的支持率仍高过前副总统彭斯及前国务卿庞皮欧，以53%过半民意，位居共和党选民心中首选。
+台湾宝岛准农场Amitofu
 
-根据《政客》（Politico）针对共和党选民进行的民调显示，2024的党内初选，川普在共和党内仍有无可争议的支持度，本月做出的民调显示，59%的共和党选民希望川普在推进政党前进的过程中发挥重义作用，这个比例相较1月7日高出18个百分点，也比1月25日弹劾审判前多出9个百分点。
+国际奥委会曾在2015年7月宣布，北京获得2022年冬季奥运会的主办权，然而中共对新疆维族人实施集中营再教育，警察公安施暴、刑求维族人，对维族女性强暴、性虐待、电击生殖器、绝育手术，甚至在众人之下轮暴，犯下反人类罪和种族灭绝罪，美国国务院1月19日已认定，加上近日加拿大和荷兰国会相继通过认定中共对新疆构成种族灭绝，包括迫害新疆维吾尔族人、践踏西藏人民、侵犯香港的民主自由与军事威胁武统台湾等。
 
-该份民调显示，81%的共和党选民给予川普正面评价，相较于1月7日的77％、1月25日的74％分别提升4和7个百分点。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2293.jpg)
-此外，針對2024年的共和黨總統初選，53％的共和黨人表示，如果今天舉行初選，他們將支持川普，高於彭斯的12％支持度，其他如盧比歐（Marco Rubio）、柯頓（Tom Cotton）、羅姆尼（Mitt Romney）等參議員支持度均低於5%。
 
-观点：
-与川普回归相比，共和党的民意更应成为聚光点。以往政治舞台都以政客做主角，民意多似包裹政客的装饰品，媒体台面的化妆品。
 
-近些年，媒体、政客声音代表一切声音已是常态，民众也乐意安逸，但随着互联网兴起人们开始发现，在信息爆炸、泛滥的同时，真实的声音几乎无处表达，偶尔一点声响也很快被淹没。言论空间被无形压逼，甚至发生川普在总统竞选期间发被TWITTER、FACEBOOK等噤声。
+> We must boycott the 2022 Winter Olympics in China.
+> 
+> It would be a terrible loss for our athletes, but that must be weighed against the genocide occurring in China and the prospect that empowering China will lead to even greater horrors down the road.[https://t.co/Omu14TKFpa](https://t.co/Omu14TKFpa)
+> — Nikki Haley (@NikkiHaley) [February 28, 2021](https://twitter.com/NikkiHaley/status/1366069389490065408?ref_src=twsrc%5Etfw)
 
-民意可能暂时被压制，但绝不会就此消失，玩弄权术，强奸民意者下场如何人类历史已无数次印证。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2294.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/2295.jpg)
-2021年新年刚过，共和党选民的民调，亚洲缅甸激烈的民族运动，香港市民对47名民主派被荒谬起诉的声援，正是更直接的民意表达。其实各处民意的迸发早有迹可循，回望2020年美国总统选举，中华民国总统选举，2019年香港区议会选举和‘反送中’运动。无不见到坚守正义者的急呼，民众对抗强权的决心。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2296.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/2297.jpg)
-世界局势暗流涌动，各国民众正在取回自己的话语权。即使再政治冷感的人，思想在被不断的冲击中，也将被洗礼，被唤醒。当人们将世界各地一个个事件串起，政治的谎言必被戳穿，迷雾拨开邪恶将无处隐藏。觉醒者的时代已经到来。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2298.jpg)
-以上观点仅代表笔者本人。
 
-审稿：卡西欧 / 上传：天网灰灰
 
-资料来源：
-1、[自由时报](https://news.ltn.com.tw/news/world/breakingnews/3452241)
+前美国驻联合国大使海利在推特发文表示，中共与1936年纳粹德国相比，今天中共的作为更加危险，习近平对2022年北京奥运会进行宣传，如果美国和其他自由民主国家参，将象征这是中共良好国际地位和世界的进一步证明。强调若中共持续侵犯人权、进行种族灭绝，那么中共很快就会变成1940年代的纳粹，呼吁美国总统拜登必须抵制北京冬奥，共和党参议员推动决议案将冬奥委会从北京撤离。2月16日美国前国务卿蓬佩奥也敦促国际奥委会更换主办国，更多的人权团体极力反对，对中共迫害基本人权和自由，国际奥委会一方面传达和平团结的运动家精神，却一方面漠视中共对新疆、西藏、香港、台湾人权侵犯的行为，表示国际奥委会应该将2022年奥运会改在一个尊重公民生命和权利的国家举办。本文仅代表个人立场
 
-2、[联合新闻网](https://udn.com/news/story/6813/5284947)
+审核:Athena雅典娜 發佈:Amitofu
 
-3、[大纪元香港](https://hk.epochtimes.com/news/2021-03-01/87253216)
+[FOXNEWS:Amb. Nikki Haley: Biden should boycott China’s Winter Olympics next year](https://www.foxnews.com/opinion/biden-boycott-china-winter-olympics-2022-nikki-haley)
+
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
 0
