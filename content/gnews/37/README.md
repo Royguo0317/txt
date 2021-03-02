@@ -1,31 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 科顿议员指控好莱坞为了利益力避中共反面形象
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/941532/)
+## 司法观察：新邮件详解WHO/NIH对中国保密 &#8220;条款 &#8220;的迁就
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/941688/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+翻译：Terminator64
 
-编辑上传   水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/H.jpg)hollywoodreporter.com
-布赖特巴特新闻 (Breitbart News)独家报道，参议员汤姆·科顿(Tom Cotton)指控中国共产党(CCP)向好莱坞电影公司提供资金，阻止很多好莱坞电影公司将中共设定为电影中的反面角色。
+![]()![](https://upload.wikimedia.org/wikipedia/commons/thumb/5/50/World_Health_Organisation_headquarters%2C_Geneva%2C_north_and_west_sides.jpg/1280px-World_Health_Organisation_headquarters%2C_Geneva%2C_north_and_west_sides.jpg)[World Health Organisation](https://en.wikipedia.org/wiki/World_Health_Organisation) headquarters, Geneva 
 
-科顿是在美国保守派联盟(ACU)本周末举办的保守派政治行动会议(CPAC)上接受布莱巴特新闻(Breitbart News)独家采访时说这番话的。科顿认为，在冷战时期，好莱坞制片厂经常在电影中把与前苏联结盟的共产党人塑造成反面角色。但在现代，好莱坞电影公司不会在与中共结盟的反派角色上采用类似的选角方式。科顿说，部分原因是因为中共向好莱坞电影公司提供资金支持。
 
-科顿说，“在冷战时期，俄罗斯共产主义者总是坏人。我们本以为中共会给好莱坞提供很好的素材，但你从来没见过。”
+(华盛顿特区) 司法观察组织今天宣布，该组织和每日电讯新闻基金会(DCNF)从美国卫生与公众服务部收到了安东尼-福奇博士和H-克利福德-莱恩博士的301页电子邮件和其他记录，显示美国国立卫生研究院(NIH)官员根据中国的条款量身定制了保密表格，世界卫生组织(WHO)在2020年1月进行了一项未公布的 “严格保密 “的COVID-19（中共病毒）流行病学分析。
 
-近年来，为了取悦北京当局，好莱坞重新塑造了本应属于中国坏人的角色。漫威工作室改变了《钢铁侠3》中的“满大人”角色，让英国演员本·金斯利(Ben Kingsley)出演这个角色，这个角色原本是一个中国反派。这种做法现在在好莱坞变得更加普遍。
+此外，邮件还显示，中国的一位独立记者向美国国立卫生研究院（NIH）的国家过敏和传染病研究所负责临床研究和特殊项目的副所长克利福德-莱恩指出了中国的COVID（中共病毒）数字不一致的问题。
 
-事实上，在《壮志凌云2》中，因为中共的反对，汤姆·克鲁斯不得不把台湾国旗从他的飞行员夹克上取下来。部分原因是中共为好莱坞电影公司提供了大量资金，另外的原因也是因为好莱坞想要进入中共国市场。
+![]()![](https://upload.wikimedia.org/wikipedia/commons/thumb/0/06/Who_logo.svg/800px-Who_logo.svg.png)
 
-超级王牌 (Maverick)的部分资金来自中共的腾讯影业，腾讯影业与Skydance 制片公司有一个合资公司，Skydance是由甲骨文公司的共同创始人和董事长，亿万富翁拉里·埃里森（Larry Ellison）的儿子戴维·埃里森（David Ellison）创建的。腾讯和Skydance还合作了阿诺德•施瓦辛格主演的好莱坞大片《终结者:黑暗命运》。
+这些邮件是针对司法观察代表每日电讯新闻基金会（DCNF）向美国哥伦比亚特区法院提起的信息自由法（FOIA）诉讼美国卫生和公众服务部获得的。（Daily Caller News Foundation v. U.S. Department of Health and Human Services (No. 1:20-cv-01149)）
 
-上个月，科顿公布了一项计划，呼吁联邦政府禁止中共投资美国娱乐业，其中要求电影公司解散在华合资企业。这位参议员的“打败中共”计划概述了他将美国企业与北京分离的更大努力，重点是电信、半导体、医疗领域和其他行业。科顿还抨击中共试图通过孔子学院等运作来影响美国的大学、学院和研究机构。他批评拜登总统推翻了前任川普总统对孔子学院施加严格限制的命令。
+该诉讼是在美国卫生与公众服务部（HHS）没有回应每日电讯新闻基金会（DCNF）于2020年4月1日提出的信息自由法（FOIA）请求后提起的，寻求获得：
 
-科顿认为，从更广泛的角度看，拜登早期在政策和人事方面的决定显示出他对中共的软弱。他说，“我对拜登政府及其提名的一些对中共软弱的官员的一些早期决定和行动感到担忧。”他指出中共是美国在世界上头号竞争对手, 拜登政府应该继续川普总统对中共的强硬措施，重置美国对华外交政策。
+福奇博士和莱恩副主任与世界卫生组织官员之间关于新型冠状病毒的通信。
 
-参考链接：
+福奇博士和莱恩副主任关于世界卫生组织、世界卫生组织官员布鲁斯·艾尔沃德（Bruce Aylward）、世界卫生组织总干事谭德赛-阿达农（Tedros Adhanom）和中国的通信。
 
-[Exclusive — Tom Cotton: Chinese Communist Cash to Hollywood Studios Keeps Movies from Casting Chinese Characters As the Bad Guy (breitbart.com)](https://www.breitbart.com/entertainment/2021/03/01/tom-cotton-chinese-communist-cash-to-hollywood-studios-keeps-movies-from-casting-chinese-characters-as-the-bad-guy/)
+新邮件中包括2020年2月14-15日莱恩和世卫组织技术官员曼苏克-丹尼尔-韩之间关于保密表格的对话。韩写道：”这次的表格是根据中国的条款量身定做的，所以我们不能使用之前的表格。”
+
+2020年2月13日，世卫组织向前往中国的美国国立卫生研究院（NIH）官员发出的一揽子简报，作为对COVID（中共病毒）响应的一部分，要求官员们在与中国达成协议之前，暂时等待分享信息。”重要的是：请将其视为敏感信息，在我们与中国达成协议之前，不用于公开交流。”
+
+在2020年1月20日的一封电子邮件中，世卫组织的一位官员讨论了他们在当月早些时候对COVID-19（中共病毒）进行的流行病学分析，并表示这是 “严格保密的”，”只针对 “感染危害战略和技术咨询小组（STAG-IH），”不应进一步传播”。
+
+在2020年3月4日，中国财新传媒记者记曾佳给莱恩的邮件中，向福奇博士和克利福德-莱恩副主任指出，WHO联合中国考察团报告的病例数与武汉市公共卫生委员会报告的病例数不一致。
+
+世卫报告第6页说，2019年12月2日，武汉至少有一例冠状病毒临床诊断病例；1月11日至17日，武汉每天都有新的临床诊断和确诊病例，这与武汉市公共卫生委员会的数字不一致。
+
+在2020年2月15日的邮件中，世卫组织驻华办事处主任高登-加莱亚通知前往中国的联合考察团成员，他们在中国的所有活动将由中国政府国家卫生委员会安排。
+
+“这些邮件在冠状病毒爆发初期就定下了基调。很明显，世卫组织从一开始就允许中国控制信息流。真正的透明度是至关重要的。”每日电讯新闻基金会主编伊桑-巴顿说。
+
+“这些新的电子邮件显示，世卫组织和福奇的美国国立卫生研究院（NIH）对中共控制COVID-19（中共病毒）信息的努力给予了特殊的便利。”司法观察主席汤姆-菲顿说。
+
+这是司法观察和每日电讯新闻基金会（DCNF）正在对福奇和美国国立卫生研究院（NIH）应对冠状病毒大流行的调查中获得的最新信息。司法观察和每日电讯新闻基金会（DCNF）此前发现的电子邮件显示，世卫组织的一个实体推动了一份经福奇博士批准的新闻稿，”特别”是支持中共国的COVID-19（中共病毒）应对措施。
+
+9月22日，美国地方法院法官达布尼-弗里德里希（Dabney L. Friedrich）命令国家卫生和公众服务部（HHS）开始处理响应性的记录。
+
+在9月21日的一份法庭文件中，国家卫生和公众服务部（HHS）表示，该机构可以从11月30日开始向每日电讯新闻基金会（DCNF）出示300页的响应性记录，这是在收到《每日电讯报》的信息自由法（FOIA）请求8个月之后。响应性记录的总数约为4200份，这将至少推迟到2022年才会全面公布这些记录。美国卫生和公众服务部（HHS）还声称，福奇必须亲自审查他的每一封邮件，然后才能发布。
+
+(以上内容仅代表作者观点，与农场和Gnews无关)
+
+原文链接：
+[https://www.thegatewaypundit.com/2021/03/exclusive-new-evidence-shows-u-s-government-american-scientific-establishment-involved-cover-covid-19s-origin/](https://www.thegatewaypundit.com/2021/03/exclusive-new-evidence-shows-u-s-government-american-scientific-establishment-involved-cover-covid-19s-origin/)
+
+其他工作人员：
+审核和收稿：西联
+编辑和发布：西联
 
 0

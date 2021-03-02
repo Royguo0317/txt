@@ -1,15 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月1日 文贵先生盖特
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/941309/)
+## 中共开始南中国海长达一个月的军事演习
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/941415/)
 
-编辑整理：美东香草山农场（彩虹桥）
+俄罗斯莫斯科喀秋莎农场   银河
 
-郭文贵先生向GTV的1300把椅子投资者的重要公告
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ebdf80d0af23875c4f8c3b0753ae8d71.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/9acaee9da78da38eb2f14d0ef4907062.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/a3bd17df5da804ab54c177ba74309e19.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/01ede55975d974bf770a88bfce7fcf0a.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/babcaf6a2c3ed79beff007ad22a47ab2.png)
-[【2021年3月1日】文贵先生盖特原文](https://gtv.org/getter/603da5a6195851590238978a)
+编辑上传   水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M-5.jpg)forum.lowyat.net
+布赖特巴特新闻 (Breitbart News)3月1日报道，中共解放军(PLA)于周一开始在其非法宣布属于其领土范围内的南中国海举行军事演习。中共此举被视为向美国乔·拜登(Joe Biden)政府传递威胁信息。
 
-喜联盟**Gnews**编辑部
+中共在南中国海的主权主张涉及五个国家:越南、马来西亚、文莱、菲律宾和台湾。菲律宾政府在海牙常设仲裁法庭起诉中共，并在2016年被裁决确认了北京的非法主张。中共公开藐视这一裁决，并进一步推进了在南中国海的军事扩张。
+
+随着台海形势的日益紧张，美国海军宣布两个美国航母战斗群在南中国海进行联合演习后，法国核推进攻击潜艇和军舰在南中国海巡逻，以强调国际航道的航行自由。中共官方媒体《环球时报》(Global Times)周日宣布了为期一个月的海上军事演习，并将其描述为针对华盛顿的信息。在整个3月期间，中共军方将禁止所有非解放军船只进入演习海域。
+
+《环球时报》指出，“此次演习正值美国再次开始频繁地对中共沿海地区以及南海水文环境进行近距离侦察行动之际。”多年来，美国海军一直定期在南中国海进行所谓的“航行自由行动”(FONOPs)，旨在挑战有关领土属于中共的观点。
+
+因“航行自由行动”是公开合法的，《环球时报》没有对此提出异议，而是对美国和法国所谓的“侦察”演习提出异议，指责他们“窃听”解放军，并认为中共应该“加强作战准备”来对抗美国军队。
+
+美国一系列的南海行动旨在援助被中共武力威慑的台湾。作为对中共声明的回应，台湾也宣布周一将在南中国海进行实弹演习。
+
+参考链接：
+
+[https://www.breitbart.com/asia/2021/03/01/chinese-military-hold-month-long-drill-occupied-south-china-sea/](https://www.breitbart.com/asia/2021/03/01/chinese-military-hold-month-long-drill-occupied-south-china-sea/)
 
 0
