@@ -1,81 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 卫星图像证明中共国在南海岛礁建立军事基地
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/942369/)
+## 新证据表明美国政府和科学机构参与掩盖中共病毒起源真相
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/942458/)
 
-*新闻来源：《澳洲新闻》| 作者：Jessica Wang | 发布时间：2021年2月21日*
+【日本东京方舟农场】作者：青衣 素材采编：武汉老温 校对：文小律
 
-*翻译/简评：原乡人 |校对：SilverSpurs7 |审核：万人往 |Page：小雨*
+近日，有最新证据显示，在中共病毒问题上，美国政府及科学家中存在有组织行为，与中共合作掩盖新冠病毒来源真相。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/eecf8574-328b-41cc-a6e2-ff304289613f.jpg?asset_id=e02f8a80-0749-421b-9ae3-a1fc6ba8b99f&amp;img_etag=%221ef2a7e9ce98e6bba221374586d3210f%22&amp;size=2560)](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/eecf8574-328b-41cc-a6e2-ff304289613f.jpg?asset_id=e02f8a80-0749-421b-9ae3-a1fc6ba8b99f&amp;img_etag=%221ef2a7e9ce98e6bba221374586d3210f%22&amp;size=1024)
+在中共病毒爆发后，美国白宫科学技术政策办公室（OSTP）要求美国国家科学院、工程院、医药院三大院的院长，尽快对中共病毒来源进行研判，并做出回应。而三大院长在给白宫的回信中不仅支持病毒来自自然，并且引用的竟是武汉病毒研究所石正丽造假RaTG13病毒的那篇文章！同时三位院长居然还建议美国继续与中国，特别是中国科学院和武汉病毒研究所保持紧密合作！
 
-**简评：**
+美国国家科学、工程和医学三大顶级科研机构为病毒自然来源说背书，而他们决策的依据来自美国一些相关专业领域的科学家意见。从这些科学家的名单中我们不难看出，他们大多都与中共有着长久的合作历史，并且后来在病毒问题上强力支持中共以及有关病毒自然起源的理论。他们中就包括了UNC公共卫生学院的拉尔夫·巴里克（Ralph Baric）、生态健康联盟的皮特·达扎克（Peter Daszak）、约翰·霍普金斯大学彭博公共卫生学院的吉吉·格伦瓦尔（Gigi K. Gronvall）等。
 
-2016年秋天与前总统奥巴马会面时，习近平承诺不会在南中国海的岛礁周围推动军事化发展，可是5年来，南中国海军事化推进愈演愈烈，即使在疫情期间也不停工，还在离菲律宾海岸仅200公里的美济岛偷偷建起了雷达基地。菲律宾强硬表示，一旦有事将予以反击。美国国务卿也表示，不承认海洋法公约的中共国在南中国海的领土诉求，并重申对东南亚国家的支持。
+就让我们来看看这其中几位：
 
-中共企图瞒天过海，暗渡陈仓。殊不知一旦食言失信，中共的一举一动都在全球正义联盟的监视之下。快快收起你的拙劣表演，别在世上给中国人丢脸了，是你退出历史舞台的时候了！
+皮特·达扎克是我们最熟知的一位。就是他不久前带队前往武汉进行所谓病毒溯源调查。他大赞中共抗疫成果，坚决否认病毒出自武汉实验室，同时还否定了病毒非自然起源。他与中共有着长达15年极其密切的合作和利益关系。他也是之前在推特上发文表示要计划石正丽、王林发聚一聚，用白酒和卡拉OK庆祝一下的那位。 2020年3月7日，皮特·达扎克还和斯坦利·珀尔曼（Stanley Perlman）在英国医学杂志《柳叶刀》（The Lancet）上发表文章称：“我们共同强烈谴责阴谋论，这些阴谋论认为COVID-19并非自然起源。”
 
-**原文翻译：**
+拉尔夫·巴里克博士，北卡罗纳大学长期从事冠状病毒研究的学者，与武汉病毒研究所的石正丽关系密切。2015年时巴里克和石正丽在一个团队工作。他们的团队2015年在《自然医学》杂志上发表过一篇讨论蝙蝠冠状病毒可以出现在人类身上的科学报告。此外，早在2019年12月12日，巴里克就签署了一份协议，获得授权对”由美国国家过敏和传染病研究所与莫德纳公司共同开发和拥有的mRNA冠状病毒候选疫苗”进行评测。请注意，那个时候西方世界还几乎没人知道新型冠状病毒。
 
-# **南中国海：卫星图像显示中共国在人工岛上建立了“全面军事基地”
-**
+吉吉·格伦瓦尔（Gigi K Gronvall ）则是亲共阵营约翰·霍普金斯大学团队的成员，曾撰文对闫丽梦博士展示新冠病毒是实验室制造证据的文章进行污蔑。
 
-在南中国海紧张局势不断升温的情况下，最新卫星图像再次令人震惊，中共国正在把争议的人工岛建成“全面军事基地”。
+看明白了吗？就是这些与中共有着千丝万缕关系的人在帮助中共隐瞒病毒真相。正是有这些丧尽天良的科学机构和科学家的背书，才使得石正丽造假的RaTG13误导了世界，也影响了美国政策的制定。正是因为美国政府内部某些部门与美国科学界的部分成员相互进行桌底下的勾兑，同时毫无疑问也得到了一些国际商业资本以及他们所操控的媒体的帮助，他们联手掩盖了中共病毒起源的真相。在保护中共免于被追责的同时，也保护了他们自己的利益。然而，他们却将全世界置于极度危险之中，令全世界人民饱受中共病毒危害之苦。
 
-令人担忧的新卫星图像表明，中国正在把南中国海有争议的人工岛建成“全面军事基地”。
+如今真相正被一点点揭开，当一切真相大白时，这些作恶者不止是被钉在耻辱柱上，更是要面对全人类最严厉的审判。
 
-地理空间软件公司Simularity的一份报告展示了美济礁上疑似雷达、天线支架等等用以建立军事基地的基础设施。
+注：本文仅代表作者观点
 
-此环礁（环形珊瑚礁）距离菲律宾250公里，自1995年以来一直被中华人民共和国占领和控制。
+参考链接：
 
-这些图片展示2020年5月至2021年2月期间7个地点的工程建筑。
+1.[https://www.thegatewaypundit.com/2021/03/exclusive-new-evidence-shows-u-s-government-american-scientific-establishment-involved-cover-covid-19s-](http://1.	https://www.thegatewaypundit.com/2021/03/exclusive-new-evidence-shows-u-s-government-american-scientific-establishment-involved-cover-covid-19s-)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/ba06646b-482b-45b9-8e88-a61415c03a09.jpg?asset_id=ab4a47c8-01ce-47ed-9764-1b8b702488d5&amp;img_etag=%22d8973137fd8e9ec5837aa1d51a758aaa%22&amp;size=2560)](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/ba06646b-482b-45b9-8e88-a61415c03a09.jpg?asset_id=ab4a47c8-01ce-47ed-9764-1b8b702488d5&amp;img_etag=%22d8973137fd8e9ec5837aa1d51a758aaa%22&amp;size=1024)美济礁曾是菲律宾沿海南沙群岛众多低潮高地中的一个。图片：谷歌地图
+2.[https://www.scribd.com/document/496518155/Email-Exchanges-Between-the-National-Academy-of-Science-and-the-Scientists#from\_embed](http://2.	https://www.scribd.com/document/496518155/Email-Exchanges-Between-the-National-Academy-of-Science-and-the-Scientists#from_embed)
 
-2020年5月7日的图片清楚显示了一块空地，而现在却已经被一个16米宽的圆形建筑所占据，Simularity认为其可能用以安装天线。
+3.[https://twitter.com/ScottFishman/status/1366416566217306117](http://3.	https://twitter.com/ScottFishman/status/1366416566217306117)
 
-另一张照片显示了一个混凝土结构，附近有一球形雷达罩——一种用于保护雷达天线防风雨的外罩。Simularity称此装置可能用以固定雷达。其他场地仍在施工中，或被清理待建。
-
-菲律宾大学海洋事务海洋法研究所所长Jay Batongbacal博士说，新的建筑设施表明中共国真是在此“扎根”了。
-
-“他们基本上是在增设监测镜头设备，显然是雷达——在岛礁上已设有很多雷达。”他告诉菲律宾广播公司ANC。
-
-“增设新雷达似乎表明他们确实在扩大这一人工岛礁的功能，不管世界上发生了什么，他们依然我行我素，证明中共国确实打算将这些人工岛礁开发成全面军事基地。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/8edb283c-b31d-4c25-b695-3d751627cfeb.jpg?asset_id=7d53297b-bea3-4971-9e22-27faaa86c188&amp;img_etag=%228106ba46dda709fe491b01db5a7c2896%22&amp;size=3413)](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/8edb283c-b31d-4c25-b695-3d751627cfeb.jpg?asset_id=7d53297b-bea3-4971-9e22-27faaa86c188&amp;img_etag=%228106ba46dda709fe491b01db5a7c2896%22&amp;size=1024)美济礁已不止一次成为该地区地缘政治紧张局势的中心。2020年5月7日，施工现场的照片。图片Simularity
-
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/ec662e9b-edbc-4d7a-96db-109b21e413f5.jpg?asset_id=4435371e-8038-4a1d-a657-d28351946b3c&amp;img_etag=%22508727dc7199fa5a72bb4e56435e7d01%22&amp;size=3410)](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/ec662e9b-edbc-4d7a-96db-109b21e413f5.jpg?asset_id=4435371e-8038-4a1d-a657-d28351946b3c&amp;img_etag=%22508727dc7199fa5a72bb4e56435e7d01%22&amp;size=1024)今年2月4日，同一施工现场，用于安装天线的结构建设完工。图片:Simularity
-
-美济礁已不止一次成为该地区地缘政治紧张局势的中心。
-
-海牙常设仲裁法院2016年的一项裁决裁定，美济礁属于菲律宾专属经济区，两国关系由此以来动荡不安。
-
-2021年1月，北京当局通过了《海警法》，又称“开火”法，赋予他们的海军和海岸警卫队在争议海域采取一切必要措施捍卫主权的权力。
-
-菲律宾外交部长小特奥多罗•洛克辛（Teodoro Locsin Jr）对当地媒体表示，一旦事件发生，菲律宾将给予回击。
-
-他说：“如果有事件发生，我可以向你们保证，我们不会仅停留在抗议层面的。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/fc54a43d-8a24-4f88-a9ef-da0d3373c57a.jpg?asset_id=70c5b216-dc9a-4cae-ab4d-918946517961&amp;img_etag=%22fa8cf616f03e36c7d2880272c77ac4cf%22&amp;size=2560)](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/fc54a43d-8a24-4f88-a9ef-da0d3373c57a.jpg?asset_id=70c5b216-dc9a-4cae-ab4d-918946517961&amp;img_etag=%22fa8cf616f03e36c7d2880272c77ac4cf%22&amp;size=1024)南中国海长期以来一直是各国领土纠纷之地。图片：Ted Aljibe /法新社
-
-美国的角色、美中关系的动荡以及美国对菲律宾及台湾等国的安全承诺在此博弈中也至关重要。如果发生武装攻击，美国作为超级大国已经承诺会保卫菲律宾，制止中共国控制该地区的无理挑衅。
-
-美国国务院发言人内德•普莱斯（Ned Price）重申美国对东南亚国家的支持，他说，新任国务卿安东尼•布林肯 (Antony Blinken)否认“中共国在南中国海的领土声诉”。他说：“美国拒绝接受中共国在南中国海的领土要求，因为这些要求超出了国际法1982年《海洋法公约》所允许的范围。”
-
-“国务卿布林肯强调了共同防御条约对两国安全的重要性，并强调该条约明确适用于在太平洋对菲律宾武装部队、公共船只或飞机的武装攻击，而南中国海是太平洋的一部分。”
-
-[🔗原文链接](https://www.news.com.au/technology/innovation/military/south-china-sea-satellite-images-show-china-building-fullblown-military-bases-on-artificial-islands/news-story/0efce6d99607d3c5be7563b985e1fab3)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
-
-+2
+0
