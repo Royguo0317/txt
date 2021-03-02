@@ -1,81 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 卫星图像证明中共国在南海岛礁建立军事基地
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/942369/)
+## 【香港要闻】美英德澳各国促释放民主派　美国国务卿：政治参与不是罪立即放人
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/942337/)
 
-*新闻来源：《澳洲新闻》| 作者：Jessica Wang | 发布时间：2021年2月21日*
+搜集\编撰：西西
 
-*翻译/简评：原乡人 |校对：SilverSpurs7 |审核：万人往 |Page：小雨*
+**美国、英国、德国、澳洲、加拿大及欧盟纷纷站出来批评港府起诉参与初选的47名民主派人士，并要求立即放人。其中美国国务卿布林肯（Antony Blinken）、国家安全顾问苏利文（Jake Sullivan）及国务院发言人（Ned Price），三人分别在Twitter三度回应港府做法。面对全世界的谴责港府拘留及起诉参与选举的民主派人士，中共一如既往，战狼外交官站在全世界的对立面。**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/324.jpg)资料图片
+以美国为首，谴责并呼吁香港当局释放民主派
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/eecf8574-328b-41cc-a6e2-ff304289613f.jpg?asset_id=e02f8a80-0749-421b-9ae3-a1fc6ba8b99f&amp;img_etag=%221ef2a7e9ce98e6bba221374586d3210f%22&amp;size=2560)](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/eecf8574-328b-41cc-a6e2-ff304289613f.jpg?asset_id=e02f8a80-0749-421b-9ae3-a1fc6ba8b99f&amp;img_etag=%221ef2a7e9ce98e6bba221374586d3210f%22&amp;size=1024)
+1） 布林肯在Twitter谴责港府拘留及起诉参与选举的民主派人士，要求立即释放他们。他强调：「政治参与及言论自由不应是罪。美国会与港人同在。」
+![]()![](https://gnews.org/wp-content/uploads/2021/03/325.jpg)布林肯twitter截图
+2）美国国家安全顾问苏利文 (Jake Sullivan) 今早 (1/3) 发 Twitter 批评，指北京拘押香港民主派人士突显中国背弃向全世界许下香港自治及民主权利的承诺。他强调，会与勇敢的民主派人士站在同一阵线。苏利文又在该帖文附上中国官方网站的中英联合声明全文连结，暗示中国未有遵从声明。
 
-**简评：**
+美国国务院发言人 Ned Price 指，当局做法表明北京如何利用国安法来压制异见人士，呼吁香港当局释放被拘留民主派，并撒销对他们的指控。他补充指，华盛顿会继续呼吁北京停止破坏香港的自治。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/326-1.jpg)蘇利文twitter截圖
+3） 英国外相蓝韬文（Dominic Rabb）周日晚回应说，起诉47人做法令人困扰，反映国安法用来铲除异己而非中方承诺恢复秩序。自香港反送中抗争以来，蓝韬文多次就香港议题表态。 22 日他亦曾于联合国人权理事会高级别会议上，就香港及新疆人权问题发言。蓝韬文在会上形容香港人的权利及自由，被「有系统地侵犯（Systematically Violated）」，而由中国对港实施的《港区国安法》更遏制港人的自由，要求香港当局举行自由、公正的立法会选举。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/327.jpg)藍韜文Twitter截圖
+4）德国外交部于 Twitter 发文指周一的大规模审讯进一步危害了香港的多元性。被捕者必须被释放，他们的权利亦必须得到尊重，延期的议会选举必须尽快以公平和民主的方式举行。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/328.jpg)
+5） 澳洲外交部长佩恩 (Marise Payne) 也在 Twitter 指，澳洲政府关注事件，并敦促有关当局尊重香港《基本法》和国际法所保障的人权和自由。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/329.jpg)
+6）纽西兰外长Nanaia Mahuta以毛里求斯语说「留意」（Kia Hiwa Ra），关注香港起诉47名民主派人士，形容国安法运用再度升级，纽西兰将密切监察情况。
 
-2016年秋天与前总统奥巴马会面时，习近平承诺不会在南中国海的岛礁周围推动军事化发展，可是5年来，南中国海军事化推进愈演愈烈，即使在疫情期间也不停工，还在离菲律宾海岸仅200公里的美济岛偷偷建起了雷达基地。菲律宾强硬表示，一旦有事将予以反击。美国国务卿也表示，不承认海洋法公约的中共国在南中国海的领土诉求，并重申对东南亚国家的支持。
+7）欧盟驻港澳办事处在Facebook表示非常关注47名民主派人士被起诉，认为事件清楚显示政治多元不容于香港，促请港府及北京当局遵守在《基本法》及《公民权利和政治权利国际公约》下基本言论及法治承诺，并应立即放人。
 
-中共企图瞒天过海，暗渡陈仓。殊不知一旦食言失信，中共的一举一动都在全球正义联盟的监视之下。快快收起你的拙劣表演，别在世上给中国人丢脸了，是你退出历史舞台的时候了！
+**汪文斌战狼外交辞令**
 
-**原文翻译：**
+中共外交部下午举行例行记者会，针对布林肯谴责并吁港府立即放人，外交部发言人汪文斌在记者会上反问：「美方会允许其他国家对美国国内的正常执法说三道四吗？」
 
-# **南中国海：卫星图像显示中共国在人工岛上建立了“全面军事基地”
-**
+汪文斌指出，中共是法治国家，香港是法治社会，任何人都不能凌驾于法律之上，香港警员依法拘捕并起诉涉嫌违反港区国安法「颠覆国家政权罪」的犯罪嫌疑人员，是正当的执法行动。
 
-在南中国海紧张局势不断升温的情况下，最新卫星图像再次令人震惊，中共国正在把争议的人工岛建成“全面军事基地”。
+他强调，中方坚定支持香港警方依法履职，维护国家安全和香港安全稳定，也敦促美方尊重事实、尊重法治，停止以任何方式干预香港事务，停止干涉中国内政。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3291.jpg)汪文斌
+点评：
+作为极权国家，中共最畏惧的是人民战出来挑战自己的权的合法性。 47名香港民主派人士被以国安法颠覆国家政权罪名起诉，这证明了中共根本不在乎自由及人权，只关心权力 延续。
 
-令人担忧的新卫星图像表明，中国正在把南中国海有争议的人工岛建成“全面军事基地”。
+在CCP 病毒的真相下，以及前美国国务卿彭培奥定位中共为反人类罪，中共再也回不到从前，这时候汪文斌依然走战狼外交路线只会进一步激化中共与国际的关系，认清汪文斌口里「中共是法治国家，香港是法治社会」的假面具。
 
-地理空间软件公司Simularity的一份报告展示了美济礁上疑似雷达、天线支架等等用以建立军事基地的基础设施。
-
-此环礁（环形珊瑚礁）距离菲律宾250公里，自1995年以来一直被中华人民共和国占领和控制。
-
-这些图片展示2020年5月至2021年2月期间7个地点的工程建筑。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/ba06646b-482b-45b9-8e88-a61415c03a09.jpg?asset_id=ab4a47c8-01ce-47ed-9764-1b8b702488d5&amp;img_etag=%22d8973137fd8e9ec5837aa1d51a758aaa%22&amp;size=2560)](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/ba06646b-482b-45b9-8e88-a61415c03a09.jpg?asset_id=ab4a47c8-01ce-47ed-9764-1b8b702488d5&amp;img_etag=%22d8973137fd8e9ec5837aa1d51a758aaa%22&amp;size=1024)美济礁曾是菲律宾沿海南沙群岛众多低潮高地中的一个。图片：谷歌地图
-
-2020年5月7日的图片清楚显示了一块空地，而现在却已经被一个16米宽的圆形建筑所占据，Simularity认为其可能用以安装天线。
-
-另一张照片显示了一个混凝土结构，附近有一球形雷达罩——一种用于保护雷达天线防风雨的外罩。Simularity称此装置可能用以固定雷达。其他场地仍在施工中，或被清理待建。
-
-菲律宾大学海洋事务海洋法研究所所长Jay Batongbacal博士说，新的建筑设施表明中共国真是在此“扎根”了。
-
-“他们基本上是在增设监测镜头设备，显然是雷达——在岛礁上已设有很多雷达。”他告诉菲律宾广播公司ANC。
-
-“增设新雷达似乎表明他们确实在扩大这一人工岛礁的功能，不管世界上发生了什么，他们依然我行我素，证明中共国确实打算将这些人工岛礁开发成全面军事基地。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/8edb283c-b31d-4c25-b695-3d751627cfeb.jpg?asset_id=7d53297b-bea3-4971-9e22-27faaa86c188&amp;img_etag=%228106ba46dda709fe491b01db5a7c2896%22&amp;size=3413)](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/8edb283c-b31d-4c25-b695-3d751627cfeb.jpg?asset_id=7d53297b-bea3-4971-9e22-27faaa86c188&amp;img_etag=%228106ba46dda709fe491b01db5a7c2896%22&amp;size=1024)美济礁已不止一次成为该地区地缘政治紧张局势的中心。2020年5月7日，施工现场的照片。图片Simularity
+此外，反共已成为潮流，成为各国政治家为自己赚取政治的不二法宝。正如爆料革命【路德节目】所说，美国国务卿布林肯（Antony Blinken）第一时间主动跳出来为香港说话，并要求当局立即释放47人，布林肯的这种表态，可见香港的民主自由问题是他以及各国政客的政治资本的大肥肉，只要站在灭共的最前线，才能为自己的政治利益加砖头。
 
 
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/ec662e9b-edbc-4d7a-96db-109b21e413f5.jpg?asset_id=4435371e-8038-4a1d-a657-d28351946b3c&amp;img_etag=%22508727dc7199fa5a72bb4e56435e7d01%22&amp;size=3410)](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/ec662e9b-edbc-4d7a-96db-109b21e413f5.jpg?asset_id=4435371e-8038-4a1d-a657-d28351946b3c&amp;img_etag=%22508727dc7199fa5a72bb4e56435e7d01%22&amp;size=1024)今年2月4日，同一施工现场，用于安装天线的结构建设完工。图片:Simularity
+以上观点仅代表笔者本人
 
-美济礁已不止一次成为该地区地缘政治紧张局势的中心。
+审稿：卡西欧 / 上传：天网灰灰
 
-海牙常设仲裁法院2016年的一项裁决裁定，美济礁属于菲律宾专属经济区，两国关系由此以来动荡不安。
+资料来源：
 
-2021年1月，北京当局通过了《海警法》，又称“开火”法，赋予他们的海军和海岸警卫队在争议海域采取一切必要措施捍卫主权的权力。
+1、[众新闻](https://www.hkcnews.com/article/38652/%E5%88%9D%E9%81%B8%E5%A4%A7%E8%B5%B7%E8%A8%B4-38657/%E7%BE%8E%E8%8B%B1%E6%AD%90%E7%9B%9F%E4%BF%83%E9%87%8B%E6%94%BE%E6%B0%91%E4%B8%BB%E6%B4%BE-%E5%B8%83%E6%9E%97%E8%82%AF%EF%BC%9A%E6%94%BF%E6%B2%BB%E5%8F%83%E8%88%87%E4%B8%8D%E6%98%AF%E7%BD%AA-%E5%A4%9A%E5%9C%8B%E9%A0%98%E4%BA%8B%E9%A4%A8%E6%B4%BE%E5%93%A1%E6%97%81%E8%81%BD)
 
-菲律宾外交部长小特奥多罗•洛克辛（Teodoro Locsin Jr）对当地媒体表示，一旦事件发生，菲律宾将给予回击。
+2、[立场新闻](https://www.thestandnews.com/politics/47-%E4%BA%BA%E8%A2%AB%E6%8E%A7%E9%A1%9B%E8%A6%86-%E5%BE%B7%E5%9C%8B%E4%BF%83%E6%94%BE%E4%BA%BA-%E6%BE%B3%E6%B4%B2%E6%95%A6%E4%BF%83%E5%B0%8A%E9%87%8D%E4%BA%BA%E6%AC%8A%E8%87%AA%E7%94%B1-%E7%BE%8E%E5%9C%8B%E5%8B%99%E9%99%A2-%E5%8C%97%E4%BA%AC%E6%87%89%E5%81%9C%E6%AD%A2%E7%A0%B4%E5%A3%9E%E9%A6%99%E6%B8%AF%E8%87%AA%E6%B2%BB/)
 
-他说：“如果有事件发生，我可以向你们保证，我们不会仅停留在抗议层面的。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/fc54a43d-8a24-4f88-a9ef-da0d3373c57a.jpg?asset_id=70c5b216-dc9a-4cae-ab4d-918946517961&amp;img_etag=%22fa8cf616f03e36c7d2880272c77ac4cf%22&amp;size=2560)](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/fc54a43d-8a24-4f88-a9ef-da0d3373c57a.jpg?asset_id=70c5b216-dc9a-4cae-ab4d-918946517961&amp;img_etag=%22fa8cf616f03e36c7d2880272c77ac4cf%22&amp;size=1024)南中国海长期以来一直是各国领土纠纷之地。图片：Ted Aljibe /法新社
-
-美国的角色、美中关系的动荡以及美国对菲律宾及台湾等国的安全承诺在此博弈中也至关重要。如果发生武装攻击，美国作为超级大国已经承诺会保卫菲律宾，制止中共国控制该地区的无理挑衅。
-
-美国国务院发言人内德•普莱斯（Ned Price）重申美国对东南亚国家的支持，他说，新任国务卿安东尼•布林肯 (Antony Blinken)否认“中共国在南中国海的领土声诉”。他说：“美国拒绝接受中共国在南中国海的领土要求，因为这些要求超出了国际法1982年《海洋法公约》所允许的范围。”
-
-“国务卿布林肯强调了共同防御条约对两国安全的重要性，并强调该条约明确适用于在太平洋对菲律宾武装部队、公共船只或飞机的武装攻击，而南中国海是太平洋的一部分。”
-
-[🔗原文链接](https://www.news.com.au/technology/innovation/military/south-china-sea-satellite-images-show-china-building-fullblown-military-bases-on-artificial-islands/news-story/0efce6d99607d3c5be7563b985e1fab3)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
-
-+2
++1

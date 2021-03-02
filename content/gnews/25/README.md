@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西班牙中共病毒疫情简报
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/942732/)
+## 推特给中共病毒疫苗 &#8220;误导信息 &#8220;打标签
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/942750/)
 
 - 编辑：Victor Torres
 - 翻译 作者：gokuabuela
@@ -13,9 +13,9 @@
 
 **西班牙2021年3月2日电/西喜社——**
 
-据ABC新闻3月2日报道，西班牙从周五至今，新增15978例中共病毒感染，其中最近24小时，新增1159例，对比周五当日的新增病例3052例，有显著下降。
+据ABC新闻3月2日报道，社交网络媒体推特宣布，它将开始标记可能包含CCP病毒疫苗的 “误导性信息 “的推文。
 
-总计感染人数： 3,204,531;14天内百万人感染率：175.63 ;对比上周五，这个数字是193.91;新增死亡人数：467;总计死亡人数：69609。
+此前，推特在2020年12月决定对此类内容采取行动，包括将其从平台上删除。现在它表示，从今年3月1日起 “开始对可能包含CCP病毒疫苗误导性信息的推文，打上特殊的标签，此外还将持续努力从服务中删除最有害的误导性信息”。
 
 新闻来源：[ABC](https://www.abc.es/sociedad/abci-coronavirus-espana-directo-casos-covid-aumentan-primera-siete-semanas-202103020527_directo.html)
 ![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)

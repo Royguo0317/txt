@@ -1,28 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 克鲁兹: 我们必须采取措施反制中国共产党
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/942782/)
+## 疫苗外交看“灭白计划”的开展
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/942790/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+#### 翻译：米缐 | 简评：理工男文峰 | 责编：沙拉猫
+![]()![](https://gnews.org/wp-content/uploads/2021/03/capture-4.jpg)图片来源：RFA.ORG
+据路透社（北京）3月1日报道，中共国流行病学家公开表示，如果美国能够完成对90％的人口接种疫苗，将有望在8月实现对COVID-19的群体免疫，也将意味着，美中两国有望消除其政治障碍，仅基于科学，成为最早取消现有旅游禁令的两个国家。
 
+报道称，美国是这次疫情打击最严重的国家，尽管新增病例呈减少趋势，但迄今已有近3000万人感染。截止上周日，已经有15％的美国人口已接受至少一剂疫苗。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+路透社认为，中共国的疫情已经得到控制，近几个月新增感染病例较少。自一月下旬以来，中国大陆没有收到新的社区感染报告。中共国疾病预防控制中心首席流行病学家吴尊友（Wu Zunyou）在清华大学和美国智库布鲁金斯学会组织的在线论坛上宣称，从疫情控制上看，中共国是世界上最安全的国家。截至2月中，中共政府已给4,050万人口进行疫苗接种，占14亿总人口的3%。
 
-**西班牙2021年3月2日电/西喜社——**泰德·克鲁兹参议员周二发推称，中共国是美国下个世纪最大的地缘政治威胁。
+**简评：**
 
-所以我们必须采取措施反制中国共产党。
+一手造病毒，一手造疫苗，这是中共“灭白计划”构成之一。天使闫博士去年就说过，能够制造出有效疫苗的前提是拿到原始的毒株，并掌握病毒的变异情况。中共是不会交出原始毒株的，因为那等于承认了自己制造了病毒。中共所有关于中共国疫情的报道都是假的，为了满足政治需要而进行的。
 
+同时，即使美国完成90%的人口接种所谓的疫苗，也不会产生群体免疫，因为这个病毒是生化武器，中共可以随时投放新毒株。这个节点上，中共的流行病学家站出来发表此番言论，不过是继续用撒谎来满足其政治的需要而已，为的是阻止美中两国脱钩，要的是两国修复关系,进一步控制美国。
 
+中共如此渴望尽快恢复与美国由于疫情和大选造假而恶化的关系，恰恰证明中共国内经济的崩塌，以及中共试图化解危机的司马之心。然而只要有爆料革命在，中共的企图不会得逞。全球以毒灭共、联合灭共的态势在数百万个生命悄无声息死于病毒之后，已经无法逆转。
 
-> China is the greatest geopolitical threat to the United States for the next century.
-> 
-> That’s why we must take steps to counter the Chinese Communist Party. [pic.twitter.com/qqdQRw4nOa](https://t.co/qqdQRw4nOa)
-> — Senator Ted Cruz (@SenTedCruz) [March 2, 2021](https://twitter.com/SenTedCruz/status/1366815627218980867?ref_src=twsrc%5Etfw)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
+[原文链接](https://www.reuters.com/article/us-health-coronavirus-china-usa-idUSKCN2AU04W)
 
 0

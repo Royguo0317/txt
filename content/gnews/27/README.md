@@ -1,41 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国加拿大支持台湾“自由菠萝”运动
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/942716/)
+## 西班牙中共病毒疫情简报
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/942732/)
 
-俄罗斯莫斯科喀秋莎农场    银河
+- 编辑：Victor Torres
+- 翻译 作者：gokuabuela
+- 发稿：神奇四侠
 
-编辑上传   水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/T-5.jpg)newsweek.com
-路透社3月2日报道，美国和加拿大驻台湾大使馆称赞了台湾菠萝的质量，并展示了两国驻台北高级外交官拿着菠萝的照片。在中共单方面暂停台湾菠萝的进口后，美国和加拿大此举公开表示了对台湾的支持。
 
-中共海关总署2月26日发布暂停进口台湾菠萝的通知，称台湾菠萝中截获检疫性有害生物将从2021年3月1日起暂停台湾地区菠萝进口。台湾总统蔡英文也在脸书上发文谴责中共，指出这不是正常贸易的考量。她写道：“ 我们必须严正澄清，2020年以来台湾凤梨出口到对岸的合格率高达99.79%，所有农产品的出口，也一概会遵守国际规范，并配合输入国家的要求。这次中共海关总署在没有预警的情况下做出决定，对正常的贸易往来，一点帮助都没有。” 她同时承诺政府当局会协助农民拓展商机，呼吁全民“吃凤梨，挺农民”支持菠萝产业。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-美国、加拿大和大多数国家一样，都没有与这个中共宣称拥有主权的台湾岛屿建立正式外交关系，但两国都在人权、贸易和其他问题上与北京存在争议。在台北的加拿大贸易办公室(Canadian Trade Office)脸书上引用了台湾外交部长吴宇森(Joseph Wu)的推文，呼吁世界各地的人们“团结在#自由菠萝运动（Freedom Pineapple）”，并在其负责人乔丹·里维斯(Jordan Reeves)和同事们围在菠萝披萨旁的照片上使用了相同的标签。
+**西班牙2021年3月2日电/西喜社——**
 
-美国在台协会(American Institute in Taiwan)to同样在脸书的#菠萝团结(#pineapplesolidarity)的标签下发布了他们台北办事处放着菠萝的照片，写道：
+据ABC新闻3月2日报道，西班牙从周五至今，新增15978例中共病毒感染，其中最近24小时，新增1159例，对比周五当日的新增病例3052例，有显著下降。
 
-“你买菠萝了吗? 我们有!”
+总计感染人数： 3,204,531;14天内百万人感染率：175.63 ;对比上周五，这个数字是193.91;新增死亡人数：467;总计死亡人数：69609。
 
-与此同时，当地政界人士在社交媒体上发布了类似照片，鼓励国内和其他国家的消费者支持台湾“自由菠萝”运动。
-
-中共一直未曾放弃统一台湾，更舆论威胁不排除会武力统一。近期中共军机多次入侵台湾防空识别区释放强硬的信号。国台办发言人朱凤莲指出，“国家统一是大势所趋，必然实现。我们将坚决遏制台独分裂活动，推进两岸关系和平发展和国家统一”。中共国防部更警告台湾，威胁其坚持台湾独立将导致战争。
-
-中共意图推行《国家统一法》，以寻求法律支持侵占台湾。美国国务院发言人呼吁北京“停止对台湾的军事、外交和经济压力”，并补充说，它应该“与台湾民选代表进行有意义的对话”。美国务卿安东尼·布林肯(Antony Blinken)称美国将坚持支持对台军售，确保台湾有能力保卫自己不受侵略的承诺。
-
-台湾执政的民进党表示，中共对台湾不仅武力恐吓，还企图经济打压，用政治手段控制台湾经济命脉。台湾应该开拓市场，提高内需和扩大外销，警惕和摆脱对中共经济的依赖。据台湾农委会统计，中共市场占台湾菠萝出口总量的90%以上。
-
-援引自BBC报道，台湾政论节目评论员周玉蔻表示，此次菠萝封锁，再次体现了中共惯用的经济控制手段——“养、套、杀”策略，即先用经济利益吸引对中共市场的依赖，再利用政治手段介入扰乱市场以实现经济控制的目的。
-
-为了应对这项冲击，台湾当局启动10亿新台币救助菠萝行业，以保证菠萝的产地价格维持在过去两年的平均水平；同时全力开拓新的国际市场，推动内销，倡议“自由菠萝”运动，动员全民采购菠萝。
-
-参考链接：
-
-[https://cn.reuters.com/article/us-taiwan-china-pineapple/u-s-canada-hail-taiwans-freedom-pineapples-after-chinese-ban-idUSKCN2AU1DD](https://cn.reuters.com/article/us-taiwan-china-pineapple/u-s-canada-hail-taiwans-freedom-pineapples-after-chinese-ban-idUSKCN2AU1DD)
-
-[https://www.taipeitimes.com/News/front/archives/2021/02/27/2003752913](https://www.taipeitimes.com/News/front/archives/2021/02/27/2003752913)
-
-[https://www.bbc.com/zhongwen/simp/chinese-news-56233196](https://www.bbc.com/zhongwen/simp/chinese-news-56233196)
-
+新闻来源：[ABC](https://www.abc.es/sociedad/abci-coronavirus-espana-directo-casos-covid-aumentan-primera-siete-semanas-202103020527_directo.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
 0

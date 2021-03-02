@@ -1,27 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法國前右翼總統獲刑
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/942991/)
+## 欧盟缺乏“必要”资源抵抗中共虚假信息战
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/943038/)
 
-```
-記者：Ambre Lepoivre (法新社)— BFM TV
-發表時間：2021.03.02
-```
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传   水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/E.jpg)pravdareport.com
+《政客》3月1日报道，欧盟外交事务负责人约瑟普·博雷尔（Josep Borrel）说，欧盟外交部门没有资源可以有效地反击来自中共的“混合攻击”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Lancien-president-Nicolas-Sarkozy-arrives-au-tribunal-de-Paris-le-1er-mars-2021-978368.jpg)法國前總統尼古拉-薩科齊（Nicolas Sarkozy）2021年3月1日在巴黎。 （法新社圖）
+博雷尔表示，过去一年，欧盟一直受到一些国家的压力，这些国家为了推进政治利益而扭曲事实和传播虚假信息。欧盟因此加大了打击莫斯科虚假信息行动的力度，但是“我们几乎没有资源分析来自中共的虚假信息。”
 
-法國第23屆總統尼古拉·薩科齊 (Nicolas SARKOZY) 於昨天3月1日在巴黎刑事法庭被判3年徒刑，其中實刑1年。雖然此判決依然有申訴機會，但徹底排除了薩科齊代表右派參加2022年法國總統大選的可能。
+博雷尔补充说，欧洲经济区缺乏“必要的”资源来对抗中共利用虚假信息战影响欧洲政治的活动。他说，在中共病毒疫情期间，中共的“混合攻击”“一直针对我们的民主价值观、我们的信息空间，甚至我们的关键基础设施”，他称全球卫生危机是中共“新混合策略的真正试验场”。
 
-薩科齊被指控三項罪名：“競選中使用非法資金”，“被動貪汙與罪犯勾結”及“受賄罪”。
+欧盟外交部的虚假信息部门有一个专门研究俄罗斯虚假信息行动的东方战略通信(East Stratcom)部门，其官员负责监控来自世界各地的攻击行动，但因人手和资源不足，无法应对日益增多的混合型攻击。
 
-薩科齊是法國第二位被判刑的前總統，此前在2011年，第22屆法國總統雅克·勒內·希拉克 (Jacques René CHIRAC) 因巴黎市虛職案被判兩年徒刑，緩行兩年。薩科齊是至法國第五共和國以來第壹位被判實刑的前總統。
+博雷利说欧洲一直努力避免来自俄罗斯对欧洲造谣活动的影响，但很明显的缺点是“我们没有生产能力用大量信息展示我们的观点。”
 
-#### [🔗新聞原文鏈接](https://www.bfmtv.com/police-justice/proces/condamne-pour-corruption-nicolas-sarkozy-n-en-a-pas-encore-fini-avec-la-justice_AD-202103020018.html)
+《门道专家》（The Gateway Pundit ）1月份发布的犯罪与安全组织(Crime and Security)报告曾指出在2020年美国总统大选前后，数百个与中共政权有关联的推特账户传播虚假信息干预大选制造争端。美国前总统川普及其7500万支持者更被剥夺言论自由，被大型社交媒体平台直接“噤声”。而对中共病毒源自中共实验室、是人工制造的生物武器的真相，中共通过大量收买、渗透媒体和学术界来混淆视听，阻止真实声音的传播。
 
-* * *
+中共对媒体界、学术界和大型社交平台不断渗透和控制。如何应对虚假信息的攻击，保护言论自由、传播真相，让虚假信息和媒体平台不成为独裁国家实现其政治目的的手段已经成为西方国家重点关注的议题。在各国媒体平台被打压控制的时候，新中国联邦秉持唯真不破打造的GTV和GNEWS成为传播真相的唯一战场，将势不可挡地成为灭共的利剑。
 
-**翻譯整理：**旦旦** 校對/發稿人: **Ting Guo
+参考链接：
 
-+2
+[https://www.politico.eu/article/josep-borrell-eu-doesnt-have-resources-fight-disinfo-china/](https://www.politico.eu/article/josep-borrell-eu-doesnt-have-resources-fight-disinfo-china/)
+
+0
