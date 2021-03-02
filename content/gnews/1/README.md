@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 克鲁兹: 我们必须采取措施反制中国共产党
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/942782/)
+## 美海军陆战队将中共国威胁提升至首位
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/942873/)
 
 - 编辑：Victor Torres
+- 翻译：小木头
 - 发稿：Ranting
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年3月2日电/西喜社——**泰德·克鲁兹参议员周二发推称，中共国是美国下个世纪最大的地缘政治威胁。
+**西班牙2021年3月2日电/西喜社——**据《突破防务》（Breaking Defense）3月2日报道，海军陆战队指挥官首次将俄罗斯与伊朗、朝鲜和极端组织并列，成为 “持续构成威胁”的地区，同时将中共国问题升级到美国决策者面临的威胁中无可争议的首位。
 
-所以我们必须采取措施反制中国共产党。
+博杰在《突破防务》的备忘录中写道：“中共国仍将是未来十年中的‘步调威胁’”。他之前也曾提出过这一观点，包括将俄罗斯列为中国之后的第二威胁。
 
+上个月刚刚与空军参谋长CQ布朗将军联合发表的一篇专栏文章中写道：”为了与中华人民共和国和俄罗斯竞争，并成功地应对其他新出现的挑战，美国军队需要一个新的框架来评估准备状态。这个框架应该较少地关注近期的可用性，而更多地关注未来的能力和对同行对手的作战优势。”
 
+虽然俄罗斯是强大的，但似乎博杰不再将莫斯科视为在太平洋地区的部队行动时必须应对的主要对手。他补充说：”我们将同时面对中共国和其他采用复杂多领域战略的竞争对手。”在太平洋地区，他特别补充道，他在该地区的27000名海军陆战队员 “需要进行重大的现代化和重新设计”。
 
-> China is the greatest geopolitical threat to the United States for the next century.
-> 
-> That’s why we must take steps to counter the Chinese Communist Party. [pic.twitter.com/qqdQRw4nOa](https://t.co/qqdQRw4nOa)
-> — Senator Ted Cruz (@SenTedCruz) [March 2, 2021](https://twitter.com/SenTedCruz/status/1366815627218980867?ref_src=twsrc%5Etfw)
-
-
+**新闻来源：[突破防务](https://breakingdefense.com/2021/03/marines-downgrade-russia-threat-to-focus-on-china/amp/?__twitter_impression=true)**
 
 ![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
 

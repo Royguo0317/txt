@@ -1,30 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在第三波疫情期间，西班牙非充分就业人数超400万
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/942756/)
+## 克鲁兹: 我们必须采取措施反制中国共产党
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/942782/)
 
 - 编辑：Victor Torres
-- 翻译 作者：gokuabuela
-- 发稿：神奇四侠
+- 发稿：Ranting
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年3月2日电/西喜社——**
+**西班牙2021年3月2日电/西喜社——**泰德·克鲁兹参议员周二发推称，中共国是美国下个世纪最大的地缘政治威胁。
 
-据新闻报3月2日报道，相比疫情爆发前，西班牙劳动力市场新增了400,118非充分就业人员和762,742失业人员。
+所以我们必须采取措施反制中国共产党。
 
-2月新增就业2万人，创下2013年以来最悲观的纪录—哪怕当时金融危机正处于最后的阵痛期。
 
-按照通常的剧本：1月是个不好的月份，大量的临时性就业被破坏，2月出现反弹，可以挽回一部分损失的就业；而今年在1月份流失了21.8万多人之后，今年2月份的反弹幅度非常有限，新就业只有20631人。而二月的状况，会招致对未来几个月的悲观情绪：按季节性调整后，即减去季节性偏差，西班牙预计会减少30211个工作岗位。
 
-总计有550万非充分就业人员，其中包括失业、政府的工作保障计划（ERTES）和停止活动的自营职业者。
+> China is the greatest geopolitical threat to the United States for the next century.
+> 
+> That’s why we must take steps to counter the Chinese Communist Party. [pic.twitter.com/qqdQRw4nOa](https://t.co/qqdQRw4nOa)
+> — Senator Ted Cruz (@SenTedCruz) [March 2, 2021](https://twitter.com/SenTedCruz/status/1366815627218980867?ref_src=twsrc%5Etfw)
 
-就业的复苏正在失去动力，并面临着公共卫生方面的制约，而这些制约主要集中在服务业。
 
-2月份的统计数据揭示了西班牙劳动力市场自被CCP病毒感染以来所遭受的萎缩，另一个事实是雇佣量的崩溃。西班牙就业的特点之一是会有一些临时合同，根据国家统计局的季度审查，通常会有近四分之一的西班牙劳动者签订的是临时合同。2月，共签订120万份合同，比去年同期减少29%。其中只有132,431人签订的是固定合同，临时合同的比率大大增加。
 
-新闻来源:[新闻报](https://www.elperiodico.com/es/economia/20210302/espana-supera-4-millones-parados-11552655)
 ![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
+
 0
