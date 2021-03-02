@@ -1,28 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 克鲁兹: 我们必须采取措施反制中国共产党
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/942782/)
+## 美将向乌克兰提供1.25亿美元新军事援助计划
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/942803/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
+编辑上传 水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/U-2.jpg)unian.info
+3月1日，五角大楼发言人约翰∙柯比在推特上播放的简报中表示，美国计划向乌克兰提供1.25亿美元的新军事援助计划。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+五角大楼发言人说，“今天，（美国国防部）在对乌克兰的安全援助倡议下宣布了一项新的1.25亿美元的方案。”
 
-**西班牙2021年3月2日电/西喜社——**泰德·克鲁兹参议员周二发推称，中共国是美国下个世纪最大的地缘政治威胁。
+新的一揽子计划旨在帮助乌克兰“维护其领土完整以及边境安全”，所拨资金还将用于提高“与北约的互操作性”。
 
-所以我们必须采取措施反制中国共产党。
+此前，五角大楼长官劳埃德∙奥斯汀（Lloyd Austin）在与乌克兰国防部长安德里∙塔兰（Andrei Taran）的电话交谈中表示，美国有意加强乌克兰武装力量的实力，以“更好地抵御俄罗斯的侵略”。他此前曾主张向乌克兰提供“用于自卫”的武器。
 
+2020年7月，美国参议院外交委员会成员提出一项法案，规定每年拨款3亿美元用于对乌克兰的军事援助。此外，美国参议院还批准了2021财年(从10月1日开始)的国防预算草案，其中包括向乌克兰提供2.5亿美元的军事援助。
 
+参考链接：
 
-> China is the greatest geopolitical threat to the United States for the next century.
-> 
-> That’s why we must take steps to counter the Chinese Communist Party. [pic.twitter.com/qqdQRw4nOa](https://t.co/qqdQRw4nOa)
-> — Senator Ted Cruz (@SenTedCruz) [March 2, 2021](https://twitter.com/SenTedCruz/status/1366815627218980867?ref_src=twsrc%5Etfw)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
+[https://www.rbc.ru/rbcfreenews/603d2df59a794707450d86a0](https://www.rbc.ru/rbcfreenews/603d2df59a794707450d86a0)
 
 0
