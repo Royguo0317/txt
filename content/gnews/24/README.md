@@ -1,73 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 卫星图像证明中共国在南海岛礁建立军事基地
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/942369/)
+## 惠灵顿中国文化中心上演没有维族人的新疆舞庆祝新年
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/942415/)
 
-*新闻来源：《澳洲新闻》| 作者：Jessica Wang | 发布时间：2021年2月21日*
+*新闻来源：BREITBART《布赖特巴特》| 作者：GABRIELLE REYES 加布里埃尔•雷耶斯 | 发布时间：2021年2月27日*
 
-*翻译/简评：原乡人 |校对：SilverSpurs7 |审核：万人往 |Page：小雨*
+*翻译/简评：叶知秋（文义）|校对：SilverSpurs7|审核：万人往|Page：小雨*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/eecf8574-328b-41cc-a6e2-ff304289613f.jpg?asset_id=e02f8a80-0749-421b-9ae3-a1fc6ba8b99f&amp;img_etag=%221ef2a7e9ce98e6bba221374586d3210f%22&amp;size=2560)](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/eecf8574-328b-41cc-a6e2-ff304289613f.jpg?asset_id=e02f8a80-0749-421b-9ae3-a1fc6ba8b99f&amp;img_etag=%221ef2a7e9ce98e6bba221374586d3210f%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/cEEg8iVykcccV/images/2129e08c-dafc-4463-9c65-cd7268c98dc9.jpg?asset_id=3928809f-6239-4d97-8744-96875fbcbbfd&amp;img_etag=%2254b8960fb672bef045e32d122e511e57%22&amp;size=2560)](https://spark.adobe.com/page/cEEg8iVykcccV/images/2129e08c-dafc-4463-9c65-cd7268c98dc9.jpg?asset_id=3928809f-6239-4d97-8744-96875fbcbbfd&amp;img_etag=%2254b8960fb672bef045e32d122e511e57%22&amp;size=1024)
 
 **简评：**
 
-2016年秋天与前总统奥巴马会面时，习近平承诺不会在南中国海的岛礁周围推动军事化发展，可是5年来，南中国海军事化推进愈演愈烈，即使在疫情期间也不停工，还在离菲律宾海岸仅200公里的美济岛偷偷建起了雷达基地。菲律宾强硬表示，一旦有事将予以反击。美国国务卿也表示，不承认海洋法公约的中共国在南中国海的领土诉求，并重申对东南亚国家的支持。
+商鞅的“驭民五术”是中共管理老百姓的手段，能达到“顺民”的结果，他们才会满意。就汉族人来讲，大一统似乎很重要，实际上，这些都是中共的谎言。看看中共官员的海外资产，看看中共内部刺刀见红的派系斗争就知道，他们想要的只有自己家族的千秋万代。
 
-中共企图瞒天过海，暗渡陈仓。殊不知一旦食言失信，中共的一举一动都在全球正义联盟的监视之下。快快收起你的拙劣表演，别在世上给中国人丢脸了，是你退出历史舞台的时候了！
+中共对付老百姓的手段很直接，要么顺从，要么同流合污，要么杀了你。然而，这些手段却很有效。为什么？在中共国，少数民族人群，算是最具有团结意识的种族了，因此在中共眼里也是最难驯服的人群。于是中共仿效希特勒，建立类似纳粹德国的集中营进行管控。
+
+新疆人毕竟是少数的，所以，对抗掌握国家机器的中共政权，确实是很难的。然而，新西兰可是远离中共国的一个独立国家，为什么也会愿意与中共一起跳舞呢？看一看法国在海航原董事长王健被杀案中的表现，看看英国对香港和华为的态度，看看滑稽的美国大选……
+
+中共为什么可以在这个世界上如此嚣张，每一个国家、每一个民族、每一个地球人都要深思。人性的贪婪与自私被中共利用得淋漓尽致，以至于时至今日，中共已经不是简单意义上的中共了，它已经发展成为地球上邪恶力量的集合体。
+
+然而，黑暗的、邪恶的东西终究是见不得光的，现如今爆料革命对中共邪恶的揭露，正在逐渐唤醒那些沉睡的正义力量。我们以”真、善、狠”，来对付中共的“假、恶、丑”，我们顺应天理，坚持唯真不破，我们在郭先生的带领下，正在唤醒内部外部各方面的反共力量。当中共内部人人自危，当中共经济不能维系，当沼泽地利益即将失去的时候，中共的覆灭，也许就在一夜之间。
 
 **原文翻译：**
 
-# **南中国海：卫星图像显示中共国在人工岛上建立了“全面军事基地”
+# **报告：中共国政府在新西兰上演没有维吾尔人的“维吾尔族”舞蹈
 **
 
-在南中国海紧张局势不断升温的情况下，最新卫星图像再次令人震惊，中共国正在把争议的人工岛建成“全面军事基地”。
+[!\[\]()!\[\](https://spark.adobe.com/page/cEEg8iVykcccV/images/909aabf8-05a5-4bdf-ae57-ff8933f4e89f.jpg?asset_id=c6e6ad75-56d9-416a-a3ce-5995fe46a4ab&amp;img_etag=%22d0add27075338d8968057e075ac14330%22&amp;size=2560)](https://spark.adobe.com/page/cEEg8iVykcccV/images/909aabf8-05a5-4bdf-ae57-ff8933f4e89f.jpg?asset_id=c6e6ad75-56d9-416a-a3ce-5995fe46a4ab&amp;img_etag=%22d0add27075338d8968057e075ac14330%22&amp;size=1024)
 
-令人担忧的新卫星图像表明，中国正在把南中国海有争议的人工岛建成“全面军事基地”。
+**据《新西兰信报》新闻网站报道，新西兰惠灵顿市长星期五因参加当地的农历新年庆祝活动而受到批评，参加庆祝活动的有新西兰汉族舞者，他们身着维吾尔族穆斯林的文化服装。**
 
-地理空间软件公司Simularity的一份报告展示了美济礁上疑似雷达、天线支架等等用以建立军事基地的基础设施。
+据报道：“新年庆祝活动包括新西兰汉族舞者，身着维吾尔族穆斯林文化服装表演维吾尔族舞蹈。”该活动于2月12日由惠灵顿中国文化中心组织，并得到惠灵顿市议会住房委员会的资助。
 
-此环礁（环形珊瑚礁）距离菲律宾250公里，自1995年以来一直被中华人民共和国占领和控制。
+“中国文化中心”是中共国实行统一战线的一部分。虽然它是一个在新西兰注册的社团，但它是由中共国文化和旅游部创立和管理的。
 
-这些图片展示2020年5月至2021年2月期间7个地点的工程建筑。
+除了惠灵顿市长安迪•福斯特出席的农历新年表演外，活动还包括其他多元文化的庆祝活动。福斯特本周因与一些身着维吾尔民族服装的中共国汉族舞蹈演员合影而受到批评。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/ba06646b-482b-45b9-8e88-a61415c03a09.jpg?asset_id=ab4a47c8-01ce-47ed-9764-1b8b702488d5&amp;img_etag=%22d8973137fd8e9ec5837aa1d51a758aaa%22&amp;size=2560)](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/ba06646b-482b-45b9-8e88-a61415c03a09.jpg?asset_id=ab4a47c8-01ce-47ed-9764-1b8b702488d5&amp;img_etag=%22d8973137fd8e9ec5837aa1d51a758aaa%22&amp;size=1024)美济礁曾是菲律宾沿海南沙群岛众多低潮高地中的一个。图片：谷歌地图
+[!\[\]()!\[\](https://spark.adobe.com/page/cEEg8iVykcccV/images/3ba38ad7-4998-4c0f-8e32-dcb51c4f5aa3.png?asset_id=ef978389-cc24-4d86-a658-aaf6fdc75201&amp;img_etag=%22dcaa00ccd48bc9e11fc11d2ff98b61b7%22&amp;size=2560)](https://spark.adobe.com/page/cEEg8iVykcccV/images/3ba38ad7-4998-4c0f-8e32-dcb51c4f5aa3.png?asset_id=ef978389-cc24-4d86-a658-aaf6fdc75201&amp;img_etag=%22dcaa00ccd48bc9e11fc11d2ff98b61b7%22&amp;size=1024)
 
-2020年5月7日的图片清楚显示了一块空地，而现在却已经被一个16米宽的圆形建筑所占据，Simularity认为其可能用以安装天线。
+当新西兰媒体开始传播这些照片后，福斯特说：“本着友好的精神和代表惠灵顿所有市民的市长的角色，我出现在这次活动的许多团体的照片中”。
 
-另一张照片显示了一个混凝土结构，附近有一球形雷达罩——一种用于保护雷达天线防风雨的外罩。Simularity称此装置可能用以固定雷达。其他场地仍在施工中，或被清理待建。
+一位名叫Shawudun Abdulgofur的新西兰维吾尔男子告诉《新西兰信报》说，他对这次农历新年活动感到“厌恶”，他认为这是一种文化侵犯，因为，中共国的维吾尔族人只有在被政府强迫的时候才会去庆祝农历新年。
 
-菲律宾大学海洋事务海洋法研究所所长Jay Batongbacal博士说，新的建筑设施表明中共国真是在此“扎根”了。
+“想到维吾尔人不能在东突厥斯坦实践我们的文化，这是非常失礼的行为。”他对信报网站说。
 
-“他们基本上是在增设监测镜头设备，显然是雷达——在岛礁上已设有很多雷达。”他告诉菲律宾广播公司ANC。
+“东突厥斯坦”是维吾尔人用来指新疆的名字，新疆是中共国大部分维吾尔人居住的西部地区。“新疆”是一个普通话术语，意思是“新边疆”，强调它与汉族人的祖国的距离。维吾尔人是大多数逊尼派穆斯林、突厥语民族，土生土长的与中亚接壤的新疆人。
 
-“增设新雷达似乎表明他们确实在扩大这一人工岛礁的功能，不管世界上发生了什么，他们依然我行我素，证明中共国确实打算将这些人工岛礁开发成全面军事基地。”
+人权组织指责中共国政府自2017年以来至少在新疆政府管理的集中营中拘留了100万至300万的维吾尔人。中国共产党（中共）将这些设施称为“职业培训”或再教育营地，并表示，它们是为中共国劳动力培训维吾尔人和在新疆穆斯林社区内解除所谓伊斯兰极端分子激进化的更大运动的一部分。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/8edb283c-b31d-4c25-b695-3d751627cfeb.jpg?asset_id=7d53297b-bea3-4971-9e22-27faaa86c188&amp;img_etag=%228106ba46dda709fe491b01db5a7c2896%22&amp;size=3413)](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/8edb283c-b31d-4c25-b695-3d751627cfeb.jpg?asset_id=7d53297b-bea3-4971-9e22-27faaa86c188&amp;img_etag=%228106ba46dda709fe491b01db5a7c2896%22&amp;size=1024)美济礁已不止一次成为该地区地缘政治紧张局势的中心。2020年5月7日，施工现场的照片。图片Simularity
+难民营的多名幸存者和前雇员在2月2日发表的一份报告中告诉英国广播公司（BBC），他们在这些设施中经历或目睹了对维吾尔族被拘留者的蓄意强奸、性侵和身体虐待，这些设施是由驻新疆的中共省级官员经营的。
 
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/ec662e9b-edbc-4d7a-96db-109b21e413f5.jpg?asset_id=4435371e-8038-4a1d-a657-d28351946b3c&amp;img_etag=%22508727dc7199fa5a72bb4e56435e7d01%22&amp;size=3410)](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/ec662e9b-edbc-4d7a-96db-109b21e413f5.jpg?asset_id=4435371e-8038-4a1d-a657-d28351946b3c&amp;img_etag=%22508727dc7199fa5a72bb4e56435e7d01%22&amp;size=1024)今年2月4日，同一施工现场，用于安装天线的结构建设完工。图片:Simularity
-
-美济礁已不止一次成为该地区地缘政治紧张局势的中心。
-
-海牙常设仲裁法院2016年的一项裁决裁定，美济礁属于菲律宾专属经济区，两国关系由此以来动荡不安。
-
-2021年1月，北京当局通过了《海警法》，又称“开火”法，赋予他们的海军和海岸警卫队在争议海域采取一切必要措施捍卫主权的权力。
-
-菲律宾外交部长小特奥多罗•洛克辛（Teodoro Locsin Jr）对当地媒体表示，一旦事件发生，菲律宾将给予回击。
-
-他说：“如果有事件发生，我可以向你们保证，我们不会仅停留在抗议层面的。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/fc54a43d-8a24-4f88-a9ef-da0d3373c57a.jpg?asset_id=70c5b216-dc9a-4cae-ab4d-918946517961&amp;img_etag=%22fa8cf616f03e36c7d2880272c77ac4cf%22&amp;size=2560)](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/fc54a43d-8a24-4f88-a9ef-da0d3373c57a.jpg?asset_id=70c5b216-dc9a-4cae-ab4d-918946517961&amp;img_etag=%22fa8cf616f03e36c7d2880272c77ac4cf%22&amp;size=1024)南中国海长期以来一直是各国领土纠纷之地。图片：Ted Aljibe /法新社
-
-美国的角色、美中关系的动荡以及美国对菲律宾及台湾等国的安全承诺在此博弈中也至关重要。如果发生武装攻击，美国作为超级大国已经承诺会保卫菲律宾，制止中共国控制该地区的无理挑衅。
-
-美国国务院发言人内德•普莱斯（Ned Price）重申美国对东南亚国家的支持，他说，新任国务卿安东尼•布林肯 (Antony Blinken)否认“中共国在南中国海的领土声诉”。他说：“美国拒绝接受中共国在南中国海的领土要求，因为这些要求超出了国际法1982年《海洋法公约》所允许的范围。”
-
-“国务卿布林肯强调了共同防御条约对两国安全的重要性，并强调该条约明确适用于在太平洋对菲律宾武装部队、公共船只或飞机的武装攻击，而南中国海是太平洋的一部分。”
-
-[🔗原文链接](https://www.news.com.au/technology/innovation/military/south-china-sea-satellite-images-show-china-building-fullblown-military-bases-on-artificial-islands/news-story/0efce6d99607d3c5be7563b985e1fab3)
+🔗[原文链接](https://www.breitbart.com/asia/2021/02/27/report-chinese-government-stages-uyghur-dance-new-zealand-no-uyghurs/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -76,6 +60,6 @@
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/Sa18Z4t0quJHZ/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/cEEg8iVykcccV/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/cEEg8iVykcccV/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
-+2
+0
