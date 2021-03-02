@@ -1,25 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】1/03/2021:美国保守党大会的主题都围绕因共产党而造成的种种问题
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/941422/)
+## 64%的俄受访者认为中共病毒是生物武器
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/941467/)
 
-**制作:Cantonese工作室**
-**播报：【安妮】 资料整理：【深寒】【闪电】【文林】 海报制作：【文绉绉】【小豆芽】【米线】 视频制作：【文德】上传:【星星】**
-摘要:
+俄罗斯莫斯科喀秋莎农场   银河
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-2.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2-5.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-3.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4-3.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/5.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/6.jpg)
-7.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/7.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/0.jpg)
+编辑上传   水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/W-5.jpg)quirkybyte.com
+路透社3月1日报道，一家独立民调机构调查表示，近三分之二的俄罗斯人不信任人造卫星V疫苗，而约同样数量的人认为中共病毒是人工制造的生物武器。
+
+勒瓦达中心(Levada Center)说，该中心上个月进行的一项民意调查显示，62%的人不愿意接种俄罗斯国内生产的疫苗，其中18岁至24岁的人拒绝程度最高。
+
+大多数受访者认为疫苗的副作用——包括发烧和疲劳——是他们不想接种疫苗的主要原因。
+
+该中心对50个地区的1601人进行了抽样调查，其中64%的人认为中共病毒是作为生物武器制造的。
+
+上个月，世界卫生组织(WHO)驻中共代表团表示，他们不会进一步调查病毒是否来自实验室，他们认为这种可能性非常小。调查发现，40-50岁的俄罗斯人大多认可这种病毒是作为生物武器制造出来，这年龄阶段的人中71%的人持这种观点，只有23%的人认为病毒是自然产生的。
+
+近期，国际社会越来越多的声音质疑中共病毒真相，各种科学依据都表明中共病毒是源于实验室的生物武器。俄罗斯作为中共的“盟友”，深知中共“品性”，因此有超过三分之二的俄罗斯人坚定相信中共病毒是中共实验室制造的生物武器并不足为奇。
+
+这个拥有约1.45亿人口的国家于去年12月开始了人造卫星V疫苗的接种，至2月10日，卫生部长米哈伊尔·穆拉什科(Mikhail Murashko)表示，已有超过200万俄罗斯人完成了第一阶段的接种。
+
+参考链接：
+
+[https://www.reuters.com/article/us-health-coronavirus-russia-poll-idUSKBN2AT2XK](https://www.reuters.com/article/us-health-coronavirus-russia-poll-idUSKBN2AT2XK)
+
 0

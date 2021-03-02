@@ -1,15 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月1日 文贵先生盖特
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/941309/)
+## 快讯！美众议员佩里再提将中共定性为“跨国犯罪集团”！
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/941323/)
 
-编辑整理：美东香草山农场（彩虹桥）
+【日本东京方舟农场】作者：青衣 校对：文小律
 
-郭文贵先生向GTV的1300把椅子投资者的重要公告
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ebdf80d0af23875c4f8c3b0753ae8d71.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/9acaee9da78da38eb2f14d0ef4907062.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/a3bd17df5da804ab54c177ba74309e19.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/01ede55975d974bf770a88bfce7fcf0a.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/babcaf6a2c3ed79beff007ad22a47ab2.png)
-[【2021年3月1日】文贵先生盖特原文](https://gtv.org/getter/603da5a6195851590238978a)
+2月28日（周日），美国共和党众议员佩里在美国佛罗里达州奥兰多参加共和党保守派联盟大会（CPAC）期间表示， 拜登政府必须指定中共为“跨国犯罪集团” ，以使美国人民充分了解中共本质，阻止企业与这个犯罪组织打交道。
 
-喜联盟**Gnews**编辑部
+早在2020年10月佩里就曾提出一项法案，要求将中共列入司法部“国际头号犯罪组织目标”（TICOT）名单，指定中共为“跨国犯罪集团”，并取消中共官员享有的“主权豁免权”（sovereign immunity），即他们可在美国法院被刑事起诉。该法案旨在识别和铲除中共对美国国家利益构成的最为严重的威胁。
+
+在本次CPAC大会期间，美国著名电视评论家、作家、律师、法学博士章家敦先生问到佩里：“你提起的这项国会议案，将中国共产党定性为跨国犯罪组织，我希望此议案得到通过。如果通过了，那么将产生一个问题，美国的企业和大学以及社会各界，还能和共产中国这样一个“跨国犯罪组织“打交道吗？
+
+佩里回答说：“首先我们应该认清情况。我们必须将中国人民和中共区分开，中国人民渴望自由，如同地球上每个人一样。而中共是一个黑帮组织，整个政府就是一个黑帮式的犯罪集团，我们不与任何犯罪集团打交道，不管是在美国还是其他国家。”
+
+我们欣喜地看到，美国灭共的步伐正在加速，全球灭共的正义力量正在集结。越来越多国家的政治家已经清醒地意识到要将中共和中国人民分开，我们更欣喜地看到，越来越多的人已认清了中共就是一个跨国犯罪集团。中共“反人类”和“种族灭绝”的罪名已被坐实，接下来，等待中共的就是被定性为“跨国犯罪集团”！
+
+注：本文仅代表作者观点
+
+参考链接：
+
+1.[https://twitter.com/xi\_glb/status/1366532022148030465?s=21](https://twitter.com/xi_glb/status/1366532022148030465?s=21)
+
+2.[https://www.soundofhope.org/post/479687](https://www.soundofhope.org/post/479687)
+
+3.[https://twitter.com/SoundofHopeSOH/status/1311851362142089218](https://twitter.com/SoundofHopeSOH/status/1311851362142089218)
 
 0

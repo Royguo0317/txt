@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共开始南中国海长达一个月的军事演习
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/941415/)
+## 【每日快讯】1/03/2021:美国保守党大会的主题都围绕因共产党而造成的种种问题
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/941422/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+**制作:Cantonese工作室**
+**播报：【安妮】 资料整理：【深寒】【闪电】【文林】 海报制作：【文绉绉】【小豆芽】【米线】 视频制作：【文德】上传:【星星】**
+摘要:
 
-编辑上传   水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/M-5.jpg)forum.lowyat.net
-布赖特巴特新闻 (Breitbart News)3月1日报道，中共解放军(PLA)于周一开始在其非法宣布属于其领土范围内的南中国海举行军事演习。中共此举被视为向美国乔·拜登(Joe Biden)政府传递威胁信息。
-
-中共在南中国海的主权主张涉及五个国家:越南、马来西亚、文莱、菲律宾和台湾。菲律宾政府在海牙常设仲裁法庭起诉中共，并在2016年被裁决确认了北京的非法主张。中共公开藐视这一裁决，并进一步推进了在南中国海的军事扩张。
-
-随着台海形势的日益紧张，美国海军宣布两个美国航母战斗群在南中国海进行联合演习后，法国核推进攻击潜艇和军舰在南中国海巡逻，以强调国际航道的航行自由。中共官方媒体《环球时报》(Global Times)周日宣布了为期一个月的海上军事演习，并将其描述为针对华盛顿的信息。在整个3月期间，中共军方将禁止所有非解放军船只进入演习海域。
-
-《环球时报》指出，“此次演习正值美国再次开始频繁地对中共沿海地区以及南海水文环境进行近距离侦察行动之际。”多年来，美国海军一直定期在南中国海进行所谓的“航行自由行动”(FONOPs)，旨在挑战有关领土属于中共的观点。
-
-因“航行自由行动”是公开合法的，《环球时报》没有对此提出异议，而是对美国和法国所谓的“侦察”演习提出异议，指责他们“窃听”解放军，并认为中共应该“加强作战准备”来对抗美国军队。
-
-美国一系列的南海行动旨在援助被中共武力威慑的台湾。作为对中共声明的回应，台湾也宣布周一将在南中国海进行实弹演习。
-
-参考链接：
-
-[https://www.breitbart.com/asia/2021/03/01/chinese-military-hold-month-long-drill-occupied-south-china-sea/](https://www.breitbart.com/asia/2021/03/01/chinese-military-hold-month-long-drill-occupied-south-china-sea/)
-
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-2.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2-5.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-3.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4-3.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/5.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/6.jpg)
+7.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/7.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/0.jpg)
 0
