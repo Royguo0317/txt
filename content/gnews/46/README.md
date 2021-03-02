@@ -1,83 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 在美国追究中共病毒真相时 遇到的资本阻力
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/941331/)
+## 中共没人权却将公布《2020年美国侵犯人权报告》！ ？
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/941398/)
 
-**新闻来源：**门户网《TheGateWayPundit》｜**作者：**乔·霍夫特（Joe Hoft）｜**发布时间：**2021年3月1日｜
-**客贴：***劳伦斯·塞林博士*（*Lawrence Sellin, Ph.D*）
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-01-at-7.29.58-PM.png)**`图片来自推特`**
-简评
+文章作者:台湾宝岛农场 一叶一菩提
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2101062218121973-600x400-1.jpg)
+(图片来源[大纪元](https://www.epochtimes.com/b5/21/1/7/n12672802.htm))
 
-2021年3月1日，我们新中国联邦的闫丽梦科学家在推特上发推文表示，**“2020年9月21日，Gigi K Gronvall 作为约翰霍普金斯大学团队一员，写了批判中国爆料者（闫丽梦博士）所展现中共病毒是实验室制造的证据的的文章。”该新闻又证实了污蔑我和我报告的约翰霍普金斯大学团队是亲共阵营的！**（并附上新闻链接）
+3月1日新华社北京,在美国国务院一年一度的《人权实践国别报告》出炉前指出，中共国务院新闻办公室于近期将发表《2020年美国侵犯人权报告》，揭露美国侵犯人权的状况。但中共政府枉顾人权问题，却发表这份积非成是的报告，其明显的意图是要混淆国际视听，以遮掩自己所犯下的罪行。
 
-美国是资本主义社会，只要有人给出让人满意的利益，就有美国政府官员和科学家为中共政府以中共病毒（超限生物武器）来发动第三次世界大战去洗脱罪名，并摆脱法律对发动战争行为的问责！在该新闻中已赤裸裸的表达了这层雇佣关系。中共政府利用人性的恶来引导全人类的发展，这无疑动摇了当今世界的人类文明。其结果只会招来更大的恶来解决之前所做的恶的毒，这如同是在我们中国历史上的篡夺皇位的演变一样。
+四十多年前美国国会通过一项法律，责成国务卿每年需提交《人权实践国别报告》（Country Reports on Human Rights Practices）,该报告依据国际《世界人权宣言》所提出的个人权利、公民权利和政治权利，将有关美国以外国家和地区的年度人权状况，提供给议员们，作为在立法、批准外援以及其它一些决策时的考量依据。
 
-我们爆料革命新中国联盟将秉持唯真不破与正道主义的宗旨与之不同。我们会了解到在阳光下的“独裁者”只会耍流氓和对人民血腥暴力的手腕，还有替中共政府干活的帮凶的贪婪。
+从1998年起，人权报告中常出现的名单有，中（共）国、朝鲜、古巴等国家。因此中共国务院新闻办公室，从那时候起就开始针锋相对的发布《美国侵犯人权报告》的年度报告，来回应美国的《人权实践国别报告》。这次报告，分为序言、疫情严重失控酿成人间悲剧、美式民主失序引发政治乱象、种族歧视恶化少数族裔处境、社会持续动荡威胁公众安全、贫富日益分化加剧社会不公、践踏国际规则造成人道灾难，全文约1.5万字。
 
-另外，据《国家脉动》3月1日娜塔莉·温特斯的**`报道`**，拜登政府负责政治事务的副国务卿`维多利亚·纽兰`在为孔子学院辩护。可见，在孔子学院已被毋庸置疑是中共政府的宣传工具的背景下，拜登政府确实正在与中共有勾兑，这才出面为中共政府效力！
+**报告(似是而非)与真相**
 
-（文章仅代表作者观点，与GNEWS无关）
+1. 2019年底中共肺炎所引发的疫情肆虐全球，严重威胁人类生命安全。
 
-原文翻译
+报告，美国政府对疫情任性妄为导致失控，美国人口不足世界总人口的5%，但中共肺炎确诊病例数却占全球总数的25%以上，近20%死亡，逾50万美国民众死亡。
 
-**独家报道：新证据表明美国政府和美国科学机构参与掩盖中共病毒的起源**
+真相,中共第一时间隐瞒疫情真相，军方介入毁灭证据，中共疾管局不知情,未即时通报世界卫生组织,致使全世界防疫不力，疫情失控，死亡染病数超过第一、二次世界大战死伤人数总和.
 
-**国际金融利益集团和全球科学机构从未希望中共病毒的真正来源被披露，尽管该病毒来自实验室在美国疫情爆发早期后就被怀疑。**
+2.报告，美国民主制度失序引发政治乱象，进一步撕裂美国社会。金钱政治扭曲压制民意，选举成为富人阶层“独角戏”，美国人民对民主制度的信心下降至20年来最低点。
 
-现在有证据表明，美国政府内部人士与美国科学界的特定成员进行了协调，毫无疑问是在国际商界和媒体的支持下来保护中共国免受（疫情）责任，同时保护（中共政府给）他们自己的利益。
+真相,中共对美全面蓝金黄的渗透,主流媒体失能,漠视真相,介入美国各事件,制造矛盾,介入美国大选等，斧凿斑斑。美国觉醒，将中共视为最大威胁，倡导守护传统民主自由价值的爱国主义。
 
-2020年1月13日，在网上已经[评论](http://www.shadolsonshow.com/2020/01/13/covid-19-born-in-north-carolina-sold-to-wuhan-lab-optimized-for-pandemic-spread/)称中共病毒是在中共国的一个实验室制造的，美国科学家可能已经帮助中共国科学家获得（实验室制造病毒）的知识，特别是在石正丽博士的**武汉病毒研究所（WIV）**是和卡罗来纳大学的**拉尔夫·巴里克博士（Dr. Ralph Baric)**的共同协助下。
+3.报告，美国少数族裔遭受系统性种族歧视，处境艰难。有色人种在美国18岁以下未成年人中的比例约为三分之一，却占被监禁未成年人总数的三分之二。非洲裔新冠肺炎感染率是白人的3倍，死亡率是白人的2倍，被警察杀死的概率是白人的3倍，四分之一亚裔年轻人成为种族欺凌的目标。
 
-2020年1月26日，尊敬的调查记者兼国防专家**比尔·格茨（Bill Gertz)**在《华盛顿时报》[文章中](https://www.washingtontimes.com/news/2020/jan/26/coronavirus-link-to-china-biowarfare-program-possi/)写道：
+真相，中共借黑命贵事件延烧话题，制造矛盾冲突，美国公民觉醒，白人黑人和解，透过民主法治的立法，规范警察权限，避免未来再次发生同样的事情。 .
 
-**“致命的在全球传播的中共病毒可能起源于武汉市的一个实验室，与中共国的秘密生物武器计划有关。”**
+4.报告，美国枪支交易和枪击事件创历史新高，人们对社会秩序失去信心。 2020年美国共有超过41500人死于枪击，平均每天达110多人，全国共发生592起大规模枪击事件，平均每天超过1.6起。报告还强调，美国贫富差距加速扩大，底层民众生活苦不堪言。疫情失控导致大规模失业潮，数千万人失去医疗保险，弱势群体成为政府消极应对疫情的最大牺牲品。
 
-2020年2月3日，共和党建制派的**白宫科技政策办公室（OSTP）**主任**凯尔文·德罗格迈尔（Kelvin Droegemeier)**，给**美国国家科学院（NAS）**院长**玛西娅·麦克纳特博士（Dr. Marcia McNutt)**写了[一封信](https://www.nationalacademies.org/documents/link/LD006CF17B5004C7B41F63CD7E0A0F4EDF738C451F32/fileview/D20D1390AB906330493E8A40B27E965A6761F4117EA2/OSTP%20Coronavirus%20Request%20to%20NASEM_02.06.2020.pdf?hide=thumbs+breadcrumbs+favs+props+nextprev+sidebar+pin+actions&amp;scheme=light&amp;fitwidth)，问道：
+真相，美国犯罪学家的分析认为，2020年美国枪击案猛增，很大程度上是因为新冠疫情肆虐下，美国失业情况严重、暴力抗议活动蔓延、大量年轻人经常无所事事。此外，由于疫情导致餐馆、影院等大量公共场所关闭，2020年涉枪暴力事件往往发生在家庭和帮派成员之间。
 
-**“美国国家科学、工程和医学科学院（NASEM）将快速审查信息并确定有助于确定2019-nCoV起源的数据要求，特别是从进化/结构生物学的角度。”**
+美国犯罪学家表示，2021年如果疫情缓解、经济反弹、恢复到校上课，美国枪击犯罪状况或将有所缓和。但美国要真正改变枪支犯罪形势，还需要进行一系列政策调整，改变长期存在的医疗、教育、住房和就业不公平现象。
 
-奇怪的是，他的担忧是由一项晦涩难懂、未经同行评审且已经撤回的来自印度研究，名为“2019-nCoV刺突蛋白中的独特插入物与**HIV-1 gp120**和**Hag**有惊人的相似性”。
+5.报告认为，在抗疫需要全球团结的时刻，美国却执意奉行本国优先，推行孤立主义、单边主义，挥舞制裁大棒，霸凌威胁国际机构，残酷对待寻求庇护者，成为全球安全与稳定的最大麻烦制造者。
 
-回想起来，这篇文章似乎是一个科学稻草人，暗示其他政府动机也参与其中，但它们是什么仍然不清楚。
+真相，中共以蓝金黄渗透全球，国际组织服膺其邪恶意志，公平正义难以伸张，致使美国传统价值，国家安全受到威胁，痛定思痛，打掉重炼。如，世卫虽为国际组织，但却只听令于中共，美国川普政府退出世卫，与防疫成绩优良的台湾等多个国家联盟，共同商讨全球防疫。
 
-然而，根据被征召对OSTP的要求做出[回应](https://www.nationalacademies.org/documents/link/LDA8FF8BAB7F1D4A98AC250C7916649E610A15AD51C6/fileview/DA215521A660F40FD8D752FFB82A8E21FA8D3C29976D/NASEM%20Response%20to%20OSTP%20re%20Coronavirus_February%206%2C%202020.pdf?hide=thumbs+breadcrumbs+favs+props+nextprev+sidebar+pin+actions&amp;scheme=light&amp;fitwidth)的科学家，**德罗格迈尔（Droegemeier)**的科学调查结果早已政治化，即完全免除中共国的责任。
+《2020年美国侵犯人权报告》引发海内外华人圈的热议。在推特上，不少网民评论：「中共惯用技俩，偷换概念。」「强奸犯举报他人看黄书，骚操作着实令人费解。」「我可以侵犯人权，你美国不能干涉我内政。」「中共倒打一耙，满嘴喷粪。」
 
-那些科学家是克里斯蒂安·G.安徒生（斯克里普斯研究所）、拉尔夫·巴里克（北卡罗来纳大学公共卫生学院）、特雷弗·贝德福德（弗雷德·哈钦森癌症研究所）、阿拉文达·查克拉瓦蒂（纽约大学医学院）、彼得·达扎克（生态健康联盟）、吉吉·K。格龙瓦尔（约翰·霍普金斯彭博公共卫生学院）、汤姆·英格尔斯比（约翰·霍普金斯健康安全中心）和斯坦利·珀尔曼（爱荷华大学）。
-Those scientists were Kristian G. Andersen (Scripps Research Institute), Ralph Baric (UNC School of Public Health), Trevor Bedford (Fred Hutchinson Cancer Institute), Aravinda Chakravarti (New York University School of Medicine), Peter Daszak (EcoHealth Alliance), Gigi K. Gronvall (Johns Hopkins Bloomberg School of Public Health), Tom Inglesby (Johns Hopkins Center for Health Security), and Stanley Perlman (University of Iowa).
+参考资料:
 
-美国国家科学院致OSTP的信引用了武汉病毒研究所的一篇科学[文章](https://www.nature.com/articles/s41586-020-2012-7)，其中称疾病爆发“始于当地的海鲜市场”，明确支持了中国共产党政府的说法，即中共病毒疫情是动物向人类的自然传播
+- [中共欲推出2020年美国人权报告意欲何为？](https://www.epochtimes.com/b5/21/3/1/n12782847.htm)
+- [国务院新闻办公室将发表《2020年美国侵犯人权报告》](http://www.xinhuanet.com/politics/2021-03/%2001/c_1127153842.htm)
+- [美国2020年严重枪击案数量创历史新高](http://www.xinhuanet.com/2021-02/27/c_1127145976.htm)
 
-此外，美国国家科学院、工程和医学研究院的三院院长建议美国继续与中共国密切合作，特别是中共国科学院和武汉病毒研究所。
 
-大多数为美国国家科学院响应咨询的科学家都有与中共国合作的悠久历史，包括后来与强有力的支持中共国以及中共病毒**（Covid`19**)起源于自然进化的理论有关。
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-在一些重要方面，美国国家科学院2020年2月6日的最终回复与2020年2月4日的原始草案几乎没有相似之处（见“OSTP NAS电子邮件2”PDF）
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-根据美国国家科学院和顾问科学家之间的电子邮件交流，科学家似乎做出了明确的努力来支持自然发生的理论，并消除或淡化任何关于中共病毒是来自实验室的，具有独特的人类改造特征，可能突变到具有更高的传染性，并在相关中共病毒中都没有对furin切位点方面有任何的提及。
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
-随后，美国国家科学院响应咨询的科学家发起了自己的公关活动，以支持中共国以及**中共病毒(covid-19)**是动物向人类的自然传播的理论。
+文章审核：zhong
 
-2020年3月7日，**彼得·达扎克(Peter Daszak）**和**斯坦利·珀尔曼(Stanley Perlman)**是英国医学杂志《柳叶刀》上[一篇文章](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2930418-9/fulltext)的作者，该[文章](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2930418-9/fulltext)指出：“我们一起强烈谴责暗示中共病毒不是来自自然起源的阴谋论。”
+文章发布：Little Liu
 
-2020年3月17日，克里斯蒂安·G.安徒生在文章《The Proximal Origin Of SARS-CoV-2》中担任高级作者，该文章声称中共病毒“不是故意人为改造的病毒”。
-
-2020 年 9 月 21 日，吉吉K.格隆瓦尔是约翰·霍普金斯大学团队的一员，该团队撰写了对中国爆料者闫丽梦博士[批评](https://www.centerforhealthsecurity.org/our-work/pubs_archive/pubs-pdfs/2020/200921-in-response-yan.pdf)的文章。闫丽梦博士她是提供了中共病毒是在实验室制造[的证据](https://zenodo.org/record/4028830#.X2kMGmhKggw)。
-
-众所周知，拉尔夫·巴里克与武汉病毒研究所的“蝙蝠女”石正丽长期合作，包括进行涉及高度危险的“功能获取”研究的实验。
-
-正如**尼尔·帕特尔（Neil Patel)**最近在《每日信号报》[中所描述的那样](https://www.dailysignal.com/2021/02/19/how-the-covid-19-censors-killed-the-truth/?utm_source=TDS_Email&amp;utm_medium=email&amp;utm_campaign=MorningBell&amp;utm_content=httpswwwdailysignalcom20210219howthecovid19censorskilledthetruthutmsourcerssutmmediumrssutmcampaignhowthecovid19censorskilledthetruth&amp;mkt_tok=ODI0LU1IVC0zMDQAAAF7XdNDF42UyrasTH6XY4EQCh6LqkIJv1HfzYoT_gCTT4hopxetHE0kbTOiqfvelvDxRZOokWdNhs4I7hXnLbdNT_mtr651M8L0t_s2H6dJDrMhoQ)，世界卫生组织调查中共病毒起源团队中唯一的美国代表彼得·达扎克也是石正丽的亲密伙伴，也是将美国纳税人资金引导到武汉病毒研究所的关键人物。
-
-达扎克甚至在进行任何彻底调查之前[组织](https://www.dailysignal.com/2021/02/19/how-the-covid-19-censors-killed-the-truth/?utm_source=TDS_Email&amp;utm_medium=email&amp;utm_campaign=MorningBell&amp;utm_content=httpswwwdailysignalcom20210219howthecovid19censorskilledthetruthutmsourcerssutmmediumrssutmcampaignhowthecovid19censorskilledthetruth&amp;mkt_tok=ODI0LU1IVC0zMDQAAAF7XdNDF42UyrasTH6XY4EQCh6LqkIJv1HfzYoT_gCTT4hopxetHE0kbTOiqfvelvDxRZOokWdNhs4I7hXnLbdNT_mtr651M8L0t_s2H6dJDrMhoQ)了一场公关活动，将实验室泄漏假说描绘成“阴谋”。他的发言人后来说，目标是保护实验室的科学家，但最终，也许有意的，受益者是中共国、国际金融利益集团和全球科学机构。
-
-待续。
-
-***劳伦斯·塞林博士从国际商业和医学研究生涯中退休，在美国陆军预备役服役29年，是阿富汗和伊拉克的老兵。他的电子邮件是[\[email protected\]](/cdn-cgi/l/email-protection#3458554346515a57511a475158585d5a745359555d581a575b59) ***
-
-相关贴文如下：
-
-[吉姆](https://www.scribd.com/user/63538778/Jim-Hoft#from_embed)·[霍夫特](https://www.scribd.com/user/63538778/Jim-Hoft#from_embed)[在](https://www.scribd.com/document/496518155/Email-Exchanges-Between-the-National-Academy-of-Science-and-the-Scientists#from_embed)Scribd上与[美国国家科学院和科学家之间的电子邮件交流](https://www.scribd.com/document/496518155/Email-Exchanges-Between-the-National-Academy-of-Science-and-the-Scientists#from_embed)
-
-🔗**`原文链接`**
-
-+1
+0
