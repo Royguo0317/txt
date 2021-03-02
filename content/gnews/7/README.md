@@ -1,17 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月2日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/942657/)
+## 推特给中共病毒疫苗 &#8220;误导信息 &#8220;打标签
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/942750/)
 
-编辑整理：美东香草山农场（彩虹桥）
+- 编辑：Victor Torres
+- 翻译 作者：gokuabuela
+- 发稿：神奇四侠
 
-3月2号：尊敬的战友们好，你们感受到以毒灭共．以钱灭共的巨大的力量了吗？你们感受到过去的24小时这个世界联合灭共的力量开始集结了吗？一切都已经开始！
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
+**西班牙2021年3月2日电/西喜社——**
 
-[【2021年3月2日】文贵先生盖特原文](https://gtv.org/getter/603e5f0f195851590238bc3b)
+据ABC新闻3月2日报道，社交网络媒体推特宣布，它将开始标记可能包含CCP病毒疫苗的 “误导性信息 “的推文。
 
-喜联盟**Gnews**编辑部
+此前，推特在2020年12月决定对此类内容采取行动，包括将其从平台上删除。现在它表示，从今年3月1日起 “开始对可能包含CCP病毒疫苗误导性信息的推文，打上特殊的标签，此外还将持续努力从服务中删除最有害的误导性信息”。
 
+新闻来源：[ABC](https://www.abc.es/sociedad/abci-coronavirus-espana-directo-casos-covid-aumentan-primera-siete-semanas-202103020527_directo.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
 0
