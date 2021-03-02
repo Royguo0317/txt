@@ -1,15 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月1日 文贵先生盖特
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/941309/)
+## 佛州州长提案控制中共在该州的渗透威胁
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/941350/)
 
-编辑整理：美东香草山农场（彩虹桥）
+俄罗斯莫斯科喀秋莎农场   银河
 
-郭文贵先生向GTV的1300把椅子投资者的重要公告
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ebdf80d0af23875c4f8c3b0753ae8d71.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/9acaee9da78da38eb2f14d0ef4907062.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/a3bd17df5da804ab54c177ba74309e19.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/01ede55975d974bf770a88bfce7fcf0a.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/babcaf6a2c3ed79beff007ad22a47ab2.png)
-[【2021年3月1日】文贵先生盖特原文](https://gtv.org/getter/603da5a6195851590238978a)
+编辑 上传   水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/S-2.jpg)blackchristiannews.com
+布赖特巴特新闻 (Breitbart News)报道，周一，美国佛罗里达州州长罗恩·德桑蒂斯(Ron DeSantis)公布了一项旨在解决中共在该州影响力的提议——禁止中共对教育界的渗透，称中国共产党试图影响国内和国际事务是“对美国安全和财产最普遍的威胁之一”。德桑提斯指出，在过去的十年里，中共一直在小心谨慎地向全球渗透。中共的长期目标和利益“与美利坚共和国的基本原则背道而驰”。
 
-喜联盟**Gnews**编辑部
+德桑蒂斯强调了为应对中共威胁提供战略保障的重要性。他说，中共将从西方企业、政府和学术机构窃取知识产权定为其全球扩张的目标，“一切都是为了进一步推动其全球目标”。他为如何解决中共对美国政府、学术界和经济的影响而担忧。
+
+德桑蒂斯提及了中共窃取美国研究成果的行为并补充说，国家机构、州立大学、公立学校和地方政府必须“永远不要因为税收与外国政府建立语言和文化项目，这些项目把外国政府的利益置于我们自己的利益之上”，他特别提到了中共资助的孔子学院。
+
+德桑蒂斯说，“根据我们今天的提议，我们将确保没有任何这样的组织能够在佛罗里达州的高等教育机构获得立足之地。”该提案将要求公立高等教育机构报告任何来自外国政府或外国人的超过5万美元的捐赠，它还将要求对重要研究职位的外国申请者进行“严格审查”程序。
+
+德桑蒂斯警告说，选择隐瞒信息的机构将支付佛罗里达州105%的罚金。司法部将对违规机构采取行动。提案要求州政府机构报告任何超过5万美元的捐赠，
+
+并要求有意愿向州政府捐赠或合同超过10万美元的人披露任何来自七个关注国家的“接触或捐赠”。这些国家包括中共、古巴、伊朗、朝鲜、俄罗斯、叙利亚和委内瑞拉。
+
+此提案中还包含“加强执法部门追查商业间谍的能力，并对任何有利于外国政府的商业间谍行为处以罚款。”对盗窃商业机密的人和为外国特工或实体提供情报的人处于重罪。
+
+德桑蒂斯州长强调了中共的威胁，认为用法律保护佛罗里达人免受中共的影响和中共企业间谍活动的侵害，是“伟大的第一步”。
+
+参考链接：
+
+[https://www.breitbart.com/politics/2021/03/01/ron-desantis-unveils-sweeping-statewide-effort-address-chinese-foreign-influence/](https://www.breitbart.com/politics/2021/03/01/ron-desantis-unveils-sweeping-statewide-effort-address-chinese-foreign-influence/)
 
 0
