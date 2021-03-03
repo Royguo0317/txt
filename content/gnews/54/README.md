@@ -1,39 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】闫丽梦博士论文的挑战者出现了吗？
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/943303/)
+## 审查中共国侵犯人权的行为
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/943347/)
 
-作者：纽约香草山美食部 蓝天大海
+英听/校对：康州盘古农场-​一花一世界
+翻译： 康州盘古农场-Layka ​
+视频制作：康州盘古农场-青梅煮酒 & 康州盘古农场-天涯行
+编辑：康州盘古农场-​Antsee-GTV
 
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
-
-![]()![](https://media.discordapp.net/attachments/721544615953432698/813596525384564787/image0.png?width=1083&amp;height=609)
-
-3月2日上午，路德访谈透露，香港大学研究冠状病毒的大佬，同时也是闫丽梦博士曾经的同事和领导，斯里兰卡人马利克（Malik）重出江湖，获任香港大学巴斯德研究所名誉所长。还记得去年四月底闫丽梦博士离开香港，安全抵达美国后不到十天，马利克突然宣布退休这件事吗？当时很多人都觉得奇怪。时隔九个月，他又突然回归，就更奇怪了。这是什么情况？中共是将他从斯里兰卡请到香港重点保护，还是想借他本人和香港大学在冠状病毒研究方面的重要地位，重新组织力量反击国际社会对病毒自然来源说的质疑？
-
-闫丽梦博士先后发表了两篇关于武汉冠状病毒来源的科学报告。报告以事实为依据，指出这次导致全球一亿人感染、一百多万人死亡的冠状病毒来源于武汉病毒研究所。它是一个以解放军在舟山蝙蝠身上发现的病毒为框架，经过功能增强型基因改造而成的人造病毒，是超限战生物武器。论文发表后，引起了巨大反响。同时，中共在世界范围内组织了反击：除了在媒体上发表了几篇文章外，还网罗了来自美国国家地理杂志、麻省理工学院、约翰·霍普金斯大学等多位学者，甚至还请出了哈佛大学肯尼迪学院肖恩斯坦中心主任琼·多诺万（Joan Donovan）和哈佛肯尼迪学院政治专业博士珍妮佛·尼尔森（Jennifer Nilsen）亲自撰写文章，反驳闫丽梦博士。但是，他们的反驳太无力了。他们就像事先约定好了一样，不去反驳闫博士科学报告中的科学论点，却异口同声谴责闫博士的政治动机和背后的政治力量。是你们讲的，科学的问题要用科学的方法来解决，现在你们讲不过科学了，就用讲政治代替。你们自己立约，自己违约，结果当然是无功而返。
-
-怎么办呢？现下请出马利克——他可曾经是闫丽梦博士的领导。这一步棋有用吗？让我们拭目以待。
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+据《NewsMax》推特发布：
 
 
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+> .[@RepBillJohnson](https://twitter.com/RepBillJohnson?ref_src=twsrc%5Etfw) tells [@FinnertyUSA](https://twitter.com/FinnertyUSA?ref_src=twsrc%5Etfw) Biden "is putting American taxpayers on the hook for what China will not pay for" referring to the Paris Climate Accord. [https://t.co/VlT7z8v2lm](https://t.co/VlT7z8v2lm) [pic.twitter.com/P2PNwM71s6](https://t.co/P2PNwM71s6)
+> — Newsmax (@newsmax) [February 25, 2021](https://twitter.com/newsmax/status/1364977204543713287?ref_src=twsrc%5Etfw)
+
+
+***在有关《巴黎气候协定》的问题上，拜登“正在让美国纳税人为中国不会支付的东西买单” 
+（《唤醒美国》Wake Up America 节目）***
 
 
 
-+3
+
+**俄亥俄州共和党众议员比尔·约翰逊（Bill Johnson）**：
+
+*你知道，弄的我都不明白。 你知道川普总统让我们退出了《巴黎气候协定》， 拜登让我们重返《巴黎气候协定》。人们没有意识到的是，他正在迫使美国纳税人负责支付中共国不愿承担·的费用。因为他们在环境管理方面没有任何标准。*
+
+*并且你说的没错。 中共在新疆地区建立了这些再教育营。 大多数为穆斯林。并且他们被强迫制造这些太阳能电池板。 95％的太阳能电池板使用的材料是那些奴隶劳工在该地区生产的。 所以我的意思是，这是对人权的严重侵犯。 你认为左派应该会为此产生顾虑。*
+
+**罗伯·芬纳蒂（Rob Finnerty）：**
+
+*您认为约翰·克里（John Kerry）会提起这些吗？当他在乘坐私人飞机旅行，在全世界到处接受奖励时。 所以，基本上，欧盟针对《巴黎气候协定》而言，确认他们知道收购的商品是由维吾尔族的穆斯林和其他少数族裔制造的。而且他们没有公开承认这一事实*
+
+**众议员比尔·约翰逊**：
+
+*不，他们没有公开承认，没有公开承认这个事实。 事实上，我们在美国这里的某些太阳能电池板中可能也包含这些材料。 就像你提到的那样，欧洲95％的太阳能电池板中的有机硅成分都是由奴隶劳工在新疆地区生产的。*
+
+**罗伯·芬纳蒂**：
+
+*我们也应该说一说，和我们美国人每天日常更紧密相关起来。 我的意思这些维吾尔族穆斯林们，顺口说一下，他们称其为再教育营。 管他们怎么叫，这些就是拘留营。 那里正在发生强制种族灭绝事件。令人作呕和恶心的是我们以为大约在一个世纪以前这样的地方早就从这个星球上铲除了。 然而他们也正在为耐克，为NBA生产产品。 您知道没有人愿意讨论这些。 但他们正在这些劳教营里生产制造。*
+
+0

@@ -1,87 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】再看美国2020年总统选举事件
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/944038/)
+## 中共只会搞内斗 中国人想尽办法外逃
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/944121/)
 
-作者：纽约香草山写作组 aBc 校对/发稿：飞虹
+新闻简述：在2021年2月22日的第一次盖特视频中，郭先生指出中共的“与天斗与地斗，其乐无穷”使经济一塌糊涂，牺牲了老百姓的民生，使有钱人逃亡海外，欧洲已经在讨论来自中共国的非法移民潮。最后他说全世界现在只有两话题：共产党制造的病毒和中国与美国什么时候打起来。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210222_G1.srt.txt)
+**中共只会搞内斗中国人想尽办法外逃**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-3.jpg)
+**The CCP Is Only Good at Internal Strife; Everyone Is Fleeing China**
 
+但是兄弟姐妹们，真是国内啊，身在国内的战友们，你们知道发生了什么。真的是惨大了！最简单的一句话：从来没见人类，任何一个国家靠内乱、靠战争能发财的。所有的内乱和战争，和内部的政治斗争，都是牺牲穷人和绝大多数老实人的，家人的安全和财产、生命为代价的，这个大家都不用怀疑，是吧？
 
+But, brothers and sisters, our fellow fighters in mainland China, have you realized what’s happening in China now? Such a big tragedy! To put it simply, we have never seen any country on earth which could get rich by its internal strife or wars! All internal strife, wars and internal political struggles, with no exception, will let the poor people and the good people pay the price, with their and their family’s safety, property and lives. No one has doubt in that, right?
 
-2020美国总统选举，在人类之共产主义病毒与共产党冠状病毒劫难背景下上演，到今日，似早已尘埃落定：Donald Trump选票获胜败北，Joe Biden %…¥$°F…＆上位。美国上下以至整个世界，似乎也一片情绪稳定——除了爆料革命新中国联邦时不时弄的某些人等一惊一乍，睡不安稳。
+现在中国人什么样？内斗，县里面有县里的政治斗争，市里边有市里面的政治斗争。这帮八王八蛋就是继承了毛泽东的共产主义这一套——“与天斗与地斗，其乐无穷”，然后要与天斗与地斗与人斗。你斗呗，你这帮王八犊子，是不是老杂毛们？你别牺牲老百姓的生活啊。经济一塌糊涂，民生一塌糊涂，到处造假。这还不算数，现在是到处刻薄老百姓，城管、派出所，现在成了压迫老百姓的最直接的工具、打手。老百姓从拉屎、尿尿，任何一件事情都收钱的。老百姓哪生产钱啊？中国人哪有经济收入啊？是吧？
 
-于此，笔者也借Trump总统复出之机，再聊聊这次美国总统选举事件所造成的可能社会政治后果及其原因等相关问题。
+What are the current situation of the Chinese people right now? Infighting! There is political struggle at the county level and the local level. These bastards have inherited Mao Zedong’s sort of communism, “The joy is endless when fighting with the heavens and the earth”, so they try to fight with God, with the laws of nature, and with the people. If you want to fight, go ahead, you bastards, right?Just don’t ruin the lives of the old hundred names! The economy is a mess, people’s living circumstances are a mess, and everything is fake. Not only that, there are the city management officers and police who have now become the tools [of the CCP] for directly persecuting the common people. People are charged money for everything from going to bathroom to everything else. Do the common people print money? Do Chinese people still have any income? Right?
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/161475760814075_P11801378.jpg)
+现在所有的有钱人，当官的人都想尽一切办法弄个外国护照，能出去的都出去了。能去美国的那是最牛的中南坑老杂毛，实在不行去欧洲，有钱人去瑞士、英国，然后再去澳大利亚、新西兰，然后再不行去日本，再不行的就去第三流了，就去加勒比海国家，像什么安提瓜呀，是吧？英群岛啊，是吧？还有…就这些国家去了，商人都往那边走了。
 
-**一、社会政治后果**
+Now, all the rich people and government officials are trying every way to get foreign passports. Everyone who can get out has already left! Those who can go to the U.S. are the most powerful people, such as the old bastards in the Zhongnan Pit; if they can’t go to the U.S., they would go to Europe. Rich people go to Switzerland and the UK, followed by Australia and New Zealand, and if they couldn’t, they would go to Japan. The lower class people manage to go to the Caribbean countries, like Antigua, the British Isles, or countries of this sort, where businesspeople have headed for.
 
-1、撕裂民心。这次总统选举中，不仅美国社会人与人之间普遍的信任友善，被大规模光天化日作假使诈导致的猜忌恶意所侵入搅动，而且上至最高法院的终极说理之地的法律也被公然践踏，曾经团结一气的美国民心被撕裂或至少因为忿愤不平埋下撕裂不和的种子。
+现在一塌糊涂啊。昨天大家你们看到了吗？欧盟、希腊还有德国都警告，说来自中国的大量的移民，可能远远超过当年的非洲非法移民对欧洲的冲击。现在已经欧洲准备好中国的非法移民了。
 
-2、败坏人心。善良被欺侮，诚实被愚玩，忠诚被背叛，勇敢被泄气，正义被嘲弄和践踏，道德被僭越，信仰被裹挟，上行下效，纵使在素有独立精神和人格的美国，你也很难指望其普遍社会人心可以安然完好如初。
+It’s a mess now. Have you heard yesterday that the EU, Greece, and Germany all warned that the impact of the influx of immigrants on Europe from China may far surpass the previous wave of illegal African immigration, and Europe has got ready for the incoming illegal immigrants from China!
 
-3、美国梦加剧破灭。如果说曾经的美国梦不完美，但到底有梦可寻。可当你突然发现原以为是自己的梦却为人所操控，凭借一己努力并不能确保你公平地获得成功，而且有的所谓“成功”，是需要出卖原则甚至灵魂“勾兑”的时候，那会是怎样一种挫败感和梦的破灭感呢？
+一个马云，一个王健林，一个肖建华，一个叶简明，一个中国的所有的所谓的…还有下一个，听说张宏伟出事了啊，张宏伟这个王八蛋，东方集团，还有卢志强想都要完蛋了，还有董文标这个流氓诈骗犯，完全要完蛋，全完蛋。所有的是现在，能跑的就跑。
 
-3、毁誉于世界。曾经人类自由、民主、法治的代言，正义的化身，可一场总统选举，让地球天下人恍然惶然若惊梦：言论自由呢？选票民主呢？最终说理之地的法律呢？仅是自家正义尚能保障吗？——更别说信仰或其他。为了金钱，一切都可以出卖，连生命都可以践踏，可以漠视；沼泽地大佬为了私利贪欲，不惜把一切人类美好玩坏。一句话：美国已不再是那个曾至少大致可以放心跟随的国度，它人类文明高地的地位已嚯然塌陷不止一大片，虽然基于其固有经济、军事实力的国际地位短期内仍无谁可替代。
+Jacky Ma, Wang Jianlin, Xiao Jianhua, Ye Jianming [have all got into trouble], and the next would be…, well, I heard that Zhang Hongwei might be in trouble! Zhang Hongwei, the bastard, who is [the vice Chairman of the Board of Directors of] the Oriental Group, and Lu Zhiqiang, both are going to be over! And Dong Wenbiao, the rogue swindler, is definitely going to be finished. They are all finished! Now everyone is fleeing when they still have a chance to leave.
 
-4、恶劣的榜样。当曾经的文明高地自家里公平正义陡然变了味儿，而且变得如此疏于掩饰，当人类“主心骨”不再有颜面担当道义的榜样，或再嚷嚷道德正义之类就如一个拙劣笑话——或许是不经意间，鉴于它的特有地位，它已做足了恶劣的榜样！至于这一榜样——辅以共产党在背后的布局、搅局——会把恶劣带路到何种程度，我们且拭目观之。
+我南京的一个老合伙人，他们家里面是开酒店的，昨天晚上跟我说，他说七哥，他说：我大伯说，他大伯在香港，相当于当年咱们家往香港跑，一模一样，他说一模一样。
 
-——不过也许，如果Joe Biden及时逊位，使公平正义得以伸张，美国犹可以有更大挽回空间。但如果此君稳妥妥坐定总统宝座四年，甚至完了还余音绕梁，美国的堕落与坍塌，真无人能救了，无论未来及未来之未来几多的回光返照。
+A long-term partner of mine from the past in Nanjing, whose family runs the hotel business, told me last night, “Brother Seven (referred to Miles), in the words of my eldest uncle who is now in Hong Kong, ‘This scene is exactly the same as when our family fled to Hong Kong years ago!’ ” He said, “It’s exactly the same!”
 
-而且，再进一步说，就算Donald Trump英雄回归，举国欢腾，举世同庆，正义终于得到伸张，民心重新得以凝结，又如何呢？仍不过是一次高调的回光返照罢。因为，美国总统所谓“大选”，以及其中关键人事安排，终究不过是“沼泽地”玩控的游戏。如文贵先生2021年2月2日第一次直播末尾时说，美国总统选举不过就是那几个家族利益的较量而已。而取决于利益偏向的此一时“正”彼一时“邪”的“沼泽地”永远在那儿，至少目前看，美国体制没有走出这一魔咒的有效解药。不仅如此，美国国民以及世界，也明明白白看清了这一点，甚至也终于明白，那正邪无定数的“沼泽地”，不仅把控着美国本身，也借重美国特有的地位和资源，遇正依正、遇邪附邪，吸食着这整个世界！不知你信不信反正我相信：幻灭之心人皆有之。
+另外一个，亲爱的兄弟姐妹们，看看现在邻国家，越南、缅甸、柬埔寨、菲律宾、马来西亚、新加坡、印度、尼泊尔、韩国，除了北朝鲜之外，当然包括台湾，任何国家，就包括今天闹事杀人的缅甸，中国人宁可去那也不愿意呆在国家。你说这共产党现在玩到什么程度了？
 
-其可悲乎？当然可悲。但与其说是悲哀，更毋宁说是一种悲凉。美国作为曾经众心所向甚至仰仗的人类文明高地的堕落，是人的美好寄望的空落，某种程度也是美好本身的堕落，是整体人类的人性的自我悲愧，与自我真善之信度与稳固度的灵魂拷问——这拷问中处处刻写着绝望的悲凉的绝望。
+Moreover, dear brothers and sisters, look at the neighboring countries, including Vietnam, Burma, Cambodia, Philippines, Malaysia, Singapore, India, Nepal, and South Korea, basically every country except North Korea, and of course including Taiwan, and even Burma where just had a coup and people got killed, but Chinese people would prefer to go there rather than stay at home in mainland China! Look how far the CCP has gone?
 
-**二、病因剖析**
+大家你们相信共产党能把中国治理得更好吗？你们觉得中国共产党能把中国治理的更像欧洲，更像美国，或者他们用语言中形容的西方，没落的西方吗？一千年都不可能。你觉得共产党能把中国现在一年20%、30%维稳的经济一直持续下去吗？你觉得共产党能让14亿中国人过上更加美好富有的生活吗？俺绝对的不相信。
 
-原因之一：贪婪
+Do you believe that the CCP can do a wonderful job of governing China better? Or do you think the CCP can make China more like Europe, America, or any country in the West, which, according to the CCP’s propaganda, are declining? Not in a thousand years! Do you believe China’s economy would be sustainable with 20 to 30 percent GDP spending on “national security” by the CCP? Do you think the CCP is capable of making 1.4 billion Chinese people live a better and happier life? I absolutely do not believe it!
 
-何谓贪婪？求取过度之谓贪，欲求超过合理限度尤其影响到他她人利益即为贪欲，贪欲指向财与物即通常之谓贪婪。贪婪之罪在于：占有欲、私心膨胀与手段非正义性。人类生生不息，欲求永无止境，贪欲与贪婪附着欲求而生，又岂能独自安歇。人性贪婪，是贪瞋痴慢疑肉身人类自古及今时至当下，从不曾挣扎得出的沼泽。
+这帮老流氓，如果他们相信，他们家人不都移民到这些国家去了，如果他们相信，就不让马云的蚂蚁金服在海外上市了，拿钱跑了，卷钱走人了。如果他们相信，他们就不会那么疯狂了。
 
-什么“沼泽地”大佬操纵选举，一切的一切，包括其中诸如计票公然且大规模舞弊造假，法官不作为，警察乱作为，官员睁眼说瞎话，新闻媒体肆意扭曲事实，社交媒体毫无掩饰地打压封锁言论，有势力甚至是拿共产党冠状病毒和无辜人命做要挟和做文章，以及社会上各种闹腾，如此等等，说到底也就“利益”二字驱使，“贪婪”二字作妖。
+These old rascals, if they believed in themselves, they wouldn’t have sent their family members overseas! If they had confidence, they wouldn’t have allowed Jack Ma’s Ant Financial Services to be listed overseas and allowed them to take the money and run away! If they believed so, they wouldn’t have been so crazy!
 
-而且，如若不是人性根子里的贪婪，共产党何以能在民主法治根基深厚、信仰广泛的美国如此轻易得手。共产党的邪恶在于，它利用并充分调动了是人皆有的贪婪，并让堕落者见识并体味到，通过贪婪之利，他她们进而可以得以满足的其它种种邪恶贪欲，如性，如器官移植，如……。又或毋宁说，并非绝对是共产党挑动了卖美贼贪婪的神经，而是美国的贪婪之徒与共产党沆瀣一气，相互利用，借彼此之手，追逐着各自私欲以至邪恶的目标。
+现在美国…对美国施压，他千万别停止，他把美国的这个炸弹“嘣”给引爆了，对咱新中国联帮才是好事。你们不知道兄弟姐妹们，全世界科学界、文化界、宗教界、军事界，只有两话题，没有任何话题：这是共产党制造的病毒，对全人类、全世界的危胁；第二个话题，到低他们会把美国什么时候给引爆？他们俩什么时候打起来？兄弟姐妹们，这才是核心。世界的人，绝大多数人都比共产党聪明，一定要记住这话，绝大多数人没有他们恶毒，绝大多数人比他们聪明。
 
-纵观横看包括美国2020总统大选的我们这世界，因为贪婪，如果缺乏根本的有效制约，借助于政治、经济、媒体、科技、军事、医卫、教育、信仰等等一切社会性途径和手段，竟可以衍生表征出各种道貌岸然甚或全然无耻的乱象！
+Now [the CCP is] putting pressure on the U.S. again. It will be good if they do not stop! And it will be good for the New Federal State of China if they ignite America liking igniting a bomb! Maybe you don’t know, brothers and sisters, that there are nothing but two hot topics in the scientific, cultural, religious, and military communities around the world: first, the virus created by the CCP is definitely a threat to all mankind and to the whole world; second, when will the “bomb” go off and when the two [the US and China] will start to fight? Brothers and sisters, these are the key points! You shall know that the majority of the people in this world are smarter than the CCP, far less vicious than they are, but certainly smarter than they are!
 
-所以，美国2020总统选举之病，本质是人类病，是贪婪的结果。又因为这美国在当下地球人类文明圈中的引领地位，因此这病也必然获得了它广泛的负面意义，表现出代表性的人类文明及人性广度与深度的震撼力和破坏力。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-原因之二：虚伪的政治正确
+视频来源：[https://gtv.org/getter/6033dac61958515902366f93](https://gtv.org/getter/6033dac61958515902366f93) (0:49-6:27)
 
-一方面，我们说美国的法治精神令人佩服。一个事一旦成为定局，无论其来路如何，都拒绝暴戾与暴力，而诉诸法律途径解决。另一方面，如这次美国总统选举，对方摆明了玩弄的就是你恪守的法律，而且如此光天化日，如此明目张胆，如此毫无遮掩，甚至毫无所谓地挑动社会乱局，明里暗里拿共产党冠状病毒和无辜国民数十万生命的毁灭，以及更多更多国人的安全健康做筹码而毫不悯惜，毫不心慈手软，你却大秀政治正确，绅士之道，甚至直接认栽，同时又一派正义凛然奋勇向前绝不退缩下定决心在下一个轮回必须扳回败局的样子……。怎么说呢——是不是太虚伪！不仅虚伪，更是对自己和自己所深爱的国家民族，对自己所信守的法治民主，太不负责任。
+鸣谢：
 
-文贵先生2021年2月28日直播里说，川普总统一如既往地“迟到”——当行动没行动，瞻首顾尾，优柔寡断，本质上是真正勇敢果决和大智慧的缺乏——唉，也就如此吧，亡羊补牢。作为旁人，我们还能说什么呢？虽然我真心好希望有能力守护着美国美国这人类文明的灯塔！
+[1] 感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/927225/](https://gnews.org/zh-hans/927225/)
 
-**三、警示**
+[2] 感谢 Mike Li、Antsee-GTV 和 Liberte 提供英文文本于：[https://gnews.org/934993/](https://gnews.org/934993/)
 
-1、真善狠
+* * *
 
-这里重点说“狠”。当面对种族灭绝、生化病毒毁灭人类、恐怖主义等等，当对方明白无误地踩在契约社会最终说理之地的法律上几乎毫无遮掩地拉屎尿尿，如洛克（John Locke）在《政府论》中说的“战争状态”，你还美其名曰克制、高尚、善良，还嘴里念念有词“正义可能迟到，但永远不会缺席”，却本来有此能力和机会，而惮于果断反击反制，拿不出一股应有的正义之“狠”劲来，如文贵先生多次说，那不过是给自己的懦弱找借口！笔者同时再次说，这是对自己、自己家人以至同胞的不负责任，是对自己自由民主法治正义信念和理想的亵渎。
+校对：【Isaiah4031】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
-2、人民是江湖
-
-我们未来联邦新中国，当引今日美国之困局以为戒，避免国家政治中，家族和小集团“沼泽地”利益垄断这一最深的民主政治埋雷，使无论政治、经济、媒体、科技、军事、医卫、教育等，还是关乎人灵魂的信仰，不被私利与贪婪所操纵，不被异化。真正做到如文贵先生2021年2月28日直播中所言：“人民是江湖，江山是人民的。”——这的确是一个人类有史以来的老课题，也是一个时代新课题。
-
-3、真正超乎私利的监督
-
-美国社会有监督吗？当然。三权分立制堪称人类一大创举，也的确最大限度地保障了一国之民主。然而，我们又眼睁睁看到，堪称迄今完美制衡的三权分立，竟这么轻易就栽倒在了几个“沼泽地”家族门口。这何其让人唏嘘和惊骇。原来三权制衡之外，还有这第四极“监督”力量——或与其不如说是“操纵”力量。谁又有能力和权力来监督这“监督”？文贵先生原先所设想的未来新中国联邦第三方国际监督力量如何运行？有否可能多年之后，当文贵先生本人懒于再关注世事，而蜕变为今日美国之困局？或者要不在政府权力结构制衡的基础上，切实保障将监督权真正还给组成社会的每一位私利的公民个人，使最彻底的个人私利考量变成最彻底的社会公利关切？也即上面第2条文贵先生所言，让人民真正做成“江湖”。也即密尔（John Stuart Mill）在《论自由》里所论及的理想状态：统治者与人民合为一体，统治者的利益和意志即为国民的利益和意志。
-
-4、做个假设
-
-最后，做个假设，一旦美国彻底堕落和被毁，这个世界真就没指望了。爆料革命和新中国联邦将不得不考虑，除了强大的经济实力，面对邪恶不择手段的共产党，在其彻底倒塌灭亡前，我们必须得同时拥有自己超强的军事力量，或至少拥有随时随地可以调用的死命的国际雇佣军，包括万一亿一被分裂后的美国兵力。
-
-（文章内容仅代表作者个人观点）
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-+1
++2
