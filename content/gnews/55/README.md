@@ -1,30 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻简评】中共北方陆军装备红旗-16中程防空导弹 疑本土备战
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/943411/)
+## 纽交所将摘牌中海油
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/945191/)
 
-#### 作者：军迷Wilson
+新闻来源：《路透社》| 作者：哈特能源(Hart Energy) | 发布时间：2021年2月26日
+翻译/简评：Marialu | 校对/审核：万人往 | Page：Daoiii
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Cover-1-1.jpg)Fig01:红旗-16中程防空导弹 图片来源：维基百科
+[!\[\]()!\[\](https://spark.adobe.com/page/orpJJrhNDFOso/images/bf69c004-3347-4618-84e1-29f6710f4df4.jpg?asset_id=2e20912d-9719-4724-bacd-3bc988d9fbdb&amp;img_etag=%220f20915cfc2542a1a64008fbc481d93e%22&amp;size=1024)](https://spark.adobe.com/page/orpJJrhNDFOso/images/bf69c004-3347-4618-84e1-29f6710f4df4.jpg?asset_id=2e20912d-9719-4724-bacd-3bc988d9fbdb&amp;img_etag=%220f20915cfc2542a1a64008fbc481d93e%22&amp;size=1024)来源网络 中海油集团
 
-据简氏防务周刊3月1日报道，中共中央电视台（CCTV）于2月28日透露，中共陆军北方军区第78集团军的一个防空旅装备了红旗-16中程防空导弹（简称红旗-16）中程地对空导弹（SAM）系统。这种发射系统被装载在卡车上，除了便于分散隐蔽，还可以随时、机动发射。但CCTV未透露红旗-16在78军的装备数量。
+***简评：***
 
-据报道，早在2011年就投入使用的红旗-16能够打击或拦截40公里以内的来袭飞机或导弹，而升级版红旗-16B的作战范围则扩大到大约70公里，最近交付的系统可能是红旗-16B。
+**纽交所开始将中共国国有石油生产商中海油摘牌（退市处理）。根据美国前总统川普去年11月签署的一项行政命令的更新，纽交所2月26日决定，正式将中共国国有石油巨头中海油退市。根据美国财政部1月27日发布的一份指导文件，对中海油的禁令将于3月9号生效，即在该公司被列入禁止在美投资的名单60天后。纽交所表示，中海油有权对退市决定提出上诉。**
 
-中共在红旗-16导弹研发上同时参考了美国、前苏联导弹技术，而其前身美苏导弹主要在海军作战舰艇中配备。中共自1999年研发时就有海战和陆上野战系统两个版本，据信大部分用于海军装备，因为军力逐渐增强的中共多年来认为本土受到攻击的可能性不大，但这种思维定式正在发生逆转。
+**川普政府去年对那些中共国公司采取行动，禁止美国对中共国公司的投资，特别是由中共军方拥有或控制的在美中概股。中共称这些企业为军民融合企业，幻想逃过一劫。**
 
-由CCTV首次公开报道驻防地不在东南沿海的北方军区配备红旗-16系统，给外界尤其是美国传递了一个重要的信息，即中共已经做好在本土作战的准备。言下之意是，中共在攻击台湾时，在缅甸和印度洋与美印交火时，或拒不承认发动超限生化战时，如果遭到美国及其盟友的打击，中共将扩大战争范围，可能打击对方本土，也作好了在本土被攻击的准备。
+**如今中海油即将从美国退市，无论拜登政府出于主动还是川普和共和党保守派的压力，都是在向中共邪恶政权宣战。希望接下来能看到更多中概股从美国退市，以此打击中共的经济，为中共经济的崩塌和中共政权的倒台增加砝码。纽交所曾在中共国三大运营商退市的问题上首鼠两端，导致事件两次反转，千万别小觑中共“蓝金黄”的力量，千万别给中共有喘息之机。中共多存在一天，都是对地球人多一份灾难。**
 
-表面上中共是在做常规战备，实际是在进行恫吓，最终目的是以战逼和、以战脱罪。 但是，只要中共发动超限生化战的罪名被国际认定，全球自动灭共大潮袭来，其所有邪恶企图就将被彻底粉碎。
+[!\[\]()!\[\](https://spark.adobe.com/page/orpJJrhNDFOso/images/2f14331b-1c1c-4db2-a097-9ddaa8282e5d.jpg?asset_id=5e6639eb-c31c-46af-bbf7-9266dbaf1d7c&amp;img_etag=%22f00131f5c16abe8c2e867cdc7ef30a43%22&amp;size=1024)](https://spark.adobe.com/page/orpJJrhNDFOso/images/2f14331b-1c1c-4db2-a097-9ddaa8282e5d.jpg?asset_id=5e6639eb-c31c-46af-bbf7-9266dbaf1d7c&amp;img_etag=%22f00131f5c16abe8c2e867cdc7ef30a43%22&amp;size=1024)
 
-新闻来源：
-[Air-defence brigade under PLAGF’s 78th Group Army receives HQ-16 SAM systems](https://www.janes.com/defence-news/news-detail/air-defence-brigade-under-plagfs-78th-group-army-receives-HQ-16-sam-systems)
+***原文翻译：***
 
-* * *
+## 纽约证券交易所(NYSE)开始将中共国国有石油生产商中海油摘牌
 
-*责任编辑：加拿大多伦多枫叶农场 文锦 
-校对：加拿大多伦多枫叶农场 约瑟
-发布：波士顿五月花农场 霹雳鼠年*
+纽交所表示，中海油有权对退市决定提出上诉。该交易所将把收到的任何上诉纳入其向美国证券交易委员会提出的申请中。
+[!\[\]()!\[\](https://spark.adobe.com/page/orpJJrhNDFOso/images/06dad3cf-1e81-445d-a218-e6dee67ee8b9.png?asset_id=0a7f3fee-fe69-4667-b489-2d0b8a75a2e9&amp;img_etag=%2294d8f2fa99df89ff61ee248e95006ae8%22&amp;size=1024)](https://spark.adobe.com/page/orpJJrhNDFOso/images/06dad3cf-1e81-445d-a218-e6dee67ee8b9.png?asset_id=0a7f3fee-fe69-4667-b489-2d0b8a75a2e9&amp;img_etag=%2294d8f2fa99df89ff61ee248e95006ae8%22&amp;size=1024)川普政府去年曾对某些中共国公司采取行动，试图加大对北京当局的压力。（资料来源：纽交所入口图片，由迈克尔·凯尔（Michael Kaercher）/Shutterstock.com网站提供）
+纽交所2月26日决定，根据美国前总统川普去年11月签署的一项行政命令的更新，开始正式将中共国国有石油巨头中国海洋石油集团有限公司退市。
 
-0
+根据美国财政部1月27日发布的一份指导意见，对中海油的禁令将于3月9日生效，即在该公司被列入禁止在美投资的名单之后60天。
+
+然而，该交易所并未透露完成退市的预定（目标）日期。
+
+川普政府去年曾对某些中共国公司采取行动以此加大对北京的施压，华盛顿方面称这些公司由中共国军方所有或控制。
+
+纽交所表示，中海油有权对退市决定提出上诉。该交易所将把收到的任何上诉纳入其向美国证券交易委员会提出的申请中，该申请将在完成所有程序后提交。
+
+（记者）未能立即联系到中海油置评。
+
+**🔗[原文链接](https://www.hartenergy.com/exclusives/nyse-begins-move-delist-chinese-state-oil-producer-cnooc-192647)**
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/orpJJrhNDFOso/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/orpJJrhNDFOso/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
++2
