@@ -1,37 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新证据表明美国政府和科学机构参与掩盖中共病毒起源真相
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/942458/)
+## 【热点播报】闫丽梦博士论文的挑战者出现了吗？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/943303/)
 
-【日本东京方舟农场】作者：青衣 素材采编：武汉老温 校对：文小律
+作者：纽约香草山美食部 蓝天大海
 
-近日，有最新证据显示，在中共病毒问题上，美国政府及科学家中存在有组织行为，与中共合作掩盖新冠病毒来源真相。
 
-在中共病毒爆发后，美国白宫科学技术政策办公室（OSTP）要求美国国家科学院、工程院、医药院三大院的院长，尽快对中共病毒来源进行研判，并做出回应。而三大院长在给白宫的回信中不仅支持病毒来自自然，并且引用的竟是武汉病毒研究所石正丽造假RaTG13病毒的那篇文章！同时三位院长居然还建议美国继续与中国，特别是中国科学院和武汉病毒研究所保持紧密合作！
 
-美国国家科学、工程和医学三大顶级科研机构为病毒自然来源说背书，而他们决策的依据来自美国一些相关专业领域的科学家意见。从这些科学家的名单中我们不难看出，他们大多都与中共有着长久的合作历史，并且后来在病毒问题上强力支持中共以及有关病毒自然起源的理论。他们中就包括了UNC公共卫生学院的拉尔夫·巴里克（Ralph Baric）、生态健康联盟的皮特·达扎克（Peter Daszak）、约翰·霍普金斯大学彭博公共卫生学院的吉吉·格伦瓦尔（Gigi K. Gronvall）等。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-就让我们来看看这其中几位：
 
-皮特·达扎克是我们最熟知的一位。就是他不久前带队前往武汉进行所谓病毒溯源调查。他大赞中共抗疫成果，坚决否认病毒出自武汉实验室，同时还否定了病毒非自然起源。他与中共有着长达15年极其密切的合作和利益关系。他也是之前在推特上发文表示要计划石正丽、王林发聚一聚，用白酒和卡拉OK庆祝一下的那位。 2020年3月7日，皮特·达扎克还和斯坦利·珀尔曼（Stanley Perlman）在英国医学杂志《柳叶刀》（The Lancet）上发表文章称：“我们共同强烈谴责阴谋论，这些阴谋论认为COVID-19并非自然起源。”
 
-拉尔夫·巴里克博士，北卡罗纳大学长期从事冠状病毒研究的学者，与武汉病毒研究所的石正丽关系密切。2015年时巴里克和石正丽在一个团队工作。他们的团队2015年在《自然医学》杂志上发表过一篇讨论蝙蝠冠状病毒可以出现在人类身上的科学报告。此外，早在2019年12月12日，巴里克就签署了一份协议，获得授权对”由美国国家过敏和传染病研究所与莫德纳公司共同开发和拥有的mRNA冠状病毒候选疫苗”进行评测。请注意，那个时候西方世界还几乎没人知道新型冠状病毒。
+![]()![](https://media.discordapp.net/attachments/721544615953432698/813596525384564787/image0.png?width=1083&amp;height=609)
 
-吉吉·格伦瓦尔（Gigi K Gronvall ）则是亲共阵营约翰·霍普金斯大学团队的成员，曾撰文对闫丽梦博士展示新冠病毒是实验室制造证据的文章进行污蔑。
+3月2日上午，路德访谈透露，香港大学研究冠状病毒的大佬，同时也是闫丽梦博士曾经的同事和领导，斯里兰卡人马利克（Malik）重出江湖，获任香港大学巴斯德研究所名誉所长。还记得去年四月底闫丽梦博士离开香港，安全抵达美国后不到十天，马利克突然宣布退休这件事吗？当时很多人都觉得奇怪。时隔九个月，他又突然回归，就更奇怪了。这是什么情况？中共是将他从斯里兰卡请到香港重点保护，还是想借他本人和香港大学在冠状病毒研究方面的重要地位，重新组织力量反击国际社会对病毒自然来源说的质疑？
 
-看明白了吗？就是这些与中共有着千丝万缕关系的人在帮助中共隐瞒病毒真相。正是有这些丧尽天良的科学机构和科学家的背书，才使得石正丽造假的RaTG13误导了世界，也影响了美国政策的制定。正是因为美国政府内部某些部门与美国科学界的部分成员相互进行桌底下的勾兑，同时毫无疑问也得到了一些国际商业资本以及他们所操控的媒体的帮助，他们联手掩盖了中共病毒起源的真相。在保护中共免于被追责的同时，也保护了他们自己的利益。然而，他们却将全世界置于极度危险之中，令全世界人民饱受中共病毒危害之苦。
+闫丽梦博士先后发表了两篇关于武汉冠状病毒来源的科学报告。报告以事实为依据，指出这次导致全球一亿人感染、一百多万人死亡的冠状病毒来源于武汉病毒研究所。它是一个以解放军在舟山蝙蝠身上发现的病毒为框架，经过功能增强型基因改造而成的人造病毒，是超限战生物武器。论文发表后，引起了巨大反响。同时，中共在世界范围内组织了反击：除了在媒体上发表了几篇文章外，还网罗了来自美国国家地理杂志、麻省理工学院、约翰·霍普金斯大学等多位学者，甚至还请出了哈佛大学肯尼迪学院肖恩斯坦中心主任琼·多诺万（Joan Donovan）和哈佛肯尼迪学院政治专业博士珍妮佛·尼尔森（Jennifer Nilsen）亲自撰写文章，反驳闫丽梦博士。但是，他们的反驳太无力了。他们就像事先约定好了一样，不去反驳闫博士科学报告中的科学论点，却异口同声谴责闫博士的政治动机和背后的政治力量。是你们讲的，科学的问题要用科学的方法来解决，现在你们讲不过科学了，就用讲政治代替。你们自己立约，自己违约，结果当然是无功而返。
 
-如今真相正被一点点揭开，当一切真相大白时，这些作恶者不止是被钉在耻辱柱上，更是要面对全人类最严厉的审判。
+怎么办呢？现下请出马利克——他可曾经是闫丽梦博士的领导。这一步棋有用吗？让我们拭目以待。
 
-注：本文仅代表作者观点
+编辑/校对/发稿：Irene木木
 
-参考链接：
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-1.[https://www.thegatewaypundit.com/2021/03/exclusive-new-evidence-shows-u-s-government-american-scientific-establishment-involved-cover-covid-19s-](http://1.	https://www.thegatewaypundit.com/2021/03/exclusive-new-evidence-shows-u-s-government-american-scientific-establishment-involved-cover-covid-19s-)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-2.[https://www.scribd.com/document/496518155/Email-Exchanges-Between-the-National-Academy-of-Science-and-the-Scientists#from\_embed](http://2.	https://www.scribd.com/document/496518155/Email-Exchanges-Between-the-National-Academy-of-Science-and-the-Scientists#from_embed)
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-3.[https://twitter.com/ScottFishman/status/1366416566217306117](http://3.	https://twitter.com/ScottFishman/status/1366416566217306117)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-0
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
+
++3

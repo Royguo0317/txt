@@ -1,28 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 克鲁兹: 我们必须采取措施反制中国共产党
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/942782/)
+## 【每日快讯】2/03/2021:世界联合以毒灭共、以钱灭共的大时代已经开始
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/943839/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+**制作:Cantonese工作室**
+**播报：【安妮】 资料整理：【闪电】【文依】【专业家庭煮妇 】海报制作：【小豆芽】【米线】 视频制作：【文德】上传:【星星】**
+**摘要:**
 
-
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2021年3月2日电/西喜社——**泰德·克鲁兹参议员周二发推称，中共国是美国下个世纪最大的地缘政治威胁。
-
-所以我们必须采取措施反制中国共产党。
-
-
-
-> China is the greatest geopolitical threat to the United States for the next century.
-> 
-> That’s why we must take steps to counter the Chinese Communist Party. [pic.twitter.com/qqdQRw4nOa](https://t.co/qqdQRw4nOa)
-> — Senator Ted Cruz (@SenTedCruz) [March 2, 2021](https://twitter.com/SenTedCruz/status/1366815627218980867?ref_src=twsrc%5Etfw)
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
-
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-4.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2-8.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-4.jpg)
+4
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4-4.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/5-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/0-1.jpg)
 0
