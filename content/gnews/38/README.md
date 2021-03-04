@@ -1,61 +1,82 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新华社要把地球管起来 — 看中共日益扩张的话语权
-` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/946654/)
+## 47名香港反对派人士遭‘国安法’起诉
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/946836/)
 
-作者：左媛
+翻译：康州盘古农场-Bruce
+校对：康州盘古农场-Mike Li
+编辑：康州盘古农场-Antsee-GTV
 
-1955年12月，毛泽东对新华社社长吴冷西说：新华社要把地球管起来，要把记者派出去。接受中央的指令，新华社把大量记者派往亚非各国，在“第三世界”树立起中共的绝对地位。斯大林死亡之后，毛泽东不再满足于做第三世界的领袖，而是要夺取世界革命的领导权。新华社不仅要做共产党的喉舌，对内宣传党的政策和官方话语，对外也要把毛泽东和共产党的声音传遍亚非欧。
+![charge]()![charge](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-04-at-17.18.55.png)*《CNN》视频报道截屏*
 
-“讲好中国故事”不是习近平的发明创造，不过是捡起了毛的臭鞋子，重新穿起来。
+据《CNN》多位记者联合报道：
 
-早在49年之前，中共就把全中国划成“红区”和“白区”，共产党统治的称为“红区”，国民党民国政府管理的称为“白区”。当时的宣传形势就是一边倒：红区的报刊可以在白区自由发行，但白区的报刊绝对不可以在红区发行。这就是共产党的专制本色强盗逻辑：我可以你不可以！欧美的报刊在南京上海等大城市（白区）畅通无阻，但在红区却不见踪影！
+香港(CNN)——周日，香港当局指控47名反对派[活动人士](https://www.cnn.com/2020/12/17/asia/hong-kong-exiles-and-inmates-dst-hnk-intl/index.html)违反了该市的《国家安全法》，这是自去年北京[强制实施](https://edition.cnn.com/2021/01/05/asia/hong-kong-national-security-law-intl-hnk/index.html)该法以来[最大规模](https://edition.cnn.com/2021/01/05/asia/hong-kong-national-security-law-intl-hnk/index.html)的应用。
 
-共产党治下的民众靠什么了解外围的世界呢？当然是新华社，党的喉舌。报刊上登什么，怎么登，登多少，都由党“一言堂”说了算。
+这些被控“阴谋颠覆”的人是上个月因组织、策划和参加去年7月香港民主反对派初选而被捕的53人，其中许多是著名的前议员、活动人士和区议员。
 
-共产党的金钱和宣传很快就显出效果来。非洲和东南亚的共产党组织飞速发展，他们需要中共的各种援助，中共需要他们在国际舞台上为中共帮腔说话，也就是通过亚非拉国家把中共的声音传出去，配合新华社的刻意宣传，一唱一和，打造中共国的正面国际形象，哪怕国内百姓饿死几千万斗死几千万斗残几百万……这是毛时代的话语权。
+该活动旨在确定最强的民主派候选人，以便在计划于去年9月举行的立法议会选举中出场，当时反对派阵营希望赢得历史性的多数席位。
 
-![](https://lh6.googleusercontent.com/BkEHbSHTgradT3QzDTbY3kkeIomsi6Ik6uRb67LvCjvXyKmgIMhvcv4tSjK_fSVtK52_CqwcThJTkzdChrZCXZ-CkUUkeH77ahLRLHWOoE-PPZw2TdDsZSLRLEaaUV0icnd-ox5G)（图片来源：Epoche Times)
+然而，由于冠状病毒大流行，这些选举最终被推迟，但在此之前，多名民主党候选人被取消了资格——并发出警告说，那些参加初选的人可能违反了当时已经在数周前的出台《安全法》。
 
-进入80年代，邓小平深知靠亚非穷人是不可能壮大中共的，于是来个180度转向，面对欧美，“拥抱”欧美，那个曾经被中共长期宣传为“腐朽没落、垂死挣扎的资本主义”瞬间成为中共的“香饽饽”。中共派出大量的公派学生留学欧美，派出大量的红色子孙居留欧美，比如前外交部长乔冠华的继女洪晃，在1974年年仅12岁就被以“高干子弟小留学生”身份派往美国学习，成为最早接受地道美国教育的“太子党”之一。1978年，年仅16岁的洪晃回国，居然任职中国国际广播电台，中共话语权被牢牢掌握在自己子孙手里。乖乖！得有多牛才能如此年少却有如此高就，不就是得益于中共红色生殖器关系吗？
+周日被起诉的39名男性和8名女性，年龄在23岁至64岁之间，他们被拘留，将于周一在西九龙裁判法院出庭。根据原来的保释协议，他们在4月初之前不需要向警方报到。但在本周早些时候，这群人被要求在周日向警方报到。
 
-![](https://lh4.googleusercontent.com/nV8Jwu2s2DEELwK-riyi2QIEhIb8r7Kalu6R6YBq_XdAxEtTADW6WkHB6xaWIqJpetM36lzwUyOhPnUvFJNXzkWHAq_HkvdluJT5BsFFd-Rdpi58Wh8Zu8jpwUlJ2m7ztZBcg4nr)**(图片来源：中国社会科学院杂志社**）
+2月28日，香港大学法学副教授、活动团体 “用爱与和平占领中环”（OCLP）的联合创始人戴耀廷（Benny Tai）在香港马鞍山警署报到。
 
-江朱时代，中共依靠话语权混入了世界贸易组织，“闷声发大财”的声音越来越高昂了；胡温时代，孔子学院和孔子课堂像一朵行走的“罂粟花”自由开遍了世界各国，毫不夸张地说：有人的地方就有孔院孔堂。曾经势不两立的“社会主义”和“资本主义”在中共话语权的强势攻击下，竟然“完美交融”在一起了。到了习近平时代，孔院的发展进入高潮，再加上习特色的“一带一路”，“孔院”文化搭台，“带路”经济唱戏，中共就像一只螃蟹，在偌大的地球上横行霸道，却还带一个“和平”的面具。
+周日的指控标志着国家安全法的适用范围全面升级，此前只有少数人根据该法被起诉并送上法庭。
 
-十八大后，习近平多次强调“要努力提高国际话语权”。你看，早就不满足于“文化搭台和经济唱戏”这样的配角了，要唱主角，要当导演，还要写剧本呢，要“编剧导演主角儿”一肩挑，“教练裁判运动员”一人上！不论是政治还是文化，不论是经济还是抗疫，不论是反腐还是扶贫……习近平都是号称“要为世界指明方向”“为世界提供中国方案”……如此看来，中共大概认为自己体量壮，身体肥，嗓门粗，喇叭大，就可以号令天下，意淫“万国来朝”！
+该法将分裂国家、颠覆、恐怖主义、勾结外国势力等行为定为刑事犯罪，根据该法审理的案件可由香港警方和国家安全法庭的专属部门处理。
 
-![](https://lh3.googleusercontent.com/mTrIS0tMIZQlwz44KbTv_8XKmgENIdFBKEpNh2IwHJr66w9pndCb3wZBThZ9feyzXIEhWTSuRKlzzbLHV-KbNgj8fR44X-fs165G1cAcvBaje8uzqN3hrv7MocR6DwN2J7Xk8Uug)光明网-2017-2-23报道： “**人民日报首创外媒定制推送外宣方式，2016年向国际主流媒体定制推送700余篇原创作品；新华社增强对外供稿能力，2016年日均对外发稿量增加至4500条；中国国际广播电台遍布全球的100多家本土化整频率电台，覆盖了50多个国家的约5亿人口**。”
+香港特首林郑月娥等人此前曾承诺，该法的效力有限，只针对少数边缘活动人士。
 
-中共宣传刻意“讲好中国故事”，但从来不允许别人讲中国真故事：真实的拆迁，真实的驱离，真实的关押，真实的屠杀，真实的镇压，真实的声音……这些故事，从来不允许别人讲。它的所谓“讲好中国故事”其实就是歌功颂德，讲共产党的伟大，但绝不能说它的虚伪；讲共产党的“全民脱贫”，绝不能算它的农民最低养老金每年960元；讲共产党的“全民抗疫”，绝不能公开它用焊铁封门封户的绝情。当然，中共的话语权方式早就与时俱进了：“蓝金黄”西方媒体如CNN等，替中共发声帮中共洗地；“蓝金黄”西方权贵如亨特拜登，让中共在欧美为所欲为；“蓝金黄”各种国际组织如WHO，让这些组织与他沆瀣一气，狼狈为奸！这样的话语权方式，在CCP病毒和美国大选中更是表露无遗，它日益扩张的话语权给世界带来的是巨大的死亡和暴乱！共产党，你真牛！你真横！你真霸道！
+数百人周一聚集在该市西九龙区的法院外抗议，他们举着横幅，高呼口号，这些口号在2019年政治动荡期间流行，但现在根据新的国家安全法被视为 “颠覆”。
 
-共产党要把地球管起来，爆料革命要把中共消灭干净；共产党把假恶丑传遍世界，新中国联邦要把中共真实的恶言恶行传遍天下。中共作恶多端，谎话说尽，坏事做绝，不仅剥夺了中国百姓的话语权，还要侵蚀欧美各国的话语权！
+一个标语呼吁当局释放 “所有政治犯”。可以听到示威者高喊 “光复香港，时代革命”和 “没有暴徒，只有暴政”。
 
-多行不义必自毙！这一定是中共的不二归宿！中共自绝于人类的时候，新华社就是那陪葬的角儿！
+![protestor]()![protestor](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-04-at-17.19.47.png)*亲民运人士在香港西九龙法院外为被捕的民运人士打手势表示支持 – 图片来源：《CNN》*
 
-2021.3.3于纽约
+这些指控是在香港政府着手对公职人员提出新的要求后不到一个星期提提起的，包括他们必须宣誓效忠并接受北京对香港的统治。
 
-**【参考来源】**
+政制及内地事务局局长曾国卫说，任何没有宣誓的人——或被认为是以不真诚的方式宣誓——将被立即取消资格，并在未来五年内禁止参加选举。
 
-链接1： **沈洪为纽约时报中文网撰稿  【穆广仁：新华社如何“把地球管起来”？】**[https://cn.nytimes.com/culture/20130902/cc02muguangren/](https://cn.nytimes.com/culture/20130902/cc02muguangren/)
+此前，香港驻最高立法机构的唯一代表表示，只有 “坚定的爱国者 “才能在香港担任权力职位。
 
-##### 链接2： **人民日报新知新觉：努力提高中国国际话语权**[http://opinion.people.com.cn/n1/2017/0516/c1003-29277135.html](http://opinion.people.com.cn/n1/2017/0516/c1003-29277135.html)
+欧盟驻香港和澳门办事处周日表示，这些指控 “令（欧盟）非常关注” 。
 
-**链接3：光明网的无耻策略：“推进传播创新 讲好中国故事”**[https://wenyi.gmw.cn/2017-02/23/content\_23807303.htm](https://wenyi.gmw.cn/2017-02/23/content_23807303.htm)
+“对47名民主人士的指控是#欧盟非常关注的。这些表明，在#香港，合法的政治多元化将不再被容忍。我们敦促当局根据#BL和#ICCPR，遵守他们对基本#自由和法治的承诺，” 欧盟办事处在推特上说。
 
-【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+![waiting]()![waiting](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-04-at-17.20.07.png)*支持者在香港西九龙法院外等候 – 图片来源：《CNN》*
 
-【**责任编辑**】：bingo
+为什么要惩罚初选？
 
-**欢迎战友加入旧金山金喜准农场**
-
-[旧金山金喜准农场 GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
-
-[旧金山金喜准农场 Discord](https://discord.gg/QQzQ79grEA)
-
-[旧金山金喜准农场 Twitter](https://twitter.com/sf_himalaya)
+初选是世界各国民主国家的正常功能。在香港投票时，拜登胜出的美国民主党初选还在进行。香港民运人士过去举行这样的投票，是为了配合对手亲北京阵营的组织和纪律性，避免分裂支持。
 
 
 
-+3
+> Charges against 47 pro-democrat is of great concern to [#EU](https://twitter.com/hashtag/EU?src=hash&amp;ref_src=twsrc%5Etfw). These make clear that legitimate political pluralism will no longer be tolerated in [#HongKong](https://twitter.com/hashtag/HongKong?src=hash&amp;ref_src=twsrc%5Etfw). We urge authorities to abide by their commitments to fundamental [#freedoms](https://twitter.com/hashtag/freedoms?src=hash&amp;ref_src=twsrc%5Etfw) and the rule of law, as per the [#BL](https://twitter.com/hashtag/BL?src=hash&amp;ref_src=twsrc%5Etfw) and [#ICCPR](https://twitter.com/hashtag/ICCPR?src=hash&amp;ref_src=twsrc%5Etfw)
+> — European Union Office to Hong Kong and Macao (@EUinHKandMO) [February 28, 2021](https://twitter.com/EUinHKandMO/status/1365966836630626306?ref_src=twsrc%5Etfw)
+
+
+
+—— 欧盟驻香港和澳门办事处（@欧盟驻香港和澳门办事处）2021年2月28日。
+
+对47名民主派人士的指控是[#欧盟](https://twitter.com/hashtag/EU?src=hashtag_click)非常关注的。这些表明，合法的政治多元化在[#香港](https://twitter.com/hashtag/HongKong?src=hashtag_click)将不再被容忍。我们敦促当局按照[#BL](https://twitter.com/hashtag/BL?src=hashtag_click)和[#ICCPR](https://twitter.com/hashtag/ICCPR?src=hashtag_click)的规定，遵守其对基本[#自由](https://twitter.com/hashtag/freedoms?src=hashtag_click)和法治的承诺。
+
+然而，香港保安局局长指责那些组织7月初选的人试图通过赢得立法机构的多数票来否决政府法案，从而 “瘫痪香港政府”。
+
+在国家安全法出台之前，投票反对预算案和迫使行政长官辞职是合法的，类似于许多民主国家促使大选的 “ 不信任投票”。香港基本法中也有应对此类事件的规定，使行政长官能够召集新的立法选举，并通过初步预算，使政府能够继续运作。
+
+当几十名前议员和反对派活动人士1月被逮捕时，现任美国国务卿的安东尼·布林肯说：“ 对民主示威者的大规模逮捕是对那些勇敢倡导普世权利的人的攻击。”
+
+“ 拜登—哈里斯政府将与香港人民站在一起，反对北京对民主的打压，”布林肯补充说。
+
+英国外交大臣多米尼克·拉布（Dominic Raab）1月份警告说，英国政府“不会在香港人民的权利和自治权被践踏的时候另眼相看”。
+
+“当中共首次强制实施《国家安全法》时，他们说这是为了给香港带来一定的稳定。从这些行动中可以清楚地看出，其实它是为了镇压政治异议。”拉布在伦敦接受CNN采访时说。
+
+原文作者：艾瑞克·张（Eric Cheung）， 詹达·申姆（Jadyn Sham）, 海伦·瑞根（Helen Regan）, 艾莉·巴纳德（Ally Barnard ）和 詹姆斯·格里菲思（James Griffiths）
+
+文章链接：[https://www.cnn.com/2021/02/28/asia/hong-kong-lawmakers-charged-nsl-intl-hnk/index.html](https://www.cnn.com/2021/02/28/asia/hong-kong-lawmakers-charged-nsl-intl-hnk/index.html)
+
+0
