@@ -1,22 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 波兰创下自11月以来最严重的CCP病毒感染病例数
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/945466/)
+## 习近平和其他中共领导人未接种国产疫苗
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/946413/)
 
-- 编辑：Victor Torres
-- 翻译：gokuabuela
-- 发稿：Ranting
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-04_07-33-19.jpg)[sg.news.yahoo.com](https://sg.news.yahoo.com/china-covid-19-vaccine-race-080405463.html)
+布赖特巴特新闻网 (Breitbart News)报道，作为同时推进疫苗外交的中共和印度，相比印度总理纳伦德拉·莫迪(Narendra Modi)上周在印度巴拉特生物技术公司(Bharat Biotech)开始生产印度自主研发的中共病毒疫苗后，在镜头前给自己公开接种疫苗，习近平和其他中共领导人未曾接种任何中共国产疫苗。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+当面对中共党书记习近平、国务院副总理李克强或其他高级中共官员是否已经接种中共疫苗,中共外交部发言人华春莹推诿地回答说，“我现在不能回答这个问题。疫苗是我们预防疫情、最终战胜疫情的子弹。”
 
-**西班牙2021年3月3日电/西喜社——**据ABC新闻3月3日报道，波兰卫生当局周三报告了近15700例新的CCP病毒病例，这是该国自11月下旬以来创记录的高数字，几乎是周二公布数据的两倍，这引起了人们对疫情演变的警惕。
+中共疫苗的支持者菲律宾总统罗德里戈·杜特尔特(Rodrigo Duterte)“真诚”地赞美和感谢第一批来自中共的科兴疫苗，并发誓他将访问北京“和习近平握手并亲自感谢他的捐赠。”但他同时承认,他本人不会接种科兴疫苗,因为他的医生反对。
 
-具体而言，波兰政府报告了15,698个新的阳性病例，从而使总计感染人数超过172万。据卫生部统计，至今已有4.43万多人因CCP病毒而丧生，而周三的死亡数字比前一天增加309人。
+这位反复无常的菲律宾领导人声称，他计划使用另一种中共疫苗，而他的选民对杜特尔特购买中共产品的动机深表怀疑，因为他对中共疫苗没有信心。类似的情况也存在于巴基斯坦，该国公民表示，他们不相信政府大张旗鼓地从北京购买的疫苗。
 
-**新闻来源：[ABC新闻](https://www.abc.es/sociedad/abci-coronavirus-espana-directo-casi-170-millones-ninos-llevan-sin-clases-presenciales-pandemia-202103030613_directo.html)**
+美国之音援引观察人士的观点称，习近平在中欧和东欧国家推动“疫苗合作”的努力受到了“冷淡对待”，尽管其中一些国家仍然从中共购买疫苗。习近平和中共领导人拒绝接种国产疫苗作表率，让中共国公民对疫苗也持有怀疑态度。在一些调查中，只有四分之一的中共国民众表示愿意接受科兴或国药的疫苗，在受过高等教育的人和医务工作者中，接受率尤其低。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
+在目前全球销售的主要产品中，科兴疫苗是公认的对抗感染效果最差的产品，测试的有效性为50.38%。中共官方媒体称其“足够好”，并坚称其真正的价值在于防止严重中共病毒病例住院治疗。
 
-0
+分析师认为，经过多年中共制药丑闻和疫苗副作用事件，中共缺乏“开放性和透明度”的特征已经侵蚀了公众对中共疫苗计划的信任。
+
+参考链接：
+
+[https://www.breitbart.com/national-security/2021/03/03/xi-jinping-notably-missing-from-chinas-vaccine-efforts/](https://www.breitbart.com/national-security/2021/03/03/xi-jinping-notably-missing-from-chinas-vaccine-efforts/)
+
++3
