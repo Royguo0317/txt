@@ -1,53 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 民调显示，美国人对中共国的好感率降至历史最低
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/947875/)
+## 蓬佩奥不排除2024年竞选总统并称“随时准备战斗”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/948003/)
 
-*新闻来源：《国家脉动》| 作者：娜塔莉·温特斯(Natalie Winters) | 发布时间：2021年3月3日*
+俄罗斯莫斯科喀秋莎农场 文雪
 
-*翻译/简评：helloworld | 校对/审核：万人往 | Page：拱卒*
+编辑上传 水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/P.jpg)slate.com
+前国务卿蓬佩奥（Mike Pompeo）先生3月3日接受福克斯新闻（Fox News）“汉尼迪”（Hannity）节目采访，他总结拜登的外交政策为“首先责难美国”，他称中共是美国最持续的威胁。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/833c65cc-2fb1-43a1-80c8-9609333751ce.jpg?asset_id=05244fe8-fbb4-41b6-9bd3-5a37db487d0f&amp;img_etag=%2259fe2ccfd57b312d62a97817dddd3ae3%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/833c65cc-2fb1-43a1-80c8-9609333751ce.jpg?asset_id=05244fe8-fbb4-41b6-9bd3-5a37db487d0f&amp;img_etag=%2259fe2ccfd57b312d62a97817dddd3ae3%22&amp;size=1024)
+如果前总统唐纳德·川普不在2024年寻求竞选白宫的话，前国务卿迈克·蓬佩奥周三不排除竞选总统的可能性，并称“随时准备战斗”。
 
-**简评：**
+蓬佩奥对主持人肖恩·汉尼提说，”我非常关心美国，你和我在保守派运动中已经有很长一段时间了。我的目标是继续专注于此。”
 
-中共国的行为已引起共愤。中共国对维吾尔族进行了种族灭绝，对美国发动了信息和经济战，产生并传播了新冠肺炎。作恶的结果是，美国对中共国的总体赞成度达到了20%的历史最低水平。
+汉尼迪表示，他会把蓬佩奥的回答视为 “强烈的可能”，蓬佩奥回应说”这很完美。”
 
-共和党和保守力量已对中共的邪恶、威胁和罪行达成了共识，而现在需要统一民主党、自由派的民意。拜登上台虽然有过和中共国勾兑、淡化威胁的想法，但在铁一般的证据面前，只能选择与中共国对抗。而没有“逢川必反”的政治需要后，民主党和左派势力必将冷静面对现实，充分认识到中共才是美国最大的威胁。
+汉尼蒂追问这位川普前内阁成员关于拜登政府治下美国面临的威胁。蓬佩奥认为，在民主党人的领导下，外交政策从 “美国优先 “变成了 “首先责难美国”。
 
-中共历来利用美国的钟摆效应。而在美国左右即将达成灭共共识的现在，中共对美国的牵制和利用将再无可能。当美国为首的欧美国家统一民意，下决心出手之时，中共的灭亡也将不可避免。
+蓬佩奥在讨论拜登如何被世界领导人看待时表示了担忧。
 
-**原文翻译：**
+他说，”世界各国领导人和我的同行们都在密切关注着，全世界的高级领导层，他们观察着每一个发言，观察着每一个动作。他们观察拜登政府的模式是什么样的，拜登政府在困难时期和真正面临压力时表现出什么样的行为。”
 
-# 
-**民调：民主党对于犯有种族灭绝的中国共产党表达赞成态度的可能性比共和党高三倍**
+蓬佩奥将川普与媒体成员的不断接触与拜登总统时期的缺乏接触做了比较。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/b0b2d335-d0d3-4d17-9aac-c1ec865852b5.jpg?asset_id=75ffc84b-9530-4756-ac5e-8e560cfb6f27&amp;img_etag=%222d43e595bc9b1d557d704367e0d08e2a%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/b0b2d335-d0d3-4d17-9aac-c1ec865852b5.jpg?asset_id=75ffc84b-9530-4756-ac5e-8e560cfb6f27&amp;img_etag=%222d43e595bc9b1d557d704367e0d08e2a%22&amp;size=1024)
+他说，“川普总统会露面，他一直与媒体交谈，可能比任何一位现代总统都要多，他在外面与媒体就广泛的话题进行接触……当一个领导人做不到这一点时，当他们不能接受问题时，当他们不能解释他们所从事的政策时，当他们似乎躲在背后——无论是工作人员或者只是他们没有时间。领导人在关注这一切，他们会感到奇怪。”
 
-**盖洛普（Gallup）进行的一项新民意调查显示，美国人对中共国的好感率达到了历史最低的20%，而民主党人对这个共产主义国家持赞成态度的可能性是共和党人的近三倍。**
+蓬佩奥继续说道，”当美国表现出软弱的时候，就会给我们在世界各地的士兵、空军和海军陆战队带来真正的风险。软弱催生战争，实力决定了对手是否会被威慑，也决定了盟友是否真地愿意在最困难的时候和我们站在一起。”
 
-2月初的民意调查显示，只有10%的共和党人、22%的独立党人和27%的民主党人“对中共国持赞成态度”。
+蓬佩奥还说，中共国对我们的基本生活方式构成了 “最持续的威胁”，并敦促拜登政府认识到这一点。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/4b037451-6245-4004-bd03-b7d8c5c395eb.png?asset_id=f0ae122d-e1da-4ef8-957e-afb6cb35fe8c&amp;img_etag=%2297498842a783b1c847f88b3372fbb207%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/4b037451-6245-4004-bd03-b7d8c5c395eb.png?asset_id=f0ae122d-e1da-4ef8-957e-afb6cb35fe8c&amp;img_etag=%2297498842a783b1c847f88b3372fbb207%22&amp;size=1024)
+他说，”我希望本届政府能最认真地对待这一威胁，美国人民应该得到这个，我知道他们会要求这样做。”
 
-新的民调数字明显下降，分别是13%、17%和8%。
+蓬佩奥先生在离任国务卿之后还一直活跃在媒体上和政治活动中，他持续推进美国优先的政策，持续传播中共对美国及全世界的威胁，指控中共对维吾尔族实行了种族灭绝和反人类罪，公开指称此次中共病毒疫情是由中共造成的、病毒来自中共武汉P4实验室，要对中共追责。他一直敦促拜登政府直面并正确认识中共对美国的威胁，并一直继续推动拜登政府继续前川普政府的政策。
 
-中共国对维吾尔族进行了种族灭绝，对美国发动了信息和经济战，产生并传播了新冠肺炎。这直接导致了民调所显示的结果，美国对中共国的总体赞成度达到了20%的历史最低水平。
+蓬佩奥先生是美国真正的爱国者和世界的英雄，在全世界范围内游说加深人们对中共威胁和恶行的认识。他一直站在灭共正义的一边，站在爆料革命和新中国联邦一边，坚定地把中共和中国人区分开。感谢蓬佩奥先生为灭共所作的努力。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/1e887850-4e42-4eee-bed3-550e2a4a76e6.png?asset_id=946dbed9-5ba8-4dcf-ab2c-fd1f5edb65d0&amp;img_etag=%22bf8b3041ebd2ffac0b856becd05f584a%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/1e887850-4e42-4eee-bed3-550e2a4a76e6.png?asset_id=946dbed9-5ba8-4dcf-ab2c-fd1f5edb65d0&amp;img_etag=%22bf8b3041ebd2ffac0b856becd05f584a%22&amp;size=1024)
+参考链接：
 
-该民调统计自1979年开始追踪。在中共国政府镇压天安门广场的示威者之后，1989年8月，该数据也出现了类似的迅速下降。
-
-[原文链接](https://thenationalpulse.com/breaking/dems-ccp-favorability-vs-republicans/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[https://www.foxnews.com/politics/pompeo-wont-rule-out-2024-presidential-run](https://www.foxnews.com/politics/pompeo-wont-rule-out-2024-presidential-run)
 
 0
