@@ -1,43 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】以色列要求旅行者佩戴“自由手镯”追踪装置
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/947990/)
+## 普京任命联邦安全局第一副局长
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/948549/)
 
-作者：纽约香草山写作组 四季
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
-【[HUMANSAREFREE](http://humansarefree.com/2021/03/israel-implements-freedom-bracelet-tracking-device-for-travelers-for-a-virus-with-a-99-95-survival-rate-for-people-under-70.html)网站】3月3日报道，以色列已经推出了所谓的 “自由手镯”，这是一种追踪装置，将作为对任何从国外进入以色列的旅行者进行为期两周隔离的替代方法。
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-该设备看起来像一块智能手表，它是由一家名为SuperCom的公司生产，该公司曾与几个国家的政府合作开发针对囚犯的跟踪和监控系统。
+编辑上传 水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/F-1.jpg)俄联邦安全局外景 图来自istockphoto.com
+03月04日，联邦安全局（FSB）已经任命了第一位副局长谢尔盖·科罗廖夫（Sergey Korolev）上校。两位接近该机构部门的消息人士告诉RBC。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-04-121336.jpg)
+据RBC的一位谈话人说，弗拉基米尔·普京（Vladimir Putin）的任命令是在2月24日签署的，当时总统参加了在中央办公室举行的联邦安全局高层会议。在新的任命之前，科罗廖夫领导该部门的主要部门之一经济安全处。消息来源还指出，该处的第一副处长谢尔盖·阿尔帕托夫担任联邦安全局经济安全处（SEB）的临时负责人。此项任命据称对普京而言非常重要。
 
-*图片来源：HUMANSAREFREE*
+RBC向联邦安全局公共关系中心发出了询问。在加入特勤局中央办公室之前，科罗廖夫是联邦安全局圣彼得堡和列宁格勒地区经济安全处的雇员。2007年至2011年，他是国防部长阿纳托利·谢尔久科夫（Anatoly Serdyukov）的顾问。此后，他被任命为联邦安全局内部安全局（CSS）局长。
 
-SuperCom公司的首席执行官奥丹·特拉贝尔西（Ordan Trabelsi）表示，旅行者可以自由的选择，是被关在军方管理的隔离酒店里两周，还是带上追踪手镯。之所以称为它为“自由手镯”，是因为不是把任何人关起来，而是给他们回家的机会，但如果他们试图离开自己的家，就会被政府追踪。
+正是在科罗廖夫的领导下，第六军团成为联邦安全局内最重要的单位。该处雇员为圣彼得堡商人德米特里·米哈尔琴科（Dmitry Mikhalchenko）、基洛夫州州长尼基塔·别列克（Nikita Belykh）、萨哈林州州长亚历山大·霍罗沙文（Alexander Khoroshavin）和科米州州长维亚切斯拉夫·盖泽尔（Vyacheslav Gaizer）的案件提供了业务支持。“六名 ”员工还伴随着GUEBiPK和丹尼斯·苏格罗波夫（Denis Sugrobov）将军的案件。2016年，谢尔盖·科罗廖夫成为联邦安全局经济安全处（FSB SEB）的负责人。
 
-与此同时，以色列法院做出裁决，要求以色列的国内间谍机构Shin Bet必须退出这个中共病毒接触跟踪监视系统。 法院认为这是对以色列民主的威胁，它只能在紧急情况下使用。
+从2003年到2020年10月，谢尔盖·斯米尔诺夫（Sergey Smirnov）是第一副局长。普京总统因资历问题解除了他的职务。陆军将军谢尔盖·斯米尔诺夫协调联邦安全局内主要单位的工作：军事反间谍部、经济安全处和保护宪法秩序部门。
 
-面对肆虐全球一年多的中共病毒，很多国家都在借以疫情的名义，采用各种不同的方式限制公民的自由。 各国普遍采用的长时间封城措施，极大地损害了本国的经济，并造成了很多次生灾难。 解决中共病毒的唯一方法就是世界各国对中共故意制造和传播CCP病毒追责，只有这样才能终结CCP病毒在全球的蔓延。
+参考链接：
 
-原文链接：
-
-[http://humansarefree.com/2021/03/israel-implements-freedom-bracelet-tracking-device-for-travelers-for-a-virus-with-a-99-95-survival-rate-for-people-under-70.html](http://humansarefree.com/2021/03/israel-implements-freedom-bracelet-tracking-device-for-travelers-for-a-virus-with-a-99-95-survival-rate-for-people-under-70.html)
-
-编辑/校对/发稿：宁静致远
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
+[https://www.rbc.ru/politics/04/03/2021/603fff959a7947e7196b264c](https://www.rbc.ru/politics/04/03/2021/603fff959a7947e7196b264c)
 
 0
