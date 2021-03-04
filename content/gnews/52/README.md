@@ -1,30 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国保守党大会共和党一致抵抗拜登政府激进议程
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/946170/)
+## 复制中的中共统治模式
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/946271/)
 
-撰稿：光耀华夏
+文章作者：台湾农场(准农场)文旦
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1901290233162378-600x400-1.jpg)
+(图为美国飞弹驱逐舰「麦康贝尔号」和补给舰「狄尔号」通过台湾海峡。图片来源于维基共享资源)
 
-素材/审核：Jenny
+美国之音报导说，美军印太司令部情报处处长、海军少将史达曼（Michael Studeman）周二（3月2日）在一次在线会议上警告说：「我们尝到了由中国（中共）领导或深受中国（中共）影响是什么滋味。」
 
-2021年2月28日的美国保守党政治行动会议（Conservative Political Action Conference , CPAC）上，前总统川普强势回归，誓言要带领共和党在2022年中期选举中夺回参众两院，并可能参加2024年大选。以下视频是川普总统和共和党议员的精彩发言集锦，共和党团结一致对抗拜登政府提出的激进议程。
-YouTube视频
-CPAC会议之后的3月2日，美国政治活动家，2016年曾担任川普总统竞选活动副竞选经理的大卫.博西（David Bossie）接受《真实美国之音新闻》（Real Americas Voice News）主持人大卫.泽尔（David Zere）采访，对美国保守党大会进行了解读。博西对拜登政府的各种激进的、疯狂的、左翼社会主义政策进行了严厉的抨击，号召保守派团结一致，勇敢地对拜登政府的错误政策说“不”！
+和平是所有国家想要一直拥有的也能让很多事情正常的运转，但是对于共产国家来说，当他们全力达到巅峰之时也就是扩张的时刻，因为这些共产国家的资源是有限的，当他们没法在收割人民，当已经没有利益不够给他们这些权力者瓜分之时，就会以国家之力开始对外扩张。
 
-（本文仅代表作者观点）
+如同纳粹、如同苏联、都是一样的情形，这个世纪换到的中国共产党，在一代一路的扩张，香港的收回，缅甸政府的政变，美国大选的影响，都有着他们的影子，甚至各个国家的选举，也开始出现这让世界各国的问题开始提升，也因为中共的介入，更造成人民间更容易互相斗争，彼此仇恨。
 
-参考来源：
+联合国、WTO、WHO、人权组织、世界粮食署等等国际联合的机构，也凸显出被中共买通挂勾影响的方式，影响着世界藉由和他们的经济关系，绑架他们的选票，藉由各种原因来绑架威胁，这些手段也成出不穷，让世界各国跌破眼镜，这些机构有莫大的权利，但是没有莫大莫大的责任来制约，导致不遵守的国家无法得到该有的制裁，并继续享受权力，且用来抨击其他国都都不遵守，使各国的权益严重的受损。
 
-1. [StopBidenAgenda网站链接](https://stopbidenagenda.com/)
-2. [CPAC会议发言集锦视频链接](https://www.youtube.com/watch?v=X2K9pUoKBCo&amp;feature=emb_title)
-3. [Real Americas Voice News 对博西的采访视频链接](https://www.youtube.com/watch?v=WajueHd5uIc)
+认清事实，消灭中共体制，让世界获得真正的和平，传播真相缺你不可，你的一小步，将是灭共的一大步。
 
+参考资料:[美军将领警告世界：尝尝被中共主宰的滋味](https://www.epochtimes.com/b5/21/3/3/n12785689.htm)
 
-[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-[欢迎加入澳喜农场](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
-+3
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+
+文章审核：zhong
+
+文章发布：Little Liu
+
++2

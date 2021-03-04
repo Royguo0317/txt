@@ -1,33 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港男子注射第一剂科兴生物疫苗后死亡
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/946395/)
+## 欧洲海军向印度洋-太平洋地区派遣军舰
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/946458/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-04_07-15-43.jpg)[breitbart.com](https://www.breitbart.com/health/2021/01/15/norway-ties-13-deaths-to-side-effects-from-pfizer-coronavirus-vaccine/)
-布赖特巴特新闻(Breitbart News)报道，一名63岁的香港男子在注射第一剂科兴生物疫苗后于本周死亡。中共卫生部门和中共官媒极力为中共科兴公司生产的疫苗洗地。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/下载-1-1.jpg)[youtube.com](https://www.youtube.com/watch?v=_DSQ7jjP6Mw)
+《日经新闻》报道，由于中共在香港的政治镇压和对中共病毒疫情真相的探究不断发酵，越来越多的声音指出中共病毒是源自实验室的超限生物武器。各国对中共的怀疑不断增加，欧洲主要国家开始向印度洋-太平洋地区派遣军舰。
 
-科兴生物疫苗是中共批准的两种中共疫苗之一。该疫苗在预防中共病毒感染方面的有效性仅略高于50%，被认为是目前批准大规模生产的质量最低的疫苗之一。美国辉瑞公司(Pfizer)生产的疫苗有效性达95%，而莫德纳（Moderna）疫苗的测试有效性为94%。
+上个月，美国海军宣布两个美国航母战斗群在南中国海进行了联合演习后，法国核推进攻击潜艇和军舰在南中国海巡逻，以强调国际航道的航行自由。本周二德国政府官员表示，一艘德国护卫舰将于8月启程前往亚洲，在返回途中，它将成为自2002年以来首艘穿越南中国海的德国军舰。
 
-中共正全力发起“疫苗外交”，目标是那些买不起美国产品的贫困国家。美国智库外交关系委员会(Council on Foreign Relations)全球卫生专家黄延忠表示，中共试图利用[其疫苗]成为全球领导者，缩小发达国家和发展中国家之间的差距，这将有助于中共对这些发展中国家展示软实力，并改善中共形象。然而中共显然把中共病毒疫苗外交放在了比国内接种计划更重要的位置，北京出口的疫苗数量超过了国内接种的数量。
+去年12月，法国核潜艇“Emeraude”号与美国导弹驱逐舰“John McCain”号和日本直升机航母“风号”在菲律宾海进行了反潜演习。这是日本海上自卫队和法国海军首次共同参加潜艇演习。
 
-香港大学(University of Hong Kong)今年1月公布的一项民意调查显示，仅不到30%的居民愿意接种“中共疫苗”。 周日，一名63岁的香港男子在使用第一剂科兴产品后不久死亡，令这个前自治城市对中共疫苗不信任迅速激增。
+法国和德国的举动紧随英国之后，英国在脱欧后越来越关注印度洋-太平洋地区的安全。此外，伦敦和北京之间的关系也因去年香港颁布的新国安法而恶化。英国说，香港的《国安法》损害了香港的自治。
 
-当地消息来源称，这名男子患有多种身体疾病，包括高血压、糖尿病和支气管炎，这使他成为早期接种疫苗的候选人。他于周五接受了第一剂中共病毒后于周日去世。
+英国皇家海军(Royal Navy)航空母舰“伊丽莎白女王号”(HMS Queen Elizabeth)将在春季后完成该区域部署，随行的战斗群包括潜艇和驱逐舰，这是一次针对中共的军力展示。该航母计划与美国和日本的F-35B隐形战斗机一起参加演习。
 
-中共坚称，他们没有证据表明接种疫苗与该男子的死亡有直接联系。香港卫生署(Department of Health)在一份声明中表示，“目前，与接种疫苗的因果关系尚不能确定。”
+“这次与美国海军和法国海军的三边演习不仅发展战术技能，而且有助于建立一个基于法治和航行自由的‘自由开放的印度洋-太平洋’”，日本海上自卫队第三护航师指挥官滨崎信吾(Shingo Hamasaki)上尉说。
 
-中共官媒《环球时报》周三称，疫苗接种与该男子死亡之间的联系是“极其不可能的”，而声称使用mRNA技术的疫苗，如辉瑞和莫德纳会更危险。《环球时报》曾多次攻击辉瑞，声称在注射辉瑞的产品后，欧洲有小部分老年人死亡，证明这种产品比中共病毒更危险。
-
-《环球时报》引用的中共科兴CEO尹卫东的话，尽管病人已经死亡，“我们对科兴疫苗的整体安全性有信心，因为通过对大规模疫苗接种的观察，它被证明是安全的。” 《环球时报》认为这起死亡事件纯属“巧合”。
-
-今年1月，中共一位北京免疫学家呼吁，“世界应该暂停使用”辉瑞的产品，转而使用中共的替代品。
+日本将加强与欧洲的接触视为推进其自由开放印太愿景的黄金机会。日本外相茂木敏光(Toshimitsu Motegi) 1月下旬在欧盟外交事务理事会(European Union Foreign Affairs Council)发表讲话时称，为欧洲对印太区域兴趣的增加表示欢迎，并呼吁在海上安全等领域开展合作。
 
 参考链接：
 
-[https://www.breitbart.com/asia/2021/03/03/china-defends-its-low-effectiveness-vaccine-after-hong-kong-man-dies/](https://www.breitbart.com/asia/2021/03/03/china-defends-its-low-effectiveness-vaccine-after-hong-kong-man-dies/)
+[https://asia.nikkei.com/Politics/International-relations/Indo-Pacific/European-navies-build-Indo-Pacific-presence-as-China-concerns-mount](https://asia.nikkei.com/Politics/International-relations/Indo-Pacific/European-navies-build-Indo-Pacific-presence-as-China-concerns-mount)
 
-+3
+0

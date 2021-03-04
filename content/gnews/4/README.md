@@ -1,44 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 捷克订购中国国药集团疫苗
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/946897/)
+## 内部邮件显示福奇副手按中国条款定制协议
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/946961/)
 
-**作者: Aneta Zachová **
+翻译：康州盘古农场 – YY
+校对：康州盘古农场 – TrueSky
+编辑：康州盘古农场 – Antsee-GTV
 
-**编译: 莫黎   **
-![]()![](https://gnews.org/wp-content/uploads/2021/03/00123345.jpg)**图片: Emerging Europe
-**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-04-at-18.45.18.png)*福奇 – 图片来源：《国家脉动》报道*
 
+内部电子邮件显示福奇的副手量身定制了符合中国条款的协议。
 
-捷克总统发言人周三表示，在捷克向中国当局提出交付中国国药集团疫苗的要求后，”根据捷克驻北京大使馆提供的信息，中方决定立即履行这一要求”。
+美国国立卫生研究院和世界卫生组织之间的内部电子邮件显示，安东尼·福奇（Anthony Fauci）博士的副手被要求签署一份“按照中国的条款量身定做”的保密协议。
 
-捷克总统米洛什·泽曼(Miloš Zeman)以与中共当局关系密切而闻名。今年2月，他参加了中国与中东欧国家的虚拟”17+1 “峰会，中国国家主席习近平在峰会上向与会的欧洲国家领导人表示愿意提供国药集团的疫苗。但是，泽曼的发言人表示，总统是应总理安德烈·巴比什(Andrej Babiš’)的要求与中方接触的。
+美国国家过敏和传染病研究所（NIAID）临床研究和特殊项目副主任克里夫·莱恩 ( Cliff Lane）博士在 2020年世界卫生组织（WHO）（调查团前往中国）旅行之前签署了该协议。
 
-虽然目前匈牙利和塞尔维亚在使用中国国药的疫苗，但波兰也在考虑使用国药集团的疫苗进行接种。不过，波兰卫生部长亚当·尼泽斯基(Adam Niedzielski)表示，由于缺乏相应的数据，他还不建议接种中国国药的疫苗。
+司法观察组织（Judicial Watch）在代表《每日电讯新闻基金会》（DCNF）提出诉讼时，通过信息自由法（FOIA）获得了这些电子邮件。邮件显示世卫组织技术官员曼苏克·丹尼尔·汉（Mansuk Daniel Han）告知莱恩：“这次的表格是根据中国的要求量身定制的，因此我们不能使用以前的表格。”
 
-国药集团的疫苗尚未得到欧洲药品管理局(EMA)的批准，也没有申请注册。俄罗斯的斯普特尼克五号(Sputnik V)疫苗也是同样情况。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-04-at-18.44.21.png)
 
-然而，总理巴比什承认，捷克可以绕过欧洲药品管理局的批准程序，像匈牙利一样，独立批准斯普特尼克五号疫苗。
-
-由于卫生部长扬·布拉尼(Jan Blatný)和外交部长托马斯·佩特里奇克(Tomáš Petříček)坚持捷克应遵守欧洲药品管理局的审批程序，捷克政府目前在此问题上仍存在分歧。
-
+![mail]()![mail](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-04-at-18.41.18.png)*2020年邮件 – 《国家脉动》报道*
 
 
 
+汉先生然后要求莱恩完成利益申报表以及保密协议书。
 
-**新闻来源: **
+莱恩回复电子邮件，并指出：“我会尽快将东西交给您。”
 
-
-
-> [Czechia orders Chinese vaccine Sinopharm](https://www.euractiv.com/section/politics/short_news/czechia-orders-chinese-vaccine-sinopharm/)
-
-
-
-
-
-* * *
-
-**发布: 法国巴黎七星编辑组**
+文章来源：[https://thenationalpulse.com/breaking/internal-fauci-emails-show-tailored-agreements/](https://thenationalpulse.com/breaking/internal-fauci-emails-show-tailored-agreements/)
 
 0
