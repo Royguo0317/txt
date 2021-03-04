@@ -1,50 +1,87 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共部委呼吁增强供应链弹性，却闭口不谈具体目标
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/946944/)
+## 2021/03/04 美国政要等每日推特重要信息汇总
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/946954/)
 
-翻译：康州盘古农场 – 一花一世界
-校对：康州盘古农场 – Mike Li
-编辑：康州盘古农场 – Antsee-GTV
+**喜联盟GNEWS编辑部出品**
 
-![chips]()![chips](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-04-at-18.20.54.png)*Michaela Rehle – 《路透社》*
+经授权转载自：
 
-据美国全国广播公司商业频道（CNBC）阿鲁均·卡吕帕尔（Arjun Kharpal ）3月1日报道：
-
-要点：
-
-- 中共国工业和信息化部周一对半导体生产目标秘而不宣
-- 中共国当局此前曾宣布，到2020年，希望生产40%的芯片，到2025年将这一比例提高到70%
-- 在全球面临全球芯片短缺、美国制裁中共国最大的芯片制造商之际，中共国没有提出新的具体生产目标
+- 川普等政要直譯推：[twitter：https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
+- 川普等政要直譯推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
+- 川普等政要直译盖文GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
 
 
-北京–面对全球芯片短缺和美国的制裁，中共国工业和信息化部周一拒绝提供半导体生产的目标。
+3月4日中共病毒肆虐一年多未减退反出现变种新毒株，尽管WHO堂而皇之发布中共式病毒来源调查结果，声称病毒“极为不可能”来自实验室，全世界推进独立调查病毒病毒来源持续升温，天使科学家闫丽梦博士近日接受《路德时评》（3月1日）采访，全世界更多人支持闫博士，全世界以毒灭共大势已成。在不断推进的过程中，出现的各种声音都是这场斗争中的较量。此时，美国掀起反抗中共、制裁中共的浪潮。
 
-中共国希望在竞争性技术方面建立自给自足的能力，减少对半导体或芯片进口的依赖，这些芯片用于从笔记本电脑到汽车等产品。该国此前曾宣布，到2020年，希望自主生产40%的芯片，到2025年将这一比例提高到70%。
+#### **探究病毒来源在噪音中前进**
 
-但在周一的新闻发布会上，当被问及芯片生产目标时，该部发言人田玉龙没有分享具体数字。相反，他阐述了政府如何通过减税和人才培养等措施来支持该行业。
+前美国政府中国政策高级顾问余茂春（miles YU）亲共吗？此人近日频繁出现在公众视野，2月23日他与前美国国务卿迈克-蓬佩奥先生在《华盛顿时报》发表社论中指出，中共在过去十年多的时间发现大约2000种病毒，而世界正常研究则需要200年的时间。
+[https://twitter.com/y4ggfrb2cvactnk/status/1366592225367351300?s=21](https://twitter.com/y4ggfrb2cvactnk/status/1366592225367351300?s=21) [https://www.voachinese.com/a/5796217.html?withmediaplayer=1](https://www.voachinese.com/a/5796217.html?withmediaplayer=1)
+3月3日《美国之音》中文网发布余茂春的录音讲话，称中共之所以研究2000种病毒是因为2003年SARS冠状病毒把中共“搞得晕头转向”，仿佛中共是被动接受当年病毒爆发，实际上最近闫博士揭露的2015年中共军方发布的教科书《非典非自然起源和人制人新种病毒基因武器》一书，表明2003年非典冠状病毒就是中共军方制造的当代基因武器，与2019年的SARS-CoV-2都属于中共释放的超限生物武器。余茂春的言论一方面强调中共收集和研究繁多病毒违背世界规律，体现其言论的正确；一方面对关键信息含糊其辞，最后说中共病毒研究是有悖“生物安全、管理非常不健全，当然会造成事故，是难免的。”这个言论的真实目的就是在眼见愤怒的世界急红眼追责病毒来源、得知真相后定把中共撕碎的危机下，帮中共把病毒来源引入“实验室事故”，这将为中共极大免责，实属小骂大帮忙之举。
 
-“半导体产业的发展面临着机遇和挑战，需要全世界加强合作，共同打造半导体产业链，让其更健康、更可持续地发展。”据CNBC对其发言的中文翻译，田玉龙如此说道。
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Untitled-3.png)
 
-他的评论正值全球芯片短缺迫使各大汽车制造商减产之际。半导体制造业的积压源于冠状病毒大流行下对电子产品的高需求，以及一个高度专业化的全球供应链，该供应链面临着前总统唐纳德·川普(Donald Trump)时期开始的中美贸易紧张局势带来的额外压力。
+[https://twitter.com/DrLiMengYAN1/status/1366925023794130944?s=20](https://twitter.com/DrLiMengYAN1/status/1366925023794130944?s=20)
+前美国白宫川普总统贸易和制造业顾问皮特-纳瓦罗先生近日接受班农战斗室访谈时指出，群体免疫，疫苗都不能真正解决病毒，因为这个病毒可能是中共的生物武器。解决病毒的唯一办法是查清真相，查清中共到底在病毒里干了些什么。他还说这个病毒太不正常了，并用美剧《反恐24小时》暗示这是中共的恐怖袭击。
 
-去年，川普政府对中共国最大的芯片制造商中芯国际施加限制，使其无法购买生产所需的高端设备。
+闫博士转发这篇推文时称，“这一观点在去年7月10日接受福克斯新闻采访时就被明确指出，因为这是一种完全不同的病毒。”时隔近8个月，全世界仍然对病毒真相茫然，可幸的是正义的声音坚持不懈，真相即将水落石出。”
 
-目前还不清楚美国总统拜登将采取什么具体行动。上周，他签署了一项行政命令，对供应链进行审查，以努力解决短缺问题。
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-31.png)
 
-与此同时，据国家媒体周五报道，中共国工业和技术部正试图改善中国汽车行业的供应链协调机制，该行业使用的90%的芯片都是来源于进口。
+[https://twitter.com/DrLiMengYAN1/status/1366494782730756105?s=20](https://twitter.com/DrLiMengYAN1/status/1366494782730756105?s=20)。 [https://www.judicialwatch.org/press-releases/emails-who-terms/?utm\_source=twitter&utm\_medium=social&utm\_campaign=press\_release](https://www.judicialwatch.org/press-releases/emails-who-terms/?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=press_release)
+《司法观察》发表题为《新邮件详解WHO/NIH遵守中国保密条款》一文，并且发推称，重磅：《司法观察》&《每日呼声》收到了HHS发来的301页福奇（Fauci）博士的邮件，显示NIH官员根据中国的条件定制了保密表格，以及WHO在2020年1月进行了一项未发布的 “严格保密 “的COVID分析。
 
-在周一的新闻发布会上，该部负责人肖亚庆表示，确保供应链的弹性是优先事项。
+闫博士对此回推，证实了这一科学界的集团作案，虽然中共及其伙伴一直在攻击、抹黑闫博士，但是“真相不能被掩盖太久!”
 
-“我们必须把提高产业链和供应链的稳定性和竞争力放在突出位置……在激烈的国际市场竞争中牢牢把握主动权。”肖亚庆说。
+闫博士的呼声和传递的真相正在唤醒更多人和媒体，《每日呼吁人》3月2日发表文章，题为《世卫组织为任命涉嫌利益冲突的美国科学家参与冠状病毒起源调查辩护》。[https://dailycaller.com/2021/03/02/world-health-organization-daszak-conflict-interest/](https://dailycaller.com/2021/03/02/world-health-organization-daszak-conflict-interest/)
 
-从全国范围来看，数据显示，在冠状病毒大流行的情况下，中共国并未实现2020年国内采购占比40%的目标。
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Untitled-7.png)
 
-根据美国市场研究公司IC Insights的数据，去年在中共国销售的价值1434亿美元的集成电路–半导体的另一个名称–只有15.9%是在中共国生产的。
+[https://twitter.com/zhiyitw33/status/1367200172992647168?s=20](https://twitter.com/zhiyitw33/status/1367200172992647168?s=20)
+#### 关注香港
 
-中共国领导人将于本周召开两会（[中华人民共和国全国人民代表大会](https://baike.baidu.com/item/%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD%E5%85%A8%E5%9B%BD%E4%BA%BA%E6%B0%91%E4%BB%A3%E8%A1%A8%E5%A4%A7%E4%BC%9A/4463614)和[中国人民政治协商会议](https://baike.baidu.com/item/%E4%B8%AD%E5%9B%BD%E4%BA%BA%E6%B0%91%E6%94%BF%E6%B2%BB%E5%8D%8F%E5%95%86%E4%BC%9A%E8%AE%AE/458631)的统称），以确定未来五年及以后的国家发展目标。
+美国国务院3月2日发言人称，美国持续呼吁中国政府应该停止破坏香港的自治权和民主进程，恪守中英联合声明的义务，我们支持香港人，支持他们承诺的香港（一国两制）的体系。
 
-文章来源： [https://www.cnbc.com/2021/03/01/china-calls-for-supply-chain-resiliency-no-chip-production-targets.html](https://www.cnbc.com/2021/03/01/china-calls-for-supply-chain-resiliency-no-chip-production-targets.html)
+在爆料革命持续关注香港、呼吁勿忘香港的行动中，美国拜登政府对中共发出严厉的谴责，将遏制并最终停止中共国继续对香港为所欲为的暴行。
+
+
+
+> 美国国务院：
+> 国务院发言人内德·普赖斯[@StateDeptSpox](https://twitter.com/StateDeptSpox?ref_src=twsrc%5Etfw)：我们谴责用香港国安法来再次拘留这些人。 我们呼吁香港当局立即释放仍被拘留之人，并撤销对他们的指控。
+> 【附视频：美国务院发言人在新闻发布会上的讲话】 [https://t.co/oRJMi5FL1y](https://t.co/oRJMi5FL1y)
+> — 川普等政要…直译推 (@zhiyitw33) [March 2, 2021](https://twitter.com/zhiyitw33/status/1366830058682396674?ref_src=twsrc%5Etfw)
+
+
+[https://twitter.com/zhiyitw33/status/1366830058682396674?s=20](https://twitter.com/zhiyitw33/status/1366830058682396674?s=20)
+#### **灭共的呼声**
+
+3月2日泰德-克鲁兹参议员在1月6日选举人团日没有机会为准备好的选举舞弊证据说一句话，现在终于铿锵有力地说出，“致命的疫情已经一年了，病毒起源于中国武汉，中国共产党审查并让讲出病毒如何传播真相的医生和记者消失，中共对病毒性质（传染性）向世界撒谎。全世界250多万人死亡，包括美国50万人。中共对病毒的谎言、审查、大外宣从未停止过。中共所向披靡。”讲话中提到中共使用像华为公司这样的间谍公司，并强调“中（共）国是下世纪对美国最大的地缘政治威胁。”提到美国两党团结的问题。有别与中共国外交部王毅此前在恢复中美关系上向美国喊话提出“四点建议“, 议员先生指出对抗中共国威胁”四个措施“：1. 要保护自身免受中共间谍活动和其他干预；2. 要将美国关键资源对中共绝缘供应，以防中共再带回美国；3. 要绝缘我们的商业以防让中共利用其来做惯犯性残害、虐待和种族屠杀。4. 要经常强调保护我们的利益。
+[https://twitter.com/zhiyitw33/status/1366830489638731779?s=20](https://twitter.com/zhiyitw33/status/1366830489638731779?s=20)
+3月3日汤姆·科顿议员发推，支持卢比奥参议员和同僚在佛罗里达州议员官方网站发起立法禁止有害的中共国公司利用美国资本市场的动议。（[https://www.rubio.senate.gov/public/index.cfm/press-releases?ID=B9291EF7-5B5C-4DE9-8A56-1972D12E9014](https://www.rubio.senate.gov/public/index.cfm/press-releases?ID=B9291EF7-5B5C-4DE9-8A56-1972D12E9014)），这是对前日泰德-克鲁兹参议员讲话中抗击中共四个措施的补充，可见对中共的禁令即将上升至美国法律层面。中共今后将永世无法与美国修好，更不用说可以回到过去的甜蜜。
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-32.png)
+
+[https://twitter.com/zhiyitw33/status/1367214305783910401?s=20](https://twitter.com/zhiyitw33/status/1367214305783910401?s=20)
+#### 对中共国贸易措施
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Untitled-9.png)
+
+[https://twitter.com/zhiyitw33/status/1367198458252197889?s=20](https://twitter.com/zhiyitw33/status/1367198458252197889?s=20)
+#### 对待大科技公司
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-33.png)
+
+[https://twitter.com/zhiyitw33/status/1367204879056343044?s=20](https://twitter.com/zhiyitw33/status/1367204879056343044?s=20)
+我们看到拜登政府执政后一点没有减弱反共态度，政界各方面愤怒谴责中共如何对待病毒问题，对中共邪恶行径的认识越来越清晰，支持香港人的呼声强烈，发出两党团结的示意，给出遏制和制裁中共的具体措施，灭共的呼声和行动将成为必然，这也是为什么中共想方设法让各种力量转移病毒真正来源的原因，因为中共已经看到自己时日真的不多了。
+
+
+
+作者：康州盘古农场 喜马拉雅的文雅
+
+信息采集：直译推 柠檬红茶（文宁），西班牙农场 文舞
+
+发布：GNEWS喜联盟发布组
 
 0

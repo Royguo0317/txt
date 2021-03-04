@@ -1,82 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 47名香港反对派人士遭‘国安法’起诉
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/946836/)
+## 欧盟拟为COVID-19疫苗接种状态提供数字通行证，助力安全出行
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/947038/)
 
-翻译：康州盘古农场-Bruce
-校对：康州盘古农场-Mike Li
-编辑：康州盘古农场-Antsee-GTV
+翻译：康州盘古农场 – TrueSky
+校对：康州盘古农场 – YY
+编辑：康州盘古农场 – Antsee-GTV
 
-![charge]()![charge](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-04-at-17.18.55.png)*《CNN》视频报道截屏*
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-04-at-19.01.00.png)*图片来源 ADEK MICA/AFP / Getty Images*
 
-据《CNN》多位记者联合报道：
+据《techcrunch 网》娜塔莎·洛玛斯（Natasha Lomas）2021年 3月2日 报道：
 
-香港(CNN)——周日，香港当局指控47名反对派[活动人士](https://www.cnn.com/2020/12/17/asia/hong-kong-exiles-and-inmates-dst-hnk-intl/index.html)违反了该市的《国家安全法》，这是自去年北京[强制实施](https://edition.cnn.com/2021/01/05/asia/hong-kong-national-security-law-intl-hnk/index.html)该法以来[最大规模](https://edition.cnn.com/2021/01/05/asia/hong-kong-national-security-law-intl-hnk/index.html)的应用。
+欧盟委员会主席乌尔苏拉·冯德莱恩（Ursula von der Leyen） 今天表示，计划中的数字工具将旨在提供已经接种疫苗的个人证明–但不仅仅如此。“数字绿色通行证”还将显示测试结果，针对于那些尚不能接种疫苗的人以及 “COVID-19 恢复状况”的信息。
 
-这些被控“阴谋颠覆”的人是上个月因组织、策划和参加去年7月香港民主反对派初选而被捕的53人，其中许多是著名的前议员、活动人士和区议员。
+*推文翻译*
 
-该活动旨在确定最强的民主派候选人，以便在计划于去年9月举行的立法议会选举中出场，当时反对派阵营希望赢得历史性的多数席位。
+*乌尔苏拉·冯德莱恩@vonderleyen*
 
-然而，由于冠状病毒大流行，这些选举最终被推迟，但在此之前，多名民主党候选人被取消了资格——并发出警告说，那些参加初选的人可能违反了当时已经在数周前的出台《安全法》。
+*我们本月将推出一项电子绿色通行证的立法计划。目的是提供：*
 
-周日被起诉的39名男性和8名女性，年龄在23岁至64岁之间，他们被拘留，将于周一在西九龙裁判法院出庭。根据原来的保释协议，他们在4月初之前不需要向警方报到。但在本周早些时候，这群人被要求在周日向警方报到。
-
-2月28日，香港大学法学副教授、活动团体 “用爱与和平占领中环”（OCLP）的联合创始人戴耀廷（Benny Tai）在香港马鞍山警署报到。
-
-周日的指控标志着国家安全法的适用范围全面升级，此前只有少数人根据该法被起诉并送上法庭。
-
-该法将分裂国家、颠覆、恐怖主义、勾结外国势力等行为定为刑事犯罪，根据该法审理的案件可由香港警方和国家安全法庭的专属部门处理。
-
-香港特首林郑月娥等人此前曾承诺，该法的效力有限，只针对少数边缘活动人士。
-
-数百人周一聚集在该市西九龙区的法院外抗议，他们举着横幅，高呼口号，这些口号在2019年政治动荡期间流行，但现在根据新的国家安全法被视为 “颠覆”。
-
-一个标语呼吁当局释放 “所有政治犯”。可以听到示威者高喊 “光复香港，时代革命”和 “没有暴徒，只有暴政”。
-
-![protestor]()![protestor](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-04-at-17.19.47.png)*亲民运人士在香港西九龙法院外为被捕的民运人士打手势表示支持 – 图片来源：《CNN》*
-
-这些指控是在香港政府着手对公职人员提出新的要求后不到一个星期提提起的，包括他们必须宣誓效忠并接受北京对香港的统治。
-
-政制及内地事务局局长曾国卫说，任何没有宣誓的人——或被认为是以不真诚的方式宣誓——将被立即取消资格，并在未来五年内禁止参加选举。
-
-此前，香港驻最高立法机构的唯一代表表示，只有 “坚定的爱国者 “才能在香港担任权力职位。
-
-欧盟驻香港和澳门办事处周日表示，这些指控 “令（欧盟）非常关注” 。
-
-“对47名民主人士的指控是#欧盟非常关注的。这些表明，在#香港，合法的政治多元化将不再被容忍。我们敦促当局根据#BL和#ICCPR，遵守他们对基本#自由和法治的承诺，” 欧盟办事处在推特上说。
-
-![waiting]()![waiting](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-04-at-17.20.07.png)*支持者在香港西九龙法院外等候 – 图片来源：《CNN》*
-
-为什么要惩罚初选？
-
-初选是世界各国民主国家的正常功能。在香港投票时，拜登胜出的美国民主党初选还在进行。香港民运人士过去举行这样的投票，是为了配合对手亲北京阵营的组织和纪律性，避免分裂支持。
+- *证明个人已接种疫苗*
+- *那些尚未接种疫苗者的检测结果*
+- *COVID19患者恢复信息*
 
 
+*它将尊重数据保护，安全和隐私*
 
-> Charges against 47 pro-democrat is of great concern to [#EU](https://twitter.com/hashtag/EU?src=hash&amp;ref_src=twsrc%5Etfw). These make clear that legitimate political pluralism will no longer be tolerated in [#HongKong](https://twitter.com/hashtag/HongKong?src=hash&amp;ref_src=twsrc%5Etfw). We urge authorities to abide by their commitments to fundamental [#freedoms](https://twitter.com/hashtag/freedoms?src=hash&amp;ref_src=twsrc%5Etfw) and the rule of law, as per the [#BL](https://twitter.com/hashtag/BL?src=hash&amp;ref_src=twsrc%5Etfw) and [#ICCPR](https://twitter.com/hashtag/ICCPR?src=hash&amp;ref_src=twsrc%5Etfw)
-> — European Union Office to Hong Kong and Macao (@EUinHKandMO) [February 28, 2021](https://twitter.com/EUinHKandMO/status/1365966836630626306?ref_src=twsrc%5Etfw)
+“它将尊重数据保护、安全和隐私。”冯德莱恩在几条推文中补充道。
 
+“数字绿色通行证需为欧洲人的生活提供便利”，她还说，“目的是让他们能够逐步在欧盟或国外（工作或旅游）安全地移动。”
 
+据《路透社》报道，委员会将于3月17日公布立法计划的细节。
 
-—— 欧盟驻香港和澳门办事处（@欧盟驻香港和澳门办事处）2021年2月28日。
+欧盟的行政部门热衷于建立一个泛欧盟体系，以避免集团单一市场的碎片化，比如如果个别成员国达成自己的双边协议，或者是为了避免第三方商业系统的壮大（今年早些时候，一些科技公司宣布他们正在努力建立一个疫苗状况的 “通用”标准）。
 
-对47名民主派人士的指控是[#欧盟](https://twitter.com/hashtag/EU?src=hashtag_click)非常关注的。这些表明，合法的政治多元化在[#香港](https://twitter.com/hashtag/HongKong?src=hashtag_click)将不再被容忍。我们敦促当局按照[#BL](https://twitter.com/hashtag/BL?src=hashtag_click)和[#ICCPR](https://twitter.com/hashtag/ICCPR?src=hashtag_click)的规定，遵守其对基本[#自由](https://twitter.com/hashtag/freedoms?src=hashtag_click)和法治的承诺。
+委员会正在小心翼翼地避免将数字通行证称为“疫苗护照”，因为基于（仍然非常）有限的疫苗获取机会而限制人们自由出行的概念会引发歧视这个丑陋的幽灵。
 
-然而，香港保安局局长指责那些组织7月初选的人试图通过赢得立法机构的多数票来否决政府法案，从而 “瘫痪香港政府”。
+与此同时，欧盟行政部门显然感到压力，要帮助经济严重依赖跨境旅游的成员国，比如希腊和西班牙。而早在1月份，欧盟就表示，一个共同的互认疫苗文件的方法是“最重要的”。
 
-在国家安全法出台之前，投票反对预算案和迫使行政长官辞职是合法的，类似于许多民主国家促使大选的 “ 不信任投票”。香港基本法中也有应对此类事件的规定，使行政长官能够召集新的立法选举，并通过初步预算，使政府能够继续运作。
+一个用于显示疫苗和COVID-19检测结果状态的泛欧盟数字认证是其确定的解决方案。尽管看起来数字通行证的使用不会是强制性的。
 
-当几十名前议员和反对派活动人士1月被逮捕时，现任美国国务卿的安东尼·布林肯说：“ 对民主示威者的大规模逮捕是对那些勇敢倡导普世权利的人的攻击。”
+当欧盟委员会被联系要求进行评论时，以及在今天的新闻发布会上被要求提供更多关于数字通行证计划的细节时，委员会拒绝进一步的详细说明。
 
-“ 拜登—哈里斯政府将与香港人民站在一起，反对北京对民主的打压，”布林肯补充说。
+另一个问题是，计划中的数字证书系统能在多快的时间内启动和运行。由于现在距离暑假只有几个月的时间，委员会将面临迅速工作的压力。同时，按照路透社的说法，委员会希望与国际组织合作，以确保该系统在欧盟之外也能运行。
 
-英国外交大臣多米尼克·拉布（Dominic Raab）1月份警告说，英国政府“不会在香港人民的权利和自治权被践踏的时候另眼相看”。
+上个月，苹果公司表示正在收紧围绕疫苗通行证的iOS审查流程，称现在要求开发者在提交此类应用之前，必须与公共卫生机构认可的实体或与其相关的公司合作。英国广播公司（BBC）报道称，苹果公司做出这一改变是为了“确保这些应用负责任地处理敏感数据并提供可靠的功能”。
 
-“当中共首次强制实施《国家安全法》时，他们说这是为了给香港带来一定的稳定。从这些行动中可以清楚地看出，其实它是为了镇压政治异议。”拉布在伦敦接受CNN采访时说。
+去年，一些欧洲隐私专家被动员起来，为另一个与冠状病毒相关的数字工具设计一个分散的隐私安全标准：蓝牙驱动的接触跟踪应用程序，以估计COVID-19暴露风险。尽管苹果和谷歌选择只支持分散式的接触追踪应用程序，然而一些成员国（如法国）选择了集中式系统。
 
-原文作者：艾瑞克·张（Eric Cheung）， 詹达·申姆（Jadyn Sham）, 海伦·瑞根（Helen Regan）, 艾莉·巴纳德（Ally Barnard ）和 詹姆斯·格里菲思（James Griffiths）
-
-文章链接：[https://www.cnn.com/2021/02/28/asia/hong-kong-lawmakers-charged-nsl-intl-hnk/index.html](https://www.cnn.com/2021/02/28/asia/hong-kong-lawmakers-charged-nsl-intl-hnk/index.html)
+原文链接：[https://techcrunch.com/2021/03/01/eu-to-propose-a-digital-pass-for-covid-19-vaccination-test-status-to-help-safer-travel/](https://techcrunch.com/2021/03/01/eu-to-propose-a-digital-pass-for-covid-19-vaccination-test-status-to-help-safer-travel/)
 
 0
