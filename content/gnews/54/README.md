@@ -1,26 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登政府强调联盟应对中共国的严重挑战
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/946405/)
+## 美对德军舰在南中国海航行计划表示欢迎
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/946424/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/下载-2.jpg)[aldianews.com](https://aldianews.com/articles/politics/what-latin-american-diplomacy-may-look-antony-blinken-secretary-state/61330)
-共同通讯社 (Kyodo News)报道，拜登(Joe Biden)政府星期三说，与中共打交道将是本世纪“最大的地缘政治考验”，他特别指出，这个崛起的亚洲国家有能力对美国捍卫的开放国际体系构成严重挑战。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-04_07-42-28.jpg)[hdwallpapers.in](https://www.hdwallpapers.in/german_navy_battleship-wallpapers.html)
+路透社报道，美国星期三对北约盟国德国派遣一艘军舰穿越有争议的南中国海的计划表示欢迎，称德国是对该地区“基于规则的国际秩序”的支持，同时指出这一基本秩序受到来自中共的威胁。
 
-美国国务卿布林肯(Antony Blinken)发表了就任美国最高外交官以来的首次重要外交政策演讲，他形容中共带来的挑战与俄罗斯、伊朗和朝鲜等国的挑战“不同”。他指出中共是唯一有潜力将其经济、外交、军事和技术力量结合起来，对稳定和开放的国际体系构成持续挑战的竞争对手。
+德国政府官员周二表示，一艘德国护卫舰将于8月启程前往亚洲，在返回途中，它将成为自2002年以来首艘穿越南中国海的德国军舰。
 
-布林肯强调，“我们将应对21世纪最大的地缘政治考验:我们与中共的关系。”
+美国国务院发言人称，“我们欢迎德国对印度洋-太平洋地区基于规则的国际秩序的支持。维护开放的海洋秩序对国际社会至关重要。”并指出维护和平与稳定、尊重国际法、保证合法畅通的贸易、航行自由和其他合法使用海域是符合美国国家利益的努力。
 
-与川普政府奉行单边主义的“美国第一”的政策不同，拜登政府强调联盟和多边主义民主价值观。布林肯指出美国将“重新投资于”与澳大利亚、日本、韩国以及北大西洋公约组织(North Atlantic Treaty Organization)的联盟，并对其进行现代化改造，称这些联盟是“美国最重要的战略资产”的一部分。
+中共外交部发言人表示，各国在南海享有国际法规定的航行和飞越自由，但他补充称，“他们不能以此为借口，破坏沿海国家的主权和安全。”并强调中共对南中共海大部分海域拥有主权主张。
 
-拜登政府将继续”在未来几个月制定更深入的国家安全战略”。在一份国家战略指导文件中提到，“我们的民主联盟使我们能够提出一个共同的战线，产生一个统一的愿景，汇集我们的力量来推动高标准，建立有效的国际规则，并让中共这样的国家承担责任。”
+德国官员表示，这艘军舰不会通过这条战略水道争议岛礁周围12海里范围内的水域，中共和其他国家都声称这是它们的领海。
 
-此外，拜登政府还将寻求与核心联盟之外的国家建立伙伴关系，比如印度、新西兰、新加坡和越南。在军事方面，美国将努力成为印度洋-太平洋和欧洲“最强大”的存在，以威慑对手捍卫自己的利益。但同时布林肯也表态说华盛顿无意恢复美国作为民主捍卫者的地位，不会为此目标进行代价高昂的军事干预，也无意以武力推翻独裁政权。
+中共在南中国海的主权主张涉及五个国家:越南、马来西亚、文莱、菲律宾和台湾。菲律宾政府在海牙常设仲裁法庭起诉中共，并在2016年裁决确认了北京的非法主张。中共公开藐视这一裁决，并进一步推进了在南中国海的军事扩张。中共在南中国海建造的人工岛屿上修建了军事设施。美国驳斥中共对南海大部分海域有争议的资源主张是“非法的”。
+
+上个月，美国海军宣布两个美国航母战斗群在南中国海进行了联合演习后，法国核推进攻击潜艇和军舰在南中国海巡逻，以强调国际航道的航行自由。中共官方媒体《环球时报》(Global Times)周日宣布了中共将在南中国海举行为期一个月的海上军事演习，作为对此的抗议和回应。
 
 参考链接：
-https://english.kyodonews.net/news/2021/03/b8f461715847-us-views-china-as-only-country-posing-challenge-to-intl-system.html
 
-+2
+[https://www.reuters.com/article/us-southchinasea-germany-usa/us-calls-german-warships-plan-to-sail-south-china-sea-support-for-rules-based-order-idUSKCN2AW016](https://www.reuters.com/article/us-southchinasea-germany-usa/us-calls-german-warships-plan-to-sail-south-china-sea-support-for-rules-based-order-idUSKCN2AW016)
+
+0
