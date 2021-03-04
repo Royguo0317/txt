@@ -1,52 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 3/4/2021 财经快讯：中共国“大炼芯片”受挫；谷歌宣布将不再使用广告精准定位
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/947284/)
+## 被消失的蓓蕾——车莎莎跳车死
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/947304/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Picture1-5.jpg)
-[图片来源](https://zhuanlan.zhihu.com)
+*作者：桂花酒 | 校对：西川stanly | 审核：宁缺 | Page:Daoiii*
 
-**1.谷歌宣布将不再使用广告精准定位**
+[!\[\]()!\[\](https://spark.adobe.com/page/p9tQGV78p4jWX/images/ea03609f-9cee-4345-b61d-291771e0023c.jpg?asset_id=8213b28c-4ff6-4f36-8c59-6d364593784f&amp;img_etag=%22ca58f4af1dc455d75131844b3d6aac45%22&amp;size=2560)](https://spark.adobe.com/page/p9tQGV78p4jWX/images/ea03609f-9cee-4345-b61d-291771e0023c.jpg?asset_id=8213b28c-4ff6-4f36-8c59-6d364593784f&amp;img_etag=%22ca58f4af1dc455d75131844b3d6aac45%22&amp;size=1024)来源网络
 
-[谷歌周三表示，它将不再使用在浏览网页时跟踪特定用户的技术，此举可能会颠复数字广告行业。谷歌此前曾宣布计划消除一种名为第三方cookie的技术，称其Chrome浏览器将在2022年之前不再使用它。 这家搜索巨头现在表示，它不会创建或使用任何其他识别个人用户的工具用于广告目的。](https://www.businessinsider.com.au/google-to-stop-tracking-individuals-web-browsing-precision-ad-targeting-2021-3?r=US&amp;IR=T)
+2月6日，23岁的车莎莎死在搬家的路上。车莎莎的死存在诸多疑点，引发社会舆论广泛质疑。
 
-**2.全球债券溃败，日本央行收益率曲线控制成为焦点**
+大陆媒体的报道，都以“女孩跳车身亡” 、“货拉拉跳窗女孩”、“23岁女生从货拉拉车上跳窗身亡”等等为题报道。关键词“跳车”正是引发质疑的原因。
 
-[东京（路透社）- 由于日本央行成功控制债券市场收益率曲线图形，为应对借贷成本上升而削弱本国经济的情况，其他央行可能会考虑采用类似的策略。](https://www.reuters.com/article/us-japan-economy-boj-ycc-analysis/analysis-global-bond-rout-puts-bojs-yield-curve-control-in-spotlight-idUSKBN2AV2U9)
+[!\[\]()!\[\](https://spark.adobe.com/page/p9tQGV78p4jWX/images/cdd1cf9f-c355-4bd2-b7fb-faa97b2d896f.png?asset_id=1058b735-1886-4c5e-8504-ffcb99afcacd&amp;img_etag=%2254855da849f5704d1e1bb9c2ca003338%22&amp;size=3886)](https://spark.adobe.com/page/p9tQGV78p4jWX/images/cdd1cf9f-c355-4bd2-b7fb-faa97b2d896f.png?asset_id=1058b735-1886-4c5e-8504-ffcb99afcacd&amp;img_etag=%2254855da849f5704d1e1bb9c2ca003338%22&amp;size=1024)
 
-[日本央行自2016年采用收益率曲线控制政策以来，一直将债券收益率基本固定在0%左右的窄幅区间内。该政策的优势非常明显，通过转向目标收益率，日本央行可以购买更少的债券数量。](https://www.reuters.com/article/us-japan-economy-boj-ycc-analysis/analysis-global-bond-rout-puts-bojs-yield-curve-control-in-spotlight-idUSKBN2AV2U9)
+新浪、齐鲁晚报微信公号报道：2月6日，车莎莎被送往湖南航天医院重症医学科，并连续接受两次手术。入院诊断为重度脑外伤、创伤性颅内血肿、创伤性蛛网膜下腔出血、脑挫伤、创伤性脑水肿、颅骨骨折、颅底骨折、蝶骨骨折，心律失常等。据报道分析，车莎莎自杀可能性完全不存在。最大的疑点有二：
 
-**3.巴西2020年GDP下降4.1%，CCP病毒使其今年经济反弹的前景黯淡**
+1、女孩为什么要从车窗跳车，而不是打开车门？
 
-[巴西利亚（路透社）- 周三数据显示，由于CCP病毒大流行，巴西经济去年萎缩4.1％，这是几十年来最严重的下降。根据官方统计机构IBGE的数据，巴西作为拉丁美洲最大的经济体，其第四季度增长了3.2％，超过了路透社对经济学家的民意调查中2.8％的中位数估计。然而，现在爆发的疫情已经造成巴西创纪录的人员死亡，这增加了大家对今年年初巴西经济再次下滑的担忧。](https://www.reuters.com/article/us-brazil-economy-gdp/brazil-gdp-drops-4-1-in-2020-covid-19-surge-erodes-rebound-idUSKBN2AV1FZ)
+2、如果跳车，为什么颅骨多处创伤而身体其它部位却没有？
 
-**4.石油价格继续坚挺！**
+南方都市报报道，一名熟悉涉事车型的销售员向记者介绍，该车型副驾驶座位并无解锁按钮，若要在车辆行驶的过程中强制开门，需要反复拉门把手。从死者后脑着地来分析，她是面对司机跳车的，否则她只能在离地高度1.2米的空间里将身体旋转，然后让自己的后脑着地死亡。
 
-[新加坡（路透社）- 因预期欧佩克成员国可能在当天晚上的关键会议上可能决定不增加产量，加上美国燃料库存下降，周四油价连续第二次上涨。截至格林威治标准时间05:53，布伦特原油期货在周三上涨超过2％后，今天又上涨53美分，或0.8％，至每桶64.60美元。 美国西德克萨斯中质（WTI）原油期货上涨46美分，或0.8％至每桶61.74美元。](https://mobile.reuters.com/article/amp/idUSKBN2AW055?__twitter_impression=true)
+车莎莎的家属从警方处获悉，周某春称，乘客因面包车三次偏航，在曲苑路跳出车窗。但司机的说法一时难以被证实或证伪。也就是“死无对证”！
 
-**5.随着投资者转向谨慎，比特币跌破$50,000水平**
+事发后，货拉拉第一次在大年三十与家属会面，声称死者是“自杀”，平台没有任何责任。后迫于舆论，发布了“关于长沙用户跳车事件的说明”，仍然拒绝承认负有责任，在声明中用“悲痛和遗憾”、“ 最大诚意”等自相矛盾的话来蒙混过关。24日发布“关于用户跳车事件的致歉和处理公告”还是以跳车为题。
 
-[（彭博社）- 周四比特币在亚洲市场下跌，跌至$50,000关键水平以下，金融市场开始出现更广泛的谨慎情绪。截至香港下午2:38，最大的加密货币比特币下跌高达3.8％，跌至约49,500美元。 该数字货币周三飙升至$52,000上方短暂横盘，但仍比上个月的高点低$6,000美元。](https://finance.yahoo.com/news/bitcoin-rebounds-being-ruffled-sec-050847024.html)
+而参与调查取证的警方则在给出了嫌疑人前后矛盾的口供后，把人命案用“民事协商会”的形式，让双方见面。对嫌疑人先是证据不足释放，后又迫于舆论以“过失杀人罪”拘捕。号称第四权利的媒体中的大部分都与警方和货拉拉的声明惊人一致，标题中无一例外以“跳车”或“跳窗”为题。一个大家不应该忽视的细节是：不论是警方、货拉拉还是受害人家属，都没有聘请律师，是巧合还是另有隐情？联想到中共国被抓捕的709律师们，难免让人不猜疑背后有无形的手在操控。
 
-**6.三部门联合发文：以标准化促进餐饮节约反对浪费**
+25号交通运输部企图平息民愤的专门回应，标题依然是“货拉拉女生跳车事件”。同日，新浪新闻综合版援引央视2台视频还是“跳车”，视频中的律师只字不提致死疑点，只谈平台监管失当。2月27日央广晚19点节目请律师分析案件,只谈“过失至人死亡罪”的定性。希望之声3月2日报道，最新一期《求是》，披露习近平去年11月16日在工作会议上的讲话批评部份律师抨击中共政治制度和法治制度“政治意识淡薄”，要求他们拥护中共，并拒绝走“司法独立”的道路。 这就是死者在没有被排除自杀以外的可能性，执法和宣传口径一致的根本原因！
 
-[北京3月3日讯，市场监管总局、商务部、文化和旅游部近期联合印发《关于以标准化促进餐饮节约反对餐饮浪费的意见》。《意见》以标准体系建设、重要标准研制与实施、标准化试点、标准实施监督、标准化宣传为主线，重点聚焦餐饮企业、网络配餐、旅游餐饮三大场景，提出标准化促进餐饮节约的八项具体举措，推动餐饮企业、旅游景区等单位建立和实施餐饮节约标准。](https://finance.sina.com.cn/china/2021-03-04/doc-ikftssaq0711592.shtml)
+[!\[\]()!\[\](https://spark.adobe.com/page/p9tQGV78p4jWX/images/8d413171-1e18-40d5-a681-cc7c95527608.jpg?asset_id=6e18767d-7863-45b0-95e8-196a401fdc7f&amp;img_etag=%2216aa1b3342cb17289bebe2e79b2e9966%22&amp;size=2560)](https://spark.adobe.com/page/p9tQGV78p4jWX/images/8d413171-1e18-40d5-a681-cc7c95527608.jpg?asset_id=6e18767d-7863-45b0-95e8-196a401fdc7f&amp;img_etag=%2216aa1b3342cb17289bebe2e79b2e9966%22&amp;size=1024)
 
-评：粮食危机加剧！看中共国如何口炮第一，撒谎成性，去年还提到 “国家统计局12月10日数据显示，2020年全国粮食总产量为13390亿斤，比上年增加113亿斤，增长0.9%。粮食生产再获丰收”。都大丰收了就让老百姓敞开肚子吃呗！
+哀莫大于心死。躲猫猫死、嫖娼死、心脏病死、肝癌死、跳楼死，中国人在“法治中国”里死法千奇百怪，2021年又增加了一个冰冷的词：跳窗死。车莎莎年轻美丽的生命在永远搬不到的新家路上戛然而止。在中共专治下，哪里有安全？2017年的赵鑫、赖小明、还有军委副主席徐才厚…..谁是安全的？
 
-**7.七家芯片公司科创板上市梦灭，有公司九成利润靠政府补贴**
+“祸拉拉”不通过法律途径，用封口费的方式私了——强迫家属把悼文删了。亲人的悲痛，无法昭雪的真相，只能积累社会的仇恨。人与人的互信是社会的基础，车莎莎的死又给社会互相蒙上阴影。而失去法治的中共国，危机四伏。
 
-[2020年，一堆头顶“硬科技” ，“高估值”光环的人工智能和芯片公司排队到科创板上市，但在新的一年，随着审核趋严，曾经趋之若鹜的芯片公司们开始收敛起了想要一夜暴富的心](https://ishare.ifeng.com/c/s/v004vZzAyzwBWByXCJy1pK7tZ-oPFhAJmJrUBZYI0yM3CcHTx6aW9G5WG1JohbXMzCPpetVLeBcWc--mVVx--9l8ctcw___?spss=np&amp;aman=1cl40fuc67Ref8o49bt4b6Vd747c6fP418ue01f305)。
+世界以痛吻我，要我回报以歌——我们为一个凋谢的花朵祈祷和反思。
 
-[上交所官网数据显示，2020年12月12日-2021年3月2日，共有34家科创板IPO企业终止审核。而2020年1月至2020年11月，科创板IPO企业终止审核的数量也才26家。近三个月科创板IPO企业终止数量已超过之前11个月的终止数量。据AI财经社统计，过去三个月至少有7家半导体企业被挡在IPO门外，包括国人科技、龙迅半导体、锐芯微电子、中科晶上、芯愿景、昆腾微电子、上海合晶，均是主动撤回申请。](https://ishare.ifeng.com/c/s/v004vZzAyzwBWByXCJy1pK7tZ-oPFhAJmJrUBZYI0yM3CcHTx6aW9G5WG1JohbXMzCPpetVLeBcWc--mVVx--9l8ctcw___?spss=np&amp;aman=1cl40fuc67Ref8o49bt4b6Vd747c6fP418ue01f305)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-评：CCP “大炼芯片”嗝屁了！
 
-By 【金融组 – 小蚂蚁在行动】
+编辑：【英国伦敦喜庄园编辑部】
 
-素材搜集：文罡, Sharon
-
-校对: 小海星
+[!\[\]()!\[\](https://spark.adobe.com/page/p9tQGV78p4jWX/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/p9tQGV78p4jWX/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
