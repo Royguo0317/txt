@@ -1,35 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 「香港要闻」港共政府利用疲民政策 打击香港勇士们
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/947820/)
+## 民调显示，美国人对中共国的好感率降至历史最低
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/947875/)
 
-搜集/编撰：恩典
-![]()![](https://gnews.org/wp-content/uploads/2021/03/封面1-4.jpg)图片来源：网络
-47 人被控串谋颠覆记录他们面对逾50 小时的扣押、聆讯. 2021 年2 月28 日，53 个因协调、参与初选而被捕的民主派人士被警方突然要求提早一个月报到。进入警署后，其中 47 人被正式起诉「串谋颠覆国家政权」罪，先遭通宵扣押，翌日早上到庭申请保释，至近凌晨三时才休庭。期间有人体力不支，晕倒送院。一众被告深夜抵达拘留所不久，又被送回法庭继续聆讯，有代表律师在庭上形容，安排是对众被告「额外肉体上的煎熬」。
+*新闻来源：《国家脉动》| 作者：娜塔莉·温特斯(Natalie Winters) | 发布时间：2021年3月3日*
 
-由 2月28号 下午步入警署起到3月4号，众被告已被扣押、聆讯逾 50 小时，而聆讯仍在进行，未知能否保释…
+*翻译/简评：helloworld | 校对/审核：万人往 | Page：拱卒*
 
-今日第四日提堂。已 5 日 4 夜没有更衣，国安法指定法官苏惠德全数拒绝辩方提出的方案，只容许被告提堂前梳洗，但仍未允许更衣，包括内衣裤。案件今早 10 时再续，预计会听取林卓廷、何桂蓝等约 10 名被告亲自或透过律师的补充陈词，并作保释及传媒申请剔除保释内容报道限制的决定。
+[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/833c65cc-2fb1-43a1-80c8-9609333751ce.jpg?asset_id=05244fe8-fbb4-41b6-9bd3-5a37db487d0f&amp;img_etag=%2259fe2ccfd57b312d62a97817dddd3ae3%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/833c65cc-2fb1-43a1-80c8-9609333751ce.jpg?asset_id=05244fe8-fbb4-41b6-9bd3-5a37db487d0f&amp;img_etag=%2259fe2ccfd57b312d62a97817dddd3ae3%22&amp;size=1024)
 
-战友观点：
+**简评：**
 
-这次2·28事件，47 人被港共正式起诉「串谋颠覆国家政权」罪，如此的大动作，无非是拿香港异见人士做人质，向民主体制国家显示了中共真正的邪恶嘴脸。原本是在4月份才要去报到，却提前到2.28，在没有完成调查结果就提前审讯。可以看出中共已经无视律法到无法无天的程度。
+中共国的行为已引起共愤。中共国对维吾尔族进行了种族灭绝，对美国发动了信息和经济战，产生并传播了新冠肺炎。作恶的结果是，美国对中共国的总体赞成度达到了20%的历史最低水平。
 
-并且当着世界的脸面撕毁《中英联合声明》，而且肆无忌惮使用中共恶律，众目睽睽之下惩治真正的爱港者，这种未审先判，用上手铐脚链迎接爱港者，比起杀人强奸犯更甚对待，这也是中共打击不同异见的一惯手法。为何这次中共大动干戈呢？而不惜一切代价要跟世界抗衡？
+共和党和保守力量已对中共的邪恶、威胁和罪行达成了共识，而现在需要统一民主党、自由派的民意。拜登上台虽然有过和中共国勾兑、淡化威胁的想法，但在铁一般的证据面前，只能选择与中共国对抗。而没有“逢川必反”的政治需要后，民主党和左派势力必将冷静面对现实，充分认识到中共才是美国最大的威胁。
 
-而且出动了愚民、弱民、疲民政策，疲劳轰炸，不让你休息、不让你吃饭、不让换衣服、不让你有尊严等等，对人格的侮辱令人发指的动举。
+中共历来利用美国的钟摆效应。而在美国左右即将达成灭共共识的现在，中共对美国的牵制和利用将再无可能。当美国为首的欧美国家统一民意，下决心出手之时，中共的灭亡也将不可避免。
 
-明显至极，中共的专制霸道在香港展露无疑，正如郭先生说的：香港已经是中共国的一个省了。如果我们还没有认清中共国的目的就是想称霸世界的时候，下一个中共国的省市就在我们所住的地方。
+**原文翻译：**
 
-以上观点仅代表笔者本人
+# 
+**民调：民主党对于犯有种族灭绝的中国共产党表达赞成态度的可能性比共和党高三倍**
 
-资料来源：
+[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/b0b2d335-d0d3-4d17-9aac-c1ec865852b5.jpg?asset_id=75ffc84b-9530-4756-ac5e-8e560cfb6f27&amp;img_etag=%222d43e595bc9b1d557d704367e0d08e2a%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/b0b2d335-d0d3-4d17-9aac-c1ec865852b5.jpg?asset_id=75ffc84b-9530-4756-ac5e-8e560cfb6f27&amp;img_etag=%222d43e595bc9b1d557d704367e0d08e2a%22&amp;size=1024)
 
-[立场新闻：最长的一天 47 人被控串谋颠覆　记录他们面对…](https://www.thestandnews.com/politics/%E6%9C%80%E9%95%B7%E7%9A%84%E4%B8%80%E5%A4%A9-47-%E4%BA%BA%E8%A2%AB%E6%8E%A7%E4%B8%B2%E8%AC%80%E9%A1%9B%E8%A6%86-%E8%A8%98%E9%8C%84%E4%BB%96%E5%80%91%E9%9D%A2%E5%B0%8D%E9%80%BE-50-%E5%B0%8F%E6%99%82%E7%9A%84%E6%89%A3%E6%8A%BC-%E8%81%86%E8%A8%8A/)
+**盖洛普（Gallup）进行的一项新民意调查显示，美国人对中共国的好感率达到了历史最低的20%，而民主党人对这个共产主义国家持赞成态度的可能性是共和党人的近三倍。**
 
-[立场新闻：【47 人案第四日 文字直播】15 人获保释　律政司即提出…](https://www.thestandnews.com/politics/47-%E4%BA%BA%E6%A1%88%E7%AC%AC%E5%9B%9B%E6%97%A5-%E6%96%87%E5%AD%97%E7%9B%B4%E6%92%AD-%E8%87%B3%E5%B0%91-10-%E4%BA%BA%E8%A3%9C%E5%85%85%E9%99%B3%E8%A9%9E-%E9%81%8E%E7%99%BE%E4%BA%BA%E5%86%92%E9%9B%A8%E6%8E%92%E9%9A%8A%E6%97%81%E8%81%BD/)
+2月初的民意调查显示，只有10%的共和党人、22%的独立党人和27%的民主党人“对中共国持赞成态度”。
 
-覆核：文卡西欧 / 上传:文粤
+[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/4b037451-6245-4004-bd03-b7d8c5c395eb.png?asset_id=f0ae122d-e1da-4ef8-957e-afb6cb35fe8c&amp;img_etag=%2297498842a783b1c847f88b3372fbb207%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/4b037451-6245-4004-bd03-b7d8c5c395eb.png?asset_id=f0ae122d-e1da-4ef8-957e-afb6cb35fe8c&amp;img_etag=%2297498842a783b1c847f88b3372fbb207%22&amp;size=1024)
+
+新的民调数字明显下降，分别是13%、17%和8%。
+
+中共国对维吾尔族进行了种族灭绝，对美国发动了信息和经济战，产生并传播了新冠肺炎。这直接导致了民调所显示的结果，美国对中共国的总体赞成度达到了20%的历史最低水平。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/1e887850-4e42-4eee-bed3-550e2a4a76e6.png?asset_id=946dbed9-5ba8-4dcf-ab2c-fd1f5edb65d0&amp;img_etag=%22bf8b3041ebd2ffac0b856becd05f584a%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/1e887850-4e42-4eee-bed3-550e2a4a76e6.png?asset_id=946dbed9-5ba8-4dcf-ab2c-fd1f5edb65d0&amp;img_etag=%22bf8b3041ebd2ffac0b856becd05f584a%22&amp;size=1024)
+
+该民调统计自1979年开始追踪。在中共国政府镇压天安门广场的示威者之后，1989年8月，该数据也出现了类似的迅速下降。
+
+[原文链接](https://thenationalpulse.com/breaking/dems-ccp-favorability-vs-republicans/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
