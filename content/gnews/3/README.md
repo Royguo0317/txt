@@ -1,37 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【史海今钩】浅谈中国人的宗教信仰 （一）
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/947852/)
+## 民调显示，美国人对中共国的好感率降至历史最低
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/947875/)
 
-作者：香草山写作组 Kathy（文艺）
+*新闻来源：《国家脉动》| 作者：娜塔莉·温特斯(Natalie Winters) | 发布时间：2021年3月3日*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1401-【史海今钩】浅谈中国人的宗教信仰-（一）.jpeg)
+*翻译/简评：helloworld | 校对/审核：万人往 | Page：拱卒*
 
-走在大街上，或坐在餐厅里，四围观望，身边许多国人会在手腕上戴着真假佛珠，出租车司机也会在车上挂上一串。此情此景容易让人相信，国人是不是大部分在信仰佛教。
+[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/833c65cc-2fb1-43a1-80c8-9609333751ce.jpg?asset_id=05244fe8-fbb4-41b6-9bd3-5a37db487d0f&amp;img_etag=%2259fe2ccfd57b312d62a97817dddd3ae3%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/833c65cc-2fb1-43a1-80c8-9609333751ce.jpg?asset_id=05244fe8-fbb4-41b6-9bd3-5a37db487d0f&amp;img_etag=%2259fe2ccfd57b312d62a97817dddd3ae3%22&amp;size=1024)
 
-笔者近年回老家，被亲友带上附近的山丘，庙宇林立，香火不断。各庙宇前坐着算命，抽彩头（预言式的算卦）等营生的各式人等，幺三和四的，好不热闹。新建的庙里金碧辉煌，像极了金銮殿。但神像，菩萨，土地公，乱七八糟的神，拜个没完没了。据说可是一门赚钱的行业。当然，捐钱是少不了的一道程序。
+**简评：**
 
-据说中国有四亿佛教徒。 真正信仰的又有多少呢？
+中共国的行为已引起共愤。中共国对维吾尔族进行了种族灭绝，对美国发动了信息和经济战，产生并传播了新冠肺炎。作恶的结果是，美国对中共国的总体赞成度达到了20%的历史最低水平。
 
-我们知道，中国人是讲求实用的民族。做什么事都讲个回报，用通俗的语言讲就是有无用。国人多数受到传统的儒家思想熏陶，不相信神秘主义，只信实证主义。这与当初从印度传来的佛教的原初教义有着本质差别。许多人是逢神必拜，许的愿也多是求神逢凶化吉，送子添孙，保佑发财健康等实际的需求。
+共和党和保守力量已对中共的邪恶、威胁和罪行达成了共识，而现在需要统一民主党、自由派的民意。拜登上台虽然有过和中共国勾兑、淡化威胁的想法，但在铁一般的证据面前，只能选择与中共国对抗。而没有“逢川必反”的政治需要后，民主党和左派势力必将冷静面对现实，充分认识到中共才是美国最大的威胁。
 
-街道上亦常碰见佛教仪式的丧事，但切莫以为那就是真正的佛家法会。你会看见和尚与道士穿梭，听见佛教和道教的念经声和唱，甚至有儒教的文华底蕴的书法，墓碑碑文以及家族的牌位。这样的大杂烩在中华大地上无处不见。近年还随着人人朝钱看思潮泛滥，新奇的五花八门的脱衣舞，红歌舞，卡拉OK等都登上了丧礼的舞台，简直要把逝者从棺材里惊“醒”。
+中共历来利用美国的钟摆效应。而在美国左右即将达成灭共共识的现在，中共对美国的牵制和利用将再无可能。当美国为首的欧美国家统一民意，下决心出手之时，中共的灭亡也将不可避免。
 
-笔者不是要否定少数真正的佛教徒在真正的修行。但大部分国人所谓的信佛，只不过是在危机时刻寻求一根稻草，一个护身符而已，与修行修心的宗教信仰背道而驰。还不如撕掉任何包装，坦诚自己无任何信仰，不信任何神，做人做事只凭自己的良知而来得真诚可爱。
+**原文翻译：**
 
-（文章仅代表作者个人观点）
+# 
+**民调：民主党对于犯有种族灭绝的中国共产党表达赞成态度的可能性比共和党高三倍**
 
-审核/发稿：雪梨
+[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/b0b2d335-d0d3-4d17-9aac-c1ec865852b5.jpg?asset_id=75ffc84b-9530-4756-ac5e-8e560cfb6f27&amp;img_etag=%222d43e595bc9b1d557d704367e0d08e2a%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/b0b2d335-d0d3-4d17-9aac-c1ec865852b5.jpg?asset_id=75ffc84b-9530-4756-ac5e-8e560cfb6f27&amp;img_etag=%222d43e595bc9b1d557d704367e0d08e2a%22&amp;size=1024)
+
+**盖洛普（Gallup）进行的一项新民意调查显示，美国人对中共国的好感率达到了历史最低的20%，而民主党人对这个共产主义国家持赞成态度的可能性是共和党人的近三倍。**
+
+2月初的民意调查显示，只有10%的共和党人、22%的独立党人和27%的民主党人“对中共国持赞成态度”。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/4b037451-6245-4004-bd03-b7d8c5c395eb.png?asset_id=f0ae122d-e1da-4ef8-957e-afb6cb35fe8c&amp;img_etag=%2297498842a783b1c847f88b3372fbb207%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/4b037451-6245-4004-bd03-b7d8c5c395eb.png?asset_id=f0ae122d-e1da-4ef8-957e-afb6cb35fe8c&amp;img_etag=%2297498842a783b1c847f88b3372fbb207%22&amp;size=1024)
+
+新的民调数字明显下降，分别是13%、17%和8%。
+
+中共国对维吾尔族进行了种族灭绝，对美国发动了信息和经济战，产生并传播了新冠肺炎。这直接导致了民调所显示的结果，美国对中共国的总体赞成度达到了20%的历史最低水平。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/1e887850-4e42-4eee-bed3-550e2a4a76e6.png?asset_id=946dbed9-5ba8-4dcf-ab2c-fd1f5edb65d0&amp;img_etag=%22bf8b3041ebd2ffac0b856becd05f584a%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/1e887850-4e42-4eee-bed3-550e2a4a76e6.png?asset_id=946dbed9-5ba8-4dcf-ab2c-fd1f5edb65d0&amp;img_etag=%22bf8b3041ebd2ffac0b856becd05f584a%22&amp;size=1024)
+
+该民调统计自1979年开始追踪。在中共国政府镇压天安门广场的示威者之后，1989年8月，该数据也出现了类似的迅速下降。
+
+[原文链接](https://thenationalpulse.com/breaking/dems-ccp-favorability-vs-republicans/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

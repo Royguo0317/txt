@@ -1,68 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国黑客使用美国国家安全局代码攻击美国
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/947714/)
+## 中共国将CCP病毒用作“另一种控制记者的手段”来实现新闻封锁
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/947890/)
 
-*新闻来源：《福克斯新闻》| 作者：Brooke Crothers | 发布时间：2021年3月1日*
+*新闻来源：SCMP《南华早报》| 作者：AFP 法新社| 发布时间：2021年3月1日*
 
-*翻译/简评：helloworld | 校对/审核：万人往 | Page：拱卒*
+翻译/简评：wmorpho |校对：SilverSpurs7 |审核：万人往 |Page：小雨
 
-[!\[\]()!\[\](https://spark.adobe.com/page/9DHhMKyrmxJL1/images/d41e69f9-695f-4c68-ab62-6f9309b59dba.jpg?asset_id=24768978-33de-4ec3-bc20-066d83dce22c&amp;img_etag=%220c1e27da767d01e9a66fc9e3ed58b770%22&amp;size=2560)](https://spark.adobe.com/page/9DHhMKyrmxJL1/images/d41e69f9-695f-4c68-ab62-6f9309b59dba.jpg?asset_id=24768978-33de-4ec3-bc20-066d83dce22c&amp;img_etag=%220c1e27da767d01e9a66fc9e3ed58b770%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/zEdAdXej9tpgM/images/1f5810f4-5ac3-4c53-8aa0-12dc4f9caa6e.jpg?asset_id=88fc3b6e-8bc6-4cc1-b598-64d14315ca59&amp;img_etag=%22510530501a05530c7b2072a34252da8a%22&amp;size=2560)](https://spark.adobe.com/page/zEdAdXej9tpgM/images/1f5810f4-5ac3-4c53-8aa0-12dc4f9caa6e.jpg?asset_id=88fc3b6e-8bc6-4cc1-b598-64d14315ca59&amp;img_etag=%22510530501a05530c7b2072a34252da8a%22&amp;size=1024)
 
 **简评：**
 
-中共国国家支持的黑客组织一直在谋求对美国的渗透和攻击。通过从捕获的网络流量重建，以及直接窃取代码，中共国使用了美国国家安全局黑客储备的攻击代码，并在多年间将其用于攻击美国目标。
+驻华外国记者协会在年度报告中说：“由于中共国的宣传机器努力试图重新获得对这场公共卫生灾难叙述的控制权，外国新闻媒体报导疫情屡屡受阻，中共国利用疫情作为控制记者的另一种手段。”随着中共国与几个西方国家之间的关系恶化，在2020年还发生了“自30多年前的天安门大屠杀之后最大规模的外国记者被驱逐事件”。调查还警告说，外国新闻媒体已成为中共国媒体进行虚假抹黑的目标，其中包括声称外国新闻媒体的受访者是有报酬的演员。
 
-中共国对内实施高压统治，遏制思想的自由迸发，从而压制了中国人的创新。为了弥补短板，中共国向欧美国家伸出黑手。无论是千人计划，还是各种“蓝金黄”，包括APT31这样的黑客行动，中共国长期对欧美各国实施着技术窃取和渗透。这样的结果，只能是引起西方各国的反弹。在病毒真相逐渐被揭开、欧美反共大潮一浪高过一浪的今天，以往被忍耐淡化的黑客攻击也被摆上了台面，作为向中共讨伐的罪状之一。
-
-中共对中国人形象的扭曲，让中国人陷入了越努力越被世界唾弃的怪圈。黑客窃取、技术盗窃、霸凌他国，不能使中共国真正强大。只有消灭中共，才能解放中国人的创新能力，真正让中国人为世界贡献力量，让中华民族成为被世界尊敬的民族。
+斯宾诺莎曾说：“恶的本质就是无能。”中共的无能不仅让中国老百姓生灵涂炭，还要利用病毒祸及全世界。中共国对外国记者的限制和威吓说明中共是多么的害怕和恐惧。世界已经不堪忍受中共的恶行，无论从军事还是舆论已做好充分的准备，彻底铲除共产党才能拯救全世界！
 
 **原文翻译：**
 
-# **中共国黑客使用美国国家安全局代码攻击美国目标**
+# **媒体组织说，中共国将新冠用作“另一种控制记者的手段”**
 
-**研究者称，这些代码于多年前被窃**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/9DHhMKyrmxJL1/images/ea5fa49b-61af-4a13-b1c4-3093d1b4d790.jpg?asset_id=62ec50ee-eece-4ed5-b558-54e7da6ac6ef&amp;img_etag=%22c6344e57f0a093767d745b1e0dbebbc4%22&amp;size=2560)](https://spark.adobe.com/page/9DHhMKyrmxJL1/images/ea5fa49b-61af-4a13-b1c4-3093d1b4d790.jpg?asset_id=62ec50ee-eece-4ed5-b558-54e7da6ac6ef&amp;img_etag=%22c6344e57f0a093767d745b1e0dbebbc4%22&amp;size=1024)
+**• 驻华外国记者协会在年度报告中说，北京已经施加更严密的监视和限制来阻止记者报道真相**
 
-研究人员本周表示，在安全漏洞被修复前数年，一个中共国小组“克隆”了从美国国家安全局（NSA）窃取的代码。
+**• 约42%的被调查者在没有病毒风险的情况下却被以公共卫生健康和安全的理由被迫离开或被拒绝进入某地**
 
-IT安全公司CheckPoint在一份研究报告中说，这个被称为APT31的中共国组织，利用所谓的漏洞，以及其他黑客程序发动攻击。一般而言，APT（全称为高级持续性威胁）与民族国家的网络活动有关。
+[!\[\]()!\[\](https://spark.adobe.com/page/zEdAdXej9tpgM/images/e58f0a11-b84f-48a9-a8c9-7b2a7605b506.jpg?asset_id=011a8f48-3d22-4e0f-bb22-17f3886300dd&amp;img_etag=%2251dba7284aa60a217082ad139e8419eb%22&amp;size=2560)](https://spark.adobe.com/page/zEdAdXej9tpgM/images/e58f0a11-b84f-48a9-a8c9-7b2a7605b506.jpg?asset_id=011a8f48-3d22-4e0f-bb22-17f3886300dd&amp;img_etag=%2251dba7284aa60a217082ad139e8419eb%22&amp;size=1024)2月19日疫情爆发后，东北吉林省通化市的一个地区进行消毒。北京一直在努力宣传关于疫情的官方叙述，并屏蔽批评。照片：新华社
 
-CheckPoint公司发言人接受福克斯新闻采访时说：“CheckPoint研究部门已确定，中共国黑客克隆并多次使用了美国黑客组织的网络攻击工具，据信[该美国黑客组织]与美国国家安全局有关。”
+一家新闻机构周一说，中共国将新冠疫情用作“另一种控制记者的手段”，并警告称，北京利用公共卫生健康原因施加了更严密的监视和限制措施，以阻碍记者的调查工作。
 
-发言人说：“它不仅落入[中共国]手中，而且他们还将其改变用途，很可能用于针对美国目标的攻击。”
+自2019年底冠状病毒爆发以来，尽管中共国已基本控制了病毒的爆发，但北京却急于开始宣传其处理病毒有效措施为核心的官方叙述，并屏蔽对其早期处理疫情的态度与方式的批评。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/9DHhMKyrmxJL1/images/8a45e665-6502-45f1-918f-bd849cbb80d3.jpg?asset_id=5c3cdb0b-f464-4ea7-8fba-7b0005a08a08&amp;img_etag=%2235da3d5bece3995824249604e13395fb%22&amp;size=2560)](https://spark.adobe.com/page/9DHhMKyrmxJL1/images/8a45e665-6502-45f1-918f-bd849cbb80d3.jpg?asset_id=5c3cdb0b-f464-4ea7-8fba-7b0005a08a08&amp;img_etag=%2235da3d5bece3995824249604e13395fb%22&amp;size=1024)研究人员本周表示，在安全漏洞被修复前数年，一个中共国小组“克隆”了从美国国家安全局窃取的代码。（来源：美联社图片/Patrick Semansky）
+“由于中共国的宣传机器努力试图重新获得对这场公共卫生灾难叙述的控制权，外国新闻媒体报导疫情的努力屡屡受阻，”驻华外国记者协会在其年度报告中说，“中共国利用疫情作为控制记者的另一种手段。”
 
-福克斯新闻（Fox News）已向美国国家安全局和中共国大使馆提出置评请求。
 
-据CheckPoint报道，中共国黑客使用的工具名为“剑”，是EpMe的“副本”。EpMe是Windows平台上的黑客工具，与美国国家安全局旗下黑客“方程式组织”有关。
+*中国公民记者张展因报道武汉冠状病毒被判入狱四年*
+媒体组织说，严格的新冠病毒检测措施被用作阻挡或威胁记者的手段，记者“被告知要被驱离或被隔离后，被迫放弃采访行程”。
 
-2015年，网络安全公司卡巴斯基将该组织描述为“世界上最复杂的网络攻击组织之一”。
+约42%的受访者说，由于健康和安全原因，当他们不构成危险时，他们被要求离开一个地方或被拒绝进入。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/9DHhMKyrmxJL1/images/b2c4b4eb-a027-40e1-a1f4-50cc8253b18a.jpg?asset_id=2fdd4116-6266-4bc7-9252-d5375d16887c&amp;img_etag=%224d264b7aa6f843da5ff2a10d780b5796%22&amp;size=2560)](https://spark.adobe.com/page/9DHhMKyrmxJL1/images/b2c4b4eb-a027-40e1-a1f4-50cc8253b18a.jpg?asset_id=2fdd4116-6266-4bc7-9252-d5375d16887c&amp;img_etag=%224d264b7aa6f843da5ff2a10d780b5796%22&amp;size=1024)IT安全公司CheckPoint在一份研究报告中说，这个被称为APT31的中共国组织，利用所谓的漏洞以及其他黑客程序发动攻击。（来源：路透社/KimKyung-Hoon）
+驻华外国记者协会表示，记者被要求遵守不适用于其他人的措施，新冠病毒检查站和个人健康信息追踪应用程序的引入“为中共国当局收集数据和监视外国记者及其调查来源提供了更多便利机会”。
 
-CheckPoint表示，2014年至2017年，中共国黑客利用该软件副本进行攻击。直到2017年，该缺陷（或漏洞）才被修复。
+记者说，消息来源中心城市武汉的医务人员曾被当局讯问或警告不要接受采访。武汉是新冠病毒首次出现的地方。
 
-本质上讲，该工具将允许黑客以高度特权级别访问微软网络，这意味着它们可以获得对网络的深度访问。
+连续三年，150名受访者中，没有一个人说工作条件有所改善。驻华外国记者协会称，随着中共国与几个西方国家之间的关系恶化，在2020年还发生了“自30多年前的天安门大屠杀之后最大规模的外国记者被驱逐事件”。
 
-CheckPoint表示，该漏洞最初由洛克希德•马丁公司的事件响应团队发现，然后由微软在2017年进行了详细说明。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/9DHhMKyrmxJL1/images/5c70e6de-f82f-44b3-849a-83ba26602025.jpg?asset_id=b30e30fc-54b2-4378-b072-6a6fd0ccfd2e&amp;img_etag=%222cd7ce0de297760f89ba2ea7be65637b%22&amp;size=2560)](https://spark.adobe.com/page/9DHhMKyrmxJL1/images/5c70e6de-f82f-44b3-849a-83ba26602025.jpg?asset_id=b30e30fc-54b2-4378-b072-6a6fd0ccfd2e&amp;img_etag=%222cd7ce0de297760f89ba2ea7be65637b%22&amp;size=1024)2015年，网络安全公司卡巴斯基将该组织描述为“世界上最复杂的网络攻击组织之一”。 (iStock)
+*由于外交关系恶化，澳大利亚在中国大陆地区最后两名有采访许可的记者被撤离*
 
-微软在该漏洞的执行摘要中解释：“成功利用该漏洞的攻击者，可以在内核模式下运行任意代码。然后，攻击者可以安装程序；查看、更改或删除数据；或创建具有完全用户权限的新账户。”
 
-2017年，微软通过“防止意外的用户模式权限提升的实例”更新修补了该漏洞。
+报道指出，在2020年下半年，当国家安全人员告诉两名澳大利亚媒体记者，他们被禁止离开中共国时，外国记者成了“外交口水战中的棋子”。
 
-**曾有发生**
+两人在逃离中共国之前，曾在澳大利亚的外交使团中寻求避难。自9月以来，由于中美两国之间的关系恶化，中共国当局停止向美国新闻机构的记者签发新的记者证。
 
-这种事情已经不是第一次发生了。根据网络安全公司赛门铁克2018年的报道，中共国黑客利用了美国国家安全局的黑客工具永恒之蓝(EternalBlue)和永恒罗曼史(EternalRomance)。
+调查还警告说，外国新闻媒体已成为中共国媒体进行虚假抹黑的目标，其中包括声称外国新闻媒体的受访者是有报酬的演员。
 
-CheckPoint表示：“这种情况下，我们的安全研究小组以及赛门铁克的共识是，中共国的漏洞是由捕获的网络流量重建的。”
-
-[原文链接](https://www.foxnews.com/tech/chinese-hackers-used-nsa-code-to-attack-american-targets)
+🔗[原文链接](https://www.scmp.com/news/china/politics/article/3123580/china-using-covid-19-yet-another-way-control-journalists-media)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -71,6 +64,6 @@ CheckPoint表示：“这种情况下，我们的安全研究小组以及赛门�
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/9DHhMKyrmxJL1/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/9DHhMKyrmxJL1/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/zEdAdXej9tpgM/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/zEdAdXej9tpgM/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0
