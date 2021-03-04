@@ -1,45 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港快讯】 3月4日 香港丧失经济自由指数排名 英国民间组织批红色资本支配香港
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/947466/)
+## 郭先生对两会、台湾、香港重大事件的解读
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/947535/)
 
-搜集\整理：【喜马拉雅-粤语组】阿恩 \封面合成：文粤
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image001-12.jpg)
-**香港丧失经济自由指数排名**
+摘要：在2021年2月24日的盖特视频中，郭文贵先生谈到了他对两会重大事件的解读，即确定中南坑的接班人。他说，现在所有人给习汇报的经济指标和打台湾的结果都是假的，包括崔大使频繁从美国发回的“捷报”。 他还指出，以毒灭共和以钱灭共是和沼泽地里所有人达成默契最好的两件武器。前者让世界人民安全，后者符合资本主义社会的需要。爆料革命已经成为世界上唯一一股追求真相、追求正义、追求信仰、信奉上天的绝对性的阳光的力量。我们应该让世界看到新中国联邦的宣言和作为。
+[下载](https://gnews.org/wp-content/uploads/2021/03/Miles_20210224_Getter.srt.txt)[字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210224_Getter-revised.srt.txt)
+**郭先生对两会、台湾、香港重大事件的解读**
 
-美国智库美国传统基金会（The Heritage Foundation）和《华尔街日报》共同公布周四公布新一年度的「全球经济自由指数」，在去年以89.1分位列第二的香港，在今年排行榜中直接被除名，去年排35名的澳门亦榜上无名。 《华尔街日报》编辑部解释因两地的政策「最终都是由北京控制」，因此没有在今次排名内出现。
+**Miles Is Spot on About NPC & CPPCC, Hong Kong, and Taiwan**
 
-香港自「全球经济自由指数」1995年创立后，连续25年居榜首，去年退居第二。当时美国传统基金会指出，港府2019年寻求修订《逃犯条例》威胁司法独立，持续的政治和社会动荡亦削弱香港声誉。美国传统基金会曾指出，港府2019年寻求修订《逃犯条例》威胁司法独立，持续的政治和社会动荡亦削弱香港声誉。浸会大学政治及国际关系学系副教授陈家洛指出，政府「无休无止」地清算本港异见人士，难以说服国际相信香港未来得以「拨乱反正」，反而忧虑香港在北京的全面管治下，能否继续维持自由经济体系，「或是已经变成政治主导、走向社会主义的游戏玩法」。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image002-2.jpg)
-**空降广播处长李百全清算港台**
+然后我刚才看信息，简单看了一下，就因为我上次的上午的直播，哇噻，这共产党“咣咣的”，哎呀我的妈呀，哎呀我的妈呀，说：“文贵呀，你这个直播太吓人了，虽然我们是半夜里面，我们很多人都看到了这个信息。关于两会你解读明白了，关于打台湾，你是说准确了，关于这次两会的重大事件，你都说对了。”就是要确定中南坑的接班人，我不但要管一辈子，我要领导一辈子，江山永远是人民的，江山是人民都是我的，谁有权利决定下一个接班人，那就是我，这就是习。王岐山现在的旁边，虽然暗下里面走两边船，但是他两边都不吃亏。但是这个内斗，现在是在国内大家都看得很明白。更夸张的事情是整个经济，特别是要打台湾这件事。有脑子的人都知道，打台湾这件事就作死去了，就自杀去了。
 
-零传媒经验的民政事务局副秘书长李百全空降接任广播处长，上任仅4天即「大发官威」。李百全今早表明，即日起至未来1周的节目均需让他先过目，才可以出街。包括公共事务部节目《铿锵集》和《视点》则讲及电影。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image003-10.jpg)
-**47民主派提堂｜200人冒雨支持**
+I just quickly checked messages. Because the live broadcast I did in the morning, wow, the CCP has … Oh, my goodness! They said, “Miles, your live broadcast is scary. We were in the middle of the night but many of us saw this information. You interpreted the NPC & CPPCC (the National People’s Congress and the Chinese People’s Political Consultative Conference) really clearly. You were really accurate about the war with Taiwan. And you were also correct regarding the major event of the NPC & CPPCC.” That is to confirm the successor of the Zhongnan Pit. Not only do I (referred to Xi Jinpin) want to manage the country for the rest of my life, but I also want to lead the country for the rest of my life. The country belongs to the people forever. The country and the people are both mine. I am the one that has the right to decide on the successor. This is Xi Jinping. Although Wang Qishan has been trying to please both parties secretly, it doesn’t put him in an unfavorable situation. However, everyone in China can see the internal power struggle clearly. What’s more absurd is the whole economy, especially the war with Taiwan. Anyone with a brain knows that war with Taiwan is literally a suicide.
 
-清晨6时许，西九龙裁判法院公众席已经有约20人排队，全部席地而坐，或进食早餐。而法院门外道路仍然被围封，有警车及警员驻守。至早上7时半，排队等候的人数增至约100人，人龙排至东京街西。虽然落下毛毛细雨，但各人并不退避，有的打伞遮挡，有的冒雨留守。
+但是现在所有的人，就像我今天说的那样，给习汇报的经济指标，给习汇报的所有打台湾的结果，都是假的。说打台湾，原来说一个月，现在说了，美国不参与，或者是不直接参与，一星期绝对拿下，甚至说三天拿下。而且竟然最近有人告诉他们说：打台湾可能是一枪不打，当天台湾就投降了。现在就差台湾自己游泳回大陆了，就差这个建议了。所以说这个是好事，这是好事，兄弟姐妹们，因为他们这样做，共产党就会更加地作死。
 
-现场所见，有市民以不同形式默默支持被捕者，包括拿着「释放政治犯」的纸牌、以小提琴拉奏《海阔天空》，与及穿上「加」「油」的耳环作无声支持，令人动容；又有市民向在场排队的支持者派朱古力和暖包，互相勉励。
+As I said today, everyone is telling lies now when they report to Xi about the economic indicators and the outcome of the war with Taiwan. Previously they said it would take a month to win the war with Taiwan. Now they say that if the US doesn’t get involved or involved directly, they will definitely win the war in a week, or even in three days. Recently, there have even been people telling them that the war with Taiwan won’t even take a gunshot. Taiwan will surrender on the same day. The only advice they have not yet got may be that Taiwan will swim back to the mainland voluntarily! This is a good thing, brothers and sisters, because when they do this, the CCP will create more trouble for themselves and die sooner.
 
-警方亦派驻近50人，包括军装警员、机动部队及便衣警，在法院外围巡逻。多部警车停泊在通州街天桥底，霸占一条快线，囚车对开的路口有近30名警员。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image004-7.jpg)
-**47民主派战友受尽折磨 许智峰沉重压抑**
+对美国就别提了，听说崔大使不是脱了西装换军装了，崔大使现在已经天天报喜事，说：“美国军事界，国会山的议员和拜登的新政府，以及川普原来的政府的全官员，以及过去反共的人士，包括郭文贵的这些朋友们，都在私下的排队等着我，要见我崔大使。就差着说给崔大使换尿布了，都想让我摸摸顶，让我说两句好话，然后安心安心，回去能睡着觉，因为过去啊，受迷惑了，对共产党说了些不利的话，是吧？我们要见习主席，我们要向习主席表达，我们错了，给我们点机会悔改吧，是不是？我们还是要跟习主席好，听习主席的。”就差没说了：你可以来双修我们家人，一切都是习的，一切都是听党的，一切财产都是属于人民的，人民和财产都属于中南坑的，就差说这了。
 
-有份参与初选、被控多条罪名包括有传正被国安法通缉的前民主党立法会议员许智峰，去年底流亡英国。眼见战友正在法庭上受尽折磨，许智峰在香港时间今早发文，透露被正在犯人栏中的47人中，他与其中12人的相处点滴：「从政以来，重（从）没试过如此的沉重及压抑。老（脑）海里零零散散不断想起与他们一起奋斗的点滴。」文中写到身陷囹圄的戴耀廷不忘出狱后要做法治研究，与赵家贤在「反送中」冲突后惨食胡椒喷雾，胡志伟的关心… …
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image005-11.jpg)
-**港航下月续推无薪假**
+Do not mention how they are dealing with the US. I heard that Ambassador Cui is not just changing his suits into military uniform. Ambassador Cui is reporting good news everyday nowadays, saying that the US military circle, congressmen of the Capitol Hill, Biden’s new administration and all officials of the previous Trump administration, as well as people who were anti-CCP before, including all these friends of Miles Guo, are all lining up and waiting to see me, Ambassador Cui. Just say that they want to change nappies for Ambassador Cui! They all want me [Ambassador Cui] to touch their head and say some kind words, so that they can be relieved and sleep, because in the past, they were bewitched and said things that harmed the CCP, right? We want to see President Xi and express our apologies. Please give us a chance to repent, right? We still want to be friends with President Xi and listen to President Xi. The only thing they didn’t say was, ‘Feel free to come and sexually assault my family. Everything belongs to Xi. We listen to the CCP about everything. All assets belong to the people. And the people and the assets both belong to the Zhongnan Pit.’ This is the only thing they didn’t say.
 
-香港航空再向员工「开刀」，续推无薪假，各职级的地勤及后勤人员由下月至6月，每月要放最多4天无薪假，相当于减薪5%至15%不等。有受影响员工直言武汉肺炎疫情持续，航空业复飞无期，惟有逆来顺受；工会则批评新一份《财政预算案》盲目推出电子消费券，却漠视受失业或受无薪假影响的雇员，「不理民间水深火热」。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image006-2.jpg)
-**英组织批红色资本支配香港**
+这崔大使的好消息频繁往回送啊。刚才的哥儿们，我看到的信息超级好笑，他说：“文贵，在我上班的路上的时候，我要给你发一个信息，你太了解中南坑的运作了，就刚才我们收到了信息，说美国又捷报来了，又爆捷报来了，美国又有好消息。” 崔大使牛叉，快点儿崔大使，你一定把那等着到你那，给你所谓说要摸顶的、冠顶的，要让你双修的人，挨个的接待接待。你大爷来的！
 
-关注香港人权的英国民间组织「香港监察（Hong Kong Watch）」昨发表《红色资本：改变香港政局的无形之手》研究报告，解释中共政府如何透过「红色资本」渗透、胁迫香港，警告民主社会要香港为鉴，警惕在红色资本支配下，如何为社会带来负面影响。 「香港监察」的报告则提及，自2003年香港与中央签定《内地与香港关于建立更紧密经贸关系的安排》（CEPA）后，共产党已悄悄开始控制香港经济，包括有「红色企业」雇员曾被要求支持香港政府，又有中资公司要求员工签名支持港版国安法等，由传媒到房地产、政治到金融，经济结构上的转变都为香港各个方面带来了不可忽视的影响。报告续提到，红色资本的涌入，令内地商会成为了香港商界的主要参与者，他们决定在哪间传媒公司可获得广告，控制中资公司的雇员如何投票，反而外国商界对于2019年《逃犯条例》修订的忧虑却被无视（were batted aside），北京更向国际商界发出最后通牒，「要认同国安法，否则将面临国泰航空般的对待」。报告建议，要采取行动应对红色资本，包括停止向严重侵犯人权的中国公司投资，和制订类似美国《香港自治法》的政策。批评汇丰积极配合香港政府，该行的取态削弱了英国政府于《中英联合声明》的立场。他指汇丰一事应令国际政策制订者警惕。
+Ambassador Cui has been sending good news back so frequently. I just saw a very funny message from a buddy. He said, “Miles, I was going to send you a message on my way to work. You know the operation of the Zhongnan Pit so well. We just received a message saying that there was news of victory from America again. There was good news from America again.”Ambassador Cui, you are awesome. Quick, go and greet those who are waiting to have their head touched, waiting to be filled with wisdom and to be sexually assaulted by you. Go and receive them one by one. Damn you!
 
-[苹果日报（一）](https://hk.appledaily.com/international/20210304/3BVG2KNIDNES5OL6IHGF5TYF6M/)、[苹果日报（二）](https://hk.appledaily.com/local/20210304/B3OIXJ5NKZCL5JFH7PQZA6NMTY/)、[苹果日报（三）](https://hk.appledaily.com/local/20210304/YZK7U5ISIBGHJLIS4BXFVRN7WY/)、
+最重要的现在我要跟你们说啥？听说中南坑，听说咱们获得了美国支付牌照以后，很是紧张，很是不高兴。我可以告诉大家，这只是刚刚开始。就在今天下午，某个国家和某个金融组织，现在正式地答应我们，他们要进入绿车道、快车道，和我们G系列全面合作。“以毒灭共”，灭共是主题，还有“以毒灭共，和以钱灭共”，它是一个和沼泽地里面所有的人之间，能达成默契最好的两件武器。以毒灭共让世界人民安全，以钱灭共，资本主义社会有资本有主义，两样都有。要尊严、要安全、要钱、要利益，合法的就从咱这获得。这不是吹牛的，这不是忽悠的，谁能做到？给我看看！
 
-[苹果日报（四）](https://hk.appledaily.com/local/20210304/KFRGQZ6N7JAKVGCJOTW4QZO4CQ/)、[苹果日报（五）](https://hk.appledaily.com/local/20210304/J6RWEFLKPBGAVCK4S4EQMOFOSI/)、[苹果日报（六）](https://hk.appledaily.com/local/20210304/SBEFVELG6BHINNRWCTHZUI6MBA/)
+You know what’s something important that I want to tell you? I heard that people in the Zhongnan Pit are very nervous and very unhappy after knowing that we’ve got the American payment license. I can tell everybody that this is just a beginning. This afternoon, a country and a financial organization have formally agreed to enter the green channel, or the express lane, and embark on a full cooperation with our G series. Taking down the CCP is our theme. Taking down the CCP by spreading the truth about the virus and by financial activities are the two best weapons that allow tacit agreement with all people in the swampland. Taking down the CCP by spreading the truth about the virus will keep the world safe. Taking down the CCP by financial activities [will work] because in a capitalist society, there will only be doctrine when there is capital. We can provide both. Dignity, safety, money, interests and legitimacy, you can get all of these from us. This is not bragging or fooling. Who else can achieve this? Show me!
 
-审核：【喜马拉雅粤语组】 文卡西欧 / 上传：文粤
+所以说，兄弟姐妹们，此时此刻让我们每个人都要看到，新中国联邦的宣言和新中国联邦所有的行为，和新中国联邦做出的一切的事实，包括我们以毒灭共，包括我们现在的，以钱灭共的所有的行动，会让所有的战友们和中国人民得到真正的安全和自由的信仰和司法的独立，并且会让大家都体面的生活。这就是我们新中国联邦。所以说国内的人看咱直播的人，多人看咱直播，你想想今天上午多少人看到，国内的VPN是多少？你想想。兄弟姐妹们，珍惜上天给我们这一切。全世界乱成了一锅粥，唯有新中国联邦独好，唯有爆料革命成为了世界上唯一一个有正义、追求真相、追求正义、追求信仰、信奉上天的一股绝对性的阳光的力量，没有第二个了，没有第二个了。
+
+Therefore, brothers-in-arms, at this moment we should let everyone see the declaration and all of the actions of the New Federal State of China (NFSC), and some of the things that the NFSC has done, including taking down the CCP by spreading the truth about the virus, and our current actions to take down the CCP by financial activities. These will help all our brothers-in-arms and the Chinese people get real security, freedom in religion and judicial independence, and also let everyone live a decent life. This is our NFSC. So, there are many people watching our broadcast from China. Think about how many people were watching this morning. How many people were watching by VPN from China? Think about it, brothers and sisters. We should cherish everything that Heaven gives us. The world is in a mess, except for the NFSC. The Whistleblower Movement has absolutely become the only sunshine-like power in the world that has justice, seeks truth, justice and faith, and believes in heaven. There is no one else comparable.
+
+然后关于香港，刚才哥儿们跟我说香港，说：“香港让你这事情给说绝了。” 还有台湾的事情，大屠杀对党内的人震撼太大了，定义为大屠杀，对所有的共产党和家人这种震撼，每时每刻都像在身体上放了个定时炸弹一样，担心自己的孩子，担心自己的海外资产，担心海外的私生子女，担心海外的家人，和担心以后没有共产党以后，这个世界他们如何出来。这都是相当担心的，相当担心的。
+
+And about Hong Kong, this buddy just said to me that you were spot on about what happened in Hong Kong, and also in Taiwan. The massacre [affirmation by the West] was too shocking for members of the CCP. It’s been defined as a massacre. The shock to the CCP members and their family is like placing a time bomb on them to wear all the time. They worry about their children, their overseas assets, their illegitimate children and their family overseas. They also worry how they would go overseas in a world without the CCP in the future. They are really worried, extremely worried.
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+
+视频来源：[https://gtv.org/getter/603701961958515902370f1a](https://gtv.org/getter/603701961958515902370f1a) (00:24-7:15)
+
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/932985/](https://gnews.org/zh-hans/932985/)
+
+* * *
+
+翻译：【雷鸣（文鸣）】 校对：【Isaiah4031】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
 0

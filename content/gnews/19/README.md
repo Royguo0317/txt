@@ -1,53 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 民调显示，美国人对中共国的好感率降至历史最低
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/947875/)
+## 美众议院昨夜通过了《为人民法》
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/947921/)
 
-*新闻来源：《国家脉动》| 作者：娜塔莉·温特斯(Natalie Winters) | 发布时间：2021年3月3日*
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-*翻译/简评：helloworld | 校对/审核：万人往 | Page：拱卒*
+编辑上传 水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/S-5.jpg)eminetra.com
+这是民主党急于完成的事，正如昨天笔者发文所述，“民主党人正在将密歇根州‘底特律化’（脏乱差），各左州正在“密歇根化”，包括加州。这种情况下，人们不得已离开家园，又造成了人口流失。于是拜登上台急于推出特赦令，停止建墙，用非法移民填补左州的人口空缺，而《为人民法》可以保障这类人法律上的选举资格。”【1】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/833c65cc-2fb1-43a1-80c8-9609333751ce.jpg?asset_id=05244fe8-fbb4-41b6-9bd3-5a37db487d0f&amp;img_etag=%2259fe2ccfd57b312d62a97817dddd3ae3%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/833c65cc-2fb1-43a1-80c8-9609333751ce.jpg?asset_id=05244fe8-fbb4-41b6-9bd3-5a37db487d0f&amp;img_etag=%2259fe2ccfd57b312d62a97817dddd3ae3%22&amp;size=1024)
+《门道专家》发文，报道这个法案获得了通过，题目是，“众议院通过了一项全面的法案，使民主党更容易窃取选举”。【2】
 
-**简评：**
+全文如下：
 
-中共国的行为已引起共愤。中共国对维吾尔族进行了种族灭绝，对美国发动了信息和经济战，产生并传播了新冠肺炎。作恶的结果是，美国对中共国的总体赞成度达到了20%的历史最低水平。
+民主党控制的众议院周三晚通过了H.R.1，这是一项大规模的选举改革法案，使民主党更容易窃取选举。投票结果是220票对210票，所有共和党人都投了反对票。
 
-共和党和保守力量已对中共的邪恶、威胁和罪行达成了共识，而现在需要统一民主党、自由派的民意。拜登上台虽然有过和中共国勾兑、淡化威胁的想法，但在铁一般的证据面前，只能选择与中共国对抗。而没有“逢川必反”的政治需要后，民主党和左派势力必将冷静面对现实，充分认识到中共才是美国最大的威胁。
+众议院民主党人此前推出了《2021年为人民法》，该法案将确保民主党人在选举结束后数日计票，直到他们有足够的选票获胜。
 
-中共历来利用美国的钟摆效应。而在美国左右即将达成灭共共识的现在，中共对美国的牵制和利用将再无可能。当美国为首的欧美国家统一民意，下决心出手之时，中共的灭亡也将不可避免。
+民主党人利用CCP病毒作为工具，成功地窃取了白宫和参议院（可能还有众议院）的选票，包括选票收集、选票投递箱、邮寄选票，以及在2020年选举日后的几天内秘密计票，所以现在他们正在通过立法，以便更容易地窃取未来的每一次选举。
 
-**原文翻译：**
+民主党通过自动登记选民，扩大提前投票和缺席投票，使他们更容易窃取选举。
 
-# 
-**民调：民主党对于犯有种族灭绝的中国共产党表达赞成态度的可能性比共和党高三倍**
+……（此处略去巫婆佩洛西的混搅蛮缠式鼓动）
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/b0b2d335-d0d3-4d17-9aac-c1ec865852b5.jpg?asset_id=75ffc84b-9530-4756-ac5e-8e560cfb6f27&amp;img_etag=%222d43e595bc9b1d557d704367e0d08e2a%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/b0b2d335-d0d3-4d17-9aac-c1ec865852b5.jpg?asset_id=75ffc84b-9530-4756-ac5e-8e560cfb6f27&amp;img_etag=%222d43e595bc9b1d557d704367e0d08e2a%22&amp;size=1024)
+众议院民主党通过了这项法案，因为自2020年大选以来，共和党控制的28个州的州议会已经提交了100多项法案，以防止民主党的选举舞弊。
 
-**盖洛普（Gallup）进行的一项新民意调查显示，美国人对中共国的好感率达到了历史最低的20%，而民主党人对这个共产主义国家持赞成态度的可能性是共和党人的近三倍。**
+H. R.1将送往参议院表决，在那里民主党有一个50-50参议院和卡马拉·哈里斯作为决胜局微弱多数。
 
-2月初的民意调查显示，只有10%的共和党人、22%的独立党人和27%的民主党人“对中共国持赞成态度”。
+进步人士不断推动废除、阻挠此议案，该议案需要60票才能在参议院通过，但民主党参议员曼钦和西内马反对取消这项议程。（完）
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/4b037451-6245-4004-bd03-b7d8c5c395eb.png?asset_id=f0ae122d-e1da-4ef8-957e-afb6cb35fe8c&amp;img_etag=%2297498842a783b1c847f88b3372fbb207%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/4b037451-6245-4004-bd03-b7d8c5c395eb.png?asset_id=f0ae122d-e1da-4ef8-957e-afb6cb35fe8c&amp;img_etag=%2297498842a783b1c847f88b3372fbb207%22&amp;size=1024)
+正像【1】文所述，前副总统彭斯指出了问题要害所在，“这是一项违宪、鲁莽、反民主的法案……可能会永久性地破坏我们的共和国”，他称民主党的这一行为是“违宪夺权”。
 
-新的民调数字明显下降，分别是13%、17%和8%。
+如果这次投票，参议院的共和党议员像众议院的共和党代表那样保持一致，全投反对票，巫婆佩洛西等人的阴谋又将破产。
 
-中共国对维吾尔族进行了种族灭绝，对美国发动了信息和经济战，产生并传播了新冠肺炎。这直接导致了民调所显示的结果，美国对中共国的总体赞成度达到了20%的历史最低水平。
+相信佩洛西这次强推《为人民法》，又将同前两次弹劾川普总统一样，以闹剧告终。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/1e887850-4e42-4eee-bed3-550e2a4a76e6.png?asset_id=946dbed9-5ba8-4dcf-ab2c-fd1f5edb65d0&amp;img_etag=%22bf8b3041ebd2ffac0b856becd05f584a%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/1e887850-4e42-4eee-bed3-550e2a4a76e6.png?asset_id=946dbed9-5ba8-4dcf-ab2c-fd1f5edb65d0&amp;img_etag=%22bf8b3041ebd2ffac0b856becd05f584a%22&amp;size=1024)
+正义的人们期待选举法更加严肃、投票认证更严格，加快改进，现在反倒是左翼力量先下手了。难道参众两院的民主党人就是铁板一块？就那样情愿跟着巫婆佩洛西，眼睁睁地看着美国就这样堕落下去？
 
-该民调统计自1979年开始追踪。在中共国政府镇压天安门广场的示威者之后，1989年8月，该数据也出现了类似的迅速下降。
+我们将拭目以待！相信正义终究会战胜邪恶！
 
-[原文链接](https://thenationalpulse.com/breaking/dems-ccp-favorability-vs-republicans/)
+参考链接：
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+【1】https://gnews.org/zh-hans/945617/
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+【2】https://www.thegatewaypundit.com/2021/03/house-passes-sweeping-bill-making-easier-democrats-steal-elections/
 
 0
