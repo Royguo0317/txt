@@ -1,82 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 47名香港反对派人士遭‘国安法’起诉
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/946836/)
+## 【战友寄语】香港法律已死无需烧纸（2）
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/946896/)
 
-翻译：康州盘古农场-Bruce
-校对：康州盘古农场-Mike Li
-编辑：康州盘古农场-Antsee-GTV
+搜集：文燕，JAY / 撰文：岁月如歌
 
-![charge]()![charge](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-04-at-17.18.55.png)*《CNN》视频报道截屏*
+中共大量抓捕民主人士只有一个目的：铲除异己，巩固其江山。我们看国务院港澳办主任夏宝龙在正月十五的报告就知道中共在目的，为这个目的如何运作。
 
-据《CNN》多位记者联合报道：
+夏宝龙的“爱国者治港”报告非常明确什么样的人才有资格治港，什么样的人必须严惩。资本主义制度下的民主国家，人民是真正的主人，有权表达对自己选出来的政府、官员不满，有权要求不满意官员下台。中共对香港实行的资本主义民主制度是​​恐惧和接受不了的，人民是不可以忘义中央的。人民有意见提出来他就說妳是反党反国家，香港人喊着口号要林郑月娥下台那更不得了啦，中共要赶紧把这个苗头掐死才行，赶紧定义是颠覆中共政权。不但如此，中共把所有异见人士都定义为“反中乱港份子”。港独，台独，疆独还有西藏独，中共都统一冠上这些罪恶的名词，并不断的“唱衰（即抹黑）他们。香港民主派这47人被判颠覆国家政权罪是必须的，中共最怕的事情，只有往死里打，宁错杀一千不放过一人。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/343.jpg)图片来自youtube
+夏宝龙的发言稿里第四点「完善“爱国者治港”相关制度」，这个是中共在香港很重要的阴谋。 「香港社会比以往任何时候都更加深切地认识到把“爱国者治港”落到实处的极端重要性和极端紧迫性。」为什么这么“极端重要性和极端紧迫性”呢？中共这么着急改革香港选举制度？看看夏宝龙怎么说，「2019年区议会选举中，一些“黑暴”“揽炒”“港独”分子进入区议会，把本应为社区和基层服务的公共机构变成了高度政治化的斗争场所，搞得乌烟瘴气。他们利用这个平台散播“港独”主张，抗拒中央管治，煽动对内地的不满情绪⋯⋯2019年10月出现了回归以来首次行政长官无法在立法会内宣读施政报告的情况。在一些反中乱港议员的恶意“拉布”下，立法会内委会停摆6个多月，多达14个法案不能及时审议，超过80个附属法例得不到处理，使特别行政区立法机关实际上陷于瘫痪。还有不少立法会议员、区议会议员以“违法达义”“公民抗命”等歪理邪说为暴力开脱，充当“黑暴”“揽炒”分子的保护伞。」太迫切了，晚点“完善”选举制度，不但香港完了，中共也完了，多恐怖啊！赶紧！这47人是不是他所说的“反中乱港议员”呢？
+![]()![](https://gnews.org/wp-content/uploads/2021/03/344.jpg)图片来自大纪元
+不但要把议会里的“反中乱港议员”踢出去，还要跟他们划清界线，因为这些人「不仅仅是要夺取香港管治权，搞乱香港，而且要搞乱内地，颠覆中国共产党的领导和中国特色社会主义制度，阻挠中华民族伟大复兴的进程，用心非常险恶。他们与街头暴力分子一样，都是政治上彻头彻尾的“揽炒派”，是香港的乱源，也是国家的祸害。」中共太恐怖了，必须要迫切的清理这些令他们日夜不安的乱港份子。夏宝龙明言：「对于反中乱港分子当中的极端恶劣者，如黎智英、戴耀廷、黄之锋，则不仅仅是不能允许他们染指香港特别行政区的任何公权力，还要对他们的违法行径依法给予严惩。」中共对这47人太恐惧了，必须要弄死他们，让他们不能染指香港政治。
 
-香港(CNN)——周日，香港当局指控47名反对派[活动人士](https://www.cnn.com/2020/12/17/asia/hong-kong-exiles-and-inmates-dst-hnk-intl/index.html)违反了该市的《国家安全法》，这是自去年北京[强制实施](https://edition.cnn.com/2021/01/05/asia/hong-kong-national-security-law-intl-hnk/index.html)该法以来[最大规模](https://edition.cnn.com/2021/01/05/asia/hong-kong-national-security-law-intl-hnk/index.html)的应用。
+中共不但要“合法”处理掉异己份子，还要“合法”地高举“一国两制”这块婊子牌坊废掉香港所有姓“资”的制度，特别是选举制度。没有了资本主义的选举制度，中共想谁上去就是喝凉水般轻而易举。对啊，没错，香港确实是“港人治港高度自治”
+，世界别想挑我党毛病，我党依然依照《中英联合声明》行事。流氓！
 
-这些被控“阴谋颠覆”的人是上个月因组织、策划和参加去年7月香港民主反对派初选而被捕的53人，其中许多是著名的前议员、活动人士和区议员。
+本文仅代表作者个人观点
 
-该活动旨在确定最强的民主派候选人，以便在计划于去年9月举行的立法议会选举中出场，当时反对派阵营希望赢得历史性的多数席位。
+审稿：卡西欧 / 上传：天网灰灰
 
-然而，由于冠状病毒大流行，这些选举最终被推迟，但在此之前，多名民主党候选人被取消了资格——并发出警告说，那些参加初选的人可能违反了当时已经在数周前的出台《安全法》。
+参考连接：
 
-周日被起诉的39名男性和8名女性，年龄在23岁至64岁之间，他们被拘留，将于周一在西九龙裁判法院出庭。根据原来的保释协议，他们在4月初之前不需要向警方报到。但在本周早些时候，这群人被要求在周日向警方报到。
+1、[立场新闻](https://www.thestandnews.com/politics/47-%E4%BA%BA%E6%A1%88%E7%AC%AC%E4%B8%89%E6%97%A5%E8%81%86%E8%A8%8A-%E6%A5%8A%E5%B2%B3%E6%A9%8B%E8%AD%9A%E6%96%87%E8%B1%AA%E7%AD%89%E8%87%AA%E8%BE%AF-%E6%8C%87%E5%AE%9A%E6%B3%95%E5%AE%98%E8%98%87%E6%83%A0%E5%BE%B7-%E6%99%9A%E4%B8%8A-9-%E6%99%82%E4%BC%91%E5%BA%AD-%E6%98%8E%E5%A4%A9%E6%89%8D%E6%9C%89%E6%B1%BA%E5%AE%9A/)
 
-2月28日，香港大学法学副教授、活动团体 “用爱与和平占领中环”（OCLP）的联合创始人戴耀廷（Benny Tai）在香港马鞍山警署报到。
+2、[美国之音](https://www.voachinese.com/a/forty-seven-hk-pro-democracy-activists-charged-under-nsl-marathon-bail-application-20210302/5798829.html)
 
-周日的指控标志着国家安全法的适用范围全面升级，此前只有少数人根据该法被起诉并送上法庭。
-
-该法将分裂国家、颠覆、恐怖主义、勾结外国势力等行为定为刑事犯罪，根据该法审理的案件可由香港警方和国家安全法庭的专属部门处理。
-
-香港特首林郑月娥等人此前曾承诺，该法的效力有限，只针对少数边缘活动人士。
-
-数百人周一聚集在该市西九龙区的法院外抗议，他们举着横幅，高呼口号，这些口号在2019年政治动荡期间流行，但现在根据新的国家安全法被视为 “颠覆”。
-
-一个标语呼吁当局释放 “所有政治犯”。可以听到示威者高喊 “光复香港，时代革命”和 “没有暴徒，只有暴政”。
-
-![protestor]()![protestor](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-04-at-17.19.47.png)*亲民运人士在香港西九龙法院外为被捕的民运人士打手势表示支持 – 图片来源：《CNN》*
-
-这些指控是在香港政府着手对公职人员提出新的要求后不到一个星期提提起的，包括他们必须宣誓效忠并接受北京对香港的统治。
-
-政制及内地事务局局长曾国卫说，任何没有宣誓的人——或被认为是以不真诚的方式宣誓——将被立即取消资格，并在未来五年内禁止参加选举。
-
-此前，香港驻最高立法机构的唯一代表表示，只有 “坚定的爱国者 “才能在香港担任权力职位。
-
-欧盟驻香港和澳门办事处周日表示，这些指控 “令（欧盟）非常关注” 。
-
-“对47名民主人士的指控是#欧盟非常关注的。这些表明，在#香港，合法的政治多元化将不再被容忍。我们敦促当局根据#BL和#ICCPR，遵守他们对基本#自由和法治的承诺，” 欧盟办事处在推特上说。
-
-![waiting]()![waiting](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-04-at-17.20.07.png)*支持者在香港西九龙法院外等候 – 图片来源：《CNN》*
-
-为什么要惩罚初选？
-
-初选是世界各国民主国家的正常功能。在香港投票时，拜登胜出的美国民主党初选还在进行。香港民运人士过去举行这样的投票，是为了配合对手亲北京阵营的组织和纪律性，避免分裂支持。
-
-
-
-> Charges against 47 pro-democrat is of great concern to [#EU](https://twitter.com/hashtag/EU?src=hash&amp;ref_src=twsrc%5Etfw). These make clear that legitimate political pluralism will no longer be tolerated in [#HongKong](https://twitter.com/hashtag/HongKong?src=hash&amp;ref_src=twsrc%5Etfw). We urge authorities to abide by their commitments to fundamental [#freedoms](https://twitter.com/hashtag/freedoms?src=hash&amp;ref_src=twsrc%5Etfw) and the rule of law, as per the [#BL](https://twitter.com/hashtag/BL?src=hash&amp;ref_src=twsrc%5Etfw) and [#ICCPR](https://twitter.com/hashtag/ICCPR?src=hash&amp;ref_src=twsrc%5Etfw)
-> — European Union Office to Hong Kong and Macao (@EUinHKandMO) [February 28, 2021](https://twitter.com/EUinHKandMO/status/1365966836630626306?ref_src=twsrc%5Etfw)
-
-
-
-—— 欧盟驻香港和澳门办事处（@欧盟驻香港和澳门办事处）2021年2月28日。
-
-对47名民主派人士的指控是[#欧盟](https://twitter.com/hashtag/EU?src=hashtag_click)非常关注的。这些表明，合法的政治多元化在[#香港](https://twitter.com/hashtag/HongKong?src=hashtag_click)将不再被容忍。我们敦促当局按照[#BL](https://twitter.com/hashtag/BL?src=hashtag_click)和[#ICCPR](https://twitter.com/hashtag/ICCPR?src=hashtag_click)的规定，遵守其对基本[#自由](https://twitter.com/hashtag/freedoms?src=hashtag_click)和法治的承诺。
-
-然而，香港保安局局长指责那些组织7月初选的人试图通过赢得立法机构的多数票来否决政府法案，从而 “瘫痪香港政府”。
-
-在国家安全法出台之前，投票反对预算案和迫使行政长官辞职是合法的，类似于许多民主国家促使大选的 “ 不信任投票”。香港基本法中也有应对此类事件的规定，使行政长官能够召集新的立法选举，并通过初步预算，使政府能够继续运作。
-
-当几十名前议员和反对派活动人士1月被逮捕时，现任美国国务卿的安东尼·布林肯说：“ 对民主示威者的大规模逮捕是对那些勇敢倡导普世权利的人的攻击。”
-
-“ 拜登—哈里斯政府将与香港人民站在一起，反对北京对民主的打压，”布林肯补充说。
-
-英国外交大臣多米尼克·拉布（Dominic Raab）1月份警告说，英国政府“不会在香港人民的权利和自治权被践踏的时候另眼相看”。
-
-“当中共首次强制实施《国家安全法》时，他们说这是为了给香港带来一定的稳定。从这些行动中可以清楚地看出，其实它是为了镇压政治异议。”拉布在伦敦接受CNN采访时说。
-
-原文作者：艾瑞克·张（Eric Cheung）， 詹达·申姆（Jadyn Sham）, 海伦·瑞根（Helen Regan）, 艾莉·巴纳德（Ally Barnard ）和 詹姆斯·格里菲思（James Griffiths）
-
-文章链接：[https://www.cnn.com/2021/02/28/asia/hong-kong-lawmakers-charged-nsl-intl-hnk/index.html](https://www.cnn.com/2021/02/28/asia/hong-kong-lawmakers-charged-nsl-intl-hnk/index.html)
+3、[紫荆杂志](https://bau.com.hk/2021/03/43249)
 
 0

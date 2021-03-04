@@ -1,27 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 立陶宛考虑退出中共的17+1论坛 加强与台湾的联系
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/946277/)
+## 【每日快讯】3/03/2021:椅子战友升级初始投资身份，拜登灌中共企业“还魂汤”沼泽地大洗钱
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/946358/)
 
-俄罗斯莫斯科喀秋莎农场    银河
+**制作:Cantonese工作室**
+**播报：【Annie】 资料收集： 【蚂蚁】【An】【闪电】【Elaine 】视频制作：【小豆芽】【米线】  海报制作：【文德】上传:【星星】**
+摘要:
 
-编辑上传   水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/L.jpg)taiwannews.com.tw
-立陶宛媒体报道，立陶宛议会同意退出中共的17+1论坛，该国外交部长加布里埃尔·兰茨伯格斯（Gabrielius Landsbergis）表示，中共与东欧的合作项目“几乎没有给立陶宛带来任何好处”。
-
-兰茨伯格斯表示立陶宛应该考虑与中共建立关系的有效方式。“立陶宛需要看看什么是反映立陶宛利益的最佳方式”，他说，“17+1的模式……对欧洲没有用处，它在分裂欧洲，因为一些国家对中共的看法与其他国家不同”，立陶宛应该专注于与本地区的民主国家合作。
-
-兰茨伯格斯指出，爱沙尼亚、拉脱维亚和其他几个东欧国家也在考虑采取类似措施，并补充说，立陶宛计划通过在台湾设立一个经济代表机构来扩大与台湾的关系。
-
-除了波罗的海国家，2012年推出的17+1模式还包括阿尔巴尼亚、波斯尼亚和黑塞哥维那、保加利亚、克罗地亚、捷克共和国、希腊、匈牙利、北马其顿、黑山、波兰、罗马尼亚、塞尔维亚、斯洛伐克和斯洛文尼亚。
-
-然而，一些国家抱怨北京未能兑现其投资承诺，以及与中共打交道的政治成本过高，因为深化与北京的合作可能会损害与美国的关系，而美国被视为该地区的主要安全保障。斯洛文尼亚、克罗地亚、捷克共和国和罗马尼亚当局暂停了涉及中共公司的核电站、高速公路、铁路、安检扫描仪和集装箱码头等项目的公开招标。希腊正在讨论是否允许一家中共航运公司增加其在该国最大港口的股权。
-
-中共国家主席习近平近期主持了“17+1”的欧盟视频会议。爱沙尼亚、拉脱维亚、立陶宛、罗马尼亚、保加利亚和斯洛文尼亚没有派出受邀的领导人，而是由政府部长代表，尽管北京方面要求更高级别的参与。这显示出欧洲多个国家已经开始提高对中共的警惕并对中共政策日趋冷淡。
-
-参考链接：
-
-[https://www.lrt.lt/en/news-in-english/19/1356107/lithuania-mulls-leaving-china-s-17plus1-forum-expanding-links-with-taiwan](https://www.lrt.lt/en/news-in-english/19/1356107/lithuania-mulls-leaving-china-s-17plus1-forum-expanding-links-with-taiwan)
-
-+2
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-8.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2-9.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-5.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4-5.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/5-2.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/6-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/7-9.jpg)
++4

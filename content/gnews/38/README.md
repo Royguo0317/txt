@@ -1,23 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】3/03/2021:椅子战友升级初始投资身份，拜登灌中共企业“还魂汤”沼泽地大洗钱
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/946358/)
+## 习近平和其他中共领导人未接种国产疫苗
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/946413/)
 
-**制作:Cantonese工作室**
-**播报：【Annie】 资料收集： 【蚂蚁】【An】【闪电】【Elaine 】视频制作：【小豆芽】【米线】  海报制作：【文德】上传:【星星】**
-摘要:
+俄罗斯莫斯科喀秋莎农场   银河
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-8.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2-9.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-5.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4-5.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/5-2.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/6-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/7-9.jpg)
-+4
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-04_07-33-19.jpg)[sg.news.yahoo.com](https://sg.news.yahoo.com/china-covid-19-vaccine-race-080405463.html)
+布赖特巴特新闻网 (Breitbart News)报道，作为同时推进疫苗外交的中共和印度，相比印度总理纳伦德拉·莫迪(Narendra Modi)上周在印度巴拉特生物技术公司(Bharat Biotech)开始生产印度自主研发的中共病毒疫苗后，在镜头前给自己公开接种疫苗，习近平和其他中共领导人未曾接种任何中共国产疫苗。
+
+当面对中共党书记习近平、国务院副总理李克强或其他高级中共官员是否已经接种中共疫苗,中共外交部发言人华春莹推诿地回答说，“我现在不能回答这个问题。疫苗是我们预防疫情、最终战胜疫情的子弹。”
+
+中共疫苗的支持者菲律宾总统罗德里戈·杜特尔特(Rodrigo Duterte)“真诚”地赞美和感谢第一批来自中共的科兴疫苗，并发誓他将访问北京“和习近平握手并亲自感谢他的捐赠。”但他同时承认,他本人不会接种科兴疫苗,因为他的医生反对。
+
+这位反复无常的菲律宾领导人声称，他计划使用另一种中共疫苗，而他的选民对杜特尔特购买中共产品的动机深表怀疑，因为他对中共疫苗没有信心。类似的情况也存在于巴基斯坦，该国公民表示，他们不相信政府大张旗鼓地从北京购买的疫苗。
+
+美国之音援引观察人士的观点称，习近平在中欧和东欧国家推动“疫苗合作”的努力受到了“冷淡对待”，尽管其中一些国家仍然从中共购买疫苗。习近平和中共领导人拒绝接种国产疫苗作表率，让中共国公民对疫苗也持有怀疑态度。在一些调查中，只有四分之一的中共国民众表示愿意接受科兴或国药的疫苗，在受过高等教育的人和医务工作者中，接受率尤其低。
+
+在目前全球销售的主要产品中，科兴疫苗是公认的对抗感染效果最差的产品，测试的有效性为50.38%。中共官方媒体称其“足够好”，并坚称其真正的价值在于防止严重中共病毒病例住院治疗。
+
+分析师认为，经过多年中共制药丑闻和疫苗副作用事件，中共缺乏“开放性和透明度”的特征已经侵蚀了公众对中共疫苗计划的信任。
+
+参考链接：
+
+[https://www.breitbart.com/national-security/2021/03/03/xi-jinping-notably-missing-from-chinas-vaccine-efforts/](https://www.breitbart.com/national-security/2021/03/03/xi-jinping-notably-missing-from-chinas-vaccine-efforts/)
+
++3

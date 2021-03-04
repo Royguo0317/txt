@@ -1,29 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美对德军舰在南中国海航行计划表示欢迎
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/946424/)
+## 中共反驳抵制北京冬奥会 “违反奥林匹克精神”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/946475/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-04_07-42-28.jpg)[hdwallpapers.in](https://www.hdwallpapers.in/german_navy_battleship-wallpapers.html)
-路透社报道，美国星期三对北约盟国德国派遣一艘军舰穿越有争议的南中国海的计划表示欢迎，称德国是对该地区“基于规则的国际秩序”的支持，同时指出这一基本秩序受到来自中共的威胁。
+编辑  水星  上传  银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-04_08-05-57.jpg)[thedailybeast.com](https://www.thedailybeast.com/2022-olympics-will-be-held-in-a-human-rights-disaster-zone)
+福克斯新闻报道，中共周三反驳多个国家抵制2022年北京奥运会的呼吁，称这“违反奥林匹克精神”。
 
-德国政府官员周二表示，一艘德国护卫舰将于8月启程前往亚洲，在返回途中，它将成为自2002年以来首艘穿越南中国海的德国军舰。
+美国国会议员因中共种族灭绝和侵犯人权问题开始向拜登政府施压，要求其考虑退出冬奥会。
 
-美国国务院发言人称，“我们欢迎德国对印度洋-太平洋地区基于规则的国际秩序的支持。维护开放的海洋秩序对国际社会至关重要。”并指出维护和平与稳定、尊重国际法、保证合法畅通的贸易、航行自由和其他合法使用海域是符合美国国家利益的努力。
+中共国政府发言人郭为民也驳斥这以提议，他说，“一些外国政客将体育运动政治化，企图干扰和破坏北京冬奥会的筹备和举办，并呼吁抵制。”“这些行为违反了奥林匹克精神。我们认为，这些举措不会赢得国际社会的支持，注定会失败。”
 
-中共外交部发言人表示，各国在南海享有国际法规定的航行和飞越自由，但他补充称，“他们不能以此为借口，破坏沿海国家的主权和安全。”并强调中共对南中共海大部分海域拥有主权主张。
+郭同时还否认了有关中共通过提供中共病毒疫苗等国际援助寻求政治支持的说法，表示中共希望履行提供帮助的国际义务，指责这种观点“非常狭隘”。
 
-德国官员表示，这艘军舰不会通过这条战略水道争议岛礁周围12海里范围内的水域，中共和其他国家都声称这是它们的领海。
+美国议员呼吁拜登政府考虑抵制2022年北京冬季奥运会，因为中共侵犯了维吾尔族穆斯林的人权。拜登政府还没有就抵制北京奥运会做出“最终决定”。
 
-中共在南中国海的主权主张涉及五个国家:越南、马来西亚、文莱、菲律宾和台湾。菲律宾政府在海牙常设仲裁法庭起诉中共，并在2016年裁决确认了北京的非法主张。中共公开藐视这一裁决，并进一步推进了在南中国海的军事扩张。中共在南中国海建造的人工岛屿上修建了军事设施。美国驳斥中共对南海大部分海域有争议的资源主张是“非法的”。
-
-上个月，美国海军宣布两个美国航母战斗群在南中国海进行了联合演习后，法国核推进攻击潜艇和军舰在南中国海巡逻，以强调国际航道的航行自由。中共官方媒体《环球时报》(Global Times)周日宣布了中共将在南中国海举行为期一个月的海上军事演习，作为对此的抗议和回应。
+“世界不能站在一边，允许中共国继续这些令人发指的侵犯人权的行为。”美国众议院议员Guy Reschenthaler和迈克尔·华尔兹（Michael Waltz）最近在福克斯一篇评论文章中写道，“这就是为什么我们在国会提出了一项决议，敦促国际奥委会将2022年冬奥会从北京搬离。如果冬奥会不搬迁北京，我们决议呼吁美国领导国际社会抵制2022年冬奥会。”
 
 参考链接：
 
-[https://www.reuters.com/article/us-southchinasea-germany-usa/us-calls-german-warships-plan-to-sail-south-china-sea-support-for-rules-based-order-idUSKCN2AW016](https://www.reuters.com/article/us-southchinasea-germany-usa/us-calls-german-warships-plan-to-sail-south-china-sea-support-for-rules-based-order-idUSKCN2AW016)
+[https://www.foxnews.com/sports/china-beijing-winter-games-boycott-calls](https://www.foxnews.com/sports/china-beijing-winter-games-boycott-calls)
 
 0
