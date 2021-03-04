@@ -1,23 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒是中共自取灭亡的一把致命匕首
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/948465/)
+## 【热点播报】以色列要求旅行者佩戴“自由手镯”追踪装置
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/947990/)
 
-#### 译评：Hakuanamatata | 责编：Wenwang
-![]()![](https://gnews.org/wp-content/uploads/2021/03/capture-13.jpg)图片来源：Gnews
-据《新快报》（Just the News）3月3日报道：前美国国务卿迈克·蓬佩奥（Mike Pompeo）周三表示，有“充分证据”表明，中共病毒来自武汉的病毒实验室，中共“掩盖”了事实真相，必须对世界有个交代。
+作者：纽约香草山写作组 四季
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+【[HUMANSAREFREE](http://humansarefree.com/2021/03/israel-implements-freedom-bracelet-tracking-device-for-travelers-for-a-virus-with-a-99-95-survival-rate-for-people-under-70.html)网站】3月3日报道，以色列已经推出了所谓的 “自由手镯”，这是一种追踪装置，将作为对任何从国外进入以色列的旅行者进行为期两周隔离的替代方法。
 
-蓬佩奥在接受《新快报》的采访时说，中共国政府阻止让任何一个人了解该病毒的起源。中共病毒于2019年底开始在世界范围内传播。中共国官员最初说，这种病毒是由某一个人在武汉的一个海鲜市场买了一只蝙蝠食用所引发的。而几周前，中共的官员继续限制世界卫生组织（WHO）的研究人员进入武汉病毒研究所进行调查。
+该设备看起来像一块智能手表，它是由一家名为SuperCom的公司生产，该公司曾与几个国家的政府合作开发针对囚犯的跟踪和监控系统。
 
-蓬佩奥还表示，考虑到实验室不公布中共病毒问题的历史，中共必须对全球超过200万因病毒传播而死亡的人们负责。他对节目主持人大卫·布罗迪（David Brody）说：“有足够的证据和被掩盖的真相表明，实际情况有可能比实验室内部最初提及的问题还要糟糕。中国共产党必须为拒绝世界进入（实验室）调查而负责，让我们了解这病毒到底是怎么产生的，以便我们能够预防类似的事情再次发生。”
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-04-121336.jpg)
 
-蓬佩奥指出，拜登政府已经重新开始了对世卫组织的资金投入，这表明拜登新政府的“优先事项”与川普政府强调的“美国优先”大不相同。蓬佩奥最后说道，“上帝在注视着我们。当勇敢和自豪的声音大声疾呼时，‘美国将继续成为文明史上最伟大的国家。”
+*图片来源：HUMANSAREFREE*
 
-* * *
+SuperCom公司的首席执行官奥丹·特拉贝尔西（Ordan Trabelsi）表示，旅行者可以自由的选择，是被关在军方管理的隔离酒店里两周，还是带上追踪手镯。之所以称为它为“自由手镯”，是因为不是把任何人关起来，而是给他们回家的机会，但如果他们试图离开自己的家，就会被政府追踪。
 
-评：从中共病毒2019年底首次在武汉爆发以来，已经传遍世界上每一个地方。在整个病毒大流行期间，爆料革命是全世界唯一提供中共病毒来源真相，拯救人类未来的一束阳光。闫博士的挺身而出，让美国了解到中共是美国和世界的敌人，而不仅仅只是所谓的“竞争对手”！中共利用超限战生物武器开启了第三次世界大战，没有硝烟的战场因为病毒的肆虐而让人类再次陷入绝境，面临种族灭亡威胁。共产主义幽灵的狂妄，残酷和邪恶，不仅奴役着中国人民，还将利用中共病毒奴役世界。邪恶势力是不会长存的，中共所制造的超限战生物武器对全球造成的伤亡也一定会成为中共自取灭亡的一把致命匕首。
+与此同时，以色列法院做出裁决，要求以色列的国内间谍机构Shin Bet必须退出这个中共病毒接触跟踪监视系统。 法院认为这是对以色列民主的威胁，它只能在紧急情况下使用。
 
-[原文链接](https://justthenews.com/accountability/mike-pompeo-chinese-communist-party-must-be-held-accountable-cover)
+面对肆虐全球一年多的中共病毒，很多国家都在借以疫情的名义，采用各种不同的方式限制公民的自由。 各国普遍采用的长时间封城措施，极大地损害了本国的经济，并造成了很多次生灾难。 解决中共病毒的唯一方法就是世界各国对中共故意制造和传播CCP病毒追责，只有这样才能终结CCP病毒在全球的蔓延。
+
+原文链接：
+
+[http://humansarefree.com/2021/03/israel-implements-freedom-bracelet-tracking-device-for-travelers-for-a-virus-with-a-99-95-survival-rate-for-people-under-70.html](http://humansarefree.com/2021/03/israel-implements-freedom-bracelet-tracking-device-for-travelers-for-a-virus-with-a-99-95-survival-rate-for-people-under-70.html)
+
+编辑/校对/发稿：宁静致远
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
 
 0

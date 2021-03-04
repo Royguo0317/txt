@@ -1,33 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国拒绝以武力推翻独裁政权的企图
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/948606/)
+## 【热点播报】武汉病毒研究所15个病毒数据库对外关闭
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/948537/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+作者：纽约香草山佛教部 369文驹
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+【英媒[太阳报](https://www.thesun.co.uk/news/14147270/wuhan-lab-database-hidden-china-covid-smoking-gun/)报道】来自于一个全球科学家组成的，调查中共冠状病毒的团队DRASTIC发现，曾经能够被外界在线访问的中共武汉病毒研究所数据库，自从病毒被泄露以来就被中共政府给系统性的下线和隐藏起来。目前至少有15个病毒数据库被下线而无法访问，其中一个数据文件（在删除前已受密码保护）可能包含有关中共冠状病毒的信息。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-04-141517.jpg)
+DRASTIC发布了25页有关中共武汉病毒数据库的调查报告，其成员Gilles Demaneuf认为这是中共政府蓄意掩盖病毒真相的明确证据。
 
-编辑上传 水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/B-2.jpg)news.yahoo.com
-03月03日，美国将放弃在世界范围内强行推动民主的政策。美国国务卿安东尼·布林肯在介绍该国外交政策时这样说。
+据悉，该数据的管理者正是石正丽，被称之为中共国的“蝙蝠女”，是武汉病毒研究所的主要冠状病毒研究人员。该问题的主要数据库名为“batvirus.whiov.ac.cn”。该数据库拥有22,000个样本和病毒序列，其中包括15,000个蝙蝠样本，涵盖了1,400种蝙蝠病毒。
 
-“我们不会用代价高昂的军事行动强加民主。此外，美国将放弃以武力推翻独裁政权的企图。”布林肯说。
+数据库“batvirus.whiov.ac.cn”于2019年9月首次下线，此后对于武汉病毒所之外的任何人都无法访问此网站。此后该网站于12月30日进行了更新，也就是中共声称已识别出该新病毒的同一天。RASTIC的报告称，该数据库包含至少100个未公开的蝙蝠冠状病毒序列，也包含了武汉病毒研究所和世组织Peter Daszak所属的“生态健康联盟”（EcoHealth Alliance）所共同合作搜集的样本。该联盟由美国提供了360万美元的资助。
 
-这位外交政策负责人认为，华盛顿过去试图采取这种行动，尽管意图良好，但并没有取得预期的结果。
+Demaneuf表示，对于中共武汉病毒研究所声称是出于安全原因必须删除对数据库的访问权限，并借口此数据库已被黑客作为攻击目标的说法，简直太过荒谬。以中共国拥有的技术，完全可以保证安全地访问该数据库。中共政府在竭尽所能掩盖灾难发生的真相。
 
-国务卿补充道，“我们将采取不同的行动，我们将通过为其他国家树立自己的榜样，并通过奖励我们的合作伙伴以促进民主变革。”
+链接：
 
-布林肯在向美国人发表讲话时，要求他们给乔·拜登总统的新政府一些时间来提出具体的外交政策解决方案。
+[https://www.thesun.co.uk/news/14147270/wuhan-lab-database-hidden-china-covid-smoking-gun/](https://www.thesun.co.uk/news/14147270/wuhan-lab-database-hidden-china-covid-smoking-gun/)
 
-促进民主是美国外交政策理论的支柱之一。1953年的伊朗政变被认为是官方承认的第一个以促进民主价值为幌子推翻政权的例子之一。
+编辑/校对/发稿：宁静致远
 
-在近代史上，国务院认为格鲁吉亚和乌克兰以及塞尔维亚和黑山的变革是民主化的成功范例。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-2019年，时任俄罗斯总理德米特里·梅德韦杰夫（Dmitry Medvedev）在塞尔维亚议会发言时表示，在中东和非洲强行推行民主模式会导致恐怖主义蔓延、国家毁灭和广大领土上的混乱。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-2020年秋天，美国前总统唐纳德·川普承诺，华盛顿将以最新的武器从实力上建立其和平政策。
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-参考链接：
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-[https://www.rbc.ru/politics/03/03/2021/603fba3e9a7947d26f4ed0a1](https://www.rbc.ru/politics/03/03/2021/603fba3e9a7947d26f4ed0a1)
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
 
 0
