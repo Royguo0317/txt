@@ -1,23 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】3/03/2021:椅子战友升级初始投资身份，拜登灌中共企业“还魂汤”沼泽地大洗钱
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/946358/)
+## 习近平称美国是中共安全的“最大威胁”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/946435/)
 
-**制作:Cantonese工作室**
-**播报：【Annie】 资料收集： 【蚂蚁】【An】【闪电】【Elaine 】视频制作：【小豆芽】【米线】  海报制作：【文德】上传:【星星】**
-摘要:
+俄罗斯莫斯科喀秋莎农场   银河
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-8.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2-9.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-5.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4-5.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/5-2.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/6-8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/7-9.jpg)
-+4
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-04_07-51-18.jpg)[itweb.co.za](https://www.itweb.co.za/content/LPwQ5Ml6r4KvNgkj)
+《纽约邮报》报道，中共领导人习近平警告说，美国是中共安全的“最大威胁”，提到中共国内遏制病毒感染的成功，习宣称“东方正在崛起，西方正在衰落”，中共国的经济前景一片光明。
+
+在中共官方媒体发布的习近平对官员的讲话中指出，“当今世界最大的乱源在美国。”这名官员还引用习近平的话说，“美国是我国发展和安全的最大威胁。”
+
+美国政府也一再强调来自中共的威胁。拜登(Joe Biden)政府星期三说，与中共打交道将是本世纪“最大的地缘政治考验”，并指出中共是对稳定和开放的国际体系构成严重威胁的竞争对手。
+
+援引自法新社的报道，美国国家情报总监约翰·拉特克里夫指出，美国获取的“情报很清楚，北京打算在经济、军事和技术上主导美国和其他国家。”美国议员谴责中共蓄意渗透美国，侵犯美国利益换取自身的崛起。中共社会主义霸权专制对美国的渗透操作，已经威胁到美国言论自由、政治、技术、经济、军事，甚至应对中共病毒的努力。
+
+美国国会两党在对抗中共威胁的问题上已经达成了高度共识。拜登政府表示将对中共打压香港、侵犯人权、残害穆斯林维吾尔族的种族灭绝上采取强硬手段。
+
+习近平在国际社会已经对讨伐中共集权达成共识之际，仍战狼手段对各国恐吓威胁，是名副其实的中共走向“火葬场”的加速师。很快他将意识到，他引以为傲的对国内中共病毒疫情的“有效控制”，和用生物武器袭击全世界力图中共经济一枝独秀的做法，将是压垮中共政权的最后一根稻草。
+
+参考链接：
+
+[https://nypost.com/2021/03/03/xi-jinping-calls-us-biggest-threat-to-chinas-security/](https://nypost.com/2021/03/03/xi-jinping-calls-us-biggest-threat-to-chinas-security/)
+
+[美国参议院两党领袖同指中国为美国最大威胁 (rfi.fr)](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20201205-%E7%BE%8E%E5%9B%BD%E5%8F%82%E8%AE%AE%E9%99%A2%E4%B8%A4%E5%85%9A%E9%A2%86%E8%A2%96%E5%90%8C%E6%8C%87%E4%B8%AD%E5%9B%BD%E4%B8%BA%E7%BE%8E%E5%9B%BD%E6%9C%80%E5%A4%A7%E5%A8%81%E8%83%81)
+
++1

@@ -1,26 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登政府强调联盟应对中共国的严重挑战
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/946405/)
+## 中共反驳抵制北京冬奥会 “违反奥林匹克精神”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/946475/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/下载-2.jpg)[aldianews.com](https://aldianews.com/articles/politics/what-latin-american-diplomacy-may-look-antony-blinken-secretary-state/61330)
-共同通讯社 (Kyodo News)报道，拜登(Joe Biden)政府星期三说，与中共打交道将是本世纪“最大的地缘政治考验”，他特别指出，这个崛起的亚洲国家有能力对美国捍卫的开放国际体系构成严重挑战。
+编辑  水星  上传  银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-04_08-05-57.jpg)[thedailybeast.com](https://www.thedailybeast.com/2022-olympics-will-be-held-in-a-human-rights-disaster-zone)
+福克斯新闻报道，中共周三反驳多个国家抵制2022年北京奥运会的呼吁，称这“违反奥林匹克精神”。
 
-美国国务卿布林肯(Antony Blinken)发表了就任美国最高外交官以来的首次重要外交政策演讲，他形容中共带来的挑战与俄罗斯、伊朗和朝鲜等国的挑战“不同”。他指出中共是唯一有潜力将其经济、外交、军事和技术力量结合起来，对稳定和开放的国际体系构成持续挑战的竞争对手。
+美国国会议员因中共种族灭绝和侵犯人权问题开始向拜登政府施压，要求其考虑退出冬奥会。
 
-布林肯强调，“我们将应对21世纪最大的地缘政治考验:我们与中共的关系。”
+中共国政府发言人郭为民也驳斥这以提议，他说，“一些外国政客将体育运动政治化，企图干扰和破坏北京冬奥会的筹备和举办，并呼吁抵制。”“这些行为违反了奥林匹克精神。我们认为，这些举措不会赢得国际社会的支持，注定会失败。”
 
-与川普政府奉行单边主义的“美国第一”的政策不同，拜登政府强调联盟和多边主义民主价值观。布林肯指出美国将“重新投资于”与澳大利亚、日本、韩国以及北大西洋公约组织(North Atlantic Treaty Organization)的联盟，并对其进行现代化改造，称这些联盟是“美国最重要的战略资产”的一部分。
+郭同时还否认了有关中共通过提供中共病毒疫苗等国际援助寻求政治支持的说法，表示中共希望履行提供帮助的国际义务，指责这种观点“非常狭隘”。
 
-拜登政府将继续”在未来几个月制定更深入的国家安全战略”。在一份国家战略指导文件中提到，“我们的民主联盟使我们能够提出一个共同的战线，产生一个统一的愿景，汇集我们的力量来推动高标准，建立有效的国际规则，并让中共这样的国家承担责任。”
+美国议员呼吁拜登政府考虑抵制2022年北京冬季奥运会，因为中共侵犯了维吾尔族穆斯林的人权。拜登政府还没有就抵制北京奥运会做出“最终决定”。
 
-此外，拜登政府还将寻求与核心联盟之外的国家建立伙伴关系，比如印度、新西兰、新加坡和越南。在军事方面，美国将努力成为印度洋-太平洋和欧洲“最强大”的存在，以威慑对手捍卫自己的利益。但同时布林肯也表态说华盛顿无意恢复美国作为民主捍卫者的地位，不会为此目标进行代价高昂的军事干预，也无意以武力推翻独裁政权。
+“世界不能站在一边，允许中共国继续这些令人发指的侵犯人权的行为。”美国众议院议员Guy Reschenthaler和迈克尔·华尔兹（Michael Waltz）最近在福克斯一篇评论文章中写道，“这就是为什么我们在国会提出了一项决议，敦促国际奥委会将2022年冬奥会从北京搬离。如果冬奥会不搬迁北京，我们决议呼吁美国领导国际社会抵制2022年冬奥会。”
 
 参考链接：
-https://english.kyodonews.net/news/2021/03/b8f461715847-us-views-china-as-only-country-posing-challenge-to-intl-system.html
 
-+2
+[https://www.foxnews.com/sports/china-beijing-winter-games-boycott-calls](https://www.foxnews.com/sports/china-beijing-winter-games-boycott-calls)
+
+0
