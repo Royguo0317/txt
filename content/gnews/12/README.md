@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法内阁部长警告欧盟谨慎对待中俄疫苗
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/952181/)
+## 北京卫生工作者对国产疫苗信任度最低
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/952229/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑上传   水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/c-5.jpg)ca.finance.yahoo.com
-路透社3月5日报道，法国内阁部长敦促欧盟国家不要使用中共或俄罗斯的中共病毒疫苗，除非这些疫苗得到欧盟药品监管机构的批准，并警告欧盟谨慎对待，否则会给欧盟的团结和公共卫生带来风险。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/B-4-1.jpg)citizen.co.za
+布赖特巴特新闻网 (Breitbart News)报道，中共疾病控制和预防中心(CDC)本周公布的一项研究显示，与中共国其他地方的同行相比，北京的公共卫生工作者最不愿意接受中共制造的中共病毒疫苗。
 
-欧盟的疫苗接种运动落后于英国等其他国家，现中欧的一些成员国已经或正在考虑购买俄罗斯或中共的疫苗。
+美国疾病控制与预防中心的国家免疫计划研究人员进行了这项调查，他们得出的结论是“员工的教育水平越高，越不愿意接种疫苗。”
 
-当被问及每个欧盟成员国对待疫苗的选择是否只是在做“他们自己想做的事”时，欧洲事务部长克莱门特·波恩（Clement Beaune）回答，“如果他们选择中共或俄罗斯的疫苗，我认为情况会非常严重。”波恩指出，“这将对我们的团结构成问题带来健康风险，因为俄罗斯疫苗尚未在欧洲获得批准。” 欧盟试图通过欧洲执行委员会集中处理疫苗采购问题。
+去年5月至6月，全国有3000多名公共卫生工作者参与了调查。研究人员指出，调查结果“应该谨慎对待，因为大约三分之一的疾病预防控制中心员工没有回应”。而已经回应的调查数据表明，在中共首都北京，低于74%的卫生工作者自愿接种中共国产疫苗，而首都以外省份，如山东、四川和湖北等地，近90%的公共卫生人员表示，他们将自愿接受国产中共病毒疫苗。
 
-波兰卫生部长亚当·涅兹尔斯基(Adam Niedzielski)周三表示，由于缺乏数据，他目前不建议使用中共国药集团(Sinopharm)的中共病毒疫苗。
+该调查的研究人员表示，尚不清楚为什么北京的公共卫生工作者最不愿意接种中共国产病毒疫苗。他们暗示，北京的医务人员“可能觉得自己面临的风险比其他地方的同事要小”，因为北京作为中共国首都和政治中心的首要地位，让北京在国家资助的疫情控制措施方面拥有更大的优先权。
 
-尽管国药控股的疫苗尚未获得欧盟监管部门的批准，但匈牙利上周已成为第一个开始使用该疫苗、以加快其疫苗接种计划的成员国，波兰也在考虑是否购买。
-
-俄罗斯的卫星五号(Sputnik V)已经在匈牙利、斯洛伐克和捷克共和国获得批准或正在接受评估。欧洲药品监管机构(EMA)周四表示，已经开始对俄罗斯的卫星5号（Sputnik V）疫苗进行审查。
+然而笔者有不同的看法。北京作为中共国政治中心，其普通人对政治的敏感度都较高，受过高等教育的医务工作者更有独立思考、辨别真相的能力。爆料革命和新中国联邦在全国，尤其北京的传播度惊人，在已经熟知中共病毒是超限生物武器真相并听到新中国联邦传递的疫苗无效的信息，自然对疫苗的拒绝度高。而且现有的调查数据也无法体现被调查工作者真实的意愿。因为中共一贯的政治正确，让民众不敢表达真实想法，怕会被政治报复。调查中真正自愿接种中共国产疫苗的卫生工作者将远远低于统计数据。
 
 参考链接：
 
-[https://www.reuters.com/article/us-health-coronavirus-eu-france-idUSKBN2AX0NF](https://www.reuters.com/article/us-health-coronavirus-eu-france-idUSKBN2AX0NF)
-
-[https://cn.reuters.com/article/us-health-coronavirus-poland-china/citing-lack-of-data-polish-health-minister-does-not-recommend-chinese-shot-idUSKBN2AV1IX](https://cn.reuters.com/article/us-health-coronavirus-poland-china/citing-lack-of-data-polish-health-minister-does-not-recommend-chinese-shot-idUSKBN2AV1IX)
+[https://www.breitbart.com/asia/2021/03/04/study-beijing-health-workers-trust-chinas-coronavirus-vaccines-least-nationwide/](https://www.breitbart.com/asia/2021/03/04/study-beijing-health-workers-trust-chinas-coronavirus-vaccines-least-nationwide/)
 
 0
