@@ -1,66 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0302XVIII:G-News和GTV是灭共平台大家动起手指灭共没你不行
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/947828/)
+## 民调显示，美国人对中共国的好感率降至历史最低
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/947875/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/封面-23.jpg)
-编辑整理：
+*新闻来源：《国家脉动》| 作者：娜塔莉·温特斯(Natalie Winters) | 发布时间：2021年3月3日*
 
-纽约香草山农场：文官
+*翻译/简评：helloworld | 校对/审核：万人往 | Page：拱卒*
 
-法国巴黎七星农场：枫丹白露
+[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/833c65cc-2fb1-43a1-80c8-9609333751ce.jpg?asset_id=05244fe8-fbb4-41b6-9bd3-5a37db487d0f&amp;img_etag=%2259fe2ccfd57b312d62a97817dddd3ae3%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/833c65cc-2fb1-43a1-80c8-9609333751ce.jpg?asset_id=05244fe8-fbb4-41b6-9bd3-5a37db487d0f&amp;img_etag=%2259fe2ccfd57b312d62a97817dddd3ae3%22&amp;size=1024)
 
-郭文贵先生在[2021年3月2号 文贵直播：以毒灭共，势不可挡；GTV椅子战友请与各农场联系，新的GTV将更好的发挥灭共平台的作用；文贵为战友们而战！](https://gtv.org/video/id=603ecfe1047c4c3086e58b7f)直播中谈到了战友们对变更投资的态度是无论如何只要灭共，谈到了GTV所遭遇的SEC的不公平调查，谈到了如何应对SEC的不公平调查等内容，本系列将根据郭先生在直播中所涉及到的不同侧重点逐一上传，以下为本系列第十八部分也是本系列的终结篇——G-News和GTV是灭共平台大家动起手指灭共没你不行
+**简评：**
 
-据[2021年3月2号 文贵直播：以毒灭共，势不可挡；GTV椅子战友请与各农场联系，新的GTV将更好的发挥灭共平台的作用；文贵为战友们而战！](https://gtv.org/video/id=603ecfe1047c4c3086e58b7f)时间点1：01：40——
+中共国的行为已引起共愤。中共国对维吾尔族进行了种族灭绝，对美国发动了信息和经济战，产生并传播了新冠肺炎。作恶的结果是，美国对中共国的总体赞成度达到了20%的历史最低水平。
 
-兄弟姐妹们，最后我要给大家说的，**别手懒，这几天****G-News****的文章不给力，****GTV****上的节目非常棒，小****Sara****、小福利、小菲菲，**都漂亮的咧，是吧？还有我们的这个**罗伊小帅哥，**是吧？很多，还有我们的很漂亮、很棒的，**我们有些节目、哲学节目都做的非常非常好。我们加拿大的、西班牙的节目。但是我们现在有些关键点的节目啊，得盯上啊！**
+共和党和保守力量已对中共的邪恶、威胁和罪行达成了共识，而现在需要统一民主党、自由派的民意。拜登上台虽然有过和中共国勾兑、淡化威胁的想法，但在铁一般的证据面前，只能选择与中共国对抗。而没有“逢川必反”的政治需要后，民主党和左派势力必将冷静面对现实，充分认识到中共才是美国最大的威胁。
 
-**G-News****现在你看看，****G-News****都吓死我了，那个真正的关注人数比****GTV****大好几倍！****GTV****几十个****T****的数据，我天啦，吓死人啦，几十个****T****的数据，那个****G-News****比****GTV****的就是那个使用人数大好几倍！**
+中共历来利用美国的钟摆效应。而在美国左右即将达成灭共共识的现在，中共对美国的牵制和利用将再无可能。当美国为首的欧美国家统一民意，下决心出手之时，中共的灭亡也将不可避免。
 
-**但是我们的文章做得不行，大家各农场积极踊跃的、无私无我的多做一些****G-News、****多做一些****GTV****！这是大家的平台，灭共的平台！**我最后说啊，所有**这次任何义工咱不能落下，一个都不会落下！所有过去的承诺，这次都会依法的、合法的，通过各农场让大家获得，**记住我这话，有意见你们提啊，咱们还有时间。
+**原文翻译：**
 
-但是过了这个两个月以后，这基本就分配完了，再来就是下一拨了。
+# 
+**民调：民主党对于犯有种族灭绝的中国共产党表达赞成态度的可能性比共和党高三倍**
 
-**兄弟姐妹们，积极沟通！努力工作！动起你的手指！灭共没你不行！咱灭共没钱也不行，也得有钱。**还是那句话，凡是参加G系列的，投资赔了，七哥全部承担责任。挣了是你的！赔了是我的！这叫啥买卖呀，啊？呵呵，行了，1、2、3，（郭先生击掌三下）郭三秒，呵呵，就这吧，就这吧，兄弟姐妹们！
+[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/b0b2d335-d0d3-4d17-9aac-c1ec865852b5.jpg?asset_id=75ffc84b-9530-4756-ac5e-8e560cfb6f27&amp;img_etag=%222d43e595bc9b1d557d704367e0d08e2a%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/b0b2d335-d0d3-4d17-9aac-c1ec865852b5.jpg?asset_id=75ffc84b-9530-4756-ac5e-8e560cfb6f27&amp;img_etag=%222d43e595bc9b1d557d704367e0d08e2a%22&amp;size=1024)
 
-接上文——
+**盖洛普（Gallup）进行的一项新民意调查显示，美国人对中共国的好感率达到了历史最低的20%，而民主党人对这个共产主义国家持赞成态度的可能性是共和党人的近三倍。**
 
-[郭先生0302I战友们是因为要灭共而投资GTV和爆料革命](https://gnews.org/zh-hans/946511/)
+2月初的民意调查显示，只有10%的共和党人、22%的独立党人和27%的民主党人“对中共国持赞成态度”。
 
-[郭先生0302II由于GTV是灭共平台而遭遇构陷和不公平调查](https://gnews.org/zh-hans/946539/)
+[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/4b037451-6245-4004-bd03-b7d8c5c395eb.png?asset_id=f0ae122d-e1da-4ef8-957e-afb6cb35fe8c&amp;img_etag=%2297498842a783b1c847f88b3372fbb207%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/4b037451-6245-4004-bd03-b7d8c5c395eb.png?asset_id=f0ae122d-e1da-4ef8-957e-afb6cb35fe8c&amp;img_etag=%2297498842a783b1c847f88b3372fbb207%22&amp;size=1024)
 
-[郭先生0302III:我们不可能因为GTV的不公平调查就关掉或饿死](https://gnews.org/zh-hans/946594/)
+新的民调数字明显下降，分别是13%、17%和8%。
 
-[郭先生0302IV战友们因失去椅子对SEC的行动七哥没有立场](https://gnews.org/zh-hans/946614/)
+中共国对维吾尔族进行了种族灭绝，对美国发动了信息和经济战，产生并传播了新冠肺炎。这直接导致了民调所显示的结果，美国对中共国的总体赞成度达到了20%的历史最低水平。
 
-[郭先生0302V共产党折腾出来二十几个手持灭共利器的爹](https://gnews.org/zh-hans/946656/)
+[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/1e887850-4e42-4eee-bed3-550e2a4a76e6.png?asset_id=946dbed9-5ba8-4dcf-ab2c-fd1f5edb65d0&amp;img_etag=%22bf8b3041ebd2ffac0b856becd05f584a%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/1e887850-4e42-4eee-bed3-550e2a4a76e6.png?asset_id=946dbed9-5ba8-4dcf-ab2c-fd1f5edb65d0&amp;img_etag=%22bf8b3041ebd2ffac0b856becd05f584a%22&amp;size=1024)
 
-[郭先生0302VI调整后,投资利益和占比不变但权益更大还有权力](https://gnews.org/zh-hans/947060/)
+该民调统计自1979年开始追踪。在中共国政府镇压天安门广场的示威者之后，1989年8月，该数据也出现了类似的迅速下降。
 
-[郭先生0302VII为了别把共产党吓死咱整二十几个它爹陪它玩](https://gnews.org/zh-hans/947102/)
+[原文链接](https://thenationalpulse.com/breaking/dems-ccp-favorability-vs-republicans/)
 
-[郭先生0302VIII抗议SEC种族歧视和主张权利是战友们的权利七哥没立场](https://gnews.org/zh-hans/947153/)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-[郭先生0302IX移出GTV是基于SEC采信虚假证据和共产党对战友的疯狂攻击](https://gnews.org/zh-hans/947218/)
 
-[郭先生0302X美国警察和司法机构居然和大陆警察开始办案了](https://gnews.org/zh-hans/947258/)
+编辑：【英国伦敦喜庄园编辑部】
 
-[郭先生0302XI共产党的构陷不会停止,这些只会让我们更强大](https://gnews.org/zh-hans/947286/)
-
-[郭先生0302XII今天下午那么多好消息不想分享,怕搂不住](https://gnews.org/zh-hans/947321/)
-
-[郭先生0302XIII再也不能让共产党100%垄断分配财富/权力/利益](https://gnews.org/zh-hans/947526/)
-
-[郭先生0302XIV爆料革命永远以灭共和揭发共产党的欺骗和罪恶为己任](https://gnews.org/zh-hans/947559/)
-
-[郭先生0302XV共产党一次次的攻击都让我们更强大更坚决灭共](https://gnews.org/zh-hans/947620/)
-
-[郭先生0302XVI蛤说明天更美好,我们草根今天就要很美好](https://gnews.org/zh-hans/947720/)
-
-[郭先生0302XVII听说九指妖已经被抓起来了该保释出来了吧](https://gnews.org/zh-hans/947783/)
-
-\*\*\*\*\*\*\*全文完，下次直播再见\*\*\*\*\*\*\*
+[!\[\]()!\[\](https://spark.adobe.com/page/6Yb6uIfDUva75/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/6Yb6uIfDUva75/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

@@ -1,23 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以毒灭共， 以钱灭共的理解和思考
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/948576/)
+## 【热点播报】武汉病毒研究所15个病毒数据库对外关闭
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/948537/)
 
-**作者: **Shuizhuyu **校对/发稿人: **Ting Guo
+作者：纽约香草山佛教部 369文驹
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+【英媒[太阳报](https://www.thesun.co.uk/news/14147270/wuhan-lab-database-hidden-china-covid-smoking-gun/)报道】来自于一个全球科学家组成的，调查中共冠状病毒的团队DRASTIC发现，曾经能够被外界在线访问的中共武汉病毒研究所数据库，自从病毒被泄露以来就被中共政府给系统性的下线和隐藏起来。目前至少有15个病毒数据库被下线而无法访问，其中一个数据文件（在删除前已受密码保护）可能包含有关中共冠状病毒的信息。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-04-141517.jpg)
+DRASTIC发布了25页有关中共武汉病毒数据库的调查报告，其成员Gilles Demaneuf认为这是中共政府蓄意掩盖病毒真相的明确证据。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/EvHunyCXMAQiHLF.jpg)图片来源：wenqiao/twitter
+据悉，该数据的管理者正是石正丽，被称之为中共国的“蝙蝠女”，是武汉病毒研究所的主要冠状病毒研究人员。该问题的主要数据库名为“batvirus.whiov.ac.cn”。该数据库拥有22,000个样本和病毒序列，其中包括15,000个蝙蝠样本，涵盖了1,400种蝙蝠病毒。
 
-新春伊始， 郭先生在文贵看春晚上明确提出了辛丑年的：以毒灭共， 以钱灭共的目标。
+数据库“batvirus.whiov.ac.cn”于2019年9月首次下线，此后对于武汉病毒所之外的任何人都无法访问此网站。此后该网站于12月30日进行了更新，也就是中共声称已识别出该新病毒的同一天。RASTIC的报告称，该数据库包含至少100个未公开的蝙蝠冠状病毒序列，也包含了武汉病毒研究所和世组织Peter Daszak所属的“生态健康联盟”（EcoHealth Alliance）所共同合作搜集的样本。该联盟由美国提供了360万美元的资助。
 
-以毒灭共， 就是围绕病毒真相这个不可阻挡的事实根据， 闫博士的两份报告， 用无可争辩的各种实锤证据， 并经过半年的发酵， 阅读量和下载量都到了无可比拟的数字， 让世界恍然大悟。 彭培奥国务卿在离任前对病毒的定位， 红衣大主教的背书， 得到了世界上很多人的认可。 德国纳米物理学家发表的有关病毒出自武汉实验室事故的报告， 引起了欧洲的一片哗然。 在欧洲， 有大主教， 有物理学家， 颠覆了欧洲大部分人对病毒的认知， 尤其是最近德国物理学家罗兰·维森丹格（Roland Wiesendanger）的报告， 虽然引起了很多的质疑， 很多的不信任， 终归引起了对病毒起源的大讨论， 大辩论。 闫博士正在进行的对病毒超限战的定义研究将会让世界再次认识病毒的真相。
+Demaneuf表示，对于中共武汉病毒研究所声称是出于安全原因必须删除对数据库的访问权限，并借口此数据库已被黑客作为攻击目标的说法，简直太过荒谬。以中共国拥有的技术，完全可以保证安全地访问该数据库。中共政府在竭尽所能掩盖灾难发生的真相。
 
-当病毒的真相大白于天下， 共产党的灭白计划大白于天下的时候， 全世界的正义力量就会集中力量，向中共锁命。
+链接：
 
-郭先生英明设计的G系列， 就是要让普通的草根有机会参与到各种的投资当中， 让所有参与爆料革命的战友能够得到财务自由。 爆料革命战友一旦在财务上得到了体面的生活， 就是进一步用事实影响更多的， 让更多的观望者看到实际的利益， 尤其对最底层的草根们知道， 共产党才是他们贫穷的根本原因， 让普通百姓知道， 我们可以拥有美好富足的生活， 用我们的双手创造未来， 而不是被共产党一波一波的欺骗， 被盗国贼一茬一茬的割韭菜。 这样就会有更多的老百姓认清共产党的真面目。 达到以钱灭共的目标。
+[https://www.thesun.co.uk/news/14147270/wuhan-lab-database-hidden-china-covid-smoking-gun/](https://www.thesun.co.uk/news/14147270/wuhan-lab-database-hidden-china-covid-smoking-gun/)
 
-最近几天拜登政府的不合作， 拜登政府对中共的反人类罪，跨国犯罪集团的再次确认， 加上北约形成的对南中国海的集结， 结果是可想而知了。 共产党你完了！
+编辑/校对/发稿：宁静致远
 
-**（免责声明：本文的简评只代表作者个人观点，跟GNEWS平台无关。）**
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-+2
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
+
+0

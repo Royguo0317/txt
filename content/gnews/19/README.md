@@ -1,43 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】以色列要求旅行者佩戴“自由手镯”追踪装置
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/947990/)
+## 【字幕】3/2/2021文贵：农场变为房东有什么不同
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/948657/)
 
-作者：纽约香草山写作组 四季
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
-【[HUMANSAREFREE](http://humansarefree.com/2021/03/israel-implements-freedom-bracelet-tracking-device-for-travelers-for-a-virus-with-a-99-95-survival-rate-for-people-under-70.html)网站】3月3日报道，以色列已经推出了所谓的 “自由手镯”，这是一种追踪装置，将作为对任何从国外进入以色列的旅行者进行为期两周隔离的替代方法。
-
-该设备看起来像一块智能手表，它是由一家名为SuperCom的公司生产，该公司曾与几个国家的政府合作开发针对囚犯的跟踪和监控系统。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-04-121336.jpg)
-
-*图片来源：HUMANSAREFREE*
-
-SuperCom公司的首席执行官奥丹·特拉贝尔西（Ordan Trabelsi）表示，旅行者可以自由的选择，是被关在军方管理的隔离酒店里两周，还是带上追踪手镯。之所以称为它为“自由手镯”，是因为不是把任何人关起来，而是给他们回家的机会，但如果他们试图离开自己的家，就会被政府追踪。
-
-与此同时，以色列法院做出裁决，要求以色列的国内间谍机构Shin Bet必须退出这个中共病毒接触跟踪监视系统。 法院认为这是对以色列民主的威胁，它只能在紧急情况下使用。
-
-面对肆虐全球一年多的中共病毒，很多国家都在借以疫情的名义，采用各种不同的方式限制公民的自由。 各国普遍采用的长时间封城措施，极大地损害了本国的经济，并造成了很多次生灾难。 解决中共病毒的唯一方法就是世界各国对中共故意制造和传播CCP病毒追责，只有这样才能终结CCP病毒在全球的蔓延。
-
-原文链接：
-
-[http://humansarefree.com/2021/03/israel-implements-freedom-bracelet-tracking-device-for-travelers-for-a-virus-with-a-99-95-survival-rate-for-people-under-70.html](http://humansarefree.com/2021/03/israel-implements-freedom-bracelet-tracking-device-for-travelers-for-a-virus-with-a-99-95-survival-rate-for-people-under-70.html)
-
-编辑/校对/发稿：宁静致远
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+制作： 【彩虹桥】
 
 
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+2021年3月2日：农场变为房东有什么不同
 
+然后战友们问，那农场成为房东了，那我们是不是持有农场的股份？不是的，这个不是的，这个搞清楚。这个农场咋成为房东了啦了? 原来叫Saraca是GTV的爹，他拿到的股票，他给自己發股票可以發0.001, 0.0001 爱多少多少，就你们买走的那些股，剩下的人家Saraca背后的机构投资。
 
+他拥有这个股票，他可以押给任何一个人，他也可以给任何人，那各农场未来的什麽？从过去GTV的一个爹Saraca，现在变成了好几十个爹。这个爹也有自己生孩子的权利，就是椅子，他手裡拿着GTV的股票，他给谁谁就是GTV的股票，你拿着的就是他手裡GTV的股票，所以每个人都是椅子。
+
+有啥不同？过去你的椅子，你有受益权，这个GTV赚了钱你有受益权，大家别忘了你没有董事权，你没有一个董事席位，你们加一堆也没有董事席位，你没有参与决策权，你更没有绝对说我不乾了我走，你没有走的权力，你没有走的权利。没有SEC调查你走的权利没有的。你就是有分配利益的权利按着比例，那叫什麽呢? 就是分利权是你的，你没有权利，什麽叫权力？参与决策、分配利益、分配股份、重大决策、并购、上市，你都没有，因为你不是初始股东，你只有买了股份的股份赐予你的某些权力，而且写得非常清楚，各农场现在都有了所有的他有的参政的权利，一定加入董事会的，他有并购上市的参与权和决策权，甚至可能有一票否决权都有可能，除非是在章程写明的。
+
+他手裡拿的股份制跟过去Saraca是平等的，一模一样的。共产党原来害怕的就是GTV的爹saraca，一个爹，现在共产党一折腾，折腾出二十几个爹出来了，这个二十几个共产党爹的股东，他当然有同等决策权，他给你的就是他手裡拥有的这个武器，灭共的利器，叫GTV股份，他这个叫初始投资，他不叫私募了，初始投资，初始投资股权还有一块钱一股，而且这不是在美国，具体详细细节请和各农场联繫。
 
 0
