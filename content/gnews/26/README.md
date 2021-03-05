@@ -1,43 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】以色列要求旅行者佩戴“自由手镯”追踪装置
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/947990/)
+## 美国拒绝以武力推翻独裁政权的企图
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/948606/)
 
-作者：纽约香草山写作组 四季
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
-【[HUMANSAREFREE](http://humansarefree.com/2021/03/israel-implements-freedom-bracelet-tracking-device-for-travelers-for-a-virus-with-a-99-95-survival-rate-for-people-under-70.html)网站】3月3日报道，以色列已经推出了所谓的 “自由手镯”，这是一种追踪装置，将作为对任何从国外进入以色列的旅行者进行为期两周隔离的替代方法。
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-该设备看起来像一块智能手表，它是由一家名为SuperCom的公司生产，该公司曾与几个国家的政府合作开发针对囚犯的跟踪和监控系统。
+编辑上传 水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/B-2.jpg)news.yahoo.com
+03月03日，美国将放弃在世界范围内强行推动民主的政策。美国国务卿安东尼·布林肯在介绍该国外交政策时这样说。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-04-121336.jpg)
+“我们不会用代价高昂的军事行动强加民主。此外，美国将放弃以武力推翻独裁政权的企图。”布林肯说。
 
-*图片来源：HUMANSAREFREE*
+这位外交政策负责人认为，华盛顿过去试图采取这种行动，尽管意图良好，但并没有取得预期的结果。
 
-SuperCom公司的首席执行官奥丹·特拉贝尔西（Ordan Trabelsi）表示，旅行者可以自由的选择，是被关在军方管理的隔离酒店里两周，还是带上追踪手镯。之所以称为它为“自由手镯”，是因为不是把任何人关起来，而是给他们回家的机会，但如果他们试图离开自己的家，就会被政府追踪。
+国务卿补充道，“我们将采取不同的行动，我们将通过为其他国家树立自己的榜样，并通过奖励我们的合作伙伴以促进民主变革。”
 
-与此同时，以色列法院做出裁决，要求以色列的国内间谍机构Shin Bet必须退出这个中共病毒接触跟踪监视系统。 法院认为这是对以色列民主的威胁，它只能在紧急情况下使用。
+布林肯在向美国人发表讲话时，要求他们给乔·拜登总统的新政府一些时间来提出具体的外交政策解决方案。
 
-面对肆虐全球一年多的中共病毒，很多国家都在借以疫情的名义，采用各种不同的方式限制公民的自由。 各国普遍采用的长时间封城措施，极大地损害了本国的经济，并造成了很多次生灾难。 解决中共病毒的唯一方法就是世界各国对中共故意制造和传播CCP病毒追责，只有这样才能终结CCP病毒在全球的蔓延。
+促进民主是美国外交政策理论的支柱之一。1953年的伊朗政变被认为是官方承认的第一个以促进民主价值为幌子推翻政权的例子之一。
 
-原文链接：
+在近代史上，国务院认为格鲁吉亚和乌克兰以及塞尔维亚和黑山的变革是民主化的成功范例。
 
-[http://humansarefree.com/2021/03/israel-implements-freedom-bracelet-tracking-device-for-travelers-for-a-virus-with-a-99-95-survival-rate-for-people-under-70.html](http://humansarefree.com/2021/03/israel-implements-freedom-bracelet-tracking-device-for-travelers-for-a-virus-with-a-99-95-survival-rate-for-people-under-70.html)
+2019年，时任俄罗斯总理德米特里·梅德韦杰夫（Dmitry Medvedev）在塞尔维亚议会发言时表示，在中东和非洲强行推行民主模式会导致恐怖主义蔓延、国家毁灭和广大领土上的混乱。
 
-编辑/校对/发稿：宁静致远
+2020年秋天，美国前总统唐纳德·川普承诺，华盛顿将以最新的武器从实力上建立其和平政策。
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+参考链接：
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
+[https://www.rbc.ru/politics/03/03/2021/603fba3e9a7947d26f4ed0a1](https://www.rbc.ru/politics/03/03/2021/603fba3e9a7947d26f4ed0a1)
 
 0

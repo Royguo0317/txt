@@ -1,39 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共攻击维族妇女证人来反驳对其种族灭绝指控
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/948348/)
+## 【热点播报】以色列要求旅行者佩戴“自由手镯”追踪装置
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/947990/)
 
-#### 翻译：雾姐 | 校对：人间四月
-![]()![](https://gnews.org/wp-content/uploads/2021/03/capture-11.jpg)图片来源：HKCNews
-据路透社报道，中共面临不断增强的来自世界各国关于对新疆少数民族灭绝行径的施压，正在发起前所未有的反击战，特别是集中火力针对性攻击声称被虐待的妇女。
+作者：纽约香草山写作组 四季
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+【[HUMANSAREFREE](http://humansarefree.com/2021/03/israel-implements-freedom-bracelet-tracking-device-for-travelers-for-a-virus-with-a-99-95-survival-rate-for-people-under-70.html)网站】3月3日报道，以色列已经推出了所谓的 “自由手镯”，这是一种追踪装置，将作为对任何从国外进入以色列的旅行者进行为期两周隔离的替代方法。
 
-随着西方人权律师指控中共种族灭绝的消息越来越大，中共玩起了集中否定维族女性见证人可信度的把戏。是不是很熟悉的游戏？中共玩这个轻车熟路。
+该设备看起来像一块智能手表，它是由一家名为SuperCom的公司生产，该公司曾与几个国家的政府合作开发针对囚犯的跟踪和监控系统。
 
-中共官方拿出了所谓的医疗记录包括怀孕的资料，说这些妇女有性病，有婚外情等等。 中共说这些记录表明她们品性不端， 试图以此抵赖这些妇女对中共的虐待指控。且不说私人医疗记录能不能不经同意公之于众，就算可以，性病就一定是品行不端？有性病就不可能是被强奸染上的吗？逻辑在哪里？中共以他们的品行标准论断人的可信度，一切都是中共逻辑。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-04-121336.jpg)
 
-徐贵祥，新疆自治区宣传部部长在去年12月的新闻发布会上说，“为了反驳一些媒体的恶意报道，我们采取了一系列措施”，这个发布会是他们反击战的一部分。发布会还展示了一些录像，录像里面新疆人鹦鹉学舌般背诵朗读（授意的）台词。
+*图片来源：HUMANSAREFREE*
 
-从最近几个月中共发布的相关文章以及专家访问可以推断.中共的这个处心积虑声势浩大的反击战，恰恰意味着中共害怕了，他们正在失去对新疆话语权的控制。
+SuperCom公司的首席执行官奥丹·特拉贝尔西（Ordan Trabelsi）表示，旅行者可以自由的选择，是被关在军方管理的隔离酒店里两周，还是带上追踪手镯。之所以称为它为“自由手镯”，是因为不是把任何人关起来，而是给他们回家的机会，但如果他们试图离开自己的家，就会被政府追踪。
 
-中共对这几个维族妇女证词如此害怕，是因为这让他们以前用反恐借口掩盖新疆恶行的说辞失去了可信度。明眼人都看得出来，集中营里那么多女人，根本不像恐怖分子。她们跟恐怖主义不沾边。
+与此同时，以色列法院做出裁决，要求以色列的国内间谍机构Shin Bet必须退出这个中共病毒接触跟踪监视系统。 法院认为这是对以色列民主的威胁，它只能在紧急情况下使用。
 
-维吾尔人占到新疆被关押上百万人的大多数。关押在中共声称是为了反恐的集中营。 西方人权活动家和政客对中共迫害维族人的指控包括酷刑，强迫劳动和绝育。
+面对肆虐全球一年多的中共病毒，很多国家都在借以疫情的名义，采用各种不同的方式限制公民的自由。 各国普遍采用的长时间封城措施，极大地损害了本国的经济，并造成了很多次生灾难。 解决中共病毒的唯一方法就是世界各国对中共故意制造和传播CCP病毒追责，只有这样才能终结CCP病毒在全球的蔓延。
 
-川普政府和拜登政府的高级外交官都把中共对新疆人的迫害称为种族灭绝。这一点上非常罕见，美国两党意见一致。上星期加拿大和荷兰议会也展现同样的姿态。
+原文链接：
 
-中共面临的制裁包括，禁止出售新疆棉花和西红柿到美国境内，以及北京被抵制举办2022冬奥会。
+[http://humansarefree.com/2021/03/israel-implements-freedom-bracelet-tracking-device-for-travelers-for-a-virus-with-a-99-95-survival-rate-for-people-under-70.html](http://humansarefree.com/2021/03/israel-implements-freedom-bracelet-tracking-device-for-travelers-for-a-virus-with-a-99-95-survival-rate-for-people-under-70.html)
 
-中共外交部说“一些反华(共)势力无视事实和真相，编造新疆子虚乌有的谎言，新疆各族人民包括新疆妇女，都过着祥和满足的生活“（顾左右而言它忒不要脸了些。真的佩服歪叫部，撒谎成性，反咬一口。）中共拒绝了前往调查新疆再教育营的要求。严格管控的旅行中，媒体和外交官们不被许可接近集中营。新疆的维族人因为害怕报复，不敢对媒体讲话。
+编辑/校对/发稿：宁静致远
 
-中共严格管控媒体见面会，都需要提前几天甚至几周提问，他们会提供提前录制集中营新疆人囚犯和宗教领袖的视频。中共把这样的活动内容打包成集，并冠以“新疆真相：揭露美国主导的谎言和污蔑”。中共拒绝提供集中营关押人员的数据。起初他们拒绝承认集中营的存在。但是现在说那是职业培训再教育中心，所有的人都毕业了。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-新疆官员一月份说，一个接受外媒采访的女人有梅毒。他们还展示了她的医疗记录的图片—跟主题毫不相干的未经授权的信息。新疆官员上个月还说另外一个证人:“谁都知道她的品德低下，懒惰懒散，私生活一团糟，她邻居说她犯了淫乱”。试图用编造的污蔑之词让证人失去可信度。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-这就是中共的德行，弄巧成拙。以为靠胡编乱造的污蔑证人的所谓证据可以抹黑证人，为他们自己辩解，在有法治的国家，如此“证据”获取非法不说，更不会得到民众的认可。
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 
 
-[原文链接](https://www.reuters.com/article/us-china-xinjiang/inferior-women-china-counters-uighur-criticism-with-explicit-pr-attacks-idUSKCN2AT1BA)
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
 
 0
