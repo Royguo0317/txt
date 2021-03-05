@@ -1,47 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共逆淘汰体制催生干部“不善为”
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/951825/)
+## 拉尔夫·巴里奇博士早在2019年12月就对莫德纳和‘福奇’的新冠疫苗进行了评测! &#8211; 怎么回事？
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/951753/)
 
-**作者：**纽约香草山农场  鹰(文言)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image-45.png)
-新浪网3月5日转载新京报消息，2021年中共政府报告中首次提出干部“不善为”问题，继不作为、怠政懒政之后，中共官场又呈现新的“特色”。
+翻译：康州盘古农场 – 暴力小蘑菇
+校对：康州盘古农场 – Mike Li
+编辑：康州盘古农场 – Antsee-GTV
 
-“不善为”是指干部没能力，但执行上级指令时盲干蛮干，引发不良影响。2016年新华社首次提出“不善为”概念，其后推出多篇治理为官不作为、不担当的教育文章，以儆效尤。但实际上，“不善为”现象的发酵原因在于中共的逆淘汰体制。
+据《门户专家》网站乔·霍夫特报道：
 
-2012年习上台执政后，利用反腐名义铲除异己，又以“不得妄议中央”集权。长时间的反腐和对地方政府“令行禁止”的要求都使得体制内残存的党员干部不但不敢提出“逆耳忠言”，甚至像样的反馈意见都销声匿迹。于是就有了2017年河北“大跃进”式的煤改气，高达20%的天然气缺口引发民众供暖问题，就是因为中共中央的“拍脑袋”指示，地方政府一刀切的执行，在打砸农民自用取暖锅炉后才发现“无气可供”，有出必有进的常识都被有意忽略；再有春节期间的返乡措施被层层加码，可谓是“大有作为”的反例。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image-46.png)
-中共体制下的干部选用和晋升依旧沿用毛时代的任人唯亲和亲疏远近，再加上官僚体制内阿谀奉承、谄上媚下的本性，越来越多的专业性强和不愿同流合污的能人被排出系统，所以小学学历的习身边选用的“人才”大多是“报喜不报忧”的佞臣，于是在毛左思想的引领下，习带领着众多党员向着极左的文革风迈进。在这种大趋势下，有科学常识和理性思维的干部只能被“鹰派”取代，所以几年下来，中共官场遍布溜须拍马毫无实干的“口炮党”，对这些酒囊饭袋而言，彻底贯彻上意和捞钱敛财才是“王道”，又怎会为民干实事儿呢？
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image-47.png)
-2020年下半年为配合美国大选，中共内部党派之争加剧，习江斗浮出台面，而2021年1月20日拜登当选，彻底打破双方势力平衡，中共内斗进入你死我活的局面。为了加强统治，习频发政治正确的言论和要求，在军队、警察内部开启整治异己，在这种站错队即被灭的局势下，又怎会有干部提前下注或业绩突出当出头鸟呢？大有作为的或被习怀疑，或被江派所灭，所以大多官员只会沿用不做事则不错的“保身计”。
+**福奇博士和巴里克博士是什么时候发现武汉新冠肺炎疫情泄露的?他们是怎么知道的? 为什么在西方世界知道冠状病毒疫苗之前就开始了研究?**
 
-除了逆淘汰体制造成的能员干将稀缺，大多数干部没能耐之外，更有部分干部因参与内部斗争，上演“碟中谍”，用过度的能力做错事来或高级黑或低级红的捧杀习包子。再有爆料革命的中共体制内战友们的舍己配合，中共官场在内战猛烈的同时又参杂“打闷棍”现象，所以随着中共灭亡的临近，不作为、不善为只会越来越多。
+2020年4月9日，《门户专家》报道了中共国的一次重大冠状病毒泄露[事件](https://www.thegatewaypundit.com/2020/04/huge-exclusive-chinese-doctor-shi-zhengli-ran-coronavirus-research-wuhan-us-project-shut-dhs-2014-risky-prior-leak-killed-researcher/)，并怀疑泄露的病毒来自武汉病毒研究所。同时能够确定中共国的石正丽博士和来自美国的医生共同参与了2014年的一项冠状病毒研究项目，该项目后来因被认定风险太大而被美国国土安全部停止。
 
-(文章仅代表作者本人观点，与Gnews无关)
+在美国的研究项目被停止后，石正丽博士继续在中国武汉进行新冠病毒研究。
 
-参考链接：
+《门户专家》报道了来自中国的石正丽博士和来自北卡罗来纳州的拉尔夫·s·巴里克（Ralph S. Baric）博士，他们所在的团队在2015年版的《自然医学》（Nature Medicine）上发表了一篇[文章](https://www.nature.com/articles/nm.3985)。
 
-政府工作报告首提少数干部“不善为” 怎么解决？
+在这篇发表于2015年的文章中，他们讨论了蝙蝠冠状病毒在人类群体中爆发传染的可能性。
 
-[https://news.sina.com.cn/c/2021-03-05/doc-ikftssaq1652797.shtml](https://news.sina.com.cn/c/2021-03-05/doc-ikftssaq1652797.shtml)
+![nature]()![nature](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-06-at-01.49.45.png)
 
-习近平给“不善为”“不能为”和“不作为”的干部治“病”
+而这份报告是在他们的研究项目被美国卫生与公众服务部(HHS)撤资后不久发表的。
 
-[https://xw.qq.com/news/20160414031642/NEW2016041403164201](https://xw.qq.com/news/20160414031642/NEW2016041403164201)
+2014年，美国卫生与公众服务部致信北卡罗来纳大学教堂山分校，宣布将取消对该项目的资助。
 
-庸政怠政懒政的表现形式
+信件署名中巴里克博士赫然在列。
 
-[https://www.sohu.com/a/238967795\_100122249](https://www.sohu.com/a/238967795_100122249)
+在美国停止这项研究后，中方继续推进该项目，在武汉的武汉病毒学中心继续进行研究和开发工作。从石正丽博士的论文和简历中可以明显看出，他们已在实验室成功分离出病毒，并积极进行跨物种传播实验。
 
-终于！河北官方承认：煤改气搞得“太多了”
+为揭开COVID – 19的真相做出了巨大贡献的劳伦斯·塞林博士（Dr. Lawrence Sellin）在近期的一份报告中声称，巴里克博士于2019年12月12日签署了一项协议，他将获得“由NIAID和Moderna公司共同开发和拥有的mRNA冠状病毒候选疫苗”:
 
-[https://www.sohu.com/a/242328750\_774804](https://www.sohu.com/a/242328750_774804)
 
-责任编辑：华盛顿DC农场 光之子(沙加)
 
-编辑/校对：纽约香草山农场 七哩香
+> On DECEMBER 12, 2019 an agreement was signed (pg 105) that Dr. Ralph Baric of the University of North Carolina would receive "mRNA corona virus vaccine candidates developed and jointly-owned by NIAID and Moderna"[@Rossana38510044](https://twitter.com/Rossana38510044?ref_src=twsrc%5Etfw) [@ydeigin](https://twitter.com/ydeigin?ref_src=twsrc%5Etfw) [@BillyBostickson](https://twitter.com/BillyBostickson?ref_src=twsrc%5Etfw)[https://t.co/taAbB9FIvp](https://t.co/taAbB9FIvp)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [February 27, 2021](https://twitter.com/LawrenceSellin/status/1365518656998936579?ref_src=twsrc%5Etfw)
 
-发布：纽约香草山农场 shangshang
+
+*2019年12月12日，一份签署协议（第105页）显示：北卡罗来纳大学的Ralph Baric博士将获得由NIAID和Moderna共同开发和拥有的mRNA冠状病毒候选疫苗
+– 劳伦斯·塞林博士，2021年2月27日*
+现在世界各地的人们都接种了Moderna公司的mRNA疫苗。辉瑞公司也有一种mRNA疫苗。正如我们在2020年4月发表的文章中提到的那样，巴里克长期从事冠状病毒研究，与蝙蝠女（石正丽博士）和武汉病毒学研究所有着密切的联系。2019年12月12日这个时间处于本次新冠肺炎疫情早期，那时西方尚未形成明确的报告。巴里克顺理成章的成为检验mRNA疫苗有效性的合适人选。
+
+这些事实提示我们，巴里克博士和福奇博士可能早已获知在中国真实发生的事情，福奇和Moderna公司可能在西方宣布COVID-19疫情出现之前就已经在开发冠状病毒疫苗。后来Moderna公司很快就为疫苗的人体试验做好了准备。
+
+巴里克的名字并没有出现在保密协议上本该署名的任何其它位置，结合后续事态的进展，整件事情很难被认为是一个巧合。
+
+我们不能说这算是证据确凿，但这件不广为人知的事情，肯定足以使人产生进一步的疑问。
+
+**福奇博士和巴里克博士是否知道中国的新冠肺炎疫情扩散的消息? 他们是什么时候知道的? 如此多的问题……**
+
+原文链接：[https://www.thegatewaypundit.com/2021/02/huge-exclusive-dr-baric-reviewing-modernas-dr-faucis-coronavirus-vaccine-december-2019-know/](https://www.thegatewaypundit.com/2021/02/huge-exclusive-dr-baric-reviewing-modernas-dr-faucis-coronavirus-vaccine-december-2019-know/)
 
 0

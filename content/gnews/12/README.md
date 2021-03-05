@@ -1,35 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 前美国国家安全顾问麦克马斯特：台湾临近最危险时刻
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/951867/)
+## 法内阁部长警告欧盟谨慎对待中俄疫苗
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/952181/)
 
-作者：加拿大多伦多枫叶农场  军迷Wilson
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image-48.png)图片来源：CW39 Houston
-据《国家利益》3月4日报道，2017至2018年间曾出任川普政府国家安全顾问的赫伯特·雷蒙德·麦克马斯特（Herbert Raymond McMaster），[在本周二参议院军事委员会作证时](https://www.armed-services.senate.gov/hearings/21-03-02-global-security-challenges-and-strategy)表示，习近平或将于2022年北京冬奥会及中共第20届中央委员会召开之后下令进攻台湾。
+俄罗斯莫斯科喀秋莎农场   银河
 
-麦克马斯特称，中共显然认为奥运会的成功举办对其合法性至关重要，因此习近平不会在冬奥之前对台湾发动侵略，尤其是国际社会就中共在新疆犯下反人类罪、种族灭绝罪正在施压情况下；另外，为了继续第三个总书记任期，习近平认为占领台湾可以帮自己捞取政治资本和确立权威。
+编辑上传   水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/c-5.jpg)ca.finance.yahoo.com
+路透社3月5日报道，法国内阁部长敦促欧盟国家不要使用中共或俄罗斯的中共病毒疫苗，除非这些疫苗得到欧盟药品监管机构的批准，并警告欧盟谨慎对待，否则会给欧盟的团结和公共卫生带来风险。
 
-该报道指出，请不要忘记这一段历史:为什么爆发朝鲜战争？因为美国没有把当时的南韩划入防卫范围，所以北韩得到了苏联、中共的支持，如果当时的南韩是美国明确的保护对象，北韩不会得到苏中的支持，那么美国及盟军的几万军人就不会在朝鲜丧生——今天的中共更难对付！
+欧盟的疫苗接种运动落后于英国等其他国家，现中欧的一些成员国已经或正在考虑购买俄罗斯或中共的疫苗。
 
-**评****:**
+当被问及每个欧盟成员国对待疫苗的选择是否只是在做“他们自己想做的事”时，欧洲事务部长克莱门特·波恩（Clement Beaune）回答，“如果他们选择中共或俄罗斯的疫苗，我认为情况会非常严重。”波恩指出，“这将对我们的团结构成问题带来健康风险，因为俄罗斯疫苗尚未在欧洲获得批准。” 欧盟试图通过欧洲执行委员会集中处理疫苗采购问题。
 
-当前国际社会抵制北京冬奥会的呼声越来越强烈，2月10日之前就有包括联合国人权理事会在内的180个人权团体公开发表声明，要求各国领导抵制北京冬奥会，同时美国有7名国会议员提出议案，要求重新选定本届冬奥会举办国。但是美国总统拜登、英国首相约翰逊等相继表态不支持改变冬奥会举办地。
+波兰卫生部长亚当·涅兹尔斯基(Adam Niedzielski)周三表示，由于缺乏数据，他目前不建议使用中共国药集团(Sinopharm)的中共病毒疫苗。
 
-距冬奥会举办还有约10个月，在此期间如果有更多的国家如加拿大、荷兰一样，认定中共在新疆犯下种族灭绝罪，中共就自然失去了举办本届冬奥会的合法主体资格。在CCP病毒已将世界逼入死地的情况下，各国政府必然会顺应民意，在病毒溯源问题上做出实际行动，从而加速对中共犯罪组织的认定。
+尽管国药控股的疫苗尚未获得欧盟监管部门的批准，但匈牙利上周已成为第一个开始使用该疫苗、以加快其疫苗接种计划的成员国，波兰也在考虑是否购买。
 
-习近平在内外交困、举办冬奥会无望时，极有可能率先对台湾发动战争。目的除了麦克马斯特先生所分析的妄图煽动国内狭獈的民族主义建立权威，再就是将中共国带回文革模式，和文明世界隔绝对立，其最终目的是为了盗国贼集团永远不被清算，继续奴役墙内韭菜。
+俄罗斯的卫星五号(Sputnik V)已经在匈牙利、斯洛伐克和捷克共和国获得批准或正在接受评估。欧洲药品监管机构(EMA)周四表示，已经开始对俄罗斯的卫星5号（Sputnik V）疫苗进行审查。
 
-新闻来源：
+参考链接：
 
-Why China Could Invade Taiwan Soon
+[https://www.reuters.com/article/us-health-coronavirus-eu-france-idUSKBN2AX0NF](https://www.reuters.com/article/us-health-coronavirus-eu-france-idUSKBN2AX0NF)
 
-[https://nationalinterest.org/blog/buzz/why-china-could-invade-taiwan-soon-179281](https://nationalinterest.org/blog/buzz/why-china-could-invade-taiwan-soon-179281)
-
-责任编辑：加拿大温哥华圆成农场 比卡丘
-
-校对：加拿大多伦多枫叶农场 文锦
-
-发布：纽约香草山农场 shangshang
+[https://cn.reuters.com/article/us-health-coronavirus-poland-china/citing-lack-of-data-polish-health-minister-does-not-recommend-chinese-shot-idUSKBN2AV1IX](https://cn.reuters.com/article/us-health-coronavirus-poland-china/citing-lack-of-data-polish-health-minister-does-not-recommend-chinese-shot-idUSKBN2AV1IX)
 
 0
