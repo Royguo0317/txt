@@ -1,25 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 普京任命联邦安全局第一副局长
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/948549/)
+## 德国的分阶段解封计划令人不安
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/948584/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+```
+新闻来源： 《世界报》
+原作者： 奥拉夫·格塞曼（Olaf Gersemann）
+发布时间：04.03.2021
+```
 
-编辑上传 水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/F-1.jpg)俄联邦安全局外景 图来自istockphoto.com
-03月04日，联邦安全局（FSB）已经任命了第一位副局长谢尔盖·科罗廖夫（Sergey Korolev）上校。两位接近该机构部门的消息人士告诉RBC。
 
-据RBC的一位谈话人说，弗拉基米尔·普京（Vladimir Putin）的任命令是在2月24日签署的，当时总统参加了在中央办公室举行的联邦安全局高层会议。在新的任命之前，科罗廖夫领导该部门的主要部门之一经济安全处。消息来源还指出，该处的第一副处长谢尔盖·阿尔帕托夫担任联邦安全局经济安全处（SEB）的临时负责人。此项任命据称对普京而言非常重要。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Kombo-Gersemann-Merkel.jpg)图片来源：美联社照片
 
-RBC向联邦安全局公共关系中心发出了询问。在加入特勤局中央办公室之前，科罗廖夫是联邦安全局圣彼得堡和列宁格勒地区经济安全处的雇员。2007年至2011年，他是国防部长阿纳托利·谢尔久科夫（Anatoly Serdyukov）的顾问。此后，他被任命为联邦安全局内部安全局（CSS）局长。
+为调整公共生活而做出的这个分阶段解封计划， 是联邦和州政府做出的一个不适当的决定。 只是政客们为了讨好选民的举动，一种再次拉进与选民距离的方式。
 
-正是在科罗廖夫的领导下，第六军团成为联邦安全局内最重要的单位。该处雇员为圣彼得堡商人德米特里·米哈尔琴科（Dmitry Mikhalchenko）、基洛夫州州长尼基塔·别列克（Nikita Belykh）、萨哈林州州长亚历山大·霍罗沙文（Alexander Khoroshavin）和科米州州长维亚切斯拉夫·盖泽尔（Vyacheslav Gaizer）的案件提供了业务支持。“六名 ”员工还伴随着GUEBiPK和丹尼斯·苏格罗波夫（Denis Sugrobov）将军的案件。2016年，谢尔盖·科罗廖夫成为联邦安全局经济安全处（FSB SEB）的负责人。
+这个解除病毒疫情控制措施的计划是脱离实际的，目前看来联邦州政府不会按照这个计划来执行的。
 
-从2003年到2020年10月，谢尔盖·斯米尔诺夫（Sergey Smirnov）是第一副局长。普京总统因资历问题解除了他的职务。陆军将军谢尔盖·斯米尔诺夫协调联邦安全局内主要单位的工作：军事反间谍部、经济安全处和保护宪法秩序部门。
+#### 简评：
 
-参考链接：
+**德国自从爆发疫情以来， 政客们的表现开始被民众接受并支持。 但是由于疫情的不断变化， 病毒的各种进化导致的传染率激增， 以及死亡人数的不断攀升。 加上最近有关疫苗接种计划的实施中的步履维艰， 是民众对政客们慢慢的失去信心， 各种怨气也步步上升。 政客们的决策越来越不能符合民众的意愿。 造成了各种矛盾的不断冲突。 不弄清楚病毒来源的真相， 不对共产党追责， 实质的解决病毒危机就不可能实现。 **
 
-[https://www.rbc.ru/politics/04/03/2021/603fff959a7947e7196b264c](https://www.rbc.ru/politics/04/03/2021/603fff959a7947e7196b264c)
+**（免责声明：本文的简评只代表译者观点，跟GNEWS平台无关。）**
 
-0
+**🔗新闻来源链接：**[Dieser Stufenplan ist ein verstörendes Dokument der Zeitgeschichte](https://www.welt.de/wirtschaft/article227583911/Lockerungs-Stufenplan-Ein-verstoerendes-Dokument-der-Zeitgeschichte.html)
+
+* * *
+
+**翻译整理/简评：**Shuizhuyu **校对/发稿人: **Ting Guo
+
++3

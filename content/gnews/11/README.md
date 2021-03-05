@@ -1,17 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月4日 文贵先生盖特4
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/948924/)
+## 【每日快讯】4/03/2021:《环球时报》发文警告拜登要吸取川普的教训，意图恐吓拜登政府
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/949007/)
 
-编辑整理：美东香草山农场（彩虹桥）
+**制作:Cantonese工作室**
+**播报：【安妮】 资料整理：【安妮】【Ruby】 【陆柒陆捌 】海报制作:【小豆芽】【米线】 视频制作:【文德】上传:【星星】**
+摘要:
 
-3月4号：我们伟大的战友做的这些视频都将成为人类文明，关键时刻，消灭共产党拯救人类的最浪漫的视频和歌和音乐
-
-
-
-[【2021年3月4日】文贵先生盖特原文](https://gtv.org/getter/60415cba9534a74bcaefa73e)
-
-喜联盟**Gnews**编辑部
-
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-12.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2-14.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/0-2.jpg)
 0
