@@ -1,15 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月5日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/951940/)
+## 澳广播公司以人权投诉为由暂停中共官媒新闻
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/951991/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+俄罗斯莫斯科喀秋莎农场   银河
 
-3月5日：时间。1919年一战战败后，德国签署凡尔赛条约，签署后是一战结束德国战败，最核心是德国不能超过军队10万，约束德国军队发展、并且永远不能跨过莱茵河。捷克波兰都属于强国，欧洲各国都参与了这一切。短短十年后，一支崛起，就如同今天的习王，当时的将军波罗姆，希特勒的到来就是人类的黑暗时刻。他的崛起以恢复民主的民意、操纵德国爱国主义，有了人类有史以来最大灾难。希特勒尝试突破一切协议，美、英、法都自私，还有一个处于各种政治原因、内斗，给了希特勒空间和可能。1935年3月5日是人类最灰暗的日子，是犹太人被屠杀最根本原因，希特勒下令突破莱茵河，也就是撕毁了1919年的凡尔赛协议。当时，这是世界上最惊人的事件……
-![]()![](https://gnews.org/wp-content/uploads/2021/03/eff2e7b1a20b0e716e6bd28f9151a4fd.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/171c0206f4b1d1068e840a486b718171.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/842460ea4a67b9b53931bb56205565ff.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/2d663e522433ff50634b86be0c2ceca8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/99fd0f2d4fb61893753611af9abc3534.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/063a89d9a010a655d05ca78ee4f9fa71.jpg)
-[【2021年3月5日】文贵先生盖特原文](https://gtv.org/getter/604265909534a74bcaefde38)
+编辑上传   水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/A-6.jpg)scmp.com
+路透社3月5日快讯，澳大利亚广播公司（SBS）周五表示，在接到对中共环球电视网 (CGTN)和中共中央电视台的人权投诉后，将暂停播出该栏目的新闻节目。
 
-**喜联盟Gnews编辑部**
+澳大利亚广播公司在一份声明中表示，“考虑到它引起的严重担忧，以及涉及材料的复杂性，我们决定暂停海外来源的CGTN和中共央视新闻简报的播出，同时我们正在对这些节目进行评估。”
+
+在英国媒体监管机构以“严重不合规行为”为由吊销CGTN牌照后，人权组织捍卫者(Safeguard Defenders)致函澳大利亚广播公司对中共媒体进行投诉。
+
+中共外交部反击称，“这是典型的政治迫害”，敦促“有关各方摒弃意识形态偏见”，坚称CGTN坚持公平、准确报道的原则，“中方将采取一切必要措施，坚决维护中共媒体的合法权益”。
+
+人权组织在投书信中指出，中共央视在2013年至2020年期间播出了约56人被逼供的视频。“这些广播涉及提取、包装和播放在胁迫和酷刑条件下强迫被关押囚犯提供虚假供词。”
+
+参考链接：
+
+[https://www.reuters.com/article/us-australia-china-media-idUSKBN2AX0GJ](https://www.reuters.com/article/us-australia-china-media-idUSKBN2AX0GJ)
 
 0
