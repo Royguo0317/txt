@@ -1,92 +1,368 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 下一代生物武器：基因工程技术（二）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/950785/)
+## 下一代生物武器：基因工程技术（六）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/950962/)
 
 五月花写作组 ｜ 翻译：诸葛孔明 ｜ 编辑、美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/03/下一代生物武器v2.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/下一代生物武器v6-1.jpg)
 ### 往期链接：
 
 [下一代生物武器：可应用于生物战和生物恐怖主义的基因工程技术（一）](https://gnews.org/zh-hans/950821/)
 
+[下一代生物武器：可应用于生物战和生物恐怖主义的基因工程技术（二）](https://gnews.org/zh-hans/950785/)
+
+[下一代生物武器：可应用于生物战和生物恐怖主义的基因工程技术（三）](https://gnews.org/zh-hans/950852/)
+
+[下一代生物武器：可应用于生物战和生物恐怖主义的基因工程技术（四）](https://gnews.org/zh-hans/950890/)
+
+[下一代生物武器：可应用于生物战和生物恐怖主义的基因工程技术（五）](https://gnews.org/zh-hans/950922/)
+
 * * *
 
-## **二、前苏联的生物战计划**
+## **六、结论**
 
-**Biopreparat**
+基因工程病原体构成了“下一代”生物武器。证据表明俄罗斯有基因工程生物武器。肯·阿里贝克（Ken Alibek）的原著汇报令人震惊，以至于一些军情报人员觉得他是在在夸大其词（133）。随着基因工程和前苏联的能力开始得到证实，然而，现实让他们陷入窘境。这种基因研究创新显然增强了敌对势力进攻性生物武器的效能，并使我们的防御更加复杂。因为不确定这些病原体的特性（致死性，传播性和抗药性），我们必须为突发事件做好准备。这让我想起了两句名言。乔治·奥威尔（George Orwell）说：“生活是教育与灾难赛跑”。吉恩·克兰兹（Gene Kranz）说，“失败不是选项”。
 
-尽管签署了1972年《生物和毒素武器公约》（BWC），前苏联（FSU）一直在秘密地、非法实施进攻性生物武器计划。现在可以肯定的是，该计划至少持续到1990年代初期。 Biopreparat（一项用民用项目做掩护的庞大军事计划）为BW研发生物武器（3）。在60,000名员工中，该计划雇用了大约一半的工人，拥有超过18座BW工厂。在1980年代，年度预算达数千万美元（4）。前苏联BW研发计划使用的是对人最具传染性、致命性的细菌（例如鼠疫）和病毒（例如天花）（5）。不一样的是，美国的进攻性BW计划（1942-1969），主要使用非人类传染病的病原体（例如炭疽和兔温）。
+目前基因工程生物武器的威胁尚未超过传统的生物武器。但随着技术的发展，他们构成的威胁会越来越大（134）。新生物技术革命才刚刚开始（135）。历史上，最先进的生物技术已被用于进攻性BW计划（即前苏联使用了1970年代和80年代的技术）。生物技术最终是个双刃剑。一旦获得知识，就没有回头路了（136）。如同其他最强大的技术一样，它们可以被用于正义也可以用于邪恶（137）。在创造新生命体的过程中，我们必须谨慎行事（138）。随着新生物体被引入到我们脆弱的生物平衡中，我们无法预测对生物圈的所有潜在后果。用于造福人类的技术，因为意外事故或邪恶势力利用，可能会反过来对威胁我们的军队和民众。今天对微生物进行基因工程改造对医学和工业具有积极意义，明天，同样的技术，有可能用于制造生物武器。我们这一生很可能会看到有人使用这样的武器。不可避免地，有人一定会在某时、某地尝试这样的基因工程病原体（139）。如果被释放出来，将对医疗和政府反应方面构成极其严峻的挑战。
 
-Biopreparat和其他BW研究机构一直在最高（“特殊重要性”）安全级别下运行（比最高机密还高），美国情报界根本不知道前苏联会有这些机构。直到1989年，一名参与BW计划的顶级科学家叛逃到英国，美国情报界才恍然大悟（6）。我们对他进行了全面彻底的审问。随后，又有另外两个参与该计划的人叛逃到西方。现在，我们掌握了俄罗斯基因工程的详细进展情况，以及俄罗斯微生物学的其他进展情况。很显然，大多数文件仍属于机密，但三个叛逃者披露的信息，在一定程度上，已经部分解密，并已见诸报刊、文章。本文讨论已经解密的信息。
+在战场上对美国使用生物战剂在最近的历史上一直受到限制。有很多宣言和条约试图定义国际规范，控制生物武器的使用。到头来，战争法有些自相矛盾（140 ）。1972年《生物武器公约》的几个签署国，包括伊拉克和前苏联在内，都有违反这个条约的动作（141）。这些事件表明，用公约作为根除生物武器和防止进一步扩散唯一的办法是无效的。最终，最有效的威慑是他们对报复的恐惧（142）。海湾战争期间，据信伊拉克没有使用生物和化学武器是被被威慑了，因为萨达姆·侯赛因（Saddam Hussein）担心核报复或其他的泰山压顶般的报复（143）。我们无法确定未来的敌人会被如此吓倒。当然，恐怖分子不会那么容易被吓倒。生物技术可用极其小的代价到达大规模伤亡的目的，检测取证困难，因而可能逃脱报复。在非对称战争中，生物武器被视为“最好的均衡力量”。
 
-**Pasechnik**
+恐怖分子在特定城市使用生物武器的可能性很少，但是这种事件的后果很严重（144）。以造成最大的人员伤亡为目的，大都市地区的风险最高（145）。 这对地方社区是一两难的挑战，一方面人们需要准备但却非常敏感，另一方面资源有限。地方社区必须有一个计划和足够的医疗和公共卫生资源来做出反应，并维持24小时。联邦政府将迅速提供强有力的援助，但这不是立即发生的。目前，数十个联邦部门在激烈角逐反恐任务和资金项目，应对非常规恐怖袭击（146）。国土安全委员会负责协调更加有效的灾难应对网络（147）。目前，全世界所有军队和平民在BW攻击面前都十分脆弱（148）。应对新型基因工程生物病原体引起的全球大流行，我们严重的准备不足。
 
-1989年10月，弗拉基米尔·帕塞奇尼克（Vladimir Pasechnik）博士叛逃到英国。他是来自苏联内部主要信息源（7）。作为顶级微生物学家和超纯化生物制剂研究所所长，他详述了苏联Biopreparat的生物学研究的架构和生产设施。
+物理学主导了20世纪，但最近的科学突破表明未来100年可能是“生物学世纪”（149）。有人说：“第一次世界大战是化学武器战争；第二次世界大战是核战争；第三次世界大战-上帝禁止的-生物武器” （150）。
 
-除了确认苏联有进攻性的BW计划外，他透露说，苏联“有一个庞大的基因工程计划，目的是研发出西方无法防御的生物武器” （8）。BW计划彻底违反了1972年的《生物武器公约》。该研究所的首要任务是增加鼠疫和兔温的致病杀伤力，同时增加它们对抗生素和极端温度的抵抗力。将基因工程改造过的质粒导入到兔温细菌中，经过连续几代的培养，可产生对所有已知的西抗生素都有抗药性的兔温菌株。干粉状超级鼠疫菌列装为苏联的一种武器，并装载在各种弹药中（始终有20吨库存）。使用BW已经列为苏联一系列战术行动中的特殊战争计划，这包括用喷雾罐、集束炸弹、洲际弹道导弹（ICBM）和战略轰炸机投放瘟疫，炭疽或天花病原体（10）。
+* * *
 
-Pasechnik还详细介绍了其他细菌和病毒新菌株，经过改进后，可以很好地雾化，用做生物武器（11）。导弹飞行时，大气压变化和极端温度变化，会导致微生物很难生存。经过30年的试验，这些问题已经被苏联科学家解决了，方法是将BW配备类似宇航员舱式保护系统，然后再安装在火箭上。通过选择最顽强的菌种，根据Biopreparat和其他实验室测试的结果，计算所需的所需病原体数量，他们还解决了“爆炸破坏细菌”的问题。
+## **参考文献**
 
-概括来说，Pasechnik透露，苏联人（1）用基因工程技术改造了细菌和病毒，武器化了病原微生物，使之粉末化（2），并将它们装填到各种运载武器（3），将BW纳入其理论体系（4），并制定了使用BW的具体计划  (12)。
+1. Stephen M. Block, “Living Nightmares: Biological Threats Enabled by Molecular Biology,” in *The New Terror: Facing the Threat of Biological and Chemical* *Weapons*, eds. Sidney Drell, Abraham D. Sofaer, and George D. Wilson (Stanford, CA: Hoover Institution Press, 1999), 58; see also, Robert G. Webster, William J. Bean, Owen T. Gorman, Thomas M. Chambers, and Yoshihiro Kawaoka, “Evolution and Ecology of Influenza A Viruses,” *Microbiological Reviews*, March 1992, 152-179.
 
-**“****神殿财富****”**
+2. Genetic engineering is a type of molecular biotechnology that uses laboratory techniques to isolate, manipulate, transfer, recombine, and allow expression of genes (DNA segments) between different organisms. In biological warfare or bioterrorism, adversaries might use genetically engineered agents that included both modified existing microbes and possibly novel synthetic life forms created to render them more effective as biological weapons than found in naturally occurring organisms.
 
-在1992年春季，曾在Pasechnik实验室研究鼠疫的一位较低年资的科学家也叛逃到了英国（13）。他仍处于秘密保护之中，他的名字代号是“神殿财富”。他完全证实了Pasechnik披露的信息是真实的。“神殿财富”与Pasechnik逃到英国相差30个月的时间，他还提供了这个期间苏联的BW进展情况。
+3. Tom Mangold and Jeff Goldberg, *Plague Wars*(New York: St. Martin’s Press, 1999), 92.
 
-1990年，米哈伊尔·戈尔巴乔夫（Mikhail Gorbachev）总统下令终止了这个进攻性的生物武器计划。尽管鲍里斯·叶利钦（Boris Yeltsen）总统还宣布了（通过电视转播给俄罗斯人民，并对老布什总统做出个人承诺）终止该计划，但是对新型鼠疫的研究仍然秘密进行（14）。
+4. Ken Alibek with Stephen Handelman, *Biohazard*(New York: Random House, 1999), 43; see also, Lester C. Caudle III, “The Biological Warfare Threat,” in *Textbook of* *Military Medicine: Medical Aspects of Chemical and Biological Warfare*, eds. Frederick R. Sidell, Ernest T. Takafuji, and David R. Franz (Washington D.C.: Office of the Surgeon General, US Army, 1997), 454. Biopreparat constituted only half of the Soviet BW program. See Alibek’s *Biohazard*.
 
-“神殿财富”指出，改良过的超级鼠疫菌，对多种抗生素具有更强的抗药性，而且，在储存状态下是无毒性的。但需要时，很容易变为致命的、具有抗药性的鼠疫菌，将其武器化（15）。造成鼠疫菌毒性的基因就隐藏在质粒里。他所描述的是一种二进制的生物武器，既，当需要时，将无致病性的鼠疫细菌与能增强毒性的质粒，放在一个小的生物发酵罐里混合，再将发酵罐搭载到运载武器上（16）。
+5. Jonathan B. Tucker, *Toxic Terror: Assessing Terrorist Use of Chemical and* *Biological Weapons*(Cambridge, MA: MIT Press, 2000), 4-5; and Jim A. Davis, “The Anthrax Terror,” *Aerospace Power Journal*, Vol XIV, no. 4 (Winter 2000): 17.
 
-**Alibekov**
+6. Mangold and Goldberg, 182.
 
-1992年底，在“圣殿财富”叛逃后不久，Kanatjan Alibekov博士成为俄罗斯BW计划的第三位叛逃者（17）。作为Biopreparat副总主任（第二号人物）和传染病医生/流行病学家，他是有史以来排名最高级别的叛逃者（Kanatjan Alibekov博士现在的英文名字是Ken Alibek）。1999年，Alibek出版了《生物危害》一书，详述了他的亲手经历。事实上，就像百科全书一样，Alibek自上而下地剥开了Biopreparat的画皮，从人员、设施，进攻性研究的历史、医学和微生物学发现、特殊的生产方法、武器化技术、气溶胶测试、俄罗斯BW防御性创新，先前的欺骗和秘密计划、以及该计划的未来方向（18）。
+7. Ibid., 91-105; and Caudle, 453-4.
 
-Alibek说，1960年代和1970年代，苏联生物学家已经对使用基因工程技术制造生物武器产生了兴趣。1973年，苏共总书记列昂尼德·勃列日涅夫（Leonid Brezhnev）建立了 “酶”计划，以此促进生物武器现代化，基因改造病原体（19）。在Biopreparat的职业生涯早期，Alibek负责研发了第一个具有疫苗抵抗力的兔温杆菌炸弹（20）。到1986年，他的团队将战争炭疽杆
+8. Mangold and Goldberg, 93-5.
 
-菌菌株（Strain 836 ）的作战效力提高了三倍（21）。他是将马疽病（Glander）武器化的第一人，他并负责了苏联首次对马尔堡(Marburg）病毒 (类似埃博拉病毒）的测试（22）
+9. Caudle, 454. Bacterial cells frequently contain extrachromosomal (located outside the cell nucleus), autonomously replicating DNA molecules known as plasmids. Some plasmids carry DNA sequences that can produce antibiotic resistance, virulence, or infectivity. Plasmids can move between bacteria.
 
-Alibek透露，到1992年，俄国总共拥有52种不同的生物武器病原体或组合，包括致命的马尔堡病毒，埃博拉病毒和天花病毒。这些都可以被武器化。最具传染性和最容易生产和运输的病原体被标记为“做战用株”（23）。最受欢迎的“做战用株”包括炭疽杆菌836 菌株（Strain 836 ）、Biopreparat的超级鼠疫和一种特殊的俄罗斯兔温杆菌（Schu-4）。到1991年，Alibek说，俄罗斯科学家已经“改进”了这三种细菌，可以攻克人体的所有免疫系统，当前的医疗方法均无效（24）。1998年5月，Alibek在美国国会作证说到：
+10. Mangold and Goldberg, 94-5, 164; Col John Alexander, *Future War:* *Non-Lethal Weapons in the Twenty-First Century*(New York: St Martin’s Press, 1999), 191.
 
-请注意，在苏联人看来，最好的生物武器是那些无法预防，无法治疗的病原体。对于那些有预防疫苗或治疗方法的病原体，例如鼠疫，则着重研发抗药变异株、免疫抑制变异株（25）。
+11. Mangold and Goldberg, 93-7.
 
-自1959年以来，Biopreparat一直在研究毒力强、传染迅速的 “做战用株”天花病毒（India-1）。1987年开始，Biopreparat又开始研发一种毒性更强的天花病毒武器，并且在1990年进行了测试（26）。
+12. Ibid., 91-9.
 
-在Alibek的《生物危害》一书中，他写到了使用质粒增强细菌的毒力或抗生素耐药性（27）。这证实了Pasechnik和“ Temple Fortune”先前的口供。他还讨论了向鼠疫耶尔森菌（鼠疫细菌）的转送髓鞘毒素基因的问题，但是，据报道这种细菌尚未能武器化。他还说一个坐落在新莫斯科的公司，名为Bioeffekt Ltd.，通过邮购方式提供了三个兔温杆菌株。这个3个兔温杆菌株的生产“技术”方法不详（即基因工程菌株），而且来自俄罗斯境外。
+13. Ibid., 163-5.
 
-最令人震惊的是，Alibek揭露说，基因工程研究正在创造全新的生命形式（28）。为了制造出更致命的病毒，将一种病毒的基因插入另一种病毒，从而创造出杂交“嵌合体”病毒。Alibek说，俄罗斯人将委内瑞拉马脑炎病毒（VEE）的DNA插入到了牛痘病毒（基因结构几乎与天花病毒相同），创造了第一个杂交嵌合体病毒（29）。
+14. Alexander, 192; Mangold and Goldberg, 158-63.
 
-在他叛逃时，VEE、埃博拉、马尔堡病毒与天花病毒形成嵌合体病毒的研究已经在进行。
+15. Ibid., 164.
 
-在书的结尾处， Alibek谈论了生物技术知识如何与其他国家共享（30）。多年来，俄罗斯的 “基因工程与分子生物学”课程教材来自东欧，古巴，利比亚，印度，伊朗，伊拉克和其他国家。实际上，古巴在哈瓦那（Havana）附近建立了一家制药公司，用基因工程改造的质粒插入到细菌中，生产干扰素。
+16. Block, 55-6.
 
-**Yeltsen and Sverdlovsk ****（叶尔森和斯维尔德洛夫斯克）**
+17. Mangold and Goldberg, 177-95; Alibek, ix-xi.
 
-1979年，在斯维尔德洛夫斯克（现为俄罗斯叶卡捷琳堡），BW设施意外泄露了炭疽芽孢，死亡至少66人。1998年，对保存的11个受害者的样本进行了DNA测序，结果发现，同时存在多达四个不同遗传基因炭疽杆菌的变种。这表明，至少有一部分基因工程炭疽生物武器的成分在里面，因为自然爆发的炭疽疾病，只可能有一个菌株（31）。苏联当时否认存在军事计划，事件发生地的政府官员不是别人，而正是鲍里斯·叶利钦。
+18. Mangold and Goldberg, 178-9,182; Alibek, 3-304.
 
-十多年后，叶利钦成为俄罗斯总统后，于1992年访问了英国。在一次公开演讲中，他讨论了生物战的研究情况，他说到，在战争研究方面，俄罗斯“已经着手研究了各种物质对人类基因的影响”。叶尔钦的讲话证实了苏联先前的基因工程项目是真实存在的（32）。后来作为俄罗斯总统，叶尔钦颁布了一项公共法令，宣布全俄罗斯禁止BW研究和生产。
+19. Alibek, 40-2, 155-6; Alexander, 191. Immediately after the 1972 Biological Weapons Convention treaty, President Brezhnev initiated the largest biological weapons program in history.
 
-**科学报告**
+20. Mangold and Goldberg, 186.
 
-1995年，俄罗斯科学家在英国一次会议上报告一项研究，后来，1997年12月，该项研究发表在英国医学杂志《疫苗》上（33）。
+21. Ibid., 180. 187-8.
 
-他们报告说他们已经成功地将蜡样芽孢杆菌的基因插入到炭疽杆菌，从而使得俄罗斯炭疽疫苗无效（至少在仓鼠中）。很明显，这提出了美国炭疽疫苗是否有效的问题。美国相关部门试图获得俄罗斯最毒的炭疽杆菌样本（34）。因得不到，五角大楼在2001年初，制定了工作计划，重复俄罗斯的实验，用基因工程的方法制造这个毒菌株，以便找出防御这种生物武器的方法（35）。
+22. Ibid.
 
-**启示**
+23. Ibid., 179.
 
-生物型武器在历史上已被多次使用。微生物自古以来就是人类的敌（36）。如今的新变化是：可以量身定做更具传染性和致命性的病原体，越来越多的国家和恐怖组织可以获得这些知识（33）。在研究基因工程，嵌合体病原体和二元生物武器邻域，上述俄罗斯科学家的成功，就是最好的案例。从公开的记录来看，我们知道前苏联（FSU）在他们的大规模进攻性BW项目中，应用了基因工程技术（38）。
+24. Ibid., 180.
 
-FSU将其进攻性BW计划归类为“特殊重要性”（高于“最高机密”），显而易见，他们认为BW导弹与核导弹一样有价值（39）。因为军事机密的原因，甚至许多高层苏联/俄罗斯官员也不会了解该计划的全部内容和细节。
+25. Block, 49-50.
 
-进攻程序也无法控制它（40）。这种黑手党式的机密可以解释，为什么在与西方谈论违反条约时，戈尔巴乔夫和叶利钦感到困惑，疑虑和前后矛盾（41）。令人难以置信的是，Pasechnik说他第一次获悉《生物和毒素武器公约》的存在，是从英国的审讯官员那里，此前，他从未听说过（42）。的确，尽管叶利钦下令取消了FSU的进攻性BW计划，许多情报分析员相信它依然可随时恢复，深藏于军队建设中，不愿交出他们的BW机密（43）。
+26. Mangold and Goldberg, 181.
 
-美国军事医学研究和材料指挥部，约翰·帕克少将，承认“生物恐怖分子可以通过改造炭疽病等疾病来使得现有疫苗无效” （44）。一些西方情报专家认为俄罗斯的基因工程计划，例如Alibek所描述的，只是刚刚开始（45）。分子生物学新发现的步伐使得人们必须审视新的BW威胁（46）。生物技术进展的“负面“效应预示着耐药性细菌、无效的疫苗，以及全新的嵌合体病毒病原体（47）。世界各地大多数大学都有产生致命病毒和细菌性新毒株的专业技术。一些美国科学家预测，基因工程会在20几年的时间内，将会使我们目前的生物武器防御措施变得过时，完全失去抵抗能力。科幻可能会在二十几年内成为科学事实（48）。
+27. Alibek, 160-1, 163-7, 272.
 
-用洲际弹道导弹与俄罗斯互相攻击的战争威胁近年来已经大大减少了。但是，随着核弹和BW导弹退役，Biopreparat和BW基础设施被拆除，许多俄罗斯科学家突然失业。有人担心基因工程的知识、甚至是高传染性的菌株（出售，被盗或走私），可能已经扩散到“流氓国家”或恐怖组织。如果真是这样，此类泄漏，再加上全世界易于流通的信息和技术，将导致生物武器扩散，在大规模战场、小规模冲突、和恐怖袭击中，使用生物武器的可能性越来越大（49）。
+28. Ibid., 259; and Mangold and Goldberg, 181.
 
-生物武器包括病原微生物和投送方法。制造病原微生物容易，但使其变为武器或并播散则比较难。前国物院反恐办公室副主任，拉里·约翰逊（Larry Johnson）说到：“制作这些武器需要基础设施和专业知识，不是在车库里穿上实验服就可以做到的（50）。但是，恐怖分子可能会试图招募前生物武器研究人员获得有关技术。资金充裕的恐怖组织可能会够购买所需的俄罗斯科学家。部分恐怖分子团体可能会用所掌握的技术知识实施的生物恐怖攻击（51）。小恐怖组织不太可能（尽管不是不可能）有机会获得或生产基因工程生物武器，除非他们有能力购买大型生物武器计划的技术或病原微生物，比如来自前苏联的。
+29. Alibek, 258-61; Mangold and Goldberg, 181.
 
-（未完待续）
+30. Alibek, 273-5.
+
+31. Block, 50-1, Alibek, 69-86.
+
+32. *Plague War*, Frontline, PBS Home Video, Public Broadcasting Service, FROL-1706, 1998, 60 minutes.
+
+33. A.P. Pomerantsev, N.A. Staritsin, Yu V. Mockov, and L.I. Marinin, “Expression of Cereolysine AB Genes in Bacillus anthracis Vaccine Strain Ensures Protection Against Experimental Hemolytic Anthrax Infection,” *Vaccine*, Vol. 15, No. 17/18, 1997, 1846-1850.
+
+34. Judith Miller, Stephen Engelberg, and William Broad, *Germs: Biological* *Weapons and America’s Secret War*(New York, Simon and Schuster, 2001), 218-220.
+
+35. Judith Miller, Stephen Engelberg, and William J. Broad, “U.S. Germ Warfare Research Pushes Treaty Limits,” *New York Times*, 4 September 2001, A1, A6.
+
+36. Laurie Garrett, The Coming Plague (New York: Penguin Books, 1994), 10.
+
+37. Peter R. Lavoy, Scott D. Sagan, and James J. Wirtz, *Planning the Unthinkable:* *How New Powers Will Use Nuclear, Biological, and Chemical Weapons*(Ithica, NY: Cornell University Press, 2000), 5.
+
+38. Malcolm R. Dando, *The New Biological Weapons: Threat Proliferation, and* *Control*(Boulder, CO: Lynne Rienner Publishers, Inc, 2001), 11.
+
+39. Mangold and Goldberg, 182.
+
+40. Ibid., 110,159-61, 176.
+
+41. Ibid., 183.
+
+42. Ibid., 98.
+
+43. Tucker, 5.
+
+44. *Association of Military Surgeons of the United States Newsletter*, vol. 9, issue 2, (Summer 2001), 4.
+
+45. Mangold and Goldberg, 181; Alibek, xi.
+
+46. Block, 41-5.
+
+47. Lavoy et al, 4-5.
+
+48. Mangold and Goldberg, 373.
+
+49. Peter L. Hays, Vincent J. Jodoin, Alan R. Van Tassel, *Countering the* *Proliferation and Use of Weapons of Mass Destruction*(New York: The McGraw-Hill Companies, Inc., 1998), 9; Zilinskas estimates that it may only take five years for scientists working for “proliferant governments or subnational groups” to develop biological weapons from the new biotechnologies. R.A. Zilinskas (Ed.) *Biological* *Warfare: Modern Offense and Defense*(Boulder, CO: Lynne Rienner, 2000).
+
+50. Tucker, 9.
+
+51. Ibid., 8-9. Lavoy et al, 232, 257.
+
+52. Raymond A. Zilinskas, *Biological Warfare: Modern Offense and Defense* (Boulder, CO: Lynne Rienner Publishers, 2000), 2-3.
+
+53. Laurie Garrett, The Coming Plague: *Newly Emerging Diseases in a World of* *Balance*(New York: Penguin Books, 1994), 53.
+
+54. Andrew F. Krepinevich, “Cavalry to Computer: The Pattern of Military Revolutions,” *The National Interest*, No. 37, (Fall 1994), 30-42.
+
+55. Moisés Naím, “Reinventing War,” *Foreign Policy*, November/December 2001, 37.
+
+56. Claire M. Fraser and Malcolm R. Dando, “Genomics and Future Biological Weapons: The Need for Preventive Action by the Biomedical Community,” Published online: 22 October 20001 by Nature Publishing Group @ http//genetics.nature.com, p. 1.
+
+57. Even crop duster aircraft and mosquito sprayer equipment are potential delivery mechanisms for bioterrorism.
+
+58. Block, 60.
+
+59. Ian O. Lesser, et. al, *Countering the New Terrorism*(Santa Monica, CA: RAND, 1999), 7-38. Although the total number of terrorist events worldwide has declined in the 1990s, the percentage of terrorist events resulting in fatalities (and total numbers of fatalities) increased; Ehud Sprinzak, “The Lone Gunman,” *Foreign Policy*, November/December 2001, 72-3. According to Sprinzak, today’s “megalomaniacal hyperterrorists” are innovators and developers. They incessantly look for original ways to surprise and devastate the enemy. They think big, seeking to go beyond “conventional” terrorism and, unlike most terrorists, could be willing to use weapons of mass destruction. If the intent of terrorists is to inflict mass casualties, then biological agents are likely to be used.
+
+60. Richard Preston, *The Hot Zone*(New York: Anchor Books/Doubleday, 1994). Tom Clancy’s *Executive Orders*and Michael Critchton’s *The Andromeda Strain*were other popular books on pathogens.
+
+61. Alexander, 215. PDD-62 contained major initiatives to combat international terrorism. PDD-63 addressed protection of the nation’s critical infrastructure from both physical and cyber attacks.
+
+62. *Preventing Emerging Infectious Diseases: A Strategy for the 21st Century*,(Atlanta: U.S. Department of Health and Human Services, Centers for Disease Control and Prevention, reprinted August 2000), vii.
+
+63. Garrett, 6; Block, 59. New infectious diseases are thought to emerge due to situations where humans now live in close proximity to animals.
+
+64. William J. Broad, “Genome Offers ‘Fingerprint’ for Anthrax: Analysis of Bacterium Could Help Investigators,” *New York Times*, 28 November 2001, B-1-8.
+
+65. Block, 45. The minimum lethal dose for inhalational anthrax (reported to be5,000 to 10,000 spores) is high compared to some other biological agents.
+
+66. Fraser and Dando, 2.
+
+67. Block, 46-7.
+
+68. Drell, 355.
+
+69. Ibid., 355; Sheryl Gay Stolberg with Melody Peterson, “U.S. Orders Vast Supply of Vaccine for Smallpox,” *New York Times*, 29 November 2001, B-8.
+
+70. Alibek, 258-61; Block, 49. The FSU’s biological warfare program was massive, totaling over 18 complexes and 60,000 workers. Considering that this dwarfed the worldwide commitment to the Human Genome Project, there is significant concern about what the FSU bioscientists were able to accomplish. Despite President Yeltsen’s order to close the Russian BW program, biological warfare research is thought to continue in the FSU.
+
+71. Block, 51.
+
+72. Caudle, 63-4.
+
+73. Personal conversation with Bill Patrick, 6 September 2001.
+
+74. Asymmetric warfare is the use of less technological, less expensive, and/or more unconventional weapons, tactics and strategies. Historically, this has taken the form of guerilla warfare, but today includes cyber war and the use of weapons of mass destruction.
+
+75. Zilinskas, 1-2.
+
+76. Katherine McIntire Peters, “Behind in the Biowar,” *Government* *Executive*,December 2001, 28.
+
+77. Ibid., 28. The potential to inflict damage on the enemy is obvious. Less clear is how to protect friendly troops from disease while spreading it among the enemy.
+
+78. *The Worldwide Biological Warfare Weapons Threat*, 2001, 1.
+
+79. Zilinskas, 6.
+
+80. David Franz quoted by Peters in “Behind in the Biowar,” 30.
+
+81. Fraser and Dando, 2.
+
+82. Dando, 58.
+
+83. Donald Rumsfeld, *Report of the Quadrennial Defense Review*, (Washington, D.C.: Department of Defense, September 2001), 7.
+
+84. Block, 39-40.
+
+85. Ibid., 51-70.
+
+86. Ibid., 52-56.
+
+87. Ibid., 56-60.
+
+88. International Human Genome Sequencing Consortium, “Initial Sequencing and Analysis of the Human Genome,” *Nature*, Vol 409, 15 February 2001, 860-921 ([http://www.tigr.org/tdb/mdb/mdbcomplete.html](http://www.tigr.org/tdb/mdb/mdbcomplete.html)); see also, David Baltimore, “Our Genome Unveiled,” *Nature*, Vol 409, 15 February 2001, 814-816.
+
+89. International Human Genome Sequencing Consortium, 860-921.
+
+90. Rachel Nowak, “Disaster in the Making,” *New Scientist*, 13 January 2001, 4-5.
+
+91. Fraser and Dando, 3.
+
+92. Clyde A. Hutchison, et al, “Global Transposon Mutagenesis and a Minimal Mycoplasma Genome,” *Science*, Vol 286, 10 December 1999, 2165-2169.
+
+93. A minimal genome can be defined as the smallest set of genes that allows forreplication of the organism in a particular environment.
+
+94. Philip Cohen, “A Terrifying Power,” *New Scientist*, 30 January 1999, 10.
+
+95. Carina Dennis, “The Bugs of War,” *Nature*, 17 May 01, p. 232-235.
+
+96. Block, 60-63.
+
+97. Zilinskas, 13. The bacteria *E. coli*have been genetically engineered to produce commercial quantities of valuable complex proteins, including insulin, human growth hormone, interferon, hepatitis B surface antigens, and angiotensin.
+
+98. Bernard Moss, “Genetically Engineered Poxviruses for Recombinant Gene Expression, Vaccination, and Safety,” *Proceedings of the National Academy of Sciences* *of the United States of America*, 1996, Vol. 93, 11341-11348, as abstracted in the *Journal* *of the American Medical Association*, 6 August 1997, Vol. 278, No.5., 350.
+
+99. Block, 60.
+
+100. Ibid., 62.
+
+101. Ronald J. Jackson, et. al., “Expression of Mouse Interleukin-4 by a Recombinant Ectromelia Virus Suppresses Cytolytic Lymphocyte Responses and Overcomes Genetic Resistance to Mousepox,” *Journal of Virology*, February 2001, 1205-1210.
+
+102. Nowak, 4-5; see also, Stanley L. Robbins, Ramzi S. Cotran, and Vinay Kumar, *Pathologic Basis of Disease, Third Ed*. (Philadelphia: W.B. Saunders Company, 1984), 158. The immune response compromises all the phenomena that result from the specific interaction of cells of the immune system with antigens (foreign material). Entrance of an antigen into the body can have two possible outcomes: (1) a humoral immune response, involving the synthesis and release of antibody molecules within the blood and extracellular fluids; or (2) cell-mediated immunity, manifested by production of “sensitized” lymphocytes capable of interacting with antigens such as bacterial toxins and cause neutralization of the toxin, or they can coat the antigenic surfaces of microorganisms and render them susceptible to lysis by complement or to phagocytosis by macrophages. In the second type of reaction, the sensitized cells are responsible for such actions as rejection of foreign tissue grafts and resistance against many intracellular microbes, i.e., viruses, fungi, and some bacteria.
+
+103. Dennis, 232-235.
+
+104. Jose B. Cibelli, Robert P. Lanza and Michael D. West, with Carol Ezzell, “The First Human Cloned Embryo,” *Scientific American*, January 2002.
+
+105. Gina Kolata with Andrew Pollack, “A Breakthrough on Cloning? Perhaps, or Perhaps Not Yet,” *New York Times*, 27 November 2001, A1-12.
+
+106. Cibelli, x.
+
+107. Gina Kolata, “Company Says It Produced Embryo Clones,” *New York Times*,
+
+26 November 2001, A-14.
+
+108. Sharon Begley, “Brave New Monkey,” *Newsweek*, 22 January 2001, 50-52.
+
+109. Block, 63-65.
+
+110. Garrett, 226-233.
+
+111. Block, 65-68.
+
+112. Zilinskas, 18.
+
+113. Block, 68-71.
+
+114. Fraser and Dando, 2.
+
+115. Block, 51.
+
+116. Dando, 41.
+
+117. Fraser and Dando, 3.
+
+118. Block, 47-48; Dando, 125-129.
+
+119. Dennis, 232-235.
+
+120. Fraser and Dando, 4; see also Dando, 127. Polymorphisms are differences in a specific gene. Single nucleotide polymorphisms (SNP) arise from the change of just one base pair in the DNA sequence. SNPs are markers that may lead to the genetic basis of many diseases. Theoretically, a SNP or sets of SNPs may provide new targets for new drugs, toxins, or bioregulators.
+
+121. Peters, 30.
+
+122. Mildred K. Cho, David Magnus, Arthur L. Caplan, Daniel McGee and the Ethics of Genomics Group, “Ethical Considerations in Synthesizing a Minimal Genome,” *Science*, Vol 286, 10 December 1999, 2087-2090.
+
+123. Zilinskas, 13-15.
+
+124. Fraser and Dando, 3.
+
+125. Rick Weiss, “A Terrorist’s Fragile Footprint,” *The Washington Post*, 29 November 2001, 1.
+
+126. Broad, B1-8.
+
+127. Fraser and Dando, 3.
+
+128. Robins, 158. See footnote 102 for definitions of humoral and cell-mediated immunity.
+
+129. Zilinskas, 21.
+
+130. Dennis, 232-235.
+
+131. Fraser and Dando, 3.
+
+132. William A. Haseltine, “Beyond Chicken Soup,” *Scientific American*, November 2001, 56-63.
+
+133. Peters, 30.
+
+134. Dennis, 232-235.
+
+135. Dando, 11.
+
+136. Block, 71.
+
+137. Zilinskas, 5-6.
+
+138. Alexander, 119-121, 196.
+
+139. Block, 42.
+
+140. Alexander, 190.
+
+141. Lt Col George W. Christopher, LTC Theodore J. Cieslak, MAJ Julie Pavlin, and COL Edward M. Eitzen, “Biological Warfare: A Historical Perspective,” *Journal of* *the American Medical Association*, Vol 278, No.5, 6 August 1997, 412-417.
+
+142. Alexander, 192.
+
+143. Jeffery K. Smart, “History of Chemical and Biological Warfare: An American Perspective,” in *Textbook of Military Medicine: Medical Aspects of Chemical and* *Biological Warfare*, eds. Frederick R. Sidell, Ernest T. Takafuji, and David R. Franz (Washington D.C.: Office of the Surgeon General, US Army, 1997), 73.
+
+144. Drell, 358.
+
+145. Jeffery D. Simon, “Biological Terrorism: Preparing to Meet the Threat,” *Journal of the American Medical Association*, Vol 278, No.5, 6 August 1997, 428-430.
+
+146. Amy Smithson, et. al, *Ataxia: The Chemical and Biological Terrorism Threat* *and the U.S. Response, October 2000*, as quoted by Peters in “Behind in the Biowar,” 33.
+
+147. Elizabeth Becker and Tim Weiner, “New Office to Become a White House Agency,” *New York Times*, 28 September 2001.
+
+148. Zilinskas, 128.
+
+149. Alexander, 116.
+
+150. Sir William Stewart as quoted by Patricia Reaney, “Animal Disease is Reminder of Bioterrorism Danger,” in Reuters news report, 3 September 2001.
+
+* * *
+
+**美国空军预防武器扩散中心**
+
+**美国空军预防武器扩散中心成立于****1999****年，旨在帮助现任和未来的美国空军将领们更新知识，以对抗应敌人的大规模杀伤性武器的威胁。**
+
+**Barry R. Schneider****主任**
+
+**美国空军预防武器扩散中心**
+
+**325 Chennault Circle**
+
+**Maxwell AFB AL 36112-6427**
+
+**电子邮件：**[**\[email protected\]**](/cdn-cgi/l/email-protection#2c6e4d5e5e55027f4f4442494548495e6c414d545b494040024d4a02414540)
+
+**Jo Ann Eddy****，副主编**
+
+**防止武器扩散文件**
+
+**电子邮件：****[email protected]**
+
+**（334）953-7538（DSN 493-7538）**
+
+（已完结）
 
 * * *
 
@@ -96,4 +372,4 @@ FSU将其进攻性BW计划归类为“特殊重要性”（高于“最高机密
 
 欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
-+3
+0

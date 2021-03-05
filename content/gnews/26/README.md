@@ -1,76 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新电邮揭露WHO、NIH配合中共国修改保密条款以掩盖真相
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/951366/)
+## 【热点播报】强生计划对新生儿进行中共病毒疫苗测试
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/951460/)
 
-*新闻来源：《 司法观察 ( JUDICIAL WATCH ) 》| 发布时间：2021年3月1日*
+作者: 香草山医疗部  圣母院钟声
 
-*翻译/简评：新街口 | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii*
+![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1415-【热点播报】强生计划对新生儿进行新冠疫苗测试.jpeg)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/wFLJ5BkINozv9/images/095e5e7b-ab03-4d41-bb03-7e98ca0479d8.jpg?asset_id=29c00909-eeb9-4fea-a05f-a0899ce1eb44&amp;img_etag=%2224364a7defbf5a3d8c1121232bf938bf%22&amp;size=2560)](https://spark.adobe.com/page/wFLJ5BkINozv9/images/095e5e7b-ab03-4d41-bb03-7e98ca0479d8.jpg?asset_id=29c00909-eeb9-4fea-a05f-a0899ce1eb44&amp;img_etag=%2224364a7defbf5a3d8c1121232bf938bf%22&amp;size=1024)Photo Credit: Reuters / 達志影像
+据非盈利组织《[保护儿童健康](https://childrenshealthdefense.org/defender/johnson-johnson-test-experimental-covid-vaccine-infants/)》报道，继上周五美国食品和药物管理局（FDA）授予强生公司（J&J）中共病毒疫苗的紧急使用授权，周日，强生公司透露将该中共病毒疫苗用于对新生儿的免疫接种试验。强生公司计划首先对12-18岁年龄组的儿童进行临床试验，紧接着便是新生儿组。强生公司这一扩大的临床试验在该公司的紧急使用批准申请和提供给FDA的简报材料中均有阐述。FDA发现，强生公司的中共病毒疫苗在接种后14天内预防中度至重度症状的有效性仅为67%，在接种28天内预防中度至重度症状的有效性为66%。
 
-***简评：***
+据《纽约时报》报道，强生公司这一扩大临床试验的计划得到了哈佛大学波士顿儿童医院精密疫苗项目主任Ofer Levy博士的批准。Ofer Levy博士也是审查该公司疫苗数据的FDA咨询委员会成员。他指出，为儿童接种疫苗将帮助国家达到群体免疫力，这与美国国家过敏和传染病研究所所长安东尼·福西博士的评论相呼应。据《防卫者》报道，比尔·盖茨宣称希望将中共病毒疫苗作为 “常规新生儿免疫接种计划的一部分”。
 
-**2020年1月23日，中共对武汉实施野蛮粗暴的封城后，即使没有听到过1月19日的路德访谈对全世界发出中共病毒大爆发的提前预警，每一个有正常思维的人也能够从中共的这个非同寻常的举动判断出这个病毒肯定具有极高的传染性和危害性。**
+此消息一出，网络上讨伐声一片。据《泰晤士报》报道，儿科疫苗占据世界大部分疫苗市场，所以不难理解，为什么强生那么积极抢占相对空虚的儿童中共病毒疫苗市场。尽管在0-19岁的年轻人中，大多数人会出现轻微或根本没有症状，但99.997%能在中共病毒中存活下来。
 
-**但是让世人大跌眼镜的是，以谭德塞为首的世卫组织却首先配合中共说没有证据表明病毒会人传染，然后又建议各国不要禁止中共国的航班入境。同时，身兼美国总统首席医疗顾问和国立过敏与传染病研究所所长头衔的福奇也公开反对川普总统作出的对中共国航班禁航的正确决定。**
+我们真的要将人类最脆弱无助的群体当小白鼠吗？ 世上哪有思维正常的父母会把自己的心肝宝贝供出来做人体试验？ 即便强生得到足够多的婴儿父母的签字，强生将怎样解决一个不可能的技术问题，即在其三期临床试验时，设立感染病毒婴儿对照组，以评估试验结果呢？
 
-**这次《司法观察》公开的福奇和他的助手、世卫组织和中共之间的邮件往来，为世人揭开了福奇和世卫组织为何不顾事实和科学，力挺中共的一点点内幕。我们从他们的邮件中知道了在病毒刚刚爆发初期，福奇和世卫组织就完全按照中共的意愿修改病毒信息披露公布的保密条款，掩盖真实病例数量，禁止中共病毒的真实信息的传播。**
+政策制定者利欲熏心，不把大众利益放首位，反而用不见血的利刃残害弱势百姓。近月，中共病毒疫苗副作用大量报道，世界各国政府“强迫接种政策”不断受到民众质疑。闫丽梦博士公开呼吁，如果不能迫使中共交出原始毒株信息，而盲目地将大量时间、金钱投入到病毒疫苗，全人类的生活方式乃至命运会被不断变异的中共病毒，或中共随时可能释放出的其它病毒所左右。为自身的生存权，全世界应该联合起来群起诛之，彻底掐灭病毒源头，消灭CCP!
 
-[!\[\]()!\[\](https://spark.adobe.com/page/wFLJ5BkINozv9/images/bac9d846-7d5e-4a6a-a5ce-348422e1c20e.jpg?asset_id=b6a25d3c-ccfa-42aa-9c84-29c01a4c7729&amp;img_etag=%22b5d82187aedd559093471ea809088afb%22&amp;size=2560)](https://spark.adobe.com/page/wFLJ5BkINozv9/images/bac9d846-7d5e-4a6a-a5ce-348422e1c20e.jpg?asset_id=b6a25d3c-ccfa-42aa-9c84-29c01a4c7729&amp;img_etag=%22b5d82187aedd559093471ea809088afb%22&amp;size=1024)
-
-**这些依照美国的相关法律被强制公布的往来邮件，强有力地指证了福奇和世卫组织的主要负责人，帮助中共掩盖病毒生物武器的真相，最终造成了中共病毒全球大爆发。一旦事实被认证，这些历史罪人必将受到惩罚。**
-
-***原文翻译：***
-
-# **司法观察：新电子邮件详细说明了WHO / NIH对中共国保密“条款”的妥协**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/wFLJ5BkINozv9/images/d086dca8-9ccf-4d38-b290-db8b07ac0478.png?asset_id=a87bc50d-f945-48e8-836e-a14bf397c556&amp;img_etag=%22d39414f1b83c4035b51dd3cdb256df9b%22&amp;size=2560)](https://spark.adobe.com/page/wFLJ5BkINozv9/images/d086dca8-9ccf-4d38-b290-db8b07ac0478.png?asset_id=a87bc50d-f945-48e8-836e-a14bf397c556&amp;img_etag=%22d39414f1b83c4035b51dd3cdb256df9b%22&amp;size=1024)
-
-（华盛顿特区）《司法观察》今天宣布，它和“每日传讯新闻基金会”(DCNF)收到了美国卫生与公共服务部的福奇博士和H. Clifford Lane博士的301页电子邮件记录，这些邮件显示了美国国立卫生研究院（NIH）的官员按照中共国的要求修改了保密协议，**世界卫生组织（WHO）于2020年1月进行了一个从未被发布的、“严格保密”的COVID-19流行病分析。**
-
-此外，这些电子邮件还透露了一位中国独立记者提醒美国国立卫生研究院的过敏与传染病研究所临床研究和特殊项目副主任Cliff Lane，中共国新冠病例数量存在不一致的情况。
-
-接收这些电子邮件是为了响应司法观察代表每日传讯新闻基金（DCNF）向哥伦比亚特区美国地方法院提起的《信息自由法》（FOIA）诉讼（每日传讯新闻基金会诉美国卫生与公共服务部(No. 1:20-cv-01149))。
-
-美国卫生和公众服务部未能回应DCNF于2020年4月1日提出的《信息自由法》要求：
-
-福奇博士与Lane副主任以及世界卫生组织官员之间就新型冠状病毒的沟通交流。
-
-福奇博士和Lane副主任、世卫组织官员Bruce Aylward、世卫组织总干事谭德塞以及中共国的沟通往来信息。
-
-新的电子邮件包括Lane和世卫组织技术官员Mansuk Daniel Han之间于2020年2月14日至15日进行的有关保密协议的对话。Han写道：“这次的协议需要根据中方的条款定制，因此我们不能使用以前的协议。”
-
-世卫组织于2020年2月13日向前往中共国的美国国立卫生研究院官员发送了一揽子简报，作为COVID答复的一部分，要求官员在与中共国达成协议之前不可以共享信息：**“重要须知：请把这些作为敏感信息，不可以公开交流，直到我们与中共国达成协议。”**
-
-在2020年1月20日的电子邮件中，世卫组织官员讨论了他们当月初对COVID-19进行的流行病学分析，并指出该报告“严格保密”，“仅用于”感染危害战略和技术咨询小组（STAG-IH），并且“不应进一步传播”。
-
-在2020年3月4日的中国财新传媒记者曾佳给福奇的副手Lane的一封电子邮件中指出，世卫组织联合中共国调查团报告中的病例数量武汉市卫健委发表的数量不一致。
-
-在[WHO报告中]第6页上说，2019年12月2日，武汉至少有1例临床诊断为冠状病毒的病例；从1月11日至17日，武汉每天都有新的临床诊断和确诊病例，这与武汉市卫健委的数字不一致。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/wFLJ5BkINozv9/images/d0758ec7-490a-4770-adc8-0a94243166b0.png?asset_id=fa233f03-e5cc-493f-a8a9-af7b030afdec&amp;img_etag=%223677307ce327502426e17b1c6f6e179c%22&amp;size=2560)](https://spark.adobe.com/page/wFLJ5BkINozv9/images/d0758ec7-490a-4770-adc8-0a94243166b0.png?asset_id=fa233f03-e5cc-493f-a8a9-af7b030afdec&amp;img_etag=%223677307ce327502426e17b1c6f6e179c%22&amp;size=1024)CCP LIED , AMERICANS DIED!
-
-在2020年2月15日的一封电子邮件中，世卫组织中国办事处负责人Gauden Galea通知前往中共国的联合调查团成员，他们在中共国的所有活动将由中共国国家卫健委安排。
-
-每日传讯新闻基金会的主编Ethan Barton说：“这些电子邮件在冠状病毒爆发的早期就定下了基调。很明显，世界卫生组织允许中共国从一开始就控制信息流通。真正的透明度至关重要。”
-
-司法观察总裁Tom Fitton说：“这些新邮件显示，世卫组织和福奇的美国国立卫生院为中共控制COVID-19信息作出了妥协并提供了便利。”
-
-这是《司法观察》获得的最新信息，也是每日传讯新闻基金正在进行的，对福奇和NIH对冠状病毒大流行的反应的调查。司法观察和每日传讯新闻基金先前发现了一封电子邮件，其中显示了世卫组织敦促发表一份已经由福奇博士批准的新闻稿，**“特别”支持中共国对COVID-19的应对**。
-
-9月22日，美国地方法院法官Dabney L. Friedrich下令卫生及公共服务部开始准备处理响应记录。在9月21日的法庭文件中，卫生及公共服务部表示，该机构将从11月30日开始，即接到每日传讯的FOIA要求八个月后，开始向DCNF制作300页的响应记录。响应记录的总数约为4200条，这将使记录的完整发布推迟到至少2022年。卫生及公共服务部还声称福奇必须在发布每封电子邮件之前亲自检查每一封电子邮件。
-
-**🔗[原文链接](https://www.judicialwatch.org/press-releases/emails-who-terms/?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=press_release)**
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+编辑/审核/发稿：雪梨
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/wFLJ5BkINozv9/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/wFLJ5BkINozv9/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-+4
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
++2
