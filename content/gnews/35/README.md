@@ -1,64 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 犹他州众议院通过议案，要求关闭仅存的两所孔子学院
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/951310/)
+## 3/5/2021 财经快讯：中共棉花期货价格狂飙；缅甸军方转移在美资产受挫​
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/951358/)
 
-*新闻来源：《CAMPUS REFORM 校园改革网》| 作者：SergeiKelley | 发布时间：2021年2月3日*
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2021-03-06_011023.jpg)图片来源： [https://zhuanlan.zhihu.com](https://zhuanlan.zhihu.com)
+**1.苹果面临英国反垄断调查**
 
-*翻译/简评：wmorpho | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii*
+[英国反托拉斯当局对苹果公司及其应用商店App Store进行了调查，以检查苹果iPhone制造商是否通过坚持用自己的支付系统，限制竞争来滥用其市场支配力。CMA（英国公平竞争及市场管理局）表示，调查的部分原因源于应用开发商的担忧，Fortnite战斗游戏的制造商Epic Games Inc.先前曾抱怨苹果在其试图绕过应用程序购买支付系统后删除了其应用程序。](https://www.newsmax.com/newsfront/CONSD-COS-CPR-GOV/2021/03/04/id/1012542/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/baLM2dpOygNks/images/fe0344aa-d916-4f1e-859f-5593ffccfd76.png?asset_id=bbe141e3-f3c0-4086-8b19-1e170ce8419d&amp;img_etag=%22bd99011bc6b54dfe0a08592a509fefd9%22&amp;size=2560)](https://spark.adobe.com/page/baLM2dpOygNks/images/fe0344aa-d916-4f1e-859f-5593ffccfd76.png?asset_id=bbe141e3-f3c0-4086-8b19-1e170ce8419d&amp;img_etag=%22bd99011bc6b54dfe0a08592a509fefd9%22&amp;size=1024)谢尔盖·凯利 | 密歇根州高级校园记者 Tuesday, March 2, 2021 5:18 AM 2021年3月2日上午5:18
+**2.德国同意向运营商支付24亿欧元的核出口费用**
 
-***简评：***
+[柏林（路透社）- 德国政府已同意向核电运营商支付24亿欧元，以补偿福岛核电站事故后的早期核停工。德国决定在2011年日本发生灾难后立即关闭部分核电站的运转，其余的则按照时间表直到2022年停止运转。](https://www.reuters.com/article/us-germany-nuclear-compensation/germany-agrees-to-pay-operators-2-4-billion-euros-for-nuclear-exit-faz-idUSKBN2AW2FI)
 
-**美国犹他州议会通过一项新决议，以国家安全和抵制中国共产党的影响为由，关闭犹他州剩余的最后两所孔子学院。这凸显了美国抵制中共国大外宣的决心与实际行动。该决议由犹他州第52区的共和党代表坎蒂丝·皮鲁奇提出，要求教育“不要受中共及其代理的操纵”。皮耶鲁奇表示：“学生不应该被灌输被中共歪曲的中国历史知识，而应该接受全面的教育，使他们受到现实的启发，并对中共国政府犯下的侵犯人权行为有认真的了解。”**
+**3.Deliveroo宣布计划以 “70亿美元” 在伦敦上市**
 
-**年轻人是国家发展的未来，他们的成长阶段所接受的教育攸关国家的命运。目前有很多美国的年轻人对共产主义尤为热衷，这与中共国的虚假宣传是分不开的。那些参与Antifa的左翼年轻人，有很多是不明真相的。关闭孔子学院只是杜绝共产主义宣传的开始，揭露共产党的真实面目才是教育与挽救年轻人的有力武器。这是我们爆料革命的使命与目的，我们不仅要让共产党滚出中国，还要让共产主义在全世界没有立足之地。只要共产主义存在一天，整个世界就不得安宁。**
+[Deliveroo将在伦敦上市，此举可能使该公司的估值达到约70亿美元（合50亿英镑）。这家食品外卖公司在病毒大流行中需求猛增，那些被迫关闭到店用餐的餐厅已经签署到该平台。英国财政大臣Rishi Sunak在评论Deliveroo时说：“英国是世界上创立、发展和上市业务的最佳地点之一 ，我们已离开欧盟，决定继续建立这一声誉。”](https://www.bbc.co.uk/news/business-56279094)
 
-***原文翻译：***
+**4.英国解除对“暗池”交易的更多限制**
 
-# **犹他州议员倡议关闭剩余的孔子学院**
+[伦敦（路透社）- 英国金融行为监管局（FCA）周四表示，它将取消“暗池”交易的更多限制；在英国脱离欧盟之后，数十亿欧元的交易离开伦敦前往阿姆斯特丹。暗池交易是指机构投资者可以使用平台交易股票，而无需在执行之前披露交易的一系列细节。](https://www.reuters.com/article/us-britain-eu-markets/britain-lifts-more-curbs-on-dark-trading-to-limit-stocks-brexodus-idUSKBN2AW2HJ)
 
-犹他州众议院第8号联合决议将关闭该州仅存的孔子学院，分别位于犹他大学和南犹他大学。
+[英国脱欧过渡期于12月31日结束后的1月份，有80亿欧元的每日股票交易离开伦敦前往欧盟，这给了英国很大压力，要求其进行反击以保持伦敦金融城在全球的吸引力。](https://www.reuters.com/article/us-britain-eu-markets/britain-lifts-more-curbs-on-dark-trading-to-limit-stocks-brexodus-idUSKBN2AW2HJ)
 
-该决议引述了有关机构对孔子学院在美国进行的宣传和对中共国不诚实描述实际情况的关切。
+**5.缅甸军方试图转移在美10亿美元资产，被无限期冻结**
 
-联合决议赞扬了已经关闭其孔子学院的几所犹他州高等院校。
+[路透社5日独家消息称，自国内政治危机发生后，缅甸军方2月初试图转移纽约联储银行中约10亿美元（约合64.7亿人民币）的缅甸政府资产，但被美国政府 “无限期冻结”。2月10日，拜登宣布对缅甸军方的一系列制裁措施，其中就包括限制军方高层接触缅甸政府在美资金。美国官员当时没有提供解释，但第二天（11日）的行政命令将缅甸中央银行明确划归缅甸政府，从而允许美方冻结这笔资金。](https://www.sohu.com/a/454209914_115479?spm=smpc.home.top-news3.2.1614947440964PYggccf)
 
-犹他州议会通过一项新决议，以国家安全和抵制中国共产党的影响为由，关闭犹他州剩余的两所孔子学院。
+**6.棉花期货价格大涨60%**
 
-2月1日推出的《保护犹他州的高等教育机构免受中国共产党影响的联合决议》（HJR 8）“呼吁犹他州的高等教育机构关闭其孔子学院，并向立法机关公开与孔子学院有关的所有信息。 ”
+[截至2021年3月3日，棉花期货的价格是每吨16385元。从去年上半年低点算起，至今已上涨了60%左右。由于棉花一直在上涨，因此纱线价格也一直在上涨。截至3月3日，郑商所棉纱主力价格为每吨24235元，距离2020年4月低点上涨了30%以上。原材料的价格涨了60%，但到毛巾成品上面，涨幅在10%左右；一块普通毛巾是100克，出厂价格一般是13元，要涨10%的话就是1元多。](https://ishare.ifeng.com/c/s/v004YyLMqUpJzNzPM7aix7nHcY0pNgb9myb05pBnHNN--A4VUhUKKCpYrNr6AWAeSm1LvY3zxANmYzSOb9A07SNEfgA____?spss=np&amp;aman=1cP40fIc67kef8q49b74b62d74Lc6f64180e01I305)
 
-该决议由犹他州第52区的共和党代表坎蒂丝·皮鲁奇（Candice Pierucci）提出，要求教育“不要受中共及其代理的操纵”。
+**7.中共国今年GDP目标定为6%以上**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/baLM2dpOygNks/images/4a82d73e-287a-47bb-a426-f0dabdef0ba3.png?asset_id=66fb8eb2-7ea0-4e60-b317-8c3e43ccb097&amp;img_etag=%229ad2f130ad2e5db35c1dee7ca70e0fac%22&amp;size=2560)](https://spark.adobe.com/page/baLM2dpOygNks/images/4a82d73e-287a-47bb-a426-f0dabdef0ba3.png?asset_id=66fb8eb2-7ea0-4e60-b317-8c3e43ccb097&amp;img_etag=%229ad2f130ad2e5db35c1dee7ca70e0fac%22&amp;size=1024)图为一名美国学生参加“孔子学院”的绘画课
+[今年的政府工作报告说，经济增速是综合性指标，今年预期目标设定为6%以上，考虑了经济运行恢复情况，有利于引导各方面集中精力推进改革创新、推动高质量发展。](https://finance.sina.com.cn/china/2021-03-05/doc-ikftpnnz2583306.shtml)
 
-第8号决议提到联邦调查局和美国大学教授协会（AAUP）对孔子学院对学术自由构成的威胁的关注。此外，自2014年以来，已有超过45所孔子学院被关闭，如果该决议被通过，犹他州的最后两所孔子学院将在2022年12月之前被关闭。
+评：你说10%都行，不就改改数据嘛！两会是中共国的委员、人大代表的各种表演所谓民主的机会，国内媒体大势宣扬，各种大唱赞歌，各种感动人物，好一幅热闹场面；各种看似关乎国计民生的提案层出不穷，占据各大媒体的主要版面，最后能真正实施的寥寥无几，整个两会就是一场劳民伤财的闹剧！
 
-剩下的两所孔子学院分别位于犹他大学和南犹他大学。
+By 【金融组 – 小海星】
 
-众议员皮鲁奇告诉校园改革网，犹他大学“已经在关闭其孔子学院的过程中，并且完全支持该决议。”此外，皮鲁奇已经与南犹他大学合作来建立一个新的完全由大学运营的汉语教学课程。
+素材搜集：文罡
 
-皮耶鲁奇进一步表示：“学生不应该被灌输被中共歪曲的中国历史知识，而应该接受全面的教育，使他们受到现实的启发，并对中共国政府犯下的侵犯人权行为有认真的了解。”
+校对：小蚂蚁在行动
 
-该决议的通过将使所有大学被要求公开他们与孔子学院的合同，以及“孔子学院为影响该高等教育机构举办的与可能被视为对中国共产党敏感的问题有关事件的所作所为。”
-
-这可能包括“批评中共对台湾、维吾尔族少数民族、香港、西藏或其他族裔和宗教少数民族所采取的恐怖手段。”
-
-该决议进一步声称，孔子学院的教师来自中共国，并在“中国共产党统战部的指导下”由中共国政府提供部分资金。
-
-在Twitter上关注本文的作者：@[SergeiKelley](https://twitter.com/SergeiKelley?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor)
-
-**🔗[原文链接](https://www.campusreform.org/article?id=16937)**
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/baLM2dpOygNks/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/baLM2dpOygNks/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-+2
++3
