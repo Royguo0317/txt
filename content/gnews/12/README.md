@@ -1,41 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福尔摩斯历险记之中共病毒
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/949231/)
+## 世卫组织: 人们认为中共病毒大流行将在2021年结束是“不现实的”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/951535/)
 
-作者：香草山设计部 宇伦
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1407-福尔摩斯历险记之中共病毒-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1407-福尔摩斯历险记之中共病毒-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1407-福尔摩斯历险记之中共病毒-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1407-福尔摩斯历险记之中共病毒-4.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1407-福尔摩斯历险记之中共病毒-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1407-福尔摩斯历险记之中共病毒-6.jpg)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1407-福尔摩斯历险记之中共病毒-7.jpg)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1407-福尔摩斯历险记之中共病毒-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1407-福尔摩斯历险记之中共病毒-9.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1407-福尔摩斯历险记之中共病毒-10.jpg)
-
-（文章仅代表作者个人观点）
-
-审核/发稿：雪梨
+- 编辑：Victor Torres
+- 作者：葛大饼
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+**西班牙2021年3月5日电/西喜社—**
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/covid-19-5971347__340.jpg)
+据《国家利益》3月2日报道，世界卫生组织紧急项目主任迈克尔·瑞安(Michael Ryan)博士表示，认为持续一年的中共病毒大流行将在2022年突然结束的想法是“不成熟的”和“不现实的”。全世界的重点应该是将中共病毒感染和相关死亡人数保持在尽可能低的水平。
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+周一，他在世卫组织媒体见面会上讲话:“认为我们将在今年年底前消灭这一病毒的想法是非常不成熟的，我认为是不现实的。”
 
+他说:“如果我们够聪明，我们就能解决与这种流行病有关的住院治疗、死亡和悲剧……如果疫苗不仅对死亡人数和住院率的控制有效果，而且也能减少中共病毒的传播力和降低中共病毒的传播风险，那么我相信我们将加速控制这场大流行病。”
+
+然而，瑞安警告说，目前许多国家都存在这种自信满满的情绪，“他们都主观的认为，目前病毒在很大程度上得到了控制，”他说。
+
+与此同时，世卫组织总干事谭德赛表示，一些发达国家的年轻人和健康的成年人比发展中国家的高危医护人员更早接种疫苗，这是“令人遗憾的”。
+
+上周，加纳成为世界上第一个接收COVAX疫苗的国家，接受了一批60万剂牛津-阿斯利康中共病毒疫苗。
+
+加纳是通过COVAX免费获得疫苗的92个低收入和中等收入国家之一。COVAX是由世卫组织、名为Gavi的国际疫苗联盟和流行病防范创新联盟共同领导的一项全球大规模疫苗接种计划。
+
+另有90个国家和8个地区同意，如果它们选择通过COVAX接受疫苗，将支付费用。COVAX的目标是今年在全球提供近20亿剂中共病毒疫苗。
+
+看到这篇关于世卫组织的报道，真是好笑。中共病毒爆发一年多，全球都看到这个满嘴谎言的中共帮凶，甚至是同谋者是何等的无耻。疫苗是在中共病毒的基础上谋财害命！
+
+COVAX是世卫组织名下的一个国际平台，是中共病毒疫苗实施计划，目前全球已经有超过160个国家加入，踏着无数尸体，金钱被中共和它的走狗们攫取！!
+
+加纳成为世界上第一个接收COVAX提供的疫苗的国家，他们将得到牛津-阿斯利康冠状病毒疫苗，我的天，这是买敌敌畏喝吗！根据BBC 2020年9月份的一篇报道，制药公司阿斯利康和英国牛津大学共同研发的中共病毒疫苗的终期临床试验已经暂停，因为一名参与者出现不良反应。(https://www.bbc.com/zhongwen/trad/science-54084861)
+讽刺的是这篇新闻原文里对于这批疫苗的描述，用到了“potentially lifesaving ”—可能可以救命。
+
+在这种全球大灾难面前，谭德赛“书记”，竟然还搞事情，他的言论里把疫苗的分发不公平的怒火引向了西方的发达国家，这是个疯狂的世界啊，身在西方的我们不想打疫苗啊，谭书记那么惦记，都给你打好啦！
+
+新闻来源：[《国家利益》](https://nationalinterest.org/blog/coronavirus/who-%E2%80%98unrealistic%E2%80%99-think-coronavirus-pandemic-will-end-2021-179161)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
 0

@@ -1,33 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国拒绝以武力推翻独裁政权的企图
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/948606/)
+## 澳大利亚凯瑟克岛已被中共国蚕食
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/950790/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+撰稿：Shirley
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210305_Cover10.jpg)网络图片
+北昆士兰州国会议员克里斯滕森（George Christensen）抨击昆士兰州州长帕拉斯祖克（Annastacia Palaszczuk），因为她的政府将凯瑟克岛（Keswick Island）租给了一家中共国公司，让岛上居民的生活变得苦不堪言。
 
-编辑上传 水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/B-2.jpg)news.yahoo.com
-03月03日，美国将放弃在世界范围内强行推动民主的政策。美国国务卿安东尼·布林肯在介绍该国外交政策时这样说。
+凯瑟克岛位于昆士兰海岸外的圣灵岛地区（Whitsundays region）。中国布鲁姆公司（China Bloom）在2019年以2000万澳元的价格抢到了凯瑟克岛的一部分，租期99年。
 
-“我们不会用代价高昂的军事行动强加民主。此外，美国将放弃以武力推翻独裁政权的企图。”布林肯说。
+克里斯滕森先生说，2019年有一个澳大利亚财团有意接手这块土地，但昆州政府选择了中国公司。圣灵岛余下80%的岛屿，距离沿海城镇Mackay34公里，是国家公园。
 
-这位外交政策负责人认为，华盛顿过去试图采取这种行动，尽管意图良好，但并没有取得预期的结果。
+中共国布鲁姆公司已经关闭了凯瑟克岛通往海滩的通道，设置了围栏阻止人们进入国家公园，禁止人们在岛上进行短期住宿和租赁，并雇用保安监控着当地人的一举一动。
 
-国务卿补充道，“我们将采取不同的行动，我们将通过为其他国家树立自己的榜样，并通过奖励我们的合作伙伴以促进民主变革。”
+克里斯滕森说，他对岛上监控的保安人数之多感到震惊。严峻的形势促使一个名为“凯瑟克岛收回澳人权利”的脸书（Facebook）群组成立，目前已有近9000名成员。
 
-布林肯在向美国人发表讲话时，要求他们给乔·拜登总统的新政府一些时间来提出具体的外交政策解决方案。
+凯瑟克岛进步协会和大堡礁海洋公园管理局最近也举行了会议，讨论关于环境遭到严重破坏的报告。
 
-促进民主是美国外交政策理论的支柱之一。1953年的伊朗政变被认为是官方承认的第一个以促进民主价值为幌子推翻政权的例子之一。
+“他们实际上拥有这个岛，”克里斯滕森先生说，“在批准出租凯瑟克岛的土地给中共国公司方面，目前的问题是昆州政府自己造成的。”
 
-在近代史上，国务院认为格鲁吉亚和乌克兰以及塞尔维亚和黑山的变革是民主化的成功范例。
+（本文仅代表个人观点）
 
-2019年，时任俄罗斯总理德米特里·梅德韦杰夫（Dmitry Medvedev）在塞尔维亚议会发言时表示，在中东和非洲强行推行民主模式会导致恐怖主义蔓延、国家毁灭和广大领土上的混乱。
+审稿：光耀华夏
 
-2020年秋天，美国前总统唐纳德·川普承诺，华盛顿将以最新的武器从实力上建立其和平政策。
+参考来源：
 
-参考链接：
+1. [Skynews报道](https://www.skynews.com.au/details/_6237127147001)
+2. [news.com.au报道](https://www.news.com.au/finance/business/mp-george-christensen-slams-annastacia-palaszczuk-over-leasing-of-keswick-island-to-china-company/news-story/b195f538ef8a35f4dd55eff5ad0fd7f4)
+3. [dailymail.co.uk报道](https://www.dailymail.co.uk/news/article-9323523/Chinese-developers-took-Keswick-Island-allegedly-employed-security-monitor-locals.html)
 
-[https://www.rbc.ru/politics/03/03/2021/603fba3e9a7947d26f4ed0a1](https://www.rbc.ru/politics/03/03/2021/603fba3e9a7947d26f4ed0a1)
 
-0
+[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)
+
+[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)
+
+[欢迎加入澳喜农场](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
++3
