@@ -1,35 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 前美国国家安全顾问麦克马斯特：台湾临近最危险时刻
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/951867/)
+## 拉尔夫·巴里奇博士早在2019年12月就对莫德纳和‘福奇’的新冠疫苗进行了评测! &#8211; 怎么回事？
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/951753/)
 
-作者：加拿大多伦多枫叶农场  军迷Wilson
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image-48.png)图片来源：CW39 Houston
-据《国家利益》3月4日报道，2017至2018年间曾出任川普政府国家安全顾问的赫伯特·雷蒙德·麦克马斯特（Herbert Raymond McMaster），[在本周二参议院军事委员会作证时](https://www.armed-services.senate.gov/hearings/21-03-02-global-security-challenges-and-strategy)表示，习近平或将于2022年北京冬奥会及中共第20届中央委员会召开之后下令进攻台湾。
+翻译：康州盘古农场 – 暴力小蘑菇
+校对：康州盘古农场 – Mike Li
+编辑：康州盘古农场 – Antsee-GTV
 
-麦克马斯特称，中共显然认为奥运会的成功举办对其合法性至关重要，因此习近平不会在冬奥之前对台湾发动侵略，尤其是国际社会就中共在新疆犯下反人类罪、种族灭绝罪正在施压情况下；另外，为了继续第三个总书记任期，习近平认为占领台湾可以帮自己捞取政治资本和确立权威。
+据《门户专家》网站乔·霍夫特报道：
 
-该报道指出，请不要忘记这一段历史:为什么爆发朝鲜战争？因为美国没有把当时的南韩划入防卫范围，所以北韩得到了苏联、中共的支持，如果当时的南韩是美国明确的保护对象，北韩不会得到苏中的支持，那么美国及盟军的几万军人就不会在朝鲜丧生——今天的中共更难对付！
+**福奇博士和巴里克博士是什么时候发现武汉新冠肺炎疫情泄露的?他们是怎么知道的? 为什么在西方世界知道冠状病毒疫苗之前就开始了研究?**
 
-**评****:**
+2020年4月9日，《门户专家》报道了中共国的一次重大冠状病毒泄露[事件](https://www.thegatewaypundit.com/2020/04/huge-exclusive-chinese-doctor-shi-zhengli-ran-coronavirus-research-wuhan-us-project-shut-dhs-2014-risky-prior-leak-killed-researcher/)，并怀疑泄露的病毒来自武汉病毒研究所。同时能够确定中共国的石正丽博士和来自美国的医生共同参与了2014年的一项冠状病毒研究项目，该项目后来因被认定风险太大而被美国国土安全部停止。
 
-当前国际社会抵制北京冬奥会的呼声越来越强烈，2月10日之前就有包括联合国人权理事会在内的180个人权团体公开发表声明，要求各国领导抵制北京冬奥会，同时美国有7名国会议员提出议案，要求重新选定本届冬奥会举办国。但是美国总统拜登、英国首相约翰逊等相继表态不支持改变冬奥会举办地。
+在美国的研究项目被停止后，石正丽博士继续在中国武汉进行新冠病毒研究。
 
-距冬奥会举办还有约10个月，在此期间如果有更多的国家如加拿大、荷兰一样，认定中共在新疆犯下种族灭绝罪，中共就自然失去了举办本届冬奥会的合法主体资格。在CCP病毒已将世界逼入死地的情况下，各国政府必然会顺应民意，在病毒溯源问题上做出实际行动，从而加速对中共犯罪组织的认定。
+《门户专家》报道了来自中国的石正丽博士和来自北卡罗来纳州的拉尔夫·s·巴里克（Ralph S. Baric）博士，他们所在的团队在2015年版的《自然医学》（Nature Medicine）上发表了一篇[文章](https://www.nature.com/articles/nm.3985)。
 
-习近平在内外交困、举办冬奥会无望时，极有可能率先对台湾发动战争。目的除了麦克马斯特先生所分析的妄图煽动国内狭獈的民族主义建立权威，再就是将中共国带回文革模式，和文明世界隔绝对立，其最终目的是为了盗国贼集团永远不被清算，继续奴役墙内韭菜。
+在这篇发表于2015年的文章中，他们讨论了蝙蝠冠状病毒在人类群体中爆发传染的可能性。
 
-新闻来源：
+![nature]()![nature](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-06-at-01.49.45.png)
 
-Why China Could Invade Taiwan Soon
+而这份报告是在他们的研究项目被美国卫生与公众服务部(HHS)撤资后不久发表的。
 
-[https://nationalinterest.org/blog/buzz/why-china-could-invade-taiwan-soon-179281](https://nationalinterest.org/blog/buzz/why-china-could-invade-taiwan-soon-179281)
+2014年，美国卫生与公众服务部致信北卡罗来纳大学教堂山分校，宣布将取消对该项目的资助。
 
-责任编辑：加拿大温哥华圆成农场 比卡丘
+信件署名中巴里克博士赫然在列。
 
-校对：加拿大多伦多枫叶农场 文锦
+在美国停止这项研究后，中方继续推进该项目，在武汉的武汉病毒学中心继续进行研究和开发工作。从石正丽博士的论文和简历中可以明显看出，他们已在实验室成功分离出病毒，并积极进行跨物种传播实验。
 
-发布：纽约香草山农场 shangshang
+为揭开COVID – 19的真相做出了巨大贡献的劳伦斯·塞林博士（Dr. Lawrence Sellin）在近期的一份报告中声称，巴里克博士于2019年12月12日签署了一项协议，他将获得“由NIAID和Moderna公司共同开发和拥有的mRNA冠状病毒候选疫苗”:
+
+
+
+> On DECEMBER 12, 2019 an agreement was signed (pg 105) that Dr. Ralph Baric of the University of North Carolina would receive "mRNA corona virus vaccine candidates developed and jointly-owned by NIAID and Moderna"[@Rossana38510044](https://twitter.com/Rossana38510044?ref_src=twsrc%5Etfw) [@ydeigin](https://twitter.com/ydeigin?ref_src=twsrc%5Etfw) [@BillyBostickson](https://twitter.com/BillyBostickson?ref_src=twsrc%5Etfw)[https://t.co/taAbB9FIvp](https://t.co/taAbB9FIvp)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [February 27, 2021](https://twitter.com/LawrenceSellin/status/1365518656998936579?ref_src=twsrc%5Etfw)
+
+
+*2019年12月12日，一份签署协议（第105页）显示：北卡罗来纳大学的Ralph Baric博士将获得由NIAID和Moderna共同开发和拥有的mRNA冠状病毒候选疫苗
+– 劳伦斯·塞林博士，2021年2月27日*
+现在世界各地的人们都接种了Moderna公司的mRNA疫苗。辉瑞公司也有一种mRNA疫苗。正如我们在2020年4月发表的文章中提到的那样，巴里克长期从事冠状病毒研究，与蝙蝠女（石正丽博士）和武汉病毒学研究所有着密切的联系。2019年12月12日这个时间处于本次新冠肺炎疫情早期，那时西方尚未形成明确的报告。巴里克顺理成章的成为检验mRNA疫苗有效性的合适人选。
+
+这些事实提示我们，巴里克博士和福奇博士可能早已获知在中国真实发生的事情，福奇和Moderna公司可能在西方宣布COVID-19疫情出现之前就已经在开发冠状病毒疫苗。后来Moderna公司很快就为疫苗的人体试验做好了准备。
+
+巴里克的名字并没有出现在保密协议上本该署名的任何其它位置，结合后续事态的进展，整件事情很难被认为是一个巧合。
+
+我们不能说这算是证据确凿，但这件不广为人知的事情，肯定足以使人产生进一步的疑问。
+
+**福奇博士和巴里克博士是否知道中国的新冠肺炎疫情扩散的消息? 他们是什么时候知道的? 如此多的问题……**
+
+原文链接：[https://www.thegatewaypundit.com/2021/02/huge-exclusive-dr-baric-reviewing-modernas-dr-faucis-coronavirus-vaccine-december-2019-know/](https://www.thegatewaypundit.com/2021/02/huge-exclusive-dr-baric-reviewing-modernas-dr-faucis-coronavirus-vaccine-december-2019-know/)
 
 0

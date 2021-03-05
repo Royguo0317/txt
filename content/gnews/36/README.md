@@ -1,29 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世界维吾尔代表要求将2022冬奥会迁离北京
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/951888/)
+## 法内阁部长警告欧盟谨慎对待中俄疫苗
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/952181/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑上传   水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/O.png)islamituindah.my
-路透社3月5日报道，最大的维吾尔流亡群体要求国际奥委会道德委员会主席亲自审查其对于不在北京举办2022年冬奥会的呼吁，因为确凿证据表明中共犯下了种族灭绝和反人类罪行。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/c-5.jpg)ca.finance.yahoo.com
+路透社3月5日报道，法国内阁部长敦促欧盟国家不要使用中共或俄罗斯的中共病毒疫苗，除非这些疫苗得到欧盟药品监管机构的批准，并警告欧盟谨慎对待，否则会给欧盟的团结和公共卫生带来风险。
 
-世界维吾尔代表大会(WUC)表示，国际奥委会去年8月对此事的公开投诉没有给予公平的审理。世界维吾尔代表大会指责国际奥委会的行为“违反了奥林匹克宪章，在有确凿证据表明发生了种族灭绝和人道主义犯罪行为后，没有重新考虑在北京举办2022年奥运会”。
+欧盟的疫苗接种运动落后于英国等其他国家，现中欧的一些成员国已经或正在考虑购买俄罗斯或中共的疫苗。
 
-国际奥委会没有立即对此发表评论。
+当被问及每个欧盟成员国对待疫苗的选择是否只是在做“他们自己想做的事”时，欧洲事务部长克莱门特·波恩（Clement Beaune）回答，“如果他们选择中共或俄罗斯的疫苗，我认为情况会非常严重。”波恩指出，“这将对我们的团结构成问题带来健康风险，因为俄罗斯疫苗尚未在欧洲获得批准。” 欧盟试图通过欧洲执行委员会集中处理疫苗采购问题。
 
-国际奥委会在去年8月发表声明称其“必须在所有全球政治问题上保持中立”。国际奥委会表示，它已得到中共政府当局的保证，“《奥林匹克宪章》的原则将在奥运会的背景下得到尊重”。这发生在美前国务卿蓬佩奥将中共对穆斯林维吾尔族的暴行定义为种族灭绝和反人类罪行之前。
+波兰卫生部长亚当·涅兹尔斯基(Adam Niedzielski)周三表示，由于缺乏数据，他目前不建议使用中共国药集团(Sinopharm)的中共病毒疫苗。
 
-美国国务卿布林肯(Antony Blinken)表示，他认同前任国务卿蓬佩奥(Mike Pompeo)对中共针对穆斯林的种族灭绝的认定。目前已有多个国家发出抵制2022年北京奥运会的呼吁，称这“违反奥林匹克精神”。 美国国会议员也因中共种族灭绝和侵犯人权问题向拜登政府施压，要求其考虑退出冬奥会。
+尽管国药控股的疫苗尚未获得欧盟监管部门的批准，但匈牙利上周已成为第一个开始使用该疫苗、以加快其疫苗接种计划的成员国，波兰也在考虑是否购买。
 
-美国众议院议员迈克尔·华尔兹（Michael Waltz）强调，“世界不能站在一边，允许中共继续这些令人发指的侵犯人权的行为”，“这就是为什么我们在国会提出了一项决议，敦促国际奥委会将2022年冬奥会搬迁北京。如果冬奥会不改变，我们决议呼吁美国领导国际社会抵制2022年冬奥会。”
-
-面对世界各国的呼吁和世界维吾尔代表及人权人士的抗议，我们将进一步观望国际奥委会对2022年北京冬奥会的反应。
+俄罗斯的卫星五号(Sputnik V)已经在匈牙利、斯洛伐克和捷克共和国获得批准或正在接受评估。欧洲药品监管机构(EMA)周四表示，已经开始对俄罗斯的卫星5号（Sputnik V）疫苗进行审查。
 
 参考链接：
 
-[https://www.reuters.com/article/us-china-olympics-uighurs-idUSKBN2AX1C9](https://www.reuters.com/article/us-china-olympics-uighurs-idUSKBN2AX1C9)
+[https://www.reuters.com/article/us-health-coronavirus-eu-france-idUSKBN2AX0NF](https://www.reuters.com/article/us-health-coronavirus-eu-france-idUSKBN2AX0NF)
 
-+1
+[https://cn.reuters.com/article/us-health-coronavirus-poland-china/citing-lack-of-data-polish-health-minister-does-not-recommend-chinese-shot-idUSKBN2AV1IX](https://cn.reuters.com/article/us-health-coronavirus-poland-china/citing-lack-of-data-polish-health-minister-does-not-recommend-chinese-shot-idUSKBN2AV1IX)
+
+0

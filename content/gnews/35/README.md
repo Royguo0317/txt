@@ -1,15 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月5日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/951940/)
+## 西班牙约50%的中共病毒死者来自养老院
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/952202/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+- 编辑：Victor Torres
+- 作者：gokuabuela
+- 制图：七白石
+- 发稿：神奇四侠
 
-3月5日：时间。1919年一战战败后，德国签署凡尔赛条约，签署后是一战结束德国战败，最核心是德国不能超过军队10万，约束德国军队发展、并且永远不能跨过莱茵河。捷克波兰都属于强国，欧洲各国都参与了这一切。短短十年后，一支崛起，就如同今天的习王，当时的将军波罗姆，希特勒的到来就是人类的黑暗时刻。他的崛起以恢复民主的民意、操纵德国爱国主义，有了人类有史以来最大灾难。希特勒尝试突破一切协议，美、英、法都自私，还有一个处于各种政治原因、内斗，给了希特勒空间和可能。1935年3月5日是人类最灰暗的日子，是犹太人被屠杀最根本原因，希特勒下令突破莱茵河，也就是撕毁了1919年的凡尔赛协议。当时，这是世界上最惊人的事件……
-![]()![](https://gnews.org/wp-content/uploads/2021/03/eff2e7b1a20b0e716e6bd28f9151a4fd.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/171c0206f4b1d1068e840a486b718171.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/842460ea4a67b9b53931bb56205565ff.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/2d663e522433ff50634b86be0c2ceca8.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/99fd0f2d4fb61893753611af9abc3534.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/063a89d9a010a655d05ca78ee4f9fa71.jpg)
-[【2021年3月5日】文贵先生盖特原文](https://gtv.org/getter/604265909534a74bcaefde38)
 
-**喜联盟Gnews编辑部**
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
+**西班牙2021年3月5日电/西喜社—**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/virus-5757875__340_mh1614962264259.jpg)
+据新闻报3月2日报道，根据行政部门的官方核算，自疫情开始以来，西班牙养老院的老人死于中共病毒的数量为29782人，其中19868人为确诊后死亡，还有9914人因与疾病症状相符而被判断死于中共病毒。
+
+大部分死亡病例发生在3月14日至6月22日的第一波疫情中，当时有19835人在养老院中死亡，其中包括9976人在确诊感染后死亡。在2020年其余的时间里还有6305位养老院的老人死亡，全年共计26140人。
+
+而2021年，则有3286位养老院中的老人因感染中共病毒而死亡
+
+新闻来源：**[新闻报](https://www.elperiodico.com/es/sociedad/20210302/muertos-covid-residencias-espana-pandemia-11554430)**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
 0
