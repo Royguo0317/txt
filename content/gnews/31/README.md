@@ -1,39 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】武汉病毒研究所15个病毒数据库对外关闭
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/948537/)
+## 改变的mRNA可使肿瘤抑制因子蛋白失活 引发细胞癌变
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/948760/)
 
-作者：纽约香草山佛教部 369文驹
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
-【英媒[太阳报](https://www.thesun.co.uk/news/14147270/wuhan-lab-database-hidden-china-covid-smoking-gun/)报道】来自于一个全球科学家组成的，调查中共冠状病毒的团队DRASTIC发现，曾经能够被外界在线访问的中共武汉病毒研究所数据库，自从病毒被泄露以来就被中共政府给系统性的下线和隐藏起来。目前至少有15个病毒数据库被下线而无法访问，其中一个数据文件（在删除前已受密码保护）可能包含有关中共冠状病毒的信息。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-04-141517.jpg)
-DRASTIC发布了25页有关中共武汉病毒数据库的调查报告，其成员Gilles Demaneuf认为这是中共政府蓄意掩盖病毒真相的明确证据。
+***编译******加拿大多伦多枫叶农场******文醫***
+![]()![](https://gnews.org/wp-content/uploads/2021/03/photo_2021-02-20_17-53-12.jpg)
+大多数人认为癌症是由于DNA异常突变或序列变化使得蛋白质功能紊乱，引发细胞发生不受控制分裂增殖的疾病。但其实任何生物将自身DNA基因密码翻译为发挥各种生物功能的蛋白质过程中，绝不能忽视的一个极其重要的中间纽带环节就是由信使RNA（mRNA）所发挥的精准转录功能。因为生命的基因蓝图DNA存在于细胞核中，而蛋白质合成发生在细胞核周围的细胞质，因此细胞必须首先复制基因DNA的RNA副本，这种RNA副本作为基因信使（故被称为信使RNA、mRNA）运出细胞核。细胞读取并翻译成蛋白质就是这种mRNA拷贝。
 
-据悉，该数据的管理者正是石正丽，被称之为中共国的“蝙蝠女”，是武汉病毒研究所的主要冠状病毒研究人员。该问题的主要数据库名为“batvirus.whiov.ac.cn”。该数据库拥有22,000个样本和病毒序列，其中包括15,000个蝙蝠样本，涵盖了1,400种蝙蝠病毒。
+斯隆·凯特琳纪念癌症研究中心（英文名称：Memorial Sloan Kettering Cancer Center，该中心成立于1884年，位于美国纽约曼哈顿，是全球领先肿瘤生物医学研究机构之一）的一个研究小组在2018年研究发现人体细胞内信使核糖核酸（mRNA）分子的异常改变可以灭活细胞内肿瘤抑制因子蛋白，**这将意味着mRNA的异常变化可以打开细胞恶变的开关，刺激细胞发生癌变**。这项研究彻底颠覆了人们以往对肿瘤发生源于DNA基因突变的认知——即**细胞癌变的驱动者不在DNA，而是隐藏在mRNA中，mRNA的改变本身会引发细胞癌变，这种癌变是现有基因测试技术无法分析发现的。**
 
-数据库“batvirus.whiov.ac.cn”于2019年9月首次下线，此后对于武汉病毒所之外的任何人都无法访问此网站。此后该网站于12月30日进行了更新，也就是中共声称已识别出该新病毒的同一天。RASTIC的报告称，该数据库包含至少100个未公开的蝙蝠冠状病毒序列，也包含了武汉病毒研究所和世组织Peter Daszak所属的“生态健康联盟”（EcoHealth Alliance）所共同合作搜集的样本。该联盟由美国提供了360万美元的资助。
+该研究所其他临床研究团队在白血病（特别是慢性淋巴细胞性白血病，急性T淋巴细胞性白血病）、乳腺癌患者细胞内证实了mRNA水平上抑癌因子失活，他们发现**癌细胞中的许多mRNA都会产生这些截短无活性肿瘤抑制蛋白。 这种变化不仅发生在已知的肿瘤抑制基因中，而且还发生在以前未被认识的基因中**。
 
-Demaneuf表示，对于中共武汉病毒研究所声称是出于安全原因必须删除对数据库的访问权限，并借口此数据库已被黑客作为攻击目标的说法，简直太过荒谬。以中共国拥有的技术，完全可以保证安全地访问该数据库。中共政府在竭尽所能掩盖灾难发生的真相。
+**这一具有划时代意义的研究成果本应广泛刊登于主流媒体或美国疾病控制和预防中心（CDC）等政府相关官网上，遗憾的是它仅存在于论文中而鲜为人知，因为这项成果可能将所有关于中共病毒疫苗安全性假设彻底翻转，引起公众对疫苗安全性的广泛担忧，妨碍CDC和疫苗生产商正在向所有人推介的中共病毒疫苗**。因此互联网科技寡头，主流媒体，跨国大药商极其勾结的政府和科技界自私贪婪的败类所组成的疫苗联合体是不会主动告知公众这些影响他们利益的研究成果的。
 
-链接：
+**不论是中共病毒的载体疫苗还是mRNA疫苗，其本质都是将病毒的基因RNA像特洛伊木马一样注入人体细胞内，都可能导致细胞内正常的mRNA发生改变**。而这项研究结果表明改变的mRNA分子有可能打开导致细胞恶变的开关。使用中共病毒疫苗后是否能看到癌症病例激增的趋势，也许只有时间会证明一切。但是现在，这项科学成果正在揭示这种可能性。因此笔者呼吁政府有必要成立独立第三方研究机构仔细评估中共病毒疫苗长期影响并给予密切关注。
 
-[https://www.thesun.co.uk/news/14147270/wuhan-lab-database-hidden-china-covid-smoking-gun/](https://www.thesun.co.uk/news/14147270/wuhan-lab-database-hidden-china-covid-smoking-gun/)
+每年，美国约有两万人患上“ CLL”慢性淋巴细胞白血病，而这种疾病只有一种疗法——由跨国大药商财阀提供的“干细胞骨髓移植”。现在随着中共病毒疫苗大规模推进，有多少接种疫苗的人可能悄无声息地改变 了自己的mRNA，因此导致若干年后爆发性出现各类癌症、白血病。
 
-编辑/校对/发稿：宁静致远
+您接种疫苗后是否出现包括慢性疲劳、淋巴结肿大和盗汗等症状？这些症状是否标注在疫苗说明插页中呢？每一位热爱生命，不愿被中共病毒疫苗害死的人都是亲科学而不是反科学的，因为科学表明mRNA技术非常危险，疫苗导致的mRNA变化也许会迅速累加并引起可怕的健康后果！
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+***新闻来源：***
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+[MEDICAL SHOCKER: Scientists at Sloan Kettering discover mRNA inactivates tumor-suppressing proteins, meaning it can promote cancer](https://www.naturalnews.com/2021-03-02-scientists-discover-mrna-inactivates-tumor-suppressing-proteins.html#)
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+[In a Twist, Scientists Find Cancer Drivers Hiding in RNA, Not DNA](https://www.mskcc.org/news/scientists-find-cancer-drivers-hiding-rna-not-dna)
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+* * *
 
+*校对、发稿 文锦*
 
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
-
-
-
-0
++1

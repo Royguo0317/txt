@@ -1,71 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【欧美热议】3月4日 微软发布警告称：中共的黑客入侵了电子邮件帐户 彭培奥说：我随时准备战斗，我深爱着美国”
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/948204/)
+## 【热点播报】以色列要求旅行者佩戴“自由手镯”追踪装置
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/947990/)
 
-收集/整理：【喜马拉雅-粤语组】小叮咛 / sherry
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-10.jpg)
-**众议院通过以乔治·弗洛伊德（George Floyd）命名的警察改革法案**
+作者：纽约香草山写作组 四季
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+【[HUMANSAREFREE](http://humansarefree.com/2021/03/israel-implements-freedom-bracelet-tracking-device-for-travelers-for-a-virus-with-a-99-95-survival-rate-for-people-under-70.html)网站】3月3日报道，以色列已经推出了所谓的 “自由手镯”，这是一种追踪装置，将作为对任何从国外进入以色列的旅行者进行为期两周隔离的替代方法。
 
-该法案现在提交给参议院，该参议院将至少需要获得共和党10票。它将在联邦一级禁止束颈，并检修合格的豁免权。
+该设备看起来像一块智能手表，它是由一家名为SuperCom的公司生产，该公司曾与几个国家的政府合作开发针对囚犯的跟踪和监控系统。
 
-众议院在周三通过了一项警察改革法案，该法案将禁止使用绞刑架，并全面改革对军官的合格豁免权保护措施。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-04-121336.jpg)
 
-HR 1280法案中的乔治·弗洛伊德大法官通过了220-212条规定，尽管共和党代表说他错误地投票赞成，并更改了正式记录以反映他的反对意见。
+*图片来源：HUMANSAREFREE*
 
-该法案以黑人弗洛伊德（Floyd）的名字命名，他于5月25日在明尼阿波利斯的一名白人警官跪了几分钟后去世。军官Derek Chauvin被解雇，他面临二级谋杀和过失杀人罪的指控。他的审判和陪审团选拔定于星期一开始。
+SuperCom公司的首席执行官奥丹·特拉贝尔西（Ordan Trabelsi）表示，旅行者可以自由的选择，是被关在军方管理的隔离酒店里两周，还是带上追踪手镯。之所以称为它为“自由手镯”，是因为不是把任何人关起来，而是给他们回家的机会，但如果他们试图离开自己的家，就会被政府追踪。
 
-该法案除其他事项外，将禁止在联邦一级的毒品案件中使用颈部约束装置和“禁止敲门”令。它还将改革合格的豁免权，这是一种很难起诉官员的学说。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2-13.jpg)
-**“我随时准备战斗，我深爱着美国”彭培奥在福克斯接受采访时说到**
+与此同时，以色列法院做出裁决，要求以色列的国内间谍机构Shin Bet必须退出这个中共病毒接触跟踪监视系统。 法院认为这是对以色列民主的威胁，它只能在紧急情况下使用。
 
-主持人问蓬佩奥哪一个敌国对美国威胁最大，蓬佩奥斩钉截铁地回答：中共！ （不是中国）
+面对肆虐全球一年多的中共病毒，很多国家都在借以疫情的名义，采用各种不同的方式限制公民的自由。 各国普遍采用的长时间封城措施，极大地损害了本国的经济，并造成了很多次生灾难。 解决中共病毒的唯一方法就是世界各国对中共故意制造和传播CCP病毒追责，只有这样才能终结CCP病毒在全球的蔓延。
 
-蓬佩奥说，中共对美国的基本生活方式构成了最持续的威胁，他认为美国人民一定会要求美国政府以最严肃的方式对待这一威胁。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-12.jpg)
-**国会大厦警察警告民兵组织可能密谋破坏国会大厦**
+原文链接：
 
-美国国会大厦警察在获得情报后，建议应对民兵组织在3月4日（星期四）违反美国国会大厦的“可能阴谋”，从而提高安全性。
+[http://humansarefree.com/2021/03/israel-implements-freedom-bracelet-tracking-device-for-travelers-for-a-virus-with-a-99-95-survival-rate-for-people-under-70.html](http://humansarefree.com/2021/03/israel-implements-freedom-bracelet-tracking-device-for-travelers-for-a-virus-with-a-99-95-survival-rate-for-people-under-70.html)
 
-他们在星期三的一份声明中说：“美国国会警察局已经意识到并准备应对对国会议员或国会大厦的任何潜在威胁。” “我们获得的情报显示，一个确定的民兵组织可能在3月4日星期四违反国会大厦的阴谋。”
+编辑/校对/发稿：宁静致远
 
-国会警察说，他们“已经进行了重大的安全升级，包括建立实体结构和增加人员，以确保对国会，公众和我们的警务人员的保护。”
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4-12.jpg)
-**民主党领导的众议院通过HR1，旨在使美国大选联邦化；**
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-美国众议院星期三通过了HR 1，也就是所谓的“为人民法案”，共和党人警告说，这将损害选举的完整性，并最终导致美国大选的联邦化。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-民主党领导的众议院通过了 以220至210席位的政党路线通过的立法。该法案的摘要指出，该法案“扩大了选民登记（例如，自动和当日登记）和投票权限（例如，通过邮件投票和提前投票）”，并限制从选民名册中删除选民。
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-共和党人警告说，民主党的立法将大大削弱各州在地方一级控制和进行选举的权力。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/5-9.jpg)
-**微软发布警告，称中国的黑客入侵了电子邮件帐户**
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-微软已向其软件用户发出警告，称中国政府资助的黑客组织HAFNIUM已获得了电子邮件帐户的访问权限，并安装了其他恶意软件，这最终成为了野心勃勃的习近平政权在全球范围内进行间谍活动的一部分。
 
-微软透露，目标对象包括传染病研究人员，高等教育机构，国防承包商，政策智囊团，律师事务所和非政府组织。
 
-上周在美国发表的一项新研究得出的结论是，去年10月在孟买发生的巨大电源故障破坏了印度商业首都的正常生活，而这一发展恰逢此举，这是由中国政府赞助的植入恶意软件的黑客造成的。在电源控制系统中。
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
 
-孟买大规模停电使当地火车停运，股票市场不得不关闭，而在冠状病毒激增的情况下，医院被迫改用紧急发电机，以保持呼吸机的运转。
 
-据《记录未来》报道，至少在去年年中以来，入侵印度关键基础设施的事件已经发生，这是由于两国在拉达克边界上的军事集结。
-
-根据《纽约时报》的报道，该研究表明，随着在拉达克的军事对抗不断，中国的恶意软件正流入控制系统，该系统管理着整个印度的电力供应，高压输电变电站和煤炭。火力发电厂。
-
-资料来源：
-
-（一）NBC NEWS：[House passes police reform act named for George Floyd](https://www.nbcnews.com/politics/congress/house-passes-police-reform-act-named-george-floyd-n1259548)
-
-（二）FOX NEWS：[主持人问蓬佩奥哪一个敌国对美国威胁最大，蓬佩奥斩钉截铁地回答：中共！ （不是中国）](https://twitter.com/xi_GLB/status/1367417220662370305?s=20)
-
-（三）FOX NEWS：[Capitol Police increase security amid ‘possible’ militia group plot to breach Capitol](https://www.foxnews.com/politics/capitol-police-increase-security-possible-plot-capitol-militia-group)
-
-（四）BREITBART：[Democrat-Led House Passes H.R.1, Aimed to Federalize U.S. Elections](https://www.breitbart.com/politics/2021/03/03/democrat-led-house-passes-h-r-1-aimed-to-federalize-u-s-elections/)
-
-（五）INDIA NARRATIVE：[Microsoft issues warning as China’s hackers break into email accounts](https://www.indianarrative.com/world-news/microsoft-issues-warning-as-china-s-hackers-break-into-email-accounts-70938.html)
-
-审核：文卡西欧 / 上传：文粤
 
 0

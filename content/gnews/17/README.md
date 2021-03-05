@@ -1,19 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国务院谴责缅甸安全部队对缅甸人民使用暴力
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/948908/)
+## 【每日快讯】4/03/2021:《环球时报》发文警告拜登要吸取川普的教训，意图恐吓拜登政府
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/949007/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+**制作:Cantonese工作室**
+**播报：【安妮】 资料整理：【安妮】【Ruby】 【陆柒陆捌 】海报制作:【小豆芽】【米线】 视频制作:【文德】上传:【星星】**
+摘要:
 
-
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2021年3月5日电/西喜社——**据美国国务院官方推特账号显示，3月4日，美国国务院发言人内德·普赖斯在每日新闻简报会上发言:“我们对昨天3月3日安全部队杀害24人的报道深感悲痛。我们强烈谴责缅甸安全部队对缅甸人民使用暴力。”
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b7aef8c5-0885-40d3-a3ed-0d5a6cf43121.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
-
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-12.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2-14.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/0-2.jpg)
 0

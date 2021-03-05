@@ -1,41 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福尔摩斯历险记之中共病毒
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/949231/)
+## 【G时评】缅甸华裔少女英勇赴死
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/949344/)
 
-作者：香草山设计部 宇伦
+#### 作者/编辑：Giselle
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image1-3.jpg)
+图片来源：推特
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1407-福尔摩斯历险记之中共病毒-1.jpg)
+[【G时评】链接](https://gtv.org/user/5e9eb8f10dbf207957e15544)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1407-福尔摩斯历险记之中共病毒-2.jpg)
+3月3日，被缅甸军警开枪射杀、年仅19岁的华裔少女邓家希，身份已经得到确认，她的父母均来自中国的浙江。据中央社报道，当天缅甸军警最起码用冲锋枪扫射杀害了至少38名示威抗议者。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1407-福尔摩斯历险记之中共病毒-3.jpg)
+据缅甸脸书社群中传出的消息，曼德勒那名19岁的死者，是一位名叫[邓家希](https://www.ntdtv.com/gb/%E9%82%93%E5%AE%B6%E5%B8%8C.htm)的华裔少女。在缅甸军方发动军事政变之后，邓家希选择走上街头，为争取自由民主而奋斗。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image0-2-1.jpg)
+图片来源：推特
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1407-福尔摩斯历险记之中共病毒-4.jpg)
+罹难前，邓家希曾在脸书（Facebook）发帖称：“我是A型血，若我不幸被枪杀，请把我的眼角膜和其它器官捐献出去。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1407-福尔摩斯历险记之中共病毒-5.jpg)
+她在抗议现场时佩戴的胸牌上写道：如果我出事了，我无法救治，那就不要抢救了，请把我所有的器官捐给缅甸有需要的人。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1407-福尔摩斯历险记之中共病毒-6.jpg)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1407-福尔摩斯历险记之中共病毒-7.jpg)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1407-福尔摩斯历险记之中共病毒-8.jpg)
+有网友在推特上转发了邓家希的一组照片，其中一张是她生前参与街头抗争的最后身影，另一张则是她中弹后躺在担架上的遗容。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1407-福尔摩斯历险记之中共病毒-9.jpg)
+众网友纷纷在网络社交平台上邓家希的照片下点蜡烛哭祭，对她为了国家所做的一切表示感谢。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1407-福尔摩斯历险记之中共病毒-10.jpg)
+有网友留言说，“安心的去吧，我们会继续奋斗。”
 
-（文章仅代表作者个人观点）
+有网友发帖称，“若有来世，希望这朵美丽的花能开在平静的土壤上。”
 
-审核/发稿：雪梨
+还有网友呼吁联合国对残暴的军政府采取制裁行动，留言质问“缅甸人民的命不是命吗？”
 
+推特用户KOKANG OF MYANMAR周三转发了多张照片，谴责实皆省军警当天枪杀了6人，还把示威民众的遗体像拖猪狗一样拖走，对死者没有起码的人道主义尊重。
 
+缅甸华裔少女邓家希为了捍卫民主自由，英勇赴死的消息，感动了无数海外华人。缅甸民众的英勇抗议，对民主自由的誓死捍卫，充分验证了，在一个有宗教信仰的国度中，民众的信仰之力。
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+少女邓家希被害案，也再一次证明，中国人人种是没有问题的！有问题的是邪党中共！为了维护独裁根基，中共摧毁了宗教信仰、道德伦理、人性中的一切美好。在中共的邪恶统治下，诞生的只有懦弱无知、偏执脑残。只有推翻中共，我们才能获得产生正义良知、勇敢无畏的土壤，获得民主、自由、法治，获得信仰之力！
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+愿邓家希安息！
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+我们会为了你继续战斗，与CCP不死不休！
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+（文章内容仅代表作者个人观点）
+
+相关链接：
+
+[【1】](https://twitter.com/Hammond12341294/status/1367038489661874178?s=20)
+
+[【2】](https://twitter.com/hammond12341294/status/1367106595469946882?s=21)
+
+[【3】](https://www.ntdtv.com/gb/2021/03/03/a103066263.html)
 
 0

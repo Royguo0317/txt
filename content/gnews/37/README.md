@@ -1,25 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 普京任命联邦安全局第一副局长
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/948549/)
+## 【热点播报】武汉病毒研究所15个病毒数据库对外关闭
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/948537/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+作者：纽约香草山佛教部 369文驹
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-2.jpg)
+【英媒[太阳报](https://www.thesun.co.uk/news/14147270/wuhan-lab-database-hidden-china-covid-smoking-gun/)报道】来自于一个全球科学家组成的，调查中共冠状病毒的团队DRASTIC发现，曾经能够被外界在线访问的中共武汉病毒研究所数据库，自从病毒被泄露以来就被中共政府给系统性的下线和隐藏起来。目前至少有15个病毒数据库被下线而无法访问，其中一个数据文件（在删除前已受密码保护）可能包含有关中共冠状病毒的信息。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-04-141517.jpg)
+DRASTIC发布了25页有关中共武汉病毒数据库的调查报告，其成员Gilles Demaneuf认为这是中共政府蓄意掩盖病毒真相的明确证据。
 
-编辑上传 水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/F-1.jpg)俄联邦安全局外景 图来自istockphoto.com
-03月04日，联邦安全局（FSB）已经任命了第一位副局长谢尔盖·科罗廖夫（Sergey Korolev）上校。两位接近该机构部门的消息人士告诉RBC。
+据悉，该数据的管理者正是石正丽，被称之为中共国的“蝙蝠女”，是武汉病毒研究所的主要冠状病毒研究人员。该问题的主要数据库名为“batvirus.whiov.ac.cn”。该数据库拥有22,000个样本和病毒序列，其中包括15,000个蝙蝠样本，涵盖了1,400种蝙蝠病毒。
 
-据RBC的一位谈话人说，弗拉基米尔·普京（Vladimir Putin）的任命令是在2月24日签署的，当时总统参加了在中央办公室举行的联邦安全局高层会议。在新的任命之前，科罗廖夫领导该部门的主要部门之一经济安全处。消息来源还指出，该处的第一副处长谢尔盖·阿尔帕托夫担任联邦安全局经济安全处（SEB）的临时负责人。此项任命据称对普京而言非常重要。
+数据库“batvirus.whiov.ac.cn”于2019年9月首次下线，此后对于武汉病毒所之外的任何人都无法访问此网站。此后该网站于12月30日进行了更新，也就是中共声称已识别出该新病毒的同一天。RASTIC的报告称，该数据库包含至少100个未公开的蝙蝠冠状病毒序列，也包含了武汉病毒研究所和世组织Peter Daszak所属的“生态健康联盟”（EcoHealth Alliance）所共同合作搜集的样本。该联盟由美国提供了360万美元的资助。
 
-RBC向联邦安全局公共关系中心发出了询问。在加入特勤局中央办公室之前，科罗廖夫是联邦安全局圣彼得堡和列宁格勒地区经济安全处的雇员。2007年至2011年，他是国防部长阿纳托利·谢尔久科夫（Anatoly Serdyukov）的顾问。此后，他被任命为联邦安全局内部安全局（CSS）局长。
+Demaneuf表示，对于中共武汉病毒研究所声称是出于安全原因必须删除对数据库的访问权限，并借口此数据库已被黑客作为攻击目标的说法，简直太过荒谬。以中共国拥有的技术，完全可以保证安全地访问该数据库。中共政府在竭尽所能掩盖灾难发生的真相。
 
-正是在科罗廖夫的领导下，第六军团成为联邦安全局内最重要的单位。该处雇员为圣彼得堡商人德米特里·米哈尔琴科（Dmitry Mikhalchenko）、基洛夫州州长尼基塔·别列克（Nikita Belykh）、萨哈林州州长亚历山大·霍罗沙文（Alexander Khoroshavin）和科米州州长维亚切斯拉夫·盖泽尔（Vyacheslav Gaizer）的案件提供了业务支持。“六名 ”员工还伴随着GUEBiPK和丹尼斯·苏格罗波夫（Denis Sugrobov）将军的案件。2016年，谢尔盖·科罗廖夫成为联邦安全局经济安全处（FSB SEB）的负责人。
+链接：
 
-从2003年到2020年10月，谢尔盖·斯米尔诺夫（Sergey Smirnov）是第一副局长。普京总统因资历问题解除了他的职务。陆军将军谢尔盖·斯米尔诺夫协调联邦安全局内主要单位的工作：军事反间谍部、经济安全处和保护宪法秩序部门。
+[https://www.thesun.co.uk/news/14147270/wuhan-lab-database-hidden-china-covid-smoking-gun/](https://www.thesun.co.uk/news/14147270/wuhan-lab-database-hidden-china-covid-smoking-gun/)
 
-参考链接：
+编辑/校对/发稿：宁静致远
 
-[https://www.rbc.ru/politics/04/03/2021/603fff959a7947e7196b264c](https://www.rbc.ru/politics/04/03/2021/603fff959a7947e7196b264c)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+
+
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-107.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-107.jpg)
+
+
 
 0
