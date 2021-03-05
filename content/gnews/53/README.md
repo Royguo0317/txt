@@ -1,102 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/03/05 美国政要等每日推特重要信息汇总
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/950347/)
+## 中共正在为即将面临的经济大崩溃做准备
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/950681/)
 
-**喜联盟****GNEWS****出品**
+撰文作者：铜豌豆
 
-经授权转载自：
+**简讯 1**
 
-- 川普等政要直譯推：twitter：https://twitter.com/zhiyitw33
-- 川普等政要直譯推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
-- 川普等政要直译盖文GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
+据中共国人民网济南3月4日报道，山东省政府新闻办公室发布消息，将推进人口登记便利化、人口迁移自由化、和人口管理精准化。
+
+这些政策表面上将全面放开城镇落户限制，实际上是为了应对即将出现的、因中共经济崩塌而导致的、无业可就、无工可做的情况。失业潮会引发严重的返乡潮，涉及的人群主要包括：高校毕业学生群体、退伍军人群体、以及已多年进城落户的原农村户籍的打工者群体。中共将利用大数据技术、采取严格的网格化管理，对这些人口进行新疆集中营式监控。中共此举的的目，是为了把可能出现的、大规模的、与经济崩溃相关的失业抗议，在兴起之时强力扼杀在摇篮中。
+
+**简讯 2**
+
+据中共国《中国青年报》3月4日报道，扬州大学校长建议建立高校毕业生就业体检档案共享机制。这位校长指出：建立该机制是为了纠正现存的、因求职于不同单位和岗位而频繁发生的、重复体检的现象。但是，这一建议恰恰从一个侧面折射出了一个重大的即将发生的困境：2021年中共国高校应届毕业生一毕业就将面临失业。
+
+在中共国，每个用人单位在新人入职之前，人力资源部门都会要求入职的新人提交体检报告，以完成正常的入职手续。显然，这位校长意识到了2021年中共国的高校应届毕业生会多次面临这样的体检。换句话说，这些大学刚毕业的年轻人将会常常面临新人入职的境地。这意味着：大量公司将无法维持正常的运营，或裁员、或倒闭，经济已经站在了大崩溃的边缘，而年轻人也将面临常常失业的窘境。中共党内清楚的知道，这一切即将发生。
+
+**简讯 3**
+
+据中共国《经济日报》报道，四川省广元市苍溪县岫云村党支部书记李君，将把引进在外务工和求学人员返乡创业，作为他们村脱贫攻坚工作的创新方式和方法。中共把这个村支书标榜为返乡创业的典型，想要把即将失业、或已经失业的在外务工被迫返乡人员，跟在外求学、面临一毕业就失业的求学人员一起，变成“新型职业农民”。
+
+消息来源：
+
+1. 中共国人民网：*[山东户籍出新政允许原进程落户农村人口回农村落户](http://sd.people.com.cn/n2/2021/0304/c166192-34605087.html)*
+2. 中共国人民网：*[全国人大代表焦新安：大学毕业生就业体检档案应实现共享](http://edu.people.com.cn/n1/2021/0304/c1006-32042036.html)*
+3. 中共国求是网：*[李君代表：引导年轻人回乡创业](http://www.qstheory.cn/2021-03/04/c_1127165341.htm)*
 
 
-3月4日，美国拜登内阁出现挺川的声音。美国政要和媒体的反共热情继续高涨，当日各方言论包括中共对美国政治、媒体、文化教育、体育等意识形态和领域的渗透，中共间谍公司华为、Zoom软件对美国通讯安全、个人隐私的威胁，中共对新疆维吾尔人的种族灭绝罪，对邻国威胁，以及把2022年奥运会转移出北京的呼吁。涉及中共病毒协犯福奇的新闻被更多地爆出。
+（本文仅代表作者个人观点，与Gnews网站无关）
 
-**皮特-纳瓦罗博士**
+其他工作人员：
 
-拜登任命的商务部部长吉娜-雷蒙多称川普对华关税奏效，因为”数据显示 “它们是 “有效的。皮特-纳瓦罗先生转发了Mediaite.com 这篇文章。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/BB839A3C-7254-45B6-A30D-090EDB5CCFE5.jpeg)
-[https://twitter.com/zhiyitw33/status/1367657951847137285?s=20](https://twitter.com/zhiyitw33/status/1367657951847137285?s=20)
+*收稿审核：Nena
+责任编辑：西联777
+排版发布：铜豌豆*
 
-3月3日前美国国务卿迈克-蓬佩奥接受福克斯新闻采访时以严肃坚决的态度指出中共是美国最大的威胁。
-
-[https://twitter.com/xi\_GLB/status/1367417220662370305?s=20](https://twitter.com/xi_GLB/status/1367417220662370305?s=20)
-
-**泰德****–****克鲁兹参议员**
-
-3月4日克鲁兹议员今日连发数推，抨击拜登政府仓促回到《巴黎气候协定》的亲共政策。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/51CC3522-7462-48E9-BC3D-147EBD5F5A96.jpeg)
-[https://twitter.com/zhiyitw33/status/1367651776174850050?s=20](https://twitter.com/zhiyitw33/status/1367651776174850050?s=20)
-
-抨击拜登政府放松此前川普总统对孔子学院在美国的禁令
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3311178F-2122-496B-A70F-6250788FD145.jpeg)
-[https://twitter.com/zhiyitw33/status/1367653377996247040?s=20](https://twitter.com/zhiyitw33/status/1367653377996247040?s=20)
-
-克鲁兹议员对中共有深刻的认识，今日重申昨日提出的中共是美国地缘政治的最大威胁。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4D13B85A-1717-4EC1-887B-491A515CD72C.jpeg)
-[https://twitter.com/zhiyitw33/status/1367653593629609990?s=20](https://twitter.com/zhiyitw33/status/1367653593629609990?s=20)
-
-认清了中共的肛拭子检测的邪恶。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/65A6A63C-8122-4DA1-8FCB-7E34A87DBBFB.jpeg)
-[https://twitter.com/zhiyitw33/status/1367566558537674757?s=20](https://twitter.com/zhiyitw33/status/1367566558537674757?s=20)
-
-继续谴责中共对新疆的人权暴行和种族灭绝。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0ABBEDC5-BEB1-41C5-BE04-9EE3FB42DA9D.jpeg)
-[https://twitter.com/zhiyitw33/status/1367532490324385793?s=20](https://twitter.com/zhiyitw33/status/1367532490324385793?s=20)
-
-**吉姆****·****班克斯参议员**
-
-[https://twitter.com/zhiyitw33/status/1367587925341270020?s=20](https://twitter.com/zhiyitw33/status/1367587925341270020?s=20)
-
-福克斯新闻发表《共和党人提出法案制裁中国国家支持的 “虚假网络信息 “》，文章指出中共国国有媒体使用时代广场视频屏幕做广告。美国电信公司AT&T被控游说反对对中共国国有电信公司进行制裁。班克斯参议员发推了这一新闻。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/E5D6FAEF-D509-4BDD-96DF-404917979954.jpeg)
-[https://twitter.com/zhiyitw33/status/1367568543449948161?s=20](https://twitter.com/zhiyitw33/status/1367568543449948161?s=20)
-
-[https://www.foxnews.com/politics/banks-cotton-sanction-chinese-disinformation](https://www.foxnews.com/politics/banks-cotton-sanction-chinese-disinformation)
-
-美国很多大小公司内部、非盈利组织包括教会仍然在把ZOOM软件作为视频沟通、电话会议的工具，班克斯议员明确指出了使用该软件的危害性。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/9C90F1DB-1C8B-43A6-AD98-3C88D9101D01.jpeg)
-[https://twitter.com/zhiyitw33/status/1367484369137451014?s=20](https://twitter.com/zhiyitw33/status/1367484369137451014?s=20)
-
-**国会议员蒂姆****·****伯切特**
-
-议员发推国会山网站上的文章，确认经过七次听证，吉娜-雷蒙多拒绝白宫将华为公司留在正常贸易实体清单中，美国限制向中共出口技术的斗争仍在继续，此前华为公司任正非曾隔空向拜登政府喊话求通商。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/9BDEF8BA-9D0C-4EAA-81A1-1ABE2B84A45A.jpeg)
-[https://twitter.com/zhiyitw33/status/1367572143014252547?s=20](https://twitter.com/zhiyitw33/status/1367572143014252547?s=20)
-
-[https://thehill.com/blogs/congress-blog/politics/541433-raimondo-has-won-confirmation-but-the-fight-to-restrict-export](https://thehill.com/blogs/congress-blog/politics/541433-raimondo-has-won-confirmation-but-the-fight-to-restrict-export)
-
-**参议员瑞克·斯科特**对华为是否进入安全实体清单的态度
-![]()![](https://gnews.org/wp-content/uploads/2021/03/F5CB73E3-ECBD-4610-AE89-6EA4F69153ED.jpeg)
-[https://twitter.com/zhiyitw33/status/1367566384989880333?s=20](https://twitter.com/zhiyitw33/status/1367566384989880333?s=20)
-
-鉴于中共对人权的践踏，呼吁取消北京作为2022年奥运会举办地
-![]()![](https://gnews.org/wp-content/uploads/2021/03/CE8327FE-8512-4369-87D0-966D820DF9A4.jpeg)
-[https://twitter.com/zhiyitw33/status/1367486595616694284?s=20](https://twitter.com/zhiyitw33/status/1367486595616694284?s=20)
-
-**参议员玛莎·布莱克本**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/DE3625C7-CAD1-4A7A-AA1E-4738C9FFC712.jpeg)
-[https://twitter.com/zhiyitw33/status/1367569160453025792?s=20](https://twitter.com/zhiyitw33/status/1367569160453025792?s=20)
-
-**参议员瑞克·斯科特**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/A58FDD55-1DA2-456B-9175-870A3E732FB8.jpeg)
-[https://twitter.com/zhiyitw33/status/1367486595616694284?s=20](https://twitter.com/zhiyitw33/status/1367486595616694284?s=20)
-
-《国家脉动》3月3日发表文章《利益冲突：福奇（Fauci）的女儿是推特公司的软件工程师，推特对反对福奇的账号任意关停》，看来推特确实是一个中共爪牙的大本营，难怪所有中外支持灭共、支持川普、揭露病毒真相的言论被压制、账号被关停。共产党推特未来将一文不值，即便共产主义已经来到全世界，自由世界的人绝不会甘于被带风向、被洗脑。建议战友们大力转发这篇文章，让我们爆料革命以唯真不破为基准的GTV、GNEWS媒体为更多人带来真相。
-
-[https://thenationalpulse.com/news/alison-fauci-twitter-engineer/](https://thenationalpulse.com/news/alison-fauci-twitter-engineer/)
-
-作者：康州盘古农场 喜马拉雅的文雅
-
-信息采集：直译推 柠檬红茶（文宁），西班牙农场 文舞
-
-发布：纽约香草山农场 shangshang
-
-欢迎关注喜联盟Gnews编辑部，真相与正义的媒体，灭共的前沿，战友的平台。
-
-[https://gnews.org/zh-hans/author/gnews-editorial-team/](https://gnews.org/zh-hans/author/gnews-editorial-team/)
-
-+1
++7

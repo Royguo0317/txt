@@ -1,50 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文雍漫谈】警惕！灭共大背景下的“大灭口”已经降临
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/950614/)
+## 澳大利亚凯瑟克岛已被中共国蚕食
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/950790/)
 
-作者：文雍 | 校对/审核：宁缺 | Page: Daoiii
+撰稿：Shirley
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210305_Cover10.jpg)网络图片
+北昆士兰州国会议员克里斯滕森（George Christensen）抨击昆士兰州州长帕拉斯祖克（Annastacia Palaszczuk），因为她的政府将凯瑟克岛（Keswick Island）租给了一家中共国公司，让岛上居民的生活变得苦不堪言。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/kJjOkOWpGVSaq/images/793377f2-9553-4b02-94f7-66390b7f8498.png?asset_id=15c55a10-e808-4753-a5b4-f7964dc61e78&amp;img_etag=%2266bb155bc7f660156c70557ec8f58b33%22&amp;size=1024)](https://spark.adobe.com/page/kJjOkOWpGVSaq/images/793377f2-9553-4b02-94f7-66390b7f8498.png?asset_id=15c55a10-e808-4753-a5b4-f7964dc61e78&amp;img_etag=%2266bb155bc7f660156c70557ec8f58b33%22&amp;size=1024)
+凯瑟克岛位于昆士兰海岸外的圣灵岛地区（Whitsundays region）。中国布鲁姆公司（China Bloom）在2019年以2000万澳元的价格抢到了凯瑟克岛的一部分，租期99年。
 
-#### 时日如梭，转眼惊蛰。
+克里斯滕森先生说，2019年有一个澳大利亚财团有意接手这块土地，但昆州政府选择了中国公司。圣灵岛余下80%的岛屿，距离沿海城镇Mackay34公里，是国家公园。
 
-一早起来，发现草坪被齐刷刷地翻开了一大片，露出黑皴皴的泥土。据度娘说作俑者是浣熊，它们看上去模样憨憨人畜无害的，生猛起来却甚是了得，可以和郊狼大战几百回合。只是不知道地里藏着什么它们需要的美食，能让它们如此大费周章，难怪邻居前几日用丝网罩住草坪，估计是不胜其扰的下策。
+中共国布鲁姆公司已经关闭了凯瑟克岛通往海滩的通道，设置了围栏阻止人们进入国家公园，禁止人们在岛上进行短期住宿和租赁，并雇用保安监控着当地人的一举一动。
 
-风信子的骨朵暂露头角，被顽皮的兔子们啃得精光。果然是“坤宫半夜一声雷，蛰户花坊晓已开”。万物皆有时，天造地设乃成，生机勃发，是谓欣欣向荣，我可怜的紫色小花，就这样被野蛮的兔子糟蹋了。
+克里斯滕森说，他对岛上监控的保安人数之多感到震惊。严峻的形势促使一个名为“凯瑟克岛收回澳人权利”的脸书（Facebook）群组成立，目前已有近9000名成员。
 
-缅甸人民的抗争已有月余，仍在继续。一提起缅甸，首先想到的是翠绿翠绿的缅甸玉。这种聚天地灵气的石头自从被冠以温润如君子之性的配饰以来，变成了“怀璧其罪”的珍品。缅甸得天独厚的气候，孕育出天下难得的宝玉和缅甸花梨，这是大自然对缅甸人的馈赠，然而，这些难得之物岂是普通人可以拥有的？它们一旦被贪得无厌的中共邪魔盯上，便成了杀人越货的肇始之因。不知道缅甸人民对这场灾难幕后的黑手，到底了解多少。
+凯瑟克岛进步协会和大堡礁海洋公园管理局最近也举行了会议，讨论关于环境遭到严重破坏的报告。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/kJjOkOWpGVSaq/images/d7c92b50-e078-47fb-a2fa-2587c27327bc.png?asset_id=7d147f64-596d-4489-b9ad-1b91afef4587&amp;img_etag=%22c1e8178151331fc6def6ee167c869436%22&amp;size=3397)](https://spark.adobe.com/page/kJjOkOWpGVSaq/images/d7c92b50-e078-47fb-a2fa-2587c27327bc.png?asset_id=7d147f64-596d-4489-b9ad-1b91afef4587&amp;img_etag=%22c1e8178151331fc6def6ee167c869436%22&amp;size=1024)
+“他们实际上拥有这个岛，”克里斯滕森先生说，“在批准出租凯瑟克岛的土地给中共国公司方面，目前的问题是昆州政府自己造成的。”
 
-19岁的缅甸华裔女孩被军方的子弹击中不治身亡。她的胸牌上写着：如果我出事，并且无法医治到正常，那就别抢救了，我愿意把身体上能用的器官捐献出去。
+（本文仅代表个人观点）
 
-一个花季女孩，未能迎来生命的盛放便消陨了，以一种悲壮的方式离开了这个不可爱的世界。她有多爱她的国？多爱这个国家的人？才能如此挺身而出据理力争，并且把身体捐给活着的人！看到了她，我仿佛看到了缅甸的未来。自由一旦落地，就会象蒲公英的种子一样随风扩散、迅速成长，觉醒者的魂灵不会再跪求刽子手开恩。“我自横刀向天笑，去留肝胆两昆仑”，缅甸人民今天以命相搏的，正是明天他们的子孙可以轻松享有的，这一点，不知道邻国的十四亿小民怎么看。
+审稿：光耀华夏
 
-面对缅甸人民的抗争，国际社会态度和去年的香港没什么两样：表示关切、强烈谴责、呼吁双方都克制，更有幕后黑手腆着老脸“不干涉别国内政”。政治大佬们永远正确的口号正在提醒并唤醒华夏同胞，认清一个现实：灭共要靠我们自己！如果宿命需要我们这一代人死去，这个民族才会涅槃重生，就让我们承担吧，只要我们能为下一代争得自由！
+参考来源：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/kJjOkOWpGVSaq/images/46b20d0a-bc3d-41bf-8da7-a37e56840474.jpg?asset_id=b39332d9-4c2f-4581-b6fa-6eb473720350&amp;img_etag=%22b31c8f4907ffeb6c6f5a0bec71891ca9%22&amp;size=1024)](https://spark.adobe.com/page/kJjOkOWpGVSaq/images/46b20d0a-bc3d-41bf-8da7-a37e56840474.jpg?asset_id=b39332d9-4c2f-4581-b6fa-6eb473720350&amp;img_etag=%22b31c8f4907ffeb6c6f5a0bec71891ca9%22&amp;size=1024)
-
-我们生在危机四伏的时代，如果不站出来、团结起来结束危机，那么我们就会成为危机的一部分。今天，缅甸军方的恶行，与89.64的中共军方相比，简直是小巫见大巫。当年犯下滔天罪行中共不但顽强地活了下来，而且越来越强大、越来越肆无忌惮了，甚至做起了引领全世界的春秋大梦。如果这样的国际格局不改变，全人类都将陷入中共的魔爪。
-
-近日，青岛大学57岁的肝脏移植专家跳楼了。这种粉身碎骨的死法，对于中共器官移植专家来说已经是新常态了。近年公开见诸报端的就有五例：黎磊石、李保春、张士林、石应康，乃至今天的臧运金，无一不是器官移植方面的泰斗级人物。只要有一点逻辑思维的人便不难推断，这些人因何跳楼？人体器官不是韭菜，割了还能长出来，那是一条条生命。仅仅臧运金一人，就做了2600多例肝脏移植手术，这些器官从何而来？中共国究竟豢养了多少这样的专家？这些器官从哪里来？撑起这么庞大的器官移植产业，中共国究竟制造了多少冤魂？
-
-美国新政府延续川普政府的政策，将中共对新疆人的迫害认定为种族灭绝罪。各种证据将纷纷亮相，包括活摘器官这个令人发指的罪行。接下来，中共为了抵赖掉这些犯罪行为，势必杀人灭口。这些专家被中共用完了，就像一块破抹布一样丢进垃圾堆。他们的可恨之处是罔顾人的伦理，利用自己的医术打着救人的招牌杀人，扮演上帝的角色，一把手术刀决定别人的生死。用技术作为自己谋求上位的资本，其行为本身就是犯罪。他们万万没想到，有一天全世界会清算中共恶行，当然，他们也不会去评估这种助纣为虐带给世界的伤害，因为他们被利欲熏黑了心，他们更不会想到自己会被自己人送进火葬场。
-
-而现在，这些浑浑噩噩的专家们，你们该醒了，不要再装睡了。再装就被你们的主子直接送进火葬场了。留给你们的时间已然屈指可数，中共为了逃脱制裁，一定会杀人灭口。你们如果不想家破人亡、如果还良心未泯、如果还有哪怕一点人性，就必须迅速行动，逃离中共的魔爪，以期在中共被清算的时候，站在正义的一边做污点证人，指控中共犯下的反人类罪。看看那五个被中共灭口的专家，你们还认不清当前的局势吗？
-
-[!\[\]()!\[\](https://spark.adobe.com/page/kJjOkOWpGVSaq/images/7c611572-1257-43a0-8558-dd2dfd0ec3f9.jpg?asset_id=3c44d624-9a47-4d07-bc3f-c6f3b4be1ced&amp;img_etag=%229c71d649274448549ff89da3a3a6438b%22&amp;size=1024)](https://spark.adobe.com/page/kJjOkOWpGVSaq/images/7c611572-1257-43a0-8558-dd2dfd0ec3f9.jpg?asset_id=3c44d624-9a47-4d07-bc3f-c6f3b4be1ced&amp;img_etag=%229c71d649274448549ff89da3a3a6438b%22&amp;size=1024)
-
-如今，世界上灭共的力量已然集结，大灭共的时代到来了，专家们，站出来，加上属于你的那一根灭共的稻草，为这个世界的未来贡献自己的那一份力量，哪怕只是为了救赎，为了安抚被你们活摘器官的那些含冤的灵魂，站出来吧，属于你们的时间真的不多了！
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+1. [Skynews报道](https://www.skynews.com.au/details/_6237127147001)
+2. [news.com.au报道](https://www.news.com.au/finance/business/mp-george-christensen-slams-annastacia-palaszczuk-over-leasing-of-keswick-island-to-china-company/news-story/b195f538ef8a35f4dd55eff5ad0fd7f4)
+3. [dailymail.co.uk报道](https://www.dailymail.co.uk/news/article-9323523/Chinese-developers-took-Keswick-Island-allegedly-employed-security-monitor-locals.html)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/kJjOkOWpGVSaq/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/kJjOkOWpGVSaq/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)
 
+[欢迎加入澳喜农场](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
 +3
