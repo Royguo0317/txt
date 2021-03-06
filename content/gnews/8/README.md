@@ -1,30 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：赵小兰家族与中共牵扯颇深
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/952773/)
+## 2021年3月4日秘翻快报【头条新闻】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/951124/)
 
-出品:《路德社》 编辑：《路德社》精选新闻专栏组
+**新闻总结：**
+
+- 美国共和党联邦众议员斯科特·佩里：中共是跨国犯罪组织；
+- 徐茂春：SARS之后中共发起病毒研究大跃进；
+- 中共借疫情升级数字监控；
+- NSCAI年度报告：严防背景窃取人工只能敏感技术；
+- 意大利学者发现：中共病毒康复者，近20%出现无精子症；
+- 缅甸警方持续对抗民众大开杀戒；
+- 联合国人权办公室呼吁缅甸军方停止武力镇压；
+- 新疆大部分地区每隔500米就一个中共警务室；
+- 中共的百度的卫星图里没有显示新疆库尔勒附近的再教育集中营；
+- 中共对新疆集中营女证人发动人身攻击；
+- 云南昭通回族区至少两座逾百年历史的清真寺被强拆；
+- 中共出台刑法补充规定，新增袭警等罪名；
+- 中共警察拍视频解读在中共国实行的连坐制度，父母坐牢会影响至少三代人；
+- 一名老人走楼梯时突然到底不起，来往行人无动于衷；
+- 中共国计划在今年6月结束前为四成人口进行冠状病毒疫苗接种；
+- 47名民主活动人士庭审现场外，多国驻港外交人员声援被捕活动人士；
+- 北京有网友反应在接种中共新冠疫苗后出现严重不良反应；
+- 黑龙江望奎县封城已经持续52天；
+- 上海市要求在6月前基本完成辖区内职业人群两次中共病毒疫苗注射；
+- 中共黄金因自己出现严重问题，一年前出售的黄金都无法提货；
+- 投资逾千亿的武汉泓芯预将遣散所有员工；
+- Boss直聘统计显示：2021年1月有八成就业者被离职，或被裁员；
+- 美的冰箱产品价格体系上调10-15%；
+- 美团降价，大量外卖骑手罢工抗议；
+- 通过【凤梨大战】，看中共如何利用经济手段威胁世界
 
 
-
-> directly with the Chinese government. So a former senior US government official’s family sits on the board of one of the largest and most important banks in China? [#ethics](https://twitter.com/hashtag/ethics?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)
-> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [March 5, 2021](https://twitter.com/Jkylebass/status/1367807657340502021?ref_src=twsrc%5Etfw)
-
-
-
-2021年3月5日，凯尔巴斯引用纽约时报对赵家的报道并发推评论:
-
-What’s even more perplexing is that Chao’s sister sits on the board of the Bank of China where all data is a Chinese “national secret”. BOC is one of the oldest and most important banks to the Communist Party in China. Chao’s family does business directly with the Chinese government. So a former senior US government official’s family sits on the board of one of the largest and most important banks in China?
-
-更为复杂的是赵小兰的妹妹赵安吉担任中国银行董事，这家银行的所有数据均为中国“国家机密”。中国银行是中国共产党最悠久且最重要的银行之一。赵家直接与中国政府做生意。因此，美国前政府高级官员的家族成员是中国最大且最重要的一家银行董事会成员吗？
-![]()![](https://gnews.org/wp-content/uploads/2021/03/030601.png)
-随着参议员麦康奈尔和赵氏家族与中共之间的利益关系逐渐被美国左媒揭露，表明中共内部的政治斗争越加残酷激烈。曾经跟中共勾结出卖美国国家利益的政客官员们，正被中南坑的老杂毛当作内斗的手雷，相互抛出引爆，落得身败名裂的下场。同时也表明美国内部灭共的大趋势已成，曾与中共沆瀣一气的政客官员也不敢明面为其站台，逼得中南坑不得不放出他们的部分犯罪证据敲山震虎。但这样只会让这些腐败的政客、官员和企业家愈加远离和憎恨，为了自保和自救，他们别无选择必须加速灭共。
-
-本文作者：Stranger
-审核校对：鲁邦五世
-上传排版：糖果儿
-
-
+**By：【秘密翻译组G-Translators】**
 
 0
