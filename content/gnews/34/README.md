@@ -1,38 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 油管将唐纳德·川普的CPAC演讲列入黑名单，暂停RSBN频道
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/954078/)
+## 【热点播报】随着暴力升级，YouTube删除了缅甸军方运营的频道
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/954041/)
 
-- 翻译：喜妹
-- 发稿：Ranting
+作者：纽约香草山 Naughty（文行） 校对/发稿：飞虹
 
-
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2021年3月6日电/西喜社——**保守派新闻广播公司 “右侧广播网”(RSBN)因为报道了美国总统唐纳德·川普在最近的保守派政治行动会议(CPAC)上的演讲，被YouTube暂停播放两周。
-
-这段视频在被谷歌旗下平台审查之前，几乎积累了400万的浏览量。
-
-RSBN的官方推特账号报道了这一消息。
-
-“由于川普#CPAC2021的演讲违反了他们关于选举错误信息的指导方针，RSBN已经被YouTube暂停两周。该视频的浏览量接近400万次。他们也已将其从平台上删除。”
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/29231938/logo-3-1-1.jpg)
 
 
 
-> NEW: RSBN has been suspended from YouTube for two weeks because of the Trump [#CPAC2021](https://twitter.com/hashtag/CPAC2021?src=hash&amp;ref_src=twsrc%5Etfw) speech, which violated their guidelines on election misinformation. 
-> 
-> The video was approaching 4 million views. They have also removed it from their platform.
-> — RSBN 🇺🇸 (@RSBNetwork) [March 4, 2021](https://twitter.com/RSBNetwork/status/1367519312890724355?ref_src=twsrc%5Etfw)
+在缅甸暴力急剧升级后，YouTube取消了缅甸军方运营的广播公司的频道。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image0-8.jpg)
+
+这是自2月1日该国军事政变引发了一系列大规模抗议和安全部队的残酷镇压以来，社交媒体公司采取的最新举措。
+
+3月5日删除的频道属于MRTV和Myawaddy Media等广播公司。
+
+谷歌旗下的 YouTube 发言人说：“我们已经根据我们的社区准则和适用法律关闭了许多频道，并从 YouTube 删除了相关视频。”
+
+由中国科技巨头字节跳动运营的抖音同一天也宣布，正在努力删除缅甸的一些内容。
+
+抖音发言人在一份声明中表示，宣传仇恨和暴力在我们的平台上绝对没有立足之地，我们正在积极删除缅甸违反我们原则的内容，并继续监控局势。
+
+缅甸军方上台后，社交媒体被迫加强了对缅甸政治局势的应对。
+
+几周前，Facebook称在紧急情况下限制了军方传播“错误信息”的账户。该公司还“无限期暂停”缅甸政府机构为官员保留的发送删除内容要求的特殊渠道。
+
+Facebook亚太新兴经济体政策总监Rafael Frankel当时在一篇博客文章中写道，自2月1日政变以来发生的事件，包括军方的暴力行动，促使Facebook颁布了这项禁令。
+
+政变发生后，包括Facebook和Twitter（TWTR）在内的互联网和新闻服务在缅甸全国范围内被打乱，限制了人们获取事件信息的能力。
+
+据联合国人权事务高级专员Michelle Bachelet称，自 2 月 1 日以来，缅甸至少有 54 人被警察和军官杀害，其中周三至少有 30 人被杀。她还警告说，实际死亡人数可能会高得多。
+
+Michelle Bachelet在周四的一份声明中表示，自 2 月以来，已有 1700 多人被任意逮捕和拘留，最近几天此类事件的数量不断升级。她补充说，仅在周三，就至少有700人被拘留。
+
+缅甸军方政变本是中共为了试探拜登政府政治走向而导演的一出闹剧，时至今日拜登政府已经冻结了缅甸军方的资产并宣布还会有一系列的制裁措施出台；而缅甸国内群众抗议活动也是愈演愈烈，导致缅甸军政府派兵镇压，甚至开始开枪杀人，昔日在香港发生的一幕现在在缅甸重演，再一次向全世界证明独裁体制只会给人类带来灾难。
 
 
 
-RSBN表示，如果在川普总统关于选举违规的说法中加入 “反驳观点”，就可以避免两周的停播。换句话说，只有RSBN也批评川普的讲话，才允许上传。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-可见曾经作为世界自由灯塔的美国，如今被中共国渗透的有多么严重，一有不“和谐”的声音就给你封住嘴巴，掐住喉咙，斩断你的发声渠道。如果没有我们爆料革命正在为世界力争最后一块净土的话，全世界都将会很快会沦陷，落入中共邪魔恶党的魔爪之中。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-**消息来源：[InfoWars](https://www.infowars.com/posts/youtube-blacklists-donald-trumps-cpac-speech-suspends-rsbn-channel/)**
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-+2
++3
