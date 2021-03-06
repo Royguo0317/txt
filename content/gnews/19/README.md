@@ -1,29 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共攻击英驻华大使微博上捍卫新闻自由的行为
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/954776/)
+## 【疫情下的西班牙】世界各国中共病毒疫情图示
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/954807/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+- 编辑：神奇四侠
+- 作者：gokuabuela
+- 发稿：Ranting
 
-编辑上传   水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/B-4-2.jpg)dailymail.co.uk
-《每日邮报》报道，北京方面指责英国驻华大使发表文章捍卫新闻自由的行为。中共官方迅速封锁了此文章在中共国内的传播，同时中共外交部发表声明指责英国媒体存在偏见发布“假新闻”。
 
-在北京工作的英国驻华大使吴若兰(Caroline Wilson)在中共国社交媒体上发了一篇帖子，因此前中共多家媒体歪曲、指责外国记者发表批评中共国的报道是“恨中国”。吴若兰写道，批判性报告不是“仇恨”的证据，而是为了帮助管理者发现问题，并在他们做错事情时追究他们的责任。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-在她的文章中，吴若兰引用了英国媒体如何批评他们自己的政府的例子——包括报道议员的报销丑闻——作为证据，指出那些批评中共的外国记者对中国没有偏见。
+**西班牙2021年3月6日电/西喜社——**图表中展示的是14天10万居民感染人数，是判断中共病毒感染风险的一个重要数据。
+数据统计时间从2020年7月7日至2021年3月4日。
+大于250例： 极度高风险
+小于250，大于150例： 高风险
+小于150，大于50例：中等风险
+小于50例：低风险
 
-她还指出，武汉中共病毒疫情爆发后，中共媒体对疫情的批评性报道显示，李文亮医生在发出疫情警报时各界保持沉默。而这些批评性报道没有被视为他们憎恨武汉甚至中共国的证据。相反，这些报告因在发现问题和追究责任方面发挥的作用而受到称赞。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/bc15096a-45e2-4ff6-8dfb-5c65639ad463.jpg)
 
-吴若兰补充说:“无论在世界上哪个地方，批判性报道都不能证明记者不喜欢这个国家。”相反，它证明了媒体自由的价值，它可以带来更准确的信息，并指出需要改变的地方。正如法国《费加罗报》(Le Figaro)的座右铭所说，如果批评不自由，赞扬就没有意义。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1a3ef0f0-7657-49a2-a48c-1f4ba67ce0f5.jpg)
 
-然而吴若兰捍卫新闻自由的行为触碰了中共的神经。中共审查机构屏蔽了微博用户对其文章的分享。中共外交部发言人汪文斌对其言论进行斥责称，一些英国媒体不保持公正客观的立场，甚至基于意识形态偏见制造假新闻，认为外国记者没对中共进行公正的报道。
+**新闻来源：[国家报](https://elpais.com/sociedad/2020-12-14/el-mapa-del-coronavirus-en-el-mundo-asi-avanzan-los-contagios-y-las-muertes-dia-a-dia.html)**
 
-汪文斌指出，“我们反对的是意识形态偏见，反对以‘新闻自由’为借口制造假新闻或其他违反新闻职业道德的行为。”中共官方报纸《环球时报》和《中国日报》也发表社论抨击吴若兰“提出了错误的论点”。
-
-参考链接：
-
-[https://www.dailymail.co.uk/news/article-9324835/China-slaps-Britains-ambassador-defending-freedom-press.html?ns\_mchannel=rss&ns\_campaign=1490&ito=1490](https://www.dailymail.co.uk/news/article-9324835/China-slaps-Britains-ambassador-defending-freedom-press.html?ns_mchannel=rss&amp;ns_campaign=1490&amp;ito=1490)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
 
 0

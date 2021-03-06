@@ -1,25 +1,82 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共5700万名退役军人的不满 将造成解放军在社会中的未爆弹
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/954300/)
+## 与军方有关联的中方学者参与中美疫情电话交流会
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/954326/)
 
-台湾宝岛准农场Amitofu
+*新闻来源：The Gateway Pundit《门户网站评论员》| 作者：Joe Hoft | 发布时间：2021年3月2日*
 
-中共至今累计退役军人约5700万名，根据中央军委政治部、信访局统计，每年约有10万名军人退役，其中约4至5万名军官。由于解放军属中共的政治军队，退役军人按照退役年代、身分阶级认定、服役军团、历次裁军政策改变等相关规定，造成安置与福利结构的复杂，进而产生退役军人待遇、法律保障极大问题。退役军人认为自己为中共国和党牺牲奉献，应获得基本的照顾和补偿，无法接受共产党违背承诺，加上习近平2016军改，突发式的裁军和粗暴安置造成大量退役军人的不满。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ccpsoldiers-400x222.jpg)圖片來源新唐人
-高考和参加解放军的大都是贫穷底层的草根，透过而谄媚领导、贿赂买官和排挤热血而越爬越高，甚至将妻女献身换取铁饭碗为目标。加上很多人难以适应经济改革的社会和政治变化，许多人发现自己落后跟不上变迁，贫富差距和贪官的巨额财富，甚至经历领导的污辱，开始抱怨党的不公、对党贡献一生后却连医疗保障都没有。
+*翻译/简评：大和凯多 | 校对：SilverSpurs7 | 审核：万人往 | Page：拱卒*
 
-在中共国行政体系安置退役军官工作的主要是国务院人力资源和社会保障部（人社部），士兵则由国务院民政部负责。军队转业干部安置实行计划分配及自主择业，军内为中央军委会政治部业管。转业的军官、文职干部、志愿士兵退役转到地方，由国家统一安排工作；计划分配的军队转业干部由党委、政府负责安排工作；自主择业的军队转业干部则由政府协助就业、发给退役金。而引起退役军人上访的主要原因，是军地有关部委和地方官员将退休金和津贴，贪污扣留不发或挪用抚恤金。
+[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/b000db63-079b-42a3-aaea-2632b017ac01.jpg?asset_id=a3240d47-2024-40a4-b6ed-977ff356aa9f&amp;img_etag=%2207cd6ddf1eab785c30e96180f7553ef1%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/b000db63-079b-42a3-aaea-2632b017ac01.jpg?asset_id=a3240d47-2024-40a4-b6ed-977ff356aa9f&amp;img_etag=%2207cd6ddf1eab785c30e96180f7553ef1%22&amp;size=1024)
 
-2018年6月镇江退役老兵在市府大楼前抗议遭维权，市府找几百名黑道殴打老兵，老兵网络号召各地数万名退役军人加入抗议，几百民老兵遭武警强势驱离而导致流血的暴力冲突，中共不但不重视问题还将带头抗议者以聚众扰乱社会秩序罪和故意伤害罪判刑，中共严重强制性压抑退役军人和官僚集权主义，对退役军人群体上访事件却采取中央与地方极力截访，强势镇压手段等流血事件层出不穷，即使封锁媒体也无法改变退役军人的不满，反而随着经济下滑持续扩大，因各地方政府贪腐挪用退休金与抚恤金造成没钱可用，而现役军人看到会想着自己就是下一位抗议者，只能趁现在加紧的贪污，造成加入军队就是要以赚钱营利为目的的想法，反正军队从上到下都在贪污。
+**简评：**
 
-解放军的军人是没有自尊的，层层贿络求得官位，例如掌握情报系统的总参谋部会将窃听的机密与产业讯息出售私企，总政治部的人事升迁可作为买卖官位获利，总后勤部可利用绑标、低价贩卖军用土地而致富，总装备部门更可以将军方核武器军火装备私下与伊朗等恐怖组织进行交易。军中的贫富差距悬殊，退役军人对医疗社保严重不足，总总的不满将造成中共解放军在社会中的未爆弹。本文仅代表个人立场
+作者在本文讲述了美国科学界给中共军方喂料，提供有关CCP病毒的信息。在疫情初期的中美科学界电话会议中，中方的所有与会者都与中共军方有关联。
 
-资料来源: 文贵先生
+这篇文章并不让人感到惊讶，因为郭先生早就说过了共匪的“蓝金黄”计划。爆料革命这几年以来，我们对“蓝金黄”已经不再陌生，发生了这么多的事都已经验证了共匪的“蓝金黄”计划的巨大力量。美国的政治中心——国会山的政客都可以被“蓝金黄”，更何况科学界。但是，这些丑恶的交易终将会暴露在阳光下面，大众终将会明白真相。正义得到伸张之时就是这些作恶之人恶有恶报之日。
 
-审核:Athena雅典娜 發佈:Amitofu
+**原文翻译：**
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+# **美国科学界2020年5月向中共国军方做实际意义上的COVID-19简报**
 
-0
+[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/e75480da-a56a-4c34-b8ed-c746440d5cda.jpg?asset_id=529bf1ad-8b9b-4e75-b0ca-93c70ac191c1&amp;img_etag=%220854ecb3a0b433b60db5794bf6de4c58%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/e75480da-a56a-4c34-b8ed-c746440d5cda.jpg?asset_id=529bf1ad-8b9b-4e75-b0ca-93c70ac191c1&amp;img_etag=%220854ecb3a0b433b60db5794bf6de4c58%22&amp;size=1024)图片由Lawrence Sellin博士提供
+
+**美国科学界去年五月与中方同行就中共国病毒（COVID-19）举行电话会议。问题是，中方参会人员与中共军方是有关联的。**
+
+上一期文章中，我讲述了美国国家科学院和一些美国科学机构的人在2020年2月如何帮助中共国掩盖新冠病毒来源于实验室的事实。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/b6e1ebfc-4042-4377-8be3-ef089b6559df.jpg?asset_id=59871b2b-6d4e-4b5d-be2a-4e4be9294e60&amp;img_etag=%22bb16dbbb45650df2fa8b005b0f0cfdfc%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/b6e1ebfc-4042-4377-8be3-ef089b6559df.jpg?asset_id=59871b2b-6d4e-4b5d-be2a-4e4be9294e60&amp;img_etag=%22bb16dbbb45650df2fa8b005b0f0cfdfc%22&amp;size=1024)彼得·达扎克（Peter Daszak）
+
+具有讽刺意味的是，从那次惨败中产生的建议之一就是增加美国与中共国的科学互动，这个决定导致了又一个错误，因为同样出于政治动机或天真的顾问再次参与了事务。
+
+2020年5月，美国国家科学院发起一系列电话会议，中美科学家就当前的冠状病毒疫情交换了信息。
+
+这些电话会议也可以说是向中共国军方做实际意义上的简报。
+
+大多数代表美方的野心勃勃的科学家都早曾和中共国合作研究，比如拉尔夫·巴里克（Ralph Baric）和彼得·达扎克（Peter Daszak），这两位和武汉病毒研究所是合作关系。此外，其中有些科学家在此前的三个月都曾明确支持中共的态度，说冠状病毒是起源于自然并非实验室，比如彼得·达扎克、斯坦利·普尔曼（Stanley Perlman）和 琳达·赛义夫（Linda Saif）。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/0bc6b82e-ab2d-40d7-b05c-92e23894669f.jpg?asset_id=675aecd4-8622-4619-ae8b-ea2c9a7694de&amp;img_etag=%224fa4feeaec8f43810bb21030d2ded325%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/0bc6b82e-ab2d-40d7-b05c-92e23894669f.jpg?asset_id=675aecd4-8622-4619-ae8b-ea2c9a7694de&amp;img_etag=%224fa4feeaec8f43810bb21030d2ded325%22&amp;size=1024)拉尔夫·巴里克（Ralph Baric）
+
+中方带头的科学家是高福，也叫George F. Gao，他是一名中共国病毒学家和免疫学家，曾担任中共国疾病预防控制中心主任，中国科学院大学存济医学院院长。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/7e90a287-c24c-4355-93be-7603a1773f5d.jpg?asset_id=32aab734-41a0-4905-b4f1-76f70b64989b&amp;img_etag=%22d9b10482e0d8786becfcd831a8d4a598%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/7e90a287-c24c-4355-93be-7603a1773f5d.jpg?asset_id=32aab734-41a0-4905-b4f1-76f70b64989b&amp;img_etag=%22d9b10482e0d8786becfcd831a8d4a598%22&amp;size=1024)高福
+
+2019年，他被选为美国国家科学院和美国国家医学科学院的外籍院士。
+
+高福也是中共国军方长期的研究合作者，分别于2002年、2005年、2006年、2007年、2008年、2010年、2011年、2013年、2014年、2018年、2019年、2020年发表论文。
+
+这些只是冰山一角，不包括他通过同伙与中共国军方的关系。
+
+根据2020年7月1日美国国家科学院的一封邮件，高福最感兴趣的两件事情；第一，美国血清调查的总体情况；第二，美国疫苗的进展情况，尤其是mRNA疫苗。
+
+这两点都不足以让人感到惊讶。
+
+那个时候，高福和两家中共国的生物科技公司一起在解放军总医院第五医疗中心传染病治疗研究中心（Treatment and Research Center for Infectious Diseases of the Fifth Medical Center of People’s Liberation Army General Hospital）进行血清研究。研究结果以《严重急性呼吸系统综合症冠状病毒2抗体作为COVID-19感染患者的一种血清标记的早期发现》形式发表。
+
+在美中电话会议期间，高福也在解放军总医院第五医疗中心进行冠状病毒的抗体研究。同时他的军方同僚逯光文在同一所医院做冠状病毒疫苗研究。逯光文毕业于广州的第一军医大学。
+
+**另外一名美中电话会议参会人是石正丽，武汉病毒研究所的“蝙蝠女”。很多人都怀疑病毒就是在武汉病毒研究所制造出来的。**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/6110c75c-41c9-4232-ac0a-7df172f0d27a.jpg?asset_id=35eecdbb-7382-4e75-9754-f5d67109b855&amp;img_etag=%22e5d84a4199663ed073d5680dd82810fd%22&amp;size=3290)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/6110c75c-41c9-4232-ac0a-7df172f0d27a.jpg?asset_id=35eecdbb-7382-4e75-9754-f5d67109b855&amp;img_etag=%22e5d84a4199663ed073d5680dd82810fd%22&amp;size=1024)
+
+在美国国家科学院的邮件中，电话会议的一名中方参与者是谭文杰博士，关于此人的描述是，中国疾病预防控制中心病毒病预防控制所病毒病应急技术中心主任和教授。
+
+美国国家科学院没有提到的是，谭文杰博士属于中共国军队中央战区和中国武汉人民解放军总医院。
+
+徐建青，另外一名美中电话会议的参与者，也和中共国军方一起工作，经常和姜世勃一起合作研究。姜世勃与中共国军方和多个美国病毒实验室的大量关联在一篇名为《中共国军方与美国资金的关联以及冠状病毒的实验室起源》的文章中。
+
+所以基本上，这些由美国科学界安排的电话会议很可能就是直接向中共国军方提供潜在的关键信息。
+
+[原文链接](https://www.thegatewaypundit.com/2021/03/u-s-scientific-establishment-conducted-de-facto-covid-19-briefings-chinese-military-may-2020/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
++1

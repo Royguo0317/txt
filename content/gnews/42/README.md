@@ -1,82 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 与军方有关联的中方学者参与中美疫情电话交流会
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/954326/)
+## 全球灭共潮，被中共霸凌的国家正在集结
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/954351/)
 
-*新闻来源：The Gateway Pundit《门户网站评论员》| 作者：Joe Hoft | 发布时间：2021年3月2日*
+*作者：文雍|校对/审核：宁缺|Page：小雨*
 
-*翻译/简评：大和凯多 | 校对：SilverSpurs7 | 审核：万人往 | Page：拱卒*
+[!\[\]()!\[\](https://spark.adobe.com/page/saxesedaAf6Ec/images/b0d33c7c-9794-4369-8b14-25a1e250f639.jpg?asset_id=e19547e0-0e99-4b96-9ee1-6e6d1449df61&amp;img_etag=%2233c661a691f241007ca09166d448d263%22&amp;size=2560)](https://spark.adobe.com/page/saxesedaAf6Ec/images/b0d33c7c-9794-4369-8b14-25a1e250f639.jpg?asset_id=e19547e0-0e99-4b96-9ee1-6e6d1449df61&amp;img_etag=%2233c661a691f241007ca09166d448d263%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/b000db63-079b-42a3-aaea-2632b017ac01.jpg?asset_id=a3240d47-2024-40a4-b6ed-977ff356aa9f&amp;img_etag=%2207cd6ddf1eab785c30e96180f7553ef1%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/b000db63-079b-42a3-aaea-2632b017ac01.jpg?asset_id=a3240d47-2024-40a4-b6ed-977ff356aa9f&amp;img_etag=%2207cd6ddf1eab785c30e96180f7553ef1%22&amp;size=1024)
+记得黑格尔曾经说过：人类从历史上学到的唯一教训，就是没有从历史上吸取任何教训。
 
-**简评：**
+正因为如此，可怜的人类才会循环往复地犯同样的错误，就如西西弗斯推石头上山一样，乐此不疲却毫无进展。
 
-作者在本文讲述了美国科学界给中共军方喂料，提供有关CCP病毒的信息。在疫情初期的中美科学界电话会议中，中方的所有与会者都与中共军方有关联。
+1935年的3月5日，人类历史上出了一个狂妄自大的希特勒，用行动撕毁《凡尔赛条约》，命令他的军队入侵莱茵非军事区，开启了二战的第一步。时隔86年后的同一天，中共出了个颟顸的习特勒，“亲自指挥、亲自部署”，撕毁了《中英联合声明》，让香港的“一国两制”正式寿终正寝。“港人治港”变成“爱国者治港”，开启了中共的魔鬼之旅。自此，香港彻底沦为中共国的一个省，那个香花满山的亚洲金融中心从此退出历史舞台。
 
-这篇文章并不让人感到惊讶，因为郭先生早就说过了共匪的“蓝金黄”计划。爆料革命这几年以来，我们对“蓝金黄”已经不再陌生，发生了这么多的事都已经验证了共匪的“蓝金黄”计划的巨大力量。美国的政治中心——国会山的政客都可以被“蓝金黄”，更何况科学界。但是，这些丑恶的交易终将会暴露在阳光下面，大众终将会明白真相。正义得到伸张之时就是这些作恶之人恶有恶报之日。
+51年前的今天，年仅27岁的中国人遇罗克“因言获罪”，被中共执行死刑。罪名就是他的一篇文章《血统论》，其中批评“老子英雄儿好汉、老子反动儿混蛋”的言论引发全国大讨论。这种以血统论亲疏的“生殖器治国”方式被一个青年戳穿，于是无耻的中南坑老杂毛们杀害了这个敢于挑战他们威权的年轻人。
 
-**原文翻译：**
+“莫道书生空议论，头颅掷处血斑斑！”这个被魔鬼绑架的民族，有多少热血青年就这样被戕害了。遗憾的是，这种戕害依然在继续，且变本加厉，冲出国门，冲出亚洲，走向世界了。中共按照血统培植的红色基因已经为害全球，他们邪恶的“种子”，就要掌控全世界了。
 
-# **美国科学界2020年5月向中共国军方做实际意义上的COVID-19简报**
+中共就是这样一个不讲契约、无视国际规则、无恶不作的犯罪团伙。其所到之处，欺行霸市、扰乱秩序，动用拉拢、腐蚀、恐吓、投毒、色诱、灭口等下三滥手段，把文明世界搞的乌烟瘴气，自己坐收渔利。如遇到不服或触犯了他们淫威的，便发动本国十四亿没有人权的韭菜进行抵制，从经济上对“不听话”者实施制裁。这已经是中共惯用的招数了。民主国家犯的最大错误就是以君子之心度中共之腹，他们对中共政权邪恶程度的认识连九牛一毛都算不上。他们对中共荼毒百姓、残害本国人民以及觊觎世界老大地位的野心没有相应的认知，导致长期以来对中共绥靖，使这条红色的恶龙就在世界的眼皮底下做大做强，甚至一发不可收拾。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/e75480da-a56a-4c34-b8ed-c746440d5cda.jpg?asset_id=529bf1ad-8b9b-4e75-b0ca-93c70ac191c1&amp;img_etag=%220854ecb3a0b433b60db5794bf6de4c58%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/e75480da-a56a-4c34-b8ed-c746440d5cda.jpg?asset_id=529bf1ad-8b9b-4e75-b0ca-93c70ac191c1&amp;img_etag=%220854ecb3a0b433b60db5794bf6de4c58%22&amp;size=1024)图片由Lawrence Sellin博士提供
+大致盘点近一两年被中共抵制过的物种，从挪威三文鱼到加拿大菜籽油，从澳洲煤炭、龙虾、红酒、和牛到当下的台湾凤梨。这些被抵制的都有一个共同点，就是在某件事情的处理上得罪了中共。挪威因为去年为香港抗争者提名诺贝尔和平奖，引起中共不满，于是挪威三文鱼奉旨染疫，被纷纷下架。加拿大菜籽油一直是质量响当当的放心油，却在孟晚舟大小姐被拘捕后“质量”出现问题。真是善解人意的好油啊，于是菜籽油被中共海关拒发通关文牒，不尴不尬地卡在了海关入口。至于澳洲，螃蟹吃得有点大，第一个斗胆要求对病毒真相追责，导致亲自部署病毒的习特勒龙颜大怒，直接抵制了几乎所有澳洲产品。80多条煤炭大船直接堵在码头数月之久无法卸货，许多澳洲公司损失惨重。而中共并未得逞，抵制归抵制，自己没有后手牌，导致本国大面积断电。
 
-**美国科学界去年五月与中方同行就中共国病毒（COVID-19）举行电话会议。问题是，中方参会人员与中共军方是有关联的。**
+这种杀敌一万自损十万的蠢事也只有中共干得出来，他们根本不在乎老百姓冻死饿死，反正他们躲在中南坑里继续作威作福。澳洲很争气，2020财年的经济数据不仅没有因为中共的抵制一蹶不振，反而相当地让人满意，挑头的总理为此还收获了满满的民意。同时，在今年开年之际就获得了人口大国印度的橄榄枝，海量订单也前呼后拥地来了，澳洲被中共抵制成强国了。至于抵制台湾凤梨，结果就更喜感了，引发了一场“自由凤梨”运动，全球多国抢购凤梨支持台湾。台湾外长昨天还应邀参加了由20个强国组成的“对华政策跨国议会联盟”线上会议，获得了一致声援，凤梨还没到收获旺季，已经被订购一空。
 
-上一期文章中，我讲述了美国国家科学院和一些美国科学机构的人在2020年2月如何帮助中共国掩盖新冠病毒来源于实验室的事实。
+谁都能看出来，这些国家订购的不是凤梨，而是对中共欺行霸市的野蛮行径强硬的回击，订购的是维护世界秩序的大国担当！中共团伙当然不懂这种情怀，在他们眼里只有食物，他们发起的所有抵制都与口腹之欲相关，而与正义、文明相去甚远。这个春天，中共国的爱国小粉红们不要吃凤梨了，甚至也别吃三文鱼、龙虾、澳牛了，因为在你们主子看来那就等于卖国了。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/b6e1ebfc-4042-4377-8be3-ef089b6559df.jpg?asset_id=59871b2b-6d4e-4b5d-be2a-4e4be9294e60&amp;img_etag=%22bb16dbbb45650df2fa8b005b0f0cfdfc%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/b6e1ebfc-4042-4377-8be3-ef089b6559df.jpg?asset_id=59871b2b-6d4e-4b5d-be2a-4e4be9294e60&amp;img_etag=%22bb16dbbb45650df2fa8b005b0f0cfdfc%22&amp;size=1024)彼得·达扎克（Peter Daszak）
+还有一条让中共颤抖的消息，今天，美国与欧盟达成协议，暂停互加关税，双方决定联手聚焦中共问题。这条报道虽然篇幅不长，但信息量巨大，人家这是要强强联手打流氓了。虽然文明社会对中共恶行认知不多，但仅凭已经公诸于众的恶行，就足够让中共解体一万回了。在爆料革命的推动下，全世界正在醒来，越来越多的国家认清了中共的真面目，越来越多的世界团体加入到这场“大灭共”的行动中来！曾经受过中共霸凌的国家，更应该看清楚这样一个事实：不解决中共这个毒瘤，早晚会被它戕害，就像现在的香港和缅甸一样，等中共的魔爪侵入要害的时候，再想反抗就晚了。
 
-具有讽刺意味的是，从那次惨败中产生的建议之一就是增加美国与中共国的科学互动，这个决定导致了又一个错误，因为同样出于政治动机或天真的顾问再次参与了事务。
+全世界爱好和平的人们，团结起来，和新中国联邦一起，联手灭共吧！
 
-2020年5月，美国国家科学院发起一系列电话会议，中美科学家就当前的冠状病毒疫情交换了信息。
-
-这些电话会议也可以说是向中共国军方做实际意义上的简报。
-
-大多数代表美方的野心勃勃的科学家都早曾和中共国合作研究，比如拉尔夫·巴里克（Ralph Baric）和彼得·达扎克（Peter Daszak），这两位和武汉病毒研究所是合作关系。此外，其中有些科学家在此前的三个月都曾明确支持中共的态度，说冠状病毒是起源于自然并非实验室，比如彼得·达扎克、斯坦利·普尔曼（Stanley Perlman）和 琳达·赛义夫（Linda Saif）。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/0bc6b82e-ab2d-40d7-b05c-92e23894669f.jpg?asset_id=675aecd4-8622-4619-ae8b-ea2c9a7694de&amp;img_etag=%224fa4feeaec8f43810bb21030d2ded325%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/0bc6b82e-ab2d-40d7-b05c-92e23894669f.jpg?asset_id=675aecd4-8622-4619-ae8b-ea2c9a7694de&amp;img_etag=%224fa4feeaec8f43810bb21030d2ded325%22&amp;size=1024)拉尔夫·巴里克（Ralph Baric）
-
-中方带头的科学家是高福，也叫George F. Gao，他是一名中共国病毒学家和免疫学家，曾担任中共国疾病预防控制中心主任，中国科学院大学存济医学院院长。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/7e90a287-c24c-4355-93be-7603a1773f5d.jpg?asset_id=32aab734-41a0-4905-b4f1-76f70b64989b&amp;img_etag=%22d9b10482e0d8786becfcd831a8d4a598%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/7e90a287-c24c-4355-93be-7603a1773f5d.jpg?asset_id=32aab734-41a0-4905-b4f1-76f70b64989b&amp;img_etag=%22d9b10482e0d8786becfcd831a8d4a598%22&amp;size=1024)高福
-
-2019年，他被选为美国国家科学院和美国国家医学科学院的外籍院士。
-
-高福也是中共国军方长期的研究合作者，分别于2002年、2005年、2006年、2007年、2008年、2010年、2011年、2013年、2014年、2018年、2019年、2020年发表论文。
-
-这些只是冰山一角，不包括他通过同伙与中共国军方的关系。
-
-根据2020年7月1日美国国家科学院的一封邮件，高福最感兴趣的两件事情；第一，美国血清调查的总体情况；第二，美国疫苗的进展情况，尤其是mRNA疫苗。
-
-这两点都不足以让人感到惊讶。
-
-那个时候，高福和两家中共国的生物科技公司一起在解放军总医院第五医疗中心传染病治疗研究中心（Treatment and Research Center for Infectious Diseases of the Fifth Medical Center of People’s Liberation Army General Hospital）进行血清研究。研究结果以《严重急性呼吸系统综合症冠状病毒2抗体作为COVID-19感染患者的一种血清标记的早期发现》形式发表。
-
-在美中电话会议期间，高福也在解放军总医院第五医疗中心进行冠状病毒的抗体研究。同时他的军方同僚逯光文在同一所医院做冠状病毒疫苗研究。逯光文毕业于广州的第一军医大学。
-
-**另外一名美中电话会议参会人是石正丽，武汉病毒研究所的“蝙蝠女”。很多人都怀疑病毒就是在武汉病毒研究所制造出来的。**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/6110c75c-41c9-4232-ac0a-7df172f0d27a.jpg?asset_id=35eecdbb-7382-4e75-9754-f5d67109b855&amp;img_etag=%22e5d84a4199663ed073d5680dd82810fd%22&amp;size=3290)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/6110c75c-41c9-4232-ac0a-7df172f0d27a.jpg?asset_id=35eecdbb-7382-4e75-9754-f5d67109b855&amp;img_etag=%22e5d84a4199663ed073d5680dd82810fd%22&amp;size=1024)
-
-在美国国家科学院的邮件中，电话会议的一名中方参与者是谭文杰博士，关于此人的描述是，中国疾病预防控制中心病毒病预防控制所病毒病应急技术中心主任和教授。
-
-美国国家科学院没有提到的是，谭文杰博士属于中共国军队中央战区和中国武汉人民解放军总医院。
-
-徐建青，另外一名美中电话会议的参与者，也和中共国军方一起工作，经常和姜世勃一起合作研究。姜世勃与中共国军方和多个美国病毒实验室的大量关联在一篇名为《中共国军方与美国资金的关联以及冠状病毒的实验室起源》的文章中。
-
-所以基本上，这些由美国科学界安排的电话会议很可能就是直接向中共国军方提供潜在的关键信息。
-
-[原文链接](https://www.thegatewaypundit.com/2021/03/u-s-scientific-establishment-conducted-de-facto-covid-19-briefings-chinese-military-may-2020/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
+[!\[\]()!\[\](https://spark.adobe.com/page/saxesedaAf6Ec/images/21a9f652-3b80-4f10-8147-6dd1313ca5f4.jpg?asset_id=2d427057-8d81-4fab-98dd-13405405bb87&amp;img_etag=%22f27d541bc6093fa2b116f613e553f21b%22&amp;size=2560)](https://spark.adobe.com/page/saxesedaAf6Ec/images/21a9f652-3b80-4f10-8147-6dd1313ca5f4.jpg?asset_id=2d427057-8d81-4fab-98dd-13405405bb87&amp;img_etag=%22f27d541bc6093fa2b116f613e553f21b%22&amp;size=1024)
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+🔖点击阅读英国伦敦喜庄园在G-News 的更多精彩文章
 
-+1
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/saxesedaAf6Ec/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/saxesedaAf6Ec/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+
+0

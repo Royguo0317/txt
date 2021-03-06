@@ -1,235 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 呼吁对COVID-19的起源进行全面和无限制的国际法医调查的公开信
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/954606/)
+## 【世事解评】凤梨与流氓
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/954681/)
 
-**翻译: Schnecke**
+作者：纽约香草山美食部  文石美食 校对/发稿：飞虹
 
-**校对: pv0，慧心**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/001234.png)
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
 
-**1.  导言**
 
-找到中共病毒SARS-CoV-2的起源对于更好地应对当前的大流行病和降低未来的风险都是至关重要的。遗憾的是，在疫情首次爆发一年多后，这场大流行的起源仍然不明。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Jietu20210306-215104.jpg)图片来源：ftvnews.com.tv
 
-作为独立和集体研究COVID-19大流行病起源的科学家、社会科学家和科学传播者，我们认为，必须对所有关于大流行病起源的假设进行彻底的研究，并在不顾及政治或其他敏感因素的情况下提供所有必要的资源。
+去台湾，总要买凤梨酥，而且尽可能多买，在行李箱之外，还要把手提袋也塞得满满的。虽然上下飞机一路上很狼狈，但是心里觉得值得。
 
-根据我们的分析，并经世界卫生组织（WHO）和中国有关部门召集的全球研究证实，目前还没有证据表明这种病毒完全是自然起源。人畜共患病假说主要基于以往人畜共患病事件的模式，只是SARS-CoV-2可能起源的几种假说之一，其中包括研究相关的意外假说。
+和日本近年兴起的白色恋人巧克力相比，买凤梨酥当伴手礼总觉得有种亲近土地的感觉。毕竟日本北海道只能养奶牛却无法栽种可可树，“白色恋人”的口感体现的是制作工艺的精良，而凤梨酥中的凤梨和冬瓜都是台湾岛土壤中实实在在生长出来的，以凤梨酥赠送亲友，好像是在一起分享大自然的赐予。
 
-虽然世界卫生大会在2020年5月授权的 “合作 “发现过程是为了能够全面检查大流行的起源，但我们认为，这一努力中的结构性限制使得世卫组织召集的任务几乎不可能实现这一愿望。
+谁会想到种植凤梨的农人突然成为一场阴谋的受害者。就在台湾农人看着凤梨在成排的叶丛中逐渐长大，期盼辛苦劳作能换取市场回报的时候，远在大陆一些显耀机关里，一些人却早把即将收获的凤梨当作暗算的目标和威胁的砝码。
 
-特别是，我们希望提高公众对以下事实的认识：在这一进程中召集的联合小组中有一半是由中国公民组成的，他们的科学独立性可能受到限制；联合小组的国际成员不得不依靠中共国当局选择与他们分享的信息；以及任何联合小组的报告必须得到联合小组的中国和国际成员的批准。
+大陆是台湾凤梨的主要出口市场，九成的凤梨都会销往大陆。大陆海关声称从台湾凤梨中检测出有害生物，从2021年3月起暂停输入。对严重依赖大陆市场的台湾凤梨农户及双方的相关贸易从业人员，这都是一个猝不及防的打击。对从来不在乎民生的中共国来说，给台湾方面造成的经济损失越大，给普通农户造成的精神压力越大，就会越得意：中共随便一捏就可以卡住台湾的脖子，让你们难受到什么程度，要看政治形势的需要。如果还不跪下，后面更阴毒的招数多的是。
 
-因此，我们得出的结论是，联合小组並不具有授权、独立或必要的渠道对所有相关的SARS-CoV-2起源假设——无论是自然溢出还是实验室/研究相关事件 — 进行全面和不受限制的调查。
+从食物或包装中检测出有害物质，也是中共国现在威胁贸易伙伴常用的一招，至于怎么检测的，检测出的到底是什么，凭一张无赖的嘴，怎么说都可以。 而对方目前唯一的应对方式无非是政府官员在媒体前发表一下抗议声明。和流氓做生意的代价就是把牙咬碎往自己肚子里咽。而这个流氓正是西方世界亲手接纳到自己的贸易体系中，并用西方的资金和技术亲手把它养大养肥的。东郭先生的仁义值得钦佩，所以被当作狼的早餐是不是也死而无憾？
 
-我们还担心联合小组的工作被媒体不准确地报道为独立调查，其结论反映了世卫组织的结论。2021年2月9日的武汉联合新闻发布会就是这种误解的一个很好的例子。虽然调查结论是联合小组的结论，但被广泛报道为代表世卫组织本身。
+在台湾，凤梨被大陆禁运只是序幕，后面才是真正的故事。从官方到民间，想办法多消费凤梨的呼吁在网络上发酵。新鲜的凤梨不仅可以被当作水果直接食用，还可以入菜，是可以利用开发的食材。以前只知道在肉类料理中使用凤梨，那种带果香的酸甜味，不仅解油腻，而且也会让肉食的味道更丰富。凤梨咕咾肉、凤梨排骨、凤梨虾球都是很大众的做法。现在台湾“农粮署”竟然推荐用凤梨加上姜丝和木耳一起大火快炒。虽然猜不出味道如何，却觉得很感动。
 
-作为世卫组织及其使命的坚定支持者，我们认为必须明确指出，联合委员会的任何调查结果虽然可能在有限的范围内有用，但既不代表世卫组织的官方立场，也不是不受限制的独立调查的结果。
+民众纳税供养的政府机构本来就该为民办事，凤梨滞销，负责农业的机构责无旁贷，要帮着想办法，帮着吆喝。但是作为在大陆成长起来的人会觉得心里泛酸，中共政权的机关里养的都是大老爷，怎么会放下身段关心没有权势没有背景的普通人怎么活？只能盼着他们把心思多放在内斗上，放在割韭菜、整人上的精力就能少一点点。
 
-因此，我们认为，必须勾勒出全面和不受限制的调查的轮廓，以此制定一个标准来评估当前和今后的努力。
+随后，台湾的机关和学校食堂开始增加采购凤梨，在提供的午餐中以凤梨入菜。很快，台湾军方也加入进来。夸张的传说是，兵哥的三餐都吃各种凤梨产品。更令人感到温暖的是，有日本知名人士也在网上号召民众帮助台湾。日本原本只占台湾凤梨出口市场的百分之一，看来凤梨在日本民间并非很热门的水果，现在也在帮助提升消费量。
 
-**2.  世界卫生组织召集的全球研究的局限性**
+如果我是台湾农人，我会永远记住在这一次凤梨风波中，谁恶意害人，谁热心救助，谁敌谁友，黑白分明。强权可以霸道一时，人心却可永存一世。
 
-以下核心问题破坏了现有的世卫组织召集的联合研究。
+（本文仅代表作者本人观点）
 
-- 规定联合调查的确切目标、义务和责任的《职权范围》是在没有足够透明度的情况下谈判达成的(2020年7月)，然后在拖延了很长时间后才公布(2020年11月)。
 
 
-- 这些职权范围受到了严重的限制，例如规定大部分实地工作必须由中方进行，结果只需以中方选择的形式传达给联合调查组的国际成员进行审查和讨论。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-- 联合研究的中间报告和最终报告，都是依靠联合小组的17名中方成员和17名国际成员达成的共识。因此，在这一过程中形成的报告最终很可能是一种必要的妥协，部分基于政治和其他方面的限制。
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-
-- 团队中国际专家的甄选过程没有充分甄别利益冲突。
-
-
-- 该小组所代表的技能纯粹侧重于公共卫生和人畜共患病，而不利于适合调查实验室或研究相关事故的法医技能。
-
-
-- 该小组並不具有获得详细的实验室记录、数据和人员的授权，以至于无法自信地评估各种假设。
-
-
-- 该小组是在中国国务院广泛的禁言令的背景下开展工作的，该禁言令阻止任何自发地分享任何有关该大流行病的信息，并与中共国政府协调谨慎地发布任何此类信息。该禁言令是在2020年2月世卫组织联合代表团离开中国一周后实施的。
-
-
-- 联合小组的国际成员自己也承认，他们经常依赖中国同行给他们的口头保证，而不是独立调查，特别是关于实验室或研究相关事故的可能性。
-
-
-- 至少有一名国际小组成员在参与调查之前，就对纯人畜共患病的假设表示了强烈的信念——当时几乎没有任何关于SARS-CoV-2病毒的数据——并对与实验室有关的起源不屑一顾。这些公开言论使人对他的科学客观性产生严重怀疑。
-
-
-**3.  全面调查应该是什么样的**
-
-由于联合小组的调查没有达到目标，我们认为，国际社会必须阐述如何组织全面和不受限制的调查。
-
-这种调查需要：
-
-- 由一个真正独立的小组进行，不存在未解决的利益冲突，不受任何特定议程或国家的全部或部分控制。
-
-
-- 由流行病学家、病毒学家、野生动物专家、公共卫生专家、法医调查员、生物安全和生物安保专家等多学科人员组成。
-
-
-- 包括几位具有中文能力并了解中国文化的人，他们可以帮助解释原始事件中的行为，也可以帮助解读调查本身的事态发展。
-
-
-- 开始其研究时，要考虑每条途径的所有可能的情况。这些情况应该包括
-    - 有/无中间宿主的纯人畜共患病事件。
-
-
-    - 实验室员工或一些陪同的非实验室人员在采样点的感染。
-
-
-    - 采集的动物和/或样品运输过程中的感染。
-
-
-    - 在武汉某实验室发生实验室内感染（LAI）。
-
-
-    - 非LAI的实验室逃逸，例如通过废物处理，或动物的逃逸或不当处置。
-
-
-- 遵循常见的法医调查方法，基于：
-    - 传统的严格的现场调查。
-
-
-    - 案头的分析工作来弄懂收集到的材料。
-
-
-    - 开源情报，帮助收集更多信息。
-
-
-    - 审查以往的人畜共患病事件和与实验室有关的事故，从中可以获得技术和体制方面的了解。
-
-
-- 对所有应关注的场所、记录、样本和人员有充分或重要的接触机会，包括：
-    - 武汉的主要市场。
-
-
-    - 所有已知曾研究过冠状病毒或与研究冠状病毒的团体共享设施或设备的实验室和机构，无论是中国的还是国际的。
-
-
-    - 2019年秋季以来早期或疑似患者的住院记录，包括与患者或接触者的访谈。
-
-
-    - 重要病原体采样点，如墨江矿区。
-
-
-    - 目前和过去的人员，如2019年实验室的员工和特定采样点上的人员。
-
-
-- 可全面查阅涉及冠状病毒的实验室和机构的所有相关记录。研究，包括：
-    - 环境报告。
-
-
-    - 检查报告。
-
-
-    - 维护日志。
-
-
-    - 实验室实验记录。
-
-
-    - 原始序列读数。
-
-
-    - 样品的运输记录。
-
-
-    - 试样销毁记录。
-
-
-    - 人员日志。
-
-
-    - 事故报告。
-
-
-    - 动物养殖记录。
-
-
-    - 采样行程记录，包括2013年墨江采样行程。
-
-
-    - 病原体、样本和分离物的关键数据库，包括那些脱机的数据库。
-
-
-- 能够充分获取细化数据，最好是直接从源头获取原始数据。不是汇总数据。如有必要，可对这些数据进行匿名化处理；在法律上不应该有任何限制访问的理由。
-
-
-- 有权全面接触市场样品、环境样品、医院样品和任何可能的样本，如废水和血库，并获得充分许可进行独立测序或其他检测。
-
-
-- 可全面查阅中国疾控中心病例记录和相关的基层医院和/或诊所记录。
-
-
-- 能充分使用其他中国描述肺炎病例的病例数据库。
-
-
-- 能够进行保密访谈，包括对早期病例及其亲属，以及过去和现在与有关地点或机构有关的人员，如市场、医院、采样点和实验室。
-
-
-- 部署一个安全的报告渠道，让人们以保密方式提供信息。无论他们在哪里，都不用担心惩罚或报复。
-
-
-**4.  结论和今后的步骤**
-
-我们认识到，作为一个必须依靠其成员国的合作的国际机构，世界卫生组织在这类调查中所能取得的成果是有限的。我们无意破坏世卫组织，它是在全球有巨大需要的时候，在充满挑战的情况下开展工作的。
-
-虽然联合小组的调查对国际社会来说是一个重要的机会，以获得一些有限的、精选的信息，但不幸的是，事实证明，它是不透明的以及受限制的，大大影响了调查的科学有效性。
-
-全世界有200多万人死亡，1亿多人感染了COVID-19，而且大规模的全球混乱影响到世界上一些最脆弱的人口。因此，我们绝对不能承受任何未能彻底而且可信地对这一流行病的起源所进行的调查。如果我们不能全面和勇敢地检查这一流行病的起源，那么，未来我们将冒着毫无准备面对可能更严重的大流行病的风险。
-
-由于我们认为联合小组的进程和迄今所做的努力并不构成彻底、可信和透明的调查，所以我们呼吁国际社会建立一个能构成彻底、可信和透明的结构和进程。
-
-**签署人：**
-
-- Colin D Butler, Honorary Professor, National Centre for Epidemiology and Population Health, Australian National University, Canberra, Australia (ORCID 0000-0002-2942- 5294)
-- Bruno Canard, DR CNRS, molecular virologist, Aix Marseille University, France, (ORCID 0000-0003-4924-1991)
-- Henri Cap, PhD, zoologist, Museum of Natural History, Toulouse, France
-- Y. A. Chan, Postdoctoral Fellow, Broad Institute of MIT & Harvard, Cambridge, USA (ORCID 0000-0002-0731-637X).
-- Jean-Michel Claverie, Emeritus Professor of Medicine, virologist, Aix-Marseille University, France, ( ORCID 0000-0003-1424-0315)
-- Fabien Colombo, PhD Candidate, Communication and sociology of science, MICA, Université Bordeaux Montaigne, France.
-- Virginie Courtier, Evolutionary geneticist, Institut Jacques Monod, CNRS, France (ORCID 0000-0002-9297-9230).
-- Francisco A. de Ribera, Industrial Engineer, MBA, MSc(Res), Data scientist, Madrid, Spain (ORCID 0000-0003-4419-636X)
-- Etienne Decroly, DR CNRS, molecular virologist, Aix Marseille University, France, (ORCID 0000-0002-6046-024X)
-- Rodolphe de Maistre, MSc engineering, MBA, ex auditor IHEDN, France (ORCID 0000- 0002-3433-2420)
-- Gilles Demaneuf, Engineering (ECP), Data Scientist at BNZ, Auckland, NZ, (ORCID: 0000-0001-7277-9533) (Co-Organizer)
-- Richard H. Ebright, Professor of Chemistry and Chemical Biology, Rutgers University, USA
-- André Goffinet, MD, PhD, Emeritus Professor, University of Louvain Med Sch, Belgium
-- François Graner, biophysicist, Research Director, CNRS and Université de Paris, France, (ORCID 0000-0002-4766-3579)
-- José Halloy, Professor of Physics, Biophysics and Sustainability, Université de Paris, France, (ORCID 0000-0003-1555-2484)
-- Milton Leitenberg, Senior Research Associate, School of Public Affairs, University of Maryland, USA
-- Filippa Lentzos, Senior Lecturer in Science & International Security, King’s College London, United Kingdom (ORCID 0000-0001-6427-4025)
-- Rosemary McFarlane, PhD BVSc, Assistant Professor of Public Health, University of Canberra, Australia (ORCID 0000-0001-8859-3776)
-- Jamie Metzl, Senior Fellow, Atlantic Council, USA (Co-Organizer)
-- Dominique Morello, Biologist, DR CNRS and Museum of Natural History, Toulouse, France
-- Nikolai Petrovsky, Professor of Medicine, College of Medicine and Public Health, Flinders University, Australia
-- Steven Quay, MD, PhD, Formerly Asst. Professor, Department of Pathology, Stanford University School of Medicine, USA (ORCID 0000-0002-0363-7651)
-- Monali C. Rahalkar, Scientist ‘D’, Agharkar Research Institute, Pune, India
-- Rossana Segreto, PhD, Department of Microbiology, University of Innsbruck, Austria (ORCID 0000-0002-2566-7042)
-- Günter Theißen, Dr. rer. nat., Professor of Genetics, Matthias Schleiden Institute, Friedrich Schiller University Jena, Germany, (ORCID 0000-0003-4854-8692)
-- Jacques van Helden, Professor of bioinformatics, Aix-Marseille University, France, (ORCID 0000-0002-8799-8584)
-
-
-
-
-
-
-
-
-**文章来源: **
-
-[OPEN LETTER Call for a Full and Unrestricted International Forensic Investigation into the Origins of COVID-19](http://OPEN%20LETTER%20Call%20for%20a%20Full%20and%20Unrestricted%20International%20Forensic%20Investigation%20into%20the%20Origins%20of%20COVID-19)
-
-
-
-* * *
-
-**发布: 法国巴黎七星编辑组**
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
