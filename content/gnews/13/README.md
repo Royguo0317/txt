@@ -1,13 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 纳瓦罗担心CCP病毒是一种生物武器
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/953401/)
+## 3/5/2021 郭先生直播：历史上的3月5日 &#8211; 历史总是惊人的相似！
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/953565/)
 
-3/2/2021 纳瓦罗担心CCP病毒是一种生物武器
+1919年3月5日德国一战战败、被迫签订凡尔赛条约；1935年3月5日希特勒撕毁条约，美、英、欧洲采取了绥靖政策，和今天中共、习王要在香港推出新选举法如出一辙。
+
+
 
 By： 【秘密翻译组 G-Translators】
-
-
 
 0
