@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【疫情下的西班牙】西班牙卫生部监测到十种中共病毒菌株
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/954799/)
+## 【疫情下的西班牙】世界各国中共病毒疫情图示
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/954807/)
 
 - 编辑：神奇四侠
 - 作者：gokuabuela
@@ -11,28 +11,18 @@
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年3月6日电/西喜社——**西班牙卫生部已经在西班牙监测到中共病毒共十个变种。
-B.1.1.7变种(英国)、
-B.1.351变种(南非)
-P1变种(巴西，来自马瑙斯地区)，
-P.2变种(巴西里约热内卢)、
-B.1.525变种(尼日利亚)、
-B.1.429变种(加利福尼亚)
-VOC 202102/02变种(英国变种非常相似)。
-除上一次报告中已经提到的外，又增加了
-B.1.526（来自纽约）、
-C.16（来自葡萄牙）和
-A.23.1（在英国发现）。
+**西班牙2021年3月6日电/西喜社——**图表中展示的是14天10万居民感染人数，是判断中共病毒感染风险的一个重要数据。
+数据统计时间从2020年7月7日至2021年3月4日。
+大于250例： 极度高风险
+小于250，大于150例： 高风险
+小于150，大于50例：中等风险
+小于50例：低风险
 
-其中哪些在西班牙已经爆发？
-英国变种是在西班牙某些地区爆发非常迅速的病毒.
-南非变种有54例被发现
-P.1巴西变种有两个疑似病例和三个已确诊的病例
-P.2变种(巴西里约热内卢)有两个疑似病例，来自一个从巴西来旅游的家庭。还有另外三个确诊病例以及在某家医院爆发的9例。
-2021年1月通过测序发现1例尼日利亚病例，
-随机筛查发现6例加州B.1.429病例。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/bc15096a-45e2-4ff6-8dfb-5c65639ad463.jpg)
 
-**新闻来源：[ABC新闻](https://www.abc.es/sociedad/abci-sanidad-vigila-diez-cepas-coronavirus-202103051616_noticia.html)**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1a3ef0f0-7657-49a2-a48c-1f4ba67ce0f5.jpg)
+
+**新闻来源：[国家报](https://elpais.com/sociedad/2020-12-14/el-mapa-del-coronavirus-en-el-mundo-asi-avanzan-los-contagios-y-las-muertes-dia-a-dia.html)**
 
 ![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
 
