@@ -1,80 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 病毒专家小组要求对新冠起源进行新的调查
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/954387/)
+## 【热点播报】欧洲委员会通过法令：不得强制接种疫苗，不得歧视未接种疫苗者
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/954471/)
 
-*新闻来源：《华盛顿时报》| 作者：比尔·戈茨 | 发布时间：2021年3月4日*
+作者：纽约香草山写作组   四季
 
-*翻译/简评：新街口 | 校对/审核：万人往 | Page：Daoiii*
+Humansarefree.com网站3月6日报道， 欧洲委员会议会通过了一项决议，规定不得强制接种疫苗，任何人不得因未接种疫苗而受到歧视。欧洲委员会议会是欧洲人权法院所属的国际机构。(不要与欧盟混淆，英国仍然是其成员)。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/EU.png)欧洲人权法院，欧洲议会的一部分
+法令的内容是这样的：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CZABv3sqwN6Cs/images/9dcb495f-2951-459d-ba6e-aa260da8b45f.jpg?asset_id=1862de84-2566-46ea-82b5-033f30fcf260&amp;img_etag=%22e48c4f3adff0cd14e0273a9c1d53e7e9%22&amp;size=2560)](https://spark.adobe.com/page/CZABv3sqwN6Cs/images/9dcb495f-2951-459d-ba6e-aa260da8b45f.jpg?asset_id=1862de84-2566-46ea-82b5-033f30fcf260&amp;img_etag=%22e48c4f3adff0cd14e0273a9c1d53e7e9%22&amp;size=1024)
+7.3 关于确保高疫苗接种率。
 
-***简评：***
+7.3.1 确保告知公民，接种疫苗不是强制性的，任何人如果不愿意接种，不会受到政治、社会或其他方面的压力。
 
-**比尔·戈茨先生这篇文章表达出了全球科学界和美国政府对2月份世卫组织对中共病毒起源调查结果的否定。**
+7.3.2 确保没有人因为可能的健康风险或不想接种疫苗而受到歧视。
 
-**首先，文章从调查组成员的比例（约一半是中共国人员）、成员的背景（包括了与中共狼狈为奸多年的彼得·达扎克）以及调查行动受到中共严格管控（例如调查组根本没有接触到实验室记录、数据和人员）等诸多事实，强烈质疑了此次调查的完整性和公正性。**
+**欧洲委员会：疫苗护照践踏人权**
 
-**其次，这篇文章引用了史蒂文·奎伊博士的一份193页的研究论文和川普政府1月发布的武汉病毒研究所的事实报告，向读者揭示了病毒的起源是中共实验室制造，并有非常大的可能是从武汉病毒实验室中意外或有意泄漏的。**
+大会敦促各成员国尽早采取有效措施，抵制对中共病毒疫苗的错误信息、虚假信息和犹豫不决的情况。这一清晰的关于医疗应本着长期自愿的原则的阐述值得欢迎。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CZABv3sqwN6Cs/images/a6a01c1a-c984-4e7a-a9b2-b056296859b7.jpg?asset_id=4d93a607-0ef0-4f85-b6ff-7b18be05061b&amp;img_etag=%221d6fd93b2837537c3ec455a7100296b9%22&amp;size=2560)](https://spark.adobe.com/page/CZABv3sqwN6Cs/images/a6a01c1a-c984-4e7a-a9b2-b056296859b7.jpg?asset_id=4d93a607-0ef0-4f85-b6ff-7b18be05061b&amp;img_etag=%221d6fd93b2837537c3ec455a7100296b9%22&amp;size=1024)
+对于是否强制接种疫苗是有争议的。强制接种肯定是对公民自由的严重侵犯。在过去的一年里，我们可能已经看到了足够多的这种情况，它可以持续一生。人们应该有选择的自由。
 
-**最后，除了文章呼吁全世界必须要彻底查清病毒起源外，我们还看到，执政的民主党拜登政府已经完全认可了前任共和党川普政府对武汉病毒实验的事实认证；这是以毒灭共、美国两党联合灭共一个具体实例。**
+目前有些国家规定，只有持有疫苗接种证才可以入境。很多国家也在倡议或实施疫苗护照。欧洲议会通过的不得强制接种疫苗的法令，希望会让全世界各国能够从人权的角度重新审视疫苗的接种和后续的政策，归还人类的天赋人权-自由给人民。
 
-***原文翻译：***
+参考阅读：
 
-# **病毒专家要求对COVID-19的起源进行新的调查**
+[Council Of Europe Decrees Vaccines Must Not Be Mandatory And The Non-Vaccinated Must Not Be Discriminated Against](https://humansarefree.com/2021/03/council-of-europe-decrees-vaccines-must-not-be-mandatory-and-the-non-vaccinated-must-not-be-discriminated-against.html)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CZABv3sqwN6Cs/images/09b4db62-efa0-411b-ad95-64e930223f57.png?asset_id=8ffb0aa5-d696-4dc6-a705-a04b01bd3c3c&amp;img_etag=%22573c75db4c5091f4f89aae0c8480485d%22&amp;size=2560)](https://spark.adobe.com/page/CZABv3sqwN6Cs/images/09b4db62-efa0-411b-ad95-64e930223f57.png?asset_id=8ffb0aa5-d696-4dc6-a705-a04b01bd3c3c&amp;img_etag=%22573c75db4c5091f4f89aae0c8480485d%22&amp;size=1024)这张由美国疾病控制与预防中心提供的2020年电子显微镜图像显示了导致COVID-19的SARS-CoV-2病毒颗粒。科学家表示，现在预测冠状病毒的未来还为时过早，但许多人怀疑它是否会完全消失。(Hannah A. Bullock, Azaibi Tamin/CDC，美联社报道)
+编辑/校对/发稿：天涯客
 
-一个国际病毒专家小组星期四呼吁对冠状病毒的出现进行一次新的“全面而不受限制的”国际法医调查，并对中共国在的病毒大流行起源的掩盖和缺乏透明度表示担忧。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+ 更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+ 更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+ 圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-在世界卫生组织的专家小组对病毒的起源进行了调查之后，科学家们呼吁进行新的调查。批评者说，世卫专家小组这次在访问中共国后发表的报告是不完整的、可疑的。
-
-由26位著名病毒学家、流行病学家和其他医学专家组成的小组在网上发布的一封公开信中说：“发现SARS-CoV-2的起源对于更好地应对当前的流行病和降低未来流行病的风险至关重要。”他们补充说：“不幸的是，在首次爆发后的一年多时间里，大流行的起源仍然未知。”
-
-签署这封信的科学家包括来自美国、澳大利亚、新西兰、法国、英国、西班牙、比利时和德国的专家。其中11名专家来自法国的学术和医学机构。
-
-现在出现了两种相互竞争的理论：即该病毒是从蝙蝠传染到尚未确定的中间动物再传染到人类的“人畜共患病”跳跃，或者是由于武汉病毒研究所进行的病毒研究以某种方式泄漏的。世卫组织调查组负责人在武汉告诉记者，根据他们的调研，实验室泄露理论“极不可能”，而中共国官员极力否认这种可能性。
-
-但是，世卫组织的结论遭到拜登政府的质疑。拜登政府似乎正在采纳川普政府的主要论点，即间接证据强烈表明，该病毒是从武汉实验室意外或有意泄漏的。
-
-科学家在信中指出，关于病毒起源的所有假设都需要彻底解释，“不需要考虑政治或其他敏感性”。
-
-信中说：“根据我们的分析，并已得到世卫组织和中共国当局召集的全球研究的证实，目前尚无证据表明该病毒是完全自然起源的。”
-
-由于中共国对世卫组织最近的访问施加了结构性的各种限制，各方都要求再进行一次更好、更详细的调查。
-
-信中说：“特别是，我们希望提高公众的认识，在这一过程中召集的联合小组有一半是由中共国公民组成的，他们的科学独立性可能受到限制；联合小组的国际成员不得不依赖中共国当局选择与他们分享的信息；任何联合小组的报告都必须得到联合小组的中共国和国际成员的批准。”
-
-研究人员说，中共国参加世卫组织可能会使调查结果歪曲。调查小组也没有接触到进行彻底调查所需的实验室记录、数据和人员。
-
-此外，这封信还指出，世卫组织的一名成员已经对实验室理论不屑一顾——显然是指纽约生态健康联盟的彼得·达扎克（Peter Daszak），他曾在武汉研究所进行过广泛的病毒研究。这封信说，达扎克先生在公开声明中驳斥了实验室泄漏理论，“对他的科学客观性提出了严重怀疑”。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/CZABv3sqwN6Cs/images/07e3cc32-5502-42b8-bc01-1f3acb750aa9.jpg?asset_id=05cede4a-4cce-40ac-8dd4-bad56e561bd8&amp;img_etag=%2260a230a73fd0d9ada1ecff8b12844180%22&amp;size=2560)](https://spark.adobe.com/page/CZABv3sqwN6Cs/images/07e3cc32-5502-42b8-bc01-1f3acb750aa9.jpg?asset_id=05cede4a-4cce-40ac-8dd4-bad56e561bd8&amp;img_etag=%2260a230a73fd0d9ada1ecff8b12844180%22&amp;size=1024)
-
-研究人员说，这项新的调查应包括各种专家，包括流行病学家、病毒学家、野生动物专家、公共卫生专家、法医调查员以及生物安全专家，所有的理论都应该检查。
-
-信中说：“尽管（世卫组织）调查是国际社会获取一些有限且高度策划的信息的重要机会，但不幸的是，它已被证明是不透明和限制性的，极大地损害了调查的科学有效性。”
-
-鉴于全球COVID-19疫情造成的损失，“我们无法负担一个不是绝对彻底、可信的对这种大流行起源进行调查的代价。”
-
-签约的美国专家之一是史蒂文·奎伊（Steven Quay），他以前是斯坦福大学医学院病理学系的医生。奎伊博士发表了一份长达193页的研究论文，得出的结论是：“合理地怀疑，SARS-CoV-2不是天然的人畜共患病，而是实验室衍生的。”
-
-在川普政府最后的几天，国务院制作了一份情况说明书，其中包含新的信息，将武汉病毒研究所与可能的疾病暴发联系起来。情况说明书指出，在2019年12月首次已知的该病暴发之前，该研究所的工人患上了类似COVID的症状。
-
-该报告还称，该研究所正在研究一种与COVID-19相似度为96％的蝙蝠冠状病毒，并且正在为中共国军方进行包括动物实验在内的研究。
-
-**🔗[原文链接](https://www.washingtontimes.com/news/2021/mar/4/virus-experts-demand-new-probe-into-origins-of-cov/)**
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/CZABv3sqwN6Cs/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/CZABv3sqwN6Cs/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-0
++1

@@ -1,25 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法国当局将阻止阿斯利康中共病毒疫苗对欧盟外的供应
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/954408/)
+## 2021年3月6日 文贵先生盖特 1
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/954542/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-编辑上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-06_18-19-56.jpg)[shangbaoindonesia.com](http://www.shangbaoindonesia.com/read/2020/12/03/society-1607001699)
-03月06日，法国社会事务和卫生部长奥利维尔·维兰在接受电视采访时表示，法国可能会效仿意大利，阻断阿斯利康中共病毒疫苗对欧盟以外地区的供应。
+3/05/2021 郭先生直播：历史上的3月5日 – 历史总是惊人的相似！ 1919年3月5日德国一战战败、被迫签订凡尔赛条约；1935年3月5日希特勒撕毁条约，美、英、欧洲采取了绥靖政策，和今天中共、习王要在香港推出新选举法如出一辙 3/05/2021 Miles Guo: March 5th in History – History is always shockingly similar! On March 5th, 1919, Germany had to enter into the Treaty of Versailles since it lost the WWI; On March 5th, 1935, Hitler breached the treaty and the U.S., UK, and European countries adopted the appeasement policy, which was exactly the same with today – where the CCP, Xi Jinping and Wang Qishan are pushing the new Hong Kong Election Law
 
-在前夕，已知意大利当局已阻止25 万剂量的阿斯利康中共病毒疫苗向澳大利亚的出口，这些疫苗是由意大利阿斯利康的工厂生产。罗马在药物出口管制机制框架内将其决定通知了欧洲联盟，欧洲委员会对此表示支持。
 
-“当然，我理解意大利的做法。我们也可以这样做。”维兰说。法国当局正在与意大利当局和所有欧洲伙伴讨论疫苗供应问题，以制定统一的办法来解决这一问题。他指出“从第一天起，法国就相信欧洲的共同方针”。
 
-彭博社报道，意大利成为第一个阻止向欧盟以外地区出口疫苗的国家。同时，一名欧盟官员告诉CNN，从1月30日到3月1日，布鲁塞尔批准了174项供应该药物的请求，包括向阿根廷、加拿大、智利、中共国、南非、美国等国家供应。
+[【2021年3月6日】文贵先生盖特原文](https://gtv.org/getter/60438c559534a74bcaf02496)
 
-欧盟委员会在1月底引入了一个机制，如果药品制造商未能满足集团内的订单，布鲁塞尔可以阻止疫苗的出口。上周，意大利总理马里奥·德拉吉（Mario Draghi）呼吁对未能履行对欧洲国家交付承诺的公司采取更强硬的手段。
-
-路透社2月底报道称，今年第二季度阿斯利康公司向欧洲国家供应的疫苗数量可能只有计划的一半–不到9000万剂，而不是合同规定的1.8亿剂。阿斯利康表示，它正在努力改善欧盟的供应链表现，并希望能够“使交付量更接近预购协议中规定的目标”。1月底，阿斯利康首席执行官帕斯卡尔·索里奥表示，该公司的生产进度落后于计划两个月。
-
-参考链接：[https://www.rbc.ru/politics/06/03/2021/6042b6019a79474526ef973d](https://www.rbc.ru/politics/06/03/2021/6042b6019a79474526ef973d)
+**喜联盟Gnews编辑部**
 
 0
