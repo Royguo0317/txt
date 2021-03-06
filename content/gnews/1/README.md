@@ -1,33 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】05/03/2021:历史惊人重覆—中共废除一国两制和基本法；同日希特勒撕毁凡尔赛条约
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/952816/)
+## 疫情将造成长期失业
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/952775/)
 
-**制作:Cantonese工作室**
-播报: 【安妮】
-资料整理: 【安妮】【Elaine】【郁金香】【极寒将至】
-海报制作: 【侬民】
-视频制作: 【Shawn】
-上传: 【Shawn】
-**摘要:**
+```
+新闻来源：瑞士咨询 （swissinfo）
+记者: 宝琳·图鲁班（Pauline Turuban）
+发表时间： 05.03.2021
+```
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/20210305-zhTW-01.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/20210305-zhTW-02.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/20210305-zhTW-03.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/20210305-zhTW-04.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/20210305-zhTW-05.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/20210305-zhTW-06.jpg)
-7.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/20210305-zhTW-07.jpg)
-8.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/20210305-zhTW-08.jpg)
-9.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/20210305-zhTW-09.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/52823939_401.jpg)图片来源：路透社/布莱恩·伍尔斯顿
+
+为缓解疫情扩散，包括瑞士在内大多数国家采取不同程度的封城，宵禁等措施。这些举措在不同程度上导致企业损失，部分企业已关停且被迫裁员。
+
+瑞士的失业率同比其他国家较低，但根据国际劳工组织 (法语BIT, 英语ILO)今年1月的统计,5%的失业率还是创下该国2020年春季以来新高。因为疫情难以控制，短期内就业情况无法得到改善，失业期可将持续数月，甚至数年，人们的恐慌与日俱增。
+
+根据瑞士联邦统计局的数据，该国在2020年第四季度长期失业人数为89,000，比去年同期增加了22,000人。洛桑大学拉法埃尔·拉利夫 (Rafael Lalive) 表示： “在未来几个月内失业人数可能继续增长，但劳动力市场还没有恶化到彻底崩溃的地步。”
+
+#### 简评：
+
+**正如郭先生所说，共产党的灭白计划正在“如火如荼”地进行着，即使瑞士也逃不出邪恶红魔的计算。欧洲的政客们到底要到怎样的悲惨地步才能清醒？除去被蓝金黄的政客外，欧美的官僚主义也成为了共产党的帮凶，他们宁愿拖垮经济也不愿意站起来说出真相。作为新中国联邦人的战友们一定要坚持传播真相，因为我们就是那些能改变世界命运的人！ **
+
+**（免责声明：本文的简评只代表译者观点，跟GNEWS平台无关。）**
+
+**🔗新闻来源**链接：[Covid-19: une pandémie de chômage de longue durée](https://www.swissinfo.ch/fre/covid-19--une-pandémie-de-chômage-de-longue-durée/46403884)
+
+* * *
+
+**翻译/简评：旦旦 校对/发稿人: **Ting Guo
+
 0
