@@ -1,36 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中芯国际活不了，中共别做梦了
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/954042/)
+## 【香港快讯】 3月6日 港人接种中共毒疫苗 再添亡魂 范徐丽泰称民主派连做忠诚反对派的资格也没有
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/954212/)
 
-撰文作者：铜豌豆
+搜集/整理：【喜马拉雅-粤语组】阿恩
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image001-7.png)
+**科兴疫苗又打死55 岁妇人**
 
-据中共国《环球网》3月5日报道1，中芯国际（SMIC）跟荷兰阿斯麦集团（ASML）的采买合同被延期至2021年12月底。中共将花费12.02亿美元从荷兰阿斯麦集团购买应用于生产晶圆的机器。然而，此次购买交易涉及的并不是极端紫外线光刻机（EUV），而是深紫外线光刻技术（DUV）。
+本港再出现接种中国科兴疫苗后死亡个案，卫生署今日（6日）公布，一名55 岁女子3 月2 日在佐敦官涌接种中心打针，3 日后因急性中风入住明爱医院，其后转送广华医院接受进一步治理，随后出现心脏停顿，经抢救后于今日清晨证实死亡。疫苗临床事件评估专家委员会委员会共同召集人孔繁毅透露，女死者本身有长期病患，包括高血压、高血脂。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image002-2.png)
+**【47 人案】美国务院再促放人**
 
-荷兰阿斯麦集团作为全球最大的半导体光刻设备供应商，是全球唯一一家有能力生产7nm以下先进半导体制程的关键设备公司。中共国信息消费联盟理事长项立刚表示，中共最希望获取的是极端紫外线光刻机（EUV），但是在目前的情况下只能退而求其次。汽车用的普遍是28nm的芯片，而此次中共能够从荷兰阿斯麦处购得的深紫外线光刻技术（DUV），想必主要还是服务于欧洲、尤其是德国在中共国的汽车制造产业。
+47 名参与或组织初选的民主派人士被落案起诉「串谋颠覆国家政权」，事件连续多日引起国际关注，美国国务院发言人Ned Price 继周二后，今日再促请当局释放所有被捕的民主派，批评国安法打压异见。
 
-早在2020年12月，美国商务部就将中芯国际列入了实施制裁的“实体清单”，主要是因为中共国将这一民用芯片技术用于军事目的、以及有证据显示中芯国际系中共军工产业企业。本周一，3月1日美国国家安全人工智能领域委员会（the U.S. National Security Commission on Artificial Intelligence, 简称：NSCAI）在公示环节提交了一份756页长的报告2，建议美国同荷兰以及日本合作拒绝给中共国出口关键芯片制造仪器的证书。据路透社报道称3，一个拜登政府消息源透露，眼下拜登政府的注意力放在如何跟中共国在下一轮技术竞争中取胜。
+Ned Price 在 Twitter 发文指，全部 47 名因被指控违反国安法被捕的民主派人士，应立即被释放。他批评，国安法被用以压制异见，及限制了民主发展，并无助于提升安全（does nothing to improve security）。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image003-5.png)
+**郑若骅撑中共【推倒选举】**
 
-而Nextgov的报道称4，另一份该委员会提交给美国国会的议案得到了国会的青睐，美国国家安全人工智能委员会希望：至2026年止，获得非国防联邦研究和发展基金（non-defense federal research and development funding）320亿美元资助。委员会强调，他们这样做的目的与其说是要跟中共对于人工智能技术大规模资金投入做抗衡，不如说是要把人工智能和新出现的科技手段跟美国价值观相融合。然而，由于甲骨文（Oracle）、微软（Microsoft）、谷歌（Google）以及亚马逊网络服务（Amazon Web Services）等大科技公司位列在15个委员会成员内，收到了质疑声。
+全国人大议程之一为审议「完善香港选举制度」有关草案, 内容包括增加 30 席立法会「选委会」议席等，被轰民主倒退。律政司司长郑若骅形容中央做法符合『一国两制』」，又指「管治权都应该掌握在爱国者手上是基本准则。」
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image004-9.jpg)
+**北京「完善」选举斗地主**
 
-无论是拿中共作为获取巨额政府资助的假想敌也好，还是为了自身地缘经济利益考量而跟中共延长合同也好，无论是美国国家安全人工智能委员会还是荷兰阿斯麦集团，都不是傻瓜：中共多存在一天，世界将永无宁日。
+北京改造香港选举制度，暗藏阶级斗争「斗地主」意味，有商界选委直言，将来的选委会组成，一劳永逸淡化了本地商界人士的影响力，个别界别能成为所谓的「造王者」日子亦不复。将来选委会变成5大界别，特首参选人又须在5大界别各有一定数量提名，变相令本地商界的影响力也大不如前。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image005-20.jpg)
+**疫苗接种死亡个案后现「cut针潮」**
 
-参考的信息来源：
+一名有严重长期病患的63岁男子接种科兴疫苗两日后死亡，事后出现「cut针潮」。食物及卫生局局长陈肇始今早出席电台节目时承认，事件后平均每日都少了人预约接种，相信市民可能要再「想一想」或先询问家庭医生意见，形容是「人之常情」和正常。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image006-4.jpg)
+**范徐丽泰称民主派连做忠诚反对派的资格也没有**
 
-1. 中共国《环球网》报道：[*中芯国际12亿美元购买阿斯麦光刻机*](https://finance.huanqiu.com/article/42B7TbxQWsd)
-2. 美国国家安全人工智能委员会最终报告（[*Final Report: National Security Commission on Artificial Intelligence*](https://www.nscai.gov/wp-content/uploads/2021/03/Full-Report-Digital-1.pdf)）
-3. 英国路透社（Reuters）报道：阿斯麦与中国芯片制造商中芯国际将采购合同延期至2021年年底（[*ASML extends sales deal with Chinese chipmaker SMIC to end of 2021*](https://www.reuters.com/article/us-asml-holding-smic-idUSKBN2AV1S6)）
-4. 美国Nextgov报道：委员会发现美国还没准备好跟中共国人工智能行业竞争（*[U.S. Unprepared for AI Competition with China, Commission Finds](https://www.nextgov.com/emerging-tech/2021/03/us-unprepared-ai-competition-china-commission-finds/172377/)*）
+范徐丽泰直认北京由上而下「完善」香港选举制度, 并没有咨询过香港人，因为香港政制发展不是香港「可以决定的」，被问到民主派也没有被咨询时，范徐丽泰更断言「这些人根本没有被咨询的资格」。
 
+[立场新闻（一）](https://www.thestandnews.com/politics/%E6%AD%A6%E6%BC%A2%E8%82%BA%E7%82%8E-55-%E6%AD%B2%E5%A9%A6%E5%AE%98%E6%B6%8C%E6%89%93%E7%A7%91%E8%88%88%E7%96%AB%E8%8B%97-%E4%B8%89%E6%97%A5%E5%BE%8C%E4%B8%AD%E9%A2%A8%E4%BA%A1-%E6%82%A3%E9%AB%98%E8%A1%80%E5%A3%93%E9%AB%98%E8%A1%80%E8%84%82/)、[立场新闻（二）](https://www.thestandnews.com/politics/47-%E4%BA%BA%E6%A1%88-%E7%BE%8E%E5%9C%8B%E5%8B%99%E9%99%A2%E5%86%8D%E4%BF%83%E6%94%BE%E4%BA%BA-%E5%9C%8B%E5%AE%89%E6%B3%95%E5%A3%93%E5%88%B6%E7%95%B0%E8%A6%8B-%E9%99%90%E5%88%B6%E6%B0%91%E4%B8%BB/)、[立场新闻（三）](https://www.thestandnews.com/politics/%E6%8E%A8%E5%80%92%E9%81%B8%E8%88%89-%E9%84%AD%E8%8B%A5%E9%A9%8A-%E4%B8%AD%E5%A4%AE%E5%81%9A%E6%B3%95%E5%85%B7%E5%A0%85%E5%AF%A6%E6%B3%95%E5%BE%8B%E5%9F%BA%E7%A4%8E-%E6%97%A2%E7%AC%A6%E5%90%88%E4%B8%80%E5%9C%8B%E4%BA%A6%E5%B0%8A%E9%87%8D%E5%85%A9%E5%88%B6/)、[苹果日报（四）](https://hk.appledaily.com/local/20210306/FABXYBJTD5GQNCFRST4VWY53KE/)
 
-（本文仅代表作者个人观点，与Gnews网站无关）
+[苹果日报（五）](https://hk.appledaily.com/local/20210306/5W6WR4MIQZDTRBDVBLDROXT75A/)、[苹果日报（六）](https://hk.appledaily.com/local/20210306/RVYXY4T4HNDWZEFTISCXWOTWTM/)
 
-其他工作人员：
+审核：【喜马拉雅粤语组】文卡西欧 / 上传：文粤
 
-*收稿审核：铜豌豆
-责任编辑：铜豌豆
-封面图片：铜豌豆
-排版发布：铜豌豆*
-
-+1
+0

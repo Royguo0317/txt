@@ -1,38 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】欧洲委员会通过法令：不得强制接种疫苗，不得歧视未接种疫苗者
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/954471/)
+## G系列投资之GTV迁至BVI优势
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/954679/)
 
-作者：纽约香草山写作组   四季
+![]()![](https://www.gnews.org/wp-content/uploads/2021/03/Picture1-7.png)
+[图片来源](https://www.epicyachtcharters.com/2017/10/valuable-information-shared-bvi/)
 
-Humansarefree.com网站3月6日报道， 欧洲委员会议会通过了一项决议，规定不得强制接种疫苗，任何人不得因未接种疫苗而受到歧视。欧洲委员会议会是欧洲人权法院所属的国际机构。(不要与欧盟混淆，英国仍然是其成员)。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/EU.png)欧洲人权法院，欧洲议会的一部分
-法令的内容是这样的：
+持续多月对G-TV的无理由审查，美国SEC充分暴露了其迂腐和官僚。新中国联邦将GTV总部迁至英属英属维京群岛（简称BVI），既可以尽快摆脱美国SEC的无休止审查, 加快灭共进程, 又可以享受那里得天独厚的投资环境。
 
-7.3 关于确保高疫苗接种率。
+[BVI](https://en.wikipedia.org/wiki/British_Virgin_Islands_Financial_Services_Commission)以低税率著称，其宽松的金融监管政策，稳定的政治环境和对客户资料的高度保密程度，这些都是美国所无法比拟的。
 
-7.3.1 确保告知公民，接种疫苗不是强制性的，任何人如果不愿意接种，不会受到政治、社会或其他方面的压力。
+**世界离岸金融中心优势**
 
-7.3.2 确保没有人因为可能的健康风险或不想接种疫苗而受到歧视。
+英属维京群岛（British Virgin Islands）简称BVI，是英国的海外领土，位于加勒比海地区，其官方流通货币为美元。作为世界离岸金融中心，BVI是加勒比海区经济最繁荣的地区之一。[2019年人均GDP高达4.3万美元。全球约40%的离岸公司均在BVI注册。](http://data.un.org/Data.aspx?q=British+Virgin+Islands&amp;d=SNAAMA&amp;f=grID%3A101%3BcurrID%3AUSD%3BpcFlag%3A1%3BcrID%3A92GDP)
 
-**欧洲委员会：疫苗护照践踏人权**
+**资金全球合理配置，提升资金利用效率**
 
-大会敦促各成员国尽早采取有效措施，抵制对中共病毒疫苗的错误信息、虚假信息和犹豫不决的情况。这一清晰的关于医疗应本着长期自愿的原则的阐述值得欢迎。
+美国金融监管机制，尤其外汇管制政策增加了海外汇款难度。BVI更鼓励资金在全球内的流动和配置，没有外汇管制这一说，能更好的消除监管部门对资本的垄断管控，使各国的资金渠道更顺畅。
 
-对于是否强制接种疫苗是有争议的。强制接种肯定是对公民自由的严重侵犯。在过去的一年里，我们可能已经看到了足够多的这种情况，它可以持续一生。人们应该有选择的自由。
+**低税率**
 
-目前有些国家规定，只有持有疫苗接种证才可以入境。很多国家也在倡议或实施疫苗护照。欧洲议会通过的不得强制接种疫苗的法令，希望会让全世界各国能够从人权的角度重新审视疫苗的接种和后续的政策，归还人类的天赋人权-自由给人民。
+BVI的税率很低，这将大大降低G-TV运营成本，[下图是BVI和亚洲另一离岸金融中心新加坡的比较，BVI的税率基本就是零。](https://www.guidemesingapore.com/why-singapore/british-virgin-islands-bvi/doing-business---singapore-vs-the-british-virgin-islands-bvi)
+![]()![](https://www.gnews.org/wp-content/uploads/2021/03/image-55.png)
+**金融监管宽松**
 
-参考阅读：
+[BVI的金融监管也很宽松，BVI在01年成立了独立的金融服务委员会 (The British Virgin Islands Financial Services Commission) 简称 BVI FSC，作为负责监管，监督和检查BVI境内所有金融服务的机构。其牌照申请非常简单，申请公司只需1名股东和董事，且一个人既可以当股东也可以是董事，然后提供护照和无犯罪记录证明即可。除此之外几乎没有任何额外限制。](http://www.fxshellpro.com/cn/financial-services-licensing-solutions/bvi-fsc)
 
-[Council Of Europe Decrees Vaccines Must Not Be Mandatory And The Non-Vaccinated Must Not Be Discriminated Against](https://humansarefree.com/2021/03/council-of-europe-decrees-vaccines-must-not-be-mandatory-and-the-non-vaccinated-must-not-be-discriminated-against.html)
+**程序简单，客户资料高度保密**
 
-编辑/校对/发稿：天涯客
+[BVI又比美国更占优势。 BVI当地政府要求递交存盘的资料较少，且董事资料高度保密，公司股东资料可以隐藏，不需要披露。同时BVI注册公司无需提供办公地址，注册资本可以以认购的形式，而不需要实质注资，更无需做账报税，每年只需要缴纳续牌费，不需要递交年审年报。并且所有注册公司的商业行为受到国际法律的保护。](https://en.wikipedia.org/wiki/British_Virgin_Islands_Financial_Services_Commission)
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
- 更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
- 更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
- 圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+**政治环境相对安全稳定**
 
-+1
+BVI的行政权力法理上由女皇执掌，由派驻当地的总督代行权力，其人选由英国政府提供意见。在1967年后BVI获准自治，由民选的总理担任政府首长，现在的BVI实行的是双首脑制，政治主体是近欧洲的议会制。即使中共买通岛上政府首长，但是首长没有决策权，其对政治经济影响力微乎其微。
+相比而言，新上台的美国拜登政府和中共有着不可分割的经济关系，这给GTV发展增加了风险和不确定因素。BVI可以最大限度地降低中共破坏力，这对G系列投资长远战略目标，及新中国联邦健康长久地发展至关重要。
+
+**创新发展战略**
+
+孙子云：凡战者，以正合，以奇胜。这个奇，指的就是创新。BVI市场管制的宽松，为将来G系列持续创新提供了了更好的金融的环境。将G-TV搬至BVI后，可依托当地得天独厚的金融优势，更好地发挥灭共平台这一优势。
+将GTV迁出美国到BVI， 不仅可以降低中共对新中国联邦的破坏力，在一定程度上消除了安全隐患；而且享受当地低税率政策，大大降低运营成本；又可以尽快摆脱美国SEC无理由审查，加快了灭共的进程。
+
+【秘密翻译组-金融团队原创作品】
+
+作者：匿名战友&Sharon G
+
+校对：Sharon G
+
+参考文献：[离岸金融中心](https://gnews.org/zh-hans/581206/)
+
+0

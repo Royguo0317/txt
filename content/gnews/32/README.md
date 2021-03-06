@@ -1,56 +1,82 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国商人因窃取通用电气商业秘密被起诉
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/954242/)
+## 与军方有关联的中方学者参与中美疫情电话交流会
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/954326/)
 
-*新闻来源：《国家脉动（TheNationalPulse）》| 作者：娜塔莉· 温特斯（NATALIE WINTERS） | 发布时间：2021年3月1日*
+*新闻来源：The Gateway Pundit《门户网站评论员》| 作者：Joe Hoft | 发布时间：2021年3月2日*
 
-*翻译/简评：随波逐流 | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii*
+*翻译/简评：大和凯多 | 校对：SilverSpurs7 | 审核：万人往 | Page：拱卒*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/WcQHuhxAKbWk2/images/a712a6a3-dc1b-4025-b4ce-665da7d7e48d.png?asset_id=0825adba-3499-4d95-a954-740fcd2f8ef2&amp;img_etag=%22734a2ed1d1cc573f8e13e81f5e48ab76%22&amp;size=2560)](https://spark.adobe.com/page/WcQHuhxAKbWk2/images/a712a6a3-dc1b-4025-b4ce-665da7d7e48d.png?asset_id=0825adba-3499-4d95-a954-740fcd2f8ef2&amp;img_etag=%22734a2ed1d1cc573f8e13e81f5e48ab76%22&amp;size=1024)图片来自网络
+[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/b000db63-079b-42a3-aaea-2632b017ac01.jpg?asset_id=a3240d47-2024-40a4-b6ed-977ff356aa9f&amp;img_etag=%2207cd6ddf1eab785c30e96180f7553ef1%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/b000db63-079b-42a3-aaea-2632b017ac01.jpg?asset_id=a3240d47-2024-40a4-b6ed-977ff356aa9f&amp;img_etag=%2207cd6ddf1eab785c30e96180f7553ef1%22&amp;size=1024)
 
-***简评：***
+**简评：**
 
-**现居香港的中共国商人吴志龙因与人密谋从通用电气窃取价值数百万美元的商业机密而被起诉。起诉书称，大约在2017年3月至2018年1月之间，吴姓商人与至少一名超过7年资历的通用电气工程师串谋，从通用电气窃取敏感有价值的碳化硅MOSFET技术。吴先生和同谋者利用这些商业秘密制定了商业计划并做成了PPT演示文稿，将其提供给了潜在的投资者。他们利用从通用电气窃取的商业秘密在中共国制造并销售碳化硅MOSFET，从而成为通用的竞争对手。吴志龙将面临最高10年的监禁和高达25万美元的罚款。**
+作者在本文讲述了美国科学界给中共军方喂料，提供有关CCP病毒的信息。在疫情初期的中美科学界电话会议中，中方的所有与会者都与中共军方有关联。
 
-**在中共近百年的洗脑教育下，从政府到民间，人们的思维已经被严重扭曲，一切皆可用利益收买，不管合法的或是非法的。有些还能上升到“爱国主义”高度，例如华为的孟晚舟都能被媒体吹捧成所谓的“民族英雄”，更可悲的是还有大量民众随声附和，交口称赞。在这种符合共党利益，可随时拿来所用的“盲目爱国主义”思想指导下，一切的不择手段都是那么合理，都可以包装成“爱国”。因此不履行世贸协议、不许它国彻查病毒来源都能归结成美国等西方国家的政治打压。而以高大上的“百人计划”、“千人计划”、“长江学者”等名义组团利诱专家学者，去偷窃它国专利技术也能称之为“弯道超车”，并美其名曰为中华民族的伟大复兴做贡献，从而提升国家军事、经济、政治上的国际地位。不知吴姓商人和他的同谋的行为是属于为个人利益以身试法，还是为了所谓的“爱国主义”信仰？**
+这篇文章并不让人感到惊讶，因为郭先生早就说过了共匪的“蓝金黄”计划。爆料革命这几年以来，我们对“蓝金黄”已经不再陌生，发生了这么多的事都已经验证了共匪的“蓝金黄”计划的巨大力量。美国的政治中心——国会山的政客都可以被“蓝金黄”，更何况科学界。但是，这些丑恶的交易终将会暴露在阳光下面，大众终将会明白真相。正义得到伸张之时就是这些作恶之人恶有恶报之日。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/WcQHuhxAKbWk2/images/81611af0-e1ba-4186-913f-a52c136699bd.jpg?asset_id=832b0194-88ba-4ef5-a303-31451768978d&amp;img_etag=%224c715cf44e7e411d17d67534dbf0dcf0%22&amp;size=2560)](https://spark.adobe.com/page/WcQHuhxAKbWk2/images/81611af0-e1ba-4186-913f-a52c136699bd.jpg?asset_id=832b0194-88ba-4ef5-a303-31451768978d&amp;img_etag=%224c715cf44e7e411d17d67534dbf0dcf0%22&amp;size=1024)图片来源：亚洲时报
+**原文翻译：**
 
-**中共的这套邪恶的糟粕文化近百年来毒害着一代代的中国人，从幼儿园到成人无一幸免，唯有彻底铲除中共，才能让国人从中共圈定的“红色文化”束缚中解脱出来。人们不再翻墙就能全面接收到外界信息，从多方信息中甄别真假善恶，进行自我的精神洗涤。**
+# **美国科学界2020年5月向中共国军方做实际意义上的COVID-19简报**
 
-***原文翻译：***
+[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/e75480da-a56a-4c34-b8ed-c746440d5cda.jpg?asset_id=529bf1ad-8b9b-4e75-b0ca-93c70ac191c1&amp;img_etag=%220854ecb3a0b433b60db5794bf6de4c58%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/e75480da-a56a-4c34-b8ed-c746440d5cda.jpg?asset_id=529bf1ad-8b9b-4e75-b0ca-93c70ac191c1&amp;img_etag=%220854ecb3a0b433b60db5794bf6de4c58%22&amp;size=1024)图片由Lawrence Sellin博士提供
 
-# **突发：中共国商人因窃取美国商业秘密被起诉**
+**美国科学界去年五月与中方同行就中共国病毒（COVID-19）举行电话会议。问题是，中方参会人员与中共军方是有关联的。**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/WcQHuhxAKbWk2/images/2ff95dfc-a4a1-4026-b535-8a7ad35f6657.png?asset_id=7a1500d2-ed54-47d3-ab7d-04d5bf2c8f3c&amp;img_etag=%22f8581a0590f2f23f89dda533d9a1882b%22&amp;size=2560)](https://spark.adobe.com/page/WcQHuhxAKbWk2/images/2ff95dfc-a4a1-4026-b535-8a7ad35f6657.png?asset_id=7a1500d2-ed54-47d3-ab7d-04d5bf2c8f3c&amp;img_etag=%22f8581a0590f2f23f89dda533d9a1882b%22&amp;size=1024)
+上一期文章中，我讲述了美国国家科学院和一些美国科学机构的人在2020年2月如何帮助中共国掩盖新冠病毒来源于实验室的事实。
 
-**一名中共国商人因与人密谋从通用电气窃取价值数百万美元的商业机密而被起诉。**
+[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/b6e1ebfc-4042-4377-8be3-ef089b6559df.jpg?asset_id=59871b2b-6d4e-4b5d-be2a-4e4be9294e60&amp;img_etag=%22bb16dbbb45650df2fa8b005b0f0cfdfc%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/b6e1ebfc-4042-4377-8be3-ef089b6559df.jpg?asset_id=59871b2b-6d4e-4b5d-be2a-4e4be9294e60&amp;img_etag=%22bb16dbbb45650df2fa8b005b0f0cfdfc%22&amp;size=1024)彼得·达扎克（Peter Daszak）
 
-此人现年64岁，名为吴志龙（Chi Lung Winsman Ng），居住在香港，密谋窃取有关通用电气公司的碳化硅MOSFET技术秘密。
+具有讽刺意味的是，从那次惨败中产生的建议之一就是增加美国与中共国的科学互动，这个决定导致了又一个错误，因为同样出于政治动机或天真的顾问再次参与了事务。
 
-美国检察官伊丽莎白·库姆（Elizabeth C. Coombe）说：“正如起诉书中所指控的，吴志龙密谋从通用电气窃取商业机密，从而成为其竞争对手。”
+2020年5月，美国国家科学院发起一系列电话会议，中美科学家就当前的冠状病毒疫情交换了信息。
 
-联邦调查局主管特工托马斯·雷尔福德（Thomas F. Relford）补充说：“吴密谋从通用电气窃取有价值的敏感技术，并在中共国生产。”
+这些电话会议也可以说是向中共国军方做实际意义上的简报。
 
-司法部的起诉书描述了吴志龙如何和“至少一个同谋者策划利用通用电气技术发展一项业务”：
+大多数代表美方的野心勃勃的科学家都早曾和中共国合作研究，比如拉尔夫·巴里克（Ralph Baric）和彼得·达扎克（Peter Daszak），这两位和武汉病毒研究所是合作关系。此外，其中有些科学家在此前的三个月都曾明确支持中共的态度，说冠状病毒是起源于自然并非实验室，比如彼得·达扎克、斯坦利·普尔曼（Stanley Perlman）和 琳达·赛义夫（Linda Saif）。
 
-起诉书称，大约在2017年3月至2018年1月之间，吴志龙和至少一名同谋策划开展一项业务，该业务将利用从通用电气窃取的商业秘密来制造和销售碳化硅MOSFET。MOSFET，即碳化硅金属氧化物半导体场效应晶体管，是小型电子半导体/开关，可调节通过设备的电流并用于多种产品。
+[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/0bc6b82e-ab2d-40d7-b05c-92e23894669f.jpg?asset_id=675aecd4-8622-4619-ae8b-ea2c9a7694de&amp;img_etag=%224fa4feeaec8f43810bb21030d2ded325%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/0bc6b82e-ab2d-40d7-b05c-92e23894669f.jpg?asset_id=675aecd4-8622-4619-ae8b-ea2c9a7694de&amp;img_etag=%224fa4feeaec8f43810bb21030d2ded325%22&amp;size=1024)拉尔夫·巴里克（Ralph Baric）
 
-吴先生与至少另外一个人（一名超过7年资历的通用电气工程师）密谋，从通用电气窃取MOSFET商业机密和其他专有信息。据称，吴和同谋＃1利用这些商业秘密制定了一份商业计划并做成了PPT演示文稿，将其提供给了潜在的投资者。吴先生和同谋＃1告诉潜在的投资者，他们的业务可以在三年内获利，他们的创业公司拥有有形和无形资产 ——资产估计价值1亿美元。作为该计划的一部分，他们寻求约3000万美元的资金投入，可换取其初创公司的所有权股份。据称，在2017年8月，吴先生和同谋＃1在中共国会面，并向正在考虑为吴先生的初创公司提供资金的中共国投资公司做了陈述报告。
+中方带头的科学家是高福，也叫George F. Gao，他是一名中共国病毒学家和免疫学家，曾担任中共国疾病预防控制中心主任，中国科学院大学存济医学院院长。
 
-吴志龙将面临最高10年监禁和高达25万美元的罚款。
+[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/7e90a287-c24c-4355-93be-7603a1773f5d.jpg?asset_id=32aab734-41a0-4905-b4f1-76f70b64989b&amp;img_etag=%22d9b10482e0d8786becfcd831a8d4a598%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/7e90a287-c24c-4355-93be-7603a1773f5d.jpg?asset_id=32aab734-41a0-4905-b4f1-76f70b64989b&amp;img_etag=%22d9b10482e0d8786becfcd831a8d4a598%22&amp;size=1024)高福
 
-**🔗[原文链接](https://thenationalpulse.com/breaking/businessman-indicted-for-stealing-trade-secrets/)**
+2019年，他被选为美国国家科学院和美国国家医学科学院的外籍院士。
+
+高福也是中共国军方长期的研究合作者，分别于2002年、2005年、2006年、2007年、2008年、2010年、2011年、2013年、2014年、2018年、2019年、2020年发表论文。
+
+这些只是冰山一角，不包括他通过同伙与中共国军方的关系。
+
+根据2020年7月1日美国国家科学院的一封邮件，高福最感兴趣的两件事情；第一，美国血清调查的总体情况；第二，美国疫苗的进展情况，尤其是mRNA疫苗。
+
+这两点都不足以让人感到惊讶。
+
+那个时候，高福和两家中共国的生物科技公司一起在解放军总医院第五医疗中心传染病治疗研究中心（Treatment and Research Center for Infectious Diseases of the Fifth Medical Center of People’s Liberation Army General Hospital）进行血清研究。研究结果以《严重急性呼吸系统综合症冠状病毒2抗体作为COVID-19感染患者的一种血清标记的早期发现》形式发表。
+
+在美中电话会议期间，高福也在解放军总医院第五医疗中心进行冠状病毒的抗体研究。同时他的军方同僚逯光文在同一所医院做冠状病毒疫苗研究。逯光文毕业于广州的第一军医大学。
+
+**另外一名美中电话会议参会人是石正丽，武汉病毒研究所的“蝙蝠女”。很多人都怀疑病毒就是在武汉病毒研究所制造出来的。**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/6110c75c-41c9-4232-ac0a-7df172f0d27a.jpg?asset_id=35eecdbb-7382-4e75-9754-f5d67109b855&amp;img_etag=%22e5d84a4199663ed073d5680dd82810fd%22&amp;size=3290)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/6110c75c-41c9-4232-ac0a-7df172f0d27a.jpg?asset_id=35eecdbb-7382-4e75-9754-f5d67109b855&amp;img_etag=%22e5d84a4199663ed073d5680dd82810fd%22&amp;size=1024)
+
+在美国国家科学院的邮件中，电话会议的一名中方参与者是谭文杰博士，关于此人的描述是，中国疾病预防控制中心病毒病预防控制所病毒病应急技术中心主任和教授。
+
+美国国家科学院没有提到的是，谭文杰博士属于中共国军队中央战区和中国武汉人民解放军总医院。
+
+徐建青，另外一名美中电话会议的参与者，也和中共国军方一起工作，经常和姜世勃一起合作研究。姜世勃与中共国军方和多个美国病毒实验室的大量关联在一篇名为《中共国军方与美国资金的关联以及冠状病毒的实验室起源》的文章中。
+
+所以基本上，这些由美国科学界安排的电话会议很可能就是直接向中共国军方提供潜在的关键信息。
+
+[原文链接](https://www.thegatewaypundit.com/2021/03/u-s-scientific-establishment-conducted-de-facto-covid-19-briefings-chinese-military-may-2020/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 - [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/WcQHuhxAKbWk2/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/WcQHuhxAKbWk2/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-0
++1

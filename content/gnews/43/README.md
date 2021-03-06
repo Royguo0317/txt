@@ -1,38 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 油管将唐纳德·川普的CPAC演讲列入黑名单，暂停RSBN频道
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/954078/)
+## 拜登将延长对伊朗的反恐制裁
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/954166/)
 
-- 翻译：喜妹
-- 发稿：Ranting
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-06_17-06-56.jpg)[ifmat.org](https://www.ifmat.org/11/24/iran-support-terrorist-groups/)
+3月6日，美国总统拜登决定将对伊朗的制裁延长一年。据白宫网站报道，国家总统致信国会，在信中通报了他的决定。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+拜登将在比尔·克林顿任总统期间宣布的针对德黑兰的“紧急状态”延长至2021年3月15日，因为按照华盛顿的说法，伊朗的行动“继续对国家安全、国际政治和美国经济构成特别威胁”。
 
-**西班牙2021年3月6日电/西喜社——**保守派新闻广播公司 “右侧广播网”(RSBN)因为报道了美国总统唐纳德·川普在最近的保守派政治行动会议(CPAC)上的演讲，被YouTube暂停播放两周。
+这是美国因伊朗被指责支持恐怖主义而实施的制裁。1995年3月，克林顿签署了一项行政命令，对伊斯兰共和国实行几乎完全的贸易禁运，并禁止美国投资。华盛顿还多次对伊朗实施与该国核计划有关的反伊朗制裁。
 
-这段视频在被谷歌旗下平台审查之前，几乎积累了400万的浏览量。
+去年7月，美国当局宣布对伊朗实施新的制裁。德黑兰用于核项目、导弹项目和军事项目的产品都属于此范围。特别是禁止供应铝合金、铜合金和部分品种的钢材。
 
-RSBN的官方推特账号报道了这一消息。
+去年11月，川普政府扩大了反伊朗制裁的范围，将4名个人和6个实体列入名单。财政部表示，那些受到限制的人帮助向伊朗的军事公司伊朗通信工业公司提供了具有战略意义的货物，包括电子元件。该公司自2008年以来一直受到制裁。
 
-“由于川普#CPAC2021的演讲违反了他们关于选举错误信息的指导方针，RSBN已经被YouTube暂停两周。该视频的浏览量接近400万次。他们也已将其从平台上删除。”
+伊朗对美进行了反击。今年1月，川普总统、国务卿迈克·蓬佩奥、财政部长史蒂夫·姆努钦、前五角大楼负责人马克·埃斯佩尔、代理国防部长克里斯托弗·米勒和中央情报局局长吉娜·哈斯佩尔被列入伊朗制裁名单。德黑兰指控他们支持恐怖主义，以及参与暗杀卡西姆·苏莱曼尼将军和核物理学家穆赫森·法赫里扎德。
 
+参考链接：
 
+[https://www.rbc.ru/rbcfreenews/6042ed8c9a79474d32466ec3](https://www.rbc.ru/rbcfreenews/6042ed8c9a79474d32466ec3)
 
-> NEW: RSBN has been suspended from YouTube for two weeks because of the Trump [#CPAC2021](https://twitter.com/hashtag/CPAC2021?src=hash&amp;ref_src=twsrc%5Etfw) speech, which violated their guidelines on election misinformation. 
-> 
-> The video was approaching 4 million views. They have also removed it from their platform.
-> — RSBN 🇺🇸 (@RSBNetwork) [March 4, 2021](https://twitter.com/RSBNetwork/status/1367519312890724355?ref_src=twsrc%5Etfw)
-
-
-
-RSBN表示，如果在川普总统关于选举违规的说法中加入 “反驳观点”，就可以避免两周的停播。换句话说，只有RSBN也批评川普的讲话，才允许上传。
-
-可见曾经作为世界自由灯塔的美国，如今被中共国渗透的有多么严重，一有不“和谐”的声音就给你封住嘴巴，掐住喉咙，斩断你的发声渠道。如果没有我们爆料革命正在为世界力争最后一块净土的话，全世界都将会很快会沦陷，落入中共邪魔恶党的魔爪之中。
-
-**消息来源：[InfoWars](https://www.infowars.com/posts/youtube-blacklists-donald-trumps-cpac-speech-suspends-rsbn-channel/)**
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
-
-+2
+0
