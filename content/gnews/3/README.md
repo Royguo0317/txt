@@ -1,74 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## ​3/6/2021 财经快讯：美国劳动力市场复苏, 中共以假骗治国的延伸之 “权哥”事件
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/953981/)
+## 油管将唐纳德·川普的CPAC演讲列入黑名单，暂停RSBN频道
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/954078/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2021-03-06_221927.jpg)图片来源： [https://finance.sina.com.cn](https://finance.sina.com.cn)
-
-```
-1. 美国半导体制造业难以快速改变短缺现状
-```
+- 翻译：喜妹
+- 发稿：Ranting
 
 
-[希望振兴美国半导体制造业以应对芯片短缺的国会立法者们会发现，在短期内，即使投入数十亿现金补贴，也很难改变短缺状况。美国在芯片设计上居世界领先地位，但制造很大程度上已割让给了外国公司。因中共病毒大流行造成芯片供应短缺预计将使汽车制造商的销售额减少610亿美元。国会认为，即使难以在短期内见效，税收优惠政策和补贴能帮助美国公司减少对外国供应商的依赖，从而防止下一次短缺。](https://www.newsmax.com/t/newsmax/article/1010870/2)
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2021年3月6日电/西喜社——**保守派新闻广播公司 “右侧广播网”(RSBN)因为报道了美国总统唐纳德·川普在最近的保守派政治行动会议(CPAC)上的演讲，被YouTube暂停播放两周。
+
+这段视频在被谷歌旗下平台审查之前，几乎积累了400万的浏览量。
+
+RSBN的官方推特账号报道了这一消息。
+
+“由于川普#CPAC2021的演讲违反了他们关于选举错误信息的指导方针，RSBN已经被YouTube暂停两周。该视频的浏览量接近400万次。他们也已将其从平台上删除。”
 
 
-```
-2. 大型科技公司创建的疫苗接种登记平台问题频发
-```
+
+> NEW: RSBN has been suspended from YouTube for two weeks because of the Trump [#CPAC2021](https://twitter.com/hashtag/CPAC2021?src=hash&amp;ref_src=twsrc%5Etfw) speech, which violated their guidelines on election misinformation. 
+> 
+> The video was approaching 4 million views. They have also removed it from their platform.
+> — RSBN 🇺🇸 (@RSBNetwork) [March 4, 2021](https://twitter.com/RSBNetwork/status/1367519312890724355?ref_src=twsrc%5Etfw)
 
 
-[科技公司如谷歌、微软介入设立疫苗接种登记平台以帮助人们进行注册。据彭博社报道 ，新泽西州购买了微软的疫苗预约平台，但该州发现该平台有很多如预约被取消、重复预约等漏洞，花费五周的修复才使其正常运行。其他州在访问权限方面存在严重问题，如与零售业初创公司Salesforce合作创建的My Turn仅可在市区提供疫苗产品。目前联邦政府尚未为疫苗登记指定任何平台。](https://www.washingtonexaminer.com/policy/technology/big-tech-has-setbacks-trying-to-assist-with-vaccination-registration-sites)
 
+RSBN表示，如果在川普总统关于选举违规的说法中加入 “反驳观点”，就可以避免两周的停播。换句话说，只有RSBN也批评川普的讲话，才允许上传。
 
-```
-3. 戈雅食品：拒绝屈服于主流媒体
-```
+可见曾经作为世界自由灯塔的美国，如今被中共国渗透的有多么严重，一有不“和谐”的声音就给你封住嘴巴，掐住喉咙，斩断你的发声渠道。如果没有我们爆料革命正在为世界力争最后一块净土的话，全世界都将会很快会沦陷，落入中共邪魔恶党的魔爪之中。
 
+**消息来源：[InfoWars](https://www.infowars.com/posts/youtube-blacklists-donald-trumps-cpac-speech-suspends-rsbn-channel/)**
 
-[美国最大的西班牙食品公司戈雅食品(Goya)首席执行官罗伯特·乌纳努(Robert Unanue)在去年7月的演讲中重申对川普总统的支持，引起了某些左翼议员的批评，#抵制戈雅(#BoycottGoya)开始在推特上流行。然而乌纳努重申了他的支持，并称此次抵制将公司的销售额提高了1000％。乌纳努仍然是特朗普支持者，最近在今年佛罗里达州奥兰多举行的保守党政治行动会议上称特朗普为“合法总统”。](https://www.washingtonexaminer.com/news/goya-whole-foods-forbes-companies-refuse-bow-cancel-culture)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
 
-
-```
-4. 参议院民主党人将失业救济金削减至每周300美元
-```
-
-
-[据熟悉该决定的民主党助理称，参议院民主党周五(March 5)达成了一项最后一刻的协议，将刺激计划中的失业救济金降低至每周300美元，同时将福利延长至9月份。这与众议院批准的每周400美元并截至8月29日的的福利有所不同。另外参议院民主党的决议宽免第一批10,200美元的福利税, 以减轻因失业造成的未被预料到的税款压力。](https://www.businessinsider.com.au/senate-democrats-cut-stimulus-unemployment-benefits-300-weekly-extend-september-2021-3?r=US&amp;IR=T)
-
-
-```
-5. 2月份的就业报告显示美国劳动力市场复苏
-```
-
-
-[美国2月份的就业报告超出了预期，增加了37.9万个非农就业人数，轻松超过了经济学家估计的20万个非农就业人数的中间值。失业率从6.3％降至6.2％，劳动力参与率保持稳定，CCP病毒相关领域求职的人数减少了500,000。由于交易员押注经济复苏快于预期，美国国债急剧下跌，使10年期国债收益率达到2020年2月以来的最高水平。道琼斯工业平均指数和标准普尔500指数上涨，其中周期性股票和价值股领涨。就业增长的大部分来自受到中共病毒大流行打击最严重的行业。](https://www.businessinsider.com.au/jobs-report-unemployment-rate-february-reopenings-labor-market-recovery-economy-2021-3?r=US&amp;IR=T)
-
-
-```
-6. “卖惨营销+带货售假”：“权哥”再次突破直播业底线
-```
-
-
-[据报道，“权哥讲情感”等短视频账号通过拍摄家道不幸者的故事，以慈善名义直播售卖珠宝。不少观者纷纷落泪、慷慨下单，但到货后却发现这些珠宝竟然是塑料的，且货不对板。据调查，“权哥”的悲情剧完全是请人演出，没一点是真的。假戏被戳穿后，“权哥”删除了苦情戏，换了马甲转站到下一个平台，而消费者退款退货困难。](https://finance.sina.cn/2021-03-06/detail-ikftssaq1850981.d.html?from=wap)
-
-评：中共国以假治国、以黑治国，愚民，弱民，让人民失去信仰和底线，让法律失去效力无法保护人民，层出不穷的“权哥”就是中共国邪恶体制下社会的悲哀缩影。
-
-
-```
-7. 中共政协委员：摸索建立基于数字经济的新税制
-```
-
-
-[中共国政协委员、中国财政科学研究院院长刘尚希在接受21世纪经济报道采访时表示：随着数字经济的发展壮大，税收与税源背离问题加剧，各国都在探讨数字税的问题，中共国也需要摸索基于数字化的新税制。刘尚希称现在的确是平台总部在哪里，税就交到哪里。并称当前能先行着手的是税收征管方面，比如税务部门的金税工程的迭代升级。其表示设计一个全新的基于数字化的全新税制体系，是在不断摸索中形成的，过程也会很漫长。](https://finance.sina.cn/2021-03-05/detail-ikftpnnz2767354.d.html?from=wap)
-
-评：任何一项科技在中共国都可能会变成下一个大家族敛财的工具，在中共国的体制下，企业的生存和发展变得困难而畸形。
-
-By 【金融组 – 雪梨Cheli】
-
-素材搜集：Totoro
-
-校对: 小蚂蚁在行动
-
-+1
++2

@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥：有“充分证据”表明冠状病毒起源于武汉实验室
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/953413/)
+## 金灿荣答韩国KBS记者：中美完全脱钩不可能
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/953443/)
 
-3/3/2021 蓬佩奥：有“充分证据”表明冠状病毒起源于武汉实验室。
+2/3/2021 金灿荣答韩国KBS记者：中美完全脱钩不可能
 
 By： 【秘密翻译组 G-Translators】
 
