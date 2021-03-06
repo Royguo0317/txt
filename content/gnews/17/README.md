@@ -1,38 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 油管将唐纳德·川普的CPAC演讲列入黑名单，暂停RSBN频道
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/954078/)
+## 【香港快讯】 3月6日 港人接种中共毒疫苗 再添亡魂 范徐丽泰称民主派连做忠诚反对派的资格也没有
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/954212/)
 
-- 翻译：喜妹
-- 发稿：Ranting
+搜集/整理：【喜马拉雅-粤语组】阿恩
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image001-7.png)
+**科兴疫苗又打死55 岁妇人**
 
+本港再出现接种中国科兴疫苗后死亡个案，卫生署今日（6日）公布，一名55 岁女子3 月2 日在佐敦官涌接种中心打针，3 日后因急性中风入住明爱医院，其后转送广华医院接受进一步治理，随后出现心脏停顿，经抢救后于今日清晨证实死亡。疫苗临床事件评估专家委员会委员会共同召集人孔繁毅透露，女死者本身有长期病患，包括高血压、高血脂。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image002-2.png)
+**【47 人案】美国务院再促放人**
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+47 名参与或组织初选的民主派人士被落案起诉「串谋颠覆国家政权」，事件连续多日引起国际关注，美国国务院发言人Ned Price 继周二后，今日再促请当局释放所有被捕的民主派，批评国安法打压异见。
 
-**西班牙2021年3月6日电/西喜社——**保守派新闻广播公司 “右侧广播网”(RSBN)因为报道了美国总统唐纳德·川普在最近的保守派政治行动会议(CPAC)上的演讲，被YouTube暂停播放两周。
+Ned Price 在 Twitter 发文指，全部 47 名因被指控违反国安法被捕的民主派人士，应立即被释放。他批评，国安法被用以压制异见，及限制了民主发展，并无助于提升安全（does nothing to improve security）。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image003-5.png)
+**郑若骅撑中共【推倒选举】**
 
-这段视频在被谷歌旗下平台审查之前，几乎积累了400万的浏览量。
+全国人大议程之一为审议「完善香港选举制度」有关草案, 内容包括增加 30 席立法会「选委会」议席等，被轰民主倒退。律政司司长郑若骅形容中央做法符合『一国两制』」，又指「管治权都应该掌握在爱国者手上是基本准则。」
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image004-9.jpg)
+**北京「完善」选举斗地主**
 
-RSBN的官方推特账号报道了这一消息。
+北京改造香港选举制度，暗藏阶级斗争「斗地主」意味，有商界选委直言，将来的选委会组成，一劳永逸淡化了本地商界人士的影响力，个别界别能成为所谓的「造王者」日子亦不复。将来选委会变成5大界别，特首参选人又须在5大界别各有一定数量提名，变相令本地商界的影响力也大不如前。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image005-20.jpg)
+**疫苗接种死亡个案后现「cut针潮」**
 
-“由于川普#CPAC2021的演讲违反了他们关于选举错误信息的指导方针，RSBN已经被YouTube暂停两周。该视频的浏览量接近400万次。他们也已将其从平台上删除。”
+一名有严重长期病患的63岁男子接种科兴疫苗两日后死亡，事后出现「cut针潮」。食物及卫生局局长陈肇始今早出席电台节目时承认，事件后平均每日都少了人预约接种，相信市民可能要再「想一想」或先询问家庭医生意见，形容是「人之常情」和正常。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image006-4.jpg)
+**范徐丽泰称民主派连做忠诚反对派的资格也没有**
 
+范徐丽泰直认北京由上而下「完善」香港选举制度, 并没有咨询过香港人，因为香港政制发展不是香港「可以决定的」，被问到民主派也没有被咨询时，范徐丽泰更断言「这些人根本没有被咨询的资格」。
 
+[立场新闻（一）](https://www.thestandnews.com/politics/%E6%AD%A6%E6%BC%A2%E8%82%BA%E7%82%8E-55-%E6%AD%B2%E5%A9%A6%E5%AE%98%E6%B6%8C%E6%89%93%E7%A7%91%E8%88%88%E7%96%AB%E8%8B%97-%E4%B8%89%E6%97%A5%E5%BE%8C%E4%B8%AD%E9%A2%A8%E4%BA%A1-%E6%82%A3%E9%AB%98%E8%A1%80%E5%A3%93%E9%AB%98%E8%A1%80%E8%84%82/)、[立场新闻（二）](https://www.thestandnews.com/politics/47-%E4%BA%BA%E6%A1%88-%E7%BE%8E%E5%9C%8B%E5%8B%99%E9%99%A2%E5%86%8D%E4%BF%83%E6%94%BE%E4%BA%BA-%E5%9C%8B%E5%AE%89%E6%B3%95%E5%A3%93%E5%88%B6%E7%95%B0%E8%A6%8B-%E9%99%90%E5%88%B6%E6%B0%91%E4%B8%BB/)、[立场新闻（三）](https://www.thestandnews.com/politics/%E6%8E%A8%E5%80%92%E9%81%B8%E8%88%89-%E9%84%AD%E8%8B%A5%E9%A9%8A-%E4%B8%AD%E5%A4%AE%E5%81%9A%E6%B3%95%E5%85%B7%E5%A0%85%E5%AF%A6%E6%B3%95%E5%BE%8B%E5%9F%BA%E7%A4%8E-%E6%97%A2%E7%AC%A6%E5%90%88%E4%B8%80%E5%9C%8B%E4%BA%A6%E5%B0%8A%E9%87%8D%E5%85%A9%E5%88%B6/)、[苹果日报（四）](https://hk.appledaily.com/local/20210306/FABXYBJTD5GQNCFRST4VWY53KE/)
 
-> NEW: RSBN has been suspended from YouTube for two weeks because of the Trump [#CPAC2021](https://twitter.com/hashtag/CPAC2021?src=hash&amp;ref_src=twsrc%5Etfw) speech, which violated their guidelines on election misinformation. 
-> 
-> The video was approaching 4 million views. They have also removed it from their platform.
-> — RSBN 🇺🇸 (@RSBNetwork) [March 4, 2021](https://twitter.com/RSBNetwork/status/1367519312890724355?ref_src=twsrc%5Etfw)
+[苹果日报（五）](https://hk.appledaily.com/local/20210306/5W6WR4MIQZDTRBDVBLDROXT75A/)、[苹果日报（六）](https://hk.appledaily.com/local/20210306/RVYXY4T4HNDWZEFTISCXWOTWTM/)
 
+审核：【喜马拉雅粤语组】文卡西欧 / 上传：文粤
 
-
-RSBN表示，如果在川普总统关于选举违规的说法中加入 “反驳观点”，就可以避免两周的停播。换句话说，只有RSBN也批评川普的讲话，才允许上传。
-
-可见曾经作为世界自由灯塔的美国，如今被中共国渗透的有多么严重，一有不“和谐”的声音就给你封住嘴巴，掐住喉咙，斩断你的发声渠道。如果没有我们爆料革命正在为世界力争最后一块净土的话，全世界都将会很快会沦陷，落入中共邪魔恶党的魔爪之中。
-
-**消息来源：[InfoWars](https://www.infowars.com/posts/youtube-blacklists-donald-trumps-cpac-speech-suspends-rsbn-channel/)**
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
-
-+2
+0

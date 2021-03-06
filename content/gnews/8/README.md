@@ -1,41 +1,82 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港快讯】 3月6日 港人接种中共毒疫苗 再添亡魂 范徐丽泰称民主派连做忠诚反对派的资格也没有
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/954212/)
+## 与军方有关联的中方学者参与中美疫情电话交流会
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/954326/)
 
-搜集/整理：【喜马拉雅-粤语组】阿恩
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image001-7.png)
-**科兴疫苗又打死55 岁妇人**
+*新闻来源：The Gateway Pundit《门户网站评论员》| 作者：Joe Hoft | 发布时间：2021年3月2日*
 
-本港再出现接种中国科兴疫苗后死亡个案，卫生署今日（6日）公布，一名55 岁女子3 月2 日在佐敦官涌接种中心打针，3 日后因急性中风入住明爱医院，其后转送广华医院接受进一步治理，随后出现心脏停顿，经抢救后于今日清晨证实死亡。疫苗临床事件评估专家委员会委员会共同召集人孔繁毅透露，女死者本身有长期病患，包括高血压、高血脂。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image002-2.png)
-**【47 人案】美国务院再促放人**
+*翻译/简评：大和凯多 | 校对：SilverSpurs7 | 审核：万人往 | Page：拱卒*
 
-47 名参与或组织初选的民主派人士被落案起诉「串谋颠覆国家政权」，事件连续多日引起国际关注，美国国务院发言人Ned Price 继周二后，今日再促请当局释放所有被捕的民主派，批评国安法打压异见。
+[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/b000db63-079b-42a3-aaea-2632b017ac01.jpg?asset_id=a3240d47-2024-40a4-b6ed-977ff356aa9f&amp;img_etag=%2207cd6ddf1eab785c30e96180f7553ef1%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/b000db63-079b-42a3-aaea-2632b017ac01.jpg?asset_id=a3240d47-2024-40a4-b6ed-977ff356aa9f&amp;img_etag=%2207cd6ddf1eab785c30e96180f7553ef1%22&amp;size=1024)
 
-Ned Price 在 Twitter 发文指，全部 47 名因被指控违反国安法被捕的民主派人士，应立即被释放。他批评，国安法被用以压制异见，及限制了民主发展，并无助于提升安全（does nothing to improve security）。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image003-5.png)
-**郑若骅撑中共【推倒选举】**
+**简评：**
 
-全国人大议程之一为审议「完善香港选举制度」有关草案, 内容包括增加 30 席立法会「选委会」议席等，被轰民主倒退。律政司司长郑若骅形容中央做法符合『一国两制』」，又指「管治权都应该掌握在爱国者手上是基本准则。」
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image004-9.jpg)
-**北京「完善」选举斗地主**
+作者在本文讲述了美国科学界给中共军方喂料，提供有关CCP病毒的信息。在疫情初期的中美科学界电话会议中，中方的所有与会者都与中共军方有关联。
 
-北京改造香港选举制度，暗藏阶级斗争「斗地主」意味，有商界选委直言，将来的选委会组成，一劳永逸淡化了本地商界人士的影响力，个别界别能成为所谓的「造王者」日子亦不复。将来选委会变成5大界别，特首参选人又须在5大界别各有一定数量提名，变相令本地商界的影响力也大不如前。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image005-20.jpg)
-**疫苗接种死亡个案后现「cut针潮」**
+这篇文章并不让人感到惊讶，因为郭先生早就说过了共匪的“蓝金黄”计划。爆料革命这几年以来，我们对“蓝金黄”已经不再陌生，发生了这么多的事都已经验证了共匪的“蓝金黄”计划的巨大力量。美国的政治中心——国会山的政客都可以被“蓝金黄”，更何况科学界。但是，这些丑恶的交易终将会暴露在阳光下面，大众终将会明白真相。正义得到伸张之时就是这些作恶之人恶有恶报之日。
 
-一名有严重长期病患的63岁男子接种科兴疫苗两日后死亡，事后出现「cut针潮」。食物及卫生局局长陈肇始今早出席电台节目时承认，事件后平均每日都少了人预约接种，相信市民可能要再「想一想」或先询问家庭医生意见，形容是「人之常情」和正常。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image006-4.jpg)
-**范徐丽泰称民主派连做忠诚反对派的资格也没有**
+**原文翻译：**
 
-范徐丽泰直认北京由上而下「完善」香港选举制度, 并没有咨询过香港人，因为香港政制发展不是香港「可以决定的」，被问到民主派也没有被咨询时，范徐丽泰更断言「这些人根本没有被咨询的资格」。
+# **美国科学界2020年5月向中共国军方做实际意义上的COVID-19简报**
 
-[立场新闻（一）](https://www.thestandnews.com/politics/%E6%AD%A6%E6%BC%A2%E8%82%BA%E7%82%8E-55-%E6%AD%B2%E5%A9%A6%E5%AE%98%E6%B6%8C%E6%89%93%E7%A7%91%E8%88%88%E7%96%AB%E8%8B%97-%E4%B8%89%E6%97%A5%E5%BE%8C%E4%B8%AD%E9%A2%A8%E4%BA%A1-%E6%82%A3%E9%AB%98%E8%A1%80%E5%A3%93%E9%AB%98%E8%A1%80%E8%84%82/)、[立场新闻（二）](https://www.thestandnews.com/politics/47-%E4%BA%BA%E6%A1%88-%E7%BE%8E%E5%9C%8B%E5%8B%99%E9%99%A2%E5%86%8D%E4%BF%83%E6%94%BE%E4%BA%BA-%E5%9C%8B%E5%AE%89%E6%B3%95%E5%A3%93%E5%88%B6%E7%95%B0%E8%A6%8B-%E9%99%90%E5%88%B6%E6%B0%91%E4%B8%BB/)、[立场新闻（三）](https://www.thestandnews.com/politics/%E6%8E%A8%E5%80%92%E9%81%B8%E8%88%89-%E9%84%AD%E8%8B%A5%E9%A9%8A-%E4%B8%AD%E5%A4%AE%E5%81%9A%E6%B3%95%E5%85%B7%E5%A0%85%E5%AF%A6%E6%B3%95%E5%BE%8B%E5%9F%BA%E7%A4%8E-%E6%97%A2%E7%AC%A6%E5%90%88%E4%B8%80%E5%9C%8B%E4%BA%A6%E5%B0%8A%E9%87%8D%E5%85%A9%E5%88%B6/)、[苹果日报（四）](https://hk.appledaily.com/local/20210306/FABXYBJTD5GQNCFRST4VWY53KE/)
+[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/e75480da-a56a-4c34-b8ed-c746440d5cda.jpg?asset_id=529bf1ad-8b9b-4e75-b0ca-93c70ac191c1&amp;img_etag=%220854ecb3a0b433b60db5794bf6de4c58%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/e75480da-a56a-4c34-b8ed-c746440d5cda.jpg?asset_id=529bf1ad-8b9b-4e75-b0ca-93c70ac191c1&amp;img_etag=%220854ecb3a0b433b60db5794bf6de4c58%22&amp;size=1024)图片由Lawrence Sellin博士提供
 
-[苹果日报（五）](https://hk.appledaily.com/local/20210306/5W6WR4MIQZDTRBDVBLDROXT75A/)、[苹果日报（六）](https://hk.appledaily.com/local/20210306/RVYXY4T4HNDWZEFTISCXWOTWTM/)
+**美国科学界去年五月与中方同行就中共国病毒（COVID-19）举行电话会议。问题是，中方参会人员与中共军方是有关联的。**
 
-审核：【喜马拉雅粤语组】文卡西欧 / 上传：文粤
+上一期文章中，我讲述了美国国家科学院和一些美国科学机构的人在2020年2月如何帮助中共国掩盖新冠病毒来源于实验室的事实。
 
-0
+[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/b6e1ebfc-4042-4377-8be3-ef089b6559df.jpg?asset_id=59871b2b-6d4e-4b5d-be2a-4e4be9294e60&amp;img_etag=%22bb16dbbb45650df2fa8b005b0f0cfdfc%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/b6e1ebfc-4042-4377-8be3-ef089b6559df.jpg?asset_id=59871b2b-6d4e-4b5d-be2a-4e4be9294e60&amp;img_etag=%22bb16dbbb45650df2fa8b005b0f0cfdfc%22&amp;size=1024)彼得·达扎克（Peter Daszak）
+
+具有讽刺意味的是，从那次惨败中产生的建议之一就是增加美国与中共国的科学互动，这个决定导致了又一个错误，因为同样出于政治动机或天真的顾问再次参与了事务。
+
+2020年5月，美国国家科学院发起一系列电话会议，中美科学家就当前的冠状病毒疫情交换了信息。
+
+这些电话会议也可以说是向中共国军方做实际意义上的简报。
+
+大多数代表美方的野心勃勃的科学家都早曾和中共国合作研究，比如拉尔夫·巴里克（Ralph Baric）和彼得·达扎克（Peter Daszak），这两位和武汉病毒研究所是合作关系。此外，其中有些科学家在此前的三个月都曾明确支持中共的态度，说冠状病毒是起源于自然并非实验室，比如彼得·达扎克、斯坦利·普尔曼（Stanley Perlman）和 琳达·赛义夫（Linda Saif）。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/0bc6b82e-ab2d-40d7-b05c-92e23894669f.jpg?asset_id=675aecd4-8622-4619-ae8b-ea2c9a7694de&amp;img_etag=%224fa4feeaec8f43810bb21030d2ded325%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/0bc6b82e-ab2d-40d7-b05c-92e23894669f.jpg?asset_id=675aecd4-8622-4619-ae8b-ea2c9a7694de&amp;img_etag=%224fa4feeaec8f43810bb21030d2ded325%22&amp;size=1024)拉尔夫·巴里克（Ralph Baric）
+
+中方带头的科学家是高福，也叫George F. Gao，他是一名中共国病毒学家和免疫学家，曾担任中共国疾病预防控制中心主任，中国科学院大学存济医学院院长。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/7e90a287-c24c-4355-93be-7603a1773f5d.jpg?asset_id=32aab734-41a0-4905-b4f1-76f70b64989b&amp;img_etag=%22d9b10482e0d8786becfcd831a8d4a598%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/7e90a287-c24c-4355-93be-7603a1773f5d.jpg?asset_id=32aab734-41a0-4905-b4f1-76f70b64989b&amp;img_etag=%22d9b10482e0d8786becfcd831a8d4a598%22&amp;size=1024)高福
+
+2019年，他被选为美国国家科学院和美国国家医学科学院的外籍院士。
+
+高福也是中共国军方长期的研究合作者，分别于2002年、2005年、2006年、2007年、2008年、2010年、2011年、2013年、2014年、2018年、2019年、2020年发表论文。
+
+这些只是冰山一角，不包括他通过同伙与中共国军方的关系。
+
+根据2020年7月1日美国国家科学院的一封邮件，高福最感兴趣的两件事情；第一，美国血清调查的总体情况；第二，美国疫苗的进展情况，尤其是mRNA疫苗。
+
+这两点都不足以让人感到惊讶。
+
+那个时候，高福和两家中共国的生物科技公司一起在解放军总医院第五医疗中心传染病治疗研究中心（Treatment and Research Center for Infectious Diseases of the Fifth Medical Center of People’s Liberation Army General Hospital）进行血清研究。研究结果以《严重急性呼吸系统综合症冠状病毒2抗体作为COVID-19感染患者的一种血清标记的早期发现》形式发表。
+
+在美中电话会议期间，高福也在解放军总医院第五医疗中心进行冠状病毒的抗体研究。同时他的军方同僚逯光文在同一所医院做冠状病毒疫苗研究。逯光文毕业于广州的第一军医大学。
+
+**另外一名美中电话会议参会人是石正丽，武汉病毒研究所的“蝙蝠女”。很多人都怀疑病毒就是在武汉病毒研究所制造出来的。**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/6110c75c-41c9-4232-ac0a-7df172f0d27a.jpg?asset_id=35eecdbb-7382-4e75-9754-f5d67109b855&amp;img_etag=%22e5d84a4199663ed073d5680dd82810fd%22&amp;size=3290)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/6110c75c-41c9-4232-ac0a-7df172f0d27a.jpg?asset_id=35eecdbb-7382-4e75-9754-f5d67109b855&amp;img_etag=%22e5d84a4199663ed073d5680dd82810fd%22&amp;size=1024)
+
+在美国国家科学院的邮件中，电话会议的一名中方参与者是谭文杰博士，关于此人的描述是，中国疾病预防控制中心病毒病预防控制所病毒病应急技术中心主任和教授。
+
+美国国家科学院没有提到的是，谭文杰博士属于中共国军队中央战区和中国武汉人民解放军总医院。
+
+徐建青，另外一名美中电话会议的参与者，也和中共国军方一起工作，经常和姜世勃一起合作研究。姜世勃与中共国军方和多个美国病毒实验室的大量关联在一篇名为《中共国军方与美国资金的关联以及冠状病毒的实验室起源》的文章中。
+
+所以基本上，这些由美国科学界安排的电话会议很可能就是直接向中共国军方提供潜在的关键信息。
+
+[原文链接](https://www.thegatewaypundit.com/2021/03/u-s-scientific-establishment-conducted-de-facto-covid-19-briefings-chinese-military-may-2020/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
++1
