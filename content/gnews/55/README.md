@@ -1,66 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【各抒己见】国际滑稽剧･･･中共人代会
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/952707/)
+## 《路德社》精选新闻简讯：赵小兰家族与中共牵扯颇深
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/952773/)
 
-作者：喜马拉雅东京樱花团/待命（文晓）
+出品:《路德社》 编辑：《路德社》精选新闻专栏组
 
-![](https://lh3.googleusercontent.com/BpZ_kDULIwV_qdy9ZOnPOVps6PlCb9cYbOHdbHtBXEItUmF223nLvs06qFqzzQ7xWcOE6T5di19ht4uyLiSbJKeStJNuBHF3MGujk1AqMLDskhHjJrekVItfo3F6jcdi3TWxoL9F)
-(图1  [源自](http://www.mod.gov.cn/shouye/2021-03/05/content_4880447.htm))
 
-被全世界当作小丑一样笑谈的，中共十三屆全國人大四次會議今天9时在人民大会堂开幕。作为见惯了中共人大会议的“公民”，借此归纳滑稽剧的几大滑稽点如下：
 
-滑稽之1 ——举一国之力造假
+> directly with the Chinese government. So a former senior US government official’s family sits on the board of one of the largest and most important banks in China? [#ethics](https://twitter.com/hashtag/ethics?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [March 5, 2021](https://twitter.com/Jkylebass/status/1367807657340502021?ref_src=twsrc%5Etfw)
 
-众所周知，中共报出来的东西不一定准，但已公布的会议议程是：
 
-1、审查国民经济和社会发展第十四个五年规划和2035年远景目标纲要草案。
 
-2、审查国务院关于2020年国民经济和社会发展计划执行情况与2021年国民经济和社会发展计划草案的报告及2021年计划草案。 ​​​​
+2021年3月5日，凯尔巴斯引用纽约时报对赵家的报道并发推评论:
 
-3、审查国务院关于2020年中央和地方预算执行情况与2021年中央和地方预算草案的报告及2021年中央和地方预算草案。 ​​​​
+What’s even more perplexing is that Chao’s sister sits on the board of the Bank of China where all data is a Chinese “national secret”. BOC is one of the oldest and most important banks to the Communist Party in China. Chao’s family does business directly with the Chinese government. So a former senior US government official’s family sits on the board of one of the largest and most important banks in China?
 
-关于1，中共竟然规划到2035年！地球人都知道～～中共还可能有2035吗？简直是把国民当猪狗忽悠。
+更为复杂的是赵小兰的妹妹赵安吉担任中国银行董事，这家银行的所有数据均为中国“国家机密”。中国银行是中国共产党最悠久且最重要的银行之一。赵家直接与中国政府做生意。因此，美国前政府高级官员的家族成员是中国最大且最重要的一家银行董事会成员吗？
+![]()![](https://gnews.org/wp-content/uploads/2021/03/030601.png)
+随着参议员麦康奈尔和赵氏家族与中共之间的利益关系逐渐被美国左媒揭露，表明中共内部的政治斗争越加残酷激烈。曾经跟中共勾结出卖美国国家利益的政客官员们，正被中南坑的老杂毛当作内斗的手雷，相互抛出引爆，落得身败名裂的下场。同时也表明美国内部灭共的大趋势已成，曾与中共沆瀣一气的政客官员也不敢明面为其站台，逼得中南坑不得不放出他们的部分犯罪证据敲山震虎。但这样只会让这些腐败的政客、官员和企业家愈加远离和憎恨，为了自保和自救，他们别无选择必须加速灭共。
 
-关于2和3，2020年的国民经济和社会发展计划执行情况，以及中央和地方预算执行情况，中共你真是揣着明白装糊涂！连新冠感染死亡人数都是假的没边儿，这些相关数据值得兴师动众的、假模假样的审查吗？所谓的2021年这预算，那规划，全都是屁话。所谓的代表们更是像他们统一佩戴口罩一样，统一举手表决，管它正确不正确！口罩遮住了你们扭曲的心所呈现出的尴尬的脸。这可是以习主席为首的中共最高领导人都参加的滑稽剧，说是举一国之力造假不为过吧？
-
-滑稽之2 ･･･哪个代表是人民选出来的？
-
-不知廉耻自称人民代表的代表们，你们心知肚明哪个是人民选出来的？凭什么擅自代表人民穿着纸尿裤在那里举手表决？除了举手，你们还有替人民说一句公道话的功能吗？
-
-滑稽之3 ･･･逃入人民大会堂的代表
-
-之前的人大会议时网上传遍了外媒记者堵在人民大会堂门口，追着赶着请这些所谓的代表回答：你是如何成为代表的？通过选举了吗？ 这些伪代表们无不躲着记者，慌忙逃进大会堂。那样子简直就像是记者们在追捕盗窃犯。
-
-滑稽之4 ･･･国家领导人的发言
-
-中共人大会议上发言的那些领导人，不知道是因为明知道自己在众目睽睽之下读的内容都是胡编乱造，还是朗读能力欠佳，个个都是语速慢得不如正常人。到底是心里没底啊！
-
-滑稽之 ･･･
-
-算了，尽管中共人大会议还有很多滑稽可笑的表演，我还是想就此搁笔了。一是实在不想把自己的笔写得太脏了，二是想给中共定个好数字，就4吧=死吧！
-
-![](https://lh5.googleusercontent.com/F67-CQ09E0HHTMudWytlyX3qRNLQaiBRS6Jwm7MKkFG_QFFQIbA2zZVhvt04WhSMeb6KulK-lC6MF9XrJonRWIWJmFPTprguM1Q_UkD54E6cdvRwy77HS8ahxEkv1HwctbtN5hVH)
-(图2  [源自](http://www.mod.gov.cn/shouye/2021-03/05/content_4880447.htm))
-
-请看图1，中共自己设计制作的球形灯悬在上方，像座大山重重的压在了中共的头顶！
-
-请看图2，军乐队已为盗国贼们吹响了哀乐！敲响了丧钟！
-
-中国共产党，你完了！
-
-*本文只代表作者观点，与GNews网站无关*
-
-*校对：喜马拉雅东京樱花团 / 文小白*
-
-*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
-
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/二维码.jpg)
-
-0305C023c
+本文作者：Stranger
+审核校对：鲁邦五世
+上传排版：糖果儿
 
 
 
