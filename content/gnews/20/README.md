@@ -1,37 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【各抒己见】五毛，你愿做第几批觉醒的人
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/952736/)
+## 《路德社》精选新闻简讯：赵小兰家族与中共牵扯颇深
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/952773/)
 
-作者：喜马拉雅东京樱花团/待命（文晓）
+出品:《路德社》 编辑：《路德社》精选新闻专栏组
 
-![](https://lh6.googleusercontent.com/BWK4aAV0j8uHpVz7FIBjqZmOXKP_i_eEHTnNcCXzXmtN9S_vDi3vR0L1_21Shf4sckQoiGy8SaRtjohugovi87xL5_hnQvTLjkpo1q6Fl7Tv6IFkM3nu78fjAH0dOOIY6wFjyKMv)
 
-[图片来源](https://www.google.com/search?q=%E4%BA%94%E6%AF%9B&amp;rlz=1C1SQJL_jaJP828JP828&amp;sxsrf=ALeKk03n3l832cBRrV2n-A5x4dmZ4Jgasg:1614940532658&amp;source=lnms&amp;tbm=isch&amp;sa=X&amp;ved=2ahUKEwjH46Cm-pjvAhWYfXAKHbuiDRoQ_AUoAXoECAsQAw&amp;biw=1280&amp;bih=599#imgrc=njzAM1RKSdtCnM)
 
-农场Discord客厅里，与战友们之间的聊天偶尔会出现格格不入的发言内容。老战友应该都有记忆，这种发言在农场初建时很多。现在这种现象变得零零散散了，而且都是一闪即逝，就像乌龟一伸头又马上缩回去的样子。
+> directly with the Chinese government. So a former senior US government official’s family sits on the board of one of the largest and most important banks in China? [#ethics](https://twitter.com/hashtag/ethics?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [March 5, 2021](https://twitter.com/Jkylebass/status/1367807657340502021?ref_src=twsrc%5Etfw)
 
-这说明什么？笔者觉得原因有两个。
 
-其一，战友们跟随爆料革命时间长了，思考能力大大提高，对五毛的识别能力，以及反击能力日益增强。搅浑水的、带风向的话一露头，战友们就会群起而攻之，五毛们来一次挨一顿拳头。所以，五毛们为了完成狗粮任务，不得不战战兢兢的来吆喝那么一嗓子就撤。
 
-其二，随着爆料革命队伍的强大，五毛们的上岗也需要一定的能力了，那些无能小五毛一出手就挨揍，也只能为了完成狗粮任务，能不来就不来，胆战心惊的吃那点儿嗟来狗粮罢了。
+2021年3月5日，凯尔巴斯引用纽约时报对赵家的报道并发推评论:
 
-虽然对这些五毛很气愤，但看到五毛们现在这副可怜样，不由得心生怜悯。因为他们也是同胞，我们的同胞中就有很多没长脑子、没有骨头的人。五毛们大多没什么本事，这点狗粮对他们来说是放不下的施舍。
+What’s even more perplexing is that Chao’s sister sits on the board of the Bank of China where all data is a Chinese “national secret”. BOC is one of the oldest and most important banks to the Communist Party in China. Chao’s family does business directly with the Chinese government. So a former senior US government official’s family sits on the board of one of the largest and most important banks in China?
 
-所以，文贵先生把爆料革命的重点转移到让战友们尽快富起来，是多么的英明。战友们富起来了，首先战友们的亲属可以看到，战友们的同学、朋友、同事可以看到，这就又可以唤醒一批人。等第二批醒来的人也富起来了，他（她）们又可以像最早觉醒的战友们一样，用他（她）的亲历唤醒第三批人。这样，就形成了爆料革命的良性循环，也把新中国联邦和CCP在本质上的区别弄得明明白白，用最有说服力的方式体现了出来。那么，五毛也终究会成为第X批觉醒的人吧？
+更为复杂的是赵小兰的妹妹赵安吉担任中国银行董事，这家银行的所有数据均为中国“国家机密”。中国银行是中国共产党最悠久且最重要的银行之一。赵家直接与中国政府做生意。因此，美国前政府高级官员的家族成员是中国最大且最重要的一家银行董事会成员吗？
+![]()![](https://gnews.org/wp-content/uploads/2021/03/030601.png)
+随着参议员麦康奈尔和赵氏家族与中共之间的利益关系逐渐被美国左媒揭露，表明中共内部的政治斗争越加残酷激烈。曾经跟中共勾结出卖美国国家利益的政客官员们，正被中南坑的老杂毛当作内斗的手雷，相互抛出引爆，落得身败名裂的下场。同时也表明美国内部灭共的大趋势已成，曾与中共沆瀣一气的政客官员也不敢明面为其站台，逼得中南坑不得不放出他们的部分犯罪证据敲山震虎。但这样只会让这些腐败的政客、官员和企业家愈加远离和憎恨，为了自保和自救，他们别无选择必须加速灭共。
 
-五毛跟CCP派出的铁杆特务不同，因为五毛大多为了狗粮而战。五毛们托狗粮的福可以翻墙上网，他们在以畸形的灵魂紧紧“跟随”着爆料革命。所以，他们比我们在墙内的亲人得到信息还要早。他们也是人，相信其中一部分人会被文贵先生、被战友们的真情一批一批的唤醒，很有可能成为不同批次觉醒的人。所以，我们对五毛的打击需要软硬适度，既要有力度，又不要毁坏了他（她）们的弹性系数，争取化敌为友，以待有一天这些人能投诚新中国联邦，成为我们的力量。
+本文作者：Stranger
+审核校对：鲁邦五世
+上传排版：糖果儿
 
-免责申明：本文只代表作者观点，与GNews网站无关
 
-*校对：喜马拉雅东京樱花团 /文小白*
 
-*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
-
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews.org/wp-content/uploads/2021/03/二维码.jpg)
-0305C024c
-
-+2
+0
