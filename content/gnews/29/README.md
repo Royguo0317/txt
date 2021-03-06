@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 蓬佩奥：有“充分证据”表明冠状病毒起源于武汉实验室
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/953413/)
+## 纳瓦罗担心CCP病毒是一种生物武器
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/953401/)
 
-3/3/2021 蓬佩奥：有“充分证据”表明冠状病毒起源于武汉实验室。
+3/2/2021 纳瓦罗担心CCP病毒是一种生物武器
 
 By： 【秘密翻译组 G-Translators】
 
