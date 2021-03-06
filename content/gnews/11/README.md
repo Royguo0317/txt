@@ -1,29 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄罗斯人为什么不愿意打疫苗？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/954763/)
+## 【疫情下的西班牙】世界各国中共病毒疫情图示
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/954807/)
 
-- 编辑：Victor Torres
-- 作者：蚂蚁兄弟
-- 制图：七白石
-- 发稿：神奇四侠
+- 编辑：神奇四侠
+- 作者：gokuabuela
+- 发稿：Ranting
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年3月6日电/西喜社——**
+**西班牙2021年3月6日电/西喜社——**图表中展示的是14天10万居民感染人数，是判断中共病毒感染风险的一个重要数据。
+数据统计时间从2020年7月7日至2021年3月4日。
+大于250例： 极度高风险
+小于250，大于150例： 高风险
+小于150，大于50例：中等风险
+小于50例：低风险
 
-据路透社3月1日报道，一家独立的民调机构在50个地区的1601人中进行抽样调查，结果显示，64%的人认为中共病毒是被人为制造的生物武器。而同样是这些俄罗斯人不愿意接受俄罗斯卫星五型疫苗，18至24岁的人不愿意接种的比例最高。不想接种疫苗的主要原因是，大多数受访者称其副作用，可能包括发烧和疲劳等。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/bc15096a-45e2-4ff6-8dfb-5c65639ad463.jpg)
 
-有战斗民族之称的俄罗斯人，你觉得这些是他们拒绝接种的真正理由吗？
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1a3ef0f0-7657-49a2-a48c-1f4ba67ce0f5.jpg)
 
-西方很多的民众至今还拒绝相信这是人造超限生物武器，他们还拒绝相信中共有这么邪恶，因为他们一直在和平的环境里生活，一旦相信这个世界上有这样的恶存在的话，他们就会对自己所生存的社会产生一种怀疑，由此引起的动荡是可怕的，思想上的转变是巨大的，难以接受的。
+**新闻来源：[国家报](https://elpais.com/sociedad/2020-12-14/el-mapa-del-coronavirus-en-el-mundo-asi-avanzan-los-contagios-y-las-muertes-dia-a-dia.html)**
 
-俄罗斯是前苏联遗传下的，经历过共产主义统治的民众，对共产主义的本质了解得比较透彻，他们绝对相信共产主义国家什么邪恶都能干的出来，包括他们制造中共病毒大流行, 这种超限生物武器，甚至还有比这个更加恶劣的完美犯罪，比如疫苗。经历过独裁的共产主义社会的民众不太相信政府，加之国际上这些由中共主导和世卫组织勾兑宣传的真相逐渐暴露出来的时候，他们更加不相信疫苗。
-
-而如今当这个声音慢慢放开，这些民众要求对中共追责的声音越来越大的时候，这个邪魔独裁政府的中共时日也就不多了。
-
-新闻来源：[路透社](https://www.reuters.com/article/us-health-coronavirus-russia-poll/over-60-of-russians-dont-want-sputnik-v-vaccine-see-coronavirus-as-biological-weapon-reuters-poll-idUSKBN2AT2XK)
 ![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
+
 0
