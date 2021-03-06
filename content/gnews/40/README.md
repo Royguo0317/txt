@@ -1,17 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月5日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/952242/)
+## 西班牙副首相称马德里因疫情禁止三八妇女节游行
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/952264/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+- 编辑：Victor Torres
+- 作者：gokuabuela
+- 发稿：神奇四侠
 
-3月5号：回答无数个战友．问七哥的一个问题，现在可不可以迅速地加入……做空港币．挣大钱！
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
+**西班牙2021年3月5日电/西喜社—**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/covid-19-5048418__340.jpg)
+据ABC新闻3月5日报道，西班牙第一副首相，卡门-卡尔沃称，在三八妇女节，马德里将禁止一切集会和游行，而全国其他地方并不禁止，是因为马德里的游行是规模最大的。
 
-[【2021年3月5日】文贵先生盖特原文](https://gtv.org/getter/6042745a9534a74bcaefe355)
+去年的马德里三八妇女大游行被认为是可能引起西班牙疫情大爆发的重要原因，正在被立案调查。而且，目前马德里地区的疫情数据非常严重。
 
-**喜联盟Gnews编辑部**
-
+新闻链接：[ABC](https://www.abc.es/sociedad/abci-coronavirus-espana-directo-trabajador-sanitario-muere-covid-cada-30-minutos-mundo-202103050534_directo.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
 0
