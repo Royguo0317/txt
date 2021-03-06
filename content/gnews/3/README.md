@@ -1,38 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 油管将唐纳德·川普的CPAC演讲列入黑名单，暂停RSBN频道
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/954078/)
+## “疫苗护照”将成为隐私和伦理问题的“潘多拉盒子”
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/954107/)
 
-- 翻译：喜妹
-- 发稿：Ranting
+翻译：康州盘古农场 – TrueSky
+校对：康州盘古农场 – Freeearth
+编辑：康州盘古农场 – Antsee-GTV
 
+![travel]()![travel](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-06-at-21.41.40.png)图片来源：网络视频截屏
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+据哥伦比亚广播公司新闻(CBS News) 3月3日报道：
 
-**西班牙2021年3月6日电/西喜社——**保守派新闻广播公司 “右侧广播网”(RSBN)因为报道了美国总统唐纳德·川普在最近的保守派政治行动会议(CPAC)上的演讲，被YouTube暂停播放两周。
+一些政府和企业正在考虑一种方法，让人们证明他们已经接种了COVID-19疫苗。所谓的”疫苗护照”可以帮助确定谁可以旅行、住酒店、甚至去酒吧。
 
-这段视频在被谷歌旗下平台审查之前，几乎积累了400万的浏览量。
+在以色列，接种过两剂COVID-19疫苗的人现在可以获得政府颁发的“绿色通行证”。上面显示了他们的个人资料和接种疫苗的日期。该通行证被用来扫描进入健身房、酒店和音乐会。对于300多万以色列人来说，这是回到某种正常状态的门票。
 
-RSBN的官方推特账号报道了这一消息。
+“终于! 一路上，我在车里一直在唱‘回归生活! 回到现实’，”一位以色列音乐会演奏者告诉哥伦比亚广播公司新闻（CBS NEWS)的罗克萨娜.萨贝里(Roxana Saberi)。
 
-“由于川普#CPAC2021的演讲违反了他们关于选举错误信息的指导方针，RSBN已经被YouTube暂停两周。该视频的浏览量接近400万次。他们也已将其从平台上删除。”
+英国和包括美国在内的其他国家政府正在考虑类似的CC P病毒免疫证书，以振兴其旅游，商业和酒店业。英国首相鲍里斯.约翰逊（Boris Johnson）表示，他的国家正在仔细研究这一方案。
 
+约翰逊说，“我们以前没有过这样的东西。我们从来没有想过要出示什么东西才能去酒吧或者剧院。所以，有一些深刻而复杂的问题需要我们去探索。”
 
+一些专家正在警告这会涉及道德问题，例如对不想打疫苗的人和由于医疗原因或因为供应不足而无法接种疫苗的人有潜在歧视。
 
-> NEW: RSBN has been suspended from YouTube for two weeks because of the Trump [#CPAC2021](https://twitter.com/hashtag/CPAC2021?src=hash&amp;ref_src=twsrc%5Etfw) speech, which violated their guidelines on election misinformation. 
-> 
-> The video was approaching 4 million views. They have also removed it from their platform.
-> — RSBN 🇺🇸 (@RSBNetwork) [March 4, 2021](https://twitter.com/RSBNetwork/status/1367519312890724355?ref_src=twsrc%5Etfw)
+伦敦经济学院全球卫生政策助理教授克莱尔-温纳姆（Clare Wenham)说，数据隐私是另一个问题。
 
+她说，“它将是一个数字的东西，跟踪你？而这显然打开了关于你的数据安全性的一系列不同的对话，例如…”。
 
+“尽管这对恢复到正常很有益处，但温纳姆表示，各政府应该仔细考虑疫苗护照的潜在隐患。”
 
-RSBN表示，如果在川普总统关于选举违规的说法中加入 “反驳观点”，就可以避免两周的停播。换句话说，只有RSBN也批评川普的讲话，才允许上传。
+温纳姆说，”政府不应该急于求成。我认为这是一个潘多拉盒子.这是一个滑坡，让生活被你的健康状况所控制”。
 
-可见曾经作为世界自由灯塔的美国，如今被中共国渗透的有多么严重，一有不“和谐”的声音就给你封住嘴巴，掐住喉咙，斩断你的发声渠道。如果没有我们爆料革命正在为世界力争最后一块净土的话，全世界都将会很快会沦陷，落入中共邪魔恶党的魔爪之中。
+在各国政府争论豁免证书的同时，一些企业也在不断推进。一些游轮和航空公司已经宣布旅客将需要免疫证明才能登机。
 
-**消息来源：[InfoWars](https://www.infowars.com/posts/youtube-blacklists-donald-trumps-cpac-speech-suspends-rsbn-channel/)**
+世界卫生组织告诉哥伦比亚广播公司新闻（CBSNEWS），只要疫苗的全球供应有限而且阻止病毒传播的能力还不清楚，它就反对在旅行中需要疫苗。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
+原文链接: [Why COVID-19 “vaccine passports” could be “Pandora’s box” for data privacy and ethical issues – CBS News](https://www.cbsnews.com/news/covid-19-vaccine-passport-program-issues/)
 
-+2
++1
