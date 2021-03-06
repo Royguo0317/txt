@@ -1,30 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：赵小兰家族与中共牵扯颇深
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/952773/)
+## 时装大牌为何进军电玩行业？
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/952848/)
 
-出品:《路德社》 编辑：《路德社》精选新闻专栏组
+撰稿：云彩
+![]()![](https://gnews.org/wp-content/uploads/2021/03/图片-6.png)(图片来源网络)
+近日深受疫情打击的时装品牌为了自救，跨界和游戏电玩商合作，加速“线上化”。例如知名品牌Louis Vuitton与《英雄联盟》合作，Valentino和Marc Jacobs也与《动物森友会》合作，为游戏角色设计造型和装备，甚至玩家可以在游戏商店下载时装品牌最新款服饰，在虚拟游戏中体验各种名牌。
 
+时装名牌选择跨界与虚拟游戏合作是看中了这个行业的吸金能力。据调查机构Newzoo报告显示，疫情为游戏市场带来用户和收入的增长，成为少数能够获利的行业之一。相比时装秀，玩家通过线上游戏接触到品牌，缩短了高端品牌与顾客之间的距离，更直接了解品牌的产品ˎ风格和理念。
 
+点评：
 
-> directly with the Chinese government. So a former senior US government official’s family sits on the board of one of the largest and most important banks in China? [#ethics](https://twitter.com/hashtag/ethics?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)
-> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [March 5, 2021](https://twitter.com/Jkylebass/status/1367807657340502021?ref_src=twsrc%5Etfw)
+CCP投放生化病毒武器，犯下了滔天大罪，改变了人类的生活方式。因为防止病毒的传染，人们更多地依赖网络进行社交和消费。像该新闻里的时装名牌由于实体店销售大跌不得不思考如何自救。
 
+文贵先生在直播中提到一些知名时装品牌非常想和G-Fasion 合作，例如女装和童装。那么G-Fasion为什么吸引这些时装品牌公司？笔者个人认为是将来G-Fasion 的巨大用户市场。G-Fasion与爆料革命息息相关。随着爆料革命灭共事业的步步推进，越来越多的人知道我们G系列。而G-Fasion全新的时尚理念让人耳目一新。
 
+爆料革命不但灭共，而且还进行财富再分配。GTVˎG-CoinˎG-Dollar等G系列的运作，让战友们成为高收入人群，比如G-Club会员，他们将是世界消费市场里一股不可忽视的力量。
 
-2021年3月5日，凯尔巴斯引用纽约时报对赵家的报道并发推评论:
+（本文纯属个人观点）
 
-What’s even more perplexing is that Chao’s sister sits on the board of the Bank of China where all data is a Chinese “national secret”. BOC is one of the oldest and most important banks to the Communist Party in China. Chao’s family does business directly with the Chinese government. So a former senior US government official’s family sits on the board of one of the largest and most important banks in China?
+编辑：文远Bruce
 
-更为复杂的是赵小兰的妹妹赵安吉担任中国银行董事，这家银行的所有数据均为中国“国家机密”。中国银行是中国共产党最悠久且最重要的银行之一。赵家直接与中国政府做生意。因此，美国前政府高级官员的家族成员是中国最大且最重要的一家银行董事会成员吗？
-![]()![](https://gnews.org/wp-content/uploads/2021/03/030601.png)
-随着参议员麦康奈尔和赵氏家族与中共之间的利益关系逐渐被美国左媒揭露，表明中共内部的政治斗争越加残酷激烈。曾经跟中共勾结出卖美国国家利益的政客官员们，正被中南坑的老杂毛当作内斗的手雷，相互抛出引爆，落得身败名裂的下场。同时也表明美国内部灭共的大趋势已成，曾与中共沆瀣一气的政客官员也不敢明面为其站台，逼得中南坑不得不放出他们的部分犯罪证据敲山震虎。但这样只会让这些腐败的政客、官员和企业家愈加远离和憎恨，为了自保和自救，他们别无选择必须加速灭共。
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
-本文作者：Stranger
-审核校对：鲁邦五世
-上传排版：糖果儿
+[【澳喜文章】](https://gnews.org/zh-hans/author/aujenny/)
 
+参考资料：
 
-
+[Burberry、LV等名牌為自救 進軍電玩行業 八成玩家表示願意購買相關造型](https://businessfocus.io/article/158194/%E9%9B%BB%E7%8E%A9%E6%99%82%E8%A3%9D-burberry-lv%E7%AD%89%E5%90%8D%E7%89%8C%E7%82%BA%E8%87%AA%E6%95%91-%E9%80%B2%E8%BB%8D%E9%9B%BB%E7%8E%A9%E8%A1%8C%E6%A5%AD-%E5%85%AB%E6%88%90%E7%8E%A9%E5%AE%B6%E8%A1%A8%E7%A4%BA%E9%25)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
 0
