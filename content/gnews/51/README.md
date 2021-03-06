@@ -1,74 +1,84 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 与军方有关联的中方学者参与中美疫情电话交流会
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/954326/)
+## 香港47名民主人士在保释听证会后仍被拘留
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/954369/)
 
-*新闻来源：The Gateway Pundit《门户网站评论员》| 作者：Joe Hoft | 发布时间：2021年3月2日*
+*新闻来源：《卫报》| 作者：海伦·戴维森（Helen Davidson） | 发布时间：2021年3月4日*
 
-*翻译/简评：大和凯多 | 校对：SilverSpurs7 | 审核：万人往 | Page：拱卒*
+*翻译/简评：叶知秋（文义） | 校对/审核：万人往 | Page：拱卒*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/b000db63-079b-42a3-aaea-2632b017ac01.jpg?asset_id=a3240d47-2024-40a4-b6ed-977ff356aa9f&amp;img_etag=%2207cd6ddf1eab785c30e96180f7553ef1%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/b000db63-079b-42a3-aaea-2632b017ac01.jpg?asset_id=a3240d47-2024-40a4-b6ed-977ff356aa9f&amp;img_etag=%2207cd6ddf1eab785c30e96180f7553ef1%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/xGAIIqg9STMhP/images/a898374f-8b03-47ee-a25c-4a558e2c6953.jpg?asset_id=2039a4b4-064e-4e25-98c7-7c8dda0efe94&amp;img_etag=%2225a6b0a7bbbb27fa3f1cb8b6e592307e%22&amp;size=2560)](https://spark.adobe.com/page/xGAIIqg9STMhP/images/a898374f-8b03-47ee-a25c-4a558e2c6953.jpg?asset_id=2039a4b4-064e-4e25-98c7-7c8dda0efe94&amp;img_etag=%2225a6b0a7bbbb27fa3f1cb8b6e592307e%22&amp;size=1024)
 
 **简评：**
 
-作者在本文讲述了美国科学界给中共军方喂料，提供有关CCP病毒的信息。在疫情初期的中美科学界电话会议中，中方的所有与会者都与中共军方有关联。
+在西九龙法庭上，出现了一些感人的场景，一些人在庭内哭泣，另一些人在庭外互相拥抱。一个人站在法庭外，拿着一把代表民主运动的黄伞，举着“释放所有政治犯”的横幅。
 
-这篇文章并不让人感到惊讶，因为郭先生早就说过了共匪的“蓝金黄”计划。爆料革命这几年以来，我们对“蓝金黄”已经不再陌生，发生了这么多的事都已经验证了共匪的“蓝金黄”计划的巨大力量。美国的政治中心——国会山的政客都可以被“蓝金黄”，更何况科学界。但是，这些丑恶的交易终将会暴露在阳光下面，大众终将会明白真相。正义得到伸张之时就是这些作恶之人恶有恶报之日。
+当翻译到这一段的时候，我难忍自己的泪水……
+
+亲人啜泣，手足相拥，觉醒者默默的支持……
+
+这一场景，像极了抗战时期为了抵抗外敌侵略而舍生取义的那些仁人志士在刑场上与家人离别的场景，而此次庭审中，这些义士所承受的痛苦与别离，不是来自曾经的侵略者，而是来自当年那些仁人志士用鲜血培植起来的共产邪魔！
+
+真希望有战友能把这一足以定格历史的瞬间画出来，向全天下昭示，这就是宣称“为人民服务”的中国共产党为中国人设计的“美丽的”的中国梦！在这个梦里，没有公平正义，没有是非曲直，只有残酷统治，只有灭绝人性！
+
+香港人的觉醒与付出，大陆人难理解。大陆人自己所背负的枷锁，他们中的大多数也是浑然不知，几代人接受的洗脑教育，正在帮助中共完成他们要创建的现代奴隶制。
+
+参加爆料革命的爱国者们，请迅速集结起来，更加广泛地传播真相，用事实击碎中共的谎言，用逻辑和常识剥下中共的画皮，扩大宣传，不断凝聚墙内墙外的正义力量，一起打破困在中国人身体和心理上的双重枷锁——共产主义！
 
 **原文翻译：**
 
-# **美国科学界2020年5月向中共国军方做实际意义上的COVID-19简报**
+# **所有47名香港民主派人士在保释听证会后仍被拘留**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/e75480da-a56a-4c34-b8ed-c746440d5cda.jpg?asset_id=529bf1ad-8b9b-4e75-b0ca-93c70ac191c1&amp;img_etag=%220854ecb3a0b433b60db5794bf6de4c58%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/e75480da-a56a-4c34-b8ed-c746440d5cda.jpg?asset_id=529bf1ad-8b9b-4e75-b0ca-93c70ac191c1&amp;img_etag=%220854ecb3a0b433b60db5794bf6de4c58%22&amp;size=1024)图片由Lawrence Sellin博士提供
+**其中15名被告已获准保释，但仍在等待上诉。**
 
-**美国科学界去年五月与中方同行就中共国病毒（COVID-19）举行电话会议。问题是，中方参会人员与中共军方是有关联的。**
+[!\[\]()!\[\](https://spark.adobe.com/page/xGAIIqg9STMhP/images/847b8e23-dedd-487e-b10b-df2fee54043b.jpg?asset_id=d7d93bff-6e8f-45e8-8f80-24e22c7a762f&amp;img_etag=%22880cbb34d65b46c747b7a74d81d8a570%22&amp;size=2560)](https://spark.adobe.com/page/xGAIIqg9STMhP/images/847b8e23-dedd-487e-b10b-df2fee54043b.jpg?asset_id=d7d93bff-6e8f-45e8-8f80-24e22c7a762f&amp;img_etag=%22880cbb34d65b46c747b7a74d81d8a570%22&amp;size=1024)警方在香港法庭外为民主活动人士升起一面警告旗帜。照片：余伟建/美联社
 
-上一期文章中，我讲述了美国国家科学院和一些美国科学机构的人在2020年2月如何帮助中共国掩盖新冠病毒来源于实验室的事实。
+一位香港法官在长达四天的马拉松式听证会上将47名根据严苛的《港区国安法》被起诉的香港泛民主派人士拘留，该听证会被人嘲笑是混乱和滑稽的。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/b6e1ebfc-4042-4377-8be3-ef089b6559df.jpg?asset_id=59871b2b-6d4e-4b5d-be2a-4e4be9294e60&amp;img_etag=%22bb16dbbb45650df2fa8b005b0f0cfdfc%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/b6e1ebfc-4042-4377-8be3-ef089b6559df.jpg?asset_id=59871b2b-6d4e-4b5d-be2a-4e4be9294e60&amp;img_etag=%22bb16dbbb45650df2fa8b005b0f0cfdfc%22&amp;size=1024)彼得·达扎克（Peter Daszak）
+32名被告被首席法官苏惠德（Victor So）拒绝保释，15名被告获得保释但是仍被羁押，因为政府公诉人表示他们将对此提起上诉。
 
-具有讽刺意味的是，从那次惨败中产生的建议之一就是增加美国与中共国的科学互动，这个决定导致了又一个错误，因为同样出于政治动机或天真的顾问再次参与了事务。
+该组织于上周日因去年举行的一次非正式初选而被控“串谋颠覆国家政权”，这是自去年6月《港区国安法》实施以来针对香港泛民主派阵营采取的最大规模的行动。
 
-2020年5月，美国国家科学院发起一系列电话会议，中美科学家就当前的冠状病毒疫情交换了信息。
+因此，在周一的一次保释听证会上处理了所有47起案件，庭审一直持续到凌晨3点，并将持续进行一周。他还拒绝了解除报告限制的申请，这意味着只能公布裁决和相关姓名，而不会公布支持或反对批准保释的论点。
 
-这些电话会议也可以说是向中共国军方做实际意义上的简报。
+随着这47人被还押候审，香港大部分支持民主的主要人物从现在起将被关在监狱里，或者在针对香港自治区异议人士的持续镇压中流亡海外。
 
-大多数代表美方的野心勃勃的科学家都早曾和中共国合作研究，比如拉尔夫·巴里克（Ralph Baric）和彼得·达扎克（Peter Daszak），这两位和武汉病毒研究所是合作关系。此外，其中有些科学家在此前的三个月都曾明确支持中共的态度，说冠状病毒是起源于自然并非实验室，比如彼得·达扎克、斯坦利·普尔曼（Stanley Perlman）和 琳达·赛义夫（Linda Saif）。
+在西九龙法庭上，出现一些感人的场景，一些人在庭内哭泣，另一些人在庭外互相拥抱。一个人站在法庭外，拿着一把代表民主运动的黄伞，举着“释放所有政治犯”的横幅。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/0bc6b82e-ab2d-40d7-b05c-92e23894669f.jpg?asset_id=675aecd4-8622-4619-ae8b-ea2c9a7694de&amp;img_etag=%224fa4feeaec8f43810bb21030d2ded325%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/0bc6b82e-ab2d-40d7-b05c-92e23894669f.jpg?asset_id=675aecd4-8622-4619-ae8b-ea2c9a7694de&amp;img_etag=%224fa4feeaec8f43810bb21030d2ded325%22&amp;size=1024)拉尔夫·巴里克（Ralph Baric）
+“我们对今天的保释申请失败并不感到惊讶。”一名被拒绝保释的著名被告，“长毛”梁国雄的妻子陈宝莹说。“这证明，根据《港区国安法》，香港的法律体系已经彻底被扭曲和颠倒了。”
 
-中方带头的科学家是高福，也叫George F. Gao，他是一名中共国病毒学家和免疫学家，曾担任中共国疾病预防控制中心主任，中国科学院大学存济医学院院长。
+[!\[\]()!\[\](https://spark.adobe.com/page/xGAIIqg9STMhP/images/749fc1b2-609e-4c39-a75b-6255da2fb1a6.jpg?asset_id=85cc1511-8899-467e-ae9a-dcc736e5452f&amp;img_etag=%22d241a7808da5aa45b1d3e40c4d660f9b%22&amp;size=2560)](https://spark.adobe.com/page/xGAIIqg9STMhP/images/749fc1b2-609e-4c39-a75b-6255da2fb1a6.jpg?asset_id=85cc1511-8899-467e-ae9a-dcc736e5452f&amp;img_etag=%22d241a7808da5aa45b1d3e40c4d660f9b%22&amp;size=1024)周四，支持民主的抗议者在香港法庭外的空中举着手机灯。 照片：余偉建/美联社
 
-[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/7e90a287-c24c-4355-93be-7603a1773f5d.jpg?asset_id=32aab734-41a0-4905-b4f1-76f70b64989b&amp;img_etag=%22d9b10482e0d8786becfcd831a8d4a598%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/7e90a287-c24c-4355-93be-7603a1773f5d.jpg?asset_id=32aab734-41a0-4905-b4f1-76f70b64989b&amp;img_etag=%22d9b10482e0d8786becfcd831a8d4a598%22&amp;size=1024)高福
+获得保释的15名被告预计将在48小时内到高等法院再次出庭受审。对其他人而言，案件延期至5月31日。
 
-2019年，他被选为美国国家科学院和美国国家医学科学院的外籍院士。
+检察官要求至少三个月的休庭，以便有时间进一步调查，并反对对任何被告保释。 辩护方表示反对，并提出质疑：如果案件尚未准备就绪，为什么提出指控并将被告羁押入狱。
 
-高福也是中共国军方长期的研究合作者，分别于2002年、2005年、2006年、2007年、2008年、2010年、2011年、2013年、2014年、2018年、2019年、2020年发表论文。
+《港区国安法》的措辞使得根据该法被指控的任何人都很难获得保释。媒体大亨黎智英(Jimmy Lai)在另一起案件中因涉嫌与外国势力勾结而面临审判，他一直在法庭内外对他的保释拒绝提出质疑，但迄今未获成功。
 
-这些只是冰山一角，不包括他通过同伙与中共国军方的关系。
+今年1月，有55人因初选事件而被捕，受到国际社会的谴责。甚至一些亲北京的政客也持怀疑态度，他们指出，初选是香港政治两派的共同特点。
 
-根据2020年7月1日美国国家科学院的一封邮件，高福最感兴趣的两件事情；第一，美国血清调查的总体情况；第二，美国疫苗的进展情况，尤其是mRNA疫苗。
+[!\[\]()!\[\](https://spark.adobe.com/page/xGAIIqg9STMhP/images/18e672bb-a710-4256-830c-42bb72f4aca3.jpg?asset_id=ff6bdf8d-24f7-4471-9a73-f9de9e3a2f3a&amp;img_etag=%2289f622c0b2282728788c9fd5e9299a74%22&amp;size=2560)](https://spark.adobe.com/page/xGAIIqg9STMhP/images/18e672bb-a710-4256-830c-42bb72f4aca3.jpg?asset_id=ff6bdf8d-24f7-4471-9a73-f9de9e3a2f3a&amp;img_etag=%2289f622c0b2282728788c9fd5e9299a74%22&amp;size=1024)
 
-这两点都不足以让人感到惊讶。
+当局声称，这47名议员曾策划选出能够赢得70个立法会席位中多数席位的候选人，然后不分青红皂白地通过阻止立法来“瘫痪”议会，并迫使行政长官辞职。当局还没有说他们是否打算起诉其余8人，其中包括美国律师关尚义。
 
-那个时候，高福和两家中共国的生物科技公司一起在解放军总医院第五医疗中心传染病治疗研究中心（Treatment and Research Center for Infectious Diseases of the Fifth Medical Center of People’s Liberation Army General Hospital）进行血清研究。研究结果以《严重急性呼吸系统综合症冠状病毒2抗体作为COVID-19感染患者的一种血清标记的早期发现》形式发表。
+案件的处理被广泛批评为混乱、滑稽和司法不公。在四天的审讯过程中，五名被告被救护车送往医院，还有几名被告抱怨无法与律师联系。
 
-在美中电话会议期间，高福也在解放军总医院第五医疗中心进行冠状病毒的抗体研究。同时他的军方同僚逯光文在同一所医院做冠状病毒疫苗研究。逯光文毕业于广州的第一军医大学。
+报道称，一些被告在周二凌晨3点结束庭审后回到牢房不到3个小时，就被送回法庭，律师们都没有时间洗澡或换衣服。
 
-**另外一名美中电话会议参会人是石正丽，武汉病毒研究所的“蝙蝠女”。很多人都怀疑病毒就是在武汉病毒研究所制造出来的。**
+到星期三晚上，几名被告放弃了他们的律师，想代表他们自己向法官提出更多的意见，法官星期四听取了这些意见。但是他们声明的内容被“报告限制”所覆盖。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/6110c75c-41c9-4232-ac0a-7df172f0d27a.jpg?asset_id=35eecdbb-7382-4e75-9754-f5d67109b855&amp;img_etag=%22e5d84a4199663ed073d5680dd82810fd%22&amp;size=3290)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/6110c75c-41c9-4232-ac0a-7df172f0d27a.jpg?asset_id=35eecdbb-7382-4e75-9754-f5d67109b855&amp;img_etag=%22e5d84a4199663ed073d5680dd82810fd%22&amp;size=1024)
+“法院系统不应该安排如此混乱的司法审查，让香港原先受人尊敬的司法系统看起来像警察和公诉机关随意使用的工具。”纽约大学法学院的中国问题专家孔杰荣教授周四在一个博客上写道。
 
-在美国国家科学院的邮件中，电话会议的一名中方参与者是谭文杰博士，关于此人的描述是，中国疾病预防控制中心病毒病预防控制所病毒病应急技术中心主任和教授。
+第一天，1000多名支持者聚集在法庭外，呼吁释放囚犯，并高呼非法抗议口号。 警方以违反“大流行病聚集法”为由开出了若干罚款。出席会议的有外国外交官和人权团体，在日益担心香港司法系统持续恶化的情况下，他们正密切关注这一案件。
 
-美国国家科学院没有提到的是，谭文杰博士属于中共国军队中央战区和中国武汉人民解放军总医院。
+“我们以前从来没有见过这样的事情。听证会通常都很快……如此长的听证会很奇怪，”爱尔兰驻香港总领事大卫·科斯特洛在谈到听证会的时长时说，“这是对香港将来会发生什么事情的一次测试。”
 
-徐建青，另外一名美中电话会议的参与者，也和中共国军方一起工作，经常和姜世勃一起合作研究。姜世勃与中共国军方和多个美国病毒实验室的大量关联在一篇名为《中共国军方与美国资金的关联以及冠状病毒的实验室起源》的文章中。
+外国政府和人权组织谴责了起诉香港民主人士的这次举动，但香港和北京当局仍然没有道歉。
 
-所以基本上，这些由美国科学界安排的电话会议很可能就是直接向中共国军方提供潜在的关键信息。
+周四，美国右翼智库传统基金会(Heritage Foundation)表示，将不再把香港纳入其经济自由度指数，因为“近年来的事态发展毫无疑问地表明，（香港的经济）政策已经彻底被北京方面控制”。截至2019年，香港已连续25年位居榜首。
 
-[原文链接](https://www.thegatewaypundit.com/2021/03/u-s-scientific-establishment-conducted-de-facto-covid-19-briefings-chinese-military-may-2020/)
+[原文链接](https://www.theguardian.com/world/2021/mar/04/hong-kong-court-denies-bail-to-32-detainees-under-security-law)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -77,6 +87,6 @@
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/jAmHbSs8N5U23/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/jAmHbSs8N5U23/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/xGAIIqg9STMhP/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/xGAIIqg9STMhP/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-+1
+0
