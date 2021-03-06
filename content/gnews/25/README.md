@@ -1,13 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 台湾陷落，亚洲会变红或至少变粉红。应避免多米诺骨牌效应
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/953706/)
+## 25/02/2021美国电话电报公司在和中共做生意（粤语版）
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/953925/)
 
-3/4/2021 台湾陷落，亚洲会变红或至少变粉红。应避免多米诺骨牌效应。
+摘要：班农战斗室——美国电话电报公司在和中共做生意
 
-By： 【秘密翻译组 G-Translators】
+**By： 【秘密翻译组 G-Translators】**
 
-
-
-0
++1
