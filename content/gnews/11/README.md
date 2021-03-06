@@ -1,15 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月5日 文贵先生盖特8
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/953321/)
+## 中共两会中重提九二共识一中原则
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/953343/)
 
-编辑整理：美东香草山农场（彩虹桥）
+文章作者：台湾宝岛农场神爱世人
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2000x1333_0207936083827.jpg)
+(图片来源：[中央社](https://www.cna.com.tw/news/acn/202103050032.aspx))
 
-历史上的今天: 希特勒的公然毁约 今天的中共竟是如此的相似！
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-47.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/2-25.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/3-29.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/4-21.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/5-18.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/6-17.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/7-11.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/8-1.jpg)
-[【2021年3月5日】文贵先生盖特原文](https://gtv.org/getter/6042d7289534a74bcaeffc57)
+中共十三届第四次全国人大会议于3月5日正式拉开序幕，会议在北京人民大会堂举行，会议前夕北京安检甚为严谨，到处都是穿红色条纹反光背心的警察，天安门广场内所有路口都有进行安检，附近的居民被要求出示身份证，临近人民大会堂的地铁出口日前已被关闭。可能疫情关系，中共对今年的管制特别重视，下午三时会议开始，来自全国各地政协委员约两千多人已进入会场，首先由政协主席汪洋发表过去一年工作报告，主要回顾过去一年的工作。
 
-喜联盟**Gnews**编辑部
+李克强发表新一份政府工作报告提到与台湾和平发展，统一组国，坚持一中原则，坚持九二共识，高度警惕台湾分裂活动；至于十四五规划纲要草案就指出要积极促进两岸交流发展，增进互信认同，团结同胞，致力中华民族伟大复兴，保障台湾同胞在大陆享有同等待遇。
+
+须知道中共对台湾虎视眈眈已经有70年了！为求达到目的可算是无所不用其极。台湾本有自己的政府，自己的军队，自己的法制，再者台湾是绝对民主，以民为本的国家，想收复台湾谈何容易！中共知道和平统一并非容易之事，因此去年开始共机扰台不断，对台进行打压、威吓，试途让台湾人屈服。现在这边厢说要和平统一，那边厢说不承诺放下武器，这样的九二共识相信很难让台湾人民接受。健康的政治交往应该由诚实态度开始，而不是出尔反尔的做法。
+
+文章只代表作者个人见解！
+
+资料来源：
+
+[中国人大登场李克强重申九二共识和平统一](https://www.cna.com.tw/news/acn/202103050032.aspx)
+
+[十四五规划纲要草案坚持一中原则和九二共识](https://%20udn.com/news/story/7331/5297379)
+
+[嚣张！中媒：台海一线主力中国歼16挂载「王牌杀手锏」飞弹巡航](https://news.ltn.com.tw/news/world/breakingnews/3453505)
+
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+
+文章审核：zhong
+
+文章发布：Little Liu
 
 0
