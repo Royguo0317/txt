@@ -1,52 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## G系列投资之GTV迁至BVI优势
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/954679/)
+## 【香港快讯】 3月6日 律政司要求押后保释覆核 官拒批临时保释申请 11人续还柙『深夜更新』
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/954753/)
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/Picture1-7.png)
-[图片来源](https://www.epicyachtcharters.com/2017/10/valuable-information-shared-bvi/)
+搜集/整理：【喜马拉雅-粤语组】PO
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image001-8.png)
+**民主派初选47人案  市民写信慰问众被告鼓励勿忘初心**
 
-持续多月对G-TV的无理由审查，美国SEC充分暴露了其迂腐和官僚。新中国联邦将GTV总部迁至英属英属维京群岛（简称BVI），既可以尽快摆脱美国SEC的无休止审查, 加快灭共进程, 又可以享受那里得天独厚的投资环境。
+47名民主派因「35+初选」被控「串谋颠覆国家政权罪」，民间电台今（6日）于铜锣湾摆街站，让市民写慰问信给47名被告。有市民于信上鼓励勿忘初心，亦有市民希望信件可为全港人打气。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image003-6.png)
+**再有市民接种科兴疫苗后死亡 卫生署：未确立因果就暂停过于仓卒**
 
-[BVI](https://en.wikipedia.org/wiki/British_Virgin_Islands_Financial_Services_Commission)以低税率著称，其宽松的金融监管政策，稳定的政治环境和对客户资料的高度保密程度，这些都是美国所无法比拟的。
+(独媒报导）一名55岁女子星期二（3月2日）于佐敦官涌市政大厦接种科兴疫苗后，三日后中风入院不治，是本港第二宗接种疫苗后的死亡个案。多名记者质问卫生署「系咪一定唔会暂缓接种疫苗？」卫生署卫生防护中心总监林文健「人肉录音机」上身，重申疫苗经委员会审视，「其实接种疫苗的效能是相对风险（来得）高，从这些事故未能够同疫苗建立因果关系的时候就要求暂停，未免过于仓卒」。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image005-2.png)
+**港版国安法︱曾助许智峰流亡 丹麦政客获国家通知人身安全受威胁**
 
-**世界离岸金融中心优势**
+前民主党立法会议员许智峰去年底在多个丹麦政客协助下，经丹麦流亡英国。曾长驻香港的爱尔兰记者Aaron Mc Nicholas指，协助过许智峰的丹麦保守党全国青年委员会前主席Anders Storgaard，收到该国的情报机构通知，未来出访需与国家情报机构协调，反映Anders Storgaard面对人身安全风险。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image007-2.png)
+**拒批临时保释申请 11人续还柙 下周四再讯**
 
-英属维京群岛（British Virgin Islands）简称BVI，是英国的海外领土，位于加勒比海地区，其官方流通货币为美元。作为世界离岸金融中心，BVI是加勒比海区经济最繁荣的地区之一。[2019年人均GDP高达4.3万美元。全球约40%的离岸公司均在BVI注册。](http://data.un.org/Data.aspx?q=British+Virgin+Islands&amp;d=SNAAMA&amp;f=grID%3A101%3BcurrID%3AUSD%3BpcFlag%3A1%3BcrID%3A92GDP)
+（独媒报导）47名民主派被控「串谋颠覆国家政权罪」，经4日马拉松式聆讯后，其中15人获准保释，惟律政司即提出覆核，因而继续还柙。律政司昨撤回杨雪盈、林景楠、吕智恒和刘伟聪的覆核决定，4人均即晚准保释，其余11人则今（6日）被解往高等法院原讼法庭接受保释聆讯，由国安法指定法官杜丽冰处理。由于律政司指需时准备，申请将聆讯押后，杜官遂将案件押后至下周四（11日）及下周六（13日）分批处理，以待双方提交书面陈词。期间郑达鸿、黄碧云等欲申请临时保释至下周聆讯，均遭杜官明确拒绝。聆讯于下午约2时50分结束，11人继续还柙。
 
-**资金全球合理配置，提升资金利用效率**
+11名被告包括郑达鸿、郭家麒、彭卓棋、何启明、黄碧云、谭文豪、施德来、张可森、伍健伟、柯耀林和李予信。
 
-美国金融监管机制，尤其外汇管制政策增加了海外汇款难度。BVI更鼓励资金在全球内的流动和配置，没有外汇管制这一说，能更好的消除监管部门对资本的垄断管控，使各国的资金渠道更顺畅。
+[明报(一)](https://news.mingpao.com/ins/港聞/article/20210306/s00001/1615028372842/民主派初選47人案-市民寫信慰問眾被告鼓勵勿忘初心), [独立新闻(二)](https://www.inmediahk.net/node/1081271), [苹果(三)](https://hk.appledaily.com/local/20210306/4RM3QGES7BCMJAALXABY5OZVK4/), [独立媒体(四)](https://www.inmediahk.net/node/1081257)
 
-**低税率**
-
-BVI的税率很低，这将大大降低G-TV运营成本，[下图是BVI和亚洲另一离岸金融中心新加坡的比较，BVI的税率基本就是零。](https://www.guidemesingapore.com/why-singapore/british-virgin-islands-bvi/doing-business---singapore-vs-the-british-virgin-islands-bvi)
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/image-55.png)
-**金融监管宽松**
-
-[BVI的金融监管也很宽松，BVI在01年成立了独立的金融服务委员会 (The British Virgin Islands Financial Services Commission) 简称 BVI FSC，作为负责监管，监督和检查BVI境内所有金融服务的机构。其牌照申请非常简单，申请公司只需1名股东和董事，且一个人既可以当股东也可以是董事，然后提供护照和无犯罪记录证明即可。除此之外几乎没有任何额外限制。](http://www.fxshellpro.com/cn/financial-services-licensing-solutions/bvi-fsc)
-
-**程序简单，客户资料高度保密**
-
-[BVI又比美国更占优势。 BVI当地政府要求递交存盘的资料较少，且董事资料高度保密，公司股东资料可以隐藏，不需要披露。同时BVI注册公司无需提供办公地址，注册资本可以以认购的形式，而不需要实质注资，更无需做账报税，每年只需要缴纳续牌费，不需要递交年审年报。并且所有注册公司的商业行为受到国际法律的保护。](https://en.wikipedia.org/wiki/British_Virgin_Islands_Financial_Services_Commission)
-
-**政治环境相对安全稳定**
-
-BVI的行政权力法理上由女皇执掌，由派驻当地的总督代行权力，其人选由英国政府提供意见。在1967年后BVI获准自治，由民选的总理担任政府首长，现在的BVI实行的是双首脑制，政治主体是近欧洲的议会制。即使中共买通岛上政府首长，但是首长没有决策权，其对政治经济影响力微乎其微。
-相比而言，新上台的美国拜登政府和中共有着不可分割的经济关系，这给GTV发展增加了风险和不确定因素。BVI可以最大限度地降低中共破坏力，这对G系列投资长远战略目标，及新中国联邦健康长久地发展至关重要。
-
-**创新发展战略**
-
-孙子云：凡战者，以正合，以奇胜。这个奇，指的就是创新。BVI市场管制的宽松，为将来G系列持续创新提供了了更好的金融的环境。将G-TV搬至BVI后，可依托当地得天独厚的金融优势，更好地发挥灭共平台这一优势。
-将GTV迁出美国到BVI， 不仅可以降低中共对新中国联邦的破坏力，在一定程度上消除了安全隐患；而且享受当地低税率政策，大大降低运营成本；又可以尽快摆脱美国SEC无理由审查，加快了灭共的进程。
-
-【秘密翻译组-金融团队原创作品】
-
-作者：匿名战友&Sharon G
-
-校对：Sharon G
-
-参考文献：[离岸金融中心](https://gnews.org/zh-hans/581206/)
+审核/上传：文粤
 
 0

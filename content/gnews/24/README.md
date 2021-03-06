@@ -1,17 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月6日 文贵先生盖特 1
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/954542/)
+## 中共武装南海不仅仅为了地区称霸
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/954643/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+#### ***作者：军迷wison***
 
-3/05/2021 郭先生直播：历史上的3月5日 – 历史总是惊人的相似！ 1919年3月5日德国一战战败、被迫签订凡尔赛条约；1935年3月5日希特勒撕毁条约，美、英、欧洲采取了绥靖政策，和今天中共、习王要在香港推出新选举法如出一辙 3/05/2021 Miles Guo: March 5th in History – History is always shockingly similar! On March 5th, 1919, Germany had to enter into the Treaty of Versailles since it lost the WWI; On March 5th, 1935, Hitler breached the treaty and the U.S., UK, and European countries adopted the appeasement policy, which was exactly the same with today – where the CCP, Xi Jinping and Wang Qishan are pushing the new Hong Kong Election Law
+![]()![](https://gnews.org/wp-content/uploads/2021/03/图片-1-4.png)图片来源：国家利益
+
+《国家利益》网站3月5日报道，中共在当今全世界最繁忙的海洋水道——南海岛屿实施军事化，从公开的图像显示，中共在永兴岛部署了几架H-6J远程战略轰炸机。当前中共最强大的YJ-12反舰导弹也被部署在南海的岛屿，其目标无疑是美国的航母打击群。
+
+简氏周刊曾经撰文介绍YJ-12反舰导弹，证实为超音速导弹，其自重达7吨，长7米。陆地上可以在越野大卡车机动发射，海上多种舰艇均可作为其发射载具。中共的歼轰-7B及H-6J轰两型轰炸机能够装载这种致命导弹，H-6J还可以同机装配常规导弹和核导弹并能同时发射，目前有160架H-6J在中共部队服役。
+
+《国家利益》指出，国际社会并不认可中共在南海的海权主张，而中共强行把战略性武器前置部署到南海，就是要排挤美国在该地区的军事存在，独霸南海这个资源丰富、堪称黄金水道的地区。
+
+评:
+由于印太地区已经成长为全世界最具经济活力的区域，为了各自的战略利益，世界各国在印太的博弈将不断升级和复杂化，特别是对印度洋→马六甲海峡→南海→台海→东海这条航线控制权的争夺将异常激烈。而南海和台海更是这条印太海上生命线的咽喉要冲。
+
+这条航线之所以如此重要，是因为在充满经济活力的印太地区，大部分的能源、原材料、商品都经由该航线进出，因此维持该航线的航行自由事关沿线国家的兴亡。美国多年以来在印太的海军其实在充当海洋交警的角色，现在中共在东南沿海部署重兵，把势力伸入缅甸及印度洋，在南海、台海破坏传统均势，目的就是要把这个交警赶走，自己当路霸海盗，坐收买路钱。
+
+独霸南海、占领台湾仅仅是中共野蛮扩张的第一步。郭文贵先生在直播中指出，当前习近平盗国贼集团和当年的希特勒相比有更大的称霸野心。如果美国及其印太盟友也如当年的法国、英国等害怕希特勒的疯狂军事扩张，釆取自私的驼鸟政策。中共就有可能取得印太的主导权，印太周边各国的文明法治、自由开放将同香港一样备受中共的摧残，世界或将陷入比二战更大的灾难之中。因此，热爱和平与自由的人们，要树立坚定的灭共决心并付诸行动！
+
+* * *
+
+(文章只代表作者观点，与Gnews网站无关)
+
+参考链接：
+[War or Peace: What Is China Plotting in the South China Sea?](https://nationalinterest.org/blog/reboot/war-or-peace-what-china-plotting-south-china-sea-179334)
+
+***责任编辑**：华盛顿DC农场 光之子(沙加)
+**编辑/校对**：日本东京方舟农场 老蚂蚁666
+**发布**：巴黎七星农场 文月*
 
 
 
-[【2021年3月6日】文贵先生盖特原文](https://gtv.org/getter/60438c559534a74bcaf02496)
-
-**喜联盟Gnews编辑部**
-
-0
++1

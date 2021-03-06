@@ -1,38 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 油管将唐纳德·川普的CPAC演讲列入黑名单，暂停RSBN频道
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/954078/)
+## 拜登同意改变海外打击权限
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/954146/)
 
-- 翻译：喜妹
-- 发稿：Ranting
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-06_16-55-17.jpg)[foxnews.com](https://www.foxnews.com/tech/674-billion-of-tanks-fighter-jets-subs-and-more-to-boost-us-military-power-in-2019)
+03月06日，白宫发言人詹·普萨基在发布会上表示，美国总统拜登也认为，界定美国领导人海外打击权力的法律早就该更新了。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+《授权使用军事力量（AUMF）法》是2001年9月18日的颁布的法律。在911事件后通过，它允许总统使用“必要和适当的军事力量”来对付那些幕后黑手。2016年的法律解释授权了对恐怖组织“基地”组织（在俄罗斯被禁止）和其他团体使用武力的理由。
 
-**西班牙2021年3月6日电/西喜社——**保守派新闻广播公司 “右侧广播网”(RSBN)因为报道了美国总统唐纳德·川普在最近的保守派政治行动会议(CPAC)上的演讲，被YouTube暂停播放两周。
+“他（拜登总统）同意，已经实施了20年的《AUMF》早就该更新了，”普萨基解释说。
 
-这段视频在被谷歌旗下平台审查之前，几乎积累了400万的浏览量。
+据她透露，拜登愿意就总统在这一领域的权力边界应如何发展进行讨论。发言人强调，政府已做好准备，将就这一问题进行适当讨论。
 
-RSBN的官方推特账号报道了这一消息。
+在美国空袭叙利亚领土后，提出了总统在国外使用军事力量的权力问题。据华盛顿报道，美国空军于2月25日对伊朗支持的民兵组织使用的基础设施进行了打击。正如拜登所解释的那样，这些组织参与了最近对美军的袭击，并且正在计划新的袭击。2月27日，拜登正式向国会通报了打击情况。
 
-“由于川普#CPAC2021的演讲违反了他们关于选举错误信息的指导方针，RSBN已经被YouTube暂停两周。该视频的浏览量接近400万次。他们也已将其从平台上删除。”
+打击后，参议员蒂姆·凯恩发表声明，表示他认为总统在授权空袭前应该与国会协商。“美国人民应该听到政府对这些打击的理由，以及在没有通知国会的情况下以这种方式采取行动的法律依据。”
 
+在发布会上，普萨基强调，此次打击完全按照美国法律进行，是合法的。
 
+3月3日星期三，凯恩和另一位参议员托德·杨提出了一项法案，该法案将撤销1991年和2002年对伊拉克军事行动的授权，原因是人们对美国参与“永久战争”中的不满。
 
-> NEW: RSBN has been suspended from YouTube for two weeks because of the Trump [#CPAC2021](https://twitter.com/hashtag/CPAC2021?src=hash&amp;ref_src=twsrc%5Etfw) speech, which violated their guidelines on election misinformation. 
-> 
-> The video was approaching 4 million views. They have also removed it from their platform.
-> — RSBN 🇺🇸 (@RSBNetwork) [March 4, 2021](https://twitter.com/RSBNetwork/status/1367519312890724355?ref_src=twsrc%5Etfw)
+参考链接：[https://www.rbc.ru/politics/06/03/2021/604304da9a79475313f4ded0](https://www.rbc.ru/politics/06/03/2021/604304da9a79475313f4ded0)
 
-
-
-RSBN表示，如果在川普总统关于选举违规的说法中加入 “反驳观点”，就可以避免两周的停播。换句话说，只有RSBN也批评川普的讲话，才允许上传。
-
-可见曾经作为世界自由灯塔的美国，如今被中共国渗透的有多么严重，一有不“和谐”的声音就给你封住嘴巴，掐住喉咙，斩断你的发声渠道。如果没有我们爆料革命正在为世界力争最后一块净土的话，全世界都将会很快会沦陷，落入中共邪魔恶党的魔爪之中。
-
-**消息来源：[InfoWars](https://www.infowars.com/posts/youtube-blacklists-donald-trumps-cpac-speech-suspends-rsbn-channel/)**
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
-
-+2
+0
