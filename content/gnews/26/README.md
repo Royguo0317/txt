@@ -1,29 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：赵小兰家族与中共牵扯颇深
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/952773/)
+## 【香港要闻】中共启动『大外宣』批门：赶尽杀绝 香港民主派人士
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/952771/)
 
-出品:《路德社》 编辑：《路德社》精选新闻专栏组
+搜集/编撰：恩典
+![]()![](https://gnews.org/wp-content/uploads/2021/03/nnn.jpg)图片来源：苹果日报
+**据新加坡《联合早报》报道，每年举办7.1大游行、反送中运动以来，举办过多场游行的民间人权阵线，正遭到调查，若证实美国国家民主基金会曾资助民阵，民阵会被港府取缔。民阵召集人陈皓桓强调，民阵从未收取外国政府或机构资助，对于有指当局欲取缔民阵，陈皓桓表明「欲加之罪，何患无辞﹗」**
 
+由多个民主派政党和民间组织于2002年成立的民阵，曾举办过03年的7.1大游行，之后每年7.1都举办游行。 2019年港府强推修订《逃犯条例》，民阵亦举办过多场游行，包括2019年6月16日的200万人游行。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/unknown-2.png)
+中共一直针对民阵，2019年7月《大公报》刊登评论指民阵已与一个「恐怖组织」无异，严重破坏香港的法治与公共安全，必须考虑尽快作出取缔决定。
 
+**战友评论：**
 
-> directly with the Chinese government. So a former senior US government official’s family sits on the board of one of the largest and most important banks in China? [#ethics](https://twitter.com/hashtag/ethics?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)
-> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [March 5, 2021](https://twitter.com/Jkylebass/status/1367807657340502021?ref_src=twsrc%5Etfw)
+污蔑陷害是中共对待异见人士经常用的招数，刚刚才整治报复打压因为35+1初选民主派人员，还没落幕，那边厢也开始对『民间人权阵线』进行造谣抹黑，发起口诛笔伐站，中共为保邪恶政权，已经到了疯狂的地步。
 
+中共用谎言欺骗手段签署的《中英联合声明》起草的《基本法》，承诺『50年不变』「一国两制」、「港人治港」、「高度自治」、只是中共为求达到目的而哄骗世界的口号。
 
+而今天的香港，英国遗留下的民主法治已死，只剩港共极权专制滥用公权力目无法治，不受管束地方，成为中共国的一个城市，充满官商勾结的天堂，不再有公平公正，只有邪恶利益集团掌控的地狱。中共对民阵民主人士的赶尽杀绝，继续为消除一切民主异见人士声音的行动，连根拔起。
 
-2021年3月5日，凯尔巴斯引用纽约时报对赵家的报道并发推评论:
+中共每次派出的党报喉舌大举批叛异见人士的时候，又是他们对「真正爱惜香港的人士」新一轮打压的开始，然而，2019年香港的反送中反修例运动只是，拉开了灭共的序幕，假如没有2019年修例风波，中共早晚也会动手残害香港，中共的流氓本质加上极权独裁统治，也会惧怕民主自由价价观影响大陆人民。
 
-What’s even more perplexing is that Chao’s sister sits on the board of the Bank of China where all data is a Chinese “national secret”. BOC is one of the oldest and most important banks to the Communist Party in China. Chao’s family does business directly with the Chinese government. So a former senior US government official’s family sits on the board of one of the largest and most important banks in China?
+【以上观点仅代表笔者本人】
 
-更为复杂的是赵小兰的妹妹赵安吉担任中国银行董事，这家银行的所有数据均为中国“国家机密”。中国银行是中国共产党最悠久且最重要的银行之一。赵家直接与中国政府做生意。因此，美国前政府高级官员的家族成员是中国最大且最重要的一家银行董事会成员吗？
-![]()![](https://gnews.org/wp-content/uploads/2021/03/030601.png)
-随着参议员麦康奈尔和赵氏家族与中共之间的利益关系逐渐被美国左媒揭露，表明中共内部的政治斗争越加残酷激烈。曾经跟中共勾结出卖美国国家利益的政客官员们，正被中南坑的老杂毛当作内斗的手雷，相互抛出引爆，落得身败名裂的下场。同时也表明美国内部灭共的大趋势已成，曾与中共沆瀣一气的政客官员也不敢明面为其站台，逼得中南坑不得不放出他们的部分犯罪证据敲山震虎。但这样只会让这些腐败的政客、官员和企业家愈加远离和憎恨，为了自保和自救，他们别无选择必须加速灭共。
+资料来源：
 
-本文作者：Stranger
-审核校对：鲁邦五世
-上传排版：糖果儿
+[苹果日报: 星媒指警查民阵获美资助.. 陈皓桓：欲加之罪](https://hk.appledaily.com/local/20210305/T5WFRWLXZFHZHO3YUB2RW7J7UI/)
+
+审核：文粤 / 上传：彩虹( Rainbow )
 
 
 
