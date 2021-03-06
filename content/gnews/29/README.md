@@ -1,33 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】05/03/2021:历史惊人重覆—中共废除一国两制和基本法；同日希特勒撕毁凡尔赛条约
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/952816/)
+## 时装大牌为何进军电玩行业？
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/952848/)
 
-**制作:Cantonese工作室**
-播报: 【安妮】
-资料整理: 【安妮】【Elaine】【郁金香】【极寒将至】
-海报制作: 【侬民】
-视频制作: 【Shawn】
-上传: 【Shawn】
-**摘要:**
+撰稿：云彩
+![]()![](https://gnews.org/wp-content/uploads/2021/03/图片-6.png)(图片来源网络)
+近日深受疫情打击的时装品牌为了自救，跨界和游戏电玩商合作，加速“线上化”。例如知名品牌Louis Vuitton与《英雄联盟》合作，Valentino和Marc Jacobs也与《动物森友会》合作，为游戏角色设计造型和装备，甚至玩家可以在游戏商店下载时装品牌最新款服饰，在虚拟游戏中体验各种名牌。
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/20210305-zhTW-01.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/20210305-zhTW-02.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/20210305-zhTW-03.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/20210305-zhTW-04.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/20210305-zhTW-05.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/20210305-zhTW-06.jpg)
-7.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/20210305-zhTW-07.jpg)
-8.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/20210305-zhTW-08.jpg)
-9.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/20210305-zhTW-09.jpg)
+时装名牌选择跨界与虚拟游戏合作是看中了这个行业的吸金能力。据调查机构Newzoo报告显示，疫情为游戏市场带来用户和收入的增长，成为少数能够获利的行业之一。相比时装秀，玩家通过线上游戏接触到品牌，缩短了高端品牌与顾客之间的距离，更直接了解品牌的产品ˎ风格和理念。
+
+点评：
+
+CCP投放生化病毒武器，犯下了滔天大罪，改变了人类的生活方式。因为防止病毒的传染，人们更多地依赖网络进行社交和消费。像该新闻里的时装名牌由于实体店销售大跌不得不思考如何自救。
+
+文贵先生在直播中提到一些知名时装品牌非常想和G-Fasion 合作，例如女装和童装。那么G-Fasion为什么吸引这些时装品牌公司？笔者个人认为是将来G-Fasion 的巨大用户市场。G-Fasion与爆料革命息息相关。随着爆料革命灭共事业的步步推进，越来越多的人知道我们G系列。而G-Fasion全新的时尚理念让人耳目一新。
+
+爆料革命不但灭共，而且还进行财富再分配。GTVˎG-CoinˎG-Dollar等G系列的运作，让战友们成为高收入人群，比如G-Club会员，他们将是世界消费市场里一股不可忽视的力量。
+
+（本文纯属个人观点）
+
+编辑：文远Bruce
+
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+
+[【澳喜文章】](https://gnews.org/zh-hans/author/aujenny/)
+
+参考资料：
+
+[Burberry、LV等名牌為自救 進軍電玩行業 八成玩家表示願意購買相關造型](https://businessfocus.io/article/158194/%E9%9B%BB%E7%8E%A9%E6%99%82%E8%A3%9D-burberry-lv%E7%AD%89%E5%90%8D%E7%89%8C%E7%82%BA%E8%87%AA%E6%95%91-%E9%80%B2%E8%BB%8D%E9%9B%BB%E7%8E%A9%E8%A1%8C%E6%A5%AD-%E5%85%AB%E6%88%90%E7%8E%A9%E5%AE%B6%E8%A1%A8%E7%A4%BA%E9%25)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
 0

@@ -1,30 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：赵小兰家族与中共牵扯颇深
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/952773/)
+## 白宫宣布拜登总统月底前将首开记者招待会
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/952844/)
 
-出品:《路德社》 编辑：《路德社》精选新闻专栏组
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/P-1.jpg)dailymail.co.uk
+接续上午的发稿【1】，川普总统的新闻秘书凯利3月4日提醒人们，拜登进入白宫后至今没有接受媒体采访，回答记者的提问，创下了现代总统的纪录。今天，现任白宫发言人普萨基表示，拜登将在“月底前”举行新闻发布会，算是经过“回头请示”（circle back）后的答复。
 
+凯利说，“躲在地下室，就别跟美国人说话……川普总统他给了我透明度，他总是愿意回答问题，总是愿意走上讲台，总是愿意在去直升机的路上停下来，他所提供的是透明。乔·拜登发誓要透明，（可是）现在他创造了100年来总统不登讲台（发言）的纪录。”
 
-> directly with the Chinese government. So a former senior US government official’s family sits on the board of one of the largest and most important banks in China? [#ethics](https://twitter.com/hashtag/ethics?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw)
-> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [March 5, 2021](https://twitter.com/Jkylebass/status/1367807657340502021?ref_src=twsrc%5Etfw)
+面对如此强大的压力，拜登终于要露面与记者见面了。不过，别着急，先得给将近1个月的时间准备，差不多月底前吧！
 
+《福克斯新闻》发文，题目“普萨基说，拜登将在‘月底前’举行记者招待会”。【2】文章的副标题说，拜登也没有在国会发表讲话，最近的前任们在第一年的这个时候已经发表了讲话。
 
+白宫新闻秘书普萨基星期四说，拜登总统将在本月底前举行记者招待会。
 
-2021年3月5日，凯尔巴斯引用纽约时报对赵家的报道并发推评论:
+上任近六周来，拜登没有与记者举行正式会议，川普总统28天时回答媒体提问，而奥巴马上任仅21天就回答了问题，小布什花了34天时间。
 
-What’s even more perplexing is that Chao’s sister sits on the board of the Bank of China where all data is a Chinese “national secret”. BOC is one of the oldest and most important banks to the Communist Party in China. Chao’s family does business directly with the Chinese government. So a former senior US government official’s family sits on the board of one of the largest and most important banks in China?
+拜登在竞选期间也没有向记者发表讲话。
 
-更为复杂的是赵小兰的妹妹赵安吉担任中国银行董事，这家银行的所有数据均为中国“国家机密”。中国银行是中国共产党最悠久且最重要的银行之一。赵家直接与中国政府做生意。因此，美国前政府高级官员的家族成员是中国最大且最重要的一家银行董事会成员吗？
-![]()![](https://gnews.org/wp-content/uploads/2021/03/030601.png)
-随着参议员麦康奈尔和赵氏家族与中共之间的利益关系逐渐被美国左媒揭露，表明中共内部的政治斗争越加残酷激烈。曾经跟中共勾结出卖美国国家利益的政客官员们，正被中南坑的老杂毛当作内斗的手雷，相互抛出引爆，落得身败名裂的下场。同时也表明美国内部灭共的大趋势已成，曾与中共沆瀣一气的政客官员也不敢明面为其站台，逼得中南坑不得不放出他们的部分犯罪证据敲山震虎。但这样只会让这些腐败的政客、官员和企业家愈加远离和憎恨，为了自保和自救，他们别无选择必须加速灭共。
+正如普萨基指出的那样，拜登接受了其他场合记者的简短提问，并接受了一些新闻机构的采访。
 
-本文作者：Stranger
-审核校对：鲁邦五世
-上传排版：糖果儿
+“总统每周要回答好几次问题，他昨天回答了两次问题“。”我们期待着召开一个完整的新闻发布会。”她继续说,“我们正在为这件事确定最后的日期，一旦我们确定了就会让你们都知道。”
 
+“这位总统是在一场历史性危机中上任的”，普萨基补充道，“我认为美国人民明白，他把精力和注意力集中在了确保我们获得足够的疫苗上……推动美国的救援计划。”
 
+媒体界一直在质疑拜登何时会在正式场合面对记者。美国有线电视新闻网（CNN）的杰克·塔珀（Jake Tapper）在推特上说，“拜登最近的15位前任都在上任后33天内举行了正式的个人记者招待会。”
+
+拜登也还没有在国会联席会议上发表讲话，这是大多数政府任期初期的另一个优先事项，通常情况下，总统会在2月份在国会发表第一次演讲。
+
+“这不是怠慢。” 当被问及拜登还没有向立法者讲话时普萨基向记者保证。她说，“我们正处于全球疫情之中，我们打算让总统在国会联席会议上讲话……但我们还没有日期。”
+
+参考链接：
+
+【1】https://gnews.org/zh-hans/952345/
+
+【2】https://www.foxnews.com/politics/psaki-biden-press-conference-before-end-month
 
 0
