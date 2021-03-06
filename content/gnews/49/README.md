@@ -1,25 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西班牙约50%的中共病毒死者来自养老院
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/952202/)
+## 西班牙副首相称马德里因疫情禁止三八妇女节游行
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/952264/)
 
 - 编辑：Victor Torres
 - 作者：gokuabuela
-- 制图：七白石
 - 发稿：神奇四侠
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
 **西班牙2021年3月5日电/西喜社—**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/virus-5757875__340_mh1614962264259.jpg)
-据新闻报3月2日报道，根据行政部门的官方核算，自疫情开始以来，西班牙养老院的老人死于中共病毒的数量为29782人，其中19868人为确诊后死亡，还有9914人因与疾病症状相符而被判断死于中共病毒。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/covid-19-5048418__340.jpg)
+据ABC新闻3月5日报道，西班牙第一副首相，卡门-卡尔沃称，在三八妇女节，马德里将禁止一切集会和游行，而全国其他地方并不禁止，是因为马德里的游行是规模最大的。
 
-大部分死亡病例发生在3月14日至6月22日的第一波疫情中，当时有19835人在养老院中死亡，其中包括9976人在确诊感染后死亡。在2020年其余的时间里还有6305位养老院的老人死亡，全年共计26140人。
+去年的马德里三八妇女大游行被认为是可能引起西班牙疫情大爆发的重要原因，正在被立案调查。而且，目前马德里地区的疫情数据非常严重。
 
-而2021年，则有3286位养老院中的老人因感染中共病毒而死亡
-
-新闻来源：**[新闻报](https://www.elperiodico.com/es/sociedad/20210302/muertos-covid-residencias-espana-pandemia-11554430)**
+新闻链接：[ABC](https://www.abc.es/sociedad/abci-coronavirus-espana-directo-trabajador-sanitario-muere-covid-cada-30-minutos-mundo-202103050534_directo.html)
 ![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
 0
