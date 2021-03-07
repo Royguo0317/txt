@@ -1,83 +1,76 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/03/07 英喜时事速递
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/955859/)
+## 美国政府官员，美国科学机构和中共国有关部门掩盖了COVID-19大流行病起源的大量证据
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/955995/)
 
-收集：Alicia，Near，Filon，Daniel
-*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
+翻译：洛杉矶天使农场**-Nio**
+校对：洛杉矶天使农场**-Jessi/**詹茜
+审核：洛杉矶天使农场**-Truemanman**
+作者：乔·霍夫特 2021年3月4日
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ff11.png)
+到2020年1月底，美国政府和美国科学机构内部的一些人越来越担心美国人民可能了解有关COVID-19病毒起源的真相。
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/marie-bellando-mitjans-b8MpFt6hctY-unsplash.jpg)
+也就是说，它是在美国一些科学家的协助下以及在美国政府的资助下在中共国实验室中制造的一种人造病毒。
 
-## Gnews: [中共国将CCP病毒用作“另一种控制记者的手段”来实现新闻封锁](https://gnews.org/zh-hans/947890/)
+毫无疑问，除了来自中共的直接压力外，国际财团也对华盛顿特区的易受影响的和顺从的人施加了类似的胁迫，如果中共国制造了COVID-19病毒这个事实被广泛接受的话，那么其在中共国的投资将处于危险境地。同样，美国科研机构杰出成员的职业生涯也岌岌可危，这些人可能被认为是同谋或可能有罪。
 
-![]()![](https://spark.adobe.com/page/zEdAdXej9tpgM/images/1f5810f4-5ac3-4c53-8aa0-12dc4f9caa6e.jpg?asset_id=88fc3b6e-8bc6-4cc1-b598-64d14315ca59&amp;img_etag=%22510530501a05530c7b2072a34252da8a%22&amp;size=2560)“由于中共国的宣传机器努力试图重新获得对这场公共卫生灾难叙述的控制权，外国新闻媒体报导疫情的努力屡屡受阻，” CCP夺取中国大陆以来，一直抵触国外媒体报道中国，永远想阻碍中国老百姓与外部世界的自由交流，本质是害怕老百姓醒悟。百姓开悟、共党不存。
+美国人也可能对整个科学的完整性失去信任。
 
-## Gnews: 中共国对斯里兰卡港口99年的租期延长至200年
+像他们在中国的合作伙伴一样，美国政府官员和美国科研机构成员最担心的是承担责任问题。
 
-![]()![](https://spark.adobe.com/page/LVHtrtfECeHwU/images/a1f209b9-d3cf-469a-a4b8-d54425b72938.jpg?asset_id=3b8029f4-db9e-4613-8d5b-49bc283aa271&amp;img_etag=%226186552c2ef95f44f6e8b1dbf3fed7e9%22&amp;size=2560)中共的一带一路计划正在试图通过渗透一个一个关键的国家来稳步达到控制全球的最终目的。对于掩盖极好的邪恶计划，勇于揭露它永远是最好的对抗手段。
+这似乎是他们发起掩盖行动的主要自私动机。
 
-## Gnews：中共国黑客使用美国国家安全局代码攻击美国
-![]()![](https://spark.adobe.com/page/9DHhMKyrmxJL1/images/d41e69f9-695f-4c68-ab62-6f9309b59dba.jpg?asset_id=24768978-33de-4ec3-bc20-066d83dce22c&amp;img_etag=%220c1e27da767d01e9a66fc9e3ed58b770%22&amp;size=2560)中共国黑客用“窃取”的美国国家安全局的代码去攻击美国。目前中共所有与世界对抗的资源和手段都不是来自于自己本身，全部来自或偷或骗或抢，来自于世界对共产主义的放纵和忽视。世界应该警觉起来，消灭影响人类文明进程的共产主义。
-## 北京日报客户端 ： 重磅！陈薇、钟南山团队均已部署新型疫苗研发
+这始于2020年2月3日，当时在以下三人的领导下，在美国国家科学院举行了一次会议，他们是美国科学技术政策办公室主任凯尔文·德罗格迈尔（Kelvin Droegemeier）；美国卫生与公共服务部高级科学顾问D.克里斯蒂安·哈塞尔（D. Christian Hassell）；美国国立卫生研究院国家过敏和传染病研究所所长安东尼·福西（Anthony Fauci）。
 
-![重磅！陈薇、钟南山团队均已部署新型疫苗研发|病毒_网易新闻](https://nimg.ws.126.net/?url=http%3A%2F%2Fcms-bucket.ws.126.net%2F2021%2F0306%2Fabe348f5j00qpjguv002kc000u000jwc.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)中共毒疫苗又要升级加新料了
+以下是与2020年2月3日会议相关的电子邮件：
 
-## 人民日报海外网 ：全国政协委员高福：目前还没到摘口罩的时候
+          (function() { var scribd = document.createElement("script"); scribd.type = "text/javascript"; scribd.async = true; scribd.src = "https://www.scribd.com/javascripts/embed\_code/inject.js"; var s = document.getElementsByTagName("script")[0]; s.parentNode.insertBefore(scribd, s); })()        
 
-![全国政协委员高福：目前还没到摘口罩的时候- 知乎]()![全国政协委员高福：目前还没到摘口罩的时候- 知乎](https://pic2.zhimg.com/v2-8fbf73ea67538150001e4ee01a521776_720w.jpg?source=172ae18b)高福的话自曝了全体免疫无效、疫苗无法应对新变种病毒等问题，可谓是把之前吹出去的牛皮给吹炸了。而世界各国却对中共的这种拙劣表演熟视无睹，这种鸵鸟心态要保持到何时呢？
+与会者包括其他来自于科学技术政策办公室、美国国立卫生研究院和联邦调查局的政府工作人员。大多数参会的科学家要么有与中共国合作研究冠状病毒的悠久历史，要么是后来强烈支持中共国以及COVID-19是起源于自然的疾病大爆发的理论。
 
-## 环球时报：高福：#新冠肺炎可能“流感化”# 长期与人类共存
+根据在会议之前分发的《任务和工作计划说明》，已经确定COVID-19大流行是自然发生的或“进化的”事件，需要驳斥与之相反的论点。
 
-![]()![](https://p6.itc.cn/q_70/images03/20210306/bc3abe76950c4963bae86056e5b87c78.jpeg)CCP面对疫情公开放狠话，试图把不明真相的人给唬住，让知道真相的胆小之人被吓住。爆料革命以毒灭共、揭露真相于世界，全球正义力量会让这些疯言妄语彻底消散。
+就是说，美国政府官员和美国科研究构的成员有责任提供源源不断的证据来支持一个预定的结果，以保护中共国、国际利益财团以及他们自己免受潜在的同谋指控或罪责。
 
-## 北京日报客户端： 这些钱要涨、这些钱要省，看今年政府工作报告这样影响你的钱袋子！
+正如他们自己的邮件中所披露的那样，参与准备2020年2月3日会议回应的科学家们的讨论主要集中在打压任何有关COVID-19病毒可能起源于实验室的讨论。然而，为创造COVID-19大流行病是一种从动物到人类自然传播的理论，任何人都不应该为此负责的说法，这伙人所做的努力远远超出了对2020年2月3日会议的回应。
 
+未等参会人员对此电子邮件做出回应，2020年2月6日，生态健康联盟（EcoHealth Alliance）的皮特·达扎克（Peter Daszak）分别与选定的参加2020年2月3日会议的科学家进行联系，以期发动一场在科学期刊上的公共关系活动，以支持中共国的COVID-19大流行是自然发生的事件，并谴责起源于实验室的理论是阴谋论。这些电子邮件中的陈述令人吃惊并可以理解为阴谋。
 
-| ![]()![](https://www.gnews.org/wp-content/uploads/2021/03/c0b1-kkxpczc6584010.jpg) | ![]()![](https://www.gnews.org/wp-content/uploads/2021/03/8afd-kkxpczc6584070.jpg) | ![]()![](https://www.gnews.org/wp-content/uploads/2021/03/7add-kkxpczc6584276.jpg) |
-| --- | --- | --- |
-| ![]()![](https://www.gnews.org/wp-content/uploads/2021/03/ebee-kkxpczc6584588.jpg) | ![]()![](https://www.gnews.org/wp-content/uploads/2021/03/3be6-kkxpczc6584145.jpg) | ![]()![](https://www.gnews.org/wp-content/uploads/2021/03/0ae1-kkxpczc6584436.jpg) |
-| ![]()![](https://www.gnews.org/wp-content/uploads/2021/03/4994-kkxpczc6584507.jpg) | ![]()![](https://www.gnews.org/wp-content/uploads/2021/03/1ad5-kkxpczc6584353.jpg) | ![]()![](https://www.gnews.org/wp-content/uploads/2021/03/ccb9-kkxpczc6584705-1.jpg) |
+以下邮件中包含与2020年2月6日的信函有关的电子邮件：
 
-中共一边给了墙内韭菜半块破抹布一边惦记着韭菜的全部家底
-## 直新闻 ： 刘和平：大陆会在近期解决台湾问题吗？今年两会透露这一点
+          (function() { var scribd = document.createElement("script"); scribd.type = "text/javascript"; scribd.async = true; scribd.src = "https://www.scribd.com/javascripts/embed\_code/inject.js"; var s = document.getElementsByTagName("script")[0]; s.parentNode.insertBefore(scribd, s); })()        
 
-![刘和平：大陆禁台湾菠萝进口，蔡英文还没整明白？_邱太三]()![刘和平：大陆禁台湾菠萝进口，蔡英文还没整明白？_邱太三](https://p2.itc.cn/q_70/images03/20210227/fc63f5a4c391437e91624325fd91ef8a.jpeg)中共通过完美犯罪吞并香港打开了通向地狱的第一道大门现已自信心爆棚。那么是否会急不可耐的要趁热打铁奔向通往地狱的第二道大门呢？答案即将揭晓！
+不出所料，没有一个美国政府官员或美国国家科学院成员的邮件来往被拷贝下来。
 
-## 环球网：渲染中国威胁？2021军费预算公布后 CNN迅速炒作“中国已建成世界上最大规模海军”
+然而，更出人意料的是，达扎克，包括以前在武汉病毒学研究所工作的王林发，被某些人视为中共的公关通道。
 
-![渲染中国威胁？2021军费预算公布后，CNN迅速炒作“中国已建成世界上最大规模海军”]()![渲染中国威胁？2021军费预算公布后，CNN迅速炒作“中国已建成世界上最大规模海军”](https://rs1.huanqiucdn.cn/dp/api/files/imageDir/4ab6ce27e086a93fb62ecae1224a4b98u1.png)假借CNN报道炒作“中国已建成世界上最大规模海军”的形式来放狠话，说出自己想说而不敢说的话。对外唯唯诺诺、对内硬气洗脑。花招耍尽，本质上还是因为底气不足，知道自己衣服下面没穿底裤。
+达扎克在电子邮件交流中的话表明，他的公关活动即使不是由中共发起的也得到了中共的支持，而且达扎克和其他人继续与中共国的研究合作正处于危险之中：“这封信的措辞谨慎，避免了政治言论的嫌疑，我们（被中共国）告知，将大大有利于支持在此次疫情中继续合作。”
 
-## **央视新闻：**
+“我希望您愿意签署这一协议-你们的声音将会非常有影响力，尤其在保持中美之间这些重要沟通桥梁畅通方面。你们应该知道，阴谋论者一直非常活跃，在中共国一些极其令人不愉快的网页上攻击我们的合作者，而且现在有些人自己和他们的家人收到了死亡威胁。他们要求我们给予他们任何支持。”
 
-刚强：昨天，习近平总书记在内蒙古代表团的讲话中，讲到了生态环境与政治生态，总书记强调，拿着国家资源去搞行贿受贿、去搞权钱交易，这个账总是要算的。近期，一些官员退休很久之后仍被查，再次明确一个重要信息：退休不等于平安上岸，查处也不会因为退休而划上休止符。只有干净清朗的生态，未来的发展，无论是颜值还是气质，才会更加亮丽。
+2020年3月7日， 英国医学杂志《柳叶刀》刊登了一篇文章，题为“支持中国科学家，公共卫生专业人员和抗击COVID-19的医疗专业人员的声明”，共同作者为达扎克2020年2月6日电子邮件提到的一些人，其中指出：
 
-![习近平与内蒙古，这几个故事你知道吗-新华网](https://lh3.googleusercontent.com/proxy/OjOhET46q_Emjb8cAPZcCdLkVMVHnmIWwb3O0RI9UfPgz5FjrxMmnqHTVO0R5gg09Kw07iQxeReR3SvnQ6rFLixqQLolbgih7R9wOnvtPaGHjNr01mwkvgILf8c0Y6yYBWwDj2pFW7n8)党内大清洗的信号
+“我们共同强烈谴责认为COVID-19并非起源于自然的阴谋论。”在最初的努力之后，中共国和西方媒体发表了大量文章，支持COVID-19大流行是自然发生的观点。此后，有报道称科学和医学杂志正在审查反对自然解释COVID-19起源的观点。
 
-## 新唐人電視台
+这是一次非常成功的公共关系活动。
 
+至少美国国家情报局总监办公室轻率地接受了中共倡导的科学的“传统观点”，并在2020年4月30日发表了以下声明：
 
+“情报界一致同意广泛的科学共识，即COVID-19病毒不是人为的或者基因改造的。”
 
-> 德州州長支持立法 禁止社交媒體言論審查 
-> 
-> 德州採取行動，反擊大科技公司審查民眾言論。週五，[#德州立法](https://twitter.com/hashtag/%E5%BE%B7%E5%B7%9E%E7%AB%8B%E6%B3%95?src=hash&amp;ref_src=twsrc%5Etfw) 者在新聞會上宣布州參議院12號提案，保護德州人的權利。[https://t.co/3UWcNdH0rS](https://t.co/3UWcNdH0rS)
-> — 新唐人電視台 (@NTDChinese) [March 7, 2021](https://twitter.com/NTDChinese/status/1368386675232145410?ref_src=twsrc%5Etfw)
+值得注意的是，与大量证据表明COVID-19病毒是实验室创造的相比，还没有确凿的科学证据支持其自然起源。
 
+然而，很多人似乎都支持病毒来源于自然的叙述，主要是出于无知，既得利益，政治压力或仅仅是不愿意接受丑陋的真相。
 
-德州打响言论自由第一枪
-## 青春山东：祁发宝身边的翻译是在校大学生
-
-![在祁发宝身边与外军交涉的那名翻译是位在校大学生_新浪新闻]()![在祁发宝身边与外军交涉的那名翻译是位在校大学生_新浪新闻](https://n.sinaimg.cn/news/crawl/774/w550h224/20210306/51ef-kkxpczc9291005.jpg)不合常理的宣扬在校青年的所谓英勇，是准备努力怂恿祖国青年上战场当炮灰。
-
-## 网易新闻：#成都一幼儿园给孩子吃全素食# 教育局回应
-
-![幼儿园给孩子吃&quot;全素食&quot;？官方回应_胆碱]()![幼儿园给孩子吃&quot;全素食&quot;？官方回应_胆碱](https://p8.itc.cn/images01/20210306/5277b97c60864f4087ef92f0b7e13829.jpeg)共党体制下的教育常出荒唐可笑之事，踏踏实实静心做事的人都算异类，全是这些哗众取宠，想捞快钱的人。因为社会风气总是在宣扬一些旁门左道。
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+原文链接：
 
 
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+> [The Overwhelming Evidence of the Origin of the COVID-19 Pandemic Was Covered Up by US Government Officials, US Scientific Authorities and Their Chinese Counterparts](https://www.thegatewaypundit.com/2021/03/overwhelming-evidence-origin-covid-19-pandemic-covered-us-government-officials-us-scientific-authorities-chinese-counterparts/)
+
+
+
+
+
 0

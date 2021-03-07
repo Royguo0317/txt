@@ -1,45 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】港共政府研蓝牙 自动记录行踪 安心出行变「担心出行」
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/955136/)
+## 做空港币不是穷人的游戏
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/955260/)
 
-搜集 \编撰：西西
+新闻简述：在2021年3月5日的盖特视频中，郭先生焦急地告诉众多给他发信息询问做空港币的人。他说：“永远记住：穷人别想着挣邪钱，那不是咱穷人的事；再一个，没有大钱的人就别想挣大钱，不可能。别挣那危险的钱，挣那钱，钱来多快，走的多块，甚至一定走得比来得快。”
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_2012_03-05_Getter2.srt.txt)
+**做空港币不是穷人的游戏**
 
-**创新及科技局局长薛永恒早前表示，正致力推动在交通工具使用「安心出行」，但大众质疑，强制扫码会造成不必要延误。薛永恒今日（3月6日）表示，考虑到在公共交通工具使用安心出行扫码做法困难，正与港大合作研发新功能：以蓝牙发射器代替手动扫码，市民开启手机蓝牙后程式就会自动记录出入场所的资料。坊间担心，出行记录一旦上传给政府会保留7年，当局在有需要时会把资料提供予其它获授权部门或组织，是否会「送中」现在外界还不知道。**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/mmmmmmmmmm6.png)图片来源：大纪元
-不过，就有市民质疑，「安心出行」根本就是为了方便监控，更有些民间组织和网民呼吁杯葛。香港数据科学家、资讯科技界选委黄浩华指出，后台如果读取用户上网数据，就可分析出用户本身的住址，如果真要用，就要考虑个人风险了。他提醒，出行记录一旦上传给政府会保留7年，当局在有需要时会把资料提供予其它获授权部门或组织，是否会「送中」现在外界还不知道。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/gggggggggg7878.jpg)
-**「安心出行」下载量超320万**
+**Shorting Hong Kong Dollars Is Not the Game for the Poor**
 
-薛永恒今日出席节目时表示，「安心出行」应用程式下载量已超过320万，占全港人口超过四成，有80多名确诊安装了「安心出行」，程式记录了他们曾到过2,700多个不同场地，假设每个场地有数百或过千人曾扫码，可能有数万或数十万人收过感染风险通知。
+尊敬的战友们好，我这是刚刚直播完，我是刚刚运动，我在运动中间给战友们回信息，你看这后面啊，后面是这样的，G-Fashion T恤，这里是毛的，特别的暖乎，超级棒。
 
-不过，林郑政府完全执行中共旨意，「港版国安法」强行实施，公信力已无存。民众担忧「安心出行」所带来的私隐安全问题。民主党资讯科技及广播政策副发言人冼卓岚就曾表示，尖沙咀名潮食馆群组爆疫，已证明安心出行对抗疫毫无帮助，质疑根本就是为了监控。更有些民间组织和网民呼吁杯葛。
+Hello, my honorable fellow fighters. I just finished the live broadcast and finished workout. I replied our fellow fighters’ messages while working out. Look at my back. This is how it looks, G-Fashion’s T-shirt. It is made of cashmere, very warm, super nice.
 
-**后台数据可分析用户住址**
+我给大家回复，很多人给我发信息，俄罗斯的战友，日本的战友，德国的战友，七哥，我们现在要可以做空港币，买空港币，呼啦啦的没完没了的，我也不能一个一个回了。我简单在这说一下，除非你是疯了，兄弟姐妹们，你去买空港币，人家贪婪的时候，你也跟着贪婪，那你不是找死了嘛，关键你有本事跟人家贪婪吗？人家是几百万、几千万、几亿、几十亿、几百亿、几千亿进去，你以为你跟着人都呼啦一下就能赚到钱吗？
 
-黄浩华接受本报「珍言真语」节目采访时表示， 香港市民抗拒「安心出行」的一个原因是，这个程式本身涉及了很多不同的权限。目前虽经测试不会发送任何信息到其它伺服器，但那些权限加起来就不得不令人担心。以后如果再增加蓝牙和八达通功能，功能越来越多的话，可能会从用户的日常行为和消费判断出其住在哪里、是什么类型的人。
+I was replying messages to people. Many fellow fighters from Japan and Germany sent me messages, saying “Brother Seven, we are going to short Hong Kong dollars, short selling Hong Kong dollars”. Endless messages like this, so I cannot respond to each of them. Let me say it here briefly. Unless you are insane, brothers and sisters, [don’t do it]. If you short Hong Kong dollars and follow those greedy people, you will be dead. The problem is that do you have the ability to be greedy like them? They put millions, tens of millions, hundreds of millions, billions, tens of billions, or hundreds of billions in it. Do you think you can make money just by following them?
 
-黄浩华举例说，后台如果读取了用户上网的数据，加上在食店里、的士上扫描了二维码，就可能分析出用户本身的住址。 「你去到哪里，真的是有机会给它知道某些信息的话，比如你去过哪个餐厅、晚上下班以后去了哪里，其实香港市民是担心的。」
+这个中间会有多个起起伏伏，共产党沼泽地的较量，你只能玩一次，人家下，你赚了，人家一上你没了，人再一下，你又没了，你再上…你跟不下去呀，就像真的是说七哥郭三秒一样，你就三下，一、二、三，没了，你再看…只能啥瞪眼，人家再高潮跟你啥关系啊？这不是作死吗？
 
-黄浩华说，如果真要用这个程式的时候，就要考虑个人风险了。出行纪录一旦上传给政府会保留7年，当局在有需要时会把资料提供予其它获授权部门或组织；是否会「送中」现在外界还不知道。
+There will be many ups and downs in the process and battles between the CCP and the swamp. You can only afford to play once, that is, when it goes down, you win, and when it goes up, you lose, and when it’s down again, you lose again, and when it’s up again, you will have nothing to follow. It’s just like what they called me, “three seconds of sex of Guo”, for you can only hold for three times. One, two, three, and then it’s over. After that, you can only watch them playing. It will have nothing to do with you anymore, no matter how high they get. Isn’t this the fastest way to ruin yourself?
 
-**战友观点：**
+有人会挣嘛？你能撑过六秒，能撑过30秒，你还能高兴两下。别糊涂了，兄弟姐妹们。赚大钱永远不是说在投机中得到的，赚大钱是有大钱的人做到的，冒大风险人做到的。凡是有这种心理人脑子都是有问题嘛，你看看这G-Fashion，求求了兄弟姐妹们，七哥没法一一而回，我咋一一而回啊？
 
-无论任何时候，保护好个人隐私才是王道。不论是政府的程式，还是其它的程式，必须留意该程式涉及的敏感权限，如GPS定位权限或者读取通讯录权限等。如遇到要填资料的情况，我们需要时刻提醒自己，「我会不会提交了多余的资讯，在不应该的情况下提交给了不应该的人？」即使没有牴触法律，「我们的私隐是有价值或者是会使得自己招致不必要的伤害的。」
+Will anyone make a fortune from it? If you can hold for longer than six seconds, thirty seconds, you may feel happy for a little while. Don’t be silly, brothers and sisters. Big fortune is never meant to be obtained from taking chances. Big money can only be made by people who possess big money and are willing to take big risks. Anyone with this kind of mentality is crazy. (Look at our G-Fashion.) So, I beg you, brothers and sisters. I cannot respond every message. How can I reply every single one of them?
 
-软件工程师黄浩华认为 ，没有互信和约束政府机制下，最后程式只会不获市民使用。其实程式就像一个黑盒，背后的功能用户很难靠双眼摸清。以程式权限为例，只要有互联网权限，技术上就可以将用户资料上载到伺服器，再者程式可随时更新，即使第一个版本没有问题，难保未来的版本都一样。事实摆在眼前，市民会抵制任何形式的潜在数码控制，既然如此，在有百害而无一利的情况下，何不叫停『安心出行』，马上封关?
-![]()![](https://gnews.org/wp-content/uploads/2021/03/876422357n-1.jpg)
-不单如此，我们有理由相信,，习近平对付香港市民是有一套组合拳。既然中共撕破「一国两制」的遮羞布，废除香港民主选举制度后， 接下来就是「霸王硬上弓」，从当初假惺惺地呼吁港人安装「安心出行」APP，到今天「以蓝牙发射器代替手动扫码」，从几个月前的「劝告」到「硬推」，这难免引起社会各种猜测，其中一种声音是: 港共政府配合中共在港进行维稳治港铺路, 逐步达中共所设定的目的：结合【港版国安法】，全面监控港人的一举一动，使香港走向与「新疆再教育营」般的严密监控集中营统治。
+疯了？还想赚这钱？你那个三万、五万，三五十万，你那百八十万在那里面算毛钱啊？你去看那港币倒塌前和制裁前，那得有几个起伏呐。最后钱落谁家？就那几家，怎么可能啊？它得有个大池子才行，多少人现在倒霉啊？头一段押港币的，现在倾家荡产，他也回不来了，连卡尔巴斯那个基金都快完蛋了，知道了吧？你寻思啥呢？你想去玩？永远记住：穷人别想着挣邪钱，那不是咱穷人的事；再一个，没有大钱的人就别想挣大钱，不可能。别挣那危险的钱，挣那钱，钱来多快，走的多块，甚至一定走得比来得快。
 
-【以上观点仅代表笔者本人 】
+Are you crazy? Hoping to earn this type of money? Your tens of thousands dollars or hundreds of thousands dollars are nothing in there. Let’s wait and see how many ups and downs there will be prior to the collapse of Hong Kong dollars and the sanctions. Who will be the ultimate winner? Only a few families! How can you possibly win? It needs a big pool to win. How many people are doomed right now? Those who jumped in previously are bankrupt now and have no chance to come back. Even Kyle Bass’s fund is almost bankrupt. Do you know how serious it is now? What are you thinking? You want to play? Please remember, don’t think about making risky money if you are not rich. Also, please don’t dream of making big money if you don’t have big money. It is impossible. Don’t make risky money. Those kind of money come in fast and go away fast, and it could go away even faster than you get them.
 
-资料来源: [大纪元: 政府研蓝牙自动记录行踪…](https://hk.epochtimes.com/news/2021-03-06/38102485) 、 [软件工程师黄浩华博客](https://howawong.medium.com/%E5%8F%AB%E5%81%9C%E5%AE%89%E5%BF%83%E5%87%BA%E8%A1%8C-%E7%25%20AB%8B%E5%88%BB%E5%85%A8%E9%9D%A2%E5%B0%81%E9%97%9C-6c8d091041c2)
+这是定律，拜托了兄弟姐妹们，我不能一一而回，我就说到这吧，我得开会去了。
 
-审稿：文粤   \    上传：彩虹 ( Rainbow )
+This is the law. Please, brothers and sisters. I cannot respond every and single one of your messages. That’s all I want to say for now. I need to go to the meeting now.
 
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
+视频来源：[https://gtv.org/getter/6042745a9534a74bcaefe355](https://gtv.org/getter/6042745a9534a74bcaefe355)
 
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/952447/](https://gnews.org/zh-hans/952447/)
 
+翻译：【7PawBear】校对：【Isaiah4031】【Rock小哥】字幕：【Rock小哥】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
 +1
