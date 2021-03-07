@@ -1,29 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美参议院支持遏制中共资助的孔子学院的法案
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/956326/)
+## 《文贵说》| 图片连载 （十二）
+` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/956342/)
 
-翻译：康州盘古农场-文远
-校对：康州盘古农场-轰炸机
-编辑：康州盘古农场-Antsee-GTV
+![]()![](https://gnews.org/wp-content/uploads/2021/03/43.jpg)
+**我认为美国选总统会非常荒谬的结果结束，因为共产党在美国渗透太严重了。**
 
-![kongfu]()![kongfu](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-07-at-22.09.58.png)*图片来源：网络*
+**—— 郭文贵先生 2020年7月5日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/42.jpg)
+**新中国联邦，得天助，来自于民心，是时代民族的需要，全人类的需要，无人能挡**！
 
-据《路透社》帕特里夏·岑格勒（Patricia Zengerle）3月5日报道：
+**——郭文贵先生2020年7月5日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/41.jpg)
+**新中国联邦宣言能干翻共产党、消灭共产党、推翻共产党，咱能不能推翻咱骨子里边、内心世界的毒？**
 
-《路透社》华盛顿: 美国参议院全票通过了一项法案，以加强对中共资助的美国大学校园内的文化中心的控制，这些文化中心被称为孔子学院。这是一系列旨在打击被立法机关指责为宣传工具的文化中心行动中的最新举措。
+**—— 郭文贵先生 2020年7月4日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/36-9.jpg)
+**中国最后的问题是因为没有宗教，一旦有宗教就会有正义，就会有世界观，就有人生观。在世界面前每个人的生命很短暂的——100年，所以说就不会做出疯狂的决定。**
 
-该措施于周四获得参议院一致通过，所以不需要唱票表决。截至周五，还没有何时会在众议院进行审议的消息。
+**—— 郭文贵先生 2019年9月1日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/35-2.jpg)
+**中美贸易战，让美国人在干大事儿之前，打草诱出了蛇，真的让美国和世界看到中共的极大的弱点，这个是谁也做不到的，只能美国政府做，其他我们可以做。**
 
-这项措施将削减校园内设有孔子学院的任何学院或大学的联邦资助，除非该孔子学院确保该学院或大学对其拥有完全的权力，包括决定孔子学院提供的任何资助权与决定工作人员的权力。
+**—— 郭文贵先生 2019年1月24日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/33-3.jpg)
+**共产党快饿死了！共产党要通过香港要欺骗全世界，偷盗全世界的财富。 他的用心绝非那麽简单。绝不是偶然。**
 
-要想成为法律，该措施必须获众议院通过并由乔·拜登总统签字。
+**—— 郭文贵先生 2019年8月12日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/34-1.jpg)
+**从WTO，从香港回归，到美国的50年的跟中国合作。有一个合同得到兑现的吗？有一个承诺得到兑现的吗？这个世界上必须看清楚共产党的本质，欺骗！欺骗！永远不兑现！**
 
-美国官员致力于关闭孔子学院已经有一段时间了。共和党前国务卿迈克·蓬佩奥（Mike Pompeo）在9月份表示，他希望所有孔子学院都在2020年底前关闭。
+**—— 郭文贵先生 2019年2月4日**
 
-由民主党人拜登提名，担任中央情报局局长的威廉·伯恩斯（William Burns）上周表示，如果他是美国学院或大学的校长，他将建议关闭孔子学院。
 
-原文链接**：**[https://www.reuters.com/article/us-usa-china-confucius/u-s-senate-backs-bill-to-clamp-down-on-china-funded-confucius-institutes-idUSKBN2AX20L?il=0](https://www.reuters.com/article/us-usa-china-confucius/u-s-senate-backs-bill-to-clamp-down-on-china-funded-confucius-institutes-idUSKBN2AX20L?il=0)
 
-0
+- [***更多精美海报请点击G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4)
+
+
+
+
++1
