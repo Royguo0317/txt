@@ -1,97 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 华贯公司在澳洲监视当地居民引众怒
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/956600/)
+## 政治洗脑是无耻政府的首要任务
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/956660/)
 
-新闻来源：《Daily Mail （每日邮报）》| 作者：ZOE ZACZEK and BRITTANY CHAIN 佐伊·扎克和布兰妮·查因 | 发布时间：2021年3月4日
+*作者：Tang | 校对：宁缺 | 审核：万人往 | Page：拱卒*
 
-翻译/简评：clau | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii
+[!\[\]()!\[\](https://spark.adobe.com/page/riNUuQiRCJ8Tm/images/df82f9a4-add9-46e2-9013-6715f32f08c0.jpg?asset_id=271c6d5a-47de-4b26-9df4-f8b7178f16f5&amp;img_etag=%2242a3199a982e5bd600bacbc697e615d9%22&amp;size=1024)](https://spark.adobe.com/page/riNUuQiRCJ8Tm/images/df82f9a4-add9-46e2-9013-6715f32f08c0.jpg?asset_id=271c6d5a-47de-4b26-9df4-f8b7178f16f5&amp;img_etag=%2242a3199a982e5bd600bacbc697e615d9%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yClzIsldCk16Q/images/208f627c-9676-4a54-bb97-b45c1930ea6a.jpg?asset_id=e945422e-d60e-40f0-8784-b3a7e51fd785&amp;img_etag=%2208c588f1fdfbb90a2ffd80cda1cbf037%22&amp;size=1024)](https://spark.adobe.com/page/yClzIsldCk16Q/images/208f627c-9676-4a54-bb97-b45c1930ea6a.jpg?asset_id=e945422e-d60e-40f0-8784-b3a7e51fd785&amp;img_etag=%2208c588f1fdfbb90a2ffd80cda1cbf037%22&amp;size=1024)
+《联合早报》3月5日报道，政协主席汪洋称，强化思想政治引领列今年首要工作。
 
-***简评：***
+汪洋所说的强化思想引领，实质就是加大对百姓的洗脑强度。中共的假大空体制洗脑人民快100年了，这还不够，还要将洗脑列为政协机构今年首要工作。此番继续加大洗脑力度的动作，可见中共贼党对自己执政的能力已经相当不自信。这种不自信，源于中共自身不断地欺骗百姓，不断地欺瞒世界，甚至不断地祸乱世界。最终的结果，参政议政的政协机构也成了宣传机器的一份子，仿效甚至超越希特勒，完全靠谎言欺骗世人来维持统治。
 
-一家名为华贯的地产公司在澳洲的收购项目，最近引发了澳洲人的愤怒和抗议。当地民众指责华贯公司禁止船只进入公共坡道，关闭空中跑道，并试图阻止游客使用海滩。该公司两年前租下昆士兰圣灵岛地区的凯斯威克岛的一部分，此岛屿为澳大利亚的度假胜地。
+汪洋曾经被视作党内开明派的代表人物，很多人曾对他寄予过希望。但是，当他进入中共国权力核心圈后，丝毫没有开明的政绩，反而思想愈见僵化。近朱者赤，近墨者黑，任何人跳入共产党这个罪恶滔天、臭不可闻的屎坑里，都无法逃脱被堕落同化的宿命。在集权体制下，没有开明的思想，只有非黑即白，要么灭亡，要么同流合污。
 
-“蓝金黄”计划里面，中共一直非常擅长用钱解决问题，用游说公司去贿赂政客，用私人企业的名义收购好的资产。更重要的是，中共利用西方法律对于私有资产的保护，利用西方对于契约精神的尊重，反过来掩护自己所谓的“正常经济活动”表面下隐藏着的更邪恶的目的。凯斯威克岛只是中共在全球众多收购案例中的一个，甚至是很不起眼的一个，但澳大利亚民众的反应，显示了越来越多的西方民众意识到了中国共产党对他们威胁。
+汪洋在报告中还说，要“深刻理解中国共产党人的初心使命，深刻理解中国共产党是风雨来袭时中国人民最可靠的主心骨……”真是见过不要脸的，没有这样不要脸的。中国共产党还有初心使命吗？把统治者的个人利益捆绑在党的利益之中，让人民一切服从党。一切都是党的，一切都听党的，将“爹亲娘亲不如党亲”凌驾在人民之上，用他们的意志代表着人民的意志，强奸人民的意志。到现在，中共作死作到经济崩溃、民生惨烈的地步，竟然还有脸大言不惭地谈初心，简直是对初心这个佛教用语的侮辱。
 
-自2017年文贵先生爆料中共的“蓝金黄”计划以来，“蓝金黄”的概念已经逐渐从各国政府层面向下传递给了普通老百姓。就如同班农先生所讲：“我们要教育越来越多的人，让他们知道问题在于中共，中共不等于中国人民和中国。”中共不是一直以来都喜欢说走群众路线，发动群众，信任群众，依靠群众吗？现在国外的民众已经觉醒了，中共的一举一动也将会暴露在他们的监视之中，不断接受他们的挑战和反对。人们已经觉醒，一切已经开始！
+中共七十多年的统治即将终结，世界对中共的态度也发生了翻天覆地的变化。疫情将导致全球追责、联合灭共。可以说中国人民现在承受的风风雨雨，责任完全来自中国共产党！中共国自称世界第二大经济体，实际却有6亿多人月收入不超过1000元。什么样的主心骨要这样奴役、盘剥人民？什么样的主心骨还要继续残害、甩锅给人民？
 
-***原文翻译：***
+一个国家的权力机构，不是想着如何发展社稷、提振经济、为人民大众谋取福祉、推进人类文明进程，而是赤裸裸地忙于给人民洗脑。这样的政权还有存在的必要吗？
 
-## 中共国地产开发商用极端手段禁止澳大利亚人前往度假岛屿，当地居民称自己的“一举一动”正在被监视
+新闻链接：《[政协主席汪洋：强化思想政治引领列今年首要工作](https://www.zaobao.com.sg/znews/greater-china/story20210305-1128807)》
 
-- 地产开发商2019年以2000万美元租下了岛屿的一部分，租期99年
-- 凯斯威克岛位于昆士兰海岸外的圣灵岛地区
-- 中共国业主被指限制公众进入并关闭机场跑道
-
-
-据称，中共国开发商租下了澳大利亚的一个岛屿，他们涉嫌监控当地居民的一举一动，并设置围栏，封闭了通往海滩的道路。
-
-华贯(香港)有限公司（China Bloom）在近两年前以2000万美元的价格租下昆士兰圣灵岛地区的凯斯威克岛的一部分，租期99年。
-
-岛屿的剩余80%是国家公园，距离沿海城镇麦凯（Mackay）34公里。
-
-但当地居民说，中共国支持的开发商对旅游业造成了阻碍，并破坏了他们的生活方式。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/yClzIsldCk16Q/images/ad9c3c02-d63f-407e-b1c2-9381e1eb791d.png?asset_id=f7ff54b2-f493-460c-9461-a51ea43a006a&amp;img_etag=%22c0e5e4b7e3d7f39349a4456f22601228%22&amp;size=2560)](https://spark.adobe.com/page/yClzIsldCk16Q/images/ad9c3c02-d63f-407e-b1c2-9381e1eb791d.png?asset_id=f7ff54b2-f493-460c-9461-a51ea43a006a&amp;img_etag=%22c0e5e4b7e3d7f39349a4456f22601228%22&amp;size=1024)华贯（China Bloom）在近两年前以2000万美元的价格租下昆士兰圣灵岛地区的凯斯威克岛的一部分，租期99年（如图所示，游客们在圣灵岛地区的岛上）
-
-[!\[\]()!\[\](https://spark.adobe.com/page/yClzIsldCk16Q/images/00ce6e8e-5f8e-48e3-adc3-8d02a8382a21.png?asset_id=b8131814-b37a-41d6-947c-5e0b03c6ca68&amp;img_etag=%2291a0c1a87411d889e301f722a6e28c06%22&amp;size=2560)](https://spark.adobe.com/page/yClzIsldCk16Q/images/00ce6e8e-5f8e-48e3-adc3-8d02a8382a21.png?asset_id=b8131814-b37a-41d6-947c-5e0b03c6ca68&amp;img_etag=%2291a0c1a87411d889e301f722a6e28c06%22&amp;size=1024)凯瑟克岛位于昆士兰圣灵岛（Whitsundays）地区的海岸外，深受那些想体验大堡礁乐趣的人的欢迎
-
-道森联邦议员乔治·克里斯滕森(George Christensen)表示，他对监视该岛的保安人员数量之多感到震惊。
-
-克里斯滕森先生告诉2GB的本·福德汉姆（Ben Fordham），我注意到的第一件事就是有保安透过树丛偷看我们在做什么。
-
-居民们告诉我，这并不罕见；保安在人们进出岛屿时不断询问他们，（甚至）在全天所有的时间开车巡逻经过他们的房子。
-
-“这是非常非常吓人的，在现代的澳大利亚，很难想象会有一家私营保安公司随时在检查你在做什么。”
-
-克里斯滕森先生说，早在2019年，就有一家澳大利亚财团有意接手这块土地——但州政府选择了中共国公司。
-
-“我们所看到的只有混乱；给当地居民造成各种问题，”他说道。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/yClzIsldCk16Q/images/4249aa69-b978-4dd7-9880-0fafb7887d55.png?asset_id=dc0e4d44-7514-4e5e-a562-4affa8100c54&amp;img_etag=%223f1a1d4ef7281c177bed93429d768819%22&amp;size=2560)](https://spark.adobe.com/page/yClzIsldCk16Q/images/4249aa69-b978-4dd7-9880-0fafb7887d55.png?asset_id=dc0e4d44-7514-4e5e-a562-4affa8100c54&amp;img_etag=%223f1a1d4ef7281c177bed93429d768819%22&amp;size=1024)愤怒的当地人指责华贯公司禁止船只进入公共坡道，关闭空中跑道，并试图阻止游客使用海滩，开发商对此予以否认（图为限制公众进入的标志之一）
-
-克里斯滕森先生抨击州长安娜斯塔西亚·帕拉夏（Annastacia Palaszczuk）未能照顾到她所在州的居民。
-
-“我想对安娜斯塔西亚说的是，你能否为这些昆士兰人撑腰，而不是偏袒一家外资公司？”他说。
-
-“这是很简单的事情；如果你不能自由、简单地进出这个岛，那就有很大的问题了。”
-
-当地人声称，开发商禁止船只从公共坡道进入，关闭空中跑道，禁止游客进入海滩，从而摧毁了他们的生活方式——开发商希望重新开发此岛
-
-在澳大利亚国庆日，一船船的昆士兰人从大陆赶来——有些人从布里斯班远道而来——为当地人遭受的不公待遇抗议。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/yClzIsldCk16Q/images/9964ecf7-ff5d-4c64-af82-eb6505adb436.png?asset_id=a68bd767-fd0d-4aed-8e7f-f2c7db22b9ef&amp;img_etag=%22ace3d10e4c5c4edd985715cc0ad2cdbf%22&amp;size=3412)](https://spark.adobe.com/page/yClzIsldCk16Q/images/9964ecf7-ff5d-4c64-af82-eb6505adb436.png?asset_id=a68bd767-fd0d-4aed-8e7f-f2c7db22b9ef&amp;img_etag=%22ace3d10e4c5c4edd985715cc0ad2cdbf%22&amp;size=1024)图片： 圣灵岛群岛南半部凯斯威克岛鸟瞰图。
-
-他们将船并排停在码头上，发誓要在这片水域庆祝澳大利亚国庆日，以声援以这个美丽岛屿为家的人们。
-
-他们还要求帕拉夏女士和她的州政府加强限制，并介入协助当地人。
-
-“我认为大多数澳洲人都是通情达理的人，但你把他们逼急了，就会发生这样的事情。”来自麦凯的保险评估员弗雷泽·古柴（Fraser Goodchild）说。
-
-“中共国的国家风格过去一直是被动的，他们一直想帮助别人，但现在他们却变成了（一个）欺负人的国家。”
-
-国家参议员马尔科姆·罗伯茨（Malcolm Roberts）在澳大利亚国庆日从布里斯班赶来，他对州政府有话要说。
-
-他告诉时事栏目（澳大利亚9号电视网的栏目）：“华贯公司之所以能逃脱，只是因为州政府没有尽到它的职责。”
-
-虽然一些居民声称他们的生活在收购后发生了翻天覆地的恶劣变化，但也有人说这个田园岛屿上的生活从来没有这么好过，并否认了出入受限的说法。
-
-脸书“澳大利亚人收回凯斯威克岛所有权 ”小组有近9000名成员。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/yClzIsldCk16Q/images/9f45d96f-cd3d-4222-9156-469fbb04d3dd.png?asset_id=b3e98f36-4b3a-4fec-80eb-8bf875d8e8c9&amp;img_etag=%22d280300a06d12755ae42a13a3d8b5925%22&amp;size=2560)](https://spark.adobe.com/page/yClzIsldCk16Q/images/9f45d96f-cd3d-4222-9156-469fbb04d3dd.png?asset_id=b3e98f36-4b3a-4fec-80eb-8bf875d8e8c9&amp;img_etag=%22d280300a06d12755ae42a13a3d8b5925%22&amp;size=1024)在澳大利亚国庆日，一船又一船的昆士兰州人从澳大利亚大陆赶来，有些人甚至从布里斯班远道而来，抗议对当地人的对待
-
-**🔗[原文链接](https://www.dailymail.co.uk/news/article-9323523/Chinese-developers-took-Keswick-Island-allegedly-employed-security-monitor-locals.html)**
+【文章仅代表作者观点】
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 - [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yClzIsldCk16Q/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/yClzIsldCk16Q/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/riNUuQiRCJ8Tm/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/riNUuQiRCJ8Tm/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

@@ -1,17 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月7日 文贵先生盖特 3
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/956722/)
+## 普京将启动土耳其核电站主体建设
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/956781/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-文贵先生早在2019年就提前警告世界，香港的选举法会被废除 Mr. Guo warned the world as early as 2019 that the election law in Hong Kong will be repealed
+编辑上传 水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/N-1.jpg)balkaneu.com
+03月07日，俄罗斯和土耳其领导人弗拉基米尔·普京和雷杰普·塔伊普·埃尔多安将参加“阿克库尤”核电站建设主体阶段的启动仪式。这是《俄罗斯第一电视频道》报道的。
 
+据该频道介绍，此次活动定于3月10日，将通过视频会议的方式进行。
 
+2018年，Rosatom公司开始在土耳其建设“阿克库尤”核电站。普京和埃尔多安出席了首台发电机组的开工仪式。土耳其领导人称这是一个“历史性的时刻”，他指出，一旦达到满负荷运转，核电站将满足土耳其10%的电力需求，并减少该国对天然气和煤炭的依赖。计划于2023年完成建设。
 
-[【2021年3月7日】文贵先生盖特原文](https://gtv.org/getter/604502e5581e182e31d91288)
+“阿克库尤”是位于地中海沿岸梅尔辛省的一个拥有四台VVER-1200机组反应堆的核电站。该项目总投资额估算为220亿美元。2010年5月签署了建设核电站的协议。
 
-**喜联盟Gnews编辑部**
+参考链接：
+
+[https://www.rbc.ru/rbcfreenews/6044bcfe9a7947b0473929fb](https://www.rbc.ru/rbcfreenews/6044bcfe9a7947b0473929fb)
 
 0

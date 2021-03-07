@@ -1,29 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美参议院支持遏制中共资助的孔子学院的法案
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/956326/)
+## 谜一样的中共国脱贫
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/956500/)
 
-翻译：康州盘古农场-文远
-校对：康州盘古农场-轰炸机
-编辑：康州盘古农场-Antsee-GTV
+字幕听译、PR：乐禧禧，yyshere  | 字幕：雨中漫步 | 评论：胖丁 |评论翻译: wmorpho  | 评论PR: Mikehua
 
-![kongfu]()![kongfu](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-07-at-22.09.58.png)*图片来源：网络*
+![]()![](https://www.gnews.org/wp-content/uploads/2021/03/18china-dna-sub-superJumbo-2.jpg)图片源自《自由亚洲电台》
 
-据《路透社》帕特里夏·岑格勒（Patricia Zengerle）3月5日报道：
+猜谜解闷了：没中彩票，也没人发钱，中共国九千多万贫困人口一夜之间全部脱贫，全民消除绝对贫困，神奇不神奇？
 
-《路透社》华盛顿: 美国参议院全票通过了一项法案，以加强对中共资助的美国大学校园内的文化中心的控制，这些文化中心被称为孔子学院。这是一系列旨在打击被立法机关指责为宣传工具的文化中心行动中的最新举措。
+中共国名不副实的“全国人民代表大会”正在举行，三月四日大会发言人张业遂表示，现行的脱贫标准是一个综合性的多维标准，既包含人均收入指标，也把“两不愁、三保障”作为贫困人口脱贫的基本要求和核心指标。
 
-该措施于周四获得参议院一致通过，所以不需要唱票表决。截至周五，还没有何时会在众议院进行审议的消息。
+所谓的“两不愁”就是实现贫困人口不愁吃，不愁穿，“三保障”就是保障贫困人口的义务教育，基本医疗和住房安全。这两个基本要求，不要说贫困人口，就是普通中共国的居民都难以保证。尤其是2020年，中共研制并释放的CCP病毒在全世界传播，导致各行各业停工停产，几乎一整年的时间全世界都在隔离，全球经济接近崩溃，中共国居然能实现全民脱贫。神（Huang）话（Yan）故事在中共国再次上演。2020年5月份中共国总理李克强总理刚刚说过有6亿人的平均月收入为1000元左右，就是说将近一半的人口在2020年还是生活在2015年贫困线的边缘，年底就实现全面脱贫。怎么做到的？怎么能够做到？
 
-这项措施将削减校园内设有孔子学院的任何学院或大学的联邦资助，除非该孔子学院确保该学院或大学对其拥有完全的权力，包括决定孔子学院提供的任何资助权与决定工作人员的权力。
+对于中共国脱贫标准的质疑，张号称中共国的脱贫是从2015年开始的，早于世界银行18年的新标准，所以不存在刻意选低标准脱贫。当15年世界银行定标月均400元日人民币时，彼时中共国“光荣地”将脱贫标准提高到了一年2855元，即每月238元。而根据张的话分析，中共国此次脱贫选取的标准为早于18年的标准，那么即使算最高，即15年，月均238元，一年2855元日人民币…答案揭晓！
 
-要想成为法律，该措施必须获众议院通过并由乔·拜登总统签字。
+脱贫的谜面再传奇，揭开谜底还是谎言。
 
-美国官员致力于关闭孔子学院已经有一段时间了。共和党前国务卿迈克·蓬佩奥（Mike Pompeo）在9月份表示，他希望所有孔子学院都在2020年底前关闭。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-由民主党人拜登提名，担任中央情报局局长的威廉·伯恩斯（William Burns）上周表示，如果他是美国学院或大学的校长，他将建议关闭孔子学院。
 
-原文链接**：**[https://www.reuters.com/article/us-usa-china-confucius/u-s-senate-backs-bill-to-clamp-down-on-china-funded-confucius-institutes-idUSKBN2AX20L?il=0](https://www.reuters.com/article/us-usa-china-confucius/u-s-senate-backs-bill-to-clamp-down-on-china-funded-confucius-institutes-idUSKBN2AX20L?il=0)
-
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 汤姆‧科顿议员报告（六）——《战胜中共国：针对性脱钩与经济持久战》
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/956586/)
+## 汤姆‧科顿议员报告（七）——《战胜中共国：针对性脱钩与经济持久战》
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/956649/)
 
-五月花写作组 ｜ 翻译：jiasen ｜ 校对：紫丁香 ｜ 编辑、美工、发稿：灭共小宇宙
+五月花写作组 ｜ 翻译：文萧 ｜ 校对：虹陵 ｜ 编辑、美工、发稿：灭共小宇宙
 ![]()![](https://gnews.org/wp-content/uploads/2021/03/汤姆克顿V7.jpg)
 ### 往期链接：
 
@@ -20,63 +20,65 @@
 
 [汤姆‧科顿议员报告（五）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/937759/)
 
+[汤姆‧科顿议员报告（六）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/956586/)
+
 * * *
 
-## **CHINA’S RELIANCE ON THE UNITED STATES **
+## **SECTION TWO: Targeted Decoupling **
 
-## **中共国对美国的依赖**
+## **第二节：有针对性的脱钩**
 
-While the United States relies on China in key areas, the knife cuts both ways; one country’s point  of exposure is another’s point of leverage. Indeed, China’s fortunes are tied to the United States  more closely than ours are to China, a fact that American strategists must keep in mind.
+The United States has entered a phase of open and mutual antagonism with China, yet the failed dream of engagement haunts our economic policy. We must identify and disentangle strategically important economic sectors while thwarting China’s parasitic approach to global trade and commerce.
 
-尽管美国在关键领域依赖中共国，但这是一把双刃剑。 一个国家的曝光点恰是另一个国家的制衡点。 实际上，中共国的命运与美国的关联，远比我们的命运与中共国的关联更紧密，这是美国战略家必须牢记的事实。
+美国与中共国已经进入了开放和相互对抗的阶段，然而合作梦想的失败还困扰着我们的经济政策。我们必须确定和理顺具有战略意义的重要经济部门，同时制止中共国对全球贸易和商业的寄生方式。
 
-China relies on the United States to access high-end research and technology. It embeds agents in  U.S. research and development institutions in order to acquire early-stage research at minimal cost  and risk. Chinese firms then apply this research, scale it quickly, and compete with U.S. firms  in the global marketplace on unfair terms. Qiaohai Shu of the China Academy of Social Sciences  (CASS) explained the logic behind this strategy when he wrote, “Innovation is time-consuming,  laborious and risky…but when it comes to *applying*technology, the opportunity cost to leap ahead  is low, the chances of success are high.”
+Such a task requires a focus on broad areas of concern such as trade and investment, higher education, entertainment, and advanced technologies and essential supplies for which reliance on China is unacceptable. This section examines a selection of these technologies and essential supplies in greater detail, including semiconductors, telecommunications, rare-earth elements and critical minerals, medical supplies and equipment, and artificial intelligence and quantum computing.
 
-中共国依靠美国获得高端研究和技术。它将间谍隐藏在美国研发机构中，以便以最低成本和风险获得早期研究成果。然后，中共国公司就应用这些研究成果，迅速扩大规模，在全球市场与美国公司进行不公平竞争。中共国社会科学院（CASS）的乔海曙解释了该策略背后的逻辑，他写道：“创新既费时、费力，又有风险……但是，在应用技术方面，实现超越的机会成本很低， 而成功的几率却很高。
+这项任务需要关注广泛领域，例如贸易和投资、高等教育、娱乐、先进技术和基本用品，这些领域对中共国的依赖是不可接受的。本节更详细地研究了这些技术和基本供应品的选择，包括半导体，电信，稀土元素和关键矿产，医疗用品和设备，以及人工智能和量子计算。
 
-This strategy helps explain why China allocates only six percent of its R&D budget to basic  research, while the United States allocates 17 percent.It also sheds light on why Beijing spends  a whopping 84 percent of its R&D funds on experimental development while the United States  spends only 63 percent.
+This section is not an exhaustive list of areas where decoupling from China is advisable. No doubt some of the technologies and fields that will shape the future strategic landscape are unknown to or underappreciated by today’s policymakers. Rather, this list identifies sectors of urgent concern to the United States right now. China is already a world leader in some of these sectors and is targeting all of them through massive investment and espionage—including espionage that masquerades as investment. The United States must end its reliance on China in sectors that will affect the relative strength of nations in the future.
 
-这一策略有助于解释为什么中共国仅将其研发预算的6％分配给基础研究，而美国却达到17％。这也揭示了为什么北京将高达84%的研发资金用于实验开发，而美国只花费63%。
+本节并不是和中共国脱钩领域的详尽建议清单。毫无疑问，影响未来战略前景的某些技术和领域对于当今的决策者来说，是未知的或未被重视的。确切地说，本列表标识了当前美国急需关注的领域。中共国已经是其中一些行业的世界领导者，并且正在通过大量投资和间谍活动，包括伪装成投资的间谍活动，来针对这些领域。美国必须结束这些领域对中共国的依赖，这将影响到国家未来的相对实力。
 
-Access to American research and innovation is therefore a central plank in China’s long-term  economic, military, and political planning. Chinese strategists fret, with good reason, about a  “high-tech blockade” that could slow the country’s economic development.
+## **OBJECTIVES AND CONSIDERATIONS FOR TARGETED DECOUPLING **
 
-因此，获得美国研究和创新成果是中共国长期经济，军事和政治规划的核心内容。中共国的战略家们有充分理由担心“高科技封锁”会减缓中共国的经济发展。
+## **针对性脱钩的目标和注意事项**
 
-Washington could confound and disrupt the CCP’s economic strategy by ending this parasitic  relationship. If China is denied access to U.S. research and high-end technology, such as  semiconductors, it would have to make additional investments in basic research. These investments would be funded by a smaller economy with a more burdensome debt load—  China’s total domestic debt was an estimated 335 percent of GDP in late 2020. Beijing  would have to make these investments while simultaneously maintaining its proficiency in  experimental development, rapid scaling, and production. This would tax China more severely  than the status quo.
+### **RESTORE SECURE, SCALABLE, DOMESTIC PRODUCTIVE CAPACITY IN AREAS CRITICAL TO NATIONAL SECURITY **
 
-通过终止这种寄生关系，华盛顿可以打乱并挫败中共的经济战略。如果中共国被剥夺了获得美国研究成果和半导体等高端技术的机会，它将不得不在基础研究上进行额外投资。这些投资或将由债务负担更加沉重、规模更小的经济体来承担——到2020年末，中共国的国内债务总额预计占GDP的335％。中共国将不得不在保持其实验开发，快速扩张，和生产方面熟练程度的同时，进行这些投资。这会使中共国的内耗比现有状况更为严峻。
+### **对国家安全至关重要的领域恢复安全，可规模化的国内生产能力**
 
-Foreign investment is another key point of reliance in the U.S.-Chinese economic  relationship. U.S. real estate and equities are a safe harbor for Chinese companies and elites,  although strict controls imposed by the CCP in 2017 to stabilize the balance of payments  have curtailed capital flight.
+The most basic obligation of the federal government is to provide for the common defense. Yet today, key sectors of the economy rely heavily on Chinese suppliers and manufacturing. The United States cannot be fully free or safe if its access to essential supplies is subject to the whims of the CCP. America must therefore restore secure, scalable, and domestic productive capacity in strategic areas. Private industry, finance, and the government have roles to play in regenerating manufacturing that has been lost to China.
 
-外国投资是美中经济关系的另一关键依赖点。尽管中共在2017年为稳定国际收支平衡而实施了严格的管制，遏制了资本外逃，美国的房地产和股票市场仍是中共国公司和精英阶层的避风港。
+联邦政府的最基本义务是提供共同防御。时至今日，经济的关键部门严重依赖中共国供应商和制造业。如果美国的基本物资受到中共随心所欲的控制，它就不能获得完全自由或安全。因此，美国必须在战略领域恢复安全，可规模化的国内生产能力。私营工业，金融和政府在那些已经流失给中共国的制造业再生中可以发挥作用。
 
-American investment, meanwhile, plays a critical role in China’s economic rise. This  investment lends legitimacy to the CCP, builds its industrial and technological capabilities,  and creates a political constituency within the United States committed to preventing  confrontation with the CCP. Reducing this investment would do material harm to China’s  economy, international standing, and, potentially, the CCP itself.
+American industry has declined, in part, because of China’s 2001 accession to the WTO and the related decision to grant China Permanent Normal Trade Relations status. In 2004, the United States was the world’s dominant manufacturer, producing approximately $1.61 trillion in value-added manufacturing (22.3% of global output) to China’s $625 billion (8.7% of global output). By 2019, the United States produced $2.35 trillion (16.8% of global output) in value-added manufacturing while China produced $4 trillion (28.7% of global output).125 The nation that brought manufacturing technology to maturity in the nineteenth and twentieth centuries has been overtaken by its number-one rival in the twenty-first century.
 
-同时，美国的投资对中共国经济的崛起起着至关重要的作用。这样的投资导致中共具有了合法性，增强了它的工业和技术实力，并在美国内部建立了一个政治团体，致力于防止与中共对抗。减少这样的投资将对中共国的经济、其国际地位，乃至中共本身造成切实打击。
+美国工业的下滑，部分是由于中共国于2001年加入世界贸易组织（WTO）以及授予中共国永久正常贸易关系地位的决定。2004年，美国是世界主要制造国，其增值制造业的产值约为1.61万亿美元（占全球总产值的22.3％），而中共国为6,250亿美元（占全球总产值的8.7％）。到2019年，美国的增值制造业产值达到2.35万亿美元（占全球总产值的16.8％），而中共国达到4万亿美元（占全球总产值的28.7％）。在19和20世纪使制造技术成熟的这个国家在21世纪被其第一大竞争对手超越。
 
-Another related point of reliance is China’s ability to list companies on U.S. stock exchanges,  despite its refusal to comply with the Security and Exchange Commission’s auditing  standards. This refusal spurred Congress to pass legislation, co-sponsored by Senator Cotton  and signed into law late last year, that delists Chinese and Hong Kong-based companies from  U.S. stock exchanges if they fail to comply with audits by the Public Company Accounting  Oversight Board (PCAOB). The combined market capitalization of the more than 250  Chinese and Hong Kong firms listed on U.S. exchanges is over $2 trillion.
+The health of the manufacturing sector thus is not simply a commercial concern, but also a national-security imperative. Domestic manufacturers—and to some extent those of allies and trusted partners—provide the foundation and expertise for the nation to arm itself in wartime.  Under present conditions, it is unclear if the United States would be able to organize the kind of rapid, large-scale industrial mobilization that contributed decisively to Allied victory in World War II. This mobilization was possible because the United States already had a deep industrial base and pool of skilled engineers and laborers.126 Disturbingly, China may be better positioned to play the role of World War II-era America in any major conflict today, given its strong industrial base and deep pool of engineering talent. This must change.
 
-另一个相关依赖点是，尽管中共国拒绝遵守美国证券交易委员会（SEC）的审计标准，但它仍具有使其公司在美国证券交易所上市的能力。这种拒绝促使国会通过了一项由参议员科顿共同发起，并于去年年底签署的立法，该法规定如果中共国和香港公司不遵守上市公司会计监督委员会的（PCAOB）审计程序，就会被退市。在美国证券交易所上市的250多家中共国和香港公司的总市值超过2万亿美元。
+因此，制造业的健康不是简单的商业问题，而是国家安全的当务之急。国内制造商，和那些在某种程度上的盟国和可信赖的伙伴，为国家在战时武装自己提供了基础和专业知识。在目前条件下，还不清楚美国是否能像在第二次世界大战一样，有能力组织迅速的、大规模的工业资源调动，这种调动对盟军的胜利起到了决定性的作用。当时之所以能够动员起来，是因为美国已经拥有深厚的工业基础，和熟练的工程师和劳工资源。令人不安的是，鉴于中共国的强大工业基础和丰富的工程人才储备，它可能在当今的任何重大冲突中都能更好地扮演第二次世界大战时期美国的角色。这必须改变。
 
-Meanwhile, China’s access to the U.S. dollar and dollar-denominated trading system is another  point of leverage for the United States. Because most dollar transactions clear through the  American financial system, the United States has the power to block, hold, or otherwise  intervene in many Chinese transactions.
+A strong industrial base not only supports vital national-security goals, it lays the groundwork for future innovation.127 The process knowledge and human capital gained through manufacturing leads to improvements in the production process itself. Robust industrial initiatives can thus spark virtuous cycles of expansion, reinvestment, and innovation. By contrast, a lack of investment today could jeopardize American prosperity and safety tomorrow.
 
-同时，中共国进入美元和以美元计价的贸易体系是美国的另一个制衡点。因为大多数美元交易都是通过美国金融系统进行清算的，所以美国有能力阻止，控制或以其他方式干预许多中共的交易。
+强大的工业基础不仅支撑重要的国家安全目标，而且为未来的创新奠定了基础。通过制造获得的工艺知识和人力资本可改善生产过程本身。因此，强有力的产业计划有助于扩张，再投资和创新的良性循环。相比之下，今天投资的缺乏可能会损害明天的美国繁荣与安全。
 
-China also depends on access to the U.S. market, which received 19 percent of China’s exports  in 2018. The U.S. export market is an irreplaceable outlet for goods generated by China’s  oversupplied economy. Though China has made efforts to accelerate domestic innovation and  reduce its reliance on exports, it is a long way from matching the strength of U.S. innovation  or becoming as self-contained as the American economy. The large trade surplus China runs  with the United States is thus both a sign of China’s remarkable productive capacity and a  potential weakness the United States can exploit.
+### **MAINTAIN TECHNOLOGICAL ADVANTAGE OVER CHINA IN STRATEGIC AREAS **
 
-中共国还依赖美国市场的准入，美国市场在2018年接收中共国出口总量的19％。美国出口市场是中共国经济供过于求所生产的商品不可替代的出口。尽管中共国已经努力加快国内创新，减少对出口的依赖，但距离与美国创新实力相匹配，或者像美国一样经济自成一体还相去甚远。因此，中共国对美国的巨额贸易顺差既是中共国显著生产能力的标志，又是美国可以利用的潜在弱点。
+### **在战略领域保持对中共国的主要技术优势**
 
-This dynamic has important political implications because slower growth has the potential  to cause internal discontent. Chinese citizens willing to accept an increasingly heavy-handed  authoritarian state in exchange for a higher standard of living may think twice if growth slows  or stagnates. As a result, the CCP fears that declines in exports, growth, and employment could  pose political liabilities. Other domestic problems would intensify pressure on the regime. These  problems include restrictions on home ownership, the absence of a humane welfare state, the inability of many Chinese men to find wives, and a lack of children to care for the elderly.The 90-million-member CCP may find it increasingly difficult to govern China’s 1.4 billion  people if the economy stagnates.
+Outnumbered more than four to one in population, the United States must maintain decisive advantages in technology and per-capita productivity to compete with China. This objective requires accelerating the development of advanced technologies and implementing safeguards so that China cannot steal our technological breakthroughs.
 
-这种动态具有重要的政治意义，因为经济增长放缓有可能引起内部的不满。如果增长放缓或停滞，愿意接受日益严历的专制统治以换取更高生活水平的中共国公民可能会三思而后行。因此，中共担心出口、增长和就业的下降会带来政治后果。其它国内问题将加剧对该独裁政权的压力。 这些问题包括对房屋所有权的限制，人道福利缺失，许多中国男人找不到妻子，以及缺少子女照顾老人。如果经济停滞不前，拥有九千万党员的中共可能会发现越来越难以统治中国的14亿人口。
+中共国人口是美国的四倍多，美国必须在技术和人均生产率上保持决定性优势，才能与中共国竞争。实现这一目标需要加快先进技术的发展并实施保障措施，以使中共国无法窃取我们的技术突破。
 
-U.S. policymakers must recognize the immense leverage they have over China. Having grown  used to China wielding its domestic market as a weapon, many in the United States seem to have  forgotten that U.S. market access is one of the most valuable prizes in the world, particularly for  the world’s largest exporter. Access to the U.S. market may therefore be the single most powerful  point of leverage in the entire competition, provided the United States can create resilient supply  chains for essential goods that do not depend on Chinese manufacturing.
+Current investment in R&D is inadequate to this task. The federal government spent $164  billion, or 0.7 percent of GDP, on R&D in 2020.128 By comparison, it spent between one and  1.5 percent of GDP on R&D during much of the Cold War, when the United States faced a  less populous and affluent competitor.129 Overall R&D spending in the United States has been  buoyed by the private sector, which increased R&D spending more than fourfold between 1980  and 2016.130 In 2018, U.S. firms invested more than $5 in R&D for every $1 spent by Chinese  companies.131 However, private-sector R&D often focuses on incremental improvements to  existing products with clear, short-term commercial applications. It is not optimized for the long-term, theoretical, or risky development projects that lead to breakthroughs and technology revolutions.
 
-美国决策者必须认识到他们对中共国的巨大影响力。由于习惯了中共国将其国内市场作为武器，许多美国人似乎已经忘记了美国的市场准入是世界上最有价值的奖赏之一，尤其是对世界上最大的出口国而言。因此，美国的市场准入可能是整个竞争中最有力的一个制衡点，使美国能够为其必需商品建立弹性供应链，而不依赖中共制造业。
+当前在研发上的投资不足以完成这项任务。2020年，联邦政府在研发方面的支出为1,640亿美元，占GDP的0.7％。相比之下，在冷战期间的大部分时间里，美国面对的是人口较少且不那么富裕的竞争对手，联邦政府在研发方面的支出占GDP的1％至1.5％。美国的整体研发支出受到了私营部门的提振，1980-2016年间，研发支出增长了四倍以上。2018年，中共国公司在研发上每支出1美元，美国公司则投入了5美元以上。然而，私营研发通常侧重于通过清晰的短期商业应用对现有产品进行逐步改进。它并未对可以带来突破和技术革命的那些长期的、理论的或有风险的开发项目进行优化。
 
-But time may be running short to exploit this opportunity. China’s economy is not as export oriented as it once was. Exports accounted for 36 percent of China’s GDP in 2006, but only 18  percent of its GDP in 2019. America’s window of opportunity to pressure China by restricting  access to its market is closing.
+Federal support for technological development must be paired with policies to protect the fruits of that research. Otherwise, China will continue to benefit from American investment through theft. Spending large sums of taxpayer money to develop leap-ahead technology without implementing controls to stop China from stealing that technology could, in effect, be worse than doing nothing.
 
-但是，利用这一机会的时间可能不多了。中共国经济不再像以前那样以出口为导向。2006年，出口占中共国GDP的36％，但到2019年，仅占其GDP的18％。美国通过限制其市场准入对中共国施压的机会窗口正在关闭。
+联邦对技术发展的支持必须与保护该研究成果的政策相匹配。否则，中共国将继续通过盗窃从美国投资中受益。花费大量纳税人的钱来开发超前技术，而不实施控制来阻止中共国窃取该技术，实际上，可能比什么都不开发更糟。
 
 （未完待续）
 

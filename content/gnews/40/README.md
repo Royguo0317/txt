@@ -1,48 +1,90 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【周末聊农村】我所了解的农村黑社会（二）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/956367/)
+## 汤姆‧科顿议员报告（六）——《战胜中共国：针对性脱钩与经济持久战》
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/956586/)
 
-五月花写作组 ｜ 作者：跟随战神 ｜ 编辑、美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/03/周末聊农村6v2.jpg)
+五月花写作组 ｜ 翻译：jiasen ｜ 校对：紫丁香 ｜ 编辑、美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/03/汤姆克顿V7.jpg)
 ### 往期链接：
 
-[【周末聊农村】我所了解的农村黑社会（一）](https://gnews.org/zh-hans/937784/)
+[汤姆‧科顿议员报告序言——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/918314/)
+
+[汤姆‧克顿议员报告（一）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928067/)
+
+[汤姆‧克顿议员报告（二）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928136/)
+
+[汤姆‧科顿议员报告（三）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/931905/)
+
+[汤姆‧科顿议员报告（四）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/935835/)
+
+[汤姆‧科顿议员报告（五）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/937759/)
 
 * * *
 
-大山将汽车买好了，是辆二手桑塔纳。这在当时的中国可是鼎鼎大名的神车，“拥有桑塔纳，走遍全天下”，可见桑塔纳当时有多牛。桑塔纳是当时第一个合资品牌的小轿车。二十几万的价格是身份和地位的象征，在一个只有几百元工资的国度简直就是高不可攀。路人看到偶尔驶过的桑塔纳满眼都是羡慕，一直望到消失为止。
+## **CHINA’S RELIANCE ON THE UNITED STATES **
 
-大山不需要再羡慕别人，因为他也有了一辆桑塔纳，虽然车是二手的，但足以让他兴奋到失眠。这辆车，花去了他和兄弟们连凑带借十几个家庭的钱。在吃饭都成问题的中共国，农家子弟买汽车绝对是个巨大的挑战，大山和兄弟们把亲朋好友的钱借了个遍，总算凑齐了车款。个中的艰辛大山刻骨铭心，他发誓一定要挣钱，报答兄弟们和家人，报答所有帮助他的人。大山没有退路，只有靠这辆桑塔纳了，车就是他的命。
+## **中共国对美国的依赖**
 
-大山开着那辆心爱的桑塔纳奔向省城的火车站，车上的几个兄弟一路上有说有笑，还不时的摸一摸车门、车窗、车座，兴奋之情溢于言表。果然，还没到车站已然望到人头攒动。人群中一个拎着公文包的中年汉子老远就向这边招手，大山的一个兄弟云把中年男人迎上了车。大山拉着客人行驶到蓝天宾馆，几十元的车费很快就到手了。几个兄弟在车站附近继续揽活，大山回来后马上开始第二单。一直忙到晚上十点，人流仍然络绎不绝。实在太累了，大山决定收工，回到宿舍，一算账，嚯，一千多块啊，哥几个乐坏了。出师告捷，他们开始憧憬未来美好生活了。
+While the United States relies on China in key areas, the knife cuts both ways; one country’s point  of exposure is another’s point of leverage. Indeed, China’s fortunes are tied to the United States  more closely than ours are to China, a fact that American strategists must keep in mind.
 
-所谓黑车，是指没有在中共各部门办理相关手续，而私自运营的社会车辆，交通部门没法从这些黑车身上收到“份子钱”，但因为存在巨大的利益和供求，黑车数量有增无减。
+尽管美国在关键领域依赖中共国，但这是一把双刃剑。 一个国家的曝光点恰是另一个国家的制衡点。 实际上，中共国的命运与美国的关联，远比我们的命运与中共国的关联更紧密，这是美国战略家必须牢记的事实。
 
-省城火车站附近逐步出现了三股势力，各霸一方，垄断了黑车市场。如果要想在车站拉活，必须缴纳保护费，许多个体车主势单力薄，大都乖乖的屈从了。但是大山不交，他想“自己辛辛苦苦挣来的钱为啥平白无故的给他们，我们不需要保护，我们自己保护。”控制车站东面的一股势力叫黑头，已经几次警告大山，大山均置之不理。但是大山还是嘱咐兄弟们做好准备，并在车上准备了棍棒。
+China relies on the United States to access high-end research and technology. It embeds agents in  U.S. research and development institutions in order to acquire early-stage research at minimal cost  and risk. Chinese firms then apply this research, scale it quickly, and compete with U.S. firms  in the global marketplace on unfair terms. Qiaohai Shu of the China Academy of Social Sciences  (CASS) explained the logic behind this strategy when he wrote, “Innovation is time-consuming,  laborious and risky…but when it comes to *applying*technology, the opportunity cost to leap ahead  is low, the chances of success are high.”
 
-该来的总是会来。一天大山正在车站拉活，十几个小伙子围住了桑塔纳。几次警告无效后，黑头失去了耐心，决定教训一下几个乡巴佬。这次黑头亲自出面，带了十几个精壮的汉子，每人一把弹簧锁，弹簧锁本是锁自行车的，两尺多长，软钢丝绳制成，其厉害之处是在端部有一个铁嘎嗒，打人的时候全靠这玩意。由于是软的，便于藏在腰间，所以当时的地痞流氓多以此为凶器。
+中共国依靠美国获得高端研究和技术。它将间谍隐藏在美国研发机构中，以便以最低成本和风险获得早期研究成果。然后，中共国公司就应用这些研究成果，迅速扩大规模，在全球市场与美国公司进行不公平竞争。中共国社会科学院（CASS）的乔海曙解释了该策略背后的逻辑，他写道：“创新既费时、费力，又有风险……但是，在应用技术方面，实现超越的机会成本很低， 而成功的几率却很高。
 
-黑社会和暴力是一枚硬币的两面，没有爆力就称不上黑社会。黑头决定亮出他硬币的另一面，他本以为几个乡巴佬在他的面前会乖乖屈服，大不了三五个回合就被撂倒，没想到他错了，错的很厉害。
+This strategy helps explain why China allocates only six percent of its R&D budget to basic  research, while the United States allocates 17 percent.It also sheds light on why Beijing spends  a whopping 84 percent of its R&D funds on experimental development while the United States  spends only 63 percent.
 
-一言不合，双方大打出手，大山拿出棍棒奋力还击，另外三个兄弟也拼死抵抗。中国有一句老话，“横的怕不要命的”。大山和他的兄弟们就是属于不要命的。四个人杀红了眼，因为他们已经没有了退路，没有退路了人是可怕的。大山轮圆了棍子往对方头上猛砸，很快就撂倒了两个。
+这一策略有助于解释为什么中共国仅将其研发预算的6％分配给基础研究，而美国却达到17％。这也揭示了为什么北京将高达84%的研发资金用于实验开发，而美国只花费63%。
 
-忽然眼前一黑，一股钻心的剧痛从眼睛传来，但是丝毫没有影响大山的战斗力。擒贼先擒王，大山扫清了面前的障碍，一个箭步窜到黑头面前。黑头挥起弹簧锁砸向大山。大山抬起左臂迎着铁锁，同时右手的木棍狠狠地砸向黑头的头，砰砰，几乎同时发出了两声闷响。大山的左臂垂了下来，黑头也应声倒在了地上。
+Access to American research and innovation is therefore a central plank in China’s long-term  economic, military, and political planning. Chinese strategists fret, with good reason, about a  “high-tech blockade” that could slow the country’s economic development.
 
-打斗结束了，黑头被彻底打败了。大山一方惨胜，大山的一只眼被打伤，一个兄弟的腿被打断，另两个也不同程度受伤。
+因此，获得美国研究和创新成果是中共国长期经济，军事和政治规划的核心内容。中共国的战略家们有充分理由担心“高科技封锁”会减缓中共国的经济发展。
 
-大山一战成名，从此在火车站站稳了脚跟。黑头的势力就此没落，许多人跟随了大山。这样大山成了“黑头”，开始接管地盘，同样做起了收保护费的勾当。大山不但要保护自己，还要“保护”他人，对不愿意接受“保护”的人他和黑头的做法没什么两样。这样，大山从一个农家子弟变成了黑社会一员，这一年他23岁，正是一个天不怕地不怕的年龄。你可以不怕，但是不能不懂，由于不懂，大山遭遇了步入黑社会后第一次重大的挫折。
+Washington could confound and disrupt the CCP’s economic strategy by ending this parasitic  relationship. If China is denied access to U.S. research and high-end technology, such as  semiconductors, it would have to make additional investments in basic research. These investments would be funded by a smaller economy with a more burdensome debt load—  China’s total domestic debt was an estimated 335 percent of GDP in late 2020. Beijing  would have to make these investments while simultaneously maintaining its proficiency in  experimental development, rapid scaling, and production. This would tax China more severely  than the status quo.
 
-中共做事从来都是从自身利益出发。比如“抗美援朝”是为了牵制美国，“联蒋抗日”是为了窃取国家，“计划生育”是为了节省粮食，“对外援助”是为了输出革命。中共的公安局更是如此，人口拐卖破案不积极，儿童丢失很少找回，很多小偷小摸案件不了了之。因为这些案子没有利益，费力不讨好，公安局没有动力做这些。但是卖淫嫖娼一抓一准，因为有巨额罚款，聚众赌博基本一锅端，因为赌资全部没收，利益是公安局做事的行为准则。
+通过终止这种寄生关系，华盛顿可以打乱并挫败中共的经济战略。如果中共国被剥夺了获得美国研究成果和半导体等高端技术的机会，它将不得不在基础研究上进行额外投资。这些投资或将由债务负担更加沉重、规模更小的经济体来承担——到2020年末，中共国的国内债务总额预计占GDP的335％。中共国将不得不在保持其实验开发，快速扩张，和生产方面熟练程度的同时，进行这些投资。这会使中共国的内耗比现有状况更为严峻。
 
-其实，当地公安局对黑车的情况早已了如指掌，每次接到打架斗殴的报警也必及时出警，但到了现场并不是及时制止双方的械斗，而是老远的等待、观察，直至分出胜负，有一方倒下后他们才“赶到”。据公安局的人自己说，这样才安全。原来他们担心的是自己的安全，哪里管械斗双方的死活。这就是中共的公安局，何其黑也！
+Foreign investment is another key point of reliance in the U.S.-Chinese economic  relationship. U.S. real estate and equities are a safe harbor for Chinese companies and elites,  although strict controls imposed by the CCP in 2017 to stabilize the balance of payments  have curtailed capital flight.
 
-公安局之所以放任欺行霸市的黑社会做大，其实也是因为利益。大山接收了黑头的利益，但是没有接收黑头的关系，因为他并不知道其中的关系，或者说不懂其中的奥秘。大山目前一切完全是凭一身蛮力和不要命换来的。其实，包括黑头在内的三股势力是要上缴保护费的，上缴给公安局的某些领导。大山得意洋洋的时候也有人给他带过话，大山以为又是黑头之流，根本就没有放在眼里，大不了再干一仗。他哪里知道，这个仗他根本没有机会干。
+外国投资是美中经济关系的另一关键依赖点。尽管中共在2017年为稳定国际收支平衡而实施了严格的管制，遏制了资本外逃，美国的房地产和股票市场仍是中共国公司和精英阶层的避风港。
 
-眼看10月1日——中共的“国庆节”马上就要到了，公安局在全市范围内加大力度整治社会安全、打击犯罪份子。这不，大山的灾难来了，拉网式盘查、大面积抓捕之中，大山成了落网的一员，因涉嫌欺行霸市，非法运营、打架斗殴、非法收取保护费等罪名，被判刑3年。就这样，大山刚刚步入黑社会的路中断了，等待他的是漫长的铁窗生涯。
+American investment, meanwhile, plays a critical role in China’s economic rise. This  investment lends legitimacy to the CCP, builds its industrial and technological capabilities,  and creates a political constituency within the United States committed to preventing  confrontation with the CCP. Reducing this investment would do material harm to China’s  economy, international standing, and, potentially, the CCP itself.
+
+同时，美国的投资对中共国经济的崛起起着至关重要的作用。这样的投资导致中共具有了合法性，增强了它的工业和技术实力，并在美国内部建立了一个政治团体，致力于防止与中共对抗。减少这样的投资将对中共国的经济、其国际地位，乃至中共本身造成切实打击。
+
+Another related point of reliance is China’s ability to list companies on U.S. stock exchanges,  despite its refusal to comply with the Security and Exchange Commission’s auditing  standards. This refusal spurred Congress to pass legislation, co-sponsored by Senator Cotton  and signed into law late last year, that delists Chinese and Hong Kong-based companies from  U.S. stock exchanges if they fail to comply with audits by the Public Company Accounting  Oversight Board (PCAOB). The combined market capitalization of the more than 250  Chinese and Hong Kong firms listed on U.S. exchanges is over $2 trillion.
+
+另一个相关依赖点是，尽管中共国拒绝遵守美国证券交易委员会（SEC）的审计标准，但它仍具有使其公司在美国证券交易所上市的能力。这种拒绝促使国会通过了一项由参议员科顿共同发起，并于去年年底签署的立法，该法规定如果中共国和香港公司不遵守上市公司会计监督委员会的（PCAOB）审计程序，就会被退市。在美国证券交易所上市的250多家中共国和香港公司的总市值超过2万亿美元。
+
+Meanwhile, China’s access to the U.S. dollar and dollar-denominated trading system is another  point of leverage for the United States. Because most dollar transactions clear through the  American financial system, the United States has the power to block, hold, or otherwise  intervene in many Chinese transactions.
+
+同时，中共国进入美元和以美元计价的贸易体系是美国的另一个制衡点。因为大多数美元交易都是通过美国金融系统进行清算的，所以美国有能力阻止，控制或以其他方式干预许多中共的交易。
+
+China also depends on access to the U.S. market, which received 19 percent of China’s exports  in 2018. The U.S. export market is an irreplaceable outlet for goods generated by China’s  oversupplied economy. Though China has made efforts to accelerate domestic innovation and  reduce its reliance on exports, it is a long way from matching the strength of U.S. innovation  or becoming as self-contained as the American economy. The large trade surplus China runs  with the United States is thus both a sign of China’s remarkable productive capacity and a  potential weakness the United States can exploit.
+
+中共国还依赖美国市场的准入，美国市场在2018年接收中共国出口总量的19％。美国出口市场是中共国经济供过于求所生产的商品不可替代的出口。尽管中共国已经努力加快国内创新，减少对出口的依赖，但距离与美国创新实力相匹配，或者像美国一样经济自成一体还相去甚远。因此，中共国对美国的巨额贸易顺差既是中共国显著生产能力的标志，又是美国可以利用的潜在弱点。
+
+This dynamic has important political implications because slower growth has the potential  to cause internal discontent. Chinese citizens willing to accept an increasingly heavy-handed  authoritarian state in exchange for a higher standard of living may think twice if growth slows  or stagnates. As a result, the CCP fears that declines in exports, growth, and employment could  pose political liabilities. Other domestic problems would intensify pressure on the regime. These  problems include restrictions on home ownership, the absence of a humane welfare state, the inability of many Chinese men to find wives, and a lack of children to care for the elderly.The 90-million-member CCP may find it increasingly difficult to govern China’s 1.4 billion  people if the economy stagnates.
+
+这种动态具有重要的政治意义，因为经济增长放缓有可能引起内部的不满。如果增长放缓或停滞，愿意接受日益严历的专制统治以换取更高生活水平的中共国公民可能会三思而后行。因此，中共担心出口、增长和就业的下降会带来政治后果。其它国内问题将加剧对该独裁政权的压力。 这些问题包括对房屋所有权的限制，人道福利缺失，许多中国男人找不到妻子，以及缺少子女照顾老人。如果经济停滞不前，拥有九千万党员的中共可能会发现越来越难以统治中国的14亿人口。
+
+U.S. policymakers must recognize the immense leverage they have over China. Having grown  used to China wielding its domestic market as a weapon, many in the United States seem to have  forgotten that U.S. market access is one of the most valuable prizes in the world, particularly for  the world’s largest exporter. Access to the U.S. market may therefore be the single most powerful  point of leverage in the entire competition, provided the United States can create resilient supply  chains for essential goods that do not depend on Chinese manufacturing.
+
+美国决策者必须认识到他们对中共国的巨大影响力。由于习惯了中共国将其国内市场作为武器，许多美国人似乎已经忘记了美国的市场准入是世界上最有价值的奖赏之一，尤其是对世界上最大的出口国而言。因此，美国的市场准入可能是整个竞争中最有力的一个制衡点，使美国能够为其必需商品建立弹性供应链，而不依赖中共制造业。
+
+But time may be running short to exploit this opportunity. China’s economy is not as export oriented as it once was. Exports accounted for 36 percent of China’s GDP in 2006, but only 18  percent of its GDP in 2019. America’s window of opportunity to pressure China by restricting  access to its market is closing.
+
+但是，利用这一机会的时间可能不多了。中共国经济不再像以前那样以出口为导向。2006年，出口占中共国GDP的36％，但到2019年，仅占其GDP的18％。美国通过限制其市场准入对中共国施压的机会窗口正在关闭。
 
 （未完待续）
+
+* * *
+
+### 原文链接：
+
+[Beat China: Targeted Decoupling and the Economic Long War](https://www.cotton.senate.gov/imo/media/doc/210216_1700_China%20Report_FINAL.pdf)
 
 * * *
 
