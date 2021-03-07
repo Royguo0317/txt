@@ -1,97 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 华贯公司在澳洲监视当地居民引众怒
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/956600/)
+## 全国政协委员提议建立国家级的生物特征数据库
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/956642/)
 
-新闻来源：《Daily Mail （每日邮报）》| 作者：ZOE ZACZEK and BRITTANY CHAIN 佐伊·扎克和布兰妮·查因 | 发布时间：2021年3月4日
+新闻来源：BREITBART《布赖特巴特》| 作者：JOHN HAYWARD | 发布时间：2021年3月3日
 
-翻译/简评：clau | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii
+翻译/简评：乡间小路 | 校对/审核：万人往 | Page：拱卒
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yClzIsldCk16Q/images/208f627c-9676-4a54-bb97-b45c1930ea6a.jpg?asset_id=e945422e-d60e-40f0-8784-b3a7e51fd785&amp;img_etag=%2208c588f1fdfbb90a2ffd80cda1cbf037%22&amp;size=1024)](https://spark.adobe.com/page/yClzIsldCk16Q/images/208f627c-9676-4a54-bb97-b45c1930ea6a.jpg?asset_id=e945422e-d60e-40f0-8784-b3a7e51fd785&amp;img_etag=%2208c588f1fdfbb90a2ffd80cda1cbf037%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/620e43a9-eecd-477f-b890-40d8d774f6c8.jpg?asset_id=b09d1b36-9ef8-4d2c-8492-b3a63b575b30&amp;img_etag=%22d8a62948027950eff3ddbbec4a0cbd4b%22&amp;size=1024)](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/620e43a9-eecd-477f-b890-40d8d774f6c8.jpg?asset_id=b09d1b36-9ef8-4d2c-8492-b3a63b575b30&amp;img_etag=%22d8a62948027950eff3ddbbec4a0cbd4b%22&amp;size=1024)
 
-***简评：***
+**简评：**
 
-一家名为华贯的地产公司在澳洲的收购项目，最近引发了澳洲人的愤怒和抗议。当地民众指责华贯公司禁止船只进入公共坡道，关闭空中跑道，并试图阻止游客使用海滩。该公司两年前租下昆士兰圣灵岛地区的凯斯威克岛的一部分，此岛屿为澳大利亚的度假胜地。
+中共想要搜集存储个人人脸和指纹信息，建立一个国家数据库，以增强对国人的监控。生物特征监控距我们的生活有多远？这里提供两个数字——2023年，360亿美元。具体说来就是，到2023年中共新兴“情感辨别行业”的收入，预计将达360亿美元。在缺乏法律约束的中共国，中共对个人生物特征信息的滥用程度由此可见一般。中共对中国人的监控措施正来势汹涌，个人权利势必受到越来越多的侵犯。
 
-“蓝金黄”计划里面，中共一直非常擅长用钱解决问题，用游说公司去贿赂政客，用私人企业的名义收购好的资产。更重要的是，中共利用西方法律对于私有资产的保护，利用西方对于契约精神的尊重，反过来掩护自己所谓的“正常经济活动”表面下隐藏着的更邪恶的目的。凯斯威克岛只是中共在全球众多收购案例中的一个，甚至是很不起眼的一个，但澳大利亚民众的反应，显示了越来越多的西方民众意识到了中国共产党对他们威胁。
+基于生物特征监控的技术能做什么？其中之一就是判断你是否“正能量”。如果你的情感与中共宣传的意识形态合拍，那就是“正能量”。如果任凭中共不负责任地发展下去，也许有一天我们会发现，喜怒哀乐都由不得我们自己了。
 
-自2017年文贵先生爆料中共的“蓝金黄”计划以来，“蓝金黄”的概念已经逐渐从各国政府层面向下传递给了普通老百姓。就如同班农先生所讲：“我们要教育越来越多的人，让他们知道问题在于中共，中共不等于中国人民和中国。”中共不是一直以来都喜欢说走群众路线，发动群众，信任群众，依靠群众吗？现在国外的民众已经觉醒了，中共的一举一动也将会暴露在他们的监视之中，不断接受他们的挑战和反对。人们已经觉醒，一切已经开始！
+**原文翻译：**
 
-***原文翻译：***
+## 中共国官方想要建立国家人脸和指纹数据库
 
-## 中共国地产开发商用极端手段禁止澳大利亚人前往度假岛屿，当地居民称自己的“一举一动”正在被监视
+[!\[\]()!\[\](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/39abd4bf-cc76-4b1a-b6ff-0be09d001574.jpg?asset_id=957f8aa8-e0d5-4e08-a9e9-d32d331f3faf&amp;img_etag=%22f381267a14b5668dd79b9d31b66d06da%22&amp;size=2560)](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/39abd4bf-cc76-4b1a-b6ff-0be09d001574.jpg?asset_id=957f8aa8-e0d5-4e08-a9e9-d32d331f3faf&amp;img_etag=%22f381267a14b5668dd79b9d31b66d06da%22&amp;size=1024)
 
-- 地产开发商2019年以2000万美元租下了岛屿的一部分，租期99年
-- 凯斯威克岛位于昆士兰海岸外的圣灵岛地区
-- 中共国业主被指限制公众进入并关闭机场跑道
+中共国资深政策顾问谈剑锋周二呼吁建立一个包含人脸和指纹识别数据的国家生物特征数据库，以保护中共国的“国家安全”和“信息安全”。
 
+中共国官媒《环球时报》引用谈的话说，生物特征数据必须积极地采集和保护。因为在一个受到普遍监视的共产主义国家，它对于人们的生活将会变得愈发必要。而且，一旦发生丢失、损坏或被盗，生物特征数据极难替换。
 
-据称，中共国开发商租下了澳大利亚的一个岛屿，他们涉嫌监控当地居民的一举一动，并设置围栏，封闭了通往海滩的道路。
+谈剑锋是中共国政协全国委员会的一名委员，他说，数据安全已经成为一个事关国家安全的重要议题，一些关键数据像个人生物特征数据（人脸、指纹和DNA），它们拥有独特的、不可更新的特征，一旦被盗则不能恢复或修改，进而带来巨大的、不可逆的风险。
 
-华贯(香港)有限公司（China Bloom）在近两年前以2000万美元的价格租下昆士兰圣灵岛地区的凯斯威克岛的一部分，租期99年。
+谈还是上海市信息安全行业协会的会长，他建议加快相关法律法规的建设，严格规范和实施关键数据的收集、存储和使用。
 
-岛屿的剩余80%是国家公园，距离沿海城镇麦凯（Mackay）34公里。
+他还建议实施数据分类和管理，开列一个禁止清单以阻止在互联网上使用像生物和制药等关键领域的数据。
 
-但当地居民说，中共国支持的开发商对旅游业造成了阻碍，并破坏了他们的生活方式。
+英国科技公司Comparitech今年1月份发布的一项研究发现，中共国是“滥用生物特征数据方面最恶劣的罪犯”。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yClzIsldCk16Q/images/ad9c3c02-d63f-407e-b1c2-9381e1eb791d.png?asset_id=f7ff54b2-f493-460c-9461-a51ea43a006a&amp;img_etag=%22c0e5e4b7e3d7f39349a4456f22601228%22&amp;size=2560)](https://spark.adobe.com/page/yClzIsldCk16Q/images/ad9c3c02-d63f-407e-b1c2-9381e1eb791d.png?asset_id=f7ff54b2-f493-460c-9461-a51ea43a006a&amp;img_etag=%22c0e5e4b7e3d7f39349a4456f22601228%22&amp;size=1024)华贯（China Bloom）在近两年前以2000万美元的价格租下昆士兰圣灵岛地区的凯斯威克岛的一部分，租期99年（如图所示，游客们在圣灵岛地区的岛上）
+[!\[\]()!\[\](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/bbbb2aef-eada-4886-b056-310e273f6189.jpg?asset_id=01dff0a3-68f4-4481-9ff8-b794eabe97f0&amp;img_etag=%22ce483d2ab192d86f86ed603dd60214c2%22&amp;size=1024)](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/bbbb2aef-eada-4886-b056-310e273f6189.jpg?asset_id=01dff0a3-68f4-4481-9ff8-b794eabe97f0&amp;img_etag=%22ce483d2ab192d86f86ed603dd60214c2%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yClzIsldCk16Q/images/00ce6e8e-5f8e-48e3-adc3-8d02a8382a21.png?asset_id=b8131814-b37a-41d6-947c-5e0b03c6ca68&amp;img_etag=%2291a0c1a87411d889e301f722a6e28c06%22&amp;size=2560)](https://spark.adobe.com/page/yClzIsldCk16Q/images/00ce6e8e-5f8e-48e3-adc3-8d02a8382a21.png?asset_id=b8131814-b37a-41d6-947c-5e0b03c6ca68&amp;img_etag=%2291a0c1a87411d889e301f722a6e28c06%22&amp;size=1024)凯瑟克岛位于昆士兰圣灵岛（Whitsundays）地区的海岸外，深受那些想体验大堡礁乐趣的人的欢迎
+中共利用指纹和人脸识别技术实施的广大应用包括：无人机，它们去年曾飞越中共国城市，使用人脸识别来锁定那些在新冠病毒疫情期间违反封锁禁令的人；人脸系统，它们能够辨认出佩戴口罩的人；摄像头，它们能识别每一个使用公共交通系统的人，能够识别和羞辱那些乱穿马路的人和偷公厕厕纸的人。
 
-道森联邦议员乔治·克里斯滕森(George Christensen)表示，他对监视该岛的保安人员数量之多感到震惊。
+为了评估工人的生产效率，中共国的公司已经安装了可以监视工人脑电波的系统。为了防止脑电波监视失灵，中共国正在研发“智能垫”，它可以监视员工的另一端。
 
-克里斯滕森先生告诉2GB的本·福德汉姆（Ben Fordham），我注意到的第一件事就是有保安透过树丛偷看我们在做什么。
+尽管民意调查显示90%的中国城市居民对这种监视感到不适，但致力于全面生物特征监视的不懈努力仍在快速向前推进。谈剑锋呼吁建立一个受到严密保护的“国家数据库”，这正是中共国专制政府的计划的一部分，目的是让市民们安心，觉得他们的生物信息将得到保护。
 
-居民们告诉我，这并不罕见；保安在人们进出岛屿时不断询问他们，（甚至）在全天所有的时间开车巡逻经过他们的房子。
+“这里的中国普通老百姓对这项技术感到不满但别无选择。如果警察说一个社区里必须要有摄像头，那人们就不得不接受摄像头在日常生活中的存在。那样的要求总是有的，我们到这里就是完成这样的要求。” 深圳太古计算机系统有限公司的一位代表耸耸肩说到。据英国《卫报》周三报道，这是一家生产情感识别技术的公司。
 
-“这是非常非常吓人的，在现代的澳大利亚，很难想象会有一家私营保安公司随时在检查你在做什么。”
+《卫报》指出情感辨别行业正“在中共国蓬勃发展”，预计2023年收益达360亿美元，因为独裁者习近平和其他高层领导已经强调“创造正能量是意识形态运动的一部分，这场运动鼓励某些类型的表达，限制其它表达。”
 
-克里斯滕森先生说，早在2019年，就有一家澳大利亚财团有意接手这块土地——但州政府选择了中共国公司。
+太古公司吹嘘说他们的技术也可以用来“在监狱预测犯人的危险行为，在警察检查站发觉潜在的罪犯，在学校发现问题学生，在养老院发觉出现痴呆症状的老人。”从疗养院到学校，情感辨别系统无处不在。
 
-“我们所看到的只有混乱；给当地居民造成各种问题，”他说道。
+批评家说，监视技术的最新发展是基于生理学的骗术，它几乎没有保护隐私，歧视在中共国受压迫的种族技术，并且在预测突发暴力方面没有可论证的效果。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yClzIsldCk16Q/images/4249aa69-b978-4dd7-9880-0fafb7887d55.png?asset_id=dc0e4d44-7514-4e5e-a562-4affa8100c54&amp;img_etag=%223f1a1d4ef7281c177bed93429d768819%22&amp;size=2560)](https://spark.adobe.com/page/yClzIsldCk16Q/images/4249aa69-b978-4dd7-9880-0fafb7887d55.png?asset_id=dc0e4d44-7514-4e5e-a562-4affa8100c54&amp;img_etag=%223f1a1d4ef7281c177bed93429d768819%22&amp;size=1024)愤怒的当地人指责华贯公司禁止船只进入公共坡道，关闭空中跑道，并试图阻止游客使用海滩，开发商对此予以否认（图为限制公众进入的标志之一）
+人权数字分析员维杜西·玛达告诉《卫报》：“我认为很多生物特征监视跟恐吓、审查紧密相关，我推测［情感辨别］就是这样的一个例子。”
 
-克里斯滕森先生抨击州长安娜斯塔西亚·帕拉夏（Annastacia Palaszczuk）未能照顾到她所在州的居民。
-
-“我想对安娜斯塔西亚说的是，你能否为这些昆士兰人撑腰，而不是偏袒一家外资公司？”他说。
-
-“这是很简单的事情；如果你不能自由、简单地进出这个岛，那就有很大的问题了。”
-
-当地人声称，开发商禁止船只从公共坡道进入，关闭空中跑道，禁止游客进入海滩，从而摧毁了他们的生活方式——开发商希望重新开发此岛
-
-在澳大利亚国庆日，一船船的昆士兰人从大陆赶来——有些人从布里斯班远道而来——为当地人遭受的不公待遇抗议。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/yClzIsldCk16Q/images/9964ecf7-ff5d-4c64-af82-eb6505adb436.png?asset_id=a68bd767-fd0d-4aed-8e7f-f2c7db22b9ef&amp;img_etag=%22ace3d10e4c5c4edd985715cc0ad2cdbf%22&amp;size=3412)](https://spark.adobe.com/page/yClzIsldCk16Q/images/9964ecf7-ff5d-4c64-af82-eb6505adb436.png?asset_id=a68bd767-fd0d-4aed-8e7f-f2c7db22b9ef&amp;img_etag=%22ace3d10e4c5c4edd985715cc0ad2cdbf%22&amp;size=1024)图片： 圣灵岛群岛南半部凯斯威克岛鸟瞰图。
-
-他们将船并排停在码头上，发誓要在这片水域庆祝澳大利亚国庆日，以声援以这个美丽岛屿为家的人们。
-
-他们还要求帕拉夏女士和她的州政府加强限制，并介入协助当地人。
-
-“我认为大多数澳洲人都是通情达理的人，但你把他们逼急了，就会发生这样的事情。”来自麦凯的保险评估员弗雷泽·古柴（Fraser Goodchild）说。
-
-“中共国的国家风格过去一直是被动的，他们一直想帮助别人，但现在他们却变成了（一个）欺负人的国家。”
-
-国家参议员马尔科姆·罗伯茨（Malcolm Roberts）在澳大利亚国庆日从布里斯班赶来，他对州政府有话要说。
-
-他告诉时事栏目（澳大利亚9号电视网的栏目）：“华贯公司之所以能逃脱，只是因为州政府没有尽到它的职责。”
-
-虽然一些居民声称他们的生活在收购后发生了翻天覆地的恶劣变化，但也有人说这个田园岛屿上的生活从来没有这么好过，并否认了出入受限的说法。
-
-脸书“澳大利亚人收回凯斯威克岛所有权 ”小组有近9000名成员。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/yClzIsldCk16Q/images/9f45d96f-cd3d-4222-9156-469fbb04d3dd.png?asset_id=b3e98f36-4b3a-4fec-80eb-8bf875d8e8c9&amp;img_etag=%22d280300a06d12755ae42a13a3d8b5925%22&amp;size=2560)](https://spark.adobe.com/page/yClzIsldCk16Q/images/9f45d96f-cd3d-4222-9156-469fbb04d3dd.png?asset_id=b3e98f36-4b3a-4fec-80eb-8bf875d8e8c9&amp;img_etag=%22d280300a06d12755ae42a13a3d8b5925%22&amp;size=1024)在澳大利亚国庆日，一船又一船的昆士兰州人从澳大利亚大陆赶来，有些人甚至从布里斯班远道而来，抗议对当地人的对待
-
-**🔗[原文链接](https://www.dailymail.co.uk/news/article-9323523/Chinese-developers-took-Keswick-Island-allegedly-employed-security-monitor-locals.html)**
+[原文链接](https://www.breitbart.com/national-security/2021/03/03/chinese-officials-want-national-data-bank-faces-fingerprints/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+breitbart+%28Breitbart+News%29)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 - [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yClzIsldCk16Q/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/yClzIsldCk16Q/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

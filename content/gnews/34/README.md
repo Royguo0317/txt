@@ -1,106 +1,97 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国将沿第一岛链建精确打击导弹网络遏制中共国地区扩张
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/956539/)
+## 汤姆‧科顿议员报告（六）——《战胜中共国：针对性脱钩与经济持久战》
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/956586/)
 
-新闻来源：《日经亚洲》| 作者：Ryo Namamura | 发布时间：2021年3月5日
+五月花写作组 ｜ 翻译：jiasen ｜ 校对：紫丁香 ｜ 编辑、美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/03/汤姆克顿V7.jpg)
+### 往期链接：
 
-翻译/简评：helloworld | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii
+[汤姆‧科顿议员报告序言——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/918314/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CekJmz97IwCkG/images/6fd8096e-d344-40f6-965b-dc62b6f8b704.jpg?asset_id=7eb50ab9-26b9-4d70-9e31-c966d9c79c26&amp;img_etag=%221a74ca03f9a0a758aceda692096864c4%22&amp;size=1024)](https://spark.adobe.com/page/CekJmz97IwCkG/images/6fd8096e-d344-40f6-965b-dc62b6f8b704.jpg?asset_id=7eb50ab9-26b9-4d70-9e31-c966d9c79c26&amp;img_etag=%221a74ca03f9a0a758aceda692096864c4%22&amp;size=1024)
+[汤姆‧克顿议员报告（一）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928067/)
 
-***简评：***
+[汤姆‧克顿议员报告（二）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928136/)
 
-虽然面临若干现实难题和利益纠葛，美国正尝试在未来推进加强第一岛链的导弹网络，从而尝试遏制中共国可能改变地区平衡的扩张企图。
+[汤姆‧科顿议员报告（三）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/931905/)
 
-很难说这种威慑是否能奏效。在详实的证据之下，美国及盟国正在转向，认识到了中共的威胁，并尝试用防御的姿态应对中共的扩张态势。诚然，美国的强大军力，以及社会正在逐渐形成的脱钩共识，在长期内必将遏制住中共的威胁，并使中共内部矛盾无处转移，最终导致崩溃。但中共的独裁制度已在国内彻底消灭反对声音，不可能选择任何的退缩等自毁总加速师形象的道路，很可能会抢先在美国以及日本等盟国还在协商处理经济矛盾之时快速对台湾、新加坡、日本等国家以及南海地区出手，如困兽犹斗般寻找转机。
+[汤姆‧科顿议员报告（四）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/935835/)
 
-中共的加速疯狂已无回头之路，任何的绥靖和认为其会再次缓和的斡旋企图只能是幻想。香港和《中英联合声明》已成为了第一个牺牲品，犹如二战时期对德国纳粹绥靖历史重现，国际社会并未强力阻止，这只会进一步加剧中共的疯狂，未来的血雨腥风已隐约可见。爆料革命现在将中共未来的行为和对世界造成的威胁，以及未来将会面临的后果告知天下，只希望内部人士能够彻底醒悟，无论是拖延、枪口抬高还是调转枪头；国内有能力者用脚投票，坚决与红魔划清界限，或者离开这个是非之地，救人救己；国际社会能够早日警醒，摒弃幻想，彻底灭杀红魔。
+[汤姆‧科顿议员报告（五）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/937759/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CekJmz97IwCkG/images/b6320b7e-1dae-4aa0-8ef1-6e4a66686620.jpg?asset_id=5b47b496-78ec-4912-8533-5fca1913e18f&amp;img_etag=%2211128e3f375b7f40ed20c022e9b1587a%22&amp;size=1024)](https://spark.adobe.com/page/CekJmz97IwCkG/images/b6320b7e-1dae-4aa0-8ef1-6e4a66686620.jpg?asset_id=5b47b496-78ec-4912-8533-5fca1913e18f&amp;img_etag=%2211128e3f375b7f40ed20c022e9b1587a%22&amp;size=1024)
+* * *
 
-***原文翻译：***
+## **CHINA’S RELIANCE ON THE UNITED STATES **
 
-#### 美国将沿第一岛链构建反中共国导弹网络
+## **中共国对美国的依赖**
 
-独家：印太司令部要求2022财年新增一倍支出
+While the United States relies on China in key areas, the knife cuts both ways; one country’s point  of exposure is another’s point of leverage. Indeed, China’s fortunes are tied to the United States  more closely than ours are to China, a fact that American strategists must keep in mind.
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CekJmz97IwCkG/images/2da915cf-2634-499b-9a0a-5c3489c40116.png?asset_id=12e77df6-18ef-41d5-bd00-12309b39ed91&amp;img_etag=%22a4df676b42d9acead48b72e3dfdf060d%22&amp;size=1024)](https://spark.adobe.com/page/CekJmz97IwCkG/images/2da915cf-2634-499b-9a0a-5c3489c40116.png?asset_id=12e77df6-18ef-41d5-bd00-12309b39ed91&amp;img_etag=%22a4df676b42d9acead48b72e3dfdf060d%22&amp;size=1024)独立型濒海战斗舰“加布里埃尔·吉福德”号(USS Gabrielle Giffords)在菲律宾海的太平洋格里芬(Pacific Griffin)演习中发射舰载攻击导弹(NSM)。这是一种远程精确打击武器，旨在发现并摧毁敌舰。（照片由美国海军提供）
+尽管美国在关键领域依赖中共国，但这是一把双刃剑。 一个国家的曝光点恰是另一个国家的制衡点。 实际上，中共国的命运与美国的关联，远比我们的命运与中共国的关联更紧密，这是美国战略家必须牢记的事实。
 
-华盛顿——日经社获悉，美国将加强对中共国的常规威慑能力，在被称为第一岛链的地区建立精确打击导弹网络。这是拟定中的未来6年印太地区274亿美元开支的一部分。
+China relies on the United States to access high-end research and technology. It embeds agents in  U.S. research and development institutions in order to acquire early-stage research at minimal cost  and risk. Chinese firms then apply this research, scale it quickly, and compete with U.S. firms  in the global marketplace on unfair terms. Qiaohai Shu of the China Academy of Social Sciences  (CASS) explained the logic behind this strategy when he wrote, “Innovation is time-consuming,  laborious and risky…but when it comes to *applying*technology, the opportunity cost to leap ahead  is low, the chances of success are high.”
 
-它们构成了美国印太司令部向国会提交的“太平洋威慑倡议”的核心提案。日经社也对该提案进行了评论。
+中共国依靠美国获得高端研究和技术。它将间谍隐藏在美国研发机构中，以便以最低成本和风险获得早期研究成果。然后，中共国公司就应用这些研究成果，迅速扩大规模，在全球市场与美国公司进行不公平竞争。中共国社会科学院（CASS）的乔海曙解释了该策略背后的逻辑，他写道：“创新既费时、费力，又有风险……但是，在应用技术方面，实现超越的机会成本很低， 而成功的几率却很高。
 
-该文件说：“对美国未来最大的危险仍然是传统威胁的侵蚀。如果没有有效和令人信服的常规威慑力，中共国就会有恃无恐地在该地区和全球范围内采取行动，取代美国的利益。随着印太地区的军事平衡变得越来越不利，美国积累了额外的风险，可能会让对手有恃无恐地试图单方面改变现状。”
+This strategy helps explain why China allocates only six percent of its R&D budget to basic  research, while the United States allocates 17 percent.It also sheds light on why Beijing spends  a whopping 84 percent of its R&D funds on experimental development while the United States  spends only 63 percent.
 
-具体而言，它要求“在第一岛链国际日期变更线以西部署一支拥有精确打击网络的一体化联合部队，在第二岛链部署一体化的空中导弹防御力量，并采取分布式的兵力态势，以提供维护稳定的能力，在必要的时候能分散并在更长的时间段维持作战行动。”
+这一策略有助于解释为什么中共国仅将其研发预算的6％分配给基础研究，而美国却达到17％。这也揭示了为什么北京将高达84%的研发资金用于实验开发，而美国只花费63%。
 
-第一岛链由包括台湾、冲绳和菲律宾在内的一组岛屿组成，中共国将其视为第一道防线。北京的“禁止进入/区域封锁”战略旨在将美军赶出第一岛链内的东海和南海。
+Access to American research and innovation is therefore a central plank in China’s long-term  economic, military, and political planning. Chinese strategists fret, with good reason, about a  “high-tech blockade” that could slow the country’s economic development.
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CekJmz97IwCkG/images/705afef0-1db6-4a3f-b317-f01c356a9975.png?asset_id=b8383762-2aa0-4d19-a597-921f05e732bf&amp;img_etag=%229a48fa956f623deb1514f7bc7702e1c9%22&amp;size=1024)](https://spark.adobe.com/page/CekJmz97IwCkG/images/705afef0-1db6-4a3f-b317-f01c356a9975.png?asset_id=b8383762-2aa0-4d19-a597-921f05e732bf&amp;img_etag=%229a48fa956f623deb1514f7bc7702e1c9%22&amp;size=1024)美国海军陆战队两架AH-1W超级眼镜蛇直升机在菲律宾克拉克空军基地上空飞行。菲律宾是所谓第一岛链的一部分。（照片由美国国防部提供）
+因此，获得美国研究和创新成果是中共国长期经济，军事和政治规划的核心内容。中共国的战略家们有充分理由担心“高科技封锁”会减缓中共国的经济发展。
 
-中共国还试图阻止美军接近西太平洋的“第二岛链”，该岛链从日本东南部一直延伸到关岛，向南延伸直到印尼。
+Washington could confound and disrupt the CCP’s economic strategy by ending this parasitic  relationship. If China is denied access to U.S. research and high-end technology, such as  semiconductors, it would have to make additional investments in basic research. These investments would be funded by a smaller economy with a more burdensome debt load—  China’s total domestic debt was an estimated 335 percent of GDP in late 2020. Beijing  would have to make these investments while simultaneously maintaining its proficiency in  experimental development, rapid scaling, and production. This would tax China more severely  than the status quo.
 
-印太司令部本月向国会提交了一份2022财年至2027财年的投资计划。
+通过终止这种寄生关系，华盛顿可以打乱并挫败中共的经济战略。如果中共国被剥夺了获得美国研究成果和半导体等高端技术的机会，它将不得不在基础研究上进行额外投资。这些投资或将由债务负担更加沉重、规模更小的经济体来承担——到2020年末，中共国的国内债务总额预计占GDP的335％。中共国将不得不在保持其实验开发，快速扩张，和生产方面熟练程度的同时，进行这些投资。这会使中共国的内耗比现有状况更为严峻。
 
-2022财年，印太司令部申请了47亿美元拨款，这是2021财年为该地区拨款22亿美元的两倍多，也接近华盛顿每年用于对抗俄罗斯的大约50亿美元。
+Foreign investment is another key point of reliance in the U.S.-Chinese economic  relationship. U.S. real estate and equities are a safe harbor for Chinese companies and elites,  although strict controls imposed by the CCP in 2017 to stabilize the balance of payments  have curtailed capital flight.
 
-这份六年总额为274亿美元的预算案，比截至2020财年同期的计划支出增加了36%，反映出人们对中共国围绕台湾和东海、南海周围活动的警惕性日益增强。
+外国投资是美中经济关系的另一关键依赖点。尽管中共在2017年为稳定国际收支平衡而实施了严格的管制，遏制了资本外逃，美国的房地产和股票市场仍是中共国公司和精英阶层的避风港。
 
-美国印太司令部司令菲利普·戴维森上将(Adm. Philip Davidson)周四在华盛顿智库“美国企业研究院”发表演讲时表示，人们担心未来六年内，中共国可能寻求改变该地区现状，例如改变与台湾的关系。
+American investment, meanwhile, plays a critical role in China’s economic rise. This  investment lends legitimacy to the CCP, builds its industrial and technological capabilities,  and creates a political constituency within the United States committed to preventing  confrontation with the CCP. Reducing this investment would do material harm to China’s  economy, international standing, and, potentially, the CCP itself.
 
-他表示：“有一个基本的认识是，从现在到2026年这十年，中共国将力图实现其能力之外的目标，也是北京可能、我是说‘可能’广泛选择强行改变该地区现状的时期。”
+同时，美国的投资对中共国经济的崛起起着至关重要的作用。这样的投资导致中共具有了合法性，增强了它的工业和技术实力，并在美国内部建立了一个政治团体，致力于防止与中共对抗。减少这样的投资将对中共国的经济、其国际地位，乃至中共本身造成切实打击。
 
-他说：“而且我认为这种改变可能是永久性的。”
+Another related point of reliance is China’s ability to list companies on U.S. stock exchanges,  despite its refusal to comply with the Security and Exchange Commission’s auditing  standards. This refusal spurred Congress to pass legislation, co-sponsored by Senator Cotton  and signed into law late last year, that delists Chinese and Hong Kong-based companies from  U.S. stock exchanges if they fail to comply with audits by the Public Company Accounting  Oversight Board (PCAOB). The combined market capitalization of the more than 250  Chinese and Hong Kong firms listed on U.S. exchanges is over $2 trillion.
 
-根据该文件，这一计划的目的是“将资源集中在重要的军事能力上，以威慑中共国”。这份报告中概述的要求是，“专注于通过展示危机时的可信的战力，说服潜在的对手：任何先发制人的军事行动都将面临高昂代价，而且很可能失败。”
+另一个相关依赖点是，尽管中共国拒绝遵守美国证券交易委员会（SEC）的审计标准，但它仍具有使其公司在美国证券交易所上市的能力。这种拒绝促使国会通过了一项由参议员科顿共同发起，并于去年年底签署的立法，该法规定如果中共国和香港公司不遵守上市公司会计监督委员会的（PCAOB）审计程序，就会被退市。在美国证券交易所上市的250多家中共国和香港公司的总市值超过2万亿美元。
 
-该提案之后将在两院以及将会参与实施的几个国家讨论。中共国过去曾反对美国试图在盟国特别是韩国防止导弹防御系统的企图。
+Meanwhile, China’s access to the U.S. dollar and dollar-denominated trading system is another  point of leverage for the United States. Because most dollar transactions clear through the  American financial system, the United States has the power to block, hold, or otherwise  intervene in many Chinese transactions.
 
-根据日本防卫白皮书，美国在印太地区约有13.2万人驻军。
+同时，中共国进入美元和以美元计价的贸易体系是美国的另一个制衡点。因为大多数美元交易都是通过美国金融系统进行清算的，所以美国有能力阻止，控制或以其他方式干预许多中共的交易。
 
-该投资计划以“沿第一岛链建立高生存力的精确打击网络”为核心内容。这意味着扩大使用发射常规导弹的路基炮台，因为军方已经排除了在这种中短程导弹上使用核弹头的可能性。
+China also depends on access to the U.S. market, which received 19 percent of China’s exports  in 2018. The U.S. export market is an irreplaceable outlet for goods generated by China’s  oversupplied economy. Though China has made efforts to accelerate domestic innovation and  reduce its reliance on exports, it is a long way from matching the strength of U.S. innovation  or becoming as self-contained as the American economy. The large trade surplus China runs  with the United States is thus both a sign of China’s remarkable productive capacity and a  potential weakness the United States can exploit.
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CekJmz97IwCkG/images/60ea1ca9-1feb-416b-9a16-08235cb2ceb7.png?asset_id=d3e3f770-7e34-4bbf-883d-caa70e9d9120&amp;img_etag=%22c294d7b25270cf93aa6275311eb68409%22&amp;size=2560)](https://spark.adobe.com/page/CekJmz97IwCkG/images/60ea1ca9-1feb-416b-9a16-08235cb2ceb7.png?asset_id=d3e3f770-7e34-4bbf-883d-caa70e9d9120&amp;img_etag=%22c294d7b25270cf93aa6275311eb68409%22&amp;size=1024)美国海军查菲号(Chafee)导弹驱逐舰在太平洋上发射BlockV战斧导弹（照片由美国海军提供）
+中共国还依赖美国市场的准入，美国市场在2018年接收中共国出口总量的19％。美国出口市场是中共国经济供过于求所生产的商品不可替代的出口。尽管中共国已经努力加快国内创新，减少对出口的依赖，但距离与美国创新实力相匹配，或者像美国一样经济自成一体还相去甚远。因此，中共国对美国的巨额贸易顺差既是中共国显著生产能力的标志，又是美国可以利用的潜在弱点。
 
-长期以来，美国对中共国战略一直以其海军和空军为基础。在1996年台海危机期间，美国派遣航空母舰，展示压倒性的军事力量作为威慑。
+This dynamic has important political implications because slower growth has the potential  to cause internal discontent. Chinese citizens willing to accept an increasingly heavy-handed  authoritarian state in exchange for a higher standard of living may think twice if growth slows  or stagnates. As a result, the CCP fears that declines in exports, growth, and employment could  pose political liabilities. Other domestic problems would intensify pressure on the regime. These  problems include restrictions on home ownership, the absence of a humane welfare state, the inability of many Chinese men to find wives, and a lack of children to care for the elderly.The 90-million-member CCP may find it increasingly difficult to govern China’s 1.4 billion  people if the economy stagnates.
 
-中共国现在拥有一支多样化的导弹库，着眼于阻挡美国在第二岛链内的军事推进，这使美国寄希望于海军和空军的战略可行性降低。
+这种动态具有重要的政治意义，因为经济增长放缓有可能引起内部的不满。如果增长放缓或停滞，愿意接受日益严历的专制统治以换取更高生活水平的中共国公民可能会三思而后行。因此，中共担心出口、增长和就业的下降会带来政治后果。其它国内问题将加剧对该独裁政权的压力。 这些问题包括对房屋所有权的限制，人道福利缺失，许多中国男人找不到妻子，以及缺少子女照顾老人。如果经济停滞不前，拥有九千万党员的中共可能会发现越来越难以统治中国的14亿人口。
 
-中共国在陆基中程导弹方面实力雄厚。根据五角大楼的说法，中共国的武器库拥有1250枚这种导弹，而美国却没有。
+U.S. policymakers must recognize the immense leverage they have over China. Having grown  used to China wielding its domestic market as a weapon, many in the United States seem to have  forgotten that U.S. market access is one of the most valuable prizes in the world, particularly for  the world’s largest exporter. Access to the U.S. market may therefore be the single most powerful  point of leverage in the entire competition, provided the United States can create resilient supply  chains for essential goods that do not depend on Chinese manufacturing.
 
-这一差距归因于《中程核军备条约》(Intermediate-Range Nuclear Forces Treaty)，该条约禁止发展射程在500公里至5500公里的地基导弹。该协议于2019年到期。
+美国决策者必须认识到他们对中共国的巨大影响力。由于习惯了中共国将其国内市场作为武器，许多美国人似乎已经忘记了美国的市场准入是世界上最有价值的奖赏之一，尤其是对世界上最大的出口国而言。因此，美国的市场准入可能是整个竞争中最有力的一个制衡点，使美国能够为其必需商品建立弹性供应链，而不依赖中共制造业。
 
-参议院外交关系委员会排名最高的共和党参议员吉姆·里施(Jim Risch)接受日经社书面采访时说：“《中导条约》不必要地限制了美国。”
+But time may be running short to exploit this opportunity. China’s economy is not as export oriented as it once was. Exports accounted for 36 percent of China’s GDP in 2006, but only 18  percent of its GDP in 2019. America’s window of opportunity to pressure China by restricting  access to its market is closing.
 
-里施说，在印太地区部署中程导弹“是美国和日本需要探讨的一个很棒且越来越必要的领域”。
+但是，利用这一机会的时间可能不多了。中共国经济不再像以前那样以出口为导向。2006年，出口占中共国GDP的36％，但到2019年，仅占其GDP的18％。美国通过限制其市场准入对中共国施压的机会窗口正在关闭。
 
-一位日本政府高级官员说，在印太地区建立反制中共国的导弹网络“将对日本有利”。这位官员说，东京尚未与华盛顿对此举进行讨论。
+（未完待续）
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CekJmz97IwCkG/images/2433d6a1-3056-4067-adde-5cae08976824.png?asset_id=21eb737b-d65f-455c-b988-22f5feda92fc&amp;img_etag=%22194b3e09a700bd73f8e781eb3d46d78a%22&amp;size=1024)](https://spark.adobe.com/page/CekJmz97IwCkG/images/2433d6a1-3056-4067-adde-5cae08976824.png?asset_id=21eb737b-d65f-455c-b988-22f5feda92fc&amp;img_etag=%22194b3e09a700bd73f8e781eb3d46d78a%22&amp;size=1024)一架F/A-18F超级大黄蜂在日本富士山上空进行飞行作业。驻日美军人数为5.5万，是美国海外部队中人数最多的一支。（照片由美国海军提供）
+* * *
 
-根据两国的双边安全条约，美国海陆空部队驻扎在日本。该条约规定，如果日本受到攻击，华盛顿有义务保卫日本。目前，大约有5.5万名美军驻扎在日本，这是海外最大的美军驻军。
+### 原文链接：
 
-驻日美军目前并没有维持可打击到中共国的导弹。日本防卫省一直在包括冲绳在内的南西诸岛上建立自己的远程导弹能力。
+[Beat China: Targeted Decoupling and the Economic Long War](https://www.cotton.senate.gov/imo/media/doc/210216_1700_China%20Report_FINAL.pdf)
 
-但是将美国的导弹部署于日本本土将充满困难。由于此举将影响美国军方与日本自卫队之间的角色分工，东京和华盛顿需要讨论任何拟议部署的细节，包括导弹的位置和射程。
+* * *
 
-机会很可能在2022财年以后的对东道国支持的谈判中出现。外务省一位高级官员表示，导弹部署“可能会在我们讨论日美同盟的进程时进行讨论”。
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
 
-日本接纳美国导弹的决定肯定会激怒中共国，使这两个经济上相互交织的邻国的外交关系变得更加复杂。东京政府很可能会遭遇潜在部署地点当地的反对，包括冲绳。目前，冲绳集中了约70%的驻日美军。
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
 
-预算方面也可能出现问题。一位防卫省官员说，华盛顿“可能要求我们承担在日本部署导弹相关的维护和其他费用”。
-
-**🔗[原文链接](https://asia.nikkei.com/Politics/International-relations/Indo-Pacific/US-to-build-anti-China-missile-network-along-first-island-chain)**
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/CekJmz97IwCkG/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/CekJmz97IwCkG/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
 0

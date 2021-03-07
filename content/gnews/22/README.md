@@ -1,16 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月7日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/956679/)
+## 2021年3月7日 文贵先生盖特 4
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/956742/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-3月7号：尊敬的战友们好，谢谢，秘密翻译组制作的这个精美的过去视频的集锦，现在看上去我自己都觉得很了不起！这里能看出上天对我们的加持！和唯真不破的力量，和我们对共产党和对全世界政治局势的影响……
+2019年郭文贵先生揭露中共企图吞噬香港的大湾区计划 In 2019, Mr. Miles Guo exposed the Greater Bay Area plan of the Chinese Communist Party to swallow up Hong Kong
 
 
 
-[【2021年3月7日】文贵先生盖特原文](https://gtv.org/getter/6044fda5581e182e31d90cb9)
+[【2021年3月7日】文贵先生盖特原文](https://gtv.org/getter/6045029d581e182e31d9122d)
 
 **喜联盟Gnews编辑部**
 
