@@ -1,57 +1,97 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布莱克本参议员敦促拜登确保世卫对新冠的调查不受利益冲突的影响
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/956529/)
+## 汤姆‧科顿议员报告（六）——《战胜中共国：针对性脱钩与经济持久战》
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/956586/)
 
-#### 拜登政府对世卫组织的调查表示担忧
+五月花写作组 ｜ 翻译：jiasen ｜ 校对：紫丁香 ｜ 编辑、美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/03/汤姆克顿V7.jpg)
+### 往期链接：
 
-翻译：康州盘古农场 – 暴力小蘑菇
-校对：康州盘古农场 – Mike Li
-编辑：康州盘古农场 – Antsee-GTV
+[汤姆‧科顿议员报告序言——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/918314/)
 
-据《福克斯新闻》亚当·肖（Adam Shaw）独家报道：
+[汤姆‧克顿议员报告（一）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928067/)
 
-![blackburn]()![blackburn](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-08-at-00.08.58.png)*布莱克本参议员接受采访中 – 图片来源：参议员推特帐号视频截屏*
+[汤姆‧克顿议员报告（二）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928136/)
 
-田纳西州共和党参议员玛莎·布莱克本（Marsha Blackburn）周二敦促拜登总统发挥他的领导作用，在备受争议的世界卫生组织(WHO)的调查持续引发担忧之际，确保世卫组织对中国武汉新冠病毒起源的调查不受利益冲突的影响
+[汤姆‧科顿议员报告（三）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/931905/)
 
-福克斯新闻获得的布莱克本在写给拜登的信中说： “我敦促你发挥领导作用，确保世界卫生组织的调查不受利益冲突的影响”。
+[汤姆‧科顿议员报告（四）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/935835/)
 
-布莱克本指出，虽然新冠病毒大流行给美国人的生活和经济造成了损失，但“对大流行起源的调查尚未完成” 。
+[汤姆‧科顿议员报告（五）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/937759/)
 
-世界卫生组织最近派遣了一个调查小组前往据信是疫情源头的武汉。调查组在那里工作了一个月，走访了海鲜市场及其他关键地点——尽管这次访问仅被视为病毒溯源调查的第一步。
+* * *
 
-但因一贯不透明的中国政权隐瞒信息且与调查团队存在潜在利益冲突(尽管一些团队成员否认了这一点)，此次调查一直受到诟病。
+## **CHINA’S RELIANCE ON THE UNITED STATES **
 
-《华尔街日报》(Wall Street Journal)近期的一篇文章对世卫组织团队的一名成员提出了担忧。世卫组织管理了超过1亿美元的联邦拨款，用于资助海外工作和实验研究——其中还有部分工作由后来被认为是可能是疫情爆发源头的武汉实验室承担。
+## **中共国对美国的依赖**
 
-据报道，在本次新冠疫情大流行早期，人们对这种病毒知之甚少，当时他驳斥了病毒是在实验室制造的说法，认为这是一种阴谋论——尽管他的发言人告诉《华尔街日报》，他支持当时正受到网络骚扰的科学家们。
+While the United States relies on China in key areas, the knife cuts both ways; one country’s point  of exposure is another’s point of leverage. Indeed, China’s fortunes are tied to the United States  more closely than ours are to China, a fact that American strategists must keep in mind.
 
-布莱克本在给拜登的信中写道:“中国武汉的疫情爆发相关信息缺乏透明度让人担忧”，“此外，世界卫生组织选择疫情调查人员的方式以及部分被选中的调查者（与中国武汉病毒所）存在利益冲突也引起了关注。”
+尽管美国在关键领域依赖中共国，但这是一把双刃剑。 一个国家的曝光点恰是另一个国家的制衡点。 实际上，中共国的命运与美国的关联，远比我们的命运与中共国的关联更紧密，这是美国战略家必须牢记的事实。
 
-拜登政府也有同样的担忧。拜登政府停止了前总统川普政府退出联合国这一机构的进程。国家安全顾问杰克·沙利文(Jake Sullivan)表示，政府“对COVID-19早期调查结果的信息共享方式深表担忧，并对其具体操作方式提出质疑。”
+China relies on the United States to access high-end research and technology. It embeds agents in  U.S. research and development institutions in order to acquire early-stage research at minimal cost  and risk. Chinese firms then apply this research, scale it quickly, and compete with U.S. firms  in the global marketplace on unfair terms. Qiaohai Shu of the China Academy of Social Sciences  (CASS) explained the logic behind this strategy when he wrote, “Innovation is time-consuming,  laborious and risky…but when it comes to *applying*technology, the opportunity cost to leap ahead  is low, the chances of success are high.”
 
-他说:“这份报告必须是独立的，专家的发现不应受中国政府的干预或修改。”
+中共国依靠美国获得高端研究和技术。它将间谍隐藏在美国研发机构中，以便以最低成本和风险获得早期研究成果。然后，中共国公司就应用这些研究成果，迅速扩大规模，在全球市场与美国公司进行不公平竞争。中共国社会科学院（CASS）的乔海曙解释了该策略背后的逻辑，他写道：“创新既费时、费力，又有风险……但是，在应用技术方面，实现超越的机会成本很低， 而成功的几率却很高。
 
-然而，拜登政府到目前为止还没有解决令人担忧的相关利益冲突问题。布莱克本敦促拜登“发挥你的领导作用，确保正在进行的COVID-19大流行源头调查不受利益冲突的影响。”
+This strategy helps explain why China allocates only six percent of its R&D budget to basic  research, while the United States allocates 17 percent.It also sheds light on why Beijing spends  a whopping 84 percent of its R&D funds on experimental development while the United States  spends only 63 percent.
 
-“应该要求世卫组织派遣独立调查人员来进行这项工作。调查团队不应该包含有利益冲突者或缺乏司法鉴定调查经验的研究人员，”她在信中说。
+这一策略有助于解释为什么中共国仅将其研发预算的6％分配给基础研究，而美国却达到17％。这也揭示了为什么北京将高达84%的研发资金用于实验开发，而美国只花费63%。
 
-她写道:“我们必须给死于这种疾病的50多万美国人一个交代，给他们的家人一个交代，给未来可能面临这种流行病的美国人一个交代。”
+Access to American research and innovation is therefore a central plank in China’s long-term  economic, military, and political planning. Chinese strategists fret, with good reason, about a  “high-tech blockade” that could slow the country’s economic development.
 
-布莱克本一直呼吁（美国政府应当）对北京当局采取强硬立场。上周在奥兰多举行的保守派政治行动会议(CPAC)上，她在接受福克斯新闻采访时重申了这一呼吁。
+因此，获得美国研究和创新成果是中共国长期经济，军事和政治规划的核心内容。中共国的战略家们有充分理由担心“高科技封锁”会减缓中共国的经济发展。
 
-“对于中共国，我们需要明确（我们的）立场：我们知道他们是我们的对手,他们并不是我们的盟友,我们需要从中共国拿回我们的制造业就业机会,我们需要关闭他们开设在我国大学校园内的孔子学院,我们需要确保中国为他们对我们定向投放COVID-19病毒疫情的行为负责,”她说。
+Washington could confound and disrupt the CCP’s economic strategy by ending this parasitic  relationship. If China is denied access to U.S. research and high-end technology, such as  semiconductors, it would have to make additional investments in basic research. These investments would be funded by a smaller economy with a more burdensome debt load—  China’s total domestic debt was an estimated 335 percent of GDP in late 2020. Beijing  would have to make these investments while simultaneously maintaining its proficiency in  experimental development, rapid scaling, and production. This would tax China more severely  than the status quo.
 
-美联社部分参与此篇报道
+通过终止这种寄生关系，华盛顿可以打乱并挫败中共的经济战略。如果中共国被剥夺了获得美国研究成果和半导体等高端技术的机会，它将不得不在基础研究上进行额外投资。这些投资或将由债务负担更加沉重、规模更小的经济体来承担——到2020年末，中共国的国内债务总额预计占GDP的335％。中共国将不得不在保持其实验开发，快速扩张，和生产方面熟练程度的同时，进行这些投资。这会使中共国的内耗比现有状况更为严峻。
 
-【作者】：亚当·肖（Adam Shaw，本篇新闻供稿记者）是福克斯新闻（Fox News）报道美国和欧洲政治的记者。可以通过[email protected]与他联系。
+Foreign investment is another key point of reliance in the U.S.-Chinese economic  relationship. U.S. real estate and equities are a safe harbor for Chinese companies and elites,  although strict controls imposed by the CCP in 2017 to stabilize the balance of payments  have curtailed capital flight.
 
-【原文地址】：[https://www.foxnews.com/politics/blackburn-biden-whos-china-covid-probe-conflict-of-interest](https://www.foxnews.com/politics/blackburn-biden-whos-china-covid-probe-conflict-of-interest)
+外国投资是美中经济关系的另一关键依赖点。尽管中共在2017年为稳定国际收支平衡而实施了严格的管制，遏制了资本外逃，美国的房地产和股票市场仍是中共国公司和精英阶层的避风港。
 
-【相关新闻】：[世卫组织(WHO)是否有能力对中国新冠肺炎疫情开展充分调查？《入侵达尔文》(Hacking Darwin)一书的作者杰米·梅茨尔(Jamie Metzl)表示，世界卫生组织因其架构缺陷，不具备对COVID-19进行深入、积极调查的能力](https://video.foxnews.com/v/6232423575001#sp=show-clips)
+American investment, meanwhile, plays a critical role in China’s economic rise. This  investment lends legitimacy to the CCP, builds its industrial and technological capabilities,  and creates a political constituency within the United States committed to preventing  confrontation with the CCP. Reducing this investment would do material harm to China’s  economy, international standing, and, potentially, the CCP itself.
 
+同时，美国的投资对中共国经济的崛起起着至关重要的作用。这样的投资导致中共具有了合法性，增强了它的工业和技术实力，并在美国内部建立了一个政治团体，致力于防止与中共对抗。减少这样的投资将对中共国的经济、其国际地位，乃至中共本身造成切实打击。
 
+Another related point of reliance is China’s ability to list companies on U.S. stock exchanges,  despite its refusal to comply with the Security and Exchange Commission’s auditing  standards. This refusal spurred Congress to pass legislation, co-sponsored by Senator Cotton  and signed into law late last year, that delists Chinese and Hong Kong-based companies from  U.S. stock exchanges if they fail to comply with audits by the Public Company Accounting  Oversight Board (PCAOB). The combined market capitalization of the more than 250  Chinese and Hong Kong firms listed on U.S. exchanges is over $2 trillion.
+
+另一个相关依赖点是，尽管中共国拒绝遵守美国证券交易委员会（SEC）的审计标准，但它仍具有使其公司在美国证券交易所上市的能力。这种拒绝促使国会通过了一项由参议员科顿共同发起，并于去年年底签署的立法，该法规定如果中共国和香港公司不遵守上市公司会计监督委员会的（PCAOB）审计程序，就会被退市。在美国证券交易所上市的250多家中共国和香港公司的总市值超过2万亿美元。
+
+Meanwhile, China’s access to the U.S. dollar and dollar-denominated trading system is another  point of leverage for the United States. Because most dollar transactions clear through the  American financial system, the United States has the power to block, hold, or otherwise  intervene in many Chinese transactions.
+
+同时，中共国进入美元和以美元计价的贸易体系是美国的另一个制衡点。因为大多数美元交易都是通过美国金融系统进行清算的，所以美国有能力阻止，控制或以其他方式干预许多中共的交易。
+
+China also depends on access to the U.S. market, which received 19 percent of China’s exports  in 2018. The U.S. export market is an irreplaceable outlet for goods generated by China’s  oversupplied economy. Though China has made efforts to accelerate domestic innovation and  reduce its reliance on exports, it is a long way from matching the strength of U.S. innovation  or becoming as self-contained as the American economy. The large trade surplus China runs  with the United States is thus both a sign of China’s remarkable productive capacity and a  potential weakness the United States can exploit.
+
+中共国还依赖美国市场的准入，美国市场在2018年接收中共国出口总量的19％。美国出口市场是中共国经济供过于求所生产的商品不可替代的出口。尽管中共国已经努力加快国内创新，减少对出口的依赖，但距离与美国创新实力相匹配，或者像美国一样经济自成一体还相去甚远。因此，中共国对美国的巨额贸易顺差既是中共国显著生产能力的标志，又是美国可以利用的潜在弱点。
+
+This dynamic has important political implications because slower growth has the potential  to cause internal discontent. Chinese citizens willing to accept an increasingly heavy-handed  authoritarian state in exchange for a higher standard of living may think twice if growth slows  or stagnates. As a result, the CCP fears that declines in exports, growth, and employment could  pose political liabilities. Other domestic problems would intensify pressure on the regime. These  problems include restrictions on home ownership, the absence of a humane welfare state, the inability of many Chinese men to find wives, and a lack of children to care for the elderly.The 90-million-member CCP may find it increasingly difficult to govern China’s 1.4 billion  people if the economy stagnates.
+
+这种动态具有重要的政治意义，因为经济增长放缓有可能引起内部的不满。如果增长放缓或停滞，愿意接受日益严历的专制统治以换取更高生活水平的中共国公民可能会三思而后行。因此，中共担心出口、增长和就业的下降会带来政治后果。其它国内问题将加剧对该独裁政权的压力。 这些问题包括对房屋所有权的限制，人道福利缺失，许多中国男人找不到妻子，以及缺少子女照顾老人。如果经济停滞不前，拥有九千万党员的中共可能会发现越来越难以统治中国的14亿人口。
+
+U.S. policymakers must recognize the immense leverage they have over China. Having grown  used to China wielding its domestic market as a weapon, many in the United States seem to have  forgotten that U.S. market access is one of the most valuable prizes in the world, particularly for  the world’s largest exporter. Access to the U.S. market may therefore be the single most powerful  point of leverage in the entire competition, provided the United States can create resilient supply  chains for essential goods that do not depend on Chinese manufacturing.
+
+美国决策者必须认识到他们对中共国的巨大影响力。由于习惯了中共国将其国内市场作为武器，许多美国人似乎已经忘记了美国的市场准入是世界上最有价值的奖赏之一，尤其是对世界上最大的出口国而言。因此，美国的市场准入可能是整个竞争中最有力的一个制衡点，使美国能够为其必需商品建立弹性供应链，而不依赖中共制造业。
+
+But time may be running short to exploit this opportunity. China’s economy is not as export oriented as it once was. Exports accounted for 36 percent of China’s GDP in 2006, but only 18  percent of its GDP in 2019. America’s window of opportunity to pressure China by restricting  access to its market is closing.
+
+但是，利用这一机会的时间可能不多了。中共国经济不再像以前那样以出口为导向。2006年，出口占中共国GDP的36％，但到2019年，仅占其GDP的18％。美国通过限制其市场准入对中共国施压的机会窗口正在关闭。
+
+（未完待续）
+
+* * *
+
+### 原文链接：
+
+[Beat China: Targeted Decoupling and the Economic Long War](https://www.cotton.senate.gov/imo/media/doc/210216_1700_China%20Report_FINAL.pdf)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
 0
