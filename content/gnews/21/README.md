@@ -1,36 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 政治洗脑是无耻政府的首要任务
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/956660/)
+## 2021年1月23日第15期围炉夜话直播精要
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/956698/)
 
-*作者：Tang | 校对：宁缺 | 审核：万人往 | Page：拱卒*
+整理：桂花酒 | 素材制作: 健身健心、Bobby | 审核: Beicy-数学老师 | Page：小雨
 
-[!\[\]()!\[\](https://spark.adobe.com/page/riNUuQiRCJ8Tm/images/df82f9a4-add9-46e2-9013-6715f32f08c0.jpg?asset_id=271c6d5a-47de-4b26-9df4-f8b7178f16f5&amp;img_etag=%2242a3199a982e5bd600bacbc697e615d9%22&amp;size=1024)](https://spark.adobe.com/page/riNUuQiRCJ8Tm/images/df82f9a4-add9-46e2-9013-6715f32f08c0.jpg?asset_id=271c6d5a-47de-4b26-9df4-f8b7178f16f5&amp;img_etag=%2242a3199a982e5bd600bacbc697e615d9%22&amp;size=1024)
+**自由的代价是永恒的警惕**
 
-《联合早报》3月5日报道，政协主席汪洋称，强化思想政治引领列今年首要工作。
+[!\[\]()!\[\](https://spark.adobe.com/page/ewZ5CWitp1Yzg/images/eb22ae76-1440-475e-9041-1ad5436fdd4c.png?asset_id=55f546a7-e1b6-4136-8e40-f6c56c4c8e71&amp;img_etag=%22df5cc2346072227871f9d50cc856e381%22&amp;size=2560)](https://spark.adobe.com/page/ewZ5CWitp1Yzg/images/eb22ae76-1440-475e-9041-1ad5436fdd4c.png?asset_id=55f546a7-e1b6-4136-8e40-f6c56c4c8e71&amp;img_etag=%22df5cc2346072227871f9d50cc856e381%22&amp;size=1024)
 
-汪洋所说的强化思想引领，实质就是加大对百姓的洗脑强度。中共的假大空体制洗脑人民快100年了，这还不够，还要将洗脑列为政协机构今年首要工作。此番继续加大洗脑力度的动作，可见中共贼党对自己执政的能力已经相当不自信。这种不自信，源于中共自身不断地欺骗百姓，不断地欺瞒世界，甚至不断地祸乱世界。最终的结果，参政议政的政协机构也成了宣传机器的一份子，仿效甚至超越希特勒，完全靠谎言欺骗世人来维持统治。
+《缪斯殿堂》之”围炉夜话” 第10期(2020年12月19日）
 
-汪洋曾经被视作党内开明派的代表人物，很多人曾对他寄予过希望。但是，当他进入中共国权力核心圈后，丝毫没有开明的政绩，反而思想愈见僵化。近朱者赤，近墨者黑，任何人跳入共产党这个罪恶滔天、臭不可闻的屎坑里，都无法逃脱被堕落同化的宿命。在集权体制下，没有开明的思想，只有非黑即白，要么灭亡，要么同流合污。
+[直播视频1链接：https://gtv.org/video/id=600c11b5dad90a755d55ba44](https://gtv.org/video/id=600c11b5dad90a755d55ba44)
 
-汪洋在报告中还说，要“深刻理解中国共产党人的初心使命，深刻理解中国共产党是风雨来袭时中国人民最可靠的主心骨……”真是见过不要脸的，没有这样不要脸的。中国共产党还有初心使命吗？把统治者的个人利益捆绑在党的利益之中，让人民一切服从党。一切都是党的，一切都听党的，将“爹亲娘亲不如党亲”凌驾在人民之上，用他们的意志代表着人民的意志，强奸人民的意志。到现在，中共作死作到经济崩溃、民生惨烈的地步，竟然还有脸大言不惭地谈初心，简直是对初心这个佛教用语的侮辱。
+[直播视频2链接： https://gtv.org/video/id=600c2830dad90a755d55ea66](https://gtv.org/video/id=600c2830dad90a755d55ea66)
 
-中共七十多年的统治即将终结，世界对中共的态度也发生了翻天覆地的变化。疫情将导致全球追责、联合灭共。可以说中国人民现在承受的风风雨雨，责任完全来自中国共产党！中共国自称世界第二大经济体，实际却有6亿多人月收入不超过1000元。什么样的主心骨要这样奴役、盘剥人民？什么样的主心骨还要继续残害、甩锅给人民？
+上期我们谈到高科技的独裁让我们付出自由的代价，本期我们继续讨论自由的代价是永恒的警惕（杰弗逊名言）。
 
-一个国家的权力机构，不是想着如何发展社稷、提振经济、为人民大众谋取福祉、推进人类文明进程，而是赤裸裸地忙于给人民洗脑。这样的政权还有存在的必要吗？
+早在1958年，《裸体的共产党人》作者克里昂•斯葛森（前FBI探员）就披露共产党用摧毁家庭，支持环保运动毁掉私营企业，同性恋毁灭建立在宗教信仰上的文化等45项周密的计划颠覆美国（想想如今的好莱坞、NBA这些美国GDP占比第一被中共渗透的文化产业）。
 
-新闻链接：《[政协主席汪洋：强化思想政治引领列今年首要工作](https://www.zaobao.com.sg/znews/greater-china/story20210305-1128807)》
+美国大选展示的美国社会左倾，让向往自由民主的人们错谔。而善于钻人性空子蓝金黄的中共更让大规模的洗脑成为可能。
 
-【文章仅代表作者观点】
+[!\[\]()!\[\](https://spark.adobe.com/page/ewZ5CWitp1Yzg/images/581d9799-779f-4c66-8b8c-f4e499f1fd05.png?asset_id=1b5ca659-0e41-4257-9d1b-3e860c715b43&amp;img_etag=%22f1392dbb6faab81115fd6c19ad83d636%22&amp;size=1024)](https://spark.adobe.com/page/ewZ5CWitp1Yzg/images/581d9799-779f-4c66-8b8c-f4e499f1fd05.png?asset_id=1b5ca659-0e41-4257-9d1b-3e860c715b43&amp;img_etag=%22f1392dbb6faab81115fd6c19ad83d636%22&amp;size=1024)
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+中共国只讲独裁政治，不讲亲情的人间悲剧开始在美国上演。美国人丹尼斯‧普拉格在推特上感慨道，“女儿举报母亲，我从来没想过这会发生在美国”。除此之外，因为疫情，美国人接受了前所未有的警察式国家的限制——诸如推特的审查，剥夺医生和科学家的言论自由。在开放的社会里，人们的警惕性下降了。对于左派的乌托邦主义迷惑性明显缺乏认识，加上后来利益集团输血养成了今天庞大的红魔。大多数美国左派不过是列宁口中有用的白痴们。 “等待枪决是一个折磨了我一辈子的主题”（肖斯塔科维奇），布拉格在流血时左派们对此视而不见的虚伪，“文化马克思主义”都是左派的真实面目，目标是给年轻一代洗脑。
 
+在当下有一半美国人，害怕在公众场所说出自己的想法（丹尼斯‧普拉格）。刘瑜也在其著作《大学向左，草根向右》提到的2005年，美国大学被渗透实际是披上“政治正确”马甲的旧瓶新酒，目的在于对真正的言论自由实施压制。中共的1619项目，大选期间经历的暴力与混乱，黑命贵、安提法等等都已经公然践踏社会秩序。不难看出，这些都是共产党（孔子学院等大外宣）与左派内外勾结“蚕食美国”的恶果。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/ewZ5CWitp1Yzg/images/332cbd62-8f3f-4b4c-8650-df43a7920806.png?asset_id=0ea37b9c-a5dd-44ed-b747-258ace8fd6df&amp;img_etag=%22a255ebbc0f3c7b97656c388a8baf4952%22&amp;size=1024)](https://spark.adobe.com/page/ewZ5CWitp1Yzg/images/332cbd62-8f3f-4b4c-8650-df43a7920806.png?asset_id=0ea37b9c-a5dd-44ed-b747-258ace8fd6df&amp;img_etag=%22a255ebbc0f3c7b97656c388a8baf4952%22&amp;size=1024)
+
+当带血的中共带给世界虚幻时，西方多数民众并不知道墙内百姓正在水深火热之中。而低人权、低环境的贸易顺差恰恰冲击了西方经济并深刻影响到他们的生活。当被利益绑架后的西方想摆脱时，只有壮士断腕了。多数民众不关心政治已经在中共病毒的冲刷下也朝不保夕了。
+
+我们必须用行动唤醒人们，因为自由的代价是普通人民不能承受之重，并且永远警惕一切不受约束的权利。
+
+**《缪斯殿堂》之”围炉夜话”**
+
+- **主播**：一九八四
+- **嘉宾**：宁缺、BOBBY、桂花酒、健身建心
+- **导播**：扎西卓玛
+
+
+**[GTV-UK-2号台 每周六直播](https://gtv.org/user/5fb02ac8bd0d464fad04dfdb)**
+
+- 英国时间：12.00–14.00
+- 美东时间：7.00—9.00
+- 盘古时间：20.00—22.00
+
+
+*欢迎关注英国伦敦喜庄园艺术组《缪斯殿堂》节目*
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/riNUuQiRCJ8Tm/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/riNUuQiRCJ8Tm/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [请订阅 英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/ewZ5CWitp1Yzg/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/ewZ5CWitp1Yzg/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0
