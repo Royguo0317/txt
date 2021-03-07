@@ -1,33 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以色列强制疫苗注射现状，打击异见手法和中共如出一辙
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/955915/)
+## 华夏幸福的离岸债务违约引发市场担忧
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/955996/)
 
-撰稿视频：一灯一智
+#### **翻译报道：****Kal**
 
-素材：白雪
-视频来自Facebook
-以色列裔记者兼演员，非政府机构组织《以色列内幕》的发起人迈克尔.盖诺（Michael Ganoe）先生在Facebook视频中，揭露了以色列政府强制国民注射新冠疫苗的现状，控制媒体舆论手法和中共CCP如出一辙，法西斯行径令人不寒而栗。
+#### **责编：白夜**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-34.png)图片来源：Reuters
+据美国《华尔街日报》(Wall Street Journal)记者Xie Yu和Frances Yoon在2021年3月3日撰文报道，越来越多的中国房地产开发商出现离岸债务违约行为，包括中国大型国有企业，如清华紫光集团、天津物产集团等。文章重点关注近期爆雷的华夏幸福离岸债务违约事件。
 
-政府监控着对疫苗持异见的人的社交媒体账号，包括Facebook，YouTube， Instagram，WhatsApp 和Telegram等，当事人可能被封禁，删号，甚至面临刑事起诉。
+华夏幸福因没有在2月28日按期偿还到期的5.3亿美元票据，促使惠誉、穆迪等评级机构纷纷下调其评级。惠誉（Fitch Ratings）下调其评级为“限制性违约”，而穆迪（Moody’s）甚至直接降其评级至最低等级之一的Caa3。据高盛（Goldman Sachs）信贷分析师2月份的一份报告显示，该公司有98亿美元的未偿债券，其中包括46亿美元的离岸债券。该公司未能偿还到期的债券，从而对其46亿美元的全部美元债务产生了怀疑。
 
-该视频称以色列总理准备把辉瑞（Pfizer）和莫德纳（Moderna）疫苗工厂迁至以色列，使其成为该疫苗的世界配送中心。任何未注射疫苗的人将失去自由，不允许自由迁移，儿童不允许上学。而注射过疫苗的人并不能保障个人安全，出外仍然必须戴口罩，保持社交距离。政府甚至已经立法，一旦因为注射疫苗发生不良状况，个人无法起诉政府和制造商，使后者免于责任。
+澳新银行（ANZ）信贷策略主管欧文·加里摩尔（Owen Gallimore）表示：“这表明政府对让实力较弱的公司违约持严重态度” 。“这对于整体市场来说是个问题，因为那些非蓝筹股国有企业和非金融机构，政府隐性支持是一个非常重要的因素” 。加里莫尔先生说，华夏幸福将成为中国有记录以来最大的国际债务违约企业。
 
-盖诺先生还称“**个人权利来自上帝，而不是政府**”，呼吁犹太人民团结起来自救，为自由和人权而战。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Israel_vaccination_Cover.jpg)图片来自：Drew Angerer/Getty Images
-据Getter文章引述[奥地利媒体](https://tkp.at/2021/03/02/pfizer-ceo-bezeichnet-israel-als-grosses-impf-labor/)报道，“在以色列进行大规模疫苗接种时，疾病和死亡病例急剧成倍增加。在巴勒斯坦，实际上在同一个国家，案件和死亡人数都有所下降。”
+Lucror Analytics的信贷分析师Chuanyi Zhou表示，华夏幸福与地方政府有紧密的联系，并已经签订一揽子的开发项目，这导致一些市场参与者认为它类似于地方政府的融资工具，即LGFV（local-government financing vehicle）。她说：“像这样的公司也没有得到紧急财政援助，对于投资者来说是大事。目前市场投资者高度关注[房地产开发商带来](https://www.wsj.com/articles/why-2021-promises-a-fresh-wave-of-defaults-from-corporate-china-11613469603?mod=article_inline)的[风险，因其](https://www.wsj.com/articles/why-2021-promises-a-fresh-wave-of-defaults-from-corporate-china-11613469603?mod=article_inline)在中国离岸债券市场中占很大比例。目前中国许多房地产企业负债累累，该行业正面临越来越大的监管压力。银行被告知要限制房地产项目贷款，并且在当地媒体上广泛报道的“三个红线”制度，实质上就是要求财务状况最差的企业削减债务。
 
-**【短评：以色列太疯狂了，这个完全符合圣经预言，留给人类的时间真的不多了！】**
+#### **评论：**
 
-（本文翻译来自原视频，不代表Gnews立场）
+中共国治下的土地财政，尤其是近几年实施的所谓涨价去库存和棚改运动，真正目的是债务和泡沫的大转移。一方面中共国大举印钞票兑水，不断稀释老百姓财富；另一方面不断地“拆东墙补西墙”解决政府债务，并实施“国进民退”式的大甩央企债务包袱。许多类似华夏幸福的房企，其资产规模大幅扩张的背后是庞大的债务，隐藏的爆雷风险最终将由可怜的老百姓承担。中共国大幅宣传“房子不是炒的”，其真正的勾当恐怕是“房地产是用来转移债务的”。
 
-参考来源：
+[Chinese Developer’s $4.6 Billion in Offshore Debt Is in Doubt After Default](https://www.wsj.com/articles/chinese-developers-4-6-billion-in-offshore-debt-is-in-doubt-after-default-11614680954)
 
-1. [《以色列内幕》Fackbook](https://m.facebook.com/InsighttoIsrael)
-2. [Root Source网站对Michael Ganoe介绍](https://root-source.com/bridgebuilders/michael-ganoe/)
-3. [世界经济论坛和Bibi组织](https://www.weforum.org/agenda/authors/bibi-la-luz-gonzalez)
-4. [以色列大规模接种辉瑞疫苗造成死亡病例剧增的Getter文章](https://gtv.org/getter/6043d0319534a74bcaf0326f)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
 0
