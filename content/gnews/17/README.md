@@ -1,57 +1,97 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港快讯】 3月7日 范徐丽泰诡辩 两制指经济制度 建制派容海恩否认是「忠诚废物」 半百居英港人集会打气
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/956469/)
+## 汤姆‧科顿议员报告（六）——《战胜中共国：针对性脱钩与经济持久战》
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/956586/)
 
-搜集/整理：【喜马拉雅-粤语组】PO /阿恩
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image001-9.png)
-**范徐丽泰诡辩 两制指经济制度　**
+五月花写作组 ｜ 翻译：jiasen ｜ 校对：紫丁香 ｜ 编辑、美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/03/汤姆克顿V7.jpg)
+### 往期链接：
 
-范徐丽泰指，「一国两制」的「两制」意指「经济制度、金融开放的制度」，而非政治制度。她批评反对派过往不单未有互相配合，强调行政长官在立法会内，需要一些与她理今相同的支持者。对于外界有声音指，中央今次出手改革香港选举制度，未经香港广泛咨询，范徐丽泰回应指，香港政制发展，权力在全国人大及其常委会。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image003-7.png)
-**完善香港选举制度是关于“颠覆”的问题　**
+[汤姆‧科顿议员报告序言——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/918314/)
 
-韩正在人大会上把「完善」香港选举制度美化成 “ 维护国家主权、安全及发展利益，及港府管治权、民生、经济的保卫战”。行会成员叶国谦则引述韩正指，自反23条起，香港形势已而是「颠覆和反颠覆的问题」。韩正亦表态支持林郑月娥领导的特区政府的“政绩”，包括房屋计画，立法会“剪布“措施，镇压反23条、占中、2016年旺角骚乱、2019年冲击立法会及中联办、「三罢」等事件。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image005-3.png)
-**容海恩摆街站撑「爱国者治港」　否认是「忠诚废物」**
+[汤姆‧克顿议员报告（一）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928067/)
 
-早前全国港澳研究会理事田飞龙指北京需要的香港建制派「不是橡皮图章或忠诚的废物」，周末建制派群出在香港各区摆街站，收集支持「完善香港选举制度」、「爱国者治港」的市民签名，警方在现场逗留约10 分钟，仅呼吁人士保持社交距离，没有发限聚令告票。容海恩被问到会否认为自己就是田飞龙所指的「忠诚的废物」，她否认道，称是一些人的误解。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image007-3.png)
-**张建宗称完善选举制度体现中央维护国安全决心**
+[汤姆‧克顿议员报告（二）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928136/)
 
-政务司司长张建宗表示，强调改革香港选举制度因中央要迫切解决香港问题，维护“国家”安全。中央要求治港人士为爱国者，除了行政长官和行政机关的官员外，也包括立法机关的议员、司法机关的法官、地区非政权性组织的区议会议员，以及公务员，政府管治团队必定全面配合。他批评反对派议员“拉布”，若由“爱国者”出任立法会议员，可免争拗及内耗。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image009-1.jpg)
-**2长者打科兴疫苗后送ICU**
+[汤姆‧科顿议员报告（三）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/931905/)
 
-本港一周内出现两宗接种科兴疫苗后死亡个案，而过去24小时亦先后有4名市民接种科兴疫苗后不适，其中两人更要转介至深切治疗部（ICU），一人情况危殆。另有两人则在官涌体育馆社区疫苗接种中心接种科兴疫苗后不适送院，两人目前情况稳定。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image011-1.jpg)
-**47民主派狱中盼市民书信**
+[汤姆‧科顿议员报告（四）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/935835/)
 
-因参加「35+初选」被控「串谋颠覆国家政权罪」的47名民主派人士，经过漫长审讯后，至今只有4人获准保释。墙内日子难捱，民主派呼吁市民化身「写信师」，用文字为失去自由的民主派人士打气。社民连指，面对未知归期何时的狱中生活，被还柙人士希望收到大家的书作为精神食粮；社民连吴文远表示，香港人的信件对于被还柙人士十分重要，可以让他们知道外面有人分担他们的郁结。目前多位因被选被囚者也有各自所属团体及组织代为收信；市民可将信件寄至囚权组织「石墙花」，由该组织代为分发。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image013.png)
-**小店免费为羁押者配「全胶」眼镜　店主慨叹：再见或已是中年人**
+[汤姆‧科顿议员报告（五）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/937759/)
 
-必须跟从惩教署指定的款式，从牌子、包装、款式以至容量都有严格规定。位于西九龙中心的眼镜店「视点护眼」最近宣布，但凡还押或在囚的「手足」，家属或亲友可带同其正使用的眼镜或惩教署发出的度数纸，到眼镜店免费配眼镜。预计有机会被还押的人士，亦可亲身到店验配眼镜，费用全免。眼镜店老板Ben哽咽着，难再说下去，：「有位手足前两天来配眼镜，这是他在进班房前的最后一天，那天过后不知道何时才能自由，他在里面的漫长日子以年计算，他现在只是一个青年，可能下次再见他已经人到中年了……
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image015.jpg)
-**美国谴责北京改变香港选举制度「攻击民主体制」**
+* * *
 
-美国国务院发言人内德·普莱斯（Ned Price）在新闻发布会上谴责北京「对香港自治、香港自由和民主进程的直接攻击」。他说：「如果实施这些措施，将极大破坏香港的民主体制」。他表示，如果北京当局落实这些政策，将与基本法列明要朝向普选的方向背道而驰。普莱斯还说，华盛顿正与盟友合作以「激发采取集体行动」，反对中国对新疆穆斯林少数民族的人权侵犯和对香港的「镇压 」。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image017.png)
-**写信声援 市民︰他们帮60万香港人顶 顶住中共**
+## **CHINA’S RELIANCE ON THE UNITED STATES **
 
-民间电台昨在铜锣湾记利佐治街摆街站，希望市民关注47位民主派因被控违反国安法被收押。不少市民到街站向47人写慰问信，希望略尽绵力为他们打气。有市民哽咽指，47人是代在初选中有投票的60多万人受罪，对政权折磨这47人感到十分心痛。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image019.png)
-**半百居英港人集会打气**
+## **中共国对美国的依赖**
 
-英国各地均有人发起声援香港47人行动，继日前的伦敦、曼彻斯特和雷丁三城，昨日中午在诺定咸（Nottingham）市中心亦有港人发起集会，近50人出席，历时近一小时，以向香港传递来自英国的声援及关注。集会在Brian Clough Statue前举行除「光时」旗外，亦举起各式各样手写的标语，包括「Release All Political Prisoners」、「Democracy is not a crime」、「Free Hong Kong」等，集会亦有播放《愿荣光归香港》，众人偶然高喊「光复香港时代革命」等口号。
+While the United States relies on China in key areas, the knife cuts both ways; one country’s point  of exposure is another’s point of leverage. Indeed, China’s fortunes are tied to the United States  more closely than ours are to China, a fact that American strategists must keep in mind.
 
-资料来源：
+尽管美国在关键领域依赖中共国，但这是一把双刃剑。 一个国家的曝光点恰是另一个国家的制衡点。 实际上，中共国的命运与美国的关联，远比我们的命运与中共国的关联更紧密，这是美国战略家必须牢记的事实。
 
-[立场新闻（一）](https://www.thestandnews.com/politics/%E8%8C%83%E5%BE%90%E9%BA%97%E6%B3%B0-%E4%B8%80%E5%9C%8B%E5%85%A9%E5%88%B6-%E5%85%A9%E5%88%B6-%E6%84%8F%E6%8C%87%E7%B6%93%E6%BF%9F%E5%88%B6%E5%BA%A6%E9%9D%9E%E6%94%BF%E6%B2%BB%E5%88%B6%E5%BA%A6-%E6%9C%AC%E6%B8%AF%E7%8F%BE%E6%99%82%E5%81%8F%E9%9B%A2%E5%9F%BA%E6%9C%AC%E6%B3%95%E5%8E%9F%E6%84%8F/)、[立场新闻（二](https://www.thestandnews.com/politics/%E6%8E%A8%E5%80%92%E9%81%B8%E8%88%89-%E9%9F%93%E6%AD%A3-%E5%AE%8C%E5%96%84%E9%A6%99%E6%B8%AF%E9%81%B8%E8%88%89%E5%88%B6%E5%BA%A6%E6%98%AF%E9%A1%9B%E8%A6%86%E8%88%87%E5%8F%8D%E9%A1%9B%E8%A6%86%E5%95%8F%E9%A1%8C-%E9%9D%9E%E6%B0%91%E4%B8%BB%E4%B8%8D%E6%B0%91%E4%B8%BB/)）、[立场新闻（三）](https://www.thestandnews.com/politics/%E5%AE%B9%E6%B5%B7%E6%81%A9%E6%93%BA%E8%A1%97%E7%AB%99%E6%92%90-%E6%84%9B%E5%9C%8B%E8%80%85%E6%B2%BB%E6%B8%AF-%E5%90%A6%E8%AA%8D%E6%98%AF-%E5%BF%A0%E8%AA%A0%E5%BB%A2%E7%89%A9-%E5%8D%81%E5%A4%9A%E4%BA%BA%E8%81%9A%E9%9B%86%E8%AD%A6%E6%96%B9%E7%84%A1%E5%9F%B7%E6%B3%95/)、[立场新闻（四）](https://www.thestandnews.com/politics/%E6%8E%A8%E5%80%92%E9%81%B8%E8%88%89-%E5%BC%B5%E5%BB%BA%E5%AE%97-%E4%B8%AD%E5%A4%AE%E5%BE%9E%E5%9C%8B%E5%AE%B6%E5%B1%A4%E9%9D%A2%E7%82%BA%E6%B8%AF%E8%A7%A3%E6%B1%BA%E5%95%8F%E9%A1%8C-%E5%AE%8C%E5%96%84%E9%81%B8%E8%88%89%E5%88%B6%E5%BA%A6%E9%AB%94%E7%8F%BE%E7%B6%AD%E8%AD%B7%E5%9C%8B%E5%AE%B6%E5%AE%89%E5%85%A8%E6%B1%BA%E5%BF%83/)、 [苹果日报（五）](https://hk.appledaily.com/local/20210307/KQ3GKHEKIZBKHODGGH4OBV363A/)、[苹果日报（六）](https://hk.appledaily.com/local/20210307/KZXVYKWOABCIVG2ISSKSC57MAI/)、
+China relies on the United States to access high-end research and technology. It embeds agents in  U.S. research and development institutions in order to acquire early-stage research at minimal cost  and risk. Chinese firms then apply this research, scale it quickly, and compete with U.S. firms  in the global marketplace on unfair terms. Qiaohai Shu of the China Academy of Social Sciences  (CASS) explained the logic behind this strategy when he wrote, “Innovation is time-consuming,  laborious and risky…but when it comes to *applying*technology, the opportunity cost to leap ahead  is low, the chances of success are high.”
 
-[众新闻（七）](https://www.hkcnews.com/article/38839/%E9%82%84%E6%9F%99-%E7%9C%BC%E9%8F%A1%E8%88%96-38839/%E9%82%84%E6%9F%99)、[BBC 中文（八）](https://www.bbc.com/zhongwen/trad/chinese-news-56303862)、[苹果日报（九）](https://hk.appledaily.com/local/20210307/D7QDKVT4VZGN3HBYRU2YHYA6LY/)、[苹果日报（十）](https://hk.appledaily.com/local/20210307/BJSFP4KEBNDI3JUGMF6X6PE5ME/https:/hk.appledaily.com/local/20210307/BJSFP4KEBNDI3JUGMF6X6PE5ME/)、
+中共国依靠美国获得高端研究和技术。它将间谍隐藏在美国研发机构中，以便以最低成本和风险获得早期研究成果。然后，中共国公司就应用这些研究成果，迅速扩大规模，在全球市场与美国公司进行不公平竞争。中共国社会科学院（CASS）的乔海曙解释了该策略背后的逻辑，他写道：“创新既费时、费力，又有风险……但是，在应用技术方面，实现超越的机会成本很低， 而成功的几率却很高。
 
-审核：【喜马拉雅粤语组】 卡西欧 / 上传：文粤
+This strategy helps explain why China allocates only six percent of its R&D budget to basic  research, while the United States allocates 17 percent.It also sheds light on why Beijing spends  a whopping 84 percent of its R&D funds on experimental development while the United States  spends only 63 percent.
+
+这一策略有助于解释为什么中共国仅将其研发预算的6％分配给基础研究，而美国却达到17％。这也揭示了为什么北京将高达84%的研发资金用于实验开发，而美国只花费63%。
+
+Access to American research and innovation is therefore a central plank in China’s long-term  economic, military, and political planning. Chinese strategists fret, with good reason, about a  “high-tech blockade” that could slow the country’s economic development.
+
+因此，获得美国研究和创新成果是中共国长期经济，军事和政治规划的核心内容。中共国的战略家们有充分理由担心“高科技封锁”会减缓中共国的经济发展。
+
+Washington could confound and disrupt the CCP’s economic strategy by ending this parasitic  relationship. If China is denied access to U.S. research and high-end technology, such as  semiconductors, it would have to make additional investments in basic research. These investments would be funded by a smaller economy with a more burdensome debt load—  China’s total domestic debt was an estimated 335 percent of GDP in late 2020. Beijing  would have to make these investments while simultaneously maintaining its proficiency in  experimental development, rapid scaling, and production. This would tax China more severely  than the status quo.
+
+通过终止这种寄生关系，华盛顿可以打乱并挫败中共的经济战略。如果中共国被剥夺了获得美国研究成果和半导体等高端技术的机会，它将不得不在基础研究上进行额外投资。这些投资或将由债务负担更加沉重、规模更小的经济体来承担——到2020年末，中共国的国内债务总额预计占GDP的335％。中共国将不得不在保持其实验开发，快速扩张，和生产方面熟练程度的同时，进行这些投资。这会使中共国的内耗比现有状况更为严峻。
+
+Foreign investment is another key point of reliance in the U.S.-Chinese economic  relationship. U.S. real estate and equities are a safe harbor for Chinese companies and elites,  although strict controls imposed by the CCP in 2017 to stabilize the balance of payments  have curtailed capital flight.
+
+外国投资是美中经济关系的另一关键依赖点。尽管中共在2017年为稳定国际收支平衡而实施了严格的管制，遏制了资本外逃，美国的房地产和股票市场仍是中共国公司和精英阶层的避风港。
+
+American investment, meanwhile, plays a critical role in China’s economic rise. This  investment lends legitimacy to the CCP, builds its industrial and technological capabilities,  and creates a political constituency within the United States committed to preventing  confrontation with the CCP. Reducing this investment would do material harm to China’s  economy, international standing, and, potentially, the CCP itself.
+
+同时，美国的投资对中共国经济的崛起起着至关重要的作用。这样的投资导致中共具有了合法性，增强了它的工业和技术实力，并在美国内部建立了一个政治团体，致力于防止与中共对抗。减少这样的投资将对中共国的经济、其国际地位，乃至中共本身造成切实打击。
+
+Another related point of reliance is China’s ability to list companies on U.S. stock exchanges,  despite its refusal to comply with the Security and Exchange Commission’s auditing  standards. This refusal spurred Congress to pass legislation, co-sponsored by Senator Cotton  and signed into law late last year, that delists Chinese and Hong Kong-based companies from  U.S. stock exchanges if they fail to comply with audits by the Public Company Accounting  Oversight Board (PCAOB). The combined market capitalization of the more than 250  Chinese and Hong Kong firms listed on U.S. exchanges is over $2 trillion.
+
+另一个相关依赖点是，尽管中共国拒绝遵守美国证券交易委员会（SEC）的审计标准，但它仍具有使其公司在美国证券交易所上市的能力。这种拒绝促使国会通过了一项由参议员科顿共同发起，并于去年年底签署的立法，该法规定如果中共国和香港公司不遵守上市公司会计监督委员会的（PCAOB）审计程序，就会被退市。在美国证券交易所上市的250多家中共国和香港公司的总市值超过2万亿美元。
+
+Meanwhile, China’s access to the U.S. dollar and dollar-denominated trading system is another  point of leverage for the United States. Because most dollar transactions clear through the  American financial system, the United States has the power to block, hold, or otherwise  intervene in many Chinese transactions.
+
+同时，中共国进入美元和以美元计价的贸易体系是美国的另一个制衡点。因为大多数美元交易都是通过美国金融系统进行清算的，所以美国有能力阻止，控制或以其他方式干预许多中共的交易。
+
+China also depends on access to the U.S. market, which received 19 percent of China’s exports  in 2018. The U.S. export market is an irreplaceable outlet for goods generated by China’s  oversupplied economy. Though China has made efforts to accelerate domestic innovation and  reduce its reliance on exports, it is a long way from matching the strength of U.S. innovation  or becoming as self-contained as the American economy. The large trade surplus China runs  with the United States is thus both a sign of China’s remarkable productive capacity and a  potential weakness the United States can exploit.
+
+中共国还依赖美国市场的准入，美国市场在2018年接收中共国出口总量的19％。美国出口市场是中共国经济供过于求所生产的商品不可替代的出口。尽管中共国已经努力加快国内创新，减少对出口的依赖，但距离与美国创新实力相匹配，或者像美国一样经济自成一体还相去甚远。因此，中共国对美国的巨额贸易顺差既是中共国显著生产能力的标志，又是美国可以利用的潜在弱点。
+
+This dynamic has important political implications because slower growth has the potential  to cause internal discontent. Chinese citizens willing to accept an increasingly heavy-handed  authoritarian state in exchange for a higher standard of living may think twice if growth slows  or stagnates. As a result, the CCP fears that declines in exports, growth, and employment could  pose political liabilities. Other domestic problems would intensify pressure on the regime. These  problems include restrictions on home ownership, the absence of a humane welfare state, the inability of many Chinese men to find wives, and a lack of children to care for the elderly.The 90-million-member CCP may find it increasingly difficult to govern China’s 1.4 billion  people if the economy stagnates.
+
+这种动态具有重要的政治意义，因为经济增长放缓有可能引起内部的不满。如果增长放缓或停滞，愿意接受日益严历的专制统治以换取更高生活水平的中共国公民可能会三思而后行。因此，中共担心出口、增长和就业的下降会带来政治后果。其它国内问题将加剧对该独裁政权的压力。 这些问题包括对房屋所有权的限制，人道福利缺失，许多中国男人找不到妻子，以及缺少子女照顾老人。如果经济停滞不前，拥有九千万党员的中共可能会发现越来越难以统治中国的14亿人口。
+
+U.S. policymakers must recognize the immense leverage they have over China. Having grown  used to China wielding its domestic market as a weapon, many in the United States seem to have  forgotten that U.S. market access is one of the most valuable prizes in the world, particularly for  the world’s largest exporter. Access to the U.S. market may therefore be the single most powerful  point of leverage in the entire competition, provided the United States can create resilient supply  chains for essential goods that do not depend on Chinese manufacturing.
+
+美国决策者必须认识到他们对中共国的巨大影响力。由于习惯了中共国将其国内市场作为武器，许多美国人似乎已经忘记了美国的市场准入是世界上最有价值的奖赏之一，尤其是对世界上最大的出口国而言。因此，美国的市场准入可能是整个竞争中最有力的一个制衡点，使美国能够为其必需商品建立弹性供应链，而不依赖中共制造业。
+
+But time may be running short to exploit this opportunity. China’s economy is not as export oriented as it once was. Exports accounted for 36 percent of China’s GDP in 2006, but only 18  percent of its GDP in 2019. America’s window of opportunity to pressure China by restricting  access to its market is closing.
+
+但是，利用这一机会的时间可能不多了。中共国经济不再像以前那样以出口为导向。2006年，出口占中共国GDP的36％，但到2019年，仅占其GDP的18％。美国通过限制其市场准入对中共国施压的机会窗口正在关闭。
+
+（未完待续）
+
+* * *
+
+### 原文链接：
+
+[Beat China: Targeted Decoupling and the Economic Long War](https://www.cotton.senate.gov/imo/media/doc/210216_1700_China%20Report_FINAL.pdf)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
 0

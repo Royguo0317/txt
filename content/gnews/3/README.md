@@ -1,66 +1,89 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全国政协委员提议建立国家级的生物特征数据库
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/956642/)
+## 汤姆‧科顿议员报告（八）——《战胜中共国：针对性脱钩与经济持久战》
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/956735/)
 
-新闻来源：BREITBART《布赖特巴特》| 作者：JOHN HAYWARD | 发布时间：2021年3月3日
+五月花写作组 ｜ 翻译：文萧 ｜ 校对：紫丁香 ｜ 编辑、美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/03/汤姆克顿V9.jpg)
+### 往期链接：
 
-翻译/简评：乡间小路 | 校对/审核：万人往 | Page：拱卒
+[汤姆‧科顿议员报告序言——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/918314/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/620e43a9-eecd-477f-b890-40d8d774f6c8.jpg?asset_id=b09d1b36-9ef8-4d2c-8492-b3a63b575b30&amp;img_etag=%22d8a62948027950eff3ddbbec4a0cbd4b%22&amp;size=1024)](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/620e43a9-eecd-477f-b890-40d8d774f6c8.jpg?asset_id=b09d1b36-9ef8-4d2c-8492-b3a63b575b30&amp;img_etag=%22d8a62948027950eff3ddbbec4a0cbd4b%22&amp;size=1024)
+[汤姆‧克顿议员报告（一）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928067/)
 
-**简评：**
+[汤姆‧克顿议员报告（二）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928136/)
 
-中共想要搜集存储个人人脸和指纹信息，建立一个国家数据库，以增强对国人的监控。生物特征监控距我们的生活有多远？这里提供两个数字——2023年，360亿美元。具体说来就是，到2023年中共新兴“情感辨别行业”的收入，预计将达360亿美元。在缺乏法律约束的中共国，中共对个人生物特征信息的滥用程度由此可见一般。中共对中国人的监控措施正来势汹涌，个人权利势必受到越来越多的侵犯。
+[汤姆‧科顿议员报告（三）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/931905/)
 
-基于生物特征监控的技术能做什么？其中之一就是判断你是否“正能量”。如果你的情感与中共宣传的意识形态合拍，那就是“正能量”。如果任凭中共不负责任地发展下去，也许有一天我们会发现，喜怒哀乐都由不得我们自己了。
+[汤姆‧科顿议员报告（四）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/935835/)
 
-**原文翻译：**
+[汤姆‧科顿议员报告（五）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/937759/)
 
-## 中共国官方想要建立国家人脸和指纹数据库
+[汤姆‧科顿议员报告（六）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/956586/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/39abd4bf-cc76-4b1a-b6ff-0be09d001574.jpg?asset_id=957f8aa8-e0d5-4e08-a9e9-d32d331f3faf&amp;img_etag=%22f381267a14b5668dd79b9d31b66d06da%22&amp;size=2560)](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/39abd4bf-cc76-4b1a-b6ff-0be09d001574.jpg?asset_id=957f8aa8-e0d5-4e08-a9e9-d32d331f3faf&amp;img_etag=%22f381267a14b5668dd79b9d31b66d06da%22&amp;size=1024)
+[汤姆‧科顿议员报告（七）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/956649/)
 
-中共国资深政策顾问谈剑锋周二呼吁建立一个包含人脸和指纹识别数据的国家生物特征数据库，以保护中共国的“国家安全”和“信息安全”。
+* * *
 
-中共国官媒《环球时报》引用谈的话说，生物特征数据必须积极地采集和保护。因为在一个受到普遍监视的共产主义国家，它对于人们的生活将会变得愈发必要。而且，一旦发生丢失、损坏或被盗，生物特征数据极难替换。
+## **PRESERVE U.S. DOLLAR DOMINANCE**
 
-谈剑锋是中共国政协全国委员会的一名委员，他说，数据安全已经成为一个事关国家安全的重要议题，一些关键数据像个人生物特征数据（人脸、指纹和DNA），它们拥有独特的、不可更新的特征，一旦被盗则不能恢复或修改，进而带来巨大的、不可逆的风险。
+## **保持美国的美元优势**
 
-谈还是上海市信息安全行业协会的会长，他建议加快相关法律法规的建设，严格规范和实施关键数据的收集、存储和使用。
+The dollar trading system allows the United States to maintain its global financial preeminence and weaken its adversaries through non-military means. Preserving this pillar of American power therefore is a key element of competing with China.
 
-他还建议实施数据分类和管理，开列一个禁止清单以阻止在互联网上使用像生物和制药等关键领域的数据。
+美元贸易体系使美国能够保持其全球金融的主导地位，并通过非军事手段削弱对手。因此，维护美国力量的这一支柱是与中国竞争的关键要素。
 
-英国科技公司Comparitech今年1月份发布的一项研究发现，中共国是“滥用生物特征数据方面最恶劣的罪犯”。
+The dollar is the undisputed king of global exchange, much to the CCP’s chagrin. Dollars accounted for 61 percent of known central bank foreign exchange reserves in the second quarter of 2020.132 By contrast, the Euro accounted for 20 percent of official reserves. China’s Renminbi barely cracked two percent.133 The dollar likewise is the currency of choice for virtually every kind of exchange across borders, from oil sales to debt contracts.
 
-[!\[\]()!\[\](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/bbbb2aef-eada-4886-b056-310e273f6189.jpg?asset_id=01dff0a3-68f4-4481-9ff8-b794eabe97f0&amp;img_etag=%22ce483d2ab192d86f86ed603dd60214c2%22&amp;size=1024)](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/bbbb2aef-eada-4886-b056-310e273f6189.jpg?asset_id=01dff0a3-68f4-4481-9ff8-b794eabe97f0&amp;img_etag=%22ce483d2ab192d86f86ed603dd60214c2%22&amp;size=1024)
+美元是无可争议的全球货币兑换之王，这令中共十分懊恼。2020年第二季度，美元占已知央行外汇储备的61％。相比之下，欧元占官方储备的20％。中国的人民币勉强突破2％。同样地，美元也是几乎所有类型跨境交易的首选货币，从石油销售到债务合同。
 
-中共利用指纹和人脸识别技术实施的广大应用包括：无人机，它们去年曾飞越中共国城市，使用人脸识别来锁定那些在新冠病毒疫情期间违反封锁禁令的人；人脸系统，它们能够辨认出佩戴口罩的人；摄像头，它们能识别每一个使用公共交通系统的人，能够识别和羞辱那些乱穿马路的人和偷公厕厕纸的人。
+The ubiquity of the dollar allows the United States to weaken its enemies at relatively low cost. With the stroke of a pen, the United States can inflict tremendous damage, often equal to what otherwise could be achieved only through military operations—but without violence. For example,  Iran’s economy shrank 5.4 percent in 2018, the year the Trump administration reimposed sanctions,  and shrank again by 6.5 percent in 2019.134 The Iranian Rial, which traded at roughly 40,000-to one against the dollar on the eve of those sanctions, traded at over 300,000-to-one in October  2020.135,136 U.S. sanctions have also helped weaken the regimes of Bashar al-Assad in Syria and Vladimir Putin in Russia.137 Sanctions dampened Russia’s economic growth by as much as six percent from 2014-2018.138
 
-为了评估工人的生产效率，中共国的公司已经安装了可以监视工人脑电波的系统。为了防止脑电波监视失灵，中共国正在研发“智能垫”，它可以监视员工的另一端。
+美元的普遍存在使美国能够以相对较低的成本削弱敌人。美国只要动动笔，就能给对手造成巨大的损失，往往相当于只有通过军事行动才能达到的效果——但没有暴力。例如，在川普政府再次实施制裁的2018年，伊朗经济萎缩了5.4%，2019年再度萎缩了6.5%。伊朗里亚尔在制裁前夕对美元的汇率为4万比1，而2020年10月，这一汇率超过了30万比1。美国的制裁也帮助削弱了叙利亚的巴沙尔·阿萨德和俄罗斯的弗拉基米尔·普京政权。2014-2018年，制裁使俄罗斯的经济增长受到抑制，降低了6％。
 
-尽管民意调查显示90%的中国城市居民对这种监视感到不适，但致力于全面生物特征监视的不懈努力仍在快速向前推进。谈剑锋呼吁建立一个受到严密保护的“国家数据库”，这正是中共国专制政府的计划的一部分，目的是让市民们安心，觉得他们的生物信息将得到保护。
+Still, every major sanctions designation by the U.S. Treasury Department’s Office of Foreign Assets Control (OFAC) puts the U.S. dollar system at incrementally greater risk by making the dollar less appealing as a reserve currency and less reliable as a medium of exchange. This tension between the power of sanctions and the threat such sanctions pose to the dollar must be managed carefully.
 
-“这里的中国普通老百姓对这项技术感到不满但别无选择。如果警察说一个社区里必须要有摄像头，那人们就不得不接受摄像头在日常生活中的存在。那样的要求总是有的，我们到这里就是完成这样的要求。” 深圳太古计算机系统有限公司的一位代表耸耸肩说到。据英国《卫报》周三报道，这是一家生产情感识别技术的公司。
+然而，美国财政部外国资产控制办公室（OFAC）指定的每项重大制裁措施，都使美元体系面临更大的风险，使美元作为储备货币的吸引力和作为交易媒介的可靠性降低。制裁力度与制裁对美元构成的潜在威胁之间的这种紧张关系必须谨慎处理。
 
-《卫报》指出情感辨别行业正“在中共国蓬勃发展”，预计2023年收益达360亿美元，因为独裁者习近平和其他高层领导已经强调“创造正能量是意识形态运动的一部分，这场运动鼓励某些类型的表达，限制其它表达。”
+As Washington activates the Treasury Department against Chinese entities that violate U.S. law or threaten U.S. national security interests, it must simultaneously implement policies to modernize the dollar and make it more attractive to legitimate economic actors.
 
-太古公司吹嘘说他们的技术也可以用来“在监狱预测犯人的危险行为，在警察检查站发觉潜在的罪犯，在学校发现问题学生，在养老院发觉出现痴呆症状的老人。”从疗养院到学校，情感辨别系统无处不在。
+华盛顿在启动财政部打击违反美国法律或威胁美国国家安全利益的中国实体时，必须同时实施使美元现代化的策略，并使其对合法的经济行为体更具吸引力。
 
-批评家说，监视技术的最新发展是基于生理学的骗术，它几乎没有保护隐私，歧视在中共国受压迫的种族技术，并且在预测突发暴力方面没有可论证的效果。
+## **SLOW CHINA’S GROWTH **
 
-人权数字分析员维杜西·玛达告诉《卫报》：“我认为很多生物特征监视跟恐吓、审查紧密相关，我推测［情感辨别］就是这样的一个例子。”
+## **减缓中国的增长**
 
-[原文链接](https://www.breitbart.com/national-security/2021/03/03/chinese-officials-want-national-data-bank-faces-fingerprints/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+breitbart+%28Breitbart+News%29)
+The CCP’s ambitious political goals depend on China’s ability to become wealthier than the United States. It may have a finite window in which to achieve this goal, given impending demographic pressures.139 Beginning in 2030, the Chinese economy will lose an estimated five to ten million working-age citizens each year. By 2050, the Chinese working-age population is expected to have shrunk by 180 million people, slightly less than the entire U.S. working-age population today.140 Slower growth would force the CCP to make difficult choices about where to direct its resources.  Should it invest in anti-ship missiles aimed at U.S. warships in the South China Sea, long-range nuclear weapons, national champions like Huawei, security cameras and secret police at home, or other priorities? A China with slower growth means a CCP that has a harder time choosing “all of the above.” Resource constraints could bind the CCP just as it has to contend with a shrinking workforce and rapidly aging population, which has grown accustomed to constant improvements in quality of life.
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+中共雄心勃勃的政治目标能否实现取决于其是否有能力变得比美国更富有。考虑到即将到来的人口压力，中国可能只有有限的窗口来实现这一目标。从2030年开始，中国经济每年将失去约500万至1000万处于就业年龄的公民。到2050年，中国的适龄工作人口预计减少1.8亿，略低于目前美国整个劳动人口的总量。增长放缓将迫使中共在资源分配方面做出艰难的选择。它应该投资于针对南海美国军舰的反舰导弹、远程核武器、华为这样的国家冠军企业、国内的安全监控摄像头和秘密警察，还是其它优先事项呢？中国经济增速放缓意味着中共很难选择“以上所有”。资源限制可能会束缚住中共，就像它必须应对不断萎缩的劳动力和人口迅速老龄化一样，因为中共已习惯了生活质量的不断提高。
 
+Additionally, slower growth likely would weaken public support for the CCP, which justifies its heavy-handed authoritarianism as the price for strong economic growth. Without consistent growth, it’s not clear how many of China’s 1.3 billion non-Party members would accept the CCP’s tactics—or even its rule.
 
-编辑：【英国伦敦喜庄园编辑部】
+此外，增长放缓很可能会削弱大众对中共的支持，并证明其暴虐的专制主义是强劲经济增长的代价。如果没有持续的增长，不清楚中国13亿非党员中有多少人会接受中共的政策——甚至统治。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+Slowing China’s growth is not without risk. Such a policy could compel Beijing to drastic measures abroad to distract from problems at home or out of recognition that its strategic window of opportunity is closing. Alternatively, slower growth could make the CCP more risk-averse. China’s boldness over the past three decades has increased with its strength. Only in the last decade, near the height of China’s power, has the CCP decided to stop hiding its capabilities and intentions and compete in the open.
+
+放缓中国的增长并非没有风险。这样的政策可能会迫使北京在外部采取极端措施，以转移对国内问题的注意力，或是出于对其战略窗口正在关闭的认知。另外，增长放缓可能会使CCP更趋于规避风险。在过去的三十年中，中共的胆量随着实力的增强而增加。直到最近十年，在中国实力接近巅峰的时候，中共才决定停止隐藏自己的能力和意图，并公开竞争。
+
+However the CCP reacts, if China is placed on a slower growth trajectory, it will undeniably have fewer resources to control its citizens, intimidate its neighbors, and threaten the United States and its allies.
+
+无论中共如何反应，如果中国处于较慢的增长轨道，无可否认地，它将拥有更少的资源来控制它的公民，恐吓临国、威胁美国及其盟国。
+
+（未完待续）
+
+* * *
+
+### 原文链接：
+
+[Beat China: Targeted Decoupling and the Economic Long War](https://www.cotton.senate.gov/imo/media/doc/210216_1700_China%20Report_FINAL.pdf)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
 0

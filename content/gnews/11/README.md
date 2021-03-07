@@ -1,106 +1,99 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国将沿第一岛链建精确打击导弹网络遏制中共国地区扩张
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/956539/)
+## 汤姆‧科顿议员报告（七）——《战胜中共国：针对性脱钩与经济持久战》
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/956649/)
 
-新闻来源：《日经亚洲》| 作者：Ryo Namamura | 发布时间：2021年3月5日
+五月花写作组 ｜ 翻译：文萧 ｜ 校对：虹陵 ｜ 编辑、美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/03/汤姆克顿V7.jpg)
+### 往期链接：
 
-翻译/简评：helloworld | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii
+[汤姆‧科顿议员报告序言——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/918314/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CekJmz97IwCkG/images/6fd8096e-d344-40f6-965b-dc62b6f8b704.jpg?asset_id=7eb50ab9-26b9-4d70-9e31-c966d9c79c26&amp;img_etag=%221a74ca03f9a0a758aceda692096864c4%22&amp;size=1024)](https://spark.adobe.com/page/CekJmz97IwCkG/images/6fd8096e-d344-40f6-965b-dc62b6f8b704.jpg?asset_id=7eb50ab9-26b9-4d70-9e31-c966d9c79c26&amp;img_etag=%221a74ca03f9a0a758aceda692096864c4%22&amp;size=1024)
+[汤姆‧克顿议员报告（一）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928067/)
 
-***简评：***
+[汤姆‧克顿议员报告（二）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928136/)
 
-虽然面临若干现实难题和利益纠葛，美国正尝试在未来推进加强第一岛链的导弹网络，从而尝试遏制中共国可能改变地区平衡的扩张企图。
+[汤姆‧科顿议员报告（三）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/931905/)
 
-很难说这种威慑是否能奏效。在详实的证据之下，美国及盟国正在转向，认识到了中共的威胁，并尝试用防御的姿态应对中共的扩张态势。诚然，美国的强大军力，以及社会正在逐渐形成的脱钩共识，在长期内必将遏制住中共的威胁，并使中共内部矛盾无处转移，最终导致崩溃。但中共的独裁制度已在国内彻底消灭反对声音，不可能选择任何的退缩等自毁总加速师形象的道路，很可能会抢先在美国以及日本等盟国还在协商处理经济矛盾之时快速对台湾、新加坡、日本等国家以及南海地区出手，如困兽犹斗般寻找转机。
+[汤姆‧科顿议员报告（四）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/935835/)
 
-中共的加速疯狂已无回头之路，任何的绥靖和认为其会再次缓和的斡旋企图只能是幻想。香港和《中英联合声明》已成为了第一个牺牲品，犹如二战时期对德国纳粹绥靖历史重现，国际社会并未强力阻止，这只会进一步加剧中共的疯狂，未来的血雨腥风已隐约可见。爆料革命现在将中共未来的行为和对世界造成的威胁，以及未来将会面临的后果告知天下，只希望内部人士能够彻底醒悟，无论是拖延、枪口抬高还是调转枪头；国内有能力者用脚投票，坚决与红魔划清界限，或者离开这个是非之地，救人救己；国际社会能够早日警醒，摒弃幻想，彻底灭杀红魔。
+[汤姆‧科顿议员报告（五）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/937759/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CekJmz97IwCkG/images/b6320b7e-1dae-4aa0-8ef1-6e4a66686620.jpg?asset_id=5b47b496-78ec-4912-8533-5fca1913e18f&amp;img_etag=%2211128e3f375b7f40ed20c022e9b1587a%22&amp;size=1024)](https://spark.adobe.com/page/CekJmz97IwCkG/images/b6320b7e-1dae-4aa0-8ef1-6e4a66686620.jpg?asset_id=5b47b496-78ec-4912-8533-5fca1913e18f&amp;img_etag=%2211128e3f375b7f40ed20c022e9b1587a%22&amp;size=1024)
+[汤姆‧科顿议员报告（六）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/956586/)
 
-***原文翻译：***
+* * *
 
-#### 美国将沿第一岛链构建反中共国导弹网络
+## **SECTION TWO: Targeted Decoupling **
 
-独家：印太司令部要求2022财年新增一倍支出
+## **第二节：有针对性的脱钩**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CekJmz97IwCkG/images/2da915cf-2634-499b-9a0a-5c3489c40116.png?asset_id=12e77df6-18ef-41d5-bd00-12309b39ed91&amp;img_etag=%22a4df676b42d9acead48b72e3dfdf060d%22&amp;size=1024)](https://spark.adobe.com/page/CekJmz97IwCkG/images/2da915cf-2634-499b-9a0a-5c3489c40116.png?asset_id=12e77df6-18ef-41d5-bd00-12309b39ed91&amp;img_etag=%22a4df676b42d9acead48b72e3dfdf060d%22&amp;size=1024)独立型濒海战斗舰“加布里埃尔·吉福德”号(USS Gabrielle Giffords)在菲律宾海的太平洋格里芬(Pacific Griffin)演习中发射舰载攻击导弹(NSM)。这是一种远程精确打击武器，旨在发现并摧毁敌舰。（照片由美国海军提供）
+The United States has entered a phase of open and mutual antagonism with China, yet the failed dream of engagement haunts our economic policy. We must identify and disentangle strategically important economic sectors while thwarting China’s parasitic approach to global trade and commerce.
 
-华盛顿——日经社获悉，美国将加强对中共国的常规威慑能力，在被称为第一岛链的地区建立精确打击导弹网络。这是拟定中的未来6年印太地区274亿美元开支的一部分。
+美国与中共国已经进入了开放和相互对抗的阶段，然而合作梦想的失败还困扰着我们的经济政策。我们必须确定和理顺具有战略意义的重要经济部门，同时制止中共国对全球贸易和商业的寄生方式。
 
-它们构成了美国印太司令部向国会提交的“太平洋威慑倡议”的核心提案。日经社也对该提案进行了评论。
+Such a task requires a focus on broad areas of concern such as trade and investment, higher education, entertainment, and advanced technologies and essential supplies for which reliance on China is unacceptable. This section examines a selection of these technologies and essential supplies in greater detail, including semiconductors, telecommunications, rare-earth elements and critical minerals, medical supplies and equipment, and artificial intelligence and quantum computing.
 
-该文件说：“对美国未来最大的危险仍然是传统威胁的侵蚀。如果没有有效和令人信服的常规威慑力，中共国就会有恃无恐地在该地区和全球范围内采取行动，取代美国的利益。随着印太地区的军事平衡变得越来越不利，美国积累了额外的风险，可能会让对手有恃无恐地试图单方面改变现状。”
+这项任务需要关注广泛领域，例如贸易和投资、高等教育、娱乐、先进技术和基本用品，这些领域对中共国的依赖是不可接受的。本节更详细地研究了这些技术和基本供应品的选择，包括半导体，电信，稀土元素和关键矿产，医疗用品和设备，以及人工智能和量子计算。
 
-具体而言，它要求“在第一岛链国际日期变更线以西部署一支拥有精确打击网络的一体化联合部队，在第二岛链部署一体化的空中导弹防御力量，并采取分布式的兵力态势，以提供维护稳定的能力，在必要的时候能分散并在更长的时间段维持作战行动。”
+This section is not an exhaustive list of areas where decoupling from China is advisable. No doubt some of the technologies and fields that will shape the future strategic landscape are unknown to or underappreciated by today’s policymakers. Rather, this list identifies sectors of urgent concern to the United States right now. China is already a world leader in some of these sectors and is targeting all of them through massive investment and espionage—including espionage that masquerades as investment. The United States must end its reliance on China in sectors that will affect the relative strength of nations in the future.
 
-第一岛链由包括台湾、冲绳和菲律宾在内的一组岛屿组成，中共国将其视为第一道防线。北京的“禁止进入/区域封锁”战略旨在将美军赶出第一岛链内的东海和南海。
+本节并不是和中共国脱钩领域的详尽建议清单。毫无疑问，影响未来战略前景的某些技术和领域对于当今的决策者来说，是未知的或未被重视的。确切地说，本列表标识了当前美国急需关注的领域。中共国已经是其中一些行业的世界领导者，并且正在通过大量投资和间谍活动，包括伪装成投资的间谍活动，来针对这些领域。美国必须结束这些领域对中共国的依赖，这将影响到国家未来的相对实力。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CekJmz97IwCkG/images/705afef0-1db6-4a3f-b317-f01c356a9975.png?asset_id=b8383762-2aa0-4d19-a597-921f05e732bf&amp;img_etag=%229a48fa956f623deb1514f7bc7702e1c9%22&amp;size=1024)](https://spark.adobe.com/page/CekJmz97IwCkG/images/705afef0-1db6-4a3f-b317-f01c356a9975.png?asset_id=b8383762-2aa0-4d19-a597-921f05e732bf&amp;img_etag=%229a48fa956f623deb1514f7bc7702e1c9%22&amp;size=1024)美国海军陆战队两架AH-1W超级眼镜蛇直升机在菲律宾克拉克空军基地上空飞行。菲律宾是所谓第一岛链的一部分。（照片由美国国防部提供）
+## **OBJECTIVES AND CONSIDERATIONS FOR TARGETED DECOUPLING **
 
-中共国还试图阻止美军接近西太平洋的“第二岛链”，该岛链从日本东南部一直延伸到关岛，向南延伸直到印尼。
+## **针对性脱钩的目标和注意事项**
 
-印太司令部本月向国会提交了一份2022财年至2027财年的投资计划。
+### **RESTORE SECURE, SCALABLE, DOMESTIC PRODUCTIVE CAPACITY IN AREAS CRITICAL TO NATIONAL SECURITY **
 
-2022财年，印太司令部申请了47亿美元拨款，这是2021财年为该地区拨款22亿美元的两倍多，也接近华盛顿每年用于对抗俄罗斯的大约50亿美元。
+### **对国家安全至关重要的领域恢复安全，可规模化的国内生产能力**
 
-这份六年总额为274亿美元的预算案，比截至2020财年同期的计划支出增加了36%，反映出人们对中共国围绕台湾和东海、南海周围活动的警惕性日益增强。
+The most basic obligation of the federal government is to provide for the common defense. Yet today, key sectors of the economy rely heavily on Chinese suppliers and manufacturing. The United States cannot be fully free or safe if its access to essential supplies is subject to the whims of the CCP. America must therefore restore secure, scalable, and domestic productive capacity in strategic areas. Private industry, finance, and the government have roles to play in regenerating manufacturing that has been lost to China.
 
-美国印太司令部司令菲利普·戴维森上将(Adm. Philip Davidson)周四在华盛顿智库“美国企业研究院”发表演讲时表示，人们担心未来六年内，中共国可能寻求改变该地区现状，例如改变与台湾的关系。
+联邦政府的最基本义务是提供共同防御。时至今日，经济的关键部门严重依赖中共国供应商和制造业。如果美国的基本物资受到中共随心所欲的控制，它就不能获得完全自由或安全。因此，美国必须在战略领域恢复安全，可规模化的国内生产能力。私营工业，金融和政府在那些已经流失给中共国的制造业再生中可以发挥作用。
 
-他表示：“有一个基本的认识是，从现在到2026年这十年，中共国将力图实现其能力之外的目标，也是北京可能、我是说‘可能’广泛选择强行改变该地区现状的时期。”
+American industry has declined, in part, because of China’s 2001 accession to the WTO and the related decision to grant China Permanent Normal Trade Relations status. In 2004, the United States was the world’s dominant manufacturer, producing approximately $1.61 trillion in value-added manufacturing (22.3% of global output) to China’s $625 billion (8.7% of global output). By 2019, the United States produced $2.35 trillion (16.8% of global output) in value-added manufacturing while China produced $4 trillion (28.7% of global output).125 The nation that brought manufacturing technology to maturity in the nineteenth and twentieth centuries has been overtaken by its number-one rival in the twenty-first century.
 
-他说：“而且我认为这种改变可能是永久性的。”
+美国工业的下滑，部分是由于中共国于2001年加入世界贸易组织（WTO）以及授予中共国永久正常贸易关系地位的决定。2004年，美国是世界主要制造国，其增值制造业的产值约为1.61万亿美元（占全球总产值的22.3％），而中共国为6,250亿美元（占全球总产值的8.7％）。到2019年，美国的增值制造业产值达到2.35万亿美元（占全球总产值的16.8％），而中共国达到4万亿美元（占全球总产值的28.7％）。在19和20世纪使制造技术成熟的这个国家在21世纪被其第一大竞争对手超越。
 
-根据该文件，这一计划的目的是“将资源集中在重要的军事能力上，以威慑中共国”。这份报告中概述的要求是，“专注于通过展示危机时的可信的战力，说服潜在的对手：任何先发制人的军事行动都将面临高昂代价，而且很可能失败。”
+The health of the manufacturing sector thus is not simply a commercial concern, but also a national-security imperative. Domestic manufacturers—and to some extent those of allies and trusted partners—provide the foundation and expertise for the nation to arm itself in wartime.  Under present conditions, it is unclear if the United States would be able to organize the kind of rapid, large-scale industrial mobilization that contributed decisively to Allied victory in World War II. This mobilization was possible because the United States already had a deep industrial base and pool of skilled engineers and laborers.126 Disturbingly, China may be better positioned to play the role of World War II-era America in any major conflict today, given its strong industrial base and deep pool of engineering talent. This must change.
 
-该提案之后将在两院以及将会参与实施的几个国家讨论。中共国过去曾反对美国试图在盟国特别是韩国防止导弹防御系统的企图。
+因此，制造业的健康不是简单的商业问题，而是国家安全的当务之急。国内制造商，和那些在某种程度上的盟国和可信赖的伙伴，为国家在战时武装自己提供了基础和专业知识。在目前条件下，还不清楚美国是否能像在第二次世界大战一样，有能力组织迅速的、大规模的工业资源调动，这种调动对盟军的胜利起到了决定性的作用。当时之所以能够动员起来，是因为美国已经拥有深厚的工业基础，和熟练的工程师和劳工资源。令人不安的是，鉴于中共国的强大工业基础和丰富的工程人才储备，它可能在当今的任何重大冲突中都能更好地扮演第二次世界大战时期美国的角色。这必须改变。
 
-根据日本防卫白皮书，美国在印太地区约有13.2万人驻军。
+A strong industrial base not only supports vital national-security goals, it lays the groundwork for future innovation.127 The process knowledge and human capital gained through manufacturing leads to improvements in the production process itself. Robust industrial initiatives can thus spark virtuous cycles of expansion, reinvestment, and innovation. By contrast, a lack of investment today could jeopardize American prosperity and safety tomorrow.
 
-该投资计划以“沿第一岛链建立高生存力的精确打击网络”为核心内容。这意味着扩大使用发射常规导弹的路基炮台，因为军方已经排除了在这种中短程导弹上使用核弹头的可能性。
+强大的工业基础不仅支撑重要的国家安全目标，而且为未来的创新奠定了基础。通过制造获得的工艺知识和人力资本可改善生产过程本身。因此，强有力的产业计划有助于扩张，再投资和创新的良性循环。相比之下，今天投资的缺乏可能会损害明天的美国繁荣与安全。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CekJmz97IwCkG/images/60ea1ca9-1feb-416b-9a16-08235cb2ceb7.png?asset_id=d3e3f770-7e34-4bbf-883d-caa70e9d9120&amp;img_etag=%22c294d7b25270cf93aa6275311eb68409%22&amp;size=2560)](https://spark.adobe.com/page/CekJmz97IwCkG/images/60ea1ca9-1feb-416b-9a16-08235cb2ceb7.png?asset_id=d3e3f770-7e34-4bbf-883d-caa70e9d9120&amp;img_etag=%22c294d7b25270cf93aa6275311eb68409%22&amp;size=1024)美国海军查菲号(Chafee)导弹驱逐舰在太平洋上发射BlockV战斧导弹（照片由美国海军提供）
+### **MAINTAIN TECHNOLOGICAL ADVANTAGE OVER CHINA IN STRATEGIC AREAS **
 
-长期以来，美国对中共国战略一直以其海军和空军为基础。在1996年台海危机期间，美国派遣航空母舰，展示压倒性的军事力量作为威慑。
+### **在战略领域保持对中共国的主要技术优势**
 
-中共国现在拥有一支多样化的导弹库，着眼于阻挡美国在第二岛链内的军事推进，这使美国寄希望于海军和空军的战略可行性降低。
+Outnumbered more than four to one in population, the United States must maintain decisive advantages in technology and per-capita productivity to compete with China. This objective requires accelerating the development of advanced technologies and implementing safeguards so that China cannot steal our technological breakthroughs.
 
-中共国在陆基中程导弹方面实力雄厚。根据五角大楼的说法，中共国的武器库拥有1250枚这种导弹，而美国却没有。
+中共国人口是美国的四倍多，美国必须在技术和人均生产率上保持决定性优势，才能与中共国竞争。实现这一目标需要加快先进技术的发展并实施保障措施，以使中共国无法窃取我们的技术突破。
 
-这一差距归因于《中程核军备条约》(Intermediate-Range Nuclear Forces Treaty)，该条约禁止发展射程在500公里至5500公里的地基导弹。该协议于2019年到期。
+Current investment in R&D is inadequate to this task. The federal government spent $164  billion, or 0.7 percent of GDP, on R&D in 2020.128 By comparison, it spent between one and  1.5 percent of GDP on R&D during much of the Cold War, when the United States faced a  less populous and affluent competitor.129 Overall R&D spending in the United States has been  buoyed by the private sector, which increased R&D spending more than fourfold between 1980  and 2016.130 In 2018, U.S. firms invested more than $5 in R&D for every $1 spent by Chinese  companies.131 However, private-sector R&D often focuses on incremental improvements to  existing products with clear, short-term commercial applications. It is not optimized for the long-term, theoretical, or risky development projects that lead to breakthroughs and technology revolutions.
 
-参议院外交关系委员会排名最高的共和党参议员吉姆·里施(Jim Risch)接受日经社书面采访时说：“《中导条约》不必要地限制了美国。”
+当前在研发上的投资不足以完成这项任务。2020年，联邦政府在研发方面的支出为1,640亿美元，占GDP的0.7％。相比之下，在冷战期间的大部分时间里，美国面对的是人口较少且不那么富裕的竞争对手，联邦政府在研发方面的支出占GDP的1％至1.5％。美国的整体研发支出受到了私营部门的提振，1980-2016年间，研发支出增长了四倍以上。2018年，中共国公司在研发上每支出1美元，美国公司则投入了5美元以上。然而，私营研发通常侧重于通过清晰的短期商业应用对现有产品进行逐步改进。它并未对可以带来突破和技术革命的那些长期的、理论的或有风险的开发项目进行优化。
 
-里施说，在印太地区部署中程导弹“是美国和日本需要探讨的一个很棒且越来越必要的领域”。
+Federal support for technological development must be paired with policies to protect the fruits of that research. Otherwise, China will continue to benefit from American investment through theft. Spending large sums of taxpayer money to develop leap-ahead technology without implementing controls to stop China from stealing that technology could, in effect, be worse than doing nothing.
 
-一位日本政府高级官员说，在印太地区建立反制中共国的导弹网络“将对日本有利”。这位官员说，东京尚未与华盛顿对此举进行讨论。
+联邦对技术发展的支持必须与保护该研究成果的政策相匹配。否则，中共国将继续通过盗窃从美国投资中受益。花费大量纳税人的钱来开发超前技术，而不实施控制来阻止中共国窃取该技术，实际上，可能比什么都不开发更糟。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CekJmz97IwCkG/images/2433d6a1-3056-4067-adde-5cae08976824.png?asset_id=21eb737b-d65f-455c-b988-22f5feda92fc&amp;img_etag=%22194b3e09a700bd73f8e781eb3d46d78a%22&amp;size=1024)](https://spark.adobe.com/page/CekJmz97IwCkG/images/2433d6a1-3056-4067-adde-5cae08976824.png?asset_id=21eb737b-d65f-455c-b988-22f5feda92fc&amp;img_etag=%22194b3e09a700bd73f8e781eb3d46d78a%22&amp;size=1024)一架F/A-18F超级大黄蜂在日本富士山上空进行飞行作业。驻日美军人数为5.5万，是美国海外部队中人数最多的一支。（照片由美国海军提供）
+（未完待续）
 
-根据两国的双边安全条约，美国海陆空部队驻扎在日本。该条约规定，如果日本受到攻击，华盛顿有义务保卫日本。目前，大约有5.5万名美军驻扎在日本，这是海外最大的美军驻军。
+* * *
 
-驻日美军目前并没有维持可打击到中共国的导弹。日本防卫省一直在包括冲绳在内的南西诸岛上建立自己的远程导弹能力。
+### 原文链接：
 
-但是将美国的导弹部署于日本本土将充满困难。由于此举将影响美国军方与日本自卫队之间的角色分工，东京和华盛顿需要讨论任何拟议部署的细节，包括导弹的位置和射程。
+[Beat China: Targeted Decoupling and the Economic Long War](https://www.cotton.senate.gov/imo/media/doc/210216_1700_China%20Report_FINAL.pdf)
 
-机会很可能在2022财年以后的对东道国支持的谈判中出现。外务省一位高级官员表示，导弹部署“可能会在我们讨论日美同盟的进程时进行讨论”。
+* * *
 
-日本接纳美国导弹的决定肯定会激怒中共国，使这两个经济上相互交织的邻国的外交关系变得更加复杂。东京政府很可能会遭遇潜在部署地点当地的反对，包括冲绳。目前，冲绳集中了约70%的驻日美军。
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
 
-预算方面也可能出现问题。一位防卫省官员说，华盛顿“可能要求我们承担在日本部署导弹相关的维护和其他费用”。
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
 
-**🔗[原文链接](https://asia.nikkei.com/Politics/International-relations/Indo-Pacific/US-to-build-anti-China-missile-network-along-first-island-chain)**
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/CekJmz97IwCkG/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/CekJmz97IwCkG/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
 0

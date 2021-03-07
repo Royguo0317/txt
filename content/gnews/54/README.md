@@ -1,61 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 如何增加推文曝光度之二
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/955608/)
+## 2021/03/07 英喜时事速递
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/955859/)
 
-作者：土小木
-![]()![](https://gnews.org/wp-content/uploads/2021/03/701.png)（图片：推特创始人最初设计手稿 来源：https://en.wikipedia.org/wiki/File:Twttr\_sketch-Dorsey-2006.jpg）
-上次发的一篇文章《如何增加推文曝光度：2021年推特算法总结》【1】，里面提到了几条增加推文曝光度的方法，本篇文章在前一篇基础上，围绕文中提到的“实效性”继续深入讨论推特的推文显示算法，罗列几条可能会降低推文曝光度的注意事项。
+收集：Alicia，Near，Filon，Daniel
+*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
 
-发推时间很重要
+![]()![](https://www.gnews.org/wp-content/uploads/2021/03/marie-bellando-mitjans-b8MpFt6hctY-unsplash.jpg)
 
-推特用户应该都深有体会，我们打开推特，看到的都是最新发生的事，最近几小时内发出的推和转推，按照上一篇文章【1】所说，推特给每条推文按照各种因素来打分，其中一个因素就是实效性，一年前的热推，除非现在依然被不断的转推，否则分数未必会比一条刚发出的普通推文高；也许一年的时间跨度很大，然而即便是在同一天，对于一个关注了上千推特账号的人来说，打开推特，此前一小时内的推文也已经看不完了。这就决定了发推的时间很重要，根据Adobe的分析【2】，针对目标群体的当地时间，中午和晚上六点发出的推文会有更高的曝光度，而下午五点到六点，人们转推的数量最高，可能是因为那是人们下班后刷推特的时间；相反的，对于注册没多久，或者关注人数不多的推特账号，有些推特专家建议避开午休和下班高峰期发推，尤其可以选择晚上八点后到午夜，因为这样可以避免和习惯在高峰期发推的大V们同时发而被推特的打分算法给冲走。
+## Gnews: [中共国将CCP病毒用作“另一种控制记者的手段”来实现新闻封锁](https://gnews.org/zh-hans/947890/)
 
-发推频率并非越高越好
+![]()![](https://spark.adobe.com/page/zEdAdXej9tpgM/images/1f5810f4-5ac3-4c53-8aa0-12dc4f9caa6e.jpg?asset_id=88fc3b6e-8bc6-4cc1-b598-64d14315ca59&amp;img_etag=%22510530501a05530c7b2072a34252da8a%22&amp;size=2560)“由于中共国的宣传机器努力试图重新获得对这场公共卫生灾难叙述的控制权，外国新闻媒体报导疫情的努力屡屡受阻，” CCP夺取中国大陆以来，一直抵触国外媒体报道中国，永远想阻碍中国老百姓与外部世界的自由交流，本质是害怕老百姓醒悟。百姓开悟、共党不存。
 
-一般认为，发推数量对应曝光量，和宣传效果成正比，发推越多，宣传效果越好。这在一定程度上是没错的，比起偶尔发推，甚至几天才发推，持续定量的发推肯定会有更好的宣传效果；然而这里存在一个量的问题，是不是发的越多，效果就越好？或者说，每天发多少条推，宣传效果最好？我们先来看一个数据，Socialbakers，一家专门帮助品牌产品经营社交媒体市场营销的公司，研究了一万一千个国际品牌一段时间的的推文曝光度，发现在一天时间内，三条推文之后，互动率就开始下降【3】，这里用的词是engagement rate，包括推文收到的回复量，点赞和转发数量：
+## Gnews: 中共国对斯里兰卡港口99年的租期延长至200年
 
-需要注意的是，对于品牌公司账号，很高的互动率是品牌推广的保证，但对我们传播爆料革命来说，不用严格的考虑互动率，不需要太在意每天多少推可以带来最优互动效果，因为即便没有点赞、回复或转发，只要我们发出的东西被别人看到就已经有了效果。但确实，只看重数量的发推和转推，数量越高，对应的宣传效果就可能越小，甚至有反效果，另一篇分析为什么推特曝光度会下降的文章【4】中，影响推文曝光度的一大原因就是发推太频繁，文中提到两个问题：
+![]()![](https://spark.adobe.com/page/LVHtrtfECeHwU/images/a1f209b9-d3cf-469a-a4b8-d54425b72938.jpg?asset_id=3b8029f4-db9e-4613-8d5b-49bc283aa271&amp;img_etag=%226186552c2ef95f44f6e8b1dbf3fed7e9%22&amp;size=2560)中共的一带一路计划正在试图通过渗透一个一个关键的国家来稳步达到控制全球的最终目的。对于掩盖极好的邪恶计划，勇于揭露它永远是最好的对抗手段。
 
-Twitter的基本排序算法将多少推文隐藏在观众面前？
+## Gnews：中共国黑客使用美国国家安全局代码攻击美国
+![]()![](https://spark.adobe.com/page/9DHhMKyrmxJL1/images/d41e69f9-695f-4c68-ab62-6f9309b59dba.jpg?asset_id=24768978-33de-4ec3-bc20-066d83dce22c&amp;img_etag=%220c1e27da767d01e9a66fc9e3ed58b770%22&amp;size=2560)中共国黑客用“窃取”的美国国家安全局的代码去攻击美国。目前中共所有与世界对抗的资源和手段都不是来自于自己本身，全部来自或偷或骗或抢，来自于世界对共产主义的放纵和忽视。世界应该警觉起来，消灭影响人类文明进程的共产主义。
+## 北京日报客户端 ： 重磅！陈薇、钟南山团队均已部署新型疫苗研发
 
-由于推文的实效性以及打分机制，导致的结果是同一时间发出的推文或转推数量越多，平均每个推文的曝光度就可能越低，尤其是对于关注了几百上千人的账号来说，随时打开推特都有大量的新推文，而根据统计数据，推特用户每次打开推特浏览的平均时间是3.39分钟【5】，这些因素结合在一起，加上推特的推文打分排序算法，就决定了粉丝不多，或者本身发推不多主要转推的账号发出来的东西不会得分太高，发推数量虽多但每个推的曝光率却很少。
+![重磅！陈薇、钟南山团队均已部署新型疫苗研发|病毒_网易新闻](https://nimg.ws.126.net/?url=http%3A%2F%2Fcms-bucket.ws.126.net%2F2021%2F0306%2Fabe348f5j00qpjguv002kc000u000jwc.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)中共毒疫苗又要升级加新料了
 
-如果说这只是宣传效果不大，至少还能给转发的推增加一些转推数量来提高打分排名（其实一个新账号或者粉丝不多平时不活跃的账号转推并不会给推文增加多少分数），那么第二个问题就可能会导致明显的反效果了：
+## 人民日报海外网 ：全国政协委员高福：目前还没到摘口罩的时候
 
-推文曝光度改变的最大原因之一是Twitter检测和过滤出机器人流量的方式发生了变化。 他们不希望被付费的点赞、转推的推文人为的增加评分而增加曝光度，因此他们试图从明显可疑的帐户中过滤掉数据。
+![全国政协委员高福：目前还没到摘口罩的时候- 知乎]()![全国政协委员高福：目前还没到摘口罩的时候- 知乎](https://pic2.zhimg.com/v2-8fbf73ea67538150001e4ee01a521776_720w.jpg?source=172ae18b)高福的话自曝了全体免疫无效、疫苗无法应对新变种病毒等问题，可谓是把之前吹出去的牛皮给吹炸了。而世界各国却对中共的这种拙劣表演熟视无睹，这种鸵鸟心态要保持到何时呢？
 
-有的战友新注册的账号，一定量的转推后账号被冻结，除了转发内容包含推特设定的敏感词（比如”Election Fraud” – 选举作弊）外，大概率是推特系统的算法判定这类新账号频繁转发的行为符合机器人账号的行为而误判是机器人。
+## 环球时报：高福：#新冠肺炎可能“流感化”# 长期与人类共存
 
-针对上面的两个问题，一个可以采取的办法是在前一篇文章提到的几点基础上，转推时加入一定的文字而非单纯的转发，比如转发中文推时加上英文翻译，转发英文推时加上中文翻译，以及一定的标签（hashtag），这样就区别于单纯的转推而不会被推特判定为机器人。
+![]()![](https://p6.itc.cn/q_70/images03/20210306/bc3abe76950c4963bae86056e5b87c78.jpeg)CCP面对疫情公开放狠话，试图把不明真相的人给唬住，让知道真相的胆小之人被吓住。爆料革命以毒灭共、揭露真相于世界，全球正义力量会让这些疯言妄语彻底消散。
 
-最后，回顾一下上一篇文章的几个增加曝光度的关键点，结合本文的总结如下：
-
-- 有间隔并持续的发推：假如需要发十条推文，一天里分十个时间段分别发出，效果会比一个时间连续发十条要好
-- 保持固定的登陆习惯：比如每天都登陆推特，而不是好几天才打开一次
-- 增加推文互动：这包括鼓励转推，常见的说法例如“RT if you agree”（如果你同意，请转推）；使用相关的标签（hashtag）；艾特相关的账户以及在分数高的相关推文下回复自己的推
-- 尽快回应别人与你推文的互动：比如别人的推文里提到了你，别人回复或转发了你的推文，可以回复一条推文表示感谢
-- 多媒体：如果可以，推文里增加与推文相关的图片或视频
-- 发推账号：尽可能让自己的关注者多起来
-- 除了数量之外，应该更注重发推、转发的质量：
-    - 转发时尽可能增加额外的文字和标签，而非单纯的转发
+## 北京日报客户端： 这些钱要涨、这些钱要省，看今年政府工作报告这样影响你的钱袋子！
 
 
-    - 如果转发图片文字，排版尽可能考虑手机观看效果，因为大部分（80%）推特用户使用手机浏览【6】
-- 新账号不要只转发，尤其不要频繁的转发，而要多种形式混合宣传
+| ![]()![](https://www.gnews.org/wp-content/uploads/2021/03/c0b1-kkxpczc6584010.jpg) | ![]()![](https://www.gnews.org/wp-content/uploads/2021/03/8afd-kkxpczc6584070.jpg) | ![]()![](https://www.gnews.org/wp-content/uploads/2021/03/7add-kkxpczc6584276.jpg) |
+| --- | --- | --- |
+| ![]()![](https://www.gnews.org/wp-content/uploads/2021/03/ebee-kkxpczc6584588.jpg) | ![]()![](https://www.gnews.org/wp-content/uploads/2021/03/3be6-kkxpczc6584145.jpg) | ![]()![](https://www.gnews.org/wp-content/uploads/2021/03/0ae1-kkxpczc6584436.jpg) |
+| ![]()![](https://www.gnews.org/wp-content/uploads/2021/03/4994-kkxpczc6584507.jpg) | ![]()![](https://www.gnews.org/wp-content/uploads/2021/03/1ad5-kkxpczc6584353.jpg) | ![]()![](https://www.gnews.org/wp-content/uploads/2021/03/ccb9-kkxpczc6584705-1.jpg) |
+
+中共一边给了墙内韭菜半块破抹布一边惦记着韭菜的全部家底
+## 直新闻 ： 刘和平：大陆会在近期解决台湾问题吗？今年两会透露这一点
+
+![刘和平：大陆禁台湾菠萝进口，蔡英文还没整明白？_邱太三]()![刘和平：大陆禁台湾菠萝进口，蔡英文还没整明白？_邱太三](https://p2.itc.cn/q_70/images03/20210227/fc63f5a4c391437e91624325fd91ef8a.jpeg)中共通过完美犯罪吞并香港打开了通向地狱的第一道大门现已自信心爆棚。那么是否会急不可耐的要趁热打铁奔向通往地狱的第二道大门呢？答案即将揭晓！
+
+## 环球网：渲染中国威胁？2021军费预算公布后 CNN迅速炒作“中国已建成世界上最大规模海军”
+
+![渲染中国威胁？2021军费预算公布后，CNN迅速炒作“中国已建成世界上最大规模海军”]()![渲染中国威胁？2021军费预算公布后，CNN迅速炒作“中国已建成世界上最大规模海军”](https://rs1.huanqiucdn.cn/dp/api/files/imageDir/4ab6ce27e086a93fb62ecae1224a4b98u1.png)假借CNN报道炒作“中国已建成世界上最大规模海军”的形式来放狠话，说出自己想说而不敢说的话。对外唯唯诺诺、对内硬气洗脑。花招耍尽，本质上还是因为底气不足，知道自己衣服下面没穿底裤。
+
+## **央视新闻：**
+
+刚强：昨天，习近平总书记在内蒙古代表团的讲话中，讲到了生态环境与政治生态，总书记强调，拿着国家资源去搞行贿受贿、去搞权钱交易，这个账总是要算的。近期，一些官员退休很久之后仍被查，再次明确一个重要信息：退休不等于平安上岸，查处也不会因为退休而划上休止符。只有干净清朗的生态，未来的发展，无论是颜值还是气质，才会更加亮丽。
+
+![习近平与内蒙古，这几个故事你知道吗-新华网](https://lh3.googleusercontent.com/proxy/OjOhET46q_Emjb8cAPZcCdLkVMVHnmIWwb3O0RI9UfPgz5FjrxMmnqHTVO0R5gg09Kw07iQxeReR3SvnQ6rFLixqQLolbgih7R9wOnvtPaGHjNr01mwkvgILf8c0Y6yYBWwDj2pFW7n8)党内大清洗的信号
+
+## 新唐人電視台
 
 
-1. [https://gnews.org/zh-hans/785174/](https://gnews.org/zh-hans/785174/)
-2. [https://blog.adobespark.com/2016/05/06/how-often-to-post-to-twitter-facebook-instagram-and-pinterest/](https://blog.adobespark.com/2016/05/06/how-often-to-post-to-twitter-facebook-instagram-and-pinterest/)
-3. https://www.socialbakers.com/blog/1847-tweeting-too-much-find-out-the-ideal-tweet-frequency-for-brands
-4. [https://autolikes.com/blog/2019/04/why-twitter-impressions-dropped](https://autolikes.com/blog/2019/04/why-twitter-impressions-dropped)
-5. [https://au.oberlo.com/blog/twitter-statistics](https://au.oberlo.com/blog/twitter-statistics)
-6. [https://www.omnicoreagency.com/twitter-statistics/](https://www.omnicoreagency.com/twitter-statistics/)
+
+> 德州州長支持立法 禁止社交媒體言論審查 
+> 
+> 德州採取行動，反擊大科技公司審查民眾言論。週五，[#德州立法](https://twitter.com/hashtag/%E5%BE%B7%E5%B7%9E%E7%AB%8B%E6%B3%95?src=hash&amp;ref_src=twsrc%5Etfw) 者在新聞會上宣布州參議院12號提案，保護德州人的權利。[https://t.co/3UWcNdH0rS](https://t.co/3UWcNdH0rS)
+> — 新唐人電視台 (@NTDChinese) [March 7, 2021](https://twitter.com/NTDChinese/status/1368386675232145410?ref_src=twsrc%5Etfw)
 
 
-本文仅代表作者个人观点
+德州打响言论自由第一枪
+## 青春山东：祁发宝身边的翻译是在校大学生
 
-审稿；Jenny  编辑：MG1
-![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
+![在祁发宝身边与外军交涉的那名翻译是位在校大学生_新浪新闻]()![在祁发宝身边与外军交涉的那名翻译是位在校大学生_新浪新闻](https://n.sinaimg.cn/news/crawl/774/w550h224/20210306/51ef-kkxpczc9291005.jpg)不合常理的宣扬在校青年的所谓英勇，是准备努力怂恿祖国青年上战场当炮灰。
+
+## 网易新闻：#成都一幼儿园给孩子吃全素食# 教育局回应
+
+![幼儿园给孩子吃&quot;全素食&quot;？官方回应_胆碱]()![幼儿园给孩子吃&quot;全素食&quot;？官方回应_胆碱](https://p8.itc.cn/images01/20210306/5277b97c60864f4087ef92f0b7e13829.jpeg)共党体制下的教育常出荒唐可笑之事，踏踏实实静心做事的人都算异类，全是这些哗众取宠，想捞快钱的人。因为社会风气总是在宣扬一些旁门左道。
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
