@@ -1,29 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美担忧中共可能强行改变西太平洋秩序
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/955507/)
+## 【每日快讯】06/03/2021:只有新中国联邦不为名，不为利，只为正义。只为真相！只为天下苍生！并且我们正在改变这个世界。
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/955755/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+**制作:Cantonese工作室**
+播报: 【安妮】
+资料整理: 【闪电】【An】【Ruby】
+海报制作: 【侬民】
+视频制作: 【Shawn】
+上传: 【Shawn】
+**摘要:**
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-07_07-02-44.jpg)[latestly.com](https://www.latestly.com/world/us-admiral-philip-s-davidson-says-indo-pacific-region-is-standing-up-against-china-1536556.html)
-3月6日，美国印太司令部司令表示，随着中共快速发展的军事手段及扩张的国际影响力，中共企图控制南中国海这一全球经济通道，并可能很快大胆尝试“强行改变”西太平洋现有秩序。
-
-美国印太司令部司令菲利普·戴维森(Philip Davidson)周四在美国企业研究所论坛上说，“毫无疑问，中共正在寻求一种新的世界秩序——一种他们经常说的具有中共国特色的秩序，在这种秩序中，中共国力比国际法更重要。” 戴维森认为中共在未来几年很有可能会在军事能力上超越美国，到时中共可强行改变印太地区的现状。戴维森强调，“从现在到2026年间，中共国处于一个可以大大增强其国力的有利地位，北京很可能选择强行改变（印太）地区现状，而这种现状的改变可能是永久性的。”
-
-退役海军上校、美国太平洋司令部联合情报中心前作战主任卡尔·舒斯特尔（Carl Schuster）和戴维森有同样的担忧。他指出，中共加快了现代化军事装备和建设，“他们的海上导弹发射器数量超过了我们，当然，还有岸上的空中力量。”
-
-戴维森近日提出申请270亿美元的“威慑资金”以应对中共威胁， 计划用于采购新武器、加强与盟友的军事合作及演习，以保持美国在印太地区的战略优势。
-
-美国新任国防部长奥斯汀(Lloyd Austin)周四在“致部队的信息”中说，国防部“将把中共列为我们的头号挑战，并发展正确的作战理念、能力和计划，以加强威慑，保持我们的竞争优势。”
-
-戴维森指出，针对中共的威慑战略必须建设包括具有高度机动性和深度火力的美国军队。美国海军陆战队和陆军正计划部署快速移动的导弹部队，可以击沉来自西太平洋咽喉岛屿的海上船只。美国与盟友和伙伴的互操作性及信息共享正在加强。
-
-中共恐吓邻国的意图以及军事现代化的计划，两者相加破坏了印太地区的和平稳定。戴维森强调，美国将建立威慑有效的军事装备，必须明确地让中共明白，其试图通过军事力量实现霸权主张的目标成本太高了。
-
-参考链接：
-
-[https://www.yahoo.com/news/china-could-soon-outgun-u-170800040.html](https://www.yahoo.com/news/china-could-soon-outgun-u-170800040.html)
-
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210306-zhTW-01.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210306-zhTW-02.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210306-zhTW-03.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210306-zhTW-04.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210306-zhTW-05.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210306-zhTW-06.jpg)
 0
