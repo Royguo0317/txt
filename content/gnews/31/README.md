@@ -1,15 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月7日 文贵先生盖特 1
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/955721/)
+## 【每日快讯】06/03/2021:只有新中国联邦不为名，不为利，只为正义。只为真相！只为天下苍生！并且我们正在改变这个世界。
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/955755/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+**制作:Cantonese工作室**
+播报: 【安妮】
+资料整理: 【闪电】【An】【Ruby】
+海报制作: 【侬民】
+视频制作: 【Shawn】
+上传: 【Shawn】
+**摘要:**
 
-三月7号：尊敬的战友们好，这是卑鄙下流的共产党一贯的做法，以假乱真……所有的战友们都要擦亮眼睛．所有的有关新中国联邦的任何实的决定，都会在文贵的这个盖特上和与喜马拉雅联盟委员会发布的信息为准🙏🙏🙏任何一次的糊糊涂和轻信．都会给新中国联邦和其他战友带来不可挽回的严重后果！🙏🙏🙏🙏🙏🙏🙏🙏🙏
-![]()![](https://gnews.org/wp-content/uploads/2021/03/photo_2021-03-07_08-31-58.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/photo_2021-03-07_08-32-00.jpg)
-[【2021年3月7日】文贵先生盖特原文](https://gtv.org/getter/60446893581e182e31d899c8)
-
-**喜联盟Gnews编辑部**
-
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210306-zhTW-01.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210306-zhTW-02.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210306-zhTW-03.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210306-zhTW-04.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210306-zhTW-05.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210306-zhTW-06.jpg)
 0
