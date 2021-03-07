@@ -1,51 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 做空港币不是穷人的游戏
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/955260/)
+## 揭底伪科学家福奇与其控制的国家卫生研究院（NIH)资助中共武毒所之背后的利益链
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/933169/)
 
-新闻简述：在2021年3月5日的盖特视频中，郭先生焦急地告诉众多给他发信息询问做空港币的人。他说：“永远记住：穷人别想着挣邪钱，那不是咱穷人的事；再一个，没有大钱的人就别想挣大钱，不可能。别挣那危险的钱，挣那钱，钱来多快，走的多块，甚至一定走得比来得快。”
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_2012_03-05_Getter2.srt.txt)
-**做空港币不是穷人的游戏**
+作者：滴水穿石
 
-**Shorting Hong Kong Dollars Is Not the Game for the Poor**
+**摘要：** 奥巴马政府在2015年开始用纳税人的钱通过为科学家医学教父福奇控制下的非营利组织向中共武汉病毒研究所资助进行冠状病毒的动物实验。以获得动物实验的病原体数据库用于疫苗药物的研发，在川普政府执政后，2019年5月停止了这项资助。在2021年2月18号拜登政府才上任不到一个月，又恢复对中共武汉病毒研究所的资助，原来有这些政客的＂功劳＂，导致全球躁动生物武器袭击的大瘟疫情，几百万人死亡，上亿人感染。与魔共舞的美国政客及伪科学丑陋不堪的面目。
 
-尊敬的战友们好，我这是刚刚直播完，我是刚刚运动，我在运动中间给战友们回信息，你看这后面啊，后面是这样的，G-Fashion T恤，这里是毛的，特别的暖乎，超级棒。
+2015年开始，奥巴马政府的美国国家卫生研究院（NIH)，每年通过伪科学家福奇博士控制下的非政府机构（NGO） “生态健康联盟”（EcoHealth Alliance）向中共武汉病毒实验室每年370万美元资助经费，以支持武汉病毒研究所对动物進行冠狀病毒的实验。备注：此＂生态健康联盟＂的会长正是皮特.达斯扎克（Peter Daszak) 。
+![](https://lh5.googleusercontent.com/EntdOivTQXI7u-aLriw4dS_mXQm1ERlRHvepZfbou8_AUNP5LS0KhB6gSCfb7pkf5-809-34gRHloS4COGGDA4XQJP9vA8LcEViYbJFCMpCSV6V2V4hrTUoxRPZihw)
+图片来源：有机消费者联盟 Organic Consumers Association
 
-Hello, my honorable fellow fighters. I just finished the live broadcast and finished workout. I replied our fellow fighters’ messages while working out. Look at my back. This is how it looks, G-Fashion’s T-shirt. It is made of cashmere, very warm, super nice.
+为什么要资助这个远在中国武汉的病毒研究所的动物冠狀病毒的项目研究？
 
-我给大家回复，很多人给我发信息，俄罗斯的战友，日本的战友，德国的战友，七哥，我们现在要可以做空港币，买空港币，呼啦啦的没完没了的，我也不能一个一个回了。我简单在这说一下，除非你是疯了，兄弟姐妹们，你去买空港币，人家贪婪的时候，你也跟着贪婪，那你不是找死了嘛，关键你有本事跟人家贪婪吗？人家是几百万、几千万、几亿、几十亿、几百亿、几千亿进去，你以为你跟着人都呼啦一下就能赚到钱吗？
+因为通过资助可以名正言顺而获得动物冠状病毒的样本病原体，因为中共国武汉病毒研究所有动物研究实验的外国執照证明书！而且有效期是到2024年1月31日。所以他们唯一的途径就要通过类似的资助项目能同意支付经费给武毒所得到的研究成果共享。以此途径获取动物冠状病毒病原体。
 
-I was replying messages to people. Many fellow fighters from Japan and Germany sent me messages, saying “Brother Seven, we are going to short Hong Kong dollars, short selling Hong Kong dollars”. Endless messages like this, so I cannot respond to each of them. Let me say it here briefly. Unless you are insane, brothers and sisters, [don’t do it]. If you short Hong Kong dollars and follow those greedy people, you will be dead. The problem is that do you have the ability to be greedy like them? They put millions, tens of millions, hundreds of millions, billions, tens of billions, or hundreds of billions in it. Do you think you can make money just by following them?
+而在美国做疫苗研究开发前,必须通过动物实验获得动物模型数据之后，才能进入疫苗临床实验。所以这就是非政府机构通过这个途径自主读书或读自己的动物模型数据，然后跨过动物实验直接进入人体疫苗的开发研制与临床实验，在自动申请引流测试的志愿者中，隋朝身体健康的年轻健康者，由少到多且是两组对照进行三期临床实验，经过严格的临床实验达到合格已安全的标准之后，而且必须经过美国食品药品监督管理局(ADE)的批准, 疫苗才能进入生产阶段和临床使用的推广。
 
-这个中间会有多个起起伏伏，共产党沼泽地的较量，你只能玩一次，人家下，你赚了，人家一上你没了，人再一下，你又没了，你再上…你跟不下去呀，就像真的是说七哥郭三秒一样，你就三下，一、二、三，没了，你再看…只能啥瞪眼，人家再高潮跟你啥关系啊？这不是作死吗？
+华尔街资本市场，特别是医药公司利用中共武汉病毒研究所用动物病原体改造过的的冠状病毒来做人体试验，然后研制相应的疫苗与价格昂贵的新药品。然后大批生产并推全球医药市场，控制其产业链，以达到最大利益。
 
-There will be many ups and downs in the process and battles between the CCP and the swamp. You can only afford to play once, that is, when it goes down, you win, and when it goes up, you lose, and when it’s down again, you lose again, and when it’s up again, you will have nothing to follow. It’s just like what they called me, “three seconds of sex of Guo”, for you can only hold for three times. One, two, three, and then it’s over. After that, you can only watch them playing. It will have nothing to do with you anymore, no matter how high they get. Isn’t this the fastest way to ruin yourself?
+在去年一月CCP 病毒武汉疫情到爆发，中共军方病毒专家进驻武汉病毒研究所进行全方位接管。军方大医院的医生进入武汉在各医院提取病人的血清样本，显而易见是为了研制疫苗而必须做的积极行动。而且对外关闭一切疫情信息，更不与世界卫生组织和的疫情严重的国家分享疫情防治資訊。
 
-有人会挣嘛？你能撑过六秒，能撑过30秒，你还能高兴两下。别糊涂了，兄弟姐妹们。赚大钱永远不是说在投机中得到的，赚大钱是有大钱的人做到的，冒大风险人做到的。凡是有这种心理人脑子都是有问题嘛，你看看这G-Fashion，求求了兄弟姐妹们，七哥没法一一而回，我咋一一而回啊？
+在去年的疫情源头信息还没有得到资源数据的时候，早早的退出冠状病毒疫苗，到现在还在误导拜登政府带两层口罩就可以解决防疫问题。政府变相强制民众必須注射冠状病毒疫苗。这也是在去年疫情爆发后，伪科学家福奇作为一个川普政府的疫情防治团队，故意误导正确的防疫治疗措施，暗中中以帮助医药公司推销推荐他们的新药品，而且还让中共国故意抢注美国医药公司的专利产品。他的由＂不戴口罩＂，＂戴二个口罩＂＂硫酸羟氯喹补气防疫作用＂的防疫解决方案荒唐可笑，”Fire  Fauzi “ 成了推特上的流行语，同時也是美国民众的心声。
 
-Will anyone make a fortune from it? If you can hold for longer than six seconds, thirty seconds, you may feel happy for a little while. Don’t be silly, brothers and sisters. Big fortune is never meant to be obtained from taking chances. Big money can only be made by people who possess big money and are willing to take big risks. Anyone with this kind of mentality is crazy. (Look at our G-Fashion.) So, I beg you, brothers and sisters. I cannot respond every message. How can I reply every single one of them?
+全球大瘟疫的吹哨人闫梦丽博士的反复提示下，当人体接种不安全的冠狀病毒育苗之後，当第二次传染这个中共研制的生物武器— 強变异的冠状病毒的时候，病毒在人体將产生ADE效应，患者更快速的死亡。
 
-疯了？还想赚这钱？你那个三万、五万，三五十万，你那百八十万在那里面算毛钱啊？你去看那港币倒塌前和制裁前，那得有几个起伏呐。最后钱落谁家？就那几家，怎么可能啊？它得有个大池子才行，多少人现在倒霉啊？头一段押港币的，现在倾家荡产，他也回不来了，连卡尔巴斯那个基金都快完蛋了，知道了吧？你寻思啥呢？你想去玩？永远记住：穷人别想着挣邪钱，那不是咱穷人的事；再一个，没有大钱的人就别想挣大钱，不可能。别挣那危险的钱，挣那钱，钱来多快，走的多块，甚至一定走得比来得快。
+在川普上台之后，发现前政府美国国家卫生院承诺六年间不出370万美元，帮助总共武汉病毒研究所增加冠状病毒功能性的研究。川普很快2019年5月开始停止每年通过伪科学家福奇博士控制的非营利组织资助中共武汉病毒研究所每年370万美元。
 
-Are you crazy? Hoping to earn this type of money? Your tens of thousands dollars or hundreds of thousands dollars are nothing in there. Let’s wait and see how many ups and downs there will be prior to the collapse of Hong Kong dollars and the sanctions. Who will be the ultimate winner? Only a few families! How can you possibly win? It needs a big pool to win. How many people are doomed right now? Those who jumped in previously are bankrupt now and have no chance to come back. Even Kyle Bass’s fund is almost bankrupt. Do you know how serious it is now? What are you thinking? You want to play? Please remember, don’t think about making risky money if you are not rich. Also, please don’t dream of making big money if you don’t have big money. It is impossible. Don’t make risky money. Those kind of money come in fast and go away fast, and it could go away even faster than you get them.
+本月18日，美国各主流媒体报道了美国国家卫生研究院和生态健康联盟中共武汉病毒研究所的所作所为，拜登政府上任才一个月，与川普政府相向而行，堂而皇之地恢复允许用美国纳税人的钱资助中共武汉读研究所的每年几百万的经费！
 
-这是定律，拜托了兄弟姐妹们，我不能一一而回，我就说到这吧，我得开会去了。
+这些主流媒体也报导伪科学潜伏期不是控制的营利组织＂生态健康联盟＂，其会长皮特.达斯扎克（Pete Daszak) 和中共有相当密切的合作关系。
 
-This is the law. Please, brothers and sisters. I cannot respond every and single one of your messages. That’s all I want to say for now. I need to go to the meeting now.
+这些龌龊的美国政客与伪科学家为了达到他们的与红魔共舞的最高利益驱动，成为金钱的俘虏。光天化日下不顾及脸面去做龌龊的勾当，与共产联盟的红魔头子中共进行长期交易，还不知悔改。与魔共舞的美國客与伪科学家未路穷途已近乎。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+然而，中共的种族灭绝罪以及反人类罪，以及其一研制的生化武器偷袭全球这样的恶行超限战爭，所有有正义感的人们各个正义联盟能视而不见吗？相信所有的正义联盟都已经站起来结成强悍的力量。行使天賦使命，彻底灭绝共产联盟红色魔鬼及。正义必將战胜邪恶！
 
-视频来源：[https://gtv.org/getter/6042745a9534a74bcaefe355](https://gtv.org/getter/6042745a9534a74bcaefe355)
+2021年2月24日
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/952447/](https://gnews.org/zh-hans/952447/)
+**【参考来源】**
 
-翻译：【7PawBear】校对：【Isaiah4031】【Rock小哥】字幕：【Rock小哥】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+英文参考链接：Organic Consumers Association 网站仍然鼓吹新冠病毒是自然起源的荒谬言论[https://www.organicconsumers.org/news/ecohealth-alliance-orchestrated-key-scientists-statement-natural-origins-sars-cov2](https://www.organicconsumers.org/news/ecohealth-alliance-orchestrated-key-scientists-statement-natural-origins-sars-cov2)
 
-+1
+【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+**【作者的其他文章】**
+
+
+
+> [华尔街的韭菜起义:草根持股而起!](https://gnews.org/zh-hans/860208/)
+
+
+
+
+
+> [CCP病毒：生物武器——对中共凶残邪恶本性的探究](https://gnews.org/zh-hans/828044/)
+
+
+
+**欢迎战友加入旧金山金喜准农场**
+
+[旧金山金喜准农场 GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+
+[旧金山金喜准农场 Discord](https://discord.gg/QQzQ79grEA)
+
+[旧金山金喜准农场 Twitter](https://twitter.com/sf_himalaya)
+
+【责任编辑】：旧金山文宣组
+
+0
