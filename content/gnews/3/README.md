@@ -1,43 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 佩洛西拒绝国会大厦国民警卫队的援助申请，她有什么目的？
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/955848/)
+## 以色列强制疫苗注射现状，打击异见手法和中共如出一辙
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/955915/)
 
-【日本东京方舟农场】翻译：樱花树上摘苹果 校对：文小律
+撰稿视频：一灯一智
 
-南希·佩洛西知道什么，她什么时候知道的？
+素材：白雪
+视频来自Facebook
+以色列裔记者兼演员，非政府机构组织《以色列内幕》的发起人迈克尔.盖诺（Michael Ganoe）先生在Facebook视频中，揭露了以色列政府强制国民注射新冠疫苗的现状，控制媒体舆论手法和中共CCP如出一辙，法西斯行径令人不寒而栗。
 
-据21年1月中旬报道，美国众院议长南希·佩洛西和共和党领袖米奇·麦康奈尔在1月6日宣布抗议活动之前就已经拒绝了国民警卫队的支持。
+政府监控着对疫苗持异见的人的社交媒体账号，包括Facebook，YouTube， Instagram，WhatsApp 和Telegram等，当事人可能被封禁，删号，甚至面临刑事起诉。
 
-**这是有据可查的，并解释了为什么民主党人结束针对特朗普总统的虚假弹劾案，而不是让美国公众知道事情的真相，公众将得知是南希****·****佩洛西未能在****1****月****6****日阻止美国国会大厦惨案的发生**。
+该视频称以色列总理准备把辉瑞（Pfizer）和莫德纳（Moderna）疫苗工厂迁至以色列，使其成为该疫苗的世界配送中心。任何未注射疫苗的人将失去自由，不允许自由迁移，儿童不允许上学。而注射过疫苗的人并不能保障个人安全，出外仍然必须戴口罩，保持社交距离。政府甚至已经立法，一旦因为注射疫苗发生不良状况，个人无法起诉政府和制造商，使后者免于责任。
 
-华盛顿特区警察局长史蒂夫·桑德接受了一个采访，《国家脉搏》对其报道说：这位即将离任的警察局长表示“请相信他们曾试图做出过努力去保护国会大厦，但由于众议院和参议院的安全官员对当时状况的“轻视”，他们的行动受到了阻碍，这些安全官员和议长南希·佩洛西和参议院领袖米奇·麦康奈尔保持着直接的沟通。”
+盖诺先生还称“**个人权利来自上帝，而不是政府**”，呼吁犹太人民团结起来自救，为自由和人权而战。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Israel_vaccination_Cover.jpg)图片来自：Drew Angerer/Getty Images
+据Getter文章引述[奥地利媒体](https://tkp.at/2021/03/02/pfizer-ceo-bezeichnet-israel-als-grosses-impf-labor/)报道，“在以色列进行大规模疫苗接种时，疾病和死亡病例急剧成倍增加。在巴勒斯坦，实际上在同一个国家，案件和死亡人数都有所下降。”
 
-华盛顿特区警察局长桑德说：
+**【短评：以色列太疯狂了，这个完全符合圣经预言，留给人类的时间真的不多了！】**
 
-“国会正式认定总统乔·拜登胜利的前两天，国会警察局长史蒂夫·桑德越来越担心支持特朗普的人潮会涌进华盛顿抗议。
+（本文翻译来自原视频，不代表Gnews立场）
 
-为了安全起见，桑德寻求众议院和参议院安全官员许可，要求将国民警卫队处于待命状态以备不时之需。
+参考来源：
 
-但是桑德说，他们（安全官员）拒绝了他，并认为那是徒劳的。
+1. [《以色列内幕》Fackbook](https://m.facebook.com/InsighttoIsrael)
+2. [Root Source网站对Michael Ganoe介绍](https://root-source.com/bridgebuilders/michael-ganoe/)
+3. [世界经济论坛和Bibi组织](https://www.weforum.org/agenda/authors/bibi-la-luz-gonzalez)
+4. [以色列大规模接种辉瑞疫苗造成死亡病例剧增的Getter文章](https://gtv.org/getter/6043d0319534a74bcaf0326f)
 
-华盛顿特区市长Muriel E. Bowser的参谋长John Falcicchio承认桑德曾寻求过帮助，并解释说：“从字面上看，这个人（桑德）正在打电话，我是说，是在寻求帮助。这件事在我的记忆中非常清晰。”
-
-这只是民主党人撒谎并把失败归咎于唐纳德·川普的一个例子。
-
-《每日电讯》对1月6日美国国会大厦被猛攻之前佩洛西（Pelosi）的失误有更多的了解。
-
-据三位直接了解消息的人士说，在1月6日的国会暴动之后，武器库的前中士保罗·欧文（Paul Irving）向众议院管理员回顾了当时欧文与众议院议长南希·佩洛西（Nancy Pelosi）在办公室的讨论是如何影响他的“决策”的。
-
-据称,欧文告诉众议院行政人员，佩洛西的办公室此前曾给欧文留下深刻印象，国民警卫队将留在国会大厦外。讨论围绕着“光学”展开，据称该讨论是在1月6日发生骚乱之前的几个月内进行的，当时民主党人和许多国会议员不愿动用联邦资源。
-
-一位不愿透露姓名的人士，证实了《每日电讯》所说的三位消息人士所说的内容，理由是担心使更多的目击者对1月6日安全局势的发展感到担忧。1月初，南希·佩洛西（Nancy Pelosi）离开美国国会大厦并且毫无防备的事是一回事。她对此撒谎并将自己的过失归咎于川普总统这一事实是被免职的理由。
-
-这个可怕的女人必须为自己的谎言和行为而辞职并面对正义的审判。
-
-注：本文仅代表译者观点
-
-原文链接：[https://www.thegatewaypundit.com/2021/02/pelosis-fault-speaker-pelosi-told-sgt-arms-deny-national-guard-capitol-due-optics-left-building-unprotected-must-resign/](https://www.thegatewaypundit.com/2021/02/pelosis-fault-speaker-pelosi-told-sgt-arms-deny-national-guard-capitol-due-optics-left-building-unprotected-must-resign/)
-
-+1
+![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
+0
