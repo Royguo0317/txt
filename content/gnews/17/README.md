@@ -1,66 +1,99 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全国政协委员提议建立国家级的生物特征数据库
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/956642/)
+## 汤姆‧科顿议员报告（七）——《战胜中共国：针对性脱钩与经济持久战》
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/956649/)
 
-新闻来源：BREITBART《布赖特巴特》| 作者：JOHN HAYWARD | 发布时间：2021年3月3日
+五月花写作组 ｜ 翻译：文萧 ｜ 校对：虹陵 ｜ 编辑、美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/03/汤姆克顿V7.jpg)
+### 往期链接：
 
-翻译/简评：乡间小路 | 校对/审核：万人往 | Page：拱卒
+[汤姆‧科顿议员报告序言——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/918314/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/620e43a9-eecd-477f-b890-40d8d774f6c8.jpg?asset_id=b09d1b36-9ef8-4d2c-8492-b3a63b575b30&amp;img_etag=%22d8a62948027950eff3ddbbec4a0cbd4b%22&amp;size=1024)](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/620e43a9-eecd-477f-b890-40d8d774f6c8.jpg?asset_id=b09d1b36-9ef8-4d2c-8492-b3a63b575b30&amp;img_etag=%22d8a62948027950eff3ddbbec4a0cbd4b%22&amp;size=1024)
+[汤姆‧克顿议员报告（一）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928067/)
 
-**简评：**
+[汤姆‧克顿议员报告（二）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928136/)
 
-中共想要搜集存储个人人脸和指纹信息，建立一个国家数据库，以增强对国人的监控。生物特征监控距我们的生活有多远？这里提供两个数字——2023年，360亿美元。具体说来就是，到2023年中共新兴“情感辨别行业”的收入，预计将达360亿美元。在缺乏法律约束的中共国，中共对个人生物特征信息的滥用程度由此可见一般。中共对中国人的监控措施正来势汹涌，个人权利势必受到越来越多的侵犯。
+[汤姆‧科顿议员报告（三）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/931905/)
 
-基于生物特征监控的技术能做什么？其中之一就是判断你是否“正能量”。如果你的情感与中共宣传的意识形态合拍，那就是“正能量”。如果任凭中共不负责任地发展下去，也许有一天我们会发现，喜怒哀乐都由不得我们自己了。
+[汤姆‧科顿议员报告（四）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/935835/)
 
-**原文翻译：**
+[汤姆‧科顿议员报告（五）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/937759/)
 
-## 中共国官方想要建立国家人脸和指纹数据库
+[汤姆‧科顿议员报告（六）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/956586/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/39abd4bf-cc76-4b1a-b6ff-0be09d001574.jpg?asset_id=957f8aa8-e0d5-4e08-a9e9-d32d331f3faf&amp;img_etag=%22f381267a14b5668dd79b9d31b66d06da%22&amp;size=2560)](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/39abd4bf-cc76-4b1a-b6ff-0be09d001574.jpg?asset_id=957f8aa8-e0d5-4e08-a9e9-d32d331f3faf&amp;img_etag=%22f381267a14b5668dd79b9d31b66d06da%22&amp;size=1024)
+* * *
 
-中共国资深政策顾问谈剑锋周二呼吁建立一个包含人脸和指纹识别数据的国家生物特征数据库，以保护中共国的“国家安全”和“信息安全”。
+## **SECTION TWO: Targeted Decoupling **
 
-中共国官媒《环球时报》引用谈的话说，生物特征数据必须积极地采集和保护。因为在一个受到普遍监视的共产主义国家，它对于人们的生活将会变得愈发必要。而且，一旦发生丢失、损坏或被盗，生物特征数据极难替换。
+## **第二节：有针对性的脱钩**
 
-谈剑锋是中共国政协全国委员会的一名委员，他说，数据安全已经成为一个事关国家安全的重要议题，一些关键数据像个人生物特征数据（人脸、指纹和DNA），它们拥有独特的、不可更新的特征，一旦被盗则不能恢复或修改，进而带来巨大的、不可逆的风险。
+The United States has entered a phase of open and mutual antagonism with China, yet the failed dream of engagement haunts our economic policy. We must identify and disentangle strategically important economic sectors while thwarting China’s parasitic approach to global trade and commerce.
 
-谈还是上海市信息安全行业协会的会长，他建议加快相关法律法规的建设，严格规范和实施关键数据的收集、存储和使用。
+美国与中共国已经进入了开放和相互对抗的阶段，然而合作梦想的失败还困扰着我们的经济政策。我们必须确定和理顺具有战略意义的重要经济部门，同时制止中共国对全球贸易和商业的寄生方式。
 
-他还建议实施数据分类和管理，开列一个禁止清单以阻止在互联网上使用像生物和制药等关键领域的数据。
+Such a task requires a focus on broad areas of concern such as trade and investment, higher education, entertainment, and advanced technologies and essential supplies for which reliance on China is unacceptable. This section examines a selection of these technologies and essential supplies in greater detail, including semiconductors, telecommunications, rare-earth elements and critical minerals, medical supplies and equipment, and artificial intelligence and quantum computing.
 
-英国科技公司Comparitech今年1月份发布的一项研究发现，中共国是“滥用生物特征数据方面最恶劣的罪犯”。
+这项任务需要关注广泛领域，例如贸易和投资、高等教育、娱乐、先进技术和基本用品，这些领域对中共国的依赖是不可接受的。本节更详细地研究了这些技术和基本供应品的选择，包括半导体，电信，稀土元素和关键矿产，医疗用品和设备，以及人工智能和量子计算。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/bbbb2aef-eada-4886-b056-310e273f6189.jpg?asset_id=01dff0a3-68f4-4481-9ff8-b794eabe97f0&amp;img_etag=%22ce483d2ab192d86f86ed603dd60214c2%22&amp;size=1024)](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/bbbb2aef-eada-4886-b056-310e273f6189.jpg?asset_id=01dff0a3-68f4-4481-9ff8-b794eabe97f0&amp;img_etag=%22ce483d2ab192d86f86ed603dd60214c2%22&amp;size=1024)
+This section is not an exhaustive list of areas where decoupling from China is advisable. No doubt some of the technologies and fields that will shape the future strategic landscape are unknown to or underappreciated by today’s policymakers. Rather, this list identifies sectors of urgent concern to the United States right now. China is already a world leader in some of these sectors and is targeting all of them through massive investment and espionage—including espionage that masquerades as investment. The United States must end its reliance on China in sectors that will affect the relative strength of nations in the future.
 
-中共利用指纹和人脸识别技术实施的广大应用包括：无人机，它们去年曾飞越中共国城市，使用人脸识别来锁定那些在新冠病毒疫情期间违反封锁禁令的人；人脸系统，它们能够辨认出佩戴口罩的人；摄像头，它们能识别每一个使用公共交通系统的人，能够识别和羞辱那些乱穿马路的人和偷公厕厕纸的人。
+本节并不是和中共国脱钩领域的详尽建议清单。毫无疑问，影响未来战略前景的某些技术和领域对于当今的决策者来说，是未知的或未被重视的。确切地说，本列表标识了当前美国急需关注的领域。中共国已经是其中一些行业的世界领导者，并且正在通过大量投资和间谍活动，包括伪装成投资的间谍活动，来针对这些领域。美国必须结束这些领域对中共国的依赖，这将影响到国家未来的相对实力。
 
-为了评估工人的生产效率，中共国的公司已经安装了可以监视工人脑电波的系统。为了防止脑电波监视失灵，中共国正在研发“智能垫”，它可以监视员工的另一端。
+## **OBJECTIVES AND CONSIDERATIONS FOR TARGETED DECOUPLING **
 
-尽管民意调查显示90%的中国城市居民对这种监视感到不适，但致力于全面生物特征监视的不懈努力仍在快速向前推进。谈剑锋呼吁建立一个受到严密保护的“国家数据库”，这正是中共国专制政府的计划的一部分，目的是让市民们安心，觉得他们的生物信息将得到保护。
+## **针对性脱钩的目标和注意事项**
 
-“这里的中国普通老百姓对这项技术感到不满但别无选择。如果警察说一个社区里必须要有摄像头，那人们就不得不接受摄像头在日常生活中的存在。那样的要求总是有的，我们到这里就是完成这样的要求。” 深圳太古计算机系统有限公司的一位代表耸耸肩说到。据英国《卫报》周三报道，这是一家生产情感识别技术的公司。
+### **RESTORE SECURE, SCALABLE, DOMESTIC PRODUCTIVE CAPACITY IN AREAS CRITICAL TO NATIONAL SECURITY **
 
-《卫报》指出情感辨别行业正“在中共国蓬勃发展”，预计2023年收益达360亿美元，因为独裁者习近平和其他高层领导已经强调“创造正能量是意识形态运动的一部分，这场运动鼓励某些类型的表达，限制其它表达。”
+### **对国家安全至关重要的领域恢复安全，可规模化的国内生产能力**
 
-太古公司吹嘘说他们的技术也可以用来“在监狱预测犯人的危险行为，在警察检查站发觉潜在的罪犯，在学校发现问题学生，在养老院发觉出现痴呆症状的老人。”从疗养院到学校，情感辨别系统无处不在。
+The most basic obligation of the federal government is to provide for the common defense. Yet today, key sectors of the economy rely heavily on Chinese suppliers and manufacturing. The United States cannot be fully free or safe if its access to essential supplies is subject to the whims of the CCP. America must therefore restore secure, scalable, and domestic productive capacity in strategic areas. Private industry, finance, and the government have roles to play in regenerating manufacturing that has been lost to China.
 
-批评家说，监视技术的最新发展是基于生理学的骗术，它几乎没有保护隐私，歧视在中共国受压迫的种族技术，并且在预测突发暴力方面没有可论证的效果。
+联邦政府的最基本义务是提供共同防御。时至今日，经济的关键部门严重依赖中共国供应商和制造业。如果美国的基本物资受到中共随心所欲的控制，它就不能获得完全自由或安全。因此，美国必须在战略领域恢复安全，可规模化的国内生产能力。私营工业，金融和政府在那些已经流失给中共国的制造业再生中可以发挥作用。
 
-人权数字分析员维杜西·玛达告诉《卫报》：“我认为很多生物特征监视跟恐吓、审查紧密相关，我推测［情感辨别］就是这样的一个例子。”
+American industry has declined, in part, because of China’s 2001 accession to the WTO and the related decision to grant China Permanent Normal Trade Relations status. In 2004, the United States was the world’s dominant manufacturer, producing approximately $1.61 trillion in value-added manufacturing (22.3% of global output) to China’s $625 billion (8.7% of global output). By 2019, the United States produced $2.35 trillion (16.8% of global output) in value-added manufacturing while China produced $4 trillion (28.7% of global output).125 The nation that brought manufacturing technology to maturity in the nineteenth and twentieth centuries has been overtaken by its number-one rival in the twenty-first century.
 
-[原文链接](https://www.breitbart.com/national-security/2021/03/03/chinese-officials-want-national-data-bank-faces-fingerprints/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+breitbart+%28Breitbart+News%29)
+美国工业的下滑，部分是由于中共国于2001年加入世界贸易组织（WTO）以及授予中共国永久正常贸易关系地位的决定。2004年，美国是世界主要制造国，其增值制造业的产值约为1.61万亿美元（占全球总产值的22.3％），而中共国为6,250亿美元（占全球总产值的8.7％）。到2019年，美国的增值制造业产值达到2.35万亿美元（占全球总产值的16.8％），而中共国达到4万亿美元（占全球总产值的28.7％）。在19和20世纪使制造技术成熟的这个国家在21世纪被其第一大竞争对手超越。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+The health of the manufacturing sector thus is not simply a commercial concern, but also a national-security imperative. Domestic manufacturers—and to some extent those of allies and trusted partners—provide the foundation and expertise for the nation to arm itself in wartime.  Under present conditions, it is unclear if the United States would be able to organize the kind of rapid, large-scale industrial mobilization that contributed decisively to Allied victory in World War II. This mobilization was possible because the United States already had a deep industrial base and pool of skilled engineers and laborers.126 Disturbingly, China may be better positioned to play the role of World War II-era America in any major conflict today, given its strong industrial base and deep pool of engineering talent. This must change.
 
+因此，制造业的健康不是简单的商业问题，而是国家安全的当务之急。国内制造商，和那些在某种程度上的盟国和可信赖的伙伴，为国家在战时武装自己提供了基础和专业知识。在目前条件下，还不清楚美国是否能像在第二次世界大战一样，有能力组织迅速的、大规模的工业资源调动，这种调动对盟军的胜利起到了决定性的作用。当时之所以能够动员起来，是因为美国已经拥有深厚的工业基础，和熟练的工程师和劳工资源。令人不安的是，鉴于中共国的强大工业基础和丰富的工程人才储备，它可能在当今的任何重大冲突中都能更好地扮演第二次世界大战时期美国的角色。这必须改变。
 
-编辑：【英国伦敦喜庄园编辑部】
+A strong industrial base not only supports vital national-security goals, it lays the groundwork for future innovation.127 The process knowledge and human capital gained through manufacturing leads to improvements in the production process itself. Robust industrial initiatives can thus spark virtuous cycles of expansion, reinvestment, and innovation. By contrast, a lack of investment today could jeopardize American prosperity and safety tomorrow.
 
-[!\[\]()!\[\](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+强大的工业基础不仅支撑重要的国家安全目标，而且为未来的创新奠定了基础。通过制造获得的工艺知识和人力资本可改善生产过程本身。因此，强有力的产业计划有助于扩张，再投资和创新的良性循环。相比之下，今天投资的缺乏可能会损害明天的美国繁荣与安全。
+
+### **MAINTAIN TECHNOLOGICAL ADVANTAGE OVER CHINA IN STRATEGIC AREAS **
+
+### **在战略领域保持对中共国的主要技术优势**
+
+Outnumbered more than four to one in population, the United States must maintain decisive advantages in technology and per-capita productivity to compete with China. This objective requires accelerating the development of advanced technologies and implementing safeguards so that China cannot steal our technological breakthroughs.
+
+中共国人口是美国的四倍多，美国必须在技术和人均生产率上保持决定性优势，才能与中共国竞争。实现这一目标需要加快先进技术的发展并实施保障措施，以使中共国无法窃取我们的技术突破。
+
+Current investment in R&D is inadequate to this task. The federal government spent $164  billion, or 0.7 percent of GDP, on R&D in 2020.128 By comparison, it spent between one and  1.5 percent of GDP on R&D during much of the Cold War, when the United States faced a  less populous and affluent competitor.129 Overall R&D spending in the United States has been  buoyed by the private sector, which increased R&D spending more than fourfold between 1980  and 2016.130 In 2018, U.S. firms invested more than $5 in R&D for every $1 spent by Chinese  companies.131 However, private-sector R&D often focuses on incremental improvements to  existing products with clear, short-term commercial applications. It is not optimized for the long-term, theoretical, or risky development projects that lead to breakthroughs and technology revolutions.
+
+当前在研发上的投资不足以完成这项任务。2020年，联邦政府在研发方面的支出为1,640亿美元，占GDP的0.7％。相比之下，在冷战期间的大部分时间里，美国面对的是人口较少且不那么富裕的竞争对手，联邦政府在研发方面的支出占GDP的1％至1.5％。美国的整体研发支出受到了私营部门的提振，1980-2016年间，研发支出增长了四倍以上。2018年，中共国公司在研发上每支出1美元，美国公司则投入了5美元以上。然而，私营研发通常侧重于通过清晰的短期商业应用对现有产品进行逐步改进。它并未对可以带来突破和技术革命的那些长期的、理论的或有风险的开发项目进行优化。
+
+Federal support for technological development must be paired with policies to protect the fruits of that research. Otherwise, China will continue to benefit from American investment through theft. Spending large sums of taxpayer money to develop leap-ahead technology without implementing controls to stop China from stealing that technology could, in effect, be worse than doing nothing.
+
+联邦对技术发展的支持必须与保护该研究成果的政策相匹配。否则，中共国将继续通过盗窃从美国投资中受益。花费大量纳税人的钱来开发超前技术，而不实施控制来阻止中共国窃取该技术，实际上，可能比什么都不开发更糟。
+
+（未完待续）
+
+* * *
+
+### 原文链接：
+
+[Beat China: Targeted Decoupling and the Economic Long War](https://www.cotton.senate.gov/imo/media/doc/210216_1700_China%20Report_FINAL.pdf)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
 0

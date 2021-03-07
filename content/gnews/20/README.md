@@ -1,97 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 汤姆‧科顿议员报告（六）——《战胜中共国：针对性脱钩与经济持久战》
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/956586/)
+## 全国政协委员提议建立国家级的生物特征数据库
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/956642/)
 
-五月花写作组 ｜ 翻译：jiasen ｜ 校对：紫丁香 ｜ 编辑、美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/03/汤姆克顿V7.jpg)
-### 往期链接：
+新闻来源：BREITBART《布赖特巴特》| 作者：JOHN HAYWARD | 发布时间：2021年3月3日
 
-[汤姆‧科顿议员报告序言——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/918314/)
+翻译/简评：乡间小路 | 校对/审核：万人往 | Page：拱卒
 
-[汤姆‧克顿议员报告（一）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928067/)
+[!\[\]()!\[\](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/620e43a9-eecd-477f-b890-40d8d774f6c8.jpg?asset_id=b09d1b36-9ef8-4d2c-8492-b3a63b575b30&amp;img_etag=%22d8a62948027950eff3ddbbec4a0cbd4b%22&amp;size=1024)](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/620e43a9-eecd-477f-b890-40d8d774f6c8.jpg?asset_id=b09d1b36-9ef8-4d2c-8492-b3a63b575b30&amp;img_etag=%22d8a62948027950eff3ddbbec4a0cbd4b%22&amp;size=1024)
 
-[汤姆‧克顿议员报告（二）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928136/)
+**简评：**
 
-[汤姆‧科顿议员报告（三）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/931905/)
+中共想要搜集存储个人人脸和指纹信息，建立一个国家数据库，以增强对国人的监控。生物特征监控距我们的生活有多远？这里提供两个数字——2023年，360亿美元。具体说来就是，到2023年中共新兴“情感辨别行业”的收入，预计将达360亿美元。在缺乏法律约束的中共国，中共对个人生物特征信息的滥用程度由此可见一般。中共对中国人的监控措施正来势汹涌，个人权利势必受到越来越多的侵犯。
 
-[汤姆‧科顿议员报告（四）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/935835/)
+基于生物特征监控的技术能做什么？其中之一就是判断你是否“正能量”。如果你的情感与中共宣传的意识形态合拍，那就是“正能量”。如果任凭中共不负责任地发展下去，也许有一天我们会发现，喜怒哀乐都由不得我们自己了。
 
-[汤姆‧科顿议员报告（五）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/937759/)
+**原文翻译：**
 
-* * *
+## 中共国官方想要建立国家人脸和指纹数据库
 
-## **CHINA’S RELIANCE ON THE UNITED STATES **
+[!\[\]()!\[\](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/39abd4bf-cc76-4b1a-b6ff-0be09d001574.jpg?asset_id=957f8aa8-e0d5-4e08-a9e9-d32d331f3faf&amp;img_etag=%22f381267a14b5668dd79b9d31b66d06da%22&amp;size=2560)](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/39abd4bf-cc76-4b1a-b6ff-0be09d001574.jpg?asset_id=957f8aa8-e0d5-4e08-a9e9-d32d331f3faf&amp;img_etag=%22f381267a14b5668dd79b9d31b66d06da%22&amp;size=1024)
 
-## **中共国对美国的依赖**
+中共国资深政策顾问谈剑锋周二呼吁建立一个包含人脸和指纹识别数据的国家生物特征数据库，以保护中共国的“国家安全”和“信息安全”。
 
-While the United States relies on China in key areas, the knife cuts both ways; one country’s point  of exposure is another’s point of leverage. Indeed, China’s fortunes are tied to the United States  more closely than ours are to China, a fact that American strategists must keep in mind.
+中共国官媒《环球时报》引用谈的话说，生物特征数据必须积极地采集和保护。因为在一个受到普遍监视的共产主义国家，它对于人们的生活将会变得愈发必要。而且，一旦发生丢失、损坏或被盗，生物特征数据极难替换。
 
-尽管美国在关键领域依赖中共国，但这是一把双刃剑。 一个国家的曝光点恰是另一个国家的制衡点。 实际上，中共国的命运与美国的关联，远比我们的命运与中共国的关联更紧密，这是美国战略家必须牢记的事实。
+谈剑锋是中共国政协全国委员会的一名委员，他说，数据安全已经成为一个事关国家安全的重要议题，一些关键数据像个人生物特征数据（人脸、指纹和DNA），它们拥有独特的、不可更新的特征，一旦被盗则不能恢复或修改，进而带来巨大的、不可逆的风险。
 
-China relies on the United States to access high-end research and technology. It embeds agents in  U.S. research and development institutions in order to acquire early-stage research at minimal cost  and risk. Chinese firms then apply this research, scale it quickly, and compete with U.S. firms  in the global marketplace on unfair terms. Qiaohai Shu of the China Academy of Social Sciences  (CASS) explained the logic behind this strategy when he wrote, “Innovation is time-consuming,  laborious and risky…but when it comes to *applying*technology, the opportunity cost to leap ahead  is low, the chances of success are high.”
+谈还是上海市信息安全行业协会的会长，他建议加快相关法律法规的建设，严格规范和实施关键数据的收集、存储和使用。
 
-中共国依靠美国获得高端研究和技术。它将间谍隐藏在美国研发机构中，以便以最低成本和风险获得早期研究成果。然后，中共国公司就应用这些研究成果，迅速扩大规模，在全球市场与美国公司进行不公平竞争。中共国社会科学院（CASS）的乔海曙解释了该策略背后的逻辑，他写道：“创新既费时、费力，又有风险……但是，在应用技术方面，实现超越的机会成本很低， 而成功的几率却很高。
+他还建议实施数据分类和管理，开列一个禁止清单以阻止在互联网上使用像生物和制药等关键领域的数据。
 
-This strategy helps explain why China allocates only six percent of its R&D budget to basic  research, while the United States allocates 17 percent.It also sheds light on why Beijing spends  a whopping 84 percent of its R&D funds on experimental development while the United States  spends only 63 percent.
+英国科技公司Comparitech今年1月份发布的一项研究发现，中共国是“滥用生物特征数据方面最恶劣的罪犯”。
 
-这一策略有助于解释为什么中共国仅将其研发预算的6％分配给基础研究，而美国却达到17％。这也揭示了为什么北京将高达84%的研发资金用于实验开发，而美国只花费63%。
+[!\[\]()!\[\](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/bbbb2aef-eada-4886-b056-310e273f6189.jpg?asset_id=01dff0a3-68f4-4481-9ff8-b794eabe97f0&amp;img_etag=%22ce483d2ab192d86f86ed603dd60214c2%22&amp;size=1024)](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/bbbb2aef-eada-4886-b056-310e273f6189.jpg?asset_id=01dff0a3-68f4-4481-9ff8-b794eabe97f0&amp;img_etag=%22ce483d2ab192d86f86ed603dd60214c2%22&amp;size=1024)
 
-Access to American research and innovation is therefore a central plank in China’s long-term  economic, military, and political planning. Chinese strategists fret, with good reason, about a  “high-tech blockade” that could slow the country’s economic development.
+中共利用指纹和人脸识别技术实施的广大应用包括：无人机，它们去年曾飞越中共国城市，使用人脸识别来锁定那些在新冠病毒疫情期间违反封锁禁令的人；人脸系统，它们能够辨认出佩戴口罩的人；摄像头，它们能识别每一个使用公共交通系统的人，能够识别和羞辱那些乱穿马路的人和偷公厕厕纸的人。
 
-因此，获得美国研究和创新成果是中共国长期经济，军事和政治规划的核心内容。中共国的战略家们有充分理由担心“高科技封锁”会减缓中共国的经济发展。
+为了评估工人的生产效率，中共国的公司已经安装了可以监视工人脑电波的系统。为了防止脑电波监视失灵，中共国正在研发“智能垫”，它可以监视员工的另一端。
 
-Washington could confound and disrupt the CCP’s economic strategy by ending this parasitic  relationship. If China is denied access to U.S. research and high-end technology, such as  semiconductors, it would have to make additional investments in basic research. These investments would be funded by a smaller economy with a more burdensome debt load—  China’s total domestic debt was an estimated 335 percent of GDP in late 2020. Beijing  would have to make these investments while simultaneously maintaining its proficiency in  experimental development, rapid scaling, and production. This would tax China more severely  than the status quo.
+尽管民意调查显示90%的中国城市居民对这种监视感到不适，但致力于全面生物特征监视的不懈努力仍在快速向前推进。谈剑锋呼吁建立一个受到严密保护的“国家数据库”，这正是中共国专制政府的计划的一部分，目的是让市民们安心，觉得他们的生物信息将得到保护。
 
-通过终止这种寄生关系，华盛顿可以打乱并挫败中共的经济战略。如果中共国被剥夺了获得美国研究成果和半导体等高端技术的机会，它将不得不在基础研究上进行额外投资。这些投资或将由债务负担更加沉重、规模更小的经济体来承担——到2020年末，中共国的国内债务总额预计占GDP的335％。中共国将不得不在保持其实验开发，快速扩张，和生产方面熟练程度的同时，进行这些投资。这会使中共国的内耗比现有状况更为严峻。
+“这里的中国普通老百姓对这项技术感到不满但别无选择。如果警察说一个社区里必须要有摄像头，那人们就不得不接受摄像头在日常生活中的存在。那样的要求总是有的，我们到这里就是完成这样的要求。” 深圳太古计算机系统有限公司的一位代表耸耸肩说到。据英国《卫报》周三报道，这是一家生产情感识别技术的公司。
 
-Foreign investment is another key point of reliance in the U.S.-Chinese economic  relationship. U.S. real estate and equities are a safe harbor for Chinese companies and elites,  although strict controls imposed by the CCP in 2017 to stabilize the balance of payments  have curtailed capital flight.
+《卫报》指出情感辨别行业正“在中共国蓬勃发展”，预计2023年收益达360亿美元，因为独裁者习近平和其他高层领导已经强调“创造正能量是意识形态运动的一部分，这场运动鼓励某些类型的表达，限制其它表达。”
 
-外国投资是美中经济关系的另一关键依赖点。尽管中共在2017年为稳定国际收支平衡而实施了严格的管制，遏制了资本外逃，美国的房地产和股票市场仍是中共国公司和精英阶层的避风港。
+太古公司吹嘘说他们的技术也可以用来“在监狱预测犯人的危险行为，在警察检查站发觉潜在的罪犯，在学校发现问题学生，在养老院发觉出现痴呆症状的老人。”从疗养院到学校，情感辨别系统无处不在。
 
-American investment, meanwhile, plays a critical role in China’s economic rise. This  investment lends legitimacy to the CCP, builds its industrial and technological capabilities,  and creates a political constituency within the United States committed to preventing  confrontation with the CCP. Reducing this investment would do material harm to China’s  economy, international standing, and, potentially, the CCP itself.
+批评家说，监视技术的最新发展是基于生理学的骗术，它几乎没有保护隐私，歧视在中共国受压迫的种族技术，并且在预测突发暴力方面没有可论证的效果。
 
-同时，美国的投资对中共国经济的崛起起着至关重要的作用。这样的投资导致中共具有了合法性，增强了它的工业和技术实力，并在美国内部建立了一个政治团体，致力于防止与中共对抗。减少这样的投资将对中共国的经济、其国际地位，乃至中共本身造成切实打击。
+人权数字分析员维杜西·玛达告诉《卫报》：“我认为很多生物特征监视跟恐吓、审查紧密相关，我推测［情感辨别］就是这样的一个例子。”
 
-Another related point of reliance is China’s ability to list companies on U.S. stock exchanges,  despite its refusal to comply with the Security and Exchange Commission’s auditing  standards. This refusal spurred Congress to pass legislation, co-sponsored by Senator Cotton  and signed into law late last year, that delists Chinese and Hong Kong-based companies from  U.S. stock exchanges if they fail to comply with audits by the Public Company Accounting  Oversight Board (PCAOB). The combined market capitalization of the more than 250  Chinese and Hong Kong firms listed on U.S. exchanges is over $2 trillion.
+[原文链接](https://www.breitbart.com/national-security/2021/03/03/chinese-officials-want-national-data-bank-faces-fingerprints/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+breitbart+%28Breitbart+News%29)
 
-另一个相关依赖点是，尽管中共国拒绝遵守美国证券交易委员会（SEC）的审计标准，但它仍具有使其公司在美国证券交易所上市的能力。这种拒绝促使国会通过了一项由参议员科顿共同发起，并于去年年底签署的立法，该法规定如果中共国和香港公司不遵守上市公司会计监督委员会的（PCAOB）审计程序，就会被退市。在美国证券交易所上市的250多家中共国和香港公司的总市值超过2万亿美元。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-Meanwhile, China’s access to the U.S. dollar and dollar-denominated trading system is another  point of leverage for the United States. Because most dollar transactions clear through the  American financial system, the United States has the power to block, hold, or otherwise  intervene in many Chinese transactions.
 
-同时，中共国进入美元和以美元计价的贸易体系是美国的另一个制衡点。因为大多数美元交易都是通过美国金融系统进行清算的，所以美国有能力阻止，控制或以其他方式干预许多中共的交易。
+编辑：【英国伦敦喜庄园编辑部】
 
-China also depends on access to the U.S. market, which received 19 percent of China’s exports  in 2018. The U.S. export market is an irreplaceable outlet for goods generated by China’s  oversupplied economy. Though China has made efforts to accelerate domestic innovation and  reduce its reliance on exports, it is a long way from matching the strength of U.S. innovation  or becoming as self-contained as the American economy. The large trade surplus China runs  with the United States is thus both a sign of China’s remarkable productive capacity and a  potential weakness the United States can exploit.
-
-中共国还依赖美国市场的准入，美国市场在2018年接收中共国出口总量的19％。美国出口市场是中共国经济供过于求所生产的商品不可替代的出口。尽管中共国已经努力加快国内创新，减少对出口的依赖，但距离与美国创新实力相匹配，或者像美国一样经济自成一体还相去甚远。因此，中共国对美国的巨额贸易顺差既是中共国显著生产能力的标志，又是美国可以利用的潜在弱点。
-
-This dynamic has important political implications because slower growth has the potential  to cause internal discontent. Chinese citizens willing to accept an increasingly heavy-handed  authoritarian state in exchange for a higher standard of living may think twice if growth slows  or stagnates. As a result, the CCP fears that declines in exports, growth, and employment could  pose political liabilities. Other domestic problems would intensify pressure on the regime. These  problems include restrictions on home ownership, the absence of a humane welfare state, the inability of many Chinese men to find wives, and a lack of children to care for the elderly.The 90-million-member CCP may find it increasingly difficult to govern China’s 1.4 billion  people if the economy stagnates.
-
-这种动态具有重要的政治意义，因为经济增长放缓有可能引起内部的不满。如果增长放缓或停滞，愿意接受日益严历的专制统治以换取更高生活水平的中共国公民可能会三思而后行。因此，中共担心出口、增长和就业的下降会带来政治后果。其它国内问题将加剧对该独裁政权的压力。 这些问题包括对房屋所有权的限制，人道福利缺失，许多中国男人找不到妻子，以及缺少子女照顾老人。如果经济停滞不前，拥有九千万党员的中共可能会发现越来越难以统治中国的14亿人口。
-
-U.S. policymakers must recognize the immense leverage they have over China. Having grown  used to China wielding its domestic market as a weapon, many in the United States seem to have  forgotten that U.S. market access is one of the most valuable prizes in the world, particularly for  the world’s largest exporter. Access to the U.S. market may therefore be the single most powerful  point of leverage in the entire competition, provided the United States can create resilient supply  chains for essential goods that do not depend on Chinese manufacturing.
-
-美国决策者必须认识到他们对中共国的巨大影响力。由于习惯了中共国将其国内市场作为武器，许多美国人似乎已经忘记了美国的市场准入是世界上最有价值的奖赏之一，尤其是对世界上最大的出口国而言。因此，美国的市场准入可能是整个竞争中最有力的一个制衡点，使美国能够为其必需商品建立弹性供应链，而不依赖中共制造业。
-
-But time may be running short to exploit this opportunity. China’s economy is not as export oriented as it once was. Exports accounted for 36 percent of China’s GDP in 2006, but only 18  percent of its GDP in 2019. America’s window of opportunity to pressure China by restricting  access to its market is closing.
-
-但是，利用这一机会的时间可能不多了。中共国经济不再像以前那样以出口为导向。2006年，出口占中共国GDP的36％，但到2019年，仅占其GDP的18％。美国通过限制其市场准入对中共国施压的机会窗口正在关闭。
-
-（未完待续）
-
-* * *
-
-### 原文链接：
-
-[Beat China: Targeted Decoupling and the Economic Long War](https://www.cotton.senate.gov/imo/media/doc/210216_1700_China%20Report_FINAL.pdf)
-
-* * *
-
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
-
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
-
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+[!\[\]()!\[\](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/VhKMOPhBdV4m1/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
