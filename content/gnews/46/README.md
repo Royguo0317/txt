@@ -1,29 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 葡萄牙接近解除全国疫情封锁
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/958742/)
+## 【香草诗词汇】酒歌（一）
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/958797/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+作者：香草山写作组 木白
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1440-【香草诗词汇】酒歌（一）-1-rotated.jpg)
+
+我想朗诵我写的诗，
+
+也想把我喝的酒分享给你。
+
+同样的味道，不同的人生。
+
+同样的醉意，不同的幻觉。
+
+同样的生活长在不同的翅膀上。
+
+用同样的胃正消化着这个虚假的世界。
+
+用押韵的味觉尝一口春天的味道。
+
+用未洗过的嘴吻一吻刚掉落的梅花。
+
+幸运的人，我听见了骨骼破碎的声音——
+
+正酿造着这座小城的孤寂。
+
+2021年3月7日
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年3月8日电/西喜社——**葡萄牙正在快速接近其解除全国疫情封锁的目标，就在几周前，葡萄牙是世界上以人口规模计受影响最严重的国家。
+审核/发稿：雪梨
 
-卫生专家在周一的电视会议上告诉葡萄牙总统和总理，到下周，每10万人14天的中共病毒新病例率预计降至60例的目标。目前是141例。
 
-该国所谓的 “R “值，即一个感染者将把病毒传给多少人，为0.74—是欧洲最低的数字之一。
 
-在重症监护室的中共病毒患者数量已经下降到240人，这大约是国家卫生服务部门能够应付的最大限度，预计到本月底将下降到120人。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-政府周四将公布一项分阶段解除1月中旬出台的封锁计划。大多数限制措施，如关闭商店、餐馆和咖啡馆，预计将持续到复活节假期后，因为希望游客能够在5月返回。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-**新闻来源：[美联社](https://apnews.com/article/coronavirus-pandemic-new-zealand-migration-europe-9b45404eca36d39c4ce2ce6daf3f0cb1)**
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d0f4b31b-77d4-47d6-85dd-9e7da45dbb00.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

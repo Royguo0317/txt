@@ -1,29 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 唐湘龙认为中共高铁2035通台北不是吹牛，他忽略了什么？
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/959296/)
+## 美日澳印四国需整合优势全面反击中共挑衅 （玫瑰看新闻二零二一年三月五日）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/959365/)
 
-**撰稿: Maarago**
-
-**审核: pv0， 慧心/Peace Wind**
-
-
-
-中共对台湾的基建计划是这几天党内官媒的热点。这一次新浪军事借着海峡时报的这个死鱼眼花瓶来继续推2035年高铁通台北的这个议题。那么死鱼眼唐湘龙说得到底有没有错？我认为是不错的，也就是说中共大肆鼓吹的2035年高铁通台北还真不是吹牛。但是死鱼眼唐湘龙作为一个台湾的政论家，作为一个台湾人，他只是在问中共是不是在吹牛，他不站在台湾或者台湾人的角度上去问一下，中共到底有什么底气来推出2035年高铁通台北这个议题？台湾的老百姓们会接受这样的方案吗？台湾的政客会接受这样的方案吗？
-
-台湾的水土养出来了唐湘龙，却并没有给他一双辨是非的眼睛。在这个死鱼眼的一脑糨糊里，他看不到台湾已经被中共视为囊中物。不仅中共已经视台湾为囊中物，而且中共已经视2300万台湾民众如无物。这样的规划需不需要台湾的行政主管部门和立法机构进行表决和确认？即使作为中共治下的一个省，这样的基建项目需不需要省政部门讨论和修订？
-
-这些问题唐湘龙通通睁着死鱼眼视而不见，他所做的就是为中共对台湾的意淫做足前戏。做前戏之后呢，就是让中共对台湾的强奸变成顺奸。变成顺奸之后呢，死鱼眼唐湘龙们再把顺奸演绎成高潮迭起的你情我愿，这就是死鱼眼唐湘龙的存在价值。
-
-台湾之不幸在于有一个随时准备对她强奸的中共环伺左右，台湾的不幸还在于有着太多的为中共一直以来对台湾的强奸摇旗呐喊的政客和媒体人士。但是我相信出卖台湾的政客和媒体人士不是台湾的全部，未来的台湾会怎样？这需要每一个不愿意被中共强奸的台湾人和大陆人站出来，这需要这个世界更多的人站出来，而这一点也是毋庸置疑。
-
-
-
-**本文仅代表作者个人观点。**
-
-* * *
-
-**发布: 法国巴黎七星编辑组**
-
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-56.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/2-27.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/3-39.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/4-23.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/5-20.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/6-19.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/7-13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/8-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/9-7.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/11-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/12-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/14.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/15.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/16-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/17-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/18-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/19-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/20-1.jpg)
 0
