@@ -1,20 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月7日中共病毒疫情要闻快报
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/957735/)
+## 【每日快讯】07/03/2021:闫博士与班农、纳瓦罗同框，代表新中国联邦对美国主流政治圈的影响
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/957823/)
 
-**重点内容：**
+**制作:Cantonese工作室**
+播报: 【安妮】
+资料整理: 【郁金香】【文-林】【文手】
+海报制作: 【侬民】【文绉绉】
+视频制作: 【Shawn】
+上传: 【Shawn】
+**摘要:**
 
-- 中共联手世卫隐瞒疫情，福奇牵涉其中；
-- 赵婷如何短短数日从”骄傲”变“辱华”？
-- 政府工作报告：解决好大城市住房突出问题；
-- 维吾尔儿童称学校讲维吾尔语会挨骂；
-- 香港经济已被共匪毁了！
-
-
-
-
-**By：【秘翻组-上天造灭疫组】**
-
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210307-zhTW-01.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210307-zhTW-02.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210307-zhTW-03.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210307-zhTW-04.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210307-zhTW-05.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210307-zhTW-06.jpg)
+7.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210307-zhTW-07.jpg)
+8.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210307-zhTW-08.jpg)
 0
