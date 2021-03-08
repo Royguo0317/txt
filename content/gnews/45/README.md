@@ -1,89 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 汤姆‧科顿议员报告（八）——《战胜中共国：针对性脱钩与经济持久战》
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/956735/)
+## 关于中共国国务院将美术正式纳入中考的感想
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/956800/)
 
-五月花写作组 ｜ 翻译：文萧 ｜ 校对：紫丁香 ｜ 编辑、美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/03/汤姆克顿V9.jpg)
-### 往期链接：
+作者：Valerio | 校对：西川stanly | 审核: Beicy-数学老师 |Page：小雨
 
-[汤姆‧科顿议员报告序言——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/918314/)
+[!\[\]()!\[\](https://spark.adobe.com/page/PknTsw8ohWomT/images/41c1f061-5904-49e6-9c67-7d1c55c60185.jpg?asset_id=0b8576ab-b288-4b84-a4ce-db4582c3d852&amp;img_etag=%2242a64b42f74087332172296d57a18f49%22&amp;size=2560)](https://spark.adobe.com/page/PknTsw8ohWomT/images/41c1f061-5904-49e6-9c67-7d1c55c60185.jpg?asset_id=0b8576ab-b288-4b84-a4ce-db4582c3d852&amp;img_etag=%2242a64b42f74087332172296d57a18f49%22&amp;size=1024)
 
-[汤姆‧克顿议员报告（一）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928067/)
+[!\[\]()!\[\](https://spark.adobe.com/page/PknTsw8ohWomT/images/e3b1ed28-cbce-4755-94ff-d42c7d76c209.jpg?asset_id=b14c05f2-224e-47a1-b74b-83ba5a25829f&amp;img_etag=%22d577191afb0864bd66a9caf2ff4f0e2a%22&amp;size=4271)](https://spark.adobe.com/page/PknTsw8ohWomT/images/e3b1ed28-cbce-4755-94ff-d42c7d76c209.jpg?asset_id=b14c05f2-224e-47a1-b74b-83ba5a25829f&amp;img_etag=%22d577191afb0864bd66a9caf2ff4f0e2a%22&amp;size=1024)
 
-[汤姆‧克顿议员报告（二）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928136/)
+这两天无意中看到一则关于中共国的新闻——国务院通知：美术正式纳入中考，2022年覆盖全国，将与语数外并肩！ 面对那些对此新闻叫好，甚至表示庆幸自己生得早的中国同学和路人甲乙丙丁的看热闹心态，那种过去在中共国无处不在的压抑和无可奈何的感觉又一次向我扑来，将我淹没。
 
-[汤姆‧科顿议员报告（三）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/931905/)
+随着中共的集权和对百姓的压迫越来越极端，中共又要加大力度地折腾小孩子了。回忆从小到大在中共国的成长，除了无知的起早贪黑，如滚雪球一般学不完记不完的知识点，就是无尽的压抑和看不到希望的绝望，在被声嘶力竭地蹂躏过后，心里剩下的就只有对这个世界的麻木，冷漠，和离开就再也不会回头的决绝。
 
-[汤姆‧科顿议员报告（四）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/935835/)
+来到欧洲几年，我真的感受到这边的社会对人的尊重，我感受到了身为一个人应该有的被尊重的感觉。虽然也有很多小的波折，但至少在西方是可以被允许像一个人一样活着的，可以被允许有自我，按照自己所想的那样去生活，没有那么多的限制和强迫。遇到不公的时候，你可以反抗，你可以叫警察，你可以在一定程度上得到相对的公平，而且结果是令人心服口服的。
 
-[汤姆‧科顿议员报告（五）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/937759/)
+反观中共国，遇到不公了你难道打110么，政府就是流氓，执法人员就是流氓，中共就是最大的流氓，对此你能做什么呢？有的人自杀了，有的人精神出了问题，有的人离开了选择放逐自己，有的人沉侵在虚假的美好里自欺欺人，还有的人无处逃离便行尸走肉一般活着，这就是中共国的现实，很魔幻，也真实无比。
 
-[汤姆‧科顿议员报告（六）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/956586/)
+学画画这么多年，我感到对美的认识就像养花养草一样，是一点点养的。每一趟旅行，每一次去逛美术馆，每看一部高质量的电影，每听一首歌，都是在对审美的培养，而不是像中共国的教育那样，让一个孩子去死记硬背知识点。为了杀死孩子尚未发育完全的大脑的脑细胞，以及通过各种考试对孩子精神的蹂躏，让本应对这个世界充满期待和好奇的心灵枯萎，凋零。失去对生命的热爱和憧憬，以及判断真假善恶是非的能力，变成一只看不到危险的鸡笼子里的鸡，时时刻刻被这个绞肉机体制牵着鼻子走，最终沦为行尸走肉，泯然众人矣。
 
-[汤姆‧科顿议员报告（七）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/956649/)
+最后我要说，我也是千千万万个中共教育下的牺牲品，中国共产党，你太坏了，你太邪恶了，你耽误了我的青春，你妨碍了我的成长，你曾让我生不如死痛恨来到这个世界。为此，我心中所有的愤恨，所有的高压，都会化成消灭你的力量，把你往死里怼，Take Down The CCP!!!
 
-* * *
+【文章仅代表作者观点】
 
-## **PRESERVE U.S. DOLLAR DOMINANCE**
+编辑：【英国伦敦喜庄园编辑部】
 
-## **保持美国的美元优势**
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
-The dollar trading system allows the United States to maintain its global financial preeminence and weaken its adversaries through non-military means. Preserving this pillar of American power therefore is a key element of competing with China.
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 
-美元贸易体系使美国能够保持其全球金融的主导地位，并通过非军事手段削弱对手。因此，维护美国力量的这一支柱是与中国竞争的关键要素。
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-The dollar is the undisputed king of global exchange, much to the CCP’s chagrin. Dollars accounted for 61 percent of known central bank foreign exchange reserves in the second quarter of 2020.132 By contrast, the Euro accounted for 20 percent of official reserves. China’s Renminbi barely cracked two percent.133 The dollar likewise is the currency of choice for virtually every kind of exchange across borders, from oil sales to debt contracts.
+[!\[\]()!\[\](https://spark.adobe.com/page/PknTsw8ohWomT/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/PknTsw8ohWomT/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
-美元是无可争议的全球货币兑换之王，这令中共十分懊恼。2020年第二季度，美元占已知央行外汇储备的61％。相比之下，欧元占官方储备的20％。中国的人民币勉强突破2％。同样地，美元也是几乎所有类型跨境交易的首选货币，从石油销售到债务合同。
-
-The ubiquity of the dollar allows the United States to weaken its enemies at relatively low cost. With the stroke of a pen, the United States can inflict tremendous damage, often equal to what otherwise could be achieved only through military operations—but without violence. For example,  Iran’s economy shrank 5.4 percent in 2018, the year the Trump administration reimposed sanctions,  and shrank again by 6.5 percent in 2019.134 The Iranian Rial, which traded at roughly 40,000-to one against the dollar on the eve of those sanctions, traded at over 300,000-to-one in October  2020.135,136 U.S. sanctions have also helped weaken the regimes of Bashar al-Assad in Syria and Vladimir Putin in Russia.137 Sanctions dampened Russia’s economic growth by as much as six percent from 2014-2018.138
-
-美元的普遍存在使美国能够以相对较低的成本削弱敌人。美国只要动动笔，就能给对手造成巨大的损失，往往相当于只有通过军事行动才能达到的效果——但没有暴力。例如，在川普政府再次实施制裁的2018年，伊朗经济萎缩了5.4%，2019年再度萎缩了6.5%。伊朗里亚尔在制裁前夕对美元的汇率为4万比1，而2020年10月，这一汇率超过了30万比1。美国的制裁也帮助削弱了叙利亚的巴沙尔·阿萨德和俄罗斯的弗拉基米尔·普京政权。2014-2018年，制裁使俄罗斯的经济增长受到抑制，降低了6％。
-
-Still, every major sanctions designation by the U.S. Treasury Department’s Office of Foreign Assets Control (OFAC) puts the U.S. dollar system at incrementally greater risk by making the dollar less appealing as a reserve currency and less reliable as a medium of exchange. This tension between the power of sanctions and the threat such sanctions pose to the dollar must be managed carefully.
-
-然而，美国财政部外国资产控制办公室（OFAC）指定的每项重大制裁措施，都使美元体系面临更大的风险，使美元作为储备货币的吸引力和作为交易媒介的可靠性降低。制裁力度与制裁对美元构成的潜在威胁之间的这种紧张关系必须谨慎处理。
-
-As Washington activates the Treasury Department against Chinese entities that violate U.S. law or threaten U.S. national security interests, it must simultaneously implement policies to modernize the dollar and make it more attractive to legitimate economic actors.
-
-华盛顿在启动财政部打击违反美国法律或威胁美国国家安全利益的中国实体时，必须同时实施使美元现代化的策略，并使其对合法的经济行为体更具吸引力。
-
-## **SLOW CHINA’S GROWTH **
-
-## **减缓中国的增长**
-
-The CCP’s ambitious political goals depend on China’s ability to become wealthier than the United States. It may have a finite window in which to achieve this goal, given impending demographic pressures.139 Beginning in 2030, the Chinese economy will lose an estimated five to ten million working-age citizens each year. By 2050, the Chinese working-age population is expected to have shrunk by 180 million people, slightly less than the entire U.S. working-age population today.140 Slower growth would force the CCP to make difficult choices about where to direct its resources.  Should it invest in anti-ship missiles aimed at U.S. warships in the South China Sea, long-range nuclear weapons, national champions like Huawei, security cameras and secret police at home, or other priorities? A China with slower growth means a CCP that has a harder time choosing “all of the above.” Resource constraints could bind the CCP just as it has to contend with a shrinking workforce and rapidly aging population, which has grown accustomed to constant improvements in quality of life.
-
-中共雄心勃勃的政治目标能否实现取决于其是否有能力变得比美国更富有。考虑到即将到来的人口压力，中国可能只有有限的窗口来实现这一目标。从2030年开始，中国经济每年将失去约500万至1000万处于就业年龄的公民。到2050年，中国的适龄工作人口预计减少1.8亿，略低于目前美国整个劳动人口的总量。增长放缓将迫使中共在资源分配方面做出艰难的选择。它应该投资于针对南海美国军舰的反舰导弹、远程核武器、华为这样的国家冠军企业、国内的安全监控摄像头和秘密警察，还是其它优先事项呢？中国经济增速放缓意味着中共很难选择“以上所有”。资源限制可能会束缚住中共，就像它必须应对不断萎缩的劳动力和人口迅速老龄化一样，因为中共已习惯了生活质量的不断提高。
-
-Additionally, slower growth likely would weaken public support for the CCP, which justifies its heavy-handed authoritarianism as the price for strong economic growth. Without consistent growth, it’s not clear how many of China’s 1.3 billion non-Party members would accept the CCP’s tactics—or even its rule.
-
-此外，增长放缓很可能会削弱大众对中共的支持，并证明其暴虐的专制主义是强劲经济增长的代价。如果没有持续的增长，不清楚中国13亿非党员中有多少人会接受中共的政策——甚至统治。
-
-Slowing China’s growth is not without risk. Such a policy could compel Beijing to drastic measures abroad to distract from problems at home or out of recognition that its strategic window of opportunity is closing. Alternatively, slower growth could make the CCP more risk-averse. China’s boldness over the past three decades has increased with its strength. Only in the last decade, near the height of China’s power, has the CCP decided to stop hiding its capabilities and intentions and compete in the open.
-
-放缓中国的增长并非没有风险。这样的政策可能会迫使北京在外部采取极端措施，以转移对国内问题的注意力，或是出于对其战略窗口正在关闭的认知。另外，增长放缓可能会使CCP更趋于规避风险。在过去的三十年中，中共的胆量随着实力的增强而增加。直到最近十年，在中国实力接近巅峰的时候，中共才决定停止隐藏自己的能力和意图，并公开竞争。
-
-However the CCP reacts, if China is placed on a slower growth trajectory, it will undeniably have fewer resources to control its citizens, intimidate its neighbors, and threaten the United States and its allies.
-
-无论中共如何反应，如果中国处于较慢的增长轨道，无可否认地，它将拥有更少的资源来控制它的公民，恐吓临国、威胁美国及其盟国。
-
-（未完待续）
-
-* * *
-
-### 原文链接：
-
-[Beat China: Targeted Decoupling and the Economic Long War](https://www.cotton.senate.gov/imo/media/doc/210216_1700_China%20Report_FINAL.pdf)
-
-* * *
-
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
-
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
-
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
-
-0
++1
