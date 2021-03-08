@@ -1,39 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 凤梨事件的省思
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/957777/)
+## 2021/03/08 美国政要等每日每日重要信息汇总
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/957731/)
 
-文章作者： 台湾准农场 云豹
-![]()![](https://gnews.org/wp-content/uploads/2021/03/擷取38.png)
-(图片来源：[自由时报](https://news.ltn.com.tw/news/life/breakingnews/3459405?utm_source=LINE&amp;utm_medium=OFFICIAL&amp;utm_campaign=ROBOT&amp;utm_content=20210308))
+经授权转载自：
 
-一名日本网友在脸书社团贴出照片，表示超市架上台湾凤梨明明比一旁的菲律宾凤梨贵上一倍，还是遭日本网友爆买清空，直呼「好厉害」。照片贴出后，引发网友热议。对此，贴文的日本网友接受本报采访，特别表示看不下去中国欺负台湾，要台湾加油。
+- 川普等政要直譯推Twitter：[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
+- 川普等政要直譯推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
+- 川普等政要直译盖文GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
 
-**评论**
 
-自从中共在无预警下突然取消台湾凤梨出口到中国，让台湾种植凤梨的农人一夕间忧心忡忡，不知道满田正待丰收采摘的凤梨如何找到出路。经过这几天政府及民间努力促销及帮忙订购消费，凤梨种植户略为解除了眼前的危机及恐慌，可是根本的问题并没有因为此次暂时性的救急处置而消失。
+3月7日继纽约时报后，福克斯新闻报道美国前总统唐纳德-川普预计将在未来几天进行离任后首次纽约之行，最快于周日晚抵达。上周五川普先生在CPAC保守党联盟会议上发表演讲，抨击现任总统拜登关于”螺旋式海啸“边境移民和无人陪伴儿童激增的问题。川普总统已经在佛罗里达州棕榈滩郡设立了一个正式的后总统办公室，从事他在1月离任后的事务。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/98245FA2-9826-4B22-A4BF-D2F577585DF2.jpeg)
+[https://www.foxnews.com/politics/trump-trip-new-york-city-florida-office-president](https://www.foxnews.com/politics/trump-trip-new-york-city-florida-office-president)
 
-问题的根源来自中共自始都是将产品的进口做为超限战的武器，且完全不遵守任何国际法律合约，从禁止进口澳洲矿砂、牛奶、牛肉、酒类，到这次突然禁止进口台湾的凤梨，这都只是中共超限战的一个手段，并不是正常的贸易问题。国际社会经由这些事件，应该要逐渐认清中共邪恶的面目，不要抱着以邻为壑，暗自心喜的心态，认为中共拒买竞争对手的产品，那我就有相对得利的机会。在中共的战略计画中，是要统治全世界，占据全世界的资源及财富为少数中共高干所有，所以各国人民及政客要借这些事件及时醒悟检讨自己国家的对中共政策，唯有一致坚持灭掉中共，全世界才有安全及和平，各国的民众也才能有安心及安全的贸易环境。
+3月6日据福克斯新闻，阿肯色州参议员汤姆-科顿（Tom Cotton）猛烈抨击参议院民主党周六通过的1.9万亿美元中共冠状病毒经济纾困法案，他列举了一些已经被定罪却可以从该法案获得疫情救济款的杀人犯。众议院民主党人计划在周二对该法案做最终批准，然后送交总统办公桌。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/EA984AB6-914A-45F4-8B29-5422F595A343.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/03/3279DA57-FCBF-4129-800F-DE8C2979312C.jpeg)
+作者：康州盘古农场 喜马拉雅的文雅
 
-至于台湾政府则应全面检讨与中共的贸易政策，如何在产品市场的区隔上做更妥善的分配，以及如何对农产的生产及销售作出更完善的事前规画，避免农民在不知情下一窝蜂的集中种植某类农作物，结果在农产品盛产后被利用成为中共统战的工具。对于农业技术的外移也要做更妥善的控管，避免台湾研发出的优秀农产品种被偷渡到中国，造成自己打自己的窘境。
+信息采集：直译推，喜马拉雅的文雅
 
-总之，台湾从个人到政府都要及时醒悟，认清中共绝对不是财神，而是瘟鬼，唯有台湾的居民团结一致对抗中共，台湾的安全才有保障。
+发布： 纽约香草山农场 shangshang
 
-(上文只是作者本人的观点，不代表G NEWS的立场)
+欢迎关注喜联盟Gnews编辑部
 
-参考资料
-
-[贴出日本超市「台湾凤梨」被清空照引热议！日本原PO说话了-生活-自由时报电子报(ltn.com.tw)](https://news.ltn.com.tw/news/life/breakingnews/3459405?utm_source=LINE&amp;utm_medium=OFFICIAL&amp;utm_campaign=ROBOT&amp;utm_content=20210308)
-
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
-
-文章审核：zhong
-
-文章发布：Little Liu
+[https://gnews.org/zh-hans/author/gnews-editorial-team/](https://gnews.org/zh-hans/author/gnews-editorial-team/)
 
 0
