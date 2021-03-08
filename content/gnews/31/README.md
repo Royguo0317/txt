@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 1/03/2021拜登政府是否会延续同中共的对抗政策（粤语版）
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/957468/)
+## 3/03/2021纳瓦罗担心CCP病毒是一种生物武器（粤语版）
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/957535/)
 
-摘要：纳瓦罗在战斗室谈华尔街日报的文章，说美国需要摆脱对中共的经济依赖，干掉共产党，看看拜登和民主党政府是否会延续川普总统的政策。
+摘要：班农战斗室——纳瓦罗担心CCP病毒是生物武器
 
 **By： 【秘密翻译组 G-Translators】**
 
