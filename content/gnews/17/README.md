@@ -1,49 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共病毒疫苗接种会导致孕妇流产或死胎
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/957325/)
+## 没有群体免疫！不依据闫博士的信息研究的疫苗不可能是有用的疫苗！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/957517/)
 
-作者：纽约香草山写作组 四季
+新闻简述：2021年3月1日晚在接受路德采访时，闫丽梦博士重申她早在2020年2月份就已经说过的，不要指望群体免疫。她强调：没看懂闫博士系列报告[1-3]的人研制的疫苗不可能有效；“推动病毒真相，尤其以病毒真相主导来灭共，这个是势不可挡的一个历史大潮。”
 
+[1] [SARS-CoV-2基因组的不寻常特征表明其经过复杂的实验室改造而非自然进化，以及对其可能的合成过程的描述 （中英文对照版）](https://gnews.org/zh-hans/357190/)
 
+[2] [闫丽梦博士第二篇报告：经由揭露大规模有组织的学术欺诈而证实SARS-CoV-2是一种超限生物武器 （中英文对照版）](https://gnews.org/zh-hans/412951/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+[3] [【中英文对照PDF版】闫博士报告三：CNN 用谎言和虚假资讯对新冠病毒(SARS-CoV-2)的起源搅浑水](https://gnews.org/zh-hans/581750/)
 
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
+视频来源：[https://youtu.be/hl-v5jp9vxQ](https://youtu.be/hl-v5jp9vxQ) (1:12:13-1:16:13)
 
-据[*humansarefree.com*](https://humansarefree.com/2021/03/miscarriages-and-stillbirths-after-taking-covid-19-vaccines.html)网站3月4日报道，美国疫苗不良事件报告系统 (VAERS) 收到接种中共病毒疫苗后发生流产或死胎的案例报告。其中，美国有34例，英国有8例。
+鸣谢：感谢喜马拉雅华盛顿DC农场的茅屎坑、青桐、kimkim(文沙)、墨墨十七，提供中文文本于 [https://gnews.org/zh-hans/942139/](https://gnews.org/zh-hans/942139/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image-70.png)图源网络
+* * *
 
-不良事件报告系统 (VAERS) 是一个被动报告系统，方便人们提交疫苗接种后的不良事件报告。它由美国疾病控制和预防中心（CDC）和食品和药物管理局（FDA）管理。
+翻译：【一花一世界】校对：【奔腾的长江】【Isaiah4031】【BruhM】字幕：【奔腾的长江】编辑：【Isaiah4031】喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
-疾病控制和预防中心（CDC）在“怀孕或哺乳期人群接种疫苗注意事项”的指导意见中称，“属于建议接种中共病毒疫苗群体的孕妇或哺乳期妇女，如医护人员，可以选择接种”。
-
-世界卫生组织表示，孕妇感染严重中共病毒的风险比非孕妇高，而且中共病毒与早产风险增加有关。但由于数据不足，目前不建议孕妇接种疫苗，除非她们是高风险暴露者，比如医护人员。
-
-在去年12月发表的有关这个问题的文章中揭示，新的mRNA疫苗可能导致免疫细胞攻击胎盘细胞，导致女性不孕、流产或婴儿出生缺陷。之所以没有准确的孕妇数据，是因为辉瑞和莫德纳都没有对孕妇和哺乳期妇女进行中共病毒疫苗的临床试验。不过，辉瑞公司目前正在针对处于孕期第二个月或第三个月的孕妇进行第二和第三个阶段的试验。
-
-据山间医学中心（Intermountain Healthcare）的医生披露，最近接种中共病毒疫苗的女性可能会出现乳腺癌的症状，这是该疫苗的副作用。
-
-此外，一组研究人员去年12月21日在《柳叶刀》医学杂志上警告说，目前正在研发的中共病毒疫苗可能会增加感染艾滋病（HIV）的风险，有可能导致感染的增加。同时，美国联邦官员正在调查中共病毒疫苗接种者出现了罕见血液疾病——血小板减少症的情况，至少有几例导致死亡。
-
-随着时间的推移，接种中共病毒疫苗后的死亡案例，尤其是发生在养老院的死亡案例不断的被报告。同时，在英国就报告了超过10万个副作用案例。事实证明，接种中共疫苗的风险是显而易见的，应该引起高度的重视。
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-0
++1
