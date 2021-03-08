@@ -1,45 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国军费预算突破两千亿美元，实际数字或被低估
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/957674/)
+## 2021/03/08 美国政要等每日每日重要信息汇总
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/957731/)
 
-撰稿：Gradient Boost
-![]()![](https://gnews.org/wp-content/uploads/2021/03/801.png)图片来源：Pexels免费照片素材库；作者：Carmen Attal
-根据中共国墙内多家媒体报道，中共国2021年国防预算支出将比2020年增长6.8%，达到13553亿元人民币左右，折合美金则突破2000亿大关。中共国大内宣对于军费支出新纪录则出现了人格分裂的症状：一方面称中共国的军事发展是防御型的，不对任何国家造成威胁；另一方面则大谈军费乃是走向世界舞台的投资——请问依靠增加军备走向世界，意思难道不正是动用武力增加自身影响么？怎么叫做没有威胁？
+经授权转载自：
 
-根据新浪网的数据，2016年到2020年，中共国军费支出增长分别为7.6%、7%、8.1%、7.5%以及6.6%，2021年的军费预算增长略高2020年一点，也就是0.2%左右。虽然从增长率观察，中共国今年军费增长有放缓趋势，但如果从增长量来说，自2012年以来，中共国军费开支便一直保持稳步增长，基本来说每年的增长量大概在100亿左右。
+- 川普等政要直譯推Twitter：[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
+- 川普等政要直譯推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
+- 川普等政要直译盖文GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
 
-军费增长率放缓的另外一点，笔者认为，和中共国的经济大背景及疫情也有一定关系。根据笔者在网络上检索的出的信息，中共国2019年到2021年的一般公共开支增幅分别为8.1%、3.8%和1.8%，下降非常明显。相比而言，中共国军费的增长依然还维持在一个稳定水平，并且又有开始增加的倾向。
 
-一般公共支出大部分都属于民生福祉领域的开支，比如说教育、医疗、社会保障及就业等。中共国在社会经济因疫情和贸易摩擦出现困难的情况下并未将侧重点放在百姓的生计问题上，而是首先确保军事方面的平稳发展，符合先军政治的思想特点。
+3月7日继纽约时报后，福克斯新闻报道美国前总统唐纳德-川普预计将在未来几天进行离任后首次纽约之行，最快于周日晚抵达。上周五川普先生在CPAC保守党联盟会议上发表演讲，抨击现任总统拜登关于”螺旋式海啸“边境移民和无人陪伴儿童激增的问题。川普总统已经在佛罗里达州棕榈滩郡设立了一个正式的后总统办公室，从事他在1月离任后的事务。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/98245FA2-9826-4B22-A4BF-D2F577585DF2.jpeg)
+[https://www.foxnews.com/politics/trump-trip-new-york-city-florida-office-president](https://www.foxnews.com/politics/trump-trip-new-york-city-florida-office-president)
 
-另外笔者需要提醒的是，正如许多评论家所言，中共国公布的国防费用开支实际上是被低估的。德国专家Pascal Abb在接受德国之声采访时就明确表示，中共国的军费开支中并没有包含武警部门。而武警实际上也是隶属于中央军事委员会的部门之一，2018年后甚至还吞并了海警部门。
+3月6日据福克斯新闻，阿肯色州参议员汤姆-科顿（Tom Cotton）猛烈抨击参议院民主党周六通过的1.9万亿美元中共冠状病毒经济纾困法案，他列举了一些已经被定罪却可以从该法案获得疫情救济款的杀人犯。众议院民主党人计划在周二对该法案做最终批准，然后送交总统办公桌。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/EA984AB6-914A-45F4-8B29-5422F595A343.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/03/3279DA57-FCBF-4129-800F-DE8C2979312C.jpeg)
+作者：康州盘古农场 喜马拉雅的文雅
 
-就在今年2月1日，全新的《海警法》正式生效，确认了海警在执法时拥有武力驱逐的权限，构成了对周边临近国家比如日本的威胁，光是2月份侵入日本领海的累计时间就已经达到六天。
+信息采集：直译推，喜马拉雅的文雅
 
-中共的军民融合政策令许多高等学府也都拥有不少带军方背景的研究设施和实验机构，这些部门的预算和开支，也很有可能并没有被算在国防军事的范畴内，甚至有可能被归入了教育支出环节。
+发布： 纽约香草山农场 shangshang
 
-诸位读者更应该注意的是，中共国在超限战领域的支出投入也是一笔庞大的未知数，其威胁程度和破坏性还要远大于军事装备。2020年中共病毒的大面积爆发已经证明了这个论点，而制造病毒的研究经费显然不会算在国防支出中，说不定还会被讽刺性地划入医疗卫生的行列。
+欢迎关注喜联盟Gnews编辑部
 
-新闻参考链接：
+[https://gnews.org/zh-hans/author/gnews-editorial-team/](https://gnews.org/zh-hans/author/gnews-editorial-team/)
 
-[新 HYPERLINK “https://news.sina.com.cn/zx/2021-03-05/doc-ikftpnnz2499153.shtml”浪 HYPERLINK “https://news.sina.com.cn/zx/2021-03-05/doc-ikftpnnz2499153.shtml”新闻 HYPERLINK “https://news.sina.com.cn/zx/2021-03-05/doc-ikftpnnz2499153.shtml”之一](https://news.sina.com.cn/zx/2021-03-05/doc-ikftpnnz2499153.shtml) （中共国墙内媒体）
-
-[新 HYPERLINK “https://news.sina.com.cn/c/2021-03-07/doc-ikkntiak5719980.shtml”浪新闻 HYPERLINK “https://news.sina.com.cn/c/2021-03-07/doc-ikkntiak5719980.shtml”之二](https://news.sina.com.cn/c/2021-03-07/doc-ikkntiak5719980.shtml)（中共国墙内媒体）
-
-[第一财经](https://www.yicai.com/news/100921639.html)（中共国墙内媒体）
-
-[东方 HYPERLINK “http://finance.eastmoney.com/a/202103061833187783.html”财富网](http://finance.eastmoney.com/a/202103061833187783.html)（中共国墙内网站）
-
-[中共国政府网站](http://www.gov.cn/xinwen/2020-02/10/content_5476906.htm)
-
-[联合早报](https://www.zaobao.com.sg/realtime/china/story20210307-1129413)
-
-[德国之声](https://www.dw.com/zh/%E4%B8%93%E8%AE%BF%E4%B8%AD%E5%9B%BD%E5%86%9B%E8%B4%B9%E9%AB%98%E4%B8%8D%E9%AB%98-%E5%85%B3%E9%94%AE%E7%9C%8B%E5%92%8C%E8%B0%81%E6%AF%94/a-56786926)
-
-（本文纯属个人观点）
-
-审核：Runaway 编辑：MG1
-![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
 0
