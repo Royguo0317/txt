@@ -1,62 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年1月23日第15期围炉夜话直播精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/956698/)
+## 俄罗斯和法国暗中相互驱逐外交官
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/956811/)
 
-整理：桂花酒 | 素材制作: 健身健心、Bobby | 审核: Beicy-数学老师 | Page：小雨
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-**自由的代价是永恒的警惕**
+编辑上传 水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/F-3.jpg)112.international
+03月06日，据法国《回声报》杂志援引消息人士的话报道，在间谍活动的指责下，巴黎和莫斯科已经秘密相互驱逐了外交官。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ewZ5CWitp1Yzg/images/eb22ae76-1440-475e-9041-1ad5436fdd4c.png?asset_id=55f546a7-e1b6-4136-8e40-f6c56c4c8e71&amp;img_etag=%22df5cc2346072227871f9d50cc856e381%22&amp;size=2560)](https://spark.adobe.com/page/ewZ5CWitp1Yzg/images/eb22ae76-1440-475e-9041-1ad5436fdd4c.png?asset_id=55f546a7-e1b6-4136-8e40-f6c56c4c8e71&amp;img_etag=%22df5cc2346072227871f9d50cc856e381%22&amp;size=1024)
+据其消息来源称，俄罗斯驻法国大使馆经济处的一名成员“被抓到从事间谍活动”，后来他被驱逐出国。
 
-《缪斯殿堂》之”围炉夜话” 第10期(2020年12月19日）
+《回声报》写道，俄罗斯进行了报复，并驱逐了法国驻俄罗斯大使馆经济部门的一名成员。
 
-[直播视频1链接：https://gtv.org/video/id=600c11b5dad90a755d55ba44](https://gtv.org/video/id=600c11b5dad90a755d55ba44)
+RBC向外交部新闻处和法国驻俄罗斯大使馆发出询问。
 
-[直播视频2链接： https://gtv.org/video/id=600c2830dad90a755d55ea66](https://gtv.org/video/id=600c2830dad90a755d55ea66)
+近日，法国总统埃马纽埃尔·马克龙多次强调欧盟与俄罗斯对话的重要性。2月初，他表示，欧盟应该保持与俄罗斯现有的沟通渠道，“即使在俄罗斯目前的政治领导下”也要寻找新的沟通渠道。“没有对话，就无法保证稳定，所以我们需要与俄罗斯对话。”马克龙认为。
 
-上期我们谈到高科技的独裁让我们付出自由的代价，本期我们继续讨论自由的代价是永恒的警惕（杰弗逊名言）。
+他认为，对于反对派人士阿列克谢·纳瓦尔尼回俄后被捕、伊夫·罗切尔案缓刑改为实刑的情况，以及在乌克兰等其他一些问题上，应该保持强硬立场，但在其他领域应该进行谈判。
 
-早在1958年，《裸体的共产党人》作者克里昂•斯葛森（前FBI探员）就披露共产党用摧毁家庭，支持环保运动毁掉私营企业，同性恋毁灭建立在宗教信仰上的文化等45项周密的计划颠覆美国（想想如今的好莱坞、NBA这些美国GDP占比第一被中共渗透的文化产业）。
+后来在2月的慕尼黑安全会议上，马克龙在演讲中提出建立国家间新的安全和信任架构，其中包括与俄罗斯的对话。
 
-美国大选展示的美国社会左倾，让向往自由民主的人们错谔。而善于钻人性空子蓝金黄的中共更让大规模的洗脑成为可能。
+一年前，法国总统主张与俄罗斯进行更多的战略对话，同时他的价值观也没有退缩。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/ewZ5CWitp1Yzg/images/581d9799-779f-4c66-8b8c-f4e499f1fd05.png?asset_id=1b5ca659-0e41-4257-9d1b-3e860c715b43&amp;img_etag=%22f1392dbb6faab81115fd6c19ad83d636%22&amp;size=1024)](https://spark.adobe.com/page/ewZ5CWitp1Yzg/images/581d9799-779f-4c66-8b8c-f4e499f1fd05.png?asset_id=1b5ca659-0e41-4257-9d1b-3e860c715b43&amp;img_etag=%22f1392dbb6faab81115fd6c19ad83d636%22&amp;size=1024)
+法国上一次驱逐俄罗斯外交官是在2018年3月，因为前GRU上校谢尔盖·斯克里帕尔（Sergei Skripal）和他的女儿中毒事件。当时，俄外交使团的4名成员离开了法国；俄罗斯做出了类似镜子般的回应。巴黎表示，对莫斯科的报复性回应并不感到惊讶，但感到遗憾。
 
-中共国只讲独裁政治，不讲亲情的人间悲剧开始在美国上演。美国人丹尼斯‧普拉格在推特上感慨道，“女儿举报母亲，我从来没想过这会发生在美国”。除此之外，因为疫情，美国人接受了前所未有的警察式国家的限制——诸如推特的审查，剥夺医生和科学家的言论自由。在开放的社会里，人们的警惕性下降了。对于左派的乌托邦主义迷惑性明显缺乏认识，加上后来利益集团输血养成了今天庞大的红魔。大多数美国左派不过是列宁口中有用的白痴们。 “等待枪决是一个折磨了我一辈子的主题”（肖斯塔科维奇），布拉格在流血时左派们对此视而不见的虚伪，“文化马克思主义”都是左派的真实面目，目标是给年轻一代洗脑。
+参考链接：
 
-在当下有一半美国人，害怕在公众场所说出自己的想法（丹尼斯‧普拉格）。刘瑜也在其著作《大学向左，草根向右》提到的2005年，美国大学被渗透实际是披上“政治正确”马甲的旧瓶新酒，目的在于对真正的言论自由实施压制。中共的1619项目，大选期间经历的暴力与混乱，黑命贵、安提法等等都已经公然践踏社会秩序。不难看出，这些都是共产党（孔子学院等大外宣）与左派内外勾结“蚕食美国”的恶果。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/ewZ5CWitp1Yzg/images/332cbd62-8f3f-4b4c-8650-df43a7920806.png?asset_id=0ea37b9c-a5dd-44ed-b747-258ace8fd6df&amp;img_etag=%22a255ebbc0f3c7b97656c388a8baf4952%22&amp;size=1024)](https://spark.adobe.com/page/ewZ5CWitp1Yzg/images/332cbd62-8f3f-4b4c-8650-df43a7920806.png?asset_id=0ea37b9c-a5dd-44ed-b747-258ace8fd6df&amp;img_etag=%22a255ebbc0f3c7b97656c388a8baf4952%22&amp;size=1024)
-
-当带血的中共带给世界虚幻时，西方多数民众并不知道墙内百姓正在水深火热之中。而低人权、低环境的贸易顺差恰恰冲击了西方经济并深刻影响到他们的生活。当被利益绑架后的西方想摆脱时，只有壮士断腕了。多数民众不关心政治已经在中共病毒的冲刷下也朝不保夕了。
-
-我们必须用行动唤醒人们，因为自由的代价是普通人民不能承受之重，并且永远警惕一切不受约束的权利。
-
-**《缪斯殿堂》之”围炉夜话”**
-
-- **主播**：一九八四
-- **嘉宾**：宁缺、BOBBY、桂花酒、健身建心
-- **导播**：扎西卓玛
-
-
-**[GTV-UK-2号台 每周六直播](https://gtv.org/user/5fb02ac8bd0d464fad04dfdb)**
-
-- 英国时间：12.00–14.00
-- 美东时间：7.00—9.00
-- 盘古时间：20.00—22.00
-
-
-*欢迎关注英国伦敦喜庄园艺术组《缪斯殿堂》节目*
-
-编辑：【英国伦敦喜庄园编辑部】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [请订阅 英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/ewZ5CWitp1Yzg/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/ewZ5CWitp1Yzg/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[https://www.rbc.ru/politics/06/03/2021/604321b69a79475906ad7592](https://www.rbc.ru/politics/06/03/2021/604321b69a79475906ad7592)
 
 0

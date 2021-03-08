@@ -1,65 +1,97 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 从“爱国者治港”看中共“一国两制”的完美欺骗
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/956504/)
+## 汤姆‧科顿议员报告（六）——《战胜中共国：针对性脱钩与经济持久战》
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/956586/)
 
-**作者：墨尔本雅典娜农场 人民公敌**
+五月花写作组 ｜ 翻译：jiasen ｜ 校对：紫丁香 ｜ 编辑、美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/03/汤姆克顿V7.jpg)
+### 往期链接：
 
-时值中共国两会召开之际，全国人大常委会提请人大会议审议《全国人民代表大会关于完善香港特别行政区选举制度的决定（草案）》[1]。由此，以制度支撑“爱国者治港”的论调响彻中共媒体，为中共彻底摧毁“一国两制”奏响了胜利的凯歌。
+[汤姆‧科顿议员报告序言——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/918314/)
 
-**以“一国两制”换取对香港的主权**
+[汤姆‧克顿议员报告（一）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928067/)
 
-形成于1984年的《中英联合声明》[2]，由中共政府和英国政府协商而成。中共政府承诺香港地区在被中共国政府恢复行使主权后，实行“一国两制”，即香港不实行社会主义制度，依旧保持资本主义制度50年不变，“除外交和国防事务属中央人民政府管理外，香港特别行政区享有高度的自治权”。
+[汤姆‧克顿议员报告（二）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928136/)
 
-在中共政府恢复对香港行使主权以前，香港社会因英国资本主义制度的管理而获得了先进的社会文明，香港人成了这个世界上最受尊重的人群之一，中国内地的很多有钱人也对香港充满了向往。这是因为资本主义制度将国家管理权力分散持有的方式，使权力之间相互制约制衡，人们可以在规则之内自由地“存在”，不受他人意志的束缚，这样的社会环境有利于人们形成较高的自律性，也有利于激发人的创造力。
+[汤姆‧科顿议员报告（三）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/931905/)
 
-社会主义制度的特性是高度集权，容易形成国家管理的极权统治。如中共国的全国人民代表大会，看上去是人大代表在“代表”民众行使投票权，实则是这些被中共遴选出的“人大代表”在遵照中共旨意进行“投票”。这是由于中共一党统治决定了实际管理国家的政府受中共党派控制，国家机器与社会资源分配权统统被中共掌控。这就如同一手拿大棒一手拿糖果的家长在管理家庭时，对不顺从自己旨意的家庭成员，要么以糖果利诱，要么大棒伺候。谁敢在大棒之下对中共说“不”呢？
+[汤姆‧科顿议员报告（四）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/935835/)
 
-**一国中的“两制”互不兼容**
+[汤姆‧科顿议员报告（五）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/937759/)
 
-截止目前，这个世界上唯一敢对中共的大棒说“不”的，就是身处另外一个制度里的香港人。
+* * *
 
-在《中英联合声明》中，对于香港特区政府的行政人员，中共政府声明：“香港特别行政区政府由当地人组成。行政长官在当地通过选举或协商产生，由中央人民政府任命。主要官员由香港特别行政区行政长官提名，报中央人民政府任命。”这样的权力制衡规则适合具有高度自律性和契约精神的文明社会，对以玩弄阴谋和权术起家的中共来说，则留下了一个大大的漏洞。这是中共利用文明社会的契约精神在中英联合声明里设下的一个圈套。
+## **CHINA’S RELIANCE ON THE UNITED STATES **
 
-从文明社会的契约精神来讲，香港的行政长官首先应是由民众选举而出，中央人民政府的任命只是一个程序而已，真正对行政长官有权力约束的是民意，而非中共中央政府。但对中共这种毫无信用可言的流氓政党来说，这样的声明如同虚设——尽管香港人有权选出港区的主要管理者，但最终在位者的合法性被中共操控，这为中共操纵港区管理者人选大开方便之门。港区历任行政长官如董建华、梁振英、林正月娥等人的施政表现已经表明中共对行政长官的操控。
+## **中共国对美国的依赖**
 
-2019年2月，港区政府宣布修订《逃犯条例》，引起了香港市民的不满。6月，为反对港区政府修例，上百万的香港人勇敢地走上街头和平抗议，这被外界称之为“反送中运动”。不料此运动被中共利用——唆使匪徒混入游行队伍制造暴力事件，以此栽赃陷害和平抗争的游行者。随后，更有“黑警”遍布香港街头滥捕抗争人士，众多青少年在此过程中被消失、被自杀、被跳海、被奸虐……这些勇敢的香港人就是中共口中的“反中乱港分子和本土激进分离势力”。
+While the United States relies on China in key areas, the knife cuts both ways; one country’s point  of exposure is another’s point of leverage. Indeed, China’s fortunes are tied to the United States  more closely than ours are to China, a fact that American strategists must keep in mind.
 
-反送中运动持续一年多时间。在此期间，香港特首林正月娥毫无忌惮地选择站在香港民众的对立面，替中共站台。但经过英国社会文明上百年熏陶的香港人中，尚存一些有良知的正义之士，从特区政府的议会到司法部门，均有人挺声而出，依法声援反送中运动。这让中共在挥舞大棒之时感到碍手碍脚，进而恼羞成怒。
+尽管美国在关键领域依赖中共国，但这是一把双刃剑。 一个国家的曝光点恰是另一个国家的制衡点。 实际上，中共国的命运与美国的关联，远比我们的命运与中共国的关联更紧密，这是美国战略家必须牢记的事实。
 
-不论中共勾结港区政府采用何种反人类手段，压制香港人的抗争，但香港民众面对中共的血腥镇压毫无惧色，一如既往地坚持抗争，这让中共怒不可遏。香港人不屈不挠地依法争取自己权益的精神，将中共逼进了死角，但也让中共嗅出了可趁之机。
+China relies on the United States to access high-end research and technology. It embeds agents in  U.S. research and development institutions in order to acquire early-stage research at minimal cost  and risk. Chinese firms then apply this research, scale it quickly, and compete with U.S. firms  in the global marketplace on unfair terms. Qiaohai Shu of the China Academy of Social Sciences  (CASS) explained the logic behind this strategy when he wrote, “Innovation is time-consuming,  laborious and risky…but when it comes to *applying*technology, the opportunity cost to leap ahead  is low, the chances of success are high.”
 
-**以制度收官“一国两制”的完美欺骗**
+中共国依靠美国获得高端研究和技术。它将间谍隐藏在美国研发机构中，以便以最低成本和风险获得早期研究成果。然后，中共国公司就应用这些研究成果，迅速扩大规模，在全球市场与美国公司进行不公平竞争。中共国社会科学院（CASS）的乔海曙解释了该策略背后的逻辑，他写道：“创新既费时、费力，又有风险……但是，在应用技术方面，实现超越的机会成本很低， 而成功的几率却很高。
 
-2020年6月30日，中共全国人大常委会以全票通过《中华人民共和国香港特别行政区维护国家安全法》（以下简称“香港国安法”），港区政府当日紧急宣布该法于当晚11时正式生效[3]。根据该法规定，凡依法对抗暴政的民众，皆可被港区政府以“分裂、颠覆国家政权、恐怖活动、勾结外国或境外势力危害国家安全”之名入罪。
+This strategy helps explain why China allocates only six percent of its R&D budget to basic  research, while the United States allocates 17 percent.It also sheds light on why Beijing spends  a whopping 84 percent of its R&D funds on experimental development while the United States  spends only 63 percent.
 
-尽管《中英联合声明》赋予了香港高度的自治权，除外交与国防事务以外，香港特区享有“行政管理权、立法权、独立的司法权和终审权”[4]，但香港在成立特别行政区前所适用的原有法律与《基本法》相抵触部分不予保留，而香港的《基本法》由受中共操控的全国人民代表大会制定颁布。可见，香港特区名义上享有立法权，但其所立法律仍然逃不过中共的控制。这是中共在《中英联合声明》里为“合法”摧毁“一国两制”埋下的一颗雷。《香港国安法》的出台，表明中共开始引爆这颗雷。
+这一策略有助于解释为什么中共国仅将其研发预算的6％分配给基础研究，而美国却达到17％。这也揭示了为什么北京将高达84%的研发资金用于实验开发，而美国只花费63%。
 
-尽管《香港国安法》被外界称之为“恶法”，但此法客观上对习惯了法治的香港人仍然起到了一定的约束作用，此恶法的出台也使得部分抗争人士被捕。然而，香港特区的司法系统在判决涉国安法的案件时，部分法官仍然秉持公平、正义的法官精神，并未像中共控制的大陆法庭那样罔顾法律与事实证据，唯中共之意审判案件。这让中共再次感到了“爆雷”时的碍手碍脚。或许，这也是让中共爪牙视港区管理者为“忠实废物”的原因。
+Access to American research and innovation is therefore a central plank in China’s long-term  economic, military, and political planning. Chinese strategists fret, with good reason, about a  “high-tech blockade” that could slow the country’s economic development.
 
-在香港特区高度享有的自治权里，行政管理和立法体系已被中共蹂躏践踏于脚下，唯有“独立的司法权和终审权”让中共无法明目张胆地进行干预。若中共欲将香港的司法系统完全置于自己操控之下，唯有将顺从自己旨意的爪牙安置于重要的位置，美其名曰“爱国者治港”。如此，香港特区名义上行使“独立”的司法权和终审权，实则被中共全面拿下其“自治权”。
+因此，获得美国研究和创新成果是中共国长期经济，军事和政治规划的核心内容。中共国的战略家们有充分理由担心“高科技封锁”会减缓中共国的经济发展。
 
-因此，在今年的中共两会上，全国人大常委会提出议案要“完善”港区选举制度。中共企图通过此举，让所有的重要位置由中共甄选出的人员占据。如此，香港就与大陆的少数民族地区别无二致——虽享有高度的“自治权”，但所有的权力都牢牢掌握在中共手里。从此以后，香港特区所谓的“选举”就如同中共国的全国人民代表大会“选举”国家领导人一样的滑稽可笑，所谓的“一国两制”就此成了一个有着“完美欺骗”背景的历史名词。
+Washington could confound and disrupt the CCP’s economic strategy by ending this parasitic  relationship. If China is denied access to U.S. research and high-end technology, such as  semiconductors, it would have to make additional investments in basic research. These investments would be funded by a smaller economy with a more burdensome debt load—  China’s total domestic debt was an estimated 335 percent of GDP in late 2020. Beijing  would have to make these investments while simultaneously maintaining its proficiency in  experimental development, rapid scaling, and production. This would tax China more severely  than the status quo.
 
-香港尚且如此，那么，中共一直欲以“一国两制”拿下的台湾呢？此外，中共会不会将这套“完美欺骗”的手法运用到全世界？
+通过终止这种寄生关系，华盛顿可以打乱并挫败中共的经济战略。如果中共国被剥夺了获得美国研究成果和半导体等高端技术的机会，它将不得不在基础研究上进行额外投资。这些投资或将由债务负担更加沉重、规模更小的经济体来承担——到2020年末，中共国的国内债务总额预计占GDP的335％。中共国将不得不在保持其实验开发，快速扩张，和生产方面熟练程度的同时，进行这些投资。这会使中共国的内耗比现有状况更为严峻。
 
-**(文章只代表作者观点，与Gnews网站无关)**
+Foreign investment is another key point of reliance in the U.S.-Chinese economic  relationship. U.S. real estate and equities are a safe harbor for Chinese companies and elites,  although strict controls imposed by the CCP in 2017 to stabilize the balance of payments  have curtailed capital flight.
 
-**参考链接**：
+外国投资是美中经济关系的另一关键依赖点。尽管中共在2017年为稳定国际收支平衡而实施了严格的管制，遏制了资本外逃，美国的房地产和股票市场仍是中共国公司和精英阶层的避风港。
 
-[1][“爱国者治港”必须有制度支撑 完善特区选举制度非常必要和迫切](http://lianghui.people.com.cn/2021npc/n1/2021/0306/c435267-32044108.html)
+American investment, meanwhile, plays a critical role in China’s economic rise. This  investment lends legitimacy to the CCP, builds its industrial and technological capabilities,  and creates a political constituency within the United States committed to preventing  confrontation with the CCP. Reducing this investment would do material harm to China’s  economy, international standing, and, potentially, the CCP itself.
 
-[2] [中华人民共和国政府和大不列颠及北爱尔兰联合王国政府关于香港问题的联合声明](https://www.cmab.gov.hk/gb/issues/jd2.htm)
+同时，美国的投资对中共国经济的崛起起着至关重要的作用。这样的投资导致中共具有了合法性，增强了它的工业和技术实力，并在美国内部建立了一个政治团体，致力于防止与中共对抗。减少这样的投资将对中共国的经济、其国际地位，乃至中共本身造成切实打击。
 
-[3] [香港国安法正式生效](https://baijiahao.baidu.com/s?id=1670940182116654027&amp;wfr=spider&amp;for=pc)
+Another related point of reliance is China’s ability to list companies on U.S. stock exchanges,  despite its refusal to comply with the Security and Exchange Commission’s auditing  standards. This refusal spurred Congress to pass legislation, co-sponsored by Senator Cotton  and signed into law late last year, that delists Chinese and Hong Kong-based companies from  U.S. stock exchanges if they fail to comply with audits by the Public Company Accounting  Oversight Board (PCAOB). The combined market capitalization of the more than 250  Chinese and Hong Kong firms listed on U.S. exchanges is over $2 trillion.
 
-[4] [联合声明附件一](https://www.cmab.gov.hk/gb/issues/jd3.htm)
+另一个相关依赖点是，尽管中共国拒绝遵守美国证券交易委员会（SEC）的审计标准，但它仍具有使其公司在美国证券交易所上市的能力。这种拒绝促使国会通过了一项由参议员科顿共同发起，并于去年年底签署的立法，该法规定如果中共国和香港公司不遵守上市公司会计监督委员会的（PCAOB）审计程序，就会被退市。在美国证券交易所上市的250多家中共国和香港公司的总市值超过2万亿美元。
 
-***责任编辑：华盛顿DC农场 光之子(沙加)***
+Meanwhile, China’s access to the U.S. dollar and dollar-denominated trading system is another  point of leverage for the United States. Because most dollar transactions clear through the  American financial system, the United States has the power to block, hold, or otherwise  intervene in many Chinese transactions.
 
-***校对：温哥华圆成农场  比卡丘***
+同时，中共国进入美元和以美元计价的贸易体系是美国的另一个制衡点。因为大多数美元交易都是通过美国金融系统进行清算的，所以美国有能力阻止，控制或以其他方式干预许多中共的交易。
 
-***发布：盘古人生***
+China also depends on access to the U.S. market, which received 19 percent of China’s exports  in 2018. The U.S. export market is an irreplaceable outlet for goods generated by China’s  oversupplied economy. Though China has made efforts to accelerate domestic innovation and  reduce its reliance on exports, it is a long way from matching the strength of U.S. innovation  or becoming as self-contained as the American economy. The large trade surplus China runs  with the United States is thus both a sign of China’s remarkable productive capacity and a  potential weakness the United States can exploit.
+
+中共国还依赖美国市场的准入，美国市场在2018年接收中共国出口总量的19％。美国出口市场是中共国经济供过于求所生产的商品不可替代的出口。尽管中共国已经努力加快国内创新，减少对出口的依赖，但距离与美国创新实力相匹配，或者像美国一样经济自成一体还相去甚远。因此，中共国对美国的巨额贸易顺差既是中共国显著生产能力的标志，又是美国可以利用的潜在弱点。
+
+This dynamic has important political implications because slower growth has the potential  to cause internal discontent. Chinese citizens willing to accept an increasingly heavy-handed  authoritarian state in exchange for a higher standard of living may think twice if growth slows  or stagnates. As a result, the CCP fears that declines in exports, growth, and employment could  pose political liabilities. Other domestic problems would intensify pressure on the regime. These  problems include restrictions on home ownership, the absence of a humane welfare state, the inability of many Chinese men to find wives, and a lack of children to care for the elderly.The 90-million-member CCP may find it increasingly difficult to govern China’s 1.4 billion  people if the economy stagnates.
+
+这种动态具有重要的政治意义，因为经济增长放缓有可能引起内部的不满。如果增长放缓或停滞，愿意接受日益严历的专制统治以换取更高生活水平的中共国公民可能会三思而后行。因此，中共担心出口、增长和就业的下降会带来政治后果。其它国内问题将加剧对该独裁政权的压力。 这些问题包括对房屋所有权的限制，人道福利缺失，许多中国男人找不到妻子，以及缺少子女照顾老人。如果经济停滞不前，拥有九千万党员的中共可能会发现越来越难以统治中国的14亿人口。
+
+U.S. policymakers must recognize the immense leverage they have over China. Having grown  used to China wielding its domestic market as a weapon, many in the United States seem to have  forgotten that U.S. market access is one of the most valuable prizes in the world, particularly for  the world’s largest exporter. Access to the U.S. market may therefore be the single most powerful  point of leverage in the entire competition, provided the United States can create resilient supply  chains for essential goods that do not depend on Chinese manufacturing.
+
+美国决策者必须认识到他们对中共国的巨大影响力。由于习惯了中共国将其国内市场作为武器，许多美国人似乎已经忘记了美国的市场准入是世界上最有价值的奖赏之一，尤其是对世界上最大的出口国而言。因此，美国的市场准入可能是整个竞争中最有力的一个制衡点，使美国能够为其必需商品建立弹性供应链，而不依赖中共制造业。
+
+But time may be running short to exploit this opportunity. China’s economy is not as export oriented as it once was. Exports accounted for 36 percent of China’s GDP in 2006, but only 18  percent of its GDP in 2019. America’s window of opportunity to pressure China by restricting  access to its market is closing.
+
+但是，利用这一机会的时间可能不多了。中共国经济不再像以前那样以出口为导向。2006年，出口占中共国GDP的36％，但到2019年，仅占其GDP的18％。美国通过限制其市场准入对中共国施压的机会窗口正在关闭。
+
+（未完待续）
+
+* * *
+
+### 原文链接：
+
+[Beat China: Targeted Decoupling and the Economic Long War](https://www.cotton.senate.gov/imo/media/doc/210216_1700_China%20Report_FINAL.pdf)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
 0

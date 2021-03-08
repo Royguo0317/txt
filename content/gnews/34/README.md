@@ -1,17 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月7日 文贵先生盖特 3
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/956722/)
+## 【世事解评】全国政协委员建议法定结婚年龄降至18岁
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/956829/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+作者：纽约香草山 良君
 
-文贵先生早在2019年就提前警告世界，香港的选举法会被废除 Mr. Guo warned the world as early as 2019 that the election law in Hong Kong will be repealed
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
 
 
-[【2021年3月7日】文贵先生盖特原文](https://gtv.org/getter/604502e5581e182e31d91288)
+最近，全国政协委员鲁晓明提议，将男女结婚法定年龄降至18岁。
 
-**喜联盟Gnews编辑部**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/C1459048179353.jpg)图片来源：shutterstock
+
+鲁晓明指出，我国民法规定的自然人完全民事行为能力年龄为18岁。结婚作为影响深远的民事行为，行为人应具有完全民事行为能力。同时将结婚年龄规定为男女均满18岁能够避免对现行教育体系构成冲击。为此，他建议修改《民法典》1047条的规定，将结婚年龄规定为“结婚年龄，不得早于十八周岁。”
+
+对于这个提案，笔者不禁想问，都有离婚冷静期，那不得需要结婚冷静期嘛？难道因为年龄越大越不好骗了，趁着小年轻啥也不懂的时候扯证生孩子？其次，不想结婚的不会受法规约束，但是为了目的结婚的，你看最近爆出的多起涉及未成年女孩结婚的案例，以及官方无力的辟谣。我们似乎能够预见到降低结婚年龄未来只会让更多无辜的女性更早地被当成物品交易。
+
+同时，我们也看到今年人大代表张红伟“缩短教育学制”的提案，意味着15岁高中就毕业了。还有全国政协委员杨国强所谓的“年满20岁工作”，以及上一届两会的“延迟退休”。细心的读者会发现其实这些提案都是配套的，所谓15毕业，18结婚，20工作，60退休，绝了。把韭菜的生产周期缩短，替韭菜规划好了一生。
+
+（本文点评内容仅代表作者个人观点）
+
+校对/发稿：飞虹
+
+新闻来源：《界面新闻》客户端
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-07-at-22.01.23.jpeg)
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

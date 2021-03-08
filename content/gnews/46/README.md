@@ -1,97 +1,99 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 华贯公司在澳洲监视当地居民引众怒
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/956600/)
+## 汤姆‧科顿议员报告（七）——《战胜中共国：针对性脱钩与经济持久战》
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/956649/)
 
-新闻来源：《Daily Mail （每日邮报）》| 作者：ZOE ZACZEK and BRITTANY CHAIN 佐伊·扎克和布兰妮·查因 | 发布时间：2021年3月4日
+五月花写作组 ｜ 翻译：文萧 ｜ 校对：虹陵 ｜ 编辑、美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/03/汤姆克顿V7.jpg)
+### 往期链接：
 
-翻译/简评：clau | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii
+[汤姆‧科顿议员报告序言——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/918314/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yClzIsldCk16Q/images/208f627c-9676-4a54-bb97-b45c1930ea6a.jpg?asset_id=e945422e-d60e-40f0-8784-b3a7e51fd785&amp;img_etag=%2208c588f1fdfbb90a2ffd80cda1cbf037%22&amp;size=1024)](https://spark.adobe.com/page/yClzIsldCk16Q/images/208f627c-9676-4a54-bb97-b45c1930ea6a.jpg?asset_id=e945422e-d60e-40f0-8784-b3a7e51fd785&amp;img_etag=%2208c588f1fdfbb90a2ffd80cda1cbf037%22&amp;size=1024)
+[汤姆‧克顿议员报告（一）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928067/)
 
-***简评：***
+[汤姆‧克顿议员报告（二）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/928136/)
 
-一家名为华贯的地产公司在澳洲的收购项目，最近引发了澳洲人的愤怒和抗议。当地民众指责华贯公司禁止船只进入公共坡道，关闭空中跑道，并试图阻止游客使用海滩。该公司两年前租下昆士兰圣灵岛地区的凯斯威克岛的一部分，此岛屿为澳大利亚的度假胜地。
+[汤姆‧科顿议员报告（三）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/931905/)
 
-“蓝金黄”计划里面，中共一直非常擅长用钱解决问题，用游说公司去贿赂政客，用私人企业的名义收购好的资产。更重要的是，中共利用西方法律对于私有资产的保护，利用西方对于契约精神的尊重，反过来掩护自己所谓的“正常经济活动”表面下隐藏着的更邪恶的目的。凯斯威克岛只是中共在全球众多收购案例中的一个，甚至是很不起眼的一个，但澳大利亚民众的反应，显示了越来越多的西方民众意识到了中国共产党对他们威胁。
+[汤姆‧科顿议员报告（四）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/935835/)
 
-自2017年文贵先生爆料中共的“蓝金黄”计划以来，“蓝金黄”的概念已经逐渐从各国政府层面向下传递给了普通老百姓。就如同班农先生所讲：“我们要教育越来越多的人，让他们知道问题在于中共，中共不等于中国人民和中国。”中共不是一直以来都喜欢说走群众路线，发动群众，信任群众，依靠群众吗？现在国外的民众已经觉醒了，中共的一举一动也将会暴露在他们的监视之中，不断接受他们的挑战和反对。人们已经觉醒，一切已经开始！
+[汤姆‧科顿议员报告（五）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/937759/)
 
-***原文翻译：***
+[汤姆‧科顿议员报告（六）——《战胜中共国：针对性脱钩与经济持久战》](https://gnews.org/zh-hans/956586/)
 
-## 中共国地产开发商用极端手段禁止澳大利亚人前往度假岛屿，当地居民称自己的“一举一动”正在被监视
+* * *
 
-- 地产开发商2019年以2000万美元租下了岛屿的一部分，租期99年
-- 凯斯威克岛位于昆士兰海岸外的圣灵岛地区
-- 中共国业主被指限制公众进入并关闭机场跑道
+## **SECTION TWO: Targeted Decoupling **
 
+## **第二节：有针对性的脱钩**
 
-据称，中共国开发商租下了澳大利亚的一个岛屿，他们涉嫌监控当地居民的一举一动，并设置围栏，封闭了通往海滩的道路。
+The United States has entered a phase of open and mutual antagonism with China, yet the failed dream of engagement haunts our economic policy. We must identify and disentangle strategically important economic sectors while thwarting China’s parasitic approach to global trade and commerce.
 
-华贯(香港)有限公司（China Bloom）在近两年前以2000万美元的价格租下昆士兰圣灵岛地区的凯斯威克岛的一部分，租期99年。
+美国与中共国已经进入了开放和相互对抗的阶段，然而合作梦想的失败还困扰着我们的经济政策。我们必须确定和理顺具有战略意义的重要经济部门，同时制止中共国对全球贸易和商业的寄生方式。
 
-岛屿的剩余80%是国家公园，距离沿海城镇麦凯（Mackay）34公里。
+Such a task requires a focus on broad areas of concern such as trade and investment, higher education, entertainment, and advanced technologies and essential supplies for which reliance on China is unacceptable. This section examines a selection of these technologies and essential supplies in greater detail, including semiconductors, telecommunications, rare-earth elements and critical minerals, medical supplies and equipment, and artificial intelligence and quantum computing.
 
-但当地居民说，中共国支持的开发商对旅游业造成了阻碍，并破坏了他们的生活方式。
+这项任务需要关注广泛领域，例如贸易和投资、高等教育、娱乐、先进技术和基本用品，这些领域对中共国的依赖是不可接受的。本节更详细地研究了这些技术和基本供应品的选择，包括半导体，电信，稀土元素和关键矿产，医疗用品和设备，以及人工智能和量子计算。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yClzIsldCk16Q/images/ad9c3c02-d63f-407e-b1c2-9381e1eb791d.png?asset_id=f7ff54b2-f493-460c-9461-a51ea43a006a&amp;img_etag=%22c0e5e4b7e3d7f39349a4456f22601228%22&amp;size=2560)](https://spark.adobe.com/page/yClzIsldCk16Q/images/ad9c3c02-d63f-407e-b1c2-9381e1eb791d.png?asset_id=f7ff54b2-f493-460c-9461-a51ea43a006a&amp;img_etag=%22c0e5e4b7e3d7f39349a4456f22601228%22&amp;size=1024)华贯（China Bloom）在近两年前以2000万美元的价格租下昆士兰圣灵岛地区的凯斯威克岛的一部分，租期99年（如图所示，游客们在圣灵岛地区的岛上）
+This section is not an exhaustive list of areas where decoupling from China is advisable. No doubt some of the technologies and fields that will shape the future strategic landscape are unknown to or underappreciated by today’s policymakers. Rather, this list identifies sectors of urgent concern to the United States right now. China is already a world leader in some of these sectors and is targeting all of them through massive investment and espionage—including espionage that masquerades as investment. The United States must end its reliance on China in sectors that will affect the relative strength of nations in the future.
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yClzIsldCk16Q/images/00ce6e8e-5f8e-48e3-adc3-8d02a8382a21.png?asset_id=b8131814-b37a-41d6-947c-5e0b03c6ca68&amp;img_etag=%2291a0c1a87411d889e301f722a6e28c06%22&amp;size=2560)](https://spark.adobe.com/page/yClzIsldCk16Q/images/00ce6e8e-5f8e-48e3-adc3-8d02a8382a21.png?asset_id=b8131814-b37a-41d6-947c-5e0b03c6ca68&amp;img_etag=%2291a0c1a87411d889e301f722a6e28c06%22&amp;size=1024)凯瑟克岛位于昆士兰圣灵岛（Whitsundays）地区的海岸外，深受那些想体验大堡礁乐趣的人的欢迎
+本节并不是和中共国脱钩领域的详尽建议清单。毫无疑问，影响未来战略前景的某些技术和领域对于当今的决策者来说，是未知的或未被重视的。确切地说，本列表标识了当前美国急需关注的领域。中共国已经是其中一些行业的世界领导者，并且正在通过大量投资和间谍活动，包括伪装成投资的间谍活动，来针对这些领域。美国必须结束这些领域对中共国的依赖，这将影响到国家未来的相对实力。
 
-道森联邦议员乔治·克里斯滕森(George Christensen)表示，他对监视该岛的保安人员数量之多感到震惊。
+## **OBJECTIVES AND CONSIDERATIONS FOR TARGETED DECOUPLING **
 
-克里斯滕森先生告诉2GB的本·福德汉姆（Ben Fordham），我注意到的第一件事就是有保安透过树丛偷看我们在做什么。
+## **针对性脱钩的目标和注意事项**
 
-居民们告诉我，这并不罕见；保安在人们进出岛屿时不断询问他们，（甚至）在全天所有的时间开车巡逻经过他们的房子。
+### **RESTORE SECURE, SCALABLE, DOMESTIC PRODUCTIVE CAPACITY IN AREAS CRITICAL TO NATIONAL SECURITY **
 
-“这是非常非常吓人的，在现代的澳大利亚，很难想象会有一家私营保安公司随时在检查你在做什么。”
+### **对国家安全至关重要的领域恢复安全，可规模化的国内生产能力**
 
-克里斯滕森先生说，早在2019年，就有一家澳大利亚财团有意接手这块土地——但州政府选择了中共国公司。
+The most basic obligation of the federal government is to provide for the common defense. Yet today, key sectors of the economy rely heavily on Chinese suppliers and manufacturing. The United States cannot be fully free or safe if its access to essential supplies is subject to the whims of the CCP. America must therefore restore secure, scalable, and domestic productive capacity in strategic areas. Private industry, finance, and the government have roles to play in regenerating manufacturing that has been lost to China.
 
-“我们所看到的只有混乱；给当地居民造成各种问题，”他说道。
+联邦政府的最基本义务是提供共同防御。时至今日，经济的关键部门严重依赖中共国供应商和制造业。如果美国的基本物资受到中共随心所欲的控制，它就不能获得完全自由或安全。因此，美国必须在战略领域恢复安全，可规模化的国内生产能力。私营工业，金融和政府在那些已经流失给中共国的制造业再生中可以发挥作用。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yClzIsldCk16Q/images/4249aa69-b978-4dd7-9880-0fafb7887d55.png?asset_id=dc0e4d44-7514-4e5e-a562-4affa8100c54&amp;img_etag=%223f1a1d4ef7281c177bed93429d768819%22&amp;size=2560)](https://spark.adobe.com/page/yClzIsldCk16Q/images/4249aa69-b978-4dd7-9880-0fafb7887d55.png?asset_id=dc0e4d44-7514-4e5e-a562-4affa8100c54&amp;img_etag=%223f1a1d4ef7281c177bed93429d768819%22&amp;size=1024)愤怒的当地人指责华贯公司禁止船只进入公共坡道，关闭空中跑道，并试图阻止游客使用海滩，开发商对此予以否认（图为限制公众进入的标志之一）
+American industry has declined, in part, because of China’s 2001 accession to the WTO and the related decision to grant China Permanent Normal Trade Relations status. In 2004, the United States was the world’s dominant manufacturer, producing approximately $1.61 trillion in value-added manufacturing (22.3% of global output) to China’s $625 billion (8.7% of global output). By 2019, the United States produced $2.35 trillion (16.8% of global output) in value-added manufacturing while China produced $4 trillion (28.7% of global output).125 The nation that brought manufacturing technology to maturity in the nineteenth and twentieth centuries has been overtaken by its number-one rival in the twenty-first century.
 
-克里斯滕森先生抨击州长安娜斯塔西亚·帕拉夏（Annastacia Palaszczuk）未能照顾到她所在州的居民。
+美国工业的下滑，部分是由于中共国于2001年加入世界贸易组织（WTO）以及授予中共国永久正常贸易关系地位的决定。2004年，美国是世界主要制造国，其增值制造业的产值约为1.61万亿美元（占全球总产值的22.3％），而中共国为6,250亿美元（占全球总产值的8.7％）。到2019年，美国的增值制造业产值达到2.35万亿美元（占全球总产值的16.8％），而中共国达到4万亿美元（占全球总产值的28.7％）。在19和20世纪使制造技术成熟的这个国家在21世纪被其第一大竞争对手超越。
 
-“我想对安娜斯塔西亚说的是，你能否为这些昆士兰人撑腰，而不是偏袒一家外资公司？”他说。
+The health of the manufacturing sector thus is not simply a commercial concern, but also a national-security imperative. Domestic manufacturers—and to some extent those of allies and trusted partners—provide the foundation and expertise for the nation to arm itself in wartime.  Under present conditions, it is unclear if the United States would be able to organize the kind of rapid, large-scale industrial mobilization that contributed decisively to Allied victory in World War II. This mobilization was possible because the United States already had a deep industrial base and pool of skilled engineers and laborers.126 Disturbingly, China may be better positioned to play the role of World War II-era America in any major conflict today, given its strong industrial base and deep pool of engineering talent. This must change.
 
-“这是很简单的事情；如果你不能自由、简单地进出这个岛，那就有很大的问题了。”
+因此，制造业的健康不是简单的商业问题，而是国家安全的当务之急。国内制造商，和那些在某种程度上的盟国和可信赖的伙伴，为国家在战时武装自己提供了基础和专业知识。在目前条件下，还不清楚美国是否能像在第二次世界大战一样，有能力组织迅速的、大规模的工业资源调动，这种调动对盟军的胜利起到了决定性的作用。当时之所以能够动员起来，是因为美国已经拥有深厚的工业基础，和熟练的工程师和劳工资源。令人不安的是，鉴于中共国的强大工业基础和丰富的工程人才储备，它可能在当今的任何重大冲突中都能更好地扮演第二次世界大战时期美国的角色。这必须改变。
 
-当地人声称，开发商禁止船只从公共坡道进入，关闭空中跑道，禁止游客进入海滩，从而摧毁了他们的生活方式——开发商希望重新开发此岛
+A strong industrial base not only supports vital national-security goals, it lays the groundwork for future innovation.127 The process knowledge and human capital gained through manufacturing leads to improvements in the production process itself. Robust industrial initiatives can thus spark virtuous cycles of expansion, reinvestment, and innovation. By contrast, a lack of investment today could jeopardize American prosperity and safety tomorrow.
 
-在澳大利亚国庆日，一船船的昆士兰人从大陆赶来——有些人从布里斯班远道而来——为当地人遭受的不公待遇抗议。
+强大的工业基础不仅支撑重要的国家安全目标，而且为未来的创新奠定了基础。通过制造获得的工艺知识和人力资本可改善生产过程本身。因此，强有力的产业计划有助于扩张，再投资和创新的良性循环。相比之下，今天投资的缺乏可能会损害明天的美国繁荣与安全。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yClzIsldCk16Q/images/9964ecf7-ff5d-4c64-af82-eb6505adb436.png?asset_id=a68bd767-fd0d-4aed-8e7f-f2c7db22b9ef&amp;img_etag=%22ace3d10e4c5c4edd985715cc0ad2cdbf%22&amp;size=3412)](https://spark.adobe.com/page/yClzIsldCk16Q/images/9964ecf7-ff5d-4c64-af82-eb6505adb436.png?asset_id=a68bd767-fd0d-4aed-8e7f-f2c7db22b9ef&amp;img_etag=%22ace3d10e4c5c4edd985715cc0ad2cdbf%22&amp;size=1024)图片： 圣灵岛群岛南半部凯斯威克岛鸟瞰图。
+### **MAINTAIN TECHNOLOGICAL ADVANTAGE OVER CHINA IN STRATEGIC AREAS **
 
-他们将船并排停在码头上，发誓要在这片水域庆祝澳大利亚国庆日，以声援以这个美丽岛屿为家的人们。
+### **在战略领域保持对中共国的主要技术优势**
 
-他们还要求帕拉夏女士和她的州政府加强限制，并介入协助当地人。
+Outnumbered more than four to one in population, the United States must maintain decisive advantages in technology and per-capita productivity to compete with China. This objective requires accelerating the development of advanced technologies and implementing safeguards so that China cannot steal our technological breakthroughs.
 
-“我认为大多数澳洲人都是通情达理的人，但你把他们逼急了，就会发生这样的事情。”来自麦凯的保险评估员弗雷泽·古柴（Fraser Goodchild）说。
+中共国人口是美国的四倍多，美国必须在技术和人均生产率上保持决定性优势，才能与中共国竞争。实现这一目标需要加快先进技术的发展并实施保障措施，以使中共国无法窃取我们的技术突破。
 
-“中共国的国家风格过去一直是被动的，他们一直想帮助别人，但现在他们却变成了（一个）欺负人的国家。”
+Current investment in R&D is inadequate to this task. The federal government spent $164  billion, or 0.7 percent of GDP, on R&D in 2020.128 By comparison, it spent between one and  1.5 percent of GDP on R&D during much of the Cold War, when the United States faced a  less populous and affluent competitor.129 Overall R&D spending in the United States has been  buoyed by the private sector, which increased R&D spending more than fourfold between 1980  and 2016.130 In 2018, U.S. firms invested more than $5 in R&D for every $1 spent by Chinese  companies.131 However, private-sector R&D often focuses on incremental improvements to  existing products with clear, short-term commercial applications. It is not optimized for the long-term, theoretical, or risky development projects that lead to breakthroughs and technology revolutions.
 
-国家参议员马尔科姆·罗伯茨（Malcolm Roberts）在澳大利亚国庆日从布里斯班赶来，他对州政府有话要说。
+当前在研发上的投资不足以完成这项任务。2020年，联邦政府在研发方面的支出为1,640亿美元，占GDP的0.7％。相比之下，在冷战期间的大部分时间里，美国面对的是人口较少且不那么富裕的竞争对手，联邦政府在研发方面的支出占GDP的1％至1.5％。美国的整体研发支出受到了私营部门的提振，1980-2016年间，研发支出增长了四倍以上。2018年，中共国公司在研发上每支出1美元，美国公司则投入了5美元以上。然而，私营研发通常侧重于通过清晰的短期商业应用对现有产品进行逐步改进。它并未对可以带来突破和技术革命的那些长期的、理论的或有风险的开发项目进行优化。
 
-他告诉时事栏目（澳大利亚9号电视网的栏目）：“华贯公司之所以能逃脱，只是因为州政府没有尽到它的职责。”
+Federal support for technological development must be paired with policies to protect the fruits of that research. Otherwise, China will continue to benefit from American investment through theft. Spending large sums of taxpayer money to develop leap-ahead technology without implementing controls to stop China from stealing that technology could, in effect, be worse than doing nothing.
 
-虽然一些居民声称他们的生活在收购后发生了翻天覆地的恶劣变化，但也有人说这个田园岛屿上的生活从来没有这么好过，并否认了出入受限的说法。
+联邦对技术发展的支持必须与保护该研究成果的政策相匹配。否则，中共国将继续通过盗窃从美国投资中受益。花费大量纳税人的钱来开发超前技术，而不实施控制来阻止中共国窃取该技术，实际上，可能比什么都不开发更糟。
 
-脸书“澳大利亚人收回凯斯威克岛所有权 ”小组有近9000名成员。
+（未完待续）
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yClzIsldCk16Q/images/9f45d96f-cd3d-4222-9156-469fbb04d3dd.png?asset_id=b3e98f36-4b3a-4fec-80eb-8bf875d8e8c9&amp;img_etag=%22d280300a06d12755ae42a13a3d8b5925%22&amp;size=2560)](https://spark.adobe.com/page/yClzIsldCk16Q/images/9f45d96f-cd3d-4222-9156-469fbb04d3dd.png?asset_id=b3e98f36-4b3a-4fec-80eb-8bf875d8e8c9&amp;img_etag=%22d280300a06d12755ae42a13a3d8b5925%22&amp;size=1024)在澳大利亚国庆日，一船又一船的昆士兰州人从澳大利亚大陆赶来，有些人甚至从布里斯班远道而来，抗议对当地人的对待
+* * *
 
-**🔗[原文链接](https://www.dailymail.co.uk/news/article-9323523/Chinese-developers-took-Keswick-Island-allegedly-employed-security-monitor-locals.html)**
+### 原文链接：
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+[Beat China: Targeted Decoupling and the Economic Long War](https://www.cotton.senate.gov/imo/media/doc/210216_1700_China%20Report_FINAL.pdf)
 
+* * *
 
-编辑：【英国伦敦喜庄园编辑部】
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
 
-[!\[\]()!\[\](https://spark.adobe.com/page/yClzIsldCk16Q/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/yClzIsldCk16Q/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
 0
