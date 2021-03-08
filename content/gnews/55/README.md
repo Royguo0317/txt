@@ -1,31 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 匈牙利周一开启新一轮严格疫情封锁
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/958729/)
+## 【香草诗词汇】惊蛰
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/958689/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+作者：香草山写作组 木白
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1439-【香草诗词汇】惊蛰.jpg)
+
+不再把声音埋入泥土，
+
+被雨水浸过的嗓子更浑厚。
+
+听听雷声吧，天地间的咒语，
+
+通向梦里的彩虹。
+
+佝偻的老人挺直脖子，
+
+把最后的爱注入拐棍。
+
+我解开你寄来的腊梅，
+
+把曾经的风雪种进泥土。
+
+如此，世界必安好，
+
+静听雨停。
+
+如此，万物如谜，
+
+缄默于同一个春暖花开的早晨。
+
+2021年3月5日
+
+题记：惊蛰，二十四节气之一。惊蛰，雷声响，万物生。
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年3月8日电/西喜社——**匈牙利人周一在新一轮严格的封锁措施中醒来，该措施旨在减缓由病毒变种驱动的创纪录的中共病毒住院和死亡潮。
+审核/发稿：雪梨
 
-自2月初以来，疫情指标迅速上升，促使匈牙利政府宣布了新的限制措施，包括关闭大多数商店两周，关闭幼儿园和小学直到4月7日。大多数服务机构也被要求停止营业，政府敦促企业允许员工在家工作。杂货店、药店、加油站和烟草店可以继续营业。
 
-匈牙利的高中从11月起就开始远程学习，其酒吧、餐馆和健身房也从那时起关闭。
 
-匈牙利总理维克托-欧尔班警告说，该国医院的压力很快就会超过匈牙利自疫情开始以来的任何一个时期，如果现在不实施更严厉的限制措施，将导致 “悲剧”。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-“未来两周会很困难……但如果我们想在复活节前开业，我们就必须关门，”欧尔班周五在脸书视频上说。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-过去两周，匈牙利医院使用呼吸机的病人数量增加了一倍多，周一有806名病人，而之前12月初的高峰期为674名。死亡人数也急剧上升，总体确认死亡人数接近1.6万人。
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-**新闻来源：[美联社](https://apnews.com/article/coronavirus-pandemic-new-zealand-migration-europe-9b45404eca36d39c4ce2ce6daf3f0cb1)**
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/7de7137b-8129-4645-a474-2391f7e82b1f.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
-
-+1
+0

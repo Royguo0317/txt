@@ -1,64 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/01/30 第16期围炉夜话直播精要：围绕新冠，太多的诡异与反常
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/959114/)
+## CGTN对香港民主抗议偏向性报道遭英罚款
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/959117/)
 
-整理：1984、桂花酒 | 素材制作: 健身健心、Bobby | 校对：宁缺 | Page：小雨
-[!\[\]()!\[\](https://spark.adobe.com/page/g6lBUMWZAvCil/images/64d95177-f15f-4afc-b742-7ea203e451bf.jpg?asset_id=a14bc088-d703-437f-b34c-d18c804f9f9c&amp;img_etag=%22b97aba7902832848f576694ce1436473%22&amp;size=1024)](https://spark.adobe.com/page/g6lBUMWZAvCil/images/64d95177-f15f-4afc-b742-7ea203e451bf.jpg?asset_id=a14bc088-d703-437f-b34c-d18c804f9f9c&amp;img_etag=%22b97aba7902832848f576694ce1436473%22&amp;size=1024)
-[视频链接：https://gtv.org/video/id=601544b969dc393c0ff0f609](https://gtv.org/video/id=601544b969dc393c0ff0f609)
+俄罗斯莫斯科喀秋莎农场   银河
 
-[!\[\]()!\[\](https://spark.adobe.com/page/g6lBUMWZAvCil/images/2585dc85-a035-48ee-b62a-25c2d971a919.png?asset_id=73b13266-77d1-41c5-a745-728379a5be2a&amp;img_etag=%222d6cc76c97f423dc9baa358d2b0079c6%22&amp;size=2560)](https://spark.adobe.com/page/g6lBUMWZAvCil/images/2585dc85-a035-48ee-b62a-25c2d971a919.png?asset_id=73b13266-77d1-41c5-a745-728379a5be2a&amp;img_etag=%222d6cc76c97f423dc9baa358d2b0079c6%22&amp;size=1024)
+编辑上传   水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/c-8.jpg)teeveetee.blogspot.com
+大纪元报道，英国广播监管机构英国通信管理局(Ofcom)周一因中共官方广播公司——中共全球电视网（CGTN）播放逼供和对香港民主抗议活动的偏向性报道，决定对其处以罚款。
 
-本期我们谈中共制造的新冠病毒。
+英国通信管理局对CGTN前牌照持有人星空传媒(Star China Media Limited)处以10万英镑(合138359美元)的罚款，此前英国通信管理局认定星空传媒播出2013年从英国公民汉弗莱(Peter Humphrey)那里逼供的内容“严重”违反了英国广播监管规定。另外，因CGTN在报道香港民主抗议活动期间“严重违反”英国法律的公正性，另有12.5万英镑(合17.2929万美元)的罚款决定。
 
-去年1月19日，路德节目揭露中共病毒“人传人大爆发”真相后，太多的诡异与反常，使得我们必须思考，如何能从现实世界种种反常的表象挖掘到背后共产主义病毒的危害。
+同样在周一，英国通信管理局公布了对CGTN电视台播出前英国驻香港总领事馆雇员郑志刚和瑞典图书出版商桂敏海被逼供一事的最终决定。英国通信管理局支持有关CGTN节目“不公正或不公平待遇”和“无正当理由侵犯隐私”的投诉，并“通知”该广播公司，它打算考虑实施“法定制裁”。
 
-### 一、疫情爆发以来，战友和华人都对中共各类造假都有所了解。但中国以外的其他地区，对CCP的阴险与反人类本质有着普遍的无知与幻想
+中共全球电视网（CGTN）是由中共政府拥有、由中国共产党直接控制的国际英语卫星新闻频道。英国通信管理局在2月4日撤销了CGTN的英国牌照，原因是该牌照不合法，因为CGTN最终由中国共产党控制，而不是由其英国牌照持有者星空传媒(Star China Media Limited)控制。这一撤销决定同时影响到了欧洲国家。根据几个欧洲国家达成的协议，作为许可证共享计划的一部分，英国通信管理局批准了CGTN在德国的牌照。因此英国通信管理局撤销其执照，CGTN同时也不被允许在德国播出。
 
-1．为什么动物们没有大爆发而人类反而至今不停？
-2．2020年2月19日，中共派生化武器专家陈薇接管武汉P4级实验室后为何拆除了华南海鲜市场？
-3．先用防疫物资威胁世界，后又向世界推销疫苗，一个假奶粉、假疫苗出产地，它的疫苗安全吗？
+随后，人权组织捍卫者(Safeguard Defenders)致函澳大利亚广播公司对中共环球电视网 (CGTN)和中共中央电视台进行了人权投诉后，将暂停该栏目的新闻节目的播出。人权组织在投书信中指出，“这些广播涉及提取、包装和播放在胁迫和酷刑条件下强迫被关押囚犯提供虚假供词。”3月5日澳大利亚广播公司SBS宣布，在收到一份人权投诉后决定暂停播放CGTN新闻简报。
 
-### 二、中共的谎言如何通过媒体传播
+参考链接：
 
-1．从去年1月19日开始，WHO就反复为中共洗地，前后矛盾的话层出不穷。最近又派专家去武汉对病毒来源自然“考古”，充分配合中共。
-2．医学界无一人对闫丽梦博士论文提出科学的质疑。中共“科学问题科学解决”却四次抓捕闫博士母亲。媒体几乎一边倒为中共洗地，百姓难以获取病毒真相，世界陷入一片黑暗中。
-3．世卫从声称病毒不会人传人到前不久警告说：“与2019冠状病毒病（Covid-19）大流行相比，世界在未来可能面临更严重的疾病大流行。”他们怎么知道的？
-4．各国政客造假注射疫苗，并对病毒装聋作哑。他们究竟是一无所知还是知道太多？
-5．福奇对口罩和疫苗、硫酸烃氯喹的自相矛盾打脸医学界，36年身处高位却无人能质疑。他的权利谁来约束？
-
-### 三、台湾抗疫成功成为全球典范
-
-疫情让台湾社会成为世界的亮点，当中共威胁世界，台湾却不断提供优质抗疫物资，树立了不同制度下华人出色的一面，成为中共的照妖镜。台湾已经成为眼中钉肉中刺。
-
-### 四、中共的思想病毒才是最大的毒
-
-中共是千年封建专制与共产邪魔于一身的集大成者。欺骗性的谎言、利用人性弱点渗透西方、灭绝种族的反人类本性大白于天下。《1984》、《美丽新世界》等作品已经深刻提示了共产制度必将导致人类走向毁灭的道路。只有用与时俱进的完善制度，让人民成为民主主体，才能从根本上铲除共产主义滋生的土壤。
-[!\[\]()!\[\](https://spark.adobe.com/page/g6lBUMWZAvCil/images/7b16780e-4cf5-4098-a636-e584e98b6f6c.png?asset_id=32be2c35-f36e-41f4-ad0d-aca9ff85c475&amp;img_etag=%2263662deb439a7ea80711dd269a5b59fa%22&amp;size=1024)](https://spark.adobe.com/page/g6lBUMWZAvCil/images/7b16780e-4cf5-4098-a636-e584e98b6f6c.png?asset_id=32be2c35-f36e-41f4-ad0d-aca9ff85c475&amp;img_etag=%2263662deb439a7ea80711dd269a5b59fa%22&amp;size=1024)
-**《缪斯殿堂》之“围炉夜话”**
-
-- 主播：一九八四
-- 嘉宾：宁缺、BOBBY、桂花酒、健身建心
-- 导播：扎西卓玛
-
-
-📺 [**GTV-UK-2号台**](https://gtv.org/user/5fb02ac8bd0d464fad04dfdb)**每周六直播**
-
-- 英国时间：12.00–14.00；
-- 美东时间：7.00—9.00；
-- 盘古时间：20.00—22.00
-
-
-*欢迎关注英国伦敦喜庄园艺术组《缪斯殿堂》节目*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [请订阅 英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-[!\[\]()!\[\](https://spark.adobe.com/page/g6lBUMWZAvCil/images/0f991f56-acc0-4ab1-af6f-2d203284aa2a.jpg?asset_id=72444442-52ee-4a32-ae57-62ff860f48c7&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/g6lBUMWZAvCil/images/0f991f56-acc0-4ab1-af6f-2d203284aa2a.jpg?asset_id=72444442-52ee-4a32-ae57-62ff860f48c7&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
-
+[https://www.theepochtimes.com/uk-fines-chinese-broadcaster-cgtn-over-forced-confessions-hong-kong-coverage\_3724738.html](https://www.theepochtimes.com/uk-fines-chinese-broadcaster-cgtn-over-forced-confessions-hong-kong-coverage_3724738.html)
 
 0

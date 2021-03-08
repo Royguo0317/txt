@@ -1,183 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】超限战下的中美贸易
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/959276/)
+## 今天的共产党和1930年的希特勒一模一样
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/959617/)
 
-作者：纽约香草山金融部 Opal
+新闻简述：在2021年3月5日的盖特视频中，郭先生对比1930年代的希特勒和今天的共产党，对比摔倒在会议室的希特勒和董建华，发现了惊人的相似。他让大家要看到信仰的力量。
 
+**今天的共产党和****1930****年的希特勒一模一样**
 
+**Today’s CCP Is Exactly the Same as Hitler in the 30’s**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+我还是那句话，七哥从开始爆料革命就说过：今天的共产党就和当年的希特勒，1930年那时一模一样，到了1935年、36年，他就疯了，34、35、36，到最后的时候攻打苏联彻底完球蛋。西方的自私和西方的资本主义，还有一个整个西方的投机主义，严格讲还有很多沼泽地，当年跟希特勒大量的供给。可能你们没有想到，当年希特勒的所有的战争的经费，绝大多数是犹太的金融机构给的，那么当时是很夸张的。今天的中共的所有的经费，绝大多数来自美国，在他们眼里面是美帝国主义，美帝国主义，是吧？在这种情况下，兄弟姐妹们，今天又何其相似。
 
+As I always say since the beginning of the Whistleblower Movement, today’s CCP is exactly the same as Hitler in the 30’s. He went nuts in 1935 and 1936, or between 1934 and 1936, and then was completely done after attacking the Soviet Union in his final moment. The selfishness and the capitalism of the westerns, as well as the opportunism prevailing in the entire western world – strictly speaking, many swamps – were the major suppliers to Hitler. It may blow your mind to know that the vast majority of Hitler’s war funding came from Jewish financial institutions. It was very unbelievable back then. Today, the vast majority of the CCP’s funding comes from the United States of America, the so-called American imperialism by them [the CCP], right? From this perspective, brothers and sisters, does it look familiar to you?
 
+但是历史不是重演，千万不要忘了，历史绝对不是重演，是上天给撒旦定下了撒旦定律，撒旦定律就是叫撒旦疯狂到一定的时候，就会出现一个周期性的正义与邪恶的整个的这么一个较量。最后当然撒旦是被灭了，然后是人类走向另外一个高端。但是付出生命代价的人，就是跟随撒旦，相信邪恶能战胜正义的。就像今天的缅甸，还有一年前的香港，还有现在的冠状病毒，还有这些所谓的科学家，什么博士什么什么的。
 
-美国和中（共）国分别是世界上第一大和第二大经济体。我们大家——无论是墙内还是墙外——都是非常关心中美关系，包括中美经贸关系、政治外交关系、军事关系等等。其中，中美经贸关系主要涵盖投资、贸易、汇率、知识产权保护等方面。我们今天讲的是中美贸易这一块儿，非常重要。
+History doesn’t repeats itself, please don’t forget, history absolutely doesn’t repeat itself. It was God who set Satan’s law, which means that whenever Satan’s insanity reaches certain breaking point, the cyclic battle between the good and evil will occur. In the end, of course, Satan will be defeated. Then all the mankind will be lifted to a higher level, but those who follow Satan and believe that the evil can defeat the good will pay the prices of their lives. Just like today’s Burma, Hong Kong one year ago, the coronavirus nowadays, and those so-called scientists and doctors, you name it.
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image-77.png)[图源网络](https://www.ft.com/content/2e453fd2-8203-11e9-b592-5fe435b57a3b)
+今天在这个时候，大家要看到“以毒灭共”的重要性。大家更能看到，我们的科学家是难能可贵的，更能看到我们《路德访谈》多么大的压力情况下，坚持真相，他太难了。七哥对这些事杠得住，那他们是没有准备的，他们扛不住啊。你能看到那些博博士，艾莉、冠博士、墨博士，我们所有的这个博士军团，安红妹妹那就甭提了，一天两次，一天一次这么折腾。这些英雄，这都是人类的英雄，绝不是什么爆料革命新中国联邦的英雄。你不是人类的英雄，你不可能成为新中国联邦的英雄。
 
-**I. 简介历史**
+Today, at this very moment, we need to see the significance of “taking down the CCP by spreading the truth about the virus”. More importantly, we shall see how precious our scientists are and how much burden on our Lude Media in order to speak for truth. Way too much for him to bear. I, Brother Seven, can bear such burdens. But for them, it’s too much. Take a look at them, Dr. Bo, Aili, Dr. Guan, Dr. Mo – our all-doctor army, not to mention Sister An Hong. They do the show twice a day or once a day. They are heroes and heroines of mankind, not solely for the New Federal State of China (NFSC). Indeed, if you’re not a hero for the mankind, you can’t be a hero for the NFSC.
 
-【**简介**】
+另外一个就是大家相不相信，当时在这个二战的时候，非常多的传奇的故事，包括瑞士整个的后勤通道，当时包括墨索里尼。墨索里尼那个王八蛋支持希特勒，最后是什么下场？可以说是现代版的五马分尸，对不对？大家记住，社会主义来自哪里？来自德国，共产党主义来自德国，就像今天我们想看到过去的尼彩啊，什么黑格尔啊，黑格尔那整个就是胡扯的，那就完全是…你看这些人所有的人都拿女人不当人，所有的人都是要对女人进行统治的，而且流氓主义，独裁主义。而且完全相信依靠的，就叫做所谓的大外宣、宣传手段，绝对相信，绝对把谎言变成真理，全部被消灭。
 
-中美间的贸易关系是1972年中美建交后，才开始建立的。这之后，中美间的贸易一直稳步增长。1972年时，中美贸易额只有1,288 万美元；到1988年时，中美贸易额已经有82.6亿美元；而到了2014年，中美双边贸易规模达到5,551亿美元。
+What’s more, you may not believe it – during the World War II, there were many stories of legend, including the entire logistic network of Switzerland and the story of Mussolini. Mussolini, the bastard, supported Hitler. What’s his ending? It’s like a modern time version of being drawn and quartered, right? Remember, everyone, where was socialism originated from?  Germany. Communism emerged from Germany. From our current perspective, Nietzsche and Hegel’s philosophy back then is totally nonsense. You see that all these people didn’t treat women as humans, and all these people wanted to rule over women. It’s rogueism and authoritarianism. Besides, they fully believed in the so-called “big foreign-propaganda” and believed that lies can be turned into truth. All of that has been wiped out [from history].
 
-在中美建交的14年后，也就是1986年7月10日，中（共）国驻日内瓦代表团大使（钱嘉东）代表中（共）国政府正式提出恢复中（共）国在关税及贸易总协定（GATT，世贸组织的前身，1995年更名，英文缩写是WTO）中缔约方地位的申请。之后，中（共）国开始了与关贸总协定缔约国的双边谈判：一对一地和每个国家谈判。中间，因为89六四， 还有1999年5月8日，美国轰炸中（共）国驻南斯拉夫大使馆事件，导致中美间的谈判中断过，后来又恢复了。可以说，整个谈判是断断续续的。
+（大家你看我的衣裳…我现在穿上成新款了现在，G-Fashion决定发展这个新款。）那么董建华这个事情你能看到什么？当年希特勒完蛋前，就是我可以告诉你，就希特勒最后一次所有的将军会议，希特勒从桌子旁边“吧唧”一下摔倒了。这些将军知道，希特勒时代完了，但是这些将军还继续为他干，为什么？你折腾呗，我反正在这捞钱嘛，对不对？知道你不行了，打这个苏联的时候，大家已经知道大势已去。
 
-直到1999年11月10日至15日，中美双方政府代表团在北京就中（共）国加入世界贸易组织（WTO）问题举行谈判。11月15日，双方签署中美政府关于中（共）国加入世贸组织的双边协议。至此，中美两国正式结束了双边谈判。2001年11月11日，在卡塔尔首都多哈正式签署了中（共）国加入世界贸易组织（WTO）的协议。一个月后，中（共）国正式成为世贸组织成员，融入了世界多边贸易体制。前前后后，历时15年。
+Everyone, check out my clothes. What I am wearing now is the new design. G-Fashion decided to promote this new style. That being said, what can you see from Tung Chee-hwa’s falling down? Let me tell you, right before Hitler’s death, during his last meeting with all generals, “Bang”, he fell down by the side of the table. These generals knew that Hitler’s era was over, but they continued to work for him. Why? “Let it be. I’m making my money anyway.” Right? They knew he was about over, which was already clear when fighting against the Soviet Union.
 
-【**加入世贸前**】
+那么这这个情况下，大家一定要牢记的事情，一定会看到信仰的力量。
 
-在加入世贸前，中（共）国出口业的基本模式还是初加工、代加工，且主要集中在劳动力密集型产业，比如食品业、服装业、纺织品业、玩具业等。各省市各地的大部分生产厂家，没有自营出口权。他们通过外贸公司接下订单，进行代加工生产，然后通过外贸公司再出口。入世前的2001年，中（共）国的外贸总额达到5,098亿美元， 人均GDP 达到1,038美元。
+So, at this moment, we must keep this in mind: we will definitely see the power of faith.
 
-**II. 加入世贸，经济腾飞**
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-世界贸易组织的基本原则就是：非歧视原则、透明度原则、自由贸易原则和公平竞争原则，。这些贯穿于各种协议和协定之中，构成了多边贸易体制的基础。世贸成员国都在同一个公平的竞技场上做贸易。
+视频来源：[https://gtv.org/getter/6042b3e49534a74bcaeff20c](https://gtv.org/getter/6042b3e49534a74bcaeff20c) (00:30-4:21)
 
-公平地说，中（共）国加入世贸对中（共）国经济和世界经济都是有益处的。但是，相比较来说，中（共）国受益最大。加入世贸组织后，中（共）国的出口业成几何数膨胀，刺激中（共）国的制造业发展。2001年入世以来，制造业在中（共）国GDP中的比重提升了很多。同时，其他国家进口中（共）国商品的关税降了下来，中（共）国从其他国家进口的商品关税也同样大幅降低。再加上宽松的投资限制，致使中（共）国的资本市场快速发展。中（共）国整个经济高速腾飞。
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/952959/](https://gnews.org/zh-hans/952959/)
 
-**第一阶段：**低端劳动密集型产业；食品、纺织品、服装、玩具业等。
+* * *
 
-中（共）国劳动力便宜，原材料价格低，生产的商品出口价格低。对于进口国来讲，进口价格低，批发价、零售价都低。
-
-【**食品业**】
-
-中（共）国生产大量的食品，出口国外的农产品包括大蒜、罐头食品、茶叶、水产品、海产品、冷冻点心食品等。集装箱装运过来，量大，成本低，价格就便宜。因此，中共大举进入国外市场。
-
-【**服装业、纺织品业**】
-
-在中（共）国加入世贸之前，中（共）国的纺织品出口是有配额的——Quota——出口商或是生产厂家拿不到配额，或者这一年的配额用完了，即便手上有订单都没有用，出口报不了关；但在中（共）国加入世贸之后，纺织品的配额就取消了，不受限了。短短几年时间，中（共）国的纺织品，就像开闸泄洪，涌向世界各地。美国的订单量大，欧洲的订单虽然量没有那么大，但利润高。
-
-【**玩具业**】
-
-中（共）国是世界最大的玩具出口国和对欧盟出口玩具的大国，供应世界玩具市场70%以上的产品。欧美订单量大，当年的反斗城（Toys R US）的玩具订单基本上由中（共）国厂家加工生产。深圳的玩具加工业，在鼎盛期间，可以说是独霸一方。
-
-就这样，这些劳动力密集型出口产品在中共政府给予退税优惠的推动下，其以价廉的优势走出国门，占领了世界市场。
-
-**第二阶段：**高端产业，手机组装，伴随专利、技术引进，技术转让。
-
-中共从低端的劳动力密集型产业逐渐向高端产业转向，包括手机组装、芯片半导体加工业等等。同时，中共再加以引进技术、引进专利、技术转让。中共政府对国企产品的出口进行高额补贴，包括前面讲到的出口退税优惠，以此打败外国生产厂商。
-
-**第三阶段：**偷窃高科技、通过蓝金黄（BGY）将美国、欧洲精英们收买。
-
-据统计，到了2014年，中共国成为世界上第一大出口国和第二大进口国；中共国的经济规模跃居世界第二；中（共）国成了名副其实的“世界工厂”；“中（共）国制造”的产品行销到了世界各地。
-
-但中共国不再满足只是“世界工厂”的地位，它梦想能统领全世界。可在中共一党专制的体制下，没有自由空间，创新精神被扼杀，各行各业被“山寨品”充斥。中共国只能用大量的外汇逆差去收买美国、欧洲的精英们，偷窃西方先进技术。当中，技术所覆盖的领域非常广，包括高科技、医药、生化、航天，甚至食品种子等，使得知识产权的纷争不断发生。
-
-**III. 川普上台执政，关税、贸易战**
-
-中共国的这些不公平贸易行为，导致贸易逆差扩大、技术被强逼转移到中（共）国。这也使得世界其他国家，特别是美国的大量制造业消失。并且，中共国入世十几年来，没有兑现当初入世的大部分承诺。这所有的一切，导致了川普总统上台后，奉行“美国优先”政策，直接与中共国开打贸易战。
-
-**第一阶段：**
-
-**2018年3月22日**，川普总统签署备忘录时，宣称“中（共）国偷窃美国知识产权和商业秘密”，并根据1974年贸易法第301条款，要求美国贸易代表对从中（共）国进口的商品征收关税，涉及商品总计估达600亿美元（以及设置其他贸易壁垒），旨在迫使中共政府改变其「不公平贸易行为」。
-
-**2018年5月**，中美双方达成暂停贸易战的共识，并发表联合声明寻求和解。你可以看出，双方在角力，你退我进，你进我退。不管是中共政府采取的缓兵之计、拖延战术也好，还是川普政府始终对中共政府报有幻想也好，双方确实是在不断磋商的。一边谈判，一边打贸易战，打打停停。
-
-**2018年6月16日**，美国贸易代表办公室公布了第一批针对500亿美元中（共）国输美商品的征税清单，将原有10%税率提高到25%。
-
-中（共）国国务院关税税则委员会随后作出对等报复，中（共）国商务部亦重启对美输华多项产品的反倾销调查。
-
-**2018年7月6日**，美国对价值340亿美元的中（共）国输美商品征收25%的额外关税。（剩余的160亿商品之后于8月23日加征25%关税。）
-
-当天中（共）国商务部作出反制措施，对价值340亿美元的美国输华商品征收25%的额外关税，其中包括美国向中（共）国出口最多的货品——大豆。
-
-**第二阶段：**
-
-**2018年9月18日**，川普总统宣布对2000亿美元中（共）国产品增加10%的关税，将在9月24日实施。
-
-**2018年12月1日**，G20阿根廷的布宜诺斯艾利斯峰会上，川普总统和习近平，都同意举行为期90天的谈判，并在谈判期内暂停新增贸易措施。2019年3月1日最后期限到期后，美国方面宣布已有重大進展，并延长暂停新增贸易措施的期限。
-
-这个期间，中美双方的贸易代表团，在北京和华盛顿之间飞来飞去，进行谈判磋商。
-
-**第三阶段：**
-
-**2019年5月5日**，川普总统宣布对另外价值约2000亿美元（再加上2018年宣布的500亿，总共2500亿美元）的中（共）国进口商品关税从10%上调到25%，该措施于5月10日起正式对到达美国港口的中（共）国商品生效——因为他认为谈判进展太慢。
-
-**2019年5月13日**，中（共）国国务院关税税则委员会宣布自6月1日起对原产于美国价值600亿美元的部分进口商品提高到加征5%至25%的关税。
-
-**2019年6****月****1****日**，美贸易代表办公室宣布将美方加征25%关税时间推迟至6月15日。
-
-**2019年6月29日**，川普总统与习近平在G20日本的大阪峰会上举行会谈，同意重启经贸磋商，美国不再对中（共）国产品加征新的关税。
-
-**2019年8月1日**，川普总统宣布将从同年9月1日起，对余下价值3000亿美元的所有中（共）国进口商品征收10%的关稅——因为川普总统不满中共政府对美国农产品的购买进程。** **
-
-之后，中（共）国政府宣布暂停购买美国农产品，并于8月24日宣布对约750亿美元美国商品加征10%或5%关税，对美国汽车及其零部件恢复加征关税。
-
-**2019年8月25日**，美国也增加之前加征的3000亿美元中（共）国货品的税率至15%，以及目前的2500亿中（共）国货品加征的25%关税至30%作为反制 （但其后被搁置）。
-
-**IV. 2020年1月15日签订协议，引爆疫情，《国防生产法》**
-
-2020年1月15日，中美两国在白宫签署了第一阶段贸易协议。之后，CCP病毒疫情在全球开始爆发。3月23号标志着疫情在美国开始大规模的爆发，进而导致各州各地进行封锁。
-
-**【回顾过去一年/2020年的中美贸易情况】**
-
-在疫情期间，中（共）国的医药用品的生产厂家，特别是口罩厂开足马力生产，满足大量的出口需要。因为世界其他国家没有口罩生产线，一时间，口罩成为战略物资，可以控制全世界。去年的这时候，美国市面上买不到口罩，一罩难求。
-
-4月2日，川普总统扩大了《国防生产法》的使用范围，授权联邦机构从3M公司获取抗击CCP病毒疫情所必要的口罩。而在此之前，美国已经有50多家大型企业自愿转产生产医疗用品，一时解决了口罩以及呼吸机的生产问题。而反过来，中（共）国的口罩厂倒闭潮开始了。
-
-中（共）国承诺，在2020年和2021年间再购买2000亿美元的美国商品和服务。根据该协议成立第一年的证据，中（共）国从来没有按照承诺履行约定，而CCP病毒疫情重创经济只是部分原因。
-
-**【展望今后中美贸易的走向】**
-
-2021年1月，拜登刚上台时，他的政府明确表态，将会联合欧洲来对抗中（共）国，依然会延续对华的排斥性政策，并且也不会主动撤销贸易战的成果。换言之，贸易战还会继续。
-
-现在，美国国内疫情依然严重，病毒变异，疫苗的有效性不乐观，再加上经济困境，让贸易问题已处于次要地位。不过，对于**“中（共）国贸易不公平”**这一结论，共和党、民主党已经达成共识。且如今问题的关键在于，到底是用什么样的武器，去打这场没有硝烟的战争。
-
-3月1日周一，拜登政府表示，它将对中（共）国的贸易政策进行全面审查，会用“一切可用手段”应对中共的不公平贸易行为。拜登是不是除了继续用关税这一武器，还会转而利用贸易争端解决机制、集体谈判以及国内税收政策来支持美国企业？还有待后续观察。
-
-但是有一点是明确的，从目前拜登政府和CCP的关系定位来看，拜登为了他自身，为了他能坐稳，他会有选择性的、或定向性的，对一些中共利益集团进行打击。而这一举动会加剧墙内中共各方势力的内斗，加速“以共灭共”。
-
-最好的例子，2月26日NYSE纽约证券交易所决定，正式启动中国海洋石油有限公司（CNOOC中海油，NYSE： CEO）的正式摘牌程序，该公司将在3月9日凌晨4点暂停交易。这家公司不在川普总统去年签署的行政令里，是后来加上的。这是纽约证券交易所继去年12月31日，要求与军方有联系的中（共）国国企——中国移动、中国电信、中国联通（香港）——三家公司退市之后，发出的要求退市的第四家中（共）国公司。拜登政府尽管遭到美国商界的反对，还是继续川普时代的政策，打击来自中（共）国技术的威胁。中海油公司可以向纽约交易所提出申诉，要求撤销退市令。按照法律，纽约交易所需要至少25个工作日的时间回复他们的申诉。在申诉期间，就暂缓执行摘牌。
-
-**【结论】**
-
-**未来，中美贸易战，这场没有硝烟的战争还会继续进行。**
-
-（本文观点仅代表个人）
-
-参考阅读：
-
-[https://www.bbc.com/zhongwen/simp/world-54990363](https://www.bbc.com/zhongwen/simp/world-54990363)
-
-[https://www.wsj.com/articles/nyse-moves-to-delist-chinese-oil-company-11614383331](https://www.wsj.com/articles/nyse-moves-to-delist-chinese-oil-company-11614383331)
-
-[https://wenku.baidu.com/view/405cc44e767f5acfa1c7cd4e.html](https://wenku.baidu.com/view/405cc44e767f5acfa1c7cd4e.html)
-
-[https://digitalcommons.iwu.edu/cgi/viewcontent.cgi?article=1364&context=parkplace](https://digitalcommons.iwu.edu/cgi/viewcontent.cgi?article=1364&amp;context=parkplace)
-
-[https://www.wsj.com/articles/u-s-to-take-hard-line-on-chinese-trade-practices-administration-says-11614625200?mod=e2tw](https://www.wsj.com/articles/u-s-to-take-hard-line-on-chinese-trade-practices-administration-says-11614625200?mod=e2tw)
-
-[https://en.wikipedia.org/wiki/China%E2%80%93United\_States\_trade\_war](https://en.wikipedia.org/wiki/China%E2%80%93United_States_trade_war)
-
-相关阅读：
-
-[为什么买G-Coin要做KYC ？G-Coin的优势是什么？](https://gnews.org/zh-hans/948443/)
-
-[CCP病毒疫情下的全球经济 2020 & 2021 （一）](https://gnews.org/zh-hans/911346/)
-
-[CCP病毒疫情下的全球经济 2020 & 2021 （二）](https://gnews.org/zh-hans/913857/)
-
-[CCP病毒疫情下的全球经济 2020 & 2021 （三）](https://gnews.org/zh-hans/916013/)
-
-阅读本人其他文章，请搜索“Opal”
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-g-fashion-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
+翻译：【一花一世界】校对：【Isaiah4031】【BruhM】字幕：【Rock小哥】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
 0

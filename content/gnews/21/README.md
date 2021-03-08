@@ -1,39 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】无法抹去的阴影和痛
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/959040/)
+## 【粤语】 闫丽梦的科学报告(一)
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/959142/)
 
-作者：香草山美食部  杉杉
+**制作:Cantonese工作室**
+**配音:【一帘幽梦】 资料整理:【深寒】【Annie 】中文翻译:【喜马拉雅工作站 】校对:【文舜】**
+**海报:【侬民】【MW】剪辑:【星星】**
+视频内容:
 
-今天在盖特上看到一条关于中国城管围堵卖糖葫芦的老人的视频，勾起了我童年时一幕幕抹不去的悲伤的记忆。
+**闫博士科学报告（一）**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1447-【战友心声】无法抹去的阴影和痛-1.jpg)
+1,SARS-CoV-2表现出的生物学特征与自然发生的人兽共患病毒不一致。证据表明，SARS-CoV-2 应该是以蝙蝠冠状病毒ZC45和/或ZXC21为模板和/或骨架研制的实验室产物。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1447-【战友心声】无法抹去的阴影和痛-2.jpg)
+SARS-CoV-2 shows biological characteristics that are inconsistent with a naturally occurring, zoonotic virus.The evidence shows that SARS-CoV- 2 should be a laboratory product created by using bat coronaviruses ZC45 and/or ZXC21 as a template and/or backbone.
 
-这群疯狗城管扑向老人，去抢他的糖葫芦串时，难道就没想过，但凡这个老人有一口吃喝，会在严寒的冬天，行走在街上卖糖葫芦串吗？中共统治下的中国，不是法治社会，弱势群体更得不到最基础的保证。
+2,SARS-CoV-2：能攻击多个器官,能够进行长时间的无症状感染,具有高度的传染性,在高危人群中具有明显的致死性,自出现之初就很好地适应了人类。
 
-此时，我的脑海里又浮现出当年那活生生的悲惨的一幕。一个祈求哀嚎对天长叹的老人家，手里小心翼翼地拖着一个发了黑的脏手帕，手帕里包了几个鸡蛋，跟一个买主做交易。当他正要卖掉他的鸡蛋时，突然冲出几个带着红袖章的割资本主义尾巴的彪形大汉，一把抢过老人家手中的鸡蛋，口出狂言老人犯了法，要把老人抓走。这时，老人大声地哭喊哀嚎，祈求，“求求你们放过我吧，这几个鸡蛋是换命钱，老伴生了很严重的病，卖了这几个鸡蛋是给老伴买药的。”撕扯中，只见匪徒一把把鸡蛋摔在了地上，鸡蛋摔的粉碎。这一幕，我从头看到尾，头哭到尾。共匪的猖狂和老人的无助，是我一辈子都无法抹去的阴影和痛。
+SARS-CoV-2： it attacks multiple organs; it is capable of undergoing a long period of asymptomatic infection; it is highly transmissible and significantly lethal in high-risk populations; it is well-adapted to humans since the very start of its emergence.
 
-共产党统治下的普通老百姓的生活艰难、没有尊严，共产党 “为人民服务”的口号越响亮，越是以“人民的好公仆”自居，就越能体现共产党“假恶丑”的本质。今天的城管对待老百姓的态度，就是共产党对待中国人民的态度。在共产党眼中，中国人可以随意践踏、随意屈辱，而共产党自己却不受法律的约束。他们制定的所谓的“法律”，是为了凌辱、欺压普通老百姓。几十年过去了，回想当年那些以为戴个红袖章就是在执法的社会，对比现在的社会，中国人的思维真的有进步吗？中共统治下的体制，有本质的改变吗？不，没有！共产党一手炮制的悲剧总是惊人的相似。
+3,支持自然起源论的现有科学论文主要依靠一个单一的证据——之前发现的一种名为RaTG13的蝙蝠冠状病毒. 然而，RaTG13在自然界中的存在及其所报道的序列的真实性正受到广泛质疑。
 
-咱们爆料革命战友，有幸遇到文贵先生，活在这个灭共的大时代。今天我们所做的一切正义的行为，都是为了要推翻和消灭这个邪恶的、践踏蹂躏残害欺压14亿中国人长达70年的恶魔共产党！如今这个邪灵，已经把他的魔爪伸向了香港、台湾、美国、全世界！香港的年轻人为了维护自己的自由和民主，被共产党肆意的强奸和杀害。CCP病毒侵害全世界人，已造成各国经济大衰退，世界因CCP病毒死亡数据超过250万人！这个邪灵共产党，正在试图控制这个世界，如果世界再不醒来，再不抵制和消灭共产党，那全世界都将被共产党、共产主义所侵蚀，民主、自由、法治的国家，将不复存在。所以，消灭共产党是全世界人类的必须，是正义的需要！
+The existing scientific publications supporting a natural origin theory rely heavily on a single piece of evidence – a previously discovered bat coronavirus named RaTG13. However, the existence of RaTG13 in nature and the truthfulness of its reported sequence are being widely questioned.
 
-（文章仅代表作者个人观点。）
+4,SARS-CoV-2的基因组序列与中国人民解放军第三军医大学（中国重庆）和南京军区军事医学研究所（中国南京）发现的一种蝙蝠冠状病毒的基因组序列可疑地相似。
 
+The genomic sequence of SARS-CoV-2 is suspiciously similar to that of a bat coronavirus discovered by military laboratories in the Third Military Medical University (Chongqing, China) and the Research Institute for Medicine of Nanjing Command (Nanjing, China).
 
+5,SARS-CoV-2刺突蛋白的受体结合基序（RBM）不能从自然界中诞生，而是应通过基因工程制造出来。
 
-编辑/审核/发稿：雪梨
+The receptor-binding motif of SARS-CoV-2 Spike cannot be born from nature and should have been created through genetic engineering
 
+6,武汉病毒研究所从事了几十年的冠状病毒监测研究，因此拥有世界上最大的冠状病毒收藏库，技术上能进行刺突蛋白／RBM工程和功能增强实验。
 
+The Wuhan Institute of Virology has engaged in decades-long coronavirus surveillance studies and therefore owns the world’s largest collection of coronaviruses, the technical barrier is non-existent to carry out and succeed in such Spike/RBM engineering and gain-of- function research.
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+7,SARS-CoV-2的刺突蛋白中存在一个不寻常的弗林酶切位点，与病毒的毒性增强有关。SARS-CoV-2 刺突蛋白中的弗林酶切位点不可能源于自然，而应该是实验室改造的结果。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+An unusual furin-cleavage site is present in the Spike protein of SARS-CoV-2 and is associated with the augmented virulence of the virus.The furin-cleavage site within the SARS-CoV-2 Spike protein is unlikely to be of natural origin and instead should be a result of laboratory modification
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+8,刺突蛋白应该是经过人工操纵的，这些转化使SARS-CoV-2病毒最终成为一种高传染性、发病隐匿性、致死性、后遗症不明确、破坏性大的病原体。
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+The Spike protein should have been artificially manipulated.These transformations have then staged the SARS- CoV-2 virus to eventually become a highly-transmissible, onset-hidden, lethal, sequelae-unclear, and massively disruptive pathogen.
+
+9,显然，SARS-CoV-2可能是通过武汉病毒研究所的功能增强操纵产生的，这种可能性很大，应该进行彻底和独立的调查。
+
+Evidently, the possibility that SARS-CoV-2 could have been created through gain-of-function manipulations at the Wuhan Institute of Virology is significant and should be investigated thoroughly and independently.
 
 0

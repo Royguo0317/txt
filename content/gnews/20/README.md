@@ -1,50 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语】 闫丽梦的科学报告(一)
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/959142/)
+## 灭共的第一扇大门“香港”已经完全敞开
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/959155/)
 
-**制作:Cantonese工作室**
-**配音:【一帘幽梦】 资料整理:【深寒】【Annie 】中文翻译:【喜马拉雅工作站 】校对:【文舜】**
-**海报:【侬民】【MW】剪辑:【星星】**
-视频内容:
+- 编辑：Victor Torres
+- 作者：蚂蚁兄弟
+- 发稿：神奇四侠
 
-**闫博士科学报告（一）**
 
-1,SARS-CoV-2表现出的生物学特征与自然发生的人兽共患病毒不一致。证据表明，SARS-CoV-2 应该是以蝙蝠冠状病毒ZC45和/或ZXC21为模板和/或骨架研制的实验室产物。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-SARS-CoV-2 shows biological characteristics that are inconsistent with a naturally occurring, zoonotic virus.The evidence shows that SARS-CoV- 2 should be a laboratory product created by using bat coronaviruses ZC45 and/or ZXC21 as a template and/or backbone.
+**西班牙2021年3月8日电/西喜社——**
 
-2,SARS-CoV-2：能攻击多个器官,能够进行长时间的无症状感染,具有高度的传染性,在高危人群中具有明显的致死性,自出现之初就很好地适应了人类。
+一年多以前，香港“反遣返法运动”刚刚开始时，文贵先生在GTV直播中说过，共产党的遣返法是对香港、台湾蚕食计划的一部分，是共产党走向统治世界的第一步。也是共产党走向死亡的第一步、第一道大门。而且告知我们，遣返法后出台的就将是国安法，国安法的目的就是废除一切民主选举制度，也就是彻底废除保障香港自由、民主、法治，保持香港一国两制五十年不变的《中英联合声明》。
 
-SARS-CoV-2： it attacks multiple organs; it is capable of undergoing a long period of asymptomatic infection; it is highly transmissible and significantly lethal in high-risk populations; it is well-adapted to humans since the very start of its emergence.
+2021年3月5日在第十三届全国人民代表大会第四次会议上，人大常务委员会副委员长王晨宣读了关于《全国人民代表大会关于完善香港特别行政区选举制度的决定（草案）》的说明， 决定对香港特区选举制度做出重大改变。此举显示，中共国政府将不再容忍香港存在异见。再次印证文贵先生对香港幕后黑手操控的熟知了解和情报信息分析能力。
 
-3,支持自然起源论的现有科学论文主要依靠一个单一的证据——之前发现的一种名为RaTG13的蝙蝠冠状病毒. 然而，RaTG13在自然界中的存在及其所报道的序列的真实性正受到广泛质疑。
+王晨在会上表示，需要消除香港制度机制的“隐患和风险”，确保以爱国者为主体的“港人治港”。香港社会乱象表明，现行选举机制存在明显的漏洞和缺陷，成为“反中乱港”势力夺取香港特区管治权的契机，因此需要采取必要措施“完善香港选举制度”。换句话说就是： 香港人将永远没有权利来选自己的特首和自己的立法会代表了。而是如中国共产党指定中共国人大代表一样的制度，由中共指定香港特区行政长官和香港人大代表，取消民主选举制度。
 
-The existing scientific publications supporting a natural origin theory rely heavily on a single piece of evidence – a previously discovered bat coronavirus named RaTG13. However, the existence of RaTG13 in nature and the truthfulness of its reported sequence are being widely questioned.
+王晨还称，一些外国和境外势力，通过立法和行政等方式，以及一些驻港领事机构和非政府组织，对中央有关人员进行所谓“制裁”，明目张胆为香港“反中乱港”势力提供保护伞。制裁什么和谁被制裁？被制裁的人如果在外国没有把柄，可以在爹亲娘亲不如党亲的党的保护伞下活得好好的，也不需要在这么重要的会议把对个人制裁关联上对香港提供的“保护伞”。
 
-4,SARS-CoV-2的基因组序列与中国人民解放军第三军医大学（中国重庆）和南京军区军事医学研究所（中国南京）发现的一种蝙蝠冠状病毒的基因组序列可疑地相似。
+香港特区行政长官林郑月娥5日发表声明：她和特区政府完全尊重中央对这次完善选举制度的主导权，特区政府会全面配合相关工作。
 
-The genomic sequence of SARS-CoV-2 is suspiciously similar to that of a bat coronavirus discovered by military laboratories in the Third Military Medical University (Chongqing, China) and the Research Institute for Medicine of Nanjing Command (Nanjing, China).
+据路透社评论，这将是1997年香港主权移交以来对香港民主最沉重的打击。
 
-5,SARS-CoV-2刺突蛋白的受体结合基序（RBM）不能从自然界中诞生，而是应通过基因工程制造出来。
+而一天前3月4日的全国政协第十三届四次会议的开幕式上，全国政协主席汪洋宣读政协常委会的工作报告，“一国两制”、“港人治港”、“高度自治”的字眼在其中全都不见踪影。这些由已故中共领导人邓小平提出的治港方针，现在从官方报告中一一消失，却强调要全面落实“爱国者治港”。
 
-The receptor-binding motif of SARS-CoV-2 Spike cannot be born from nature and should have been created through genetic engineering
+请问用什么来定义“爱国者”，谁来指定？有没有司法公正的裁定？到现在还被关押着的47名香港民主派人士怎么解释？香港民主明显已经不复存在，没有言论自由，更不用说选举，一切都被独裁者统治。香港人爱的是自己生长的国家，而不是不是中国共产党。香港主权移交才23年，50年不变的邓小平治港方针一个不留，全部颠覆。中共捆绑和奴役了14亿中国人70年，野心越来越大，再想捆绑香港人。2025、 2035、2045计划妄图分步骤统治全世界人，这不是危言耸听。
 
-6,武汉病毒研究所从事了几十年的冠状病毒监测研究，因此拥有世界上最大的冠状病毒收藏库，技术上能进行刺突蛋白／RBM工程和功能增强实验。
+不但如此，文贵先生和爆料革命还向香港同胞和各界人士发出了警告：如果不联合起来反共，你们会在无声无息中死亡。香港以黑治国，香港黑警让约两万香港同胞被自杀、被跳楼、被跳海，被强奸、被轮奸……今天在缅甸所发生的一切和香港运动一摸一样，被共产党操作的所有的独裁政权的手段都是一样的—以黑制善，以黑社会手段欺压善良的人民。穿上当地的军警服，杀害善良的人民。拿着武器以平暴为名，烧毁损害公共设施，故意设局陷害正义人士。以伤害他人为名抓捕和伤害寻求民主正义善良人士。这些就是共产党的阴谋和手段，但是香港人的纪律和香港的英勇震惊了世界。
 
-The Wuhan Institute of Virology has engaged in decades-long coronavirus surveillance studies and therefore owns the world’s largest collection of coronaviruses, the technical barrier is non-existent to carry out and succeed in such Spike/RBM engineering and gain-of- function research.
+中共邪恶政权独裁者习近平的野心是想成为世界老大。两种领导方法可以达到他的目的：第一种是把祖国自身变得更好，更强大；第二种是把所有的世界对手打倒。他领导下的中共选择了第二种：释放病毒、偷盗技术、控制奴役人民、蓝金黄、3F、灭白计划等等。
 
-7,SARS-CoV-2的刺突蛋白中存在一个不寻常的弗林酶切位点，与病毒的毒性增强有关。SARS-CoV-2 刺突蛋白中的弗林酶切位点不可能源于自然，而应该是实验室改造的结果。
-
-An unusual furin-cleavage site is present in the Spike protein of SARS-CoV-2 and is associated with the augmented virulence of the virus.The furin-cleavage site within the SARS-CoV-2 Spike protein is unlikely to be of natural origin and instead should be a result of laboratory modification
-
-8,刺突蛋白应该是经过人工操纵的，这些转化使SARS-CoV-2病毒最终成为一种高传染性、发病隐匿性、致死性、后遗症不明确、破坏性大的病原体。
-
-The Spike protein should have been artificially manipulated.These transformations have then staged the SARS- CoV-2 virus to eventually become a highly-transmissible, onset-hidden, lethal, sequelae-unclear, and massively disruptive pathogen.
-
-9,显然，SARS-CoV-2可能是通过武汉病毒研究所的功能增强操纵产生的，这种可能性很大，应该进行彻底和独立的调查。
-
-Evidently, the possibility that SARS-CoV-2 could have been created through gain-of-function manipulations at the Wuhan Institute of Virology is significant and should be investigated thoroughly and independently.
-
+1935年3月，希特勒撕毁《凡尔赛条约》，美英欧采取绥靖政策；2021年3月，习近平结束对香港的一国两制，推行新《香港选举法》，如出一辙。历史是循环的，如果还和1935年一样，全世界如果再坐视不管，以为和自身利益无关，未来付出的代价将会是巨大而惨重的。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
 0
