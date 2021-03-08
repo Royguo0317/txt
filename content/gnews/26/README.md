@@ -1,71 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香草诗词汇】种梅小记
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/958669/)
+## 挪威去年结婚人数为1927年以来最低
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/958754/)
 
-作者：香草山写作组 木白
-
-（题记：春日到，一边美好生活，一边漂亮灭共。）
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1438-【香草诗词汇】种梅小记.jpg)
+- 编辑：Victor Torres
+- 发稿：Ranting
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**甲**
+**西班牙2021年3月8日电/西喜社——**挪威统计机构周一表示，挪威2020年的结婚人数比上一年下降了19%，这已经是1927年以来的最低数字。流行病和应对措施导致了这一数字的下降。在2020年，举行了16200场婚礼。
 
-梅花三棵：红、绿、腊。
+除此之外，”从2019年到2020年，3000场婚礼的下降是无与伦比的，是自1919年以来最大的同比下降，”挪威统计局的安妮·玛格丽特·托梅拉（Ane Margrete Toemmeraas）说。
 
-淘宝货，便宜，未失望。
+“数字显示，从2020年3月12日开始的中共病毒防疫措施导致许多人推迟了婚礼，”托梅拉说。它是否 “导致2021年的增加，因为许多被推迟的婚礼可能会代替今年举行，将在以后变得清晰。”
 
-一日暖阳，两天细雨，我从河里采来沙。
+**新闻来源：[美联社](https://apnews.com/article/coronavirus-pandemic-new-zealand-migration-europe-9b45404eca36d39c4ce2ce6daf3f0cb1)**
 
-一分河沙，两分流水，三分黄土和在一起，
+![]()![](https://gnews.org/wp-content/uploads/2021/03/e3cad61a-2c5d-46e9-a10c-fc74efea0afd.jpg)
 
-便是整个春天的重量。
-
-
-
-**乙**
-
-红梅种在楼顶，一枝独秀；
-
-腊梅种在屋檐下，不怕寒风相伴；
-
-绿梅种在阳台，探望新生的绿光。
-
-而无数人把梅种入姓名，声声呼唤，
-
-从女孩到女人，从春到冬，梅花开了一年又一年。
-
-
-
-**丙**
-
-举起同样的锄头，挖着同样的土。
-
-没有南山的夕阳，走不出南墙的黄昏。
-
-不爱古人种梅，精致得病态；
-
-爱古人赏梅，病态的精致。
-
-当梅花落满南山，你的名字便湮没众人。
-
-2021年3月1日
-
-
-
-审核/发稿：雪梨
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
 
 0

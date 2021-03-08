@@ -1,29 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美商务部长将沿用川普对中共企业限制出口黑名单
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/958751/)
+## 【热点播报】新文革砸烂公检法 中共具有法律的最高解释权
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/958953/)
 
-翻译：康州盘古农场-Layka
-校对：康州盘古农场-Mike Li
-编辑：康州盘古农场-Antsee-GTV
+整理：纽约香草山健身部  童谣
 
-![raimondo]()![raimondo](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-08-at-23.25.37.png)*前罗德岛州州长吉娜·雷蒙多（Gina Raimondo）- 图片来源：《零对冲》新闻报道*
+![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1444-【热点播报】新文革砸烂公检法-中共具有法律的最高解释权.jpg)
 
-据《零对冲》泰勒·杜登 （TYLER DURDEN）援引由戴夫·德坎普(Dave DeCamp)于[AntiWar.com](http://AntiWar.com)撰文报道：
+日前，中共最高人民法院印发《[关于深入推进社会主义核心价值观融入裁判文书释法说理的指导意见》](http://www.court.gov.cn/fabu-xiangqing-287211.html)，自2021年3月1日起施行。业界专家表示，中共用核心价值观代替法律依据判案是新时期文革，砸烂公检法。[大纪元报道](https://hk.epochtimes.com/news/2021-03-08/72265750)前大陆人权律师表示，共产党的政策一直是法官判决中优先要考虑的东西，但以前这些东西都属于黑帮式的口令，今日写入公开化文件与中共对世界的渗透和控制有关。「美国大选后一个多月来，无论国内的法制问题，还是在香港问题，包括在缅甸发生的事情，中共表现非常活跃，完全无所顾忌」。
 
-新任的商务部部长吉娜·雷蒙多（Gina Raimondo），表示她计划充分利用川普政府留下的出口黑名单，该黑名单旨在切断美国对某些中共国公司的出口，包括电信公司华为。
+墨博士评论：社会主义核心价值观通俗来讲，就是中共占有所有社会资源，搜刮劳动人民所有剩余价值。当前中共已经迫不及待得将法律和伪宪法的外衣扯下来，使中共集权高于一切。
 
-“中共的电信公司 — 他们的行为是对美国经济和国家安全的一个威胁。我们将充分利用（出口黑名单），” 雷蒙多告诉MSNBC。
+需要警觉的是，本来中共的权与官就大于法，还要在高法上将这一点写入文件，意味着中共将要对老百姓和海外某些异己人士出手。为了镇压任何反对和异常的声音，几日前的《烈士保护法》还要提前一周立法对在微博上表达个人意见的评论人士进行抓捕。而在中共推出《意见》之后，法律都不需要了，直接可以用各种手段抓捕任何人。因为社会主义核心价值的解释权在中共手中，更深厚的白色恐怖已经弥漫在中华大地。
 
-这份被称为实体清单的黑名单，要求美国公司获得出口许可证，才能向被列入黑名单的中共国企业出售商品。该名单是在国家安全的框架下创建的，因为川普政府指称这些公司与中共军方有联系。
 
-雷蒙多在谈到被列入黑名单的公司时说：“如果你观察他们的行为，他们理所当然的成为目标，并且如果有必要，那么我们就会这么做。”
 
-在12月，川普政府将中共的芯片制造商中芯国际（**SMIC**）列入名单。路透社周四发表的一份报告称，美国的中芯国际供应商一直在努力获得向这家芯片巨头出口所需的许可证，并且这是在全球半导体短缺的背景下进行的。
+审核/发稿：雪梨
 
-雷蒙多的评论和中芯国际的报告显示，拜登政府计划利用前任政府留下的现有工具对中共国保持强硬立场。
 
-原文链接：[https://www.zerohedge.com/political/commerce-secretary-use-trumps-export-blacklist-chinese-firms](https://www.zerohedge.com/political/commerce-secretary-use-trumps-export-blacklist-chinese-firms)
 
-+1
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+0

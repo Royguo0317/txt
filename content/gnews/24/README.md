@@ -1,29 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国学生两个月后重返校园
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/958690/)
+## 【香草诗词汇】酒歌（一）
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/958797/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+作者：香草山写作组 木白
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1440-【香草诗词汇】酒歌（一）-1-rotated.jpg)
+
+我想朗诵我写的诗，
+
+也想把我喝的酒分享给你。
+
+同样的味道，不同的人生。
+
+同样的醉意，不同的幻觉。
+
+同样的生活长在不同的翅膀上。
+
+用同样的胃正消化着这个虚假的世界。
+
+用押韵的味觉尝一口春天的味道。
+
+用未洗过的嘴吻一吻刚掉落的梅花。
+
+幸运的人，我听见了骨骼破碎的声音——
+
+正酿造着这座小城的孤寂。
+
+2021年3月7日
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年3月8日电/西喜社——**英国儿童在关闭两个月后于周一返回学校，首相鲍里斯-约翰逊表示，他的目标是让国家 ” 更接近正常感”。
+审核/发稿：雪梨
 
-作为计划的一部分，数以百万计回到英国教室的高中生和大学生将在前几周接受检测。当局希望快速检测并隔离无症状的病例，以避免将整个学校送回家。
 
-高中和大学可能分阶段重新开放，以便进行测试。英国政府已经向全国各地的学校发放了近5700万个快速 “横向流动 “测试包，但有人担心测试的准确性，可能导致学生被迫进行不必要的自我隔离。
 
-但英格兰公共卫生局主任苏珊-霍普金斯告诉BBC，过去8周的测试证据表明，只有不到1/1000的测试结果为假阳性。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-英国已经爆发了欧洲最致命的疫情，近12.5万人死于中共病毒。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-**新闻来源：[美联社](https://apnews.com/article/coronavirus-pandemic-new-zealand-migration-europe-9b45404eca36d39c4ce2ce6daf3f0cb1)**
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/db0f2798-6027-44c1-b31c-050f7769aaa3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

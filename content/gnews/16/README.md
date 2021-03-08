@@ -1,27 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美对土耳其购买俄S-400的制裁或起反效果
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/958790/)
+## 美商务部长将沿用川普对中共企业限制出口黑名单
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/958751/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+翻译：康州盘古农场-Layka
+校对：康州盘古农场-Mike Li
+编辑：康州盘古农场-Antsee-GTV
 
-编辑上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-08_18-08-35.jpg)[thenationalherald.com](https://www.thenationalherald.com/253388/russian-s-400-defense-systems-arrive-in-turkey/)
-03月08日，土耳其总统雷杰普·塔伊普·埃尔多安的发言人易卜拉欣·卡利恩（Ibrahim Kalyn）在接受彭博社采访时表示，美国就土耳其从俄罗斯购买的S-400地对空导弹系统向其施压，将适得其反，并把土耳其推向“其他方向”。
+![raimondo]()![raimondo](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-08-at-23.25.37.png)*前罗德岛州州长吉娜·雷蒙多（Gina Raimondo）- 图片来源：《零对冲》新闻报道*
 
-他强调说：“如果另一个国家带着最大限度的立场来找我们，说‘要么按我们的方式，要么不按我们的方式’，这种态度会把我们推向其他方向。”
+据《零对冲》泰勒·杜登 （TYLER DURDEN）援引由戴夫·德坎普(Dave DeCamp)于[AntiWar.com](http://AntiWar.com)撰文报道：
 
-埃尔多安强调，与美国在这个问题上的分歧可以通过建设性对话解决，但美国政客应该明白这个问题对安卡拉来说是多么严重，“土耳其关于S-400的决定不是一朝一夕做出的。”
+新任的商务部部长吉娜·雷蒙多（Gina Raimondo），表示她计划充分利用川普政府留下的出口黑名单，该黑名单旨在切断美国对某些中共国公司的出口，包括电信公司华为。
 
-2月中旬，美国国务卿安东尼·布林肯再次敦促安卡拉摆脱俄罗斯S-400地对空导弹系统（SAM）。
+“中共的电信公司 — 他们的行为是对美国经济和国家安全的一个威胁。我们将充分利用（出口黑名单），” 雷蒙多告诉MSNBC。
 
-莫斯科和安卡拉在2017年签署了供应S-400的合同。2019年11月初，俄罗斯提前向土耳其交付了4架S-400师级装备，价值25亿美元。 2020年10月，土耳其在该国北部的西诺普市附近测试了S-400。
+这份被称为实体清单的黑名单，要求美国公司获得出口许可证，才能向被列入黑名单的中共国企业出售商品。该名单是在国家安全的框架下创建的，因为川普政府指称这些公司与中共军方有联系。
 
-美国批评土耳其购买俄罗斯系统的决定，并将该国排除在F-35战斗机项目之外。2020年12月，美国前川普政府因土耳其购买S-400萨姆弹而对其国防工业局及其负责人伊斯梅尔·德米尔实施了制裁。
+雷蒙多在谈到被列入黑名单的公司时说：“如果你观察他们的行为，他们理所当然的成为目标，并且如果有必要，那么我们就会这么做。”
 
-参考链接：
+在12月，川普政府将中共的芯片制造商中芯国际（**SMIC**）列入名单。路透社周四发表的一份报告称，美国的中芯国际供应商一直在努力获得向这家芯片巨头出口所需的许可证，并且这是在全球半导体短缺的背景下进行的。
 
-[https://www.rbc.ru/rbcfreenews/6045d3899a7947e7c72c90e6](https://www.rbc.ru/rbcfreenews/6045d3899a7947e7c72c90e6)
+雷蒙多的评论和中芯国际的报告显示，拜登政府计划利用前任政府留下的现有工具对中共国保持强硬立场。
 
-0
+原文链接：[https://www.zerohedge.com/political/commerce-secretary-use-trumps-export-blacklist-chinese-firms](https://www.zerohedge.com/political/commerce-secretary-use-trumps-export-blacklist-chinese-firms)
+
++1
