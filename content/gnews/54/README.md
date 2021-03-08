@@ -1,13 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭文贵先生早在2019年就警告世界，香港选举法将被废除
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/957617/)
+## 今年人大新闻发言人称人大代表是由人民“一人一票”选举出来
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/957702/)
 
-文贵先生早在2019年就提前警告世界，香港的选举法会被废除
+3/4/2021 今年人大新闻发言人称人大代表是由人民“一人一票”选举出来。
 
 By： 【秘密翻译组 G-Translators】
 
 
 
-+2
+0
