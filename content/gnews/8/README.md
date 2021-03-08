@@ -1,152 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/03/08 英喜时评第二十二期
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/958266/)
+## 中共国利用病毒破坏香港的自由
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/958329/)
 
-英喜评论人：freedust；宁缺；万人往 | 编辑：海阔天空
+新闻来源：《门户专家（GATEWAY PUNDIT） 》| 作者：Joe Hoft | 发布时间：2021年3月6日
+翻译/简评：Dreamer文童 | 校对：感恩 | 审核：万人往 | Page：Daoiii
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/jpg-1.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/Rt0ATgqakm26S/images/d5c9747e-4528-49d4-bb08-73e09c58d403.jpg?asset_id=ff0d1646-a437-4f0e-9e87-82b53ad82adc&amp;img_etag=%22eb93b334afee4f853312a183e7d04a27%22&amp;size=1024)](https://spark.adobe.com/page/Rt0ATgqakm26S/images/d5c9747e-4528-49d4-bb08-73e09c58d403.jpg?asset_id=ff0d1646-a437-4f0e-9e87-82b53ad82adc&amp;img_etag=%22eb93b334afee4f853312a183e7d04a27%22&amp;size=1024)
 
-## **【新闻一】**
+***简评：***
 
-## **来自“THE GATEWAY PUNDIT”的新闻揭露了美国政府官员、美国科研机构和中国有关部门掩盖了新冠疫情起源的大量证据**
+**2019年是香港民众街头抗议活动最惨烈的一年。全世界见证了昔日繁华的金融中心街道上弥漫着催泪弹，还有抗议者设置的路障。和平抗议的民众与全副武装的警察对峙着，许多年轻示威者被黑警强行按压甚至踩踏在地面上，更有甚者，丧心病狂的黑警拔枪近距离实弹射击示威者。**
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/Wired_CovidSpring_3.png)
+**2020年初，在“路德社”提前爆料预警下，我们知道了来自中共军方实验室的病毒将会造成全球疫情大爆发。随后世界各国都陷入了病毒带来的各种灾难。然而中共利用这个时机，一意孤行地通过了香港国安法，其实就是用实际行动撕毁了《中英联合声明》，然后利用香港国安法对民运人士进行抓捕，同时也震慑了其他人。今年3月5日，中共在两会上提议修改香港的选举制度，确保“爱国者治港”，这是对《中英联合声明》的进一步践踏。中共向全世界释放超限生物武器——新冠病毒，把毫无准备的各国打得措手不及，然后趁乱实施筹备已久的阴谋。我们在去年美国大选和香港事件上已经看到了中共的这种操作。然而，香港民众依然不会屈服，香港必将成为新中国联邦的圣城。**
 
-新闻援引了2020年2月3日，美国国家科学院举行的一次会议邮件作为其中之一的佐证，该科学院由科学和技术政策办公室主任凯尔文·德罗格迈尔（(Kelvin Droegemeier)、美国卫生与公共服务部高级科学顾问克里斯蒂安·哈塞尔（D. Christian Hassell）以及美国国立卫生研究院过敏与传染病研究所（NIH）所长安东尼·福奇（Anthony Fauci）领导。
+[!\[\]()!\[\](https://spark.adobe.com/page/Rt0ATgqakm26S/images/cae6ba00-ef83-48f5-9a20-e15468d88057.jpg?asset_id=32089829-d198-476a-9201-3300b62d0c85&amp;img_etag=%22eac4c61a78cffd5ae6a0d38b1b117bce%22&amp;size=1024)](https://spark.adobe.com/page/Rt0ATgqakm26S/images/cae6ba00-ef83-48f5-9a20-e15468d88057.jpg?asset_id=32089829-d198-476a-9201-3300b62d0c85&amp;img_etag=%22eac4c61a78cffd5ae6a0d38b1b117bce%22&amp;size=1024)来源IG:[small.\_.tt](https://www.instagram.com/small._.tt)
 
-与会者包括来自科学技术政策办公室(Office of Science and Technology Policy)、国家卫生研究院(National Institutes of Health)和联邦调查局(Federal Bureau of Investigation)的其他美国政府工作人员。大多数参与的科学家要么有与中国合作开展冠状病毒研究的悠久历史，要么后来与中国以及COVID-19起源于自然疾病爆发理论的有力支持有关。其中，与中共武汉病毒实验室过往甚密，且极力掩盖实验室病毒起源而引起广泛关注的皮特·达扎克（Peter Daszak）也赫然在列。根据在会议之前分发的《任务和工作计划声明》，已经确定COVID-19大流行是自然发生的或“进化的”事件，需要反驳相反的论点。
+***原文翻译：***
 
-不久之后，在2020年2月6日，EcoHealth Alliance的皮特·达扎克（Peter Daszak）联系了与会的科学界人士，开展了一次公共关系活动，来支持中共国关于新冠疫情来自自然的论调，并谴责实验室起源是一种阴谋论。在文中提供的Dazak的邮件中，拉尔夫·巴利克Ralph Baric和王林发也出现在醒目位置上。
+## 中共国利用中共冠状病毒破坏香港的自由并惩罚抗议者
+[!\[\]()!\[\](https://spark.adobe.com/page/Rt0ATgqakm26S/images/0d2ab73c-3575-462b-9956-eaa9cc17bb3f.png?asset_id=77b922a3-00bc-46ca-8b5d-e2fcf9e80673&amp;img_etag=%22c6e5b2a34b83b4dee58ea1ba611cbbda%22&amp;size=2560)](https://spark.adobe.com/page/Rt0ATgqakm26S/images/0d2ab73c-3575-462b-9956-eaa9cc17bb3f.png?asset_id=77b922a3-00bc-46ca-8b5d-e2fcf9e80673&amp;img_etag=%22c6e5b2a34b83b4dee58ea1ba611cbbda%22&amp;size=1024)
+一年前，香港被席卷整个小城的抗议活动所震惊。经过中共冠状病毒一年的肆虐，抗议活动已经消失，现在这个城市几乎完全被中共控制。
 
-文中引用了达扎克自己的原话：
+2019年秋天，香港因整个小城的抗议活动而摇摇欲坠。
 
-*“This letter is carefully worded to avoid political statements, and we have been told [by China?] would go a long way to supporting continued collaboration in this outbreak.”*
+去年夏天，我们报道了中共国如何折磨这个小城，并利用中共冠状病毒作为他们的工具。
 
-（这封信措辞谨慎，避免发表政治言论，我们已经被告知(中国?)将大大有助于支持在此次疫情中继续开展合作。)
+一周前，大全新闻（Newsmax）报道了中共国在过去一年内是如何入侵香港的。
 
-*“I hope you are willing to sign on to this – your voice will be very influential, particularly in keeping these critical bridges open between the USA and China. You should know that the conspiracy theorists have been very active, targeting our collaborators with some extremely unpleasant web pages in China**“*
+宾西法尼亚州共和党众议员盖·雷申塔勒（Guy Reschenthaler）表示，去年夏天，当全世界把注意力转向处理冠状病毒大流行时，中共国利用这个机会对香港实施严格的国家安全法。
 
-（我希望您愿意签署此协议–您的声音将很有影响力，特别是在保持这些在美国和中国之间的重要桥梁开放的过程中。 您应该知道，阴谋理论家非常活跃，在中国一些令人不快的网页上瞄准了我们的合作者）
+雷申塔勒周三参加大全新闻电视的《克里斯·萨尔赛多秀》（Chris Salcedo Show）节目时表示：“中共国转过身来，基本上已入侵了香港这个民主的准独立城市，并违反国际条约接管了这个城市。”
 
-2020年3月7日，英国《柳叶刀》杂志刊登了一篇文章，题为“支持中国科学家，公共卫生专业人员和中国抗击COVID-19的医学专家的声明”，该文章由达扎克在2月6日的邮件中联系的一些人联合撰写，其中指出：
+“所以，中共国正在利用资本，他们正在行动，而且他们变得越来越咄咄逼人。”
 
-*“We stand together to strongly condemn conspiracy theories suggesting that COVID-19 does not have a natural origin.”*
+1月下旬，中共国在北京新国家安全法的支持下逮捕了50多人，这项6月颁布的法律赋予北京打击各种政治犯罪的广泛权力，包括对“严重”罪行判处终身监禁。
 
-（我们一致强烈谴责认为新冠肺炎并非自然起源的阴谋论。）
+当世界因中共冠状病毒而陷入恐惧时，世界各地的个人自由却遭到破坏。
 
-## [新闻链接](https://www.thegatewaypundit.com/2021/03/overwhelming-evidence-origin-covid-19-pandemic-covered-us-government-officials-us-scientific-authorities-chinese-counterparts/)
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/coronavirus.jpg)
-
-## 评论
-
-作为一个重要信息来看，我们先来看一下王林发的一些相关信息：
-
-王林发，1960年出生于中国上海，病毒学家，澳大利亚技术科学与工程院院士，杜克-新加坡国立大学医学院新发突发传染病研究所所长。
-
-1999年，（中共）国庆五十周年时，王林发先生应邀参加“百名博士观光考察团”，四进人民大会堂，两进天安门广场参加盛典。
-
-2000年王林发被聘为上海市海外联谊会理事。
-
-目前所知的是，他是石正丽的“蝙蝠病毒”领路人，纽约时报对他的专题报道提到他浸淫蝙蝠、病毒研究数十年，被称为“蝙蝠侠”（[原文](https://cn.nytimes.com/china/20200615/coronavirus-batman-bats-viruses/?utm_source=tw-nytimeschinese&amp;utm_medium=social&amp;utm_campaign=cur)）。
-
-而他任职理事的上海海外联谊会，成立于一九八五年十二月，时任上海市长的江泽民，应邀担任了名誉会长，并热情撰文对海联会给与充分肯定（来自百度百科）。在上海统一战线的官网上，2018年12月19日，上海市市委常委、统战部部长郑钢淼出席会议并被推选为新一任会长（[链接](https://www.shtzb.org.cn/shtzw/shtzw2017/n3715/n3721/u1ai1904420.html)）
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/Bild1-1.jpg)会长郑钢淼为新聘海外副会长、常务理事颁发聘书。
-
-那么，王林发的理事身份使其与中共统战部恐怕很难没有瓜葛，他的其他一些信息在“[DT挖掘机爆料 P4实验室第2季 (10)下](https://gnews.org/zh-hans/249859/)“中也有提及。
-
-回归本文主题，在此前多个报道中我们都可以了解到NIH、EcoHealth Alliance和武汉病毒研究所有着千丝万缕的联系，在THE DIPLOMAT的一篇援引自新闻周刊（Newsweek）的报道中，NIH对武汉病毒研究所提供了资助，该资助分为两个阶段，第一个阶段在2014年至2019年期间，通过一个370万美元的项目收集和研究蝙蝠冠状病毒。这项工作由石正丽博士领导（[原文](https://thediplomat.com/2020/05/why-would-the-us-have-funded-the-controversial-wuhan-lab/)）。引述自美国物理联合会（American Institute of Physics）的报道称第二阶段款项于2020年4月24日，被美国国家卫生研究院（NIH）终止，并提到这笔资金由总部位于纽约的全球环境健康研究组织生态健康联盟(EcoHealth Alliance)提供的（[原文](https://www.aip.org/fyi/2020/under-political-pressure-nih-blacklists-wuhan-virology-lab)）。我们在美国政府赠款跟踪问责系统的网站可以清晰的查到这笔赠款的各项明细和用途（[相关链接](https://taggs.hhs.gov/Detail/AwardDetail?arg_AwardNum=R01AI110964&amp;arg_ProgOfficeCode=104)），此网站是由卫生和人类服务部（HHS）11个业务部门授予赠款的数据库。
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/Bild2-2.png)图例
-
-从以上信息收集，我们可以清晰的看到一个脉络，且我们可以明确地知道，美国官方机构NIH很清楚武汉病毒试验室在做着新冠病毒的研究并为其提供了资金支持，并且在新冠疫情全球爆发且造成灾难后，仍就想对病毒起源的事实真相进行掩盖。
-
-然而，在国际社会追偿的巨大压力和爆料革命对病毒真相的不懈追寻下，两方的阴暗勾当正在不断的被曝光于世间。在不久前，WHO一反常态的颠覆自己之前对病毒起源的认定，并重提对病毒起源的质疑，可能就是在多方施压下的一种反应。在真相对灭共提供有力支撑的同时，我们期待NIH和其后的黑暗势力在与中共的互相推诿、攻讦中暴露更多不为人知的黑暗角落，公共卫生是否安全已经是一个关乎人类命运的重要问题，我们已经无法轻忽这一现实。
-
-## **【新闻二】**
-
-## **缅甸军队星期天又向示威者开枪至少18人丧生 联合国秘书长谴责军方暴力**
-
-联合国秘书长发言人杜加里克(Stephane Dujarric)星期天(2月28日)发表声明称，秘书长古特雷斯强烈谴责缅甸的暴力镇压。他对死亡和重伤人数的增加深感不安，并表示对和平抗议者使用致命武力和任意逮捕是不可接受的。
-
-联合国称，缅甸军方星期天(2月28日)在多个城市向示威者开枪，造成至少18人死亡。这是近一个月来反对军事政变的示威活动中最血腥的一天。
-
-## [新闻链接](https://www.voachinese.com/a/at-least-18-killed-in-myanmar-on-bloodiest-day-of-protests-against-coup-20210228/5796132.html)
-
-![仰光警察向示威民众发射催泪瓦斯。（路透社2月27日照片）]()![仰光警察向示威民众发射催泪瓦斯。（路透社2月27日照片）](https://gdb.voanews.com/B4AC7EE4-D949-424D-9B2F-50414B599ECB_cx0_cy10_cw0_w1023_r1_s.jpg)
-
-## 评论
-
-从最新的情况看，缅甸军方作为中共利用缅甸试探西方武统台湾干预底线的马前卒，行动又迈进了一步。仔细梳理缅甸政变的全过程就会发现，军方的动作从头到尾都是有剧本、有策略地分布推进。相信很多人还记得起初那个以政变为背景，专心致志录制跳操视频的健身教练，整个事件就是在这种刻意安排的轻松氛围开始的。
-
-后面的军民对立就逐渐加码、日益升温。军警先是放任民众抗议，下一步用民用特征的洒水车驱散示威人群，然后是橡胶弹，最后发展到动用枪支当街开枪扫射。整个暴力过程国际社会，特别是西方世界虽然没有失声，但却是实实在在地失能了。因为除了谴责还是谴责，除了敦促还是敦促。
-
-香港式的悲剧又一次在缅甸街头上演。那些勾兑内斗在行的西方政客拿不出任何有效制止缅甸军方肆意妄为的强硬措施。但凡有哪个国家的元首能站出来像川普对待伊朗一样宣布斩首个别缅甸军头，局势马上就可以得到控制。中共利用的缅甸局势试探西方干预的底线的动作层层加码却毫无阻拦，可以预见，未来针对台湾的武统计划也将进一步加速。
-
-## **【新闻三】**
-
-## **俄中走近 为何谍影重重谍案不断？**
-
-俄罗斯又宣判了一起涉及中国的新间谍案。与过去类似案件都涉及科技领域不同，新间谍案发生在具有军事意义的两国边境地区，俄罗斯更刻意对这起谍案保密低调。俄中关系虽然日益密切，但两国之间的间谍案更加频繁发生。
-
-## [新闻链接](https://www.voachinese.com/a/a-new-espionage-case-between-russia-and-china-20210227/5795290.html)
-
-![中亚国家经常与中国和俄罗斯共同参加一些活动。2014年在莫斯科郊外的军事比赛活动中，俄罗斯军人升中国和吉尔吉斯国旗。（美国之音白桦拍摄）]()![中亚国家经常与中国和俄罗斯共同参加一些活动。2014年在莫斯科郊外的军事比赛活动中，俄罗斯军人升中国和吉尔吉斯国旗。（美国之音白桦拍摄）](https://gdb.voanews.com/0A2C0349-B7D5-4A1F-93DF-143F84E088AB_w1023_r1_s.jpg)
-
-## 评论
-
-中俄之间看似火热的兄弟感情其实不过是逢场作戏而已。中共国对待俄罗斯并不像表面上所展现的一厢情愿的热情。过去很长时间，每当俄罗斯与欧美国家发生军事外交冲突时，北京很少站在俄罗斯一边，总是作壁上观，在外交上劝双方和解。对于俄罗斯在中亚的多次军事行动，北京都以影响本国少数民族团结为由，未给予俄罗斯更多支持。再仔细看看中共的一带一路计划的丝绸之路经济带，经过的国家基本都是前苏联加盟共和国，把“兄弟”家势力范围内的小伙伴都拉出来成立自己的朋友圈，这让政治硬汉普京大帝情何以堪。
-
-俄罗斯同样也是如此，表面上和中共睦邻友好，实际也玩着背后插刀的把戏。这样的例子比比皆是，信手拈来。拿最近的说，去年初中共病毒爆发初期，在美国尚未断绝和中共国航班往来的时候，俄罗斯在第一时间，1月30日关闭了远东中俄边境，并暂停向中共国民众发放电子签证。拿远的说，2012年7月17日，俄罗斯远东海岸警卫队的边防巡逻艇，对挂有中国国旗的渔船开炮。每到考验友谊含金度的时候，俄罗斯都会给中共国兄弟一个大大的惊喜。
-
-西方媒体曝光的中俄走近表象下暗藏的叠影重重，正是中俄外交关系金玉其外、败絮其中最真实的写照。两国之间关系表面上还能凑合，实在是因为共同面对欧美集团联合的强大势力压力下的相互苟且之举。一旦将来如果外部压力消失，或者中俄之间实力严重失衡，两国面对历史上遗留的领土争议迟早会导致白刃相向。
-
-## **【新闻四】**
-
-## **据墙内媒体称，2020年银行理财为投资者创收9932亿 同比增7.13% **
-
-
-
-日前，由银行业理财登记托管中心发布的《中国银行业理财市场年度报告（2020年）》显示，截至2020年12月末，我国银行理财市场规模达25.86万亿元，同比增长6.90%；当年累计为投资者创造收益9932.5亿元，同比增长7.13%。
-
-《年报》显示，2020年共有380家金融机构发行了理财产品，累计发行产品6.9万只，全年累计募集资金124.56万亿元，同比增长10.59%。
-
-## [新闻链接](https://money.163.com/21/0307/13/G4G7ABDK00259DLP.html)（墙内链接）
-
-![报告：2020年银行理财为投资者创收近万亿元](https://nimg.ws.126.net/?url=http%3A%2F%2Fcms-bucket.ws.126.net%2F2021%2F0307%2Ff11e98f4j00qpl3gr003ic000dw00bhc.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
-
-## 评论
-
-中共国2020年银行理财市场规模达25.86万亿元，收益却不足1万亿，年收益率还不到4%，远低于实际通货膨胀率。原文中不提收益率，只谈收益金额，就是故意耍流氓，为自己立牌坊。
-
-由于没有良好的投资渠道，很多老百姓辛辛苦苦存了一辈子的钱几乎都买了理财产品。运气好的，还能收到兑付的利息；运气不好，损失全部本金，维权无门，还有可能被“寻衅滋事”，例如E租宝、泛亚……在经历诸多理财暴雷事件后，2020年中共国理财产品募集资金竟高达124.56万亿元。中共国的金融系统崩塌之时，这些老百姓的血汗钱也将跟着共产党走向火葬场。
-
-## **【新闻五】**
-
-## **中央党史研究院：中共创造了91种精神**
-
-全国政协委员、中央党史和文献研究院原副院长吴德刚在政协会议采访活动上回答记者提问时说，过去几年，中央党史文献研究院，研究梳理了中国共产党人在不同时期地区和领域形成的革命精神，总共有91种。
-
-吴德刚表示，还要继续研究和梳理。这位副院长还深刻体会到，革命精神是党的宝贵财富。大家耳熟能详的焦裕禄精神、王杰精神、雷锋精神、铁人精神，都是不断前行的动力。
-
-## [新闻链接](https://news.sina.com.cn/c/2021-03-07/doc-ikkntiak5707701.shtml)（墙内链接）
-
-![]()![](https://n.sinaimg.cn/spider202137/279/w689h390/20210307/f13d-kkxpcze2645380.jpg)
-
-## 评论
-
-中共自始至终只有一种精神——不要脸的精神。中共往往宣传一些毫不利己、专门利人的所谓光辉事迹，又煞费苦心地搞一些巡回报告会，扩大洗脑范围。稍微懂一点逻辑就可以戳破中共的谎言。为什么这些宣传中的基层干部一辈子只能无私奉献、艰苦奋斗，现实中那些高官们却个个腐化堕落？这是不是变相承认了中共的逆淘汰制度？
-
-中共的体制是党在国上、人在党上，所谓的爱党归根结底是要热爱“伟大领袖”。歌颂党史实际上就是歌颂领袖，这种高唱赞歌的行为的确深得总加速师的喜爱。这种高调的行为是否意味着，中共内斗进一步公开化，官员争相站队表忠心。否则，忠诚不绝对，即绝对不忠诚。
+**🔗[原文链接](https://www.thegatewaypundit.com/2021/03/china-used-china-coronavirus-destroy-freedoms-hong-kong-punish-protesters/)**
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
 - [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-0
+
+[!\[\]()!\[\](https://spark.adobe.com/page/Rt0ATgqakm26S/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/Rt0ATgqakm26S/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
++2

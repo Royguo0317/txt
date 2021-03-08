@@ -1,57 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲特别广播服务公司停播CGTN、CCTV
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/958358/)
+## 迪士尼、卢卡斯影业将与腾讯合作，拍有中共特色的电影
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/958401/)
 
-新闻来源：BREITBART《布赖特巴特》| 作者：GABRIELLE REYES 加布里埃尔.雷耶斯| 发布时间：2021年3月5日
-翻译/简评：叶知秋（文义）|校对：SilverSpurs7|审核：万人往|Page：小雨
+新闻来源：The National Pulse《国家脉动 》| 作者：Natalie Winters | 发布时间：2021年3月6日
+翻译/简评：文明明|校对：X-Wing飞得更高|审核：万人往|Page：小雨
 
-[!\[\]()!\[\](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/2b1b93ad-8731-4d2c-9571-a877477b8b8d.jpg?asset_id=2b713b9b-358b-4dab-80e0-22030b75eb68&amp;img_etag=%22b2a17b92f8144697874167836923ea54%22&amp;size=2560)](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/2b1b93ad-8731-4d2c-9571-a877477b8b8d.jpg?asset_id=2b713b9b-358b-4dab-80e0-22030b75eb68&amp;img_etag=%22b2a17b92f8144697874167836923ea54%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/6lsOZONOqaXsw/images/0a8a74d6-a271-4820-8aad-1e531d5929cd.jpg?asset_id=ecc63e00-f011-463f-a881-67081015f58d&amp;img_etag=%22b1c8f4e7bc7c146be1e4c04571a80051%22&amp;size=2560)](https://spark.adobe.com/page/6lsOZONOqaXsw/images/0a8a74d6-a271-4820-8aad-1e531d5929cd.jpg?asset_id=ecc63e00-f011-463f-a881-67081015f58d&amp;img_etag=%22b1c8f4e7bc7c146be1e4c04571a80051%22&amp;size=1024)
 
 **简评：**
 
-爆料革命不孤单，正义的力量一直在行动，感谢“保护卫士”人权组织！在大外宣机器遭到澳大利亚的停播和被英国相关机构吊销播放执照之后，中共政府“一如既往”地进行了有针对性的反击！
+最近，迪士尼公司和制作《星球大战》系列的卢卡斯影业与中共控制的媒体巨头腾讯公司签订了一项协议，协议称迪士尼公司和卢卡斯影业将为中共国量身定制一部中共国特色的《星球大战》电影。
 
-流氓就是这样，从来都不会反省自己错在哪里，流氓总是从心底认为，错都是别人的，哪怕杀了人，他也会理所当然地认为那是受害者的问题。但是，事实就在那里，不会因为你对等的手段而被掩盖。在全球互联的信息时代，当越来越多的人认识到中共的邪恶与危险之后，那些虚伪的、空洞无物的“伤害了中国人民的感情”、“破坏了民族团结”、“搬起石头砸自己的脚”…… 类似的话，中共政府还能用多久呢？
+2021年1月19日，时任美国国务卿彭佩奥签署了一份国务院的命令，将中共在新疆所犯的罪行定义为种族灭绝。2月24日，美国国务院发言人再次确认新界政府的国务卿布林肯已经确认中共犯下种族灭绝和反人类罪。加拿大和荷兰等国的议会也通过了关于中共的犯下的种族灭绝和反人类罪的决议。在国际社会对中共的认识已有觉醒之际，迪士尼和《星球大战》的制作方却仍然一意孤行，拜在中共的金钱和利益的诱惑和淫威下，与中共的御用媒体腾讯合作，打造一部为中共罪恶歌功颂德的具有中共国特色的《星球大战》电影。这让世人更进一步地看到中共在西方的资本市场、好莱坞和文化界的渗透是如此之深，它对西方社会的意识形态超限战是如此的成功。
 
-郭文贵先生曾经说过，现代社会，最有力量的武器就是媒体。请爆料革命的战友们积极参与到报道真相的队伍里，在各个平台都发出我们的声音，广泛宣传中共国的现状，曝光中共的恶行，揭露他们的虚伪，让更多的人了解到中共邪恶的本质。相信随着最后一根稻草慢慢落下，中共政权必将瞬间垮塌。
+如果西方资本主义的媒体界、文化界和整个西方社会各界还不能及时醒悟，不能认清中共的大外宣和文化侵略，那么，西方世界引以为傲的自由、民主、法治、人权都将因为资本的贪婪而毁于一旦。
 
 **原文翻译：**
 
-## 澳大利亚公共广播公司停播中共国国家电视台节目
+## 《星球大战》与迪士尼宣布与中共的“工具”合作
 
-[!\[\]()!\[\](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/39ed775b-e588-428d-8cfc-f40e326b0f67.jpg?asset_id=bb4f5107-45d4-49e2-b6ba-a6bac3d2a0e3&amp;img_etag=%2240a0d8602e7f988e422108a26bde1ab7%22&amp;size=2560)](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/39ed775b-e588-428d-8cfc-f40e326b0f67.jpg?asset_id=bb4f5107-45d4-49e2-b6ba-a6bac3d2a0e3&amp;img_etag=%2240a0d8602e7f988e422108a26bde1ab7%22&amp;size=1024)
+**最近，迪士尼和制作《星球大战》系列的卢卡斯影业与附属于中共的腾讯公司签订了一项协议，将为中共国制作《星球大战》内容的电影。**
 
-澳大利亚国家广播公司“特别广播服务公司”（SBS）周五将停播两家中共国国家新闻机构的新闻内容，此前一个人权组织指控SBS播放由中共国媒体拍摄的“囚犯”被逼供的新闻。
+这项制作“具有中共国特色的真实版星球大战故事”的协议，此前迪士尼解雇了曾出演Disney+的电影《曼陀罗星》（The Mandalorian）的女演员吉娜•卡拉诺（Gina Carano），原因是她在社交媒体上分享了一些保守言论。
 
-亚洲人权组织“保护卫士”周四联系SBS称，2013年至2020年期间，中国环球电视网(CGTN)和中国中央电视台(CCTV)在SBS上播放了至少56名“囚犯”在受到胁迫或酷刑的情况下所做的供词。
+然而，《星球大战》系列的专营方，与犯有种族灭绝罪的、专制和危险的中共仍然保持公开的合作关系。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/30e14728-3efe-40b8-90ca-1bf91476568b.png?asset_id=dba181a1-cccc-415e-81ec-f4b8ce4f9db5&amp;img_etag=%2219f62fdf88e1624fd721a311daafb647%22&amp;size=2560)](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/30e14728-3efe-40b8-90ca-1bf91476568b.png?asset_id=dba181a1-cccc-415e-81ec-f4b8ce4f9db5&amp;img_etag=%2219f62fdf88e1624fd721a311daafb647%22&amp;size=1024)
+迪士尼和卢卡斯影业与总部位于深圳的腾讯及其子公司阅文集团签署了一项协议，将”为中国读者授权和发行40部《星球大战》的翻译小说”。
 
-这家由澳大利亚纳税人资助的媒体机构发言人3月4日表示：“SBS收到了一份投诉，目前正在审核相关的内容。”
+[![](https://spark.adobe.com/page/6lsOZONOqaXsw/images/cbcd345d-ebc6-4d63-94dd-53c834639431?asset_id=f569d815-6ee3-405a-bf14-abce9c083755&amp;img_etag=%2279b8ae988c0c273b64ce5dbb2cf07d4b%22&amp;size=3411)](https://spark.adobe.com/page/6lsOZONOqaXsw/images/cbcd345d-ebc6-4d63-94dd-53c834639431?asset_id=f569d815-6ee3-405a-bf14-abce9c083755&amp;img_etag=%2279b8ae988c0c273b64ce5dbb2cf07d4b%22&amp;size=1024)
 
-这位发言人补充说：“考虑到此投诉事件所引起的严重关注及所涉资料的复杂性，我们决定暂停播放海外来源的CGTN及CCTV的新闻快报，同时开始对这些服务进行评估。”
+腾讯副总裁、腾讯影业CEO 程武（Edward Cheng）表示：“我们非常高兴能与迪士尼和卢卡斯影业合作，共同开发一部网络小说，讲述一个发生在非常遥远的星系中的故事。从这次合作中，我们希望创造出一个具有星战元素的创新故事，让人们产生共鸣，同时也有助于促进文化交流。”
 
-作为“世界观察”国际新闻节目的一部分，SBS多年来一直用普通话播放15分钟的CGTN节目，用英语播放30分钟的CCTV节目，并且附带一份免责声明：“可能不符合SBS的标准，可能包含令人不安的内容。”
+美国国务院国际安全和防扩散局（The State Department’s Bureau of International Security and Nonproliferation）将腾讯描述为“中共国政府的工具”，并指出如果中共官员决定要求该公司提供协助，该公司是“没有实质性的能力向中共说‘不’的”。
 
-[![](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/dcf5133e-1d52-4a65-87a0-abb2aa0663d1?asset_id=73d81510-c256-4fd7-a71a-8c4ad168cc19&amp;img_etag=%2233abe85ec781978ab737cc03cef2144e%22&amp;size=1024)](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/dcf5133e-1d52-4a65-87a0-abb2aa0663d1?asset_id=73d81510-c256-4fd7-a71a-8c4ad168cc19&amp;img_etag=%2233abe85ec781978ab737cc03cef2144e%22&amp;size=1024)
+报告补充说，腾讯提供了一个“技术化监控和社会控制的平台”，是中共“按照其专制模式塑造全世界”，更广泛地实施其侵蚀全球行动的一部分。
 
-在发现CGTN完全由中国共产党控制之后，人权组织保护卫士于2月4日成功游说英国电视监管机构英国通信管理局，吊销了CGTN的在英国的广播执照。
+据悉，腾讯的首席执行官还与中共政府有直接联系，目前担任人大代表和常务委员会委员，是中共党内的名人。
 
-英国通信管理局称， CGTN服务的广播执照持有人，“星华传媒(SCML)”不拥有对CGTN播出内容的编辑责任权。因此，星华传媒不符合对被许可的服务须有控制权的法律要求（英国广播法），也不是合法的广播执照持有者。”
+他曾公开表示支持模糊私人企业和国家公共部门之间的界限，更倾向于在“执法和安全问题”上协助中共，并与中共合作开发所谓的“爱国”电子游戏。
 
-该监管机构补充说：“我们认为，CGTN应该被取消持有执照的资格，因为它是由一个完全被中国共产党控制的机构在控制。”
+仅在迪士尼、卢卡斯影业和腾讯之间的协议被披露后10天，《中国日报》写了一篇报道，描述了该中共公司计划“为纪念中国共产党成立一百周年，将推出史诗电影《1921》”。
 
-然而，澳大利亚并没有同样吊销执照。“相反，SBS有自行决定播放内容的自由。”澳大利亚广播公司（ABC）在周五指出。
+卢卡斯影业副总裁詹姆斯•沃夫（James Waugh）指出：“这也是我们首次与一位中国作者合作，并给予他充分的空间来打造一个能与中国本土观众对话，与他们拥有的文化对话的一个星球大战的故事，并为世界的构建提供了一个非常特别的中国视角。”
 
-在英国通信管理局吊销CGTN的英国广播执照一周后，中共国政府官员于2月12日禁止了英国广播公司(BBC)在中国和香港的世界新闻台广播。
-
-中共国广电总局称，BBC世界新闻台关于中国的报道“严重违反”了“真实公正”的要求，损害了中国的利益，破坏了中国的民族团结。
-
-公共广播机构香港电台（RTHK）宣布，将停止播放在前英殖民地期间一直坚持播放了很多年的BBC广播新闻节目。
-
-🔗[原文链接](https://www.breitbart.com/asia/2021/03/05/australian-public-broadcaster-suspends-chinese-state-tv-segments/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+breitbart+%28Breitbart+News%29)
+🔗[原文链接](https://thenationalpulse.com/exclusive/star-wars-partners-with-tencent/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -60,6 +54,6 @@
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/6lsOZONOqaXsw/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/6lsOZONOqaXsw/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0
