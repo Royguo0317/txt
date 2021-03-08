@@ -1,53 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国利用病毒破坏香港的自由
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/958329/)
+## 美将对驻伊拉克基地遇袭主谋实施报复打击
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/958579/)
 
-新闻来源：《门户专家（GATEWAY PUNDIT） 》| 作者：Joe Hoft | 发布时间：2021年3月6日
-翻译/简评：Dreamer文童 | 校对：感恩 | 审核：万人往 | Page：Daoiii
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Rt0ATgqakm26S/images/d5c9747e-4528-49d4-bb08-73e09c58d403.jpg?asset_id=ff0d1646-a437-4f0e-9e87-82b53ad82adc&amp;img_etag=%22eb93b334afee4f853312a183e7d04a27%22&amp;size=1024)](https://spark.adobe.com/page/Rt0ATgqakm26S/images/d5c9747e-4528-49d4-bb08-73e09c58d403.jpg?asset_id=ff0d1646-a437-4f0e-9e87-82b53ad82adc&amp;img_etag=%22eb93b334afee4f853312a183e7d04a27%22&amp;size=1024)
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-08_16-52-00.jpg)[newscast-pratyaksha.com](http://www.newscast-pratyaksha.com/english/us-avoids-blaming-iran-for-terror-attack-in-iraq/)
+03月07日，五角大楼负责人劳埃德·奥斯汀将军在接受美国广播公司采访时说，美军将在必要时对袭击其在伊拉克基地的武装分子进行报复。早在2月和3月，美国在伊拉克的军事设施遭到了数次袭击，国防部长劳埃德·奥斯汀表示，美国将“在自己选择的时间和地点”进行报复行动。
 
-***简评：***
+主持人问部长，当局是否已经了解到谁是2021年3月3日伊拉克艾因阿萨德空军基地遇袭的幕后主使。当时有5名美国人受伤，1人死亡，死者是一个外国承包商的雇员，根据合同为美国工作。
 
-**2019年是香港民众街头抗议活动最惨烈的一年。全世界见证了昔日繁华的金融中心街道上弥漫着催泪弹，还有抗议者设置的路障。和平抗议的民众与全副武装的警察对峙着，许多年轻示威者被黑警强行按压甚至踩踏在地面上，更有甚者，丧心病狂的黑警拔枪近距离实弹射击示威者。**
+据奥斯汀透露，当局已经得到了一些信息，到底是谁在背后袭击空军基地，他们现在正在核实以确定，“如果有必要，我们会进行报复。我们将在我们选择的地点和时间进行。”
 
-**2020年初，在“路德社”提前爆料预警下，我们知道了来自中共军方实验室的病毒将会造成全球疫情大爆发。随后世界各国都陷入了病毒带来的各种灾难。然而中共利用这个时机，一意孤行地通过了香港国安法，其实就是用实际行动撕毁了《中英联合声明》，然后利用香港国安法对民运人士进行抓捕，同时也震慑了其他人。今年3月5日，中共在两会上提议修改香港的选举制度，确保“爱国者治港”，这是对《中英联合声明》的进一步践踏。中共向全世界释放超限生物武器——新冠病毒，把毫无准备的各国打得措手不及，然后趁乱实施筹备已久的阴谋。我们在去年美国大选和香港事件上已经看到了中共的这种操作。然而，香港民众依然不会屈服，香港必将成为新中国联邦的圣城。**
+奥斯汀指出，那些对艾因阿萨德空军基地（Ain al-Assad）导弹袭击事件负责的人“应该期望为这些行动负责”。同时，国防部长称，华盛顿打算对袭击事件作出周密的回应。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Rt0ATgqakm26S/images/cae6ba00-ef83-48f5-9a20-e15468d88057.jpg?asset_id=32089829-d198-476a-9201-3300b62d0c85&amp;img_etag=%22eac4c61a78cffd5ae6a0d38b1b117bce%22&amp;size=1024)](https://spark.adobe.com/page/Rt0ATgqakm26S/images/cae6ba00-ef83-48f5-9a20-e15468d88057.jpg?asset_id=32089829-d198-476a-9201-3300b62d0c85&amp;img_etag=%22eac4c61a78cffd5ae6a0d38b1b117bce%22&amp;size=1024)来源IG:[small.\_.tt](https://www.instagram.com/small._.tt)
+五角大楼负责人强调，2月袭击中东美军的幕后亲伊朗民兵有能力对美国的意图做出结论。
 
-***原文翻译：***
+与德黑兰有关联的民兵在2月份对伊拉克境内的美国设施发动了三次袭击。其中包括巴拉德基地、美国驻巴格达绿区大使馆和埃尔比勒国际机场附近的设施。3月3日上午，安巴尔省的艾因阿萨德空军基地遭到袭击——从距离基地8公里的地方发射了10多枚火箭弹。
 
-## 中共国利用中共冠状病毒破坏香港的自由并惩罚抗议者
-[!\[\]()!\[\](https://spark.adobe.com/page/Rt0ATgqakm26S/images/0d2ab73c-3575-462b-9956-eaa9cc17bb3f.png?asset_id=77b922a3-00bc-46ca-8b5d-e2fcf9e80673&amp;img_etag=%22c6e5b2a34b83b4dee58ea1ba611cbbda%22&amp;size=2560)](https://spark.adobe.com/page/Rt0ATgqakm26S/images/0d2ab73c-3575-462b-9956-eaa9cc17bb3f.png?asset_id=77b922a3-00bc-46ca-8b5d-e2fcf9e80673&amp;img_etag=%22c6e5b2a34b83b4dee58ea1ba611cbbda%22&amp;size=1024)
-一年前，香港被席卷整个小城的抗议活动所震惊。经过中共冠状病毒一年的肆虐，抗议活动已经消失，现在这个城市几乎完全被中共控制。
+2月袭击事件发生后，美国领导的军事联军指挥部对叙利亚境内亲伊朗的民兵阵地发动了空袭。叙利亚东部一个边境检查站的设施被摧毁。
 
-2019年秋天，香港因整个小城的抗议活动而摇摇欲坠。
+此后，“坚定不移的决心”军事行动指挥部提高了驻伊美军人员的威胁等级。巴拉德基地的人员已进入高度戒备状态。加强安保措施预计将持续数天。
 
-去年夏天，我们报道了中共国如何折磨这个小城，并利用中共冠状病毒作为他们的工具。
+参考链接：[https://www.rbc.ru/politics/07/03/2021/604527bd9a7947c5f047ee0e](https://www.rbc.ru/politics/07/03/2021/604527bd9a7947c5f047ee0e)
 
-一周前，大全新闻（Newsmax）报道了中共国在过去一年内是如何入侵香港的。
-
-宾西法尼亚州共和党众议员盖·雷申塔勒（Guy Reschenthaler）表示，去年夏天，当全世界把注意力转向处理冠状病毒大流行时，中共国利用这个机会对香港实施严格的国家安全法。
-
-雷申塔勒周三参加大全新闻电视的《克里斯·萨尔赛多秀》（Chris Salcedo Show）节目时表示：“中共国转过身来，基本上已入侵了香港这个民主的准独立城市，并违反国际条约接管了这个城市。”
-
-“所以，中共国正在利用资本，他们正在行动，而且他们变得越来越咄咄逼人。”
-
-1月下旬，中共国在北京新国家安全法的支持下逮捕了50多人，这项6月颁布的法律赋予北京打击各种政治犯罪的广泛权力，包括对“严重”罪行判处终身监禁。
-
-当世界因中共冠状病毒而陷入恐惧时，世界各地的个人自由却遭到破坏。
-
-**🔗[原文链接](https://www.thegatewaypundit.com/2021/03/china-used-china-coronavirus-destroy-freedoms-hong-kong-punish-protesters/)**
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Rt0ATgqakm26S/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/Rt0ATgqakm26S/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-+2
+0

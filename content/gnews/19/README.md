@@ -1,65 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲特别广播服务公司停播CGTN、CCTV
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/958358/)
+## 聚焦“中共”两会—中共版“国际旅行健康证明”正式上线
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/958642/)
 
-新闻来源：BREITBART《布赖特巴特》| 作者：GABRIELLE REYES 加布里埃尔.雷耶斯| 发布时间：2021年3月5日
-翻译/简评：叶知秋（文义）|校对：SilverSpurs7|审核：万人往|Page：小雨
+俄罗斯莫斯科喀秋莎农场 娜洁仕达
 
-[!\[\]()!\[\](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/2b1b93ad-8731-4d2c-9571-a877477b8b8d.jpg?asset_id=2b713b9b-358b-4dab-80e0-22030b75eb68&amp;img_etag=%22b2a17b92f8144697874167836923ea54%22&amp;size=2560)](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/2b1b93ad-8731-4d2c-9571-a877477b8b8d.jpg?asset_id=2b713b9b-358b-4dab-80e0-22030b75eb68&amp;img_etag=%22b2a17b92f8144697874167836923ea54%22&amp;size=1024)
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-08_17-20-25.jpg)[ttgchina.com](https://ttgchina.com/2021/03/08/%E5%9B%BD%E9%99%85%E6%97%85%E8%A1%8C%E5%81%A5%E5%BA%B7%E8%AF%81%E6%98%8E%E4%BB%8A%E5%B9%B4%E6%8E%A8%E5%87%BA-%E8%90%BD%E5%AE%9E%E5%81%A5%E5%BA%B7%E7%A0%81%E5%9B%BD%E9%99%85%E4%BA%92%E8%AE%A4/)
+3月8日，中共媒体报道中共外交部长王毅在“两会”外长记者会上宣布推出中共版“国际旅行健康证明”。这是一种综合性证明，展示持有人的核酸、血清IgG抗体检测结果及疫苗接种情况等。健康证明内含加密二维码，以供各国相关部门验真并读取个人相关信息。该健康证明主要通过微信获得。
 
-**简评：**
+会上对此政策做出解释：在不久的将来，疫情将常态化乃至进入后疫情时代，随着越来越多的国家与中共达成健康证明互认安排，中共版“国际旅行健康证明”将在推动跨国人员健康、安全、有序往来中发挥更大作用，为中共国公民“行走天下”提供坚实保障。
 
-爆料革命不孤单，正义的力量一直在行动，感谢“保护卫士”人权组织！在大外宣机器遭到澳大利亚的停播和被英国相关机构吊销播放执照之后，中共政府“一如既往”地进行了有针对性的反击！
+中共国所谓的“健康二维码”早在2020年疫情初期就已经在中共国被广泛使用并作为居民通行的凭证。中共国公民进出小区、超市、医院、车站等所有场所均需要扫描二维码，如果扫描出二维码显示为红色，代表着危险信号，禁止出入以上场所。扫描为绿色即可自由出入以上场所。曾经患有中共病毒患者、近期曾经出入过中、高风险地区、身处隔离期、近期发烧等人员均显示为红色二维码。许多老年人为此甚至更换了智能手机，如果出门忘记带手机，会造成出行困难。
 
-流氓就是这样，从来都不会反省自己错在哪里，流氓总是从心底认为，错都是别人的，哪怕杀了人，他也会理所当然地认为那是受害者的问题。但是，事实就在那里，不会因为你对等的手段而被掩盖。在全球互联的信息时代，当越来越多的人认识到中共的邪恶与危险之后，那些虚伪的、空洞无物的“伤害了中国人民的感情”、“破坏了民族团结”、“搬起石头砸自己的脚”…… 类似的话，中共政府还能用多久呢？
+同时中共国在一年时间内不断更新完善二维码内容，除姓名、身份证号码、车辆信息、近期行踪等信息外，又增添了护照信息、驾照、户籍等信息，此程序几乎包含了所有个人信息，如今将核酸检测结果和疫苗接种信息也涵盖在二维码中并且与其他国家共享，基本上中共国所有居民的个人信息全部暴露无遗。
 
-郭文贵先生曾经说过，现代社会，最有力量的武器就是媒体。请爆料革命的战友们积极参与到报道真相的队伍里，在各个平台都发出我们的声音，广泛宣传中共国的现状，曝光中共的恶行，揭露他们的虚伪，让更多的人了解到中共邪恶的本质。相信随着最后一根稻草慢慢落下，中共政权必将瞬间垮塌。
+爆料革命闫丽梦博士早在2020年就通过路德社警示世界，在病毒真相尚未找到之前，所有疫苗都是无效的，况且中共过接种的均是自产自销的灭活疫苗，该疫苗在灭活过程如果不能完全做到灭活的后果是直接将中共病毒注入健康人的身体中。根据中共国的医疗水平和医疗条件，灭活的技术很难令人信服。如果将灭活不成功的疫苗注入人体，那么接种过疫苗的人员又将成为一个移动的传染源！后果将不堪设想！
 
-**原文翻译：**
+问题的关键是在两会期间，中共国的外交部长提出“国际旅行健康证明”，这是中共将疫苗作为了外交的手段，那么未来会不会不注射疫苗的就无法自由活动甚至不让进出中共国呢？注射过中共疫苗的人员出入其他国家是否有隐患呢？如此不负责任的险恶用心全世界如果还不警醒，必将被中共的“疫苗”外交再次伤害！
 
-## 澳大利亚公共广播公司停播中共国国家电视台节目
+参考链接：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/39ed775b-e588-428d-8cfc-f40e326b0f67.jpg?asset_id=bb4f5107-45d4-49e2-b6ba-a6bac3d2a0e3&amp;img_etag=%2240a0d8602e7f988e422108a26bde1ab7%22&amp;size=2560)](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/39ed775b-e588-428d-8cfc-f40e326b0f67.jpg?asset_id=bb4f5107-45d4-49e2-b6ba-a6bac3d2a0e3&amp;img_etag=%2240a0d8602e7f988e422108a26bde1ab7%22&amp;size=1024)
-
-澳大利亚国家广播公司“特别广播服务公司”（SBS）周五将停播两家中共国国家新闻机构的新闻内容，此前一个人权组织指控SBS播放由中共国媒体拍摄的“囚犯”被逼供的新闻。
-
-亚洲人权组织“保护卫士”周四联系SBS称，2013年至2020年期间，中国环球电视网(CGTN)和中国中央电视台(CCTV)在SBS上播放了至少56名“囚犯”在受到胁迫或酷刑的情况下所做的供词。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/30e14728-3efe-40b8-90ca-1bf91476568b.png?asset_id=dba181a1-cccc-415e-81ec-f4b8ce4f9db5&amp;img_etag=%2219f62fdf88e1624fd721a311daafb647%22&amp;size=2560)](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/30e14728-3efe-40b8-90ca-1bf91476568b.png?asset_id=dba181a1-cccc-415e-81ec-f4b8ce4f9db5&amp;img_etag=%2219f62fdf88e1624fd721a311daafb647%22&amp;size=1024)
-
-这家由澳大利亚纳税人资助的媒体机构发言人3月4日表示：“SBS收到了一份投诉，目前正在审核相关的内容。”
-
-这位发言人补充说：“考虑到此投诉事件所引起的严重关注及所涉资料的复杂性，我们决定暂停播放海外来源的CGTN及CCTV的新闻快报，同时开始对这些服务进行评估。”
-
-作为“世界观察”国际新闻节目的一部分，SBS多年来一直用普通话播放15分钟的CGTN节目，用英语播放30分钟的CCTV节目，并且附带一份免责声明：“可能不符合SBS的标准，可能包含令人不安的内容。”
-
-[![](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/dcf5133e-1d52-4a65-87a0-abb2aa0663d1?asset_id=73d81510-c256-4fd7-a71a-8c4ad168cc19&amp;img_etag=%2233abe85ec781978ab737cc03cef2144e%22&amp;size=1024)](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/dcf5133e-1d52-4a65-87a0-abb2aa0663d1?asset_id=73d81510-c256-4fd7-a71a-8c4ad168cc19&amp;img_etag=%2233abe85ec781978ab737cc03cef2144e%22&amp;size=1024)
-
-在发现CGTN完全由中国共产党控制之后，人权组织保护卫士于2月4日成功游说英国电视监管机构英国通信管理局，吊销了CGTN的在英国的广播执照。
-
-英国通信管理局称， CGTN服务的广播执照持有人，“星华传媒(SCML)”不拥有对CGTN播出内容的编辑责任权。因此，星华传媒不符合对被许可的服务须有控制权的法律要求（英国广播法），也不是合法的广播执照持有者。”
-
-该监管机构补充说：“我们认为，CGTN应该被取消持有执照的资格，因为它是由一个完全被中国共产党控制的机构在控制。”
-
-然而，澳大利亚并没有同样吊销执照。“相反，SBS有自行决定播放内容的自由。”澳大利亚广播公司（ABC）在周五指出。
-
-在英国通信管理局吊销CGTN的英国广播执照一周后，中共国政府官员于2月12日禁止了英国广播公司(BBC)在中国和香港的世界新闻台广播。
-
-中共国广电总局称，BBC世界新闻台关于中国的报道“严重违反”了“真实公正”的要求，损害了中国的利益，破坏了中国的民族团结。
-
-公共广播机构香港电台（RTHK）宣布，将停止播放在前英殖民地期间一直坚持播放了很多年的BBC广播新闻节目。
-
-🔗[原文链接](https://www.breitbart.com/asia/2021/03/05/australian-public-broadcaster-suspends-chinese-state-tv-segments/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+breitbart+%28Breitbart+News%29)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[https://news.sina.com.cn/c/2021-03-08/doc-ikknscsh9462470.shtml](https://news.sina.com.cn/c/2021-03-08/doc-ikknscsh9462470.shtml)
 
 0
