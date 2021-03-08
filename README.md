@@ -12,168 +12,168 @@
 
 ---
 
-### [2021年3月7日 文贵先生盖特 6](/content/gnews/1/README.md)
+### [日本高官：若美国放弃尖阁防卫承诺 日美同盟将瓦解](/content/gnews/1/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [2021年3月7日 文贵先生盖特 6](/content/gnews/2/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [【文字版】路德时评2021.3.7早间（路安墨谈）:德州即将通过州立法禁止社交媒体进行言论审查，再结合纳瓦罗的讲话意味着什么](/content/gnews/2/README.md)
+### [【文字版】路德时评2021.3.7早间（路安墨谈）:德州即将通过州立法禁止社交媒体进行言论审查，再结合纳瓦罗的讲话意味着什么](/content/gnews/3/README.md)
  ` 喜马拉雅-华盛顿DC农场`
 
-### [【军事快讯】美国计划未来三周内对俄罗斯发起秘密网络攻击](/content/gnews/3/README.md)
+### [【军事快讯】美国计划未来三周内对俄罗斯发起秘密网络攻击](/content/gnews/4/README.md)
  ` 纽约香草山MOS01`
 
-### [《路德时评》揭露外交部长王毅答记者问进一步彰显中共外交野心](/content/gnews/4/README.md)
+### [《路德时评》揭露外交部长王毅答记者问进一步彰显中共外交野心](/content/gnews/5/README.md)
  ` 香柏树`
 
-### [台前副总统：「大两岸，民主太平洋国协」统合政策取代统一](/content/gnews/5/README.md)
+### [台前副总统：「大两岸，民主太平洋国协」统合政策取代统一](/content/gnews/6/README.md)
  ` G-NEWS TAIWAN`
 
-### [2021年3月4日郭先生盖特直播整理](/content/gnews/6/README.md)
+### [2021年3月4日郭先生盖特直播整理](/content/gnews/7/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [【澳洲热点】澳洲人乐意成为中共眼里的“败类”](/content/gnews/7/README.md)
+### [【澳洲热点】澳洲人乐意成为中共眼里的“败类”](/content/gnews/8/README.md)
  ` 墨尔本雅典娜农场`
 
-### [【聚焦东南亚】一周新闻回顾（2021年2月28日&#8212;3月7日）](/content/gnews/8/README.md)
+### [【聚焦东南亚】一周新闻回顾（2021年2月28日&#8212;3月7日）](/content/gnews/9/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [2021年3月3日郭先生盖特直播整理](/content/gnews/9/README.md)
+### [2021年3月3日郭先生盖特直播整理](/content/gnews/10/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [美参议院全票通过限制孔子学院的法案](/content/gnews/10/README.md)
+### [美参议院全票通过限制孔子学院的法案](/content/gnews/11/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [2021年3月1日-2日郭先生直播盖特整理](/content/gnews/11/README.md)
+### [2021年3月1日-2日郭先生直播盖特整理](/content/gnews/12/README.md)
  ` 新加坡狮城农场 Himalaya Singapore`
 
-### [2021/03/08 美国政要等每日每日重要信息汇总](/content/gnews/12/README.md)
+### [2021/03/08 美国政要等每日每日重要信息汇总](/content/gnews/13/README.md)
  ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
 
-### [视频【每日快讯】07/03/2021:闫博士与班农、纳瓦罗同框，代表新中国联邦对美国主流政治圈的影响](/content/gnews/13/README.md)
+### [视频【每日快讯】07/03/2021:闫博士与班农、纳瓦罗同框，代表新中国联邦对美国主流政治圈的影响](/content/gnews/14/README.md)
  ` GM132 每日快訊`
 
-### [凤梨事件的省思](/content/gnews/14/README.md)
+### [凤梨事件的省思](/content/gnews/15/README.md)
  ` G-NEWS TAIWAN`
 
-### [2021年3月7日中共病毒疫情要闻快报](/content/gnews/15/README.md)
+### [2021年3月7日中共病毒疫情要闻快报](/content/gnews/16/README.md)
  ` 秘密翻译组G-Translators`
 
-### [目标中共——美国务卿和防长将组团访日](/content/gnews/16/README.md)
+### [目标中共——美国务卿和防长将组团访日](/content/gnews/17/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [台湾防疫指挥官：疫苗施打不改变入境检疫措施。被学者批：不信任疫苗](/content/gnews/17/README.md)
+### [台湾防疫指挥官：疫苗施打不改变入境检疫措施。被学者批：不信任疫苗](/content/gnews/18/README.md)
  ` G-NEWS TAIWAN`
 
-### [视频2021年3月6日秘翻快报【头条新闻】](/content/gnews/18/README.md)
+### [视频2021年3月6日秘翻快报【头条新闻】](/content/gnews/19/README.md)
  ` 秘密翻译组G-Translators`
 
-### [中共国军费预算突破两千亿美元，实际数字或被低估](/content/gnews/19/README.md)
+### [中共国军费预算突破两千亿美元，实际数字或被低估](/content/gnews/20/README.md)
  ` 澳喜农场`
 
-### [视频今年人大新闻发言人称人大代表是由人民“一人一票”选举出来](/content/gnews/20/README.md)
+### [视频今年人大新闻发言人称人大代表是由人民“一人一票”选举出来](/content/gnews/21/README.md)
  ` 秘密翻译组G-Translators`
 
-### [患有幻想症的台籍人大代表于两会表示：许多港澳台青年希望到大陆从军](/content/gnews/21/README.md)
+### [患有幻想症的台籍人大代表于两会表示：许多港澳台青年希望到大陆从军](/content/gnews/22/README.md)
  ` G-NEWS TAIWAN`
 
-### [视频2019年郭文贵先生揭露中共企图吞噬香港的大湾区计划](/content/gnews/22/README.md)
+### [视频2019年郭文贵先生揭露中共企图吞噬香港的大湾区计划](/content/gnews/23/README.md)
  ` 秘密翻译组G-Translators`
 
-### [中国共产党怕你有文化 怕你懂了英文知道它的假丑恶](/content/gnews/23/README.md)
+### [中国共产党怕你有文化 怕你懂了英文知道它的假丑恶](/content/gnews/24/README.md)
  ` 澳喜农场`
 
-### [视频郭文贵先生早在2019年就警告世界，香港选举法将被废除](/content/gnews/24/README.md)
+### [视频郭文贵先生早在2019年就警告世界，香港选举法将被废除](/content/gnews/25/README.md)
  ` 秘密翻译组G-Translators`
 
-### [数字解读强国新闻（1）](/content/gnews/25/README.md)
+### [数字解读强国新闻（1）](/content/gnews/26/README.md)
  ` 澳喜农场`
 
-### [《司法观察》：新邮件详解WHO/NIH对中国保密&#8221;条款&#8221;的迁就](/content/gnews/26/README.md)
+### [《司法观察》：新邮件详解WHO/NIH对中国保密&#8221;条款&#8221;的迁就](/content/gnews/27/README.md)
  ` JPHIMALAYA`
 
-### [闲谈民主意识](/content/gnews/27/README.md)
+### [闲谈民主意识](/content/gnews/28/README.md)
  ` 澳喜农场`
 
-### [无耻中共撕毁中英联合声明——香港彻底沦为中共统治下的一个省](/content/gnews/28/README.md)
+### [无耻中共撕毁中英联合声明——香港彻底沦为中共统治下的一个省](/content/gnews/29/README.md)
  ` 恩典农场`
 
-### [视频3/03/2021纳瓦罗担心CCP病毒是一种生物武器（粤语版）](/content/gnews/29/README.md)
+### [视频3/03/2021纳瓦罗担心CCP病毒是一种生物武器（粤语版）](/content/gnews/30/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频1/03/2021拜登政府是否会延续同中共的对抗政策（粤语版）](/content/gnews/30/README.md)
+### [视频1/03/2021拜登政府是否会延续同中共的对抗政策（粤语版）](/content/gnews/31/README.md)
  ` 秘密翻译组G-Translators`
 
-### [透过核酸检测看中共的割韭菜本质](/content/gnews/31/README.md)
+### [透过核酸检测看中共的割韭菜本质](/content/gnews/32/README.md)
  ` 澳喜农场`
 
-### [视频没有群体免疫！不依据闫博士的信息研究的疫苗不可能是有用的疫苗！](/content/gnews/32/README.md)
+### [视频没有群体免疫！不依据闫博士的信息研究的疫苗不可能是有用的疫苗！](/content/gnews/33/README.md)
  ` Himalaya Rose Garden Team`
 
-### [【战友心声】彻底消灭共产幽灵，开启人类新时代。](/content/gnews/33/README.md)
+### [【战友心声】彻底消灭共产幽灵，开启人类新时代。](/content/gnews/34/README.md)
  ` 纽约香草山MOS03`
 
-### [2021年03月06日澳喜要闻（每日更新）](/content/gnews/34/README.md)
+### [2021年03月06日澳喜要闻（每日更新）](/content/gnews/35/README.md)
  ` 澳喜农场`
 
-### [【世事解评】动物适应实验的危险](/content/gnews/35/README.md)
+### [【世事解评】动物适应实验的危险](/content/gnews/36/README.md)
  ` 纽约香草山MOS01`
 
-### [脱欧第一人：与中共的邪恶崛起作斗争](/content/gnews/36/README.md)
+### [脱欧第一人：与中共的邪恶崛起作斗争](/content/gnews/37/README.md)
  ` HimalayaRussia`
 
-### [【疫苗战】达赖喇嘛打阿斯利康疫苗](/content/gnews/37/README.md)
+### [【疫苗战】达赖喇嘛打阿斯利康疫苗](/content/gnews/38/README.md)
  ` wenwu`
 
-### [【热点播报】中共病毒疫苗接种会导致孕妇流产或死胎](/content/gnews/38/README.md)
+### [【热点播报】中共病毒疫苗接种会导致孕妇流产或死胎](/content/gnews/39/README.md)
  ` 纽约香草山MOS02`
 
-### [《路德社》精选新闻简讯：韭菜劳动力生产跟不上了需要提前收割，全国人大代表张红伟：建议缩短教育学制，小学5年、初中3年、高中2年](/content/gnews/39/README.md)
+### [《路德社》精选新闻简讯：韭菜劳动力生产跟不上了需要提前收割，全国人大代表张红伟：建议缩短教育学制，小学5年、初中3年、高中2年](/content/gnews/40/README.md)
  ` 路德社精选`
 
-### [共和党称拜登正“全面侵犯”投票权](/content/gnews/40/README.md)
+### [共和党称拜登正“全面侵犯”投票权](/content/gnews/41/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [中共病毒导致全球主权财富基金投资暴跌69%](/content/gnews/41/README.md)
+### [中共病毒导致全球主权财富基金投资暴跌69%](/content/gnews/42/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【世事解评】中共国国防预算大幅提高 继续走在穷兵黩武的路上](/content/gnews/42/README.md)
+### [【世事解评】中共国国防预算大幅提高 继续走在穷兵黩武的路上](/content/gnews/43/README.md)
  ` 纽约香草山MOS01`
 
-### [反驳 “人民锐评：一字千金，香港是时候抓住机会了”](/content/gnews/43/README.md)
+### [反驳 “人民锐评：一字千金，香港是时候抓住机会了”](/content/gnews/44/README.md)
  ` 旧金山金喜准农场 Himalaya San Francisco Golden Farm`
 
-### [【文贵视角】中共与希特勒同一天毁约 绥靖将带来比万个希特勒更大的人类灾难](/content/gnews/44/README.md)
+### [【文贵视角】中共与希特勒同一天毁约 绥靖将带来比万个希特勒更大的人类灾难](/content/gnews/45/README.md)
  ` 秘密翻译组G-Translators`
 
-### [《路德社》精选新闻快讯：中国似乎在警告印度。逼得太紧可能会全国熄灯](/content/gnews/45/README.md)
+### [《路德社》精选新闻快讯：中国似乎在警告印度。逼得太紧可能会全国熄灯](/content/gnews/46/README.md)
  ` 路德社精选`
 
-### [《路德社》精选新闻快讯：港府无视第二名港人接种疫苗后中风死亡坚持接种计划不叫停](/content/gnews/46/README.md)
+### [《路德社》精选新闻快讯：港府无视第二名港人接种疫苗后中风死亡坚持接种计划不叫停](/content/gnews/47/README.md)
  ` 路德社精选`
 
-### [【战友心声】民主的必备条件（二）教育的宗旨](/content/gnews/47/README.md)
+### [【战友心声】民主的必备条件（二）教育的宗旨](/content/gnews/48/README.md)
  ` 纽约香草山MOS03`
 
-### [加拿大考虑建外国代理人登记处以监测中共对本国影响](/content/gnews/48/README.md)
+### [加拿大考虑建外国代理人登记处以监测中共对本国影响](/content/gnews/49/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [活着的代价：中共病毒疫情下的重症监护室](/content/gnews/49/README.md)
+### [活着的代价：中共病毒疫情下的重症监护室](/content/gnews/50/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [视频【字幕】3/7/2021文贵盖特：国际巨头将投入大陆的资金撤出，部分将投入到我们G系列](/content/gnews/50/README.md)
+### [视频【字幕】3/7/2021文贵盖特：国际巨头将投入大陆的资金撤出，部分将投入到我们G系列](/content/gnews/51/README.md)
  ` 纽约香草山MOS01`
 
-### [《路德社》精选主题专栏:文明与野蛮的再一次较量，历史给我们的启示](/content/gnews/51/README.md)
+### [《路德社》精选主题专栏:文明与野蛮的再一次较量，历史给我们的启示](/content/gnews/52/README.md)
  ` 路德社精选`
 
-### [CCP病毒的一點經歷](/content/gnews/52/README.md)
+### [CCP病毒的一點經歷](/content/gnews/53/README.md)
  ` 喜马拉雅意大利罗马达芬奇农场`
 
-### [视频路德时评简讯（视频版）：美国对中共结束香港体制居然只是谴责(2021.3.6早间 路德社简讯之路安墨谈)](/content/gnews/53/README.md)
+### [视频路德时评简讯（视频版）：美国对中共结束香港体制居然只是谴责(2021.3.6早间 路德社简讯之路安墨谈)](/content/gnews/54/README.md)
  ` 路德社`
 
-### [墙国邪恶宣传案例经典：小品 &#8211; 超生游击队](/content/gnews/54/README.md)
+### [墙国邪恶宣传案例经典：小品 &#8211; 超生游击队](/content/gnews/55/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
-
-### [视频3/05/2021 郭先生直播(二)：历史上的3月5日 &#8211; 历史总是惊人的相似！](/content/gnews/55/README.md)
- ` 秘密翻译组G-Translators`
 
