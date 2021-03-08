@@ -1,50 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语】 闫丽梦的科学报告(一)
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/959142/)
+## 喀秋莎新闻参考- 2021年3月7日(星期日)
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/959188/)
 
-**制作:Cantonese工作室**
-**配音:【一帘幽梦】 资料整理:【深寒】【Annie 】中文翻译:【喜马拉雅工作站 】校对:【文舜】**
-**海报:【侬民】【MW】剪辑:【星星】**
-视频内容:
+俄罗斯莫斯科喀秋莎农场 土星
 
-**闫博士科学报告（一）**
+编辑上传 星河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/图片1-27.png)
+一、新中国联邦新闻
 
-1,SARS-CoV-2表现出的生物学特征与自然发生的人兽共患病毒不一致。证据表明，SARS-CoV-2 应该是以蝙蝠冠状病毒ZC45和/或ZXC21为模板和/或骨架研制的实验室产物。
+1.“路德时评”本日摘要（[早间](https://www.youtube.com/watch?v=qmvBlFXDgX8)、[晚间](https://www.youtube.com/watch?v=UNX42psE7KQ)）:
 
-SARS-CoV-2 shows biological characteristics that are inconsistent with a naturally occurring, zoonotic virus.The evidence shows that SARS-CoV- 2 should be a laboratory product created by using bat coronaviruses ZC45 and/or ZXC21 as a template and/or backbone.
+Ⅰ. 大纪元3月6日报道，德州州长格雷格‧阿伯特（Greg Abbott）周五就一项旨在打击社交媒体公司对保守派声音审查的新立法，发表了自己的看法。阿伯特在新闻发布会上警告说，美国各地出现了压制保守思想和宗教信仰的“危险运动”。该法案规定任何德州人在媒体平台上的账户曾经被取消、被审查或被撤销，都可以依法向脸书、推特等任何媒体网络公司发起法律诉讼。保守派大会统一灭共目标，德州作为保守派大本营率先采取行动，发起撤销“230条款”的行动。
 
-2,SARS-CoV-2：能攻击多个器官,能够进行长时间的无症状感染,具有高度的传染性,在高危人群中具有明显的致死性,自出现之初就很好地适应了人类。
+Ⅱ. 中时新闻网3月7日报道，美国为大陆第3大交易伙伴，今年1-2月，中美贸易总值增长69.6％，占13.2％。中共造神运动的加速展开，在两会公布该数据就是歌颂习领导下的中共国才是中美贸易战的最大赢家。
 
-SARS-CoV-2： it attacks multiple organs; it is capable of undergoing a long period of asymptomatic infection; it is highly transmissible and significantly lethal in high-risk populations; it is well-adapted to humans since the very start of its emergence.
+2. 法拉奇（Nigel Farage）周六晚宣布，他将退出选举政治，并辞去英国改革党领袖一职，但他发誓要继续对抗中共在英国日益增长的影响力。 他的下一个运动将是结束英国对中共独裁政权的依赖。法拉奇先生说，中共比欧盟对我们具有”更大的挑战”，”对我们的独立、生活方式的威胁更大”。
 
-3,支持自然起源论的现有科学论文主要依靠一个单一的证据——之前发现的一种名为RaTG13的蝙蝠冠状病毒. 然而，RaTG13在自然界中的存在及其所报道的序列的真实性正受到广泛质疑。
+3. 最近几个月，伊朗悄然向中共国转移了创纪录的原油，而印度的国营炼油厂也将伊朗石油加入了他们的年度进口计划，原因是他们预计美国会将对这一欧佩克供应商的制裁松绑。
 
-The existing scientific publications supporting a natural origin theory rely heavily on a single piece of evidence – a previously discovered bat coronavirus named RaTG13. However, the existence of RaTG13 in nature and the truthfulness of its reported sequence are being widely questioned.
+4. 参议员玛莎·布莱克本正在质疑美国国家篮球协会(NBA)报道的与中共国家电视台CCTV的新协议，他是最新一位对联盟与中共政权关系表示担忧的官员。
 
-4,SARS-CoV-2的基因组序列与中国人民解放军第三军医大学（中国重庆）和南京军区军事医学研究所（中国南京）发现的一种蝙蝠冠状病毒的基因组序列可疑地相似。
+5. 中共最高立法机构周一发布的一份报告称，将首次把金融机构破产法列入其立法议程。法案成立将帮助中共金融体系“建立阻断机制，实现定点爆破、精准拆弹”，拖延整体金融体系崩溃的过程。
 
-The genomic sequence of SARS-CoV-2 is suspiciously similar to that of a bat coronavirus discovered by military laboratories in the Third Military Medical University (Chongqing, China) and the Research Institute for Medicine of Nanjing Command (Nanjing, China).
+6. 周一，在西方国家对从新疆到香港等问题的越来越大的压力下，中共表示将加快旨在打击外国制裁和“长臂管辖权”的立法。栗战书在议会会议上宣读年度工作报告时说，中共将在未来一年加快对外事务相关立法，”升级我们的法律工具箱”，努力”反对外国制裁、干涉和长臂管辖”。
 
-5,SARS-CoV-2刺突蛋白的受体结合基序（RBM）不能从自然界中诞生，而是应通过基因工程制造出来。
+7. 3月1日，针对中共国演艺人员的15项特殊行为规则目录出台，根据官方声明，这些规则旨在”提高演出质量，激发他们的积极性，推动行业发展。”品德无懈可击，永远为党服务。这就是中华人民共和国对表演艺术家的要求。
 
-The receptor-binding motif of SARS-CoV-2 Spike cannot be born from nature and should have been created through genetic engineering
+8. 台湾总统蔡英文周一访问了海军基地，以感谢水手和海军陆战队在中共国次提出威胁的情况下为保护该岛所作的奉献，并誓言不允许任何“英寸”的领土损失。这针对，中共外交部长王毅周日要求美国拜登政府扭转前川普政府对台表示支持的”危险做法”的主张。
 
-6,武汉病毒研究所从事了几十年的冠状病毒监测研究，因此拥有世界上最大的冠状病毒收藏库，技术上能进行刺突蛋白／RBM工程和功能增强实验。
+9. 日前，香港一名55岁女子在接种中共科兴疫苗后疑中风死亡。这是几日内爆出的第二起死亡事件。
 
-The Wuhan Institute of Virology has engaged in decades-long coronavirus surveillance studies and therefore owns the world’s largest collection of coronaviruses, the technical barrier is non-existent to carry out and succeed in such Spike/RBM engineering and gain-of- function research.
+10. 大陆棉花期货价格3月3日上涨了60%，同时面纱价格比去年低点也上涨了30%，有业界人士表示，棉花价格上涨会令衣服及毛巾等棉织品价格上涨至少10%。
 
-7,SARS-CoV-2的刺突蛋白中存在一个不寻常的弗林酶切位点，与病毒的毒性增强有关。SARS-CoV-2 刺突蛋白中的弗林酶切位点不可能源于自然，而应该是实验室改造的结果。
+11. 中共政府报告中指出，将着力解决企业融资难的问题，并要求国有大型商业银行增加小微企业贷款达30%以上，同时降低中小微企业融资成本。不解决银行不愿意贷款给中小企业的体制性问题，而强制推行较高的贷款比例，将促使银行以各种方式去绕开规定。
 
-An unusual furin-cleavage site is present in the Spike protein of SARS-CoV-2 and is associated with the augmented virulence of the virus.The furin-cleavage site within the SARS-CoV-2 Spike protein is unlikely to be of natural origin and instead should be a result of laboratory modification
+12. 前立法会主席范徐丽泰日前在接受采访时称，目前香港运行的这套选举制度不可行，必须将一些“不爱国”的人置之门外。范还提到，“一国两制”中的“两制”，说的是经济制度，而不是政治制度。因为要改变政治制度，就需要通过全国人大常委会通过或备案才能实施。
 
-8,刺突蛋白应该是经过人工操纵的，这些转化使SARS-CoV-2病毒最终成为一种高传染性、发病隐匿性、致死性、后遗症不明确、破坏性大的病原体。
+二、世界新闻
 
-The Spike protein should have been artificially manipulated.These transformations have then staged the SARS- CoV-2 virus to eventually become a highly-transmissible, onset-hidden, lethal, sequelae-unclear, and massively disruptive pathogen.
+1. 共和党的州议员们正在推动社交媒体巨头因监管其网站上的内容而面临代价高昂的诉讼，矛头直指一项联邦法律230条款。大约二十几个州的GOP政治家已经提出了法案，允许对他们所谓的”审查”帖子的平台提起民事诉讼。
 
-9,显然，SARS-CoV-2可能是通过武汉病毒研究所的功能增强操纵产生的，这种可能性很大，应该进行彻底和独立的调查。
+2. 美国明尼苏达大学疾病研究中心主任迈克尔·奥斯特霍尔姆博士在美国全国广播公司新闻“与媒体见面”上接受采访时表示，看上去的疫情好转正在使民众忽视病毒变种，而这种变种正在成为真正的威胁。
 
-Evidently, the possibility that SARS-CoV-2 could have been created through gain-of-function manipulations at the Wuhan Institute of Virology is significant and should be investigated thoroughly and independently.
+3. 印度正在酝酿一项新的国家战略，以加强该国的网络安全，因为有指控称，中国的入侵可能影响了一个重要的股票交易所的运作和该国商业中心的电力供应。
+
+4. 参议员林赛·格雷厄姆在周日播出的一次采访中说，前总统川普先生是一位独特的政客，有能力扩大共和党的影响力，但也可能使该党受其影响。格雷厄姆在接受采访时表示，他正努力维持与川普的关系，仍将其视为朋友。他说，他认为党内今后最好的道路是和川普在一起。
+
+5. 美国周一谴责胡塞武装对沙特石油中心地带的袭击事件。表示，在也门与伊朗结盟的胡塞运动发动无人机和导弹袭击后，美国致力于保卫沙特，包括对石油出口至关重要的沙特设施。周日，沙特领导的联盟表示，在拜登政府撤销了前川普政府对该组织的恐怖分子称号后，胡塞武装有恃无恐。沙特阿拉伯国防部发言人周一指责伊朗向也门胡塞武装走私导弹和无人机，后者加强了对沙特王国的越境攻击。
 
 0

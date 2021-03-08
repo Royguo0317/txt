@@ -1,53 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 今天的共产党和1930年的希特勒一模一样
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/959617/)
+## 戴口罩引起的牙龈疾病使得中共病毒感染者的死亡风险增加900％
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/959702/)
 
-新闻简述：在2021年3月5日的盖特视频中，郭先生对比1930年代的希特勒和今天的共产党，对比摔倒在会议室的希特勒和董建华，发现了惊人的相似。他让大家要看到信仰的力量。
+作者：Ethan Huff 2021-03-07
 
-**今天的共产党和****1930****年的希特勒一模一样**
+翻译：加拿大温哥华圆成农场 卢卡斯
+![]()![](https://gnews.org/wp-content/uploads/2021/03/7.png)
+图片来源：Ethan Huff的原文
 
-**Today’s CCP Is Exactly the Same as Hitler in the 30’s**
+《自然新闻》报道：最新研究表明，中共病毒检测结果呈“阳性”人群中，患牙龈疾病者比那些没有牙龈疾病者的死亡可能性要高9倍。
 
-我还是那句话，七哥从开始爆料革命就说过：今天的共产党就和当年的希特勒，1930年那时一模一样，到了1935年、36年，他就疯了，34、35、36，到最后的时候攻打苏联彻底完球蛋。西方的自私和西方的资本主义，还有一个整个西方的投机主义，严格讲还有很多沼泽地，当年跟希特勒大量的供给。可能你们没有想到，当年希特勒的所有的战争的经费，绝大多数是犹太的金融机构给的，那么当时是很夸张的。今天的中共的所有的经费，绝大多数来自美国，在他们眼里面是美帝国主义，美帝国主义，是吧？在这种情况下，兄弟姐妹们，今天又何其相似。
+发表在《临床牙周病学杂志》上的这一研究成果表明：牙龈疾病患者的炎症血液标志物显示牙龈炎症是引发以上中共病毒感染者死亡的原因。
 
-As I always say since the beginning of the Whistleblower Movement, today’s CCP is exactly the same as Hitler in the 30’s. He went nuts in 1935 and 1936, or between 1934 and 1936, and then was completely done after attacking the Soviet Union in his final moment. The selfishness and the capitalism of the westerns, as well as the opportunism prevailing in the entire western world – strictly speaking, many swamps – were the major suppliers to Hitler. It may blow your mind to know that the vast majority of Hitler’s war funding came from Jewish financial institutions. It was very unbelievable back then. Today, the vast majority of the CCP’s funding comes from the United States of America, the so-called American imperialism by them [the CCP], right? From this perspective, brothers and sisters, does it look familiar to you?
+这项研究的署名作者，来自以色列希伯来大学的Lior Shapira教授说：“研究结果表明，口腔中的炎症可能为中共病毒变得更加猛烈打开了大门。
 
-但是历史不是重演，千万不要忘了，历史绝对不是重演，是上天给撒旦定下了撒旦定律，撒旦定律就是叫撒旦疯狂到一定的时候，就会出现一个周期性的正义与邪恶的整个的这么一个较量。最后当然撒旦是被灭了，然后是人类走向另外一个高端。但是付出生命代价的人，就是跟随撒旦，相信邪恶能战胜正义的。就像今天的缅甸，还有一年前的香港，还有现在的冠状病毒，还有这些所谓的科学家，什么博士什么什么的。
+欧洲牙周学联合会主席补充说：“口腔护理应成为健康建议的一部分，以减少发生严重的中共病毒致死的风险。”
 
-History doesn’t repeats itself, please don’t forget, history absolutely doesn’t repeat itself. It was God who set Satan’s law, which means that whenever Satan’s insanity reaches certain breaking point, the cyclic battle between the good and evil will occur. In the end, of course, Satan will be defeated. Then all the mankind will be lifted to a higher level, but those who follow Satan and believe that the evil can defeat the good will pay the prices of their lives. Just like today’s Burma, Hong Kong one year ago, the coronavirus nowadays, and those so-called scientists and doctors, you name it.
+牙周炎是一种严重的牙龈疾病，全世界多达一半的成年人都受到该疾病的影响。 如果不加以治疗，它会扩散到全身，导致最终的死亡。
 
-今天在这个时候，大家要看到“以毒灭共”的重要性。大家更能看到，我们的科学家是难能可贵的，更能看到我们《路德访谈》多么大的压力情况下，坚持真相，他太难了。七哥对这些事杠得住，那他们是没有准备的，他们扛不住啊。你能看到那些博博士，艾莉、冠博士、墨博士，我们所有的这个博士军团，安红妹妹那就甭提了，一天两次，一天一次这么折腾。这些英雄，这都是人类的英雄，绝不是什么爆料革命新中国联邦的英雄。你不是人类的英雄，你不可能成为新中国联邦的英雄。
+该研究包括568名来自卡塔尔的患者，这些患者在2020年2月至2020年7月之间被诊断出感染了中共病毒。其中40例患有“并发症”，包括入住ICU，被放在呼吸机上或死亡。
 
-Today, at this very moment, we need to see the significance of “taking down the CCP by spreading the truth about the virus”. More importantly, we shall see how precious our scientists are and how much burden on our Lude Media in order to speak for truth. Way too much for him to bear. I, Brother Seven, can bear such burdens. But for them, it’s too much. Take a look at them, Dr. Bo, Aili, Dr. Guan, Dr. Mo – our all-doctor army, not to mention Sister An Hong. They do the show twice a day or once a day. They are heroes and heroines of mankind, not solely for the New Federal State of China (NFSC). Indeed, if you’re not a hero for the mankind, you can’t be a hero for the NFSC.
+研究者在解译这些数据时，同时考虑到了其他因素的影响，例如体重指数（BMI），哮喘，糖尿病，心脏病，血压和吸烟。
 
-另外一个就是大家相不相信，当时在这个二战的时候，非常多的传奇的故事，包括瑞士整个的后勤通道，当时包括墨索里尼。墨索里尼那个王八蛋支持希特勒，最后是什么下场？可以说是现代版的五马分尸，对不对？大家记住，社会主义来自哪里？来自德国，共产党主义来自德国，就像今天我们想看到过去的尼彩啊，什么黑格尔啊，黑格尔那整个就是胡扯的，那就完全是…你看这些人所有的人都拿女人不当人，所有的人都是要对女人进行统治的，而且流氓主义，独裁主义。而且完全相信依靠的，就叫做所谓的大外宣、宣传手段，绝对相信，绝对把谎言变成真理，全部被消灭。
+最终发现牙龈疾病患者的死亡风险是其他疾病患者的8.81倍。 这些患有牙龈疾病的患者因病情需要接受重症监护或使用呼吸机的风险也高出3.54倍至4.57倍。
 
-What’s more, you may not believe it – during the World War II, there were many stories of legend, including the entire logistic network of Switzerland and the story of Mussolini. Mussolini, the bastard, supported Hitler. What’s his ending? It’s like a modern time version of being drawn and quartered, right? Remember, everyone, where was socialism originated from?  Germany. Communism emerged from Germany. From our current perspective, Nietzsche and Hegel’s philosophy back then is totally nonsense. You see that all these people didn’t treat women as humans, and all these people wanted to rule over women. It’s rogueism and authoritarianism. Besides, they fully believed in the so-called “big foreign-propaganda” and believed that lies can be turned into truth. All of that has been wiped out [from history].
+该论文的作者写道：“如果牙周炎导致中共病毒感染者的病情变得严重和死亡率的增加存在着因果关系，那么建立和维持牙周健康可能会成为护理这些患者的一个重要组成部分”。
 
-（大家你看我的衣裳…我现在穿上成新款了现在，G-Fashion决定发展这个新款。）那么董建华这个事情你能看到什么？当年希特勒完蛋前，就是我可以告诉你，就希特勒最后一次所有的将军会议，希特勒从桌子旁边“吧唧”一下摔倒了。这些将军知道，希特勒时代完了，但是这些将军还继续为他干，为什么？你折腾呗，我反正在这捞钱嘛，对不对？知道你不行了，打这个苏联的时候，大家已经知道大势已去。
+**口罩会引起牙龈疾病，这意味着口罩会增加中共病毒致死的风险**
 
-Everyone, check out my clothes. What I am wearing now is the new design. G-Fashion decided to promote this new style. That being said, what can you see from Tung Chee-hwa’s falling down? Let me tell you, right before Hitler’s death, during his last meeting with all generals, “Bang”, he fell down by the side of the table. These generals knew that Hitler’s era was over, but they continued to work for him. Why? “Let it be. I’m making my money anyway.” Right? They knew he was about over, which was already clear when fighting against the Soviet Union.
+早在夏天的时候，就已经发现长期戴口罩正成为牙龈疾病的主要原因。
 
-那么这这个情况下，大家一定要牢记的事情，一定会看到信仰的力量。
+曼哈顿的两名牙医站出来而出说，他们注意到成群新的牙龈疾病患者，致病原因都是因为他们经常性佩戴口罩。
 
-So, at this moment, we must keep this in mind: we will definitely see the power of faith.
+因此，如果口罩引起更多的牙龈疾病，并且牙龈疾病大大增加了中共病毒感染者出现并发症和死亡的风险，那么所有这一切的唯一合理结论就是口罩会增加中共病毒感染者死亡的风险。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+很幸运的是，我们找到了一些主流媒体的新闻把这些关键点连接起来。 根据最新的科学研究，似乎没有人想谈论口罩除了是好的可爱的以外的其他任何事情，所有的人一直无视一个事实：根据最新的科学研究，戴口罩甚至提供不了什么保护作用。
 
-视频来源：[https://gtv.org/getter/6042b3e49534a74bcaeff20c](https://gtv.org/getter/6042b3e49534a74bcaeff20c) (00:30-4:21)
+西班牙马德里Complutense大学的Mariano Sanz教授说：“口罩可能会导致中共病毒感染者的病情恶化，并增加死亡风险。”
 
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/952959/](https://gnews.org/zh-hans/952959/)
+Sanz说，口腔细菌会整日在人的口罩中繁殖，很容易被吸入，使其感染肺部并引起严重的健康问题。
 
-* * *
+他说：“医院工作人员应确定患有牙周炎的中共病毒感染者，并使用口腔杀菌剂以减少这些口腔细菌的传播。”
 
-翻译：【一花一世界】校对：【Isaiah4031】【BruhM】字幕：【Rock小哥】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+该研究进一步强调了牙周炎与肺部疾病（如哮喘，肺炎和慢性阻塞性肺病）之间已建立的联系。 戴口罩只会进一步加剧发生这些并发症的风险。
 
-0
+Shapira总结说：“这项研究为口腔健康与呼吸系统疾病之间的联系提供了进一步的证据。” “牙周炎是一种常见疾病，但可以预防和治疗。”
+
+有关中共病毒，口罩和致命感染的更多相关新闻报道，请访问Pandemic.news。
+
+**评：**由于牙龈疾病是全世界多达一半的成年人都患有的常见疾病，因此本文报道的牙周炎疾病会导致中共病毒感染者病情加重和极大提高的致死率之间的联系，这对于中共病毒感染者的护理和自我隔离期间的恢复具有普遍性的指导意义。目前世界各国大多数要求人们在公共场所戴的普通的常规口罩只能过滤空气里的微尘颗粒，并不能滤过直径尺寸更微小的中共病毒，在很大程度上只起到自我心理安慰的作用，因此戴普通口罩给人们提供不了什么保护作用。长时间地佩戴口罩还导致口腔细菌口罩中大量繁殖，很容易被吸入人的肺部并引起肺部感染等健康问题，因此患有牙周炎的中共病毒感染者，需要认真治疗牙龈疾病，缩短新口罩的使用时间并及时更换。
+
+中共病毒是中共制造并释放到全世界的超限生化武器，而且是一种人工智能病毒；它知道如何躲避人体免疫系统的攻击，进行潜伏甚至短暂的休眠，还知道去攻击人体免疫系统的最薄弱的地方。中共病毒全世界大流行已经有一年多时间，人们并没有看到该病毒像过往的自然界的病毒那样慢慢变弱并与人体相适应，中共病毒反而不断发展出来新的变体，传染性和致死率大大提高。 中共病毒何时得到控制何时结束，当下仍然是一个无法预料没有答案。中共没有任何妥协，反而更加积极地掩盖病毒真相，同时在不遗余力地继续通过毒疫苗毒害全世界人民，实施其下一步邪恶目标。在2021灭共关键年，我们需要继续揭露中共病毒的真相和对人类的危害，唤醒全世界人们认识到中共的邪恶和统治世界的野心，形成广泛的民意基础，一起发声要求各国政府与中共脱钩，转向对抗中共，并联合起来消灭中共以拯救人类。
+
+[原文：Ethan Huff, “Mask mouth causes gum disease, which increases coronavirus death risk by 900%”. 《Natrural News》, March 07, 2021.** https://www.naturalnews.com/2021-03-07-mask-mouth-gum-disease-coronavirus-death-risk.html#**](http://《自然新闻》报道：最新研究表明，中共病毒检测结果呈“阳性”人群中，患牙龈疾病者比那些没有牙龈疾病者的死亡可能性要高9倍。%20发表在《临床牙周病学杂志》上的这一研究成果表明：牙龈疾病患者的炎症血液标志物显示牙龈炎症是引发以上中共病毒感染者死亡的原因。%20这项研究的署名作者，来自以色列希伯来大学的Lior%20Shapira教授说：“研究结果表明，口腔中的炎症可能为中共病毒变得更加猛烈打开了大门。%20欧洲牙周学联合会主席补充说：“口腔护理应成为健康建议的一部分，以减少发生严重的中共病毒致死的风险。”%20牙周炎是一种严重的牙龈疾病，全世界多达一半的成年人都受到该疾病的影响。%20如果不加以治疗，它会扩散到全身，导致最终的死亡。%20该研究包括568名来自卡塔尔的患者，这些患者在2020年2月至2020年7月之间被诊断出感染了中共病毒。其中40例患有“并发症”，包括入住ICU，被放在呼吸机上或死亡。%20研究者在解译这些数据时，同时考虑到了其他因素的影响，例如体重指数（BMI），哮喘，糖尿病，心脏病，血压和吸烟。%20最终发现牙龈疾病患者的死亡风险是其他疾病患者的8.81倍。%20这些患有牙龈疾病的患者因病情需要接受重症监护或使用呼吸机的风险也高出3.54倍至4.57倍。%20该论文的作者写道：“如果牙周炎导致中共病毒感染者的病情变得严重和死亡率的增加存在着因果关系，那么建立和维持牙周健康可能会成为护理这些患者的一个重要组成部分”。%20口罩会引起牙龈疾病，这意味着口罩会增加中共病毒致死的风险%20早在夏天的时候，就已经发现长期戴口罩正成为牙龈疾病的主要原因。%20曼哈顿的两名牙医站出来而出说，他们注意到成群新的牙龈疾病患者，致病原因都是因为他们经常性佩戴口罩。%20因此，如果口罩引起更多的牙龈疾病，并且牙龈疾病大大增加了中共病毒感染者出现并发症和死亡的风险，那么所有这一切的唯一合理结论就是口罩会增加中共病毒感染者死亡的风险。%20很幸运的是，我们找到了一些主流媒体的新闻把这些关键点连接起来。%20根据最新的科学研究，似乎没有人想谈论口罩除了是好的可爱的以外的其他任何事情，所有的人一直无视一个事实：根据最新的科学研究，戴口罩甚至提供不了什么保护作用。%20西班牙马德里Complutense大学的Mariano%20Sanz教授说：“口罩可能会导致中共病毒感染者的病情恶化，并增加死亡风险。”%20Sanz说，口腔细菌会整日在人的口罩中繁殖，很容易被吸入，使其感染肺部并引起严重的健康问题。%20他说：“医院工作人员应确定患有牙周炎的中共病毒感染者，并使用口腔杀菌剂以减少这些口腔细菌的传播。”%20该研究进一步强调了牙周炎与肺部疾病（如哮喘，肺炎和慢性阻塞性肺病）之间已建立的联系。%20戴口罩只会进一步加剧发生这些并发症的风险。%20Shapira总结说：“这项研究为口腔健康与呼吸系统疾病之间的联系提供了进一步的证据。”%20“牙周炎是一种常见疾病，但可以预防和治疗。”%20有关中共病毒，口罩和致命感染的更多相关新闻报道，请访问Pandemic.news。%20评：由于牙龈疾病是全世界多达一半的成年人都患有的常见疾病，因此本文报道的牙周炎疾病会导致中共病毒感染者病情加重和极大提高的致死率之间的联系，这对于中共病毒感染者的护理和自我隔离期间的恢复具有普遍性的指导意义。目前世界各国大多数要求人们在公共场所戴的普通的常规口罩只能过滤空气里的微尘颗粒，并不能滤过直径尺寸更微小的中共病毒，在很大程度上只起到自我心理安慰的作用，因此戴普通口罩给人们提供不了什么保护作用。长时间地佩戴口罩还导致口腔细菌口罩中大量繁殖，很容易被吸入人的肺部并引起肺部感染等健康问题，因此患有牙周炎的中共病毒感染者，需要认真治疗牙龈疾病，缩短新口罩的使用时间并及时更换。%20中共病毒是中共制造并释放到全世界的超限生化武器，而且是一种人工智能病毒；它知道如何躲避人体免疫系统的攻击，进行潜伏甚至短暂的休眠，还知道去攻击人体免疫系统的最薄弱的地方。中共病毒全世界大流行已经有一年多时间，人们并没有看到该病毒像过往的自然界的病毒那样慢慢变弱并与人体相适应，中共病毒反而不断发展出来新的变体，传染性和致死率大大提高。%20中共病毒何时得到控制何时结束，当下仍然是一个无法预料没有答案。中共没有任何妥协，反而更加积极地掩盖病毒真相，同时在不遗余力地继续通过毒疫苗毒害全世界人民，实施其下一步邪恶目标。在2021灭共关键年，我们需要继续揭露中共病毒的真相和对人类的危害，唤醒全世界人们认识到中共的邪恶和统治世界的野心，形成广泛的民意基础，一起发声要求各国政府与中共脱钩，转向对抗中共并联合起来消灭中共以拯救人类。%20%20原文：Ethan%20Huff,%20“Mask%20mouth%20causes%20gum%20disease,%20which%20increases%20coronavirus%20death%20risk%20by%20900%”.%20《Natrural%20News》,%20March%2007,%202021.%20https://www.naturalnews.com/2021-03-07-mask-mouth-gum-disease-coronavirus-death-risk.html#)
+
+责任编辑：比卡丘
+
+发布：比卡丘
+
++1

@@ -1,68 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共黑客利用微软电邮软件漏洞获取高价值间谍目标
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/958912/)
+## 【热点播报】新文革砸烂公检法 中共具有法律的最高解释权
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/958953/)
 
-新闻来源：Zero hedge《零对冲》| 作者：TYLER DURDEN 泰勒•德登| 发布时间：2021年3月6日
+整理：纽约香草山健身部  童谣
 
-翻译/简评：随波逐流 |校对/审核：万人往 |Page：小雨
+![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1444-【热点播报】新文革砸烂公检法-中共具有法律的最高解释权.jpg)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/1506fhp6Cxayd/images/a3e391a3-756c-4fe4-96b7-1adccc4846c9.jpg?asset_id=158bc292-0ffa-42e1-b457-fc546550bae9&amp;img_etag=%228b662cdf4e59a7fcd60ae0df070456dc%22&amp;size=1024)](https://spark.adobe.com/page/1506fhp6Cxayd/images/a3e391a3-756c-4fe4-96b7-1adccc4846c9.jpg?asset_id=158bc292-0ffa-42e1-b457-fc546550bae9&amp;img_etag=%228b662cdf4e59a7fcd60ae0df070456dc%22&amp;size=1024)
+日前，中共最高人民法院印发《[关于深入推进社会主义核心价值观融入裁判文书释法说理的指导意见》](http://www.court.gov.cn/fabu-xiangqing-287211.html)，自2021年3月1日起施行。业界专家表示，中共用核心价值观代替法律依据判案是新时期文革，砸烂公检法。[大纪元报道](https://hk.epochtimes.com/news/2021-03-08/72265750)前大陆人权律师表示，共产党的政策一直是法官判决中优先要考虑的东西，但以前这些东西都属于黑帮式的口令，今日写入公开化文件与中共对世界的渗透和控制有关。「美国大选后一个多月来，无论国内的法制问题，还是在香港问题，包括在缅甸发生的事情，中共表现非常活跃，完全无所顾忌」。
 
-**简评：**
+墨博士评论：社会主义核心价值观通俗来讲，就是中共占有所有社会资源，搜刮劳动人民所有剩余价值。当前中共已经迫不及待得将法律和伪宪法的外衣扯下来，使中共集权高于一切。
 
-据《华尔街日报》报道，中共国黑客利用微软Outlook电子邮件软件中的一个漏洞锁定了“高价值间谍活动目标”。黑客为一个被称为Hafnium的中共国网上间谍团体，攻击的范围很大，受害者的数量从数万到超过25万的Outlook用户，主要为小型企业、州和地方政府，还包括至少一所大学和一家工程公司。
-
-为实现自己的政治、经济、军事利益并巩固政权，中共通过网络黑客从事间谍活动由来以久，从操纵美国大选的多米尼投票机事件到剽窃科技公司知识产权，从篡改香港股市数据，干扰股市交易，到攻击爆料媒体造成网络断播，他们的影响遍布世界各地，无处不在，已深入到各个领域。进入目标对象的电子邮件中收集用户信息只是中共黑客攻击的一部分，通过这种手段窃取他国政治、经济、军事情报，或者收集某些有影响力的政治人物、专家学者、媒体大亨等的个人信息，按他们喜好实施“蓝金黄”政策，以便为己所用。
-
-美国过去几年已多次遭受到来自中共的黑客攻击，这是赤裸裸的网络战争。如不及时阻止，未来世界各国对中共将完全无秘密可言。中共为实现自己称霸全球的野心，可以按需要随时随地对目标国发动一场黑客攻击，将给各国带来不可估量的损失。世界需要早日觉醒，携手灭共。
-
-**原文翻译：**
-
-## 中共国黑客“很可能利用微软邮箱漏洞捕获了高价值的间谍活动目标”
-
-据《华尔街日报》援引“知情人士”的话说，中共国黑客利用微软Outlook电子邮件软件中的一个漏洞，很可能锁定了**“高价值的间谍目标”。**
-
-受害者从“数万到超过25万”的Outlook用户——似乎主要是小型企业、州和地方政府。一家名为曼迪昂特（Mandiant）的安全公司在本周的一篇博客中说，对Exchange服务器的攻击可追溯到一月份，受害者还包括至少一所大学和一家工程公司。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/1506fhp6Cxayd/images/58a5bc1d-b146-447c-bc15-e7e80922e062.png?asset_id=ffb041ac-87ab-4894-8882-f33b93b7bd14&amp;img_etag=%229dd4cefccc99d3501c63f4aa0556fadc%22&amp;size=1024)](https://spark.adobe.com/page/1506fhp6Cxayd/images/58a5bc1d-b146-447c-bc15-e7e80922e062.png?asset_id=ffb041ac-87ab-4894-8882-f33b93b7bd14&amp;img_etag=%229dd4cefccc99d3501c63f4aa0556fadc%22&amp;size=1024)
-
-*该公司表示，黑客们一直在利用微软Exchange软件中的连续四个漏洞入侵电子邮件帐户，在未经授权的情况下阅读消息，并安装未经授权的软件。这些漏洞在网络安全专业人员中被称为零日漏洞，因为它们依赖于此前从未公开的软件漏洞，这表明黑客的技术水平很高。—《华尔街日报》*
-
-网络安全专家史蒂芬•阿德尔（Steven Adair）说：“它以一种非常隐秘的方式被使用，不会引发警报。”他的公司Volexity Inc.是最先警告微软有关此问题的公司之一。
-
-周二，微软公开了这次袭击事件，并将罪魁祸首定为一个被称为Hafnium的中共国网上间谍团体。阿德尔说，一旦黑客被捕获，系统就会发布软件补丁 —— 但是在此之前，黑客改变了策略，开始使用自动化软件来识别网络上易受攻击的服务器并将它们作为攻击目标。
-
-他说：“攻击者在过去一个周末发动了一次大规模攻击，**他们攻击了他们可以在互联网上找到的每个Exchange服务器。**”
-
-《华尔街日报》表示，尽管可能存在“高价值间谍目标”，但由于受害者的性质，黑客不太可能掌握很多情报。据说，几位政府官员已经公开警告其潜在的严重性—— 网络安全与基础设施安全局（Cybersecurity Infrastructure Security Agency）**“上周发布了一项罕见的紧急指令，要求联邦政府机构立即修补或断开在部门用品上运行的微软Exchange产品。” **网络安全与基础设施安全局周四还发布了警报更新，警告说中共国黑客正在使用自动化工具侵入互联网寻找易受攻击的Exchange服务器。
-
-*周五，网络安全与基础设施安全局与私营部门以及州和地方政府的**4000多个关键基础设施合作伙伴**举行了电话会议，鼓励他们修补系统。*
-
-*同样在周五，白宫新闻秘书詹•普萨基（Jen Psaki）在新闻发布会上对记者说，**微软的漏洞极为令人担忧，并且“可能产生深远的影响”和导致产生“大量受害者”。**—华尔街日报*
-
-周五，微软发言人表示，他们正在与安全公司和政府机构合作，以遏制此事件，但他们不会透露估计的攻击范围。
-
-在美国网络软件提供商SolarWinds被入侵后，最新的黑客攻击发生在涉嫌俄罗斯黑客入侵后的三个月，**导致了九个政府机构和约100家公司遭到黑客入侵**。 根据《华尔街日报》报道，不同的是，这种中共国黑客行为“更像是猎枪爆炸，感染了成千上万的受害者或更多。”
-
-[![](https://spark.adobe.com/page/1506fhp6Cxayd/images/6aea2bf7-6373-49cc-80f6-d6e1468c0568?asset_id=eea4bc39-f8fc-4a5b-a8f9-7d9a878c2470&amp;img_etag=%2218838e51475e607c334758c123671ba5%22&amp;size=1024)](https://spark.adobe.com/page/1506fhp6Cxayd/images/6aea2bf7-6373-49cc-80f6-d6e1468c0568?asset_id=eea4bc39-f8fc-4a5b-a8f9-7d9a878c2470&amp;img_etag=%2218838e51475e607c334758c123671ba5%22&amp;size=1024)
-
-尽管微软已经表示这两种攻击没有关系，但《华尔街日报》援引安全专家的建议是，事件响应团队已经忙于处理SolarWinds黑客攻击造成的后果，他们“已经被推到了极限”。
-
-根据赛门铁克（Symantec）安全研究员维克拉姆•塔库尔（Vikram Thakur）的说法，“一小撮与中共国有联系的”黑客团体是攻击的幕后黑手，而受害者“则往往是中小型组织，因为许多大型组织要么没有运行一些包含这些漏洞的Exchange组件，要么使用虚拟专用网络等安全工具来限制对Exchange的访问。”
-
-那些使用微软基于云的Office 365产品的用户不会受到黑客的影响。
-
-🔗[原文链接](https://www.zerohedge.com/geopolitical/chinese-hackers-likely-have-netted-high-value-espionage-targets-using-microsoft?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+需要警觉的是，本来中共的权与官就大于法，还要在高法上将这一点写入文件，意味着中共将要对老百姓和海外某些异己人士出手。为了镇压任何反对和异常的声音，几日前的《烈士保护法》还要提前一周立法对在微博上表达个人意见的评论人士进行抓捕。而在中共推出《意见》之后，法律都不需要了，直接可以用各种手段抓捕任何人。因为社会主义核心价值的解释权在中共手中，更深厚的白色恐怖已经弥漫在中华大地。
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/1506fhp6Cxayd/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/1506fhp6Cxayd/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+审核/发稿：雪梨
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
