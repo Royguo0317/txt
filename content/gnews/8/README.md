@@ -1,54 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国改变政策，允许香港人申请公共资金
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/958961/)
+## 2021/01/30 第16期围炉夜话直播精要：围绕新冠，太多的诡异与反常
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/959114/)
 
-新闻来源：Politico《政客》| 作者：Cristina Gallardo| 发布时间：2021年3月5日
+整理：1984、桂花酒 | 素材制作: 健身健心、Bobby | 校对：宁缺 | Page：小雨
+[!\[\]()!\[\](https://spark.adobe.com/page/g6lBUMWZAvCil/images/64d95177-f15f-4afc-b742-7ea203e451bf.jpg?asset_id=a14bc088-d703-437f-b34c-d18c804f9f9c&amp;img_etag=%22b97aba7902832848f576694ce1436473%22&amp;size=1024)](https://spark.adobe.com/page/g6lBUMWZAvCil/images/64d95177-f15f-4afc-b742-7ea203e451bf.jpg?asset_id=a14bc088-d703-437f-b34c-d18c804f9f9c&amp;img_etag=%22b97aba7902832848f576694ce1436473%22&amp;size=1024)
+[视频链接：https://gtv.org/video/id=601544b969dc393c0ff0f609](https://gtv.org/video/id=601544b969dc393c0ff0f609)
 
-翻译/简评：helloworld |校对/审核：万人往 |Page：小雨
+[!\[\]()!\[\](https://spark.adobe.com/page/g6lBUMWZAvCil/images/2585dc85-a035-48ee-b62a-25c2d971a919.png?asset_id=73b13266-77d1-41c5-a745-728379a5be2a&amp;img_etag=%222d6cc76c97f423dc9baa358d2b0079c6%22&amp;size=2560)](https://spark.adobe.com/page/g6lBUMWZAvCil/images/2585dc85-a035-48ee-b62a-25c2d971a919.png?asset_id=73b13266-77d1-41c5-a745-728379a5be2a&amp;img_etag=%222d6cc76c97f423dc9baa358d2b0079c6%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/FvCWqO4iARGHf/images/e2e694a2-8245-4cac-ba6b-07f424f324b5.jpg?asset_id=83949cbb-7fd2-45b8-8284-8a6f8e87c068&amp;img_etag=%2223aa953b11c96e7b622e349303c7ef49%22&amp;size=1024)](https://spark.adobe.com/page/FvCWqO4iARGHf/images/e2e694a2-8245-4cac-ba6b-07f424f324b5.jpg?asset_id=83949cbb-7fd2-45b8-8284-8a6f8e87c068&amp;img_etag=%2223aa953b11c96e7b622e349303c7ef49%22&amp;size=1024)
+本期我们谈中共制造的新冠病毒。
 
-**简评：**
+去年1月19日，路德节目揭露中共病毒“人传人大爆发”真相后，太多的诡异与反常，使得我们必须思考，如何能从现实世界种种反常的表象挖掘到背后共产主义病毒的危害。
 
-英国改变政策，允许移民英国的香港人申请英国的公共资金。申请需提供经济情况的证据。文中提供了一种示例，即有一个孩子和非常低的收入。这一政策降低了壁垒，也将为被香港社会保障绑架的香港年轻人提供移民英国的救生艇计划。
+### 一、疫情爆发以来，战友和华人都对中共各类造假都有所了解。但中国以外的其他地区，对CCP的阴险与反人类本质有着普遍的无知与幻想
 
-中共用制度50年不变的谎言欺骗了所有人。作为一个福利政策高度完善的地区，香港人依赖香港政府提供的社会保障、安老服务、家庭及儿童福利服务、残障人士康复服务等，对于有老有小的香港家庭，努力工作拼搏时所付的税收和强积金，也成为了反哺的养老和儿童福利保障。但在香港民主已死的今天，中共无耻利用这些本就由香港人民劳动创造的社会福利绑架了香港的底层人士。对于这些人士而言，若移民英国，不仅就业可能会遭遇波折，而且中共也可能停付家庭的养老和儿童福利，这让这些家庭面临现实的困境。
+1．为什么动物们没有大爆发而人类反而至今不停？
+2．2020年2月19日，中共派生化武器专家陈薇接管武汉P4级实验室后为何拆除了华南海鲜市场？
+3．先用防疫物资威胁世界，后又向世界推销疫苗，一个假奶粉、假疫苗出产地，它的疫苗安全吗？
 
-中共外交上所进行的完美犯罪，同时也成为了英国的难题。英国对香港实质性动手，若没有得到国际社会的配合，很可能会被中共口诛笔伐，甚至反咬一口。因此英国选择了对海外护照持有者的救援。而在中共力图困住香港人时，英国选择说服国民，在政策上开口，将英国纳税人支持的公共资金向香港人提供救援支持。此政策将在实质上扩大移民政策覆盖的范围，能让尽可能多的香港人能够有机会选择移民英国，从中共的魔爪下逃离。香港一旦没有了高素质的香港人，没有了国际社会承认的民主法治地位，中共的掠夺企图将得不偿失，彻底落空。
+### 二、中共的谎言如何通过媒体传播
 
-**原文翻译：**
+1．从去年1月19日开始，WHO就反复为中共洗地，前后矛盾的话层出不穷。最近又派专家去武汉对病毒来源自然“考古”，充分配合中共。
+2．医学界无一人对闫丽梦博士论文提出科学的质疑。中共“科学问题科学解决”却四次抓捕闫博士母亲。媒体几乎一边倒为中共洗地，百姓难以获取病毒真相，世界陷入一片黑暗中。
+3．世卫从声称病毒不会人传人到前不久警告说：“与2019冠状病毒病（Covid-19）大流行相比，世界在未来可能面临更严重的疾病大流行。”他们怎么知道的？
+4．各国政客造假注射疫苗，并对病毒装聋作哑。他们究竟是一无所知还是知道太多？
+5．福奇对口罩和疫苗、硫酸烃氯喹的自相矛盾打脸医学界，36年身处高位却无人能质疑。他的权利谁来约束？
 
-## 英国改变政策，允许香港人享受福利待遇
+### 三、台湾抗疫成功成为全球典范
 
-**面临“极度贫困威胁”的人将能够根据具体情况申请公共资金。**
+疫情让台湾社会成为世界的亮点，当中共威胁世界，台湾却不断提供优质抗疫物资，树立了不同制度下华人出色的一面，成为中共的照妖镜。台湾已经成为眼中钉肉中刺。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/FvCWqO4iARGHf/images/6d37dd79-0e68-48a0-9510-055044c83118.jpg?asset_id=7a0d1955-1fb8-4a53-bc22-c9406de650d1&amp;img_etag=%22487df1c32e7833115ae88bc66d23083b%22&amp;size=1024)](https://spark.adobe.com/page/FvCWqO4iARGHf/images/6d37dd79-0e68-48a0-9510-055044c83118.jpg?asset_id=7a0d1955-1fb8-4a53-bc22-c9406de650d1&amp;img_etag=%22487df1c32e7833115ae88bc66d23083b%22&amp;size=1024)英国国民海外护照持有人将可以申请福利（图：安东尼•华莱士(Anthony Wallace)，法新社通过盖蒂图片社）
+### 四、中共的思想病毒才是最大的毒
 
-伦敦报道——内政部在竞选者和工党的压力下，取消了对在英国定居的、可能陷入贫困风险的香港人获得公共资金的禁令。
+中共是千年封建专制与共产邪魔于一身的集大成者。欺骗性的谎言、利用人性弱点渗透西方、灭绝种族的反人类本性大白于天下。《1984》、《美丽新世界》等作品已经深刻提示了共产制度必将导致人类走向毁灭的道路。只有用与时俱进的完善制度，让人民成为民主主体，才能从根本上铲除共产主义滋生的土壤。
+[!\[\]()!\[\](https://spark.adobe.com/page/g6lBUMWZAvCil/images/7b16780e-4cf5-4098-a636-e584e98b6f6c.png?asset_id=32be2c35-f36e-41f4-ad0d-aca9ff85c475&amp;img_etag=%2263662deb439a7ea80711dd269a5b59fa%22&amp;size=1024)](https://spark.adobe.com/page/g6lBUMWZAvCil/images/7b16780e-4cf5-4098-a636-e584e98b6f6c.png?asset_id=32be2c35-f36e-41f4-ad0d-aca9ff85c475&amp;img_etag=%2263662deb439a7ea80711dd269a5b59fa%22&amp;size=1024)
+**《缪斯殿堂》之“围炉夜话”**
 
-该部门在一份声明中表示，英国国民海外护照(BNO)持有者，若“有陷入贫困的风险”，可以根据具体情况申请公共资金。
+- 主播：一九八四
+- 嘉宾：宁缺、BOBBY、桂花酒、健身建心
+- 导播：扎西卓玛
 
-为此，香港人必须向该部门提供经济情况的证据，或者证明他们有一个孩子和非常低的收入。
 
-鲍里斯•约翰逊(Boris Johnson)的行政部门为潜在的数百万香港人提供了一条入籍途径，以回应中共国在前英国领土上所实施的严厉的国家安全法。
+📺 [**GTV-UK-2号台**](https://gtv.org/user/5fb02ac8bd0d464fad04dfdb)**每周六直播**
 
-侨民社区团体“香港人在英国”(HKB)的创始人Simon Cheng对这一消息表示欢迎。上月，该组织致函内政部，呼吁该部门在BNO护照持有者申请公共资金时酌情处理，并对真正需要支持的人表示同情。
+- 英国时间：12.00–14.00；
+- 美东时间：7.00—9.00；
+- 盘古时间：20.00—22.00
 
-“HKB衷心感谢内政部回应我们的关注，并一如既往地以基于同情的理由支持基层家庭，这是BN(O)护照政策的核心原则，如同救生艇计划。”
 
-三位工党影子部长也曾呼吁改变政策，并警告说，除非减少财政壁垒，否则BNO护照途径将只能“为富人服务”。
-
-🔗[原文链接](https://www.politico.eu/article/uk-home-office-immigration-hong-kong-british-national-overseas-benefits/)
+*欢迎关注英国伦敦喜庄园艺术组《缪斯殿堂》节目*
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+- [请订阅 英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
 
 
 编辑：【英国伦敦喜庄园编辑部】
+[!\[\]()!\[\](https://spark.adobe.com/page/g6lBUMWZAvCil/images/0f991f56-acc0-4ab1-af6f-2d203284aa2a.jpg?asset_id=72444442-52ee-4a32-ae57-62ff860f48c7&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/g6lBUMWZAvCil/images/0f991f56-acc0-4ab1-af6f-2d203284aa2a.jpg?asset_id=72444442-52ee-4a32-ae57-62ff860f48c7&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/FvCWqO4iARGHf/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/FvCWqO4iARGHf/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

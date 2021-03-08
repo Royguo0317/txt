@@ -1,29 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 韩国京畿道下令检测所有外国雇员
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/958769/)
+## 【香草诗词汇】酒歌（三）
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/958869/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+作者：香草山写作组 木白
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1442-【香草诗词汇】酒歌（三）.jpg)
+
+在这个国度，早买不到真酒，
+
+更买不到真醉。
+
+三八妇女节如女人的命运：
+
+在男人们的醉酒中更悲惨。
+
+皇帝吃官，官吃小官，小官吃百姓，
+
+百姓里有男女，男人吃女人和孩子。
+
+一个真正的醉酒的人却说不出话。
+
+因为，他醒着，却被掐住了脖子。
+
+因为，他醒着，却眼睁睁的看着鼾睡的人。
+
+三月的风像鞭子，一年年鞭打着绿了的江南。
+
+最后，醉酒的人真的醉了，喝完最后一壶酒，
+
+把天空砸开了一个窟窿。
+
+就在此刻，
+
+江南草长莺飞，正淹没这虚假的国度。
+
+就在此刻，
+
+从南到北，黑色的眼睛正在打开黑夜。
+
+2021年3月8日
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年3月8日电/西喜社——**韩国首都首尔附近的京畿道已下令当地企业主和农民在未来15天内对所有外国雇员进行中共病毒检测，目标是数以万计的工人。
+审核/发稿：雪梨
 
-大规模的检测活动是韩国官员为阻止外来务工人员传播病毒而采取的最重要的措施，这些外来务工人员经常面临恶劣的工作和生活条件，卫生当局称他们更容易受到感染。
 
-京畿道知事李在明周一发布的命令涵盖了至少8.5万名合法雇佣的农民工，对不遵守规定的雇主最高罚款300万韩元（2600美元）。
 
-该命令还要求雇员确保他们的无证工人也接受检测。该省鼓励这些工人站出来，称如果他们在3月22日之前接受检测，就不会向移民当局报告。
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-韩国已经确认了超过9.2万个中共病毒病例，包括1642人死亡。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-**新闻来源：[美联社](https://apnews.com/article/coronavirus-pandemic-new-zealand-migration-europe-9b45404eca36d39c4ce2ce6daf3f0cb1)**
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/da5df650-afca-4606-90e5-5d9345b935f2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0

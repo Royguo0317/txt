@@ -1,71 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》解读白岩松宣布中共进入挨骂傲娇时代，美日印澳四国将举行首次领导人峰会，及中共正全面加速行动
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/959075/)
+## 【粤语】 闫丽梦的科学报告(一)
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/959142/)
 
-直播视频：
+**制作:Cantonese工作室**
+**配音:【一帘幽梦】 资料整理:【深寒】【Annie 】中文翻译:【喜马拉雅工作站 】校对:【文舜】**
+**海报:【侬民】【MW】剪辑:【星星】**
+视频内容:
 
+**闫博士科学报告（一）**
 
+1,SARS-CoV-2表现出的生物学特征与自然发生的人兽共患病毒不一致。证据表明，SARS-CoV-2 应该是以蝙蝠冠状病毒ZC45和/或ZXC21为模板和/或骨架研制的实验室产物。
 
-《路德时评》2021年3月8日早间节目主要内容：
+SARS-CoV-2 shows biological characteristics that are inconsistent with a naturally occurring, zoonotic virus.The evidence shows that SARS-CoV- 2 should be a laboratory product created by using bat coronaviruses ZC45 and/or ZXC21 as a template and/or backbone.
 
-一、快讯快评
+2,SARS-CoV-2：能攻击多个器官,能够进行长时间的无症状感染,具有高度的传染性,在高危人群中具有明显的致死性,自出现之初就很好地适应了人类。
 
-大纪元3月8日报道[1]：香港出现第三起注射中国科兴疫苗死亡案例。该病例此前身体健康状况良好。香港电台、香港《苹果日报》等多家港媒报导，一名71岁男子于3月3日到私家诊所接种中国科兴疫苗，3月7日（周日）晚上出现严重不适，由救护车送到联合医院急症室抢救，其后不治身亡。该男子入院时没有过敏症状，过往健康状况良好。这是自上月26日香港开始实施中国科兴疫苗接种计划以来，第三起死亡案例。2月28日，香港出现首例接种疫苗死亡案例，亡者是一名63岁男子，于2月26日接种疫苗。之后，一名55岁女性于3月2日接种疫苗后，3月5日身体不适，当天即告不治。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/科兴.jpg)[图片地址](https://i.epochtimes.com/assets/uploads/2021/03/6-1.jpg)
-路德社评论：
+SARS-CoV-2： it attacks multiple organs; it is capable of undergoing a long period of asymptomatic infection; it is highly transmissible and significantly lethal in high-risk populations; it is well-adapted to humans since the very start of its emergence.
 
-香港从开始接种疫苗到今天才十天时间，已有将近十万人接种科兴疫苗，目前出现三例患者死亡和二十多名严重副作用接种患者，中共国现在已经完全控制香港媒体，真实的数字绝对不止这些。中共国至今已超过四千万人接种中共病毒疫苗，墙内媒体却没有报道一例死亡病例或严重不良反应情况，如果按照香港出现的死亡率计算，国内已经有数千人因接种疫苗死亡。
+3,支持自然起源论的现有科学论文主要依靠一个单一的证据——之前发现的一种名为RaTG13的蝙蝠冠状病毒. 然而，RaTG13在自然界中的存在及其所报道的序列的真实性正受到广泛质疑。
 
-二、白岩松宣布中共进入挨骂傲娇时代
+The existing scientific publications supporting a natural origin theory rely heavily on a single piece of evidence – a previously discovered bat coronavirus named RaTG13. However, the existence of RaTG13 in nature and the truthfulness of its reported sequence are being widely questioned.
 
-新浪新闻网3月6日报道[2]：全国政协委员白岩松谈中国形象对外传播时称，新中国成立后，我们结束了挨打的时代；改革开放后，我们结束了挨饿的时代；我们现在正式进入到“挨骂”的时代。这是一个过程，白岩松觉得我们一定要有历史的耐心，同时还要有历史性的准备。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/白岩松.jpg)[图片地址](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS4fX__tpZOz4H08M4XUIW1S0Ka_4odgJL7vQ&amp;usqp=CAU)
-路德社评论：
+4,SARS-CoV-2的基因组序列与中国人民解放军第三军医大学（中国重庆）和南京军区军事医学研究所（中国南京）发现的一种蝙蝠冠状病毒的基因组序列可疑地相似。
 
-1、为白岩松感到惋惜，现在居然沦为中共的口炮党，中共叫嚣地越疯狂，越证明中共面临的压力越大，白岩松此番发言也是在隐喻中共国走到今天的地步，都拜习总加速师所赐。川普总统在位时强烈抨击中共，当时美国左派媒体，以及德国、法国等国家都为中共站台，拜登政府上台后全世界都陆续开始抨击中共，因为西方国家已经识破中共的完美犯罪计划，看清中共的邪恶本质。
+The genomic sequence of SARS-CoV-2 is suspiciously similar to that of a bat coronavirus discovered by military laboratories in the Third Military Medical University (Chongqing, China) and the Research Institute for Medicine of Nanjing Command (Nanjing, China).
 
-2、中共此番发言彰显出他们傲娇的本性，只敢傲慢地打口炮，一旦西方国家对中共采取行动时又呈一副娇滴滴的熊样，中共此时内心已经感觉到恐慌，号称杨娘娘的杨洁篪就是中共傲娇的代表，他之所以被称为杨娘娘就是因为他对内如狼似虎，内外屈膝投降。中共已经意识到他们无法解决南海问题、台海问题、香港问题、新疆问题和病毒问题，所以口称进入挨骂时代，中共知道美国已经开始联合北约所有国家对中共动手。
+5,SARS-CoV-2刺突蛋白的受体结合基序（RBM）不能从自然界中诞生，而是应通过基因工程制造出来。
 
-三、美日印澳四国将举行首次领导人峰会
+The receptor-binding motif of SARS-CoV-2 Spike cannot be born from nature and should have been created through genetic engineering
 
-法新社3月6日报道[2]：澳大利亚总理莫里森（Scott Morrison）3月5日对记者证实了媒体此前的报道，即美日印澳四国将举行首次领导人峰会，不过没有具体说明时间。莫里森周五在悉尼对记者说，“这将成为印太交往的一个特点，是四位领导人，四个国家，为印太地区的和平、繁荣和稳定进行建设性的合作。四国机制（Quad）是美国和我们对该地区思考的核心，也是通过我们的东盟伙伴和他们对印太地区的愿景来看待印太地区。四国机制是非常核心的。总统乃至国务卿都明确表示，他们重新参与多边组织，特别是在印太地区，是在印太地区建立稳定与和平的关键。”
-![]()![](https://gnews.org/wp-content/uploads/2021/03/四国领导人.png)[图片地址](https://www.rfi.fr/cn/%E4%BA%9A%E6%B4%B2/20210306-%E7%BE%8E%E6%97%A5%E5%8D%B0%E6%BE%B3%E5%9B%9B%E5%9B%BD%E9%A6%96%E8%84%91%E9%A6%96%E6%AC%A1%E5%B3%B0%E4%BC%9A%E6%88%96%E4%BA%8E%E6%9C%88%E5%86%85%E4%B8%BE%E8%A1%8C)
-路德社评论：
+6,武汉病毒研究所从事了几十年的冠状病毒监测研究，因此拥有世界上最大的冠状病毒收藏库，技术上能进行刺突蛋白／RBM工程和功能增强实验。
 
-1、太平洋最大的四个国家将举行峰会，此次峰会并未邀请中共国参加，这就是专门针对中共召开的重要会议。中共非常清楚美国已经开始联合各国对中共采取行动，中共内心非常清楚新疆种族灭绝罪对他们意味着什么，全世界也必定会要求彻查病毒真相，到时候中共将面临巨大的国际压力。
+The Wuhan Institute of Virology has engaged in decades-long coronavirus surveillance studies and therefore owns the world’s largest collection of coronaviruses, the technical barrier is non-existent to carry out and succeed in such Spike/RBM engineering and gain-of- function research.
 
-2、中共高层认为西方不论在香港问题，还是在新疆问题对中共国都采取绥靖政策，所以中共现在就希望通过挨骂来拖延时间，可以继续利用生物武器超限战打垮西方，让西方经济彻底崩溃，最终让西方没有能力对中共动手。
+7,SARS-CoV-2的刺突蛋白中存在一个不寻常的弗林酶切位点，与病毒的毒性增强有关。SARS-CoV-2 刺突蛋白中的弗林酶切位点不可能源于自然，而应该是实验室改造的结果。
 
-四、中共宣传主动承认正在踩油门加速
+An unusual furin-cleavage site is present in the Spike protein of SARS-CoV-2 and is associated with the augmented virulence of the virus.The furin-cleavage site within the SARS-CoV-2 Spike protein is unlikely to be of natural origin and instead should be a result of laboratory modification
 
-新闻一
+8,刺突蛋白应该是经过人工操纵的，这些转化使SARS-CoV-2病毒最终成为一种高传染性、发病隐匿性、致死性、后遗症不明确、破坏性大的病原体。
 
-西班牙中国政策观察网站3月5日发表题为《中国的两会》的文章，作者为西班牙中国问题专家胡利奥·里奥斯。文章称，两会传达的信息有助于认清中国近期的发展方向。中国将继续向西方传递大量信息，为疫情后的国际秩序奠定基础。但是中国似乎不愿意等待任何人或放慢脚步。相反，中国想踩下油门[3]。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/踩油门.jpg)[图片地址](https://n.sinaimg.cn/spider202138/244/w640h404/20210308/e906-kkxpcze6876721.jpg)
-新闻二
+The Spike protein should have been artificially manipulated.These transformations have then staged the SARS- CoV-2 virus to eventually become a highly-transmissible, onset-hidden, lethal, sequelae-unclear, and massively disruptive pathogen.
 
-新浪新闻3月8日报道[4]：十三届全国人大四次会议7日在人民大会堂举行视频记者会，国务委员兼外交部长王毅就中国外交政策和对外关系回答中外记者提问。引起境外媒体高度关注。另据彭博新闻社网站3月7日报道，王毅敦促美国停止干涉这个亚洲国家的内政，这是拜登总统上任以来北京向华盛顿发出的最尖锐警告之一。
+9,显然，SARS-CoV-2可能是通过武汉病毒研究所的功能增强操纵产生的，这种可能性很大，应该进行彻底和独立的调查。
 
-路德社评论：
-
-1、王毅昨日召开的记者会是视频会议，问题都提前安排妥当，他全程念稿。即使参加两会的记者都提前进行隔离、核酸检测和接种疫苗，中共国现在号称零感染，王毅也不敢在公开场合召开记者发布会，他们一方面担心被政治对手下毒，另一方面他们非常清楚中共病毒的可怕性。
-
-2、文贵先生在前两天直播中透露江家在这场党内斗争中向习妥协，主动转战新加坡，承认习总加速师在2020年取得的种种成绩和对中共的绝对领导。中共认为他们在2020年发起的超限战无论是中共病毒超限战，还是利用疫苗经济左右全球政治走向方面都取得了巨大成功，中共已经全面加速推动超限战计划，中共今年在处理香港选举问题时的动作就非常迅速，直接让人大通过法律修改香港选举制度。中共接下来会在网络战、金融战、超限战、情报战和法律战都加快行动步伐，要在欧美各国集结前瓦解它们。
-
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
-
-参考文章：
-
-[1][https://www.epochtimes.com/gb/21/3/8/n12796731.htm](https://www.epochtimes.com/gb/21/3/8/n12796731.htm)
-
-[2][https://www.rfi.fr/cn/%E4%BA%9A%E6%B4%B2/20210306-%E7%BE%8E%E6%97%A5%E5%8D%B0%E6%BE%B3%E5%9B%9B%E5%9B%BD%E9%A6%96%E8%84%91%E9%A6%96%E6%AC%A1%E5%B3%B0%E4%BC%9A%E6%88%96%E4%BA%8E%E6%9C%88%E5%86%85%E4%B8%BE%E8%A1%8C](https://www.rfi.fr/cn/%E4%BA%9A%E6%B4%B2/20210306-%E7%BE%8E%E6%97%A5%E5%8D%B0%E6%BE%B3%E5%9B%9B%E5%9B%BD%E9%A6%96%E8%84%91%E9%A6%96%E6%AC%A1%E5%B3%B0%E4%BC%9A%E6%88%96%E4%BA%8E%E6%9C%88%E5%86%85%E4%B8%BE%E8%A1%8C)
-
-[3][https://finance.sina.com.cn/tech/2021-03-08/doc-ikknscsh9305790.shtml](https://finance.sina.com.cn/tech/2021-03-08/doc-ikknscsh9305790.shtml)
-
-[4][https://news.sina.com.cn/c/2021-03-08/doc-ikkntiak6181565.shtml](https://news.sina.com.cn/c/2021-03-08/doc-ikkntiak6181565.shtml)
-
-文章撰写：【重生】  编辑：【香柏树】
+Evidently, the possibility that SARS-CoV-2 could have been created through gain-of-function manipulations at the Wuhan Institute of Virology is significant and should be investigated thoroughly and independently.
 
 0
