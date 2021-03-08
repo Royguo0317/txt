@@ -1,53 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国利用病毒破坏香港的自由
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/958329/)
+## 美国空军测试高超音速导弹
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/958407/)
 
-新闻来源：《门户专家（GATEWAY PUNDIT） 》| 作者：Joe Hoft | 发布时间：2021年3月6日
-翻译/简评：Dreamer文童 | 校对：感恩 | 审核：万人往 | Page：Daoiii
+新闻来源：The Washington Times《华盛顿时报》| 作者：Bill Gertz 比尔•戈茨| 发布时间：2021年3月3日
+翻译/简评：原乡人|校对：SilverSpurs7|审核：万人往|Page：小雨
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Rt0ATgqakm26S/images/d5c9747e-4528-49d4-bb08-73e09c58d403.jpg?asset_id=ff0d1646-a437-4f0e-9e87-82b53ad82adc&amp;img_etag=%22eb93b334afee4f853312a183e7d04a27%22&amp;size=1024)](https://spark.adobe.com/page/Rt0ATgqakm26S/images/d5c9747e-4528-49d4-bb08-73e09c58d403.jpg?asset_id=ff0d1646-a437-4f0e-9e87-82b53ad82adc&amp;img_etag=%22eb93b334afee4f853312a183e7d04a27%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/ISkYjMit1ta8K/images/bda2cf35-6072-4feb-a345-3903643e99ab.jpg?asset_id=dc9c40e2-d691-4a24-b023-550369cd74ef&amp;img_etag=%22d49f5daaf415f6727ded69b1437f2a6c%22&amp;size=1024)](https://spark.adobe.com/page/ISkYjMit1ta8K/images/bda2cf35-6072-4feb-a345-3903643e99ab.jpg?asset_id=dc9c40e2-d691-4a24-b023-550369cd74ef&amp;img_etag=%22d49f5daaf415f6727ded69b1437f2a6c%22&amp;size=1024)
 
-***简评：***
+**简评：**
 
-**2019年是香港民众街头抗议活动最惨烈的一年。全世界见证了昔日繁华的金融中心街道上弥漫着催泪弹，还有抗议者设置的路障。和平抗议的民众与全副武装的警察对峙着，许多年轻示威者被黑警强行按压甚至踩踏在地面上，更有甚者，丧心病狂的黑警拔枪近距离实弹射击示威者。**
+比尔•戈茨先生是《华盛顿时报》记者，20年来每周在自己的专栏Inside the Ring报道美国政府机关在国家安全方面的一周新动向。戈茨先生2021年3月3日的三条新动态中，有两条是与中共国威胁有关：空军测试高超音速导弹及国防部的中共国工作组。
 
-**2020年初，在“路德社”提前爆料预警下，我们知道了来自中共军方实验室的病毒将会造成全球疫情大爆发。随后世界各国都陷入了病毒带来的各种灾难。然而中共利用这个时机，一意孤行地通过了香港国安法，其实就是用实际行动撕毁了《中英联合声明》，然后利用香港国安法对民运人士进行抓捕，同时也震慑了其他人。今年3月5日，中共在两会上提议修改香港的选举制度，确保“爱国者治港”，这是对《中英联合声明》的进一步践踏。中共向全世界释放超限生物武器——新冠病毒，把毫无准备的各国打得措手不及，然后趁乱实施筹备已久的阴谋。我们在去年美国大选和香港事件上已经看到了中共的这种操作。然而，香港民众依然不会屈服，香港必将成为新中国联邦的圣城。**
+俄斯和中共国多年来开发高超音速武器，目的是击败美国的导弹防御系统。美国国防部在2017年川普政府任上开始研发高超音速导弹，应对中俄对在此领域挑起的军备竞赛。中共国近日宣布部署了可装备核弹头或常规弹头的DF-17高超音速导弹，升级了对美国的战略安全威胁。美国总算醒来应对中共国对美国发起的步步逼近的全方面挑战，拜登政府延续了川普的对中共的强硬政策，新任国防部长成立中共国工作组摸底审查国防部涉华所有项目，4个月以后提出方案，同时并入美国全球军力部署计划。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Rt0ATgqakm26S/images/cae6ba00-ef83-48f5-9a20-e15468d88057.jpg?asset_id=32089829-d198-476a-9201-3300b62d0c85&amp;img_etag=%22eac4c61a78cffd5ae6a0d38b1b117bce%22&amp;size=1024)](https://spark.adobe.com/page/Rt0ATgqakm26S/images/cae6ba00-ef83-48f5-9a20-e15468d88057.jpg?asset_id=32089829-d198-476a-9201-3300b62d0c85&amp;img_etag=%22eac4c61a78cffd5ae6a0d38b1b117bce%22&amp;size=1024)来源IG:[small.\_.tt](https://www.instagram.com/small._.tt)
+中共国口口声声要和平发展，与美国世代友好，但是背地里却永远不放弃“美帝国主义亡我之心不死”的准则，渗透美国开放的社会，偷窃美国创新的科技，对美国和西方发起大规模的超限战。中共70多年来奴役中华大地，如今居然还要奴役美国和全世界。美国的灭共大戏已经上演，因为灭共是正义的需要！
 
-***原文翻译：***
+**原文翻译：**
 
-## 中共国利用中共冠状病毒破坏香港的自由并惩罚抗议者
-[!\[\]()!\[\](https://spark.adobe.com/page/Rt0ATgqakm26S/images/0d2ab73c-3575-462b-9956-eaa9cc17bb3f.png?asset_id=77b922a3-00bc-46ca-8b5d-e2fcf9e80673&amp;img_etag=%22c6e5b2a34b83b4dee58ea1ba611cbbda%22&amp;size=2560)](https://spark.adobe.com/page/Rt0ATgqakm26S/images/0d2ab73c-3575-462b-9956-eaa9cc17bb3f.png?asset_id=77b922a3-00bc-46ca-8b5d-e2fcf9e80673&amp;img_etag=%22c6e5b2a34b83b4dee58ea1ba611cbbda%22&amp;size=1024)
-一年前，香港被席卷整个小城的抗议活动所震惊。经过中共冠状病毒一年的肆虐，抗议活动已经消失，现在这个城市几乎完全被中共控制。
+## 美国空军测试高超音速导弹
 
-2019年秋天，香港因整个小城的抗议活动而摇摇欲坠。
+[!\[\]()!\[\](https://spark.adobe.com/page/ISkYjMit1ta8K/images/334386ff-869a-4a8a-9d44-dc19f886df3a.jpg?asset_id=d4adf78a-41f1-4e9c-9d71-f7ba1fbf90d8&amp;img_etag=%22077329d302e255a6e517e8fdac3da69d%22&amp;size=1024)](https://spark.adobe.com/page/ISkYjMit1ta8K/images/334386ff-869a-4a8a-9d44-dc19f886df3a.jpg?asset_id=d4adf78a-41f1-4e9c-9d71-f7ba1fbf90d8&amp;img_etag=%22077329d302e255a6e517e8fdac3da69d%22&amp;size=1024)空军人员正在准备对新型AGM183A空射快速反应武器（简称ARRW）的助推器进行空射测试。(美国空军/档案)
 
-去年夏天，我们报道了中共国如何折磨这个小城，并利用中共冠状病毒作为他们的工具。
+据官员透露，美国空军正在推进一种革命性的高速导弹，将在未来几周进行测试。
 
-一周前，大全新闻（Newsmax）报道了中共国在过去一年内是如何入侵香港的。
+空军发言人伊森•斯托克(EthanStoker)少校表示，预计近期将对AGM-183A空射快速反应武器（简称ARRW）的助推器进行空射试验。他告诉本专栏记者: “我们仍在为助推器飞行试验做准备。”
 
-宾西法尼亚州共和党众议员盖·雷申塔勒（Guy Reschenthaler）表示，去年夏天，当全世界把注意力转向处理冠状病毒大流行时，中共国利用这个机会对香港实施严格的国家安全法。
+一名空军发言人表示，ARRW是根据2017年度立法而开发的一项高优先级武器计划，该立法授予军方使用快速成型技术开发武器系统的权力。
 
-雷申塔勒周三参加大全新闻电视的《克里斯·萨尔赛多秀》（Chris Salcedo Show）节目时表示：“中共国转过身来，基本上已入侵了香港这个民主的准独立城市，并违反国际条约接管了这个城市。”
+该发言人说：“高超音速空射武器将使美国能够在对峙距离上控制处于危险中的固定、高价值和时间敏感的目标。”
 
-“所以，中共国正在利用资本，他们正在行动，而且他们变得越来越咄咄逼人。”
+ARRW有望成为军方的第一种作战高超音速武器，可能在10月就会准备就绪。该导弹由一个固体燃料发动机助推，将其送入近地轨道，然后在那里高速滑翔至目标。
 
-1月下旬，中共国在北京新国家安全法的支持下逮捕了50多人，这项6月颁布的法律赋予北京打击各种政治犯罪的广泛权力，包括对“严重”罪行判处终身监禁。
+关于下一次试验时间的评论似乎澄清了空军军备局局长希斯•柯林斯(Heath A. Collins)准将上周在一个论坛上的讲话。柯林斯将军说，ARRW的下一次试验最早可能在本周进行。
 
-当世界因中共冠状病毒而陷入恐惧时，世界各地的个人自由却遭到破坏。
+斯托克少校说，空军正在为助推器试验做准备，本周进行飞行前检查，几周后进行实际飞行试验。助推器试验将不涉及作战滑翔飞行器。
 
-**🔗[原文链接](https://www.thegatewaypundit.com/2021/03/china-used-china-coronavirus-destroy-freedoms-hong-kong-punish-protesters/)**
+他在空军协会的一次会议上说，该导弹可能在一年内开始生产。
+
+最早报道ARRW试验计划的《空军》杂志称，洛克希德•马丁公司正在研制的这种导弹在12月的一次试验中由于技术错误而失败。
+
+五角大楼负责高超音速发展的核心官员迈克尔•怀特在谈到先前的测试故障时说。“我们必须做到在第一次就把它做对，我们认为失败应尽量集中在开始阶段，纠错可以加速学习和开发，而且这里的失败指的是在学习新技术、掌握高超音速飞行本领中积累的有效失败，而不是忘记了如何做检查表，忘了在尾翼上拧紧钉子之类的失败。因为一个钉子掉了而失去了一个飞行器，这种失败不可接受。”
+
+8月，ARRW的一次测试成功。
+
+轰炸机发射的ARRW是为空军建造的两种高超音速武器之一，还有高超音速攻击巡航导弹（HACM）。这两种导弹都将搭载在B-52和B-1上。
+
+空军称，一架轰炸机上可部署4枚较大的助推滑翔式ARRW导弹，或者20枚或更多的轻型HACM导弹。
+
+[![](https://spark.adobe.com/page/ISkYjMit1ta8K/images/94b31e92-53fc-4b12-8039-8781b4d48622?asset_id=69067c8b-6517-449d-84e4-fdb4a9d07349&amp;img_etag=%2208b64a3b7eb1e883e953c32d58786865%22&amp;size=2560)](https://spark.adobe.com/page/ISkYjMit1ta8K/images/94b31e92-53fc-4b12-8039-8781b4d48622?asset_id=69067c8b-6517-449d-84e4-fdb4a9d07349&amp;img_etag=%2208b64a3b7eb1e883e953c32d58786865%22&amp;size=1024)
+
+五角大楼多年前决定放弃高超音速导弹，而中共国和俄罗斯却启动了重大项目，在该领域都领先于美军。
+
+这种情况在川普政府后期发生了变化，高超音速项目开始上马。
+
+高超音速导弹的飞行速度是音速的5倍以上，可以从太空进入大气层机动飞行，也可以沿着大气层和太空的边缘滑翔。由于大气摩擦引起的极度高温和需要产生推进力，高速导弹在设计上提出了重大挑战。
+
+像ARRW这样的滑翔机使用的是火箭助推器，而喷气式变体使用的是冲压式喷气机，这是一种独特的系统，旨在利用超音速气流燃烧燃料。
+
+高超音速武器可以击败能力越来越强的导弹防御系统，因为它们的速度和机动性，使卫星、地面及海上传感器难以识别、跟踪和瞄准。美国目前所有耗资数百亿美元的导弹防御系统都是拦截飞行轨迹可预测的、易跟踪的导弹和弹头。
+
+中共国和俄罗斯都说他们的高超音速武器是为了击败美国的防御系统。中共国近日宣布，已经部署了DF-17高超音速导弹，美国官员称该导弹能够装备核弹头或常规弹头。
+
+**神秘的中共国工作组**
+
+五角大楼笼统地以“军事安全”担忧为理由，拒绝透露新中共国工作组成员的身份。
+
+国防部长劳埃德•奥斯汀（Lloyd Austin）是中东问题专家，曾领导中央司令部，于今年成立了这个工作组，任命拜登政府委派的前国会助手伊利•拉特纳（Ely Ratner）为负责人，该工作组本周举行了第一次会议。
+[!\[\]()!\[\](https://spark.adobe.com/page/ISkYjMit1ta8K/images/2dae0ce5-8ef0-402b-9db9-6370fca5ee93.jpg?asset_id=75771b82-3b86-40cf-b294-11aa7f759061&amp;img_etag=%22f3cab3bb01b7b551d89f773bc01157f1%22&amp;size=1024)](https://spark.adobe.com/page/ISkYjMit1ta8K/images/2dae0ce5-8ef0-402b-9db9-6370fca5ee93.jpg?asset_id=75771b82-3b86-40cf-b294-11aa7f759061&amp;img_etag=%22f3cab3bb01b7b551d89f773bc01157f1%22&amp;size=1024)
+五角大楼发言人约翰•柯比(John Kirby)周一告诉记者：“今天的会议旨在正式确定工作组的任务、时间和成果，以便对各个部门、各项政策、各个项目及流程中的涉华事务进行摸底评估。”
+
+该小组有四个月的时间向奥斯汀先生提供具体和可操作的建议，以应对官员们所说的“中共国挑战”——这是从川普政府将问题认定为“中共国威胁”的退让。
+
+柯比先生说：“国防部长希望拉特纳先生，从国防部的角度审视中共国对我们步步逼近的挑战，以及我们该做什么才能确保得以应对这一挑战。”他指出，该工作组将为五角大楼正在进行的“全球军力部署计划”做补充。
+
+五角大楼公布了参加工作组的机构和部门，但没有公布其中的官员。
+
+国防部负责政策、采购、科技后勤以及情报的国防部次长办公室参与工作组，负责特别行动和低强度冲突的助理部长也是该小组的成员，五角大楼网络评估办公室、国防情报局、联合参谋部和所有军种，包括新的太空部队也是该小组的成员。
+
+最后，涉及中共国的任何冲突隶属印太司令部，所以印太司令部亦是中共国工作组成员，
+
+🔗[原文链接](https://www.washingtontimes.com/news/2021/mar/3/air-force-to-test-hypersonic-missile/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
 - [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Rt0ATgqakm26S/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/Rt0ATgqakm26S/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-+2
+[!\[\]()!\[\](https://spark.adobe.com/page/ISkYjMit1ta8K/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/ISkYjMit1ta8K/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+0

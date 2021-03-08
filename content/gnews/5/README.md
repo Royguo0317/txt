@@ -1,65 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲特别广播服务公司停播CGTN、CCTV
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/958358/)
+## 3/8/2021 财经快讯：美成立专案组调查中共黑客攻击微软；美全年10.9万人因自贸失业
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/958448/)
 
-新闻来源：BREITBART《布赖特巴特》| 作者：GABRIELLE REYES 加布里埃尔.雷耶斯| 发布时间：2021年3月5日
-翻译/简评：叶知秋（文义）|校对：SilverSpurs7|审核：万人往|Page：小雨
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Picture2-4.png)
+[图片来源](https://www.diglog.com/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/2b1b93ad-8731-4d2c-9571-a877477b8b8d.jpg?asset_id=2b713b9b-358b-4dab-80e0-22030b75eb68&amp;img_etag=%22b2a17b92f8144697874167836923ea54%22&amp;size=2560)](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/2b1b93ad-8731-4d2c-9571-a877477b8b8d.jpg?asset_id=2b713b9b-358b-4dab-80e0-22030b75eb68&amp;img_etag=%22b2a17b92f8144697874167836923ea54%22&amp;size=1024)
+**1.拜登政府成立专案组调查中共是否策划了微软被黑客攻击事件**
 
-**简评：**
+[本周二，微软称其Exchange产品被一个中共支持的黑客组织攻击。并表示自从今年1月份开始，至少有3万家企业和政府机构受到黑客攻击的影响。据美国有线电视新闻网报道，针对此事，拜登政府正在成立一个特别工作组来进行调查。](https://www.businessinsider.com/biden-wh-launch-task-force-probe-china-microsoft-hack-cnn-2021-3)
 
-爆料革命不孤单，正义的力量一直在行动，感谢“保护卫士”人权组织！在大外宣机器遭到澳大利亚的停播和被英国相关机构吊销播放执照之后，中共政府“一如既往”地进行了有针对性的反击！
+**2.美联储: 2020年至少有10.9万美国人因自由贸易而失业**
 
-流氓就是这样，从来都不会反省自己错在哪里，流氓总是从心底认为，错都是别人的，哪怕杀了人，他也会理所当然地认为那是受害者的问题。但是，事实就在那里，不会因为你对等的手段而被掩盖。在全球互联的信息时代，当越来越多的人认识到中共的邪恶与危险之后，那些虚伪的、空洞无物的“伤害了中国人民的感情”、“破坏了民族团结”、“搬起石头砸自己的脚”…… 类似的话，中共政府还能用多久呢？
+[美国联邦政府数据显示，去年有近10.9万名美国人因自由贸易和全球化而失去工作。虽然中共病毒危机给美国经济留下了针对性的损害，但由于自由贸易导致的美国工作岗位外包和离岸外包的现象几乎有增无减。](https://www.breitbart.com/politics/2021/03/07/feds-109k-americans-lost-jobs-globalization-2020/)
 
-郭文贵先生曾经说过，现代社会，最有力量的武器就是媒体。请爆料革命的战友们积极参与到报道真相的队伍里，在各个平台都发出我们的声音，广泛宣传中共国的现状，曝光中共的恶行，揭露他们的虚伪，让更多的人了解到中共邪恶的本质。相信随着最后一根稻草慢慢落下，中共政权必将瞬间垮塌。
+**3.由于电动车板块的糟糕表现，马斯克一周损失270亿美元**
 
-**原文翻译：**
+[上周美股大盘继续疲软，电动车板块持续下跌，特斯拉股价下跌超过16%。根据彭博社的亿万富翁指数显示，对于行业巨头马斯克来说，这意味着他的特斯拉财富减少了270亿美元。](https://www.businessinsider.com/elon-musk-loses-27-billion-electric-vehicle-stocks-tesla-selloff-2021-3)
 
-## 澳大利亚公共广播公司停播中共国国家电视台节目
+**4.报告显示英国失去了美国、德国和中共国的市场份额**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/39ed775b-e588-428d-8cfc-f40e326b0f67.jpg?asset_id=bb4f5107-45d4-49e2-b6ba-a6bac3d2a0e3&amp;img_etag=%2240a0d8602e7f988e422108a26bde1ab7%22&amp;size=2560)](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/39ed775b-e588-428d-8cfc-f40e326b0f67.jpg?asset_id=bb4f5107-45d4-49e2-b6ba-a6bac3d2a0e3&amp;img_etag=%2240a0d8602e7f988e422108a26bde1ab7%22&amp;size=1024)
+[(路透社)-周一公布的新研究报告显示，由于全球贸易混乱、脱欧和生产力增长长期停滞等原因，英国在中共病毒大流行期间失去了美国、德国和中共国的市场份额，表现糟糕，其全球竞争力正在下降。](https://www.reuters.com/article/us-britain-economy-trade/the-covid-brexit-cocktail-uk-lost-market-share-in-u-s-germany-and-china-report-idUSKBN2B0001)
 
-澳大利亚国家广播公司“特别广播服务公司”（SBS）周五将停播两家中共国国家新闻机构的新闻内容，此前一个人权组织指控SBS播放由中共国媒体拍摄的“囚犯”被逼供的新闻。
+**5.沙特石油设施再度遭袭后，原油飚升至 71美元以上**
 
-亚洲人权组织“保护卫士”周四联系SBS称，2013年至2020年期间，中国环球电视网(CGTN)和中国中央电视台(CCTV)在SBS上播放了至少56名“囚犯”在受到胁迫或酷刑的情况下所做的供词。
+([彭博社) 截至发稿，布伦特原油价格飙升至每桶71.38美元。此前沙特称其全球最大的原油码头遭到袭击，不过在导弹和无人机被拦截后，产量似乎没有受到影响。](https://www.ft.com/content/3a094943-5663-477f-96d9-13f230880b7b)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/30e14728-3efe-40b8-90ca-1bf91476568b.png?asset_id=dba181a1-cccc-415e-81ec-f4b8ce4f9db5&amp;img_etag=%2219f62fdf88e1624fd721a311daafb647%22&amp;size=2560)](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/30e14728-3efe-40b8-90ca-1bf91476568b.png?asset_id=dba181a1-cccc-415e-81ec-f4b8ce4f9db5&amp;img_etag=%2219f62fdf88e1624fd721a311daafb647%22&amp;size=1024)
+**6.工信部原部长：中共国实现制造强国目标至少还需30年**
 
-这家由澳大利亚纳税人资助的媒体机构发言人3月4日表示：“SBS收到了一份投诉，目前正在审核相关的内容。”
+[尽管此前一再鼓吹中共拥有世界上最完整的工业供应链，工业和信息化原部长苗圩在中共政协会议上表示，中共实现制造强国的目标至少需要30年。](https://money.163.com/21/0307/16/G4GI1CH800259DLP.html)
 
-这位发言人补充说：“考虑到此投诉事件所引起的严重关注及所涉资料的复杂性，我们决定暂停播放海外来源的CGTN及CCTV的新闻快报，同时开始对这些服务进行评估。”
+**7.5天40张罚单，银行贷款违规流入股市，楼市，大部分大行遭罚**
 
-作为“世界观察”国际新闻节目的一部分，SBS多年来一直用普通话播放15分钟的CGTN节目，用英语播放30分钟的CCTV节目，并且附带一份免责声明：“可能不符合SBS的标准，可能包含令人不安的内容。”
+[进入3月以来截止5日，据券商中共国记者不完全统计，银保监会各局级，分局节后披露的涉及银行违规的行政法规信息公开发布的数量已达40张。辽宁，黑龙江，内蒙古等地的 罚单数量占7成左右。各地银行违法违规事由其主要包括：贷款违规进入楼市，贷款违规交易证券，同业业务违规等行为。罚单显示，大部分国内大行，股份行因贷款业务违规领罚。](https://xueqiu.com/1184824257/173709760)
 
-[![](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/dcf5133e-1d52-4a65-87a0-abb2aa0663d1?asset_id=73d81510-c256-4fd7-a71a-8c4ad168cc19&amp;img_etag=%2233abe85ec781978ab737cc03cef2144e%22&amp;size=1024)](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/dcf5133e-1d52-4a65-87a0-abb2aa0663d1?asset_id=73d81510-c256-4fd7-a71a-8c4ad168cc19&amp;img_etag=%2233abe85ec781978ab737cc03cef2144e%22&amp;size=1024)
+By 【金融组-Rosy Cloud】
 
-在发现CGTN完全由中国共产党控制之后，人权组织保护卫士于2月4日成功游说英国电视监管机构英国通信管理局，吊销了CGTN的在英国的广播执照。
+素材搜集: Totoro、Rosy Cloud
 
-英国通信管理局称， CGTN服务的广播执照持有人，“星华传媒(SCML)”不拥有对CGTN播出内容的编辑责任权。因此，星华传媒不符合对被许可的服务须有控制权的法律要求（英国广播法），也不是合法的广播执照持有者。”
-
-该监管机构补充说：“我们认为，CGTN应该被取消持有执照的资格，因为它是由一个完全被中国共产党控制的机构在控制。”
-
-然而，澳大利亚并没有同样吊销执照。“相反，SBS有自行决定播放内容的自由。”澳大利亚广播公司（ABC）在周五指出。
-
-在英国通信管理局吊销CGTN的英国广播执照一周后，中共国政府官员于2月12日禁止了英国广播公司(BBC)在中国和香港的世界新闻台广播。
-
-中共国广电总局称，BBC世界新闻台关于中国的报道“严重违反”了“真实公正”的要求，损害了中国的利益，破坏了中国的民族团结。
-
-公共广播机构香港电台（RTHK）宣布，将停止播放在前英殖民地期间一直坚持播放了很多年的BBC广播新闻节目。
-
-🔗[原文链接](https://www.breitbart.com/asia/2021/03/05/australian-public-broadcaster-suspends-chinese-state-tv-segments/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+breitbart+%28Breitbart+News%29)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/YHtQnxpZRpE5r/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+校对: Tracy
 
 0
