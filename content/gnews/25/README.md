@@ -1,34 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共和党称拜登正“全面侵犯”投票权
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/957330/)
+## 没有群体免疫！不依据闫博士的信息研究的疫苗不可能是有用的疫苗！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/957517/)
 
-- 编辑：Victor Torres
-- 翻译：the-word
-- 发稿：神奇四侠
+新闻简述：2021年3月1日晚在接受路德采访时，闫丽梦博士重申她早在2020年2月份就已经说过的，不要指望群体免疫。她强调：没看懂闫博士系列报告[1-3]的人研制的疫苗不可能有效；“推动病毒真相，尤其以病毒真相主导来灭共，这个是势不可挡的一个历史大潮。”
 
+[1] [SARS-CoV-2基因组的不寻常特征表明其经过复杂的实验室改造而非自然进化，以及对其可能的合成过程的描述 （中英文对照版）](https://gnews.org/zh-hans/357190/)
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+[2] [闫丽梦博士第二篇报告：经由揭露大规模有组织的学术欺诈而证实SARS-CoV-2是一种超限生物武器 （中英文对照版）](https://gnews.org/zh-hans/412951/)
 
-**西班牙2021年3月7日电/西喜社——**
+[3] [【中英文对照PDF版】闫博士报告三：CNN 用谎言和虚假资讯对新冠病毒(SARS-CoV-2)的起源搅浑水](https://gnews.org/zh-hans/581750/)
 
-据daily wire周日报道，乔·拜登周日签署了一项行政命令，此举显示白宫希望扩大美国人的投票渠道。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-拜登（Biden）在“血腥星期天”纪念日宣布了该命令，以纪念1965年从阿拉巴马州塞尔玛（Selma）到州首府蒙哥马利（Montgomery）的民权游行。游行期间，抗议者遭到猛烈袭击。
+视频来源：[https://youtu.be/hl-v5jp9vxQ](https://youtu.be/hl-v5jp9vxQ) (1:12:13-1:16:13)
 
-拜登说：“今天，在血腥星期天纪念日，我正在签署一项行政命令，以使符合条件的选民更容易进行投票登记，并提升投票的便利。” “每个合格的选民都能投票并计票。”
+鸣谢：感谢喜马拉雅华盛顿DC农场的茅屎坑、青桐、kimkim(文沙)、墨墨十七，提供中文文本于 [https://gnews.org/zh-hans/942139/](https://gnews.org/zh-hans/942139/)
 
-该命令没有提出很多细节，并且命令联邦机构进行更多的分析和起草计划，而不是采取任何未经法律授权的与选举和投票有关的具体步骤。根据白宫的总结，该命令的第一步是“指导联邦机构扩大对选民登记和选举信息的访问”。
+* * *
 
-拜登的命令发布之际，共和党领导的各州正在采取措施，重组和加强针对有可能出现欺诈舞弊的投票程序。在2020年的选举中，出现了许多关于选民欺诈和对选票的不信任的指控，佛罗里达州等州的官员正在推动选民改革，以减少有争议的做法，例如邮寄投票。然而拜登在讲话中抨击了这些努力。
+翻译：【一花一世界】校对：【奔腾的长江】【Isaiah4031】【BruhM】字幕：【奔腾的长江】编辑：【Isaiah4031】喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
-拜登的命令是紧随美国众议院通过广泛的投票权立法之后的。民主党支持的立法将使投票的许多方面联邦化，根本上改革美国选举，而美国选举目前几乎完全在州一级进行。
-
-致力于捍卫宗教自由的保守派非营利组织守护自由联盟[Alliance Defending Freedom（ADF）]抨击该法案。
-
-该组织说：“《 H.R. 1》法案近800页复杂而令人费解的文本，对于美国个人和群体与民选官员或公众讨论重大政策问题，以及行使宪法保护的自由的能力，强加了不可行和具有侵略性的法规。”
-
-新闻来源：[daily wire](https://www.dailywire.com/news/biden-signs-executive-order-to-make-it-easier-to-vote-calls-gop-election-reform-efforts-an-all-out-assault-on-voting-rights)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
-0
++1
