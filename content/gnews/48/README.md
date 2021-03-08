@@ -1,25 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 挪威去年结婚人数为1927年以来最低
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/958754/)
+## 美对土耳其购买俄S-400的制裁或起反效果
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/958790/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-08_18-08-35.jpg)[thenationalherald.com](https://www.thenationalherald.com/253388/russian-s-400-defense-systems-arrive-in-turkey/)
+03月08日，土耳其总统雷杰普·塔伊普·埃尔多安的发言人易卜拉欣·卡利恩（Ibrahim Kalyn）在接受彭博社采访时表示，美国就土耳其从俄罗斯购买的S-400地对空导弹系统向其施压，将适得其反，并把土耳其推向“其他方向”。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+他强调说：“如果另一个国家带着最大限度的立场来找我们，说‘要么按我们的方式，要么不按我们的方式’，这种态度会把我们推向其他方向。”
 
-**西班牙2021年3月8日电/西喜社——**挪威统计机构周一表示，挪威2020年的结婚人数比上一年下降了19%，这已经是1927年以来的最低数字。流行病和应对措施导致了这一数字的下降。在2020年，举行了16200场婚礼。
+埃尔多安强调，与美国在这个问题上的分歧可以通过建设性对话解决，但美国政客应该明白这个问题对安卡拉来说是多么严重，“土耳其关于S-400的决定不是一朝一夕做出的。”
 
-除此之外，”从2019年到2020年，3000场婚礼的下降是无与伦比的，是自1919年以来最大的同比下降，”挪威统计局的安妮·玛格丽特·托梅拉（Ane Margrete Toemmeraas）说。
+2月中旬，美国国务卿安东尼·布林肯再次敦促安卡拉摆脱俄罗斯S-400地对空导弹系统（SAM）。
 
-“数字显示，从2020年3月12日开始的中共病毒防疫措施导致许多人推迟了婚礼，”托梅拉说。它是否 “导致2021年的增加，因为许多被推迟的婚礼可能会代替今年举行，将在以后变得清晰。”
+莫斯科和安卡拉在2017年签署了供应S-400的合同。2019年11月初，俄罗斯提前向土耳其交付了4架S-400师级装备，价值25亿美元。 2020年10月，土耳其在该国北部的西诺普市附近测试了S-400。
 
-**新闻来源：[美联社](https://apnews.com/article/coronavirus-pandemic-new-zealand-migration-europe-9b45404eca36d39c4ce2ce6daf3f0cb1)**
+美国批评土耳其购买俄罗斯系统的决定，并将该国排除在F-35战斗机项目之外。2020年12月，美国前川普政府因土耳其购买S-400萨姆弹而对其国防工业局及其负责人伊斯梅尔·德米尔实施了制裁。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e3cad61a-2c5d-46e9-a10c-fc74efea0afd.jpg)
+参考链接：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
+[https://www.rbc.ru/rbcfreenews/6045d3899a7947e7c72c90e6](https://www.rbc.ru/rbcfreenews/6045d3899a7947e7c72c90e6)
 
 0

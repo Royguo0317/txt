@@ -1,50 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语】 闫丽梦的科学报告(一)
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/959142/)
+## 评欧盟“疫苗护照“的新进展
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/959187/)
 
-**制作:Cantonese工作室**
-**配音:【一帘幽梦】 资料整理:【深寒】【Annie 】中文翻译:【喜马拉雅工作站 】校对:【文舜】**
-**海报:【侬民】【MW】剪辑:【星星】**
-视频内容:
+- 编辑：Victor Torres
+- 作者：gokuabuela
+- 发稿：神奇四侠
 
-**闫博士科学报告（一）**
 
-1,SARS-CoV-2表现出的生物学特征与自然发生的人兽共患病毒不一致。证据表明，SARS-CoV-2 应该是以蝙蝠冠状病毒ZC45和/或ZXC21为模板和/或骨架研制的实验室产物。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-SARS-CoV-2 shows biological characteristics that are inconsistent with a naturally occurring, zoonotic virus.The evidence shows that SARS-CoV- 2 should be a laboratory product created by using bat coronaviruses ZC45 and/or ZXC21 as a template and/or backbone.
+**西班牙2021年3月8日电/西喜社——**
 
-2,SARS-CoV-2：能攻击多个器官,能够进行长时间的无症状感染,具有高度的传染性,在高危人群中具有明显的致死性,自出现之初就很好地适应了人类。
+据ABC新闻3月8日报道，欧盟委员会将于3月17日提议建立名为 “欧洲健康护照 “的中共病毒疫苗接种护照。正如该机构主席乌苏拉-冯德莱恩上周一所宣称的那样，其目的是 “为欧洲的安全开放确立一个共同的方向”。旨在提供 “个人已接种疫苗的证明、尚未接种疫苗的人的检测结果和中共病毒的康复信息，同时始终尊重个人的隐私。这样做的目的是为了促进欧洲联盟国家之间的安全流动。“
 
-SARS-CoV-2： it attacks multiple organs; it is capable of undergoing a long period of asymptomatic infection; it is highly transmissible and significantly lethal in high-risk populations; it is well-adapted to humans since the very start of its emergence.
+但是，由于这种护照涉及道德问题，欧盟27个成员国并不都是欢迎的。正如费尔南多-西蒙所指出的那样，大家一致认为，在编写这份文件时，应将其用于健康用途。
 
-3,支持自然起源论的现有科学论文主要依靠一个单一的证据——之前发现的一种名为RaTG13的蝙蝠冠状病毒. 然而，RaTG13在自然界中的存在及其所报道的序列的真实性正受到广泛质疑。
+“疫苗护照”包含什么内容？
 
-The existing scientific publications supporting a natural origin theory rely heavily on a single piece of evidence – a previously discovered bat coronavirus named RaTG13. However, the existence of RaTG13 in nature and the truthfulness of its reported sequence are being widely questioned.
+这份名为 “数字绿色护照 “的文件将包括：
 
-4,SARS-CoV-2的基因组序列与中国人民解放军第三军医大学（中国重庆）和南京军区军事医学研究所（中国南京）发现的一种蝙蝠冠状病毒的基因组序列可疑地相似。
+你是否已经接受了疫苗；
 
-The genomic sequence of SARS-CoV-2 is suspiciously similar to that of a bat coronavirus discovered by military laboratories in the Third Military Medical University (Chongqing, China) and the Research Institute for Medicine of Nanjing Command (Nanjing, China).
+如果你曾经感染过中共病毒疾病，是否有抗体；
 
-5,SARS-CoV-2刺突蛋白的受体结合基序（RBM）不能从自然界中诞生，而是应通过基因工程制造出来。
+对中共病毒进行测试的结果。
 
-The receptor-binding motif of SARS-CoV-2 Spike cannot be born from nature and should have been created through genetic engineering
+冯德莱恩已经保证，所有个人的数据和隐私都会得到尊重。
 
-6,武汉病毒研究所从事了几十年的冠状病毒监测研究，因此拥有世界上最大的冠状病毒收藏库，技术上能进行刺突蛋白／RBM工程和功能增强实验。
+为什么需要“疫苗护照”
+希腊、意大利和西班牙等一些南欧国家的经济，因严重依赖国际旅游业而受到了疫情的严重影响。为此，这些国家的政府要求布鲁塞尔采取措施，以安全的方式加强和重新激活经济。
 
-The Wuhan Institute of Virology has engaged in decades-long coronavirus surveillance studies and therefore owns the world’s largest collection of coronaviruses, the technical barrier is non-existent to carry out and succeed in such Spike/RBM engineering and gain-of- function research.
+法律问题
 
-7,SARS-CoV-2的刺突蛋白中存在一个不寻常的弗林酶切位点，与病毒的毒性增强有关。SARS-CoV-2 刺突蛋白中的弗林酶切位点不可能源于自然，而应该是实验室改造的结果。
+欧洲联盟的四项基本自由之一是人员在其成员国内自由流动。如果因使用中共病毒疫苗接种护照而限制流动，这将与欧洲公民的自由相冲突。
 
-An unusual furin-cleavage site is present in the Spike protein of SARS-CoV-2 and is associated with the augmented virulence of the virus.The furin-cleavage site within the SARS-CoV-2 Spike protein is unlikely to be of natural origin and instead should be a result of laboratory modification
+另一方面，正如比利时外长索菲-威尔梅斯已经指出的那样，”疫苗不是强制性的，其使用范围也不广”，所以不是每个人都能同时接种，所以此护照的覆盖性也不会很高，对尚未接种的人可能会造成不公平。
 
-8,刺突蛋白应该是经过人工操纵的，这些转化使SARS-CoV-2病毒最终成为一种高传染性、发病隐匿性、致死性、后遗症不明确、破坏性大的病原体。
+世卫组织的意见
 
-The Spike protein should have been artificially manipulated.These transformations have then staged the SARS- CoV-2 virus to eventually become a highly-transmissible, onset-hidden, lethal, sequelae-unclear, and massively disruptive pathogen.
+世界卫生组织则表示反对该文件，因为 “疫苗不能成为旅行的必要条件，因为疫苗对减少传染和免疫期的影响尚不清楚”。
 
-9,显然，SARS-CoV-2可能是通过武汉病毒研究所的功能增强操纵产生的，这种可能性很大，应该进行彻底和独立的调查。
+新闻中的相关内容之前我们有过报道，。目前看来，欧盟“疫苗护照”的实施已经基本成定局。欧盟寄希望于疫苗来结束疫情，恢复经济，注定是如鸵鸟把头埋在沙子里—自欺欺人。没有根本性的解决病毒来源问题，没有灭共，这些措施都是无效甚至有害的。
 
-Evidently, the possibility that SARS-CoV-2 could have been created through gain-of-function manipulations at the Wuhan Institute of Virology is significant and should be investigated thoroughly and independently.
+另一方面，“疫苗护照”的实施，是否会给我们这些坚持拒绝接种疫苗的战友以及欧洲的一些普通民众带来不便或者歧视，还有待观察。但是，在必要的时候，我们应该站出来发声，捍卫我们自己的权益。
 
-0
+“疫苗护照”真的能保证持有者的安全吗？一个核酸检测阴性的人并不能保证在3天或1周后，还是未被感染者。接种过疫苗是否还会感染病毒，是否还会传染病毒？包括抗体存在的最少时间等，目前还没有定论。
+
+我们注意到，中共国也准备“推出国际健康护照，恢复旅游业”。中共国一定会把疫情这张牌的利益最大化。一方面可以推进其疫苗的销售；另一方面当全世界都在使用“疫苗护照”时，也为其将来扩散病毒，增加调查病毒传染路径的困难度埋下了伏笔。
+
+新闻来源：[ABC](https://www.abc.es/sociedad/abci-en-que-consistiria-pasaporte-covid-nsv-202103081249_noticia.html#vca=mod-esnoticia-p3&amp;vmc=pasaporte-covid-19&amp;vso=abc-es&amp;vli=noticia.foto.sociedad)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
++1
