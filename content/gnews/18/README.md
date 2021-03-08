@@ -1,43 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亲北京的立法者说，香港的改革阻止了‘群体暴政’
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/959003/)
+## CGTN对香港民主抗议偏向性报道遭英罚款
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/959117/)
 
-翻译：康州盘古农场 – WH
-校对：康州盘古农场 – 轰炸机
-编辑：康州盘古农场 – Antsee-GTV
+俄罗斯莫斯科喀秋莎农场   银河
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-09-at-00.29.21.png)*支持民主的示威者在游行中举手示意，在香港立法会大楼外的香港旗帜下，要求立法者拒绝北京对首轮行政长官选举方案进行改革 – 图片来源：《路透社》新闻报道*
+编辑上传   水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/c-8.jpg)teeveetee.blogspot.com
+大纪元报道，英国广播监管机构英国通信管理局(Ofcom)周一因中共官方广播公司——中共全球电视网（CGTN）播放逼供和对香港民主抗议活动的偏向性报道，决定对其处以罚款。
 
-据《路透社》（Reuters）记者Yew Lun Tian 在3月6日报道：
+英国通信管理局对CGTN前牌照持有人星空传媒(Star China Media Limited)处以10万英镑(合138359美元)的罚款，此前英国通信管理局认定星空传媒播出2013年从英国公民汉弗莱(Peter Humphrey)那里逼供的内容“严重”违反了英国广播监管规定。另外，因CGTN在报道香港民主抗议活动期间“严重违反”英国法律的公正性，另有12.5万英镑(合17.2929万美元)的罚款决定。
 
-北京（路透社）-亲北京的香港立法会议员廖长江(Martin Liao)周六对路透社说，中共提出的香港选举改革提案可能会阻止“群体暴政”。
+同样在周一，英国通信管理局公布了对CGTN电视台播出前英国驻香港总领事馆雇员郑志刚和瑞典图书出版商桂敏海被逼供一事的最终决定。英国通信管理局支持有关CGTN节目“不公正或不公平待遇”和“无正当理由侵犯隐私”的投诉，并“通知”该广播公司，它打算考虑实施“法定制裁”。
 
-中共人大会议正在讨论改革香港选举制度的计划，以确保北京的忠实拥护者当权。 在北京举行年度会议的香港代表说，这一改变是必要和可取的。
+中共全球电视网（CGTN）是由中共政府拥有、由中国共产党直接控制的国际英语卫星新闻频道。英国通信管理局在2月4日撤销了CGTN的英国牌照，原因是该牌照不合法，因为CGTN最终由中国共产党控制，而不是由其英国牌照持有者星空传媒(Star China Media Limited)控制。这一撤销决定同时影响到了欧洲国家。根据几个欧洲国家达成的协议，作为许可证共享计划的一部分，英国通信管理局批准了CGTN在德国的牌照。因此英国通信管理局撤销其执照，CGTN同时也不被允许在德国播出。
 
-“香港的许多人在政治上还不成熟，”同时在香港和中共立法机关中（任职）的廖先生在一次电话采访中说。
+随后，人权组织捍卫者(Safeguard Defenders)致函澳大利亚广播公司对中共环球电视网 (CGTN)和中共中央电视台进行了人权投诉后，将暂停该栏目的新闻节目的播出。人权组织在投书信中指出，“这些广播涉及提取、包装和播放在胁迫和酷刑条件下强迫被关押囚犯提供虚假供词。”3月5日澳大利亚广播公司SBS宣布，在收到一份人权投诉后决定暂停播放CGTN新闻简报。
 
-廖说：“他们认为’一人一票’是最好的选择，他们甚至从没有’一人一票’的国家那里征求意见，”他指的是美国总统和英国首相都不是由普选产生。
+参考链接：
 
-廖补充：提议的变更包括，将香港选举委员会的人数从1200人增加到1500人，并将香港立法会议席的席位从70个增加到90个，这将使香港的选举制度更具“代表性”，而不太容易导致“多数独裁”。
-
-批评人士说，北京有能力将更多的建制派人士塞在这两个机构里，以获得在影响重要决策（如选举香港行政长官）时所需的（投票）数量优势，从而使代表香港选民的人士没有那么直接的话语权。
-
-参与中共人大就香港立法事项的一位资深香港政治家谭惠珠说，来自信息技术、电信和医疗保健等新兴行业和服务业的人士应被引入香港的选举人团。
-
-她在电话中告诉路透社，那些可以帮助香港青年利用中共经济发展的人，例如通过国家五年计划和大湾区计划，应该也被包含在（选举人团）里面。
-
-谭表示不需要担心旨在确保“爱国者统治香港”的改革会打压反对声音的空间。
-
-她说：“我不认为这将会是单一种颜色。”
-
-她说：“任何能够在自己与那些违背中共和香港利益行为之间划清界限的人，都不会在竞选和获胜上有任何问题。”
-
-另外，中共最高立法机构中唯一的香港代表人大常委会委员谭耀宗表示：“如果你不是爱国者，那就很难进入。”
-
-*Yew Lun Tian报道；罗斯·罗素（Ros Russell）和亚历山大·史密斯（Alexander Smith）编辑*
-
-**原文地址：**[https://www.reuters.com/article/us-china-parliament-hongkong/hong-kong-reforms-prevent-dictatorship-of-the-majority-pro-beijing-lawmaker-says-idUSKBN2AY0CH?il=0](https://www.reuters.com/article/us-china-parliament-hongkong/hong-kong-reforms-prevent-dictatorship-of-the-majority-pro-beijing-lawmaker-says-idUSKBN2AY0CH?il=0)
+[https://www.theepochtimes.com/uk-fines-chinese-broadcaster-cgtn-over-forced-confessions-hong-kong-coverage\_3724738.html](https://www.theepochtimes.com/uk-fines-chinese-broadcaster-cgtn-over-forced-confessions-hong-kong-coverage_3724738.html)
 
 0
