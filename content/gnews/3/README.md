@@ -1,27 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国寻求与印日美澳四国在印太地区紧密合作
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/961168/)
+## 不合格测试剂，喝罐红牛就染上中共病毒
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/961285/)
 
-#### 翻译报道：Leigh寶寶
+By： 【秘密翻译组 G-Translators】
 
-#### **责编：白夜**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-38.png)[图片来源](https://www.livemint.com/news/india/uk-invites-pm-modi-to-attend-g7-boris-johnson-to-visit-india-before-summit-11610876259736.html)
-据印度时报（Times of India）报道，英国驻新德里高级专员亚历山大·埃利斯（Alexander Ellis）认为，印太地区将成为世界上迅速发展的地区，作为新任的驻外专员，他在周五表示，英国将与该地区四个国家——印度，日本，美国，澳大利亚紧密合作。
 
-埃利斯说，尽管还无法确定与四国如何成体系紧密合作，但可以确定的是，英国将在该地区与以上四国共同合作。埃利斯在与新闻记者的互动中表示，印度将是世界未来75年内诸多事件的中心，我们必须与其建立合作伙伴关系。
 
-当被问及如果印日美澳四国扩充同盟，英国是否会加入，埃利斯表示这将取决于盟国将如何协作。他说：”非常明确的是，我们将与印度，日本，美国，澳大利亚在印太地区紧密合作，如何合作以及在哪些问题上合作，这个问题提得好，虽然还不明确如何成体系地合作，但可以确定的是将与上述四国在该地区合作。“
-
-埃利斯提到，他正在撰写的综合评估报告显示英国未来战略前景将向印太地区倾斜。他补充说：“印太地区将是世界上迅速发展的地区。”
-
-埃利斯还提到英国首相鲍里斯·约翰逊（Boris Johnson）有可能在未来几个月出访印度，届时将更进一步商谈双边贸易协议。英国退出欧盟之后有独立的贸易协议，英国和印度有望磋商新的贸易协议。“尽管印度并不热衷于贸易协议，但我们可以预见会出现明确的转向，并与我们达成双边贸易协议的意向。我认为双方都乐意见到双边贸易协议的实质性进展，所以我们对此都进行了初步协商以显示我们对达成双边贸易协议的诚意。英国和印度的经济是互补的，对彼此都不构成直接威胁。”
-
-当被问到印度是否会被邀请参加G7峰会和D10峰会时，埃利斯回答：“今年六月的G7峰会，我们将邀请另外三位领导人，印度总理莫迪（Modi）是其中之一。G7峰会涉及很多方面，这也涵盖其中，谁会被邀请也取决于哪方面内容。国际上有一些国家寻求建立更好的合作和更强的盟友合作，英国和印度可以成为这样的盟友。“
-
-提到关于印度政府和凯恩能源首席执行官西蒙·汤姆森(Simon Thomson)的谈判，埃利斯说：“我们希望双方尽快达成协议。” “来到这里，让我震惊的是印度对基础设施建设的巨大野心，这需要国内和国外的资本。创造一个环境能使外国资本进入就显得尤为重要，“埃利斯补充说。
-
-[UK will work closely with India, Japan, US, Australia in Indo-Pacific: British High Commissioner](https://timesofindia.indiatimes.com/world/uk/uk-will-work-closely-with-india-japan-us-australia-in-indo-pacific-british-high-commissioner/articleshow/81354788.cms)
-
-+1
+0
