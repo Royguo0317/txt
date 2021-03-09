@@ -1,63 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/03/09 美国政要等每日重要信息汇总
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/961624/)
+## 中共制造业的窘境
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/961727/)
 
-#### 作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/03/BA8EB271-29B2-47A5-8D80-3531261D238E.png)
-经授权转载自：
+#### 翻译报道：william
 
-- 川普等政要直译推[Twitter：](/twitter.com/zhiyitw33)[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
-- 川普等政要直译推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
-- 川普等政要直译盖文GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
+#### 责编：白夜
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-39.png)[图面来源](https://www.nytimes.com/2020/02/17/business/china-coronavirus-economy.html)
+根据英国广播公司(BBC)一篇报导，前工业和信息技术部长苗圩在大陆全国政协会议第二次全体会议发言，指出中共距离成为制造大国至少还有30年的时间。尽管全球从汽车到手机的产量中有三分之一以上来自中国，许多观察家也纷纷将中共视为世界工厂，但是苗圩在周日警告说国内的基础能力仍然很薄弱，并且关键核心技术掌握在他人手中。这就表示中共有被掐喉咙的风险。
 
+虽然现阶段，中共仍然生产大量的消费品和工业产品，但其制造业产出在经济中所占的份额却有所下降。在去年，制造业占国内生产总值（GDP）的比例略高于四分之一，是自2012年以来的最低水平。苗先生在北京人民大会堂对政协代表的讲话中说制造业产出对国内生产总值的比率下降得太早，太快。苗继续表示近年来，中共制造业取得了长足的成长，但规模大却不强、涵盖范围大但是质却不好，这样的局面并未得到根本改变。
 
-3月8日参议员玛莎·布莱克本发推一幅照片，称“@brianschatz (夏威夷参议员布莱恩Brian Schatz), #中共 同意(图中的情况)！“ 所附图是2012年作为国家副主席的习近平与布莱恩议员共同手持印有习近平名字的1号球衣，身旁有前湖人队著名球星约翰逊和足球明星贝克汉姆。布莱恩回推称“NBA是最好的队员，不要找我”。
+根据报导，中共已制定了未来五年的经济计划草案。中共希望加快从芯片到人工智能的先进技术的开发。在过去川普政府领导下，中共在获得技术方面已遭到美国限制，华为等中共公司已被禁止购买关键部件。
 
-目前在美国舆论界发起声讨体育界NBA亲共的呼声、不断挖料的时候，也体现了美国人对习近平的厌恶。
+现在对于建立世界一流的国内芯片制造商已成为中共领导人的头等大事。其五年计划的目标是七个对国家安全至关重要的战略领域，其中包括人工智能，量子计算，神经科学和航空航天。该蓝图重申了中共提高飞机开发，机器人技术和新能源汽车竞争力的愿望。
 
-[https://twitter.com/MarshaBlackburn/status/1368760787842588678?s=20](https://twitter.com/MarshaBlackburn/status/1368760787842588678?s=20)
+[China says manufacturing ‘greatness’ still 30 years away](https://www.bbc.com/news/business-56316943)
 
-[https://twitter.com/zhiyitw33/status/1369013750175461378?s=20](https://twitter.com/zhiyitw33/status/1369013750175461378?s=20)
+#### 译评:
 
-无论是台湾问题还是，对新疆种族灭绝问题，议员和媒体已经认清了中共的面目，说话越来越大胆了。
+中共国内经济溃败，关键高科技技术掌握在欧美国家已是众所皆知的事实。在处处造假、事事圈钱的中共国内环境下，中共的制造业已经形成造假、低价模仿、杀价抢占市场的模式。没有事事追求真实、处处讲求基本逻辑的开放性科技研讨风气，怎能诞生自主研发的高端产业？如果毒坏人心的CCP不除，再100年也无法诞生自主研发高端科技产业。
 
-[https://twitter.com/zhiyitw33/status/1368982342895820802?s=20](https://twitter.com/zhiyitw33/status/1368982342895820802?s=20)
-
-国会议员道格·柯林斯提出“向中共追责”，这无论如何都是一个进步，将很快成为美国舆论界的趋势。
-
-[https://twitter.com/zhiyitw33/status/1369039523355619331?s=20](https://twitter.com/zhiyitw33/status/1369039523355619331?s=20截图黏贴）)
-
-[https://twitter.com/zhiyitw33/status/1369041224263364615?s=20](https://twitter.com/zhiyitw33/status/1369041224263364615?s=20截图黏贴）)
-
-美国左媒CNN夸大对中共海军军力等的描述，旨在帮助中共恫吓和遏制美国及其亚太盟友，虽然参议员据此做出的判断未必准确，但是要求美国加强对中共海军威胁的重视也并非没有积极意义。
-
-对中共的抵制再次进入教育界，国会议员安迪·巴尔的呼声，是对拜登上任后关于孔子学院政策的公开反对，也是很多人净化教育界免受中共侵蚀的意愿。
-
-[https://twitter.com/zhiyitw33/status/1369078750927675393?s=20](https://twitter.com/zhiyitw33/status/1369078750927675393?s=20)
-
-[https://twitter.com/zhiyitw33/status/1369078978942693380?s=20](https://twitter.com/zhiyitw33/status/1369078978942693380?s=20)
-
-3月8日，据华盛顿邮报，微软公司的商务电子邮件受到中共国复杂的攻击，这正在演变成一场全球网络安全危机。受攻击的目标包括中小型企业，欧洲银行业管理局，其他美国银行和电力供应商，老人院和一家冰淇淋公司等。微软称，这次攻击始于中共国政府支持、称为“Hafnium”的黑客组织。
-
-微软公司产品漏洞成为中共作恶的间接帮凶，中共野蛮偷窃和猖獗进攻全世界的行径已经曝光于众目睽睽之下，中共在奔向灭亡的路上极度狂奔着。
-
-[https://www.washingtonpost.com/business/on-small-business/microsoft-attack-blamed-on-china-morphs-into-global-crisis/2021/03/08/21cf8dac-7fe5-11eb-be22-32d331d87530\_story.html](https://www.washingtonpost.com/business/on-small-business/microsoft-attack-blamed-on-china-morphs-into-global-crisis/2021/03/08/21cf8dac-7fe5-11eb-be22-32d331d87530_story.html)
-
-
-
-娱乐一刻：“瞌睡”的拜登
-
-看：”拜登讲话时忘记了他的国防部长劳埃德-奥斯汀的名字。他说，“我想感谢国防部长，前将军，我一直在叫他将军，我的……我的……一直在那儿的家伙，我们确保要感谢国防部长所执行的我刚才提到的事情(两名女将军被提名任命为四星作战指挥官。)……”
-
-[https://twitter.com/ThePatsGazette/status/1369067760844742659?s=20](https://twitter.com/ThePatsGazette/status/1369067760844742659?s=20)
-
-* * *
-
-*信息采集：直译推， JAY(杰伊)，喜马拉雅的文雅 
-发布：喜马拉雅大使馆 有一种人*
-*欢迎关注喜联盟Gnews编辑部*
-[https://gnews.org/zh-hans/author/gnews-editorial-team/](https://gnews.org/zh-hans/author/gnews-editorial-team/)
-
-0
++1
