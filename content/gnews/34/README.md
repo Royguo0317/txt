@@ -1,67 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 从数字的盈亏补贴看中共统治的吃人本质
-` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/959330/)
+## 今天的共产党和1930年的希特勒一模一样
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/959617/)
 
-作者：左媛
+新闻简述：在2021年3月5日的盖特视频中，郭先生对比1930年代的希特勒和今天的共产党，对比摔倒在会议室的希特勒和董建华，发现了惊人的相似。他让大家要看到信仰的力量。
 
+**今天的共产党和****1930****年的希特勒一模一样**
 
-> **摘要**：2020年巨额亏损，中石油净利润亏损299亿元，中石化亏损228亿元。仍由国库买单，继续亏损经营。国际油价狂跌，墙内油价坚挺。国库的钱何来？当然是从老百姓的存款里拿！由韭菜們买单！墙国老百姓脱贫致富靠什么？先看九零后的小伙子靠补裤裆年入百万，一年补2000条裤裆。再看腾讯报道：大妈扛树段月入近2万！大妈扛100斤的树段，每天往返要扛100趟，日赚600元。 是不是扛200斤麦子不换肩的“习神”更励志？
+**Today’s CCP Is Exactly the Same as Hitler in the 30’s**
 
+我还是那句话，七哥从开始爆料革命就说过：今天的共产党就和当年的希特勒，1930年那时一模一样，到了1935年、36年，他就疯了，34、35、36，到最后的时候攻打苏联彻底完球蛋。西方的自私和西方的资本主义，还有一个整个西方的投机主义，严格讲还有很多沼泽地，当年跟希特勒大量的供给。可能你们没有想到，当年希特勒的所有的战争的经费，绝大多数是犹太的金融机构给的，那么当时是很夸张的。今天的中共的所有的经费，绝大多数来自美国，在他们眼里面是美帝国主义，美帝国主义，是吧？在这种情况下，兄弟姐妹们，今天又何其相似。
 
-据2020年8月30日，中石油中石化的半年业绩报告披露，中石油净利润亏损299亿元，中石化亏损228亿元。究其原因无非是受疫情影响，市场需求大幅下降，飞机在晒太阳，马路被撂荒，可是，国际油价下跌到20元一桶，国内油价却坚挺在39元，几乎高出一倍。这个账又该怎么算呢？哦，对了，对于巨无霸的“三桶油”来说，巨额亏损要不要继续经营？当然要！为什么？因为党需要！那亏损有没有人买单？当然有！谁来做这个冤大头填补亏损？当然是“国家”！国家的钱从哪里来？当然只能从国库和银行来！国库和银行的钱又从何来？当然是纳税人的贡献和老百姓的存款！看清楚了吧，巨无霸国企的巨额亏损，都是由老百姓买单！真是“兴，百姓苦！亡，百姓苦”！
+As I always say since the beginning of the Whistleblower Movement, today’s CCP is exactly the same as Hitler in the 30’s. He went nuts in 1935 and 1936, or between 1934 and 1936, and then was completely done after attacking the Soviet Union in his final moment. The selfishness and the capitalism of the westerns, as well as the opportunism prevailing in the entire western world – strictly speaking, many swamps – were the major suppliers to Hitler. It may blow your mind to know that the vast majority of Hitler’s war funding came from Jewish financial institutions. It was very unbelievable back then. Today, the vast majority of the CCP’s funding comes from the United States of America, the so-called American imperialism by them [the CCP], right? From this perspective, brothers and sisters, does it look familiar to you?
 
-习近平在最近的脱贫总结报告中说，有9899万农村贫困人口全部脱贫，8年来，中央省市县财政专项扶贫资金累计投入近1.6万亿元。1.6万亿，数字看起来很大很大，但分摊到8年，分摊到9899万人，每人每年也就2000多元，每天不到6元，这还是把1.6万亿全部发放到穷人手里，各级贪官污吏没有贪污截流一分一厘，秒变成为青天大老爷。记得若干年前，山东副省长黄胜一个人贪污的现金就高达90亿美元，合计人民币600亿之巨，这笔巨款如果都用到扶贫上，应该足够让山东省的所有贫困人口真正脱贫致富了吧。“取之于民用之于民”，这才是践行党的爱民作风嘛。“和珅跌倒嘉庆吃饱”，满清只有一个和珅，中共可有一代又一代的“和珅”。中共不倒，“和珅”就会像原野的青草，绿了又黄，黄了再绿，无穷无尽！老百姓又怎能一代一代不穷不苦？
+但是历史不是重演，千万不要忘了，历史绝对不是重演，是上天给撒旦定下了撒旦定律，撒旦定律就是叫撒旦疯狂到一定的时候，就会出现一个周期性的正义与邪恶的整个的这么一个较量。最后当然撒旦是被灭了，然后是人类走向另外一个高端。但是付出生命代价的人，就是跟随撒旦，相信邪恶能战胜正义的。就像今天的缅甸，还有一年前的香港，还有现在的冠状病毒，还有这些所谓的科学家，什么博士什么什么的。
 
-百姓买单，几百亿几百亿的买，无穷无尽；政府福利，那就成了蚊子腿的肉。 中共国的现实如此荒诞，但和它的宣传比起来，那可真是小巫见大巫。不信？ 您瞧！
+History doesn’t repeats itself, please don’t forget, history absolutely doesn’t repeat itself. It was God who set Satan’s law, which means that whenever Satan’s insanity reaches certain breaking point, the cyclic battle between the good and evil will occur. In the end, of course, Satan will be defeated. Then all the mankind will be lifted to a higher level, but those who follow Satan and believe that the evil can defeat the good will pay the prices of their lives. Just like today’s Burma, Hong Kong one year ago, the coronavirus nowadays, and those so-called scientists and doctors, you name it.
 
-“**安徽90后小伙不走寻常路，补裤裆年入100多万，一年补2000多条。**”
+今天在这个时候，大家要看到“以毒灭共”的重要性。大家更能看到，我们的科学家是难能可贵的，更能看到我们《路德访谈》多么大的压力情况下，坚持真相，他太难了。七哥对这些事杠得住，那他们是没有准备的，他们扛不住啊。你能看到那些博博士，艾莉、冠博士、墨博士，我们所有的这个博士军团，安红妹妹那就甭提了，一天两次，一天一次这么折腾。这些英雄，这都是人类的英雄，绝不是什么爆料革命新中国联邦的英雄。你不是人类的英雄，你不可能成为新中国联邦的英雄。
 
-账房先生，算盘请拿来！
+Today, at this very moment, we need to see the significance of “taking down the CCP by spreading the truth about the virus”. More importantly, we shall see how precious our scientists are and how much burden on our Lude Media in order to speak for truth. Way too much for him to bear. I, Brother Seven, can bear such burdens. But for them, it’s too much. Take a look at them, Dr. Bo, Aili, Dr. Guan, Dr. Mo – our all-doctor army, not to mention Sister An Hong. They do the show twice a day or once a day. They are heroes and heroines of mankind, not solely for the New Federal State of China (NFSC). Indeed, if you’re not a hero for the mankind, you can’t be a hero for the NFSC.
 
-噼里啪啦！年入100多万！日均挣超2740元。噼里啪啦！年补2000多条！日均补裤裆5.5个。噼里啪啦！平均每个裤裆收入500元。什么样的裤子补个裤裆要花500元？那就顾不上计较了。总之，党的新闻告诉你，轻轻松松，一年100多万就妥妥地入账啦！
+另外一个就是大家相不相信，当时在这个二战的时候，非常多的传奇的故事，包括瑞士整个的后勤通道，当时包括墨索里尼。墨索里尼那个王八蛋支持希特勒，最后是什么下场？可以说是现代版的五马分尸，对不对？大家记住，社会主义来自哪里？来自德国，共产党主义来自德国，就像今天我们想看到过去的尼彩啊，什么黑格尔啊，黑格尔那整个就是胡扯的，那就完全是…你看这些人所有的人都拿女人不当人，所有的人都是要对女人进行统治的，而且流氓主义，独裁主义。而且完全相信依靠的，就叫做所谓的大外宣、宣传手段，绝对相信，绝对把谎言变成真理，全部被消灭。
 
-![](https://lh5.googleusercontent.com/J0Cnkyfb4hNmbUDgy6iY1TgbtW3qMPUU9vGHX9ER-5jLwUhCFlaSNq9fVrcYHudUBDKGnxMf7KVpnXUUsTwtQkfU3hbos02zf6fgPHkb_mKeeOTjwavtkw19Aw1VGDDwzXQOkw42)
+What’s more, you may not believe it – during the World War II, there were many stories of legend, including the entire logistic network of Switzerland and the story of Mussolini. Mussolini, the bastard, supported Hitler. What’s his ending? It’s like a modern time version of being drawn and quartered, right? Remember, everyone, where was socialism originated from?  Germany. Communism emerged from Germany. From our current perspective, Nietzsche and Hegel’s philosophy back then is totally nonsense. You see that all these people didn’t treat women as humans, and all these people wanted to rule over women. It’s rogueism and authoritarianism. Besides, they fully believed in the so-called “big foreign-propaganda” and believed that lies can be turned into truth. All of that has been wiped out [from history].
 
-年轻的小伙，简单的设备，简陋的环境，轻松的活计，高昂的收费……令人艳羡的年入！在这个90后小伙面前，“三桶油”的高管们都应该切腹谢罪！
+（大家你看我的衣裳…我现在穿上成新款了现在，G-Fashion决定发展这个新款。）那么董建华这个事情你能看到什么？当年希特勒完蛋前，就是我可以告诉你，就希特勒最后一次所有的将军会议，希特勒从桌子旁边“吧唧”一下摔倒了。这些将军知道，希特勒时代完了，但是这些将军还继续为他干，为什么？你折腾呗，我反正在这捞钱嘛，对不对？知道你不行了，打这个苏联的时候，大家已经知道大势已去。
 
-这样的鸡血再来一碗也不嫌多！励志小哥不足怪，丁姓大妈更神奇！
+Everyone, check out my clothes. What I am wearing now is the new design. G-Fashion decided to promote this new style. That being said, what can you see from Tung Chee-hwa’s falling down? Let me tell you, right before Hitler’s death, during his last meeting with all generals, “Bang”, he fell down by the side of the table. These generals knew that Hitler’s era was over, but they continued to work for him. Why? “Let it be. I’m making my money anyway.” Right? They knew he was about over, which was already clear when fighting against the Soviet Union.
 
-据腾讯新闻报道，大妈扛树段月入近2万：男人不行我们扛。大妈扛100斤的树段，在坑洼不平的路上有说有笑，毫不费力。每天要扛100趟呢，收入600元。看样子，又是一个轻轻松松的致富励志典范！昔有100斤麦子10里山路不换肩的习帝，今有100斤树段坑洼路不费力的大妈。
+那么这这个情况下，大家一定要牢记的事情，一定会看到信仰的力量。
 
-这真是——
+So, at this moment, we must keep this in mind: we will definitely see the power of faith.
 
-厉害国里神话多，卖油不如补裆哥。励志大妈太神勇，羞煞当年扛麦哥！
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-![](https://lh5.googleusercontent.com/joHGwghXg37miTq3YIUjcr3lqLM-T-h887JVfZhH49Z9gtdhVN-WXAQe2rMaZZlAdrQLKpobFUTXdZBDfjox4qVOm6TIlE-qw-iXYVVqT1_XOOQQHKUrnYpxFbw4ncEMvZXpYanh)
+视频来源：[https://gtv.org/getter/6042b3e49534a74bcaeff20c](https://gtv.org/getter/6042b3e49534a74bcaeff20c) (00:30-4:21)
 
-中共屡屡要给世界指明方向，提供方案，那是愚昧狂妄之语！但扛树大妈补裆哥的故事告诉咱：高手在民间！那就把那些年年吸血年年亏的垄断行业都交给民间来经营吧，什么石油石化，什么铁路公路，什么航空航海……保证会尽快扭亏为盈，不仅不要“国家”的补贴，还能给“国库”输入巨额利润，建设国家造福人民！如果年年亏损却还死死抓住不放手，那只能说明：你们是一群吃人不吐骨头还喊肚子填不饱的饿狼！
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/952959/](https://gnews.org/zh-hans/952959/)
 
-唉！荒唐政党盈亏事，几人相信几人哄。垄断每每亏损巨，民间人人陶朱公！
+* * *
 
-2021.3.7于纽约
+翻译：【一花一世界】校对：【Isaiah4031】【BruhM】字幕：【Rock小哥】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
-**【参考来源】**
-
-###### 简易财经 链接 -中石油亏损299亿,中石化亏损228亿,为什么会亏损这么严重?[https://news.futunn.com/hk/post/7172245](https://news.futunn.com/hk/post/7172245)
-
-![](https://lh6.googleusercontent.com/7nYhoopgKD5zYm1eMMhfgVtA1u981jqg5w_2mq6p3WWx5bz_2SBmuspP1hcqPq2mXtAFbX1mSdSzKL1yAEV3LKye3TtDTpgDUunblYEuLLtp9gsPHDbm75Em_tdlxiAP8ExbO_Fq)
-
-【责任编辑】：bingo
-
-
-**【免责声明】  **尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-
-**欢迎战友加入旧金山金喜准农场**
-
-[旧金山金喜准农场 GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
-
-[旧金山金喜准农场 Discord](https://discord.gg/QQzQ79grEA)
-
-[旧金山金喜准农场 Twitter](https://twitter.com/sf_himalaya)
-
-
-
-+2
+0
