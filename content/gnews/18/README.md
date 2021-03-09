@@ -1,41 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《文贵说》| 图片连载 （十四）
-` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/962343/)
+## 川普总统和郭先生是否已聚首纽约共商灭共大计？
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/962501/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/15-2.jpg)
-**王岐山所谓的“党政分离”：就是要把国家进行一次次的股票震荡，钱给你洗走。然后，让老百姓剩下的只有“穷困”，才能使这个国家更加的好控制**。
+撰文：Isaiah4031
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Trump_20210309_ReturnNewYork-coverphoto.jpeg)
+据《每日邮报》（DailyMail） 和海峡时报（The Straits Times）报道[1,2]，美国总统唐纳德川普于3月7日本周日晚上抵达他位于曼哈顿的川普大厦的家时，在他的黑色座驾内向记者和支持者们挥手致意。本周一也有川普的支持者聚集在大楼的下面欢迎川普总统的归来。媒体和公众并不知道他此行的目的，预计川普将于周二离开纽约，返回佛罗里达。
 
-**—— 郭文贵先生 2020年6月30日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/14-2.jpg)
-**新中国联邦在华盛顿亮相，震撼世界，深刻影响只是刚刚开始。**
+然而郭文贵先生3月9日的盖特视频[3]似乎透露出他已与川普总统会面，并谈话中包含灭共议题：“这是川普的家啊，看川普的家，就是最上层，咖啡色那个，他家一整层，一整层，现在曼哈顿就我们俩这整层的房子亮着了，我昨天我看这老人家真有点儿老了…… 但是斗志没减啊，对共产党的认识越来越深刻。”[4]
 
-**—— 郭文贵先生 2020年7月4日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/13-2.jpg)
-**不相信神，你毛泽东埋天安门干啥啊？他比谁都信！他关键是不让你信！他让你变成奴隶，物质上的奴隶、精神上的奴隶、天下的鬼的奴隶。这才是可怕的，这才是本质。**
+那么我们是否可以大胆地猜测，川普总统此行的目的包括与郭先生会面并共商反共大计呢？看来“以毒灭共”、“以钱灭共”势不可挡。
 
-**—— 郭文贵先生 2020年5月10日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/12-4.jpg)
-**世界上最强大的就是人的生命。每个人都是一个世界，每个人都是一个国家，只要他放弃了幻想，放弃了恐惧，不怕死，不贪婪，他就是一个国家的力量，他就是伟大的。**
+参考链接：
 
-**—— 郭文贵先生 2017年6月30日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/11-3.jpg)
-**共产党给我们的病：永远觉得自己是正确的，然后对每个人都想批评两句，对每个事都想评判两下，对每个事务都要自己决策一下。**
+[1] [Trump is back in the Big Apple! Ex-President arrives in NYC alone for the first time since leaving the White House after value of his upstate estate faces new scrutiny as ‘prosecutors want his longtime accountant to turn on him’](https://www.dailymail.co.uk/news/article-9337119/Donald-Trump-arrives-New-York-City.html)
 
-**—— 郭文贵先生 2020年6月25日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/07.jpg)
-**中国共产党的党员们，如果你们不站起来，找回我们自己的人权和尊严的话，所有的家人，和这个国家十四亿人，乃至全世界，都将进入极度危险的状态。**
+[2] [Trump back in New York for first time since leaving office](https://www.straitstimes.com/world/united-states/trump-back-in-new-york-for-first-time-since-leaving-office)
 
-**—— 郭文贵先生 2017年10月5日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/06.jpg)
-**采取措施最早的是湖北的军方，采取最严厉的措施，以生化战争方式处理的，是北京。**
+[3] [https://gtv.org/getter/6047884777cd9a2ce802c252](https://gtv.org/getter/6047884777cd9a2ce802c252)
 
-**—— 郭文贵先生 2020年2月22日**
-
-
-
-- [***更多精美海报请点击G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4)
-
+[4] [https://gnews.org/zh-hans/962443/](https://gnews.org/zh-hans/962443/)
 
 +1
