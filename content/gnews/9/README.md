@@ -1,63 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/03/09 美国政要等每日重要信息汇总
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/961624/)
+## 3/9/2021 财经快讯：美联储延期小企业流动性融资，印度对抗中共网络威胁
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/961845/)
 
-#### 作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/03/BA8EB271-29B2-47A5-8D80-3531261D238E.png)
-经授权转载自：
+![]()![](https://www.gnews.org/wp-content/uploads/2021/03/Picture3-1.jpg)
+[图片来源](http://www.tripvivid.com/)
 
-- 川普等政要直译推[Twitter：](/twitter.com/zhiyitw33)[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
-- 川普等政要直译推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
-- 川普等政要直译盖文GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
+1. **美联储将小型企业流动性融资期限延长三个月**
 
 
-3月8日参议员玛莎·布莱克本发推一幅照片，称“@brianschatz (夏威夷参议员布莱恩Brian Schatz), #中共 同意(图中的情况)！“ 所附图是2012年作为国家副主席的习近平与布莱恩议员共同手持印有习近平名字的1号球衣，身旁有前湖人队著名球星约翰逊和足球明星贝克汉姆。布莱恩回推称“NBA是最好的队员，不要找我”。
+[美联储周一宣布，将紧急流动性设施延长三个月至6月30日，这项安排旨在帮助贷款机构向薪资保护计划下的小企业提供救助。美联储在一份声明中说，其他三项紧急措施-商业票据融资设施，货币市场共同基金流动性融资和一级交易商信贷机制-将如期于3月31日到期，称它们已数月未见”大量使用”](https://www.reuters.com/article/us-usa-fed-smallbusiness-idUSKBN2B01LC)。
 
-目前在美国舆论界发起声讨体育界NBA亲共的呼声、不断挖料的时候，也体现了美国人对习近平的厌恶。
-
-[https://twitter.com/MarshaBlackburn/status/1368760787842588678?s=20](https://twitter.com/MarshaBlackburn/status/1368760787842588678?s=20)
-
-[https://twitter.com/zhiyitw33/status/1369013750175461378?s=20](https://twitter.com/zhiyitw33/status/1369013750175461378?s=20)
-
-无论是台湾问题还是，对新疆种族灭绝问题，议员和媒体已经认清了中共的面目，说话越来越大胆了。
-
-[https://twitter.com/zhiyitw33/status/1368982342895820802?s=20](https://twitter.com/zhiyitw33/status/1368982342895820802?s=20)
-
-国会议员道格·柯林斯提出“向中共追责”，这无论如何都是一个进步，将很快成为美国舆论界的趋势。
-
-[https://twitter.com/zhiyitw33/status/1369039523355619331?s=20](https://twitter.com/zhiyitw33/status/1369039523355619331?s=20截图黏贴）)
-
-[https://twitter.com/zhiyitw33/status/1369041224263364615?s=20](https://twitter.com/zhiyitw33/status/1369041224263364615?s=20截图黏贴）)
-
-美国左媒CNN夸大对中共海军军力等的描述，旨在帮助中共恫吓和遏制美国及其亚太盟友，虽然参议员据此做出的判断未必准确，但是要求美国加强对中共海军威胁的重视也并非没有积极意义。
-
-对中共的抵制再次进入教育界，国会议员安迪·巴尔的呼声，是对拜登上任后关于孔子学院政策的公开反对，也是很多人净化教育界免受中共侵蚀的意愿。
-
-[https://twitter.com/zhiyitw33/status/1369078750927675393?s=20](https://twitter.com/zhiyitw33/status/1369078750927675393?s=20)
-
-[https://twitter.com/zhiyitw33/status/1369078978942693380?s=20](https://twitter.com/zhiyitw33/status/1369078978942693380?s=20)
-
-3月8日，据华盛顿邮报，微软公司的商务电子邮件受到中共国复杂的攻击，这正在演变成一场全球网络安全危机。受攻击的目标包括中小型企业，欧洲银行业管理局，其他美国银行和电力供应商，老人院和一家冰淇淋公司等。微软称，这次攻击始于中共国政府支持、称为“Hafnium”的黑客组织。
-
-微软公司产品漏洞成为中共作恶的间接帮凶，中共野蛮偷窃和猖獗进攻全世界的行径已经曝光于众目睽睽之下，中共在奔向灭亡的路上极度狂奔着。
-
-[https://www.washingtonpost.com/business/on-small-business/microsoft-attack-blamed-on-china-morphs-into-global-crisis/2021/03/08/21cf8dac-7fe5-11eb-be22-32d331d87530\_story.html](https://www.washingtonpost.com/business/on-small-business/microsoft-attack-blamed-on-china-morphs-into-global-crisis/2021/03/08/21cf8dac-7fe5-11eb-be22-32d331d87530_story.html)
+1. **印度制定新战略对抗中共的网络威胁**
 
 
+[印度正在考虑一项新的国家战略，以加强该国的网络安全。目前有指控称，中共的网络入侵可能影响了孟买一家关键证券交易所的运营和电力供应。
+总部位于美国的研究公司Recorded Future上周表示，由于当局阻止了试图侵入该国电力部门的尝试，至少有一个由中共政府资助的黑客打开的进入印度港口网络系统的连接仍处于活动状态。](https://newsof-india.com/india-formulates-new-strategy-to-counter-chinas-cyber-threat/)
 
-娱乐一刻：“瞌睡”的拜登
+1. **苹果欲将iPhone 12生产的10％从中共国转移到印度**
 
-看：”拜登讲话时忘记了他的国防部长劳埃德-奥斯汀的名字。他说，“我想感谢国防部长，前将军，我一直在叫他将军，我的……我的……一直在那儿的家伙，我们确保要感谢国防部长所执行的我刚才提到的事情(两名女将军被提名任命为四星作战指挥官。)……”
 
-[https://twitter.com/ThePatsGazette/status/1369067760844742659?s=20](https://twitter.com/ThePatsGazette/status/1369067760844742659?s=20)
+[苹果公司准备将iPhone 12的生产量的10％从中共国转移到印度，装配合作伙伴富士康表示正在研究在印度国内销售和出口市场的产品。到目前为止，苹果公司已经在印度生产iPhone 11和iPhone XR，计划也将推出iPhone 12。根据商业标准的消息来源，装配合作伙伴富士康正准备在印度尽快开始生产该模型。](https://appleinsider.com/articles/21/03/08/apple-could-shift-10-of-iphone-12-production-from-china-to-india)
 
-* * *
+1. **美国在遭受重大网络攻击后准备对俄罗斯采取行动**
 
-*信息采集：直译推， JAY(杰伊)，喜马拉雅的文雅 
-发布：喜马拉雅大使馆 有一种人*
-*欢迎关注喜联盟Gnews编辑部*
-[https://gnews.org/zh-hans/author/gnews-editorial-team/](https://gnews.org/zh-hans/author/gnews-editorial-team/)
+
+[据《纽约时报》周日报道，美国认定俄罗斯可能参与了一起影响政府系统和国内企业的重大网络攻击，准备对俄罗斯采取行动。此举正值拜登政府开始努力应对另一项据称由政府支持、似乎来自中共的攻击的曝光。白宫证实，将采取“多种行动”来回应来自俄罗斯的网络攻击，不过白宫没有提供具体的行动时间和方式。](https://www.cnbc.com/2021/03/08/us-prepares-to-take-action-against-russia-after-major-cyber-attack.html)
+
+1. **由于宽松的流动性可能收紧，印度银行的不良贷款将上升**
+
+
+[惠誉国际周一表示，由于支撑遭受重创的经济而实施的宽松货币政策可能开始收紧，印度银行的不良贷款和信贷成本预计将上升。去年的中共病毒封锁打击了本已举步维艰的金融行业，但最近的季度报告显示，利润和资产质量有所改善。
+惠誉指出，近期的改善掩盖了潜在的大流行压力，并称银行业将越来越感受到小企业持续受到的冲击和失业率上升带来的压力。](https://finance.yahoo.com/news/bad-loans-rise-indian-banks-085522472.html)
+
+1. **跌懵了！A股一天蒸发2万亿**
+
+
+[3月8日，A股高开低走，尾盘加速暴跌。截至收盘，沪指跌2.30%，报收3421点；深成指跌3.81%，报收13863点；创业板指跌4.98%，报收2728点。其中，创业板指最低下探至2726点，较近期高点回撤超20%。北向资金今日净卖出85.89亿元，创去年9月以来最大净卖出。其中，贵州茅台、牧原股份、美的集团分别遭净卖出11亿元、5.9亿元、4.95亿元。除了白酒以外，多只此前表现强势的光伏概念股近期也持续遭到资金的抛售。粗略算一下，今天A股的总市值比上一个交易日少了2万亿。](https://3g.163.com/money/article/G4JH5H1500259DLP.html)
+
+1. **美国禁令奏效 华为海外市占率大缩水**
+
+
+[《华尔街日报》3月7日报导，一家行业研究公司表示，去年华为在中共国以外的无线设备市场上输给西方竞争对手，这表明川普政府在全球推进华为禁令的行动正在开始产生影响。
+根据Dell’Oro Group的数据，华为在全球范围内（不包括中共国）的无线设备销售收入份额下降2个百分点，到2020年市场份额约为20%，落后于竞争对手爱立信和诺基亚。](https://www.epochtimes.com/gb/21/3/7/n12795826.htm)
+
+By 【金融组-Tracy】
+
+素材搜集: Wendy、Kate
 
 0
