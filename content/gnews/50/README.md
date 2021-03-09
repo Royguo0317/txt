@@ -1,39 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共两会反应粮食供给依然存在问题
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/961552/)
+## 2021/03/09 美国政要等每日重要信息汇总
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/961624/)
 
-撰稿：张文谦
+#### 作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/03/BA8EB271-29B2-47A5-8D80-3531261D238E.png)
+经授权转载自：
 
-评论：Gradient Boost
-![]()![](https://gnews.org/wp-content/uploads/2021/03/002.jpg)图片来自网络
-自上周起，中共国一年一度政治表演“两会”再度召开，当然也照例吸引着国内外各路媒体的目光。墙内媒体到了这个时候大多都是唱唱赞歌，宣传政府即将颁布的新政策。部分境外媒体则喜欢抓拍一些“大会表演”中“演员们”的“穿帮”以及“出丑”的镜头，例如董建华跌倒还有习总加速师桌上有两个茶杯等。而笔者更加关注的，则是本次“两会”中是否透露出有关粮食问题的真实情况。
+- 川普等政要直译推[Twitter：](/twitter.com/zhiyitw33)[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
+- 川普等政要直译推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
+- 川普等政要直译盖文GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
 
-粮食问题就像CCP病毒一样，时间久了很多人也都麻木了，觉得没事便完全放松警惕，把担忧全都抛到脑后。这其中的一部分功劳在于大内宣机器的勤奋运行，自去年差不多这个时间点开始，墙内舆论便大力鼓吹中共国有能力应对全球粮食危机的风险，中共国粮食危机都是误读或者误解等等，亦或者是承认粮食价格出现增长，粮食缺口可能出现，但绝对不承认有任何危险。
 
-还有一种常见的论调认为粮食紧缺的确存在，但是挺过2020来到2021后半年，一切就都会好起来的。然而从“两会”上各路委员提出的议案来看，今年的粮食供给情况似乎也并不乐观。笔者通过检索发现至少不下十位参会的委员或代表提出了与粮食相关的议案，谈论话题多为节约粮食、种子被“卡脖子”、农业科技、种粮收益等问题。按中共报告文体的规律翻译成白话便是粮食短缺、种源不够、农业生产落后、而且农民获利甚微。来自四川的一位人大代表更是提出让学校成为节约粮食的领导者，这话听上去就好像是让还处于青少年阶段的学生优先过“紧日子”一般，着实有些别扭。粮食消费者和生产者两头都没有好果子吃，简直就是双输的典型，赢的只有往粮食里掺砂石的贪官污吏。
+3月8日参议员玛莎·布莱克本发推一幅照片，称“@brianschatz (夏威夷参议员布莱恩Brian Schatz), #中共 同意(图中的情况)！“ 所附图是2012年作为国家副主席的习近平与布莱恩议员共同手持印有习近平名字的1号球衣，身旁有前湖人队著名球星约翰逊和足球明星贝克汉姆。布莱恩回推称“NBA是最好的队员，不要找我”。
 
-总而言之，粮食安全成为两会热点话题的确是不寻常的，因为能够与之并列就只有科技创新和乡村振兴。科技创新主要其实就是芯片的研发问题，事关中共国扩张自身势力的关键战略；乡村振兴其实就是扶贫攻坚，那更是习总加速师准备拿来当做重要执政功绩的话题。粮食问题在“两会”中竟然可以与这两件事平起平坐，那多半实质性地关乎着中共统治的根基。
+目前在美国舆论界发起声讨体育界NBA亲共的呼声、不断挖料的时候，也体现了美国人对习近平的厌恶。
 
-早在去年八月，来自社科院的报告就指出到“十四五”期末，中共国可能出现1.3亿吨左右的巨额粮食缺口。到2025年，中国城镇化率将达到65.5%，保守估计新增农村转移人口在8000万人以上；农业就业人员比重将下降到20%左右。或许粮食问题已成为继房地产泡沫、债务危机以及人口老龄化之后，又一只决定中共命运的灰犀牛。而对于生活在大陆的百姓来说，前方坎坷崎岖的泥泞道路，似乎又被埋下了一颗不定时的炸雷。
+[https://twitter.com/MarshaBlackburn/status/1368760787842588678?s=20](https://twitter.com/MarshaBlackburn/status/1368760787842588678?s=20)
 
-（本文纯属个人观点）
+[https://twitter.com/zhiyitw33/status/1369013750175461378?s=20](https://twitter.com/zhiyitw33/status/1369013750175461378?s=20)
 
-审稿：Gradient Boost
+无论是台湾问题还是，对新疆种族灭绝问题，议员和媒体已经认清了中共的面目，说话越来越大胆了。
 
-新闻参考链接：
+[https://twitter.com/zhiyitw33/status/1368982342895820802?s=20](https://twitter.com/zhiyitw33/status/1368982342895820802?s=20)
 
-[凤凰网](https://finance.ifeng.com/c/7z10weyTv7I)（中共国墙内媒体网站）
+国会议员道格·柯林斯提出“向中共追责”，这无论如何都是一个进步，将很快成为美国舆论界的趋势。
 
-[金融界网](http://stock.jrj.com.cn/2021/03/09071532095309.shtml)（中共国墙内网站）
+[https://twitter.com/zhiyitw33/status/1369039523355619331?s=20](https://twitter.com/zhiyitw33/status/1369039523355619331?s=20截图黏贴）)
 
-[搜狐网](https://www.sohu.com/a/454602920_243614)（中共国墙内网站）
+[https://twitter.com/zhiyitw33/status/1369041224263364615?s=20](https://twitter.com/zhiyitw33/status/1369041224263364615?s=20截图黏贴）)
 
-[法国国际广播电台](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210306-%E4%B8%A4%E4%BC%9A%E5%86%8D%E7%8E%B0%E7%BD%95%E8%A7%81%E4%B8%80%E5%B9%95-%E4%B9%A0%E8%BF%91%E5%B9%B3%E6%9C%89%E4%B8%A4%E4%B8%AA%E8%8C%B6%E6%9D%AF)
+美国左媒CNN夸大对中共海军军力等的描述，旨在帮助中共恫吓和遏制美国及其亚太盟友，虽然参议员据此做出的判断未必准确，但是要求美国加强对中共海军威胁的重视也并非没有积极意义。
 
-[澳喜文章](https://gnews.org/zh-hans/author/aujenny/)
+对中共的抵制再次进入教育界，国会议员安迪·巴尔的呼声，是对拜登上任后关于孔子学院政策的公开反对，也是很多人净化教育界免受中共侵蚀的意愿。
 
-[欢迎加入澳喜农场](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
+[https://twitter.com/zhiyitw33/status/1369078750927675393?s=20](https://twitter.com/zhiyitw33/status/1369078750927675393?s=20)
+
+[https://twitter.com/zhiyitw33/status/1369078978942693380?s=20](https://twitter.com/zhiyitw33/status/1369078978942693380?s=20)
+
+3月8日，据华盛顿邮报，微软公司的商务电子邮件受到中共国复杂的攻击，这正在演变成一场全球网络安全危机。受攻击的目标包括中小型企业，欧洲银行业管理局，其他美国银行和电力供应商，老人院和一家冰淇淋公司等。微软称，这次攻击始于中共国政府支持、称为“Hafnium”的黑客组织。
+
+微软公司产品漏洞成为中共作恶的间接帮凶，中共野蛮偷窃和猖獗进攻全世界的行径已经曝光于众目睽睽之下，中共在奔向灭亡的路上极度狂奔着。
+
+[https://www.washingtonpost.com/business/on-small-business/microsoft-attack-blamed-on-china-morphs-into-global-crisis/2021/03/08/21cf8dac-7fe5-11eb-be22-32d331d87530\_story.html](https://www.washingtonpost.com/business/on-small-business/microsoft-attack-blamed-on-china-morphs-into-global-crisis/2021/03/08/21cf8dac-7fe5-11eb-be22-32d331d87530_story.html)
+
+
+
+娱乐一刻：“瞌睡”的拜登
+
+看：”拜登讲话时忘记了他的国防部长劳埃德-奥斯汀的名字。他说，“我想感谢国防部长，前将军，我一直在叫他将军，我的……我的……一直在那儿的家伙，我们确保要感谢国防部长所执行的我刚才提到的事情(两名女将军被提名任命为四星作战指挥官。)……”
+
+[https://twitter.com/ThePatsGazette/status/1369067760844742659?s=20](https://twitter.com/ThePatsGazette/status/1369067760844742659?s=20)
+
+* * *
+
+*信息采集：直译推， JAY(杰伊)，喜马拉雅的文雅 
+发布：喜马拉雅大使馆 有一种人*
+*欢迎关注喜联盟Gnews编辑部*
+[https://gnews.org/zh-hans/author/gnews-editorial-team/](https://gnews.org/zh-hans/author/gnews-editorial-team/)
+
 0
