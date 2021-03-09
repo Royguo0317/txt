@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 意大利中共病毒死亡人数破10万
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/962402/)
+## 川普总统和郭先生是否已聚首纽约共商灭共大计？
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/962501/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+撰文：Isaiah4031
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Trump_20210309_ReturnNewYork-coverphoto.jpeg)
+据《每日邮报》（DailyMail） 和海峡时报（The Straits Times）报道[1,2]，美国总统唐纳德川普于3月7日本周日晚上抵达他位于曼哈顿的川普大厦的家时，在他的黑色座驾内向记者和支持者们挥手致意。本周一也有川普的支持者聚集在大楼的下面欢迎川普总统的归来。媒体和公众并不知道他此行的目的，预计川普将于周二离开纽约，返回佛罗里达。
 
+然而郭文贵先生3月9日的盖特视频[3]似乎透露出他已与川普总统会面，并谈话中包含灭共议题：“这是川普的家啊，看川普的家，就是最上层，咖啡色那个，他家一整层，一整层，现在曼哈顿就我们俩这整层的房子亮着了，我昨天我看这老人家真有点儿老了…… 但是斗志没减啊，对共产党的认识越来越深刻。”[4]
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+那么我们是否可以大胆地猜测，川普总统此行的目的包括与郭先生会面并共商反共大计呢？看来“以毒灭共”、“以钱灭共”势不可挡。
 
-**西班牙2021年3月9日电/西喜社——**据美联社3月9日报道，意大利在疫情中死亡人数突破10万人。一年前意大利成为欧洲第一个为阻止中共病毒传播而进行封锁的国家。
+参考链接：
 
-意大利卫生部周一表示，过去24小时内已有318人死亡，总数达到10103人，仅次于英国，成为欧洲第二高的国家。
+[1] [Trump is back in the Big Apple! Ex-President arrives in NYC alone for the first time since leaving the White House after value of his upstate estate faces new scrutiny as ‘prosecutors want his longtime accountant to turn on him’](https://www.dailymail.co.uk/news/article-9337119/Donald-Trump-arrives-New-York-City.html)
 
-意大利在2020年2月21日录得首例病毒死亡病例，当时来自威尼斯以西一个酿酒小镇的78岁退休屋顶工人安东尼奥-特雷维桑因心脏问题住院不治后死亡。
+[2] [Trump back in New York for first time since leaving office](https://www.straitstimes.com/world/united-states/trump-back-in-new-york-for-first-time-since-leaving-office)
 
-意大利上周的病毒总病例超过300万，新的激增是由英国首次发现的高传染性变异体推动的。
+[3] [https://gtv.org/getter/6047884777cd9a2ce802c252](https://gtv.org/getter/6047884777cd9a2ce802c252)
 
-周一有近1.4万个新的阳性记录，重症监护室的人数上升到2700人—比一天前多了95人。意大利在去年3月9日实施了严厉的全国封锁，持续了7周，包括关闭所有非必要的制造业。
+[4] [https://gnews.org/zh-hans/962443/](https://gnews.org/zh-hans/962443/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ec2fc59d-c848-495f-855a-5cb69c0f8578.jpg)
-
-**新闻来源：[美联社](https://apnews.com/article/technology-world-news-coronavirus-vaccine-coronavirus-pandemic-united-nations-937fd3578c34da96e2632b6288a7bdc9)**
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
-
-0
++1
