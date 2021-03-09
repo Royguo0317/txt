@@ -1,53 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 今天的共产党和1930年的希特勒一模一样
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/959617/)
+## 中共病毒变种令美国处于“飓风之眼”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/959717/)
 
-新闻简述：在2021年3月5日的盖特视频中，郭先生对比1930年代的希特勒和今天的共产党，对比摔倒在会议室的希特勒和董建华，发现了惊人的相似。他让大家要看到信仰的力量。
+俄罗斯莫斯科喀秋莎农场  文雪
 
-**今天的共产党和****1930****年的希特勒一模一样**
+编辑上传 水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/c-9.jpg)newsday.co.tt
+据NewsMax 3月8日报道，一位著名的传染病相关官员奥斯特霍姆博士（Dr. Osterholm）周日表示， 在长达一年的中共病毒疫情中，美国正处于 “飓风之眼”，因为中共病毒疫情仍在继续。
 
-**Today’s CCP Is Exactly the Same as Hitler in the 30’s**
+明尼苏达大学疾病研究中心主任迈克尔·奥斯特霍姆博士在接受美国全国广播公司新闻（NBC News） “与媒体见面 ”（Meet The Press）采访时说，事情好转是表象，是大家忽视了病毒变种正在成为越来越大的威胁。
 
-我还是那句话，七哥从开始爆料革命就说过：今天的共产党就和当年的希特勒，1930年那时一模一样，到了1935年、36年，他就疯了，34、35、36，到最后的时候攻打苏联彻底完球蛋。西方的自私和西方的资本主义，还有一个整个西方的投机主义，严格讲还有很多沼泽地，当年跟希特勒大量的供给。可能你们没有想到，当年希特勒的所有的战争的经费，绝大多数是犹太的金融机构给的，那么当时是很夸张的。今天的中共的所有的经费，绝大多数来自美国，在他们眼里面是美帝国主义，美帝国主义，是吧？在这种情况下，兄弟姐妹们，今天又何其相似。
+他说，“我们现在正处于飓风之眼。看起来事情进展非常顺利，你能看到蓝天。我们已经经历了可怕的一年。我们所知道的即将到来的是这种……变种的情况，这种变种病毒源于英国，如今正在欧洲肆虐。”
 
-As I always say since the beginning of the Whistleblower Movement, today’s CCP is exactly the same as Hitler in the 30’s. He went nuts in 1935 and 1936, or between 1934 and 1936, and then was completely done after attacking the Soviet Union in his final moment. The selfishness and the capitalism of the westerns, as well as the opportunism prevailing in the entire western world – strictly speaking, many swamps – were the major suppliers to Hitler. It may blow your mind to know that the vast majority of Hitler’s war funding came from Jewish financial institutions. It was very unbelievable back then. Today, the vast majority of the CCP’s funding comes from the United States of America, the so-called American imperialism by them [the CCP], right? From this perspective, brothers and sisters, does it look familiar to you?
+据奥斯特霍姆称，这些病毒变种已经在学校中蔓延，无论老幼，“未来的日子将很艰难”。
 
-但是历史不是重演，千万不要忘了，历史绝对不是重演，是上天给撒旦定下了撒旦定律，撒旦定律就是叫撒旦疯狂到一定的时候，就会出现一个周期性的正义与邪恶的整个的这么一个较量。最后当然撒旦是被灭了，然后是人类走向另外一个高端。但是付出生命代价的人，就是跟随撒旦，相信邪恶能战胜正义的。就像今天的缅甸，还有一年前的香港，还有现在的冠状病毒，还有这些所谓的科学家，什么博士什么什么的。
+他说，“我们现在看到的另一件事是，每个州长都想开放学校。我也理解…….但问题是，如果你看看欧洲，现在我们看到的挑战是这种新变种在学校里的大量传播。”
 
-History doesn’t repeats itself, please don’t forget, history absolutely doesn’t repeat itself. It was God who set Satan’s law, which means that whenever Satan’s insanity reaches certain breaking point, the cyclic battle between the good and evil will occur. In the end, of course, Satan will be defeated. Then all the mankind will be lifted to a higher level, but those who follow Satan and believe that the evil can defeat the good will pay the prices of their lives. Just like today’s Burma, Hong Kong one year ago, the coronavirus nowadays, and those so-called scientists and doctors, you name it.
+他断言，“对于这些新变种病毒，老年群体和年轻群体未来的日子都会很艰难”。奥斯特霍姆承认，接种过疫苗的人不希望为另一波病毒袭击而继续受到限制。
 
-今天在这个时候，大家要看到“以毒灭共”的重要性。大家更能看到，我们的科学家是难能可贵的，更能看到我们《路德访谈》多么大的压力情况下，坚持真相，他太难了。七哥对这些事杠得住，那他们是没有准备的，他们扛不住啊。你能看到那些博博士，艾莉、冠博士、墨博士，我们所有的这个博士军团，安红妹妹那就甭提了，一天两次，一天一次这么折腾。这些英雄，这都是人类的英雄，绝不是什么爆料革命新中国联邦的英雄。你不是人类的英雄，你不可能成为新中国联邦的英雄。
+他说，“我们必须知道公众可能会对我们给他们的指导做什么，如果我们只是告诉人们他们必须待在与外部隔离的空间里，他们必须待在家里，即使他们已经完全接种了疫苗也必须继续戴上口罩，他们不会这样做的，他们会无视公共卫生建议。我们必须要现实一些。”
 
-Today, at this very moment, we need to see the significance of “taking down the CCP by spreading the truth about the virus”. More importantly, we shall see how precious our scientists are and how much burden on our Lude Media in order to speak for truth. Way too much for him to bear. I, Brother Seven, can bear such burdens. But for them, it’s too much. Take a look at them, Dr. Bo, Aili, Dr. Guan, Dr. Mo – our all-doctor army, not to mention Sister An Hong. They do the show twice a day or once a day. They are heroes and heroines of mankind, not solely for the New Federal State of China (NFSC). Indeed, if you’re not a hero for the mankind, you can’t be a hero for the NFSC.
+他补充说，“我希望疾控预防中心提供指导意见的人知道，人们不会将一直戴着口罩的极端做法持续到2022年。我们可以提供的是合理的信息，给他们最好的案例来保护自己，像即使我接种了疫苗今晚我也不会去某个拥挤的餐厅。我认为这就是我们要集中精力的地方，让他们做那些真正更安全的事情。”
 
-另外一个就是大家相不相信，当时在这个二战的时候，非常多的传奇的故事，包括瑞士整个的后勤通道，当时包括墨索里尼。墨索里尼那个王八蛋支持希特勒，最后是什么下场？可以说是现代版的五马分尸，对不对？大家记住，社会主义来自哪里？来自德国，共产党主义来自德国，就像今天我们想看到过去的尼彩啊，什么黑格尔啊，黑格尔那整个就是胡扯的，那就完全是…你看这些人所有的人都拿女人不当人，所有的人都是要对女人进行统治的，而且流氓主义，独裁主义。而且完全相信依靠的，就叫做所谓的大外宣、宣传手段，绝对相信，绝对把谎言变成真理，全部被消灭。
+现在有越来越多的科学家意识到中共病毒变种给人们带来更多的威胁，针对最初的中共病毒研制的疫苗将会失效。正如《医学生命科学新闻》（Medical Life Science News）于3月5日报道的圣路易斯华盛顿大学医学院的新研究，这些研究结果表明，到目前为止开发的中共病毒药物和疫苗可能会变得不那么有效，因为新的变异体会成为主导，正如专家所说，它们将不可避免地成为主导。更具危险性的变种是在南非和巴西发现的变种。
 
-What’s more, you may not believe it – during the World War II, there were many stories of legend, including the entire logistic network of Switzerland and the story of Mussolini. Mussolini, the bastard, supported Hitler. What’s his ending? It’s like a modern time version of being drawn and quartered, right? Remember, everyone, where was socialism originated from?  Germany. Communism emerged from Germany. From our current perspective, Nietzsche and Hegel’s philosophy back then is totally nonsense. You see that all these people didn’t treat women as humans, and all these people wanted to rule over women. It’s rogueism and authoritarianism. Besides, they fully believed in the so-called “big foreign-propaganda” and believed that lies can be turned into truth. All of that has been wiped out [from history].
+从中共病毒爆发到现在已经有一年多了，中共病毒持续在变异，我们看到没有一种药和疫苗能够真正解决这次中共病毒造成的疫情，疫苗本身的安全性也似乎不可言表，另外疫苗和中共病毒相互的反应所带来的其他伤害还有很多未知性。闫博士一直将中共病毒的真相传递给世界，这个病毒的本质就是超限生物武器，是中共生物武器超限战武器库中的一种。请全世界的人们、政界人士以及科学家们清楚地认识到这一点，必须认识到中共的邪恶，不要再以那些高尚的人性来理解无底线的中共。只有消灭中共，才能彻底解决人类生存下去的问题。
 
-（大家你看我的衣裳…我现在穿上成新款了现在，G-Fashion决定发展这个新款。）那么董建华这个事情你能看到什么？当年希特勒完蛋前，就是我可以告诉你，就希特勒最后一次所有的将军会议，希特勒从桌子旁边“吧唧”一下摔倒了。这些将军知道，希特勒时代完了，但是这些将军还继续为他干，为什么？你折腾呗，我反正在这捞钱嘛，对不对？知道你不行了，打这个苏联的时候，大家已经知道大势已去。
+参考链接：
 
-Everyone, check out my clothes. What I am wearing now is the new design. G-Fashion decided to promote this new style. That being said, what can you see from Tung Chee-hwa’s falling down? Let me tell you, right before Hitler’s death, during his last meeting with all generals, “Bang”, he fell down by the side of the table. These generals knew that Hitler’s era was over, but they continued to work for him. Why? “Let it be. I’m making my money anyway.” Right? They knew he was about over, which was already clear when fighting against the Soviet Union.
+[https://www.newsmax.com/newsfront/osterholm-coronavirus-variant/2021/03/07/id/1012839/](https://www.newsmax.com/newsfront/osterholm-coronavirus-variant/2021/03/07/id/1012839/)
 
-那么这这个情况下，大家一定要牢记的事情，一定会看到信仰的力量。
 
-So, at this moment, we must keep this in mind: we will definitely see the power of faith.
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+> [新中共病毒变体令疫苗失效](https://gnews.org/zh-hans/957061/)
 
-视频来源：[https://gtv.org/getter/6042b3e49534a74bcaeff20c](https://gtv.org/getter/6042b3e49534a74bcaeff20c) (00:30-4:21)
 
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/952959/](https://gnews.org/zh-hans/952959/)
-
-* * *
-
-翻译：【一花一世界】校对：【Isaiah4031】【BruhM】字幕：【Rock小哥】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
 0

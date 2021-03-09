@@ -1,50 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语】 闫丽梦的科学报告(一)
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/959142/)
+## 中共首次将金融机构破产法列入立法日程
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/959207/)
 
-**制作:Cantonese工作室**
-**配音:【一帘幽梦】 资料整理:【深寒】【Annie 】中文翻译:【喜马拉雅工作站 】校对:【文舜】**
-**海报:【侬民】【MW】剪辑:【星星】**
-视频内容:
+俄罗斯莫斯科喀秋莎农场   银河
 
-**闫博士科学报告（一）**
+编辑上传   水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/F-4.jpg)newsmax.com
+路透社3月8日报道，中共最高立法机构周一发布的一份报告显示，中共首次将金融机构破产法列入立法议程。
 
-1,SARS-CoV-2表现出的生物学特征与自然发生的人兽共患病毒不一致。证据表明，SARS-CoV-2 应该是以蝙蝠冠状病毒ZC45和/或ZXC21为模板和/或骨架研制的实验室产物。
+据报道，今年中共全国人大代表提交的506份提案中，有11份提到修改企业破产法允许特定个人破产法和金融机构破产法的提案。
 
-SARS-CoV-2 shows biological characteristics that are inconsistent with a naturally occurring, zoonotic virus.The evidence shows that SARS-CoV- 2 should be a laboratory product created by using bat coronaviruses ZC45 and/or ZXC21 as a template and/or backbone.
+由于中共金融机构缺乏法律破产框架，从技术上讲，破产企业无法有效退出市场。
 
-2,SARS-CoV-2：能攻击多个器官,能够进行长时间的无症状感染,具有高度的传染性,在高危人群中具有明显的致死性,自出现之初就很好地适应了人类。
+由中共全国人民代表大会常务委员会委员长栗战书签署的报告称，包括企业破产法在内的一系列法律将在五年立法计划中进行修订。
 
-SARS-CoV-2： it attacks multiple organs; it is capable of undergoing a long period of asymptomatic infection; it is highly transmissible and significantly lethal in high-risk populations; it is well-adapted to humans since the very start of its emergence.
+有中共全国人大代表称，如果没有这样的法律来处理问题银行或其他金融机构破产后的债务注销问题，“坏苹果”将继续阻碍市场效率，因此破产法修改是迫切的需要。
 
-3,支持自然起源论的现有科学论文主要依靠一个单一的证据——之前发现的一种名为RaTG13的蝙蝠冠状病毒. 然而，RaTG13在自然界中的存在及其所报道的序列的真实性正受到广泛质疑。
+近年来，中共央行及其金融监管机构接管了多家暴雷的金融机构，其中包括券商、信托公司和银行，原因是这些机构治理不善以及它们失控的信贷风险。
 
-The existing scientific publications supporting a natural origin theory rely heavily on a single piece of evidence – a previously discovered bat coronavirus named RaTG13. However, the existence of RaTG13 in nature and the truthfulness of its reported sequence are being widely questioned.
+早在几年前中共媒体就开始为银行破产法“吹风”。国家经济无以为续，银行背负高额贷款债务，中共将危机转嫁储户进行最后一轮韭菜收割。中共立法允许银行破产倒闭，国家不再为储户在商业银行的存款兜底，一旦有银行破产，储户的存款仅根据立法由存款保险机构赔偿给予一定限额的赔偿。根据目前中共媒体的宣传，储户在单个银行存款最大赔付额度可能是50万元，有超过这一额度的存款，只能接受毕生财富化为乌有。
 
-4,SARS-CoV-2的基因组序列与中国人民解放军第三军医大学（中国重庆）和南京军区军事医学研究所（中国南京）发现的一种蝙蝠冠状病毒的基因组序列可疑地相似。
+2018年6月份，央行发布了《中国人民银行关于非银行支付机构开展大额交易报告工作有关要求的通知》（银发〔2018〕163号）。根据该通知要求，2019年1月1日起，个人5万元以上交易、20万元以上转账可能受到大额可疑资金监控。不仅个人账户的大额交易及流水异常需接受央行监控管理，规定中还包括支付宝、微信支付等非银支付机构的记录。中共早就列好了架子，一方面为破产法做准备，一方面限制储户账户资金流出，为了清洗民众财富步步推进。
 
-The genomic sequence of SARS-CoV-2 is suspiciously similar to that of a bat coronavirus discovered by military laboratories in the Third Military Medical University (Chongqing, China) and the Research Institute for Medicine of Nanjing Command (Nanjing, China).
+敬告还有能力把握自己财富的国人，世界上最安全的投资就是郭文贵先生引导的G系列。跟随爆料革命保财保命已被无数次证明这不是一句空话。等中共将屠刀悬于您颈上之时再醒悟，悔之晚矣！
 
-5,SARS-CoV-2刺突蛋白的受体结合基序（RBM）不能从自然界中诞生，而是应通过基因工程制造出来。
+参考链接：
 
-The receptor-binding motif of SARS-CoV-2 Spike cannot be born from nature and should have been created through genetic engineering
+[https://www.reuters.com/article/us-china-parliament-bankruptcy/china-to-put-financial-institution-bankruptcy-laws-on-legislative-agenda-idUSKBN2B00YU](https://www.reuters.com/article/us-china-parliament-bankruptcy/china-to-put-financial-institution-bankruptcy-laws-on-legislative-agenda-idUSKBN2B00YU)
 
-6,武汉病毒研究所从事了几十年的冠状病毒监测研究，因此拥有世界上最大的冠状病毒收藏库，技术上能进行刺突蛋白／RBM工程和功能增强实验。
+[https://finance.sina.com.cn/china/gncj/2018-12-25/doc-ihqhqcis0053567.shtml](https://finance.sina.com.cn/china/gncj/2018-12-25/doc-ihqhqcis0053567.shtml)
 
-The Wuhan Institute of Virology has engaged in decades-long coronavirus surveillance studies and therefore owns the world’s largest collection of coronaviruses, the technical barrier is non-existent to carry out and succeed in such Spike/RBM engineering and gain-of- function research.
-
-7,SARS-CoV-2的刺突蛋白中存在一个不寻常的弗林酶切位点，与病毒的毒性增强有关。SARS-CoV-2 刺突蛋白中的弗林酶切位点不可能源于自然，而应该是实验室改造的结果。
-
-An unusual furin-cleavage site is present in the Spike protein of SARS-CoV-2 and is associated with the augmented virulence of the virus.The furin-cleavage site within the SARS-CoV-2 Spike protein is unlikely to be of natural origin and instead should be a result of laboratory modification
-
-8,刺突蛋白应该是经过人工操纵的，这些转化使SARS-CoV-2病毒最终成为一种高传染性、发病隐匿性、致死性、后遗症不明确、破坏性大的病原体。
-
-The Spike protein should have been artificially manipulated.These transformations have then staged the SARS- CoV-2 virus to eventually become a highly-transmissible, onset-hidden, lethal, sequelae-unclear, and massively disruptive pathogen.
-
-9,显然，SARS-CoV-2可能是通过武汉病毒研究所的功能增强操纵产生的，这种可能性很大，应该进行彻底和独立的调查。
-
-Evidently, the possibility that SARS-CoV-2 could have been created through gain-of-function manipulations at the Wuhan Institute of Virology is significant and should be investigated thoroughly and independently.
+[https://www.163.com/dy/article/FLPP58QJ0531MYZO.html](https://www.163.com/dy/article/FLPP58QJ0531MYZO.html)
 
 0
