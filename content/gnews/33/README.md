@@ -1,23 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印度设计国家新战略计划对抗中共黑客入侵
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/959773/)
+## 库莫要求纽约人未来必须出示中共病毒“护照”
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/959805/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+- 编辑：Victor Torres
+- 翻译：The-world
+- 发稿：Ranting
 
-编辑上传   水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/I-5.jpg)thequint.com
-彭博社3月8日报道，印度正在考虑一项新的国家战略，以加强该国的网络安全。目前有指控称，中共国的网络入侵可能影响了印度证券交易所的运营，以及该国商业首都新德里的电力供应。
 
-印度国家网络安全协调员、前中将拉杰什·潘特(Rajesh Pant)在接受采访时说，当局正在调查最近发生的一系列疑似网络入侵事件，这些事件可能导致孟买停电、银行系统瘫痪，并导致国家证券交易所出现故障。关于黑客攻击的调查报告预计将在两周内发布。针对国家网络安全，印度考虑新的战略计划，计划中将协调包括内政部、信息技术、国防和国家关键信息基础设施保护中心在内的多个部门的协同行动，制定审计程序对应攻击。该计划将递交由总理纳伦德拉·莫迪领导的内阁安全委员会进行审批。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-总部位于美国的研究公司Recorded Future上周指出，中共政府支持的黑客对印度电力部门进行了攻击，结果未能成功。网络情报公司Cyfirma更揭露，中共黑客组织渗透了全球最大疫苗制造商巴拉特生物技术公司（Bharat Biotech）和印度血清研究所（SII）的网络。
+**西班牙2021年3月9日电/西喜社——**据daily wire 3月3日报道，民主党人纽约州州长安德鲁·库莫（Andrew Cuomo）周二宣布了一项新计划，要求纽约人出示中共病毒“护照”才能进入体育馆，剧院和其他商业机构。
 
-印度为了应对中共黑客袭击，已将加强国家网络安全措施提上日程。
+该计划建立了一个“Excelsior通行证”，该通行证将使用安全技术来证明该州居民已经接种了中共病毒疫苗或最近进行了阴性测试。推出计划中包括的场地包括麦迪逊广场花园和巴克莱中心，两者均为体育和娱乐场所。
 
-参考链接：
+根据州长网页上的新闻稿，“类似于移动航空登机证，个人将能够使用Excelsior Pass的“钱包应用程序”打印出其通行证或将其存储在智能手机中。” “每张通行证都会有一个安全的QR码，场馆将使用配套的应用程序对其进行扫描，以确认某人的健康状况。
 
-[https://www.bloomberg.com/news/articles/2021-03-08/china-hacking-concern-revives-india-focus-on-cybersecurity-plan](https://www.bloomberg.com/news/articles/2021-03-08/china-hacking-concern-revives-india-focus-on-cybersecurity-plan)
+据《纽约邮报》报道，该通行证已经在进行中，且在星期二晚上在麦迪逊广场花园（MSG）举行的纽约游骑兵队曲棍球比赛中进行了测试。
 
-+1
+库莫的上述计划涉嫌侵犯了纽约人自由选择接种疫苗的权利，限制了人们的自由流动，必将受到众多质疑中共病毒安全和有效性，以及崇尚民主自由的纽约人的反对。
+
+目前，库莫正深陷性骚扰丑闻的指控，而面临弹劾。
+
+**新闻来源：[daily wire](https://www.dailywire.com/news/new-yorkers-will-have-to-show-covid-19-passport-to-enter-stadiums-theaters-businesses)**
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
+
+0

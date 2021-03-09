@@ -1,69 +1,146 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 解读盖洛普、皮尤报告，揭露中共流氓本色
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/959827/)
+## 【德教专栏】— 天道智慧看文贵（下）
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/955677/)
 
-**作者: 天鹅**
+![]()![](https://cdn.discordapp.com/attachments/723203467002511400/818005896764456970/unknown.png)
+#### 作者：[德先生](https://gtv.org/user/5e7d110e0b629f6c2cef3da3)
 
-**审核: pv0, Peace Wind**
+文贵先生说过匡扶中华民族的正义是最基本的要求。我们在上一篇文章我们给大家分析了文贵先生的东魂西技具体是指什么，已经写的很清楚中华民族的正义是什么。这篇文章我们来分析如何学习文贵先生，练习东魂西技，召唤我们每个人内心中的正义。
+
+### 内心的宝藏有哪些？
+![](https://lh3.googleusercontent.com/ftkPP5CytPmV9Iunt8i65tnR63a7-Nuhn8Y_xhjyty-a6p3EwGlCdFQlzQUS-zLqBdhBx_oI31VDK_SmJ8OczrOLMn01WKBgV47fXUAeV5bK3_tfYaEhCdn2krER7IFBcCxPvL7O)
+我们来打个比方就很清楚了，大家看这里的飞机，飞机是不是有两个翅膀，还有一个尾巴。这两个翅膀是什么?
+
+第一个翅膀叫**大爱**。佛法里面讲就叫**慈悲**，基督教里面讲就是大爱，在这点上，东西方是完全一致的，都讲大爱。大爱其实也是有层次的，最底层的是不伤害他人，再往上还要爱他人，再往上还有爱一切生命。
+
+传统文化更强的其实是另外一个翅膀，光有大爱是不够的，还必须要有**智慧**。如果光有大爱，没智慧，往往会好心办坏事。比如在这世界上，尤其在中国，有很多人很有爱心非常善良的，但是他们往往很倒霉，总是被欺负。不是因为他们有大爱才倒霉，而是因为他们缺乏智慧。没有智慧，就不知道如何用正确的方法来处理人生中的各种困惑，所以智慧至关重要。
+
+第三个就是**勇气、力量**。比如说跟共产党战斗，也有人有大智慧，但是不敢出来，他们害怕！但文贵先生不怕，他的这种勇气，就是孟子讲的，只要是大义之所在，虽千万人， 吾往矣。哪怕有一千人、一万人在我面前拿着刀对着我， 我都敢冲上去，这叫大勇 。小的勇气是战胜他人，大的勇气是战胜自己。正所谓“古之所谓豪杰之士，必有过人之节、人情有所不能忍者。匹夫见辱，拔剑而起，挺身而斗，此不足为勇也。天下有大勇者，卒然临之而不惊，无故加之而不怒；此其所挟持者甚大，而其志甚远也。”
+
+这三样东西就是我们内心的宝藏，在传统文化里面讲就是**悲智双运**。悲就是慈悲，就是大爱，智就是智慧。如果光有大爱，没智慧，就会好心经常办坏事。如果光有智慧，没大爱，这叫有理性，没人性。光有大爱，有智慧，没有勇气，没有力量，那也做不成事。
+
+所以文贵先生讲**真善狠**！这个真善狠就对应这三条。在我们儒家讲叫**仁智勇**。仁，就是仁爱之心，大爱；智，就智慧；勇，就勇气。仁智勇这叫三达德，三种内心的宝藏。我们要把内心的三个宝藏挖掘出来，那我们就厉害了。
+
+### 修心之道要是怎么修呢？ 
+![](https://lh4.googleusercontent.com/sitQK7EH9FLH4AJJb1tSfUqwAEHve0v9vqwUGqC8o0qMEilhiL6nJ85oHBukVBxfTwTHQLC52DLMWCOkErGanOgbbbNMCvmGL1JufhzzBNiScdMvVS1nA8m9X4Ed9WR9DcGXtqz7)
+我们每个人的内心就像这杯水一样，这里面有些垃圾，然后还有一些冰块，还有一些水，混合在一起，还在那里晃悠。
+
+**垃圾**代表什么？垃圾代表**错误的思想、错误的观点、错误的见解**。
+
+**冰块**代表什么？冰块也是水做的，他是水的另外一种形式，冰块代表**执着**。
+
+所以我们心里面又有错误又有执着，还不稳定，晃晃悠悠。
+
+第一步要干什么？就是要去除垃圾和执着。用传统文化讲就是**去除妄想**，妄想就是错误的想法，是错误的思想，不正确的观点。冰块就是执着，对于成功的执着和对错误的执着都得捞掉。
+
+捞掉了这些妄想执着以后，我们的心就变成了**一杯清水**，但这碗清水还在那晃悠，还不稳定。但这个时候我们已经很有智慧了，我们的内心已经变成了液态的水，已经做到灵动如水了。但这还不是最高的境界。
+
+接下来要练习**禅定**。禅定是什么？就是要稳定，不要晃，要让这杯水停下来，稳定下来。比如说我们普通人碰到一点什么事，我们就是心神不定，情绪不好。泰山崩于面前，压力感觉好大，好紧张，这都是没有定力的表现。所以我们这个时候要修习禅定，培养内心的定力，让他不要晃，最后就变成这杯平静的水了。
+
+这杯水，干净，没有妄想，没有执着，灵动如水，同时它完全的静止下来了。静止就达到另外一个境界，那就是照的境界。我们每个人在他的面前或者任何事物在他面前，都能够清楚明白的照出来？
+
+**照**的这种境界 ，就是《**心经》**里面讲的，**“观自在菩萨，行深般若波罗蜜多时，照见五蕴皆空”**。这个照字就是关键，就是讲的这个境界，所以佛家讲的完全不是什么宗教，而是内心的一种修炼的方法，是一种教化。南无本师释迦摩尼佛，**本师是根本的老师**，强调的是**师生关系**。
+
+《**道德经**》里面，老子总结的也非常好。“**为学日增，为道日损 ，损之又损，以至于无为，无为而无不为**” 。做世间的学问，都是做加法，这世界上无论是硕士、博士、 科学家，都是在做加法，不停地看书，学习，但我们要知道通过这种方法学到的一切都是有限的，我们在做加法，只不过把内心那碗水里加了几块冰而已。
+
+为道日损，说的是要获得大智慧就要做减法。减法就是，先捞掉内心的垃圾杂质，再捞掉冰块。然后只剩下水了，水还不能晃，损之又损以至于无为，到最后就无为了。无为，就是最后一碗清净的水。再变成很有定力的水，那就叫无为而无不为，内心就像镜子一样的，这就是真正的最高境界。
+
+中华传统智慧，要做减法，而不是做加法。但凡做加法的，讲知识的，那就根本不懂，连门都还没入。所以，**文贵先生他每天为什么要打坐呢？就是要去除他内心的妄想执着，让他的内心平静如如水，然后他就可以创意无限。**苹果的创始人乔布斯也天天打坐，他也要修心！这才是真正的大智慧。
+
+在传统文化，像文贵先生做得这么好的，叫**身教**。身教就是一个榜样。中国古代有两大传承，一个叫**言传，**一个叫**身教**。身教就是做得特别好的人，让我们有个榜样，让我们知道这是管用的，让我们知道这是正确的，让我们知道这是威力无穷的。如果我们也这么做，我们就能像文贵先生一样。文贵先生所有的思想内核都是中华传统思想，而不是西方的那些思想，所以很多人看不懂这一点，甚至有些人盲目崇拜西方。
+
+西方确实有很多的优点，非常擅长地道，就天道和人道而言，更厉害的是我们真正的中华传统智慧。可是很多人不懂这些，如果我们想要超越西方，就一定要把我们老祖宗的智慧继承下来发扬光大，当然我们也要学习西方，已经到了中西方文化互相交融的时代了。
+
+### 那我们怎么学习文贵先生呢？
+
+那么文贵先生已经讲了正道主义，但光有正道主义还不行，正道主义只是个思想，正道主义怎么落地呢？还需要有一套系统的解决方案，教化方案。
+![](https://lh6.googleusercontent.com/fbjMDHGlR1otAUSzM2MyXMaIV2KAZvg51LXcaqmsN_b9XIGjO4dgevecAGYK7AO7wicYOXBQxyTGSLGVW1SFZHaXY5zZwnCpQbpvc2iDJ8-ueL7hIHfyGN3B15y9KrFRWExkXpcc)
+地上部分，一阶段、二阶段、三阶段、四阶段， 是针对所有的社会大众的，以开启民智为主。主题是如何以天道的智慧来经营人道的幸福生活。
+
+五、六阶段是专门针对企业家的，讲中华商道，如何以天道的智慧来经营商业活动并且获得成功。这都不是我们自己胡思乱想出来的，而是我们老祖宗传下的伟大的宝藏。其中，齐家部分包括了人人都需要的**五张证书**。
+![](https://lh6.googleusercontent.com/fntNpe5HWlhE3inKlHL1SihsYiByGMu6xKi_wSbNmhxtYhqQPuUJr5SD5Lpw607X9HpkD4KPVuWHDySJoa9PvNul4oTlFEFiEtFf6BpdT8Zr6mfNDM0GeNj25SV_h1kZoQBl04eH)
+第一张是**父母**给我们的，说你是一个合格的孩子。第二张证书是**兄弟姐妹**给的，上面写着你是一个合格的好兄弟。第三张证书是**伴侣**给的，说你是个好老公或者好老婆。第四张证书是你的**孩子**给的，说你是一个好爸爸或者好妈妈。第五张证书是这个**社会**给的，说你是一个对社会做出巨大贡献的人。这五张证书，不知道大家有没有？这五张证书是花再多的钱，都买不到的，这是我们每个人都需要学习的五套大学问。
+![](https://lh4.googleusercontent.com/-fehx21GAnfH-Bhpi5zIrlV4LqRjDj6GR0EkIYNYtbfRuJAd9juG19qBNms9mQd2Xef7uHukU9XHufaNlmniUFyRL97iW8Ml1xYFeL9Wyrl5lJE-hgkuYN3197S8ZK0-qZOHkc73)
+整个的德教内容体系主要分成这几个阶段。明心、修身、齐家、治企和利天下。 明心，你就能成为一个有智慧的人。修身，你就能成为一个有爱心和快乐的人。齐家，你就能成为一个有能力去帮助别人的人。治企，你成为一个值得尊重的人。利天下 ，你可以成为一个利益世界的伟大的人。
+![](https://lh3.googleusercontent.com/PpwdcXGf6mXAG488dw6L1Ml534gqF19oE3zgcf-n-2FvvQvvtSS-zxQttVt6C-IA5HIojp0zn-f7ZjDncEqKgvTqqD0t6zRabSl99EEd5AQvt7lc1nRoVIzpQp-vqUi58wwe_TWY)
+最后给大家一个结语：一切的问题都是人的问题，人的一切问题都是人心的问题， 改变了人心，就改变了世界，而人心只有通过德教（德行的教化）才能改变。
+
+文贵先生说过中共易灭，心霾难除。那共匪给我们种下的心霾有哪些呢？下一期文章，我们给大家带来我们视频第二集的内容—谁是我们真正的敌人？具体分析中共给我们种下的心霾有哪些，源头在哪里，我们应该走向哪里去。
+![](https://lh6.googleusercontent.com/lF6EHMQGyPIex3AacnGArwWvD5e2Wov_-haHlTYYdHUa-a9T0YgsmCDNT4b6_LSsyjhxi-OIHL-_lYqOIuMs2QJejK5B0eQ90SsbYrqLNB82Ye8RnsPBQFVvzXpoXrf92X2CHjbr)
+本文原版视频地址：
+
+[https://gtv.org/video/id=601bc5d13f8a013ab47c25e1](https://gtv.org/video/id=601bc5d13f8a013ab47c25e1)
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/7ca6c5c4b723b870.jpg)**图片: 昆仑竹**
+**[德教云书院官方频道GTV](https://gtv.org/user/5ea9863c7a804e67f70522db)**
+
+**[德教云书院 Discord](https://discord.com/invite/zsME4jN)**
+
+[**德先生Twitter**](https://twitter.com/ABC12349540264)
+
+#### 整理：[心灵感应](https://gtv.org/user/5e8df63732409f1cdbfbc062) [比卡丘](https://gtv.org/user/5e8534df6d2f547b2f763462)
+
+#### **编辑：[Amos文也](https://gtv.org/user/5e750fdd7fdb1049cc747023)** 
+
+#### 审校：Summer
+
+#### [德教云书院] 其他文章：
+
+[**天道智慧看文贵（上）**](https://gnews.org/zh-hans/770171/)
+
+**[中国的农历真的是欧洲传教士汤若望发明的吗？](https://gnews.org/zh-hans/948514/)**
 
 
 
-
-
-中共官媒环球时报在3月8日发文 张家栋：美涉华民调透露复杂信息，其中评论了美国调查机构盖洛普、皮尤研究中心报告文章，但对这两份报道进行了歪曲，掩盖了报道中的事实和美国人民真实的民调。
-
-让我们看一下盖洛普的报告—“China, Russia Images in U.S. Hit Historic Lows” 美国人民对中共国、俄罗斯的好感度创历史新低。报告中谈到中共国的主要有以下几点内容：
-
-1、“Americans’ favorable ratings of China have plummeted to a record low 20%, following a 13-percentage point drop in favorability from 33% a year ago. ”美国人对中共国的好感已经从一年前的33％下降了13个百分点，跌至创纪录的低点20％。“It was also in line with a 34% favorable rating in August 1989 following the Chinese government’s crackdown on protestors in Tiananmen Square. ”文章中与中共在1989年6月4日天安门大屠杀后的34%民调做了对比，可见中共如今在中共病毒、种族灭绝、反人类罪等的罪行已经远超了8964，美国人民对中共的好感度一降再降。从2020年到2021年共和党人的好感度下降了13个百分点，至10％，民主党下降了8个百分点，至27％，无党派人士则下降了17个百分点，至22％。这一趋势中，爆料革命、新中国联邦几年来不断在美国及世界范围内，传播中共病毒真相、区分中共与中国人，功不可没。美国民众通过几年的观察，逐渐看清的中共的真面目，美国两党也逐渐在对中共国的政策方向上全面转变。
-
-2、“China and Russia are among the more challenging nations for U.S. foreign policy under the Biden administration, as they were for the prior Obama and Trump administrations. But Biden’s task may be made a bit easier if the current low favorable ratings mean Americans are unified in their perceptions of the challenges each country presents. ” 拜登政府领导下美国外交政策与前川普政府基本一致，目前全美一致的民调也预示着美国人民对中共国这一挑战已经有了统一的认识。这正如路德社中所讲的，前川普政府已经把灭共的“一桌子菜“给你做好放在那里了。目前民意基础也已经形成，就看你拜登政府灭不灭共，你不灭的话习总加速师就会揭你的老底，而且你不行动，共和党就会行动，川普也会行动，灭共势不可挡。
-
-接着我们来看一下皮尤研究中心的报告—“In their own words: What Americans think about China” 用他们自己的话来说：美国人怎么看待中共国。报告中主要有以下几点内容：
-
-1、“Americans rarely brought up the Chinese people or the country’s long history and culture in their responses. Instead, they focused primarily on the Chinese government – including its policies or how it behaves internationally – as well as its economy.” 美国人在回应中很少提及中国人民或该国悠久的历史和文化。相反，他们主要关注中共政府——包括其政策或国际行为方式——以及经济。从这点看出，美国人已经意识到了，中共国在国外的所作所为几乎都是中共在背后，与普通的中国人民几乎没有关联。比之中共吹嘘的所谓悠久历史文化，美国人更关注的是中共的所作所为是否合法，是否遵循普世价值。
-
-2、“around one-in-five U.S. adults mentioned human rights (20%) or the economy (19%) when thinking about China, while a similar share (17%) mentioned the country’s political system. Smaller shares mentioned the perceived threat that China poses (13%) or the U.S.-China relationship (12%). Americans were also much more likely to use generally negative than positive adjectives (12% vs. 4%).” 大约五分之一的美国成年人在考虑中共国时提到人权（20％）或经济（19％），而其次是提到美国的政治制度（17％）。再次是提到了中共国所构成的威胁（13％）或美中关系（12％）。与肯定形容词相比，美国人通常更倾向于使用否定形容词（分别为12％和4％）。可见美国民众中对中美之间人权自由、政治制度、中共威胁等方面有考虑的人数已经过半。中共所倡导的中美之间要求同存异，在利益面前不谈什么人权、民主、政治制度，你搞你的普世价值，我搞我的“中国特色社会主义”，这一套观点到现在已经行不通了。
-
-3、“Meanwhile, nearly one-in-ten Americans (7%) mentioned COVID-19 when they thought of China. A small number (1%) discussed the coronavirus’ origins in Wuhan, in wet markets or from bats in the country. Another 2% placed blame on China for the virus, saying it was at fault and that the country did not tell the rest of the world about it quickly enough. Still, 1% described the virus as made intentionally in a Chinese lab for use as a bioweapon.” 同时，近十分之一的美国人（7％）在想到中共国时提到了中共病毒COVID-19。少数（1％）讨论了病毒在武汉，海鲜市场或中共国蝙蝠中的起源。另有2％的人将这种病毒归咎于中共国，指责他们没有足够迅速地将这种情况告诉世界其他地区。尽管如此，有1％的人将该病毒描述为在中共国实验室中故意制造的用作生物武器的病毒。可见在中共病毒真相方面的传播还远远不够，美国人民在主流媒体的信息、舆论操控引导下，仍然难以触及中共病毒真相。社交媒体与中共勾兑，对于中共病毒真相的封杀和打压持续不断，希望美国各州能够尽快通过反制230法案的相关法案，从而在法律层面上突破社交媒体的这种言论审查制度，还正义人士一个发声的渠道，让爆料革命、新中国联邦关于中共病毒真相、灭白计划等信息能传播到美国每个家庭中，让他们觉醒。
-
-反观中共官媒环球时报，扭曲两份报告观点。文章写道，“美国受访民众倾向于认为，中国对美国的威胁主要存在于价值观和经济层面”，这是完全无视美国人民对于人权、政治制度、中共威胁的反馈，篡改报道事实。另外，中共还借两篇文章继续污蔑前总统川普，写道，“特朗普政府的恶意操作是中美关系恶化的一个结果而非原因”。懂英语的战友们可以看一下这两篇报告的原文，其中完全没有提到是川普总统恶化了中美关系。这样的恶意中伤实在是无耻之极。
-
-最后，中共还对中美关系持乐观态度，写道，“中美关系的未来仍然可期。美国精英群体和年轻人整体仍然保持理性，将是推动中美关系的一个重要桥梁和中介。”。从报告来看，美国民众已经有了对中共国竞争、对抗的统一认识。而中共仍然抱有天真的幻想，企图通过利益收买美国精英、年轻人，换来中美关系转变。但是让我们看看王毅在两会记者会上说了些什么，“长期以来，美国动辄打着所谓民主、人权旗号肆意干涉别国内政，在世界上制造了诸多麻烦，甚至成为动荡战乱的根源。”，如此嚣张的态度，哪里像是要缓和中美关系的态度，如何让拜登政府能够相信你。中共一贯是两面派，精神分裂症，以假治国、以黑治国，完全是流氓、黑帮的做派，他们哪里能代表中国人民，他们简直就是中华民族的耻辱。在侮辱美国的同时还捎带上了英国。王毅说，香港在殖民统治时期，没有任何民主可言，中共还撕毁《中英联合声明》《香港特别行政区基本法》，通过所谓的完善香港选举制度的决定议案，落实“爱国者治港”政策。这是对联合王国彻彻底底的羞辱。
-
-以毒灭共、全球灭共正在发酵，爆料革命、新中国联邦将继续揭露中共谎言，传播中共病毒真相，唯真不破，坚持正道主义，共产党你完了！
+> [【德教专栏】— 中国的农历真的是欧洲传教士汤若望发明的吗？](https://gnews.org/zh-hans/948514/)
 
 
 
-**本文仅代表作者个人观点。**
+**[大觉醒上](https://gnews.org/zh-hans/943573/)**
 
 
 
-**参考新闻: **
-
-[China, Russia Images in U.S. Hit Historic Lows](http://China,%20Russia%20Images%20in%20U.S.%20Hit%20Historic%20Lows)
+> [【德教专栏】— 大重启和大觉醒— 大觉醒（上）](https://gnews.org/zh-hans/943573/)
 
 
 
-> [In their own words: What Americans think about China](https://www.pewresearch.org/fact-tank/2021/03/04/in-their-own-words-what-americans-think-about-china/)
+**[国、共、日的近代三国演义](https://gnews.org/zh-hans/939259/)**
 
 
 
-[张家栋：美涉华民调透露复杂信息](http://张家栋：美涉华民调透露复杂信息)
-
-[（两会受权发布）国务委员兼外交部长王毅就中国外交政策和对外关系回答中外记者提问](http://（两会受权发布）国务委员兼外交部长王毅就中国外交政策和对外关系回答中外记者提问)
+> [【德教专栏】— 国、共、日的近代三国演义](https://gnews.org/zh-hans/939259/)
 
 
 
+[**何谓民主？**](https://gnews.org/zh-hans/931038/)
 
 
-* * *
 
-**发布: 法国巴黎七星编辑组**
+> [【德教专栏】—何谓民主？](https://gnews.org/zh-hans/931038/)
+
+
+
+**[了解宋朝对新中国联邦的意义](https://gnews.org/zh-hans/926781/)**
+
+
+
+> [【德教专栏】—了解宋朝对新中国联邦的意义](https://gnews.org/zh-hans/926781/)
+
+
+
+**（文章仅代表作者个人观点）**
+
+**【免责声明】**  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+**欢迎战友加入旧金山金喜准农场**
+
+[**旧金山金喜准农场 GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+
+[**旧金山金喜准农场 Discord**](https://discord.gg/QQzQ79grEA)
+
+**[旧金山金喜准农场 Twitter](https://twitter.com/sf_himalaya) **
 
 0
