@@ -1,8 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美日澳印四国需整合优势全面反击中共挑衅 （玫瑰看新闻二零二一年三月五日）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/959365/)
+## 从数字的盈亏补贴看中共统治的吃人本质
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/959330/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-56.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/2-27.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/3-39.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/4-23.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/5-20.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/6-19.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/7-13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/8-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/9-7.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/11-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/12-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/14.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/15.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/16-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/17-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/18-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/19-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/20-1.jpg)
-0
+作者：左媛
+
+
+> **摘要**：2020年巨额亏损，中石油净利润亏损299亿元，中石化亏损228亿元。仍由国库买单，继续亏损经营。国际油价狂跌，墙内油价坚挺。国库的钱何来？当然是从老百姓的存款里拿！由韭菜們买单！墙国老百姓脱贫致富靠什么？先看九零后的小伙子靠补裤裆年入百万，一年补2000条裤裆。再看腾讯报道：大妈扛树段月入近2万！大妈扛100斤的树段，每天往返要扛100趟，日赚600元。 是不是扛200斤麦子不换肩的“习神”更励志？
+
+
+据2020年8月30日，中石油中石化的半年业绩报告披露，中石油净利润亏损299亿元，中石化亏损228亿元。究其原因无非是受疫情影响，市场需求大幅下降，飞机在晒太阳，马路被撂荒，可是，国际油价下跌到20元一桶，国内油价却坚挺在39元，几乎高出一倍。这个账又该怎么算呢？哦，对了，对于巨无霸的“三桶油”来说，巨额亏损要不要继续经营？当然要！为什么？因为党需要！那亏损有没有人买单？当然有！谁来做这个冤大头填补亏损？当然是“国家”！国家的钱从哪里来？当然只能从国库和银行来！国库和银行的钱又从何来？当然是纳税人的贡献和老百姓的存款！看清楚了吧，巨无霸国企的巨额亏损，都是由老百姓买单！真是“兴，百姓苦！亡，百姓苦”！
+
+习近平在最近的脱贫总结报告中说，有9899万农村贫困人口全部脱贫，8年来，中央省市县财政专项扶贫资金累计投入近1.6万亿元。1.6万亿，数字看起来很大很大，但分摊到8年，分摊到9899万人，每人每年也就2000多元，每天不到6元，这还是把1.6万亿全部发放到穷人手里，各级贪官污吏没有贪污截流一分一厘，秒变成为青天大老爷。记得若干年前，山东副省长黄胜一个人贪污的现金就高达90亿美元，合计人民币600亿之巨，这笔巨款如果都用到扶贫上，应该足够让山东省的所有贫困人口真正脱贫致富了吧。“取之于民用之于民”，这才是践行党的爱民作风嘛。“和珅跌倒嘉庆吃饱”，满清只有一个和珅，中共可有一代又一代的“和珅”。中共不倒，“和珅”就会像原野的青草，绿了又黄，黄了再绿，无穷无尽！老百姓又怎能一代一代不穷不苦？
+
+百姓买单，几百亿几百亿的买，无穷无尽；政府福利，那就成了蚊子腿的肉。 中共国的现实如此荒诞，但和它的宣传比起来，那可真是小巫见大巫。不信？ 您瞧！
+
+“**安徽90后小伙不走寻常路，补裤裆年入100多万，一年补2000多条。**”
+
+账房先生，算盘请拿来！
+
+噼里啪啦！年入100多万！日均挣超2740元。噼里啪啦！年补2000多条！日均补裤裆5.5个。噼里啪啦！平均每个裤裆收入500元。什么样的裤子补个裤裆要花500元？那就顾不上计较了。总之，党的新闻告诉你，轻轻松松，一年100多万就妥妥地入账啦！
+
+![](https://lh5.googleusercontent.com/J0Cnkyfb4hNmbUDgy6iY1TgbtW3qMPUU9vGHX9ER-5jLwUhCFlaSNq9fVrcYHudUBDKGnxMf7KVpnXUUsTwtQkfU3hbos02zf6fgPHkb_mKeeOTjwavtkw19Aw1VGDDwzXQOkw42)
+
+年轻的小伙，简单的设备，简陋的环境，轻松的活计，高昂的收费……令人艳羡的年入！在这个90后小伙面前，“三桶油”的高管们都应该切腹谢罪！
+
+这样的鸡血再来一碗也不嫌多！励志小哥不足怪，丁姓大妈更神奇！
+
+据腾讯新闻报道，大妈扛树段月入近2万：男人不行我们扛。大妈扛100斤的树段，在坑洼不平的路上有说有笑，毫不费力。每天要扛100趟呢，收入600元。看样子，又是一个轻轻松松的致富励志典范！昔有100斤麦子10里山路不换肩的习帝，今有100斤树段坑洼路不费力的大妈。
+
+这真是——
+
+厉害国里神话多，卖油不如补裆哥。励志大妈太神勇，羞煞当年扛麦哥！
+
+![](https://lh5.googleusercontent.com/joHGwghXg37miTq3YIUjcr3lqLM-T-h887JVfZhH49Z9gtdhVN-WXAQe2rMaZZlAdrQLKpobFUTXdZBDfjox4qVOm6TIlE-qw-iXYVVqT1_XOOQQHKUrnYpxFbw4ncEMvZXpYanh)
+
+中共屡屡要给世界指明方向，提供方案，那是愚昧狂妄之语！但扛树大妈补裆哥的故事告诉咱：高手在民间！那就把那些年年吸血年年亏的垄断行业都交给民间来经营吧，什么石油石化，什么铁路公路，什么航空航海……保证会尽快扭亏为盈，不仅不要“国家”的补贴，还能给“国库”输入巨额利润，建设国家造福人民！如果年年亏损却还死死抓住不放手，那只能说明：你们是一群吃人不吐骨头还喊肚子填不饱的饿狼！
+
+唉！荒唐政党盈亏事，几人相信几人哄。垄断每每亏损巨，民间人人陶朱公！
+
+2021.3.7于纽约
+
+**【参考来源】**
+
+###### 简易财经 链接 -中石油亏损299亿,中石化亏损228亿,为什么会亏损这么严重?[https://news.futunn.com/hk/post/7172245](https://news.futunn.com/hk/post/7172245)
+
+![](https://lh6.googleusercontent.com/7nYhoopgKD5zYm1eMMhfgVtA1u981jqg5w_2mq6p3WWx5bz_2SBmuspP1hcqPq2mXtAFbX1mSdSzKL1yAEV3LKye3TtDTpgDUunblYEuLLtp9gsPHDbm75Em_tdlxiAP8ExbO_Fq)
+
+【责任编辑】：bingo
+
+
+**【免责声明】  **尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+
+**欢迎战友加入旧金山金喜准农场**
+
+[旧金山金喜准农场 GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+
+[旧金山金喜准农场 Discord](https://discord.gg/QQzQ79grEA)
+
+[旧金山金喜准农场 Twitter](https://twitter.com/sf_himalaya)
+
+
+
++2

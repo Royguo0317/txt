@@ -1,93 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【欧美热议】3月8日 新任美副国防部长与中共『关系非一般』
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/959547/)
+## 今天的共产党和1930年的希特勒一模一样
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/959617/)
 
-收集/整理：【喜马拉雅-粤语组】小叮咛 / sherry
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image001-17.jpg)
-拜登选择中国军事同盟为国防部长
+新闻简述：在2021年3月5日的盖特视频中，郭先生对比1930年代的希特勒和今天的共产党，对比摔倒在会议室的希特勒和董建华，发现了惊人的相似。他让大家要看到信仰的力量。
 
-据《国家脉动》讯：拜登总统选为国防部副部长的科林·卡尔（Colin Kahl）领导了斯坦福大学的一个与中国共产党和中共解放军有着“多年”关系的机构，其中包括参加中国政府“赞助”的会议。
+**今天的共产党和****1930****年的希特勒一模一样**
 
-卡尔于2018年1月加入斯坦福大学弗里曼·斯波格利国际问题研究所担任高级研究员，并担任国际安全与合作中心（CISAC）的联合主任。
+**Today’s CCP Is Exactly the Same as Hitler in the 30’s**
 
-除了斯坦福大学“大量”虚报“收到的数以百万计的中国匿名捐款”之外，卡尔中心还与中国共产党有着极为密切的关系。
+我还是那句话，七哥从开始爆料革命就说过：今天的共产党就和当年的希特勒，1930年那时一模一样，到了1935年、36年，他就疯了，34、35、36，到最后的时候攻打苏联彻底完球蛋。西方的自私和西方的资本主义，还有一个整个西方的投机主义，严格讲还有很多沼泽地，当年跟希特勒大量的供给。可能你们没有想到，当年希特勒的所有的战争的经费，绝大多数是犹太的金融机构给的，那么当时是很夸张的。今天的中共的所有的经费，绝大多数来自美国，在他们眼里面是美帝国主义，美帝国主义，是吧？在这种情况下，兄弟姐妹们，今天又何其相似。
 
-**与中共军事联系**
+As I always say since the beginning of the Whistleblower Movement, today’s CCP is exactly the same as Hitler in the 30’s. He went nuts in 1935 and 1936, or between 1934 and 1936, and then was completely done after attacking the Soviet Union in his final moment. The selfishness and the capitalism of the westerns, as well as the opportunism prevailing in the entire western world – strictly speaking, many swamps – were the major suppliers to Hitler. It may blow your mind to know that the vast majority of Hitler’s war funding came from Jewish financial institutions. It was very unbelievable back then. Today, the vast majority of the CCP’s funding comes from the United States of America, the so-called American imperialism by them [the CCP], right? From this perspective, brothers and sisters, does it look familiar to you?
 
-根据美中关系全国委员会（NCUSCR）的报告， CISAC接待了许多中共军事和政府相关组织的研究员，其中包括联邦调查局（FBI）标记为间谍活动并被美国列入黑名单的组织。
+但是历史不是重演，千万不要忘了，历史绝对不是重演，是上天给撒旦定下了撒旦定律，撒旦定律就是叫撒旦疯狂到一定的时候，就会出现一个周期性的正义与邪恶的整个的这么一个较量。最后当然撒旦是被灭了，然后是人类走向另外一个高端。但是付出生命代价的人，就是跟随撒旦，相信邪恶能战胜正义的。就像今天的缅甸，还有一年前的香港，还有现在的冠状病毒，还有这些所谓的科学家，什么博士什么什么的。
 
-CISAC接待了来自许多外国的访问学者，其中包括许多研究“和平与合作项目”中的中共国学者。 […]来自中共国参加CISAC和平与合作项目的研究员来自上海社会科学院，中国工程物理研究院（第九学院），中央党校，国防大学以及外交部。
+History doesn’t repeats itself, please don’t forget, history absolutely doesn’t repeat itself. It was God who set Satan’s law, which means that whenever Satan’s insanity reaches certain breaking point, the cyclic battle between the good and evil will occur. In the end, of course, Satan will be defeated. Then all the mankind will be lifted to a higher level, but those who follow Satan and believe that the evil can defeat the good will pay the prices of their lives. Just like today’s Burma, Hong Kong one year ago, the coronavirus nowadays, and those so-called scientists and doctors, you name it.
 
-联邦调查局表示，其中一个组织-上海社会科学院-被用作“中国情报搜集和海外间谍招募的前线组织”。
+今天在这个时候，大家要看到“以毒灭共”的重要性。大家更能看到，我们的科学家是难能可贵的，更能看到我们《路德访谈》多么大的压力情况下，坚持真相，他太难了。七哥对这些事杠得住，那他们是没有准备的，他们扛不住啊。你能看到那些博博士，艾莉、冠博士、墨博士，我们所有的这个博士军团，安红妹妹那就甭提了，一天两次，一天一次这么折腾。这些英雄，这都是人类的英雄，绝不是什么爆料革命新中国联邦的英雄。你不是人类的英雄，你不可能成为新中国联邦的英雄。
 
-联邦调查局（FBI）将中国共产党描述为 依靠SASS员工作为潜在的西方间谍的“发现者和评估者”。被联邦调查局描述为热衷于“影响其他国家的外交政策”的国家安全部官员也“将SASS隶属关系用作掩护身份”。
+Today, at this very moment, we need to see the significance of “taking down the CCP by spreading the truth about the virus”. More importantly, we shall see how precious our scientists are and how much burden on our Lude Media in order to speak for truth. Way too much for him to bear. I, Brother Seven, can bear such burdens. But for them, it’s too much. Take a look at them, Dr. Bo, Aili, Dr. Guan, Dr. Mo – our all-doctor army, not to mention Sister An Hong. They do the show twice a day or once a day. They are heroes and heroines of mankind, not solely for the New Federal State of China (NFSC). Indeed, if you’re not a hero for the mankind, you can’t be a hero for the NFSC.
 
-中国工程物理研究院因与中共解放军（PLA）的紧密联系而被美国商务部列入黑名单。参与研究的中国人民解放军国防大学也面临着这种威胁。
+另外一个就是大家相不相信，当时在这个二战的时候，非常多的传奇的故事，包括瑞士整个的后勤通道，当时包括墨索里尼。墨索里尼那个王八蛋支持希特勒，最后是什么下场？可以说是现代版的五马分尸，对不对？大家记住，社会主义来自哪里？来自德国，共产党主义来自德国，就像今天我们想看到过去的尼彩啊，什么黑格尔啊，黑格尔那整个就是胡扯的，那就完全是…你看这些人所有的人都拿女人不当人，所有的人都是要对女人进行统治的，而且流氓主义，独裁主义。而且完全相信依靠的，就叫做所谓的大外宣、宣传手段，绝对相信，绝对把谎言变成真理，全部被消灭。
 
-中共党校是“培养中共的中高层领导干部和马克思主义理论干部的高等院校”，而外交部也完全由中共机构组成。
+What’s more, you may not believe it – during the World War II, there were many stories of legend, including the entire logistic network of Switzerland and the story of Mussolini. Mussolini, the bastard, supported Hitler. What’s his ending? It’s like a modern time version of being drawn and quartered, right? Remember, everyone, where was socialism originated from?  Germany. Communism emerged from Germany. From our current perspective, Nietzsche and Hegel’s philosophy back then is totally nonsense. You see that all these people didn’t treat women as humans, and all these people wanted to rule over women. It’s rogueism and authoritarianism. Besides, they fully believed in the so-called “big foreign-propaganda” and believed that lies can be turned into truth. All of that has been wiped out [from history].
 
-该中心还接待了国立大学的演讲者。
+（大家你看我的衣裳…我现在穿上成新款了现在，G-Fashion决定发展这个新款。）那么董建华这个事情你能看到什么？当年希特勒完蛋前，就是我可以告诉你，就希特勒最后一次所有的将军会议，希特勒从桌子旁边“吧唧”一下摔倒了。这些将军知道，希特勒时代完了，但是这些将军还继续为他干，为什么？你折腾呗，我反正在这捞钱嘛，对不对？知道你不行了，打这个苏联的时候，大家已经知道大势已去。
 
-**与中共政府联系**
+Everyone, check out my clothes. What I am wearing now is the new design. G-Fashion decided to promote this new style. That being said, what can you see from Tung Chee-hwa’s falling down? Let me tell you, right before Hitler’s death, during his last meeting with all generals, “Bang”, he fell down by the side of the table. These generals knew that Hitler’s era was over, but they continued to work for him. Why? “Let it be. I’m making my money anyway.” Right? They knew he was about over, which was already clear when fighting against the Soviet Union.
 
-斯坦福的CISAC还参加了由中国外交部“主办和共同赞助”的会议。
+那么这这个情况下，大家一定要牢记的事情，一定会看到信仰的力量。
 
-斯坦福大学的一位研究员指出了这些小组之间的“多年交流”，并补充说他们将在诸如太空合作等问题上“制定联合蓝图”：“这些交流是坦率的和建设性的，因为它们建立在CISAC与中国国际问题研究所（CIIS）之间经过多年交流之后建立的理解和信任的基础上。在下一阶段，美国和中国专家组成的小型小组将制定联合蓝图，以增进对核稳定和太空合作至关重要的问题的理解。”
+So, at this moment, we must keep this in mind: we will definitely see the power of faith.
 
-这位研究员补充说：“尽管在美中关系的未来充满不确定性的时刻举行，但是这次会议包括了关于战略稳定，太空合作的障碍以及其他敏感主题的建设性交流。”
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-斯坦福大学中国代表在会议上“来自各种机构– CIIS，中国工程物理研究院，解放军火箭队，火箭队学院，中国国防科技信息中心，解放军海军军事学院，解放军南方司令部，中文中国人民大学社会科学院，国防大学，清华大学等。”
+视频来源：[https://gtv.org/getter/6042b3e49534a74bcaeff20c](https://gtv.org/getter/6042b3e49534a74bcaeff20c) (00:30-4:21)
 
-与中国军事实体的出土合作也紧随美国司法部一名斯坦福大学的研究人员起诉后，该起诉书未能透露她与解放军的联系。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image003-20.jpg)
-**伦敦至少有一半的行政区依靠与中国共产党相关的监控系统**
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/952959/](https://gnews.org/zh-hans/952959/)
 
-据《路透社》讯：“到2020年末，伦敦的所有32个理事会和接下来的20个最大的英国市政理事会都提出了信息自由请求，发现两家中国公司制造的约三分之二的技术被指控与维吾尔人的镇压有关。”
+* * *
 
-至少有28个委员会使用了海康威视（Hikvision）生产的技术，海康威视是视频监控设备的制造商和供应商，与中国共产党有着密切的联系，这是其国有企业的地位。
-
-“七个理事会拥有中国第二大监视设备制造商浙江大华科技有限公司制造的技术。伦敦共有16个理事会拥有海康威视或大华制造的技术，这两个技术在美国都面临严格的贸易限制。路透社补充说，伦敦的六个行政区和其他三个委员会没有回应有关与中国公司的联系的要求，或者否认有足够的数据来披露他们部署的内容。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image005-26.jpg)
-**奈杰尔·法拉格退出政治选举-但与中国共产党的战斗不会结束**
-
-据《布莱特巴特新闻网》讯：奈杰尔·法拉格（Nigel Farage）周六晚上宣布，他将退出政治选举，卸任英国改革党的领导人，但誓言将继续与中国共产党在英国的日益扩大的影响力以及明确的目的以席卷西方的斗争。
-
-在英国真正脱离欧盟仅仅两个月后，“英国脱欧先生”宣布他在政治选举方面的斗争已经结束。英国脱欧前欧洲议会议员理查德·泰斯（Richard Tice）将接任英国改革部的领导人。
-
-法拉奇先生说，“还有很多我想争取和争取的其他事情，特别是中国共产党在我们整个生活方式中的影响力日益增强，而英国机构实际上被出卖了。”
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image007-15.jpg)
-**报告指出，布林肯提出了推进阿富汗和平进程的计划**
-
-据《Plitico政客》讯：华盛顿国务卿安东尼·布林肯周日发表的一封致阿富汗总统阿什拉·加尼的信中说，国务卿安东尼·布林肯正在提出一系列步骤，以帮助启动阿富汗政府与塔利班之间陷入僵局的和平进程。
-
-信中呼吁双方召集一次由联合国，俄罗斯，中国，巴基斯坦，伊朗，印度和美国的外交部长和使节在联合国主持下举行的会议，“以讨论支持阿富汗和平的统一办法。”
-
-布林肯还呼吁阿富汗政府与塔利班在接下来的几周于土耳其举行的高级会议上举行会谈，以敲定一项减少暴力行为90天的修订提案。据TOLONews报道，国务卿还呼吁特使扎尔迈·哈利勒扎德与阿富汗政府和塔利班分享书面建议，以帮助加快讨论。
-
-布林肯在信中还明确表示，拜登政府继续考虑在特朗普政府谈判的5月1日截止日期之前“完全撤出”该国大约2500名美军。
-
-国务院拒绝对TOLONews报告发表评论。
-
-美国国务院在一份声明中说：“ 5月1日以后，我们尚未对我们在阿富汗的部队部署作出任何决定。” “所有提议都将会被保留。”
-
-阿富汗提出了新政府最艰难的外交政策决定之一。美国民众对将近20年的战争感到厌倦，但现在撤军可能被视为给塔利班提供了过多的影响力，并为美国，联军和阿富汗平民所作的牺牲蒙上了一层阴影。
-
-布林肯敦促加尼迅速接受该提议，并强调他担心随着阿富汗天气转暖该国的安全局势可能迅速恶化
-
-布林肯在信中写道：“即使在美军撤军后美国继续向贵国提供财政援助，我仍担心安全局势会恶化，塔利班可能会迅速夺取领土，”
-
-资料来源：
-
-[The National Pulse : 拜登选择中国军事同盟为国防部长](https://thenationalpulse.com/exclusive/biden-undersec-defense-policy-ccp-ties/)
-
-[The National Pulse : 伦敦至少有一半的行政区依靠与中国共产党相关的监控系统](https://thenationalpulse.com/breaking/london-chinese-surveillance-system/)
-
-[Breitbart News Network : Farage退出政治选举-但与中国共产党的战斗不会结束](https://www.breitbart.com/europe/2021/03/07/farage-quits-electoral-politics-but-battle-against-communist-china-and-woke-brigade-continues/)
-
-[Political NEWS : 报告指出，布林肯提出了推进阿富汗和平进程的计划](https://www.politico.com/news/2021/03/07/tony-blinken-afghanistan-peace-474330)
-
-审核 / 上传：文粤
+翻译：【一花一世界】校对：【Isaiah4031】【BruhM】字幕：【Rock小哥】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
 0

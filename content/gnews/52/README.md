@@ -1,50 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语】 闫丽梦的科学报告(一)
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/959142/)
+## 2021年，中共基层财政还能行稳致远吗？
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/959154/)
 
-**制作:Cantonese工作室**
-**配音:【一帘幽梦】 资料整理:【深寒】【Annie 】中文翻译:【喜马拉雅工作站 】校对:【文舜】**
-**海报:【侬民】【MW】剪辑:【星星】**
-视频内容:
+**作者：**一拍即合
+![]()![](https://gnews.org/wp-content/uploads/2021/03/001-008-e1615224770742.jpg)图片来源：中国政府网 杨靖制图
+3月5日，受国务院委托，财政部提请十三届全国人大四次会议审议《关于2020年中央和地方预算执行情况与2021年中央和地方预算草案的报告》。
 
-**闫博士科学报告（一）**
+预算报告指出，2020年，加大转移支付力度缓解基层财政运行困难。中央对地方转移支付达到8.33万亿元，比上年增加8955亿元，增长12%，增量和增幅为近年来最高，并重点向中西部和困难地区倾斜，确保基层财力增长。
 
-1,SARS-CoV-2表现出的生物学特征与自然发生的人兽共患病毒不一致。证据表明，SARS-CoV-2 应该是以蝙蝠冠状病毒ZC45和/或ZXC21为模板和/或骨架研制的实验室产物。
+此外，预算报告要求，健全地方税体系，加快推进后移消费税征收环节改革并稳步下划地方。积极推进印花税、关税等税收立法。通过税收立法授权，适当扩大省级税收管理权限。
 
-SARS-CoV-2 shows biological characteristics that are inconsistent with a naturally occurring, zoonotic virus.The evidence shows that SARS-CoV- 2 should be a laboratory product created by using bat coronaviruses ZC45 and/or ZXC21 as a template and/or backbone.
+粤开证券研究院副院长、首席宏观研究员罗志恒表示，基层财政运行的顺畅程度直接影响政府职能的发挥及老百姓的切身感受，必须确保“三保”正常运转。
 
-2,SARS-CoV-2：能攻击多个器官,能够进行长时间的无症状感染,具有高度的传染性,在高危人群中具有明显的致死性,自出现之初就很好地适应了人类。
+#### **评论：**
 
-SARS-CoV-2： it attacks multiple organs; it is capable of undergoing a long period of asymptomatic infection; it is highly transmissible and significantly lethal in high-risk populations; it is well-adapted to humans since the very start of its emergence.
+一切都是党的，土地是党的，十四亿人是党的，我的是我的，你的也是我的。这种贪婪只能让自己无限膨胀，扛200斤麦子，十里山路不换肩，能一直扛下去吗？
 
-3,支持自然起源论的现有科学论文主要依靠一个单一的证据——之前发现的一种名为RaTG13的蝙蝠冠状病毒. 然而，RaTG13在自然界中的存在及其所报道的序列的真实性正受到广泛质疑。
+疫情以来，地方财政吃紧，中央转移支付8.33万亿也是杯水车薪。靠财政吃饭的人不仅是公务员、党群、工青妇等，还有部队、公安、教育、医疗、文化、国企职工大概也有一亿人。“三保”的核心是基本政权的运转，也就是基本人员的工资一定要保障。再加上扶贫支出这些面子工程，真正用到民生改善的钱少的可怜。
 
-The existing scientific publications supporting a natural origin theory rely heavily on a single piece of evidence – a previously discovered bat coronavirus named RaTG13. However, the existence of RaTG13 in nature and the truthfulness of its reported sequence are being widely questioned.
+支出不能少，只能增加税收，让地方收更多的税，这对百姓而言真的是雪上加霜。
 
-4,SARS-CoV-2的基因组序列与中国人民解放军第三军医大学（中国重庆）和南京军区军事医学研究所（中国南京）发现的一种蝙蝠冠状病毒的基因组序列可疑地相似。
+2021年注定是不平凡的一年，套在百姓身上的这架ccp破车还能行稳致远吗？
 
-The genomic sequence of SARS-CoV-2 is suspiciously similar to that of a bat coronavirus discovered by military laboratories in the Third Military Medical University (Chongqing, China) and the Research Institute for Medicine of Nanjing Command (Nanjing, China).
+**（免责声明：本文仅代表作者个人观点，跟GNEWS平台无关。）**
 
-5,SARS-CoV-2刺突蛋白的受体结合基序（RBM）不能从自然界中诞生，而是应通过基因工程制造出来。
+**🔗新闻来源链接：**
 
-The receptor-binding motif of SARS-CoV-2 Spike cannot be born from nature and should have been created through genetic engineering
+[解读政府工作报告之国家账本：预计2021年财政收入增长8.1%](https://baijiahao.baidu.com/s?id=1693584831683427507&amp;wfr=spider&amp;for=pc&amp;searchword=解读政府工作报告之国家账本)
 
-6,武汉病毒研究所从事了几十年的冠状病毒监测研究，因此拥有世界上最大的冠状病毒收藏库，技术上能进行刺突蛋白／RBM工程和功能增强实验。
+* * *
 
-The Wuhan Institute of Virology has engaged in decades-long coronavirus surveillance studies and therefore owns the world’s largest collection of coronaviruses, the technical barrier is non-existent to carry out and succeed in such Spike/RBM engineering and gain-of- function research.
-
-7,SARS-CoV-2的刺突蛋白中存在一个不寻常的弗林酶切位点，与病毒的毒性增强有关。SARS-CoV-2 刺突蛋白中的弗林酶切位点不可能源于自然，而应该是实验室改造的结果。
-
-An unusual furin-cleavage site is present in the Spike protein of SARS-CoV-2 and is associated with the augmented virulence of the virus.The furin-cleavage site within the SARS-CoV-2 Spike protein is unlikely to be of natural origin and instead should be a result of laboratory modification
-
-8,刺突蛋白应该是经过人工操纵的，这些转化使SARS-CoV-2病毒最终成为一种高传染性、发病隐匿性、致死性、后遗症不明确、破坏性大的病原体。
-
-The Spike protein should have been artificially manipulated.These transformations have then staged the SARS- CoV-2 virus to eventually become a highly-transmissible, onset-hidden, lethal, sequelae-unclear, and massively disruptive pathogen.
-
-9,显然，SARS-CoV-2可能是通过武汉病毒研究所的功能增强操纵产生的，这种可能性很大，应该进行彻底和独立的调查。
-
-Evidently, the possibility that SARS-CoV-2 could have been created through gain-of-function manipulations at the Wuhan Institute of Virology is significant and should be investigated thoroughly and independently.
+**编辑：**Ting Guo
 
 0
