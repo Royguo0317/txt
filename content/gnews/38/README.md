@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以比尔·盖茨为代表的美国精英和建制派已和中共合作数十年
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/961334/)
+## 【粤语配音】中共企图称霸世界，你需要采取多种方式予以回击
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/961454/)
 
-3/8/2021 以比尔·盖茨为代表的美国精英和建制派实际上已和中共合作数十年
+3/4/2021 中共企图称霸世界，你需要采取多种方式予以回击。
 
 By： 【秘密翻译组 G-Translators】
 
