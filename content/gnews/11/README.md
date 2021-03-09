@@ -1,67 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 盖茨基金会资助的华大基因通过新冠检测挖掘DNA数据
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/961426/)
+## 法国加大对南海的海军部署，站队美国
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/961438/)
 
-新闻来源：《国家脉动（National Pulse）》| 作者：NATALIE WINTERS | 发布时间：2021年3月5日
-翻译/简评：Dreamer文童 | 校对：感恩 | 审核：万人往 | Page：Daoiii
+新闻来源：《英国快报（Express）》| 作者：约翰·瓦尔加（JOHN VARGA） | 发布时间：2021年3月8日
+翻译/简评：随波逐流 | 校对：X-Wing飞得更高 | 审核：万人往 | Page：Daoiii
 
-[!\[\]()!\[\](https://spark.adobe.com/page/BOeNNHDI5F3sq/images/d00b37ed-a852-4e2f-bc91-222892979bd5.jpg?asset_id=99f0ffcb-540d-43c5-849c-373965fc8c4b&amp;img_etag=%220cd2848f96194be43704108d62e4c910%22&amp;size=2560)](https://spark.adobe.com/page/BOeNNHDI5F3sq/images/d00b37ed-a852-4e2f-bc91-222892979bd5.jpg?asset_id=99f0ffcb-540d-43c5-849c-373965fc8c4b&amp;img_etag=%220cd2848f96194be43704108d62e4c910%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/dLDjasWxgMfaN/images/fde267ab-7e2e-446e-88f5-b9813ac0e250.jpg?asset_id=0cad11d9-fd46-41ac-8d8c-68cdba278a62&amp;img_etag=%22e5d8a164f76d58bfdbdcce509ad2bbcb%22&amp;size=1024)](https://spark.adobe.com/page/dLDjasWxgMfaN/images/fde267ab-7e2e-446e-88f5-b9813ac0e250.jpg?asset_id=0cad11d9-fd46-41ac-8d8c-68cdba278a62&amp;img_etag=%22e5d8a164f76d58bfdbdcce509ad2bbcb%22&amp;size=1024)
 
 ***简评：***
 
-**近日，《60分钟》节目报道了深圳华大基因与比尔·盖茨及其基金会的长期直接或间接关系。2010年，盖茨前往中共国深圳参观了华大基因总部；2012年，盖茨与华大基因签署《谅解备忘录》开始在基因组测序领域正式合作；2016年，华大基因在华盛顿州设立美国办事处，这里也是微软和盖茨基金会的家乡；2020年3月，华大基因向华盛顿州州长写信建议在该州建立并帮助管理冠状病毒检测实验室。**
+**继去年美、印、日、澳在阿拉伯海联合军演，表明彼此间的联盟关系以及抗衡中共对地区威胁的决心之后，北约军事报告中也承认中共对世界的威胁及未来对此可能采取的军事行动。但各国多是采取观望态度，并未有实际意义的军事部署行动。如今随着南中国海的局势日益紧张，以台湾问题为中心的战争冲突一触即发，各国权衡利弊之下，纷纷表态站队美国。目前，法国、英国、德国都加紧了在南中国海的军事部署，在该地区的西方军事力量集结达到“史无前例”的程度，未来印太地区发生大规模军事冲突的可能性逐渐增加。**
 
-**根据华大基因官网显示，该公司成立于1999年9月9日9时9分；同年11月，美国国立卫生研究院长访问华大，满意而去；2003年4月，时任中共国国家主席胡锦涛考察华大，称赞科研人员“想中央之所想，急人民之所急，办抗病之所需”。仅从以上网站信息就可以看出，华大基因绝非一家普通的民营公司，其背后肯定有中共国官方的支持。**
+**南中国海是全球贸易的主要动脉，同时拥有丰富的能源资源，具有重要的战略意义。因此，中共国有争议地宣称拥有这些水域的主权并在该地区的人工岛上建立军事哨所。各国之前的不闻不问态度，使中共野心逐渐膨胀，不仅肆意欺压邻国，还对其它西方国家的态度逐渐强硬。以美国为首的西方领导人决心在这片具有重要战略意义的水域中维持航行权，各国站队美国不仅为了谋求自保和追求利益最大化，有些还想“鹬蚌相争，渔翁得利”。其中，法国很明显地欲顺势取代中美在南中国海地区的影响地位，日本的实力也不可小觑。**
 
-**结合本文爆出的华大基因与盖茨的关系可推测出，华大基因是打着民营企业幌子的官办实体，其成立目的就是通过“蓝金黄”美国医药科技界，并进而达到“3F”美国的最终目标。通过郭文贵先生爆料可知，中共对美国的渗透是360度全方位的，而医药科技领域只是其中之一。中共“3F”美国，就必须依靠“蓝金黄”美国内部人士，不但可以窃取美国技术，也可以里应外合直攻美国本土。盖茨与华大基因长年的关系就是例证。去年3月份，借着中共病毒肆虐毫无准备的美国之际，华大基因试图在华盛顿州设立冠状病毒检测实验室。如果不是爆料革命提前预警，可能华盛顿州州长已经同意华大基因递出的“带着毒汁的橄榄枝”。现在美国官方和大部分民众已经觉醒，中共和与中共关系密切的美国人士的任何行为，都将曝露在阳光之下，因此他们的任何诡计都不会得逞。**
+[!\[\]()!\[\](https://spark.adobe.com/page/dLDjasWxgMfaN/images/a1f6a9df-447d-41e3-9fe7-04bd485a39d3.jpg?asset_id=6652828c-bdad-4ae5-b504-61c2baca8018&amp;img_etag=%22f243d8702a7386fbf7b1b35aaa72c2fc%22&amp;size=1024)](https://spark.adobe.com/page/dLDjasWxgMfaN/images/a1f6a9df-447d-41e3-9fe7-04bd485a39d3.jpg?asset_id=6652828c-bdad-4ae5-b504-61c2baca8018&amp;img_etag=%22f243d8702a7386fbf7b1b35aaa72c2fc%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/BOeNNHDI5F3sq/images/a5479df1-c5a0-45f6-ac93-2e98c6fc083b.jpg?asset_id=a5f5b724-49bf-4b64-9e88-dbdc725184a0&amp;img_etag=%228ce973db889e92b35f3f386bcd5ed711%22&amp;size=1024)](https://spark.adobe.com/page/BOeNNHDI5F3sq/images/a5479df1-c5a0-45f6-ac93-2e98c6fc083b.jpg?asset_id=a5f5b724-49bf-4b64-9e88-dbdc725184a0&amp;img_etag=%228ce973db889e92b35f3f386bcd5ed711%22&amp;size=1024)
+**虽然各国都有自己的如意算盘，但这些都阻挡不了全世界合力灭共的步伐。不灭共，一切都是空想。因此大家灭共的决心是空前一致的，现在只是需要一个开战的理由。中共如果不自量力意图攻打台湾，一定会成为印太地区战争的导火索，遭受多国联军毁灭性的军事打击，加速其灭亡。**
 
 ***原文翻译：***
 
-## 独家：比尔·盖茨基金会资助的基因组学公司通过新冠病毒检测“挖掘”DNA数据
+## 因担心与北京开战，马克龙在南中国海局势高度紧张之际加入美国阵营
 
-《国家脉动》（ National Pulse）透露，华大基因（BGI Genomics）——一家与中共有关联的、被美国官员标记为“挖掘”美国人DNA数据的基因组学公司——与比尔&梅琳达·盖茨基金会进行了广泛的合作。
+**随着南中国海“前所未有的”军事力量在不断集结，法国总统埃马纽埃尔·马克龙（EMMANUEL Macron）试图将法国定位为在南中国海取代中美两国地位的一个替代国。**
 
-据美国前情报官员透露，在《60分钟》（60 Minutes）节目曝光该公司利用新冠病毒测试“收集、存储和利用美国公民的生物识别信息”后，该公司最近受到抨击。更重要的是，路透社最近的一篇文章将该公司与中共军方联系起来。
+随着南中国海“前所未有的”军事力量在不断集结，法国总统埃马纽埃尔·马克龙（EMMANUEL Macron）试图将法国定位为在南中国海取代中美两国地位的一个替代国。
 
-除奥巴马政府使得该公司能够在美国立足之外，比尔&梅琳达·盖茨基金会在华大基因的美国扩张中也起到关键作用。
-[!\[\]()!\[\](https://spark.adobe.com/page/BOeNNHDI5F3sq/images/8790e0ae-8a0c-4884-bdd8-26b342fa8acb.jpg?asset_id=720e9681-03ee-4728-ba9f-0a099f51d6d5&amp;img_etag=%2290aa4e19bab9b607fa1217070d5f648d%22&amp;size=2560)](https://spark.adobe.com/page/BOeNNHDI5F3sq/images/8790e0ae-8a0c-4884-bdd8-26b342fa8acb.jpg?asset_id=720e9681-03ee-4728-ba9f-0a099f51d6d5&amp;img_etag=%2290aa4e19bab9b607fa1217070d5f648d%22&amp;size=1024)
-2012年9月，这位微软创始人的基金会签署了一份“《谅解备忘录》（MOU），就全球健康和农业发展形成合作，以实现健康和农业发展的共同目标”。
+[!\[\]()!\[\](https://spark.adobe.com/page/dLDjasWxgMfaN/images/6f4604f7-10e8-45b9-9664-cb45b0b4d6c2.png?asset_id=923ebb65-807b-4f08-8978-022a015a048c&amp;img_etag=%22c944660227a7b1816ac7c76f68794322%22&amp;size=2560)](https://spark.adobe.com/page/dLDjasWxgMfaN/images/6f4604f7-10e8-45b9-9664-cb45b0b4d6c2.png?asset_id=923ebb65-807b-4f08-8978-022a015a048c&amp;img_etag=%22c944660227a7b1816ac7c76f68794322%22&amp;size=1024)马克龙正在寻求将法国定位为中美两国的替代大国（图片来源：盖蒂）
 
-华大基因的联合创始人称赞这份协议，庆祝即将取得的“在人类、植物和动物基因组学领域的科学突破”。他还透露，合作的重点是基因组测序——这正是《60分钟》节目中被称为国家安全威胁的活动。
+[!\[\]()!\[\](https://spark.adobe.com/page/dLDjasWxgMfaN/images/58bb6234-256e-4713-8575-322447151a23.png?asset_id=b5ee5db6-b64f-41e5-8196-96b1dfc3b91c&amp;img_etag=%228645cdc2650de425c2a55adc669cf0ed%22&amp;size=2560)](https://spark.adobe.com/page/dLDjasWxgMfaN/images/58bb6234-256e-4713-8575-322447151a23.png?asset_id=b5ee5db6-b64f-41e5-8196-96b1dfc3b91c&amp;img_etag=%228645cdc2650de425c2a55adc669cf0ed%22&amp;size=1024)西方军舰在该地区的集结数量是“空前的”（图片：盖蒂）
 
-***“已为人类基因组项目和许多关键动植物物种和人类疾病的基因组测序做出贡献，包括水稻基因组的初步测序，以及我们参与的1万个水稻基因组项目、1000个植物和动物基因组项目、国际千人基因组项目、千种罕见病项目、国际癌症基因组项目、自闭症基因组10K等，华大基因期待与比尔&梅琳达·盖茨基金会合作，在这一重要合作中应用基因组学研究造福全球人类健康。”***
+法国总统此前曾说过要发展“巴黎-德里-堪培拉轴线”。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/BOeNNHDI5F3sq/images/83a895d3-11fa-48bf-b195-49cabbfd2be6.png?asset_id=144ea146-79df-4c9b-83eb-1c42a9f3e44d&amp;img_etag=%225bbf04be1dc5510e5d9a3c1c773c8304%22&amp;size=2560)](https://spark.adobe.com/page/BOeNNHDI5F3sq/images/83a895d3-11fa-48bf-b195-49cabbfd2be6.png?asset_id=144ea146-79df-4c9b-83eb-1c42a9f3e44d&amp;img_etag=%225bbf04be1dc5510e5d9a3c1c773c8304%22&amp;size=1024)盖茨与华大基因联合创始人王俊在2015年博鳌论坛
+然而，科赫先生认为，日本可以更好地让自己成为北京和华盛顿的地区替代国。
 
-这份备忘录早于盖茨2010年对华大基因中共国总部的访问，他在那里目睹了《金融时报》（Financial Times）所描述的该公司的基因测序业务：
+由于英国和德国都准备在今年晚些时候向印度-太平洋地区部署海军，法国也随之加强了在南中国海的军事部署。
 
-***2010年，比尔·盖茨（Bill Gates）参观了位于中国深圳郊区一个工业区内的一栋不起眼的建筑。里面有一排排高科技机器在嗡嗡作响，这个地方很容易被误认为是一个无名数据仓库。但盖茨先生和盖茨基金会中共国业务负责人叶雷当天看到的却是另一番景象。当他们参观华大基因总部时，两人被在这家生物技术公司工作的科学家们的雄心壮志所震惊。在里面，150多台先进的基因测序机每天分析的数据相当于数千个人类基因组。该公司正致力于实现以数百万人的DNA为基础而建立一个庞大数据库的目标。华大基因的高管们认为，这不是最终目标，而是新药研发、先进的基因研究和公共卫生政策转型的跳板。***
+由于该地区前所未有的紧张局势，已经就大规模冲突的可能性进行了讨论。
 
-叶雷称赞这一努力是“打破常规”、“开放”且“自由”的。
+美国外交关系协会（CFR）一名负责美国外交政策的高级研究员罗伯特·布莱克威尔（Robert Blackwill）和历史学教授菲利普·泽里科夫（Philip Zelikow）表示，台湾“正在成为全世界最危险的爆发点，有可能卷入一场美国、中共国以及其他主要大国间的战争”。
 
-***“我们吃了一惊。我们从未想过我们会发现这样一种打破常规的方法。他们在自己的联盟中——开放且自由。大多数人只把他们看作是DNA分析的服务提供商。他们正在建立的数据库将使他们变得强大。”***
+英国新的航母打击群将与日本进行联合演习，而德国将在8月向亚洲派遣一艘护卫舰。
 
-盖茨基金会还与诸如科技部和农科院这样的中共机构一同资助了与基因组测序有关的华大基因项目。
+自2002年返回德国以来，这艘护卫舰将成为德国第一艘横渡南中国海的战舰。
 
-同样地，比尔&梅琳达·盖茨基金会全球健康项目前总裁山田忠孝（Tadataka Yamada）博士担任了华大基因的科学顾问委员会主席。
+科赫先生将西方军舰在该地区的集结描述为“史无前例”。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/BOeNNHDI5F3sq/images/e03184cd-3105-418e-b3cc-c35b3a6350b2.png?asset_id=12ec02a4-32fc-4374-bbca-8583e72c8211&amp;img_etag=%2208d2d0c18f792844e9189fe2b1d2bf16%22&amp;size=3840)](https://spark.adobe.com/page/BOeNNHDI5F3sq/images/e03184cd-3105-418e-b3cc-c35b3a6350b2.png?asset_id=12ec02a4-32fc-4374-bbca-8583e72c8211&amp;img_etag=%2208d2d0c18f792844e9189fe2b1d2bf16%22&amp;size=1024)
+西方领导人决心在具有战略意义的重要水域中维持航行权，中共国有争议地宣称拥有这些水域的主权。
 
-GATES AND BGI RESEARCHERS. 盖茨与华大基因研究人员
+南中国海是全球贸易的主要动脉，同时拥有丰富的能源资源。
 
-2016年，华大基因在华盛顿州——微软和比尔&梅琳达·盖茨基金会的家乡——设立一个美国办事处。
+在努力加强其领土主张的同时，北京当局继续在该地区的人工岛上建立军事前哨。
 
-华大基因与华盛顿州的关系似乎也影响了该公司将新冠病毒检测试剂盒瞄准该州的决定，这是该公司“挖掘”美国人数据的阴谋的一部分。
-
-“去年3月初，华盛顿州是美国第一个冠状病毒大规模爆发的地方。随着冠状病毒感染率和检测需求的激增，全球最大的生物技术公司——这家总部位于中共国的全球巨头——华大基因集团向华盛顿州提出了一项诱人的提议。在一封写给州长的醒目的私人信件中，华大基因提出建立并帮助管理最先进的冠状病毒检测实验室。”《60分钟》节目总结道。
-
-但在国家情报总监办公室的要求下，官员们最终拒绝了这一提议，因为华大基因与中共国政府的关系。
-
-**🔗[原文链接](https://thenationalpulse.com/exclusive/bgi-genomics-gates-foundation-collab/)**
+**🔗[原文链接](https://www.express.co.uk/news/world/1406892/emmanuel-macron-french-president-south-china-sea-usa-china-military-exercises-ont?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+daily-express-world-news+%28Express+%3A%3A+World+Feed%29)**
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -70,6 +62,6 @@ GATES AND BGI RESEARCHERS. 盖茨与华大基因研究人员
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/BOeNNHDI5F3sq/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/BOeNNHDI5F3sq/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/dLDjasWxgMfaN/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/dLDjasWxgMfaN/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 +1
