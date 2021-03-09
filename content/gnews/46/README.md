@@ -1,45 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】中共为什么对入境的旅客强行肛检？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/959219/)
+## 美日澳印四国需整合优势全面反击中共挑衅 （玫瑰看新闻二零二一年三月五日）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/959365/)
 
-作者：纽约香草山金融部 AT
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-1月20日中共媒体报道，北京市最先在大兴对部分市民进行了肛拭子检测，其理由是肛检更准确。据悉，中共目前几乎对所有入境北京的旅客强制进行肛拭子检测。这种极具侮辱性的检测，引发国际社会不满。自由亚洲电台引述专家的评论指，目前学术界並不存在肛拭子检测准确性较高的证据。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-55.jpg)图源网络
-
-那么，中共为什么还冒天下之大不韪，对入境北京的中外旅客进行强制肛检？
-
-首先，这是中共制造的又一个国际谈判筹码：作为跟其他国家讨价还价的手段之一，顺我者免肛检。同时，此举也能进一步加强对内管控。
-
-在墙内的所有城市中，北京最富政治意识。出入北京的国际旅客中，大部分是中产，有一定经济基础，有知识，有一定的国际视野，这些人就是CCP眼中的不稳定因素。对他们进行肛检，就是从心理上摧毁人最后一道尊严的防线，让他们变得麻木，丧失反抗意识，是流氓黑社会的典型做法。北京特殊的政治位置决定了其是中共政治稳定的风向标。因此，中共一定会对北京严防死守。同时，随着文革2.0的开始，对人员流动的限制也会逐步加强。在北京施行肛检就是减少国际人员与北京间的流动，施行“京冻”，即变相的边界封锁。也许北京只是个开始，肛检的措施会在全国推广，小到村、县，大到市、省，每个人的出行都会被限制。这就是现代“路条”，但是更隐蔽，披着为人民安全的外衣，行愚昧欺骗之实，让人民自觉遵守，甘心接受。
-
-目前，虽然只有北京要求入境旅客全部强制肛检，但以CCP行事的风格，后续一定还有不可告人的更卑劣的行为。3月7日，王毅在中外记者会上公布，中共要推出“春苗行动”，为海外同胞接种疫苗，同时，要推广疫苗护照。联想到目前，中共对入境人员苛刻的交叉双检测及侮辱性的肛检，是否就是为后续的全民注射疫苗做铺垫呢？我们可以揣测一下，中共在不久的将来可能就会推出进一步政策，不打疫苗，没有疫苗护照，就不能进行国际旅行。在国内，不持有疫苗注射证明，就无法进行最基本的人员流动，以此来达到控制全民的不可告人的目的。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-g-fashion-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-+1
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-56.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/2-27.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/3-39.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/4-23.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/5-20.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/6-19.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/7-13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/8-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/9-7.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/10.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/11-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/12-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/13.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/14.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/15.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/16-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/17-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/18-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/19-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/20-1.jpg)
+0

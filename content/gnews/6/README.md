@@ -1,23 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 人权斗士在妇女节谴责中共侵犯妇女权利
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/960547/)
+## 接种中共科兴疫苗后香港至少两死两重症
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/960632/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑上传   水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/m-11.jpg)darwinhigh.nt.edu.au
-布赖特巴特新闻网 (Breitbart News)3月8日国际妇女节(International Women’s Day)报道，人权斗士雷吉·利特尔约翰(Reggie Littlejohn)利用国际妇女节谴责中国共产党(CCP)持续强迫堕胎和其他侵犯妇女权利的行为。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/S-9-2.jpg)news.wfsu.org
+Just The News 3月8日报道，香港政府官员表示，在接受中共制造的科兴生物疫苗后，已至少2名香港居民死亡。
 
-妇女权利无国界组织主席利特尔约翰称,“只要这种针对妇女的侵害继续在地球肆虐，妇女运动就没有取得真正的胜利。”她指责中共对妇女的压迫和暴行，一个特别可怕的案例是中共国新疆的维吾尔族妇女遭到有计划的强奸、绝育和强迫堕胎。
+香港政府上周末宣布，一名患有慢性疾病的55岁妇女在接种中共病毒疫苗三天后，于3月5日死于中风；另一名71岁的男子在接种疫苗后疑似死于心脏病发作。此外，另外两名接种过疫苗的老年居民在感到不适后被送入医院重症监护病房。
 
-中共的二胎政策导致了巨大的性别差距，因为中共国传宗接代的传统，让人们更喜欢生男孩。利特尔约翰说，“性别灭绝——对女婴进行性别选择性堕胎——在中共国已经存在了好几代。”更令人发指的是“中共被指控对数十万维吾尔族妇女进行强行堕胎和绝育，以及杀害非计划生育限制下出生的足月婴儿。”
+香港政府称，“死因是否与使用的疫苗有直接或间接关系,我们需要参考完整临床细节，进行专家委员会临床事件评估审议之后进行判断 “。而早前已有新闻传出，一名63岁的香港男子在注射第一剂科兴生物疫苗后死亡。这名男子患有多种身体疾病，包括高血压、糖尿病和支气管炎，这使他成为早期接种疫苗的候选人。他2月26日接受了第一剂中共病毒疫苗后于28日去世。中共坚称，他们没有证据表明接种疫苗与该男子的死亡有直接联系。香港卫生署(Department of Health)在一份声明中表示，“目前与接种疫苗的因果关系尚不能确定。” 《环球时报》认为这起死亡事件纯属“巧合”。
 
-利特约翰敦促第一世界的女权主义者站出来谴责中共国每天都在发生的严重侵犯人权的行为，同时呼吁取消中共作为主办方的2022年冬奥会。利特尔约翰说，“中共作为世界上侵犯女性权利最严重的国家之一，居然能主办2022年冬奥会，这是一种莫大的讽刺。”“我呼吁国际女权团体和我一起施压，让一个尊重女性权利的国家举办奥运会。”她说，中共国严重侵犯妇女人权的行为，让世界无法庆祝妇女节日，也无法认可女权的胜利。
+迄今为止，香港共有83,400人接种了中共制造的科兴疫苗。
+
+科兴生物疫苗是中共批准的两种中共病毒疫苗之一。该疫苗在预防中共病毒感染方面的有效性仅略高于50%，被认为是目前批准大规模生产的质量最低的疫苗之一。香港大学(University of Hong Kong)今年1月公布的一项民意调查显示，仅不到30%的香港居民愿意接种“中共疫苗”。
+
+尽管如此，香港官员周末表示，根据香港法律成立的联合科学委员会和专家委员会已经确认，包括老年人在内的优先人群使用疫苗“利大于弊”。他们还表示，“除非专家委员会得出其他结论”，否则他们将继续为香港民众接种疫苗。
 
 参考链接：
 
-[https://www.breitbart.com/national-security/2021/03/08/rights-champion-decries-chinas-war-on-women-on-womens-day/](https://www.breitbart.com/national-security/2021/03/08/rights-champion-decries-chinas-war-on-women-on-womens-day/)
+[https://justthenews.com/politics-policy/coronavirus/2-dead-2-icu-after-receiving-chinese-covid-19-vaccine-hong-kong](https://justthenews.com/politics-policy/coronavirus/2-dead-2-icu-after-receiving-chinese-covid-19-vaccine-hong-kong)
 
 0
