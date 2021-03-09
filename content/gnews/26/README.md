@@ -1,33 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国政客在抗疫物资采购中的腐败继续发酵
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/959208/)
+## 除了封城真的没有别的选择吗？
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/959288/)
 
-**翻译整理/评论：** Shuizhuyu
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot_20210308_185811.jpg)**图片来源：**推特原文截图
-德国执政党CDU ，基督教民主联盟党前党魁 ** 安妮格雷特·克兰普-卡伦鲍尔** (A．Krampf- Karrenbauer) 女士发推特原文如下：
+```
+新闻来源：《世界报》 
+发布：2021年3月8日
+记者：蒂姆·罗恩（Tim Röhn)/ 丹尼尔·弗里德里希·斯特姆 (Daniel Friedrich Sturm) 
+翻译整理/简评：Shuizhuyu
+```
 
-***A*．*Krampf- Karrenbauer***
 
-*Es gibt überhaupt nichts schön zu reden. Und Ämter “ruhen” zu lassen, reicht nicht.*[*#Löbel*](https://twitter.com/hashtag/L%2525C3%2525B6bel?src=hashtag_click)*und*[*#Nüsslein*](https://twitter.com/hashtag/N%2525C3%2525BCsslein?src=hashtag_click)*müssen vollständig zurücktreten und ihre Mandate im Bundestag umgehend niederlegen.*
+![]()![](https://gnews.org/wp-content/uploads/2021/03/fankfurt-lockdown-luftaufnahmen-drohne.jpg)图为在空无一人的法兰克福上空飞行 
+图片来源：LangweileDich.net
 
-**译文：**根本没有什么好谈的。继续在党内休息是不够的，洛贝尔 (*Löbel*) 和纽斯莱因 (*Nüsslein*) 必须彻底辞职，并立即从联邦议院的席位中辞职。
+这是此次大流行病的谜语之一：联邦政府把感染率降低归功于抗疫政策实施。但是在没有封禁出行的的瑞典，感染率也差不多。
 
-#### **简评： **
+总理会议结束时，安吉拉·默克尔（Angela Merkel）星期三晚上出现在首都的新闻界。** 「**我们在一起经历着艰难，但是今天您也可以说它起到了作用。**」**默克尔以此重复了数月来提出的口头禅：感染数量的（暂时）下降是由于联邦政府和州政府采取的限制性措施。由于较少的人与人接触，封闭的学校、商店和餐馆，因此感染者和死者的人数减少了。严格的抗疫措施是必经之路。现在的问题是：这种论点是正确的吗？
 
-**自从疫情爆发以来， 民众对政府的各种政策本来是接受服从的。但经过一年多的时间， 人们的耐心渐渐消失。 而疫情在各种政策下并没有得到有效控制 ，与此同时， 还暴露出了各种问题。**
+#### 简评：
 
-**就在两个星期前， 有消息称现共同执政党的政客在口罩供应中收受佣金， 在他的住宅中也搜出了65万欧元的现金。 之后， 又有一个政客收受了25万欧元的佣金。 这就是为什么这位女士愤怒的发出了这个推特。 **
+**德国总理默克尔现在已经开始为联邦和州政府实施的严格的抗疫措施大唱赞歌， 但是也有人对此表示各种质疑。 我们先不评论哪种说法是正确的， 但是由此可以看出政客们在不停的为自己的政策寻找合理的解释，而民众对此政策有赞同支持， 也有表示极大的怀疑。 那么民众之间的分裂也会越来越大。 **
 
-**目前， 这两位政客洛贝尔 (*Löbel*) 和纽斯莱因 (*Nüsslein*)** **都已经从联邦议会辞职， 彻底离开德国政坛。 相信这样的丑闻对今年的德国大选也影响深远。 这两人都是现在的执政党成员， 也就是德国总理默克尔的同党成员。 我们将继续关注德国政坛对此事的后续发酵。 一个病毒的爆发也凸显了人性的丑陋， 他们这种发灾难财的举动已经遭到了大批民众的不满和愤怒。 **
+**（免责声明：本文的简评只代表译者观点，跟GNEWS平台无关。）**
 
-**（免责声明：本文仅代表作者个人观点，跟GNEWS平台无关。）**
+**🔗新闻来源链接：**
 
-[Tweets by akk](https://twitter.com/akk?ref_src=twsrc%5Etfw)
-**推特原文**
+[Wie alternativlos ist ein Lockdown wirklich?](https://www.welt.de/politik/deutschland/plus227762841/Blick-nach-Schweden-Wie-alternativlos-ist-ein-Lockdown.html)
+
 * * *
 
-**编辑：**Ting Guo
+**编辑整理: **Ting Guo
 
-+2
+0
