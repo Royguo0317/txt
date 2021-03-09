@@ -1,49 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 高球玩家纳吉布：中共邪灵的附体，终获恶报（完）
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/961170/)
+## 盖茨基金会资助的华大基因通过新冠检测挖掘DNA数据
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/961426/)
 
-作者： 文徬   兰兰
+新闻来源：《国家脉动（National Pulse）》| 作者：NATALIE WINTERS | 发布时间：2021年3月5日
+翻译/简评：Dreamer文童 | 校对：感恩 | 审核：万人往 | Page：Daoiii
 
-附体邪灵遭抛弃，恶报缠身被判刑
+[!\[\]()!\[\](https://spark.adobe.com/page/BOeNNHDI5F3sq/images/d00b37ed-a852-4e2f-bc91-222892979bd5.jpg?asset_id=99f0ffcb-540d-43c5-849c-373965fc8c4b&amp;img_etag=%220cd2848f96194be43704108d62e4c910%22&amp;size=2560)](https://spark.adobe.com/page/BOeNNHDI5F3sq/images/d00b37ed-a852-4e2f-bc91-222892979bd5.jpg?asset_id=99f0ffcb-540d-43c5-849c-373965fc8c4b&amp;img_etag=%220cd2848f96194be43704108d62e4c910%22&amp;size=1024)
 
-曾任马国总理22年的马哈蒂尔因为“一马案”与纳吉布决裂，公开要求纳吉布下台。但纳吉布面对贪污丑闻始终不认罪。
+***简评：***
 
-纳吉布为了此案，先以健康为理由撤换原先调查此案件的检察总长阿都干尼（Abdul GaniPatail），曾批评贪腐案的时任副总理慕尤丁（Muhyiddin Yassin）也被撤换。2016年1月，纳吉提拔的检察总长阿班迪（Mohamed Apandi Ali）将“一马案”接撤销诉讼，以“首相不是公务员，是行政人员”的撤诉理由，认定纳吉户头拥有的6亿8100万美元由沙乌地阿拉伯王室赠与，而且纳吉已归还其中的6.2亿美元（新台币186. 4亿元），未涉及任何贪污滥权。这简直是世界司法史的“奇迹”。
+**近日，《60分钟》节目报道了深圳华大基因与比尔·盖茨及其基金会的长期直接或间接关系。2010年，盖茨前往中共国深圳参观了华大基因总部；2012年，盖茨与华大基因签署《谅解备忘录》开始在基因组测序领域正式合作；2016年，华大基因在华盛顿州设立美国办事处，这里也是微软和盖茨基金会的家乡；2020年3月，华大基因向华盛顿州州长写信建议在该州建立并帮助管理冠状病毒检测实验室。**
 
-当2018年初马来西亚议会选举开始时，中共公开站在纳吉布一边，中共驻马来西亚大使曾与纳吉布的联盟成员一道参加竞选活动。中共对选举的操控低估了马国的民意，时年92岁的前总理马哈蒂尔带领他的联盟赢得了议会选举。马来西亚前总理纳吉布的贪污案于2020年7月28日宣判，吉隆坡高等法院认为检方控诉的7项罪名全部成立，纳吉布被判12年有期徒刑，罚款2.1亿令吉（约合新台币14.4亿元），法官莫哈末纳兹兰光是宣读判决就用了两小时左右。
+**根据华大基因官网显示，该公司成立于1999年9月9日9时9分；同年11月，美国国立卫生研究院长访问华大，满意而去；2003年4月，时任中共国国家主席胡锦涛考察华大，称赞科研人员“想中央之所想，急人民之所急，办抗病之所需”。仅从以上网站信息就可以看出，华大基因绝非一家普通的民营公司，其背后肯定有中共国官方的支持。**
 
-腐败的政治世家就此结束。马国独立一甲子依然有年轻人过着独立初期“饭淋酱汁”的生活，纳吉布人民说：“倘若嫌菜贩所售卖的菜昂贵，就购买价格比较低廉的蕹菜（即空心菜）。”，令人想起中国古代的梁惠帝“何不食肉糜”的典故。
+**结合本文爆出的华大基因与盖茨的关系可推测出，华大基因是打着民营企业幌子的官办实体，其成立目的就是通过“蓝金黄”美国医药科技界，并进而达到“3F”美国的最终目标。通过郭文贵先生爆料可知，中共对美国的渗透是360度全方位的，而医药科技领域只是其中之一。中共“3F”美国，就必须依靠“蓝金黄”美国内部人士，不但可以窃取美国技术，也可以里应外合直攻美国本土。盖茨与华大基因长年的关系就是例证。去年3月份，借着中共病毒肆虐毫无准备的美国之际，华大基因试图在华盛顿州设立冠状病毒检测实验室。如果不是爆料革命提前预警，可能华盛顿州州长已经同意华大基因递出的“带着毒汁的橄榄枝”。现在美国官方和大部分民众已经觉醒，中共和与中共关系密切的美国人士的任何行为，都将曝露在阳光之下，因此他们的任何诡计都不会得逞。**
 
-纵观马来西亚前总理纳吉布的从政生涯，这活生生的体现了与中共为伍是与魔鬼为舞，最后是群魔共舞，最终的结果是道德的沦丧，人性的摧毁，法院的审判。而中共邪灵的魔鬼乱舞最终也会被审判，被唾弃于历史舞台。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image-84.png)
-（图源网络）
+[!\[\]()!\[\](https://spark.adobe.com/page/BOeNNHDI5F3sq/images/a5479df1-c5a0-45f6-ac93-2e98c6fc083b.jpg?asset_id=a5f5b724-49bf-4b64-9e88-dbdc725184a0&amp;img_etag=%228ce973db889e92b35f3f386bcd5ed711%22&amp;size=1024)](https://spark.adobe.com/page/BOeNNHDI5F3sq/images/a5479df1-c5a0-45f6-ac93-2e98c6fc083b.jpg?asset_id=a5f5b724-49bf-4b64-9e88-dbdc725184a0&amp;img_etag=%228ce973db889e92b35f3f386bcd5ed711%22&amp;size=1024)
 
-（文章观点仅代表作者观点）
+***原文翻译：***
 
-参考文献
+## 独家：比尔·盖茨基金会资助的基因组学公司通过新冠病毒检测“挖掘”DNA数据
 
-世纪大案 8：高球玩家[https://gnews.org/zh-hans/369116/](https://gnews.org/zh-hans/369116/)
+《国家脉动》（ National Pulse）透露，华大基因（BGI Genomics）——一家与中共有关联的、被美国官员标记为“挖掘”美国人DNA数据的基因组学公司——与比尔&梅琳达·盖茨基金会进行了广泛的合作。
 
-宋以敏：“胡耀邦在对外关系上的拨乱反正”，原载《炎黄春秋》2009年第5期，[http://ww2.usc.cuhk.edu.hk/PaperCollection/Details.aspx?id=7097](http://ww2.usc.cuhk.edu.hk/PaperCollection/Details.aspx?id=7097)
+据美国前情报官员透露，在《60分钟》（60 Minutes）节目曝光该公司利用新冠病毒测试“收集、存储和利用美国公民的生物识别信息”后，该公司最近受到抨击。更重要的是，路透社最近的一篇文章将该公司与中共军方联系起来。
 
-设在中国的马共广播电台，《炎黄春秋》杂志2015年第8期。
+除奥巴马政府使得该公司能够在美国立足之外，比尔&梅琳达·盖茨基金会在华大基因的美国扩张中也起到关键作用。
+[!\[\]()!\[\](https://spark.adobe.com/page/BOeNNHDI5F3sq/images/8790e0ae-8a0c-4884-bdd8-26b342fa8acb.jpg?asset_id=720e9681-03ee-4728-ba9f-0a099f51d6d5&amp;img_etag=%2290aa4e19bab9b607fa1217070d5f648d%22&amp;size=2560)](https://spark.adobe.com/page/BOeNNHDI5F3sq/images/8790e0ae-8a0c-4884-bdd8-26b342fa8acb.jpg?asset_id=720e9681-03ee-4728-ba9f-0a099f51d6d5&amp;img_etag=%2290aa4e19bab9b607fa1217070d5f648d%22&amp;size=1024)
+2012年9月，这位微软创始人的基金会签署了一份“《谅解备忘录》（MOU），就全球健康和农业发展形成合作，以实现健康和农业发展的共同目标”。
 
-马共的革命与终结，《炎黄春秋》2010年5月。
+华大基因的联合创始人称赞这份协议，庆祝即将取得的“在人类、植物和动物基因组学领域的科学突破”。他还透露，合作的重点是基因组测序——这正是《60分钟》节目中被称为国家安全威胁的活动。
 
-Trump called me ‘friend’, gave a personal send-off: Malaysia’s Prime Minister Najib，[https://www.straitstimes.com/asia/se-asia/trump-called-me-friend-gave-a-personal-send-off-malaysias-prime-minister-najib](https://www.straitstimes.com/asia/se-asia/trump-called-me-friend-gave-a-personal-send-off-malaysias-prime-minister-najib)
+***“已为人类基因组项目和许多关键动植物物种和人类疾病的基因组测序做出贡献，包括水稻基因组的初步测序，以及我们参与的1万个水稻基因组项目、1000个植物和动物基因组项目、国际千人基因组项目、千种罕见病项目、国际癌症基因组项目、自闭症基因组10K等，华大基因期待与比尔&梅琳达·盖茨基金会合作，在这一重要合作中应用基因组学研究造福全球人类健康。”***
 
-撒钱见川普，是一场豪赌，[https://crossing.cw.com.tw/article/8641](https://crossing.cw.com.tw/article/8641)
+[!\[\]()!\[\](https://spark.adobe.com/page/BOeNNHDI5F3sq/images/83a895d3-11fa-48bf-b195-49cabbfd2be6.png?asset_id=144ea146-79df-4c9b-83eb-1c42a9f3e44d&amp;img_etag=%225bbf04be1dc5510e5d9a3c1c773c8304%22&amp;size=2560)](https://spark.adobe.com/page/BOeNNHDI5F3sq/images/83a895d3-11fa-48bf-b195-49cabbfd2be6.png?asset_id=144ea146-79df-4c9b-83eb-1c42a9f3e44d&amp;img_etag=%225bbf04be1dc5510e5d9a3c1c773c8304%22&amp;size=1024)盖茨与华大基因联合创始人王俊在2015年博鳌论坛
 
-编辑/审核/发稿： 浪迹天涯
+这份备忘录早于盖茨2010年对华大基因中共国总部的访问，他在那里目睹了《金融时报》（Financial Times）所描述的该公司的基因测序业务：
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+***2010年，比尔·盖茨（Bill Gates）参观了位于中国深圳郊区一个工业区内的一栋不起眼的建筑。里面有一排排高科技机器在嗡嗡作响，这个地方很容易被误认为是一个无名数据仓库。但盖茨先生和盖茨基金会中共国业务负责人叶雷当天看到的却是另一番景象。当他们参观华大基因总部时，两人被在这家生物技术公司工作的科学家们的雄心壮志所震惊。在里面，150多台先进的基因测序机每天分析的数据相当于数千个人类基因组。该公司正致力于实现以数百万人的DNA为基础而建立一个庞大数据库的目标。华大基因的高管们认为，这不是最终目标，而是新药研发、先进的基因研究和公共卫生政策转型的跳板。***
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+叶雷称赞这一努力是“打破常规”、“开放”且“自由”的。
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+***“我们吃了一惊。我们从未想过我们会发现这样一种打破常规的方法。他们在自己的联盟中——开放且自由。大多数人只把他们看作是DNA分析的服务提供商。他们正在建立的数据库将使他们变得强大。”***
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-g-fashion.jpg)
-0
+盖茨基金会还与诸如科技部和农科院这样的中共机构一同资助了与基因组测序有关的华大基因项目。
+
+同样地，比尔&梅琳达·盖茨基金会全球健康项目前总裁山田忠孝（Tadataka Yamada）博士担任了华大基因的科学顾问委员会主席。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/BOeNNHDI5F3sq/images/e03184cd-3105-418e-b3cc-c35b3a6350b2.png?asset_id=12ec02a4-32fc-4374-bbca-8583e72c8211&amp;img_etag=%2208d2d0c18f792844e9189fe2b1d2bf16%22&amp;size=3840)](https://spark.adobe.com/page/BOeNNHDI5F3sq/images/e03184cd-3105-418e-b3cc-c35b3a6350b2.png?asset_id=12ec02a4-32fc-4374-bbca-8583e72c8211&amp;img_etag=%2208d2d0c18f792844e9189fe2b1d2bf16%22&amp;size=1024)
+
+GATES AND BGI RESEARCHERS. 盖茨与华大基因研究人员
+
+2016年，华大基因在华盛顿州——微软和比尔&梅琳达·盖茨基金会的家乡——设立一个美国办事处。
+
+华大基因与华盛顿州的关系似乎也影响了该公司将新冠病毒检测试剂盒瞄准该州的决定，这是该公司“挖掘”美国人数据的阴谋的一部分。
+
+“去年3月初，华盛顿州是美国第一个冠状病毒大规模爆发的地方。随着冠状病毒感染率和检测需求的激增，全球最大的生物技术公司——这家总部位于中共国的全球巨头——华大基因集团向华盛顿州提出了一项诱人的提议。在一封写给州长的醒目的私人信件中，华大基因提出建立并帮助管理最先进的冠状病毒检测实验室。”《60分钟》节目总结道。
+
+但在国家情报总监办公室的要求下，官员们最终拒绝了这一提议，因为华大基因与中共国政府的关系。
+
+**🔗[原文链接](https://thenationalpulse.com/exclusive/bgi-genomics-gates-foundation-collab/)**
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/BOeNNHDI5F3sq/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/BOeNNHDI5F3sq/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
++1
