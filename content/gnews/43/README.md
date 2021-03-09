@@ -1,50 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语】 闫丽梦的科学报告(一)
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/959142/)
+## 实验室动物短缺或让人类健康控制权落入中共手中
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/959233/)
 
-**制作:Cantonese工作室**
-**配音:【一帘幽梦】 资料整理:【深寒】【Annie 】中文翻译:【喜马拉雅工作站 】校对:【文舜】**
-**海报:【侬民】【MW】剪辑:【星星】**
-视频内容:
+- 编辑：Victor Torres
+- 翻译：gokuabuela
+- 发稿：神奇四侠
 
-**闫博士科学报告（一）**
 
-1,SARS-CoV-2表现出的生物学特征与自然发生的人兽共患病毒不一致。证据表明，SARS-CoV-2 应该是以蝙蝠冠状病毒ZC45和/或ZXC21为模板和/或骨架研制的实验室产物。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-SARS-CoV-2 shows biological characteristics that are inconsistent with a naturally occurring, zoonotic virus.The evidence shows that SARS-CoV- 2 should be a laboratory product created by using bat coronaviruses ZC45 and/or ZXC21 as a template and/or backbone.
+**西班牙2021年3月8日电/西喜社——**
 
-2,SARS-CoV-2：能攻击多个器官,能够进行长时间的无症状感染,具有高度的传染性,在高危人群中具有明显的致死性,自出现之初就很好地适应了人类。
+据ABC新闻3月8日报道，2020年初，中共国作为实验猕猴的主要供应商，表示因担心中共病毒的传播，宣布停止其出口。此举看似合理，但一年后禁令仍在继续，严重伤害了全球多个生物医学研究团体，包括那些寻求中共病毒疫苗的团体。如果没有猴子，一些试验就无法继续进行，重要的成果也会被拖慢，有时会拖上几个月。欧美的实验室竞相在毛里求斯等其他国家获取动物，价格动辄超过6000欧元，是之前的两倍多。
 
-SARS-CoV-2： it attacks multiple organs; it is capable of undergoing a long period of asymptomatic infection; it is highly transmissible and significantly lethal in high-risk populations; it is well-adapted to humans since the very start of its emergence.
+非人类的灵长类动物被用于各种研究领域，从药物和疫苗的临床前开发（安全性和有效性试验）到基因治疗或神经科学研究，例如帕金森病。在所有物种中，由于它们与人类的相似性，在实验中发挥着基本的作用。在欧盟，2017年有8235只非人灵长类动物被用于研究（最新统计的年份），其中25%来自中国。在美国，每年大约有6万个样本的工作，这个比例达到60%，因此对中共国的依赖性更大。
 
-3,支持自然起源论的现有科学论文主要依靠一个单一的证据——之前发现的一种名为RaTG13的蝙蝠冠状病毒. 然而，RaTG13在自然界中的存在及其所报道的序列的真实性正受到广泛质疑。
+为Moderna和强生等制药公司提供实验室猴子的美国公司比奥奎（Bioqual）的首席执行官，马克-刘易斯（Mark Lewis）表示，中共国的出口禁令 “正在减缓对中共病毒和其他疾病如艾滋病的研究”。而且这个问题正在向全世界蔓延。他说：”欧洲的日子可能比美国更难熬。”此外，物价也一路飙升。Bioqual的标本售价在8000到12500欧元之间。之前是3000欧元左右。
 
-The existing scientific publications supporting a natural origin theory rely heavily on a single piece of evidence – a previously discovered bat coronavirus named RaTG13. However, the existence of RaTG13 in nature and the truthfulness of its reported sequence are being widely questioned.
+在西班牙，传统上并没有很多使用非人灵长类动物的习惯。即便如此，去年还是使用了225只食蟹猕猴、1只猕猴和3只狒狒。在2018年欧洲登记的总使用量中，占据接近一半的份额。而它们的原产地，有100多个在亚洲获得，67个在非洲获得，3个在欧洲注册的机构获得。在西班牙”大多数是用来测试药物的安全性和有效性，和一些心理学研究，”西班牙实验动物科学协会（SECAL）主席伊莎贝尔-布兰科解释说。
+AAALAC，一个认可和评估科学中对动物的人道待遇的组织，注意到实验用灵长类动物的短缺。最近，一家欧洲机构因为迟到24小时后，才收到管理部门的批准，结果他们预先谈妥的一只猴子，被其他机构捷足先登了。现在他们只能等夏天了。他说：“这不是唯一的案例。”
 
-4,SARS-CoV-2的基因组序列与中国人民解放军第三军医大学（中国重庆）和南京军区军事医学研究所（中国南京）发现的一种蝙蝠冠状病毒的基因组序列可疑地相似。
+在西班牙塔拉戈纳的卡马尼中心，是欧洲最大的专门销售和饲养实验用动物的地方，目前有2000只猕猴从毛里求斯运来，准备交付给法国、德国或英国的客户。需求非常旺盛。他们说：“它们都已经被订购一空了。”
 
-The genomic sequence of SARS-CoV-2 is suspiciously similar to that of a bat coronavirus discovered by military laboratories in the Third Military Medical University (Chongqing, China) and the Research Institute for Medicine of Nanjing Command (Nanjing, China).
+在AAALAC的执行主席吉伦看来，中共国的行为已经不能用卫生措施来解释。实验用的动物都要经过检疫，而且程序非常严格，他们是非常受控的，风险很小。他说：”有很多声音怀疑这是一个垄断科学研究的战略问题，由此追求更多的经济和技术利益。”
 
-5,SARS-CoV-2刺突蛋白的受体结合基序（RBM）不能从自然界中诞生，而是应通过基因工程制造出来。
+欧洲动物研究协会(EARA)执行董事柯克-李奇(Kirk Leech)几个月前曾警告说，我们正面临着一场重大危机，可能会把人类健康的控制权交给中共国。美国科学家呼吁建立类似于石油或种子的猕猴战略储备。现有的供应量勉强能满足生物医学研究的需要。杜兰大学国家灵长类研究中心主任鲁道夫-博姆警告说：”目前的健康危机加剧了这种短缺。”他呼吁建立国家灵长类动物繁殖基地，留作应急之用。”这将使我们有可能对抗像中共病毒这样的疾病，并为下一次流行病做好准备，”他说。
 
-The receptor-binding motif of SARS-CoV-2 Spike cannot be born from nature and should have been created through genetic engineering
+胡安-加西亚-阿里亚萨说：”在西班牙，我们总是依赖别人。”西班牙正在开发的中共病毒疫苗是在荷兰莱斯韦克生物医学灵长类研究中心（BPRC）的猴子身上进行测试。加西亚-阿里亚萨说：”这延长了实验的时间，因为在西班牙，我们没有这些设施，我们总是依赖别人。”他呼吁在西班牙建立类似的中心。
 
-6,武汉病毒研究所从事了几十年的冠状病毒监测研究，因此拥有世界上最大的冠状病毒收藏库，技术上能进行刺突蛋白／RBM工程和功能增强实验。
+很多不合理的做法，也让西班牙的实验室用动物的发展充满了艰辛。例如，在西班牙要把几只实验用兔子送到加那利群岛，需要先陆路运到德国，再飞往加那利，这需要几天时间，因为西班牙的航空公司害怕动物权力保护者的抗议。而从西班牙直接飞过去，只需要几个小时。
 
-The Wuhan Institute of Virology has engaged in decades-long coronavirus surveillance studies and therefore owns the world’s largest collection of coronaviruses, the technical barrier is non-existent to carry out and succeed in such Spike/RBM engineering and gain-of- function research.
+中共国实施的“完美犯罪”，对所有可能的证据链都做了精心的安排，对实验用动物的出口禁令，不仅仅是“追求更多的经济利益和科学利益”，而是为了尽可能阻扰别国的研究，掩盖犯罪事实，就是“掌握人类健康的控制权”。之前，很少人注意到这个领域，触目惊心，一定要引起重视！
 
-7,SARS-CoV-2的刺突蛋白中存在一个不寻常的弗林酶切位点，与病毒的毒性增强有关。SARS-CoV-2 刺突蛋白中的弗林酶切位点不可能源于自然，而应该是实验室改造的结果。
+全球化的实施，让欧美各国享受到低劳动力成本带来的红利，但却放弃了大量战略物资的控制权。对更多的民众来说，全球主义更像一个乌托邦，整个生态圈都是善良的人，互相紧密合作。但事实上，邪恶势力对供应链源头的垄断就像掐住了人类的脖子，世界处在比冷战更危险的超限战中。战略物资控制权的丢失意味着灭国、灭族、灭种，中共如若得逞就意味着人类文明的巨大倒退甚至毁灭。
 
-An unusual furin-cleavage site is present in the Spike protein of SARS-CoV-2 and is associated with the augmented virulence of the virus.The furin-cleavage site within the SARS-CoV-2 Spike protein is unlikely to be of natural origin and instead should be a result of laboratory modification
+战略资源，甚至一些非战略资源的建设，一定要立足本国。小到口罩生产，药物的基础培养材料，大到实验用动物，都要提升到战略高度，需要立即着手进行。
 
-8,刺突蛋白应该是经过人工操纵的，这些转化使SARS-CoV-2病毒最终成为一种高传染性、发病隐匿性、致死性、后遗症不明确、破坏性大的病原体。
+一切的根本，在于全世界的民众、精英，都必须认识到中共的邪恶，认识到世界一切罪恶的根源是中共，是共产主义思想。不灭中共，人必被灭。21世纪的今天，很明显，人类文明的毒瘤就是：五千年东方暗黑文化与西方邪恶共产主义思想相结合的怪物—中共帝国主义。
 
-The Spike protein should have been artificially manipulated.These transformations have then staged the SARS- CoV-2 virus to eventually become a highly-transmissible, onset-hidden, lethal, sequelae-unclear, and massively disruptive pathogen.
-
-9,显然，SARS-CoV-2可能是通过武汉病毒研究所的功能增强操纵产生的，这种可能性很大，应该进行彻底和独立的调查。
-
-Evidently, the possibility that SARS-CoV-2 could have been created through gain-of-function manipulations at the Wuhan Institute of Virology is significant and should be investigated thoroughly and independently.
+新闻来源:[ABC](https://www.abc.es/ciencia/abci-falta-monos-laboratorio-retrasa-meses-investigaciones-clave-202103071126_noticia.html)
 
 0

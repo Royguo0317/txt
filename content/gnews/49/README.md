@@ -1,43 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】参议员布莱克本敦促NBA披露与中共国家电视台的交易细节
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/959104/)
+## 【粤语】 闫丽梦的科学报告(一)
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/959142/)
 
-作者：纽约香草山    四季
+**制作:Cantonese工作室**
+**配音:【一帘幽梦】 资料整理:【深寒】【Annie 】中文翻译:【喜马拉雅工作站 】校对:【文舜】**
+**海报:【侬民】【MW】剪辑:【星星】**
+视频内容:
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
+**闫博士科学报告（一）**
 
+1,SARS-CoV-2表现出的生物学特征与自然发生的人兽共患病毒不一致。证据表明，SARS-CoV-2 应该是以蝙蝠冠状病毒ZC45和/或ZXC21为模板和/或骨架研制的实验室产物。
 
+SARS-CoV-2 shows biological characteristics that are inconsistent with a naturally occurring, zoonotic virus.The evidence shows that SARS-CoV- 2 should be a laboratory product created by using bat coronaviruses ZC45 and/or ZXC21 as a template and/or backbone.
 
-据零对冲（ZeroHedge）3月7日的报道，参议员玛莎·布莱克本 (Marsha Blackburn) 对近期报道的美国国家篮球协会 (NBA) 与中共中央电视台的新协议提出质疑，她希望NBA专员亚当·西尔弗（Adam Silver）澄清他是否为了重返中国市场而同意对球员的言论自由进行审查。她是美国最新一位对NBA联盟与中共政权关系表示担忧的官员。
+2,SARS-CoV-2：能攻击多个器官,能够进行长时间的无症状感染,具有高度的传染性,在高危人群中具有明显的致死性,自出现之初就很好地适应了人类。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/图片9.png)
+SARS-CoV-2： it attacks multiple organs; it is capable of undergoing a long period of asymptomatic infection; it is highly transmissible and significantly lethal in high-risk populations; it is well-adapted to humans since the very start of its emergence.
 
-布莱克本在3月4日写给西尔弗的信中表示，虽然对中共病毒起源的调查仍在继续，但NBA似乎只专注于修补与中共中央电视台的关系。她要求西尔弗在3月30日之前提供有关交易细节，包括协议是否禁止NBA就西藏、香港、台湾、新疆等被中共政权认为不可接受的话题发表评论，以及央视禁播的财务影响。NBA没有立即回应置评请求。
+3,支持自然起源论的现有科学论文主要依靠一个单一的证据——之前发现的一种名为RaTG13的蝙蝠冠状病毒. 然而，RaTG13在自然界中的存在及其所报道的序列的真实性正受到广泛质疑。
 
-布莱克本认为，在中共主导着全球个人防护设备（PPE）生产的时候，NBA还向中共援助100万美元的医疗用品是非常令人不安的，尤其是在目睹了中共在整个疫情中表现出的不透明以及其持续严重侵犯人权的行为之后。
+The existing scientific publications supporting a natural origin theory rely heavily on a single piece of evidence – a previously discovered bat coronavirus named RaTG13. However, the existence of RaTG13 in nature and the truthfulness of its reported sequence are being widely questioned.
 
-2019年底，时任休斯顿火箭队总经理达里尔·莫雷（Daryl Morey）在推特上发文支持香港的民主抗议者，招致了中共政权的愤怒。中共企业与NBA联盟断绝了联系，中共中央电视台也停止播放NBA赛事。
+4,SARS-CoV-2的基因组序列与中国人民解放军第三军医大学（中国重庆）和南京军区军事医学研究所（中国南京）发现的一种蝙蝠冠状病毒的基因组序列可疑地相似。
 
-长久以来中共都是用这种手段让西方为了金钱和市场放弃西方的价值观和信仰。 在中共掩盖病毒真相造成全球灾难的今天，西方已经觉醒，相信越来越多的西方企业会站在正义一边，让我们拭目以待。
+The genomic sequence of SARS-CoV-2 is suspiciously similar to that of a bat coronavirus discovered by military laboratories in the Third Military Medical University (Chongqing, China) and the Research Institute for Medicine of Nanjing Command (Nanjing, China).
 
-校对/发稿：飞虹
+5,SARS-CoV-2刺突蛋白的受体结合基序（RBM）不能从自然界中诞生，而是应通过基因工程制造出来。
 
-原文链接：
+The receptor-binding motif of SARS-CoV-2 Spike cannot be born from nature and should have been created through genetic engineering
 
-[https://www.zerohedge.com/political/sen-blackburn-wants-nba-come-clean-its-deal-chinese-state-television](https://www.zerohedge.com/political/sen-blackburn-wants-nba-come-clean-its-deal-chinese-state-television)
+6,武汉病毒研究所从事了几十年的冠状病毒监测研究，因此拥有世界上最大的冠状病毒收藏库，技术上能进行刺突蛋白／RBM工程和功能增强实验。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-g-fashion-1.jpg)
+The Wuhan Institute of Virology has engaged in decades-long coronavirus surveillance studies and therefore owns the world’s largest collection of coronaviruses, the technical barrier is non-existent to carry out and succeed in such Spike/RBM engineering and gain-of- function research.
 
+7,SARS-CoV-2的刺突蛋白中存在一个不寻常的弗林酶切位点，与病毒的毒性增强有关。SARS-CoV-2 刺突蛋白中的弗林酶切位点不可能源于自然，而应该是实验室改造的结果。
 
+An unusual furin-cleavage site is present in the Spike protein of SARS-CoV-2 and is associated with the augmented virulence of the virus.The furin-cleavage site within the SARS-CoV-2 Spike protein is unlikely to be of natural origin and instead should be a result of laboratory modification
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+8,刺突蛋白应该是经过人工操纵的，这些转化使SARS-CoV-2病毒最终成为一种高传染性、发病隐匿性、致死性、后遗症不明确、破坏性大的病原体。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+The Spike protein should have been artificially manipulated.These transformations have then staged the SARS- CoV-2 virus to eventually become a highly-transmissible, onset-hidden, lethal, sequelae-unclear, and massively disruptive pathogen.
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+9,显然，SARS-CoV-2可能是通过武汉病毒研究所的功能增强操纵产生的，这种可能性很大，应该进行彻底和独立的调查。
 
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+Evidently, the possibility that SARS-CoV-2 could have been created through gain-of-function manipulations at the Wuhan Institute of Virology is significant and should be investigated thoroughly and independently.
 
 0

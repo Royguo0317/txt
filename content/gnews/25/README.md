@@ -1,53 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 今天的共产党和1930年的希特勒一模一样
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/959617/)
+## 【热点播报】大白话解读中共外交部对美方的喊话
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/959696/)
 
-新闻简述：在2021年3月5日的盖特视频中，郭先生对比1930年代的希特勒和今天的共产党，对比摔倒在会议室的希特勒和董建华，发现了惊人的相似。他让大家要看到信仰的力量。
+作者：纽约香草山农场 正义的小新
 
-**今天的共产党和****1930****年的希特勒一模一样**
 
-**Today’s CCP Is Exactly the Same as Hitler in the 30’s**
 
-我还是那句话，七哥从开始爆料革命就说过：今天的共产党就和当年的希特勒，1930年那时一模一样，到了1935年、36年，他就疯了，34、35、36，到最后的时候攻打苏联彻底完球蛋。西方的自私和西方的资本主义，还有一个整个西方的投机主义，严格讲还有很多沼泽地，当年跟希特勒大量的供给。可能你们没有想到，当年希特勒的所有的战争的经费，绝大多数是犹太的金融机构给的，那么当时是很夸张的。今天的中共的所有的经费，绝大多数来自美国，在他们眼里面是美帝国主义，美帝国主义，是吧？在这种情况下，兄弟姐妹们，今天又何其相似。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-As I always say since the beginning of the Whistleblower Movement, today’s CCP is exactly the same as Hitler in the 30’s. He went nuts in 1935 and 1936, or between 1934 and 1936, and then was completely done after attacking the Soviet Union in his final moment. The selfishness and the capitalism of the westerns, as well as the opportunism prevailing in the entire western world – strictly speaking, many swamps – were the major suppliers to Hitler. It may blow your mind to know that the vast majority of Hitler’s war funding came from Jewish financial institutions. It was very unbelievable back then. Today, the vast majority of the CCP’s funding comes from the United States of America, the so-called American imperialism by them [the CCP], right? From this perspective, brothers and sisters, does it look familiar to you?
 
-但是历史不是重演，千万不要忘了，历史绝对不是重演，是上天给撒旦定下了撒旦定律，撒旦定律就是叫撒旦疯狂到一定的时候，就会出现一个周期性的正义与邪恶的整个的这么一个较量。最后当然撒旦是被灭了，然后是人类走向另外一个高端。但是付出生命代价的人，就是跟随撒旦，相信邪恶能战胜正义的。就像今天的缅甸，还有一年前的香港，还有现在的冠状病毒，还有这些所谓的科学家，什么博士什么什么的。
 
-History doesn’t repeats itself, please don’t forget, history absolutely doesn’t repeat itself. It was God who set Satan’s law, which means that whenever Satan’s insanity reaches certain breaking point, the cyclic battle between the good and evil will occur. In the end, of course, Satan will be defeated. Then all the mankind will be lifted to a higher level, but those who follow Satan and believe that the evil can defeat the good will pay the prices of their lives. Just like today’s Burma, Hong Kong one year ago, the coronavirus nowadays, and those so-called scientists and doctors, you name it.
+3月8日，中共外交部发言人赵立坚主持例行记者会。会上，当被外媒问及中方将如何改善中美关系时，赵立坚表示，美国更有责任主动行动。下面，笔者将用大白话，逐字逐句解读赵立坚的回复。
 
-今天在这个时候，大家要看到“以毒灭共”的重要性。大家更能看到，我们的科学家是难能可贵的，更能看到我们《路德访谈》多么大的压力情况下，坚持真相，他太难了。七哥对这些事杠得住，那他们是没有准备的，他们扛不住啊。你能看到那些博博士，艾莉、冠博士、墨博士，我们所有的这个博士军团，安红妹妹那就甭提了，一天两次，一天一次这么折腾。这些英雄，这都是人类的英雄，绝不是什么爆料革命新中国联邦的英雄。你不是人类的英雄，你不可能成为新中国联邦的英雄。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image-78.png)图源网络
 
-Today, at this very moment, we need to see the significance of “taking down the CCP by spreading the truth about the virus”. More importantly, we shall see how precious our scientists are and how much burden on our Lude Media in order to speak for truth. Way too much for him to bear. I, Brother Seven, can bear such burdens. But for them, it’s too much. Take a look at them, Dr. Bo, Aili, Dr. Guan, Dr. Mo – our all-doctor army, not to mention Sister An Hong. They do the show twice a day or once a day. They are heroes and heroines of mankind, not solely for the New Federal State of China (NFSC). Indeed, if you’re not a hero for the mankind, you can’t be a hero for the NFSC.
+“昨天，王毅国务委员已经就中美关系回答了媒体的提问，阐述了中方立场。我愿再次强调，中方致力于同美方发展不冲突不对抗、相互尊重、合作共赢的关系，同时将继续坚定维护国家主权、安全、发展利益。”
 
-另外一个就是大家相不相信，当时在这个二战的时候，非常多的传奇的故事，包括瑞士整个的后勤通道，当时包括墨索里尼。墨索里尼那个王八蛋支持希特勒，最后是什么下场？可以说是现代版的五马分尸，对不对？大家记住，社会主义来自哪里？来自德国，共产党主义来自德国，就像今天我们想看到过去的尼彩啊，什么黑格尔啊，黑格尔那整个就是胡扯的，那就完全是…你看这些人所有的人都拿女人不当人，所有的人都是要对女人进行统治的，而且流氓主义，独裁主义。而且完全相信依靠的，就叫做所谓的大外宣、宣传手段，绝对相信，绝对把谎言变成真理，全部被消灭。
+**翻译：美国，不要给我找事，我不想和你打。我打你，可以；打了你，你要尊重我。你打我，可不行；你打我，损失了我的利益。台湾香港是我的事，你不要插手，对你没好处。**
 
-What’s more, you may not believe it – during the World War II, there were many stories of legend, including the entire logistic network of Switzerland and the story of Mussolini. Mussolini, the bastard, supported Hitler. What’s his ending? It’s like a modern time version of being drawn and quartered, right? Remember, everyone, where was socialism originated from?  Germany. Communism emerged from Germany. From our current perspective, Nietzsche and Hegel’s philosophy back then is totally nonsense. You see that all these people didn’t treat women as humans, and all these people wanted to rule over women. It’s rogueism and authoritarianism. Besides, they fully believed in the so-called “big foreign-propaganda” and believed that lies can be turned into truth. All of that has been wiped out [from history].
+“希望美方客观理性看待中（共）国和中美关系，顺应时代潮流，摒弃陈旧过时的零和思维，采取理性务实的对华政策，按照两国元首通话精神，同中方相向而行，聚焦合作，管控分歧，推动中美关系重回正轨，更好造福两国和世界人民。”
 
-（大家你看我的衣裳…我现在穿上成新款了现在，G-Fashion决定发展这个新款。）那么董建华这个事情你能看到什么？当年希特勒完蛋前，就是我可以告诉你，就希特勒最后一次所有的将军会议，希特勒从桌子旁边“吧唧”一下摔倒了。这些将军知道，希特勒时代完了，但是这些将军还继续为他干，为什么？你折腾呗，我反正在这捞钱嘛，对不对？知道你不行了，打这个苏联的时候，大家已经知道大势已去。
+**翻译：美国，你冷静点啊，好好考虑清楚我们的关系。现在你大势已去，轮到你听我的了，不要还老想着你是世界警察，那都已经是过去时了。你最好实相点，给我们好的政策。可别忘记你拜登当时和我们习总加速师的新年通话，你拜登的黑材料我们这可都有呢，你做什么事之前先掂量掂量自己啊。说错话，办错事，可别怪我们不客气了！来吧，和我一起来，让我们回到当年一起勾兑的快乐时光，让我们一起开启世界的大重启！这样，我们几句就可以一起继续愉快地割中美两国人和全世界人民的韭菜了。**
 
-Everyone, check out my clothes. What I am wearing now is the new design. G-Fashion decided to promote this new style. That being said, what can you see from Tung Chee-hwa’s falling down? Let me tell you, right before Hitler’s death, during his last meeting with all generals, “Bang”, he fell down by the side of the table. These generals knew that Hitler’s era was over, but they continued to work for him. Why? “Let it be. I’m making my money anyway.” Right? They knew he was about over, which was already clear when fighting against the Soviet Union.
+“中美可以合作、需要合作的清单就放在我们面前。双方应该按照两国元首通话精神，相向而行，共同努力，推动中美关系重回正轨。”
 
-那么这这个情况下，大家一定要牢记的事情，一定会看到信仰的力量。
+**翻译：美国啊，我都把该继续勾兑的事都列好给你了，你不用麻烦啦，直接照着清单做就好了！别忘了拜习的新年两小时通话。我们这可都留了一手呢。你做事前一定要掂量好啊。别怪我们到时候不客气。**
 
-So, at this moment, we must keep this in mind: we will definitely see the power of faith.
+“大家都知道，美国上届政府对中美关系采取的种种倒行逆施，给两国关系造成了严重的损害。我想从这一层面上说，美国政府更有责任采取主动行动和措施。希望美方同中方相向而行，共同努力。”
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+**翻译：全世界都看到，你们川普想把我们共产党搞死，这个加关税，那个制裁，给我们共产党的利益造成了严重的损害。你可别忘了，是我帮助你拜登偷了选举，攀上了总统的宝座。现在该轮到你主动点，是时候报答我们共产党的隆恩了。来，让我们携起手来，共同努力一起勾兑吧！**
 
-视频来源：[https://gtv.org/getter/6042b3e49534a74bcaeff20c](https://gtv.org/getter/6042b3e49534a74bcaeff20c) (00:30-4:21)
+短评：中共在习总加速师-习大神的带领下，其战狼外交已经将牛皮吹上天了。用郭文贵先生的话说，狼蛋都能被中共吹破了。谎话说了一千遍，自己都信了。自以为捏住了拜登的蛋蛋，就可以开始对整个美国指手画脚，在全世界呼风唤雨了。殊不知，拜登这一次又一次尝到被捏住蛋蛋的剧痛， 让其对中共可能更是咬牙切齿，恨之入骨。上帝要其灭亡，必先使其疯狂。莘县阳谷县搭县，咱们走着看！
 
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/952959/](https://gnews.org/zh-hans/952959/)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-1.jpg)
 
-* * *
+编辑/校对/发稿：Irene木木
 
-翻译：【一花一世界】校对：【Isaiah4031】【BruhM】字幕：【Rock小哥】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 0
