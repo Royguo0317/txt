@@ -1,37 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0310.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/964248/)
+## 中共国就香港议员入境澳洲威胁堪培拉
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/964344/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0310.jpeg)
-推文部分经授权转载自：
+撰稿：Shirley
 
-- 川普等政要直譯推[Twitter：](/twitter.com/zhiyitw33)[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
-- 川普等政要直譯推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
-- 川普等政要直译盖文GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
+逃亡中的立法会议员许智峯成为首位获得澳大利亚政府豁免旅行的香港政客，他于周一从伦敦抵达达尔文，将与家人定居澳大利亚。许先生获得了为期12个月的旅游签证，目前处于隔离期。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/16153753291.png)网络图片
+给予许智峯入境澳洲的决定，是澳大利亚向北京发出的一个信号，是对北京持续打压香港民主的反应的重大升级，即澳大利亚政府将在国际上与自由斗士进行更多的接触。这位两个孩子的父亲过去三个月在欧洲和英国游说，要求国际社会对香港国家安全法作出更有力的回应。
 
+这位前民主党立法会议员是反对大陆引渡法案的主要运动者，该法案在2019年和2020年引发了香港超过18个月的抗议活动。他推动了针对香港警方枪杀手无寸铁的少年的刑事起诉案，在与亲北京的议员就国家安全法发生争执后被强行赶出议会，后来在香港民主派政客被北京集体取消资格后领导了抗议活动。
 
+2020年12月，许智峯称他自己、太太及父母共五个户口，涉及几百万元的存款均遭冻结。这些账户涉及多间银行，包括汇丰银行、恒生银行及中银香港。
 
+中共国驻堪培拉大使馆愤怒指责澳大利亚允许香港民主党领袖许智峯入境，称是对其内政的 “干涉，及敦促澳方停止以任何方式干涉香港事务和中国内政”。并威胁道，”否则中澳关系只会受到进一步损害。”
 
-3月10日，据《纽约邮报》英国皇室的“种族歧视”风被继续升温。黑命贵联合创始人之一的欧泊（Opal Tometi）在TMZ媒体发起联合抵制英国皇室的主张。
+许智峯认为，新国安法表明香港政权和北京不会容忍任何抵抗。”这是一个巨大的倒退，我们可以预见，任何泛民主派政客都不会被允许参加公选，”他说。”这是进一步处决和压制不同意见的步骤。””对我来说，更重要的是拿回基本自由和基本权利。”
 
-白人世界种族歧视问题成为焦点，被一些组织放大扭曲，被媒体扩散发酵，他们对可能被极其夸张化、英国王室担心亨利王子宝宝肤色的问题，即所谓“种族歧视”问题反复翻炒和反刍，这是因中共病毒疫情封锁下人们生活极其压抑，而热衷于可能无中生有的八卦吗？一个简单的逻辑，如果皇室真的种族歧视，嫌弃梅根的肤色，为什么不在亨利王子和她交往初期就阻止，还要等到舍弃亲儿子、亲孙子的幸福才反馈吗？媒体为什么无一人质疑？为什么不去把目光集中到该关注的问题？媒体有意无意中成了掀起仇恨白人的帮凶，这些都似乎天衣无缝地配合着中共潘多拉盒子里的“灭白计划”，这些背后又有着怎样的联系？为什么发生在中共即将被追责和审判病毒生化武器来源问题的危机时刻？
+周四，中共将通过新的法律，对国家安全立法进行补充，并赋予北京审查香港立法会候选人和委员会投票选举行政长官的权力。
 
-当英国大不列颠王室面对自己曾经的管辖地香港被中共蹂躏、肆意毁约却无动于衷，可谓颜面尽失之时，又被中共病毒折磨，2020年王室成员先后染疾，最近查尔斯王子已经接种病毒疫苗，女王平日和家族成员视频使用向中共传输数据的Zoom，现在王室居然被公然、直接指责和攻击，大英王国的衰败，是伴随对中共的轻信、绥靖、妥协、软弱，对香港的漠视、对历史和自我的否定，一步步实现的。中共灭白计划在英国启动了。
+莫里森（Scott Morrison）政府为香港公民提供了长达5年的 “避风港 “签证，为那些想要延长在澳居留时间的人，提供了一条通往永久居留权的潜在途径。
 
-所幸的是，中共“3F”世界的套路没变，人们的思想和认识在觉醒。推文下方反馈声强烈，有人批评黑命贵里人员素质低劣，有人反问，你想怎样抵制？难道是以此为借口又制造暴乱？
+工党参议员Kimberley Kitching周二也表示，”澳大利亚应该考虑欢迎香港人，他们只不过是站起来保护一国两制协议中承诺的民主准则和制度。”
+（本文仅代表个人观点）
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-120.png)
+审稿：永远小学生 编辑：五饼二鱼
 
-[https://twitter.com/nypost/status/1369579042781986819?s=20](https://twitter.com/nypost/status/1369579042781986819?s=20)
-（当日持续更新中）
+相关新闻来源：
 
-信息采集：直译推组， 喜马拉雅的文雅
+[https://www.theaustralian.com.au/nation/china-threatens-canberra-over-hk-legislator/news-story/4a90b6991ac008f55b0e9a2e76dbaf49](https://www.theaustralian.com.au/nation/china-threatens-canberra-over-hk-legislator/news-story/4a90b6991ac008f55b0e9a2e76dbaf49)
 
-编辑：康州盘古农场 喜马拉雅的文雅
+[https://www.theaustralian.com.au/nation/politics/wanted-hong-kong-politician-lands-in-australia/news-story/d646175a62d68cd4945bbbc9c3c2a719](https://www.theaustralian.com.au/nation/politics/wanted-hong-kong-politician-lands-in-australia/news-story/d646175a62d68cd4945bbbc9c3c2a719)
 
-封面：康州盘古农场 霹雳年
+[https://www.smh.com.au/world/asia/time-for-a-new-battleground-wanted-hong-kong-legislator-lands-in-australia-20210309-p5792a.html](https://www.smh.com.au/world/asia/time-for-a-new-battleground-wanted-hong-kong-legislator-lands-in-australia-20210309-p5792a.html)
 
-0
+[https://www.bbc.com/zhongwen/simp/chinese-news-55175071](https://www.bbc.com/zhongwen/simp/chinese-news-55175071)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
++1

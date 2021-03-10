@@ -1,34 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲网络安全中心升级中共国黑客攻击的警告
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/963829/)
+## 美国国立卫生研究院的电子邮件显示中共国控制中共病毒信息
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/963890/)
 
-撰稿：Shirley
+翻译：洛杉矶天使农场-Nio
+校对：洛杉矶天使农场-Jessi/詹茜，烟波浩淼
+审核：洛杉矶天使农场- V
 
-一个由中国国家支持的黑客组织，被称为HAFNIUM，已经利用微软Exchange系统的漏洞，对其Outlook电子邮件系统进行大规模渗透。澳大利亚7000台服务器和美国超过3万台服务器受到威胁，全球有 “几十万 “的服务器被入侵。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/16153585951.png)网络图片
-澳大利亚网络安全中心（ACSC）周二升级了警告，敦促莫里森政府和各州紧急 “修补 “他们的电子邮件网络，并保护他们免受试图利用微软漏洞的国家级行为的影响。
+安东尼·福奇（Anthony Fauci）博士是近代美国历史上最有权力的官僚之一，除了《司法观察》之外，实际上一直没有受到国会，媒体或任何其他华盛顿机构的监督和问责。
 
-澳大利亚企业也被告知要紧急保护他们的电子邮件系统。”ACSC已经确定了大量的澳大利亚组织，还没有修补脆弱的微软Exchange版本，”ACSC网站上的安全警报称。
-包括澳大利亚联邦科学与工业研究中心（CSIRO）和各州政府在内，及数千家公司和组织，都依赖微软的Outlook。
+我们和《每日来电者新闻基金会》（Daily Caller News Foundation）从美国卫生与公共服务部（U.S. Department of Health and Human Services）收到了 301页福奇和H.克利福德.莱恩博士（H. Clifford Lane）的电子邮件和其他记录显示，美国国立卫生研究院（NIH）官员根据中共国的条款量身定制了保密表格，以及世界卫生组织（WHO）在2020年1月进行了未发布的“绝密”的中共病毒流行病学分析。
 
-澳大利亚和全世界各地的公司和组织，都正在争分夺秒地阻止来自中国的网络安全威胁。7000多家中的部分组织，包括澳大利亚联邦政府和CSIRO，都表示已经在微软上周发布修复程序后24小时内修补了漏洞。
+此外，这封电子邮件还透露了一名中共国独立记者向美国国立卫生研究院国家过敏与传染病研究所临床研究和特殊项目副主任克里夫.莱恩（Cliff Lane）指出中共国的中共病毒疫情数字不一致的情况 。
 
-微软的情报团队将追踪到的HAFNIUM，评估为一个 “高度熟练和复杂 “的国家支持的黑客组织，”在中国以外的地方活动”，但使用的是位于美国的虚拟服务器。
-微软表示，HAFNIUM一直以各组织机构为目标，希望窃取信息，目标行业部门包括 “传染病研究人员、律师事务所、高等教育机构、国防承包商、政策智库和非政府组织”。
+这些电子邮件是我们代表《每日来电者新闻基金会》在联邦特区法院提起的《信息自由法》（FOIA）诉讼的回应（《每日来电者新闻基金会》诉美国卫生与公众服务部（编号：1:20-cv-01149）） 。
 
-中国外交部发言人在过去一周否认北京参与了此次黑客攻击。
-澳大利亚网络安全的责任由内政部长达顿（Peter Dutton）和国防部长雷诺兹（Linda Reynolds）分担。助理国防部长哈斯蒂（Andrew Hastie）将在雷诺兹长期病假期间承担她的网络职责，但《澳大利亚人报》报道称，哈斯蒂还没有收到关于其角色的正式委任书。
+在美国卫生与公众服务部未能回应《每日来电者新闻基金会》于2020年4月1日提出的《信息自由法》要求后，我们提起了诉讼，寻求：
 
-内政部发言人周二表示，澳大利亚网络安全中心正在继续调查微软网络电邮黑客事件。
-（本文仅代表个人观点）
 
-审稿：永远小学生 编辑：五饼二鱼
+```
+• 福奇博士与莱恩副主任和世卫组织官员就中共病毒进行的通信。
+• 福奇博士和莱恩副主任关于世卫组织，世卫组织官员布鲁斯·艾尔沃德（Bruce Aylward），世卫组织总干事潭德赛·安哈诺姆（Tedros Anhanom）和中共国的通信。
+```
 
-相关新闻来源：
-[https://www.theaustralian.com.au/nation/urgent-warning-to-secure-email-networks-after-chinesebacked-hack-of-microsoft-outlook/news-story/5ac370c9d184d2061bab7ddfabf47ef5](https://www.theaustralian.com.au/nation/urgent-warning-to-secure-email-networks-after-chinesebacked-hack-of-microsoft-outlook/news-story/5ac370c9d184d2061bab7ddfabf47ef5)
-[https://www.news.com.au/technology/online/hacking/china-statesponsored-hacking-group-hafnium-exploit-microsoft-exchange-server/news-story/c737bf3c3e90a96f0636177bd3531eb1](https://www.news.com.au/technology/online/hacking/china-statesponsored-hacking-group-hafnium-exploit-microsoft-exchange-server/news-story/c737bf3c3e90a96f0636177bd3531eb1)
-[https://krebsonsecurity.com/2021/03/at-least-30000-u-s-organizations-newly-hacked-via-holes-in-microsofts-email-software/](https://krebsonsecurity.com/2021/03/at-least-30000-u-s-organizations-newly-hacked-via-holes-in-microsofts-email-software/)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
+
+新的电子邮件包括莱恩与世卫组织技术官员曼苏克. 丹尼尔 .韩（Mansuk Daniel Han)于2020年2月14日至15日进行的有关保密表格的对话。韩写道：“这次的表格是按照中共国的术语量身定制的，因此我们不能使用以前的表格。”
+
+世卫组织于2020年2月13日向前往中共国的国立卫生研究院官员发送了一个简报包，作为回应中共病毒的一部分，要求官员们等到与中共国达成协议后再公开信息。“重要提示：在我们与中共国沟通达成一致意见前，请将此事视为敏感问题，不要公之于众。”
+
+在2020年1月20日的一封电子邮件中，世卫组织官员讨论了他们本月初对中共病毒（COVID-19）进行的流行病学分析，并指出该报告属于“绝密”级别，“仅供”感染危害战略和技术咨询小组（STAG-IH）使用，并且“不应进一步传播”。
+
+在2020年3月4日，在一封中共国《财新传媒》（ Caixin Media）记者曾佳给福奇副手莱恩的电子邮件指出，世卫组织中共国特派团报告中出现的病例数与 武汉市公共卫生委员会报告的不一致：
+
+[世卫组织报告]第6页上说，2019年12月2日，武汉至少有1例临床诊断的中共病毒病例；从1月11日至17日，武汉每天都有新的临床诊断和确诊病例，这与武汉市卫生委员会的数字不一致。
+
+在2020年2月15日的一封电子邮件中， 世卫组织中共国办事处负责人高登·加利亚（Gauden Galea）通知前往中共国的联合特派团成员，他们在中共国的所有活动将由中共国政府的国家卫生委员会安排。
+
+《每日来电新闻基金会》主编伊桑-巴顿说：“这些电子邮件在冠状病毒爆发的早期就定下了基调。很明显世卫组织允许中共国从一开始就控制信息流，所以真正的透明至关重要。”
+
+让我补充一下，这些新获得的电子邮件显示，世卫组织和福奇的美国国立卫生研究院对中共控制中共病毒信息的努力进行了特殊通融。
+
+这是我们与《每日来电者新闻基金会》一起进行持续调查福奇和美国国立卫生研究院对中共病毒大流行的回应获得的最新信息。我们此前揭露的电子邮件显示，一个世卫组织的机构正在推动由福奇博士批准的“特别”支持中共国对中共病毒回应的新闻稿。
+
+9月22日，美国地方法院法官达布尼·L·弗里德里希（Dabney L. Friedrich）下令美国卫生与公共服务部开始处理回应记录。在9月21日的法庭文件中，美国卫生与公共服务部表示，该机构将从11月30日开始，即接到每日呼叫者的《自由信息法》请求八个月后，开始向《每日来电者新闻基金会》提供300页的回应记录。回应记录的总数约为4200条，这将使记录的完整发布推迟到至少到2022年。美国卫生与公共服务部还声称每封电子邮件必须由福奇亲自检查后才能发布。
+
+我预计会收到更多电子邮件，因此，请一如既往继续关注。
+
+原文作者：《司法观察》（Judicial Watch）
+发布时间：2020年3月5日
+原文链接：https://www.judicialwatch.org/tom-fittons-weekly-update/fauci-investigation-update/#anc2
+
 0

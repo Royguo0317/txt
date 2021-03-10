@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印计划建造6艘核动力攻击潜艇对抗中共海军
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/963511/)
+## 日美澳印将举行拜登政府以来首次四国峰会
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/963605/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-10_07-27-35.jpg)[rcinet.ca](https://www.rcinet.ca/eye-on-the-arctic/2018/07/31/russia-china-navy-cooperation-military-defence-security-northern-fleet-severomorsk/)
-《印度斯坦时报》当地时间3月10日报道，印度国家安全规划者对中共不断扩张的海军力量感到担忧，预计中共的航母打击力量将在2023年之前部署在印度洋。为应对中共军事威胁，印度计划建造6艘核动力攻击潜艇以加强国防力量。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-10_07-49-33.jpg)[swarajyamag.com](https://swarajyamag.com/news-brief/quad-first-meeting-prime-ministers-of-india-japan-and-australia-us-president-could-take-place-this-month)
+共同通讯社 (Kyodo News)消息，白宫表示，美国、日本、澳大利亚和印度的领导人计划在周五举行会谈，这将是拜登政府后四方会谈的首次峰会。拜登总统(Joe Biden)领导的美国政府正积极寻求团结其民主盟友和伙伴，以对抗中共在印太地区日益强硬的态度和军事威胁。
 
-美国印太司令部司令菲利普·戴维森(Philip Davidson)表示，鉴于中共日益增强的军事实力及军事扩张野心，外加上中共控制南中国海全球经济通道的企图，中共很可能“强行改变”西太平洋现有秩序。美国加强了与同盟国的合作，美日印澳和战略盟友法国及阿拉伯联合酋长国计划在4月参加在南中国海举行的航母打击群、反潜战机和攻击潜艇的复杂互操作性演习。
+白宫周二在新闻发布会上称，“拜登总统将这列为他最早的多边接触之一，说明我们重视与我们在印度洋-太平洋地区的盟友和伙伴进行密切合作。”发布会强调四方会谈“不是针对任何单一的竞争对手”或挑战，“我们之所以建立和组建这个实体，是因为我们有共同的利益。海上安全当然很重要，但我们的共同利益远远不止于此。”
 
-四方联盟以及包括阿联酋和法国在内的合作伙伴在印度洋-太平洋地区将共同抵抗中共霸权扩张的威胁。强大的美国海军将守住马六甲海峡之外的堡垒，而印度海军及其关键盟友将是印度洋的第一守护者。因此印度急于发展可应对中共海军威胁的军事力量。
+拜登总统、日本首相菅义伟、澳大利亚总理莫里森和印度总理莫迪将在网上峰会上讨论中共病毒疫情、经济合作和气候变化等问题。四方盟友国还将对供应链、新兴和关键技术、海洋安全等挑战交换意见。
 
-印度正计划建造6艘核动力攻击潜艇计划，印度国防研究与发展组织(DRDO)开发了AIP技术，致力于改造印度潜艇功能。他们称，这些计划也应被视为印度海军的一项协同努力，以对抗中共海军的崛起。
+印度外交部在新闻发布会上表示，四国领导人将就保持印度洋-太平洋地区自由开放的合作领域交换意见，同时探索合作机会，确保该地区安全、公平和负担得起的中共病毒疫苗。
 
-中共海军的舰只数量目前超过了美国海军，尽管美国在吨位和能力方面仍领先于中共。退役海军上校、美国太平洋司令部联合情报中心前作战主任卡尔·舒斯特尔（Carl Schuster）指出，中共加快了现代化军事装备和建设，中共的海上导弹发射器数量超过美国，此外还有空中力量。因此美国印太司令部司令戴维森近日提出申请270亿美元的“威慑资金”用于采购新武器、加强与盟友的军事合作及演习，以保持美国在印太地区的战略优势，共同应对中共威胁。
-
-印度政府消息人士透露，美国国防部长劳埃德·奥斯汀可能将于本周访问印度，寻求两国深化军事关系，以对抗中共在亚太地区日益增强的威胁力量。
+上个月，四国外长举行了一次电话会议。据日本外务省称，在那次会议上，部长们一致“强烈”反对中共单方面和强行改变东中国海和南中国海现状的企图。同时四国领导人还讨论了缅甸2月1日军事政变后的局势以及朝鲜等地区问题。
 
 参考链接：
 
-[https://www.hindustantimes.com/india-news/eye-on-china-india-s-plan-for-6-nuclear-powered-attack-submarines-back-on-track-101615327826084.html](https://www.hindustantimes.com/india-news/eye-on-china-india-s-plan-for-6-nuclear-powered-attack-submarines-back-on-track-101615327826084.html)
+[https://english.kyodonews.net/news/2021/03/c36c040ba063-urgent-leaders-of-japan-us-australia-india-to-meet-virtually-fri.html](https://english.kyodonews.net/news/2021/03/c36c040ba063-urgent-leaders-of-japan-us-australia-india-to-meet-virtually-fri.html)
 
 0
