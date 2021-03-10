@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统和郭先生是否已聚首纽约共商灭共大计？
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/962501/)
+## 南非警方警告有中共病毒假疫苗流入市场
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/962585/)
 
-撰文：Isaiah4031
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Trump_20210309_ReturnNewYork-coverphoto.jpeg)
-据《每日邮报》（DailyMail） 和海峡时报（The Straits Times）报道[1,2]，美国总统唐纳德川普于3月7日本周日晚上抵达他位于曼哈顿的川普大厦的家时，在他的黑色座驾内向记者和支持者们挥手致意。本周一也有川普的支持者聚集在大楼的下面欢迎川普总统的归来。媒体和公众并不知道他此行的目的，预计川普将于周二离开纽约，返回佛罗里达。
+俄罗斯莫斯科喀秋莎农场 文秋
 
-然而郭文贵先生3月9日的盖特视频[3]似乎透露出他已与川普总统会面，并谈话中包含灭共议题：“这是川普的家啊，看川普的家，就是最上层，咖啡色那个，他家一整层，一整层，现在曼哈顿就我们俩这整层的房子亮着了，我昨天我看这老人家真有点儿老了…… 但是斗志没减啊，对共产党的认识越来越深刻。”[4]
+编辑上传 水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/S-9-3.jpg)africa.cgtn.com
+据南非《news 24 》3月7日报道称，南非警方称有人为了赚黑心钱疫情期间制作假疫苗， 目前这些假疫苗有些已经流入市场；警告大家不要购买假疫苗，避免让自己面临健康受损和资助有组织犯罪的风险。
 
-那么我们是否可以大胆地猜测，川普总统此行的目的包括与郭先生会面并共商反共大计呢？看来“以毒灭共”、“以钱灭共”势不可挡。
+警方发言人布伦达·穆里迪利（Colonel Brenda Muridili)上校介绍说，去年在南非约翰内斯堡（Johannesburg）近郊杰米斯顿（Germiston）的一座仓库内，他们查获了400瓶相当于2400剂的假疫苗，在现场还发现假M3的N95口罩，这些价值百万。他们逮捕了3名中共国公民及1名赞比亚公民。
 
-参考链接：
+这4名被告分别是30岁的张建（音译），31岁的梁鹏程（音译），41岁的陈建福（音译）和45岁的Charles Chigwedere, 他们最近一次出庭是2月19日在杰米斯顿裁判法院，被控违反假冒商品法、海关和消费法、药品和相关物质法。为了进一步调查，他们的案子被延期至5月28日。
 
-[1] [Trump is back in the Big Apple! Ex-President arrives in NYC alone for the first time since leaving the White House after value of his upstate estate faces new scrutiny as ‘prosecutors want his longtime accountant to turn on him’](https://www.dailymail.co.uk/news/article-9337119/Donald-Trump-arrives-New-York-City.html)
+调查人员担心假疫苗已经流入市场，因为在抓捕这几个人之前，他们已为一个疫苗做了销售广告。警方将继续侦查任何参与有组织犯罪的人，他们试图通过走私、贩卖未经注册的、非法的药品。
 
-[2] [Trump back in New York for first time since leaving office](https://www.straitstimes.com/world/united-states/trump-back-in-new-york-for-first-time-since-leaving-office)
+“未经批准的假疫苗目前有机会通过网上或实体店销售。如果有人购买会将自己置于健康受损和资助有组织犯罪的风险之中。”警方强调。
 
-[3] [https://gtv.org/getter/6047884777cd9a2ce802c252](https://gtv.org/getter/6047884777cd9a2ce802c252)
+原文链接：
 
-[4] [https://gnews.org/zh-hans/962443/](https://gnews.org/zh-hans/962443/)
+[https://www.news24.com/news24/southafrica/news/police-warn-against-possible-fake-vaccines-on-sale-20210307](https://www.news24.com/news24/southafrica/news/police-warn-against-possible-fake-vaccines-on-sale-20210307)
 
-+1
+0
