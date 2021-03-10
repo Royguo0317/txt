@@ -1,34 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲网络安全中心升级中共国黑客攻击的警告
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/963829/)
+## 中共发表社评拙劣回应爆料革命
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/963951/)
 
-撰稿：Shirley
+#### 作者：天鹅 审核：pv0, 慧心/Peace Wind
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-6.jpg)
+3月7日的《路德时评》节目中，解读了白岩松宣布中共进入挨骂傲娇时代。表明了中共在两会之际猖狂的外宣，证明了中共内外部面临着很大的压力。白岩松的发言也是在隐喻中共国走到今天的地步，都拜习总加速师所赐。相比前总统川普时期强烈抨击中共国，当时的美国左派媒体，以及德国、法国等国家都为中共站台，而拜登政府上台后全世界都陆续开始抨击中共，因为西方国家已经逐渐识破中共的完美犯罪计划，看清中共的邪恶本质。这期节目在中共内部、墙内人民中造成了很大反响。中国官媒《环球时报》随即发表社评，“用’骂战’搞晕搞垮中国，想得也太美了”进行了拙劣回应。让我们解读一下，看看从中可以看到哪些内容。
 
-一个由中国国家支持的黑客组织，被称为HAFNIUM，已经利用微软Exchange系统的漏洞，对其Outlook电子邮件系统进行大规模渗透。澳大利亚7000台服务器和美国超过3万台服务器受到威胁，全球有 “几十万 “的服务器被入侵。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/16153585951.png)网络图片
-澳大利亚网络安全中心（ACSC）周二升级了警告，敦促莫里森政府和各州紧急 “修补 “他们的电子邮件网络，并保护他们免受试图利用微软漏洞的国家级行为的影响。
+社评首先表明了中共已经清楚的认识到了西方国家已经逐渐识破中共的灭白计划，正义力量正在集结。评论写道，“在美西方骂声越来越高的时候，我们最重要的首先是保持高度清醒。要准确判断他们叫骂的实际作用和伤害力，确定我方相应的对策，决不让他们主导”。可见，西方国家的媒体已经开始宣传中共种族灭绝、反人类等罪行。对中共的国际威信和影响力造成了很大的影响。但在中共病毒真相的宣传方面还不够，这是我们爆料革命、新中国联邦需要努力的方向。郭先生在最近一期的直播中也提到了G系列媒体的重要作用，战友们要尽快帮助、做强、做大GNEWS、GTV，这对推动灭共进程有着很大的作用。
 
-澳大利亚企业也被告知要紧急保护他们的电子邮件系统。”ACSC已经确定了大量的澳大利亚组织，还没有修补脆弱的微软Exchange版本，”ACSC网站上的安全警报称。
-包括澳大利亚联邦科学与工业研究中心（CSIRO）和各州政府在内，及数千家公司和组织，都依赖微软的Outlook。
+第二，中共在下一个五年计划中会延续之前习总加速师开快车的步伐，继续在灭亡的道路上越走越远。评论写道，“中国的最大战略目标就是顶着美国及主要盟友的骂声，迎着各种反华阴谋和阳谋继续搞好国家的发展”、“既通过必须有的出手立威，也要坚决扩大开放，彻底搅黄美西方一些政治精英在经济上、科技上孤立中国的企图”。清晰地表明了中共在未来几年内的规划，将继续作恶，与全世界为敌，企图通过在某些事件上立威（笔者猜测可能是台湾事件）来震慑西方。同时明确表态会彻底搅黄西方国家，也印证了郭先生说的“蓝金黄”计划、“灭白计划”。当今的中共恰如昔日的纳粹德国，走上了一条不归路。
 
-澳大利亚和全世界各地的公司和组织，都正在争分夺秒地阻止来自中国的网络安全威胁。7000多家中的部分组织，包括澳大利亚联邦政府和CSIRO，都表示已经在微软上周发布修复程序后24小时内修补了漏洞。
+最后，美国仍然是中共想要继续勾兑、拉拢的对象。目前中美敌对的态势让中共忧心忡忡，一切的突破口都在美国。评论写道，“中国一定要致力于保持中美以及中西之间的基本合作面，不断增加彼此跨意识形态合作的粘性和韧性，让它对西方社会产生超越政治的吸引力”。一方面体现了中共目前与美国、西方世界的合作关系已经面临着破裂，另一方面也揭示了中共仍然寄希望于通过勾兑、利益交换来拉拢美国。妄图通过“蓝金黄”等手段形成超越民意等一切的吸引力。
 
-微软的情报团队将追踪到的HAFNIUM，评估为一个 “高度熟练和复杂 “的国家支持的黑客组织，”在中国以外的地方活动”，但使用的是位于美国的虚拟服务器。
-微软表示，HAFNIUM一直以各组织机构为目标，希望窃取信息，目标行业部门包括 “传染病研究人员、律师事务所、高等教育机构、国防承包商、政策智库和非政府组织”。
+战友们，西方世界左媒已经掀起了反共的大潮，越来越多国家、媒体的焦点聚焦到了种族灭绝、反人类罪、中共病毒上，中共的真面目即将被揭开。以毒灭共、全球灭共正在迎来高潮。爆料革命、新中国联邦将继续做大GNEWS、GTV，通过社交媒体为全世界人民揭露中共谎言，传播中共病毒、“灭白计划”真相，坚持唯真不破，正道主义。战友们，人民觉醒的力量是无法阻挡的，排山倒海的力量将会打向中共，共产党你完了！
 
-中国外交部发言人在过去一周否认北京参与了此次黑客攻击。
-澳大利亚网络安全的责任由内政部长达顿（Peter Dutton）和国防部长雷诺兹（Linda Reynolds）分担。助理国防部长哈斯蒂（Andrew Hastie）将在雷诺兹长期病假期间承担她的网络职责，但《澳大利亚人报》报道称，哈斯蒂还没有收到关于其角色的正式委任书。
+参考信息：
 
-内政部发言人周二表示，澳大利亚网络安全中心正在继续调查微软网络电邮黑客事件。
-（本文仅代表个人观点）
+《路德时评》3/8/2021
 
-审稿：永远小学生 编辑：五饼二鱼
+[https://gtv.org/video/id=60462a1ef3b53470acf3e7e9](https://gtv.org/video/id=60462a1ef3b53470acf3e7e9)
 
-相关新闻来源：
-[https://www.theaustralian.com.au/nation/urgent-warning-to-secure-email-networks-after-chinesebacked-hack-of-microsoft-outlook/news-story/5ac370c9d184d2061bab7ddfabf47ef5](https://www.theaustralian.com.au/nation/urgent-warning-to-secure-email-networks-after-chinesebacked-hack-of-microsoft-outlook/news-story/5ac370c9d184d2061bab7ddfabf47ef5)
-[https://www.news.com.au/technology/online/hacking/china-statesponsored-hacking-group-hafnium-exploit-microsoft-exchange-server/news-story/c737bf3c3e90a96f0636177bd3531eb1](https://www.news.com.au/technology/online/hacking/china-statesponsored-hacking-group-hafnium-exploit-microsoft-exchange-server/news-story/c737bf3c3e90a96f0636177bd3531eb1)
-[https://krebsonsecurity.com/2021/03/at-least-30000-u-s-organizations-newly-hacked-via-holes-in-microsofts-email-software/](https://krebsonsecurity.com/2021/03/at-least-30000-u-s-organizations-newly-hacked-via-holes-in-microsofts-email-software/)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
+社评：用“骂战”搞晕搞垮中国，想得也太美了
+
+[https://opinion.huanqiu.com/article/42Dw8CsuHmD](https://opinion.huanqiu.com/article/42Dw8CsuHmD)
+
+* * *
+
+*发布：法国巴黎七星农场编辑组*
+
 0
