@@ -1,33 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共持续扩建福建沿海的空军基地，起飞后7分钟内到台湾
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/963236/)
+## 河南话顺口溜唱“脱贫”，人大代表李连成火爆了
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/963356/)
 
-文章作者：台湾宝岛准农场 台湾米粉
-![]()![](https://gnews.org/wp-content/uploads/2021/03/B01A00_T_01_02.jpg)
-(图片来源：[中时新闻网](https://www.chinatimes.com/newspapers/20200919000421-260118?chdtv))
+撰稿：八宝粥
 
-根据台湾英文新闻(Taiwan News)华武杰(Keoni Everington)的报导，中共正在福建省扩建最接近台湾的两个空军基地-龙田和惠安基地，这两个基地分别距离台湾170公里和190公里，中共战机可以在7分钟内到达台北。
+【墙国新闻谎】 在中共国十三届全国人大四次会议在京召开期间，全国人大代表、西辛庄村党支部书记李连成溜须拍马地谈起乡村振兴，敢于创新，改以河南话的顺口溜说唱来代替工作汇报，并代表河南农民表达对党的衷心感谢。
 
-卫星图像显示，这两个设施的跑道均已进行了翻新和扩建。在战时，这些机场既可以充当过境枢纽，也可以充当轰炸机庇护所的基地。去年年底，台湾军方已针对解放军扩建基地作出了对应行动，开始全面审查各个地区的防御战斗准备情况，并重新调整了淡水河区域的火力集中度。最近，有民众在淡水河河口入口处看到了复仇者防空飞弹系统(AN / TWQ-1)的车辆。
+党支书李连成一夜成名变网红，也带火了河南话的顺口溜。句句实话，不忘押韵，朗朗上口。
 
-退役的台湾空军副司令张延廷中将告诉新闻社，龙田和惠安基地非常靠近台湾。从这些机场起飞的战斗机可以在起飞后约七分钟内到达台北。他表示基地设在原地具有很大的战术价值，因为它们可以节省时间，燃料和人力。张指出，这些基地相对地也容易受到台湾部队的反击，在发生战争时会降低其价值。
+其中最经典的一句：**“贫困的农民脱贫了… 历朝历代没做到!”**
 
-张说，正是由于这些基地的突然扩大，台湾总参谋长黄曙光去年命令军方在各个战区针对空中的战力，兵力和战术位置进行了详细的审查。总参谋长要求在基地外部署雷达和武器，以提高其效力并降低其脆弱性，并要求军队更加紧密地结合起来，以监视台湾的空中和海洋空间。最近，AN / TWQ-1车辆增加了淡水区的鹰式飞弹部队部署。此外，空军计划在澎湖进行实弹演习，包括从阿帕奇陆军直升机配备AGM-114地狱火飞弹。
+![](https://lh3.googleusercontent.com/mGbsVX8nVj6Se20ourPiLVd1bPmkOAFNhZnDSSBhRaQFNL4pu8f7_De6cb1wmaQNq7vSfz5XkJGVaCHaF6c5i8Hj1wrEkYDiBEWsU4J16xMOVB58LUc6A7wa4DIYFYMXzLZzF2AS)
 
-评论:中共意欲攻打台湾的行动愈来愈明显，不管是增加战机扰台的频率，或者是扩建东南沿海的空军基地，在在都表示其武攻的意图。中共无视内部经济、政治、社会各方面的动荡持续增加，对外在香港恢复一国一制、在东南亚暗地支持缅甸军政府镇压示威民众、并且目标武力攻打台湾。黎明来临之前的时刻最为黑暗，中共愈是疯狂、愈是加速其死亡的节奏。没有中共的世界，是我们获得幸福的必须。
 
-新闻出处: [China expands its 2 air force bases closest to Taiwan](https://www.taiwannews.com.tw/en/news/4145038)
+顺口溜全文：
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+```
+新时代的制度好
+俺农民心里忘不了
+ 
+贫困的农民脱贫了
+历朝历代没做到
+ 
+农民种粮“直补多”
+国家实行了新农合
+贫困户享低保
+孩子上学全免了
+村村都通水泥路
+农民说了
+新时代条条致富
+阳光道
+```
 
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
-文章审核：zhong
 
-文章发布：Little Liu
+【参考来源】
+
+**视频链接：**[https://haokan.baidu.com/v?vid=11869116439472052602&pd=bjh&fr=bjhauthor&type=video](https://haokan.baidu.com/v?vid=11869116439472052602&amp;pd=bjh&amp;fr=bjhauthor&amp;type=video)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/03-09-lies-jingle03-1.png)
+
+
+【**责任编辑**】：bingo 旧金山文宣组
+
+【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+**欢迎战友加入旧金山金喜准农场**
+
+[旧金山金喜准农场 GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+
+[旧金山金喜准农场 Discord](https://discord.gg/QQzQ79grEA)
+
+[旧金山金喜准农场 Twitter](https://twitter.com/sf_himalaya)
 
 0

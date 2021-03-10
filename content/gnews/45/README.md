@@ -1,25 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统和郭先生是否已聚首纽约共商灭共大计？
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/962501/)
+## 警惕灭共变灭习
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/962625/)
 
-撰文：Isaiah4031
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Trump_20210309_ReturnNewYork-coverphoto.jpeg)
-据《每日邮报》（DailyMail） 和海峡时报（The Straits Times）报道[1,2]，美国总统唐纳德川普于3月7日本周日晚上抵达他位于曼哈顿的川普大厦的家时，在他的黑色座驾内向记者和支持者们挥手致意。本周一也有川普的支持者聚集在大楼的下面欢迎川普总统的归来。媒体和公众并不知道他此行的目的，预计川普将于周二离开纽约，返回佛罗里达。
+作者：DC令狐冲
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image-96.png)
+自1月20日川普总统离开白宫到今天，世界局势已经发生了巨大变化。我们惊奇地发现，各种左媒，各派亲共势力包括各国的科学家都出来公开质疑中共在这场所谓新冠病毒中的各项政策和行为，很多人甚至公开指责中共隐瞒疫情真相并完全不承认中共和WHO的病毒自然来源学说。有部分媒体和科学家直指中共才是这场灾难的始作俑者，病毒来自于中共的实验室。其他关于中共及亲共势力亲共个人的丑闻和不利消息也开始满天飞舞。这真是让我们这些爆料革命的忠实追随者大喜过望而又有些不解。
 
-然而郭文贵先生3月9日的盖特视频[3]似乎透露出他已与川普总统会面，并谈话中包含灭共议题：“这是川普的家啊，看川普的家，就是最上层，咖啡色那个，他家一整层，一整层，现在曼哈顿就我们俩这整层的房子亮着了，我昨天我看这老人家真有点儿老了…… 但是斗志没减啊，对共产党的认识越来越深刻。”[4]
+难道这些左媒和亲共势力变了方向？
 
-那么我们是否可以大胆地猜测，川普总统此行的目的包括与郭先生会面并共商反共大计呢？看来“以毒灭共”、“以钱灭共”势不可挡。
+非也！根据郭先生的说法和路德社的分析，我认为发生现在这种情况，一方面是由于郭先生和爆料革命的积极推动，并主动和各派沼泽地的力量通过利益的合作，在灭共上达成进一步的共识。
 
-参考链接：
+另一方面，是由于中共自身的内斗造成的结果，江派为了保财保命必须要在这场内斗中彻底消灭习派，所以除了在国内和习派殊死搏斗，还发动他们控制的海外一切力量对习派进行打击抹黑，由于江派在海外势力庞大，控制着大量的媒体和各种政治势力以及各种关键岗位上的大小鳄鱼，所以这一波对习派在海外势力的打击异常猛烈。
 
-[1] [Trump is back in the Big Apple! Ex-President arrives in NYC alone for the first time since leaving the White House after value of his upstate estate faces new scrutiny as ‘prosecutors want his longtime accountant to turn on him’](https://www.dailymail.co.uk/news/article-9337119/Donald-Trump-arrives-New-York-City.html)
+我们当然乐见中共内斗进一步加剧，用郭先生的话说就是他们斗得越厉害对灭共越有利，对爆料革命越有利。但是需要高度警惕的是江派企图通过灭习不灭共来达到保财保命金蝉脱壳的目的。
 
-[2] [Trump back in New York for first time since leaving office](https://www.straitstimes.com/world/united-states/trump-back-in-new-york-for-first-time-since-leaving-office)
+江派的如意算盘是在内斗胜利后把习派拉出去顶罪，所有的锅都让习派去背，包括这次病毒和操控美国大选都会让习派背锅，世界各国要清算就把目标对准习派，要赔偿就拿习派资产去赔偿，如果再把习派推出去背黑锅后能蒙混过关那就继续用共产党的名义执政。
 
-[3] [https://gtv.org/getter/6047884777cd9a2ce802c252](https://gtv.org/getter/6047884777cd9a2ce802c252)
+如果由于共产党的名声太臭必须要放弃，江派也仍然会以灭习有功自居，并主动提出废除共产党体制然后华丽转身，重新换个名称执掌政权，他们甚至会在跟各国沼泽地势力勾兑后化身几个政党，玩起西方三权分立那一套政治游戏，最终就是换汤不换药，即使中共表面上灭了，执政的还是江派。郭先生曾经生动有趣地形容过这种情况有可能发生，他说假使有一天你发现江派人马突然出现在天安门城楼上并宣布中国人民又获得新生了，又要进一步改革开放了，这个时候你一点也不要觉得奇怪！
 
-[4] [https://gnews.org/zh-hans/962443/](https://gnews.org/zh-hans/962443/)
+编辑： 雪山
 
-+1
+发布： GLC
+
+0

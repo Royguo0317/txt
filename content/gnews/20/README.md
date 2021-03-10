@@ -1,37 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “IT威胁情况4/红色”-中国黑客劫持了57,000台德国服务器
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/962827/)
+## 【每日快讯】9/03/2021:在这一轮上海股市的血洗中无数战友、同胞血本无归
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/963025/)
 
-```
-新闻来源：《世界报》 
-发布：2021年3月8日
-记者：本尼迪克特·福斯特（Benedikt Fuest）
-翻译整理/简评：Shuizhuyu
-```
+**制作:Cantonese工作室**
+**播报：【Elaine】 资料整理：【闪电】【Elaine】【文依】【Ruby 】海报制作：【小豆芽】【米线 】视频制作：【文德】上传:【星星】**
+摘要:
 
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/45264783_303-1.jpg)图片来源：德国之声中文网
-
-中国黑客已经渗透到世界各地成千上万的微软 Exchange电子邮件服务器。黑客的目标是公司，政府和研究人员的手中的敏感数据。微软希望通过更新来回应。但是对于公司而言仍然存在相当大的危险。
-
-在本周初，联邦信息安全办公室（BSI）向被黑客的公司发出了邮件并警告， 要求重视这个邮件并及时采取措施。 成千上万的德国公司受到了微软Exchang中的漏洞的影响。对于其中的9,000个服务器，美国联邦办公室（Federal Office）估计，该漏洞已经被黑客利用， 邮件被劫持或者被阅读。 有些邮件甚至不能被发送。
-
-在美国联邦办公室发出的警告信的上方写着“ IT威胁情况4 /红色”，其中专家警告， 微软已经在上周进行了几次的更新， 以期望能够弥补漏洞的后果。但是，对于全球许多受影响的公司和主管机构而言，现在已经为时已晚。 BSI在分析中写道：“根据服务器搜索引擎Shodan的说法，该漏洞可能会影响德国大约57,000台服务器。”
-
-#### 简评： 
-
-**全球的IT行业对黑客的攻击进行过不懈的努力。 但是这次的攻击针对的是公司， 政府机构以及研究机构， 用意不难设想。 中共在不断的突破道德和法律的底线，去偷窃盗取。 我们现在正在面临的病毒危机， 偷盗美国的大选， 现在受到的服务器的攻击，这一切的一切都是中共在作恶。 世界上正义力量， 对这样的恶行， 还要忍耐多久？ 对待这样的一个流氓政党， 不灭之还有其他的选择吗？**
-
-**（免责声明：本文的简评只代表译者观点，跟GNEWS平台无关。）**
-
-**🔗新闻来源链接：**
-
-[„IT Bedrohungslage 4/ ROT“ – China-Hacker kapern 57.000 deutsche Server](https://www.welt.de/wirtschaft/article227856437/Datenleck-bei-Microsoft-Chinesische-Hacker-kapern-57-000-deutsche-Server.html)
-
-* * *
-
-**编辑整理: **Ting Guo
-
-0
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-60.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2-31.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-43.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4-26.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/0-5.jpg)
++1
