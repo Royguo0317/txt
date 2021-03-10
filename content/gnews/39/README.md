@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世卫称中共病毒&#8221;疫苗护照&#8221;不应用于国际旅行
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/962394/)
+## 南非警方警告有中共病毒假疫苗流入市场
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/962585/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+俄罗斯莫斯科喀秋莎农场 文秋
 
+编辑上传 水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/S-9-3.jpg)africa.cgtn.com
+据南非《news 24 》3月7日报道称，南非警方称有人为了赚黑心钱疫情期间制作假疫苗， 目前这些假疫苗有些已经流入市场；警告大家不要购买假疫苗，避免让自己面临健康受损和资助有组织犯罪的风险。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+警方发言人布伦达·穆里迪利（Colonel Brenda Muridili)上校介绍说，去年在南非约翰内斯堡（Johannesburg）近郊杰米斯顿（Germiston）的一座仓库内，他们查获了400瓶相当于2400剂的假疫苗，在现场还发现假M3的N95口罩，这些价值百万。他们逮捕了3名中共国公民及1名赞比亚公民。
 
-**西班牙2021年3月9日电/西喜社——**据美联社3月9日报道，世界卫生组织的一位高级官员说，中共病毒”疫苗护照 “不应该用于国际旅行，因为有许多顾虑，包括中共病毒疫苗在全球范围内不容易获得的伦理考虑。
+这4名被告分别是30岁的张建（音译），31岁的梁鹏程（音译），41岁的陈建福（音译）和45岁的Charles Chigwedere, 他们最近一次出庭是2月19日在杰米斯顿裁判法院，被控违反假冒商品法、海关和消费法、药品和相关物质法。为了进一步调查，他们的案子被延期至5月28日。
 
-在周一的新闻发布会上，世卫组织紧急情况负责人迈克尔-瑞安博士表示，对于考虑使用疫苗认证作为旅行条件的国家来说，有 “真正的实际和道德考虑”，并补充说，联合国卫生机构建议暂时不要这样做。
+调查人员担心假疫苗已经流入市场，因为在抓捕这几个人之前，他们已为一个疫苗做了销售广告。警方将继续侦查任何参与有组织犯罪的人，他们试图通过走私、贩卖未经注册的、非法的药品。
 
-“疫苗接种在全世界范围内不够用，而且肯定不是在公平的基础上提供的，”瑞安说。世卫组织此前曾指出，众多获得许可的中共病毒疫苗的免疫力能持续多久仍是未知数，数据仍在收集中。
+“未经批准的假疫苗目前有机会通过网上或实体店销售。如果有人购买会将自己置于健康受损和资助有组织犯罪的风险之中。”警方强调。
 
-瑞安还指出，这一策略可能对因某些原因不能接种疫苗的人不公平，要求疫苗护照可能会让 “不公平和不公正（进一步）烙印在系统中”。
+原文链接：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/7860a149-021d-4639-b88e-4e26b3f36bb2.jpg)
-
-**新闻来源：[美联社](https://apnews.com/article/technology-world-news-coronavirus-vaccine-coronavirus-pandemic-united-nations-937fd3578c34da96e2632b6288a7bdc9)**
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
+[https://www.news24.com/news24/southafrica/news/police-warn-against-possible-fake-vaccines-on-sale-20210307](https://www.news24.com/news24/southafrica/news/police-warn-against-possible-fake-vaccines-on-sale-20210307)
 
 0
