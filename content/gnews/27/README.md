@@ -1,34 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲网络安全中心升级中共国黑客攻击的警告
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/963829/)
+## 【各抒己见】中共特产的洗脑“精神”
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/963842/)
 
-撰稿：Shirley
+作者：喜马拉雅东京樱花团 / 待命（文晓）
 
-一个由中国国家支持的黑客组织，被称为HAFNIUM，已经利用微软Exchange系统的漏洞，对其Outlook电子邮件系统进行大规模渗透。澳大利亚7000台服务器和美国超过3万台服务器受到威胁，全球有 “几十万 “的服务器被入侵。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/16153585951.png)网络图片
-澳大利亚网络安全中心（ACSC）周二升级了警告，敦促莫里森政府和各州紧急 “修补 “他们的电子邮件网络，并保护他们免受试图利用微软漏洞的国家级行为的影响。
+![](https://lh4.googleusercontent.com/1MzEe4sGp8pSFyq6b_pbh1K39c2y_9GcDIx-q9oia3a7hRdAZt9Teu5QZcjR4emIeJl8NOw25u82UpOT8JSJzf6Hz74E8ejgpUFSyQ3dK4AmnXkEA7TaQq7x4hR4ZpGYKTL4gfJ3)
+[图片源自](https://hqsb06.wordpress.com/2016/07/21/%E5%8F%B6%E6%B0%91%E4%B8%BB-%E6%B4%97%E8%84%91%E6%96%87%E5%8C%96%E4%BD%BF%E4%B8%AD%E5%9B%BD%E4%BA%BA%E8%84%91%E6%AE%8B%E5%8C%97%E4%BA%AC%E4%B9%8B%E6%98%A5/)
 
-澳大利亚企业也被告知要紧急保护他们的电子邮件系统。”ACSC已经确定了大量的澳大利亚组织，还没有修补脆弱的微软Exchange版本，”ACSC网站上的安全警报称。
-包括澳大利亚联邦科学与工业研究中心（CSIRO）和各州政府在内，及数千家公司和组织，都依赖微软的Outlook。
+前天微信圈看到一个很搞笑的图片，图片上醒目的写着“中国政府创造了90多种精神”。墙国生墙国长的我们，以各种方式被学习、被执行各种“精神”，早就习以为常了。看到这个图片那一刻，顿感自己早已被中共那些特制的“精神”给“神经”了。
 
-澳大利亚和全世界各地的公司和组织，都正在争分夺秒地阻止来自中国的网络安全威胁。7000多家中的部分组织，包括澳大利亚联邦政府和CSIRO，都表示已经在微软上周发布修复程序后24小时内修补了漏洞。
+按照 “中共精神制造厂”的大概出场顺序罗列，想都不用想，张口就来的就有“长征精神”、 “延安精神”、“井冈山精神”、 “西柏坡精神”、“窑洞精神”、 “ 抗战精神”、 “雷锋精神”、 “铁人精神”、“大庆精神”、“大寨精神”、 “红旗渠精神”、 “五四精神”、 “两弹一星精神”、 “斗私批修敢字当头精神”、 “中华民族的核心精神”、 “伟大民族精神”、 “爱国精神”、“爱国主义精神”、 “奉献精神”、 “革新精神”、 “抗洪精神”、 “拼搏精神”、“革命精神”、“忘我精神”、“无私奉献精神”、 “中国共产党优良革命精神”、“自强精神”、“创新精神”、“团结精神”、“协同精神”、 “体育精神”、 “中国精神”、 “五讲四美三热爱精神 ”、“劳动精神”、“新时代精神”等等数不清的精神……
 
-微软的情报团队将追踪到的HAFNIUM，评估为一个 “高度熟练和复杂 “的国家支持的黑客组织，”在中国以外的地方活动”，但使用的是位于美国的虚拟服务器。
-微软表示，HAFNIUM一直以各组织机构为目标，希望窃取信息，目标行业部门包括 “传染病研究人员、律师事务所、高等教育机构、国防承包商、政策智库和非政府组织”。
+“精神”这两个字原本是褒义词，被中共如此滥用，愚民无度、泛滥成灾，以至于沦为今天的笑话。我们从小被灌输的就是毛泽东带领伟大的中国共产党如何如何的了不起、如何如何的战天斗地，电影里只要是共产党的干部，大多是不吃不喝、可上天可入地、坐怀不乱的光辉形象。就像《红灯记》里的李奶奶、李玉和、李铁梅祖孙三代，智取威虎山里的常宝、猎户老常、杨子荣，清一色光棍儿，好像都是些不食人间烟火的人。如果不是文贵先生的爆料革命，至今我们也不一定了解中共的乱伦、淫乱。再联想上面说的“窑洞精神”，战友们，啥感觉？
 
-中国外交部发言人在过去一周否认北京参与了此次黑客攻击。
-澳大利亚网络安全的责任由内政部长达顿（Peter Dutton）和国防部长雷诺兹（Linda Reynolds）分担。助理国防部长哈斯蒂（Andrew Hastie）将在雷诺兹长期病假期间承担她的网络职责，但《澳大利亚人报》报道称，哈斯蒂还没有收到关于其角色的正式委任书。
+还有所谓的“雷锋精神”，雷锋晚上在被窝里看毛著，都有人给拍照。现在想想，这是多不现实、多没常识的宣传。可为什么那么多年、那么多人就那么的相信呢？是中国人都很笨吗？NO！这就是常年被洗脑的结果。
 
-内政部发言人周二表示，澳大利亚网络安全中心正在继续调查微软网络电邮黑客事件。
-（本文仅代表个人观点）
+中共隔几天弄出一个“精神”，让百姓们去学习、去感动、去模仿，他们自己却躲起来撒欢儿双修，荒淫无度。如此治国，以致中华大好河山污染不堪、人民懒于思考，甚至已经失去了思考的本能。
 
-审稿：永远小学生 编辑：五饼二鱼
+中共特产的洗脑“精神”害了这个国家、害了几代国民。罪不可赦！
 
-相关新闻来源：
-[https://www.theaustralian.com.au/nation/urgent-warning-to-secure-email-networks-after-chinesebacked-hack-of-microsoft-outlook/news-story/5ac370c9d184d2061bab7ddfabf47ef5](https://www.theaustralian.com.au/nation/urgent-warning-to-secure-email-networks-after-chinesebacked-hack-of-microsoft-outlook/news-story/5ac370c9d184d2061bab7ddfabf47ef5)
-[https://www.news.com.au/technology/online/hacking/china-statesponsored-hacking-group-hafnium-exploit-microsoft-exchange-server/news-story/c737bf3c3e90a96f0636177bd3531eb1](https://www.news.com.au/technology/online/hacking/china-statesponsored-hacking-group-hafnium-exploit-microsoft-exchange-server/news-story/c737bf3c3e90a96f0636177bd3531eb1)
-[https://krebsonsecurity.com/2021/03/at-least-30000-u-s-organizations-newly-hacked-via-holes-in-microsofts-email-software/](https://krebsonsecurity.com/2021/03/at-least-30000-u-s-organizations-newly-hacked-via-holes-in-microsofts-email-software/)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
-0
+*免责申明：本文只代表作者观点，与GNews网站无关*
+
+*校对：喜马拉雅东京樱花团 / 東洋武士*
+
+*责任编辑：喜马拉雅东京樱花团 /**煙火1095*
+
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews.org/wp-content/uploads/2021/03/二维码-1.jpg)
+0309C060c
+
+
+
++1

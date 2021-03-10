@@ -1,27 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印计划建造6艘核动力攻击潜艇对抗中共海军
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/963511/)
+## 美印太司令呼吁在西太平洋部署陆基进攻武器
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/963527/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-10_07-27-35.jpg)[rcinet.ca](https://www.rcinet.ca/eye-on-the-arctic/2018/07/31/russia-china-navy-cooperation-military-defence-security-northern-fleet-severomorsk/)
-《印度斯坦时报》当地时间3月10日报道，印度国家安全规划者对中共不断扩张的海军力量感到担忧，预计中共的航母打击力量将在2023年之前部署在印度洋。为应对中共军事威胁，印度计划建造6艘核动力攻击潜艇以加强国防力量。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-10_07-41-51.jpg)[youtube.com](https://www.youtube.com/watch?v=YYxnXthobXU)
 
-美国印太司令部司令菲利普·戴维森(Philip Davidson)表示，鉴于中共日益增强的军事实力及军事扩张野心，外加上中共控制南中国海全球经济通道的企图，中共很可能“强行改变”西太平洋现有秩序。美国加强了与同盟国的合作，美日印澳和战略盟友法国及阿拉伯联合酋长国计划在4月参加在南中国海举行的航母打击群、反潜战机和攻击潜艇的复杂互操作性演习。
+路透社3月9日报道，除了近日美军对西太平洋海上军事战略进行了重新部署，美国亚太事务高级海军上将在周二又提出美国军方在西太平洋需要更多的远程武器，包括陆基武器。这凸显了美国对中共日益增长的军事力量，特别是对其导弹力量的担忧。
 
-四方联盟以及包括阿联酋和法国在内的合作伙伴在印度洋-太平洋地区将共同抵抗中共霸权扩张的威胁。强大的美国海军将守住马六甲海峡之外的堡垒，而印度海军及其关键盟友将是印度洋的第一守护者。因此印度急于发展可应对中共海军威胁的军事力量。
+拜登政府已经表示，美国打算与中共在亚太地区日益增长的影响力和军事力量竞争，五角大楼正在对其在该地区的战略进行评估。美国印太司令部司令菲利普·戴维森(Philip Davidson) 表示，不仅空军和海军，建设更广泛基础的远程精确打击火力的地面部队在西太平洋战略中也是至关重要的。
 
-印度正计划建造6艘核动力攻击潜艇计划，印度国防研究与发展组织(DRDO)开发了AIP技术，致力于改造印度潜艇功能。他们称，这些计划也应被视为印度海军的一项协同努力，以对抗中共海军的崛起。
+2月10日，美国国防部专门成立对中共战略的国防工作组，针对美国如何防范中共军事威胁启动了全面备战计划。美国国防部长奥斯汀（Lloyd Austin）表示，美国致力于维护国际秩序，而中共为自身利益“不断破坏”秩序，中共威胁是美国的“首要挑战”。而随着中美军事对抗的一步步升级，美国认识到中共的侵略性和独裁霸权思维，让美国与中共爆发核战争存在真实可能。美军现在最关心的是中共的战略核潜艇对美国的威胁。
 
-中共海军的舰只数量目前超过了美国海军，尽管美国在吨位和能力方面仍领先于中共。退役海军上校、美国太平洋司令部联合情报中心前作战主任卡尔·舒斯特尔（Carl Schuster）指出，中共加快了现代化军事装备和建设，中共的海上导弹发射器数量超过美国，此外还有空中力量。因此美国印太司令部司令戴维森近日提出申请270亿美元的“威慑资金”用于采购新武器、加强与盟友的军事合作及演习，以保持美国在印太地区的战略优势，共同应对中共威胁。
+因两国的地理位置，让双方的对抗集中在海军和航空导弹部署。因此，美国为了国防安全，需要在中共战略核潜艇活动的重点区域加强防范。美国建议沿着第一岛链增加陆基武器，第一个岛链是从日本列岛开始，经过台湾、菲律宾，一直延伸到婆罗洲，包围了中共的沿海海域。美军已提出在2022财年计划投入4.08亿美元，在2023至2027财年计划需要29亿美元的军事支出。
 
-印度政府消息人士透露，美国国防部长劳埃德·奥斯汀可能将于本周访问印度，寻求两国深化军事关系，以对抗中共在亚太地区日益增强的威胁力量。
+援引自《自由亚洲》的报道，美军战略司令部司令理查德海军上将（Charles Richard）表示，美军必须重新考虑如何评估战略风险，与中共的冲突将可能导致对手使用核武器。美国战略司令部已着手修订“战略威慑失败风险”的评估，并做好必要的行动准备。
 
 参考链接：
 
-[https://www.hindustantimes.com/india-news/eye-on-china-india-s-plan-for-6-nuclear-powered-attack-submarines-back-on-track-101615327826084.html](https://www.hindustantimes.com/india-news/eye-on-china-india-s-plan-for-6-nuclear-powered-attack-submarines-back-on-track-101615327826084.html)
+[https://www.reuters.com/article/us-usa-military-china/u-s-admiral-calls-for-ground-based-offensive-weaponry-in-western-pacific-idUSKBN2B12N0](https://www.reuters.com/article/us-usa-military-china/u-s-admiral-calls-for-ground-based-offensive-weaponry-in-western-pacific-idUSKBN2B12N0)
+
+[https://www.rfa.org/mandarin/pinglun/chengxiaonong/cxn-02232021133720.html](https://www.rfa.org/mandarin/pinglun/chengxiaonong/cxn-02232021133720.html)
 
 0
