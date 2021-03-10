@@ -1,40 +1,106 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国就香港议员入境澳洲威胁堪培拉
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/964344/)
+## 许其亮呼吁增加军费，准备对美作战
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/964486/)
 
-撰稿：Shirley
+*新闻来源：《每日邮报（Daily Mail）》| 作者：杰克·纽曼（Jack Newman） | 发布时间：2021年3月8日*
 
-逃亡中的立法会议员许智峯成为首位获得澳大利亚政府豁免旅行的香港政客，他于周一从伦敦抵达达尔文，将与家人定居澳大利亚。许先生获得了为期12个月的旅游签证，目前处于隔离期。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/16153753291.png)网络图片
-给予许智峯入境澳洲的决定，是澳大利亚向北京发出的一个信号，是对北京持续打压香港民主的反应的重大升级，即澳大利亚政府将在国际上与自由斗士进行更多的接触。这位两个孩子的父亲过去三个月在欧洲和英国游说，要求国际社会对香港国家安全法作出更有力的回应。
+*翻译/简评：随波逐流 | 校对：SilverSpurs | 审核：万人往 | Page：Daoiii*
 
-这位前民主党立法会议员是反对大陆引渡法案的主要运动者，该法案在2019年和2020年引发了香港超过18个月的抗议活动。他推动了针对香港警方枪杀手无寸铁的少年的刑事起诉案，在与亲北京的议员就国家安全法发生争执后被强行赶出议会，后来在香港民主派政客被北京集体取消资格后领导了抗议活动。
+[!\[\]()!\[\](https://spark.adobe.com/page/ia9BgkK5O14Wm/images/8513c56a-3497-4f7f-9008-2125d76e8964.jpg?asset_id=8de0b3a0-43cb-4863-ad27-6e33b5fa781a&amp;img_etag=%22f4bae333b0dbc6f6ee56b44ffc612f2c%22&amp;size=2560)](https://spark.adobe.com/page/ia9BgkK5O14Wm/images/8513c56a-3497-4f7f-9008-2125d76e8964.jpg?asset_id=8de0b3a0-43cb-4863-ad27-6e33b5fa781a&amp;img_etag=%22f4bae333b0dbc6f6ee56b44ffc612f2c%22&amp;size=1024)
 
-2020年12月，许智峯称他自己、太太及父母共五个户口，涉及几百万元的存款均遭冻结。这些账户涉及多间银行，包括汇丰银行、恒生银行及中银香港。
+***简评：***
 
-中共国驻堪培拉大使馆愤怒指责澳大利亚允许香港民主党领袖许智峯入境，称是对其内政的 “干涉，及敦促澳方停止以任何方式干涉香港事务和中国内政”。并威胁道，”否则中澳关系只会受到进一步损害。”
+**在周五举行的全国人大常委会年度会议讨论中，中共国最高将领、军委副主席许其亮发出了提议，呼吁增加军事开支，称中共国需要为“修昔底德陷阱”做好准备，可能被迫与美国开战。“修昔底德陷阱”的核心就是崛起大国挑战现存大国，老二要当老大，导致老大产生恐惧从而发生战争的必然性。在当前全球关系中，就是指中国有可能取代美国成为主要的全球超级大国。由于修昔底德陷阱把发生冲突的责任多放在现存大国身上，因此中共多次在国家宣传中散布这个理论，用以进一步对抗美国并提升自己的联盟关系。**
 
-许智峯认为，新国安法表明香港政权和北京不会容忍任何抵抗。”这是一个巨大的倒退，我们可以预见，任何泛民主派政客都不会被允许参加公选，”他说。”这是进一步处决和压制不同意见的步骤。””对我来说，更重要的是拿回基本自由和基本权利。”
+**在此理论下，中共可以把中美贸易战、美国制裁有安全威胁的中共国官员和公司、美国挑战北京对南中国海的领土主张以及中共对美发动的包括病毒攻击在内的各类超限战，说成美国惧怕中共国崛起而制造的“阴谋论”，想达到把发生冲突的责任归咎于美方，指控美国蓄意陷害，故意挑起事端和制造矛盾。而美方多次强调以“修昔底德陷阱”描述美中关系并不恰当。**
 
-周四，中共将通过新的法律，对国家安全立法进行补充，并赋予北京审查香港立法会候选人和委员会投票选举行政长官的权力。
+**北京方面一直断然否认中共国想要取代美国当世界老大，否认输出中共国模式和共产集权制度，否认称霸全球的野心。这个世界除了它自己，恐怕沒有哪个国家相信这种说法。有些西方政客也为中共辩护，看来他们太不了解中共，中共的所作所为并不像它自己宣称的那样走和平发展的道路，友好地与世界各国发展睦邻关系并善待本国人民，都是反其道而行之，以下两个经典案例可以揭穿中共的谎言：**
 
-莫里森（Scott Morrison）政府为香港公民提供了长达5年的 “避风港 “签证，为那些想要延长在澳居留时间的人，提供了一条通往永久居留权的潜在途径。
+[!\[\]()!\[\](https://spark.adobe.com/page/ia9BgkK5O14Wm/images/c52cc964-41c4-4ae0-a1c1-3478b84293f2.jpg?asset_id=b8d9cc77-bb88-4f81-8f82-758b481054aa&amp;img_etag=%22492b7cd2844d04e88db1cdb677b39b66%22&amp;size=2560)](https://spark.adobe.com/page/ia9BgkK5O14Wm/images/c52cc964-41c4-4ae0-a1c1-3478b84293f2.jpg?asset_id=b8d9cc77-bb88-4f81-8f82-758b481054aa&amp;img_etag=%22492b7cd2844d04e88db1cdb677b39b66%22&amp;size=1024)
 
-工党参议员Kimberley Kitching周二也表示，”澳大利亚应该考虑欢迎香港人，他们只不过是站起来保护一国两制协议中承诺的民主准则和制度。”
-（本文仅代表个人观点）
+**北京当局应对2019年源于中共国武汉、在全球范围内蔓延的新冠病毒的过程中，掩盖疫情、否认病毒的实验室来源、阻止病毒溯源调查，辅以战狼外交和口罩外交，顛倒黑白、兜售中共模式、灌输中共意识形态，借此谋求支配全球。后来，中共又编造谎言嫁祸于美国、意大利以及欧洲。就连一向支持中共的几十个非洲国家也反目相向。**
 
-审稿：永远小学生 编辑：五饼二鱼
+**另一个经典案例就是香港问题。北京政府肆无忌惮地违背《中英联合声明》中对香港的承诺，彻底摧毁了香港的“一国两制”。先是《逃犯条例》，后来又推出了更为严厉的《国安法》来压制民主抗议活动、拘捕杀害青年学生和民主人士、限制香港言论自由、剥夺港人选举权，把繁荣自由的香港变成了中共一党专制下的内陆城市。现在更要推出香港新选举法，彻底排除异己，所谓“爱国者治港”，香港的立法和选举制度变成空架子。**
 
-相关新闻来源：
+[!\[\]()!\[\](https://spark.adobe.com/page/ia9BgkK5O14Wm/images/b7edc039-6ec4-45cc-a564-77249ad910c6.jpg?asset_id=23e65be3-0570-4891-895e-12a4ca3f77e8&amp;img_etag=%224930814131c4e8d85c9e1412cb70fb27%22&amp;size=2560)](https://spark.adobe.com/page/ia9BgkK5O14Wm/images/b7edc039-6ec4-45cc-a564-77249ad910c6.jpg?asset_id=23e65be3-0570-4891-895e-12a4ca3f77e8&amp;img_etag=%224930814131c4e8d85c9e1412cb70fb27%22&amp;size=1024)
 
-[https://www.theaustralian.com.au/nation/china-threatens-canberra-over-hk-legislator/news-story/4a90b6991ac008f55b0e9a2e76dbaf49](https://www.theaustralian.com.au/nation/china-threatens-canberra-over-hk-legislator/news-story/4a90b6991ac008f55b0e9a2e76dbaf49)
+**因为美国与全世界对中共的种种行径及其所包藏的野心并未全部了解，未及时有效的阻止，导致如今中共在台湾问题和南中国海问题上的霸权行径。不仅在印太地区，中共已发展成全世界的威胁。现在想要消灭中共，单靠制裁手段恐怕已很难奏效，中美间很大概率会发生局部战争，而中共攻打台湾就可能成为这场战争的导火索。一旦发生战争，现已加入美军部署在南中国海的多国联军可能迅速被卷入，必将加速中共的灭亡。**
 
-[https://www.theaustralian.com.au/nation/politics/wanted-hong-kong-politician-lands-in-australia/news-story/d646175a62d68cd4945bbbc9c3c2a719](https://www.theaustralian.com.au/nation/politics/wanted-hong-kong-politician-lands-in-australia/news-story/d646175a62d68cd4945bbbc9c3c2a719)
+***原文翻译：***
 
-[https://www.smh.com.au/world/asia/time-for-a-new-battleground-wanted-hong-kong-legislator-lands-in-australia-20210309-p5792a.html](https://www.smh.com.au/world/asia/time-for-a-new-battleground-wanted-hong-kong-legislator-lands-in-australia-20210309-p5792a.html)
+# **中共国最高将领呼吁增加军费为“修昔底德陷阱”做准备，将被迫与美开战**
 
-[https://www.bbc.com/zhongwen/simp/chinese-news-55175071](https://www.bbc.com/zhongwen/simp/chinese-news-55175071)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
+中共国最高将领呼吁增加军事开支，为与美国的战争做准备。
+
+排在习近平主席之后，作为国家武装部队第二号指挥官的许其亮将军说，中共国需要为“修昔底德陷阱”做好准备。
+
+修昔底德陷阱这一术语是指，当新的全球大国取代现有的大国时发生战争的必然性。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/ia9BgkK5O14Wm/images/73392caa-912a-4a8c-9fc3-60f3ed149e46.png?asset_id=c69f0755-13db-4a74-95ce-6d7aa6b49453&amp;img_etag=%2202b5bd06ba2454dc7c9f23191d3c8d54%22&amp;size=2560)](https://spark.adobe.com/page/ia9BgkK5O14Wm/images/73392caa-912a-4a8c-9fc3-60f3ed149e46.png?asset_id=c69f0755-13db-4a74-95ce-6d7aa6b49453&amp;img_etag=%2202b5bd06ba2454dc7c9f23191d3c8d54%22&amp;size=1024)中共国最高将领许其亮呼吁增加军事开支，为与美国的战争做准备
+
+[!\[\]()!\[\](https://spark.adobe.com/page/ia9BgkK5O14Wm/images/cdf21d88-5191-4e6f-b031-b67c6986ffaf.png?asset_id=7a100832-9369-45fe-9985-065a04733d97&amp;img_etag=%22e3cb745e7be88770d68f7fef9641b0dc%22&amp;size=2560)](https://spark.adobe.com/page/ia9BgkK5O14Wm/images/cdf21d88-5191-4e6f-b031-b67c6986ffaf.png?asset_id=7a100832-9369-45fe-9985-065a04733d97&amp;img_etag=%22e3cb745e7be88770d68f7fef9641b0dc%22&amp;size=1024)仅次于习近平的第二任陆军总司令许其亮将军说，中共国需要为“修昔底德陷阱”做好准备
+
+据《南华早报》消息，许其亮说：“面对修昔底德陷阱和边境问题，军方必须加快其能力建设。
+
+“[我们]必须在战斗方法和能力上取得突破，并为军事现代化奠定坚实的基础。”
+
+许其亮是共产党核心圈子的25个成员之一，他希望增加已经是全世界最庞大的中共军队的军费支出。
+
+他说，他认为中共国将很快超越美国成为一个经济强国，其国内生产总值将超过其竞争对手的70%。
+
+许其亮在周五的全国人大常委会年度会议讨论中发表了上述言论。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/ia9BgkK5O14Wm/images/6eee9e7d-51e1-442f-9bdb-4d2b2d8db2db.png?asset_id=3d232338-5715-4aa5-9d12-464d8feed8a9&amp;img_etag=%22555449655e52d5458fcb6a70b1b534e5%22&amp;size=2560)](https://spark.adobe.com/page/ia9BgkK5O14Wm/images/6eee9e7d-51e1-442f-9bdb-4d2b2d8db2db.png?asset_id=3d232338-5715-4aa5-9d12-464d8feed8a9&amp;img_etag=%22555449655e52d5458fcb6a70b1b534e5%22&amp;size=1024)乔·拜登曾表示北京是华盛顿“最强劲的竞争对手”，他的政府已表示将在很大程度上继续采取强硬手段
+
+中共国高级官员很少公开讨论修昔底德陷阱。
+
+习近平主席在2015年访问西雅图时表示：“没有所谓的修昔底德陷阱之类的东西。”
+
+*修昔底德陷阱*
+
+*修昔底德陷阱是由美国政治学家格雷厄姆·T·艾里森（Graham T. Allison）推广的，描述了当一个新的大国威胁要取代现有大国时发生战争的可能性。*
+
+*它是基于希腊历史学家和将军修昔底德的一句话，他说，雅典和斯巴达不可避免地会发生战争。*
+
+*修昔底德在他的《伯罗奔尼撒战争史》一书中写道：“正是雅典的崛起和灌输给斯巴达的恐惧导致战争不可避免。”*
+
+*该术语最常用于指代中共国有可能取代美国成为主要的全球超级大国。*
+
+*一些人认为，中共国的国家宣传已经采用了这一理念，用到进一步对抗美国并提升自己的联盟关系上。*
+
+“但是，如果主要国家一次又一次地犯下战略误判的错误，它们可能会为自己制造陷阱。”
+
+许其亮的言论之所以出现，是因为中共国担心与拜登总统领导下美国的关系。
+
+拜登曾表示，北京是华盛顿“最强劲的竞争对手”，他的政府表示，它将在很大程度上延续唐纳德·川普之前采取的强硬措施。
+
+几十年来，中共国一直被认为是美国的一个日益强大的竞争对手，中共国领导人设计了精心制定的战略以扩大在发展中国家的影响力。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/ia9BgkK5O14Wm/images/6c363a53-3ac3-4161-b50c-c5a73d30ace8.jpg?asset_id=7993300a-eb86-4600-beb9-f3114ce2362a&amp;img_etag=%22edff6db90e98d2c93b7dd13746e5f937%22&amp;size=2560)](https://spark.adobe.com/page/ia9BgkK5O14Wm/images/6c363a53-3ac3-4161-b50c-c5a73d30ace8.jpg?asset_id=7993300a-eb86-4600-beb9-f3114ce2362a&amp;img_etag=%22edff6db90e98d2c93b7dd13746e5f937%22&amp;size=1024)
+
+领导人一直专注于扩大中共国的领土主张，对香港等特殊领土实施更多控制权，并继续巩固其作为全球军事和经济强国的目标。
+
+在川普政府执政期间，美国针对中共国采取了一系列行动，包括贸易战，制裁被视为有安全威胁的中共国官员和公司，并挑战北京对南中国海的领土主张。
+
+习近平在十一月发布了一个消息祝贺拜登的当选，尽管拜登曾在自己竞选期间称他为一个“恶棍”，并誓言要领导国际社会共同努力以“压制、孤立和惩罚中共国”。
+
+中共国外交部长王毅曾警告拜登不要越过中共国的“红线”，例如有争议的台湾领土，最近几周美国军舰一直在台湾巡逻。
+
+国防部新闻发言人吴谦说，增加的6.8%军费预算中的一部分将用于试图赶上美国，在现代战场上“能打仗、打胜仗”。
+
+其余的预算将用于为中共国的200万士兵提供训练、武器和薪酬。
+
+**🔗[原文链接](https://www.dailymail.co.uk/news/article-9338759/Chinas-general-calls-increased-military-spending-Thucydides-trap-war-US.html?ns_mchannel=rss&amp;ns_campaign=1490&amp;ito=1490)**
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/ia9BgkK5O14Wm/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/ia9BgkK5O14Wm/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
 +1

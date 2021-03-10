@@ -1,34 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲网络安全中心升级中共国黑客攻击的警告
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/963829/)
+## 郭先生0308XI爆料革命打破共产党最大的谎言让共产党惶恐
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/963911/)
 
-撰稿：Shirley
+![]()![](https://gnews.org/wp-content/uploads/2021/03/封面-51.jpg)
+编辑整理：
 
-一个由中国国家支持的黑客组织，被称为HAFNIUM，已经利用微软Exchange系统的漏洞，对其Outlook电子邮件系统进行大规模渗透。澳大利亚7000台服务器和美国超过3万台服务器受到威胁，全球有 “几十万 “的服务器被入侵。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/16153585951.png)网络图片
-澳大利亚网络安全中心（ACSC）周二升级了警告，敦促莫里森政府和各州紧急 “修补 “他们的电子邮件网络，并保护他们免受试图利用微软漏洞的国家级行为的影响。
+纽约香草山农场：贝贝
 
-澳大利亚企业也被告知要紧急保护他们的电子邮件系统。”ACSC已经确定了大量的澳大利亚组织，还没有修补脆弱的微软Exchange版本，”ACSC网站上的安全警报称。
-包括澳大利亚联邦科学与工业研究中心（CSIRO）和各州政府在内，及数千家公司和组织，都依赖微软的Outlook。
+伦敦喜庄园：胖丁
 
-澳大利亚和全世界各地的公司和组织，都正在争分夺秒地阻止来自中国的网络安全威胁。7000多家中的部分组织，包括澳大利亚联邦政府和CSIRO，都表示已经在微软上周发布修复程序后24小时内修补了漏洞。
+日本东京方舟农场：山川异域
 
-微软的情报团队将追踪到的HAFNIUM，评估为一个 “高度熟练和复杂 “的国家支持的黑客组织，”在中国以外的地方活动”，但使用的是位于美国的虚拟服务器。
-微软表示，HAFNIUM一直以各组织机构为目标，希望窃取信息，目标行业部门包括 “传染病研究人员、律师事务所、高等教育机构、国防承包商、政策智库和非政府组织”。
+郭文贵先生在[3月8号文贵直播： 文贵将在农历2月初二，即3月14号直播怀念母亲；各农场和联盟不要忘记灭共的使命；战友们要学会感恩；Gnews，GTV正飞速发展壮大，感谢义工的付出，希望更多战友加入](https://gtv.org/video/id=6046472ef3b53470acf41b51)直播中谈到了将在3月14号上午直播谈母亲的话题；谈到了G-News成本低影响力巨大，其八到九成的访问数据和流量来自于中国大陆；谈到了G-News的飞升源于义工的付出和管理团队的更新等问题，本系列将根据郭先生直播中涉及的不同侧重点逐一上传，以下为本系列第十一部分——爆料革命打破共产党最大的谎言让共产党惶恐
 
-中国外交部发言人在过去一周否认北京参与了此次黑客攻击。
-澳大利亚网络安全的责任由内政部长达顿（Peter Dutton）和国防部长雷诺兹（Linda Reynolds）分担。助理国防部长哈斯蒂（Andrew Hastie）将在雷诺兹长期病假期间承担她的网络职责，但《澳大利亚人报》报道称，哈斯蒂还没有收到关于其角色的正式委任书。
+据[3月8号文贵直播： 文贵将在农历2月初二，即3月14号直播怀念母亲；各农场和联盟不要忘记灭共的使命；战友们要学会感恩；Gnews，GTV正飞速发展壮大，感谢义工的付出，希望更多战友加入](https://gtv.org/video/id=6046472ef3b53470acf41b51)时间点1：15：05——
 
-内政部发言人周二表示，澳大利亚网络安全中心正在继续调查微软网络电邮黑客事件。
-（本文仅代表个人观点）
+大家一定记住：**爆料革命，我们最终是灭共！战友是我们的核心！**大家去想一想啊，我昨天晚上跟一个日本的朋友，跟他说，我说，你去想一想，共产党为什么怕我们？新中国联邦所有的资产加一起，你还不如共产党的一个所谓市政公司一个分公司的钱多呢，你有高盛的钱多吗？它怕你吗？它怕高盛吗？它不怕高盛。人，我说共产党它随便找出一个，一个所有的远远的一个乡村里边的人都比我们现在新中国联邦人多，它怕他们吗？不怕。它在天空上，现在飞的飞行员都比我们新中国联邦的领导多，它怕他们吗？它不怕。有钱的，香港的李嘉诚那么有钱，它怕吗？它不怕。
 
-审稿：永远小学生 编辑：五饼二鱼
+**它为啥怕新中国联邦？因为它最怕新中国联邦人有钱。**一个新中国联邦人有钱就会带动不知道多少个人，会启蒙内心会走向新中国联邦。一个新中国联邦人有了百万、千万、亿万的富裕，他会每天说、每天讲或他花钱他会引起巨大的动荡——原来我们这些人也可以有钱。**就打破了共产党那个巨大的70年的一个谎言——一切都是党的、一切都听党的、爹亲娘亲不如党亲。**党让你死，你就死；党让你富，你就富；党让你穷，你就穷；原来东方红太阳升中国出了个毛贼东；现在是东方红，西太阳升，西方出来个习大神，啥都是他们的。
 
-相关新闻来源：
-[https://www.theaustralian.com.au/nation/urgent-warning-to-secure-email-networks-after-chinesebacked-hack-of-microsoft-outlook/news-story/5ac370c9d184d2061bab7ddfabf47ef5](https://www.theaustralian.com.au/nation/urgent-warning-to-secure-email-networks-after-chinesebacked-hack-of-microsoft-outlook/news-story/5ac370c9d184d2061bab7ddfabf47ef5)
-[https://www.news.com.au/technology/online/hacking/china-statesponsored-hacking-group-hafnium-exploit-microsoft-exchange-server/news-story/c737bf3c3e90a96f0636177bd3531eb1](https://www.news.com.au/technology/online/hacking/china-statesponsored-hacking-group-hafnium-exploit-microsoft-exchange-server/news-story/c737bf3c3e90a96f0636177bd3531eb1)
-[https://krebsonsecurity.com/2021/03/at-least-30000-u-s-organizations-newly-hacked-via-holes-in-microsofts-email-software/](https://krebsonsecurity.com/2021/03/at-least-30000-u-s-organizations-newly-hacked-via-holes-in-microsofts-email-software/)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
+但是我们告诉中国人民，你自己可以让你自己很体面，你自己可以让你很富有，你不用跟人家天天陪吃陪喝把家人弄去双修，你不用认人家干爹干娘，你可以富有，这是它害怕的。**它怕的是你拥有分配财富的权力、你拥有分配财富的勇气，还有你拥有一个给所有的、真正的你的同胞的一个公义的这么一个力量，它害怕。**这位日本朋友说，他说是的，在哪国它政府都害怕不光是中国，每个政府都害怕。是的，中国政府更害怕。
+
+你要在北朝鲜你要有这么个人，什么样？所有北朝鲜人都不会跟着金家了，跟着金家人都是因为他有吃有喝，你不跟着我，我就杀了你。我们这个不是，这就是为什么财富它必须属于战友，这些平台必须由战友绝对地控制。**我们就是要告诉共产党——分配财富和体面的生活不是你的专利！这就是爆料革命，这就是新中国联邦。**
+
+接上文——
+
+[郭先生0308I将在3月14号上午直播谈重新认识母亲的角色](https://gnews.org/zh-hans/962771/)
+
+[郭先生0308II G-News成本低影响力巨大,其八至九成访问量来自大陆](https://gnews.org/zh-hans/962831/)
+
+[郭先生0308III川普总统的团队将要加入到G-News或者GTV](https://gnews.org/zh-hans/962920/)
+
+[郭先生0308IV爆料革命在中共军中影响巨大——郭伯雄秘书](https://gnews.org/zh-hans/963099/)
+
+[郭先生0308V战友们谁救你都不是欠你的,绝不可依赖而不自律](https://gnews.org/zh-hans/963226/)
+
+[郭先生0308VI爆料革命和新中国联邦在全世界的影响力在扩大](https://gnews.org/zh-hans/963317/)
+
+[郭先生0308VII农场以保护战友利益为己任而战友们最核心要灭共](https://gnews.org/zh-hans/963376/)
+
+[郭先生0308VIII与SEC有条件和解就是要把VOG的款项包含其中](https://gnews.org/zh-hans/963431/)
+
+[郭先生0308IX: GTV运行一年升值超十倍战友们的投资占比不变](https://gnews.org/zh-hans/963473/)
+
+[郭先生0308X有条件和解是为了战友的利益和钱得到安全保证](https://gnews.org/zh-hans/963811/)
+
 0
