@@ -1,58 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 河南话顺口溜唱“脱贫”，人大代表李连成火爆了
-` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/963356/)
+## 接种率欧盟第二死亡率全球第三 中共疫苗在匈牙利的使用效果
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/963406/)
 
-撰稿：八宝粥
+【日本东京方舟农场】作者：文柯Miles 素材采编：武汉老温 校对：文小律
 
-【墙国新闻谎】 在中共国十三届全国人大四次会议在京召开期间，全国人大代表、西辛庄村党支部书记李连成溜须拍马地谈起乡村振兴，敢于创新，改以河南话的顺口溜说唱来代替工作汇报，并代表河南农民表达对党的衷心感谢。
+彭博社3月8日报道，根据约翰·霍普金斯大学（Johns Hopkins University）的数据，匈牙利当前中共病毒死亡率仅次于墨西哥和秘鲁，是世界排名第三的国家，其人均死亡人数仅次于捷克、英国和意大利，位居全球第四。
 
-党支书李连成一夜成名变网红，也带火了河南话的顺口溜。句句实话，不忘押韵，朗朗上口。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-62.jpg)
 
-其中最经典的一句：**“贫困的农民脱贫了… 历朝历代没做到!”**
+在欧盟，人均中共病毒疫苗接种率平均值为9.1%，即每百人已施用9.1剂疫苗。匈牙利疫苗接种率跃居至欧盟第二位，比例高达13.2%，紧随疫苗接种率第一的马耳他之后。
 
-![](https://lh3.googleusercontent.com/mGbsVX8nVj6Se20ourPiLVd1bPmkOAFNhZnDSSBhRaQFNL4pu8f7_De6cb1wmaQNq7vSfz5XkJGVaCHaF6c5i8Hj1wrEkYDiBEWsU4J16xMOVB58LUc6A7wa4DIYFYMXzLZzF2AS)
+据此前POLICO报道，匈牙利总理维克多•奥班（ViktorOrbán）曾亲自给予中共疫苗最大的欧盟认可。陷入缓慢疫苗接种运动的欧洲各国，越来越多地在欧盟之外寻求疫苗注射服务，而中共显然很高兴填补这一空白。
 
+中共疫苗已经占匈牙利疫苗总供应量的32％，远远超过俄罗斯的Sputnik V（仅占不足3％）。匈牙利只是世界上至少25个使用中共疫苗的国家之一（主要在亚洲和中东）。据美联社统计，中共已承诺向45个国家/地区投放五亿剂中共病毒疫苗。
 
-顺口溜全文：
+根据《数据世界》报道，不包括中国大陆在内，至少有25个国家和地区在使用中共疫苗。使用北京国药集团疫苗的主要包括巴林、柬埔寨、埃及、匈牙利、约旦、澳门、摩洛哥、巴基斯坦、秘鲁、塞内加尔、塞尔维亚、塞舌尔、阿拉伯联合酋长国和津巴布韦在内的十四个国家/地区。 巴西、智利、危地马拉、香港、印度尼西亚、马来西亚、北塞浦路斯、菲律宾、泰国、土耳其和乌拉圭等11个国家/地区正在使用科兴Sinovac疫苗。
 
-
-```
-新时代的制度好
-俺农民心里忘不了
- 
-贫困的农民脱贫了
-历朝历代没做到
- 
-农民种粮“直补多”
-国家实行了新农合
-贫困户享低保
-孩子上学全免了
-村村都通水泥路
-农民说了
-新时代条条致富
-阳光道
-```
-
-
-
-【参考来源】
-
-**视频链接：**[https://haokan.baidu.com/v?vid=11869116439472052602&pd=bjh&fr=bjhauthor&type=video](https://haokan.baidu.com/v?vid=11869116439472052602&amp;pd=bjh&amp;fr=bjhauthor&amp;type=video)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/03-09-lies-jingle03-1.png)
-
-
-【**责任编辑**】：bingo 旧金山文宣组
-
-【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-**欢迎战友加入旧金山金喜准农场**
-
-[旧金山金喜准农场 GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
-
-[旧金山金喜准农场 Discord](https://discord.gg/QQzQ79grEA)
-
-[旧金山金喜准农场 Twitter](https://twitter.com/sf_himalaya)
+参考链接：[https://www.bloomberg.com/news/articles/2021-03-08/hungary-s-epidemic-turns-critical-while-vaccine-rollout-beats-eu?utm\_content=business&utm\_campaign=socialflow-organic&utm\_medium=social&utm\_source=twitter&cmpid=socialflow-twitter-business](https://www.bloomberg.com/news/articles/2021-03-08/hungary-s-epidemic-turns-critical-while-vaccine-rollout-beats-eu?utm_content=business&amp;utm_campaign=socialflow-organic&amp;utm_medium=social&amp;utm_source=twitter&amp;cmpid=socialflow-twitter-business)
 
 0
