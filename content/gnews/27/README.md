@@ -1,27 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】美国军方委托SpaceX于2023年之前发射两颗卫星
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/964785/)
+## 比尔·盖茨与采集美国人数据的中共华大基因合作
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/964821/)
 
-作者：香草山写作组 人间世
+翻译：康州盘古农场 – TrueSky
+校对：康州盘古农场 – 轰炸机
+编辑：康州盘古农场 – Antsee-GTV
 
-据俄罗斯卫星通讯社3月10日报道，太空探索技术公司(SpaceX)近日从五角大楼获得一份卫星发射合同。按照合同要求，该公司将于2023财年末之前为美国军方发射两颗卫星，合同价值超过1.59亿美元。
+![bill gates]()![bill gates](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-11-at-00.12.43.png)*图片来源：《网关专家》新闻报道*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1464-【军事快讯】美国军方委托SpaceX于2023年之前发射两颗卫星.png)图片来源：yahoo
+据《网关专家》吉姆-霍夫特 报道：
 
-一个月前（2月10日），SpaceX刚刚从美国宇航局（NASA）获得了一份价值3.32亿美元的合同，将利用猎鹰重型火箭为NASA发射月球前哨站相关组件。
+来自《国家脉动》的Natalie Winters在上周末爆料称，被美国官员标榜为“采集 ”美国人DNA的中共国华大基因，与比尔及梅琳达-盖茨基金会进行了广泛合作。
 
-SpaceX作为一家民营公司，已经发展成为航空航天领域的重要力量，不仅有实力与波音、NASA 等业界前辈竞争，甚至在某些方面已经走在行业前列。
+比尔和梅琳达-盖茨曾多次到中共国考察华大基因公司。
 
-审核/发稿：雪梨
+*《国家脉动》（The National Pulse）可以透露，华大基因–一家与中共有关联的基因组学公司，被美国官员标榜为 “采集”美国人的DNA–与比尔及梅琳达-盖茨基金会进行了广泛的合作。*
 
+*据美国前情报官员透露，在《60分钟》曝光该公司利用COVID-19测试“收集、存储和利用美国公民的生物识别信息”后，该公司最近受到了抨击。更重要的是，路透社最近的一篇文章将该公司与中共军方联系起来。*
 
+*除了奥巴马政府让该公司在美国立足外，比尔和梅琳达**–**盖茨基金会在**华大基因**公司的美国扩张中也发挥了关键作用。*
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+*2012年9月，这位微软创始人的基金会签署了一份“谅解备忘录(MOU)，就全球健康和农业发展形成合作，目标是实现健康和农业发展的共同目标”。*
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+*华大的联合创始人称赞了这份协议，庆祝“在人类、植物和动物基因组学领域即将取得的科学突破。”他还透露，合作的重点是基因组测序 —-《60分钟》栏目中标明的国家安全威胁的精确活动。*
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+原文链接：[https://www.thegatewaypundit.com/2021/03/bill-gates-collaborated-china-genomics-firm-bgi-genomics-caught-mining-americans-data/](https://www.thegatewaypundit.com/2021/03/bill-gates-collaborated-china-genomics-firm-bgi-genomics-caught-mining-americans-data/)
 
 0

@@ -1,25 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共报复英国禁播大外宣CGTN
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/965013/)
+## 天津教师歧视事件背后的民意新动向
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/964881/)
 
-#### 译评：Leigh寶寶 | 责编：沙拉猫
-![]()![](https://gnews.org/wp-content/uploads/2021/03/capture-14-8.jpg)图片来源：www.dw.com
-据RT News新闻网站报道，中共再次卷入与英国和英国通信管理局（Ofcom）的争端。本周一（3月8日）英国通信管理局以违反广播规则为由，对中国环球电视网（CGTN）处以吊销执照和22.5万英镑罚款。
+作者：桂花酒 | 校对/审核：宁缺 | Page: Daoiii
 
-周二，中共外交部发言人赵立坚称，中共对英国通信管理局有关决定表示关切，坚决反对该局一再对中共国媒体在英国开展正常新闻报道工作人为设置障碍。赵立坚声称CGTN“一贯秉持客观公正原则进行报道”，谴责英方于二月撤销CGTN执照的决定，同时敦促英方撤销该错误决定并且要求英方对一些英媒长期以来涉华涉港失实虚假报道进行查处。中共要求英国通信管理局及英方某些人立即停止“政治操弄，纠正错误“， 中方保留“进一步做出正当和必要反应的权利”。
+[!\[\]()!\[\](https://spark.adobe.com/page/wodr3lTjFnwDb/images/c3dfdef5-a136-4acf-91ec-ccdb05d10bcb.jpg?asset_id=e8855e37-44a8-4238-8426-2fb5f0fec776&amp;img_etag=%226316b838e3b3b60f491b53d3c82fa67f%22&amp;size=1024)](https://spark.adobe.com/page/wodr3lTjFnwDb/images/c3dfdef5-a136-4acf-91ec-ccdb05d10bcb.jpg?asset_id=e8855e37-44a8-4238-8426-2fb5f0fec776&amp;img_etag=%226316b838e3b3b60f491b53d3c82fa67f%22&amp;size=1024)
 
-本周一，英国通信管理局对CGTN处以22.5万英镑的罚款，其中12.5万英镑是因为CGTN的五个节目对香港抗议运动进行了非中立的报道，10万英镑是因为CGTN播放了被关押的英国公民和调查员韩飞龙（Peter Humphrey）强迫认罪的视频。
+天津教师歧视学生事件，引发了中共国社会上诸多高论。但大部分的议论似乎更倾向于对中共的专制之恶，对被奴役者之麻木，对教育被当作生意，当作洗脑工具等负面角度进行评价。我不自量力想从正面角度观察此次事件引发的民意苏醒，做一个“螳螂挡臂”式的解读。
 
-韩飞龙向英国通信管理局投诉声称他是被中共强迫认罪，而CGTN播放了该强迫认罪视频。早在2013年，中共指控韩飞龙“非法获取个人信息”，当时他在中共国调查有关于对医药公司葛兰素史克（GlaxoSmithKline简称GSK）的“诽谤“事件。英国通信管理局认为， CGTN应该知道其播放的韩飞龙先生认罪视频的内容有充分理由予以质疑。
+[!\[\]()!\[\](https://spark.adobe.com/page/wodr3lTjFnwDb/images/4f6b66a8-81f4-4aba-a5ae-64c09121df3b.png?asset_id=5a309407-a267-49e5-8d5e-2b138940fa2a&amp;img_etag=%22e20b3bc1f406e17f529ce13c44ec60ca%22&amp;size=1024)](https://spark.adobe.com/page/wodr3lTjFnwDb/images/4f6b66a8-81f4-4aba-a5ae-64c09121df3b.png?asset_id=5a309407-a267-49e5-8d5e-2b138940fa2a&amp;img_etag=%22e20b3bc1f406e17f529ce13c44ec60ca%22&amp;size=1024)
 
-英国独立媒体监管机构（指英国通信管理局）取消了CGTN的执照后，中共在二月回击并封杀BBC，尽管BBC在中共国已受到限制。
+🔗[文贵先生盖特](https://gtv.org/getter/603a7bd6195851590237e51d)
 
-* * *
+不可否认，在中共病毒肆虐、内斗加剧、习的势力更加集权的大背景下，舆论被压制，话语权被剥夺的情况更加恶劣。从最近发生的质疑印度边境冲突士兵死亡人数被抓，到新一轮借反官员腐败打压异己，设立“中国人民警察节”这种人格分裂的名字等一系列事件，都说明了中共国已经失去了“四个自信”的高压锅现状。但是，从年初的墨茶饿死、上月车莎莎跳车、以及天津肖老师事件上，却不难发现一个新的动向，即中共面对民众质疑，问责，讨要公道，尽管暗地收买平息事件，明面上却不得不安排宣传部门投入人力和时间，向公众解释、洗地、抹黑、疲于奔命，以此来掩盖它一心为人民的谎言。互联网本身也是双刃剑，中共虽有言论管控，但没有能力封住人心。
 
-评：中共从国共内战以来一直将宣传机器作为其夺权和统治的重要利器，从制造舆论动摇国民党的统治，瓦解和分裂国民党内部，直到成功攥取国家。建政后，中共又靠宣传机器来巩固其统治，包括掩盖杀死几千万中国人，奴役人民愚弄百姓。现在在信息时代又建立大外宣，从报纸、电视到社交媒体，全方位的在世界各地24小时不间断地为其工作。中共宣传机器目前主攻的领域包括：掩盖CCP病毒是生物武器的真相，虚假报道香港民主运动，制造舆论干预美国总统大选，制造假新闻污蔑法轮功等等。央视制造假新闻的数量创造历史记录。CGTN被全世界指责撒谎的时候，战狗外交又一个一个跳出来疯狂扑咬、狡辩、抵赖、装傻、撒泼等拙劣表演，让世界耻笑。
+这种在夹缝中喷发的民意，既代表社会上大多数人的良知正义，也凸显只要民众敢于发声，是有可能形成合力，创造在中共自己装模作样设定的所谓法治社会公平的框架下，以子之矛攻子之盾的奇迹的。
 
-&gt;&gt;原报道链接&gt;&gt; [Beijing says UK should punish British media for false reports on China and Hong Kong, after London fines CGTN](https://www.rt.com/news/517592-china-britain-cgtn-ban-fine/)
+从江时代开启的大学扩招把教育当生意虽早已为人诟病，但愚蠢的中共想不到凡事都有两面性。今年，又将有900万大学生走向社会。这样庞大数量的年轻人，已经成为受过高等教育，能够理解领悟爆料革命宗旨和行动，并参与其中发挥民意的巨大载体。对任何心智正常的人来说，受文明时代高等教育之后，人之为人就有了是非判断力。有相当数量高明辨能力的民意载体，这恰恰也是教育产业化，扩大高等教育的结果。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/wodr3lTjFnwDb/images/43ebda1c-0a5e-48f0-a555-08a0c2414856.jpg?asset_id=9f06c258-d48e-4cc3-b9df-242bc1795c38&amp;img_etag=%2293dea65cf08441cb509df603bbcc824c%22&amp;size=2560)](https://spark.adobe.com/page/wodr3lTjFnwDb/images/43ebda1c-0a5e-48f0-a555-08a0c2414856.jpg?asset_id=9f06c258-d48e-4cc3-b9df-242bc1795c38&amp;img_etag=%2293dea65cf08441cb509df603bbcc824c%22&amp;size=1024)
+
+两会期间，爆出孙小果死刑被暗地花钱释放的消息，冒名顶替上大学，抢夺公交车方向盘入刑等，这些动作都是土共在民意的巨大压力下做出的姿态。说明内外交困中，中共对舆情的掌握局部失控，更多内部的压力需要排解，而民意已经在推动一个巨大的专制机器走向灭亡之路。
+
+我们G系列各个平台诚如文贵先生所说，绝不仅倚靠郭先生一人之力，背后是战友及无数草根家庭对正义的呼唤。在爆料革命和墙内广泛民意的配合下，墙内越来越多的民众对于民主的渴望，对于自由的代价有着更加清醒的认识。中共国的人心民意没有在沉默中灭亡，而是在爆料革命的引领下在沉默中日益爆发。上天只会眷顾行动的强者，民意才是燎原的星火。越来越多的民众在觉醒，越来越强大的力量在行动，爆料革命长久的付出终于体现出了真正的价值与顽强的生命力。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/wodr3lTjFnwDb/images/025870d8-ea81-4ed1-96fd-c51c4b330a6f.jpg?asset_id=a706cfae-e8aa-466f-a7e7-68d88556b60d&amp;img_etag=%222c4f1f01fc13b646ad77a428b5045c3f%22&amp;size=1024)](https://spark.adobe.com/page/wodr3lTjFnwDb/images/025870d8-ea81-4ed1-96fd-c51c4b330a6f.jpg?asset_id=a706cfae-e8aa-466f-a7e7-68d88556b60d&amp;img_etag=%222c4f1f01fc13b646ad77a428b5045c3f%22&amp;size=1024)
+
+【注：文章仅代表作者观点】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/wodr3lTjFnwDb/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/wodr3lTjFnwDb/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
