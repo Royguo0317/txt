@@ -1,23 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 接种率欧盟第二死亡率全球第三 中共疫苗在匈牙利的使用效果
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/963406/)
+## 印计划建造6艘核动力攻击潜艇对抗中共海军
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/963511/)
 
-【日本东京方舟农场】作者：文柯Miles 素材采编：武汉老温 校对：文小律
+俄罗斯莫斯科喀秋莎农场   银河
 
-彭博社3月8日报道，根据约翰·霍普金斯大学（Johns Hopkins University）的数据，匈牙利当前中共病毒死亡率仅次于墨西哥和秘鲁，是世界排名第三的国家，其人均死亡人数仅次于捷克、英国和意大利，位居全球第四。
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-10_07-27-35.jpg)[rcinet.ca](https://www.rcinet.ca/eye-on-the-arctic/2018/07/31/russia-china-navy-cooperation-military-defence-security-northern-fleet-severomorsk/)
+《印度斯坦时报》当地时间3月10日报道，印度国家安全规划者对中共不断扩张的海军力量感到担忧，预计中共的航母打击力量将在2023年之前部署在印度洋。为应对中共军事威胁，印度计划建造6艘核动力攻击潜艇以加强国防力量。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-62.jpg)
+美国印太司令部司令菲利普·戴维森(Philip Davidson)表示，鉴于中共日益增强的军事实力及军事扩张野心，外加上中共控制南中国海全球经济通道的企图，中共很可能“强行改变”西太平洋现有秩序。美国加强了与同盟国的合作，美日印澳和战略盟友法国及阿拉伯联合酋长国计划在4月参加在南中国海举行的航母打击群、反潜战机和攻击潜艇的复杂互操作性演习。
 
-在欧盟，人均中共病毒疫苗接种率平均值为9.1%，即每百人已施用9.1剂疫苗。匈牙利疫苗接种率跃居至欧盟第二位，比例高达13.2%，紧随疫苗接种率第一的马耳他之后。
+四方联盟以及包括阿联酋和法国在内的合作伙伴在印度洋-太平洋地区将共同抵抗中共霸权扩张的威胁。强大的美国海军将守住马六甲海峡之外的堡垒，而印度海军及其关键盟友将是印度洋的第一守护者。因此印度急于发展可应对中共海军威胁的军事力量。
 
-据此前POLICO报道，匈牙利总理维克多•奥班（ViktorOrbán）曾亲自给予中共疫苗最大的欧盟认可。陷入缓慢疫苗接种运动的欧洲各国，越来越多地在欧盟之外寻求疫苗注射服务，而中共显然很高兴填补这一空白。
+印度正计划建造6艘核动力攻击潜艇计划，印度国防研究与发展组织(DRDO)开发了AIP技术，致力于改造印度潜艇功能。他们称，这些计划也应被视为印度海军的一项协同努力，以对抗中共海军的崛起。
 
-中共疫苗已经占匈牙利疫苗总供应量的32％，远远超过俄罗斯的Sputnik V（仅占不足3％）。匈牙利只是世界上至少25个使用中共疫苗的国家之一（主要在亚洲和中东）。据美联社统计，中共已承诺向45个国家/地区投放五亿剂中共病毒疫苗。
+中共海军的舰只数量目前超过了美国海军，尽管美国在吨位和能力方面仍领先于中共。退役海军上校、美国太平洋司令部联合情报中心前作战主任卡尔·舒斯特尔（Carl Schuster）指出，中共加快了现代化军事装备和建设，中共的海上导弹发射器数量超过美国，此外还有空中力量。因此美国印太司令部司令戴维森近日提出申请270亿美元的“威慑资金”用于采购新武器、加强与盟友的军事合作及演习，以保持美国在印太地区的战略优势，共同应对中共威胁。
 
-根据《数据世界》报道，不包括中国大陆在内，至少有25个国家和地区在使用中共疫苗。使用北京国药集团疫苗的主要包括巴林、柬埔寨、埃及、匈牙利、约旦、澳门、摩洛哥、巴基斯坦、秘鲁、塞内加尔、塞尔维亚、塞舌尔、阿拉伯联合酋长国和津巴布韦在内的十四个国家/地区。 巴西、智利、危地马拉、香港、印度尼西亚、马来西亚、北塞浦路斯、菲律宾、泰国、土耳其和乌拉圭等11个国家/地区正在使用科兴Sinovac疫苗。
+印度政府消息人士透露，美国国防部长劳埃德·奥斯汀可能将于本周访问印度，寻求两国深化军事关系，以对抗中共在亚太地区日益增强的威胁力量。
 
-参考链接：[https://www.bloomberg.com/news/articles/2021-03-08/hungary-s-epidemic-turns-critical-while-vaccine-rollout-beats-eu?utm\_content=business&utm\_campaign=socialflow-organic&utm\_medium=social&utm\_source=twitter&cmpid=socialflow-twitter-business](https://www.bloomberg.com/news/articles/2021-03-08/hungary-s-epidemic-turns-critical-while-vaccine-rollout-beats-eu?utm_content=business&amp;utm_campaign=socialflow-organic&amp;utm_medium=social&amp;utm_source=twitter&amp;cmpid=socialflow-twitter-business)
+参考链接：
+
+[https://www.hindustantimes.com/india-news/eye-on-china-india-s-plan-for-6-nuclear-powered-attack-submarines-back-on-track-101615327826084.html](https://www.hindustantimes.com/india-news/eye-on-china-india-s-plan-for-6-nuclear-powered-attack-submarines-back-on-track-101615327826084.html)
 
 0

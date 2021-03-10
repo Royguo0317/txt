@@ -1,58 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 河南话顺口溜唱“脱贫”，人大代表李连成火爆了
-` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/963356/)
+## 美国务院将两名违反人权的伊朗官员列入黑名单
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/963480/)
 
-撰稿：八宝粥
+俄罗斯莫斯科喀秋莎农场   银河
 
-【墙国新闻谎】 在中共国十三届全国人大四次会议在京召开期间，全国人大代表、西辛庄村党支部书记李连成溜须拍马地谈起乡村振兴，敢于创新，改以河南话的顺口溜说唱来代替工作汇报，并代表河南农民表达对党的衷心感谢。
+编辑   水星   上传    银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-10_07-12-24.jpg)[forbes.com](https://www.forbes.com/sites/davedeptula/2020/01/06/how-to-deter-war-with-iran-meeting-the-challenge/)
+路透社3月9日报道，美国国务院周二将两名伊朗政府审讯人员列入黑名单，指控他们虐待和侵犯人权的行为，这是拜登政府首次对德黑兰采取此类行动。
 
-党支书李连成一夜成名变网红，也带火了河南话的顺口溜。句句实话，不忘押韵，朗朗上口。
+美国国务卿布林肯(Antony Blinken)在一份声明中指责伊斯兰革命卫队(IRGC)审讯人员严重侵犯人权，包括对政治犯和在2019年和2020年伊朗抗议活动中被拘留的人实施“酷刑及残忍、不人道或有辱人格的待遇或惩罚”。
 
-其中最经典的一句：**“贫困的农民脱贫了… 历朝历代没做到!”**
+两名被制裁的伊朗官员，阿里·赫玛提安和马苏德·萨夫达里以及他们的直系亲属将被禁止进入美国。布林肯说，“我们将继续考虑采取一切适当手段，让那些在伊朗侵犯和践踏人权的人付出代价。”美国国务院发言人内德·普赖斯(Ned Price)在新闻发布会上说，美国既可以通过阻止伊朗获得核武器来追求自己的利益，也可以明确表示侵犯人权将会产生的后果。
 
-![](https://lh3.googleusercontent.com/mGbsVX8nVj6Se20ourPiLVd1bPmkOAFNhZnDSSBhRaQFNL4pu8f7_De6cb1wmaQNq7vSfz5XkJGVaCHaF6c5i8Hj1wrEkYDiBEWsU4J16xMOVB58LUc6A7wa4DIYFYMXzLZzF2AS)
+美国与伊朗的关系持续恶化。伊朗与美国新政府就核协议展开对峙，对拜登政府一再施压，伊朗表示美国必须解除制裁，而华盛顿表示，德黑兰必须首先遵守该协议。伊朗坚持是美国单方面退出了核协议，美国不得再向这项协议中增加任何其他的内容，伊朗不会接受任何解除经济制裁的新条件。伊朗加速违反2015年核协议，增加铀浓缩到20%，并在纳坦兹和福尔多的核设施大量安装用于制造浓缩铀的先进的离心机。
 
+拜登政府已经表示，准备与伊朗就两国恢复遵守核协议进行谈判，但是双方无法就谁应该首先采取行动达成一致。
 
-顺口溜全文：
+除无法达成核协议谈判之外，双方还进行了军事上的摩擦较量。周日美国军方派出两架B-52H“同层堡垒”轰炸机在中东地区“威慑侵略”，在伊朗最近一系列针对美国军队的火箭袭击后，美国向伊朗发出了明确警告。几天前美军驻扎的伊拉克空军基地再次遭到火箭袭击，一名美国承包商死于心脏病发作。美国官员认定袭击是由伊朗支持的民兵组织实施的。此前美国在叙利亚和伊拉克边境对伊朗支持的民兵组织卡塔伊真主党(Kataib Hezbollah)进行了空袭。美国的空袭表明，拜登政府准备对伊朗的侵略采取强硬立场。
 
+参考链接：
 
-```
-新时代的制度好
-俺农民心里忘不了
- 
-贫困的农民脱贫了
-历朝历代没做到
- 
-农民种粮“直补多”
-国家实行了新农合
-贫困户享低保
-孩子上学全免了
-村村都通水泥路
-农民说了
-新时代条条致富
-阳光道
-```
-
-
-
-【参考来源】
-
-**视频链接：**[https://haokan.baidu.com/v?vid=11869116439472052602&pd=bjh&fr=bjhauthor&type=video](https://haokan.baidu.com/v?vid=11869116439472052602&amp;pd=bjh&amp;fr=bjhauthor&amp;type=video)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/03-09-lies-jingle03-1.png)
-
-
-【**责任编辑**】：bingo 旧金山文宣组
-
-【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-**欢迎战友加入旧金山金喜准农场**
-
-[旧金山金喜准农场 GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
-
-[旧金山金喜准农场 Discord](https://discord.gg/QQzQ79grEA)
-
-[旧金山金喜准农场 Twitter](https://twitter.com/sf_himalaya)
+[https://www.reuters.com/article/uk-iran-usa-sanctions/u-s-state-dept-blacklists-two-iranian-officials-over-human-rights-violations-idUKKBN2B12R4?edition-redirect=uk](https://www.reuters.com/article/uk-iran-usa-sanctions/u-s-state-dept-blacklists-two-iranian-officials-over-human-rights-violations-idUKKBN2B12R4?edition-redirect=uk)
 
 0

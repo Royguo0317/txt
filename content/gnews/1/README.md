@@ -1,47 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 加拿大出口发展银行曾批准向中共企业提供巨额资助
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/963677/)
+## 澳洲网络安全中心升级中共国黑客攻击的警告
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/963829/)
 
-加拿大多伦多枫叶农场 硫酸羟氯喹64
-![]()![](https://gnews.org/wp-content/uploads/2021/03/thepostmillennial.com-2.jpg)*图片来源：The post millennial*
-加拿大知名独立媒体《后千禧年报》（The Post Millennial）于3月9日刊登文章，披露了特鲁多自由党政府治下联邦银行之一的加拿大出口发展银行，此前为了牟取短暂的眼前利益，而罔顾人权和正义，公然违背《联合国商业与人权指导原则》法规，暗中和中共国企业密切合作，并无视中共政府残酷践踏人权和非法强迫劳动的罪行，在中共病毒肆虐全球的2020年期间，在本国财政早已赤字累累的恶况之下，仍向中共国企业提供了30多亿加元的巨额金融资助。这种为虎作伥，与恶魔共舞的自戕之举，不仅严重损害了加拿大本国的长远利益，而且为中共暴政能苟延残喘，继续为祸世界提供了罪恶的血液。
+撰稿：Shirley
 
-全文编译如下：
+一个由中国国家支持的黑客组织，被称为HAFNIUM，已经利用微软Exchange系统的漏洞，对其Outlook电子邮件系统进行大规模渗透。澳大利亚7000台服务器和美国超过3万台服务器受到威胁，全球有 “几十万 “的服务器被入侵。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/16153585951.png)网络图片
+澳大利亚网络安全中心（ACSC）周二升级了警告，敦促莫里森政府和各州紧急 “修补 “他们的电子邮件网络，并保护他们免受试图利用微软漏洞的国家级行为的影响。
 
-据加拿大独立媒体Blacklock’s Reporter近日透露，联邦银行之一的加拿大出口发展银行（Export Development Canada）此前批准了向中共国企业提供金额超过30亿加元的商业贷款和相应的保险业务。
+澳大利亚企业也被告知要紧急保护他们的电子邮件系统。”ACSC已经确定了大量的澳大利亚组织，还没有修补脆弱的微软Exchange版本，”ACSC网站上的安全警报称。
+包括澳大利亚联邦科学与工业研究中心（CSIRO）和各州政府在内，及数千家公司和组织，都依赖微软的Outlook。
 
-这一通过《信息公开法》要求而获得的情报显示，该联邦银行在采取了所谓能确保该组织“符合《联合国商业与人权指导原则》，并向其客户和合作伙伴就其在人权方面的立场提供必要和明确的说明”这项政策的一年之后，仍然于2020年向中共国经营的公司提供了3,209,673,392加元的担保贷款和各种形式的保险权利。
-为此，加拿大出口发展银行的首席执行官迈里德·拉弗里（Mairead Lavery）辩解道：“当与他们（中共国公司）一起了解其融资需求的同时，我们也在努力确保这些客户明白诸如人权之类的问题。”
+澳大利亚和全世界各地的公司和组织，都正在争分夺秒地阻止来自中国的网络安全威胁。7000多家中的部分组织，包括澳大利亚联邦政府和CSIRO，都表示已经在微软上周发布修复程序后24小时内修补了漏洞。
 
-该负责人继续辩解，加拿大出口发展银行始终秉承“以商业条款进行经营”的原则，并且“在风险管理这一核心任务要求之下，不（对中共企业）提供任何赠款或资金补贴。”
+微软的情报团队将追踪到的HAFNIUM，评估为一个 “高度熟练和复杂 “的国家支持的黑客组织，”在中国以外的地方活动”，但使用的是位于美国的虚拟服务器。
+微软表示，HAFNIUM一直以各组织机构为目标，希望窃取信息，目标行业部门包括 “传染病研究人员、律师事务所、高等教育机构、国防承包商、政策智库和非政府组织”。
 
-此外，她还在下议院财政委员会上誓言：“我们确信（这些与中共企业之间的）负责任的金融业务往来。”
+中国外交部发言人在过去一周否认北京参与了此次黑客攻击。
+澳大利亚网络安全的责任由内政部长达顿（Peter Dutton）和国防部长雷诺兹（Linda Reynolds）分担。助理国防部长哈斯蒂（Andrew Hastie）将在雷诺兹长期病假期间承担她的网络职责，但《澳大利亚人报》报道称，哈斯蒂还没有收到关于其角色的正式委任书。
 
-迄今为止，有关加拿大出口发展银行在中共国所开展业务的详细信息尚未对外公开，但其与中共国合作的意愿和目的，却引起了各界对这些巨额金融项目所潜在侵犯人权行为的密切关注。自由党国会议员萨梅尔·祖贝里（Sameer Zuberi）因而明确指出，在中共国从事与侵犯人权无关的经济业务是一项艰巨的努力，因为在那里，几乎所有的“商品生产供应链都受到了（侵犯人权行为的）污染，这是毋庸置疑的！”
+内政部发言人周二表示，澳大利亚网络安全中心正在继续调查微软网络电邮黑客事件。
+（本文仅代表个人观点）
 
-该议员为此举例解释道：“我们知道在世界各地，目前有近20％的棉花来自新疆维吾尔自治区，这也就意味着在全球范围内用棉花制成的商品中有20％来自该地区。”
+审稿：永远小学生 编辑：五饼二鱼
 
-同时，他还对西红柿和多晶硅（用于太阳能电池板的一种材料）也发表了类似的谴责评论，并指出这些产品在全球大部分的产地都是新疆地区。
-
-就目前的情况看来，中共国正在加紧实施对维吾尔族人的种族灭绝政策。大量相关研究指出，许多主要的西方品牌和商品都从中共政府实施的强迫劳动中大获其利。
-许多加拿大公司也不例外。为此，加拿大议会委员会认为：“这种强迫劳动因素已被融入到许多大型国际公司的产品供应链之中，并和加拿以及其他西方国家生产和销售的众多产品密不可分。”
-
-该委员会建议加拿大政府应该“对所有那些受益于使用类似强迫劳动的公司实体和相关个人实施各项制裁措施”。
-
-而最具讽刺意味的是，该联邦银行在最近的年度报告中不忘强调：“我们所有人都应该在捍卫人权，建设包容性社会和安全社区以及和谐生活环境方面发挥各自的积极作用。”
-
-正是：
-**利欲熏心，自由党罔顾人权正道，必遭天谴。
-悍意孤行，特鲁多执迷助共为虐，自取溺亡！
-**
-
-[原文链接](https://thepostmillennial.com/trudeau-liberals-agency-approve-3-billion-in-loans-to-china)
-
-* * *
-
-校对 文锦
-发稿 云起时
-
+相关新闻来源：
+[https://www.theaustralian.com.au/nation/urgent-warning-to-secure-email-networks-after-chinesebacked-hack-of-microsoft-outlook/news-story/5ac370c9d184d2061bab7ddfabf47ef5](https://www.theaustralian.com.au/nation/urgent-warning-to-secure-email-networks-after-chinesebacked-hack-of-microsoft-outlook/news-story/5ac370c9d184d2061bab7ddfabf47ef5)
+[https://www.news.com.au/technology/online/hacking/china-statesponsored-hacking-group-hafnium-exploit-microsoft-exchange-server/news-story/c737bf3c3e90a96f0636177bd3531eb1](https://www.news.com.au/technology/online/hacking/china-statesponsored-hacking-group-hafnium-exploit-microsoft-exchange-server/news-story/c737bf3c3e90a96f0636177bd3531eb1)
+[https://krebsonsecurity.com/2021/03/at-least-30000-u-s-organizations-newly-hacked-via-holes-in-microsofts-email-software/](https://krebsonsecurity.com/2021/03/at-least-30000-u-s-organizations-newly-hacked-via-holes-in-microsofts-email-software/)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
 0

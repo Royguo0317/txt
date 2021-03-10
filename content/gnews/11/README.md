@@ -1,25 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日美澳印将举行拜登政府以来首次四国峰会
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/963605/)
+## 班农作战室783期简讯
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/963665/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+#### **翻译：七彩光**
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-10_07-49-33.jpg)[swarajyamag.com](https://swarajyamag.com/news-brief/quad-first-meeting-prime-ministers-of-india-japan-and-australia-us-president-could-take-place-this-month)
-共同通讯社 (Kyodo News)消息，白宫表示，美国、日本、澳大利亚和印度的领导人计划在周五举行会谈，这将是拜登政府后四方会谈的首次峰会。拜登总统(Joe Biden)领导的美国政府正积极寻求团结其民主盟友和伙伴，以对抗中共在印太地区日益强硬的态度和军事威胁。
+#### **校对：人民代表N**
 
-白宫周二在新闻发布会上称，“拜登总统将这列为他最早的多边接触之一，说明我们重视与我们在印度洋-太平洋地区的盟友和伙伴进行密切合作。”发布会强调四方会谈“不是针对任何单一的竞争对手”或挑战，“我们之所以建立和组建这个实体，是因为我们有共同的利益。海上安全当然很重要，但我们的共同利益远远不止于此。”
+#### **编辑：文泓**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/783.png)
+图片来源：墨尔本雅典娜农场美工组（精灵蓝）
 
-拜登总统、日本首相菅义伟、澳大利亚总理莫里森和印度总理莫迪将在网上峰会上讨论中共病毒疫情、经济合作和气候变化等问题。四方盟友国还将对供应链、新兴和关键技术、海洋安全等挑战交换意见。
+**主持人：**史蒂夫•班农
 
-印度外交部在新闻发布会上表示，四国领导人将就保持印度洋-太平洋地区自由开放的合作领域交换意见，同时探索合作机会，确保该地区安全、公平和负担得起的中共病毒疫苗。
+**嘉宾：** Maureen Bannon，Eric Greitens, Nigel Farage, Ken Blackwell, Anna Paulina Luna
 
-上个月，四国外长举行了一次电话会议。据日本外务省称，在那次会议上，部长们一致“强烈”反对中共单方面和强行改变东中国海和南中国海现状的企图。同时四国领导人还讨论了缅甸2月1日军事政变后的局势以及朝鲜等地区问题。
+#### 1、**“卑鄙的”：奈杰尔·法拉格对梅根和哈里发声**
 
-参考链接：
+奈杰尔·法拉格（Nigel Farage）说，梅根·马克尔（Meghan Markle）和哈里王子（Prince Harry）在奥普拉（Oprah）的采访中表现的“很卑鄙”。（备注：法拉格是英国著名政论家、活动家）
 
-[https://english.kyodonews.net/news/2021/03/c36c040ba063-urgent-leaders-of-japan-us-australia-india-to-meet-virtually-fri.html](https://english.kyodonews.net/news/2021/03/c36c040ba063-urgent-leaders-of-japan-us-australia-india-to-meet-virtually-fri.html)
+法拉格说，梅根是一位“ 二线演员”，毁了“弱者”哈里。他说：“这绝对是可耻的”，“任何时候都没有人以种族为由而歧视她”。法拉格说，在采访中只要梅根能想到的“每一个能触碰的按钮”她都点到了，让拜登政权称赞其为勇敢。
+
+法拉格说：“对我们普通人来说。大庭广众之下宣扬家里不光彩的事都不是一件好事”，“更何况作为一个的孙子（辈），对自己这位下个月就满95岁，为超过20亿的英联邦民众已经服务了70年的祖母这么说”。
+
+“坦率地说，史蒂夫，我认为这是卑鄙的”，他说。法拉格还提到，当他们的伪善被揭穿后，这对心怀不满的皇室成员的问题就来了。
+
+他说：“当他们决定向我们讲授气候变化的问题，同时自己却乘私人飞机环游世界时，就是他们错误的开始”，“这是整个精神崩溃的开始”。
+
+#### 2、**H.R.1法案威胁民主**
+
+肯·布莱克威尔（Ken Blackwell）解释了H.R.1选改法案如何威胁美国的宪法共和国，并将使我们成为一个“一党制国家”。（备注：布莱克威尔是美国著名的政治家、作家和保守主义者）
+
+布莱克威尔周一对作战室说：“这是一次根本性的夺取联邦权力的活动，将彻底改变我们共和国的性质”。
+
+布莱克威尔说，美国人不能（仅仅）依靠反对派来阻挠这个立法，（因为）该立法将（去年）11月3日发生的选举作弊制度化。
+
+他说：“我们不能认假冒的乔·曼钦（Joe Manchin）为头领”，“致电您的州代表，联系离您最近的政府部门”。（备注：乔·曼钦是美国民主党参议员）
+
+布莱克威尔（Blackwell）敦促美国人要求其所在的地方政府拒绝邮寄选票并恢复选举诚信。
+
+**原文链接：**
+
+- [‘Despicable’: Nigel Farage Sounds off on Meghan and Harry](https://pandemic.warroom.org/2021/03/08/despicable-nigel-farage-sounds-off-on-meghan-and-harry/)
+
+
+- [H.R. 1 Threatens Democracy](https://pandemic.warroom.org/2021/03/08/h-r-1-threatens-democracy/)
+
 
 0
