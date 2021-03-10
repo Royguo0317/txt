@@ -1,58 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 河南话顺口溜唱“脱贫”，人大代表李连成火爆了
-` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/963356/)
+## 德欲改善德美关系联合制裁中俄
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/963458/)
 
-撰稿：八宝粥
+俄罗斯莫斯科喀秋莎农场   银河
 
-【墙国新闻谎】 在中共国十三届全国人大四次会议在京召开期间，全国人大代表、西辛庄村党支部书记李连成溜须拍马地谈起乡村振兴，敢于创新，改以河南话的顺口溜说唱来代替工作汇报，并代表河南农民表达对党的衷心感谢。
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-10_07-03-50.jpg)[en.wikipedia.org](https://en.wikipedia.org/wiki/Federation_of_German-American_Clubs)
+路透社3月9日报道，德国外交部长海科·马斯（Heiko Maas）周二表示，德国希望与美国拜登政府合作，改善德美关系，将可能对中共和俄罗斯的人权及其他侵权行为展开联合制裁。
 
-党支书李连成一夜成名变网红，也带火了河南话的顺口溜。句句实话，不忘押韵，朗朗上口。
+马斯称，跨大西洋伙伴应该共同行动，捍卫共同利益和价值观。
 
-其中最经典的一句：**“贫困的农民脱贫了… 历朝历代没做到!”**
+近几个月来，德国表现出对美国政策的支持与关注。德国扩大了在阿富汗的军事行动，并计划派遣一艘军舰穿越南中国海。美国对德国派遣一艘军舰穿越有争议的南中国海的计划表示欢迎，称德国是对该地区“基于规则的国际秩序”的支持，同时指出这一基本秩序受到来自中共的威胁。
 
-![](https://lh3.googleusercontent.com/mGbsVX8nVj6Se20ourPiLVd1bPmkOAFNhZnDSSBhRaQFNL4pu8f7_De6cb1wmaQNq7vSfz5XkJGVaCHaF6c5i8Hj1wrEkYDiBEWsU4J16xMOVB58LUc6A7wa4DIYFYMXzLZzF2AS)
+德国政府官员表示，一艘德国护卫舰将于8月启程前往亚洲，在返回途中，它将成为自2002年以来首艘穿越南中国海的德国军舰。美国国务院发言人称，“我们欢迎德国对印度洋-太平洋地区基于规则的国际秩序的支持。维护开放的海洋秩序对国际社会至关重要。”并指出维护和平与稳定、尊重国际法、保证合法畅通的贸易、航行自由和其他合法使用海域是符合美国国家利益的努力。
 
+早在去年，德国颁布了一项信息技术安全法，其中包括响应美国对中共华为“清网计划”的呼吁，德国没有全面禁止华为但是为华为在德国的推广设置了很高的障碍。
 
-顺口溜全文：
+马斯在布鲁金斯学会(Brookings Institution)组织的一场有关美德关系的活动上表示，“我希望我们能够在有针对性的制裁问题上恢复跨大西洋的共同立场，这在过去四年里是不可能的。”
 
+马斯对前总统川普执政期间缺乏协调行动表示遗憾。川普总统任期时，德国因未能履行北约军事联盟规定的国防开支义务而受到巨大压力，德国坚持购买俄罗斯天然气，拒绝了川普总统要求德国从美国购买液化天然气的要求。
 
-```
-新时代的制度好
-俺农民心里忘不了
- 
-贫困的农民脱贫了
-历朝历代没做到
- 
-农民种粮“直补多”
-国家实行了新农合
-贫困户享低保
-孩子上学全免了
-村村都通水泥路
-农民说了
-新时代条条致富
-阳光道
-```
+参考链接：
 
-
-
-【参考来源】
-
-**视频链接：**[https://haokan.baidu.com/v?vid=11869116439472052602&pd=bjh&fr=bjhauthor&type=video](https://haokan.baidu.com/v?vid=11869116439472052602&amp;pd=bjh&amp;fr=bjhauthor&amp;type=video)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/03-09-lies-jingle03-1.png)
-
-
-【**责任编辑**】：bingo 旧金山文宣组
-
-【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-**欢迎战友加入旧金山金喜准农场**
-
-[旧金山金喜准农场 GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
-
-[旧金山金喜准农场 Discord](https://discord.gg/QQzQ79grEA)
-
-[旧金山金喜准农场 Twitter](https://twitter.com/sf_himalaya)
+[https://www.reuters.com/article/germany-politics-usa-idUSL8N2L751L](https://www.reuters.com/article/germany-politics-usa-idUSL8N2L751L)
 
 0

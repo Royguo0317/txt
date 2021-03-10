@@ -1,23 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 接种率欧盟第二死亡率全球第三 中共疫苗在匈牙利的使用效果
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/963406/)
+## 美国务院将两名违反人权的伊朗官员列入黑名单
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/963480/)
 
-【日本东京方舟农场】作者：文柯Miles 素材采编：武汉老温 校对：文小律
+俄罗斯莫斯科喀秋莎农场   银河
 
-彭博社3月8日报道，根据约翰·霍普金斯大学（Johns Hopkins University）的数据，匈牙利当前中共病毒死亡率仅次于墨西哥和秘鲁，是世界排名第三的国家，其人均死亡人数仅次于捷克、英国和意大利，位居全球第四。
+编辑   水星   上传    银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-10_07-12-24.jpg)[forbes.com](https://www.forbes.com/sites/davedeptula/2020/01/06/how-to-deter-war-with-iran-meeting-the-challenge/)
+路透社3月9日报道，美国国务院周二将两名伊朗政府审讯人员列入黑名单，指控他们虐待和侵犯人权的行为，这是拜登政府首次对德黑兰采取此类行动。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-62.jpg)
+美国国务卿布林肯(Antony Blinken)在一份声明中指责伊斯兰革命卫队(IRGC)审讯人员严重侵犯人权，包括对政治犯和在2019年和2020年伊朗抗议活动中被拘留的人实施“酷刑及残忍、不人道或有辱人格的待遇或惩罚”。
 
-在欧盟，人均中共病毒疫苗接种率平均值为9.1%，即每百人已施用9.1剂疫苗。匈牙利疫苗接种率跃居至欧盟第二位，比例高达13.2%，紧随疫苗接种率第一的马耳他之后。
+两名被制裁的伊朗官员，阿里·赫玛提安和马苏德·萨夫达里以及他们的直系亲属将被禁止进入美国。布林肯说，“我们将继续考虑采取一切适当手段，让那些在伊朗侵犯和践踏人权的人付出代价。”美国国务院发言人内德·普赖斯(Ned Price)在新闻发布会上说，美国既可以通过阻止伊朗获得核武器来追求自己的利益，也可以明确表示侵犯人权将会产生的后果。
 
-据此前POLICO报道，匈牙利总理维克多•奥班（ViktorOrbán）曾亲自给予中共疫苗最大的欧盟认可。陷入缓慢疫苗接种运动的欧洲各国，越来越多地在欧盟之外寻求疫苗注射服务，而中共显然很高兴填补这一空白。
+美国与伊朗的关系持续恶化。伊朗与美国新政府就核协议展开对峙，对拜登政府一再施压，伊朗表示美国必须解除制裁，而华盛顿表示，德黑兰必须首先遵守该协议。伊朗坚持是美国单方面退出了核协议，美国不得再向这项协议中增加任何其他的内容，伊朗不会接受任何解除经济制裁的新条件。伊朗加速违反2015年核协议，增加铀浓缩到20%，并在纳坦兹和福尔多的核设施大量安装用于制造浓缩铀的先进的离心机。
 
-中共疫苗已经占匈牙利疫苗总供应量的32％，远远超过俄罗斯的Sputnik V（仅占不足3％）。匈牙利只是世界上至少25个使用中共疫苗的国家之一（主要在亚洲和中东）。据美联社统计，中共已承诺向45个国家/地区投放五亿剂中共病毒疫苗。
+拜登政府已经表示，准备与伊朗就两国恢复遵守核协议进行谈判，但是双方无法就谁应该首先采取行动达成一致。
 
-根据《数据世界》报道，不包括中国大陆在内，至少有25个国家和地区在使用中共疫苗。使用北京国药集团疫苗的主要包括巴林、柬埔寨、埃及、匈牙利、约旦、澳门、摩洛哥、巴基斯坦、秘鲁、塞内加尔、塞尔维亚、塞舌尔、阿拉伯联合酋长国和津巴布韦在内的十四个国家/地区。 巴西、智利、危地马拉、香港、印度尼西亚、马来西亚、北塞浦路斯、菲律宾、泰国、土耳其和乌拉圭等11个国家/地区正在使用科兴Sinovac疫苗。
+除无法达成核协议谈判之外，双方还进行了军事上的摩擦较量。周日美国军方派出两架B-52H“同层堡垒”轰炸机在中东地区“威慑侵略”，在伊朗最近一系列针对美国军队的火箭袭击后，美国向伊朗发出了明确警告。几天前美军驻扎的伊拉克空军基地再次遭到火箭袭击，一名美国承包商死于心脏病发作。美国官员认定袭击是由伊朗支持的民兵组织实施的。此前美国在叙利亚和伊拉克边境对伊朗支持的民兵组织卡塔伊真主党(Kataib Hezbollah)进行了空袭。美国的空袭表明，拜登政府准备对伊朗的侵略采取强硬立场。
 
-参考链接：[https://www.bloomberg.com/news/articles/2021-03-08/hungary-s-epidemic-turns-critical-while-vaccine-rollout-beats-eu?utm\_content=business&utm\_campaign=socialflow-organic&utm\_medium=social&utm\_source=twitter&cmpid=socialflow-twitter-business](https://www.bloomberg.com/news/articles/2021-03-08/hungary-s-epidemic-turns-critical-while-vaccine-rollout-beats-eu?utm_content=business&amp;utm_campaign=socialflow-organic&amp;utm_medium=social&amp;utm_source=twitter&amp;cmpid=socialflow-twitter-business)
+参考链接：
+
+[https://www.reuters.com/article/uk-iran-usa-sanctions/u-s-state-dept-blacklists-two-iranian-officials-over-human-rights-violations-idUKKBN2B12R4?edition-redirect=uk](https://www.reuters.com/article/uk-iran-usa-sanctions/u-s-state-dept-blacklists-two-iranian-officials-over-human-rights-violations-idUKKBN2B12R4?edition-redirect=uk)
 
 0

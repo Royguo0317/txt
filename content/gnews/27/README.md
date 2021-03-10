@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德欲改善德美关系联合制裁中俄
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/963458/)
+## 日美澳印将举行拜登政府以来首次四国峰会
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/963605/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-10_07-03-50.jpg)[en.wikipedia.org](https://en.wikipedia.org/wiki/Federation_of_German-American_Clubs)
-路透社3月9日报道，德国外交部长海科·马斯（Heiko Maas）周二表示，德国希望与美国拜登政府合作，改善德美关系，将可能对中共和俄罗斯的人权及其他侵权行为展开联合制裁。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-10_07-49-33.jpg)[swarajyamag.com](https://swarajyamag.com/news-brief/quad-first-meeting-prime-ministers-of-india-japan-and-australia-us-president-could-take-place-this-month)
+共同通讯社 (Kyodo News)消息，白宫表示，美国、日本、澳大利亚和印度的领导人计划在周五举行会谈，这将是拜登政府后四方会谈的首次峰会。拜登总统(Joe Biden)领导的美国政府正积极寻求团结其民主盟友和伙伴，以对抗中共在印太地区日益强硬的态度和军事威胁。
 
-马斯称，跨大西洋伙伴应该共同行动，捍卫共同利益和价值观。
+白宫周二在新闻发布会上称，“拜登总统将这列为他最早的多边接触之一，说明我们重视与我们在印度洋-太平洋地区的盟友和伙伴进行密切合作。”发布会强调四方会谈“不是针对任何单一的竞争对手”或挑战，“我们之所以建立和组建这个实体，是因为我们有共同的利益。海上安全当然很重要，但我们的共同利益远远不止于此。”
 
-近几个月来，德国表现出对美国政策的支持与关注。德国扩大了在阿富汗的军事行动，并计划派遣一艘军舰穿越南中国海。美国对德国派遣一艘军舰穿越有争议的南中国海的计划表示欢迎，称德国是对该地区“基于规则的国际秩序”的支持，同时指出这一基本秩序受到来自中共的威胁。
+拜登总统、日本首相菅义伟、澳大利亚总理莫里森和印度总理莫迪将在网上峰会上讨论中共病毒疫情、经济合作和气候变化等问题。四方盟友国还将对供应链、新兴和关键技术、海洋安全等挑战交换意见。
 
-德国政府官员表示，一艘德国护卫舰将于8月启程前往亚洲，在返回途中，它将成为自2002年以来首艘穿越南中国海的德国军舰。美国国务院发言人称，“我们欢迎德国对印度洋-太平洋地区基于规则的国际秩序的支持。维护开放的海洋秩序对国际社会至关重要。”并指出维护和平与稳定、尊重国际法、保证合法畅通的贸易、航行自由和其他合法使用海域是符合美国国家利益的努力。
+印度外交部在新闻发布会上表示，四国领导人将就保持印度洋-太平洋地区自由开放的合作领域交换意见，同时探索合作机会，确保该地区安全、公平和负担得起的中共病毒疫苗。
 
-早在去年，德国颁布了一项信息技术安全法，其中包括响应美国对中共华为“清网计划”的呼吁，德国没有全面禁止华为但是为华为在德国的推广设置了很高的障碍。
-
-马斯在布鲁金斯学会(Brookings Institution)组织的一场有关美德关系的活动上表示，“我希望我们能够在有针对性的制裁问题上恢复跨大西洋的共同立场，这在过去四年里是不可能的。”
-
-马斯对前总统川普执政期间缺乏协调行动表示遗憾。川普总统任期时，德国因未能履行北约军事联盟规定的国防开支义务而受到巨大压力，德国坚持购买俄罗斯天然气，拒绝了川普总统要求德国从美国购买液化天然气的要求。
+上个月，四国外长举行了一次电话会议。据日本外务省称，在那次会议上，部长们一致“强烈”反对中共单方面和强行改变东中国海和南中国海现状的企图。同时四国领导人还讨论了缅甸2月1日军事政变后的局势以及朝鲜等地区问题。
 
 参考链接：
 
-[https://www.reuters.com/article/germany-politics-usa-idUSL8N2L751L](https://www.reuters.com/article/germany-politics-usa-idUSL8N2L751L)
+[https://english.kyodonews.net/news/2021/03/c36c040ba063-urgent-leaders-of-japan-us-australia-india-to-meet-virtually-fri.html](https://english.kyodonews.net/news/2021/03/c36c040ba063-urgent-leaders-of-japan-us-australia-india-to-meet-virtually-fri.html)
 
 0

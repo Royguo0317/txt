@@ -1,34 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲网络安全中心升级中共国黑客攻击的警告
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/963829/)
+## 【国际众声】总统家犬被赶出白宫 中共國寵物想：Take down CCP
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/963905/)
 
-撰稿：Shirley
+搜集\编撰：之之
 
-一个由中国国家支持的黑客组织，被称为HAFNIUM，已经利用微软Exchange系统的漏洞，对其Outlook电子邮件系统进行大规模渗透。澳大利亚7000台服务器和美国超过3万台服务器受到威胁，全球有 “几十万 “的服务器被入侵。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/16153585951.png)网络图片
-澳大利亚网络安全中心（ACSC）周二升级了警告，敦促莫里森政府和各州紧急 “修补 “他们的电子邮件网络，并保护他们免受试图利用微软漏洞的国家级行为的影响。
+美国总统拜登养了两只德国牧羊犬「冠军」（Champ）和「少校」（Major），它们在主人当选跟着一起住进白宫，但却传出咬人事件，只好搬回老家居住。
+《CNN》报导，美国总统拜登的两只爱犬冠军与少校上周回到位于德拉瓦州的老家，因为少校在白宫做出有攻击性的行为。拜登2018年时，在德拉瓦州一个动物收容所领养少校，但却在白宫咬了维安人员，目前尚未确定该维安人员的状况，然而这件事严重到狗儿们必须搬回老家，白宫对此尚未做出评论。
 
-澳大利亚企业也被告知要紧急保护他们的电子邮件系统。”ACSC已经确定了大量的澳大利亚组织，还没有修补脆弱的微软Exchange版本，”ACSC网站上的安全警报称。
-包括澳大利亚联邦科学与工业研究中心（CSIRO）和各州政府在内，及数千家公司和组织，都依赖微软的Outlook。
+报导指出，3岁的少校比冠军年轻，个性也比较激动，他会对维安人员做出跳跃、吠叫、追赶的动作，13岁的冠军则因为年老，动作比较迟缓。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3101.jpg)
+观点：
 
-澳大利亚和全世界各地的公司和组织，都正在争分夺秒地阻止来自中国的网络安全威胁。7000多家中的部分组织，包括澳大利亚联邦政府和CSIRO，都表示已经在微软上周发布修复程序后24小时内修补了漏洞。
+欧美大众不但对宠物的接受度高，主人对宠物的认知也正确，会选择适合自己生活方式的宠物，而且教养观念也高，负责任地把宠物教好与世界和谐共处。动物受到法律保护，领养是大多宠物主人的第一选择。少校做了“第一狗狗”，也没有狗凭主贵，被遣送回了老家。
 
-微软的情报团队将追踪到的HAFNIUM，评估为一个 “高度熟练和复杂 “的国家支持的黑客组织，”在中国以外的地方活动”，但使用的是位于美国的虚拟服务器。
-微软表示，HAFNIUM一直以各组织机构为目标，希望窃取信息，目标行业部门包括 “传染病研究人员、律师事务所、高等教育机构、国防承包商、政策智库和非政府组织”。
+“猫不是用来吃用来干嘛？做你爷吗？”同一时间，中共国广东江门的猫狗贩子却嚣张的对猫主人大叫。这批从上海被偷盗的猫狗即将被宰杀贩卖，如果没有GPS的帮助，从何寻起！
 
-中国外交部发言人在过去一周否认北京参与了此次黑客攻击。
-澳大利亚网络安全的责任由内政部长达顿（Peter Dutton）和国防部长雷诺兹（Linda Reynolds）分担。助理国防部长哈斯蒂（Andrew Hastie）将在雷诺兹长期病假期间承担她的网络职责，但《澳大利亚人报》报道称，哈斯蒂还没有收到关于其角色的正式委任书。
+和人们对大多事物的认知一样，欧美的画面和谐美好，相对应的中共国画面疯狂扭曲！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3102.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/3103.jpg)
+1949年以来中共国动荡不堪，人命如草芥，何来宠物。直到搭上WTO的列车，物质井喷，各种经济鸦片席卷而来，节日经济、婚嫁经济、宠物经济……国人在宣传的刺激下蜂拥而上。中美宠物店数量和宠物数量对比足见‘抢生意’的中共国特色。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3104.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/3105.jpg)图片来源：网络
+商家鼓吹“吸狗”“撸猫”，疯狂掘金；消费者买、买、买，盲目的消费，你有的我也要有。但这不是买房买车，宠物不是物件是生命，社会如何面对突如其来成千上万的宠物，没有健康的体系问题层出不穷。没有责任感的消费，遗弃随处可见；没有教养的支援，纠纷层出不穷；更因为法律的真空，放大了中共国猫狗文化的恐怖后果。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3106.jpg)图片来源：网络
+中共国规则，越是失控的越有利可图，表面光鲜的宠物经济，催生出嗜血的黑色产业链。有多庞大呢？被遗弃的流浪猫狗超千万，没有监管的被任意捕捉，都满足不了这个暗市场。贩卖者更四处偷盗，诱捕家养宠物。他们要做什么呢？
+据调查各地区有不同程度参与，各自扮演中转、屠宰等不同功能。以消费终端来看，广东、广西有吃猫狗陋习，主要供应肉市场；另一个消费终端是河北、山东，当地暗中从事皮毛工业，中共国已是全球最大的猫狗皮草产地；除了扒皮外，肉也被制作成火腿肠、串串等，这是一条暗线，把猫狗肉混充其他肉类贩卖。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3107.jpg)
+2020年疫情下这些杀戮也未停止，广西玉林仍照办‘狗肉节’。
+流浪猫狗也是问题，没有节育的在野外如荒草蔓延，更无从注射狂犬疫苗，而人使用疫苗率却居高不下，本末倒置。谁曾想这背后也有疫苗的利益。中共国药品市场历来滥用药物，牟取暴利，以农村为例，动物打狂犬疫苗有国家补贴，疫苗公司就把目标瞄准到人身上，追求利益，毫无道德。追根究源，人祸是所有问题的根本原因。
+在中共国人命如草芥，宠物又何来安乐生活。脱序的宠物潮，失控的流浪动物，没有人性的制度，只会人祸不断。在这人闲炼狱，如果它们能发声，一定大叫：TAKE DOWN THE CCP!
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3108.jpg)
+【以上观点仅代表笔者本人】
 
-内政部发言人周二表示，澳大利亚网络安全中心正在继续调查微软网络电邮黑客事件。
-（本文仅代表个人观点）
 
-审稿：永远小学生 编辑：五饼二鱼
 
-相关新闻来源：
-[https://www.theaustralian.com.au/nation/urgent-warning-to-secure-email-networks-after-chinesebacked-hack-of-microsoft-outlook/news-story/5ac370c9d184d2061bab7ddfabf47ef5](https://www.theaustralian.com.au/nation/urgent-warning-to-secure-email-networks-after-chinesebacked-hack-of-microsoft-outlook/news-story/5ac370c9d184d2061bab7ddfabf47ef5)
-[https://www.news.com.au/technology/online/hacking/china-statesponsored-hacking-group-hafnium-exploit-microsoft-exchange-server/news-story/c737bf3c3e90a96f0636177bd3531eb1](https://www.news.com.au/technology/online/hacking/china-statesponsored-hacking-group-hafnium-exploit-microsoft-exchange-server/news-story/c737bf3c3e90a96f0636177bd3531eb1)
-[https://krebsonsecurity.com/2021/03/at-least-30000-u-s-organizations-newly-hacked-via-holes-in-microsofts-email-software/](https://krebsonsecurity.com/2021/03/at-least-30000-u-s-organizations-newly-hacked-via-holes-in-microsofts-email-software/)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
+资料来源：
+
+[CNN：](https://edition.cnn.com/2021/03/08/politics/president-joe-biden-white-house-dogs/index.html)[Biden German Shepherd has aggressive incident and is sent back to Delaware](https://edition.cnn.com/2021/03/08/politics/president-joe-biden-white-house-dogs/index.html)
+
+[网易：江门猫狗事件：“猫不是用来吃用来干嘛？做你爷吗？”](https://www.163.com/dy/article/G4LHI7RM0517A7NU.html?f=post2020_dy_recommends)
+
+[德国之声：疫情下照办狗肉节 玉林人：禁吃侵犯自由](https://www.dw.com/zh/%E7%96%AB%E6%83%85%E4%B8%8B%E7%85%A7%E5%8A%9E%E7%8B%97%E8%82%89%E8%8A%82-%E7%8E%89%E6%9E%97%E4%BA%BA%E7%A6%81%E5%90%83%E4%BE%B5%E7%8A%AF%E8%87%AA%E7%94%B1/a-53938740)
+
+[东方财富网：2020年中国宠物食品行业市场消费现状分析](http://finance.eastmoney.com/a/202102241820057667.html)
+
+
+
+审稿：卡西欧 / 上传：天网灰灰
+
 0
