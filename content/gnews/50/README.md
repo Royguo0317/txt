@@ -1,27 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国务院将两名违反人权的伊朗官员列入黑名单
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/963480/)
+## 美印太司令呼吁在西太平洋部署陆基进攻武器
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/963527/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑   水星   上传    银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-10_07-12-24.jpg)[forbes.com](https://www.forbes.com/sites/davedeptula/2020/01/06/how-to-deter-war-with-iran-meeting-the-challenge/)
-路透社3月9日报道，美国国务院周二将两名伊朗政府审讯人员列入黑名单，指控他们虐待和侵犯人权的行为，这是拜登政府首次对德黑兰采取此类行动。
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-10_07-41-51.jpg)[youtube.com](https://www.youtube.com/watch?v=YYxnXthobXU)
 
-美国国务卿布林肯(Antony Blinken)在一份声明中指责伊斯兰革命卫队(IRGC)审讯人员严重侵犯人权，包括对政治犯和在2019年和2020年伊朗抗议活动中被拘留的人实施“酷刑及残忍、不人道或有辱人格的待遇或惩罚”。
+路透社3月9日报道，除了近日美军对西太平洋海上军事战略进行了重新部署，美国亚太事务高级海军上将在周二又提出美国军方在西太平洋需要更多的远程武器，包括陆基武器。这凸显了美国对中共日益增长的军事力量，特别是对其导弹力量的担忧。
 
-两名被制裁的伊朗官员，阿里·赫玛提安和马苏德·萨夫达里以及他们的直系亲属将被禁止进入美国。布林肯说，“我们将继续考虑采取一切适当手段，让那些在伊朗侵犯和践踏人权的人付出代价。”美国国务院发言人内德·普赖斯(Ned Price)在新闻发布会上说，美国既可以通过阻止伊朗获得核武器来追求自己的利益，也可以明确表示侵犯人权将会产生的后果。
+拜登政府已经表示，美国打算与中共在亚太地区日益增长的影响力和军事力量竞争，五角大楼正在对其在该地区的战略进行评估。美国印太司令部司令菲利普·戴维森(Philip Davidson) 表示，不仅空军和海军，建设更广泛基础的远程精确打击火力的地面部队在西太平洋战略中也是至关重要的。
 
-美国与伊朗的关系持续恶化。伊朗与美国新政府就核协议展开对峙，对拜登政府一再施压，伊朗表示美国必须解除制裁，而华盛顿表示，德黑兰必须首先遵守该协议。伊朗坚持是美国单方面退出了核协议，美国不得再向这项协议中增加任何其他的内容，伊朗不会接受任何解除经济制裁的新条件。伊朗加速违反2015年核协议，增加铀浓缩到20%，并在纳坦兹和福尔多的核设施大量安装用于制造浓缩铀的先进的离心机。
+2月10日，美国国防部专门成立对中共战略的国防工作组，针对美国如何防范中共军事威胁启动了全面备战计划。美国国防部长奥斯汀（Lloyd Austin）表示，美国致力于维护国际秩序，而中共为自身利益“不断破坏”秩序，中共威胁是美国的“首要挑战”。而随着中美军事对抗的一步步升级，美国认识到中共的侵略性和独裁霸权思维，让美国与中共爆发核战争存在真实可能。美军现在最关心的是中共的战略核潜艇对美国的威胁。
 
-拜登政府已经表示，准备与伊朗就两国恢复遵守核协议进行谈判，但是双方无法就谁应该首先采取行动达成一致。
+因两国的地理位置，让双方的对抗集中在海军和航空导弹部署。因此，美国为了国防安全，需要在中共战略核潜艇活动的重点区域加强防范。美国建议沿着第一岛链增加陆基武器，第一个岛链是从日本列岛开始，经过台湾、菲律宾，一直延伸到婆罗洲，包围了中共的沿海海域。美军已提出在2022财年计划投入4.08亿美元，在2023至2027财年计划需要29亿美元的军事支出。
 
-除无法达成核协议谈判之外，双方还进行了军事上的摩擦较量。周日美国军方派出两架B-52H“同层堡垒”轰炸机在中东地区“威慑侵略”，在伊朗最近一系列针对美国军队的火箭袭击后，美国向伊朗发出了明确警告。几天前美军驻扎的伊拉克空军基地再次遭到火箭袭击，一名美国承包商死于心脏病发作。美国官员认定袭击是由伊朗支持的民兵组织实施的。此前美国在叙利亚和伊拉克边境对伊朗支持的民兵组织卡塔伊真主党(Kataib Hezbollah)进行了空袭。美国的空袭表明，拜登政府准备对伊朗的侵略采取强硬立场。
+援引自《自由亚洲》的报道，美军战略司令部司令理查德海军上将（Charles Richard）表示，美军必须重新考虑如何评估战略风险，与中共的冲突将可能导致对手使用核武器。美国战略司令部已着手修订“战略威慑失败风险”的评估，并做好必要的行动准备。
 
 参考链接：
 
-[https://www.reuters.com/article/uk-iran-usa-sanctions/u-s-state-dept-blacklists-two-iranian-officials-over-human-rights-violations-idUKKBN2B12R4?edition-redirect=uk](https://www.reuters.com/article/uk-iran-usa-sanctions/u-s-state-dept-blacklists-two-iranian-officials-over-human-rights-violations-idUKKBN2B12R4?edition-redirect=uk)
+[https://www.reuters.com/article/us-usa-military-china/u-s-admiral-calls-for-ground-based-offensive-weaponry-in-western-pacific-idUSKBN2B12N0](https://www.reuters.com/article/us-usa-military-china/u-s-admiral-calls-for-ground-based-offensive-weaponry-in-western-pacific-idUSKBN2B12N0)
+
+[https://www.rfa.org/mandarin/pinglun/chengxiaonong/cxn-02232021133720.html](https://www.rfa.org/mandarin/pinglun/chengxiaonong/cxn-02232021133720.html)
 
 0
