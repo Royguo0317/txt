@@ -1,29 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友观点】中共国农村贫困人口真的脱贫了吗？
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/963758/)
+## 澳洲网络安全中心升级中共国黑客攻击的警告
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/963829/)
 
-#### 作者：WXZHU
+撰稿：Shirley
 
-#### 编辑：文泓
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image0-23.jpg)
-图片来源：新浪
+一个由中国国家支持的黑客组织，被称为HAFNIUM，已经利用微软Exchange系统的漏洞，对其Outlook电子邮件系统进行大规模渗透。澳大利亚7000台服务器和美国超过3万台服务器受到威胁，全球有 “几十万 “的服务器被入侵。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/16153585951.png)网络图片
+澳大利亚网络安全中心（ACSC）周二升级了警告，敦促莫里森政府和各州紧急 “修补 “他们的电子邮件网络，并保护他们免受试图利用微软漏洞的国家级行为的影响。
 
-在上月举行的中共国脱贫攻坚总结表彰大会上，总加速师宣布，中共国脱贫攻坚战取得了全面胜利，现行标准下9899万农村贫困人口全部脱贫，创造了“人间奇迹”。在此，笔者想分享一下中共国所谓的农村贫困人口脱贫的事实。
+澳大利亚企业也被告知要紧急保护他们的电子邮件系统。”ACSC已经确定了大量的澳大利亚组织，还没有修补脆弱的微软Exchange版本，”ACSC网站上的安全警报称。
+包括澳大利亚联邦科学与工业研究中心（CSIRO）和各州政府在内，及数千家公司和组织，都依赖微软的Outlook。
 
-举一个农村的现状实例，一家六口人八亩地，一亩地产一千斤麦子，合计八千斤，留下全家人自用二千斤，剩余六千斤乘一元一斤共六千元；秋季种花生一亩地产五百斤，八亩地产四千斤乘每斤花生二元五角，共收入**一万元**。春季加秋季共收入**一万六千元**，这是毛利，不包括人工、农药、化肥和种子。这还是风调雨顺的时候可以有这样的产量。
+澳大利亚和全世界各地的公司和组织，都正在争分夺秒地阻止来自中国的网络安全威胁。7000多家中的部分组织，包括澳大利亚联邦政府和CSIRO，都表示已经在微软上周发布修复程序后24小时内修补了漏洞。
 
-那么一家六口人平均收入为，一万六千元除六等于二千六百六十七元，这是一家六口人平均年收入，再扣除每人每年交保险费二百元，医疗保险费二百八十元，这样每人每年合计扣除四百八十元。
+微软的情报团队将追踪到的HAFNIUM，评估为一个 “高度熟练和复杂 “的国家支持的黑客组织，”在中国以外的地方活动”，但使用的是位于美国的虚拟服务器。
+微软表示，HAFNIUM一直以各组织机构为目标，希望窃取信息，目标行业部门包括 “传染病研究人员、律师事务所、高等教育机构、国防承包商、政策智库和非政府组织”。
 
-算到这里的时候，我真不想再计算下去了。平心而论，中共国光农村户口人数七亿，这个数字也是不准确的，实际数字甚至比这更多，这样的收入老百姓只能喝西风！请大家再试想一下农村人是怎样生活的？
+中国外交部发言人在过去一周否认北京参与了此次黑客攻击。
+澳大利亚网络安全的责任由内政部长达顿（Peter Dutton）和国防部长雷诺兹（Linda Reynolds）分担。助理国防部长哈斯蒂（Andrew Hastie）将在雷诺兹长期病假期间承担她的网络职责，但《澳大利亚人报》报道称，哈斯蒂还没有收到关于其角色的正式委任书。
 
-一般农村人身壮力强都去城市打工，剩下年弱病老的呆在农村，这样还不算，身壮力強的出去打工有时候被拖欠工资，时间长的拖半年到一年，有的甚至要不回来，想想农民工在中共这个社会体系里没有一点尊严，有时候因为要帐还要被打。
+内政部发言人周二表示，澳大利亚网络安全中心正在继续调查微软网络电邮黑客事件。
+（本文仅代表个人观点）
 
-想到这里我的心真的在滴血，难道中国人就这样一直被压迫地生活下去吗？整个国家没有任何关于农村的保障体系，而且在中共国农民是被歧视的。对于中共这个恶魔，全世界必须团结起来把它逐出地球，否则全世界的老百姓永远没有好日子过。消灭中共是正义的必须！
+审稿：永远小学生 编辑：五饼二鱼
 
-中国的农民是最应该受尊重的中国人，没有这些勤芳的农民，哪来中国各个城市的粮食供应，以及各种各样的蔬菜供应；中囯城市建设都离不开勤劳的农民工，是他们勤劳汗水铸就了一坐坐高楼大厦，所以请尊重这些勤劳的农民工，给他们最应得的尊重。
-
-（文章内容仅代表作者个人观点）
-
+相关新闻来源：
+[https://www.theaustralian.com.au/nation/urgent-warning-to-secure-email-networks-after-chinesebacked-hack-of-microsoft-outlook/news-story/5ac370c9d184d2061bab7ddfabf47ef5](https://www.theaustralian.com.au/nation/urgent-warning-to-secure-email-networks-after-chinesebacked-hack-of-microsoft-outlook/news-story/5ac370c9d184d2061bab7ddfabf47ef5)
+[https://www.news.com.au/technology/online/hacking/china-statesponsored-hacking-group-hafnium-exploit-microsoft-exchange-server/news-story/c737bf3c3e90a96f0636177bd3531eb1](https://www.news.com.au/technology/online/hacking/china-statesponsored-hacking-group-hafnium-exploit-microsoft-exchange-server/news-story/c737bf3c3e90a96f0636177bd3531eb1)
+[https://krebsonsecurity.com/2021/03/at-least-30000-u-s-organizations-newly-hacked-via-holes-in-microsofts-email-software/](https://krebsonsecurity.com/2021/03/at-least-30000-u-s-organizations-newly-hacked-via-holes-in-microsofts-email-software/)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
 0

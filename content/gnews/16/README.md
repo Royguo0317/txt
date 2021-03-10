@@ -1,51 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【国际众声】总统家犬被赶出白宫 中共國寵物想：Take down CCP
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/963905/)
+## 新疆种族灭绝报告发出 中共违反《联合国灭绝种族罪公约》每一项规定
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/963924/)
 
-搜集\编撰：之之
+【日本东京方舟农场】作者：文柯Miles  素材：武汉老温 校对：文小律
 
-美国总统拜登养了两只德国牧羊犬「冠军」（Champ）和「少校」（Major），它们在主人当选跟着一起住进白宫，但却传出咬人事件，只好搬回老家居住。
-《CNN》报导，美国总统拜登的两只爱犬冠军与少校上周回到位于德拉瓦州的老家，因为少校在白宫做出有攻击性的行为。拜登2018年时，在德拉瓦州一个动物收容所领养少校，但却在白宫咬了维安人员，目前尚未确定该维安人员的状况，然而这件事严重到狗儿们必须搬回老家，白宫对此尚未做出评论。
+华盛顿特区新线战略与政策研究所智囊团星期二发布的这份报告称，中共对正在进行的针对新疆维吾尔族的种族灭绝行为，违反《联合国灭绝种族公约》并负有国家责任。
 
-报导指出，3岁的少校比冠军年轻，个性也比较激动，他会对维安人员做出跳跃、吠叫、追赶的动作，13岁的冠军则因为年老，动作比较迟缓。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3101.jpg)
-观点：
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-65.jpg)中共党魁习近平在新疆自治区喀什市的大屏照
 
-欧美大众不但对宠物的接受度高，主人对宠物的认知也正确，会选择适合自己生活方式的宠物，而且教养观念也高，负责任地把宠物教好与世界和谐共处。动物受到法律保护，领养是大多宠物主人的第一选择。少校做了“第一狗狗”，也没有狗凭主贵，被遣送回了老家。
+新线战略与政策研究所（前全球政策中心）是华盛顿特区的一个无党派智囊团，致力于根据世界不同地区的地缘政治及其价值体系的深刻理解来辅助制定美国的外交政策。
 
-“猫不是用来吃用来干嘛？做你爷吗？”同一时间，中共国广东江门的猫狗贩子却嚣张的对猫主人大叫。这批从上海被偷盗的猫狗即将被宰杀贩卖，如果没有GPS的帮助，从何寻起！
+该报告是1948年《灭绝种族罪公约》在中国维吾尔族人持续遭受迫害时的首次独立应用。它是由新线战略与政策研究所与拉乌尔·沃伦贝格人权中心合作进行的，以应对中共对新疆所施加的严重而系统的暴行，特别是针对维吾尔族暴行的新报道，以确定它是否违法国际法，而中共政府显然违反了《种族灭绝公约》。
 
-和人们对大多事物的认知一样，欧美的画面和谐美好，相对应的中共国画面疯狂扭曲！
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3102.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/3103.jpg)
-1949年以来中共国动荡不堪，人命如草芥，何来宠物。直到搭上WTO的列车，物质井喷，各种经济鸦片席卷而来，节日经济、婚嫁经济、宠物经济……国人在宣传的刺激下蜂拥而上。中美宠物店数量和宠物数量对比足见‘抢生意’的中共国特色。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3104.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/3105.jpg)图片来源：网络
-商家鼓吹“吸狗”“撸猫”，疯狂掘金；消费者买、买、买，盲目的消费，你有的我也要有。但这不是买房买车，宠物不是物件是生命，社会如何面对突如其来成千上万的宠物，没有健康的体系问题层出不穷。没有责任感的消费，遗弃随处可见；没有教养的支援，纠纷层出不穷；更因为法律的真空，放大了中共国猫狗文化的恐怖后果。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3106.jpg)图片来源：网络
-中共国规则，越是失控的越有利可图，表面光鲜的宠物经济，催生出嗜血的黑色产业链。有多庞大呢？被遗弃的流浪猫狗超千万，没有监管的被任意捕捉，都满足不了这个暗市场。贩卖者更四处偷盗，诱捕家养宠物。他们要做什么呢？
-据调查各地区有不同程度参与，各自扮演中转、屠宰等不同功能。以消费终端来看，广东、广西有吃猫狗陋习，主要供应肉市场；另一个消费终端是河北、山东，当地暗中从事皮毛工业，中共国已是全球最大的猫狗皮草产地；除了扒皮外，肉也被制作成火腿肠、串串等，这是一条暗线，把猫狗肉混充其他肉类贩卖。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3107.jpg)
-2020年疫情下这些杀戮也未停止，广西玉林仍照办‘狗肉节’。
-流浪猫狗也是问题，没有节育的在野外如荒草蔓延，更无从注射狂犬疫苗，而人使用疫苗率却居高不下，本末倒置。谁曾想这背后也有疫苗的利益。中共国药品市场历来滥用药物，牟取暴利，以农村为例，动物打狂犬疫苗有国家补贴，疫苗公司就把目标瞄准到人身上，追求利益，毫无道德。追根究源，人祸是所有问题的根本原因。
-在中共国人命如草芥，宠物又何来安乐生活。脱序的宠物潮，失控的流浪动物，没有人性的制度，只会人祸不断。在这人闲炼狱，如果它们能发声，一定大叫：TAKE DOWN THE CCP!
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3108.jpg)
-【以上观点仅代表笔者本人】
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2-9.png)
+[请点击这里下载新线战略与政策研究所报告](https://3y4moi335jqc3hdi6ss66vpc-wpengine.netdna-ssl.com/wp-content/uploads/Chinas-Breaches-of-the-GC.pdf)
 
+美国国务院此前有报告称，据信多达200万维吾尔人和其他穆斯林少数民族被安置在该地区庞大的网格化拘留中心，此前被拘留者声称他们受到了灌输、性虐待甚至被强行消毒等。中共政府否认有侵犯人权的指控，它们称这些“教育中心”对于防止宗教极端主义和恐怖主义是必不可少的。
 
+新线战略与政策研究所报告称：“拘留营中的维吾尔族被拘留者，被剥夺了最基本的人类需要，遭受到了严重的侮辱，并受到不人道的待遇或处罚，包括但不限于长期无食物的单独监禁。”“自杀已经变得如此普遍，以致于被拘留者必须穿着’自杀安全’的制服，并且被禁止使用容易引起自残的材料。”
 
-资料来源：
+该报告还显示该地区维吾尔族出生率的急剧下降，从2017年至2018年下降了约33％！报告称中共当局实施了官方的绝育、堕胎和节育计划。
 
-[CNN：](https://edition.cnn.com/2021/03/08/politics/president-joe-biden-white-house-dogs/index.html)[Biden German Shepherd has aggressive incident and is sent back to Delaware](https://edition.cnn.com/2021/03/08/politics/president-joe-biden-white-house-dogs/index.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-5.png)2013年中共解放军在新疆
 
-[网易：江门猫狗事件：“猫不是用来吃用来干嘛？做你爷吗？”](https://www.163.com/dy/article/G4LHI7RM0517A7NU.html?f=post2020_dy_recommends)
+联合国大会于1948年12月批准了长达四页的《[联合国灭绝种族罪公约](https://www.un.org/en/genocideprevention/documents/atrocity-crimes/Doc.1_Convention%20on%20the%20Prevention%20and%20Punishment%20of%20the%20Crime%20of%20Genocide.pdf)》，其中明确界定了什么是“灭绝种族罪”，中共国与其他151个国家一起是该公约的签署国。该公约第二条明确规定，种族灭绝是“企图、意图全部或部分消灭民族，种族，种族或宗教团体的行为”。
 
-[德国之声：疫情下照办狗肉节 玉林人：禁吃侵犯自由](https://www.dw.com/zh/%E7%96%AB%E6%83%85%E4%B8%8B%E7%85%A7%E5%8A%9E%E7%8B%97%E8%82%89%E8%8A%82-%E7%8E%89%E6%9E%97%E4%BA%BA%E7%A6%81%E5%90%83%E4%BE%B5%E7%8A%AF%E8%87%AA%E7%94%B1/a-53938740)
+根据惯例，种族灭绝有五种发生方式：1.杀害该种族的公民；2.对该种族的公民造成严重的身体或精神伤害；3.故意造成某种生活条件、故意造成其全部或部分物理破坏；4.采取旨在防止该种族群体内生育的措施；5.或强行将该种族的孩子转移到另一个种族。
 
-[东方财富网：2020年中国宠物食品行业市场消费现状分析](http://finance.eastmoney.com/a/202102241820057667.html)
+新线战略与政策研究所报告称，只要违反种族灭绝公约中的一项行为就构成种族灭绝罪，但中共当局在新疆的行为已违法了《联合国灭绝种族罪公约》中的每一项规定！
 
+曼彻斯特大学的报告撰稿人和维吾尔族历史学家Rian Thum说：“在20年内，人们会将新疆的镇压视为“上世纪文化破坏的重大行为之一”。
 
+注：本文仅代表作者观点
 
-审稿：卡西欧 / 上传：天网灰灰
+参考链接：
+
+1.[https://3y4moi335jqc3hdi6ss66vpc-wpengine.netdna-ssl.com/wp-content/uploads/Chinas-Breaches-of-the-GC.pdf](https://3y4moi335jqc3hdi6ss66vpc-wpengine.netdna-ssl.com/wp-content/uploads/Chinas-Breaches-of-the-GC.pdf)
+
+2.[https://newlinesinstitute.org/uyghurs/the-uyghur-genocide-an-examination-of-chinas-breaches-of-the-1948-genocide-convention/](https://newlinesinstitute.org/uyghurs/the-uyghur-genocide-an-examination-of-chinas-breaches-of-the-1948-genocide-convention/)
+
+3.[https://edition.cnn.com/2021/03/09/asia/china-uyghurs-xinjiang-genocide-report-intl-hnk/index.html](https://edition.cnn.com/2021/03/09/asia/china-uyghurs-xinjiang-genocide-report-intl-hnk/index.html)
 
 0

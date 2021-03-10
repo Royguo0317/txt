@@ -1,59 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】浅释香港公务员高薪福利 拒签效忠公务员是真英雄
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/963333/)
+## 接种率欧盟第二死亡率全球第三 中共疫苗在匈牙利的使用效果
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/963406/)
 
-作者：纽约香草山健身部 Jack Li 文阳
+【日本东京方舟农场】作者：文柯Miles 素材采编：武汉老温 校对：文小律
 
+彭博社3月8日报道，根据约翰·霍普金斯大学（Johns Hopkins University）的数据，匈牙利当前中共病毒死亡率仅次于墨西哥和秘鲁，是世界排名第三的国家，其人均死亡人数仅次于捷克、英国和意大利，位居全球第四。
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-62.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+在欧盟，人均中共病毒疫苗接种率平均值为9.1%，即每百人已施用9.1剂疫苗。匈牙利疫苗接种率跃居至欧盟第二位，比例高达13.2%，紧随疫苗接种率第一的马耳他之后。
 
+据此前POLICO报道，匈牙利总理维克多•奥班（ViktorOrbán）曾亲自给予中共疫苗最大的欧盟认可。陷入缓慢疫苗接种运动的欧洲各国，越来越多地在欧盟之外寻求疫苗注射服务，而中共显然很高兴填补这一空白。
 
+中共疫苗已经占匈牙利疫苗总供应量的32％，远远超过俄罗斯的Sputnik V（仅占不足3％）。匈牙利只是世界上至少25个使用中共疫苗的国家之一（主要在亚洲和中东）。据美联社统计，中共已承诺向45个国家/地区投放五亿剂中共病毒疫苗。
 
-香港公务员事务局局长聂德权于3月8日透露，有近200名公务员拒绝签署拥护《基本法》和效忠香港特区的声明，这些人或需离开公务员队伍。面对港共政府的高压，这近200名有正义、有良知的公务员拒绝签署效忠令，他们勇气和担当，实在是令人钦佩。
+根据《数据世界》报道，不包括中国大陆在内，至少有25个国家和地区在使用中共疫苗。使用北京国药集团疫苗的主要包括巴林、柬埔寨、埃及、匈牙利、约旦、澳门、摩洛哥、巴基斯坦、秘鲁、塞内加尔、塞尔维亚、塞舌尔、阿拉伯联合酋长国和津巴布韦在内的十四个国家/地区。 巴西、智利、危地马拉、香港、印度尼西亚、马来西亚、北塞浦路斯、菲律宾、泰国、土耳其和乌拉圭等11个国家/地区正在使用科兴Sinovac疫苗。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/5-23.jpg)图源网络
-
-据网络资料显示，香港一贯奉行“高薪养廉”政策：公务员月薪3万到4万只能算是中下水平，服务年资长的公务员最多可以领到十几万月薪。除了较高的薪水，公务员可享受的福利也是相当好的。
-
-**医疗福利**
-
-香港公务员在医疗上的福利非常可观，可以说全身上下一直关心到了牙齿。同时，公务员家属，也可以按规定享受相应福利。
-
-**教育津贴**
-
-港府规定，只要为香港政府服务，无论何种编制，相关人员都可以获得子女教育津贴。按规定，一个公务员最多可享受四个子女的教育津贴，且该津贴的资助可以一直持续到每个子女年满19岁。
-
-**住房补贴**
-
-香港公务员还享有优越的住房补贴待遇，其中包括每年拨出一定量的低租金公屋给低级公务员居住。港政府兴建宿舍低价租给公务员，而高级公务员则可享受月薪的30%到45%的住房补贴。当中，部分公务员在购房时，政府会给予为期十年每月薪资50%的购房津贴。这些政策在寸土寸金、房租高昂的香港，实在是绝好的福利待遇。
-
-**退休保障**
-
-公务员退休之后，也有一套完整健全的计划与保障：高职级的公务员退休后最高能领取上千万的退休金。
-
-香港政府不生产效益，他们的高薪厚利都是来源于纳税人。正常情况下，政府理应为百姓利益办事。但如今，港共政府充当中共的代理人，一步步践踏香港的“一国两制”，直至消灭“一国两制”。现在，中共彻底要将香港变成和墙内一样的环境，甚至把香港试图新疆化，大举抓捕、杀害、残害反抗义士。
-
-文章开头提到的这近200位勇士，他们才是真正香港市民的公仆。而今这个社会，有人为利益出卖灵魂良知，却也有人为了坚守良知，无惧丢掉金饭碗。更不要说，这些勇士还会面临日后文革式的清算，甚至祸及家人子女，实在是既令人尊敬，又让人担心。希望他们最终能选择好自己的道路，顺利脱离中共的魔爪。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-g-fashion-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
+参考链接：[https://www.bloomberg.com/news/articles/2021-03-08/hungary-s-epidemic-turns-critical-while-vaccine-rollout-beats-eu?utm\_content=business&utm\_campaign=socialflow-organic&utm\_medium=social&utm\_source=twitter&cmpid=socialflow-twitter-business](https://www.bloomberg.com/news/articles/2021-03-08/hungary-s-epidemic-turns-critical-while-vaccine-rollout-beats-eu?utm_content=business&amp;utm_campaign=socialflow-organic&amp;utm_medium=social&amp;utm_source=twitter&amp;cmpid=socialflow-twitter-business)
 
 0

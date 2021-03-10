@@ -1,46 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新疆种族灭绝报告发出 中共违反《联合国灭绝种族罪公约》每一项规定
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/963924/)
+## 比尔·盖兹涉嫌助华大基因窃取美国人DNA数据
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/963944/)
 
-【日本东京方舟农场】作者：文柯Miles  素材：武汉老温 校对：文小律
+**【日本东京方舟农场】**作者：青衣 素材采编：武汉老温 校对：miumiu law
 
-华盛顿特区新线战略与政策研究所智囊团星期二发布的这份报告称，中共对正在进行的针对新疆维吾尔族的种族灭绝行为，违反《联合国灭绝种族公约》并负有国家责任。
+《国家脉动》高级记者及电视节目制作人娜塔莉·温特斯（Natalie Winters）向媒体透露，微软公司创始人比尔·盖茨和一家与中共国军方有密切关联的基因组测序公司——华大基因（BGI）合作，通过病毒测试方式获取美国人的DNA等数据。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-65.jpg)中共党魁习近平在新疆自治区喀什市的大屏照
+在谈到比尔·盖茨是如何助力华大基因公司（BGI）窃取美国人私密信息时，娜塔莉·温特斯援引美国前情报官员的话称，该公司是通过向全美各州提供中共病毒测试以“收集、存储和利用美国生物特征信息”的方式，来窃取美国人的DNA基因等非常私密的个人信息。华大基因也因此被美国情报官员标记为“挖掘”美国人DNA的公司。
 
-新线战略与政策研究所（前全球政策中心）是华盛顿特区的一个无党派智囊团，致力于根据世界不同地区的地缘政治及其价值体系的深刻理解来辅助制定美国的外交政策。
+全球最大的基因组学公司华大基因是一家与中共军方有密切合作关系的公司。据路透社（悉尼）报道，华大基因集团（BGI Group）已与中共国军方合作开展了从呼吸道病原体的大规模检测到脑科学的研究。
 
-该报告是1948年《灭绝种族罪公约》在中国维吾尔族人持续遭受迫害时的首次独立应用。它是由新线战略与政策研究所与拉乌尔·沃伦贝格人权中心合作进行的，以应对中共对新疆所施加的严重而系统的暴行，特别是针对维吾尔族暴行的新报道，以确定它是否违法国际法，而中共政府显然违反了《种族灭绝公约》。
+令人费解的是，像华大基因这样一家被美国情报官员标记为“挖掘”美国人DNA的公司，美国的比尔及梅琳达·盖茨基金会却与华大基因有着广泛的合作。盖茨基金会曾与中国科学技术部和农业科学院等机构一起，资助了华大基因与基因测序有关的项目。华大基因在奥巴马政府时期得以在美国站稳了脚跟，而它在美国扩张的过程中，比尔及梅琳达·盖茨基金会发挥了关键作用。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2-9.png)
-[请点击这里下载新线战略与政策研究所报告](https://3y4moi335jqc3hdi6ss66vpc-wpengine.netdna-ssl.com/wp-content/uploads/Chinas-Breaches-of-the-GC.pdf)
+2012年9月，华大基因与盖茨的基金会签署了“谅解备忘录”（MOU），在全球卫生与农业发展方面达成合作目标，华大基因的共同创始人王军盛赞了该协议。2016年，华大基因又在美国华盛顿州，即微软和比尔及梅琳达·盖茨基金会的所在地，设立了一家美国办事处。华大基因也因此在中共病毒爆发后以其新冠病毒测试套件瞄准了该州，据称这是该公司“挖掘”美国人数据计划的一部分。
 
-美国国务院此前有报告称，据信多达200万维吾尔人和其他穆斯林少数民族被安置在该地区庞大的网格化拘留中心，此前被拘留者声称他们受到了灌输、性虐待甚至被强行消毒等。中共政府否认有侵犯人权的指控，它们称这些“教育中心”对于防止宗教极端主义和恐怖主义是必不可少的。
+2020年3月初，华盛顿州是美国最早及最严重的新冠病毒爆发地，病毒检测需求激增。华大基因给了华盛顿州一个诱人的报价，并且在写给州长的一封私人信件中，提议建立并帮助运营最先进的新冠病毒测试实验室。不过最终，当地官员应国家情报局局长办公室的要求，拒绝了与华大基因的合作。
 
-新线战略与政策研究所报告称：“拘留营中的维吾尔族被拘留者，被剥夺了最基本的人类需要，遭受到了严重的侮辱，并受到不人道的待遇或处罚，包括但不限于长期无食物的单独监禁。”“自杀已经变得如此普遍，以致于被拘留者必须穿着’自杀安全’的制服，并且被禁止使用容易引起自残的材料。”
+埃维尼纳（Evanina）是前美国国家反情报和安全中心主任，正是他对华大基因集团（BGI Group）的报价提出警告，才使各州拒绝了华大基因的报价。埃维尼纳警告说，华大基因正试图为中国收集美国人的DNA，并可以利用这些数据垄断关键的医疗用品。埃维尼纳在接受哥伦比亚广播公司采访时表示：“这显示了中国共产党的邪恶思想，它利用了像新冠病毒这样的全球性危机。” “我们要向每个美国人，向每间医院，协会和诊所发出询问：知道华大基因是一家中国公司，我们是否了解这些数据的去向？”
 
-该报告还显示该地区维吾尔族出生率的急剧下降，从2017年至2018年下降了约33％！报告称中共当局实施了官方的绝育、堕胎和节育计划。
+埃维尼纳还表示，中国可以利用这些信息来预测美国当前和未来的健康状况，然后努力获得对解决这些健康状况所需的药物和治疗方法的垄断控制。中国对美国所需医疗用品的控制可能会迫使美国在未来的医疗危机中依赖中国。此外，家用检测试剂盒也有风险。当美国情报官员发出对华大基因集团的警告时，成千上万的美国人已经因为在家使用家用自测盒，而面临他们个人生物数据被窃取的危险。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-5.png)2013年中共解放军在新疆
+在中共病毒全球大爆发前后，网上盛传很多质疑比尔·盖茨“政治与经济动机”的言论，被一些舆论媒体批为“阴谋论”。如：怀疑他计划透过疫苗大规模消灭人口；怀疑他利用疫苗接种计划植入微晶片以追踪和控制人类；怀疑他借疫情和疫苗大肆敛财等等。对此，我们目前尚无从论证其真假，但比尔·盖茨在病毒爆发前后的很多言谈和行为都不得不让人对此产生怀疑。如：通过早期视频可知他竟然一早就预言了新冠病毒会爆发；他“神奇”地预测了新冠病毒会杀死过百万人；他还早早投资研发疫苗，大力推广疫苗，并从疫苗上获得了巨额利润等等。
 
-联合国大会于1948年12月批准了长达四页的《[联合国灭绝种族罪公约](https://www.un.org/en/genocideprevention/documents/atrocity-crimes/Doc.1_Convention%20on%20the%20Prevention%20and%20Punishment%20of%20the%20Crime%20of%20Genocide.pdf)》，其中明确界定了什么是“灭绝种族罪”，中共国与其他151个国家一起是该公约的签署国。该公约第二条明确规定，种族灭绝是“企图、意图全部或部分消灭民族，种族，种族或宗教团体的行为”。
+《国家脉动》记者娜塔莉·温特斯对比尔·盖茨的评价是：“我们的精英和我们的建制派实际上在和中共同流合污。这只是比尔·盖茨和中共勾结的冰山一角。他非常看好中共，他最近曾说暂停（与中共合作）的唯一原因是政治方面和中共的紧张关系。如果紧张关系消退，他将重启与中共的合作。”
 
-根据惯例，种族灭绝有五种发生方式：1.杀害该种族的公民；2.对该种族的公民造成严重的身体或精神伤害；3.故意造成某种生活条件、故意造成其全部或部分物理破坏；4.采取旨在防止该种族群体内生育的措施；5.或强行将该种族的孩子转移到另一个种族。
-
-新线战略与政策研究所报告称，只要违反种族灭绝公约中的一项行为就构成种族灭绝罪，但中共当局在新疆的行为已违法了《联合国灭绝种族罪公约》中的每一项规定！
-
-曼彻斯特大学的报告撰稿人和维吾尔族历史学家Rian Thum说：“在20年内，人们会将新疆的镇压视为“上世纪文化破坏的重大行为之一”。
+比尔·盖茨如此看重和执著于与在国际上已臭名昭著的中共合作，究竟是出于谋取经济利益，还是政治目的考量，抑或是兼而有之，或者背后还有什么更深层的不可告人的目的，时间会给出答案。
 
 注：本文仅代表作者观点
 
 参考链接：
 
-1.[https://3y4moi335jqc3hdi6ss66vpc-wpengine.netdna-ssl.com/wp-content/uploads/Chinas-Breaches-of-the-GC.pdf](https://3y4moi335jqc3hdi6ss66vpc-wpengine.netdna-ssl.com/wp-content/uploads/Chinas-Breaches-of-the-GC.pdf)
+1.[https://thenationalpulse.com/exclusive/bgi-genomics-gates-foundation-collab/](https://thenationalpulse.com/exclusive/bgi-genomics-gates-foundation-collab/)
 
-2.[https://newlinesinstitute.org/uyghurs/the-uyghur-genocide-an-examination-of-chinas-breaches-of-the-1948-genocide-convention/](https://newlinesinstitute.org/uyghurs/the-uyghur-genocide-an-examination-of-chinas-breaches-of-the-1948-genocide-convention/)
+2.[https://www.reuters.com/article/us-china-genomics-military-exclusive/exclusive-china-gene-firm-providing-worldwide-covid-tests-worked-with-chinese-military-idUSKBN29Z0HA](https://www.reuters.com/article/us-china-genomics-military-exclusive/exclusive-china-gene-firm-providing-worldwide-covid-tests-worked-with-chinese-military-idUSKBN29Z0HA)
 
-3.[https://edition.cnn.com/2021/03/09/asia/china-uyghurs-xinjiang-genocide-report-intl-hnk/index.html](https://edition.cnn.com/2021/03/09/asia/china-uyghurs-xinjiang-genocide-report-intl-hnk/index.html)
+3.[https://americanmilitarynews.com/2021/01/china-is-trying-to-collect-americans-dna-and-more-fmr-us-intel-official-says/](https://americanmilitarynews.com/2021/01/china-is-trying-to-collect-americans-dna-and-more-fmr-us-intel-official-says/)
 
 0

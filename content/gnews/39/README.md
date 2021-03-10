@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共发展重大科技五年计划揭示其超越美国并最终主导世界的超级大国野心
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/963610/)
+## 中共长久以来所能做的就是从美国偷窃，然后大规模复制
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/963634/)
 
-3/8/2021 中共承诺的发展重大科技五年计划揭示了其意图超越美国并最终成为主导世界的超级大国的野心。
+3/8/2021 中共长久以来所能做的就是从美国偷窃，然后大规模复制。
 
 By： 【秘密翻译组 G-Translators】
 
