@@ -1,41 +1,99 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中国联邦——人类历史上的创新​​建国模式
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/962608/)
+## 以毒灭共、以钱灭共在欧美持续发酵中
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/962616/)
 
-作者：DC 令狐冲
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image-95.png)
-在郭文贵先生的引领下，在爆料革命的推动下，中国人创建的全新国家——「新中国联邦」已经在2020年6月4日诞生了。这是人类历史上全新的一种建国模式，具有划时代的意义，一系列的全新理念也伴随着这个国家的建立而展现在世人面前，本文将从以下几个方面来向诸位分享为何新中国联邦如此与众不同。
+新闻简述：郭先生在2021年3月2日的盖特视频中讲到“以毒灭共”、“以钱灭共”在美国、欧洲，甚至是亚洲持续发酵。
 
-一、正道主义的建国理念
+- 中共将马里克教授“困”于香港，以控制病毒真相的传播；
+- 中共以增加关税、提高原材料价格等方式威胁欧洲国家；
+- 香港被一些国家及地区列为制裁区，经济形势面临崩溃，大陆经济也岌岌可危；
+- 美国部分州政府官员呼吁与中共的交往透明化，蓬佩奥称中美经济脱钩是必须的；
+- 日本和俄罗斯试图从中共国最大化获取利益；
+- 内部有关人士反应，拜登政府灭共力度可能比川普总统还大。
 
-新中国联邦遵循的建国理念是正道主义。什么是正道主义？根据郭先生的描述，我认为正道主义的含义就是信仰第一，资本第二，唯真不破。这是跟资本主义的资本第一，信仰第二，唯利是图完全不同的理念。新中国联邦从建国起就将对上天的信仰，对万佛万神的信仰摆在了第一位。我们建立的是一个真正有信仰的国家，我们是这样说的也是这样做的，在过去的将近一年里，无论是病毒的真相，中共操纵美国大选，还是中共的灭白计画妄图统治全世界，新中国联邦都冲在最前面唤醒着世界人民，基于我们的对上天对万佛万神的信仰，我们追求正义和真相并敢于为天下苍生而战斗。新中国联邦从成立前到成立后得到了上天万佛万神的护佑，多次显现神迹化险为夷，新中国联邦展现出完全不同的光明前景。反观以美欧日为代表的发达资本主义国家在面对中共发动的这场超限生物武器战争中却进退失据，完全陷于混乱被动挨打之中，资本第一，唯利是图的丑恶嘴脸暴露无遗。在面对全人类的生死存亡关头，资本的掌控者们仍然在枉顾人命与发动战争的中共恶魔勾兑并从中牟利，在中共的蓝金黄BGY面前整个资本主义社会全面沦陷，几乎找不到信仰和正义，这是多么的可怕。如果不是郭先生挺身而出引领爆料革命，推动新中国联邦站出来向全世界说出中共发动这场超限生物武器战争的真相，唤醒越来越多的人站在信仰和正义这一边，恶魔早已得手，世界早已沦陷。由此可见新中国联邦的建国理念的多么的与众不同，我们是承天意而诞生的新时代的国家。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles-20210302-Getter.srt.txt)
+**以毒灭共、以钱灭共在欧美持续发酵中**
 
-二、新中国联邦人与众不同
+**The Progress of Taking Down the CCP by Spreading the Truth About the Virus and Through Financial Activities in America and Europe**
 
-新中国联邦人都是拥有共同的信仰和理想的人，我们都知道自己是负有上天使命的人。我们的首要任务就是挺郭灭共，长远目标是建设一个信仰，法治，民主，自由的新中国。这样一群有信仰、有勇气的中国人在目前这种中共极权统治奴役全体中国人包括海外华人的情况下是非常难能可贵的，这些人代表着中国人种当中的精华，是百里挑一的精英，在这场灭共的爆料革命中涌现出无数的风流人物永留青史，从体制内的战友们，从香港抗争的英雄们到阎天使博士、路德、艾丽、安红、墨博士、博博士、冠博士等博士军团们，再到各农场里默默付出的战友们，这样的中国人他们所表现出来的有信仰、勇敢、善良和智慧让世界看到了完全不一样的中国人，他们的出现证明了中国人这个人种是没问题的，所有的问题的根源都来自中共，中共绝不代表中国人民，灭共是解决问题的根本。这样的中国人集结在一起组成新中国联邦，使到这个新生国家具有无穷的生命力和创新能力，当然也具有创造无限的干净安全财富的能力。新中国联邦正是因为拥有这么多中国人的精英而具有与众不同的潜力，将来必定会引领中国人民的发展方向。
+00:35-00:01:39
 
-三、建构在云端之上的去中心化的国家行政组织架构
+从昨天到今天大家看到发生什么事情了吗？这个以毒灭共、以钱灭共是什么情况的发生？整个美国现在白宫、五角大楼、国会山、保守派会议，还有所谓的激进派，都在干什么呢？毒是哪来的？都在弄嘛哈。
 
-新中国联邦是全球第一个完全依托互联网而建立起来的国家，按照郭先生的构想，就是要将国家的权力和管理去中心化，依托互联网真正实现一人一票的民主投票制度，国家管理能真正体现出最终的民意，发挥所有人的潜力共同管理国家。虽然到目前为止，新中国联邦尚未拥有一寸土地，但依托互联网而建立的散布于全球的农场已经形成了国家的基本行政组织框架，其功能相当于其他国家的一个省或州，有多少个农场就有多少个省或者州，新中国联邦人加入其中一个农场来开展活动，行使自身的权利并获取相应的利益，农场的组建是新国家的核心任务。这是一种前所未见的全新的国家组织架构理念，散居全球各地的新中国联邦人通过互联网加入各地农场，农场通过互联网组建成一个云端上的国家，所有一切都是为了将​​国家权力和行政管理去中心化，但每一个个人又真实存在，平时都隐藏在互联网中，需要的时候呼之即来，形成合力展开活动。即使将来新中国联邦拥有固定的土地也完全不影响这种高效率的行政组织和管理方式。这无疑是目前最与众不同的超前的国家组织管理理念，我们新中国联邦人引以为傲。
+Have you seen what happened yesterday and today? Have you noticed the results from our strategy of taking down the CCP by spreading the truth about the virus and through financial activities? People across America, in the White House, in the Pentagon, on Capitol Hill, at the CPAC’s gatherings, and among the so-called radicals -do you know what they are doing? They are all learning where the virus came from. They are all learning about it.
 
-四、建立在互联网之上的国家经济
+欧洲所有的国家，共产党天天制裁那个，制裁那个的，瞎球折腾。现在不用制裁了，现在大量的，它现在给人家加关税。国内的各种原材料大涨价，经济一塌糊涂，金融崩溃。
 
-新中国联邦是全球第一个将自身的经济完全建立在互联网之上的国家，开创人类历史先河。按照郭先生的说法，新中国联邦抓住了互联网经济和虚拟货币这两个代表世界未来发展方向所带来的前所未有的机遇，顺应时代潮流应运而生。新中国联邦的所有经济活动都建立在互联网之上，我们发行的是虚拟货币Gcoin和Gdollar，我们的GTV，Gnews，Gfashion，Gbank，Gmall等等一系列的国家基础经济实体都是互联网企业，在郭先生的带领下我们新中国联邦注定要成为互联网经济和虚拟货币的引领者。环顾世界，人类历史上从未有过一个国家的经济基础是完全建立在互联网之上的，财富是完全虚拟化的，这种全新的经济模式由新中国联邦开创，前途无量！
+The CCP threatened European countries in various ways to force them to accept their will. Now instead they are talking about imposing tariffs. There are already inflationary pressures on all kinds of raw materials in mainland China. The CCP’s economy is in shambles, facing a financial collapse.
 
-五，新中国联邦是属于全体新中国联邦人的国家
+现在好多国家要把香港列为制裁区，中共的匪区，制裁区。什么概念，兄弟姐妹们？香港的金融就将崩塌。
 
-人类历史上从未有过一个国家像新中国联邦这样，从建立之日起就已经制定了各种机制来确保这个国家是属于全体国民的，这要归功于新中国联邦的奠基人和总设计师郭文贵先生。郭先生秉持着无我无私的信念为新中国联邦规划了宏伟无比的发展蓝图，特别是G系列经济体作为国家经济的命脉和基石，它们的发展壮大是提升国家实力的重中之重，也是以钱灭共的杀手锏之一。目前只有爆料革命的战友才有资格成为新中国联邦人，为了让新中国联邦的国家利益永远控制在新中国联邦人的手中，郭先生巧妙地设计出一系列的云端平台让每一位爆料革命的战友都成为G系列经济体的初始股东，真正掌控G系列经济体的话语权。这是郭先生的大爱和无私奉献才能促成的人类奇迹。当一个国家的经济命脉都由这个国家的每一个国民来实际掌控，国家的财富都由每一位国民共同分享，这些人就是这个国家真正的主人。这跟世界上的其他国家是完全不一样的话语权掌控机制，在这种机制下，再也不会出现极少数人通过掌控极多财富垄断一切话语权的现象。配合上郭先生倡导的唯真不破高科技一人一票高效民主模式，新中国联邦真正实现人民当家作主这个宏伟蓝图，预示着人类社会发展到一个新阶段。
+Many countries have listed Hong Kong as a sanctionable area – an area controlled by the CCP bandits. What does this mean, brothers and sisters? It means that Hong Kong’s financial system is about to collapse.
 
-通过以上几点叙述，我相信每一个人都对新中国联邦的美好未来充满了期待。目前爆料革命已经进入到以毒灭共，以钱灭共的新阶段，我们每一位新中国联邦人应该在自身条件允许下积极配合这个战略转变，力所能及贡献自己的力量。
+**01:44-01:57**
 
-新中国联邦的未来无限光明！
+接下来，把香港打成和大陆一样的待遇以后，大家去想想，会是什么样的待遇，什么样的感觉？
 
-（本文仅代表作者个人观点）
+Hong Kong will be indistinguishable from mainland China. Think about it, what would that be like, what would it feel like?
 
-编辑： 雪山
+**02:48-07:42**
 
-发布： GLC
+我说以毒灭共的时候，没有几个人，包括我们的路波切，我们的科学家，不明白我的意思。那马里克回香港，啥感觉？我刚才给路波切、科学家说，马里克回香港啥也不是，就是想把他圈在香港，不让他出去，别到美国、西方这儿来，或者被做掉，或者说把所有的秘密提供给西方。这是根本，这是一个根本的根本。还要控制病毒在整个全世界的，新病毒蔓延和发展，包括疫苗。
+
+When I started the strategy of “taking down the CCP by spreading the truth about the virus”, not many people understood, including Lude and our scientist Dr. Li-Meng Yan. Why did Malik return to Hong Kong? I just told Lude and Dr. Yan that the only reason Malik returned to Hong Kong was that the CCP wanted him to be under control. They want to make sure he does not leave for the US or Europe and that he does not get killed or tell the West the truth about the virus. That is the point. This is the essence. The CCP will continue to spread new viruses around the world and control the vaccines.
+
+这就是共产党的疯狂。它永远把在奴役中国人的侥幸成功，真正的认为自己的天下的能力，天下的无所不能的超自然能力。它以为每次以假、以黑、以贪、以警治国的这些招儿在全世界管用。这就是上天，给一些坏人一些特别能力的时候，他真以为自己与众不同了。
+
+This is the madness of the CCP. The CCP always believe that they are the God and have superpowers to enslave the Chinese people forever. The CCP think they are powerful enough to control the world by fraud, dirty tricks, corruption, and force. When they got unrestricted power, these rulers mistakenly  thought that they are so unique that they can do  whatever they want.
+
+最终，这些东西会导致他的灭亡。毋庸置疑的。包括现在大家看到的，整个全世界，没有多少人敢跟共产党做生意的。现在佛罗里达保守党大会、德州，就连加州议员都有人提出来跟共产党的来往必须按照美国法律，限定你什么时间内来上报你跟它来往的细节、中间联络人，包括收受的礼物、吃饭和住的地方，联络方式，怕被蓝金黄。
+
+In the end, their craziness will definitely lead to their demise. There is no doubt about it. And, as we can see now, it is rare that people around the world want to do business with China. Now at the CPAC conference in Florida, in Texas, and even a senator from California made the point that any contact with the CCP must obey the US law and that the details must be reported within a specified time, including who you contacted, what gifts you received, where you stayed and ate, the contact methods, all to prevent people from being BGY-ed by the CCP.
+
+你想想，保守的欧洲，德国、比利时这样的国家，所有议员在欧洲议会上都提出来，还有瑞士，说如果所有欧洲的官员和中共打交道不能公开透明的话，就不能再做官员。特别大屠杀这个事情，又被拜登政府再次确认，就是大屠杀。这场博弈，最近听拜登政府的人跟我说，现在拜登政府的人跟共产党谁再见面，都害怕了。头一段时间都去Ambassador Cui，崔大使那儿成为时髦。但是最近，没人敢，害怕了都，说共产党老拿来威胁，共产党啊，老拿来威胁，咋办呢？谁都害怕。
+
+Think about it. In conservative European countries such as Germany, Belgium, and Switzerland, parliamentarians have proposed that any European official who is not open and transparent in their contacts with the CCP cannot be an official. Specifically, on the “Xinjiang Genocide”, the Biden administration has further confirmed this designation. I just heard from someone in the Biden administration that no one would dare to meet with the CCP at this point. They are all scared. A while ago, these people called it fashionable to visit the CCP’s ambassador Cui Tiankai, but recently they are afraid, and no one dares to go there anymore. They said that the CCP always threatened them. What to do? They are all scared.
+
+所以说，共产党这个王八蛋犊子。我跟你说，这就是个纯粹的流氓组织，还把自己代表人民、代表党，还什么江山是人民的。江山是谁的都不应该是你共产党的，这是个起码的常识，是不是，兄弟姐妹们？我说的有道理吧？有道理不？是不是？这是个起码的常识，是谁的都不应该是你共产党的。
+
+So, the CCP is a bastard. I tell you what, the CCP is completely a rogue organization. They say that they represent the Chinese people and that the country belongs to the people. No matter who the country belongs to, it should not belong to you – the CCP. It is common sense, isn’t it, brothers and sisters? Am I right? It is fundamental common sense that whoever it belongs to, it should not belong to you, the CCP!
+
+还有一个，兄弟姐妹们，你们看到这几天日本、俄罗斯有啥变化？俄罗斯现在就是要钱，拿钱拿钱，天天要钱，就是在它死了以前把它腰包里的钱掏光了，就这么简单。日本现在装弱，示弱，哎呀，不敢惹你啊，你是大爷，你是大爷，你是九指妖，是吧？但是，私下里边能把技术撤的就撤了，能把日本的东西拿回去就拿回去，能把所有的日本的这个高端的东西拿回去就拿回去。竟然，在珠海的高尔夫球场都被通知要撤回，你想这有多可怕啊？这是什么概念？
+
+On the other hand, brothers and sisters, have you noticed what has changed in Japan and Russia these days? Russia asks the CCP for money every day, “Give me the money! Money! Money!” It’s about emptying the CCP’s pockets before its death, simple as that. Japan pretends it is weak, showing weakness, “CCP, I will never challenge you, you’re the boss.”
+
+You are like the “nine-fingered demoness Sara (VOG)”, Okay? But, privately, Japan is bringing all the technology, money, and high-tech projects back to Japan as quickly as they can. Even the golf course in Zhuhai has received orders to retreat. Do you realize how terrible this is? What does that mean?
+
+看到蓬佩奥说了吗？ 中美经济脱钩是必须的、必然的，而且是应该马上的。看到我们皮特纳瓦罗说“Take down the CCP! Take down the CCP!” 兄弟姐妹们，咱的30招，在川普总统如果没被这个巴尔给干掉的话，共产党已经进棺材板了。但是这30招，据我所说，拜登政府认为这是不错啊，现在捡起来，感觉不错啊。
+
+Have you heard what Mike Pompeo said? “The decoupling between the US and the CCP is necessary, inevitable, and should happen immediately.” Do you hear what our (friend) Peter Navarro is saying? “Take down the CCP! Take down the CCP!” Brothers and sisters, we suggested 30 Executive Orders for the Trump administration. If they were not obstructed by William Barr, the CCP would have been dead already. Nevertheless, as far as I know, the Biden administration thinks the 30 EOs look good. They feel good when they have them in their hands.
+
+昨天对我最好的消息就是听说，他们要把这30招下去，要进行下去。这对咱是个好消息吧。七哥原来跟你们说什么，拜登政府一旦要灭共反而比川普还反共。
+
+I was told a piece of wonderful news yesterday – that the Biden administration will carry out these 30 EOs. Is it good for us? Do you recall what I told you before? -Once the Biden administration makes up their minds to take down the CCP, it will be even harsher and faster than Trump.”
+
+**09:10-09:32**
+
+听这个最近内部的人说，咱战友说，现在每个人都觉得这拜登上来，不但日子没好过，更难过了。说这个川普总统的政府啊，还有的事还是能过得去的；说拜登这帮人上来以后啊，这个荤素不吃，浑不吝。你说，这是啥感觉？
+
+Recently, our fellow fighter inside [the CCP] told me that it was much more difficult to deal with the Biden administration than Trump’s. He said that things were negotiable with the Trump administration, but the Biden administration doesn’t accept any conditions. How do you feel about that?
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+
+视频来源：[https://gtv.org/getter/603e5f0f195851590238bc3b](https://gtv.org/getter/603e5f0f195851590238bc3b) (00:35-01:39, 01:44-01:57, 02:48-07:42, 09:10-09:32)
+
+鸣谢：
+[1] 感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/942922/](https://gnews.org/zh-hans/942922/)
+[2] 感谢Bruce, Antsee-GTV, Liberte提供英文翻译文本于[https://www.gnews.org/953436/](https://www.gnews.org/953436/)
+
+文字整理 & 总结撰写：【Cyndi】校对：【Cyndi】【Isaiah4031】【Rock小哥】字幕：【Rock小哥】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
 0
