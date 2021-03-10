@@ -1,58 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 河南话顺口溜唱“脱贫”，人大代表李连成火爆了
-` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/963356/)
+## 印计划建造6艘核动力攻击潜艇对抗中共海军
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/963511/)
 
-撰稿：八宝粥
+俄罗斯莫斯科喀秋莎农场   银河
 
-【墙国新闻谎】 在中共国十三届全国人大四次会议在京召开期间，全国人大代表、西辛庄村党支部书记李连成溜须拍马地谈起乡村振兴，敢于创新，改以河南话的顺口溜说唱来代替工作汇报，并代表河南农民表达对党的衷心感谢。
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-10_07-27-35.jpg)[rcinet.ca](https://www.rcinet.ca/eye-on-the-arctic/2018/07/31/russia-china-navy-cooperation-military-defence-security-northern-fleet-severomorsk/)
+《印度斯坦时报》当地时间3月10日报道，印度国家安全规划者对中共不断扩张的海军力量感到担忧，预计中共的航母打击力量将在2023年之前部署在印度洋。为应对中共军事威胁，印度计划建造6艘核动力攻击潜艇以加强国防力量。
 
-党支书李连成一夜成名变网红，也带火了河南话的顺口溜。句句实话，不忘押韵，朗朗上口。
+美国印太司令部司令菲利普·戴维森(Philip Davidson)表示，鉴于中共日益增强的军事实力及军事扩张野心，外加上中共控制南中国海全球经济通道的企图，中共很可能“强行改变”西太平洋现有秩序。美国加强了与同盟国的合作，美日印澳和战略盟友法国及阿拉伯联合酋长国计划在4月参加在南中国海举行的航母打击群、反潜战机和攻击潜艇的复杂互操作性演习。
 
-其中最经典的一句：**“贫困的农民脱贫了… 历朝历代没做到!”**
+四方联盟以及包括阿联酋和法国在内的合作伙伴在印度洋-太平洋地区将共同抵抗中共霸权扩张的威胁。强大的美国海军将守住马六甲海峡之外的堡垒，而印度海军及其关键盟友将是印度洋的第一守护者。因此印度急于发展可应对中共海军威胁的军事力量。
 
-![](https://lh3.googleusercontent.com/mGbsVX8nVj6Se20ourPiLVd1bPmkOAFNhZnDSSBhRaQFNL4pu8f7_De6cb1wmaQNq7vSfz5XkJGVaCHaF6c5i8Hj1wrEkYDiBEWsU4J16xMOVB58LUc6A7wa4DIYFYMXzLZzF2AS)
+印度正计划建造6艘核动力攻击潜艇计划，印度国防研究与发展组织(DRDO)开发了AIP技术，致力于改造印度潜艇功能。他们称，这些计划也应被视为印度海军的一项协同努力，以对抗中共海军的崛起。
 
+中共海军的舰只数量目前超过了美国海军，尽管美国在吨位和能力方面仍领先于中共。退役海军上校、美国太平洋司令部联合情报中心前作战主任卡尔·舒斯特尔（Carl Schuster）指出，中共加快了现代化军事装备和建设，中共的海上导弹发射器数量超过美国，此外还有空中力量。因此美国印太司令部司令戴维森近日提出申请270亿美元的“威慑资金”用于采购新武器、加强与盟友的军事合作及演习，以保持美国在印太地区的战略优势，共同应对中共威胁。
 
-顺口溜全文：
+印度政府消息人士透露，美国国防部长劳埃德·奥斯汀可能将于本周访问印度，寻求两国深化军事关系，以对抗中共在亚太地区日益增强的威胁力量。
 
+参考链接：
 
-```
-新时代的制度好
-俺农民心里忘不了
- 
-贫困的农民脱贫了
-历朝历代没做到
- 
-农民种粮“直补多”
-国家实行了新农合
-贫困户享低保
-孩子上学全免了
-村村都通水泥路
-农民说了
-新时代条条致富
-阳光道
-```
-
-
-
-【参考来源】
-
-**视频链接：**[https://haokan.baidu.com/v?vid=11869116439472052602&pd=bjh&fr=bjhauthor&type=video](https://haokan.baidu.com/v?vid=11869116439472052602&amp;pd=bjh&amp;fr=bjhauthor&amp;type=video)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/03-09-lies-jingle03-1.png)
-
-
-【**责任编辑**】：bingo 旧金山文宣组
-
-【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-**欢迎战友加入旧金山金喜准农场**
-
-[旧金山金喜准农场 GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
-
-[旧金山金喜准农场 Discord](https://discord.gg/QQzQ79grEA)
-
-[旧金山金喜准农场 Twitter](https://twitter.com/sf_himalaya)
+[https://www.hindustantimes.com/india-news/eye-on-china-india-s-plan-for-6-nuclear-powered-attack-submarines-back-on-track-101615327826084.html](https://www.hindustantimes.com/india-news/eye-on-china-india-s-plan-for-6-nuclear-powered-attack-submarines-back-on-track-101615327826084.html)
 
 0

@@ -1,99 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 以毒灭共、以钱灭共在欧美持续发酵中
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/962616/)
+## 名为“岩松”实为“蛆虫”——调侃白岩松的“三挨论”
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/962647/)
 
-新闻简述：郭先生在2021年3月2日的盖特视频中讲到“以毒灭共”、“以钱灭共”在美国、欧洲，甚至是亚洲持续发酵。
+作者：左媛
 
-- 中共将马里克教授“困”于香港，以控制病毒真相的传播；
-- 中共以增加关税、提高原材料价格等方式威胁欧洲国家；
-- 香港被一些国家及地区列为制裁区，经济形势面临崩溃，大陆经济也岌岌可危；
-- 美国部分州政府官员呼吁与中共的交往透明化，蓬佩奥称中美经济脱钩是必须的；
-- 日本和俄罗斯试图从中共国最大化获取利益；
-- 内部有关人士反应，拜登政府灭共力度可能比川普总统还大。
+央视名嘴白岩松近日在两会上谈中国形象对外传播时称，“这是一个过程，我觉得我们一定要有历史的耐心，同时还要有历史性的准备……1949年毛泽东在天安门城楼上宣布中国人民站起来，结束了我们挨打的时代；邓小平改革开放，结束了我们挨饿的时代；我们现在正式进入了挨骂的时代。因为你强了，因为别人躲不开你，因为别人长时间防着你，各种各样的限制你。”
 
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles-20210302-Getter.srt.txt)
-**以毒灭共、以钱灭共在欧美持续发酵中**
+白岩松大概当名嘴当惯了，口若悬河，出口就历史，张嘴就排比。这不，一本正经地胡说八道，我只担心他说完这话会招来不测之祸啊。何以见得？请听我细细道来。
 
-**The Progress of Taking Down the CCP by Spreading the Truth About the Virus and Through Financial Activities in America and Europe**
+首先，“名嘴白”这话很明显与习总加速师的宏伟理想相违背。按照习黄袍加身以来的行事风格，完全继承了毛的“一万年太久，只争朝夕”遗训，今天一个百年规划，明天一个千年大计，“弯道超车”不怕掉下悬崖，只想迎头赶上！他小平废除终身制，我习总就废除“邓的废除”；他老江开了个“孔子学院”，我小习就拉一条“一带一路”；他锦涛办了一届夏奥，俺近平就来一个冬奥！前面仨长老干的活，在我这儿全部要按我的意思成就，否则就不是“一尊”！在修宪、夺港、投毒一路高歌猛进世界万马齐喑的时候，你居然说什么要有“历史的耐心”！讲“耐心”能有这么多成就吗？能有这么多习著作畅销海内外吗？能有这么多专家学者官员把我捧上“神坛”吗？讲“耐心”就是不怀好意，就是不相信我党，就是不相信“核心”，21世纪是中国共产党的世纪，只能快马加鞭，岂可讲“历史的耐心”！
 
-00:35-00:01:39
+其次，“……结束了我们挨打的时代。”这个“我们”是谁？是你党吗？你党可没挨打。自从有中共你党以来，在外，只有日本打过中国人。蒋总统指挥国民军队浴血奋战的时候，你党的策略是“一分抗日，二分应付，七分发展”，游而不击，甚至和日军勾兑，一起对抗国民军。据日本靖国神社统计二战在华战亡人数，日军死于国军之手多达318883人，死于共军之手只有851人。日军投降时，是国军代表签署历史性文件，没你中共什么事儿，你“名嘴白”不应该不知道吧！如果这个“我们”是指中国人民，那你根本不是替中国人民说话。替中国人民说话，就应该锲而不舍地为中国人民早日享受“三免”而发声！对了，毛泽东奉西方反动势力“马克思斯大林”为圭臬，又在中国境内分裂祖国，成立什么“中华苏维埃共和国”，连钱币上都印刷苏俄列宁的头像，真正的卖祖求荣；国军抗日他偷袭国军，最后篡党夺权。毛夺权之后，中国人民真正跪下去了，工人农民知识分子和官员，无一不跪，只有毛一人趾高气扬地站着！“名嘴白”，这些，你应该都知道吧！“中国人民站起来了”，你问问你的父母跪下去的日子是怎样的吧，他们的体会更真实更细致，说起故事来更生动也许会声泪俱下呢。（名嘴白没想到有人当众揭他主子的老底儿，紧张极了）
 
-从昨天到今天大家看到发生什么事情了吗？这个以毒灭共、以钱灭共是什么情况的发生？整个美国现在白宫、五角大楼、国会山、保守派会议，还有所谓的激进派，都在干什么呢？毒是哪来的？都在弄嘛哈。
+“……结束了我们挨饿的时代。”这话该当何罪？从毛到邓，有整整30年时间，你居然说那30年是“挨饿”的时代，“名嘴白”你居心何在？还是请王毅部长来教训一下你吧，你这是“诋毁抹黑”！白岩松你挨饿了吗？干嘛长得这么白白胖胖高高大大？你父母挨饿了吗？干嘛还能养出你这么个不肖子孙来？那么多人，有几个挨饿的饿死的很正常嘛。那时候，有苏修卡我们的脖子，有美帝封锁我们，有英帝见死不救，还有那么多亚非拉穷兄弟要我们养活，七八亿人口，饿死那么几个等于没死人，这个逻辑你不懂吗？你说那是个挨饿的时代，简直就是胡说八道！（耳语）你这不是揭党的疮疤掀党的癞头嘛！（名嘴白已经吓得浑身筛糠了。心想我这是歌颂我党，咋就成了诋毁抹黑了呢）
 
-Have you seen what happened yesterday and today? Have you noticed the results from our strategy of taking down the CCP by spreading the truth about the virus and through financial activities? People across America, in the White House, in the Pentagon, on Capitol Hill, at the CPAC’s gatherings, and among the so-called radicals -do you know what they are doing? They are all learning where the virus came from. They are all learning about it.
+“我们现在正式进入了挨骂的时代。因为你强了，因为别人躲不开你。”
 
-欧洲所有的国家，共产党天天制裁那个，制裁那个的，瞎球折腾。现在不用制裁了，现在大量的，它现在给人家加关税。国内的各种原材料大涨价，经济一塌糊涂，金融崩溃。
+![](https://lh6.googleusercontent.com/olM-mQ0ONXVX7qm8589QnsILG6tdeA9y2RQ2KIPGUb0YPfT0ybZlDGOO0mrb1XytQXiOcpn5UVgF1qd6SmYNwPbVlxx2gbUk5nxIfSrNlDLx-4FR9ijhbJnloctP-1mRDbEnNzYB)为什么“现在正式进入了挨骂的时代 ” ？
+**因为CCP共产党向全世界放毒！犯了反人类罪**！必挨千刀万剐
 
-The CCP threatened European countries in various ways to force them to accept their will. Now instead they are talking about imposing tariffs. There are already inflationary pressures on all kinds of raw materials in mainland China. The CCP’s economy is in shambles, facing a financial collapse.
+讲了毛时代“站”起来，讲了邓时代“富”起来，都是好的。轮到习时代，因为“强起来”竟然要挨骂，这马屁拍得让习皇实在不悦悦！
 
-现在好多国家要把香港列为制裁区，中共的匪区，制裁区。什么概念，兄弟姐妹们？香港的金融就将崩塌。
+“谁骂我们了？上折子！”金銮殿里一个低沉又威严的声音惊得四座差点跪下去。
 
-Many countries have listed Hong Kong as a sanctionable area – an area controlled by the CCP bandits. What does this mean, brothers and sisters? It means that Hong Kong’s financial system is about to collapse.
+众大臣面面相觑，不敢言语，目光齐刷刷朝向“一号战狼”王毅部长。王战狼浓眉一耸，嘴巴一撇，眼睛一瞪，身子一侧，凶光四射：是啊，小白。我们强起来，大家都看到了。你说挨骂，还说进入挨骂的时代，你说说，都有谁骂我们，啊？毛时代有30年，没人骂；邓时代也有30年，没人骂；怎么进入习时代就有人骂呢？按你的意思，难道还要挨骂30年不成？
 
-**01:44-01:57**
+“名嘴白”心想：我一无官，二无职，撑死胆大的，饿死胆小的。我豁出去了。
 
-接下来，把香港打成和大陆一样的待遇以后，大家去想想，会是什么样的待遇，什么样的感觉？
+“回禀王部长：自从十八大修宪以来，全国人民衷心拥护，但美帝却说三道四，骂骂咧咧。他们嫉妒我们的国家制度，他们也想终身制但没有胆魄。香港动荡之后，我党及时解决了那几个小毛贼，现在安定团结，越来越向中央靠拢，英国却兴风作浪，不安好心。几十年前，我们说超英赶美，那时条件有限没有成功。在习主席领导下，我们早就超过英国，很快赶上美国，整个欧美都很恐惧，他们害怕社会主义制度的优越性会把他们抛得远远的，所以联合起来骂。他们的骂，说明我们的成功。他们骂得越久，我们就甩开他们越远……”
 
-Hong Kong will be indistinguishable from mainland China. Think about it, what would that be like, what would it feel like?
+“行了，小白。你说得好。”一尊宝座上传来玉音，习皇龙颜大悦，“王毅部长啊，调小白去外交部新闻司工作吧，人才难得。”
 
-**02:48-07:42**
+原以为“名嘴白”会因言获罪，谁知最后关头舔菊功夫了得，竟瞬间翻盘，进入大内。这让胡锡进兄弟情何以堪？“名嘴白”汗流浃背却故作镇静，听闻此言，心头窃喜却不露声色。“岩松岩松”，岩石上的傲然之松，果真白取了这么一个令人傲娇的名字。在蛆虫横行的中南坑里，岩上之松也不过是一条粪坑之蛆而已！
 
-我说以毒灭共的时候，没有几个人，包括我们的路波切，我们的科学家，不明白我的意思。那马里克回香港，啥感觉？我刚才给路波切、科学家说，马里克回香港啥也不是，就是想把他圈在香港，不让他出去，别到美国、西方这儿来，或者被做掉，或者说把所有的秘密提供给西方。这是根本，这是一个根本的根本。还要控制病毒在整个全世界的，新病毒蔓延和发展，包括疫苗。
+2021.3.8于纽约
 
-When I started the strategy of “taking down the CCP by spreading the truth about the virus”, not many people understood, including Lude and our scientist Dr. Li-Meng Yan. Why did Malik return to Hong Kong? I just told Lude and Dr. Yan that the only reason Malik returned to Hong Kong was that the CCP wanted him to be under control. They want to make sure he does not leave for the US or Europe and that he does not get killed or tell the West the truth about the virus. That is the point. This is the essence. The CCP will continue to spread new viruses around the world and control the vaccines.
+【参考来源】
 
-这就是共产党的疯狂。它永远把在奴役中国人的侥幸成功，真正的认为自己的天下的能力，天下的无所不能的超自然能力。它以为每次以假、以黑、以贪、以警治国的这些招儿在全世界管用。这就是上天，给一些坏人一些特别能力的时候，他真以为自己与众不同了。
+[https://news.sina.cn/gn/2021-03-07/detail-ikkntiak5606840.d.html?isJump=0&universallink=1](https://news.sina.cn/gn/2021-03-07/detail-ikkntiak5606840.d.html?isJump=0&amp;universallink=1)
 
-This is the madness of the CCP. The CCP always believe that they are the God and have superpowers to enslave the Chinese people forever. The CCP think they are powerful enough to control the world by fraud, dirty tricks, corruption, and force. When they got unrestricted power, these rulers mistakenly  thought that they are so unique that they can do  whatever they want.
+![](https://lh6.googleusercontent.com/OeWey88TW1FMCFdkhWO6M7B-pTRp1ovwjhK2kW2xyj9027gXI86yH66ORTyMHgDMpEyEvdfe_zLbDgB-Cz0yzGNV4jGeXJgArfwKn2k6MMu04T6G2jVxXhbpacOqNcisPprVrKLC)
 
-最终，这些东西会导致他的灭亡。毋庸置疑的。包括现在大家看到的，整个全世界，没有多少人敢跟共产党做生意的。现在佛罗里达保守党大会、德州，就连加州议员都有人提出来跟共产党的来往必须按照美国法律，限定你什么时间内来上报你跟它来往的细节、中间联络人，包括收受的礼物、吃饭和住的地方，联络方式，怕被蓝金黄。
+【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-In the end, their craziness will definitely lead to their demise. There is no doubt about it. And, as we can see now, it is rare that people around the world want to do business with China. Now at the CPAC conference in Florida, in Texas, and even a senator from California made the point that any contact with the CCP must obey the US law and that the details must be reported within a specified time, including who you contacted, what gifts you received, where you stayed and ate, the contact methods, all to prevent people from being BGY-ed by the CCP.
+**欢迎战友加入旧金山金喜准农场**
 
-你想想，保守的欧洲，德国、比利时这样的国家，所有议员在欧洲议会上都提出来，还有瑞士，说如果所有欧洲的官员和中共打交道不能公开透明的话，就不能再做官员。特别大屠杀这个事情，又被拜登政府再次确认，就是大屠杀。这场博弈，最近听拜登政府的人跟我说，现在拜登政府的人跟共产党谁再见面，都害怕了。头一段时间都去Ambassador Cui，崔大使那儿成为时髦。但是最近，没人敢，害怕了都，说共产党老拿来威胁，共产党啊，老拿来威胁，咋办呢？谁都害怕。
+[旧金山金喜准农场 GTV](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
 
-Think about it. In conservative European countries such as Germany, Belgium, and Switzerland, parliamentarians have proposed that any European official who is not open and transparent in their contacts with the CCP cannot be an official. Specifically, on the “Xinjiang Genocide”, the Biden administration has further confirmed this designation. I just heard from someone in the Biden administration that no one would dare to meet with the CCP at this point. They are all scared. A while ago, these people called it fashionable to visit the CCP’s ambassador Cui Tiankai, but recently they are afraid, and no one dares to go there anymore. They said that the CCP always threatened them. What to do? They are all scared.
+[旧金山金喜准农场 Discord](https://discord.gg/QQzQ79grEA)
 
-所以说，共产党这个王八蛋犊子。我跟你说，这就是个纯粹的流氓组织，还把自己代表人民、代表党，还什么江山是人民的。江山是谁的都不应该是你共产党的，这是个起码的常识，是不是，兄弟姐妹们？我说的有道理吧？有道理不？是不是？这是个起码的常识，是谁的都不应该是你共产党的。
+[旧金山金喜准农场 Twitter](https://twitter.com/sf_himalaya)
 
-So, the CCP is a bastard. I tell you what, the CCP is completely a rogue organization. They say that they represent the Chinese people and that the country belongs to the people. No matter who the country belongs to, it should not belong to you – the CCP. It is common sense, isn’t it, brothers and sisters? Am I right? It is fundamental common sense that whoever it belongs to, it should not belong to you, the CCP!
-
-还有一个，兄弟姐妹们，你们看到这几天日本、俄罗斯有啥变化？俄罗斯现在就是要钱，拿钱拿钱，天天要钱，就是在它死了以前把它腰包里的钱掏光了，就这么简单。日本现在装弱，示弱，哎呀，不敢惹你啊，你是大爷，你是大爷，你是九指妖，是吧？但是，私下里边能把技术撤的就撤了，能把日本的东西拿回去就拿回去，能把所有的日本的这个高端的东西拿回去就拿回去。竟然，在珠海的高尔夫球场都被通知要撤回，你想这有多可怕啊？这是什么概念？
-
-On the other hand, brothers and sisters, have you noticed what has changed in Japan and Russia these days? Russia asks the CCP for money every day, “Give me the money! Money! Money!” It’s about emptying the CCP’s pockets before its death, simple as that. Japan pretends it is weak, showing weakness, “CCP, I will never challenge you, you’re the boss.”
-
-You are like the “nine-fingered demoness Sara (VOG)”, Okay? But, privately, Japan is bringing all the technology, money, and high-tech projects back to Japan as quickly as they can. Even the golf course in Zhuhai has received orders to retreat. Do you realize how terrible this is? What does that mean?
-
-看到蓬佩奥说了吗？ 中美经济脱钩是必须的、必然的，而且是应该马上的。看到我们皮特纳瓦罗说“Take down the CCP! Take down the CCP!” 兄弟姐妹们，咱的30招，在川普总统如果没被这个巴尔给干掉的话，共产党已经进棺材板了。但是这30招，据我所说，拜登政府认为这是不错啊，现在捡起来，感觉不错啊。
-
-Have you heard what Mike Pompeo said? “The decoupling between the US and the CCP is necessary, inevitable, and should happen immediately.” Do you hear what our (friend) Peter Navarro is saying? “Take down the CCP! Take down the CCP!” Brothers and sisters, we suggested 30 Executive Orders for the Trump administration. If they were not obstructed by William Barr, the CCP would have been dead already. Nevertheless, as far as I know, the Biden administration thinks the 30 EOs look good. They feel good when they have them in their hands.
-
-昨天对我最好的消息就是听说，他们要把这30招下去，要进行下去。这对咱是个好消息吧。七哥原来跟你们说什么，拜登政府一旦要灭共反而比川普还反共。
-
-I was told a piece of wonderful news yesterday – that the Biden administration will carry out these 30 EOs. Is it good for us? Do you recall what I told you before? -Once the Biden administration makes up their minds to take down the CCP, it will be even harsher and faster than Trump.”
-
-**09:10-09:32**
-
-听这个最近内部的人说，咱战友说，现在每个人都觉得这拜登上来，不但日子没好过，更难过了。说这个川普总统的政府啊，还有的事还是能过得去的；说拜登这帮人上来以后啊，这个荤素不吃，浑不吝。你说，这是啥感觉？
-
-Recently, our fellow fighter inside [the CCP] told me that it was much more difficult to deal with the Biden administration than Trump’s. He said that things were negotiable with the Trump administration, but the Biden administration doesn’t accept any conditions. How do you feel about that?
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-
-视频来源：[https://gtv.org/getter/603e5f0f195851590238bc3b](https://gtv.org/getter/603e5f0f195851590238bc3b) (00:35-01:39, 01:44-01:57, 02:48-07:42, 09:10-09:32)
-
-鸣谢：
-[1] 感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/942922/](https://gnews.org/zh-hans/942922/)
-[2] 感谢Bruce, Antsee-GTV, Liberte提供英文翻译文本于[https://www.gnews.org/953436/](https://www.gnews.org/953436/)
-
-文字整理 & 总结撰写：【Cyndi】校对：【Cyndi】【Isaiah4031】【Rock小哥】字幕：【Rock小哥】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+【**责任编辑**】：bingo
 
 0
