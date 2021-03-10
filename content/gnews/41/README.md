@@ -1,34 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲网络安全中心升级中共国黑客攻击的警告
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/963829/)
+## 中共疫苗外交的如意算盘必将破产
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/963900/)
 
-撰稿：Shirley
+作者：洛杉矶天使农场-火枪手
+编辑：洛杉矶天使农场-Feihua
+审核：洛杉矶天使农场-V
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ym.jpg)
+**美国、日本澳大利亚和印度四国将合作向各国分发疫苗，吹响了反攻中共疫苗外交的号角。**
 
-一个由中国国家支持的黑客组织，被称为HAFNIUM，已经利用微软Exchange系统的漏洞，对其Outlook电子邮件系统进行大规模渗透。澳大利亚7000台服务器和美国超过3万台服务器受到威胁，全球有 “几十万 “的服务器被入侵。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/16153585951.png)网络图片
-澳大利亚网络安全中心（ACSC）周二升级了警告，敦促莫里森政府和各州紧急 “修补 “他们的电子邮件网络，并保护他们免受试图利用微软漏洞的国家级行为的影响。
+据英国《金融时报》引述消息人士透露，美国、日本、澳大利亚、印度四国同盟首脑将于本周末举行“四方安全对话”（QUAD）视频会议。四国希望合力向各国分发COVID-19疫苗，对抗中共在印太地区的影响力行动。
 
-澳大利亚企业也被告知要紧急保护他们的电子邮件系统。”ACSC已经确定了大量的澳大利亚组织，还没有修补脆弱的微软Exchange版本，”ACSC网站上的安全警报称。
-包括澳大利亚联邦科学与工业研究中心（CSIRO）和各州政府在内，及数千家公司和组织，都依赖微软的Outlook。
+据路透社引述印度政府消息人士的话说，四国同盟已经举行了几次会议，讨论全球疫苗接种。此前印度方面曾经敦促美，日，澳投资印度的疫苗生产，以共同对付中共的所谓疫苗外交。(四国同盟最初由日本前首相安倍晋三于2007年推动。美国川普政府时期，四国外长在2020年10月初的东京会议上同意联手应对中共，大约一个月后，四国在孟加拉海湾举行了大规模联合海上军演。)
 
-澳大利亚和全世界各地的公司和组织，都正在争分夺秒地阻止来自中国的网络安全威胁。7000多家中的部分组织，包括澳大利亚联邦政府和CSIRO，都表示已经在微软上周发布修复程序后24小时内修补了漏洞。
+中共现在是不惜一切地代价利用疫苗外交，夺取话语权，即便该所谓的疫苗连三期实验都没有做过，这就是赤裸裸的草菅人命。近日秘鲁媒体披露，秘鲁的三期临床试验结果显示，大陆国药集团武汉生物制品研究所研发的疫苗，有效率仅为33%；国药北京生物制品研究所研发的疫苗有效率仅为11.5%，均远低于世界卫生组织的50%合格门槛。而此前中共官方声称，国药疫苗的有效率接近80%。中共在根本没有完成临床实验的情况下，匆匆推出抢占疫苗市场，等于把秘鲁，巴西，以及非洲一些国家的人民做小白鼠，这些国家已经有不少因为疫苗致死致残的报道。中共国国内04年开始就爆发多起疫苗大量致死致残事件，比如04年山西假疫苗，2013年B肝疫苗死亡事件，16年山东假疫苗事件等等。由于太过频繁的惨剧，致使大陆民众已经对中共疫苗失去信任。有报道称，04年之前日本一直免费提供中共国基础疫苗，因为中共根本就没有相关生产能力，在日本不再提供之后，随之而来疫苗问题也在近十几年屡屡发生。
 
-微软的情报团队将追踪到的HAFNIUM，评估为一个 “高度熟练和复杂 “的国家支持的黑客组织，”在中国以外的地方活动”，但使用的是位于美国的虚拟服务器。
-微软表示，HAFNIUM一直以各组织机构为目标，希望窃取信息，目标行业部门包括 “传染病研究人员、律师事务所、高等教育机构、国防承包商、政策智库和非政府组织”。
+在制造全人类的灾难后，中共恶魔又摇身一变伪装成救世主的形象，用根本无效，甚至轻易就能致死致残的毒疫苗欺骗世人，同时又用疫苗绑架和勾兑一些中共能够控制的一带一路的国家政府和腐败政客。在国际上取得疫苗话语权，同时妄图堵住世界追究中共释放病毒的责任。但是世界正义的力量一定会集结，并彻底粉碎中共的阴谋。这次四国首脑会议将是吹响反攻中共疫苗外交的号角。
 
-中国外交部发言人在过去一周否认北京参与了此次黑客攻击。
-澳大利亚网络安全的责任由内政部长达顿（Peter Dutton）和国防部长雷诺兹（Linda Reynolds）分担。助理国防部长哈斯蒂（Andrew Hastie）将在雷诺兹长期病假期间承担她的网络职责，但《澳大利亚人报》报道称，哈斯蒂还没有收到关于其角色的正式委任书。
+【文章仅代表作者本人观点】
 
-内政部发言人周二表示，澳大利亚网络安全中心正在继续调查微软网络电邮黑客事件。
-（本文仅代表个人观点）
-
-审稿：永远小学生 编辑：五饼二鱼
-
-相关新闻来源：
-[https://www.theaustralian.com.au/nation/urgent-warning-to-secure-email-networks-after-chinesebacked-hack-of-microsoft-outlook/news-story/5ac370c9d184d2061bab7ddfabf47ef5](https://www.theaustralian.com.au/nation/urgent-warning-to-secure-email-networks-after-chinesebacked-hack-of-microsoft-outlook/news-story/5ac370c9d184d2061bab7ddfabf47ef5)
-[https://www.news.com.au/technology/online/hacking/china-statesponsored-hacking-group-hafnium-exploit-microsoft-exchange-server/news-story/c737bf3c3e90a96f0636177bd3531eb1](https://www.news.com.au/technology/online/hacking/china-statesponsored-hacking-group-hafnium-exploit-microsoft-exchange-server/news-story/c737bf3c3e90a96f0636177bd3531eb1)
-[https://krebsonsecurity.com/2021/03/at-least-30000-u-s-organizations-newly-hacked-via-holes-in-microsofts-email-software/](https://krebsonsecurity.com/2021/03/at-least-30000-u-s-organizations-newly-hacked-via-holes-in-microsofts-email-software/)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
 0
