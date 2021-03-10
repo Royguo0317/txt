@@ -1,23 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 接种率欧盟第二死亡率全球第三 中共疫苗在匈牙利的使用效果
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/963406/)
+## 德欲改善德美关系联合制裁中俄
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/963458/)
 
-【日本东京方舟农场】作者：文柯Miles 素材采编：武汉老温 校对：文小律
+俄罗斯莫斯科喀秋莎农场   银河
 
-彭博社3月8日报道，根据约翰·霍普金斯大学（Johns Hopkins University）的数据，匈牙利当前中共病毒死亡率仅次于墨西哥和秘鲁，是世界排名第三的国家，其人均死亡人数仅次于捷克、英国和意大利，位居全球第四。
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-10_07-03-50.jpg)[en.wikipedia.org](https://en.wikipedia.org/wiki/Federation_of_German-American_Clubs)
+路透社3月9日报道，德国外交部长海科·马斯（Heiko Maas）周二表示，德国希望与美国拜登政府合作，改善德美关系，将可能对中共和俄罗斯的人权及其他侵权行为展开联合制裁。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-62.jpg)
+马斯称，跨大西洋伙伴应该共同行动，捍卫共同利益和价值观。
 
-在欧盟，人均中共病毒疫苗接种率平均值为9.1%，即每百人已施用9.1剂疫苗。匈牙利疫苗接种率跃居至欧盟第二位，比例高达13.2%，紧随疫苗接种率第一的马耳他之后。
+近几个月来，德国表现出对美国政策的支持与关注。德国扩大了在阿富汗的军事行动，并计划派遣一艘军舰穿越南中国海。美国对德国派遣一艘军舰穿越有争议的南中国海的计划表示欢迎，称德国是对该地区“基于规则的国际秩序”的支持，同时指出这一基本秩序受到来自中共的威胁。
 
-据此前POLICO报道，匈牙利总理维克多•奥班（ViktorOrbán）曾亲自给予中共疫苗最大的欧盟认可。陷入缓慢疫苗接种运动的欧洲各国，越来越多地在欧盟之外寻求疫苗注射服务，而中共显然很高兴填补这一空白。
+德国政府官员表示，一艘德国护卫舰将于8月启程前往亚洲，在返回途中，它将成为自2002年以来首艘穿越南中国海的德国军舰。美国国务院发言人称，“我们欢迎德国对印度洋-太平洋地区基于规则的国际秩序的支持。维护开放的海洋秩序对国际社会至关重要。”并指出维护和平与稳定、尊重国际法、保证合法畅通的贸易、航行自由和其他合法使用海域是符合美国国家利益的努力。
 
-中共疫苗已经占匈牙利疫苗总供应量的32％，远远超过俄罗斯的Sputnik V（仅占不足3％）。匈牙利只是世界上至少25个使用中共疫苗的国家之一（主要在亚洲和中东）。据美联社统计，中共已承诺向45个国家/地区投放五亿剂中共病毒疫苗。
+早在去年，德国颁布了一项信息技术安全法，其中包括响应美国对中共华为“清网计划”的呼吁，德国没有全面禁止华为但是为华为在德国的推广设置了很高的障碍。
 
-根据《数据世界》报道，不包括中国大陆在内，至少有25个国家和地区在使用中共疫苗。使用北京国药集团疫苗的主要包括巴林、柬埔寨、埃及、匈牙利、约旦、澳门、摩洛哥、巴基斯坦、秘鲁、塞内加尔、塞尔维亚、塞舌尔、阿拉伯联合酋长国和津巴布韦在内的十四个国家/地区。 巴西、智利、危地马拉、香港、印度尼西亚、马来西亚、北塞浦路斯、菲律宾、泰国、土耳其和乌拉圭等11个国家/地区正在使用科兴Sinovac疫苗。
+马斯在布鲁金斯学会(Brookings Institution)组织的一场有关美德关系的活动上表示，“我希望我们能够在有针对性的制裁问题上恢复跨大西洋的共同立场，这在过去四年里是不可能的。”
 
-参考链接：[https://www.bloomberg.com/news/articles/2021-03-08/hungary-s-epidemic-turns-critical-while-vaccine-rollout-beats-eu?utm\_content=business&utm\_campaign=socialflow-organic&utm\_medium=social&utm\_source=twitter&cmpid=socialflow-twitter-business](https://www.bloomberg.com/news/articles/2021-03-08/hungary-s-epidemic-turns-critical-while-vaccine-rollout-beats-eu?utm_content=business&amp;utm_campaign=socialflow-organic&amp;utm_medium=social&amp;utm_source=twitter&amp;cmpid=socialflow-twitter-business)
+马斯对前总统川普执政期间缺乏协调行动表示遗憾。川普总统任期时，德国因未能履行北约军事联盟规定的国防开支义务而受到巨大压力，德国坚持购买俄罗斯天然气，拒绝了川普总统要求德国从美国购买液化天然气的要求。
+
+参考链接：
+
+[https://www.reuters.com/article/germany-politics-usa-idUSL8N2L751L](https://www.reuters.com/article/germany-politics-usa-idUSL8N2L751L)
 
 0
