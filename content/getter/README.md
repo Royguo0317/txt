@@ -17,6 +17,16 @@
 **郭文贵MILES** `2021-02-21T15:56:09`
 ##
 
+[蓬佩奥对于美国运动员是否能够安全出入中共国深感担忧  Pompeo: there are real concerns about athletes’ abili...](/content/getter/content/2021/03/6049519f607c4240c8b488ef.md)
+
+**郭文贵MILES** `2021-03-10T23:09:19`
+##
+
+[蓬佩奥：以毒灭共，势在必行  Mike Pompeo ：Taking down the CCP by means of the virus accountabi...](/content/getter/content/2021/03/6049517b607c4240c8b488e4.md)
+
+**郭文贵MILES** `2021-03-10T23:08:43`
+##
+
 [蓬佩奥：我们必须要求中共停止这种活动，直到他们让世界看到他们不会威逼全世界  Mike Pompeo ：We have to demand that the C...](/content/getter/content/2021/03/6049511e607c4240c8b488d4.md)
 
 **郭文贵MILES** `2021-03-10T23:07:10`
@@ -150,15 +160,5 @@
 [3月3日：相信共产党走进火葬场……￼【习近平刚刚宣布中国已经摆脱贫困，广西宾阳县一村委会近日就发出通知，提醒农民，国家给予每一位参保农民原本的医保补贴，2月28...](/content/getter/content/2021/03/604011e99534a74bcaef6223.md)
 
 **郭文贵MILES** `2021-03-03T22:47:05`
-##
-
-[3月3号：开会期间摘下口罩乱聊发视频……￼以毒灭共……以钱灭共，真是上天赐给我们的最伟大的机会和法宝……共产党，你完了！￼](/content/getter/content/2021/03/603ff1779534a74bcaef5bbe.md)
-
-**郭文贵MILES** `2021-03-03T20:28:39`
-##
-
-[3月3号：尊敬的战友们好，由于很多战友的问题，没办法简单答复，所以￼今天不发盖特视频．马上直播报平安，一切都已经开始！￼](/content/getter/content/2021/03/603f9d469534a74bcaef472c.md)
-
-**郭文贵MILES** `2021-03-03T14:29:26`
 ##
 
