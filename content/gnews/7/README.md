@@ -1,37 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯:科兴疫苗香港接连出事，港府不闻不问（2021年3月11日）
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/967247/)
+## 习近平：全军要做好随时应对各种复杂困难局面的准备
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/967372/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-11-at-21.16.02.jpeg)
-截止至3月08日，已有超过10.3万香港市民接种中国科兴疫苗，由于此前发生了3宗接种后需转到深圳治疗部，继而死亡事件，导致超过36%市民在预约后并没有如期去接种，累计约9000人。
+*新闻来源：《zerohedge》| 作者：TYLER DURDEN | 发布时间：2021年3月9日*
 
-此前3名死者分别是63岁男性，55岁女性和71岁男性，其中前两者为长期病患者。
+*翻译/简评：Victory | 校对/审核：万人往 | Page：Daoiii*
 
-今晨（3月11日）又出现一名七旬长者突然离世，数天前曾接种过该疫苗，共计“四宗”接种了科兴疫苗后死亡事件。香港西医工会主席梁汉辉也建议有三高的长者先观望，不要急于接种。
+[!\[\]()!\[\](https://spark.adobe.com/page/nckKyMAalwRWI/images/d013d092-cf24-4082-a425-b01bbac0a018.jpg?asset_id=55000872-6eac-410f-b745-58b0e037df7e&amp;img_etag=%228ffa2ab5f37c7819fa90ff672e8649f3%22&amp;size=2560)](https://spark.adobe.com/page/nckKyMAalwRWI/images/d013d092-cf24-4082-a425-b01bbac0a018.jpg?asset_id=55000872-6eac-410f-b745-58b0e037df7e&amp;img_etag=%228ffa2ab5f37c7819fa90ff672e8649f3%22&amp;size=1024)
 
-令人称奇的是，据钟南山3月1日称中国大陆疫苗接种率仅为3.56%，但以14亿人口算约4984万人已接种疫苗，却并没有疫苗接种后不适的相关报道。
+***简评：***
 
-4起可疑死亡事件，外加多人因接种科兴疫苗后感到不适的报道接连在两周内发生，但港府只是以死亡事件并未被证实与疫苗接种有关为由，拒绝采取任何措施。香港已有人员建议称希望先停止60岁以上人士接种该疫苗，但港府并没予以采纳。对此我们不得不怀疑强推科兴疫苗是迫于中共政治压力。
+**最近事态发展完全出乎中共预料，拜登上台之后，并未能够帮他们脱罪。布林肯国务卿已多次确认了对中共在新疆实施种族灭绝罪行。西方左媒也开始大规模报道中共生物武器相关信息。中共很清楚，全球灭共趋势已不可逆转。现在它们一边准备要殊死一搏，一边又不断派人使用各做手段拖延时间，与西方世界周旋。**
+
+**希望中共的军人清醒地认识到，中共要保卫的是它们自己家族的世代利益和奴役全中国人民的邪恶权力。中国人民没有一寸土地是属于自己的。中共在习近平带领下正在加速走向灭亡。中国人民不要为他们做炮灰。**
+
+***原文翻译：***
+
+# **习近平警告军方在当前“不稳定和不确定”的局势中“准备响应”**
+
+周二，在北京举行的全国人大年度会议期间，习近平主席向中共国解放军最高领导人发表讲话，告诉军队必须在国家面临的日益困难和复杂的安全挑战中“做好应对准备”。
+
+习近平在讲话中说：“当前我国的安全形势在很大程度上是不稳定、不确定的。”此前两天，中共国外交部长王毅在同一大会上发出了自己的严厉警告，称美国在中共国对台湾的主权上“越界”、“玩火”。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/nckKyMAalwRWI/images/8cfaa568-4627-49db-85f1-ed0ce5a6b9cc.png?asset_id=9ef43c97-e558-47d0-bd88-f50c5016c3ad&amp;img_etag=%2239c170c721e648df29e0f8d0af81250c%22&amp;size=2560)](https://spark.adobe.com/page/nckKyMAalwRWI/images/8cfaa568-4627-49db-85f1-ed0ce5a6b9cc.png?asset_id=9ef43c97-e558-47d0-bd88-f50c5016c3ad&amp;img_etag=%2239c170c721e648df29e0f8d0af81250c%22&amp;size=1024)习近平 图片文件：香港政府
+
+据《南华早报》报道，习主席还说：“全军要协调好能力建设和战备的关系，做好随时应对各种复杂困难局面的准备，坚决维护国家主权、安全、发展利益，为全面建设社会主义现代化国家提供有力支撑。”
+
+兼任中央军委主席的习近平进一步肯定了“高水平的战略威慑和联合作战体系”和快速的国防科技创新的必要性。
+
+他的话与国防部长魏凤和上将的评价是一致的，魏凤和周六再次敦促全军加强战备，称国家安全“已进入高风险阶段”。
+
+“我们面临着日益繁重的国防任务……我们必须全面提高军事训练和战备水平，提高我们战胜强敌的战略能力。”这位中共最高将领说。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/nckKyMAalwRWI/images/c1eeeb0d-4d23-4c73-8baa-dbc1cb9ef0a4.png?asset_id=54b3eb12-feb2-499c-85a3-0e4013c8fbf6&amp;img_etag=%22a5b5da8be9cf28aac867bc8d8c56f67a%22&amp;size=2560)](https://spark.adobe.com/page/nckKyMAalwRWI/images/c1eeeb0d-4d23-4c73-8baa-dbc1cb9ef0a4.png?asset_id=54b3eb12-feb2-499c-85a3-0e4013c8fbf6&amp;img_etag=%22a5b5da8be9cf28aac867bc8d8c56f67a%22&amp;size=1024)盖蒂图片
+
+在正在进行的会议上，一个特别的例子是最近美国和西方盟国海军在中共国主张的海域附近的演习。在中共国外交部长的评论中，王毅指出：“美国和其他西方国家经常在本地区挑起事端，试图利用南海问题制造事端。他们的目的只有一个：破坏和平，扰乱地区稳定。”
+
+他的讲话特别强调了一种好战的腔调，即与美国及其盟友的“霸权、高压、霸凌”以及在香港、台湾等地“公然干涉中国内政”。
+
+**🔗[原文链接](https://www.zerohedge.com/geopolitical/xi-alerts-military-be-prepared-respond-deeply-unstable-uncertain-current-situation?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)**
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-[参考连结1](http://www.xhby.net/index/202103/t20210302_6996546.shtml)
-
-[参考连结2](https://www.thestandnews.com/society/%E7%A7%91%E8%88%88%E7%96%AB%E8%8B%97-5-%E6%97%A5%E5%85%A7%E9%80%BE-6-100-%E4%BA%BA%E9%A0%90%E7%B4%84%E5%BE%8C-%E7%94%A9%E5%BA%95-%E5%85%A8%E6%95%B8%E6%8E%A5%E7%A8%AE%E4%B8%AD%E5%BF%83%E9%A0%90%E7%B4%84%E6%9C%AA%E6%BB%BF/)
-
-[参考连结3](https://www.hkcnews.com/article/39117/%E7%A7%91%E8%88%88%E7%96%AB%E8%8B%97-%E6%A2%81%E6%BC%A2%E8%BC%9D-%E8%A5%BF%E9%86%AB%E5%B7%A5%E6%9C%83-39117/%E7%A7%81%E5%AE%B6%E9%86%AB%E7%94%9F%E5%8F%8A%E8%A8%BA%E6%89%80%E5%90%8C%E7%8F%BE%E3%80%8C%E9%80%80%E9%87%9D%E6%BD%AE%E3%80%8D-%E8%A5%BF%E9%86%AB%E5%B7%A5%E6%9C%83%E6%9C%83%E9%95%B7%E6%A2%81%E6%BC%A2%E8%BC%9D%EF%BC%9A%E4%B8%89%E4%BB%BD%E4%B8%80%E7%96%AB%E8%8B%97%E9%A0%90%E7%B4%84%E5%8F%96%E6%B6%88)
-
-[参考连结4](https://www.thestandnews.com/society/%E6%B6%88%E6%81%AF-%E4%B8%83%E6%97%AC%E5%A9%A6%E6%9C%88%E5%88%9D%E6%8E%A5%E7%A8%AE%E7%A7%91%E8%88%88%E7%96%AB%E8%8B%97%E4%BB%8A%E9%9B%A2%E4%B8%96-%E5%8F%A6%E6%9C%89%E4%B8%80%E4%BA%BA%E4%B8%8D%E9%81%A9%E9%80%81%E9%99%A2/)
-
-【文章仅限作者个人观点】
-
-本文作者：醒觉觉醒
-
-审核校对：玫瑰新闻组
-
-上传排版：玫瑰新闻组
+[!\[\]()!\[\](https://spark.adobe.com/page/nckKyMAalwRWI/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/nckKyMAalwRWI/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
