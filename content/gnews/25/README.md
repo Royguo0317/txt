@@ -1,43 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 调查表明：美国人主张在人权问题上与中共对抗，尽管或对两国经济交往造成影响
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/965919/)
+## 比尔&amp;梅林达-盖茨基金会与被揭露收集美国人生物数据的中共公司有关联
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/966131/)
 
-翻译：康州盘古农场-Layka
-校对：康州盘古农场-Mike Li
-编辑：康州盘古农场-Antsee-GTV
+翻译：康州盘古农场 – TrueSky
+校对：康州盘古农场 – Layka
+编辑：康州盘古农场 – Antsee-GTV
 
-据美国新闻网站援引《路透社》报道：
+据《美国第一新闻网》3月9日报道：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-11-at-12.50.30.png)*美中国旗 – 图片来源：《路透社》*
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-11-at-13.52.01.png)*比尔·盖茨 – 图片来源：Saeed Adyani / Netflix via AP*
 
-华盛顿（路透社）- 在过去的三年中，美国对中共国的态度已大大恶化，接受调查的受访者中有70％在周四发表的一份报告中表示，华盛顿即使在损害经济联系的情况下也应在人权记录方面与中共对抗。
+早在2012年，这位亿万富翁的基金会就与这家中共国公司建立了一份谅解备忘录，旨在将“基因组学研究带入”全球社会。此事发生的原因是，美国情报部门官员称，该公司利用提供给美国政府的COVID-19测试试剂盒“收集、存储和利用生物计量信息”。
 
-总部设在美国的皮尤研究中心（Pew Research Center）在2月对2500多名美国人进行的一项调查中，有近90％的受访者表示，他们将中共国这个世界第二大经济体视为竞争对手或敌人，而不是合作伙伴。
+国家反间谍和安全中心前主任威尔 埃文尼娜（Will Evanina）表示，“他们是与共产党国家以及军事机器都有联系的终极公司”，“目前估计，80%的美国成年人个人身份信息都被中共窃取。”
 
-“美国人要更加注重在人权方面-即使是以经济关联为代价-在与中共国的双边关系， ” 报告说。
 
-一月份就职的拜登总统的政府已将中共国列为 “这是本世纪最大的地缘政治考验” ，并认可了前川普政府的一项决定，即认定北京已对穆斯林少数民族裔犯下种族灭绝罪。
 
-它还批评中共国对香港民主运动的镇压，并表示它将维持川普政府对北京的压力，尽管与盟国协调中。
+> Structure-based design of prefusion-stabilized SARS-CoV-2 spikes.
+> 
+> Read more: [https://t.co/XYR3JanrFa](https://t.co/XYR3JanrFa)[#BGI](https://twitter.com/hashtag/BGI?src=hash&amp;ref_src=twsrc%5Etfw) [#covid19](https://twitter.com/hashtag/covid19?src=hash&amp;ref_src=twsrc%5Etfw) [#science](https://twitter.com/hashtag/science?src=hash&amp;ref_src=twsrc%5Etfw) [#health](https://twitter.com/hashtag/health?src=hash&amp;ref_src=twsrc%5Etfw) [#omicsforall](https://twitter.com/hashtag/omicsforall?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/dWK2Sr2KCO](https://t.co/dWK2Sr2KCO)
+> — BGI (@BGI\_Genomics) [March 2, 2021](https://twitter.com/BGI_Genomics/status/1366649486655819776?ref_src=twsrc%5Etfw)
 
-皮尤（Pew）的一项调查显示，只有53％的美国人对拜登有效处理中共国问题的信心微乎其微，这一比率低于其他全球问题，例如恐怖主义，气候变化，使用武力和管理贸易。
 
-自2018年以来，美国对中共国的负面看法总体上急剧增加，67%的受访者对中共国持有 “非常冷淡 ”或 “冷淡 ”的看法，而三年前这一比例为46%。在接受调查的美国人中，只有11％的人对该国抱有热情。
+基于结构的预融合稳定化SARS-CoV-2靶向设计
+— 华大基因（2021年3月2日）
+据报道，中共政府已对该公司进行了大量投资，该公司上个月从投资者那里筹集了3亿美元。
 
-报告说，认为中共国支持的网络攻击和北京的维权记录是 “非常严重 ”的问题的看法自2020年以来猛增7%，分别达到65%和50%。
+原文链接：[https://www.oann.com/report-bill-and-melinda-gates-foundation-linked-to-chinese-company-found-to-have-mined-americans-data/](https://www.oann.com/report-bill-and-melinda-gates-foundation-linked-to-chinese-company-found-to-have-mined-americans-data/)
 
-多数人还看到美国给中共国和该国带来了失业。军事力量的增长是非常严重的问题，比去年同期增长了6％，分别达到53％和52％。
-
-在前总统唐纳德-川普任上的最后一年，美中关系跌至数十年来的最低点。因为华盛顿在贸易、冠状病毒爆发、间谍活动、人权以及中共国在战略南海的领土要求等问题上针对北京。
-
-美国国会中的共和党人和民主党人在与北京对峙中找到了共同的原因，议员们提出了一系列与中共国有关的立法。
-
-接受调查的大多数美国人中有54％的人表示，中共国对冠状病毒的爆发处理糟糕。但是，更多的人（58％）表示自己的国家也做得不好。
-
-报道人：迈克尔·马丁纳（Michael Martina）& 大卫·布伦斯特伦（David Brunnstrom）
-
-文章链接：[https://united.states.news/americans-favor-confronting-china-on-human-rights-despite-risk-to-economic-ties-survey-finds/](https://united.states.news/americans-favor-confronting-china-on-human-rights-despite-risk-to-economic-ties-survey-finds/)
-
-0
++2
