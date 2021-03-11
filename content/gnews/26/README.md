@@ -1,50 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0311.2021(持续更新)
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/966282/)
+## 希腊提出新的25亿欧元一揽子救济措施
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/967656/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0311.jpeg)
-**推文部分经授权转载自：**
-
-- 川普等政要直譯推[Twitter：](/twitter.com/zhiyitw33)[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
-- 川普等政要直譯推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
-- 川普等政要直译盖文GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
+- 编辑：Victor Torres
+- 发稿：Ranting
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
+**西班牙2021年3月11日电/西喜社——**希腊总理概述了一项新的25亿欧元的一揽子救济措施，以帮助受中共病毒大流行和相关封锁影响的企业和工人。
 
-3月10日川普总统GAB信息如下
+基里亚科斯·米佐塔基斯（Kyriakos Mitsotakis）周四表示，新的刺激方案将为50多万家企业和自由职业者以及数百万工人提供救济。自11月初以来，该国一直处于各种形式的封锁限制之下，零售企业和餐馆都被关闭，并严格限制外出活动。
 
-“如果传奇人物赫歇尔-沃克（Herschel Walker）竞选佐治亚州的美国参议员，那岂不妙不可言？他将是不可阻挡的，就像他在佐治亚州牛犬队和在NFL打球时一样。他也是一个伟大的人。加油吧，赫歇尔，加油!”
+米佐塔基斯表示，新方案使2021年迄今为大流行病救助措施提供的资金总额达到116亿欧元，并补充说，2020年有240亿欧元用于支持企业和工人。
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-138.png)
+希腊2020年经济估计收缩8.2%，小于最初预计的10.5%。
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/50f86251-96a5-4527-83d7-bbe142d89e92.jpg)
 
-45届美国总统川普声明：“希望大家在接种COVID-19(过去常说的中国病毒)疫苗的时候记住，如果我不是总统，你们5年内都不会接种这支漂亮的 “疫苗”，可能根本就不会接种。希望大家记住!”
+**新闻来源：[美联社](https://apnews.com/article/philippines-coronavirus-pandemic-manila-d61855c535796860c33d80a8d54f2430)**
 
-时至今日，川普总统还对疫苗和中共病毒的本质概念模糊，这或许就注定他也只能是第45届总统的原因吧。
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-139.png)
-
-[https://gab.com/realdonaldtrump](https://gab.com/realdonaldtrump)
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-
-
-信息采集：直译推组， 喜马拉雅的文雅
-
-编辑：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-**《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。**
-
-
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
 
 0
