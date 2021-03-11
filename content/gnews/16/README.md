@@ -1,27 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共指责美方“炒作”中共侵占台湾的军事威胁
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/965929/)
+## 【新闻宅急便】中共驻柏林大使馆遇袭
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/965967/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：喜马拉雅东京樱花团   煙火1095
 
-编辑上传   水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/T-18.jpg)wionews.com
-The Defence Post 3月10日报道，中共指责美方夸大中共侵占台湾的威胁，批评这是华盛顿加大国防开支的借口。
+*德国警方表示，一名42岁男子今天清晨意图对中国驻柏林大使馆纵火，大使馆人员以灭火器扑灭火势，无人受伤。这名男子已遭逮捕，但警方未提供可能的作案动机。*
 
-美国驻亚太地区最高军事官员、海军上将菲利普·戴维森(Philip Davidson)周二表示，中共可能在未来6年内入侵台湾。目前北京方面正加快行动，以取代美国在亚洲的军事力量。中共外交部发言人赵立坚表示，“从本质上讲，这是美国在寻找增加军费开支、扩大军事力量和干预地区事务的借口。”
+*![](https://lh3.googleusercontent.com/Arq60dDsEkDvj4ZPktaj9X2rCVoo158DubO32gif5dK3q3CnXZK3pHZh7eNw4QrH5Jk4l64Grq16XaixROOMFAsh_nBwgtxyVNMiHAjdrTnfsNUT_pHcTkHI_ZiDYKEitOfCUKli)*
+[*图片*](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%9B%BD%E9%A9%BB%E5%BE%B7%E5%9B%BD%E5%A4%A7%E4%BD%BF%E9%A6%86#/media/File:Chinesische_Botschaft_Berlin_%282010%29.jpg)
 
-戴维森上将在参议院军事委员会(Senate Armed Services Committee)听证会上发言称，中共在该地区的侵略行为让他相信，夺取台湾是中共十分紧迫的目标。他说，“我担心他们正在加速实现取代美国和在以规则为基础的国际秩序中占领导地位的野心，他们一直表示希望在2050年前实现这一目标。” 戴维森表示，“台湾显然是他们的雄心壮志之一。我认为这种威胁将在未来10年，实际上是在未来6年显现出来。”
+点评：
 
-听证会的焦点主要是如何应对中共的威胁。就台湾问题戴维森补充到，虽然美国对台湾的“战略模糊”政策可能有助于台湾保持独立，但这类政策应该重新评估。戴维森强调，中共还在资源丰富的南中国海提出了广泛的领土主张，甚至威胁到美国的关岛。
+德国作为被中共蓝金黄的重灾区之一，也受到中共病毒的严重威胁。一年的时间250万人感染，和超过7万人的死亡数字无声地验证着“相信共产党，跑步进火葬场”这句世间真理。
 
-北京方面很快驳斥了戴维森的言论，指责美国继续利用台湾问题来炒作中共的军事威胁。
+无论是新疆的种族大屠杀，还是镇压圣城香港，亦或是计划实施以毒灭白。面对中共的种种反人类铁证，人民群众的眼睛是雪亮的，终究会有向CCP清算的那一天。
 
-参考链接：
+随着左派旗舰媒体CNN的转向，相信会有越来越多的人意识到中共的邪恶本质，最终只有反共才符合全世界的利益。
 
-[https://www.thedefensepost.com/2021/03/10/china-says-us-hyping-taiwan-invasion/](https://www.thedefensepost.com/2021/03/10/china-says-us-hyping-taiwan-invasion/https://news.usni.org/2021/03/09/davidson-china-could-try-to-take-control-of-taiwan-in-next-six-years)
+参考链接
 
-[https://news.usni.org/2021/03/09/davidson-china-could-try-to-take-control-of-taiwan-in-next-six-years](https://www.thedefensepost.com/2021/03/10/china-says-us-hyping-taiwan-invasion/https://news.usni.org/2021/03/09/davidson-china-could-try-to-take-control-of-taiwan-in-next-six-years)
+[阿波罗新闻网](https://www.aboluowang.com/2021/0311/1567005.html)
 
-0
+
+
+*本文只代表作者观点，与GNews网站无关*
+
+*校对：喜马拉雅东京樱花团 文小白*
+*责任编辑：喜马拉雅东京樱花团*煙火1095
+*发布：喜马拉雅樱花团 煙火1095*
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/二维码-1.jpg)
+
+0311C066e
+
++2
