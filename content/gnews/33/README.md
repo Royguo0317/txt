@@ -1,61 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒和美国大选有什么关系？共产党有解药！
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/965227/)
+## 中(共)国使用“情绪识别技术”抓人
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/965266/)
 
-新闻简述：郭先生在2021年2月6日的盖特视频中说，一位特别重要的美国朋友说美国各地都在问疫情的减缓和美国大选到底有什么关系。他还通过一位中共国内部战友透露的信息判断，中共国一定有解药。他告诉西方朋友：“你们要想好，要想安全，找共产党要解药！要想安全，要想好，少传染，真正解决问题，少和共产党合作！”
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210206_getter1-part2.srt.txt)
-**中共病毒和美国大选有什么关系？共产党有解药！**
+**作者: Frances Martel**
 
-**What’s the Relationship Between the CCP Virus and the US Election? The CCP Has Antidote!**
+**翻译: sanko(三四五六七), 天鹅** **校对: pv0**
 
-在一个小时以前，咱们特别重要的美国朋友说，现在，在华盛顿，在纽约，在芝加哥，在德克萨斯州，在洛杉矶，这些地方都在问同一个问题：“病毒在这个时候，所谓的传染力的降下，死亡率的提高，和共产党，和美国大选有什么关系？”
 
-An hour ago, our very important American friends said that now people in Washington D.C., New York, Chicago, Texas and Los Angeles all asked the same question – whether the so-called “reduced infectivity” and “increased mortality” of the virus are related to the CCP and the US election?
+![]()![](https://gnews.org/wp-content/uploads/2021/03/0012345-2.jpg)**图片: REUTERS**
 
-英国现在这几天有所好转，所有的英国人都在问一个问题：[让]英国死的人，[给]英国造成的经济损失，和[让]英国受到最大伤害的共产党病毒，和现在，英国一硬起来，一开始灭共，病毒现在有所好转[这个事实之间]，又有什么内在的关系？连法国内部都在问：“现在法国跟共产党一对抗，反而病毒有所下降，连死亡率都有所下降，这又有什么必然的关系？”
 
-In the UK, the situation has got better in the past few days, and the British people are all asking one question. The CCP virus has killed people, caused economic damages and let the UK bear the worst suffering ever in history, but once the UK became tougher against the CCP and started to take down the CCP, the situation of the virus then became better, so what is the inner relationship of these two things? Questions are also raised inside France – now France is standing up against the CCP, but the virus has come down somewhat, even the mortality rate is down, so what are the connections between these things?
+中共官媒《环球时报》周四在一篇文章中吹嘘道，中国人正在对“情绪识别技术”这个能让政府跟踪人们情绪的人工智能的使用越来越习以为常，它已经成为人们每天生活的一部分。
 
-所有[以上这些]，大家要记住，英国和法国稍微有点儿想硬起来，[它们]这个表现只是在真相[问题]上若有所“硬”，也就是说，[它们]事实上跟共产党减少了接触和合作，少用了共产党的疫苗，少用了共产党派来的所谓“技术”和“协助合作人员”，[它们]的病毒就下来了。这又意味着什么？
+《环球时报》通过一个例子，展示了这项技术的效用。在示例中，警察使用人工智能发现了一辆车中藏有的毒品后，逮捕了车中的乘客。“情绪识别技术”告诉警察这些乘客在检查点时的紧张程度超过了普通人，以此作为他们搜查这辆车的依据。
 
-So, what we need to remember is that whenever the UK and France became a little tougher on pressing the truth about the virus, that is to say, reducing their interaction and cooperation with the CCP, using less CCP’s vaccines and less so-called “technicians” and “assistants” sent by the CCP, their virus would go down. What does that mean?
+根据《环球时报》，臭名昭著的专制政党中国共产党据称把“情绪识别技术”应用于“包括健康，反恐和城市安全等多个领域”。
 
-这位美国朋友，马上就要去欧洲。我说：“你去欧洲，抛开你官方的身份。按照 Miles Guo 的建议，了解了解欧洲。为什么你们一和老共之间，减少交往和合作，病毒[这些率]就下来了？也就是说，你硬了一点点儿，就下来了。”
+这项将情感作为定罪依据的技术发展，紧跟中共国执法部门越来越令人担忧的动向。最近披露的中共国技术巨头华为正在开发能够识别人类种族的面部识别技术，让中共国警察更容易地去迫害维吾尔少数民族成员。世界上多个国家的政府，其中包括现任和前任美国政府，都曾指控中共国犯下了对维吾尔族人民的种族灭绝罪。
 
-This American friend of mine is going to Europe. I said, “When you are in Europe, forget about your government official identity. Follow Miles Guo’s advice and learn about Europe, asking why the virus went down whenever the amount of interaction and cooperation with the CCP was reduced? That is to say, whenever you got a little tougher, the virus went down.”
+中国共产党在新疆的维吾尔族人居住地区建起了超过1000所集中营，其中的幸存者说，他们在里面曾被强制灌输思想，奴役，性侵，酷刑。特别令人关注的报告是中共国正系统性地，有计划地强制维吾尔族妇女绝育，以消灭该种族群体，这种做法被明确列入种族灭绝的定义。中国共产党宣称那些集中营是为未受教育的人们建立的“职业培训中心”，所谓的目击者都是在撒谎，都是拿钱的演员。
 
-那么我想问战友们，国内的病毒，现在是什么地方最严重？凡是天天举着红旗，凡是天天跟着中南坑几个老杂毛混的地方，全都出大事啦，对吧？就香港现在这个掏肛，掏到这种程度，香港目前还是中国，所谓发达地区[中]感染率最低的。因为香港人，不愿意跟老共合作，香港人减少了去共产党的“共匪控制区”，对吧，战友们？
+《环球时报》没有具体地提及到在新疆使用“情绪识别技术”，但却提到了似乎很多实验是把监狱的囚犯当做实验对象。有报纸宣称，至少有6所监狱正公开地对囚犯使用这项技术，来预测哪些囚犯有可能成为暴力分子。
 
-Then I want to ask our fellow fighters what places in mainland China have had the most serious outbreaks? Places where people wave red flags everyday and follow every move of the Zhongnan Pit’s old bastards, all had the worst outbreaks, right? Hong Kong however has the lowest infection rate among all the so-called “developed areas” in China even though Hong Kong is being humiliated by the CCP like this (by allowing the CCP to attack their anus). Because the Hongkongers aren’t willing to work with the CCP, and they travel to the areas controlled by the CCP bandits less frequently, am I right, my fellow fighters?
+因为中共认为任何对共产党的轻视或批评就是犯罪 — 通常被官方认定为“颠覆国家政权”或“寻衅滋事罪” ——许多实验过的人可能都是政治犯。在中共国，除了国家监管的之外的宗教观点都是违法的。而且只有五个合法的宗教：道教，佛教，伊斯兰教，天主教和基督新教。
 
-还有，昨天我们有的战友，发现了一个秘密，说：除了共产党高官不染病，高官不死人，他发现了一个很核心的秘密，共产党最近这一两个月的[时间]，你见过有医疗官员站出来说话的吗？因为咱这个战友的家人，在中国所谓的疾病防疫中心是个高官。[他]说这哥们儿该吃吃，该喝喝，从来不戴口罩。回到老家以后，叫着所有人，该吃吃该喝喝，他从来不戴口罩，而是非常自信。不但他不戴，他家人还不戴。
+“在中共国，情感识别技术已经在为一些地区监狱的囚犯进行风险评估方面做出了贡献。”《环球时报》援引2019年广州某监狱的实验情况指出。”这项技术可以帮助狱警评估一名囚犯是否存在潜在风险，包括可能的精神问题、暴力或自杀倾向，并估计他或她在获释后是否可能重新犯罪。”
 
-Also, a fellow fighter discovered a secret yesterday. He said that in addition to the fact that high ranking officials of the CCP did not get infected or die, he had discovered another core secret. In the past two months, have you ever seen any health official standing out to say anything? That’s because someone in this fellow fighter’s family is a high ranking official in the CCP’s CDC. He said that this buddy never worn a mask and dined out as usual like nothing had ever happened. When this guy went back to his hometown, he gathered all the people to eat together, never worn a mask, and seemed very confident about what he was doing. Not only he didn’t wear a mask, his family members didn’t wear masks either.
+中共国宣传机器援引进行实验的广州中心负责人的话来证明其使用的合理性，他详细介绍说：”当犯人看了摄像头三到四秒后，这套识别系统就能知道他的七项主要生理指标，包括体温、眼动、心率，并将其转化为心理征兆，表明犯人当时是平静、抑郁、愤怒还是其他心理状态。”
 
-这一点，就是我这几天给西方所有的朋友说的：“共产党有解药！”它要没有解药，它控制不到这个程度。英国的首相，那肚子那脑子能传染上，加拿大的那小土豆能传染上，几十个国家的元首能传染上。中国的领导人，那身体怎么着？灌了什么了？有啥本事？天天还双修，都是些老杂毛儿身体又弱，还不戴口罩，他就没事儿？他有解药。
+在监狱之外，该官方报纸称赞了”情绪识别技术”在交通道路上的应用，警察可以追踪每一个司机的情绪，并拦下任何有”不正常”情绪的人。声称，这将有助于防止路怒事件或其他潜在的犯罪行为。
 
-These days I’ve been telling all my western friends about this, “The CCP has the antidote!” If it didn’t have the antidote, it wouldn’t be able to control the virus so well. The UK Prime Minister has contracted the virus. Trudeau in Canada has contracted the virus. The leaders of a few dozens countries have got infected. How can the Chinese leaders stay healthy? What medicine have they poured into their mouth? What’s special about them? These old bastards have sex every day with their frail bodies. They don’t wear masks. Why haven’t they got infected? Because they have the antidote!
+环球时报援引中共国 “专家 “的话称，中共国的人工智能可以识别一个人的情绪，准确率高达95%。
 
-所以我告诉他们：“你们要想好，要想安全，找共产党要解药！要想安全，要想好，少传染，真正解决问题，少和共产党合作！”现在凡是想在共产党那块儿拿钱的，你必然早晚遭斩手，“坷”，不信走着看。
+“情绪识别绝对是人类未来科技发展的方向”。一位 “神经管理学专家”告诉该报。
 
-So I told them, “If you want to get well and be safe, go ask the CCP for the antidote!” If you want to get well, be safe and reduce infection rate, and truly solve the problem, cooperate less with the CCP! Now anyone who wants to take money from the CCP will eventually have his or her hand chopped off. “Thwack!” Let’s wait and see if you don’t believe it.
+该技术可以通过长时间监测人的脸部，或者强迫个人穿戴追踪血压、体温等因素的设备来工作。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+《环球时报》提到，在中共国之外，如果政府实施这种形式的人工智能来监测人们的情绪，公众可能会对他们的隐私和安全表示担忧。不过，该报称，这项技术已经在包括美国在内的多个国家使用，并援引中共国政府认可的专家的话坚称，这 “不是邪恶的’读心术'”。
 
-视频来源：[https://gtv.org/getter/601ece82f5b9e26ca9d8efbf](https://gtv.org/getter/601ece82f5b9e26ca9d8efbf) (5:13-end)
+据《麻省理工科技评论》报道，”情感识别技术 “在2019年已经是一个有200亿美元的市场。
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/885218/](https://gnews.org/zh-hans/885218/)
+“这项技术目前正被用于评估求职者和犯罪嫌疑人，并且正在对它的进一步应用做测试，例如在VR头盔中推断游戏玩家的情绪状态，”该媒体当时认为，援引AI Now 的一项研究。该研究警告说，该技术尤其在跨种族和性别界限使用时可能存在问题，因为它提供的结论可能会将歧视”放大”。
+
+
+
+
+
+**新闻来源: **
+
+[China Using ‘Emotion Recognition Technology’ to Arrest People](http://China%20Using%20‘Emotion%20Recognition%20Technology’%20to%20Arrest%20People)
+
+
 
 * * *
 
-翻译：【guocamole(文金欠)】校对：【Isaiah4031】【BruhM】字幕：【Rock小哥】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+**发布: 法国巴黎七星编辑组**
 
-+1
+
+
+0
