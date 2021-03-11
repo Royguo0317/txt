@@ -1,35 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】3月5日，一位真英雄死亡，一位假英雄诞生
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/967367/)
+## 习近平：全军要做好随时应对各种复杂困难局面的准备
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/967372/)
 
-作者：香草山写作组 Kathy文艺
+*新闻来源：《zerohedge》| 作者：TYLER DURDEN | 发布时间：2021年3月9日*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1474-【世事解评】3月5日，一位真英雄死亡，一位假英雄诞生-.jpg)图片来源：网络
+*翻译/简评：Victory | 校对/审核：万人往 | Page：Daoiii*
 
-1963年3月5日，毛为一位解放军战士题词“向雷锋同志学习”，进而在全国掀起学雷锋热潮。“雷锋精神”成了代表社会主义价值观念的代名词。殊不知，这位雷锋完全是中共为了对老百姓洗脑而编制的工具，要人民都向雷锋一样，做一颗党的机器上的螺丝钉。
+[!\[\]()!\[\](https://spark.adobe.com/page/nckKyMAalwRWI/images/d013d092-cf24-4082-a425-b01bbac0a018.jpg?asset_id=55000872-6eac-410f-b745-58b0e037df7e&amp;img_etag=%228ffa2ab5f37c7819fa90ff672e8649f3%22&amp;size=2560)](https://spark.adobe.com/page/nckKyMAalwRWI/images/d013d092-cf24-4082-a425-b01bbac0a018.jpg?asset_id=55000872-6eac-410f-b745-58b0e037df7e&amp;img_etag=%228ffa2ab5f37c7819fa90ff672e8649f3%22&amp;size=1024)
 
-60年代的中国，刚刚经历了所谓的大跃进，人民公社，三年自然灾害等人为的浩劫，中共急需对老百姓的脑部打鸡血。故利用人的善良本性与愿望天性，树立一个凡人好人典型。运用摄影摆设拍出无数张雷锋做好事的身影，天天在老百姓眼前耳边熏染，使你不得不追随这样的傻人傻德，成为一头不会思考的猪。直到今天，习还在以“雷锋精神”为准绳，要求全国人民继续发扬光大，这又成了封建皇权下把儒教那套说教拿来控制人民思想的翻版。
+***简评：***
 
-1970年3月5日，在华夏大地刚刚开始的文革之风，正席卷全国。一位年仅27岁的北京工人，就因写了一篇对当时社会上流行“老子英雄儿好汉，老子反动儿混蛋”现状不满的文章–《论出身》，直指“血统论”的荒谬，反响巨大，竟被当局当众枪毙。他就是响当当的被人称为中国的马丁路德金的遇罗克。
+**最近事态发展完全出乎中共预料，拜登上台之后，并未能够帮他们脱罪。布林肯国务卿已多次确认了对中共在新疆实施种族灭绝罪行。西方左媒也开始大规模报道中共生物武器相关信息。中共很清楚，全球灭共趋势已不可逆转。现在它们一边准备要殊死一搏，一边又不断派人使用各做手段拖延时间，与西方世界周旋。**
 
-遇罗克出生于高知家庭，但因中共的反右等左倾政策，遇罗克连大学也不许上。一个中学生水平的工人竟有这样的胆识，敢于逆社会潮流而为，实在是称得上中国的脊梁。中共在文革之后虽给遇平反了，但据遇罗克弟弟（人在美国）遇罗文说，现在的中共官方有意要人们遗忘追求平等与人权的遇罗克，连在北京宋庄的一尊遇罗克雕像，都已被撤除，以销人们对他的印象与回忆。
+**希望中共的军人清醒地认识到，中共要保卫的是它们自己家族的世代利益和奴役全中国人民的邪恶权力。中国人民没有一寸土地是属于自己的。中共在习近平带领下正在加速走向灭亡。中国人民不要为他们做炮灰。**
 
-文革时讲阶级斗争，人分地富反坏右等。这种等级观念千年来曾在中华文明繁衍。而中共为了维持它的“合理”存在，一方面用历史与文化的熏染，另一方面用马列恩斯毛关于乌托邦的共产主义论证，把老百姓玩弄于鼓掌。今天，病毒当前疫苗政治的中共国，人人自危他危，更是把封建等级观念加上阶级血统发挥到极致。中共已如惊弓之鸟，防火墙，监视器，脸部识别，疫检绿卡，疫苗追踪等无不用其极。国人已是被关在了牢笼一般的地牢，只有被玩耍的份了。
+***原文翻译：***
 
-悲呼，华夏大地已无一男儿像27岁的青年遇罗克，像指出皇帝的新装的少年那样率真。满地都只能是假恶丑的狗熊般的摇尾乞怜的，如哈巴狗一般的假典型、假好人、假英雄雷锋。
+# **习近平警告军方在当前“不稳定和不确定”的局势中“准备响应”**
 
-（文章仅代表作者个人观点。）
+周二，在北京举行的全国人大年度会议期间，习近平主席向中共国解放军最高领导人发表讲话，告诉军队必须在国家面临的日益困难和复杂的安全挑战中“做好应对准备”。
 
-审核/发稿：雪梨
+习近平在讲话中说：“当前我国的安全形势在很大程度上是不稳定、不确定的。”此前两天，中共国外交部长王毅在同一大会上发出了自己的严厉警告，称美国在中共国对台湾的主权上“越界”、“玩火”。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/nckKyMAalwRWI/images/8cfaa568-4627-49db-85f1-ed0ce5a6b9cc.png?asset_id=9ef43c97-e558-47d0-bd88-f50c5016c3ad&amp;img_etag=%2239c170c721e648df29e0f8d0af81250c%22&amp;size=2560)](https://spark.adobe.com/page/nckKyMAalwRWI/images/8cfaa568-4627-49db-85f1-ed0ce5a6b9cc.png?asset_id=9ef43c97-e558-47d0-bd88-f50c5016c3ad&amp;img_etag=%2239c170c721e648df29e0f8d0af81250c%22&amp;size=1024)习近平 图片文件：香港政府
+
+据《南华早报》报道，习主席还说：“全军要协调好能力建设和战备的关系，做好随时应对各种复杂困难局面的准备，坚决维护国家主权、安全、发展利益，为全面建设社会主义现代化国家提供有力支撑。”
+
+兼任中央军委主席的习近平进一步肯定了“高水平的战略威慑和联合作战体系”和快速的国防科技创新的必要性。
+
+他的话与国防部长魏凤和上将的评价是一致的，魏凤和周六再次敦促全军加强战备，称国家安全“已进入高风险阶段”。
+
+“我们面临着日益繁重的国防任务……我们必须全面提高军事训练和战备水平，提高我们战胜强敌的战略能力。”这位中共最高将领说。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/nckKyMAalwRWI/images/c1eeeb0d-4d23-4c73-8baa-dbc1cb9ef0a4.png?asset_id=54b3eb12-feb2-499c-85a3-0e4013c8fbf6&amp;img_etag=%22a5b5da8be9cf28aac867bc8d8c56f67a%22&amp;size=2560)](https://spark.adobe.com/page/nckKyMAalwRWI/images/c1eeeb0d-4d23-4c73-8baa-dbc1cb9ef0a4.png?asset_id=54b3eb12-feb2-499c-85a3-0e4013c8fbf6&amp;img_etag=%22a5b5da8be9cf28aac867bc8d8c56f67a%22&amp;size=1024)盖蒂图片
+
+在正在进行的会议上，一个特别的例子是最近美国和西方盟国海军在中共国主张的海域附近的演习。在中共国外交部长的评论中，王毅指出：“美国和其他西方国家经常在本地区挑起事端，试图利用南海问题制造事端。他们的目的只有一个：破坏和平，扰乱地区稳定。”
+
+他的讲话特别强调了一种好战的腔调，即与美国及其盟友的“霸权、高压、霸凌”以及在香港、台湾等地“公然干涉中国内政”。
+
+**🔗[原文链接](https://www.zerohedge.com/geopolitical/xi-alerts-military-be-prepared-respond-deeply-unstable-uncertain-current-situation?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)**
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+[!\[\]()!\[\](https://spark.adobe.com/page/nckKyMAalwRWI/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/nckKyMAalwRWI/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-+1
+0
