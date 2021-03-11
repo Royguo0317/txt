@@ -1,25 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布林肯赞赏川普政府的亚伯拉罕协议
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/965906/)
+## 中共向拜登施压推翻更多川普政策
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/966019/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑上传    水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/I-6.jpg)ho1.us
-在川普政府执政的最后几天，以色列与阿联酋、巴林和苏丹签署了和平协议。苏丹被从支持恐怖主义的国家名单上除名，美国计划向阿联酋出售多达50架F-35战斗机。川普总统曾希望沙特阿拉伯也加入协议，但遗憾没有达成愿望。
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-11_07-35-25.jpg)[flipboard.com](https://flipboard.com/@dsqporter)
+布赖特巴特新闻网 (Breitbart News)报道，中共官方媒体《环球时报》指责拜登，称“美国新任总统拜登没有做出任何努力来扭转这些相互破坏的政策，使中美关系在一定程度上缓和的前景变得黯淡。”在周三白宫确认美国国务卿布林肯(Antony Blinken)将于3月18日在阿拉斯加会见中共高层官员，举行拜登(Biden)执政以来两个对立国家之间的首次高层面对面接触之际，中共疑似对会谈方向进行了铺垫。
 
-布林肯在众议院外交事务委员会对外交政策议程的听证会上指出，前任国务卿迈克·蓬佩奥(Mike Pompeo)在促进美国科技进步和中东和平协议上做出了卓越贡献。布林肯说，“正如我们之前谈到的，我认为导致各国与以色列关系正常化的举措是一件非常好的事情，我们希望以此为基础。”
+中美两国关系目前处于几十年来的最低点。《环球时报》援引一些中共分析人士的话说，中共病毒疫情后，拜登不知怎么陷入了川普大力推动与中共“脱钩”的大潮中，尽管拜登“普遍反对”川普的行政议程，但拜登政府至今无法改变方向。中共认为，拜登只是需要一些时间来改变路线，会重新与中共回归“良性竞争与合作”。
 
-布林肯同时指出了中共对新疆维吾尔族种族灭绝是严重侵犯人权的行为。他指出中共对新疆维吾尔犯下的是种族灭绝的罪行，并列出了他们应该承受的制裁和签证限制等外交后果。布林肯强调如果中共不承认罪行，那它需要允许国际社会和联合国介入调查真相。
+上个月，拜登和中共主席习近平进行了作为领导人的首次通话，双方在大多数问题上似乎存在分歧，习近平警告称，对抗对两国来说都将是一场“灾难”。
 
-布林肯说到，“中共在军事、外交、经济方面具有独特的能力，能够破坏以国际规则为基础的体系。美国为建立这个体系付出了如此多的努力，它确实促进了我们人民的利益。所以我们会向中共明确表明态度，我们对他们正在做的一些事情深感关注和反对，看看他们是否会解决这些问题。”
+布林肯周三在美国众议院外交事务委员会作证时暗示，下周的会晤不会恢复美国历届政府使用的常规高层对话。华盛顿方面越来越多地批评称这种对话在美国与中共的对峙问题上收效甚微。
 
-最近拜登政府的一些措施已经打乱了中东由亚布拉罕协议签署之后形成的和平氛围，给了中共控制中东以可乘之机。布林肯的讲话，意味着美国会重新重视这一中东和平协议，它可以遏制中共在中东的触角，将成为灭共的关键一环。
+布林肯强调，“目前还没有一系列后续接触的意图。这些接触如果要继续下去，就必须建立在这样一个前提之上，即我们在与中共有关的问题上看到了切实的进展和切实的成果。”如果中共坚持它没有侵犯新疆维吾尔族穆斯林的人权，它就应该允许国际社会和联合国进入该地区进行调查。
+
+《环球时报》对拜登的隔空喊话，显示出中共相信对拜登可以有影响力。中国问题专家章家敦(Gordon Chang)在接受福克斯新闻访谈时曾经指出，中共政府并不尊重拜登，章家敦提到从中国人民大学翟东升的评论可以知道中共官员对拜登的看法，“基本上，他说北京认为他们可以摆布拜登。”
+
+章家敦指出，拜登在CNN市政厅发表的言论是 “可耻”的，拜登说穆斯林维吾尔族受到的对待是不同“文化规范”起的作用，这表明北京认为拜登是可以任意摆布的傀儡。而拜登因此遭到国内外各界愤怒的批评，因此让拜登与中共勾兑的空间变得越来越小。
 
 参考链接：
 
-[https://www.foxnews.com/politics/blinken-trump-israel-peace-deals-very-good-thing](https://www.foxnews.com/politics/blinken-trump-israel-peace-deals-very-good-thing)
+[https://www.reuters.com/article/us-usa-asia-china-idUSKBN2B22BE](https://www.reuters.com/article/us-usa-asia-china-idUSKBN2B22BE)
+
+[https://www.breitbart.com/national-security/2021/03/10/china-pressures-inactive-biden-overturn-more-trump-policies/](https://www.breitbart.com/national-security/2021/03/10/china-pressures-inactive-biden-overturn-more-trump-policies/)
+
+[https://www.foxnews.com/world/china-xi-jinping-closing-window-opportunity-gordon-chang](https://www.foxnews.com/world/china-xi-jinping-closing-window-opportunity-gordon-chang)
 
 0

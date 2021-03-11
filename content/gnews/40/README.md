@@ -1,12 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 3/08/2021郭先生直播:肖建华的金融票据发家史
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/966080/)
+## 2021年3月10日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/966181/)
 
-3/08/2021郭先生直播：肖建华的金融票据发家史
-肖建华和中共金融监管机构上下勾结、用所谓的金融票据骗得巨额财富；全球各地农场是聚集真正灭共者的地方，不是哪个人的牟利场所；所有战友与农场直接的经济往来一定要看喜马拉雅联盟委员会公告和郭先生盖特和直播!!!
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-By: 【秘密翻译组G-Translators】
+蓬佩奥：若中共一意孤行，我们定会令其付出代价 Mike Pompeo : We are going to impose real costs on the CCP if they continue down these paths.
+
+
+
+[【2021年3月10日】文贵先生盖特原文](https://gtv.org/getter/604950b1607c4240c8b488b3)
+
+**喜联盟Gnews编辑部**
 
 0
