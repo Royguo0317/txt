@@ -1,40 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 昂山素季的风雨历程——民主的根基是制度还是人？
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/965074/)
+## 拜登又发生了“大脑短路”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/965149/)
 
-整理：桂花酒| 素材制作: 健身健心 Bobby| 校对：宁缺| Page：小六月
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**2021年2月21日第17期围炉夜话直播精要**
+编辑上传  水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/D-4.jpg)dailywire.com
+3月8日有一则消息，拜登在公众面前讲话，叫不出自己国防部长的名字。左派媒体不报道，中性媒体只报道事件，右派媒体既报道又解读，极右媒体深层解读。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/U3QNxtzcVr6Ef/images/cd7b3409-a752-452c-bf76-a32e731535cc.png?asset_id=03363158-65a8-49d8-badf-8d0faa04aef0&amp;img_etag=%22c6c86a36ccba02010c94a4c6c872d9e1%22&amp;size=1024)](https://spark.adobe.com/page/U3QNxtzcVr6Ef/images/cd7b3409-a752-452c-bf76-a32e731535cc.png?asset_id=03363158-65a8-49d8-badf-8d0faa04aef0&amp;img_etag=%22c6c86a36ccba02010c94a4c6c872d9e1%22&amp;size=1024)
+这里选择个较为中性的《福克斯新闻》的报道，题目“拜登似乎忘记了国防部长的名字，称他为‘管理这个团队的家伙’”，副标题写道，拜登在白宫的一次活动中似乎忘记了国防部长劳埃德·奥斯汀（Lloyd Austin）的名字。
 
-[直播链接](https://gtv.org/video/id=603238d8047c4c3086d7f20b)
+全文如下：
 
-本期节目选择缅甸领导人昂山素季作为中心的话题。
+拜登周一在白宫的一次活动上似乎忘记了国防部长劳埃德·奥斯汀的名字——称这位五角大楼负责人为“在那里管理这个团队的家伙”。
 
-东南亚国家缅甸历史悠久，文化灿烂，资源丰富。因其重要的战略地位，成为印、英、美、中国等大国的竞技场。2月初，作为缅甸合法政权领导人，昂山素季被军方以涉嫌大选舞弊为由拘捕，引发缅甸民众上街抗议，使这位缅甸自由女神再次成为焦点。
+拜登宣布提名两名女将军来领导美军作战司令部。“我要感谢the sec……the, the, ah 前将军，我一直称他为将军，但我的，我的……在那里管理这个团队的家伙，”拜登说，“我要确保我们感谢这个部长，为落实我们刚才谈到的内容所做的一切，并推荐这两位女士的升职。”
 
-昂山素季是缅甸国父昂山将军之女，2岁丧父，由外交官母亲带到印度，后考入牛津大学。她关心国事，与缅甸异议人士过从甚密。1988年，缅甸爆发民主抗议，昂山素季回国参与政治后被军方软禁达21年，期间获得诺贝尔和平奖，使得其个人声望达到顶峰。2010年获释，之后，2015年她带领的全国民主联盟赢得大选并出任国务资政，同时宪法仍保留了军方的部分权利，为日后政变留下伏笔。 对于昂山素季掌权后的种种表现，主播们表达了不同意见：
+早些时候在活动中，拜登提到国防部领导人的名字，“奥斯汀部长”，似乎从一个提词器阅读（获得）。
 
-认为昂山素季倾向于专制的主播，列举了中共一带一路项目密松水电建设引发的民众流血抗议，发表了背叛民意的言论，在军方对罗兴亚人种族灭绝上不予以谴责，在上台后公开反美倒向中共等。
+现年78岁的拜登此前一直在为内阁部长人选的名字而纠结，去年12月，他把卫生和公共服务部提名人泽维尔·贝塞拉（Xavier Becerra,）的名字念错了，然后用另一个发音错误来纠正自己。
 
-认为昂山素季为了国家委曲求全身不由己的主播列举了诸如柬埔寨、越南、泰国、台湾、韩国、朝鲜、日本等国家作为例子，来说明昂山素季在大国之间的夹缝中求生存的现实，同时她作为表面上的主政者对军方、对军队根本没有掌控。并且她已经被军方关押。
+拜登周一提名空军上将杰奎琳·范奥沃斯特（Jacqueline Van Ovost）领导美军运输司令部，陆军中将劳拉·理查森（Laura Richardson）领导美国南方司令部，他们的提名必须由参议院确认。
 
-回顾昂山素季重新掌权的过往，她在掌权缅甸后承诺，发展经济，改善民生，采取大国平衡的外交政策，也取得了一定的成效。2016年昂山素季获得了“海伦•凯勒国际人道主义奖”。2020年11月，昂山素季被萨哈罗夫奖联合会除名，理由是她站在了民主的对立面。2016年荣登缅甸总统宝座的吴廷觉更是成了人们对昂山素季的谈资。 嘉宾们还讨论了缅甸境内石油天然气管道背后的利益，民众到中共大使馆前抗议建立互联网防火墙等等。
+拜登在庆祝国际妇女节时宣布了他们的人选。她们将是继2016年至2018年担任美国北方司令部司令的退役空军上将洛里·罗宾逊（Lori Robinson）之后，第二位和第三位担任如此高职位的女性。（原文完）
 
-小国如何避免与大国勾兑，把国家资源，地缘优势等转化为个人私利，真正的如百度百科对民主的解释那样，找到最大公约数，建立制度，而不是依赖那些光环，使缅甸真正拥有民主与自由。这些问题都值得我们每个人深思。
+评：狐狸《FOX》就差没说出，拜登连自己的内阁部长名字都叫不上来。这只有两种可能，一、他是个“傀儡”总统，人选不是他决定的，甚至他都不认识，持这种观点的大有人在，结合入主白宫后拜登的表现，有很多人都进行过较详尽的分析，这里我们就不做“传话筒”了，爆料革命信奉“唯真不破”；二、拜登发生了瞬间的“大脑短路”，是老年痴呆的表现。拜登得了老年痴呆症也不是一个两个医生、护理专业人士公开说过的了。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/U3QNxtzcVr6Ef/images/c6d5a1a0-9d41-432c-acc3-78de23fd48e7.png?asset_id=13d96c3c-fcf2-4f9c-961b-f036abcff9c6&amp;img_etag=%22eb98b030c40068146f6d612cc5f4f32c%22&amp;size=2560)](https://spark.adobe.com/page/U3QNxtzcVr6Ef/images/c6d5a1a0-9d41-432c-acc3-78de23fd48e7.png?asset_id=13d96c3c-fcf2-4f9c-961b-f036abcff9c6&amp;img_etag=%22eb98b030c40068146f6d612cc5f4f32c%22&amp;size=1024)
+不管哪种情况，这都是美国人的悲哀！
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+原文链接：
 
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/U3QNxtzcVr6Ef/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/U3QNxtzcVr6Ef/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[https://www.foxnews.com/politics/biden-seems-to-forget-defense-secretarys-name-calls-him-the-guy-who-runs-that-outfit](https://www.foxnews.com/politics/biden-seems-to-forget-defense-secretarys-name-calls-him-the-guy-who-runs-that-outfit)
 
 0
