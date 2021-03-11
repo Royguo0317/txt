@@ -1,50 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0311.2021(持续更新)
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/966282/)
+## 欧洲药品管理局开始快速审批两种中共病毒实验性抗体治疗方法
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/967686/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0311.jpeg)
-**推文部分经授权转载自：**
-
-- 川普等政要直譯推[Twitter：](/twitter.com/zhiyitw33)[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
-- 川普等政要直譯推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
-- 川普等政要直译盖文GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
+- 编辑：Victor Torres
+- 发稿：Ranting
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
+**西班牙2021年3月11日电/西喜社——**欧洲药品管理局(EMA)表示，已经开始对礼来公司开发的两种中共病毒实验性抗体治疗方法进行快速审批程序。
 
-3月10日川普总统GAB信息如下
+在周四的一份声明中，欧盟监管机构表示，它正在考虑抗体bamlanivimab是否应该单独以及与另一种药物etesemivab联合获得许可。这两种药物是单克隆抗体，旨在附着在中共病毒的尖峰蛋白上，防止病毒侵入人体细胞。
 
-“如果传奇人物赫歇尔-沃克（Herschel Walker）竞选佐治亚州的美国参议员，那岂不妙不可言？他将是不可阻挡的，就像他在佐治亚州牛犬队和在NFL打球时一样。他也是一个伟大的人。加油吧，赫歇尔，加油!”
+欧洲药品管理局表示：”EMA将评估这些药物的所有数据，包括来自临床试验的证据，”它补充说，其对动物数据的评估已经开始。
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-138.png)
+美国食品和药物管理局在11月批准了对bamlanivimab的紧急使用批准。它在2月批准了两种抗体的联合治疗。
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/598d7ae3-46df-4ca2-8e18-367c75c02e87.jpg)
 
-45届美国总统川普声明：“希望大家在接种COVID-19(过去常说的中国病毒)疫苗的时候记住，如果我不是总统，你们5年内都不会接种这支漂亮的 “疫苗”，可能根本就不会接种。希望大家记住!”
+**新闻来源：[美联社](https://apnews.com/article/philippines-coronavirus-pandemic-manila-d61855c535796860c33d80a8d54f2430)**
 
-时至今日，川普总统还对疫苗和中共病毒的本质概念模糊，这或许就注定他也只能是第45届总统的原因吧。
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-139.png)
-
-[https://gab.com/realdonaldtrump](https://gab.com/realdonaldtrump)
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-
-
-信息采集：直译推组， 喜马拉雅的文雅
-
-编辑：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-**《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。**
-
-
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
 
 0
