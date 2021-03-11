@@ -1,17 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月10日 文贵先生盖特 5
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/966260/)
+## 全世界最顶级的前1%科学家认为病毒来源自然的几率是1/500
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/966334/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场 **（文惜）
+3/10/2021 全世界最顶级的前1%科学家认为病毒来源自然的几率是1/500
 
-蓬佩奥对于美国运动员是否能够安全出入中共国深感担忧 Pompeo: there are real concerns about athletes’ ability to both get into China and to get out of China safely
+By： 【秘密翻译组 G-Translators】
 
 
-
-[【2021年3月10日】文贵先生盖特原文](https://gtv.org/getter/6049519f607c4240c8b488ef)
-
-**喜联盟Gnews编辑部**
 
 0
