@@ -1,41 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧盟关注“科技主权”减少对中美依赖
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/965920/)
+## 中共指责美方“炒作”中共侵占台湾的军事威胁
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/965929/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑  水星  上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-11_06-46-42.jpg)[vocaleurope.eu](https://www.vocaleurope.eu/the-future-of-the-european-society-in-the-hands-of-the-digital-assembly/)
-CNBC新闻报道，欧盟决定向基础和核心技术领域投资数十亿欧元，这是欧盟加强科技主权、减少对中美依赖的尝试。
+编辑上传   水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/T-18.jpg)wionews.com
+The Defence Post 3月10日报道，中共指责美方夸大中共侵占台湾的威胁，批评这是华盛顿加大国防开支的借口。
 
-欧洲目前严重依赖来自境外的技术，欧洲大陆的领导人希望改变这一点。欧盟执行机构欧盟委员会(European Commission)的发言人称，“加强欧洲的数字主权是我们数字战略的一个关键组成部分。”“在技术方面，欧洲可以在世界舞台上发挥领导作用。” 德国弗劳恩霍夫研究所指出，科技主权是国家能力的体现。
+美国驻亚太地区最高军事官员、海军上将菲利普·戴维森(Philip Davidson)周二表示，中共可能在未来6年内入侵台湾。目前北京方面正加快行动，以取代美国在亚洲的军事力量。中共外交部发言人赵立坚表示，“从本质上讲，这是美国在寻找增加军费开支、扩大军事力量和干预地区事务的借口。”
 
-目前欧洲在半导体和超高速电信网络等关键技术基础设施方面已经落后。美国的思科(Cisco)和中共国的华为(Huawei)等公司已经为欧洲7亿多居民搭建了支撑互联网的管道。芯片主要来自美国的英伟达(Nvidia)、高通(Qualcomm)和英特尔(Intel)、中共国的富士康(Foxconn)、韩国的三星(Samsung)或台湾的台积电(TSMC)。台湾被中共国视为其领土的一部分。还有美国和中共的互联网平台——比如谷歌、脸书、Instagram和抖音——它们拥有数亿欧洲用户，这些公司以惊人的规模获取了欧洲用户的个人数据。
+戴维森上将在参议院军事委员会(Senate Armed Services Committee)听证会上发言称，中共在该地区的侵略行为让他相信，夺取台湾是中共十分紧迫的目标。他说，“我担心他们正在加速实现取代美国和在以规则为基础的国际秩序中占领导地位的野心，他们一直表示希望在2050年前实现这一目标。” 戴维森表示，“台湾显然是他们的雄心壮志之一。我认为这种威胁将在未来10年，实际上是在未来6年显现出来。”
 
-总部位于多伦多的咨询公司创新未来中心(Center for innovations the Future)的地缘政治专家阿比舒尔·普拉卡什(Abishur Prakash)通过电子邮件告诉CNBC，各国政府正以新的视角看待科技，“各国已经开始担心，科技正在让外国力量以各种方式控制它们。”
+听证会的焦点主要是如何应对中共的威胁。就台湾问题戴维森补充到，虽然美国对台湾的“战略模糊”政策可能有助于台湾保持独立，但这类政策应该重新评估。戴维森强调，中共还在资源丰富的南中国海提出了广泛的领土主张，甚至威胁到美国的关岛。
 
-在川普政府执政期间，华盛顿去年将数十家中共国科技公司列入了黑名单，其中包括无人机制造商大疆。与此同时，北京多年来一直封锁美国社交媒体平台，如谷歌、脸书和推特。
-
-“面对美中之间日益紧张的关系，欧洲不会仅仅是一个旁观者，更会是战场了。”欧盟负责内部市场的委员蒂埃里·布雷顿(Thierry Breton)在去年7月的一次演讲中说，“是时候把我们的命运掌握在自己手中了。这也意味着识别和投资数字技术，将巩固我们的主权和工业的未来。”
-
-自布雷顿发表讲话以来，欧洲已宣布计划在从半导体芯片到新的电信基础设施等技术上投资数十亿美元，这些技术被认为有助于促进人工智能和自动驾驶汽车等其他技术的发展。
-
-“欧洲的数字主权依赖于三个支柱：计算能力、欧洲人对其数据的控制以及安全连接。”欧盟委员会的一位发言人表示，欧洲数字产业的发展需要将所有方面进行突破。
-
-布雷顿和欧盟委员会副主席玛格丽特·维斯特格(Margrethe Vestager)将诸多目标纳入了一项新的“2030年数字指南针”计划。该计划旨在将欧盟的2030年数字雄心转化为具体实施项目。例如，提高设计和生产世界上最强大处理器的能力，创建保证数据安全的创新欧洲云，政府、公司和公民可使用的高速和安全的宽带网络，制造量子计算机，加强芯片技术的发展等。
-
-欧洲的芯片产量占全球总产量的不到10%，尽管这一比例高于五年前的6%。欧盟委员希望将这一数字提高到20%，并正在探索投资200 – 300亿欧元(240 – 360亿美元)来实现这一目标。
-
-布雷顿在一份声明中说，“作为一个大陆，欧洲必须确保其公民和企业有机会选择最先进的技术，这将使他们的生活更美好、更安全，甚至更环保——前提是他们也有使用这些技术的技能。”欧洲将此计划称之为“欧洲的数字化十年。”
-
-欧盟委员会(European Commission)解释，技术主权不是为了“孤立”欧洲，而是为了捍卫该地区的战略利益和坚定自己的价值观。过去10年，欧洲一些最大、最重要的科技公司已经被美国和中共的巨头抢走。2014年，伦敦人工智能实验室DeepMind以约6亿美元的价格被谷歌收购，而芯片设计公司Arm则在2016年被卖给了日本软银。软银目前正试图以400亿美元的价格将Arm出售给美国芯片巨头英伟达(Nvidia)。苹果以大约6亿美元的价格收购了德国芯片企业Dialog Semiconductor的部分股权，而PayPal则以22亿美元的价格收购了瑞典支付初创企业iZettle。
-
-因此欧洲调整战略，加大基础和核心技术领域的投资以提升其科技主权，这是欧洲为减少对美国和中共国依赖做出的努力。
+北京方面很快驳斥了戴维森的言论，指责美国继续利用台湾问题来炒作中共的军事威胁。
 
 参考链接：
 
-[https://www.cnbc.com/2021/03/10/tech-sovereignty-key-issue-for-europe-amid-tensions-between-us-china.html](https://www.cnbc.com/2021/03/10/tech-sovereignty-key-issue-for-europe-amid-tensions-between-us-china.html)
+[https://www.thedefensepost.com/2021/03/10/china-says-us-hyping-taiwan-invasion/](https://www.thedefensepost.com/2021/03/10/china-says-us-hyping-taiwan-invasion/https://news.usni.org/2021/03/09/davidson-china-could-try-to-take-control-of-taiwan-in-next-six-years)
+
+[https://news.usni.org/2021/03/09/davidson-china-could-try-to-take-control-of-taiwan-in-next-six-years](https://www.thedefensepost.com/2021/03/10/china-says-us-hyping-taiwan-invasion/https://news.usni.org/2021/03/09/davidson-china-could-try-to-take-control-of-taiwan-in-next-six-years)
 
 0

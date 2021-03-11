@@ -1,27 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】10/03/2021:VOG、凤凰汇款战友尽快和农场联系签署债权转让协议，等同椅子战友权益
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/966610/)
+## 这边厢，中美会谈欲缓解 那边厢，舆论开骂添新仇
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/966626/)
 
-**制作:Cantonese工作室**
-**播报：【Elaine】 资料整理：【Elaine】【文手】【安妮】【文依】【An 】海报制作：【小豆芽】【米线】 视频制作：【文德】上传:【星星】**
-摘要:
+【日本东京方舟农场】作者：青衣 素材采编：武汉老温 校对：miumiu law
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-68.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2-33.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-45.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4-28.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/5-24.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/6-23.jpg)
-7.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/7-15.jpg)
-8.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/8-4.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/0-6.jpg)
+美国官员周三表示，国务卿安东尼·布林肯和国家安全顾问杰克·沙利文将于3月18日至19日在阿拉斯加，与中共中央政治局委员、中央外事工作委员会办公室主任杨洁篪和国务委员兼外交部长王毅举行会晤。会议将给予双方时间安排其优先事项，并涵盖一系列分歧问题。据称会谈话题将包括Covid-19大流行、气候变化，以及一些分歧问题，包括中国对香港的立场和对台湾的压力，以及中国对澳大利亚施加的“未宣布的经济禁运”等。据这位官员称，美国还将讨论被视为对美国工人和农民有害的中国“习俗”，以及知识产权盗窃，强迫技术转让和人权等问题。
+
+中美外交层面如此高级别官员的会谈，地点为何会选在阿拉斯加而不是华盛顿呢？对此，香港经济日报的报道称：拜登上台后中美关系仍然紧张，尤其是拜登政府面临美国两党一致要求对中国强硬的压力。美国官员此时若到中国北京与中方会谈，或邀请中国官员到美国华盛顿会谈，政治上都有困难。阿拉斯加虽是美国领地，但与美国本土48州仍存在地理和文化上的差异，正好可以让中美官员在此敏感时刻，相对低调地面对面接触，既可达到沟通目的，也可减少国内政治反弹。
+
+布林肯周三在参议院外交事务委员会听证会上暗示，下周的会晤并不是重返以往美国政府所采用的定期高层对话。布林肯表示：“目前无意进行一系列后续交流。即便有后续交流，前提也必须是我们所关切的美中议题有具体进展和具体结果。” 布林肯还表示美国将对在香港违反人权者采取行动：“我们必须继续贯彻制裁，例如，对那些在香港犯下镇压行为者究责。”此外，布林肯还提到了新疆问题，预计这也将会成为会谈议题之一。
+
+中国方面似乎对这次会面的宣传表现得十分低调。但外界普遍认为这次会议将是中共面对面试探拜登政府底线的关键会议。在美国前任总统川普政府执政后期，中美关系持续恶化。自去年12月以来，北京方面一直在要求高级官员会晤，却始终得不到回应。此次阿拉斯加会谈是中共终于找到机会与拜登政府进行的首次官方接触，尽管会面是安排在天寒地冻的阿拉斯加，尽管是在布林肯前往美国的东亚盟国韩国和日本出访之后，回程途中的顺带会面。由此可见中共的外交关系已到了何种不堪的境地。
+
+有趣的是，中共国内媒体不仅冷处理了此次会面报道，并且还在国内媒体舆论上对美国展开了新一轮骂战。环球时报网在此敏感时刻发表了题为《新疆舆论战，让我们创造性地与美国打》的文章，同时还刊登了另一篇据称是俄罗斯作者的文章，题为《令中国深感愤怒的是美国的霸权主义和颐指气使》。中共一面嘴上说要与美国重置关系，展开合作；另一面却又在会谈前动用舆论工具开骂美国，不知这是否可以理解为中共对于此次会谈的结果并不持乐观态度。 当然也可能还有另一个解释，那就是中共国内各派系的政治斗争更加日趋激化，有一股反习势力利用其掌控的舆论工具在故意破坏此次中美会面。
+
+注：本文仅代表作者观点
+
+参考链接：
+
+1.[https://twitter.com/SecBlinken/status/1369701945955467269](https://twitter.com/SecBlinken/status/1369701945955467269)
+
+2.[https://www.wsj.com/articles/top-u-s-china-officials-to-meet-next-week-in-alaska-on-range-of-issues-11615395641?reflink=desktopwebshare\_twitter](https://www.wsj.com/articles/top-u-s-china-officials-to-meet-next-week-in-alaska-on-range-of-issues-11615395641?reflink=desktopwebshare_twitter)
+
+3.[https://cn.reuters.com/article/china-usa-officials-meeting-schedule-031-idCNKBS2B302Y](https://cn.reuters.com/article/china-usa-officials-meeting-schedule-031-idCNKBS2B302Y)
+
+4.[https://twitter.com/andy5\_123/status/1369801758457798656](https://twitter.com/andy5_123/status/1369801758457798656)
+
 0
