@@ -1,55 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共签署香港民主的最终死刑令！全球必须予以谴责
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/966098/)
+## 比尔&amp;梅林达-盖茨基金会与被揭露收集美国人生物数据的中共公司有关联
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/966131/)
 
-翻译：康州盘古农场 – Freeearth
-校对：康州盘古农场 – Mike Li
+翻译：康州盘古农场 – TrueSky
+校对：康州盘古农场 – Layka
 编辑：康州盘古农场 – Antsee-GTV
 
-据《香港观察报》约翰尼·帕特森（Johnny Paterson）3月9日报道：
+据《美国第一新闻网》3月9日报道：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-11-at-13.21.58.png)*香港西九龙法院外的示威者 – 图片来源：CITY.A.M 网站*
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-11-at-13.52.01.png)*比尔·盖茨 – 图片来源：Saeed Adyani / Netflix via AP*
 
-**本周，中共敲响了香港民主意志的最后丧钟。 新的提案显著减少了民主选举产生的席位。这些提议将在本周晚些时候由中共的橡皮图章议会签署。这标志着中共的全面的极权主义的开始。**
+早在2012年，这位亿万富翁的基金会就与这家中共国公司建立了一份谅解备忘录，旨在将“基因组学研究带入”全球社会。此事发生的原因是，美国情报部门官员称，该公司利用提供给美国政府的COVID-19测试试剂盒“收集、存储和利用生物计量信息”。
 
-香港最后一位英国总督克里斯·彭定康（Chris Patten）在评论拟议的改革时言辞不讳：“迄今为止，中共议会已采取了最大的步骤，抹杀香港的自由和在法治下实现更大民主的愿望。 ”
+国家反间谍和安全中心前主任威尔 埃文尼娜（Will Evanina）表示，“他们是与共产党国家以及军事机器都有联系的终极公司”，“目前估计，80%的美国成年人个人身份信息都被中共窃取。”
 
-他说：“这一决定彻底破坏了中共对一国两制的承诺。”
 
-彭定康的话很重要，因为他协商了移交事宜。他知道，在英中两国政府达成的一国两制解决方案的核心问题上，宪法明确地承诺香港的权利和自由将保持不变，确保香港将过渡为完全民主的国家。
 
-现在，中英之间的条约《中英联合声明》中的承诺被撕毁了。
+> Structure-based design of prefusion-stabilized SARS-CoV-2 spikes.
+> 
+> Read more: [https://t.co/XYR3JanrFa](https://t.co/XYR3JanrFa)[#BGI](https://twitter.com/hashtag/BGI?src=hash&amp;ref_src=twsrc%5Etfw) [#covid19](https://twitter.com/hashtag/covid19?src=hash&amp;ref_src=twsrc%5Etfw) [#science](https://twitter.com/hashtag/science?src=hash&amp;ref_src=twsrc%5Etfw) [#health](https://twitter.com/hashtag/health?src=hash&amp;ref_src=twsrc%5Etfw) [#omicsforall](https://twitter.com/hashtag/omicsforall?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/dWK2Sr2KCO](https://t.co/dWK2Sr2KCO)
+> — BGI (@BGI\_Genomics) [March 2, 2021](https://twitter.com/BGI_Genomics/status/1366649486655819776?ref_src=twsrc%5Etfw)
 
-这一切始于去年。当时直接由北京直接通过并实施了《国家安全法》。该法律是其宪法的分水岭，旨在确保香港与大陆一样。现在没有什么可以阻止中共当局的反对者面临被人为捏造指控“颠覆”罪名。
 
-结果？现在，香港所有主要的民主斗士们都在接受审判，入狱或流放。
+基于结构的预融合稳定化SARS-CoV-2靶向设计
+— 华大基因（2021年3月2日）
+据报道，中共政府已对该公司进行了大量投资，该公司上个月从投资者那里筹集了3亿美元。
 
-中共当局从《国家安全法》开入手，现已通过选举改变得以终结。这把一国两制彻底埋葬。尽管最终细节尚未公开，但据报道，这个政策的改变将意味着香港人在立法机关的席位中仅占20％的发言权，而对于谁是他们的领导人，则没有发言权。
+原文链接：[https://www.oann.com/report-bill-and-melinda-gates-foundation-linked-to-chinese-company-found-to-have-mined-americans-data/](https://www.oann.com/report-bill-and-melinda-gates-foundation-linked-to-chinese-company-found-to-have-mined-americans-data/)
 
-更糟糕的是，所有候选人都将由忠于（中共）的大亨和党的干部组成的委员会进行甄选。 那些被认为不是足够“爱国”的人将被排除在外。
-
-中共国外交部长本周末说：“忠于祖国是世界任何地方所有公职人员和有抱负的人的基本政治道德，香港也不例外。”
-
-在中共共产党看来，爱国主义就是对其党的忠诚。
-
-一国一制似乎是香港的未来。
-
-我们正在目睹这座城市从中共的自由堡垒“亚洲国际都会”逐步变成了一个具有经济优势的中共经济特区，像深圳，但可以使用脸书和较少的科技公司。
-
-为什么这很重要？对于英国而言，香港向极权主义迈出的每一步都进一步提醒我们，中共根本不关心在国际法上对移交条约所规定的英国的承诺。作为该条约的共同签署国，我们有义务继续关注并作出回应。
-
-英国正确地从香港为英国国民（海外）提供了生命线，但这一步骤不能被视为是完整而一致的应对策略。政府必须采取进一步行动，以表明这种公然违反国际法的行为对英中双边关系产生了影响。应该考虑对中共制裁，外交交涉和追究责任的途径。
-
-英国对阿列克谢·纳瓦尼（Alexei Navalny）和白俄罗斯的抗议活动实施了马格尼茨基制裁，但尚未采取任何行动来消除对香港的自由的威胁。（英国）最低限度应用人权制裁相关责任官员。
-
-然而，制裁不足以作为回应。英国应该通过寻求国际法律途径，包括通过向国际法院提起诉讼来寻求问责。
-
-最重要的是，应该召集一个由志同道合的民主国家组成的国际联盟，共同行动，以应对香港的局势和中共对国际法以及其他相关侵犯。
-
-统一的全球应对措施是保护香港人的最佳方法。如果我们未能做到这一点，北京认为这是软弱并将采取进一步措施，我们不会感到惊讶。习近平窥视台湾已久。他对香港的态度应作为一个警告。
-
-文章来源：[https://www.cityam.com/as-china-signs-the-final-death-warrant-for-hong-kongs-democracy-there-must-global-condemnation/](https://www.cityam.com/as-china-signs-the-final-death-warrant-for-hong-kongs-democracy-there-must-global-condemnation/)
-
-0
++2

@@ -1,27 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共指责美方“炒作”中共侵占台湾的军事威胁
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/965929/)
+## 【战友心声】母亲伟大的光芒，日月可鉴
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/965961/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：纽约香草山农场 玫瑰园 Sky妮妮
 
-编辑上传   水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/T-18.jpg)wionews.com
-The Defence Post 3月10日报道，中共指责美方夸大中共侵占台湾的威胁，批评这是华盛顿加大国防开支的借口。
 
-美国驻亚太地区最高军事官员、海军上将菲利普·戴维森(Philip Davidson)周二表示，中共可能在未来6年内入侵台湾。目前北京方面正加快行动，以取代美国在亚洲的军事力量。中共外交部发言人赵立坚表示，“从本质上讲，这是美国在寻找增加军费开支、扩大军事力量和干预地区事务的借口。”
 
-戴维森上将在参议院军事委员会(Senate Armed Services Committee)听证会上发言称，中共在该地区的侵略行为让他相信，夺取台湾是中共十分紧迫的目标。他说，“我担心他们正在加速实现取代美国和在以规则为基础的国际秩序中占领导地位的野心，他们一直表示希望在2050年前实现这一目标。” 戴维森表示，“台湾显然是他们的雄心壮志之一。我认为这种威胁将在未来10年，实际上是在未来6年显现出来。”
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-听证会的焦点主要是如何应对中共的威胁。就台湾问题戴维森补充到，虽然美国对台湾的“战略模糊”政策可能有助于台湾保持独立，但这类政策应该重新评估。戴维森强调，中共还在资源丰富的南中国海提出了广泛的领土主张，甚至威胁到美国的关岛。
 
-北京方面很快驳斥了戴维森的言论，指责美国继续利用台湾问题来炒作中共的军事威胁。
 
-参考链接：
+“中共国的男性缺少勇气，女性缺少善良。”
 
-[https://www.thedefensepost.com/2021/03/10/china-says-us-hyping-taiwan-invasion/](https://www.thedefensepost.com/2021/03/10/china-says-us-hyping-taiwan-invasion/https://news.usni.org/2021/03/09/davidson-china-could-try-to-take-control-of-taiwan-in-next-six-years)
+很多人也许没有意识到，一个家庭里有位善良的女性会对一个人产生多么巨大的影响。人做重大抉择时，往往不是根据复杂缜密的逻辑，而可能就是一瞬间对善与恶、真和假的判断。小时候，母亲对我们叮嘱的“不能说谎”、“做个好人”往往比哲学书本上对善恶真假的判断要有力得多。
 
-[https://news.usni.org/2021/03/09/davidson-china-could-try-to-take-control-of-taiwan-in-next-six-years](https://www.thedefensepost.com/2021/03/10/china-says-us-hyping-taiwan-invasion/https://news.usni.org/2021/03/09/davidson-china-could-try-to-take-control-of-taiwan-in-next-six-years)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/13-3.jpg)图源网络
 
-0
+中共国不允许宗教信仰，却鼓吹迷信。例如，中国人求神拜佛的目的往往是功利的，祈求神佛赐予自己金钱与事业；相反，虔诚的基督徒会祈求上帝给予自己更大的勇气去克服困难。信仰缺失导致国人缺少精神支柱，而此时，母亲/女性对我们从小的教诲就在潜移默化地发生作用。“小事”如文贵先生常在吃播中提到的不能浪费，让我想起外婆曾经的一个“癖好”——凡是剩菜一定要打包，绝不能扔掉。实际上，这并不是老一代曾经“饿怕了”的后遗症，而是她们对粮食、辛勤劳作的珍惜与尊重。“大事”如中共病毒，我们对病毒真相的判断并不需要丰富的科学知识，仅仅从中共政府匿声记者和医生就可以得到结论。我回忆起小时候在后院玩，奶奶在一边看书，瞧见我踩蚂蚁便立即呵斥“不要杀生”——有时候“大道理”就如此简单。人对所有生命，即便是蝼蚁，也应有基本的尊重。那么，一个草菅人命的政府（CCP）绝对不是合法政府。
+
+在习总加速师掀起的文革2.0下，中共国女性的地位不仅没有提升，反而变得矛盾诡异。从表面上看，“仇男”的社会风气虚假地拉高了中共国女性的社会地位——不可否认女性作为生育资源的稀缺性；同时，在经济日益恶化的环境下对男性过高的要求，使得女性容易获得相对更多的物质财富。而其代价之一，就是男女对立的加剧：一面是越来越来多的年轻男性认为当今女性虚荣轻薄，然而却不得不为了结婚生子而透支生命与父母积蓄；另一面是越来越多年轻女性觉得男性油腻，却每天享受在脑残剧和“娘炮化”娱乐节目中。只有头脑清醒的人才能看出来，这是CCP的治民之术——让出身普通的年轻人疲于奔命，让底层互斗。
+
+我们不应忘记感恩——也许生命中曾有位善良的女性陪伴了我们最天真无邪的日子，那种看不见的力量指引我们选择了真与善。消灭CCP，我们才能保护她们。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M3.jpg)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
+
++1
