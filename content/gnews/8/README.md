@@ -1,53 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 董建华的栽倒意味着什么？
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/967819/)
+## PPT教学成近视“诱因”，甩锅形式主义为哪般？
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/967860/)
 
-新闻简述：在2021年3月5日的盖特视频中郭先生透露前香港特首董建华是一个极端恋权的人，他和梁振英对香港人做的事情会被香港人唾弃。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles-2012-03-05-Getter4-part2.srt.txt)
-**董建华的栽倒意味着什么？**
+**美国纽约香草山农场  鹰(文言)**
 
-**Is Tung Chee-hwa’s Stumble a Sign?**
+澎湃网3月10日报道，中共国两会有代表提出减少过分依赖PPT教学建议，提倡学生做笔记、教师写板书。当初学校纷纷采购PPT教学设备，还将PPT教学纳入教学考核指标，为何现在出此建议？
 
-董建华，当时选董建华[当]第一任香港特首的时候，因为董建华建设大中华，懂得建设中华，而且是董建华的极端，一个商人，走向了政治权利以后，那种恋权，比政治家还他妈坏！我跟你说。董家一家人，他爹叫董浩云，我叫郭浩云，污辱了我”浩云”这个名声，我都不想认他啦，哈哈。当然，他不是我儿子，我也认不了，他太大了，是吧？但是，董家人我很多人都认识。那[他]是很夸张很夸张的！我觉得这个人，是糊涂蛋到了极点。
+近年来媒体曾报道使用PPT教学的缺点，并进行了相应探讨。如北京丰台实验学校曾颁布PPT教学限令：要求一、二年级教学严禁用PPT，而其他年级也要限时使用。《福建日报》曾对此做法给予肯定，课堂教学应注重引导学生理解和思考而非照本宣科。然而目前中小学教学中PPT的滥用和形式化仍未得到显著改善。是什么让中共政府法令不能落实呢？
 
-Tung Chee-hwa is the first Chief Executive of Hong Kong. Tung Chee-hwa’s name means “building the greater China” or “knowing how to build China”. As a businessman, he pursued a political career. After gaining political power, his extreme political view and his lust for power became f\*cking worse than any politician! I tell you. Talking about Tung’s family, his father’s name is Tung Chao-yung, and mine is “Kwok Chao-yung”. This made me feel so embarrassed and I didn’t even want to recognize him [as my son], ho-ho. Of course, he is not my son, so I can’t recognize him as my son anyway. Besides, he is too old, right? I know many members of the Tung family. He is so absurd, to a degree that no one can surpass.
+一、教学中使用PPT，可增加图文、视频内容，相比于宣读课本，这种形式更受学生、教师们青睐。
 
-一个他，一个梁振英，必然成为香港，未来像当年的秦桧一样，万俟卨一样，塑雕像跪在那里，被大家掴脸。千秋万代不跟他拉倒！梁振英呀、林郑月娥呀、董建华呀，这帮老王八犊子，还有今天的这个张建明呀，这些混账们，还有那几个警察头子，还有律政司啊，一个也跑不了，一个也跑不了。这都是反人类罪、大屠杀罪，董建华的跌倒是一个最好的象征。董建华叫董栽倒，董栽倒，董建华，大势已去。
+二、近年来学生每天接触到的信息量激增，使用互联网成为日常生活的一部分。进入信息化时代后，各种电子产品的普及，以及社交媒体的全覆盖，抛开PPT而沿用课本板书教学已不再适应时代发展。
 
-He and Leung Chun-ying will definitely become Qin Hui and Moqi Xie (two treacherous ministers in Song Dynasty) and have their own kneeling statues, waiting to be slapped by everyone in Hong Kong in the future. What they have done will not be forgotten for generations. Leung Chun-ying, Carrie Lam, Tung Chee-hwa, this bunch of old f\*cking bastards, together with Matthew Cheung Kin-chung today, these mother f\*ckers, and those several police chiefs, and the Hong Kong Department of Justice – no one can escape the punishment, not a single one! They have all committed crimes against humanity and the crime of mass murder. Tung Chee-hwa’s stumble is a best sign. Tung Chee-hwa can now be called “Tung Stumble”. The tide has turned against him.
+三、中共的教学系统将信息化指标作为教师考核标准，无论教学管理还是教师评价都将使用互联网、大数据等信息技术作为考核指标。某地甚至强推全覆盖，无PPT在教学考核“信息化”这一项不过关，由此将PPT教学搞成表演和形式主义。更深一层的原因在于，中共现有的教师考核评价体系，并非由教师专业共同体来衡量教育能力和教学贡献，而是由行政部门出台标准规范。相比于一线教师，行政职员的教育理念、教学思路乃至对教育的认知程度都要大打折扣；再加上中共的逆淘汰官场筛选的均是些弄虚作假的无底线人士，他们制定的过分强调升学率、信息化等脱离实际的考核指标也就不足为奇了。
 
-香港取消一国两制，香港[被]取消所有的所谓的民主制度，然后[CCP]把它变成一国一制，成为中国的一个区，甚至一个县，一个镇。香港700万人，不要说[CCP]掺沙子[的]那300万，这400万人，是咽不下这口气的。当年日本人在香港的时候，杀掉了80%的港人。最后香港人又把它起死回生，变成了世界上最牛的国际港，叫香港。当年是死港，最早是把臭港变成香港，香港又变成死港，死港又变成现在，真正的危机之港，共产之港。董建华的倒，是上天给它最后的一个明示，你完啦！董建华叫董建倒，董栽倒，甚至港栽倒。Piu！Piu！天意！很多时候，人不信邪，你不信邪？共产党[有]一句话，不信那个邪。你不信邪，是因为你自己无知，世界上没有这个你所不信的邪，这不叫邪，那叫神！
+四、这背后还有巨大的资本、利益力量推动，他们追求的是利益，而非教育的发展。PPT教学，就需要采购控制主机、投影仪等配套的电子设备，又是一个经办人和审批领导可贪污的大项目。国内社会工作生活中欺上瞒下是常态。“资本惧怕没有利润或利润过于微小的情况。一有适当的利润，资本就会非常胆壮起来。只要有100％，就会使人不顾一切法律”——马克思。这位邪魔教宗把政治制度共产主义邪灵植入中华，其中最著名就是经济学《资本论》。
+![pastedGraphic.png]()![pastedGraphic.png](https://gnews.org/wp-content/uploads/2021/03/1-2.jpeg)
+除了批判PPT形式化教学现象外，还有两会代表提出《关于限制课堂PPT课件使用时间完善青少年近视防控的建议》，将青少年近视问题归结在PPT的使用上，这完全是甩锅行径。早在2018年，中共教育部等就印发《综合防控儿童青少年近视实施方案》，要求严禁手机、平板电脑等电子产品入课堂，学校教学和布置作业不依赖电子产品。但在法案落地中却完全走样。无论是近期更严格的“手机限制令”、各地推出教师禁用手机布置作业规定，还是出台加强未成年人沉迷网游的监管政令，都表明青少年近视问题加剧并非全因PPT教学所致。
 
-“One country, two system” policies were destroyed and the so-called democracy was crushed in Hong Kong. Then the CCP will turn those into “one country, one system” and made Hong Kong one of its districts [without automacy], or even a county, or a small town. The 7 million Hongkongers, after excluding those 3 million dispatched by the CCP, the rest 4 million won’t take it easily. Back then when the Japanese occupied Hong Kong, they killed 80% Hongkongers. In the end it was the Hongkongers who revitalized this city, and made it the best international hub in the world, called “Hong Kong”. Before then it was called “Sei-Kong” (meaning dead harbor). It was transformed from “Cau-Kong” (meaning stinky harbor) to Hong Kong (meaning fragrant harbor). Hong Kong was then turned into “Sei-Kong” again [by the CCP], and into what it’s like today – the harbor of true crisis, the Communist harbor. Tung Chee-hwa’s stumble is the last sign God has given to it, which means it’s done! Tung Chee-hwa can now be called “Tung Build and Fall”, “Tung Stumble”, or even “[Hong] Kong Stumble”. “Piu! Piu!” It’s God’s will! Many people say,”I don’t believe in fate.” Don’t you believe in fate? The CCP has a saying, “Never trust that fate.” You don’t believe in the fate because you are ignorant. There is no such “fate” that you don’t believe in, and that’s not even called “fate”. It’s called “God”!
+上述推诿完全是有意误导大众，为其他如网络游戏过度开发、手机普及低龄化等现状开脱。近年来中共强推抖音等洗脑APP，放纵未成年人沉迷于小视频和网游，利用新型模式洗脑，灌输刻意美化的中共篡政历史，愚化大众，尤其是青少年。
 
-兄弟姐妹们，我要告诉你们，董建华的栽倒，对人的心理的震撼，和对一个信奉神，信奉上帝，信奉黄大仙的香港人，是心灵上巨大的震撼！香港现在已经疯啦！我的手机都快爆了！所有香港人都说”哇！香港死啦！香港死啦！完啦完啦完啦。”不是香港死了，是在香港的共产党，还有卖港贼他们死了。香港经过了臭港、香港，香港、死港，死港、香港，香港是共产港，现在会回到，世界上最伟大的圣城！没有[哪里]比香港再配得上”圣城”这两[个]字的了。兄弟姐妹们，走着看。
+中共一贯坚持“驭民五术”。当初推广PPT教学是有采购项目党领导有利可图，现在提议限制PPT教学是为充斥洗脑内容的手机“坏眼”甩锅，本末倒置。实际教学中只重视PPT形式主义教学和强调升学率，让学生误认为读书只为考分，而没有培养独立思考，自强自立的生存能力。这样的刻板教学不会让人明白“民主、民权、民生”的重要性，也无法与世界民主国家的文明理念接轨。眼睛近视不可怕，可怕是心中“近视”。如果脑中只有“习神”，那一生的岁月终被其蹉跎。总之，中共驭民之心不死，又怎会“自毁前程”让青少年开智呢？
 
-Brothers and sisters, what I want to tell you is that Tung Chee-hwa’s stumble can have a great psychological impact. It will terribly shock the souls of Hongkongers who believe in Gods such as Jesus Christ or Wong Tai Sin! Hong Kong has already gone crazy! My cellphone has gone crazy with calls and messages! All my Hong Kong buddies were saying, “Wow, Hong Kong is dead! Hong Kong is dead! It’s all over now! It’a over! It’s over!” Hong Kong will not die, but the CCP’s branches in Hong Kong and criminals who have sold Hong Kong to the CCP will. Hong Kong has gone through the process of being a “Cau-Kong”, to Hong Kong, to a “Sei-Kong”, back to Hong Kong, and then to the Communist “Kong”. Now it’s going back to be the holiest city on earth! No other places can be more suitable than Hong Kong to bear the name “Holy City”. Let’s just wait and see, brothers and sisters.
+**(文章仅代作者观点，与GNews网站无关)**
 
-现在香港[人]很多感谢我，哎呀！感谢你啊，郭生啊，我把钱移出来啦。去加拿大了，英国了，要不然我们完蛋了。记住，相信爆料革命，相信新中国联邦，不但救命，不但保财，还能让你千秋万代，还让你得到世间的人的尊重。 此时此刻，最大的受益者就是G系列。大家想想，大家想想，在此时此刻，我们决定，将战友的1300把椅子退回去，重新[开始]。[战友们]愿意留下来的，跟各农场联系，继续投[资]到海外空中GTV，云中GTV，继续一块钱一股，是什么概念？想想G-Coin，G-Dollar未来是什么概念？
+**新闻来源：**
 
-Now many Hongkongers have thanked me, “Aiya! Thank you, Kwok sang! I’ve transferred all my money out to Canada, or the UK, otherwise, we would be doomed. Remember, if you trust the Whistleblower’s Movement (WM) and the New Federal States of China (NFSC), not only can one save his life and money, but can let him be prosperous for generations and get respected by people in this world. At this very moment, the biggest beneficiary is the G-Series. Everyone, just think about it, at this moment, we’ve made the decision to return all the investment money of the 1,300 “chairs” (private investors) back to them. Any brother-in-arms who wants to keep investing, please go and contact your farm, and continue your investments into the overseas “Sky” GTV, Cloud GTV, still paying one dollar for one share. What would that mean? Just think about G-Coin, G-Dollar, do you have a clue about their future?
+[这事儿｜形式主义的PPT教学为何大行其道？](https://www.thepaper.cn/newsDetail_forward_11648713)
 
-共产党完球蛋了，共产党不但完球蛋了，你成就了个新中国联邦。最后临死前还干了个好事儿，嗯，不孬！还有更大的料，我现在还不想爆，因为我爆了，我怕你们受不了！等着看．．等着看，不要老想着奇迹，不要老想着奇迹。就像头一段时间，选出一拜登。川普一离开，这些人好像都失望了，不能活了。就像当年，当时二战的时候一样，是吧？英国去了，签了一个什么协议，很多人失望至极，然后希特勒，跨过莱茵河了，好像很多人不想活了。日本打了珍珠岛了，然后很多人觉得完了，不想活了。最后是什么？坚持到最后，坚持你所相信的，你就会赢得无穷无尽的未来。这是不变的墨菲定律，好好学学。兄弟姐妹们，今天是个好日子，今天是个大日子，感谢上天！祐我中华！祐我新中国联邦！共产党你完了！信不信？莘县阳谷县搭县，走走看！
+[教学中使用PPT，为何成了考核教师的指标？](https://guancha.gmw.cn/2021-03/10/content_34675132.htm)
 
-Not only is the CCP going to have their balls destroyed, it has also given rise to the NFSC. At last it has done something good before dying. Not bad! There are more breaking news, but I don’t want to disclose them right now. That’s because I’m afraid you may not be able to hold yourself if I break the news! Let’s wait and see. Don’t always expect miracles to happen. Just like a while ago when Biden got elected, and as soon as Trump left, these people were so disappointed and couldn’t live any longer. Just like what happened in the World War II, right? The British went and signed some agreements, which made many people so disappointed. Then when Hitler’s army crossed the Rhine river, many wanted to kill themselves when hearing the news. Also, when the Japanese invaded Pearl Harbor, many people thought the game was over and didn’t want to live any more. What happened in the end? Hold on to what you believe in to the very end, and you will win the endless future. This is the unchangeable Murphy’s law, and please teach yourself carefully. Brothers and sisters, today is an awesome day, and a big day, thank God for blessing China and our NFSC! CCP, you are done! Believe it or not? Shen and Yanggu are two adjacent counties competing with each other, so let’s wait and see who will win!
+[两会教育观｜减少PPT教学防近视，家长不能当“甩手掌柜”](https://baijiahao.baidu.com/s?id=1627392427620592753&amp;wfr=spider&amp;for=pc)
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-视频来源：[https://gtv.org/getter/6042b3e49534a74bcaeff20c](https://gtv.org/getter/6042b3e49534a74bcaeff20c) (4:22-结束)
 
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/952959/](https://gnews.org/zh-hans/952959/)
+***责任编辑：日本东京方舟农场 老蚂蚁666***
 
-* * *
+***编辑\校对：加拿大多伦多枫叶农场 文锦***
 
-翻译：【guocamole(文金欠)】校对：【Isaiah4031】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+***发布：盘古人生***
 
 0
