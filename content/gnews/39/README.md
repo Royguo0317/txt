@@ -1,26 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 顿涅茨克再次发生战斗
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/967500/)
+## 美国政要等每日重要信息0311.2021(持续更新)
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/966282/)
 
-喜马拉雅俄罗斯喀秋莎农场 洛夫斯基灭CCP
-编辑上传 银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-11_18-19-37.jpg)[pinterest.com](https://www.pinterest.com/pin/376191375099776378/)
+**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0311.jpeg)
+**推文部分经授权转载自：**
 
-03月10日，乌克兰武装部队军人与自封的卢甘斯克人民共和国(LNR)人民民兵之间再次发生战斗，乌克兰军人在过去24小时内4次违反停火协议。据卢甘斯克新闻中心报道，人民民兵部新闻处官员伊万·菲利波年科（Ivan Filiponenko）宣布了这一消息。
+- 川普等政要直譯推[Twitter：](/twitter.com/zhiyitw33)[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
+- 川普等政要直譯推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
+- 川普等政要直译盖文GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
 
-菲利波年科称，乌克兰武装部队的炮击造成卢甘斯克人民共和国(LNR)人民民兵受伤。“受害者被疏散到医疗机构，在那里及时得到了合格的医疗服务。”
 
-LNR人民民兵前代表安德烈·马洛奇科（Andrey Marochko）表示，乌克兰方面使用了小武器和榴弹发射器。他补充说，当地人看到，很多子弹从房屋的墙壁上跳落。
 
-乌克兰国防部则强调，有4次来自LNR的挑衅。该部还说，他们没有对此做出反应。乌克兰军人没有损失。
 
-3月初，基辅和LNR相互指责违反停火。顿涅茨克人民共和国被允许向乌克兰军队先发制人地开火。克里姆林宫表示，俄罗斯记录了乌克兰军队在部队脱离后进入不该进入的领土，对此表示担忧。
+3月10日川普总统GAB信息如下
 
-2014年5月，主张脱离乌克兰“独立”的顿巴斯分离主义势力自行创建“顿涅茨克人民共和国”和“卢甘斯克人民共和国”并宣布独立，两个共和国均得到了俄罗斯的承认。
+“如果传奇人物赫歇尔-沃克（Herschel Walker）竞选佐治亚州的美国参议员，那岂不妙不可言？他将是不可阻挡的，就像他在佐治亚州牛犬队和在NFL打球时一样。他也是一个伟大的人。加油吧，赫歇尔，加油!”
 
-参考链接：
-https://www.rbc.ru/rbcfreenews/6048ee899a794755881e3f19
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-138.png)
+
+
+45届美国总统川普声明：“希望大家在接种COVID-19(过去常说的中国病毒)疫苗的时候记住，如果我不是总统，你们5年内都不会接种这支漂亮的 “疫苗”，可能根本就不会接种。希望大家记住!”
+
+时至今日，川普总统还对疫苗和中共病毒的本质概念模糊，这或许就注定他也只能是第45届总统的原因吧。
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-139.png)
+
+[https://gab.com/realdonaldtrump](https://gab.com/realdonaldtrump)
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+
+
+信息采集：直译推组， 喜马拉雅的文雅
+
+编辑：康州盘古农场 喜马拉雅的文雅
+
+封面：康州盘古农场 霹雳年
+
+**《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。**
+
+
 
 0

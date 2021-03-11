@@ -1,54 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 习近平：全军要做好随时应对各种复杂困难局面的准备
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/967372/)
+## 3/11/2021 财经快讯：挪威主权基金调查其旗下公司是否使用新疆集中营劳工；平安人寿被实名举报
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/967393/)
 
-*新闻来源：《zerohedge》| 作者：TYLER DURDEN | 发布时间：2021年3月9日*
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2021-03-12_013828.jpg)图片来源：[https://uc.watchout.tw](https://uc.watchout.tw)
+**1.重磅：挪威主权财富基金就可能使用中共国新疆集中营劳工的公司展开调查**
 
-*翻译/简评：Victory | 校对/审核：万人往 | Page：Daoiii*
+[奥斯陆（路透社）3月10日 –全球最大主权财富基金-挪威主权财富基金道德委员会主席Johan H. Andresen向路透表示，该基金将调查其投资的公司中是否存在使用与中共国新疆地区集中营有关联的维吾尔族和其他穆斯林劳工的情况。](https://www.reuters.com/article/instant-article/idUSKBN2B21EA)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/nckKyMAalwRWI/images/d013d092-cf24-4082-a425-b01bbac0a018.jpg?asset_id=55000872-6eac-410f-b745-58b0e037df7e&amp;img_etag=%228ffa2ab5f37c7819fa90ff672e8649f3%22&amp;size=2560)](https://spark.adobe.com/page/nckKyMAalwRWI/images/d013d092-cf24-4082-a425-b01bbac0a018.jpg?asset_id=55000872-6eac-410f-b745-58b0e037df7e&amp;img_etag=%228ffa2ab5f37c7819fa90ff672e8649f3%22&amp;size=1024)
+[该基金投资总规模达1.3万亿美元。由于该基金根据挪威国会设定的道德准则运营，且持有全球9,100家上市公司的股票，占全球上市公司的比重达1.5%，它对市场的影响力非同小可。](https://www.reuters.com/article/instant-article/idUSKBN2B21EA)
 
-***简评：***
+**2.美国消费者价格上涨，目前基本通胀已缓和**
 
-**最近事态发展完全出乎中共预料，拜登上台之后，并未能够帮他们脱罪。布林肯国务卿已多次确认了对中共在新疆实施种族灭绝罪行。西方左媒也开始大规模报道中共生物武器相关信息。中共很清楚，全球灭共趋势已不可逆转。现在它们一边准备要殊死一搏，一边又不断派人使用各做手段拖延时间，与西方世界周旋。**
+[华盛顿（路透）- 美国2月消费者价格稳健上涨，尽管消费者的汽油支出会更多，但由于对航空旅行和酒店住宿等服务的需求疲软，潜在的通胀仍然不温不火。](https://www.reuters.com/article/us-usa-economy/u-s-consumer-prices-rise-underlying-inflation-muted-for-now-idUSKBN2B21LQ)
 
-**希望中共的军人清醒地认识到，中共要保卫的是它们自己家族的世代利益和奴役全中国人民的邪恶权力。中国人民没有一寸土地是属于自己的。中共在习近平带领下正在加速走向灭亡。中国人民不要为他们做炮灰。**
+[美国劳工部周三的综合报告并没有改变通胀将推高并超过美联储2％目标的预期。在截至2月的12个月内，CPI飙升1.7％，这是自2020年2月以来的最大涨幅，此前在截至1月的12个月内攀升了1.4％。 上个月的CPI读数与经济学家的预期一致。](https://www.reuters.com/article/us-usa-economy/u-s-consumer-prices-rise-underlying-inflation-muted-for-now-idUSKBN2B21LQ)
 
-***原文翻译：***
+**3.由于通胀担忧消退，道指创下股票上涨纪录**
 
-# **习近平警告军方在当前“不稳定和不确定”的局势中“准备响应”**
+[(路透) – 随着此前2月份的消费者价格数据平息了通胀担忧，以及国会最终批准了美国历史上最大的经济刺激措施之一， 标准普尔500指数周三上涨，蓝筹股道指创下历史新高。](https://www.reuters.com/article/us-usa-stocks/dow-hits-record-in-stock-rally-as-inflation-fears-recede-idUSKBN2B21CH)
 
-周二，在北京举行的全国人大年度会议期间，习近平主席向中共国解放军最高领导人发表讲话，告诉军队必须在国家面临的日益困难和复杂的安全挑战中“做好应对准备”。
+[道琼斯工业平均指数上涨464.28点，或1.46％，至32,297.02，标准普尔500指数上涨23.37点，或0.60％，至3,898.81，纳斯达克综合指数下跌4.99点，或0.04％，至13,068.83。目前标准普尔500指数创下51个52周新高，没有新低; 纳斯达克综合指数录得329个新高和19个新低。](https://www.reuters.com/article/us-usa-stocks/dow-hits-record-in-stock-rally-as-inflation-fears-recede-idUSKBN2B21CH)
 
-习近平在讲话中说：“当前我国的安全形势在很大程度上是不稳定、不确定的。”此前两天，中共国外交部长王毅在同一大会上发出了自己的严厉警告，称美国在中共国对台湾的主权上“越界”、“玩火”。
+**4.海外抖音TikTok宣布推出新工具来解决困扰平台的”不友善”评论**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/nckKyMAalwRWI/images/8cfaa568-4627-49db-85f1-ed0ce5a6b9cc.png?asset_id=9ef43c97-e558-47d0-bd88-f50c5016c3ad&amp;img_etag=%2239c170c721e648df29e0f8d0af81250c%22&amp;size=2560)](https://spark.adobe.com/page/nckKyMAalwRWI/images/8cfaa568-4627-49db-85f1-ed0ce5a6b9cc.png?asset_id=9ef43c97-e558-47d0-bd88-f50c5016c3ad&amp;img_etag=%2239c170c721e648df29e0f8d0af81250c%22&amp;size=1024)习近平 图片文件：香港政府
+[Tiktok周三宣布为创作者和用户提供二项新选择，努力限制视频平台上”不友善”和”不适当”评论的传播。](https://www.businessinsider.com.au/tiktok-announces-tools-to-address-unkind-comments-2021-3?r=US&amp;IR=T)
 
-据《南华早报》报道，习主席还说：“全军要协调好能力建设和战备的关系，做好随时应对各种复杂困难局面的准备，坚决维护国家主权、安全、发展利益，为全面建设社会主义现代化国家提供有力支撑。”
+[宣布的两个更改中的第一个是创作者可以”过滤所有评论”，允许创作者隐藏他们视频上的所有评论，直到他们批准它们。 正如该公司所指出的那样，该功能是过滤垃圾邮件，关键字和”冒犯性评论”的现有功能的扩展。第二项是由该公司政策总监Tara Wadhwa撰写的新闻稿中公布的，该功能将在用户提交评论前提示该评论是否”不友好”或”不合适“。](https://www.businessinsider.com.au/tiktok-announces-tools-to-address-unkind-comments-2021-3?r=US&amp;IR=T)
 
-兼任中央军委主席的习近平进一步肯定了“高水平的战略威慑和联合作战体系”和快速的国防科技创新的必要性。
+**5.继张乃丹实名举报中国人寿之后 平安人寿也出事了**
 
-他的话与国防部长魏凤和上将的评价是一致的，魏凤和周六再次敦促全军加强战备，称国家安全“已进入高风险阶段”。
+[继张乃丹实名举报中国人寿事件持续发酵之后，有一则平安人寿被员工实名举报的信息在互联网上发酵](https://finance.sina.com.cn/money/insurance/bxdt/2021-03-10/doc-ikknscsi0507461.shtml?cref=cj)！
 
-“我们面临着日益繁重的国防任务……我们必须全面提高军事训练和战备水平，提高我们战胜强敌的战略能力。”这位中共最高将领说。
+[“大家好，我曾是平安黑龙江分公司拓二区三十五处的一员，看到举报中国人寿大量造假的消息，也希望我的举报材料能有人看到。我于2018年5月-2019年10月在平安黑龙江分公司拓战区果戈里支公司任职，发现公司存在严重违反规定，内外勤相互勾结，以传销形式发展团队，造成了几百人上当受骗，蒙受了巨大经济损失…”。](https://finance.sina.com.cn/money/insurance/bxdt/2021-03-10/doc-ikknscsi0507461.shtml?cref=cj)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/nckKyMAalwRWI/images/c1eeeb0d-4d23-4c73-8baa-dbc1cb9ef0a4.png?asset_id=54b3eb12-feb2-499c-85a3-0e4013c8fbf6&amp;img_etag=%22a5b5da8be9cf28aac867bc8d8c56f67a%22&amp;size=2560)](https://spark.adobe.com/page/nckKyMAalwRWI/images/c1eeeb0d-4d23-4c73-8baa-dbc1cb9ef0a4.png?asset_id=54b3eb12-feb2-499c-85a3-0e4013c8fbf6&amp;img_etag=%22a5b5da8be9cf28aac867bc8d8c56f67a%22&amp;size=1024)盖蒂图片
+**6.中共国债券评级机构负面评级调整数量大增21%，内控合规仍存两大问题**
 
-在正在进行的会议上，一个特别的例子是最近美国和西方盟国海军在中共国主张的海域附近的演习。在中共国外交部长的评论中，王毅指出：“美国和其他西方国家经常在本地区挑起事端，试图利用南海问题制造事端。他们的目的只有一个：破坏和平，扰乱地区稳定。”
+[3月10日，中国证券业协会发布《2020年第四季度债券市场信用评级机构业务运行及合规情况通报》，对2020年四季度及全年度债券市场13家评级机构的市场表现、业务发展及自律动态、合规情况进行总结。](https://ishare.ifeng.com/c/s/v004q9ijwlvA93MPHiVa5u3fZ5x1cnx7Lo5---mzeN-_Zal--2zVgxuNoltCCZfbmLTRw--cv7zUihXHbBKQ1vrXdHEIgg___?spss=np&amp;aman=1cN40fPc672ef8A49bJ4b6Id74Wc6fA4180e01x305)
 
-他的讲话特别强调了一种好战的腔调，即与美国及其盟友的“霸权、高压、霸凌”以及在香港、台湾等地“公然干涉中国内政”。
+[据情况通报，2020年度，13家评级机构共对286家发行人作出评级调整动作，同比增加7.12%，占所评家数的7.34%。其中，正面调整共183家，同比增加0.55%；负面调整共103家，同比增加21.18%。](https://ishare.ifeng.com/c/s/v004q9ijwlvA93MPHiVa5u3fZ5x1cnx7Lo5---mzeN-_Zal--2zVgxuNoltCCZfbmLTRw--cv7zUihXHbBKQ1vrXdHEIgg___?spss=np&amp;aman=1cN40fPc672ef8A49bJ4b6Id74Wc6fA4180e01x305)
 
-**🔗[原文链接](https://www.zerohedge.com/geopolitical/xi-alerts-military-be-prepared-respond-deeply-unstable-uncertain-current-situation?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)**
+By 【金融组 – 小蚂蚁在行动】
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/nckKyMAalwRWI/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/nckKyMAalwRWI/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+素材搜集：文罡, Lingken
 
 0
