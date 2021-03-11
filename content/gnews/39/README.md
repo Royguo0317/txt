@@ -1,50 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0311.2021(持续更新)
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/966282/)
+## 波兰单日新增2.1万中共病毒病例
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/967674/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0311.jpeg)
-**推文部分经授权转载自：**
-
-- 川普等政要直譯推[Twitter：](/twitter.com/zhiyitw33)[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
-- 川普等政要直譯推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
-- 川普等政要直译盖文GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
+- 编辑：Victor Torres
+- 发稿：Ranting
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
+**西班牙2021年3月11日电/西喜社——**波兰政府周四报告了超过2.1万个新的中共病毒感染病例，这是自11月以来的单日最高数。
 
-3月10日川普总统GAB信息如下
+当局表示，波兰正处于由英国首次发现的传染性更强的病毒变种引起的第三波疫情。
 
-“如果传奇人物赫歇尔-沃克（Herschel Walker）竞选佐治亚州的美国参议员，那岂不妙不可言？他将是不可阻挡的，就像他在佐治亚州牛犬队和在NFL打球时一样。他也是一个伟大的人。加油吧，赫歇尔，加油!”
+据报道，波兰还新增375人死亡，波兰正面临着困难的局面。在医护人员短缺的情况下，因中共病毒住院的人数也在增加。
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-138.png)
+这个拥有3800万人口的国家已经记录了180多万例中共病毒感染者和4.6万多例死亡病例。
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/6eb39b58-ec82-4817-90c3-8d7bc512e90a.jpg)
 
-45届美国总统川普声明：“希望大家在接种COVID-19(过去常说的中国病毒)疫苗的时候记住，如果我不是总统，你们5年内都不会接种这支漂亮的 “疫苗”，可能根本就不会接种。希望大家记住!”
+**新闻来源：[美联社](https://apnews.com/article/philippines-coronavirus-pandemic-manila-d61855c535796860c33d80a8d54f2430)**
 
-时至今日，川普总统还对疫苗和中共病毒的本质概念模糊，这或许就注定他也只能是第45届总统的原因吧。
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-139.png)
-
-[https://gab.com/realdonaldtrump](https://gab.com/realdonaldtrump)
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-
-
-信息采集：直译推组， 喜马拉雅的文雅
-
-编辑：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-**《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。**
-
-
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
 
 0
