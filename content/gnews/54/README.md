@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 病毒是从实验室泄漏出来的，是经过功能增强研究的
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/966335/)
+## 美印太司令：中国是21世纪对安全最大最长期的战略威胁
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/966470/)
 
-3/10/2021 病毒是从实验室泄漏出来的，是经过功能增强研究的。
+3/9/2021 美印太司令：中国是21世纪对安全最大最长期的战略威胁。
 
 By： 【秘密翻译组 G-Translators】
 

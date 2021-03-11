@@ -1,14 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士一周锦集第7期
-` 喜馬拉雅多語組` [轉載自GNews](https://gnews.org/zh-hans/966738/)
+## 路德时评简讯（视频版）：美国务院再次确认中共犯下种族灭绝罪(2021.3.10早间 路德社简讯之路安墨谈)
+` 路德社` [轉載自GNews](https://gnews.org/zh-hans/966210/)
 
-#### 撰稿：问夏、CYC文穎、感言
-校对 ：卓别林（文尊）
-播音：大腳印
-视频：归真
+《路德社》出品
 
-[第7期](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/11070509/%E7%AC%AC7%E6%9C%9F.pdf)[下載](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2021/03/11070509/%E7%AC%AC7%E6%9C%9F.pdf)
+以下视频是详细内容：
+
+内容摘要：
+
+一、女性疫苗接种者出现副作用比例大
+
+二、数十位战争罪专家认定中共在精心策划种族灭绝
+
+三、美国务院再次确认中共犯下种族灭绝罪
+
+
+
+翻译：路德社翻译组
+
+制作：路德社简讯视频组
+
+审核校对：玫瑰新闻组
+
+上传排版：玫瑰新闻组
 
 0
