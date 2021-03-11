@@ -1,33 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 比尔&amp;梅林达-盖茨基金会与被揭露收集美国人生物数据的中共公司有关联
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/966131/)
+## 福齐领导的NIH再被证实资助中共病毒研究和功能增强实验
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/966187/)
 
-翻译：康州盘古农场 – TrueSky
-校对：康州盘古农场 – Layka
-编辑：康州盘古农场 – Antsee-GTV
+翻译&评论：Jony（8Mile）
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image-38-edited.jpeg)图片来自网络
+去年4月，《华盛顿邮报》的乔什-罗金（Josh Rogin）披露，2018年1月，美国驻北京大使馆 “采取了不同寻常的措施，多次派美国科学外交官前往武汉病毒研究所（WIV）”，随后向华盛顿发送了两份官方警告，称 “该实验室安全性欠缺”。
 
-据《美国第一新闻网》3月9日报道：
+现在，罗金出了一本新书：《天下大乱：川普、习近平和二十一世纪之战》，在书中，他以俯视的视角，提出了武汉病毒研究所牵连到COVID-19大流行病起源的证据，同时也证实了由安东尼-福齐博士领导的美国国家卫生研究院（NIH）”曾资助了一些涉及到武汉病毒研究所科学家的项目，包括武汉实验室对蝙蝠冠状病毒的大部分工作。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-11-at-13.52.01.png)*比尔·盖茨 – 图片来源：Saeed Adyani / Netflix via AP*
+这句话并没有改变。如果我们简单地将这些点联系起来，并运用一点逻辑：那么COVID-19出现在 “拥有世界上最大的蝙蝠冠状病毒库之一的实验室门口，该实验室拥有SARS-CoV-2最接近的已知亲属” 这一事实；并且是在进行了多年的所谓 “功能增强” 研究，修改动物病毒以更好地感染人类之后出现的 (奥巴马政府于2014年10月在美国禁止了这种研究)；而又有美国外交官报告说，他们对中共国研究人员 “没有足够受过适当训练的技术人员来安全操作他们的BSL-4实验室” 感到 “震惊”，那么COVID-19从武汉病毒研究所“逃出来”的可能性似乎是一个必然的结论。
 
-早在2012年，这位亿万富翁的基金会就与这家中共国公司建立了一份谅解备忘录，旨在将“基因组学研究带入”全球社会。此事发生的原因是，美国情报部门官员称，该公司利用提供给美国政府的COVID-19测试试剂盒“收集、存储和利用生物计量信息”。
+乔什-罗金书中摘录，来自Politico的报道：
 
-国家反间谍和安全中心前主任威尔 埃文尼娜（Will Evanina）表示，“他们是与共产党国家以及军事机器都有联系的终极公司”，“目前估计，80%的美国成年人个人身份信息都被中共窃取。”
+“武汉病毒研究所曾公开与美国大学和机构合作参与功能增强研究。但这位官员告诉我，美国政府有证据表明，中共国实验室进行增强功能研究的规模比公开披露的要大得多，这意味着他们在更多的实验室中冒了更多的风险，而中共国以外的任何人都不知道。这种洞察力反过来又以一种新的、令人不安的方式反馈到实验室事故假说中。”
 
+罗金还指出，2020年7月，北京的一群中共国研究人员，”包括几个隶属于军事医学科学院的研究人员” 进行了一项鲜为人知的研究，他们说他们创造了一种研究SARS-CoV-2的新模型， “通过使用CRISPR基因编辑技术，制造出具有类似人类肺部特征的小鼠，让小鼠的肺部细胞具有人类的ACE2受体–这种受体使得冠状病毒能够如此轻易地感染人类的肺部。”
 
+乔什-罗金还写道：
 
-> Structure-based design of prefusion-stabilized SARS-CoV-2 spikes.
-> 
-> Read more: [https://t.co/XYR3JanrFa](https://t.co/XYR3JanrFa)[#BGI](https://twitter.com/hashtag/BGI?src=hash&amp;ref_src=twsrc%5Etfw) [#covid19](https://twitter.com/hashtag/covid19?src=hash&amp;ref_src=twsrc%5Etfw) [#science](https://twitter.com/hashtag/science?src=hash&amp;ref_src=twsrc%5Etfw) [#health](https://twitter.com/hashtag/health?src=hash&amp;ref_src=twsrc%5Etfw) [#omicsforall](https://twitter.com/hashtag/omicsforall?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/dWK2Sr2KCO](https://t.co/dWK2Sr2KCO)
-> — BGI (@BGI\_Genomics) [March 2, 2021](https://twitter.com/BGI_Genomics/status/1366649486655819776?ref_src=twsrc%5Etfw)
+“在咨询了专家之后，一些美国官员开始相信，北京的这家实验室很可能在冠状病毒爆发之前，就对装有ACE2受体的小鼠进行了冠状病毒的实验–他们没有公开，并继续不承认这项研究。国务院在1月15日的声明中指出，虽然武汉病毒学研究所披露了其参与的部分功能增强研究，但一直没有披露其在RaTG13和‘至少从2017年开始代表中共国军方从事机密研究，包括实验室动物实验’中的具体工作。这本身无助于解释SARS-CoV-2是如何起源的。但很明显，官员们认为，中共国实验室里有很多正在进行的、危险的冠状病毒研究，而世界其他地方根本不知道。”
 
+由于中共国对其COVID研究的 “欺骗和混淆模式”，一些川普政府官员越来越相信中共官员在操纵科学数据以符合他们的说法。但问题是，由于北京方面的透明度太低，美国官员不可能证明SARS-CoV-2是否来自中共国实验室。
 
-基于结构的预融合稳定化SARS-CoV-2靶向设计
-— 华大基因（2021年3月2日）
-据报道，中共政府已对该公司进行了大量投资，该公司上个月从投资者那里筹集了3亿美元。
+“如果有一把冒烟的枪，中共把它和任何敢于说出真相的人一起埋了，”一位美国官员告诉罗金。”我们可能永远也无法证明它是这样或那样的，这就是北京一直以来的目标。”
 
-原文链接：[https://www.oann.com/report-bill-and-melinda-gates-foundation-linked-to-chinese-company-found-to-have-mined-americans-data/](https://www.oann.com/report-bill-and-melinda-gates-foundation-linked-to-chinese-company-found-to-have-mined-americans-data/)
+媒体的一步步推进和验证“冠状病毒，中共造”正一步步做实病毒来自于实验室。上述新书和节选已经比美国国务院1月份披露的与中共军方相关，实验室曾进行功能增强研究等更进一步，证实了实验室的资金来源，进行动物实验，使用基因编辑技术，研究如何感染人类等细节。那么，只要做实来自于实验室，中共就难逃铁证–中共军方独有的舟山蝙蝠骨架。
 
-+2
+同时，书中提到的信息也让我们验证–新中国联邦、爆料革命和闫博士是在领导拯救人类的壮举。如果不是爆料革命、闫博士挺身而出，中共完美犯罪的企图恐怕已经得逞，这个世界已陷入黑暗。
+
+（本文纯属个人观点）
+
+审核：cindy
+
+编辑：cindy
+
+以上文章载自：《新书证实了：福齐在中共国实验室人手不足的情况下，由美国国立卫生研究院（NIH）资助了武汉病毒研究所蝙蝠-COVID实验》
+
+Source:
+
+[https://www.zerohedge.com/covid-19/faucis-nih-funded-wuhan-bat-covid-experiments-2018-cables-warned-dangerously-lax-safety](https://www.zerohedge.com/covid-19/faucis-nih-funded-wuhan-bat-covid-experiments-2018-cables-warned-dangerously-lax-safety)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
+0
