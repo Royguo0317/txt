@@ -12,14 +12,14 @@
 
 ---
 
-### [视频路德时评简讯（视频版）：大量媒体人开始揭露中共罪行(2021.3.8晚间 路德社简讯之路博艾冠谈）](/content/gnews/1/README.md)
- ` 路德社`
-
-### [德敦促欧盟更强硬对待中共不公平贸易行为](/content/gnews/2/README.md)
+### [美国奥委会反对抵制2022年北京冬奥会](/content/gnews/1/README.md)
  ` HimalayaRussia`
 
-### [美国政要等每日重要信息0311.2021(持续更新)](/content/gnews/3/README.md)
- ` 喜馬拉雅的文雅 Wenya Himalaya`
+### [视频路德时评简讯（视频版）：大量媒体人开始揭露中共罪行(2021.3.8晚间 路德社简讯之路博艾冠谈）](/content/gnews/2/README.md)
+ ` 路德社`
+
+### [德敦促欧盟更强硬对待中共不公平贸易行为](/content/gnews/3/README.md)
+ ` HimalayaRussia`
 
 ### [视频所谓“爱国者治港”——香港“一国两制”的彻底结束](/content/gnews/4/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
