@@ -1,43 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 数十名战争罪专家：中共种族灭绝维吾尔人铁证如山
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/965719/)
+## 中共指责美方“炒作”中共侵占台湾的军事威胁
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/965929/)
 
-加拿大多伦多枫叶农场 Revelation119熙攘
-![]()![](https://gnews.org/wp-content/uploads/2021/03/rfa.org1_.jpg)图片来源：RFA.org
-据AXIOS新闻3月9日报道，一份周二发表的独立报告称，中共当局在对待新疆维吾尔族和其他穆斯林少数民族的问题上，违反了联合国《种族灭绝罪公约》中描述的”每一个被禁止的行为”。
+俄罗斯莫斯科喀秋莎农场   银河
 
-**重要性：发布该报告的华盛顿智库——新线战略与政策研究所在一份声明中说，数十名战争罪及人权和国际法专家指出“执政的中国共产党（对发生在新疆的种族灭绝行为）负有责任”的结论”清晰而令人信服”。**
+编辑上传   水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/T-18.jpg)wionews.com
+The Defence Post 3月10日报道，中共指责美方夸大中共侵占台湾的威胁，批评这是华盛顿加大国防开支的借口。
 
-第一个获得该报告副本的新闻媒体CNN指出，这是首次由一个非政府组织对指控发生在新疆的种族灭绝进行的独立法律分析，”包括中共对被指控的罪行应该承担什么责任”。
+美国驻亚太地区最高军事官员、海军上将菲利普·戴维森(Philip Davidson)周二表示，中共可能在未来6年内入侵台湾。目前北京方面正加快行动，以取代美国在亚洲的军事力量。中共外交部发言人赵立坚表示，“从本质上讲，这是美国在寻找增加军费开支、扩大军事力量和干预地区事务的借口。”
 
-事件背景：据估计，多达200万维吾尔人被关押在新疆的众多大型集中营里。中共当局否认有任何侵犯人权的行为，并声称这些集中营是用来根除极端主义的。
+戴维森上将在参议院军事委员会(Senate Armed Services Committee)听证会上发言称，中共在该地区的侵略行为让他相信，夺取台湾是中共十分紧迫的目标。他说，“我担心他们正在加速实现取代美国和在以规则为基础的国际秩序中占领导地位的野心，他们一直表示希望在2050年前实现这一目标。” 戴维森表示，“台湾显然是他们的雄心壮志之一。我认为这种威胁将在未来10年，实际上是在未来6年显现出来。”
 
-**这份新报告给指控在新疆集中营里存在酷刑、强迫绝育和其他虐待行为的证据提供了支持。**
+听证会的焦点主要是如何应对中共的威胁。就台湾问题戴维森补充到，虽然美国对台湾的“战略模糊”政策可能有助于台湾保持独立，但这类政策应该重新评估。戴维森强调，中共还在资源丰富的南中国海提出了广泛的领土主张，甚至威胁到美国的关岛。
 
-据AXIOS的贝瑟尼·艾伦·易卜拉希米安（Bethany Allen-Ebrahimian）报道，调查显示，中共当局在集中营内建造了”许多工厂”，并且强迫被关押者在棉花地做苦力。
+北京方面很快驳斥了戴维森的言论，指责美国继续利用台湾问题来炒作中共的军事威胁。
 
-**惊人发现：该报告说，”人们必须从整体上理解中共针对该地区维吾尔人的政策和做法——这明显意味着中共意图全部或部分消灭维吾尔人群体。”**
+参考链接：
 
-研究者发现，集中营里的被关押的维吾尔人”受到系统性的酷刑，遭受包括强奸在内的性暴力和残忍、不人道、有辱人格的惩罚，被剥夺了基本的人的需求，受到极端侮辱”。
+[https://www.thedefensepost.com/2021/03/10/china-says-us-hyping-taiwan-invasion/](https://www.thedefensepost.com/2021/03/10/china-says-us-hyping-taiwan-invasion/https://news.usni.org/2021/03/09/davidson-china-could-try-to-take-control-of-taiwan-in-next-six-years)
 
-根据该报告，被关押者被剥夺了基本需求，”受到极端侮辱，并受到虐待或惩罚，包括长期单独监禁且不给食物”。
+[https://news.usni.org/2021/03/09/davidson-china-could-try-to-take-control-of-taiwan-in-next-six-years](https://www.thedefensepost.com/2021/03/10/china-says-us-hyping-taiwan-invasion/https://news.usni.org/2021/03/09/davidson-china-could-try-to-take-control-of-taiwan-in-next-six-years)
 
-“自杀已变得非常普遍，因此被关押者必须穿防自杀服，并禁止接触易于用来自残的材料。”
-
-值得注意的是，包括美国在内的各国政府都已谴责中共对待集中营里被关押者的方式是”种族灭绝”和”反人类罪”。
-
-国际刑事法院（ICC）在去年12月拒绝对针对维吾尔人的种族灭绝指控的调查，但它并没有结案。这意味着可以就这些指控提交更多的证据，且国际刑事法院仍然可以展开调查。
-
-评：
-在美国前川普政府国务卿蓬佩奥宣布中共犯下针对新疆维吾尔族等少数民族犯下种族灭绝罪后，灭共之“潘多拉魔盒”正式打开。在那之后，即使拜登政府欲与中共继续勾兑，但其与中共的任何关联都会被置于媒体的放大镜下，无法放开手脚帮助中共。特别是目前，曾在川普执政四年中与中共勾兑的世界主流媒体开始不断曝光中共恶行，例如本文即是雅虎和AXIOS新闻网站披露中共种族灭绝罪行的铁证，中共灭亡的结局已经注定。
-
-[原文链接](https://news.yahoo.com/report-clear-evidence-china-committing-075247676.html?guccounter=1&amp;guce_referrer=aHR0cHM6Ly90LmNvLw&amp;guce_referrer_sig=AQAAAB8C_tI-ROcbJHxDMdgOoNt7WvAhZQ0bCUPZL7WNTu3-2eqno64wRYcDKYk5Usu1mnEeiQDKsszDZvuvhZbMw31Ww7VFCCvRojnZbhmYj2pXrZUaGql7ICbTy-MYkJRFGNEEHXYHzc8TbKK1sQjEJuojOieZr7os65o3ANxzlE8k)
-
-* * *
-
-校对 文锦
-发稿 云起时
-
-+1
+0

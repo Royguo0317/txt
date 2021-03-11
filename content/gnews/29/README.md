@@ -1,25 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 改变中国人的刻板印象
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/966102/)
+## 比尔&amp;梅林达-盖茨基金会与被揭露收集美国人生物数据的中共公司有关联
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/966131/)
 
-撰稿人：Microkevin
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image-37-edited.jpeg)
-图片来自网络
+翻译：康州盘古农场 – TrueSky
+校对：康州盘古农场 – Layka
+编辑：康州盘古农场 – Antsee-GTV
 
-70年来ccp不断的给中国人贴不好的标签。从刻画清朝的女人的小脚，男人的辫子，邋遢，走路弯腰低头。到今天的长袖西装，对外男盗女娼等一系列形象。对内驭民五术，不但让世界形成了对中国人的认知偏差，也让中国人对这个的世界产生了认知偏差。这种偏差持续伤害着中国人也伤害着世界其他国家的人。哪怕是在社交媒体上，一听说你是中国人，马上对方就会变得很不自然，甚至很反感。而刚刚翻墙进入国外社交媒体的中国人怎么也想不明白为什么外国人对我们这么不友好呢？其实根本不是这个刚刚翻墙人的错。是ccp70年来给中国人贴的标签把中国人形象败坏的一塌糊涂。这是有计划的系统的动作造成的后果。
+据《美国第一新闻网》3月9日报道：
 
-我们新中国联邦人必须也要有计划的系统的改变中国人身上的这种标签，这就是为什么七哥让我们每天健身，健心。就是让我们先从外在形像上改变以前那种普遍的大腹便便，蓬头垢面，走路晃晃悠悠的肥胖的形象。内心上开智，不受驭民五术影响，有信仰，恪守正道主义的价值观，真心的尊重他人，尊重女性，有绅士风度和骑士精神，从内在上改变中国人形象。同时，要坚持唯真不破，爱恨分明，该说话的时候说话，对那些坏人该骂的一定得骂。对他人要心怀仁慈之心，感恩之心，能帮助别人的尽量帮助。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-11-at-13.52.01.png)*比尔·盖茨 – 图片来源：Saeed Adyani / Netflix via AP*
 
-我希望，无论在国内，还是在国外的战友。不管在社交媒体上，还是在生活中。，我们的女人不裹小脚，男人没有辫子，我们不邋遢，不是男盗女娼。我们正义，善良，时尚，礼貌，健康。不要小瞧我们战友的每一个行动，无论是发推，做海报，写文章，口耳宣传，游行等一系列活动。每一个都是改变中国人形象的推动力。这也是系统性行动的一部分。为自己，也为自己的子孙后代活在一个不再受歧视的世界。行动吧！战友们。
+早在2012年，这位亿万富翁的基金会就与这家中共国公司建立了一份谅解备忘录，旨在将“基因组学研究带入”全球社会。此事发生的原因是，美国情报部门官员称，该公司利用提供给美国政府的COVID-19测试试剂盒“收集、存储和利用生物计量信息”。
 
-（本文纯属个人观点）
+国家反间谍和安全中心前主任威尔 埃文尼娜（Will Evanina）表示，“他们是与共产党国家以及军事机器都有联系的终极公司”，“目前估计，80%的美国成年人个人身份信息都被中共窃取。”
 
-审核：cindy
 
-编辑：cindy
 
-参考文献路德评：[https://www.youtube.com/watch?v=T0HwaMfoGGc](https://www.youtube.com/watch?v=T0HwaMfoGGc) 2021.3
-![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
-0
+> Structure-based design of prefusion-stabilized SARS-CoV-2 spikes.
+> 
+> Read more: [https://t.co/XYR3JanrFa](https://t.co/XYR3JanrFa)[#BGI](https://twitter.com/hashtag/BGI?src=hash&amp;ref_src=twsrc%5Etfw) [#covid19](https://twitter.com/hashtag/covid19?src=hash&amp;ref_src=twsrc%5Etfw) [#science](https://twitter.com/hashtag/science?src=hash&amp;ref_src=twsrc%5Etfw) [#health](https://twitter.com/hashtag/health?src=hash&amp;ref_src=twsrc%5Etfw) [#omicsforall](https://twitter.com/hashtag/omicsforall?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/dWK2Sr2KCO](https://t.co/dWK2Sr2KCO)
+> — BGI (@BGI\_Genomics) [March 2, 2021](https://twitter.com/BGI_Genomics/status/1366649486655819776?ref_src=twsrc%5Etfw)
+
+
+基于结构的预融合稳定化SARS-CoV-2靶向设计
+— 华大基因（2021年3月2日）
+据报道，中共政府已对该公司进行了大量投资，该公司上个月从投资者那里筹集了3亿美元。
+
+原文链接：[https://www.oann.com/report-bill-and-melinda-gates-foundation-linked-to-chinese-company-found-to-have-mined-americans-data/](https://www.oann.com/report-bill-and-melinda-gates-foundation-linked-to-chinese-company-found-to-have-mined-americans-data/)
+
++2

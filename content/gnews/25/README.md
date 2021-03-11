@@ -1,33 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 比尔&amp;梅林达-盖茨基金会与被揭露收集美国人生物数据的中共公司有关联
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/966131/)
+## 香港富豪亿万财产被中共查封，到餐馆打工依然乐观
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/966220/)
 
-翻译：康州盘古农场 – TrueSky
-校对：康州盘古农场 – Layka
-编辑：康州盘古农场 – Antsee-GTV
+#### 作者：天道酬勤2020
 
-据《美国第一新闻网》3月9日报道：
+#### 编辑：翼族
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image0-25.jpg)
+图片来源：Shutterstock
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-11-at-13.52.01.png)*比尔·盖茨 – 图片来源：Saeed Adyani / Netflix via AP*
+我时常在思考一个问题：如果我们战友也像郭文贵先生那样富有，或者说有几个亿的存款，是否会像他这样勇敢站出来坚决地灭共呢？我想大多数人的答案应该是否定的。然而，郭先生前两天（美东时间3月8日）直播中分享的一个小故事，相信对大家都有很大的触动。
 
-早在2012年，这位亿万富翁的基金会就与这家中共国公司建立了一份谅解备忘录，旨在将“基因组学研究带入”全球社会。此事发生的原因是，美国情报部门官员称，该公司利用提供给美国政府的COVID-19测试试剂盒“收集、存储和利用生物计量信息”。
+有一位香港的富豪，为了方便下文称他为A先生。A先生原来在香港做证券业务，赚了很多钱，银行有几个亿的存款，在香港也有房产。为了香港的自由和民主，A先生参加了抗议游行支持反送中运动，因此中共将A先生银行账户里所有的钱以及房产都查封了，他在香港的资产被中共洗劫一空。为了免于被中共进一步迫害，A先生不得不离开香港，通过其他战友的帮助来到了日本，在一家有料服务店里打钟点工。这家餐馆的日本老板听说A先生是从香港来的，私下对他说：“你一天只需要干4个小时，就可以领8小时的工资。”但是A先生没有同意，他跟老板说:“那怎么行，我既然领8小时的工资就要干8小时的活。”
 
-国家反间谍和安全中心前主任威尔 埃文尼娜（Will Evanina）表示，“他们是与共产党国家以及军事机器都有联系的终极公司”，“目前估计，80%的美国成年人个人身份信息都被中共窃取。”
+A先生只是成千上万个香港战友的其中一位，但是他的故事却让我感慨良多。
 
+首先，只是因为A先生上街参加了游行，支持了香港的反送中运动，他的几亿资产就被中共洗劫一空。香港人追求本应拥有的自由和民主的未来，就被中共秋后算账，香港还有法律吗？中共对待香港的义士们就是明抢，不把人当人，赶尽杀绝。
 
+其次，一个亿万富豪被迫到日本餐馆里做钟点工，这会有多大的心理落差？相信换成绝大多数人都会有心理不平衡，但是A先生却依然很乐观，在日本餐馆里打工也非常尽职，领多少小时工资就做多少小时的工作。如果换成一个贪小便宜的人，肯定会马上谢天谢地地感谢老板了，干4小时却领8小时的工资，这是多么美滋滋的“好事”？从这个故事里，我们可以看到，一边是中共没有底线的邪恶，一边是香港人伟大的人性光辉，高下立判！
 
-> Structure-based design of prefusion-stabilized SARS-CoV-2 spikes.
-> 
-> Read more: [https://t.co/XYR3JanrFa](https://t.co/XYR3JanrFa)[#BGI](https://twitter.com/hashtag/BGI?src=hash&amp;ref_src=twsrc%5Etfw) [#covid19](https://twitter.com/hashtag/covid19?src=hash&amp;ref_src=twsrc%5Etfw) [#science](https://twitter.com/hashtag/science?src=hash&amp;ref_src=twsrc%5Etfw) [#health](https://twitter.com/hashtag/health?src=hash&amp;ref_src=twsrc%5Etfw) [#omicsforall](https://twitter.com/hashtag/omicsforall?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/dWK2Sr2KCO](https://t.co/dWK2Sr2KCO)
-> — BGI (@BGI\_Genomics) [March 2, 2021](https://twitter.com/BGI_Genomics/status/1366649486655819776?ref_src=twsrc%5Etfw)
+听完A先生的经历，我发自内心地佩服他。香港是我们中国人的圣城，A先生身上有所有那些为自由而抗争的香港人的珍贵品质，有不受嗟来之食的伟大精神。最重要的是，他们不会居功自傲，不会觉得“作为香港人参加了抗争游行，就有了光环”，不会因此而觉得接受别人给予的帮助和好处都是理所当然。同时，郭文贵先生也给香港人提供了无数不求回报的帮助，不仅仅只是金钱和物资上的支持，他还积极推动白宫针对香港官员出台了金融制裁等政策，这一切都是因为香港曾经帮助过他，以及香港人曾经帮助过千千万万个大陆的同胞。
 
+确实，像美国、澳大利亚、日本、英国等西方国家政府对参加抗争的香港人非常的尊重和照顾，纷纷出台了一系列的政策予以特殊照顾，给香港人签证、给移民指标、给工作机会，因为这些西方国家的正义人士看到了香港人民不屈不饶的抗争。从A先生的例子中，我们就可以看到日本人士对香港人的尊重。
 
-基于结构的预融合稳定化SARS-CoV-2靶向设计
-— 华大基因（2021年3月2日）
-据报道，中共政府已对该公司进行了大量投资，该公司上个月从投资者那里筹集了3亿美元。
+我相信像A先生这样的香港人还有很多，甚至有的人不仅失去了财产，还失去了宝贵的生命。如果不消灭中共，这种查封资产查封房子以及被杀害的事情迟早会发生在每一个人的身上，这也正是为什么郭先生发起这场爆料革命的原因。新中国联邦、全球各地的喜马拉雅农场，遍布全球的战友们都在无私的付出，在推特上宣传真相、在线下游行、发传单、GTV直播、GNEWS的新闻等等，都让西方人士认识到香港的伟大，认识到中共在香港犯下的罪行。
 
-原文链接：[https://www.oann.com/report-bill-and-melinda-gates-foundation-linked-to-chinese-company-found-to-have-mined-americans-data/](https://www.oann.com/report-bill-and-melinda-gates-foundation-linked-to-chinese-company-found-to-have-mined-americans-data/)
+最后引用郝海东先生说过的一句话——消灭中共是正义的需要！我们必须消灭中共！
 
-+2
+（文章内容仅代表作者观点）
+
+0
