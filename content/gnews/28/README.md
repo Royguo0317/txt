@@ -1,25 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布林肯赞赏川普政府的亚伯拉罕协议
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/965906/)
+## 中共指责美方“炒作”中共侵占台湾的军事威胁
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/965929/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑上传    水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/I-6.jpg)ho1.us
-在川普政府执政的最后几天，以色列与阿联酋、巴林和苏丹签署了和平协议。苏丹被从支持恐怖主义的国家名单上除名，美国计划向阿联酋出售多达50架F-35战斗机。川普总统曾希望沙特阿拉伯也加入协议，但遗憾没有达成愿望。
+编辑上传   水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/T-18.jpg)wionews.com
+The Defence Post 3月10日报道，中共指责美方夸大中共侵占台湾的威胁，批评这是华盛顿加大国防开支的借口。
 
-布林肯在众议院外交事务委员会对外交政策议程的听证会上指出，前任国务卿迈克·蓬佩奥(Mike Pompeo)在促进美国科技进步和中东和平协议上做出了卓越贡献。布林肯说，“正如我们之前谈到的，我认为导致各国与以色列关系正常化的举措是一件非常好的事情，我们希望以此为基础。”
+美国驻亚太地区最高军事官员、海军上将菲利普·戴维森(Philip Davidson)周二表示，中共可能在未来6年内入侵台湾。目前北京方面正加快行动，以取代美国在亚洲的军事力量。中共外交部发言人赵立坚表示，“从本质上讲，这是美国在寻找增加军费开支、扩大军事力量和干预地区事务的借口。”
 
-布林肯同时指出了中共对新疆维吾尔族种族灭绝是严重侵犯人权的行为。他指出中共对新疆维吾尔犯下的是种族灭绝的罪行，并列出了他们应该承受的制裁和签证限制等外交后果。布林肯强调如果中共不承认罪行，那它需要允许国际社会和联合国介入调查真相。
+戴维森上将在参议院军事委员会(Senate Armed Services Committee)听证会上发言称，中共在该地区的侵略行为让他相信，夺取台湾是中共十分紧迫的目标。他说，“我担心他们正在加速实现取代美国和在以规则为基础的国际秩序中占领导地位的野心，他们一直表示希望在2050年前实现这一目标。” 戴维森表示，“台湾显然是他们的雄心壮志之一。我认为这种威胁将在未来10年，实际上是在未来6年显现出来。”
 
-布林肯说到，“中共在军事、外交、经济方面具有独特的能力，能够破坏以国际规则为基础的体系。美国为建立这个体系付出了如此多的努力，它确实促进了我们人民的利益。所以我们会向中共明确表明态度，我们对他们正在做的一些事情深感关注和反对，看看他们是否会解决这些问题。”
+听证会的焦点主要是如何应对中共的威胁。就台湾问题戴维森补充到，虽然美国对台湾的“战略模糊”政策可能有助于台湾保持独立，但这类政策应该重新评估。戴维森强调，中共还在资源丰富的南中国海提出了广泛的领土主张，甚至威胁到美国的关岛。
 
-最近拜登政府的一些措施已经打乱了中东由亚布拉罕协议签署之后形成的和平氛围，给了中共控制中东以可乘之机。布林肯的讲话，意味着美国会重新重视这一中东和平协议，它可以遏制中共在中东的触角，将成为灭共的关键一环。
+北京方面很快驳斥了戴维森的言论，指责美国继续利用台湾问题来炒作中共的军事威胁。
 
 参考链接：
 
-[https://www.foxnews.com/politics/blinken-trump-israel-peace-deals-very-good-thing](https://www.foxnews.com/politics/blinken-trump-israel-peace-deals-very-good-thing)
+[https://www.thedefensepost.com/2021/03/10/china-says-us-hyping-taiwan-invasion/](https://www.thedefensepost.com/2021/03/10/china-says-us-hyping-taiwan-invasion/https://news.usni.org/2021/03/09/davidson-china-could-try-to-take-control-of-taiwan-in-next-six-years)
+
+[https://news.usni.org/2021/03/09/davidson-china-could-try-to-take-control-of-taiwan-in-next-six-years](https://www.thedefensepost.com/2021/03/10/china-says-us-hyping-taiwan-invasion/https://news.usni.org/2021/03/09/davidson-china-could-try-to-take-control-of-taiwan-in-next-six-years)
 
 0

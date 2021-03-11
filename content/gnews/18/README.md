@@ -1,33 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共向拜登施压推翻更多川普政策
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/966019/)
+## 中共国的威胁已让美国觉醒
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/966022/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+撰稿：Shirley
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image-36-edited.jpeg)网络截图
+中共國在技術方面的投資對美國的領導力構成了挑戰，美國已經開始認識到這一威脅。最近的幾項調查顯示，美國公眾對北京的態度越來越強硬。在皮尤研究中心最近的一項民調中，67%的美國人說他們對中共國的態度是負面的或非常負面的，高於三年前的46%。共和黨人持這種態度的比例上升了22個百分點；民主黨人上升了23個百分點。近90%的美國人將中共國視為競爭對手或敵人，84%的人認為中共國日益增長的科技力量對美國來說是一個嚴重或非常嚴重的問題，近半數的美國人認為限制中共國的力量和影響力應該是一個優先事項。
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-11_07-35-25.jpg)[flipboard.com](https://flipboard.com/@dsqporter)
-布赖特巴特新闻网 (Breitbart News)报道，中共官方媒体《环球时报》指责拜登，称“美国新任总统拜登没有做出任何努力来扭转这些相互破坏的政策，使中美关系在一定程度上缓和的前景变得黯淡。”在周三白宫确认美国国务卿布林肯(Antony Blinken)将于3月18日在阿拉斯加会见中共高层官员，举行拜登(Biden)执政以来两个对立国家之间的首次高层面对面接触之际，中共疑似对会谈方向进行了铺垫。
+兩黨領導人之間的觀點也趨於一致。例如，《2019年國防授權法案》成立了一個兩黨人工智能委員會。其上周發佈的報告建議採取一些措施，例如，到2026年將聯邦在非國防研發方面的投資增加一倍至320億美元，並頒布1958年蘇聯發射斯普特尼克號後通過的新版《國防教育法》。
 
-中美两国关系目前处于几十年来的最低点。《环球时报》援引一些中共分析人士的话说，中共病毒疫情后，拜登不知怎么陷入了川普大力推动与中共“脱钩”的大潮中，尽管拜登“普遍反对”川普的行政议程，但拜登政府至今无法改变方向。中共认为，拜登只是需要一些时间来改变路线，会重新与中共回归“良性竞争与合作”。
+該委員會強調了人工智能的挑戰。委員們寫道：”我們認真對待中國在十年內超越美國成為世界人工智能領導者的野心。”他們宣稱，美國必須 “在與中國加劇戰略競爭的人工智能競爭中獲勝”，以及北京確定的在下一代內實現技術先發優勢的其他領域也應如此。
 
-上个月，拜登和中共主席习近平进行了作为领导人的首次通话，双方在大多数问题上似乎存在分歧，习近平警告称，对抗对两国来说都将是一场“灾难”。
+拜登政府上周發佈的 “臨時國家安全戰略指導意見 “提供了更多兩黨共識的證據。該文件宣稱：”我們不能假裝世界可以簡單地恢復到75年、30年、甚至4年前的樣子。”沒有什麼事情比對中共國的立場更清楚了。奧巴馬政府奉行的是幾十年來主導美國思維的與北京合作的政策，川普政府扭轉了這一立場，國務卿布林肯（Antony Blinken）在聽證會上的證詞也明顯偏向鷹派，贏得了幾位共和黨參議員的贊揚。至少在中共國問題上，拜登政府將延續川普政府更加對抗的立場。
 
-布林肯周三在美国众议院外交事务委员会作证时暗示，下周的会晤不会恢复美国历届政府使用的常规高层对话。华盛顿方面越来越多地批评称这种对话在美国与中共的对峙问题上收效甚微。
+新政府報告強調了這一轉變，直言不諱地提到一個 “更加自信和獨裁的中國”，它是 “唯一有可能將其經濟、外交、軍事和技術力量結合起來，對穩定和開放的國際體系發起持續挑戰的競爭者”。這一挑戰需要美國採取多方面的應對措施，尤其是在科技領域。結論是： “美國必須重新投資於保持我們的科技優勢，並再次領先。”
 
-布林肯强调，“目前还没有一系列后续接触的意图。这些接触如果要继续下去，就必须建立在这样一个前提之上，即我们在与中共有关的问题上看到了切实的进展和切实的成果。”如果中共坚持它没有侵犯新疆维吾尔族穆斯林的人权，它就应该允许国际社会和联合国进入该地区进行调查。
+即將於週六召開的美澳日印 “四國 “領導人的首次會議，是在中美兩國軍事姿態加劇的情況下舉行的，也是美國對中共國威脅覺醒後的行動。這次峰會標誌著美國重返亞太，由美國主導的四國集團的新時代，將 “四邊 “推向了一個全新的高度。四國領導人的會晤向中共國發出了迄今為止最強烈的信號，即印太民主國家準備共同抵制中共國主導該地區的努力。
 
-《环球时报》对拜登的隔空喊话，显示出中共相信对拜登可以有影响力。中国问题专家章家敦(Gordon Chang)在接受福克斯新闻访谈时曾经指出，中共政府并不尊重拜登，章家敦提到从中国人民大学翟东升的评论可以知道中共官员对拜登的看法，“基本上，他说北京认为他们可以摆布拜登。”
+（本文观点纯属个人）
 
-章家敦指出，拜登在CNN市政厅发表的言论是 “可耻”的，拜登说穆斯林维吾尔族受到的对待是不同“文化规范”起的作用，这表明北京认为拜登是可以任意摆布的傀儡。而拜登因此遭到国内外各界愤怒的批评，因此让拜登与中共勾兑的空间变得越来越小。
+审核：cindy
 
-参考链接：
+撰稿：cindy
 
-[https://www.reuters.com/article/us-usa-asia-china-idUSKBN2B22BE](https://www.reuters.com/article/us-usa-asia-china-idUSKBN2B22BE)
+相关信息来源：
 
-[https://www.breitbart.com/national-security/2021/03/10/china-pressures-inactive-biden-overturn-more-trump-policies/](https://www.breitbart.com/national-security/2021/03/10/china-pressures-inactive-biden-overturn-more-trump-policies/)
+[https://www.theaustralian.com.au/business/the-wall-street-journal/america-wakes-up-to-the-china-threat/news-story/b1c582e92392373bd118924e08b1170f](https://www.theaustralian.com.au/business/the-wall-street-journal/america-wakes-up-to-the-china-threat/news-story/b1c582e92392373bd118924e08b1170f)
 
-[https://www.foxnews.com/world/china-xi-jinping-closing-window-opportunity-gordon-chang](https://www.foxnews.com/world/china-xi-jinping-closing-window-opportunity-gordon-chang)
-
+[https://www.theaustralian.com.au/nation/politics/quad-meeting-involving-scott-morrison-biden-modi-suga-to-tackle-china-threat/news-story/55c4caea3e803c09820892f48cbc09b7](https://www.theaustralian.com.au/nation/politics/quad-meeting-involving-scott-morrison-biden-modi-suga-to-tackle-china-threat/news-story/55c4caea3e803c09820892f48cbc09b7)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
 0
