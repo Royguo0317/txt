@@ -1,101 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 金灿荣的文章证实了中共的谎言和要主导世界新秩序的野心
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/965029/)
+## 中共病毒和美国大选有什么关系？共产党有解药！
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/965227/)
 
-#### 翻译：Evalu |责编：人间四月
-![]()![](https://gnews.org/wp-content/uploads/2021/03/capture-14-10.jpg)图片来源：East Asia Forum
-据《国家回顾》（National Review）3月7日报道，一份中共学者金灿荣的翻译讲话提供了很少见的关于中共想要在世界新秩序中占主导地位的指导方针，可以称之为红色狂想曲。
+新闻简述：郭先生在2021年2月6日的盖特视频中说，一位特别重要的美国朋友说美国各地都在问疫情的减缓和美国大选到底有什么关系。他还通过一位中共国内部战友透露的信息判断，中共国一定有解药。他告诉西方朋友：“你们要想好，要想安全，找共产党要解药！要想安全，要想好，少传染，真正解决问题，少和共产党合作！”
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210206_getter1-part2.srt.txt)
+**中共病毒和美国大选有什么关系？共产党有解药！**
 
-中共真正想要的是什么？有时候这个统治集团的计划看起来似乎莫名其妙，而更多时候是显得非常模糊的。
+**What’s the Relationship Between the CCP Virus and the US Election? The CCP Has Antidote!**
 
-中共学者的代表人物之一金灿荣，他是一位所谓的中共国“国家主人”，中国人民大学教授，美国专家，中共组织部和统战部顾问，还不清楚他与习近平的关系是否很紧密。但他被情报界戏称为“帝国下的自由人”或“国家主人”。他可以在中共国自由发表言论的事实，也在网上为大家所熟知。川普政府早就已经注意到了他对中共的重要性，最近美国国务院已吊销了这位“国家主人”以及其他九个中共学者的赴美十年签证。
+在一个小时以前，咱们特别重要的美国朋友说，现在，在华盛顿，在纽约，在芝加哥，在德克萨斯州，在洛杉矶，这些地方都在问同一个问题：“病毒在这个时候，所谓的传染力的降下，死亡率的提高，和共产党，和美国大选有什么关系？”
 
-他的讲话可能反映出CCP的想法，他两年前对公众讲话的两份抄本就已经让人感到非常警觉，他的话与CCP在公众面前的美丽说辞完全不同，而中共领导们总是说“我们从不会称霸”，“我们不想要挑战美国的领导地位”，但这两份抄本却真实揭示了中共权力野心的程度。
+An hour ago, our very important American friends said that now people in Washington D.C., New York, Chicago, Texas and Los Angeles all asked the same question – whether the so-called “reduced infectivity” and “increased mortality” of the virus are related to the CCP and the US election?
 
-金灿荣的这两份讲话用以下摘抄形式呈现给大家，这也是歌颂CCP宏大计划即在世界占主导作用的“中共世纪”的宣传稿。在2012年的中共18大上，中共公布了其两项世纪目标，首先，在2021年的中共成立100周年之际，所有中国人将脱贫，并且中共的人均GDP达到一万美元，成为富裕国家。第二，中共将于2049年即建国100周年达到人均GDP三万美元的社会主义国家，在金的讲话中，第二个目标将使中共国进入发达国家俱乐部。
+英国现在这几天有所好转，所有的英国人都在问一个问题：[让]英国死的人，[给]英国造成的经济损失，和[让]英国受到最大伤害的共产党病毒，和现在，英国一硬起来，一开始灭共，病毒现在有所好转[这个事实之间]，又有什么内在的关系？连法国内部都在问：“现在法国跟共产党一对抗，反而病毒有所下降，连死亡率都有所下降，这又有什么必然的关系？”
 
-**第一步行动：感谢美国的参与使中共获得如此的成就**
+In the UK, the situation has got better in the past few days, and the British people are all asking one question. The CCP virus has killed people, caused economic damages and let the UK bear the worst suffering ever in history, but once the UK became tougher against the CCP and started to take down the CCP, the situation of the virus then became better, so what is the inner relationship of these two things? Questions are also raised inside France – now France is standing up against the CCP, but the virus has come down somewhat, even the mortality rate is down, so what are the connections between these things?
 
-金灿荣说中共有四个方面的成就：
+所有[以上这些]，大家要记住，英国和法国稍微有点儿想硬起来，[它们]这个表现只是在真相[问题]上若有所“硬”，也就是说，[它们]事实上跟共产党减少了接触和合作，少用了共产党的疫苗，少用了共产党派来的所谓“技术”和“协助合作人员”，[它们]的病毒就下来了。这又意味着什么？
 
-1. 中共在美国的资产：在2008年金融危机后，美国国债收益率快速增加，经过一段时间后，美国国债变得很难出售，当时美国请中共帮忙，中共国买了8千亿美国财政债券，稳定了美国债券市场，事实上，中共国拥有了大量的海外资产，超过了中国GDP水平，在这些资产中，有6万亿美元由中共央行政府所控制，占美国的三分之二，这只是猜测，因为中共央行从未公布过其资产结构。为什么这些资产主要在美国？坦白说，没有更好的选择。
+So, what we need to remember is that whenever the UK and France became a little tougher on pressing the truth about the virus, that is to say, reducing their interaction and cooperation with the CCP, using less CCP’s vaccines and less so-called “technicians” and “assistants” sent by the CCP, their virus would go down. What does that mean?
 
+这位美国朋友，马上就要去欧洲。我说：“你去欧洲，抛开你官方的身份。按照 Miles Guo 的建议，了解了解欧洲。为什么你们一和老共之间，减少交往和合作，病毒[这些率]就下来了？也就是说，你硬了一点点儿，就下来了。”
 
-- 两国人民的紧密关系：目前有6百万中国人在美国，与犹太人在美国的数量大致相等，另外中共国有很多省市及学校与美国结成友好对应关系*（*译者评语：6百万在美华人以及两国在地方层面形成的紧密关系被看作是中共想与美国缠绕在一起使得两国无法分开，这将带来第四个成果即邓小平在美国系统内发展的战略选择*）。*
+This American friend of mine is going to Europe. I said, “When you are in Europe, forget about your government official identity. Follow Miles Guo’s advice and learn about Europe, asking why the virus went down whenever the amount of interaction and cooperation with the CCP was reduced? That is to say, whenever you got a little tougher, the virus went down.”
 
+那么我想问战友们，国内的病毒，现在是什么地方最严重？凡是天天举着红旗，凡是天天跟着中南坑几个老杂毛混的地方，全都出大事啦，对吧？就香港现在这个掏肛，掏到这种程度，香港目前还是中国，所谓发达地区[中]感染率最低的。因为香港人，不愿意跟老共合作，香港人减少了去共产党的“共匪控制区”，对吧，战友们？
 
-*3.*国际事务的合作：两国在很多国际问题上的合作与解决，如合作反恐，防止北朝鲜制造麻烦就是两个例子，中共国也在2015年国际社会与伊朗的核谈判中曾多次濒临破裂的情况下发挥协调作用使之成功签署，也在2015年就全球气候变化的情况在巴黎签署了由中美双方协调后的文本协议，但几年前在哥本哈根的同样议题却因中美双方的不同意见而搁浅。
+Then I want to ask our fellow fighters what places in mainland China have had the most serious outbreaks? Places where people wave red flags everyday and follow every move of the Zhongnan Pit’s old bastards, all had the worst outbreaks, right? Hong Kong however has the lowest infection rate among all the so-called “developed areas” in China even though Hong Kong is being humiliated by the CCP like this (by allowing the CCP to attack their anus). Because the Hongkongers aren’t willing to work with the CCP, and they travel to the areas controlled by the CCP bandits less frequently, am I right, my fellow fighters?
 
-4.邓小平在美国系统内发展的战略选择：中共已经在一个方面进行了革命性改革，那就是建立一群朋友。中共有70多个国家支持，这是根据毛的思想（译者评论：金灿荣指的是毛的革命战略：即建立统一战线，例如联合国），然而中共总体方针是邓的路线，在美国系统内崛起，用这个系统发展中共国（译者：用美国系统，金指的是利用美国民主政治系统，自由社会系统和自由市场经济）。中共从美国所获的成就巨大，变得富有，建立了国际形象，使得中共几乎与美国同样重要，这些好处使得中共不仅把美国看作是它获取利益的重要业务伙伴也是其便宜货的消费者。这显示了双赢状态或被中共称之为“共同繁荣”，但为什么在美华人和在美资产被称作为中共的“成就”呢？而且“在美国系统内发展”又意味着什么？在中共看来，这些成就还远远不够，下一步就是与美国“共同统治”这个世界，当然如果中共与美国公平竞争的话为什么不可以呢？但这是在中共领导下的公平，这是金灿荣这位“国家主人”告诉我们的。
+还有，昨天我们有的战友，发现了一个秘密，说：除了共产党高官不染病，高官不死人，他发现了一个很核心的秘密，共产党最近这一两个月的[时间]，你见过有医疗官员站出来说话的吗？因为咱这个战友的家人，在中国所谓的疾病防疫中心是个高官。[他]说这哥们儿该吃吃，该喝喝，从来不戴口罩。回到老家以后，叫着所有人，该吃吃该喝喝，他从来不戴口罩，而是非常自信。不但他不戴，他家人还不戴。
 
-**第二步行动：共同领导**
+Also, a fellow fighter discovered a secret yesterday. He said that in addition to the fact that high ranking officials of the CCP did not get infected or die, he had discovered another core secret. In the past two months, have you ever seen any health official standing out to say anything? That’s because someone in this fellow fighter’s family is a high ranking official in the CCP’s CDC. He said that this buddy never worn a mask and dined out as usual like nothing had ever happened. When this guy went back to his hometown, he gathered all the people to eat together, never worn a mask, and seemed very confident about what he was doing. Not only he didn’t wear a mask, his family members didn’t wear masks either.
 
-习近平主席于2013年去美国，他提出了一个新的全球权力关系，就是不冲突，不对抗，要相互尊重，创造一个双赢的合作关系，美国并没有完全反对这个倡议，但也没有完全接受，美国同意在这两个核大国之间不应该有战争，不然整个人类都将会消亡，但美国否认相互尊重，美国人对此话的解读是中美同等重要，美国同意合作但要处于领先地位。
+这一点，就是我这几天给西方所有的朋友说的：“共产党有解药！”它要没有解药，它控制不到这个程度。英国的首相，那肚子那脑子能传染上，加拿大的那小土豆能传染上，几十个国家的元首能传染上。中国的领导人，那身体怎么着？灌了什么了？有啥本事？天天还双修，都是些老杂毛儿身体又弱，还不戴口罩，他就没事儿？他有解药。
 
-中共的长期战略是坚定不变的，当中共发展到一定程度，美国就必须接受“平起平坐”，美国基本上是商业国家，通常不会情绪化，现在美国还在中共国之前，但当中共足够强大，它会说：“让我们成为朋友”，那个时候，就是中美共同领导这个世界的时候，这是金的预见和中共领导人所做的。（如果“共同领导”意味着负责任的领导，这种雄心勃勃还不算危险，但这不是所有中共国的“国家主人”所想要的未来。）
+These days I’ve been telling all my western friends about this, “The CCP has the antidote!” If it didn’t have the antidote, it wouldn’t be able to control the virus so well. The UK Prime Minister has contracted the virus. Trudeau in Canada has contracted the virus. The leaders of a few dozens countries have got infected. How can the Chinese leaders stay healthy? What medicine have they poured into their mouth? What’s special about them? These old bastards have sex every day with their frail bodies. They don’t wear masks. Why haven’t they got infected? Because they have the antidote!
 
-**第三步行动：战术上“挤压”美国**
+所以我告诉他们：“你们要想好，要想安全，找共产党要解药！要想安全，要想好，少传染，真正解决问题，少和共产党合作！”现在凡是想在共产党那块儿拿钱的，你必然早晚遭斩手，“坷”，不信走着看。
 
-美国要求中共分担责任但不愿分享权力，中共需要迫使美国分享权力。金推测中共不会与美国有战争，但要挤压它（像南海和台湾海峡），这是很有可能的。
+So I told them, “If you want to get well and be safe, go ask the CCP for the antidote!” If you want to get well, be safe and reduce infection rate, and truly solve the problem, cooperate less with the CCP! Now anyone who wants to take money from the CCP will eventually have his or her hand chopped off. “Thwack!” Let’s wait and see if you don’t believe it.
 
-美国比其他西方民主国家更具民主化和多样性，优点是人民有自由表达他们观点的自由，对美国来说，最好的情况是在外部只有一个敌人，如果有两个，那就不好玩了，那是二战之前的情形，一个敌人就是来自纳粹德国的黑色威胁，另一个是来自苏联的红色威胁，美国人在它们中间战斗时存在这个问题“谁是我们真正的敌人？”金灿荣猜如果有3-4个敌人的话，美国人完全就没方向了，中共的战略就是确保美国有4个敌人：恐怖主义肯定是一个；俄国，但可能不夠仇恨；巴西是潜在的一个，中共要推动，因为它可能会成为一个有力的美国敌人，但巴西本身并没有意愿因此还不支持成为敌人；还有一个方面就是确保让美国陷于负债危机。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-中共曾经把自己看作为地区性权力中心，习总书记是第一个把中共设计为全球权力中心，一个全球战略的国家，这有两个支柱：首先是寻求“一带一路”，即在物理上通过与东亚，西亚，非洲和欧洲的铁路，高速公路，油气管道，光缆，海港，交通枢纽和机场相联系；其次就是“亚太自贸区”，要向东看，这就是2014年，APEC会议上写在宣言中的话。
+视频来源：[https://gtv.org/getter/601ece82f5b9e26ca9d8efbf](https://gtv.org/getter/601ece82f5b9e26ca9d8efbf) (5:13-end)
 
-世界上全球战略中只有两个国家：中国和美国…
-
-从冷战结束后的25年来，谁最获益？中共国，美国还是俄罗斯？那是中共国！丢失最多的是美国，在成为世界上仅有的超级霸权国家后，美国可以打败任何国家，美国已经把自己当成神了，但上帝是一个忌妒的老人，衪就惩罚美国，如何惩罚的？通过让美国攻击两个愚蠢的傻瓜（伊拉克，阿富汗）而没有任何战略价值，美国为了这些战争而花费了60万亿美元，一万多人丧生，浪费了十年，在此期间，中共国成为了崛起的一股力量，军事上，美国赢得战争而战略上它输了。
-
-**第四步行动：阴和阳**
-
-当谈到中共与美国周旋，其在军事上的优势时，金不无夸大和兴奋地自吹自擂。
-
-当中共不想与美国就军事问题对话时，美国就着急了，因为美国的军事是公开的，中共都知道，美国是阳，表示强大，而中共是阴，实力软而且隐藏的，美国会告诉你它是泰森并向你显示它的肌肉来吓唬你，中共不会显出自已藏着的爪子，中共隐藏了自己的杀器不让人知道，美国人根据严格的科学思想认为中共是浪漫的，这就是美国为什么要和我们军事对话。
-
-中共国近年来已经建立了更强大的军事力量，并且还在高速发展，金告诉我们中共国已经能攻击离中国大陆1000海里以外的飞机（不久还会更远），但还有很多未知的中共军事能力，不能依靠所知道的情况判断。金灿荣认为中共正在多方面压制美国：1.制造情况使其犯错；2. 疲劳战使其最终“抑郁”并退出其在世界的领导地位；3. 搞乱美国使其陷入困境以使中美不能被分离，以致达到“我中有你，你中有我”的境地，这就是全球化的结果，一个自然的结合因素。
-
-即使金的话听上去越来越像狂想曲，但这并不代表他个人的感觉，中共有真实的东西，使美国陷入混乱的目标尤其值得注意，如果我们回顾中共国重要战略“在美国系统内部发展”，在美国回顾杂志2020年6月发表的特殊报告题为“中共国不会脱钩”的作者们认为这是有别于美国的最不同的做法，许多人觉得中美应该脱钩，但这将是实验性的和令人烦恼的及无休止的让人反对的事，确实，仅从金的话语中，就可以知道脱钩有如何的困难。
-
-当中共国与美国玩游戏，中共是在玩太极，日本，德国和美国都是拳击手，硬碰硬，当美国生气时，中共保持沉默，当美国顾及其他方面时，中共就做些小动作，当美国声称其新的政策于2010年重返亚洲时，中共没有反应，然后胡锦涛总书记告诉大家中共致力于自己的发展，这是用不反应针对挑衅，一个很好的行动。
-
-中共已经与美国在没有直接冲突下悄悄扩张了，例如，中共向前推进了一带一路，金砖银行，防空识别区，在南海建立岛礁，中共按计划已经做了这些事，不像俄罗斯，在不考虑美国的反应之下就做的一些事，例如，在南海建岛礁肯定会激惹美国，所以中共在美国忙于叙利亚和乌克兰事务时，才建岛礁，然后，当美国发现我们在建一个大的岛礁后中共却告诉它停止修建了，而事实上，中共是因为七月份的一个台风来临而停止的，其他停止的理由都是技术上的，而美国人并不知道这个真相还很开心地认为中共是给它“面子”。
-
-金灿荣显然得意地认为美国看不到中共的技俩，然而，这就是中共成功地与美国周旋的事实，在与美国的经济合作中，运用中共的“阴”以达到损害美国的计划，最终使美国疲于奔命而放弃全球角色。
-
-**第五步行动：试图改变自由世界**
-
-2020年7月23日，时任美国国务卿彭佩奥在尼克松图书馆发表讲话，称中共已经在美国的领土上，如果自由世界不能改变中共，中共必将改变自由世界。中共将彭佩奥看作是反华极端分子，其他国家的人或许认为他夸大其辞，但金灿荣的话早已支持他的观点。
-
-金在文章里说，中共的对策之一是深入美国，现在与美国讲一些事，例如BIT—-双边投资协议，中共看作是一项成就，这将给美国提供更多喜欢的名称，但另一方面，中共也能投资美国，用更好的名称使中共的资产找到好的出口，能赚到钱并控制市场，在美国的投资状况比日本和欧洲更开放而且市场更大。美国的法律更透明，可预测和受保护。
-
-中共的投资最终涉及美国的各个地区，使其可能成为中共控制下的成千上万的选举，在国会层面上倾向于中共。事实上，美国代表可以被控制的，美国从3亿1千2百万人选出435个众议员，大约每个选区75万人，通常投票率在30%左右，大约20万选民决定谁当选，通常双方都有相同数量的支持者，一般只有一万或不到的人决定结果，因此，如果你能控制几千人的选举，你就能成为他/她爹，如果做得好，中共能把美国买下来，让美国国会成为第二个人民代表大会的常务委员会。
-
-这个行动是金灿荣的“红色狂想曲”的巅峰，比前一个狂想曲更加奔放和颠狂，几乎是棒极了。但中共并不仅仅停留于梦想，中共掌控的媒体公司于2018年中期选举中用大量的政治献金影响爱荷华农民施压川普政府改变美国的贸易政策，这就是中共用美国的系统达到其目的：他们已经在这里，美国有自由的媒体，然而这只是一小部分，谁能想象出一个通过投资各个国会区域来影响美国以使他们为中共服务这样的计划？中共在美国内部运行，而俄罗斯和伊朗还只在外部影响美国的选举。当俄罗斯和伊朗用非法手段传播假消息，网络黑客时，只能引起短暂的麻烦，而中共采用合法的行为，在美国的报纸上发广告，在局部地区投资，是长期性改变美国的民主。这就是把“阴”发挥至极致。
-
-**第六步行动：掌控世界的霸权**
-
-金灿荣还提到，现代国家的崛起必须经历三个阶段，首先是生存，第二是发展，第三是获得尊重。美国在1945年后进入到第四阶段，就是霸权地位，很多国家达不到这个程度，从1949开始，我中共政权经历了两个阶段：生存和发展，习总书记现在想要获得尊重，当达到这个以后，中共就可以向美国学习进入第四阶段，但这个需要由下一代人完成，这一代的任务是与美国平起平坐，下一代的任务是指挥其他国家，包括美国。
-
-金在这里明确表示中共的目标是掌控全世界，为了这个目标，中共将无所不用其极，感谢美国的宽容政策使中共为其长远的统治全球包括美国的计划得以推进，金的讲话让我们看到了在友谊面具下的世界主人的真实想法，中共已经欺骗了美国人和美国政府以及欧洲人，澳大利亚人，将所有人处于能被中共改变的境地*。*
-
-金灿荣的讲话显示了中共对自由世界的威胁是真实的。
-
-美国的政策是在基于自由贸易和互利原则邀请中共国成为国际社会一员，并最终改变中共，然而在过去的40年里，中共在内部更加集权化，对外只是开放很小部分，同时美国却被中共利用其自由体系捞取好处，川普指责中共的不公平贸易，偷盗知识产权和商业机密，利用自由言论为中共宣传等，但没有一个美国人能想像中共会设计确保美国有4个敌人，同时，让债务危机在包围美国，甚至控制国会，一方是一个国家为了良好愿望通过尊重国际规则与他国友好相处而努力，而另一方则利用合作与竞争不仅试图从对方获取好处而且试图损害他国。
-
-以往的美国政府内阁其实并没有忽略这个问题，每次总统选举时都会疯狂炒作反对中共的话题，但选举结束一切又回到原来的与中共的嗳昧状态，即使是川普政府，尽管他用词强烈，但在与华为的买卖中还是不得不考虑大公司的利益，中共现在如此强有力，以致无论美国如何对中共惩罚，中共总能反向损害美国利益，而且，要与一个已经把美国陷于麻烦的敌人周旋的话，本身就要比在他国领土上战斗更困难。
-
-另外一个复杂问题是：尽管川普政府将中共与中国人分开来，很多中国人仍然为他们国家的现代化自豪，希望中共国成为一个世界的权力中心。而美国对中共的反击对很多中国人来说都看成是阻止中国崛起，美中贸易战让很多中国人团结在一起。
-
-当川普政府努力将中共与中国人分开时，中共试图将美国人与美国政府分开，它认为美国人对中共是友好的，认为美国人民并不愿意想和中共国分离，因为他们尝到了合作的甜头，他们不能放弃14亿人的市场和廉价劳动力产品。美国政府不能阻止他们与中共做生意，现在许多美国最大最获利的生意，在销售，获利和制造方面都依赖于中国，这些美国公司或者不知道，或者忘了中共曾经剥夺了他们在中共国的财产和财富，几十年后，当中共国变得更强时，美国公司可能会遭遇相同的命运。美国公司无法预见中共对美国的长期损害。
-
-中共相信这个模式，它希望成为世界的出口国，中国人相信他们的系统优于西方，因为他们认为中共成功控制了CCP病毒。但世界上多数国家并没有这样认为，中共的警察严控，高技术监控，媒体网络的检查制度，言论限制，中共高官的终身特权，富裕人群主要集中于CCP官员亲属，明显的社会不公，压制宗教，用强制手段迫使少数民族汉化等等（而且别忘了中共国是CCP病毒的首发地），世界上有谁愿意生活在这种状况下？回答是：“不”，这种统治不可能在中国永久继续下去，但会继续一段时间，美国必须有耐心和智慧面对这种状况。
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/885218/](https://gnews.org/zh-hans/885218/)
 
 * * *
 
-**评论**： 作者通过把金灿荣讲话的内容翻译展示给美国人，显示了中共为了达到其统治全球的狼子野心，无不用其极，表面上声称“永不称霸”，而背地里，采用各种手段，在美国和全球各个地方，各个层面进行渗透，拉拢，破坏全球正常的由美国领导的自由民主法治秩序，美国必须要正视这一状况，中美之间的分离虽然很痛苦，但不分离将会给美国带来更多的长期隐患，这将需要美国各界人士的智慧与勇气。
+翻译：【guocamole(文金欠)】校对：【Isaiah4031】【BruhM】字幕：【Rock小哥】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
-&gt;&gt;原报道链接&gt;&gt; [China’s New World Order Revealed in Translated Speeches | National Review](https://www.nationalreview.com/2021/03/what-china-really-wants-a-new-world-order/)
-
-0
++1
