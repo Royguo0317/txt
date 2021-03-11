@@ -1,60 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世卫组织必须在中共国“撬开门”来寻找新冠起源
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/967334/)
+## 3/11/2021 财经快讯：挪威主权基金调查其旗下公司是否使用新疆集中营劳工；平安人寿被实名举报
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/967393/)
 
-*新闻来源：Newsweek 《新闻周刊》| 作者：Benjamin Fearnow| 发布时间：2021年3月8日*
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2021-03-12_013828.jpg)图片来源：[https://uc.watchout.tw](https://uc.watchout.tw)
+**1.重磅：挪威主权财富基金就可能使用中共国新疆集中营劳工的公司展开调查**
 
-*翻译/简评：新街口| 校对/审核：万人往| Page：小六月*
+[奥斯陆（路透社）3月10日 –全球最大主权财富基金-挪威主权财富基金道德委员会主席Johan H. Andresen向路透表示，该基金将调查其投资的公司中是否存在使用与中共国新疆地区集中营有关联的维吾尔族和其他穆斯林劳工的情况。](https://www.reuters.com/article/instant-article/idUSKBN2B21EA)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/STQX4zNUpKFmu/images/8f47bfc3-844c-4119-a3d1-0b3b0e47b85d.jpg?asset_id=d00f9594-9c96-4e31-a512-a6af6ab6d8bb&amp;img_etag=%222b42f251e3cf09fe92354c03d1b5fa81%22&amp;size=2560)](https://spark.adobe.com/page/STQX4zNUpKFmu/images/8f47bfc3-844c-4119-a3d1-0b3b0e47b85d.jpg?asset_id=d00f9594-9c96-4e31-a512-a6af6ab6d8bb&amp;img_etag=%222b42f251e3cf09fe92354c03d1b5fa81%22&amp;size=1024)
+[该基金投资总规模达1.3万亿美元。由于该基金根据挪威国会设定的道德准则运营，且持有全球9,100家上市公司的股票，占全球上市公司的比重达1.5%，它对市场的影响力非同小可。](https://www.reuters.com/article/instant-article/idUSKBN2B21EA)
 
-**简评：**
+**2.美国消费者价格上涨，目前基本通胀已缓和**
 
-**在上周科学界的26位科学家发表联名公开信，否定2月世卫组织在中共国进行的病毒起源调查后，本周《华盛顿邮报》也加入了公开指责世卫组织和中共的行列。作为主流媒体中一家重要的报纸，该报的编辑委员会公开发表声明，要求中共国必须打开国门来进行调查。该声明意味着媒体也在调查中共病毒起源上开始行动了，意义重大。**
+[华盛顿（路透）- 美国2月消费者价格稳健上涨，尽管消费者的汽油支出会更多，但由于对航空旅行和酒店住宿等服务的需求疲软，潜在的通胀仍然不温不火。](https://www.reuters.com/article/us-usa-economy/u-s-consumer-prices-rise-underlying-inflation-muted-for-now-idUSKBN2B21LQ)
 
-**首先，媒体会唤醒民众认清病毒来源的重要性。在病毒爆发1年以后，中共在爆发前进行的病毒增强实验，修改病毒基因以便跨物种传播等行为被逐一公布。一旦民众认清病毒起源于实验室，大家就会认识到自己和自己的家园其实正在受到中共的超限生物武器攻击。**
+[美国劳工部周三的综合报告并没有改变通胀将推高并超过美联储2％目标的预期。在截至2月的12个月内，CPI飙升1.7％，这是自2020年2月以来的最大涨幅，此前在截至1月的12个月内攀升了1.4％。 上个月的CPI读数与经济学家的预期一致。](https://www.reuters.com/article/us-usa-economy/u-s-consumer-prices-rise-underlying-inflation-muted-for-now-idUSKBN2B21LQ)
 
-**其次，媒体还可以引导民众和政府如何选择正确的方法来查清病毒的真相。由于中共串通世卫组织，以福奇为首的美国卫生部门负责人，还有为数不少的病毒科学家，从病毒爆发一开始，就极力掩盖真相。这一次被《华盛顿邮报》直接点名的世卫组织根本不可能做到客观、公正，也没有能力从中共那里挖出病毒起源真相。主流媒体的转向在如何正确有效地从中共那里追查病毒起源的问题上走出了关键的一步。**
+**3.由于通胀担忧消退，道指创下股票上涨纪录**
 
-**最后，媒体会进一步监督、督促各国政府采用更加积极主动的行动对中共政权制毒和散毒进行追查、追责。正如《华盛顿邮报》编委会所说：我们必须“撬开”中共的门来调查病毒起源真相。**
+[(路透) – 随着此前2月份的消费者价格数据平息了通胀担忧，以及国会最终批准了美国历史上最大的经济刺激措施之一， 标准普尔500指数周三上涨，蓝筹股道指创下历史新高。](https://www.reuters.com/article/us-usa-stocks/dow-hits-record-in-stock-rally-as-inflation-fears-recede-idUSKBN2B21CH)
 
-**原文翻译：**
+[道琼斯工业平均指数上涨464.28点，或1.46％，至32,297.02，标准普尔500指数上涨23.37点，或0.60％，至3,898.81，纳斯达克综合指数下跌4.99点，或0.04％，至13,068.83。目前标准普尔500指数创下51个52周新高，没有新低; 纳斯达克综合指数录得329个新高和19个新低。](https://www.reuters.com/article/us-usa-stocks/dow-hits-record-in-stock-rally-as-inflation-fears-recede-idUSKBN2B21CH)
 
-# **《华盛顿邮报》编委会表示，世卫组织必须在中共国“撬开门”来寻找COVID-19的起源**
+**4.海外抖音TikTok宣布推出新工具来解决困扰平台的”不友善”评论**
 
-《华盛顿邮报》编辑委员会周一写道，国际科学界必须就COVID-19“神秘”起源背后的真相积极挑战中共国，并警告说，北京当局掩盖真相可能对未来的流行病产生可怕的影响。
+[Tiktok周三宣布为创作者和用户提供二项新选择，努力限制视频平台上”不友善”和”不适当”评论的传播。](https://www.businessinsider.com.au/tiktok-announces-tools-to-address-unkind-comments-2021-3?r=US&amp;IR=T)
 
-《华盛顿邮报》编辑委员会周一发表了一篇评论文章，要求对在美国大爆发已经超过一年的病毒进行独立的起源调查。周四，来自美国和欧洲多所大学的科学家在《华尔街日报》上首次发表了一封公开信，呼吁对中共国实验室事故是否是SARS-CoV-2大流行的起源进行广泛调查。该委员会要求与世界卫生组织（WHO）分开进行新的调查，以调查“动物传染”或“动物对人的传播”是否是持续的全球大流行的原因，而这次病毒大流行已经导致超过250万人死亡。
+[宣布的两个更改中的第一个是创作者可以”过滤所有评论”，允许创作者隐藏他们视频上的所有评论，直到他们批准它们。 正如该公司所指出的那样，该功能是过滤垃圾邮件，关键字和”冒犯性评论”的现有功能的扩展。第二项是由该公司政策总监Tara Wadhwa撰写的新闻稿中公布的，该功能将在用户提交评论前提示该评论是否”不友好”或”不合适“。](https://www.businessinsider.com.au/tiktok-announces-tools-to-address-unkind-comments-2021-3?r=US&amp;IR=T)
 
-编辑委员会说，不应该让“责备”和“政治热度”主导COVID-19起源的讨论，现在是时候开始调查并确定真正引发这次致命的大流行病毒的导火索了。
+**5.继张乃丹实名举报中国人寿之后 平安人寿也出事了**
 
-上个月，世卫组织调查人员确定，中共国实验室事故是造成大流行的根本原因是“极不可能”的，但并非不可能。北京官员利用这份报告，为美国对他们掩盖病毒传播真相的指控来狡辩。美国前国务卿蓬佩奥坚称世卫组织是“腐败的”，上个月的报告是中共影响力的直接结果。
+[继张乃丹实名举报中国人寿事件持续发酵之后，有一则平安人寿被员工实名举报的信息在互联网上发酵](https://finance.sina.com.cn/money/insurance/bxdt/2021-03-10/doc-ikknscsi0507461.shtml?cref=cj)！
 
-《华盛顿邮报》编辑委员会周一写道：“世卫组织是个会员制组织，根本没有能力撬开中共国封闭的大门，并且也没有其他的解决办法。正如26位科学家在信中指出的那样，研究小组缺乏调查这种可能性所需的训练和法医学技能。他们承受着来自中共国的强大压力而完全回避这个问题。”
+[“大家好，我曾是平安黑龙江分公司拓二区三十五处的一员，看到举报中国人寿大量造假的消息，也希望我的举报材料能有人看到。我于2018年5月-2019年10月在平安黑龙江分公司拓战区果戈里支公司任职，发现公司存在严重违反规定，内外勤相互勾结，以传销形式发展团队，造成了几百人上当受骗，蒙受了巨大经济损失…”。](https://finance.sina.com.cn/money/insurance/bxdt/2021-03-10/doc-ikknscsi0507461.shtml?cref=cj)
 
-该评论文章重点介绍了大约就在2019年底大流行开始时，中共国曾经进行过数次病毒“功能增强”实验。委员会将武汉病毒研究所高级研究员石正丽通过动物性修改病毒基因组的实验视为一种潜在的、造成实验室泄漏或事故的根本原因。
+**6.中共国债券评级机构负面评级调整数量大增21%，内控合规仍存两大问题**
 
-“难道一个员工被感染或无意间泄漏引发了武汉的疫情？” 编委会问。“（我们）需要的是对人畜共患病和实验室假说的爆发源头进行独立、多学科、不受约束的调查。中共国的顽固性并没有消失。”
+[3月10日，中国证券业协会发布《2020年第四季度债券市场信用评级机构业务运行及合规情况通报》，对2020年四季度及全年度债券市场13家评级机构的市场表现、业务发展及自律动态、合规情况进行总结。](https://ishare.ifeng.com/c/s/v004q9ijwlvA93MPHiVa5u3fZ5x1cnx7Lo5---mzeN-_Zal--2zVgxuNoltCCZfbmLTRw--cv7zUihXHbBKQ1vrXdHEIgg___?spss=np&amp;aman=1cN40fPc672ef8A49bJ4b6Id74Wc6fA4180e01x305)
 
-上周发表的科学家公开信呼吁“对COVID-19的起源进行全面而不受限制的国际法医调查”。他们的分析得出的结论是：“到目前为止，尚无证据证明该病毒是完全自然起源的。”人畜共患病假说主要基于先前的人畜共患病事件的模式，只是许多SARS-CoV-2可能起源中的一种，与研究有关的事故假说相同。
+[据情况通报，2020年度，13家评级机构共对286家发行人作出评级调整动作，同比增加7.12%，占所评家数的7.34%。其中，正面调整共183家，同比增加0.55%；负面调整共103家，同比增加21.18%。](https://ishare.ifeng.com/c/s/v004q9ijwlvA93MPHiVa5u3fZ5x1cnx7Lo5---mzeN-_Zal--2zVgxuNoltCCZfbmLTRw--cv7zUihXHbBKQ1vrXdHEIgg___?spss=np&amp;aman=1cN40fPc672ef8A49bJ4b6Id74Wc6fA4180e01x305)
 
-《新闻周刊》联系了中共国驻华盛顿大使馆官员，要求他们对《华盛顿邮报》周一下午的社论发表更多评论或做出回应。
+By 【金融组 – 小蚂蚁在行动】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/STQX4zNUpKFmu/images/5df9d8bd-3226-4069-8c1a-79c7fa5463a9.png?asset_id=27c51983-1415-486c-928c-6610b8ec8e38&amp;img_etag=%22a87339c2dc9d660328ccde9e34c80f9d%22&amp;size=2560)](https://spark.adobe.com/page/STQX4zNUpKFmu/images/5df9d8bd-3226-4069-8c1a-79c7fa5463a9.png?asset_id=27c51983-1415-486c-928c-6610b8ec8e38&amp;img_etag=%22a87339c2dc9d660328ccde9e34c80f9d%22&amp;size=1024)1月15日，人们在武汉会议中心参观中共国抗击新冠肺炎疫情展览。《华盛顿邮报》董事会表示，现在是时候重新开始调查，确定引发这场致命大流行的真正导火索了，而不是“指责”和“政治热度”主导讨论。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/STQX4zNUpKFmu/images/4032007c-bbfa-4b22-8d27-24e8a7abe38a.jpg?asset_id=6ee57d10-35ed-4d33-b1e6-44874e8b9374&amp;img_etag=%22f2e9e9affb5d4de5dcd8aa16962a32d6%22&amp;size=2560)](https://spark.adobe.com/page/STQX4zNUpKFmu/images/4032007c-bbfa-4b22-8d27-24e8a7abe38a.jpg?asset_id=6ee57d10-35ed-4d33-b1e6-44874e8b9374&amp;img_etag=%22f2e9e9affb5d4de5dcd8aa16962a32d6%22&amp;size=1024)
-
-[🔗原文链接](https://www.newsweek.com/who-must-pry-open-closed-doors-china-find-covid-19-origins-washington-post-board-says-1574630)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/STQX4zNUpKFmu/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/STQX4zNUpKFmu/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+素材搜集：文罡, Lingken
 
 0

@@ -1,53 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 董建华的栽倒意味着什么？
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/967819/)
+## 中共“防疫专家”张文宏喊你赶紧打疫苗了！
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/967889/)
 
-新闻简述：在2021年3月5日的盖特视频中郭先生透露前香港特首董建华是一个极端恋权的人，他和梁振英对香港人做的事情会被香港人唾弃。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles-2012-03-05-Getter4-part2.srt.txt)
-**董建华的栽倒意味着什么？**
+- 作者：葛大饼
+- 编辑：蚂蚁兄弟
+- 制图：七白石
+- 发稿：神奇四侠
 
-**Is Tung Chee-hwa’s Stumble a Sign?**
 
-董建华，当时选董建华[当]第一任香港特首的时候，因为董建华建设大中华，懂得建设中华，而且是董建华的极端，一个商人，走向了政治权利以后，那种恋权，比政治家还他妈坏！我跟你说。董家一家人，他爹叫董浩云，我叫郭浩云，污辱了我”浩云”这个名声，我都不想认他啦，哈哈。当然，他不是我儿子，我也认不了，他太大了，是吧？但是，董家人我很多人都认识。那[他]是很夸张很夸张的！我觉得这个人，是糊涂蛋到了极点。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-Tung Chee-hwa is the first Chief Executive of Hong Kong. Tung Chee-hwa’s name means “building the greater China” or “knowing how to build China”. As a businessman, he pursued a political career. After gaining political power, his extreme political view and his lust for power became f\*cking worse than any politician! I tell you. Talking about Tung’s family, his father’s name is Tung Chao-yung, and mine is “Kwok Chao-yung”. This made me feel so embarrassed and I didn’t even want to recognize him [as my son], ho-ho. Of course, he is not my son, so I can’t recognize him as my son anyway. Besides, he is too old, right? I know many members of the Tung family. He is so absurd, to a degree that no one can surpass.
+**西班牙2021年3月11日电/西喜社——**
 
-一个他，一个梁振英，必然成为香港，未来像当年的秦桧一样，万俟卨一样，塑雕像跪在那里，被大家掴脸。千秋万代不跟他拉倒！梁振英呀、林郑月娥呀、董建华呀，这帮老王八犊子，还有今天的这个张建明呀，这些混账们，还有那几个警察头子，还有律政司啊，一个也跑不了，一个也跑不了。这都是反人类罪、大屠杀罪，董建华的跌倒是一个最好的象征。董建华叫董栽倒，董栽倒，董建华，大势已去。
+021年3月10日张文宏在接受总台央广中国之声采访时表示，口罩可能得戴到2022年下半年，他呼吁大家疫苗最好今年打、尽快打！
 
-He and Leung Chun-ying will definitely become Qin Hui and Moqi Xie (two treacherous ministers in Song Dynasty) and have their own kneeling statues, waiting to be slapped by everyone in Hong Kong in the future. What they have done will not be forgotten for generations. Leung Chun-ying, Carrie Lam, Tung Chee-hwa, this bunch of old f\*cking bastards, together with Matthew Cheung Kin-chung today, these mother f\*ckers, and those several police chiefs, and the Hong Kong Department of Justice – no one can escape the punishment, not a single one! They have all committed crimes against humanity and the crime of mass murder. Tung Chee-hwa’s stumble is a best sign. Tung Chee-hwa can now be called “Tung Stumble”. The tide has turned against him.
+张文宏是谁？张文宏是一个被医生耽误的网红。因为当初一句“一线岗位全换上党员，没有讨价还价的余地！不要欺负老实人……”在网络上一炮而红，在之后的公开讲话中，凭借他毫无逻辑但好笑的话语，逗乐了中共国老百姓也获得了大家的信任。在谈到居家隔离的时候，他解释“再闷两个星期，把病毒‘闷死’！”
 
-香港取消一国两制，香港[被]取消所有的所谓的民主制度，然后[CCP]把它变成一国一制，成为中国的一个区，甚至一个县，一个镇。香港700万人，不要说[CCP]掺沙子[的]那300万，这400万人，是咽不下这口气的。当年日本人在香港的时候，杀掉了80%的港人。最后香港人又把它起死回生，变成了世界上最牛的国际港，叫香港。当年是死港，最早是把臭港变成香港，香港又变成死港，死港又变成现在，真正的危机之港，共产之港。董建华的倒，是上天给它最后的一个明示，你完啦！董建华叫董建倒，董栽倒，甚至港栽倒。Piu！Piu！天意！很多时候，人不信邪，你不信邪？共产党[有]一句话，不信那个邪。你不信邪，是因为你自己无知，世界上没有这个你所不信的邪，这不叫邪，那叫神！
+然而现实中我们看到在中共国实行封楼封户，强制性居家隔离的措施，结果是老百姓因为病死和饿死被抬出居民楼，全世界的封锁并没有闷死病毒，而是病毒越来越猖狂，被中共病毒感染和死亡的人数每天都在增加。
 
-“One country, two system” policies were destroyed and the so-called democracy was crushed in Hong Kong. Then the CCP will turn those into “one country, one system” and made Hong Kong one of its districts [without automacy], or even a county, or a small town. The 7 million Hongkongers, after excluding those 3 million dispatched by the CCP, the rest 4 million won’t take it easily. Back then when the Japanese occupied Hong Kong, they killed 80% Hongkongers. In the end it was the Hongkongers who revitalized this city, and made it the best international hub in the world, called “Hong Kong”. Before then it was called “Sei-Kong” (meaning dead harbor). It was transformed from “Cau-Kong” (meaning stinky harbor) to Hong Kong (meaning fragrant harbor). Hong Kong was then turned into “Sei-Kong” again [by the CCP], and into what it’s like today – the harbor of true crisis, the Communist harbor. Tung Chee-hwa’s stumble is the last sign God has given to it, which means it’s done! Tung Chee-hwa can now be called “Tung Build and Fall”, “Tung Stumble”, or even “[Hong] Kong Stumble”. “Piu! Piu!” It’s God’s will! Many people say,”I don’t believe in fate.” Don’t you believe in fate? The CCP has a saying, “Never trust that fate.” You don’t believe in the fate because you are ignorant. There is no such “fate” that you don’t believe in, and that’s not even called “fate”. It’s called “God”!
+所以在中共国，做一个名利双收的专家医生不是因为医术高明，救死扶伤，而是做一名好的段子手，帮中共说谎。
 
-兄弟姐妹们，我要告诉你们，董建华的栽倒，对人的心理的震撼，和对一个信奉神，信奉上帝，信奉黄大仙的香港人，是心灵上巨大的震撼！香港现在已经疯啦！我的手机都快爆了！所有香港人都说”哇！香港死啦！香港死啦！完啦完啦完啦。”不是香港死了，是在香港的共产党，还有卖港贼他们死了。香港经过了臭港、香港，香港、死港，死港、香港，香港是共产港，现在会回到，世界上最伟大的圣城！没有[哪里]比香港再配得上”圣城”这两[个]字的了。兄弟姐妹们，走着看。
+张文宏另外还强调 “年轻人自己把疫苗打好，就是对家庭、对国家的贡献。中国的疫苗运输方便、安全性高，非常有利于全民接种。能打疫苗的都抓紧打！”
 
-Brothers and sisters, what I want to tell you is that Tung Chee-hwa’s stumble can have a great psychological impact. It will terribly shock the souls of Hongkongers who believe in Gods such as Jesus Christ or Wong Tai Sin! Hong Kong has already gone crazy! My cellphone has gone crazy with calls and messages! All my Hong Kong buddies were saying, “Wow, Hong Kong is dead! Hong Kong is dead! It’s all over now! It’a over! It’s over!” Hong Kong will not die, but the CCP’s branches in Hong Kong and criminals who have sold Hong Kong to the CCP will. Hong Kong has gone through the process of being a “Cau-Kong”, to Hong Kong, to a “Sei-Kong”, back to Hong Kong, and then to the Communist “Kong”. Now it’s going back to be the holiest city on earth! No other places can be more suitable than Hong Kong to bear the name “Holy City”. Let’s just wait and see, brothers and sisters.
+在中共国，个人打疫苗已经上升到对国家做贡献的境界了。寻思着，我打个疫苗怎么给社会主义社会添砖加瓦，做贡献了呢？
 
-现在香港[人]很多感谢我，哎呀！感谢你啊，郭生啊，我把钱移出来啦。去加拿大了，英国了，要不然我们完蛋了。记住，相信爆料革命，相信新中国联邦，不但救命，不但保财，还能让你千秋万代，还让你得到世间的人的尊重。 此时此刻，最大的受益者就是G系列。大家想想，大家想想，在此时此刻，我们决定，将战友的1300把椅子退回去，重新[开始]。[战友们]愿意留下来的，跟各农场联系，继续投[资]到海外空中GTV，云中GTV，继续一块钱一股，是什么概念？想想G-Coin，G-Dollar未来是什么概念？
+答案找到了，全国人大代表、国药集团国药控股董事长于清明在总台央广中国之声表示，“今年下半年国药集团疫苗产量预计突破10亿剂，明年将可以达到30亿剂。明年，仅国药集团的疫苗产量就可满足全国接种需求。 ”
 
-Now many Hongkongers have thanked me, “Aiya! Thank you, Kwok sang! I’ve transferred all my money out to Canada, or the UK, otherwise, we would be doomed. Remember, if you trust the Whistleblower’s Movement (WM) and the New Federal States of China (NFSC), not only can one save his life and money, but can let him be prosperous for generations and get respected by people in this world. At this very moment, the biggest beneficiary is the G-Series. Everyone, just think about it, at this moment, we’ve made the decision to return all the investment money of the 1,300 “chairs” (private investors) back to them. Any brother-in-arms who wants to keep investing, please go and contact your farm, and continue your investments into the overseas “Sky” GTV, Cloud GTV, still paying one dollar for one share. What would that mean? Just think about G-Coin, G-Dollar, do you have a clue about their future?
+**金钱，利益，疫苗经济**
 
-共产党完球蛋了，共产党不但完球蛋了，你成就了个新中国联邦。最后临死前还干了个好事儿，嗯，不孬！还有更大的料，我现在还不想爆，因为我爆了，我怕你们受不了！等着看．．等着看，不要老想着奇迹，不要老想着奇迹。就像头一段时间，选出一拜登。川普一离开，这些人好像都失望了，不能活了。就像当年，当时二战的时候一样，是吧？英国去了，签了一个什么协议，很多人失望至极，然后希特勒，跨过莱茵河了，好像很多人不想活了。日本打了珍珠岛了，然后很多人觉得完了，不想活了。最后是什么？坚持到最后，坚持你所相信的，你就会赢得无穷无尽的未来。这是不变的墨菲定律，好好学学。兄弟姐妹们，今天是个好日子，今天是个大日子，感谢上天！祐我中华！祐我新中国联邦！共产党你完了！信不信？莘县阳谷县搭县，走走看！
+中国病毒疫苗从问世就来的莫名其妙，众所周知，中共病毒爆发后，中共国一直拒绝国际社会对武汉病毒研究所进行实地检测，并且销毁了最早的病毒样本，为了圆谎，一而再再而三的修改自己发布的数据，以及禁声所有有关的病毒来源的真实信息，自己就闭门造疫苗，黑灯瞎火的，我们真不知道中共制造的是什么疫苗。
 
-Not only is the CCP going to have their balls destroyed, it has also given rise to the NFSC. At last it has done something good before dying. Not bad! There are more breaking news, but I don’t want to disclose them right now. That’s because I’m afraid you may not be able to hold yourself if I break the news! Let’s wait and see. Don’t always expect miracles to happen. Just like a while ago when Biden got elected, and as soon as Trump left, these people were so disappointed and couldn’t live any longer. Just like what happened in the World War II, right? The British went and signed some agreements, which made many people so disappointed. Then when Hitler’s army crossed the Rhine river, many wanted to kill themselves when hearing the news. Also, when the Japanese invaded Pearl Harbor, many people thought the game was over and didn’t want to live any more. What happened in the end? Hold on to what you believe in to the very end, and you will win the endless future. This is the unchangeable Murphy’s law, and please teach yourself carefully. Brothers and sisters, today is an awesome day, and a big day, thank God for blessing China and our NFSC! CCP, you are done! Believe it or not? Shen and Yanggu are two adjacent counties competing with each other, so let’s wait and see who will win!
+要知道中共从诞生以来，可是连一只动物疫苗都没有研制成功的，八九十年代国际上也曾给中共国的防疫技术上给过援助，甚至转让技术生产，之后就是中共国频繁爆发的假疫苗，毒疫苗致死和致残事件了。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+通过路德访谈的节目还有闫博士的科学报告我们了解到，中共病毒是中共军方研制的超限生化武器，而疫苗则是这场超限战中的一部分，里面有很多我们未知的危险，比如基因改造，病毒激活剂。
 
-视频来源：[https://gtv.org/getter/6042b3e49534a74bcaeff20c](https://gtv.org/getter/6042b3e49534a74bcaeff20c) (4:22-结束)
+在全球主流媒体打压真相的大环境下，还是有真相被有良知的人们传达出来，以爆料革命为首的吹哨人越来越多，勇敢地站出来传播着真相，使得越来越多的人被感染。我们看到很多的医生，科学家都站出来用真实数据说话，首先，中共病毒不是自然的，来自中共实验室！其次，从各个接种疫苗的真实反应来看，很多人为此失去生命，或者致残，接种结果事实的揭露也证明现在中共研发的疫苗极不安全，而且防范率极低！
 
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/952959/](https://gnews.org/zh-hans/952959/)
+张文宏呼吁中共国的老百姓赶紧打疫苗，用为国家做贡献的理念，再次把共产集体主义绑架在中共国老百姓的身上，而在西方民主社会，老百姓考虑的是我接种疫苗是否有危险，这是个人意愿。生命放在第一位，这是天赋人权。
 
-* * *
+同胞们，我们要分清楚科学专家和段子手的区别，不能因为人家逗乐你就无脑的相信他，张文宏或许做网红直播带货还是蛮专业的，但是他喊你打疫苗，他自己有没有打？老百姓是人，不是实验室的小白鼠，我看还是不要打吧！
 
-翻译：【guocamole(文金欠)】校对：【Isaiah4031】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+- 新闻参考：
+- [张文宏采访](https://s.weibo.com/weibo?q=%23%E6%98%8E%E5%B9%B4%E4%B8%8B%E5%8D%8A%E5%B9%B4%E5%8F%AF%E8%83%BD%E6%9C%89%E6%91%98%E5%8F%A3%E7%BD%A9%E8%B6%8B%E5%8A%BF%23%20HYPERLINK%20%22https://s.weibo.com/weibo?q=%23%E6%98%8E%E5%B9%B4%E4%B8%8B%E5%8D%8A%E5%B9%B4%E5%8F%AF%E8%83%BD%E6%9C%89%E6%91%98%E5%8F%A3%E7%BD%A9%E8%B6%8B%E5%8A%BF%23&amp;from=default%22&amp;%20HYPERLINK%20%22https://s.weibo.com/weibo?q=%23%E6%98%8E%E5%B9%B4%E4%B8%8B%E5%8D%8A%E5%B9%B4%E5%8F%AF%E8%83%BD%E6%9C%89%E6%91%98%E5%8F%A3%E7%BD%A9%E8%B6%8B%E5%8A%BF%23&amp;from=default%22from=default)
+- [中共国疫苗乱象](https://zh.wikipedia.org/wiki/%E4%B8%AD%E5%9B%BD%E5%A4%A7%E9%99%86%E7%96%AB%E8%8B%97%E4%B9%B1%E8%B1%A1)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
 0
