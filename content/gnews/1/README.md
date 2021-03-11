@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 原材料涨价没了利润，小买卖难做又不能随便涨价，苦了老百姓
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/966429/)
+## 美印太司令:中共用庞大的宣传机器开展对美国的信息战
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/966530/)
 
-3/10/2021原材料涨价没了利润，小买卖难做又不能随便涨价，苦了老百姓。
+3/9/2021 美印太司令:中共用庞大的宣传机器开展对美国的信息战。
 
 By： 【秘密翻译组 G-Translators】
 
