@@ -1,42 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】反对强制性接种“试验性中共病毒疫苗”
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/967287/)
+## 习近平：全军要做好随时应对各种复杂困难局面的准备
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/967372/)
 
-作者：纽约香草山医疗部  圣母院钟声
+*新闻来源：《zerohedge》| 作者：TYLER DURDEN | 发布时间：2021年3月9日*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1473-【热点播报】反对强制性接种试验性COVID-19疫苗.jpeg)
+*翻译/简评：Victory | 校对/审核：万人往 | Page：Daoiii*
 
-由于美国国家健康研究院(NIH)，疾病控制中心(CDC)和食品及药物管理局(FDA)并没有提供足够针对“试验性中共病毒疫苗”的信息，没有帮助民众解除对其日益增多的疫苗接种后严重副反应的种种疑惑， 在许多疫苗使用安全问题尚未得到答案之前，只是一味地催促所有人尽快接种，合理吗？ 政府，民间机构强迫公众接种“试验性疫苗”，合法吗？
+[!\[\]()!\[\](https://spark.adobe.com/page/nckKyMAalwRWI/images/d013d092-cf24-4082-a425-b01bbac0a018.jpg?asset_id=55000872-6eac-410f-b745-58b0e037df7e&amp;img_etag=%228ffa2ab5f37c7819fa90ff672e8649f3%22&amp;size=2560)](https://spark.adobe.com/page/nckKyMAalwRWI/images/d013d092-cf24-4082-a425-b01bbac0a018.jpg?asset_id=55000872-6eac-410f-b745-58b0e037df7e&amp;img_etag=%228ffa2ab5f37c7819fa90ff672e8649f3%22&amp;size=1024)
 
-“美国一线医生联盟”（America’s Frontline Doctors，是第一个自发性专业组织，该组织公开要求解禁廉价，安全，有效的硫酸羟氯喹，Ivermectin等被长期广泛使用的口服药用于早期治疗中共病毒感染）从不反对免疫接种，相反，他们在以往的行医工作中已给自己，家人和病人接种了所有安全的疫苗。由[希蒙·金](https://www.americasfrontlinedoctors.com/the-stand-the-truth-about-the-covid-19-vaccine.html)(Dr. Simone Gold)等医生发起的“美国一线医生联盟”根据他们的医学知识，并结合在每日临床工作中的观察结果，拟定了一个疫苗接种推荐方案， 这些信息在中共病毒疫苗正被广泛接种的今天尤显重要。
+***简评：***
 
-20岁以下：接种 “试验性中共病毒疫苗”需绝对禁止。 因为人类在此类疫苗对生殖系统有无影响问题上尚无答案。尤其是我们非常确定中共病毒本身对年轻人影响最小，小到可以忽略不记。
+**最近事态发展完全出乎中共预料，拜登上台之后，并未能够帮他们脱罪。布林肯国务卿已多次确认了对中共在新疆实施种族灭绝罪行。西方左媒也开始大规模报道中共生物武器相关信息。中共很清楚，全球灭共趋势已不可逆转。现在它们一边准备要殊死一搏，一边又不断派人使用各做手段拖延时间，与西方世界周旋。**
 
-20岁到50岁：如平时健康，强烈不建议。因为这个年龄组感染病毒后的死亡率极低；加之接种“试验性中共病毒疫苗”后诱发原因不明的自身免疫性疾病的风险；迟发性的抗体依赖性增强效应(Antibody-Dependent Effect)；和对生殖系统的影响尚不明确。 如原先就有其它慢性病，不建议接种。 因为大量数据分析显示，接种“试验性中共病毒 疫苗”的副反应风险比中共病毒感染本身更高。
+**希望中共的军人清醒地认识到，中共要保卫的是它们自己家族的世代利益和奴役全中国人民的邪恶权力。中国人民没有一寸土地是属于自己的。中共在习近平带领下正在加速走向灭亡。中国人民不要为他们做炮灰。**
 
-50到70岁：如平时健康，强烈不建议；如原先就有其它慢性病，不建议接种。原因如上。
+***原文翻译：***
 
-70岁以上：个人承担接种“试验性中共病毒疫苗”风险。 接种“试验性中共病毒疫苗”不比预防性服药抗御中共病毒感染效果更好。 对已有先期临床疾病的，需酌具体病情而定。
+# **习近平警告军方在当前“不稳定和不确定”的局势中“准备响应”**
 
-这并不是说“试验性中共病毒疫苗”不安全，只是其研制时间太短，开发商还来不及测试它对人体的远期影响。 对老年人，比如患者本身就有死于原有疾病的可能，接种“试验性中共病毒疫苗”是可以考虑的。
+周二，在北京举行的全国人大年度会议期间，习近平主席向中共国解放军最高领导人发表讲话，告诉军队必须在国家面临的日益困难和复杂的安全挑战中“做好应对准备”。
 
-在完全弄明白该疫苗是怎样通过胎盘，从母体渗透到胎儿而终止妊娠之前，孕妇和儿童绝不应该接种“试验性中共病毒疫苗”。
+习近平在讲话中说：“当前我国的安全形势在很大程度上是不稳定、不确定的。”此前两天，中共国外交部长王毅在同一大会上发出了自己的严厉警告，称美国在中共国对台湾的主权上“越界”、“玩火”。
 
-“美国一线医生联盟”已正式发起一个抵制强制性”试验性中共病毒疫苗”接种的运动。 目前， 他们观察到这种强制不仅来自于政府，还来自于商业企业，学校，航空公司等。就如同戴口罩，民众很难避免强制性带口罩。 “美国一线医生联盟”正在与美国航空管理委员会协商，同时正在征集签名反对强制性疫苗接种。人们不需要公司老板，学校校长或任何人来强迫你接种“试验性中共病毒疫苗”或其它任何生物制剂，这是医疗歧视。我们必须在政策制定之前，让政策制定者知道强制人们接种试验性生物制剂是错误的，我们应该为自己的生命权而抗争。 民众有权在得到这些“试验性中共病毒疫苗”完整相关信息前保持观望，任何医疗歧视需被制止！
+[!\[\]()!\[\](https://spark.adobe.com/page/nckKyMAalwRWI/images/8cfaa568-4627-49db-85f1-ed0ce5a6b9cc.png?asset_id=9ef43c97-e558-47d0-bd88-f50c5016c3ad&amp;img_etag=%2239c170c721e648df29e0f8d0af81250c%22&amp;size=2560)](https://spark.adobe.com/page/nckKyMAalwRWI/images/8cfaa568-4627-49db-85f1-ed0ce5a6b9cc.png?asset_id=9ef43c97-e558-47d0-bd88-f50c5016c3ad&amp;img_etag=%2239c170c721e648df29e0f8d0af81250c%22&amp;size=1024)习近平 图片文件：香港政府
 
-（本着科学研究的客观性和真实性，文中所提及的相关内容均具有值得信赖的参考价值。但鉴于文章内容的专业性和前沿性，GNews不能保证该研究未来发展过程中的正确性。此文仅为抛砖引玉，希望读者细心辨别，也欢迎专业人士提出意见和建议。）
+据《南华早报》报道，习主席还说：“全军要协调好能力建设和战备的关系，做好随时应对各种复杂困难局面的准备，坚决维护国家主权、安全、发展利益，为全面建设社会主义现代化国家提供有力支撑。”
 
-审核：天涯客
-发稿：雪梨
+兼任中央军委主席的习近平进一步肯定了“高水平的战略威慑和联合作战体系”和快速的国防科技创新的必要性。
+
+他的话与国防部长魏凤和上将的评价是一致的，魏凤和周六再次敦促全军加强战备，称国家安全“已进入高风险阶段”。
+
+“我们面临着日益繁重的国防任务……我们必须全面提高军事训练和战备水平，提高我们战胜强敌的战略能力。”这位中共最高将领说。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/nckKyMAalwRWI/images/c1eeeb0d-4d23-4c73-8baa-dbc1cb9ef0a4.png?asset_id=54b3eb12-feb2-499c-85a3-0e4013c8fbf6&amp;img_etag=%22a5b5da8be9cf28aac867bc8d8c56f67a%22&amp;size=2560)](https://spark.adobe.com/page/nckKyMAalwRWI/images/c1eeeb0d-4d23-4c73-8baa-dbc1cb9ef0a4.png?asset_id=54b3eb12-feb2-499c-85a3-0e4013c8fbf6&amp;img_etag=%22a5b5da8be9cf28aac867bc8d8c56f67a%22&amp;size=1024)盖蒂图片
+
+在正在进行的会议上，一个特别的例子是最近美国和西方盟国海军在中共国主张的海域附近的演习。在中共国外交部长的评论中，王毅指出：“美国和其他西方国家经常在本地区挑起事端，试图利用南海问题制造事端。他们的目的只有一个：破坏和平，扰乱地区稳定。”
+
+他的讲话特别强调了一种好战的腔调，即与美国及其盟友的“霸权、高压、霸凌”以及在香港、台湾等地“公然干涉中国内政”。
+
+**🔗[原文链接](https://www.zerohedge.com/geopolitical/xi-alerts-military-be-prepared-respond-deeply-unstable-uncertain-current-situation?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)**
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+[!\[\]()!\[\](https://spark.adobe.com/page/nckKyMAalwRWI/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/nckKyMAalwRWI/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

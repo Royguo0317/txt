@@ -1,31 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 这边厢，中美会谈欲缓解 那边厢，舆论开骂添新仇
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/966626/)
+## 中共计划建设7500英里的海底光缆连接一带一路沿线
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/966756/)
 
-【日本东京方舟农场】作者：青衣 素材采编：武汉老温 校对：miumiu law
+*新闻来源：《Zerohedge《零对冲》》| 作者：YLER DURDEN泰勒·德顿 | 发布时间：2021年3月7日*
 
-美国官员周三表示，国务卿安东尼·布林肯和国家安全顾问杰克·沙利文将于3月18日至19日在阿拉斯加，与中共中央政治局委员、中央外事工作委员会办公室主任杨洁篪和国务委员兼外交部长王毅举行会晤。会议将给予双方时间安排其优先事项，并涵盖一系列分歧问题。据称会谈话题将包括Covid-19大流行、气候变化，以及一些分歧问题，包括中国对香港的立场和对台湾的压力，以及中国对澳大利亚施加的“未宣布的经济禁运”等。据这位官员称，美国还将讨论被视为对美国工人和农民有害的中国“习俗”，以及知识产权盗窃，强迫技术转让和人权等问题。
+*翻译/简评：clau | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii*
 
-中美外交层面如此高级别官员的会谈，地点为何会选在阿拉斯加而不是华盛顿呢？对此，香港经济日报的报道称：拜登上台后中美关系仍然紧张，尤其是拜登政府面临美国两党一致要求对中国强硬的压力。美国官员此时若到中国北京与中方会谈，或邀请中国官员到美国华盛顿会谈，政治上都有困难。阿拉斯加虽是美国领地，但与美国本土48州仍存在地理和文化上的差异，正好可以让中美官员在此敏感时刻，相对低调地面对面接触，既可达到沟通目的，也可减少国内政治反弹。
+[!\[\]()!\[\](https://spark.adobe.com/page/4POKQqiIhULbr/images/dab44364-2f6b-4530-ba1c-6651eb0f1758.jpg?asset_id=321e8761-01c2-4e7d-8a20-d729c4822404&amp;img_etag=%229f507f62c6b6740bcfb4a562d3dbe35c%22&amp;size=2560)](https://spark.adobe.com/page/4POKQqiIhULbr/images/dab44364-2f6b-4530-ba1c-6651eb0f1758.jpg?asset_id=321e8761-01c2-4e7d-8a20-d729c4822404&amp;img_etag=%229f507f62c6b6740bcfb4a562d3dbe35c%22&amp;size=1024)海底光缆计划（维基百科）
 
-布林肯周三在参议院外交事务委员会听证会上暗示，下周的会晤并不是重返以往美国政府所采用的定期高层对话。布林肯表示：“目前无意进行一系列后续交流。即便有后续交流，前提也必须是我们所关切的美中议题有具体进展和具体结果。” 布林肯还表示美国将对在香港违反人权者采取行动：“我们必须继续贯彻制裁，例如，对那些在香港犯下镇压行为者究责。”此外，布林肯还提到了新疆问题，预计这也将会成为会谈议题之一。
+***简评：***
 
-中国方面似乎对这次会面的宣传表现得十分低调。但外界普遍认为这次会议将是中共面对面试探拜登政府底线的关键会议。在美国前任总统川普政府执政后期，中美关系持续恶化。自去年12月以来，北京方面一直在要求高级官员会晤，却始终得不到回应。此次阿拉斯加会谈是中共终于找到机会与拜登政府进行的首次官方接触，尽管会面是安排在天寒地冻的阿拉斯加，尽管是在布林肯前往美国的东亚盟国韩国和日本出访之后，回程途中的顺带会面。由此可见中共的外交关系已到了何种不堪的境地。
+**中共计划建设一条长达7500英里的海底高速通信光缆管道，从巴基斯坦和东非连接欧洲，项目简称：PEACE（“和平”）。该光缆系统将提供连接中国、欧洲和非洲的高容量、低延迟路线，途经的重要国家均属于“一带一路”项目的国家。**
 
-有趣的是，中共国内媒体不仅冷处理了此次会面报道，并且还在国内媒体舆论上对美国展开了新一轮骂战。环球时报网在此敏感时刻发表了题为《新疆舆论战，让我们创造性地与美国打》的文章，同时还刊登了另一篇据称是俄罗斯作者的文章，题为《令中国深感愤怒的是美国的霸权主义和颐指气使》。中共一面嘴上说要与美国重置关系，展开合作；另一面却又在会谈前动用舆论工具开骂美国，不知这是否可以理解为中共对于此次会谈的结果并不持乐观态度。 当然也可能还有另一个解释，那就是中共国内各派系的政治斗争更加日趋激化，有一股反习势力利用其掌控的舆论工具在故意破坏此次中美会面。
+**法国电信公司Orange SA深度参与此项目，项目在欧洲的基站将建在法国马赛。从之前帮助中共建设武汉P4实验室，再到如今协助中共建设连接欧洲、非洲、亚洲的海底光缆，法国的表现越来越像中共的盟友，而不像一个正经的北约成员或欧盟领导者。**
 
-注：本文仅代表作者观点
+**另外值得注意的是，华为是PEACE项目承建公司的第三大股东，几乎可以肯定项目会使用华为的产品，并被植入后门。海底光缆项目过去一直是由美国公司主导，PEACE项目显示了中共希望在互联网的基础设施层面进一步加强对“一带一路”国家的掌控，并挑战自由世界信息安全的邪恶意图。不断挑战美国、展示肌肉和实力的中共国，究竟给世界带来“和平”还是危害，拭目以待。**
 
-参考链接：
+[!\[\]()!\[\](https://spark.adobe.com/page/4POKQqiIhULbr/images/5c3c73c0-2468-43f1-9742-b08eacae5235.jpg?asset_id=44bb02dd-b900-496f-ab14-313041bdbf36&amp;img_etag=%22ea3d4f6e8bcdc69c914d5580b2522f6c%22&amp;size=2560)](https://spark.adobe.com/page/4POKQqiIhULbr/images/5c3c73c0-2468-43f1-9742-b08eacae5235.jpg?asset_id=44bb02dd-b900-496f-ab14-313041bdbf36&amp;img_etag=%22ea3d4f6e8bcdc69c914d5580b2522f6c%22&amp;size=1024)
 
-1.[https://twitter.com/SecBlinken/status/1369701945955467269](https://twitter.com/SecBlinken/status/1369701945955467269)
+***原文翻译：***
 
-2.[https://www.wsj.com/articles/top-u-s-china-officials-to-meet-next-week-in-alaska-on-range-of-issues-11615395641?reflink=desktopwebshare\_twitter](https://www.wsj.com/articles/top-u-s-china-officials-to-meet-next-week-in-alaska-on-range-of-issues-11615395641?reflink=desktopwebshare_twitter)
+# **中共国7500英里海底 “和平管道 ”将连接一带一路国家**
 
-3.[https://cn.reuters.com/article/china-usa-officials-meeting-schedule-031-idCNKBS2B302Y](https://cn.reuters.com/article/china-usa-officials-meeting-schedule-031-idCNKBS2B302Y)
 
-4.[https://twitter.com/andy5\_123/status/1369801758457798656](https://twitter.com/andy5_123/status/1369801758457798656)
+过去几年，川普政府一直在抨击中共国的 “一带一路 ”计划，称其为“债务陷阱”，并敦促世界各国抵制允许中共国在其尊重的国家建设基础设施项目。拜登政府现在上台后，白宫还没有对中共国建设从巴基斯坦到非洲再到欧洲的7500英里海底通信光缆的新计划提出明显的反对。、
 
-0
+这条高速海底通信光缆系统长达7500英里，从“巴基斯坦和东非连接欧洲”（简称PEACE），将提供连接中国、欧洲和非洲的高容量、低延迟路线。除法国外，该光缆还将在马耳他、塞浦路斯、埃及、吉布提、肯尼亚、巴基斯坦等国家落地，最终连接中国。
+
+上述国家中的部分国家属于“一带一路”国家的一部分。中共国新海底项目背后的动机是为在欧洲和非洲开展业务的中共国企业提供高速互联网连接。
+
+“这是一个向欧洲和非洲展示中共国实力的计划。”Orange SA国际网络负责人让·吕克·维尔明（Jean-Luc Vuillemin）告诉彭博社，这家法国公司将在法国马赛运营PEACE光缆登陆基站。
+
+更有趣的是，华为技术有限公司是恒通光电有限公司的第三大投资者，该公司将建设PEACE管道。预计华为将为该项目提供关键的电信设备——而华为的一些电信设备已被美国列为国家安全风险。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/4POKQqiIhULbr/images/6772728b-23b7-45ef-9aa2-abe580f56d23.png?asset_id=dbe64f16-a76c-4c0a-8791-f451a50c5045&amp;img_etag=%225f7eb8cd9736d86fbf348d4444cf2e95%22&amp;size=2560)](https://spark.adobe.com/page/4POKQqiIhULbr/images/6772728b-23b7-45ef-9aa2-abe580f56d23.png?asset_id=dbe64f16-a76c-4c0a-8791-f451a50c5045&amp;img_etag=%225f7eb8cd9736d86fbf348d4444cf2e95%22&amp;size=1024)
+
+尽管川普政府对一带一路项目和华为以及其他中共国公司的立场强硬——拜登政府尚未明显批评中共国建设全球海底关缆网络的新野心。全球的大部分互联网都是通过400条绵延全球的海底光缆传输的，这些光缆主要由美国公司控制。中共国挑战美国的主导地位，很可能会迎来白宫的回应。
+
+彭博社消息称，法国政府准备在PEACE光缆的问题上接受来自美国官员的抨击。
+
+“法国可能会组织通过某些类型的信息传输进入光缆来安抚美国。”另一位消息人士说。
+
+法国总统埃马纽埃尔·马克龙2月在大西洋理事会上表示，法国不想孤立于中共国。德国总理默克尔上个月也有类似言论。
+
+一些欧洲领导人不顾安全风险，反对前任美国政府提出的与中共国“脱钩”的要求。安全专家认为，中共国可能会在PEACE管道中植入后门抓取数据，这种风险正在酝酿。
+
+“任何时候，你的数据在他们的交换机、光缆上传输——这些都会导致转移流量和窃听，”华盛顿哈德逊研究所政策小组的高级研究员罗伯特·斯伯丁说，“这只是常识。”
+
+中共国控制世界互联网的企图可能在未来几十年内实现。“和平与冲突研究所”和总部设在荷兰的莱顿亚洲中心估计，十年后中共国可能拥有全球至少20%的海底通信光缆。
+
+世界上最大的两个经济体之间的大国竞争现在正蔓延到互联网的物理层面。
+
+**🔗[原文链接](https://www.zerohedge.com/geopolitical/chinas-7500-mile-undersea-peace-pipe-connect-belt-and-road-countries?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)**
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/4POKQqiIhULbr/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/4POKQqiIhULbr/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
++1
