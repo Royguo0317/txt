@@ -1,12 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 3/8/2021 郭先生直播:共产党为什么怕新中国联邦？
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/966050/)
+## 2021年3月10日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/966181/)
 
-3/8/2021 郭先生直播：共产党为什么怕新中国联邦？
-共产党怕的是我们新中国联邦人有分配财富的权利和勇气；一个富裕的新中国联邦人可以启蒙无数的中国同胞，原来分配财富不再是共产党的专利！
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-By: 【秘密翻译组G-Translators】
+蓬佩奥：若中共一意孤行，我们定会令其付出代价 Mike Pompeo : We are going to impose real costs on the CCP if they continue down these paths.
+
+
+
+[【2021年3月10日】文贵先生盖特原文](https://gtv.org/getter/604950b1607c4240c8b488b3)
+
+**喜联盟Gnews编辑部**
 
 0
