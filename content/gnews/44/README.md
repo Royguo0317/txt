@@ -1,146 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0312.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/969624/)
+## 有关‘乌克兰骗局’的调查：川普弹劾，拜登现金，以及大规模谋杀
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/969701/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0312.jpeg)
-#### #中共病毒
+翻译：康州盘古农场-战友小鸡
+校对：康州盘古农场-轰炸机
+编辑：康州盘古农场-Antsee-GTV
 
-3月11日前白宫制造业和贸易顾问皮特纳瓦罗博士，发推了他接受班农疫情战斗室采访时的内容：
+据《美国第一新闻网》（OAN）3月12日报道：
 
-拜登将签署一项与 #CCPVirus #中共病毒 只有9%相关的法案。
-去年5月，@美国45届总统（川普）试图通过的2万亿美元的法案开始所有的药品和PPE生产。
-但是 @佩洛西议长 和 @SenSchumer 不想让川普赢，所以就扼杀了（那项法案）。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-12-at-19.00.55.png)*图片来源：OAN*
 
-纳瓦罗先生是最早接受爆料革命信息并向川普总统传递情报、让川普总统1月底做出与中共国实行旅游禁令正确决策的关键人物。他今日的言论和推文内容已经和班农先生一样，公开使用郭先生最早明确的概念 **#中共病毒**。他是对中共本质认识最深刻的美国要人之一。
+华盛顿特区，《美国第一新闻网 》2020年1月21日宣布，其调查系列节目，由嘉宾主持人迈克尔-卡普托（Michael Caputo）主持的《乌克兰骗局: 弹劾、拜登现金和大规模谋杀》，美国东部时间1月25日星期六晚上10点，太平洋时间晚上7点，并在美东时间周日晚上10点，太平洋时间晚上7点首播。
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-181.png)
+迈克尔-卡普托以一长串令人印象深刻的一对一独家采访报道，美国的乌克兰问题并不是从唐纳德-川普总统和乌克兰总统沃洛迪米尔-泽连斯基之间的一通电话开始的。事实上，在多年前美国就开始干涉乌克兰的选举，130人被暗杀–随后乌克兰干涉了我们的总统选举。
 
-[https://twitter.com/RealPNavarro/status/1370034466719203329?s=20](https://twitter.com/RealPNavarro/status/1370034466719203329?s=20)
-3月11日众议员布莱恩-马斯特发推文如下。
+特辑中突出的是2014年导致前总统维克托-亚努科维奇被推翻的迈丹大屠杀–这起大规模谋杀案在基辅仍未解决。卡普托报道说，西方和俄罗斯外交官助长了那场血腥政变，前副总统乔-拜登从中脱颖而出，成为乌克兰的美国总督。结果，他的儿子亨特从该国腐败的天然气公司–布里斯马控股公司中获得了神话般的财富。
 
+节目中接受采访的乌克兰政治领导人坚持认为，拜登-布里斯马的诡计是一个快速致富的计划，乌克兰人民认为这是明显的腐败。
 
+听听乌克兰驻美国大使馆前外交官Andrii Telizhenko的说法，他解释了奥巴马政府是如何哄骗时任总统波罗申科的政府干预美国2016年的选举，乌克兰一名议员和他们的驻美大使进行了干预–这一切都是在波罗申科的指示下进行的。
 
-> 众议员布莱恩·马斯特:
-> 必须对中华人民共和国完全不透明和对冠状病毒爆发的处理不当，追究其责任。
-> 
-> 今天，我提出了一项法案，该法案将扣留美国对中共国的债务付款，以追究他们对造成这种损害的责任。
-> 
-> 【图片文字：
-> 中共国必须被追究以下责任：
-> 53万美国人死亡
-> 9百万美国人失业
-> 数万亿美元的经济损害】 [https://t.co/i6GXXWsgmm](https://t.co/i6GXXWsgmm)
-> — 川普等政要…直译推 (@zhiyitw33) [March 12, 2021](https://twitter.com/zhiyitw33/status/1370326526537908225?ref_src=twsrc%5Etfw)
+“迈克尔的深入调查工作与广泛的独家采访，以揭示真实的故事，这正是我们的‘第一美国新闻调查’系列的目的，”《第一美国新闻网》的首席执行官老罗伯特-赫林说。 “该系列报道照亮了那些被压制的事实，以适应偏爱的政治叙事，掩盖错误的行为。”
 
+卡普托的《乌克兰骗局:弹劾，拜登现金和大规模谋杀》是继OAN新闻网Thee专题 《乌克兰证人摧毁希夫与鲁迪-朱利安尼的案子 》之后的又一个系列。 该系列第四部正在后期制作中，播出时间即将公布。
 
+卡普托就此撰写了一本深入细致的书，定于2020年3月1日由庞巴迪图书公司出版。《乌克兰骗局：前苏联共和国几十年的腐败如何导致川普的假弹劾》， 卡普托是一位在乌克兰有家庭和历史的地区专家，他在2016年川普竞选活动中担任顾问，并被卷入了美国国会和特别检察官罗伯特-穆勒由此展开的俄罗斯调查。他从未被指控犯罪，也没有被传唤为相关刑事审判的证人。
 
+**原文链接：**
 
 
-> 众议员布莱恩·马斯特:
-> 今天，我将提出一项法案，就 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 的完全缺乏透明度和对冠状病毒的处理不当，对其追究责任！
-> 
-> 【转福克斯新闻：共和党众议员马斯特提议，因中共对新冠病毒爆发的应对行为，将永久扣留美国对中共国的债务付款
-> 
-> 共和党人的法案指控中国共产党“故意积极掩盖” 新冠病毒COVID数据】 [https://t.co/ztbh9ZW2xH](https://t.co/ztbh9ZW2xH)
-> — 川普等政要…直译推 (@zhiyitw33) [March 12, 2021](https://twitter.com/zhiyitw33/status/1370324655328874500?ref_src=twsrc%5Etfw)
 
-
-
-#### 美国疫苗
-
-现任总统拜登于周四晚首次公开正式发表讲话，他表示将让各州在不晚于5月1日之前让所有成年人（18岁及以上）有资格接种冠状病毒疫苗。
-
-他同时号召说，“ 但我需要你们，美国人民，每个美国人都尽自己的一份力量。”，即每个人都要为自己和家庭的健康去接种疫苗。这样到了7月4日美国独立日，人们可以自由聚会聚餐，美国就从病毒中独立出来。
-
-
-
-> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) will instruct states to make all adults to be eligible for COVID vaccine no later than May 1 [https://t.co/AcSmNt900h](https://t.co/AcSmNt900h) [#JustTheNews](https://twitter.com/hashtag/JustTheNews?src=hash&amp;ref_src=twsrc%5Etfw) [@alexnitzberg](https://twitter.com/alexnitzberg?ref_src=twsrc%5Etfw)
-> — Just the News (@JustTheNews) [March 12, 2021](https://twitter.com/JustTheNews/status/1370182921236013058?ref_src=twsrc%5Etfw)
-
-
-[https://justthenews.com/government/white-house/biden-will-instruct-states-make-all-adults-be-eligible-covid-vaccine-no](https://justthenews.com/government/white-house/biden-will-instruct-states-make-all-adults-be-eligible-covid-vaccine-no)
-
-
-#### 关注香港
-
-3月11日每国政府发言人纳得-普莱斯就中共对香港实施爱国者选举法表示：
-
-“真正的爱国者会聆听他们所领导的人的意见，而不是试图令他们噤若寒蝉。美国谴责中（共）国对香港民主体制的攻击，并敦促中（共）国履行其义务。#与香港站在一起 ”
-
-
-
-> True patriots listen to those they govern rather than attempt to silence them. The United States condemns the PRC’s assault on democratic institutions in Hong Kong and urges the PRC to uphold its obligations. [#StandWithHongKong](https://twitter.com/hashtag/StandWithHongKong?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/Zfiq3h27Wj](https://t.co/Zfiq3h27Wj)
-> — Ned Price (@StateDeptSpox) [March 12, 2021](https://twitter.com/StateDeptSpox/status/1370165893947387908?ref_src=twsrc%5Etfw)
-
-
-
-3月11日现任国务卿安东尼-布林肯称：“（中共国）对政治参与和民主代表权的新限制削弱了香港的民主制度，也违背了中（共）国的国际承诺。我们与盟友和合作伙伴一起为香港人的权利和自由发声。#與香港站在一起 ”
-
-
-
-> New limits on political participation and democratic representation decimate democratic institutions in HK and run counter to PRC international commitments. We stand with allies and partners speaking out for the rights and freedoms of people in Hong Kong. [#StandWithHongKong](https://twitter.com/hashtag/StandWithHongKong?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Secretary Antony Blinken (@SecBlinken) [March 12, 2021](https://twitter.com/SecBlinken/status/1370164477438656513?ref_src=twsrc%5Etfw)
-
-
-
-同一天纳得称：“我们强烈谴责缅甸军方通过吊销几家地方新闻机构的执照来压制#自由媒体的声音。我们仍然对言论自由受到越来越多的攻击深表关切，并敦促释放被不公正拘留的记者。”
-
-
-
-> We strongly condemn the Burmese military's efforts to silence the voices of the [#FreeMedia](https://twitter.com/hashtag/FreeMedia?src=hash&amp;ref_src=twsrc%5Etfw) by revoking the licenses of several local news outlets. We remain deeply concerned about increasing attacks on freedom of expression and urge the release of unjustly detained journalists.
-> — Ned Price (@StateDeptSpox) [March 11, 2021](https://twitter.com/StateDeptSpox/status/1370121036608503809?ref_src=twsrc%5Etfw)
-
-
-
-3月12日左媒彭博社的推文如下。
-
-香港到处都是中（共）国重拳出击的证据，从关闭的店面到被封锁的建筑物。
-
-从照片探索香港今昔的变化。
-
-
-
-> Evidence of China’s heavy hand is all around Hong Kong, from shuttered storefronts to barricaded buildings 
-> 
-> Explore how Hong Kong has changed in before-and-after photos ➡️ [https://t.co/dgz2b0DcQ7](https://t.co/dgz2b0DcQ7) [pic.twitter.com/OyHtAZc5uC](https://t.co/OyHtAZc5uC)
-> — Bloomberg (@business) [March 12, 2021](https://twitter.com/business/status/1370332959065174021?ref_src=twsrc%5Etfw)
-
-
-
-更多香港照片详见 [https://www.bloomberg.com/graphics/2021-china-reshaping-hong-kong/?utm\_source=twitter&cmpid=socialflow-twitter-business&utm\_medium=social&utm\_content=business&utm\_campaign=socialflow-organic](https://www.bloomberg.com/graphics/2021-china-reshaping-hong-kong/?utm_source=twitter&amp;cmpid=socialflow-twitter-business&amp;utm_medium=social&amp;utm_content=business&amp;utm_campaign=socialflow-organic)
-
-#### 起诉川普
-
-3月11日前尼克松白宫法律顾问约翰-迪恩预测川普将很快被起诉。
-迪恩在推特上说：”距离检察官万斯起诉唐纳德及其公司只是早晚的问题”。
-
-
-
-> Former Nixon White House Counsel John Dean predicts Trump will be indicted soon | Just The News [https://t.co/gMssv1zfOP](https://t.co/gMssv1zfOP)
-> — John Solomon (@jsolomonReports) [March 12, 2021](https://twitter.com/jsolomonReports/status/1370231679416205316?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-（本文当日持续更新中）
-
-
-
-文章观点部分仅代表作者本人。
-
-
-
-作者：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
+> [“One America News Investigates – The Ukraine Hoax: Impeachment, Biden Cash, and Mass Murder with Michael Caputo” to air this Saturday and Sunday at 10 pm ET, 7 pm PT](https://www.oann.com/one-america-news-investigates-the-ukraine-hoax-impeachment-biden-cash-and-mass-murder-with-michael-caputo-to-air-this-saturday-and-sunday-at-10-pm-et-7-pm-pt/)
 
 
 
