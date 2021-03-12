@@ -1,14 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士一周锦集第8期
-` 喜馬拉雅多語組` [轉載自GNews](https://gnews.org/zh-hans/970173/)
+## 里克·斯科特参议员：中共国犯有种族灭绝罪
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/970298/)
 
-#### 撰稿：问夏、CYC文穎、感言
-校对 ：任意東西
-播音：大腳印
-视频：归真
+翻译：康州盘古农场- Layka
+校对：康州盘古农场- 树人
+编辑：康州盘古农场- 轰炸机
 
-[闫博士每周锦集 8-PDF](https://gnews.org/wp-content/uploads/2021/03/閆博士每週錦集-8-P.pdf)[下載](https://gnews.org/wp-content/uploads/2021/03/閆博士每週錦集-8-P.pdf)
+据里克·斯科特（Rick Scott）参议员的官网， 2021年3月9日（星期二）报道：
+
+华盛顿特区 — 今天，里克·斯科特（Rick Scott）参议员发表了以下声明，此前有新的报道 “明显的证据”表明中国共产党对维吾尔族犯有种族灭绝罪。
+
+里克·斯科特参议员说，“很明显，我已经说了一年了 — 习总书记在共产主义中国犯下的残酷罪行是种族灭绝，而且现在是全世界每个热爱自由的国家承认和谴责这些暴行的时候了。在习总书记的领导下，中国共产党已经开展了一场虐待，骚扰和摧毁维吾尔族人口的运动。他们强行对妇女进行了绝育手术，并将儿童与家人隔离，以试图消除维吾尔族文化。当维吾尔人在集中营中不遭受酷刑和洗脑时，他们被迫从事奴隶劳动。随着共产主义中国继续向世界展示其真实面目，这些可怕的虐待行为不容忽视。”
+
+“拜登政府必须通过使用我们可以调用的所有工具来追究共产主义中国的责任。 我也期待拜登总统接受我的要求， 开会来讨论共产主义中国的种族灭绝，以及为什么必须将2022年冬奥运会移至一个真正尊重人权的国家。”
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-12-at-22.33.46.png)*川普与克里 – 图片来源：网络*
+
+文章来源：[https://www.rickscott.senate.gov/sen-rick-scott-communist-china-guilty-genocide](https://www.rickscott.senate.gov/sen-rick-scott-communist-china-guilty-genocide)
 
 0
