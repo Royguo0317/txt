@@ -1,16 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月12日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/970455/)
+## 2021年3月12日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/970557/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-2021年3月12号：🙏🙏🙏🙏🙏🙏🙏 尊敬的战友们好，今天是2021年第一次文贵重磅爆料灭共第二部分！
+3月12日：从四美女在GTV直播……看我们GTV的未来。
 
 
 
-[【2021年3月12日】文贵先生盖特原文](https://gtv.org/getter/604b8e19607c4240c8b50d90)
+[【2021年3月12日】文贵先生盖特原文](https://gtv.org/getter/604b995f607c4240c8b510e3)
 
 **喜联盟Gnews编辑部**
 
