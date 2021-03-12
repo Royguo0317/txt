@@ -1,52 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧洲战友和欧洲的军事部门开展全面合作，以毒灭共进入新时刻
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/970878/)
+## 法国《每日舆论报》：中共国-日益倾向民族主义的年轻一代
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/970996/)
 
-新闻简述：在2021年2月22日的盖特视频中，郭先生透露有中共背景的科学家已经开始和欧洲国家情报部门合作，揭露中共的两个项目和长期的灭白行动，以毒灭共进入了新的时刻。他说：“新中国联邦开启被共产党洗脑的14 亿中国人的智慧，唤醒中国人的良知，让中国人找回自己的尊严和勇气，和有体面的生活，这是每个人都拥有的，不是共产党的专利。”
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210222-getter2.srt.txt)
-**欧洲战友和欧洲的军事部门开展全面合作，以毒灭共进入新时刻**
+#### 作者：Claude Leblanc 克劳德. 勒博朗   翻译：THE ONE / Charline
 
-**Important Scientists Inside the CCP Come Forward to Cooperate with the West**
+#### 校对： 仰望中央公园
+![]()![](https://gnews.org/wp-content/uploads/2021/03/COVER-1-4.jpg)
+**中共国的小学生现在成为中共强化习近平主席思想的战略之核心。**2月3日，中共中央印发《关于激励青年一代思想教育的指导意见》。要求每周至少有一次学习中共国头号人物的思想活动。目的是让孩子们知道 “今天的幸福生活是党的正确领导的结果”。
 
-欧洲给我发来信息，说：“Miles，我们特别感谢你，给我们介绍了几个特别有良知的中国人。” 在欧洲的有中共背景的科学家们，这些人经过长期的，也就是几个月以来的思考，因为他们很多家人已经定居在欧洲了，曾经参与过这两个项目，他们知道这个中间的部分的事实，是由七哥介绍给他们这些政府的官员和情报部门认识。
+他们有3亿到4亿人，几乎占中共国人口的四分之一，在中共国他们被称为九零后，也就是90年代以后出生的人，还有人把他们归总称为90后。作为国家未来的主人翁和领导者，这些人的爱国主义甚至民族主义倾向受到关注。中共国共产党希望在他们这一代最终实现世界舞台上强国。与他们的长辈们大多经历过艰难困苦不同的是，这些中共国年轻人是在一定的富裕条件下和在国家崛起的步伐中成长起来的。
 
-A message was sent to me from Europe, saying, “Miles, we are very grateful to you for introducing to us these Chinese who are with great conscience.” After several months’ struggling, a few scientists in Europe with a CCP background have come forward to get in touch with government officials and intelligence agencies through me. These people’s families have mostly settled down in Europe. They were participants of the two projects and know part of the fact behind this [virus]. I introduced them to those officials in European governments and intelligence services.
+在2008年北京奥运会上，他们看到自己国家的运动员击败了世界最优秀的选手，获得了51枚金牌，比美国还多了15枚，在这些年轻人的眼中，中共国的形象不断地在提升。
 
-当然他们由于考虑到国内家人的利益，由于考虑到在欧洲和美国等各种的生意，这是完全正常的。没有几个人敢像科学家这样，站出来敢这样地来灭共的，没有几个，说的容易做到难呐，他有太多的考虑。
+**价值观**。不仅经济保持稳定增长，他们生活条件得以改善，而且党着重于培养民族自豪感的爱国主义教育，更让他们坚信中共国现在理当受到尊重。
 
-Of course, considering the interests of their family members in mainland China and their various businesses in Europe and the U.S., it’s completely normal [for them to wait a little long to come forward]. Few people dare to stand up to take down the CCP in this way like our scientist [Dr. Yan], not many. It’s easier said than done because there are too many concerns.
+习近平对此深谙其道。当年的”五四 “运动是导致其30年后的革命爆发的前奏 ，在2019年5月初，中共总书记在庆祝 “五四 “运动100周年时，直接向青年人发表讲话，”我们聚集在一起，是为了纪念爱国主义，也是为了吸取教训，从历史的智慧中受到启发。”还说：”爱国主义是凝聚民族的精神。”
 
-那么这些人经过深思熟虑后，（我准备戴黑手套，五个手指头啊，不是四个，）他们最近做出了重大的决定，然后跟这些情报部门和政府部门一起合作，提供了一些非常重要，有情报证明共产党长期地，有计划地对白人，也就是“灭白计划”，对西方整个是一个种族大屠杀式的，用杨娘娘、王毅的话讲叫“潘多拉的盒子”，（真正的黑手啊，真正的黑手，）潘多拉的盒子整个计划。
+90后绝对可以类比发动机。比如，他们听美国说唱歌手约书亚王和来自四川的中共国女孩米拉的歌曲《我爱中共国》。它是中共国强大的文化、历史和科技的颂歌， 反复吟唱”Wo ai Zhongguo，Wo ai Zhongguo ，ni ne”(我爱中共国，我爱中共国，你不爱吗？)有助于将信息固定在人们的脑海中。90后非常热爱自己的祖国，所以也越来越关注中共国制造的产品。”与他们的长辈不同，他们过去偏爱国外产品–“国外 “是 “更好 “的代名词—今天的年轻人正在重新评估本国产品，因为他们比他们的父母更关注事物的价值，他们更倾向于奢侈消费。”《年轻的中共国》（圣马丁出版社，2018年，法文出版）的作者、年轻中共国咨询公司的创始人扎克-迪奇沃尔德证实了这一点。
 
-So after careful consideration, these people – I’m going to wear black gloves with five fingers, not four – made a critical decision recently. And then they started to cooperate with these intelligence and government agencies to provide some very important evidence to prove the existence of the CCP’s long-term and systematic plan of targeting the white people, that is, the “white extinction plan”, which is a white genocide plan targeting the West. It is called “Pandora’s Box” in the words of Yang Jiechi and Wang Yi. (Showing his black gloves.) Real black hands, real black hands. It’s the whole plan of Pandora’s box.
+他们承认本国品牌的质量有了明显的提升，而且本土产品适合很潮的这代人的消费方式，但他们也不完全拒绝外国产品。在这个人们平均每周花1.8天看手机的国家，中共国企业的直销活动成倍增长。L-卡特顿 L Catterton私募股权投资公司副总裁夏洛特-张Charlotte Chang指出：“要了解这些公司的成功，我们必须研究这些消费者的心理。他们希望有一些与前辈不同的东西，也希望有一些能体现他们价值观的东西”。
 
-七哥没办法跟你们形容这些人的震撼。他说：“Miles，如果几年前我们听到你跟我们说这些，世界真的不至于走到这个灾难。” 美国现在在病入膏盲之中，正在享受被3F之中，让他再受受伤流点血，他会醒来的。欧洲的醒来对灭共的事业至关重要，但是我再说一遍，战友们，灭共永远不要指望任何第三方，一定是以共灭共，中国人灭共，是我们新中国联邦人灭共。谁都挡不了，以毒灭共，以钱灭共。当大家你们真正的意识到的时候，真正的感受到其中的奥妙的时候，你们可以感受到无穷无尽的快乐，别想歪了，想歪了，一说高潮就想到床，一想到快乐就想到男女双修，这不是那意思啊。
+爱国红利疫情也对中共国产品有利，这种情况在其它地方也发生过。 服装、运动器材方面如安泰、李宁、波司登，乃至化妆品牌完美日记Perfect Diary，它们的市场占有率都有了大的飞跃，成为世界级大品牌如耐克或欧莱雅的重要竞争对手，虽然这些大品牌在中共国市场立足不错。随着中共政府决心提高国家的经济和技术独立性，中共国公司所享有的爱国主义红利有望继续增长，而中共政府将更多地依靠国内消费而不是出口。
 
-I can’t describe the shock of these people to you. He said, “Miles, if we listened to your warnings a few years ago, the world would not have come to this disaster.” The U.S. is now in the midst of severe illness and is “enjoying” being destroyed by the 3F plan. So, let it bleed for a little longer and suffer a little more, and then it will wake up. The waking up of Europe is crucial to taking down the CCP, but let me say this again, my brothers-in-arms, never count on others to take down the CCP for us. It must be by the communists themselves, by the Chinese and by the people of our New Federal State of China (NFSC). No one can stop us from taking down the CCP by spreading the truth about the CCP virus and by financial activities. When you are truly aware of the importance of this and the wisdom of this, you will feel endless happiness. Don’t misinterpret my words and think that happiness always means orgasm and sex. That’s not what I mean.
+出现这种趋势首先是国家平衡发展的需要，之前的发展是以破坏一些地区和环境为代价的，另外也是为了应对与美国和西方国家之间日益紧张的关系的需要。 在这种情况下，共产党毫不费力地鼓动一部分人出来抵抗。 “中共国的许多年轻人感到被西方世界以及他们的国家不赞同的一种制度所拒绝。他们觉得中共国没有被国际媒体公平对待, 西方人崇尚双重标准：他们自己是正派和公正，而对中国人就只有批评”。扎克·迪赫特瓦尔德（Zak Dychtwald）写道。
 
-所以说兄弟姐妹们，有良知的中国人，和在放掉恐惧和个人利益和无我之后，与新中国联邦人一起自然而然地联合一起来灭共，这是没有任何疑问，没有任何悬念，只是时间多长，有多少人参与了在一起，这就是我们新中国联盟的魅力和力量。真的是灭共没你不行，因为每个人的积累和每个人做出的行动，都在一次又一次在社交媒体上，在事实面前，它会扩大，会延续，像香火，星星之火，它会越烧越大。
 
-So brothers and sisters, after letting go of fear, personal interests, and selflessness, those Chinese people with conscience will naturally unite with people of the NFSC to take down the CCP together. There is no doubt about it, without a doubt. It’s just a matter of how long it will take and how many people will join us. This is the charm and strength of our NFSC. It’s really impossible to take down the CCP without you, because everyone’s efforts and contributions count, including everything that you post on social media. What you have done will multiply and continue to exist, and they will be like sparks in the beginning and these sparks can become much larger flames.
+> *« 民族主义的力量源泉就在于它把个体的定位置身于被视为主权载体的 ‘人民’之中，人民是忠诚的中心对象和集体团结的基础 »。*
 
-其中有一位在和某国政府商量完以后，他家人全到了美国，但他在欧洲，他留在那里，据说这位，刚才这位政府官员说：“文贵先生这个人从过去的恐惧到今天的勇敢，整个变了一个人。”  兄弟姐妹们，新中国联邦开启被共产党洗脑的14 亿中国人的智慧，唤醒中国人的良知，让中国人找回自己的尊严和勇气，和有体面的生活，这是每个人都拥有的，不是共产党的专利，每一句话都绝对重要，因为会让中国人找到真正的自己。
 
-After one of the scientists met with the government of a country, his family all went to the U.S., but he stayed in Europe. An official of this government told me, “Mr. Miles Guo, from his fear in the past to today’s bravery, this person has totally changed.” Brothers and sisters, the NFSC has unlocked the wisdom of the 1.4 billion Chinese people who were brainwashed by the CCP, has awakened the conscience of the Chinese people, and has allowed the Chinese people to regain their dignity, courage, and decent lives. These are deserved by everyone, and they are not the CCP exclusive. These words are absolutely important because they will let the Chinese find their true selves.
+这可能就是危险之所在。从爱国主义滑向民族主义，而民族主义的定义并不仅限于购买本国产品。正如波士顿大学教授利亚恩·格林菲尔德（Liah Greenfeld）解释的那样：« 民族主义的力量源泉就在于它把个体的定位置身于被视为主权载体的 ‘人民’之中，人民是忠诚的中心对象和集体团结的基础 »。近年来，我们看到这些年轻人的攻击性表现得更加强烈，针对那些可能违反国家利益或表达批评的国内外人士。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+在《人权观察》发表的一份报告中，研究员王亚秋沮丧地指出， “年轻的中国网民曾经是向权力挑战的新思想的受众，现在却越来越多地去参与捍卫北京的行动。”我们在2019年香港人反对引渡法的过程中看到了这一点，当时大陆的年轻人在社交网络上攻击了被指控分裂的抗议者。另外，我们还可以看到同样的情况：疫情期间，作家方方在西方出版了她的日记《武汉，封闭的城市》（ed。Stock）。尽管这并不是严格意义上的反政府言论，但它却导致了这一中国当代文学的代表人物被指控为“反华势力”的工具。
 
-视频来源：[https://gtv.org/getter/6033f2ab19585159023673f8](https://gtv.org/getter/6033f2ab19585159023673f8) (0:11-4:58)
-
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/927430/](https://gnews.org/zh-hans/927430/)
+在一个类似案例层出不穷的国家，共产党在招募“粉丝”方面毫不费力，正如《环球时报》的发言人在一篇专门写他们的长文中所暗示的那样。 “今天的中国年轻人有更多的机会去国外学习或旅游，他们可以亲眼看看外面的世界到底是什么样子，当他们这样做时，他们会发现西方发达国家远非完美。他们都有自己的问题”。
 
 * * *
 
-翻译：【Isaiah4031】校对：【Rock小哥】字幕：【Rock小哥】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+*发布：法国巴黎七星农场编辑组*
 
 0
