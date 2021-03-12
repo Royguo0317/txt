@@ -1,27 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 专家称冠状病毒（COVID-19）大流行的影响将持续数年
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/969633/)
+## 美共和党众议员揭露民主党控枪法案背后的阴谋
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/969703/)
 
-翻译：康州盘古农场- 郭班之樱
-校对：康州盘古农场- TrueSky
-编辑：康州盘古农场- 轰炸机
+撰稿：光耀华夏
 
-据《澳大利亚新闻网》阿里·福斯特（Ally Foster）  2021年3月11日报道：
+素材评论：Jenny
+原视频来自Newsmax TV
+3月11日，美国共和党众议员麦迪逊·科索恩（Madison Cawthorn）在接受Newsmax TV的American Agenda节目采访时对民主党刚刚在国会通过的两项控枪法案进行了深入的解读和严厉的谴责。该控枪法案把枪支购买者的身份背景调查时间从三天延长至十天，并大大限制枪支的转借或转让。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-12-at-17.40.52.png)*图片来源：新闻报道视频截屏*
+科索恩称一个“武装化”（weaponized）的政府机构意欲取消美国民众的拥枪权，无论他们的口号表面上看起来多么冠冕堂皇（it doesn’t sound so devilish on its surface），多么高大上（extraordinarily benign names），但都是与美国宪法背道而驰的，是荒谬的。
 
-希望冠状病毒（COVID-19）疫苗能够使生活恢复正常，但一位专家对来年的预测令人担忧。
+美国宪法第二修正案（Second Amendment）规定： “管理良好的民兵对于自由州的安全实属必要；故人民持有和携带武器的权利不容侵犯。”（A well regulated militia, being necessary to the security of a free state, the right of the people to keep and bear arms, shall not be infringed.）
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210312_Task5.jpg)图片来自网络
+拥枪权的主要目的是防止政府权力膨胀进而侵犯公民的个人权力。这一点放在如今的美国更具现实意义，一方面大量的移民涌入美国，另一方面由于中共病毒的影响，大量罪犯从监狱释放。与此同时，民主党却试图解除美国人的武装，其险恶用心大家心知肚明。
 
-世界各地的国家都在争先恐后地为其公民接种疫苗，澳大利亚仅在数周内就推出了辉瑞（Pfizer）和阿斯利康（AstraZeneca）疫苗。
+**【评论：民主党狐狸尾巴露出来了，开始为取消拥枪权做铺垫了。当美国人没枪了，他们就可以大肆开始中共模式的高压统治，太邪恶了！再次被人说中了！】**
 
-快速生产有效的疫苗以及包括澳大利亚在内的一些国家都显示出抑制病毒的良好迹象，让许多人相信，经过一年多的混乱后，正常的感觉正在恢复。
+（本文仅代表作者观点，视频字幕来自原文翻译）
 
-但是，一位专家警告说，一直到2022年及以后，世界仍将遭受冠状病毒（COVID-19）大流行的重大影响，并将其描述为“现代世界历史上的脆弱时刻”。
+参考来源：
 
-伯内特研究所（Burnet Institute）国际卫生教授迈克尔·塔尔（Michael Toole）说，诸如每个国家何时完成疫苗接种，无节制放任传播以及新变种都将结合在一起等因素，使得明年这个时候恢复正常的可能性不大。
+1. [科索恩议员Newsmax采访](https://www.newsmax.com/newsmax-tv/cawthorn-guncontrol-fbi-doj/2021/03/11/id/1013505/)
+2. [Wikipedia: Gun politics in the United States](https://en.wikipedia.org/wiki/Gun_politics_in_the_United_States)
 
-但是他也指出，如果世界各国共同努力和相互帮助，情况可能会有所不同。 文章来源：[https://www.news.com.au/lifestyle/health/health-problems/impact-of-covid19-pandemic-to-be-felt-for-years-expert-says/news-story/0e17b130331a61e9b5aeb02b7061dd7a](https://www.news.com.au/lifestyle/health/health-problems/impact-of-covid19-pandemic-to-be-felt-for-years-expert-says/news-story/0e17b130331a61e9b5aeb02b7061dd7a)
-
+![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
 0
