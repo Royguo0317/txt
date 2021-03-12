@@ -1,27 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】11/03/2021:标普全球评级宣布即将从道琼斯指数剔除小米、箩筐技术、中微半导体
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/968672/)
+## 中俄伊和朝鲜寻求联合国支持应对制裁
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/968807/)
 
-**制作:Cantonese工作室**
-**播报：【Elaine 】资料整理：【Ruby】【文手】【安妮】 海报制作：【文绉绉】【米线】【小豆芽】视频制作：【DC文德】上传:【星星**】
-摘要:
+俄罗斯莫斯科喀秋莎农场   银河
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-77.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2-34.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-46.jpg)
-4,
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4-29.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/5-26.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/6-24.jpg)
-7.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/7-16.jpg)
-8.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/8-5.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/0-7.jpg)
+编辑上传   水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/U-11.jpg)msn.com
+路透社消息，中共、俄罗斯、朝鲜、伊朗等国结成联盟寻求联合国支持，以抵制武力或武力威胁以及单边制裁。中共主导的多个国家组成“捍卫联合国宪章之友小组”，中共一直在推动扩大全球影响力，挑战美国传统的领导地位。
+
+“捍卫联合国宪章之友小组”指出，“世界上越来越多地诉诸单边主义，其特点是孤立主义和武断行动，包括实施单边强制措施或退出具有里程碑意义的协议和多边机构，以及试图破坏应对共同和全球性挑战的关键努力。”多边主义“目前正受到前所未有的攻击，这反过来又威胁到全球和平与安全。”
+
+该组织的其他成员包括阿尔及利亚、安哥拉、白俄罗斯、玻利维亚、柬埔寨、古巴、厄立特里亚、老挝、尼加拉瓜、圣文森特和格林纳丁斯、叙利亚和委内瑞拉。
+
+然而，一名不愿透露姓名的欧洲高级外交官回应称，“这些所谓的朋友是违反《联合国宪章》最多的人。也许他们应该从尊重自己国家的人权和基本自由开始。”
+
+此联合国诉求针对美国前川普政府对中共等国的单边制裁。在川普的领导下，华盛顿宣布了退出世界卫生组织、退出联合国人权理事会、退出联合国文化机构教科文组织、退出全球气候变化协议和伊朗核协议的计划。川普强硬退出与伊朗的核协议并对伊朗实施制裁，并打响了与中共的贸易战，对中共进行经济制裁，还宣布了中共种族灭绝罪行。
+
+新继任的美国拜登政府改变了前总统川普“美国优先”的单边政策，加强了多边接触和与盟友的合作。今年1月上任的拜登取消了退出世界卫生组织的决定，让美国重返气候协议，重新与总部设在日内瓦的人权理事会接触，并寻求重新加入国际核协议。虽然如此，但是美国政府很难轻易改变川普政府留下的对中共强硬政策的方向，中美对峙持续升温。
+
+台湾危机，南中国海军事对峙，中东美军对伊朗支持的恐怖组织的空袭，俄罗斯黑客的网络袭击及伊朗、朝鲜的核威慑，让中共及其“跟班”担忧局势恶化将迎接国际社会的单边制裁或者武力威胁，因此试图集结力量道德绑架西方国家，寻求联合国的庇护。
+
+如同郭文贵先生在直播中提到的中共流氓思维，流氓犯罪天经地义，却要拿道德绑架君子。中共的逻辑是它坏事做尽理所应当，西方民主国家若是违背所谓规则就要受到谴责。
+
+参考链接：
+
+[https://www.reuters.com/article/us-china-usa-un/china-iran-north-korea-seek-support-at-u-n-to-push-back-against-unilateral-force-sanctions-idUSKBN2B335J](https://www.reuters.com/article/us-china-usa-un/china-iran-north-korea-seek-support-at-u-n-to-push-back-against-unilateral-force-sanctions-idUSKBN2B335J)
+
 0
