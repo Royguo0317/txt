@@ -1,47 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西方媒体已被中共彻底渗透，只有新中国联邦为真相和天下苍生发声
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/969296/)
+## 【2021/03/09～03/11】新闻回顾
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/969356/)
 
-新闻简述：在2021年3月6日的盖特视频中，郭先生说西方媒体并非我们想象的那样自由、公正和高效；媒体腐败、官僚主义以及报道拖沓滞后等现象明显。许多西方知名媒体已经被中共人员严重渗透。西方名人甚至声称爱中共，并愿意把中共国作为自己的第三祖国。而新中国联邦不为名利，只追求真相和公正，为天下苍生发声，路德社就是一个典型的例子。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_2021-03-06_Getter-part2.srt.txt)
-**西方媒体已被中共彻底渗透，只有新中国联邦为真相和天下苍生发声**
+文章作者：台湾农场新闻组摘要
+![]()![](https://gnews.org/wp-content/uploads/2021/03/news8.002.jpeg)(封面图片制作：台湾宝岛农场Cute panda)
+## 国际
 
-**The Western Media Has Been Completed Corrupted by the CCP **
+1.被视为有军方背景的中海油公司正式在3月8日摘牌，中海油行政总裁徐克强认为他们“被误会”了预料更多中字辈公司会陆续被摘牌。 （2021/03/09大纪元）
 
-今天早上我看路德先生的节目，讲的非常非常的好。我们的墨博士，我们的安红女士讲的太好太好了。昨天晚上我看了一半就是那个艾莉女士讲的，习大神，现在改成了神经病去掉“经病”叫“神”，到底是东方红太阳升，中国出了个毛贼东，叫东方的太阳，西方也出来个太阳，叫习西太阳，习大神，哇噻！确实厉害！说路德访谈、博士军团实在是牛，这人叫他一上他的节目，不升天就进地狱，反正你也去不了别的地方，要么上天堂，要么入地狱，真是跟着共产党，走进火葬场，进了路德访谈，要么进天堂，要么入地狱，这真是不是开玩笑。千万别惹了路德兄弟，别惹博士军团。挺好。
+2.微软被中共骇客攻击，专家分析不单纯，恐怕是中共急于从全球偷窃技术，而台湾扮演重要的供应链，首当其冲是中共的目标。 （2021/03/09大纪元）
 
-This morning, I watched the Lude Media talk show, and it really was a great show. Our Dr. Mo and Ms. An Hong spoke so well. I only watched half of it last night, and it was Ai Li who said that Xi Jinping’s nick name has been changed from “Psycho Xi” to “Nuts Xi”, and recently to “God Xi”. In the past, the Chinese people sang, “The east is red, the sun is rising. From China, it rises Mao Zedong”. They called Mao Zedong “the sun of the east”. Then there must also be a sun from the west. This one is called “West Sun Xi” or “God Xi”. Wow, really powerful! The Lude Media show and the Doctors’ team are really awesome. Anyone who is commented by the Lude Media either goes to heaven or hell. There is no other place to go to after death anyway, either heaven or hell. It’s true that if you follow the CCP, you will walk straight into the crematorium, and if you are [commented] in Lude’s show, you either go to heaven or hell. This is really no joke. Don’t annoy our brother Lude, and don’t annoy the Doctors’ team. Awesome.
+简评：鸠占鹊巢是中共在发展高科技技术的技俩，能偷就偷，不能偷就收买,偷走了再利用低成本的制造狠占市场率，狠甩对手，甚而并吞对手。
 
-香港的经济是什么样子，就不用说了。大家一定记住，对香港、对中国，对所有的事情的西方世界的反应和爆料革命的反应，差三个月。就[是]咱把事说出来，咱的感受在三个月以后才逐渐的在西方有反应。为什么？知道吗？西方的官僚、西方整个的媒体，是西方腐败的最重灾区。西方媒体对人类文明的影响远远已经超过了共产党。西方所有的政客、所有的投资家、所有宗教学家、所有说的话，都是来自于媒体。这就是共产党极为阴险、邪恶的地方：不惜代价控制西方社交媒体、传统媒体——华尔街日报、纽约日报、CNN，包括福克斯，包括美国各大华盛顿邮报，通通地影响。
+3.扯破中共对外宣称的谎言，纽林斯战略政策研究所（Newlines Institute for Strategy and Policy)发布具有「压倒性」证据的报告，中共在新疆犯下种族灭绝罪行。 （2021/03/09自由时报）
 
-How is the Hong Kong economy like now? No need to say. Everyone needs to know that the Western world’s response to Hong Kong, China, and everything else is usually three months slower than our Whistleblower Movement. That is to say, three months after we expose something, the West will gradually to react. Do you know why? Because the bureaucratic government officials and the whole Western media industry are the most corrupt area. The bad influence of Western media on the development of human civilization has far surpassed the CCP’s. All Western politicians, all big capital investors, and all religious scholars, whatever they say needs to be circulated through the media to the public. This is where the CCP is extremely insidious and evil; it does everything they can to control Western social media and traditional media such as the Wall Street Journal, the New York Times, CNN, Fox, and the Washington Post. They are all completely controlled.
+4.美前国防部长示警：中共会采取「蚕食战略」，台湾应多方加强存在的国安漏洞，并强化不对称战力和反渗透教育。 （2021/03/10大纪元）
 
-我问过朱利安尼，我说：你知道华尔街日报有多少中国人在那工作吗？他的答复和实际数字差一个零。我问过美国某前总统，我问过一句话，这是几年前，在中国跟他见面的时候，我那时候还没出来的时候。我问他，我说：你知道在美国媒体里面有多少华人媒体工作者吗？他的回答是少俩零。没有人知道。这就是你今天大家要看到的，所有你相信的东西，绝大多数是已经被化过妆，被已经整理过出来的，还有一定是在所有的你想知道的事情的时间点上，一定往后推，最低最低得三个月，甚至更长。
+简评：台湾早就应该要发起全面反渗透教育，让台湾人能居安思危而不是毫无反抗意识和作战能力，但是台湾人的“民主”意识高涨，必须透过合法合规的方式，才能落实。
 
-I once asked Giuliani, “Do you know how many Chinese people are working for the Wall Street Journal?” The number he gave me missed one zero from the actual number. A few years ago, I spoke to a former president of the U.S. At that time, we were in China, before I came to the U.S. I asked him if he knew how many Chinese were working in the American media industry? The number he gave me missed two zeros! No one [in the West] knew this. This is what everyone needs to face today – everything that you believe has been covered with makeup [modified] and after being manipulated. Besides, you must know that everything that you want to know has absolutely been pushed back for at least 3 months, or even longer.
+5.12农业州总检察长联合起诉拜登违宪，针对拜登签署的第13990号行政命令，要求政府计算气候、生态相关的社会成本，认为宪法未赋予拜登权力来执行有关命令（2021/03/ 10自由时报）
 
-CNN 某个在欧洲主持人，我在英女王的家里吃饭，她作为最牛的 CNN 老大坐在那，伊朗裔的一位女士，还有这些王子都在，坐在白金汉宫，还有另外三位华人。我当时问了一句话，我说：“如果让你选择，不是你的祖国伊朗，也不是美国，除了这个国家之外，你让哪个国家当你的祖国？你最爱的？你为他奉献？”毫不犹豫，中国。我说：“你选是中国人那？还是中国共产党？”她说：“我选中国共产党。”这是多年前，我曾经和美国某个新闻大佬集团的人，在我盘古四合院多次喝酒，听他倾诉心声：恨的是美国，爱的是共产党。最后我问他为什么？“因为跟共产党干，想干啥干啥，就想戳谁戳谁。”兄弟姐妹们，世界不是你想像的那样。只有新中国联邦，是不为钱、不为名、不为利，只为正义，只为真相，只为天下苍生。
+6.中共视为头号敌人制裁的前任国务卿蓬佩奥以鲜明的抗共挺台赢得台湾民心，表明有机会将访问台湾。 （2021/03/11大纪元）
 
-Once I was invited for dinner at the Queen’s house. Some princes were there, with a big shot from the CNN, a lady of Iranian descent, and three other Chinese guests sitting in Buckingham Palace. Then I asked this lady, “If I you were asked to choose a country other than your home country Iran and the U.S., as your home country, which one would you pick? A country that you love the most and are willing to dedicate yourself to?” She answered without any hesitation: China. I asked her whether she chose the Chinese or the Chinese Communist Party. She said she chose the CCP. It was many years ago. I had wine with a certain mogul from an American news group multiple times in my Pangu Plaza’s celestial sky courtyard, listening to him confess that he hated America and loved the CCP. When I asked him why, he said that with the CCP, he can do anything without any restrictions and can have sex with anybody he liked to. Brothers and sisters, the truth of the world is not what you think. Only our New Federal State of China is not pursuing money, reputation, or benefits, but rather justice, truth, and preservation of the lives of the people of the world!
+7.美智库亚洲海事透明倡议（AMTI）报告，指出越南积极在南沙群岛提升防御，其10座小岛皆有军事设施，澳洲学者解读是向中共警告「若中共发动攻击将付出代价」。 （2021/03/11自由时报）
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+8.《美国之音》报导，白宫表示下周与中方外交官员王毅、杨洁篪会面是与欧亚盟友会面之后进行，国际研究专家葛来仪（Bonnie Glaser ）指出拜登政府表态是从不对等的实力地位与中共接触，将聚焦谴责中共香港政策、威胁台湾、胁迫澳洲经济，压迫维吾尔人等美中分歧议题。 （2021/03/11自由时报）
 
-视频来源：[https://gtv.org/getter/6043a71b9534a74bcaf02b6a](https://gtv.org/getter/6043a71b9534a74bcaf02b6a) (05:33-09:47)
+9.布林肯于3月10日众议院，重申将对侵犯香港人权者持续落实制裁。此为遣责中共十三届全国人民代表大会修改香港选举法，直接攻击破坏香港自治与民主体制，违背香港基本法普选方向。 （2021/03/11自由时报）
 
-鸣谢：
+## 中共
 
-[1] 感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/954825/](https://gnews.org/zh-hans/954825/)
+1.不是不敢妄动，而是伺机行动川普下台后，中共对台动作频频，从王毅喊话到凤梨经济，都是对美、对台的探进，而是否武统台湾关键点在美国能否实际行动。 （2021/03/09大纪元）
 
-[2] 感谢 Antsee-GTV 和 Liberte 提供英文翻译文本于[https://gnews.org/961403/](https://gnews.org/961403/)
+2.外太空也不平静了，中、俄签署合作打造国际太空月球研究站，宗旨是在加强研究合作，以造福全人类为宗旨，探索和使用太空于和平用途。 （2021/03/10自由时报）
 
-文字整理 & 新闻撰写：【7PawBear】校对：【Isaiah4031】字幕：【Rock小哥】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+3.海警法王毅避重就轻，欲以奥运合作拉拢中、日的紧张关系，然疫情、人权问题，让日本厌共高涨,原定习四月访日本之行，日本拖延冷处理以对。 （2021/03/11大纪元）
+
+简评：中共惯用谎言蚕食扩大版图，再用谎言许诺好处，然而只要识破中共就是满口谎言，就不会也不该给他们机会搓商勾兑。
+
+4.中共驻德国大使馆遭不明人士投掷多个燃烧装置，无人受伤，攻击者随即被逮捕，原因恐跟疫情反共情绪有关。 （2021/03/11自由时报）
+
+5.中共驻香港官员宋如安回应媒体提问「爱国」定义，称爱的并非文化、历史的中国，而是中国共产党领导的党国。英国香港监察主席罗杰斯（Benedict Rogers）表示，中共要求对共产党忠诚「是无耻」，破坏香港《基本法》及《中英联合声明》承诺。 （2021/03/11自由时报）
+
+## 台湾
+
+1.中资公司未经未经经济部投资审议委员会许可来台冒充台湾公司，3年多挖角2百多名联发科、台积电等半导体研发人才，严重威胁我国半导体产业发展。 （2021/03/09自由时报）
+
+2.日本311福岛核灾事件，带出一个重要议题：废核。前日本首相菅直人，在任期间发生核灾事件，造成日本受到严重冲击。卸任后，检视核电的使用、核废料的处理，及中间的经济结构，更坚定走向「废核」的目标。 （2021/03/10关键评论）
+
+简评：越来越多国家迈向发展绿电能源，台湾目前也在转型的阶段，日本的核电相关政策的转换，刚好可以当成一个重要借镜。
+
+## 疫情（病毒相关）
+
+1.秘鲁生物学家批露，2款由中共国产疫苗（国药集团）于秘鲁临床试验效力分别仅11.5%（北京生物制品）及33%（武汉生物制品），而国药集团对外声称有效率达80%。中共正大力进行疫苗外交，对内要求媒体不得对研发疫苗有负面报导。 （2021/03/09自由时报）
+
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+
+文章审核：zhong、追寻自由
+
+文章发布：Little Liu
 
 0

@@ -1,31 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 比尔.盖茨是中共邪恶势力的亲密合作者
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/969217/)
+## 北京的打压促使港人逃离香港
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/969244/)
 
-#### 翻译：Hakunamatata
+撰稿：Shirley
+![]()![](https://gnews.org/wp-content/uploads/2021/03/121-5.jpg)网络图片
+3月11日，中共国全国人民代表大会以2895赞成、0票反对、1票弃权的投票结果，一致通过了新的选举规则，使香港民主活动人士几乎不可能参选公职。总理李克强表示，选举改革是为了 “完善”这一制度。他说：“坚持‘爱国者治港’，也是为了确保‘一国两制’走得稳、走得远。”
 
-#### 责编：WenWang
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-45.png)图片来源：twitter
-据《OAN》近日报道，比尔·盖茨（Bill Gates）与一家中共国的公司有着密切关联，现在美国官员认为，该公司成为美国国家安全的隐患长达十年。
+澳大利亚外交部长佩恩（Marise Payne）在中共国立法机构对香港的控制后表示了担忧。她说，“澳大利亚严正关注北京对香港选举制度的改变，这削弱了香港的民主制度。香港人必须有渠道行使基本的政治表达自由。”
 
-报道称，自2012年开始，比尔与梅琳达·盖茨基金会（Bill and Melinda Gates Foundation）一直与中共的华大基因（BGI Genomics）公司开展着广泛密切的合作。华大基因的前身就是北京基因研究所。
+英国和澳大利亚是准备迎接即将涌入的香港人的国家，人们担心北京很快就会禁止异议人士离港。
 
-美国这位亿万富翁的基金会在2012年与中共国的公司建立了谅解备忘录后，就把“基因组学研究”带入了全球社会。美国情报官员表示，发生这种情况的原因是，华大基因公司通过给美国政府提供中共病毒测试套件来进行“收集，存储和利用美国公民的生物特征信息”。前国家反情报和安全中心主任威尔·埃凡纳（Will Evanina）表示，华大是一家与共产主义政府及其军事机构有联系的终极公司。目前估计，80%的美国成年人的个人身份信息已被中国共产党所窃取。”
+澳大利亚政府已经告诉大约10万名持有澳大利亚护照的香港人考虑搬家，因为根据中共国家安全法的规定，北京可能不再承认他们是双重国籍。
 
-有消息表明，中国共产党对华大基因公司进行了大量投资，该公司上个月就从投资者那里筹集了3亿美元。
+堪培拉还呼吁有意将总部迁往 “更自由、更民主”的地方的香港公司，考虑将公司搬迁到澳大利亚。
 
-另外，据《国家动脉》（The National Pulse）的报道，除了奥巴马政府让华大基因进入美国并站稳脚跟外，盖茨基金会对华大基因在美国本土的扩张发挥了至关重要的作用。报道指出，2012年双方所签署的备忘录，是以基因组测序作为合作的重点开展的。 2010年，比尔盖茨参观了在中共国深圳郊区的一个工业园区里一座不起眼的建筑，一排排的高科技机器在那里快速运作。当时比尔·盖茨和盖茨基金会的中共国业务负责人叶雷（Ray Yip）被这家生物技术公司的野心所震惊，里面有超过150台最先进的基因测序机器，每天对数千个人类基因组的数据进行分析。该公司的目标是建立以数百万人的DNA为基础的巨大图书馆。
+根据法国国际广播电台报道的移民数据，2020年7月至2021年1月8日期间约有13万人离港。中共国和香港媒体也报道了类似的数字。从去年12月1日开始的六个半星期内，离开的人数多达7.51万人，不过尚不清楚是否所有的人都已经永远离开。
 
-2016年，华大基因在华盛顿州成立了美国办事处，该州是微软（Microsof）和盖茨基金会的所在地。华大基因与华盛顿州的关系似乎促使了该公司决定将冠状病毒检测试剂盒用于美国，这便是华大基因“挖掘”美国人数据的阴谋之一。
+自今年1月以来，约有5000名香港人申请在英国生活和工作，预计最终将收到30万份申请。
 
-#### 评：
+本周逃离香港并登陆澳大利亚的政客许智峯(Ted Hui)表示，对于那些想要离开的人来说，情况“相当危险”，如果英国等国家要提供“救生艇计划”，就必须抓紧时间。“我个人认为，许多持不同政见者，甚至是表达了异议的平民，都可能被禁止离开香港，”他补充说。
 
-无论是媒体所报道的“微软公司被中共黑客进攻”，还是“盖茨基金与华大基因的密切合作”，这些事件背后的本质不仅仅只是美媒所看到的比尔·盖茨是被动的一方。事实是，当资本家的无耻贪婪和中共霸权世界的野心两者同时出现时，就他们之间的邪恶就能碰撞出更加黑暗的终极邪恶。美国民众对美国精英建制派盗国贼的本质认识，只能依赖于爆料革命对其真相的揭露。文贵先生对此事件表示，“事实上，中共在美国的渗透和偷盗手段是正常人无法理解和想象的，微软公司本身就和共产党狼狈为奸，根本不存在共产党所谓的黑微软。”
+在许智峯发出这一警告的同时，二十几名香港活动人士敦促欧盟阻止其提出的与北京的贸易协议。这群人中有13名流亡者，他们在一封公开信中说，香港选举法的重写表明，北京是不可信任的。
 
-比尔·盖茨作为曾经推动IT行业发展的美国精英，却用手里的宝贵资源与中共勾结，做起了毁灭人类的勾当。他还与中共病毒实验室密切关联，开发疫苗，采集基因序列信息。当美国的保守主义精神渐渐被极左共产主义所消除，道德底线被突破，所有科技的兴起都将成为所谓美国精英们毁灭文明和控制人类的工具。值得庆幸的是，世界出了一个郭文贵，还有仅存的保守派班农，蓬佩奥，纳瓦罗等等美国真正的爱国英雄，他们依然在为正义而战！
+美国国务卿布林肯（Antony Blinken）表示，美国政府将 “贯彻对在香港实施镇压行为的责任人的制裁。”
 
-[Bill And Melinda Gates Foundation Linked To Chinese Company Found To Have Mined Americans’ Data](https://www.oann.com/report-bill-and-melinda-gates-foundation-linked-to-chinese-company-found-to-have-mined-americans-data/)
+布林肯下周在阿拉斯加安克雷奇与中共国外交官会面时，肯定会提出这个问题，这是拜登总统上任后中共乞求到的首次中美高层会晤。
 
+（本文仅代表个人观点）
+
+审稿：光耀华夏  编辑：MG1
+
+信息来源：
+
+1. [https://www.theaustralian.com.au/world/the-times/hong-kong-braced-for-exodus-after-beijing-crackdown/news-story/74a76812e00566b1d0c25e2a888463d2](https://www.theaustralian.com.au/world/the-times/hong-kong-braced-for-exodus-after-beijing-crackdown/news-story/74a76812e00566b1d0c25e2a888463d2)
+2. [https://www.theguardian.com/world/2021/mar/10/help-hong-kong-residents-flee-before-its-too-late-fugitive-democracy-figure-urges](https://www.theguardian.com/world/2021/mar/10/help-hong-kong-residents-flee-before-its-too-late-fugitive-democracy-figure-urges)
+3. [https://www.9news.com.au/world/chinese-legislators-endorse-tighter-control-over-hong-kong-australia-concerned-over-move/9ee72a73-92d4-4aec-964e-ee6e1fe42e2d](https://www.9news.com.au/world/chinese-legislators-endorse-tighter-control-over-hong-kong-australia-concerned-over-move/9ee72a73-92d4-4aec-964e-ee6e1fe42e2d)
+4. [https://www.rfi.fr/cn/%E6%B8%AF%E6%BE%B3%E5%8F%B0/20210112-%E9%A6%99%E6%B8%AF%E6%95%B0%E6%8D%AE%E6%98%BE%E7%A4%BA%E5%9B%BD%E5%AE%89%E6%B3%95%E5%90%8E%E5%87%80%E5%87%BA%E5%A2%83%E4%BA%BA%E6%95%B0%E8%87%B3%E4%BB%8A%E9%80%BE13%E4%B8%87%E4%BA%BA](https://www.rfi.fr/cn/%E6%B8%AF%E6%BE%B3%E5%8F%B0/20210112-%E9%A6%99%E6%B8%AF%E6%95%B0%E6%8D%AE%E6%98%BE%E7%A4%BA%E5%9B%BD%E5%AE%89%E6%B3%95%E5%90%8E%E5%87%80%E5%87%BA%E5%A2%83%E4%BA%BA%E6%95%B0%E8%87%B3%E4%BB%8A%E9%80%BE13%E4%B8%87%E4%BA%BA)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
 0
