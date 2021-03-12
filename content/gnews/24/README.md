@@ -1,39 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】抗争纪录片《理大围城》首登商营戏院
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/969218/)
+## 西方媒体已被中共彻底渗透，只有新中国联邦为真相和天下苍生发声
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/969296/)
 
-搜集\编撰：西西
+新闻简述：在2021年3月6日的盖特视频中，郭先生说西方媒体并非我们想象的那样自由、公正和高效；媒体腐败、官僚主义以及报道拖沓滞后等现象明显。许多西方知名媒体已经被中共人员严重渗透。西方名人甚至声称爱中共，并愿意把中共国作为自己的第三祖国。而新中国联邦不为名利，只追求真相和公正，为天下苍生发声，路德社就是一个典型的例子。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_2021-03-06_Getter-part2.srt.txt)
+**西方媒体已被中共彻底渗透，只有新中国联邦为真相和天下苍生发声**
 
-**纪录片《理大围城》早前已赢得荷兰阿姆斯特丹国际纪录片电影节 （IDFA）最佳剪接奖，该片并在今年1月获第27届香港电影评论学会的最佳电影。近日又传佳音，《理大围城》过去曾于香港艺术中心放映，将在高先(Golden Scene)电影院放映，这次将是该片首次登上商营戏院。**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image001-26.jpg)
-据【立场新闻】3月9日讯，开幕不到一个月的高先电影院宣布，将于3月15至21 日举行「香港电影评论学会大围城》。获学会评为最佳电影的《理大围城》过去曾于香港艺术中心放映。这次将会是该片首次登上商营戏院。
+**The Western Media Has Been Completed Corrupted by the CCP **
 
-高先(Golden Scene)电影院当天在Fa​​cebook 宣布，将于本月中举办「香港电影评论学会大奖- 得奖电影巡礼」，播放各部得奖电影，包括：《理大围城》、《夺冠》、《夜香．鸳鸯．深水埗》、《好好拍电影》、《3cm》以及《一秒拳王》。门票将于10日早上10点在HKMovie App上公开发售。每部电影完场后将设15分钟影评人出席映后谈，包括谭以诺、李焯桃、曾肇弘等。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image003-29.jpg)看过《理大围城》放映会之后，白水形容，纪录片后劲沉重，尤其是观众感受到诸多无以推卸的责任，那种伤痛，是集体的、未竟的、共孽的，因爱而生的痛。一年过后，痛觉犹在。 （资料来源 ：虚词）
-六部得奖电影巡礼作品中，只有《理大围城》一直未有商业影院愿意放映，这次高先电影院或成首间播放《理大围城》的商营戏院。有网民在高先电影院FB留言要求加场，指「理大围城得一场 … 不行，（很难抢票）」。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image005-8.png)（节目影片截图）
-《理大围城》是第二十七届「香港电影评论学会大奖」最佳电影得主，学会在1月公布的得奖评语中称赞「香港纪录片工作者」团队在艰难危险、复杂纷扰的处境下，仍然可以冷静理性的态度，从千头万绪的材料中撷取关键片段，「突显前线抗争者被重重围困的彷徨与挣扎，呈现『反送中』运动悲壮的一页」。
+今天早上我看路德先生的节目，讲的非常非常的好。我们的墨博士，我们的安红女士讲的太好太好了。昨天晚上我看了一半就是那个艾莉女士讲的，习大神，现在改成了神经病去掉“经病”叫“神”，到底是东方红太阳升，中国出了个毛贼东，叫东方的太阳，西方也出来个太阳，叫习西太阳，习大神，哇噻！确实厉害！说路德访谈、博士军团实在是牛，这人叫他一上他的节目，不升天就进地狱，反正你也去不了别的地方，要么上天堂，要么入地狱，真是跟着共产党，走进火葬场，进了路德访谈，要么进天堂，要么入地狱，这真是不是开玩笑。千万别惹了路德兄弟，别惹博士军团。挺好。
 
-据据【香港大纪元】报道，纪录片《理大围城》获得第27届香港电影评论学会的最佳电影，原定3月10日在西湾河电影资料馆举行的颁奖礼，因为疫情及颁奖场地休馆的关系，改为录播。 3月10日各得奖者的得奖片段在YouTube及Facebook播出。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image007-24.jpg)《理大围城》全长约一个半小时，全部镜头均取材自现场一手，珍贵难得。有些镜头是站在最前线拍摄，正宗是「抗争者视角」。 「我不怕他致命的武器呀，我有致命的信念！」则是其中一句真实对白。
-**战友观点：**
+This morning, I watched the Lude Media talk show, and it really was a great show. Our Dr. Mo and Ms. An Hong spoke so well. I only watched half of it last night, and it was Ai Li who said that Xi Jinping’s nick name has been changed from “Psycho Xi” to “Nuts Xi”, and recently to “God Xi”. In the past, the Chinese people sang, “The east is red, the sun is rising. From China, it rises Mao Zedong”. They called Mao Zedong “the sun of the east”. Then there must also be a sun from the west. This one is called “West Sun Xi” or “God Xi”. Wow, really powerful! The Lude Media show and the Doctors’ team are really awesome. Anyone who is commented by the Lude Media either goes to heaven or hell. There is no other place to go to after death anyway, either heaven or hell. It’s true that if you follow the CCP, you will walk straight into the crematorium, and if you are [commented] in Lude’s show, you either go to heaven or hell. This is really no joke. Don’t annoy our brother Lude, and don’t annoy the Doctors’ team. Awesome.
 
-纪录片工作者拍了一条短片，作为感言。片段中见到一堆光碟碎片，由一个政府信封倒出，还原砌成一只碟，回应送检光碟变成碎片。 《理大围城》的得奖者拍了一条短片，作为得奖的感言。短片中，一条黑暗的通道，尽头处是微弱的光。 **「香港纪录片工作者」说这样一段话：「感谢香港电影评论学会，在今天这么艰难的环境颁这个奖给我们。今年过去，围城并没有消失，街上字句被抹走，点起的烟火亦被扑灭，但属于我们抗争的记忆，意志与挣扎不会被消亡。当红墙迫近，我们每一个人都是被困者，我们更加要守住自己的脚步，可以的时候尽力向前，保持愤怒，裂缝总有破开的一天。纪录片是香港电影的一部份，在香港拍纪录片，从来都不容易，但坚持的人仍然有好多，希望大家继续支持香港电影」。**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image009-3.jpg)香港理工大学遭港警重重包围，据信校内目前仍有数百名学生及示威者。 （共同社）
-《理大围城》《Inside the Red Brick Wall》—— 「红砖」(Red Brick）既是理工大学的红砖，也同时以「红色」（Red）影射中共政权；以「砖块」（Brick）的概念暗示极权的硬性、难以推倒；以「墙壁」讽刺墙内人被囚禁，没有自由，可见该片有相当的艺术成份。
+香港的经济是什么样子，就不用说了。大家一定记住，对香港、对中国，对所有的事情的西方世界的反应和爆料革命的反应，差三个月。就[是]咱把事说出来，咱的感受在三个月以后才逐渐的在西方有反应。为什么？知道吗？西方的官僚、西方整个的媒体，是西方腐败的最重灾区。西方媒体对人类文明的影响远远已经超过了共产党。西方所有的政客、所有的投资家、所有宗教学家、所有说的话，都是来自于媒体。这就是共产党极为阴险、邪恶的地方：不惜代价控制西方社交媒体、传统媒体——华尔街日报、纽约日报、CNN，包括福克斯，包括美国各大华盛顿邮报，通通地影响。
 
-【以上观点仅代表笔者本人 】
+How is the Hong Kong economy like now? No need to say. Everyone needs to know that the Western world’s response to Hong Kong, China, and everything else is usually three months slower than our Whistleblower Movement. That is to say, three months after we expose something, the West will gradually to react. Do you know why? Because the bureaucratic government officials and the whole Western media industry are the most corrupt area. The bad influence of Western media on the development of human civilization has far surpassed the CCP’s. All Western politicians, all big capital investors, and all religious scholars, whatever they say needs to be circulated through the media to the public. This is where the CCP is extremely insidious and evil; it does everything they can to control Western social media and traditional media such as the Wall Street Journal, the New York Times, CNN, Fox, and the Washington Post. They are all completely controlled.
 
-资料来源：
+我问过朱利安尼，我说：你知道华尔街日报有多少中国人在那工作吗？他的答复和实际数字差一个零。我问过美国某前总统，我问过一句话，这是几年前，在中国跟他见面的时候，我那时候还没出来的时候。我问他，我说：你知道在美国媒体里面有多少华人媒体工作者吗？他的回答是少俩零。没有人知道。这就是你今天大家要看到的，所有你相信的东西，绝大多数是已经被化过妆，被已经整理过出来的，还有一定是在所有的你想知道的事情的时间点上，一定往后推，最低最低得三个月，甚至更长。
 
-立场新闻：[高先戏院播电影评论学会得奖作　《理大围城》首登商营戏院](https://www.thestandnews.com/culture/%E9%AB%98%E5%85%88%E6%88%B2%E9%99%A2%E6%92%AD%E9%9B%BB%E5%20%BD%B1%E8%A9%95%E8%AB%96%E5%AD%B8%E6%9C%83%E5%BE%97%E7%8D%8E%E4%BD%9C-%E7%25%2090%86%E5%A4%A7%E5%9C%8D%E5%9F%8E-%E9%A6%96%E7%99%BB%E5%95%86%E7%87%9F%E6%88%20%B2%E9%99%A2/)
+I once asked Giuliani, “Do you know how many Chinese people are working for the Wall Street Journal?” The number he gave me missed one zero from the actual number. A few years ago, I spoke to a former president of the U.S. At that time, we were in China, before I came to the U.S. I asked him if he knew how many Chinese were working in the American media industry? The number he gave me missed two zeros! No one [in the West] knew this. This is what everyone needs to face today – everything that you believe has been covered with makeup [modified] and after being manipulated. Besides, you must know that everything that you want to know has absolutely been pushed back for at least 3 months, or even longer.
 
-香港大纪元：[《理大围城》获奖感言：守住向前总有破开慨一日](https://hk.epochtimes.com/news/2021-03-11/2342357)
+CNN 某个在欧洲主持人，我在英女王的家里吃饭，她作为最牛的 CNN 老大坐在那，伊朗裔的一位女士，还有这些王子都在，坐在白金汉宫，还有另外三位华人。我当时问了一句话，我说：“如果让你选择，不是你的祖国伊朗，也不是美国，除了这个国家之外，你让哪个国家当你的祖国？你最爱的？你为他奉献？”毫不犹豫，中国。我说：“你选是中国人那？还是中国共产党？”她说：“我选中国共产党。”这是多年前，我曾经和美国某个新闻大佬集团的人，在我盘古四合院多次喝酒，听他倾诉心声：恨的是美国，爱的是共产党。最后我问他为什么？“因为跟共产党干，想干啥干啥，就想戳谁戳谁。”兄弟姐妹们，世界不是你想像的那样。只有新中国联邦，是不为钱、不为名、不为利，只为正义，只为真相，只为天下苍生。
 
-[《理大围城》小辑](https://p-articles.com/issues/1811.html)
+Once I was invited for dinner at the Queen’s house. Some princes were there, with a big shot from the CNN, a lady of Iranian descent, and three other Chinese guests sitting in Buckingham Palace. Then I asked this lady, “If I you were asked to choose a country other than your home country Iran and the U.S., as your home country, which one would you pick? A country that you love the most and are willing to dedicate yourself to?” She answered without any hesitation: China. I asked her whether she chose the Chinese or the Chinese Communist Party. She said she chose the CCP. It was many years ago. I had wine with a certain mogul from an American news group multiple times in my Pangu Plaza’s celestial sky courtyard, listening to him confess that he hated America and loved the CCP. When I asked him why, he said that with the CCP, he can do anything without any restrictions and can have sex with anybody he liked to. Brothers and sisters, the truth of the world is not what you think. Only our New Federal State of China is not pursuing money, reputation, or benefits, but rather justice, truth, and preservation of the lives of the people of the world!
 
-审稿：卡西欧 \ 上传：文粤
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+
+视频来源：[https://gtv.org/getter/6043a71b9534a74bcaf02b6a](https://gtv.org/getter/6043a71b9534a74bcaf02b6a) (05:33-09:47)
+
+鸣谢：
+
+[1] 感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/954825/](https://gnews.org/zh-hans/954825/)
+
+[2] 感谢 Antsee-GTV 和 Liberte 提供英文翻译文本于[https://gnews.org/961403/](https://gnews.org/961403/)
+
+文字整理 & 新闻撰写：【7PawBear】校对：【Isaiah4031】字幕：【Rock小哥】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
 0

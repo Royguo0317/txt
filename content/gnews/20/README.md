@@ -1,43 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 北京的打压促使港人逃离香港
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/969244/)
+## 恶霸就我 中共人大以2895票通过 修改香港选制 撕毁中英联合声明
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/969336/)
 
-撰稿：Shirley
-![]()![](https://gnews.org/wp-content/uploads/2021/03/121-5.jpg)网络图片
-3月11日，中共国全国人民代表大会以2895赞成、0票反对、1票弃权的投票结果，一致通过了新的选举规则，使香港民主活动人士几乎不可能参选公职。总理李克强表示，选举改革是为了 “完善”这一制度。他说：“坚持‘爱国者治港’，也是为了确保‘一国两制’走得稳、走得远。”
+台湾宝岛准农场 Amitofu
 
-澳大利亚外交部长佩恩（Marise Payne）在中共国立法机构对香港的控制后表示了担忧。她说，“澳大利亚严正关注北京对香港选举制度的改变，这削弱了香港的民主制度。香港人必须有渠道行使基本的政治表达自由。”
+中共人大以2895票赞成、0票反对、1票弃权，表决通过「完善香港特别行政区选举制度的决定草案」，建立香港选委会审查机制，修改香港普选制度，将修改由选委会负责选出的特首及立法会的产生办法，也修改基本法附件一及附件二，完全无视香港基本法正文中，最终达至全部议员由普选产生的目标，让港人失去民主的选举制度。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ccphk-400x225.png)
+中共强推行『爱国者治港』，除了撕毁《中英联合声明》，同时也宣告一国两制的消失。由选出特首的选举委员会人数从1,200人扩增到1,500人，新增加亲共的300人，并且拔除选委会中现有的117区议会席次，让民选实力消失，还将立法会议席也从70席增加到90席，新增加的20席也将让选委会在立法会中取得席次，让选委会互选来产生，扩大建制派在立法会的席次，排除泛民派的民选基础，让港人无法按照意愿选出特首及立法会的议员，直接否定港人的自决权与自治权。
 
-英国和澳大利亚是准备迎接即将涌入的香港人的国家，人们担心北京很快就会禁止异议人士离港。
+中共2895票赞成恶霸就我的『爱国者治港』，事实上是『爱习者治港』，在各方面中共坚持以〔习近平新时代中国特色社会主义思想为指导〕的基础下施政，建构虚假的民主过程，完全不遵照民意，中共人大强调多年“民心是最大的政治” 却强势夺取香港行政、司法、立法权，民主是尊重所有民族选择他们愿意生活于其下的政府形式之主权及自治权；对于14亿受到中共强制逼迫70年的人民，他们拥有一人一票选出来决定政权的权利都没有？中共修改香港选制所说的民心是最大的政治不正是自己打自己脸吗？
 
-澳大利亚政府已经告诉大约10万名持有澳大利亚护照的香港人考虑搬家，因为根据中共国家安全法的规定，北京可能不再承认他们是双重国籍。
+审核:Athena雅典娜 發佈:Amitofu
 
-堪培拉还呼吁有意将总部迁往 “更自由、更民主”的地方的香港公司，考虑将公司搬迁到澳大利亚。
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-根据法国国际广播电台报道的移民数据，2020年7月至2021年1月8日期间约有13万人离港。中共国和香港媒体也报道了类似的数字。从去年12月1日开始的六个半星期内，离开的人数多达7.51万人，不过尚不清楚是否所有的人都已经永远离开。
-
-自今年1月以来，约有5000名香港人申请在英国生活和工作，预计最终将收到30万份申请。
-
-本周逃离香港并登陆澳大利亚的政客许智峯(Ted Hui)表示，对于那些想要离开的人来说，情况“相当危险”，如果英国等国家要提供“救生艇计划”，就必须抓紧时间。“我个人认为，许多持不同政见者，甚至是表达了异议的平民，都可能被禁止离开香港，”他补充说。
-
-在许智峯发出这一警告的同时，二十几名香港活动人士敦促欧盟阻止其提出的与北京的贸易协议。这群人中有13名流亡者，他们在一封公开信中说，香港选举法的重写表明，北京是不可信任的。
-
-美国国务卿布林肯（Antony Blinken）表示，美国政府将 “贯彻对在香港实施镇压行为的责任人的制裁。”
-
-布林肯下周在阿拉斯加安克雷奇与中共国外交官会面时，肯定会提出这个问题，这是拜登总统上任后中共乞求到的首次中美高层会晤。
-
-（本文仅代表个人观点）
-
-审稿：光耀华夏  编辑：MG1
-
-信息来源：
-
-1. [https://www.theaustralian.com.au/world/the-times/hong-kong-braced-for-exodus-after-beijing-crackdown/news-story/74a76812e00566b1d0c25e2a888463d2](https://www.theaustralian.com.au/world/the-times/hong-kong-braced-for-exodus-after-beijing-crackdown/news-story/74a76812e00566b1d0c25e2a888463d2)
-2. [https://www.theguardian.com/world/2021/mar/10/help-hong-kong-residents-flee-before-its-too-late-fugitive-democracy-figure-urges](https://www.theguardian.com/world/2021/mar/10/help-hong-kong-residents-flee-before-its-too-late-fugitive-democracy-figure-urges)
-3. [https://www.9news.com.au/world/chinese-legislators-endorse-tighter-control-over-hong-kong-australia-concerned-over-move/9ee72a73-92d4-4aec-964e-ee6e1fe42e2d](https://www.9news.com.au/world/chinese-legislators-endorse-tighter-control-over-hong-kong-australia-concerned-over-move/9ee72a73-92d4-4aec-964e-ee6e1fe42e2d)
-4. [https://www.rfi.fr/cn/%E6%B8%AF%E6%BE%B3%E5%8F%B0/20210112-%E9%A6%99%E6%B8%AF%E6%95%B0%E6%8D%AE%E6%98%BE%E7%A4%BA%E5%9B%BD%E5%AE%89%E6%B3%95%E5%90%8E%E5%87%80%E5%87%BA%E5%A2%83%E4%BA%BA%E6%95%B0%E8%87%B3%E4%BB%8A%E9%80%BE13%E4%B8%87%E4%BA%BA](https://www.rfi.fr/cn/%E6%B8%AF%E6%BE%B3%E5%8F%B0/20210112-%E9%A6%99%E6%B8%AF%E6%95%B0%E6%8D%AE%E6%98%BE%E7%A4%BA%E5%9B%BD%E5%AE%89%E6%B3%95%E5%90%8E%E5%87%80%E5%87%BA%E5%A2%83%E4%BA%BA%E6%95%B0%E8%87%B3%E4%BB%8A%E9%80%BE13%E4%B8%87%E4%BA%BA)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
 0
