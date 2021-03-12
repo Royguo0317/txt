@@ -1,46 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 习特勒的帝王梦还能做多久？&#8211;3月7日第18期围炉夜话直播精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/970571/)
+## 即便是“花果飘零”，我们仍需“灵根自植”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/970586/)
 
-*整理：桂花酒| 素材整理：健身健心、Bobby|校对：宁缺| 审核：万人往| Page：小六月*
+*作者：文护念| 校对、审核：万人往| Page：小六月*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/4mAx1bdMLF2ne/images/169f7d51-0fb7-41d6-a18d-3724089c82e5.png?asset_id=c60cc6f4-907c-4537-aeda-d9a0be8daafd&amp;img_etag=%222c53f35483e493aba041b230ab7ec4d2%22&amp;size=2560)](https://spark.adobe.com/page/4mAx1bdMLF2ne/images/169f7d51-0fb7-41d6-a18d-3724089c82e5.png?asset_id=c60cc6f4-907c-4537-aeda-d9a0be8daafd&amp;img_etag=%222c53f35483e493aba041b230ab7ec4d2%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/1PwThRckLfcYG/images/f82d8878-3b0a-4082-8d73-08c8e0a5a01f.jpg?asset_id=2741e63d-0396-4414-88a6-c138f873f4bb&amp;img_etag=%2216154f37bcd3f15be6def7cf72b80b56%22&amp;size=2560)](https://spark.adobe.com/page/1PwThRckLfcYG/images/f82d8878-3b0a-4082-8d73-08c8e0a5a01f.jpg?asset_id=2741e63d-0396-4414-88a6-c138f873f4bb&amp;img_etag=%2216154f37bcd3f15be6def7cf72b80b56%22&amp;size=1024)
 
-- 直播链接：
-- [https://gtv.org/video/id=6044adb8aed17436adc4c58e](https://gtv.org/video/id=6044adb8aed17436adc4c58e)
-- [https://gtv.org/video/id=6044bc8faed17436adc4d866](https://gtv.org/video/id=6044bc8faed17436adc4d866)
-- [https://gtv.org/video/id=6044c677aed17436adc4e1c1](https://gtv.org/video/id=6044c677aed17436adc4e1c1)
+1949年，大陆政权易手，传统文化备受打压，新儒家代表人物唐君毅、钱穆、张丕介“三君子”移居香港，一起创立亚洲文商专科夜校，翌年改名为新亚书院，即今天的香港中文大学。当时中国文化的惨状可以用一段话来形容：如一园中大树之崩倒，而花果飘零，遂随风吹散；只有在他人园林之下，托荫避日，以求苟全。
 
+1958年，牟宗三、徐复观、张君劢及唐君毅，这四位在近代华人学术界、文化界举足轻重的人物，共同发表《为中国文化敬告世界人士宣言》。其中有一段话：“真正的智慧是生于忧患。因为只有忧患，可以把我们之精神从一种定型的生活中解放出来，以产生一种超越而涵盖的胸襟，去看问题的表面与里面，来路与去路。”毫无疑问，当时在弹丸之地的香港，为华族保留了文化的种子。
 
-本期话题：习特勒的帝王梦、墙内即将实施的法规、天津教师歧视学生等。
+70年后，华族文化的种子在香港已成为参天大树，庇荫了几代有良知港人，在2019年的香港已经打开了灭共的第一道大门。郭先生亦多次强调香港是“圣城”，香港人并没有过渡幻想欧美前来救港，而是港人自救。这种不屈不挠的精神，值得我们内地人用一生的时间去学习。一切民族之自救，必须由自拔于奴隶意识而作为自作主宰人之始。即便大陆骤然变天，要想刮清中共植下的余毒，任重而道远。相信即便是今天，大部分大陆同胞亦无法明白何谓生命之深义。
 
-一、习特勒的帝王梦
+[!\[\]()!\[\](https://spark.adobe.com/page/1PwThRckLfcYG/images/b37ee60f-88cc-4393-be13-822c642ed553.jpg?asset_id=10b27c6b-b4b2-4831-a37b-ba41ccdafe39&amp;img_etag=%225410a8e00cb3f3313786657a2d47e915%22&amp;size=2560)](https://spark.adobe.com/page/1PwThRckLfcYG/images/b37ee60f-88cc-4393-be13-822c642ed553.jpg?asset_id=10b27c6b-b4b2-4831-a37b-ba41ccdafe39&amp;img_etag=%225410a8e00cb3f3313786657a2d47e915%22&amp;size=1024)
 
-历史不会重演，但却会惊人的相似。自从香港抗争打开灭共的第一道大门开始，习总加速师就动作不断，两会表決通过《关于完善香港特别行政区选举制度的決定》，彻底宣告一国两制的结束。
+自2017年爆料革命开始以来，如今已进入第四个年头，有良知的华族同胞不再闪闪躲躲，而是勇敢地站出来，不再是“花果飘零”局面，而是团结连在一起。新中国联邦在全球的多次游行，消除了欧美众国对华人的“刻板印象”，形象可谓是焕然一新。新中国联邦首次站在了世界舞台中央，掀起了轰轰烈烈的革命风暴。国将霸者士皆归，邦将亡者贤先避。当下新中国联邦的农场建设广揽人心，广召群雄，能人群集；《take down the ccp》沿途歌唱，听者群集，朗朗上口。
 
-历史上纳粹于1936年3月7日进军莱茵兰地区。此前的英国、法国各自打着自己的小算盘，对德采取绥靖政策，最终导致二战的巨大灾难。同年，由于美国参加，使得柏林奥运会盛况空前。这成为奥运史上最大的耻辱。柏林奥运首创了火炬接力，纳粹的旗帜到处飘扬，而纳粹的宣传机器在其中对世界的蒙蔽、欺骗，与当下中共何其相似？
+而最值得关注的也是最核心的就是病毒真相，无论是“田野禽兽”，还是“河海鱼虾”都无法离开这个话题，病毒真相与同住地球村的每个人都休戚相关，无人可侥幸。倘若再被中共的“完美犯罪”继续欺骗，届时全球将进入举世的黑暗，永无希望。
 
-二、中共对外纳粹化，对内文革化。从3月1日起实施的部分法规，我们也做了解读。
+随着病毒真相不断往前推进，以及在媒体的发酵，无论是恋栈权力的政客，还是拜金的资本大鳄，都和中共相率避去，即便与中共有着千丝万缕关系，亦纷纷为求自保与中共“割席”。可谓真是以利交者，利穷则散。以势交者，势倾则绝。
 
-中共将性侵养女入刑，却对贩卖儿童视而不见；对污蔑英烈入刑，却对活着的老兵维稳。12周岁成为刑责年龄新底线，在香港已经发生了拘捕未成年人的事。土共四面楚歌，对政权大厦将倾寝食难安，连孩子都不放过，如临大敌。对于无法判罪的，参照“社会主义核心价值观”，无法无天，滥杀无辜。
+[!\[\]()!\[\](https://spark.adobe.com/page/1PwThRckLfcYG/images/95a9ec4d-9dfd-469b-929c-e4df3f76098d.jpg?asset_id=f38f93bc-de2d-40ce-b8cc-77e311a6fa4c&amp;img_etag=%22cdd42a9df826e0d0fbd1775d8ef4a7c1%22&amp;size=2560)](https://spark.adobe.com/page/1PwThRckLfcYG/images/95a9ec4d-9dfd-469b-929c-e4df3f76098d.jpg?asset_id=f38f93bc-de2d-40ce-b8cc-77e311a6fa4c&amp;img_etag=%22cdd42a9df826e0d0fbd1775d8ef4a7c1%22&amp;size=1024)
 
-中国劳动人口退休年龄延长到65岁。习主席多次强调的老有所养、老有所乐被国家统计局发布的数据打脸。中共国的法律、数字随意更改的背后，是养老金的巨大亏空和漠视人民生命、养老权利的流氓本质。法定结婚年龄下调到18岁，依然避免不了人口出生率断崖式下跌。个税起征点上调到1万元——每次新一轮涨价都与个税上调惊人同步，显示中共内外交困的现实。
+特别值得注意的一点，面对中共不断地祥林嫂般的隔空喊话，现任美国总统拜登自“双规电话”之后，亦开启了“老年模式”。“习神”领导下的中共抱残守缺，俨然沦为孤岛，欧美各国现在是“谈共变色”。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/4mAx1bdMLF2ne/images/4e38e3d1-e2de-492f-aefa-06102b804a90.jpg?asset_id=c7cfab41-a3b0-461e-a497-9374fab1b8b1&amp;img_etag=%22633a1adf828d08999df3004722adf0c4%22&amp;size=2560)](https://spark.adobe.com/page/4mAx1bdMLF2ne/images/4e38e3d1-e2de-492f-aefa-06102b804a90.jpg?asset_id=c7cfab41-a3b0-461e-a497-9374fab1b8b1&amp;img_etag=%22633a1adf828d08999df3004722adf0c4%22&amp;size=1024)
+至暗时刻，尊敬的华族同胞请勇敢地站起来，去找回属于我们的尊严，不能再像猪一样的苟且、狗一样的奴媚、蛆虫似的卑汙。正如诗人所咏：“我不要温和地走进那个良夜，老年应当在日暮时燃烧咆哮；怒斥，怒斥那光明的消逝。”
 
-三、最后是引起社会广泛关注的天津肖老师以收入歧视学生的事件。
+爆料革命的战友和新中国联邦的公民已经囊萤了华人的薄光，打破了“花果飘零”这一困局，但最核心的就是需要我们的觉醒，需要我们“灵根自植”。其有朝一日风云际会时，共负再造中华，使中国人之人文世界花繁叶茂，于当今之世界之大任者也。
 
-1. 教师作为背锅侠成为情绪宣泄口，但是公众们就能代表正义吗？
-
-2. 当一个群体掌握了话语权后，所谓公平的天平已经倾斜。
-
-3. 在中共治下，人从出生户口就分居民、农民，人为制造不公平。而教育资源又被政府垄断，使得百姓争斗。中共的愚民之术玩得炉火纯青，此次舆论事件没有赢家。
-
-只有制度建设才能保障社会公平，这也是我们以后推翻土共的终极目标。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/4mAx1bdMLF2ne/images/14e65818-81c6-4931-bf8c-4b9996518d9c.jpg?asset_id=2062811c-0840-488d-9835-e55545a1549a&amp;img_etag=%2236c4c7617401ded5021406bc5418d78d%22&amp;size=2560)](https://spark.adobe.com/page/4mAx1bdMLF2ne/images/14e65818-81c6-4931-bf8c-4b9996518d9c.jpg?asset_id=2062811c-0840-488d-9835-e55545a1549a&amp;img_etag=%2236c4c7617401ded5021406bc5418d78d%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/1PwThRckLfcYG/images/7338725a-88a5-42f6-9e0c-02897d688c02.jpg?asset_id=6f5138f2-e7ac-4b11-9f1c-c6cb65f86c31&amp;img_etag=%226e8f532539c4a5d3521db16558476337%22&amp;size=2560)](https://spark.adobe.com/page/1PwThRckLfcYG/images/7338725a-88a5-42f6-9e0c-02897d688c02.jpg?asset_id=6f5138f2-e7ac-4b11-9f1c-c6cb65f86c31&amp;img_etag=%226e8f532539c4a5d3521db16558476337%22&amp;size=1024)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -49,6 +39,6 @@
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/4mAx1bdMLF2ne/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/4mAx1bdMLF2ne/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/1PwThRckLfcYG/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/1PwThRckLfcYG/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
