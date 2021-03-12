@@ -1,26 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 所谓“爱国者治港”——香港“一国两制”的彻底结束
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/968283/)
+## 英指责香港选举改革损害国际社会对中共的信任
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/968379/)
 
-字幕听译：CharlesS| 字幕PR：yyshere| 字幕：JohnsonR| | 评论：文雍|评论翻译：Marialu|评论PR：许先生|Page：小六月
+俄罗斯莫斯科喀秋莎农场   银河
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NJXgNA150Pxdz/images/bec6a719-56dd-4923-b630-5c1fb93db307.jpg?asset_id=6be41294-c5d1-4af8-9c32-ab2593c00e4c&amp;img_etag=%222d84c141d5e4179e02c961183776fafb%22&amp;size=1024)](https://spark.adobe.com/page/NJXgNA150Pxdz/images/bec6a719-56dd-4923-b630-5c1fb93db307.jpg?asset_id=6be41294-c5d1-4af8-9c32-ab2593c00e4c&amp;img_etag=%222d84c141d5e4179e02c961183776fafb%22&amp;size=1024)
+编辑上传   水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/H-8.jpg)economist.com
+路透社报道，英国外交大臣多米尼克·拉布（Dominic Raab）周四表示，香港选举制度的改革将进一步损害国际社会对中共的信任。
 
-## 所谓“爱国者治港”——香港“一国两制”的彻底结束
+中共人大周四通过了一项修改香港选举制度的决定草案，进一步减少香港机构中的民主代表权，并引入机制来审查和筛选政界人士对北京的忠诚。
 
-2021年3月5日，中共伪政权十三届全国人大四次会议开幕，人大常委会副委员长王晨表示香港出现的“乱象”是因为香港行政区的现行的选举制度存在“漏洞和缺陷”，为了“完善”选举制度，“消除”选举制度存在的隐患和风险，所以必须确认以“爱国者”为主体的“港人治港”！其实这只是中共想通过修改香港选举制度，冲淡原本已经很少的民主派的声音；立法会里最民主的区议会界别五个席位将被取消，立法会席位总数由目前的70席增加到90席，区议员不再有资格进入特首选举委员会。而香港的所谓的港区全国政协委员就是一群卖港贼！他们全然不顾香港人民的利益和权力，全力支持中共关于修改香港选举制度的决定，使香港不再拥有民主选举，还美其名曰“爱国者治港是天公地道的政治伦理”。而中共人大在去年底强行推出的国安法，从根本上终结了政治自由。港澳也被剔除了美基金会的经济自由排名。
+拉布在一份声明中表示，这是北京为进一步打击香港民主的最新举措，违背了中共的承诺。“这只会进一步削弱人们对中共作为国际社会主要成员履行国际责任和法律义务的信心和信任。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NJXgNA150Pxdz/images/45391565-38bd-42ba-98eb-5eaf134a28a8.jpg?asset_id=fb34d396-d989-4850-8dc7-af14e8eb9997&amp;img_etag=%225410a8e00cb3f3313786657a2d47e915%22&amp;size=1024)](https://spark.adobe.com/page/NJXgNA150Pxdz/images/45391565-38bd-42ba-98eb-5eaf134a28a8.jpg?asset_id=fb34d396-d989-4850-8dc7-af14e8eb9997&amp;img_etag=%225410a8e00cb3f3313786657a2d47e915%22&amp;size=1024)
+中共大使馆临时发言人杨晓光称，这些改革是为了促进香港的长期繁荣，而且英国和中共国对民主有着“不同的定义”。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+当被问及英国就中共对待香港民主镇压是否有对中共官员实施制裁的可能性时，英国政府表示正在考虑。拉布称“我们愿意不惜一切代价维护我们的利益，不要低估我们捍卫自身利益和尊严的坚强意志。”
 
+在此前中共禁止英国广播公司BBC在中共境内的播放，称其“违反事件报道的要求，损害中华人民共和国国家利益“，实则是因英国监管机构英国通信管理局（Ofcom）吊销了中共官媒国际电视台CGTN的执照及对BBC揭露中共新疆种族灭绝罪行报道的报复。
 
-编辑：【英国伦敦喜庄园编辑部】
+英国外交大臣米尼克·拉布也在声明中指责中共这一行为是对言论自由的限制。他说，“中共正在对世界媒体和网络自由实行最严厉的限制，现在这一举措只是损坏中共在外界眼中的声望。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/NJXgNA150Pxdz/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/NJXgNA150Pxdz/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+希望各国政要少些不痛不痒的呼吁谴责关切，而是有更多切实可行的措施来制止中共恶行。
+
+参考链接：
+
+[https://www.reuters.com/article/us-hongkong-security-britain/uk-says-hong-kong-electoral-changes-undermine-trust-in-china-idUSKBN2B30Y9](https://www.reuters.com/article/us-hongkong-security-britain/uk-says-hong-kong-electoral-changes-undermine-trust-in-china-idUSKBN2B30Y9)
 
 0
