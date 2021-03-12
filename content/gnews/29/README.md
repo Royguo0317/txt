@@ -1,147 +1,84 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0312.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/969624/)
+## 中共黑客对微软的攻击演变成全球危机
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/969782/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0312.jpeg)
-#### #中共病毒
+*新闻来源：《华盛顿邮报》| 作者：William Turton 和 Jordan Robertson | 发布时间：2021年3月9日*
 
-3月11日前白宫制造业和贸易顾问皮特纳瓦罗博士，发推了他接受班农疫情战斗室采访时的内容：
+*翻译/简评：helloworld | 校对：X-Wing飞得更高 | 审核：万人往 | Page：拱卒*
 
-拜登将签署一项与 #CCPVirus #中共病毒 只有9%相关的法案。
-去年5月，@美国45届总统（川普）试图通过的2万亿美元的法案开始所有的药品和PPE生产。
-但是 @佩洛西议长 和 @SenSchumer 不想让川普赢，所以就扼杀了（那项法案）。
+[!\[\]()!\[\](https://spark.adobe.com/page/Fxu44re0BQTUv/images/5ab82d6c-88ff-4e24-9dcc-9c6f54be9e31.jpg?asset_id=8a8efba2-dbfd-49a7-b544-ed092556fcf6&amp;img_etag=%22a938b00f83c8834f60569fd31958b213%22&amp;size=2560)](https://spark.adobe.com/page/Fxu44re0BQTUv/images/5ab82d6c-88ff-4e24-9dcc-9c6f54be9e31.jpg?asset_id=8a8efba2-dbfd-49a7-b544-ed092556fcf6&amp;img_etag=%22a938b00f83c8834f60569fd31958b213%22&amp;size=1024)
 
-纳瓦罗先生是最早接受爆料革命信息并向川普总统传递情报、让川普总统1月底做出与中共国实行旅游禁令正确决策的关键人物。他今日的言论和推文内容已经和班农先生一样，公开使用郭先生最早明确的概念 **#中共病毒**。他是对中共本质认识最深刻的美国要人之一。
+**简评：**
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-181.png)
+微软的Exchange产品遭受了大规模的自动化复杂攻击。据微软称来自中共国的黑客，在微软修补漏洞之前，向尽可能多的受害者竞相发起了攻击。目前为止，全球约有6万名已知受害者，这些受害者多为Exchange服务器暴露在外的中小企业和地方政府机构，这让已受新冠疫情连累的他们雪上加霜。虽然微软已发布补丁，但已被黑客攻破的系统还需要人为梳理才可将黑客剔除。
 
-[https://twitter.com/RealPNavarro/status/1370034466719203329?s=20](https://twitter.com/RealPNavarro/status/1370034466719203329?s=20)
-3月11日众议员布莱恩-马斯特发推文如下。
+这次攻击疑点重重。Exchange邮件服务器可整合很多功能，为小企业提供日历、共享、组织架构管理、聊天等一揽子解决方案，被广泛使用。由于其为闭源付费软件，微软对维护软件安全负有全部的义务和责任。微软至少于1月8日就已经得知了此漏洞，该漏洞由2020年微软给出的更新补丁引发，微软原计划于3月9日发布补丁，但由于对漏洞的利用变成大规模自动化扫描攻击，微软才提前于3月2日发放补丁。这些攻击最初瞄准的是高价值情报目标，对于少数受害者已持续了几个月之久。
 
+为何微软未向高价值目标提供补丁？为何微软第一时间提供了攻击源头？巧合的是，大规模攻击发生于中共国外交部部长王毅22日喊话拜登政府之后，带有示威的意味。这是否暗示此次攻击带有政治色彩？也许微软和中共勾兑，本意为攻击川普政府，但当拜登政府未能如中共所愿时，中共便撕毁了可能的内部协议，放大攻击。对于大企业和政府，安全主要由自身团队负责，如果微软或SolarWinds这样的闭源第三方主动引入漏洞，将使攻击变得防不胜防。这也能从攻击的动机看出。若仅为获取有价值数据，攻击可在更早时发生，但这样的攻击可能会暴露对大目标的情报渗透行为。而对于如此危险的漏洞，微软的处理方式似乎在有意淡化其在圈外的影响，结果因为大规模扫描而弄巧成拙，也不经让人怀疑微软的角色。
 
+此次攻击也许暂时没有造成太大的经济损失，但对人心的影响非常深远。以往和中共勾兑的美国内部利益阶层，虽然短暂得利，但必将遭到受影响的中小企业强大的压力，对于调查追责的呼声也渐渐增高。虽然拜登政府希望将责任甩至俄罗斯，但微软已给出了源头中共国，这种甩锅恐将难以服众。而俄罗斯替中共背负骂名，也将加剧中俄的矛盾，最终将俄罗斯彻底推向与中共的决裂。最终的结局，一定是美俄联手，将幕后黑手中共推出水面。
 
-> 众议员布莱恩·马斯特:
-> 必须对中华人民共和国完全不透明和对冠状病毒爆发的处理不当，追究其责任。
-> 
-> 今天，我提出了一项法案，该法案将扣留美国对中共国的债务付款，以追究他们对造成这种损害的责任。
-> 
-> 【图片文字：
-> 中共国必须被追究以下责任：
-> 53万美国人死亡
-> 9百万美国人失业
-> 数万亿美元的经济损害】 [https://t.co/i6GXXWsgmm](https://t.co/i6GXXWsgmm)
-> — 川普等政要…直译推 (@zhiyitw33) [March 12, 2021](https://twitter.com/zhiyitw33/status/1370326526537908225?ref_src=twsrc%5Etfw)
+**原文翻译：**
 
+# **归咎于中共国的由微软漏洞发起的攻击演变为全球危机**
 
+[!\[\]()!\[\](https://spark.adobe.com/page/Fxu44re0BQTUv/images/59998820-1a41-4a42-b449-1cf167da2052.jpg?asset_id=07b453f2-cafc-4fec-b7b3-e9977f14a7ff&amp;img_etag=%223ff9b24f5321fc7380188d7c20f7af88%22&amp;size=2560)](https://spark.adobe.com/page/Fxu44re0BQTUv/images/59998820-1a41-4a42-b449-1cf167da2052.jpg?asset_id=07b453f2-cafc-4fec-b7b3-e9977f14a7ff&amp;img_etag=%223ff9b24f5321fc7380188d7c20f7af88%22&amp;size=1024)台北的Computex科技展（摄影师：SamYeh，法新社、盖蒂图片社）
 
+对微软公司出品的、被广泛使用的企业电子邮件软件的复杂攻击正在演变为一场全球的网络安全危机。黑客正试图在企业对计算机系统安全进行加固之前，竞相感染尽可能多的受害者。据微软称，这次攻击始于中共国政府支持的黑客组织。而根据一位知情的前美国高级官员称，到目前为止，全球至少有6万名已知受害者。这些受害者很多似乎是中小型企业，在微软努力修补漏洞期间，因黑客的广泛攻击而沦陷。
 
+欧洲银行管理局也成为最新的受害者之一。该机构周日表示，其微软服务器上的邮件中个人数据的存取权限已被攻破。据马里兰州埃利科特城(Ellicott City)一家检测客户安全的公司Huntress周五的一篇博客文章称，迄今为止确定的其他受害公司包括银行、电力供应商、敬老院以及一家冰淇淋公司。一家要求匿名的美国安全公司表示，仅该公司的专家就正在与至少50个受害者合作，试图快速确定黑客可能采集的数据，同时也试图将黑客从系统中驱逐。这个迅速升级的攻击发生于SolarWindsCorp.被怀疑是俄罗斯网络攻击者攻破后几个月，并引起了美国国家安全官员的关切。此次攻击备受瞩目，部分原因是最新的黑客行为能够如此快速地命中如此多的受害者。研究人员说，在攻击的最后阶段，攻击者似乎已经自动化了这一过程，在短短几天之内席卷了成千上万的新受害者。
 
-> 众议员布莱恩·马斯特:
-> 今天，我将提出一项法案，就 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 的完全缺乏透明度和对冠状病毒的处理不当，对其追究责任！
-> 
-> 【转福克斯新闻：共和党众议员马斯特提议，因中共对新冠病毒爆发的应对行为，将永久扣留美国对中共国的债务付款
-> 
-> 共和党人的法案指控中国共产党“故意积极掩盖” 新冠病毒COVID数据】 [https://t.co/ztbh9ZW2xH](https://t.co/ztbh9ZW2xH)
-> — 川普等政要…直译推 (@zhiyitw33) [March 12, 2021](https://twitter.com/zhiyitw33/status/1370324655328874500?ref_src=twsrc%5Etfw)
+[!\[\]()!\[\](https://spark.adobe.com/page/Fxu44re0BQTUv/images/dc1635f2-65f8-4890-af0e-47e0e227764e.jpg?asset_id=71ccd6ec-bb64-4769-ae39-800e4f3dd74f&amp;img_etag=%22506c4b9db024f818eabde73bbbbfd82c%22&amp;size=2560)](https://spark.adobe.com/page/Fxu44re0BQTUv/images/dc1635f2-65f8-4890-af0e-47e0e227764e.jpg?asset_id=71ccd6ec-bb64-4769-ae39-800e4f3dd74f&amp;img_etag=%22506c4b9db024f818eabde73bbbbfd82c%22&amp;size=1024)
 
+《纽约时报》援引身份不明的官员的话报道，华盛顿正在准备未来三周内采取打击外来入侵的第一轮重大举措。这些举措计划在俄罗斯网络上采取一系列秘密行动，并结合经济制裁，向普金总统及其情报部门发出信号。乔·拜登总统可能会发布一项行政命令，以支持联邦机构对抗俄罗斯黑客。一名白宫官员周六在一封电子邮件中写道：“我们正在让政府采取整体回应，以评估和解决影响。这是一个仍在发展的活跃威胁，我们敦促网络运营商非常认真地对待它。”
 
+据位于弗吉尼亚州北部的Volexity公司负责人史蒂文·阿代尔(Steven Adair)称，一家被微软称为Hafnium的中共国黑客组织似乎已经通过流行的微软Exchange电子邮件软件闯入了私人和政府计算机网络，最初几个月仅针对了少数受害者。Volexity公司帮助微软确定了被黑客利用的缺陷，该软件巨头周二发布了修复程序。
 
-#### 美国疫苗
+疑似俄罗斯黑客通过篡改IT管理软件制造商SolarWindsLLC的更新侵入9个联邦机构和至少100家公司之后，仅仅几个月后就出现了第二次网络安全危机。捍卫世界计算机系统的网络安全专家表示，他们越来越感到沮丧和疲惫。
 
-现任总统拜登于周四晚首次公开正式发表讲话，他表示将让各州在不晚于5月1日之前让所有成年人（18岁及以上）有资格接种冠状病毒疫苗。
+“累了”
 
-他同时号召说，“ 但我需要你们，美国人民，每个美国人都尽自己的一份力量。”，即每个人都要为自己和家庭的健康去接种疫苗。这样到了7月4日美国独立日，人们可以自由聚会聚餐，美国就从病毒中独立出来。
+总部位于加州米尔皮塔斯(Milpitas)的网络安全公司FireEye Inc.高级副总裁查尔斯·卡马克尔(Charles Carmakal)说：“好人们已经累了。”
 
+当被问及微软将该攻击归咎于中共国时，中共国外交部发言人周三表示，中共国“坚决反对和打击各种形式的网络攻击和网络盗窃”，并表示指责特定国家是“高度敏感的政治问题”。
 
+最近的事件以及SolarWinds遭受的攻击都显示了现代网络的脆弱性，以及国家支持黑客行为的复杂性。这些黑客可以识别难以发现的漏洞，甚至制造漏洞进行间谍活动。它们还涉及复杂的网络攻击，这些攻击最初将覆盖大量的计算机，然后随着攻击者集中精力而缩小范围，受到影响的组织可能需要数周或数月时间才能解决攻击。
 
-> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) will instruct states to make all adults to be eligible for COVID vaccine no later than May 1 [https://t.co/AcSmNt900h](https://t.co/AcSmNt900h) [#JustTheNews](https://twitter.com/hashtag/JustTheNews?src=hash&amp;ref_src=twsrc%5Etfw) [@alexnitzberg](https://twitter.com/alexnitzberg?ref_src=twsrc%5Etfw)
-> — Just the News (@JustTheNews) [March 12, 2021](https://twitter.com/JustTheNews/status/1370182921236013058?ref_src=twsrc%5Etfw)
+卡马克尔说，对于此次的微软漏洞，仅简单地安装公司提供的更新不会从网络中排除攻击者。若要排除，需要对于受影响的系统进行审查。白宫也进行了同样的强调，包括国家安全委员会的推文，敦促越来越多的受害者仔细梳理电脑中攻击者的迹象。阿代尔说，最初，中共国的黑客似乎是在瞄准美国高价值的情报目标。在大约一周前，一切都变了，其他身份不明的黑客组织开始在短时间内袭击成千上万的受害者，并插入了可让他们以后获得访问权的隐藏软件。
 
+**“大规模漏洞攻击”**
 
-[https://justthenews.com/government/white-house/biden-will-instruct-states-make-all-adults-be-eligible-covid-vaccine-no](https://justthenews.com/government/white-house/biden-will-instruct-states-make-all-adults-be-eligible-covid-vaccine-no)
+[!\[\]()!\[\](https://spark.adobe.com/page/Fxu44re0BQTUv/images/e6d581f7-0c17-437b-9766-5631bea676ef.jpg?asset_id=c6837b85-1660-478d-8756-574706beb97d&amp;img_etag=%221ef0f5d02dcd06ec91f7ce97ab06757a%22&amp;size=2560)](https://spark.adobe.com/page/Fxu44re0BQTUv/images/e6d581f7-0c17-437b-9766-5631bea676ef.jpg?asset_id=c6837b85-1660-478d-8756-574706beb97d&amp;img_etag=%221ef0f5d02dcd06ec91f7ce97ab06757a%22&amp;size=1024)
 
+阿代尔说：“在进行了复杂的准备后，他们开始大规模的漏洞攻击。他们不分青红皂白地攻击全球的Exchange服务器，这些攻击与目的、规模或行业无关。他们正在攻击他们能够攻击的每一台服务器。”
 
-#### 关注香港
+阿代尔说，其他黑客组织可能也发现了相同的漏洞，并开始了自己的攻击。也可能中共国希望捕获尽可能多的受害者，然后找出哪些具有情报价值。
 
-3月11日每国政府发言人纳得-普莱斯就中共对香港实施爱国者选举法表示：
+无论哪种方式，攻击如此成功且如此迅速，以至于黑客似乎已经找到了使该过程自动化的方法。阿代尔说：“如果你正在运行一台Exchange服务器，那么你很可能是受害者。”
 
-“真正的爱国者会聆听他们所领导的人的意见，而不是试图令他们噤若寒蝉。美国谴责中（共）国对香港民主体制的攻击，并敦促中（共）国履行其义务。#与香港站在一起 ”
+来自其他安全公司的数据表明，攻击的范围最终可能不会那么糟糕。来自Huntress的研究人员检查了其合作伙伴网络上大约3000台易受攻击的服务器，发现了约350例感染，比例刚刚超过10%。尽管SolarWinds黑客感染了各种规模的组织，但最新的一批受害者中，很多是中小型企业和地方政府机构。受影响最大的组织是那些拥有运行着易受攻击软件并直接暴露在互联网上的电子邮件服务器的组织，而大型组织通常会避免这种危险的服务器部署方式。
 
+南加州网络安全监测服务公司Milton Security Group Inc.的创始人吉姆·麦克默里(Jim McMurry)说，规模较小的组织“由于新冠肺炎引起的关闭已经在苦苦挣扎，而遭受的攻击加剧了已经很糟糕的局面。我从与一些客户的合作中了解到，这将消耗大量的时间进行跟踪、清理并确保他们没有受到最初的攻击载体以外的影响。”
 
+麦克默里说，这个问题“非常糟糕”，但他补充说，因为“漏洞是可被补丁修复的”，因此损失应该在一定程度上能被减轻。
 
-> True patriots listen to those they govern rather than attempt to silence them. The United States condemns the PRC’s assault on democratic institutions in Hong Kong and urges the PRC to uphold its obligations. [#StandWithHongKong](https://twitter.com/hashtag/StandWithHongKong?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/Zfiq3h27Wj](https://t.co/Zfiq3h27Wj)
-> — Ned Price (@StateDeptSpox) [March 12, 2021](https://twitter.com/StateDeptSpox/status/1370165893947387908?ref_src=twsrc%5Etfw)
+微软表示，使用其基于云的电子邮件系统的客户不受影响。几位专家表示，利用自动化技术发起复杂攻击，可能标志着网络安全进入了一个新的令人恐惧的时代，这有可能使防御者的有限资源不堪一击。
 
+网络安全顾问亚历克斯·斯塔莫斯(Alex Stamos)表示，某些最初的感染似乎是自动扫描和安装恶意软件导致的。他说，调查人员将寻找导致黑客采取下一步行动并窃取数据并在稍后搜索它们以获取有价值信息的感染（例如电子邮件存档）。
 
+斯塔莫斯说：“如果我是这些黑客团队的一员，我会不分青红皂白地尽快提取电子邮件，然后从中挖掘有价值数据。”
 
-3月11日现任国务卿安东尼-布林肯称：“（中共国）对政治参与和民主代表权的新限制削弱了香港的民主制度，也违背了中（共）国的国际承诺。我们与盟友和合作伙伴一起为香港人的权利和自由发声。#與香港站在一起 ”
+[原文链接](https://www.washingtonpost.com/business/on-small-business/microsoft-attack-blamed-on-china-morphs-into-global-crisis/2021/03/08/21cf8dac-7fe5-11eb-be22-32d331d87530_story.html)
 
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
-> New limits on political participation and democratic representation decimate democratic institutions in HK and run counter to PRC international commitments. We stand with allies and partners speaking out for the rights and freedoms of people in Hong Kong. [#StandWithHongKong](https://twitter.com/hashtag/StandWithHongKong?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Secretary Antony Blinken (@SecBlinken) [March 12, 2021](https://twitter.com/SecBlinken/status/1370164477438656513?ref_src=twsrc%5Etfw)
+编辑：【英国伦敦喜庄园编辑部】
 
+[!\[\]()!\[\](https://spark.adobe.com/page/Fxu44re0BQTUv/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/Fxu44re0BQTUv/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-
-同一天纳得称：“我们强烈谴责缅甸军方通过吊销几家地方新闻机构的执照来压制#自由媒体的声音。我们仍然对言论自由受到越来越多的攻击深表关切，并敦促释放被不公正拘留的记者。”
-
-
-
-> We strongly condemn the Burmese military's efforts to silence the voices of the [#FreeMedia](https://twitter.com/hashtag/FreeMedia?src=hash&amp;ref_src=twsrc%5Etfw) by revoking the licenses of several local news outlets. We remain deeply concerned about increasing attacks on freedom of expression and urge the release of unjustly detained journalists.
-> — Ned Price (@StateDeptSpox) [March 11, 2021](https://twitter.com/StateDeptSpox/status/1370121036608503809?ref_src=twsrc%5Etfw)
-
-
-
-3月12日左媒彭博社的推文如下。
-
-香港到处都是中（共）国重拳出击的证据，从关闭的店面到被封锁的建筑物。
-
-从照片探索香港今昔的变化。
-
-
-
-> Evidence of China’s heavy hand is all around Hong Kong, from shuttered storefronts to barricaded buildings 
-> 
-> Explore how Hong Kong has changed in before-and-after photos ➡️ [https://t.co/dgz2b0DcQ7](https://t.co/dgz2b0DcQ7) [pic.twitter.com/OyHtAZc5uC](https://t.co/OyHtAZc5uC)
-> — Bloomberg (@business) [March 12, 2021](https://twitter.com/business/status/1370332959065174021?ref_src=twsrc%5Etfw)
-
-
-
-更多香港照片详见 [https://www.bloomberg.com/graphics/2021-china-reshaping-hong-kong/?utm\_source=twitter&cmpid=socialflow-twitter-business&utm\_medium=social&utm\_content=business&utm\_campaign=socialflow-organic](https://www.bloomberg.com/graphics/2021-china-reshaping-hong-kong/?utm_source=twitter&amp;cmpid=socialflow-twitter-business&amp;utm_medium=social&amp;utm_content=business&amp;utm_campaign=socialflow-organic)
-
-#### 起诉川普
-
-3月11日前尼克松白宫法律顾问约翰-迪恩预测川普将很快被起诉。
-迪恩在推特上说：”距离检察官万斯起诉唐纳德及其公司只是早晚的问题”。
-
-
-
-> Former Nixon White House Counsel John Dean predicts Trump will be indicted soon | Just The News [https://t.co/gMssv1zfOP](https://t.co/gMssv1zfOP)
-> — John Solomon (@jsolomonReports) [March 12, 2021](https://twitter.com/jsolomonReports/status/1370231679416205316?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-（本文当日持续更新中）
-
-
-
-文章观点部分仅代表作者本人。
-
-
-
-作者：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
-
-
-
-0
++1
