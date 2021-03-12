@@ -1,29 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 已经接种新冠疫苗的空姐不幸染上中共冠状病毒
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/969575/)
+## 美共和党众议员揭露民主党控枪法案背后的阴谋
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/969703/)
 
-编译：西望
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Capture-3.png)
-新西兰卫生部官员在周一下午（3月8号）证实一名已经接种了新冠疫苗的空姐染上了中共冠状病毒。
+撰稿：光耀华夏
 
-卫生部官员表示这名空姐是在前一天的例行检测中呈阳性， 其基因组测试的结果将在本周二下午公布。这名空姐2月28日从日本返回新西兰，当时的测试结果显示是阴性。公共卫生机构的专家保守估计这名空姐可能在2月28日的测试之后就一直具有传染性。新西兰总理Jacinda Ardern周一透露，该名空姐已经接种了新冠疫苗。但是， 卫生部的官员随后又表示，她“极有可能”在接种疫苗之前就已经感染了中共冠状病毒。
+素材评论：Jenny
+原视频来自Newsmax TV
+3月11日，美国共和党众议员麦迪逊·科索恩（Madison Cawthorn）在接受Newsmax TV的American Agenda节目采访时对民主党刚刚在国会通过的两项控枪法案进行了深入的解读和严厉的谴责。该控枪法案把枪支购买者的身份背景调查时间从三天延长至十天，并大大限制枪支的转借或转让。
 
-尽管这名空姐在3月3日曾去过奥克兰机场的Countdown超市， 但是 当天去过该超市的其他人员并没有被要求自我隔离。这名空姐的三名家庭成员在周日也接受了病毒测试，其结果均为阴性。其中一名家庭成员在周日早晨曾经去过一家高尔夫球场， 该球场也没有被要求进行排查。但是该空姐曾经去过的一家诊所就被要求逐个排查。现在该名空姐及其家庭成员仍在家中自我隔离。与该名空姐一起工作的十四名机组人员，也被要求自我隔离并重新进行检测。
+科索恩称一个“武装化”（weaponized）的政府机构意欲取消美国民众的拥枪权，无论他们的口号表面上看起来多么冠冕堂皇（it doesn’t sound so devilish on its surface），多么高大上（extraordinarily benign names），但都是与美国宪法背道而驰的，是荒谬的。
 
-卫生部表示，周一发现的五起新病例都是在3月6日来自印度和巴西的航班上发现的。
+美国宪法第二修正案（Second Amendment）规定： “管理良好的民兵对于自由州的安全实属必要；故人民持有和携带武器的权利不容侵犯。”（A well regulated militia, being necessary to the security of a free state, the right of the people to keep and bear arms, shall not be infringed.）
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210312_Task5.jpg)图片来自网络
+拥枪权的主要目的是防止政府权力膨胀进而侵犯公民的个人权力。这一点放在如今的美国更具现实意义，一方面大量的移民涌入美国，另一方面由于中共病毒的影响，大量罪犯从监狱释放。与此同时，民主党却试图解除美国人的武装，其险恶用心大家心知肚明。
 
-新西兰目前的活跃案件总数为78，已经确诊的病例总数为2049。
+**【评论：民主党狐狸尾巴露出来了，开始为取消拥枪权做铺垫了。当美国人没枪了，他们就可以大肆开始中共模式的高压统治，太邪恶了！再次被人说中了！】**
 
-评论： 前香港大学公共卫生学院传染病研究中心的病毒和免疫学研究员闫丽梦博士早就想全世界发出了警告。中共病毒是一种具有强变异特性的病毒，短期内不要指望有效疫苗，也不要指望群体免疫。这种病毒会使人们产生抗体依赖性增强效应（ADE）。ADE是指第一次感染后形成的次优抗体会在第二次感染时帮助病毒更容易进入细胞。即使感染过病毒、有了免疫力也不意味将来就不会再感染。如果人们接种了这种病毒的疫苗，ADE还会使他们处于危险之中。这就是为什么我们看到很多人在第二次感染中共冠状病毒时，会出现更严重的症状，甚至死亡。虽然新西兰地处一隅，在地理位置上有着独特的优势， 但是随着病毒的不断变异，如果只是加强边境和隔离区的管理，而不去追究病毒的来源，是不可能在这场全人类的大灾难中独善其身的。  要想从根本上解决新冠病毒危机，只有消灭病毒的根源-中共。
+（本文仅代表作者观点，视频字幕来自原文翻译）
 
-原文链接：
+参考来源：
 
-[https://www.stuff.co.nz/national/health/coronavirus/124468091/covid19-five-new-cases-in-miq-police-search-for-gymgoer-linked-to-february-cluster](https://www.stuff.co.nz/national/health/coronavirus/124468091/covid19-five-new-cases-in-miq-police-search-for-gymgoer-linked-to-february-cluster)
+1. [科索恩议员Newsmax采访](https://www.newsmax.com/newsmax-tv/cawthorn-guncontrol-fbi-doj/2021/03/11/id/1013505/)
+2. [Wikipedia: Gun politics in the United States](https://en.wikipedia.org/wiki/Gun_politics_in_the_United_States)
 
-图片出处：
-
-[https://tech.sina.cn/2020-01-23/detail-iihnzhha4315366.d.html](https://tech.sina.cn/2020-01-23/detail-iihnzhha4315366.d.html)
-
+![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
 0

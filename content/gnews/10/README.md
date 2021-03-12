@@ -1,13 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2019年皮特·达扎克透露在实验室可以轻而易举改造冠状病毒
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/970027/)
+## 闫博士一周锦集第8期
+` 喜馬拉雅多語組` [轉載自GNews](https://gnews.org/zh-hans/970173/)
 
-2019年皮特·达扎克在采访中透露在实验室可以轻而易举改造冠状病毒，只需将一个病毒的刺突蛋白嫁接到另一个病毒的骨架即可。
+#### 撰稿：问夏、CYC文穎、感言
+校对 ：任意東西
+播音：大腳印
+视频：归真
 
-By： 【秘密翻译组 G-Translators】
-
-
+[闫博士每周锦集 8-PDF](https://gnews.org/wp-content/uploads/2021/03/閆博士每週錦集-8-P.pdf)[下載](https://gnews.org/wp-content/uploads/2021/03/閆博士每週錦集-8-P.pdf)
 
 0

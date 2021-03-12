@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Peter Daszak承认没有向武毒所要过所隐藏的蝙蝠病毒基因序列
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/969929/)
+## 2019年皮特·达扎克透露在实验室可以轻而易举改造冠状病毒
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/970027/)
 
-3/10/2021武汉病毒研究隐藏了1.3万多蝙蝠病毒基因序列，作为调查新冠病毒起源的世卫专家组领头人Peter Daszak亲口承认没有向武毒所要过这些关键数据信息。
+2019年皮特·达扎克在采访中透露在实验室可以轻而易举改造冠状病毒，只需将一个病毒的刺突蛋白嫁接到另一个病毒的骨架即可。
 
 By： 【秘密翻译组 G-Translators】
 
