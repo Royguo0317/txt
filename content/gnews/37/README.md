@@ -1,101 +1,173 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【大卫直播专题】法治和法制的区别
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/969973/)
+## 《新闻快递》节目摘要2021.03.05
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/970029/)
 
-听写/整理：华夏神州
+《新闻快递》栏目组：Beicy数学老师，文玉，1818;
 
+校对/审核：宁缺； Page: 1818
 
-2019-03-01
-今天是2019年的3月1号，我是大家熟悉的大卫，今天跟大家聊一下法治基金。
+引言：
 
-从我的角度想聊一聊，我对法治基金的一些看法想法。因为最近发生了那么多事情，很多人评论这件事情，评论法治基金。
+英国伦敦喜庄园GTV直播节目《新闻快递News Express》，每周一和周五英国时间18:30为战友带来美国、英国及国内的热点新闻。
 
-## “**法治”和”法制“的区别，”**
-**Rule by Law“与”Rule of Law“之不同**
+[!\[\]()!\[\](https://spark.adobe.com/page/Rf13jgI1BaAon/images/68b1895a-2e04-4919-ac98-e1089d7c288a.jpg?asset_id=b20045c0-7b5e-4385-b9af-f5366fab064f&amp;img_etag=%22f845a6ba3fdcdf12b7730f8c9e9ca8e4%22&amp;size=2560)](https://spark.adobe.com/page/Rf13jgI1BaAon/images/68b1895a-2e04-4919-ac98-e1089d7c288a.jpg?asset_id=b20045c0-7b5e-4385-b9af-f5366fab064f&amp;img_etag=%22f845a6ba3fdcdf12b7730f8c9e9ca8e4%22&amp;size=1024)
 
-我也来说一说我的想法，首先我们大家谈这个话题之前，我们要明确这样两个概念。“**法制”这个是制度的“制”，英文单词写为Rule by Law。**
+[**🔗GTV-UK-1号台精彩回看**](https://gtv.org/video/id=6042909794761a708f1be950)
 
-       OK另外一个就是我们现在说的，法治中国。**法治基金是治理的“治”，英文单词写在为Rule of Law。**虽然只有一字之差，但是意义可是天壤之别。那么制度的“制”，其实英文单词已经给出答案了。
+## 《新闻快递》节目摘要2021.03.05
 
-      法制，这句话Rule by Law里边，它的核心点、核心词在哪？实际上强调的是Law，强调了法律的这个工具。那么法制总的来说就是什么意思呢?管理国家,一个国家机器统治阶级,管理这个国家所用到的所有的法律的一个统称。那么站在这个统治阶级的立场
+#### 本期主题：
 
-       他确实构建了一个法制社会，大家知道是制度的“制”，可是他强调的是法律，使用法律做为工具管控国家、管控社会，当然也管控人民。
+1. 科学家联名质疑病毒溯源调查，中共帮凶浮出水面；
 
-## **但是我们今天谈的我们所追求的，是治理的“法治”，它的意义在哪呢？**
+2. 总加速师变身习特勒，废除“一国两制”，香港被彻底“中共化”；
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/hqdefault.jpg)
+3. 中美互相视对方为“最大威胁”，美议员“三赢”议案加速脱钩；
 
-还是英文给出了答案，Rule of Law。这个强调的是**Rule，没错，就是规矩。**
+4. 七哥：君子必和小人斗，还要出手更快更狠！
 
-       什么意思呢？如果你把法律比作一个工具的话，管理这个国家，每个国家每个社会，无论是西方还是我们中国，都需要法律来管控社会。但是法治治理的“治”对抗的是什么？人治，对不对？
+5. 香港BNO移民实战信息4: 英国国民（海外）签证对家庭成员的界定
 
-       就因为我们人性存在的弱点，如果人性的弱点，恶人用法律去管理国家管理社会。他带来的只能是不公平、不公正，和对这个社会的伤害。所以才需要用规矩，就是这个Ruie来管理法律，管理施行法律的人。
+### 新闻线索【1】以毒灭共，病毒&疫苗次生危害持续全球
 
-      这才是两个的本质区别：一个是强调Law，强调了用法律去管控社会。一个强调的是Ruie，制定一个规矩。合理的管理这个法律、管理施行法律的人，这个社会才能在一个平衡、公平、公正的环境下发展。
+#### 疫情数据播报
+[!\[\]()!\[\](https://spark.adobe.com/page/Rf13jgI1BaAon/images/5f28d211-b58f-4ec0-8ae1-2a80c391ba8e.jpg?asset_id=4391935f-cab3-4af7-b78d-32700db16c73&amp;img_etag=%226e82a5d5548fade9c841900f494b38c8%22&amp;size=2560)](https://spark.adobe.com/page/Rf13jgI1BaAon/images/5f28d211-b58f-4ec0-8ae1-2a80c391ba8e.jpg?asset_id=4391935f-cab3-4af7-b78d-32700db16c73&amp;img_etag=%226e82a5d5548fade9c841900f494b38c8%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Rf13jgI1BaAon/images/7230cb78-5705-4c69-9803-3ce31193c4a7.jpg?asset_id=43062097-ba50-48b6-b1ee-5a0df87bf0a1&amp;img_etag=%222e96fe0e63200b8b7d373561f88a0e02%22&amp;size=2560)](https://spark.adobe.com/page/Rf13jgI1BaAon/images/7230cb78-5705-4c69-9803-3ce31193c4a7.jpg?asset_id=43062097-ba50-48b6-b1ee-5a0df87bf0a1&amp;img_etag=%222e96fe0e63200b8b7d373561f88a0e02%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/Rf13jgI1BaAon/images/e8c6839f-462b-453d-82b0-44f8073d711c.jpg?asset_id=76b0e12a-5e64-4418-9015-5544bac7b7b1&amp;img_etag=%22b3833e08d7a47c5d538775b9e1ff0aaa%22&amp;size=2560)](https://spark.adobe.com/page/Rf13jgI1BaAon/images/e8c6839f-462b-453d-82b0-44f8073d711c.jpg?asset_id=76b0e12a-5e64-4418-9015-5544bac7b7b1&amp;img_etag=%22b3833e08d7a47c5d538775b9e1ff0aaa%22&amp;size=1024)
+**[🔗GNews: 新电邮揭露WHO、NIH配合中共国修改保密条款以掩盖真相](https://gnews.org/zh-hans/951366/)**
 
-       我说的是这个道理吧，那么今天我们谈法治基金，就要搞清楚这个话题。因为今天的中国社会人治、法治伴随着我们很难去区分，或者我们麻痹了、我们糊涂了，这点一定要搞清楚，法治基金的意义存在就在于此。
+**[🔗 七哥盖特视频：3月2日：伟大的美女天使．路德兄弟！以毒灭共唯我新中国联邦能为可成！](https://gtv.org/getter/603ebbb3195851590238cc3c)**
 
-       因为中国人走到今天，我们会看到我们最不善于的或者我们做了最多的错事，就是破坏了太多的Ruie，就是因为我们没有规矩，法律本身只是个工具；就像一把枪，这把枪可以是自卫武器，也可以是杀人工具，所以我们怎么管理这把枪。制定一个规矩，而且是大家认可的、不在政治和其他的因素干扰下的，这才是真正的法治社会，才真正的公平的社会。
+**[🔗 门户专家：新证据显示美国政府和美国科学机构参与了对冠状病毒起源的掩盖](https://www.thegatewaypundit.com/2021/03/exclusive-new-evidence-shows-u-s-government-american-scientific-establishment-involved-cover-covid-19s-origin/)**
 
-       那么法治基金的创建，就是为了对抗今天中国社会人治带来的这些人道灾难，和社会现象。不用我太多的举例子，大家都知道，今天的中国社会环境的污染，道德宗教信仰的滑坡、很多人间的炼狱，我们看到的那些悲剧，都是因为我们缺少了“法治”。而是人治下的法律变成了工具，为统治阶级服务，管控了社会，或者说管控了人民，所以这可是天壤之别。
+**[🔗 媒体组织称，中共国将Covid-19用作“另一种控制记者的方式”](https://www.scmp.com/news/china/politics/article/3123580/china-using-covid-19-yet-another-way-control-journalists-media)**
+[!\[\]()!\[\](https://spark.adobe.com/page/Rf13jgI1BaAon/images/a8a7ee1b-8b83-47e6-aad9-ae26c1a8749e.jpg?asset_id=52283583-7b08-4037-8050-d7d16d13755a&amp;img_etag=%226b8c6c4970e405a48a4a044d148f295e%22&amp;size=2560)](https://spark.adobe.com/page/Rf13jgI1BaAon/images/a8a7ee1b-8b83-47e6-aad9-ae26c1a8749e.jpg?asset_id=52283583-7b08-4037-8050-d7d16d13755a&amp;img_etag=%226b8c6c4970e405a48a4a044d148f295e%22&amp;size=1024)
+**[🔗 路透社民意调查：超过60％的俄罗斯人不希望使用Sputnik V疫苗，将冠状病毒视为生物武器](https://www.reuters.com/article/us-health-coronavirus-russia-poll/over-60-of-russians-dont-want-sputnik-v-vaccine-see-coronavirus-as-biological-weapon-reuters-poll-idUSKBN2AT2XK)**
 
+**[🔗布赖特巴特： 日本要求中共国停止对日本人的肛门冠状病毒测试](https://www.breitbart.com/health/2021/03/02/japan-says-chinas-anal-coronavirus-tests-causing-great-psychological-pain/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed:+breitbart+%28Breitbart+News%29)**
 
-       那么我们回到法治基金，我说到这，我最近看到路德、sara这些战友推下面，很多人去打法治基金、去打这些战友们。一线的战友，包括很多言论，有的脏水泼过来，我看了一下，我觉得很可悲，我是替这些人觉得可悲。为什么呢？大家想一想中国几千年的历史，从秦汉到清，都可以追溯到中国法家这些影子。无论是那些变法，还有那些代表人物，你都能找到这样的例子。
+**[🔗 快报：这是怎么回事！世卫组织团队对中共国冠状病毒起源理论深表怀疑](https://www.express.co.uk/news/world/1404416/china-news-coronavirus-origin-outbreak-wuhan-WHO-report?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed:+daily-express-world-news+%28Express+::+World+Feed%29)**
 
-##        **法制是强调统治阶级怎么管控老百姓**
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/unnamed-6.jpg)
-这就是什么？我们前面说的法制，那个制度的“制”。事实上都是在强调统治阶级，怎么治理国家，怎么管理国家、管控老百姓。也就是说，说到底是统治术或者叫治国术，这些都是在这个范畴内的。可是我们谈的法治基金，治理的“治”；是站在现代的文明社会，历史发展到今天的，社会主流价值观里最重要的，强调人权、强调自由、强调公平！这样的一个国家在这样的体制下，才可以真正的得以健康的发展。
+**[🔗华盛顿时报：国际病毒专家小组要求国际法医检查CCP冠状病毒起源](https://www.washingtontimes.com/news/2021/mar/4/virus-experts-demand-new-probe-into-origins-of-cov/)**
+[!\[\]()!\[\](https://spark.adobe.com/page/Rf13jgI1BaAon/images/14b89a14-0269-4ce9-a1d6-39c1310a0d51.jpg?asset_id=eb781a4e-a81b-462f-8dd5-b409ba4d16de&amp;img_etag=%22cf888708e136bda150b52736514f8fe5%22&amp;size=2560)](https://spark.adobe.com/page/Rf13jgI1BaAon/images/14b89a14-0269-4ce9-a1d6-39c1310a0d51.jpg?asset_id=eb781a4e-a81b-462f-8dd5-b409ba4d16de&amp;img_etag=%22cf888708e136bda150b52736514f8fe5%22&amp;size=1024)
+**[🔗纽约时报中文网：部分科学家联署，质疑WHO武汉溯源调查](https://cn.nytimes.com/health/20210305/covid-virus-origins/)**
 
-       所以制度的“制”太low了，我们谈的是更高级的人类社会是治理的“治”，是法治基金的这个“治”。今天的中国社会就是因为缺少了规矩，缺少了约束权力
-的机制、管理如何实行法律的这样的一种秩序，所以才乱了。因为被统治阶级一个人，抓着法律的这把工具为所欲为、他想怎样就想怎样，所以才制造了这么多社
-会的悲剧，对不对？所以相比而下，中共每天宣传的法治社会，和我们所追求的文贵先生做的法治基金立竿见影。
+**[🔗波兰卫生部长以缺乏数据为由不推荐中共国疫苗](https://www.ntd.com/citing-lack-of-data-polish-health-minister-does-not-recommend-chinese-shot_575697.html)**
 
-      哪个是先进的？哪个是发达的？哪个是落后的？哪个是进步的？显而易见。
+**[🔗大纪元：荷兰病毒测试中心发生爆炸 警方：蓄意袭击](https://www.epochtimes.com/gb/21/3/3/n12787297.htm)**
 
-       那么我是想说，你还在打的这些人，如果说今天我们追求的法治基金的这个“法治”，不是给每个中国人带来切实利益的吗？如果你们还在打的话，这就显而易见了，就是敌人嘛，对吧？至于你说攻击法治基金的话，拿出证据嘛、用证据说话。所以我们看到更多的人，都是一些躲在键盘后面的那些loser，只会泼脏水，太low了。
-
-        如果你质疑法治基金，你可以拿出证据走法律途径，用法律手段证明你是正确的。但是我们今天看到推特上满天飞的，说句心里话没有一个是我们的对手，因为他们的水平太low了，还不够。所以说我不想评论这些，抨击法治基金的那些评论。
-
-## **法治基金追求的，就是对抗人治，用“真善”对抗中共的“虚假恶”**
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/IMG_2662-1.jpg)
-我还是想说法治基金的另外的一个意义，文贵先生从出道从出来，他所做的一系列的事情，大家回忆一下：17年从最初的爆料，到4.19的断播、到后面爆海航， 6.16、 7.17等等，最后到11.20发布会、法治基金的创建。大家看明白事实是什么？文贵先生整体的时间轴战略部署，还有他前后一贯追求的逻辑，所做的事情你都能找到这个逻辑、找到前后的根据，你能看到他的章法、他的战法、还有他带来的效果。有逻辑、有事实，然后你再看带来的效果。那么我们再对比着看海外所谓革命的，反共的、六四的这些。。。怎么称他们呢？我真的找不到一个词。但是你看他们做了什么？
-
-有没有战法？有没有你做事的时间表？最后看有没有你做事的效果和结果？都没有！这还用说吗，显而易见嘛。如果你打击一个对手，你首先你要做到至少你拿出你的筹码对吧？你再来打击我。你啥都没有，然后你说你来灭我来了，你来打我来了；这不是笑话嘛、这不是演小品嘛。
-       所以说现在你看黑战友的、还有黑文贵的，打击法治基金的人，除了在那骂在那说风凉话，一副酸臭相以外；还能做什么？什么也做不出来。你觉得法治基金不好，你觉得法治基金哪里头有违法违规，你举证嘛。用法律手段，这不就是你能做的有力的还击。而不是站在那像泼妇骂街一样，像怨妇一样，有什么意义呢？
-
-       关键是法治基金追求的这个利益，最后追求的这个社会，是对每个中国老百姓受益的。那么你今天现在在喷的骂的那些华人，你是咋想的呢？这不是傻X嘛。
-
-        我是想说法治基金创建的节点，对于文贵先生一系列的战术部署下，在这个节点上时机成熟了，法治基金将来能干什么?它不仅仅是一个基金，一个募捐的事儿。大家最重要的是，我是刚才已经说了；对抗人治、对付中共对付CCP、对付这个政治体系，你没有一个坚强的后盾；没有一套法理依据，师出要有名！
+**🎞 视频：2015年出版的《非典非自然起源和人制人新种病毒基因武器》这本军事教材中，CCP对于当代基因武器这个概念就有了明确定义**
 
 
-       所以说法治基金本身它追求的，就是对抗人治，用“真善”对抗中共的“虚假恶”。另外一方面干革命咱不能玩嘴，战友们得有钱对不对？钱怎么来，合理合法让所有人看到那么多战友捐款，这就是正义的力量。所以法治基金事实上是什么，是捐助中国人的希望。法治基金的支持，是支持中国人的未来！所以有的人特别想说我做了什么？
 
-##  **法治基金的支持，是支持中国人自己的未来** ！ 
+**🎞****[GTV视频：蓬佩奥：有“充分的证据”表明冠状病毒起源于武汉实验室](https://gtv.org/getter/604169db9534a74bcaefaaa4)**
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/%E6%B3%957-scaled-1.jpg)
-
-你做什么不是给文贵做的，给我们自己。我们不用邀功不用请赏，只是根据自己的能力。你能多做的人你就多做一些，能力小的人你就尽其所能就可以了。关键是把这个力量推下去，关键是你要知道，法治基金将来能带来什么？它是吸引整个世界西方所有的，认清中共对抗中共的这样的力量，如果你没有一个正规的机构；我说白了，我私人要你一个捐款，我的账号都收不了钱。我得有一个正规的单位呀，法治基金就是一个正规的单位。它是管理这批资金，管理反共力量、统筹反共力量，号召反共、创建反共阵线的这样一个组织。所以它也是组织、也是基金、也是我们追求法治自由民主中国的一个力量；是我们的拳头、也是我们的武器、也是我们的家。
-
-       所以中国人现在是要看明白、虽然法治基金现在还小，但是他成长的过程、它带来大家开智的过程、是这个民族的希望。所以我们支持法治基金，捐款法治基金，不是捐款某个人哦。是捐款是支持我们中国人自己的未来、这个国家的希望未来！将来新的中国！真的我们需呼唤的那个、喜马拉雅新的中国时候，你回头去看法治基金。它扮演的角色就是未来新中国的雏形、他的管理、他的价值观、他所做的他所追求的。
-
-       所以说对抗这样的强权，我们必须要有力的武器、丰富自己的力量，让自己的肩膀厚实起来。所以法治基金就是我们最好的战斗阵地和家园，如果你看不到这个高度的话，
-那就白玩了战友们！今天就是跟大家浅谈我的想法。
-
-      总之江湖太乱了，现在是乱世各种牛鬼蛇神都蹦出来了。文贵为我们做了这么多，我们真的是要用自己的力量往前推进一下，去支持法治基金，就是支持我们自己！感谢每位战友，后面我会多做一些节目多跟大家聊，聊一些具体的案例。比如我给大家讲一讲王清林的案子，讲讲中纪委或者所谓的专案组，他们的思维。今天中国社会所有的都是在政在先法在后，这样一个思维逻辑下，就是这个CCP造成的。那么最大的犯罪集团，最大的犯罪分子就来自CCP。
-
-       所以我后面会用犯罪心理学，来给大家分析一下，这些人的行为模式。通过王清林这个案子，还有其他具体的案子给大家聊，当然还有王健案哦！别急，慢慢玩、战友们！今天就跟大家聊到这，谢谢每一位战友，谢谢大家！
-
-* * *
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+**🎞视频：纳瓦罗：群体免疫、疫苗都不能真正解决病毒，因为这个病毒可能是中共的生物武器。解决病毒的唯一办法是查清真相，查清中共到底在病毒里干了些什么**
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+**[🔗 GNews: 福尔摩斯历险记之中共病毒](https://gnews.org/zh-hans/949231/)**
 
+### 新闻线索【2】 香港圣城, 东方明珠变暗夜
+[!\[\]()!\[\](https://spark.adobe.com/page/Rf13jgI1BaAon/images/22b5e21c-b46c-41db-a23c-1ca93c09d7e7.jpg?asset_id=8b07cd3a-1add-423f-9140-d14a8361f893&amp;img_etag=%225f6d71459ed3c8a1e3f3776bcf55af57%22&amp;size=2560)](https://spark.adobe.com/page/Rf13jgI1BaAon/images/22b5e21c-b46c-41db-a23c-1ca93c09d7e7.jpg?asset_id=8b07cd3a-1add-423f-9140-d14a8361f893&amp;img_etag=%225f6d71459ed3c8a1e3f3776bcf55af57%22&amp;size=1024)
+**[🔗卫报：47名香港活动人士保释听证会后全部被羁押](https://www.theguardian.com/world/2021/mar/04/hong-kong-court-denies-bail-to-32-detainees-under-security-law)**
+
+**[🔗香港自由新闻：”一国两制”等香港重要词组从北京两会报告中消失](https://hongkongfp.com/2021/03/04/one-country-two-systems-and-other-key-hong-kong-phrases-disappear-from-beijings-two-sessions-report/)**
+
+**[🔗香港自由新闻：香港在多年高居榜首后，从经济自由指数中剔除，目前作为中国的一部分排名第107位](https://hongkongfp.com/2021/03/04/hong-kong-axed-from-economic-freedom-index-after-years-at-top-spot-now-ranked-107th-as-part-of-china/)**
+
+**🎞视频：七哥揭开林郑妖蛾伏击检查冠状病毒真相**
+
+**🎞视频：班农先生专访：中共在香港压制所有自由，西方社会听之任之，袖手旁观，还仍然跟他们贸易**
+
+
+
+[**🎞GTV视频：中共进一步加速香港大陆化**](https://gtv.org/getter/60420d6a9534a74bcaefcdb8)
+
+**[🔗Reddit：突发！香港🇭🇰前市委书记董建华在人民大会堂当场仆街！](https://www.reddit.com/r/chonglangTV/comments/ly3t0c/%E7%AA%81%E5%8F%91%E9%A6%99%E6%B8%AF%E5%89%8D%E5%B8%82%E5%A7%94%E4%B9%A6%E8%AE%B0%E8%91%A3%E5%BB%BA%E5%8D%8E%E5%9C%A8%E4%BA%BA%E6%B0%91%E5%A4%A7%E4%BC%9A%E5%A0%82%E5%BD%93%E5%9C%BA%E4%BB%86%E8%A1%97/)**
+
+**🎞视频：《愿荣光归香港》国语版**
+
+
+
+### 新闻线索【3】全球灭共, 以共灭共: 共产党员必须自救
+[!\[\]()!\[\](https://spark.adobe.com/page/Rf13jgI1BaAon/images/791c44ea-0399-4efc-b474-b6fe387340f9.jpg?asset_id=5e5a71d9-e7f4-4cb7-82c6-163b9cd6366c&amp;img_etag=%22f4a764c146eb38a67508f556f7726dbb%22&amp;size=2560)](https://spark.adobe.com/page/Rf13jgI1BaAon/images/791c44ea-0399-4efc-b474-b6fe387340f9.jpg?asset_id=5e5a71d9-e7f4-4cb7-82c6-163b9cd6366c&amp;img_etag=%22f4a764c146eb38a67508f556f7726dbb%22&amp;size=1024)
+**[🔗 卫报：澳参议员呼吁认定中共国对维吾尔人的虐待是种族灭绝罪](https://www.theguardian.com/world/2021/mar/02/australian-senator-calls-to-recognise-chinas-treatment-of-uighurs-as-genocide)**
+
+**[🔗 香港自由时报：美国国务委员布林肯称中国为21世纪最大的”地缘政治考验”，誓言支持香港人、维吾尔人](https://hongkongfp.com/2021/03/04/us-sec-of-state-blinken-calls-china-biggest-geopolitical-test-of-the-21st-century-vowing-support-for-hongkongers-uighurs/)**
+
+**[🔗 国家脉动：与共和党人相比，民主党3倍更有可能表达中共种族灭绝罪的观点](https://thenationalpulse.com/breaking/dems-ccp-favorability-vs-republicans/)**
+
+**[🔗 布赖特巴特：英国顶尖科学家帮助中共国发展核武器技术：报告](https://www.breitbart.com/europe/2021/03/03/top-british-scientists-helped-china-develop-nuclear-weapons-technology-report/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed:+breitbart+%28Breitbart+News%29)**
+[!\[\]()!\[\](https://spark.adobe.com/page/Rf13jgI1BaAon/images/7fe31b60-af63-4d88-bd12-a6619383a296.jpg?asset_id=c3597336-137f-4c1a-998a-f0fdeef0a62b&amp;img_etag=%22929d0f262dcb5702a74951b664a3a146%22&amp;size=2560)](https://spark.adobe.com/page/Rf13jgI1BaAon/images/7fe31b60-af63-4d88-bd12-a6619383a296.jpg?asset_id=c3597336-137f-4c1a-998a-f0fdeef0a62b&amp;img_etag=%22929d0f262dcb5702a74951b664a3a146%22&amp;size=1024)
+**[🔗 微软表示，中共国黑客通过微软邮件服务器软件锁定目标群体](https://www.reuters.com/article/us-usa-cyber-microsoft/microsoft-says-chinese-hackers-targeted-groups-via-server-software-idUSKCN2AU2MF)**
+
+**[🔗GNews: 犹他州众议院通过议案，要求关闭仅存的两所孔子学院](https://gnews.org/zh-hans/951310/)**
+
+**[🔗中共国商人因窃取美国商业秘密被起诉, 将面临最高10年监禁](https://thenationalpulse.com/breaking/businessman-indicted-for-stealing-trade-secrets/)**
+
+**[🔗布莱特巴特：YouTube将唐纳德·川普的CPAC演讲列入黑名单，暂停了RSBN频道](https://www.breitbart.com/tech/2021/03/04/youtube-blacklists-donald-trumps-cpac-speech-suspends-rsbn-channel/)**
+[!\[\]()!\[\](https://spark.adobe.com/page/Rf13jgI1BaAon/images/98a1d970-e695-4c97-a41b-b69c332989a7.jpg?asset_id=f42099ff-0183-4c92-992e-86e01719c626&amp;img_etag=%22a37b17593aa736f8ac51fb2c85701ddd%22&amp;size=2560)](https://spark.adobe.com/page/Rf13jgI1BaAon/images/98a1d970-e695-4c97-a41b-b69c332989a7.jpg?asset_id=f42099ff-0183-4c92-992e-86e01719c626&amp;img_etag=%22a37b17593aa736f8ac51fb2c85701ddd%22&amp;size=1024)
+**[🔗 大纪元：拜登政府商务部长吉娜·雷蒙多赞扬川普的中国关税有效](https://www.theepochtimes.com/bidens-commerce-chief-gina-raimondo-praises-trumps-china-tariffs-as-effective_3721803.html)**
+
+**[🔗卡马拉·哈里斯（Kamala Harris）代表乔·拜登（Joe Biden）与以色列总理本杰明·内塔尼亚胡（Benjamin Netanyahu）通话](https://www.thegatewaypundit.com/2021/03/kamala-harris-takes-call-israeli-prime-minister-benjamin-netanyahu-behalf-joe-biden/)**
+
+**[🔗 零对冲：习近平称美国为中国发展与安全的“最大威胁”](https://www.zerohedge.com/geopolitical/xi-jinping-calls-out-us-biggest-threat-chinas-development-security)**
+
+**🎞视频：众议员格林提起三赢议案，加速与中共国脱钩**
+
+
+
+**🎞视频：章家敦：首先要把中国人民与中共分开，中国人民渴望自由，而中共是黑帮，是跨国犯罪组织**
+
+
+
+**🎞视频：主持人问蓬佩奥哪一个敌国对美国威胁最大，蓬佩奥斩钉截铁地回答：中共！（不是中国）**
+
+
+
+**🎞视频：国务卿布林肯发表对外政策讲话，把对抗中共国列为优先工作重点**
+
+
+
+**🎞视频：OANN: 评习近平脱贫讲话**
+
+
+
+**[🎞推特视频：战友制作：共产党的本质](https://twitter.com/caogenxiaogex/status/1338301281018863616?s=20)**
+
+### 新闻线索【4】 新中国联邦
+[!\[\]()!\[\](https://spark.adobe.com/page/Rf13jgI1BaAon/images/5601cee1-8174-445f-9703-ba48fa40a87f.jpg?asset_id=3458a631-aa8e-4326-b6d7-c2aedcc3f138&amp;img_etag=%222cd2bf78986602b5e53c073788944c9e%22&amp;size=2560)](https://spark.adobe.com/page/Rf13jgI1BaAon/images/5601cee1-8174-445f-9703-ba48fa40a87f.jpg?asset_id=3458a631-aa8e-4326-b6d7-c2aedcc3f138&amp;img_etag=%222cd2bf78986602b5e53c073788944c9e%22&amp;size=1024)
+#### 🔗 英国香港BNO移民专题(4):
+
+**[a. 英国国民（海外）签证对家庭成员的界定](https://www.gov.uk/british-national-overseas-bno-visa/your-family-members)**
+
+**[b. 英国内政部解读香港BNO签证](https://homeofficemedia.blog.gov.uk/2021/01/29/media-factsheet-hong-kong-bnos/)**
+
+**[c. 青年流动计划签证(T5)](https://gtv.org/broadcast/watch/603bfb33047c4c3086e2c24e)**
+
+**[🔗 Getter：喜马拉雅农场联盟委员会00021号公告](https://gtv.org/getter/6040ffdb9534a74bcaef95ae)**
+
+**[🔗 Getter：郭文贵先生向GTV的1300把椅子投资者的重要公告](https://gtv.org/getter/603da5a6195851590238978a)**
+
+**[🔗 Gnews: 如何合理利用美国行政和法律手段一剑封喉魏丽红](https://gnews.org/zh-hans/923722/)**
+[!\[\]()!\[\](https://spark.adobe.com/page/Rf13jgI1BaAon/images/e7f4ddfb-356f-4162-abc6-dcfce8ae62b4.jpg?asset_id=5c8d6a68-1d9e-4761-8187-0eec51b8ab1b&amp;img_etag=%2277636926a834dc4d1c89fd525e17e622%22&amp;size=2560)](https://spark.adobe.com/page/Rf13jgI1BaAon/images/e7f4ddfb-356f-4162-abc6-dcfce8ae62b4.jpg?asset_id=5c8d6a68-1d9e-4761-8187-0eec51b8ab1b&amp;img_etag=%2277636926a834dc4d1c89fd525e17e622%22&amp;size=1024)
+**[🔗 500Miles推特：去年4月14日七哥直播视频：未来需要一个巨大的财务平台，巨大的人才储备，以及监督机制](https://twitter.com/Safeguard008/status/1363024672611205125?s=20)**
+
+**[🔗英国伦敦喜庄园新Discord邀请链接](https://spark.adobe.com/page/SC8Oe23tsW3aX/)**
+
+**[🔗英国伦敦喜庄园的英文GTV直播频道《GTV UK English》正式建立](https://gtv.org/user/602f9f5c047c4c3086d4f215)**
+
+**[🔗喜联盟Gnews编辑部Getter官方频道正式建立](https://gtv.org/user/602ab9a2be64150df857ef88)**
+
+### 新闻线索【5】七哥与战友Getter快递
+[!\[\]()!\[\](https://spark.adobe.com/page/Rf13jgI1BaAon/images/217da874-afc1-4f26-abe6-5bee30740961.png?asset_id=2e717310-3506-468a-983d-9ecc7de85b29&amp;img_etag=%222eff5ded3de3fbdaf5e1cb729aeec45b%22&amp;size=2560)](https://spark.adobe.com/page/Rf13jgI1BaAon/images/217da874-afc1-4f26-abe6-5bee30740961.png?asset_id=2e717310-3506-468a-983d-9ecc7de85b29&amp;img_etag=%222eff5ded3de3fbdaf5e1cb729aeec45b%22&amp;size=1024)[https://gtv.org/getter/604265909534a74bcaefde38](https://gtv.org/getter/604265909534a74bcaefde38)[!\[\]()!\[\](https://spark.adobe.com/page/Rf13jgI1BaAon/images/2a5307dd-5961-4aeb-9d7c-23c296a55073.png?asset_id=f674c59f-9819-4120-a28c-69a6eac2b17b&amp;img_etag=%227427f97536b8c734289b0f57ce5a778f%22&amp;size=2560)](https://spark.adobe.com/page/Rf13jgI1BaAon/images/2a5307dd-5961-4aeb-9d7c-23c296a55073.png?asset_id=f674c59f-9819-4120-a28c-69a6eac2b17b&amp;img_etag=%227427f97536b8c734289b0f57ce5a778f%22&amp;size=1024)[https://gtv.org/getter/603f9d469534a74bcaef472c](https://gtv.org/getter/603f9d469534a74bcaef472c)[!\[\]()!\[\](https://spark.adobe.com/page/Rf13jgI1BaAon/images/60f3f394-145a-4b72-8289-f01d39a33d6b.png?asset_id=c96540b0-7fd5-4b3c-82e5-f819f7061c89&amp;img_etag=%227d840332685a8cb7d7b46e2e21d4c25a%22&amp;size=2560)](https://spark.adobe.com/page/Rf13jgI1BaAon/images/60f3f394-145a-4b72-8289-f01d39a33d6b.png?asset_id=c96540b0-7fd5-4b3c-82e5-f819f7061c89&amp;img_etag=%227d840332685a8cb7d7b46e2e21d4c25a%22&amp;size=1024)[https://gtv.org/getter/60413ff49534a74bcaefa262](https://gtv.org/getter/60413ff49534a74bcaefa262)[!\[\]()!\[\](https://spark.adobe.com/page/Rf13jgI1BaAon/images/774a6fc5-4818-4b50-a4c1-14e64d6095e2.png?asset_id=86afed2b-cfc8-4eb3-9236-b71009a9aa0b&amp;img_etag=%223bec66a1367b366d20e85e0f1d2a4563%22&amp;size=2560)](https://spark.adobe.com/page/Rf13jgI1BaAon/images/774a6fc5-4818-4b50-a4c1-14e64d6095e2.png?asset_id=86afed2b-cfc8-4eb3-9236-b71009a9aa0b&amp;img_etag=%223bec66a1367b366d20e85e0f1d2a4563%22&amp;size=1024)[https://gtv.org/getter/603ebbb3195851590238cc3c](https://gtv.org/getter/603ebbb3195851590238cc3c)
+**[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)**
+
+**[点击观看英国伦敦喜庄园在G-TV的精彩直播视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)**
+
+**[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)**
+
+编辑：[**【英国伦敦喜庄园编辑部】**](https://spark.adobe.com/page/Rf13jgI1BaAon/)
+[!\[\]()!\[\](https://spark.adobe.com/page/Rf13jgI1BaAon/images/2bfe85de-cfb5-44dd-a77c-c5144a4e0bab.jpg?asset_id=b3fe0079-550b-45cc-9478-fcfa53fb3aef&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/Rf13jgI1BaAon/images/2bfe85de-cfb5-44dd-a77c-c5144a4e0bab.jpg?asset_id=b3fe0079-550b-45cc-9478-fcfa53fb3aef&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

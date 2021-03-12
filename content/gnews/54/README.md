@@ -1,29 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美共和党众议员揭露民主党控枪法案背后的阴谋
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/969703/)
+## 有关‘乌克兰骗局’的调查：川普弹劾，拜登现金，以及大规模谋杀
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/969701/)
 
-撰稿：光耀华夏
+翻译：康州盘古农场-战友小鸡
+校对：康州盘古农场-轰炸机
+编辑：康州盘古农场-Antsee-GTV
 
-素材评论：Jenny
-原视频来自Newsmax TV
-3月11日，美国共和党众议员麦迪逊·科索恩（Madison Cawthorn）在接受Newsmax TV的American Agenda节目采访时对民主党刚刚在国会通过的两项控枪法案进行了深入的解读和严厉的谴责。该控枪法案把枪支购买者的身份背景调查时间从三天延长至十天，并大大限制枪支的转借或转让。
+据《美国第一新闻网》（OAN）3月12日报道：
 
-科索恩称一个“武装化”（weaponized）的政府机构意欲取消美国民众的拥枪权，无论他们的口号表面上看起来多么冠冕堂皇（it doesn’t sound so devilish on its surface），多么高大上（extraordinarily benign names），但都是与美国宪法背道而驰的，是荒谬的。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-12-at-19.00.55.png)*图片来源：OAN*
 
-美国宪法第二修正案（Second Amendment）规定： “管理良好的民兵对于自由州的安全实属必要；故人民持有和携带武器的权利不容侵犯。”（A well regulated militia, being necessary to the security of a free state, the right of the people to keep and bear arms, shall not be infringed.）
-![]()![](https://gnews.org/wp-content/uploads/2021/03/20210312_Task5.jpg)图片来自网络
-拥枪权的主要目的是防止政府权力膨胀进而侵犯公民的个人权力。这一点放在如今的美国更具现实意义，一方面大量的移民涌入美国，另一方面由于中共病毒的影响，大量罪犯从监狱释放。与此同时，民主党却试图解除美国人的武装，其险恶用心大家心知肚明。
+华盛顿特区，《美国第一新闻网 》2020年1月21日宣布，其调查系列节目，由嘉宾主持人迈克尔-卡普托（Michael Caputo）主持的《乌克兰骗局: 弹劾、拜登现金和大规模谋杀》，美国东部时间1月25日星期六晚上10点，太平洋时间晚上7点，并在美东时间周日晚上10点，太平洋时间晚上7点首播。
 
-**【评论：民主党狐狸尾巴露出来了，开始为取消拥枪权做铺垫了。当美国人没枪了，他们就可以大肆开始中共模式的高压统治，太邪恶了！再次被人说中了！】**
+迈克尔-卡普托以一长串令人印象深刻的一对一独家采访报道，美国的乌克兰问题并不是从唐纳德-川普总统和乌克兰总统沃洛迪米尔-泽连斯基之间的一通电话开始的。事实上，在多年前美国就开始干涉乌克兰的选举，130人被暗杀–随后乌克兰干涉了我们的总统选举。
 
-（本文仅代表作者观点，视频字幕来自原文翻译）
+特辑中突出的是2014年导致前总统维克托-亚努科维奇被推翻的迈丹大屠杀–这起大规模谋杀案在基辅仍未解决。卡普托报道说，西方和俄罗斯外交官助长了那场血腥政变，前副总统乔-拜登从中脱颖而出，成为乌克兰的美国总督。结果，他的儿子亨特从该国腐败的天然气公司–布里斯马控股公司中获得了神话般的财富。
 
-参考来源：
+节目中接受采访的乌克兰政治领导人坚持认为，拜登-布里斯马的诡计是一个快速致富的计划，乌克兰人民认为这是明显的腐败。
 
-1. [科索恩议员Newsmax采访](https://www.newsmax.com/newsmax-tv/cawthorn-guncontrol-fbi-doj/2021/03/11/id/1013505/)
-2. [Wikipedia: Gun politics in the United States](https://en.wikipedia.org/wiki/Gun_politics_in_the_United_States)
+听听乌克兰驻美国大使馆前外交官Andrii Telizhenko的说法，他解释了奥巴马政府是如何哄骗时任总统波罗申科的政府干预美国2016年的选举，乌克兰一名议员和他们的驻美大使进行了干预–这一切都是在波罗申科的指示下进行的。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
+“迈克尔的深入调查工作与广泛的独家采访，以揭示真实的故事，这正是我们的‘第一美国新闻调查’系列的目的，”《第一美国新闻网》的首席执行官老罗伯特-赫林说。 “该系列报道照亮了那些被压制的事实，以适应偏爱的政治叙事，掩盖错误的行为。”
+
+卡普托的《乌克兰骗局:弹劾，拜登现金和大规模谋杀》是继OAN新闻网Thee专题 《乌克兰证人摧毁希夫与鲁迪-朱利安尼的案子 》之后的又一个系列。 该系列第四部正在后期制作中，播出时间即将公布。
+
+卡普托就此撰写了一本深入细致的书，定于2020年3月1日由庞巴迪图书公司出版。《乌克兰骗局：前苏联共和国几十年的腐败如何导致川普的假弹劾》， 卡普托是一位在乌克兰有家庭和历史的地区专家，他在2016年川普竞选活动中担任顾问，并被卷入了美国国会和特别检察官罗伯特-穆勒由此展开的俄罗斯调查。他从未被指控犯罪，也没有被传唤为相关刑事审判的证人。
+
+**原文链接：**
+
+
+
+> [“One America News Investigates – The Ukraine Hoax: Impeachment, Biden Cash, and Mass Murder with Michael Caputo” to air this Saturday and Sunday at 10 pm ET, 7 pm PT](https://www.oann.com/one-america-news-investigates-the-ukraine-hoax-impeachment-biden-cash-and-mass-murder-with-michael-caputo-to-air-this-saturday-and-sunday-at-10-pm-et-7-pm-pt/)
+
+
+
 0
