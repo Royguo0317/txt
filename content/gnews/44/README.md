@@ -1,40 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0310VI中南坑正不加掩饰地把中国高中低端人口法律化
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/969119/)
+## 西方媒体已被中共彻底渗透，只有新中国联邦为真相和天下苍生发声
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/969296/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/封面-63.jpg)
-编辑整理：
+新闻简述：在2021年3月6日的盖特视频中，郭先生说西方媒体并非我们想象的那样自由、公正和高效；媒体腐败、官僚主义以及报道拖沓滞后等现象明显。许多西方知名媒体已经被中共人员严重渗透。西方名人甚至声称爱中共，并愿意把中共国作为自己的第三祖国。而新中国联邦不为名利，只追求真相和公正，为天下苍生发声，路德社就是一个典型的例子。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_2021-03-06_Getter-part2.srt.txt)
+**西方媒体已被中共彻底渗透，只有新中国联邦为真相和天下苍生发声**
 
-悉尼澳喜农场：Bruce(文远)
+**The Western Media Has Been Completed Corrupted by the CCP **
 
-日本东京方舟农场：山川异域
+今天早上我看路德先生的节目，讲的非常非常的好。我们的墨博士，我们的安红女士讲的太好太好了。昨天晚上我看了一半就是那个艾莉女士讲的，习大神，现在改成了神经病去掉“经病”叫“神”，到底是东方红太阳升，中国出了个毛贼东，叫东方的太阳，西方也出来个太阳，叫习西太阳，习大神，哇噻！确实厉害！说路德访谈、博士军团实在是牛，这人叫他一上他的节目，不升天就进地狱，反正你也去不了别的地方，要么上天堂，要么入地狱，真是跟着共产党，走进火葬场，进了路德访谈，要么进天堂，要么入地狱，这真是不是开玩笑。千万别惹了路德兄弟，别惹博士军团。挺好。
 
-郭文贵先生在[2021年3月10号 文贵直播：共产党邪恶的阶级论，血统论，Ｇ系列让草根战友们翻身做“上等人”，壮大灭共实力；GTV最新方案](https://gtv.org/video/id=6048dd2a75e88a51e6e93786)直播中谈到了中国空前未见之国家彻底垄断经济，民生被榨取殆尽；谈到了给习神讲话的女代表是中共以恶治善的典型；谈到了年轻人为免后代做中共肉奴命奴工奴拒生孩子等内容，本系列将根据郭先生在直播中谈到的不同侧重点逐一上传，以下为本系列第六部分——中南坑正不加掩饰地把中国高中低端人口法律化
+This morning, I watched the Lude Media talk show, and it really was a great show. Our Dr. Mo and Ms. An Hong spoke so well. I only watched half of it last night, and it was Ai Li who said that Xi Jinping’s nick name has been changed from “Psycho Xi” to “Nuts Xi”, and recently to “God Xi”. In the past, the Chinese people sang, “The east is red, the sun is rising. From China, it rises Mao Zedong”. They called Mao Zedong “the sun of the east”. Then there must also be a sun from the west. This one is called “West Sun Xi” or “God Xi”. Wow, really powerful! The Lude Media show and the Doctors’ team are really awesome. Anyone who is commented by the Lude Media either goes to heaven or hell. There is no other place to go to after death anyway, either heaven or hell. It’s true that if you follow the CCP, you will walk straight into the crematorium, and if you are [commented] in Lude’s show, you either go to heaven or hell. This is really no joke. Don’t annoy our brother Lude, and don’t annoy the Doctors’ team. Awesome.
 
-据[2021年3月10号 文贵直播：共产党邪恶的阶级论，血统论，Ｇ系列让草根战友们翻身做“上等人”，壮大灭共实力；GTV最新方案](https://gtv.org/video/id=6048dd2a75e88a51e6e93786)时间点29：25——
+香港的经济是什么样子，就不用说了。大家一定记住，对香港、对中国，对所有的事情的西方世界的反应和爆料革命的反应，差三个月。就[是]咱把事说出来，咱的感受在三个月以后才逐渐的在西方有反应。为什么？知道吗？西方的官僚、西方整个的媒体，是西方腐败的最重灾区。西方媒体对人类文明的影响远远已经超过了共产党。西方所有的政客、所有的投资家、所有宗教学家、所有说的话，都是来自于媒体。这就是共产党极为阴险、邪恶的地方：不惜代价控制西方社交媒体、传统媒体——华尔街日报、纽约日报、CNN，包括福克斯，包括美国各大华盛顿邮报，通通地影响。
 
-我可以负责任的说，你们可以查一查去。**中南坑，知道，咱都知道，中国现在到了什么时候了呢？——已经认真地，严肃地不加掩饰地在将高中低端人口法律化，并且一点都不含糊的将低端和中端和高端人口三个层次阶级斗争，和中国的经济分层次、人分层次、教育分层次，最后要达到一个中国回到现在的中南坑所谓的研究的共产党这些年我们修正主义要重新开始。**
+How is the Hong Kong economy like now? No need to say. Everyone needs to know that the Western world’s response to Hong Kong, China, and everything else is usually three months slower than our Whistleblower Movement. That is to say, three months after we expose something, the West will gradually to react. Do you know why? Because the bureaucratic government officials and the whole Western media industry are the most corrupt area. The bad influence of Western media on the development of human civilization has far surpassed the CCP’s. All Western politicians, all big capital investors, and all religious scholars, whatever they say needs to be circulated through the media to the public. This is where the CCP is extremely insidious and evil; it does everything they can to control Western social media and traditional media such as the Wall Street Journal, the New York Times, CNN, Fox, and the Washington Post. They are all completely controlled.
 
-什么叫修正主义？可不是你理解的**修正主义，就是共产党实际上是秉承上天旨意的，我们相信无神论对共产党已经不适应了，共产党理解的神和你理解的神不一样。**你理解的耶稣、佛祖啊、阿拉呀，是吧？那不对的，**共产党理解的神，只要是成功的人、能领导人民走向美好的生活的人都是神，而且是经过科学地验证研究这些人确实有能力，**基本上这些人吐出的唾沫你舔了，你就会比美容还管用，如果他的精子得到了，被得到、被他双修过，那基本上你就不死了。是吧？如果说你要是说得了癌症，就这个人只要摸一下你的头，你(癌症)就没了。如果你运气不太好你想挣钱，他基本看你一眼，你挣钱到哪儿去都是一马平川，遇到沟沟填平，遇到车祸，车都是只人家车翻你车不翻。
+我问过朱利安尼，我说：你知道华尔街日报有多少中国人在那工作吗？他的答复和实际数字差一个零。我问过美国某前总统，我问过一句话，这是几年前，在中国跟他见面的时候，我那时候还没出来的时候。我问他，我说：你知道在美国媒体里面有多少华人媒体工作者吗？他的回答是少俩零。没有人知道。这就是你今天大家要看到的，所有你相信的东西，绝大多数是已经被化过妆，被已经整理过出来的，还有一定是在所有的你想知道的事情的时间点上，一定往后推，最低最低得三个月，甚至更长。
 
-**最后就在现实中发现完全封圣是有道理的，封圣封神是有道理的。**然后就解释出来你看看，马丁路德金在美国这号人实际上是神，这个神被美国人杀了，是吧？佛洛依德这人也是神大家不理解的。还有英国刚刚过世这科学家宇宙学家叫什么金，我也见过这人，这都是神，英国人错过了机会没有封他神。**那么中国过去毛泽东就是神，大家是心里知道都把他当神尊敬，没有给他法律化，现在发现了习大大、习大神是神、是圣，他是神、他是圣。**那是不是他算一极呢？他算一极，他是人间的神、中国人的神，封圣，剩下咱都是什么？咱是人，他是神，两等出来了吧。这人里边又分出等了，所以说雷锋要活着，那他就是上等人，是吧？你像薄熙来这些人是吧？被抓到秦城监狱的这些人，这属于下等人。谁是什么高尚的人呐？这些劳工们，刚才视频出来的那个，你是高尚的人，但你是下等人。
+I once asked Giuliani, “Do you know how many Chinese people are working for the Wall Street Journal?” The number he gave me missed one zero from the actual number. A few years ago, I spoke to a former president of the U.S. At that time, we were in China, before I came to the U.S. I asked him if he knew how many Chinese were working in the American media industry? The number he gave me missed two zeros! No one [in the West] knew this. This is what everyone needs to face today – everything that you believe has been covered with makeup [modified] and after being manipulated. Besides, you must know that everything that you want to know has absolutely been pushed back for at least 3 months, or even longer.
 
-共产党员是什么人呢？你有使命的人就叫中等人，就算郝海东兄弟，叶钊颖妹妹啊，你包括像路德这样在国内都属于中下等人了，郝海东先生属于中等人，是吧？也可能中上给你定，科学家是中下人、中上人。你属于中等人、中上人、中下人。反正你在中这你不能上，是吧？
+CNN 某个在欧洲主持人，我在英女王的家里吃饭，她作为最牛的 CNN 老大坐在那，伊朗裔的一位女士，还有这些王子都在，坐在白金汉宫，还有另外三位华人。我当时问了一句话，我说：“如果让你选择，不是你的祖国伊朗，也不是美国，除了这个国家之外，你让哪个国家当你的祖国？你最爱的？你为他奉献？”毫不犹豫，中国。我说：“你选是中国人那？还是中国共产党？”她说：“我选中国共产党。”这是多年前，我曾经和美国某个新闻大佬集团的人，在我盘古四合院多次喝酒，听他倾诉心声：恨的是美国，爱的是共产党。最后我问他为什么？“因为跟共产党干，想干啥干啥，就想戳谁戳谁。”兄弟姐妹们，世界不是你想像的那样。只有新中国联邦，是不为钱、不为名、不为利，只为正义，只为真相，只为天下苍生。
 
-**这个社会你现在不知道有多危险！战友们！中国现在社科院上百号人研究着把这个所谓给理论化，要把中国社会给阶级理论化，要给中南坑的人要封圣封神，然后告诉你：你的贫穷不是你不是国内有什么错****，****是你不努力、是你修行不够。**然后现在要让佛教、伊斯兰教，各教的大佬都要出来，觉的习近平讲的是对的，用佛教的说，用咱爆料革命的话说是唯真不破、说真话，说真话是最好的修行。那就是说事实上你就是因为你上一辈子没干好事所以你穷。说你看杨改兰，为什么杨改兰你那么穷啊？是你上辈子没干好事。对吧？刚才那哥们为什么一天那么辛苦啊？你咋没进中南坑啊？是你爹你妈都没干好事，你也没干好事。像海外这爆料革命这帮小子，为什么这帮小子要灭共啊？因为这帮小子天生长得就是反骨，都是一帮loser，是吧？欺民贼那就是垃圾，垃圾生出来的，你就不入流了。爆料革命天生反骨，是吧？你们爹妈就是下流人，所以你们都是反骨，把咱肯定打成这个了。是吧？那知识分子那有些人出来闹事，那这些人都是下等人，只是披了中等人的衣裳。
+Once I was invited for dinner at the Queen’s house. Some princes were there, with a big shot from the CNN, a lady of Iranian descent, and three other Chinese guests sitting in Buckingham Palace. Then I asked this lady, “If I you were asked to choose a country other than your home country Iran and the U.S., as your home country, which one would you pick? A country that you love the most and are willing to dedicate yourself to?” She answered without any hesitation: China. I asked her whether she chose the Chinese or the Chinese Communist Party. She said she chose the CCP. It was many years ago. I had wine with a certain mogul from an American news group multiple times in my Pangu Plaza’s celestial sky courtyard, listening to him confess that he hated America and loved the CCP. When I asked him why, he said that with the CCP, he can do anything without any restrictions and can have sex with anybody he liked to. Brothers and sisters, the truth of the world is not what you think. Only our New Federal State of China is not pursuing money, reputation, or benefits, but rather justice, truth, and preservation of the lives of the people of the world!
 
-接上文——
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-[郭先生0310I中国空前未有之国家彻底垄断经济,民生榨取殆尽](https://gnews.org/zh-hans/968696/)
+视频来源：[https://gtv.org/getter/6043a71b9534a74bcaf02b6a](https://gtv.org/getter/6043a71b9534a74bcaf02b6a) (05:33-09:47)
 
-[郭先生0310II给习神讲话的女代表是中共以恶治善的典型](https://gnews.org/zh-hans/968893/)
+鸣谢：
 
-[郭先生0310III年轻人为免后代做中共肉奴命奴工奴拒生孩子](https://gnews.org/zh-hans/968922/)
+[1] 感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/954825/](https://gnews.org/zh-hans/954825/)
 
-[郭先生0310IV七哥亲历最底层杨改兰们的窘境见证魔鬼之方](https://gnews.org/zh-hans/968983/)
+[2] 感谢 Antsee-GTV 和 Liberte 提供英文翻译文本于[https://gnews.org/961403/](https://gnews.org/961403/)
 
-[郭先生0310V蔡奇驱除低端人口之举符合中共区分阶级共识](https://gnews.org/zh-hans/969035/)
+文字整理 & 新闻撰写：【7PawBear】校对：【Isaiah4031】字幕：【Rock小哥】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
 0

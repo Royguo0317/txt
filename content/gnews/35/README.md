@@ -1,47 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西方媒体已被中共彻底渗透，只有新中国联邦为真相和天下苍生发声
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/969296/)
+## 【香港专题】香港良心传媒 -香港电台(六) 也无风雨也无晴
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/969337/)
 
-新闻简述：在2021年3月6日的盖特视频中，郭先生说西方媒体并非我们想象的那样自由、公正和高效；媒体腐败、官僚主义以及报道拖沓滞后等现象明显。许多西方知名媒体已经被中共人员严重渗透。西方名人甚至声称爱中共，并愿意把中共国作为自己的第三祖国。而新中国联邦不为名利，只追求真相和公正，为天下苍生发声，路德社就是一个典型的例子。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_2021-03-06_Getter-part2.srt.txt)
-**西方媒体已被中共彻底渗透，只有新中国联邦为真相和天下苍生发声**
+搜集/撰文：文法
 
-**The Western Media Has Been Completed Corrupted by the CCP **
 
-今天早上我看路德先生的节目，讲的非常非常的好。我们的墨博士，我们的安红女士讲的太好太好了。昨天晚上我看了一半就是那个艾莉女士讲的，习大神，现在改成了神经病去掉“经病”叫“神”，到底是东方红太阳升，中国出了个毛贼东，叫东方的太阳，西方也出来个太阳，叫习西太阳，习大神，哇噻！确实厉害！说路德访谈、博士军团实在是牛，这人叫他一上他的节目，不升天就进地狱，反正你也去不了别的地方，要么上天堂，要么入地狱，真是跟着共产党，走进火葬场，进了路德访谈，要么进天堂，要么入地狱，这真是不是开玩笑。千万别惹了路德兄弟，别惹博士军团。挺好。
 
-This morning, I watched the Lude Media talk show, and it really was a great show. Our Dr. Mo and Ms. An Hong spoke so well. I only watched half of it last night, and it was Ai Li who said that Xi Jinping’s nick name has been changed from “Psycho Xi” to “Nuts Xi”, and recently to “God Xi”. In the past, the Chinese people sang, “The east is red, the sun is rising. From China, it rises Mao Zedong”. They called Mao Zedong “the sun of the east”. Then there must also be a sun from the west. This one is called “West Sun Xi” or “God Xi”. Wow, really powerful! The Lude Media show and the Doctors’ team are really awesome. Anyone who is commented by the Lude Media either goes to heaven or hell. There is no other place to go to after death anyway, either heaven or hell. It’s true that if you follow the CCP, you will walk straight into the crematorium, and if you are [commented] in Lude’s show, you either go to heaven or hell. This is really no joke. Don’t annoy our brother Lude, and don’t annoy the Doctors’ team. Awesome.
+2021年2月19日，香港电台广播处长梁家荣提前解约离开港台，由全无传媒经验的民政事务局副秘书长李百全接任，于3月1日正式任职。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3121.jpg)
+梁家荣是前亚视新闻高级副总裁于2015年到香港电视台履新。梁家荣有逾四十年新闻经验。傍晚离开时，梁家荣没有回应记者的提问，挥手作揖，登车离去。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3122.jpg)
+去年7月检讨港台管治及管理专责小组成立。中共当局早已对港台有所部署。2月19日公布检讨报告，指港台编辑管理制度存在缺失，权责划分不清，问责意识薄弱；遇敏感投诉未有适时上报。新任命的李百全是资深政务官，具有丰富行政管理经验，正是中共眼中合适人选。工会的评价一语中的：港台需要的不是官僚。
 
-香港的经济是什么样子，就不用说了。大家一定记住，对香港、对中国，对所有的事情的西方世界的反应和爆料革命的反应，差三个月。就[是]咱把事说出来，咱的感受在三个月以后才逐渐的在西方有反应。为什么？知道吗？西方的官僚、西方整个的媒体，是西方腐败的最重灾区。西方媒体对人类文明的影响远远已经超过了共产党。西方所有的政客、所有的投资家、所有宗教学家、所有说的话，都是来自于媒体。这就是共产党极为阴险、邪恶的地方：不惜代价控制西方社交媒体、传统媒体——华尔街日报、纽约日报、CNN，包括福克斯，包括美国各大华盛顿邮报，通通地影响。
+公务员事务局局长聂德权说：“港府会继续致力培育港台内部人才，以便透过既定机制填补高层职位。”可见中共下一步继续势力渗透，会加剧香港电台内部的人事变动，目的就是让香港媒体彻底沦为中共体制下的部门机构，港台的公众传播角色已经失去。
 
-How is the Hong Kong economy like now? No need to say. Everyone needs to know that the Western world’s response to Hong Kong, China, and everything else is usually three months slower than our Whistleblower Movement. That is to say, three months after we expose something, the West will gradually to react. Do you know why? Because the bureaucratic government officials and the whole Western media industry are the most corrupt area. The bad influence of Western media on the development of human civilization has far surpassed the CCP’s. All Western politicians, all big capital investors, and all religious scholars, whatever they say needs to be circulated through the media to the public. This is where the CCP is extremely insidious and evil; it does everything they can to control Western social media and traditional media such as the Wall Street Journal, the New York Times, CNN, Fox, and the Washington Post. They are all completely controlled.
+拥有93年历史的香港电台走到今天是场悲剧的结尾，她将不再是独立自主的媒体。曾经的香港电台的核心价值是编辑自主、新闻自由。上世纪港台以BBC为模式发展，日益强调其公共广播角色。虽然是政府部门，却不受政治和经济压力影响，即不偏中也不偏西，成为真正为港民发声的传媒。《铿锵集》、《头条新闻》、《警讯》、《教育电台》等等很多优秀的节目在国际上获奖并受到认可。梁家荣刚到任之际，被期望秉持传媒人的风骨，开放民主的态度领导港台。香港电台作为公共传媒角色无论在中小学生教育还是在改善警民关系，报道和追踪真相等方面都发挥出了传媒的最大的价值和一个良心媒体对社会应有的贡献。
 
-我问过朱利安尼，我说：你知道华尔街日报有多少中国人在那工作吗？他的答复和实际数字差一个零。我问过美国某前总统，我问过一句话，这是几年前，在中国跟他见面的时候，我那时候还没出来的时候。我问他，我说：你知道在美国媒体里面有多少华人媒体工作者吗？他的回答是少俩零。没有人知道。这就是你今天大家要看到的，所有你相信的东西，绝大多数是已经被化过妆，被已经整理过出来的，还有一定是在所有的你想知道的事情的时间点上，一定往后推，最低最低得三个月，甚至更长。
+近年来，在政府和建制派压力下，香港电台越来越失去独立和自由。如今梁家荣的离职也标志着曾经的港台从辉煌走向结束。大学新闻与传播学院讲师梁丽娟评论说专责小组建议加强广播处长和决策人员的角色，其实就是把现时下放员工的自主权收回管理层，权力将更集中，这是政府微观管理的惯技，而下级更不敢自由行事。
 
-I once asked Giuliani, “Do you know how many Chinese people are working for the Wall Street Journal?” The number he gave me missed one zero from the actual number. A few years ago, I spoke to a former president of the U.S. At that time, we were in China, before I came to the U.S. I asked him if he knew how many Chinese were working in the American media industry? The number he gave me missed two zeros! No one [in the West] knew this. This is what everyone needs to face today – everything that you believe has been covered with makeup [modified] and after being manipulated. Besides, you must know that everything that you want to know has absolutely been pushed back for at least 3 months, or even longer.
+梁家荣向港台员工传达离任讯息，他表示：“骊驹在门，同舟相随五载半，激流荡；相濡相忘，铭感五内”。他又说：“宠辱无惊，去留无意，也无风雨也无晴。”“也无风雨也无情”出自苏轼的《定风波》，表达了诗人宠辱不惊的超然情怀。而此刻梁家荣用此句正是恰到好处地表达了自己内心的那份执着和坦然。中共从来解决问题只去解决提出问题的人，解决说真话的人，至此又再次印证。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3123.jpg)
+如今的香港的一国两制已经被彻底摧毁，中共不再假装半推半就地声称“一国两制，港人治港。”而是公开叫卖，甚至做婊子还要立牌坊“爱国者治港”。在这种形势下，港台的人事变动已经成为必然。香港电台这块重要的阵地必然是中共喉舌看重的目标，中共暴力镇压香港之后是需要谎言维稳。真相不能被发声的时候，谎言可以用来欺骗和愚昧百姓。但这种想法是愚蠢和自欺欺人的，因为有做港台这样的一代代香港媒体人的努力，真善的种子早已经在这片水深火热的土地上深深扎根，谎言即使再喧嚷终究不过是一时的噪音，经不起历史的考验和沉淀。
 
-CNN 某个在欧洲主持人，我在英女王的家里吃饭，她作为最牛的 CNN 老大坐在那，伊朗裔的一位女士，还有这些王子都在，坐在白金汉宫，还有另外三位华人。我当时问了一句话，我说：“如果让你选择，不是你的祖国伊朗，也不是美国，除了这个国家之外，你让哪个国家当你的祖国？你最爱的？你为他奉献？”毫不犹豫，中国。我说：“你选是中国人那？还是中国共产党？”她说：“我选中国共产党。”这是多年前，我曾经和美国某个新闻大佬集团的人，在我盘古四合院多次喝酒，听他倾诉心声：恨的是美国，爱的是共产党。最后我问他为什么？“因为跟共产党干，想干啥干啥，就想戳谁戳谁。”兄弟姐妹们，世界不是你想像的那样。只有新中国联邦，是不为钱、不为名、不为利，只为正义，只为真相，只为天下苍生。
 
-Once I was invited for dinner at the Queen’s house. Some princes were there, with a big shot from the CNN, a lady of Iranian descent, and three other Chinese guests sitting in Buckingham Palace. Then I asked this lady, “If I you were asked to choose a country other than your home country Iran and the U.S., as your home country, which one would you pick? A country that you love the most and are willing to dedicate yourself to?” She answered without any hesitation: China. I asked her whether she chose the Chinese or the Chinese Communist Party. She said she chose the CCP. It was many years ago. I had wine with a certain mogul from an American news group multiple times in my Pangu Plaza’s celestial sky courtyard, listening to him confess that he hated America and loved the CCP. When I asked him why, he said that with the CCP, he can do anything without any restrictions and can have sex with anybody he liked to. Brothers and sisters, the truth of the world is not what you think. Only our New Federal State of China is not pursuing money, reputation, or benefits, but rather justice, truth, and preservation of the lives of the people of the world!
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+【以上仅代表笔者个人观点】
 
-视频来源：[https://gtv.org/getter/6043a71b9534a74bcaf02b6a](https://gtv.org/getter/6043a71b9534a74bcaf02b6a) (05:33-09:47)
+新闻来源：
+[立场新闻](https://www.thestandnews.com/politics/%E6%B8%85%E7%AE%97%E9%A6%99%E6%B8%AF%E9%9B%BB%E5%8F%B0-%E6%A2%81%E5%AE%B6%E6%A6%AE%E6%8F%90%E5%89%8D%E8%A7%A3%E7%B4%84-%E6%B0%91%E6%94%BF%E4%BA%8B%E5%8B%99%E5%B1%80%E5%89%AF%E7%A7%98%E6%9B%B8%E9%95%B7%E6%9D%8E%E7%99%BE%E5%85%A8%E6%8E%A5%E6%8E%8C%E6%B8%AF%E5%8F%B0/)
 
-鸣谢：
+[BBC](https://www.bbc.com/zhongwen/simp/china/2015/08/150807_hongkong_broadcasting_director)
 
-[1] 感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/954825/](https://gnews.org/zh-hans/954825/)
+[RFI 法国国际广播电台](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210219-%E6%95%B4%E6%B2%BB%E6%B8%AF%E5%8F%B0-%E6%8A%A5%E5%91%8A%E6%96%A5%E9%97%AE%E8%B4%A3%E6%84%8F%E8%AF%86%E8%96%84%E5%BC%B1-%E5%BB%BA%E8%AE%AE%E6%94%B6%E6%9D%83-%E5%B9%BF%E6%92%AD%E5%A4%84%E9%95%BF%E7%AA%81%E9%81%AD%E6%92%A4%E6%8D%A2?ref=tw)
 
-[2] 感谢 Antsee-GTV 和 Liberte 提供英文翻译文本于[https://gnews.org/961403/](https://gnews.org/961403/)
 
-文字整理 & 新闻撰写：【7PawBear】校对：【Isaiah4031】字幕：【Rock小哥】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+
+审稿：卡西欧 / 上传：天网灰灰
+
+导读：
+【香港专题 】香港良心传媒 – 香港电台
+
+【香港专题 】[香港良心传媒](https://gnews.org/zh-hans/955687/)[–](https://gnews.org/zh-hans/955687/)[香港电台（一）关注民生、剖释政情](https://gnews.org/zh-hans/955687/)
+
+【香港专题 】[香港良心传媒](https://gnews.org/zh-hans/958173/)[–](https://gnews.org/zh-hans/958173/)[香港电台（二）集体回忆 《狮子山下》精神](https://gnews.org/zh-hans/958173/)
+
+【香港专题】 [香港良心传媒](https://gnews.org/zh-hans/961003/)[– 香港电台（三）《警讯》 惊方讯息」](https://gnews.org/zh-hans/961003/)
+
+【香港专题】[香港良心传媒—香港电台（四）特首，麻烦你讲句人话好吗？](https://gnews.org/zh-hans/964937/)
+
+【香港专题】[香港良心传媒—香港电台（五）谁主真相](https://gnews.org/zh-hans/966590/)
 
 0

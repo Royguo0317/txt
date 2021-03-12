@@ -1,52 +1,147 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0310X周永康——即使毁掉世界也要维护中共的专政
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/969581/)
+## 美国政要等每日重要信息0312.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/969624/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/封面-68.jpg)
-编辑整理：
+**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0312.jpeg)
+#### #中共病毒
 
-康州盘古农场：Ara
+3月11日前白宫制造业和贸易顾问皮特纳瓦罗博士，发推了他接受班农疫情战斗室采访时的内容：
 
-日本东京方舟农场：山川异域
+拜登将签署一项与 #CCPVirus #中共病毒 只有9%相关的法案。
+去年5月，@美国45届总统（川普）试图通过的2万亿美元的法案开始所有的药品和PPE生产。
+但是 @佩洛西议长 和 @SenSchumer 不想让川普赢，所以就扼杀了（那项法案）。
 
-郭文贵先生在[2021年3月10号 文贵直播：共产党邪恶的阶级论，血统论，Ｇ系列让草根战友们翻身做“上等人”，壮大灭共实力；GTV最新方案](https://gtv.org/video/id=6048dd2a75e88a51e6e93786)直播中谈到了中国空前未见之国家彻底垄断经济，民生被榨取殆尽；谈到了给习神讲话的女代表是中共以恶治善的典型；谈到了年轻人为免后代做中共肉奴命奴工奴拒生孩子等内容，本系列将根据郭先生在直播中谈到的不同侧重点逐一上传，以下为本系列第十部分——周永康——即使毁掉世界也要维护中共的专政
+纳瓦罗先生是最早接受爆料革命信息并向川普总统传递情报、让川普总统1月底做出与中共国实行旅游禁令正确决策的关键人物。他今日的言论和推文内容已经和班农先生一样，公开使用郭先生最早明确的概念 **#中共病毒**。他是对中共本质认识最深刻的美国要人之一。
 
-据[2021年3月10号 文贵直播：共产党邪恶的阶级论，血统论，Ｇ系列让草根战友们翻身做“上等人”，壮大灭共实力；GTV最新方案](https://gtv.org/video/id=6048dd2a75e88a51e6e93786)时间点49：47——
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-181.png)
 
-我今天可以这么说，周永康在最火的时候有一段对话，可能大家在网上你们认真地搜能搜到是跟谁的对话，这也是他政治犯罪的证据之一啊。后来提起了，没有人敢，那时他说啥没人敢动他。
+[https://twitter.com/RealPNavarro/status/1370034466719203329?s=20](https://twitter.com/RealPNavarro/status/1370034466719203329?s=20)
+3月11日众议员布莱恩-马斯特发推文如下。
 
-说**共产党下一个不管选哪个书记必须选出来一个能当皇帝的人，不管选谁都是要对付美帝国主义、都要和美国人较量。**中国现在跟世界上这八大强国也好、六七大强国也好，现在是刚刚人家这张桌子上七个人在吃饭，中国人刚刚想可能平等地上这个桌子，要么上去，要么就万劫不复被打回原形，他们就会灭了共产党。如何办呢？ **就是中国人一旦是没有了共产党，中国人真的会跟随美国走向西方的生活方式和政治制度，中国人是不会容忍共产党的，中国人会把共产党的老账算清楚、挖祖坟。**
 
-**如何让共产党在中国继续地生存下去，我们必须有超限的武器和超限的战争准备，**跟迟浩田说得一样的话。迟浩田这是我们经常一起喝酒，这话他是挂在嘴边的。你们觉得很稀罕，我听得多了。这是他很认真的，周永康，要在全世界无处不在是我们派出的人和到处有我们的钱。**一旦需要即使毁掉这个世界也在所不惜，也得维持共产党在中国的执政。**
 
-**不论发生任何情况下，在中国维持共产党的专政，原话，记住，专政是不能妥协的。不要说一个六四、一百个、一万个、十万个六四、天天发生六四的事情，共产党都要在中国始终保持专政高压。**中国在未来的几百年上千年，这是他原话，说中国共产党都要明白，**中国人民人口素质低下，只能是优化人口统治下的中国社会。**记住啊，记住啊，在优化人口统治下的中国社会。
+> 众议员布莱恩·马斯特:
+> 必须对中华人民共和国完全不透明和对冠状病毒爆发的处理不当，追究其责任。
+> 
+> 今天，我提出了一项法案，该法案将扣留美国对中共国的债务付款，以追究他们对造成这种损害的责任。
+> 
+> 【图片文字：
+> 中共国必须被追究以下责任：
+> 53万美国人死亡
+> 9百万美国人失业
+> 数万亿美元的经济损害】 [https://t.co/i6GXXWsgmm](https://t.co/i6GXXWsgmm)
+> — 川普等政要…直译推 (@zhiyitw33) [March 12, 2021](https://twitter.com/zhiyitw33/status/1370326526537908225?ref_src=twsrc%5Etfw)
 
-中国那些什么狗屁老师啊、文人知识分子一帮流氓从来没有研究过共产党，从来不知道什么，听他们胡说八道，这是郭文贵亲耳听到的。什么叫优化知道吗战友们，就是把人分上中下等，就是今天你听到你看到的疫苗政治、疫苗经济、疫苗阶级！和中国的高中低等城市优化。
 
-**他们认为你只有像很多人从家里边爹娘穷也好爬出来，就他们尊奉的精子优化论，说当人性交之后上百万几百万上千万的精子经过最后一个怀上了，那些全被干掉了，他认为这就是精化。**我亲自见过一个少校和一个少将打起来了，就因为在讨论这个问题，在八大处北京军区打起来了，因为他们骨子里相信，就是被淘汰的你就是应该被淘汰的，我站上来了我就是优化人种了。
 
-被优化后的人口，你记住周永康原话——被优化后的人口，他认为只要是共产党我把你提拔上来到了上面你就被优化了，剩下的那些全都是傻叉就该被统治。不要忘了他说过——**即使一天一个天安门、一天十个天安门，就是杀掠也不能让出共产党的专政。你觉得共产党在全世界人类面前，它有胆怯、它有羞耻、它有道义、它有人性、它有法律、它有境界，那你真的是有病了，你就真的是低端人口了，你就太搂了。**
 
-接上文——
 
-[郭先生0310I中国空前未有之国家彻底垄断经济,民生榨取殆尽](https://gnews.org/zh-hans/968696/)
+> 众议员布莱恩·马斯特:
+> 今天，我将提出一项法案，就 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 的完全缺乏透明度和对冠状病毒的处理不当，对其追究责任！
+> 
+> 【转福克斯新闻：共和党众议员马斯特提议，因中共对新冠病毒爆发的应对行为，将永久扣留美国对中共国的债务付款
+> 
+> 共和党人的法案指控中国共产党“故意积极掩盖” 新冠病毒COVID数据】 [https://t.co/ztbh9ZW2xH](https://t.co/ztbh9ZW2xH)
+> — 川普等政要…直译推 (@zhiyitw33) [March 12, 2021](https://twitter.com/zhiyitw33/status/1370324655328874500?ref_src=twsrc%5Etfw)
 
-[郭先生0310II给习神讲话的女代表是中共以恶治善的典型](https://gnews.org/zh-hans/968893/)
 
-[郭先生0310III年轻人为免后代做中共肉奴命奴工奴拒生孩子](https://gnews.org/zh-hans/968922/)
 
-[郭先生0310IV七哥亲历最底层杨改兰们的窘境见证魔鬼之方](https://gnews.org/zh-hans/968983/)
+#### 美国疫苗
 
-[郭先生0310V蔡奇驱除低端人口之举符合中共区分阶级共识](https://gnews.org/zh-hans/969035/)
+现任总统拜登于周四晚首次公开正式发表讲话，他表示将让各州在不晚于5月1日之前让所有成年人（18岁及以上）有资格接种冠状病毒疫苗。
 
-[郭先生0310VI中南坑正不加掩饰地把中国高中低端人口法律化](https://gnews.org/zh-hans/969119/)
+他同时号召说，“ 但我需要你们，美国人民，每个美国人都尽自己的一份力量。”，即每个人都要为自己和家庭的健康去接种疫苗。这样到了7月4日美国独立日，人们可以自由聚会聚餐，美国就从病毒中独立出来。
 
-[郭先生0310VII为啥被共产党驱除的低端和中端人口没有反抗](https://gnews.org/zh-hans/969220/)
 
-[郭先生0310VIII中南坑四面出击在国际上用疫苗打造犯罪之城](https://gnews.org/zh-hans/969495/)
 
-[郭先生0310IX共产党本来是拿病毒对付香港学生的结果失控了](https://gnews.org/zh-hans/969515/)
+> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) will instruct states to make all adults to be eligible for COVID vaccine no later than May 1 [https://t.co/AcSmNt900h](https://t.co/AcSmNt900h) [#JustTheNews](https://twitter.com/hashtag/JustTheNews?src=hash&amp;ref_src=twsrc%5Etfw) [@alexnitzberg](https://twitter.com/alexnitzberg?ref_src=twsrc%5Etfw)
+> — Just the News (@JustTheNews) [March 12, 2021](https://twitter.com/JustTheNews/status/1370182921236013058?ref_src=twsrc%5Etfw)
 
-+1
+
+[https://justthenews.com/government/white-house/biden-will-instruct-states-make-all-adults-be-eligible-covid-vaccine-no](https://justthenews.com/government/white-house/biden-will-instruct-states-make-all-adults-be-eligible-covid-vaccine-no)
+
+
+#### 关注香港
+
+3月11日每国政府发言人纳得-普莱斯就中共对香港实施爱国者选举法表示：
+
+“真正的爱国者会聆听他们所领导的人的意见，而不是试图令他们噤若寒蝉。美国谴责中（共）国对香港民主体制的攻击，并敦促中（共）国履行其义务。#与香港站在一起 ”
+
+
+
+> True patriots listen to those they govern rather than attempt to silence them. The United States condemns the PRC’s assault on democratic institutions in Hong Kong and urges the PRC to uphold its obligations. [#StandWithHongKong](https://twitter.com/hashtag/StandWithHongKong?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/Zfiq3h27Wj](https://t.co/Zfiq3h27Wj)
+> — Ned Price (@StateDeptSpox) [March 12, 2021](https://twitter.com/StateDeptSpox/status/1370165893947387908?ref_src=twsrc%5Etfw)
+
+
+
+3月11日现任国务卿安东尼-布林肯称：“（中共国）对政治参与和民主代表权的新限制削弱了香港的民主制度，也违背了中（共）国的国际承诺。我们与盟友和合作伙伴一起为香港人的权利和自由发声。#與香港站在一起 ”
+
+
+
+> New limits on political participation and democratic representation decimate democratic institutions in HK and run counter to PRC international commitments. We stand with allies and partners speaking out for the rights and freedoms of people in Hong Kong. [#StandWithHongKong](https://twitter.com/hashtag/StandWithHongKong?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Secretary Antony Blinken (@SecBlinken) [March 12, 2021](https://twitter.com/SecBlinken/status/1370164477438656513?ref_src=twsrc%5Etfw)
+
+
+
+同一天纳得称：“我们强烈谴责缅甸军方通过吊销几家地方新闻机构的执照来压制#自由媒体的声音。我们仍然对言论自由受到越来越多的攻击深表关切，并敦促释放被不公正拘留的记者。”
+
+
+
+> We strongly condemn the Burmese military's efforts to silence the voices of the [#FreeMedia](https://twitter.com/hashtag/FreeMedia?src=hash&amp;ref_src=twsrc%5Etfw) by revoking the licenses of several local news outlets. We remain deeply concerned about increasing attacks on freedom of expression and urge the release of unjustly detained journalists.
+> — Ned Price (@StateDeptSpox) [March 11, 2021](https://twitter.com/StateDeptSpox/status/1370121036608503809?ref_src=twsrc%5Etfw)
+
+
+
+3月12日左媒彭博社的推文如下。
+
+香港到处都是中（共）国重拳出击的证据，从关闭的店面到被封锁的建筑物。
+
+从照片探索香港今昔的变化。
+
+
+
+> Evidence of China’s heavy hand is all around Hong Kong, from shuttered storefronts to barricaded buildings 
+> 
+> Explore how Hong Kong has changed in before-and-after photos ➡️ [https://t.co/dgz2b0DcQ7](https://t.co/dgz2b0DcQ7) [pic.twitter.com/OyHtAZc5uC](https://t.co/OyHtAZc5uC)
+> — Bloomberg (@business) [March 12, 2021](https://twitter.com/business/status/1370332959065174021?ref_src=twsrc%5Etfw)
+
+
+
+更多香港照片详见 [https://www.bloomberg.com/graphics/2021-china-reshaping-hong-kong/?utm\_source=twitter&cmpid=socialflow-twitter-business&utm\_medium=social&utm\_content=business&utm\_campaign=socialflow-organic](https://www.bloomberg.com/graphics/2021-china-reshaping-hong-kong/?utm_source=twitter&amp;cmpid=socialflow-twitter-business&amp;utm_medium=social&amp;utm_content=business&amp;utm_campaign=socialflow-organic)
+
+#### 起诉川普
+
+3月11日前尼克松白宫法律顾问约翰-迪恩预测川普将很快被起诉。
+迪恩在推特上说：”距离检察官万斯起诉唐纳德及其公司只是早晚的问题”。
+
+
+
+> Former Nixon White House Counsel John Dean predicts Trump will be indicted soon | Just The News [https://t.co/gMssv1zfOP](https://t.co/gMssv1zfOP)
+> — John Solomon (@jsolomonReports) [March 12, 2021](https://twitter.com/jsolomonReports/status/1370231679416205316?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+（本文当日持续更新中）
+
+
+
+文章观点部分仅代表作者本人。
+
+
+
+作者：康州盘古农场 喜马拉雅的文雅
+
+封面：康州盘古农场 霹雳年
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
+
+
+
+0

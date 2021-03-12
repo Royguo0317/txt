@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 若中共一意孤行，我们定会令其付出代价
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/969169/)
+## 以毒灭共，势在必行
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/969327/)
 
-3/10/2021 若中共一意孤行，我们定会令其付出代价。
+3/10/2021 以毒灭共，势在必行。
 
 By： 【秘密翻译组 G-Translators】
 
