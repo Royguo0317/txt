@@ -1,147 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0312.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/969624/)
+## 郭先生0310XIII纵论务实的江浙人和官迷的山东人及东北鲁汉
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/969849/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0312.jpeg)
-#### #中共病毒
+![]()![](https://gnews.org/wp-content/uploads/2021/03/封面-71.jpg)
+编辑整理：
 
-3月11日前白宫制造业和贸易顾问皮特纳瓦罗博士，发推了他接受班农疫情战斗室采访时的内容：
+纽约香草山农场：文官
 
-拜登将签署一项与 #CCPVirus #中共病毒 只有9%相关的法案。
-去年5月，@美国45届总统（川普）试图通过的2万亿美元的法案开始所有的药品和PPE生产。
-但是 @佩洛西议长 和 @SenSchumer 不想让川普赢，所以就扼杀了（那项法案）。
+日本东京方舟农场：山川异域
 
-纳瓦罗先生是最早接受爆料革命信息并向川普总统传递情报、让川普总统1月底做出与中共国实行旅游禁令正确决策的关键人物。他今日的言论和推文内容已经和班农先生一样，公开使用郭先生最早明确的概念 **#中共病毒**。他是对中共本质认识最深刻的美国要人之一。
+郭文贵先生在[2021年3月10号 文贵直播：共产党邪恶的阶级论，血统论，Ｇ系列让草根战友们翻身做“上等人”，壮大灭共实力；GTV最新方案](https://gtv.org/video/id=6048dd2a75e88a51e6e93786)直播中谈到了中国空前未见之国家彻底垄断经济，民生被榨取殆尽；谈到了给习神讲话的女代表是中共以恶治善的典型；谈到了年轻人为免后代做中共肉奴命奴工奴拒生孩子等内容，本系列将根据郭先生在直播中谈到的不同侧重点逐一上传，以下为本系列第十三部分——纵论务实的江浙人和官迷的山东人及东北鲁汉
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-181.png)
+据[2021年3月10号 文贵直播：共产党邪恶的阶级论，血统论，Ｇ系列让草根战友们翻身做“上等人”，壮大灭共实力；GTV最新方案](https://gtv.org/video/id=6048dd2a75e88a51e6e93786)时间点1：07：05——
 
-[https://twitter.com/RealPNavarro/status/1370034466719203329?s=20](https://twitter.com/RealPNavarro/status/1370034466719203329?s=20)
-3月11日众议员布莱恩-马斯特发推文如下。
+（郭先生与战友们互动）［文科千佛山，七哥七哥我爱你，曾庆红也是广西人］，曾庆红是广西人，广西人啊，但是他母亲是在广东政治上是影响力很大的。浙江，我当然去过浙江啦，浙江那没去过还叫中国人吗？太喜欢浙江了。说实在话，**浙江、江苏、上海就这些地方，也就江浙吧领导中国政治经济呀，中国有希望。千万别让我们山东人、千万别让东北人领导中国，领导中国就没希望了。**
 
+七哥走万里路，对呀，我只相信走万里路的人，我不相信读万卷书的人。永远记住，我只相信走万里路的人。如果走过万里路又读过万卷书，那我佩服你啦。但是没有走过万里路、光读过万卷书，那对不起啦，那就完全是扯淡的事儿了。［愚人79叫文愚，愚蠢的愚，七哥两年多没念我了。曾的母亲是福建人吧？对这是对的，曾庆红是江西人，对，是江西人，瑞金的。东北人是历史上贫困的山东人，对啦没错。山东政治是最黑的］。
 
+就山东人吧，我作为山东人啊，**中国山东人就是官儿迷，就是官儿迷啊，**这官儿迷简直是。**山东人很正义的大汉到东北以后演变成了鲁汉，就是鲁莽的鲁了。**正义的鲁汉到了东北变成了吹牛的鲁莽的，就是大嘴巴一张海阔天空——**张嘴是天、闭嘴是地、中间儿有时间喝醉酒就去玉米地，**是吧，就这种人，是不是啊？就是永远是这样，酒后东北就是山东人最劣质的一面。
 
-> 众议员布莱恩·马斯特:
-> 必须对中华人民共和国完全不透明和对冠状病毒爆发的处理不当，追究其责任。
-> 
-> 今天，我提出了一项法案，该法案将扣留美国对中共国的债务付款，以追究他们对造成这种损害的责任。
-> 
-> 【图片文字：
-> 中共国必须被追究以下责任：
-> 53万美国人死亡
-> 9百万美国人失业
-> 数万亿美元的经济损害】 [https://t.co/i6GXXWsgmm](https://t.co/i6GXXWsgmm)
-> — 川普等政要…直译推 (@zhiyitw33) [March 12, 2021](https://twitter.com/zhiyitw33/status/1370326526537908225?ref_src=twsrc%5Etfw)
+我在山东老家，我一看到我们老家喝醉酒以后，说实在话一说话我头都疼，我到东北去跟人家喝酒，我一看这东北人喝醉酒以后觉得就头疼。就完全是精神意淫症，精神意淫症，张嘴是天，闭嘴是地。然后最终就是“这他妈肉，真他妈瘦，光他妈骨头没他妈肉”，然后就是那个什么那个词就来了啊，是不是啊，这他妈……。哎呦，嗓门儿大天下无敌，然后大家都很享受，家里人都听得很舒服都叫英雄主义。**他根本不知道这纯粹的意淫症，**那叫英雄主义吗？然后一说谁，谁谁谁跟谁打架啦把谁打了，我在大街上路过，谁一看我，我上去我揍他了，把他扪倒了、我抠他了、我尅他了，单挑，不服啊，这种低俗的英雄主义无处不在，男女老少从最高等、中等、低等都这德性儿，你说这还有救吗？没救。
 
+这就是**东北那二人转里面唱来唱去它是个笑话，它永远不会有艺术。**我太喜欢二人转了，但是当你有真的一个人你去理解艺术的时候，这个二人转讲的都是所谓的人生的小气，它没讲过任何有大的东西。我也是东北出生的，这是我两个最最重要的地方。但是**这就是我们山东人和东北人的悲哀，我们拿不出门儿去。**
 
+你觉得东北真的是艺术、二人转是艺术是吧？那你上全世界上你让大家听听去。贝多芬不要说贝多芬那音乐不仅在你家能听，在猪窝里听它也好听，对不对呀？这是个基本的问题。二人转可以当成一个地方艺术，你不可能是国际化的。像山东人这么伟大的文化，一说我们是来自孔子的地方。你们去没去过？我最早我就去了曲阜，我再也不去了。
 
+我后来我就找了很多科学家、很多历史学家、中国哲学家，包括所谓的孔学后人，哎呀我的妈呀，我要和你们讲讲这个你们就受不了了，那孔家人现在看到那都恨死我了，是吧？我当时你像我对爹娘是孝敬，我是骨子里边的行为是深受孔学或者说儒教影响的。但你去打打交道，你去了解了解真正的背景，包括后来到了随着他的几个学子，子路就这些人、墨子这些人，墨学，我专门都去看过，子路坟就在濮阳嘛，对不对呀？**我都去看过，就你了解完以后，你会发现，就这些东西说实在话，绝大多数都是被后人或者当时就是糟粕，它对人没有半点儿帮助，全是奴役人的思想的。**你想走了那个路以后将是不归路，胡扯八道。我没见过生活中有一个人真正的尊奉所谓儒学和孔学的。
 
+接上文——
 
-> 众议员布莱恩·马斯特:
-> 今天，我将提出一项法案，就 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 的完全缺乏透明度和对冠状病毒的处理不当，对其追究责任！
-> 
-> 【转福克斯新闻：共和党众议员马斯特提议，因中共对新冠病毒爆发的应对行为，将永久扣留美国对中共国的债务付款
-> 
-> 共和党人的法案指控中国共产党“故意积极掩盖” 新冠病毒COVID数据】 [https://t.co/ztbh9ZW2xH](https://t.co/ztbh9ZW2xH)
-> — 川普等政要…直译推 (@zhiyitw33) [March 12, 2021](https://twitter.com/zhiyitw33/status/1370324655328874500?ref_src=twsrc%5Etfw)
+[郭先生0310I中国空前未有之国家彻底垄断经济,民生榨取殆尽](https://gnews.org/zh-hans/968696/)
 
+[郭先生0310II给习神讲话的女代表是中共以恶治善的典型](https://gnews.org/zh-hans/968893/)
 
+[郭先生0310III年轻人为免后代做中共肉奴命奴工奴拒生孩子](https://gnews.org/zh-hans/968922/)
 
-#### 美国疫苗
+[郭先生0310IV七哥亲历最底层杨改兰们的窘境见证魔鬼之方](https://gnews.org/zh-hans/968983/)
 
-现任总统拜登于周四晚首次公开正式发表讲话，他表示将让各州在不晚于5月1日之前让所有成年人（18岁及以上）有资格接种冠状病毒疫苗。
+[郭先生0310V蔡奇驱除低端人口之举符合中共区分阶级共识](https://gnews.org/zh-hans/969035/)
 
-他同时号召说，“ 但我需要你们，美国人民，每个美国人都尽自己的一份力量。”，即每个人都要为自己和家庭的健康去接种疫苗。这样到了7月4日美国独立日，人们可以自由聚会聚餐，美国就从病毒中独立出来。
+[郭先生0310VI中南坑正不加掩饰地把中国高中低端人口法律化](https://gnews.org/zh-hans/969119/)
 
+[郭先生0310VII为啥被共产党驱除的低端和中端人口没有反抗](https://gnews.org/zh-hans/969220/)
 
+[郭先生0310VIII中南坑四面出击在国际上用疫苗打造犯罪之城](https://gnews.org/zh-hans/969495/)
 
-> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) will instruct states to make all adults to be eligible for COVID vaccine no later than May 1 [https://t.co/AcSmNt900h](https://t.co/AcSmNt900h) [#JustTheNews](https://twitter.com/hashtag/JustTheNews?src=hash&amp;ref_src=twsrc%5Etfw) [@alexnitzberg](https://twitter.com/alexnitzberg?ref_src=twsrc%5Etfw)
-> — Just the News (@JustTheNews) [March 12, 2021](https://twitter.com/JustTheNews/status/1370182921236013058?ref_src=twsrc%5Etfw)
+[郭先生0310IX共产党本来是拿病毒对付香港学生的结果失控了](https://gnews.org/zh-hans/969515/)
 
+[郭先生0310X周永康——即使毁掉世界也要维护中共的专政](https://gnews.org/zh-hans/969581/)
 
-[https://justthenews.com/government/white-house/biden-will-instruct-states-make-all-adults-be-eligible-covid-vaccine-no](https://justthenews.com/government/white-house/biden-will-instruct-states-make-all-adults-be-eligible-covid-vaccine-no)
+[郭先生0310XI只有亲历中南坑及浸淫体制者方可读懂中共](https://gnews.org/zh-hans/969623/)
 
-
-#### 关注香港
-
-3月11日每国政府发言人纳得-普莱斯就中共对香港实施爱国者选举法表示：
-
-“真正的爱国者会聆听他们所领导的人的意见，而不是试图令他们噤若寒蝉。美国谴责中（共）国对香港民主体制的攻击，并敦促中（共）国履行其义务。#与香港站在一起 ”
-
-
-
-> True patriots listen to those they govern rather than attempt to silence them. The United States condemns the PRC’s assault on democratic institutions in Hong Kong and urges the PRC to uphold its obligations. [#StandWithHongKong](https://twitter.com/hashtag/StandWithHongKong?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/Zfiq3h27Wj](https://t.co/Zfiq3h27Wj)
-> — Ned Price (@StateDeptSpox) [March 12, 2021](https://twitter.com/StateDeptSpox/status/1370165893947387908?ref_src=twsrc%5Etfw)
-
-
-
-3月11日现任国务卿安东尼-布林肯称：“（中共国）对政治参与和民主代表权的新限制削弱了香港的民主制度，也违背了中（共）国的国际承诺。我们与盟友和合作伙伴一起为香港人的权利和自由发声。#與香港站在一起 ”
-
-
-
-> New limits on political participation and democratic representation decimate democratic institutions in HK and run counter to PRC international commitments. We stand with allies and partners speaking out for the rights and freedoms of people in Hong Kong. [#StandWithHongKong](https://twitter.com/hashtag/StandWithHongKong?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Secretary Antony Blinken (@SecBlinken) [March 12, 2021](https://twitter.com/SecBlinken/status/1370164477438656513?ref_src=twsrc%5Etfw)
-
-
-
-同一天纳得称：“我们强烈谴责缅甸军方通过吊销几家地方新闻机构的执照来压制#自由媒体的声音。我们仍然对言论自由受到越来越多的攻击深表关切，并敦促释放被不公正拘留的记者。”
-
-
-
-> We strongly condemn the Burmese military's efforts to silence the voices of the [#FreeMedia](https://twitter.com/hashtag/FreeMedia?src=hash&amp;ref_src=twsrc%5Etfw) by revoking the licenses of several local news outlets. We remain deeply concerned about increasing attacks on freedom of expression and urge the release of unjustly detained journalists.
-> — Ned Price (@StateDeptSpox) [March 11, 2021](https://twitter.com/StateDeptSpox/status/1370121036608503809?ref_src=twsrc%5Etfw)
-
-
-
-3月12日左媒彭博社的推文如下。
-
-香港到处都是中（共）国重拳出击的证据，从关闭的店面到被封锁的建筑物。
-
-从照片探索香港今昔的变化。
-
-
-
-> Evidence of China’s heavy hand is all around Hong Kong, from shuttered storefronts to barricaded buildings 
-> 
-> Explore how Hong Kong has changed in before-and-after photos ➡️ [https://t.co/dgz2b0DcQ7](https://t.co/dgz2b0DcQ7) [pic.twitter.com/OyHtAZc5uC](https://t.co/OyHtAZc5uC)
-> — Bloomberg (@business) [March 12, 2021](https://twitter.com/business/status/1370332959065174021?ref_src=twsrc%5Etfw)
-
-
-
-更多香港照片详见 [https://www.bloomberg.com/graphics/2021-china-reshaping-hong-kong/?utm\_source=twitter&cmpid=socialflow-twitter-business&utm\_medium=social&utm\_content=business&utm\_campaign=socialflow-organic](https://www.bloomberg.com/graphics/2021-china-reshaping-hong-kong/?utm_source=twitter&amp;cmpid=socialflow-twitter-business&amp;utm_medium=social&amp;utm_content=business&amp;utm_campaign=socialflow-organic)
-
-#### 起诉川普
-
-3月11日前尼克松白宫法律顾问约翰-迪恩预测川普将很快被起诉。
-迪恩在推特上说：”距离检察官万斯起诉唐纳德及其公司只是早晚的问题”。
-
-
-
-> Former Nixon White House Counsel John Dean predicts Trump will be indicted soon | Just The News [https://t.co/gMssv1zfOP](https://t.co/gMssv1zfOP)
-> — John Solomon (@jsolomonReports) [March 12, 2021](https://twitter.com/jsolomonReports/status/1370231679416205316?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-（本文当日持续更新中）
-
-
-
-文章观点部分仅代表作者本人。
-
-
-
-作者：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
-
-
+[郭先生0310XII融国际化传统化现代化正义化为一体者非广东莫属](https://gnews.org/zh-hans/969654/)
 
 0

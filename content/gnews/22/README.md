@@ -1,54 +1,147 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0310XI只有亲历中南坑及浸淫体制者方可读懂中共
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/969623/)
+## 美国政要等每日重要信息0312.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/969624/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/封面-69.jpg)
-编辑整理：
+**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0312.jpeg)
+#### #中共病毒
 
-康州盘古农场：Ara
+3月11日前白宫制造业和贸易顾问皮特纳瓦罗博士，发推了他接受班农疫情战斗室采访时的内容：
 
-纽约香草山农场：文兮（我❤战友）
+拜登将签署一项与 #CCPVirus #中共病毒 只有9%相关的法案。
+去年5月，@美国45届总统（川普）试图通过的2万亿美元的法案开始所有的药品和PPE生产。
+但是 @佩洛西议长 和 @SenSchumer 不想让川普赢，所以就扼杀了（那项法案）。
 
-日本东京方舟农场：山川异域
+纳瓦罗先生是最早接受爆料革命信息并向川普总统传递情报、让川普总统1月底做出与中共国实行旅游禁令正确决策的关键人物。他今日的言论和推文内容已经和班农先生一样，公开使用郭先生最早明确的概念 **#中共病毒**。他是对中共本质认识最深刻的美国要人之一。
 
-郭文贵先生在[2021年3月10号 文贵直播：共产党邪恶的阶级论，血统论，Ｇ系列让草根战友们翻身做“上等人”，壮大灭共实力；GTV最新方案](https://gtv.org/video/id=6048dd2a75e88a51e6e93786)直播中谈到了中国空前未见之国家彻底垄断经济，民生被榨取殆尽；谈到了给习神讲话的女代表是中共以恶治善的典型；谈到了年轻人为免后代做中共肉奴命奴工奴拒生孩子等内容，本系列将根据郭先生在直播中谈到的不同侧重点逐一上传，以下为本系列第十一部分——只有亲历中南坑及浸淫体制者方可读懂中共
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-181.png)
 
-据[2021年3月10号 文贵直播：共产党邪恶的阶级论，血统论，Ｇ系列让草根战友们翻身做“上等人”，壮大灭共实力；GTV最新方案](https://gtv.org/video/id=6048dd2a75e88a51e6e93786)时间点54：27——
+[https://twitter.com/RealPNavarro/status/1370034466719203329?s=20](https://twitter.com/RealPNavarro/status/1370034466719203329?s=20)
+3月11日众议员布莱恩-马斯特发推文如下。
 
-七哥每天花十几个二十几个小时在这里哒哒哒讲跟全世界人民讲，我还没遇到一个人敢真正说挑战我的告诉他们的关于共产党的真相，说实在话，真的是有些人吧，你看那些从国内出来的一些突然冒出来的一两个人冒几句傻话，是吧，很搂的，都是书本上的知识，全部都是照着猫画虎，你看着像又不像实际上根本就不是。
 
-因为你没有这个经历、你没这个体验，**我是用我的生命、用我家人的生命、用我的财富、用我的智慧、用我的生命和时间，我与他们为伴、睡在一起、亲眼见、亲眼看、拿手摸甚至和他们吃过一样的饭、干过一样的啊，那是什么啊双修啊，但是我和他们没干过，真没有，我看过他们双修。**你看到现在国内就是经常看到有些所谓的战友们就是哗众取宠啊。**咱们战友就是特享受，就是一骂共产党啊，大家就不分青红、不分好坏了，这是好人啊，好人，好人，不是的！**
 
-佛家里面有几本书，戒师、法师和经师叫三师，三个师形成了三藏法宝，戒师、法师和经师，你看到的所谓知识分子、很多的所谓的大咖，讲不出所以然的，他能讲一讲不出十的，很低的。你像那个崔永元，崔永元讲的话我特别爱听，为什么呀，**因为崔永元是亲身经历者，他不是在课堂上、他不是在餐馆里，也不是在出租车里面所谓的经历的，他是在中央电视台那个所谓的大染缸里亲身经历的。**那些所谓的共产党官员高等家族的家人是啥球样，他看得很明白，中国人、共产党对付那些老百姓，怎么对付的，什么叫计划生育，什么叫统战，什么叫对待人民的，为人民服务？什么叫升官，什么叫考学？什么叫堕胎，什么叫强奸，什么叫谈恋爱，什么叫浪漫，他看得太清楚了。**所以他说的话里边，你只要听懂的，崔永元里边是有内容的，这不是开玩笑的。**
+> 众议员布莱恩·马斯特:
+> 必须对中华人民共和国完全不透明和对冠状病毒爆发的处理不当，追究其责任。
+> 
+> 今天，我提出了一项法案，该法案将扣留美国对中共国的债务付款，以追究他们对造成这种损害的责任。
+> 
+> 【图片文字：
+> 中共国必须被追究以下责任：
+> 53万美国人死亡
+> 9百万美国人失业
+> 数万亿美元的经济损害】 [https://t.co/i6GXXWsgmm](https://t.co/i6GXXWsgmm)
+> — 川普等政要…直译推 (@zhiyitw33) [March 12, 2021](https://twitter.com/zhiyitw33/status/1370326526537908225?ref_src=twsrc%5Etfw)
 
-那个毕福剑你像这人，他说那话他是骨子里边他是有东西的，毕福剑他是有料的。其他那些人站在历史说今天，胡扯的事，那纯粹胡扯的胡扯。就是一个北京高端、中端人口这事上，低端人口包括现在跟疫苗的关系，没有人能连在一起。**只有和中南坑的老杂毛有过经历的、交过手的人和在体制之内浸淫过的人，你才能感同身受。**
 
-据说曾庆红头两天在海南说了一句意味深长的话。说这这有人问他：首长，这现在北京这情况怎么怎么样。嗨！你们管这干什么？中国人不折腾折腾那是要出大事的，折腾折腾不出大事，你们看到的都是小事。这个跟他聊天的人给我发信息，说陪着他，他每天散步，陪他散步去。陪着曾散完步看电影，然后就跟他小声的说，习最近什么什么样，王岐山什么样。曾庆红（脸）一拉：说这干什么？！去… 哎呀，首长会不会很危险？欸！你的钱不都转出去了嘛？还有什么家人在这儿啊？还有什么什么。哎呀，让他们出去旅游去！美国去不了，加拿大去不了，是不是，去去新西兰嘛，去其他国家，去旅游去吧！还得个一年两年的。这哥们这话说的，所以**你看曾庆红判断中共还有习、王还有个一两年的大折腾。高中低端、疫苗政治、疫苗阶级，疫苗阶级这是全世界化，是吧？潘多拉计划、灭白计划、收复台湾，彻底把香港彻底的全部搞定。**
 
-所以说未来香港就是那个海关都没了，都已经随便去了。不要掺沙子了，直接拿洪水来冲你，对吧？这个跟曾庆红陪他走步、散步的人绝对是曾庆红母亲的原来家族的关系，在广东人，广东人。他家人也是过去的老红军，曾经当过广东省委领导，最早期土改时的中共领导，有意思啊。
 
-接上文——
 
-[郭先生0310I中国空前未有之国家彻底垄断经济,民生榨取殆尽](https://gnews.org/zh-hans/968696/)
+> 众议员布莱恩·马斯特:
+> 今天，我将提出一项法案，就 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 的完全缺乏透明度和对冠状病毒的处理不当，对其追究责任！
+> 
+> 【转福克斯新闻：共和党众议员马斯特提议，因中共对新冠病毒爆发的应对行为，将永久扣留美国对中共国的债务付款
+> 
+> 共和党人的法案指控中国共产党“故意积极掩盖” 新冠病毒COVID数据】 [https://t.co/ztbh9ZW2xH](https://t.co/ztbh9ZW2xH)
+> — 川普等政要…直译推 (@zhiyitw33) [March 12, 2021](https://twitter.com/zhiyitw33/status/1370324655328874500?ref_src=twsrc%5Etfw)
 
-[郭先生0310II给习神讲话的女代表是中共以恶治善的典型](https://gnews.org/zh-hans/968893/)
 
-[郭先生0310III年轻人为免后代做中共肉奴命奴工奴拒生孩子](https://gnews.org/zh-hans/968922/)
 
-[郭先生0310IV七哥亲历最底层杨改兰们的窘境见证魔鬼之方](https://gnews.org/zh-hans/968983/)
+#### 美国疫苗
 
-[郭先生0310V蔡奇驱除低端人口之举符合中共区分阶级共识](https://gnews.org/zh-hans/969035/)
+现任总统拜登于周四晚首次公开正式发表讲话，他表示将让各州在不晚于5月1日之前让所有成年人（18岁及以上）有资格接种冠状病毒疫苗。
 
-[郭先生0310VI中南坑正不加掩饰地把中国高中低端人口法律化](https://gnews.org/zh-hans/969119/)
+他同时号召说，“ 但我需要你们，美国人民，每个美国人都尽自己的一份力量。”，即每个人都要为自己和家庭的健康去接种疫苗。这样到了7月4日美国独立日，人们可以自由聚会聚餐，美国就从病毒中独立出来。
 
-[郭先生0310VII为啥被共产党驱除的低端和中端人口没有反抗](https://gnews.org/zh-hans/969220/)
 
-[郭先生0310VIII中南坑四面出击在国际上用疫苗打造犯罪之城](https://gnews.org/zh-hans/969495/)
 
-[郭先生0310IX共产党本来是拿病毒对付香港学生的结果失控了](https://gnews.org/zh-hans/969515/)
+> .[@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) will instruct states to make all adults to be eligible for COVID vaccine no later than May 1 [https://t.co/AcSmNt900h](https://t.co/AcSmNt900h) [#JustTheNews](https://twitter.com/hashtag/JustTheNews?src=hash&amp;ref_src=twsrc%5Etfw) [@alexnitzberg](https://twitter.com/alexnitzberg?ref_src=twsrc%5Etfw)
+> — Just the News (@JustTheNews) [March 12, 2021](https://twitter.com/JustTheNews/status/1370182921236013058?ref_src=twsrc%5Etfw)
 
-[郭先生0310X周永康——即使毁掉世界也要维护中共的专政](https://gnews.org/zh-hans/969581/)
+
+[https://justthenews.com/government/white-house/biden-will-instruct-states-make-all-adults-be-eligible-covid-vaccine-no](https://justthenews.com/government/white-house/biden-will-instruct-states-make-all-adults-be-eligible-covid-vaccine-no)
+
+
+#### 关注香港
+
+3月11日每国政府发言人纳得-普莱斯就中共对香港实施爱国者选举法表示：
+
+“真正的爱国者会聆听他们所领导的人的意见，而不是试图令他们噤若寒蝉。美国谴责中（共）国对香港民主体制的攻击，并敦促中（共）国履行其义务。#与香港站在一起 ”
+
+
+
+> True patriots listen to those they govern rather than attempt to silence them. The United States condemns the PRC’s assault on democratic institutions in Hong Kong and urges the PRC to uphold its obligations. [#StandWithHongKong](https://twitter.com/hashtag/StandWithHongKong?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/Zfiq3h27Wj](https://t.co/Zfiq3h27Wj)
+> — Ned Price (@StateDeptSpox) [March 12, 2021](https://twitter.com/StateDeptSpox/status/1370165893947387908?ref_src=twsrc%5Etfw)
+
+
+
+3月11日现任国务卿安东尼-布林肯称：“（中共国）对政治参与和民主代表权的新限制削弱了香港的民主制度，也违背了中（共）国的国际承诺。我们与盟友和合作伙伴一起为香港人的权利和自由发声。#與香港站在一起 ”
+
+
+
+> New limits on political participation and democratic representation decimate democratic institutions in HK and run counter to PRC international commitments. We stand with allies and partners speaking out for the rights and freedoms of people in Hong Kong. [#StandWithHongKong](https://twitter.com/hashtag/StandWithHongKong?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Secretary Antony Blinken (@SecBlinken) [March 12, 2021](https://twitter.com/SecBlinken/status/1370164477438656513?ref_src=twsrc%5Etfw)
+
+
+
+同一天纳得称：“我们强烈谴责缅甸军方通过吊销几家地方新闻机构的执照来压制#自由媒体的声音。我们仍然对言论自由受到越来越多的攻击深表关切，并敦促释放被不公正拘留的记者。”
+
+
+
+> We strongly condemn the Burmese military's efforts to silence the voices of the [#FreeMedia](https://twitter.com/hashtag/FreeMedia?src=hash&amp;ref_src=twsrc%5Etfw) by revoking the licenses of several local news outlets. We remain deeply concerned about increasing attacks on freedom of expression and urge the release of unjustly detained journalists.
+> — Ned Price (@StateDeptSpox) [March 11, 2021](https://twitter.com/StateDeptSpox/status/1370121036608503809?ref_src=twsrc%5Etfw)
+
+
+
+3月12日左媒彭博社的推文如下。
+
+香港到处都是中（共）国重拳出击的证据，从关闭的店面到被封锁的建筑物。
+
+从照片探索香港今昔的变化。
+
+
+
+> Evidence of China’s heavy hand is all around Hong Kong, from shuttered storefronts to barricaded buildings 
+> 
+> Explore how Hong Kong has changed in before-and-after photos ➡️ [https://t.co/dgz2b0DcQ7](https://t.co/dgz2b0DcQ7) [pic.twitter.com/OyHtAZc5uC](https://t.co/OyHtAZc5uC)
+> — Bloomberg (@business) [March 12, 2021](https://twitter.com/business/status/1370332959065174021?ref_src=twsrc%5Etfw)
+
+
+
+更多香港照片详见 [https://www.bloomberg.com/graphics/2021-china-reshaping-hong-kong/?utm\_source=twitter&cmpid=socialflow-twitter-business&utm\_medium=social&utm\_content=business&utm\_campaign=socialflow-organic](https://www.bloomberg.com/graphics/2021-china-reshaping-hong-kong/?utm_source=twitter&amp;cmpid=socialflow-twitter-business&amp;utm_medium=social&amp;utm_content=business&amp;utm_campaign=socialflow-organic)
+
+#### 起诉川普
+
+3月11日前尼克松白宫法律顾问约翰-迪恩预测川普将很快被起诉。
+迪恩在推特上说：”距离检察官万斯起诉唐纳德及其公司只是早晚的问题”。
+
+
+
+> Former Nixon White House Counsel John Dean predicts Trump will be indicted soon | Just The News [https://t.co/gMssv1zfOP](https://t.co/gMssv1zfOP)
+> — John Solomon (@jsolomonReports) [March 12, 2021](https://twitter.com/jsolomonReports/status/1370231679416205316?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+（本文当日持续更新中）
+
+
+
+文章观点部分仅代表作者本人。
+
+
+
+作者：康州盘古农场 喜马拉雅的文雅
+
+封面：康州盘古农场 霹雳年
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
+
+
 
 0

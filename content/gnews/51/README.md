@@ -1,73 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共军方科学家陈薇两会发言透玄机 中共病毒防不胜防
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/969066/)
+## 西方媒体已被中共彻底渗透，只有新中国联邦为真相和天下苍生发声
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/969296/)
 
-**作者：**墨尔本雅典娜农场 人民公敌
+新闻简述：在2021年3月6日的盖特视频中，郭先生说西方媒体并非我们想象的那样自由、公正和高效；媒体腐败、官僚主义以及报道拖沓滞后等现象明显。许多西方知名媒体已经被中共人员严重渗透。西方名人甚至声称爱中共，并愿意把中共国作为自己的第三祖国。而新中国联邦不为名利，只追求真相和公正，为天下苍生发声，路德社就是一个典型的例子。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_2021-03-06_Getter-part2.srt.txt)
+**西方媒体已被中共彻底渗透，只有新中国联邦为真相和天下苍生发声**
 
-日前，中共国军事科学院军事医学研究院生物工程研究所所长陈薇在中共两会上发言时称，疫情防控工作仍需继续加强，病毒起源和致病机制还需进一步厘清，病毒变异也可能给人们带来病毒检测试剂和疫苗的不确定性[1]。陈薇作为中共军方在武汉疫情爆发后第一时间被派出的首席生化武器防御专家，对疫情和病毒的了解相当谙熟。她的此番发言恰好验证了外界一直以来对中共国疫情和疫苗的各种质疑。
+**The Western Media Has Been Completed Corrupted by the CCP **
 
-**“****加强防控工作不能有一丝一毫的松懈****”**
+今天早上我看路德先生的节目，讲的非常非常的好。我们的墨博士，我们的安红女士讲的太好太好了。昨天晚上我看了一半就是那个艾莉女士讲的，习大神，现在改成了神经病去掉“经病”叫“神”，到底是东方红太阳升，中国出了个毛贼东，叫东方的太阳，西方也出来个太阳，叫习西太阳，习大神，哇噻！确实厉害！说路德访谈、博士军团实在是牛，这人叫他一上他的节目，不升天就进地狱，反正你也去不了别的地方，要么上天堂，要么入地狱，真是跟着共产党，走进火葬场，进了路德访谈，要么进天堂，要么入地狱，这真是不是开玩笑。千万别惹了路德兄弟，别惹博士军团。挺好。
 
-在中共媒体上，目前的国内疫情只有零星的几例而已，各行各业也都正常运转，人们对疫情的警惕性在如此微不足道的数据面前再次放松了下来。然而，真实的疫情到底是怎样的呢？或许，从刚刚过去的全国两会召开现场可以一窥端倪。
+This morning, I watched the Lude Media talk show, and it really was a great show. Our Dr. Mo and Ms. An Hong spoke so well. I only watched half of it last night, and it was Ai Li who said that Xi Jinping’s nick name has been changed from “Psycho Xi” to “Nuts Xi”, and recently to “God Xi”. In the past, the Chinese people sang, “The east is red, the sun is rising. From China, it rises Mao Zedong”. They called Mao Zedong “the sun of the east”. Then there must also be a sun from the west. This one is called “West Sun Xi” or “God Xi”. Wow, really powerful! The Lude Media show and the Doctors’ team are really awesome. Anyone who is commented by the Lude Media either goes to heaven or hell. There is no other place to go to after death anyway, either heaven or hell. It’s true that if you follow the CCP, you will walk straight into the crematorium, and if you are [commented] in Lude’s show, you either go to heaven or hell. This is really no joke. Don’t annoy our brother Lude, and don’t annoy the Doctors’ team. Awesome.
 
-在两会的开幕式上，全场约三千人中，除了端坐主席台的前两排中共中央领导人外，其余两千多人全戴口罩，去年两会开幕式现场亦如此。各场答记者会则以视频方式召开，将主会者和戴口罩的记者隔离开来。习近平出席代表团会议时，全场也只有他未戴口罩……以上种种迹象表明了什么？至少说明疫情仍然不容乐观。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image-173.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/image-174.png)
-（以上图片来自网络）
+香港的经济是什么样子，就不用说了。大家一定记住，对香港、对中国，对所有的事情的西方世界的反应和爆料革命的反应，差三个月。就[是]咱把事说出来，咱的感受在三个月以后才逐渐的在西方有反应。为什么？知道吗？西方的官僚、西方整个的媒体，是西方腐败的最重灾区。西方媒体对人类文明的影响远远已经超过了共产党。西方所有的政客、所有的投资家、所有宗教学家、所有说的话，都是来自于媒体。这就是共产党极为阴险、邪恶的地方：不惜代价控制西方社交媒体、传统媒体——华尔街日报、纽约日报、CNN，包括福克斯，包括美国各大华盛顿邮报，通通地影响。
 
-能够进入人民大会堂开两会的人，不知经过多少次病毒检测，才能进入会场。但会场里的人仍然个个戴着口罩防范病毒，这表明中共对自己的检测结果缺乏自信。既然中共高层相信与会者可能会携带病毒，为何中央领导人“坚持”不戴口罩呢？是体现领导者风范、表达对与会者的“尊重”？且不论中共高层是否对他人怀有“尊重”之意，贪生怕死得不知活摘了多少人的器官往自己身上搁的中共高层，有这胆量以不戴口罩的方式表达“尊重”吗？这显然说不通。那么，中共领导人如此与众不同的防疫“秘诀”会是什么呢？或许，硫酸羟氯喹预防方案是一种可能性，也有可能中共领导人手里掌握着病毒解药，或者……
+How is the Hong Kong economy like now? No need to say. Everyone needs to know that the Western world’s response to Hong Kong, China, and everything else is usually three months slower than our Whistleblower Movement. That is to say, three months after we expose something, the West will gradually to react. Do you know why? Because the bureaucratic government officials and the whole Western media industry are the most corrupt area. The bad influence of Western media on the development of human civilization has far surpassed the CCP’s. All Western politicians, all big capital investors, and all religious scholars, whatever they say needs to be circulated through the media to the public. This is where the CCP is extremely insidious and evil; it does everything they can to control Western social media and traditional media such as the Wall Street Journal, the New York Times, CNN, Fox, and the Washington Post. They are all completely controlled.
 
-可见，中共高层独享防疫秘密还不够，仍在空间上将自己和各路记者隔离，但却置民众安危于不顾。其本性何其邪恶！其目的又是为何？
+我问过朱利安尼，我说：你知道华尔街日报有多少中国人在那工作吗？他的答复和实际数字差一个零。我问过美国某前总统，我问过一句话，这是几年前，在中国跟他见面的时候，我那时候还没出来的时候。我问他，我说：你知道在美国媒体里面有多少华人媒体工作者吗？他的回答是少俩零。没有人知道。这就是你今天大家要看到的，所有你相信的东西，绝大多数是已经被化过妆，被已经整理过出来的，还有一定是在所有的你想知道的事情的时间点上，一定往后推，最低最低得三个月，甚至更长。
 
-**“****进一步厘清病毒起源、动物宿主和致病机制****”**
+I once asked Giuliani, “Do you know how many Chinese people are working for the Wall Street Journal?” The number he gave me missed one zero from the actual number. A few years ago, I spoke to a former president of the U.S. At that time, we were in China, before I came to the U.S. I asked him if he knew how many Chinese were working in the American media industry? The number he gave me missed two zeros! No one [in the West] knew this. This is what everyone needs to face today – everything that you believe has been covered with makeup [modified] and after being manipulated. Besides, you must know that everything that you want to know has absolutely been pushed back for at least 3 months, or even longer.
 
-早在2020年1月19日，路德社就已根据闫丽梦博士提供的情报，曝出中共病毒来自位于武汉的P4实验室，系中共军方独有的舟山蝙蝠病毒骨架经基因改造而成[2]。疫情曝光后，中共随即派遣陈薇前往武汉全面接管P4实验室防控疫情。在全世界对中共病毒丈二和尚摸不着头脑时，中共就能神速判断，选择派遣具有军事医学生物工程背景的陈薇前往武汉防控疫情，而不是像其他国家那样交由疾控部门主导防控工作。这又说明了什么？
+CNN 某个在欧洲主持人，我在英女王的家里吃饭，她作为最牛的 CNN 老大坐在那，伊朗裔的一位女士，还有这些王子都在，坐在白金汉宫，还有另外三位华人。我当时问了一句话，我说：“如果让你选择，不是你的祖国伊朗，也不是美国，除了这个国家之外，你让哪个国家当你的祖国？你最爱的？你为他奉献？”毫不犹豫，中国。我说：“你选是中国人那？还是中国共产党？”她说：“我选中国共产党。”这是多年前，我曾经和美国某个新闻大佬集团的人，在我盘古四合院多次喝酒，听他倾诉心声：恨的是美国，爱的是共产党。最后我问他为什么？“因为跟共产党干，想干啥干啥，就想戳谁戳谁。”兄弟姐妹们，世界不是你想像的那样。只有新中国联邦，是不为钱、不为名、不为利，只为正义，只为真相，只为天下苍生。
 
-如今，全世界对病毒来源有三种声音：自然起源、实验室泄露、实验室投毒。中共外交“战狼”多次宣称，应该就病毒起源问题调查美国的得克里特堡生物实验室。这表明中共已承认病毒来源于实验室，世界各国需要追究的是到底来自哪个实验室。
+Once I was invited for dinner at the Queen’s house. Some princes were there, with a big shot from the CNN, a lady of Iranian descent, and three other Chinese guests sitting in Buckingham Palace. Then I asked this lady, “If I you were asked to choose a country other than your home country Iran and the U.S., as your home country, which one would you pick? A country that you love the most and are willing to dedicate yourself to?” She answered without any hesitation: China. I asked her whether she chose the Chinese or the Chinese Communist Party. She said she chose the CCP. It was many years ago. I had wine with a certain mogul from an American news group multiple times in my Pangu Plaza’s celestial sky courtyard, listening to him confess that he hated America and loved the CCP. When I asked him why, he said that with the CCP, he can do anything without any restrictions and can have sex with anybody he liked to. Brothers and sisters, the truth of the world is not what you think. Only our New Federal State of China is not pursuing money, reputation, or benefits, but rather justice, truth, and preservation of the lives of the people of the world!
 
-但陈薇在全国两会上却宣称要“进一步厘清病毒起源、动物宿主”，仍然将病毒起源引向自然起源说。然而，人类历史上从古至今，还从未出现过任何一种来自自然界的病毒，能够在人际间传播无数代后仍不能与人体“和睦共处”。若自然界存在如中共病毒一般的病毒，大概人类早在科学与医学均不发达的古代就已绝迹了。显然，陈薇要找动物宿主的意图有些不符合逻辑。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-中共做事向来统一部署、统一行动，为何这次中共外交部和军方在病毒起源问题上的口径大相径庭呢？
+视频来源：[https://gtv.org/getter/6043a71b9534a74bcaf02b6a](https://gtv.org/getter/6043a71b9534a74bcaf02b6a) (05:33-09:47)
 
-事实上，中共军方和外交部在追溯病毒源时仍然保持了一致行动，那就是两者都统一将病毒源头“甩锅”给了除中共实验室之外的“背锅侠”。不同的是，中共外交部甩锅美国出于其“完美犯罪”的政治目的；而陈薇作为来自中共军方的抗疫“英雄”，自然很清楚该病毒来自中共，之所以甩锅不会说话的动物，一则是利用自己抗疫“英雄”的身份继续愚弄国内民众，二来是动物不会反击其谎言。真相只有一个，掩盖一个真相却需要谎言无数！这就是中共病毒真相在科学之外的最基本逻辑。
+鸣谢：
 
-此外，中共病毒的致病机制到目前为止都还未完全厘清，中共却已经在去年就联合联合国满世界推广其治疗经验。这不得不让人怀疑中共如此着急推广其治疗方案的目的所在。
+[1] 感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/954825/](https://gnews.org/zh-hans/954825/)
 
-**“****深入分析病毒变异对现有防控手段的影响，未雨绸缪，开展针对重要变异毒株的疫苗、核酸和抗体诊断试剂的预研，必要时更新换代****”**
+[2] 感谢 Antsee-GTV 和 Liberte 提供英文翻译文本于[https://gnews.org/961403/](https://gnews.org/961403/)
 
-陈薇照稿念出的这段话表明，病毒变异已给现有的防控手段带来了新的挑战，也给现有的检测和疫苗带来完全失控的风险。总而言之，因为病毒变异的原因，或许在未来的某个时期，人们会无休止地做检测、接种疫苗……
-
-而在2020年9月，新华社记者对陈薇采访时，陈薇就曾声称自己团队研发的基因工程疫苗能够完全覆盖已经发生的变异病毒，一旦病毒变异影响疫苗保护效果时，可以“很快做一个针对性更强的疫苗进行加强免疫，就像是给软件升级打补丁一样”[3]。时隔半年，陈薇再次重提“必要时更新换代”。这充分表明疫苗根本不能解决疫情。
-
-疫苗的保护效力暂且不论，单就疫苗接种后出现的死亡或者不良反应事件，不论在中共的防火墙之外还是之内，网络里均有曝光。但在言论管控极为严厉的中共网络里，曝光的不良反应事件很快被删除。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image-175.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/image-176.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/image-177.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/image-178.png)
-（以上图片来自网络）
-
-而中共对此不仅熟视无睹，反而还在全世界大力推行其“疫苗护照”、“春苗行动”，对国内民众更是采用行政手段强制民众接种疫苗，完全视人命如草菅！其险恶居心何在？
-
-闫博士揭露的病毒真相已经给出了答案：中共病毒即中共军方制造的超限生物武器，疫苗是变相的另一款生物武器；中共的基因武器库里还有很多种病毒，所谓的病毒变异是否是中共投放的其它病毒也未可知。中共早已在全球范围内引发了一场不宣而战的超限生物战，企图用疫情和所谓的“疫苗”控制全球！
-
-(文章仅代表作者观点，与GNEWS无关)
-
-参考链接：
-
-[1] 陈薇：未雨绸缪 开展对变异病毒的相关预研
-
-[https://v.cctv.com/2021/03/08/VIDEpqsQ14Ix3JVgi2wWHJMz210308.shtml?spm=C12120290324.Ps6ySUNiMIzG.0.0](https://v.cctv.com/2021/03/08/VIDEpqsQ14Ix3JVgi2wWHJMz210308.shtml?spm=C12120290324.Ps6ySUNiMIzG.0.0)
-
-[2] 1/19/2020 路安艾时评：重磅！为什么财新胡舒立要一再否认武汉SARS病毒和舟山蝙蝠病毒的关联性？为什么该病毒已经进化具备人传人大爆发强变异？为什么中共要不断隐瞒确诊案例？
-
-
-
-[3] 权威访谈|对华陈薇：重组新冠疫苗能有效覆盖病毒变异
-
-[https://baijiahao.baidu.com/s?id=1677153949746593986&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1677153949746593986&amp;wfr=spider&amp;for=pc)
-
-责任编辑：首尔喜韩农场 文迹～见证神迹
-
-编辑/校对：华盛顿DC农场 光之子(沙加)
-
-发布：纽约香草山农场 shangshang
+文字整理 & 新闻撰写：【7PawBear】校对：【Isaiah4031】字幕：【Rock小哥】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
 0
