@@ -1,29 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 缅甸抗议者愤怒抵制中共
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/968276/)
+## 美国政要等每日重要信息0311.2021(持续更新)
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/966282/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0311.jpeg)
+**推文部分经授权转载自：**
 
-编辑上传  水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/M-13.jpg)straitstimes.com
-路透社3月11日消息，本周缅甸抗议者在中共的管道沿线路上高呼要烧毁中共的天然气管道。这条管道被中共誉为“互利合作”的象征，已成为公众愤怒的目标，因为缅甸民众认为是中共在背后支持了2月1日军政府推翻民主政府的军事政变。
+- 川普等政要直譯推[Twitter：](/twitter.com/zhiyitw33)[https://twitter.com/zhiyitw33](https://twitter.com/zhiyitw33)
+- 川普等政要直譯推Telegram：[https://t.me/GuoSupporters](https://t.me/GuoSupporters)
+- 川普等政要直译盖文GTV：[https://gtv.org/user/5e949e6cf9e88c0e67169221](https://gtv.org/user/5e949e6cf9e88c0e67169221)
 
-缅甸反中共情绪高涨， 2月19日示威者在中共大使馆外抗议军事政变，同时质疑中共政府在“一带一路”基础设施计划中为缅甸提供数十亿美元资金的是贷款陷阱。
 
-价值15亿美元、770公里(480英里)长的中共输油管道于2013年开通，主要从中东进口原油，从缅甸近海油田输送天然气。中共石油一位不愿透露姓名的官员表示，该输油管道是中共国国有能源巨头云南昆明炼油厂的唯一原油来源。2月24日一次会议泄露的缅甸政府文件显示，中共官员要求缅甸军政府提供更好的安全保障，以及关于管道沿线路上少数民族武装组织的情报，这引发了对该管道的抗议。
 
-缅甸官员未对此文件发布置评。中共外交部在回应有关文件的问题时表示，“维护双边合作项目的安全是中缅两国的共同责任”，并重申呼吁“缅甸各方保持冷静和克制”，解决分歧，“这也将有利于双边合作项目的安全运营”。
 
-华盛顿史汀生中心(Stimson Center)中国项目主任孙云(Yun Sun)表示，“敌对的公众舆论将对中共的计划造成长期威胁和损害。” 她特别指出了北京在密松大坝项目上的声誉受损，该项目在2011年因缅甸民众的强烈抗议而被搁置，促使中共政府谋划培养符合中共利益的政治领导人。
+3月10日川普总统GAB信息如下
 
-西方国家谴责了这次政变，但中共甚至没有将其描述为一场政变，并呼吁双方保持克制。这遭到拥护民主政府反对政变抗议者们的蔑视，在中共大使馆外抗议者的标语牌上写着“中共，为你感到羞耻”。
+“如果传奇人物赫歇尔-沃克（Herschel Walker）竞选佐治亚州的美国参议员，那岂不妙不可言？他将是不可阻挡的，就像他在佐治亚州牛犬队和在NFL打球时一样。他也是一个伟大的人。加油吧，赫歇尔，加油!”
 
-迄今为止，已有逾60名抗议者在示威游行中被军方杀死。有未经证实的说法称，中共派遣了士兵或技术人员来助缅甸军方政府安装互联网防火墙——这一说法被军政府驳回，中共大使形容为“一派胡言”。但是抗议者已经意识到中共在缅甸政变中扮演的不光彩角色并号召抵制中共在缅甸的投资，抗议者称，“我们想要夺回民主”。
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-138.png)
 
-参考链接：
 
-[https://www.reuters.com/article/us-myanmar-politics-china-analysis/analysis-chinese-business-out-myanmar-anger-threatens-investment-plans-idUSKBN2B31C2](https://www.reuters.com/article/us-myanmar-politics-china-analysis/analysis-chinese-business-out-myanmar-anger-threatens-investment-plans-idUSKBN2B31C2)
+45届美国总统川普声明：“希望大家在接种COVID-19(过去常说的中国病毒)疫苗的时候记住，如果我不是总统，你们5年内都不会接种这支漂亮的 “疫苗”，可能根本就不会接种。希望大家记住!”
+
+时至今日，川普总统还对疫苗和中共病毒的本质概念模糊，这或许就注定他也只能是第45届总统的原因吧。
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-139.png)
+
+[https://gab.com/realdonaldtrump](https://gab.com/realdonaldtrump)
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+
+
+信息采集：直译推组， 喜马拉雅的文雅
+
+编辑：康州盘古农场 喜马拉雅的文雅
+
+封面：康州盘古农场 霹雳年
+
+**《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。**
+
+
 
 0

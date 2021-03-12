@@ -1,24 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国谴责中共国持续攻击香港民主制度
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/968277/)
+## 美国奥委会反对抵制2022年北京冬奥会
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/968340/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传   水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/B-4-6.jpg)o.canada.com
+奥运会和残奥委员会表示，之前的抵制没有效果。美国称中共国对待维吾尔族穆斯林的方式是种族灭绝。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+《德国之声》报道，美国奥林匹克和残奥会(USOPC)周三表示，它不会抵制2022年中共北京冬奥会。之前人权组织对中共在新疆维吾尔种族灭绝罪行的抗议，要求美国抵制北京冬奥会的诉求并没有被接纳。
 
-**西班牙2021年3月11日电/西喜社——**美国国务院发言人今天称：“我们谴责中华人民共和国对香港民主制度的持续攻击。”
+美国奥委会主席苏珊娜·莱昂斯(Susanne Lyons)在新闻发布会上表示，尽管抵制活动得到了“稳定的支持”，但它会伤害到为准备比赛而进行训练的运动员。
 
+里昂表示，“尽管我们永远不想从人权角度将中共国正在发生的事情最小化，但我们不支持抵制运动会。”
 
+里昂说，“我们认为，这种抵制在过去没有效果，特别是1980年的那次。这些抵制行为只会伤害到那些为了有机会代表他们的国家而训练了一辈子的运动员。”
 
-> .[@StateDeptSpox](https://twitter.com/StateDeptSpox?ref_src=twsrc%5Etfw): We condemn the People's Republic of China's continuing assault on democratic institutions in Hong Kong. [pic.twitter.com/hg7S68mSc2](https://t.co/hg7S68mSc2)
-> — Department of State (@StateDept) [March 11, 2021](https://twitter.com/StateDept/status/1370113549004066830?ref_src=twsrc%5Etfw)
+美国只抵制过一届现代奥运会——1980年苏联莫斯科举行的夏季奥运会，原因是苏联在冷战期间参与了阿富汗的武装冲突。
 
+国会议员约翰·卡特科上月写信给美国总统乔·拜登，支持抵制北京冬奥会。信中写道，“参加一个公开犯下种族灭绝罪行的国家举办的奥运会，不仅破坏了这些共同的价值观，也给所有寻求自由和公正社会的人的希望蒙上了阴影。”
 
+180个人权组织组成的联盟也呼吁抵制2022年冬奥会。中共外交部此前否认了这种担忧，称其是“出于政治动机”。 然而由于中共对维族穆斯林的种族灭绝，对台湾的武力威胁以及对香港民主人权的暴力镇压，让中共受到了来自国际社会的巨大压力。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
+2022年冬奥会将于明年2月4日开幕，距离推迟举办的东京夏季奥运会仅6个月。由于中共病毒疫情而被推迟的东京奥运会已被重新安排在7月23日至8月8日举行。
+
+国际奥委会(IOC)周四表示，中共奥委会已向参加今年东京奥运会和2022年北京冬奥会的运动员提供疫苗。奥运会有一万多名运动员参加，而通常还有数万人作为教练员、媒体、志愿者和官员参与比赛。中共的蓝金黄和洗劫人民财富四处“撒币”的策略看上去再次奏效。
+
+参考链接：
+
+[https://www.dw.com/en/us-olympic-committee-opposes-boycott-of-2022-beijing-winter-olympics/a-56832982](https://www.dw.com/en/us-olympic-committee-opposes-boycott-of-2022-beijing-winter-olympics/a-56832982)
 
 0

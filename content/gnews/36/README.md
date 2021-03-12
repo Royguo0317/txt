@@ -1,31 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英指责香港选举改革损害国际社会对中共的信任
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/968379/)
+## 【香草诗词汇】自由森林
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/968463/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：纽约香草山农场 木白
 
-编辑上传   水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/H-8.jpg)economist.com
-路透社报道，英国外交大臣多米尼克·拉布（Dominic Raab）周四表示，香港选举制度的改革将进一步损害国际社会对中共的信任。
 
-中共人大周四通过了一项修改香港选举制度的决定草案，进一步减少香港机构中的民主代表权，并引入机制来审查和筛选政界人士对北京的忠诚。
 
-拉布在一份声明中表示，这是北京为进一步打击香港民主的最新举措，违背了中共的承诺。“这只会进一步削弱人们对中共作为国际社会主要成员履行国际责任和法律义务的信心和信任。”
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-中共大使馆临时发言人杨晓光称，这些改革是为了促进香港的长期繁荣，而且英国和中共国对民主有着“不同的定义”。
 
-当被问及英国就中共对待香港民主镇压是否有对中共官员实施制裁的可能性时，英国政府表示正在考虑。拉布称“我们愿意不惜一切代价维护我们的利益，不要低估我们捍卫自身利益和尊严的坚强意志。”
 
-在此前中共禁止英国广播公司BBC在中共境内的播放，称其“违反事件报道的要求，损害中华人民共和国国家利益“，实则是因英国监管机构英国通信管理局（Ofcom）吊销了中共官媒国际电视台CGTN的执照及对BBC揭露中共新疆种族灭绝罪行报道的报复。
+![全球森林教育观察：带孩子去森林，体验大自然最纯真的味道| 芥末堆]()![全球森林教育观察：带孩子去森林，体验大自然最纯真的味道| 芥末堆](https://cdn.jiemodui.com/img/Public/Uploads/item/20180613/1528883326593316.jpg)图源网络
 
-英国外交大臣米尼克·拉布也在声明中指责中共这一行为是对言论自由的限制。他说，“中共正在对世界媒体和网络自由实行最严厉的限制，现在这一举措只是损坏中共在外界眼中的声望。”
+一
 
-希望各国政要少些不痛不痒的呼吁谴责关切，而是有更多切实可行的措施来制止中共恶行。
+我们的性情近植物:安静、平和
 
-参考链接：
+春天我们用繁花装扮自己
 
-[https://www.reuters.com/article/us-hongkong-security-britain/uk-says-hong-kong-electoral-changes-undermine-trust-in-china-idUSKBN2B30Y9](https://www.reuters.com/article/us-hongkong-security-britain/uk-says-hong-kong-electoral-changes-undermine-trust-in-china-idUSKBN2B30Y9)
+秋天我们用沉甸甸的果实款待路人
+
+我们的执着像树，屹立万年
+
+我们的耐心像藤蔓，千万次缠绕，追逐阳光
+
+我们的不幸是遇到伐木的暴徒：山河破碎
+
+但柔弱的玫瑰也藏有刺，我们已醒来
+
+草木皆兵，落花成箭，大地必繁花盛开
+
+二
+
+妈妈，我们用爱正创造着这片自由森林
+
+妈妈，我们的哭泣已经感动了天地
+
+妈妈，我们的痛让藤蔓更坚韧
+
+妈妈，喜马拉雅圣山上不再有别离
+
+妈妈，我们所走过的千山万水正走向我们：
+
+让草原更辽阔的是野马
+
+让天空更高远的是山峰
+
+让云朵更纯洁的是眼泪
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M3.jpg)
+
+校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+
+
 
 0

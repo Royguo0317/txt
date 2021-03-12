@@ -1,25 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德敦促欧盟更强硬对待中共不公平贸易行为
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/968324/)
+## 美澳日印四国加强稀土合作对抗中共
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/968362/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑上传   水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/E-5.jpg)garrethmcdaid.com
-路透社3月11日消息，德国BDI工业协会周四表示，中共政府并未兑现进一步开放经济的承诺，欧盟应采取更强硬的态度，保护企业免受中共不公平贸易行为的影响。
+编辑上传  水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/r-18.jpg)theatlantic.com
+《日经新闻》3月11日报道，日本、印度、澳大利亚和美国将在技术、资金和规则制定方面进行合作，四国即将联手建立稀土采购链，以对抗中共在智能手机、高性能电机和电动汽车电池等制造供应关键元素方面的主导地位。
 
-中共已成为德国最重要的贸易伙伴，德国产品对中共国的出口缓解了中共病毒疫情对德国经济体的冲击。BDI董事总经理约阿希姆·朗（Joachim Lang）表示，德国工业在五年计划中缺少明确信号，没有真正转变方向走向市场开放和自由商业经济。
+中共目前的稀土产量约占全球的60%，其市场支配力和影响力引发了供应市场的担忧。四方联盟打算通过合作资助新的生产技术和发展项目来应对这一问题，同时起草制度相关的国际规则。
 
-约阿希姆·朗表示，尽管欧盟在与中共达成更平衡的经济关系的投资协议方面取得了一些进展，但该协议也显示出合作的局限性。“一个成功的伙伴关系只有在互惠的原则和建立一个公平竞争的环境下才能运作”， 因而北京必须做更多的努力来兑现其开放经济的承诺。
+日本首相菅义伟、美国总统拜登、澳大利亚总理莫里森和印度总理莫迪在一次网上会议分享了他们对中共海军扩张的担忧。四国领导人预计将于周五四方峰会上公布他们将采取行动以减少对中共稀土的依赖。四方联盟还有意向在向发展中国家提供中共疫苗方面进行合作，以对抗中共的“疫苗外交”。
 
-朗说，“欧盟必须继续走多管齐下的道路，把中共视为合作伙伴、竞争对手和系统性的竞争者。”德国工业界希望欧盟通过实施一些强有力的反补贴手段来加强对中共不公平贸易行为的防御。他指出欧盟应该在这方面与美国和日本密切合作。
+大型科技公司依赖中共国生产的稀土，比如对电动汽车至关重要的钕，以及用于电池的锂。这些金属对于风力涡轮机和其他“脱碳”基础设施也是必不可少的。
 
-BDI还警告中共政府中共的人权记录可能损害未来的商业关系。BDI指出，“新疆的人权状况和香港的政治局势给政治和经济关系造成了压力。”中共在香港侵犯人权的强硬路线和新疆种族灭绝暴行已经成为影响成功批准欧盟投资协议的障碍。
+作为世界第二大经济体，中共在稀土分离和提纯方面几乎处于垄断地位，中共国将稀土定位为战略资源，并利用其近乎垄断的地位作为外交谈判的筹码。当中共停止稀土出口时，一些金属的价格飞涨了将近9倍。近期中共意图宣布考虑限制稀土出口作为国际社会对其新疆维吾尔种族灭绝罪行，香港人权和台湾局势谴责及制裁的回击。
+
+美国总统拜登于2月24日签署了一项行政命令，要求对关键产品供应链进行为期100天的审查，重点是计算机芯片、大容量电池、活性药物成分以及关键矿物和战略材料，最后一类包括稀土。
+
+至于稀土方面的努力，四方联盟国家将首先集中精力研发低成本、低放射性废物的精炼技术。四国合作伙伴还计划安排政府下属的金融机构为矿业和炼油企业提供银团贷款。印度占世界稀土储量的6%，而日本是最大的稀土消费国之一。如果四国能够在从生产到消费的整个链条上进行合作，它们在关键领域的影响力将会上升。
+
+与此同时，国际能源署(International Energy Agency)打算制定规则，阻止中共的出口管制。印度不是国际能源署的成员，但今年1月，在日本、美国和澳大利亚的要求下，新德里和国际能源署建立了战略伙伴关系，在一系列重要领域加强了合作。
 
 参考链接：
 
-[https://www.reuters.com/article/us-china-parliament-germany-industry/german-industry-urges-eu-to-toughen-response-to-unfair-chinese-trade-practices-idUSKBN2B31T9](https://www.reuters.com/article/us-china-parliament-germany-industry/german-industry-urges-eu-to-toughen-response-to-unfair-chinese-trade-practices-idUSKBN2B31T9)
+[https://asia.nikkei.com/Politics/International-relations/Indo-Pacific/Quad-tightens-rare-earth-cooperation-to-counter-China](https://asia.nikkei.com/Politics/International-relations/Indo-Pacific/Quad-tightens-rare-earth-cooperation-to-counter-China)
 
 0

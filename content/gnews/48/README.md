@@ -1,42 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 这场危机真正影响了谁？
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/967496/)
+## 所谓“爱国者治港”——香港“一国两制”的彻底结束
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/968283/)
 
-```
-新闻来源：世界报
-发布时间：2021年3月8日
-记者：本尼迪克特·福斯特（Benedict Fuest）
-```
+字幕听译：CharlesS| 字幕PR：yyshere| 字幕：JohnsonR| | 评论：文雍|评论翻译：Marialu|评论PR：许先生|Page：小六月
+
+[!\[\]()!\[\](https://spark.adobe.com/page/NJXgNA150Pxdz/images/bec6a719-56dd-4923-b630-5c1fb93db307.jpg?asset_id=6be41294-c5d1-4af8-9c32-ab2593c00e4c&amp;img_etag=%222d84c141d5e4179e02c961183776fafb%22&amp;size=1024)](https://spark.adobe.com/page/NJXgNA150Pxdz/images/bec6a719-56dd-4923-b630-5c1fb93db307.jpg?asset_id=6be41294-c5d1-4af8-9c32-ab2593c00e4c&amp;img_etag=%222d84c141d5e4179e02c961183776fafb%22&amp;size=1024)
+
+## 所谓“爱国者治港”——香港“一国两制”的彻底结束
+
+2021年3月5日，中共伪政权十三届全国人大四次会议开幕，人大常委会副委员长王晨表示香港出现的“乱象”是因为香港行政区的现行的选举制度存在“漏洞和缺陷”，为了“完善”选举制度，“消除”选举制度存在的隐患和风险，所以必须确认以“爱国者”为主体的“港人治港”！其实这只是中共想通过修改香港选举制度，冲淡原本已经很少的民主派的声音；立法会里最民主的区议会界别五个席位将被取消，立法会席位总数由目前的70席增加到90席，区议员不再有资格进入特首选举委员会。而香港的所谓的港区全国政协委员就是一群卖港贼！他们全然不顾香港人民的利益和权力，全力支持中共关于修改香港选举制度的决定，使香港不再拥有民主选举，还美其名曰“爱国者治港是天公地道的政治伦理”。而中共人大在去年底强行推出的国安法，从根本上终结了政治自由。港澳也被剔除了美基金会的经济自由排名。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/NJXgNA150Pxdz/images/45391565-38bd-42ba-98eb-5eaf134a28a8.jpg?asset_id=fb34d396-d989-4850-8dc7-af14e8eb9997&amp;img_etag=%225410a8e00cb3f3313786657a2d47e915%22&amp;size=1024)](https://spark.adobe.com/page/NJXgNA150Pxdz/images/45391565-38bd-42ba-98eb-5eaf134a28a8.jpg?asset_id=fb34d396-d989-4850-8dc7-af14e8eb9997&amp;img_etag=%225410a8e00cb3f3313786657a2d47e915%22&amp;size=1024)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Lockdown-Verlaengerung-3-e1615497672603.jpg)图片来源：图片联盟丹尼尔·库比斯（Daniel Kubirs）
+编辑：【英国伦敦喜庄园编辑部】
 
-贫穷或富裕，年轻或已退休，男人或女人。新冠大流行影响着生活的所有领域，但是后果却大不相同。由三个著名机构创建的2021年数据报告显示了受害最重的人。
-
-从短期工作和家庭教育，到严重的生存贫困和高死亡率，危机已深深地动摇了德国的人口。在社会的几乎所有领域都可以看到这种影响。数据报告2021显示了这一点，该报告由联邦统计局（Destatis）与柏林社会研究科学中心（WZB）和联邦人口研究所共同发表。
-
-2020年3月的首次封锁导致德国发生了前所未有的经济崩溃。在第二季度，国内生产总值（GDP）下降了近10％。私人消费急剧下降了13％。
-
-在封锁期间，受影响最严重的行业，例如饭店和住宿，损失了近90％的销售额。由于施加了接触限制，流动性在春季也突然下降了三分之一。空运停滞了几个月。自雇者中受害者居多。
-
-从年龄组来看，老年人得到了最好的保护：虽然70岁以上的老人中有2.3％曾经或预计会遭受经济损失。年轻人失业的风险最大，尤其是因为许多学生也失业。此外，移民比德国本地人更有可能失业。
-
-研究人员指出，这些结果只是大流行最初几个月的快照。同时，多样化的国家援助确保了对大部分人口的保护。相反，随着贸易，旅游，文化或活动行业等许多部门对商业活动的持续限制，对民生的担忧日益增加。
-
-#### 简评：
-
-**当人们因为民生而开始恐惧时，社会就开始出现分裂，穷人开始仇视富人。这就是共产党的目的之一，撕裂民主国家的社会与文明，推行疫苗，毁掉白人。同时我们也看出，民主世界们政客的堕落，与恶魔为伍出卖同胞的嘴脸。情报，科技发达的国家不可能不知道羟氯喹的作用，但政客们持续用政治手段来控制公民，人为造成恐慌，这样的用心也是极其险恶的。**
-
-**（免责声明：本文的简评只代表作者个人观点，跟GNEWS平台无关。）**
-
-**🔗新闻来源链接：**
-
-[Wen diese Krise wirklich trifft](https://www.welt.de/wirtschaft/article227954035/Datenreport-2021-zeigt-wen-die-Corona-Krise-am-schlimmsten-trifft.html)
-
-* * *
-
-**翻译整理：**Shuizhuyu **简评：**旦旦 **审核/校对：**Ting Guo
+[!\[\]()!\[\](https://spark.adobe.com/page/NJXgNA150Pxdz/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/NJXgNA150Pxdz/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
