@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国已全面做好准备和任何国家竞争，无论技术还是其他方面
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/972355/)
+## 拜登政府应继续采取严肃行动对抗中共
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/972486/)
 
-3/12/2021 美国已全面做好准备和任何国家竞争，无论技术还是其他方面。
+3/10/2021 拜登政府应继续采取严肃行动对抗中共。
 
 By： 【秘密翻译组 G-Translators】
 
