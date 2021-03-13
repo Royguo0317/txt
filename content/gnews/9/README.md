@@ -1,30 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：中共必须对疫情负责
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/971054/)
+## 2021年3月12日 文贵先生盖特 4
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/971095/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-
-
-> The CCP knows where this virus came from and they don’t want us to know the truth. They must be held accountable — the American people are counting on it.[pic.twitter.com/DxxoFccFgd](https://t.co/DxxoFccFgd)
-> — Mike Pompeo (@mikepompeo) [March 11, 2021](https://twitter.com/mikepompeo/status/1370076192703922177?ref_src=twsrc%5Etfw)
+3月12号：在外面开会回来．文贵看到共产党病毒在西方世界……给中国人带来的负面影响，感到非常的恐惧和害怕，我们都要珍惜由爆料革命新中国联邦！为中国人在国际上打下这片天空！将共产党与共产党病毒和中国人彻底分开，这是一个最伟大的．保护中国人在国际上的利益．和安全，最好办法之一！
 
 
 
-2021年3月12日，彭培奥先生发推:
+[【2021年3月12日】文贵先生盖特原文](https://gtv.org/getter/604be375607c4240c8b51ea2)
 
-The CCP knows where this virus came from and they don’t want us to know the truth. They must be held accountable — the American people are counting on it.
-
-中共知道中共病毒的起源并且不想要我们知道真相。美国人民指望-中共必须对此次疫情负责。
-
-彭培奥先生上传了一段他在FOX NEWS接受采访的视频，明确表示有一系列的证据表明中共病毒来源于武汉病毒研究所，并且中共禁止任何人进入其中调查取证。随着疫情的持续恶化，越来越多的西方科学家认识到中共病毒并非来源于自然，他们挺身而出发声支持闫博士的报告。同时更多的中共病毒证据通过媒体逐渐公布，不断刺激着遭受病毒折磨的民众，将这些压抑的怒火引向罪魁祸首中国共产党。以毒灭共的战略正稳步推进，金融界、军事界和文化界已经全面开始发酵中共病毒，待真相彻底揭开时，全世界喷薄而出的怒焰将彻底烧尽中共以毒灭白、以毒称霸的野心。
-
-[援引原文](https://twitter.com/i/status/1370076192703922177)
-
-本文作者：Stranger
-审核校对：鲁邦五世
-上传排版：糖果儿
+**喜联盟Gnews编辑部**
 
 0

@@ -1,52 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧洲战友和欧洲的军事部门开展全面合作，以毒灭共进入新时刻
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/970878/)
+## 且看中共的&#8221;完美犯罪&#8221;
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/971018/)
 
-新闻简述：在2021年2月22日的盖特视频中，郭先生透露有中共背景的科学家已经开始和欧洲国家情报部门合作，揭露中共的两个项目和长期的灭白行动，以毒灭共进入了新的时刻。他说：“新中国联邦开启被共产党洗脑的14 亿中国人的智慧，唤醒中国人的良知，让中国人找回自己的尊严和勇气，和有体面的生活，这是每个人都拥有的，不是共产党的专利。”
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210222-getter2.srt.txt)
-**欧洲战友和欧洲的军事部门开展全面合作，以毒灭共进入新时刻**
+作者：A.GO
+![]()![](https://gnews.org/wp-content/uploads/2021/03/031301.jpg)
+“完美犯罪”的基本概念是：不为社会大众所察觉或无法使犯人落网的犯罪。
 
-**Important Scientists Inside the CCP Come Forward to Cooperate with the West**
+它是推理小说和影视剧的题材之一。 如有些日本推理小说、美国影视剧中所表现的”连环杀手”即属此类。 “完美犯罪”一般有两种手段，一是罪犯使用难解的诡计实施，二是对罪案采取事后掩盖。
 
-欧洲给我发来信息，说：“Miles，我们特别感谢你，给我们介绍了几个特别有良知的中国人。” 在欧洲的有中共背景的科学家们，这些人经过长期的，也就是几个月以来的思考，因为他们很多家人已经定居在欧洲了，曾经参与过这两个项目，他们知道这个中间的部分的事实，是由七哥介绍给他们这些政府的官员和情报部门认识。
+从小说、影视到现实，如果不是爆料革命，不是路德社节目，一般人，尤其是中共治下的由防火墙阻隔信息的中国人，无论如何想不到，中共，这样一个始终号称”伟大、光荣、正确”的政党组织，恰是这种”完美犯罪”之”连环杀手”中的髙手。
 
-A message was sent to me from Europe, saying, “Miles, we are very grateful to you for introducing to us these Chinese who are with great conscience.” After several months’ struggling, a few scientists in Europe with a CCP background have come forward to get in touch with government officials and intelligence agencies through me. These people’s families have mostly settled down in Europe. They were participants of the two projects and know part of the fact behind this [virus]. I introduced them to those officials in European governments and intelligence services.
+是的，它可以秒杀我们从小说、影视剧中看到的所有”连环杀手”。 因为他们是拥有国家机器（军队、警察）、以专制和极权统治一个国家的邪恶组织！
 
-当然他们由于考虑到国内家人的利益，由于考虑到在欧洲和美国等各种的生意，这是完全正常的。没有几个人敢像科学家这样，站出来敢这样地来灭共的，没有几个，说的容易做到难呐，他有太多的考虑。
+难道不是？ 中共，这个”连环杀手”，犯罪时间之长一一七十一年乃至更长; 做案手段之隐蔽一一中共使被戕害的中国人，不仅甘为刀下俎，反而称颂其为”亲爱的妈妈”; 杀戮和虐待受害者之众一一自中共1949年篡政以来，共杀害中华民族精英和普通百姓达数亿之巨！
 
-Of course, considering the interests of their family members in mainland China and their various businesses in Europe and the U.S., it’s completely normal [for them to wait a little long to come forward]. Few people dare to stand up to take down the CCP in this way like our scientist [Dr. Yan], not many. It’s easier said than done because there are too many concerns.
+所有上述这些，中共都是通过”完美犯罪”实现，并且一环扣一环。 请看：无论是中共篡政伊始（1950年代初）的”三反五反”及”镇压反革命”，还是十年后由于”大跃进”造成的”大饥荒”以及祸害中国人十年之久的”文化大革命”，抑或是1989年”六·四”对青年学子的天安门大屠杀、又于十年后对法轮功的镇压,…… 等等，难道不都是以各种堂皇的理由事先”使用难解的诡计”，实施其”犯罪”，事后又以各种美妙的词汇加以掩盖，使其犯罪”完美”？
 
-那么这些人经过深思熟虑后，（我准备戴黑手套，五个手指头啊，不是四个，）他们最近做出了重大的决定，然后跟这些情报部门和政府部门一起合作，提供了一些非常重要，有情报证明共产党长期地，有计划地对白人，也就是“灭白计划”，对西方整个是一个种族大屠杀式的，用杨娘娘、王毅的话讲叫“潘多拉的盒子”，（真正的黑手啊，真正的黑手，）潘多拉的盒子整个计划。
+時間，進入二十一世紀，進入2017年的1月，郭文貴先生發起並引領的爆料革命，如閃電劃破黑夜長空，通過一次又一次的“爆料”，徹底撕破了中共這個“連環殺手”的“完美”外衣：從中共的“新疆種族滅絕”，到蠶食自由民主的香港，再到軍方制造和向全世界釋放病毒，發動超限生物武器戰爭……
 
-So after careful consideration, these people – I’m going to wear black gloves with five fingers, not four – made a critical decision recently. And then they started to cooperate with these intelligence and government agencies to provide some very important evidence to prove the existence of the CCP’s long-term and systematic plan of targeting the white people, that is, the “white extinction plan”, which is a white genocide plan targeting the West. It is called “Pandora’s Box” in the words of Yang Jiechi and Wang Yi. (Showing his black gloves.) Real black hands, real black hands. It’s the whole plan of Pandora’s box.
+四年多来，亿万默默无闻的战友，采取各种手段和途径，冒着各种风险，经过不断传播爆料革命，特别是世界顶级生物科学家闫丽梦博士，通过路德社节目，揭露中共病毒真相，越来越多地唤醒着沉睡于”岁月静好”的中国人和对中国了解甚少的西方人士！
 
-七哥没办法跟你们形容这些人的震撼。他说：“Miles，如果几年前我们听到你跟我们说这些，世界真的不至于走到这个灾难。” 美国现在在病入膏盲之中，正在享受被3F之中，让他再受受伤流点血，他会醒来的。欧洲的醒来对灭共的事业至关重要，但是我再说一遍，战友们，灭共永远不要指望任何第三方，一定是以共灭共，中国人灭共，是我们新中国联邦人灭共。谁都挡不了，以毒灭共，以钱灭共。当大家你们真正的意识到的时候，真正的感受到其中的奥妙的时候，你们可以感受到无穷无尽的快乐，别想歪了，想歪了，一说高潮就想到床，一想到快乐就想到男女双修，这不是那意思啊。
+然而，这对于”完美犯罪”之”连环杀手”中的”髙手”中共，及其几个十几个中共盗国（汉奸）家族来说，他们当然不会束手就擒、坐以待毙，当然会使出浑身解数、耍尽各种花招，拼命地要掩盖犯罪事实，使其犯罪”完美”地逃脱正义和法律制裁。
 
-I can’t describe the shock of these people to you. He said, “Miles, if we listened to your warnings a few years ago, the world would not have come to this disaster.” The U.S. is now in the midst of severe illness and is “enjoying” being destroyed by the 3F plan. So, let it bleed for a little longer and suffer a little more, and then it will wake up. The waking up of Europe is crucial to taking down the CCP, but let me say this again, my brothers-in-arms, never count on others to take down the CCP for us. It must be by the communists themselves, by the Chinese and by the people of our New Federal State of China (NFSC). No one can stop us from taking down the CCP by spreading the truth about the CCP virus and by financial activities. When you are truly aware of the importance of this and the wisdom of this, you will feel endless happiness. Don’t misinterpret my words and think that happiness always means orgasm and sex. That’s not what I mean.
+尽管蓬佩奥国务卿代表美国政府，于2021年1月19日宣布：中共在新疆犯下了”种族灭绝罪和反人类罪”，尽管新任国务卿布林肯又于3月11日，在美国国会听证时进一步确认 上述中共的犯罪事实，以及在以美国为代表的各正义国家正义力量发出讨伐之声时，中共仍然以”强化治理”等美妙词汇和编造各种”病毒来源说”，意欲使其”种族灭绝罪和反人类罪”” 发动超限生物武器战”等犯罪成为”完美”。
 
-所以说兄弟姐妹们，有良知的中国人，和在放掉恐惧和个人利益和无我之后，与新中国联邦人一起自然而然地联合一起来灭共，这是没有任何疑问，没有任何悬念，只是时间多长，有多少人参与了在一起，这就是我们新中国联盟的魅力和力量。真的是灭共没你不行，因为每个人的积累和每个人做出的行动，都在一次又一次在社交媒体上，在事实面前，它会扩大，会延续，像香火，星星之火，它会越烧越大。
+或许有人会疑惑：为什么中共可以在中国乃至世界实施”完美犯罪”？
 
-So brothers and sisters, after letting go of fear, personal interests, and selflessness, those Chinese people with conscience will naturally unite with people of the NFSC to take down the CCP together. There is no doubt about it, without a doubt. It’s just a matter of how long it will take and how many people will join us. This is the charm and strength of our NFSC. It’s really impossible to take down the CCP without you, because everyone’s efforts and contributions count, including everything that you post on social media. What you have done will multiply and continue to exist, and they will be like sparks in the beginning and these sparks can become much larger flames.
+答案很简单：中共之所以邪恶，正在于其不同时期，对不同人群，以不同美好的名目（宣传机器），通过威逼利诱（包括”蓝金黄”）等手段，让其犯罪成为”完美犯罪”，从而”不为社会大众所察觉”。
 
-其中有一位在和某国政府商量完以后，他家人全到了美国，但他在欧洲，他留在那里，据说这位，刚才这位政府官员说：“文贵先生这个人从过去的恐惧到今天的勇敢，整个变了一个人。”  兄弟姐妹们，新中国联邦开启被共产党洗脑的14 亿中国人的智慧，唤醒中国人的良知，让中国人找回自己的尊严和勇气，和有体面的生活，这是每个人都拥有的，不是共产党的专利，每一句话都绝对重要，因为会让中国人找到真正的自己。
+倘若您觉得这种表述流于空泛，那么请看这个事实：
 
-After one of the scientists met with the government of a country, his family all went to the U.S., but he stayed in Europe. An official of this government told me, “Mr. Miles Guo, from his fear in the past to today’s bravery, this person has totally changed.” Brothers and sisters, the NFSC has unlocked the wisdom of the 1.4 billion Chinese people who were brainwashed by the CCP, has awakened the conscience of the Chinese people, and has allowed the Chinese people to regain their dignity, courage, and decent lives. These are deserved by everyone, and they are not the CCP exclusive. These words are absolutely important because they will let the Chinese find their true selves.
+首先，中共因为在国内握有”枪杆子””刀把子”; 在国外由于热兵器无法与美国这个”世界警察”相抗衡，便使用超限生物武器发动看不见硝烟的战争。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+其次，中共的成立，即以马克思主义”解放全人类”的理论，塑造其”完美”; 一百年后，当他们不仅解放不了全人类也解放不了自己时，又以”恢复中华传统文化”为幌子，雕凿其”完美”！
 
-视频来源：[https://gtv.org/getter/6033f2ab19585159023673f8](https://gtv.org/getter/6033f2ab19585159023673f8) (0:11-4:58)
+因此，所有这些，用民间俗语做还要立牌坊形容中共，已远远不及其邪恶之万一。 因为他们是在逃避国内老百姓追责和国际正义制裁的”完美犯罪”！
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/927430/](https://gnews.org/zh-hans/927430/)
+【文章仅代表作者个人观点】
 
-* * *
-
-翻译：【Isaiah4031】校对：【Rock小哥】字幕：【Rock小哥】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+审核校对：鲁邦五世 
+上传排版：糖果儿
 
 0
