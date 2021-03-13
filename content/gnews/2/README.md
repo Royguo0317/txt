@@ -1,35 +1,96 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】中共病毒科兴疫苗 再添针下亡魂两周内累计 6人死亡
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/973400/)
+## 美国政要等每日重要信息0313.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/972447/)
 
-搜集/ 编撰：心听见
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0313.jpeg)
 
-**（据立场新闻讯）香港开始接种武汉肺炎疫苗以来，已先后出现多宗不良反应及死亡事件。卫生署今日（13 日）晚上公布，再增2 名分别80 岁男子，及67 岁男子接种科兴疫苗后死亡，二人均有糖尿病、高血压等病史，至今累计已有6 人在接种科兴疫苗后死亡。另外，今日亦新增一名63 岁男子，在接种科兴疫苗后急性中风，病人3 月9 日接种疫苗，翌日已开始身体虚弱，直至今日情况转差往医院求医，现时情况危殆，在深切治疗部接受治疗。**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ookodld670.png)
-卫生署公布，一名 80 岁男子离世。他本身患有糖尿病、颈动脉粥样硬化、高血压等，曾经中风，病人3 月1 日在元朗天晖路体育馆接种科兴疫苗，3 月6 日起感到胸痛，往明爱医院求医，同日转送深切治疗部，初步诊断为急性冠状动脉综合症，及后转送玛嘉烈医院深切治疗部，延至今日下午因缺血性肠道疾病离世。
 
-另一宗死亡个案是一名67 岁男子，患有糖尿病、高血压、高血脂症，3 月2 日在私家诊所接种科兴疫苗，3 月11 日在旺角港铁站晕倒，送至广华医院，初步诊断是急性冠状动脉综合症，延至下午离世。
+#### 向中共国追责
 
-至于新增的严重异常事件个案，涉及一名63 岁男子，患有心房颤动、心脏衰竭、红血球过多及酒精性脂肪肝，病人3 月9 日在沙田源禾路体育馆接种科兴疫苗，当时在中心观察期间并没有不适纪录 ,
+3月13日弗罗里达众议员布莱恩-马斯特再次转发他在接受福克斯新闻采访时的谈话，他提到“停止向中（共）国支付债务直到他们就病毒的问题做出回答。”他表示，中共的问题涉及很多国家，但是“只有一个国家能够领导（带头）就冠状病毒向中共追责，这就是美国。没有其他哪个国家可以领导。”
 
-**战友点评：**
-
-港共政府首先推出，存在临床数据不足，有疑问的中共科兴疫苗接种以来，在市民因接种中共病毒科兴疫苗后死亡人数到13日已经增至6人，而港共专家委员会之前也否认前几个死亡个案与毒疫苗无关，不负主子所托继续推卸责任。
-
-而且中毒病毒出现到现今一年多，短期就研究制出来的疫苗已经是令人猜测其有效度，为了早占先机，世界各国生物公司疫苗都争先恐后，相继推出市场，感觉全球人民都是中共病毒疫苗的试验品，而港共政府在推行接种疫苗的手法，好像政治任务多于关心市民的健康安全。任何防疫措施都是以政治作为考量，中共特色。
-
-然而卫生署指，会将个案交由「新冠疫苗临床事件评估专家委员会」进行因果关系评估，并引述世界卫生组织表示，疫苗接种异常事件不一定与疫苗使用有因果关系。署方又指，每日有不同程度急性疾病的人士需入院接受治疗，引述医管局资料，因心肌梗塞或急性缺血性中风在 2020 年全年入院分别共 7300 宗 及10300 宗。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/EEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE.jpg)
-引用去年的因心梗、中风的数据报告，来帮科兴疫苗掩盖真相调查，已经赤化的卫生处专家委员会「舔共」立场坚定，继续将香港市民玩弄于股掌之间。如今因毒疫苗接种再添亡魂，因接种而导致不适的人数亦有所增加，港共政府会否需要重新考虑科兴疫苗的安全性问题呢？而且我们的英雄科学家阎博士曾警告：疫苗不是解决中共病毒的最终方法，因为病毒源头『邪恶中共』不亡，中共病毒将难以消除。
-
-【以上观点仅代表笔者本人】
-
-资料来源：[立场新闻](https://www.thestandnews.com/society/%E6%8E%A5%E7%A8%AE%E7%A7%91%E8%88%88%E7%96%AB%E8%8B%97%E5%20%BE%8C%E6%AD%BB%E4%BA%A1%E5%A2%9E%E8%87%B3-6-%E4%BA%BA-%E4%B8%80%E6%97%A5%20%E5%85%A7%E5%A2%9E-2-%E6%AD%BB-1-%E6%80%A5%E6%80%A7%E4%B8%AD%E9%A2%A8)
+议员先生的讲话让笔者仿佛看到当年正义附身血气方刚的美国回来了。
 
 
 
-覆核：文粤  /   上传 : 彩虹（ Rainbow )
+> There’s only one country that can take the lead on holding China accountable for coronavirus and that’s the United States of America. [pic.twitter.com/bMKfrxWRtz](https://t.co/bMKfrxWRtz)
+> — Rep. Brian Mast (@RepBrianMast) [March 13, 2021](https://twitter.com/RepBrianMast/status/1370702429541441542?ref_src=twsrc%5Etfw)
 
-0
+
+
+3月12日，《福克斯朋友优先》推文引用布莱恩议员的话，“他们确实需要被追究责任。”@Brian Mast议员 告诉 #FoxFriendsFirst 美国应该扣留对中国的债务支付，直到COVID-19问题得到回答。议员先生称，我们需要向中共国追责，他们需要回答病毒是不是来源于武汉病毒实验室？那里发生了什么？他们掩盖了什么？他们和世卫组织掩盖了什么？
+
+
+
+> “They do need to be held accountable”: [@RepBrianMast](https://twitter.com/RepBrianMast?ref_src=twsrc%5Etfw) tells [#FoxFriendsFirst](https://twitter.com/hashtag/FoxFriendsFirst?src=hash&amp;ref_src=twsrc%5Etfw) the U.S. should withhold debt payments to China until COVID-19 questions are answered.[https://t.co/OLiyRP3MuD](https://t.co/OLiyRP3MuD)
+> — Fox & Friends First (@FoxFriendsFirst) [March 12, 2021](https://twitter.com/FoxFriendsFirst/status/1370413052814897153?ref_src=twsrc%5Etfw)
+
+
+
+
+
+#### 我们的自由不由政府决定
+
+3月12日前国务卿蓬佩奥先生就拜登在公开讲话时的言论表示抗议，拜登要求人们都去接种疫苗、从而在今年国庆节可以和家人邻居亲朋聚会聚餐。蓬佩奥先生称：“在7月4日，我们庆祝美国和我们的许多自由。自由其中之一就是，你可以决定是否你想和家人朋友在你自己的后院，而不是由政府决定。”
+
+
+
+> On the 4th of July, we celebrate America and our many freedoms. One of those freedoms is that YOU get to decide if you want to have family and friends over in your own backyard, NOT the government. [https://t.co/xl1ovY9sef](https://t.co/xl1ovY9sef)
+> — Mike Pompeo (@mikepompeo) [March 12, 2021](https://twitter.com/mikepompeo/status/1370390033597935617?ref_src=twsrc%5Etfw)
+
+
+
+#### 性贩运
+
+3月12日鲁迪-朱利安尼先生推文称：今天的节目揭露了美国黑暗的性交易黑幕。
+@BooyensJaco 解释了性贩运如何成为一种流行病，现在伴随着美国-墨西哥边境的疫情和危机，已经达到了前所未有的水平。
+
+
+
+> 🚨 Today’s episode exposes the dark underworld of sex trafficking in the US. [@BooyensJaco](https://twitter.com/BooyensJaco?ref_src=twsrc%5Etfw) explains how sex trafficking has become an epidemic and now, with the pandemic and crisis at the US-Mexico border, has reached unprecedented levels.
+> 
+> Here: [https://t.co/APgb2Du8kc](https://t.co/APgb2Du8kc) [pic.twitter.com/5pMhlzSpXL](https://t.co/5pMhlzSpXL)
+> — Rudy W. Giuliani (@RudyGiuliani) [March 12, 2021](https://twitter.com/RudyGiuliani/status/1370454178838016006?ref_src=twsrc%5Etfw)
+
+
+[https://rumble.com/vekwsd-the-dark-underworld-of-sex-trafficking-in-the-u.s.-rudy-giuliani-and-jaco-b.html](https://rumble.com/vekwsd-the-dark-underworld-of-sex-trafficking-in-the-u.s.-rudy-giuliani-and-jaco-b.html)
+#### 中共病毒疫情的又一次生灾难
+
+据《Just The News》， 研究人员警告说，在冠状病毒大流行的过程中，口罩的大量使用可能会导致一场迫在眉睫的环境灾难，每分钟都有三百万个口罩被使用，其中许多口罩在使用过程中会污染当地的生态系统。
+
+[https://justthenews.com/politics-policy/coronavirus/3-million-masks-used-globally-every-minute-researchers-warn](https://justthenews.com/politics-policy/coronavirus/3-million-masks-used-globally-every-minute-researchers-warn)
+
+
+
+#### 史上最糟糕演说
+
+
+
+> "WORST. SPEECH. EVER." | [@gregkellyusa](https://twitter.com/gregkellyusa?ref_src=twsrc%5Etfw) tears through Biden's 'stupid, phony, typical-politician, and downright weird' national address. [https://t.co/3UPfQPlVZW](https://t.co/3UPfQPlVZW)
+> — Newsmax (@newsmax) [March 13, 2021](https://twitter.com/newsmax/status/1370547661036748807?ref_src=twsrc%5Etfw)
+
+
+
+12日Newsmax 主播 格雷格-凯里（Greg Kelly）对11日晚拜登的总统讲话讽刺挖苦得淋漓尽致，从拜登谈口罩、谈疫情、疫苗等问题一一回击、嘲讽，称他是“愚蠢、虚伪的典型政客, 彻头彻尾怪异，而对川普总统的支持溢于言表。
+
+
+
+（本文当日持续更新中）
+
+
+
+文章观点部分仅代表作者本人。
+
+
+
+编辑：康州盘古农场 喜马拉雅的文雅
+
+封面：康州盘古农场 霹雳年
+
+《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。
+
+
+
++1
