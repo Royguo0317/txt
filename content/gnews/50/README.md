@@ -1,52 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧洲战友和欧洲的军事部门开展全面合作，以毒灭共进入新时刻
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/970878/)
+## 郭先生0311VI此时重建是让战友们的钱安全并成为最富有的
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/972158/)
 
-新闻简述：在2021年2月22日的盖特视频中，郭先生透露有中共背景的科学家已经开始和欧洲国家情报部门合作，揭露中共的两个项目和长期的灭白行动，以毒灭共进入了新的时刻。他说：“新中国联邦开启被共产党洗脑的14 亿中国人的智慧，唤醒中国人的良知，让中国人找回自己的尊严和勇气，和有体面的生活，这是每个人都拥有的，不是共产党的专利。”
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210222-getter2.srt.txt)
-**欧洲战友和欧洲的军事部门开展全面合作，以毒灭共进入新时刻**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/11-2-1.jpg)
+编辑整理：
 
-**Important Scientists Inside the CCP Come Forward to Cooperate with the West**
+纽约香草山农场：兰草（文泉）
 
-欧洲给我发来信息，说：“Miles，我们特别感谢你，给我们介绍了几个特别有良知的中国人。” 在欧洲的有中共背景的科学家们，这些人经过长期的，也就是几个月以来的思考，因为他们很多家人已经定居在欧洲了，曾经参与过这两个项目，他们知道这个中间的部分的事实，是由七哥介绍给他们这些政府的官员和情报部门认识。
+日本东京方舟农场：山川异域
 
-A message was sent to me from Europe, saying, “Miles, we are very grateful to you for introducing to us these Chinese who are with great conscience.” After several months’ struggling, a few scientists in Europe with a CCP background have come forward to get in touch with government officials and intelligence agencies through me. These people’s families have mostly settled down in Europe. They were participants of the two projects and know part of the fact behind this [virus]. I introduced them to those officials in European governments and intelligence services.
+郭文贵先生在[3月11号 文贵直播 （完整）：加拿大恢复正式农场；关于G-TV投资者的解决方案；全球各农场要承担好服务战友的责任](https://gtv.org/video/id=604a54c975e88a51e6eb2379)直播中谈到了衣服、直播的灯、GTV被黑客、杨澜找钥匙；谈到了加拿大农场挺过了共产党全面洗劫式超限战；谈到了关于汇款和签合同要注意的问题；谈到了关于本次G-TV私募的几个特征等内容，本系列将根据郭先生直播中涉及的不同侧重点逐一上传，以下为本系列第六部分也是本系列的终结篇——此时重建是让战友们的钱安全并成为最富有的
 
-当然他们由于考虑到国内家人的利益，由于考虑到在欧洲和美国等各种的生意，这是完全正常的。没有几个人敢像科学家这样，站出来敢这样地来灭共的，没有几个，说的容易做到难呐，他有太多的考虑。
+据[3月11号 文贵直播 （完整）：加拿大恢复正式农场；关于G-TV投资者的解决方案；全球各农场要承担好服务战友的责任](https://gtv.org/video/id=604a54c975e88a51e6eb2379)时间点1：04：29——
 
-Of course, considering the interests of their family members in mainland China and their various businesses in Europe and the U.S., it’s completely normal [for them to wait a little long to come forward]. Few people dare to stand up to take down the CCP in this way like our scientist [Dr. Yan], not many. It’s easier said than done because there are too many concerns.
+所以说兄弟姐妹们，今天告诉你们，**七哥为啥这时候要重建，知道吧？就是让战友们，我要让战友们一定要在下垂这个车的时候，你们的钱是安全的，你们有足够的未来，能把钱经历过这场危机，然后你们将成为这个世上最富有的。**
 
-那么这些人经过深思熟虑后，（我准备戴黑手套，五个手指头啊，不是四个，）他们最近做出了重大的决定，然后跟这些情报部门和政府部门一起合作，提供了一些非常重要，有情报证明共产党长期地，有计划地对白人，也就是“灭白计划”，对西方整个是一个种族大屠杀式的，用杨娘娘、王毅的话讲叫“潘多拉的盒子”，（真正的黑手啊，真正的黑手，）潘多拉的盒子整个计划。
+我现在就在最快的赶一件事，能尽快的把G-Dollar未来能变成申请到银行的牌照，就你们的股票未来除了在外边你压个30%、20%是轻轻松松的，那些借贷公司就能给你压去，最好的能在咱们G系列里面，能在G-Dollar里边能给你押钱。**等这场(危机)”唰”下来的时候，你们拿着跟G-Dollar里边借的钱，然后去买，也买一些G-Fashion大裤衩子，然后去换成大楼去，中不中？**
 
-So after careful consideration, these people – I’m going to wear black gloves with five fingers, not four – made a critical decision recently. And then they started to cooperate with these intelligence and government agencies to provide some very important evidence to prove the existence of the CCP’s long-term and systematic plan of targeting the white people, that is, the “white extinction plan”, which is a white genocide plan targeting the West. It is called “Pandora’s Box” in the words of Yang Jiechi and Wang Yi. (Showing his black gloves.) Real black hands, real black hands. It’s the whole plan of Pandora’s box.
+美国的恶性通胀、共产党的恶性的整个全世界的货币扩张，然后恶性的所谓的疫苗经济和疫苗认证，到了人类上所有的一切，**不是他们的大重启，是我们的大重启。他酝酿了一个大重启的按钮，最后是我们来按，根据我们的计划来算。**走着看，兄弟姐妹们，还是那句——莘县阳谷县搭县，咱们走走看！共产党你玩球蛋了！不信咱走走看。好了，今天就直播到这儿。咱们一起为75亿全世界人民、14亿新中国联邦同胞、台湾同胞、西藏同胞、香港同胞和所有爆料革命的战友和家人们祈福！
 
-七哥没办法跟你们形容这些人的震撼。他说：“Miles，如果几年前我们听到你跟我们说这些，世界真的不至于走到这个灾难。” 美国现在在病入膏盲之中，正在享受被3F之中，让他再受受伤流点血，他会醒来的。欧洲的醒来对灭共的事业至关重要，但是我再说一遍，战友们，灭共永远不要指望任何第三方，一定是以共灭共，中国人灭共，是我们新中国联邦人灭共。谁都挡不了，以毒灭共，以钱灭共。当大家你们真正的意识到的时候，真正的感受到其中的奥妙的时候，你们可以感受到无穷无尽的快乐，别想歪了，想歪了，一说高潮就想到床，一想到快乐就想到男女双修，这不是那意思啊。
+(合十)阿弥陀佛！
 
-I can’t describe the shock of these people to you. He said, “Miles, if we listened to your warnings a few years ago, the world would not have come to this disaster.” The U.S. is now in the midst of severe illness and is “enjoying” being destroyed by the 3F plan. So, let it bleed for a little longer and suffer a little more, and then it will wake up. The waking up of Europe is crucial to taking down the CCP, but let me say this again, my brothers-in-arms, never count on others to take down the CCP for us. It must be by the communists themselves, by the Chinese and by the people of our New Federal State of China (NFSC). No one can stop us from taking down the CCP by spreading the truth about the CCP virus and by financial activities. When you are truly aware of the importance of this and the wisdom of this, you will feel endless happiness. Don’t misinterpret my words and think that happiness always means orgasm and sex. That’s not what I mean.
+啪啪啪（击掌三下）！
 
-所以说兄弟姐妹们，有良知的中国人，和在放掉恐惧和个人利益和无我之后，与新中国联邦人一起自然而然地联合一起来灭共，这是没有任何疑问，没有任何悬念，只是时间多长，有多少人参与了在一起，这就是我们新中国联盟的魅力和力量。真的是灭共没你不行，因为每个人的积累和每个人做出的行动，都在一次又一次在社交媒体上，在事实面前，它会扩大，会延续，像香火，星星之火，它会越烧越大。
+兄弟姐妹们，今天这个临时性的，国内很多战友说:七哥，今天必须直播，必须直播。他说你不要老发盖特了，直播。他说，再晚也等着你。特别是有一位老大姐说，我被我儿子给多次谈话，她说我这个傻儿子被他们共产党给洗脑了，竟然让他们的纪委书记来给我谈话。这老革命了啊，这老革命本身是干纪委出身的，现儿子当一副市长，去举报他亲娘，说我娘在家看郭文贵直播。
 
-So brothers and sisters, after letting go of fear, personal interests, and selflessness, those Chinese people with conscience will naturally unite with people of the NFSC to take down the CCP together. There is no doubt about it, without a doubt. It’s just a matter of how long it will take and how many people will join us. This is the charm and strength of our NFSC. It’s really impossible to take down the CCP without you, because everyone’s efforts and contributions count, including everything that you post on social media. What you have done will multiply and continue to exist, and they will be like sparks in the beginning and these sparks can become much larger flames.
+这王八蛋你说有多坏，你说。结果当纪委书记找他妈谈了:不能看郭文贵的爆料直播，如何如何。结果他妈说，你们管不着我，把我抓起来，我就看郭文贵直播，为啥看郭文贵直播？我及时为党组织收集爆料革命的信息。最后中纪委说:那你看吧，看吧，不管了。这老大姐跟我说，七哥你得直播，你为啥要直播呢？这是关键的时刻有些问题，那些假的所谓共产主义社科院都说假话，一帮哪有说真话的？你讲讲吧。我说好好好，我在吃着饭呢，我给战友发录视频，我这儿吃啥呢。我说好啊，直播。就这我就直播了。还有一个，很多有椅子的战友问咋办？咋办？有些特殊情况的战友问，我说咋办、咋办。刚才说了，今天的直播就这么发生的，完全乱聊我完全没准备，啥都不说了。共产党是玩球蛋了，完球蛋了，啥都不说了。
 
-其中有一位在和某国政府商量完以后，他家人全到了美国，但他在欧洲，他留在那里，据说这位，刚才这位政府官员说：“文贵先生这个人从过去的恐惧到今天的勇敢，整个变了一个人。”  兄弟姐妹们，新中国联邦开启被共产党洗脑的14 亿中国人的智慧，唤醒中国人的良知，让中国人找回自己的尊严和勇气，和有体面的生活，这是每个人都拥有的，不是共产党的专利，每一句话都绝对重要，因为会让中国人找到真正的自己。
+阿弥陀佛！
 
-After one of the scientists met with the government of a country, his family all went to the U.S., but he stayed in Europe. An official of this government told me, “Mr. Miles Guo, from his fear in the past to today’s bravery, this person has totally changed.” Brothers and sisters, the NFSC has unlocked the wisdom of the 1.4 billion Chinese people who were brainwashed by the CCP, has awakened the conscience of the Chinese people, and has allowed the Chinese people to regain their dignity, courage, and decent lives. These are deserved by everyone, and they are not the CCP exclusive. These words are absolutely important because they will let the Chinese find their true selves.
+啪啪啪（击掌三下）！好，就这样，今天。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+接上文——
 
-视频来源：[https://gtv.org/getter/6033f2ab19585159023673f8](https://gtv.org/getter/6033f2ab19585159023673f8) (0:11-4:58)
+[郭先生0311I中南坑大脑袋对那么多人能看到GTV相当愤怒](https://gnews.org/zh-hans/971460/)
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/927430/](https://gnews.org/zh-hans/927430/)
+[郭先生0311II加拿大农场挺过了共产党全面洗劫式超限战](https://gnews.org/zh-hans/971518/)
 
-* * *
+[郭先生0311III关于汇款账号确认和正确签合同要注意的问题](https://gnews.org/zh-hans/971576/)
 
-翻译：【Isaiah4031】校对：【Rock小哥】字幕：【Rock小哥】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+[郭先生0311IV重建GTV和发起募资将采取标准化快速化方式](https://gnews.org/zh-hans/971885/)
 
-0
+[郭先生0311V:GTV不公募不上市基于当前形势和未来趋势的预判](https://gnews.org/zh-hans/972138/)
+
+\*\*\*\*\*\*\*全文完，下次直播再见\*\*\*\*\*\*\*
+
++2
