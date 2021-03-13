@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】蓬佩奥：有“充分证据”表明冠状病毒起源于武汉实验室
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/971352/)
+## 【粤语配音】以比尔·盖茨为代表的美国精英和建制派已和中共合作数十年
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/971369/)
 
-3/3/2021 蓬佩奥：有“充分证据”表明冠状病毒起源于武汉实验室。
+3/8/2021 以比尔·盖茨为代表的美国精英和建制派实际上已和中共合作数十年。
 
 By： 【秘密翻译组 G-Translators】
 
