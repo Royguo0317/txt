@@ -1,96 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0313.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/972447/)
+## 美国即将发表CCP病毒白皮书 其意义远不止于灭共
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/971256/)
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0313.jpeg)
+加拿大多伦多枫叶农场 丁过
+![]()![](https://gnews.org/wp-content/uploads/2021/03/gnews-6.jpg)
+新中国联邦创始人郭文贵先生在刚才的盖特直播中透露，美国政府的相关机构，对已造成近265万人死亡的CCP病毒真相的调查，自川普政府开始到当今的拜登政府从未停止。另外，对中共在香港残害数以万计的青少年、肆意践踏民主自由的罪恶行径也在调查取证当中。预计美国议会或政府将在近期发布以上两个调查的官方白皮书。
 
+白皮书是一国政府或议会正式发表的重要官方文件，因为代表政府立场，必须讲究事实而且立场明确，因而具有不容质疑的权威性。对于因受CCP病毒危害而处于深重危机之中的美国及世界而言，CCP病毒来源的认定是极为严肃和重大的事情——不仅要对释放病毒者认定为战争行为，也是奠定所有反击选项包括战争的法理依据，可谓千钧一发。
 
-#### 向中共国追责
+众所周知，中共这样的独裁国家缺乏公信力甚至荒谬绝伦，但宪政民主国家的三权相互制衡，并且受自由舆论的监督，因而形成值得信赖的严谨务实传统，这也是西方各级国家机器得以正常并有力运转的先决条件。那么，认定病毒来源和香港人权状况的白皮书一旦发表，美国乃至全世界将如何反应呢？
 
-3月13日弗罗里达众议员布莱恩-马斯特再次转发他在接受福克斯新闻采访时的谈话，他提到“停止向中（共）国支付债务直到他们就病毒的问题做出回答。”他表示，中共的问题涉及很多国家，但是“只有一个国家能够领导（带头）就冠状病毒向中共追责，这就是美国。没有其他哪个国家可以领导。”
+简单的说，在国际上，如果美国政府认定中共发动了超限生物战，在香港犯下了反人类罪，由于情报信息共享、语言相同、文化及价值观相似，预计五眼联盟将紧随美国发表相似的政厨白皮书，随后欧盟及美国在印太的所有盟友将亦步亦趋，最后将推及全世界，包括现在为了利益和中共打得火热的国家，将争先恐后地重新站队到英语系国家这一边，除了捞取新的利益，还要在围殴中共的行动中分一杯羹。
 
-议员先生的讲话让笔者仿佛看到当年正义附身血气方刚的美国回来了。
+由于国际社会反应踊跃，灭共情绪高涨，已明显衰落的美国勇气和信心将大增——通过领导全球灭共，重新成为说一不二的世界霸主。在此之前，美国将快速通过对中共的恐怖组织或跨国犯罪组织的法律认定。当然，世界各国将争相效仿美国的认定。至此，中共国被明确为美国的国家敌人，世界的公敌。
 
+当今处于内部分裂、债台高筑的美国，确实需要借助一个敌手来治愈。被誉为“初显的神迹”的班农先生，多年前就认为，为了阻止社会道德的沦丧及传统价值的进一步削弱，我们需要一场末日式的战争来拯救这个国家。当时的有识之士认为班农用心良苦，说他在召唤美利坚民族精神的回归，甚至召唤这个末日之战尽快到来，以避免万劫不复的民族灾难。
 
+不管和中共的末日战争是否能够避免，或且战争的代价有多大，但可以预料的是中共必定灭亡，以毒灭共的意义并不止于消灭中共，更加伟大的是拯救了人类文明——这就是郭先生判断的全球向右转的含义。
 
-> There’s only one country that can take the lead on holding China accountable for coronavirus and that’s the United States of America. [pic.twitter.com/bMKfrxWRtz](https://t.co/bMKfrxWRtz)
-> — Rep. Brian Mast (@RepBrianMast) [March 13, 2021](https://twitter.com/RepBrianMast/status/1370702429541441542?ref_src=twsrc%5Etfw)
+* * *
 
+编辑 发稿 云起时
 
-
-3月12日，《福克斯朋友优先》推文引用布莱恩议员的话，“他们确实需要被追究责任。”@Brian Mast议员 告诉 #FoxFriendsFirst 美国应该扣留对中国的债务支付，直到COVID-19问题得到回答。议员先生称，我们需要向中共国追责，他们需要回答病毒是不是来源于武汉病毒实验室？那里发生了什么？他们掩盖了什么？他们和世卫组织掩盖了什么？
-
-
-
-> “They do need to be held accountable”: [@RepBrianMast](https://twitter.com/RepBrianMast?ref_src=twsrc%5Etfw) tells [#FoxFriendsFirst](https://twitter.com/hashtag/FoxFriendsFirst?src=hash&amp;ref_src=twsrc%5Etfw) the U.S. should withhold debt payments to China until COVID-19 questions are answered.[https://t.co/OLiyRP3MuD](https://t.co/OLiyRP3MuD)
-> — Fox & Friends First (@FoxFriendsFirst) [March 12, 2021](https://twitter.com/FoxFriendsFirst/status/1370413052814897153?ref_src=twsrc%5Etfw)
-
-
-
-
-
-#### 我们的自由不由政府决定
-
-3月12日前国务卿蓬佩奥先生就拜登在公开讲话时的言论表示抗议，拜登要求人们都去接种疫苗、从而在今年国庆节可以和家人邻居亲朋聚会聚餐。蓬佩奥先生称：“在7月4日，我们庆祝美国和我们的许多自由。自由其中之一就是，你可以决定是否你想和家人朋友在你自己的后院，而不是由政府决定。”
-
-
-
-> On the 4th of July, we celebrate America and our many freedoms. One of those freedoms is that YOU get to decide if you want to have family and friends over in your own backyard, NOT the government. [https://t.co/xl1ovY9sef](https://t.co/xl1ovY9sef)
-> — Mike Pompeo (@mikepompeo) [March 12, 2021](https://twitter.com/mikepompeo/status/1370390033597935617?ref_src=twsrc%5Etfw)
-
-
-
-#### 性贩运
-
-3月12日鲁迪-朱利安尼先生推文称：今天的节目揭露了美国黑暗的性交易黑幕。
-@BooyensJaco 解释了性贩运如何成为一种流行病，现在伴随着美国-墨西哥边境的疫情和危机，已经达到了前所未有的水平。
-
-
-
-> 🚨 Today’s episode exposes the dark underworld of sex trafficking in the US. [@BooyensJaco](https://twitter.com/BooyensJaco?ref_src=twsrc%5Etfw) explains how sex trafficking has become an epidemic and now, with the pandemic and crisis at the US-Mexico border, has reached unprecedented levels.
-> 
-> Here: [https://t.co/APgb2Du8kc](https://t.co/APgb2Du8kc) [pic.twitter.com/5pMhlzSpXL](https://t.co/5pMhlzSpXL)
-> — Rudy W. Giuliani (@RudyGiuliani) [March 12, 2021](https://twitter.com/RudyGiuliani/status/1370454178838016006?ref_src=twsrc%5Etfw)
-
-
-[https://rumble.com/vekwsd-the-dark-underworld-of-sex-trafficking-in-the-u.s.-rudy-giuliani-and-jaco-b.html](https://rumble.com/vekwsd-the-dark-underworld-of-sex-trafficking-in-the-u.s.-rudy-giuliani-and-jaco-b.html)
-#### 中共病毒疫情的又一次生灾难
-
-据《Just The News》， 研究人员警告说，在冠状病毒大流行的过程中，口罩的大量使用可能会导致一场迫在眉睫的环境灾难，每分钟都有三百万个口罩被使用，其中许多口罩在使用过程中会污染当地的生态系统。
-
-[https://justthenews.com/politics-policy/coronavirus/3-million-masks-used-globally-every-minute-researchers-warn](https://justthenews.com/politics-policy/coronavirus/3-million-masks-used-globally-every-minute-researchers-warn)
-
-
-
-#### 史上最糟糕演说
-
-
-
-> "WORST. SPEECH. EVER." | [@gregkellyusa](https://twitter.com/gregkellyusa?ref_src=twsrc%5Etfw) tears through Biden's 'stupid, phony, typical-politician, and downright weird' national address. [https://t.co/3UPfQPlVZW](https://t.co/3UPfQPlVZW)
-> — Newsmax (@newsmax) [March 13, 2021](https://twitter.com/newsmax/status/1370547661036748807?ref_src=twsrc%5Etfw)
-
-
-
-12日Newsmax 主播 格雷格-凯里（Greg Kelly）对11日晚拜登的总统讲话讽刺挖苦得淋漓尽致，从拜登谈口罩、谈疫情、疫苗等问题一一回击、嘲讽，称他是“愚蠢、虚伪的典型政客, 彻头彻尾怪异，而对川普总统的支持溢于言表。
-
-
-
-（本文当日持续更新中）
-
-
-
-文章观点部分仅代表作者本人。
-
-
-
-编辑：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。
-
-
-
-+1
++5
