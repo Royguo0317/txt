@@ -1,34 +1,96 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 赵婷或将成为中共对好莱坞审查的牺牲品？
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/973401/)
+## 美国政要等每日重要信息0313.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/972447/)
 
-```
-参考新闻：《好莱坞报道》
-发布时间：2021年3月12日
-翻译/整理：阿娜
-```
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0313.jpeg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/BB1eiKye-e1615669154624.jpg)封面：网络图片
-2月28日，当赵获得金球奖最佳导演奖（亚洲女性首创）时，无论是中共国还是美国，这一时刻广为人知。作为民族自豪感的来源，中共国的新闻媒体和社交媒体用户都为她的成功而欢呼。然而，一天之内，风向大变。因为互联网侦探们发掘了旧的采访，赵看起来批评了中共国。不久，关于她对中共国的态度的辩论和一些琐碎的事正以这种说法迅速传播。中共的互联网审查员紧随其后，在社交媒体上阻止了对《无依之地》的大多数宣传，并删除了许多关于该片将于4月23日在中共国上映日期的内容。
 
-到目前为止，中共国的业内人士告诉《好莱坞报道》（The Hollywood Reporter），监管机构似乎在等待和观察，以便对赵的电影在中共国的命运做出最终判断。北京一家知名工作室的一位高管表示 “这将取决于她和她的团队如何处理危机，”（由于情况的敏感性，他不愿透露姓名）。这位高管补充说：“赵可能不得不说些什么来讨好中共国的观众。” 如果您发现自己是全国性互联网反对的人，那么本能反应可能就是保持暂时低调。但是电影制片人赵婷可能没有这种选择。
+#### 向中共国追责
 
-在对赵的强烈反对之时，爆发性的和不可预测的民族主义情绪已经成为中共国市场观察者经常发生的现象，特别是自几年前美国与中共国关系开始恶化以来。好莱坞在中共国市场准入方面最大的与内容相关的风险可能是中共的审查程序。
+3月13日弗罗里达众议员布莱恩-马斯特再次转发他在接受福克斯新闻采访时的谈话，他提到“停止向中（共）国支付债务直到他们就病毒的问题做出回答。”他表示，中共的问题涉及很多国家，但是“只有一个国家能够领导（带头）就冠状病毒向中共追责，这就是美国。没有其他哪个国家可以领导。”
 
-长期以来，中共国一直渴望获得奥斯卡代表的西方对艺术的认可，但中共严格控制电影的叙事方式和内容。《无依之地》这部电影实际上隐含地批评了美国的社会制度，而没有说中共国，但这使得赵陷入了审查和谴责的风险中。
+议员先生的讲话让笔者仿佛看到当年正义附身血气方刚的美国回来了。
 
-《环球时报》的主编胡锡进最近发表了一个中间立场，他说：“对赵的持续反对是她必须为自己所说的话付出的代价。但是我认为没有必要把电影从电影院撤出。保持中共国的开放意味着能够容纳一些冲突和矛盾。”他在微博上广泛分享的一篇文章中写道：“中共国观众将自己决定他们对赵婷及其电影的感受，市场将结束它。” 胡大外宣看似发表的中立观点，但他所说的赵婷女士应该为她说的话付出代价，这里应该改成中共会为它的审查制度付出代价，因为中共的审查制度虽然可以对国内上映的电影叙事方式产生影响，但它终究不能决定所有的电影和导演。中共可以买通好莱坞，但它不可能买断好莱坞。
 
-**免责声明：本文观点仅供参考，不代表GNEWS平台观点。**
 
-**🔗新闻来源链接：**
+> There’s only one country that can take the lead on holding China accountable for coronavirus and that’s the United States of America. [pic.twitter.com/bMKfrxWRtz](https://t.co/bMKfrxWRtz)
+> — Rep. Brian Mast (@RepBrianMast) [March 13, 2021](https://twitter.com/RepBrianMast/status/1370702429541441542?ref_src=twsrc%5Etfw)
 
-[Chloe Zhao Backlash Will Test China’s New Era of Hollywood Censorship](https://www.hollywoodreporter.com/news/chloe-zhao-backlash-will-test-chinas-new-era-of-hollywood-censorship)
 
-* * *
 
-**审核/校对：**Ting Guo
+3月12日，《福克斯朋友优先》推文引用布莱恩议员的话，“他们确实需要被追究责任。”@Brian Mast议员 告诉 #FoxFriendsFirst 美国应该扣留对中国的债务支付，直到COVID-19问题得到回答。议员先生称，我们需要向中共国追责，他们需要回答病毒是不是来源于武汉病毒实验室？那里发生了什么？他们掩盖了什么？他们和世卫组织掩盖了什么？
 
-0
+
+
+> “They do need to be held accountable”: [@RepBrianMast](https://twitter.com/RepBrianMast?ref_src=twsrc%5Etfw) tells [#FoxFriendsFirst](https://twitter.com/hashtag/FoxFriendsFirst?src=hash&amp;ref_src=twsrc%5Etfw) the U.S. should withhold debt payments to China until COVID-19 questions are answered.[https://t.co/OLiyRP3MuD](https://t.co/OLiyRP3MuD)
+> — Fox & Friends First (@FoxFriendsFirst) [March 12, 2021](https://twitter.com/FoxFriendsFirst/status/1370413052814897153?ref_src=twsrc%5Etfw)
+
+
+
+
+
+#### 我们的自由不由政府决定
+
+3月12日前国务卿蓬佩奥先生就拜登在公开讲话时的言论表示抗议，拜登要求人们都去接种疫苗、从而在今年国庆节可以和家人邻居亲朋聚会聚餐。蓬佩奥先生称：“在7月4日，我们庆祝美国和我们的许多自由。自由其中之一就是，你可以决定是否你想和家人朋友在你自己的后院，而不是由政府决定。”
+
+
+
+> On the 4th of July, we celebrate America and our many freedoms. One of those freedoms is that YOU get to decide if you want to have family and friends over in your own backyard, NOT the government. [https://t.co/xl1ovY9sef](https://t.co/xl1ovY9sef)
+> — Mike Pompeo (@mikepompeo) [March 12, 2021](https://twitter.com/mikepompeo/status/1370390033597935617?ref_src=twsrc%5Etfw)
+
+
+
+#### 性贩运
+
+3月12日鲁迪-朱利安尼先生推文称：今天的节目揭露了美国黑暗的性交易黑幕。
+@BooyensJaco 解释了性贩运如何成为一种流行病，现在伴随着美国-墨西哥边境的疫情和危机，已经达到了前所未有的水平。
+
+
+
+> 🚨 Today’s episode exposes the dark underworld of sex trafficking in the US. [@BooyensJaco](https://twitter.com/BooyensJaco?ref_src=twsrc%5Etfw) explains how sex trafficking has become an epidemic and now, with the pandemic and crisis at the US-Mexico border, has reached unprecedented levels.
+> 
+> Here: [https://t.co/APgb2Du8kc](https://t.co/APgb2Du8kc) [pic.twitter.com/5pMhlzSpXL](https://t.co/5pMhlzSpXL)
+> — Rudy W. Giuliani (@RudyGiuliani) [March 12, 2021](https://twitter.com/RudyGiuliani/status/1370454178838016006?ref_src=twsrc%5Etfw)
+
+
+[https://rumble.com/vekwsd-the-dark-underworld-of-sex-trafficking-in-the-u.s.-rudy-giuliani-and-jaco-b.html](https://rumble.com/vekwsd-the-dark-underworld-of-sex-trafficking-in-the-u.s.-rudy-giuliani-and-jaco-b.html)
+#### 中共病毒疫情的又一次生灾难
+
+据《Just The News》， 研究人员警告说，在冠状病毒大流行的过程中，口罩的大量使用可能会导致一场迫在眉睫的环境灾难，每分钟都有三百万个口罩被使用，其中许多口罩在使用过程中会污染当地的生态系统。
+
+[https://justthenews.com/politics-policy/coronavirus/3-million-masks-used-globally-every-minute-researchers-warn](https://justthenews.com/politics-policy/coronavirus/3-million-masks-used-globally-every-minute-researchers-warn)
+
+
+
+#### 史上最糟糕演说
+
+
+
+> "WORST. SPEECH. EVER." | [@gregkellyusa](https://twitter.com/gregkellyusa?ref_src=twsrc%5Etfw) tears through Biden's 'stupid, phony, typical-politician, and downright weird' national address. [https://t.co/3UPfQPlVZW](https://t.co/3UPfQPlVZW)
+> — Newsmax (@newsmax) [March 13, 2021](https://twitter.com/newsmax/status/1370547661036748807?ref_src=twsrc%5Etfw)
+
+
+
+12日Newsmax 主播 格雷格-凯里（Greg Kelly）对11日晚拜登的总统讲话讽刺挖苦得淋漓尽致，从拜登谈口罩、谈疫情、疫苗等问题一一回击、嘲讽，称他是“愚蠢、虚伪的典型政客, 彻头彻尾怪异，而对川普总统的支持溢于言表。
+
+
+
+（本文当日持续更新中）
+
+
+
+文章观点部分仅代表作者本人。
+
+
+
+编辑：康州盘古农场 喜马拉雅的文雅
+
+封面：康州盘古农场 霹雳年
+
+《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。
+
+
+
++1
