@@ -1,52 +1,89 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧洲战友和欧洲的军事部门开展全面合作，以毒灭共进入新时刻
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/970878/)
+## 武汉病毒所偷偷开展“功能获得”实验
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/971045/)
 
-新闻简述：在2021年2月22日的盖特视频中，郭先生透露有中共背景的科学家已经开始和欧洲国家情报部门合作，揭露中共的两个项目和长期的灭白行动，以毒灭共进入了新的时刻。他说：“新中国联邦开启被共产党洗脑的14 亿中国人的智慧，唤醒中国人的良知，让中国人找回自己的尊严和勇气，和有体面的生活，这是每个人都拥有的，不是共产党的专利。”
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210222-getter2.srt.txt)
-**欧洲战友和欧洲的军事部门开展全面合作，以毒灭共进入新时刻**
+#### 翻译：WEN JIE| 责编：人间四月
+![]()![](https://gnews.org/wp-content/uploads/2021/03/capture-14-13.jpg)图片来源：武汉病毒研究所官方网站
+乔希·罗金（Josh Rogin）3月8日在美国POLITICO杂志撰稿说，1月15日，在川普总统任期的最后几天，国务院发出一份严肃指责CCP病毒起源的声明。这份声明说美国情报部门有证据表明2019年秋天在武汉病毒研究所（WIV）的几名研究人员发病症状有些像CCP病毒的感染症状——这表明中共政府隐瞒了这个病毒关键信息长达几个月。武汉病毒研究所，尽管“标榜它是一个民间的实验室”，却在和中共军方进行秘密研究项目。国务院声称中共政府掩盖并指责“中共直到今天还继续拒绝提供关键信息给科学家用来保护世界遭受这个致命病毒的侵袭，甚至还有下一个病毒。”
 
-**Important Scientists Inside the CCP Come Forward to Cooperate with the West**
+目前CCP病毒的确切起源直到今天仍然是一个谜，但是寻找答案并不关乎指责。除非是确定来源，否则病毒的真实传染路径是不能被追寻到的，科学家也不能研究出合适的办法来阻止病毒的继续爆发。
 
-欧洲给我发来信息，说：“Miles，我们特别感谢你，给我们介绍了几个特别有良知的中国人。” 在欧洲的有中共背景的科学家们，这些人经过长期的，也就是几个月以来的思考，因为他们很多家人已经定居在欧洲了，曾经参与过这两个项目，他们知道这个中间的部分的事实，是由七哥介绍给他们这些政府的官员和情报部门认识。
+**海鲜市场起源说**
 
-A message was sent to me from Europe, saying, “Miles, we are very grateful to you for introducing to us these Chinese who are with great conscience.” After several months’ struggling, a few scientists in Europe with a CCP background have come forward to get in touch with government officials and intelligence agencies through me. These people’s families have mostly settled down in Europe. They were participants of the two projects and know part of the fact behind this [virus]. I introduced them to those officials in European governments and intelligence services.
+中共政府有关病毒起源的说法，是来自武汉海鲜市场，这个说法曾并被世界广泛认可，但是在2020年的冬春相交之际，裂痕就慢慢显现出来。二月份披露的首例在武汉感染CCP病毒的患者与那个海鲜市场并没有关联。在合适的样本被收集之前，中共政府就在一月份关闭了那个市场并且进行了消毒。直到五月中共国的疾病控制中心（CDC）才最终否认了这个海鲜市场起源说。
 
-当然他们由于考虑到国内家人的利益，由于考虑到在欧洲和美国等各种的生意，这是完全正常的。没有几个人敢像科学家这样，站出来敢这样地来灭共的，没有几个，说的容易做到难呐，他有太多的考虑。
+2020年的春天，美国政府内部，有些官员开始接触到并且收集一些不同的证据，有关病毒大爆发与武汉实验室有关系，也包括武汉病毒研究所（WIV），这个研究所是一个先进的蝙蝠冠状病毒的研究中心。
 
-Of course, considering the interests of their family members in mainland China and their various businesses in Europe and the U.S., it’s completely normal [for them to wait a little long to come forward]. Few people dare to stand up to take down the CCP in this way like our scientist [Dr. Yan], not many. It’s easier said than done because there are too many concerns.
+按照美国政府里某些官员的说法，提到这个实验室名字有些耳熟。2017年下半年，美驻中共国大使馆外交官和官员曾因这个实验室研究蝙蝠的病毒引起他们的注意，有来自该实验室的科学家做报告说：“严重缺乏合适的训练有素的技术人员和研究人员可以安全操作这个高密闭实验室”，这促使他们警示过华盛顿要注意这个实验室。但是他们的电报并没有引起华盛顿的注意。
 
-那么这些人经过深思熟虑后，（我准备戴黑手套，五个手指头啊，不是四个，）他们最近做出了重大的决定，然后跟这些情报部门和政府部门一起合作，提供了一些非常重要，有情报证明共产党长期地，有计划地对白人，也就是“灭白计划”，对西方整个是一个种族大屠杀式的，用杨娘娘、王毅的话讲叫“潘多拉的盒子”，（真正的黑手啊，真正的黑手，）潘多拉的盒子整个计划。
+**由电报引发的争论**
 
-So after careful consideration, these people – I’m going to wear black gloves with five fingers, not four – made a critical decision recently. And then they started to cooperate with these intelligence and government agencies to provide some very important evidence to prove the existence of the CCP’s long-term and systematic plan of targeting the white people, that is, the “white extinction plan”, which is a white genocide plan targeting the West. It is called “Pandora’s Box” in the words of Yang Jiechi and Wang Yi. (Showing his black gloves.) Real black hands, real black hands. It’s the whole plan of Pandora’s box.
+就在乔希·罗金（Josh Rogin）于2020年4月将电报的警示内容公布出来的时候，引发一场大争论，他们说那样已经偏离科学辩证问题了，那将是演变成一个政治事件，有关这个实验室与病毒爆发的可能联系先前就在美国政府内部引起争论，已经被公众所知。第二天川普说他正在调查，国务卿迈克·蓬佩奥呼吁中共澄清病毒爆发的起源。两周后，蓬佩奥说有巨量的证据指向该实验室，但他没有提供所说的证据。由于川普和中共关系破裂，政府官员开始公开责备武汉实验室，美中关系进一步滑坡。
 
-七哥没办法跟你们形容这些人的震撼。他说：“Miles，如果几年前我们听到你跟我们说这些，世界真的不至于走到这个灾难。” 美国现在在病入膏盲之中，正在享受被3F之中，让他再受受伤流点血，他会醒来的。欧洲的醒来对灭共的事业至关重要，但是我再说一遍，战友们，灭共永远不要指望任何第三方，一定是以共灭共，中国人灭共，是我们新中国联邦人灭共。谁都挡不了，以毒灭共，以钱灭共。当大家你们真正的意识到的时候，真正的感受到其中的奥妙的时候，你们可以感受到无穷无尽的快乐，别想歪了，想歪了，一说高潮就想到床，一想到快乐就想到男女双修，这不是那意思啊。
+中共病毒仍然肆虐世界，病毒的起源也由于大量报道这场疫情和灾难而被搁置一旁。但是政府内部的争论仍然在继续，现在主要的争论是美国是否应该分享更多信息，就他们知道的关于这个实验室以及大爆发与这个实验室有可能的联系。1月15日情报部门将那份声明撤回，但是声明中包含的信息仍然是个秘密。然而现在拜登新政府正在走钢丝，一边呼吁中共释放更多信息，另一边却否认川普政府对中共指控的做法。美国国内政坛和美中关系对于病毒起源的说法仍然模棱两可。上个月国家安全顾问杰克·沙利文（Jake Sullivan）发表声明，对世卫组织（the World Health Organization）的专家即将发布的报告表示“深度关切”，该专家团队由世卫组织成员组成，并进入武汉调查，甚至走访了武汉病毒研究所，但是中共官方没有提供关键信息。
 
-I can’t describe the shock of these people to you. He said, “Miles, if we listened to your warnings a few years ago, the world would not have come to this disaster.” The U.S. is now in the midst of severe illness and is “enjoying” being destroyed by the 3F plan. So, let it bleed for a little longer and suffer a little more, and then it will wake up. The waking up of Europe is crucial to taking down the CCP, but let me say this again, my brothers-in-arms, never count on others to take down the CCP for us. It must be by the communists themselves, by the Chinese and by the people of our New Federal State of China (NFSC). No one can stop us from taking down the CCP by spreading the truth about the CCP virus and by financial activities. When you are truly aware of the importance of this and the wisdom of this, you will feel endless happiness. Don’t misinterpret my words and think that happiness always means orgasm and sex. That’s not what I mean.
+在四年多以前，即2017年下半年，美国驻中共大使馆的科学、卫生高级官员在中共国首都参加过一个会议。会场，中共科学家们正在就一项新研究做展示演讲，其中就包括几位来自武汉病毒研究所的科学家，美国国家卫生研究所（the U.S. National Institutes of Health）也在配合着。
 
-所以说兄弟姐妹们，有良知的中国人，和在放掉恐惧和个人利益和无我之后，与新中国联邦人一起自然而然地联合一起来灭共，这是没有任何疑问，没有任何悬念，只是时间多长，有多少人参与了在一起，这就是我们新中国联盟的魅力和力量。真的是灭共没你不行，因为每个人的积累和每个人做出的行动，都在一次又一次在社交媒体上，在事实面前，它会扩大，会延续，像香火，星星之火，它会越烧越大。
+自从中共国2002年爆发SARS，全世界的科学家们都在致力寻找将来预防和限制类似病毒爆发的方法。为了帮助他们，美国国家卫生研究所建立几个研究项目，有武汉病毒研究所的科学家参与其中，武汉病毒研究所涉及蝙蝠冠状病毒的许多研究工作也包含在内。这次新的研究课题是：蝙蝠SARS样冠状病毒丰富的基因库的发现为SARS冠状病毒的起源提供了新见解。
 
-So brothers and sisters, after letting go of fear, personal interests, and selflessness, those Chinese people with conscience will naturally unite with people of the NFSC to take down the CCP together. There is no doubt about it, without a doubt. It’s just a matter of how long it will take and how many people will join us. This is the charm and strength of our NFSC. It’s really impossible to take down the CCP without you, because everyone’s efforts and contributions count, including everything that you post on social media. What you have done will multiply and continue to exist, and they will be like sparks in the beginning and these sparks can become much larger flames.
+从这些研究者的报告中，美国的官员们获悉，在云南省的洞穴中发现的蝙蝠种群，给他们对SARS冠状病毒怎样产生和传播提供了新见解。那些科研人员炫耀道，他们很可能发现原始SARS冠状病毒的发源地。但是所有美国的外交官们关心的是这些科学家发现的三种新毒株，它们拥有独一无二的特征：它们都含有“棘蛋白”，尤其喜欢与一个特定的受体存在于人类肺部细胞，就是大家熟知的ACE2受体。那意味着这些毒株对于人类是个潜在危险，这些毒株现在在实验室，然而美国的外交官们都不熟悉。
 
-其中有一位在和某国政府商量完以后，他家人全到了美国，但他在欧洲，他留在那里，据说这位，刚才这位政府官员说：“文贵先生这个人从过去的恐惧到今天的勇敢，整个变了一个人。”  兄弟姐妹们，新中国联邦开启被共产党洗脑的14 亿中国人的智慧，唤醒中国人的良知，让中国人找回自己的尊严和勇气，和有体面的生活，这是每个人都拥有的，不是共产党的专利，每一句话都绝对重要，因为会让中国人找到真正的自己。
+知道了武汉病毒学家们所发现的意义，并且也了解武汉病毒所这个高等级生物安全实验室（BSL-4，生物安全4级）是一个新的实验室。美国大使馆的卫生、科技官员们决定去武汉做个核实。最终，在2017年年底和2018年年初，美国大使馆派遣了三批专家去武汉会见病毒所的科学家，其中就有石正丽，因为她发现并研究蝙蝠的冠状病毒，经常被称为“蝙蝠女”。
 
-After one of the scientists met with the government of a country, his family all went to the U.S., but he stayed in Europe. An official of this government told me, “Mr. Miles Guo, from his fear in the past to today’s bravery, this person has totally changed.” Brothers and sisters, the NFSC has unlocked the wisdom of the 1.4 billion Chinese people who were brainwashed by the CCP, has awakened the conscience of the Chinese people, and has allowed the Chinese people to regain their dignity, courage, and decent lives. These are deserved by everyone, and they are not the CCP exclusive. These words are absolutely important because they will let the Chinese find their true selves.
+在和武汉病毒所的科学家会谈的时候，美国的外交官员们都吃了一惊。中共的研究人员告诉他们，他们没有足够合适的经过培训的技术人员来安全操作他们的BSL-4实验室。武汉病毒所的科学要求更多的援助，能够让这个实验室的运行达到最高防护等级标准。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+大使馆的外交官们写了两份电报给华盛顿，报告了他们在武汉病毒所的见闻。他们在电报里说，更多需要做的是帮助这个实验室达到顶级的安全标准，并且他们督促华盛顿需要注意这个。他们也警示华盛顿武汉病毒所发现了新的蝙蝠冠状病毒能够轻松感染人类细胞，它们采用和SARS冠状病毒一样的细胞感染路径来感染人群。
 
-视频来源：[https://gtv.org/getter/6033f2ab19585159023673f8](https://gtv.org/getter/6033f2ab19585159023673f8) (0:11-4:58)
+其中一个电报起草者说，将这两方面放一起，一种特别危险的病毒种群在一个有实际安全问题的实验室里研究，都将会被视作有潜在公共卫生危机的警示。这个电报起草者还说，他们给电报设定的“公开状态”是因为他们想让更多的人读到它并回家分享给其他人。但是还是没有来自美国国务院的任何回应，并且从没有将这些警告公之于众。随着美中紧张关系穿越整个2018年，美国的外交官也失去了进入诸如武汉病毒所的机会。
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/927430/](https://gnews.org/zh-hans/927430/)
+一位美国官员说，这份电报是个预警，他们祈求人们多多注意正在发生的事。整个世界将会非常关注这件事，但是到那时候一切都太晚了。
 
-* * *
+这些电报不是川普政府的官员透露的，很多媒体人士都有这样错误的猜想。川普和习总书记在三月二十六日的电话中已经同意停止口水战，但有个中共的外交官在推特上说，病毒的爆发可能是由美国军人造成的而导致整个事态爆发。那个行为也导致川普开始称这个病毒为“中国病毒”，以带有种族主义的方式故意谴责中共国。习也在电话中警告川普，在美国最困难的时刻，中共提供关键的医护设备，这样的合作水准将会因为美方持续的谴责而受到伤害。
 
-翻译：【Isaiah4031】校对：【Rock小哥】字幕：【Rock小哥】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+任何有关这次流行病的起源说都要解释一个事实，CCP病毒大爆发就在武汉病毒所家门口，该所拥有世界最大的蝙蝠冠状病毒样本，拥有最接近SARS-Co-2的病毒，我们所知道的RaTG13，是石正丽在她的实验室鉴定出来的。
+
+石正丽在三月份的一次采访中说，当她开始被告知这个病毒爆发的时候，她还在想是不是官员搞错了。因为她认为像这样的病毒只会在中共国南部爆发，大部分的蝙蝠都生活在那里。她说她从没有预料到这样的事情会在武汉发生，在中共国的中部地区发生。
+
+到四月份的时候，美国国土安全部和国务院的官员开始收集一些间接证据，证明病毒来源于武汉病毒所而不是水产市场。他们觉得前者对病毒爆发的解释完全合理，而后者只会是一种极端的巧合。但是那些官员们也不敢大声说出来，因为他们没有确凿的证据。要是美国政府没有确凿证据指控中共就该病毒爆发撒了谎，中共肯定会不断恶化中美之间的紧张关系，那意味着美国无法获得来自中共国的医疗物资供应，那可是美国急需用来抵抗迅速传播的CCP病毒的救命物资。
+
+**生物武器说**
+
+阿肯色州议员汤姆·科顿（Tom Cotton）似乎并不在乎这些顾虑。在2月16日，他提出了自己的理论，他在福克斯新闻（Fox News）声称这个病毒可能是来自中共的生物战项目，换句话说，它是被故意设计用来杀人的，虽然大部分科学家都认为这个致命病毒不是被“人工合成”的。这个CCP病毒没有直接基因操控证据。而且武汉病毒所也发表了他们的研究成果——蝙蝠冠状病毒可以传染人类，这与一个秘密的生物武器计划的保密等级不完全符合。
+
+科顿对病毒的猜测使寻找病毒起源成了爆炸新闻，他破坏了美国政府其他部门为准确找出病毒起源和CCP病毒大爆发所做的努力。从那时起，记者和政界人士都将冠状病毒是中共生物武器的观念与该病毒意外地从武汉病毒所释放出来的合理观念混为一谈，这使科顿的说法更加被媒体追逐。
+
+在罗金于4月14日在华盛顿邮报（WashingtonPost）专栏发表有关武汉病毒所的电报文章后，蓬佩奥公开呼吁中共“澄清”病毒的起源，并且几周后他声明有“巨量证据”造成的影响远超过他那篇电报文章。随后澳大利亚和欧盟仅仅建议就CCP病毒起源进行独立调查就遭到中共威胁。
+
+**实验室事故起源说**
+
+五月，中共疾控中心的官员在党媒上宣称，他们否定了病毒爆发来源于水产市场的可能性，这完全抛弃了中共最初的言论。而“蝙蝠女”石正丽本人认为实验室事故来源说也很理性。在三月的采访中，她回忆说当她获悉CCP病毒在武汉爆发，她疯狂的寻找自己实验室记录，她曾问过自己：“它来自我们的实验室吗？”当然如果她发现有新病毒，她也不可能承认，要知道中共政府在游说世界坚持认为病毒不是来自实验室。
+
+就实验室起源论，中共认为他们的研究人员是公开的从事他们的工作，并且公布了他们开展的病毒研究的成果。这个争论是用来攻击那些不信任中共科学家的人，中共科学家坚决否认他们的实验室没有任何可能为病毒爆发负责任。
+
+但在美国政府内部不同部门的官员，特别是国土安全部和国务院的，认为中共那些研究人员不像他们声称的那么坦诚。特别让他们担忧的是他们在进行“功能获得“研究，这个研究人为的增加危险病原体的毒力和传播能力。目的是帮助科学家预测病毒怎样以伤害人类的方式进化，在病毒自然爆发前采取措施。但是绕过病原体进化循环，一旦实验室发生事故，这些试验都会产生人为爆发的风险。正是这个原因，奥巴马政府于2014年10月发布暂停功能获得型试验。
+
+**中共偷偷开展“功能获得”试验**
+
+美国政府有证据证明中共的实验室正在进行大规模的功能获得型试验，远超过公开披露的那样，那意味着中共在更多的实验室冒着更大的风险，远远超出人们的想象。反过来，这种观点又以一种新的令人不安的方式进入实验室事故说的猜测。
+
+2020年7月上旬，一群中共国研究员发布一项鲜为人知的研究结果，其中包括几名隶属于军事医学科学院的人员。这些科学家表示，制造一种新的研究SARS-CoV-2的研究模式，那就是制造拥有类似人类肺的老鼠，用CRISPR的基因编辑技术给老鼠的肺细胞植入人类的ACE2受体，这个细胞受体允许冠状病毒很容易感染人的肺。
+
+咨询专家后，有些美国官员开始相信在CCP病毒爆发之前，中共的实验室就在装有ACE2受体的老鼠开展冠状病毒试验，调查发现他们没有披露这些，并且一直否认。在一月十五日的声明中，美国国务院声称尽管武汉病毒所的病毒学家就功能获得型试验公开一部分他们合作的项目，但他们没有公开在RaTG13上的工作，以及“至少从2017年起，涉及一些有关中共军方项目的秘密研究，包括实验室的动物实验。”这些都不能帮忙解释SARS-CoV-2是怎样产生的。但是很明显官方认为有许多有风险的冠状病毒研究工作正在中共的实验室里进行，而外界对此一无所知。
+
+这种欺骗和迷惑的模式，再加上中共实验室隐瞒西方同行的方式开展危险的冠状病毒研究的新启示，使一些美国官员越来越相信，中共官方正在操纵科学信息以编造他们自己的故故。但是中共没有任何透明度，美国政府想以这样或那样的方式提供证明也是不可能的。
+
+早在2017年，曾参观过武汉实验室的美国外交官就预见到了这些事件，但没有人听，也没有采取任何行动。 参观过该实验室的一位电报起草者说，“我们正想警告华盛顿该实验室是一个严重的危险，我不得不承认，我认为这可能又是一次类似于SARS病毒的爆发。如果我知道这将是人类历史上最大的病毒爆发，那我将会掀起更大的风浪。”
+
+评：译者通读全文，感觉作者就时间发展顺序，电报等线索以及缜密的逻辑，似乎找到CCP病毒全球爆发的起源是武汉病毒所泄漏事故。如果译者没有看过闫丽梦博士的访谈节目和她的那两篇论文，我几乎就要相信乔希·罗金的这篇文章了。
+
+不过文章中提到的几点重要信息，译者认为必将为美国认定这个病毒就是生物武器提供了非常好的突破口。
+
+其一，文中肯定了中共军方和武汉病毒所在偷偷开展蝙蝠冠状病毒研究，虽然文章中倾向于是武汉病毒实验室泄漏，造成CCP病毒全球大爆发。但是随着将来病毒的发展，各国科学家特别是闫丽梦博士的两篇报告越来越多的被国际权威人士采纳，那么病毒来自实验室以及故意投毒等中共恶行必将公之于众。
+
+其二，该文提到了在老鼠身上装配类似人类肺并以ACE2受体来试验冠状病毒，可谓是方向完全正确，这也是闫丽梦博士提到的理论。这篇文章对这一细节的描写，说明美国政府确实掌握一些证据。说明美国是真正的掌握一些情报，但是还没有到公布病毒真相的时候。相信随着国际有良知科学家的努力和爆料革命的推动，CCP投毒真相必将很快大白天下，那时也就是中共灭亡之时！
+
+&gt;&gt;原报道链接&gt;&gt; [In 2018, Diplomats Warned of Risky Coronavirus Experiments in a Wuhan Lab. No One Listened](https://www.politico.com/news/magazine/2021/03/08/josh-rogin-chaos-under-heaven-wuhan-lab-book-excerpt-474322)
 
 0

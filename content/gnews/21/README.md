@@ -1,30 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：中共必须对疫情负责
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/971054/)
+## 科技企业巨头员工居家办公的背后原因
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/971155/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
+撰稿：云彩
+![]()![](https://gnews.org/wp-content/uploads/2021/03/图片-10.png)(图片来自网络)
+CCP病毒在全球肆虐一年多，改变了人们的生活方式。通过爆料革命，我对这些科技企业巨头员工“居家办公”的原因有了新的认识。
 
+2021年2月知名音乐企业Spotify宣布在新冠疫情结束后，所有全职员工可以自由选择在办公室上班ˎ在家工作或按个人意愿的“混合模式”。同时，还可以“异地办公”，自由选择境内外各处住处，原有薪酬水平不变，只是员工迁居地不可与办公室所在地有太大的时差。
 
+而Facebook CEO 马克·扎克伯格预计未来5-10年将有多达50%的员工将永久在家办公。Facebook将积极增加对远程员工的雇用，采取“有计划的方法”为现有员工开设永久性远程工作职位。
 
-> The CCP knows where this virus came from and they don’t want us to know the truth. They must be held accountable — the American people are counting on it.[pic.twitter.com/DxxoFccFgd](https://t.co/DxxoFccFgd)
-> — Mike Pompeo (@mikepompeo) [March 11, 2021](https://twitter.com/mikepompeo/status/1370076192703922177?ref_src=twsrc%5Etfw)
+各大企业都说员工在家办公效率同样高，同时也可以大幅度降低办公室租金支出，所以改变员工的工作模式。笔者认为这只是表面原因，真正的原因是企业负担不起员工在上班期间感染CCP病毒的责任。
 
+澳大利亚服务工会（Australian Service Union）秘书长Lisa Darmanin表示确保员工安全是重返办公室工作的关键。她指出，人们担心员工如何在电梯和开放式办公室保持社交距离。当大量的人返回工作岗位时，也会给公共交通带来风险。因此需要认真研究如何让员工安全回来上班。
 
+一般情况下，公司为员工购买工伤保险。如果员工在上班过程中感染CCP病毒，特别是出现后遗症，公司对员工如何赔偿？这是一个很棘手的事情。公司推到保险公司，那么保险公司势必增加保险费用，从而增加了公司的运营成本。
 
-2021年3月12日，彭培奥先生发推:
+我们知道CCP在中共军方拥有的舟山蝙蝠病毒骨架序列上，在实验室进行功能增强改造，制造出CCP病毒。秘密在被更改的10%序列里。闫丽梦博士目前提供的是主要部分功能变化，还有相当部分秘密需要破解。CCP不灭亡，不清楚地了解这个病毒，疫苗发挥的作用是非常有限。
 
-The CCP knows where this virus came from and they don’t want us to know the truth. They must be held accountable — the American people are counting on it.
+爆料革命一直在向世界传播CCP病毒真相。越来越多的人像纳瓦罗先生ˎ班农先生和蓬佩奥先生站出来向公众说明CCP病毒是中共的超限生物武器。个人认为这些科技巨头公司和保险公司背后的大老板通过渠道得到确切消息，早已知道该病毒的危害和变异，所以出现大公司员工永久性地远程办公的状况。
 
-中共知道中共病毒的起源并且不想要我们知道真相。美国人民指望-中共必须对此次疫情负责。
+人类已经到了危急关头。唯有消灭CCP，找出CCP病毒的真实数据，才能够开发出有效疫苗。我们的生活才能重回正常的轨道。
 
-彭培奥先生上传了一段他在FOX NEWS接受采访的视频，明确表示有一系列的证据表明中共病毒来源于武汉病毒研究所，并且中共禁止任何人进入其中调查取证。随着疫情的持续恶化，越来越多的西方科学家认识到中共病毒并非来源于自然，他们挺身而出发声支持闫博士的报告。同时更多的中共病毒证据通过媒体逐渐公布，不断刺激着遭受病毒折磨的民众，将这些压抑的怒火引向罪魁祸首中国共产党。以毒灭共的战略正稳步推进，金融界、军事界和文化界已经全面开始发酵中共病毒，待真相彻底揭开时，全世界喷薄而出的怒焰将彻底烧尽中共以毒灭白、以毒称霸的野心。
+(本文仅代表作者个人观点)
 
-[援引原文](https://twitter.com/i/status/1370076192703922177)
+编辑：文远Bruce
 
-本文作者：Stranger
-审核校对：鲁邦五世
-上传排版：糖果儿
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
+[【澳喜文章】](https://gnews.org/zh-hans/author/aujenny/)
+
+参考资料：
+
+[Spotify宣布疫情后维持WFH雇员可迁居任何地方  照领纽约高薪](https://businessfocus.io/article/157634/spotify%E5%AE%A3%E4%BD%88%E7%96%AB%E6%83%85%E5%BE%8C%E7%B6%AD%E6%8C%81wfh-%E5%83%B1%E5%93%A1%E5%8F%AF%E9%81%B7%E5%B1%85%E4%BB%BB%E4%BD%95%E5%9C%B0%E6%96%B9-%E7%85%A7%E9%A0%98%E7%B4%90%E7%B4%84%E9%AB%98%E8%96%AA)
+
+[疫情过后，墨尔本人在家上班或成常态](https://www.sydneytoday.com/content-102044636653006)
+
+[Facebook一半员工未来将永久远程办公 ：在家工作效率一样高](https://tech.sina.com.cn/roll/2020-05-22/doc-iirczymk2929855.shtml)
+
+[中共病毒是中共军方实验室唯一的超限生物武器](https://twitter.com/Safeguard008/status/1366593448124448768)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-澳喜Logo.jpeg)
 0
