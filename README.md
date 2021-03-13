@@ -12,44 +12,44 @@
 
 ---
 
-### [中共国大肆宣传习近平是神《路德社》每日简报晚间版 2021.03.05–NewYork Time](/content/gnews/1/README.md)
+### [【热点播报】G7各国敦促中共国结束对香港的“压迫”](/content/gnews/1/README.md)
+ ` 纽约香草山MOS01`
+
+### [中共国大肆宣传习近平是神《路德社》每日简报晚间版 2021.03.05–NewYork Time](/content/gnews/2/README.md)
  ` 路德社精选`
 
-### [郭爆料串珠（190）江志成是马云最大的老板，也是李嘉诚的大股东](/content/gnews/2/README.md)
+### [郭爆料串珠（190）江志成是马云最大的老板，也是李嘉诚的大股东](/content/gnews/3/README.md)
  ` 喜马拉雅德国慕尼黑感恩农场`
 
-### [美国卫生官员警告病毒假阳性](/content/gnews/3/README.md)
+### [美国卫生官员警告病毒假阳性](/content/gnews/4/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [【军事快讯】解放军攻打台湾需要等6年么？](/content/gnews/4/README.md)
+### [【军事快讯】解放军攻打台湾需要等6年么？](/content/gnews/5/README.md)
  ` 纽约香草山MOS01`
 
-### [【世事解评】盗国集团的形成及危害](/content/gnews/5/README.md)
+### [【世事解评】盗国集团的形成及危害](/content/gnews/6/README.md)
  ` 纽约香草山MOS04`
 
-### [【世事解评】“一国一制”下香港与中共的未来命运](/content/gnews/6/README.md)
+### [【世事解评】“一国一制”下香港与中共的未来命运](/content/gnews/7/README.md)
  ` 纽约香草山MOS01`
 
-### [【热点播报】 王岐山高调颂扬习近平， 是真心还是捧杀？](/content/gnews/7/README.md)
+### [【热点播报】 王岐山高调颂扬习近平， 是真心还是捧杀？](/content/gnews/8/README.md)
  ` 纽约香草山MOS01`
 
-### [人权生存权被践踏，临终关怀已成“空中楼阁”](/content/gnews/8/README.md)
+### [人权生存权被践踏，临终关怀已成“空中楼阁”](/content/gnews/9/README.md)
  ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
 
-### [《路德时评》重磅解读中共将七国集团比作八国联军寓意为何，美日印澳四国峰会让中共恐惧，及香港英籍大法官即将离任](/content/gnews/9/README.md)
+### [《路德时评》重磅解读中共将七国集团比作八国联军寓意为何，美日印澳四国峰会让中共恐惧，及香港英籍大法官即将离任](/content/gnews/10/README.md)
  ` 香柏树`
 
-### [【新闻简评】墙内手机App侵犯用户权益状况触目惊心](/content/gnews/10/README.md)
+### [【新闻简评】墙内手机App侵犯用户权益状况触目惊心](/content/gnews/11/README.md)
  ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
 
-### [2021年3月13日 文贵先生盖特 2](/content/gnews/11/README.md)
+### [2021年3月13日 文贵先生盖特 2](/content/gnews/12/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [以“香港特色”的民主选举制清洗香港](/content/gnews/12/README.md)
+### [以“香港特色”的民主选举制清洗香港](/content/gnews/13/README.md)
  ` 西班牙巴塞罗那喜悦农场`
-
-### [2021年3月13日 文贵先生盖特 1](/content/gnews/13/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
 ### [海南老旧小区加装电梯无补贴 凸显政府财政吃紧](/content/gnews/14/README.md)
  ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
