@@ -1,52 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧洲战友和欧洲的军事部门开展全面合作，以毒灭共进入新时刻
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/970878/)
+## “无名”英雄再被炒，惨淡晚年有谁晓？
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/970977/)
 
-新闻简述：在2021年2月22日的盖特视频中，郭先生透露有中共背景的科学家已经开始和欧洲国家情报部门合作，揭露中共的两个项目和长期的灭白行动，以毒灭共进入了新的时刻。他说：“新中国联邦开启被共产党洗脑的14 亿中国人的智慧，唤醒中国人的良知，让中国人找回自己的尊严和勇气，和有体面的生活，这是每个人都拥有的，不是共产党的专利。”
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210222-getter2.srt.txt)
-**欧洲战友和欧洲的军事部门开展全面合作，以毒灭共进入新时刻**
+作者：香草山农场  鹰(文言)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Captura-de-pantalla-2021-03-12-a-las-6.42.42-p.-m..png)(封面图，来源网络)
+环球网3月12日转载中国新闻网报道，在2019年七、八月份中共各大媒体相继报道其“英勇事迹”后，93岁的“战斗英雄”蒋诚再次被用于正面大肆宣传来洗脑新兵蛋子。
 
-**Important Scientists Inside the CCP Come Forward to Cooperate with the West**
+根据中共媒体披露的“事实”，1951年3月蒋诚进入朝鲜参加“抗美援朝”战斗。在上甘岭战役中美机轰炸后，他腹部被划出6cm伤口造成肠子都外流了，在徒手自行塞肠回肚后，身为机枪手的他歼敌400余名，击毁重机枪一挺，并用机枪击落敌机一架次，立下一等功，后又获得三等功一次。
 
-欧洲给我发来信息，说：“Miles，我们特别感谢你，给我们介绍了几个特别有良知的中国人。” 在欧洲的有中共背景的科学家们，这些人经过长期的，也就是几个月以来的思考，因为他们很多家人已经定居在欧洲了，曾经参与过这两个项目，他们知道这个中间的部分的事实，是由七哥介绍给他们这些政府的官员和情报部门认识。
+但这一“事实”颇值得怀疑，试问腹部重伤肠子外流失血过多的情形下，如何持续保持清醒状态并歼敌400人？在朝鲜战场上中美间的装备相差悬殊，中共劣质机枪又是如何击毁重机枪的，难道是靠持续精准点射吗？还有就是机枪打飞机这一情节，完全可以媲美抗日神剧中手撕鬼子的“壮举”——这能实现吗？
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Captura-de-pantalla-2021-03-12-a-las-6.42.51-p.-m..png)(插图，来源网络)
+即便不深究上述“战绩”实际的可能性，以蒋诚的英勇表现和卓越功勋，应该能够“衣锦还乡”和安享晚年吧。但结果可能会让您失望。
 
-A message was sent to me from Europe, saying, “Miles, we are very grateful to you for introducing to us these Chinese who are with great conscience.” After several months’ struggling, a few scientists in Europe with a CCP background have come forward to get in touch with government officials and intelligence agencies through me. These people’s families have mostly settled down in Europe. They were participants of the two projects and know part of the fact behind this [virus]. I introduced them to those officials in European governments and intelligence services.
+A.根据重庆合川区2020年9月的通知，将城市居民最低生活保障标准提高至每月620元/人，农村标准是496元。
 
-当然他们由于考虑到国内家人的利益，由于考虑到在欧洲和美国等各种的生意，这是完全正常的。没有几个人敢像科学家这样，站出来敢这样地来灭共的，没有几个，说的容易做到难呐，他有太多的考虑。
+B.根据“2019年重庆退休人员的养老金调整正式出炉”中关于养老金的举例，1983年企业职工缴费满30年对应每月多领取135元（蒋诚被认定为1988年9月县的蚕桑站正式工人）。
 
-Of course, considering the interests of their family members in mainland China and their various businesses in Europe and the U.S., it’s completely normal [for them to wait a little long to come forward]. Few people dare to stand up to take down the CCP in this way like our scientist [Dr. Yan], not many. It’s easier said than done because there are too many concerns.
+C.再参照2017年合川区月平均工资4190元对应养老金粗算为2520元（“重庆养老金每月基本领多少？”中举例平均薪水6000元，工龄35年，养老金约为3610元），
 
-那么这些人经过深思熟虑后，（我准备戴黑手套，五个手指头啊，不是四个，）他们最近做出了重大的决定，然后跟这些情报部门和政府部门一起合作，提供了一些非常重要，有情报证明共产党长期地，有计划地对白人，也就是“灭白计划”，对西方整个是一个种族大屠杀式的，用杨娘娘、王毅的话讲叫“潘多拉的盒子”，（真正的黑手啊，真正的黑手，）潘多拉的盒子整个计划。
+经过合计蒋城的养老金:A+B+C=496+135+2520=3151元。即给中共卖命的一等功获得者退休后月收入3000余元，与现役下士的薪金4500相距甚远；因为蒋城户籍是农村，再结合农村和城市养老金计算存在差异情况，只怕实发金额会比3151元更少。
 
-So after careful consideration, these people – I’m going to wear black gloves with five fingers, not four – made a critical decision recently. And then they started to cooperate with these intelligence and government agencies to provide some very important evidence to prove the existence of the CCP’s long-term and systematic plan of targeting the white people, that is, the “white extinction plan”, which is a white genocide plan targeting the West. It is called “Pandora’s Box” in the words of Yang Jiechi and Wang Yi. (Showing his black gloves.) Real black hands, real black hands. It’s the whole plan of Pandora’s box.
+从以上“现役付出”和“退役回馈”不成正比且差距悬殊的例子，不难看出中共对待退役军人是“人走茶凉”，连吹捧的舍身献命的“战斗英模”都只能“低保”度日，更何况其他退役军人呢？在2017年“习神”为避免退休老干部上访事件的发生，专门成立“退役军人事务部”。而最讽刺的是“退役军人事务部”组建后，最先开展的事情却是严查各个退休老干部全部的亲属关系，而非提高退休薪金待遇。中共依旧在以解决提出问题的人的方式维稳退役军人。“相信共产党，走进火葬场”。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Captura-de-pantalla-2021-03-12-a-las-6.46.25-p.-m..png)(插图，来源网络)
+所以为中共卖命最狠的也不过蒋诚之辈，他还能从战场活下来已是幸运的了，而近期炒作中印边界争执中牺牲的4名烈士（实际人数存疑，网上有曝光坟墓群照片）却是战死沙场。他们死后被“省略”得连挂名资格都没有。所以中共就是老百姓生命财产的收割者，为其付出的再多，在榨干剩余价值后都会被舍弃。而今中共已经被定义为种族灭绝罪，更因恶意制造并投放超限生化武器被全世界围剿，非法政权的定义“箭在弦上”，谁再为中共服务，将是危害人类的帮凶。所以中共军内爆料革命的战友们，不论是出于“正义之师”的荣誉需求，还是避免中共灭亡后被追责波及自身，都应停止助纣为虐，并觉醒反共。
 
-七哥没办法跟你们形容这些人的震撼。他说：“Miles，如果几年前我们听到你跟我们说这些，世界真的不至于走到这个灾难。” 美国现在在病入膏盲之中，正在享受被3F之中，让他再受受伤流点血，他会醒来的。欧洲的醒来对灭共的事业至关重要，但是我再说一遍，战友们，灭共永远不要指望任何第三方，一定是以共灭共，中国人灭共，是我们新中国联邦人灭共。谁都挡不了，以毒灭共，以钱灭共。当大家你们真正的意识到的时候，真正的感受到其中的奥妙的时候，你们可以感受到无穷无尽的快乐，别想歪了，想歪了，一说高潮就想到床，一想到快乐就想到男女双修，这不是那意思啊。
+(文章仅代作者观点，与GNEWS网站无关)
 
-I can’t describe the shock of these people to you. He said, “Miles, if we listened to your warnings a few years ago, the world would not have come to this disaster.” The U.S. is now in the midst of severe illness and is “enjoying” being destroyed by the 3F plan. So, let it bleed for a little longer and suffer a little more, and then it will wake up. The waking up of Europe is crucial to taking down the CCP, but let me say this again, my brothers-in-arms, never count on others to take down the CCP for us. It must be by the communists themselves, by the Chinese and by the people of our New Federal State of China (NFSC). No one can stop us from taking down the CCP by spreading the truth about the CCP virus and by financial activities. When you are truly aware of the importance of this and the wisdom of this, you will feel endless happiness. Don’t misinterpret my words and think that happiness always means orgasm and sex. That’s not what I mean.
+**新闻来源：**
+[93岁上甘岭战斗英雄，36载深藏功与名！](https://china.huanqiu.com/article/42GyjMPtx3j)
+[重庆91岁老人竟是上甘岭战役传奇英雄，立功喜报尘封36年](https://ishare.ifeng.com/c/s/7ox5Da90FSp)
+[“我是为了国家、为了人民，没啥遗憾的。”](https://www.sohu.com/a/332255556_800317)
+[合川区提高城乡低保标准和特困人员救助供养标准](https://www.sohu.com/a/416880376_120214174)
+[2019年重庆退休人员的养老金调整正式出炉](https://cq.qq.com/a/20190726/001203.htm)
+[定了！合川人注意，2020养老金又涨了](https://www.sohu.com/a/389191421_181490)
+[月平均工资4190元，合川人拖后腿了！](https://www.sohu.com/a/160540557_181490)
+[重庆养老金每月基本领多少？](https://chongqing.chashebao.com/wenti/19142.html)
+[现在当兵每个月工资多少钱？最新军人工资标准一览表](https://www.mrcjcn.com/n/255460.html)
 
-所以说兄弟姐妹们，有良知的中国人，和在放掉恐惧和个人利益和无我之后，与新中国联邦人一起自然而然地联合一起来灭共，这是没有任何疑问，没有任何悬念，只是时间多长，有多少人参与了在一起，这就是我们新中国联盟的魅力和力量。真的是灭共没你不行，因为每个人的积累和每个人做出的行动，都在一次又一次在社交媒体上，在事实面前，它会扩大，会延续，像香火，星星之火，它会越烧越大。
-
-So brothers and sisters, after letting go of fear, personal interests, and selflessness, those Chinese people with conscience will naturally unite with people of the NFSC to take down the CCP together. There is no doubt about it, without a doubt. It’s just a matter of how long it will take and how many people will join us. This is the charm and strength of our NFSC. It’s really impossible to take down the CCP without you, because everyone’s efforts and contributions count, including everything that you post on social media. What you have done will multiply and continue to exist, and they will be like sparks in the beginning and these sparks can become much larger flames.
-
-其中有一位在和某国政府商量完以后，他家人全到了美国，但他在欧洲，他留在那里，据说这位，刚才这位政府官员说：“文贵先生这个人从过去的恐惧到今天的勇敢，整个变了一个人。”  兄弟姐妹们，新中国联邦开启被共产党洗脑的14 亿中国人的智慧，唤醒中国人的良知，让中国人找回自己的尊严和勇气，和有体面的生活，这是每个人都拥有的，不是共产党的专利，每一句话都绝对重要，因为会让中国人找到真正的自己。
-
-After one of the scientists met with the government of a country, his family all went to the U.S., but he stayed in Europe. An official of this government told me, “Mr. Miles Guo, from his fear in the past to today’s bravery, this person has totally changed.” Brothers and sisters, the NFSC has unlocked the wisdom of the 1.4 billion Chinese people who were brainwashed by the CCP, has awakened the conscience of the Chinese people, and has allowed the Chinese people to regain their dignity, courage, and decent lives. These are deserved by everyone, and they are not the CCP exclusive. These words are absolutely important because they will let the Chinese find their true selves.
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-
-视频来源：[https://gtv.org/getter/6033f2ab19585159023673f8](https://gtv.org/getter/6033f2ab19585159023673f8) (0:11-4:58)
-
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/927430/](https://gnews.org/zh-hans/927430/)
-
-* * *
-
-翻译：【Isaiah4031】校对：【Rock小哥】字幕：【Rock小哥】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+责任编辑：日本东京方舟农场 老蚂蚁666
+编辑/校对：韩国首尔喜韩农场 文迹～见证神迹
+发布: 台湾宝岛农场 Cute panda
 
 0

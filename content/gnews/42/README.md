@@ -1,54 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 习特勒的帝王梦还能做多久？&#8211;3月7日第18期围炉夜话直播精要
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/970571/)
+## 瑞典评估俄比北约在北欧更具军事优势
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/970604/)
 
-*整理：桂花酒| 素材整理：健身健心、Bobby|校对：宁缺| 审核：万人往| Page：小六月*
+俄罗斯莫斯科喀秋莎农场  洛夫斯基灭CCP
 
-[!\[\]()!\[\](https://spark.adobe.com/page/4mAx1bdMLF2ne/images/169f7d51-0fb7-41d6-a18d-3724089c82e5.png?asset_id=c60cc6f4-907c-4537-aeda-d9a0be8daafd&amp;img_etag=%222c53f35483e493aba041b230ab7ec4d2%22&amp;size=2560)](https://spark.adobe.com/page/4mAx1bdMLF2ne/images/169f7d51-0fb7-41d6-a18d-3724089c82e5.png?asset_id=c60cc6f4-907c-4537-aeda-d9a0be8daafd&amp;img_etag=%222c53f35483e493aba041b230ab7ec4d2%22&amp;size=1024)
+编辑上传 水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/R-19.jpg)newspunch.com
+03月12日，《SVT》电视频道参照瑞典国防研究机构（FOI，向该国国防部报告）的报告报道称，如果瑞典附近发生大规模战争，俄罗斯将比北约国家更具优势。
 
-- 直播链接：
-- [https://gtv.org/video/id=6044adb8aed17436adc4c58e](https://gtv.org/video/id=6044adb8aed17436adc4c58e)
-- [https://gtv.org/video/id=6044bc8faed17436adc4d866](https://gtv.org/video/id=6044bc8faed17436adc4d866)
-- [https://gtv.org/video/id=6044c677aed17436adc4e1c1](https://gtv.org/video/id=6044c677aed17436adc4e1c1)
+在这份专门针对北欧国家军事能力的报告中，FOI专家分析了“西方和俄罗斯的力量平衡”。本报告由两部分组成： 在第一份报告中，作者们研究了北欧的安全局势，在第二份报告中，作者们研究了丹麦、挪威、芬兰、爱沙尼亚、拉脱维亚、立陶宛、波兰、德国、法国、英国和美国的军事能力。
 
+据《SVT》报道，作者特别提醒，美国前总统奥巴马“开始了历史性的军力重新部署”，部队更接近俄罗斯的边界，特别是在波罗的海国家和波兰。尽管他的继任者唐纳德·川普对北约提出了批评，但这一政策仍继续执行。其他北大西洋联盟国家也在靠近俄罗斯边境的地方扩建军事基础设施。尽管如此，FOI认为俄罗斯具有军事优势，“尤其是在地面上”。
 
-本期话题：习特勒的帝王梦、墙内即将实施的法规、天津教师歧视学生等。
+“这种优势还要持续一段时间。”该频道援引报告作者之一克里斯特·帕林的话说，“至少需要几个月的时间，美国才能带着更大规模的地面部队来到这里。”
 
-一、习特勒的帝王梦
+FOI进行了战争模拟，以评估俄罗斯和西方国家之间的力量平衡。专家们特别模拟了俄方在波罗的海地区的进攻，得出的结论是俄方“成功的可能性很大”。
 
-历史不会重演，但却会惊人的相似。自从香港抗争打开灭共的第一道大门开始，习总加速师就动作不断，两会表決通过《关于完善香港特别行政区选举制度的決定》，彻底宣告一国两制的结束。
+瑞典该机构的专家认为，北约国家不需要集结兵力，但必须加快行动，防止可能的袭击。据说，北大西洋联盟的主要问题之一是北约部队在地理上的分散。FOI报告说，他们“准备程度很低，没有为战争做准备或训练”。不过，北约在空中和海上都有优势。
 
-历史上纳粹于1936年3月7日进军莱茵兰地区。此前的英国、法国各自打着自己的小算盘，对德采取绥靖政策，最终导致二战的巨大灾难。同年，由于美国参加，使得柏林奥运会盛况空前。这成为奥运史上最大的耻辱。柏林奥运首创了火炬接力，纳粹的旗帜到处飘扬，而纳粹的宣传机器在其中对世界的蒙蔽、欺骗，与当下中共何其相似？
+2月中旬，五角大楼表示，俄罗斯对包括美国在内的所有北约成员国构成威胁。美国国防部认为，俄罗斯“破坏了透明度和可预测性”，并使用军事力量来实现其目标。
 
-二、中共对外纳粹化，对内文革化。从3月1日起实施的部分法规，我们也做了解读。
+参考链接：
 
-中共将性侵养女入刑，却对贩卖儿童视而不见；对污蔑英烈入刑，却对活着的老兵维稳。12周岁成为刑责年龄新底线，在香港已经发生了拘捕未成年人的事。土共四面楚歌，对政权大厦将倾寝食难安，连孩子都不放过，如临大敌。对于无法判罪的，参照“社会主义核心价值观”，无法无天，滥杀无辜。
-
-中国劳动人口退休年龄延长到65岁。习主席多次强调的老有所养、老有所乐被国家统计局发布的数据打脸。中共国的法律、数字随意更改的背后，是养老金的巨大亏空和漠视人民生命、养老权利的流氓本质。法定结婚年龄下调到18岁，依然避免不了人口出生率断崖式下跌。个税起征点上调到1万元——每次新一轮涨价都与个税上调惊人同步，显示中共内外交困的现实。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/4mAx1bdMLF2ne/images/4e38e3d1-e2de-492f-aefa-06102b804a90.jpg?asset_id=c7cfab41-a3b0-461e-a497-9374fab1b8b1&amp;img_etag=%22633a1adf828d08999df3004722adf0c4%22&amp;size=2560)](https://spark.adobe.com/page/4mAx1bdMLF2ne/images/4e38e3d1-e2de-492f-aefa-06102b804a90.jpg?asset_id=c7cfab41-a3b0-461e-a497-9374fab1b8b1&amp;img_etag=%22633a1adf828d08999df3004722adf0c4%22&amp;size=1024)
-
-三、最后是引起社会广泛关注的天津肖老师以收入歧视学生的事件。
-
-1. 教师作为背锅侠成为情绪宣泄口，但是公众们就能代表正义吗？
-
-2. 当一个群体掌握了话语权后，所谓公平的天平已经倾斜。
-
-3. 在中共治下，人从出生户口就分居民、农民，人为制造不公平。而教育资源又被政府垄断，使得百姓争斗。中共的愚民之术玩得炉火纯青，此次舆论事件没有赢家。
-
-只有制度建设才能保障社会公平，这也是我们以后推翻土共的终极目标。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/4mAx1bdMLF2ne/images/14e65818-81c6-4931-bf8c-4b9996518d9c.jpg?asset_id=2062811c-0840-488d-9835-e55545a1549a&amp;img_etag=%2236c4c7617401ded5021406bc5418d78d%22&amp;size=2560)](https://spark.adobe.com/page/4mAx1bdMLF2ne/images/14e65818-81c6-4931-bf8c-4b9996518d9c.jpg?asset_id=2062811c-0840-488d-9835-e55545a1549a&amp;img_etag=%2236c4c7617401ded5021406bc5418d78d%22&amp;size=1024)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/4mAx1bdMLF2ne/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/4mAx1bdMLF2ne/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[https://www.rbc.ru/politics/12/03/2021/604ab4f09a7947e5612be5fe](https://www.rbc.ru/politics/12/03/2021/604ab4f09a7947e5612be5fe)
 
 0
