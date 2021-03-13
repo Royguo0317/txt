@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登政府应继续采取严肃行动对抗中共
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/972486/)
+## 中共一直对抗和拒绝全世界揭露武汉试验室发生的事情
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/972552/)
 
-3/10/2021 拜登政府应继续采取严肃行动对抗中共。
+3/10/2021 中共一直对抗和拒绝全世界揭露武汉试验室发生的事情。
 
 By： 【秘密翻译组 G-Translators】
 

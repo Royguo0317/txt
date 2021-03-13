@@ -1,63 +1,96 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 时间线：蚂蚁集团CEO胡晓明离职前的大事记
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/972491/)
+## 美国政要等每日重要信息0313.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/972447/)
 
-翻译：康州盘古农场 – TrueSky
-校对：康州盘古农场 – Mike Li
-编辑：康州盘古农场 – 轰炸机
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0313.jpeg)
 
-据《路透社》3月13日报道：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-13-at-20.28.39.png)*蚂蚁集团在2020年中共国浙江乌镇举行的世界互联网大会 – 图片来源：REUTERS/Aly Song*
+#### 向中共国追责
 
-(路透社)–蚂蚁集团首席执行官胡晓明在这家金融科技集团首次公开募股被取消后，周五意外辞职，该集团在监管下进行了整改。
+3月13日弗罗里达众议员布莱恩-马斯特再次转发他在接受福克斯新闻采访时的谈话，他提到“停止向中（共）国支付债务直到他们就病毒的问题做出回答。”他表示，中共的问题涉及很多国家，但是“只有一个国家能够领导（带头）就冠状病毒向中共追责，这就是美国。没有其他哪个国家可以领导。”
 
-以下是导致他离开的关键事件：
-
-**2020年10月21日：蚂蚁金服IPO获证监会绿色通过**
-
-蚂蚁集团在上交所首次公告中共国证监会批准其IPO(募股)，证监会为其发行扫清了最后的监管障碍。
-
-**2020****年****10****月****24****日：****“****老人俱乐部****”****在上海举行**
-
-蚂蚁创始人、亿万富翁马云在中共国监管机构出席的一次公开活动中表示，金融和监管体系扼杀了创新，必须进行改革以促进增长。他还将全球银行业监管机构巴塞尔委员会比作“老人俱乐部”。
-
-**2020****年****10****月****30****日：****MOM-AND-POP 30****日：母婴投资人出价****3****万亿美元收购股份。**
-
-散户投资者竞购蚂蚁双十一上市的价值3万亿美元的股票，相当于英国一年的国内生产总值，因为他们押注中共国对蚂蚁金融科技服务的需求。
-
-**2020****年****11****月****2****日：监管者宣布与蚂蚁金服进行会谈**
-
-中共国四家顶级金融监管机构表示，他们与马云和蚂蚁集团的两位高管进行了监管会谈。中共国监管机构建议对网络小额贷款公司进行更严格的监管，以帮助控制潜在的金融风险，并控制债务水平上升。
-
-**NOV. 3****日：上海****IPO****暂停，蚂蚁集团冻结香港****IPO**
-
-上海证券交易所暂停了蚂蚁集团在其专注于科技领域的市场IPO，理由是监管谈判是一个“重大事件”，以及更严格的监管环境是可能使蚂蚁失去上市资格的因素。此举促使蚂蚁也冻结了其双重上市的香港板块。
-
-**2020****年****12****月****27****日：中共国推动蚂蚁集团全面改革**
-
-中共国央行表示，已要求蚂蚁集团对其贷款和其他消费金融业务进行调整。
-
-**2021年2月3日：蚂蚁集团同意重组计划**
-
-一位直接知情人士称，蚂蚁集团与中共国监管机构达成重组计划，根据该计划，蚂蚁集团将成为一家金融控股公司。
-
-**2021****年****2****月****4****日：蚂蚁集团将剥离消费者信贷业务**
-
-知情人士称，蚂蚁集团计划剥离其消费信贷数据业务，这是对监管机构的一种让步，可能有助于其大规模公开售股回归正轨。
-
-**2021****年****3****月****2****日：员工对出售公司股份的担忧**
-
-蚂蚁的执行主席表示，在IPO暂停让员工兑现股票的希望破灭后，集团正在制定措施帮助员工解决“短期流动性问题”。
-
-**2021****年****3****月****12****日：胡晓明辞去****CEO****职务，****井贤栋****接任**
-
-首席执行官胡志明意外辞职，这是自370亿美元IPO受挫以来，首次出现高层管理人员离职。
-
-文章来源：https://www.reuters.com/article/us-ant-group-ceo-timeline-idUSKBN2B42J6
+议员先生的讲话让笔者仿佛看到当年正义附身血气方刚的美国回来了。
 
 
 
-+2
+> There’s only one country that can take the lead on holding China accountable for coronavirus and that’s the United States of America. [pic.twitter.com/bMKfrxWRtz](https://t.co/bMKfrxWRtz)
+> — Rep. Brian Mast (@RepBrianMast) [March 13, 2021](https://twitter.com/RepBrianMast/status/1370702429541441542?ref_src=twsrc%5Etfw)
+
+
+
+3月12日，《福克斯朋友优先》推文引用布莱恩议员的话，“他们确实需要被追究责任。”@Brian Mast议员 告诉 #FoxFriendsFirst 美国应该扣留对中国的债务支付，直到COVID-19问题得到回答。议员先生称，我们需要向中共国追责，他们需要回答病毒是不是来源于武汉病毒实验室？那里发生了什么？他们掩盖了什么？他们和世卫组织掩盖了什么？
+
+
+
+> “They do need to be held accountable”: [@RepBrianMast](https://twitter.com/RepBrianMast?ref_src=twsrc%5Etfw) tells [#FoxFriendsFirst](https://twitter.com/hashtag/FoxFriendsFirst?src=hash&amp;ref_src=twsrc%5Etfw) the U.S. should withhold debt payments to China until COVID-19 questions are answered.[https://t.co/OLiyRP3MuD](https://t.co/OLiyRP3MuD)
+> — Fox & Friends First (@FoxFriendsFirst) [March 12, 2021](https://twitter.com/FoxFriendsFirst/status/1370413052814897153?ref_src=twsrc%5Etfw)
+
+
+
+
+
+#### 我们的自由不由政府决定
+
+3月12日前国务卿蓬佩奥先生就拜登在公开讲话时的言论表示抗议，拜登要求人们都去接种疫苗、从而在今年国庆节可以和家人邻居亲朋聚会聚餐。蓬佩奥先生称：“在7月4日，我们庆祝美国和我们的许多自由。自由其中之一就是，你可以决定是否你想和家人朋友在你自己的后院，而不是由政府决定。”
+
+
+
+> On the 4th of July, we celebrate America and our many freedoms. One of those freedoms is that YOU get to decide if you want to have family and friends over in your own backyard, NOT the government. [https://t.co/xl1ovY9sef](https://t.co/xl1ovY9sef)
+> — Mike Pompeo (@mikepompeo) [March 12, 2021](https://twitter.com/mikepompeo/status/1370390033597935617?ref_src=twsrc%5Etfw)
+
+
+
+#### 性贩运
+
+3月12日鲁迪-朱利安尼先生推文称：今天的节目揭露了美国黑暗的性交易黑幕。
+@BooyensJaco 解释了性贩运如何成为一种流行病，现在伴随着美国-墨西哥边境的疫情和危机，已经达到了前所未有的水平。
+
+
+
+> 🚨 Today’s episode exposes the dark underworld of sex trafficking in the US. [@BooyensJaco](https://twitter.com/BooyensJaco?ref_src=twsrc%5Etfw) explains how sex trafficking has become an epidemic and now, with the pandemic and crisis at the US-Mexico border, has reached unprecedented levels.
+> 
+> Here: [https://t.co/APgb2Du8kc](https://t.co/APgb2Du8kc) [pic.twitter.com/5pMhlzSpXL](https://t.co/5pMhlzSpXL)
+> — Rudy W. Giuliani (@RudyGiuliani) [March 12, 2021](https://twitter.com/RudyGiuliani/status/1370454178838016006?ref_src=twsrc%5Etfw)
+
+
+[https://rumble.com/vekwsd-the-dark-underworld-of-sex-trafficking-in-the-u.s.-rudy-giuliani-and-jaco-b.html](https://rumble.com/vekwsd-the-dark-underworld-of-sex-trafficking-in-the-u.s.-rudy-giuliani-and-jaco-b.html)
+#### 中共病毒疫情的又一次生灾难
+
+据《Just The News》， 研究人员警告说，在冠状病毒大流行的过程中，口罩的大量使用可能会导致一场迫在眉睫的环境灾难，每分钟都有三百万个口罩被使用，其中许多口罩在使用过程中会污染当地的生态系统。
+
+[https://justthenews.com/politics-policy/coronavirus/3-million-masks-used-globally-every-minute-researchers-warn](https://justthenews.com/politics-policy/coronavirus/3-million-masks-used-globally-every-minute-researchers-warn)
+
+
+
+#### 史上最糟糕演说
+
+
+
+> "WORST. SPEECH. EVER." | [@gregkellyusa](https://twitter.com/gregkellyusa?ref_src=twsrc%5Etfw) tears through Biden's 'stupid, phony, typical-politician, and downright weird' national address. [https://t.co/3UPfQPlVZW](https://t.co/3UPfQPlVZW)
+> — Newsmax (@newsmax) [March 13, 2021](https://twitter.com/newsmax/status/1370547661036748807?ref_src=twsrc%5Etfw)
+
+
+
+12日Newsmax 主播 格雷格-凯里（Greg Kelly）对11日晚拜登的总统讲话讽刺挖苦得淋漓尽致，从拜登谈口罩、谈疫情、疫苗等问题一一回击、嘲讽，称他是“愚蠢、虚伪的典型政客, 彻头彻尾怪异，而对川普总统的支持溢于言表。
+
+
+
+（本文当日持续更新中）
+
+
+
+文章观点部分仅代表作者本人。
+
+
+
+编辑：康州盘古农场 喜马拉雅的文雅
+
+封面：康州盘古农场 霹雳年
+
+《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。
+
+
+
++1
