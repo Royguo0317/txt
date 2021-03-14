@@ -1,96 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0313.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/972447/)
+## 三和大神折射出墙内底层年轻人的迷茫和绝望
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/974086/)
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0313.jpeg)
+作者：只狼| 校对：宁缺| 审核：Beicy-数学老师| Page：小六月
 
+[!\[\]()!\[\](https://spark.adobe.com/page/cxOXoFZdEkHNG/images/9bf32cf4-215b-4a09-bebe-4decc51467dc.jpg?asset_id=1d558ff6-69da-41bf-8d39-776f3bd4cbbf&amp;img_etag=%228b07540644cef11928425a6b5e7768c1%22&amp;size=1024)](https://spark.adobe.com/page/cxOXoFZdEkHNG/images/9bf32cf4-215b-4a09-bebe-4decc51467dc.jpg?asset_id=1d558ff6-69da-41bf-8d39-776f3bd4cbbf&amp;img_etag=%228b07540644cef11928425a6b5e7768c1%22&amp;size=1024)
 
-#### 向中共国追责
+在墙内有着这么一个“特殊”群体，为什么要用“特殊”这个词呢？是因为他们有个听上去很潮流，并且很神秘的称号“三和大神”。之所以被称之为“大神”，是因为在这个群体里每一个人都是干一天的活计，然后可以玩三天，并且他们每天的开支16元人民币左右。很多人看到这里都会说：“可以啊，那么风流，自在，无忧无虑。”但是每个走进这个群体的人，都会体会到他们作为中国社会底层的迷茫和绝望，在中国社会的极度不公中的拼命挣扎。
 
-3月13日弗罗里达众议员布莱恩-马斯特再次转发他在接受福克斯新闻采访时的谈话，他提到“停止向中（共）国支付债务直到他们就病毒的问题做出回答。”他表示，中共的问题涉及很多国家，但是“只有一个国家能够领导（带头）就冠状病毒向中共追责，这就是美国。没有其他哪个国家可以领导。”
+上面提到的这些三和大神们生活在中国大陆广东省深圳市，他们经常聚集在深圳市龙华新区三和人才市场周围。在这里他们可以为自己找到一份做日结的临时工作岗位。起初大神们来到这里也是在各个厂里上班，但是时间干长了，大神们发现唯一见长的只是他们的年龄。在深圳工作奋斗了那么久，他们的一切还是没有丝毫改变，不变的工厂，不变的工作，不变的收入等等。他们每天看着城里的车来车往，一座座屹立在他们身边的居民楼，仿佛这些对他们来说一切都是遥不可及。三和大神们为了自己的生活能够过的快活一点，于是他们选择了干日结。
 
-议员先生的讲话让笔者仿佛看到当年正义附身血气方刚的美国回来了。
+随着中国大陆的经济逐渐萧条，使得深圳的很多工厂对用工需求逐渐下降，干日结的工作更是不好找。即便找到了干日结的工作，但工价也低，大概干一天70元到130元之间。工资高一点的工作岗位都是一些重体力活，而且工作时间特别长，一般都是10到12小时，有些工作则是要上夜班。在工作期间会出现大神们辛苦了一天却被老板以各种理由克扣工钱，甚至拿不到工钱。深圳当地的劳动部门本应替大神们讨回公道，但是这些部门形同虚设，不会管，也不想去管这些对他们来说毫无油水可捞的毫不起眼的“小事”。等到大神们费劲千辛万苦完成了一天的工作，并顺利拿到工钱后，他们就可以在当地“逍遥自在三天”。
 
+[!\[\]()!\[\](https://spark.adobe.com/page/cxOXoFZdEkHNG/images/73e09361-e652-4a6f-b14a-b9f60a7b73fe.jpg?asset_id=6b405fa2-7aba-4c8d-ba79-7b5db8c227ef&amp;img_etag=%22f2deccbd164dd03afe7db5c098ddd461%22&amp;size=2560)](https://spark.adobe.com/page/cxOXoFZdEkHNG/images/73e09361-e652-4a6f-b14a-b9f60a7b73fe.jpg?asset_id=6b405fa2-7aba-4c8d-ba79-7b5db8c227ef&amp;img_etag=%22f2deccbd164dd03afe7db5c098ddd461%22&amp;size=1024)
 
+在这三天的快活日子里大神们最爱去的地方是网吧，原因可能是虚拟世界暂时可以让大神们躲避现实的残酷。在网吧可以玩通宵，一个通宵才10快钱，这样可以为大神们省去住宿费。每当大神们饿了就去一家名叫“双丰面馆”的小馆子吃一碗5元的“挂逼面”，再去超市买一瓶1元的“大神水”。“大神水”和“挂逼面”是每一位三和大神的绝配。如果大神们挣的钱再多那么一丁点，大神们就会去买两根香烟1块钱和一包瓜子1块钱来丰富自己的小日子。如果大神们哪天包里没钱了，并且没有找到工作，那么大神们只能节约开支。他们会选择不吃饭，然后露宿街头，等待新的挣钱机会。但有时露宿街头会被警察驱赶，因为大神们露宿街头会影响到深圳的市容市貌，最后大神们没办法只好选择在公园里与草花“作伴”，还得忍受各种昆虫的叮咬。即便到了冬天深圳也不是很冷，反正冻不死人，大神们也只好将就了。
 
-> There’s only one country that can take the lead on holding China accountable for coronavirus and that’s the United States of America. [pic.twitter.com/bMKfrxWRtz](https://t.co/bMKfrxWRtz)
-> — Rep. Brian Mast (@RepBrianMast) [March 13, 2021](https://twitter.com/RepBrianMast/status/1370702429541441542?ref_src=twsrc%5Etfw)
+大神们这样的生活日复一日，年复一年，有的大神都已经在深圳这样生活了十几年了，大多早已和他们的家人失去了联系，甚至有些大神把自己的身份证和手机都卖了，换了钱。这样他们就不由自主地留在了深圳，但即使大神们在深圳呆的时间怎样长，依然无法融入到深圳的社会环境里。他们在这里没有家，也没有家人，只能在深圳的大街小巷四处流浪，似乎他们原本就不属于这里。大神们也不愿意回到自己的故乡，这也许是因为在大神们的故乡里没有任何人情事物值得去留恋。
 
+在中国大陆，由于中共的集权体制导致了社会资源的各种分配不均，以至于社会乱象层出不穷。三和大神们的事迹和遭遇只是折射出这些中国社会乱象中的一个很小的角落。我们生活在墙内没有裙带关系的年轻人每天都在经历着社会的各种不公，与三和大神们相比只是我们经历的生活场景跟他们不同而已，最终的结局都一样，被这个社会无情地淘汰、抛弃。因为在中国现有的体制里没有人会为我们发声，我们的权益受损时，也没有地方去维权和申诉。要让底层青年活得有尊严、活得有意义，唯一的希望只有彻底推翻这个人吃人的体制，创造一个公平、法制、民主的新社会，最终实现有恒心者有恒产的良性循环。
 
+[!\[\]()!\[\](https://spark.adobe.com/page/cxOXoFZdEkHNG/images/c182be9b-5742-4869-8561-92d708e74aa9.jpg?asset_id=7ee9d751-9b1e-46e6-bf62-80d2a1ca2dc5&amp;img_etag=%2236c4c7617401ded5021406bc5418d78d%22&amp;size=1024)](https://spark.adobe.com/page/cxOXoFZdEkHNG/images/c182be9b-5742-4869-8561-92d708e74aa9.jpg?asset_id=7ee9d751-9b1e-46e6-bf62-80d2a1ca2dc5&amp;img_etag=%2236c4c7617401ded5021406bc5418d78d%22&amp;size=1024)
 
-3月12日，《福克斯朋友优先》推文引用布莱恩议员的话，“他们确实需要被追究责任。”@Brian Mast议员 告诉 #FoxFriendsFirst 美国应该扣留对中国的债务支付，直到COVID-19问题得到回答。议员先生称，我们需要向中共国追责，他们需要回答病毒是不是来源于武汉病毒实验室？那里发生了什么？他们掩盖了什么？他们和世卫组织掩盖了什么？
+【注：文章仅代表作者观点】
 
-
-
-> “They do need to be held accountable”: [@RepBrianMast](https://twitter.com/RepBrianMast?ref_src=twsrc%5Etfw) tells [#FoxFriendsFirst](https://twitter.com/hashtag/FoxFriendsFirst?src=hash&amp;ref_src=twsrc%5Etfw) the U.S. should withhold debt payments to China until COVID-19 questions are answered.[https://t.co/OLiyRP3MuD](https://t.co/OLiyRP3MuD)
-> — Fox & Friends First (@FoxFriendsFirst) [March 12, 2021](https://twitter.com/FoxFriendsFirst/status/1370413052814897153?ref_src=twsrc%5Etfw)
-
-
-
-
-
-#### 我们的自由不由政府决定
-
-3月12日前国务卿蓬佩奥先生就拜登在公开讲话时的言论表示抗议，拜登要求人们都去接种疫苗、从而在今年国庆节可以和家人邻居亲朋聚会聚餐。蓬佩奥先生称：“在7月4日，我们庆祝美国和我们的许多自由。自由其中之一就是，你可以决定是否你想和家人朋友在你自己的后院，而不是由政府决定。”
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-> On the 4th of July, we celebrate America and our many freedoms. One of those freedoms is that YOU get to decide if you want to have family and friends over in your own backyard, NOT the government. [https://t.co/xl1ovY9sef](https://t.co/xl1ovY9sef)
-> — Mike Pompeo (@mikepompeo) [March 12, 2021](https://twitter.com/mikepompeo/status/1370390033597935617?ref_src=twsrc%5Etfw)
-
-
-
-#### 性贩运
-
-3月12日鲁迪-朱利安尼先生推文称：今天的节目揭露了美国黑暗的性交易黑幕。
-@BooyensJaco 解释了性贩运如何成为一种流行病，现在伴随着美国-墨西哥边境的疫情和危机，已经达到了前所未有的水平。
-
-
-
-> 🚨 Today’s episode exposes the dark underworld of sex trafficking in the US. [@BooyensJaco](https://twitter.com/BooyensJaco?ref_src=twsrc%5Etfw) explains how sex trafficking has become an epidemic and now, with the pandemic and crisis at the US-Mexico border, has reached unprecedented levels.
-> 
-> Here: [https://t.co/APgb2Du8kc](https://t.co/APgb2Du8kc) [pic.twitter.com/5pMhlzSpXL](https://t.co/5pMhlzSpXL)
-> — Rudy W. Giuliani (@RudyGiuliani) [March 12, 2021](https://twitter.com/RudyGiuliani/status/1370454178838016006?ref_src=twsrc%5Etfw)
-
-
-[https://rumble.com/vekwsd-the-dark-underworld-of-sex-trafficking-in-the-u.s.-rudy-giuliani-and-jaco-b.html](https://rumble.com/vekwsd-the-dark-underworld-of-sex-trafficking-in-the-u.s.-rudy-giuliani-and-jaco-b.html)
-#### 中共病毒疫情的又一次生灾难
-
-据《Just The News》， 研究人员警告说，在冠状病毒大流行的过程中，口罩的大量使用可能会导致一场迫在眉睫的环境灾难，每分钟都有三百万个口罩被使用，其中许多口罩在使用过程中会污染当地的生态系统。
-
-[https://justthenews.com/politics-policy/coronavirus/3-million-masks-used-globally-every-minute-researchers-warn](https://justthenews.com/politics-policy/coronavirus/3-million-masks-used-globally-every-minute-researchers-warn)
-
-
-
-#### 史上最糟糕演说
-
-
-
-> "WORST. SPEECH. EVER." | [@gregkellyusa](https://twitter.com/gregkellyusa?ref_src=twsrc%5Etfw) tears through Biden's 'stupid, phony, typical-politician, and downright weird' national address. [https://t.co/3UPfQPlVZW](https://t.co/3UPfQPlVZW)
-> — Newsmax (@newsmax) [March 13, 2021](https://twitter.com/newsmax/status/1370547661036748807?ref_src=twsrc%5Etfw)
-
-
-
-12日Newsmax 主播 格雷格-凯里（Greg Kelly）对11日晚拜登的总统讲话讽刺挖苦得淋漓尽致，从拜登谈口罩、谈疫情、疫苗等问题一一回击、嘲讽，称他是“愚蠢、虚伪的典型政客, 彻头彻尾怪异，而对川普总统的支持溢于言表。
-
-
-
-（本文当日持续更新中）
-
-
-
-文章观点部分仅代表作者本人。
-
-
-
-编辑：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。
-
-
+[!\[\]()!\[\](https://spark.adobe.com/page/cxOXoFZdEkHNG/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/cxOXoFZdEkHNG/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 +1
