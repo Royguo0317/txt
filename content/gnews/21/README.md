@@ -1,14 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月13日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/974640/)
+## 2021年3月13日 文贵先生盖特 6
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/974686/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-3月13号：我无数次听到中共官员和所谓的中国富豪们！说出这样的话，这既是无知更是可耻！可恨的是谁，将富裕的富饶美丽，勤劳的人民．中华大地！……变成了恶水……饥寒交迫。【穷山恶水出刁民，饥寒交迫起盗心！这是中国人的名言，】 虽然不知出自何人。但西方人相应的名言是“ 【我绝不允许乞丐比总统更有礼貌”。】 林肯的意思，凡事都不要去苛责弱势群体，而是要从一个社会的强势群体中去找原因
-![]()![](https://gnews.org/wp-content/uploads/2021/03/27e9708d06af74cdb2c9cf02ab5b5cc8.jpg)
-[【2021年3月13日】文贵先生盖特原文](https://gtv.org/getter/604d5de5607c4240c8b5624e)
+郭母两周年忌日文贵直播预告： 3月14日农历二月初二 纽约时间早上7:57 北京时间晚上7:57 🙏🙏🙏🙏🙏🙏🙏
+![]()![](https://gnews.org/wp-content/uploads/2021/03/29cc6071bdc601b43a72ba6d119d4f74.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/d67ef3e2e68d08eeb985b97568f252bf.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/df36e59cb68654e62a03bf4dc7954af3.jpg)
+[【2021年3月13日】文贵先生盖特原文](https://gtv.org/getter/604d8f5a607c4240c8b56d87)
 
 **喜联盟Gnews编辑部**
 

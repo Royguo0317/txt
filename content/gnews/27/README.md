@@ -1,94 +1,107 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读美军高级将领给中共国设定军事打击红线，及德防长明确将出兵印太
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/974557/)
+## 福奇与中共
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/974532/)
 
-直播视频：
+翻译：烟波浩淼
+校对：雨山溪桥客
+审核：V
 
+上周，安东尼·福奇(Anthony Fauci)博士与一位中国共产党的“健康专家”一起开了视频会议，西方媒体基本上没有作任何报道。然而，中共国官媒却意犹未尽，因为福奇为中共政权带来了一场对美国的舆论攻击。无数的国家媒体和中共官员赞扬了联合小组成员在活动期间分享了无休止的反美宣传，包括要求更具破坏性的严厉限制，以“抗击” 中共病毒。
 
+钟南山博士是中共国国家卫生委员会的顶级“专家”，被称为“中共国的福奇”，他上周在Zoom上与美国国立过敏与传染病研究所的负责人福奇召开了一个讨论会。两人在爱丁堡大学举办的网络研讨会上讨论了中共病毒政策，该研讨会还邀请了盖茨基金会和世界卫生组织的“专家”。
 
-《路德时评》2021年3月13日晚间节目主要内容：
+钟南山在评论中抨击了川普政府和整个美国，但赞扬拜登政府重新加入世界卫生组织。这名中共国官员分享了有关中共国对中共病毒的反应和统计数据的虚假信息，并声称中共国对武汉的残酷封锁导致中共国赢得了与中共病毒的战斗。
 
-一、快讯快评
+作为一名忠诚的中共党员，钟南山滔滔不绝地给出虚假信息，因为封锁在任何地方都不起作用，而且几乎在世界上每个国家都进行过，没有明显的积极效果。
 
-新闻一
+钟南山继续播放幻灯片，显示美国的中共病毒反应是世界上最差的，而中共国的反应是世界上最好的，他再次将其归因于武汉的封锁。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-50.png)
+钟南山在结束发言时敦促其他国家暂时不要开放经济，也许要等到全世界接种疫苗，这需要几年时间。他还毫无根据地宣称疫苗免疫优于自然免疫，他错误地称之为“不太科学”。与此同时，中共国的经济和社会，包括大部分未接种疫苗的人口，从2020年3月开始开放。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2-11.png)
+福奇赞同钟教授的评论，他说他“将强调钟教授所说的一切”。这位所谓的公共卫生专家补充说，他希望“有一个多年的承诺，这就是让世界上每个人都能基本上获得优质的医疗保健，因此使健康在许多方面真正成为一项人权。”
 
-路透社星期四（3月11日）看到的一份信函称[1]，中国、俄罗斯、朝鲜和伊朗等国成立了一个联盟，通过反对使用武力或是武力威胁以及单方面制裁，来捍卫联合国宪章。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/联合国.png)[图片地址](https://gdb.voanews.com/060431c5-7ffb-44ee-8bb6-efe2e67ab8a5_cx0_cy4_cw0_w650_r1_s.jpg)
-路德社评论：
+福奇接受了中共国的宣传，强调武汉式的封锁对“压制”病毒的重要性。
 
-一群违反《联合国宪章》的惯犯居然联合起来维护《联合国宪章》，不禁让人感到荒唐。中共此举就是要联合亚非拉等穷国抢占联合国投票席位优势，重塑联合国秩序，以此来抵制西方发达国家未来对中共的围剿。西方国家只要切断中共国的资金供应链，这些穷国立马就会断绝与中共国的来往。
+福奇说：“为了强调我们俩都说过的话，如果我们不完全抑制这个，我们将继续受到变种病毒的挑战，这些变种病毒有可能会回来咬我们。”。
 
-新闻二
+他补充说：“在过去，我们通过天花、脊髓灰质炎和麻疹的全球合作，取得了成功。世界上没有理由不通过合作性的公共卫生措施和科学的应用结合起来，在中共病毒方面做同样的事情。”
 
-德国之声报道[2]：在中国两会前，当局举行了全国脱贫攻坚总结表彰大会，习近平宣布现行标准下中国9899万农村贫困人口全部脱贫，832个贫困县全部摘帽，12万8000个贫困村全部出列，区域性整体贫困得到解决，完成了消除绝对贫困的任务。同时有近40年历史的国务院扶贫办牌子也被”国家乡村振兴局”这个新设机构取代。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/脱贫.jpg)[图片地址](https://static.dw.com/image/56525094_303.jpg)
-路德社评论：
-
-中共国为掩盖国内严重的失业率，谎称中共国将拥有两亿灵活就业人口，中共国如果妥善不处理这些失业人口，未来将给墙内社会秩序带来巨大威胁，按照历史规律，大运动之后必定带来大饥荒，可见墙内老百姓的苦日子即将到来。习近平此时强推脱贫就是要解决二十大连任的合理合法性问题，通过媒体宣传中共国脱贫成功来给老百姓洗脑，为自己揽政绩。
-
-新闻三
-
-大纪元3月12日报道[3]：习近平在3月6日的医药卫生界、教育界联组会上特别提到“校外培训机构乱象”，称其是一个“很难治理的顽瘴痼疾”。近日，北京、上海等地当局接连出台红头文件，对种类繁琐的校外培训机构进行全覆盖排查，暂停各类线下培训。分析认为，中共此举是借整顿“乱象”名义，以达到对学生洗脑的“完全化”。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/培训机构乱象.jpg)[图片地址](https://i.epochtimes.com/assets/uploads/2021/03/GettyImages-107502021-600x400.jpg)
-路德社评论：
-
-习总加速师两会后开始在国内发动清理培训机构乱象，中共意识到年轻人对西方科学知识和教育理念的追求将对中共政权构成巨大威胁，所以他们要加强国内中小学生意识形态管控，中共想要彻底切断底层人民进行中西方交流的纽带。
-
-二、美军高级将领给中共国设定军事打击红线
-
-法新社3月13日报道[4]：曾任北大西洋公约组织盟军最高指挥官的美军退役将领史塔伏瑞迪斯日前投书“日经亚洲”周刊（Nikkei Asia）指出，美国整体海上战略态势的基础是建立一个全球海上联盟，以对抗中国人民解放军的高战力部队。美国的红线包括：中国或北韩以核生化武器攻击美国及其盟邦；中国武力进犯台湾及离岛，包括经济封锁台湾或对台湾公共基础设施与机构发动大规模网路攻击。其他红线还包括：中国攻击防卫尖阁诸岛（Senkaku Islands，钓鱼台列屿）及四周东海经济海域主权的日本军队；中国在南海採取重大敌对行动以进一步开发各岛礁并使之军事化，以部署军队对抗其他主权声索方；妨碍美国与盟邦海军执行全面自由航行作业；以及中国进攻美国缔约盟邦的主权领土与军事设施。
-
-在美中战略脉络下，美国海军陆战队将坚决镇守海洋，并且能够航行至南海海域，深入中国赖以防御的岛链之内。一旦深入至此，陆战队将动用武装无人机、网上攻击能力、战力强大的特种部队“陆战队突袭兵”（Marine Raiders）、防空飞弹，甚至猎杀舰艇的武器以攻击中国海上军力，甚攻击共军的陆上作战基地。比如中国在南海的军事化人工岛礁。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/海军将领.png)[图片地址](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210313-%E7%BE%8E%E5%86%9B%E9%80%80%E5%BD%B9%E5%B0%86%E9%A2%86-%E4%BB%80%E4%B9%88%E6%98%AF%E7%BE%8E%E5%9B%BD%E7%BB%99%E4%B8%AD%E5%9B%BD%E8%AE%BE%E5%AE%9A%E7%9A%84%E7%BA%A2%E7%BA%BF)
-路德社评论：
-
-1、美军退役将领史塔伏瑞迪斯是极具影响力的海军军官，曾亲自参与指挥伊拉克战争，是一位实战经验丰富，学术造诣极高的退役军官，史塔伏瑞迪斯此番发言就相当于代表美军方发出正式声明。美国海军是美国称霸全世界最重要的力量，该军种自成体系，非常团结，绝对忠诚，且有极强的执行力。中共国最清楚“红线”为何意义，美军方就是在警告中共，如果中共踏过这些红线，中共必将为此付出惨痛的代价。
-
-2、根据这些红线，现在美国已经确定的是“中国在南海採取重大敌对行动以进一步开发各岛礁并使之军事化，以部署军队对抗其他主权声索方”，未来只要认定中共病毒就是来自中共实验室，并且是由中共发起的超限生物武器攻击，就确定中共破坏“中国或北韩以核生化武器攻击美国及其盟邦”这条红线，中共必将遭受北约联合打击。
-
-3、爆料革命路德社是全世界第一个在2018年爆料中共南海岛礁一定会被强拆，但这只会发生小规模战争。未来一旦确认中共越过“中国或北韩以核生化武器攻击美国及其盟邦”这条红线，北约依据联盟条款一定会消灭中共。路德社早在去年就爆料北约联盟正在筹划对中共国上千个军事目标发起军事打击，这都是有法律依据和情报支持的。
-
-4、长期关注爆料革命的战友一定要抓住要点，新疆人权问题、香港问题以及南海问题不会直接导致中共灭亡，最多只能促发局部战争或经济制裁，导致中共灭亡最重要的议题就是中共病毒，这就是文贵先生所说的以毒灭共，中共绝不会傻到直接对台湾，日本和西方国家发起武力攻击，他们只能通过发起超限生物武器战来击垮西方。印度、捷克等任何一个联邦国家只要认定中共病毒就是超限生物武器，其他国家必将跟进。
-
-5、有媒体报道拜登政府已经认定蓬佩奥发布的关于中共病毒来自武汉病毒研究所的文件。纳瓦罗、章家敦先生，以及《纽约邮报》左派专栏作家都公开认定中共病毒就是生物武器。福克斯也报道说，国务院前秘密武器调查员大卫艾舍相信，新冠病毒是中共的生物武器，中共早在2007年就进行生物武器压法，通过改造病毒生产致命武器。
+大家可以在这里看他们讨论的完整视频：
 
 
 
-> 🔥重磅！福克斯报道，国务院前秘密武器调查员，新冠起源调查负责人大卫•艾舍相信，新冠病毒是中共的生物武器！中共早在2007年就在进行生物武器研发，通过改造病毒，使其成为致命武器。中共已经进入生物战时代 [pic.twitter.com/zVAFJrpOju](https://t.co/zVAFJrpOju)
-> — 嘻禧僖囍 (@xi\_GLB) [March 14, 2021](https://twitter.com/xi_GLB/status/1370893707621191680?ref_src=twsrc%5Etfw)
+福奇的出现受到中共国官方媒体和中共官员的无限称赞。以下是一个例子，中共官员对福奇和钟南山小组的回应。
 
 
 
-6、西方国家从军事、舆论等各领域都在做充分的准备，战略战术团队现在只是在优化攻击方案，文贵先生在直播中爆料美国即将发布新冠病毒白皮书，这对中共是致命打击。当年盟军为完成诺曼底登陆计划，准备了一年之久才建立起完备的进攻体系，以美国为首的盟军早在几年前就已经全面为灭共做各种准备。美国军方早已制定好各种灭共方案，随时准备行动。
+> Prof. Zhong Nanshan, the leading [#Chinese](https://twitter.com/hashtag/Chinese?src=hash&amp;ref_src=twsrc%5Etfw) respiratory disease expert, & Dr. Anthony Fauci, the top [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw) infectious disease expert, met via video link to exchange views on [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) control ystd(2/3) evening. A right way for the two countries to work together in defeating the virus. [pic.twitter.com/LxJppoGYQ1](https://t.co/LxJppoGYQ1)
+> — Ambassador Deng Xijun (@China2ASEAN) [March 3, 2021](https://twitter.com/China2ASEAN/status/1366922559837511683?ref_src=twsrc%5Etfw)
 
-三、德防长明确将出兵印太地区
 
-法新社3月13日报道[5]：德国国防部长克兰普-卡伦鲍尔打算通过德国联邦国防军来阻止中国在印太地区的行动。专家表示，卡伦鲍尔的语调比以前更为强硬。德国做好了将一艘海军军舰开往印度太平洋的计划。今年夏天，“巴伐利亚号”将从威廉港启程前往远东。在回程路上，该护卫舰也将跨越南中国海。德国联邦国防部于三月初公布了这一消息。德国防长克兰普-卡伦鲍尔现在首次公布了德方的意图。德国国防军出行印太地区，主要是为了阻止中国的扩张。这位基民盟政治家在推特上写道：“我们困扰地听到来自中国的军事威慑腔调，甚至是备战呼吁。我认为，我们应该在可能的地方与中国合作，在必要的地方予以反对。”
-![]()![](https://gnews.org/wp-content/uploads/2021/03/德国.png)[图片地址](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210313-%E5%BE%B7%E9%98%B2%E9%95%BF-%E5%BE%B7%E5%9B%BD%E8%81%94%E9%82%A6%E5%9B%BD%E9%98%B2%E5%86%9B%E5%B0%86%E9%98%BB%E6%AD%A2%E4%B8%AD%E5%9B%BD%E5%9C%A8%E5%8D%B0%E5%A4%AA%E5%9C%B0%E5%8C%BA%E7%9A%84%E8%A1%8C%E5%8A%A8)
-路德社评论：
+邓锡军大使 @ China2ASEAN
+中共政府官员
+ 中共国著名的呼吸道疾病专家钟南山教授和 #美国顶级传染病专家安东尼·福奇博士通过视频连线见面，昨天（2/3）晚上就中共病毒控制交换了意见。 这是两国共同努力战胜病毒的正确方法。
 
-1、德国是典型的白左国家，其国防部长少有地强硬表态将动用国防军来遏制中共国在亚太地区的行动。西方国家此前已经通过外交渠道敦促中共国开放实验室接受调查，中共明确拒绝。随后，WHO专家也前往中共国调查病毒溯源时，中共国依然没有开放实验室接受调查，那北约只有下最后通牒，如果中共国再不配合，北约只有采取军事行动，西方国家已经给中共足够的辩护权，只是中共自己选择放弃。
 
-2、当年，美国就要求萨达姆接受国际社会进驻调查其国内生化武器和核武器研发情况，萨达姆始终拒绝，最终小布什直接下最后通牒，要求萨达姆24小时下台，否则就采取军事行动。控制加民主是西方世界最重要的现行体制，虽然政府党派会来回更换，但是北约组织绝对不会受党派执政影响，蓬佩奥任期多次前往北约就是同盟友商讨灭共计划。
+> When Dr. Zhong Nanshan meets Dr. Fauci. Their consensus: solidarity and cooperation against [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw).[https://t.co/aoIdCR9Cd0](https://t.co/aoIdCR9Cd0) [pic.twitter.com/4tKGdaQNgY](https://t.co/4tKGdaQNgY)
+> — Hua Chunying 华春莹 (@SpokespersonCHN) [March 3, 2021](https://twitter.com/SpokespersonCHN/status/1366966329647882241?ref_src=twsrc%5Etfw)
 
-3、爆料革命路德社多次说全球灭共正在按时间按步骤地有序推进，不论谁上台都无法阻止灭共进程，因为美国定海神针的力量已经下定灭共决心。在全球灭共的大时代，所有人一定要认清方向，提前做出明智的选择。
 
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+华春莹 @SpokespersonCHN 
+中国政府官员 
+钟南山博士与福奇博士会面， 他们的共识是：在抗击中共病毒方面的团结与合作。
 
-参考文章：
 
-[1][https://www.voachinese.com/a/China-Iran-North-Korea-seek-support-at-UN-to-push-back-against-unilateral-force-sanctions-20210312/5812235.html](https://www.voachinese.com/a/China-Iran-North-Korea-seek-support-at-UN-to-push-back-against-unilateral-force-sanctions-20210312/5812235.html)
+> Leading Chinese respiratory disease expert Zhong Nanshan, top U.S. infectious disease specialist Anthony Fauci call for more efforts to enhance global solidarity and cooperation to beat the deadly [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/TA52T239D2](https://t.co/TA52T239D2) [pic.twitter.com/F79DG9AAf7](https://t.co/F79DG9AAf7)
+> — China Xinhua News (@XHNews) [March 4, 2021](https://twitter.com/XHNews/status/1367363811892633609?ref_src=twsrc%5Etfw)
 
-[2][https://www.dw.com/zh/%E5%AE%A2%E5%BA%A7%E8%AF%84%E8%AE%BA%E4%B8%BA%E4%BB%80%E4%B9%88%E4%B9%A0%E8%BF%91%E5%B9%B3%E7%89%B9%E5%88%AB%E5%9C%A8%E6%84%8F%E4%B8%AD%E5%9B%BD%E5%85%A8%E9%9D%A2%E8%84%B1%E8%B4%AB/a-56733818](https://www.dw.com/zh/%E5%AE%A2%E5%BA%A7%E8%AF%84%E8%AE%BA%E4%B8%BA%E4%BB%80%E4%B9%88%E4%B9%A0%E8%BF%91%E5%B9%B3%E7%89%B9%E5%88%AB%E5%9C%A8%E6%84%8F%E4%B8%AD%E5%9B%BD%E5%85%A8%E9%9D%A2%E8%84%B1%E8%B4%AB/a-56733818)
 
-[3][https://www.epochtimes.com/gb/21/3/11/n12805179.htm](https://www.epochtimes.com/gb/21/3/11/n12805179.htm)
+新华通讯社新闻@XHNews 
+中共国国有媒体 
+中共国负责的呼吸道疾病专家钟南山，美国顶级传染病专家安东尼·福奇呼吁为加强全球团结与合作做出更多努力，以战胜致命的＃冠状病毒 [xhtxs.cn/BvINBv](http://xhtxs.cn/BvINBv)
 
-[4][https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210313-%E7%BE%8E%E5%86%9B%E9%80%80%E5%BD%B9%E5%B0%86%E9%A2%86-%E4%BB%80%E4%B9%88%E6%98%AF%E7%BE%8E%E5%9B%BD%E7%BB%99%E4%B8%AD%E5%9B%BD%E8%AE%BE%E5%AE%9A%E7%9A%84%E7%BA%A2%E7%BA%BF](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210313-%E7%BE%8E%E5%86%9B%E9%80%80%E5%BD%B9%E5%B0%86%E9%A2%86-%E4%BB%80%E4%B9%88%E6%98%AF%E7%BE%8E%E5%9B%BD%E7%BB%99%E4%B8%AD%E5%9B%BD%E8%AE%BE%E5%AE%9A%E7%9A%84%E7%BA%A2%E7%BA%BF)
 
-[5][https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210313-%E5%BE%B7%E9%98%B2%E9%95%BF-%E5%BE%B7%E5%9B%BD%E8%81%94%E9%82%A6%E5%9B%BD%E9%98%B2%E5%86%9B%E5%B0%86%E9%98%BB%E6%AD%A2%E4%B8%AD%E5%9B%BD%E5%9C%A8%E5%8D%B0%E5%A4%AA%E5%9C%B0%E5%8C%BA%E7%9A%84%E8%A1%8C%E5%8A%A8](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210313-%E5%BE%B7%E9%98%B2%E9%95%BF-%E5%BE%B7%E5%9B%BD%E8%81%94%E9%82%A6%E5%9B%BD%E9%98%B2%E5%86%9B%E5%B0%86%E9%98%BB%E6%AD%A2%E4%B8%AD%E5%9B%BD%E5%9C%A8%E5%8D%B0%E5%A4%AA%E5%9C%B0%E5%8C%BA%E7%9A%84%E8%A1%8C%E5%8A%A8)
+> What are the lessons we can learn from the pandemic?
+> Dr. Fauci and Dr. Zhong Nanshan speak about the need for international cooperation, strategy, and honesty from leaders in public health emergencies. [pic.twitter.com/aR1KiDRwPM](https://t.co/aR1KiDRwPM)
+> — CGTN America (@cgtnamerica) [March 3, 2021](https://twitter.com/cgtnamerica/status/1367233410754838528?ref_src=twsrc%5Etfw)
 
-文章撰写：【重生】  编辑：【香柏树】
 
-+1
+CGTN美国@cgtnamerica 
+中共国有媒体
+ 我们可以从大流行中得到什么教训？福奇博士和钟南山博士谈到了在公共卫生突发紧急情况下，领导者之间的国际合作，战略和诚实的必要性。
+
+
+> When Dr. Zhong Nanshan meets Dr. Fauci. Their consensus: solidarity and cooperation against [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/ry55dToXMy](https://t.co/ry55dToXMy)
+> — China Economy (@CE\_ChinaEconomy) [March 3, 2021](https://twitter.com/CE_ChinaEconomy/status/1366972854227492866?ref_src=twsrc%5Etfw)
+
+
+中共国经济@CE\_ChinaEconomy
+中共国有媒体
+钟南山博士与福奇博士会面时。 他们的共识是：团结与合作应对＃COVID19。
+上周，福奇和他的副手在中共国武汉爆发中共病毒早期，就中共病毒消息与中共国政府直接协调。透明监察组织《司法观察》（Justicial Watch）发布了通过《信息自由法》（Freedom of Information Act，FOIA）获得的新政府电子邮件，显示美国政府卫生机构已签署了中共国共产党官员要求的与中共病毒有关的保密协议。
+
+
+
+> These Fauci emails offer tremendous support for the claim that US officials allowed Chinese communists to script the US response in the pandemic. [https://t.co/DNFcVGpamN](https://t.co/DNFcVGpamN) [pic.twitter.com/LTyyt2FF9s](https://t.co/LTyyt2FF9s)
+> — Jeffrey A Tucker (@jeffreyatucker) [March 5, 2021](https://twitter.com/jeffreyatucker/status/1367926401119248396?ref_src=twsrc%5Etfw)
+
+
+杰弗里·塔克（Jeffrey A Tucker） @jeffreyatucker ·
+这些福奇的电子邮件为有关美国官员允许中共在大流行中对美国做出回应的说法提供了有力支持。[judicialwatch.org/wp-content/upl…](https://judicialwatch.org/wp-content/uploads/2021/02/DCNF-v-HHS-Nov-2020-00149.pdf)
+2020年2月14日14:28，Handley，Gray（NIH/NIAID）[E]。写道：
+
+
+> *亲爱的全球疫情警报和反应网络（GOARN） 同事们, 在过去的24小时里，我们一直在与世卫组织和中共国官员积极沟通，以确保莱恩博士能够参与世卫组织/全球疫情警报和反应网络在中共国的任务。由于莱恩博士在接到参加此次访问团的通知时正在前往日本的途中，这使得情况变得更加复杂。抵达东京后，他在中共国驻华盛顿大使馆、世卫组织和美国驻北京大使馆为他办理签证提供了方便。*
+
+
+值得一提的是，美国和100多个国家发起封锁，完全是因为武汉传出的“数据”。福奇和他的同事等权威人士重复了错误的、未受质疑的中共国数据，这些数据说服了世界进行封锁，并接受中共病毒患者早期的，积极的呼吸治疗，以及其他拙劣、不科学的治疗和缓解措施。
+
+中共国通过围绕新型冠状病毒的蓄意造谣活动，挑起全球恐慌。此外，中共还发明了健康隔离封锁的概念。
+
+原文作者：乔丹·沙切特尔（Jordan Schachtel）
+发布时间：2021年3月10日
+原文链接：https://www.aier.org/article/fauci-and-the-communists/
+
+0
