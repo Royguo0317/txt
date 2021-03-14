@@ -1,39 +1,117 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共产党真的是把中国人置入到最危险的境界
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/975884/)
+## 第一份关于新疆种族灭绝指控的独立报告称证据显示,北京有目的“消灭维吾尔族人”
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/975928/)
 
-新闻简述：在2021年3月12日的盖特中，郭先生感慨中共病毒动了美国的筋骨，有太多美国人因此恨中国人，因为他们难以分清中共和中国人的区别。中国共产党已经把中国人置于最危险的境地。而只有新中国联邦能给华人带来安全。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_2021-03-12_Getter4.srt.txt)
-**共产党真的是把中国人置入到最危险的境界**
+翻译： 康州盘古农场 – Freeearth
+校对： 康州盘古农场 – Mike Li
+编辑： 康州盘古农场 – 轰炸机
 
-**The CCP Has Put Chinese Into a Most Dangerous Situation**
+美国有线电视新闻网（CNN）的本·韦斯科特（Ben Westcott）和丽贝卡·赖特（Rebecca Wright）报道：
 
-我刚刚的回到家，刚刚回来，真是啊，我刚才去了几个地方，天哪，美国这个病毒的伤害，动到筋骨了，但是我也能看出来这些人，恨中国和共产党，真有些人分不开，人家就说，中国人把我们害了，我说不是中国人，是中国共产党，但是你能每个都这么说去吗？
+驻香港的美国有线电视新闻网（CNN）报道，根据50多位国际法、种族灭绝和中国地区国际专家撰写的独立报告，中共政府在新疆的所谓行动违反了《联合国灭绝种族罪公约》的每一项规定。
 
-I just came home, just returned. It is true. I went to a few places. Oh my gosh, the muscles and bones of the U.S. have really been hurt by the virus. Yet, I can also tell that these people hate China and the CCP so much that some of them cannot differentiate Chinese from CCP by saying, “Chinese hurt us.” I said, “It is not Chinese. It is the CCP.” However, are you able to tell everyone who thinks like this?”
+在华盛顿特区新线战略与政策研究所智囊团星期二发布的这份报告称，中国政府“对正在进行的针对维吾尔族的种族灭绝，违反了《联合国灭绝种族公约》，负有国家责任。”
 
-共产党真的是把中国人置入到最危险的境界，最危险的境界，真的是很吓人，无论是医生还是护士，无论是所谓的科学家，还是所谓的生物学家，现在反正是对中国人不可能好感，想想没有新中国联邦，这个世界对中国人将有多么的危险，没有新中国联邦，中国人将是多可怕，在世界的环境，还跟着共产党瞎忽悠那，你有孩子吗？你想要未来吗？你以为地球就是你家的吗？全地球都恨你的时候，你怎么活？无知啊，可怕啊。
+这是一个非政府组织首次对新疆的种族灭绝指控进行独立的法律分析，包括指出中共对涉嫌犯罪应承担的责任。 CNN只能看到该报告的初稿。
 
-The CCP indeed put Chinese into a most dangerous situation. It is really scary. Whether they are doctors or nurses, the so-called scientists or biologists, it’s not possible for them to have any good impression of Chinese now. Think about this. If the New Federal State of China (NFSC) did not exist, how dangerous the world would become for Chinese people? Without the support of the NFSC, how horrible the world would be for Chinese people? Under the world’s current situation, why are you still behaving like a blind fool? Do you have any children? Do you expect a future? Do you think the earth is exclusively yours? When everyone on the earth hates you, how can you still survive? Ignorant! Terrible!
+据美国国务院称，据信有多达200万维吾尔人和其他穆斯林少数民族被安置在该地区大规模被铁丝网围起来的拘留中心。据此，前被拘留者声称他们受到洗脑、性虐待甚至被强制绝育。中共否认其有侵犯人权的指控，称这些中心对于防止宗教极端主义和恐怖主义是必要的。
 
-刚才有战友说，七哥，世界上你说永远不变的事，太阳永远会升起，有的时候阴天就升不起，那是因为你站的地方不对，你要待在有阳光的地方，太阳每天都升起，不是太阳没升起来，是你没站对地方，这就像现在一样，你在中国共产党那里面，你就站错地方了，你就看不到太阳的升起，对吧，兄弟姐妹们？好好的，珍惜爆料革命、新中国联邦，给中国人打下的这一片美好的天空，珍惜吧，谢谢！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-14-at-23.55.03.png)*图片：2018年11月8日，新疆喀什古城东门外的CCP血旗*
 
-Just now, one of our fellow fighters said, “Brother Seven, you said that one thing never changing in the world is that the sun is always rising. Sometimes, the sun will not rise when it is a cloudy day.” This is because you are not standing at the right place. You need to stay in the place where there is sunlight. The sun rises everyday. It is not the case that the sun doesn’t rise. It is because you stand in a wrong place. Just like now, if you stand with the CCP, then you are in the wrong side. Therefore, you will never see the sun rising. Is this right, brothers and sisters? Please cherish the beautiful sky that our Whistleblower Movement and the NFSC have created for the Chinese people. Please cherish them! Thank you!
+3月7日，中共外交部长王毅在新闻发布会上说，关于新疆发生种族灭绝的指控“没有比这更荒谬的了”。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+1月19日，即将卸任的川普政府宣布中共政府正在新疆实施种族灭绝。 一个月后，荷兰和加拿大议会通过了类似的动议，尽管遭到了其领导人的反对。
 
-视频来源：[https://gtv.org/getter/604be375607c4240c8b51ea2](https://gtv.org/getter/604be375607c4240c8b51ea2)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/971100/](https://gnews.org/zh-hans/971100/)
+新线（Newlines）特殊项目负责人的负责人，新报告的合著者阿泽姆·易卜拉欣(Azeem Ibrahim)说，有“压倒性的”证据支持对种族灭绝的指控。
 
-* * *
+他说：“这是一个重要的全球大国，其领导者是种族灭绝的总设计师。”
 
-翻译：【7PawBear】校对：【Isaiah4031】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+**种族灭绝公约**
+
+联合国大会于1948年12月批准了长达四页的《联合国灭绝种族罪公约》，其中明确界定了什么是“灭绝种族罪”。中共国与其他151个国家都是该公约的签署国。
+
+该公约第二条规定，种族灭绝是企图“有目的的全部或部分消灭某一民族、人种、种族的或宗教团体的行为”。
+
+该公约指出，种族灭绝有五种发生方式：杀害该团体的成员；对某群体成员造成严重的身体或精神伤害；故意造成某种生活条件，故意造成其全部或部分物理破坏；采取旨在防止该群体内生育的措施；或强行将该族群的孩子们转移到别的族群。
+
+自从该公约于1948年提出以来，大多数种族灭绝的定罪都发生在联合国主持下的国际刑事法庭（如卢旺达和南斯拉夫的国际刑事法庭）或国家法院进行的。 2006年，前独裁者萨达姆·侯赛因（Saddam Hussein）在伊拉克法院被判犯有种族灭绝罪。
+
+但是，任何国际刑事法庭的建立都需要得到联合国安理会的批准，而中共国是拥有否决权的常任理事国，因此就新疆种族灭绝的指控进行听证的可能性不大。
+
+新线（Newlines）报告称，只要违反种族灭绝公约中的一项行为便构成种族灭绝罪，但中共政府在新疆的行为已符合所有（五项）标准。
+
+报告称：“必须从整体上看待中共针对该地区维吾尔人的政策和做法，这是在蓄意全部或部分消灭维吾尔人。”
+
+世界维吾尔代表大会和维吾尔人权项目委托位于伦敦埃塞克斯法院(Essex)的分庭于2月8日发表的另一份报告得出了类似的结论，即有针对中共政府的种族灭绝“可信案例”。
+
+（种族灭绝）公约没有规定对确定犯有种族灭绝罪的国家或政府的具体刑罚或处罚。但是，新线报告指出，根据公约，其他151个签署国有责任采取行动。
+
+报告补充说：“预防、惩罚和不实施种族灭绝是中共的基本义务，或者说是整个国际社会应负的责任。”
+
+**“****清晰而有说服力****”**
+
+拉乌尔·沃伦贝格(Raoul Wallenbery)人权中心的法律顾问约纳·戴蒙德（Yonah Diamond）负责这份报告.他指出，对于种族灭绝的定义，公众普遍存在误解，因为它需要大规模杀戮或人身灭绝的证据。
+
+他说：“真正的问题是，是否有足够的证据表明有企图蓄意消灭该族群，而这正是这份报告所揭示的。”
+
+报告中对《公约》规定的种族灭绝的所有五个定义进行了审查，以确定针对中共的指控是否符合每个具体标准。
+
+报告说：“鉴于所涉违规行为的严重性质，本报告采用了明确而令人信服的举证标准。”
+
+新线（Newlines)战略与政策研究所由美国费尔法克斯大学（Fairfax University）于2019年成立，是一个无党派的智库。其目标是“基于对世界不同地区及其国家/地区地缘政治的深刻理解，以增强美国的外交政策和价值体系。”它的前身是 “全球政策中心”
+
+戴蒙德说，报告的作者们考虑了成千上万来自维吾尔流亡者的目击证词和中共官方政府文件。
+
+根据该报告，自2014年中共发起表面上针对伊斯兰极端主义的运动以来，据称中共政府在整个新疆多达1400个法外拘留所中拘留了100万至200万人。
+
+北京声称，在新疆和中国其他地区发生了一系列致命袭击之后，镇压是必要的。中共将其归类为恐怖主义。
+
+该报告详细介绍了性侵犯、心理折磨、尝试文化洗脑以及营地内死亡人数不详的指控。
+
+报告称：“在拘禁营中的维吾尔族被拘留者们……被剥夺了人的基本需要，遭到严重侮辱，并受到不人道的待遇或处罚，包括长期无食物地单独监禁。”
+
+“自杀已变得如此普遍，以至于被拘留者必须穿着’防止自杀’的制服，并且被禁止使用容易引起自残的材料。”
+
+该报告还归因于该地区维吾尔族出生率的急剧下降-从2017年至2018年下降了约33％-归因于据称中共实施了官方的绝育、堕胎和节育计划。其中有些妇女，是在未经她们的同意的情况下被强迫实施的。
+
+中共已确认CNN说的出生率下降，但声称2010年至2018年间，新疆维吾尔族人口总体上有所增加。
+
+报告还称，在镇压过程中，有关维吾尔族文化、历史和文学的教科书已从新疆学童的课堂上删除。在集中营中，被拘留者被强制讲普通话，并说如果他们拒绝或无法说中文，就会遭受酷刑。
+
+该报告使用了中共官员的公开文件和讲话，声称中共政府对犯下的种族灭绝罪负责。
+
+研究人员引用了官方讲话和文件，其中维吾尔人和其他穆斯林少数民族被称为“杂草”和“肿瘤”。据称，一项政府指令呼吁地方当局“破坏维吾尔族的血统、破坏其根源、破坏其联系并破坏其血统”。
+
+报告说：“总之，犯下种族灭绝行为的个人和实体是中共法律规定的国家机关和代理人。” “因此，对维吾尔人实施这些已列举的种族灭绝行径……一定要归罪于中共。”
+
+曼彻斯特大学的报告撰稿人和维吾尔族历史学家瑞安.图姆（Rian Thum）说，在20年内，人们会将镇压新疆视为“上世纪文化破坏的重大行为之一”。
+
+图姆说：“我认为许多维吾尔族人将这份报告视为对他们及其家人、朋友和社区所经历的苦难的一种久违的承认。”
+
+**“****本世纪的谎言****”**
+
+中共政府一再为在新疆的行动辩护，称公民现在享有高水准的生活。
+
+外交部发言人汪文斌在2月4日的新闻发布会上说：“种族灭绝指控是由极端反华势力炮制的世纪谎言。这是一场旨在抹黑和侮辱中国的荒谬闹剧。”
+
+中共官员和官方媒体将北京称为“职业培训中心”的拘留营描述为减贫运动和大规模反激进组织的一部分。
+
+报告撰稿人约翰·帕克（John Packer），渥太华大学副教授，欧安组织在海牙的少数民族事务高级专员办公室前主任说：“（但是）您可以同时是一个进行灭绝种族的反恐运动。”
+
+未参加该报告的世界维吾尔代表大会英国负责人拉希玛·马赫穆特（Rahima Mahmut）表示，许多国家“说（他们）无能为力，但（他们）可以”。
+
+她说：“这些国家，即签署了《灭绝种族罪公约》的国家，有义务预防和惩罚……我认为每个国家都可以采取行动。”
+
+虽然报告小组避免提出建议以保持公正，但报告合著者易卜拉欣(Ibrahim)表示，调查结果的含义“非常严重”。
+
+他说：“这不是一个倡导文件。我们也不主张采取任何行动。该报告中没有任何活动家。这完全是由法律专家、地区专家和中国民族专家完成的。”
+
+但是帕克说，世界第二大经济体的这种“严重违反国际秩序”行径引起了人们对全球治理的质疑。
+
+“如果这还不足以激发某种行动甚至立场，那么实际上需要什么呢？”他说。
+
+文章来源：[https://www.cnn.com/2021/03/09/asia/china-uyghurs-xinjiang-genocide-report-intl-hnk/index.html](https://www.cnn.com/2021/03/09/asia/china-uyghurs-xinjiang-genocide-report-intl-hnk/index.html)
 
 0

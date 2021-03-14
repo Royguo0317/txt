@@ -1,37 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 数字货币系列G- Coin相对黄金在大通胀中的优势
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/975562/)
+## 共产党真的是把中国人置入到最危险的境界
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/975884/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Picture1-35.jpg)
-[图片来源](https://www.tennessean.com/story/money/2017/04/14/unless-your-money-beating-inflation-youre-losing/100437616/)
+新闻简述：在2021年3月12日的盖特中，郭先生感慨中共病毒动了美国的筋骨，有太多美国人因此恨中国人，因为他们难以分清中共和中国人的区别。中国共产党已经把中国人置于最危险的境地。而只有新中国联邦能给华人带来安全。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_2021-03-12_Getter4.srt.txt)
+**共产党真的是把中国人置入到最危险的境界**
 
-随着美国1.9万亿美元纾困法案正式落地，市场间对全球性的大通胀也愈发感到担忧。
+**The CCP Has Put Chinese Into a Most Dangerous Situation**
 
-通胀，顾名思义， 就是整体物价水平上升，直接导致货币的市值或购买力下降， 也即钱不值钱。在可以预见的未来，大多西方政府很可能采取宽松货币政策来缓解疫情带来的负面经济影响，本轮的大通胀可能持续数年，而美国的不断扩大的财政赤字，出了会有一部分讲变相由其他姑婆加承担外， 同时也会给美元大幅贬值带来压力。
+我刚刚的回到家，刚刚回来，真是啊，我刚才去了几个地方，天哪，美国这个病毒的伤害，动到筋骨了，但是我也能看出来这些人，恨中国和共产党，真有些人分不开，人家就说，中国人把我们害了，我说不是中国人，是中国共产党，但是你能每个都这么说去吗？
 
-**通胀发展史**
+I just came home, just returned. It is true. I went to a few places. Oh my gosh, the muscles and bones of the U.S. have really been hurt by the virus. Yet, I can also tell that these people hate China and the CCP so much that some of them cannot differentiate Chinese from CCP by saying, “Chinese hurt us.” I said, “It is not Chinese. It is the CCP.” However, are you able to tell everyone who thinks like this?”
 
-以美国为例，近半个世纪以来，美国经历过两次大规模的通胀，近的一次便是08年次贷危机，最后以风险平摊至全球经济和川普上台后重实业的经济模式得以缓解。相比于次贷危机，70年代末的美国经济大滞胀其实更加危险，其最后以保罗·沃克为首的美联储鹰派大幅加息得以最终解决。从以下两张表中可以看出黄金在这两段时间内都同时有一波上涨，这是由于黄金的3个属性使然：稳定性，长期性，变现能力。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Picture2-10.png)
-[金价](https://goldprice.org/gold-price-history.html)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Picture3-2.png)
-[CPI指数](https://en.wikipedia.org/wiki/United_States_Consumer_Price_Index)
+共产党真的是把中国人置入到最危险的境界，最危险的境界，真的是很吓人，无论是医生还是护士，无论是所谓的科学家，还是所谓的生物学家，现在反正是对中国人不可能好感，想想没有新中国联邦，这个世界对中国人将有多么的危险，没有新中国联邦，中国人将是多可怕，在世界的环境，还跟着共产党瞎忽悠那，你有孩子吗？你想要未来吗？你以为地球就是你家的吗？全地球都恨你的时候，你怎么活？无知啊，可怕啊。
 
-G系列金融圈的G-Dollar 和G-Coin能否长期有效的跑赢这次全球性的大通胀呢？下面以黄金作为对标，分析下G-Dollar和 G-Coin的相对优势。
+The CCP indeed put Chinese into a most dangerous situation. It is really scary. Whether they are doctors or nurses, the so-called scientists or biologists, it’s not possible for them to have any good impression of Chinese now. Think about this. If the New Federal State of China (NFSC) did not exist, how dangerous the world would become for Chinese people? Without the support of the NFSC, how horrible the world would be for Chinese people? Under the world’s current situation, why are you still behaving like a blind fool? Do you have any children? Do you expect a future? Do you think the earth is exclusively yours? When everyone on the earth hates you, how can you still survive? Ignorant! Terrible!
 
-**稳定性/接受度**
-以现阶段来看，G-Dollar作为稳定币其大概率会和黄金直接挂钩。这意味着G-Dollar的稳定性不低于黄金。那么G-Dollar的价值会不会比黄金更加稳定，答案是很有可能。要知道货币的稳定其实是一个相对概念，只要参与其中的玩家越多，其被投机客炒作攻击的可能性也越高。黄金虽然其自身有一定价值，但在现阶段社会中其价值更多的是来自金融市场，那么自然会有被炒作的风险，但是黄金作为自然资源只会越来越少。而与G-Dollar可直接兑换的数字货币G-Coin，除了有自己的G系列作依托，可以内循环外，被批准加入支付系统，可以购买任何其他物品。即将发行的新数字货币G-Coin，战友将首批持有，之后还要开放给社会，会越来越受欢迎。
+刚才有战友说，七哥，世界上你说永远不变的事，太阳永远会升起，有的时候阴天就升不起，那是因为你站的地方不对，你要待在有阳光的地方，太阳每天都升起，不是太阳没升起来，是你没站对地方，这就像现在一样，你在中国共产党那里面，你就站错地方了，你就看不到太阳的升起，对吧，兄弟姐妹们？好好的，珍惜爆料革命、新中国联邦，给中国人打下的这一片美好的天空，珍惜吧，谢谢！
 
-**长期性**
-黄金由于其不易腐蚀而自古被认为是天然的货币，但是新时代有新机遇，次世代的货币必然是数字货币的天下，易储藏已然不能体现货币的长期持有性。G-Coin作为数字货币的代表自然也继承了数字货币的一大特征，而它因为有良好坚实的KYC (Know Your Customer了解你的客户) 程序，也就是实名验证，从而是真正的中心化这一特点，正是G-Coin能有持久生命力的根本。在将货币监管发行中心化的同时，也是最大限度地降低通过G-Coin 进行洗钱的概率，也最大限度地增加通过G-Coin偷税漏税的难度。一个能长期将风险降至最低的货币，必然是值得长期持有的。
+Just now, one of our fellow fighters said, “Brother Seven, you said that one thing never changing in the world is that the sun is always rising. Sometimes, the sun will not rise when it is a cloudy day.” This is because you are not standing at the right place. You need to stay in the place where there is sunlight. The sun rises everyday. It is not the case that the sun doesn’t rise. It is because you stand in a wrong place. Just like now, if you stand with the CCP, then you are in the wrong side. Therefore, you will never see the sun rising. Is this right, brothers and sisters? Please cherish the beautiful sky that our Whistleblower Movement and the NFSC have created for the Chinese people. Please cherish them! Thank you!
 
-**变现能力**
-变现能力最大化是现阶段我们正在努力的一个方向，假设数字货币在今年能彻底在全球发行流通，以及G-Coin拿到了各国的牌照，毋庸置疑G-Coin的变现能力是最高级的，甚至可能远超各种现金货币。届时战友们实现财务自由以及资金在全球流通相信也是件小事，而G-Coin也比难以流通变现的黄金或地产有更高的价值。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-By 【金融团队-匿名战友】
+视频来源：[https://gtv.org/getter/604be375607c4240c8b51ea2](https://gtv.org/getter/604be375607c4240c8b51ea2)
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/971100/](https://gnews.org/zh-hans/971100/)
 
-校对修改：~Agape爱；Sharon G
+* * *
+
+翻译：【7PawBear】校对：【Isaiah4031】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0

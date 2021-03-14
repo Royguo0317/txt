@@ -1,74 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一首献给妈妈的歌
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/975591/)
+## 八名香港民主人士因劳动节抗议活动违反Covid-19限聚令被判刑
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/975894/)
 
-***加拿大多伦多枫叶农场 八百里连营***
+翻译：康州盘古农场 – WH
+校对：康州盘古农场 – TrueSky
+编辑：康州盘古农场 – 轰炸机
 
-前言：这是笔者按照《草帽歌》改写的歌词，在这个特殊的日子里送给所有不能相见的妈妈…
-![]()![](https://gnews.org/wp-content/uploads/2021/03/bear.jpg)
-**新词 ** ** 原词**
-——————————————————————————————————
-妈妈 Ma Ma
-昨夜是你吗 do you remember
-你悄悄来到 The old straw hat
-我的梦里 you gave to me
-轻轻哼唱着 I lost that hat
-我的童谣 long ago
-让我安睡 Flew to
-在你怀抱 yeh… the foggy canyon yeh…
+据《香港自由新闻》3月11日报道：
 
-妈妈 Ma Ma
-昨夜是你吗？ I wonder
-你悄悄来到 What happened to
-我的梦里 that old straw hat
-轻抚我脸庞 Falling down
-你的气息  the mountain side
-伴我春夏 Out of my reach
-并秋霜 like your heart
+东区裁判法院周三（3月10日）对8名来自社会民主党联盟（LSD）和工党的成员，就去年5月1日参加两个超过4人的抗议活动判处14天监禁和18个月缓刑。
 
-噢，妈妈， Suddenly
-为何满眼忧伤 that wind came up
-你知道 Stealing
-我还流浪在远方 yeh… my hat from me yeh…
-回家路 Swirling
-凶险而又漫长 whirling gust of wind
-你怕我迷失了 Blowing it higher
-方向……. away
+此案标志着香港法院第一次在政治示威中就违反Covid-19社交距离法令的判决。
 
-妈妈 Ma ma
-儿郎闯四方 that old straw hat
-思娘念断肠 was the only one
-万里遥遥啊 I really loved
-家在何方 But We lost it
-游子苦苦望 No one could bring it back
-伴你身旁 Like the life
-不只是梦乡…. you gave me.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-14-at-23.40.48.png)*横幅写道：“防疫为名，打压为实，五一示威，何罪之有” – 图片来源：Photo: League of Social Democrats via Facebook*
 
-噢，妈妈， Suddenly
-不要忧伤 that wind came up
-你知道 Stealing
-我生命的怒放 yeh… my hat from me yeh…
-只为那 Swirling
-自由花香 whirling gust of wind
-能让它遍地 Blowing it higher
-芬芳……. away
+工党的李卓人和社会民主党联盟的“长毛”梁国雄是八名被定罪的人。这两名资深活动家被指控在2019年8月参与一场未经批准的集会而在一项持续的审判中作为被告。根据国安法梁被控颠覆罪，目前与其他46人一起被拘留。
 
-妈妈 Ma ma
-儿郎闯四方 that old straw hat
-天也苍苍 was the only one
-地也茫茫 I really loved
-定破万重浪 But We lost it
-披荆斩棘回身旁 No one could bring it back
-枕你臂弯 Like the life
-入梦乡…. you gave me.
+周三被判刑的其他人包括工党的郭荣坚，何伟航和麦德正，以及社会民主党联盟的吴文远，黄浩铭和曾健成。
 
-枕你臂弯 Like the life
-入梦乡…. you gave me.
+在去年五月的劳动节，来自两个政治团体的八名活动人士轮流以四人一组的形式在中央环政府总部外面抗议，要求当局在大流行病期间提供失业援助。大流行病法令当时对户外聚会进行了不能超过四人的限制。
 
-* * *
+当时，警察根据大流行病限聚令向这群人士开了罚单。
 
-*发稿 文锦*
+审判期间，裁判官郑纪航说，在查看抗议活动录像后，八人相距不到1.5米。
 
-+1
+其中一名被告麦德正，因拒绝向警察出示身份证，还被判处罚款港币2,000元。
+
+**失业游行**
+
+社会民主党联盟主席吴文远周三在法庭外对记者说，港府正在利用大流行性病的限聚令来压制市民抗议的权利，而对城市购物中心的排长队和人群却什么都不做。
+
+他问，“经济对这个政府比对市民更重要吗？”，“如果香港人成群结队出去逛街或在餐馆吃饭，只要能帮助企业，就没有问题。 但是，当我们只说几句话要求政府提供失业援助以帮助失业的工薪阶层时，却不被允许？”
+
+文章来源：[https://hongkongfp.com/2021/03/11/8-democrats-sentenced-over-breach-of-covid-19-gathering-limit-over-labour-day-protest/](https://hongkongfp.com/2021/03/11/8-democrats-sentenced-over-breach-of-covid-19-gathering-limit-over-labour-day-protest/)
+
+0

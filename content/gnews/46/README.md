@@ -1,33 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳新政府联合声明：敦促香港政府和中共当局恪守承诺
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/974883/)
+## 闫博士一周锦集第9期
+` 喜馬拉雅多語組` [轉載自GNews](https://gnews.org/zh-hans/975103/)
 
-【日本东京方舟农场】作者：文柯Miles 素材整理：武汉老温 校对：文小律
+#### 撰稿：问夏、CYC文穎、感言
+校对 ： 卓别林(文尊）Fr
+播音：大腳印
+视频：归真
 
-新华社北京3月11日电   3月11日下午，中共十三届“全国人大”四次会议以“高票表决”通过《全国人民代表大会关于完善香港特别行政区选举制度的决定》。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/111-2.jpg)
-
-作为继2020年6月香港《国安法》之后，中共对侵蚀圣城香港的又一项重大举措，通过《全国人民代表大会关于完善香港特别行政区选举制度的决定》，其目的是为了实现中央集权和对香港的独裁统治，中共企图通过建立与大陆一样的“人大代表”制度窃取香港民主。
-
-七国集团及欧盟就香港选举制度改变的联合声明：“中共修改香港选举法的决定“强烈显示中国大陆当局执意要消灭香港的异议声音与观点”。七国集团外长及欧盟外交与安全政策高级代表一致呼吁中方尊重香港的自由与自治，并停止镇压香港民主派活动人士。”
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/22-1.png)
-
-澳大利亚外交部长佩恩（Marise Payne）与新西兰外交部长纳纳亚•马胡塔（Nanaia Mahuta）3月13日发表联合声明表示，澳新两国与七国集团（G7）伙伴一样，严重关切中国人大对香港选举体制的修改。
-
-联合声明指出：“澳大利亚和新西兰政府与七国集团（G7）一样，我们对全国人大在3月11日通过的香港选举制度的变化深为关切，这进一步损害了香港享有的权利和自由以及高度自治。根据《中英联合声明》，这应该被至少保障到2047年。”
-
-联合声明称：“鉴于香港作为金融，贸易和我们海外社区的重要枢纽，澳大利亚和新西兰一直希望香港取得成功，这取决于香港继续享有高度自治并尊重法治。我们敦促香港政府和中共当局履行承诺，让香港市民有真正的渠道实现民主，并保障立法会作为表达不同意见和监察政府的场所和角色。”
-
-参考链接：
-
-1.[https://www.foreignminister.gov.au/minister/marise-payne/media-release/joint-statement-electoral-changes-hong-kong](https://www.foreignminister.gov.au/minister/marise-payne/media-release/joint-statement-electoral-changes-hong-kong)
-
-2.[https://www.rfi.fr/cn/港澳台/20210313-七国集团及欧盟就香港选举改变的联合声明](https://www.rfi.fr/cn/港澳台/20210313-七国集团及欧盟就香港选举改变的联合声明)
-
-
+[闫博士一周锦集9-PDF](https://gnews.org/wp-content/uploads/2021/03/9-P.pdf)[下載](https://gnews.org/wp-content/uploads/2021/03/9-P.pdf)
 
 0
