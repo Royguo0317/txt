@@ -1,39 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共产党真的是把中国人置入到最危险的境界
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/975884/)
+## 灭共重要行动已经全面开始《路德社》每日简报早间版 2021.03.07–NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/975938/)
 
-新闻简述：在2021年3月12日的盖特中，郭先生感慨中共病毒动了美国的筋骨，有太多美国人因此恨中国人，因为他们难以分清中共和中国人的区别。中国共产党已经把中国人置于最危险的境地。而只有新中国联邦能给华人带来安全。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_2021-03-12_Getter4.srt.txt)
-**共产党真的是把中国人置入到最危险的境界**
+出品《路德社》 编辑：路德社精选新闻专栏组
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-10-at-17.06.03.jpeg)
+2021.3.7 美东早间 路德时评 路.安.墨谈
 
-**The CCP Has Put Chinese Into a Most Dangerous Situation**
+**德州即将通过法案禁止媒体审查言论**
 
-我刚刚的回到家，刚刚回来，真是啊，我刚才去了几个地方，天哪，美国这个病毒的伤害，动到筋骨了，但是我也能看出来这些人，恨中国和共产党，真有些人分不开，人家就说，中国人把我们害了，我说不是中国人，是中国共产党，但是你能每个都这么说去吗？
+自保守党派大会之后，保守派势力全面统一了灭共目标。德州帅先采取了行动，反击大科技公司审查民众的言论自由，德州是保守派建制派的大本营，周五的德州立法者在新闻会上宣布了州参议院的《第12号参议院法案》，该法案将宣布社交媒体平台为“提供公众辩论的公共中心论坛”，并禁止社交媒体公司根据用户的观点，或在德州内的地理位置，对任何用户进行封锁、禁止、停用或其它歧视。保护德州人言论自由的权利。意味着间接宣布了“230条款”在德州无效。居民可以利用法律手段来保护自己。
 
-I just came home, just returned. It is true. I went to a few places. Oh my gosh, the muscles and bones of the U.S. have really been hurt by the virus. Yet, I can also tell that these people hate China and the CCP so much that some of them cannot differentiate Chinese from CCP by saying, “Chinese hurt us.” I said, “It is not Chinese. It is the CCP.” However, are you able to tell everyone who thinks like this?”
+**州长阿伯特指出该法案要点**
 
-共产党真的是把中国人置入到最危险的境界，最危险的境界，真的是很吓人，无论是医生还是护士，无论是所谓的科学家，还是所谓的生物学家，现在反正是对中国人不可能好感，想想没有新中国联邦，这个世界对中国人将有多么的危险，没有新中国联邦，中国人将是多可怕，在世界的环境，还跟着共产党瞎忽悠那，你有孩子吗？你想要未来吗？你以为地球就是你家的吗？全地球都恨你的时候，你怎么活？无知啊，可怕啊。
+德州州长格雷格‧阿伯特（Greg Abbott）称：它（新法案）禁止社交媒体公司对德州人的言论和观点进行审查。将给那些社交媒体账号被取消，审查，或完全封杀的德州人提供了法律依据来状告推特，脸书或任何其他的类似公司。
 
-The CCP indeed put Chinese into a most dangerous situation. It is really scary. Whether they are doctors or nurses, the so-called scientists or biologists, it’s not possible for them to have any good impression of Chinese now. Think about this. If the New Federal State of China (NFSC) did not exist, how dangerous the world would become for Chinese people? Without the support of the NFSC, how horrible the world would be for Chinese people? Under the world’s current situation, why are you still behaving like a blind fool? Do you have any children? Do you expect a future? Do you think the earth is exclusively yours? When everyone on the earth hates you, how can you still survive? Ignorant! Terrible!
+第一个喊出来媒体审查的是文贵先生，并告知人们只要你反共一定会封锁你的言论。闫博士在转载了一篇科学文献之后马上也被封账号，郭先生曾预言：川普和班农先生如有反共言论也将会遭遇封号。现在都被验证，从而证明了是中共在背后控制着美国的社交媒体平台，导致美国失去了言论自由。给全世界一个警示。
 
-刚才有战友说，七哥，世界上你说永远不变的事，太阳永远会升起，有的时候阴天就升不起，那是因为你站的地方不对，你要待在有阳光的地方，太阳每天都升起，不是太阳没升起来，是你没站对地方，这就像现在一样，你在中国共产党那里面，你就站错地方了，你就看不到太阳的升起，对吧，兄弟姐妹们？好好的，珍惜爆料革命、新中国联邦，给中国人打下的这一片美好的天空，珍惜吧，谢谢！
+**通过法案的意义**
 
-Just now, one of our fellow fighters said, “Brother Seven, you said that one thing never changing in the world is that the sun is always rising. Sometimes, the sun will not rise when it is a cloudy day.” This is because you are not standing at the right place. You need to stay in the place where there is sunlight. The sun rises everyday. It is not the case that the sun doesn’t rise. It is because you stand in a wrong place. Just like now, if you stand with the CCP, then you are in the wrong side. Therefore, you will never see the sun rising. Is this right, brothers and sisters? Please cherish the beautiful sky that our Whistleblower Movement and the NFSC have created for the Chinese people. Please cherish them! Thank you!
+因为媒体的影响力是大于政客的 ，美国是州法案大于联邦法案。共和党在美国控制了30个州多于民主党，只要有一个州通过法案其他州都会跟进。很多像Parler这样的媒体平台公司都将迁往德州。民主党如果不跟进将会导致大量的公司搬迁。这既是体现到美国联邦制的好处，不断的提高自我更新和自我优化体制。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+**揭露中共两个月的贸易顺差的谎言**
 
-视频来源：[https://gtv.org/getter/604be375607c4240c8b51ea2](https://gtv.org/getter/604be375607c4240c8b51ea2)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/971100/](https://gnews.org/zh-hans/971100/)
+随着中共造神运动的如火如荼，中共各部委都进入了大跃进2.0时代，利用高科技的数据更改在两会上歌功颂德，歌颂在习的领导下中共国是中美贸易大战中最大的赢家。
 
-* * *
+东协即东南亚国家联盟简称，是中共国最大出口地。从中共国公布的贸易数据中可看出有着大量的重复计算痕迹。基本是将出口产品先运往东南亚再转运欧美国家，报道中提出从东协进口了3463.7亿元，出口了高达4398.3亿元。然后这些国家大多为低端的制造业和农业国，不可能进口如此高额的商品。根据报道中数据显示东盟十国的GDP总额为3万亿不到，按中共公布的数据计算，对东协的出口都已经超过了这些国家的GDP总和，从而可以看出以假治国的中共国目前经济已经到了濒临崩溃的边缘。
 
-翻译：【7PawBear】校对：【Isaiah4031】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+**灭共重要行动已经全面开始**
+
+以班农先生和纳瓦罗先生等保守派为代表，现都在致力于推动平民主义运动，闫博士昨天与纳瓦罗先生同框出境并接受了班农先生的采访。他们在节目中明确的表述：中共病毒就是在中共军方策划的一场生物战。现在只要美国有一个州通过了新法案的认定就是扫清媒体障碍。媒体将会向全世界阐述病毒真相和病毒来源。中共即将灭亡，必死无疑。
+
+**疫苗产生的后果**
+
+据媒体报道：秘鲁一护士在接种了中共国的疫苗4天后被送进ICU，检查发现该名护士的肺部80%已被CCP病毒感染导致最终死亡。媒体曝光了秘鲁对中共疫苗的有效率进行了测试，结果仅有11.5%的作用。中共疫苗在秘鲁打死人后，当地媒体相继进行跟踪报道，导致中共使馆的公开威胁。
+
+中共推广使用的是灭活疫苗，美国公司推广的是mRNA疫苗。因为灭活程度很难把握，只要有%1的存在就会导致扩散，致死率和传播性也会不断提高，一旦病毒灭活不到位就会再现秘鲁护士的状况。
+
+文案：《路德社》简报组
+审核校对：路德社精选新闻专栏组
+上传排版：路德社精选新闻专栏组
 
 0

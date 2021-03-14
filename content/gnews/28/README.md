@@ -1,25 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳新关于香港选举改革的联合声明
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/976032/)
+## 母亲
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/976072/)
 
-俄罗斯莫斯科喀秋莎农场 银河
+俄罗斯莫斯科喀秋莎农场 小蚂蚁的自由
 
 编辑上传 水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/H-10.jpg)freeowl.com
-3月13日，澳大利亚外交部长玛丽丝·佩恩（Marise Payne）议员与新西兰外交部长、地方政府部长纳纳亚·马胡塔（Nanaia Mahuta）议员发表联合声明。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/O-1.png)俄罗斯莫斯科喀秋莎农场战友原创
+母亲
 
-澳大利亚和新西兰的政府，同G7同行一样，对3月11日中共全国人民代表大会通过的香港选举制度改革进一步损害权利和自由，以及根据《中英联合声明》在2047年之前中共对香港的高度自治予以保障，深感关切。
+您还在吗
 
-澳大利亚和新西兰一直希望香港取得成功，因为香港是重要的金融、贸易和海外社区枢纽。这取决于香港继续享有高度自治和尊重法治。
+听见我在喊您吗
 
-这些改变违背了香港行政长官普选的最终目标，削弱了香港的民主制度，并侵蚀了言论和结社自由——所有这些都是《基本法》规定的。这一重大步骤，将进一步破坏香港的自治。
+您在天堂
 
-我们敦促香港和中共政府恪守承诺，为香港市民提供真正参与管治的渠道，并保障立法会作为表达不同意见和审查政府论坛的角色。
+还好吗
 
-原文链接：
+母亲
 
-[https://www.foreignminister.gov.au/minister/marise-payne/media-release/joint-statement-electoral-changes-hong-kong](https://www.foreignminister.gov.au/minister/marise-payne/media-release/joint-statement-electoral-changes-hong-kong)
+我
+
+正在完成您的夙愿
+
+带领着许许多多
+
+有良知的
+
+英雄儿女
+
+在终结共产党的命运
+
+母亲
+
+我想您了
+
+您在天堂
+
+还好吗
+
+您看见了我们做的事情吗
+
+我们正在
+
+保护
+
+更多的母亲
+
+过正常母亲的日子
+
+没有任何人
+
+任何人
+
+可以把她们当作
+
+生育工具
+
+奴役她们
+
+剥削她们
+
+欺辱她们
+
+我们正在保护
+
+更多的杨改兰
+
+让她们有机会
+
+有能力
+
+好好地做母亲
+
+母亲
+
+我想您了
+
+愿您在天堂 一切安好
 
 0
