@@ -1,21 +1,88 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登总统的黑色眼睛引班农先生关注
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/975147/)
+## 亲爱的妈妈
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/975352/)
 
-撰稿&视频：一灯一智
+*作者：海阔天空｜审核/校对：文缺｜Page：拱卒*
 
-素材：白雪
-原视频来自WarRoom
-3月11日，也就是美国因COVID-19疫情封锁后的一周年纪念日，美国新任总统拜登举行了他担任总统后的首次公开演讲，他的黑色眼睛引起了班农先生和战斗室同僚的关注。与之不同的是，15年前拜登总统年轻时的照片眼睛显示为蓝色。班农先生猜测可能是整容或药物引起的。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Cover1-1.jpg)网络图片
-也有人猜测拜登总统可能因为健康原因佩戴了某种特殊的提词器，所以改变了眼睛的颜色。网上有类似的产品出售。
+[!\[\]()!\[\](https://spark.adobe.com/page/h7o9P9195v5vB/images/f4e106f5-c168-436d-9f3c-65d94ed53fe3.jpg?asset_id=a52fefba-4024-466b-b13f-846fa9e2ea70&amp;img_etag=%226e68add6edff1687a820d5ebc071a771%22&amp;size=2560)](https://spark.adobe.com/page/h7o9P9195v5vB/images/f4e106f5-c168-436d-9f3c-65d94ed53fe3.jpg?asset_id=a52fefba-4024-466b-b13f-846fa9e2ea70&amp;img_etag=%226e68add6edff1687a820d5ebc071a771%22&amp;size=1024)
 
-（字幕来自原视频，无个人观点添加，不代表Gnews立场）
+亲爱的妈妈，
 
-参考来源：
+小的时候，您是我的高山和大地
 
-[The BL对WarRoom新闻报道](https://thebl.tv/us-news/video-steve-bannon-and-war-room-shocked-at-joe-bidens-black-eyes-and-skin.html)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-澳喜Logo.jpeg)
+我对您是那么的依靠
+
+长大以后，您是我的家园和港湾
+
+我对您是那么的依恋
+
+您大海般的爱，滋养着我的每一个晨昏
+
+您太阳般的光，照亮着我的每一个黑夜
+
+亲爱的妈妈
+
+如今您已离我而去
+
+成为我心头最深的一根刺
+
+让我的心血流不止
+
+亲爱的妈妈
+
+请您原谅我
+
+原谅我不能朝夕相伴
+
+原谅我不能让您尽享天伦之乐
+
+原谅我让您担惊受怕
+
+原谅我让您牵肠挂肚
+
+原来我带给您的雨骤风狂
+
+亲爱的妈妈
+
+爱您，我更要爱世人
+
+为您，我更要为世人
+
+我发愿
+
+要让所有的妈妈都无忧、无惧
+
+我发誓
+
+要让所有的妈妈都幸福、平安
+
+我将把您对我的爱
+
+化为我的力量
+
+我将把我对您的爱
+
+化成我对所有妈妈的爱
+
+亲爱的妈妈
+
+在您跟前，我是永远的孩童
+
+在您离开我两年的日子里
+
+您是否会突然出现
+
+再看看这个早已泣不成声的小孩
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/h7o9P9195v5vB/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/h7o9P9195v5vB/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
 0

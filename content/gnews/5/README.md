@@ -1,74 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 一首献给妈妈的歌
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/975591/)
+## 做好Covid-19疫苗虚假副作用的准备
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/975880/)
 
-***加拿大多伦多枫叶农场 八百里连营***
+翻译：康州盘古农场 – TrueSky
+校对：康州盘古农场 – Mike Li
+编辑：康州盘古农场 – 轰炸机
 
-前言：这是笔者按照《草帽歌》改写的歌词，在这个特殊的日子里送给所有不能相见的妈妈…
-![]()![](https://gnews.org/wp-content/uploads/2021/03/bear.jpg)
-**新词 ** ** 原词**
-——————————————————————————————————
-妈妈 Ma Ma
-昨夜是你吗 do you remember
-你悄悄来到 The old straw hat
-我的梦里 you gave to me
-轻轻哼唱着 I lost that hat
-我的童谣 long ago
-让我安睡 Flew to
-在你怀抱 yeh… the foggy canyon yeh…
+据Science | AAAS网站 作家（药物学家）Derek Lowe 2020年12月4日报道：
 
-妈妈 Ma Ma
-昨夜是你吗？ I wonder
-你悄悄来到 What happened to
-我的梦里 that old straw hat
-轻抚我脸庞 Falling down
-你的气息  the mountain side
-伴我春夏 Out of my reach
-并秋霜 like your heart
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-14-at-23.29.56.png)
 
-噢，妈妈， Suddenly
-为何满眼忧伤 that wind came up
-你知道 Stealing
-我还流浪在远方 yeh… my hat from me yeh…
-回家路 Swirling
-凶险而又漫长 whirling gust of wind
-你怕我迷失了 Blowing it higher
-方向……. away
+Derek Lowe对药物发现和对制药业的评论，来自《科学转化医学》出版商的独立博客。所有内容都是Derek个人言论，他不以任何方式代表他的雇主。
 
-妈妈 Ma ma
-儿郎闯四方 that old straw hat
-思娘念断肠 was the only one
-万里遥遥啊 I really loved
-家在何方 But We lost it
-游子苦苦望 No one could bring it back
-伴你身旁 Like the life
-不只是梦乡…. you gave me.
+我们现在正处于疫苗终局的开端：监管部门的批准和实际分发/推广到人群中。辉瑞/德国生物科技公司和莫德纳疫苗的数据继续看好（这里有一份关于莫德纳那款疫苗后免疫反应寿命的新报告），J&J和Novavax的工作还有待报告。AZ/Oxford的候选者更多的是一个谜团，这要归功于他们临床工作的一些非常糟糕的沟通（本身就存在一些基本问题）。
 
-噢，妈妈， Suddenly
-不要忧伤 that wind came up
-你知道 Stealing
-我生命的怒放 yeh… my hat from me yeh…
-只为那 Swirling
-自由花香 whirling gust of wind
-能让它遍地 Blowing it higher
-芬芳……. away
+现在我们必须让人们接受它们。调查继续显示，有不少人（至少）属于“为什么不先服用”的类型。我倾向于认为，随着疫苗定量接种成为现实，会有更多的人排队打针，但这还有待观察。不过我想强调一些我们都需要牢记的事情。
 
-妈妈 Ma ma
-儿郎闯四方 that old straw hat
-天也苍苍 was the only one
-地也茫茫 I really loved
-定破万重浪 But We lost it
-披荆斩棘回身旁 No one could bring it back
-枕你臂弯 Like the life
-入梦乡…. you gave me.
+加州大学旧金山分校的鲍勃-瓦切特有一个非常好的推特，是关于疫苗推出的，以及疫苗的好处。我们正在谈论对非常多人口的治疗，这意味着你会看到通常的死亡率和发病率，你会看到整个大样本。具体来说，如果你取1000万人 ，只是正常接种新冠疫苗，那么在接下来的两个月，你会期望看到 约4000人心脏病发作。大约4,000人中风， 超过9000个新诊断的癌症。而在这1000万人中，大约有14000人将会死于平常的原因。反正没有人会注意到这就是多少人死亡和生病。
 
-枕你臂弯 Like the life
-入梦乡…. you gave me.
+但如果你把这一千万人接种新的疫苗，就会有一种真正的危险，即那些心脏病发作、癌症诊断和死亡都会归咎于疫苗。我的意思是，如果你达到了足够多的人数，你真的会有案例，有人得到疫苗，第二天就死了（就像他们没有得到疫苗一样）。不过，要说服那个人的朋友和亲戚相信这两者之间没有联系可能会很困难。后验法是人类逻辑中最强大的谬误之一，我们不会很快摆脱它。我想尤其是在疫苗问题上，我们能做的最好的事情就是尽量提前把消息传出去。让人们知道这样的事情是会发生的，因为这个世界上不断有人生病和死亡。关键是一旦接种疫苗后，他们生病或死亡的比例是否会明显提高。
 
-* * *
+第一批推出的疫苗（莫德纳和辉瑞/德国生物技术公司）没有出现这种安全信号。事实上，随着越来越多的人接种疫苗，我们应该看到对死亡率和发病率的影响正好相反。到目前为止，冠状病毒大流行中的巨大死亡数字已经令人震惊（在美国远远超过30万），我当然认为大规模接种疫苗是我们将其打回正常水平的最有力的方法。
 
-*发稿 文锦*
+不过，如果我们在打完疫苗后，有人因心脏病发作而摔倒，那就更难办了。要做好虚假疫苗副作用的准备。
 
-+1
+【轰炸机评论】：此文章虽然在数字方面对疫苗副作用统计数据有洗白的说法，但是本人认为，由于病毒本身“来源”世界上还未人尽皆知，病毒基因中是否还存在其它隐藏的攻击行为，是否会与疫苗的结合产出新的“东西”，这一切都在等英雄科学家们揭露，所以预防病毒，推迟打疫苗的计划是现阶段的上策。【评论仅代表个人观点】
+
+文章来源：https://blogs.sciencemag.org/pipeline/archives/2020/12/04/get-ready-for-false-side-effects
+
+0
