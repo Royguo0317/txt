@@ -1,96 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0313.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/972447/)
+## 【班农作战室】793-794-795期简讯
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/973959/)
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0313.jpeg)
+#### **翻译：七彩光**
 
+#### **编辑：文 泓**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/793-794-795.png)
+**图片来源：墨尔本雅典娜农场美工组（精灵蓝）**
 
-#### 向中共国追责
+**主持人：史蒂夫****.班农**
 
-3月13日弗罗里达众议员布莱恩-马斯特再次转发他在接受福克斯新闻采访时的谈话，他提到“停止向中（共）国支付债务直到他们就病毒的问题做出回答。”他表示，中共的问题涉及很多国家，但是“只有一个国家能够领导（带头）就冠状病毒向中共追责，这就是美国。没有其他哪个国家可以领导。”
+**嘉宾：****Maggie VandenBerghe, Jenny Beth Martin, Boris Epshteyn, Tom Del Beccaro, Tudor Dixon, Michael Yon, Ben Bergquam, Drew Hernandez, Jane Timken, Dennis Prager**
 
-议员先生的讲话让笔者仿佛看到当年正义附身血气方刚的美国回来了。
+#### **1、格雷琴·惠特默（州长）付钱让养老院收留新冠病毒测试为阳性的病人**
 
+《真实美国之声》主持人图多尔·迪克森(Tudor Dixon)报道了格雷琴·惠特默(Gretchen Whitmer)养老院的丑闻。不仅只是把新冠病毒测试为阳性的病人送进养老院，而且是惠特默付钱让他们去（这样）做的。（备注：格蕾琴·惠特默是美国政治家、民主党成员，自2019年以来一直担任密歇根州第49任州长，中共疫情爆发后，在密歇根州实施严格封锁政策）
 
+迪克森说，惠特默拒绝交出与她的养老院法令相关的文件，此番言行是“自以为是”和“傲慢”。 “你认为这意味着什么？” 迪克森问道：“是你化钱把（新冠病毒感染）病人送进养老院的。”
 
-> There’s only one country that can take the lead on holding China accountable for coronavirus and that’s the United States of America. [pic.twitter.com/bMKfrxWRtz](https://t.co/bMKfrxWRtz)
-> — Rep. Brian Mast (@RepBrianMast) [March 13, 2021](https://twitter.com/RepBrianMast/status/1370702429541441542?ref_src=twsrc%5Etfw)
+（惠特默）政策鼓励养老院收留那些甚至不（该成为）养老院（正常）居民的病人。迪克森举了一个例子，一家养老院收留了一名自闭症患者，结果他（她）殴打了一名(养老院)居民，后来这名居民死了。
 
+迪克森还讲述了她祖母在密歇根州一家养老院死亡的悲惨故事。
 
+“我们透过养老院的窗户看着我的祖母死去”，迪克森说：“她（惠特默）付钱给养老院，让他们把检测为新冠病毒感染为阳性的病人们带回（到养老院）。”“我的新冠病毒感染测试是阴性”，迪克森说：“（惠特默）不让我向祖母说再见。”
 
-3月12日，《福克斯朋友优先》推文引用布莱恩议员的话，“他们确实需要被追究责任。”@Brian Mast议员 告诉 #FoxFriendsFirst 美国应该扣留对中国的债务支付，直到COVID-19问题得到回答。议员先生称，我们需要向中共国追责，他们需要回答病毒是不是来源于武汉病毒实验室？那里发生了什么？他们掩盖了什么？他们和世卫组织掩盖了什么？
+#### 2、卡特尔们在拜登开放的边境以3200美金的价格贩卖儿童
 
+调查记者德鲁·埃尔南德斯(Drew Hernandez)揭露了边境地区不道德的贩卖走私人口活动。
 
+埃尔南德斯周五告诉《作战室》：“卡特尔们（意指有关垄断利益集团）正式告诉这些（从事人口贩卖的）人，‘如果你带来一个未成年人，我们会给你一个较低的价格3200美元，’”，“‘我们会给你（安排）安全通道’。”
 
-> “They do need to be held accountable”: [@RepBrianMast](https://twitter.com/RepBrianMast?ref_src=twsrc%5Etfw) tells [#FoxFriendsFirst](https://twitter.com/hashtag/FoxFriendsFirst?src=hash&amp;ref_src=twsrc%5Etfw) the U.S. should withhold debt payments to China until COVID-19 questions are answered.[https://t.co/OLiyRP3MuD](https://t.co/OLiyRP3MuD)
-> — Fox & Friends First (@FoxFriendsFirst) [March 12, 2021](https://twitter.com/FoxFriendsFirst/status/1370413052814897153?ref_src=twsrc%5Etfw)
+在走私贩卖儿童的基础上，“我们会将所有这些恋童癖者，强奸犯们和绑架者们（走私）投送到美国”，埃尔南德斯说：“这不是共和党的问题，也不是民主党的问题”，“这是一个邪恶的问题。”
 
+#### 3、“那只不过是一个敞开的大门”：拜登制造的边境危机已经失控
 
+《作战室》继续深入调查报道乔.拜登（制造）不断升级的边境危机。
 
+《真实美国之声》记者本‧伯格夸姆和奥斯卡·埃尔·布鲁（Oscar el.Blue）在尤马(Yuma)进行了现场报道，可以看到更多的非法移民直接走进美国，没有任何问题。(备注：尤马是亚利桑那州西南部的一座城市，位于希拉河与科罗拉多河汇合处以西，邻近加州和墨西哥边境)
 
+“这就是一个开放的大门”，奥斯卡说：“这是一个（非法移民）的热点地区，不幸的是（政府）当局不采取任何措施。它对（非法移民）是大门敞开的”，“这里有很多卡特尔在活动，存有很多非法活动。”他说。
 
-#### 我们的自由不由政府决定
+观察者可以看到四个男人正在跨越这个开放的边界。伯格夸姆和奥斯卡报道说，他们不会说西班牙语，似乎是中东后裔。
 
-3月12日前国务卿蓬佩奥先生就拜登在公开讲话时的言论表示抗议，拜登要求人们都去接种疫苗、从而在今年国庆节可以和家人邻居亲朋聚会聚餐。蓬佩奥先生称：“在7月4日，我们庆祝美国和我们的许多自由。自由其中之一就是，你可以决定是否你想和家人朋友在你自己的后院，而不是由政府决定。”
+“这是一场由美国政府制造的人道主义危机，”班农说。
 
+战地记者迈克尔-扬也在边境危机发生的巴拿马“前沿”进行了现场直播。
 
+“边境巡逻队很生气”，扬说：“他们说，拜登一上台，更多的非法移民就来了，现在已经无法控制，非法移民太多了。”除了中共病毒（的危害）外，扬也披露有关中共参与了破坏该地区稳定的情况。
 
-> On the 4th of July, we celebrate America and our many freedoms. One of those freedoms is that YOU get to decide if you want to have family and friends over in your own backyard, NOT the government. [https://t.co/xl1ovY9sef](https://t.co/xl1ovY9sef)
-> — Mike Pompeo (@mikepompeo) [March 12, 2021](https://twitter.com/mikepompeo/status/1370390033597935617?ref_src=twsrc%5Etfw)
+“所有中国（中共）在巴拿马做的事情令人难以置信”，他说：“这是在破坏中美洲的稳定，中共病毒，（以及）除了病毒之外，还有中共渗透参与的行动，你能想到他们之间的连带效应（及目的）”，“这不是什么好事”，扬说：“这是非常严重的事情，这不是开玩笑。这是在破坏美国正常移民（制度）的稳定。”
 
+**原文链接**
 
+[Gretchen Whitmer Paid Nursing Homes to Take Positive Covid Patients](https://pandemic.warroom.org/2021/03/12/gretchen-whitmer-paid-nursing-homes-to-take-positive-covid-patients/)
 
-#### 性贩运
+[Cartels Are Selling Children for $3,200 at Biden’s Open Border](https://pandemic.warroom.org/2021/03/12/cartels-are-selling-children-for-3200-at-bidens-open-border/)
 
-3月12日鲁迪-朱利安尼先生推文称：今天的节目揭露了美国黑暗的性交易黑幕。
-@BooyensJaco 解释了性贩运如何成为一种流行病，现在伴随着美国-墨西哥边境的疫情和危机，已经达到了前所未有的水平。
+[‘It’s Just an Open Gate’: Biden’s Border Crisis Spirals Out of Control](https://pandemic.warroom.org/2021/03/12/its-just-an-open-gate-bidens-border-crisis-spirals-out-of-control/)
 
-
-
-> 🚨 Today’s episode exposes the dark underworld of sex trafficking in the US. [@BooyensJaco](https://twitter.com/BooyensJaco?ref_src=twsrc%5Etfw) explains how sex trafficking has become an epidemic and now, with the pandemic and crisis at the US-Mexico border, has reached unprecedented levels.
-> 
-> Here: [https://t.co/APgb2Du8kc](https://t.co/APgb2Du8kc) [pic.twitter.com/5pMhlzSpXL](https://t.co/5pMhlzSpXL)
-> — Rudy W. Giuliani (@RudyGiuliani) [March 12, 2021](https://twitter.com/RudyGiuliani/status/1370454178838016006?ref_src=twsrc%5Etfw)
-
-
-[https://rumble.com/vekwsd-the-dark-underworld-of-sex-trafficking-in-the-u.s.-rudy-giuliani-and-jaco-b.html](https://rumble.com/vekwsd-the-dark-underworld-of-sex-trafficking-in-the-u.s.-rudy-giuliani-and-jaco-b.html)
-#### 中共病毒疫情的又一次生灾难
-
-据《Just The News》， 研究人员警告说，在冠状病毒大流行的过程中，口罩的大量使用可能会导致一场迫在眉睫的环境灾难，每分钟都有三百万个口罩被使用，其中许多口罩在使用过程中会污染当地的生态系统。
-
-[https://justthenews.com/politics-policy/coronavirus/3-million-masks-used-globally-every-minute-researchers-warn](https://justthenews.com/politics-policy/coronavirus/3-million-masks-used-globally-every-minute-researchers-warn)
-
-
-
-#### 史上最糟糕演说
-
-
-
-> "WORST. SPEECH. EVER." | [@gregkellyusa](https://twitter.com/gregkellyusa?ref_src=twsrc%5Etfw) tears through Biden's 'stupid, phony, typical-politician, and downright weird' national address. [https://t.co/3UPfQPlVZW](https://t.co/3UPfQPlVZW)
-> — Newsmax (@newsmax) [March 13, 2021](https://twitter.com/newsmax/status/1370547661036748807?ref_src=twsrc%5Etfw)
-
-
-
-12日Newsmax 主播 格雷格-凯里（Greg Kelly）对11日晚拜登的总统讲话讽刺挖苦得淋漓尽致，从拜登谈口罩、谈疫情、疫苗等问题一一回击、嘲讽，称他是“愚蠢、虚伪的典型政客, 彻头彻尾怪异，而对川普总统的支持溢于言表。
-
-
-
-（本文当日持续更新中）
-
-
-
-文章观点部分仅代表作者本人。
-
-
-
-编辑：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。
-
-
-
-+1
+0

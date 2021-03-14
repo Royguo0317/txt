@@ -1,25 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世界顶级疫苗专家紧急上书WHO呼吁停止COVID-19 疫苗接种
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/974660/)
+## 【热点播报】拜登签署新冠疫情纾困法案
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/974776/)
 
-素材&翻译：Jenny
+作者：纽约香草山 童谣
 
-视频&字幕：光耀华夏
-视频来自The Highwire
-3月11日，The Highwire网站报道，世界著名的疫苗专家吉尔特·范登·保茨（Geert Vanden Bossche）博士在本周进行了开创性的采访，他冒着个人声誉和职业生涯的风险上书WHO勇敢地表示反对COVID-19疫苗的使用，因为大规模疫苗接种是将导致免疫逃避机制出现，进而造成全球免疫灾难。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
-**评论：对于大多数读者来说“免疫逃逸（Immune Escape）”是一个全新的名词，面对世界顶级疫苗专家的大声疾呼，我们真的有必要做一点功课来了解一下疫苗对人体产生的影响将会有多大。**
 
-免疫逃逸是免疫抑制病原体通过其结构和非结构产物，抵抗、阻断和抑制机体的免疫应答。 病原体的免疫逃逸机制：1）抗原性的变化病原体的中和抗原，可经常地持续性地发生突变，逃逸已建立的抗感染免疫抗体的中和和阻断作用，导致感染的存在。2）持续性感染胞内病原体可隐匿于胞内呈休眠状态，逃避细胞免疫和体液免疫的攻击，长期存活，形成持续性感染。
 
-参考来源：
+美国总统拜登3月11日将他的1万9千亿美元的新冠疫情纾困方案签署成法。之前的一天，众议院以220票赞成、211票反对通过了这项法案。在过关之前，参议院对众议院之前通过的版本的某些方面做了修改。这些修改包括删除提高联邦最低工资标准的条款。
 
-1. [The Highwire的报道](https://thehighwire.com/videos/a-coming-covid-catastrophe/?fbclid=IwAR3lYOcqyUdZYuA1fnzJvAMCBe_7_WzxrnHlOo2t0qqUEDZV71S41bA3o6)
-2. [免疫逃逸\_百度百科](https://baike.baidu.com/item/%E5%85%8D%E7%96%AB%E9%80%83%E9%80%B8)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/117518792_gettyimages-1231326098.jpg)图片来源：BBC中文网
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-澳喜Logo.jpeg)
+民主党人拜登签署的这项法案没有任何共和党人投票支持。拜登在准备签署法案前说：“这项历史性的立法是要建造我国的脊梁，让我国的人民、劳动人民、中产阶级人士、那些建造了这个国家的人们能有获取成功的一线机会。”
 
+但是共和党议员反对表示，这项方案过于庞大，细节不够完善。在这种资金巨大但分配细节不清楚的情况下，极容易滋生出腐败和资金使用不透明的现象。而且该法案未能充分帮助那些最需要经济救助的人，纯粹属于大撒币的浪费。众议院少数党领袖麦卡锡称这部议案是“高成本、腐败和自由派”的象征。
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-2.jpg)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

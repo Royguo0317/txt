@@ -1,29 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共试图让国产疫苗成为进入中共国的门票
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/974260/)
+## 中共在建直升机基地威胁台湾
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/974310/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑  水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-14_06-51-41.jpg)[finance.yahoo.com](https://finance.yahoo.com/news/china-coronavirus-vaccine-diplomacy-already-132411428.html)
-路透社3月13日报道，中共外交部驻香港办公室表示，将简化已接种中共国产疫苗的外国人在香港办理中共国内地签证的申请流程。
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-14_07-08-15.jpg)[globalriskinsights.com](https://globalriskinsights.com/2016/04/taiwan-must-tread-lightly/)
+来自台湾新闻报道，一名台湾军事专家指出，新的卫星图像显示，中共正在福建省建造的直升机基地将可能威胁台湾。
 
-中共驻香港的外交专员办公室在周五的一份声明中说，简化的流程从周一开始生效，恢复了疫情前的申请要求，只对接种了中共生产的疫苗并取得了疫苗接种证书的申请人及其家人开放。
+台湾新闻网站引用了台湾军事专家何成辉(Ho Cheng-hui)分析。正在建造的直升机基地，可以视为是习近平“迫切希望解决台湾问题、扩大中共人民解放军(PLA)战斗力”的产物。这是中共对现有国际秩序的又一挑战，其目的是破坏美国岛链的第一防御，“甚至直接挑战美国军队”。
 
-声明称此举是“考虑到中共和其他国家之间的人文交流以有序的方式恢复。”声明没有说明为什么简化的程序没有扩展到那些接受其他国家中共病毒疫苗的人。
+援引自《台湾新闻》的报道，该基地的建设工作始于2019年7月，鉴于附近对台湾的战略位置，它可以改善中共陆军和海军的行动，并使监视台湾海峡变得更容易。基地预计可以支持无人机(UAV)的操作，从跑道、停机坪和直升机停机坪已经铺好并粉刷的事实来看，该基地“接近完工”。
 
-该声明称，已接种非中共疫苗的外国旅客将继续被要求提交核酸检测阴性和健康旅行申报表。这表明中共试图让国产疫苗成为进入中共国的门票
+军事专家何成辉表示，除了直升机，预计的跑道长度将足以让战斗机起飞，并在台湾西南部的水域和空域巡逻，甚至可以涵盖东沙群岛。他认为所有这些都是中共对台湾的威胁和迫使台湾“统一”施加的压力。
 
-目前尚不清楚简化的程序是否适用于在香港以外地区申请签证的外国人。
+台湾是美国与中共之间最大的“引爆点”。在美国外交关系委员会(Council on Foreign Relations) 1月份发布的年度预防优先事项调查(Preventive Priorities Survey)中，中共和美国之间因台湾问题而发生的严重危机首次升级为高危冲突。
 
-中共一直在开展疫苗外交以提升其在亚洲和世界各地的影响力，包括中共提出为今年东京奥运会和北京2022年冬奥会的参与者提供中共制造的疫苗。
-
-但中共的努力遇到了障碍，多国调查表示对中共疫苗的信任度较低，而中共疫苗的有效率也是各国疫苗中最低的。欧洲政界人士在欧盟药品监管机构批准之前更提出警告，指出不要使用这种药物。
+美前国家安全顾问麦克马斯特(H.R. McMaster)在回答参议院军事委员会(Senate Armed Services Committee)成员有关台湾可能发生军事冲突的问题时曾警告说，台湾面临的最大危险是从2022年开始，也就是北京冬奥会和中共二十大全国代表大会之后。美国驻亚太地区最高军事官员、海军上将菲利普·戴维森(Philip Davidson)周二表示，中共可能在未来6年内入侵台湾。
 
 参考链接：
 
-[https://www.reuters.com/article/health-coronavirus-hongkong-vaccine-idUSL1N2LB06A](https://www.reuters.com/article/health-coronavirus-hongkong-vaccine-idUSL1N2LB06A)
+[https://exbulletin.com/politics/792302/](https://exbulletin.com/politics/792302/)
 
 0
