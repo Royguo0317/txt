@@ -1,25 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世界顶级疫苗专家紧急上书WHO呼吁停止COVID-19 疫苗接种
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/974660/)
+## 中共病毒｜美前调查人员谈COVID-19 邪恶中共死期将至
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/974836/)
 
-素材&翻译：Jenny
+【日本东京方舟农场】作者：文柯Miles  素材整理：武汉老温 校对：文小律
 
-视频&字幕：光耀华夏
-视频来自The Highwire
-3月11日，The Highwire网站报道，世界著名的疫苗专家吉尔特·范登·保茨（Geert Vanden Bossche）博士在本周进行了开创性的采访，他冒着个人声誉和职业生涯的风险上书WHO勇敢地表示反对COVID-19疫苗的使用，因为大规模疫苗接种是将导致免疫逃避机制出现，进而造成全球免疫灾难。
+纽约邮报3月12日报道  美国前调查人员：COVID-19可能来自生物武器研究事故！
 
-**评论：对于大多数读者来说“免疫逃逸（Immune Escape）”是一个全新的名词，面对世界顶级疫苗专家的大声疾呼，我们真的有必要做一点功课来了解一下疫苗对人体产生的影响将会有多大。**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-91.jpg)大卫·阿舍尔（David Asher）
 
-免疫逃逸是免疫抑制病原体通过其结构和非结构产物，抵抗、阻断和抑制机体的免疫应答。 病原体的免疫逃逸机制：1）抗原性的变化病原体的中和抗原，可经常地持续性地发生突变，逃逸已建立的抗感染免疫抗体的中和和阻断作用，导致感染的存在。2）持续性感染胞内病原体可隐匿于胞内呈休眠状态，逃避细胞免疫和体液免疫的攻击，长期存活，形成持续性感染。
+哈德森研究所高级研究员的大卫·阿舍尔（David Asher）说：“武汉病毒学研究所不是国家卫生研究院，它是正在运行的一个秘密研究机构。就我个人来看，我认为那是一个生物武器计划。” 在过去的14个月中，中国共产党一直在进行大规模的掩饰。
 
-参考来源：
+“而且，就像我一样，如果您相信这可能是一种错误的武器，不是故意释放的，而是在研究之中，然后以某种方式泄漏的，那已经证明这是历史上最可怕的武器，”阿舍在接受采访时说。哈德森学院的小组讨论，COVID-19的起源：政策含义和对未来的启示。“它已经造成全球GDP15％到20％的损失，它杀死了全球数百万人，而中国人口几乎没有受到影响，他们的经济迅速回升到整个20国集团的第一位。”
 
-1. [The Highwire的报道](https://thehighwire.com/videos/a-coming-covid-catastrophe/?fbclid=IwAR3lYOcqyUdZYuA1fnzJvAMCBe_7_WzxrnHlOo2t0qqUEDZV71S41bA3o6)
-2. [免疫逃逸\_百度百科](https://baike.baidu.com/item/%E5%85%8D%E7%96%AB%E9%80%83%E9%80%B8)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-51-scaled.jpg)中国科学院武汉病毒研究所
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-澳喜Logo.jpeg)
+起初，中共表示COVID-19病毒起源于武汉海鲜市场的理论存在问题。它们说第一个病例与海鲜市场无关。去年秋天美国获得情报，情报显示几名武汉病毒实验室科学家爆发了流感症状，他们于2019年11月住院，当时中共尚未报告第一例病例。
 
+阿舍尔和哈德森研究所的其他专家小组成员说：“中共在2007年宣布，它们将开始使用有争议的“功能增强”研究，目的是更具致死性的基因生物武器研究。”
+
+当世卫组织2月派遣工作队前往武汉的时候，他们没有穿生物安全服，并且只在里面呆了3个小时。据报道，他们无法获得科学或数据性的充分证据，所以无法排除中共病毒是实验室来源的重大可能。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/5-29.jpg)迈克·蓬佩奥（Mike Pompeo ）与余茂春（Miles Yu）
+国务院中国问题专家余茂春（Miles Yu）说：“中国自2003年SARS爆发以来就一直从事这种病毒研究。”他与前国务卿迈克·蓬佩奥（Mike Pompeo ）合作撰写了《华尔街日报》最近的专栏文章。
+
+专栏文章开篇就说：“中国共产党痴迷于研究病毒，它们的科学家和军队声称在短短十年内发现了近2,000种新病毒！在过去的200年中，世界其他国家和地区总共才发现这个数量的病毒。更令人感到不安的是，中国共产党对生物安全的疏忽。武汉爆发的新型冠状病毒证明了世界卫生安全领域的代价和风险是巨大的。我们不能允许这种情况继续发生，如果中国共产党不遵守包括基本透明性要求在内的全球生物安全标准，世界就必须对中国共产党追责，并对中共进行制裁。”
+
+注：本文仅代表作者观点
+
+参考链接：
+
+1.[https://nypost.com/2021/03/12/former-us-investigator-covid-19-may-have-come-from-bioweapons-research-accident/?utm\_source=NYPTwitter&utm\_medium=SocialFlow&utm\_campaign=SocialFlow](https://nypost.com/2021/03/12/former-us-investigator-covid-19-may-have-come-from-bioweapons-research-accident/?utm_source=NYPTwitter&amp;utm_medium=SocialFlow&amp;utm_campaign=SocialFlow)
+
+2.[https://www.wsj.com/articles/chinas-reckless-labs-put-the-world-at-risk-11614102828](https://www.wsj.com/articles/chinas-reckless-labs-put-the-world-at-risk-11614102828)
 
 0

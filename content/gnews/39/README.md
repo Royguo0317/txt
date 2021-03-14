@@ -1,29 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共试图让国产疫苗成为进入中共国的门票
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/974260/)
+## 麦卡锡评拜登“试图抹黑川普”而不“谴责中共”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/974336/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑  水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-14_06-51-41.jpg)[finance.yahoo.com](https://finance.yahoo.com/news/china-coronavirus-vaccine-diplomacy-already-132411428.html)
-路透社3月13日报道，中共外交部驻香港办公室表示，将简化已接种中共国产疫苗的外国人在香港办理中共国内地签证的申请流程。
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-14_07-24-42.jpg)[losangeles.cbslocal.com](https://losangeles.cbslocal.com/2014/06/19/gop-rep-mccarthy-elected-house-majority-leader/)
+布赖特巴特新闻(Breitbart News)报道，众议院少数党领袖凯文·麦卡锡(Kevin McCarthy)在福克斯节目中批评了乔·拜登总统周四的中共病毒演讲，称“他没有谴责中共，而是试图抹黑极速行动。”
 
-中共驻香港的外交专员办公室在周五的一份声明中说，简化的流程从周一开始生效，恢复了疫情前的申请要求，只对接种了中共生产的疫苗并取得了疫苗接种证书的申请人及其家人开放。
+拜登在中共病毒演讲中省略了“中共”和“极速行动”，在整个演讲中，拜登谈到了甲型流感病毒对美国和美国经济的影响，以及疫苗开发的情况，他甚至宣布，所有成年人将在5月1日前获得接种疫苗的资格。然而，他在关于疫苗的讲话中明显没有提到“极速行动”(Operation Warp Speed)，这是川普政府旨在加速疫苗研发和分发的大规模行动。拜登的疫苗分发计划很大程度上依赖于川普政府所建立的系统，然而拜登却试图抹黑“极速行动”，称在疫苗接种问题上川普留下了“烂摊子”，拜登甚至没有提及川普在官方正式宣布中共出现疫情前几周对中共实施的旅行禁令。
 
-声明称此举是“考虑到中共和其他国家之间的人文交流以有序的方式恢复。”声明没有说明为什么简化的程序没有扩展到那些接受其他国家中共病毒疫苗的人。
+拜登也没有提及“中共”、 “武汉”等字眼，忽视了中共在全球疫情传播中发挥的负面作用。拜登在演讲中也没有提到“封锁”，而是使用了“集体痛苦”和“集体牺牲”的措辞。
 
-该声明称，已接种非中共疫苗的外国旅客将继续被要求提交核酸检测阴性和健康旅行申报表。这表明中共试图让国产疫苗成为进入中共国的门票
+在周五的白宫新闻发布会上，白宫发言人被质疑为什么无视川普政府的“极速行动”，因为疫苗是在川普政府的“极速行动”下迅速开发的，川普总统应该得到认可和赞誉。
 
-目前尚不清楚简化的程序是否适用于在香港以外地区申请签证的外国人。
+白宫中共病毒疫情应对团队高级顾问安迪·斯拉维特（Andy Slavitt）称赞川普政府的“极速行动”在创纪录的时间内完成了疫苗的研发和推广，并对川普总统及其政府的出色工作表示感谢。
 
-中共一直在开展疫苗外交以提升其在亚洲和世界各地的影响力，包括中共提出为今年东京奥运会和北京2022年冬奥会的参与者提供中共制造的疫苗。
+前川普总统通过电子邮件发布了一项声明指出，“我希望每个人在获得中共病毒疫苗时都记得，如果那时我不是总统，那么您可能5年内都不会得到 ‘接种’，而且可能根本就不会得到它。”川普在声明中强调，希望每个人都记得他的努力。
 
-但中共的努力遇到了障碍，多国调查表示对中共疫苗的信任度较低，而中共疫苗的有效率也是各国疫苗中最低的。欧洲政界人士在欧盟药品监管机构批准之前更提出警告，指出不要使用这种药物。
+据报道，截至川普政府执政的最后一天，超过150万美国人接种了中共病毒疫苗。
 
 参考链接：
 
-[https://www.reuters.com/article/health-coronavirus-hongkong-vaccine-idUSL1N2LB06A](https://www.reuters.com/article/health-coronavirus-hongkong-vaccine-idUSL1N2LB06A)
+[https://www.breitbart.com/politics/2021/03/12/biden-omits-china-operation-warp-speed-from-coronavirus-address/](https://www.breitbart.com/politics/2021/03/12/biden-omits-china-operation-warp-speed-from-coronavirus-address/)
+
+[https://www.breitbart.com/clips/2021/03/12/mccarthy-biden-tried-to-discredit-operation-warp-speed-instead-of-denouncing-china/](https://www.breitbart.com/clips/2021/03/12/mccarthy-biden-tried-to-discredit-operation-warp-speed-instead-of-denouncing-china/)
 
 0

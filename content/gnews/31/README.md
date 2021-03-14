@@ -1,31 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 麦卡锡评拜登“试图抹黑川普”而不“谴责中共”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/974336/)
+## 【信仰之声】末世必有危险到来
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/974452/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：纽约香草山福音部 捆绑ccp一千年
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-14_07-24-42.jpg)[losangeles.cbslocal.com](https://losangeles.cbslocal.com/2014/06/19/gop-rep-mccarthy-elected-house-majority-leader/)
-布赖特巴特新闻(Breitbart News)报道，众议院少数党领袖凯文·麦卡锡(Kevin McCarthy)在福克斯节目中批评了乔·拜登总统周四的中共病毒演讲，称“他没有谴责中共，而是试图抹黑极速行动。”
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2020-10-24-at-04.33.05-1.jpeg)
 
-拜登在中共病毒演讲中省略了“中共”和“极速行动”，在整个演讲中，拜登谈到了甲型流感病毒对美国和美国经济的影响，以及疫苗开发的情况，他甚至宣布，所有成年人将在5月1日前获得接种疫苗的资格。然而，他在关于疫苗的讲话中明显没有提到“极速行动”(Operation Warp Speed)，这是川普政府旨在加速疫苗研发和分发的大规模行动。拜登的疫苗分发计划很大程度上依赖于川普政府所建立的系统，然而拜登却试图抹黑“极速行动”，称在疫苗接种问题上川普留下了“烂摊子”，拜登甚至没有提及川普在官方正式宣布中共出现疫情前几周对中共实施的旅行禁令。
 
-拜登也没有提及“中共”、 “武汉”等字眼，忽视了中共在全球疫情传播中发挥的负面作用。拜登在演讲中也没有提到“封锁”，而是使用了“集体痛苦”和“集体牺牲”的措辞。
 
-在周五的白宫新闻发布会上，白宫发言人被质疑为什么无视川普政府的“极速行动”，因为疫苗是在川普政府的“极速行动”下迅速开发的，川普总统应该得到认可和赞誉。
+你该知道，末世必有危险的日子来到。（提摩太后书 3:1）
 
-白宫中共病毒疫情应对团队高级顾问安迪·斯拉维特（Andy Slavitt）称赞川普政府的“极速行动”在创纪录的时间内完成了疫苗的研发和推广，并对川普总统及其政府的出色工作表示感谢。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/prayer-pxfuel-860-1585065326817.jpg)
 
-前川普总统通过电子邮件发布了一项声明指出，“我希望每个人在获得中共病毒疫苗时都记得，如果那时我不是总统，那么您可能5年内都不会得到 ‘接种’，而且可能根本就不会得到它。”川普在声明中强调，希望每个人都记得他的努力。
+保罗所讲到的危险有哪些呢？他说：“因为那时人要专顾自己、贪爱钱财、自夸、狂傲、谤讟、违背父母、忘恩负义、心不圣洁、无亲情、不解怨、好说谗言、不能自约、性情凶暴、不爱良善、卖主卖友、任意妄为、自高自大、爱宴乐、不爱神”（提后3::2—4）。
 
-据报道，截至川普政府执政的最后一天，超过150万美国人接种了中共病毒疫苗。
+这些罪状，今天的人们哪一样没有呢？看看中共撒旦政权制造的灾祸。混淆真理，播种仇恨，带来杀戮。如今不仅如此，还要加上瘟疫的危险，全地都陷入中共威权的铁幕下，备感窒息。未来，或者即将到来的还有战争的危险，因为中共反人类的罪恶达到上帝的宝座前了（参 约拿书 1:2）。
 
-参考链接：
+当人的行为严重违背神的圣洁公义时，人当受神公义的管教。神的儿女们呐！我们当警醒，横切祷告。当大能的神拔出中共毒瘤的时候，世界将恢复神应许给人的正常秩序，福音会再次在全地迎来更大的复兴。
 
-[https://www.breitbart.com/politics/2021/03/12/biden-omits-china-operation-warp-speed-from-coronavirus-address/](https://www.breitbart.com/politics/2021/03/12/biden-omits-china-operation-warp-speed-from-coronavirus-address/)
+校对/发稿：飞虹
 
-[https://www.breitbart.com/clips/2021/03/12/mccarthy-biden-tried-to-discredit-operation-warp-speed-instead-of-denouncing-china/](https://www.breitbart.com/clips/2021/03/12/mccarthy-biden-tried-to-discredit-operation-warp-speed-instead-of-denouncing-china/)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M3.jpg)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0
