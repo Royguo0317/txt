@@ -1,94 +1,107 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 曾经的星空卫视(Star TV)和它背后的媒体大佬
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/974449/)
+## 福奇与中共
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/974532/)
 
-加拿大多伦多枫叶农场 文永
+翻译：烟波浩淼
+校对：雨山溪桥客
+审核：V
 
-STAR TV是1990年于香港注册成立的卫星电视公司，通过亚洲一号卫星向香港，东南亚和中东广播电视信号。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/15-4.jpg)
-记得第一次看到Star TV（星空卫视）的节目，被深深地震惊了。当时的香港，代表着繁荣和文明。在大陆人眼中，那是个可望而不可即的世界。
+上周，安东尼·福奇(Anthony Fauci)博士与一位中国共产党的“健康专家”一起开了视频会议，西方媒体基本上没有作任何报道。然而，中共国官媒却意犹未尽，因为福奇为中共政权带来了一场对美国的舆论攻击。无数的国家媒体和中共官员赞扬了联合小组成员在活动期间分享了无休止的反美宣传，包括要求更具破坏性的严厉限制，以“抗击” 中共病毒。
 
-对于当时一个生长在国内某小城的孩子来说，Star TV中的世界与我看到的现实世界 — 农田、牛马、拖拉机、灰蒙蒙的田地和砖房 – 它们之间的对比是那么强烈，以至于当时很难想象，电视里的世界是真实存在的。
+钟南山博士是中共国国家卫生委员会的顶级“专家”，被称为“中共国的福奇”，他上周在Zoom上与美国国立过敏与传染病研究所的负责人福奇召开了一个讨论会。两人在爱丁堡大学举办的网络研讨会上讨论了中共病毒政策，该研讨会还邀请了盖茨基金会和世界卫生组织的“专家”。
 
-Star TV中的鲜明的颜色，镜头中透出的那种清澈，让我对外面的世界产生强烈的好奇。也正是这样的好奇，促使我去探索外面的世界。可以说，Star TV的节目，对我的人生有很大影响。相信很多战友也有类似的感受。
+钟南山在评论中抨击了川普政府和整个美国，但赞扬拜登政府重新加入世界卫生组织。这名中共国官员分享了有关中共国对中共病毒的反应和统计数据的虚假信息，并声称中共国对武汉的残酷封锁导致中共国赢得了与中共病毒的战斗。
 
-几十年以后的今天，当爆料革命到了第四个年头时候，我也持着一份怀旧的心，重新来看一下Star TV背后的故事，以及它是如何逐步被中共蚕食的。
+作为一名忠诚的中共党员，钟南山滔滔不绝地给出虚假信息，因为封锁在任何地方都不起作用，而且几乎在世界上每个国家都进行过，没有明显的积极效果。
 
-下图显示了Star TV的主要关系图。1990年，李嘉诚创办Star TV，并于1993-1995年间卖给国际媒体大佬默多克(Rupert Murdoch)。1996年，Star TV与中共央视合资创办凤凰卫视，为Star TV提供中文节目。在2010-2014年间，华人文化产业投资基金买入Star TV在中国大陆的全部资产，从此Star TV全面退出大陆业务。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/11-6.jpg)图1， STAR TV和主要控股人关系图
-根据维基百科显示，STAR TV由李嘉诚的和记黄埔公司在1990年左右创立，由李嘉诚的儿子李泽楷经营管理，后来在1993-1995年间被媒体大佬默多克控制的News Corporation斥资8.2亿美金买下[\[1\]](https://en.wikipedia.org/wiki/Fox_Networks_Group_Asia_Pacific)。
+钟南山继续播放幻灯片，显示美国的中共病毒反应是世界上最差的，而中共国的反应是世界上最好的，他再次将其归因于武汉的封锁。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-50.png)
+钟南山在结束发言时敦促其他国家暂时不要开放经济，也许要等到全世界接种疫苗，这需要几年时间。他还毫无根据地宣称疫苗免疫优于自然免疫，他错误地称之为“不太科学”。与此同时，中共国的经济和社会，包括大部分未接种疫苗的人口，从2020年3月开始开放。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2-11.png)
+福奇赞同钟教授的评论，他说他“将强调钟教授所说的一切”。这位所谓的公共卫生专家补充说，他希望“有一个多年的承诺，这就是让世界上每个人都能基本上获得优质的医疗保健，因此使健康在许多方面真正成为一项人权。”
 
-了解爆料革命的战友们都知道，李嘉诚的成功其实是中共在背后支持。当然我们不确定中共在什么时候开始与李嘉诚合作，所以这里不再深入挖掘。有一点是肯定的，创办一个卫星电视公司，需要申请牌照、租用卫星、节目制作、建立上行信号发射站等等大资本运作，肯定是有李嘉诚这种大背景的人在背后运作的结果。
+福奇接受了中共国的宣传，强调武汉式的封锁对“压制”病毒的重要性。
 
-国际媒体大佬默多克，本来是澳大利亚人，后来在加入美国国籍后，为了满足美国法律对电视台所有者国籍的要求，主动放弃了澳洲国籍。
+福奇说：“为了强调我们俩都说过的话，如果我们不完全抑制这个，我们将继续受到变种病毒的挑战，这些变种病毒有可能会回来咬我们。”。
 
-默多克控制的大大小小的报纸和媒体公司曾经数以千计[\[2\]](https://www.aljazeera.com/opinions/2015/12/15/who-bought-the-south-china-morning-post/)，其中最大的就是News Corporation 。该公司在2013年拆分为两家公司：News Corp 和21世纪福克斯公司，也就是著名的福克斯新闻的母公司。
+他补充说：“在过去，我们通过天花、脊髓灰质炎和麻疹的全球合作，取得了成功。世界上没有理由不通过合作性的公共卫生措施和科学的应用结合起来，在中共病毒方面做同样的事情。”
 
-在这里我们列出众多默多克控制的媒体中，和爆料革命相关的一些媒体：
+大家可以在这里看他们讨论的完整视频：
 
-默多克控制的News Corporation在2007年斥资50亿美金，拿下道琼斯公司，包括旗下大名鼎鼎的《华尔街时报》[\[3\]](http://]%20https://en.wikipedia.org/wiki/Dow_Jones_%26_Company)。在2017年郭文贵先生出来爆料以后，受到《华尔街时报》的负面报道，大家就知道，这是它背后的力量在行动。
 
-默多克曾经控制的另一个媒体，是著名的中共大外宣《南华早报》。该报最早也是由默多克的News Corporation控制，后来在1993年以3.5亿美金价格，卖给马来西亚华人郭鹤年 [\[4\]](http://[4]%20https://en.wikipedia.org/wiki/South_China_Morning_Post#SCMP_Group)。到了2016年4月，《南华早报》被阿里巴巴集团以2.66亿美金买下[\[5\]](https://www.aljazeera.com/opinions/2015/12/15/who-bought-the-south-china-morning-post/)，从此彻底沦为中共的大外宣。
 
-另外值得一提的是，默多克在1976年买下《纽约邮报》[\[6\]](https://en.wikipedia.org/wiki/New_York_Post)。别忘了《纽约邮报》在2020年大选期间，连出几篇关于拜登硬盘门的报道，但是后来忽然停止继续深入报道，据说是默多克拿了中共的钱（路德直播中提到，暂时找不到链接，欢迎战友提供信息）。默多克的这一做法也算是川普、拜登两边押宝，同时还能从中共那里拿到一笔钱。
+福奇的出现受到中共国官方媒体和中共官员的无限称赞。以下是一个例子，中共官员对福奇和钟南山小组的回应。
 
-福克斯公司也是默多克的重要资产。福克斯公司从2017年开始，把一部分资产卖给了迪士尼，其他部分租给迪士尼使用[\[7\]](http://]%20https://en.wikipedia.org/wiki/Fox_Corporation)。我们知道，迪士尼公司也是反川普势力的控制范围，所以到了大选后期，连福克斯新闻也开始反川普，也就不足为奇了。
 
-中共一贯注重宣传，自然也深知新闻和媒体在超限战中的关键作用，所以它一直在试图通过多个方面来影响默多克，而这其中的关键人之一就是邓文迪。说到邓文迪，很多人会惊讶于她的“传奇”经历。而实际上，如果把邓文迪看作是中共培养的海外暗线，那么她的经历似乎也就很稀松平常了。
 
-根据维基百科，邓文迪与默多克于1999年结婚，到2013年离婚。在此期间，邓文迪是中共和默多克之间沟通的渠道[\[8\]](https://www.wsj.com/articles/SB973040597961471219)。
+> Prof. Zhong Nanshan, the leading [#Chinese](https://twitter.com/hashtag/Chinese?src=hash&amp;ref_src=twsrc%5Etfw) respiratory disease expert, & Dr. Anthony Fauci, the top [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw) infectious disease expert, met via video link to exchange views on [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) control ystd(2/3) evening. A right way for the two countries to work together in defeating the virus. [pic.twitter.com/LxJppoGYQ1](https://t.co/LxJppoGYQ1)
+> — Ambassador Deng Xijun (@China2ASEAN) [March 3, 2021](https://twitter.com/China2ASEAN/status/1366922559837511683?ref_src=twsrc%5Etfw)
 
-路德社2020年6月19日直播中，在讲到江家和杨洁篪在海外的影响力时提到 [\[9\]【6/19/2020 路德时评：芝加哥发现独有的病毒毒株与武汉早期病毒一致意味着什么？ 1:19:50】](https://www.youtube.com/watch?v=bWEJmZ7OvNE)：
 
-“很多人说，杨洁篪有这么大力量？你还真别说… 在外交上，杨洁篪的影响力大了去了。他主要是手上有秘密渠道。说不定谁谁身边睡的人，就像以前邓文迪一样，两个电话过去…（问题就解决了），（杨洁篪）他有这个能耐。 ”
+邓锡军大使 @ China2ASEAN
+中共政府官员
+ 中共国著名的呼吸道疾病专家钟南山教授和 #美国顶级传染病专家安东尼·福奇博士通过视频连线见面，昨天（2/3）晚上就中共病毒控制交换了意见。 这是两国共同努力战胜病毒的正确方法。
 
-由此可以看到，邓文迪应该就是江家、杨洁篪在海外的一条暗线。而这样一条暗线安排在默多克身边，可以影响很多媒体的风向。
 
-这一点在路德在2020年8月22日直播中得以证实。在讲到运作遣返郭文贵先生的背后几股力量时，路德提到邓文迪和默多克就是其中的一股力量[\[10\]【8/22/2020 路德时评（路博艾谈）：司法部的文件只是显示了一股游说川普遣返文贵先生的力量，除此之外同时进行的还有哪些? 56:30】](https://www.youtube.com/watch?v=weSqH7M2zIg)：
+> When Dr. Zhong Nanshan meets Dr. Fauci. Their consensus: solidarity and cooperation against [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw).[https://t.co/aoIdCR9Cd0](https://t.co/aoIdCR9Cd0) [pic.twitter.com/4tKGdaQNgY](https://t.co/4tKGdaQNgY)
+> — Hua Chunying 华春莹 (@SpokespersonCHN) [March 3, 2021](https://twitter.com/SpokespersonCHN/status/1366966329647882241?ref_src=twsrc%5Etfw)
 
-“再告诉大家，这个（遣返运作）是小默多克、邓文迪全面参与。《华尔街日报》的几篇报道，都是他们幕后指使做出来的。就是《华尔街日报》一系列对（郭先生）抹黑造谣这些（文章）都是（他们运作的）”
 
-另外值得一提的是，邓文迪与默多克离婚后，在2016年左右，媒体爆出她正在与普京交往[\[11\]](http://]%20https://www.dailymail.co.uk/news/article-3520389/Wendi-Deng-frolics-waves-St-Barts-claims-s-relationship-Russian-leader-Vladimir-Putin.html)。这个… 战友们就懂了。
+华春莹 @SpokespersonCHN 
+中国政府官员 
+钟南山博士与福奇博士会面， 他们的共识是：在抗击中共病毒方面的团结与合作。
 
-讲完默多克，我们把话题拉回到STAR TV。默多克在1993年买下STAR TV以后，一直通过News Corporation公司来运营它。当时Star TV设有Star Chinese中文台，MTV音乐台，BBC新闻台等几个频道。
 
-默多克在刚开始进入卫星电视领域时，和中共曾经有过一阵冲突（至少表面上看来是这样的）。但是默多克后来开始慢慢修复与中共的关系，并且把BBC台从STAR TV节目单中拿掉（当时BBC的态度还是反共的）。这一做法在当时引发巨大争议，而默多克坚持说，拿掉BBC是出于商业考虑，与政治无关[\[12\]](https://www.upi.com/Archives/1994/03/22/Murdochs-STAR-TV-to-drop-BBC/9394764312400/) … 这个，大家都懂的。
+> Leading Chinese respiratory disease expert Zhong Nanshan, top U.S. infectious disease specialist Anthony Fauci call for more efforts to enhance global solidarity and cooperation to beat the deadly [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/TA52T239D2](https://t.co/TA52T239D2) [pic.twitter.com/F79DG9AAf7](https://t.co/F79DG9AAf7)
+> — China Xinhua News (@XHNews) [March 4, 2021](https://twitter.com/XHNews/status/1367363811892633609?ref_src=twsrc%5Etfw)
 
-到了1996年左右，STAR TV和中共的央视以及另外一家中共国企业，合资建立凤凰卫视。从此，凤凰卫视中文台取代了原来的Star Chinese中文台[\[13\]](https://en.wikipedia.org/wiki/Phoenix_Television)，成为Star TV的唯一的中文新闻时政类节目频道。可以说，从这时候开始，STAR TV的中文节目已经成了大外宣的一部分。
 
-根据百度百科显示，凤凰卫视的CEO是刘长乐，他于1951年出生于上海，1980年从北京广播学院毕业后，进入中央人民广播电台工作多年[\[14\]](https://baike.baidu.com/item/%E5%88%98%E9%95%BF%E4%B9%90/1634979)，可以看出他应该是体制内的老手。
+新华通讯社新闻@XHNews 
+中共国国有媒体 
+中共国负责的呼吸道疾病专家钟南山，美国顶级传染病专家安东尼·福奇呼吁为加强全球团结与合作做出更多努力，以战胜致命的＃冠状病毒 [xhtxs.cn/BvINBv](http://xhtxs.cn/BvINBv)
 
-郭文贵先生在直播中也多次点名刘长乐。其中在2017年9月15日直播中讲到[\[15\]：](https://s.vog.media/Detail.htm?w=e21ef31b-5e6e-4460-9d48-9084e9b4e76f)
-“大家可以查一查，凤凰卫视刘长乐先生和孟建柱、孙立军的关系。大家就能看得出来，过去，这几年报道孟建柱出访，和所有公安部新闻的最多的频道：凤凰卫视。刘长乐得了癌症，住院、做手术，孟建柱亲自探访。仅仅是因为凤凰是安全部的企业吗？安全部有几千家企业，仅仅是因为刘长乐是凤凰的董事长吗？不是的，他不仅仅是一个间谍特务头子，他很少的股份，他的女儿点点滴滴持有一点股份。那么凤凰是绝对的安全部企业。绝大多数（是）情报工作者”
 
-另外在2018年12月9日讲到张首晟的时候说到[\[16\]](https://s.vog.media/Detail.htm?w=c2053b9f-90cc-4575-8184-7053aa8a02df)：
+> What are the lessons we can learn from the pandemic?
+> Dr. Fauci and Dr. Zhong Nanshan speak about the need for international cooperation, strategy, and honesty from leaders in public health emergencies. [pic.twitter.com/aR1KiDRwPM](https://t.co/aR1KiDRwPM)
+> — CGTN America (@cgtnamerica) [March 3, 2021](https://twitter.com/cgtnamerica/status/1367233410754838528?ref_src=twsrc%5Etfw)
 
-“（和张首晟）第二次见面，就是北京内部颁发，就是曾经要给我发一等功的时候，张首晟先生当时也要在钓鱼台国宾馆接受国家一等功。我在以前的视频说过，我拒绝了，我不去，两次约我都没去。当时谁发？习近平副主席。让我震惊的事情，那次党政军、政法、安全、情报机构全面出席。
 
-第一个被颁发的是谁知道吗？刘长乐，凤凰卫视；
-第二个被发的是什么？杰克马 （指马云）
-第三位发的是马化腾
-第四个就是任正非；
-第五个就是张首晟。
-30个人都是国家功臣，秘密颁发国家一等功。”
+CGTN美国@cgtnamerica 
+中共国有媒体
+ 我们可以从大流行中得到什么教训？福奇博士和钟南山博士谈到了在公共卫生突发紧急情况下，领导者之间的国际合作，战略和诚实的必要性。
 
-所以我们看到，凤凰卫视不是简单的一个中文电视台，而是中共设立的一个情报机构。而刘长乐，应该就是体制内安排在香港的情报大佬之一了。
 
-时间推进到2010年8月，STAR TV宣布把中国大陆的资产卖给华人文化产业投资基金(China Media Capital， CMC)[\[17\]](https://en.wikipedia.org/wiki/Star_China_Media)。而四年以后，CMC已经买下福克斯旗下的STAR TV在大陆资产的全部股权。
+> When Dr. Zhong Nanshan meets Dr. Fauci. Their consensus: solidarity and cooperation against [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/ry55dToXMy](https://t.co/ry55dToXMy)
+> — China Economy (@CE\_ChinaEconomy) [March 3, 2021](https://twitter.com/CE_ChinaEconomy/status/1366972854227492866?ref_src=twsrc%5Etfw)
 
-这个华人文化产业投资基金(China Media Capital， CMC)也是个中共背景的基金，其董事长是黎瑞刚。关于黎瑞刚，郭先生在2018年9月5日直播中提到过[\[18\]](https://s.vog.media/Detail.htm?w=5d68cb8d-8d09-45d3-8a2d-4fc4809520d6):
-“… 财新的胡舒立，这个女人，这个胡舒立太坏了，… 只要胡舒立出现你就知道，行了，王岐山出手了、孟建柱出手了… 胡舒立的老板是谁呀？是黎瑞刚，黎瑞刚的老板是谁呀？在上海，上海又是谁呀？马云，又是江家，你说你怎么折腾得了？”
-所以黎瑞刚实际上是江家的人，也就是说，其实最后是江家出手，把默多克的STAR TV中国资产买走了。我们知道，通常中共用的这种买断手法，实际上背后就是利益输送，或者说变相送钱过去。而此次收购的出价没有公布，这更加让人觉得，其中应该很有猫腻。
 
-值得一提的是，根据百度百科显示，黎瑞刚从2016年10月开始，担任香港TVB的董事[\[19\]](https://baike.baidu.com/item/%E9%BB%8E%E7%91%9E%E5%88%9A)，可见中共在香港媒体渗透范围已经到了各个角落。
-这次交易完成以后，STAR TV完全退出大陆业务。
+中共国经济@CE\_ChinaEconomy
+中共国有媒体
+钟南山博士与福奇博士会面时。 他们的共识是：团结与合作应对＃COVID19。
+上周，福奇和他的副手在中共国武汉爆发中共病毒早期，就中共病毒消息与中共国政府直接协调。透明监察组织《司法观察》（Justicial Watch）发布了通过《信息自由法》（Freedom of Information Act，FOIA）获得的新政府电子邮件，显示美国政府卫生机构已签署了中共国共产党官员要求的与中共病毒有关的保密协议。
 
-小结：STAR TV从最初由和记黄埔公司创立，经过十几年运营，到后来全面退出大陆业务，整个过程中都可以看到中共的影子。爆料革命提供的一些关键线索，让我们能够把看似分散的信息拼成一幅完整的中共在香港媒体领域渗透的地图。
 
-* * *
 
-编辑 发稿 云起时
+> These Fauci emails offer tremendous support for the claim that US officials allowed Chinese communists to script the US response in the pandemic. [https://t.co/DNFcVGpamN](https://t.co/DNFcVGpamN) [pic.twitter.com/LTyyt2FF9s](https://t.co/LTyyt2FF9s)
+> — Jeffrey A Tucker (@jeffreyatucker) [March 5, 2021](https://twitter.com/jeffreyatucker/status/1367926401119248396?ref_src=twsrc%5Etfw)
 
-+1
+
+杰弗里·塔克（Jeffrey A Tucker） @jeffreyatucker ·
+这些福奇的电子邮件为有关美国官员允许中共在大流行中对美国做出回应的说法提供了有力支持。[judicialwatch.org/wp-content/upl…](https://judicialwatch.org/wp-content/uploads/2021/02/DCNF-v-HHS-Nov-2020-00149.pdf)
+2020年2月14日14:28，Handley，Gray（NIH/NIAID）[E]。写道：
+
+
+> *亲爱的全球疫情警报和反应网络（GOARN） 同事们, 在过去的24小时里，我们一直在与世卫组织和中共国官员积极沟通，以确保莱恩博士能够参与世卫组织/全球疫情警报和反应网络在中共国的任务。由于莱恩博士在接到参加此次访问团的通知时正在前往日本的途中，这使得情况变得更加复杂。抵达东京后，他在中共国驻华盛顿大使馆、世卫组织和美国驻北京大使馆为他办理签证提供了方便。*
+
+
+值得一提的是，美国和100多个国家发起封锁，完全是因为武汉传出的“数据”。福奇和他的同事等权威人士重复了错误的、未受质疑的中共国数据，这些数据说服了世界进行封锁，并接受中共病毒患者早期的，积极的呼吸治疗，以及其他拙劣、不科学的治疗和缓解措施。
+
+中共国通过围绕新型冠状病毒的蓄意造谣活动，挑起全球恐慌。此外，中共还发明了健康隔离封锁的概念。
+
+原文作者：乔丹·沙切特尔（Jordan Schachtel）
+发布时间：2021年3月10日
+原文链接：https://www.aier.org/article/fauci-and-the-communists/
+
+0
