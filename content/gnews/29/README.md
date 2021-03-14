@@ -1,96 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0313.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/972447/)
+## 【香港要闻】 港共阉割选举 澳纽政府联合声明 斥中共改选 举制度毁香港自治
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/973979/)
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0313.jpeg)
+搜集 / 编撰：心听见
 
+**（据立场新闻报讯）因北京出手大幅修改香港选举制度，封杀民主派参选。继七大工业国（G7）外长昨（12 日）发表联合声明后(详见报道)。**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/zapo.png)图片来源：立场新闻
+**澳洲及新西兰政府今（13 日）亦发联合声明，指对人大通过改变香港选举制度深表关注，认为此举破坏《中英联合声明》中，让香港可享有高度自治、权利及自由直到2047年的承诺。**
 
-#### 向中共国追责
+声明中又指这些改变与以普选产生行政长官的终极目标背道而驰，甚至削弱香港的民主体制、损害《基本法》赋予的言论及结社自由。这重大改变必定会收窄香港的自治权。澳洲与新西兰政府促请香港和中央恪守承诺，让港人拥有真正参与管治的渠道，同时保护立法会作为各方意见表达平台和监察政府的角色。
 
-3月13日弗罗里达众议员布莱恩-马斯特再次转发他在接受福克斯新闻采访时的谈话，他提到“停止向中（共）国支付债务直到他们就病毒的问题做出回答。”他表示，中共的问题涉及很多国家，但是“只有一个国家能够领导（带头）就冠状病毒向中共追责，这就是美国。没有其他哪个国家可以领导。”
+**战友点评：**
 
-议员先生的讲话让笔者仿佛看到当年正义附身血气方刚的美国回来了。
+理解自由民主制所保障的权利和自由，核心价值，都知道是相当多样化的，但通常都会包含以下的成分：要求合法程序的权利、隐私权、私人财产权、法律之前人人平等的权利、言论自由、集会自由、和宗教自由。在自由民主体制中这些权利（也被称为「自由权利」）可能是直接经由宪法赋予，或是透过一般法规和判例法赋予。这些对于中共暴政统治内的老百姓都不可能拥有。正因如此，曾经拥有「自由权利」的香港才被中共极权，用赋予港共暴政无限权力，而香港市民无法可依只有「国安恶法」暴力的对待。
 
+有人说：七一之后无香港，这个一点也不夸张，
 
+从反送中运动开始以来到国安恶法通过后，中共对香港原来的民主自由法制社会破坏，核心价值没有了，所有的繁荣已经荡然无存，只是中共独大统治破坏下的「大监狱」 。
 
-> There’s only one country that can take the lead on holding China accountable for coronavirus and that’s the United States of America. [pic.twitter.com/bMKfrxWRtz](https://t.co/bMKfrxWRtz)
-> — Rep. Brian Mast (@RepBrianMast) [March 13, 2021](https://twitter.com/RepBrianMast/status/1370702429541441542?ref_src=twsrc%5Etfw)
+而独裁的中共最惧怕人民，有独立思考的思维，反对一切邪恶政权的任何言论都不允许。而且民意代表被禁、政治迫害、滥用权力、滥捕滥告意见人士和政客、改变选举制度，做那么多事，就是要消除异议声音，打造人大一样的橡皮图章「一言堂」议会，港共在香港就可以为所欲为，「中英联合声明」已毁，「一国两制」「基本法」也变成了中共谎言欺骗手段的资本，而实现的是，「爱共者」以「国安恶法」治港。
 
+继7国集团外长发表声明之后，奥纽也作出联合声明，中共改变了香港的选举制度表示关注，要求中共尊守诚诺，既然都知道中共极权者对香港所作所为，声明呼吁已经发出，是否来点实际行动回应下？对于一个从来都不守诺言，满脑子谎言，邪恶到没有底线的中共独裁政权，是不会惧怕嘴炮形式主义，中共暴力对待其统治下的老百姓不是今时今日才发生，因为漠视人权，无法无天，在中共国发生的新疆再教育集中营、迫害政见人士、迫害宗教信仰自由等等哪一样不是反人类罪，世界各国多年来的沉默，终于迎来了对中共强烈谴责的第一步。
 
+而中共邪恶反而更嚣张，邪恶到制造中共病毒感染全球，事到如今有谁真正去质问过中共隐瞒真相来源的事实?希望这些大国能够言行一致，真正有所作为，不要再被中共的谎言所欺骗。如果不想再被中共特色恐怖主义所影响，全世界应该联合起来，跟爆料革命一样用行动去灭共。
 
-3月12日，《福克斯朋友优先》推文引用布莱恩议员的话，“他们确实需要被追究责任。”@Brian Mast议员 告诉 #FoxFriendsFirst 美国应该扣留对中国的债务支付，直到COVID-19问题得到回答。议员先生称，我们需要向中共国追责，他们需要回答病毒是不是来源于武汉病毒实验室？那里发生了什么？他们掩盖了什么？他们和世卫组织掩盖了什么？
+【以上观点仅代表笔者本人】
 
+新闻来源：[立场新](https://www.thestandnews.com/politics/%E9%96%B9%E5%89%B2%E9%81%B8%E8%88%89-%E6%BE%B3%E7%B4%90%25%20E6%94%BF%E5%BA%9C%E8%81%AF%E5%90%88%E8%81%B2%E6%98%8E-%E6%96%A5%E4%BA%BA%E5%20%A4%A7%E6%94%B9%E9%81%B8%E8%88%89%E5%88%B6%E5%BA%A6%E6%AF%80%E9%A6%99%E6%B8%20%AF%E8%87%AA%E6%B2%BB/) 、 [维基百科](https://zh.m.wikipedia.org/wiki/%E8%87%AA%E7%94%B1%E6%B0%91%E4%B8%BB%E5%88%B6)
 
+覆核：恩典  /  上传：彩虹（ Rainbow )
 
-> “They do need to be held accountable”: [@RepBrianMast](https://twitter.com/RepBrianMast?ref_src=twsrc%5Etfw) tells [#FoxFriendsFirst](https://twitter.com/hashtag/FoxFriendsFirst?src=hash&amp;ref_src=twsrc%5Etfw) the U.S. should withhold debt payments to China until COVID-19 questions are answered.[https://t.co/OLiyRP3MuD](https://t.co/OLiyRP3MuD)
-> — Fox & Friends First (@FoxFriendsFirst) [March 12, 2021](https://twitter.com/FoxFriendsFirst/status/1370413052814897153?ref_src=twsrc%5Etfw)
-
-
-
-
-
-#### 我们的自由不由政府决定
-
-3月12日前国务卿蓬佩奥先生就拜登在公开讲话时的言论表示抗议，拜登要求人们都去接种疫苗、从而在今年国庆节可以和家人邻居亲朋聚会聚餐。蓬佩奥先生称：“在7月4日，我们庆祝美国和我们的许多自由。自由其中之一就是，你可以决定是否你想和家人朋友在你自己的后院，而不是由政府决定。”
-
-
-
-> On the 4th of July, we celebrate America and our many freedoms. One of those freedoms is that YOU get to decide if you want to have family and friends over in your own backyard, NOT the government. [https://t.co/xl1ovY9sef](https://t.co/xl1ovY9sef)
-> — Mike Pompeo (@mikepompeo) [March 12, 2021](https://twitter.com/mikepompeo/status/1370390033597935617?ref_src=twsrc%5Etfw)
-
-
-
-#### 性贩运
-
-3月12日鲁迪-朱利安尼先生推文称：今天的节目揭露了美国黑暗的性交易黑幕。
-@BooyensJaco 解释了性贩运如何成为一种流行病，现在伴随着美国-墨西哥边境的疫情和危机，已经达到了前所未有的水平。
-
-
-
-> 🚨 Today’s episode exposes the dark underworld of sex trafficking in the US. [@BooyensJaco](https://twitter.com/BooyensJaco?ref_src=twsrc%5Etfw) explains how sex trafficking has become an epidemic and now, with the pandemic and crisis at the US-Mexico border, has reached unprecedented levels.
-> 
-> Here: [https://t.co/APgb2Du8kc](https://t.co/APgb2Du8kc) [pic.twitter.com/5pMhlzSpXL](https://t.co/5pMhlzSpXL)
-> — Rudy W. Giuliani (@RudyGiuliani) [March 12, 2021](https://twitter.com/RudyGiuliani/status/1370454178838016006?ref_src=twsrc%5Etfw)
-
-
-[https://rumble.com/vekwsd-the-dark-underworld-of-sex-trafficking-in-the-u.s.-rudy-giuliani-and-jaco-b.html](https://rumble.com/vekwsd-the-dark-underworld-of-sex-trafficking-in-the-u.s.-rudy-giuliani-and-jaco-b.html)
-#### 中共病毒疫情的又一次生灾难
-
-据《Just The News》， 研究人员警告说，在冠状病毒大流行的过程中，口罩的大量使用可能会导致一场迫在眉睫的环境灾难，每分钟都有三百万个口罩被使用，其中许多口罩在使用过程中会污染当地的生态系统。
-
-[https://justthenews.com/politics-policy/coronavirus/3-million-masks-used-globally-every-minute-researchers-warn](https://justthenews.com/politics-policy/coronavirus/3-million-masks-used-globally-every-minute-researchers-warn)
-
-
-
-#### 史上最糟糕演说
-
-
-
-> "WORST. SPEECH. EVER." | [@gregkellyusa](https://twitter.com/gregkellyusa?ref_src=twsrc%5Etfw) tears through Biden's 'stupid, phony, typical-politician, and downright weird' national address. [https://t.co/3UPfQPlVZW](https://t.co/3UPfQPlVZW)
-> — Newsmax (@newsmax) [March 13, 2021](https://twitter.com/newsmax/status/1370547661036748807?ref_src=twsrc%5Etfw)
-
-
-
-12日Newsmax 主播 格雷格-凯里（Greg Kelly）对11日晚拜登的总统讲话讽刺挖苦得淋漓尽致，从拜登谈口罩、谈疫情、疫苗等问题一一回击、嘲讽，称他是“愚蠢、虚伪的典型政客, 彻头彻尾怪异，而对川普总统的支持溢于言表。
-
-
-
-（本文当日持续更新中）
-
-
-
-文章观点部分仅代表作者本人。
-
-
-
-编辑：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。
-
-
-
-+1
+0
