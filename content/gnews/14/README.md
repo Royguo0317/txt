@@ -1,27 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 赤道几内亚为105名遇难者举行大规模葬礼
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/974358/)
+## 昨日“抗疫明星”纽约州长库莫今日面临第三个丑闻指控
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/974459/)
 
-俄罗斯莫斯科喀秋莎农场 文秋
+撰稿&翻译：Jenny
+![]()![](https://gnews.org/wp-content/uploads/2021/03/IMG_8394.jpg)网络截图
+纽约州州长安德鲁·库莫（Andrew Cuomo）面临另一个酿造丑闻，这次是一项命令，该命令将发育障碍者的房屋送回家接受COVID阳性患者。
 
-编辑上传 水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/105-1.jpg)flipboard.com
-据3月13日路透社报道，3月12日，中非的赤道几内亚在巴塔体育场为105名遇难者举行了集体大规模葬礼，体育场的中央整齐地摆放了两行棺材，患难者家属悲痛欲绝，纷纷举起亲人的照片。 特奥多罗·奥比昂·恩圭马总统罕见地在葬礼上公开露面，副总统也参加了葬礼。
+据福克斯新闻社报道，库莫于2020年4月10日发布命令，距该州禁闭行动仅几周时间，以抗击该流行病。 该命令类似于他在2020年3月指示疗养院接受住院的COVID患者，无论他们是否对该病呈阴性。 但是，与疗养院命令不同，Cuomo从未撤销其4月10日的指示。
 
-3月7日，在中非的赤道几内亚的巴塔军营，发生了一系列的爆炸，爆炸导致105人死亡几百人受伤，几乎损毁了巴塔所有的建筑，很多人被埋在了瓦砾之中，数百名受伤者中有许多儿童。
+根据纽约残障人士办公室（OPWDD）的数据，有552名残障人士住房居民死于COVID-19。 在此类设施中居住的近34600人中，有6900人染上了这种疾病。
 
-该国总统特奥多罗·奥比昂·恩圭马将爆炸归咎于处理炸药时的相关疏忽所致，在一次演讲中承诺会追究相关人士的责任，并警告赤道几内亚人不要在社交媒体上传播虚假新闻，这件事正在被政治化。
+国会残疾人委员会主席州议员汤姆·阿比南蒂（Tom Abinanti）上月对纽约《日报新闻》说：“这只是显示了库莫政府对残疾人的看法。”  “这也表明他们缺乏看清他们当时应该看到的选择的远见。”
 
-政府将爆炸归咎于对基地储存的炸药的处理疏忽，以及附近农民纵火。运动团体人权观察呼吁进行独立调查。
+OPWDD发言人詹妮弗·奥沙利文（Jennifer O’Sullivan）在《日报新闻》的一份声明中为Cuomo的命令辩护。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/IMG_8267.jpg)网络截图
+评论：
 
-该国总统是非洲长期执政的统治者之一，自1979年以来一直管理着这个中部非洲国家，而该国现任的副总统是这位在位42年总统的亲儿子。
+截止2021年3月上旬，在美国各地已确认超过有525,000人因COVID-19死亡。在整个大流行中，纽约受到的打击尤为严重，并且是冠状病毒死亡人数最多的州之一。 邻近的新泽西州也是，这两个州的冠状病毒死亡率仍然是美国最高的。
 
-赤道几内亚是中共渗透非常厉害的国家之一，中共国很多国有的建筑公司都有在赤道几内亚接各种工程。
+州长库莫前两个丑闻非别是，对养老院的高死亡率掩盖了真实的数字，以及一项性丑闻指控。
 
-参考链接：
+（本文纯属个人观点）
 
-[https://www.sowetanlive.co.za/news/africa/2021-03-13-president-promises-justice-as-equatorial-guinea-mourns-105-blast-victims/](https://www.sowetanlive.co.za/news/africa/2021-03-13-president-promises-justice-as-equatorial-guinea-mourns-105-blast-victims/)
+[相关链接：](https://resistthemainstream.org/gov-andrew-cuomo-cuomo-hit-with-fresh-new-scandal/?utm_source=social&amp;utm_medium=telegram&amp;utm_campaign=rtm)
 
+推荐文章：[纽约州长库莫面临被弹劾](https://gnews.org/zh-hans/943201/)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-澳喜Logo.jpeg)
 0

@@ -1,31 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 麦卡锡评拜登“试图抹黑川普”而不“谴责中共”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/974336/)
+## 澳洲维多利亚州延长紧急状态凸显超限战险恶目的
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/974407/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+翻译&评论: Jony(8 Mile)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/141.jpg)图片来自网络
+在本次疫情中，澳洲唯一一个签订 “一带一路” 政策的维多利亚州，是目前澳洲感染人数最多的一个州。数次疫情的爆发都被质疑与隔离酒店的管理不善和失效的密切接触追踪体系有关。面对公众的质疑，安德鲁斯政府并没有任何实质性的担责和改进，而是用高昂的救济补助安抚民众。
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-14_07-24-42.jpg)[losangeles.cbslocal.com](https://losangeles.cbslocal.com/2014/06/19/gop-rep-mccarthy-elected-house-majority-leader/)
-布赖特巴特新闻(Breitbart News)报道，众议院少数党领袖凯文·麦卡锡(Kevin McCarthy)在福克斯节目中批评了乔·拜登总统周四的中共病毒演讲，称“他没有谴责中共，而是试图抹黑极速行动。”
+封城对维州民众工作生活的影响和节节攀升的公共债务，真正体现了中共布局超限战之险恶目的。
 
-拜登在中共病毒演讲中省略了“中共”和“极速行动”，在整个演讲中，拜登谈到了甲型流感病毒对美国和美国经济的影响，以及疫苗开发的情况，他甚至宣布，所有成年人将在5月1日前获得接种疫苗的资格。然而，他在关于疫苗的讲话中明显没有提到“极速行动”(Operation Warp Speed)，这是川普政府旨在加速疫苗研发和分发的大规模行动。拜登的疫苗分发计划很大程度上依赖于川普政府所建立的系统，然而拜登却试图抹黑“极速行动”，称在疫苗接种问题上川普留下了“烂摊子”，拜登甚至没有提及川普在官方正式宣布中共出现疫情前几周对中共实施的旅行禁令。
+而现在，安德鲁斯州政府在没有丝毫改进的情况下，再次延长州政府 “紧急状态” 下的特殊权力，政府管理上的失责让民众买单，靠债务刺激就可以安享宝座，收买民意。殊不知，真正失去的是维州民众对商业的信心，对追责的麻木，对放水的依赖，以及带来未来几代人都要承受的泡沫和债务。
 
-拜登也没有提及“中共”、 “武汉”等字眼，忽视了中共在全球疫情传播中发挥的负面作用。拜登在演讲中也没有提到“封锁”，而是使用了“集体痛苦”和“集体牺牲”的措辞。
+以下翻译引自《延长紧急状态后澳大利亚维州仍将拥有大流行病特殊权力》
 
-在周五的白宫新闻发布会上，白宫发言人被质疑为什么无视川普政府的“极速行动”，因为疫苗是在川普政府的“极速行动”下迅速开发的，川普总统应该得到认可和赞誉。
+澳大利亚维多利亚州的 “紧急状态” 将维持到2021年年底，安德鲁斯政府3月2日深夜通过立法，获得跨党派支持，但条件是减少对年轻人的罚款。
 
-白宫中共病毒疫情应对团队高级顾问安迪·斯拉维特（Andy Slavitt）称赞川普政府的“极速行动”在创纪录的时间内完成了疫苗的研发和推广，并对川普总统及其政府的出色工作表示感谢。
+紧急状态于2020年3月首次推出，在工党获得绿党、理性党和动物正义党等少数党派的支持后，现在将延长至2021年12月。
 
-前川普总统通过电子邮件发布了一项声明指出，“我希望每个人在获得中共病毒疫苗时都记得，如果那时我不是总统，那么您可能5年内都不会得到 ‘接种’，而且可能根本就不会得到它。”川普在声明中强调，希望每个人都记得他的努力。
+该立法允许首席卫生官Brett Sutton继续行使特殊权力，并采取任何被认为是必要的政策来减少COVID-19传播。
 
-据报道，截至川普政府执政的最后一天，超过150万美国人接种了中共病毒疫苗。
+封锁、口罩规定和强制隔离回国旅客仍是一系列安德鲁斯政府可以采取的控制疫情的措施。
 
-参考链接：
+反对党自由党认为没有必要延长9个月，抗议者周二晚些时候在州议会外游行。
 
-[https://www.breitbart.com/politics/2021/03/12/biden-omits-china-operation-warp-speed-from-coronavirus-address/](https://www.breitbart.com/politics/2021/03/12/biden-omits-china-operation-warp-speed-from-coronavirus-address/)
+Source:
 
-[https://www.breitbart.com/clips/2021/03/12/mccarthy-biden-tried-to-discredit-operation-warp-speed-instead-of-denouncing-china/](https://www.breitbart.com/clips/2021/03/12/mccarthy-biden-tried-to-discredit-operation-warp-speed-instead-of-denouncing-china/)
+[https://www.skynews.com.au/details/\_6236753816001](https://www.skynews.com.au/details/_6236753816001)
 
+（本文纯属个人观点）
+
+审稿：Jenny  编辑：MG1
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-澳喜Logo.jpeg)
 0
