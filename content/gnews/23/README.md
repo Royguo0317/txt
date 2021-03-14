@@ -1,25 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳新关于香港选举改革的联合声明
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/976032/)
+## 市面上的疫苗真的安全吗？
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/976060/)
 
-俄罗斯莫斯科喀秋莎农场 银河
+作者：刘大嘴
 
-编辑上传 水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/H-10.jpg)freeowl.com
-3月13日，澳大利亚外交部长玛丽丝·佩恩（Marise Payne）议员与新西兰外交部长、地方政府部长纳纳亚·马胡塔（Nanaia Mahuta）议员发表联合声明。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-澳大利亚和新西兰的政府，同G7同行一样，对3月11日中共全国人民代表大会通过的香港选举制度改革进一步损害权利和自由，以及根据《中英联合声明》在2047年之前中共对香港的高度自治予以保障，深感关切。
+**西班牙2021年3月14日电/西喜社——**
 
-澳大利亚和新西兰一直希望香港取得成功，因为香港是重要的金融、贸易和海外社区枢纽。这取决于香港继续享有高度自治和尊重法治。
+3月11日世界多家媒体报道了一条关于犹他州39岁妇女凯西狄‧库瑞尔(Kassidi Kurill)接受第二剂莫德纳(Moderna)疫苗四天后死亡的消息，笔者读后，感概颇多。
 
-这些改变违背了香港行政长官普选的最终目标，削弱了香港的民主制度，并侵蚀了言论和结社自由——所有这些都是《基本法》规定的。这一重大步骤，将进一步破坏香港的自治。
+凯西狄是一名9岁女孩的妈妈，是一名整形手术助理，因为工作的关系接种新疫苗，而且对疫苗质量是很有信心的，也劝说过很多身边的人打疫苗。结果在自己接种第二剂以后，短短30小时就命扑黄泉。
 
-我们敦促香港和中共政府恪守承诺，为香港市民提供真正参与管治的渠道，并保障立法会作为表达不同意见和审查政府论坛的角色。
+这一切的突然发生，对一个家庭的沉重打击可想而之。虽然我们都知道几乎所有疫苗或注射药剂，都存有引发负面结果的潜在风险，2020年引发的疫情到一年左右就已经全世界大面积铺开的疫苗经济（暂不提安全有效且便宜的病毒预防用药羟氯喹），这些疫苗是否都按照严格的医疗程序做过了第三阶段测试，最大程度保证接种人的生命健康安全，我们都要打个问号。
 
-原文链接：
+中共病毒是人工合成的病毒，是专门用来杀人用的武器，中共病毒的毒株序列只有中共知道，治病要对症下药，在没有弄清楚病理和病毒毒株的序列的情况下盲目的研究和生产疫苗是没有用的是徒劳的。
 
-[https://www.foreignminister.gov.au/minister/marise-payne/media-release/joint-statement-electoral-changes-hong-kong](https://www.foreignminister.gov.au/minister/marise-payne/media-release/joint-statement-electoral-changes-hong-kong)
+一个保险箱如果没有密码怎么可能打的开，这个密码就在中共的手里，找中共要密码他是不可能给你的，给你了就等于承认了中共制造了生化武器，只有消灭中共才能得到病毒毒株的序列号，才能生产出有效的疫苗才能拯救全世界。
 
+中共疫情的危机还没有结束，疫苗危机才刚刚开始。
+
+编辑：蚂蚁兄弟；校对：阿伯塔；发稿：神奇四侠
+
+新闻来源：[THE EPOCH TIMES](https://www.theepochtimes.com/39-year-old-healthy-utah-mother-dies-after-taking-second-dose-of-moderna-vaccine_3729443.html?utm_source=newsnoe&amp;utm_medium=email&amp;utm_campaign=breaking-2021-03-11-2)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
 0

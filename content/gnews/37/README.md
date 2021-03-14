@@ -1,39 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共产党真的是把中国人置入到最危险的境界
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/975884/)
+## 总加速师继续加速、历史再次重演《路德社》每日简报早间版 2021.03.06–NewYork Time
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/975895/)
 
-新闻简述：在2021年3月12日的盖特中，郭先生感慨中共病毒动了美国的筋骨，有太多美国人因此恨中国人，因为他们难以分清中共和中国人的区别。中国共产党已经把中国人置于最危险的境地。而只有新中国联邦能给华人带来安全。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_2021-03-12_Getter4.srt.txt)
-**共产党真的是把中国人置入到最危险的境界**
+出品《路德社》 编辑：路德社精选新闻专栏组
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-08-at-23.10.37.jpeg)
+2021.3.6 美东早间 路德时评 路.安.墨谈
 
-**The CCP Has Put Chinese Into a Most Dangerous Situation**
+**一、中共明确就要从根本上改变香港政治规则**
 
-我刚刚的回到家，刚刚回来，真是啊，我刚才去了几个地方，天哪，美国这个病毒的伤害，动到筋骨了，但是我也能看出来这些人，恨中国和共产党，真有些人分不开，人家就说，中国人把我们害了，我说不是中国人，是中国共产党，但是你能每个都这么说去吗？
+十三届全国人大四次会议3月5日在京开幕，当天最受关注的话题就是中共在香港问题上的表态。从中共各媒体的报道看，下一步中央要进一步完善香港的选举制度，落实“爱国者治港”的主题非常明确。其内容的主要目的就是废除香港的三权分立，大法官制度，取消之前对香港人的所有承若。接下来实施真正的一国一制，取消现有香港所有的新闻、言论、结社等自由，和内地普通的一个省、市等一样没有任何区别。
 
-I just came home, just returned. It is true. I went to a few places. Oh my gosh, the muscles and bones of the U.S. have really been hurt by the virus. Yet, I can also tell that these people hate China and the CCP so much that some of them cannot differentiate Chinese from CCP by saying, “Chinese hurt us.” I said, “It is not Chinese. It is the CCP.” However, are you able to tell everyone who thinks like this?”
+**二、美国对中共结束香港体制居然只是谴责**
 
-共产党真的是把中国人置入到最危险的境界，最危险的境界，真的是很吓人，无论是医生还是护士，无论是所谓的科学家，还是所谓的生物学家，现在反正是对中国人不可能好感，想想没有新中国联邦，这个世界对中国人将有多么的危险，没有新中国联邦，中国人将是多可怕，在世界的环境，还跟着共产党瞎忽悠那，你有孩子吗？你想要未来吗？你以为地球就是你家的吗？全地球都恨你的时候，你怎么活？无知啊，可怕啊。
+星期五3月5日美国国务院发言人普赖斯在星期五的记者会上谴责了中国政府最新中国修改香港选举制度的举措是对香港自治与民主程序的“直接攻击”，并表示美国正努力在国际社会“激励集体行动”来应对中国在新疆、香港等地的镇压。由此可以看出，美国在中共修改香港政治制度也仅仅是表示出了谴责，简直就是默认和纵容了中共在香港的继续作恶，这会让中共接下来对整个中国、香港、台湾等地实施更加恶劣的行动，这些纵容会不可避免的让中共这个恶魔继续对全世界造成更大的灾难。
 
-The CCP indeed put Chinese into a most dangerous situation. It is really scary. Whether they are doctors or nurses, the so-called scientists or biologists, it’s not possible for them to have any good impression of Chinese now. Think about this. If the New Federal State of China (NFSC) did not exist, how dangerous the world would become for Chinese people? Without the support of the NFSC, how horrible the world would be for Chinese people? Under the world’s current situation, why are you still behaving like a blind fool? Do you have any children? Do you expect a future? Do you think the earth is exclusively yours? When everyone on the earth hates you, how can you still survive? Ignorant! Terrible!
+**三、总加速师继续加速、历史再次重演**
 
-刚才有战友说，七哥，世界上你说永远不变的事，太阳永远会升起，有的时候阴天就升不起，那是因为你站的地方不对，你要待在有阳光的地方，太阳每天都升起，不是太阳没升起来，是你没站对地方，这就像现在一样，你在中国共产党那里面，你就站错地方了，你就看不到太阳的升起，对吧，兄弟姐妹们？好好的，珍惜爆料革命、新中国联邦，给中国人打下的这一片美好的天空，珍惜吧，谢谢！
+1935年3月希特勒宣布恢复征兵制并扩充德国军队，包括建立凡尔赛条约中禁止德国拥有的海军武器、装甲部队和空军。并宣布重新占领莱茵河非军事区，希特勒彻底撕毁了1919年和协约国及各同盟国的条约规定，彻底让希特勒走上了不可逆转的恶魔之路。而当时面对德国撕毁条约，各国为了自身利益隔岸观火的态度，间接性的纵容了希特勒的自信和狂妄，造成二战全世界重大的伤亡和灾难。反观今天中国共产党所做的行为和方式，正在和当年希特勒的方式相似，现在是香港、接下来就是台湾、日本及整个亚洲、最后会是欧美及整个世界。而由郭文贵先生发起的爆料革命和新中国联邦，正在告诉全世界真相，也是目前唯一一个向全世界传播中共的野心和邪恶，并希望各国能看清中共这个恶魔，尽早将它消灭避免更大的灾难。
 
-Just now, one of our fellow fighters said, “Brother Seven, you said that one thing never changing in the world is that the sun is always rising. Sometimes, the sun will not rise when it is a cloudy day.” This is because you are not standing at the right place. You need to stay in the place where there is sunlight. The sun rises everyday. It is not the case that the sun doesn’t rise. It is because you stand in a wrong place. Just like now, if you stand with the CCP, then you are in the wrong side. Therefore, you will never see the sun rising. Is this right, brothers and sisters? Please cherish the beautiful sky that our Whistleblower Movement and the NFSC have created for the Chinese people. Please cherish them! Thank you!
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-
-视频来源：[https://gtv.org/getter/604be375607c4240c8b51ea2](https://gtv.org/getter/604be375607c4240c8b51ea2)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/971100/](https://gnews.org/zh-hans/971100/)
-
-* * *
-
-翻译：【7PawBear】校对：【Isaiah4031】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+文案：《路德社》简报组
+审核校对：路德社精选新闻专栏组
+上传排版：路德社精选新闻专栏组
 
 0
