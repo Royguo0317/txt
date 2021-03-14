@@ -1,15 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月13日 文贵先生盖特 6
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/974686/)
+## 【世事解评】面对副作用 英法不准备停止使用阿斯利康疫苗
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/974833/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+作者：纽约香草山 童谣
 
-郭母两周年忌日文贵直播预告： 3月14日农历二月初二 纽约时间早上7:57 北京时间晚上7:57 🙏🙏🙏🙏🙏🙏🙏
-![]()![](https://gnews.org/wp-content/uploads/2021/03/29cc6071bdc601b43a72ba6d119d4f74.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/d67ef3e2e68d08eeb985b97568f252bf.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/df36e59cb68654e62a03bf4dc7954af3.jpg)
-[【2021年3月13日】文贵先生盖特原文](https://gtv.org/getter/604d8f5a607c4240c8b56d87)
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
-**喜联盟Gnews编辑部**
+
+
+据法新社报道，在丹麦等欧洲多国宣布暂时停止使用阿斯利康疫苗后，法国卫生部长维兰3月11日表示，法国目前不准备停止使用阿斯利康疫苗。英国首相约翰逊发言人强调，阿斯利康疫苗安全有效。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/56384499_303.jpg)图片来源：德国之声中文网
+
+丹麦、挪威和冰岛先后表示，由于有人在接种英国阿斯利康疫苗后出现凝血问题，宣布暂时停用这款疫苗。但英法领导人却孤诣执行，无视疫苗负面信息，强行推广接种，拉高政绩。
+
+推测：一是因为英法疫情死亡人数比例在欧洲国家中一直处在高位，再加上病毒变异导致人心惶惶，只有疫苗才能缓解领导人的执政危机。二是受疫情封锁的影响，英法两国GDP急速下滑，疫苗产业链既能够有效拉动经济增长，又能使操纵国家机器的利益集团扩充腰包，正如此前英国教育系统资金链崩溃之后又引来了中共投资。
+
+但殊不知，在这些国家中最开始病毒无故肆虐，就是因为与中共贸易、政治往来密切，成为中共放毒的首要便利条件。由此可见，在生化病毒这场战役中，中共在英国和法国等蓝金黄深重、病毒深重的地区，不管是政治洗脑还是经济控制方面都已经取得了基本成功。
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-2.jpg)
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

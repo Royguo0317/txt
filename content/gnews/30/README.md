@@ -1,37 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒｜美前调查人员谈COVID-19 邪恶中共死期将至
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/974836/)
+## 中共反复催促百姓打疫苗是不是想绑架百姓威胁世界？
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/974941/)
 
-【日本东京方舟农场】作者：文柯Miles  素材整理：武汉老温 校对：文小律
+**作者：**首尔**喜韩农场 Sam Jeep**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2465515.jpg)
+党媒这段时间反复催促百姓打中共病毒疫苗，发布了众多类似《科普｜要！尽快接种新冠疫苗》的洗脑文章。但是，对疫苗的副作用、灭活疫苗的危害性却刻意秘而不宣，一味叫百姓赶紧注射，到底是何居心？
 
-纽约邮报3月12日报道  美国前调查人员：COVID-19可能来自生物武器研究事故！
+钟南山：“接种疫苗花的时间越长，越可能有更多变异毒株。”这句话暴露了中共的说谎本质。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-91.jpg)大卫·阿舍尔（David Asher）
+第一，为什么流感疫苗一般间隔一段时间就必须再次注射新的疫苗对应病毒的变异，而钟南山的意思是现在的中共病毒疫苗可以完全应对所有变异病毒和新的病毒变种？这符合科学逻辑吗？要是真能，流感不是只注射一次就行了？第二，叫百姓注射疫苗只是为了不让病毒变种？百姓的生命健康在中共眼里一文不值？第三，就算百姓现在注射也不能应对正在加速变异的病毒，那又为什么叫百姓去打毫无意义的疫苗呢？是不是为了让民众成为中共威胁世界的工具，将生物炸弹埋进民众的体内？
 
-哈德森研究所高级研究员的大卫·阿舍尔（David Asher）说：“武汉病毒学研究所不是国家卫生研究院，它是正在运行的一个秘密研究机构。就我个人来看，我认为那是一个生物武器计划。” 在过去的14个月中，中国共产党一直在进行大规模的掩饰。
+张文宏：“很多人觉得国内疫情管控很好，没有急迫性，但我们必然面临世界重新打开时的风险。全球各国会陆续打开国门，我们打疫苗的急迫性也会越来越高。在此之前，我们迫切需要完成接种以应对输入性风险。”
 
-“而且，就像我一样，如果您相信这可能是一种错误的武器，不是故意释放的，而是在研究之中，然后以某种方式泄漏的，那已经证明这是历史上最可怕的武器，”阿舍在接受采访时说。哈德森学院的小组讨论，COVID-19的起源：政策含义和对未来的启示。“它已经造成全球GDP15％到20％的损失，它杀死了全球数百万人，而中国人口几乎没有受到影响，他们的经济迅速回升到整个20国集团的第一位。”
+张文宏同样瞪眼撒谎，国内从疫情爆发到现在都没有发布真实信息，还禁止微信、微博讨论及传播疫情信息和真实情况。他的意图就是为把病毒来源甩到国外做出铺垫，如果瞒不住，疫情大规模爆发，就会将黑锅甩向国外，令百姓产生仇外情绪，继续散布谎言以使中共政权苟延残喘。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3336121.jpg)
+张文宏和钟南山一样是中共口舌，这是毋庸置疑的。就目前情况来看，他这样说和中共的病毒疫苗战略一定有相关联系。换言之，他们的病毒超限战会起码到明年，注射疫苗是其中重要的一环。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-51-scaled.jpg)中国科学院武汉病毒研究所
+综上分析，中共在墙内催促疫苗接种的做法一石二鸟，既能将百姓作工具，威胁西方；又能在墙内疫情无法掩盖的时候甩锅国外，维系政权。而百姓对疫苗无法应对变异病毒毫不知情，党媒也闭口不谈，可见用心险恶。
 
-起初，中共表示COVID-19病毒起源于武汉海鲜市场的理论存在问题。它们说第一个病例与海鲜市场无关。去年秋天美国获得情报，情报显示几名武汉病毒实验室科学家爆发了流感症状，他们于2019年11月住院，当时中共尚未报告第一例病例。
-
-阿舍尔和哈德森研究所的其他专家小组成员说：“中共在2007年宣布，它们将开始使用有争议的“功能增强”研究，目的是更具致死性的基因生物武器研究。”
-
-当世卫组织2月派遣工作队前往武汉的时候，他们没有穿生物安全服，并且只在里面呆了3个小时。据报道，他们无法获得科学或数据性的充分证据，所以无法排除中共病毒是实验室来源的重大可能。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/5-29.jpg)迈克·蓬佩奥（Mike Pompeo ）与余茂春（Miles Yu）
-国务院中国问题专家余茂春（Miles Yu）说：“中国自2003年SARS爆发以来就一直从事这种病毒研究。”他与前国务卿迈克·蓬佩奥（Mike Pompeo ）合作撰写了《华尔街日报》最近的专栏文章。
-
-专栏文章开篇就说：“中国共产党痴迷于研究病毒，它们的科学家和军队声称在短短十年内发现了近2,000种新病毒！在过去的200年中，世界其他国家和地区总共才发现这个数量的病毒。更令人感到不安的是，中国共产党对生物安全的疏忽。武汉爆发的新型冠状病毒证明了世界卫生安全领域的代价和风险是巨大的。我们不能允许这种情况继续发生，如果中国共产党不遵守包括基本透明性要求在内的全球生物安全标准，世界就必须对中国共产党追责，并对中共进行制裁。”
-
-注：本文仅代表作者观点
+（本文仅代表个人观点，与GNews无关）
 
 参考链接：
 
-1.[https://nypost.com/2021/03/12/former-us-investigator-covid-19-may-have-come-from-bioweapons-research-accident/?utm\_source=NYPTwitter&utm\_medium=SocialFlow&utm\_campaign=SocialFlow](https://nypost.com/2021/03/12/former-us-investigator-covid-19-may-have-come-from-bioweapons-research-accident/?utm_source=NYPTwitter&amp;utm_medium=SocialFlow&amp;utm_campaign=SocialFlow)
+武汉晨报官方帐号”湖北身边的事[https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news\_8999235320068262786%22%7D&n\_type=1&p\_from=4](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_8999235320068262786%22%7D&amp;n_type=1&amp;p_from=4)
 
-2.[https://www.wsj.com/articles/chinas-reckless-labs-put-the-world-at-risk-11614102828](https://www.wsj.com/articles/chinas-reckless-labs-put-the-world-at-risk-11614102828)
+要不要打新冠疫苗？应该什么时候打？“疫苗犹豫”？西安疾控这样说！
+
+[https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news\_10149542323717352497%22%7D&n\_type=1&p\_from=4](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_10149542323717352497%22%7D&amp;n_type=1&amp;p_from=4)
+
+防疫那些事儿 | 新冠疫苗需要每年都打吗？这些问题解答来了
+
+[https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news\_9854847188443005714%22%7D&n\_type=1&p\_from=4](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_9854847188443005714%22%7D&amp;n_type=1&amp;p_from=4)
+
+钟南山、高福、吴尊友、张文宏：想要疫情早一天结束，抓紧时间接种新冠疫苗！（中共北京市石景山区委宣传部）
+
+[https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news\_9622302828488180029%22%7D&n\_type=1&p\_from=4](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_9622302828488180029%22%7D&amp;n_type=1&amp;p_from=4)
+
+什么时候可以摘掉烦人的口罩？张文宏这几句话很重要，务必听听（湖北广播电视台电视新闻中心《长江新闻号》）
+
+[https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news\_10175056400824392902%22%7D&n\_type=0&p\_from=1](https://mbd.baidu.com/newspage/data/landingsuper?context=%7B%22nid%22%3A%22news_10175056400824392902%22%7D&amp;n_type=0&amp;p_from=1)
+
+***责任编辑**：加拿大多伦多枫叶农场 文锦*
+
+***编辑/校对**：华盛顿DC农场 光之子(沙加)*
+
+***发布**：华盛顿DC农场 文顾*
 
 0
