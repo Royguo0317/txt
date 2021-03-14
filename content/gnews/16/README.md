@@ -1,96 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0313.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/972447/)
+## 纳瓦罗逻辑极强的经济概念的设计和中国急需一个科学的经济体系
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/973600/)
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0313.jpeg)
+**作者：Faller**
+![Meet Mr. 'Death by China,' Trump's inside man on trade - The Washington Post]()![Meet Mr. 'Death by China,' Trump's inside man on trade - The Washington Post](https://www.washingtonpost.com/rf/image_1484w/2010-2019/WashingtonPost/2017/02/16/Others/Images/2017-02-16/GettyImages-150709929-horizontal.jpg?t=20170517)图片来源：华盛顿邮报
+纳瓦罗：美国经济学家，加州大学尔湾分校经济学退休教授，特朗普总统助理。为人朴实，在他就职川普任期内，踩自行车是他的通勤方式。 纳瓦罗设计一套加关税的整体经济政策目的是为了中美脱钩。他设计的政策有很强的逻辑性和连环性，环环相扣。拜登政府不可能把他的政策拆开。
 
+如同一个好的装修设计师，想影响甲方用他的方案，或推荐的材料（设计师推荐的材料可以拿10%回扣），他可以把很多东西无缝地放进去，把总体方案设计得完美，甲方因为这个整体方案的无懈可击，就会乐意接受设计师推荐的材料，因为换什么材料都不好看。
 
-#### 向中共国追责
+对于纳瓦罗这样的经济学家，他设计的方案里是否包含川普总统竞选失败，下届总统也翻不了盘的经济概念?极有可能。他设计每一个节点包含几个美国的法律法规，拆开了就会违反美国的法律或者会导致美国经济崩溃，无论谁做总统只能照着他的概念走。拜登政府现在应该是测试链条和弱点漏洞，发现解不了。从下面的这篇华尔街报道可以看出，拜登政府上台马上两个月，他继续了纳瓦罗先生和前总统对华强硬的经济政策。
 
-3月13日弗罗里达众议员布莱恩-马斯特再次转发他在接受福克斯新闻采访时的谈话，他提到“停止向中（共）国支付债务直到他们就病毒的问题做出回答。”他表示，中共的问题涉及很多国家，但是“只有一个国家能够领导（带头）就冠状病毒向中共追责，这就是美国。没有其他哪个国家可以领导。”
+纳瓦罗是经济学博士导师。美国金融学经济学博士是一群设计一套金融游戏规则的人。人们在这个规则里投钱投资买卖，游行规则自我成长和极具创造性，别人无法击溃。比特币就是一群人设计出来的，是一个金融概念或体系的设计。
 
-议员先生的讲话让笔者仿佛看到当年正义附身血气方刚的美国回来了。
+在欧美，经济学一定是理科极强的人才能读，顶级的经济学金融学博士是数学功底特别强的本科生，逻辑和推理能力极强的纯理科才能攻读的。经济专业非常强调数论和数学建模。文科完全读不了真正的经济。
 
+全球视野：美国设计概念；英国做标准；德国搞制造，金属材料；日本搞技术；台湾搞管理；中国出劳工。这是全球视野的运作体系的产业链。现在生活中的很多概念是美国人设计的,比如：红绿灯体系。最早的汽车是德国出的，但是福特把汽车产业化，美国设计出现代交通体系。其他很多概念：电视的标准赫兹，刷频率，PCL制式等概念的设计也都出自美国。
 
+这些宏大先进概念的设计者，是世界秩序和规则的领跑者。
 
-> There’s only one country that can take the lead on holding China accountable for coronavirus and that’s the United States of America. [pic.twitter.com/bMKfrxWRtz](https://t.co/bMKfrxWRtz)
-> — Rep. Brian Mast (@RepBrianMast) [March 13, 2021](https://twitter.com/RepBrianMast/status/1370702429541441542?ref_src=twsrc%5Etfw)
+无懈可击才是完美的设计师。纳瓦罗先生设计的连环经济政策是依据最真实的情报数据，用逻辑链和数理功底做出来的。就像写代码，他的代码是行政命令和组织架构，优化后结合资金，依据各方情报真实数据，每一个行政命令引用4、5个甚至5、6个法律。破行政命令要先破这些法律。拜登政府再找别的经济学家来讨论，发现还是这个大师级的概念最好。除非拜登不想当总统了，就全盘否定。
 
+中国经济，邓小平先生没有设计出一个科学的体系，他说的是黑猫白猫，抓到老鼠是能猫的俗语；或者哪个领导想今年主抓什么就去抓；或者哪里需要救火就去救哪里，没有一个几十年的概念体系。导致全国的生意人也是这样没有体系，人人都是救火队长。前苏联、德国、日本有自己体系设计，但是几十年后发现，不如美国的好。中国急需一个金融体系的概念，才能建立科学的经济体系。
 
+总之，纳瓦罗已经设计了一套加关税和中美脱钩的经济方案，而看起来中国政府没有先进的经济体系。靠金灿荣这些所谓的文科经济学博士的嘴吹不出强健的综合国力。拜登当上总统有权利看到全面的情报，他的政府在检查纳瓦罗的设计概念是否完美。在川普总统宣布强势回归后，民意影响和政绩心理催促，看起来已经让拜登政府抢先川普总统更快实行中美脱钩。
 
-3月12日，《福克斯朋友优先》推文引用布莱恩议员的话，“他们确实需要被追究责任。”@Brian Mast议员 告诉 #FoxFriendsFirst 美国应该扣留对中国的债务支付，直到COVID-19问题得到回答。议员先生称，我们需要向中共国追责，他们需要回答病毒是不是来源于武汉病毒实验室？那里发生了什么？他们掩盖了什么？他们和世卫组织掩盖了什么？
+*注：文中很多观点引自2021**年3**月2**路安墨谈*
 
+编辑：雪山
 
-
-> “They do need to be held accountable”: [@RepBrianMast](https://twitter.com/RepBrianMast?ref_src=twsrc%5Etfw) tells [#FoxFriendsFirst](https://twitter.com/hashtag/FoxFriendsFirst?src=hash&amp;ref_src=twsrc%5Etfw) the U.S. should withhold debt payments to China until COVID-19 questions are answered.[https://t.co/OLiyRP3MuD](https://t.co/OLiyRP3MuD)
-> — Fox & Friends First (@FoxFriendsFirst) [March 12, 2021](https://twitter.com/FoxFriendsFirst/status/1370413052814897153?ref_src=twsrc%5Etfw)
-
-
-
-
-
-#### 我们的自由不由政府决定
-
-3月12日前国务卿蓬佩奥先生就拜登在公开讲话时的言论表示抗议，拜登要求人们都去接种疫苗、从而在今年国庆节可以和家人邻居亲朋聚会聚餐。蓬佩奥先生称：“在7月4日，我们庆祝美国和我们的许多自由。自由其中之一就是，你可以决定是否你想和家人朋友在你自己的后院，而不是由政府决定。”
+发布：GLC
 
 
 
-> On the 4th of July, we celebrate America and our many freedoms. One of those freedoms is that YOU get to decide if you want to have family and friends over in your own backyard, NOT the government. [https://t.co/xl1ovY9sef](https://t.co/xl1ovY9sef)
-> — Mike Pompeo (@mikepompeo) [March 12, 2021](https://twitter.com/mikepompeo/status/1370390033597935617?ref_src=twsrc%5Etfw)
-
-
-
-#### 性贩运
-
-3月12日鲁迪-朱利安尼先生推文称：今天的节目揭露了美国黑暗的性交易黑幕。
-@BooyensJaco 解释了性贩运如何成为一种流行病，现在伴随着美国-墨西哥边境的疫情和危机，已经达到了前所未有的水平。
-
-
-
-> 🚨 Today’s episode exposes the dark underworld of sex trafficking in the US. [@BooyensJaco](https://twitter.com/BooyensJaco?ref_src=twsrc%5Etfw) explains how sex trafficking has become an epidemic and now, with the pandemic and crisis at the US-Mexico border, has reached unprecedented levels.
-> 
-> Here: [https://t.co/APgb2Du8kc](https://t.co/APgb2Du8kc) [pic.twitter.com/5pMhlzSpXL](https://t.co/5pMhlzSpXL)
-> — Rudy W. Giuliani (@RudyGiuliani) [March 12, 2021](https://twitter.com/RudyGiuliani/status/1370454178838016006?ref_src=twsrc%5Etfw)
-
-
-[https://rumble.com/vekwsd-the-dark-underworld-of-sex-trafficking-in-the-u.s.-rudy-giuliani-and-jaco-b.html](https://rumble.com/vekwsd-the-dark-underworld-of-sex-trafficking-in-the-u.s.-rudy-giuliani-and-jaco-b.html)
-#### 中共病毒疫情的又一次生灾难
-
-据《Just The News》， 研究人员警告说，在冠状病毒大流行的过程中，口罩的大量使用可能会导致一场迫在眉睫的环境灾难，每分钟都有三百万个口罩被使用，其中许多口罩在使用过程中会污染当地的生态系统。
-
-[https://justthenews.com/politics-policy/coronavirus/3-million-masks-used-globally-every-minute-researchers-warn](https://justthenews.com/politics-policy/coronavirus/3-million-masks-used-globally-every-minute-researchers-warn)
-
-
-
-#### 史上最糟糕演说
-
-
-
-> "WORST. SPEECH. EVER." | [@gregkellyusa](https://twitter.com/gregkellyusa?ref_src=twsrc%5Etfw) tears through Biden's 'stupid, phony, typical-politician, and downright weird' national address. [https://t.co/3UPfQPlVZW](https://t.co/3UPfQPlVZW)
-> — Newsmax (@newsmax) [March 13, 2021](https://twitter.com/newsmax/status/1370547661036748807?ref_src=twsrc%5Etfw)
-
-
-
-12日Newsmax 主播 格雷格-凯里（Greg Kelly）对11日晚拜登的总统讲话讽刺挖苦得淋漓尽致，从拜登谈口罩、谈疫情、疫苗等问题一一回击、嘲讽，称他是“愚蠢、虚伪的典型政客, 彻头彻尾怪异，而对川普总统的支持溢于言表。
-
-
-
-（本文当日持续更新中）
-
-
-
-文章观点部分仅代表作者本人。
-
-
-
-编辑：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。
-
-
-
-+1
+0
