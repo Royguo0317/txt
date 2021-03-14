@@ -1,96 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0313.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/972447/)
+## 前美国政府官员：中共病毒爆发来自实验室生物武器研究
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/973871/)
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0313.jpeg)
+**撰稿人：西班牙巴塞喜悦农场 **wenwu
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image0-34.jpg)**`图片来自推特`**
+中共病毒真相临近柳暗花明的一天，正是爆料革命的战友推进了事实水落石出的速度。火来战友在推特上发布推文，闫丽梦科学家转发。其内容为一篇发表于一天前的福克斯新闻的新闻链接。另外，川普的私人律师朱利安尼先生也在推特上**`发布`**该篇新闻的链接。
 
+**简评**
+**`视频来源于闫丽梦科学家的推特转发`**
+**“余茂春在今天的讨论中说必须找出病毒真相，提出了全世界应该找中共索赔reparation，这个词估计今后会经常出现”**这是该推特的内容，视频更告诉了公众**“更加的险恶的是中共从一开始就是知道病毒的来源，更故意掩盖当地病毒信息”**。这是天经地义的，中共政府必须为这次人类历史性的流行疫情完全负责，该推特得到了闫丽梦博士的转发。
 
-#### 向中共国追责
+比中共病毒真相更更加险恶的是对人类进行群体疫苗实验造成的二次人类生存危机。不管你愿不愿意承认，人类已经变成实验室的白老鼠，好像“武毒所”的蝙蝠一样，人类的生命已经被一个黑手所玩弄，我们必须制止它。每个地方都有因为打疫苗而死亡的事件发生，死者家属对疫苗也提起诉讼。据3月13日《信息战》的**`报道`**，*安东尼·福奇令人震惊的承认，即mRNA疫苗正被用于[全球人口实验](https://cantcensortruth.com/watch?id=604c14a18dc93040dd5756e9)。*
 
-3月13日弗罗里达众议员布莱恩-马斯特再次转发他在接受福克斯新闻采访时的谈话，他提到“停止向中（共）国支付债务直到他们就病毒的问题做出回答。”他表示，中共的问题涉及很多国家，但是“只有一个国家能够领导（带头）就冠状病毒向中共追责，这就是美国。没有其他哪个国家可以领导。”
+在该报道中提到就在几天前，一名“健康、快乐和活跃的”的犹他州母亲在接种[Moderna疫苗几天后](https://www.infowars.com/posts/utah-mom-39-dies-days-after-receiving-second-dose-of-moderna-vaccine/)去世。我们爆料革命有一个共识：推动这些一切惨绝人寰的事情发生的，都来源于有“反人类罪”、“种族灭绝罪”标签的中共政府，还有他的合作伙伴比尔·盖茨、安东尼、福奇等。
 
-议员先生的讲话让笔者仿佛看到当年正义附身血气方刚的美国回来了。
+最后希望能尽早在“疫苗战”上，彻底看清了这个世界为了金钱已经对人类进行无耻的杀戮。
 
+**原文翻译**
 
+**大卫·阿什认为，这种病毒可能是武汉病毒研究所中国军方研究的结果**
 
-> There’s only one country that can take the lead on holding China accountable for coronavirus and that’s the United States of America. [pic.twitter.com/bMKfrxWRtz](https://t.co/bMKfrxWRtz)
-> — Rep. Brian Mast (@RepBrianMast) [March 13, 2021](https://twitter.com/RepBrianMast/status/1370702429541441542?ref_src=twsrc%5Etfw)
+**新闻来源：**《福克斯》｜**作者：**詹妮弗·格妮芬｜**发布时间：**一天前
 
+当美国高级官员准备在[拜登政府](https://www.foxnews.com/category/person/joe-biden)期间与[中共国](https://www.foxnews.com/category/world/world-regions/china)同行举行首次面对面会面时，负责监督特别工作组进入中共病毒起源的国务院前首席调查员告诉福克斯新闻，他不仅认为该病毒从武汉病毒研究所逃脱，而且可能是中共国军队或解放军正在对生物武器进行的研究的结果。
 
+现任哈德逊研究所高级研究员**大卫·阿什**在接受福克斯新闻采访时表示，武汉病毒研究所不是国家卫生研究院。它正在运行一个秘密的机密程序。在我看来，我只是一个人，我的观点是这是一个生物武器计划。”
 
-3月12日，《福克斯朋友优先》推文引用布莱恩议员的话，“他们确实需要被追究责任。”@Brian Mast议员 告诉 #FoxFriendsFirst 美国应该扣留对中国的债务支付，直到COVID-19问题得到回答。议员先生称，我们需要向中共国追责，他们需要回答病毒是不是来源于武汉病毒实验室？那里发生了什么？他们掩盖了什么？他们和世卫组织掩盖了什么？
+长期以来，阿什一直是一个“追踪资金流动”的人，曾在民主党和共和党政府执政期间为国务院和财政部进行一些最机密的情报调查。他领导了一个团队，揭露了巴基斯坦核计划之父AQ Khan运营的国际核采购网络，并揭露了朝鲜秘密铀浓缩的关键部分。他认为，在过去的14个月里，中国共产党参与了大规模的掩盖行动。
 
+阿什在[哈德逊研究所](https://www.youtube.com/watch?v=Ltxwq1-UXwc)的小组讨论中说，如果你像我一样认为这可能是一个武器载体出错，不是故意释放，而是在开发中，然后以某种方式泄露了，这已成为历史上最伟大的武器[：中共病毒的起源：政策影响和对未来的教训](https://www.youtube.com/watch?v=Ltxwq1-UXwc)。你已经占了全球GDP的15%至20%。你杀死了数百万人。中国人口几乎没有受到影响。他们的经济重新回到整个G20的第一。”
 
+阿什说，中共国政府的行为让他想起了他监督的其他刑事调查。
 
-> “They do need to be held accountable”: [@RepBrianMast](https://twitter.com/RepBrianMast?ref_src=twsrc%5Etfw) tells [#FoxFriendsFirst](https://twitter.com/hashtag/FoxFriendsFirst?src=hash&amp;ref_src=twsrc%5Etfw) the U.S. should withhold debt payments to China until COVID-19 questions are answered.[https://t.co/OLiyRP3MuD](https://t.co/OLiyRP3MuD)
-> — Fox & Friends First (@FoxFriendsFirst) [March 12, 2021](https://twitter.com/FoxFriendsFirst/status/1370413052814897153?ref_src=twsrc%5Etfw)
+动机、掩盖、阴谋，所有罪恶的特征都与此有关。在2003年SARS爆发期间，阿什说，最初的受害者群围绕着进行高度危险（如果不是可疑）研究的机构，这一事实意义重大。”他在2003年SARS爆发期间聘请中共国政府担任国务院的主要代表。
 
+起初，中国表示中共病毒起源于武汉海鲜市场——但中国理论存在问题：第一种病例与市场无关。去年秋天，美国获得的情报表明，在中共国报告首例病例之前，几位武汉实验室科学家爆发了流感样症状，导致他们住院治疗。阿什和其他哈德逊研究所专家小组专家表示，2007年，中共国宣布将开始研究遗传生物武器，利用有争议的“功能获得”研究，使病毒更具杀伤力。
 
+2016年，中共停止了在武汉实验室公开谈论他们的研究。阿什认为，这是中共解放军介入，从生物防御研究转向生物攻击的时候。同年，中国顶级国家电视台评论员表示：
 
+“我们已经进入了一个中共国生物战的领域，包括使用病毒等东西。我的意思是，他们向人民公开声明，这是习近平国家安全政策下的新优先事项。”阿什指出。
 
+据阿什说，2017年，中共停止公开谈论冠状病毒“可用于武器的病媒”的研究，与此同时，其军方开始资助武汉病毒研究所的研究。
 
-#### 我们的自由不由政府决定
+阿什说，“我怀疑这不是巧合。”
 
-3月12日前国务卿蓬佩奥先生就拜登在公开讲话时的言论表示抗议，拜登要求人们都去接种疫苗、从而在今年国庆节可以和家人邻居亲朋聚会聚餐。蓬佩奥先生称：“在7月4日，我们庆祝美国和我们的许多自由。自由其中之一就是，你可以决定是否你想和家人朋友在你自己的后院，而不是由政府决定。”
+与此同时，美国生物武器研究人员仍然主要关注炭疽等较旧的生物武器。在寻找如何防御冠状病毒生物武器的一个关键转折点包括有争议的“功能获取”研究和荷兰的突破，这让科学界感到惊讶。
 
+奥巴马总统领导下负责核生化防御计划的前助理国防部长安迪·韦伯回忆说，我记得在海牙与荷兰外交部会面，当时有消息称，由国立卫生研究院资助的荷兰一家实验室正在对高致病性禽流感进行功能研究，特别是为了提高这种非常危险的流感病毒的传染性。
 
+奥巴马政府迅速暂停了此类研究，担心它可能会成为恐怖分子的战术手册。川普政府于2017年解除了暂停令，但在疫情开始后，于2020年4月停止了NIH对武汉实验室的资助。
 
-> On the 4th of July, we celebrate America and our many freedoms. One of those freedoms is that YOU get to decide if you want to have family and friends over in your own backyard, NOT the government. [https://t.co/xl1ovY9sef](https://t.co/xl1ovY9sef)
-> — Mike Pompeo (@mikepompeo) [March 12, 2021](https://twitter.com/mikepompeo/status/1370390033597935617?ref_src=twsrc%5Etfw)
+据专家称，长期以来，生物安全一直是中共国生物安全四级实验室关注的问题。
 
+据国务院官员余茂春表示，自2003年SARS爆发以来，中共国一直参与此类病毒研究。他最近在《华尔街日报》上与前国务卿迈克·蓬佩奥共同撰写了一篇关于病毒起源的专栏文章。“中共国的生物安全标准确实很低，非常危险。所以这是一场必然发生的事故。”
 
+当世卫组织派往武汉的团队在2月份访问武汉病毒研究所时，他们没有穿上生物安全服，在里面呆了3个小时，但据报道，他们无法接触到科学家或数据，以完全排除病毒从实验室逃跑。
 
-#### 性贩运
+当时中国外交部发言人汪文斌表示 ： “ 应当指出，病毒溯源是一个复杂的科学问题，我们需要为专家提供足够的空间进行科学研究 。 ”他补充说 ： “ 中共国将继续以公开、透明和负责任的方式与世卫组织合作，为更好地防范未来风险，保护各国人民的生命健康做出贡献 。 ”
 
-3月12日鲁迪-朱利安尼先生推文称：今天的节目揭露了美国黑暗的性交易黑幕。
-@BooyensJaco 解释了性贩运如何成为一种流行病，现在伴随着美国-墨西哥边境的疫情和危机，已经达到了前所未有的水平。
+*詹妮弗·格里芬目前担任福克斯新闻频道的国家安全记者。她于1999年10月加入FNC，担任驻耶路撒冷记者。你可以在推特上关注她[@JenGriffinFNC](https://twitter.com/JenGriffinFNC)*
 
-
-
-> 🚨 Today’s episode exposes the dark underworld of sex trafficking in the US. [@BooyensJaco](https://twitter.com/BooyensJaco?ref_src=twsrc%5Etfw) explains how sex trafficking has become an epidemic and now, with the pandemic and crisis at the US-Mexico border, has reached unprecedented levels.
-> 
-> Here: [https://t.co/APgb2Du8kc](https://t.co/APgb2Du8kc) [pic.twitter.com/5pMhlzSpXL](https://t.co/5pMhlzSpXL)
-> — Rudy W. Giuliani (@RudyGiuliani) [March 12, 2021](https://twitter.com/RudyGiuliani/status/1370454178838016006?ref_src=twsrc%5Etfw)
-
-
-[https://rumble.com/vekwsd-the-dark-underworld-of-sex-trafficking-in-the-u.s.-rudy-giuliani-and-jaco-b.html](https://rumble.com/vekwsd-the-dark-underworld-of-sex-trafficking-in-the-u.s.-rudy-giuliani-and-jaco-b.html)
-#### 中共病毒疫情的又一次生灾难
-
-据《Just The News》， 研究人员警告说，在冠状病毒大流行的过程中，口罩的大量使用可能会导致一场迫在眉睫的环境灾难，每分钟都有三百万个口罩被使用，其中许多口罩在使用过程中会污染当地的生态系统。
-
-[https://justthenews.com/politics-policy/coronavirus/3-million-masks-used-globally-every-minute-researchers-warn](https://justthenews.com/politics-policy/coronavirus/3-million-masks-used-globally-every-minute-researchers-warn)
-
-
-
-#### 史上最糟糕演说
-
-
-
-> "WORST. SPEECH. EVER." | [@gregkellyusa](https://twitter.com/gregkellyusa?ref_src=twsrc%5Etfw) tears through Biden's 'stupid, phony, typical-politician, and downright weird' national address. [https://t.co/3UPfQPlVZW](https://t.co/3UPfQPlVZW)
-> — Newsmax (@newsmax) [March 13, 2021](https://twitter.com/newsmax/status/1370547661036748807?ref_src=twsrc%5Etfw)
-
-
-
-12日Newsmax 主播 格雷格-凯里（Greg Kelly）对11日晚拜登的总统讲话讽刺挖苦得淋漓尽致，从拜登谈口罩、谈疫情、疫苗等问题一一回击、嘲讽，称他是“愚蠢、虚伪的典型政客, 彻头彻尾怪异，而对川普总统的支持溢于言表。
-
-
-
-（本文当日持续更新中）
-
-
-
-文章观点部分仅代表作者本人。
-
-
-
-编辑：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。
-
-
+🔗**[原文链接](https://www.foxnews.com/world/top-state-official-coronavirus-bioweapon-accident)**
 
 +1

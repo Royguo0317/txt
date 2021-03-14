@@ -1,35 +1,96 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国外交大臣多米尼克·拉布指控中共严重违反《中英联合声明》
-` 喜马拉雅大使馆-经济金融组` [轉載自GNews](https://gnews.org/zh-hans/973772/)
+## 美国政要等每日重要信息0313.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/972447/)
 
-编撰：WLQF
-![]()![](https://gnews.org/wp-content/uploads/2021/03/截屏2021-03-14-上午8.24.05.png)中共第十三届全国人大四次会议
-**序言：中共第十三届全国人大四次会议****11****日下午以****2895****票赞成丶****0****票反对丶****1****票弃权，表决通过了《完善香港特别行政区选举制度的决定（草案）》，增加了选委会与立法会的席次来提升****“****爱国者****”****占有的席次。这是继去年****6****月香港《国安法》后，全国人大对香港推行的又一项重大举措。该举措将加强中央对香港的控制，标志着香港的政治体制进入新的阶段。**
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0313.jpeg)
 
-英国外交大臣多米尼克-拉布近日表示，对北京持续不遵守1984年中英双方签订的《中英联合声明》的内容感到愧疚与震惊。多米尼克-拉布的此番表态标志着伦敦和北京之间的外交紧张关系进一步升级与恶化。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/截屏2021-03-14-上午8.21.41-1.png)多米尼克-拉布（Dominic Raab）指责中共违反了有关香港治理的法律协议，因为越来越多的人批评北京试图加强对香港的控制。
+#### 向中共国追责
 
-在外交紧张局势的重大升级中，这位外交大臣表示，英国认为中共处于 “持续不遵守 “中英联合声明的状态，他谴责北京决定减少公众在挑选香港领导人方面的作用。中共已将权力交给一个亲北京的委员会，该委员会将任命更多的理事会成员。
+3月13日弗罗里达众议员布莱恩-马斯特再次转发他在接受福克斯新闻采访时的谈话，他提到“停止向中（共）国支付债务直到他们就病毒的问题做出回答。”他表示，中共的问题涉及很多国家，但是“只有一个国家能够领导（带头）就冠状病毒向中共追责，这就是美国。没有其他哪个国家可以领导。”
 
-拉布说，此举是在不到九个月的时间里第三次违反具有法律约束力的联合声明，是 “旨在骚扰和扼杀所有批评中国政策的声音 “的一部分。北京决定进行激进的改变，限制参与香港的选举制度，这进一步明显违反了具有法律约束力的中英联合声明。
+议员先生的讲话让笔者仿佛看到当年正义附身血气方刚的美国回来了。
 
-“中国当局的持续行动意味着我现在必须报告，英国认为北京处于持续不遵守联合声明的状态–这表明北京的承诺与其行动之间的差距越来越大，”拉布表示。
 
-“英国将继续站在香港人的立场上。中共必须按照其法律义务行事，尊重香港的基本权利和自由。”自从中国在香港实施新的国家安全法，使其更容易钳制抗议者以来，紧张局势不断加剧。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/截屏2021-03-14-上午8.25.31.png)1984年12月19日由中国国务院总理赵紫阳与英国首相玛格丽特·撒切尔作为两国政府首脑在中华人民共和国首都北京签订《中英联合声明》
-**《中英联合声明》（****Sino-British Joint Declaration****），是中华人民共和国政府与大不列颠及北爱尔兰联合王国政府就香港问题共同发表的一份声明，于****1984****年****12****月****19****日由中国国务院总理赵紫阳与英国首相玛格丽特****·****撒切尔作为两国政府首脑在中华人民共和国首都北京签订。**当时中共中央顾问委员会主任邓小平、中国国家主席李先念、中国国务委员吴学谦、英国外交大臣杰弗里·豪等也有在场见证。1985年4月10日，中国第六届全国人民代表大会第三次会议作出批准《中英联合声明》的决定。两国政府在1985年5月27日互相交换批准书，并向联合国秘书处登记，《中英联合声明》正式生效，也象征历时12年之香港过渡时期的开始。
 
-该声明指出：“收回香港地区（包括香港岛、九龙和‘新界’）是全中国人民的共同愿望，中华人民共和国政府决定于1997年7月1日对香港恢复行使主权。联合王国政府于1997年7月1日将香港交还给中华人民共和国。”
+> There’s only one country that can take the lead on holding China accountable for coronavirus and that’s the United States of America. [pic.twitter.com/bMKfrxWRtz](https://t.co/bMKfrxWRtz)
+> — Rep. Brian Mast (@RepBrianMast) [March 13, 2021](https://twitter.com/RepBrianMast/status/1370702429541441542?ref_src=twsrc%5Etfw)
 
-声明也列出了中华人民共和国对香港的基本方针，在“一国两制”的原则下，中华人民共和国政府会确保其社会主义制度不会在香港特别行政区实行，香港本身的资本主义制度和生活方式维持“五十年不变”，保障人身、言论、出版、集会、结社、旅行、迁徙、通信、罢工、选择职业和学术研究以及宗教信仰等各项权利和自由。这些基本政策，后来都由《香港特别行政区基本法》加以规定，香港特区政府在1997年7月1日成立后曾多次强调坚决贯彻落实《中英联合声明》，并切实遵守“一国两制”的原则。
 
-**拉布强调，英国政府一直坚持认为必须保护香港的重大自治和自由，并呼吁中国和香港当局恢复对香港政治机构的信心，结束对那些促进民主价值、捍卫权利和自由的人的无理压迫****“****。**拉布对北京持续破坏香港自治做法的批评与喊话得到了G7国家集团外长们的支持。他们对香港选举制度中的民主元素明显受到侵蚀表示担忧。
 
-此外，欧盟周五（北京时间3月12日）也提出了对中共进一步破坏香港自治的关注。欧盟高级代表兼副主席博雷尔（Josep Borrell）表示，中共 “有意识地拆解’一国两制’原则，违反其国际承诺和香港基本法”。与此同时，澳大利亚和新西兰也分别提出了关切。
+3月12日，《福克斯朋友优先》推文引用布莱恩议员的话，“他们确实需要被追究责任。”@Brian Mast议员 告诉 #FoxFriendsFirst 美国应该扣留对中国的债务支付，直到COVID-19问题得到回答。议员先生称，我们需要向中共国追责，他们需要回答病毒是不是来源于武汉病毒实验室？那里发生了什么？他们掩盖了什么？他们和世卫组织掩盖了什么？
 
-但由亲共派林郑月娥领导的香港政府却表示，强烈反对质疑中共坚持 “一国两制 “的言论，称这是 “毫无根据的指责”，称 “政治体制是中央事权，而选举制度是其重要的组成部分”。她重申，人大的决定“完全合宪、合法”，并指出，已经留意到决定做出的主要改变，并将全面配合有关修订工作，依照经修改的附件一和附件二全力推动修改本地相关选举法律的工作。
 
-0
+
+> “They do need to be held accountable”: [@RepBrianMast](https://twitter.com/RepBrianMast?ref_src=twsrc%5Etfw) tells [#FoxFriendsFirst](https://twitter.com/hashtag/FoxFriendsFirst?src=hash&amp;ref_src=twsrc%5Etfw) the U.S. should withhold debt payments to China until COVID-19 questions are answered.[https://t.co/OLiyRP3MuD](https://t.co/OLiyRP3MuD)
+> — Fox & Friends First (@FoxFriendsFirst) [March 12, 2021](https://twitter.com/FoxFriendsFirst/status/1370413052814897153?ref_src=twsrc%5Etfw)
+
+
+
+
+
+#### 我们的自由不由政府决定
+
+3月12日前国务卿蓬佩奥先生就拜登在公开讲话时的言论表示抗议，拜登要求人们都去接种疫苗、从而在今年国庆节可以和家人邻居亲朋聚会聚餐。蓬佩奥先生称：“在7月4日，我们庆祝美国和我们的许多自由。自由其中之一就是，你可以决定是否你想和家人朋友在你自己的后院，而不是由政府决定。”
+
+
+
+> On the 4th of July, we celebrate America and our many freedoms. One of those freedoms is that YOU get to decide if you want to have family and friends over in your own backyard, NOT the government. [https://t.co/xl1ovY9sef](https://t.co/xl1ovY9sef)
+> — Mike Pompeo (@mikepompeo) [March 12, 2021](https://twitter.com/mikepompeo/status/1370390033597935617?ref_src=twsrc%5Etfw)
+
+
+
+#### 性贩运
+
+3月12日鲁迪-朱利安尼先生推文称：今天的节目揭露了美国黑暗的性交易黑幕。
+@BooyensJaco 解释了性贩运如何成为一种流行病，现在伴随着美国-墨西哥边境的疫情和危机，已经达到了前所未有的水平。
+
+
+
+> 🚨 Today’s episode exposes the dark underworld of sex trafficking in the US. [@BooyensJaco](https://twitter.com/BooyensJaco?ref_src=twsrc%5Etfw) explains how sex trafficking has become an epidemic and now, with the pandemic and crisis at the US-Mexico border, has reached unprecedented levels.
+> 
+> Here: [https://t.co/APgb2Du8kc](https://t.co/APgb2Du8kc) [pic.twitter.com/5pMhlzSpXL](https://t.co/5pMhlzSpXL)
+> — Rudy W. Giuliani (@RudyGiuliani) [March 12, 2021](https://twitter.com/RudyGiuliani/status/1370454178838016006?ref_src=twsrc%5Etfw)
+
+
+[https://rumble.com/vekwsd-the-dark-underworld-of-sex-trafficking-in-the-u.s.-rudy-giuliani-and-jaco-b.html](https://rumble.com/vekwsd-the-dark-underworld-of-sex-trafficking-in-the-u.s.-rudy-giuliani-and-jaco-b.html)
+#### 中共病毒疫情的又一次生灾难
+
+据《Just The News》， 研究人员警告说，在冠状病毒大流行的过程中，口罩的大量使用可能会导致一场迫在眉睫的环境灾难，每分钟都有三百万个口罩被使用，其中许多口罩在使用过程中会污染当地的生态系统。
+
+[https://justthenews.com/politics-policy/coronavirus/3-million-masks-used-globally-every-minute-researchers-warn](https://justthenews.com/politics-policy/coronavirus/3-million-masks-used-globally-every-minute-researchers-warn)
+
+
+
+#### 史上最糟糕演说
+
+
+
+> "WORST. SPEECH. EVER." | [@gregkellyusa](https://twitter.com/gregkellyusa?ref_src=twsrc%5Etfw) tears through Biden's 'stupid, phony, typical-politician, and downright weird' national address. [https://t.co/3UPfQPlVZW](https://t.co/3UPfQPlVZW)
+> — Newsmax (@newsmax) [March 13, 2021](https://twitter.com/newsmax/status/1370547661036748807?ref_src=twsrc%5Etfw)
+
+
+
+12日Newsmax 主播 格雷格-凯里（Greg Kelly）对11日晚拜登的总统讲话讽刺挖苦得淋漓尽致，从拜登谈口罩、谈疫情、疫苗等问题一一回击、嘲讽，称他是“愚蠢、虚伪的典型政客, 彻头彻尾怪异，而对川普总统的支持溢于言表。
+
+
+
+（本文当日持续更新中）
+
+
+
+文章观点部分仅代表作者本人。
+
+
+
+编辑：康州盘古农场 喜马拉雅的文雅
+
+封面：康州盘古农场 霹雳年
+
+《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。
+
+
+
++1
