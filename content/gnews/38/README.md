@@ -1,33 +1,96 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】港共疫苗顾问 专家委员许树昌教授 选种 BioNTech
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/973809/)
+## 美国政要等每日重要信息0313.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/972447/)
 
-搜集 / 编撰：恩典
-![]()![](https://gnews.org/wp-content/uploads/2021/03/sapo.png)图片来源：苹果日报
-**据（苹果日报讯）武肺疫苗上月26日开始接种，德国BioNTech研发的复必泰疫苗亦已于本月10日开打，但政府力谷的国产科兴，至今有6人在接种科兴后死亡。上月16日，疫苗顾问专家委员会以「效益大于风险」为由为科兴开绿灯，委员之一许树昌会上表示相信科兴很快会提交数据，「相信他一定出到（期刊）」，但过程需时，故认为不需要等。**
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0313.jpeg)
 
-港大袁教授出针出力，中大医学院院长陈家亮教授即率领多位教授，率先在中大医院接种疫苗，以为鼓励市民考虑接种。有份打针的，包括肿瘤学系系主任莫树锦教授、医学院助理院长（校友事务）容树恒教授，还有内科及药物治疗学系系主任许树昌教授等等。那中大医院可以接种边种疫苗呢？答案是：BioNTech。
 
-身为疫苗顾问专家委员会委员，许树昌教授曾被问过有关科兴疫苗有效率远低于其他这个问题，当时许教授话医学界一般不会比较不同疫苗的保护率，因为各种疫苗测试的参与者、接种时间和地点都不同，「苹果同橙你不可以这样去比较，你不会用同一班人去试同一样的药物，一般都不会这样计算。」
+#### 向中共国追责
 
-当时记者再追问教授会不会接种科兴疫苗以增加市民信心，许就话「私人问题不好答，不应该将这个问题政治化」，而现在终于有答案了。
+3月13日弗罗里达众议员布莱恩-马斯特再次转发他在接受福克斯新闻采访时的谈话，他提到“停止向中（共）国支付债务直到他们就病毒的问题做出回答。”他表示，中共的问题涉及很多国家，但是“只有一个国家能够领导（带头）就冠状病毒向中共追责，这就是美国。没有其他哪个国家可以领导。”
 
-**战友点评：**
+议员先生的讲话让笔者仿佛看到当年正义附身血气方刚的美国回来了。
 
-我们来温故而知新，中共科兴疫苗在没有任何充足理据的前提下，因政治任务所需，林郑政府所谓的12位疫苗专家委员会2月（16 日）倏忽之间宣布，科兴已补交资料，经审视后一致认为效益比可能风险更高，会推荐予食卫局作紧急使用。而且接种科兴疫苗实施没多久就接二连三出现死亡个案，结果可想而知。
 
-而当时记者问到，疫苗保护率不及 BioNTech 疫苗的 95% 保护率，委员会成员许树昌跳出来反驳不同疫苗不能作比较，引述世卫的最低标准为至少 50 %。他又表示科兴提交予港府的数据充足，不认为要等待第三期报告刊登在医学期刊才作审批，许当天的振振有词，坚定的「舔共奴才」心态展露无疑，从这句话本来了解到，许树昌对港共政府的忠诚无人能比。
 
-想不到有份大力推动中共科兴疫苗的所谓许专家，怎么约定一帮中大医学院院长陈家亮教授即率领多位教授，率先在中大医院接种疫苗，以为鼓励市民考虑接种，有份接种疫苗的，包括肿瘤学系系主任莫树锦教授、医学院助理院长（校友事务）容树恒教授，还有内科及药物治疗学系系主任许树昌教授等等。那中大医院可以接种边种疫苗呢？答案是：BioNTech。
+> There’s only one country that can take the lead on holding China accountable for coronavirus and that’s the United States of America. [pic.twitter.com/bMKfrxWRtz](https://t.co/bMKfrxWRtz)
+> — Rep. Brian Mast (@RepBrianMast) [March 13, 2021](https://twitter.com/RepBrianMast/status/1370702429541441542?ref_src=twsrc%5Etfw)
 
-许教授的言行不一，悄悄走去接种洋人研发的疫苗，而舍弃中共死亡毒针，而中共颜面何在？不选择做针下亡魂机会的科兴疫苗，是明智之举，在港共政府推出科兴疫苗接种实施以来，短短2个星期内，就造成6人因接种疫苗后死亡，多人严重不适，如此的结果普通市民都知道怎么选择，虽然被所谓的专家委员会否认推卸责任掩盖，而且疫苗产生的副作用还是一个未知数，以中共疫苗零研究零出品史，「中共研究制造」不言自明。选举科兴疫苗无疑如同与死神玩抽签，不知道谁还会继续做科兴的「白老鼠」?而「爱共者」的选择只是要为邪恶的中共主子作出「贡献」。
 
-【以上观点仅代表笔者本人】
 
-新闻来源：[苹果日报](https://hk.appledaily.com/local/20210314/TKRZAMBH2REVJJCWT7YIKAOWWA/)
+3月12日，《福克斯朋友优先》推文引用布莱恩议员的话，“他们确实需要被追究责任。”@Brian Mast议员 告诉 #FoxFriendsFirst 美国应该扣留对中国的债务支付，直到COVID-19问题得到回答。议员先生称，我们需要向中共国追责，他们需要回答病毒是不是来源于武汉病毒实验室？那里发生了什么？他们掩盖了什么？他们和世卫组织掩盖了什么？
 
-覆核：心听见 / 上传: 彩虹（ Rainbow )
 
-0
+
+> “They do need to be held accountable”: [@RepBrianMast](https://twitter.com/RepBrianMast?ref_src=twsrc%5Etfw) tells [#FoxFriendsFirst](https://twitter.com/hashtag/FoxFriendsFirst?src=hash&amp;ref_src=twsrc%5Etfw) the U.S. should withhold debt payments to China until COVID-19 questions are answered.[https://t.co/OLiyRP3MuD](https://t.co/OLiyRP3MuD)
+> — Fox & Friends First (@FoxFriendsFirst) [March 12, 2021](https://twitter.com/FoxFriendsFirst/status/1370413052814897153?ref_src=twsrc%5Etfw)
+
+
+
+
+
+#### 我们的自由不由政府决定
+
+3月12日前国务卿蓬佩奥先生就拜登在公开讲话时的言论表示抗议，拜登要求人们都去接种疫苗、从而在今年国庆节可以和家人邻居亲朋聚会聚餐。蓬佩奥先生称：“在7月4日，我们庆祝美国和我们的许多自由。自由其中之一就是，你可以决定是否你想和家人朋友在你自己的后院，而不是由政府决定。”
+
+
+
+> On the 4th of July, we celebrate America and our many freedoms. One of those freedoms is that YOU get to decide if you want to have family and friends over in your own backyard, NOT the government. [https://t.co/xl1ovY9sef](https://t.co/xl1ovY9sef)
+> — Mike Pompeo (@mikepompeo) [March 12, 2021](https://twitter.com/mikepompeo/status/1370390033597935617?ref_src=twsrc%5Etfw)
+
+
+
+#### 性贩运
+
+3月12日鲁迪-朱利安尼先生推文称：今天的节目揭露了美国黑暗的性交易黑幕。
+@BooyensJaco 解释了性贩运如何成为一种流行病，现在伴随着美国-墨西哥边境的疫情和危机，已经达到了前所未有的水平。
+
+
+
+> 🚨 Today’s episode exposes the dark underworld of sex trafficking in the US. [@BooyensJaco](https://twitter.com/BooyensJaco?ref_src=twsrc%5Etfw) explains how sex trafficking has become an epidemic and now, with the pandemic and crisis at the US-Mexico border, has reached unprecedented levels.
+> 
+> Here: [https://t.co/APgb2Du8kc](https://t.co/APgb2Du8kc) [pic.twitter.com/5pMhlzSpXL](https://t.co/5pMhlzSpXL)
+> — Rudy W. Giuliani (@RudyGiuliani) [March 12, 2021](https://twitter.com/RudyGiuliani/status/1370454178838016006?ref_src=twsrc%5Etfw)
+
+
+[https://rumble.com/vekwsd-the-dark-underworld-of-sex-trafficking-in-the-u.s.-rudy-giuliani-and-jaco-b.html](https://rumble.com/vekwsd-the-dark-underworld-of-sex-trafficking-in-the-u.s.-rudy-giuliani-and-jaco-b.html)
+#### 中共病毒疫情的又一次生灾难
+
+据《Just The News》， 研究人员警告说，在冠状病毒大流行的过程中，口罩的大量使用可能会导致一场迫在眉睫的环境灾难，每分钟都有三百万个口罩被使用，其中许多口罩在使用过程中会污染当地的生态系统。
+
+[https://justthenews.com/politics-policy/coronavirus/3-million-masks-used-globally-every-minute-researchers-warn](https://justthenews.com/politics-policy/coronavirus/3-million-masks-used-globally-every-minute-researchers-warn)
+
+
+
+#### 史上最糟糕演说
+
+
+
+> "WORST. SPEECH. EVER." | [@gregkellyusa](https://twitter.com/gregkellyusa?ref_src=twsrc%5Etfw) tears through Biden's 'stupid, phony, typical-politician, and downright weird' national address. [https://t.co/3UPfQPlVZW](https://t.co/3UPfQPlVZW)
+> — Newsmax (@newsmax) [March 13, 2021](https://twitter.com/newsmax/status/1370547661036748807?ref_src=twsrc%5Etfw)
+
+
+
+12日Newsmax 主播 格雷格-凯里（Greg Kelly）对11日晚拜登的总统讲话讽刺挖苦得淋漓尽致，从拜登谈口罩、谈疫情、疫苗等问题一一回击、嘲讽，称他是“愚蠢、虚伪的典型政客, 彻头彻尾怪异，而对川普总统的支持溢于言表。
+
+
+
+（本文当日持续更新中）
+
+
+
+文章观点部分仅代表作者本人。
+
+
+
+编辑：康州盘古农场 喜马拉雅的文雅
+
+封面：康州盘古农场 霹雳年
+
+《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。
+
+
+
++1
