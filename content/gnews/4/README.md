@@ -1,96 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0313.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/972447/)
+## 文贵先生3🈷️13日下午盖特文字版&#8212;孝敬与孝顺
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/973866/)
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0313.jpeg)
+**【整理】：左媛**
+这几天太多战友发信息给我，出乎我的意料之外，感谢战友们真挚的感情，令人感动！每个人都面临着人生的生死离别、大灾大难之后，都有大彻大悟。文贵到今年母亲故去两周年时，美国时间3月14日，农历二月初二龙抬头，明天早上直播。原以为随便聊聊，现在感觉一个重担压在了我的肩上，因为国内很多战友给我提出了很多建议和看法，特别是一些老前辈，还有文贵学100年也学不到的中国历史中国文化延续这方面，真的是文贵不行。到目前为止，很多战友意见我还没有觉得可以采纳，但我学到了许多。
+新中国联邦人如何理解“孝敬”，如何对待老人，孝敬和人权的问题，孝敬和孝顺的关系，孝敬和政治和体制的关系，还有人提出“孝敬和科技”的关系……都很好。但文贵对曾经理解的“孝敬和孝顺”，还有共产党所谓的“忠孝”“效忠”，我理解完全不同。
+共产党这个流氓来到中国大地之后，这个黑社会帮派掠夺了中国的一切，以“杀土豪分田地”为由，叫人民都当上主人，最后全中国的土地都归了共产党，然后睡遍了无数中国人的亲老婆亲母亲亲闺女，然后让中国人效忠，孝敬当官的，孝顺当官的，这就诞生了一个新词叫“爹亲娘亲不如党亲”。从尧舜到西周到宋元，从来没人敢这么说过，只有共产党这个王八蛋敢这么说，然后让你孝顺于党，效忠于党。这天下不要脸的嘴脸！中国人可怜到如此，认贼为父，认贼为娘，这是全人类最大的悲哀！我每天给老娘上香时想：这世界上还有我们这样的“祖国”，创造了最文明的“孝敬文化”，竟然也被共产党强奸剥夺篡改了，抢走了土地还不算，还要抢走爹娘的名义和权利。
+明天咱好好聊聊。悲哀的事情是，今天我看了3000多条建议当中，没有一条真的让我感觉到和“新中国联邦”建国之根本——关于如何对待老人和父母——这一点上有任何让我感动的。希望明天大家踊跃发言。明天先播放视频，9:17分文贵出镜，严肃认真地聊。“子不孝都是我的过。”明天好好聊聊，对的20%，不对的80%，你们随时纠正。更重要的是，谈谈“新中国联邦人未来如何面对我们中国人最重要的文化基础”，即家庭文化，父子（女）关系，母子（女）关系，婆媳关系，翁婿关系，姐弟妯娌关系……我要认真聊聊。咬文嚼字之乎者也，俺不会，但我把我的感受感想和亲身经历和兄弟姐妹们聊聊。特别在恶魔当道人类大重启（邪恶大重启和正义大重启）的关键之时，七哥聊聊，我觉得对我们每个人都很重要。
+兄弟姐妹们，明天见！
+2021.3.13于纽约
 
+[https://gtv.org/getter/604d501b607c4240c8b55efd](https://gtv.org/getter/604d501b607c4240c8b55efd)
 
-#### 向中共国追责
+【**责任编辑**】： **Amos文也**
 
-3月13日弗罗里达众议员布莱恩-马斯特再次转发他在接受福克斯新闻采访时的谈话，他提到“停止向中（共）国支付债务直到他们就病毒的问题做出回答。”他表示，中共的问题涉及很多国家，但是“只有一个国家能够领导（带头）就冠状病毒向中共追责，这就是美国。没有其他哪个国家可以领导。”
+【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-议员先生的讲话让笔者仿佛看到当年正义附身血气方刚的美国回来了。
+**欢迎战友加入旧金山金喜农场**
 
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
 
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
 
-> There’s only one country that can take the lead on holding China accountable for coronavirus and that’s the United States of America. [pic.twitter.com/bMKfrxWRtz](https://t.co/bMKfrxWRtz)
-> — Rep. Brian Mast (@RepBrianMast) [March 13, 2021](https://twitter.com/RepBrianMast/status/1370702429541441542?ref_src=twsrc%5Etfw)
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
 
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
 
-
-3月12日，《福克斯朋友优先》推文引用布莱恩议员的话，“他们确实需要被追究责任。”@Brian Mast议员 告诉 #FoxFriendsFirst 美国应该扣留对中国的债务支付，直到COVID-19问题得到回答。议员先生称，我们需要向中共国追责，他们需要回答病毒是不是来源于武汉病毒实验室？那里发生了什么？他们掩盖了什么？他们和世卫组织掩盖了什么？
-
-
-
-> “They do need to be held accountable”: [@RepBrianMast](https://twitter.com/RepBrianMast?ref_src=twsrc%5Etfw) tells [#FoxFriendsFirst](https://twitter.com/hashtag/FoxFriendsFirst?src=hash&amp;ref_src=twsrc%5Etfw) the U.S. should withhold debt payments to China until COVID-19 questions are answered.[https://t.co/OLiyRP3MuD](https://t.co/OLiyRP3MuD)
-> — Fox & Friends First (@FoxFriendsFirst) [March 12, 2021](https://twitter.com/FoxFriendsFirst/status/1370413052814897153?ref_src=twsrc%5Etfw)
-
-
-
-
-
-#### 我们的自由不由政府决定
-
-3月12日前国务卿蓬佩奥先生就拜登在公开讲话时的言论表示抗议，拜登要求人们都去接种疫苗、从而在今年国庆节可以和家人邻居亲朋聚会聚餐。蓬佩奥先生称：“在7月4日，我们庆祝美国和我们的许多自由。自由其中之一就是，你可以决定是否你想和家人朋友在你自己的后院，而不是由政府决定。”
-
-
-
-> On the 4th of July, we celebrate America and our many freedoms. One of those freedoms is that YOU get to decide if you want to have family and friends over in your own backyard, NOT the government. [https://t.co/xl1ovY9sef](https://t.co/xl1ovY9sef)
-> — Mike Pompeo (@mikepompeo) [March 12, 2021](https://twitter.com/mikepompeo/status/1370390033597935617?ref_src=twsrc%5Etfw)
-
-
-
-#### 性贩运
-
-3月12日鲁迪-朱利安尼先生推文称：今天的节目揭露了美国黑暗的性交易黑幕。
-@BooyensJaco 解释了性贩运如何成为一种流行病，现在伴随着美国-墨西哥边境的疫情和危机，已经达到了前所未有的水平。
-
-
-
-> 🚨 Today’s episode exposes the dark underworld of sex trafficking in the US. [@BooyensJaco](https://twitter.com/BooyensJaco?ref_src=twsrc%5Etfw) explains how sex trafficking has become an epidemic and now, with the pandemic and crisis at the US-Mexico border, has reached unprecedented levels.
-> 
-> Here: [https://t.co/APgb2Du8kc](https://t.co/APgb2Du8kc) [pic.twitter.com/5pMhlzSpXL](https://t.co/5pMhlzSpXL)
-> — Rudy W. Giuliani (@RudyGiuliani) [March 12, 2021](https://twitter.com/RudyGiuliani/status/1370454178838016006?ref_src=twsrc%5Etfw)
-
-
-[https://rumble.com/vekwsd-the-dark-underworld-of-sex-trafficking-in-the-u.s.-rudy-giuliani-and-jaco-b.html](https://rumble.com/vekwsd-the-dark-underworld-of-sex-trafficking-in-the-u.s.-rudy-giuliani-and-jaco-b.html)
-#### 中共病毒疫情的又一次生灾难
-
-据《Just The News》， 研究人员警告说，在冠状病毒大流行的过程中，口罩的大量使用可能会导致一场迫在眉睫的环境灾难，每分钟都有三百万个口罩被使用，其中许多口罩在使用过程中会污染当地的生态系统。
-
-[https://justthenews.com/politics-policy/coronavirus/3-million-masks-used-globally-every-minute-researchers-warn](https://justthenews.com/politics-policy/coronavirus/3-million-masks-used-globally-every-minute-researchers-warn)
-
-
-
-#### 史上最糟糕演说
-
-
-
-> "WORST. SPEECH. EVER." | [@gregkellyusa](https://twitter.com/gregkellyusa?ref_src=twsrc%5Etfw) tears through Biden's 'stupid, phony, typical-politician, and downright weird' national address. [https://t.co/3UPfQPlVZW](https://t.co/3UPfQPlVZW)
-> — Newsmax (@newsmax) [March 13, 2021](https://twitter.com/newsmax/status/1370547661036748807?ref_src=twsrc%5Etfw)
-
-
-
-12日Newsmax 主播 格雷格-凯里（Greg Kelly）对11日晚拜登的总统讲话讽刺挖苦得淋漓尽致，从拜登谈口罩、谈疫情、疫苗等问题一一回击、嘲讽，称他是“愚蠢、虚伪的典型政客, 彻头彻尾怪异，而对川普总统的支持溢于言表。
-
-
-
-（本文当日持续更新中）
-
-
-
-文章观点部分仅代表作者本人。
-
-
-
-编辑：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。
-
-
-
-+1
+0

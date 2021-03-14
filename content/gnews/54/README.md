@@ -1,74 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 常春藤盟校与有军方背景的中共国医疗机构合作
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/972862/)
+## 美国国务院声明谴责中共对香港民主的侵犯
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/972870/)
 
-新闻来源：自由灯塔| 作者：Jack Beyrer| 发布时间：2021年3月10日
+新闻来源：《美国国务院》| 作者：Antony J. Blinken 美国国务卿布林肯| 发布时间：2021年3月11日
 
-翻译/简评：新街口| 校对：SilverSpurs7| 审核：万人往| Page：小六月
+翻译/简评：Victory |校对：感恩 |审核：万人往 |Page：小雨
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Z6g6xlaYNGmGf/images/b286c59f-e6a1-4e70-b3cd-de0b9b3be8fe.png?asset_id=94e67c1f-20d3-4f87-9e62-6f4a0dd324b5&amp;img_etag=%22d90ce393c6ba9746332ac8fee7ba26fb%22&amp;size=2560)](https://spark.adobe.com/page/Z6g6xlaYNGmGf/images/b286c59f-e6a1-4e70-b3cd-de0b9b3be8fe.png?asset_id=94e67c1f-20d3-4f87-9e62-6f4a0dd324b5&amp;img_etag=%22d90ce393c6ba9746332ac8fee7ba26fb%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/SU4IjRKcGa5vQ/images/808774fb-ca8c-4e5c-aa86-c3e3fb0c0d83.jpg?asset_id=df9a39c4-44bb-4b2b-876d-56872ff6598e&amp;img_etag=%2213ab83a3afd5caa55f36697fb743bee1%22&amp;size=2560)](https://spark.adobe.com/page/SU4IjRKcGa5vQ/images/808774fb-ca8c-4e5c-aa86-c3e3fb0c0d83.jpg?asset_id=df9a39c4-44bb-4b2b-876d-56872ff6598e&amp;img_etag=%2213ab83a3afd5caa55f36697fb743bee1%22&amp;size=1024)
 
 **简评：**
 
-**医疗行业是每一个国家最为基础的，也是最为重要的一个行业。医疗行业不仅涉及本国居民的民生健康，而且也汇集了本国居民的各种隐私信息。在医疗行业具有举足轻重地位的常春藤盟校与中共国的大学和医疗机构结成合作伙伴关系，给美国国家安全造成了巨大的风险。**
+自2019年香港民主运动爆发以来，中共暴行已在事实上彻底剥夺了香港的自由和基本人权，大量港人被消失、被自杀。中共在香港的罪行不亚于种族灭绝。非常遗憾的是，包括美国在内的国际社会对此没有任何行动。美国、英国只是象征性的通过了一些法案，但并未采取强有力的实质性措施。导致的结果是，中共变本加厉，释放出新冠病毒，企图加码镇压香港，进而造成病毒全球流行。全世界每个人都在为此付出代价。
 
-**首先，这种合作伙伴关系的建立和发展为中共进行“蓝金黄”和渗透提供了便利。通过各种交流过程中的人与人接触机会，中共的间谍可直接对重要的人物下手进行渗透。**
+中共对香港民主自由的践踏是系统性、有计划地实施的。今天它们公然宣布改变香港选举制度，并宣称所谓“爱国者治港”，其本质是“爱党者治港”，即“共产党治港”。一切承诺和合约在中共眼里都只是约束别人的，它们自己可以随时违背。若美国政府还停留在对中共口头上谴责，恐怕灾难还得继续。面对恶魔，人类需要更多行动而非谴责。
 
-**其次，这种合作关系也为中共盗窃美国医疗科技和美国个人隐私提供了机会。一旦把重要人物通过“蓝金黄”搞定，进而就可以通过要挟、绑架、偷窃和利益输送等各种方法获得重要的科技技术和美国医疗系统的各种数据。中共一直在利用美国的先进医疗科技作恶，这已经众所周知。利用美国技术制造、散播至今仍在伤害全人类的中共病毒就是一个最显著的案例。另外，中共利用非法获得的各种数据影响美国的政治、经济等各个领域的事情也是层出不穷，例如去年利用邮递选票对美国总统大选进行干预。**
-
-**最后，这种合作关系不仅危害了美国安全，也帮助了中共政权对中国人民进行了更加有效、残暴的统治。耶鲁医学院帮助中共给中国人建立了巨大的生物医学信息库，我们可以想象出这个信息库为中共打击异议人士、维护暴力统治和非法器官移植都提供了方便。**
-
-**所以，美国必须重新审视美国大学与中共大学和企业的合作伙伴关系。正如Easton在本文中所总结的：这种伙伴关系是一种正在损害美国国家安全和中国人民利益的交流。**
+[![](https://spark.adobe.com/page/SU4IjRKcGa5vQ/images/1fce326b-cfd6-4503-8fa4-3129e9f815ee?asset_id=5d3c11b4-8254-4b27-9547-6db149dfed67&amp;img_etag=%221318a09234137e93803f6a5d46c6f7d3%22&amp;size=2560)](https://spark.adobe.com/page/SU4IjRKcGa5vQ/images/1fce326b-cfd6-4503-8fa4-3129e9f815ee?asset_id=5d3c11b4-8254-4b27-9547-6db149dfed67&amp;img_etag=%221318a09234137e93803f6a5d46c6f7d3%22&amp;size=1024)
 
 **原文翻译：**
 
-# **常春藤盟校与中共军队相关联的中共国医疗机构结成伙伴关系**
+# **对香港民主的侵犯**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Z6g6xlaYNGmGf/images/d0d39468-4f5a-4dfe-8b5a-924f5ad28532.png?asset_id=04890f09-3acc-4433-8fef-222031f9e67c&amp;img_etag=%22324b6351981d7cd0c21ef5c898c997b6%22&amp;size=2560)](https://spark.adobe.com/page/Z6g6xlaYNGmGf/images/d0d39468-4f5a-4dfe-8b5a-924f5ad28532.png?asset_id=04890f09-3acc-4433-8fef-222031f9e67c&amp;img_etag=%22324b6351981d7cd0c21ef5c898c997b6%22&amp;size=1024)哈佛大学、耶鲁大学和宾夕法尼亚大学医学院与中共相关的大学合作
+美国谴责中共国对香港民主体制的持续攻击。中共国全国人民代表大会今天决定单方面改变香港的选举制度，是对《中英联合声明》承诺的香港人民自治的直接攻击。这些行动通过限制政治参与、减少民主代表和扼杀政治辩论，剥夺了香港人在其治理中的发言权。北京的行动也违背了《基本法》中明确承认香港的选举应向普选迈进的规定。
 
-常春藤盟校和数家医学院正在与中共国支持的机构结成合作伙伴关系，这被认为具有严重的国家安全风险。
+我们呼吁中共国履行其国际义务和承诺，并贯彻执行香港基本法。中共国企图将打压香港的行动说成是“内部事务”，无视北京在《中英联合声明》中作出的承诺，即至少在2047年前维护香港自治和列举的权利和自由。
 
-哈佛大学、耶鲁大学医学院和宾夕法尼亚大学与中共国军队或中国共产党支持的中共国机构结成合作伙伴关系。这些大学与中共国的政治团体针对中共国卫生计划安排了教育计划和合作研究。
+我们呼吁中共国和香港当局允许2021年9月的立法会选举继续进行，并确保以透明和可信的方式纳入所有候选人。我们还呼吁当局释放并撤销跟据《国安法》和其他法律被指控仅因支持选举或表达不同意见的个人的指控。
 
-哈佛大学陈曾熙公共卫生学院与七所中共国大学建立了健康合作伙伴关系，共同专注于学术交流、培训中共国的项目参与者来推动中共国医疗体系的改革。这七所大学中，至少有六所存在严重的安全风险，因为它们与解放军支持的研究项目有关联。
+一个尊重人权、自由和多元化的稳定、繁荣的香港，符合香港、中国大陆和更广泛的国际社会的利益。美国与我们的盟友和伙伴团结一致，为香港人民的权利和自由发声。
 
-这七所中国大学中的三所（四川大学、西安交通大学和清华大学）帮助开发包括中共国核计划在内的国防技术。所有这三所大学都与中共国的网络间谍活动有联系。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Z6g6xlaYNGmGf/images/7bcb6dd8-b9eb-47ff-9035-f2a17af9e212.jpg?asset_id=01f3e89f-848b-4b6a-a88f-782b0898c591&amp;img_etag=%220f3971fc528770d11b2243d5307ef537%22&amp;size=2560)](https://spark.adobe.com/page/Z6g6xlaYNGmGf/images/7bcb6dd8-b9eb-47ff-9035-f2a17af9e212.jpg?asset_id=01f3e89f-848b-4b6a-a88f-782b0898c591&amp;img_etag=%220f3971fc528770d11b2243d5307ef537%22&amp;size=1024)
-
-“2049项目研究所”的中国政策高级主任Ian Easton表示，精英大学在无意间开启了美国与中共国竞争的新战线：医疗保健。这种伙伴关系可能会破坏中美两国患者的隐私。
-
-Easton说：“你可能对中共并不感兴趣，但是中共却对你感兴趣。它希望收集你的所有个人和私人数据，它希望利用你的数据来对抗你、你的价值观和生活方式。发生这种情况的危险是非常现实的。中共对待医学的态度既非良善，也非人性，它对全球生物技术产业的开发利用理应被拒之门外。”
-
-耶鲁医学院与中国深圳市和遍及中国的医院网络建立了长期合作伙伴关系，致力于研究使中国的医疗保健更合理化的方法。耶鲁还帮助建立了一个数据库，该数据库收集了40万中国人的生物医学数据。
-
-宾夕法尼亚大学全球健康中心与北京合作开展自己的计划。宾大的中国麻醉计划与中共国医学研究的顶尖机构之一北京协和医学院合作。该医学院由中共国家卫生委员会直接监督，该委员会负责监督中共国的卫生保健政策。同时该委员会与新疆维吾尔族穆斯林遭受的侵犯人权行为有关。
-
-哈佛大学、耶鲁大学和宾夕法尼亚大学未回应置评请求。
-
-Easton说，这种伙伴关系表明了一种不容忽视的模式：美国一些领先的机构正在参与损害美国国家安全和中国人民利益的交流活动。
-
-Easton说：“虽然过去中美两国的医疗交流似乎可以接受，但从我们眼前的事实出发，今天它们看起来与众不同。中共国政府正在从事种族灭绝的行为，这是危害人类的罪行，这种情况目前还在持续。当今，北京当局是地球上最残暴的、侵犯人权的政权。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/Z6g6xlaYNGmGf/images/ad4b650d-965d-4642-bf12-976e770bb3a7.jpg?asset_id=087fba23-52e2-4b8d-a90b-7011a6dd39c2&amp;img_etag=%228d494e197a15ff5050c3d07241b6c42e%22&amp;size=2560)](https://spark.adobe.com/page/Z6g6xlaYNGmGf/images/ad4b650d-965d-4642-bf12-976e770bb3a7.jpg?asset_id=087fba23-52e2-4b8d-a90b-7011a6dd39c2&amp;img_etag=%228d494e197a15ff5050c3d07241b6c42e%22&amp;size=1024)
-
-这种伙伴关系只是全球卫生和医药领域更大竞争中的一个方面。国家情报总监2月的报告显示，北京的策划人员试图利用美国公民的生物医学数据来损害美国利益。中共国还继续追求“疫苗外交”，通过出售自己的冠状病毒疫苗来换取扩大地缘政治影响力。
-
-有关顶级医学研究机构与中共国合作的启示也更全面地反映了中共国打算如何在与美国的斗争中利用美国的大学。国务院11月的一份报告警告说，中共国已在校园内培养反美情绪。华盛顿1月《自由灯塔报》（Washington Free Beacon）的一份报告发现，通过合作伙伴关系和捐赠，与中共国军方相关的至少8800万美元的资本已进入美国大学。
-
-共和党议员要求提高美国大学与中共国之间关系的透明度。拜登总统推翻了川普政府可以对中共国支持的孔子学院造成打击的行政命令，这些孔子学院通常被用作中共国间谍活动的前哨。
-
-[🔗原文链接](https://freebeacon.com/national-security/ivy-league-colleges-partner-with-chinese-health-institutions-tied-to-military/)
+🔗[原文链接](https://www.state.gov/assault-on-democracy-in-hong-kong/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/Z6g6xlaYNGmGf/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/Z6g6xlaYNGmGf/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/SU4IjRKcGa5vQ/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=2560)](https://spark.adobe.com/page/SU4IjRKcGa5vQ/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
-+1
+0
