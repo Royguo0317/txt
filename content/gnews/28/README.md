@@ -1,47 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共超限战灭港计划（7）五区公投的前因与后果
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/975744/)
+## 共产党真的是把中国人置入到最危险的境界
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/975884/)
 
-搜集/撰文：岁月如歌
+新闻简述：在2021年3月12日的盖特中，郭先生感慨中共病毒动了美国的筋骨，有太多美国人因此恨中国人，因为他们难以分清中共和中国人的区别。中国共产党已经把中国人置于最危险的境地。而只有新中国联邦能给华人带来安全。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_2021-03-12_Getter4.srt.txt)
+**共产党真的是把中国人置入到最危险的境界**
 
-**五区公投的出现并非偶然，也并非只因功能组别议席问题。是香港人自大英殖民地准备回归中国时期就开始了的。香港回归是件大事，香港人认为他们应该可以参与，至少可以提提意见什么的。但是他们被撇在一边，仿佛与他们无关，他们只不过是附属品，是这块土地上的附属品，连同土地一起归还罢了。**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3141.jpg)港人自治是一道防火墙，图片来自世代忏悔录
-港人自治并没有按照承诺写在《中英联合声明》里，而是准备在后来的《基本法》再提。此时英港府改革，在立法局增加了间接选举团，还有按产业及专业划分的功能组别两个团体。并鼓励专业力量多贡献大众，而这专业板块都是有钱人利益集团背景，这安排亲共人士和中共非常喜欢，这为后来的港人自治埋下了祸根。基本法起草时，小圈子（普通人）立法会议席在不少人建议保留至少半数下得以存在。中共不停施压，港人上街游行诉求1988年直选也被港府漠视了。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3142.jpg)图片来自世代忏悔录
-1985年，立法局开始间接选举，英表示香港代议政制可以由港人自己决定，结果惹来中共不满，许家屯电视放话，有些人不按本子办事，我们不能不注意这问题。港人治港承诺受到第一次冲击。中共催促协调，查良镛(草委政制小组港方召集人)：建议希望征得香港人意见后，集中让步讨论以求结果。华叔回应：「任何放弃民主原则的协调，就是背叛。直选是潮流，反对是落后！」
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3143.jpg)图片来自世代忏悔录
-八九六四大屠杀，港人亲见北京政权残暴，对“一国两制”失去信心。政商界却大肆引进中国投资，为争取最惠国待遇和加入世贸营造氛围。有钱人精英趁机赚大钱，基本法初成，港人被迫接受小圈子一席维持到2007年。时任立法局首席议员李鹏飞提出“两局共识政制方案。回归后，首届立法会议席半数由直选产生，第二届开始直选行政长官”，英首相叫他们别奢望，中英双方同意有直通车，但《基本法》在1990年4月拍板时，规定要在2007年后有立法会三分二议员通过再由人大批准，才能直选产生行政长官。 《中英联合声明》的港人治港承诺，又一次受冲击。这过程我们可以看到港人自治是如何一步步被忽悠掉。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3144.jpg)图片来自世代忏悔录
-1991年，英港府引入有限直选议席，让港人抗共意志用选票表达，依然未能解决问题。末代港督彭定康推行政改，惹来中共不满。中共在媒体大肆抹黑彭定康。鲁平(港澳办主任)：「彭定康不顾中英关系的大局，不顾香港几百万同胞的利益，在中英双方为香港政制问题上，谈判进行磋商准备的最后时刻，悍然将其政改方案，刊发在宪报上，这说明英方对中英谈判毫无诚意，并蓄意破坏谈判。彭定康先生将来历史上要成为香港的千古罪人」，中共对他国不满从来都是抹黑当事人攻击当事人，以公对私进行人身攻击，这两年我们都见证班农先生，彭培澳先生等美国政要是如何被中共辱骂抹黑的。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3145.jpg)图片来自世代忏悔录
-骂了彭定康还不算，中共另起炉灶组建临时立法会，半年不到取代立法局。 1994年人大常委会通过终止“香港三级议会过渡九七”的决议，所有此届立法局议员的任期全部由4年改21个月，到1997年6月30日全部都要下车。人大常委会随后任命56名内地委员和94名香港委员组成特区筹委会，安排主权交接。临立会60名议员，由400人推选委员会选举产生。临立会成立，意味着香港民主政制倒退十年回到1985年。在这情况下，香港人并没有弃累，李柱铭：「我们是爱国爱港的中国人，我们一定会继续为大家争取民主。」，「我们是中华的儿女，我们要开创新时代，紧记着前人牺牲的过去…」
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3146.jpg)图片来自东网
-港督彭定康在1994年取消区议会委任制，董建华上任后，恢复委任制，委任102名区议员。回归后第二年举行首届立法会选举，港府通过合并选区、还原功能组别和比例代表制等措施削掉民权，瓦解反对势力，增设“官员问责”，把权力集中到高层手中。郭文贵先生爆料说过董建华是中共推出的傀儡，他上台替中共干了不少坏事。回归前，随着时间的推移，港人在不断的争取自己的权利，一个个事件的发生都是港人努力，我们可以看到港人与中共的撕裂越来越大。看今天香港被中共红魔完全掌控，港人与中共的撕裂程度达到空前，我们相信香港人不会就此放弃。
+**The CCP Has Put Chinese Into a Most Dangerous Situation**
 
-（未完待续）
+我刚刚的回到家，刚刚回来，真是啊，我刚才去了几个地方，天哪，美国这个病毒的伤害，动到筋骨了，但是我也能看出来这些人，恨中国和共产党，真有些人分不开，人家就说，中国人把我们害了，我说不是中国人，是中国共产党，但是你能每个都这么说去吗？
 
-【本文仅代表作者个人观点】
+I just came home, just returned. It is true. I went to a few places. Oh my gosh, the muscles and bones of the U.S. have really been hurt by the virus. Yet, I can also tell that these people hate China and the CCP so much that some of them cannot differentiate Chinese from CCP by saying, “Chinese hurt us.” I said, “It is not Chinese. It is the CCP.” However, are you able to tell everyone who thinks like this?”
 
-审稿：卡西欧 /上传：天网灰灰
+共产党真的是把中国人置入到最危险的境界，最危险的境界，真的是很吓人，无论是医生还是护士，无论是所谓的科学家，还是所谓的生物学家，现在反正是对中国人不可能好感，想想没有新中国联邦，这个世界对中国人将有多么的危险，没有新中国联邦，中国人将是多可怕，在世界的环境，还跟着共产党瞎忽悠那，你有孩子吗？你想要未来吗？你以为地球就是你家的吗？全地球都恨你的时候，你怎么活？无知啊，可怕啊。
 
-参考连接：
-[世代忏悔录](https://medium.com/recall-hk/e-5276f615a29d)
+The CCP indeed put Chinese into a most dangerous situation. It is really scary. Whether they are doctors or nurses, the so-called scientists or biologists, it’s not possible for them to have any good impression of Chinese now. Think about this. If the New Federal State of China (NFSC) did not exist, how dangerous the world would become for Chinese people? Without the support of the NFSC, how horrible the world would be for Chinese people? Under the world’s current situation, why are you still behaving like a blind fool? Do you have any children? Do you expect a future? Do you think the earth is exclusively yours? When everyone on the earth hates you, how can you still survive? Ignorant! Terrible!
 
-导读：
-中共超限战灭港计划
+刚才有战友说，七哥，世界上你说永远不变的事，太阳永远会升起，有的时候阴天就升不起，那是因为你站的地方不对，你要待在有阳光的地方，太阳每天都升起，不是太阳没升起来，是你没站对地方，这就像现在一样，你在中国共产党那里面，你就站错地方了，你就看不到太阳的升起，对吧，兄弟姐妹们？好好的，珍惜爆料革命、新中国联邦，给中国人打下的这一片美好的天空，珍惜吧，谢谢！
 
-[中共超限战灭港计划（一）权贵家族在香港的扩张](https://gnews.org/zh-hans/958921/)
+Just now, one of our fellow fighters said, “Brother Seven, you said that one thing never changing in the world is that the sun is always rising. Sometimes, the sun will not rise when it is a cloudy day.” This is because you are not standing at the right place. You need to stay in the place where there is sunlight. The sun rises everyday. It is not the case that the sun doesn’t rise. It is because you stand in a wrong place. Just like now, if you stand with the CCP, then you are in the wrong side. Therefore, you will never see the sun rising. Is this right, brothers and sisters? Please cherish the beautiful sky that our Whistleblower Movement and the NFSC have created for the Chinese people. Please cherish them! Thank you!
 
-[中共超限战灭港计划（二）香港地下党员](https://gnews.org/zh-hans/961318/)
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-[中共超限战灭港计划（三）中共早期地下党员梁慕娴](https://gnews.org/zh-hans/964147/)
+视频来源：[https://gtv.org/getter/604be375607c4240c8b51ea2](https://gtv.org/getter/604be375607c4240c8b51ea2)
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/971100/](https://gnews.org/zh-hans/971100/)
 
-[中共超限战灭港计划（四）香港早期活跃人物司徒华的前半生](https://gnews.org/zh-hans/966481/)
+* * *
 
-[中共超限战灭港计划（五）司徒华的下半生](https://gnews.org/zh-hans/969837/)
-
-[中共超限战灭港计划（六）五区公投](https://gnews.org/zh-hans/972231/)
+翻译：【7PawBear】校对：【Isaiah4031】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
