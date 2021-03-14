@@ -1,71 +1,107 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】犹他州法医：39岁妈妈接种COVID疫苗4天后死亡“暂时是有关联的”
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/974504/)
+## 福奇与中共
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/974532/)
 
-编译/评论：纽约香草山教育组  新生
+翻译：烟波浩淼
+校对：雨山溪桥客
+审核：V
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
+上周，安东尼·福奇(Anthony Fauci)博士与一位中国共产党的“健康专家”一起开了视频会议，西方媒体基本上没有作任何报道。然而，中共国官媒却意犹未尽，因为福奇为中共政权带来了一场对美国的舆论攻击。无数的国家媒体和中共官员赞扬了联合小组成员在活动期间分享了无休止的反美宣传，包括要求更具破坏性的严厉限制，以“抗击” 中共病毒。
 
+钟南山博士是中共国国家卫生委员会的顶级“专家”，被称为“中共国的福奇”，他上周在Zoom上与美国国立过敏与传染病研究所的负责人福奇召开了一个讨论会。两人在爱丁堡大学举办的网络研讨会上讨论了中共病毒政策，该研讨会还邀请了盖茨基金会和世界卫生组织的“专家”。
 
+钟南山在评论中抨击了川普政府和整个美国，但赞扬拜登政府重新加入世界卫生组织。这名中共国官员分享了有关中共国对中共病毒的反应和统计数据的虚假信息，并声称中共国对武汉的残酷封锁导致中共国赢得了与中共病毒的战斗。
 
-引言：随着美国大幅度推进疫苗接种，在政府、世界卫生组织及所谓专家学者的推动下，不少人都接种了各种品牌的疫苗，各种疫苗的副作用及不良反应，甚至死亡的消息也不断浮现。
+作为一名忠诚的中共党员，钟南山滔滔不绝地给出虚假信息，因为封锁在任何地方都不起作用，而且几乎在世界上每个国家都进行过，没有明显的积极效果。
 
-卡西迪·库里尔在2月1日星期一接受了她的第二剂Moderna COVID-19疫苗。在接下来的几天里，她生病了，病情恶化。到周五，库里尔已经死亡。
+钟南山继续播放幻灯片，显示美国的中共病毒反应是世界上最差的，而中共国的反应是世界上最好的，他再次将其归因于武汉的封锁。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-50.png)
+钟南山在结束发言时敦促其他国家暂时不要开放经济，也许要等到全世界接种疫苗，这需要几年时间。他还毫无根据地宣称疫苗免疫优于自然免疫，他错误地称之为“不太科学”。与此同时，中共国的经济和社会，包括大部分未接种疫苗的人口，从2020年3月开始开放。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2-11.png)
+福奇赞同钟教授的评论，他说他“将强调钟教授所说的一切”。这位所谓的公共卫生专家补充说，他希望“有一个多年的承诺，这就是让世界上每个人都能基本上获得优质的医疗保健，因此使健康在许多方面真正成为一项人权。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Jietu20210314-094045.jpg)卡西迪-库里尔和她9岁的女儿艾米利亚 图片来源：GoFundMe
+福奇接受了中共国的宣传，强调武汉式的封锁对“压制”病毒的重要性。
 
-库里尔的父亲阿尔弗雷德·霍利周三告诉福克斯新闻，他的女儿 “看起来很健康”，而且 “没有已知的潜在疾病”。
+福奇说：“为了强调我们俩都说过的话，如果我们不完全抑制这个，我们将继续受到变种病毒的挑战，这些变种病毒有可能会回来咬我们。”。
 
-尽管女儿死得很惨，但由于COVID-19对他的人口构成威胁，已经69岁、有糖尿病的霍利自己还是注射了疫苗。他说，他认识到女儿的惨死是百万分之一。
+他补充说：“在过去，我们通过天花、脊髓灰质炎和麻疹的全球合作，取得了成功。世界上没有理由不通过合作性的公共卫生措施和科学的应用结合起来，在中共病毒方面做同样的事情。”
 
-“看来很不幸，她是属于那有不良反应的（小部分人）”，霍利说。
-
-犹他州卫生部首席医学检验师埃里克·克里斯滕森博士告诉福克斯新闻，库里尔的第二剂疫苗和她的死亡只是 “时间上的关系”。
-
-“我们没有任何证据表明，目前疫苗和死亡之间存在联系，”他说。”我们没有任何迹象表明。”
-
-克里斯滕森说，疫苗的副作用是可以预期的。但他说，个人对疫苗的反应如何，最终将由他们的身体决定。
-
-“当然，有一些疫苗的副作用是可以直接联系到疫苗和你身体里发生的事情，”克里斯滕森说。”你知道，手臂上的疼痛……类似发烧的症状与你的免疫反应有关，你的免疫反应是什么被放入你的体内。这种事情显然会发生。”
-
-根据coronavirus.utah.gov的数据，截至2021年3月11日星期四，犹他州有超过50万人已经接种了部分疫苗，而近34万人已经完全接种了疫苗。犹他州的人口大约为330万。
-
-佛蒙特州将COVID-19疫苗的接种资格扩大到16岁及以上且具备一定条件的居民。
-
-食品和药物管理局(FDA)要求疫苗接种提供者向疫苗不良报告系统（VAERS）报告任何接种COVID疫苗后的死亡病例。在VAERS数据库中，有四起死亡报告涉及犹他州居民。在这4起死亡事件中，有1起与库里尔的年龄描述相符，而其他3起都是80多岁的老人。
-
-犹他州卫生部告诉福克斯新闻，法医办公室将 “调查任何死亡证书上提到的COVID-19疫苗的死亡事件”。
-
-“没有证据表明COVID-19疫苗在犹他州造成了任何死亡。接种疫苗后的不良反应和死亡报告并不一定意味着疫苗导致了反应或死亡。值得关注的报告都会经过核实并进行科学研究。疾控中心也会对任何死亡报告进行跟踪，要求提供更多信息，了解发生的情况，并确定死亡是疫苗造成的还是无关的。”
-
-克里斯滕森告诉福克斯新闻，涉及疫苗后死亡的案例值得调查，但在我们知道所有结果之前，这只是 “猜测”。
-
-Kurill的尸检报告还没出来。按照国家法律规定将会向她的家人公布。是否公开最终由他们决定。
-
-简评：
-
-疫苗开发需要经历很长的时间，目前美国FDA所批准的病毒疫苗都属于紧急批准使用（emergency use authorization， EUA)，截至目前，在美国有三家公司获得紧急批准使用，美国辉瑞（Pfizer）药厂和德国医药公司BioNTech，2020年11月20日，莫德纳 Moderna, Inc. 2020年11月30日，强生公司JANSSEN  2021年2月27日。疫苗经济下，制药公司利益巨大，虽然对接种者有风险，但是对于他们来说，在操作上只需要在告知书上说明相应的风险，目前要证明疫苗注射和死亡有直接关系还很难。作者在发稿时在美国FDA的疫苗不良事件报告系统(VAERS)的搜索就能找出20498条关于疫苗不良事件的报告，身边已经有不少不明真相的人注射了疫苗，殊不知自己是充当了制药公司的实验品而已，面对病毒不断的变异，这些疫苗究竟能有多大效果，还是要打很大一个问号！有兴趣了解真相的战友请自行前往CDC网站VAERS系统读读这些原始数据，很多主流媒体都不报道，或者没有能够追根究底，如果仅仅从疫苗注射相关死亡率看也许数字很小，几率不大， 但是每一个统计数字的背后，都是一个个痛失亲人的平凡家庭！
-
-信息来源：
-
-[https://www.foxnews.com/us/utah-medical-examiner-moms-death-after-taking-covid-vaccine-temporally-related](https://www.foxnews.com/us/utah-medical-examiner-moms-death-after-taking-covid-vaccine-temporally-related)
-
-[https://www.fda.gov/media/144416/download](https://www.fda.gov/media/144416/download)
-
-[https://wonder.cdc.gov/controller/datarequest/D8;jsessionid=1D1F5C5389C93AA948F3BCFE271C](https://wonder.cdc.gov/controller/datarequest/D8;jsessionid=1D1F5C5389C93AA948F3BCFE271C)
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-2.jpg)
+大家可以在这里看他们讨论的完整视频：
 
 
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+福奇的出现受到中共国官方媒体和中共官员的无限称赞。以下是一个例子，中共官员对福奇和钟南山小组的回应。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-+1
+> Prof. Zhong Nanshan, the leading [#Chinese](https://twitter.com/hashtag/Chinese?src=hash&amp;ref_src=twsrc%5Etfw) respiratory disease expert, & Dr. Anthony Fauci, the top [#US](https://twitter.com/hashtag/US?src=hash&amp;ref_src=twsrc%5Etfw) infectious disease expert, met via video link to exchange views on [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) control ystd(2/3) evening. A right way for the two countries to work together in defeating the virus. [pic.twitter.com/LxJppoGYQ1](https://t.co/LxJppoGYQ1)
+> — Ambassador Deng Xijun (@China2ASEAN) [March 3, 2021](https://twitter.com/China2ASEAN/status/1366922559837511683?ref_src=twsrc%5Etfw)
+
+
+邓锡军大使 @ China2ASEAN
+中共政府官员
+ 中共国著名的呼吸道疾病专家钟南山教授和 #美国顶级传染病专家安东尼·福奇博士通过视频连线见面，昨天（2/3）晚上就中共病毒控制交换了意见。 这是两国共同努力战胜病毒的正确方法。
+
+
+> When Dr. Zhong Nanshan meets Dr. Fauci. Their consensus: solidarity and cooperation against [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw).[https://t.co/aoIdCR9Cd0](https://t.co/aoIdCR9Cd0) [pic.twitter.com/4tKGdaQNgY](https://t.co/4tKGdaQNgY)
+> — Hua Chunying 华春莹 (@SpokespersonCHN) [March 3, 2021](https://twitter.com/SpokespersonCHN/status/1366966329647882241?ref_src=twsrc%5Etfw)
+
+
+华春莹 @SpokespersonCHN 
+中国政府官员 
+钟南山博士与福奇博士会面， 他们的共识是：在抗击中共病毒方面的团结与合作。
+
+
+> Leading Chinese respiratory disease expert Zhong Nanshan, top U.S. infectious disease specialist Anthony Fauci call for more efforts to enhance global solidarity and cooperation to beat the deadly [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/TA52T239D2](https://t.co/TA52T239D2) [pic.twitter.com/F79DG9AAf7](https://t.co/F79DG9AAf7)
+> — China Xinhua News (@XHNews) [March 4, 2021](https://twitter.com/XHNews/status/1367363811892633609?ref_src=twsrc%5Etfw)
+
+
+新华通讯社新闻@XHNews 
+中共国国有媒体 
+中共国负责的呼吸道疾病专家钟南山，美国顶级传染病专家安东尼·福奇呼吁为加强全球团结与合作做出更多努力，以战胜致命的＃冠状病毒 [xhtxs.cn/BvINBv](http://xhtxs.cn/BvINBv)
+
+
+> What are the lessons we can learn from the pandemic?
+> Dr. Fauci and Dr. Zhong Nanshan speak about the need for international cooperation, strategy, and honesty from leaders in public health emergencies. [pic.twitter.com/aR1KiDRwPM](https://t.co/aR1KiDRwPM)
+> — CGTN America (@cgtnamerica) [March 3, 2021](https://twitter.com/cgtnamerica/status/1367233410754838528?ref_src=twsrc%5Etfw)
+
+
+CGTN美国@cgtnamerica 
+中共国有媒体
+ 我们可以从大流行中得到什么教训？福奇博士和钟南山博士谈到了在公共卫生突发紧急情况下，领导者之间的国际合作，战略和诚实的必要性。
+
+
+> When Dr. Zhong Nanshan meets Dr. Fauci. Their consensus: solidarity and cooperation against [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/ry55dToXMy](https://t.co/ry55dToXMy)
+> — China Economy (@CE\_ChinaEconomy) [March 3, 2021](https://twitter.com/CE_ChinaEconomy/status/1366972854227492866?ref_src=twsrc%5Etfw)
+
+
+中共国经济@CE\_ChinaEconomy
+中共国有媒体
+钟南山博士与福奇博士会面时。 他们的共识是：团结与合作应对＃COVID19。
+上周，福奇和他的副手在中共国武汉爆发中共病毒早期，就中共病毒消息与中共国政府直接协调。透明监察组织《司法观察》（Justicial Watch）发布了通过《信息自由法》（Freedom of Information Act，FOIA）获得的新政府电子邮件，显示美国政府卫生机构已签署了中共国共产党官员要求的与中共病毒有关的保密协议。
+
+
+
+> These Fauci emails offer tremendous support for the claim that US officials allowed Chinese communists to script the US response in the pandemic. [https://t.co/DNFcVGpamN](https://t.co/DNFcVGpamN) [pic.twitter.com/LTyyt2FF9s](https://t.co/LTyyt2FF9s)
+> — Jeffrey A Tucker (@jeffreyatucker) [March 5, 2021](https://twitter.com/jeffreyatucker/status/1367926401119248396?ref_src=twsrc%5Etfw)
+
+
+杰弗里·塔克（Jeffrey A Tucker） @jeffreyatucker ·
+这些福奇的电子邮件为有关美国官员允许中共在大流行中对美国做出回应的说法提供了有力支持。[judicialwatch.org/wp-content/upl…](https://judicialwatch.org/wp-content/uploads/2021/02/DCNF-v-HHS-Nov-2020-00149.pdf)
+2020年2月14日14:28，Handley，Gray（NIH/NIAID）[E]。写道：
+
+
+> *亲爱的全球疫情警报和反应网络（GOARN） 同事们, 在过去的24小时里，我们一直在与世卫组织和中共国官员积极沟通，以确保莱恩博士能够参与世卫组织/全球疫情警报和反应网络在中共国的任务。由于莱恩博士在接到参加此次访问团的通知时正在前往日本的途中，这使得情况变得更加复杂。抵达东京后，他在中共国驻华盛顿大使馆、世卫组织和美国驻北京大使馆为他办理签证提供了方便。*
+
+
+值得一提的是，美国和100多个国家发起封锁，完全是因为武汉传出的“数据”。福奇和他的同事等权威人士重复了错误的、未受质疑的中共国数据，这些数据说服了世界进行封锁，并接受中共病毒患者早期的，积极的呼吸治疗，以及其他拙劣、不科学的治疗和缓解措施。
+
+中共国通过围绕新型冠状病毒的蓄意造谣活动，挑起全球恐慌。此外，中共还发明了健康隔离封锁的概念。
+
+原文作者：乔丹·沙切特尔（Jordan Schachtel）
+发布时间：2021年3月10日
+原文链接：https://www.aier.org/article/fauci-and-the-communists/
+
+0

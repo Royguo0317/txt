@@ -1,15 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月13日 文贵先生盖特 6
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/974686/)
+## 【热点播报】中共国铺设海底光缆通法国
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/974724/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+作者：纽约香草山 童谣
 
-郭母两周年忌日文贵直播预告： 3月14日农历二月初二 纽约时间早上7:57 北京时间晚上7:57 🙏🙏🙏🙏🙏🙏🙏
-![]()![](https://gnews.org/wp-content/uploads/2021/03/29cc6071bdc601b43a72ba6d119d4f74.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/d67ef3e2e68d08eeb985b97568f252bf.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/df36e59cb68654e62a03bf4dc7954af3.jpg)
-[【2021年3月13日】文贵先生盖特原文](https://gtv.org/getter/604d8f5a607c4240c8b56d87)
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
-**喜联盟Gnews编辑部**
+
+
+中共国公司正在铺设从巴基斯坦经过印度洋、地中海连接欧洲、长达15,000公里的“和平”海缆。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/116818443_2efdd48e-edbb-4f4d-b525-8db3d4c4cb7d.jpg)图片来源：BBC中文网
+
+BBC在3月11日报道说，今年晚些时候海缆将在法国马赛登陆，海缆将使在欧洲和非洲的中共国公司能够得到速度更快的网络服务。而目前“和平”海底电缆项目的主要参与者，正是并购了华为海缆业务的中国光纤和电缆制造商亨通集团，华为公司是亨通集团的大股东之一。
+
+运营马赛的海缆地面站的法国电信国际网络主管说“这是一个中（共）国对外向欧洲和非洲投射力量的计划”。不仅为中美关系增添了紧张因素，也把欧洲置于华盛顿的压力之下。但是对此法国总统马克龙却表示，法国不会“完全按照美国的决定行事”，不会把中共国从互联网基础设施中排除出去。
+
+当前法国面对中共国的疫苗外交、蓝金黄力量没有任何还击之力，正如郭先生所说“一打就跪下”，软弱得像个桃子。去年，时任美国国务卿蓬佩奥曾向其他国家呼吁，要“确保把我们国家同全球互联网相连的海底电缆不会被中（共）国大规模利用，用于情报搜集的破坏目的”。如今法国主动引入具有华为背景的中共国海缆，相当于背叛了国际灭共同盟精神，把整个欧洲国家置于了中共情报监听系统、网络攻击的威胁之中。
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-2.jpg)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

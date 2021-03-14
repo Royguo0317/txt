@@ -1,31 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美奥委会被蓝金黄后表态: 反对抵制北京冬奥会
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/974755/)
+## 中共病毒｜美前调查人员谈COVID-19 邪恶中共死期将至
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/974836/)
 
-作者：纽约香草山 童谣
+【日本东京方舟农场】作者：文柯Miles  素材整理：武汉老温 校对：文小律
 
-美媒VOA报道，美国奥林匹克和残疾人奥林匹克委员会表示，不会抵制2022年在中国北京举行的冬季奥运会。
+纽约邮报3月12日报道  美国前调查人员：COVID-19可能来自生物武器研究事故！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1210787639_15993641677411n.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-91.jpg)大卫·阿舍尔（David Asher）
 
-该委员会主席苏珊娜·莱昂斯3月10日在新闻发布会上说，尽管支持抵制北京奥运会的声音持续不断，但这对那些一直在为这个赛事进行训练的远动员来说是一种伤害。
+哈德森研究所高级研究员的大卫·阿舍尔（David Asher）说：“武汉病毒学研究所不是国家卫生研究院，它是正在运行的一个秘密研究机构。就我个人来看，我认为那是一个生物武器计划。” 在过去的14个月中，中国共产党一直在进行大规模的掩饰。
 
-莱昂斯说：“我们虽然从来不希望淡化中国发生的人权问题，但也不会支持运动员抵制这次赛事。”
+“而且，就像我一样，如果您相信这可能是一种错误的武器，不是故意释放的，而是在研究之中，然后以某种方式泄漏的，那已经证明这是历史上最可怕的武器，”阿舍在接受采访时说。哈德森学院的小组讨论，COVID-19的起源：政策含义和对未来的启示。“它已经造成全球GDP15％到20％的损失，它杀死了全球数百万人，而中国人口几乎没有受到影响，他们的经济迅速回升到整个20国集团的第一位。”
 
-中共想方设法拿下各个奥运会相关的国际组委会，先是在日本冬奥会上拿下疫苗推售权，又进一步寻求北京冬奥会的举办机会。中共显然迫不及待在奥运会这样的国际赛事上洗白自己的形象。借疫苗减轻病毒追责负担，借举办奥运会再次上演“友好和平的大国形象”，削弱人民对中共的敌意认知。对此美国国会议员卡特科给拜登的信中说，“前往一个公开进行种族灭绝的国家参加奥运会不仅伤害了我们共享的价值观，而且也会伤害我们给那些寻求社会自由和公正的人们作出的承诺”。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-51-scaled.jpg)中国科学院武汉病毒研究所
 
-校对/发稿：飞虹
+起初，中共表示COVID-19病毒起源于武汉海鲜市场的理论存在问题。它们说第一个病例与海鲜市场无关。去年秋天美国获得情报，情报显示几名武汉病毒实验室科学家爆发了流感症状，他们于2019年11月住院，当时中共尚未报告第一例病例。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-2.jpg)
+阿舍尔和哈德森研究所的其他专家小组成员说：“中共在2007年宣布，它们将开始使用有争议的“功能增强”研究，目的是更具致死性的基因生物武器研究。”
 
+当世卫组织2月派遣工作队前往武汉的时候，他们没有穿生物安全服，并且只在里面呆了3个小时。据报道，他们无法获得科学或数据性的充分证据，所以无法排除中共病毒是实验室来源的重大可能。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/5-29.jpg)迈克·蓬佩奥（Mike Pompeo ）与余茂春（Miles Yu）
+国务院中国问题专家余茂春（Miles Yu）说：“中国自2003年SARS爆发以来就一直从事这种病毒研究。”他与前国务卿迈克·蓬佩奥（Mike Pompeo ）合作撰写了《华尔街日报》最近的专栏文章。
 
+专栏文章开篇就说：“中国共产党痴迷于研究病毒，它们的科学家和军队声称在短短十年内发现了近2,000种新病毒！在过去的200年中，世界其他国家和地区总共才发现这个数量的病毒。更令人感到不安的是，中国共产党对生物安全的疏忽。武汉爆发的新型冠状病毒证明了世界卫生安全领域的代价和风险是巨大的。我们不能允许这种情况继续发生，如果中国共产党不遵守包括基本透明性要求在内的全球生物安全标准，世界就必须对中国共产党追责，并对中共进行制裁。”
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+注：本文仅代表作者观点
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+参考链接：
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+1.[https://nypost.com/2021/03/12/former-us-investigator-covid-19-may-have-come-from-bioweapons-research-accident/?utm\_source=NYPTwitter&utm\_medium=SocialFlow&utm\_campaign=SocialFlow](https://nypost.com/2021/03/12/former-us-investigator-covid-19-may-have-come-from-bioweapons-research-accident/?utm_source=NYPTwitter&amp;utm_medium=SocialFlow&amp;utm_campaign=SocialFlow)
+
+2.[https://www.wsj.com/articles/chinas-reckless-labs-put-the-world-at-risk-11614102828](https://www.wsj.com/articles/chinas-reckless-labs-put-the-world-at-risk-11614102828)
 
 0
