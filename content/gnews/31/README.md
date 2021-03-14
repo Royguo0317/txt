@@ -1,11 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【班农战斗室重磅】（1）章家敦：这不会是最后一个来自中共国的病原体
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/975385/)
+## 【班农战斗室重磅】（2）朱利安尼：中共病毒是“战争行为”
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/975438/)
 
-摘要：13/03/2021 章家敦：这不会是最后一个来自中共国的病原体
+摘要：13/03/2021 朱利安尼：中共病毒是“战争行为”
 
 **By： 【秘密翻译组 G-Translators】**
 
-0
++1

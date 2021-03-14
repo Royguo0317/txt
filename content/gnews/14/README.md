@@ -1,39 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共产党真的是把中国人置入到最危险的境界
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/975884/)
+## 欧洲八国暂停疫苗接种凸显 大流行中人性的贪婪和懦弱
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/975862/)
 
-新闻简述：在2021年3月12日的盖特中，郭先生感慨中共病毒动了美国的筋骨，有太多美国人因此恨中国人，因为他们难以分清中共和中国人的区别。中国共产党已经把中国人置于最危险的境地。而只有新中国联邦能给华人带来安全。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_2021-03-12_Getter4.srt.txt)
-**共产党真的是把中国人置入到最危险的境界**
+**作者** Xingfffooo
 
-**The CCP Has Put Chinese Into a Most Dangerous Situation**
+奥地利和丹麦相继出现注射中共病毒疫苗后的血凝和死亡案例后，八国宣布暂停阿斯利康的疫苗接种，这意味着疫苗经济中各国政府、制药公司、主流媒体和社交媒体的利益争夺日益激烈。而他们之间却对中共新冠病毒的来源和追责，实现鸵鸟政策，装聋作哑。
 
-我刚刚的回到家，刚刚回来，真是啊，我刚才去了几个地方，天哪，美国这个病毒的伤害，动到筋骨了，但是我也能看出来这些人，恨中国和共产党，真有些人分不开，人家就说，中国人把我们害了，我说不是中国人，是中国共产党，但是你能每个都这么说去吗？
+“丹麦卫生当局说，丹麦一名60岁的妇女在接受奥地利使用的同一批次的阿斯利康疫苗注射后，出现血块死亡，随后该国决定暂停注射两周。丹麦当局表示，他们已经对‘来自丹麦和其他欧洲国家的可能出现严重副作用的报告’做出了回应。‘目前还不可能得出二者之间是否存在联系的结论。我们正在尽早行动，需要彻底调查，’卫生部长马格努斯·海尼奇（Magnus Heunicke）在推特上说。该疫苗将在丹麦暂停使用14天。”
 
-I just came home, just returned. It is true. I went to a few places. Oh my gosh, the muscles and bones of the U.S. have really been hurt by the virus. Yet, I can also tell that these people hate China and the CCP so much that some of them cannot differentiate Chinese from CCP by saying, “Chinese hurt us.” I said, “It is not Chinese. It is the CCP.” However, are you able to tell everyone who thinks like this?”
+“此前，奥地利在调查一起凝血功能障碍和肺栓塞导致的死亡病例时，停止使用一批阿斯利康注射液。由于这种致命的副作用，丹麦、挪威、爱沙尼亚、立陶宛、卢森堡、拉脱维亚、意大利和冰岛已经停止了疫苗的接种”
 
-共产党真的是把中国人置入到最危险的境界，最危险的境界，真的是很吓人，无论是医生还是护士，无论是所谓的科学家，还是所谓的生物学家，现在反正是对中国人不可能好感，想想没有新中国联邦，这个世界对中国人将有多么的危险，没有新中国联邦，中国人将是多可怕，在世界的环境，还跟着共产党瞎忽悠那，你有孩子吗？你想要未来吗？你以为地球就是你家的吗？全地球都恨你的时候，你怎么活？无知啊，可怕啊。
+“一些健康专家说，几乎没有证据表明阿斯利康疫苗不应该使用，血栓病例与普通人群中此类病例的比例相符。伦敦卫生与热带医学院药物流行病学教授史蒂芬·埃文斯（Stephen Evans）告诉路透社:‘基于欧洲的一些孤立报告，这是一种非常谨慎的方法。’‘疫苗疑似不良反应的自发报告的问题是，很难区分因果效应和巧合。’他补充说，‘新冠疾病与血液凝血有很强的相关性。’
 
-The CCP indeed put Chinese into a most dangerous situation. It is really scary. Whether they are doctors or nurses, the so-called scientists or biologists, it’s not possible for them to have any good impression of Chinese now. Think about this. If the New Federal State of China (NFSC) did not exist, how dangerous the world would become for Chinese people? Without the support of the NFSC, how horrible the world would be for Chinese people? Under the world’s current situation, why are you still behaving like a blind fool? Do you have any children? Do you expect a future? Do you think the earth is exclusively yours? When everyone on the earth hates you, how can you still survive? Ignorant! Terrible!
+“阿斯利康制药周四在一份书面声明中对路透社表示，该公司的疫苗的安全性已在人体试验中进行了广泛研究，同行评阅的数据已证实该疫苗的普遍耐受性良好。该制药公司本周早些时候表示，其疫苗受到严格的质量控制，‘没有证实与该疫苗有关的严重不良事件’。该公司表示，正在与奥地利当局接触，并将全力支持他们的调查。”
 
-刚才有战友说，七哥，世界上你说永远不变的事，太阳永远会升起，有的时候阴天就升不起，那是因为你站的地方不对，你要待在有阳光的地方，太阳每天都升起，不是太阳没升起来，是你没站对地方，这就像现在一样，你在中国共产党那里面，你就站错地方了，你就看不到太阳的升起，对吧，兄弟姐妹们？好好的，珍惜爆料革命、新中国联邦，给中国人打下的这一片美好的天空，珍惜吧，谢谢！
+“欧盟药品监管机构欧洲药品管理局（EMA）周三表示，目前没有证据表明阿斯利康与奥地利的两起病例有关。”
 
-Just now, one of our fellow fighters said, “Brother Seven, you said that one thing never changing in the world is that the sun is always rising. Sometimes, the sun will not rise when it is a cloudy day.” This is because you are not standing at the right place. You need to stay in the place where there is sunlight. The sun rises everyday. It is not the case that the sun doesn’t rise. It is because you stand in a wrong place. Just like now, if you stand with the CCP, then you are in the wrong side. Therefore, you will never see the sun rising. Is this right, brothers and sisters? Please cherish the beautiful sky that our Whistleblower Movement and the NFSC have created for the Chinese people. Please cherish them! Thank you!
+“前《纽约时报》记者亚历克斯·贝伦森（Alex Berenson）则在Twitter上警告说，阿斯利康的疫苗‘几乎不比辉瑞公司和Moderna公司的mRNA疫苗更糟糕’，这两种疫苗都在北美受试者中造成了一连串致命的副作用。‘等到他们听到mRNA疫苗的作用就好了，’贝伦森写道。‘真的，虽然，阿斯利康疫苗的副作用情况几乎不比mRNA疫苗差，但不知何故，它面临着更多的审查。跟着政治走，我是说科学。’”
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+“贝伦森的推特还在，没有 以‘事实检查’（fact check）为由封杀，这真是个奇迹，因为杰克·多西和他的共产主义员工最近实施了新的发布五次就封杀的政策，针对在平台上发布任何关于疫苗的 ‘负面’言论的用户。”
 
-视频来源：[https://gtv.org/getter/604be375607c4240c8b51ea2](https://gtv.org/getter/604be375607c4240c8b51ea2)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/971100/](https://gnews.org/zh-hans/971100/)
+“真正的乐趣开始于明年冬天，当那些打了第二针，甚至可能打第三针的傻瓜们，开始因为得了普通感冒或轻微流感而焦头烂额时，”一位零对冲评论员写道，“中共病毒（Covid-19）疫苗接种者最终将遭遇细胞因子风暴，现在他们的身体已经在病原学上做好了对感染的过度反应。”
 
-* * *
+**【观点】**
 
-翻译：【7PawBear】校对：【Isaiah4031】字幕：【V%】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+欧洲八国因阿斯利康疫苗的副作用而暂停使用疫苗，是无可厚非，毕竟人命关天，疫苗安全应当是每个国家卫生当局重点关注的事项。然而，欧洲八国的行动似乎只针对阿斯利康疫苗，而对辉瑞和Moderna疫苗的副作用却视而不见，好像后两种疫苗没有出现过致命副作用的病例。在大流行中疫苗经济带来的利益是其他任何行业和产品所不可比拟的，疫苗各利益方之间较量也一定日益白热化。
 
-0
+欧洲八国政府的行动直接、连续扇了推特的大耳光。作为一家被中共蓝金黄最严重的社交媒体之一，推特在几天前才宣布将疫苗的负面言论认定为误导性信息，并实施发布5次就封杀的政策。欧洲八国政府就相继用行动直接验证了疫苗存在副作用的事实，令推特无地自容。虽然欧洲八国的禁令不包含中共的疫苗，但起码提高了人们对疫苗副作用的关注度，将对中共疫苗外交产生警觉影响，未来关于这方面言论的审查和反审查的斗争可能会出现新的变化。
+
+欧洲八国政府针对阿斯利康疫苗的反应是如此迅速，而针对伤害生命、经济和生活方式最大的病毒本身及其来源的反应却是相当迟缓，甚至是无动于衷，显示出了各国医学、卫生和政治的精英在强硬和懦弱上是多么的自相矛盾。
+
+**【参考来源】**
+
+[https://www.fx168.ca/news/2103/4792094\_wap.shtml](https://www.fx168.ca/news/2103/4792094_wap.shtml)
+
+[https://www.naturalnews.com/2021-03-11-europe-pauses-astrazeneca-coronavirus-vaccinations-blood-clots.html](https://www.naturalnews.com/2021-03-11-europe-pauses-astrazeneca-coronavirus-vaccinations-blood-clots.html)
+
+**【免责声明】**  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+#### **欢迎战友加入旧金山金喜农场**
+
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[** **](https://discord.gg/QQzQ79grEA)
+
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)[** **](https://twitter.com/sf_himalaya)
+
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
+
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
+
+【**责任编辑**】：旧金山文宣组
+
++1
