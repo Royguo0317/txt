@@ -1,35 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共国铺设海底光缆通法国
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/974724/)
+## 中共病毒｜美前调查人员谈COVID-19 邪恶中共死期将至
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/974836/)
 
-作者：纽约香草山 童谣
+【日本东京方舟农场】作者：文柯Miles  素材整理：武汉老温 校对：文小律
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
+纽约邮报3月12日报道  美国前调查人员：COVID-19可能来自生物武器研究事故！
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-91.jpg)大卫·阿舍尔（David Asher）
 
+哈德森研究所高级研究员的大卫·阿舍尔（David Asher）说：“武汉病毒学研究所不是国家卫生研究院，它是正在运行的一个秘密研究机构。就我个人来看，我认为那是一个生物武器计划。” 在过去的14个月中，中国共产党一直在进行大规模的掩饰。
 
-中共国公司正在铺设从巴基斯坦经过印度洋、地中海连接欧洲、长达15,000公里的“和平”海缆。
+“而且，就像我一样，如果您相信这可能是一种错误的武器，不是故意释放的，而是在研究之中，然后以某种方式泄漏的，那已经证明这是历史上最可怕的武器，”阿舍在接受采访时说。哈德森学院的小组讨论，COVID-19的起源：政策含义和对未来的启示。“它已经造成全球GDP15％到20％的损失，它杀死了全球数百万人，而中国人口几乎没有受到影响，他们的经济迅速回升到整个20国集团的第一位。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/116818443_2efdd48e-edbb-4f4d-b525-8db3d4c4cb7d.jpg)图片来源：BBC中文网
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-51-scaled.jpg)中国科学院武汉病毒研究所
 
-BBC在3月11日报道说，今年晚些时候海缆将在法国马赛登陆，海缆将使在欧洲和非洲的中共国公司能够得到速度更快的网络服务。而目前“和平”海底电缆项目的主要参与者，正是并购了华为海缆业务的中国光纤和电缆制造商亨通集团，华为公司是亨通集团的大股东之一。
+起初，中共表示COVID-19病毒起源于武汉海鲜市场的理论存在问题。它们说第一个病例与海鲜市场无关。去年秋天美国获得情报，情报显示几名武汉病毒实验室科学家爆发了流感症状，他们于2019年11月住院，当时中共尚未报告第一例病例。
 
-运营马赛的海缆地面站的法国电信国际网络主管说“这是一个中（共）国对外向欧洲和非洲投射力量的计划”。不仅为中美关系增添了紧张因素，也把欧洲置于华盛顿的压力之下。但是对此法国总统马克龙却表示，法国不会“完全按照美国的决定行事”，不会把中共国从互联网基础设施中排除出去。
+阿舍尔和哈德森研究所的其他专家小组成员说：“中共在2007年宣布，它们将开始使用有争议的“功能增强”研究，目的是更具致死性的基因生物武器研究。”
 
-当前法国面对中共国的疫苗外交、蓝金黄力量没有任何还击之力，正如郭先生所说“一打就跪下”，软弱得像个桃子。去年，时任美国国务卿蓬佩奥曾向其他国家呼吁，要“确保把我们国家同全球互联网相连的海底电缆不会被中（共）国大规模利用，用于情报搜集的破坏目的”。如今法国主动引入具有华为背景的中共国海缆，相当于背叛了国际灭共同盟精神，把整个欧洲国家置于了中共情报监听系统、网络攻击的威胁之中。
+当世卫组织2月派遣工作队前往武汉的时候，他们没有穿生物安全服，并且只在里面呆了3个小时。据报道，他们无法获得科学或数据性的充分证据，所以无法排除中共病毒是实验室来源的重大可能。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/5-29.jpg)迈克·蓬佩奥（Mike Pompeo ）与余茂春（Miles Yu）
+国务院中国问题专家余茂春（Miles Yu）说：“中国自2003年SARS爆发以来就一直从事这种病毒研究。”他与前国务卿迈克·蓬佩奥（Mike Pompeo ）合作撰写了《华尔街日报》最近的专栏文章。
 
-校对/发稿：飞虹
+专栏文章开篇就说：“中国共产党痴迷于研究病毒，它们的科学家和军队声称在短短十年内发现了近2,000种新病毒！在过去的200年中，世界其他国家和地区总共才发现这个数量的病毒。更令人感到不安的是，中国共产党对生物安全的疏忽。武汉爆发的新型冠状病毒证明了世界卫生安全领域的代价和风险是巨大的。我们不能允许这种情况继续发生，如果中国共产党不遵守包括基本透明性要求在内的全球生物安全标准，世界就必须对中国共产党追责，并对中共进行制裁。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-2.jpg)
+注：本文仅代表作者观点
 
+参考链接：
 
+1.[https://nypost.com/2021/03/12/former-us-investigator-covid-19-may-have-come-from-bioweapons-research-accident/?utm\_source=NYPTwitter&utm\_medium=SocialFlow&utm\_campaign=SocialFlow](https://nypost.com/2021/03/12/former-us-investigator-covid-19-may-have-come-from-bioweapons-research-accident/?utm_source=NYPTwitter&amp;utm_medium=SocialFlow&amp;utm_campaign=SocialFlow)
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+2.[https://www.wsj.com/articles/chinas-reckless-labs-put-the-world-at-risk-11614102828](https://www.wsj.com/articles/chinas-reckless-labs-put-the-world-at-risk-11614102828)
 
 0
