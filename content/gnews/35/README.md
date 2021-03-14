@@ -1,31 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 参议员约翰逊称国会山骚乱者“热爱这个国家”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/974429/)
+## 昨日“抗疫明星”纽约州长库莫今日面临第三个丑闻指控
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/974459/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+撰稿&翻译：Jenny
+![]()![](https://gnews.org/wp-content/uploads/2021/03/IMG_8394.jpg)网络截图
+纽约州州长安德鲁·库莫（Andrew Cuomo）面临另一个酿造丑闻，这次是一项命令，该命令将发育障碍者的房屋送回家接受COVID阳性患者。
 
-编辑上传   水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/S-9-4.jpg)cnn.com
-《纽约邮报》3月13日发文，题目“参议员罗恩·约翰逊（Ron Johnson）：国会骚乱者‘热爱这个国家’，但黑命贵（BLM）却令人恐惧”。
+据福克斯新闻社报道，库莫于2020年4月10日发布命令，距该州禁闭行动仅几周时间，以抗击该流行病。 该命令类似于他在2020年3月指示疗养院接受住院的COVID患者，无论他们是否对该病呈阴性。 但是，与疗养院命令不同，Cuomo从未撤销其4月10日的指示。
 
-全文如下：
+根据纽约残障人士办公室（OPWDD）的数据，有552名残障人士住房居民死于COVID-19。 在此类设施中居住的近34600人中，有6900人染上了这种疾病。
 
-来自威斯康星州的共和党参议员约翰逊（Ron Johnson）周六表示，在国会山骚乱的川普总统的支持者不会吓倒他，但黑命贵的抗议者就令人恐惧了。
+国会残疾人委员会主席州议员汤姆·阿比南蒂（Tom Abinanti）上月对纽约《日报新闻》说：“这只是显示了库莫政府对残疾人的看法。”  “这也表明他们缺乏看清他们当时应该看到的选择的远见。”
 
-“在1月6日的袭击中，我从未感到过威胁，因为我没有必要。” 约翰逊参议员周四在“乔·帕格斯秀（“The Joe Pags Show.）”的脱口秀节目上说，“我知道那些人热爱这个国家，真正尊重执法。”但是，他说，“如果形势不是这样……若是成千上万的黑命贵和安提法（Antifa）抗议者，我可能会有点担心。”
+OPWDD发言人詹妮弗·奥沙利文（Jennifer O’Sullivan）在《日报新闻》的一份声明中为Cuomo的命令辩护。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/IMG_8267.jpg)网络截图
+评论：
 
-威斯康辛州的民主党人对此表示愤怒。“什么，白人爱这个国家而黑人不爱？”州参议员拉托尼亚·约翰逊（LaTonya Johnson）告诉《密尔沃基哨兵杂志》（the Milwaukee Journal Sentinel），“他就是这么说的。”约翰逊的美国参议院同僚、民主党参议员塔米·鲍德温（Tammy Baldwin）周六在推特上说，他的言论证明了“系统性的种族主义”。
+截止2021年3月上旬，在美国各地已确认超过有525,000人因COVID-19死亡。在整个大流行中，纽约受到的打击尤为严重，并且是冠状病毒死亡人数最多的州之一。 邻近的新泽西州也是，这两个州的冠状病毒死亡率仍然是美国最高的。
 
-300多人被指控犯有与这场致命骚乱有关的罪行，其中包括被指控计划袭击美国国会大厦的民兵。
+州长库莫前两个丑闻非别是，对养老院的高死亡率掩盖了真实的数字，以及一项性丑闻指控。
 
-但约翰逊参议员对此发表声明中指出， 据《The Hill》报告去年夏天的骚乱，由黑命贵抗议者的暴力导致了25人死亡和高达20亿美元的财产损失。“这就是为什么我会更担心。”约翰逊参议员说。（原文完）
+（本文纯属个人观点）
 
-评：遭人暗算的川普总统，一直背负着国会骚乱唆使者的罪名，左派还进行了穷凶极恶的弹劾。约翰逊参议员不仅是在为川普总统发声，更是表达了当时正常人的心态。民主党左派们却善于断章取义，偏激认定，乱扣帽子，只能说明心怀鬼胎的他们希望拜登的认证程序遭破坏，希望大乱，以达到浑水摸鱼中窃取美国总统的罪恶目的。
+[相关链接：](https://resistthemainstream.org/gov-andrew-cuomo-cuomo-hit-with-fresh-new-scandal/?utm_source=social&amp;utm_medium=telegram&amp;utm_campaign=rtm)
 
-原文链接：
-
-[https://nypost.com/2021/03/13/sen-ron-johnson-capitol-rioters-love-this-country-but-blm-sparks-fear/](https://nypost.com/2021/03/13/sen-ron-johnson-capitol-rioters-love-this-country-but-blm-sparks-fear/)
-
+推荐文章：[纽约州长库莫面临被弹劾](https://gnews.org/zh-hans/943201/)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-澳喜Logo.jpeg)
 0

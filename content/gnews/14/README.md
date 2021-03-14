@@ -1,33 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】拜登签署新冠疫情纾困法案
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/974776/)
+## 中共病毒｜美前调查人员谈COVID-19 邪恶中共死期将至
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/974836/)
 
-作者：纽约香草山 童谣
+【日本东京方舟农场】作者：文柯Miles  素材整理：武汉老温 校对：文小律
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
+纽约邮报3月12日报道  美国前调查人员：COVID-19可能来自生物武器研究事故！
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-91.jpg)大卫·阿舍尔（David Asher）
 
+哈德森研究所高级研究员的大卫·阿舍尔（David Asher）说：“武汉病毒学研究所不是国家卫生研究院，它是正在运行的一个秘密研究机构。就我个人来看，我认为那是一个生物武器计划。” 在过去的14个月中，中国共产党一直在进行大规模的掩饰。
 
-美国总统拜登3月11日将他的1万9千亿美元的新冠疫情纾困方案签署成法。之前的一天，众议院以220票赞成、211票反对通过了这项法案。在过关之前，参议院对众议院之前通过的版本的某些方面做了修改。这些修改包括删除提高联邦最低工资标准的条款。
+“而且，就像我一样，如果您相信这可能是一种错误的武器，不是故意释放的，而是在研究之中，然后以某种方式泄漏的，那已经证明这是历史上最可怕的武器，”阿舍在接受采访时说。哈德森学院的小组讨论，COVID-19的起源：政策含义和对未来的启示。“它已经造成全球GDP15％到20％的损失，它杀死了全球数百万人，而中国人口几乎没有受到影响，他们的经济迅速回升到整个20国集团的第一位。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/117518792_gettyimages-1231326098.jpg)图片来源：BBC中文网
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-51-scaled.jpg)中国科学院武汉病毒研究所
 
-民主党人拜登签署的这项法案没有任何共和党人投票支持。拜登在准备签署法案前说：“这项历史性的立法是要建造我国的脊梁，让我国的人民、劳动人民、中产阶级人士、那些建造了这个国家的人们能有获取成功的一线机会。”
+起初，中共表示COVID-19病毒起源于武汉海鲜市场的理论存在问题。它们说第一个病例与海鲜市场无关。去年秋天美国获得情报，情报显示几名武汉病毒实验室科学家爆发了流感症状，他们于2019年11月住院，当时中共尚未报告第一例病例。
 
-但是共和党议员反对表示，这项方案过于庞大，细节不够完善。在这种资金巨大但分配细节不清楚的情况下，极容易滋生出腐败和资金使用不透明的现象。而且该法案未能充分帮助那些最需要经济救助的人，纯粹属于大撒币的浪费。众议院少数党领袖麦卡锡称这部议案是“高成本、腐败和自由派”的象征。
+阿舍尔和哈德森研究所的其他专家小组成员说：“中共在2007年宣布，它们将开始使用有争议的“功能增强”研究，目的是更具致死性的基因生物武器研究。”
 
-校对/发稿：飞虹
+当世卫组织2月派遣工作队前往武汉的时候，他们没有穿生物安全服，并且只在里面呆了3个小时。据报道，他们无法获得科学或数据性的充分证据，所以无法排除中共病毒是实验室来源的重大可能。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/5-29.jpg)迈克·蓬佩奥（Mike Pompeo ）与余茂春（Miles Yu）
+国务院中国问题专家余茂春（Miles Yu）说：“中国自2003年SARS爆发以来就一直从事这种病毒研究。”他与前国务卿迈克·蓬佩奥（Mike Pompeo ）合作撰写了《华尔街日报》最近的专栏文章。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-2.jpg)
+专栏文章开篇就说：“中国共产党痴迷于研究病毒，它们的科学家和军队声称在短短十年内发现了近2,000种新病毒！在过去的200年中，世界其他国家和地区总共才发现这个数量的病毒。更令人感到不安的是，中国共产党对生物安全的疏忽。武汉爆发的新型冠状病毒证明了世界卫生安全领域的代价和风险是巨大的。我们不能允许这种情况继续发生，如果中国共产党不遵守包括基本透明性要求在内的全球生物安全标准，世界就必须对中国共产党追责，并对中共进行制裁。”
 
+注：本文仅代表作者观点
 
+参考链接：
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+1.[https://nypost.com/2021/03/12/former-us-investigator-covid-19-may-have-come-from-bioweapons-research-accident/?utm\_source=NYPTwitter&utm\_medium=SocialFlow&utm\_campaign=SocialFlow](https://nypost.com/2021/03/12/former-us-investigator-covid-19-may-have-come-from-bioweapons-research-accident/?utm_source=NYPTwitter&amp;utm_medium=SocialFlow&amp;utm_campaign=SocialFlow)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+2.[https://www.wsj.com/articles/chinas-reckless-labs-put-the-world-at-risk-11614102828](https://www.wsj.com/articles/chinas-reckless-labs-put-the-world-at-risk-11614102828)
 
 0
