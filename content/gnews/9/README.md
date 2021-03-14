@@ -1,14 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士一周锦集第9期
-` 喜馬拉雅多語組` [轉載自GNews](https://gnews.org/zh-hans/975103/)
+## 前国家情报局局长：如果无法追踪到病毒来源，我们就无法预防下次大流行病
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/975231/)
 
-#### 撰稿：问夏、CYC文穎、感言
-校对 ： 卓别林(文尊）Fr
-播音：大腳印
-视频：归真
+3/12/2021 前国家情报局局长：如果我们无法追踪到病毒的具体源头，我们就无法预防下一次大流行病的发生。
 
-[闫博士一周锦集9-PDF](https://gnews.org/wp-content/uploads/2021/03/9-P.pdf)[下載](https://gnews.org/wp-content/uploads/2021/03/9-P.pdf)
+By： 【秘密翻译组 G-Translators】
 
-0
+
+
++1

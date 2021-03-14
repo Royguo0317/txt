@@ -1,15 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月13日 文贵先生盖特 6
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/974686/)
+## 【热点播报】美奥委会被蓝金黄后表态: 反对抵制北京冬奥会
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/974755/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
+作者：纽约香草山 童谣
 
-郭母两周年忌日文贵直播预告： 3月14日农历二月初二 纽约时间早上7:57 北京时间晚上7:57 🙏🙏🙏🙏🙏🙏🙏
-![]()![](https://gnews.org/wp-content/uploads/2021/03/29cc6071bdc601b43a72ba6d119d4f74.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/d67ef3e2e68d08eeb985b97568f252bf.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/df36e59cb68654e62a03bf4dc7954af3.jpg)
-[【2021年3月13日】文贵先生盖特原文](https://gtv.org/getter/604d8f5a607c4240c8b56d87)
+美媒VOA报道，美国奥林匹克和残疾人奥林匹克委员会表示，不会抵制2022年在中国北京举行的冬季奥运会。
 
-**喜联盟Gnews编辑部**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1210787639_15993641677411n.jpg)
+
+该委员会主席苏珊娜·莱昂斯3月10日在新闻发布会上说，尽管支持抵制北京奥运会的声音持续不断，但这对那些一直在为这个赛事进行训练的远动员来说是一种伤害。
+
+莱昂斯说：“我们虽然从来不希望淡化中国发生的人权问题，但也不会支持运动员抵制这次赛事。”
+
+中共想方设法拿下各个奥运会相关的国际组委会，先是在日本冬奥会上拿下疫苗推售权，又进一步寻求北京冬奥会的举办机会。中共显然迫不及待在奥运会这样的国际赛事上洗白自己的形象。借疫苗减轻病毒追责负担，借举办奥运会再次上演“友好和平的大国形象”，削弱人民对中共的敌意认知。对此美国国会议员卡特科给拜登的信中说，“前往一个公开进行种族灭绝的国家参加奥运会不仅伤害了我们共享的价值观，而且也会伤害我们给那些寻求社会自由和公正的人们作出的承诺”。
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-2.jpg)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0
