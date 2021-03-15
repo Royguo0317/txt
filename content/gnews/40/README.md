@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】为避免偶然冲突 中共国主动就海警法运用方针通报日本
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/978417/)
+## 示威者要求结束匈牙利封锁限制
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/978457/)
 
-作者：香草山健身部 童谣
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1529-【军事快讯】为避免偶然冲突-中共国主动就海警法运用方针通报日本.png)图片来自：VOA
-日本政府消息人士3月13日表示，中共国2月下旬告知日方，中共方面对在尖阁诸岛（中共国称钓鱼岛）附近活动的日本海上保安厅巡逻船及日本渔船「保持自我克制」。[VOA报道](https://www.voachinese.com/a/china-japan-risk-miscalculation-over-diaoyu-islands-analysts-say-20210313/5813278.html)称这是中国《海警法》施行后，中方首次曝光该法的运用方针。但中共国同时告诉日本方面，它不会停止阻止日本船只进入这些岛屿周围水域的行动，包括日本水域以外的所谓毗连区。
-
-对于事情发生近一个月之后日本发出的这则消息，在中共国媒体上至今还没有出现相关报道。我们知道中共颁布《海警法》，声明授权中共国海警可以在中共国声称拥有主权的海域内对外国船只动用致命性武力，针对中日濒临海域的这种威胁式警告具有严重的挑衅意味，日方也同样以强硬的姿态回击，表示可能会对登陆尖阁诸岛的外国公务船实施「危害射击」。
-
-日本政府消息显示，中共居然主动向日本透露海警法的执行方针，这种降低姿态不免会有一些削弱自身气势，与之前的强硬态度相比让人感到强烈反差。有分析人士认为此意在避免发生偶发性冲突使事态恶化。而实际更可能是中共只会口炮和叫嚣，如果与日本发生正面冲突，将会过早暴露自己的斤两不足，从而只能主动提醒日本，避免与其发生后果「难以承受」的擦枪走火。
-
-审核/发稿：雪梨
+- 编辑：Victor Torres
+- 发稿：Ranting
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+**西班牙2021年3月15日电/西喜社——**据美联社3月15日报道，约有1000名示威者打破了匈牙利首都的公共集会禁令，要求结束该国的封锁限制。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+示威是在中共病毒大流行席卷匈牙利的强大浪潮中发生的。由一个名为 “我们的家园运动 “的极右翼政党组织的。该党领导人认为，封锁措施导致匈牙利经济遭到破坏，他们要求结束限制措施。
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+上周，新病例和在医院接受治疗的平均人数打破了之前12月创造的记录。根据约翰-霍普金斯大学的数据，匈牙利现在是世界上每100万居民中死亡率第七高的国家。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/5b88894c-3fa8-4838-8ec1-dd3a6d6eab6f.jpg)
+
+**新闻来源：[美联社](https://apnews.com/article/coronavirus-pandemic-infectious-diseases-li-bin-china-mens-college-basketball-7733a272ee8a84c872ae1d427aa31170)**
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
 
 0
