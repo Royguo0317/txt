@@ -1,76 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0314.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/977733/)
+## 潘瑞在潘石屹和张欣被控制的情况下该如何应对海淀公安的追逃
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/977991/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0314-1.jpeg)
-#### 对川普声音的呼唤
+![]()![](https://gnews.org/wp-content/uploads/2021/03/封面-89.jpg)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-3月13日一则朱利安尼先生的推文如下。
+据[**海淀公安分局**](https://weibo.com/u/1710175603?refer_flag=1005055014_) [2021年3月15日11:50](https://weibo.com/1710175603/K6hFI2KAA?from=page_1001061710175603_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-203.png)
+[#情况通报#](https://s.weibo.com/weibo?q=%23%E6%83%85%E5%86%B5%E9%80%9A%E6%8A%A5%23&amp;from=default) 近期，新闻媒体报道捍卫国土戍边官兵的英雄事迹后，有群众向警方举报，一新浪微博用户曾于2020年6月23日在他人微博评论区发表造谣诋毁英雄烈士的言论，造成恶劣社会影响。经警方调查核实，该微博用户潘某（男，30岁）于2020年2月2日离京出境后，一直在境外。目前，海淀公安分局已依法对潘某刑事拘留，并对其开展追逃。在此，警方敦促其尽快回国接受调查处理。
 
-[https://twitter.com/JasonMillerinDC/status/1370767820108271620?s=20](https://twitter.com/JasonMillerinDC/status/1370767820108271620?s=20)
-朱利安尼：“我们需要川普总统回到推特上来。”
+对于侮辱、诽谤或者以其他方式侵害英雄烈士的名誉、荣誉，损害社会公共利益的行为，警方将依法坚决予以打击。[收起全文d](void%280%29;)
 
-川普总统2020高级顾问米勒（Jason Miller):“推特没有他太乏味了。”
+这个潘某是谁呢？据[**大公文匯網**](https://weibo.com/7476748260?refer_flag=1001030103_) [2021年02月27日 14:42 转赞人数超过1400](https://weibo.com/7476748260/K3BTMpuZC?refer_flag=1001030103_)  来自 [祖国反黑站超话](https://huati.weibo.com/k/%E7%A5%96%E5%9B%BD%E5%8F%8D%E9%BB%91%E7%AB%99)
 
-#### 新疆种族屠杀和人权问题
+【大河报：潘石屹之子*潘瑞*被曝诋毁戍边战士，但尚未回应或辟谣澄清 】此前，有数名在网络发布不实言论，诋毁戍边战士的网民被拘，据媒体不完全统计，3天内有7人被拘，其中4人涉刑，1人在逃海外。
 
+与此同时，一则潘石屹之子 [@*潘瑞*](https://weibo.com/n/%E6%BD%98%E7%91%9E) 的微博截图因发很多网友关注。截图中，名为*潘瑞*的加V账号发文称，边境冲突中“我军至少一个营地被活埋”，“没有机会被天葬了”。截图时间显示为6月23日，截图中还有不少网友追问*潘瑞*，是否有证据发表这样的言论。
 
+有不少网友对此留言发声。专栏作家鲁国平表示，现在真相已经出来了，那么造谣者“是不是应该出来道个歉？”
 
-> This week, the U.S. condemned China's genocide in Xinjiang in [@UN\_HRC](https://twitter.com/UN_HRC?ref_src=twsrc%5Etfw).
-> 
-> The Cuban regime came to China's defense.
-> 
-> It's no surprise communist dictators stick together, but it is surprising that Democrats want to normalize relations with the genocide-supporting regime in Havana. [https://t.co/QqYIyzQMVp](https://t.co/QqYIyzQMVp)
-> — Rick Scott (@SenRickScott) [March 14, 2021](https://twitter.com/SenRickScott/status/1371180359526801411?ref_src=twsrc%5Etfw)
+目前，*潘瑞*的微博提示“只显示上半年”内容。*潘瑞*方面也未就此事进行回应或辟谣澄清。#潘石屹儿子*潘瑞*# [#潘石屹#](https://s.weibo.com/weibo/%23%E6%BD%98%E7%9F%B3%E5%B1%B9%23)#潘石屹儿子*潘瑞*##潘石屹之子被曝诋毁戍边战士##潘石屹儿子*潘瑞*造谣侮辱解放军# [收起全文d](void%280%29;)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-95.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/2-41.jpg)
+原来潘公子因为2020年6月23日05：57分说过的［听说至少一个营地被印度活埋了………好像没机会天葬。］，而2020年6月23日的“案子”一直到2020年3月15日才“依法”对潘某刑事拘留并对其开展追逃，而且海淀公安分局已经知道潘公子在2020年2月2日离京出境。
 
+那么潘瑞他爹是什么情况呢？据郭文贵先生在[2021年2月17号 文贵直播： 马云被抓，今年是南普陀计划的收割年；江家是沼泽地的一部分；新中国联邦将是主角](https://gtv.org/video/id=602d3cebbe64150df85ac9bf)提到的：
 
+［潘石屹出过国吗？张欣出过国吗？还有潘石屹和张欣吗？还有什么银泰吗？所有这些几乎上运物流、电商、所有的一切都是被他们控制了，今年就是拿下习的年。现在他提前拿到干掉马云。］
 
-3月14日参议员瑞克称：
+潘公子他爹和他妈已经被控制了，可是潘瑞却跑了，而且潘瑞的“犯罪”事实已经是他跑之前七个月的事儿了，那么到底什么是刑事拘留呢？据[百度百科——刑事拘留](https://baike.baidu.com/item/%E5%88%91%E4%BA%8B%E6%8B%98%E7%95%99/7592217?fr=aladdin)：［有权决定采用拘留的机关一般是公安机关。人民[检察院](https://baike.baidu.com/item/%E6%A3%80%E5%AF%9F%E9%99%A2)在自侦案件中，对于犯罪后企图自杀、逃跑或者在逃的以及有毁灭、伪造证据或者串供可能的[犯罪嫌疑人](https://baike.baidu.com/item/%E7%8A%AF%E7%BD%AA%E5%AB%8C%E7%96%91%E4%BA%BA)也有权决定拘留。］，也就是说人在跑之前可以刑事拘留，以免犯罪嫌疑人逃跑，可是现在犯罪嫌疑人已经跑了，就不具备刑事拘留的条件了。既然不具备刑事拘留的条件，北京海淀公安分局到底依的是哪条法对潘公子刑事拘留的我们不知道，我们必须要注意到海淀公安分局同时又对潘公子开展追逃。
 
-本周，美国在联合国人权理事会上就新疆问题谴责中国的种族灭绝行为
-古巴政权为中国辩护。
-共产主义独裁者们彼此勾结并不奇怪，但令人惊讶的是，民主党人希望与哈瓦那支持种族灭绝的政权实现关系正常化。
+且不说海淀公安分局对潘公子的追逃是否具有合法，仅从海淀公安分局在2021年3月15日11：50发布的对潘瑞的追逃这个时间点来看，可以初步判断潘瑞已经失去控制并且海淀公安分局将这种追逃公开化，考虑到潘石屹和张欣已经被控制的事实，对待这样的公开追逃潘瑞能做出保住自己和保住爹妈的决定吗？
 
-#### 支持香港
-
-美国白宫发言人纳得对英国政府关于谴责和敦促中共国破坏国际条约和香港制度，发推称：“我们和英国一样，对中华人民共和国最近的进一步破坏香港民主制度的行动，包括继续无视国际承诺和义务表示关切。我们 #支持香港 。”
-
-
-
-> We share the UK’s concerns that the latest actions by the People's Republic of China further undermine Hong Kong’s democratic institutions and demonstrate Beijing's continued disregard for international commitments and obligations. We [#StandWithHongKong](https://twitter.com/hashtag/StandWithHongKong?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/mByE8yIyye](https://t.co/mByE8yIyye)]
-> — Ned Price (@StateDeptSpox) [March 15, 2021](https://twitter.com/StateDeptSpox/status/1371305969926483968?ref_src=twsrc%5Etfw)
-
-
-
-虽然纳得的发言显然再次“政治正确”地摆了个姿态，让美国的“口炮”显得虚弱，英国政府发出的谴责和敦促中共国纠正对香港错误行径的声明，值得关注。
-
-据英国政府3月14日声明，英国外交大臣多米尼克-拉布称：
-
-“北京做出激进改变的决定，限制参与香港的选举制度，这明显进一步违反了具有法律约束力的《中英联合声明》。
-
-“这是骚扰和扼杀所有批评㆗（共）国政策的声音的㆒部份，也是在不足九个月内第㆔次违反联合声明。
-
-“中国当局的持续行动意味着我现在必须报告，英国认为北京持续不遵守《联合声明》，显示了北京的承诺与行动之间的差距越来越大。
-
-“英国会继续为香港㆟争取权益。中（共）国必须按照其法律义务行事，尊重香港的基本权利和自由。”
-
-声明不长，但是从数量上指出中共违反中英联合声明的次数，从质量上用词“必须”，态度严厉。虽然笔者质疑大英帝国难道等着掰手指头悉数中共对香港侵犯的次数，却无视2019年到2020年期间，从第一天香港和平抗议活动起，发生的无数抗议人士被虐待、性侵、杀害，无视中共使用真枪实弹、甚至准化学武器对待守护香港的学生，英国不顾每一次、甚至每天、每一刻香港都在流血，这一切岂止是一个“三次”所能衡量和盖棺定论？在自身和全世界对中共绥靖、纵容后中共猖狂释放病毒超限生物武器，全世界被击溃、损失不可估量，生活发生严重影响和变化的情况下，这是第几次被中共攻击，这一次是真的被打痛了吗？我们对接下来的行动拭目以待。
-
-
-
-文章观点部分仅代表作者本人。
-
-编辑：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
-
-（本文当日持续更新中）
+（文章内容仅代表作者个人观点）
 
 0
