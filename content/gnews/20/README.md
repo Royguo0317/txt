@@ -1,24 +1,76 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 公安部依何法条规定涉毒公众人物和演艺人员一次吸毒终身禁演
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/977781/)
+## 美国政要等每日重要信息0314.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/977733/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/封面-33.png)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0314-1.jpeg)
+#### 对川普声音的呼唤
 
-据[**新浪军事**](https://weibo.com/milnews?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2021年3月15日15：33](https://weibo.com/1499104401/K6j8dp784?ref=home&amp;rid=1_0_8_495404308463481509_6_0_0) 来自 [微博发布平台专业版](https://app.weibo.com/t/feed/G9An2)
+3月13日一则朱利安尼先生的推文如下。
 
-【[#公安部回应一次吸毒终身禁演#](https://s.weibo.com/weibo?q=%23%E5%85%AC%E5%AE%89%E9%83%A8%E5%9B%9E%E5%BA%94%E4%B8%80%E6%AC%A1%E5%90%B8%E6%AF%92%E7%BB%88%E8%BA%AB%E7%A6%81%E6%BC%94%23&amp;from=default)】3月15日，公安部新闻发言人张明表示，一次吸毒终生悔。近年来，个别社会公众人物、演艺人员因涉毒违法犯罪行为被公安机关依法处置，不但个人为此付出了沉重的代价，而且也给喜爱他们的“粉丝们”特别是青少年带来错误示范。为此，国家禁毒办会同文化、新闻出版、广播电视等部门多次对涉毒社会公众人物、演艺人员及其作品使用进行严格管理规范，出台相关处罚措施。希望相关人员遵守法律法规，尊重社会公德，爱护自身形象，真正通过德艺双馨赢得“粉丝们”的喜爱和尊重。[@中新视频](https://weibo.com/n/%E4%B8%AD%E6%96%B0%E8%A7%86%E9%A2%91?from=feed&amp;loc=at) [L中新视频的微博视频](http://t.cn/A6tm6XIA) [#国内讯息#](https://s.weibo.com/weibo?q=%23%E5%9B%BD%E5%86%85%E8%AE%AF%E6%81%AF%23&amp;from=default)[收起全文d](void%280%29;)
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-203.png)
 
-公众人物、演艺人员因涉毒违法犯罪行为被公安机关依法处置，这一点无可厚非，但是公安部以及禁毒办绝对没有权力对涉毒违法犯罪的公众人物、演艺人员终身禁演，因为即使公众人物、演艺人员涉毒，其影视作品并不涉毒，还因为涉毒违法犯罪的公众人物、演艺人员的演艺行为属于商业行为，而这种商业行为只要不触犯刑法、不违法治安管理条例，轮不着公安部来管理和出台规定加以限定。
+[https://twitter.com/JasonMillerinDC/status/1370767820108271620?s=20](https://twitter.com/JasonMillerinDC/status/1370767820108271620?s=20)
+朱利安尼：“我们需要川普总统回到推特上来。”
 
-另外涉毒违法犯罪的公众人物、演艺人员违反刑法或违反治安管理处罚条例的自有对应法条处罚，而这种终身禁演的规定实属现行法律之外的额外加罪，并且这也会断送一次涉毒但一心悔改的公众人物、演艺人员，而在断送了其赖以生存的演艺事业之后是不是把这些本来有机会改过的涉毒人员的生路彻底断送了呢？
+川普总统2020高级顾问米勒（Jason Miller):“推特没有他太乏味了。”
 
-而今既有公安部禁毒办的越俎代庖在前，又有了此番公安部新闻发言人张明的大放厥词在后，这些都完全证实了在这个国度以警治国是涉及到公民私域的方方面面的，就这一点来看709律师的孩子们无法到学校就读、709律师的家属们无法自由迁徙和就业都显得非常顺理成章；不仅如此，只要触犯黑警尊严或者官老爷圣怒的都会限制乘座交通工具、限制就业等等，这一系列的非法剥夺公民权利的行为在这个国家里早已成为常态。
+#### 新疆种族屠杀和人权问题
 
-为什么会这样呢？因为这个国家自这个政党窃据政权以来从未有过一丝一毫的以法治国的理念，时至今日这个国家的管理系统依然是无法无天状态，这一次的公安部回应一次吸毒终身禁演也还是无法无天，因为发言人张明口口声声说到的要求公众人物和演艺人员尊重社会公德，可是社会公德是个什么鸟玩艺儿呢？既然作为行政机关出台了一次吸毒终身禁演的规定，那么这条规定到底依何法条呢？张明说不出来、张明也不知道，作为社会公众的我们更不知道，我们只能从公安部的蛮横和口称社会公德中看出权力的任性和傲慢。
 
-（文章内容仅代表作者个人观点）
+
+> This week, the U.S. condemned China's genocide in Xinjiang in [@UN\_HRC](https://twitter.com/UN_HRC?ref_src=twsrc%5Etfw).
+> 
+> The Cuban regime came to China's defense.
+> 
+> It's no surprise communist dictators stick together, but it is surprising that Democrats want to normalize relations with the genocide-supporting regime in Havana. [https://t.co/QqYIyzQMVp](https://t.co/QqYIyzQMVp)
+> — Rick Scott (@SenRickScott) [March 14, 2021](https://twitter.com/SenRickScott/status/1371180359526801411?ref_src=twsrc%5Etfw)
+
+
+
+3月14日参议员瑞克称：
+
+本周，美国在联合国人权理事会上就新疆问题谴责中国的种族灭绝行为
+古巴政权为中国辩护。
+共产主义独裁者们彼此勾结并不奇怪，但令人惊讶的是，民主党人希望与哈瓦那支持种族灭绝的政权实现关系正常化。
+
+#### 支持香港
+
+美国白宫发言人纳得对英国政府关于谴责和敦促中共国破坏国际条约和香港制度，发推称：“我们和英国一样，对中华人民共和国最近的进一步破坏香港民主制度的行动，包括继续无视国际承诺和义务表示关切。我们 #支持香港 。”
+
+
+
+> We share the UK’s concerns that the latest actions by the People's Republic of China further undermine Hong Kong’s democratic institutions and demonstrate Beijing's continued disregard for international commitments and obligations. We [#StandWithHongKong](https://twitter.com/hashtag/StandWithHongKong?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/mByE8yIyye](https://t.co/mByE8yIyye)]
+> — Ned Price (@StateDeptSpox) [March 15, 2021](https://twitter.com/StateDeptSpox/status/1371305969926483968?ref_src=twsrc%5Etfw)
+
+
+
+虽然纳得的发言显然再次“政治正确”地摆了个姿态，让美国的“口炮”显得虚弱，英国政府发出的谴责和敦促中共国纠正对香港错误行径的声明，值得关注。
+
+据英国政府3月14日声明，英国外交大臣多米尼克-拉布称：
+
+“北京做出激进改变的决定，限制参与香港的选举制度，这明显进一步违反了具有法律约束力的《中英联合声明》。
+
+“这是骚扰和扼杀所有批评㆗（共）国政策的声音的㆒部份，也是在不足九个月内第㆔次违反联合声明。
+
+“中国当局的持续行动意味着我现在必须报告，英国认为北京持续不遵守《联合声明》，显示了北京的承诺与行动之间的差距越来越大。
+
+“英国会继续为香港㆟争取权益。中（共）国必须按照其法律义务行事，尊重香港的基本权利和自由。”
+
+声明不长，但是从数量上指出中共违反中英联合声明的次数，从质量上用词“必须”，态度严厉。虽然笔者质疑大英帝国难道等着掰手指头悉数中共对香港侵犯的次数，却无视2019年到2020年期间，从第一天香港和平抗议活动起，发生的无数抗议人士被虐待、性侵、杀害，无视中共使用真枪实弹、甚至准化学武器对待守护香港的学生，英国不顾每一次、甚至每天、每一刻香港都在流血，这一切岂止是一个“三次”所能衡量和盖棺定论？在自身和全世界对中共绥靖、纵容后中共猖狂释放病毒超限生物武器，全世界被击溃、损失不可估量，生活发生严重影响和变化的情况下，这是第几次被中共攻击，这一次是真的被打痛了吗？我们对接下来的行动拭目以待。
+
+
+
+文章观点部分仅代表作者本人。
+
+编辑：康州盘古农场 喜马拉雅的文雅
+
+封面：康州盘古农场 霹雳年
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
+
+（本文当日持续更新中）
 
 0
