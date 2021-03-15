@@ -1,60 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅：美国正在准备两本白皮书 会要中共的命!
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/976752/)
+## 全球著名疫苗专家保茨博士致WHO公开信呼吁立即停止大规模疫苗接种
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/976885/)
 
-新闻简述：在2021年3月12日的盖特中，郭先生爆出重磅消息：美国正在准备关于中共病毒真相和香港人权状况的白皮书，会要了中共的半条命，甚至让它嗝儿屁。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_2021-03-06_Getter-part1.srt.txt)
-**重磅：美国正在准备两本白皮书 会要中共的命!**
+翻译: Jony(8 Mile)
 
-**Breaking News: Two White Papers Are Under Preparation in the U.S.**
+素材&审稿：Jenny
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Picture-1-2.png)图片来自网络
+以下全文翻译来自《致世界卫生组织的公开信：立即停止所有大规模Covid-19疫苗的接种》
 
-很快你会发现有两个核心的报告，一个草案将在美国发生。这对共产党基本上是踢裆、打脸，是吧？基本这级别的，要它半条命，甚至让它嗝儿屁。他做梦都不会想到，从川普拜登政府从未停息过，美国在秘密的多个领域，在撰写一份叫 Coronavirus 真相的报告，《美国政府关于冠状病毒的白皮书》。
+吉尔特·范登·保茨（Geert Vanden Bossche）博士，独立的病毒学家和疫苗专家，曾受雇于GAVI和比尔&梅林达-盖茨基金会。
 
-Soon you will find out that two major reports are coming out. One report is going to be drafted in the U.S. Basically, the effect of this report will be like kicking the crotch and slapping the face of the CCP, alright? Something like this. It is going to take half of the CCP’s life, or take its life completely. They would never imagine that from the Trump administration to the Biden administration, nothing has really stopped. People from multiple fields in the U.S. are secretly working on a report called the truth about the coronavirus – a white paper of the U.S. government about the coronavirus.
+致全世界所有权威人士、科学家和专家，这关系到：世界各国人民。
 
-大家知道在战斗室里有一位和我、和班农先生多次上节目的美国第一位生物科学，叫做 biological weapon 生物武器科学家。第一，最近你见过他吗？见不着了吧？我可以告诉你连班农先生都不知道他去哪儿了，俺知道，俺知道！但咱不提前爆，还有两个原来七哥说过两个牛叉的人，最近的公众视野消失了很长时间了，去哪儿了？俺知道，俺知道，俺知道，是吧？去哪儿了？都去写这报告去了。
+我不是一个反对疫苗的人。作为一名科学家，我通常不会求助于任何此类平台就疫苗相关话题表明立场。作为一名专职的病毒学家和疫苗专家，我只有在卫生当局允许，以威胁公众健康的方式施用疫苗时才会破例，当然这也是在科学证据被忽视的情况下。目前极其危急的局势迫使我发出这一紧急呼吁。由于人类对Covid-19大流行病的空前干预，现在有可能导致一场无与伦比的全球灾难，因此，这一呼吁再响亮、再强烈也不为过。
 
-You may know that in the War Room, there was a gentleman who joined me and Mr. Bannon multiple times before. He is the first biological weapon scientist in the U.S. Have you seen him recently? Not really, right? I can tell you that even Mr. Bannon doesn’t know where he has gone. I know, but I will not disclose it early. There are also two people whom I’ve mentioned before. Two very important figures who have been out of the sight of the public for a long time. Where did they go? I know, I know, alright? Where did they go? They all went to write this report.
+如上所述，我并不反对接种疫苗。相反，我可以向你保证，目前的每一种疫苗都是由聪明能干的科学家设计、开发和制造的。但是，这种预防性疫苗在病毒大流行期间用于大规模的疫苗接种活动是完全不合适的，甚至是非常危险的。疫苗学家、科学家和临床医生被个别专利中积极的短期效果蒙蔽了双眼，而似乎并不理会对全球健康造成灾难性后果。除非在科学上我被证明是错误的，否则目前人类的干预措施如何防止循环变种演变成“野兽”将很难研究明白。
 
-这个报告一出炉，共产党你会看到它。你就发现它愚蠢、流氓、下三滥到了极点，就像那九指妖一样：“让你写遗书，写给我，我也写遗书啊。”就这么烂，就这么 Low，就是不写账单是事，为啥改账单？是吧？就这么 Low，就共产党似的，一会儿是鞋得阳性了，一会儿是螃蟹得阳性了，一会儿汽车得阳性了，这简直是荒唐至极。
+与时间赛跑，我正在完成我的科学手稿，但不幸的是，鉴于迅速传播的高传染性变种所带来的威胁越来越大，手稿的发表可能为时已晚。这就是为什么我已在领英LinkedIn上发布我的研究结果摘要以及最近在俄亥俄州疫苗峰会上的主题演讲内容。上周一，根据我对Covid-19的免疫生物学科学依据上的见解，我向包括世卫组织在内的国际卫生组织提供了对当前流行病的分析。考虑到紧急程度，我敦促他们考虑我的关切，并进一步就 “病毒免疫逃逸” 的有害后果展开辩论。对于那些不是该专业领域的人，我在下面附上一份关于这一隐秘现象背后，科学的更容易理解的版本。
 
-Once the report is released, you will see how stupid, rogue, and wicked the CCP is. It’s just like the nine-finger demoness, asking you to write a will with her being the beneficiary and saying she also wrote a will herself. That is how low she is. Why did she alter the bank transaction record? That’s how low she is, just like the CCP who has blamed shoes, crabs, and even cars for carrying the virus. This is absolutely absurd.
+时间不等人，我至今没有收到任何反馈。专家和政客们保持沉默，并显然还在热衷于谈论放宽预防感染的规定和“春季自由”。我的言论只基于科学，所以只能基于科学被反驳。虽然一个人几乎不能做出任何不正确的科学声明而不被同行批评，但目前为世界领导人提供建议的科学家精英们似乎宁愿保持沉默。足够的科学证据已经摆到了桌面上。遗憾的是，有能力采取行动的人仍然没有触及到这个问题。目前有大量证据表明，病毒免疫逃逸正在威胁着人类，我们还能忽视这个问题多久？我们很难说我们不知道–或者没有被警告。
 
-这个世界上不都是傻子，也不能全部被收买。这个 CCP 病毒报告白皮书一出来，美国西方已经把共产党直接扔进了垃圾箱，这是一个。第二个，兄弟姐妹们，可能是你们想象不到，关于对香港，叫《香港人权情况的调查报告》，也称《香港人权白皮书》。这是一个美国内部多个部门，全面开始进行的撰写的一个报告，没有停过，这个报告一旦出来，和香港的最近所谓共产党的取消一国两制的选举法，和共产党现在马上在香港搞的什么教育改革，你能发现共产党有多疯狂，它有多狂妄，它有多无知，它有多下三滥。世界上70多亿人口，真的都那么懦弱？真的都那么愚蠢？真的就那么容易被收买吗？
+在这封痛苦的信中，我把我的名誉和信誉都置于危险之中。我希望你们这些人类的守护者至少也能这样做。这是当务之急。请展开辩论。通过各种手段：扭转形势！
 
-Not everyone in this world is a fool, nor can everyone be bought off. As soon as the white paper about the CCP virus comes out, the CCP will be thrown to the trash can by the West and the U.S. This is one thing. The other one is – brothers and sisters, maybe you can’t imagine it – the report on the investigation of Hong Kong’s human rights situation, which is also called the Hong Kong Human Rights White Paper, is currently being written by multiple agencies in the U.S. The writing has never been stopped. Once you see this report, and the recent so-called election law in HK for the abolition of the “one country, two systems” by the CCP, and also the education reform in HK developed by the CCP, you will find out how crazy, how arrogant, and how rogue the CCP is. The world has more than 7 billion people. Are they all coward? Are they all stupid? Is it really that easy to buy off everyone?
+引起国际关注的突发公共卫生事件。
 
-当一个人失去了对真相的判断能力，又对真理失去了信心，又对上帝表示怀疑，剩下的你就是等待死亡了，没有任何选择的，这就是共产党。和共产党已经被严重洗脑的，像海外孟维参、熊宪民、高冰尘，这帮孙子，李伟东这帮烂人一样，无知狂妄加上一股脑的冲向死亡，大家走着看。你们做梦都不会想到，当你们沮丧，当你们难受，关注着1/20的时候，这个国家的机器和世界上正义的机器和上天的上帝，从来没有停止过正义的工作，不要被几个人扰乱了视野。
+为什么在流行病中大规模接种疫苗会产生一个失控的怪物？
 
-When a person loses the ability to tell what the truth is, loses confidence in the truth, and doubts God, what’s left to this person will be just waiting for death, and there is no other choice, and this is exactly the CCP. People who have been seriously brainwashed by the CCP such as those bastards overseas, like Meng Weican, Xiong Xianmin, Gao Bingchen, and Li Weidong, are ignorant and arrogant and rushing to death. Everybody, let’s wait and see. You can’t imagine that when you guys felt depressed, frustrated and was focusing on January 20th, the machines in this country and the world and God have never stopped working for the justice. Don’t be distracted by the few bad people.
+关键的问题是：为什么似乎没有人关心病毒免疫逃逸的问题？让我试着用一个更容易理解的现象来解释这个问题：抗菌剂耐药性。我们可以很容易地把这个祸害推断为对我们自制的 “抗病毒抗生素” 的耐药性。事实上，我们自己的免疫系统产生的抗体（Abs）可以被认为是自制的抗病毒抗生素，无论它们是先天免疫系统的一部分（即所谓的 “天然” Abs），还是对特定病原体的反应（即所谓的 “获得性” Abs）。
 
-这是我最早一两年前就说过，拜登当选总统可能比川普还反共，不管他们现在忽高忽低怎么勾兑，不要影响了你对真相的和真理的和上帝的信任和判断和依靠，这才是一个正常的人。不要被恶魔和假象一时骚扰，人家东你就东，我这一辈子最恨的是，听东就是风，听西就是雨，东家的风，西家的雨，从来没有自己，永远是首鼠两端，永远是犹犹豫豫。就像我昨天说的，我爹我娘一辈子我爹就说了，咱多听听人家说说吧，我娘从来不信。是因为你不自信，是因为你没能力，你什么都听，什么多听几家，你就失去了判断，因为你没有自信和判断能力。就像我昨天说的，我娘老骂，是不是？那屎那个东西，老远一闻就知道的屎，你非要舔一舔才知道是屎吗？
+天生的抗体不是针对病菌的，而获得性抗体是专门针对入侵的病原体的。在出生时，我们的先天免疫系统是 “没有经验的”，但已经建立起来了。它保护我们免受多种病原体的侵害，从而防止这些病原体引起疾病。由于先天免疫系统无法记住它所遇到的病原体（先天免疫没有所谓的 “免疫学记忆”），我们只能继续依赖它，但前提是我们要对它进行足够的 “训练”。训练是通过定期接触各种环境因素，包括病原体来实现的。然而，随着年龄的增长，我们将越来越多地面临这样的情况：我们的先天免疫力（通常被称为 “第一道免疫防线”）不够强大，无法阻止病原体在入口处（主要是粘膜屏障，如呼吸道或肠道上皮）进入。当这种情况发生时，免疫系统就必须依靠我们免疫系统中更专业的效应器（即抗原特异性Abs和T细胞）来对抗病原体。所以，随着我们的成长，我们会越来越多地拥有病原体特异性免疫，包括高度特异性的抗体。由于这些抗体对病原体（如病毒）有更强的亲和力，并且可以达到很高的浓度，它们可以很容易地战胜我们天生抗体与病原体/病毒的结合。
 
-This is what I said as early as one or two years ago, that Biden may be even more anti-CCP than Trump when elected as president. No matter how much or how little they are colluding [with the CCP] right now, don’t let them affect your trust in the truth and God or affect your judgement. This is what a normal person should do. Don’t let yourself be harassed by demons and illusions or follow their directions. What I hate most in my life is listening to everything that other people say, losing yourself, and hesitating about everything. It’s just like what I said yesterday about my father and my mother. My father always said, “Let’s listen to others for what they have to say.”, whereas my mother never believed this. You listen to everything other people say and want to hear more people’s opinions because you are not confident, you are incompetent, and you don’t have your own judgement. As I said yesterday, my mother always scolded [us] like this, “You can tell it is shit from a far distance, then why do you still want to lick it to know it is shit?”
+目前的Covid-19疫苗所诱导的正是这种高特异性、高亲和力的抗体。当然，这些抗体的崇高目的是保护我们免受Covid-19的侵害。那为什么使用这些疫苗来对抗Covid-19有很大的顾虑呢？
 
-这就是世界的真理。共产党制造的病毒，你觉得这事就过去了？然后就找出蝙蝠、穿山甲呀，什么美国水牛城啊，他想然后弄到月球上去了，他想说过去就过去了，你太小看人类了吧？香港的事情你随便杀、随便抓、随便被自杀、随便强奸、随便鸡奸，就没事了，西方就拉倒了，你觉得可能吗？它只是什么时候有行动，有什么样的行动，他不可能没行动。不管你怎么对待这个世界，你有多么消极的看法，不论发生的事在你身上有多少悲哀的事情，和多少不幸的事情，你永远都要记住，有两样事是不会改的：太阳每天都升起，你不要以为因为你发生什么事，这个世界就黑暗了，那太阳每天都升起，从来没改变过。
+好，与适用于经典抗病毒抗生素的规则类似，最重要的是我们自制的 “抗病毒抗生素” 要有足够的浓度，并针对敌人的具体特征。所以在发生细菌性疾病时，不仅要选择合适的抗生素种类（根据抗生素检查结果），而且要（根据处方）有足够长的抗生素服用时间，这一点至关重要。如果不遵守这些要求，就有可能给予微生物生存的机会，因此，可能导致疾病的恶化。病毒也可能适用于这个非常类似的机制，特别是容易快速变异的病毒（例如，冠状病毒就是如此）；当人口的免疫防御所施加的压力开始威胁到病毒的复制和传播时，病毒就会披上另一件外衣，使它不再容易被识别，从而被宿主免疫系统攻击。病毒这样就可以逃避免疫了（即所谓：”免疫逃避”）。
 
-This is the truth of the world. The virus was made by the CCP. Do you think people will let it go? They [the CCP] have blamed bats and pangolins, Buffalo City in the U.S., and even the moon. They think they can get away with it; they have underestimated the humankind, haven’t they? In Hong Kong, you killed and arrested people, faked suicide scenes, and raped people. Do you think you can get away with it and the West will let you go? Do you think it is possible? It is only a matter of when and what kind of actions will be taken, but it’s impossible to have no actions. No matter how you face the world, how negative you view it, no matter how many sad things and tragic things have happen to you, you must always remember that there are two things that will never change. The sun rises every day. Don’t think that because of what have happened to you, the world is dark. The sun rises every day and this has never changed.
+然而，病毒只有在仍有足够复制空间的前提下，才能依靠这种策略。病毒与大多数细菌不同，必须依靠活的宿主细胞来复制。这也是为什么 “逃逸突变体” 的出现并不太令人担忧，只要这些变异体迅速找到另一个宿主的可能性相当小。然而，在病毒大流行期间，情况并非如此! 在病毒大流行期间，病毒在全球范围内传播，很多受试者都会脱落并传播病毒(甚至包括无症状的”携带者”)。病毒载量越高，病毒撞向尚未被感染或已被感染但未出现症状的受试者的可能性就越大。除非他们有足够的先天免疫防御（通过天生抗体）保护，否则他们将感染Covid-19疾病，因为他们不能依靠其他抗体，即获得性抗体。事实上，已经有大量的报道表明，在无症状感染者中，S(穗)特异性抗体的增加相当有限，而且只是短暂的。此外，这些抗体还没有完全成熟。在抗体成熟度和浓度不理想的背景下，病毒感染的组合使病毒能够选择突变，使其逃脱免疫压力。这些突变的选择最好发生在S蛋白中，因为这是负责病毒感染性的病毒蛋白。
 
-第二件事情：正义一定会到来。由于你的无知和无能，可能不发生在你身上，但已经发生在别人身上，可能是你的敌人被消灭了，但最终你没有能力做的时候，但有别人会去惩罚它。正义永远不会缺席，这两样东西不会改变。这是我人生坚信的：真的假不了，假的真不了。这是为什么我一直相信的，也是新中国联邦一直坚信的：唯真不破，真善狠。
+由于选择的突变赋予了病毒更强的感染能力，现在病毒更容易在感染者中引起严重的疾病。患有症状疾病的人越多，病毒就越能保证其传播和延续（得了严重疾病的人比无症状性感染的受试者会脱落更多的病毒，而且时间更长）。不幸的是，足够的、短暂的S特异性抗体的上升，却的确可以绕过人们的先天/自然抗体。这些先天的都是被淘汰的，因为它们对S的亲和力低于S特异性抗体的亲和力。这就是说，随着人群感染率的增加，在经历S特异性抗体瞬间增加的同时，被感染的受试者数量会稳步增加。因此，在经历先天免疫力瞬间下降的同时，被感染的受试者数量将增加。结果，稳步增加的受试者将变得更容易得严重的疾病，而不是只表现出轻微的症状（即，仅限于上呼吸道）或根本没有症状。
 
-The second thing: justice will definitely come. Because of your ignorance and incompetence, it may not happen to you, but it has happened to others. It may be that your enemy has been wiped out by others or punished by others in the end when you are unable to do it yourself. Justice will never be absent, and these two things will never change. This is what I firmly believe in my life: true cannot be false, and false cannot be true. This is why I have always believed, and the New Federal State of China has always believed “only truth is nonbreakable” and “be truthful, kind, but resolute”.
+在大流行期间，特别是年轻人将受到这种演变的影响，因为他们的天生抗体还没有在很大程度上被 “获得性”、抗原特异性抗体所抑制。天生抗体和一般的天然免疫力在保护我们免受病原体侵害方面发挥着关键作用，因为它们构成了我们的第一道免疫防线。与获得性免疫相反，先天性免疫反应可以保护我们免受多种病原体的侵害（所以不要损害或舍弃您的先天性免疫防御！）。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+由于天生抗体和先天免疫细胞能识别多样化的外来（即非自身）病原体（只有部分病原体具有致病潜能），因此，让它充分暴露在环境挑战下确实很重要。通过保持先天免疫系统（不幸的是，它没有记忆力！）的训练，我们可以更容易地抵抗那些真正具有致病潜力的病菌。例如，它已经被报告和科学证明，暴露于其他、相当无害的冠状病毒导致的“普通感冒”可以给人体提供保护，虽然是短暂地针对 Covid-19 和其忠诚追随者（即，更多的传染性变种）。
 
-视频来源：[https://gtv.org/getter/604b8d61607c4240c8b50d61](https://gtv.org/getter/604b8d61607c4240c8b50d61) (00:41-7:45)
+因此，抑制先天免疫力，特别是在年轻群体中，可能会变成非常严重的问题。毫无疑问，由于在流行病开始时实施了严格的遏制措施，缺乏接触，这对保持人们的先天免疫系统得到良好的训练是不利的。如果这还没有严重影响到这部分人群的先天免疫防御能力，那么另一种力量的出现将极大地提升年轻群体的发病率和死亡率：对老年人进行大规模的疫苗接种。老年人接种疫苗的范围越广，受到的保护越多，病毒就越会被迫继续在年轻群体中致病。只有在病毒逃逸到S型特异性抗体上，并在以前无症状的感染者中瞬间升高的情况下，才有可能做到这一点。如果病毒设法做到这一点，它就可以从（瞬间）被抑制的先天免疫中获益，从而在越来越多的受试者中引起疾病，并确保其自身的传播。因此，选择S蛋白的靶向突变，是让病毒在那些因为先天免疫防御能力短暂弱化而容易得病的候选者身上增强其传染性的必经之路。
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/970651/](https://gnews.org/zh-hans/970651/)
+但与此同时，我们在接种疫苗的人群中也面临着一个巨大的问题，因为他们现在越来越多地面临着显示一种S蛋白的传染性变体，这种变体与疫苗所组成的S版越来越不同（后一版源于流行初期传染性更低的原始菌株）。变种越多，传染性越强（即，由于阻断了病毒进入接种人群的途径），疫苗抗体的保护作用就越小。现在，缺乏保护已经导致接触这些传染性更强的变异株（顺便说一下，这些变异株在该领域越来越占主导地位）的疫苗接受者的病毒脱落和传播。这就是我们目前将疫苗变成无症状携带者脱落感染性变种的方式。
 
-* * *
+在不久的将来，病毒会变得更有利可图（从 “选择投资回报率 “的角度来说），只是在病毒变体（已经具有增强传染性的多种突变）的S蛋白上再增加几个突变（也许只有一两个），以试图进一步加强它与上皮细胞表面表达的受体（ACE-2）的结合。这将使新的变异体在与ACE受体结合方面超过疫苗抗体。这就是说，在这一阶段，只需在病毒受体结合域内再进行极少的靶向突变，就可以完全抵抗S型特异性的抗Covid-19 的抗体，而无论后者是由疫苗还是由自然感染引起的。
 
-翻译：【Isaiah4031】字幕：【JennyL】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+在这一阶段，病毒将确实设法获得一个巨大的受试者库，这些受试者现在变得高度易感，因为他们的S-特异性抗体已经失去了保护作用，但仍然能够长期抑制其先天免疫力（即，自然感染，特别是疫苗接种，引起相对长效的特异性抗体滴度）。易感人群包括两方面，接种疫苗的人和那些由于之前的Covid-19疾病而留下足够的S特异性抗体的人。所以，对Covid-19来说是完成任务了，但对于所有接种对象和Covid-19血清阳性的人来说却是灾难性的，因为他们现在已经失去了对Covid-19的后天和先天的免疫防御（而高传染性的菌株却在流通！）。
 
-+2
+这就是“病毒的一小步，人类的一大灾难”，也就是说，我们会把年轻群体中的病毒培养到一个水平，现在Covid-19几乎不费吹灰之力就能转化为一种高传染性的病毒，完全无视我们免疫系统的先天防御以及适应性/后天防御（不管后天性抗体是由疫苗接种还是自然感染造成的）。鉴于许多疫苗接种者现在只接种了一针疫苗，却接触到了高传染性的病毒变种，因而为病毒所做的努力已经变得更加微不足道。因此，他们被赋予了尚未获得最佳功能的抗体。毫无疑问，这只是会进一步增强免疫逃逸能力。基本上，我们很快就会面对一种超级感染性病毒，它完全抵御了我们最珍贵的防御机制：人类的免疫系统。
+
+从以上种种情况来看，越来越难以想象，人类广泛而错误地干预这场大流行病，其后果怎么可能不把大部分人口消灭掉。我们只能想到很少有其他策略可以达到同样的效率，将一种相对无害的病毒变成大规模杀伤性的生物武器。
+
+当然还值得一提的是，已知S蛋白（即恰恰是受选择逃逸突变的蛋白）的突变可以使冠状病毒跨越物种障碍。这就是说，疫苗介导的免疫逃逸可能使病毒跳到其他动物物种，特别是工业化牲畜（如猪和家禽养殖场）的风险是不可忽视的。这些物种已被认为是几种不同冠状病毒的宿主，而且通常被安置在高饲养密度的农场。与流感病毒的情况类似，这些物种可以成为SARS-COVID-2病毒的另一个储存库。
+
+随着病原体与宿主免疫系统共同进化，急性自限性病毒感染的自然流行已经形成，对人类生命造成的损失不会高于所严格要求的。由于人类的干预，这场大流行的进程从一开始就被彻底打乱了。广泛而严格的预防感染措施，再加上使用不足的疫苗进行大规模的疫苗接种活动，无疑会导致疫情越来越 “失控” 。
+
+矛盾的是，唯一能给予结束这场大流行预期的干预措施（除了让其灾难性地发展下去）就是……接种。当然，要使用的疫苗类型将与传统疫苗完全不同，因为它们不是诱导通常的可疑物，即B和T细胞，而是NK细胞。事实上，有令人信服的科学证据表明，这些细胞在促进无症状感染者在感染早期彻底消除Covid-19方面发挥了关键作用。NK细胞是我们先天免疫系统的细胞手臂的一部分，和天然抗体一样，它们能够识别和攻击广泛而多样化的病原体。我们有充分的科学依据来假设，有可能在感染的早期阶段以某种方式 “刺激” NK细胞，使其识别并杀死整个冠状病毒（包括其所有变种）。越来越多的NK细胞被描述为具有获得免疫学记忆的能力。通过教育这些细胞的方式，使它们能够持久地识别和靶向被冠状病毒感染的细胞，我们的免疫系统就可以完美地武装起来，在暴露之前对所有冠状病毒进行有针对性的攻击。由于基于NK细胞的免疫防御能提供杀菌免疫力，并能实现广谱、快速的保护，因此有理由认为，利用我们的先天免疫细胞将是人类为阻止高传染性Covid-19变种的危险传播而留下的唯一一种干预方式。
+
+如果我们人类致力于延续我们的物种，我们就别无选择，只能根除这些高传染性的病毒变种。这确实需要大规模的疫苗接种活动。然而，以NK细胞为基础的疫苗将主要使我们的自然免疫力得到更好的准备（记忆！），并诱发群体免疫力（这与目前的Covid-19疫苗的作用恰恰相反，因为那些疫苗越来越多地将疫苗接受者变成了无症状携带者，他们正在脱落病毒）。所以，现在换挡已经刻不容缓，用救命的疫苗取代目前的致命疫苗。
+
+我呼吁世卫组织和所有相关利益攸关方，无论其信念如何，立即宣布这一行动为国际关注的最重要的公共卫生紧急事件。
+
+（本文系原文翻译，无个人观点添加）
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-澳喜Logo.jpeg)
+Source:
+
+[https://dryburgh.com/geert-vanden-bossche-open-letter-to-who-halt-all-covid-19-mass-vaccination/](https://dryburgh.com/geert-vanden-bossche-open-letter-to-who-halt-all-covid-19-mass-vaccination/)
+
+0

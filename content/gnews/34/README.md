@@ -1,15 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月14日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/976457/)
+## 《文贵说》| 图片连载 （十九）
+` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/976505/)
 
-编辑整理：美东香草山农场（彩虹桥）
+![]()![](https://gnews.org/wp-content/uploads/2021/03/04-4.jpg)
+**爆料革命过去一直以来被骂的郭文贵最多的一个字叫“郭骗”，现在郭骗变成了“郭希望”，是中国人的希望、投资的希望、未来的希望、解决恐惧的希望、解决自己贫穷的希望。**
 
-3月14日：再谢伟大的战友们🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏按照战友的要求发一些照片。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-93.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/2-39.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/3-53.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/4-33.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/5-32.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/6-28.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/7-19.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/8-7.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/9-10.jpg)
-[【2021年3月14日】文贵先生盖特原文](https://gtv.org/getter/604e67e0607c4240c8b591cb)
+**—— 郭文贵先生 2020年5月30日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/03-1-1.jpg)
+**爆料革命千万个战友们一样，我们就是平民老百姓，我们就是草根，我们没做过大恶，我们也没干过多么惊天动地的事。这才是我们真正的爆料革命。**
 
-喜联盟**Gnews**编辑部(
+**—— 郭文贵先生 2020年6月13日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/01-3-1.jpg)
+**我曾经给大家说过，李长春也好，还有常委的几个人说过，他说人类呀，早晚得有一场这个自然灾难，干掉一多半的人，这是必然现象。**
 
-0
+**—— 郭文贵先生 2020年2月1日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/02-4.jpg)
+**有人叫郭德银准备好一场现代化的战争！那就是生物战争，生化战争！**
+
+**—— 郭文贵先生 2020年2月3日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/05-1-1.jpg)
+**在大灾难来临前，新中国联邦成为西方唯一保护中国人的一棵大树。**
+
+**—— 郭文贵先生 2020年6月17日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/04-1-1.jpg)
+**你成为爆料革命最早觉醒的人。未来就一定属于你的，新中国联邦时代将給每个战友无限的未来。**
+
+**—— 郭文贵先生 2020年6月16日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/03-2-1.jpg)
+**在海外中国人两条路：一、忠于共党，被全世界调查。二、反共。所有人必须站队！西方彻底分清楚了，没有中间派。**
+
+**—— 郭文贵先生 2020年6月17日**
+
+
+
+- [***更多精美海报请点击G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4)
+
+
+
+
++1
