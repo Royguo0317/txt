@@ -1,71 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【聚焦】美国海外领地：与中共全球竞争的前线
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/976721/)
+## 重磅：美国正在准备两本白皮书 会要中共的命!
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/976752/)
 
-#### 翻译：麦克阿Sir
+新闻简述：在2021年3月12日的盖特中，郭先生爆出重磅消息：美国正在准备关于中共病毒真相和香港人权状况的白皮书，会要了中共的半条命，甚至让它嗝儿屁。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_2021-03-06_Getter-part1.srt.txt)
+**重磅：美国正在准备两本白皮书 会要中共的命!**
 
-#### 校对：文泓
+**Breaking News: Two White Papers Are Under Preparation in the U.S.**
 
-#### 编辑：翼族
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image0-39.jpg)
-图片来源：https://defpost.com/
+很快你会发现有两个核心的报告，一个草案将在美国发生。这对共产党基本上是踢裆、打脸，是吧？基本这级别的，要它半条命，甚至让它嗝儿屁。他做梦都不会想到，从川普拜登政府从未停息过，美国在秘密的多个领域，在撰写一份叫 Coronavirus 真相的报告，《美国政府关于冠状病毒的白皮书》。
 
-自1962年10月古巴导弹危机以来，还没有一个敌对外国势力在美国本土附近（对美国）构成直接的军事威胁。然而，随着美国和中共国长期竞争的不断加深，美国发现自己在太平洋和加勒比海地区的领土和属地处在了北京恶性影响、经济掠夺和军事野心的前线。到目前为止，华盛顿的决策者们几乎没有意识到，美国于自己的领土或邻近水域的重要利益正面临着日益严重的威胁。
+Soon you will find out that two major reports are coming out. One report is going to be drafted in the U.S. Basically, the effect of this report will be like kicking the crotch and slapping the face of the CCP, alright? Something like this. It is going to take half of the CCP’s life, or take its life completely. They would never imagine that from the Trump administration to the Biden administration, nothing has really stopped. People from multiple fields in the U.S. are secretly working on a report called the truth about the coronavirus – a white paper of the U.S. government about the coronavirus.
 
-世界各地的美国领土权益代表着不同的行政模式和治理安排，反映了美国领土和属地的不同历史。在太平洋有关岛、北马里亚纳群岛联邦（CNMI）和美属萨摩亚的领土；在加勒比海有波多黎各和美属维尔京群岛（USVI）。此外，美国在太平洋地区还管理着9个属地（贝克岛，豪兰岛，贾维斯岛，约翰斯顿环礁，金曼礁，中途岛，巴尔米拉环礁和维克岛），在加勒比地区（纳瓦萨岛）还有一项有争议的属地。
+大家知道在战斗室里有一位和我、和班农先生多次上节目的美国第一位生物科学，叫做 biological weapon 生物武器科学家。第一，最近你见过他吗？见不着了吧？我可以告诉你连班农先生都不知道他去哪儿了，俺知道，俺知道！但咱不提前爆，还有两个原来七哥说过两个牛叉的人，最近的公众视野消失了很长时间了，去哪儿了？俺知道，俺知道，俺知道，是吧？去哪儿了？都去写这报告去了。
 
-**战略****性的****地理****位置**
+You may know that in the War Room, there was a gentleman who joined me and Mr. Bannon multiple times before. He is the first biological weapon scientist in the U.S. Have you seen him recently? Not really, right? I can tell you that even Mr. Bannon doesn’t know where he has gone. I know, but I will not disclose it early. There are also two people whom I’ve mentioned before. Two very important figures who have been out of the sight of the public for a long time. Where did they go? I know, I know, alright? Where did they go? They all went to write this report.
 
-大约有350万的美国人以公民或国民身份居住在美国的五个海外领地上。美国人口普查数据显示，仅波多黎各的人口（截至2019年估计为320万）就多于20个州的人口（编者注：美国中部以及一些偏远州的人口很少）。美国所有领土和属地的专属经济区（EEZ）的总面积超过130万平方英里，而美国在太平洋的领土资产总面积超过了75万平方英里。
+这个报告一出炉，共产党你会看到它。你就发现它愚蠢、流氓、下三滥到了极点，就像那九指妖一样：“让你写遗书，写给我，我也写遗书啊。”就这么烂，就这么 Low，就是不写账单是事，为啥改账单？是吧？就这么 Low，就共产党似的，一会儿是鞋得阳性了，一会儿是螃蟹得阳性了，一会儿汽车得阳性了，这简直是荒唐至极。
 
-美国的领土和属地仍然与最初获得时具有一样的战略意义。波多黎各和美属维尔京群岛（USVI）横跨两条重要的海上航线：连接美国大陆与南美的莫纳海峡，以及从中东和欧洲通往巴拿马运河的主要集装箱路线。长期以来纳瓦萨岛（Navassa Island）与海地一直存在（领土）争议，它位于古巴和（海地）伊斯帕尼奥拉之间的向风海峡的南部入口处，距关塔那摩湾海军基地约100英里。
+Once the report is released, you will see how stupid, rogue, and wicked the CCP is. It’s just like the nine-finger demoness, asking you to write a will with her being the beneficiary and saying she also wrote a will herself. That is how low she is. Why did she alter the bank transaction record? That’s how low she is, just like the CCP who has blamed shoes, crabs, and even cars for carrying the virus. This is absolutely absurd.
 
-美国的太平洋领土资产是在1850至1900年代初期获得的，目的是为了保护夏威夷与美国西海岸和东亚之间的海上航线。至今这些领土扮演着与约翰·昆西·亚当斯总统（John Quincy Adams）时代相同的战略角色，他在1820年代曾有预言性地写道：“（美国）延伸到太平洋岛屿的商业和渔业设施……也要求在联邦的旗帜下显示其保护权。”
+这个世界上不都是傻子，也不能全部被收买。这个 CCP 病毒报告白皮书一出来，美国西方已经把共产党直接扔进了垃圾箱，这是一个。第二个，兄弟姐妹们，可能是你们想象不到，关于对香港，叫《香港人权情况的调查报告》，也称《香港人权白皮书》。这是一个美国内部多个部门，全面开始进行的撰写的一个报告，没有停过，这个报告一旦出来，和香港的最近所谓共产党的取消一国两制的选举法，和共产党现在马上在香港搞的什么教育改革，你能发现共产党有多疯狂，它有多狂妄，它有多无知，它有多下三滥。世界上70多亿人口，真的都那么懦弱？真的都那么愚蠢？真的就那么容易被收买吗？
 
-关岛和北马里亚纳群岛（CNMI）位于北太平洋，属于密克罗尼西亚群岛的一部分，密克罗尼西亚群岛还包括帕劳、马绍尔群岛和密克罗尼西亚联邦这些独立的国家，美国与之缔结自由联盟契约，并提供有保障的军事准入，以及拒绝外国势力使用它们（军事基地）的权利。关岛距离日本仅1500英里，拥有大约7000名美国军事人员，其中包括美国海军攻击潜艇中队和船舶修理设施，美国空军的一个主要基地，多艘美国海岸警卫队巡逻艇，并且在未来十年中将从冲绳调入5000名海军陆战队员。位于北马里亚纳群岛（CNMI）的天宁岛机场（Tinian）将作为美国军用飞机的备用机场。
+Not everyone in this world is a fool, nor can everyone be bought off. As soon as the white paper about the CCP virus comes out, the CCP will be thrown to the trash can by the West and the U.S. This is one thing. The other one is – brothers and sisters, maybe you can’t imagine it – the report on the investigation of Hong Kong’s human rights situation, which is also called the Hong Kong Human Rights White Paper, is currently being written by multiple agencies in the U.S. The writing has never been stopped. Once you see this report, and the recent so-called election law in HK for the abolition of the “one country, two systems” by the CCP, and also the education reform in HK developed by the CCP, you will find out how crazy, how arrogant, and how rogue the CCP is. The world has more than 7 billion people. Are they all coward? Are they all stupid? Is it really that easy to buy off everyone?
 
-美属萨摩亚岛位于南太平洋的波利尼西亚群岛，在新西兰以北约2000英里处，目前一个可行性研究的重点是，是否在此设立海岸警卫队的快速反应巡逻舰，以维护地区安全并协助当地合作伙伴打击中共国的恶性活动。
+当一个人失去了对真相的判断能力，又对真理失去了信心，又对上帝表示怀疑，剩下的你就是等待死亡了，没有任何选择的，这就是共产党。和共产党已经被严重洗脑的，像海外孟维参、熊宪民、高冰尘，这帮孙子，李伟东这帮烂人一样，无知狂妄加上一股脑的冲向死亡，大家走着看。你们做梦都不会想到，当你们沮丧，当你们难受，关注着1/20的时候，这个国家的机器和世界上正义的机器和上天的上帝，从来没有停止过正义的工作，不要被几个人扰乱了视野。
 
-甚至美国（统称为“美国本土外小岛屿”）的一些太平洋领土也具有战略意义。这些小岛位于北太平洋沿美国西海岸和东亚之间的关键海上通道上，最初美国是在19世纪获得这些岛屿的。这些小岛屿是美国人在广阔的太平洋中受欢迎的主权领土。
+When a person loses the ability to tell what the truth is, loses confidence in the truth, and doubts God, what’s left to this person will be just waiting for death, and there is no other choice, and this is exactly the CCP. People who have been seriously brainwashed by the CCP such as those bastards overseas, like Meng Weican, Xiong Xianmin, Gao Bingchen, and Li Weidong, are ignorant and arrogant and rushing to death. Everybody, let’s wait and see. You can’t imagine that when you guys felt depressed, frustrated and was focusing on January 20th, the machines in this country and the world and God have never stopped working for the justice. Don’t be distracted by the few bad people.
 
-威克岛（Wake Island）位于夏威夷和关岛之间，目前美国空军正耗资8700万美元进行升级改造，以便更好地支持飞行作业。中途岛环礁（Midway Atoll）和约翰斯顿环礁（Johnston Atoll）以前都曾部署过美国军事设施，可以重新启用，以增加美军在北太平洋地区的力量投射。
+这是我最早一两年前就说过，拜登当选总统可能比川普还反共，不管他们现在忽高忽低怎么勾兑，不要影响了你对真相的和真理的和上帝的信任和判断和依靠，这才是一个正常的人。不要被恶魔和假象一时骚扰，人家东你就东，我这一辈子最恨的是，听东就是风，听西就是雨，东家的风，西家的雨，从来没有自己，永远是首鼠两端，永远是犹犹豫豫。就像我昨天说的，我爹我娘一辈子我爹就说了，咱多听听人家说说吧，我娘从来不信。是因为你不自信，是因为你没能力，你什么都听，什么多听几家，你就失去了判断，因为你没有自信和判断能力。就像我昨天说的，我娘老骂，是不是？那屎那个东西，老远一闻就知道的屎，你非要舔一舔才知道是屎吗？
 
-**中****共****国的侵蚀**
+This is what I said as early as one or two years ago, that Biden may be even more anti-CCP than Trump when elected as president. No matter how much or how little they are colluding [with the CCP] right now, don’t let them affect your trust in the truth and God or affect your judgement. This is what a normal person should do. Don’t let yourself be harassed by demons and illusions or follow their directions. What I hate most in my life is listening to everything that other people say, losing yourself, and hesitating about everything. It’s just like what I said yesterday about my father and my mother. My father always said, “Let’s listen to others for what they have to say.”, whereas my mother never believed this. You listen to everything other people say and want to hear more people’s opinions because you are not confident, you are incompetent, and you don’t have your own judgement. As I said yesterday, my mother always scolded [us] like this, “You can tell it is shit from a far distance, then why do you still want to lick it to know it is shit?”
 
-然而，中共国的全球战略竞争方略显示出了不尊重美国领土或属地的迹象。的确，鉴于华盛顿官方最高层对美国领土（海外领土）的相对忽视，这些小岛屿更容易受到北京的掠夺。
+这就是世界的真理。共产党制造的病毒，你觉得这事就过去了？然后就找出蝙蝠、穿山甲呀，什么美国水牛城啊，他想然后弄到月球上去了，他想说过去就过去了，你太小看人类了吧？香港的事情你随便杀、随便抓、随便被自杀、随便强奸、随便鸡奸，就没事了，西方就拉倒了，你觉得可能吗？它只是什么时候有行动，有什么样的行动，他不可能没行动。不管你怎么对待这个世界，你有多么消极的看法，不论发生的事在你身上有多少悲哀的事情，和多少不幸的事情，你永远都要记住，有两样事是不会改的：太阳每天都升起，你不要以为因为你发生什么事，这个世界就黑暗了，那太阳每天都升起，从来没改变过。
 
-例如北马里亚纳群岛（CNMI），由于受奥巴马政府治下免签证计划的鼓舞，已被中共国出现的“生育旅游”现象所吞没。生育旅游已使北马里亚纳群岛（CNMI）的医疗能力不堪重负，近年来，外国居民的出生率已远超当地居民的出生率。同时，美国当局发现中共国四家最大的建筑公司和一家大型赌场运营商，一直都在以低于最低工资标准向当地工人支付工资。
+This is the truth of the world. The virus was made by the CCP. Do you think people will let it go? They [the CCP] have blamed bats and pangolins, Buffalo City in the U.S., and even the moon. They think they can get away with it; they have underestimated the humankind, haven’t they? In Hong Kong, you killed and arrested people, faked suicide scenes, and raped people. Do you think you can get away with it and the West will let you go? Do you think it is possible? It is only a matter of when and what kind of actions will be taken, but it’s impossible to have no actions. No matter how you face the world, how negative you view it, no matter how many sad things and tragic things have happen to you, you must always remember that there are two things that will never change. The sun rises every day. Don’t think that because of what have happened to you, the world is dark. The sun rises every day and this has never changed.
 
-在太平洋地区的美国属地和领土上，中共国的恶性活动正在破坏当地的经济和区域生态（环境）。在美属萨摩亚、关岛、北马里亚纳群岛以及远至夏威夷的东部地区，中共国渔船持续而普遍的非法、未申报和无管制（IUU）的捕捞活动十分普遍。过度捕捞和资源枯竭使得领土经济陷入混乱，岛上最大雇主之一的美属萨摩亚的一个金枪鱼罐头厂，甚至由于缺鱼而暂时中止了业务。
+第二件事情：正义一定会到来。由于你的无知和无能，可能不发生在你身上，但已经发生在别人身上，可能是你的敌人被消灭了，但最终你没有能力做的时候，但有别人会去惩罚它。正义永远不会缺席，这两样东西不会改变。这是我人生坚信的：真的假不了，假的真不了。这是为什么我一直相信的，也是新中国联邦一直坚信的：唯真不破，真善狠。
 
-中共国（船只）还频繁侵入该地区的专属经济区，有水文测量船，甚至使用辅助通用情报船（AGI），这些辅助情报船已经驶入远至夏威夷或澳大利亚北部的专属经济区（EEZ）。正如美国太平洋舰队前情报总监詹姆斯·E·法内尔（James E. Fanell）所写的那样，这些船只不受限制的活动可能为对抗美国海军潜艇活动、破坏海底电缆和建立水下监视系统提供关键信息。如果在这一广大地区没有固定的空中或海上力量存在，美国确保其领土专属经济区完整性的能力就会受到质疑。
+The second thing: justice will definitely come. Because of your ignorance and incompetence, it may not happen to you, but it has happened to others. It may be that your enemy has been wiped out by others or punished by others in the end when you are unable to do it yourself. Justice will never be absent, and these two things will never change. This is what I firmly believe in my life: true cannot be false, and false cannot be true. This is why I have always believed, and the New Federal State of China has always believed “only truth is nonbreakable” and “be truthful, kind, but resolute”.
 
-甚至美国加勒比地区也不能幸免。美属维尔京群岛（USVI）发现过量吸食中共国芬太尼（毒品）现象已显著增加；而波多黎各的政治家们公开发表了与中共国进行地方贸易协定的讲话，并欢迎数百名中共国商人到该岛（投资），这引发了人们的猜测，即（中共国）“一带一路”倡议可能在美国领土上发挥作用。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-**对行动****的****召****唤**
+视频来源：[https://gtv.org/getter/604b8d61607c4240c8b50d61](https://gtv.org/getter/604b8d61607c4240c8b50d61) (00:41-7:45)
 
-此时此刻，华盛顿应该清醒地认识到北京对美国领土的侵略性做法。首先，白宫应该认识到，对美国海外主权领土发生的威胁需要与在美国本土各州发生的威胁一样的政策回应。
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/970651/](https://gnews.org/zh-hans/970651/)
 
-为此，政府可以建立一个助理秘书长级的政策协调委员会，负责将美国领土和属地纳入更广泛的国家安全战略，特别是（针对）中美竞争。该机构由国家安全委员会（NSC）主持，并由内政部、州国防部、国土安全部及其它部门派代表参加，这将提高美国领土在国家安全结构中的重要性。
+* * *
 
-第二，国家安全委员会可以建立一个主任级职位，负责将美国的领土和属地纳入区域和职能领域的更广泛的国家安全讨论中。在白宫大楼内任命一名官员直接对美国领土的完整性负责，这将在整个美国政府中产生必要的作用。
+翻译：【Isaiah4031】字幕：【JennyL】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-第三，北京在北马里亚纳群岛（CNMI）和其它美国领土上实行的掠夺性的经济行为，就像在许多欠发达国家中一样，应引起美国监管机构的更多关注。 考虑到中共的劳工虐待历史和该岛的军事意义，应该深切关注北马里亚纳群岛（CNMI）的塞班岛和蒂尼安等战略地区的重大建设项目。
-
-最后，美国海岸警卫队是最有能力在各领土和属地执行美国主权和维护重要利益的实体。无论是在较小的边远岛屿专属经济区执行任务，或在太平洋防止非法（IUU）捕鱼，还是在加勒比地区打击毒品和人口贩运活动，海岸警卫队都是遏制北京对美国领土的进攻的重要工具。尽管相对于其任务规模而言，海岸警卫队的资源仍然不足，但华盛顿应该运用创造性思维，既要将现有资产用于保护美国主权，又要有说服力地争取在未来几年获得更多的资源。
-
-大多数美国人都知道，这些领土和属地是第二次世界大战纪录片中的度假胜地和异国风情场所。然而，北京以不断扩张的经济、外交和军事特征的全球布局，将它们视为地理上的垫脚石。在大国竞争的时代，美国过去对（海外领土）“眼不见，心不烦”的老方法不再有效。华盛顿亏欠了以这些岛屿为家的美国公民和居民，没有同等重视，这将对美国本土构成国家安全威胁。
-
-**原作者：**
-
-亚历山大·B·格雷（Alexander B. Gray），美国外交政策委员会国家安全事务高级研究员，2018年至2021年在国家安全委员会任职，包括担任大洋洲和印度洋-太平洋安全部主任。
-
-道格拉斯·W·多梅内克（Douglas W. Domenech）曾任美国内政部负责岛屿和国际事务的助理部长（2017-2021年）。
-
-原文链接：
-
-[U.S. Territories: The Frontlines of Global Competition With China](https://www.realcleardefense.com/articles/2021/03/11/us_territories_the_frontlines_of_global_competition_with_china_767683.html)
-
-0
++2
