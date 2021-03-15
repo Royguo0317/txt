@@ -1,15 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月14日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/976457/)
+## 《路德社》新闻快讯（视频版）: 20210313蓬佩奥国务卿接受FOX采访
+` 路德社` [轉載自GNews](https://gnews.org/zh-hans/975397/)
 
-编辑整理：美东香草山农场（彩虹桥）
+《路德社》出品
 
-3月14日：再谢伟大的战友们🙏🙏🙏🙏🙏🙏🙏🙏🙏🙏按照战友的要求发一些照片。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-93.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/2-39.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/3-53.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/4-33.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/5-32.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/6-28.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/7-19.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/8-7.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/9-10.jpg)
-[【2021年3月14日】文贵先生盖特原文](https://gtv.org/getter/604e67e0607c4240c8b591cb)
+以下视频是详细内容：
 
-喜联盟**Gnews**编辑部(
+主要内容：
+
+1.蓬佩奥国务卿如果参加18日的加油站会晤，也会问病毒的事
+
+2.要求中国共产党帮助世界搞清楚病毒的原委，并且不仅仅是要求不再发生
+
+3.第二会问它们究竟抽了什么风，来美国试图摧毁美国人民基本生活方式
+
+4.檀香山会晤，让川普政府下定决心对CCP强硬（说的可能是杨娘娘）
+
+
+
+翻译：路德社翻译组
+
+制作：路德社视频组
+
+审核校对：玫瑰新闻组
+
+上传排版：玫瑰新闻组
 
 0
