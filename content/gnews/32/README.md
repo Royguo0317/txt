@@ -1,15 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月14日 文贵先生盖特 3
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/976396/)
+## 《路德社》新闻快讯（视频版）: 20210312前国家情报总监Ratcliffe接受FOX采访
+` 路德社` [轉載自GNews](https://gnews.org/zh-hans/975464/)
 
-编辑整理：美东香草山农场（彩虹桥）
+《路德社》出品
 
-3月14号：再次衷心感谢伟大的战友们……
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-92.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/2-38.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/3-52.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/4-32.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/5-31.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/6-27.jpg)
-[【2021年3月14日】文贵先生盖特原文](https://gtv.org/getter/604e53dc607c4240c8b58d21)
+以下视频是详细内容：
 
-喜联盟**Gnews**编辑部
+主要内容：
+
+1.拜登政府还没有提起中共国在病毒上扮演的角色
+
+2.Ratcliffe如果跟战狗战娘会晤，第一个问题就会问病毒，且在得到答案和承诺前不会改变议题
+
+3.疫苗能结束目前的疫情，但不能阻止下一场
+
+4.想阻止下一场就得对病毒有清晰的溯源
+
+
+
+翻译：路德社翻译组
+
+制作：路德社视频组
+
+审核校对：玫瑰新闻组
+
+上传排版：玫瑰新闻组
 
 0
