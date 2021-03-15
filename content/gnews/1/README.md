@@ -1,60 +1,107 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅：美国正在准备两本白皮书 会要中共的命!
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/976752/)
+## 2021年03月14日澳喜要闻（每日更新）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/976804/)
 
-新闻简述：在2021年3月12日的盖特中，郭先生爆出重磅消息：美国正在准备关于中共病毒真相和香港人权状况的白皮书，会要了中共的半条命，甚至让它嗝儿屁。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_2021-03-06_Getter-part1.srt.txt)
-**重磅：美国正在准备两本白皮书 会要中共的命!**
+撰稿：GTV澳喜影像视频组、新闻组
 
-**Breaking News: Two White Papers Are Under Preparation in the U.S.**
+**路德社早间时评： **
 
-很快你会发现有两个核心的报告，一个草案将在美国发生。这对共产党基本上是踢裆、打脸，是吧？基本这级别的，要它半条命，甚至让它嗝儿屁。他做梦都不会想到，从川普拜登政府从未停息过，美国在秘密的多个领域，在撰写一份叫 Coronavirus 真相的报告，《美国政府关于冠状病毒的白皮书》。
+**中共将七国集团比作八国联军是何用意**。环球网3月13日报道，将七国集团比作八国联军。七国集团外长与欧盟高级代表星期五就中共人大决定修改香港特别行政区选举办法发表联合声明，提出谴责。八国联军进北京的导火索就是义和团对国外传教士和中国教民的屠杀。慈禧太后错误地认为西方各国不可能联合作战，且有100多万义和团做炮灰，于是向12国同时宣战，导致战败赔款。环球此文想挑起中国人的民族主义情绪，让中国14亿老百姓为中共挡枪，也暗指习总加速师和当年的慈禧一样愚昧无知。中共再次误判局势，未来他们一定会因傲慢付出惨痛的代价。
 
-Soon you will find out that two major reports are coming out. One report is going to be drafted in the U.S. Basically, the effect of this report will be like kicking the crotch and slapping the face of the CCP, alright? Something like this. It is going to take half of the CCP’s life, or take its life completely. They would never imagine that from the Trump administration to the Biden administration, nothing has really stopped. People from multiple fields in the U.S. are secretly working on a report called the truth about the coronavirus – a white paper of the U.S. government about the coronavirus.
+**美日印澳四国峰会让中共恐惧。**环球网3月13日发表社评《美国造不起更拉不动“亚洲版北约”这部车》暴露中共内心的恐惧。印太四国峰会将中共踢出去，明摆着就是对付中共。印度现在已经成为世界最大的消费市场之一，还拥有庞大的劳动力市场，澳洲拥有大量的矿产资源和广袤的土地，美国与日本拥有强大的资本与先进的技术，这四个国家完全可以形成产业互助从而摆脱对中共国的依赖。印太四国联手破除了中共在亚洲一带一路计划，和亚元体系，改体系由蓬佩澳先生牵头，背后是班农先生和纳瓦罗先生。四国联盟形成，未来亚洲各国都会加入，实现亚洲与中共的“脱钩”，这对中共国经济绝对是釜底抽薪。
 
-大家知道在战斗室里有一位和我、和班农先生多次上节目的美国第一位生物科学，叫做 biological weapon 生物武器科学家。第一，最近你见过他吗？见不着了吧？我可以告诉你连班农先生都不知道他去哪儿了，俺知道，俺知道！但咱不提前爆，还有两个原来七哥说过两个牛叉的人，最近的公众视野消失了很长时间了，去哪儿了？俺知道，俺知道，俺知道，是吧？去哪儿了？都去写这报告去了。
+**香港英籍大法官即将离任。**继路德社指出所谓中共的“港人治港”就是将英籍大法官踢出后，中共媒已经喊话英籍终审大法官”好走不送“。一旦这些英籍法官被清除出香港，香港独立而公正的司法系统将荡然无存。英美原先还指望这十位大法官的存在能保证香港拥有独立的司法权，因此迟迟没有对香港采取制裁行动。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210314_AB-scaled.jpg)
+**路德社晚间时评：**
 
-You may know that in the War Room, there was a gentleman who joined me and Mr. Bannon multiple times before. He is the first biological weapon scientist in the U.S. Have you seen him recently? Not really, right? I can tell you that even Mr. Bannon doesn’t know where he has gone. I know, but I will not disclose it early. There are also two people whom I’ve mentioned before. Two very important figures who have been out of the sight of the public for a long time. Where did they go? I know, I know, alright? Where did they go? They all went to write this report.
+**美国早给中共制定红线。**美国海军学院优秀毕业生、对伊拉克战争航母战斗群总指挥、曾任北约组织盟军最高指挥官的退役将领史塔伏瑞迪斯在《日经亚洲》撰文透露，美国海上战略的基础是建立全球联盟以对抗中共军队，且给中共制定出不可逾越的红线。包括以核生化武器攻击美国及其盟友；运用武力、经济和网络手段攻击台湾及其附属岛屿；在南海采取重大敌对行动并开发军事化岛礁等。为守住红线，美国海军陆战队在必要时可深入中共国岛链，动用包括武装无人机、网络技术、突袭兵、防空飞弹、舰艇猎杀武器等对中共海上军力和陆上基地展开攻击。目前，美军印太司令部正在拟定战略部署新方案以供国防部对当前态势进行评估。退役将领透露美军官方消息，传达出美国定海神针灭共的巨大决心。
 
-这个报告一出炉，共产党你会看到它。你就发现它愚蠢、流氓、下三滥到了极点，就像那九指妖一样：“让你写遗书，写给我，我也写遗书啊。”就这么烂，就这么 Low，就是不写账单是事，为啥改账单？是吧？就这么 Low，就共产党似的，一会儿是鞋得阳性了，一会儿是螃蟹得阳性了，一会儿汽车得阳性了，这简直是荒唐至极。
+**中共已经触碰美国最大红线。**中共最清楚红线意味着什么，其威胁过闫博士若是跨过红线就会消失。值得注意的是，美国红线并未涉及人权问题，所以在新疆和香港问题上中共会利用超限战拖延很久。中共攻击台湾也会优先选用超限战。至于南海问题也只能产生小规模冲突。目前唯一能让中共彻底消失的就是以毒灭共。拜登政府已经确认川普政府所公布的武毒所报告中数据的准确性。国务院前秘密武器调查员兼病毒起源调查负责人也在福克斯节目表示，新冠病毒就是中共的生物武器，中共已经进入生物战时代。而关于中共病毒的白皮书也即将出台。WHO调查结束意味着北约行动前的程序走完。中共也在病毒上主动放弃辩护权，陷入试图用超限战影响国际舆论的魔道。美军一直在伊朗练兵，将会评估出万无一失的最优方案对中共展开行动。此外，即使拜登政府迟迟不肯认定中共超限生物武器，中共最难渗透的印度也可认定，依然触发美国红线。
 
-Once the report is released, you will see how stupid, rogue, and wicked the CCP is. It’s just like the nine-finger demoness, asking you to write a will with her being the beneficiary and saying she also wrote a will herself. That is how low she is. Why did she alter the bank transaction record? That’s how low she is, just like the CCP who has blamed shoes, crabs, and even cars for carrying the virus. This is absolutely absurd.
+**最后是一条简讯。德国国防部长卡伦鲍尔称，德国联邦国防军将阻止中共国在印太地区行动，且其语调与以前相比更加强硬。**
 
-这个世界上不都是傻子，也不能全部被收买。这个 CCP 病毒报告白皮书一出来，美国西方已经把共产党直接扔进了垃圾箱，这是一个。第二个，兄弟姐妹们，可能是你们想象不到，关于对香港，叫《香港人权情况的调查报告》，也称《香港人权白皮书》。这是一个美国内部多个部门，全面开始进行的撰写的一个报告，没有停过，这个报告一旦出来，和香港的最近所谓共产党的取消一国两制的选举法，和共产党现在马上在香港搞的什么教育改革，你能发现共产党有多疯狂，它有多狂妄，它有多无知，它有多下三滥。世界上70多亿人口，真的都那么懦弱？真的都那么愚蠢？真的就那么容易被收买吗？
+**来自香港前沿的报道：**
 
-Not everyone in this world is a fool, nor can everyone be bought off. As soon as the white paper about the CCP virus comes out, the CCP will be thrown to the trash can by the West and the U.S. This is one thing. The other one is – brothers and sisters, maybe you can’t imagine it – the report on the investigation of Hong Kong’s human rights situation, which is also called the Hong Kong Human Rights White Paper, is currently being written by multiple agencies in the U.S. The writing has never been stopped. Once you see this report, and the recent so-called election law in HK for the abolition of the “one country, two systems” by the CCP, and also the education reform in HK developed by the CCP, you will find out how crazy, how arrogant, and how rogue the CCP is. The world has more than 7 billion people. Are they all coward? Are they all stupid? Is it really that easy to buy off everyone?
+**香港多栋豪宅、金融物业需强制检测。**路透社3月13日报道，香港卫生署卫生防护中心周六公布，单日新增47宗新冠病毒确诊个案，健身室感染群组再增35宗，同此前已确诊的个案，数日内该群组感染人数已增至99人。政府凌晨就强制检测公告刊宪要求于指定期间曾身处84个指明地方的人士及曾在健身中心工作的人士接受新冠病毒核酸检测，当中包括多个位于港岛中西区的豪宅屋苑、中环、湾仔、尖沙咀等多幢商厦；汇丰银行、投行瑞信、法国巴黎银行、律师行、会计师行、保险公司等多个金融及专业服务行业的工作场所涉及其中。
 
-当一个人失去了对真相的判断能力，又对真理失去了信心，又对上帝表示怀疑，剩下的你就是等待死亡了，没有任何选择的，这就是共产党。和共产党已经被严重洗脑的，像海外孟维参、熊宪民、高冰尘，这帮孙子，李伟东这帮烂人一样，无知狂妄加上一股脑的冲向死亡，大家走着看。你们做梦都不会想到，当你们沮丧，当你们难受，关注着1/20的时候，这个国家的机器和世界上正义的机器和上天的上帝，从来没有停止过正义的工作，不要被几个人扰乱了视野。
+**【战友评论】这次被封锁的半山豪宅区，有许多名人富豪明星居住在此，中共治下，再无”安全区“，危机时刻，请再次回顾德国牧师马丁****.****尼莫拉的诗：**
 
-When a person loses the ability to tell what the truth is, loses confidence in the truth, and doubts God, what’s left to this person will be just waiting for death, and there is no other choice, and this is exactly the CCP. People who have been seriously brainwashed by the CCP such as those bastards overseas, like Meng Weican, Xiong Xianmin, Gao Bingchen, and Li Weidong, are ignorant and arrogant and rushing to death. Everybody, let’s wait and see. You can’t imagine that when you guys felt depressed, frustrated and was focusing on January 20th, the machines in this country and the world and God have never stopped working for the justice. Don’t be distracted by the few bad people.
+起初，纳粹抓共产党人的时候，
 
-这是我最早一两年前就说过，拜登当选总统可能比川普还反共，不管他们现在忽高忽低怎么勾兑，不要影响了你对真相的和真理的和上帝的信任和判断和依靠，这才是一个正常的人。不要被恶魔和假象一时骚扰，人家东你就东，我这一辈子最恨的是，听东就是风，听西就是雨，东家的风，西家的雨，从来没有自己，永远是首鼠两端，永远是犹犹豫豫。就像我昨天说的，我爹我娘一辈子我爹就说了，咱多听听人家说说吧，我娘从来不信。是因为你不自信，是因为你没能力，你什么都听，什么多听几家，你就失去了判断，因为你没有自信和判断能力。就像我昨天说的，我娘老骂，是不是？那屎那个东西，老远一闻就知道的屎，你非要舔一舔才知道是屎吗？
+我沉默，因为我不是共产党人。
 
-This is what I said as early as one or two years ago, that Biden may be even more anti-CCP than Trump when elected as president. No matter how much or how little they are colluding [with the CCP] right now, don’t let them affect your trust in the truth and God or affect your judgement. This is what a normal person should do. Don’t let yourself be harassed by demons and illusions or follow their directions. What I hate most in my life is listening to everything that other people say, losing yourself, and hesitating about everything. It’s just like what I said yesterday about my father and my mother. My father always said, “Let’s listen to others for what they have to say.”, whereas my mother never believed this. You listen to everything other people say and want to hear more people’s opinions because you are not confident, you are incompetent, and you don’t have your own judgement. As I said yesterday, my mother always scolded [us] like this, “You can tell it is shit from a far distance, then why do you still want to lick it to know it is shit?”
+当他们抓社会民主主义者的时候，
 
-这就是世界的真理。共产党制造的病毒，你觉得这事就过去了？然后就找出蝙蝠、穿山甲呀，什么美国水牛城啊，他想然后弄到月球上去了，他想说过去就过去了，你太小看人类了吧？香港的事情你随便杀、随便抓、随便被自杀、随便强奸、随便鸡奸，就没事了，西方就拉倒了，你觉得可能吗？它只是什么时候有行动，有什么样的行动，他不可能没行动。不管你怎么对待这个世界，你有多么消极的看法，不论发生的事在你身上有多少悲哀的事情，和多少不幸的事情，你永远都要记住，有两样事是不会改的：太阳每天都升起，你不要以为因为你发生什么事，这个世界就黑暗了，那太阳每天都升起，从来没改变过。
+我沉默，因为我不是社会民主主义者。
 
-This is the truth of the world. The virus was made by the CCP. Do you think people will let it go? They [the CCP] have blamed bats and pangolins, Buffalo City in the U.S., and even the moon. They think they can get away with it; they have underestimated the humankind, haven’t they? In Hong Kong, you killed and arrested people, faked suicide scenes, and raped people. Do you think you can get away with it and the West will let you go? Do you think it is possible? It is only a matter of when and what kind of actions will be taken, but it’s impossible to have no actions. No matter how you face the world, how negative you view it, no matter how many sad things and tragic things have happen to you, you must always remember that there are two things that will never change. The sun rises every day. Don’t think that because of what have happened to you, the world is dark. The sun rises every day and this has never changed.
+当他们抓工会成员的时候，
 
-第二件事情：正义一定会到来。由于你的无知和无能，可能不发生在你身上，但已经发生在别人身上，可能是你的敌人被消灭了，但最终你没有能力做的时候，但有别人会去惩罚它。正义永远不会缺席，这两样东西不会改变。这是我人生坚信的：真的假不了，假的真不了。这是为什么我一直相信的，也是新中国联邦一直坚信的：唯真不破，真善狠。
+我沉默，因为我不是工会成员。
 
-The second thing: justice will definitely come. Because of your ignorance and incompetence, it may not happen to you, but it has happened to others. It may be that your enemy has been wiped out by others or punished by others in the end when you are unable to do it yourself. Justice will never be absent, and these two things will never change. This is what I firmly believe in my life: true cannot be false, and false cannot be true. This is why I have always believed, and the New Federal State of China has always believed “only truth is nonbreakable” and “be truthful, kind, but resolute”.
+当他们抓犹太人的时候，
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+我沉默，因为我不是犹太人。
 
-视频来源：[https://gtv.org/getter/604b8d61607c4240c8b50d61](https://gtv.org/getter/604b8d61607c4240c8b50d61) (00:41-7:45)
+最后当他们来抓我时，
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/970651/](https://gnews.org/zh-hans/970651/)
+再也没有人站起来为我说话了。
 
-* * *
+**七国集团就中国修改香港选举制度发表联合声明。**美国之音3月13日报道，美国和其它七国集团成员国外长3月12日发表联合声明，对中国政府修改香港选举法表示严重关注。声明内容如下：
 
-翻译：【Isaiah4031】字幕：【JennyL】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+我们—加拿大、法国、德国、意大利、日本、英国和美国七国集团外长与欧洲联盟高级代表一致对中国当局从根本上侵蚀香港选举制度民主因素的决定表示严重关注。这种决定强烈显示中国大陆当局执意要消灭香港的异议声音与观点。
 
-+2
+全国人民代表大会通过的修改方案，加上对支持民主的活动人士和政界人士的大逮捕，破坏香港“一国两制”原则下的高度自治。该方案还将窒息政治多元化，背离《基本法》所规定的朝着普选方向迈进的目标。此外，这些改变将减少言论自由，而这是《中英联合声明》中所保障的一项权利。
+
+应当相信香港人民为了香港的最佳利益而投下他们的选票。对不同的看法加以讨论，而不是将其噤声，是确保香港稳定与繁荣的方式。
+
+我们呼吁中国依据《中英联合声明》以及其它法律义务行事，并尊重《基本法》中所规定的香港基本权利和自由。我们还呼吁中国和香港当局恢复对香港政治机制的信心并停止无理压制那些推动民主价值观并捍卫权利与自由的人。
+
+**伪中共国新闻：**
+
+**列入美国黑名单后，小米市值蒸发超****3000****亿。**大纪元03月14日讯，中国手机制造商小米集团今年1月被美国列入黑名单后，股价持续下跌，目前该公司市值蒸发超过3,000亿港元。公开信息显示，小米创始人雷军是退役军人，还是银河航天公司的投资人。这家公司的技术委员会主席邓宗全是中共国防尖端项目973项目的首席科学家，深度参与中共军方的装备技术发展。中共一直在推行军民融合发展战略，该战略通过确保中共军方能够接触那些看似民用实体的中国公司、大学和研究项目获得和开发的先进技术和专业知识，来支持中共军队现代化目标。
+
+**美国新闻：**
+
+**前美国务院官员称相信病毒从武汉实验室泄露。**大纪元03月14日讯，在拜登政府高级官员准备与中国同行进行首次面对面会谈之际，美国国务院监督中共病毒（冠状病毒）起源工作组的前首席调查员、哈德逊研究所高级研究员大卫.阿什尔告诉福克斯新闻，他相信，病毒不仅是从武汉病毒学研究所泄露出来的，而且也可能和中共军方研发生化武器有关。他认为，这个病毒成为中共打击全球的“最棒武器”，消耗了全球GDP的15%到20%；已经杀死了数百万人。
+
+**世界其他地区新闻：**
+
+**中国海警法首次通报日方，日中海上“擦枪走火”危险仍未消除。**美国之音3月14日报道，日本政府消息人士星期六（3月13日）表示，中国2月下旬告知日方，北京方面对在尖阁诸岛（中国称钓鱼岛）附近活动的日本海上保安厅巡逻船及日本渔船“保持自我克制”。这是中国《海警法》施行后，中方首次曝光该法的运用方针。日本就中国颁布海警法回应说，中国的主张不可接受，并坚持认为，尖阁诸岛不存在领土主权问题需要解决。日本坚持对尖阁拥有主权。分析人士认为，中方向日本透露海警法的执行方针，可能意在避免发生偶发性冲突使事态恶化。日本政府上个月表示，日本可能会对试图登陆尖阁诸岛的外国公务船实施“危害射击”。
+
+**德国联邦国防军将阻止中国在印太地区的行动。**法广网上电台3月13日报道，德国国防部长克兰普-卡伦鲍尔打算通过德国联邦国防军来阻止中国在印太地区的行动。专家表示，卡伦鲍尔的语调比以前更为强硬。据《慕尼黑水星报》报道，今年夏天，德国“巴伐利亚号”将从威廉港启程前往远东，在回程路上，该护卫舰也将跨越南中国海。德国防长克兰普-卡伦鲍尔现在首次公布了德方的意图。德国国防军出行印太地区，主要是为了阻止中国的扩张。这位基民盟政治家在推特上写道：“我们困扰地听到来自中国的军事威慑腔调，甚至是备战呼吁。我认为，我们应该在可能的地方与中国合作，在必要的地方予以反对。”
+
+**缅甸至少****11****名抗议人士被军警开枪打死。**美国之音3月14日报道，缅甸几个城市再度爆发示威抗议，至少11名示威民众被安全部队开枪打死。美国之音缅甸语组援引一名紧急救护医疗人员提供的消息说，有8人在曼德勒被安全部队开枪打死。缅甸国内媒体报道说，一名抗议民众在中部的卑谬镇（Pyay）被打死，2人在仰光被击毙。
+
+**爆料革命大事记：**
+
+**2021****年****3****月****13****日郭文贵先生盖特直播主要内容，感谢澳喜农场战友整理**
+
+1. 昨天提到两个白皮书（CCP病毒白皮书、香港人权白皮书），还有很多人没有意识到重要性。法国参与写中共病毒白皮书的人已经退出两三波了，因为这个白皮书出来就等于全人类向中共宣战，这是一场生物大战。法国那些政要们现在还在买疫苗，搞疫苗经济，等于帮别的国家打你自己的国民，所以很多人写着写着就不敢写了。
+2. 病毒白皮书在川普总统任上最后一年就开始做了，一直做到现在。这正是美国的伟大之处，乱成这样，也没有停，一直在搜集证据。科学界、知识界、生物界、医药界中的中国同胞都有参与进来，给未来中国人在世界上的形象，带来不可估量的、巨大的、正面的影响力。我相信这个报告出来时候，会写上：该报告得到来自于中国体制内、知识界、医学界、科学界等等，善良有良知的中国人的支持帮助和提供信息。
+3. 香港人权报告最关键的是得到了香港警察和香港政府内部人提供的信息和巨大的帮助，当然有我们爆料革命的战友。未来也会写上：感谢来自于香港有良知的警察和政府公务员，以及冒着生命危险、有良知的人士提供的信息。战友们，对这个世界要永远充满着信心，雨过天晴，太阳还会从东边升起来。这是目前我认为从爆料革命到现在，对共产党造成最大伤害的一个国际上的公约和法律。
+4. 在这之前，对共产党最大的伤害，来自川普总统政府。美国优先、中美贸易摩擦、对中国企业在美国的处置等，都对它造成伤害。特别是接近于软脱钩走向硬脱钩，是对它最大的伤害。最后一年定为种族大屠杀、反人类罪，这是致命的伤害，这里面当然不能缺少爆料革命的力量。
+5. 新中国联邦的成立，G系列的成立，让共产党前所未有地感受到它的地位和信用正在慢慢的瓦解。它让中国人民包括体制内的中国人，看到中共的承诺一样也没有兑现，让体制内的既得利益者感受到风险。更重要的是，我们拥有一个财富分配的权力，这对国内造成巨大的震撼。中国人第一次有了一个团队，有人告诉你，你的钱就是你的钱，不用把爹娘子孙卖给一个流氓政党。新中国联邦是一个健康的生态的，金融圈、人际关系圈、信仰圈。一个真正尊重自然和人性的生存模式。这个圈子最重要的是信仰，共产党给中国人带来最大的灾难就是没有信仰。
+6. 6、3月10日前参与借贷项目的要和各农场分50%，很多人对此提出建议。为什么很多人只看到别人得到的，不看自己得到的？按照任何规定都是三年四年后才能得到一定量的回报，现在你得到更多，可是你却想把帮你得到更多的人的那一部分拿走，有人建议15%、20%，绝对不可以，这也是让我非常不高兴的。
+7. 建议太多了，如果听建议，爆料革命早死1亿回了。我要做一个真实的中国人，更重要的是做一个有逻辑、公平、有良知、有信仰的中国人。不要自己得到了还看着别人锅里的、碗里的，这样你会失去手里拥有的。给农场是战略，这些钱会永远留在各农场，不属于哪一个人。每一分钱的使用都按照农场和联盟委员会的规则使用。这是藏富于战友，让战友领来更多的战友，建起梧桐树，引来金凤凰。
+8. 以钱灭共，是让战友们掌握财富分配的能力和权力，这个系统，叫新中国联邦。农场有了一定财富，可以唤醒带来更多中国人加入爆料革命。新中国联邦成功后，我们海外新中国联邦基地要做强做大。未来的机会多着呢，G-COIN，G-DOLLAR现在是独立的，未来必须服务于新中国联邦，最后的控制权一定牢牢掌握在我们战友的手中。
+9. 有的人说要转到不收钱的农场去，绝不可能；那些趁热闹加入，什么也不做的人绝对不会让你得逞。现在最重要的是：把假战友踢出去，把犹犹豫豫的人踢出去；把想法不正常、目标不正当、来源不明确的人踢出去。新中国联邦有情怀、有正义、有大气、有胸怀，但绝对不是傻瓜！
+10. 在3月10日前参与借项目的给农场50%绝不能改，不同意、担心的可以退回去。这是我们的大家尊重的信用，无信不立。
+
+
+感谢香柏树战友的整理的路德时评。
+
+感谢新闻摘录，新闻撰稿，配音录制以及视频制作战友们的辛勤付出。
+
+感谢坦克人提供的技术支持。感谢路德社文宣群的支持。
+
+欢迎明天澳洲晚九点，北京晚六点继续收听观看“澳喜要闻”。
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+
+[【欢迎加入澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-澳喜Logo.jpeg)
+0
