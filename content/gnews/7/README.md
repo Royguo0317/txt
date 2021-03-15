@@ -1,11 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【班农战斗室重磅】（7）CCP病毒是人类历史上杀伤性最大的经济武器
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/977605/)
+## 【班农战斗室重磅】（8）中共正向我们开战
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/977613/)
 
-摘要：13/03/2021 CCP病毒是人类历史上杀伤性最大的经济武器
+摘要：13/03/2021 班农——中共正向我们开战
 
 **By： 【秘密翻译组 G-Translators】**
 
-0
++1
