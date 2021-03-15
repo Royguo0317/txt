@@ -1,76 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0314.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/977733/)
+## 中共国工业落后30年，缺乏基本技术：“中共国必须从它国购买”
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/977914/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0314-1.jpeg)
-#### 对川普声音的呼唤
+```
+资料来源：意大利科技新闻报纸
+作者：塞尔吉奥·多纳托
+发布时间：2021年3月8日
+翻译/简评：阿娜
+```
 
-3月13日一则朱利安尼先生的推文如下。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/e608ed_cover_factory_china.png-1-e1615812995516.jpeg)封面来源：意大利科技新闻报纸
+中共国距离成为主要的制造大国至少还有30年的时间。前工业部长的话凸显了中共国对其他国家核心技术的依赖。恢复先进技术的五年计划正在进行中。
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-203.png)
+中共国前工业和信息化部部长苗圩表示，尽管拥有世界上一些最完整的产业链，但中共国距离成为制造业的“大国”至少还有30年的时间。导致延迟的原因是缺乏专有核心技术。
 
-[https://twitter.com/JasonMillerinDC/status/1370767820108271620?s=20](https://twitter.com/JasonMillerinDC/status/1370767820108271620?s=20)
-朱利安尼：“我们需要川普总统回到推特上来。”
+苗圩从2010年至2020年担任工业部长，现在是中共国最高政治咨询机构中共国人民政治协商会议（CPPCC）的成员。新闻机构采用了苗对中国共产党代表所作的关于减缓中国制造业增长的声明。
 
-川普总统2020高级顾问米勒（Jason Miller):“推特没有他太乏味了。”
+中国没有基本技术，必须从其它国家购买
 
-#### 新疆种族屠杀和人权问题
+苗说：“基本能力仍然薄弱”，“基本技术掌握在他人手中”。这位前部长随后发出警告：“’被卡住喉咙’的风险大大增加了”。
 
+到2020年，制造业占国内生产总值的四分之一以上，是2012年以来的最低水平。
 
+苗说： “制造业产出与国内生产总值的比率在极短时间内下降，而且下降速度很快，这不仅影响经济增长并影响就业，而且导致我们工业安全方面的差距，并削弱了我们经济的抗风险能力及全球竞争力，”
 
-> This week, the U.S. condemned China's genocide in Xinjiang in [@UN\_HRC](https://twitter.com/UN_HRC?ref_src=twsrc%5Etfw).
-> 
-> The Cuban regime came to China's defense.
-> 
-> It's no surprise communist dictators stick together, but it is surprising that Democrats want to normalize relations with the genocide-supporting regime in Havana. [https://t.co/QqYIyzQMVp](https://t.co/QqYIyzQMVp)
-> — Rick Scott (@SenRickScott) [March 14, 2021](https://twitter.com/SenRickScott/status/1371180359526801411?ref_src=twsrc%5Etfw)
+苗认为，尽管制造业近年来取得了长足的进步，但基本没有变化。在限制中共国高质量生产发展的问题中，最重要的是市场化改革的不足。
 
+科技行业缺乏人才。该行业复苏的五年计划正在进行中
 
+苗在谈到技术领域时指出，创新和高科技人才的短缺也极大地限制了该领域的发展。在这方面，中共国已经制定了未来五年的经济计划，通过该计划，中共国希望加快从芯片到人工智能的先进技术的发展，但也将影响量子计算，神经科学和航空航天工业。
 
-3月14日参议员瑞克称：
+#### 简评：
 
-本周，美国在联合国人权理事会上就新疆问题谴责中国的种族灭绝行为
-古巴政权为中国辩护。
-共产主义独裁者们彼此勾结并不奇怪，但令人惊讶的是，民主党人希望与哈瓦那支持种族灭绝的政权实现关系正常化。
+**在中共国有哪个科技公司在世界排得上名字？中共国的工信部长也知道中共国科技技术提升面临哪些难题，只是不敢说出问题的根源罢了。无论中共它制定几年计划，本质的问题是中共体制的问题。很明显中共的独裁体制限制了方方面面的发展，不仅仅是科学技术的发展。**
 
-#### 支持香港
+**（免责声明：本文的简评只代表译者观点，跟GNEWS平台无关。）**
 
-美国白宫发言人纳得对英国政府关于谴责和敦促中共国破坏国际条约和香港制度，发推称：“我们和英国一样，对中华人民共和国最近的进一步破坏香港民主制度的行动，包括继续无视国际承诺和义务表示关切。我们 #支持香港 。”
+**🔗新闻链接链接：**
 
+[L’industria cinese è indietro di 30 anni, mancano le tecnologie di base: “La Cina le deve comprare dagli altri”](https://www.dday.it/redazione/38775/lindustria-cinese-e-indietro-di-30-anni-mancano-le-tecnologie-di-base-la-cina-le-deve-comprare-dagli-altri)
 
+* * *
 
-> We share the UK’s concerns that the latest actions by the People's Republic of China further undermine Hong Kong’s democratic institutions and demonstrate Beijing's continued disregard for international commitments and obligations. We [#StandWithHongKong](https://twitter.com/hashtag/StandWithHongKong?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/mByE8yIyye](https://t.co/mByE8yIyye)]
-> — Ned Price (@StateDeptSpox) [March 15, 2021](https://twitter.com/StateDeptSpox/status/1371305969926483968?ref_src=twsrc%5Etfw)
-
-
-
-虽然纳得的发言显然再次“政治正确”地摆了个姿态，让美国的“口炮”显得虚弱，英国政府发出的谴责和敦促中共国纠正对香港错误行径的声明，值得关注。
-
-据英国政府3月14日声明，英国外交大臣多米尼克-拉布称：
-
-“北京做出激进改变的决定，限制参与香港的选举制度，这明显进一步违反了具有法律约束力的《中英联合声明》。
-
-“这是骚扰和扼杀所有批评㆗（共）国政策的声音的㆒部份，也是在不足九个月内第㆔次违反联合声明。
-
-“中国当局的持续行动意味着我现在必须报告，英国认为北京持续不遵守《联合声明》，显示了北京的承诺与行动之间的差距越来越大。
-
-“英国会继续为香港㆟争取权益。中（共）国必须按照其法律义务行事，尊重香港的基本权利和自由。”
-
-声明不长，但是从数量上指出中共违反中英联合声明的次数，从质量上用词“必须”，态度严厉。虽然笔者质疑大英帝国难道等着掰手指头悉数中共对香港侵犯的次数，却无视2019年到2020年期间，从第一天香港和平抗议活动起，发生的无数抗议人士被虐待、性侵、杀害，无视中共使用真枪实弹、甚至准化学武器对待守护香港的学生，英国不顾每一次、甚至每天、每一刻香港都在流血，这一切岂止是一个“三次”所能衡量和盖棺定论？在自身和全世界对中共绥靖、纵容后中共猖狂释放病毒超限生物武器，全世界被击溃、损失不可估量，生活发生严重影响和变化的情况下，这是第几次被中共攻击，这一次是真的被打痛了吗？我们对接下来的行动拭目以待。
-
-
-
-文章观点部分仅代表作者本人。
-
-编辑：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
-
-（本文当日持续更新中）
+**审核/校对：**Ting Guo
 
 0
