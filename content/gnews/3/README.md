@@ -1,41 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## Signal的加密货币MobileCoin筹集到风险资金
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/978916/)
+## 独立民主的台湾正在回归国际政治舞台
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/978983/)
 
-作者：康妮-洛伊佐斯（Connie Loizos）
+#### 译评：WEN JIE | 责编：沙拉猫 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/capture-14-16-scaled.jpg)图片来源：CuteWallpaper.org
+据台湾新闻（Taiwan News）台北3月12日报道，美国国务卿安东尼·布林肯（Antony Blinken）在3月10日提到台湾时称其为“国家“，这是他的前任们经常回避的称呼。
 
-翻译报道：李春
+在美国众议院外交委员会就拜登政府外交政策听证会即将结束时，加洲联邦众议员金映玉（Young Kim，R-CA）提到，台湾数十年来一直是美国的安全和全球卫生领域的重要合作伙伴。台湾凭着对国际社会的贡献和强大的民主体系，已经在例如像世界卫生组织（WHO)等国际组织中赢得了的一席之地，与世界分享台湾的经验专长。
 
+金映玉呼吁拜登政府应该将台湾纳入即将到来的民主峰会，与台湾就自由贸易协定开展会谈。布林肯予以了积极回应，表示绝对承诺采纳金的建议，并赞同台湾是一个强大的民主国家，有着非常强大的科技力量。布林肯称，台湾是一个不仅仅服务其本国民众，更能为世界做出贡献的国家，对CCP病毒的防控就是一个非常好的例子。
 
-![Stellar Archives - Cryptoknowmics-Crypto News and Media Platform]()![Stellar Archives - Cryptoknowmics-Crypto News and Media Platform](https://s3-ap-southeast-2.amazonaws.com/www.cryptoknowmics.com/crypto/wp-content/uploads/2021/01/Signal-Messaging-App-to-Integrate-Stellar%E2%80%99s-MobileCoin-Into-Its-Platform.png)图片来源：cryptoknowmics.com
-以个人信息应用程序Signal创始人莫西-马林斯派克（Moxie Marlinspike）作为技术指导的数字加密货币MobileCoin从Future Ventures和General Catalyst的两轮融资中筹集了 1135万美元新风险资金。据熟悉该公司的消息人士透露，该轮融资使MobileCoin将来在Signal平台上的使用更近了一步。
+布林肯对台湾使用“国家”这一称呼，表明台美关系进入一个新阶段。自1979年以卡特外交政策处理美台关系以来，美国国务院在处理与台湾的官方往来时不断给自己设置层层限制，以避免刺激中共，然而迈克·蓬佩奥（Mike Pompeo）国务卿在任期即将结束时，重新评估了这些限制。蓬佩奥在3月9日接受台湾CAN的采访时回忆道，美国已经认识到那些限制近乎疯狂，从而进行了重新审视。美国对台的这样一套完全孤立的规则是完全没有意义的，开展与台湾更多公开的对话对美国才有意义。
 
-2017年，Wired杂志就对MobileCoin进行了首次报道，介绍了它的目标是克服加密货币早期的许多挑战，例如对大多数人和商家来说太复杂、没有足够的可扩展性和交易时间太长。当时报道中分析，可能世界上最不需要的就是再多一种加密货币，因为已经有超过4000种加密货币在流通，但马林斯派克的Signal还是不错的，使MobileCoin值得关注。MobileCoin的目标是聚焦在通过手机进行能保护隐私的近即时交易。尽管在手机上存储加密货币存在风险，包括手机未锁屏、被黑客通过无线攻击以及iOS等手机操作系统本身的安全风险。MobileCoin的一个特点是，如果用户丢失手机，它允许用户安全地恢复他们的钱包，尽管还不清楚在没有私钥的情况下如何信任服务商（可能会有解决方法）。马林斯派克告诉Wired，如果将MobileCoin整合到Signal或WhatsApp等聊天应用程序中，将其发展成为事实上的加密货币，那么将影响巨大。
+众所周知，今年1月10号，美国国务院正式取消了与台湾官方接触的限制，其中包括对台湾禁止使用“国家”或者“政府”。然而就布林肯对台湾使用“国家”一词，台湾媒体表示，虽然这似乎体现了拜登政府承认对台湾解除官方接触限制， 但对这是否会是美国的一个长期政策而非是一时“口误”，目前还要保持一种观望态度。
 
-虽然Signal没有披露目前平台上有多少用户，但估计有4000万人正在使用。今年早些时候，在川普总统任期即将结束的时候，Signal的下载量激增。根据Sensor Tower的数据，在1月5日的一周内，Signal的下载量达到了1780万次，而通常每天的下载量是5万次。
+* * *
 
-如果大量用户使用Signal是MobileCoin获得价值的方式，那么这种数字加密货币在预计的12月初推出并可在FTX交易所交易的话，那么似乎将会有大发展。
+评：自从今年1月10号美国政府取消对台湾官方接触解除限制的外交政策出台以来，为台湾作为一个民主国家回归国际舞台打开了大门。拜登政府沿袭川普政府的对台政策是基于各种因素考量，更是在全球灭共的大形势下的决策，绝不是台湾媒体所担心的“口误”。拜登政府延续上届政府对台全方位开放的外交政策，这对中共来说可谓五味杂陈。美国这一示范作用，将会引起其他国家效仿，台湾必将在国际民主社会的大家庭中，在消灭中共的斗争中起到重要的作用，台湾正在重新揭起“中华民国”的旗号，正式回归国际舞台。
 
-虽然有马林斯派克的早期参与是一个绝对的利好因素，但由于监管的原因，加密货币和消息应用程序历来不能很好地融合在一起。早在2009年由滑铁卢大学的一群学生创立的移动消息应用程序Kik Messenger就创造了一种名为Kin的数字加密货币，供用户在其平台内消费。该项目与美国证券交易委员会（SEC）进行了长达数年的斗争，几乎让公司灰飞烟灭，不过最近正在卷土重来。MobileCoin目前转向了风险投资人，而Kik Messenger当时试图通过首次加密货币发行（ICO）来募集资金，这在当时是一种未经测试和非常规的融资方式。
-
-Telegram是比Signal更大得多的消息应用程序，截至去年4月，估计有4亿用户。同样在与SEC争吵多年后，放弃了向智能手机平台提供Telegram的去中心化加密货币计划。与Kik一样，Telegram的情况也包括早期通过ICO销售加密货币的融资方式。
-
-Facebook，最近收缩了围绕新加密货币的更加雄心勃勃计划，而是准备推出一个由美元支持的单一数字币，但目前还没有推出。
-
-可能MobileCoin只是计划在美国以外的地方运营。事实上，在Medium上的一篇公开文章中MobileCoin基金会写道，美国用户或其他在司法管辖禁区的个人和实体无法使用MobileCoin。
-
-MobileCoin这一轮新的融资不是第一次外部融资，2018年5月，MobileCoin在SEC的一份文件中披露，已经从加密货币交易所巨头Binance的风险部门Binance Labs领投的投资者那里筹集了2970万美元。
-
-简评：
-
-从早在2009年Kik Messenger的数字加密货币Kin，到Signal的MobileCoin和Telegram的加密货币，再到Facebook的Libra，可以发现都是社交媒体软件“醉翁之意不在酒“，表面是在发展社交媒体软件，而实际上却都要发展数字加密货币。虽然要面临美国证券交易委员会SEC的严格监管和拉距斗争，发展过程艰难，但各方仍然摩拳擦掌，你方唱罢我登场，可见数字加密货币一定是一片”新大陆“，发展前景之广阔不言而喻。而已经获得支付许可的Gcoin也即将推出，谁能更胜一筹？那就”莘县阳谷县搭县，咱走走看 ！“
-
-[原文链接](https://techcrunch.com/2021/03/09/mobilecoin-a-cryptocurrency-involving-signal-founder-moxie-marlinspike-just-raised-venture-funding/)：
-
-编辑：雪山
-
-发布： GLC
+&gt;&gt;原报道链接&gt;&gt;  [US secretary of state calls Taiwan ‘country’](https://www.taiwannews.com.tw/en/news/4148761)
 
 0

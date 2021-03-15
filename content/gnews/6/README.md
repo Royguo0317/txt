@@ -1,45 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【五月花报】奥地利微生物学家发现中共病毒来自实验室的重磅证据
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/978736/)
+## Signal的加密货币MobileCoin筹集到风险资金
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/978916/)
 
-五月花写作组 ｜ 翻译：思澈 ｜ 编辑、发稿：灭共小宇宙
+作者：康妮-洛伊佐斯（Connie Loizos）
 
-* * *
+翻译报道：李春
 
-*奥地利因斯布鲁克大学的微生物学家罗萨娜·塞格雷托*（*Rossana Segreto）发现了一些迹象，表明中共病毒来自实验室，并批评说，直到如今科学家还在排除这种病毒来自实验室。*
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-16-at-2.32.48-AM.png)图片来源：de.rt.com
-目前大多数专家都认为中共病毒是自然产生的，但是，因斯布鲁克大学微生物学家罗萨娜·塞格雷托（Rossana Segreto）女士领导的一个研究小组发现证据，证明中共病毒来自实验室，塞格雷托（Segreto）在中共病毒危机之前就已经在研究病毒突变的产生，当第一例中共病毒出现在武汉时就引起了她的好奇，自那时起，她就开始收集中共病毒来自实验室的证据。
 
-她告诉奥地利新闻通讯社，作为一名科学家她不想扮演阴谋论者，她们的许多调查研究表明中共病毒就是来自实验室。她批评科学家过早的把这种来自实验室的可能性视为“无稽之谈”。目前仍然没有科学依据证明该病毒是自然产生。
+![Stellar Archives - Cryptoknowmics-Crypto News and Media Platform]()![Stellar Archives - Cryptoknowmics-Crypto News and Media Platform](https://s3-ap-southeast-2.amazonaws.com/www.cryptoknowmics.com/crypto/wp-content/uploads/2021/01/Signal-Messaging-App-to-Integrate-Stellar%E2%80%99s-MobileCoin-Into-Its-Platform.png)图片来源：cryptoknowmics.com
+以个人信息应用程序Signal创始人莫西-马林斯派克（Moxie Marlinspike）作为技术指导的数字加密货币MobileCoin从Future Ventures和General Catalyst的两轮融资中筹集了 1135万美元新风险资金。据熟悉该公司的消息人士透露，该轮融资使MobileCoin将来在Signal平台上的使用更近了一步。
 
-塞格雷托（Segreto）说，武汉病毒研究所实验室多年来一直在研究突变的冠状病毒，令人担忧的是，这样的BSL-4高级安全性实验室建在大都市里。疫情在世界范围内爆发后，实验室从未被调查，直到一年后的2021年1月14日，世界卫生组织的一个专家小组才被许可进入中国寻找该病毒的来源。此外，该研究所的一些数据库以前是可以公开访问的，现在已经被删除。
+2017年，Wired杂志就对MobileCoin进行了首次报道，介绍了它的目标是克服加密货币早期的许多挑战，例如对大多数人和商家来说太复杂、没有足够的可扩展性和交易时间太长。当时报道中分析，可能世界上最不需要的就是再多一种加密货币，因为已经有超过4000种加密货币在流通，但马林斯派克的Signal还是不错的，使MobileCoin值得关注。MobileCoin的目标是聚焦在通过手机进行能保护隐私的近即时交易。尽管在手机上存储加密货币存在风险，包括手机未锁屏、被黑客通过无线攻击以及iOS等手机操作系统本身的安全风险。MobileCoin的一个特点是，如果用户丢失手机，它允许用户安全地恢复他们的钱包，尽管还不清楚在没有私钥的情况下如何信任服务商（可能会有解决方法）。马林斯派克告诉Wired，如果将MobileCoin整合到Signal或WhatsApp等聊天应用程序中，将其发展成为事实上的加密货币，那么将影响巨大。
 
-排除病毒的实验室来源可能性是一种失职，因为目前世界各地的实验室都在研究变异的病毒，在中共国，也是带有目的性的研究识别和抵抗危险病毒。在“功能获得”实验中，病毒被改造得更强，以至于变得更具传染性和致命性。
+虽然Signal没有披露目前平台上有多少用户，但估计有4000万人正在使用。今年早些时候，在川普总统任期即将结束的时候，Signal的下载量激增。根据Sensor Tower的数据，在1月5日的一周内，Signal的下载量达到了1780万次，而通常每天的下载量是5万次。
 
-SARS-CoV-2的结构表明，该病毒可能不是通过自然选择而产生的，而是在实验室里人为制造的。她和加拿大生物技术企业家尤里·德伊金（Yuri Deigin）一起，在专业期刊《BioEssays》上发表了这一证据的论文，此前有7家专业期刊拒绝发表这篇文章。
+如果大量用户使用Signal是MobileCoin获得价值的方式，那么这种数字加密货币在预计的12月初推出并可在FTX交易所交易的话，那么似乎将会有大发展。
 
-例如在SARS-CoV-2的基因组中，基因序列中有一个特殊的部分，负责在病毒中形成所谓的 “弗林蛋白酶切位点”，从而保证了种器官都可以受到感染，使病毒迅速传播。但是这个序列不会出现在SARS-CoV-2的近亲中，例如在蝙蝠或穿山甲身上被发现。这个序列不可能在很短的时间内形成，使得SARS-CoV-2能够感染不同的物种，如人类和不同的人体组织。因此研究人员说，可以想象，这个基因序列是通过所谓的位点定向诱变实验生产出来的。
+虽然有马林斯派克的早期参与是一个绝对的利好因素，但由于监管的原因，加密货币和消息应用程序历来不能很好地融合在一起。早在2009年由滑铁卢大学的一群学生创立的移动消息应用程序Kik Messenger就创造了一种名为Kin的数字加密货币，供用户在其平台内消费。该项目与美国证券交易委员会（SEC）进行了长达数年的斗争，几乎让公司灰飞烟灭，不过最近正在卷土重来。MobileCoin目前转向了风险投资人，而Kik Messenger当时试图通过首次加密货币发行（ICO）来募集资金，这在当时是一种未经测试和非常规的融资方式。
 
-此外，SARS-CoV-2刺突蛋白的受体结合结构域（RBD）非常适合通过附着在人的ACE2受体上攻击人的肺细胞。理论上，RBD有可能是由不同冠状病毒的重组而产生的。然而，这是极其不可能的，因为两种不同类型的冠状病毒必须同时攻击同一生物体内的同一细胞。
+Telegram是比Signal更大得多的消息应用程序，截至去年4月，估计有4亿用户。同样在与SEC争吵多年后，放弃了向智能手机平台提供Telegram的去中心化加密货币计划。与Kik一样，Telegram的情况也包括早期通过ICO销售加密货币的融资方式。
 
-塞格雷托（Segreto）认为，从一开始就将中共病毒的来源排除在实验室之外的原因之一可能是因为《柳叶刀》上的一篇文章，不过，这篇文章连科学文章都不是，而是一篇非常简短的观点。这篇文章为中共的科学家和卫生专家站台，他们自称通过 “非凡的努力 “与国际社会 “透明地分享他们的知识”。这篇发表日期为2020年2月19日的观点文章，直接将那些认为中共SARS-CoV-2病毒的来源不是自然界的理论打造成阴谋论，此外他们 “坚定地站在一起，强烈谴责关于中共病毒非自然起源的阴谋论”。并指出”阴谋论只会制造恐惧、谣言和偏见，破坏我们在防治这种病毒方面的全球合作”。
+Facebook，最近收缩了围绕新加密货币的更加雄心勃勃计划，而是准备推出一个由美元支持的单一数字币，但目前还没有推出。
 
-这篇文章的作者除了德国著名的病毒学家克里斯蒂安·德罗斯滕（Christian Drosten），还包括英美动物学家、传染病流行病学专家彼得·达萨克（Peter Daszak）。达萨克也是本文之前提到的世卫组织专家小组的一员，该专家小组被允许在武汉调查冠状病毒的来源。但据塞格雷托（Segreto）介绍，达萨克（Daszak）是武汉病毒研究所的亲密合作伙伴，因此不排除存在利益冲突，我们不能信任在武汉研究所进行的所谓中立调查。
+可能MobileCoin只是计划在美国以外的地方运营。事实上，在Medium上的一篇公开文章中MobileCoin基金会写道，美国用户或其他在司法管辖禁区的个人和实体无法使用MobileCoin。
 
-* * *
+MobileCoin这一轮新的融资不是第一次外部融资，2018年5月，MobileCoin在SEC的一份文件中披露，已经从加密货币交易所巨头Binance的风险部门Binance Labs领投的投资者那里筹集了2970万美元。
 
-### 新闻来源：
+简评：
 
-[https://de.rt.com/asien/112051-mikrobiologen-findet-brisante-hinweise-auf/](https://de.rt.com/asien/112051-mikrobiologen-findet-brisante-hinweise-auf/)
+从早在2009年Kik Messenger的数字加密货币Kin，到Signal的MobileCoin和Telegram的加密货币，再到Facebook的Libra，可以发现都是社交媒体软件“醉翁之意不在酒“，表面是在发展社交媒体软件，而实际上却都要发展数字加密货币。虽然要面临美国证券交易委员会SEC的严格监管和拉距斗争，发展过程艰难，但各方仍然摩拳擦掌，你方唱罢我登场，可见数字加密货币一定是一片”新大陆“，发展前景之广阔不言而喻。而已经获得支付许可的Gcoin也即将推出，谁能更胜一筹？那就”莘县阳谷县搭县，咱走走看 ！“
 
-* * *
+[原文链接](https://techcrunch.com/2021/03/09/mobilecoin-a-cryptocurrency-involving-signal-founder-moxie-marlinspike-just-raised-venture-funding/)：
 
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+编辑：雪山
 
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
-
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+发布： GLC
 
 0

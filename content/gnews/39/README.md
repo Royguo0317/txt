@@ -1,25 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】驻港人士接种中共疫苗可获签证便利
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/978401/)
+## 示威者要求结束匈牙利封锁限制
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/978457/)
 
-作者：香草山农场健身部 童谣
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1528-【新闻播报】驻港人士接种中共疫苗可获签证便利.png)图片来自：法国国际广播电台 RFI
-[外交部驻港特派员公署](https://www.rfi.fr/cn/%E6%B8%AF%E6%BE%B3%E5%8F%B0/20210314-%E5%A4%96%E4%BA%A4%E9%83%A8%E9%A9%BB%E6%B8%AF%E4%B8%BA%E6%8E%A5%E7%A7%8D%E5%9B%BD%E4%BA%A7%E7%96%AB%E8%8B%97%E4%BA%BA%E5%A3%AB%E6%8F%90%E4%BE%9B%E7%AD%BE%E8%AF%81%E4%BE%BF%E5%88%A9)12日发声明指，将对接种中共国生产新冠肺炎疫苗人员到访中共国提供签证便利，申请资格包括赴华从事各领域复工复产活动的外籍人员及其家属、中国公民或永久居民的外籍家庭成员，以及持有效APEC商务旅行卡人员，有关人士递交申请时须递交已接种国产疫苗证明。
-
-从「国际绿色通行证」到「签证便利」，不论是威逼还是利诱，中共正在采取一切手段为海外华侨、驻港人士接种中共疫苗。在生物武器超限战的扩张战役中，疫苗这颗生物定时炸弹成了中共毁灭全人类的最重要步骤之一。
-
-而其目标明确，从国内普遍接种，控制大多数墙内老百姓之后，开始向海外、港台等地区进行扩张。土耳其这样的国家早已被中共拿下，但是台湾一直拒绝接受中共疫苗，使中共无从下手。香港已经沦为中共内地的一个省份，早已没有了任何自主权力，只能由中共强行发出主张，逼迫港民接种疫苗。但眼看着中共暴力镇压香港的和平示威民众，一步步剥夺香港立法权、选举权，已经不可能有港民还会自愿选择去相信中共疫苗。
-
-审核/发稿：雪梨
+- 编辑：Victor Torres
+- 发稿：Ranting
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+**西班牙2021年3月15日电/西喜社——**据美联社3月15日报道，约有1000名示威者打破了匈牙利首都的公共集会禁令，要求结束该国的封锁限制。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+示威是在中共病毒大流行席卷匈牙利的强大浪潮中发生的。由一个名为 “我们的家园运动 “的极右翼政党组织的。该党领导人认为，封锁措施导致匈牙利经济遭到破坏，他们要求结束限制措施。
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+上周，新病例和在医院接受治疗的平均人数打破了之前12月创造的记录。根据约翰-霍普金斯大学的数据，匈牙利现在是世界上每100万居民中死亡率第七高的国家。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/5b88894c-3fa8-4838-8ec1-dd3a6d6eab6f.jpg)
+
+**新闻来源：[美联社](https://apnews.com/article/coronavirus-pandemic-infectious-diseases-li-bin-china-mens-college-basketball-7733a272ee8a84c872ae1d427aa31170)**
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
 
 0
