@@ -1,139 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【班农作战室】796-797期简讯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/976473/)
+## 重磅：美国正在准备两本白皮书 会要中共的命!
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/976752/)
 
-#### **作者：七彩光**
+新闻简述：在2021年3月12日的盖特中，郭先生爆出重磅消息：美国正在准备关于中共病毒真相和香港人权状况的白皮书，会要了中共的半条命，甚至让它嗝儿屁。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_2021-03-06_Getter-part1.srt.txt)
+**重磅：美国正在准备两本白皮书 会要中共的命!**
 
-#### **校对：纽约香草山农场 ****– 爱明州（文根根）**
+**Breaking News: Two White Papers Are Under Preparation in the U.S.**
 
-#### **编辑：文泓**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/796-797.png)
-**图片来源：墨尔本雅典娜农场设计组（精灵蓝）**
+很快你会发现有两个核心的报告，一个草案将在美国发生。这对共产党基本上是踢裆、打脸，是吧？基本这级别的，要它半条命，甚至让它嗝儿屁。他做梦都不会想到，从川普拜登政府从未停息过，美国在秘密的多个领域，在撰写一份叫 Coronavirus 真相的报告，《美国政府关于冠状病毒的白皮书》。
 
-**主持人：史蒂夫**·**班农**
+Soon you will find out that two major reports are coming out. One report is going to be drafted in the U.S. Basically, the effect of this report will be like kicking the crotch and slapping the face of the CCP, alright? Something like this. It is going to take half of the CCP’s life, or take its life completely. They would never imagine that from the Trump administration to the Biden administration, nothing has really stopped. People from multiple fields in the U.S. are secretly working on a report called the truth about the coronavirus – a white paper of the U.S. government about the coronavirus.
 
-**嘉宾：****Frank Gaffney, Rudy Giuliani, Gordon Chang, Kevin Freeman, Trevor Loudon, Steve Mosher**
+大家知道在战斗室里有一位和我、和班农先生多次上节目的美国第一位生物科学，叫做 biological weapon 生物武器科学家。第一，最近你见过他吗？见不着了吧？我可以告诉你连班农先生都不知道他去哪儿了，俺知道，俺知道！但咱不提前爆，还有两个原来七哥说过两个牛叉的人，最近的公众视野消失了很长时间了，去哪儿了？俺知道，俺知道，俺知道，是吧？去哪儿了？都去写这报告去了。
 
-#### **1、章家敦：中共正在研发杀死人类文明的病毒**
+You may know that in the War Room, there was a gentleman who joined me and Mr. Bannon multiple times before. He is the first biological weapon scientist in the U.S. Have you seen him recently? Not really, right? I can tell you that even Mr. Bannon doesn’t know where he has gone. I know, but I will not disclose it early. There are also two people whom I’ve mentioned before. Two very important figures who have been out of the sight of the public for a long time. Where did they go? I know, I know, alright? Where did they go? They all went to write this report.
 
-章家敦（Gordon Chang）警告说，冠状病毒不会是最后一种来自中共的病毒，下一种病毒将会被设计成杀死人类文明。（备注：章家敦是美国律师、作家、电视评论家，康奈尔大学法学博士，中国问题专家，著有《中国即将崩溃(The Coming Collapse of China)》一书）
+这个报告一出炉，共产党你会看到它。你就发现它愚蠢、流氓、下三滥到了极点，就像那九指妖一样：“让你写遗书，写给我，我也写遗书啊。”就这么烂，就这么 Low，就是不写账单是事，为啥改账单？是吧？就这么 Low，就共产党似的，一会儿是鞋得阳性了，一会儿是螃蟹得阳性了，一会儿汽车得阳性了，这简直是荒唐至极。
 
-“我们显然得做点什么，因为这不是最后一个来自中国本土的病原体。”章周六告诉《作战室》：“习近平现在明白，他几乎可以毫无成本地传播疾病。”
+Once the report is released, you will see how stupid, rogue, and wicked the CCP is. It’s just like the nine-finger demoness, asking you to write a will with her being the beneficiary and saying she also wrote a will herself. That is how low she is. Why did she alter the bank transaction record? That’s how low she is, just like the CCP who has blamed shoes, crabs, and even cars for carrying the virus. This is absolutely absurd.
 
-章说，美国必须建立威慑力，因为下一个病毒会严重得多–而中国将免疫（不会感染）。
+这个世界上不都是傻子，也不能全部被收买。这个 CCP 病毒报告白皮书一出来，美国西方已经把共产党直接扔进了垃圾箱，这是一个。第二个，兄弟姐妹们，可能是你们想象不到，关于对香港，叫《香港人权情况的调查报告》，也称《香港人权白皮书》。这是一个美国内部多个部门，全面开始进行的撰写的一个报告，没有停过，这个报告一旦出来，和香港的最近所谓共产党的取消一国两制的选举法，和共产党现在马上在香港搞的什么教育改革，你能发现共产党有多疯狂，它有多狂妄，它有多无知，它有多下三滥。世界上70多亿人口，真的都那么懦弱？真的都那么愚蠢？真的就那么容易被收买吗？
 
-“中国正在研究不会感染中国人的病原体”，章说：“中国人将获得免疫力，但他们会让世界上其他所有人患病（感染）”，“中国正在致力于杀死（人类）文明”，他说：“这可能让中国成为唯一（保持国民身体健康）运行的社会。”
+Not everyone in this world is a fool, nor can everyone be bought off. As soon as the white paper about the CCP virus comes out, the CCP will be thrown to the trash can by the West and the U.S. This is one thing. The other one is – brothers and sisters, maybe you can’t imagine it – the report on the investigation of Hong Kong’s human rights situation, which is also called the Hong Kong Human Rights White Paper, is currently being written by multiple agencies in the U.S. The writing has never been stopped. Once you see this report, and the recent so-called election law in HK for the abolition of the “one country, two systems” by the CCP, and also the education reform in HK developed by the CCP, you will find out how crazy, how arrogant, and how rogue the CCP is. The world has more than 7 billion people. Are they all coward? Are they all stupid? Is it really that easy to buy off everyone?
 
-当前危机委员会的联合创始人弗兰克·加夫尼（Frank Gaffney）说，更糟糕的是，美国纳税人正在为自己的灭亡买单。
+当一个人失去了对真相的判断能力，又对真理失去了信心，又对上帝表示怀疑，剩下的你就是等待死亡了，没有任何选择的，这就是共产党。和共产党已经被严重洗脑的，像海外孟维参、熊宪民、高冰尘，这帮孙子，李伟东这帮烂人一样，无知狂妄加上一股脑的冲向死亡，大家走着看。你们做梦都不会想到，当你们沮丧，当你们难受，关注着1/20的时候，这个国家的机器和世界上正义的机器和上天的上帝，从来没有停止过正义的工作，不要被几个人扰乱了视野。
 
-中共在武汉进行的（病毒）非法功能性增强研究，使病毒更具杀伤力和传染性，(这项研究)是由美国国家卫生研究院资助的。
+When a person loses the ability to tell what the truth is, loses confidence in the truth, and doubts God, what’s left to this person will be just waiting for death, and there is no other choice, and this is exactly the CCP. People who have been seriously brainwashed by the CCP such as those bastards overseas, like Meng Weican, Xiong Xianmin, Gao Bingchen, and Li Weidong, are ignorant and arrogant and rushing to death. Everybody, let’s wait and see. You can’t imagine that when you guys felt depressed, frustrated and was focusing on January 20th, the machines in this country and the world and God have never stopped working for the justice. Don’t be distracted by the few bad people.
 
-章说：“一个叫福奇的家伙在2015年负责授权资助370万美元（进行此项研究）”。章指出，这项在美国是非法的研究被外包给中国，这是 “不可辩驳的（事实）”。
+这是我最早一两年前就说过，拜登当选总统可能比川普还反共，不管他们现在忽高忽低怎么勾兑，不要影响了你对真相的和真理的和上帝的信任和判断和依靠，这才是一个正常的人。不要被恶魔和假象一时骚扰，人家东你就东，我这一辈子最恨的是，听东就是风，听西就是雨，东家的风，西家的雨，从来没有自己，永远是首鼠两端，永远是犹犹豫豫。就像我昨天说的，我爹我娘一辈子我爹就说了，咱多听听人家说说吧，我娘从来不信。是因为你不自信，是因为你没能力，你什么都听，什么多听几家，你就失去了判断，因为你没有自信和判断能力。就像我昨天说的，我娘老骂，是不是？那屎那个东西，老远一闻就知道的屎，你非要舔一舔才知道是屎吗？
 
-加夫尼指出，中共国有一个长达数十年的目标，就是要消减美国的人口，从而能够让中共国过剩的人口殖民美国。
+This is what I said as early as one or two years ago, that Biden may be even more anti-CCP than Trump when elected as president. No matter how much or how little they are colluding [with the CCP] right now, don’t let them affect your trust in the truth and God or affect your judgement. This is what a normal person should do. Don’t let yourself be harassed by demons and illusions or follow their directions. What I hate most in my life is listening to everything that other people say, losing yourself, and hesitating about everything. It’s just like what I said yesterday about my father and my mother. My father always said, “Let’s listen to others for what they have to say.”, whereas my mother never believed this. You listen to everything other people say and want to hear more people’s opinions because you are not confident, you are incompetent, and you don’t have your own judgement. As I said yesterday, my mother always scolded [us] like this, “You can tell it is shit from a far distance, then why do you still want to lick it to know it is shit?”
 
-他说：“我们是中国（为达到此目的）早在1991年就想到（利用）的族裔之一”，“会不会有可能，这种由纳税人资助的（病毒）功能性增强实验，在一定程度上促成了针对（特定）族裔的技术的产生，而我们这些纳税人恰恰被共产主义中国利用该技术将我们消灭掉？” 加夫尼问道。
+这就是世界的真理。共产党制造的病毒，你觉得这事就过去了？然后就找出蝙蝠、穿山甲呀，什么美国水牛城啊，他想然后弄到月球上去了，他想说过去就过去了，你太小看人类了吧？香港的事情你随便杀、随便抓、随便被自杀、随便强奸、随便鸡奸，就没事了，西方就拉倒了，你觉得可能吗？它只是什么时候有行动，有什么样的行动，他不可能没行动。不管你怎么对待这个世界，你有多么消极的看法，不论发生的事在你身上有多少悲哀的事情，和多少不幸的事情，你永远都要记住，有两样事是不会改的：太阳每天都升起，你不要以为因为你发生什么事，这个世界就黑暗了，那太阳每天都升起，从来没改变过。
 
-“你理解的完全正确。”章说：“这是毫无疑问的。”
+This is the truth of the world. The virus was made by the CCP. Do you think people will let it go? They [the CCP] have blamed bats and pangolins, Buffalo City in the U.S., and even the moon. They think they can get away with it; they have underestimated the humankind, haven’t they? In Hong Kong, you killed and arrested people, faked suicide scenes, and raped people. Do you think you can get away with it and the West will let you go? Do you think it is possible? It is only a matter of when and what kind of actions will be taken, but it’s impossible to have no actions. No matter how you face the world, how negative you view it, no matter how many sad things and tragic things have happen to you, you must always remember that there are two things that will never change. The sun rises every day. Don’t think that because of what have happened to you, the world is dark. The sun rises every day and this has never changed.
 
-“（美国）这是自杀。”加夫尼说。
+第二件事情：正义一定会到来。由于你的无知和无能，可能不发生在你身上，但已经发生在别人身上，可能是你的敌人被消灭了，但最终你没有能力做的时候，但有别人会去惩罚它。正义永远不会缺席，这两样东西不会改变。这是我人生坚信的：真的假不了，假的真不了。这是为什么我一直相信的，也是新中国联邦一直坚信的：唯真不破，真善狠。
 
-#### 2、朱利安尼：中共病毒是一种“战争行为”
+The second thing: justice will definitely come. Because of your ignorance and incompetence, it may not happen to you, but it has happened to others. It may be that your enemy has been wiped out by others or punished by others in the end when you are unable to do it yourself. Justice will never be absent, and these two things will never change. This is what I firmly believe in my life: true cannot be false, and false cannot be true. This is why I have always believed, and the New Federal State of China has always believed “only truth is nonbreakable” and “be truthful, kind, but resolute”.
 
-鲁迪·朱利安尼（Rudy Giuliani）说，不管武汉冠状病毒的来源如何，中共（在武汉病毒爆发）之后的所作所为都是“战争行为”。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-《福克斯》新闻的珍妮佛•格里芬(Jennifer Griffin)报导，国务院前高级调查员大卫·阿舍(David Asher)说，他相信冠状病毒是武汉的生物武器（项目）计划（导致的）结果。
+视频来源：[https://gtv.org/getter/604b8d61607c4240c8b50d61](https://gtv.org/getter/604b8d61607c4240c8b50d61) (00:41-7:45)
 
-“主流媒体（一直）帮助掩盖这一点”，史蒂夫·班农说：“而这是一颗定时炸弹，因为他们在武汉有一个进行中的武器项目。”
+鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/970651/](https://gnews.org/zh-hans/970651/)
 
-朱利安尼说，中共国对世界撒谎，鼓励（当地感染的人）到世界其他国家和地区旅行，同时它（在内部）又封锁了自己的国家。
+* * *
 
-“这是一种战争行为，”朱利安尼说。
+翻译：【Isaiah4031】字幕：【JennyL】视频解码：【恒久忍耐】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-“那战争的动机是什么？”他问：“生物武器？（病毒）功能性增强实验出了问题？武汉华南海鲜市场（病毒）疫情纯粹是偶然事件？绝对不是！”
-
-“（当时）那个实验室发生了一些事情，他们要么是在做一个不应该做的（病毒）功能性增强实验，要么就是在研发一种生物武器”，朱利安尼说：“他们确实不应该这样做”，“我不知道事情会变得多糟糕。”
-
-#### 3、中共病毒造成每个美国人1.9万美元的损失
-
-《经济作战室》主持人凯文‧弗里曼(Kevin Freeman)透露，中共国用武汉冠状病毒对美国发动的经济战，已经让每个公民付出了1.9万美元的代价。
-
-弗里曼认为，在中共对美国使用的所有武器中，经济战造成（美国）的损失代价最大。
-
-“我们已经在经济复苏上花费了7万亿美元”，弗里曼说：“每个公民1.9万美元，对此我们（相应）增加了许多债务。”
-
-“恰恰是我们（自己）将债台高筑”，他说：“这是人类有史以来使用的最厉害的经济武器。”
-
-弗里曼说，这些（战争）策略都是在《[超限战：中国政府摧毁美国的绝妙计划](https://www.amazon.com/Unrestricted-Warfare-Chinas-Destroy-America/dp/1626543054)》一书中指出的。(备注：《超限战：中国政府摧毁美国的绝妙计划》由中共军事理论家、军事评论家乔良少将和王湘穗教授合著)
-
-“他们做的第一件事就是经济（战）”，他说：“（他们）1999年写这本书的时候，中国的经济规模（仅仅）是我们（美国）的十分之一。”
-
-#### 4、中共国的崛起源自于乔‧拜登
-
-史蒂夫‧班农(Stephen Bannon)和弗兰克‧加夫尼(Frank Gaffney)追溯了乔‧拜登是如何开始出卖美国的。
-
-班农称拜登的“重返亚洲”战略是“美国外交政策史上最核心的败笔”，“这就是为什么亨特‧拜登一直在飞机上”，班农说：“他只是跟着他爸爸走（在亚洲寻求私人利益）。”
-
-加夫尼解释说，在2013拜登是一份不利于美国工人的谅解备忘录的幕后黑手。
-
-“使中共能够进入我们的资本市场，并以优惠的条件（让中共）进入我们的资本市场的人，是一个叫乔‧拜登的家伙，当时的美国副总统。”加夫尼说。
-
-加夫尼说，这笔糟糕的交易让“中共（控制的）公司能够进入我们的资本市场–（吸纳和利用）你们的钱。”
-
-#### 5、班农：中共国正与我们开战而我们可悲的人们却正在资助它
-
-史蒂夫‧班农（Stepehen Bannon）解释了中共国对美国的战争实际上是由你们这些可悲的人资助的。
-
-“他们已经对美国宣布（进行)了一场人民战争”，他说：“他们不仅对我们（发动战争），而且我们还在资助它。”
-
-班农解释了成本是如何转嫁到普通美国人身上的，这包括被转移到海外的工作岗位，乔‧拜登向中国开放的（美国）资本市场而修改401(K)(退休福利计划)，以及纳税人辛苦赚来的钱，还有债务的利息。
-
-班农说：“可悲的人们，（是）你们资助了这一切。”
-
-#### 6、人类历史上最大的杀人机器：中共吹嘘其强制堕胎杀死了4亿人
-
-史蒂文‧莫舍(Steven Mosher)透露，中共是“人类历史上最大的杀人机器”。（备注：史蒂文‧莫舍是美国社会科学家、反对堕胎活动家，新保守主义者和反共产主义者，也是反对人口控制和堕胎的人口研究所所长）
-
-中共政权通过强制堕胎，至少杀死了9000万成年人和4亿胎儿——近5亿人。
-
-“他们对此（计划生育）吹嘘不已”，莫舍说：“这（竟然）是他们引以为豪的事情，而不是他们试图掩盖的（罪恶）事情。”
-
-莫舍说，中共国的反人类战争是从(中共)对中国人自己的战争开始的。
-
-莫舍尔敦促美国人抵制北京（中共政权），包括（抵制）2022年（冬季）奥运会。如果我们不这样做，这个(冬季奥运会)活动将成为中共的宣传利器。而一旦(冬季奥运会)结束，“运动场将再次成为杀人场地。”
-
-#### 7、拜登提名的控制着20%美国能源的内政部长是“直接由美国共产党安排”
-
-政治活动家、作家特雷弗‧劳登（Trevor Loudon）揭示了中共与民主党之间的令人震惊的关系。
-
-劳登追溯到1990年代（民主党）对工会的渗透接管。关键人物：黛安·费恩斯坦（Dianne Feinstein）, 南希-佩洛西（Nancy Pelosi）, 杰里·纳德勒（Jerry Nadler）, 以及本尼·汤普森（Bennie Thompson）。
-
-（备注：黛安·费恩斯坦是美国民主党政治人物，代表最多人口的加州“资深联邦参议员”，也是目前年纪最大的参议员，曾担任旧金山首任女市长；杰里·纳德勒是美国众议院司法委员会主席；本尼·汤普森是美国众议院国土安全委员会主席）
-
-所有这些关系中最令人震惊的是拜登提名的内政部长德布·哈兰德（Deb Haaland）。（备注：德布·哈兰德是美国原住民女性政治家，2019年以来担任新墨西哥州联邦众议员，曾任新墨西哥州民主党主席）
-
-哈兰德被提名为内政部部长，该部控制着美国20%的土地面积和（其中）所有能源，她是由亲中共的美国共产党安排的。
-
-“我相信，德布·哈兰德有一个计划，就是尽可能地牢牢控制这个国家的能源资源”，劳登说：“这将使每个美国人使用能源的成本上升”，“而这将使中国和俄罗斯两者受益。”
-
-劳登警告：“（美国竟然）让一个被美国共产党安排的女人直接负责我们20%的能源和20%的土地，包括采矿业，也包括经营牧场。”
-
-原文链接：
-
-1.  [China is Developing Civilization Killer Viruses: Chang](https://pandemic.warroom.org/2021/03/13/china-is-developing-civilization-killer-viruses-chang/)
-
-2.  [The CCP Virus Was an ‘Act of War’: Giuliani](https://pandemic.warroom.org/2021/03/13/the-ccp-virus-was-an-act-of-war-giuliani/)
-
-3.  [The CCP Virus Has Cost $19,000 Per American](https://pandemic.warroom.org/2021/03/13/the-ccp-virus-has-cost-19000-per-american/)
-
-4.  [China’s Rise Traced Back to Joe Biden](https://pandemic.warroom.org/2021/03/13/chinas-rise-traced-back-to-joe-biden/)
-
-5.  [Bannon: China is at War With Us and the Deplorables Are Financing It](https://pandemic.warroom.org/2021/03/13/bannon-china-is-at-war-with-us-and-the-deplorables-are-financing-it/)
-
-6.  [The Biggest Killing Machine in History: CCP Brags About 400 Million Forced Abortions](https://pandemic.warroom.org/2021/03/13/the-biggest-killing-machine-in-history-ccp-brags-about-400-million-forced-abortions/)
-
-7.  [Biden’s Nominee to Control 20% of US Energy Was ‘Directly Put in Place by the Communist Party of USA’](https://pandemic.warroom.org/2021/03/13/bidens-nominee-to-control-20-of-us-energy-was-directly-put-in-place-by-the-communist-party-of-usa/)
-
-0
++2

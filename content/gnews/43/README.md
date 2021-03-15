@@ -1,60 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅：美国正在准备两本白皮书 会要中共的命!
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/976752/)
+## 美国政要等每日重要信息&amp; 郭母祭日两周年 0314.2021
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/976944/)
 
-新闻简述：在2021年3月12日的盖特中，郭先生爆出重磅消息：美国正在准备关于中共病毒真相和香港人权状况的白皮书，会要了中共的半条命，甚至让它嗝儿屁。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_2021-03-06_Getter-part1.srt.txt)
-**重磅：美国正在准备两本白皮书 会要中共的命!**
+**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
 
-**Breaking News: Two White Papers Are Under Preparation in the U.S.**
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0314.jpeg)
 
-很快你会发现有两个核心的报告，一个草案将在美国发生。这对共产党基本上是踢裆、打脸，是吧？基本这级别的，要它半条命，甚至让它嗝儿屁。他做梦都不会想到，从川普拜登政府从未停息过，美国在秘密的多个领域，在撰写一份叫 Coronavirus 真相的报告，《美国政府关于冠状病毒的白皮书》。
 
-Soon you will find out that two major reports are coming out. One report is going to be drafted in the U.S. Basically, the effect of this report will be like kicking the crotch and slapping the face of the CCP, alright? Something like this. It is going to take half of the CCP’s life, or take its life completely. They would never imagine that from the Trump administration to the Biden administration, nothing has really stopped. People from multiple fields in the U.S. are secretly working on a report called the truth about the coronavirus – a white paper of the U.S. government about the coronavirus.
+3月14日部分美国议员的推文信息如下。
 
-大家知道在战斗室里有一位和我、和班农先生多次上节目的美国第一位生物科学，叫做 biological weapon 生物武器科学家。第一，最近你见过他吗？见不着了吧？我可以告诉你连班农先生都不知道他去哪儿了，俺知道，俺知道！但咱不提前爆，还有两个原来七哥说过两个牛叉的人，最近的公众视野消失了很长时间了，去哪儿了？俺知道，俺知道，俺知道，是吧？去哪儿了？都去写这报告去了。
 
-You may know that in the War Room, there was a gentleman who joined me and Mr. Bannon multiple times before. He is the first biological weapon scientist in the U.S. Have you seen him recently? Not really, right? I can tell you that even Mr. Bannon doesn’t know where he has gone. I know, but I will not disclose it early. There are also two people whom I’ve mentioned before. Two very important figures who have been out of the sight of the public for a long time. Where did they go? I know, I know, alright? Where did they go? They all went to write this report.
 
-这个报告一出炉，共产党你会看到它。你就发现它愚蠢、流氓、下三滥到了极点，就像那九指妖一样：“让你写遗书，写给我，我也写遗书啊。”就这么烂，就这么 Low，就是不写账单是事，为啥改账单？是吧？就这么 Low，就共产党似的，一会儿是鞋得阳性了，一会儿是螃蟹得阳性了，一会儿汽车得阳性了，这简直是荒唐至极。
+> 参议员泰德·克鲁兹：
+> 终于，斯沃威尔(Swalwell)从躲避与芳芳交往的问题中走了出来(或更准确地说，是用人身攻击来分散注意力)。
+> 
+> 现在，他可以回答他一直躲避的问题了：
+>  -你是否和中共间谍有性关系？
+>  -你告诉了她什么？
+>  -你怎么能在情报委员会任职呢？
+> 
+> 【转众议员斯沃威尔攻击克鲁兹参议员的推文】 [https://t.co/QYZioRhSVZ](https://t.co/QYZioRhSVZ)
+> — 川普等政要…直译推 (@zhiyitw33) [March 14, 2021](https://twitter.com/zhiyitw33/status/1371171916497702914?ref_src=twsrc%5Etfw)
 
-Once the report is released, you will see how stupid, rogue, and wicked the CCP is. It’s just like the nine-finger demoness, asking you to write a will with her being the beneficiary and saying she also wrote a will herself. That is how low she is. Why did she alter the bank transaction record? That’s how low she is, just like the CCP who has blamed shoes, crabs, and even cars for carrying the virus. This is absolutely absurd.
 
-这个世界上不都是傻子，也不能全部被收买。这个 CCP 病毒报告白皮书一出来，美国西方已经把共产党直接扔进了垃圾箱，这是一个。第二个，兄弟姐妹们，可能是你们想象不到，关于对香港，叫《香港人权情况的调查报告》，也称《香港人权白皮书》。这是一个美国内部多个部门，全面开始进行的撰写的一个报告，没有停过，这个报告一旦出来，和香港的最近所谓共产党的取消一国两制的选举法，和共产党现在马上在香港搞的什么教育改革，你能发现共产党有多疯狂，它有多狂妄，它有多无知，它有多下三滥。世界上70多亿人口，真的都那么懦弱？真的都那么愚蠢？真的就那么容易被收买吗？
 
-Not everyone in this world is a fool, nor can everyone be bought off. As soon as the white paper about the CCP virus comes out, the CCP will be thrown to the trash can by the West and the U.S. This is one thing. The other one is – brothers and sisters, maybe you can’t imagine it – the report on the investigation of Hong Kong’s human rights situation, which is also called the Hong Kong Human Rights White Paper, is currently being written by multiple agencies in the U.S. The writing has never been stopped. Once you see this report, and the recent so-called election law in HK for the abolition of the “one country, two systems” by the CCP, and also the education reform in HK developed by the CCP, you will find out how crazy, how arrogant, and how rogue the CCP is. The world has more than 7 billion people. Are they all coward? Are they all stupid? Is it really that easy to buy off everyone?
 
-当一个人失去了对真相的判断能力，又对真理失去了信心，又对上帝表示怀疑，剩下的你就是等待死亡了，没有任何选择的，这就是共产党。和共产党已经被严重洗脑的，像海外孟维参、熊宪民、高冰尘，这帮孙子，李伟东这帮烂人一样，无知狂妄加上一股脑的冲向死亡，大家走着看。你们做梦都不会想到，当你们沮丧，当你们难受，关注着1/20的时候，这个国家的机器和世界上正义的机器和上天的上帝，从来没有停止过正义的工作，不要被几个人扰乱了视野。
 
-When a person loses the ability to tell what the truth is, loses confidence in the truth, and doubts God, what’s left to this person will be just waiting for death, and there is no other choice, and this is exactly the CCP. People who have been seriously brainwashed by the CCP such as those bastards overseas, like Meng Weican, Xiong Xianmin, Gao Bingchen, and Li Weidong, are ignorant and arrogant and rushing to death. Everybody, let’s wait and see. You can’t imagine that when you guys felt depressed, frustrated and was focusing on January 20th, the machines in this country and the world and God have never stopped working for the justice. Don’t be distracted by the few bad people.
+> 参议员瑞克·斯科特:
+> 本周，美国在联合国人权理事会[@UN\_HRC](https://twitter.com/UN_HRC?ref_src=twsrc%5Etfw)上谴责 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 在新疆的 [#种族灭绝](https://twitter.com/hashtag/%E7%A7%8D%E6%97%8F%E7%81%AD%E7%BB%9D?src=hash&amp;ref_src=twsrc%5Etfw) 行径。
+> 
+> 古巴政权跳出来为中共国辩护。
+> 
+> 共产主义独裁者们黏在一起毫不奇怪，但令人惊讶的是，民主党人却希望在哈瓦那与支持种族灭绝的政权实现关系正常化。 [https://t.co/8YJrLREheq](https://t.co/8YJrLREheq)
+> — 川普等政要…直译推 (@zhiyitw33) [March 14, 2021](https://twitter.com/zhiyitw33/status/1371188950702886913?ref_src=twsrc%5Etfw)
 
-这是我最早一两年前就说过，拜登当选总统可能比川普还反共，不管他们现在忽高忽低怎么勾兑，不要影响了你对真相的和真理的和上帝的信任和判断和依靠，这才是一个正常的人。不要被恶魔和假象一时骚扰，人家东你就东，我这一辈子最恨的是，听东就是风，听西就是雨，东家的风，西家的雨，从来没有自己，永远是首鼠两端，永远是犹犹豫豫。就像我昨天说的，我爹我娘一辈子我爹就说了，咱多听听人家说说吧，我娘从来不信。是因为你不自信，是因为你没能力，你什么都听，什么多听几家，你就失去了判断，因为你没有自信和判断能力。就像我昨天说的，我娘老骂，是不是？那屎那个东西，老远一闻就知道的屎，你非要舔一舔才知道是屎吗？
 
-This is what I said as early as one or two years ago, that Biden may be even more anti-CCP than Trump when elected as president. No matter how much or how little they are colluding [with the CCP] right now, don’t let them affect your trust in the truth and God or affect your judgement. This is what a normal person should do. Don’t let yourself be harassed by demons and illusions or follow their directions. What I hate most in my life is listening to everything that other people say, losing yourself, and hesitating about everything. It’s just like what I said yesterday about my father and my mother. My father always said, “Let’s listen to others for what they have to say.”, whereas my mother never believed this. You listen to everything other people say and want to hear more people’s opinions because you are not confident, you are incompetent, and you don’t have your own judgement. As I said yesterday, my mother always scolded [us] like this, “You can tell it is shit from a far distance, then why do you still want to lick it to know it is shit?”
 
-这就是世界的真理。共产党制造的病毒，你觉得这事就过去了？然后就找出蝙蝠、穿山甲呀，什么美国水牛城啊，他想然后弄到月球上去了，他想说过去就过去了，你太小看人类了吧？香港的事情你随便杀、随便抓、随便被自杀、随便强奸、随便鸡奸，就没事了，西方就拉倒了，你觉得可能吗？它只是什么时候有行动，有什么样的行动，他不可能没行动。不管你怎么对待这个世界，你有多么消极的看法，不论发生的事在你身上有多少悲哀的事情，和多少不幸的事情，你永远都要记住，有两样事是不会改的：太阳每天都升起，你不要以为因为你发生什么事，这个世界就黑暗了，那太阳每天都升起，从来没改变过。
 
-This is the truth of the world. The virus was made by the CCP. Do you think people will let it go? They [the CCP] have blamed bats and pangolins, Buffalo City in the U.S., and even the moon. They think they can get away with it; they have underestimated the humankind, haven’t they? In Hong Kong, you killed and arrested people, faked suicide scenes, and raped people. Do you think you can get away with it and the West will let you go? Do you think it is possible? It is only a matter of when and what kind of actions will be taken, but it’s impossible to have no actions. No matter how you face the world, how negative you view it, no matter how many sad things and tragic things have happen to you, you must always remember that there are two things that will never change. The sun rises every day. Don’t think that because of what have happened to you, the world is dark. The sun rises every day and this has never changed.
 
-第二件事情：正义一定会到来。由于你的无知和无能，可能不发生在你身上，但已经发生在别人身上，可能是你的敌人被消灭了，但最终你没有能力做的时候，但有别人会去惩罚它。正义永远不会缺席，这两样东西不会改变。这是我人生坚信的：真的假不了，假的真不了。这是为什么我一直相信的，也是新中国联邦一直坚信的：唯真不破，真善狠。
+> 众议员布莱恩·马斯特:[#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 故意在有关冠状病毒危害的问题上欺骗全世界，造成了数百万人失去生命，和数万亿美元的经济损害。
+> 
+> 他们必须被追究责任。 这就是我的法案所要做的。
+> 
+> 【转Westernjournal新闻网报道：共和党众议员推动计划，以采取大规模行动来惩罚中共国对COVID的“掩盖”行为】 [https://t.co/w6VCjbGnC0](https://t.co/w6VCjbGnC0)
+> — 川普等政要…直译推 (@zhiyitw33) [March 14, 2021](https://twitter.com/zhiyitw33/status/1371235292393439235?ref_src=twsrc%5Etfw)
 
-The second thing: justice will definitely come. Because of your ignorance and incompetence, it may not happen to you, but it has happened to others. It may be that your enemy has been wiped out by others or punished by others in the end when you are unable to do it yourself. Justice will never be absent, and these two things will never change. This is what I firmly believe in my life: true cannot be false, and false cannot be true. This is why I have always believed, and the New Federal State of China has always believed “only truth is nonbreakable” and “be truthful, kind, but resolute”.
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-视频来源：[https://gtv.org/getter/604b8d61607c4240c8b50d61](https://gtv.org/getter/604b8d61607c4240c8b50d61) (00:41-7:45)
+3月14日美国朝野继续谴责中共对新疆犯下的种族屠杀罪，对中共掩盖病毒真相的谴责和呼吁向其追责的声音逐渐多起来。两年前中共为了打击敢于向中共强权挑战、向世界揭露中共本质和真相的爆料革命发起人、凝聚海内外追求自由的华人和所有战友、灭共英雄郭文贵先生，中共多次抓捕、威胁郭先生的家人，最终害死了他的的母亲。今天是农历二月初二，今年的3月14日是郭母归寂两周年祭日。郭先生再次揭开伤疤，以自己的伤痛示人，也以各种经历总结的轻松的故事，让我们再次看清中共泯灭人性邪恶的本质，更加让我们懂得孝敬父母、尊敬母亲、关爱家人的重要性、这些原本属于中国人本性、却被中共粉碎并扭曲人性后渐行渐远的品质。
 
-鸣谢：感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/970651/](https://gnews.org/zh-hans/970651/)
+如果郭先生灭共的代价能够被重视，爆料革命能够早一点被贪婪的西方世界所接受，无疑中共对全世界的伤害也不会如今天之巨大。这也是我们为什么要纪念郭母，以郭先生和家人的遭遇唤醒更多人觉醒。
 
-* * *
+郭母的辞世将最终换来天下苍生不再受中共奴役的结局。在此笔者向郭母和所有爆料革命战友的母亲、天下善良的母亲送上一首改词和演唱的同名歌曲《娘心》，以表达对郭母为中华儿女带来我们的兄长七哥的无限敬意，希望老人家天堂一路走好，继续庇佑郭先生携手所有战友完成上天的使命，早日灭共，挽救中华儿女苍生、复苏死去的华夏大地，也希望天下所有的母亲从此不再生活在恐惧这一中共的毒霾之下，中华人早日消灭我们的敌人中共，实现合家团圆、长久平安、自由和健康的生活。
+歌曲《娘心》[https://www.gtv.org/video/id=604e4787607c4240c8b58aa3](https://www.gtv.org/video/id=604e4787607c4240c8b58aa3)
 
-翻译：【Isaiah4031】字幕：【JennyL】视频解码：【恒久忍耐】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-+2
+编辑：康州盘古农场 喜马拉雅的文雅
+
+封面：康州盘古农场 霹雳年
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
+
+
+
+0
