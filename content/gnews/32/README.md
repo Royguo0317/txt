@@ -1,49 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [疫情下的西班牙] 丹麦女子接种阿斯利康疫苗后死亡的症状
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/980259/)
+## 当你目睹兄弟或姐妹受苦，不能保持沉默
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/980339/)
 
-- 作者：gokuabuela
-- 制图：七白石
+新闻简述：2021年3月14日的直播后，郭先生观看了一部叫《红海潜水俱乐部》的电影。这是根据以色列人营救埃塞俄比亚的非裔犹太弟兄姐妹的真实故事改编的电影，他推荐战友们观看。
 
+**When You See Your Brother or Your Sister Suffering, You Must Not Stay Silent**
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+**当你目睹兄弟或姐妹受苦，不能保持沉默**
 
-**西班牙2021年3月16日电/西喜社——**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/QQ截图20210311215534.png)
-据ABC报马德里3月15日报道的一篇关于丹麦女子接种阿斯利康疫苗后死亡后的症状，荷兰及一些欧洲国家已经决定暂停接种这种药物，并要求公布与血栓有关的阿斯利康疫苗生产批号。
+Kabede Bimro: “There are thousands more, Ari.”
 
-报道说，一起因注射疫苗而死亡的事件，在欧洲多个国家引发了多米诺骨牌效应。许多国家已经暂停接种阿斯利康的疫苗。除了荷兰，还有丹麦、挪威、冰岛、奥地利、爱沙尼亚、立陶宛、拉脱维亚和卢森堡等国家。同时，意大利在西西里岛也发生了两起死亡事件，一名43岁的士兵和一名50岁的警察，意大利已经阻止了疫苗的使用。
+卡巴·比姆罗：“还有数千人，艾里。”
 
-这名丹麦籍女子今年60岁，接受阿斯利康疫苗注射后，因血栓死亡。丹麦卫生总局（SST）上周日报告说，在接受疫苗后，患者出现了 “非常不寻常 “的症状。
+Ari Levinson: “I know. We gonna go back, okay? I promise.”
 
-这家机构提到，这名女子 “血小板量少，大小血管有血块，有出血现象”。”是死亡前后不同寻常的临床表现让我们做出了反应。在欧洲的副作用数据库中，还发现了另外几例类似的情况。挪威也描述了类似的疑似效果，”他们在一份声明中说。
+阿里·萊文森：“我知道。我们一定会回去，好吗？我保证。”
 
-欧洲药品管理局(EMA)坚称，没有迹象表明此类事件是由疫苗接种引起的，世界卫生组织周五也表示赞同这一观点。”目前没有迹象表明接种疫苗会引起这些情况，这些情况不属于副作用。”他说。
+Kabede Bimro: “He kept his promise. We did go back, again and again. We left no one behind. The Red Sea Diving Resort was not truly a hotel, but it embodied a higher truth, perhaps the highest. When you see your brother or your sister suffering, you must not stay silent. Do not remain still. Go to their aid. Help them.”
 
-据记者Rosalia Sanchez报道，阿斯利康公司在接受荷兰NOS电视台采访时表示，它与EMA保持密切联系，并回顾说，是这个欧洲监管机构来评估并决定疫苗接种者凝血问题的实际后果。”疫苗的使用不是由我们来决定或建议，因为这是卫生当局的事”。
+卡巴·比姆罗：“他信守了诺言。我们的确回去了。回去好几次。一个人也没落下。红海潜水度假村并非真正的旅馆，却象征着更崇高的真理，也许是最崇高的。当你目睹兄弟或姐妹受苦，决不能保持缄默，别漠然以对，请伸出援手，帮助他们。”
 
-**译者评：**
+Miles Guo: You must not stay silent. Do not remain still. Go to their aid. Help them.
 
-**闫博士、文贵先生早就说过，疫苗早晚会出问题。**
+郭先生：不能保持沉默，别漠然以对，请伸出援手，帮助他们。
 
-**首先，疫苗没有经过充分的论证和测试，研发周期比正常短的多，而且没有经过最严格也是最重要的第三阶段的临床实验。**
+“Tens of thousands of Ethiopian refugees were smuggled out with the help of the Israeli navy and air force.”
 
-**其次，疫苗的副作用到底有多大，相关机构一直没有给出准确的回答，估计他们自己都不知道，因为刚开始大面积的普及“临床实验”。**
+“数万名伊索比亚（埃塞俄比亚）难民在以色列海军和空军的帮助下，顺利偷运成功。”
 
-**甚至，接种了疫苗的人，是否算感染者，是否会传染给其他人，都还没有定论。**
+“There are currently more than 65 million displaced refugees around the world.”
 
-**而且，我们看到，欧洲各国政府购买疫苗，并对疫苗可能产生的后果承担责任，而疫苗研发公司并不承担任何责任。也就是说，疫苗公司如果需要做一些人体测试，那这就是最好的机会，没有责任的。**
+“目前全球仍有逾6500万名难民背井离乡。”
 
-**而欧洲各国的政府，在疫情中的表现也是非常令人失望的。大部分执政党是左派，除了利用疫情经济，还利用“疫情武器”来打击政敌，从最近西班牙地区政府选取就可见一斑。而在真正的关键点 – “病毒起源”,及”硫酸羟氯喹的使用“上却背道而驰。**
+Mr. Miles Guo: Not only 65 million. There are 1.4 billion Chinese as well. This film, brothers and sisters, deserves to be watched. It was based on a true story. After my live broadcast today, I went to watch this movie. This is one of the best work on loving your family, your compatriots, and your brothers and sisters. When you have time, you may watch it.
 
-**自苏联解体，西方社会失去了最大的威胁，全球主义、精英主义统治了全球，渐渐的政府不再代表民意，而是欺骗和玩弄民意，加上中共的“蓝金黄“，欧洲渐渐走向”沦陷“。 这个世界确实需要痛，然后清醒，然后改变。**
+郭先生：不止6500万名吧，还有14亿中国人呢。这个电影，兄弟姐妹们，值得看。这是一个真实的故事改编的。在我今天直播完以后，我来看这个电影。这是爱家人、爱同胞、爱兄弟姐妹一个最好的电影之一。大家如果有时间，可以去看一看。
 
-**所有的生命都是无辜的，愿不再有人因为疫苗而死亡，也希望各国政府不再有侥幸心理，不要拿民众的生命来“豪赌”，要联合起来灭共，才能真正解决问题。**
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-编辑：蚂蚁兄弟；校对：阿伯塔；发稿：神奇四侠
+视频来源：[https://gtv.org/getter/604e8be9607c4240c8b59928](https://gtv.org/getter/604e8be9607c4240c8b59928)
 
-新闻来源：[ABC新闻](https://www.abc.es/sociedad/abci-sintomas-mujer-danesa-murio-despues-vacunarse-astrazeneca-202103151039_noticia.html)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
-0
+* * *
+
+翻译：【7PawBear】校对：【Isaiah4031】字幕：【V%】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+
++1

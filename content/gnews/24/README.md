@@ -1,55 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 当你目睹兄弟或姐妹受苦，不能保持沉默
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/980339/)
+## 【世事解评】北京新一轮整顿线下培训机构的布局设计
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/980417/)
 
-新闻简述：2021年3月14日的直播后，郭先生观看了一部叫《红海潜水俱乐部》的电影。这是根据以色列人营救埃塞俄比亚的非裔犹太弟兄姐妹的真实故事改编的电影，他推荐战友们观看。
+作者：纽约香草山 文帝
 
-**When You See Your Brother or Your Sister Suffering, You Must Not Stay Silent**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-4.jpg)
 
-**当你目睹兄弟或姐妹受苦，不能保持沉默**
 
-Kabede Bimro: “There are thousands more, Ari.”
 
-卡巴·比姆罗：“还有数千人，艾里。”
+三月初，北京的朝阳区、昌平区、通州区等，相继出台红头文件，整治“校外培训机构”，开始针对教育培训机构进行新一轮治理。此次停课是无限期停课，据悉最少持续约半年。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Jietu20210316-143157.jpg)
+教育产业化的20多年间，诞生了无数的校外培训机构。从2020年疫情开始，已有大批培训机构倒闭。进入2021年，各行各业都在“恢复营业”，教育培训业却又迎来了新一波的“不确定性”。这新一轮的治理要干什么呢，根据各区的公告信息，不难发现：其**核心是控制钱、管理人**。
 
-Ari Levinson: “I know. We gonna go back, okay? I promise.”
+本次整治不涉及线上，宣传口中提到的那些线下机构的问题（如：教师资质参差不齐、教学内容朝纲、交费后跑路），在线上机构也同样存在。但是，为何再次针对线下培训专门打击呢？总体而言，教育行业的人员流动性极大，而不同的科目教授的内容又有极大的“发散性”，尤其是语言类科目极容易涉及“制度的比较”与“思想的解放”。**因此，管理流动的课外补习教师，掌握教师信息、授课内容及其所教学生，把“校外的教师”编成册登记下来至关重要。**
 
-阿里·萊文森：“我知道。我们一定会回去，好吗？我保证。”
+事实上，各个大型培训机构，为了配合国家的进一步检查要求，不仅上传了所有老师的数据信息，且早已经开始在各个教室安装摄像头，实时记录和上传教师的课堂。并且也明确在各版“教师手册”上，明确要求禁止“讲政治”，禁止“乱说话”，为何还是得不到“国家的肯定”？因为中共觉得，这还远远不够。把线下培训老师赶到学校或线上，明显是更容易监控的。
 
-Kabede Bimro: “He kept his promise. We did go back, again and again. We left no one behind. The Red Sea Diving Resort was not truly a hotel, but it embodied a higher truth, perhaps the highest. When you see your brother or your sister suffering, you must not stay silent. Do not remain still. Go to their aid. Help them.”
+更进一步，在本轮的整治中，要求建立公共的**银行账户**，美其名曰为了家长预防机构“跑路”，将机构的资金统一管理起来，上完课后定期解冻资金。这一举措，不仅可以成功清退流动资金差的中小公司，也可以把钱握在“中共”的手里。那么，**中共国几十年的教育产业化带来的各项利润，都可以尽收“中共”腰包**，而无论你机构的后台是谁。
 
-卡巴·比姆罗：“他信守了诺言。我们的确回去了。回去好几次。一个人也没落下。红海潜水度假村并非真正的旅馆，却象征着更崇高的真理，也许是最崇高的。当你目睹兄弟或姐妹受苦，决不能保持缄默，别漠然以对，请伸出援手，帮助他们。”
+如果在全国全面实行，通过这样的方式，**将国家的手，伸进“教育行业大小公司”的包，控制住他们的钱**，用家长的学费、机构的自费管理，将教育行业的钱“国有化”，将这部分教育资源实现“国有化管理”。用这种模式，最终可以迅速实现教育产业回归“社会主义”道路。
 
-Miles Guo: You must not stay silent. Do not remain still. Go to their aid. Help them.
+中共随时可以推广这种模式，到任何“预售/集资”模式运营的公司，到任何市场化的公司与行业。以“监管”的名义，行“国有化”之实。笔者愚见，这也许是郭先生多次提到的，“中共国接下来会加速开始国有化”的过程。
 
-郭先生：不能保持沉默，别漠然以对，请伸出援手，帮助他们。
+（本文内容仅代表作者个人观点）
 
-“Tens of thousands of Ethiopian refugees were smuggled out with the help of the Israeli navy and air force.”
+校对/发稿：飞虹
 
-“数万名伊索比亚（埃塞俄比亚）难民在以色列海军和空军的帮助下，顺利偷运成功。”
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-2.jpg)
 
-“There are currently more than 65 million displaced refugees around the world.”
 
-“目前全球仍有逾6500万名难民背井离乡。”
 
-Mr. Miles Guo: Not only 65 million. There are 1.4 billion Chinese as well. This film, brothers and sisters, deserves to be watched. It was based on a true story. After my live broadcast today, I went to watch this movie. This is one of the best work on loving your family, your compatriots, and your brothers and sisters. When you have time, you may watch it.
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-郭先生：不止6500万名吧，还有14亿中国人呢。这个电影，兄弟姐妹们，值得看。这是一个真实的故事改编的。在我今天直播完以后，我来看这个电影。这是爱家人、爱同胞、爱兄弟姐妹一个最好的电影之一。大家如果有时间，可以去看一看。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-视频来源：[https://gtv.org/getter/604e8be9607c4240c8b59928](https://gtv.org/getter/604e8be9607c4240c8b59928)
-
-* * *
-
-翻译：【7PawBear】校对：【Isaiah4031】字幕：【V%】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
-
-+1
+0
