@@ -17,6 +17,11 @@
 **郭文贵MILES** `2021-02-21T15:56:09`
 ##
 
+[3月16号：尊敬的战友们好．这是今天第二次发的盖特……谈谈，以毒灭共．和台湾香港面临的巨大的挑战！](/content/getter/content/2021/03/6050c619527b920e2d834776.md)
+
+**郭文贵MILES** `2021-03-16T14:52:09`
+##
+
 [3月16号：尊敬的战友们好……很多战友这几天发了很多信息！问关于一些孝敬孝顺和养老．过程当中的实际客观的矛盾和问题，并给文贵提出了很多的建议，文贵在此谈谈个人的...](/content/getter/content/2021/03/6050c18b527b920e2d83460d.md)
 
 **郭文贵MILES** `2021-03-16T14:32:43`
@@ -155,10 +160,5 @@
 [蓬佩奥对于美国运动员是否能够安全出入中共国深感担忧  Pompeo: there are real concerns about athletes’ abili...](/content/getter/content/2021/03/6049519f607c4240c8b488ef.md)
 
 **郭文贵MILES** `2021-03-10T23:09:19`
-##
-
-[蓬佩奥：以毒灭共，势在必行  Mike Pompeo ：Taking down the CCP by means of the virus accountabi...](/content/getter/content/2021/03/6049517b607c4240c8b488e4.md)
-
-**郭文贵MILES** `2021-03-10T23:08:43`
 ##
 
