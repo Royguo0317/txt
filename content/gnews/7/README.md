@@ -1,59 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 为什么对中共的制裁还远远不够
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/980444/)
+## 美国政要等每日重要信息0316.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/980557/)
 
-- 作者：The-world
+**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0316.jpeg)
+#### 现任政府动向
 
+3月16日美国现任国务卿安东尼-布林肯就四国峰会发推如下:
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+今天，我和美国驻东京大使馆的工作人员及其家属召开了网络会议。他们在日本代表美国，促进美国人民的利益和价值观的不懈努力，是我们国家的宝贵财富。
 
-**西班牙2021年3月16日电/西喜社——**
+很高兴今天与我的朋友和日本同行茂木敏充(外交部长）见面。我们致力于深化美日在全球挑战上的协调，以及我们对自由和开放的 #印太 地区的共同愿景。
 
-据华盛顿邮报3月14日一篇时事评论：中共赤裸裸的将黑手伸向了新疆维吾尔族人，在整个世界的眼皮底下针对维吾尔族人进行种族灭绝运动。并且中共还让整个世界知道了他们的种族灭绝行动的效率堪比纳粹德国。
-
-中共外交部上周宣布，由于美国禁止进口新疆生产的棉花，“许多新疆公司和居民遭受了重大损失”。这一切都归咎于德国研究人员阿德里安·曾茨（Adrian Zenz）的行为，曾茨曾暴露了针对维吾尔人的许多罪行，包括强迫数十万人手工采摘棉花。
-
-大部分的人都知道美国黑人奴隶在美国南部遭到剥削奴役的故事，然而这一切都在中共的阴影下重演
-
-根据官方媒体的报道，新疆的多家公司正在当地法院起诉曾茨先生。这是一个中共试图让海外华侨闭嘴的又一个例子。
-
-在法院对曾茨先生作出判决的情况下，如果两家司法部门成功诱使美国或欧洲法院强制执行法律程序，则曾茨先生可能会被卷入当地法律诉讼程序。
-
-但是这位学者被问到此事时的回答是乐观的：“这表明我确实令他们遭受了重大经济损失，”他告诉《邮报》。 “通过起诉一名学者来反击的手段只能证明他们的无力和绝望。”
-
-曾茨先生可能是正确的，考虑到过去一年美国从中国进口了价值90亿美元的棉花，而中共87％的棉花产量来自新疆。尽管如此，美国和其他民主国家的制裁还远远无法抵消中共针对维吾尔人的罪行。
-
-华盛顿“新线战略与政策研究所的学者”（New Lines Institute for Strategy and Policy）所召集的一大批专家在一份新报告中明确指出了这一点。这项研究在1948年《灭绝种族罪公约》的背景下审视了中国的行为，该研究令人信服地指出，习近平主席“已开始实施全面性的国家性政策和具体措施”，“旨在消灭维吾尔人整体”。
-
-《种族灭绝公约》将五种行为定义为种族灭绝；其中一个条约指出：“犯有任何意图“消灭”某团体的国家即为有罪。“
-
-专家小组的报告收集了数千页的证据，发现中国对所有五个罪名成立：
-
-1. 杀害维吾尔人；
-2. 使他们受到严重的身体或精神伤害；
-3. 故意破坏其文物和居住环境；
-4. 采取措施防止生育
-5. 强行将子女转移给他人监护
+这是和美国国防部长罗德（Lloyd J. Austin）、 日本外交部长茂木敏充、日本国防部长岸信夫之间的伟大的讨论。坚信以普世价值为基础、不受强制力约束的自由、开放、包容的印度洋-太平洋的重要性。我们致力于与日本的合作，与四国合作，以及包括韩国的三边合作（包括冠状病毒大流行、气候变化、北朝鲜去核问题等—根据白宫发言人推文）。
 
 
-至于意图，该报告记录了官员如何“用非人道化”的术语描述怎么对待维吾尔人，并将维吾尔人的大规模拘留一再比喻为“消灭种族”。
 
-今年一月，即将卸任的特朗普政府下属的国务院也认定中国犯有种族灭绝罪，拜登总统的国务卿安东尼·布林肯已经确认了这一判决。这应该授权采取禁止对棉花和番茄的进口，并对少数官员实施制裁。
+> Today, I met virtually with [@usembassytokyo](https://twitter.com/usembassytokyo?ref_src=twsrc%5Etfw), our consulates’ staff, and their families. Their tireless work representing the United States in Japan and promoting the interests and values of the American people is an invaluable asset to our country. [pic.twitter.com/dyyA8a86UQ](https://t.co/dyyA8a86UQ)
+> — Secretary Antony Blinken (@SecBlinken) [March 16, 2021](https://twitter.com/SecBlinken/status/1371709924418461697?ref_src=twsrc%5Etfw)
 
-**作者评：**
 
-**在历史上当一个国家对某个宗教，种族进行迫害时，无不例外是为了维护自己的统治。通过爆料革命，我们才了解到中共对穆斯林人的残忍。**
 
-**在21世纪社会，允许一个比希特勒还邪恶凶狠的中共存在，并绑架14亿人口跟它共同存亡，作为新中国联邦人是不能容忍和接受的。**
 
-**虽然消灭中共不能只依靠寄希望于类似美国这样的政府，经济制裁也无法从根本上改变现状并及时制止这种惨无人道的种族灭绝。**
 
-**我们能做到的：只有让更多人知道这残酷的现实，特别是要让生活在大陆的年轻人了解踩在他们头上的”领导“是多么的无耻和邪恶。**
+> Pleasure to meet with my friend and Japanese counterpart, [@moteging](https://twitter.com/moteging?ref_src=twsrc%5Etfw), today. We’re committed to deepening U.S.-Japan coordination on global challenges and our shared vision for a free and open [#IndoPacific](https://twitter.com/hashtag/IndoPacific?src=hash&amp;ref_src=twsrc%5Etfw) region. [pic.twitter.com/OVgGVvDt1y](https://t.co/OVgGVvDt1y)
+> — Secretary Antony Blinken (@SecBlinken) [March 16, 2021](https://twitter.com/SecBlinken/status/1371725618530902019?ref_src=twsrc%5Etfw)
 
-编辑：蚂蚁兄弟；校对：阿伯塔；发稿:神奇四侠
 
-新闻来源：[华盛顿邮报](https://www.washingtonpost.com/opinions/global-opinions/us-sanctions-for-the-uyghur-genocide-are-hurting-china-but-they-arent-enough/2021/03/13/fc09c45c-8359-11eb-81db-b02f0398f49a_story.html)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
+
+
+
+> Great discussion with [@Secdef](https://twitter.com/SecDef?ref_src=twsrc%5Etfw), [@moteging](https://twitter.com/moteging?ref_src=twsrc%5Etfw), & [@KishiNobuo](https://twitter.com/KishiNobuo?ref_src=twsrc%5Etfw) on the importance of a free, open, & inclusive Indo-Pacific anchored by universal values & uninhibited by coercive power. We’re committed to cooperation with Japan including as part of the Quad & trilaterally with the ROK. [pic.twitter.com/37VkmiMfrR](https://t.co/37VkmiMfrR)
+> — Secretary Antony Blinken (@SecBlinken) [March 16, 2021](https://twitter.com/SecBlinken/status/1371741982285041664?ref_src=twsrc%5Etfw)
+
+
+
+#### 45届总统川普的声明
+
+3月15日晚，川普总统在GAB发表声明如下。
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-220.png)
+
+保护美国— 唐纳德-川普总统 [https://gab.com/realdonaldtrump/posts/105896122879430427](https://gab.com/realdonaldtrump/posts/105896122879430427)
+《美利坚合众国第45任总统唐纳德-J-川普的声明》
+
+《华盛顿邮报》刚刚对我关于伟大的佐治亚州选民欺诈问题的电话内容所进行的错误报道做了更正。虽然我很感谢《华盛顿邮报》的更正，但原来的故事从一开始就是子虚乌有。对佐治亚州富尔顿县和斯泰西-艾布拉姆斯进行强有力的调查，我将深表谢意，我相信，这将彻底改变佐治亚州总统选举的进程。
+
+富顿县并没有对选票或签名验证进行适当的审计。他们只看了本州最不可能出现什么问题的地区，即使在那里他们也发现了大量的错误。我们正在寻求找到并揭示发生在佐治亚州大规模的选举舞弊。许多居民对此表示同意，他们的愤怒导致他们在1月份的选举中没有投票给两名共和党参议员。
+
+拉芬斯贝格和斯泰西-艾布拉姆斯签署的《同意协议》没有得到佐治亚州议会的批准，因此应视作无效，选举结果已经变了。为什么州长和拉芬斯伯格曾经批准过这个《同意协议》，这是一个很大的疑问？我们期待着答案。
+
+你会注意到，媒体的错误、遗漏、失误和彻头彻尾的谎言总是向一个方向倾斜—都是反对我和共和党人。与此同时，那些对民主党人不利的故事被埋没、忽略或延迟，直到造成伤害降低到最小—例如，在选举结束后才报道。不妨看看大选前对疫苗的负面报道，以及大选结束后对疫苗的过期庆祝。一个强大的民主国家需要一个公平和诚实的媒体。最新的媒体荒唐事突出表明，传统媒体应被视为政治实体，而不是新闻企业。无论如何，我感谢《华盛顿邮报》的更正。
+
+小议：川普总统的后总统时期的这份声明已经让笔者有太多感怀又噎于无语。川普总统在任时于大选夜将选举舞弊行为诉诸法律，那时美国的司法体系已经被渗透和受到重压无法秉公执法，那么离任后的后总统时期就能期待司法公正有所作为吗？对疫苗的认识显然川普总统是错过了闫博士的珍贵信息和情报所致，也体现了川普总统并没有完全理解爆料革命。此外，川普总统如果仍然没有意识到他在总统宝座被盗窃、媒体失去公信已经不再是美国内部的矛盾，现在面临的问题已经不是漠视台湾、漠视香港，“事不关己高高挂起”，那么所谓“保护美国、让美国再次强大”将太过狭隘和难以真正实现，因为如今摆在美国面前真正的敌人和主要矛盾的根源都是中共的渗透及其带来的共产主义和社会主义思潮所致。
+
+真可谓认识有多远，步履走多远。又可谓，相逢已然成归去，明日黄花蝶也愁！
+
+
+
+文章观点部分仅代表作者本人。
+
+编辑：康州盘古农场 喜马拉雅的文雅
+
+封面：康州盘古农场 霹雳年
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
+
+（本文当日持续更新中）
+
 0
