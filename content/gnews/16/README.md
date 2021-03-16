@@ -1,37 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 排华事件背后的反思
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/978735/)
+## 当你目睹兄弟或姐妹受苦，不能保持沉默
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/980339/)
 
-**作者：**一杯浊酒
+新闻简述：2021年3月14日的直播后，郭先生观看了一部叫《红海潜水俱乐部》的电影。这是根据以色列人营救埃塞俄比亚的非裔犹太弟兄姐妹的真实故事改编的电影，他推荐战友们观看。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/20210315074919811-e1615836128701.png)封面来源：阿波罗新闻网站
+**When You See Your Brother or Your Sister Suffering, You Must Not Stay Silent**
 
-据环球网报道：3月14日，缅甸仰光莱达雅工业区发生多家中资工厂遭不法分子打砸事件，共造成32家中资工厂受损，两名中国员工受伤，无人死亡。据不完全统计，财产损失2.4亿人民币。
+**当你目睹兄弟或姐妹受苦，不能保持沉默**
 
-想必中国人看到这个新闻并不陌生。我们看下最近几十年的大规模排华事件：
+Kabede Bimro: “There are thousands more, Ari.”
 
-1967年缅甸排华杀掠事件，数十万华人被屠杀迫害，只有寥寥几百华人在缅甸大屠杀前，因事外出，而幸免于难。
+卡巴·比姆罗：“还有数千人，艾里。”
 
-1965年，印尼的反华浪潮，在这次的镇压中有将近50万华人被处死。
+Ari Levinson: “I know. We gonna go back, okay? I promise.”
 
-1975年红色高棉时期，商人身份的华人被划入“资产阶级”阵营，许多华人被处以死刑或苦刑。具体数字，尚在解密之中。
+阿里·萊文森：“我知道。我们一定会回去，好吗？我保证。”
 
-1977年越南爆发了有史以来的疯狂排华事件，150万人在这次灭绝人性的暴行中惨遭罹难。
+Kabede Bimro: “He kept his promise. We did go back, again and again. We left no one behind. The Red Sea Diving Resort was not truly a hotel, but it embodied a higher truth, perhaps the highest. When you see your brother or your sister suffering, you must not stay silent. Do not remain still. Go to their aid. Help them.”
 
-1998年印尼排华事件相较于1965年的那次，虽然暴行持续的时间短、遇害人数不及1965年，但1998年的印尼排华事件却手段残忍、画面惨不忍睹，性质极其恶劣，事件的影响力更是波及全球。
+卡巴·比姆罗：“他信守了诺言。我们的确回去了。回去好几次。一个人也没落下。红海潜水度假村并非真正的旅馆，却象征着更崇高的真理，也许是最崇高的。当你目睹兄弟或姐妹受苦，决不能保持缄默，别漠然以对，请伸出援手，帮助他们。”
 
-如果仔细梳理这些事件，我们可以发现起因都有中共干涉别国内政的身影，最终导致当地民众把矛头发泄到当地华人身上，当地政府利用民众对中共的不满，对华人实施迫害。就以最近的缅甸事件为例，2月2日，文贵先生在直播中说，“昂山素姬背叛了缅甸人民，但是昂山素姬跟共产党也要勾兑，但是昂山素姬确确实实阻止共产党毁灭缅甸大自然，或者那几个家族玩得那几个矿，翠矿、玉矿，还有那几个大的最好的木头的几个资源，她阻止这些共产党干了，所以杨洁篪杨娘娘一去跟军方的人一勾兑，咔唧给干掉了。”2月4日，路德说，“中共在近几年彻底收买了缅甸军方，也收买了缅甸政客，缅甸政变幕后最大的主谋都是中共。”
+Miles Guo: You must not stay silent. Do not remain still. Go to their aid. Help them.
 
-如何避免这样的事件发生，关键在于文贵先生一直强调的把中共和中国人民区分开来，take  down ccp。当地华人与本地居民友好相处几代人，这些严重的排华事件都是在中共执政后发生的，由于“毛外交”、“战狼外交”干涉别国内政，侵犯当地国家利益引发的一系列矛盾，而中国人也都是受害者。“共产党这几十年就是绑架，就是我代表了中国，我代表人民，全世界都反中反中，从来没分开过。我们这一年最大的事，让全世界人民，你不能反中国人。”
+郭先生：不能保持沉默，别漠然以对，请伸出援手，帮助他们。
 
-**（免责声明：本文仅代表作者个人观点，跟GNEWS平台无关。）**
+“Tens of thousands of Ethiopian refugees were smuggled out with the help of the Israeli navy and air force.”
+
+“数万名伊索比亚（埃塞俄比亚）难民在以色列海军和空军的帮助下，顺利偷运成功。”
+
+“There are currently more than 65 million displaced refugees around the world.”
+
+“目前全球仍有逾6500万名难民背井离乡。”
+
+Mr. Miles Guo: Not only 65 million. There are 1.4 billion Chinese as well. This film, brothers and sisters, deserves to be watched. It was based on a true story. After my live broadcast today, I went to watch this movie. This is one of the best work on loving your family, your compatriots, and your brothers and sisters. When you have time, you may watch it.
+
+郭先生：不止6500万名吧，还有14亿中国人呢。这个电影，兄弟姐妹们，值得看。这是一个真实的故事改编的。在我今天直播完以后，我来看这个电影。这是爱家人、爱同胞、爱兄弟姐妹一个最好的电影之一。大家如果有时间，可以去看一看。
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+
+视频来源：[https://gtv.org/getter/604e8be9607c4240c8b59928](https://gtv.org/getter/604e8be9607c4240c8b59928)
 
 * * *
 
-**审核/校对：**Ting Guo
+翻译：【7PawBear】校对：【Isaiah4031】字幕：【V%】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
 
-
-
-0
++1

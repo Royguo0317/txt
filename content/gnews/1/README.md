@@ -1,47 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选主题专栏:中共国在缅甸的工厂被纵火
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/979049/)
+## 【聚焦】“亚洲小北约”加入印太地区法国海军演习
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/980277/)
 
-《路德社》精选主题专栏组出品
+#### 翻译：梦田
 
-2021年3月15日，CNN报道:
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/1-57.png)
-The Chinese Embassy in Myanmar said several Chinese-funded factories were smashed and set ablaze in Yangon’s industrial zone during protests Sunday. Chinese citizens were also injured, according to the embassy.
+#### 校对：猫本
 
-It is unclear who the perpetrators were and no group has claimed responsibility for the fires.
+#### 编辑：文泓
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1171.jpg)
+图片来源：[ABCNEWS](https://www.abc.net.au/news/2020-07-22/australia-joint-show-strength-united-states-japan-china-concerns/12479144)
 
-中共国驻缅大使馆表示，在周日仰光工业区的抗议活动中，数家中资工厂被打砸和纵火，中共国公民也有受伤。目前并不清楚犯罪者，而且没有任何组织宣称对火宅负责。
+【编者按：“亚洲小北约”原是中共国的军迷和粉红们叫出来的，西方没有此说法。美、日、印、澳四国在3月12日领导人会议具有非常深远的意义，“路德时评”指出，美国、日本完善的高科技，澳洲广袤的战略资源，印度全世界最大的人力资源、制造业以及大市场，四国联手便是完美的产业链，脱钩中共国就是时间问题。连中共国环球时报也在慨叹，“它（亚洲小北约）仅存的战略方向感就是如何破坏中国”。本篇报道四国海军将在印太地区与法国海军首次联合海上军演，也可以看作是大小北约共同携手应对中共霸权的一次出击。】
 
-“China urges Myanmar to take further effective measures to stop all acts of violence, punish the perpetrators in accordance with the law and ensure the safety of life and property of Chinese companies and personnel in Myanmar,” CGTN quoted the embassy statement.
+澳大利亚、美国、日本、和印度四国领导人星期五（3月12日）举行四方安全对话机制（QUAD）的首次峰会，四国准备下个月加入法国军舰在孟加拉湾的海军演习。面对该地区的中共国不断上升的强硬态度，各国日益警惕。这次是五国海军首次联合演习，各国建立军事互通操作性的最新升级。
 
-中共国督促缅甸采取更长远有效的措施制止所有的暴力行为，根据法律惩罚犯罪人员，并确保缅甸的中共国企业和公民的人身财产安全。
+总理斯科特-莫里森周六一早加入首届四国领导人会议。
 
-Anti-coup protesters have been suspicious of China, with frequent demonstrations targeting the Chinese embassy in Yangon and protesters accusing Beijing of supporting the coup and junta.
+澳大利亚总理斯科特-莫里森（Scott Morrison）、美国总统拜登（Joe Biden）、日本首相菅义伟（Yoshihide Suga）和印度总理纳伦德拉-莫迪（Narendra Modi）在周六凌晨的会谈后向中共国发出警告，中共国必须后撤。四国领导人发誓要培育一个“不受胁迫限制”的印太地区。
 
-反政变抗议者怀疑中共国，通过频繁向中共驻仰光大使馆示威，以指控中共国支持政变和军政府，
+在会谈中，四国领导人强调了彼此之间的 “战略信任”，并承诺将更多地帮助本地区自由民主国家，这与中共国的威权模式形成鲜明对比。
 
-While China has not outright condemned the military takeover, it backed a United Nations Security Council statement saying it “strongly condemns the violence against peaceful protestors” and called on the military to “exercise utmost restraint.”
+各成员国与中共国有不同的热点，如（中共国）对澳大利亚的经济胁迫，对美国地缘政治竞争和对日本和印度有领土争端，四国领导人承诺会互相加强各自的立场。
 
-尽管中共国没有公开谴责军事接管，但它支持联合国安全理事会的声明“强烈谴责针对和平示威者的暴力行为”并呼吁军队“保持最大限度的克制”
+莫里森先生对四国领导人说，澳大利亚希望与中国快乐共处，希望中国遵守国际规则。正如预示的那样，此次峰会出来的重要消息是四国合作为印太地区生产和分发10亿剂冠状病毒疫苗。
 
-In its statement Sunday, China called on protesters in Myanmar to express their demands lawfully and to not undermine bilateral ties with China.
+美国和日本将资助印度的制药业生产疫苗，而澳大利亚将通过其现有的对外援助网络，在已拨付的5.23亿美元基础上，再额外支出9900万美元，以应对在东南亚运送疫苗过程中的后勤保障。
 
-中共国周日的声明中，要求缅甸的抗议者合法地表达他们的诉求且勿破坏与中共的双边关系。
+#### **共同标准**
 
-因为郭先生的爆料，现在全世界已经知道缅甸军队政变的真相其实是中共国邪恶计划的一部分。通过控制缅甸，既能得到其丰富的自然资源，又能绕过马六甲海峡的钳制，还能西进印度洋，彻底将东南亚和南中国海纳入囊中。但随着爆料革命的持续推动和揭露，中共国不得不提前浮出水面，承担缅甸民众滔天的怒火。然而中共的邪恶在于它深深地绑架14亿人民，它犯下的罪注定会连累无辜的中国人。缅甸发生的对中共国工厂和中国人的伤害仅仅只是开始，待到中共病毒真相大白的那天，全球华人都将面临史无前例凄惨的境地。目前形式如此严峻，需要每一位有良知和勇气的华人挺身而出，反抗中共的暴政独裁统治，必须向世界证明中共≠中国人，赢得属于我们的光明未来。
+领导人同意成立一个工作组，以应对气候变化，包括开发低排放技术，并在气候减缓、恢复、适应以及融资方面开展合作。他们还将合作打破中共国对稀土垄断的束缚，并通过建立单独的关键技术和新兴技术工作组，针对华为等中共国电信设备供应商，为大家提供替代方案。
 
+该工作组将寻求制定一套关于新技术的共同标准，鼓励电信方面的合作，包括设备供应商的多样化，监测包括生物技术在内的新技术的趋势和机会，并就关键技术供应链举行会谈。为了继续保持这一（合作）势头，领导人们决心在年底举行一次面对面的会议，同时还承诺外长们每年举行会议。
 
+#### **把球传给中共国，看他怎么接招**
 
-[参考链接](https://edition.cnn.com/2021/03/15/asia/myanmar-deaths-chinese-factories-intl-hnk/index.html)
+澳大利亚国立大学国家安全学院院长罗里·梅德卡尔夫（Rory Medcalf）表示，这次虚拟峰会超出了预期，再举行一次领导人会议的决定将使该层面的对话制度化。
 
-【文章仅代表作者个人观点】
+梅德卡夫教授说，回顾当时四国共同应对2004年亚洲海啸的人道主义行动，四国会议恢复对话是非常明治的，提供疫苗供应方面的集体利益，而不是自发反对中共国。
 
-本文作者：stranger
+“它没有以任何方式向中国屈服，但也没有采取与中国严格对抗的方式”，他说：“现在是把球传给中国（的时候），让中国找到与四国合作的方式。如果中共国对‘四国’进行直接的批评，那就等于孤立了自己。”
 
-审核校对：玫瑰新闻组
+印度媒体报道称，四国海军将于4月初参加法国海军旗舰名为“La Perouse”的印度-太平洋演习。去年澳大利亚曾受邀重新参加印、日、美一起举行的马拉巴尔海上演习，但下个月的“四国+”演习将是五国海军首次并肩作战。
 
-上传排版：玫瑰新闻组
+《印度斯坦时报》报道称，预计导弹驱逐舰、护卫舰、潜艇和侦察机都将参加，4月4日至7日为暂定日期。
+
+（澳洲）国防部没有回应确认澳大利亚参与的请求。
+
+法国在印度洋和太平洋拥有重要领土，是联合国安全理事会常任理事国，最近几个月加强了区域存在，并在有争议的南海进行了巡逻和过境，包括在1月派出一艘攻击性核潜艇。
+
+德卡夫教授说，四国（合作）“将成为一系列有弹性的安全伙伴关系的核心”，未来有很大的发展空间。
+
+“法国是在印度洋开展四国合作的合理伙伴，因为法国在印度洋有领土存在，而且经常有部队出访。”他说：“当伊丽莎白女王号航母打击群今年访问该地区时，我们可以看到英国与四国合作，这也是可信的。”
+
+原文链接：
+
+[**Quad forces to join French warship drills**](https://www.afr.com/politics/federal/quad-forces-to-join-french-warship-drills-20210314-p57ak3)
 
 0
