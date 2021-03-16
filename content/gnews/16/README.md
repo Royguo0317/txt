@@ -1,55 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 当你目睹兄弟或姐妹受苦，不能保持沉默
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/980339/)
+## 美议员问台湾出席“民主峰会”？ 国务卿布林肯秒答应
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/980410/)
 
-新闻简述：2021年3月14日的直播后，郭先生观看了一部叫《红海潜水俱乐部》的电影。这是根据以色列人营救埃塞俄比亚的非裔犹太弟兄姐妹的真实故事改编的电影，他推荐战友们观看。
+作者：丽俪Wendy
 
-**When You See Your Brother or Your Sister Suffering, You Must Not Stay Silent**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/031609.jpg)
 
-**当你目睹兄弟或姐妹受苦，不能保持沉默**
+据《台湾英文新闻》3月11日报道，美国国务卿布林肯（Antony Blinken）10日出席联邦众议院的听证会，谈论总统拜登政府的外交政策优先事项。 会中，共和党众议员金映玉（Young Kim）提问说，台湾应该在世卫组织等国际组织有一席之地，拜登政府应该邀请台湾参与即将举办的民主峰会（Summit of Democracies），并开始进行美台自由贸易协定谈判。
 
-Kabede Bimro: “There are thousands more, Ari.”
+美国国务卿布林肯马上回应，承诺绝对会去执行。
 
-卡巴·比姆罗：“还有数千人，艾里。”
+去年11月底拜登承諾將於2021年舉辦世界民主峰會，在美國，邀請台灣參加峰會的呼聲不絕於耳。
 
-Ari Levinson: “I know. We gonna go back, okay? I promise.”
+外交部11日上午表示，诚挚感谢布林肯国务卿再度公开表达对台湾的坚定支持，以及对我国民主制度及防疫成果的肯定。 未来会持续就维护民主、国际公共卫生挑战或经贸领域上持续与拜登政府团队密切合作，强化台美全球伙伴关系。
 
-阿里·萊文森：“我知道。我们一定会回去，好吗？我保证。”
+[援引原文](https://www.taiwannews.com.tw/ch/news/4147725)
 
-Kabede Bimro: “He kept his promise. We did go back, again and again. We left no one behind. The Red Sea Diving Resort was not truly a hotel, but it embodied a higher truth, perhaps the highest. When you see your brother or your sister suffering, you must not stay silent. Do not remain still. Go to their aid. Help them.”
+【文章仅代表作者跟人观点】
 
-卡巴·比姆罗：“他信守了诺言。我们的确回去了。回去好几次。一个人也没落下。红海潜水度假村并非真正的旅馆，却象征着更崇高的真理，也许是最崇高的。当你目睹兄弟或姐妹受苦，决不能保持缄默，别漠然以对，请伸出援手，帮助他们。”
-
-Miles Guo: You must not stay silent. Do not remain still. Go to their aid. Help them.
-
-郭先生：不能保持沉默，别漠然以对，请伸出援手，帮助他们。
-
-“Tens of thousands of Ethiopian refugees were smuggled out with the help of the Israeli navy and air force.”
-
-“数万名伊索比亚（埃塞俄比亚）难民在以色列海军和空军的帮助下，顺利偷运成功。”
-
-“There are currently more than 65 million displaced refugees around the world.”
-
-“目前全球仍有逾6500万名难民背井离乡。”
-
-Mr. Miles Guo: Not only 65 million. There are 1.4 billion Chinese as well. This film, brothers and sisters, deserves to be watched. It was based on a true story. After my live broadcast today, I went to watch this movie. This is one of the best work on loving your family, your compatriots, and your brothers and sisters. When you have time, you may watch it.
-
-郭先生：不止6500万名吧，还有14亿中国人呢。这个电影，兄弟姐妹们，值得看。这是一个真实的故事改编的。在我今天直播完以后，我来看这个电影。这是爱家人、爱同胞、爱兄弟姐妹一个最好的电影之一。大家如果有时间，可以去看一看。
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-
-视频来源：[https://gtv.org/getter/604e8be9607c4240c8b59928](https://gtv.org/getter/604e8be9607c4240c8b59928)
-
-* * *
-
-翻译：【7PawBear】校对：【Isaiah4031】字幕：【V%】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+审核校对：鲁邦五世 
+上传排版：糖果儿
 
 +1
