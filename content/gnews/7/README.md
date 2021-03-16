@@ -1,73 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0316.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/980557/)
+## 美第七舰队第三次穿越台海 地区局势日趋紧张
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/980727/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0316.jpeg)
-#### 现任政府动向
+**【日本东京方舟农场】**作者：青衣 素材采编：武汉老温 校对：miumiu law
 
-3月16日美国现任国务卿安东尼-布林肯就四国峰会发推如下:
+美国第七舰队10日发布声明称，当日例行穿越台湾海峡。这是拜登总统上任后美国第七舰队第三次穿越台海。对此，中国军方称责美军此举是传递错误信号。
 
-今天，我和美国驻东京大使馆的工作人员及其家属召开了网络会议。他们在日本代表美国，促进美国人民的利益和价值观的不懈努力，是我们国家的宝贵财富。
+美国第七舰队芬恩号（USS John Finn）伯克级驱逐舰10号当日穿越了台湾海峡。第七舰队在一份声明中表示，此举旨在“彰显美国致力于维护自由和开放的印太地区”，并称穿越台海是符合国际法的例行行动，“美军将继续在国际法允许的任何地方飞行、航行和行动。”
 
-很高兴今天与我的朋友和日本同行茂木敏充(外交部长）见面。我们致力于深化美日在全球挑战上的协调，以及我们对自由和开放的 #印太 地区的共同愿景。
+自拜登总统上任以来，美国第七舰队已经三次穿越台海。第一次为2月4日伯克级驱逐舰麦肯号（USS JohnS.McCain）由北向南通过台湾海峡。第二次是在2月24日，当时伯克级驱逐舰威尔伯号（USS CurtisWilbur）也是由北向南航行通过台海。
 
-这是和美国国防部长罗德（Lloyd J. Austin）、 日本外交部长茂木敏充、日本国防部长岸信夫之间的伟大的讨论。坚信以普世价值为基础、不受强制力约束的自由、开放、包容的印度洋-太平洋的重要性。我们致力于与日本的合作，与四国合作，以及包括韩国的三边合作（包括冠状病毒大流行、气候变化、北朝鲜去核问题等—根据白宫发言人推文）。
+台湾《新新闻》上周三（10日）引述消息人士的话称，美国总统拜登政府之所以对两岸争端持审慎态度，与美国前驻联合国大使克拉夫特（Kelly Craft）原本计划于今年1月访台，但最后时刻取消一事有关。据称那次几乎引爆了台海自1967年金门“113空战”以来最接近开战的危机。
 
+《苹果日报》今天引述《新新闻》消息曝出美驻联合国大使取消访台内幕。据称，当时中共军方透过中美两军联系机制告知美国国防部，无法容忍克拉夫特访台，认为损及中国主权利益。中共军方强调如果美国专机抵达台湾附近，解放军战机就将会跟随进入台湾领空，宣示台湾主权属于中国的立场。而如果过程中遭台湾军机阻挡，不排除开火等后果。
 
+该报道还称，美国拜登政府上台后，在经贸、科技及人权等议题上依然对中国强硬，但在美中台关系方面却相对缓和，例如拜登幕僚格雷厄姆·艾利森（Graham Allison）就公开表明“世界上只有一个中国”。
 
-> Today, I met virtually with [@usembassytokyo](https://twitter.com/usembassytokyo?ref_src=twsrc%5Etfw), our consulates’ staff, and their families. Their tireless work representing the United States in Japan and promoting the interests and values of the American people is an invaluable asset to our country. [pic.twitter.com/dyyA8a86UQ](https://t.co/dyyA8a86UQ)
-> — Secretary Antony Blinken (@SecBlinken) [March 16, 2021](https://twitter.com/SecBlinken/status/1371709924418461697?ref_src=twsrc%5Etfw)
+美国前任总统川普和前国务卿迈克·蓬佩奥（Mike Pompeo）之前一直持续坚持强硬抗中路线，今年1月初不仅解除了美台高层官员的交往限制，随即又宣布克拉夫特即将访问台湾。不过美国国务院其后宣布，为致力确保未来能顺利交接政权，决定取消官员出访计划，其中就包含克拉夫特的访台计划。
 
+报道引述一名熟悉两岸军情人士的话称，在美国政权交替只剩不到半个月时间，蓬佩奥使出上述两招激怒了北京高层。“北京为等拜登政府上台，已经苦忍了两个多月，之所以到最后10多天忍不下去了，主因是考虑到克拉夫特驻联合国大使的身份具有外交、主权事务意味”；加上克拉夫特曾公开表示要推动台湾重返联合国，“有外交承认暗示的意味”，让北京当局认定美台刻意试探中方底线，“一旦让克拉夫特成功访台，将引发的连锁效应难以预料”。
 
+消息人士透露，当时美国国防部正忙于权力交接，未料到中方反应如此激烈，相关官员尝试与解放军高层沟通但被拒绝。后经紧急通知美军印太司令部评估后发现，若要保证克拉夫特专机安全降落台北，唯有动用日本冲绳嘉手纳空军基地的空军第18联队F15C战机沿途护航，但美中两国空军将有发生军事对峙的风险。而如果改由台湾战机全程护航，情况将更加棘手。一旦共军战机大举跨越中线进逼，恐会与台湾战机在北台湾空域引发战火，届时美国专机必须被迫转降驻日美军基地。“这样一来，美军即使能置身事外，但放任两岸引燃战火对美国来说也会是一场政治大灾难”。
 
+据《苹果日报》引述消息源称，美国国防部将解放军的警告以及美军相关评估结果告知国务院，并强烈建议克拉夫特取消访台。川普政府经过审慎考虑后果后亦同意取消，但为避免外界联想克拉夫特访台告吹是因为中国施压奏效，才以政权交接为由一并取消了所有官员的出访计划。
 
+不过对于这个说法也有其他不同消息指出，美方原本并没有屈从于中共的施压，台海之战几乎是箭在弦上，后来是因为台湾总统蔡英文的惊恐软弱，向双方求情告饶，才使得美国最终取消了访台计划，避免了中美在台海地区发生一场火战的可能。
 
-> Pleasure to meet with my friend and Japanese counterpart, [@moteging](https://twitter.com/moteging?ref_src=twsrc%5Etfw), today. We’re committed to deepening U.S.-Japan coordination on global challenges and our shared vision for a free and open [#IndoPacific](https://twitter.com/hashtag/IndoPacific?src=hash&amp;ref_src=twsrc%5Etfw) region. [pic.twitter.com/OVgGVvDt1y](https://t.co/OVgGVvDt1y)
-> — Secretary Antony Blinken (@SecBlinken) [March 16, 2021](https://twitter.com/SecBlinken/status/1371725618530902019?ref_src=twsrc%5Etfw)
+然而，中共的疯狂不可能震慑住美国，反而使美国和世界认清了中共的邪恶面目。正因为此，美国舰队才一再穿越台海，强势宣告其致力于维护自由和开放的印太地区之决心。随着中共病毒真相的一步步揭示，相信台海局势将会日趋紧张。新加坡总理李显龙近日在接受英国广播公司（BBC）采访时就表示：美中爆发军事冲突的可能性增大。
 
+**注：本文仅代表作者观点**
 
+参考链接：
 
+1.[https://twitter.com/dw\_chinese/status/1370040978883612672](https://twitter.com/dw_chinese/status/1370040978883612672)
 
+2.[https://twitter.com/RFI\_Cn/status/1371402812026810372](https://twitter.com/RFI_Cn/status/1371402812026810372)
 
-> Great discussion with [@Secdef](https://twitter.com/SecDef?ref_src=twsrc%5Etfw), [@moteging](https://twitter.com/moteging?ref_src=twsrc%5Etfw), & [@KishiNobuo](https://twitter.com/KishiNobuo?ref_src=twsrc%5Etfw) on the importance of a free, open, & inclusive Indo-Pacific anchored by universal values & uninhibited by coercive power. We’re committed to cooperation with Japan including as part of the Quad & trilaterally with the ROK. [pic.twitter.com/37VkmiMfrR](https://t.co/37VkmiMfrR)
-> — Secretary Antony Blinken (@SecBlinken) [March 16, 2021](https://twitter.com/SecBlinken/status/1371741982285041664?ref_src=twsrc%5Etfw)
+3.[https://twitter.com/RFI\_Cn/status/1370745352576401412](https://twitter.com/RFI_Cn/status/1370745352576401412)
 
-
-
-#### 45届总统川普的声明
-
-3月15日晚，川普总统在GAB发表声明如下。
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-220.png)
-
-保护美国— 唐纳德-川普总统 [https://gab.com/realdonaldtrump/posts/105896122879430427](https://gab.com/realdonaldtrump/posts/105896122879430427)
-《美利坚合众国第45任总统唐纳德-J-川普的声明》
-
-《华盛顿邮报》刚刚对我关于伟大的佐治亚州选民欺诈问题的电话内容所进行的错误报道做了更正。虽然我很感谢《华盛顿邮报》的更正，但原来的故事从一开始就是子虚乌有。对佐治亚州富尔顿县和斯泰西-艾布拉姆斯进行强有力的调查，我将深表谢意，我相信，这将彻底改变佐治亚州总统选举的进程。
-
-富顿县并没有对选票或签名验证进行适当的审计。他们只看了本州最不可能出现什么问题的地区，即使在那里他们也发现了大量的错误。我们正在寻求找到并揭示发生在佐治亚州大规模的选举舞弊。许多居民对此表示同意，他们的愤怒导致他们在1月份的选举中没有投票给两名共和党参议员。
-
-拉芬斯贝格和斯泰西-艾布拉姆斯签署的《同意协议》没有得到佐治亚州议会的批准，因此应视作无效，选举结果已经变了。为什么州长和拉芬斯伯格曾经批准过这个《同意协议》，这是一个很大的疑问？我们期待着答案。
-
-你会注意到，媒体的错误、遗漏、失误和彻头彻尾的谎言总是向一个方向倾斜—都是反对我和共和党人。与此同时，那些对民主党人不利的故事被埋没、忽略或延迟，直到造成伤害降低到最小—例如，在选举结束后才报道。不妨看看大选前对疫苗的负面报道，以及大选结束后对疫苗的过期庆祝。一个强大的民主国家需要一个公平和诚实的媒体。最新的媒体荒唐事突出表明，传统媒体应被视为政治实体，而不是新闻企业。无论如何，我感谢《华盛顿邮报》的更正。
-
-小议：川普总统的后总统时期的这份声明已经让笔者有太多感怀又噎于无语。川普总统在任时于大选夜将选举舞弊行为诉诸法律，那时美国的司法体系已经被渗透和受到重压无法秉公执法，那么离任后的后总统时期就能期待司法公正有所作为吗？对疫苗的认识显然川普总统是错过了闫博士的珍贵信息和情报所致，也体现了川普总统并没有完全理解爆料革命。此外，川普总统如果仍然没有意识到他在总统宝座被盗窃、媒体失去公信已经不再是美国内部的矛盾，现在面临的问题已经不是漠视台湾、漠视香港，“事不关己高高挂起”，那么所谓“保护美国、让美国再次强大”将太过狭隘和难以真正实现，因为如今摆在美国面前真正的敌人和主要矛盾的根源都是中共的渗透及其带来的共产主义和社会主义思潮所致。
-
-真可谓认识有多远，步履走多远。又可谓，相逢已然成归去，明日黄花蝶也愁！
-
-
-
-文章观点部分仅代表作者本人。
-
-编辑：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
-
-（本文当日持续更新中）
-
-0
++2

@@ -1,55 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 当你目睹兄弟或姐妹受苦，不能保持沉默
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/980339/)
+## 中共的思想毒瘤“忠”
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/980415/)
 
-新闻简述：2021年3月14日的直播后，郭先生观看了一部叫《红海潜水俱乐部》的电影。这是根据以色列人营救埃塞俄比亚的非裔犹太弟兄姐妹的真实故事改编的电影，他推荐战友们观看。
+作者：道行天下
 
-**When You See Your Brother or Your Sister Suffering, You Must Not Stay Silent**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/031610.jpg)
 
-**当你目睹兄弟或姐妹受苦，不能保持沉默**
+“忠”是儒家最重要的思想之一，原指为人诚恳厚道、尽心尽力，尽力做好本分的事。有忠诚无私、忠于他人、忠于国家忠于君王多种含义。如“志虑忠纯”，“君使臣以礼，臣事君以忠”，到后来发展成为绝对服从，不反抗、不背叛。
 
-Kabede Bimro: “There are thousands more, Ari.”
+“忠诚“是中国共产党最喜欢常用的一个词，忠于党是他们天天挂在嘴边的。
+我们来分析一下“忠于党到底对不对，有什么作用和负作用。
+首先党是一个组织，是组织就意味着有好有坏，变好或变坏，这其中是存在很大变数。而忠就是不管党如何，是佛是魔都要绝对服从，不背判。首先这是违背天道的。历史和现实有很多这样的案例，如岳飞的愚忠，让天下百姓遭殃，自己遭灭门。在中共的统治下，为一个忠，跟随中共作恶，最后害人害己。
 
-卡巴·比姆罗：“还有数千人，艾里。”
+“忠”是放弃自己的主观意识和行为能力，绝对服从，一生跟随。中共利用“忠”綑绑人民的思想意识，告诉人们，中国共产党是伟光正，也是不容背判，任何的反对行为，都是不忠和可耻的，并冠以不忠不孝的名声批之斗之。这样慢慢形成中共的任何行为都是不容怀疑和不容反对，哪怕是文革这样的反人类，都不容反思，不容批判。
 
-Ari Levinson: “I know. We gonna go back, okay? I promise.”
+那么我们应该如何看待“忠”，真正的“忠”又是什么？其实很简单，就是忠于事实、忠于内心，忠于信仰，保持内心的善恶标准。天地无常，万事万物都在变化之中，人可能变好变坏，组织党派那是如此。真正的忠就是时刻监督党的一举一动，防止党派走向独裁与邪恶，防止党派走向邪路。批评与监督是真正的忠。
 
-阿里·萊文森：“我知道。我们一定会回去，好吗？我保证。”
+良药苦口，忠言逆耳。需要他人的忠，首先得自己有胸怀，容得下批评。否则身边只会是吹牛拍马、口蜜腹剑的小人，而政党更是如此。
 
-Kabede Bimro: “He kept his promise. We did go back, again and again. We left no one behind. The Red Sea Diving Resort was not truly a hotel, but it embodied a higher truth, perhaps the highest. When you see your brother or your sister suffering, you must not stay silent. Do not remain still. Go to their aid. Help them.”
+中共的邪恶与愚蠢就在于既要你忠，又不容许人民去监督与批评，他们要的忠就是和他们沆瀣一气，狠狈为犴，形成人类有史以来最邪恶的组织与政党。
 
-卡巴·比姆罗：“他信守了诺言。我们的确回去了。回去好几次。一个人也没落下。红海潜水度假村并非真正的旅馆，却象征着更崇高的真理，也许是最崇高的。当你目睹兄弟或姐妹受苦，决不能保持缄默，别漠然以对，请伸出援手，帮助他们。”
+【文章仅限作者个人观点】
 
-Miles Guo: You must not stay silent. Do not remain still. Go to their aid. Help them.
-
-郭先生：不能保持沉默，别漠然以对，请伸出援手，帮助他们。
-
-“Tens of thousands of Ethiopian refugees were smuggled out with the help of the Israeli navy and air force.”
-
-“数万名伊索比亚（埃塞俄比亚）难民在以色列海军和空军的帮助下，顺利偷运成功。”
-
-“There are currently more than 65 million displaced refugees around the world.”
-
-“目前全球仍有逾6500万名难民背井离乡。”
-
-Mr. Miles Guo: Not only 65 million. There are 1.4 billion Chinese as well. This film, brothers and sisters, deserves to be watched. It was based on a true story. After my live broadcast today, I went to watch this movie. This is one of the best work on loving your family, your compatriots, and your brothers and sisters. When you have time, you may watch it.
-
-郭先生：不止6500万名吧，还有14亿中国人呢。这个电影，兄弟姐妹们，值得看。这是一个真实的故事改编的。在我今天直播完以后，我来看这个电影。这是爱家人、爱同胞、爱兄弟姐妹一个最好的电影之一。大家如果有时间，可以去看一看。
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-
-视频来源：[https://gtv.org/getter/604e8be9607c4240c8b59928](https://gtv.org/getter/604e8be9607c4240c8b59928)
-
-* * *
-
-翻译：【7PawBear】校对：【Isaiah4031】字幕：【V%】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-Vimeo: [https://vimeo.com/user131524598](https://vimeo.com/user131524598)
+审核校对：鲁邦五世
+上传排版：糖果儿
 
 +1
