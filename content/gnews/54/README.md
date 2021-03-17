@@ -1,33 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美日印澳领导人重申维护印太地区的自由安全与开放
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/982373/)
+## 美国政要等每日重要信息0316.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/980557/)
 
-#### 翻译报道：sisyphus(天元)
+**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0316.jpeg)
+#### 现任政府动向
 
-#### 责编：WenWang
+3月16日美国现任国务卿安东尼-布林肯就四国峰会发推如下:
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-64.png)图片来自：New York Times
+今天，我和美国驻东京大使馆的工作人员及其家属召开了网络会议。他们在日本代表美国，促进美国人民的利益和价值观的不懈努力，是我们国家的宝贵财富。
 
-据《华盛顿审查员》（Washington Examiner）3月14日报道，在美日印奥于周五首次召开首脑会议后，拜登（Biden）总统重申了他对“自由、开放”的印太地区的承诺。
+很高兴今天与我的朋友和日本同行茂木敏充(外交部长）见面。我们致力于深化美日在全球挑战上的协调，以及我们对自由和开放的 #印太 地区的共同愿景。
 
-报道称，“四国”（Quad）领导人拜登、印度总理纳伦德拉-莫迪（Narendra Modi）、澳大利亚总理斯科特-莫里森（Scott Morrison）和日本首相菅义伟（Yoshihide Suga）周六在《华盛顿邮报》（Washington Post）上联合发表一篇署名文章，概述了他们对印太地区面临的关键挑战，并重申了他们对彼此的承诺。
+这是和美国国防部长罗德（Lloyd J. Austin）、 日本外交部长茂木敏充、日本国防部长岸信夫之间的伟大的讨论。坚信以普世价值为基础、不受强制力约束的自由、开放、包容的印度洋-太平洋的重要性。我们致力于与日本的合作，与四国合作，以及包括韩国的三边合作（包括冠状病毒大流行、气候变化、北朝鲜去核问题等—根据白宫发言人推文）。
 
-四位领导人宣布了要采取的步骤，并渴望开始为实现这些步骤而必须做的工作，即结束中共病毒疫情并从中恢复，应对气候变化，推进共同的地区愿景。虽然这不是容易完成的事，但彼此的伙伴关系为照亮前方的道路提供了希望的火花。他们在文章中再次承诺，要致力于建立一个自由、开放、安全和繁荣的印太地区。
 
-拜登、莫迪、莫里森和菅义伟指出，气候变化是该地区特别值得关注的因素。气候变化既是一个战略优先事项，也是一个紧迫的全球挑战，包括对印太地区。他们表示这就是为什么四国将共同努力，并与其他国家一起加强巴黎协定，并加强所有国家的气候行动。四位领导人还提到了肆掠全球的中共病毒疫情，他们称其为“近代史上对健康和经济稳定最大的风险之一”。他们表示，将坚定不移地致力于人民的健康和安全，决心结束中共病毒大流行。因为只要大流行继续下去，任何国家都不会有安全，所以必须为印太地区营造一个更健康、更繁荣的明天。
 
-美日印澳各国正在推进一项计划，在未来一年内生产多达10亿支疫苗。一位高级政府官员告诉记者：“对四国领导人来说，现在的重中之重就是联合起来生产疫苗并交付使用，没有比此更重要的全球性大事了。”
+> Today, I met virtually with [@usembassytokyo](https://twitter.com/usembassytokyo?ref_src=twsrc%5Etfw), our consulates’ staff, and their families. Their tireless work representing the United States in Japan and promoting the interests and values of the American people is an invaluable asset to our country. [pic.twitter.com/dyyA8a86UQ](https://t.co/dyyA8a86UQ)
+> — Secretary Antony Blinken (@SecBlinken) [March 16, 2021](https://twitter.com/SecBlinken/status/1371709924418461697?ref_src=twsrc%5Etfw)
 
-报道称，中共担心四国组织可能会成为“小型化北约”，因此通过“疫苗外交”进行反击，以培养其他国家为盟友。菲律宾总统罗德里戈·杜特蒂（Rodrigo Duterte）上个月接受了一批来自中共国的疫苗，此事在一些质疑中共动机的共和党人中引起了担忧。
 
-报道指出，虽然四国领导人在署名文章中宣誓要在2021年底前亲自会面，但没有提出具体细节。
 
-#### 评论：
 
-从文章可以看出，拜登政府和其他三国领导人在全世界经济和健康都遭受中共病毒重创之后，再次集结并强调了坚决维护亚太地区的自由政策。这也是拜登政府又一次延续了上届川普政府在2017年对亚太地区的政策，并且还邀请了更多国家盟友加入其中，以抗衡中共的威胁。中共的“疫苗外交”本质是通过疫苗来形成新的经济产业体和制造阶级分层来奴役统治全世界人民。那么全世界也同样可以“以其人之道还治其人之身”来反击。但是绝不可能用疫苗去干奴役统治人民的事情。美国拥有生物科技和疫苗技术专利，印度拥有大规模迅速生产医药的能力和技术，日本拥有雄厚的资金，而澳大利亚可以提供疫苗的配送和资金。可以看出，只要每个国家各司其职相互弥补共同建设地球村，才能让世界经济健康的运行起来。而与此同时，中共已经在被开除“球籍”的路上越走越远。
 
-原文链接：[Biden and three world leaders reaffirm commitment to Indo-Pacific region](https://www.washingtonexaminer.com/news/biden-three-world-leaders-reaffirm-commitment-indo-pacific-region)
+> Pleasure to meet with my friend and Japanese counterpart, [@moteging](https://twitter.com/moteging?ref_src=twsrc%5Etfw), today. We’re committed to deepening U.S.-Japan coordination on global challenges and our shared vision for a free and open [#IndoPacific](https://twitter.com/hashtag/IndoPacific?src=hash&amp;ref_src=twsrc%5Etfw) region. [pic.twitter.com/OVgGVvDt1y](https://t.co/OVgGVvDt1y)
+> — Secretary Antony Blinken (@SecBlinken) [March 16, 2021](https://twitter.com/SecBlinken/status/1371725618530902019?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> Great discussion with [@Secdef](https://twitter.com/SecDef?ref_src=twsrc%5Etfw), [@moteging](https://twitter.com/moteging?ref_src=twsrc%5Etfw), & [@KishiNobuo](https://twitter.com/KishiNobuo?ref_src=twsrc%5Etfw) on the importance of a free, open, & inclusive Indo-Pacific anchored by universal values & uninhibited by coercive power. We’re committed to cooperation with Japan including as part of the Quad & trilaterally with the ROK. [pic.twitter.com/37VkmiMfrR](https://t.co/37VkmiMfrR)
+> — Secretary Antony Blinken (@SecBlinken) [March 16, 2021](https://twitter.com/SecBlinken/status/1371741982285041664?ref_src=twsrc%5Etfw)
+
+
+
+#### 45届总统川普的声明
+
+3月15日晚，川普总统在GAB发表声明如下。
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-220.png)
+
+保护美国— 唐纳德-川普总统 [https://gab.com/realdonaldtrump/posts/105896122879430427](https://gab.com/realdonaldtrump/posts/105896122879430427)
+《美利坚合众国第45任总统唐纳德-J-川普的声明》
+
+《华盛顿邮报》刚刚对我关于伟大的佐治亚州选民欺诈问题的电话内容所进行的错误报道做了更正。虽然我很感谢《华盛顿邮报》的更正，但原来的故事从一开始就是子虚乌有。对佐治亚州富尔顿县和斯泰西-艾布拉姆斯进行强有力的调查，我将深表谢意，我相信，这将彻底改变佐治亚州总统选举的进程。
+
+富顿县并没有对选票或签名验证进行适当的审计。他们只看了本州最不可能出现什么问题的地区，即使在那里他们也发现了大量的错误。我们正在寻求找到并揭示发生在佐治亚州大规模的选举舞弊。许多居民对此表示同意，他们的愤怒导致他们在1月份的选举中没有投票给两名共和党参议员。
+
+拉芬斯贝格和斯泰西-艾布拉姆斯签署的《同意协议》没有得到佐治亚州议会的批准，因此应视作无效，选举结果已经变了。为什么州长和拉芬斯伯格曾经批准过这个《同意协议》，这是一个很大的疑问？我们期待着答案。
+
+你会注意到，媒体的错误、遗漏、失误和彻头彻尾的谎言总是向一个方向倾斜—都是反对我和共和党人。与此同时，那些对民主党人不利的故事被埋没、忽略或延迟，直到造成伤害降低到最小—例如，在选举结束后才报道。不妨看看大选前对疫苗的负面报道，以及大选结束后对疫苗的过期庆祝。一个强大的民主国家需要一个公平和诚实的媒体。最新的媒体荒唐事突出表明，传统媒体应被视为政治实体，而不是新闻企业。无论如何，我感谢《华盛顿邮报》的更正。
+
+小议：川普总统的后总统时期的这份声明已经让笔者有太多感怀又噎于无语。川普总统在任时于大选夜将选举舞弊行为诉诸法律，那时美国的司法体系已经被渗透和受到重压无法秉公执法，那么离任后的后总统时期就能期待司法公正有所作为吗？对疫苗的认识显然川普总统是错过了闫博士的珍贵信息和情报所致，也体现了川普总统并没有完全理解爆料革命。此外，川普总统如果仍然没有意识到他在总统宝座被盗窃、媒体失去公信已经不再是美国内部的矛盾，现在面临的问题已经不是漠视台湾、漠视香港，“事不关己高高挂起”，那么所谓“保护美国、让美国再次强大”将太过狭隘和难以真正实现，因为如今摆在美国面前真正的敌人和主要矛盾的根源都是中共的渗透及其带来的共产主义和社会主义思潮所致。
+
+真可谓认识有多远，步履走多远。又可谓，相逢已然成归去，明日黄花蝶也愁！
+
+
+
+文章观点部分仅代表作者本人。
+
+编辑：康州盘古农场 喜马拉雅的文雅
+
+封面：康州盘古农场 霹雳年
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
+
+（本文当日持续更新中）
 
 0
