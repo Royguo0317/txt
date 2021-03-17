@@ -1,42 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 多国停止接种阿斯利康疫苗
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/981607/)
+## 【热点播报】意大利教师在接受阿斯利康疫苗注射后数小时死亡
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/981685/)
 
-```
-新闻来源：时代网站 （ZEIT ONLINE）  
-发布时间：2021年3月16日 
-翻译整理：Shuizhuyu 简评：旦旦
-```
+作者：纽约香草山农场 四季
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/9c4d783d-a03b-4295-8575-7766978be592-e1615921962583.jpeg)封面图片来源: 约翰·尼尔森（JOHAN NILSSON）
-到目前为止，瑞典&英国生产商的阿斯利康疫苗 (AstraZeneca) 疫苗引发血栓形成的事件引起了很大疑虑。已有不少国家停止使用该疫苗。
 
-在德国接受疫苗接种的160万人中有7例脑静脉血栓形成，为预防起见，联邦政府以及其他多个国家已停止使用阿斯利康疫苗。可问题是：没人能确定血栓形成与疫苗接种是否有关，这几人个病例可能是先天问题。现在正在对这几例病例进行进一步的医学调查。但大脑中的这种血栓疾病非常罕见，每年每百万人中最多达15例。
 
-当出现这种疑虑时，政客们则会试图权衡：要承担多少风险？鉴于情况不明朗，一些政府决定保护民众免受风险，并停止使用阿斯利康疫苗。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-该疫苗已在欧洲由欧洲药品管理局Ema批准。英国&瑞典制药公司阿斯利康强调，“基于明确的科学证据，我们的疫苗是安全的”。
 
-现在停止使用阿斯利康疫苗的国家还有， 瑞典， 冰岛，荷兰，保加利亚，冰岛，爱尔兰，挪威和丹麦。
 
-#### 简评： 
+《[零对冲](https://www.zerohedge.com/covid-19/italy-launches-manslaughter-investigation-teacher-dies-hours-after-getting-astrazeneca-jab)》（ZeroHedge）3月16日报道，意大利57岁的音乐教师桑德罗-托格纳蒂（Sandro Tognatti） 周六下午在他的家乡比耶拉（Biella）接受牛津大学研制的阿斯利康（AstraZeneca）疫苗注射后几个小时死亡。政府已经启动过失杀人调查。
 
-**德国的疫苗接种工作遇到多种挑战：疫苗供应不足，疫苗接种中心管理问等。 这都是民众大讨论中有争议的议题。但是最根本的问题直到现在依然被隐瞒：这个病毒是生化武器，疫苗无用！**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image-222.png)桑德罗-托格纳蒂
 
-**无耻的政客当面临问题时，第一个想到的是政治成本，而不是生命，这是人类最大的悲哀之一。新中国联邦是希望，因为只有新中国联邦能够打破这腐朽的政治体系，让人的生命再次回到最崇高的价值，而不是龌龊的勾兑与权力。**
+到目前为止，卫生当局坚持认为，这支疫苗和托格纳蒂的死亡之间没有联系。官员们说，为了“完全确定”这名男子的死亡“不能归咎于上述接种”，已经展开刑事调查。
 
-**请各位战友积极传递病毒与疫苗真相，直到人们醒来，直到那些与中共勾兑或只知道保全自身的政客与科学家得到应有的惩罚！**
+意大利、法国、德国和其他一些国家在收到患者出现致命血栓的报告后，暂时停止使用阿斯利康疫苗。奥地利和其他一些地方也出现了相关死亡报告。这促使丹麦、冰岛和其他国家（最远甚至包括泰国）都停止了该疫苗的接种，以便进行短暂的调查。阿斯利康公司和欧洲药品管理局（EMA）坚持认为，没有任何迹象表明注射剂和血栓风险增加之间的联系。但在周二上午的新闻发布会上，该机构承诺将进行调查。
 
-**（免责声明：本文仅代表作者个人观点，跟GNEWS平台无关。）**
+有报道称，欧洲国家正在积极采取行动，推迟阿斯利康疫苗的上市时间。目前，面对众多的疫苗死亡和事故案例报告，各国政府的卫生当局都声称这些案例与疫苗接种无关。但是，每一个逝去的生命，都是一个家庭永久的伤痛。在面对接种试验性疫苗带来的显而易见的风险和中共病毒的预防上应该做出怎样的选择，是所有人不得不做出的决定。目前，当全世界有良知的科学家、病毒学家对试验性疫苗接种提起警告的时候，希望人类最终会做出正确的选择。
 
-**🔗新闻来源链接：**
+参考阅读：
 
-[Diese Staaten haben AstraZeneca gestoppt](https://www.zeit.de/politik/ausland/2021-03/astrazeneca-corona-impfstoff-impfungen-gestoppt-thrombose-nebenwirkungen?utm_referrer=https%3A%2F%2Fwww.google.de%2F)
+[Italy Launches Manslaughter Investigation As Teacher Dies Hours After Getting AstraZeneca Jab](https://www.zerohedge.com/covid-19/italy-launches-manslaughter-investigation-teacher-dies-hours-after-getting-astrazeneca-jab)
 
-* * *
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-1.jpg)
 
-**审核/校对：**Ting Guo
+编辑/校对/发稿：Irene木木
 
-+3
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
++4
