@@ -1,150 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 女辅警与7名中共官员有染被判13年，公权力站台贪官尽显龌蹉下流
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/981785/)
+## 中共病毒是实验室制造&nbsp; 而且中共有解药
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/981826/)
 
-**作者：悉尼澳喜农场 一碗兰州（文远）**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ok.png)
-近日，江苏省灌南县人民法院的一份判决书引起网友热议，判决书内容显示，1994年出生的被告人许某在2014年3月至2019年4月任辅警期间，与多人保持不正当男女关系（其中7人为中共官员），许某以怀孕补偿、家人闹事、曝光关系、分手补偿、购房等理由向多名被害人所要款项共计372.6万元，法院判处被告人许某有期徒刑13年，罚款人民币500万元，追缴违法所得300余万元。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Imagen-1.png)（被告人許某）
-3月11日，张新年律师在微博上转发该案判决书并提出质疑，两三分钟后接到江苏省连云港市网警的电话，连云港官方要求张律师删除帖文。
+新闻简述：（2021年2月1日盖特）中共病毒持续带来大范围感染和死亡的同时，许多世界顶尖科学家开始为病毒非自然起源而发声，比如医药界的重要影响人物奎伊医生。中共对世界掩盖病毒的真相，更糟糕的是，中共隐藏了拥有病毒解药的事实。中共推广的病毒疫苗是生化武器的附属战争武器，又称为基因控制。因此，解决病毒的唯一办法就是推翻中共的邪恶统治。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210201_Getter1.srt.txt)
+**中共病毒是实验室制造****  ****而且中共有解药**
 
-随后，原本已在最高法院裁判文书网上公开的此案判决书被删除。江苏省灌南县人民法院于12日回应称，因被告许某提出上诉，一审判决书暂未生效，故按照相关规定予以撤回。当初所谓“未生效的”的判决书能够上传到裁判文书网公开，案件受到大众关注后又以“未生效”为由撤回，如此随意且前后矛盾的行为令人生疑。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/okk.png)（江苏省灌南县人民法院关于判决书撤回的声明）
-即便裁判文书网已将判决书删除，但内容早已在网络上传开。案情让网友惊叹：“小县城中的派出所所长如此有钱。”有网友吐槽：“半个县的公家人，睡了人家一个小姑娘，最后都成了受害人。合起伙来把人家小姑娘送进去判了重刑。”
+**The CCP Virus Is Lab-Made and the CCP Has the Antidote**
 
-判决书中称“被告人许某同时或者不间断的与多名公职人员发生不正当男女关系”，此处被认为是“多人运动”，中共官员的荒淫糜烂可见一斑。
+亲爱的兄弟姐妹们，现在无论是加州还是欧洲，还是说小米粥还是腊八粥，每个州都是得到了最确切、准确的消息：CCP病毒、冠状病毒，正以最猛烈、最不可思议[的]传染率、感染率和死亡率大幅上升，在杀人；同时在全人类都叫顶尖科学家，最可信赖的[各]科学家，现在都纷纷站出来发声：说这个病毒不是来自于自然，是共产党病毒，是实验室病毒。
 
-根据案情分析，事实更像是“老司机”们花钱包养、玩弄初入社会的女辅警致其数次堕胎，家人闹事后当事人出钱摆平。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/89.png)（人物时间顺序整理图）
-2014年女辅警许某仅19周岁，与单位领导孙所长发生关系时间长达11个月，期间与另一派出所所长发生关系4个月。间隔一年零一个月后，2016年3月开始与派出所刘所长在一起保持关系3个月，刘所长后升任副局长。2016年6月起同时与公安局寇局长和妇幼保健院工会陈主席在一起，接着是小学关校长。2017年2月与林某（未透露职业）在一起8个月，期间与卫生院兰院长、卫生院药库职员许某保持男女关系各两个月。2018年3月起与公安局刘副局长（原刘所长）在一起达14个月。与刘副局长分开一个月后，女辅警因涉嫌敲诈勒索罪被刑事拘留。
+Dear brothers and sisters, now, whether it is in California or Europe, or whatever millet porridge or Laba porridge, every porridge or zhou (homonym for state) has got the most accurate information. The CCP coronavirus is killing people with the greatest harm and incredible contagion rate, infection rate, and mortality rate. At the same time, the top scientists of all mankind and the most trustworthy scientists, now all stand up and make their voice heard: This virus does not come from nature. It is a CCP virus and a laboratory-made virus.
 
-是敲诈还是包养？或是被“潜规则”后索要赔偿？为何只判女辅警有罪而不提男当事人？网友质疑之下，中共灌云县委宣传部3月12日发布消息回应：“经与纪检监察部门核实，我县涉案的7名公职人员已于2019年底分别受到撤销党内职务、行政撤职等党政纪处分。”
+昨天你们看到了班农先生采访的奎伊博士，你懂的啊，采访了奎伊博士。奎伊博士严谨和情绪控制、语言控制，都达到了世界上最传统的级别。即使那样，每个字都小心说话的人，而且记住啊，这个人厉害到什么程度，中国人简直把他当神很多人，他是这个很多药的老板，或者是发起人，或者是经营者。他救活了无数人，他的药很多公司还来旗下的药，到中国去最多涨过100多倍，这个人了不得，绝对战友，我就不多说了，走着看。
 
-女辅警被判入狱13年，罚款500万，而7名公职人员仅仅党政纪处分，对于他们动辄几十万上百万的费用来源丝毫不问。贪污腐败养小三无罪，小三要钱却被重罚，面对荒唐、诡谲的案情，网友们直呼“活久见”。
+Yesterday, when you watched Mr. Bannon interviewing Dr. Quay, did you understand the meanings? In the interview, Dr. Quay’s rigor, control of emotion and language control were world-class. He was very careful about every word he said. And everyone should know how powerful this person is? Many Chinese people simply regard him as a God [in the medical community]. He is the boss and founder of many pharmaceutical companies. He has saved countless people’s life. The sales of the medicine invented by him or his many companies have increased over 100 times in China. This person is amazing and is absolutely one of our fellow fighters, definitely a fellow fighter. I won’t say more about that, and let us wait and see.
 
-**网友评论：**
+现在接下来在欧洲，在日本，在瑞士，大家要记住不要乱传假。千万记住这个假东西太多了，什么日本这博士，诺贝尔奖，那都是假的。真的你还说不完，你说假的干什么呀？凡是有假的，发假信息的战友，都是我们的敌人，已经不是战友了，因为你会害死很多人，千万不允许。这里没有灰色地带，只要你发假消息就是我们的敌人，立马和你切割，这没有什么中间好坏的问题，这就是不是敌就是友，不是友就是敌的问题。那么世界上所有的科学家都站来了，验证我们的天使科家园闫丽梦，我们的Ｄr. Yan，我们的《路德访谈》的1/19的时候，爆料革命整个带动全人类上唯一的一个真实的声音，然后爆出唯二的班农战斗室，震惊了世界。
 
-“几个大男人把人家姑娘肚子搞大，女孩家里人闹事索赔成了敲诈？带坏人家姑娘还理直气壮想白嫖？”
+Next, in Europe, Japan, and Switzerland, everyone, please keep in mind that don’t spread false information. Also please remember, there are too much false information around; the news about a Japanese doctor and a Nobel laureate are all fake. There are lots of true information to be discussed and disseminated. Why are you talking about false information? Any fellow fighter who spreads false information is our enemy. You will no longer be our fellow fighter because that will ruin a lot of people’s life. Never ever do that. There is no room for negotiation on this issue. As long as you release false news, you are our enemy, and we will immediately draw a line with you. There is no middle ground on this issue, and there is no question concerning whether it is good or bad. If you are not our enemy, then you are our friend and vice versa. So, the majority of scientists in the world have come forward to verify what our angel scientist Dr. Li-Meng Yan said and what our Lude said on January 19 [2020]. Our Whistleblower Movement was the first and only real voice of the mankind, fellowed by Mr. Bannon’s War Room which shocked the world.
 
-“如此庞大的涉案金额，是否合法渠道获得？与该女辅警发生性关系的公职人员是否已婚？中国裁判文书网为何找不到判决书了？是否存在案中案，是否有包庇？”
+想想此时此刻每分每秒，所有人都在传发着共产党掏肛的照片，掏肛的照片，和共产党所有过去撒过的慌，蝙蝠啊，是吧？穿山甲啊，以及 WHO 撒了的一个又一个谎。我从昨天到今天，我明确地告诉了所有跟我联系的人，我说：我告诉你们，共产党创造了这个生化武器的 CCP 病毒，叫 COVID-19 Virus；他们有解药，疫苗不一定成功但有解药。这就是为什么在一年前，我给所有的政府机构告诉他们：你们找到解药的唯一办法，干倒共产党。现在我可以说告诉全世界人民：你们要想活着，你只有灭掉共产党，或者你找共产党要解药。我可以负责任地说共产党有解药。
 
-“多少无脑人士在各打50大板，请问他们之间的权利，势力可能是对等的吗？睁开眼看看判决结果……我倒是更相信合谋构陷。”
+Think about it at this moment, every minute and every second, everyone is posting photos of CCP digging people’s anus and all the lies the CCP has told the world in the past, for example, the bat origin, right? Pangolins? One lie after another made by the WHO. From yesterday till now, I have clearly told everyone who contacted me: “Let me tell you this – the CCP created the CCP virus, which is a biological weapon, which is called COVID-19, and they have an antidote. The vaccine may not be successful, but there is an antidote.” This is why I told all these government agencies a year ago, “The only way you can find the cure is to take down the CCP.” Now I can tell people all over the world, “If you want to live, you need to take down the CCP or you can ask the CCP for antidote.” I can say it responsibly, “The CCP has an antidote!”
 
-“不再担任职务的话应该还是公职人员，那么这么多钱怎么来的？”
+这是为什么共产党要把疫苗经济扩散到全世界，把疫苗经济变成共产党共产经济、中国共产党经济、世界共产党的经济。为什么他们能控制了全人类不同的气候、时区，不同的维度的所有的国家，所有的感染率和感染的时间，都是背离和历史上自然研究，所有都不一样，反规律的。因为那是人造的，人造的就是现在人在控制。为什么中南坑老杂毛不染病？都是中国老百姓染病？他在中国推行疫苗，疫苗是生化武器的附属战争的武器，它叫做基因控制。整个人类的精神、身体健康控制，通过疫苗的控制人类的经济，甚至控制人类的所有的行为和举止，决定了全人类的生死。这就是郭文贵在爆料前，四年前说共产党的人尸丸，但凡中国人知道人尸丸的就知道武侠小说里面人尸丸，这就是现代版的人尸丸。信不信？可以不信，我们不在乎你信不信，爆料革命不在乎任何人信不信，你不信，你不信，你信，你信，不信，俺不在乎。
 
-“一帮蛀虫就这么点惩罚，对得起‘人民公仆’这四个字吗？”
+This is why the CCP wants to promote the vaccine economy to the world and turn the vaccine economy into the CCP’s communist economy, the Chinese Communist Party economy, and the world Communist Party economy. Why are they able to control the infection rate and the timing of infection in all countries across different climatic regions and different time zones? These are all deviated from the results of historical and natural research, and are inconsistent with each other. They violate nature’s laws because they are artificial. Man-made means it is now controlled by people. Why aren’t the old motley thieves in the Zhongnan Pit infected but the Chinese people are being infected? The vaccine promoted in China is an auxiliary weapon helping the biological weapons to achieve genetic control. The mental and physical health of all mankind can be controlled by vaccines, including the control of human economy and even all human behaviors, which determines the life and death of all mankind. This is the “CCP zombie poison pill” that I, Miles Guo said four years ago before I started to expose the truth. Chinese people who know this “zombie pill” also understand the poison pill described in the martial arts novels that was used to control people in the past. This is the modern version of “zombie pill”, believe it or not. You don’t need to believe it, and we don’t care if you believe it or not. The Whistleblower Movement does not care if anyone believes it or not. If you don’t want to believe it, you don’t need to. If you’re willing to believe it, you can believe it. Whether you believe it or not, I do not care.
 
-“一大帮西门庆把潘金莲给告了。”
-![]()![](https://gnews.org/wp-content/uploads/2021/03/iii.png)（网上一神评论：一大帮西门庆把潘金莲给告了）
-墙内部分媒体对此事的报道重点放在女辅警如何利用美色设局敛财，淡化或忽视涉案男性的共产党官员身份及他们的不合理支付能力，有文章甚至声称面对如此诱惑任何一个正常男人都无法幸免，将责任全部推到女辅警身上，而将那些混迹官场多年的男性官员描绘成被人设计陷害、遭受敲诈的受害者。
+大家可以想象到，我这多少人纷纷来问。我说：现在你们想起来我们了，郭文贵不是在那胡说八道的，爆料革命不是胡说八道的。现在很多医药公司也傻眼了，跟着共产党卖疫苗，会把自己卖死的。不管他买多少保险，大面积疫苗死人造成人道灾难，没有一个保险公司对付得了，保险公司会倒，大医药公司会倒，当然政治家也会倒。
 
-是谁主导了此案判决？想要通过司法实践传递什么样的价值观？
+Everyone can just imagine how many people are coming here to ask me. I responded to them, “Now you all  think of us?” Miles Guo is not talking nonsense here, neither is our Whistleblower Movement. Now, many pharmaceutical companies are also dumbfounded. Selling vaccines by following the CCP will lead to their bankruptcy. No matter how much insurance is purchased, no insurance company can cover the deaths and humanitarian disasters of this scale caused by vaccines. Insurance companies will go bankrupt. Large pharmaceutical companies will go bankrupt, and of course politicians will be down as well.
 
-本案并非所谓“被害人”起诉被告女辅警的自诉案件，而是江苏省灌南县人民检察院提起的公诉案件。所谓公诉案件，简单说就是由检察机关代表国家提起诉讼的案件。公诉是人民检察院代表国家行使的一项诉讼权利，通常称为”公权”。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-自诉案件与公诉案件的主要不同有：
+视频来源：[https://gtv.org/user/5e596957357cc612d35a8044](https://gtv.org/user/5e596957357cc612d35a8044) (01:02-06:56)
 
-（一）案件来源不同。公诉案件是由国家公诉机关即人民检察院提起的；而自诉案件是由被犯罪行为侵害的公民、个人或者他的法定代理人、监护人、近亲属直接向人民法院提起的。
+鸣谢：
 
-（二）犯罪性质和危害程度不同。公诉案件中犯罪行为的性质一般来说比较严重，对社会的危害性较大，案件一经起诉人民法院必须依法进行审判；而自诉案件犯罪行为的性质多数不甚严重，对社会的危害性比较小，自诉人在判决宣告前可以同被告人自行和解或撤回自诉，轻微刑事案件可以进行调解。
+[1] 感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/860885/](https://gnews.org/zh-hans/860885/)
 
-（三）审查程序不同。简单讲就是对于公诉案件，法院基本都会开庭审理；而对于自诉案件，则可能经两次审查后因不符合开庭条件而驳回原告的起诉，不予开庭审理。
+[2] 感谢 Antsee-GTV 和 Yanbohaomiao 提供英文翻译文本于 [https://gnews.org/874258/](https://gnews.org/874258/)
 
-（四）当事人的诉讼地位不同。自诉案件中的被害人是自诉人，居原告地位，而公诉案件中公诉机关（人民检察院）居原告地位，被害人则处于证人地位。
+* * *
 
-（五）举证责任不同。自诉案件的举证责任规定为完全由自诉人承担，公诉案件的举证责任完全由公诉机关承担。
+文字整理 & 总结撰写：【7PawBear】字幕：【Rock小哥】视频解码：【恒久忍耐】校对 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-总结本案背景，是由江苏省灌南县官方出马，认定女辅警许某有“较大危害性”前提下，由当地公安机关负责调查举证，“被害人”们作为证人，法院配合走过场的“官告民”案件。
-
-难怪女辅警被判的如此之重，这分明就是官家针对民女下黑手，公安、卫生、教育部门的官员都牵扯其中，他们玩弄女性，只想白嫖而不想负任何责任，更不许对方反抗或有过多要求，否则就动用公权力打击报复，毁掉她的人生。
-
-中共的无耻、龌蹉一次次刷新人们的认知，他们执政于中国是所有中国人的悲哀和耻辱，唯有尽己所能传播真相，唤醒同胞，灭掉恶党，才能让中国重回世界文明之列，中国人才能过上幸福美好的生活。
-
-**【附：被中国裁判文书网删除的判决书】**
-
-江苏省灌南县人民法院
-
-刑事判决书
-（2020）苏 0724 刑初 166 号
-
-被告人许艳，女，1994 年 10 月 14 日出生于江苏省灌云县，回族，大专文化，原系连云港市公安局海州分局辅警，住江苏省灌云县。
-
-因涉嫌犯敲诈勒索罪，于 2019 年 6 月 19 日被灌南县公安局刑事拘留，同年 7 月 26 日被逮捕。现羁押于连云港市看守所。
-
-辩护人李松平，江苏法哲律师事务所律师。
-
-江苏省灌南县人民检察院以灌检诉刑诉〔2020〕1 号起诉书指控被告人许艳犯敲诈勒索罪，于 2020 年 1 月 22 日向本院提起公诉。经连云港市中级人民法院指定管辖，本院于 2020 年4 月 24 日立案受理后，依法组成合议庭，于 2020 年 12 月 17日不公开开庭审理了本案。
-
-江苏省灌南县人民检察院指派检察员陈中敬出庭支持公诉，被告人许艳及其辩护人李松平到庭参加诉讼。现已审理终结。
-
-2014 年 3 月至 2019 年 4 月期间，被告人许艳同时或者不间断的与多名公职人员发生不正当男女关系，后以自己家人找被害人闹事、买某、怀孕、分手补偿等为由，抓住公职人员害怕曝光后影响工作、家庭、名誉的心理，先后敲诈 9 人共计人民币 372.6 万元。
-
-公诉机关为证实上述指控的犯罪事实，当庭出示宣读了被告人供述和辩解、被害人陈述、证人证言、书证等证据材料。认为被告人许艳的行为已触犯《中华人民共和国刑法》第二百七十四条之规定，应当以敲诈勒索罪追究刑事责任，提请本院依法判处。被告人许艳承认公诉机关指控的犯罪事实，并自愿认罪认罚，同时认为其是自首。其辩护人发表了被告人许艳具有自首、认罪认罚，可以从轻处罚的辩护意见。
-
-经审理查明，2014 年 3 月至 2019 年 4 月，被告人许艳同时或者不间断的与多名公职人员发生不正当两性关系，后以自己家人得知后要找被害人闹事以及自己购房、怀孕、分手补偿等为由，抓住公职人员害怕曝光后影响工作、家庭、名誉的心理，先后索要被害人孙某、朱某乙、寇某、陈某甲、关某甲、兰某乙、徐某甲、林某、刘某乙等人共计人民币 372.6 万元，具体犯罪事实分述如下：
-
-1、2014 年 3 月至 2015 年 1 月，被告人许艳与时任灌云县公安局南岗派出所所长孙某发生不正当两性关系，后许艳谎称其母亲李某甲知道其怀孕欲找孙某讨要说法、怀孕补偿、分手补偿等为由，先后三次向孙某索要人民币 100 万元；
-
-2、2014 年 5 月至 8 月，被告人许艳与时任灌云县侍庄派出所所长朱某乙发生不正当两性关系，后以怀孕其家人知道欲找朱某乙闹事为由，向朱某乙索要人民币 10 万元；
-
-3.、2016 年 6 月至 2016 年 8 月，被告人许艳与时任灌云县公安局副局长寇某发生不正当男女关系，后以怀孕其母亲欲找寇某闹事为由，向寇某索要人民币 20 万元；
-
-4、2016 年 6 月至 7 月，被告人许艳与灌云县妇幼保健院工会主席陈某甲发生不正当两性关系，后以怀孕补偿为由，向陈某甲索要人民币 10.8 万元；
-
-5、2016 年 9 月至 12 月，被告人许艳与时任灌云县四队镇中心小学校长关某甲发生不正当两性关系，后以丁某（另案处理）检举揭发关某甲生活作风以及其怀孕、其母欲找关某甲闹事为由，向关某甲索要人民币 45 万元；
-
-6.、2017 年 5 月至 6 月，被告人许艳与时任灌云县陡沟卫生院副院长兰某乙发生不正当两性关系，后以把两人关系告诉兰某乙老婆、到兰某乙办公室闹事等为由，向兰某乙索要人民币 15 万元；
-
-7、2017 年 7 月至 8 月，被告人许艳与时任灌云县陡沟镇卫生院药库工作人员徐某甲发生不正当两性关系，后以把两人关系告诉徐某甲妻子、扬言到学校找徐某甲儿子闹事为由，向徐某甲索要人民币 29.8 万元；
-
-8、2017 年 2 月至 9 月，被告人许艳与林某发生不正当两性关系，后以购房交首付为由，向某索要人民币 14 万元；
-
-9、2016 年 3 月至 2016 年 5 月，被告人许艳与连云港市公安局海州分局路南派出所所长刘某乙发生不正当两性关系，后以其母亲知道自己怀孕欲到刘某乙单位闹事为由，向刘某乙索要人民币 20 万元后，双方不再联系；
-
-2018 年 3 月至 2019 年 4月，许艳再次与时任连云港市公安局海州分局副局长刘某乙发生不正当两性关系，后以购房交首付、怀孕流产补偿、分手补偿为由，向刘某乙索要人民币共计 108 万元。
-
-案发后，被告人许艳主动交代赃款人民币 50 万元藏匿地点，现已被扣押。
-
-上述事实，被告人许艳在开庭审理过程中亦无异议，并有被害人孙某、朱某乙、寇某、陈某甲、关某甲、兰某乙、徐某甲、林某、刘某乙陈述，证人祝某、胡某、徐某乙、李某乙、韩某、许某、陈某乙、陈某丙、丁某、李某甲、关某乙、关某丙、陈某丁、胡某、兰某甲、王某甲、乔某、徐某丁、徐某丙、高某、周某、霍某、董某、彭某、王某乙、杨某、李某丙、王某丙证言，书证许艳银行流水、被害人孙某银行流水、存款记录、韩某转账记录、微信保证书、住宿信息、关某甲转账记录、徐某丁提款记录、刘某乙与刘某甲民转账记录，灌南县公安局出具的发破案经过及抓获经过、情况说明、户籍信息等证据证实，足以认定。本院认为，被告人许艳以非法占有为目的，使用威胁或者要挟的方法，多次勒索他人财物达人民币 372.6 万元，数额特别巨大，其行为已构成敲诈勒索罪。
-
-公诉机关指控被告人许艳犯敲诈勒索罪的事实清楚，证据确实、充分，指控的罪名成立，本院予以支持。
-
-被告人许艳归案后如实供述自己的罪行，是坦白，依法可以从轻处罚；其承认指控的犯罪事实，愿意接受处罚，并退出部分违法所得，依法可以从宽处理。
-
-对被告人许艳及其辩护人发表的被告人许艳具有自首情节的辩解和辩护意见，经查该辩解和辩护意见缺乏事实和法律依据，本院不予采纳；但被告人许艳具有坦白和认罪认罚情节，依法可以从轻处罚和从宽处理，本院予以采纳。
-
-据此，为了维护社会治安管理秩序，保护公私财产权利不受侵犯，打击刑事犯罪，根据本案被告人许艳犯罪的事实、犯罪的性质、情节和对于社会的危害程度，依照《中华人民共和国刑法》第二百七十四条、第六十七条第三款、第五十二条、第五十三条、第六十四条和《最高人民法院、最高人民检察院关于办理敲诈勒索刑事案件适用法律若干问题的解释》第三条、第八条，《中华人民共和国刑事诉讼法》第十五条之规定，判决如下：
-
-一、被告人许艳犯敲诈勒索罪，判处有期徒刑十三年，并处罚金人民币 500 万元（罚金限于从本判决发生法律效力之日起一个月内向本院一次性缴纳。）(刑期从判决执行之日起计算。判决执行以前先行羁押的，羁押一日折抵刑期一日。即自 2019 年 6 月 19 日起至 2032 年 6月 18 日止)。
-
-二、追缴被告人许艳违法所得人民币 372.6 万元（包括已退出的人民币 50 万元）。如不服本判决，可在接到判决书的第二日起十日内，通过本院或者直接向江苏省连云港市中级人民法院提出上诉。
-
-书面上诉的，应当提交上诉状正本一份，副本两份。
-
-审 判 长 张海峰
-人民陪审员 凌 敏
-人民陪审员 宋兰玲
-
-二〇二〇年十二月二十九日
-
-法官 助理 孙腾飞
-书 记 员 周婷婷
-
-（文章仅代表作者本人观点，与GNews无关）
-
-参考链接：
-[百度百科 公诉案件 ：](https://baike.baidu.com/item/%E5%85%AC%E8%AF%89%E6%A1%88%E4%BB%B6)
-
-[人民网 连云港灌南法院回应撤回“女辅警敲诈案”刑事判决书：尚未生效](http://js.people.com.cn/n2/2021/0313/c360303-34619396.html)
-
-[大纪元 转发女辅警与官员淫乱判决书 警方施压删帖](https://www.epochtimes.com/gb/21/3/12/n12807627.htm)
-
-[网易 郑州报业正观新闻 90后女辅警5年“性敲诈”372万 牵出公安局副局长](https://news.163.com/21/0312/13/G4T3EUNA0001899O.html)
-
-责任编辑：华盛顿DC农场 光之子(沙加)
-编辑/校对：美国纽约香草山农场 七哩香
-发布：台湾宝岛农场 Cute panda
-
-+4
++1
