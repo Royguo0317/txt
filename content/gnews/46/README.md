@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 46%的美国人认为中共是最大的敌人
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/982266/)
+## 路透社换稿软化美国对中共强硬措辞
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/982372/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-17_04-41-48.jpg)[trumpnationnews.com](https://www.trumpnationnews.com/the-ccp-virus-and-their-u-s-corporate-useful-idiots/)
-布赖特巴特新闻(Breitbart News)报道， 美国人现在视中共为国家最大的敌人，比去年翻了一倍还多。去年的调查中，美国人“认为中共或俄罗斯是美国最大的敌人的可能性不相上下”。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-17_05-12-34.jpg)[thomsonreuters.com](https://www.thomsonreuters.com/en/about-us/company-history.html)
+路透社3月16日报道，美国政府一位高级官员周二表示，拜登政府在对华问题上寻求统一的”强硬”立场，不会让北京挑拨美国政府不同部门间的对抗。拜登政府将以强硬的手段与中共高层官员进行会谈，并将表达对中共在香港、新疆侵犯人权的行为以及北京继续进行的“恶意”网络活动的担忧。美官员表示，美国不期待3月18日在阿拉斯加举行的会议有任何具体的“成果”，预计也不会发表联合声明。
 
-根据盖洛普(Gallup)周二公布的一项民调，46%的美国人认为中共是美国最大的敌人，其次是俄罗斯(26%)和朝鲜(9%)，伊朗排名第四。
+在此报道发出后不久，路透社竟然换稿，重新发布了一份措辞软化了的文章替代原文。
 
-中共从2020年起敌对民调增长了23%，而俄罗斯的年度调整只增长了3个百分点。
+文章指出，华盛顿希望改善两国关系，希望看到北京方面“采取行动，而不是空谈”。一位美国官员称，美方将明确表示“深切关注”中共对待新疆穆斯林和香港亲民主抗议者的方式，以及中共对美国盟友和合作伙伴的经济胁迫及对台湾的咄咄逼人的举动。同时表示，华盛顿并不期待此次会议能达成具体的谈判成果，但会提出它认为北京需要改变路线的具体领域。
 
-对此看法的调查存在党派偏见。76%的共和党人认为中共是最大的威胁，而22%的民主党人持同样观点。相反，只有6%的共和党人说出了俄罗斯的名字，而民主党人的这一比例为47%。独立人士尤其认可中共是最大的威胁，占43%，俄罗斯的比例低于中共，为24%。
-
-调查发现，“虽然美国人将中共视为自己最大的敌人，但一半的人也认为中共是世界头号经济强国。”事实上，这种看法的改变可能是由于中共病毒导致美国经济下滑，而中共的总体GDP正在增长。
-
-调查还发现，63%的美国人认为“中共的经济实力将在未来10年对美国的切身利益构成严重威胁”，另有30%的人认为这是一种重要但不严重的威胁。
-
-民调结果显示越来越多的美国人认同中共对美国的威胁，但是因为中共对媒体和社交平台的渗透，美国人还没有看清。据文贵先生透露，美国政府正在准备中共病毒真相和香港人权报告的白皮书，当中共病毒是中共制造的生物武器的事实展现在全世界面前，不仅是美国人，全世界各国人民和政府都会讨伐中共，让其对生物武器超限战造成的无数人的死亡及对全球经济毁灭性的打击付出代价。
+另一位美国官员表示，北京“在履行承诺方面的记录相当糟糕”，而华盛顿对改变的可能性抱有现实的期望。美国不希望中共对美国关注此问题的强硬态度抱有幻想，“我们希望与一个将成为我们强大竞争对手的大国进行一次愉快、有力和非常坦率的对话”。
 
 参考链接：
 
-[https://www.breitbart.com/asia/2021/03/16/poll-americans-view-china-as-greatest-enemy-doubling-2020-rate/](https://www.breitbart.com/asia/2021/03/16/poll-americans-view-china-as-greatest-enemy-doubling-2020-rate/)
+[https://www.reuters.com/article/us-usa-china-meeting-idUSKBN2B834J](https://www.reuters.com/article/us-usa-china-meeting-idUSKBN2B834J)
+
+[https://www.usnews.com/news/world/articles/2021-03-16/biden-administration-unified-in-strong-stance-on-china-senior-us-official](https://www.usnews.com/news/world/articles/2021-03-16/biden-administration-unified-in-strong-stance-on-china-senior-us-official)
 
 0
