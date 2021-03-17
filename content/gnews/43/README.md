@@ -1,22 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】16/03/2021:随着病毒白皮书，香港人权白皮书即将出台，对台湾问题的白皮书也将会有红线出来
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/983780/)
+## 2021年3月17日秘翻快报【头条新闻】
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/983795/)
 
-**制作:Cantonese工作室**
-**播报:【文依】 资料整理：【安妮 】【闪电 】【文依】 【家庭专业煮妇】 海报制作：【米线】
-视频制作：【文德】发布:【星星】**
-摘要:
+1、见杨洁篪与王毅前，布林肯与奥斯汀罕投书呼吁团结抗中
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-123.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2-52.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-61.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4-38.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/5-38.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/0-12.jpg)
+2、施韦泽：对美国最根本的威胁不是中国而是中共
+
+3、德意法等多国暂停使用阿斯利康疫苗
+
+4、63岁男子注射科兴疫苗后死亡
+
+5、CCP研拟延迟退休政策，网友炸锅
+
+6、苏州拆迁访民两会前遭限制人身自由
+
+7、GNEWS文摘《四方对话的成果 瓦解中共在东南亚的疫苗外交》
+
+**By**：【秘密翻译组** G-Translators**】
+
 0
