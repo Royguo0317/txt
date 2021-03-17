@@ -1,48 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本奥运会运动员拒绝使用中共国疫苗
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/983842/)
+## 失业率13.1%，中国年轻人就业压力巨大
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/983916/)
 
-新闻来源：《REUTERS 路透社 》| 作者：Chris Gallagher 克里斯·加拉格尔 | 发布时间：2021年3月11日
+新闻来源：《CNBC》| 作者：Evelyn Cheng伊夫林·程 | 发布时间：2021年3月15日
 
-翻译/简评：wmorpho | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii
+翻译/简评：clau | 校对/审核：万人往 | Page：Daoiii
 
-[!\[\]()!\[\](https://spark.adobe.com/page/rnettebkcH6Fc/images/f5369a23-9b69-4cc9-bd29-aa59640f1be6.jpg?asset_id=2aa5d82e-51b1-4075-b035-82af29e78a18&amp;img_etag=%22b79c874b7d81686ab106e59e5f045da4%22&amp;size=2560)](https://spark.adobe.com/page/rnettebkcH6Fc/images/f5369a23-9b69-4cc9-bd29-aa59640f1be6.jpg?asset_id=2aa5d82e-51b1-4075-b035-82af29e78a18&amp;img_etag=%22b79c874b7d81686ab106e59e5f045da4%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/zCPcafrj6yx6Z/images/d467c904-1098-46c3-8e47-d02204010d79.jpg?asset_id=89923c4f-edd2-48c0-a0d7-7bc6daa9db64&amp;img_etag=%226b2abffb0a6dc6e8ac4afcc7926d6f79%22&amp;size=2560)](https://spark.adobe.com/page/zCPcafrj6yx6Z/images/d467c904-1098-46c3-8e47-d02204010d79.jpg?asset_id=89923c4f-edd2-48c0-a0d7-7bc6daa9db64&amp;img_etag=%226b2abffb0a6dc6e8ac4afcc7926d6f79%22&amp;size=1024)图片来源mwyo
 
 ***简评：***
 
-**因为中共病毒大流行而推迟了一年的东京奥运会定于今年7月23日至8月8日举行，残奥会将于8月24日至9月5日举行。中共这个用病毒杀人的罪犯竟然提议为今年的东京奥运会和北京2022年冬季奥运会的参与者提供中共疫苗。而国际奥委会主席托马斯·巴赫（Thomas Bach）竟然接受并宣布了这一提议，如果这一提议真的要实行，那中共用病毒统治和控制全世界的罪恶目的就真的会实现。因为能参加奥运会的运动员都是各国体能最好的，如果他们被染上中共病毒或被中共疫苗控制， 不但会被中共绑架和利用， 还会成为中共病毒载体，回到各国继续扩散，那中共病毒爆发和扩散的程度会远超过2020年，其后果将不堪设想。**
+**中共国统计局公布了2月份的数据，16岁至24岁人群的失业率为13.1%，全国城镇失业率5.5%。2021年将有创纪录的909万学生进入劳动力市场，今年需要新增1100万个城镇就业岗位。中共国经济去年增长2.3%，当局为今年设定了6%以上的保守增长目标。国务院总理李克强表示，确保人民群众就业的压力越来越大。**
 
-**奥委会主席托马斯·巴赫无视这一年多中共病毒在世界各地造成的各种惨剧，还在为中共站台，可见中共“蓝金黄”的力度真是不可小觑。好在日本作为主办国非常地清醒，日本奥林匹克大臣丸川直世说，日本运动员不可以使用中共国疫苗，虽然不阻止其他国运动员使用，但她的表态就是向世界表明日本奥委会是不赞同这个提议的。这也从侧面证实，中共国疫苗是不可靠的，是不安全的，是不能用的！**
+**中共国的统计数据几乎都是假的。大到全国的GDP和经济增长率，小到各个省市县的财政收入。各级官员为了保住自己的乌纱帽，都会在数据上造假。过去几年，各类外企开始逐渐从中共国撤离，大量的出口加工类工作岗位消失，就业压力一直非常大。新冠疫情让很多行业受到重创，很多人因此失业，例如旅游、餐饮、交通运输等服务型行业。目前中共国的失业率肯定不是5.5%，很多人因为长期失业，甚至已经放弃了寻找工作。大专院校的学生，很多面临毕业即失业的状况，研究生毕业去跑外卖，博士生毕业去管公共厕所，这样的例子已经屡见不鲜。接下来，因为病毒问题、种族灭绝问题，中共国还将面临全球其他国家的经济制裁，甚至是经济脱钩、贸易封锁，老百姓即将面临一个经济崩溃的社会体系。相信共产党，快速走进火葬场，留给大家的时间真的不多了。**
 
 ***原文翻译：***
 
-# **奥运会：日本奥林匹克大臣说日本队不可以使用中共国疫苗**
+# **中共国年轻人失业率维持在13.1%，难以找到工作**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/rnettebkcH6Fc/images/d7ef273e-85f9-4452-99f3-35f10e5db157.png?asset_id=26f0a991-533b-42c8-bb63-db417bcbad6b&amp;img_etag=%227e38d9107889b27923e2f81848f82bce%22&amp;size=2560)](https://spark.adobe.com/page/rnettebkcH6Fc/images/d7ef273e-85f9-4452-99f3-35f10e5db157.png?asset_id=26f0a991-533b-42c8-bb63-db417bcbad6b&amp;img_etag=%227e38d9107889b27923e2f81848f82bce%22&amp;size=1024)文件照片：2021年2月18日，在冠状病毒病爆发期间，日本奥林匹克和残奥会大臣丸川直世参加东京的新闻发布会。路透社/加藤一成
+*国家统计局周一表示，截至2月，16岁至24岁人群的失业率为13.1%，远高于5.5%的全国城镇失业率。*
 
-东京(路透社)——日本奥林匹克大臣丸川直世（Tamayo Marukawa）周五说，由于日本尚未批准中共国的疫苗，所有参加夏季奥运会的日本运动员将不准使用中共国提供的冠状病毒疫苗。
+*虽然中共国经济平稳增长，但失业率和就业岗位的数据显示出潜在的挑战。*
 
-国际奥委会周四表示，中共国奥委会提议为今年的东京奥运会和北京2022年冬季奥运会的参与者提供疫苗。
+[!\[\]()!\[\](https://spark.adobe.com/page/zCPcafrj6yx6Z/images/e718be52-9952-4a4e-9a4d-8ade68bcff25.png?asset_id=70ede48b-53a5-4d10-aba0-488db1bb4d18&amp;img_etag=%228234b46cfe56258895b435f5be16cac8%22&amp;size=2560)](https://spark.adobe.com/page/zCPcafrj6yx6Z/images/e718be52-9952-4a4e-9a4d-8ade68bcff25.png?asset_id=70ede48b-53a5-4d10-aba0-488db1bb4d18&amp;img_etag=%228234b46cfe56258895b435f5be16cac8%22&amp;size=1024)中国阜阳的招聘会上，求职者正在现场准备找工作
 
-国际奥委会主席托马斯·巴赫（Thomas Bach）是在一次在线会议上宣布这一提议的，这使东京奥运会的首席执行官武藤敏郎等组织者感到惊讶。会后，武藤在周四的简报会上拒绝对此提议发表评论。
+北京——在冠状病毒大流行一年后，中共国的年轻人仍然很难找到工作。
 
-周五，丸川说，东京将举办一个安全的奥运会的计划没有改变，无论参与者是否已经接种疫苗。
+中共国国家统计局周一表示，截至2月份，16岁至24岁人群的失业率为13.1%，远高于5.5%的全国城镇失业率。
 
-当被问及运动员是否应该接受中共国提供的疫苗接种时，丸川在例行的新闻发布会上说：“我认为这将由那些已经批准（中共国疫苗）的国家自己决定。”
+13.1%的年轻人失业率与去年一季度相同，当时中共国国内正值冠状病毒爆发的高峰期。
 
-她说：“我并没有听说有中共国公司的疫苗在我国申请并获得批准。”这表明日本运动员将不会接种中共国疫苗。
+[!\[\]()!\[\](https://spark.adobe.com/page/zCPcafrj6yx6Z/images/184e779c-0bdc-4cab-9653-49a8cc70d468.png?asset_id=8a338ff5-e1a0-4f2f-8fbb-9e0d14e01790&amp;img_etag=%2283f1fb47fb9484cec9da599e8f5ca418%22&amp;size=2560)](https://spark.adobe.com/page/zCPcafrj6yx6Z/images/184e779c-0bdc-4cab-9653-49a8cc70d468.png?asset_id=8a338ff5-e1a0-4f2f-8fbb-9e0d14e01790&amp;img_etag=%2283f1fb47fb9484cec9da599e8f5ca418%22&amp;size=1024)
 
-“我们正在采取全面的抗感染措施，包括活动管理和测试，确保人们即使没有接种疫苗也能很放心地参加东京奥运会。”
+华兴资本宏观与策略研究主管庞溟表示，这一数字高企意味着“就业不足和就业市场压力的持续挑战”。他补充说，基于每月政府和第三方调查得出的劳动力收缩数据，企业似乎并不急于填补职位空缺，因为经济复苏势头放缓。
 
-“假设人们没有接种疫苗，我们也将继续举行奥运会。”
+年轻人面临的工作竞争尤为激烈。
 
-因为中共病毒大流行而推迟了一年的东京奥运会定于今年7月23日至8月8日举行，残奥会将于8月24日至9月5日举行。
+据官方数据显示，今年预计将有创纪录的909万学生进入劳动力市场，超过去年创下的874万的记录。
 
-克里斯·加拉格尔报道；克拉伦斯·费尔南德斯 /彼得·卢瑟福编辑
+根据官方数据，即使在冠状病毒大流行之前， 2019年城镇新增就业人数也从2018年的1361万人下降到2019年的1352万人。去年，当全球都在努力从疫情中恢复时，新增城镇就业岗位只有1186万个。
 
-**🔗[原文链接](https://www.reuters.com/article/us-olympics-2020-vaccine-idUSKBN2B40FN)**
+中共国的目标是今年新增1100万个城镇就业岗位，失业率将达到5.5%。
+
+国务院总理李克强本月进行年度经济总结时表示，确保人民群众就业的压力“越来越大”。中共国经济去年增长2.3%，当局为今年设定了6%以上的保守增长目标。
+
+与那些向公民派发现金以刺激消费的国家相比，中共国的重点是通过减税和更便宜的贷款来支持企业及其员工。李克强周四与记者分享了一家受疫情影响的商店老板如何通过生活补贴来维持其企业大约20名员工的生计。
+
+**🔗[原文链接](https://www.cnbc.com/2021/03/15/chinas-young-people-are-still-having-a-hard-time-finding-jobs.html?__source=sharebar%7Ctwitter&amp;par=sharebar)**
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -51,6 +57,6 @@
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/rnettebkcH6Fc/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/rnettebkcH6Fc/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/zCPcafrj6yx6Z/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/zCPcafrj6yx6Z/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-+1
+0
