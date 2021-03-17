@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 万达放弃AMC控制权 持股比例减至9.8%
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/982241/)
+## 路透社换稿软化美国对中共强硬措辞
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/982372/)
 
-#### 翻译报道：Fighter007
+俄罗斯莫斯科喀秋莎农场   银河
 
-#### 责编：卡拉马佐夫姐姐
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-61.png)图片来源：阿斯达克财经
-据彭博社报道，中国亿万富翁王健林创立的大连万达集团股份有限公司已经放弃了对全球最大的连锁影院——AMC娱乐控股的多数控制权。
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-17_05-12-34.jpg)[thomsonreuters.com](https://www.thomsonreuters.com/en/about-us/company-history.html)
+路透社3月16日报道，美国政府一位高级官员周二表示，拜登政府在对华问题上寻求统一的”强硬”立场，不会让北京挑拨美国政府不同部门间的对抗。拜登政府将以强硬的手段与中共高层官员进行会谈，并将表达对中共在香港、新疆侵犯人权的行为以及北京继续进行的“恶意”网络活动的担忧。美官员表示，美国不期待3月18日在阿拉斯加举行的会议有任何具体的“成果”，预计也不会发表联合声明。
 
-受到封城和其它疫情相关限制的影响，AMC在影院上座率暴跌超过90%后，创下了亏损纪录。此前AMC多次发出破产警告，2020年公布了46亿美元的创纪录亏损。
+在此报道发出后不久，路透社竟然换稿，重新发布了一份措辞软化了的文章替代原文。
 
-万达集团在2012年以26亿美元收购AMC，去年12月，万达将其在AMC的股份削减至23.1%，投票权为47.4%。截至3月3日，万达将其在AMC的持股比例和投票权削减至9.8%。
+文章指出，华盛顿希望改善两国关系，希望看到北京方面“采取行动，而不是空谈”。一位美国官员称，美方将明确表示“深切关注”中共对待新疆穆斯林和香港亲民主抗议者的方式，以及中共对美国盟友和合作伙伴的经济胁迫及对台湾的咄咄逼人的举动。同时表示，华盛顿并不期待此次会议能达成具体的谈判成果，但会提出它认为北京需要改变路线的具体领域。
 
-AMC的首席执行官亚当·阿伦在财报电话会议上表示，万达仍然是AMC的最大股东。”由于没有控股股东，现在，AMC将像大多数其他上市公司一样，由多个股东来治理，”阿伦表示。但万达集团仍然拥有两个董事会席位，可能仍会对AMC的管理层有重大影响。
+另一位美国官员表示，北京“在履行承诺方面的记录相当糟糕”，而华盛顿对改变的可能性抱有现实的期望。美国不希望中共对美国关注此问题的强硬态度抱有幻想，“我们希望与一个将成为我们强大竞争对手的大国进行一次愉快、有力和非常坦率的对话”。
 
-对AMC的减持，标志着万达集团继去年出售最后一个海外房地产项目——芝加哥项目后，进一步收缩其中国以外的业务。该集团横跨购物中心、电影、体育和主题公园。在海外扩张的高峰期，万达买下了包括西班牙足球俱乐部马德里竞技队、好莱坞影城传奇娱乐公司，以及比佛利山庄和伦敦的豪华房地产在内的一系列标志性资产。是中共国以最高价收购海外资产，现今欠下全球最大债务的诸多中国企业集团之一。自2017年以来，该集团一直在大举瘦身，以削减债务。去年，万达还以7.3亿美元出售了铁人三项业务。
+参考链接：
 
-在Reddit用户引领的投资狂潮的推动下，AMC的股价今年已经飙升了五倍多，达到11.16美元。
+[https://www.reuters.com/article/us-usa-china-meeting-idUSKBN2B834J](https://www.reuters.com/article/us-usa-china-meeting-idUSKBN2B834J)
 
-#### 评论：
-
-当初26亿美元收购的AMC，如今市值仅剩2亿美元，万达浮亏20亿。一场曾经轰动一时的海外“联姻”如今黯然收场，这是中共治下“白手套经济”的必然结局，而买单的永远是还没看明白戏码的中共国“韭菜”。Take Down CCP，没你不行！
-
-新闻来源：[AMC’s Chinese Owner Gives Up Control Over World’s Largest Cinema Chain](https://finance.yahoo.com/news/amc-chinese-owner-gives-control-024816114.html)
+[https://www.usnews.com/news/world/articles/2021-03-16/biden-administration-unified-in-strong-stance-on-china-senior-us-official](https://www.usnews.com/news/world/articles/2021-03-16/biden-administration-unified-in-strong-stance-on-china-senior-us-official)
 
 0

@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】美印太司令：中国是21世纪对安全最大最长期的战略威胁
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/982821/)
+## 【粤语配音】这是历史上第一次有一个国家袭击了整个世界
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/983070/)
 
-3/9/2021 美印太司令：中国是21世纪对安全最大最长期的战略威胁。
+摘要：13/03/2021这是历史上第一次有一个国家袭击了整个世界。
 
 By： 【秘密翻译组 G-Translators】
 
