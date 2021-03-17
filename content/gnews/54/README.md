@@ -1,73 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0316.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/980557/)
+## 川普总统抨击拜登的边境及大幅增税政策
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/982609/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0316.jpeg)
-#### 现任政府动向
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-3月16日美国现任国务卿安东尼-布林肯就四国峰会发推如下:
+编辑上传 水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/T-26.jpg)thelist.com
+3月9日川普总统曾对拜登的边境政策给予了严厉批评【1】，蓬佩奥国务卿及共和党其他要员，也呼吁拜登政府要解决边境危机，而白宫发言人则对记者的追问避实就轻，巫婆佩洛西更是为拜登“保驾护航”，倒打一耙川普总统【2】。估计巫婆的行径惹怒了川普总统，今天川普总统再次指责拜登的边境政策。
 
-今天，我和美国驻东京大使馆的工作人员及其家属召开了网络会议。他们在日本代表美国，促进美国人民的利益和价值观的不懈努力，是我们国家的宝贵财富。
+《福克斯新闻》刚刚发文，题目“川普总统对‘福克斯新闻黄金时间’（Fox News Primetime）说，大批移民的涌入将‘摧毁我们的国家’”，文章摘要说，川普总统就拜登的边境危机和2022年中期选举发表了自己的看法。【3】
 
-很高兴今天与我的朋友和日本同行茂木敏充(外交部长）见面。我们致力于深化美日在全球挑战上的协调，以及我们对自由和开放的 #印太 地区的共同愿景。
+全文如下：
 
-这是和美国国防部长罗德（Lloyd J. Austin）、 日本外交部长茂木敏充、日本国防部长岸信夫之间的伟大的讨论。坚信以普世价值为基础、不受强制力约束的自由、开放、包容的印度洋-太平洋的重要性。我们致力于与日本的合作，与四国合作，以及包括韩国的三边合作（包括冠状病毒大流行、气候变化、北朝鲜去核问题等—根据白宫发言人推文）。
+独家报道：随着边境危机的进一步加剧，川普总统对拜登进行了猛烈抨击，这是川普总统在“福克斯新闻黄金时间”节目中，告诉福克斯新闻的玛丽亚·巴蒂罗莫（Maria Bartiromo）。
 
+川普总统在这档节目上表示，他和墨西哥总统奥布拉多（Andres Manuel Lopez Obrador）建立了“伟大的关系”，共同关心控制非法移民和修建高效的边境墙。
 
+“（奥布拉多）是位伟大的绅士，我们关系很好，在我们修建隔离墙的时候，他们有28000名士兵在我们的边界上……他们还在洪都拉斯、萨尔瓦多和危地马拉的北部边境阻止他们。” 川普总统说，
 
-> Today, I met virtually with [@usembassytokyo](https://twitter.com/usembassytokyo?ref_src=twsrc%5Etfw), our consulates’ staff, and their families. Their tireless work representing the United States in Japan and promoting the interests and values of the American people is an invaluable asset to our country. [pic.twitter.com/dyyA8a86UQ](https://t.co/dyyA8a86UQ)
-> — Secretary Antony Blinken (@SecBlinken) [March 16, 2021](https://twitter.com/SecBlinken/status/1371709924418461697?ref_src=twsrc%5Etfw)
+“今天，他们来了，你看看，他们是从外国来的，我看到他们是从也门来的，他们是从中东来的，他们从任何地方来。” 他说，“人贩子把他们扔下来，他们再涌入我们的国家，这是一种耻辱。”川普总统说，“如果我们不采取行动，他们会毁掉我们的国家。”
 
+川普总统愤怒地说，拜登“毁坏”了他的政府在边境国家安全和审查寻求庇护者方面取得的进展。“坦率地说，我们国家无法应对（移民的增加），这是一场我们很少遇到过的危机，当然我们在边境上也从来没有遇到过。但情况会变得更糟。”
 
+在采访中，巴蒂罗莫问川普总统是否会建议他的支持者自愿接种CCP病毒疫苗，他指出，相当一部分共和党人仍然不安，或者反对在这个时候接种疫苗。
 
+“我会的。” 川普总统回答说，“我会推荐它，我会推荐给很多不愿意得到它的人，坦率地说，很多人投了我的票。”“但是，我们有我们的自由，我们必须依靠自由生活，我也同意这一点，它（必须）是一种很好的疫苗，是一种安全的疫苗，而且是有效的。”川普总统说，制药公司和FDA一直在“不分昼夜”地开发各种疫苗。
 
+在采访中，川普总统还痛斥拜登和民主党因实行新总统行政命令，削减了美国能源生产和运输，导致了汽油价格上涨近1美元甚至更多每加仑。
 
-> Pleasure to meet with my friend and Japanese counterpart, [@moteging](https://twitter.com/moteging?ref_src=twsrc%5Etfw), today. We’re committed to deepening U.S.-Japan coordination on global challenges and our shared vision for a free and open [#IndoPacific](https://twitter.com/hashtag/IndoPacific?src=hash&amp;ref_src=twsrc%5Etfw) region. [pic.twitter.com/OVgGVvDt1y](https://t.co/OVgGVvDt1y)
-> — Secretary Antony Blinken (@SecBlinken) [March 16, 2021](https://twitter.com/SecBlinken/status/1371725618530902019?ref_src=twsrc%5Etfw)
+“当我看到正在发生的事情时，我们是能源独立的，天然气价格的上涨速度远远超过了长期以来任何人所看到的，我们的天然气价格非常低，但我们的能源工作岗位却比以往任何时候都多。”
 
+川普总统说，虽然拜登和他的政党正在寻求大幅增税，但油价飙升在他心目中意味着更为繁重的“税”。
 
+“当你看到这一点时，他们将上涨1美元，2美元，3美元，这比对消费者的增税还要大，”他争辩道，“（如果）汽油价格上涨1美元，这比大幅增税还要大，所以，这是一件可怕的事情。”
 
+川普总统预测，民主党将把税收提高到“我们见过的最高数字”，这将对经济造成“毁灭性”影响。
 
+在接受采访前，川普总统最近直言反对美墨边境危机不断加剧，非法移民和寻求庇护者令联邦当局不知所措，而拜登政府叫停了川普总统的隔离墙建设。
 
-> Great discussion with [@Secdef](https://twitter.com/SecDef?ref_src=twsrc%5Etfw), [@moteging](https://twitter.com/moteging?ref_src=twsrc%5Etfw), & [@KishiNobuo](https://twitter.com/KishiNobuo?ref_src=twsrc%5Etfw) on the importance of a free, open, & inclusive Indo-Pacific anchored by universal values & uninhibited by coercive power. We’re committed to cooperation with Japan including as part of the Quad & trilaterally with the ROK. [pic.twitter.com/37VkmiMfrR](https://t.co/37VkmiMfrR)
-> — Secretary Antony Blinken (@SecBlinken) [March 16, 2021](https://twitter.com/SecBlinken/status/1371741982285041664?ref_src=twsrc%5Etfw)
+由于拜登灾难性的领导，我们的边境现在完全失去了控制。川普总统在本月早些时候发表的一份声明中，“我们伟大的边境巡逻（Border Patrol）、移民和海关执法局（ICE）工作人员受到拜登政府的不尊重、贬低和嘲笑。”
 
+“不应该在这里的人大规模入侵这个国家，每小时都在发生，而且每时每刻都在恶化。许多人有犯罪前科，还有许多人已经或正在传播CCP病毒。内部执法部门已经关闭，曾经被我国政府迅速驱离的罪犯，现在被释放回街头，犯下令人发指的暴力罪行。”他继续说，“移民和海关执法局警员们不顾一切地要带走这些被定罪的罪犯，但拜登不会让他们离开。”
 
+川普总统还抨击这场（边境）危机是拜登引发的“螺旋式海啸”，指出尽管（在边境）联邦政府严格限制美国公民从事旅游和商业活动，但边境社区仍被非法移民“淹没”，这些非法移民仍未接受CCP病毒测试。
 
-#### 45届总统川普的声明
+“拜登政府必须立即采取行动，结束他们给我们国家带来的边境噩梦，让非法移民、犯罪和中共病毒远离我们的国家！”川普总统在3月5日结束讲话时怒不可遏。
 
-3月15日晚，川普总统在GAB发表声明如下。
+总统遭窃后，川普总统从纽约市迁往佛罗里达州棕榈滩，并成立了“（自己的）总统办公室”。
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-220.png)
+他在2022年中期选举前发表了一些政治支持，其中包括俄亥俄州国会候选人麦克斯·米勒（Max Miller），一位寻求取代俄亥俄州共和党众议员安东尼·冈萨雷斯（Anthony Gonzalez）的共和党人。冈萨雷斯曾是印第安纳波利斯小马队（Indianapolis Colts）的球边接球员，今年1月投票弹劾川普总统。
 
-保护美国— 唐纳德-川普总统 [https://gab.com/realdonaldtrump/posts/105896122879430427](https://gab.com/realdonaldtrump/posts/105896122879430427)
-《美利坚合众国第45任总统唐纳德-J-川普的声明》
+他还承诺，出于类似的原因，将访问阿拉斯加，为任何共和党初选挑战者竞选阿拉斯加州参议员丽莎·穆尔科夫斯基（Lisa Murkowski），川普总统还支持竞选阿肯色州州长的前新闻秘书莎拉·哈克比·桑德斯（Sarah Huckabee Sanders）。（全文完）
 
-《华盛顿邮报》刚刚对我关于伟大的佐治亚州选民欺诈问题的电话内容所进行的错误报道做了更正。虽然我很感谢《华盛顿邮报》的更正，但原来的故事从一开始就是子虚乌有。对佐治亚州富尔顿县和斯泰西-艾布拉姆斯进行强有力的调查，我将深表谢意，我相信，这将彻底改变佐治亚州总统选举的进程。
+参考链接：
 
-富顿县并没有对选票或签名验证进行适当的审计。他们只看了本州最不可能出现什么问题的地区，即使在那里他们也发现了大量的错误。我们正在寻求找到并揭示发生在佐治亚州大规模的选举舞弊。许多居民对此表示同意，他们的愤怒导致他们在1月份的选举中没有投票给两名共和党参议员。
+【1】[https://gnews.org/zh-hans/962997/](https://gnews.org/zh-hans/962997/)
 
-拉芬斯贝格和斯泰西-艾布拉姆斯签署的《同意协议》没有得到佐治亚州议会的批准，因此应视作无效，选举结果已经变了。为什么州长和拉芬斯伯格曾经批准过这个《同意协议》，这是一个很大的疑问？我们期待着答案。
+【2】[https://www.foxnews.com/politics/pelosi-blames-donald-trump-for-humanitarian-challenge-at-border-inheritance-of-broken-system](https://www.foxnews.com/politics/pelosi-blames-donald-trump-for-humanitarian-challenge-at-border-inheritance-of-broken-system)
 
-你会注意到，媒体的错误、遗漏、失误和彻头彻尾的谎言总是向一个方向倾斜—都是反对我和共和党人。与此同时，那些对民主党人不利的故事被埋没、忽略或延迟，直到造成伤害降低到最小—例如，在选举结束后才报道。不妨看看大选前对疫苗的负面报道，以及大选结束后对疫苗的过期庆祝。一个强大的民主国家需要一个公平和诚实的媒体。最新的媒体荒唐事突出表明，传统媒体应被视为政治实体，而不是新闻企业。无论如何，我感谢《华盛顿邮报》的更正。
-
-小议：川普总统的后总统时期的这份声明已经让笔者有太多感怀又噎于无语。川普总统在任时于大选夜将选举舞弊行为诉诸法律，那时美国的司法体系已经被渗透和受到重压无法秉公执法，那么离任后的后总统时期就能期待司法公正有所作为吗？对疫苗的认识显然川普总统是错过了闫博士的珍贵信息和情报所致，也体现了川普总统并没有完全理解爆料革命。此外，川普总统如果仍然没有意识到他在总统宝座被盗窃、媒体失去公信已经不再是美国内部的矛盾，现在面临的问题已经不是漠视台湾、漠视香港，“事不关己高高挂起”，那么所谓“保护美国、让美国再次强大”将太过狭隘和难以真正实现，因为如今摆在美国面前真正的敌人和主要矛盾的根源都是中共的渗透及其带来的共产主义和社会主义思潮所致。
-
-真可谓认识有多远，步履走多远。又可谓，相逢已然成归去，明日黄花蝶也愁！
-
-
-
-文章观点部分仅代表作者本人。
-
-编辑：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
-
-（本文当日持续更新中）
+【3】https://www.foxnews.com/politics/former-president-donald-trump-to-appear-exclusively-on-fox-news-primetime-with-maria-bartiromo
 
 0

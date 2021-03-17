@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国公司应立足于美国价值观，不协助中共迫害维吾尔族人
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/982497/)
+## 【粤语配音】美印太司令:中共用庞大的宣传机器开展对美国的信息战
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/982824/)
 
-3/13/2021 美国公司应立足于美国价值观，不协助中共迫害维吾尔族人。
+3/9/2021 美印太司令:中共用庞大的宣传机器开展对美国的信息战。
 
 By： 【秘密翻译组 G-Translators】
 
