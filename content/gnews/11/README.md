@@ -1,52 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港：七国集团呼吁中共国结束对民主价值观的“压制”
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/984126/)
+## 美国资深参议员呼吁西方科技联盟对抗中共国
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/984304/)
 
 翻译：康州盘古农场 – 郭班之樱
 校对：康州盘古农场 – TrueSky
 编辑：康州盘古农场 – 轰炸机
 
-据路透社，3月13日报道：
+据《欧洲政治报》，马克·斯科特（MARK SCOTT） 2021年3月11日报道：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-127.jpg)亲民主活动家黄之锋（Joshua Wong）因在2019年反政府抗议活动中未经授权集会而于12月被判入狱摄影：Tyrone Siu /路透社
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-134.jpg)美国参议员马克·华纳| 塞缪尔·库鲁姆/盖蒂图片社
 
-包括美国在内的七国集团外交部长对他们所说的中共国从根本上侵蚀[香港](https://www.theguardian.com/world/hong-kong)选举制度的民主因素的决定表示严重关切。
+马克·沃纳（Mark Warner）向欧洲和美国的其他民主盟友传达了一个信息：我们需要联手在科技上击败中共国。
 
-七国集团发表了由英国外交大臣多米尼克·拉布（Dominic Raab）发的推文，称[最近改变香港选举制度的决定](https://www.theguardian.com/world/2021/mar/11/china-adopts-new-laws-to-ensure-only-patriots-can-govern-hong-kong)表明了中共国当局决心消除在香港的异议和见解。
+参议院情报委员会[主席](https://www.intelligence.senate.gov/)的美国参议员说，华盛顿必须与志趣相投的国家携手合作，为从人工智能到微芯片制造的一切制定规则。 如果不是这样，民主国家可以将这重要的领域让给北京，北京正在努力巩固其对数字世界的控制权。
 
-推文说：“我们呼吁中共国和[香港](https://www.theguardian.com/world/hong-kong)当局恢复对香港政治机构的信心，并结束对那些倡导民主价值观和捍卫权利与自由的人毫无根据的压迫。”
+他在《欧洲政治报》的跨大西洋科技通讯的[数字桥](https://www.politico.eu/newsletter/digital-bridge/)表示：“这是当今时代的经济问题，必须有一种紧迫感，欧盟是一个超级大国。但是，如果你们愿意联合，那么这就是加速西方对中共国反应的必要条件。”
 
-与七国集团（加拿大，法国，德国，意大利，日本，英国和美国）欧盟同僚一道，我们对中共国为侵蚀选举制度的民主元素并消除香港的异议而做出的决定表示遗憾。 我们敦促中共国尊重香港人民的权利和自由。
+华纳之所以发表这一言论，是因为美国希望在唐纳德·川普（Donald Trump）执政四年后，重建其国际关系。 到目前为止，乔·拜登（Joe Biden）的白宫所做的努力主要集中于非技术问题，例如气候变化和冠状病毒（COVID-19），这认识到华盛顿正在处理一长串的优先事项。
 
+尽管如此，欧盟同样希望在技术问题上与美国建立紧密联系，包括成立[跨大西洋理事会](https://www.politico.eu/article/eu-to-us-president-elect-joe-biden-lets-be-tech-allies/)，就数字贸易问题提出共同立场，例如限制可以从两个地区向像中共国这样的独裁国家出口的技术类型。布鲁塞尔还希望就人工智能规则制定[联合议程](https://www.politico.com/news/2021/03/02/china-us-europe-ai-regulation-472120)，尽管这两个项目的工作才刚刚开始。
 
+华纳对此表示欢迎，但他表示，设定更广泛的目标并获得西方领导人的政治支持非常重要，因为当全球经济在大流行之后反弹时，控制新兴技术形式的任何人都将有先机。 他[提出了](https://www.warner.senate.gov/public/_cache/files/8/9/895e0a40-65ee-43cc-8629-450555faefe7/AC6A0E54DB992E1612161C48BB34FC57.democracy-technology-partnership-act-two-pager-explainer.pdf)立法，要求在美国国务院内部设立一个部门，以建立围绕数字政策制定的民主联盟，并预留50亿美元用于美国与其他西方国家之间的联合技术研究项目。
 
-> Along with my [@G7](https://twitter.com/G7?ref_src=twsrc%5Etfw) colleagues 🇨🇦🇫🇷🇩🇪🇮🇹🇯🇵🇺🇸🇪🇺 we deplore China's decision to erode democratic elements of the electoral system and eliminate dissent in Hong Kong. We urge China to respect the rights and freedoms of the Hong Kong people.[https://t.co/40qOpElWZ4](https://t.co/40qOpElWZ4)
-> — Dominic Raab (@DominicRaab) [March 12, 2021](https://twitter.com/DominicRaab/status/1370464022135472130?ref_src=twsrc%5Etfw)
+他说：“如果把这个问题推到议程的下方那么就不会引起应有的关注；如果中共国为人工智能制定规则，那么它将破坏我们所有的民主国家。”
 
+### **关于北京（和布鲁塞尔）的看法**
 
+参议员强调，他的战斗对象不是中国人民，而是中共国政府。 这反映了川普政府的类似措辞。川普政府在中共国领先于西方同行的新一代电信设备5G上[与北京强硬对决](https://www.politico.com/news/2021/02/04/trump-europe-5g-466016)。
 
-**香港：七国集团关于香港选举变动的声明**
+中共国的5G巨头华为已成为全球最大的此类设备供应商。 但是，考虑到川普领导下的国家安全问题，已经看到欧洲及其他一些国家不再使用其技术。华为公司表示不与中共国政府共享数据。
 
-七国集团外交部长就中共国决定侵蚀香港选举制度的民主因素发表了以下声明
+华纳说：“川普对中共国在方向上是正确的，但是在执行上确实是错误的。如果美国人开始的时候以更明智的方式对待华为，那可能早就发生了。”
 
-中共国人民大会堂周四批准了一项决定草案，以改变香港的选举制度，进一步减少在香港机构中的民主代表制，并引入一种机制来审查政客对北京的忠诚度。
+尽管华盛顿重新表示愿意与盟国合作遏制北京的崛起，但西方民主国家之间的内斗，其中许多在新兴技术上的相互竞争，在建立统一对抗中共国的战线上是一个重大障碍。
 
-这些措施是北京在2020年6月实施《国家安全法》后，为巩固其对亚洲金融中心的日益独裁统治努力的一部分，批评者将其视为压制异议的一种工具。
+欧盟对北京的战略[仍不明朗](https://www.politico.eu/article/missing-europe-china-diplomacy-economic-plan/)，它已经概述了广泛的计划，将数十亿美元投资于微芯片，电动汽车电池和人工智能，以将这27个国家重新推向全球舞台，成为与美国和中共国的竞争者。 这些计划已经向美国发出了骇人听闻的声音，这有可能违反全球贸易规则。 随着各国政府在[全球微芯片短缺](https://www.politico.eu/newsletter/digital-bridge/politico-digital-bridge-privacy-shield-microchip-realpolitik-australias-rod-sims/)的情况下争夺主导地位，这可能会引发针锋相对的报复性关税，尤其是半导体方面的报复性关税。
 
-欧盟委员会和高级代表在周五的年度报告中指出，“香港的政治恶化令人震惊”，理由是实施了国家安全法，一月份逮捕了数十名民主运动人士，以及北京本周将全面改革北京的政治举动。
+欧洲各国首都在如何接近中共国方面也存在分歧。 一些国家，例如德国，希望加强与北京的贸易联系，同时努力捍卫其公司收购当地公司。 其他国家，例如法国，则赞成采用自上而下的方法，这将使欧盟政府建立国际冠军，与东方竞争对手正面竞争。
 
-欧盟高级代表兼副主席约瑟夫•博雷尔（Josep Borrell）说：“中共国有意识地取消香港的“一国两制”原则，违反了其国际承诺和《香港基本法》。
+### **一起工作，彼此分开**
 
-另外，澳大利亚和新西兰表示深切关注，敦促香港和中共国大陆允许香港市民参与其治理的“真正途径”，并保护立法局的作用。
+两位欧洲国家的政策制定者告诉《欧洲政治报》（POLITICO），川普执政的最后四年表明，大西洋彼岸的许多国家不再依赖美国，他们认为华盛顿与北京一样，是工业上的竞争对手。 官员们在匿名的情况下发言，因为他们无公开发言权。
 
-澳大利亚和新西兰外交部长马里斯·佩恩（Marise Payne）和纳奈亚·马胡塔（Nanaia Mahuta）说：“这些变化是将进一步削弱香港的自治权的重要一步”。
+华纳承认，即使在为新兴技术设定西式规则的努力中，民主国家之间的竞争仍将继续。 他补充说，他的目标不是要选拔工业冠军来与中国人抗衡。 相反，世界民主国家应该设定共同的具体目标，以打击北京已经在其本土产业上投资的数十亿美元。
 
-香港政府在周五晚上的一份声明中表示，强烈反对欧盟的评论，该报告对中共国是否愿意坚持“一国两制”原则的质疑是“毫无根据的指责”。
+他说：“没有西方公司可以与中共国的经济模式竞争。在21世纪，随着竞争围绕技术发展，将出现基于技术的联盟。那些围绕5G技术融合在一起的国家可能与基于人工智能融合在一起的国家有所不同。”
 
-香港政府说，自从《国家安全法》实施以来，社会已经恢复了稳定。
+在欧洲某些地区，政客们已经在寻求推动“[技术主权](https://www.politico.eu/article/europe-digital-technological-sovereignty-facebook-google-amazon-ursula-von-der-leyen/)”议程，以建立欧盟的本土技术产业。而这往往是美国、日本和澳大利亚等其他民主国家为此要付出代价，但这一信息可能并没有很好地传播出去，表示不愿意与华盛顿在针对中共国的数字政策制定方面的领导力保持一致。
 
-文章来源：[https://www.theguardian.com/world/2021/mar/13/hong-kong-g7-calls-on-china-to-end-oppression-of-democratic-values](https://www.theguardian.com/world/2021/mar/13/hong-kong-g7-calls-on-china-to-end-oppression-of-democratic-values)
+在西方科技联盟可以建立未来的技术之前，仍然必须确定主要的症结，包括欧洲最高法院的[持续论点](https://www.politico.com/news/2020/12/04/us-eu-relations-data-privacy-442773)，即华盛顿的信息在穿越大西洋传递时，华盛顿并不能完全保护欧盟公民的数据。
+
+华纳在谈到民主制必须如何在数字规则上建立更紧密的联系时说：“至上的论点是好的，一个完全有效的问题是执行能力。”
+
+文章来源：[https://www.politico.eu/article/mark-warner-digital-bridge-tech-china/](https://www.politico.eu/article/mark-warner-digital-bridge-tech-china/)
 
 0
