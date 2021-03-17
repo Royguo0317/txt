@@ -1,25 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国人还在做梦吗？中共这只狼已经来了！
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/984070/)
+## 香港：七国集团呼吁中共国结束对民主价值观的“压制”
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/984126/)
 
-#### 翻译报道： Wendy
+翻译：康州盘古农场 – 郭班之樱
+校对：康州盘古农场 – TrueSky
+编辑：康州盘古农场 – 轰炸机
 
-####  责编：人间四月
+据路透社，3月13日报道：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-71.png)图片：163.com
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-127.jpg)亲民主活动家黄之锋（Joshua Wong）因在2019年反政府抗议活动中未经授权集会而于12月被判入狱摄影：Tyrone Siu /路透社
 
-2021年3月13日来自布莱特巴特（Breitbart） 新闻媒体的汉娜·布洛(Hannah Bleau)报道，HBO的实时节目主持人比尔马赫（Bill Maher）在节目中大骂美国人愚蠢，美国议会政治体制只会永无休止的讨论，却什么都不做。他用大段的时间强调独裁集权的中共国取得的成就，从4万公里的高铁，到飞速发展的几百座城市，解决庞大贫困人口，到基本上垄断了5G和制药市场….在新冠疫情期间，中共国10天内建立4000多个方舱….中共国正在占据主导地位。美国还沉浸在自己的文化教育，科技，和政治的狂欢中。拜登总统竞选前后对中共国的看法已经从“他们不是坏人，不是我们的对手”， 改变到美国不充分解决基础设施问题，中共国将“吃掉我们的午餐“。
+包括美国在内的七国集团外交部长对他们所说的中共国从根本上侵蚀[香港](https://www.theguardian.com/world/hong-kong)选举制度的民主因素的决定表示严重关切。
 
-他警告中共国在全球和美国的影响力正在上升-而这个事实却被民主党人忽视，美国让文化问题，政治正确性转移人们对更紧迫问题的注意力，中共国正在日益占据主导地位。在节目中，马赫用了大部分的独白来强调中共国取得的进步，尽管他承认这个政权的威权性质。然而对于美国，尤其基础设施方面，从来没有做过任何事情，全美国一半的人正在进行一场永无止境的比赛，浪费了大量时间和精力，中共一个水库都造好了，美国人可能还在讨论取什么名字。
+七国集团发表了由英国外交大臣多米尼克·拉布（Dominic Raab）发的推文，称[最近改变香港选举制度的决定](https://www.theguardian.com/world/2021/mar/11/china-adopts-new-laws-to-ensure-only-patriots-can-govern-hong-kong)表明了中共国当局决心消除在香港的异议和见解。
 
-马赫说到CCP病毒袭击武汉时，这个共产主义国家做了什么。并承认武汉是新型冠状病毒的发源地。他还说拜登总统没有完全解决他儿子与中共国商业往来的挥之不去的担忧，他在民主党初选期间驳斥了中共国的威胁，宣称这不是对美国的竞争，这是出了名的。然而，拜登上个月改变了语气，宣称如果美国不充分解决基础设施问题，中共国将“吃掉我们的午餐”。
+推文说：“我们呼吁中共国和[香港](https://www.theguardian.com/world/hong-kong)当局恢复对香港政治机构的信心，并结束对那些倡导民主价值观和捍卫权利与自由的人毫无根据的压迫。”
 
-#### 评：
+与七国集团（加拿大，法国，德国，意大利，日本，英国和美国）欧盟同僚一道，我们对中共国为侵蚀选举制度的民主元素并消除香港的异议而做出的决定表示遗憾。 我们敦促中共国尊重香港人民的权利和自由。
 
-从比尔马赫的言论中，看到美国的左翼理念跟中共国的愚民统治是一样的。他们只是告诉人们集权政府可以做“大事“，而没有告诉人们这个集权国家做了多少坏事。那些高铁的项目是为中共体制捞取个人利益的工具，养肥了体制内的各级官员。很多工程是重复过度建设，劳民伤财，亏了百姓的腰包填满了权贵的钱包， 多少农民工苦干一年，到头来连工钱都要去讨要。多少承包商，为了工程款求爷爷告奶奶请客吃饭送礼磕头，有的倾家荡产，有的搭进了自己的健康。这些左翼的美国民主党人宁肯相信中共国宣传的大规模脱贫，却不见城市里驱逐低端人口的土匪行为，农村的大规模贫困人口在中共的大外宣的文件中就可以脱贫。难道他是中共的喉舌？武汉的方舱是给谁建的？不过他说的对，武汉是新冠病毒的发源地。让全世界每个国家都受到来自武汉中共军方病毒的攻击。不是美国会不会输的问题，是不推翻CCP，全人类都会输。没有郭先生的爆料革命，没有我们的英雄科学家，没有千千万万的战友一起努力，揭露中共国的邪恶野心，人类将万劫不覆。美国人该醒醒，全世界的正义的人们该醒醒了。
 
-原文链接：[Bill Maher: While China’s Dominating the World, America Is Having a ‘Never-Ending Woke Competition’](https://www.breitbart.com/entertainment/2021/03/13/bill-maher-while-chinas-dominating-the-world-america-is-having-a-never-ending-woke-competition/)
+
+> Along with my [@G7](https://twitter.com/G7?ref_src=twsrc%5Etfw) colleagues 🇨🇦🇫🇷🇩🇪🇮🇹🇯🇵🇺🇸🇪🇺 we deplore China's decision to erode democratic elements of the electoral system and eliminate dissent in Hong Kong. We urge China to respect the rights and freedoms of the Hong Kong people.[https://t.co/40qOpElWZ4](https://t.co/40qOpElWZ4)
+> — Dominic Raab (@DominicRaab) [March 12, 2021](https://twitter.com/DominicRaab/status/1370464022135472130?ref_src=twsrc%5Etfw)
+
+
+
+**香港：七国集团关于香港选举变动的声明**
+
+七国集团外交部长就中共国决定侵蚀香港选举制度的民主因素发表了以下声明
+
+中共国人民大会堂周四批准了一项决定草案，以改变香港的选举制度，进一步减少在香港机构中的民主代表制，并引入一种机制来审查政客对北京的忠诚度。
+
+这些措施是北京在2020年6月实施《国家安全法》后，为巩固其对亚洲金融中心的日益独裁统治努力的一部分，批评者将其视为压制异议的一种工具。
+
+欧盟委员会和高级代表在周五的年度报告中指出，“香港的政治恶化令人震惊”，理由是实施了国家安全法，一月份逮捕了数十名民主运动人士，以及北京本周将全面改革北京的政治举动。
+
+欧盟高级代表兼副主席约瑟夫•博雷尔（Josep Borrell）说：“中共国有意识地取消香港的“一国两制”原则，违反了其国际承诺和《香港基本法》。
+
+另外，澳大利亚和新西兰表示深切关注，敦促香港和中共国大陆允许香港市民参与其治理的“真正途径”，并保护立法局的作用。
+
+澳大利亚和新西兰外交部长马里斯·佩恩（Marise Payne）和纳奈亚·马胡塔（Nanaia Mahuta）说：“这些变化是将进一步削弱香港的自治权的重要一步”。
+
+香港政府在周五晚上的一份声明中表示，强烈反对欧盟的评论，该报告对中共国是否愿意坚持“一国两制”原则的质疑是“毫无根据的指责”。
+
+香港政府说，自从《国家安全法》实施以来，社会已经恢复了稳定。
+
+文章来源：[https://www.theguardian.com/world/2021/mar/13/hong-kong-g7-calls-on-china-to-end-oppression-of-democratic-values](https://www.theguardian.com/world/2021/mar/13/hong-kong-g7-calls-on-china-to-end-oppression-of-democratic-values)
 
 0
