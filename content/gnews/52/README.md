@@ -1,51 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0317.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/983559/)
+## 【新闻宅急便】美日联合新闻声明
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/983743/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0317.jpeg)
-#### 香港问题
+作者：喜马拉雅东京樱花团 / Porsche
 
-3月16日美国国务卿安东尼-布林肯发推称，“今天，美国根据《香港自治法》将24名中国和香港官员列入名单，以应对中（共）国进一步破坏向香港人承诺的自治、权利和自由。#支持香港”
+![](https://lh4.googleusercontent.com/S4DeryxFfiAOqwx776_C217lftdj0G8irEa7PovFc6E1lgDWyJMjlnbopeokj6dwL_Jd0_0fqQ3Uhd2UBwCEqSKfG_5Z40IeBQ-XKSFO1Ofef4g_UGooxTym0PJiX3EB5rha5834)
+[图片来源](https://imgur.com/xETv8C3)
 
+美国务卿布林肯、国防部长奥斯汀，日外务大臣茂木敏充、防卫大臣岸信夫于2021年3月16日在日本东京举行了美日安全协商委员会会议，部长们重申:
 
-
-> Today the United States listed 24 PRC and Hong Kong officials under the Hong Kong Autonomy Act in response to the PRC further undermining the autonomy, rights, and freedoms promised to people in Hong Kong. [#StandWithHongKong](https://twitter.com/hashtag/StandWithHongKong?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/jYvPxgFh54](https://t.co/jYvPxgFh54)
-> — Secretary Antony Blinken (@SecBlinken) [March 17, 2021](https://twitter.com/SecBlinken/status/1372016601940291585?ref_src=twsrc%5Etfw)
-
-
-
-#### 中共舔美开幕式
-
-当日左派媒体《彭博社》发推本社文章时称，“中美会谈在阿拉斯加开始前，已经布满了紧张的气氛已经”，然而文章封面图却选取了被中共蓝金黄的迪士尼广告场景，无不充满穿着中国传统服装的米老鼠变得“憨态可掬”“媚态十足”的“欢乐”气氛。
-
-彭博社文章称：
-
-拜登政府高级官员明晚与中国同行首次会面时，需要大白板记录其中所有复杂的问题。会议中将至少有六七个独立的、相互竞争的因素发挥作用。例如，一个很大的冲突点是乔-拜登总统对可再生能源发电的推动。与他对所谓的中（共）国在新疆侵犯人权相冲突，因为新疆恰好是太阳能电池板关键部件的主要供应商。
+- 美日同盟仍然是印度洋-太平洋地区和平、安全和繁荣的基石。
+- 日本决心提高能力，加强国防，进一步强化联盟。
+- 美国强调，将通过包括核在内的全部能力，坚定不移地致力于保卫日本。
+- 在日益激烈的地缘政治竞争和COVID-19、气候变化、重振民主等挑战下，美日两国再次承诺促进自由开放的印太地区和基于规则的国际秩序。
 
 
+美国和日本承认:
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-230.png)
-
-[https://twitter.com/business/status/1372147986831192076?s=20](https://twitter.com/business/status/1372147986831192076?s=20) [https://www.bloomberg.com/news/newsletters/2021-03-17/everyone-s-playing-it-cool-in-u-s-china-talks?utm\_source=twitter&utm\_campaign=socialflow-organic&utm\_content=business&utm\_medium=social&cmpid=socialflow-twitter-business](https://www.bloomberg.com/news/newsletters/2021-03-17/everyone-s-playing-it-cool-in-u-s-china-talks?utm_source=twitter&amp;utm_campaign=socialflow-organic&amp;utm_content=business&amp;utm_medium=social&amp;cmpid=socialflow-twitter-business)
-
-
-（本文当日持续更新中）
-
-
-
-
-
-文章观点部分仅代表笔者本人。
-
-编辑/评议：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+- 中（共）国不符合现有国际秩序的行为，给联盟和国际社会带来政治、经济、军事和技术上的挑战。
+- 部长们承诺反对对本地区其他国家的胁迫和破坏稳定的行为，这种行为破坏了以规则为基础的国际体系。
+- 他们重申支持合法商业畅通无阻和尊重国际法，包括航行和飞越自由以及其他合法利用海洋的行为。
+- 部长们还对该区域最近的破坏性事态发展，如“中国海警法”表示严重关切。
+- 美国根据我们的安全条约第五条对日本防卫的坚定承诺，其中包括尖阁群岛。 美国和日本仍然反对任何试图改变现状或破坏日本对这些岛屿管理的单方面行动。
+- 部长们强调了台湾海峡和平与稳定的重要性。
+- 他们重申反对中国在南海的非法海洋主张和活动，并回顾说，根据1982年《海洋法公约》组成的菲律宾-中国仲裁法庭2016年7月的裁决是最终的，对各方具有法律约束力。
+- 部长们对香港和新疆维吾尔自治区的人权状况表示严重关切。
 
 
+认识到北朝鲜的核武库对国际和平与稳定构成威胁，各位部长重申他们对北朝鲜完全无核化的承诺，并敦促平壤遵守联合国安全理事会决议规定的义务。部长们还确认，必须立即解决朝鲜绑架问题。
 
-0
+美国、日本和大韩民国之间的三边合作对我们在印度洋-太平洋地区的共同安全、和平和繁荣至关重要。美国和日本重申，**联盟的力量来自于我们共同的价值观**，并因我们与志同道合的民主国家的密切伙伴关系网络而得到加强。3月12日的四国峰会向世界展示了我们的共同愿景，即建立一个以普遍价值观为基础、不受强制力限制的自由、开放和包容的区域。部长们承诺与**东南亚国家联盟**(东盟)合作，申明坚决支持东盟的中心地位和团结，以及东盟的《印度洋-太平洋展望》。
+
+认识到日益严峻的区域安全环境，部长们再次承诺加强密切协调，以调整安全政策，深化所有领域的防务合作，并通过联盟的作用、任务和能力进行协商，加强延伸的威慑力。他们强调了**空间和网络等领域**的重要性，以及进一步加强信息安全的重要性。并重申，现实的双边和多边演习和培训对于保持联盟的战备状态和威慑态势以及应对未来的挑战是必要的。
+
+部长们承认，在国防部进行全球态势审查时，必须进行密切协调。他们欢迎在部队调整工作方面取得的进展，并重申致力于以保持战备状态和可持续存在的方式执行当前的安排，同时减轻对当地社区的影响。他们重申，在Schwab-Henokosaki营地区域和邻近水域建造普天间替换设施的计划，是避免继续使用普天间海军陆战队航空基地的唯一解决办法，并承诺尽快完成建造工作。关于东道国支助，各位部长同意将现行《特别措施协定》延长一年的修正案，指示其谈判人员努力达成一项新的互利的多年期协定。
+
+为纪念2011年3月东日本大地震及其后造成的数千人丧生，部长们强调了联盟的合作精神，并重申他们致力于相互合作，维护印度洋-太平洋地区的和平与稳定。认识到美日联盟的深度和广度，以及在众多共同政策优先事项上增强势头的必要性，部长们呼吁在今年晚些时候再次召开安全协商委员会会议。
+
+新闻来源：
+
+[美国务院网站](https://www.state.gov/u-s-japan-joint-press-statement/)
+
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+
+*校对：喜马拉雅东京樱花团 / 文贻Kevin
+责任编辑：喜马拉雅东京樱花团 / 東洋武士
+发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews.org/wp-content/uploads/2021/03/二维码-1.jpg)
+0317C111e
+
+
+
++2
