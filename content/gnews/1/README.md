@@ -1,51 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0317.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/983559/)
+## 3/17/2021 财经快讯：美国禁止从新疆进口太阳能产品；诺基亚计划裁员1万人
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/983746/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0317.jpeg)
-#### 香港问题
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Picture1-53.jpg)
+[图片来源](https://technews.tw/)
 
-3月16日美国国务卿安东尼-布林肯发推称，“今天，美国根据《香港自治法》将24名中国和香港官员列入名单，以应对中（共）国进一步破坏向香港人承诺的自治、权利和自由。#支持香港”
+**1.劳联-产联敦促美国禁止从中共国新疆进口太阳能产品**
 
+[在写给国务卿安东尼·布林肯和白宫国家安全顾问杰克·沙利文的信中，劳工联合会和产业工会联合会总裁理查德·特鲁姆卡表示，新疆太阳能生产中“有力证据表明有系统的强迫劳动”，他要求“立即采取集中行动”。特鲁姆卡在3月12日的信中说：“拜登政府和国会必须采取行动，禁止进口含有强迫劳动制成的多晶硅的太阳能产品。拜登政府已经批准了特朗普政府的最后决定，即中共已对新疆的维吾尔族穆斯林进行种族灭绝，并表示美国必须准备让中共付出代价。](https://www.reuters.com/article/us-usa-trade-china-idUSKBN2B806L)
 
+**2.诺基亚将在全球裁员1万人**
 
-> Today the United States listed 24 PRC and Hong Kong officials under the Hong Kong Autonomy Act in response to the PRC further undermining the autonomy, rights, and freedoms promised to people in Hong Kong. [#StandWithHongKong](https://twitter.com/hashtag/StandWithHongKong?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/jYvPxgFh54](https://t.co/jYvPxgFh54)
-> — Secretary Antony Blinken (@SecBlinken) [March 17, 2021](https://twitter.com/SecBlinken/status/1372016601940291585?ref_src=twsrc%5Etfw)
+[芬兰电信巨头诺基亚将在未来两年内削减成本，在全球范围内裁员5,000至10,000个。目前尚不清楚削减的大部分资金将流向何方，但该公司表示，由于削减了6亿欧元（约合46.43亿人民币）的成本，英国约有96个工作岗位受到了威胁。该公司目前在全球拥有9万名员工，自2015年以来裁员了数千人。去年，诺基亚在欧洲雇用了将近4万名员工，在亚太地区雇用了2.05万名员工，在中共国拥有1.37万名员工，在北美拥有1.2万名员工，在拉丁美洲拥有3,700名员工。此次重组旨在提高诺基亚在瑞典竞争对手爱立信和中共国华为等竞争对手中的表现。](https://www.bbc.com/news/business-56412693)
 
+**3.中共国必须关闭100吉瓦的燃煤发电能力才能实现气候目标**
 
+[上海（路透社）- 周二一份新的研究报告显示，中共国应迅速退役超过100吉瓦的低效燃煤发电能力，并在2045年之前淘汰大部分剩余电厂，以实现其气候目标。去年，全球最大的能源消费国依靠煤炭来满足其总能源需求的56.8％。该份额已从十年前的近70％下降，但总体消费量仍在上升。中共国还计划新建200吉瓦以上的燃煤电厂，因为它必须采取微妙的平衡措施来支持其增长所需的能源。](https://www.reuters.com/article/us-climate-change-china-coal-idUSKBN2B826Q)
 
-#### 中共舔美开幕式
+**4.鲍里斯·约翰逊被指屈膝于中共**
 
-当日左派媒体《彭博社》发推本社文章时称，“中美会谈在阿拉斯加开始前，已经布满了紧张的气氛已经”，然而文章封面图却选取了被中共蓝金黄的迪士尼广告场景，无不充满穿着中国传统服装的米老鼠变得“憨态可掬”“媚态十足”的“欢乐”气氛。
+[鲍里斯·约翰逊今天面临保守党反对，他公布了一份呼吁与中共国“深化贸易联系”的重要评估报告，尽管他承认中共对西方是一个“系统性”威胁。约翰逊告诉国会议员，政府一直站在批评中共侵犯人权的前沿。他说，毫无疑问，中共将对像我们这样的开放社会构成巨大挑战。但我们还将在符合我们价值观和利益的情况下与中共合作。](https://www.dailymail.co.uk/news/article-9367389/Tory-revolt-review-calls-deeper-trade-links-China.html)
 
-彭博社文章称：
+**5.中共国科技巨头受到监管机构的压力**
 
-拜登政府高级官员明晚与中国同行首次会面时，需要大白板记录其中所有复杂的问题。会议中将至少有六七个独立的、相互竞争的因素发挥作用。例如，一个很大的冲突点是乔-拜登总统对可再生能源发电的推动。与他对所谓的中（共）国在新疆侵犯人权相冲突，因为新疆恰好是太阳能电池板关键部件的主要供应商。
+[截至周一，腾讯股价已从市值缩水逾600亿美元（约合3902.7亿人民币），原因是其股价因监管机构审查力度加大的担忧而下跌。中共国国家市场监管局周五表示，已就10宗违反反垄断规则的交易中的12家公司处以罚款；这些公司包括腾讯，百度，滴滴出行，软银和一家由字节跳动支持的公司。习近平周一下令监管机构加强对互联网公司的监管，打击垄断并促进公平竞争。](https://www.bbc.com/news/business-56410769)
 
+**6.中共要求阿里巴巴处置其媒体资产**
 
+[中共最近下令由中共国商业巨头马云创立的阿里巴巴集团撤出其媒体资产，因为中共当局越来越担心这家科技巨头对中共国公众舆论的影响。根据《华尔街日报》的统计，在周一美国股市开盘前，其在公开上市公司中所持股份的总市值总计超过80亿美元。其中包括新浪微博约35亿美元的股份，以及在中共国年轻人中很受欢迎的视频平台哔哩哔哩近26亿美元的股份。](https://www.wsj.com/articles/beijing-asks-alibaba-to-shed-its-media-assets-11615809999)
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-230.png)
+By 【金融组-小海星】
 
-[https://twitter.com/business/status/1372147986831192076?s=20](https://twitter.com/business/status/1372147986831192076?s=20) [https://www.bloomberg.com/news/newsletters/2021-03-17/everyone-s-playing-it-cool-in-u-s-china-talks?utm\_source=twitter&utm\_campaign=socialflow-organic&utm\_content=business&utm\_medium=social&cmpid=socialflow-twitter-business](https://www.bloomberg.com/news/newsletters/2021-03-17/everyone-s-playing-it-cool-in-u-s-china-talks?utm_source=twitter&amp;utm_campaign=socialflow-organic&amp;utm_content=business&amp;utm_medium=social&amp;cmpid=socialflow-twitter-business)
+素材搜集: Wendy、Lingken、Sharon G
 
-
-（本文当日持续更新中）
-
-
-
-
-
-文章观点部分仅代表笔者本人。
-
-编辑/评议：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
-
-
+校对: Tracy
 
 0
