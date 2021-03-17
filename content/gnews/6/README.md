@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】美国必须不遗余力地打击中共弱点
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/983115/)
+## 【粤语配音】中共正向我们开战
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/983154/)
 
-摘要：13/03/2021 我们应该将中共定为跨国犯罪组织。这是一场意识形态战。美国必须不遗余力地就中共的弱点予以打击。
+摘要：13/03/2021 班农——中共正向我们开战。
 
 By： 【秘密翻译组 G-Translators】
 

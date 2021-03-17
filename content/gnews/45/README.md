@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 绝对证据证明：中共正在新疆对维吾尔族族人进行种族灭绝
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/982297/)
+## 作为《种族灭绝公约》的缔约国，每一个国家都有责任对中共采取行动！
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/982464/)
 
-3/13/2021 绝对证据证明：中共正在新疆对维吾尔族族人进行种族灭绝。
+3/13/2021 作为《种族灭绝公约》的缔约国，每一个国家都有责任对中共采取行动！
 
 By： 【秘密翻译组 G-Translators】
 

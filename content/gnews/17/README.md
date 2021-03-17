@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】美印太司令:中共用庞大的宣传机器开展对美国的信息战
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/982824/)
+## 【粤语配音】章家敦论述他认为的武汉实验室真相
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/983051/)
 
-3/9/2021 美印太司令:中共用庞大的宣传机器开展对美国的信息战。
+摘要：13/03/2021 章家敦论述他认为的武汉实验室真相。
 
 By： 【秘密翻译组 G-Translators】
 
