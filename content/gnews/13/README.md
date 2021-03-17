@@ -1,40 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 3/16/2021 财经快讯：美联储会议或成就“3月疯狂”；比特币自动取款机现身
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/980734/)
+## Signal在中国被封
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/982138/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Picture2-16.jpg)
-[图片来源](https://www.csdn.net/)
+【日本东京方舟农场】作者：青衣 素材采编：武汉老温 校对：文小律
 
-**1.****本周美联储会议可能成为市场的 “****3****月疯狂”**
+3月16日上午，手机加密通讯应用程式Signal在中国境内被封，Signal的官方网站也无法访问。到目前为止，该应用程序和网站似乎在香港还可正常运行。
 
-[随着美国经济即将复苏，美联储主席杰罗姆·鲍威尔周三将在为期两天的会议后向媒体发表讲话，届时美联储的宽松政策将成为人们关注的焦点。美联储将发布新的经济和利率预测，可能显示美联储官员预计在2023年加息。](https://www.cnbc.com/2021/03/15/why-this-weeks-fed-meeting-could-be-march-madness-for-markets.html)
+当Signal在苹果商店中国区下载量接近51万次时，其苹果APP在中国出现连接中断，而Signal的安卓系统APP在较早时就已被封。据路透社中国深圳报道：“中国用户称，如果不使用虚拟专用网（VPN），加密信息应用程序Signal似乎在中国不再工作。” 另据正在推特（Twitter）上讨论故障的用户称，Signal的短信验证码目前在中国境内已接收不到，这将使在中国大陆使用电话号码的人无法重新注册该服务。但若用户使用VPN，便仍可访问Signal 。
 
-[全球最大资产管理公司贝莱德的的固定收益首席投资官里克•里德尔表示，鲍威尔的简报可能“令人兴奋”，美联储会议可能成为美联储对市场的“3月疯狂”，因为这位主席可能开始就美联储未来政策路径发表一些看法。](https://www.cnbc.com/2021/03/15/why-this-weeks-fed-meeting-could-be-march-madness-for-markets.html)
+目前Signal的新闻团队没有立即回应置评请求，而记者也无法立即联系中国网络空间管理局对此发表评论。
 
-**2.比特币自动取款机将会出现在你附近**
+在今年1月6日之后，WhatsApp更新了隐私条款，并保留与其母公司Facebook Inc和Instagram与Messenger等部门共享用户数据（包括位置和电话号码）的权利，这导致Signal在全球范围内的下载量激增。根据移动应用数据分析公司Sensor Tower的数据，Signal在中国的ios上已被下载了近51万次，而在App Store和Google Play上已被全球下载了1亿次。
 
-[蒙大拿州的烟店、卡罗莱纳州的加油站以及纽约市偏远角落的熟食店都推出了一项新功能: 比特币自动取款机，顾客可以在这里购买或出售数字货币，有时还可以提取现金。过去一年，在加密货币交易狂潮的推动下，比特币的价格超过了5.8万美元，这台机器在美国迅速增长。截至今年1月，美国共有28,185台比特币自动取款机。](https://www.reuters.com/article/usa-huawei-tech-canada-idUSL1N2L939H)
+Signal在中国ios上总共下载量已超过50万，尽管在有14亿人口的国家中，这个数字相对而言还是比较低的。但是，Signal的增长对于那些试图监视和控制中国大陆互联网上一切的中共当局而言，绝对会对此产生担忧。Signal的端到端加密将使监视两个人之间的通信变得极为困难。之前曾有外媒报道称，Signal的服务是中共国仍可访问的为数不多的外国平台之一。持不同政见者、激进主义者和其他人可利用该服务规避审查制度。
 
-**3**.**脸书同意为新闻集团在澳大利亚的内容付费**
+根据TechCrunch的数据显示， Signal是由Open Whisper Systems开发的，由于与美国情报界有联系，因而备受关注。仅凭这一点，就使Signal最初在中国境内被允许使用而让人感到有些惊讶。如今，Signal遭中共当局封禁，也就显得不出所料。
 
-[鲁伯特•默多克的新闻集团表示，与脸书达成的一项具有里程碑意义的三年协议，将为其澳大利亚内容付费，这将改变新闻业的贸易条款。在澳大利亚通过有争议的世界第一部旨在使科技平台为新闻业付费的法律之后的几周，该交易就获得了保障。新闻集团首席执行官罗伯特•汤姆森表示:“与脸书的协议是改变新闻行业贸易条件的一个里程碑，将对我们的澳大利亚新闻业务产生重大而有意义的影响。”](https://www.standard.co.uk/news/world/facebook-agrees-to-pay-news-corp-for-content-in-australia-b924312.html)
+近年来，中共的网络主管部门变得越来越肆无忌惮，不断扩大禁止使用的应用程序、媒体渠道和社交媒体网站范围。Facebook、Twitter、WhatsApp、Instagram等境外社交媒体应用程序全部遭到封禁。眼下，唯一一个不需翻墙软件而可使用的境外通讯应用程序Signal，终于也被封杀了。日后中国人只能被迫选择使用被中共严加管控的微信和QQ了，中国人自由发声的渠道再一次受到严重挤压。
 
-**4.海事法预计将使中共在南海法律纠纷中获得优势**
+注：本文仅代表作者观点
 
-[媒体报道和分析人士说，中共国官员将通过一项基本海洋法，正式确立他们对有争议、资源丰富的南海的主权主张，并在国际法律领域更有效地捍卫这些主张。文莱、中共国、马来西亚、菲律宾、台湾和越南都声称对从香港到婆罗洲的这片海域拥有全部或部分主权。这条350万平方公里的水道是渔业、航道和海底化石燃料储备的宝贵资源。越南去年暗示，它正在考虑在国际法庭上起诉中共国。](https://www.voanews.com/east-asia-pacific/voa-news-china/maritime-law-expected-give-beijing-edge-south-china-sea-legal)
+参考链接：
 
-**5**.**中央财经委员会：金融活动要全部纳入金融监管**
+1.[https://twitter.com/Reuters/status/1371716626488426499](https://twitter.com/Reuters/status/1371716626488426499)
 
-[3月15日，据央视报道，中央财经委员会第九次会议召开。会议再次明确指出，金融活动要全部纳入金融监管。中央财经委员会第九次会议指出，平台经济发展在起到积极作用的同时，存在一些突出问题，一些平台企业发展不规范、存在风险，平台经济发展不充分、存在短板，监管体制不适应的问题也较为突出。](https://m.21jingji.com/article/20210315/herald/d8828f98b846898f1883b7b03b0b7f0e.html)
+2.[https://twitter.com/24x7newsguru/status/1371724666134540288](https://twitter.com/24x7newsguru/status/1371724666134540288)
 
-**6**.**猎聘、前程无忧等遭华为小米VIVO等下架**
+3.[https://gizmodo.com/encrypted-messaging-app-signal-goes-down-in-china-1846483923](https://gizmodo.com/encrypted-messaging-app-signal-goes-down-in-china-1846483923)
 
-[央视3·15晚会点名智联招聘、前程无忧和猎聘等求职应用泄露求职者简历。而当晚，三个求职APP在华为、小米、OPPO、VIVO等主流安卓品牌手机应用商店中已经被下架或无法提供下载。](https://www.sohu.com/a/455778032_114988)
-
-By 【金融组-Tracy】
-
-素材搜集: Wendy、Lingken、Sharon
-
-0
++1

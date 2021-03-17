@@ -1,57 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 针对“打假”315，排演查处“息”民意
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/980419/)
+## 中共病毒是实验室制造&nbsp; 而且中共有解药
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/981826/)
 
-作者：纽约香草山农场  鹰(文言)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/778855.jpg)
-新浪网3月15日在中共例行的“315打假”晚会后，持续发布晚会中所揭露问题的相关查处进程的新闻，北京市场监管局连夜出击感觉“很忙”。
+新闻简述：（2021年2月1日盖特）中共病毒持续带来大范围感染和死亡的同时，许多世界顶尖科学家开始为病毒非自然起源而发声，比如医药界的重要影响人物奎伊医生。中共对世界掩盖病毒的真相，更糟糕的是，中共隐藏了拥有病毒解药的事实。中共推广的病毒疫苗是生化武器的附属战争武器，又称为基因控制。因此，解决病毒的唯一办法就是推翻中共的邪恶统治。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210201_Getter1.srt.txt)
+**中共病毒是实验室制造****  ****而且中共有解药**
 
-315晚会爆出河北青县“瘦肉精”喂羊问题之后，北京丰台区市场监管局“第一时间”前去排查，未发现来自青县的羊肉；又曝光东方广场某钟表维修企业，消磁维修收取过高费用的问题之后，东城区市场监管局“连夜”奔赴现场处理，并决定下一步将在全区内开展钟表维修企业整治。试问315晚会的彩排、通告撰写、过审等环节至少都需要一两天的时间，而新浪网作为中共官媒不仅实时监控社会舆情，而且代表中共发声，表明官方态度。它又怎么可能不提前与相关主管部门“通气”而直接曝光呢？不“串通一气”往小的说是部门失责，往大的说更是打脸政府不履职。
+**The CCP Virus Is Lab-Made and the CCP Has the Antidote**
 
-所以，所谓的“第一时间”和“连夜调查”都是中共自导自演的戏码。相关部门提前几天就得知事情具体情况，而故意选在315曝光后引发了舆论热点，再雷厉“处理”。试问这几天的“小心翼翼”和不打草惊蛇为哪般？再者北京市丰台区市场监管局去查羊肉、东城区局去查手表维修，难道丰台区就不存在手表维修问题、东城区就不存在瘦肉精羊肉问题吗？媒体报道中的“排兵布阵”不仅彰显中共政府的形式主义，更助长其官僚风气。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/658777.jpg)
-315晚会还爆出UC浏览器涉及为无资质公司投放虚假医药广告，和360平台搜索医药广告造假链条问题。当夜北京市场监管人员奔赴360公司总部进行“调查询问”，而对UC浏览器“未有下文”。UC当前最大的股东为阿里巴巴文化娱乐有限公司（占股90%）；而360背后是中共军方，从它于2020年10月获得“2020军工信息安全护航先锋”奖可见端倪，这才仅有“询问”。请问上述“青县羊肉”和钟表维修企业怎就不“询问”而直接进行检查呢？而马云旗下的UC更是无下文，既不表态也不澄清，“敲山震虎”变成毫无音讯。再如针对长安福特汽车变速箱进水情况，厂家给出“免费维修”答复以息事宁人；而科勒卫浴也给出回应：“违规抓取客户人脸信息”——“不会泄露个人信息”。这时候的市场监管部门的影踪呢；怎么不连夜调查呢？中共选择性执法，只欺负“弱者”的本性暴露无遗。
+亲爱的兄弟姐妹们，现在无论是加州还是欧洲，还是说小米粥还是腊八粥，每个州都是得到了最确切、准确的消息：CCP病毒、冠状病毒，正以最猛烈、最不可思议[的]传染率、感染率和死亡率大幅上升，在杀人；同时在全人类都叫顶尖科学家，最可信赖的[各]科学家，现在都纷纷站出来发声：说这个病毒不是来自于自然，是共产党病毒，是实验室病毒。
 
-由此可见，中共的315打假都是针对一些小商小贩或无背景的中小企业进行打击，既赚取民意又能充盈“国库”；而对个别“有关系”的大型企业只是点到为止，更不会有连夜调查此种“逢场作戏”的排演。正因为中共以假治国和以贪反贪，所以上行下效，315平台的以假打假也就不足为奇。中共核酸检测试剂的低准确率、贵州茅台的价格反常“暴涨”、威马EX5频频自燃、各地涌现的诺如病毒食品安全事件、电动车头盔75%的不合格率、中共造CCP病毒疫苗的不良反应等等，这些关系国计民生的重点问题无人问津，反而查修表的成了大有作为。只因为前者要么是大型国企，要么有“盗国贼”背景，所以只会找私营个企揉捏，何等的荒谬和可耻！只要中共还在，公平公正是空话，无法无天是常态。行行业业就不可能有真，更枉谈质量和安全。
+Dear brothers and sisters, now, whether it is in California or Europe, or whatever millet porridge or Laba porridge, every porridge or zhou (homonym for state) has got the most accurate information. The CCP coronavirus is killing people with the greatest harm and incredible contagion rate, infection rate, and mortality rate. At the same time, the top scientists of all mankind and the most trustworthy scientists, now all stand up and make their voice heard: This virus does not come from nature. It is a CCP virus and a laboratory-made virus.
 
-(文章仅代作者观点，与GNEWS网站无关)
+昨天你们看到了班农先生采访的奎伊博士，你懂的啊，采访了奎伊博士。奎伊博士严谨和情绪控制、语言控制，都达到了世界上最传统的级别。即使那样，每个字都小心说话的人，而且记住啊，这个人厉害到什么程度，中国人简直把他当神很多人，他是这个很多药的老板，或者是发起人，或者是经营者。他救活了无数人，他的药很多公司还来旗下的药，到中国去最多涨过100多倍，这个人了不得，绝对战友，我就不多说了，走着看。
 
-新闻来源：
+Yesterday, when you watched Mr. Bannon interviewing Dr. Quay, did you understand the meanings? In the interview, Dr. Quay’s rigor, control of emotion and language control were world-class. He was very careful about every word he said. And everyone should know how powerful this person is? Many Chinese people simply regard him as a God [in the medical community]. He is the boss and founder of many pharmaceutical companies. He has saved countless people’s life. The sales of the medicine invented by him or his many companies have increased over 100 times in China. This person is amazing and is absolutely one of our fellow fighters, definitely a fellow fighter. I won’t say more about that, and let us wait and see.
 
-北京东城区市场监管局连夜对曝光修表店展开检查
+现在接下来在欧洲，在日本，在瑞士，大家要记住不要乱传假。千万记住这个假东西太多了，什么日本这博士，诺贝尔奖，那都是假的。真的你还说不完，你说假的干什么呀？凡是有假的，发假信息的战友，都是我们的敌人，已经不是战友了，因为你会害死很多人，千万不允许。这里没有灰色地带，只要你发假消息就是我们的敌人，立马和你切割，这没有什么中间好坏的问题，这就是不是敌就是友，不是友就是敌的问题。那么世界上所有的科学家都站来了，验证我们的天使科家园闫丽梦，我们的Ｄr. Yan，我们的《路德访谈》的1/19的时候，爆料革命整个带动全人类上唯一的一个真实的声音，然后爆出唯二的班农战斗室，震惊了世界。
 
-[https://news.sina.com.cn/c/2021-03-16/doc-ikknscsi5780626.shtml](https://news.sina.com.cn/c/2021-03-16/doc-ikknscsi5780626.shtml)
+Next, in Europe, Japan, and Switzerland, everyone, please keep in mind that don’t spread false information. Also please remember, there are too much false information around; the news about a Japanese doctor and a Nobel laureate are all fake. There are lots of true information to be discussed and disseminated. Why are you talking about false information? Any fellow fighter who spreads false information is our enemy. You will no longer be our fellow fighter because that will ruin a lot of people’s life. Never ever do that. There is no room for negotiation on this issue. As long as you release false news, you are our enemy, and we will immediately draw a line with you. There is no middle ground on this issue, and there is no question concerning whether it is good or bad. If you are not our enemy, then you are our friend and vice versa. So, the majority of scientists in the world have come forward to verify what our angel scientist Dr. Li-Meng Yan said and what our Lude said on January 19 [2020]. Our Whistleblower Movement was the first and only real voice of the mankind, fellowed by Mr. Bannon’s War Room which shocked the world.
 
-长安福特回应变速箱生锈问题：提供免费维修
+想想此时此刻每分每秒，所有人都在传发着共产党掏肛的照片，掏肛的照片，和共产党所有过去撒过的慌，蝙蝠啊，是吧？穿山甲啊，以及 WHO 撒了的一个又一个谎。我从昨天到今天，我明确地告诉了所有跟我联系的人，我说：我告诉你们，共产党创造了这个生化武器的 CCP 病毒，叫 COVID-19 Virus；他们有解药，疫苗不一定成功但有解药。这就是为什么在一年前，我给所有的政府机构告诉他们：你们找到解药的唯一办法，干倒共产党。现在我可以说告诉全世界人民：你们要想活着，你只有灭掉共产党，或者你找共产党要解药。我可以负责任地说共产党有解药。
 
-[https://news.sina.com.cn/o/2021-03-16/doc-ikkntiam2604438.shtml](https://news.sina.com.cn/o/2021-03-16/doc-ikkntiam2604438.shtml)
+Think about it at this moment, every minute and every second, everyone is posting photos of CCP digging people’s anus and all the lies the CCP has told the world in the past, for example, the bat origin, right? Pangolins? One lie after another made by the WHO. From yesterday till now, I have clearly told everyone who contacted me: “Let me tell you this – the CCP created the CCP virus, which is a biological weapon, which is called COVID-19, and they have an antidote. The vaccine may not be successful, but there is an antidote.” This is why I told all these government agencies a year ago, “The only way you can find the cure is to take down the CCP.” Now I can tell people all over the world, “If you want to live, you need to take down the CCP or you can ask the CCP for antidote.” I can say it responsibly, “The CCP has an antidote!”
 
-北京市场监管连夜赶赴360公司总部进行调查
+这是为什么共产党要把疫苗经济扩散到全世界，把疫苗经济变成共产党共产经济、中国共产党经济、世界共产党的经济。为什么他们能控制了全人类不同的气候、时区，不同的维度的所有的国家，所有的感染率和感染的时间，都是背离和历史上自然研究，所有都不一样，反规律的。因为那是人造的，人造的就是现在人在控制。为什么中南坑老杂毛不染病？都是中国老百姓染病？他在中国推行疫苗，疫苗是生化武器的附属战争的武器，它叫做基因控制。整个人类的精神、身体健康控制，通过疫苗的控制人类的经济，甚至控制人类的所有的行为和举止，决定了全人类的生死。这就是郭文贵在爆料前，四年前说共产党的人尸丸，但凡中国人知道人尸丸的就知道武侠小说里面人尸丸，这就是现代版的人尸丸。信不信？可以不信，我们不在乎你信不信，爆料革命不在乎任何人信不信，你不信，你不信，你信，你信，不信，俺不在乎。
 
-[https://news.sina.com.cn/c/2021-03-15/doc-ikknscsi5537464.shtml](https://news.sina.com.cn/c/2021-03-15/doc-ikknscsi5537464.shtml)
+This is why the CCP wants to promote the vaccine economy to the world and turn the vaccine economy into the CCP’s communist economy, the Chinese Communist Party economy, and the world Communist Party economy. Why are they able to control the infection rate and the timing of infection in all countries across different climatic regions and different time zones? These are all deviated from the results of historical and natural research, and are inconsistent with each other. They violate nature’s laws because they are artificial. Man-made means it is now controlled by people. Why aren’t the old motley thieves in the Zhongnan Pit infected but the Chinese people are being infected? The vaccine promoted in China is an auxiliary weapon helping the biological weapons to achieve genetic control. The mental and physical health of all mankind can be controlled by vaccines, including the control of human economy and even all human behaviors, which determines the life and death of all mankind. This is the “CCP zombie poison pill” that I, Miles Guo said four years ago before I started to expose the truth. Chinese people who know this “zombie pill” also understand the poison pill described in the martial arts novels that was used to control people in the past. This is the modern version of “zombie pill”, believe it or not. You don’t need to believe it, and we don’t care if you believe it or not. The Whistleblower Movement does not care if anyone believes it or not. If you don’t want to believe it, you don’t need to. If you’re willing to believe it, you can believe it. Whether you believe it or not, I do not care.
 
-北京丰台区排查“瘦肉精”羊肉，暂未发现
+大家可以想象到，我这多少人纷纷来问。我说：现在你们想起来我们了，郭文贵不是在那胡说八道的，爆料革命不是胡说八道的。现在很多医药公司也傻眼了，跟着共产党卖疫苗，会把自己卖死的。不管他买多少保险，大面积疫苗死人造成人道灾难，没有一个保险公司对付得了，保险公司会倒，大医药公司会倒，当然政治家也会倒。
 
-[https://news.sina.com.cn/c/2021-03-15/doc-ikknscsi5463869.shtml](https://news.sina.com.cn/c/2021-03-15/doc-ikknscsi5463869.shtml)
+Everyone can just imagine how many people are coming here to ask me. I responded to them, “Now you all  think of us?” Miles Guo is not talking nonsense here, neither is our Whistleblower Movement. Now, many pharmaceutical companies are also dumbfounded. Selling vaccines by following the CCP will lead to their bankruptcy. No matter how much insurance is purchased, no insurance company can cover the deaths and humanitarian disasters of this scale caused by vaccines. Insurance companies will go bankrupt. Large pharmaceutical companies will go bankrupt, and of course politicians will be down as well.
 
-UC浏览器涉医药广告造假，关联公司涉及多项法律诉讼
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-[https://news.sina.com.cn/c/2021-03-15/doc-ikkntiam2291400.shtml](https://news.sina.com.cn/c/2021-03-15/doc-ikkntiam2291400.shtml)
+视频来源：[https://gtv.org/user/5e596957357cc612d35a8044](https://gtv.org/user/5e596957357cc612d35a8044) (01:02-06:56)
 
-关注“3·15”晚会 科勒卫浴违规抓取客户人脸信息
+鸣谢：
 
-[https://news.sina.com.cn/c/2021-03-15/doc-ikknscsi5413833.shtml](https://news.sina.com.cn/c/2021-03-15/doc-ikknscsi5413833.shtml)
+[1] 感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/860885/](https://gnews.org/zh-hans/860885/)
 
-科勒回应315晚会曝光：“我们不会泄露个人信息”
+[2] 感谢 Antsee-GTV 和 Yanbohaomiao 提供英文翻译文本于 [https://gnews.org/874258/](https://gnews.org/874258/)
 
-[https://news.sina.com.cn/c/2021-03-15/doc-ikkntiam2326812.shtml](https://news.sina.com.cn/c/2021-03-15/doc-ikkntiam2326812.shtml)
+* * *
 
-***责任编辑**：日本东京方舟农场 老蚂蚁666*
-
-***编辑/校对**：首尔喜韩农场  文迹~见证神迹*
-
-***发布**：华盛顿DC农场  文顾*
+文字整理 & 总结撰写：【7PawBear】字幕：【Rock小哥】视频解码：【恒久忍耐】校对 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 +1
