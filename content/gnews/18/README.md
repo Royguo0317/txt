@@ -1,73 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0316.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/980557/)
+## 【路德时评粤语快报】03.14:前国家情报总监透露重要灭共信息和步骤 北约2030战略报告即将发布
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/982477/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0316.jpeg)
-#### 现任政府动向
-
-3月16日美国现任国务卿安东尼-布林肯就四国峰会发推如下:
-
-今天，我和美国驻东京大使馆的工作人员及其家属召开了网络会议。他们在日本代表美国，促进美国人民的利益和价值观的不懈努力，是我们国家的宝贵财富。
-
-很高兴今天与我的朋友和日本同行茂木敏充(外交部长）见面。我们致力于深化美日在全球挑战上的协调，以及我们对自由和开放的 #印太 地区的共同愿景。
-
-这是和美国国防部长罗德（Lloyd J. Austin）、 日本外交部长茂木敏充、日本国防部长岸信夫之间的伟大的讨论。坚信以普世价值为基础、不受强制力约束的自由、开放、包容的印度洋-太平洋的重要性。我们致力于与日本的合作，与四国合作，以及包括韩国的三边合作（包括冠状病毒大流行、气候变化、北朝鲜去核问题等—根据白宫发言人推文）。
+制作团队：【喜马拉雅-粤语组】流光飞舞、重生、香柏树、sad3mom、鬼五
 
 
 
-> Today, I met virtually with [@usembassytokyo](https://twitter.com/usembassytokyo?ref_src=twsrc%5Etfw), our consulates’ staff, and their families. Their tireless work representing the United States in Japan and promoting the interests and values of the American people is an invaluable asset to our country. [pic.twitter.com/dyyA8a86UQ](https://t.co/dyyA8a86UQ)
-> — Secretary Antony Blinken (@SecBlinken) [March 16, 2021](https://twitter.com/SecBlinken/status/1371709924418461697?ref_src=twsrc%5Etfw)
+主要内容
+
+1. 今天是中国农历的龙抬头，是郭先生的母亲忌日二周年，感谢这位伟大的母亲给我们带来了郭先生，愿郭母在天之灵安息！
+2. 3月12日前国家情报总监Ratcliffe接受FOX采访时说：拜登政府还没有提起中共国在病毒上扮演的角色；Ratcliffe如果跟中共会晤，第一个问题就会问病毒，且在得到答案和承诺前不会改变议题；疫苗能结束目前的疫情，但不能阻止下一场；想阻止下一场就得对病毒有清晰的溯源；病毒已导致50万美国人死亡，超过一战二战中战死的美国总人数；美国不会用繁琐的司法条款，而是要用情报委员会的方式，用国会两院，用北约的方式直接给中共定罪。
+3. 彭培奥也接受了FOX的采访，表示：如果他参加18日的加油站会晤，也会问病毒的事，要求中国共产党帮助世界搞清楚病毒的原委，而不仅仅是要求不再发生；第二会问它们究竟抽了什么风，来美国试图摧毁美国人民基本生活方式。如果美国在会晤中问病毒的事，就是在外交层面给中共最后通牒，表明美国的军界，情报界，共和党和民主党已经集体达成了共识。
+4. 三月一日后，以毒灭共的进程全面加速。去年二三月份跟郭先生上战斗室做节目的、全美排名第一的生化武器专家，他和纳瓦罗还有班农先生，就是跟闫博士和路德在白宫见面的人。他跟闫博士会面时很快就认同闫博士说的，病毒是通过动物传代实验，有目的地把人工制造伪装成自然产生，就是超限生物武器。这几天建制派的章家敦也上班农战斗室接受采访，直接说这不是唯一一个来自中共实验室的病毒，也在传播中共制造了病毒这个超限生物武器。美国目前已经形成了左派右派联合起来灭共的形势。
+5. 北约前总司令和现任总司令讨论战略调整，即将发布“北约2030”战略报告书，目的就是决定如何终结中共。北约要对2010年的针对俄罗斯的战略报告进行调整，为北约制定新的战略概念，宣布战争的5.0时代正式来临。韩国在考虑加入四国联盟，也就是加入北约组织，在经济和军事方面全面加入，接下来台湾，马来西亚都会寻求加入北约，中共的好日子完了。
+6. 美国安顾问明确不会和中共主谈贸易。《The Hill》最新报导[1]：国家安全顾问杰克·沙利文（Jake Sullivan）周五说，关税和出口管制将不是下次美中会谈的重点。路德社评论认为：1、沙利文没有透露此次谈判内容、只是否定贸易非谈判重点就是为了避免中共提前准备，美国对中共强硬的氛围让美方谈判几乎没有让步空间，在病毒来源、香港、台湾、西藏等问题上中共无法回避，最终只可能是对内宣传洗脑来淡化这些问题，转移国内视线。
+7. 拜登政府没有像川普总统那么在乎股市，中共企图在这次谈判中再打经济牌的招术失效，中共可能会拜登政治对手的黑材料进行交易，如果拜登政府再不配合，中共就会用拜登的黑材料进行要胁，无论中共采用何种手段，拜登政府都不会停止灭共进程。
+8. 美防长访问亚太国家推动灭共大计。大纪元3月14日报道：访问亚洲的美国国防部长劳埃德·奥斯汀（Lloyd Austin）周六启程前表示，他此行是为了加强与美国盟友的军事合作，促进对中共的“可信威慑”。这是奥斯汀上任美国国防部长以来的首次外访。
 
 
+路德社评论认为：美国国防部长劳埃德·奥斯汀首次外出访问，与美国国务卿安东尼·布林肯（Antony Blinken）一起在东京和首尔与盟国举行会谈，之后他还将访问印度。从这些信号可以看到美国将组织亚太国家协同作战，共同包围圈中共，最终联合围剿中共
 
+【路德时评】[原视频链接1](https://youtu.be/Q-5SqWfOBmI)  [原视频链接2](https://youtu.be/OhfTh6tL7EY)
 
-
-> Pleasure to meet with my friend and Japanese counterpart, [@moteging](https://twitter.com/moteging?ref_src=twsrc%5Etfw), today. We’re committed to deepening U.S.-Japan coordination on global challenges and our shared vision for a free and open [#IndoPacific](https://twitter.com/hashtag/IndoPacific?src=hash&amp;ref_src=twsrc%5Etfw) region. [pic.twitter.com/OVgGVvDt1y](https://t.co/OVgGVvDt1y)
-> — Secretary Antony Blinken (@SecBlinken) [March 16, 2021](https://twitter.com/SecBlinken/status/1371725618530902019?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> Great discussion with [@Secdef](https://twitter.com/SecDef?ref_src=twsrc%5Etfw), [@moteging](https://twitter.com/moteging?ref_src=twsrc%5Etfw), & [@KishiNobuo](https://twitter.com/KishiNobuo?ref_src=twsrc%5Etfw) on the importance of a free, open, & inclusive Indo-Pacific anchored by universal values & uninhibited by coercive power. We’re committed to cooperation with Japan including as part of the Quad & trilaterally with the ROK. [pic.twitter.com/37VkmiMfrR](https://t.co/37VkmiMfrR)
-> — Secretary Antony Blinken (@SecBlinken) [March 16, 2021](https://twitter.com/SecBlinken/status/1371741982285041664?ref_src=twsrc%5Etfw)
-
-
-
-#### 45届总统川普的声明
-
-3月15日晚，川普总统在GAB发表声明如下。
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-220.png)
-
-保护美国— 唐纳德-川普总统 [https://gab.com/realdonaldtrump/posts/105896122879430427](https://gab.com/realdonaldtrump/posts/105896122879430427)
-《美利坚合众国第45任总统唐纳德-J-川普的声明》
-
-《华盛顿邮报》刚刚对我关于伟大的佐治亚州选民欺诈问题的电话内容所进行的错误报道做了更正。虽然我很感谢《华盛顿邮报》的更正，但原来的故事从一开始就是子虚乌有。对佐治亚州富尔顿县和斯泰西-艾布拉姆斯进行强有力的调查，我将深表谢意，我相信，这将彻底改变佐治亚州总统选举的进程。
-
-富顿县并没有对选票或签名验证进行适当的审计。他们只看了本州最不可能出现什么问题的地区，即使在那里他们也发现了大量的错误。我们正在寻求找到并揭示发生在佐治亚州大规模的选举舞弊。许多居民对此表示同意，他们的愤怒导致他们在1月份的选举中没有投票给两名共和党参议员。
-
-拉芬斯贝格和斯泰西-艾布拉姆斯签署的《同意协议》没有得到佐治亚州议会的批准，因此应视作无效，选举结果已经变了。为什么州长和拉芬斯伯格曾经批准过这个《同意协议》，这是一个很大的疑问？我们期待着答案。
-
-你会注意到，媒体的错误、遗漏、失误和彻头彻尾的谎言总是向一个方向倾斜—都是反对我和共和党人。与此同时，那些对民主党人不利的故事被埋没、忽略或延迟，直到造成伤害降低到最小—例如，在选举结束后才报道。不妨看看大选前对疫苗的负面报道，以及大选结束后对疫苗的过期庆祝。一个强大的民主国家需要一个公平和诚实的媒体。最新的媒体荒唐事突出表明，传统媒体应被视为政治实体，而不是新闻企业。无论如何，我感谢《华盛顿邮报》的更正。
-
-小议：川普总统的后总统时期的这份声明已经让笔者有太多感怀又噎于无语。川普总统在任时于大选夜将选举舞弊行为诉诸法律，那时美国的司法体系已经被渗透和受到重压无法秉公执法，那么离任后的后总统时期就能期待司法公正有所作为吗？对疫苗的认识显然川普总统是错过了闫博士的珍贵信息和情报所致，也体现了川普总统并没有完全理解爆料革命。此外，川普总统如果仍然没有意识到他在总统宝座被盗窃、媒体失去公信已经不再是美国内部的矛盾，现在面临的问题已经不是漠视台湾、漠视香港，“事不关己高高挂起”，那么所谓“保护美国、让美国再次强大”将太过狭隘和难以真正实现，因为如今摆在美国面前真正的敌人和主要矛盾的根源都是中共的渗透及其带来的共产主义和社会主义思潮所致。
-
-真可谓认识有多远，步履走多远。又可谓，相逢已然成归去，明日黄花蝶也愁！
-
-
-
-文章观点部分仅代表作者本人。
-
-编辑：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
-
-（本文当日持续更新中）
+上传：流光飞舞
 
 0

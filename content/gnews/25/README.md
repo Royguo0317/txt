@@ -1,29 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共反对欧盟计划对其违反人权的制裁
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/982342/)
+## 路透社换稿软化美国对中共强硬措辞
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/982372/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-17_05-00-15.jpg)[beltandroad.news](https://www.beltandroad.news/2020/03/27/china-europe-cargo-trains-linking-chinas-small-commodity-hub-help-recovery/)
-路透社报道，中共警告欧盟不要计划对侵犯人权的行为实施制裁，如果布鲁塞尔干涉中共内政，北京不会让步。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-17_05-12-34.jpg)[thomsonreuters.com](https://www.thomsonreuters.com/en/about-us/company-history.html)
+路透社3月16日报道，美国政府一位高级官员周二表示，拜登政府在对华问题上寻求统一的”强硬”立场，不会让北京挑拨美国政府不同部门间的对抗。拜登政府将以强硬的手段与中共高层官员进行会谈，并将表达对中共在香港、新疆侵犯人权的行为以及北京继续进行的“恶意”网络活动的担忧。美官员表示，美国不期待3月18日在阿拉斯加举行的会议有任何具体的“成果”，预计也不会发表联合声明。
 
-欧盟各国大使预计将于周三批准对中共实施制裁，以惩罚中共对新疆维吾尔穆斯林少数民族的种族灭绝罪行。欧盟同意用新的人权制裁机制对中共官员进行旅游禁令和资产冻结。四名涉及侵犯新疆人权的官员和一家中共实体公司被列入黑名单，这是欧盟自天安门广场大屠杀后对中共的首次制裁。这是欧盟对中共政策转向的最新迹象。尽管欧盟与中共保持着深化的经济联系，但它准备在人权和其他问题与中共对抗。
+在此报道发出后不久，路透社竟然换稿，重新发布了一份措辞软化了的文章替代原文。
 
-中共警告欧盟，“我们希望对话，而不是对抗。我们要求欧盟方面三思而后行，”中共否认了在新疆迫害和强迫维吾尔人劳动的指控，称这是“仇恨中共国的人”为了政治利益而散布的谎言。“如果有人坚持对抗，我们不会让步。”
+文章指出，华盛顿希望改善两国关系，希望看到北京方面“采取行动，而不是空谈”。一位美国官员称，美方将明确表示“深切关注”中共对待新疆穆斯林和香港亲民主抗议者的方式，以及中共对美国盟友和合作伙伴的经济胁迫及对台湾的咄咄逼人的举动。同时表示，华盛顿并不期待此次会议能达成具体的谈判成果，但会提出它认为北京需要改变路线的具体领域。
 
-中共同时警告欧盟，不要把双方去年12月达成的投资协议与人权或者香港问题联系在一起，“经济问题不应该被政治化”。
-
-欧洲联盟委员会近期提交了香港特别行政区的政治和经济发展的第23年度报告。报告强调，在过去一年里，香港的高度自治、民主原则和基本自由进一步受到严重侵蚀。这种迅速恶化令人怀疑中共是否愿意履行其国际义务，根据“一国两制”原则和香港基本法，维持香港民主法治是中共曾经对香港人民作出的承诺。
-
-此份年度报告不包括今年中共对香港民主人士大逮捕和中共全国人民代表大会的决定对香港选举制度改革的变化，这些将进一步压制香港民主制度发展和政治的多元化。
-
-欧盟认为与中共的投资协议仍然需要批准，欧盟官员坚称该协议不会阻止他们在人权等问题上对中共施加压力。在中共通过香港选举制度改革的决定后，欧盟考虑采取更多措施，以应对香港政治自由和人权进一步严重恶化的情况。
+另一位美国官员表示，北京“在履行承诺方面的记录相当糟糕”，而华盛顿对改变的可能性抱有现实的期望。美国不希望中共对美国关注此问题的强硬态度抱有幻想，“我们希望与一个将成为我们强大竞争对手的大国进行一次愉快、有力和非常坦率的对话”。
 
 参考链接：
 
-[https://www.reuters.com/article/us-eu-china-sanctions-idUSKBN2B8118](https://www.reuters.com/article/us-eu-china-sanctions-idUSKBN2B8118)
+[https://www.reuters.com/article/us-usa-china-meeting-idUSKBN2B834J](https://www.reuters.com/article/us-usa-china-meeting-idUSKBN2B834J)
+
+[https://www.usnews.com/news/world/articles/2021-03-16/biden-administration-unified-in-strong-stance-on-china-senior-us-official](https://www.usnews.com/news/world/articles/2021-03-16/biden-administration-unified-in-strong-stance-on-china-senior-us-official)
 
 0
