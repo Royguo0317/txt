@@ -1,54 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 两个白皮书的公布将等同于全世界向中共宣战
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/985074/)
+## 【世事解评】带你了解中共数字人民币
+` 纽约香草山MOS04` [轉載自GNews](https://gnews.org/zh-hans/985121/)
 
-新闻简述：2021年3月13日的盖特中，郭先生说关于病毒和香港人权的两个《白皮书》有重大意义。这两个白皮书的发表等同于全世界向中共宣战。来自于学术界各领域的中国同胞参与了这个病毒报告的撰写。香港政府内部有良知的官员和警察在香港人权报告撰写过程中提供了关键的信息和帮助。当然，这些人中许多是爆料革命的战友。无论天气如何变换，太阳总会升起，请战友们保持信念，对世界和爆料革命的胜利抱有信心。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210313-getter1.srt.txt)
-**两个白皮书的公布将等同于全世界向中共宣战**
+香草山写作组：AT
+![]()![](https://gnews.org/wp-content/uploads/2021/03/GNEW-GTV-MOS-LOGO-2-1.jpg)
+**数字人民币的是什么**
 
-**Two White Paper Reports Are Equivalent to the Declaration of A War Against the CCP**
+数字人民币是由中国人民银行牵头研发的，暂时被定名为“DC/EP”（即“数字货币/电子支付”的缩写）。中国人民银行规定：数字人民币和纸质人民币等值，可以与后者自由兑换，功能属性与纸钞完全一样，只不过是数字化形态。数字人民币虽然也是虚拟货币，和比特币等基于区块链技术的现有加密数字货币不同的是，中国央行仍是货币的发行者，用户注册需要使用实名。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/v2_915241ebf0f741a7829a5818d6c8140d_img_000-e1616025734863.jpeg)图片来源：网络
+**数字人民币的发展历程**
 
-尊敬的战友们好！3月13号。哎呀，真快啊，我刚才差点说3月12号，3月13号了。继昨天文贵推出盖特之后，好像这个世界发生很多大事，这两个白皮书，很多人意识到了，它是多么的重要，但很多人也没有意识到它有多么的重要。
+2014年，中国人民银行成立中国人民银行数字货币研究所进行专项研究。
 
-Dear fellow fighters, today is March 13th! Time flies! I almost mistakenly took today as March 12th. It’s March 13th already. After I posted the Getter yesterday, it seems that many big events are happening in the world. Many people have realized how important the two “white paper” reports are, but others still do not understand their importance.
+2017年末，DC/EP在坚持双层运营、现金（M0）替代、可控匿名的前提下，基本完成了顶层设计、标准制定、功能研发、联调测试等工作。
 
-我告诉大家一个简单的例子，特别像法国，法国这种非常硌涩的这种国家，那种成天装硬骨头、装个性的这种国家，实际上一打就跪下的这种国家，然后平常还有很多发明的这些国家，经济体系在那摆着那。听说他们这些人以后啊，咋说那？别说漏了。听说他们参与到这个写白皮书的人当中，两三波都退掉了，都不敢参与了。为啥呀？战友们去想想，**这个白皮书出来，就等同于全人类向共产党宣战。**那法国的政要们，所谓现在还买疫苗呐，还搞疫苗经济，疫苗安全卡，疫苗健康卡，这不是一场生物大战嘛，那你不是在帮助别人战你自己的国民吗？所以说很多人写着写着就不敢写了，还有人就越想越害怕，就回家抱孩子去了。
+2020年8月14日，中国商务部提出：在京津冀、长三角、粤港澳大湾区及中西部具备条件的试点地区开展数字人民币试点。先由深圳、成都、苏州、雄安新区等地及未来冬奥场景相关部门协助推进。全面深化试点地区为北京、天津、上海、重庆（涪陵区等21个市辖区）、海南、等28个省市（区域）。
 
-Let me give you a simple example. France – a bizarre country like France – always pretends to be tough, unconquerable, and full of personality. Yet in fact, it is easy to be knocked down. There are also countries known for their great inventions and also the limitations in their particular economic structures. I heard some people in these countries – I should be more cautious and do not disclose any secrets – I heard that two or three waves of them who initially participated in the writing of the “white paper” have withdrawn. They dare not participate anymore. Why, fellow fighters? Think about it. The publication of this white paper is equivalent to the declaration of a war by all mankind against the CCP. French politicians are still buying the CCP’s fake vaccines, and promoting the fraudulent vaccine economy – vaccine safety cards and health cards – aiming at controlling people, even after the virus has been confirmed as a biological warfare. Then are you helping the enemy attack your own people? Many participants did not dare to continue after participating for a certain period. Some became more and more afraid that they simply quit the job and went to live ordinary people’s lives.
+2020年10月8日，深圳市人民政府联合中国人民银行开展数字人民币红包试点。
 
-也听说美国各个机构都盼望着这个白皮书的正式出来。大家可以看到一个问题，这个不是拜登总统新政府搞什么事情，是川普总统的最后一年，一直到现在没有停。这也是美国这个国家的伟大，都乱成这样了，这样的大事没停，都在收集证据。
+2020年10月，中共中央办公厅、国务院办公厅联合发布《深圳建设中国特色社会主义市场经济先行示范区综合改革试点实施方案（2020-2025）》规定，数字人民币不能出境使用，不能买卖黄金和美元，只能在境内的资本市场流通，可在房地产市场、股票投资等境内交易中使用。
 
-I have also heard that many U.S. organizations are looking forward to the official release of this white paper. Everyone should know that this was not started by the new administration of President Biden. The development of this paper has been continued from the last year of President Trump’s term to the present time, which shows the greatness of the U.S. as a country. Even though the country has become so chaotic, a major initiative like this was never stopped. Evidence continues to be collected.
+2020年10月23日，中国人民银行就《中华人民共和国中国人民银行法（修订草案征求意见稿）》公开征求意见。根据征求意见稿第十九条，加入了“人民币包括实物形式和数位形式”这一条文，这亦代表数字人民币将赋予法律地位。
 
-难能可贵的事情，我们中国同胞有重要的科学界、知识界、生物界、医药界，有人参与，这给我们中国人在未来，在世界上的形象，挣来了不可估量的巨大的正面的影响力，是用钱不能估量的。我相信这个报告出来时候，上面会写上：该报告得到来自于中国内部的体制内，知识界、医学界、科学界，等等等等，善良有良知的中国人的支持、帮助和提供信息。记住我今天说的话。
+2020年12月4日，江苏省苏州市面向符合条件的苏州市民发放2000万元数字人民币消费红包，此次试点使用者可在指定的线下和线上消费。
 
-Ah, a rare and commendable thing: among the participants that wrote this “white paper”, there are important Chinese compatriots from the fields of science, academia, and biology, and the pharmaceutical industry. Consequently, Chinese people’s positive image has been greatly improved, the influence of which cannot be measured by anything including money. I believe the following will be acknowledged in the report when it is released: Conscientious Chinese people from academia, medical field, scientific community, and other fields inside China have supported, helped, and provided information for this report. Please remember what I said today.
+2021年1月，深圳市在福田区开展数字人民币红包试点。共计2000万元。
 
-另外一个香港报告，香港的人权，我们要感谢香港有良知的警察。这个报告现在听说：这个最关键的就是得到了香港的警察和香港政府内部人提供的信息。当然有我们爆料革命的战友了，是吧？提供的信息，提供的巨大的帮助，未来也会写上：要感谢来自于香港的，有良知的警察和政府公务员，以及冒着生命危险的，有良知的人士提供的信息。这都得有。所以说战友们，对这个世界永远要充满着信心，不管是打雷、下雨、阴天，你要想到：这些都是雨过天晴，太阳还会从东边升起来。这是目前我认为从爆料革命到现在，对共产党最大的伤害的是这么一个国际上的公约和国际上的法律。
+2021年1月5日，上海市同仁医院试点数字人民币使用。
 
-Regarding the Hong Kong report – the Hong Kong human rights white paper report, we would like to thank the Hong Kong police officers who have a conscience. As the report is being compiled, we have been told that the critical elements are supported by the information provided by Hong Kong police and Hong Kong government insiders. Of course, there are contributions made by our fellow fighters of the Whistleblower Movement, right? The information they provided and the tremendous help they offered, will also be acknowledged in the future: Thanks to the conscientious police and government officials from Hong Kong and the conscientious people who risked their lives for the information. It has to be included. So, fellow fighters, we must always be full of confidence in this world. Whether facing thunder, rain, or cloud, you should have confidence that all these will pass. The sun still rises from the east. According to international conventions and international laws, this will cause the greatest harm to the CCP since the beginning of our Whistleblower Movement.
+2021年2月7日，北京市启动“数位王府井 冰雪购物节”数字人民币红包预约活动，面向在京个人发放1000万元数字人民币红包。
 
-当然在这之前，对共产党最大的伤害，是川普总统政府，美国优先，中美贸易摩擦，等等等等，包括对中国企业在美国的整个处置，这都是对它的重大的伤害，接近于软脱钩走向硬脱钩，这是对它最大的伤害。最后一年是真正的就是把它定为种族大屠杀、反人类罪，这是致命的伤害。当然爆料革命这个刀每天都是往那扔，是吧？劈里啪啦的没停过，这是重中之重，咱就不吹了，是吧？咱不自恋了。
+2021年2月24日，成都市启动“数字人民币 红包迎新春”活动，面向个人发放总额4000万元的数字人民币消费红包。
 
-Of course, before this, the biggest harm to the CCP was the American First policies of the Trump administration. Sino-U.S. trade frictions, including the broad sanctions on the military-linked CCP companies in the U.S. have caused serious harm to them. Soft decoupling and complete decoupling inflict the greatest damage on the CCP. In the last year [of his administration], the most severe harm was to designate the CCP as having committed genocide and crimes against humanity. This is fatal to them. Of course, the Whistleblower Movement is throwing knives towards the CCP every day, which has never stopped. This is the top priority. We will not brag too much, right? Let’s stop being narcissistic.
+从以上数据可以看出，2020下半年开始，人民币数字化步伐明显加快。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+**数字货币与电子支付不同**
 
-视频来源：[https://gtv.org/getter/604cda9d607c4240c8b54b0d](https://gtv.org/getter/604cda9d607c4240c8b54b0d) (00:00-04:54)
+很多人混淆了数字货币与电子支付的概念，认为人民币是否数字化，对人们日常生活几无影响。现在微信支付和支付宝的普及，几乎涵盖了人们日常生活的方方面面，现在买东西大多电子支付了，出门不带现金，已经是墙内生活常态。其实，这是两个不同的概念，电子支付是支付手段，数字货币是支付内容，支付宝和微信支付是阿里巴巴和腾讯公司建立的两个支付平台。支付内容，现在是实体人民币，将来是数字人民币。
 
-鸣谢：
-[1] 感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/973208/](https://gnews.org/zh-hans/973208/)
-[2] 感谢 Antsee-GTV 和 Liberte 提供英文翻译文本于 [https://gnews.org/977827/](https://gnews.org/977827/)
+**数字货币对人民生活的影响**
 
-* * *
+中共央行对数字货币解释是用来替代M0，流通中的现金即纸币和硬币。在中国，M0指在社会上流通，可立即使用的现金，存在银行账户上的不算。数字货币要替代的就是这部分看得见摸得着的货币。
 
-整理校对 & 新闻撰写：【7PawBear】字幕：【Rock小哥】视频解码：【恒久忍耐】校对 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+那么，一旦数字货币完全取代流通现金，会对墙内人民生活造成什么影响呢？
+
+*失去对个人财富支配的自由。*
+
+数字货币可以进行属性标记，这使央行对现金交易可以实现时时监控，而且还能操纵或阻止交易发生，通过控制个人对数字货币的使用，从而达到密切掌握管控个人财富，甚至操控个人社会生活的目的。
+
+中共可以规定某些数字货币用于某种商品消费，甚至只能在某个地区消费，不能跨区域使用。类似文革时的粮票，布票。假如，百姓账上有数字货币，被央行规定只能买日用消费品，那你就不能兑换美金，因为数字钱包里没有这个属性的数字货币可供使用。而且，20年10月国务院出台的规定中，明确数字货币不能购买美元，不能出境使用。那么以后就很有可能出国旅行，换外汇被卡死，普通老百姓只能拥有人民币，没有外汇也就不可能再出国。把中国人逃离中共统治的道路封死。
+
+如果数字货币规定的某种特定类别的消费不能完成，那么这笔资金也不能他用，将处于冻结状态。例如，某部分数字货币只能用于户口所在城市房租支付，该账户持有人不在户口所在地生活，而是在另一个城市租房居住，这部分数字货币就无法使用。那这部分钱对于他来说只是在账户上以数字形式存在，看得见，用不了，造成资金闲置，有钱也不能花，实际上是个人财富缩水。同时，该账户持有人可能还面临一个问题，就是在数字人民币施行后，他由于没有可用于在生活城市支付房租的数字人民币，而被迫离开。中共通过控制数字货币实现了对墙内百姓流动管控的目的。因此，数字人民币的快速推广使用，不仅是一种新货币体系，而是中共监控百姓的手段的技术升级，将改变墙内百姓的生活状态。通过控制个人经济活动，从而改变个人生活决策，这样更隐蔽，更有效。
+
+以上只是我们根据数字货币的特性及中共的残暴无底限，推测的几种可能性。现实中数字货币推行后，其影响会渗透到人们生活的全方位。是不是一定会发生呢，以现在国内的经济状况，及未来全球声讨中共的形势发展看，在中共经济捉襟见肘，外部压力增大的情况下，很有可能施行。
+
+*个人财富的安全性无保障。*
+
+数字货币的特性决定，交易双方可匿名，但是对于央行全透明。因为数字人民币是中心化的。人民银行掌握全量咨询，可以利用巨量资料、人工智慧等技术，分析交易资料和资金流向，可追踪一切经济活动。人民的一切经济行为及个人财富，消费习惯，尽在央行管控之中。
+
+在实体货币下，百姓从银行取出的现金，某种程度脱离了央行的管控，中共政府对于这部分在个人手里的资金流向不能完全控制，数字货币实施后，这一个漏洞被堵住。个人的每一分钱，都在央行的监控下，而且还可以计划管理其流向。如果中共政府认为有必要，可以分秒之内，让个人资金归零，从财富上彻底控制每一个人，在经济上把中国人打跪下，让百姓彻底屈服，放弃反抗。以商鞅驭民五术的贫民，实现中共对百姓的极度高压管控与维稳。
+
+继2019年中共打开第一个潘多拉的盒子，释放出中共病毒后，2020年中共紧锣密鼓加快了人民币数字化的进程，潘多拉的盒子将再次打开：对外用数字人民币推进人民币的国际化，挑战美元世界储备货币的地位，进而助其实现搞乱美国，搞垮美国，搞死美国的战略。对内施行个人财富极度管控，以及全面回到计划经济时代，以此实现中共称霸世界的野心。由此可见中共在对内高度专制集权，对外强势扩张的路上飞奔，上帝欲让其灭亡，必先让其疯狂，中共在毁灭的道路上距离终点越来越近。
+
+审核/发稿：正义的小新
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！ 圣经故事背景，哲学，生活，宗教，诗意，免费英语教学，美东时间周日至周四晚上9:00，美国志愿者在美东香草山农场Discord群[Richard English](https://discord.gg/NVAqpNj)版块和 [chat-room](https://discord.gg/NVAqpNj)与您相约！
 
 0
