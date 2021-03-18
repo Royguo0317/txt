@@ -1,38 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 今夜我又做梦了
-` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/985285/)
+## 《文贵说》| 图片连载（二十四）
+` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/985295/)
 
-【作者】小蚂蚁moses  【編輯】Sharon
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GoodNightSleep-1024x757-1.jpg)
-今夜偶又做梦了
-G系列收割的秋天
-咱又记起海鸟
+![]()![](https://gnews.org/wp-content/uploads/2021/03/02-5.jpg)
+**班农目前成了世界上除了爆料革命之外，整个华人之外，世界上最最为中国人自由民主奋斗的，我们最好的朋友。**
 
-走去恬静的海边
-脱下扣绷的外套
-秀十指不缺的巧手
-做个不大低碳的小窝
-穹顶之上必须是歌唱的小草
+**—— 郭文贵先生 2020年6月4日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/01-5.jpg)
+**共产党在临死前可能会制造大型的人道危机或者自然灾难，甚至大型疫情。**
 
-喜欢的战友打邦
-作个睦邻可好
-白马黑马相随着跑
-成群的狗狗在前面开道
+**—— 郭文贵先生 2020年2月15日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2020644.jpg)
+**这个世界上的自由之花、民主之花是用鲜血浇灌的，我们从开始那天起就做好了一切的准备。**
 
-小蚂蚁moses 3/17/2021子夜
+**—— 郭文贵先生 2020年6月4日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2020643.jpg)
+**路还很遥远，我们可能要花一代到两代人的时间，才能彻底的消灭共产党的残毒，净化中国的天空、水和土壤，才能适合人类的生存。**
 
-【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+**—— 郭文贵先生 2020年6月4日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/06-4.jpg)
+**当你把钱投到这里的时候，买G-Dollar，买这个平台的股票的时候，你就等于是把共产党的钱抽干了，当年它剥夺了你70年的投票权，你用钱把它给干掉了，然后得到的回报全是你们的。**
 
-**欢迎战友加入旧金山金喜农场**
+**—— 郭文贵先生 2020年5月30日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/07-1-2.jpg)
+**感谢所有的亿万个战友你们流的泪、你们流的血，和你们忘掉恐惧所承担的风险和责任。我们将继续奋斗，这条路我们真的只是刚刚开始，一切只是刚开始。**
 
-[旧金山金喜农场](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[**GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+**—— 郭文贵先生 2020年6月4日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/05-2-1.jpg)
+**经过人民的革命、斗争、甚至流血，才能争取分配相对公平的制度，那就是今天资本主义和西方的民主制度。 **
 
-[旧金山金喜农场](https://discord.gg/QQzQ79grEA)[**Discord**](https://discord.gg/QQzQ79grEA)
+**—— 郭文贵先生 2018年10月17日**
 
-[旧金山金喜农场](https://twitter.com/sf_himalaya)[**Twitter**](https://twitter.com/sf_himalaya)
 
-[旧金山金喜农场](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[**Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
+
+- [***更多精美海报请点击G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4)
+
 
 +1
