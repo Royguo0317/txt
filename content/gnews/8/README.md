@@ -1,47 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国立法旨在为维吾尔族提供“优先2级”难民身份
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/986459/)
+## 美国政要等每日重要信息0318.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/986344/)
 
-**【日本东京方舟农场】**翻译：樱花树上摘苹果 校对：miumiu law
+**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0318.jpeg)
+#### 香港问题
 
-华盛顿-一项新的两党法案旨在为维吾尔族人以及“遭受中国政府任意逮捕，大规模拘留以及政治和宗教迫害的其他人”提供“ 2级”难民身份。
+3月17日蓬佩奥先生就现任政府布林肯对港政策予以肯定，推文如下。
+“政府干的不错，继续追究㆗（共）国高级领导㆟违反对世界作出港㆟自由的承诺。世界必须 “怀疑并核实”，并追究中共的责任。”
 
-四位代表：泰德·德奇（D-FL），马里奥·迪亚兹·巴拉特（R-FL），詹妮弗·韦克斯顿（D-VA）和克里斯·史密斯（R-NJ），本周提出了该法案，呼吁加快和改进他们的权限以在美国申请难民身份和庇护。
+继日前英国对中共国发出违背中英联合声明的警告勒令改正之后，3月16日与17日美国拜登政府对中共在香港修改选举法的行径更新了《香港自治法案》，对24名中港官员进行制裁。包括(1)识别该外国人士的身份；(2)清楚解释识别该外国人士的原因，并说明识别该外国人士的活动。明知故犯地与制裁人员进行重大交易的外国金融机构将受到制裁。被制裁人包括：
 
-“作为犹太人和美国人，我们负有采取行动的道义责任”德奇在一份声明中告诉《耶路撒冷邮报》。 “我为我们的国家向受压迫者提供避难所的悠久历史而感到自豪，但作为一个犹太人，我也深刻地意识到我们在过去引进难民以及拯救他们的过程中犯过的一些错误。”
+Wang Chen，You Quan，Cao Jianming，Zhang Chunxian，Shen Yueyue，Ji Bingxuan，Arken Imirbaki ，Wan Exiang ，Chen Zhu，Wang Dongming，Padma Choling，Ding Zhongli，Hao Mingjin，Cai Dafeng，Wu Weihua，Deng Zhonghua ，Li Jiangzhou，Edwina Lau，Li Kwai-Wah，Frederic Choi Chin-Pang，Kelvin Kong Hok Lai ，Andrew Kan Kai Yan，Tam Yiu-Chung，Sun Wenqing, AKA Sun Qingye
 
-“当中国政府将维吾尔族人乘火车送往营地，官员们强行剃掉维吾尔族人的胡须，以及使用酷刑和文化压迫来净化维吾尔族人的身份时，我们无法拒绝去帮助他们。我们的历史和价值观迫使我们采取行动。”他说。
+布林肯国务卿称美国与日本就中华人民共和国破坏香港选举制度、没有履行义务已经达成共识，两国拥有共同的民主价值观。
 
-根据该法律，维吾尔族和其他受到中国政府压迫和迫害的少数民族将被指定为第二优先难民。声明说：“ P-2是美国政府指定的特殊的人道主义团体，由美国政府指定进行移民安置，并为他们提供直接进入美国难民系统的通道。”
 
-国会议员迪亚兹-巴拉特（Diaz-Balart）在一份声明中说：“中国共产党政权残酷地压迫中国人民，对维吾尔族人民进行了特别恐怖的虐待。”
 
-国会女议员詹妮弗·韦克斯顿（Jennifer Wexton）指出：“维吾尔族和其他穆斯林少数群体遭受中国政府的种族灭绝，强迫劳动和其他暴行是人权危机，需要我们紧急关注。”
 
-以下是对P1，P2，P3难民等级的定义和解释：
 
-Individual Selection — Priority 1（P1）:
+> Good on the [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) for continuing to hold senior Chinese leaders responsible for breaking promises that China made to the world regarding freedom for the people of Hong Kong. The world must "Distrust but Verify" and hold the CCP accountable. [https://t.co/pXmwjXeZqV](https://t.co/pXmwjXeZqV)
+> — Mike Pompeo (@mikepompeo) [March 17, 2021](https://twitter.com/mikepompeo/status/1372293660830748675?ref_src=twsrc%5Etfw)
 
-优先考虑的对象是来自任何国家（已被难民署或美国政府正式承认为难民）并且被视为重新安置的最佳选择的个人。 这可能是一个反对政府行为的人，或者是一个被强奸并被社区排斥的妇女。
 
-Group Selection — Priority 2（P2）:
+[https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/](https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/) [https://www.state.gov/hong-kong-autonomy-act-update/](https://www.state.gov/hong-kong-autonomy-act-update/)
+这份制裁清单里的官员是为中共作恶的虾兵蟹将，再次成为中共的挡箭牌，这份更新的法案其制裁条款不够具体、清晰，究竟能给香港带来多少实际帮助，相信布林肯自己也说不出。但是有一点明确的是，支持香港、谴责中共已经成为政治正确。在此基础上，有一个从量变到质变的积聚过程，我们有理由相信，西方世界据此向中共要价、讨伐甚至进一步行动是未来的趋势，而能量转化的导火索无疑是中共病毒疫情危机。
 
-此项适用于国务院已与其他国家和国际团体一起确定为需要重新安置的特定团体。 这些人通常是受到迫害或压迫的具有特定种族，宗教或民族身份的人。 这种处理曾经针对前苏联，古巴和越南的国内进行过。针对来自缅甸的一些少数民族和其他人在泰国难民营中实施过国际境外救援活动，类似的在坦桑尼亚救助过布隆迪人和在尼泊尔救助过不丹人。
 
-Family Reunification — Priority 3（P3）:
 
-优先考虑的是配偶的难民，未满21岁的未婚子女或已经作为难民或庇护者进入美国的个人的父母。 P3移民来自国务院指定的某些国家。为了将亲戚带来美国（P3），您必须向当地机构提交一份关系宣誓书（AOR）。
 
-具有P3地位的国家：阿富汗，缅甸，布隆迪，哥伦比亚，刚果（布拉柴维尔），古巴，朝鲜民主主义人民共和国（DPRK），刚果民主共和国（DRC /金沙萨），厄立特里亚，埃塞俄比亚，海地，伊朗，伊拉克，卢旺达，索马里，苏丹和乌兹别克斯坦。
 
-·关系宣誓书确认居住在美国的前难民或庇护者（锚亲）与在海外寻求难民身份的亲戚之间的关系。该表格包括经历信息，并在HIAS附属机构中填写，然后发送到HIAS总部，以确保满足所有AOR要求。然后将该表格发送到难民处理中心。
+文章观点部分仅代表作者本人。
 
-原文链接：
+作者：康州盘古农场 喜马拉雅的文雅
 
-1.[https://www.jpost.com/american-politics/legislation-seeks-to-provide-priority-2-refugee-status-for-uyghurs-661894](https://www.jpost.com/american-politics/legislation-seeks-to-provide-priority-2-refugee-status-for-uyghurs-661894)
+封面：康州盘古农场 霹雳年
 
-2.[https://www.hias.org/us-refugee-priorities#:~:text=Group%20Selection%20%2D%2D%20Priority%202%3A&text=Often%20these%20are%20people%20of,Union%2C%20Cuba%2C%20and%20Vietnam](https://www.hias.org/us-refugee-priorities#:~:text=Group%20Selection%20%2D%2D%20Priority%202%3A&amp;text=Often%20these%20are%20people%20of,Union%2C%20Cuba%2C%20and%20Vietnam)
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
+
+（本文当日持续更新中）
 
 0

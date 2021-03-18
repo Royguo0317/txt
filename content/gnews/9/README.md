@@ -1,45 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0318.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/986344/)
+## 警告世界 ：新冠疫苗有可能“毁灭人类”！
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/986681/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0318.jpeg)
-#### 香港问题
+**【日本东京方舟农场】**作者：青衣 素材采编：武汉老温 校对：miumiu law
 
-3月17日蓬佩奥先生就现任政府布林肯对港政策予以肯定，推文如下。
-“政府干的不错，继续追究㆗（共）国高级领导㆟违反对世界作出港㆟自由的承诺。世界必须 “怀疑并核实”，并追究中共的责任。”
+世界顶级病毒疫苗学家，比利时人吉尔特·万登·博什（Geert Vanden Bossche）博士近日向全世界发出紧急警告：立即暂停所有新冠疫苗接种！世界正在制造一个“不可控制的怪物”，并将疫苗变成“大规模杀伤性武器”！
 
-继日前英国对中共国发出违背中英联合声明的警告勒令改正之后，3月16日与17日美国拜登政府对中共在香港修改选举法的行径更新了《香港自治法案》，对24名中港官员进行制裁。包括(1)识别该外国人士的身份；(2)清楚解释识别该外国人士的原因，并说明识别该外国人士的活动。明知故犯地与制裁人员进行重大交易的外国金融机构将受到制裁。被制裁人包括：
+博什博士同时还给世界卫生组织发出了公开信，希望对这一全球关注的重要问题进行讨论、评论和答复。他紧急呼吁与世界卫生组织、合格的专家和世界各地当局进行公开的科学辩论。
 
-Wang Chen，You Quan，Cao Jianming，Zhang Chunxian，Shen Yueyue，Ji Bingxuan，Arken Imirbaki ，Wan Exiang ，Chen Zhu，Wang Dongming，Padma Choling，Ding Zhongli，Hao Mingjin，Cai Dafeng，Wu Weihua，Deng Zhonghua ，Li Jiangzhou，Edwina Lau，Li Kwai-Wah，Frederic Choi Chin-Pang，Kelvin Kong Hok Lai ，Andrew Kan Kai Yan，Tam Yiu-Chung，Sun Wenqing, AKA Sun Qingye
+博什博士发出这一紧急警告，是基于对新冠病毒免疫逃逸现象研究结果的认识。他称，目前短时间内大规模接种疫苗的模式，会导致新冠病毒出现免疫逃逸现象，引发病毒的疯狂变异，埋下一颗巨大的雷。他表示，Covid-19疫苗的大规模接种，只会繁殖高度传染性的变种！博什博士因此强烈呼吁，应立即取消所有正在进行的新冠病毒疫苗的大规模接种运动，并称这已成为国际关注的迫在眉睫的紧急卫生事件。
 
-布林肯国务卿称美国与日本就中华人民共和国破坏香港选举制度、没有履行义务已经达成共识，两国拥有共同的民主价值观。
+博什博士在接受媒体采访时，对此做了更进一步的说明：
+
+“ 我要告诉你，我们正在大灾难的前夕，因为我们正在通过疫苗给病毒施加极大的压力。记住，我们不是逐步地接种疫苗，我们讨论的是大规模接种疫苗，在尽可能短的时间内，给百万千万的人接种疫苗。你能想象吗？我们觉得我们会比病毒精明？得了吧，我们认为我们可以制造出新的疫苗来对抗病毒变种，但病毒不会一直等待着，直到新的疫苗问世。很多令人信服的科学证据已得出结论。
+
+我们一直在请求科学家和卫生部门开始讨论免疫逃逸，但是无人回应，大家都保持沉默。今早我读了某人发给我的文章，文章中说，现在免疫逃逸现象已经扩展到所有部位，而不仅仅是S蛋白。当新冠患者最终康复，很大一部分原因是要归因于细胞层面的免疫反应，而不是抗体的免疫反应。现在，被置于不断增长压力中的病毒开始在抗原中引入关键的变异，这些抗原会引发保护性的细胞免疫反应，这是大部分人恢复健康的原因。
+
+难以想象的是病毒会疯狂地变异，一般来说，这并不重要。因为这些变异并不会被选择性的筛选以避开免疫系统，因为没有环境压力，所以不需要。但是现在，（由于大规模的接种疫苗）使得病毒对变异进行有选择性的筛选。”
+
+博什博士最后指出：“我们越是在（病毒）大流行中使用这些疫苗为人们免疫，病毒就越具有传染性”。疫苗正在加速病毒的适应性反应，这种病毒又形成了新的毒株，而这些新毒株具有更高的传染力，甚至可能致命。他认为，接种疫苗的人甚至可能成为致命的共生病原体“超级毒株”的繁殖者。因此，必须立即停止全球疫苗接种运动，否则人类将为释放“无法控制的怪物”付出代价，导致全球性无法想象的灾难。
+
+弗农·科尔曼博士（Vernon Coleman）也参与到这次向全球发出“疫苗警告”的行动中来。科尔曼更是语惊四座地称：Covid疫苗有可能“毁灭人类”！
+
+科尔曼警告称：即将到来的第二波共生的“超级毒株”会造成什么样的后果不敢想象，或许会以惊人的高速度杀死更多的年轻人，而那些接种疫苗的人最有可能被杀死。“为什么要不惜一切代价避免人们接种疫苗，因为那些接种者无法逃脱突变病毒毒株并感染周围的人。”“疫苗灾难现在已经迫在眉睫，我们要为最坏的情况做准备，因为2020年只是2021年及以后的热身。”“疫苗带来的灾难将对人口、政治和经济等多方面产生巨大影响，全球疫苗灾难也将导致全球经济崩溃。”
+
+由此可见，大规模疫苗接种短期有可能会减少病毒感染率，但事实上根本起不到预防作用，并且长期来看危害巨大，事实上还会造成新的不亚于病毒本身的巨大危害，“毁灭人类”并非危言耸听。
+
+**注：本文仅代表作者观点**
+
+参考链接：
+
+1.[https://www.afinalwarning.com/504472.html](https://www.afinalwarning.com/504472.html)
+
+2.[https://twitter.com/jsdfposjpqyuee1/status/1371628444446957572](https://twitter.com/jsdfposjpqyuee1/status/1371628444446957572)
 
 
-
-
-
-> Good on the [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) for continuing to hold senior Chinese leaders responsible for breaking promises that China made to the world regarding freedom for the people of Hong Kong. The world must "Distrust but Verify" and hold the CCP accountable. [https://t.co/pXmwjXeZqV](https://t.co/pXmwjXeZqV)
-> — Mike Pompeo (@mikepompeo) [March 17, 2021](https://twitter.com/mikepompeo/status/1372293660830748675?ref_src=twsrc%5Etfw)
-
-
-[https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/](https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/) [https://www.state.gov/hong-kong-autonomy-act-update/](https://www.state.gov/hong-kong-autonomy-act-update/)
-这份制裁清单里的官员是为中共作恶的虾兵蟹将，再次成为中共的挡箭牌，这份更新的法案其制裁条款不够具体、清晰，究竟能给香港带来多少实际帮助，相信布林肯自己也说不出。但是有一点明确的是，支持香港、谴责中共已经成为政治正确。在此基础上，有一个从量变到质变的积聚过程，我们有理由相信，西方世界据此向中共要价、讨伐甚至进一步行动是未来的趋势，而能量转化的导火索无疑是中共病毒疫情危机。
-
-
-
-
-
-文章观点部分仅代表作者本人。
-
-作者：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
-
-（本文当日持续更新中）
 
 0
