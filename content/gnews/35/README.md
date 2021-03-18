@@ -1,22 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 台媒爆内幕:特朗普派驻联大使访台差点开战
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/985259/)
+## 美国与世界的互动应对全球挑战至关重要（2021年03月16日 玫瑰看新闻）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/985591/)
 
-作者：Ray裁决
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/031801-1.jpg)
-
-**据星岛环球网消息：**美国特朗普政府卸任前夕，时任美国驻联合国大使克拉夫特原订1月13日访台，却临时取消，成为悬案。据媒体报道，当时大陆解放军高层已透过对话管道扬言，若大使专机真抵台上空，将不惜派军机进入台湾领空，甚至开火捍卫主权，但临行之际，美国国务院于美东时间1月12日发布声明表示，为确保美国新旧政府顺利完成交接，取消包括国务卿在内的所有官员出访计划。蔡政府当时回应，尊重美国国务院的决定。由于事出突然，引发多方揣测，余波荡漾至今未止。
-
-3月15日郭文贵先生盖特爆出其中内幕，中美之间险些发生这次真正的战争的背后故事。台湾政府如果不认清中共的邪恶本质，香港的今天就是台湾的明天。
-
-[援引原文](http://m.stnn.cc/pcarticle/837446)
-
-【文章仅代表作者个人观点】
-
-审核校对：鲁邦五世
-上传排版：糖果儿
-
+![]()![](https://www.gnews.org/wp-content/uploads/2021/03/1-136.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/2-54.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/3-63.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/4-39.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/5-39.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/6-29.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/7-20.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/8-8.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/9-11.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/10-5.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/11-11.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/12-9.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/13-6.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/14-4.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/15-5.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/16-6.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/17-4.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/18-4.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/19-4.jpg)
 0
