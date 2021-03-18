@@ -1,42 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 把中共在新疆的镇压定性为种族大屠杀是给新中国联邦最好的礼物
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/985243/)
+## 【香港要闻】美国再追加制裁 24 名中港官员 指其破坏香港自治
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/985468/)
 
-摘要：在2021年1月19日的盖特视频中，郭文贵先生说这一天是爆料革命、新中国联邦最大的日子，因为美国政府正式把共产党在新疆的镇压列为种族大屠杀。这是蓬佩奥国务卿给爆料革命和新中国联邦灭共事业带来的大礼，也是美国对共产党的灭共行动的“911”。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210119_Getter1.srt.txt)
-**把中共在新疆的镇压定性为种族大屠杀是给新中国联邦最好的礼物**
+搜集 \ 编撰：西西
 
-**Declaring CCP’s Crime in Xinjiang as Genocide Is a Biggest Gift to NFSC**
+**美国国务卿布林肯今日（3月17日）在美国国务院网站发表声明指，已根据《香港自治法》去年10月的报告发布更新内容，点名24名中港官员损害香港自治权，包括14名中共全国人大常委会副委员长、港澳办及驻港国安公署、香港警务处国家安全处等人员，外国金融机构如与这些人有交易，将面临被美国当局制裁。连同该报告早前点名的行政长官林郑月娥等10名官员，有关制裁名单已增至34人。**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/zapo-1.png)美国国务卿布林肯3月17日宣布，《香港自治法案》更新报告中再增加对24名中港官员实施金融制裁，并指他们的行动削弱了香港的高度自治。
+**据【香港大纪元】**报道，新列入《香港自治法》报告名单中的24人，此前分别已被列入另外3份制裁名单。其中包括美国财政部今年初宣布制裁的6名与大搜捕行动有关人士，如中共人大常委谭耀宗、警务处国安处处长蔡展鹏、警务处助理处长（国家安全）江学礼，以及财政部去年11月宣布制裁的4名通过「港版国安法」镇压香港异见者的中共驻港官员及港警高层，如国务院港澳办副主任邓中华、香港警务处国安处高级警司李桂华、香港副警务处长刘赐蕙等。
 
-尊敬的战友们好！2021年1月19号，今天作为我们爆料革命、新中国联邦最大的日子，这个美国政府给了咱们一个很好的礼物，把共产党在新疆列为种族大屠杀。不管任何人说兄弟姐妹们，第一次提出来和真正展开行动，和推动这场把共产党列为种族大屠杀，和定为犯罪集团、恐怖组织，只有爆料革命新中国联帮，它意味着什么？共产党，共产党员只要你不跟爆料革命的，你将成为恐怖分子。
+布林肯指出，《香港自治法》报告发布更新内容，反映美国「深切关注」中共对香港选举制度的干预。他批评中共全国人大进一步践踏曾向港人承诺的高度自治，亦违反《中英联合声明》。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/jikjsikkdold9.png)（资料来源：立场新闻）![]()![](https://gnews.org/wp-content/uploads/2021/03/90p09od8id.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/dde3332.png)（资料来源：立场新闻）
 
-Hello, my dear brothers-in-arms! It is January 19, 2021, the biggest day for our Whistleblower Movement and the New Federal State of China. The US government has given us a very good present for this day, declaring the CCP’s crimes in Xinjiang as genocide. Whatever people say, brothers and sisters, it was the WM and the NFSC that proposed this first, took real actions and pushed it forward, for the CCP to be eventually defined as a crime organization and terrorist group that committed genocide. What does this mean? This means that members of the CCP will be listed as terrorists if they do not join our Whistleblower Movement.
 
-所有共产党的钱，都是犯罪的赃钱，所有的全世界的人对共产党，对这些犯罪集团，都有惩罚、遏制、消灭的责任和义务，而且是合法的。这就是我们郝海东先生在6月4号宣言讲的，这是正义的需要。把灭共变成人类全球的正义行动，合法的正义行动，谁给他做交易，谁跟他勾兑，谁拿他的钱，谁跟他来往，你就是和种族大屠杀犯罪集团勾结犯罪。
 
-All of the CCP’s money is money from committing crimes. Everyone in the world will be responsible for punishing, containing and eliminating the CCP and these crime groups. And it is a legal thing to do. As Mr. Hao Haidong said when reading the declaration on June 4, this is a need of justice. [We need to] make elimination of the CCP a global action of justice, a legal action of justice. If you trade and collude with the CCP, if you take their money or have any relationship with them, then you are colluding with a crime group that committed genocide.
 
-只有战斗室班农先生和我们的哥们蓬佩奥国务卿，兄弟姐妹们千万记住，记住文贵这过去三年说到话，在美国我们的朋友，我们的战友绝对不是你看到的这些，1月19号蓬佩奥国务卿给我们1月19号路德访谈最重要的日子，1月19号来了一个大礼，给爆料革命新中国联邦灭共的事业带来了大礼。你们知道背后是谁吗？是我们最最伟大的一位战友，未来你们会知道的，是他冒死，顶着一切的压力，在最后的时刻推动了这个伟大的关键时刻。119反过来就叫911，这是美国对共产党的灭共行动的911，共产党在多年前，曾经以为911给共产党苟延残喘多了一、二十年，但是今天美国人用事实行动，用911消灭你共产党，展开了最有效的行动。
+**点评：**
 
-Only Mr. Bannon from the War Room and our brother the Secretary of State Pompeo could achieve this. Brothers and sisters, you must remember what Miles said in the last three years. Our friends and brothers-in-arms in America are far beyond those that you can see. On January 19, the most important day to Lude Media, the Secretary of State Pompeo gave us a big present. He gave a big present to the WM and the NFSC’s cause to take down the CCP. You know who was behind all this? It was our greatest brother-in-arms. You’ll know who he is in the future. It was him who risked his life, withstood all the pressure and pushed this great moment forward at the last minute. January 19, one-one-nine, when reversed, is 911. This is America’s 911 action against the CCP. Several years ago, the CCP once thought the September 11 attacks would prolong their feeble existence for another ten or twenty years. Today, however, the Americans have unfolded the most effective action by taking down the CCP with 911.
+布林肯引述该报告，批评人大上周通过的「完善」香港选举制度方案已单方面破坏了本港的选举制度。他指该决定进一步扼杀了香港人应有的高度自治权，以及阻止港人在自治下发声，并指英国已将此举视为毁坏《中英联合声明》。
 
-无数个人打电话来恭喜，无数个人打电话说这是灭共事业上最伟大的一步，我告诉他们，不。我们119、海航事件、香港运动，千万别忘了香港人是我们的圣城，新疆的朋友你们的悲哀是新疆没有出来真正的民族英雄，出来一帮的民主的人渣、叛徒，但是我们会替新疆的朋友们去报仇，不会忘了新疆，包括西藏，对西藏有更大的行动，我告诉大家，今天不是最后的大菜，还有大菜，记住我郭文贵说的话，共产党你完了！
+布林肯这里传递了两个重要信息：
 
-Countless people called to congratulate. Countless people called to say that this is the greatest step in the cause of taking down the CCP. I told them “No!” Our January 19 Incident (referred to the Lude Show on Jan 19, 2020, which first broke the news about the CCP virus), Hainan Airlines Incident, and Hong Kong Movement. Never forget that Hong Kong is our holy city. My friends in Xinjiang, your sorrow is that there has been no real hero coming out of Xinjiang but a bunch of scumbags of democracy and traitors. But we will take revenge for our Xinjiang friends. We will not forget Xinjiang and Tibet. We have even bigger actions for Tibet. I can tell everyone that our action today is not the last course of the big meal. There will be more dishes to serve. Remember the words of Miles. CCP, you are done!
+1）路德社指出，中共一直认为《中英联合声明》已经是过期的历史文件，已经失效。布林肯在这时候提出《中英联合声明》，这说明美国政府认可基于严谨的司法程序而产生的法律为它并没有过期，在国际上依然生效。这是美国明确对《中英联合声明》的法律义务的有效性进行了一个认定，告诉全世界《中英联合声明》依然生效。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gnews.org/zh-hans/773640/](https://gnews.org/zh-hans/773640/) (00:00 – 03:01, 05:08 – 6:08)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/773640/](https://gnews.org/zh-hans/773640/)
+2）《中英联合声明》本来是中英双方签订的契约，但现在美国认可了一份与自己无关的条约。美国如此为《中英联合声明》背书，墨博士认为美国明确发出了一个信号：「《中英联合声明》是所有国家的一个声明，等于大家都认为它是合法的。美国带头站出来认定《中英联合声明》是一合法的契约，意味着接下来整个西方国家都会认可该声明。那么违反该声明的就是不合法，也意味着不承认《中英联合声明》契约的中共就是不合法，而中共违反了国际共同认可的协议！」
 
-* * *
+《中英联合声明》就是规则，也是国与国之间在国际上的承诺，中共公然不守信用，不守国际契约，这里也暴露了中共毫无契约精神和不守信用的本质。
 
-翻译：【雷鸣（文鸣）】字幕：【JennyL】视频解码：【恒久忍耐】校对 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+《基本法》的精神是向港人保证50年不变，香港可保留高度的自治权。可事实上中共已经全面地改变了香港的选举制度、司法制度。从去年7月1日开始，【港版国安法】的强行推行更是全面地限制和摧毁香港的言论自由。
+
+2）布林肯在他的推特里指出中共政府未能按约定去履行《中英联合声明》和《基本法》的条文。路德解读是：把这是美国政府明确把《中英联合声明》和《基本法》放在一起，认同两者之间具有相等的法律责任意味着它们是同等的，违反了《中英联合声明》就是违反《基本法》。违反了《联合声明》意味着香港是可以被收回去的。这已不再只停留在谴责层面，而是即将会进入惩处追责阶段。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ikdold9800wlwow.png)1985年5月27日，中英两国政府在北京互换《关于香港问题的联合声明的批准书》，《中英联合声明》自当日起宣告生效。
+
+
+【以上观点仅代表笔者本人 】
+
+资料来源：
+
+[17-3-2021 路德时评](https://youtu.be/5U8dxEozHh0) 丶 [大纪元香港](http://xn--z4q25qs3se8oby5a/) 丶 [立场新闻](https://www.thestandnews.com/international/%E7%BE%8E%E5%9C%8B%E5%8B%99%E5%8D%BF%E5%B8%83%E6%9E%97%E8%20%82%AF%E6%89%B9%E4%BA%BA%E5%A4%A7%E7%A0%B4%E5%A3%9E%E9%A6%99%E6%B8%AF%E9%81%20%B8%E8%88%89-%E9%BB%9E%E5%90%8D-24-%E5%90%8D%E4%B8%AD%E6%B8%AF%E5%AE%98%E5%20%93%A1%E5%89%8A%E5%BC%B1%E9%A6%99%E6%B8%AF%E8%87%AA%E6%B2%BB/)
+
+审稿： 卡西欧 \ 上传：彩虹（ Rainbow ）
+
+
+
+
+
+
+
+
+
+
 
 0
