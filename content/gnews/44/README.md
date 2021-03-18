@@ -1,41 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 点评布林肯答日本记者涉及的中共问题
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/985470/)
+## 美国与世界的互动应对全球挑战至关重要（2021年03月16日 玫瑰看新闻）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/985591/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
-
-编辑上传 水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/B-4-11.jpg)theepochtimes.com
-在访问日本期间，布林肯接受了《日本电视台》小谷泉（Izumi Oguri）的采访，美国国务院发出了新闻稿【1】，现将涉及中共国部分摘译，并稍加点评。
-
-问：好的，日本和美国刚刚同意对中共国的侵略和威胁采取更强硬的立场，但在经济上，日本和中国有着巨大的交织关系，日本一直未能与中共国脱钩。美国会对这种情况感到满意吗？
-
-布林肯：好吧，我认为美国和日本都对我们近年来所看到的情况深表关切，即中共国在国内表现得更为压制，在国外表现得更为活跃，包括特别是在该地区，无论是在尖阁诸岛还是在台湾、南中国海。根据我在东京的谈话，这显然是我们双方都很关心的问题，重要的是，我们要团结一致，共同应对中共国提出的一些挑战，我相信我们会做到这一点。
-
-**评**：答非所问，应该直接指出，我们都必须按照美国前政府的策略，争取早日结束与中共国的经济来往，实现脱钩，否则后患无穷！
-
-问：在某个时刻，日本可能再也无法站在美国（听不见的）对中共立场的一边。美国能在多大程度上允许日本采取不同的做法？
-
-布林肯：这不是反对某件事或某个人，而是坚持我们共同的价值观、原则和利益，确保当这些价值观、利益受到挑战时，我们共同努力捍卫它们，这就是问题所在。
-
-与中共国的关系是一个非常复杂的关系，它有敌对的方面，它有竞争的方面，它有合作的方面。但处理这些问题的共同点是，确保我们从一个强大的立场接近中共国，而这种强大始于我们的联盟，始于我们的团结，因为这确实是我们拥有的独特资产，而中共国没有——联盟，以及志同道合的国家之间的合作。当我们一起工作，当我们一起行动，当我们一起表明我们的关切时，这比我们任何一个单独行动的国家都有更大的分量。这就是我们前进的精神。
-
-**评**：严重的误判，一个“反制裁（17国）联盟”正在组成，他们是中共国，俄罗斯、伊朗、朝鲜、阿尔及利亚，安哥拉，白俄罗斯，玻利维亚，柬埔寨，古巴，厄立特里亚，老挝，尼加拉瓜，圣文森特和格林纳丁斯，叙利亚和委内瑞拉等【2】。与邪恶不应该存在任何的合作关系，与中共合作，至少反映出对邪恶的认识不足！
-
-问：好的，美国有没有可能抵制北京冬奥会？
-
-布林肯：嗯，我们已经听到了世界各地关于奥运会前景的许多担忧，考虑到中共国在国内对人权的侵犯，在涉及新疆维吾尔族、其他少数民族的情况下，当然，香港正在发生的事情，日益紧张的结果，它对台湾的行动。我们已经听到了很多这样的担忧，我们将继续与世界其他国家对话，听听他们的想法，在适当的时候我们将决定怎么做，但目前，我们只是在倾听世界上许多国家表达的关切。
-
-**评**：世界跟着美国走，你在首鼠两端，意志不坚，实际上就是起到一种默许、认可邪恶的作用。中共就有可能以此为突破点，进一步勾兑，就像文贵先生爆料说的那样，邪共已经在动作，准备了丰厚的、难以让你拒绝的诱惑，等你入套。
-
-拭目以待，看看机场会面将有怎样的动作？
-
-参考链接：
-
-【1】[https://www.state.gov/secretary-antony-j-blinken-with-izumi-oguri-of-nippon-tv/](https://www.state.gov/secretary-antony-j-blinken-with-izumi-oguri-of-nippon-tv/)
-
-【2】https://www.reuters.com/article/china-usa-un-int-idUSKBN2B336H
-
+![]()![](https://www.gnews.org/wp-content/uploads/2021/03/1-136.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/2-54.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/3-63.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/4-39.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/5-39.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/6-29.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/7-20.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/8-8.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/9-11.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/10-5.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/11-11.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/12-9.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/13-6.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/14-4.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/15-5.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/16-6.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/17-4.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/18-4.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/19-4.jpg)
 0

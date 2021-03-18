@@ -1,35 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共借“控制媒体和数据”抢劫网络平台大公司
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/986359/)
+## 美国政要等每日重要信息0318.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/986344/)
 
-#### 翻译报道：WEN JIE
+**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0318.jpeg)
+#### 香港问题
 
-#### 责编：白夜
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-79.png)图片来源：FT中文网
-据金融网站《Zerohedge》日前报道，中共开始打压像阿里巴巴和腾讯这样的科技巨头，在取消蚂蚁集团国内上市计划（迄今为止在共产主义国家官方市场上最大的上市规模）的几个月后，中共独裁者终于说，这次上市的事不过只是刚刚开始。
+3月17日蓬佩奥先生就现任政府布林肯对港政策予以肯定，推文如下。
+“政府干的不错，继续追究㆗（共）国高级领导㆟违反对世界作出港㆟自由的承诺。世界必须 “怀疑并核实”，并追究中共的责任。”
 
-似乎是为了突出他的讲话，有西方媒体周二早上报道，阿里巴巴的网络浏览器已经从中共的应用商店被移除。从应用商店下架那些在中共看来“违规”公司的应用程序是对它们再正常不过的惩罚了，有报告说中共是在得到阿里巴巴剥离其媒体资产的相关报告后，做出决定暂停使用阿里巴巴浏览器（UC浏览器）的。据报道，中共害怕这些庞大的不受欢迎的阿里巴巴新媒体资源，它们对中共自己的宣传机构是一种威胁。
+继日前英国对中共国发出违背中英联合声明的警告勒令改正之后，3月16日与17日美国拜登政府对中共在香港修改选举法的行径更新了《香港自治法案》，对24名中港官员进行制裁。包括(1)识别该外国人士的身份；(2)清楚解释识别该外国人士的原因，并说明识别该外国人士的活动。明知故犯地与制裁人员进行重大交易的外国金融机构将受到制裁。被制裁人包括：
 
-随着中共加紧对经济的控制，移除这款流行的UC浏览器是知名企业家马云的帝国受到的最新打击，在监管机构取消蚂蚁集团创记录的370亿美元的上市计划，取消挂牌后，马云几乎就没有在公共场合出现过。
+Wang Chen，You Quan，Cao Jianming，Zhang Chunxian，Shen Yueyue，Ji Bingxuan，Arken Imirbaki ，Wan Exiang ，Chen Zhu，Wang Dongming，Padma Choling，Ding Zhongli，Hao Mingjin，Cai Dafeng，Wu Weihua，Deng Zhonghua ，Li Jiangzhou，Edwina Lau，Li Kwai-Wah，Frederic Choi Chin-Pang，Kelvin Kong Hok Lai ，Andrew Kan Kai Yan，Tam Yiu-Chung，Sun Wenqing, AKA Sun Qingye
 
-有中共高层的会议记录显示，中共的独裁者曾在会议上警告，科技巨头正“以不寻常的方式”快速成长，对中共国体系带来风险。这个问题很严重，监管机构眼下已失去了对“这些公司增长”的调控。官员必须进一步加强对中共国的网络大公司的监管。
+布林肯国务卿称美国与日本就中华人民共和国破坏香港选举制度、没有履行义务已经达成共识，两国拥有共同的民主价值观。
 
-中共最高领导补充说，中共国网络经济的发展处在关键阶段，必须要专注长期发展，提升薄弱环节，创造创新的环境来提升网络平台经济持续健康的发展。过去中共的领导人曾说过限制垄断的重要性，但这是他第一次特别强调那些由网络平台公司像腾讯、阿里巴巴、京东及其它网络公司带来的问题。
 
-回头说阿里巴巴。最近中共国一个电视节目播出后，该节目在中共国消费者权益日黄金时间播出，冗长的质量报告抨击了中共科技企业，紧接着就将UC浏览器从应用商店下架。对阿里巴巴下手或许只是刚刚开始。腾讯的创立者马化腾比阿里巴巴的马云要小心谨慎得多，马云在去年十月的科技大会上的错误言论立即激怒了中共并受到抨击，但毫无疑问，腾讯的微信是中共国高科技经济中的“优步应用”，人们用他们的智能手机购物付款时，这款应用经常提供方便。然而腾讯股价也因为上述阿里巴巴的打压新闻而暴跌，到目前为止，阿里巴巴面临的压力最大，但腾讯也是中共反托拉斯监管机构的目标。
 
-就像荷兰合作银行（Rabobank）的迈克尔·艾弗（Michael Every）最近给客户的信息中所指出的那样，中共政府似乎在传递一个信息，媒体和数据必须被国家控制，不能由私人公司控制。这对腾讯来说是一个可怕的消息，他们已经在推动成立一家金融控股公司，以便开展银行、保险和支付业务。华平投资（Warburg Pincus）削减了蚂蚁集团（Ant Group）的估值范围，将其估值范围定在2,000亿至2,500亿美元之间，低于首次公开募股前的2,800亿美元，这再次显示西方投资者们对中共的目的不断增长的担心。
 
-中共国当然有巨大的科技野心，这些都必然涉及到数据和媒体。毫无疑问，中共国已经得益于这些科技公司对它天文数字经济规模增长做出的贡献，但不管怎样，威胁中共的主导地位就是对它最大的威胁。
 
-#### 评：
+> Good on the [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) for continuing to hold senior Chinese leaders responsible for breaking promises that China made to the world regarding freedom for the people of Hong Kong. The world must "Distrust but Verify" and hold the CCP accountable. [https://t.co/pXmwjXeZqV](https://t.co/pXmwjXeZqV)
+> — Mike Pompeo (@mikepompeo) [March 17, 2021](https://twitter.com/mikepompeo/status/1372293660830748675?ref_src=twsrc%5Etfw)
 
-看完这篇报道，真正领会到郭先生在一开始就爆料，中共国的这些大企业家大公司没有一个有好下场。现在中共借“控制媒体和数据”来“国有化”那些私人互联网公司，与其说是控制媒体和数据掌握主导权，倒不如说就是抢劫那些公司的巨额财富。现在爆出腾讯阿里巴巴，我想我们很快会看到更多网络平台公司被交出控制权的消息。
 
-没有健康的制度就没有安全的企业，没有安全的企业家。灭共不仅仅是受到压制的中国中低层人民的呼声，更是那些帮助维护中共政权的企业家们的诉求。
+[https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/](https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/) [https://www.state.gov/hong-kong-autonomy-act-update/](https://www.state.gov/hong-kong-autonomy-act-update/)
+这份制裁清单里的官员是为中共作恶的虾兵蟹将，再次成为中共的挡箭牌，这份更新的法案其制裁条款不够具体、清晰，究竟能给香港带来多少实际帮助，相信布林肯自己也说不出。但是有一点明确的是，支持香港、谴责中共已经成为政治正确。在此基础上，有一个从量变到质变的积聚过程，我们有理由相信，西方世界据此向中共要价、讨伐甚至进一步行动是未来的趋势，而能量转化的导火索无疑是中共病毒疫情危机。
 
-原文链接：[Alibaba Browser Pulled From China’s App Stores As Xi Warns Tech Giants Pose “Risks” To CCP Control](https://www.zerohedge.com/geopolitical/alibaba-browser-pulled-chinas-app-stores-xi-warns-tech-giants-pose-risks-ccp-control)
+
+
+
+
+文章观点部分仅代表作者本人。
+
+作者：康州盘古农场 喜马拉雅的文雅
+
+封面：康州盘古农场 霹雳年
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
+
+（本文当日持续更新中）
 
 0
