@@ -1,38 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 今夜我又做梦了
-` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/985285/)
+## 台防长对中共霸气放言——随时应战并奉陪到底！
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/985168/)
 
-【作者】小蚂蚁moses  【編輯】Sharon
-![]()![](https://gnews.org/wp-content/uploads/2021/03/GoodNightSleep-1024x757-1.jpg)
-今夜偶又做梦了
-G系列收割的秋天
-咱又记起海鸟
+加拿大多伦多枫叶农场 军迷Wilson
+![]()![](https://gnews.org/wp-content/uploads/2021/03/hicloud.net-2.jpg)*图片来源：hicloud.net.tw*
+习近平于去年12月26日签署了修订版的《国防法》，该法强调当主权统一、领土完整、国家安全及发展利益受到威胁时，要进行全国战争动员。其中“发展利益受到威胁”为新增加的开战条件。意思很明确，就是以攻占台湾为突破口，冲破由美国及其盟友为了围堵中共布设的第一军事岛链，从称霸印太到统治全世界——这就是中共的“发展利益”。从这部《国防法》的修订可以看出，中共要孤注一掷了。
 
-走去恬静的海边
-脱下扣绷的外套
-秀十指不缺的巧手
-做个不大低碳的小窝
-穹顶之上必须是歌唱的小草
+中共的御用战狼金灿荣宣称，美国不承认14亿中国人民的发展权利，所以要把美国打趴下。可以看出，金灿荣对中共的邪恶面目极力掩饰，除了帮助中共愚弄国内民众，还为中共即将发起的台海战争伪造合法性；金灿荣多次鼓吹中共攻占台湾仅需几天或半个月(有时又说要一个月)……，这是代表中共虚张声势，对台湾军民进行的低劣心理战。[【1】](https://www.youtube.com/watch?v=xIrNP9fVIbc&amp;ab_channel=GuanVideo%E8%A7%82%E8%A7%86%E9%A2%91%E5%B7%A5%E4%BD%9C%E5%AE%A4)
 
-喜欢的战友打邦
-作个睦邻可好
-白马黑马相随着跑
-成群的狗狗在前面开道
+本周三，中华民国新任国防部长邱国正在立法院听证会进行工作汇报和接受质询时表示，面对日益咄咄逼人的中共，国军已经做好了随时应战的准备，开战后只要中共不收手，国军就一直奉陪到底。此前有人认为，国军可能可以抵抗7天，而美国印太司令戴维森日前透露，当台海战争爆发，美军需要17天才能完成对台湾的驰援。
 
-小蚂蚁moses 3/17/2021子夜
+对于台湾军民以及关心台湾命运的国际社会而言，邱国正防长的霸气回应无疑是令人振奋的。邱国正防长的底气来自国军卓越的战争能力和充分的战前准备，特别是在中共军方造毒放毒的真相已经无法掩盖的情况下，全世界正在迅速形成灭共联盟，势必对中共形成极大的震慑，从而加速中共内部的分裂，台海局势极有可能就此转危为安。
 
-【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+参考链接：[共軍打來我撐不到美軍馳援？邱國正霸氣回：中共打幾天，國軍奉陪幾天](https://www.storm.mg/article/3544434)
 
-**欢迎战友加入旧金山金喜农场**
+* * *
 
-[旧金山金喜农场](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[**GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+编辑 发稿 云起时
 
-[旧金山金喜农场](https://discord.gg/QQzQ79grEA)[**Discord**](https://discord.gg/QQzQ79grEA)
-
-[旧金山金喜农场](https://twitter.com/sf_himalaya)[**Twitter**](https://twitter.com/sf_himalaya)
-
-[旧金山金喜农场](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[**Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
-
-+1
++2
