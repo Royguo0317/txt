@@ -1,39 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国宣布扩大制裁24名中港官员
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/985453/)
+## 美国与世界的互动应对全球挑战至关重要（2021年03月16日 玫瑰看新闻）
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/985591/)
 
-**【日本东京方舟农场】**作者：青衣 素材采编：武汉老温 校对：miumiu law
-
-美国国务院 周二（3月16日）根据《香港自治法》提交报告，列出24名涉及侵蚀《中英联合声明》和《基本法》中方义务的中港官员，并对他们实施制裁。这是美国对中共侵犯香港自治所采取的又一次制裁行动。此次美国宣布扩大制裁的24名中港官员当中包括14名中共人大副委员长，该举动可视作是美国方面对中共修改香港选举法的回应。
-
-正在东亚访问的美国国务卿布林肯，在美国东部时间星期二（2021年3月16日）晚发表一份声明称，依据《香港自治法》，国务卿必须定期向国会更新不履行《中英联合声明》或香港《基本法》人员的资料。今天更新列出的24名中国和香港官员，包括14名中国人大常委会副委员长、香港警署国家安全处官员、中国国务院港澳办及驻港维护国家安全公署官员。声明还指出，任何故意与这些人员进行相当金额交易的外国金融机构都将会受到制裁。
-
-被制裁的24人名单是：
-
-王晨、尤权、曹建明、张春贤、沈跃跃、吉炳轩、艾力更·依明巴海、万鄂湘、陈竺、
-
-王东明、白玛赤林、丁仲礼、郝明金、蔡达峰、武维华、邓中华、李江舟、刘赐蕙、
-
-李桂华、崔振邦、孔鹤来、简启恩、谭耀宗、孙文清
-
-此次被制裁的中港官员都是负责制定和通过《国家安全法》的成员。其中王晨是中共中央政治局委员，也是负责制定和通过《国家安全法》的全国人大常务委员会副主席；尤权是中共统战部部长兼香港和澳门事务中央领导小组副主席；李江舟和孙文清是香港中央政府维护国家安全公署副署长；刘赐蕙是香港警务处副处长兼国家安全局负责人。
-
-自中共于去年6月30日强行在香港实施《国家安全法》后，美国国会两院在短短几周内快速完成了《香港自治法》（Hong Kong Autonomy Act）的立法程序，并获得时任总统川普的签署。川普政府去年12月就已宣布首批制裁名单，制裁对象是违反香港自治与自由的14名中共人大常委会副委员长，禁止他们本人以及其直系亲属入境美国，冻结其资产，禁止任何美国机构或个人与其交易，而此次制裁更是将名单扩大至24人。
-
-中共人大最近修改了香港选举法，受到拜登政府的谴责，七国集团成员国外长也发表联合声明，对北京此举表示严重关注。对于此次制裁行动，布林肯表示，这是对中共承诺给予香港人民的自治权和自由权遭进一步削弱的回应。
-
-布林肯国务卿即将于本周四在阿拉斯加州与中共高级官员会晤。这次在访问东京期间宣布扩大对中共和香港官员的制裁，显示出美国与地区盟友在应对中共威胁的问题上取得了更多共识，增强了拜登政府以强硬姿态面对中共的信心。
-
-**注：本文仅代表作者观点**
-
-参考链接：
-
-1.[https://twitter.com/SecBlinken/status/1372016601940291585](https://twitter.com/SecBlinken/status/1372016601940291585)
-
-2.[https://twitter.com/VOAChinese/status/1372043526767177728](https://twitter.com/VOAChinese/status/1372043526767177728)
-
-3.[https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/](https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/)
-
+![]()![](https://www.gnews.org/wp-content/uploads/2021/03/1-136.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/2-54.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/3-63.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/4-39.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/5-39.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/6-29.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/7-20.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/8-8.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/9-11.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/10-5.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/11-11.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/12-9.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/13-6.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/14-4.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/15-5.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/16-6.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/17-4.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/18-4.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/19-4.jpg)
 0

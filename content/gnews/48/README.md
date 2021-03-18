@@ -1,54 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 两个白皮书的公布将等同于全世界向中共宣战
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/985074/)
+## 2021年03月17日澳喜要闻（每日更新）
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/985209/)
 
-新闻简述：2021年3月13日的盖特中，郭先生说关于病毒和香港人权的两个《白皮书》有重大意义。这两个白皮书的发表等同于全世界向中共宣战。来自于学术界各领域的中国同胞参与了这个病毒报告的撰写。香港政府内部有良知的官员和警察在香港人权报告撰写过程中提供了关键的信息和帮助。当然，这些人中许多是爆料革命的战友。无论天气如何变换，太阳总会升起，请战友们保持信念，对世界和爆料革命的胜利抱有信心。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210313-getter1.srt.txt)
-**两个白皮书的公布将等同于全世界向中共宣战**
+撰稿：GTV澳喜影像视频组、新闻组
 
-**Two White Paper Reports Are Equivalent to the Declaration of A War Against the CCP**
+**路德社早间时评：**
 
-尊敬的战友们好！3月13号。哎呀，真快啊，我刚才差点说3月12号，3月13号了。继昨天文贵推出盖特之后，好像这个世界发生很多大事，这两个白皮书，很多人意识到了，它是多么的重要，但很多人也没有意识到它有多么的重要。
+**朝鲜威胁美国不要惹麻烦。**金正恩的妹妹、朝鲜劳动党中央委员会第一副部长金与正批评韩国正在进行的军事演习，并警告美国拜登政府如果想要和平，就不要“惹麻烦”。声明发表前一天，美国国务卿布林肯和国防部长奥斯汀将抵达首尔，与韩国官员举行首次会谈。朝鲜从来都是中共的一条恶狗，中共现在想利用朝鲜牵制韩国，试图阻止韩国加入亚太联盟。北朝鲜通过金正恩亲妹妹金与正发出这样的警告，这是朝鲜近几十年发出的最狠警告。中共最擅长恐吓对手，或用交易解决矛盾，维护其利益。中共倒台，金家政府也将灭亡。朝鲜的警告表明，他们会和中共站在一条战线上。当年朝韩两国只是签署“中止协议”，承认“三八线”为停战边界。但至今没有承认“三八线”是两国国界，所以朝鲜随时可以对韩国发起攻击。届时韩国经济会崩盘，这会打击美国建立的全球经济体系。美国国务卿布林肯及国防部长此次与日韩展开“2+2”对话的最重要目的就是要重塑东北亚秩序，将中共国踢出东北亚秩序。
 
-Dear fellow fighters, today is March 13th! Time flies! I almost mistakenly took today as March 12th. It’s March 13th already. After I posted the Getter yesterday, it seems that many big events are happening in the world. Many people have realized how important the two “white paper” reports are, but others still do not understand their importance.
+**澳州、美国、日本、印度将与法国举行联合军事演习。**刚举行完四国首脑会议的澳美日印预计将与法国海军一起在孟加拉湾举行军事演习。这将是五国海军的首次联合，也是在中共威胁与日俱增的情况下，五国建立军事协作的最新举动。日本自从二战后经济快速腾飞，但是它在国际上几乎没有话语权，美国这次为对付中共不断拉拢日本，帮助日本迅速建立国际话语权。北约有两套军事体系，一套是美国体系，另一套是法国体系，美国只要同法国完成体系对接，北约各国军事力量就将完成全面联合，所以美国的强大是体系的强大，强大的系统造就了强大的美国。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/20210317_AB-scaled.jpg)
+**路德社晚间时评：**
 
-我告诉大家一个简单的例子，特别像法国，法国这种非常硌涩的这种国家，那种成天装硬骨头、装个性的这种国家，实际上一打就跪下的这种国家，然后平常还有很多发明的这些国家，经济体系在那摆着那。听说他们这些人以后啊，咋说那？别说漏了。听说他们参与到这个写白皮书的人当中，两三波都退掉了，都不敢参与了。为啥呀？战友们去想想，**这个白皮书出来，就等同于全人类向共产党宣战。**那法国的政要们，所谓现在还买疫苗呐，还搞疫苗经济，疫苗安全卡，疫苗健康卡，这不是一场生物大战嘛，那你不是在帮助别人战你自己的国民吗？所以说很多人写着写着就不敢写了，还有人就越想越害怕，就回家抱孩子去了。
+**美日联合新闻发布会传递重要灭共信号。**美国国务院官网发布美日联合公告，内容有：讨论中共国局势区域战略环境；认识到中共行为与现行国际秩序不符，对美日和美韩等联盟以及其它国际社会构成威胁；反对任何中共寻求改变现状如解决东海和南海问题的单方面行动；对中共新颁布的《海警法》表示严重关注；明确中共采用胁迫和侵略手段削弱香港自治权，削弱台湾民主政治，侵犯新疆和西藏人权，以及在南海进行违反国际法的海上军事化行动；若中共非法侵入印太地区，如有必要可立即回击；美国不接受中共利用《海警法》破坏包括美国在内的有关国家合法权益，加剧南海紧张局势；美国军方将继续关注中共国；确保受中共威胁的美日联盟及相关人员保持绝对的竞争优势；制定作战计划，提高作战能力来威慑霸权者和侵略者，无论是中共国还是其它任何国家。此份报告显示出很多对中共首次使用的外交用词，且在美国方面由国务卿布林肯和国防部长奥斯汀共同承诺。
 
-Let me give you a simple example. France – a bizarre country like France – always pretends to be tough, unconquerable, and full of personality. Yet in fact, it is easy to be knocked down. There are also countries known for their great inventions and also the limitations in their particular economic structures. I heard some people in these countries – I should be more cautious and do not disclose any secrets – I heard that two or three waves of them who initially participated in the writing of the “white paper” have withdrawn. They dare not participate anymore. Why, fellow fighters? Think about it. The publication of this white paper is equivalent to the declaration of a war by all mankind against the CCP. French politicians are still buying the CCP’s fake vaccines, and promoting the fraudulent vaccine economy – vaccine safety cards and health cards – aiming at controlling people, even after the virus has been confirmed as a biological warfare. Then are you helping the enemy attack your own people? Many participants did not dare to continue after participating for a certain period. Some became more and more afraid that they simply quit the job and went to live ordinary people’s lives.
+**美国灭共需要考虑亚太秩序。**中共《海警法》使用“搁置争议”和“历史意义”来模糊化管辖范围，且明确海警船有权开火，传递出对美国国际秩序的强烈威胁。尽管极右翼的存在可能会让日本在解锁军事力量后产生潜在风险，但美国还是在中共病毒上下定决心，让日本拥有对外军事活动的参与权。这也看作是习总加速神送给日本的大礼。由美国主导的三足鼎立局面已经由亚太地区的“中日韩”变成印太地区的“日印澳”，遗憾的是台湾的退缩令其失去机会。为避免亚洲地区失衡，美国需要顾及朝鲜半岛问题和日韩问题等。现在采取行动，说明美国已经有了保持亚太地区稳定的可行方案。新中国联邦的建立，就是为了方便以后参与掌握亚太主导权。
 
-也听说美国各个机构都盼望着这个白皮书的正式出来。大家可以看到一个问题，这个不是拜登总统新政府搞什么事情，是川普总统的最后一年，一直到现在没有停。这也是美国这个国家的伟大，都乱成这样了，这样的大事没停，都在收集证据。
+**纳瓦罗传递重要以毒灭共信息。**纳瓦罗先生接受Newsmax采访，称几乎可以肯定新冠病毒来自“武汉生物武器实验室”，是中共通过功能增强实验改造的生物武器，而美国纳税人的钱却被福奇拿去帮助中共制造生物武器袭击美国和全世界。路德社分析，真正主导美国的是西点军校等保守派即右派力量，而左派力量起修正作用，美国正是在不断试错中变得伟大。纳瓦罗先生强调美国纳税人的钱投资了中共病毒，正是为防止全世界敌视中国人。不同的灭共方法，会产生不同的历史走向。若1月13日美中因台湾开战，则在灭共上与中国人彻底无关，以毒灭共也将不复存在，中国人将彻底失去话语权，后果不堪设想。只有本性勤劳善良，爱好和平的中国人自己灭共，才能得到全世界人的尊重，从而掌握足够的话语权，避免世界迎来另一场可能的人道灾难。
 
-I have also heard that many U.S. organizations are looking forward to the official release of this white paper. Everyone should know that this was not started by the new administration of President Biden. The development of this paper has been continued from the last year of President Trump’s term to the present time, which shows the greatness of the U.S. as a country. Even though the country has become so chaotic, a major initiative like this was never stopped. Evidence continues to be collected.
+**澳洲新闻：**
 
-难能可贵的事情，我们中国同胞有重要的科学界、知识界、生物界、医药界，有人参与，这给我们中国人在未来，在世界上的形象，挣来了不可估量的巨大的正面的影响力，是用钱不能估量的。我相信这个报告出来时候，上面会写上：该报告得到来自于中国内部的体制内，知识界、医学界、科学界，等等等等，善良有良知的中国人的支持、帮助和提供信息。记住我今天说的话。
+**澳公司曝光：浙江大华软件包含“种族过滤器“。**大纪元3月15日报道，近日，澳洲著名安全专家、家庭和商业安全服务提供商Calamity Monitoring公司总裁和创始人莱科维茨声称，他在协助新州警方处理一起刑事案件时，使用了浙江大华的网络视频监控软件进行录像识别。却发现该软件具有针对维吾尔族人的面部识别功能。在软件查看到有所谓“黄色人”时，会发出警告。随后，他立即向管理高层发出指示，要求他们远离这家软件供应商。目前，他的公司已断绝了与浙江大华的关系。
 
-Ah, a rare and commendable thing: among the participants that wrote this “white paper”, there are important Chinese compatriots from the fields of science, academia, and biology, and the pharmaceutical industry. Consequently, Chinese people’s positive image has been greatly improved, the influence of which cannot be measured by anything including money. I believe the following will be acknowledged in the report when it is released: Conscientious Chinese people from academia, medical field, scientific community, and other fields inside China have supported, helped, and provided information for this report. Please remember what I said today.
+**美国要求中共不改善与澳洲的关系，美中关系就不会改善。**美国之音3月16日报道，今日，白宫国家安全委员会印太协调员坎贝尔在接受《悉尼先驱晨报》采访时表示，拜登政府已告知中共政府，“我们不会让澳大利亚孤立无援。”他说：“我们已经清楚表示，在一位紧密盟友受到某种形式经济胁迫的同时，美国并不准备改善双边关系，也不打算单独处理。”
 
-另外一个香港报告，香港的人权，我们要感谢香港有良知的警察。这个报告现在听说：这个最关键的就是得到了香港的警察和香港政府内部人提供的信息。当然有我们爆料革命的战友了，是吧？提供的信息，提供的巨大的帮助，未来也会写上：要感谢来自于香港的，有良知的警察和政府公务员，以及冒着生命危险的，有良知的人士提供的信息。这都得有。所以说战友们，对这个世界永远要充满着信心，不管是打雷、下雨、阴天，你要想到：这些都是雨过天晴，太阳还会从东边升起来。这是目前我认为从爆料革命到现在，对共产党最大的伤害的是这么一个国际上的公约和国际上的法律。
+**伪中共国新闻：**
 
-Regarding the Hong Kong report – the Hong Kong human rights white paper report, we would like to thank the Hong Kong police officers who have a conscience. As the report is being compiled, we have been told that the critical elements are supported by the information provided by Hong Kong police and Hong Kong government insiders. Of course, there are contributions made by our fellow fighters of the Whistleblower Movement, right? The information they provided and the tremendous help they offered, will also be acknowledged in the future: Thanks to the conscientious police and government officials from Hong Kong and the conscientious people who risked their lives for the information. It has to be included. So, fellow fighters, we must always be full of confidence in this world. Whether facing thunder, rain, or cloud, you should have confidence that all these will pass. The sun still rises from the east. According to international conventions and international laws, this will cause the greatest harm to the CCP since the beginning of our Whistleblower Movement.
+**中共再加强网络控制，加密通讯应用程序****Signal****疑被封。**美国之音3月17日报道，美国的加密通讯应用程序Signal疑似遭中共封锁，中共国用户必须通过VPN才能登录。这是继上个月封杀Clubhouse后，中共当局加紧对网络控制的最新举措。科技信息媒体TechCrunch称，美国专门监控中国“防火长城”封锁状况的非营利组织Greatfire.org发现，Signal网站在中国被封，但苹果商店还仍能下载，不过安卓商店已无法使用。
 
-当然在这之前，对共产党最大的伤害，是川普总统政府，美国优先，中美贸易摩擦，等等等等，包括对中国企业在美国的整个处置，这都是对它的重大的伤害，接近于软脱钩走向硬脱钩，这是对它最大的伤害。最后一年是真正的就是把它定为种族大屠杀、反人类罪，这是致命的伤害。当然爆料革命这个刀每天都是往那扔，是吧？劈里啪啦的没停过，这是重中之重，咱就不吹了，是吧？咱不自恋了。
+**美国同英国一起，支持香港民主制度。**美国国务院发言人内德·普赖斯3月15日发推文表示：我们与英国有同样的关注到，中华人民共和国最新的行动进一步破坏了香港的民主体制，并且表明了中共政府继续无视国际承诺和义务。
 
-Of course, before this, the biggest harm to the CCP was the American First policies of the Trump administration. Sino-U.S. trade frictions, including the broad sanctions on the military-linked CCP companies in the U.S. have caused serious harm to them. Soft decoupling and complete decoupling inflict the greatest damage on the CCP. In the last year [of his administration], the most severe harm was to designate the CCP as having committed genocide and crimes against humanity. This is fatal to them. Of course, the Whistleblower Movement is throwing knives towards the CCP every day, which has never stopped. This is the top priority. We will not brag too much, right? Let’s stop being narcissistic.
+**来自香港前沿的报道：**
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+**香港失业率达到****17****年最高点，林郑支持率不足两成。**美国之音3月17日报道，香港就业形式持续恶化，失业率高达17年来最高水平。香港政府统计处星期二表示，目前已有超26.16万人失业，截至2月的三个月内的失业率达到7.2%，这是17年来的最高水平。 另外，香港民意研究所16日公布民调结果显示，香港特首林郑月娥的支持率仅有18%，反对率则高达72%。
 
-视频来源：[https://gtv.org/getter/604cda9d607c4240c8b54b0d](https://gtv.org/getter/604cda9d607c4240c8b54b0d) (00:00-04:54)
+**美国新闻：**
 
-鸣谢：
-[1] 感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/973208/](https://gnews.org/zh-hans/973208/)
-[2] 感谢 Antsee-GTV 和 Liberte 提供英文翻译文本于 [https://gnews.org/977827/](https://gnews.org/977827/)
+**美日高层会谈，布林肯：共同应对中共威胁，让两国关系更紧密。**美国之音3月16日报道，美国国务卿布林肯在访问东京期间与日本外相茂木敏充举行了会谈。双方都表示美日同盟是维护印太地区和平与稳定的基石。布林肯表示，共同应对中国威胁、实现印太地区自由与开放的愿景是将美日两国带到一起的重要因素。美国五角大楼也在一份声明中表示，“中国是我们的主要威胁。我们的目标是确保我们有能力、作战计划和概念，能够对中国或任何想与美国抗衡者形成可信的威慑。”
 
-* * *
+**美海岸警卫队建军西太平洋，只为对抗中共海军。**大纪元2021年03月16日报道，中共经常利用中国渔船队配合海岸警卫队和海军的协调行动，达到在南中国海建立据点的目的。中共军舰和渔船越来越频繁地出现在西太平洋和中太平洋，中共海军也在这片海域建立据点。为了对抗中共在中、西太平洋的扩张，美国海岸警卫队开始在西太平洋海域建立军队。《华尔街日报》3月15日报道，自2020年12月初，美国海岸警卫队快艇通宵航行，在太平洋岛国帕劳停泊，美国船员登上一批中国船，没收了价值数万美元非法捕捞的海参。美国海岸警卫队的行动，将有助于抵抗中共在太平洋地区不断增长的海军力量。
 
-整理校对 & 新闻撰写：【7PawBear】字幕：【Rock小哥】视频解码：【恒久忍耐】校对 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+**中共提议病毒源头要在全球搜查，美病毒学家：逻辑上薄弱。**美国之音3月16日报道，在WHO即将发布赴华调查CCP病毒源头报告之际，中共政府提议将调查范围扩大到全球。美国病毒学家乔纳森·拉瑟姆说，已知的所有证据都指向中共国，呼吁到其它地方寻找源头在逻辑上极为薄弱。他还分析，从WHO在最近的新闻发布会上和之后的采访中为中共提出的一些温和建议，如建议中共搜查武汉附近的农场，追踪市场食品链以发现病毒的迹象，并确定更多的早期患者来看，“这表明了WHO与中国之间存在勾结，目的是避免彼此丢失脸面。”
 
+**世界其他地区新闻：**
+
+**英国将改变外交策略，扩大印太影响力制衡中共。**大纪元3月16日报道，英国政府将于今日公布一份文件，揭示英国脱欧后的外交政策重点。据《卫报》消息，除了在经济上应对中共带来的挑战之外，英国政府还将在印太地区追求更深入的参与，经常性地在海外部署武装部队，并保持与美国的紧密联系，以抗衡中共的威胁。该政策将会扭转英国五十多年来的对外政策，致力让英国的影响力重返苏伊士运河以东。而且，英国的新航母“伊丽莎白女王号”预计将驶向太平洋，并会部署在南海。
+
+**爆料革命大事记：**
+
+**郭先生****3****月****16****日盖特视频**
+
+1. 新中国联邦未来将会尽最大努力解决中国的养老问题、医疗问题。
+2. 香港的政治经济现状：香港的经济盘子总量大概有5000亿美元，其中1000亿左右是香港政府的储备金。目前，香港政府已向北京报告，储备金的真实情况是已全部用完。主要依靠中共中央、国有企业、香港交易所，以及中共国的几大银行互相掩盖、拆东墙补西墙来掩盖真相。香港的外汇和贸易形成了历史上从未有过的矛盾，民生成本逐步升高，大量资金外移。可能会造成香港股市、房市崩盘，或者突发事件造成外汇流失，香港可能会变成空城。
+3. CCP每一种对台的可能动作都会规定出详细的应对措施。这些西方国家曾经的对台战略模糊政策彻底结束。
+4. 正企图用更大的筹码来蓝金黄美国，阻止美国即将对香港和台湾进行的大动作。筹码大到令美国十分心动。但是西方国家在面对病毒起源相关问题的时候，已经不会再为CCP准备的巨大蓝金黄利益所诱惑。
+
+
+感谢新闻摘录，新闻撰稿，配音录制以及视频制作战友们的辛勤付出。
+
+感谢坦克人提供的技术支持。
+
+欢迎明天澳洲晚九点，北京晚六点继续收听观看“澳喜要闻”。
+
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
+
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+
+[【欢迎加入澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/澳喜图标2.jpg)
 0

@@ -1,25 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【字幕】3/17/2021文贵盖特 2 ：向香港的在海外的手足兄弟姐妹们．发出的紧急的信息的通知
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/985255/)
+## 把中共在新疆的镇压定性为种族大屠杀是给新中国联邦最好的礼物
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/985243/)
 
-制作： 【彩虹桥】
+摘要：在2021年1月19日的盖特视频中，郭文贵先生说这一天是爆料革命、新中国联邦最大的日子，因为美国政府正式把共产党在新疆的镇压列为种族大屠杀。这是蓬佩奥国务卿给爆料革命和新中国联邦灭共事业带来的大礼，也是美国对共产党的灭共行动的“911”。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210119_Getter1.srt.txt)
+**把中共在新疆的镇压定性为种族大屠杀是给新中国联邦最好的礼物**
 
+**Declaring CCP’s Crime in Xinjiang as Genocide Is a Biggest Gift to NFSC**
 
+尊敬的战友们好！2021年1月19号，今天作为我们爆料革命、新中国联邦最大的日子，这个美国政府给了咱们一个很好的礼物，把共产党在新疆列为种族大屠杀。不管任何人说兄弟姐妹们，第一次提出来和真正展开行动，和推动这场把共产党列为种族大屠杀，和定为犯罪集团、恐怖组织，只有爆料革命新中国联帮，它意味着什么？共产党，共产党员只要你不跟爆料革命的，你将成为恐怖分子。
 
-战友们好！我今天是第二段了，我要给香港的战友们说几句话，香港的朋友们，有些私下里给你们说的消息，你们收到了就收到了，没收到我在这里给你们说几句，特别是现在我获得确切的消息，共匪将在香港实行更大规模的抓捕，这个抓捕主要是针对就是现在，还呆在香港，特别是已经离开的过去的兄弟姐妹们，那些家人们，而且他们认定是这些家人给经济支持，而且是一定是秘密抓捕，你们一定要小心。
+Hello, my dear brothers-in-arms! It is January 19, 2021, the biggest day for our Whistleblower Movement and the New Federal State of China. The US government has given us a very good present for this day, declaring the CCP’s crimes in Xinjiang as genocide. Whatever people say, brothers and sisters, it was the WM and the NFSC that proposed this first, took real actions and pushed it forward, for the CCP to be eventually defined as a crime organization and terrorist group that committed genocide. What does this mean? This means that members of the CCP will be listed as terrorists if they do not join our Whistleblower Movement.
 
-这是第一个，第二个兄弟姐妹们，一定要注意，凡是拿香港身份的，还有现在还没拿到外国当地身份的，他们将采取一系列所谓的通缉，和给你捏造各种刑事犯罪，来对付你，几乎所有人都会在未来的一个月以内，现在大概20%跑到海外的，跟你放到了跟七哥一样的全球金融风险黑名单里面，叫风控名单，他会把你们所有人放到刑事犯罪，涉嫌犯罪，风控名单里，发到全世界去，也就是你在全世界的的信用卡和支付系统都不能用，他要饿死你，同时你的旅行证件不能用，他要把你禁锢在某个地方，然后就会像当年对付我一样，在海外的所谓的代表着14亿中国人的，海外华人一些社团，不是全部，一些海外华人社团，实际上就是一个特务机构，暗杀、绑架、威胁的黑社会的各种帮派组织，靠近你们，威胁你们，甚至实行真正的杀害和暗杀，我获得准确的情报，上面是非常明确的一句话，任何一个离开香港的人，一旦形成组织，露头就打，一打就打死，这是原话。
+所有共产党的钱，都是犯罪的赃钱，所有的全世界的人对共产党，对这些犯罪集团，都有惩罚、遏制、消灭的责任和义务，而且是合法的。这就是我们郝海东先生在6月4号宣言讲的，这是正义的需要。把灭共变成人类全球的正义行动，合法的正义行动，谁给他做交易，谁跟他勾兑，谁拿他的钱，谁跟他来往，你就是和种族大屠杀犯罪集团勾结犯罪。
 
-就不允许海外出来的人成立各种组织，不允许在香港跑出来的人，形成像爆料革命新中国联邦这样的一个影响力的，这么一个大的一个结果。所以要把你们禁锢在某些地方，择机伤害你们，把你的钱，全部让你在全世界没法花钱，要饿死你，以后再用所谓海外的华人和潜伏的特务伤害你们，务必小心。
+All of the CCP’s money is money from committing crimes. Everyone in the world will be responsible for punishing, containing and eliminating the CCP and these crime groups. And it is a legal thing to do. As Mr. Hao Haidong said when reading the declaration on June 4, this is a need of justice. [We need to] make elimination of the CCP a global action of justice, a legal action of justice. If you trade and collude with the CCP, if you take their money or have any relationship with them, then you are colluding with a crime group that committed genocide.
 
-我不希望发生在原来2019年5月份我给大家说那样，现在大家来得及，来得及，第一，跟你香港的可信任的人在一起，商量如何在安全的情况下，尽可能的少接触华人，第二，一定是把所有的这些事实尽可能和当地政府来对接起来，第三，当你需要我们爆料革命新中国联邦的支持，无论经济、政府关系、媒体各方面都希望跟我们联系，第四个，我们接下来的GTV，G-News，包括下一步推出了新的盖特版，都会以香港语言和香港文字发和香港和英文为主，我们将把所有的这几个平台，替香港人发声，让香港人的用香港粤语文化，香港英文文化来发出香港的真实的声音，不会受到任何阻挠，而且会告诉大家，我们的服务器，会在世界上很多国家，没有任何人可以把我们屏蔽掉，我可以向你们保证，你们等待着香港的同胞们上来发声吧，大概需要两个月左右吧，两个月全面开始，就是所有的G系列的媒体，都会给香港人特别的发声，而且力量之强大，你未来看，而且最后一个，第六个我要说清楚的事情，现在中共要在全世界让香港人发不出声音，将花出巨大代价，过去有个610，专门是伤害法轮功的，然后有个灭爆小组，这个就是伤害我们爆料革命的，现在专门成立了由常委级领导的，专门是灭港的小组，其中一个就在全世界各个媒体之间，各个媒体之间不允许香港人发出声音来，你们未来发出声音会更难。
+只有战斗室班农先生和我们的哥们蓬佩奥国务卿，兄弟姐妹们千万记住，记住文贵这过去三年说到话，在美国我们的朋友，我们的战友绝对不是你看到的这些，1月19号蓬佩奥国务卿给我们1月19号路德访谈最重要的日子，1月19号来了一个大礼，给爆料革命新中国联邦灭共的事业带来了大礼。你们知道背后是谁吗？是我们最最伟大的一位战友，未来你们会知道的，是他冒死，顶着一切的压力，在最后的时刻推动了这个伟大的关键时刻。119反过来就叫911，这是美国对共产党的灭共行动的911，共产党在多年前，曾经以为911给共产党苟延残喘多了一、二十年，但是今天美国人用事实行动，用911消灭你共产党，展开了最有效的行动。
 
-我可以告诉大家一个消息，在大选之前。什么Facebook和Google，都有望到中共那去，想给他执照，甚至有些人都答应过了，但最近听说啊，谣言，我也不知道是真是假，听说最后去的时候，不认了，去你大爷滚蛋吧，说中央领导没有答应过，那是个人的承诺，某部委的承诺跟我们没关系，听说恼羞成怒，可能对我们香港，爆料革命是个好事，但另外一端，你一定要做好准备，共产党这么邪恶，让在全世界..现在去日本的所谓大使馆的，新去了一个叫武官，也就是情报官，合法的情报官，跟日本的现在当地，最大的一件事情就不要在香港的日本人发声，这是肯定准确的，第一任务就不允许香港人在日本形成组织，形成群体，形成力量，不让你发出声来。
+Only Mr. Bannon from the War Room and our brother the Secretary of State Pompeo could achieve this. Brothers and sisters, you must remember what Miles said in the last three years. Our friends and brothers-in-arms in America are far beyond those that you can see. On January 19, the most important day to Lude Media, the Secretary of State Pompeo gave us a big present. He gave a big present to the WM and the NFSC’s cause to take down the CCP. You know who was behind all this? It was our greatest brother-in-arms. You’ll know who he is in the future. It was him who risked his life, withstood all the pressure and pushed this great moment forward at the last minute. January 19, one-one-nine, when reversed, is 911. This is America’s 911 action against the CCP. Several years ago, the CCP once thought the September 11 attacks would prolong their feeble existence for another ten or twenty years. Today, however, the Americans have unfolded the most effective action by taking down the CCP with 911.
 
-在英国的大使馆第一件事情现在就是，灭爆，灭我们爆料革命，灭香港人在英国，不让你形成组织，不让你发出声音，务必要注意，这第六条，最后一条，还是七条，兄弟姐妹们，路很遥远，香港是我们中国人的圣诚，任何情况下，我们爆料革命，新中国联邦都会跟你们站在一起，过去这些天让我很惊讶的事情，这么多香港的朋友们投入到G系列，我再给大家承诺，虽然我不是股东，虽然我不是实际控制者，但我是这个整个发起的最重要的参与设计师，任何香港战友有一分钱的丢失，郭文贵陪你，不会让香港的任何一个人，你们这么多人投到G系列钱了，不会让你们任何一分钱，不管是谁，不会少一分钱。
+无数个人打电话来恭喜，无数个人打电话说这是灭共事业上最伟大的一步，我告诉他们，不。我们119、海航事件、香港运动，千万别忘了香港人是我们的圣城，新疆的朋友你们的悲哀是新疆没有出来真正的民族英雄，出来一帮的民主的人渣、叛徒，但是我们会替新疆的朋友们去报仇，不会忘了新疆，包括西藏，对西藏有更大的行动，我告诉大家，今天不是最后的大菜，还有大菜，记住我郭文贵说的话，共产党你完了！
 
-上周香港的某天王一把就投了2000万，一把投2000万，这是你对我们的信任，非常的感激，同样的是，你的钱一分不能少，还有香港的某歌星，你赚钱很难，虽然咱们早就认识，知道你赚钱很难，对不对？但是你投这些钱是对我们的信任，是对我的信任，这些钱任何人陪了，你任何赔了，记住我今天视频，无理由的我来负责，就像我对我们所有的战友一样，任何人赔钱了，我100%负责，不但我负责，我一定会让未来，所有的战友们在G系列的投资，只要是香港人的，一切排在最前面，香港是我们的圣城我们永远..
+Countless people called to congratulate. Countless people called to say that this is the greatest step in the cause of taking down the CCP. I told them “No!” Our January 19 Incident (referred to the Lude Show on Jan 19, 2020, which first broke the news about the CCP virus), Hainan Airlines Incident, and Hong Kong Movement. Never forget that Hong Kong is our holy city. My friends in Xinjiang, your sorrow is that there has been no real hero coming out of Xinjiang but a bunch of scumbags of democracy and traitors. But we will take revenge for our Xinjiang friends. We will not forget Xinjiang and Tibet. We have even bigger actions for Tibet. I can tell everyone that our action today is not the last course of the big meal. There will be more dishes to serve. Remember the words of Miles. CCP, you are done!
 
-+2
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gnews.org/zh-hans/773640/](https://gnews.org/zh-hans/773640/) (00:00 – 03:01, 05:08 – 6:08)
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/773640/](https://gnews.org/zh-hans/773640/)
+
+* * *
+
+翻译：【雷鸣（文鸣）】字幕：【JennyL】视频解码：【恒久忍耐】校对 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
+0

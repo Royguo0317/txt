@@ -1,8 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国与世界的互动应对全球挑战至关重要（2021年03月16日 玫瑰看新闻）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/985591/)
+## 【香港要闻】「一言堂」立法会 畅通无阻4 分钟通过 2074 亿临时拨款
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/985772/)
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/1-136.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/2-54.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/3-63.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/4-39.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/5-39.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/6-29.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/7-20.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/8-8.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/9-11.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/10-5.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/11-11.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/12-9.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/13-6.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/14-4.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/15-5.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/16-6.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/17-4.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/18-4.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/19-4.jpg)
+搜集/编撰：心听见
+
+**（据立场新闻报道）财经事务及库务局今日向立法会提出2074 亿「临时拨款」申请，以应付财政预算案通过前的政府开支，继续有钱用，拨款在今日的立法会会议极速通过，由官员发言至拨款通过，前后只是用了4 分钟，亦无人要求记名表决，亦无议员发言。**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/sasa11.png)图片来源：网络图片
+财经事务及库务局局长许正宇在立法会会议，申请 2074 亿元临时拨款。许正宇发言约 4 分钟后，没有任何议员提出质询，官员不须答辩，会议就随即开始不记名表决，最后用了约 4 分钟通过拨款。去年立法会处理临时拨款，民主派提出多项修正案，包括工党张超雄、民主党尹兆坚、胡志伟分别提出要求削减特首办及警队开支，朱凯迪曾提出中止待续，但全数被否决，当时时任局长刘怡翔指民主派提出的修正案不符合公众利益及不合理，会严重影响特首办职能。
+
+**战友点评：**
+
+本来香港特别行政区立法会，是香港的立法机关，亦有对香港政府的监察权。根据已被死亡的《香港基本法》第73条，立法会主要职责如下，当中除了最后两点外，其余均为主权移交前立法局的职权：
+
+制定、修改和废除法律
+
+控制公共开支
+
+监察政府工作
+
+审核、通过政府的财政预算
+
+接受香港居民申诉
+
+同意终审法院法官和高等法院首席法官的任免等等。
+
+但是在去年的7月1日「国安恶法」生效开始，香港立法会慢慢被赤透逐点渗透,剥夺最后被瘫痪，自从DQ扫除了为民请命的真正「爱港者」人士之后，如今的立法会已经在中共掌控下改革成为「一言堂」，议会所应该行使的工作已经不复存在，所以任何提议草案通过畅通无阻，如同中共极权人大会议要通过案议，谁敢有质疑，谁敢去答辩？好讽刺，曾经的香港立法会是可以在每个有疑问的议案都可以自由辩明和质疑，而现今香港立法会做法也如中共极权人大一样只是特定的哑巴举手机器，这就是中共所讲的中共极权特色机器化「民主」。
+
+所以在3月17日的立法会会议极速通过，由官员发言至拨款通过，前后只是用了 4 分钟，亦无人要求记名表决，亦无议员发言。果然在中共主子恶法加持之下，立法会的橡皮图章机器们的工作效率越来越高。而且大家必须看到的是中共对香港近万亿的财政储备一直垂涎三呎，由原来巧立名目地走”投标”过场，到今天赤裸裸地强取豪夺—-这副共产流氓的嘴脸己不再有任何的遮掩，更加不在乎全世界对它的看法。
+
+【以上观点仅代表笔者本人】
+
+资料来源：[立场新闻](https://www.thestandnews.com/politics/%E7%AB%8B%E6%B3%95%E6%9C%83-4-%E5%88%86%E9%90%98%E9%80%25%209A%E9%81%8E-2074-%E5%84%84%E8%87%A8%E6%99%82%E6%92%A5%E6%AC%BE-%E4%B8%8D%E8%25%20A8%98%E5%90%8D%E8%A1%A8%E6%B1%BA%E7%84%A1%E8%AD%B0%E5%93%A1%E7%99%BC%E8%A8%25%2080/) 丶 [维基百科](https://zh.m.wikipedia.org/wiki/%E9%A6%99%E6%B8%AF%E7%AB%8B%E6%B3%95%E6%9C%83)
+
+覆核：文卡西欧 / 上传: 彩虹（ Rainbow）
+
+
+
+
+
 0
