@@ -1,8 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国与世界的互动应对全球挑战至关重要（2021年03月16日 玫瑰看新闻）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/985591/)
+## 美传唤中共通信公司就国家安全风险展开调查
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/985742/)
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/1-136.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/2-54.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/3-63.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/4-39.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/5-39.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/6-29.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/7-20.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/8-8.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/9-11.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/10-5.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/11-11.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/12-9.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/13-6.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/14-4.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/15-5.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/16-6.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/17-4.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/18-4.jpg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/19-4.jpg)
+俄罗斯莫斯科喀秋莎农场   银河
+
+编辑上传   水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/A-11.jpg)freepik.com
+路透社3月17日报道，美国商务部周三表示，已向多家在美国提供信息和通信技术服务的中共国公司发出传票，就它们是否对美国国家安全构成威胁进行调查确认。
+
+美国商务部长吉娜·雷蒙多(Gina Raimondo)在一份声明中表示，“北京的行为削弱了我们的技术优势，威胁到了我们的盟友。”对中共公司调查的目的是收集信息，以“使我们能够对可能采取的行动作出决定，最好地保护美国公司、美国工人的安全，以及美国的国家安全。”
+
+美国商务部在川普政府任期的最后几天发布了一项“暂行最终规则”（ the interim final rule），旨在解决人们对信息和通信技术供应链的担忧，并表示该规定将在60天的公众意见期后生效。拜登政府上个月表示，尽管遭到美国企业的反对，但计划继续川普时期对美国构成安全威胁的中共国科技公司的禁令。拜登政府称，传票不会影响“暂行最终规则”的出台时间。
+
+美国商会(U.S. Chamber of Commerce)和代表主要行业的团体在1月致信商务部(Commerce Department)时表示担忧，认为“暂行最终规则”赋予政府“几乎无限的权力，可以干预美国公司与其外国同行之间涉及技术的任何商业交易”。
+
+代表美国主要企业首席执行官的商业圆桌会议(Business Roundtable)早些时候表示，该提议“对美国企业目前的形势来说是行不通的”。
+
+参考链接：
+https://www.reuters.com/article/us-usa-china-commerce-idUSKBN2B92OH
+
 0

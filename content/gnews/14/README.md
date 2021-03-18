@@ -1,45 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国南方司令部： 中共国利用COVID-19流行病毒迅速扩大了其在中南美洲腐蚀和阴险的影响力
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/985359/)
+## 把中共在新疆的镇压定性为种族大屠杀是给新中国联邦最好的礼物
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/985243/)
 
-**翻译**：推推党宣传部长
-![]()![](https://gnews.org/wp-content/uploads/2021/03/18.png)图片来源：网络
-美国南方司令部 (**美国南方司令部** (**USSOUTHCOM**)，是[美军](https://zh.wikipedia.org/wiki/%E7%BE%8E%E5%86%9B)[一体化作战司令部](https://zh.wikipedia.org/wiki/%E4%B8%80%E4%BD%93%E5%8C%96%E4%BD%9C%E6%88%98%E5%8F%B8%E4%BB%A4%E9%83%A8)之一，驻地[佛罗里达州](https://zh.wikipedia.org/wiki/%E4%BD%9B%E7%BD%97%E9%87%8C%E8%BE%BE%E5%B7%9E)[迈阿密-戴德郡](https://zh.wikipedia.org/wiki/%E9%82%81%E9%98%BF%E5%AF%86-%E6%88%B4%E5%BE%B7%E9%83%A1)[多拉](https://zh.wikipedia.org/wiki/%E5%A4%9A%E6%8B%89_%28%E4%BD%9B%E7%BD%97%E9%87%8C%E8%BE%BE%E5%B7%9E%29)，[责任区](https://zh.wikipedia.org/w/index.php?title=%E8%B2%AC%E4%BB%BB%E5%8D%80&amp;action=edit&amp;redlink=1)是加勒比海、中美洲和南美洲，也负责[巴拿马运河](https://zh.wikipedia.org/wiki/%E5%B7%B4%E6%8B%BF%E9%A9%AC%E8%BF%90%E6%B2%B3)的防御)的 高级官员在周二（3月16日）说:
+摘要：在2021年1月19日的盖特视频中，郭文贵先生说这一天是爆料革命、新中国联邦最大的日子，因为美国政府正式把共产党在新疆的镇压列为种族大屠杀。这是蓬佩奥国务卿给爆料革命和新中国联邦灭共事业带来的大礼，也是美国对共产党的灭共行动的“911”。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210119_Getter1.srt.txt)
+**把中共在新疆的镇压定性为种族大屠杀是给新中国联邦最好的礼物**
 
-中共国利用COVID-19流行病毒，迅速扩大了其在中南美洲腐蚀性，阴险的影响力—从为跨国贩毒集团洗钱到使用自己的船只非法在受保护的水域捕鱼，还有从非法的伐木和采矿中获利。
+**Declaring CCP’s Crime in Xinjiang as Genocide Is a Biggest Gift to NFSC**
 
-美国南方司令部上将克雷格·法勒（Craig Faller）星期二对参议院武装部队委员会说：在西半球中共国已通过自己为新冠状病毒的疫苗分发国，承保40个港口的扩展或发展。
+尊敬的战友们好！2021年1月19号，今天作为我们爆料革命、新中国联邦最大的日子，这个美国政府给了咱们一个很好的礼物，把共产党在新疆列为种族大屠杀。不管任何人说兄弟姐妹们，第一次提出来和真正展开行动，和推动这场把共产党列为种族大屠杀，和定为犯罪集团、恐怖组织，只有爆料革命新中国联帮，它意味着什么？共产党，共产党员只要你不跟爆料革命的，你将成为恐怖分子。
 
-提供可疑贷款给那些还承认台湾为一个实体国家的中南美洲国家，向这些国家施压，迫使他们放弃对台湾的外交关系.
+Hello, my dear brothers-in-arms! It is January 19, 2021, the biggest day for our Whistleblower Movement and the New Federal State of China. The US government has given us a very good present for this day, declaring the CCP’s crimes in Xinjiang as genocide. Whatever people say, brothers and sisters, it was the WM and the NFSC that proposed this first, took real actions and pushed it forward, for the CCP to be eventually defined as a crime organization and terrorist group that committed genocide. What does this mean? This means that members of the CCP will be listed as terrorists if they do not join our Whistleblower Movement.
 
-法勒表示，中共国还利用其在该地区的经济影响力来推动华为的5G电信网络来控制不断扩展的市场。长期以来，美国一直与北约和太平洋的盟国对华为的安全问题充满了疑虑，担心其华为控制的电信系统会对他们自己的国家安全构成威胁。
+所有共产党的钱，都是犯罪的赃钱，所有的全世界的人对共产党，对这些犯罪集团，都有惩罚、遏制、消灭的责任和义务，而且是合法的。这就是我们郝海东先生在6月4号宣言讲的，这是正义的需要。把灭共变成人类全球的正义行动，合法的正义行动，谁给他做交易，谁跟他勾兑，谁拿他的钱，谁跟他来往，你就是和种族大屠杀犯罪集团勾结犯罪。
 
-随着中共国和俄罗斯加强在南美洲极端的虚假宣传活动，我们在拉丁美国影响力正在减弱。
+All of the CCP’s money is money from committing crimes. Everyone in the world will be responsible for punishing, containing and eliminating the CCP and these crime groups. And it is a legal thing to do. As Mr. Hao Haidong said when reading the declaration on June 4, this is a need of justice. [We need to] make elimination of the CCP a global action of justice, a legal action of justice. If you trade and collude with the CCP, if you take their money or have any relationship with them, then you are colluding with a crime group that committed genocide.
 
-美国为了遏制COVID-19病毒在南美洲的大流行，向南美的28个国家提供了2.3亿美元资助。
+只有战斗室班农先生和我们的哥们蓬佩奥国务卿，兄弟姐妹们千万记住，记住文贵这过去三年说到话，在美国我们的朋友，我们的战友绝对不是你看到的这些，1月19号蓬佩奥国务卿给我们1月19号路德访谈最重要的日子，1月19号来了一个大礼，给爆料革命新中国联邦灭共的事业带来了大礼。你们知道背后是谁吗？是我们最最伟大的一位战友，未来你们会知道的，是他冒死，顶着一切的压力，在最后的时刻推动了这个伟大的关键时刻。119反过来就叫911，这是美国对共产党的灭共行动的911，共产党在多年前，曾经以为911给共产党苟延残喘多了一、二十年，但是今天美国人用事实行动，用911消灭你共产党，展开了最有效的行动。
 
-但由于中共国和俄罗斯对美国资助行动不断进行扭曲的宣传，使得美国在当地的努力付诸东流。
+Only Mr. Bannon from the War Room and our brother the Secretary of State Pompeo could achieve this. Brothers and sisters, you must remember what Miles said in the last three years. Our friends and brothers-in-arms in America are far beyond those that you can see. On January 19, the most important day to Lude Media, the Secretary of State Pompeo gave us a big present. He gave a big present to the WM and the NFSC’s cause to take down the CCP. You know who was behind all this? It was our greatest brother-in-arms. You’ll know who he is in the future. It was him who risked his life, withstood all the pressure and pushed this great moment forward at the last minute. January 19, one-one-nine, when reversed, is 911. This is America’s 911 action against the CCP. Several years ago, the CCP once thought the September 11 attacks would prolong their feeble existence for another ten or twenty years. Today, however, the Americans have unfolded the most effective action by taking down the CCP with 911.
 
-中共国在中南美洲的迅速扩展及其与跨国犯罪活动，导致委员会在公开会议后立即安排了机密听证会。
+无数个人打电话来恭喜，无数个人打电话说这是灭共事业上最伟大的一步，我告诉他们，不。我们119、海航事件、香港运动，千万别忘了香港人是我们的圣城，新疆的朋友你们的悲哀是新疆没有出来真正的民族英雄，出来一帮的民主的人渣、叛徒，但是我们会替新疆的朋友们去报仇，不会忘了新疆，包括西藏，对西藏有更大的行动，我告诉大家，今天不是最后的大菜，还有大菜，记住我郭文贵说的话，共产党你完了！
 
-法勒在听证会中将COVID-19大流行的影响描述为“完美风暴”，这场风暴使南美经济暴跌了7％以上。经济的衰退又引起了帮派为控制毒品贸易而引发了新的暴力浪潮；反过来，暴力浪潮又掀起了从中南美洲移民到美国的浪潮。在更南部的委内瑞拉，由于病毒大流行和美国制裁而“经济陷入困境”，成千上万的公民在哥伦比亚和巴西寻求庇护。此外，跨国犯罪组织还在当地建立黑市，以满足该地区对疫苗，医疗用品和设备的需求。
+Countless people called to congratulate. Countless people called to say that this is the greatest step in the cause of taking down the CCP. I told them “No!” Our January 19 Incident (referred to the Lude Show on Jan 19, 2020, which first broke the news about the CCP virus), Hainan Airlines Incident, and Hong Kong Movement. Never forget that Hong Kong is our holy city. My friends in Xinjiang, your sorrow is that there has been no real hero coming out of Xinjiang but a bunch of scumbags of democracy and traitors. But we will take revenge for our Xinjiang friends. We will not forget Xinjiang and Tibet. We have even bigger actions for Tibet. I can tell everyone that our action today is not the last course of the big meal. There will be more dishes to serve. Remember the words of Miles. CCP, you are done!
 
-他还引用了美国毒品管理局的情报称，这些团伙通过中国公司贩运毒品，人员，枪支和进行非法采矿，然后洗钱，分利润。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gnews.org/zh-hans/773640/](https://gnews.org/zh-hans/773640/) (00:00 – 03:01, 05:08 – 6:08)
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/773640/](https://gnews.org/zh-hans/773640/)
 
-所有这些加在一起，使像中共国这样的坏人可以在南美自由行动。
+* * *
 
-**新闻链接：**
-
-[https://news.usni.org/2021/03/16/southcoms-faller-china-used-pandemic-to-expand-corrosive-insidious-influence-in-central-south-america-u-s-influence-eroding](https://news.usni.org/2021/03/16/southcoms-faller-china-used-pandemic-to-expand-corrosive-insidious-influence-in-central-south-america-u-s-influence-eroding)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/19.png)图片来源：网络
-**翻译者评**：美国南方司令部这个报道充分的证明，病毒就是中共对美国进行超限战的手段。中共不但用COVID-19病毒和分发疫苗的机会，扩大自己在中南美洲的影响力，还非法获得巨大利润，他最终目的是针对美国。因为病毒在南美的流行，造成了南美经济暴跌，经济的衰退又引起了帮派为控制毒品贸易而引发了大量暴力浪潮；反过来，暴力浪潮又掀起了现在从中南美洲移民到美国的浪潮，这就是超限战。用这种手段削弱美国，这非常符合生化武器的定义。
-
-**免责声明： **文章观点仅代表作者本人，与GNEWS平台无关！
-
-**编辑/发布： **比卡丘
-
-20210317
+翻译：【雷鸣（文鸣）】字幕：【JennyL】视频解码：【恒久忍耐】校对 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
