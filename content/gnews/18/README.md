@@ -1,89 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美日2+2记者招待会强调联盟对抗中共
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/984946/)
+## 两个白皮书的公布将等同于全世界向中共宣战
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/985074/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+新闻简述：2021年3月13日的盖特中，郭先生说关于病毒和香港人权的两个《白皮书》有重大意义。这两个白皮书的发表等同于全世界向中共宣战。来自于学术界各领域的中国同胞参与了这个病毒报告的撰写。香港政府内部有良知的官员和警察在香港人权报告撰写过程中提供了关键的信息和帮助。当然，这些人中许多是爆料革命的战友。无论天气如何变换，太阳总会升起，请战友们保持信念，对世界和爆料革命的胜利抱有信心。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210313-getter1.srt.txt)
+**两个白皮书的公布将等同于全世界向中共宣战**
 
-编辑上传  水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/J-1.jpg)trtworld.com
-美国高官访问日本，经过一系列的会见、发布联合声明后，继续上演重头戏，两国外长、防长2+2四人举行了记者招待会，回答了记者的提问。美国国务院将新闻发布会整理刊登，通篇文稿中，“中共国”出现了27处，现将此部分翻译出来，供战友参考分享。
+**Two White Paper Reports Are Equivalent to the Declaration of A War Against the CCP**
 
-美国国务卿布林肯（Antony J.Blinken）、国防部长劳埃德•奥斯汀（Lloyd Austin）、日本外相茂木敏史（Motegi）和日本防卫大臣岸信孝（Nobuo Kishi）出席联合记者招待会上。
+尊敬的战友们好！3月13号。哎呀，真快啊，我刚才差点说3月12号，3月13号了。继昨天文贵推出盖特之后，好像这个世界发生很多大事，这两个白皮书，很多人意识到了，它是多么的重要，但很多人也没有意识到它有多么的重要。
 
-答记者问
+Dear fellow fighters, today is March 13th! Time flies! I almost mistakenly took today as March 12th. It’s March 13th already. After I posted the Getter yesterday, it seems that many big events are happening in the world. Many people have realized how important the two “white paper” reports are, but others still do not understand their importance.
 
-美国国务卿安东尼·布林肯
+我告诉大家一个简单的例子，特别像法国，法国这种非常硌涩的这种国家，那种成天装硬骨头、装个性的这种国家，实际上一打就跪下的这种国家，然后平常还有很多发明的这些国家，经济体系在那摆着那。听说他们这些人以后啊，咋说那？别说漏了。听说他们参与到这个写白皮书的人当中，两三波都退掉了，都不敢参与了。为啥呀？战友们去想想，**这个白皮书出来，就等同于全人类向共产党宣战。**那法国的政要们，所谓现在还买疫苗呐，还搞疫苗经济，疫苗安全卡，疫苗健康卡，这不是一场生物大战嘛，那你不是在帮助别人战你自己的国民吗？所以说很多人写着写着就不敢写了，还有人就越想越害怕，就回家抱孩子去了。
 
-伊库拉宾客馆（IIKURA GUEST HOUSE）
+Let me give you a simple example. France – a bizarre country like France – always pretends to be tough, unconquerable, and full of personality. Yet in fact, it is easy to be knocked down. There are also countries known for their great inventions and also the limitations in their particular economic structures. I heard some people in these countries – I should be more cautious and do not disclose any secrets – I heard that two or three waves of them who initially participated in the writing of the “white paper” have withdrawn. They dare not participate anymore. Why, fellow fighters? Think about it. The publication of this white paper is equivalent to the declaration of a war by all mankind against the CCP. French politicians are still buying the CCP’s fake vaccines, and promoting the fraudulent vaccine economy – vaccine safety cards and health cards – aiming at controlling people, even after the virus has been confirmed as a biological warfare. Then are you helping the enemy attack your own people? Many participants did not dare to continue after participating for a certain period. Some became more and more afraid that they simply quit the job and went to live ordinary people’s lives.
 
-日本东京
+也听说美国各个机构都盼望着这个白皮书的正式出来。大家可以看到一个问题，这个不是拜登总统新政府搞什么事情，是川普总统的最后一年，一直到现在没有停。这也是美国这个国家的伟大，都乱成这样了，这样的大事没停，都在收集证据。
 
-2021年3月16日
+I have also heard that many U.S. organizations are looking forward to the official release of this white paper. Everyone should know that this was not started by the new administration of President Biden. The development of this paper has been continued from the last year of President Trump’s term to the present time, which shows the greatness of the U.S. as a country. Even though the country has become so chaotic, a major initiative like this was never stopped. Evidence continues to be collected.
 
-茂木敏史外相：……我们一致认为，中共国的行为不符合现有国际秩序，给联盟和国际社会带来了各种挑战。我们仍然反对任何旨在改变现状的单方面行动，包括在东海和南海。我们对《中共国海岸警卫队法》严重关切。
+难能可贵的事情，我们中国同胞有重要的科学界、知识界、生物界、医药界，有人参与，这给我们中国人在未来，在世界上的形象，挣来了不可估量的巨大的正面的影响力，是用钱不能估量的。我相信这个报告出来时候，上面会写上：该报告得到来自于中国内部的体制内，知识界、医学界、科学界，等等等等，善良有良知的中国人的支持、帮助和提供信息。记住我今天说的话。
 
-在区域战略环境方面，我们再次确认了《尖阁诸岛安全条约》第五条的适用性，并继续反对任何旨在破坏日本对尖阁诸岛管理的单方面行动。我们进一步确认了台海和平稳定的重要性。
+Ah, a rare and commendable thing: among the participants that wrote this “white paper”, there are important Chinese compatriots from the fields of science, academia, and biology, and the pharmaceutical industry. Consequently, Chinese people’s positive image has been greatly improved, the influence of which cannot be measured by anything including money. I believe the following will be acknowledged in the report when it is released: Conscientious Chinese people from academia, medical field, scientific community, and other fields inside China have supported, helped, and provided information for this report. Please remember what I said today.
 
-……
+另外一个香港报告，香港的人权，我们要感谢香港有良知的警察。这个报告现在听说：这个最关键的就是得到了香港的警察和香港政府内部人提供的信息。当然有我们爆料革命的战友了，是吧？提供的信息，提供的巨大的帮助，未来也会写上：要感谢来自于香港的，有良知的警察和政府公务员，以及冒着生命危险的，有良知的人士提供的信息。这都得有。所以说战友们，对这个世界永远要充满着信心，不管是打雷、下雨、阴天，你要想到：这些都是雨过天晴，太阳还会从东边升起来。这是目前我认为从爆料革命到现在，对共产党最大的伤害的是这么一个国际上的公约和国际上的法律。
 
-布林肯国务卿：……在缅甸，军方试图推翻民主选举的结果，并残酷镇压和平抗议者。中共国利用强制和侵略来系统地侵蚀香港的自治权，削弱台湾的民主、侵犯新疆和西藏的人权，在南中国海提出违反国际法的海事要求。
+Regarding the Hong Kong report – the Hong Kong human rights white paper report, we would like to thank the Hong Kong police officers who have a conscience. As the report is being compiled, we have been told that the critical elements are supported by the information provided by Hong Kong police and Hong Kong government insiders. Of course, there are contributions made by our fellow fighters of the Whistleblower Movement, right? The information they provided and the tremendous help they offered, will also be acknowledged in the future: Thanks to the conscientious police and government officials from Hong Kong and the conscientious people who risked their lives for the information. It has to be included. So, fellow fighters, we must always be full of confidence in this world. Whether facing thunder, rain, or cloud, you should have confidence that all these will pass. The sun still rises from the east. According to international conventions and international laws, this will cause the greatest harm to the CCP since the beginning of our Whistleblower Movement.
 
-我们在一个自由开放的印太地区的愿景中团结一致，在那里，各国遵守规则，尽可能合作，和平解决分歧。特别是当中共国采取胁迫或侵略手段时，我们将在必要时予以回击。正如我们今天所讨论的，印度洋-太平洋地区正日益成为全球地缘政治的中心，21世纪的历史将在这里书写，对于这个故事应该如何发展，存在着不同的看法。日本和美国，连同我们的盟国和伙伴，将大力倡导我们的共同做法，以我们的价值观和我们对全体人民的安全与福祉的共同承诺为基础。
+当然在这之前，对共产党最大的伤害，是川普总统政府，美国优先，中美贸易摩擦，等等等等，包括对中国企业在美国的整个处置，这都是对它的重大的伤害，接近于软脱钩走向硬脱钩，这是对它最大的伤害。最后一年是真正的就是把它定为种族大屠杀、反人类罪，这是致命的伤害。当然爆料革命这个刀每天都是往那扔，是吧？劈里啪啦的没停过，这是重中之重，咱就不吹了，是吧？咱不自恋了。
 
-岸信孝国防大臣：……在关于区域战略环境的会议上，我提到了最近颁布的《中共国海岸警卫队法》，对中共国海岸警卫队最近活动的增加和与军队的伙伴关系的加强表示了强烈的关注，这得到了四位部长的一致同意。我们决不能允许《中共国海岸警卫队法》损害包括日本在内的有关国家的合法利益，如果《中共国海岸警卫队法》加剧包括东海和南海在内的海域紧张局势，这是绝对不可接受的。我决心用一切手段保护日本领土，我也主张台海和平与稳定的重要性。
+Of course, before this, the biggest harm to the CCP was the American First policies of the Trump administration. Sino-U.S. trade frictions, including the broad sanctions on the military-linked CCP companies in the U.S. have caused serious harm to them. Soft decoupling and complete decoupling inflict the greatest damage on the CCP. In the last year [of his administration], the most severe harm was to designate the CCP as having committed genocide and crimes against humanity. This is fatal to them. Of course, the Whistleblower Movement is throwing knives towards the CCP every day, which has never stopped. This is the top priority. We will not brag too much, right? Let’s stop being narcissistic.
 
-……
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
 
-奥斯汀国防部长：……正如你们所听到的，我们谈到了一些问题，包括我们对朝鲜无核化的承诺，加强所有领域的联盟能力，以及处理来自中共国的侵略和胁迫行为，特别是在南中国海和东海。
+视频来源：[https://gtv.org/getter/604cda9d607c4240c8b54b0d](https://gtv.org/getter/604cda9d607c4240c8b54b0d) (00:00-04:54)
 
-我知道日本和我们一样对中共国破坏稳定的行为感到担忧，正如我之前所说的，中共国对国防部来说是一个挑战。我们知道，在当今不断变化的全球动态中，竞争只能通过团队合作精神来实现，而这正是我们与日本结盟的标志。
+鸣谢：
+[1] 感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/973208/](https://gnews.org/zh-hans/973208/)
+[2] 感谢 Antsee-GTV 和 Liberte 提供英文翻译文本于 [https://gnews.org/977827/](https://gnews.org/977827/)
 
-……
+* * *
 
-记者问：你好，布林肯国务卿、奥斯汀部长，有没有一个新的可信的说法——中共国不仅对尖阁诸岛，而且对台湾的威胁也越来越大？如果是这样的话，鉴于日本防卫大臣刚刚谈到了日美两国应致力于增强威慑力的具体举措，美国对此采取了什么行动？
-
-对日本外相来说，如果可以的话，本周晚些时候在阿拉斯加举行的美中会议应该如何解决这个问题？
-
-如果我可以很快地告诉布林肯国务卿，那位朝鲜领导人的妹妹发表了一份威胁性声明，她警告美国不要‘玩火’。”鉴于朝鲜迄今一直拒绝与拜登政府对话，这对未来的谈判有什么预示？非常感谢。
-
-布林肯国务卿：我很高兴从你的最后一个问题开始，如果你愿意的话，然后请奥斯汀部长从中共国（问题）开始。我对你提到的评论很熟悉，但我今天最感兴趣的是我们的盟友和伙伴的评论，所以我们才来到这个地区，这就是为什么我们来到日本，正是为了倾听我们的盟友的声音，并讨论我们如何共同寻求解决来自朝鲜的威胁。
-
-……
-
-奥斯汀部长：关于中共国和中共国构成的威胁，你们已经听我在很多场合说过，中共国是我们国防部将继续关注的主要威胁，在过去的20年里，我们一直专注于中东问题，而当我们专注于中东问题时，中共国已经实现了军事现代化。除此之外，它还从事侵略性行为，在某些情况下还采取胁迫性行为，其中一些行为针对我们在该地区的盟友。
-
-因此，我们的目标是确保我们对于中共国或任何其他想威胁我们或我们的联盟的国家保持竞争优势，并制定行动计划和能力，以阻止任何想把我们或联盟带上战场的侵略者，中共国或任何其他国家。因此，我们-——我们力量的一部分，我们力量的很大一部分，来自于我们作为一个联盟运作的事实，我们受益于像日本这样的国家给联盟带来的巨大价值，因此我们作为一个团队运作时会更加强大。
-
-记者问：……我有一个问题要问岸信孝国防大臣，包括《海岸警卫队法》的生效，中共国在海上的态度越来越强硬，今天的联合声明得到了两国什么样的承认？你说你的目标是提高威慑和反应能力，但随着中共国海岸警卫队船只在尖阁诸岛附近变得更加活跃，你是否谈到了自卫队和美军联合演习等反制措施？
-
-防卫大臣岸信孝：在今天的2+2会议上，鉴于安全环境的困难，我们就包括印太地区在内的地区最新形势交换了意见，特别是中共国不符合现行国际法的活动，是一个政治、经济、社会、文化问题，或者是对国际社会的军事和技术挑战，我们同意这基于规则的国际秩序受到了破坏，必须反对该地区的胁迫行动，我们能够确认我们的立场。
-
-在尖阁诸岛附近，中共国海岸警卫队的船只从事明显违反国际法的活动。在2+2会议上，我们对其《海岸警卫队法》深表关切。我重申了我用一切手段保护日本领土的决心，美国提到日美安保条约第五条适用于尖阁诸岛，我们能够确认对日本防卫的承诺。
-
-必须加强威慑和反应能力，为此，必须通过美军和自卫队的演习，获得高水平的能力。而昨天在东海，航空自卫队和美军进行了联合演习，也在西南地区进行了多次联合演习。我们一定会坚定不移地进行这样的联合演习，向公众表明日美两国是共同行动的。
-
-记者问：……奥斯汀部长，如果可以的话，太平洋地区的最高官员戴维森（Admiral Davidson）上将上周说，他担心中共国军方可能在未来6年内进犯台湾，你同意这个评估吗？如果有人担心美国军队的行动速度不够快，无法对付中共国，你会怎么说？
-
-布林肯国务卿，如果可以的话，鉴于金正恩政权不愿意回应对话的企图及其持续的威胁，拜登政府在未来几周和几个月将如何平衡外交与该地区持续的军事合作和演习？非常感谢。
-
-奥斯汀部长：谢谢，丹，你知道，在来日本的途中，我顺便拜访了印太司令部，我们进行了一次愉快的交谈，对我来说，这是非常有用的，通过眼见耳闻了解这个地区，倾听他所担忧的，谈论他（认为）的强项，当然，优势之一就是我们今天讨论的这个伟大的联盟。
-
-就中共国具体的时间线而言，我不会参与任何假设，也不会猜测那可能是什么，我想你知道，作为国防部长，我的工作是确保我们尽可能快地做好准备，迎接我们或盟国可能面临的任何挑战，因此，在我看来，我们不可能以足够快的速度开发出合适的能力，这些能力在未来任何情况下能与今天相符，与明天相符。但再说一次，就具体的时间表而言，我不会对此进行推测。
-
-布林肯国务卿：谢谢，如你所知，朝鲜政策正在审查中，我们正在研究各种额外的压力措施是否有效，是否有合理的外交途径，所有这些都在审查之中，我们正在审查之中，并与我们的盟友和伙伴进行密切磋商。
-
-展望未来，我们有一个共同的决心来应对朝鲜提出的挑战，特别是在其核导弹计划方面，当然也包括其对人权的滥用，在被绑架者问题上，我们非常坚定地与日本站在一起，今天早些时候，我收到了这些家人的来信，读起来非常震撼和非常感人，在我们思考北朝鲜提出的挑战时，这一点会非常清晰地展现在我们的脑海中。
-
-……
-
-（摘译完）
-
-评：日本有自己的算盘，那就是尖阁诸岛和《中共国海岸警卫队法》，需要的就是美国这样的表态，日美安全协议包括尖阁诸岛。同样，我们也听到了美国国防部长的声音，“中共国是国防部将继续关注的主要威胁，在过去的20年里，我们一直专注于中东问题，而当我们专注于中东问题时，中共国已经实现了军事现代化。除此之外，它还从事侵略性行为……”对中共这种认知是不能缺少的，有了清醒的认知，才能付诸相应的行动。
-
-美国务院声明链接：
-
-[https://www.state.gov/secretary-antony-j-blinken-secretary-of-defense-lloyd-austin-japanese-foreign-minister-toshimitsu-motegi-and-japanese-defense-minister-nobuo-kishi-at-a-joint-press-availability/](https://www.state.gov/secretary-antony-j-blinken-secretary-of-defense-lloyd-austin-japanese-foreign-minister-toshimitsu-motegi-and-japanese-defense-minister-nobuo-kishi-at-a-joint-press-availability/)
+整理校对 & 新闻撰写：【7PawBear】字幕：【Rock小哥】视频解码：【恒久忍耐】校对 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
