@@ -1,31 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国国务卿称台湾为“国家”&#8212;台湾的“国家”标签打破了美国国务院长期以来的禁忌
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/986371/)
+## 美国政要等每日重要信息0318.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/986344/)
 
-翻译：康州盘古农场 –WZ
-校对：康州盘古农场 – Freeearth
-编辑：康州盘古农场 – 轰炸机
+**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0318.jpeg)
+#### 香港问题
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-80.png)
+3月17日蓬佩奥先生就现任政府布林肯对港政策予以肯定，推文如下。
+“政府干的不错，继续追究㆗（共）国高级领导㆟违反对世界作出港㆟自由的承诺。世界必须 “怀疑并核实”，并追究中共的责任。”
 
-台北(台湾新闻)-美国国务卿安东尼·布林肯(Antony Blinken)星期三(3月10日)将台湾称为一个国家，他的前任通常避免这样称呼台湾。
+继日前英国对中共国发出违背中英联合声明的警告勒令改正之后，3月16日与17日美国拜登政府对中共在香港修改选举法的行径更新了《香港自治法案》，对24名中港官员进行制裁。包括(1)识别该外国人士的身份；(2)清楚解释识别该外国人士的原因，并说明识别该外国人士的活动。明知故犯地与制裁人员进行重大交易的外国金融机构将受到制裁。被制裁人包括：
 
-在众议院外交事务委员会(House Foreign Affairs Committee)就拜登政府的外交政策议程举行的听证会接近尾声时，众议员金英哲(R-CA)指出，几十年来，台湾一直是“美国无价的安全和全球健康合作伙伴”。她指出，鉴于台湾对国际社会的贡献和其“强大的民主制度”，它已经赢得了“像世界卫生组织那样分享其专业知识的席位”。
+Wang Chen，You Quan，Cao Jianming，Zhang Chunxian，Shen Yueyue，Ji Bingxuan，Arken Imirbaki ，Wan Exiang ，Chen Zhu，Wang Dongming，Padma Choling，Ding Zhongli，Hao Mingjin，Cai Dafeng，Wu Weihua，Deng Zhonghua ，Li Jiangzhou，Edwina Lau，Li Kwai-Wah，Frederic Choi Chin-Pang，Kelvin Kong Hok Lai ，Andrew Kan Kai Yan，Tam Yiu-Chung，Sun Wenqing, AKA Sun Qingye
 
-金英哲随后呼吁拜登政府将台湾纳入即将举行的民主峰会，并开始与台湾就自由贸易协定进行谈判。布林肯回应说，他“绝对致力于”她的建议，他同意她的观点，即“台湾是一个强大的民主国家”和“一个非常强大的科技强国”。
+布林肯国务卿称美国与日本就中华人民共和国破坏香港选举制度、没有履行义务已经达成共识，两国拥有共同的民主价值观。
 
-他接着说，台湾是“一个可以为世界做出贡献的国家，而不只是一个自己的人民，CCP病毒就是一个很好的例子。”杨同意这位外交官的言论。
 
-布林肯使用“国家”一词可能标志着台美关系进入一个新阶段。自1979年卡特(Carter)政府时期美国与台湾断交以来，美国国务院自己对与台湾的官方互动施加了越来越多的限制，因为担心激怒中共国。
 
-然而，在国务卿任期即将结束时，迈克·庞皮欧(Mike Pompeo)重新评估了这些限制。他在3月9日接受中央通讯社(CNA)采访时回忆说，“我们开始盯着他们看，意识到这太疯狂了。我们有一套完全不同的规则，毫无意义。”他说，在全面审查之后，“对我们来说，进行更多的对话是有意义的，而不是减少。进行更多的公开对话，而不是更多的秘密对话。”
 
-1月10日，美国国务院正式取消了与台湾官方接触的限制，其中包括禁止在提到台湾时使用“国家”或“政府”一词。
 
-通过使用“国家”这个词，布林肯似乎已经承认了限制的取消。然而，只有时间才能证明这是轻描淡写还是对长期政策的认可。
+> Good on the [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) for continuing to hold senior Chinese leaders responsible for breaking promises that China made to the world regarding freedom for the people of Hong Kong. The world must "Distrust but Verify" and hold the CCP accountable. [https://t.co/pXmwjXeZqV](https://t.co/pXmwjXeZqV)
+> — Mike Pompeo (@mikepompeo) [March 17, 2021](https://twitter.com/mikepompeo/status/1372293660830748675?ref_src=twsrc%5Etfw)
 
-文章来源：[https://www.taiwannews.com.tw/en/news/4148761](https://www.taiwannews.com.tw/en/news/4148761)
+
+[https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/](https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/) [https://www.state.gov/hong-kong-autonomy-act-update/](https://www.state.gov/hong-kong-autonomy-act-update/)
+这份制裁清单里的官员是为中共作恶的虾兵蟹将，再次成为中共的挡箭牌，这份更新的法案其制裁条款不够具体、清晰，究竟能给香港带来多少实际帮助，相信布林肯自己也说不出。但是有一点明确的是，支持香港、谴责中共已经成为政治正确。在此基础上，有一个从量变到质变的积聚过程，我们有理由相信，西方世界据此向中共要价、讨伐甚至进一步行动是未来的趋势，而能量转化的导火索无疑是中共病毒疫情危机。
+
+
+
+
+
+文章观点部分仅代表作者本人。
+
+作者：康州盘古农场 喜马拉雅的文雅
+
+封面：康州盘古农场 霹雳年
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
+
+（本文当日持续更新中）
 
 0
