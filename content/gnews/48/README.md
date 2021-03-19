@@ -1,45 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0318.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/986344/)
+## 中共银行巧立名目推“墓地贷”业务，阴宅地产泡沫正式吹起
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/988892/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0318.jpeg)
-#### 香港问题
+作者：台湾准农场 快慢机
 
-3月17日蓬佩奥先生就现任政府布林肯对港政策予以肯定，推文如下。
-“政府干的不错，继续追究㆗（共）国高级领导㆟违反对世界作出港㆟自由的承诺。世界必须 “怀疑并核实”，并追究中共的责任。”
+[新闻链接](https://baijiahao.baidu.com/s?id=1694484057067759569&amp;wfr=spider&amp;for=pc)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/擷取319-7.png)
+## 墓地按揭，美其名曰“消费贷”！
 
-继日前英国对中共国发出违背中英联合声明的警告勒令改正之后，3月16日与17日美国拜登政府对中共在香港修改选举法的行径更新了《香港自治法案》，对24名中港官员进行制裁。包括(1)识别该外国人士的身份；(2)清楚解释识别该外国人士的原因，并说明识别该外国人士的活动。明知故犯地与制裁人员进行重大交易的外国金融机构将受到制裁。被制裁人包括：
+近日位于云南省昆明市的昆明晋龙如意园（陵园），与云南西山北银村镇银行股份有限公司，联合推出一项颇具“个性化”的殡葬服务——“墓地按揭贷款业务”！
 
-Wang Chen，You Quan，Cao Jianming，Zhang Chunxian，Shen Yueyue，Ji Bingxuan，Arken Imirbaki ，Wan Exiang ，Chen Zhu，Wang Dongming，Padma Choling，Ding Zhongli，Hao Mingjin，Cai Dafeng，Wu Weihua，Deng Zhonghua ，Li Jiangzhou，Edwina Lau，Li Kwai-Wah，Frederic Choi Chin-Pang，Kelvin Kong Hok Lai ，Andrew Kan Kai Yan，Tam Yiu-Chung，Sun Wenqing, AKA Sun Qingye
+陵园方面称，鉴于市场有所需求方才与银行联合推出“墓地贷”业务。此项业务不设额度封顶限制，贷款期限为10年期。除需必要的房产抵押外，申请人还需准备身份证、户口本、个人征信、银行流水及收入证明等相关资料，最快一周内可以全部办理完毕。
 
-布林肯国务卿称美国与日本就中华人民共和国破坏香港选举制度、没有履行义务已经达成共识，两国拥有共同的民主价值观。
+## 阳宅贷、阴宅贷，代“贷”相传！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/擷取319-8.png)
+短短人生数十载，终生大事，传宗接“贷”！活着的时候背负沉重的阳宅房产债务，几近还清之际又临迟暮之年。余世唯念，入土为安！奈何阳债不可免，阴债又来填。
 
+在中共国，殡葬垄断化、产业化早已是不争的事实。高企的入殓费用折射出了“死不起”的残酷现实——活不出个人样，死不断的哀魂！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/擷取319-6-1.png)
+逝者仙去，留给后人的除了无尽的悲伤与哀思之痛外，还有代“贷”相传的沉重债务负担。记得姜文导演的《让子弹飞》中有这么一段对话，汤师爷刚到县衙，掐指一算，前几任县政府早已经把各项杂税都收到几十年以后了，老百姓都成了穷鬼，没有油水可捞了！
 
+艺术源于生活，的确如此。中共国的政府已经生生的，把鹅城的那几任县太爷的，超前征税手段幻化的淋漓尽致，但却更加“技胜一筹”——它们连死人的钱竟也毫不放过。活着榨干你的一切，死后也要让你变成“穷鬼”！
 
+## 房产崩盘危机，人口加速老龄化，阴宅地产泡沫正式吹起。
 
+众所周知，中共国的楼市泡沫危机随时即将面临崩盘的境地，经济环境的极速恶化，令中共的虚假金融系统越来越难以维系。中共大陆早已进入加速人口老龄化社会阶段，直接催生了殡葬产业化的迅速铺开。活人的钱如今也被中共搜刮的差不多了，于是便丧心病狂的瞄上了死人的腰包，“墓地贷”业务将阴宅地产泡沫正式吹起！
 
-> Good on the [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) for continuing to hold senior Chinese leaders responsible for breaking promises that China made to the world regarding freedom for the people of Hong Kong. The world must "Distrust but Verify" and hold the CCP accountable. [https://t.co/pXmwjXeZqV](https://t.co/pXmwjXeZqV)
-> — Mike Pompeo (@mikepompeo) [March 17, 2021](https://twitter.com/mikepompeo/status/1372293660830748675?ref_src=twsrc%5Etfw)
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-[https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/](https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/) [https://www.state.gov/hong-kong-autonomy-act-update/](https://www.state.gov/hong-kong-autonomy-act-update/)
-这份制裁清单里的官员是为中共作恶的虾兵蟹将，再次成为中共的挡箭牌，这份更新的法案其制裁条款不够具体、清晰，究竟能给香港带来多少实际帮助，相信布林肯自己也说不出。但是有一点明确的是，支持香港、谴责中共已经成为政治正确。在此基础上，有一个从量变到质变的积聚过程，我们有理由相信，西方世界据此向中共要价、讨伐甚至进一步行动是未来的趋势，而能量转化的导火索无疑是中共病毒疫情危机。
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
+文章审核：zhong
 
-
-
-
-文章观点部分仅代表作者本人。
-
-作者：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
-
-（本文当日持续更新中）
+文章发布：Little Liu
 
 0
