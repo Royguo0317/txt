@@ -1,27 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国中共病毒疫情简报
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/990221/)
+## 感知弱点：习近平命令中共国军队做好战争准备
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/990475/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+翻译：康州盘古农场 – TrueSky
+校对：康州盘古农场 – Mike Li
+编辑：康州盘古农场 – 轰炸机
 
+据《国家脉动》作者：NATALIE WINTERS 2021年3月15日报道：
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-102.png)
 
-**西班牙2021年3月19日电/西喜社——**据美联社3月19日报道，根据约翰・霍普金斯大学的报告，美国在过去24小时内报告了58,480例新的中共病毒病例和1,173例死亡病例。仅次于巴西的90,303例和2,648例死亡。
+据自由亚洲电台报道，习近平“告诉该国军队和武警部队做好‘战斗准备’，以捍卫国家主权和安全，因为人们担心北京可能计划在未来几年入侵民主台湾”。
 
-美国每日新病例的七天滚动平均数在过去两周内从3月3日的63,846例下降到周三的54,821例。
+习近平在同中国人民解放军和人民武装警察部队领导人通话时强调，“全军要加强履职尽责，为确保“十四五”良好开局，为庆祝建党100周年做好准备”。
 
-过去两周，美国每日新死亡人数的七天滚动平均数从3月3日的1846人下降到周三的1230人。
+兼任中共国总司令的习近平还要求”加强军事训练和备战”。 他补充道，我“们要坚持用作战来指导工作；加强备战，以及发展顶层战略威慑和联合作战体系”。
 
-根据美国疾病控制和预防中心的数据，超过7360万人，也就是22.2%的美国人口，至少接种了一剂中共病毒疫苗。约有3900万人，即12%的人口，已经完成了疫苗接种。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/a262cc39-4973-46c8-a1b6-015760276803-3.jpg)
-
-**新闻来源：[美联社](https://apnews.com/article/europe-immunizations-coronavirus-vaccine-coronavirus-pandemic-germany-9011af2985af04a267d14f3cfa3479b2)**
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
+文章来源：https://thenationalpulse.com/breaking/xi-tells-army-to-get-combat-ready/
 
 0

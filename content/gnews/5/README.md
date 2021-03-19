@@ -1,11 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵直播2021/03/17
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/990389/)
+## 《文贵说》| 图片连载（二十七）
+` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/990067/)
 
-采集：滴水莲花
+![]()![](https://gnews.org/wp-content/uploads/2021/03/02-3-2.jpg)
+**这个世界上有三样东西是造不了假的：第一个是时间你造不了假；第二个钱，有没有人拿出钱来？钱这个东西它不会为假服务的，它是最真实的情感表达；第三件事情就是人与人之间的那种感觉——第六感，绝对造不了假！**
 
-设计排版：空之灵
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-19-at-20.54.12-2.jpeg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/3月17日.jpeg)
-0
+**—— 郭文贵先生 2020年5月21日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/01-1-4.jpg)
+**香港人民已完全形成了统一的共识，此战必赢，不赢就输，彻底输。所以他们就说了：我们要不干到底就得死，我们不能死亡**。
+
+**—— 郭文贵先生 2019年9月7日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/03-2-3.jpg)
+**我真的很担心美国，在不知不觉中这个，这个病情就传染到美国来。美国还没准备好呢，那将是大灾难**！
+
+**一一 郭文贵先生 2020年2月3日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/27-2.jpg)
+**我们有一个共同的病毒——叫CCP病毒； 我们有一个共同的敌人——叫CCP； 我们有一个共同的理想和目的——干掉CCP！**
+
+**一一 郭文贵先生 2020年3月23日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/05-6.jpg)
+**讲真话就会戳穿所有人的谎言，现在整个国家都靠着谎言、欺骗、威胁、造假来维持着 **。
+
+**—— 郭文贵先生 2017年9月10日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/04-6.jpg)
+**几乎可以不用怀疑的，美国将取消香港自贸区地位。**
+
+**—— 郭文贵先生 2019年9月4日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/03-8.jpg)
+**这是过去5年来，中国的反腐运动，我说的，以黑反贪、以贪反贪、以警反贪的盗国计划。**
+
+**一一 郭文贵先生 2017年9月13日**
+
+
+
+- [***更多精美海报请点击G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4)
+
+
++1
