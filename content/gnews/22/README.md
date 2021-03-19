@@ -1,25 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共的新型数字货币推广的担忧
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/989137/)
+## 【班农战斗室】807-808-809期简讯
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/989146/)
 
-作者：Ray裁决
+#### **翻译：七彩光**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/maxresdefault-2.jpg)
+#### **校对****/编辑：文泓**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/807-808-809-1.png)
+**图片来源：墨尔本雅典娜农场设计组（精灵蓝）**
 
-随着中共越来越接近于推出其新的数字现金，人们担心政府将跟踪每笔交易，不仅是公民，而且是该国所有国外公司的交易。
+**主持人：史蒂夫****-K-班农（Stephen K. Bannon），拉希姆-卡萨姆(Raheem Kassam)**
 
-数字人民币实质属于流通中人民币现金的补充范畴，功能属性与纸钞完全一样，只不过是数字化形态。中共人民银行副行长范一飞解释数字人民币的政策时，指出该货币主要定位于[流通中现金](https://zh.wikipedia.org/wiki/%E8%B2%A8%E5%B9%A3%E4%BE%9B%E6%87%89%E9%87%8F)（M0），是为与[比特币](https://zh.wikipedia.org/wiki/%E6%AF%94%E7%89%B9%E5%B9%A3)、全球性稳定币等加密资产相竞争而研发，以向数字经济发展提供通用性的基础货币。而该货币沿用原本的货币管理体系，在坚持中心化管理下发行，受到《中国人民银行法》、《人民币管理条例》等条文的约束，交易都会受监控。中共央行在数字人民币体系中居于中心地位，向指定的商业银行发放一定的数字人民币并进行[全生命周期管理](https://zh.wikipedia.org/w/index.php?title=%E5%85%A8%E7%94%9F%E5%91%BD%E9%80%B1%E6%9C%9F%E7%AE%A1%E7%90%86&amp;action=edit&amp;redlink=1)，由商业银行等机构再向社会公众提供兑换和流通。
+**嘉宾：****Michael Yon, Dr. Bradley Thayer, Raj Doraisamy, Tom Del Becarro, Boris Epshteyn**
 
-美国[自由亚洲电台](https://zh.wikipedia.org/wiki/%E8%87%AA%E7%94%B1%E4%BA%9A%E6%B4%B2%E7%94%B5%E5%8F%B0)引述经济学者观点认为，中共模式的数字货币，实际上是使中共得以全面管控个人财富，也就是回到[计划经济](https://zh.wikipedia.org/wiki/%E8%A8%88%E5%8A%83%E7%B6%93%E6%BF%9F)年代。中共经济学者[胡星斗](https://zh.wikipedia.org/wiki/%E8%83%A1%E6%98%9F%E6%96%97)就表示，中共的所谓数字货币只是货币的电子化，与具有个人私密性的[数字货币](https://zh.wikipedia.org/wiki/%E6%95%B0%E5%AD%97%E8%B4%A7%E5%B8%81)有很大差别。山东大学出身的金融学者司令则表示，中共所推行的电子货币，会将交易将完全置于政府的监控之下，有可能演变成「21世纪的[公私合营](https://zh.wikipedia.org/wiki/%E5%85%AC%E7%A7%81%E5%90%88%E8%90%A5)」，国民财富在政府失信下可完全一夜间变成[公有制](https://zh.wikipedia.org/wiki/%E5%85%AC%E6%9C%89%E5%88%B6)。
+#### **1、独家：三分之二美国人反对拜登的增税方案**
 
-中共的数字货币能知道你花钱购买的具体商品，金额，时间，地点。随着后续推广，人们的消费习惯被改变，当离不开数字人货币时候也就意味着你的一举一动都处在监控之中，包括公司的的交易。这对人们的隐私构成威胁。中共国会成为一个无形的电子监狱。
+《战斗室》独家分享的一项新的拉斯穆森民调显示，包括民主党人在内的三分之二的美国人反对乔-拜登的增税方案。【备注：拉斯穆森报告（Rasmussen Reports）是一家成立于2003年的美国民意测验公司，该公司从事政治评论以及民意测验信息的收集、发布和分发。】
 
-[援引原文](https://www.wsj.com/video/china-new-digital-currency-is-easy-to-use-but-youll-be-watched/3CB7D4BF-FDD6-4240-9C9A-0B982953E81E.html)
-[参考文案](https://zh.wikipedia.org/)
+“这可是二万亿（美元）”，史蒂夫.K.班农（Stephen K. Bannon）在谈到拜登政权的（增税）提案时说：“这实际上对于中产阶级的影响是很深层次的（不利）”。
 
-审核校对：鲁邦五世
-上传排版：糖果儿
+拉希姆.卡萨姆(Raheem Kassam)说:“这与他（拜登）之前所说的内容大相径庭.”
+
+班农说，在数万亿的新支出之后，拜登“明白这（偿还二万亿）是不可能（通过）融资（实现）的”。
+
+他说：“你得拿出更多现金”，他怎么拿出更多现金？“（通过向中产阶级）征税。”
+
+#### 2、战斗室：拜登的边境危机是有意而为之
+
+《战斗室》解释了拜登政权面临的边境危机是如何被设计出来的。
+
+拉希姆.卡萨姆说，这场（边境）危机并不是无意间的失误所导致，而是有意而为之。
+
+卡萨姆说：“邪恶是一切问题的根源。”他解释说，马克思主义的核心、卡特尔（边境走私人口的利益集团），民主党人对选票的渴求，三者（因此而）汇聚在一起。
+
+“他们（民主党人）想要这些选票”，班农说：“而且他们不在乎这会导致人们经历怎样的痛苦。”
+
+#### 3、班农揭示与中共会谈的拜登团队成员：只会勾兑的胆小鬼
+
+在（中美官员）阿拉斯加会议之前，班农抨击拜登政府派出的是与中共勾兑的“两个胆小鬼”。
+
+班农说，中共正在对美国进行“超限战”，杰克.沙利文（Jake Sullivan）和托尼.布林肯（Tony Blinken）不会追究他们（中共）的责任。
+
+（备注：杰克.沙利文是现任美国国家安全事务助理，2016年希拉里·克林顿竞选美国总统活动高级政策顾问以及2020年拜登竞选美国总统团队的高级政策顾问；托尼.布林肯，美国外交事务专家及政府官员，现任美国国务卿。在奥巴马时期曾任美国国家安全副顾问及常务副国务卿。）
+
+班农说：“你（拜登）派两个胆小鬼在那里，他们也只会勾兑。”班农指出，请注意沙利文和与中共有关的哈佛大学贝尔弗研究中心（Harvard Belfar Center）的关系，“他们可是稳赚不赔。”
+
+班农还批评《纽约时报》，其头版称拜登正在利用“外交”与中共进行“关键复位”。
+
+“外交意味着磕头（示弱）”，班农说：“而这让我们陷入如此的境地，让这个跨国（犯罪）恐怖组织……[伴随着]在武汉的解放军生物武器实验室流出的中共病毒…..（并且还是）由福奇博士资助。”
+
+“这些人是危险的蠢货”，班农说，拜登团队，以及拜登家族，都是“（与中共）勾兑在一起的”。
+
+#### 4、中国将基因工程与人工智能的混合研究开发目的是“建立世界主导统治地位”
+
+《战争室》警告说，如果不阻止中共不受管制地研究人工智能以及制造超级人类，全世界“黑暗的日子”即将来临。
+
+班农说，中共国完全不受监管的先进芯片设计，以及机器人技术应该被“彻底制止”。当拜登政府忙着在阿拉斯加向中共国示弱的同时，中共正忙着通过实验性基因疗法“创造新人类”。
+
+布拉德利.塞耶博士（Dr. Bradley Thayer）告诉《战斗室》，中共国正在“将基因与人工智能结合在一起，试图建立（世界主导）统治地位”。（备注：布拉德利.塞耶博士是德克萨斯大学圣安东尼奥分校政治学教授，是《中国如何看待世界：汉族中心主义与国际政治中的权力平衡（How China Sees the World: Han-Centrism and the Balance of Power in International Politics）》的合著者。）
+
+班农说，真正的问题是没人想问：“（中共的）生物武器计划有多活跃？”
+
+塞耶说：“围绕基因工程的相关人工智能和技术的整合”， “这将是决定21世纪人类世界的关键”，“这将影响我们的生活，我们的技术，我们的经济。”
+
+**原文链接：**
+
+1.  [Exclusive: 2/3 of Americans Oppose Biden Tax Hikes](https://pandemic.warroom.org/2021/03/18/exclusive-2-3-of-americans-oppose-biden-tax-hikes/)
+
+2.  [War Room: Biden’s Border Crisis is Intentional](https://pandemic.warroom.org/2021/03/18/war-room-bidens-border-crisis-is-intentional/)
+
+3.  [‘Compromised Pencil Necks’: Bannon Rips Biden Team Meeting with the CCP](https://pandemic.warroom.org/2021/03/18/compromised-pencil-necks-bannon-rips-biden-team-meeting-with-the-ccp/)
+
+4.  [China Mixing Genetics with Artificial Intelligence to ‘Establish Dominance’](https://pandemic.warroom.org/2021/03/18/china-mixing-genetics-with-artificial-intelligence-to-establish-dominance/)
 
 0
