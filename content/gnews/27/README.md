@@ -1,35 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美军警告中共正“加速他们的野心”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/988710/)
+## 美国政要等每日重要信息0318.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/986344/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0318.jpeg)
+#### 香港问题
 
-编辑上传  水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/N-7.jpg)newsweek.com
-《美国之音》报道，美军在中美和南美的指挥官、南方司令部的克雷格·法勒（Craig Faller）上将周二告诉立法者，中共国已经成为该地区（西半球）的主要威胁，他们利用中共病毒疫情日益严重进行无法无天的渗透，将其意志强加给越来越多的国家。
+3月17日蓬佩奥先生就现任政府布林肯对港政策予以肯定，推文如下。
+“政府干的不错，继续追究㆗（共）国高级领导㆟违反对世界作出港㆟自由的承诺。世界必须 “怀疑并核实”，并追究中共的责任。”
 
-法勒对参议院军事委员会成员表示，中共的威胁和努力是“全场出击”，中共的竞争前线已经离美国越来越近，“我感到一种紧迫感。”他补充说，“我们的影响力正在减弱。”
+继日前英国对中共国发出违背中英联合声明的警告勒令改正之后，3月16日与17日美国拜登政府对中共在香港修改选举法的行径更新了《香港自治法案》，对24名中港官员进行制裁。包括(1)识别该外国人士的身份；(2)清楚解释识别该外国人士的原因，并说明识别该外国人士的活动。明知故犯地与制裁人员进行重大交易的外国金融机构将受到制裁。被制裁人包括：
 
-近期美国主要军事官员发出了一系列越来越严厉的警告，提醒美国政策制定者注意中共的野心，以及他们认为北京将会付出多大努力来实现这些野心。美国印太司令部司令菲利普·戴维森(Philip Davidson)在上周也表示，华盛顿无力充分反击中共的军事活动，正鼓励中共变得更加咄咄逼人。中共正在“加速他们的野心”，把台湾、关岛和其他盟友置于更大的风险之中，中共加速在世界舞台上超越美国的计划。
+Wang Chen，You Quan，Cao Jianming，Zhang Chunxian，Shen Yueyue，Ji Bingxuan，Arken Imirbaki ，Wan Exiang ，Chen Zhu，Wang Dongming，Padma Choling，Ding Zhongli，Hao Mingjin，Cai Dafeng，Wu Weihua，Deng Zhonghua ，Li Jiangzhou，Edwina Lau，Li Kwai-Wah，Frederic Choi Chin-Pang，Kelvin Kong Hok Lai ，Andrew Kan Kai Yan，Tam Yiu-Chung，Sun Wenqing, AKA Sun Qingye
 
-印度洋-太平洋司令部高级情报官员在一次虚拟会议上表示，世界正在尝到中共统治的“滋味”。海军少将迈克尔·斯杜曼（Michael Studeman）说，“你将会发现一支非常全球化的远征中共军队，中共会在任何他们认为自身利益受到威胁的地方介入。”美国高级军事官员称，中共日益加剧的侵略令人担忧，并警告中共在展示军事实力方面不再犹豫。
+布林肯国务卿称美国与日本就中华人民共和国破坏香港选举制度、没有履行义务已经达成共识，两国拥有共同的民主价值观。
 
-拜登政府似乎在认真对待这些警告。国防部长劳埃德·奥斯汀和国务卿安东尼·布林肯正在进行包括日本和韩国的第一次海外盟友国家的访问会谈, 重申跨太平洋伙伴关系。各国在一定程度上就解决中共日益增长的威胁，讨论了如何让中共对违反现有国际规范的行为负责。
 
-本周二，法勒上将警告说，他反复形容的中共“阴险”威胁正越来越近，“一些例子包括他们追求多个港口交易，为政治杠杆提供贷款，破坏主权的疫苗外交，国家监控，信息技术，以及资源开发，如非法、不受监管的捕捞活动。”他强调中共的疫苗外交尤其令人担忧。“他们正在利用疫苗来撬动IT和5G协议。”“他们正利用疫苗外交试图在台湾与该地区其他国家之间制造隔阂。”中共拒绝给继续与台湾保持关系的中南美洲国家分享疫苗，除非这些国家采取行动切断或减少与台湾的联系。
 
-担忧还不止于此。负责在加勒比海、巴哈马群岛和墨西哥部分地区安全和驻军的美国北方司令部司令范赫尔克(Glen VanHerck)将军星期二对国会议员说，中共的影响力继续向北蔓延。范赫尔克指出中共试图在巴哈马区域和墨西哥等地加大影响，比如通过5G网络。
 
-美国军方官员同样对中共在中美洲和南美洲与跨国犯罪之间日益密切的关系表示担忧。“他们涉及贩卖毒品、人口、枪支和非法采矿。” 法勒在谈到在整个地区各种犯罪组织时说，“支持犯罪努力的主要来源之一是中共的洗钱活动。”为了对抗中共，法勒敦促国会议员们帮助确保美国与这些区域持续存在的伙伴关系。
 
-拜登政府已经开始对印太地区的战略进行评估。美国印太司令部司令菲利普·戴维森表示，不仅空军和海军，建设更广泛基础的远程精确打击火力的地面部队在西太平洋战略中也是至关重要的。
+> Good on the [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) for continuing to hold senior Chinese leaders responsible for breaking promises that China made to the world regarding freedom for the people of Hong Kong. The world must "Distrust but Verify" and hold the CCP accountable. [https://t.co/pXmwjXeZqV](https://t.co/pXmwjXeZqV)
+> — Mike Pompeo (@mikepompeo) [March 17, 2021](https://twitter.com/mikepompeo/status/1372293660830748675?ref_src=twsrc%5Etfw)
 
-美国国防部专门成立对中共战略的国防工作组，针对美国如何防范中共军事威胁启动了全面备战计划。美国国防部长奥斯汀（Lloyd Austin）表示，美国致力于维护国际秩序，而中共为自身利益“不断破坏”秩序，中共威胁是美国的“首要挑战”。而随着中美军事对抗的一步步升级，美国认识到中共的侵略性和独裁霸权思维，让美国与中共间爆发战争，甚至核战，存在真实可能。
 
-参考链接：
+[https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/](https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/) [https://www.state.gov/hong-kong-autonomy-act-update/](https://www.state.gov/hong-kong-autonomy-act-update/)
+这份制裁清单里的官员是为中共作恶的虾兵蟹将，再次成为中共的挡箭牌，这份更新的法案其制裁条款不够具体、清晰，究竟能给香港带来多少实际帮助，相信布林肯自己也说不出。但是有一点明确的是，支持香港、谴责中共已经成为政治正确。在此基础上，有一个从量变到质变的积聚过程，我们有理由相信，西方世界据此向中共要价、讨伐甚至进一步行动是未来的趋势，而能量转化的导火索无疑是中共病毒疫情危机。
 
-[https://www.voanews.com/americas/top-us-commander-warns-front-line-china-now-south-border](https://www.voanews.com/americas/top-us-commander-warns-front-line-china-now-south-border)
+
+
+
+
+文章观点部分仅代表作者本人。
+
+作者：康州盘古农场 喜马拉雅的文雅
+
+封面：康州盘古农场 霹雳年
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
+
+（本文当日持续更新中）
 
 0
