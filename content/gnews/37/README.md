@@ -1,27 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美警告中共美将继续制裁伊朗的石油交易
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/988751/)
+## 美国政要等每日重要信息0318.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/986344/)
 
-俄罗斯莫斯科喀秋莎农场    银河
+**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0318.jpeg)
+#### 香港问题
 
-编辑上传  水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/I-7.jpg)onlineindus.com
-《金融时报》报道称，拜登(Biden)政府已警告中共，因为伊朗违背制裁，令其运往中共的石油数量大幅增加，美国将继续对伊朗石油实施川普时代的制裁。
+3月17日蓬佩奥先生就现任政府布林肯对港政策予以肯定，推文如下。
+“政府干的不错，继续追究㆗（共）国高级领导㆟违反对世界作出港㆟自由的承诺。世界必须 “怀疑并核实”，并追究中共的责任。”
 
-之前中共外交部长王毅就“中共国的外交政策和对外关系”发言时指出，伊朗核问题是牵动中东海湾局势的敏感神经。呼吁美国解除不公正的单边制裁，解除对第三方实体和个人的长臂管辖。熟悉伊朗问题的美国政府高级官员在接受英国《金融时报》采访时表示，“一段时间以来”，伊朗对中共的石油出口一直在增加。美国已经明确回复中共，将继续对伊朗的石油实施制裁。
+继日前英国对中共国发出违背中英联合声明的警告勒令改正之后，3月16日与17日美国拜登政府对中共在香港修改选举法的行径更新了《香港自治法案》，对24名中港官员进行制裁。包括(1)识别该外国人士的身份；(2)清楚解释识别该外国人士的原因，并说明识别该外国人士的活动。明知故犯地与制裁人员进行重大交易的外国金融机构将受到制裁。被制裁人包括：
 
-自2018年底以来，制裁导致伊朗对中共、印度、日本和韩国的出口急剧下降。与其他国家不同的是中共从未因制裁停止伊朗石油进口。根据Refinitiv Oil Research的数据，在过去14个月里，伊朗向中共输送了约1780万吨原油(每天30.6万桶)，今年1月和2月的进口量达到创纪录水平。其中约75%是“间接”进口，即从阿曼、阿拉伯联合酋长国或马来西亚运输石油。装载伊朗石油的油轮通常在装载时关闭应答器以避免被发现，但随后通过阿曼、阿联酋和伊拉克港口附近的卫星追踪到，有些船只在驶往中共国之前会将部分货物转运到新加坡或马来西亚附近的其他船只上。这些石油最终主要通过山东港口或辽宁省营口港进入中共，山东是中共国大多数独立炼油商的所在地。其余25%的进口被标记为中共国战略石油储备的官方采购。
+Wang Chen，You Quan，Cao Jianming，Zhang Chunxian，Shen Yueyue，Ji Bingxuan，Arken Imirbaki ，Wan Exiang ，Chen Zhu，Wang Dongming，Padma Choling，Ding Zhongli，Hao Mingjin，Cai Dafeng，Wu Weihua，Deng Zhonghua ，Li Jiangzhou，Edwina Lau，Li Kwai-Wah，Frederic Choi Chin-Pang，Kelvin Kong Hok Lai ，Andrew Kan Kai Yan，Tam Yiu-Chung，Sun Wenqing, AKA Sun Qingye
 
-中共外交部表示，“伊朗是中共的友好国家，两国一直保持着正常的交流与合作。中伊在国际法框架下的合作合情合理，值得尊重和保护。”消息人士透露，伊朗与中共的石油交易大多以人民币或欧元结算，以规避美国的审查。
+布林肯国务卿称美国与日本就中华人民共和国破坏香港选举制度、没有履行义务已经达成共识，两国拥有共同的民主价值观。
 
-因伊朗与中共日益增加的石油交易违反了美国制裁限制，美国政府表示，“我们已经告诉中方，我们将继续执行我们的制裁”， 执行禁令可以采取“二级制裁”的形式。
 
-2019年，川普政府对一家中共国国有能源公司和几家油轮公司实施了制裁，称它们违反了美国的限制，交易伊朗石油。中共驻华盛顿大使馆没有立即回复记者的置评请求。
 
-参考链接：
 
-[https://www.ft.com/content/21eb2d88-3bae-4db3-944c-ba92f3924300](https://www.ft.com/content/21eb2d88-3bae-4db3-944c-ba92f3924300)
+
+> Good on the [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) for continuing to hold senior Chinese leaders responsible for breaking promises that China made to the world regarding freedom for the people of Hong Kong. The world must "Distrust but Verify" and hold the CCP accountable. [https://t.co/pXmwjXeZqV](https://t.co/pXmwjXeZqV)
+> — Mike Pompeo (@mikepompeo) [March 17, 2021](https://twitter.com/mikepompeo/status/1372293660830748675?ref_src=twsrc%5Etfw)
+
+
+[https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/](https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/) [https://www.state.gov/hong-kong-autonomy-act-update/](https://www.state.gov/hong-kong-autonomy-act-update/)
+这份制裁清单里的官员是为中共作恶的虾兵蟹将，再次成为中共的挡箭牌，这份更新的法案其制裁条款不够具体、清晰，究竟能给香港带来多少实际帮助，相信布林肯自己也说不出。但是有一点明确的是，支持香港、谴责中共已经成为政治正确。在此基础上，有一个从量变到质变的积聚过程，我们有理由相信，西方世界据此向中共要价、讨伐甚至进一步行动是未来的趋势，而能量转化的导火索无疑是中共病毒疫情危机。
+
+
+
+
+
+文章观点部分仅代表作者本人。
+
+作者：康州盘古农场 喜马拉雅的文雅
+
+封面：康州盘古农场 霹雳年
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
+
+（本文当日持续更新中）
 
 0
