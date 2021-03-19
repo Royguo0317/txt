@@ -1,45 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0318.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/986344/)
+## 美国防部称台湾从来不是中共国的一部分
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/988850/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0318.jpeg)
-#### 香港问题
+俄罗斯莫斯科喀秋莎农场   银河
 
-3月17日蓬佩奥先生就现任政府布林肯对港政策予以肯定，推文如下。
-“政府干的不错，继续追究㆗（共）国高级领导㆟违反对世界作出港㆟自由的承诺。世界必须 “怀疑并核实”，并追究中共的责任。”
+编辑上传   水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/TU.jpg)cimsec.org
+美国防部一篇对印度洋-太平洋地区局势分析的文章指出，过去几十年里，印度洋-太平洋已经发展成为一个“重要地区”，“优先战区”，或“全球经济引擎”。美国军方已经认识到印太战区的重要性。
 
-继日前英国对中共国发出违背中英联合声明的警告勒令改正之后，3月16日与17日美国拜登政府对中共在香港修改选举法的行径更新了《香港自治法案》，对24名中港官员进行制裁。包括(1)识别该外国人士的身份；(2)清楚解释识别该外国人士的原因，并说明识别该外国人士的活动。明知故犯地与制裁人员进行重大交易的外国金融机构将受到制裁。被制裁人包括：
+中共是美国军队面临的最大挑战，但不是该地区的唯一挑战。一位高级国防官员表示，“几十年来，我们都有这些担忧——崛起的中共、朝鲜、俄罗斯、暴力极端主义活动——但这些担忧的范围、数量和规模要大得多。”除此之外，还有气候变化问题及火山带引起的引发火山爆发、地震和海啸。特别是中共病毒和全球疫情，各种问题错综复杂。
 
-Wang Chen，You Quan，Cao Jianming，Zhang Chunxian，Shen Yueyue，Ji Bingxuan，Arken Imirbaki ，Wan Exiang ，Chen Zhu，Wang Dongming，Padma Choling，Ding Zhongli，Hao Mingjin，Cai Dafeng，Wu Weihua，Deng Zhonghua ，Li Jiangzhou，Edwina Lau，Li Kwai-Wah，Frederic Choi Chin-Pang，Kelvin Kong Hok Lai ，Andrew Kan Kai Yan，Tam Yiu-Chung，Sun Wenqing, AKA Sun Qingye
+中共、俄罗斯、朝鲜和暴力极端主义是印度洋-太平洋地区的重大威胁，是对美国印太司令部使命的直接挑战，该司令部的使命是为该地区的商业提供自由和机动性，支持良好的治理，并遏制侵略。
 
-布林肯国务卿称美国与日本就中华人民共和国破坏香港选举制度、没有履行义务已经达成共识，两国拥有共同的民主价值观。
+美国在该地区有条约盟国：韩国、日本、菲律宾、泰国、澳大利亚和新西兰。虽然美国与该地区许多国家进行双边合作，但各国领导人希望看到更多的多边接触。美国官员说，拜登总统与澳大利亚、印度和日本领导人参加的“四方会谈”很有希望成为一个多边合作的平台。在欧洲，北约(NATO)和欧盟(European Union)已经习惯于多边合作，而印太地区没有这种架构。
 
+中共在该地区的霸权主义扩张行为——从与印度在控制线上作战，到在印度洋地区增加努力和巡逻——令印度担忧。印度开始转变传统的不结盟政策，积极与美国、澳大利亚和日本寻求合作。美方官员称“印度不会很快与美国签署共同防御条约，但他们是美国的主要防御伙伴，他们正努力在军事能力、指挥和控制以及信息共享方面与美国军方加强互通。”这一点很重要，美国将需要与盟友和合作伙伴建立和捍卫印太地区以规则为基础的架构。
 
+美官员指出中共在南中国海和东海建造了岛屿，并在上面建设导弹基地。中共致力统一台湾，但台湾从来都不是中共国的一部分。特别是在台湾问题上，美国国防部官员关注的是中共的能力，“他们是否有足够数量的必要设备来执行他们认为会成功的行动”。
 
+美国新任国防部长奥斯汀(Lloyd Austin)曾表示，国防部“将把中共列为我们的头号挑战，并发展正确的作战理念、能力和计划，以加强威慑，保持我们的竞争优势。”
 
+美国印太司令部司令菲利普·戴维森(Philip Davidson)近日提出申请270亿美元的“威慑资金”以应对中共威胁， 计划用于采购新武器、加强与盟友的军事合作及演习，以保持美国在印太地区的战略优势。戴维森强调，美国将建立威慑有效的军事装备，必须明确地让中共明白，其试图通过军事力量实现霸权主张的目标成本太高了。
 
-> Good on the [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) for continuing to hold senior Chinese leaders responsible for breaking promises that China made to the world regarding freedom for the people of Hong Kong. The world must "Distrust but Verify" and hold the CCP accountable. [https://t.co/pXmwjXeZqV](https://t.co/pXmwjXeZqV)
-> — Mike Pompeo (@mikepompeo) [March 17, 2021](https://twitter.com/mikepompeo/status/1372293660830748675?ref_src=twsrc%5Etfw)
+参考链接：
 
-
-[https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/](https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/) [https://www.state.gov/hong-kong-autonomy-act-update/](https://www.state.gov/hong-kong-autonomy-act-update/)
-这份制裁清单里的官员是为中共作恶的虾兵蟹将，再次成为中共的挡箭牌，这份更新的法案其制裁条款不够具体、清晰，究竟能给香港带来多少实际帮助，相信布林肯自己也说不出。但是有一点明确的是，支持香港、谴责中共已经成为政治正确。在此基础上，有一个从量变到质变的积聚过程，我们有理由相信，西方世界据此向中共要价、讨伐甚至进一步行动是未来的趋势，而能量转化的导火索无疑是中共病毒疫情危机。
-
-
-
-
-
-文章观点部分仅代表作者本人。
-
-作者：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
-
-（本文当日持续更新中）
+[https://www.defense.gov/Explore/News/Article/Article/2536889/dod-officials-describe-conditions-in-indo-pacific/](https://www.defense.gov/Explore/News/Article/Article/2536889/dod-officials-describe-conditions-in-indo-pacific/)
 
 0
