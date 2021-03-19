@@ -1,72 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 众议院因斯沃尔韦尔与中共间谍嫌疑人的关系而阻止了共和党将其踢出情报委员会
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/989889/)
+## 中共北京的老年代步车何去何从？
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/990098/)
 
-翻译：康州盘古农场 – TrueSky
-校对：康州盘古农场 – 抽雪茄的奥特曼 Stephanie
-编辑：康州盘古农场 –  轰炸机
+作者：香草山农场  鹰(文言)
 
-据《福克斯新闻》 作者：托马斯-巴拉比、泰勒-奥尔森，2021年3月18日报道：
+新浪网3月19日转载北京晚报消息，中共北京加紧整治老年代步车违法上路行为，但不解决老年代步出行和接送孩子刚需引发热议。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Swalwell.jpg)
+2018年11月，中共北京发布《北京市非机动车管理条例》，将数百万辆电动自行车纳入管理范围。《北京市电动自行车过渡期登记和通行管理办法》规定，不符国家标准的电动自行车申领临时标识，3年过渡期满后不得上路行驶。此后，北京开展对“非法”老年代步车的整治和取缔，2020年12月更是五局联动（市公安局、交通、商务、市场监督、城管执法）对三轮四轮低速电动车进行清理，包括销售环节和道路通行。
 
-众议院立法者周四投票表决通过了一项由众议院少数党领袖凯文-麦卡锡（Kevin McCarthy）提出的决议案，该决议案旨在将民主党众议员埃里克-斯沃尔韦尔（Eric Swalwell）从众议院情报常设特别委员会中除名，原因是他过去与据称是中共间谍的芳芳有关系。
+鉴于老年代步的刚需，虽然中共政策上愈加严厉，但个人需求以及行业发展仍使得老年代步车仍能通过“线上购买、线下维修”、“残疾人车”等方式进行售买。虽然老年代步车存在闯红灯、逆行、走机动车道、乱停乱放的现象，但在12345市民服务热线中，197条有关老年代步车的意见中49条明确反对“一刀切”取缔老年代步车，同时不少市民对相关部门关于老年代步车上路和上牌的答复并不认可。由此可见，中共“拍脑袋”搞出的政策在执行过程中的因侵害人民利益、无视诉求而被抵制。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Pic-1.jpg)
+（图片来自网络）
 
-要求罢免斯沃尔韦尔的决议案以218-200的党派投票结果被否决。众议院所有民主党人都投了弃权票，三名共和党人投了“出席”票。民主党领导层搁置决议案的举动，让议员们避免了就是否将斯沃尔韦尔从委员会中除名进行上-下表决。
+对于代步车的规范驾驶违规罚款等更严格的上路规定，不少代步车直接沦为小区内的废弃“置物柜”。但面对接送孩子这一必须，仍有不少老人选择继续上路。针对乱停乱放问题，虽然文中提出设立专用停车场，但鉴于小区内用于停放私家车的地下停车场就需要一至两层，而地面上扣除绿化和楼房面积，剩余可供停靠的场地更是狭小，难以满足每户一辆老年代步车的需求，再加上专用停车场的充电装置、收费维护也存在分摊难的问题。
 
-众议院多数党领袖斯泰尼-霍耶说，麦卡锡推动将斯瓦尔韦尔从委员会中除名是“轻浮的政治行为”，是为了“转移众议院共和党人对自己的成员未能为不当且令人愤怒的行为负责的注意力”。
+至于让老年代步车上牌照，车主考证更不可行，老年人由于身体技能和驾考标准要求出入大，以及拿证以后的查处困难等问题，都限定了这一“方案”的实施。个别专家建议采用步行、自行车、电动自行车接送孩子，但老年人的腿脚和身体上存在因年龄带来的诸多不便，以及恶劣或不良天气（刮风下雨、严寒酷暑等）也限制了自行车的使用，同时由于“学区房”等中共恶意为之的推高房价行径造成上学远上学难，“划片、就近入学”沦为泡影，步行接送、自行车接送都是不切实际的。
 
+老年代步车的“风靡”乃至如今的“顶风出行”，都表明老年代步出行的迫切和必要。由于中共推高了教育和养老的成本，直接造成了老人和儿童的“老无所养、教无所依”。前有低端人口清理，后有老年代步车“一刀切”，以及各种中共对底层民众的蔑视和横征暴敛，注定了中共的倒台和被人民群众唾弃、推翻的结局。
 
+（文章仅代表作者观点，与GNEWS网站无关）
 
-> [#FoxNews](https://twitter.com/hashtag/FoxNews?src=hash&amp;ref_src=twsrc%5Etfw) has obtained this Resolution seeking Congressman Eric Swalwell’s removal from the House Intelligence Committee. TBD on timing in terms of when Leader McCarthy will seek to force a vote on the House Floor. [pic.twitter.com/FpX7vd9Nz5](https://t.co/FpX7vd9Nz5)
-> — Mike Emanuel 🇺🇸 (@MikeEmanuelFox) [March 18, 2021](https://twitter.com/MikeEmanuelFox/status/1372511970696515585?ref_src=twsrc%5Etfw)
+新闻来源：
+[大量投诉 vs 现实需求，北京这些老年代步车如何治理](http://大量投诉%20vs%20现实需求，北京这些老年代步车如何治理？)？
+[北京老年代步车乱象频发 成交通治理“盲区”](http://北京老年代步车乱象频发%20成交通治理“盲区”)
+[北京老年代步车问题调查：上有政策下有对策 变相销售猖狂](http://北京老年代步车问题调查：上有政策下有对策%20变相销售猖狂)
 
-
-#FoxNews已经获得了这个决议，寻求众议员斯瓦尔韦尔从众议院情报委员会中除名。领袖麦卡锡何时寻求在众议院强行投票，时间待定。
-“我们众议院民主党多数派一直坚定不移地反对中共国的恶意行动”，霍耶在一份声明中说。像今天这样，共和党人试图掩盖这一事实的虚假企图不会改变。美国人已经厌倦了超党派主义和‘弄虚作假’的噱头。相反，让我们以两党合作的方式，为人民取得成果。
-
-这份长达两页的决议案说，加州民主党人斯沃尔韦尔“没有否认公开报道，一名疑似中国情报人员帮助斯沃尔韦尔议员的政治活动筹集资金”，并指出“公开报道中的其他麻烦因素”。
-
-**JOHN KATKO****报道，法律制定者应该知道斯瓦尔韦尔是否因与被指控的中国间谍的关系而受到****“****玷污****“**
-
-阿克西奥斯（Axios）首次披露了与芳芳的关系，该报道称，芳芳帮助斯沃韦尔的竞选活动筹集资金，并在斯沃韦尔的办公室安排了一名或多名实习生。共和党人表示，一个被外国势力如此严重损害的人不应该继续留在这个关键的情报小组中。
-
-加州共和党人麦卡锡的决议案还引用了众议院的规则：“众议院议员……在任何时候的行为都应反映出众议院的信誉。”
+*责任编辑：首尔喜韩农场 文迹~见证神迹*
+*校对/编辑：英国喜庄园  AN*
+*发布: Hong*
 
 
-
-> You are required to disclose relationships with foreign nationals in Section 19 of the SF-86 form for a security clearance in the private sector.
-> 
-> Given the nature of Swalwell's relationship with a reported Chinese spy, he wouldn't qualify. Why is he still on the Intel Committee? [pic.twitter.com/zRjlf7j3E4](https://t.co/zRjlf7j3E4)
-> — Kevin McCarthy (@GOPLeader) [March 18, 2021](https://twitter.com/GOPLeader/status/1372640873947803657?ref_src=twsrc%5Etfw)
-
-
-你必须在SF-86表格的第19部分披露与外国公民的关系，以便在私营部门进行安全审查。鉴于斯沃尔韦尔与中国间谍关系的性质，他不符合条件。为什么他还在情报委员会？
-斯沃尔韦尔没有被指控有任何不法行为，在得知芳芳是间谍时，他与FBI合作。但他多次拒绝回答福克斯新闻提出的关于他与芳芳的关系是浪漫还是性关系。
-
-民主党人周四在推特上回应麦卡锡的决议，指责这位GOP领袖是”新麦卡锡主义”。
-
-“迎接新麦卡锡主义。决议中的多句话指出‘斯沃韦尔没有否认……’，”斯沃韦尔在推特上写道。“但却没有包括FBI的多份声明’没有不法行为’，除了‘合作’，什么都没做。所有这些都是为了转移@GOPLeader对QAnon的支持。”
-
-
-
-> Meet the New McCarthyism. Multiple sentences in resolution state “Swalwell has not denied…” Yet fails to include multiple FBI statements of “no wrongdoing” and did nothing but “cooperate.” All of this to deflect from [@GOPLeader](https://twitter.com/GOPLeader?ref_src=twsrc%5Etfw)’s support for QAnon. [https://t.co/2bsU72ev8H](https://t.co/2bsU72ev8H)
-> — Rep. Eric Swalwell (@RepSwalwell) [March 18, 2021](https://twitter.com/RepSwalwell/status/1372529782550847490?ref_src=twsrc%5Etfw)
-
-
-迎接新麦卡锡主义。决议书中多处写着”斯沃尔韦尔没有否认……“但却没有包括FBI多次声明”没有不法行为”，除了“合作”，什么都没做。所有这些都是为了转移 @GOPLeader对卡农的支持。
-斯沃尔韦尔的办公室还向福克斯新闻介绍了国会议员上周就其在情报小组中的角色发表的声明。
-
-斯沃尔韦尔说，“我渴望继续保护美国人的重要工作，并支持我们情报界辛勤工作的英雄们，我感谢佩洛西议长和希夫主席的支持和信任”。
-
-众议院情报委员会主席亚当-希夫(Adam Schiff)周四在给同事的信中为斯沃尔韦尔辩护，“我完全相信斯沃尔韦尔议员适合继续担任情报委员会的模范成员，并得到所有的信任。我将反对这种透明的政治努力。？
-
-据Axios报道，芳芳与多名民选官员有性关系或恋爱关系，包括至少两名中西部市长。
-
-但斯沃尔韦尔在民主党人中仍得到广泛支持。他被任命为众议院弹劾管理人之一，负责参议院对前总统唐纳德-川普的第二次审判，最近被众议院议长南希-佩洛西（Dancy Pelosi）重新任命为情报小组成员。
-
-文章来源：[https://www.foxnews.com/politics/mccarthy-files-resolution-swalwell-intelligence-committee](https://www.foxnews.com/politics/mccarthy-files-resolution-swalwell-intelligence-committee)
 
 0
