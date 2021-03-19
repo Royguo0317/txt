@@ -1,13 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 汤姆·科顿：拜登政府面对中共的威胁应该表现的更加强硬
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/986025/)
+## 2021年3月18日 文贵先生盖特 1
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/987633/)
 
-3/17/2021 汤姆·科顿议员在玛丽亚的节目中称，拜登政府面对中共的威胁，包括中共病毒，香港问题以及新疆种族大屠杀问题上应该表现的更加强硬。
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-By： 【秘密翻译组 G-Translators】
+3月18号：尊敬的再和好，马上开始乱聊直播！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/38f722eccc23f1f0ab1747ed5edf88d5.jpg)
+[【2021年3月18日】文贵先生盖特原文](https://gtv.org/getter/60535dc4527b920e2d83b885)
 
+**喜联盟Gnews编辑部**
 
-
-0
++3

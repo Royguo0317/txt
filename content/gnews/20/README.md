@@ -1,61 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国联邦委员会3月17日开始撤销中共通信在美经营权
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/986483/)
+## 中共病毒仅仅是个开始，因为中共正在策划新的杀手级病毒
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/988047/)
 
-【日本东京方舟农场】作者：Maarago 素材整理：武汉老温 校对：文小律
+**作者**：Ethan Huff 2021-03-16
 
-据[The FCC](https://twitter.com/FCC)@FCC于[上午1:09 · 2021年3月18日](https://twitter.com/FCC/status/1372233756933816327)·[Twitter for iPhone](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——美国联邦通信委员会（FCC）认定，中国联通未能解决其在美国保留第214条授权的严重问题。[https://twitter.com/FCC/status/1372233756933816327](https://twitter.com/FCC/status/1372233756933816327)
+**翻译：**加拿大温哥华圆成农场 卢卡斯
+![]()![](https://gnews.org/wp-content/uploads/2021/03/图片22.png)图片来源：网络
+《自然新闻》报道：保守派专栏作家高登（Gordon Chang）说，中共病毒并不是中共唯一的捣蛋手段。
 
-对于这起事件，美国之音2021年3月18日 04:08 发布的[美国开始撤销中国通信公司在美国的经营权](https://www.voachinese.com/a/fcc-to-revoke-chinese-telecom-license-20210317/5818425.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)：
+张告诉战斗室（War Room）说，中国共产党（CCP）正在研究其他人工设计的病毒，目的是把它们释放出来，杀死数以百万千万计的人们。
 
-［美国联邦通信委员会星期三（3月17日）表示，已经开始撤销中国联通美洲公司（China Unicom Americas）和太平洋网络有限公司（Pacific Networks）及其全资子公司ComNet在美国提供州际和国际通信服务授权的程序。
+用Chang的话说：“很明显，我们必须采取行动，原因是中共病毒，并不是来自中共国的最后的病原体。”“习近平现在知道他几乎可以不需要花费任何代价就可以传播疾病。”
 
-联邦通信委员会去年4月发布命令警告说，可能关闭中国联通美洲公司、太平洋网络有限公司和中国电信（China Telecom Corp Ltd）这三家中国国营通信公司在美国的运营。中国联通在美国的经营权已经有20年，在美国提供国际通信服务。
+换句话说，这些所谓的“病毒”甚至不必是真实的，类似于计算机病毒，它们可以通过主流媒体和“病患护理”系统以数字方式传播，并且仍然以恐惧和偏执狂的方式“感染”整个世界。
 
-联邦通信委员会去年12月开始撤销中国电信这家中国最大通信公司在美国提供通信服务授权的程序，这项授权已经有将近20年的历史。
+这些未来的人造病毒将导致更多的大规模疫苗接种，疫苗接种反而将毁坏人们的健康，同时杀死许多接受疫苗接种的人们。当然，疫苗接种就是真正的病毒，并且此刻正在使用疫苗没有任何疑问，这是人们对中共病毒的恐惧造成的结果，但却可能导致世界人口大量减少。
 
-联邦通信委员会专员斯塔克斯（Geoffrey Starks）表示，很多中国通信运营商“也拥有在美国国内经营的数据中心，” 联邦通信委员会目前缺乏 “解决这个潜在国家安全威胁的授权。”
+Chang说：“中共国正在研究病原体，这些病原体将带走中国人。”“中国人将成为免疫的人群。 但是他们将会让其他人感到厌恶。”
 
-联邦通信委员会2019年5月投票一致决定拒绝给予中国移动（China Mobile Ltd）在美国提供服务的经营授权，理由是中共可能利用这项授权对美国政府从事间谍活动。］
+他补充说：“中共国正在致力于发展灭绝文明的杀手武器。”“这可能会使中共国成为唯一能存活下去的社会。”
 
-另据[FCC moves against two Chinese telecoms firms operating in US](https://asia.nikkei.com/Politics/International-relations/US-China-tensions/FCC-moves-against-two-Chinese-telecoms-firms-operating-in-US)（March 18, 2021 07:49 JST注：原文为英文，以下为中文大意）
+更多有关当前的和未来将被释放的中共病毒相关新闻，请访问Pandemic.news。
 
-［监管机构在12月启动了类似的程序，开始撤销中国最大的电信公司中国电信的授权，中国电信已经获得了美国近20年的授权。FCC专员Geoffrey Starks指出，许多中国电信运营商“也拥有在美国运营的数据中心”。他说，联邦通信委员会目前缺乏权力来“应对这一潜在的国家安全威胁”。2019年5月，美国联邦通信委员会（FCC）一致投票否决了另一家中国国有电信公司中国移动（China Mobile）提供美国服务的权利，理由是中共可能会利用该批准对美国政府进行间谍活动。FCC对中国电信采取强硬路线。
+**美国纳税人正在为他们自身的灭绝买单**
 
-周五，FCC根据2019年旨在保护美国通信网络的法律，将五家中国公司指定为对国家安全的威胁。FCC分别命名为华为技术有限公司，中兴通讯公司，海能达通讯公司，杭州海康威视数字技术有限公司和大华技术有限公司。4月份，FCC批准了Alphabet Inc.子公司Google的请求，该请求使用部分美亚海底电讯电缆，但不使用香港的电缆。上周，Facebook撤回了一项使用电缆在美国和香港之间传送互联网流量的应用程序，理由是“美国政府持续关注直接通信链接”。9月，Facebook，Amazon.com Inc.和中国移动撤回了他们的应用程序，以将旧金山和香港连接起来，成为海湾到海湾快递电缆系统的一部分。］
+重要的是，要提醒我们的读者，中共国不是用自己的钱来支付其制造释放中共病毒所需的费用，中共政权正是用美国纳税人的钱，来资助它对美国以及其他文明的破坏。
 
-另据德国之声中文网09.06.2020 发布的[国安疑虑威胁在美营运 中国电信喊冤](https://www.dw.com/zh/%E5%9B%BD%E5%AE%89%E7%96%91%E8%99%91%E5%A8%81%E8%83%81%E5%9C%A8%E7%BE%8E%E8%90%A5%E8%BF%90-%E4%B8%AD%E5%9B%BD%E7%94%B5%E4%BF%A1%E5%96%8A%E5%86%A4/a-53740619)：
+中共的非法功能获得病毒研究是由美国国立卫生研究院（NIH）资助的，NIH的一个主要部门是由善于电视作秀的假医生安东尼·福奇（Anthony Fauci）控制的。
 
-［美国联邦通信委员会以国安疑虑为由，准备撤除中国国有企业在美国的营运许可。2020年(6月8日)晚上，中国电信(Chinese Telecom)在美国的分部发出回复政府的文件，呼吁美国联邦通讯传播委员会(FCC)不要撤销其授权许可。FCC在20年前就已经发出营运授权许可给中国通信，让该公司提供进出美国的通讯服务至今。近年来美国对国家安全的警戒心逐渐升高，让中国公司在美国的业务受到威胁。今年4月，美国司法部、国土安全局、国防部、商务部共同指出与中国电信合作存在“重大且不可承受的国家安全以及执法风险。”受到压力的三家公司都做出了回复: 中国联通在6月1日的一份声明中说，该公司与美国长达20年的合作记录良好，长期以来妥善遵守美国FCC所规范的义务，也有意愿配合美国执法机构。Pacific和ComNet则都声称没有受到中国共产党指挥从事任何威胁美国国家安全的
+“在2015年，一个名叫Fauci的家伙负责370万美元的研究资金，” Chang解释了中共开发中共病毒的现金来源就是该研究资金。
 
-行为。中国电信在6月8日的声明中则表示，其在美国224名雇员当中，有72人是美国公民，该公司也积极配合美国执法。但是这些公司的说辞可能仍难以打动FCC。2019年五月，美国FCC便曾经国家安全为由，投票否决另一家中国国有公司–中国移动进入美国提供服务。FCC担忧中国政府利用通信公司从事反美国间谍行动。］
+Chang说，这种研究是站不住脚的。 在美国做这样的研究也是非法的，因此将其外包给中共国，也许最糟糕的部分是美国纳税人的钱使得这一切成为现实。
 
-我们一定要知道，所有这一切正在发生的美国与中共军企的脱钩只是结果，而产生培育这个结果的因却并不在今日，郭文贵先生在[2019年4月13日谈盗国贼的财富以及这周发生的大事！江家集团在中国的实际实力和未来的下场！](https://youtu.be/kNAf1hLh0DQ)直播中提到：［战友们，这个红衣男可以告诉大家，他们渗透和准备，对海外的欺民贼的所有的人的蓝金黄，包括对我们的很多上万名的战友们的抓捕，这是这些人干的。江志成作为重要的小组成员。可见咱们的爆料已经触动了江家的底线了，江家不舒服。可见我们的爆料革命已经触动了共产党的根基了，让他们害怕了。那么他们到底怕什么？我告诉大家最近发生的几件事，让他们如何地害怕，他们为什么怕。大家刚刚知道10号，美国对中国的37家企业包含香港的几家企业，香港的实际上也是大陆的，具有中国军方和情报背景的企业，进行了怀疑和制裁和观望。事实上就是制裁。美国的养老保险基金从佛州到达拉斯，现在纽约州已经开始了，华盛顿也开始了。以及从45个议员到现在80几个议员提起的反对美国养老保险，退休保险，退伍基金投到中国有关的国有企业和中国的有背景的私营企业，并且要求对过去的投资全面地进行调查，而且现在未经尽职调查的不允许再投资。这两件事加一起，大家去想一想它意味这什么？。］
+中国几十年来的目标一直是使美国人口减少以对其进行殖民化，而释放中共病毒的手段则正按照计划按部就班地推进这一议程的一个环节。
 
-FCC3月17日的［已经开始撤销中国联通美洲公司（China Unicom Americas）和太平洋网络有限公司（Pacific Networks）及其全资子公司ComNet在美国提供州际和国际通信服务授权的程序］不是开始，它算不算重磅？在爆料革命的灭共收获年灭共重磅已经应接不暇，这一切的背后都是你死我活的搏斗和厮杀，中国共产党将在什么时候被消灭我们不知道，但是我们可以预见的是我们离那一天已经越来越近。
+Gaffney在接受Chang采访时说：“我们是他们为达到此目的而想到的族裔之一，这可以追溯到1991年。”
 
-注：本文仅代表作者观点
+“是否有可能由美国纳税人资助这种功能增强性试验，在某种程度上发展出针对种族的技术，如此这般，与我们相同的美国纳税人也将被中共所淘汰掉吗？”
 
-参考链接：
+Chang对此做出了肯定的回答，并补充说，“中共国有这样针对美国的计划，这毫无疑问”。
 
-1.[https://twitter.com/FCC/status/1372233756933816327](https://twitter.com/FCC/status/1372233756933816327)
+Gaffney回应道：“这对我们纳税人来说无异于就是自杀”。
 
-2.[https://twitter.com/VOAChinese/status/1372282102926831617](https://twitter.com/VOAChinese/status/1372282102926831617)
+换句话说，美国纳税人正在为他们自己的灭绝提供资金，因为福奇（Fauci）和联邦政府中的其他人将钱转给了中共国，资助中共开发新的进攻武器以消灭我们的国家。
 
-3.[https://www.voachinese.com/a/fcc-to-revoke-chinese-telecom-license-20210317/5818425.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voachinese.com/a/fcc-to-revoke-chinese-telecom-license-20210317/5818425.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+中共还以其他方式攻击我们的国家，包括使我们的国民士气低落，将我们的家园变成第三世界香蕉共和国，让我们国家的统治阶级超脱法律的约束为所欲为，并且每一次逃脱都能法律的惩罚。
 
-4.[https://twitter.com/NikkeiAsia/status/1372321313679872004](https://twitter.com/NikkeiAsia/status/1372321313679872004)
+“就像我以前说过的那样：’美国正在成为委内瑞拉的抄本，”我们自己的评论员之一在有关美国崩溃的文章上写道。
 
-5.[https://asia.nikkei.com/Politics/International-relations/US-China-tensions/FCC-moves-against-two-Chinese-telecoms-firms-operating-in-US](https://asia.nikkei.com/Politics/International-relations/US-China-tensions/FCC-moves-against-two-Chinese-telecoms-firms-operating-in-US)
+**评：**2021以毒灭共年进入三月以来，西方各国越来越多的揭露中共病毒真相的内部文件信息被公开，越来越来病毒学家、医生和媒体工作者开始撰文说出自己知道的内幕和了解到的真相，几乎全都验证了自2020年1月中共病毒全球大爆发开始后，爆料革命英雄科学家闫丽梦博士，战神文贵先生和路德社等正义人士对中共病毒真相和事实的揭露。
 
-6.[https://twitter.com/dw\_chinese/status/1270284451323543553](https://twitter.com/dw_chinese/status/1270284451323543553)
+本文揭露中共病毒仅仅是个开始，中共正在研究其他人工设计的病毒，其目的是释放新的中共病毒出来，杀死更多的人们。验证了闫博士3月6日在班农战斗室节目中所说的，武汉毒所不是中共军方唯一的一个研究生物武器的军民融合项目，它只是中共政府的一个主导并秘密实施的超限生物武器战的巨大计划的部门，中共拥有一个生物病毒武器库；假如果中共没有因为制造并释放中共病毒造成全球病毒大流行而受到任何惩罚，它尝到甜头之后，一定会继续释放更多的病毒，祸害全世界人们，因此我们必须要继续追溯中共病毒的来源和追究中共的责任。
 
-7.[https://www.dw.com/zh/%E5%9B%BD%E5%AE%89%E7%96%91%E8%99%91%E5%A8%81%E8%83%81%E5%9C%A8%E7%BE%8E%E8%90%A5%E8%BF%90-%E4%B8%AD%E5%9B%BD%E7%94%B5%E4%BF%A1%E5%96%8A%E5%86%A4/a-53740619](https://www.dw.com/zh/%E5%9B%BD%E5%AE%89%E7%96%91%E8%99%91%E5%A8%81%E8%83%81%E5%9C%A8%E7%BE%8E%E8%90%A5%E8%BF%90-%E4%B8%AD%E5%9B%BD%E7%94%B5%E4%BF%A1%E5%96%8A%E5%86%A4/a-53740619)
+美国纳税人的钱被美国国家卫生研究院（NIH）安东尼·福奇博士用于资助中共研究中共超限生化病毒武器，被中共用来破坏美国的文化，杀死美国纳税人，减少美国的人口，使得美国委内瑞拉化。《司法观察》3月1日宣布，它和“每日来电者新闻基金会“（Daily Caller News Foundation）当日收到了301页来自美国国家卫生研究院（NIH）安东尼·福奇博士（Anthony Fauci）和克里夫·莱恩（Cliff Lane）博士的电子邮件记录。根据这些记录显示，美国国家卫生研究院（NIH）官员曾根据中国的情况量身定制了保密表。电子邮件记录还显示，世界卫生组织（WHO）于2020年1月进行了未曾发布的“严格保密“的中共病毒流行病学分析[1]。全世界第一个站出来公开揭露中共病毒真相的英雄女科学家闫丽梦博士说：“来自福奇的301封电邮表明，NIH和WHO、CCP之间从2020年1月起就高度机密地合伙处理新冠病毒信息。中共病毒爆发以来，福奇不仅阻止川普总统实施旅行禁令，向白宫提供不实信息，最初时还反对戴口罩，并且竭力阻挠有效预防药物羟氯喹的使用，之后又大力推进疫苗注射计划。《华盛顿邮报》的记者乔什-罗金（Josh Rogin）最近出版的新书《天下大乱：川普、习近平和二十一世纪之战》，提出了武汉病毒研究所牵连到中共大流行病起源的证据，同时也证实了由安东尼-福奇博士曾资助了一些涉及到武汉病毒研究所科学家的项目，其中包括武汉实验室对蝙蝠冠状病毒的大部分工作。
 
-8.[https://www.youtube.com/watch?v=oSRXeu8E8JE&feature=youtu.be](https://www.youtube.com/watch?v=oSRXeu8E8JE&amp;feature=youtu.be)
+随着越来越多的有关中共病毒真相的曝露，善良的人们越来越明白，中共肆无忌惮地暗地里制造和释放中共病毒造成全球病毒大流行，导致过亿的人感染中共病毒，其中的死于中共病毒的人数已经快接近300万。中共对全人类造成的巨大的伤害，离不开来自美国政府部门，大学和科研界，媒体界等等内部被中共蓝金黄腐蚀了的人士的帮助。最早站出来揭露中共病毒真相，竭力挽救人类免于遭受中共病毒更大的戕害的，恰恰就是来自中共国的爆料革命和新中国联邦人，这些正义的人们被中共折磨压迫残害的最为悲惨，也最了解中共的邪恶。他们的善良和勇敢和对人类的爱心值得世界的尊重。中共不灭，中共病毒就不会得到控制和解决，灭共成为人类自我解救的必须。
 
-9.[https://youtu.be/kNAf1hLh0DQ](https://youtu.be/kNAf1hLh0DQ)
+#### 原文：[Ethan Huff](https://www.naturalnews.com/author/ethanh), “Covid-19 is just the beginning as communist China plots new killer viruses
 
-0
+#### ”. 《Natrural News》, March 16, 2021. [https://www.naturalnews.com/2021-03-16-covid19-beginning-communist-china-killer-viruses.html#](https://www.naturalnews.com/2021-03-16-covid19-beginning-communist-china-killer-viruses.html#)
+
+####  
+
+#### [1] Judicial Watch: New Emails Detail WHO/NIH Accommodations to Chinese Confidentiality ‘Terms’. Mar 01, 2021. [https://www.judicialwatch.org/press-releases/emails-who-terms/?utm\_source=twitter&utm\_medium=social&utm\_campaign=press\_release](https://www.judicialwatch.org/press-releases/emails-who-terms/?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=press_release)
+
+####  
+
+#### [2] TYLER DURDEN,“ New Book Confirms Fauci’s NIH Funded Wuhan Bat-COVID Experiments At Understaffed Chinese Lab”. 《ZeroHedge》,Mar 10, 2021. [https://www.zerohedge.com/covid-19/faucis-nih-funded-wuhan-bat-covid-experiments-2018-cables-warned-dangerously-lax-safety](https://www.zerohedge.com/covid-19/faucis-nih-funded-wuhan-bat-covid-experiments-2018-cables-warned-dangerously-lax-safety)
+
+**免责声明：**文章观点仅代表作者本人，与GNEWS平台无关！
+
+**编辑/发布：**比卡丘
+
+20210318
+
++3

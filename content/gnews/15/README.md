@@ -1,11 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵直播2021/03/14
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/986655/)
+## 路德时评简讯（视频版）：中共对亚太联盟成立感到恐慌(2021.3.15晚间 路德社简讯之路博艾冠谈）
+` 路德社` [轉載自GNews](https://gnews.org/zh-hans/987075/)
 
-采集：滴水莲花
+《路德社》出品
 
-设计排版：空之灵
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-18-at-17.54.51.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-18-at-17.54.51-2.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-18-at-17.54.51-1-1.jpeg)
+以下视频是详细内容：
+
+内容摘要：
+
+一、中共对亚太联盟成立感到恐慌
+
+二、潘石屹之子被北京警方通缉
+
+
+
+翻译：路德社翻译组
+
+制作：路德社简讯视频组
+
+审核校对：玫瑰新闻组
+
+上传排版：玫瑰新闻组
+
 0

@@ -1,45 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0318.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/986344/)
+## 朝鲜以 “敌对政策 ”为由拒绝美核谈判提议
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/988210/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0318.jpeg)
-#### 香港问题
+俄罗斯莫斯科喀秋莎农场  文雪
 
-3月17日蓬佩奥先生就现任政府布林肯对港政策予以肯定，推文如下。
-“政府干的不错，继续追究㆗（共）国高级领导㆟违反对世界作出港㆟自由的承诺。世界必须 “怀疑并核实”，并追究中共的责任。”
+编辑上传 水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/N-6.jpg)onenewspage.com
+France24于3月18日报道，朝鲜拒绝了美国的核谈判提议。朝鲜周四表示，除非美国撤回其敌对政策，否则将无视美国提出的会谈建议，此前几天，美国接触平壤，希望恢复核谈判。
 
-继日前英国对中共国发出违背中英联合声明的警告勒令改正之后，3月16日与17日美国拜登政府对中共在香港修改选举法的行径更新了《香港自治法案》，对24名中港官员进行制裁。包括(1)识别该外国人士的身份；(2)清楚解释识别该外国人士的原因，并说明识别该外国人士的活动。明知故犯地与制裁人员进行重大交易的外国金融机构将受到制裁。被制裁人包括：
+朝鲜第一外长崔善姬（Choe Son Hui）的声明是在美国和韩国外交和国防长官于首尔举行五年来首次联合会谈，讨论朝鲜核计划之前几个小时发表的。
 
-Wang Chen，You Quan，Cao Jianming，Zhang Chunxian，Shen Yueyue，Ji Bingxuan，Arken Imirbaki ，Wan Exiang ，Chen Zhu，Wang Dongming，Padma Choling，Ding Zhongli，Hao Mingjin，Cai Dafeng，Wu Weihua，Deng Zhonghua ，Li Jiangzhou，Edwina Lau，Li Kwai-Wah，Frederic Choi Chin-Pang，Kelvin Kong Hok Lai ，Andrew Kan Kai Yan，Tam Yiu-Chung，Sun Wenqing, AKA Sun Qingye
+崔善姬说，“自美国新政府上任以来，从美国那里听到的只是‘来自朝鲜的威胁’的疯子理论和关于‘完全无核化’的毫无根据的言论”，她称提出会谈是 “拖延时间的把戏”。
 
-布林肯国务卿称美国与日本就中华人民共和国破坏香港选举制度、没有履行义务已经达成共识，两国拥有共同的民主价值观。
+她重申了朝鲜的立场，即除非美国收回其敌意，否则不可能进行 “任何形式的对话”，“因此，我们今后也将不理会美国的这种企图”。
 
+由于对美国主导的制裁存在争议，美国主导的专注朝鲜核武的外交策略在两年左右的时间里仍处于僵持状态。专家们正在争论，美国及其盟国是否应该达成一项协议，冻结朝鲜的核活动，以换取放宽制裁，防止其武器库增长。
 
+本周早些时候，朝鲜领导人金正恩的强势妹妹威胁要放弃与韩国的和解，并警告美国 “不要惹事生非”，同时批评美韩定期军演，朝鲜政府认为这是入侵演练。
 
+崔善姬再次对本月的演习提出异议，称美国 “公然开始针对我们的具有侵略想法的联合军演”。
 
+一些专家表示，急于赢得制裁缓解的朝鲜可能会通过导弹试验进一步提高敌意，以增强其在与美国任何谈判中的筹码。朝鲜奄奄一息的经济正承受着额外的压力，因为与中共病毒有关的边境关闭使其对外贸易大幅萎缩，而且去年夏天发生了一系列自然灾害。
 
-> Good on the [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) for continuing to hold senior Chinese leaders responsible for breaking promises that China made to the world regarding freedom for the people of Hong Kong. The world must "Distrust but Verify" and hold the CCP accountable. [https://t.co/pXmwjXeZqV](https://t.co/pXmwjXeZqV)
-> — Mike Pompeo (@mikepompeo) [March 17, 2021](https://twitter.com/mikepompeo/status/1372293660830748675?ref_src=twsrc%5Etfw)
+美国国务卿安东尼·布林肯（Antony Blinken）在本周早些时候访问东京时表示，美国从2月中旬开始通过包括纽约在内的多个渠道与朝鲜进行接触，但没有得到任何回应。他说，拜登政府期待在未来几周内完成对朝鲜的政策审查，并同时考虑可能的 “额外施压措施 ”和 “外交途径”。
 
+布林肯周三会见韩国外长郑义溶（Chung Eui-yong）时表示，美国将与盟友合作实现朝鲜无核化，并批评了他所说的朝鲜 “对本国人民的系统和广泛的虐待”。根据美国务院的说法，布林肯和郑义溶还重申了解决朝鲜核问题和弹道导弹问题的共同承诺，他们说这些问题是 “联盟的优先事项”。
 
-[https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/](https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/) [https://www.state.gov/hong-kong-autonomy-act-update/](https://www.state.gov/hong-kong-autonomy-act-update/)
-这份制裁清单里的官员是为中共作恶的虾兵蟹将，再次成为中共的挡箭牌，这份更新的法案其制裁条款不够具体、清晰，究竟能给香港带来多少实际帮助，相信布林肯自己也说不出。但是有一点明确的是，支持香港、谴责中共已经成为政治正确。在此基础上，有一个从量变到质变的积聚过程，我们有理由相信，西方世界据此向中共要价、讨伐甚至进一步行动是未来的趋势，而能量转化的导火索无疑是中共病毒疫情危机。
+崔善姬说，美国试图与朝鲜联系的方式包括通过各种渠道发送电子邮件和电话信息。她说，即使在与韩国演习前夕，美国也发来信息，“暗示我们通过第三国回应其要求”。她说，“与美国坐在一起只会浪费时间”。
 
+布林肯和国防部长劳埃德·奥斯汀（Lloyd Austin）亚洲行是美国总统乔·拜登（Joe Biden）1月上任以来其内阁级官员的首次海外之行。拜登正在推动恢复在其前任时出现裂痕的盟友关系，并在面对中共国日益增长的挑战时，加强美国在世界舞台上的领导力。
 
+周四在首尔举行的会谈中，其他可能的议题包括：美国希望解决韩国和日本之间的历史争端，并推动以美国为首的三边合作，以及韩国可能加入由美国、日本、澳大利亚和印度参与的被称为 “四方 ”的印太集团的扩大形式。
 
+**评**：朝鲜是以中共为首的邪恶轴心国之一，一直以“国际流氓”的姿态来为中共打前阵试探或威胁美国及其周边国家，如韩国和日本。如果不是中共通过暗箱操作、背信弃义违反了核不扩散条约为朝鲜输入核武器技术，朝鲜不可能拥有试验和制造核武的能力。每当中共在世界的局势中处于劣势的时候就会放出朝鲜来威胁世界，使美国和其盟友无暇顾忌中共，为中共提供缓兵之机。
 
+美国务卿和防长此次访问韩国和日本主要就是稳固三国的盟友关系，加强印太联盟，孤立中共，以应对中共带来的威胁，以及为未来有可能发生的南海和台海冲突做准备。实际上，此次访问的目的就是形成印太地区的灭共联盟。
 
-文章观点部分仅代表作者本人。
+事实上，朝鲜制造的核威胁的核心源头就是中共，只有解决了灭共的问题，朝鲜核危机自然就无立足之地。擒贼还是要先擒王，这才是兵家制胜之道。
 
-作者：康州盘古农场 喜马拉雅的文雅
+参考链接：
 
-封面：康州盘古农场 霹雳年
+[https://www.france24.com/en/diplomacy/20210318-north-korea-dismisses-us-offer-for-nuclear-talks-citing-hostile-policy](https://www.france24.com/en/diplomacy/20210318-north-korea-dismisses-us-offer-for-nuclear-talks-citing-hostile-policy)
 
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
-
-（本文当日持续更新中）
-
-0
++1
