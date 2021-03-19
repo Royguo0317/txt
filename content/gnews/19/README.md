@@ -1,24 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳洲议员呼吁政府从中共国收回达尔文港口的租赁权
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/989760/)
+## 世卫组织调查员仍在掩盖有关中共病毒起源的真相
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/990107/)
 
-撰稿: Hong Discord:Hong#6527
+**翻译报道**：Sam(武松)
 
-发稿：MG4
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Darwin-port.png)（图片来自网络）
-澳洲联邦议会议员呼吁政府从中共国收回达尔文港口的租赁权,该议员表示, 如果发现把达尔文港长期租给中共国公司有威胁到国家利益,联邦政府就应该考虑废除该租约,收回澳洲政府对达尔文港的所有权.
-早在2015年,前北领地政府以5亿澳元的交易将这一具有重要国防战略意义的港口租给中共国控制的岚桥集团, 租期为99年.
-在澳中两国的紧张关系持续升级之际, 这个战略港口的运营控制权居然控制在一家中共公司的手中,这起了一些国防和外交分析人士的担忧.
-美国每年派遣数百名海陆海军陆战队士兵到北领地,这一有悖国家利益的租赁协议让美国也感到很郁闷.
-该议员表示：”如果这桩港口交易受该法案约束,如果目前的安排被认为不符合澳洲国家利益,联邦政府就应该考虑采取措施,收回达尔文港的所有权.”
+## 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/23-6.png)图片来源：网络
+世界卫生组织（WHO）的一名中共冠状病毒高级调查员仍在掩盖该病毒起源的真相，该谎言就是中共病毒起源于武汉海鲜市场，而不是在中共高层的授意推动和美国福奇（Anthony Fauci）博士等指导下在武汉病毒研究所人工合成的事实。
 
-达尔文港位于澳大利亚的北部,被称为“通往亚洲的大门”,是澳洲液化天然气主要出口的枢纽,同时也是澳大利亚重要的军事基地和北部海岸巡逻艇的基地,战略位置都十分重要.早在2013年, 提出 “一路带一路”全球扩张战略的中共邪恶政权就瞄上了达尔文港. 租期为99年达尔文港口合约是中共魔爪延伸到澳洲的战略突破口,这是对澳洲主权的挑战,是对澳洲价值观的挑战,澳洲必须觉醒,堵住中共在澳洲的渗透,斩断中共在澳洲的魔掌,捍卫国家主权!
-（文章仅代表作者本人观点,与GNews无关）
+高度腐败的生态健康联盟主席的皮特·达扎克（Peter Daszak）谴责了《战室：流行病》的主持人斯蒂芬·班农（Stephen K. Bannon）和《大纪元》（The Epoch Times），因为他们告诉人们是中国共产党合成并释放了该病毒，应该负全部责任。获得的电子邮件显示皮特·达扎克（Peter Daszak）的“生态健康联盟”（EcoHealth Alliance）要求全世界的科学家谴责中共冠状病毒并非自然起源这一阴谋论”。
 
-参考链接：
+皮特·达扎克（Peter Daszak）同时还表示从（宗教派系）法轮功到（中国持不同政见者）郭文贵先生，史蒂夫·班农先生的小组推动了整个中国的阴谋论。
 
-[https://www.9news.com.au/national/federal-government-urged-to-reclaim-darwin-port-from-chinese-company/f66eedac-c2e0-4b7a-94ee-2d93f65585cdhttps://www.sbs.com.au/chinese/mandarin/zh-hans/gong-dang-yi-yuan-hu-xu-cong-zhong-guo-gong-si-shou-zhong-shou-hui-da-er-wen-gang](https://www.9news.com.au/national/federal-government-urged-to-reclaim-darwin-port-from-chinese-company/f66eedac-c2e0-4b7a-94ee-2d93f65585cdhttps://www.sbs.com.au/chinese/mandarin/zh-hans/gong-dang-yi-yuan-hu-xu-cong-zhong-guo-gong-si-shou-zhong-shou-hui-da-er-wen-gang)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-澳喜Logo.jpeg)
+据《国家脉动》（National Pulse）报道，达扎克（Daszak）与武汉病毒研究所的合作超过20年，他还经常在中共媒体会议上发表讲话，并按照中共政权的指示进行宣传。由于中共故意破坏了表明中共病毒确实是由武汉病毒研究所进行人工改造的证据，因此早已被中共蓝金黄的达扎克（Daszak）关于中共病的解释是苍白无力的。甚至他还替中共声称由于实验室被所谓的“黑客入侵”而删除和销毁了病毒信息等数据。大约在中共病毒传播的同一时间，在武汉病毒研究所工作的科学家们开始神秘地生病，中共后来也否认了这种说法，这显然是在阻止人们发现那里发生的一切。
+
+**评：**皮特·达扎克（Peter Daszak）是中共政权的老朋友，在世界卫生组织派出所谓的调查团来武汉调查病毒真相之前，已经在其个人推特上表示非常期待在中共国和中共政府官员、邪恶科学家们一起喝白酒、唱卡拉OK。作为一名顶尖科学家，皮特·达扎克（Peter Daszak）已经成为了政治利用的工具，在中共蓝金黄的影响下已经沉迷不能自拔，追求科学真理的梦想早已荡然无存。其作为中共政权的打手，已经害死全世界数以万计的人。这些邪恶的科学家和中共政权必将受到历史最严厉的审判。
+
+原文链接：
+
+[https://www.naturalnews.com/2021-03-18-who-investigator-ccp-payroll-debunked-coronavirus-lies.html](https://www.naturalnews.com/2021-03-18-who-investigator-ccp-payroll-debunked-coronavirus-lies.html)
+
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+
+编辑/发布：比卡丘
+
+20210319
+
 0
