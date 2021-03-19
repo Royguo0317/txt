@@ -1,36 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共6G技术已经输在起跑线上
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/991016/)
+## 【热点播报】参议员兰德-保罗在听证会上“扳倒”福奇博士
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/991164/)
 
-#### 作者：峨眉雀舌
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MWL_6G_Generic-e1616178435160.jpg)封面图片：移动世界直播
-
-日前，在中共制定的《“十四五”国家信息化规划》中，计划前瞻性的布局6G网络技术储备。南京邮电大学原校长杨震在接受《人民邮电》报专访时说，要加快卫星互联网发展规划，“十四五”期间实现LEO全球覆盖的卫星互联组网，抢占频率和轨道资源。
-
-去年，曾有中共媒体说，现在全世界所有卫星加起来也不过两千颗，星链计划看起来很宏伟，“可是要实现有点太难了。”而马斯克打造的总计划发射12000颗LEO卫星的“星链计划”，截至今年2月已经发射1145颗。
-
-通信专家项立刚表示，绕过5G直接上6G可能性不大，网络通信技术都是逐步积累的，“跳过与5G联动的其他产业发展是个难题。”但美国的科技确实超出专家的想象。SpaceX2月4日宣布实施公开测试版计划，参与人数已经突破1万人。在给美国联邦通信委员会的文件指出，星链的网速达到甚至超过100/20Mbps，且大部分用户的延迟速度“刚好或低于31ms”。有些用户人在乡下，下载速度高174Mbps，超乎预期。
-
-这些“太难了”、“可能性不大”的技术，对中共专家来讲确实太难了。而中共偷来的5G技术，工业和信息化部原部长李毅表示：“5G网络还需要6~7年时间实现全国覆盖，5G网络2020年能不能普及的问题已无庸赘述。”
-
-中共国早已没有“独立的思想，自由的精神”，而提倡与上级的高度一致。科技的发展很大程度上取决于充分民主、自由的社会环境，通过假骗偷得来的技术是永远无法实现跨越式发展的。
-
-**（免责声明：本文仅代表作者个人观点，跟GNEWS平台无关。）**
-
-**资料来源链接：**
-
-- 🔗[台湾用户也能申请！SpaceX「星链计画」宽频网路服务开放申请，最快在2022年开通](https://www.bnext.com.tw/article/61368/spacexs-starlink-expands-preorders-for-its-99-a-month-internet-service)
-- 🔗[揭秘马斯克“星链”计划的战略谋划](http://www.legaldaily.com.cn/index/content/2020-09/28/content_8319991.htm)
-- 🔗[星链网路用户突破1万人！SpaceX再发射60颗卫星](https://newtalk.tw/news/view/2021-02-05/533657)
-- 🔗[国家网信办：正抓紧制定《“十四五”国家信息化规划》布局6G网络技术储备](https://www.zcaijing.com/gushiyaowen/350779.html)
-- 🔗[美国绕过5G直达6G，靠谱吗？](https://zhuanlan.zhihu.com/p/242870311)
+作者：纽约香草山农场 四季
 
 
-* * *
 
-**审核/校对：**Ting Guo
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+据[《网关专家》（Gateway Pundit）](https://www.thegatewaypundit.com/2021/03/senator-rand-pauls-take-dr-fauci-one-history-books-video/) 3月18日的视频报道，美国参议员周四在参议院审查国家冠状病毒对策的听证会上对福奇博士大发雷霆，指责福奇博士“藐视”免疫力科学。福奇非常恼火，因为兰德-保罗敢骂他是庸医。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image-273.png)视频新闻截图
+
+身为医生的兰德-保罗对福奇说，“美国人在接种疫苗后不需要戴两个口罩，因为他们感染的几率‘几乎为零’。但你却告诉打过疫苗的人，他们有免疫力，但是还需要戴口罩，这是在藐视我们对免疫力的一切认知。”
+
+保罗参议员还对福奇说，“你已经打过疫苗了，还戴着两个口罩到处转悠，这不就是在演戏吗？有什么证据表明变异病毒有大量的再感染？住院和死亡病例？在美国没有！零！……你是在猜测的基础上制定政策！”
+
+谢谢保罗参议员。如果在当下，医生对戴口罩这件事情的认知和医嘱都是错的，在医学有关的事项上，我们还能相信谁？
+
+参考阅读：
+
+[Senator Rand Paul’s Take Down of Dr. Fauci is One For the History Books](https://www.thegatewaypundit.com/2021/03/senator-rand-pauls-take-dr-fauci-one-history-books-video/)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 0
