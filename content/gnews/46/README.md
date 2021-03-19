@@ -1,76 +1,76 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 24名中共高官被美制裁，包括香港警务处国安主管
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/987548/)
+## 《路德时评》解读美韩声明只字未提中共国，美官员警告中共是美国最大威胁，及中共官媒“意淫”中美会谈
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/987652/)
 
-新闻来源：《法新社》| 作者：香港自由新闻 （HKFP） | 发布时间：2021年3月17日
-
-翻译/简评：原乡人 | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii
-
-[!\[\]()!\[\](https://spark.adobe.com/page/msbh2e0N7vEom/images/31072375-6c52-4e7c-af97-3d3c68eb2c71.jpg?asset_id=a3d6c2bf-6328-4c53-aea7-27736050c655&amp;img_etag=%222a821c238ddd2a154106090db24f3ef4%22&amp;size=2560)](https://spark.adobe.com/page/msbh2e0N7vEom/images/31072375-6c52-4e7c-af97-3d3c68eb2c71.jpg?asset_id=a3d6c2bf-6328-4c53-aea7-27736050c655&amp;img_etag=%222a821c238ddd2a154106090db24f3ef4%22&amp;size=1024)来自FB:@[無名 – 自由藝匠](https://www.facebook.com/freedomartjam/photos/a.310838045747785/1926721347492772/?type=3)
-
-***简评：***
-
-**法新社3月17日报道，美国国务院以扼杀香港自由为名，对24名中共国高级官员拉清单，并警告外国银行，不要与这些官员有任何业务往来。**
-
-**这是美国对刚刚结束的中共国全国人民代表大会几乎全票通过修改香港选举制度的有力回击。国务卿布林肯选在与杨洁篪、王毅会谈的前一天发布，向中共国发出了明确的信号，拜登政府不会对中共国肆意破坏香港自治做出任何让步，香港问题没有任何可谈判的余地。**
-
-**拜登政府继承了川普强硬的对共方针，面对飞扬跋扈的中港官员，制裁毫不手软，同时集结盟友夯实军事联盟，共同防范中共国在全球的侵略扩张。沉浸在终极之战“胜利”中的中共怎么也想不到，拜登政府也会灭共。**
-
-***原文翻译：***
-
-# **美国再以扼杀香港自由为由制裁24名中共国高官，香港警务处国安主管榜上有名**
-
-*名单上的所有人都已经受到财政部或拜登前任唐纳德·川普行政命令的制裁。*
-
-周三，美国又确认了24名被认为在打压香港自由方面起了作用的中国高级官员，并警告称，外国银行现在被禁止与他们有任何业务往来。
-
-这一决定是在中美高级官员将在阿拉斯加开始会谈前几个小时作出的，这是美国总统拜登上任以来首次举行此类会谈。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/msbh2e0N7vEom/images/d3bcb25b-1449-4275-94b4-57efa2d7d719.png?asset_id=c465f0c0-fe6d-4707-b7b9-80dc5e28e5ed&amp;img_etag=%226a488b7f4ef52d3326a0523ab7d037b2%22&amp;size=2560)](https://spark.adobe.com/page/msbh2e0N7vEom/images/d3bcb25b-1449-4275-94b4-57efa2d7d719.png?asset_id=c465f0c0-fe6d-4707-b7b9-80dc5e28e5ed&amp;img_etag=%226a488b7f4ef52d3326a0523ab7d037b2%22&amp;size=1024)照片：Studio Incendo
-
-近年来，美国与中共国的关系因一系列问题而急剧恶化，包括两年前香港发生大规模的常伴有暴力的民主抗议活动后，北京当局对香港异议人士的镇压。
-
-根据《香港自治法》——这是去年在两党支持下颁布的法律——国务院必须查明任何参与侵蚀香港这一金融中心自由的中共国及香港的官员。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/msbh2e0N7vEom/images/6c39ee50-eeb7-497c-a226-022352b3994c.png?asset_id=e54e1073-0339-494d-9144-75a9eba1bcea&amp;img_etag=%22ae1e41d6b0df7041247fa9dc3ea1f894%22&amp;size=2853)](https://spark.adobe.com/page/msbh2e0N7vEom/images/6c39ee50-eeb7-497c-a226-022352b3994c.png?asset_id=e54e1073-0339-494d-9144-75a9eba1bcea&amp;img_etag=%22ae1e41d6b0df7041247fa9dc3ea1f894%22&amp;size=1024)
-
-该报告增加了24个新名字，使上榜的总人数达到34人。
-
-美国国务卿安东尼·布林肯在一份声明中说：“明知故犯地与今天报告中所列个人进行重大交易的外国金融机构现在要受到制裁。”
-
-所有在名单上的人都已经受到财政部或通过拜登的前任唐纳德·川普的行政命令的制裁。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/msbh2e0N7vEom/images/4c202342-7d78-4a41-b22e-8f3039cfb5e6.png?asset_id=e6f456b0-07e0-4d7d-9e11-9730f9afc831&amp;img_etag=%22f0330ee5bc322c926b8c68d69d16e3a1%22&amp;size=2560)](https://spark.adobe.com/page/msbh2e0N7vEom/images/4c202342-7d78-4a41-b22e-8f3039cfb5e6.png?asset_id=e6f456b0-07e0-4d7d-9e11-9730f9afc831&amp;img_etag=%22f0330ee5bc322c926b8c68d69d16e3a1%22&amp;size=1024)安东尼·布林肯 照片：美国国务院/Ron Przysucha，Flickr平台。
-
-被列入名单的大多是北京的中共高官，以及香港警务处国安处高级官员。
-
-布林肯说，扩大制裁人员名单起源于北京上周采取了“单方面破坏香港选举制度”的行动，出台了新的规则，其效果将阻止任何真正的反对派参加香港本已有限的地区选举。
-
-布林肯说：“这一行动进一步破坏了对香港人承诺的高度自治，剥夺了香港人在自身治理中的发言权。”
-
-布林肯和白宫国家安全顾问杰克·沙利文（Jake Sullivan）将于周四在阿拉斯加与中共国高级官员杨洁篪和外交部长王毅举行会谈。
-
-这次会谈将是杨洁篪去年6月在夏威夷会见布林肯的鹰派前任迈克·彭佩奥（Mike Pompeo）以来两个大国之间的首次会谈。
-
-拜登政府总体上支持川普发起的强硬对中共国的方针，但坚信更为有效的方针是紧密联系美国盟友，同时在诸如气候变化等优先事务方面艰辛探索中美合作之路。
-
-去年香港全面实施了压制异议的国家安全法，受到美国制裁，对此中共国表示强烈愤慨。
-
-根据该国家安全法，宣传或实施外国制裁被明确定为非法，使得在香港的外国银行面临困境。
-
-依据新安全法被捕的100多人，有一些人被指控呼吁外国制裁。
-
-**🔗[原文链接](https://hongkongfp.com/2021/03/17/us-sanctions-24-more-senior-chinese-officials-for-stifling-hong-kong-freedoms-including-national-security-police-chief/)**
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+直播视频：
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/msbh2e0N7vEom/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/msbh2e0N7vEom/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+《路德时评》2021年3月18日早间节目主要内容：
+
+一、美韩声明只字未提中共国
+
+3月18日，美国务院官网发布美韩联合声明[1]，该声明中丝毫未提及“中共国”，这是否意味着美韩会谈在朝鲜放出狠话的情况下以失败告终。多个媒体报道美韩声明之所以只字不提中共国是因为韩国惧怕中共国威胁。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/美韩声明.png)[图片地址](https://www.state.gov/joint-statement-of-the-2021-republic-of-korea-united-states-foreign-and-defense-ministerial-meeting-22/)
+路德社评论：
+
+１、东北亚局势是亚太区域最重要的区域，东北亚中最重要的就是朝韩局势，一方面该地区存在历史战争遗留问题，另一方面朝鲜半岛与中国、俄罗斯接壤，地缘政治战略极其重要，俄罗斯、中共国和朝鲜在该地区绝不可能有任何退让，所以韩国不敢轻易挑破，一旦挑破该地区将立即陷入混战状。
+
+2、除了朝鲜半岛复杂的地缘政治局势，韩国内部政治局势也相当复杂，近几届韩国总统要么被抓，要么自杀，其中也有中共、俄罗斯和美国各自势力的渗透，此次美韩联合声明也意味着美国将韩国作为前沿阵地，但是美国不得不考虑应如何对韩国文化、历史遗留问题、政治体制等带来的各种阻力。
+
+3、未来中共国局势有两个地区会成为热点，一个是新疆西北地区，一个是东北亚地区，这都牵扯到民族、地缘政治、宗教等多个问题，情况极为复杂。如果美国不打算对中共国下手，完全没必要派国防部长访问韩国。
+
+二、美官员警告中共是美国最大威胁
+
+纳瓦罗先生接受福克斯Maria采访是表示，中美阿拉斯加会晤应该向中共国问CCP病毒问题，其次就是新疆问题、在台湾问题上应该划清红线，然而这三点都不太可能发生，最让纳瓦罗先生感到恶心的不是中共国病毒，而是拜登笑着说中共国在新疆犯下种族灭绝罪是文化规范，拜登政府是时候对CCP强硬了。
+
+
+
+> 20210317納瓦羅先生接受Maria採訪
+> 1.前國家情報總監、前國務卿之後納瓦羅先生也說阿拉斯加會晤該問CCP病毒
+> 2.第二個問題問新疆、第三個問題該在台灣問題上劃紅線
+> 3.然而這三點都不會發生
+> 4.最讓納瓦羅先生感到噁心的不是中共國病毒，而是拜登笑著說文化規範
+> 5.是時候對CCP強硬了，希望拜登聽得進去 [https://t.co/jNX6ybXNyk](https://t.co/jNX6ybXNyk) [pic.twitter.com/pok0FSLYjc](https://t.co/pok0FSLYjc)
+> — Andy5 (@andy5\_123) [March 18, 2021](https://twitter.com/andy5_123/status/1372462741785432064?ref_src=twsrc%5Etfw)
+
+
+
+南区司令雷格·法尔:发言中称：美国面临的两大威胁是中共和跨国犯罪组织。
+
+
+
+> 南区司令雷格·法尔: 我们面临的两大威胁是中共和跨国犯罪组织 [pic.twitter.com/2LV717RGd6](https://t.co/2LV717RGd6)
+> — 秘密翻译组 (@G\_Translators6) [March 18, 2021](https://twitter.com/G_Translators6/status/1372450678010834945?ref_src=twsrc%5Etfw)
+
+
+
+路德社评论：
+
+1、纳瓦罗虽然离开白宫，但是依然能够影响美国政治，这就是民主国家的特点。国民警卫队南区司令发言中发出警告，中共国在全世界的影响力迅速增长，通过向四十多个港口发放贷款来增加政治及经济影响力，并推动信息建构和掠夺性的做法，中共国渔船在各大洋还进行非法捕捞。
+
+2、由于中共国严重污染和过度捕捞，其近海已经没有鱼可以捕捞，所以中共国渔民不得不出远海到其他沿海国家的海域进行捕捞，这就是中共国一贯的做法。中共盗国贼家族垄断了国内最赚钱的行业，通讯、石油、电力等等，老百姓只能从事低利润行业。中共国将本国老百姓逼到各地，产生各种地缘政治问题，这非常影响中国人的形象，这一切问题的本质都是中共导致的。
+
+三、中共官媒“意淫”中美会谈
+
+新浪网3月18日发文解读即将举行的中美谈判[2]：该文称中美谈判是“新起点”，地点选择在阿拉斯加不仅由于该地区疫情控制较好，还在于安克雷奇与中国的历史渊源，该地位于中美两国中间地区。美国先跟日韩会谈后才和中共国举行会谈，这有点像开大会前先开小会的意思。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/中美.jpg)[图片地址](https://n.sinaimg.cn/spider2021318/280/w690h390/20210318/94e1-kmkptxe4855632.jpg)
+路德社评论：
+
+1、中共国媒体完全是在自我意淫，不仅忽悠墙内老百姓和习总加速师，还为突出杨洁篪出色的外交能力。此次中美会谈的真实背景是美国几乎不想和中共国进行任何谈判，完全是中共国哭爹喊娘求来的一次“加油站外交”。从纳瓦罗、蓬佩奥等政客的发言就可以看到此次中美会谈必谈病毒问题，新疆问题，香港问题，南海问题，台湾问题，中共绝不可能逃避这些问题。
+
+2、美国法律规定，川普总统卸任后一段时间内依然有权接收新任政府情报信息，所以川普总统也能获得此次中美谈判主要内容，共和党也在监督拜登政府的对共政策，所以拜登绝不可能冒着被弹劾的风险再与中共有任何勾兑。
+
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+
+参考文章：
+
+[1][https://www.state.gov/joint-statement-of-the-2021-republic-of-korea-united-states-foreign-and-defense-ministerial-meeting-22/](https://www.state.gov/joint-statement-of-the-2021-republic-of-korea-united-states-foreign-and-defense-ministerial-meeting-22/)
+
+[2][https://news.sina.com.cn/c/2021-03-18/doc-ikknscsi7695212.shtml](https://news.sina.com.cn/c/2021-03-18/doc-ikknscsi7695212.shtml)
+
+文章撰写：【重生】  编辑：【香柏树】
 
 +2

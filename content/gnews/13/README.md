@@ -1,25 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 摩根士丹利率先进军加密货币
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/988133/)
+## 美国政要等每日重要信息0318.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/986344/)
 
-#### 译评：Rosemary | 责编：沙拉猫
-![]()![](https://gnews.org/wp-content/uploads/2021/03/bitcoin_opt.jpg)图片来源：InvestmentNews
-《零对冲》(Zerohedge)3月17日发表文章指出，摩根士丹利 （Morgan Stanley） 即将成为第一家为其财富管理客户提供加密货币基金投资的美国大型银行。
+**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0318.jpeg)
+#### 香港问题
 
-随着比特币价格从2017年的最低点4千美元左右飙升了15倍，摩根士丹利应客户要求，尤其在一些客户开始将资金转移到Coinbase之后，决定向其财富管理客户提供加密和比特币投资，在该银行的经纪人完成有关加密币的培训课程后，客户将能够在一个月内开始购买这类基金。这是摩根士丹利继宿敌高盛决定恢复其加密交易台之后的做出决定。这一次，摩根成功地超越了对手，因为它将成为唯一的一家为其财富管理客户提供加密和比特币的主要银行。高盛、摩根大通和美国银行的财富管理部门暂时都不提供比特币的服务。
+3月17日蓬佩奥先生就现任政府布林肯对港政策予以肯定，推文如下。
+“政府干的不错，继续追究㆗（共）国高级领导㆟违反对世界作出港㆟自由的承诺。世界必须 “怀疑并核实”，并追究中共的责任。”
 
-迈克尔·诺沃格拉茨（1964年11月26日出生）曾是堡垒投资集团对冲基金经理，现任银河数字的首席执行官，专注于加密货币投资，经常应邀到CNBC财经新闻频道对加密货币市场进行评论，他从2017年开始长期持有比特币和以太坊，他的基金最近终于大获成功。摩根士丹利将为部分客户提供投资他旗下管理的两只基金，以及由资产管理公司FS Investments和比特币公司NYDIG共同推出的一只基金。
+继日前英国对中共国发出违背中英联合声明的警告勒令改正之后，3月16日与17日美国拜登政府对中共在香港修改选举法的行径更新了《香港自治法案》，对24名中港官员进行制裁。包括(1)识别该外国人士的身份；(2)清楚解释识别该外国人士的原因，并说明识别该外国人士的活动。明知故犯地与制裁人员进行重大交易的外国金融机构将受到制裁。被制裁人包括：
 
-据CNBC报道，摩根士丹利周三向其财务顾问们发送了一封电子邮件，提醒他们注意该公司的新的产品。这些加密基金将只提供给那些将自己的风险承受能力描述为 “高风险/高回报”的客户，并且在该公司持有的资产至少有2百万。除了对客户资产的限制外，摩根士丹利的个人公司客户需要至少有5百万资金，才有资格使用新基金。此外，账户必须超过6个月，所以客户可以放心，新的产品不会引发新客户急于参与该独家经营的加密基金的风险。该还将加密投资的上限设定为客户总净值的2.5%。摩根士丹利的财富部门为大部分高净值个人和家庭管理着4万亿美元的资产。
+Wang Chen，You Quan，Cao Jianming，Zhang Chunxian，Shen Yueyue，Ji Bingxuan，Arken Imirbaki ，Wan Exiang ，Chen Zhu，Wang Dongming，Padma Choling，Ding Zhongli，Hao Mingjin，Cai Dafeng，Wu Weihua，Deng Zhonghua ，Li Jiangzhou，Edwina Lau，Li Kwai-Wah，Frederic Choi Chin-Pang，Kelvin Kong Hok Lai ，Andrew Kan Kai Yan，Tam Yiu-Chung，Sun Wenqing, AKA Sun Qingye
 
-在其他有关加密货币新闻中，Visa的首席信息官Al Kelly在出席《财富》的Leadership Next播客节目时表示，该公司正在努力实现使用Visa凭证购买比特币。”我们正在努力做两件事，一是实现用Visa凭证购买比特币，二是与一些比特币钱包合作，让比特币转化为一种货币”。这大概会帮助全世界的人认识和购买比特币，及其他的加密货币。
+布林肯国务卿称美国与日本就中华人民共和国破坏香港选举制度、没有履行义务已经达成共识，两国拥有共同的民主价值观。
 
-* * *
 
-评：比特币作为洗钱和贩毒者的货币，能不能长久我们拭目以待。这回摩根宣布涉及加密货币，是否也是为我们新中国联邦的数字货币未来的运行铺路呢？记得文贵先生多次提到，摩根家族的人可是我们G系列的重要参与合作者啊！G-Coin 借加密币风靡全球的东风，有G-系列做支撑，一旦成功发行，一定会成为比比特币更加有价值的货币，成为新中国联邦的联储，战友们偷着乐吧！
 
-&gt;&gt;原报道链接&gt;&gt; [Morgan Stanley Becomes First Major US Bank To Offer Crypto Funds](https://www.zerohedge.com/crypto/morgan-stanley-first-major-us-bank-offer-crypto-funds)
 
-+1
+
+> Good on the [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) for continuing to hold senior Chinese leaders responsible for breaking promises that China made to the world regarding freedom for the people of Hong Kong. The world must "Distrust but Verify" and hold the CCP accountable. [https://t.co/pXmwjXeZqV](https://t.co/pXmwjXeZqV)
+> — Mike Pompeo (@mikepompeo) [March 17, 2021](https://twitter.com/mikepompeo/status/1372293660830748675?ref_src=twsrc%5Etfw)
+
+
+[https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/](https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/) [https://www.state.gov/hong-kong-autonomy-act-update/](https://www.state.gov/hong-kong-autonomy-act-update/)
+这份制裁清单里的官员是为中共作恶的虾兵蟹将，再次成为中共的挡箭牌，这份更新的法案其制裁条款不够具体、清晰，究竟能给香港带来多少实际帮助，相信布林肯自己也说不出。但是有一点明确的是，支持香港、谴责中共已经成为政治正确。在此基础上，有一个从量变到质变的积聚过程，我们有理由相信，西方世界据此向中共要价、讨伐甚至进一步行动是未来的趋势，而能量转化的导火索无疑是中共病毒疫情危机。
+
+
+
+
+
+文章观点部分仅代表作者本人。
+
+作者：康州盘古农场 喜马拉雅的文雅
+
+封面：康州盘古农场 霹雳年
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
+
+（本文当日持续更新中）
+
+0
