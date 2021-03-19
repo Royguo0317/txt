@@ -1,29 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国和美国在阿拉斯加会议上展开了口水战
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/988654/)
+## 美国政要等每日重要信息0318.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/986344/)
 
-作者：纽约香草山美食部 蓝天大海
+**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0318.jpeg)
+#### 香港问题
 
-《政治客》（politico）今天撰文说：“美国国家安全顾问杰克.沙利文（Jake Sullivan ）和国务卿安东尼.布林肯（Antony Blinken）在阿拉斯加与中共国高级外交官杨洁篪和王毅会面。两国在许多问题上存在分歧—-从网络攻击到贸易战方面。美国指责中共国威胁世界稳定，中共国则指责美国虐待黑人，是一个人权伪君子。”开场火药味就很浓。
+3月17日蓬佩奥先生就现任政府布林肯对港政策予以肯定，推文如下。
+“政府干的不错，继续追究㆗（共）国高级领导㆟违反对世界作出港㆟自由的承诺。世界必须 “怀疑并核实”，并追究中共的责任。”
 
-对香港民主的打击，对其他国家的经济胁迫，对新疆维吾尔族穆斯林的种族灭绝，布林肯说，“美国要求中共国对上述行为负责。”
+继日前英国对中共国发出违背中英联合声明的警告勒令改正之后，3月16日与17日美国拜登政府对中共在香港修改选举法的行径更新了《香港自治法案》，对24名中港官员进行制裁。包括(1)识别该外国人士的身份；(2)清楚解释识别该外国人士的原因，并说明识别该外国人士的活动。明知故犯地与制裁人员进行重大交易的外国金融机构将受到制裁。被制裁人包括：
 
-中共国告诉美国不要插手中共国内部事务，而布林肯则断言，中共国的行为威胁到维持全球稳定所基于的规则和秩序。
+Wang Chen，You Quan，Cao Jianming，Zhang Chunxian，Shen Yueyue，Ji Bingxuan，Arken Imirbaki ，Wan Exiang ，Chen Zhu，Wang Dongming，Padma Choling，Ding Zhongli，Hao Mingjin，Cai Dafeng，Wu Weihua，Deng Zhonghua ，Li Jiangzhou，Edwina Lau，Li Kwai-Wah，Frederic Choi Chin-Pang，Kelvin Kong Hok Lai ，Andrew Kan Kai Yan，Tam Yiu-Chung，Sun Wenqing, AKA Sun Qingye
 
-与此同时，“杨洁篪警告美国后退一步，指责美国虚伪，利用其金融和军事力量欺负其他国家。”
+布林肯国务卿称美国与日本就中华人民共和国破坏香港选举制度、没有履行义务已经达成共识，两国拥有共同的民主价值观。
 
-今天第一次会面唇枪舌剑，表面上看新政府高官延续了川普政府对中共国的强硬态度，但郭先生的情报显示，中共国带来了丰盛的大礼，今天大礼尚未揭晓，他们会在桌子底下勾兑吗？
 
-参考链接：
 
-[https://www.politico.com/news/2021/03/18/china-us-alaska-meeting-undiplomatic-477118](https://www.politico.com/news/2021/03/18/china-us-alaska-meeting-undiplomatic-477118)
 
-编辑/校对/发稿：天涯客
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
- 更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
- 更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+> Good on the [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) for continuing to hold senior Chinese leaders responsible for breaking promises that China made to the world regarding freedom for the people of Hong Kong. The world must "Distrust but Verify" and hold the CCP accountable. [https://t.co/pXmwjXeZqV](https://t.co/pXmwjXeZqV)
+> — Mike Pompeo (@mikepompeo) [March 17, 2021](https://twitter.com/mikepompeo/status/1372293660830748675?ref_src=twsrc%5Etfw)
+
+
+[https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/](https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/) [https://www.state.gov/hong-kong-autonomy-act-update/](https://www.state.gov/hong-kong-autonomy-act-update/)
+这份制裁清单里的官员是为中共作恶的虾兵蟹将，再次成为中共的挡箭牌，这份更新的法案其制裁条款不够具体、清晰，究竟能给香港带来多少实际帮助，相信布林肯自己也说不出。但是有一点明确的是，支持香港、谴责中共已经成为政治正确。在此基础上，有一个从量变到质变的积聚过程，我们有理由相信，西方世界据此向中共要价、讨伐甚至进一步行动是未来的趋势，而能量转化的导火索无疑是中共病毒疫情危机。
+
+
+
+
+
+文章观点部分仅代表作者本人。
+
+作者：康州盘古农场 喜马拉雅的文雅
+
+封面：康州盘古农场 霹雳年
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
+
+（本文当日持续更新中）
 
 0

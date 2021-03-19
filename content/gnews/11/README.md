@@ -1,45 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0318.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/986344/)
+## 李明哲事件4年！台权会声援人权再揭中共邪恶
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/988882/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0318.jpeg)
-#### 香港问题
+文章作者:台湾宝岛农场 一叶一菩提
+![]()![](https://gnews.org/wp-content/uploads/2021/03/488529_medium-3.jpg)台权会等民团17日发起为李明哲而骑声援活动。 （台权会提供）
+2017年3月19日，李明哲在中国「被失踪」、在国际的关切下，最后被中共以任意罪名，「被认罪」、「被关押」已近4周年，台湾人权促进会等民团17日以骑自行车方式声援李明哲，并呼吁中共应尽快恢复李明哲家属的探视权，以及公布释放日期。
 
-3月17日蓬佩奥先生就现任政府布林肯对港政策予以肯定，推文如下。
-“政府干的不错，继续追究㆗（共）国高级领导㆟违反对世界作出港㆟自由的承诺。世界必须 “怀疑并核实”，并追究中共的责任。”
+李明哲曾担任民进党党工，之后任职于NGO（非政府组织）「台北文山社区大学」，长期与中国非政府组织交流，关注中国民间社会的发展。2017年3月19日在中国「被失踪」，经各方寻找，国际压力下，中共才对外宣布李明哲涉嫌「颠覆国家政权罪」，最后被认罪，同年11月中共法官判以5年有期徒刑，褫夺政治权利2年，并押往湖南省赤山监狱服刑。
 
-继日前英国对中共国发出违背中英联合声明的警告勒令改正之后，3月16日与17日美国拜登政府对中共在香港修改选举法的行径更新了《香港自治法案》，对24名中港官员进行制裁。包括(1)识别该外国人士的身份；(2)清楚解释识别该外国人士的原因，并说明识别该外国人士的活动。明知故犯地与制裁人员进行重大交易的外国金融机构将受到制裁。被制裁人包括：
+截至今日已近4年，台湾人权促进会、台北市文山社区大学、西藏台湾人权连线等民间团体，于17日发起了一场「为李明哲而骑」活动，参与者骑着自行车，由昔日李明哲的工作地点文山社区大学出发，到自由广场，并高喊「言论自由无罪，立即释放李明哲」口号。
 
-Wang Chen，You Quan，Cao Jianming，Zhang Chunxian，Shen Yueyue，Ji Bingxuan，Arken Imirbaki ，Wan Exiang ，Chen Zhu，Wang Dongming，Padma Choling，Ding Zhongli，Hao Mingjin，Cai Dafeng，Wu Weihua，Deng Zhonghua ，Li Jiangzhou，Edwina Lau，Li Kwai-Wah，Frederic Choi Chin-Pang，Kelvin Kong Hok Lai ，Andrew Kan Kai Yan，Tam Yiu-Chung，Sun Wenqing, AKA Sun Qingye
+台湾人权促进会秘书长施逸翔表示，2022年是李明哲被释放的日子，但直到现在还无法知道确切日期，这是民主国家无法想像的事。此外，文山社大校长郑秀娟也说明，自去年1月初，中共国政府以疫情为由，拒绝家属探监及通讯，经家属及民间抗议，中方才让李在去年3月底写信回家，之后音讯全无。
 
-布林肯国务卿称美国与日本就中华人民共和国破坏香港选举制度、没有履行义务已经达成共识，两国拥有共同的民主价值观。
+## **被囚禁者的基本权利需保障**
+
+中共作为联合国会员国，理应受联合国”家属探视权”，即1988年《保护所有遭受刑事拘留与监禁的原则》，和联合国制定的囚犯待遇最低限度标准规则的《曼德拉规则》，必须保障被监禁、所有失去自由以及囚犯等的基本权利。
+
+也就是被监禁人如果被更换监禁地点，会员国有义务让囚犯有机会通知家属及律师，其中特别是家属。另外家属探监更是人道的行径，基本的权力。
+
+就李明哲事件，中共如匪徒般先掳人，演失踪，被认罪，再框以罪名，彰显中共罔顾人权的行径，
+
+也让中共的假、恶、丑摊在阳光下，让国际检验。
+
+参考资料:
+
+- [李明哲事件](https://zh.wikipedia.org/wiki/李明哲事件)
+- [李明哲被囚近4年-民团吁恢复家属探视权](https://www.epochtimes.com.tw/n338207/李明哲被囚近4年-民團籲恢復家屬探視權.html)
+- [李明哲妻释放李明哲我要探监](https://www.dw.com/zh/李明哲妻释放李明哲我要探监/a-40715578)
+- [狼真的来了──台湾NGO工作者李明哲失踪案看中国「境外NGO管理法」效应](https://e-info.%20org.tw/node/16071)
 
 
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
-> Good on the [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) for continuing to hold senior Chinese leaders responsible for breaking promises that China made to the world regarding freedom for the people of Hong Kong. The world must "Distrust but Verify" and hold the CCP accountable. [https://t.co/pXmwjXeZqV](https://t.co/pXmwjXeZqV)
-> — Mike Pompeo (@mikepompeo) [March 17, 2021](https://twitter.com/mikepompeo/status/1372293660830748675?ref_src=twsrc%5Etfw)
+文章审核：zhong
 
+文章发布：Little Liu
 
-[https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/](https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/) [https://www.state.gov/hong-kong-autonomy-act-update/](https://www.state.gov/hong-kong-autonomy-act-update/)
-这份制裁清单里的官员是为中共作恶的虾兵蟹将，再次成为中共的挡箭牌，这份更新的法案其制裁条款不够具体、清晰，究竟能给香港带来多少实际帮助，相信布林肯自己也说不出。但是有一点明确的是，支持香港、谴责中共已经成为政治正确。在此基础上，有一个从量变到质变的积聚过程，我们有理由相信，西方世界据此向中共要价、讨伐甚至进一步行动是未来的趋势，而能量转化的导火索无疑是中共病毒疫情危机。
-
-
-
-
-
-文章观点部分仅代表作者本人。
-
-作者：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
-
-（本文当日持续更新中）
-
-0
++1
