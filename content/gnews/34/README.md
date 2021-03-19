@@ -1,25 +1,14 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月18日秘翻快报【头条新闻】
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/988154/)
+## 闫博士一周锦集第11期
+` 喜馬拉雅多語組` [轉載自GNews](https://gnews.org/zh-hans/988245/)
 
-新闻总结：
+#### 撰稿：問夏、CYC文穎、感言
+校对 ：德州瑞秋
+播音：大腳印
+剪辑：归真
 
-1、首例：有人打BioNTech疫苗后中风
+[闫博士一周锦集 11-PDF](https://gnews.org/wp-content/uploads/2021/03/文本-11-p.pdf)[下載](https://gnews.org/wp-content/uploads/2021/03/文本-11-p.pdf)
 
-2、习家军尹宗华接任中联办副主任
-
-3、中央财经委员会：金融活动要全部纳入金融监管
-
-4、美日2+2会谈聚焦中共
-
-5、美国务院发言人：中共国进一步破坏了香港的自治和自由
-
-6、纳瓦罗：病毒来自武汉生物武器实验室
-
-7、GNEWS文摘《继孙力军后 又一只“610”系统的“老虎”落马》
-
-**By**：【秘密翻译组** G-Translators**】
-
-+1
++2
