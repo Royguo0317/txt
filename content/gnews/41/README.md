@@ -1,69 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读阿拉斯加美中谈判进展
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/988776/)
+## 美国政要等每日重要信息0318.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/986344/)
 
-直播视频：
+**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0318.jpeg)
+#### 香港问题
 
+3月17日蓬佩奥先生就现任政府布林肯对港政策予以肯定，推文如下。
+“政府干的不错，继续追究㆗（共）国高级领导㆟违反对世界作出港㆟自由的承诺。世界必须 “怀疑并核实”，并追究中共的责任。”
 
+继日前英国对中共国发出违背中英联合声明的警告勒令改正之后，3月16日与17日美国拜登政府对中共在香港修改选举法的行径更新了《香港自治法案》，对24名中港官员进行制裁。包括(1)识别该外国人士的身份；(2)清楚解释识别该外国人士的原因，并说明识别该外国人士的活动。明知故犯地与制裁人员进行重大交易的外国金融机构将受到制裁。被制裁人包括：
 
-《路德时评》2021年3月18日晚间节目主要内容：
+Wang Chen，You Quan，Cao Jianming，Zhang Chunxian，Shen Yueyue，Ji Bingxuan，Arken Imirbaki ，Wan Exiang ，Chen Zhu，Wang Dongming，Padma Choling，Ding Zhongli，Hao Mingjin，Cai Dafeng，Wu Weihua，Deng Zhonghua ，Li Jiangzhou，Edwina Lau，Li Kwai-Wah，Frederic Choi Chin-Pang，Kelvin Kong Hok Lai ，Andrew Kan Kai Yan，Tam Yiu-Chung，Sun Wenqing, AKA Sun Qingye
 
-一、快讯快评
-
-美国之音3月19日报道[1]：星期四的白宫新闻简报会上，有媒体拿美国媒体AXIOS引用研究亚裔美国人的社会学家德辛格拉(Pawan Dhingra)的话说：“美国与中国之间的敌对关系，已经造成华裔美国人与亚裔美国人的不安”，询问是否因为拜登政府对中国的强硬态度，导致亚裔美国人受歧视的局面。白宫发言人莎琪驳斥这样的说法。
-
-莎琪说：“我要反驳这个问题当中的主张。总统与副总统明天将要会见亚裔美国人社群领袖。总统在他首次的电视黄金时段演说当中，表达了对用字遣词的关切，表达了对美国国内针对亚裔美国人社群的攻击与威胁的关心。他签署了行政命令，他要求政府官员去聆听，思考解决方案。我会说他的努力是要成为解决方案的一部分，而非问题的一部分。所以我对你的这个问题提出异议。”
-
-
-
-> 白宮: 是否與習再對話待阿拉斯加會後決定 反駁對中強硬導致歧視亞裔說法 [https://t.co/sZG6te9dwj](https://t.co/sZG6te9dwj)
-> — 美國之音中文網 (@voacantonese) [March 18, 2021](https://twitter.com/voacantonese/status/1372687393904488451?ref_src=twsrc%5Etfw)
+布林肯国务卿称美国与日本就中华人民共和国破坏香港选举制度、没有履行义务已经达成共识，两国拥有共同的民主价值观。
 
 
 
-路德社评论：
-
-去年，川普总统称呼中共病毒为中国病毒或武汉病毒，爆料革命通过一系列的运作也没有让川普总统改口称中共病毒，这被中共利用来煽动所谓的“歧视亚裔”，又要绑架亚裔，造成反共就是种族歧视的社会氛围，阻止中共病毒来自实验的认定。但白宫站出来反驳这一说法，这是美国现政府认定中共不等于中国人的第一步，中共的一系列做法最后只能逼着美国民主党把中共和中国人分开，中国人民和世界人民都是中共体制的受害者，中共将再次搬起石头砸自己的脚。
-
-二、阿拉斯加美中会谈进展
-
-中美阿拉斯加谈判于3月18日正式开启，彭博新闻社白宫资深记者珍妮佛·雅各布斯（Jennifer Jacobs）实时报道此次中美谈判主要内容，她在推文中写道：在阿拉斯加与中国代表团会面时，布林肯说美国打算与中共国探讨在新疆、香港、台湾和网络攻击问题。布林肯批评中国采取了一些“破坏维持全球稳定秩序”的行动。习近平代表团则说，美国没有资格站在“强势地位”对中共国进行这番评论。拜登政府与习近平政府在阿拉斯加的第一次会议上以争吵拉开序幕。
-
-中国高级外交官杨洁篪援引黑命贵运动和杀害黑人的发言对拜登代表团说：“美国内部许多人对美国民主制度缺乏信心。”杨洁篪还说美国是网络攻击的冠军，不代表全球公众舆论，并且有杀害黑人的历史。拜登高级行政官员说，中国“似乎觉得已经世界上取得杰出成就。” 中共代表团违反了双方2分钟开放陈述的协议。美国说，中国经常做“夸张的外交演说”，但“我们还有很多事情要做。”
 
 
+> Good on the [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) for continuing to hold senior Chinese leaders responsible for breaking promises that China made to the world regarding freedom for the people of Hong Kong. The world must "Distrust but Verify" and hold the CCP accountable. [https://t.co/pXmwjXeZqV](https://t.co/pXmwjXeZqV)
+> — Mike Pompeo (@mikepompeo) [March 17, 2021](https://twitter.com/mikepompeo/status/1372293660830748675?ref_src=twsrc%5Etfw)
 
-> At meeting with Chinese delegation in Alaska, [@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw) says US intends to discuss cyber attacks, Xinjiang, Hong Hong, Taiwan. Blinken criticizes China for taking some actions that “threaten the rule based order that maintain global stability.”
-> — Jennifer Jacobs (@JenniferJJacobs) [March 18, 2021](https://twitter.com/JenniferJJacobs/status/1372662385878663174?ref_src=twsrc%5Etfw)
+
+[https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/](https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/) [https://www.state.gov/hong-kong-autonomy-act-update/](https://www.state.gov/hong-kong-autonomy-act-update/)
+这份制裁清单里的官员是为中共作恶的虾兵蟹将，再次成为中共的挡箭牌，这份更新的法案其制裁条款不够具体、清晰，究竟能给香港带来多少实际帮助，相信布林肯自己也说不出。但是有一点明确的是，支持香港、谴责中共已经成为政治正确。在此基础上，有一个从量变到质变的积聚过程，我们有理由相信，西方世界据此向中共要价、讨伐甚至进一步行动是未来的趋势，而能量转化的导火索无疑是中共病毒疫情危机。
 
 
 
-路德社评论：
 
-1、从双方此次会谈情况来看，双方开场气氛极其紧张，中共国压根就不承认在新疆犯下种族灭绝罪，不承认有网络黑客行为，同时中共先行指责美国对本国黑人犯下种族灭绝罪和发起网络攻击，称美国已经不能主导全世界舆论。但是从杨洁篪的发言来看，逻辑非常混乱，纯粹在胡扯，美国对于中共种种罪行证据已经确凿，中共只能利用这种办法耍无赖。
 
-2、从会谈背景来看，白宫曾发文说此次会谈是向中共施压的机会，共和党议员也纷纷发文督促拜登政府对中共强硬，更不用说纳瓦罗先生、蓬佩奥先生等多位人士在各大媒体报道中共病毒来自中共国实验室问题。而中共国驻美大使崔天凯在发言中称双方会谈要坚守底线，这意味着中方绝不会让美方在谈判中触碰所谓的人权和病毒底线。除此之外，朝鲜这两天站出来向美韩放狠话，及中共将审判两名加拿大公民，这都是在为中共添加此次谈判的筹码，种种因素促使双方开场就陷入紧张的气氛，中共试图想用这种方法将双方谈判重点从价值观层面探讨转向利益层面交易。
+文章观点部分仅代表作者本人。
 
-3、这就像当年的慈禧太后时代，从表面上看似中共喊话声音大，暂时占据上风，但是这非常不利于接下来跟美方进行利益交易。拜登政府现在在国内面对巨大的反共政治压力，中共只有采取软化的态度太能让拜登政府有理由坐下来同中共展开后续的条件谈判，中共一贯认为用钱、用利益就能解决问题的想法最后肯定会落空。
+作者：康州盘古农场 喜马拉雅的文雅
 
-4、杨洁篪在开场中就对美国军事、贸易和人权问题进行无理批评，指责美国干涉中国内政，而美国对于中共国在新疆犯下种族灭绝罪问题，只是禁止这些官员入境美国，冻结他们在美国的资产，压根就没有干涉中共内政，这就是中共国通过偷换概念的方法给中国人民洗脑，这和杨洁篪以往的外交谈判风格大相径庭，从这可以看出中共已经彻底无招放矢了。
+封面：康州盘古农场 霹雳年
 
-5、彭博社也表示对中美谈判的开局感到震惊，双方谈判陷入极度糟糕的局面，在习总加速师的推进下，中美关系极度恶化，战争一触即发。布林肯在奥巴马政府时代是副国务卿，当时中美关系非常紧密，布林肯与沙利文2016年与杨洁篪会面时，双方非常友好，此次会谈让布林肯看清楚中共之前的友好态度就是在伪装。纳瓦罗在接受采访时也说，川普政府官员与中共官员进行过无数次谈判，杨洁篪在谈判时态度非常友好，但是中共从来都不履行双方承诺。
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
 
-6、中美在2020年1月15日签署中美贸易协议，但是中共官员在1月14日告诉川普政府中共病毒不会人传人，班农先生多次在Warroom节目中说中共就是一群骗子，不要再相信他们。美国保守派力量经过川普政府四年认清中共不值得信赖，川普总统原先想让中共国将过去几十年通过不正当竞争赚来的利润交还给美国，但是随着中共病毒疫情爆发和中共干扰美国大选后，保守派力量彻底下定灭共决心。拜登政府1月份上台后，民主党开始对中共进行评估，习总加速师采取的一系列战狗外交政策增进了民主党的灭共决心，由此也可以判断中共很可能已经失去华盛顿的情报来源途径，。这导致他们出现外交局势的误判。
+（本文当日持续更新中）
 
-7、杨洁篪从学校毕业后就在中共国驻美大使馆工作，在美国拥有极广的人脉基础，是江派势力的代表之一，与共和党建制派布什家族关系甚密，而现任外交部长王毅在美国没有任何根基，习此次有意派王毅陪同杨洁篪进行美中谈判也是想监督杨洁篪。江家在大选前扔出“三个硬盘”，及大选后蚂蚁金服暂停上市和博裕资本撤离香港等一系列事件可以看到习派与江派的斗争已经摆到桌面上，双方现在就是你死我活的斗争。
-
-8、虽然杨洁篪曾在“八九，六四运动”后为中共化解了重大危机，同时他也成功解决了克林顿时代的南联盟大使馆袭击事件和小布什时代的南海撞机事件带来的中美外交危机，中共此时再次派杨洁篪出面就是想让他解决中美危机，但是因为爆料革命揭露的中共病毒真相，这让美国定海神针的力量彻底下定灭共决心，中共绝无翻盘之日。
-
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
-
-参考文章：
-
-[1][https://www.voacantonese.com/a/biden-harris-atlanta-us-china-alaska-meeting-20210318/5820150.html?utm\_source=twitter&utm\_medium=social&utm\_campaign=dlvr.it](https://www.voacantonese.com/a/biden-harris-atlanta-us-china-alaska-meeting-20210318/5820150.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
-
-文章撰写：【重生】  编辑：【香柏树】
-
-+1
+0

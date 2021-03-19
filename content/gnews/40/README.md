@@ -1,45 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0318.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/986344/)
+## 【香港要闻】建制派揭穿中共 阴谋：打土豪、分田地
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/988724/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0318.jpeg)
-#### 香港问题
-
-3月17日蓬佩奥先生就现任政府布林肯对港政策予以肯定，推文如下。
-“政府干的不错，继续追究㆗（共）国高级领导㆟违反对世界作出港㆟自由的承诺。世界必须 “怀疑并核实”，并追究中共的责任。”
-
-继日前英国对中共国发出违背中英联合声明的警告勒令改正之后，3月16日与17日美国拜登政府对中共在香港修改选举法的行径更新了《香港自治法案》，对24名中港官员进行制裁。包括(1)识别该外国人士的身份；(2)清楚解释识别该外国人士的原因，并说明识别该外国人士的活动。明知故犯地与制裁人员进行重大交易的外国金融机构将受到制裁。被制裁人包括：
-
-Wang Chen，You Quan，Cao Jianming，Zhang Chunxian，Shen Yueyue，Ji Bingxuan，Arken Imirbaki ，Wan Exiang ，Chen Zhu，Wang Dongming，Padma Choling，Ding Zhongli，Hao Mingjin，Cai Dafeng，Wu Weihua，Deng Zhonghua ，Li Jiangzhou，Edwina Lau，Li Kwai-Wah，Frederic Choi Chin-Pang，Kelvin Kong Hok Lai ，Andrew Kan Kai Yan，Tam Yiu-Chung，Sun Wenqing, AKA Sun Qingye
-
-布林肯国务卿称美国与日本就中华人民共和国破坏香港选举制度、没有履行义务已经达成共识，两国拥有共同的民主价值观。
+搜集/编撰：天灭中共
 
 
 
+**「建制派揭穿中共：政改的目的是土改」**
+
+今早（18日）建制派立法会议员谢伟俊在立法会大会上提出议案，动议修订《保护海港条例》及落实观塘避风塘填海工程。
+
+不过，甫一开始，谢伟俊竟然直接揭穿中共修改香港选举制度的真正目的。他指出「中央对香港的政改，除了是为了阻止有人颠覆国家政权之外，最重要要做的，甚至可以说背后真正想做的就是香港的土地问题。」
+
+他又指「韩正在两会、及其他重要会议上，多次提到对香港的土地问题未有解决方案，无法和香港达成共识，但总会有开始解决的时机。现在就韩正所说的时机。」
+![]()![](https://gnews.org/wp-content/uploads/2021/03/kdole93-2.jpg)（图片来源：立法会会议截图）
+**「建制派议员讲真话：中共重槌打击香港」**
+
+谢伟俊在阐述议案时指出：「今次是中央代替特区政府reset（重新设置）香港的选举制度，如香港不先解决土地问题，中央会再次出手。」
+
+他再进一步强调：「我们如果不希望中央再次插手，好像选举政改一样，监视着香港做事，香港就要自己先处理土地和房屋问题。」
+
+最后，他提出「警告」：「希望个别界别或团体好好思考，不要过份强调自己的利益，这样只会导致北京政府再次出手重槌打击香港。」
+![]()![](https://gnews.org/wp-content/uploads/2021/03/bnxjhs57782.jpg)（图片来源：苹果日报）
+**评论：「他朝君体也相同」**
+
+正如笔者在之前的文章中提过，中共这次修改香港选举制度，目的绝对不是阻止民主派参选，因为即便按照香港原有的政制，民主派即使做到35+，也永远不可能取得任何实质的权力。
+
+对共产党稍有认识的人都很明白，共产党独揽大权的目的无非为了「金钱」，而香港最有钱的几大家族、握有最多实权的政治势力，都是地产商。
+
+换句话说，中共通过修改选举制度，将香港本土政治势力重组，独揽大权之后，要做的就是以香港房屋供应问题为由，进行土改，掠夺这些本土富豪们的财产。
+
+当上街游行的市民被打、被杀时，这些权贵们视若无睹，支持中共「止暴制乱」；当民主派因无中生有的罪名而身陷囹圄时，这些权贵们置若罔闻，支持中共「拨乱反正」 。
+
+他朝君体也相同，今天，中共要「打土豪、分田地」，不知这些权贵们有没有做好「为共产主义事业牺牲一切」的准备。
+
+【以上观点仅代表笔者】
+
+资料来源: 1、[立法会会议直播：](https://youtu.be/g6_tuFveqLE)
+
+覆核：卡西欧 / 上传：彩虹（ Rainbow )
 
 
-> Good on the [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) for continuing to hold senior Chinese leaders responsible for breaking promises that China made to the world regarding freedom for the people of Hong Kong. The world must "Distrust but Verify" and hold the CCP accountable. [https://t.co/pXmwjXeZqV](https://t.co/pXmwjXeZqV)
-> — Mike Pompeo (@mikepompeo) [March 17, 2021](https://twitter.com/mikepompeo/status/1372293660830748675?ref_src=twsrc%5Etfw)
-
-
-[https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/](https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/) [https://www.state.gov/hong-kong-autonomy-act-update/](https://www.state.gov/hong-kong-autonomy-act-update/)
-这份制裁清单里的官员是为中共作恶的虾兵蟹将，再次成为中共的挡箭牌，这份更新的法案其制裁条款不够具体、清晰，究竟能给香港带来多少实际帮助，相信布林肯自己也说不出。但是有一点明确的是，支持香港、谴责中共已经成为政治正确。在此基础上，有一个从量变到质变的积聚过程，我们有理由相信，西方世界据此向中共要价、讨伐甚至进一步行动是未来的趋势，而能量转化的导火索无疑是中共病毒疫情危机。
-
-
-
-
-
-文章观点部分仅代表作者本人。
-
-作者：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
-
-（本文当日持续更新中）
 
 0
