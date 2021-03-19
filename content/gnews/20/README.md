@@ -1,45 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】世界卫生组织称各国可继续使用阿斯利康疫苗
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/990405/)
+## 北朝鲜可能会在不远的将来试飞新设计的洲际弹道导弹
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/990627/)
 
-作者：纽约香草山农场 四季
+翻译：康州盘古农场 – Raul
+校对：康州盘古农场 – Freeearth
+编辑：康州盘古农场 – 心照
 
+据3月16日《路透社》报道：
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-105.png)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+资料图片：朝鲜朝中社于2021年3月7日发布的这张未注明日期的照片显示，朝鲜领导人金正恩在平壤举行的首个市县党委书记短期培训班上的演讲。
 
+美国军方北方司令部司令周二表示，朝鲜可能正不久的将来，改进设计的新洲际弹道导弹；此举将急剧增加平壤和华盛顿之间的紧张关系。
 
+美国空军将军格伦.凡尔克（Glen VanHerck）的警告发表是基于朝鲜10月份在一场阅兵式上展示的它迄今为止最大的洲际弹道导弹，但没有关于即将发射的具体情报。
 
-据以色列[israelnationalnews](https://www.israelnationalnews.com/News/News.aspx/298724)网站3月18日援引法新社的最新报道，世界卫生组织 (WHO)专家周三建议各国继续使用阿斯利康公司的COVID-19疫苗。世卫组织认为，阿斯利康疫苗的好处大于其风险，建议继续接种该疫苗。
+不过，凡尔克是在美国总统拜登的最高外交官和国防部长首次访问韩国的前一天发表上述言论的。这凸显美国对平壤可能在中断三年多之后恢复导弹和核武器试验的担忧。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image-260.png)图源网络
+即使在实验间歇期间，朝鲜领导人金正恩也要求继续为其武器库生产核武器，还发射了一系列较小的导弹，并且，在10的阅兵仪式上公布了一枚可能是朝鲜迄今最大的洲际弹道导弹。
 
-不过，世界卫生组织（WHO）表示，在众多国家因健康担忧而暂停使用该疫苗后，他们正在研究该疫苗的安全性。
+凡尔克（VanHerck）告诉参议院军事委员会，平壤“相对更大的，能力也可能更强”的洲际弹道导弹，进一步增强了对美国的威胁。不过，他同时表达了对美国导弹防御系统的信心。
 
-联合国卫生机构在援引法新社的一份声明中说，世界卫生组织全球疫苗安全咨询委员会正在仔细评估可用的最新安全数据。
+这位美国将军还指出，金正恩一年前解除了核试验禁令。
 
-根据之前的报道，欧洲国家如意大利、法国、德国和其他一些国家在出现患者发生致命血栓的报告后，都暂时停止使用阿斯利康疫苗。而意大利，奥地利和其他地方也出现了死亡报告，这促使丹麦、冰岛和其他国家甚至泰国都停止了该疫苗的接种，以便进行短暂的调查。在这样的事实面前，世界卫生组织竟然没有暂停对阿斯利康疫苗的接种，这令人遗憾——这一举措看不到世卫组织对生命的尊重和敬畏。不知道还会有多少生命逝去，多少人会遭受痛苦，让我们关注后续的发展。
+凡尔克（VanHerck）在书面证词中说：“朝鲜政权还表示，它不再受2018年单方面宣布的暂停核试验和洲际弹道导弹实验的约束。这表明金正恩可能在不久的将来开始试飞改进设计的
 
-参考阅读：
-
-[WHO says countries can continue to use AstroZeneca vaccine](https://www.israelnationalnews.com/News/News.aspx/298724)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
+文章来源：[https://www.oann.com/u-s-general-north-korea-might-flight-test-new-icbm-design-in-the-near-future/](https://www.oann.com/u-s-general-north-korea-might-flight-test-new-icbm-design-in-the-near-future/)
 
 0
