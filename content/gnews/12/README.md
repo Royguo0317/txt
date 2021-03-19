@@ -1,31 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 报告：俄罗斯希望美国就拜登有关普京的言论道歉
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/989660/)
+## 《路德社》精選新聞簡訊:美國參議院確認戴琪出任美國貿易代表
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/989808/)
 
-翻译：康州盘古农场 – 抽雪茄的奥特曼Stephanie
-校对：康州盘古农场 – TrueSky
-编辑：康州盘古农场 – 轰炸机
+出品：《路德社》 編輯：《路德社》精選新聞專欄組
 
-据《福克斯新闻》作者 **Edmund DeMarche，**2021年03月17日报道
+![]()![](https://www.gnews.org/wp-content/uploads/2021/03/image001-52.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-91.png)
+據《美國之音》3月18日報導，美國參議院週三（3月17日）以98票贊成、0票反對的壓倒性的跨黨派投票結果，確認了拜登總統提名的戴琪 (Katherine Tai)為美國貿易代表。她將是首位擔任該職位的亞裔美國人，也是擔任此職位的首位少數族裔女性。
 
-俄罗斯议会一名高级议员周四表示，拜登总统同意俄罗斯总统普京就是凶手后，美国应该道歉，这位官员还表示，克里姆林宫在召回驻美大使后可以采取进一步行动。
+能說一口流利中文普通話的戴琪被認為是一個擅長解決問題的實用主義者。她曾擔任美國政府的貿易談判代表和國會工作人員。戴琪誓言要為一個有利於普通勞動者而不僅僅是大公司的美國貿易政策而努力，並與美國的盟友更緊密地合作，以對抗日益強勢的中國。
 
-路透社报道说，议会上院副主席康斯坦丁·科萨乔夫称拜登的回答是两国关系的分水岭。
+戴琪即將領導的美國貿易代表辦公室，將使用“一切可以使用的工具”應對美國所說的北京不平等的貿易做法，並且要讓中國承擔責任，落實它的承諾。
 
-他表示，这样的评论“不允许出自这样一个级别的政治家之口”
+[原文鏈結](https://www.voachinese.com/a/us-senate-confirmation-Katherine-tai-ustr-china-20210317/5818493.html)
 
-科萨乔夫指的是拜登本周接受美国广播公司（ABC）采访时被问及是否相信普京是凶手。
+【文章僅限作者個人觀點】
 
-拜登说：“我同意。”
+本文作者：Mayana
 
-《华尔街日报》报道说，美国发布情报报告后不久，大使安纳托利·安东诺夫（Anatoly Antonov）被召回莫斯科，直接将普京与2020年总统大选的选举干预联系在一起。
+審核校對：魯邦五世
 
-莫斯科否认了这些指控。
-
-文章来源：[https://www.foxnews.com/politics/russia-wants-us-to-apologize-over-bidens-comment-about-putin](https://www.foxnews.com/politics/russia-wants-us-to-apologize-over-bidens-comment-about-putin)
+上傳排版：玫瑰新聞群組
 
 0
