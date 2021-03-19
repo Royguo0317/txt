@@ -1,45 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0318.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/986344/)
+## 【战友心声】中共国内的彩礼陋习
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/988247/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0318.jpeg)
-#### 香港问题
-
-3月17日蓬佩奥先生就现任政府布林肯对港政策予以肯定，推文如下。
-“政府干的不错，继续追究㆗（共）国高级领导㆟违反对世界作出港㆟自由的承诺。世界必须 “怀疑并核实”，并追究中共的责任。”
-
-继日前英国对中共国发出违背中英联合声明的警告勒令改正之后，3月16日与17日美国拜登政府对中共在香港修改选举法的行径更新了《香港自治法案》，对24名中港官员进行制裁。包括(1)识别该外国人士的身份；(2)清楚解释识别该外国人士的原因，并说明识别该外国人士的活动。明知故犯地与制裁人员进行重大交易的外国金融机构将受到制裁。被制裁人包括：
-
-Wang Chen，You Quan，Cao Jianming，Zhang Chunxian，Shen Yueyue，Ji Bingxuan，Arken Imirbaki ，Wan Exiang ，Chen Zhu，Wang Dongming，Padma Choling，Ding Zhongli，Hao Mingjin，Cai Dafeng，Wu Weihua，Deng Zhonghua ，Li Jiangzhou，Edwina Lau，Li Kwai-Wah，Frederic Choi Chin-Pang，Kelvin Kong Hok Lai ，Andrew Kan Kai Yan，Tam Yiu-Chung，Sun Wenqing, AKA Sun Qingye
-
-布林肯国务卿称美国与日本就中华人民共和国破坏香港选举制度、没有履行义务已经达成共识，两国拥有共同的民主价值观。
+作者：纽约香草山福音部 小蚂蚁（文思）
 
 
 
-
-
-> Good on the [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) for continuing to hold senior Chinese leaders responsible for breaking promises that China made to the world regarding freedom for the people of Hong Kong. The world must "Distrust but Verify" and hold the CCP accountable. [https://t.co/pXmwjXeZqV](https://t.co/pXmwjXeZqV)
-> — Mike Pompeo (@mikepompeo) [March 17, 2021](https://twitter.com/mikepompeo/status/1372293660830748675?ref_src=twsrc%5Etfw)
-
-
-[https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/](https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/) [https://www.state.gov/hong-kong-autonomy-act-update/](https://www.state.gov/hong-kong-autonomy-act-update/)
-这份制裁清单里的官员是为中共作恶的虾兵蟹将，再次成为中共的挡箭牌，这份更新的法案其制裁条款不够具体、清晰，究竟能给香港带来多少实际帮助，相信布林肯自己也说不出。但是有一点明确的是，支持香港、谴责中共已经成为政治正确。在此基础上，有一个从量变到质变的积聚过程，我们有理由相信，西方世界据此向中共要价、讨伐甚至进一步行动是未来的趋势，而能量转化的导火索无疑是中共病毒疫情危机。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
 
 
+分享一个发生在国内的真实故事。笔者认识一个女孩，她十几岁就怀孕了，女孩的父亲要求她的男朋友给一笔巨额的彩礼，才让男孩娶他的女儿。男孩没有钱，只能许诺，等到孩子生下来就来娶她。然而，等孩子生下来之后，这个男朋友竟然失踪了。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image-263.png)图源网络
+
+这个事情中有一个很关键的论题：彩礼——巨额的彩礼阻挡了男孩与女孩的婚姻。今天的中（共）国仍有很多地方存在着这种情况，尤其是在偏远的地区。彩礼本身就是封建落后的制度下人们愚昧无知的产物，即父母把女儿当成一笔财产（性/生育资源）。《圣经》中这样说，人要离开父母与妻子联合，二人成为一体。所以，婚姻对于两个相爱的人来说是件神圣的事情。
+
+男女双方是平等的，而彩礼却可能会造成男女双方一生的问题。特别对文中提到的女孩来说，她会像一个正常幸福的母亲那样爱她的初生宝宝吗？即使她想好好爱宝宝，也没有这个能力。孩子需要吃，需要照顾，钱从何来？而且，她还会因未婚先孕被社会歧视。政府对单身母亲会有帮助吗？答案大家都知道，中共政府不会对弱势女性群体提供帮助。这个孩子已经是一个不可抹去的生命，那他的人生又会走向何处？留守儿童？问题孩子？要知道，缺少家庭关爱的孩子会有诸多问题，如心理疾病和性缺陷。
+
+这所有的一切，都是因为中共给百姓贯输的“金钱至上”的思想而引发的社会悲剧——百姓的价值观被严重扭曲，下一代的成长环境被破坏。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M3.jpg)
+
+编辑：SKY妮妮
+
+校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 
-文章观点部分仅代表作者本人。
 
-作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-封面：康州盘古农场 霹雳年
 
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
-
-（本文当日持续更新中）
 
 0
