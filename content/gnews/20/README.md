@@ -1,45 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0318.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/986344/)
+## 中俄朝伊奈何动不动就拿弹道导弹说事
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/988762/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0318.jpeg)
-#### 香港问题
+作者：台湾准农场 快慢机
 
-3月17日蓬佩奥先生就现任政府布林肯对港政策予以肯定，推文如下。
-“政府干的不错，继续追究㆗（共）国高级领导㆟违反对世界作出港㆟自由的承诺。世界必须 “怀疑并核实”，并追究中共的责任。”
+素材：JAY（杰伊）
+![]()![](https://gnews.org/wp-content/uploads/2021/03/擷取319.png)
+## 伊朗：谁瞪我，我干谁！
 
-继日前英国对中共国发出违背中英联合声明的警告勒令改正之后，3月16日与17日美国拜登政府对中共在香港修改选举法的行径更新了《香港自治法案》，对24名中港官员进行制裁。包括(1)识别该外国人士的身份；(2)清楚解释识别该外国人士的原因，并说明识别该外国人士的活动。明知故犯地与制裁人员进行重大交易的外国金融机构将受到制裁。被制裁人包括：
+自美国拜登政府上台以来，伊朗已经连续数次动用多型导弹，对美军在中东驻军基地展开袭击。在对美军造成了部分伤亡损失之余，也同样遭受了美军及以色列的报复性空袭打击。中东地区的战火再次被无情的燃起。作为中共在中东地区的核心流氓拍档，伊朗再次将美军部分兵力牵制于中东地区，以缓解美军印太防区对中共所形成的强大压力。
 
-Wang Chen，You Quan，Cao Jianming，Zhang Chunxian，Shen Yueyue，Ji Bingxuan，Arken Imirbaki ，Wan Exiang ，Chen Zhu，Wang Dongming，Padma Choling，Ding Zhongli，Hao Mingjin，Cai Dafeng，Wu Weihua，Deng Zhonghua ，Li Jiangzhou，Edwina Lau，Li Kwai-Wah，Frederic Choi Chin-Pang，Kelvin Kong Hok Lai ，Andrew Kan Kai Yan，Tam Yiu-Chung，Sun Wenqing, AKA Sun Qingye
+近日，伊朗又再次公开高调向外界展示，其伊斯兰革命卫队，位于其境内某处的，一座隐秘导弹城地堡军事设施。该处地堡内存储有大量巡航导弹与弹道导弹，及相关发射装置。伊朗军方还宣称，该地堡同时具备，可以有效抵御敌军电子攻击的安全防护能力，并且基地周边还部署有地空导弹防御力量，用以反击空中的不速之客。据悉伊朗军方在其境内拥有数座同等规模与防御等级的导弹城地堡设施。
 
-布林肯国务卿称美国与日本就中华人民共和国破坏香港选举制度、没有履行义务已经达成共识，两国拥有共同的民主价值观。
+据福克斯新闻社发出的一张卫星图片显示，位于伊朗霍尔果附近的一处新建的强化导弹发射场已初具规模，其中三个竖井已经处于完备了的硬化垂直发射位置。秀肌肉，伊朗从来都骑着导弹来回溜！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/擷取319-1.png)
+## 朝鲜：谁吓我，我吓谁！
 
+朝鲜，这个亚洲地区最为“硬核”式存在的中共流氓同党，其最高领导人金正恩的胞妹金与正，在近日就美韩举行的联合军演行动，向对方严正警告称：“想要和平就别制造麻烦，想睡安稳觉，就不要盲目行事“！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/擷取319-3.png)
+这个一向以鼻孔朝天视人的朝鲜女鹰派人物，果然有金家风范，想吓我，哪老娘练胆儿，没门儿！此前不久，朝鲜罕见的在3个月的时间段内，连续两次举行盛大的阅兵式。在2020年10月10日凌晨于平壤的阅兵式上，朝鲜首次对外展示了其最新型的，疑似“火星”系列改进型的新款洲际弹道导弹。而在随后的2021年1月15日夜间，再次于平壤金日成广场上举办的阅兵式上，朝鲜再次公开展示了一款类似“北极星”系列的新型潜射弹道导弹。此举无疑在向外界释放一种强烈的信号——“其拥有足以左右朝鲜半岛政策的，二次反击能力”！
 
+## 俄罗斯：谁干我，我干谁！
 
+近日，东欧地区的俄乌对峙局势依然急剧升温，双方都在紧锣密鼓的调兵遣将，顿巴斯地区一时间战云密布，随时面临爆发大规模军事冲突的可能！由于美军宣布向乌克兰提供总价值近1.25亿美元的军事援助，再加之乌克兰迫切需要迅速收复顿巴斯地区，以达成加入北约之宿愿。因此乌克兰不惜集结重兵，前凸顿巴斯锋线部署2个大型集团军，总兵力近8个重型合成作战旅。同时又向土耳其订购了多批，在前不久爆发的阿、亚武装冲突中，大显身手的“TB-2”型武装无人机用于压制该地区俄军部署的防空系统。
 
+面对如此咄咄逼人之势，俄军防长绍伊古直接强硬划下红线：“不论是谁，针对任何侵入俄罗斯领土的军事行动，俄军将不惜一切代价予以全力反击，甚至动用战术核武器”！战斗民族果然彪悍，生死看淡，不服就干！
 
-> Good on the [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) for continuing to hold senior Chinese leaders responsible for breaking promises that China made to the world regarding freedom for the people of Hong Kong. The world must "Distrust but Verify" and hold the CCP accountable. [https://t.co/pXmwjXeZqV](https://t.co/pXmwjXeZqV)
-> — Mike Pompeo (@mikepompeo) [March 17, 2021](https://twitter.com/mikepompeo/status/1372293660830748675?ref_src=twsrc%5Etfw)
+## 中共：谁动我，我动嘴！
 
+东风快递，全球直达！这是2020年中共向世界传递的最为无耻的恐吓言论！回顾2020，中共军方先后展开了数十次各型针对性极强的军演行动。其中不乏带有明显威慑性质的“东风快递”系列弹道导弹试射科目，目标直指巡弋在南海周边水域的美军太平洋舰队。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/擷取319-2-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/擷取319-4.png)
+另外中共火箭军在2020年度的曝光率也再创新高。鉴于美、日、澳、印四国组成全新的印太防区联盟，紧随其后的北约多国纷纷派遣远洋舰队开赴南海，展开常态化战备巡弋。面对如此强大的海空军联合打击力量的空前集结压力，中共旋即“怒从心头起，恶向胆边生”！一句——“人类命运共同体，东风快递瞄准你”，流氓本质尽显无疑！邪恶轴心的丑恶嘴脸都一副德性，动不动就拿导弹比划！
 
-[https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/](https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/) [https://www.state.gov/hong-kong-autonomy-act-update/](https://www.state.gov/hong-kong-autonomy-act-update/)
-这份制裁清单里的官员是为中共作恶的虾兵蟹将，再次成为中共的挡箭牌，这份更新的法案其制裁条款不够具体、清晰，究竟能给香港带来多少实际帮助，相信布林肯自己也说不出。但是有一点明确的是，支持香港、谴责中共已经成为政治正确。在此基础上，有一个从量变到质变的积聚过程，我们有理由相信，西方世界据此向中共要价、讨伐甚至进一步行动是未来的趋势，而能量转化的导火索无疑是中共病毒疫情危机。
-
-
-
-
-
-文章观点部分仅代表作者本人。
-
-作者：康州盘古农场 喜马拉雅的文雅
-
-封面：康州盘古农场 霹雳年
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
-
-（本文当日持续更新中）
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+文章审核：zhong
+文章发布：Little Liu
 
 0

@@ -1,45 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我不会对左派的暴行保持沉默
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/988713/)
+## 美国政要等每日重要信息0318.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/986344/)
 
-翻译：康州盘古农场 –文灵
-校对：康州盘古农场 – Mike Li
-编辑：康州盘古农场 – 山东老爷们
+**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0318.jpeg)
+#### 香港问题
 
-据Ron Johnson  在 www.wsj.com  网站3月15日评论报道：
+3月17日蓬佩奥先生就现任政府布林肯对港政策予以肯定，推文如下。
+“政府干的不错，继续追究㆗（共）国高级领导㆟违反对世界作出港㆟自由的承诺。世界必须 “怀疑并核实”，并追究中共的责任。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-153.jpg)
+继日前英国对中共国发出违背中英联合声明的警告勒令改正之后，3月16日与17日美国拜登政府对中共在香港修改选举法的行径更新了《香港自治法案》，对24名中港官员进行制裁。包括(1)识别该外国人士的身份；(2)清楚解释识别该外国人士的原因，并说明识别该外国人士的活动。明知故犯地与制裁人员进行重大交易的外国金融机构将受到制裁。被制裁人包括：
 
-我不会对左派的暴行保持沉默
+Wang Chen，You Quan，Cao Jianming，Zhang Chunxian，Shen Yueyue，Ji Bingxuan，Arken Imirbaki ，Wan Exiang ，Chen Zhu，Wang Dongming，Padma Choling，Ding Zhongli，Hao Mingjin，Cai Dafeng，Wu Weihua，Deng Zhonghua ，Li Jiangzhou，Edwina Lau，Li Kwai-Wah，Frederic Choi Chin-Pang，Kelvin Kong Hok Lai ，Andrew Kan Kai Yan，Tam Yiu-Chung，Sun Wenqing, AKA Sun Qingye
 
-他们歪曲了我对1月6日发生的事情的讲话，因为他们希望美国人遗忘去年夏天发生的的暴力和破坏。
+布林肯国务卿称美国与日本就中华人民共和国破坏香港选举制度、没有履行义务已经达成共识，两国拥有共同的民主价值观。
 
-2020年8月25日，暴徒袭击了威斯康星州基诺沙的一辆警车。
 
-我很震惊，但并不惊讶。那些通过分裂国家寻求政治利益的人会提出最糟糕的指控，以使任何挑战左派议程的人保持沉默。
 
-在乔·帕格斯节目（Joe Pags Show）最近的一次电台采访中，我解释了为什么我对1月6日来到华盛顿进行和平抗议的川普支持者并不担心。成千上万的抗议者（没人知道实际数量）在国会大厦前游行。只有大约800人非法进入国会大厦。从事暴力活动的人更少。我当时谴责了那些违法者，并将继续这样做。但是当民主党人及其媒体盟友试图通过暗示所有在场的人都是决心推翻政府的“武装起义主义者”来让人们认为这两个团体是同一性质时，我感到不得不做出回击。
 
-我告诉了乔·帕格斯真相：老实说，我从未在1月6日感到受威胁。我补充说，但是我可能会担心川普总统是否获胜，以及去年夏天烧毁了威斯康星州基诺沙（Kenosha），和明尼阿波利斯市（Minneapolis）的暴力左派分子来了华盛顿。这是我说的原话：“现在，如果桌子已经被掀翻了，乔，这可能会给我带来麻烦，桌子已经被掀翻了，川普总统已经赢得了大选，那是成千上万的黑命贵和安提法抗议者，我可能有点担心。”
 
-我说“这可能会给我带来麻烦”，我因挑战左派的虚假报道而屡遭攻击。我不知道他们为什么会如此彻底地歪曲我的讲话，条件反射般地打种族牌。
+> Good on the [@StateDept](https://twitter.com/StateDept?ref_src=twsrc%5Etfw) for continuing to hold senior Chinese leaders responsible for breaking promises that China made to the world regarding freedom for the people of Hong Kong. The world must "Distrust but Verify" and hold the CCP accountable. [https://t.co/pXmwjXeZqV](https://t.co/pXmwjXeZqV)
+> — Mike Pompeo (@mikepompeo) [March 17, 2021](https://twitter.com/mikepompeo/status/1372293660830748675?ref_src=twsrc%5Etfw)
 
-想要让人民遗忘去年夏天的政治暴力事件的左派分子立即向我指出，2020年的抗议活动大多是和平的。显然，他们已经忘记了，根据武装冲突地点和事件统计数据，去年有570起左派抗议活动演变成为骚乱，并有25人丧生，700名执法人员受伤。叫嚷着“和平抗议”并不能给那些受害者，和其它房屋、企业和财产被摧毁的无辜美国人带来安慰。同样的一批人，推动旨在把投票支持川普先生的7400万美国人定义为潜在国内恐怖分子或武装起义主义者的宣传报道，却没有看到美国人民的任何损害。
 
-我们都应该对安提法和其它左派人士打着平等的旗帜欺世盗名的态度感到厌恶。“这是我们大家共同的目标”，他们甚至举着牌子要求终结美国或谈论烧毁城市。不幸的是可以预料到，自由主义者会抨击种族主义。这与种族无关，这是骚乱。焚烧基诺沙的暴徒不是单一种族的，他们被激进的左派集合在一起。
+[https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/](https://www.state.gov/update-to-report-on-identification-of-foreign-persons-involved-in-the-erosion-of-the-obligations-of-china-under-the-joint-declaration-or-the-basic-law/) [https://www.state.gov/hong-kong-autonomy-act-update/](https://www.state.gov/hong-kong-autonomy-act-update/)
+这份制裁清单里的官员是为中共作恶的虾兵蟹将，再次成为中共的挡箭牌，这份更新的法案其制裁条款不够具体、清晰，究竟能给香港带来多少实际帮助，相信布林肯自己也说不出。但是有一点明确的是，支持香港、谴责中共已经成为政治正确。在此基础上，有一个从量变到质变的积聚过程，我们有理由相信，西方世界据此向中共要价、讨伐甚至进一步行动是未来的趋势，而能量转化的导火索无疑是中共病毒疫情危机。
 
-他们的政治倾向，以及他们的暴力嗜好，与我认识的川普支持者或我们大家看到的和平的川普集会截然不同，这应该引起我们的关注。还有就是各大城市的市中心的橱窗保护板在拜登赢得大选后很快就被拆了，原因只有一个：如果川普输了，没有人担心川普支持者的行为；如果拜登不赢，他们担心拜登支持者的作为。
 
-不幸的是，许多媒体都失去了公正和客观。川普总统赢得2016年大选后，他们假装不偏不倚。结果，大约一半的美国人根本不信任主流媒体或依赖其报道。公正自由的新闻在民主制度中至关重要，但是在当今的去保守文化中，对保守派观点的审查与自由是对立的。
 
-今天，大多数记者都把宣传置于新闻之上。他们不对保守派进行采访，而是进行争吵。他们宣传自己的政治观点，并愿意撒谎、扭曲事实、歪曲、隐瞒、审查和屏蔽任何持反对意见的人或事。他们毫不在意自己所造成的伤害。所有信仰自由和言论自由的人都必须站出来反抗。
 
-美国威斯康星州参议员共和党人约翰逊先生
 
-文章来源：
+文章观点部分仅代表作者本人。
 
-[https://www.wsj.com/articles/i-wont-be-silenced-by-the-left-11615848103](https://www.wsj.com/articles/i-wont-be-silenced-by-the-left-11615848103)
+作者：康州盘古农场 喜马拉雅的文雅
+
+封面：康州盘古农场 霹雳年
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组，直译推组联系。***
+
+（本文当日持续更新中）
 
 0
