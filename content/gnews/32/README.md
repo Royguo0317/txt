@@ -1,31 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世衛：阿斯利康疫苗的益處大於風險
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/993808/)
+## 慧眼看世界20210320（图片新闻）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/993926/)
 
-編輯：喜馬拉雅農場聯盟紐西蘭奧克蘭伊甸農場
+- 作者：2020喜马拉雅
 
-作者：Ray裁決
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/是-6.png)
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-法新社發自日內瓦的報導指出，世衛組織周五鼓勵各國使用阿斯利康疫苗。 世衛組織的專家得出結論說，阿斯利康新冠疫苗帶來的益處是大於風險的，這也確認了歐洲藥品管理局的意見。
+**西班牙2021年3月19日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/11-18.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/12-9.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/13-2.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/14-8.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/15-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/16-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/17.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/18-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/19-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/20.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/22-2.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/24-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/23-8.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/25-4.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/26-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/27-2.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/28.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/29.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/30.png)
+发稿：神奇四侠
 
-世衛組織總幹事譚德塞週五在新聞發佈會上說：”我們緊急要求各國繼續使用這一重要的疫苗。 ”
-
-譚德塞還強調，「任何藥物或疫苗都會出現的問題是，施用這種藥物或疫苗的風險是大於還是小於疾病的風險。 毫無疑問：新冠病毒是一種致命的疾病，牛津/阿斯利康疫苗可以阻止它。 ”
-
-近期德國，荷蘭，愛爾蘭等紛紛暫停阿斯利康疫苗，其中瑞典報告疑似一例疫苗致死，德國多名中青年女性出現嚴重反應，還有許多不良反應讓公眾產生大量擔憂。
-
-WHO在去年中共病毒大爆發時就已經失去其職能，與中共的媾合展現的世界面前。 現在各國還在相信其說辭，不去追尋中共病毒真相，疫苗災難真的令人擔憂。
-
-[参考链结](https://www.rfi.fr/cn/%E5%9B%BD%E9%99%85/20210319-%E4%B8%96%E5%8D%AB-%E9%98%BF%E6%96%AF%E5%88%A9%E5%BA%B7%E7%96%AB%E8%8B%97%E7%9A%84%E7%9B%8A%E5%A4%84%E5%A4%A7%E4%BA%8E%E9%A3%8E%E9%99%A9)
-
-【文章僅限作者個人觀點】
-
-審核校對：魯邦五世
-
-上傳排版：玫瑰新聞組
+本文观点均来自于作者，与GNEWS无关
 
 0

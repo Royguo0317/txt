@@ -1,123 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0320.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/992944/)
+## 西班牙巴塞罗那喜悦农场：疫情下的西班牙专栏
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/993776/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+- 西班牙巴塞罗那喜悦农场编辑部
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0320.jpeg)图片来源：康州盘古农场 霹雳年
-### 拜登怎么了
 
-3月19日朱利安尼先生推文：
+- 专栏作者：gokuabuela简介
 
-“拜登上空军一号的台阶时摔倒3次吗？腐败媒体什么时候要求一个答案？这是怎么回事？”
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-279.png)
+### 挺郭灭共，我不孤单
 
+和大多数战友一样，是VOA断播门让我开始密切关注郭先生，虽然之前也有耳闻，但是我认为就像那些时不时冒出的“民运分子”一样，他们说的共产党的恶我也知道，而且在海外华人圈注定昙花一现，更不会对共产党在那片土地的独裁地位造成丝毫伤害。
 
-19日小唐纳德-川普发推称：
+可是，VOA的断播顿时让我眼前闪现两个大大的问号，挥之不去！
 
-“普京刚刚向乔-拜登发起挑战，进行了一场没有台词的现场辩论。全世界都知道，我们的高层没有领导力，只有一个拿着提词器的空头西装（就这他都做不好）。他们看着美国现在的弱点，垂涎欲滴。”
+美国之音的作风怎么和CCP媒体一样了呢？！
 
-朱利安尼先生回复称：“也许哈里斯副总统可以做替身？”
+不让郭文贵说出来的东西究竟是什么？！
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-280.png)
+于是，开始一个不落的看郭先生的推特和视频。他坚持健身，健康的肤色，健硕的身材，他出行保镖随身，穿戴皆是奢侈品牌，但是言语生动幽默接地气，这些外在特质无不吸引着我持续关注，他由浅入深的层层爆料，慢慢解开了我多年来高置一边，拧巴的找不到答案的很多困惑，“共产党很坏，为什么还能持续执政？我出身的族群怎么就落入共产党的统治圈了呢？那片土地为什么总在一将功成万骨枯，一朝皇帝一朝臣中不停轮回？”，郭先生在爆料过程中，通过一个个真实的被共产党掩盖的故事，抽丝剥茧，让我真正明白了共产党的前世今生，更让我看到作为一个华人在人类文明的十字路口应该勇敢站出来承担的历史使命—-“灭共”！
 
+我时常感觉，自己本来身处一条巨轮的5等舱内，懵懂而不自知，郭先生让我站到了一个不同的高度，看到了驾驶舱里的操作，理解了这个世界真正的运行规则，看到了共产党的邪恶根源。我想把自己的发现和全新的认知分享给家人朋友，可万万没想到的是，这条路是这样的艰难，我被当作了“偏激分子”，”不了解中国的情况“， 以至于家人都不愿意和我谈论任何政治问题，朋友们认为我打搅了他们平静而美好的生活。我并不埋怨他们会如此反应，只是觉得他们太可怜，他们的一生被共产党玩弄于股掌之间，他们被共产党洗脑成了智商正常的白痴，我无法接受，为了他们，我也要追随郭先生加入爆料革命，共产党不灭，是每一个华人活在世上的耻辱。
 
+然后，我又目睹了在香港发生的一切，当年多少人冒着生命危险，逃到了香港，以为从此躲开了中共的残酷统治，而恰恰因为一代人的妥协和绥靖，让香港又被轮回到地狱。我不能让这样的命运在我身上重演，不能让我的孩子因为我的软弱和胆怯，将来像香港年轻人一样去付出生命，应该是我来守护他们的。我也不愿让我身边那些可爱的西班牙人，像香港年轻人一样浮尸海上，被失踪，被强奸。既然认识了郭先生，这就是命运交给我们这群人的责任，必须担起来，义无反顾。
 
+4年来参加爆料革命，见识了太多太多的伪类，鸡腿潘，庄列洪，九指妖等，在这过程中让我总结出一条规律，只要是不挺郭的，要么是九层妖塔内的伪类，要么是被困在九层妖塔内的傻孩子。唯有挺郭灭共才是破解之法。
 
-来自《真正美国之音》的“唯有真相”，珍娜-爱丽丝称，”今晚的表扬要颁给乔-拜登，他今天勇敢而真实地承认了卡马拉-哈里斯总统。也许这就是哈里斯-拜登政府的团结努力”。
+2020年的那一场疫情，对我的工作和生活也构成了非常严峻的考验，忙碌之余所有的时间都用来关注爆料革命，经历过推特大封杀，被路德的119宣布病毒大流行震惊的夜不能寐，欣喜于闫博士九死一生终于到了美国，等等。爆料革命里有犹大有天使，有魑魅魍魉有豪侠义士，在这里我目睹到人世间至善和至恶的交锋，给我带来的心灵冲击是任何好莱坞大片都无法做到的。
 
-周五川普前高级顾问斯蒂芬-米勒接受福克斯新闻采访时警告说，拜登总统的言行正在成为一场 “国家安全危机”。他们在公开嘲笑我们，在嘲笑拜登总统，这很丢脸。他们公开嘲笑和侮辱我们，因为我们没有最高统领，没有总统。他还说，这是精心铺好的地毯，也不滑，拜登摔了三次，他是健康出问题了吗。他之后愤怒地说，“比如在阿拉斯加发生的事情，中（共）国敢在人权问题上教训我们。而安东尼-布林肯（国务卿）和杰克-沙利文（国家安全顾问）就这样坐以待毙！这些都是因为我们家里没有总统，其他国家看到了这个弱点。”
+新中国联邦的成立，G系列的推出，更是让我备受鼓舞，我们有了自己的国家，有了自己的金融生态，我们要让中国人永不为奴。我们有远大的前景，有值得为之付出，并有可能获得巨大收获的事业，怎能不为此努力呢？
 
-福克斯新闻主播汉尼迪 称，拜登让美国尴尬了，普金一定会嘲笑他。看看昨日中（共）国官员对我们人权的谴责，我们的回答就是“为这些错误表示抱歉”，中（共）国看看你们用病毒对世界做了什么！
+VOG事件后，我来到了西班牙巴塞罗那喜悦农场，一是自己身在西班牙，二是想做一些实际的工作，受农场里义工行动的感召，我已经觉得只是网上点赞转发不够过瘾，必须再做些什么来安抚自己灭共的急切的情绪！即使你平凡如一粒沙，也要坚定的相信“灭共没你不行，就差你一个”！我希望和所有的战友一起，共享我们思想的火花，坚定的挺郭爆料，走向喜马拉雅。
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Untitled-4.png)
+### 主编寄语：
 
-[https://www.foxnews.com/politics/stephen-miller-biden-frailty-national-security-crisis](https://www.foxnews.com/politics/stephen-miller-biden-frailty-national-security-crisis)
-### 美国边境危机和特赦
+战友，一路前行，你不孤独，我们都背靠背，一起扛枪！！
 
-议员Mo Brooks发推称：“正如我所说 @toddstarnes（媒体人）如果你给予大赦，那么那些想来美国的人就会说，’嘿，我可以违反美国的法律，我可以唾弃他们的宪法，因为最终他们会原谅我，让我留下来。不能特赦。”
+我们很幸运早几年被七哥叫醒了，我们需要叫醒更多的人！一起努力！！做你觉得过瘾的事！！勇敢飞翔！！
 
+- 新闻列表
+- [\[疫情下的西班牙\] 法国首个学生会被指 “反白人种族主义”](https://gnews.org/zh-hans/991156/)
+- [\[疫情下的西班牙\] 近日，西班牙疫情再次缓慢上升](https://gnews.org/zh-hans/991143/)
+- [\[疫情下的西班牙\] 我们要去拿欧洲“疫苗护照”吗？](https://gnews.org/zh-hans/991112/)
+- [\[疫情下的西班牙\] 讨美檄文—-中美阿拉斯加会谈](https://gnews.org/zh-hans/991063/)
+- [\[疫情下的西班牙\] 部分变种中共病毒将使辉瑞和莫得那疫苗失效](https://gnews.org/zh-hans/990945/)
+- [\[疫情下的西班牙\] 迷宫中的欧洲：从暂停接种阿斯利康疫苗谈起](https://gnews.org/zh-hans/987152/)
+- [\[疫情下的西班牙\] 寻找疫情的真相有助于康复被疫情打击的社会心理](https://gnews.org/zh-hans/980319/)
+- [\[疫情下的西班牙\] 丹麦女子接种阿斯利康疫苗后死亡的症状](https://gnews.org/zh-hans/980259/)
+- [\[疫情下的西班牙\] 西班牙动物园被迫出售动物以养活其他动物](https://gnews.org/zh-hans/973382/)
+- [\[疫情下的西班牙\] “疫苗护照”可能成为歧视的工具](https://gnews.org/zh-hans/965481/)
+- [\[疫情下的西班牙\]世界各国中共病毒疫情图示](https://gnews.org/zh-hans/954807/)
+- [\[疫情下的西班牙\]西班牙卫生部监测到十种中共病毒菌株](https://gnews.org/zh-hans/954799/)
 
-
-> As I told [@toddstarnes](https://twitter.com/toddstarnes?ref_src=twsrc%5Etfw), if you give amnesty, then the people who want to come to America say, ‘Hey, I can break America’s laws. I can spit on their Constitution because ultimately they’ll forgive me and let me stay.’ NO AMNESTY.
->  [https://t.co/PgoJKzkXAr](https://t.co/PgoJKzkXAr)
-> — Mo Brooks (@RepMoBrooks) [March 19, 2021](https://twitter.com/RepMoBrooks/status/1372926648681697285?ref_src=twsrc%5Etfw)
-
-
-
-瑞克-斯科特参议员19日发推称：“今天，亚利桑那州州长@Dougducey和我亲眼目睹了南部边境的人道主义危机，这是由美国总统的灾难性开放边境政策和大赦政策造成的。现在是他对这场危险的危机采取行动的时候了，以保证美国人的安全和保障边境的安全。”
-
-
-
-> Today, AZ Gov [@dougducey](https://twitter.com/dougducey?ref_src=twsrc%5Etfw) & I saw firsthand the humanitarian crisis along the Southern border, caused by [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw)’s disastrous policies of open borders & amnesty. It's time he takes action on this dangerous crisis to keep Americans safe & SECURE THE BORDER: [https://t.co/wFe4o8bH2M](https://t.co/wFe4o8bH2M) [pic.twitter.com/T0HFEpahqi](https://t.co/T0HFEpahqi)
-> — Rick Scott (@SenRickScott) [March 19, 2021](https://twitter.com/SenRickScott/status/1373022193148366850?ref_src=twsrc%5Etfw)
-
-
-
-### 一再被夸张的“种族主义”
-
-19日美国驻联合国大使琳达发推称：“在美国总统的方向上，我们在联合国升半旗，纪念本周亚特兰大可怕悲剧的受害者。我们必须团结一致，反对种族主义的祸害，这是非常重要的。团结起来，我们就有力量。”
-
-当日白宫发言人纳得转推称，“对于美国总统和整个政府，结束种族歧视是我们的首要任务。我们要求其他国家批准和执行《消除一切形式种族歧视国际公约》，与我们一道打击种族主义。”
-
-
-
-> Ending racial discrimination is a top priority for [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) and the entire administration. We ask that other nations join us in fighting racism by ratifying and implementing the International Convention on the Elimination of All Forms of Racial Discrimination. [https://t.co/gg6t2AE5oE](https://t.co/gg6t2AE5oE)
-> — Ned Price (@StateDeptSpox) [March 19, 2021](https://twitter.com/StateDeptSpox/status/1373031934356549640?ref_src=twsrc%5Etfw)
-
-
-
-19日福克斯新闻称“哈里斯明显抹黑川普，称 “拥有最大讲坛 “的人对亚裔美国人喷出仇恨。” 川普总统放弃爆料革命天赐良机在病毒战中的优势，甚至因迁就“中共”始终未敢把“中共病毒”说出口，终于迎来痛击。在与中共战斗的过程中，郭先生讲得精辟“真、善、狠”，任何骑墙、妥协、虚伪和软弱，都没有出路，革命无间道啊。
-
-
-
-> Harris, in apparent swipe at Trump, says people ‘with the biggest pulpits’ spewed hate toward Asian Americans [https://t.co/DTFAapNonB](https://t.co/DTFAapNonB)
-> — Fox News (@FoxNews) [March 19, 2021](https://twitter.com/FoxNews/status/1373053365345738752?ref_src=twsrc%5Etfw)
-
-
-[https://www.foxnews.com/politics/harris-trump-people-pulpits-spewed-hate-asian-americans](https://www.foxnews.com/politics/harris-trump-people-pulpits-spewed-hate-asian-americans)
-### 美中“厕所会谈”
-
-马克-卢比奥议员19日就美中阿拉斯加厕所会晤发推称：“中共官员在阿拉斯加发的外交脾气表明，我们不可能与北京（中共国政府）的敌对和种族灭绝政权进行建设性对话。拜登政府必须接受这一现实，站起来应对中共的威胁。”
-
-
-
-> The diplomatic temper tantrum thrown by Chinese Communist Party officials in Alaska shows that we cannot have constructive dialogue with the hostile and genocidal regime in Beijing. The Biden Administration must accept that reality and rise to meet the threat posed by the CCP.
-> — Marco Rubio (@marcorubio) [March 20, 2021](https://twitter.com/marcorubio/status/1373101461895319555?ref_src=twsrc%5Etfw)
-
-
-
-
-
-### 蹭川普热度
-
-20日据福克斯新闻，川普前日揶揄要参加2024年总统竞选，潜在的共和党竞争对手开始提前造访。
-
-
-
-> As Trump teases a 2024 presidential run, potential GOP rivals start making early visits[https://t.co/BghWmUW5Je](https://t.co/BghWmUW5Je)
-> — Fox News (@FoxNews) [March 20, 2021](https://twitter.com/FoxNews/status/1373227602593390598?ref_src=twsrc%5Etfw)
-
-
-
-### 谴责拜登
-
-众议员提名人安娜接受Newsmax 采访时称，“乔拜登被中（共）国收买了，川普总统或许没有“政治正确”，然而现在的政府太软弱了，没有把美国摆在国际范围上正确的位置。”
-
-
-
-### 军事成就
-
-3月18日NASA公布，“8分钟后，SLS火箭的#阿尔忒弥斯一号核心级试验成功火箭。”
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image-278.png)[https://blogs.nasa.gov/artemis/2021/03/18/green-run-update-full-duration-hot-fire-successfully-completed-on-mar-18/](https://blogs.nasa.gov/artemis/2021/03/18/green-run-update-full-duration-hot-fire-successfully-completed-on-mar-18/)
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
-
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
 +1

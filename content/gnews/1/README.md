@@ -1,71 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 挪威媒体说:有些人为人类献身而“不得不死于”中共病毒疫苗
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/994667/)
+## 因《不割席》获提名，中共禁播奥斯卡颁奖典礼
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/994840/)
 
-**作者**：Ethan Huff 2021-03-19
+新闻来源：《布莱特巴特》| 作者：约翰·海沃德（JOHN HAYWARD） | 发布时间：2021年3月17日
 
-**翻译：**加拿大温哥华圆成农场 卢卡斯
-![]()![](https://gnews.org/wp-content/uploads/2021/03/27-3.png)图片来源：Ethan Huff原文
-《自然新闻》报道：至少挪威的医疗机构终于承认：中共病毒疫苗正在杀死人们。 然而，伴随着这个承认，对这些疫苗的叙事方式发生了重大变化。
+翻译/简评：随波逐流 | 校对/审核：万人往 | Page：Daoiii
 
-现在，我们被告知，人们冒死接受中国病毒疫苗接种是一种美德，因为注射疫苗代表着为人类做出牺牲。
+[!\[\]()!\[\](https://spark.adobe.com/page/AVSBGisT9VWLM/images/33b56507-0f5a-4cea-a6df-7d91ad683977.jpg?asset_id=04d21fe5-9870-4b05-9845-ba3df5012f76&amp;img_etag=%22e7cf11735285e4d2a31de8d179cb9b7d%22&amp;size=1024)](https://spark.adobe.com/page/AVSBGisT9VWLM/images/33b56507-0f5a-4cea-a6df-7d91ad683977.jpg?asset_id=04d21fe5-9870-4b05-9845-ba3df5012f76&amp;img_etag=%22e7cf11735285e4d2a31de8d179cb9b7d%22&amp;size=1024)
 
-“我愿意死于阿斯利康疫苗，”一位名叫利恩•维克（Linn Wiik）的人在挪威媒体上发表了一篇文章，该文的英文译文说。
+***简评：***
 
-“这听起来很残酷。 但是在与中共病毒的战争中某一些人必须被牺牲掉。这就是所有战争的必然方式。这一次很可能就是我要被牺牲掉。”
+据报道，中共国独裁政府周三下令国家电视台不要转播下个月的奥斯卡颁奖典礼，因为其中一部获奥斯卡奖提名的电影有关香港抗议运动。这部造成中共国电视台禁播奥斯卡颁奖典礼的电影是《不割席》（Do Not Split），是一部由挪威导演安德斯·哈默（Anders Hammer）执导的有关2019年香港抗议活动的简短纪录片。记录了香港人从最初反对“逃犯条例”到中共在香港实施“国家安全法”的过程。中共对此表示愤怒，并以这样会伤害中国人民的感情和好莱坞电影在中共国的票房相威胁，这名导演的另一部迪士尼影片《雷神》可能会因此取消。而另一个获得奥斯卡最佳影片提名的，电影《无依之地》的导演赵婷虽然过去也批评中共，但其影片揭示了资本主义的弊端，因政治原因暂时还是受到中共的喜爱。赵婷即将执导的另一部影片《永恒》可能需要中共国巨大的票房市场获利，好莱坞可能会迫于票房压力讨好中共。
 
-在被再次转移了目的的贴文里，媒体突然从声称所有的中共疫苗都是“安全有效的”叙述，转变为承认疫苗是致命的，但是如果您是一个关心他人的好人，那么无论怎样您总会得到一个帮助人群的美名。
+近几年，中共频频寻求以国内巨大的票房市场吸引力获得进军好莱坞的机会，利诱有影响力的好莱坞大腕，拍出美化中共或展现资本主义阴暗面的片子，可以更有效地大范围影响美国，从而输出中共国模式并转变美国人的意识形态。中共可能派出一些有知名度的导演、制片人、演员等参与到好莱坞的运作中，其中有些人会表面批评中共，暗地里通过“蓝金黄”手段逐步渗透影响美国电影市场，使其与中共利益深度捆绑在一起。现在效果已经显现出来，否则中共怎么敢以NBA为例，如此底气十足地威胁好莱坞呢？接下来看好莱坞是否会因票房利益屈服于中共？无论如何，中共国内禁播奥斯卡颁奖礼，还是怕香港抗议活动的真相展现给全中国人民，这恰恰证明了它知道自己在香港的倒行逆施为世人所不容，以及内心的极度恐惧。
 
-维克（Wiik）解释说，至少有一名卫生工作者在接受注射疫苗后死于脑出血，而其他几名卫生工作者则在注射疫苗后，因严重血栓而入院。她仍然说，每个人都应该接受疫苗注射。
+[!\[\]()!\[\](https://spark.adobe.com/page/AVSBGisT9VWLM/images/d4537d08-19ea-485a-b144-b6d6385366eb.jpg?asset_id=ad38b41e-2120-443a-af31-7c9f32c6dfa2&amp;img_etag=%2254c8dd5bc58ab05a0aa26cc64a77f24b%22&amp;size=1024)](https://spark.adobe.com/page/AVSBGisT9VWLM/images/d4537d08-19ea-485a-b144-b6d6385366eb.jpg?asset_id=ad38b41e-2120-443a-af31-7c9f32c6dfa2&amp;img_etag=%2254c8dd5bc58ab05a0aa26cc64a77f24b%22&amp;size=1024)
 
-“让我先说那些显而易见的事情。卫生工作者患了重病，这是非常令人悲伤难过的，” Wiik写道。
+***原文翻译：***
 
-“尽管我们已不再站在阳台上为他们鼓掌，但我认为我们所有人都要对这群人深表敬意，这些人是在对抗中共病毒战争中的一些最前线战士。这就是为什么他们这么早得到疫苗的确切原因。”
+## 报道：北京禁止播出奥斯卡颁奖礼，因为有关香港抗议的电影获得提名
 
-有关由中共疫苗疫苗接种造成的伤害和死亡的最新新闻，请访问VaccineDamage.news。
+[!\[\]()!\[\](https://spark.adobe.com/page/AVSBGisT9VWLM/images/5fdfc9b8-152f-4325-8214-82b76ad9ba4a.png?asset_id=448e1282-65d3-48cd-a964-2cca75068170&amp;img_etag=%228cd76d46d01a4e6e5ecf16c4f16887ac%22&amp;size=2560)](https://spark.adobe.com/page/AVSBGisT9VWLM/images/5fdfc9b8-152f-4325-8214-82b76ad9ba4a.png?asset_id=448e1282-65d3-48cd-a964-2cca75068170&amp;img_etag=%228cd76d46d01a4e6e5ecf16c4f16887ac%22&amp;size=1024)
 
-**是什么让人们明知道疫苗可能会杀死他们，但还是要求接种疫苗？**
+据报道，中共国专制政府周三下令国家电视台不要转播下个月的奥斯卡颁奖典礼，因为其中一部获奥斯卡奖提名的电影有关香港抗议运动。
 
-维克说，当然，政府将竭尽所能，以确定病例与疫苗之间是否存在联系。 这种说词仍然为医疗机构留出了空间，以便他们以后随时可以宣布“毫无证据”表明存在联系。
+易怒的中国共产党（CCP）也对获最佳影片提名的《无依之地》（Nomadland）的导演赵婷（Chloe Zhao）心怀怨恨，因为她几年前批评了共产党。
 
-同时，维克似乎正在试水，以查明群众是否可以完全能忍受中共病毒疫苗是致命的这一事实。由于强制实行保持距离，戴口罩和封城没有遭遇到什么阻力，因此维克的新叙述也有可能被民众接受。
+据报道，这部造成中共国电视台禁播奥斯卡颁奖典礼的电影是《不割席》（Do Not Split），这是一部由挪威导演安德斯·哈默（Anders Hammer）执导的有关2019年香港抗议活动的简短纪录片。这部35分钟的影片追踪了这场抗议活动，从他们反对有争议的引渡法开始，到去年夏天中共国​​强硬的“国家安全法”在香港的实施，从而有效地将政治异议定为刑事犯罪，并粉碎了这座城市有限的自治权。
 
-“也许这些人是’不幸的人们’，”维克在她的故事中进一步考虑，试图用她知道的各种可能的办法，去证明继续使用中共病毒疫苗是合理的。
+请看下面：
 
-每年都有人们出现血块并死于脑出血。在挪威，每年有7,000至10,000例血凝块…我们将尽快得到答案。然后，卫生当局还将决定我们是否应该继续接种疫苗。
+[!\[\]()!\[\](https://spark.adobe.com/page/AVSBGisT9VWLM/images/96695dbe-c78c-45a9-8f21-56d451c7cb35.png?asset_id=907e692c-318f-433b-8fe3-9588067d818f&amp;img_etag=%22e8d5d0cf48a8bf61cf712ba2a5aea65f%22&amp;size=1024)](https://spark.adobe.com/page/AVSBGisT9VWLM/images/96695dbe-c78c-45a9-8f21-56d451c7cb35.png?asset_id=907e692c-318f-433b-8fe3-9588067d818f&amp;img_etag=%22e8d5d0cf48a8bf61cf712ba2a5aea65f%22&amp;size=1024)[【点击查看预告片】](https://vimeo.com/393764663)《不割席》 -来自Vimeo网站上《视野》的预告片。
 
-在这篇文章的这一点上，维克再次改变了方向，声称即使事实证明阿斯利康疫苗是造成这些伤害和死亡的原因，“我毫不怀疑，如果我得到接种疫苗的机会，无论如何我都会接受。”
+哈默周三对《香港自由新闻》表示，他的目标是“捕捉香港街头的紧张气氛，因为年轻的抗议者甘冒一切风险为自己的未来而战。”
 
-这听起来很像已故的桑德罗•托格纳蒂的妻子西莫娜•里西（Simona Riussi）在丈夫死于疫苗接种之后告诉媒体。尽管她失去了重要的另一半，里西说她仍然会接种该疫苗，并鼓励其他人也这样做。
+他说：“这场抗议活动始于对拟议的引渡法案的示威，这一法案允许人们被送往中共国大陆进行审判。很快，它发展成为了更广泛的基本人权抗议活动，希望奥斯卡提名能够有助于引起人们的关注，即这些人权不被压制有多么重要。”
 
-“抱歉这么坦率地说：为了确保其他人的安全，必须牺牲掉一些人，”维克如此说道。 “在所有战争中都是这样。”
+中共非常渴望证明，在没有任何来自自由世界的实质性反对的情况下，人权是可以被压制的。周三，官方媒体《环球时报》在一篇非常气愤的社论中，谴责了奥斯卡委员会胆敢提名影片《不割席》。
 
-**评：**迄今为止，全球已有20多个国家停止使用英国牛津大学参与生产制造的阿斯利康中共病毒疫苗，这一决定缘于健康人因接种该疫苗引发的血凝块导致接种人身体受损，并且造成多人失去生命。然而世界卫生组织（WHO）和一些国家的政客和医疗官员根本不顾及这些医疗事故报道，仍然坚定地支持阿斯利康疫苗。WHO主席譚德塞** （**Tedros Adhanom Ghebreyesu）声称，这些伤亡事件不一定跟该疫苗有关联，但是承诺会进行调查，并声称WHO的监控系统在有效地工作着。WHO先前说该疫苗跟血凝块没有什么联系，各国应该继续使用它。欧洲的疫苗监管机构也为该疫苗站台，说该疫苗的好处大过风险[1][2]。尽管已经有这么多血凝块副作用的报道，加拿大总理杜鲁多仍然信心十足坚持说阿斯利康疫苗是安全有效的，并坚持把该疫苗用于本国国民的接种[3]；加拿大首席卫生官员谭咏诗Dr. Theresa Tam也说没有证据表明阿斯利康疫苗有副作用，并重申加拿大人接种该疫苗的好处大过风险[4]。尽管这些政客与阿斯利康疫苗公司有无金钱利益来往，我们尚无从可知，加拿大多伦多市医疗官员Eileen de Villa也是支持阿斯利康疫苗的官僚，她根本不顾该疫苗产生血凝块副作用的报道，坚称该疫苗是有效的安全的，是最好的疫苗之一[5]；然而有报道曝光她其实是一个与大医药公司有财务往来的腐败官员，其丈夫Richard Choi从阿斯利康和辉瑞两大医药巨人公司收取现金，而这二个医药公司正在积极推广他们生产的中共病毒疫苗[6]。
+《环球时报》抱怨说，哈默的电影“缺乏艺术性，充满了偏颇的政治立场”，指责奥斯卡成为“政治工具”，并警告称，给《不割席》奖项可能会“伤害中国观众的感情，并可能导致其在中国电影市场损失惨重，中国电影市场去年首次超过北美成为全球最大的票房市场。”
 
-本文揭露了尽管有挪威的医疗机构公开承认中共疫苗正在杀人，然而媒体随即改变了宣传的调门，从之前强调疫苗是安全有效的转为强调冒死接种疫苗是一种美德，跟中共病毒的斗争是一场战争，而战争总会死人，但是为了其他人和全世界人类的安全，勇敢接种疫苗是一种值得称赞的美德，也有人被洗脑明知道疫苗会伤害人体甚至致死，仍然接受疫苗接种。世界各国政府和各大疫苗公司签有免责协议，疫苗公司不需要为疫苗接种导致的伤害或死亡承担任何责任，而世界各国政府急于恢复经济而推行疫苗接种，刻意淡化甚至隐瞒疫苗的副作用，同时各国的主流媒体也站在大疫苗制造公司的立场，为他们的利益服务，欺骗洗脑民众，大谈接种疫苗的好处，避免涉及或淡化其作用，引导他们积极接受疫苗接种。当前所有的中共病毒疫苗都是没有经过临床试验，仅仅目前出现的副作用就令人感到恐惧，而在长时间尺度上，其对人体的损害甚至致死性无人可知。中共病毒是中共制造的超限生化武器，被中共释放到全世界为了低成本地夺得控制地球人类的权力，中共病毒疫苗其实也是一个病毒生化武器，是中共进一步控制全世界的第二步，接种疫苗等同于给自己身体内注入一个定时生物炸弹。在全球中共病毒大流行仍在进行当中和中共病毒的机理机制尚没有被研究清楚的时刻，接种中共病毒疫苗无疑会带给自身巨大的生命健康风险。传播中共病毒真相，继续追溯中共病毒的来源和追究中共的责任，揭露政府部门医疗机构和国际组织和各主流媒体为中共病毒疫苗站台并洗脑麻痹民众，是以毒灭共年的主题。
+共产党的文件建议好莱坞向美国国家篮球协会（NBA）学习，在现任休斯顿火箭队经理达里尔·莫雷（Daryl Morey）敢于对香港示威者表示同情之后，NBA在中共面前表达了谦卑之意。
 
-原文：Ethan Huff, “Norwegian media says some people “have to die” from coronavirus vaccines as a sacrifice to humanity”.《Natrural News》, March 19, 2021. [https://www.naturalnews.com/2021-03-19-norway-people-die-coronavirus-vaccines-sacrifice-humanity.html](https://www.naturalnews.com/2021-03-19-norway-people-die-coronavirus-vaccines-sacrifice-humanity.html)
+至于赵婷（Chloe Zhao），Deadline杂志报道：“《无依之地》在威尼斯成功之后，最初她在中共国是很受欢迎的，但是当她在2013年的一次采访中发表的评论浮出水面时，这种待遇开始变糟。”
 
-#### [1]  [News Editors](https://www.naturalnews.com/author/newseditors), “20+ countries suspend use of AstraZeneca vaccine, but regulators insist ‘benefits outweigh risks’”. Mar 16, 2021.** **[https://www.naturalnews.com/2021-03-16-countries-suspend-use-of-astrazeneca-vaccine.html](https://www.naturalnews.com/2021-03-16-countries-suspend-use-of-astrazeneca-vaccine.html)
+据报道，出生于北京的赵婷在一次被从互联网上删除的采访中，将中共国描述为“一个到处充满谎言的地方”。据称，她还于2020年告诉澳大利亚的一名采访者，在美国生活了20年后，她“现在是一个美国人”，但此话后来因印刷错误而被驳回，而赵婷实际上说她“不是美国人”。
 
-#### [2] [Ramon Tomey](https://www.naturalnews.com/author/ramontomeydw), “More than 20 countries halt use of AstraZeneca Wuhan coronavirus jab after suspicious deaths from blood clots”. Mar 19, 2021.** **[https://www.naturalnews.com/2021-03-19-more-countries-halt-use-astrazeneca-coronavirus-vaccine.html](https://www.naturalnews.com/2021-03-19-more-countries-halt-use-astrazeneca-coronavirus-vaccine.html)
+这些评论足以使赵婷登上头条新闻，类似于“在短短的几天内，从中共国的骄傲到羞辱中共国”，再加上一些中共国社交媒体迸发的仇恨，尽管其他人为她制作的《无依之地》喝彩，这可能是因为它揭露了“美国的衰落和资本主义制度的邪恶”。
 
-#### [3][John Paul Tasker](https://www.cbc.ca/news/politics/author/john-paul-tasker-1.3389288) ,** “**Trudeau says AstraZeneca vaccine is safe after some European countries suspend its use**”. **Mar 15, 2021. [https://www.cbc.ca/news/politics/trudeau-astrazeneca-safe-1.5950176](https://www.cbc.ca/news/politics/trudeau-astrazeneca-safe-1.5950176)
+[!\[\]()!\[\](https://spark.adobe.com/page/AVSBGisT9VWLM/images/dc978596-bb78-40c5-b8ed-486a2395f9a4.jpg?asset_id=e1b08bed-22dc-4d76-8e09-cc7ce43ebe18&amp;img_etag=%22bdace7406d5fac795fcb67cdd77295f4%22&amp;size=3759)](https://spark.adobe.com/page/AVSBGisT9VWLM/images/dc978596-bb78-40c5-b8ed-486a2395f9a4.jpg?asset_id=e1b08bed-22dc-4d76-8e09-cc7ce43ebe18&amp;img_etag=%22bdace7406d5fac795fcb67cdd77295f4%22&amp;size=1024)《无依之地》剧照
 
-#### [4] CBC News, “No evidence to suggest AstraZeneca’s COVID-19 vaccine causing adverse events: Tam”. Mar 16, 2021.** **[https://www.cbc.ca/news/politics/astrazeneca-naci-65-recommendation-1.5951305](https://www.cbc.ca/news/politics/astrazeneca-naci-65-recommendation-1.5951305)
+赵婷已被选中执导一部漫威超级英雄电影《永恒》，而中共国的票房对于如此庞大的项目获利至关重要，这表明好莱坞很可能会找到一种方法，使她重获共产党的喜爱。
 
-#### [5] CP24.com, “When will life in the city return to normal? Toronto’s top doctor answers COVID-related questions”. Mar 11, 2021. [https://www.cp24.com/news/when-will-life-in-the-city-return-to-normal-toronto-s-top-doctor-answers-covid-related-questions-1.5344127](https://www.cp24.com/news/when-will-life-in-the-city-return-to-normal-toronto-s-top-doctor-answers-covid-related-questions-1.5344127)
+Deadline杂志看到有迹象表明，也许是在做出了一些屈从和虚假的姿态之后，赵婷可能经受住中共的轻视，并相对不受伤害地存活下来，因为中共觉得在好莱坞成功的中国导演的想法很好，并且中共中央政治局喜欢《无依之地》使资本主义看起来多么让人感到恐惧。另一方面，安德斯·哈默也许不大可能等到迪斯尼为他提供的下一部电影《雷神》。
 
-#### [6] [Ethan Huff](https://www.naturalnews.com/author/ethanh), “Toronto lockdown czar’s husband has “financial ties” to AstraZeneca, Pfizer”. Mar 10, 2021**. **[https://www.naturalnews.com/2021-03-10-toronto-lockdown-czar-financial-ties-astrazeneca-pfizer.html](https://www.naturalnews.com/2021-03-10-toronto-lockdown-czar-financial-ties-astrazeneca-pfizer.html)
+**🔗[原文链接](https://www.breitbart.com/entertainment/2021/03/17/report-beijing-bans-oscars-broadcast-over-hong-kong-protest-film-nomination/)**
 
-#  
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-##### 免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
 
-**编辑/发布：比卡丘**
+编辑：【英国伦敦喜庄园编辑部】
 
-20210320
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+[!\[\]()!\[\](https://spark.adobe.com/page/AVSBGisT9VWLM/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/AVSBGisT9VWLM/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
 0
