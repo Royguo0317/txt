@@ -1,23 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登三连摔是否会摔出美国政坛地震？
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/994181/)
+## 慧眼看世界20210320（图片新闻）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/993926/)
 
-作者：引力波
-![]()![](https://gnews.org/wp-content/uploads/2021/03/03052B90-38C3-4856-BA6C-4A4610E3C141-1.png)
-3月19日星期五，美国总统拜登从华盛顿飞亚特兰大，此行是去慰问因枪击案而惶恐不安的亚裔美国人。
+- 作者：2020喜马拉雅
 
-当拜登在空军基地登上专机时，在飞机舷梯上一连摔倒了三次，虽然最终他自行起身，看似没有大碍，但这还是引发了舆论的轩然大波。
 
-美国总统身体状况一向牵动着全世界的敏感神经，特别是仅仅在一天前，俄国总统普京刚刚意味深长的说过“我祝他（拜登）身体健康”。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-关于2020年美国总统大选选票作弊的疑云还没有褪去，拜登总统的这次三连摔直接把公众的视线转向了拜登本人的身体状况是否适合担任美国总统。
+**西班牙2021年3月19日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/11-18.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/12-9.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/13-2.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/14-8.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/15-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/16-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/17.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/18-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/19-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/20.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/22-2.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/24-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/23-8.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/25-4.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/26-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/27-2.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/28.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/29.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/30.png)
+发稿：神奇四侠
 
-要知道美国总统候选人必须通过合格的健康检测，才能有合法的候选人资格。早在2019年12月17日，当时的作为美国前副总统拜登的私人医生在一份医疗报告中称：拜登没有重大健康问题。“拜登是一位身体健康、精力充沛的77岁男性，他适合履行总统职责。”
-![]()![](https://gnews.org/wp-content/uploads/2021/03/46A7A9B0-197C-4B5D-94C7-F6C0CE17F78C-2.jpeg)
-然而拜登屡次在公众场合表现出的反应力的迟钝一直让外界质疑拜登的身体状况堪忧。这一次拜登的三连摔再次将这一问题推向风口浪尖。如果拜登的健康状况从一开始作为候选人时就已经不适合担任总统，那么从一开始他就不具有竞选资格，他目前总统宝座也将不具有合法性。
+本文观点均来自于作者，与GNEWS无关
 
-**拜登三连摔是否会摔出美国政坛地震？让我们拭目以待。**
-
-+1
+0

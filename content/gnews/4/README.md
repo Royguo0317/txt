@@ -1,19 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快讯：巴基斯坦总理接种中共病毒疫苗后感染！
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/995113/)
+## 亚利桑那州下令对210万选票进行手工重新计票
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/995149/)
 
-**路仁**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-据《印度电视新闻台》3月20日报道， 现年67岁的巴基斯坦总理伊姆兰.汗在周五（3月19日）注射了第一剂中共国药集团疫苗后，于本周六（3月20日）核酸检测，呈病毒阳性反应，目前在家隔离。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ba-2.jpg)
-巴基斯坦上周三接收了中共国提供的第二批500剂国药集团疫苗。
+编辑上传 水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/A-15-1.jpg)saraacarter.com
+欺诈舞弊的大选已过数月，能算完吗？虽然舞弊者，以及背后指使者预先策划，在相关部门从上到下拉拢腐蚀寻找了代言人，层层设卡，从大选日到总统交接日的几十天内，欲推翻选举结果不是容易之事，但是面对选举遭窃，自己的权利受到公然损害，正义的人们绝不会善罢甘休，一定要搞个水落石出，亚利桑那州参议院下令对马里科帕郡（Maricopa County）进行手工重新计票。
 
-[原文链接](https://www.indiatvnews.com/news/world/imran-khan-covid19-positive-days-after-chinese-vaccine-inoculation-692310)
+《美国新闻网》（OANN）3月20日早发文，报道了这则消息。文章说，亚利桑那州的立法者下令再次重新计票，这次是手工计票。
 
-* * *
+周四，共和党控制的亚利桑那州参议院宣布，计划对马里科帕郡（Maricopa County）200多万张选票进行审计。
 
-*发稿 文锦*
+参议院上个月底赢得了一项法庭命令，允许他们进入选票和投票系统。官员们认为，这对任何一家审计公司来说都是令人望而生畏的，理由是需要安全的设备和大量的人力。
 
-+1
+“过去我们不得不重新计票，按这种方式，在机器上运行。这是一场噩梦，我们谈论的是超过200万张选票。”前马里科帕郡记录员海伦·珀塞尔（Helen Purcell）说，“这将如何实现，以及在什么时期，我不知道。”
+
+（原文附上了州参议院的声明）
+
+州参议员强调，选民仍然对选举的完整性持怀疑态度，他们希望人工审计来结束怀疑，（重新审计的）结果将恢复亚利桑那州人对该州选举过程的信心。
+
+希望更多的州向亚利桑那州这样，向舞弊宣战，向欺诈说不，还选举以真实，公平，公正。
+
+原文链接：
+
+
+
+> [Ariz. State Senate to order hand recount of 2.1M ballots cast in 2020](https://www.oann.com/ariz-state-senate-to-order-hand-recount-of-2-1m-ballots-cast-in-2020/)
+
+
+
+0

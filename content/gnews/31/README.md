@@ -1,71 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 挪威媒体说:有些人为人类献身而“不得不死于”中共病毒疫苗
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/994667/)
+## 中共疫苗外交：外国人入境必须接种过中共国产疫苗
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/994659/)
 
-**作者**：Ethan Huff 2021-03-19
+新闻来源：《卫报 (TheGuardian) 》| 作者：海伦·戴维森 (Helen Davidson) | 发布时间：2021年3月17日
 
-**翻译：**加拿大温哥华圆成农场 卢卡斯
-![]()![](https://gnews.org/wp-content/uploads/2021/03/27-3.png)图片来源：Ethan Huff原文
-《自然新闻》报道：至少挪威的医疗机构终于承认：中共病毒疫苗正在杀死人们。 然而，伴随着这个承认，对这些疫苗的叙事方式发生了重大变化。
+翻译/简评：helloworld | 校对/审核：Beicy-数学老师 | Page：Daoiii
 
-现在，我们被告知，人们冒死接受中国病毒疫苗接种是一种美德，因为注射疫苗代表着为人类做出牺牲。
+[!\[\]()!\[\](https://spark.adobe.com/page/cCHuI43afmxxL/images/8fc5bfd4-85ee-48f8-b8e8-7f392fed4bf1.jpg?asset_id=888ebee1-0f3b-4e5e-82df-15c1696db892&amp;img_etag=%22233406dc2b86f9d105c2b9273343cec5%22&amp;size=1024)](https://spark.adobe.com/page/cCHuI43afmxxL/images/8fc5bfd4-85ee-48f8-b8e8-7f392fed4bf1.jpg?asset_id=888ebee1-0f3b-4e5e-82df-15c1696db892&amp;img_etag=%22233406dc2b86f9d105c2b9273343cec5%22&amp;size=1024)金刚狼战友绘画作品《皇帝疫夢》
 
-“我愿意死于阿斯利康疫苗，”一位名叫利恩•维克（Linn Wiik）的人在挪威媒体上发表了一篇文章，该文的英文译文说。
+***简评：***
 
-“这听起来很残酷。 但是在与中共病毒的战争中某一些人必须被牺牲掉。这就是所有战争的必然方式。这一次很可能就是我要被牺牲掉。”
+中共仅允许接种中共国生产疫苗的外国游客入境，而由于中共国疫苗仅被少数国家承认，此举引发了对中共目的的质疑。如澳大利亚人等只能接受医生开具的经过批准的疫苗，事实上被排除在了中共国允许入境范围之外。悉尼大学的传染病及疫苗专家表示，中共国此举是“好兆头”，但限制疫苗种类将问题变得复杂，并希望中共国能够认可任何具有良好声誉的疫苗。
 
-在被再次转移了目的的贴文里，媒体突然从声称所有的中共疫苗都是“安全有效的”叙述，转变为承认疫苗是致命的，但是如果您是一个关心他人的好人，那么无论怎样您总会得到一个帮助人群的美名。
+中共国此举正赤裸裸地绑架中国人民以及海外华人，为其政治目的向外国施压。虽然中共之恶人尽皆知，但“只需注射疫苗就可完成手续”的诱惑将驱使大多数普通人向当地政府施压，从而达到中共利用他们实现疫苗推广的目的。其次，目前世卫组织因道德和实际考量仍表态反对疫苗护照，但中共此举为国际上希望推动疫苗普及以及疫苗护照的邪恶势力充当了“马前卒”，给了各国以“对等报复”为由将疫苗护照变为既成事实的借口。同时，此举也可为中共未来闭关锁国提供道义掩护。中共向来倾向于营造潜规则为己谋利。而必须注射中共国疫苗，即能成为其宣传“我们已开放国门”但事实上无人能够出入的关键环节。而无论中共疫苗的有效率存疑、向他国政府施压、造成疫苗护照事实，以及闭关锁国，伤害的都是中国人以及华人同胞。
 
-维克（Wiik）解释说，至少有一名卫生工作者在接受注射疫苗后死于脑出血，而其他几名卫生工作者则在注射疫苗后，因严重血栓而入院。她仍然说，每个人都应该接受疫苗注射。
+[!\[\]()!\[\](https://spark.adobe.com/page/cCHuI43afmxxL/images/5e240a78-a64a-473e-b0c4-a54489edfaf0.jpg?asset_id=fba9aa1f-c6db-4466-866b-9d49b726ae0c&amp;img_etag=%22e81c0626707f2bb24e2d1bb09e57700e%22&amp;size=1024)](https://spark.adobe.com/page/cCHuI43afmxxL/images/5e240a78-a64a-473e-b0c4-a54489edfaf0.jpg?asset_id=fba9aa1f-c6db-4466-866b-9d49b726ae0c&amp;img_etag=%22e81c0626707f2bb24e2d1bb09e57700e%22&amp;size=1024)
 
-“让我先说那些显而易见的事情。卫生工作者患了重病，这是非常令人悲伤难过的，” Wiik写道。
+中共正在绑架中国人完成其后疫情时代的政治野心。而其蓄意制造并投放病毒、重创世界的真相将彻底瓦解其邪恶图谋。对于中国人以及海外华人，只有将真相广而告之，才能够让全世界的怒火对准真正的罪魁祸首。这不仅将挽救中国人以及华人的国际形象，也将会把CCP红魔彻底从这个世界铲除，从而真正从中共的绑架中得以解脱。
 
-“尽管我们已不再站在阳台上为他们鼓掌，但我认为我们所有人都要对这群人深表敬意，这些人是在对抗中共病毒战争中的一些最前线战士。这就是为什么他们这么早得到疫苗的确切原因。”
+***原文翻译：***
 
-有关由中共疫苗疫苗接种造成的伤害和死亡的最新新闻，请访问VaccineDamage.news。
+## 中共国将只允许接种过中共国产疫苗的外国来访者入境
 
-**是什么让人们明知道疫苗可能会杀死他们，但还是要求接种疫苗？**
+[!\[\]()!\[\](https://spark.adobe.com/page/cCHuI43afmxxL/images/e1f275c3-0cca-41fb-9681-9302202d5ed3.png?asset_id=1851100c-cbe8-45b0-ab24-7e99c64319a8&amp;img_etag=%22b189f715edf1ac04c2f3415a14a20c69%22&amp;size=2560)](https://spark.adobe.com/page/cCHuI43afmxxL/images/e1f275c3-0cca-41fb-9681-9302202d5ed3.png?asset_id=1851100c-cbe8-45b0-ab24-7e99c64319a8&amp;img_etag=%22b189f715edf1ac04c2f3415a14a20c69%22&amp;size=1024)一瓶中共国产的科兴生物冠状病毒疫苗。中共国的疫苗已被批准在香港、菲律宾、泰国和伊拉克使用。照片：Athit Perawongmetha/路透社
 
-维克说，当然，政府将竭尽所能，以确定病例与疫苗之间是否存在联系。 这种说词仍然为医疗机构留出了空间，以便他们以后随时可以宣布“毫无证据”表明存在联系。
+中共国正在恢复未来自数十个国家的外国人签证办理，但前提是他们必须接种了中共国产的新冠疫苗。
 
-同时，维克似乎正在试水，以查明群众是否可以完全能忍受中共病毒疫苗是致命的这一事实。由于强制实行保持距离，戴口罩和封城没有遭遇到什么阻力，因此维克的新叙述也有可能被民众接受。
+此举引起了人们对这一要求背后动机的质疑，因为中共国的疫苗在许多开放旅行的国家中并未得到批准，并且中共国不会接受包含世界卫生组织(WHO)批准的疫苗在内的、其它地方生产的外国疫苗。
 
-“也许这些人是’不幸的人们’，”维克在她的故事中进一步考虑，试图用她知道的各种可能的办法，去证明继续使用中共病毒疫苗是合理的。
+在新冠疫情流行期间，北京已基本禁止非必要的入境旅行。恢复旅行是经济复苏的关键驱动力。许多国家在实施国内疫苗推广时，也在仔细协商讨论“准许旅行区域”，或是相互认可的疫苗通行证。
 
-每年都有人们出现血块并死于脑出血。在挪威，每年有7,000至10,000例血凝块…我们将尽快得到答案。然后，卫生当局还将决定我们是否应该继续接种疫苗。
+中共国驻约20个国家的使馆本周发布了此公告。虽然公告内容略有不同，但大多承诺对部分群体恢复到流行前的签证处理流程，以便恢复“人与人之间的有序交流”。
 
-在这篇文章的这一点上，维克再次改变了方向，声称即使事实证明阿斯利康疫苗是造成这些伤害和死亡的原因，“我毫不怀疑，如果我得到接种疫苗的机会，无论如何我都会接受。”
+到目前为止，中共国使馆对来自香港、美国、英国、印度、澳大利亚、伊拉克、泰国、克罗地亚、以色列、巴基斯坦和菲律宾等地的外国人开放。任何有意入境者必须在旅行前至少14天内注射过完整的两剂疫苗或单剂疫苗，但该疫苗必须是中共国国内生产的疫苗之一。新冠肺炎测试阴性需求和隔离要求也仍然有效。
 
-这听起来很像已故的桑德罗•托格纳蒂的妻子西莫娜•里西（Simona Riussi）在丈夫死于疫苗接种之后告诉媒体。尽管她失去了重要的另一半，里西说她仍然会接种该疫苗，并鼓励其他人也这样做。
+驻美使馆发表的声明说，中共国现在将允许“外国人及其家属，以恢复在各个领域的工作和生产为目的，访问中国大陆”。声明还扩大了非紧急“人道主义需求”旅行的资格，这适用于有家庭团聚、照顾老人或患病亲戚、或参加葬礼为的来华需求的中共国公民或居民的家庭成员。
 
-“抱歉这么坦率地说：为了确保其他人的安全，必须牺牲掉一些人，”维克如此说道。 “在所有战争中都是这样。”
+[!\[\]()!\[\](https://spark.adobe.com/page/cCHuI43afmxxL/images/b3a740f2-e7f1-4b14-907c-7b1f75237ae3.png?asset_id=67489680-b90c-4415-86aa-38a4ef0502f5&amp;img_etag=%2277c185d4c26a949849e011e5b91e45a7%22&amp;size=2560)](https://spark.adobe.com/page/cCHuI43afmxxL/images/b3a740f2-e7f1-4b14-907c-7b1f75237ae3.png?asset_id=67489680-b90c-4415-86aa-38a4ef0502f5&amp;img_etag=%2277c185d4c26a949849e011e5b91e45a7%22&amp;size=1024)资料来源：《我们的数据世界》。注意：这些数字与疫苗的个人剂量有关，与疫苗接种者无关。由于大多数疫苗设计为每人两剂，因此每百人疫苗接种率将超过100。图中的数字以国家作为划分。
 
-**评：**迄今为止，全球已有20多个国家停止使用英国牛津大学参与生产制造的阿斯利康中共病毒疫苗，这一决定缘于健康人因接种该疫苗引发的血凝块导致接种人身体受损，并且造成多人失去生命。然而世界卫生组织（WHO）和一些国家的政客和医疗官员根本不顾及这些医疗事故报道，仍然坚定地支持阿斯利康疫苗。WHO主席譚德塞** （**Tedros Adhanom Ghebreyesu）声称，这些伤亡事件不一定跟该疫苗有关联，但是承诺会进行调查，并声称WHO的监控系统在有效地工作着。WHO先前说该疫苗跟血凝块没有什么联系，各国应该继续使用它。欧洲的疫苗监管机构也为该疫苗站台，说该疫苗的好处大过风险[1][2]。尽管已经有这么多血凝块副作用的报道，加拿大总理杜鲁多仍然信心十足坚持说阿斯利康疫苗是安全有效的，并坚持把该疫苗用于本国国民的接种[3]；加拿大首席卫生官员谭咏诗Dr. Theresa Tam也说没有证据表明阿斯利康疫苗有副作用，并重申加拿大人接种该疫苗的好处大过风险[4]。尽管这些政客与阿斯利康疫苗公司有无金钱利益来往，我们尚无从可知，加拿大多伦多市医疗官员Eileen de Villa也是支持阿斯利康疫苗的官僚，她根本不顾该疫苗产生血凝块副作用的报道，坚称该疫苗是有效的安全的，是最好的疫苗之一[5]；然而有报道曝光她其实是一个与大医药公司有财务往来的腐败官员，其丈夫Richard Choi从阿斯利康和辉瑞两大医药巨人公司收取现金，而这二个医药公司正在积极推广他们生产的中共病毒疫苗[6]。
+中共国首先在香港宣布了对外国人签证程序的改变。这里，中共国的科兴疫苗是已经向公众接种的疫苗之一。中共国的疫苗也已被批准在菲律宾、泰国和伊拉克使用，但在中共国提供旅行选择的其他几个国家中，中共国疫苗并未被批准使用。
 
-本文揭露了尽管有挪威的医疗机构公开承认中共疫苗正在杀人，然而媒体随即改变了宣传的调门，从之前强调疫苗是安全有效的转为强调冒死接种疫苗是一种美德，跟中共病毒的斗争是一场战争，而战争总会死人，但是为了其他人和全世界人类的安全，勇敢接种疫苗是一种值得称赞的美德，也有人被洗脑明知道疫苗会伤害人体甚至致死，仍然接受疫苗接种。世界各国政府和各大疫苗公司签有免责协议，疫苗公司不需要为疫苗接种导致的伤害或死亡承担任何责任，而世界各国政府急于恢复经济而推行疫苗接种，刻意淡化甚至隐瞒疫苗的副作用，同时各国的主流媒体也站在大疫苗制造公司的立场，为他们的利益服务，欺骗洗脑民众，大谈接种疫苗的好处，避免涉及或淡化其作用，引导他们积极接受疫苗接种。当前所有的中共病毒疫苗都是没有经过临床试验，仅仅目前出现的副作用就令人感到恐惧，而在长时间尺度上，其对人体的损害甚至致死性无人可知。中共病毒是中共制造的超限生化武器，被中共释放到全世界为了低成本地夺得控制地球人类的权力，中共病毒疫苗其实也是一个病毒生化武器，是中共进一步控制全世界的第二步，接种疫苗等同于给自己身体内注入一个定时生物炸弹。在全球中共病毒大流行仍在进行当中和中共病毒的机理机制尚没有被研究清楚的时刻，接种中共病毒疫苗无疑会带给自身巨大的生命健康风险。传播中共病毒真相，继续追溯中共病毒的来源和追究中共的责任，揭露政府部门医疗机构和国际组织和各主流媒体为中共病毒疫苗站台并洗脑麻痹民众，是以毒灭共年的主题。
+这意味着，例如澳大利亚人，由于他们只能接受医生开具的经过批准的疫苗，因此在默认情况下，他们被排除于中共国的入境许可之外。
 
-原文：Ethan Huff, “Norwegian media says some people “have to die” from coronavirus vaccines as a sacrifice to humanity”.《Natrural News》, March 19, 2021. [https://www.naturalnews.com/2021-03-19-norway-people-die-coronavirus-vaccines-sacrifice-humanity.html](https://www.naturalnews.com/2021-03-19-norway-people-die-coronavirus-vaccines-sacrifice-humanity.html)
+澳大利亚的传染病医生保罗·格里芬(Paul Griffin)说，澳大利亚的监管机构有可能最终批准中共国的疫苗，“但我不清楚他们接受澳大利亚治疗用品管理局(TGA)的审查的情况……我们肯定没有采购协议。”
 
-#### [1]  [News Editors](https://www.naturalnews.com/author/newseditors), “20+ countries suspend use of AstraZeneca vaccine, but regulators insist ‘benefits outweigh risks’”. Mar 16, 2021.** **[https://www.naturalnews.com/2021-03-16-countries-suspend-use-of-astrazeneca-vaccine.html](https://www.naturalnews.com/2021-03-16-countries-suspend-use-of-astrazeneca-vaccine.html)
+中共国的疫苗在早期因缺乏公开的实验数据受到批评和怀疑。之后，尽管报告的有效率差异很大，但现在中共国的疫苗得到了更广泛的接受。对于目前已有的疫苗而言，无论在个人还是群体层面，当使用一种以上疫苗时，阻断传播的有效性还是未知数。
 
-#### [2] [Ramon Tomey](https://www.naturalnews.com/author/ramontomeydw), “More than 20 countries halt use of AstraZeneca Wuhan coronavirus jab after suspicious deaths from blood clots”. Mar 19, 2021.** **[https://www.naturalnews.com/2021-03-19-more-countries-halt-use-astrazeneca-coronavirus-vaccine.html](https://www.naturalnews.com/2021-03-19-more-countries-halt-use-astrazeneca-coronavirus-vaccine.html)
+中共国目前拥有五种被批准用于普通或紧急用途的疫苗，其中三种疫苗还通过贸易或援助方式向其他国家销售。这种推动国际供应的举动被称为“疫苗外交”运动，其目的在于提高中共国作为全球卫生贡献者的地位，其主要着力于亚洲、非洲和南美。
 
-#### [3][John Paul Tasker](https://www.cbc.ca/news/politics/author/john-paul-tasker-1.3389288) ,** “**Trudeau says AstraZeneca vaccine is safe after some European countries suspend its use**”. **Mar 15, 2021. [https://www.cbc.ca/news/politics/trudeau-astrazeneca-safe-1.5950176](https://www.cbc.ca/news/politics/trudeau-astrazeneca-safe-1.5950176)
+周二的新闻发布会上，外交部发言人赵立坚否认该规则旨在推动其他国家承认中共国的疫苗。
 
-#### [4] CBC News, “No evidence to suggest AstraZeneca’s COVID-19 vaccine causing adverse events: Tam”. Mar 16, 2021.** **[https://www.cbc.ca/news/politics/astrazeneca-naci-65-recommendation-1.5951305](https://www.cbc.ca/news/politics/astrazeneca-naci-65-recommendation-1.5951305)
+赵立坚说：“……有关便利安排，是在充分考虑安全性和有效性基础上，……是单方面的，与疫苗认证无关。”
 
-#### [5] CP24.com, “When will life in the city return to normal? Toronto’s top doctor answers COVID-related questions”. Mar 11, 2021. [https://www.cp24.com/news/when-will-life-in-the-city-return-to-normal-toronto-s-top-doctor-answers-covid-related-questions-1.5344127](https://www.cp24.com/news/when-will-life-in-the-city-return-to-normal-toronto-s-top-doctor-answers-covid-related-questions-1.5344127)
+但事实上，中共国制造的疫苗在很多国家都(未被批准) ，无法获得，这让事情变得很困难。
 
-#### [6] [Ethan Huff](https://www.naturalnews.com/author/ethanh), “Toronto lockdown czar’s husband has “financial ties” to AstraZeneca, Pfizer”. Mar 10, 2021**. **[https://www.naturalnews.com/2021-03-10-toronto-lockdown-czar-financial-ties-astrazeneca-pfizer.html](https://www.naturalnews.com/2021-03-10-toronto-lockdown-czar-financial-ties-astrazeneca-pfizer.html)
+**🔗[原文链接](https://www.theguardian.com/world/2021/mar/17/china-to-allow-foreign-visitors-who-have-had-chinese-made-vaccine)**
 
-#  
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-##### 免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
 
-**编辑/发布：比卡丘**
+编辑：【英国伦敦喜庄园编辑部】
 
-20210320
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+[!\[\]()!\[\](https://spark.adobe.com/page/cCHuI43afmxxL/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/cCHuI43afmxxL/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
 0
