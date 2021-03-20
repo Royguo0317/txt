@@ -1,47 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [疫情下的西班牙] 我们要去拿欧洲“疫苗护照”吗？
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/991112/)
+## 【热点播报】参议员兰德-保罗在听证会上“扳倒”福奇博士
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/991164/)
 
-- 作者：gokuabuela
-
-
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2021年3月19日电/西喜社——**
-
-欧盟已经正式开始磋商“疫苗护照”的落实了，正式名称将是“绿色数字证书”。将在3个月内开始正式实施。
-
-我们先来看一看它包含哪些内容呢？然后谈谈我们的看法。
-
-1. 它有纸质版和电子版两种格式。
-2. 它的内容用双语表示，即英语和所在国的母语。（在西班牙就是英语和西班牙语）
-3. 它有一个二维码，可以通过扫描读取证书上的内容。
-4. 姓名，出生年月，针对的疫情名称（中共病毒）
-5. 状态：（共3种）
-6. 接种过疫苗：何时何地接种过何种疫苗，一共接种了几次
-7. 做过PCR核酸检测：何时何地接受过核酸检测，结果必须为阴性
-8. 感染过病毒：何时何地感染过病毒，是否已有抗体
-9. 发证机关和证书编号（据说编号使用区块链技术，很难伪造）
+作者：纽约香草山农场 四季
 
 
-**作者评：**
 
-**作为一个普通人，我们最关心的问题有3个： 隐私性、是否会引起歧视、有效性，我们分别来看看，仅代表个人观点。**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-**隐私性：根据官方说法，证书仅包含最低个人信息。我们想确切的知道，那个二维码扫描的信息，由谁负责，是否会泄露，是否会被恶意利用？（一般来说，泄露可能不大，欧洲有“资料保护法”，除非被黑客攻击，个人隐私相对保护较好）。**
 
-**是否会被记录行踪？当我们使用时，比如我去了机场，被扫描了，我去了餐厅，被扫描了，这样，个人的行踪就全部被记录了，即使是政府记录的，也是很可怕的，是不能接受的。**
 
-**歧视性： 官方说法是“仅用于方便欧盟居民在欧盟内流动”。 但是“有证据的健康人”（即有证书的人）是否会比“无证据的健康人”拥有更多的便利？不仅是旅行，甚至生活和工作。**
+据[《网关专家》（Gateway Pundit）](https://www.thegatewaypundit.com/2021/03/senator-rand-pauls-take-dr-fauci-one-history-books-video/) 3月18日的视频报道，美国参议员周四在参议院审查国家冠状病毒对策的听证会上对福奇博士大发雷霆，指责福奇博士“藐视”免疫力科学。福奇非常恼火，因为兰德-保罗敢骂他是庸医。
 
-**有效性： 抗体是否能对付所有的变种病毒？注射疫苗的人是否相当于带菌者，会感染其他人？**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image-273.png)视频新闻截图
 
-**综上所述，我们居住在欧洲的战友，除非因为工作关系，迫不得已需要流动，可以考虑做PCR核酸检测，然后申请证书，但并不能保证上述3个方面的安全性。最好的方法还是尽量留在家里。**
+身为医生的兰德-保罗对福奇说，“美国人在接种疫苗后不需要戴两个口罩，因为他们感染的几率‘几乎为零’。但你却告诉打过疫苗的人，他们有免疫力，但是还需要戴口罩，这是在藐视我们对免疫力的一切认知。”
 
-编辑：蚂蚁兄弟；校对：阿伯塔；发稿：神奇四侠
+保罗参议员还对福奇说，“你已经打过疫苗了，还戴着两个口罩到处转悠，这不就是在演戏吗？有什么证据表明变异病毒有大量的再感染？住院和死亡病例？在美国没有！零！……你是在猜测的基础上制定政策！”
 
-新闻来源：**[经济学家报](https://www.eleconomista.es/internacional/noticias/11111447/03/21/Siete-dudas-basicas-sobre-el-pasaporte-Covid19-que-es-cuando-se-solicita-como-funciona-.html)**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
+谢谢保罗参议员。如果在当下，医生对戴口罩这件事情的认知和医嘱都是错的，在医学有关的事项上，我们还能相信谁？
+
+参考阅读：
+
+[Senator Rand Paul’s Take Down of Dr. Fauci is One For the History Books](https://www.thegatewaypundit.com/2021/03/senator-rand-pauls-take-dr-fauci-one-history-books-video/)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
 0
