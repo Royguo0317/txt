@@ -1,18 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210320（图片新闻）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/993926/)
+## 中共倒打一耙攻击美国人权问题
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/994442/)
 
-- 作者：2020喜马拉雅
+- 作者：The-world
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年3月19日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/11-18.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/12-9.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/13-2.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/14-8.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/15-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/16-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/17.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/18-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/19-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/20.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/22-2.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/24-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/23-8.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/25-4.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/26-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/27-2.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/28.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/29.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/30.png)
-发稿：神奇四侠
+**西班牙2021年3月20日电/西喜社——**
 
-本文观点均来自于作者，与GNEWS无关
+中共在阿拉斯加会议上不断提及“美国人权危机”和“黑命贵”等左翼政治话题来攻击抹黑美国整体形象。
 
-0
+中国外交官杨洁箎周四在阿拉斯加安克雷奇举行的一次会议上，斥责美国国务卿托尼·布林肯和国家安全顾问杰克·沙利文并引用“黑命贵（Black Lives Matter）”来指责美国犯下侵犯人权的行为。
+
+当布林肯谈到中共在香港，新疆，台湾的不光彩的行为时，中共外交官杨洁箎反驳称:“中国坚决反对美国干涉中国内政……关于人权，我们反而希望美国在人权方面进行改进。中国在人权方面取得了稳步进展，然而，美国内部存在许多人权问题，美国人民也承认这一点……美国在人权方面面临的挑战是根深蒂固的。它们不仅出现在过去四年中，例如‘黑命贵’。”
+
+中共的环球时报还指出中共抗议华盛顿团队以“把人权置于主权之上”的理念参加会谈，这对中国人是不可接受的。
+
+另一个中共官方媒体每日中国也在推特上煽风点火，每日中国主编陈卫华发推说“在川普的无赖政权统治了四年之后，不要再考虑胁迫和勒索中国了。”
+
+这场谈话显然从最开始就不是为了解决问题，中共需要这种刺激让国内五毛小粉红集体高潮。中共谴责所谓美国人权问题显然不可理喻。但美国左翼媒体天天宣扬以黑命贵为代表的宗族矛盾显然是在为中共提供弹药。
+
+左翼媒体近几年大幅着重报道类似种族冲突事件比如最近的几次有色人种枪击案中，媒体将一个警察是否正确自卫的案例报道成美国警察或有种族歧视。
+
+任何国家都可能在某一时期出现一些人权或种族问题。但我们必须记住，中共从来都不止于种族歧视。中共对人类灭绝的程度和时间跨度冠绝古今中外，并且还在实施中。被中共残害的维吾尔族，藏族，傣族，彝族，蒙古族乃至汉族等数以亿记。意识形态和中共不同的西方遭到中共深度的渗透破坏。中共甚至研制投放中共病毒，直接威胁到了人类的生存，是有史以来最大的人类公敌。
+
+拜登政府虽然近期对中共有所行动，但政策仍然暧昧不清，不够坚决。缺乏实质性的，有力的打击。
+
+希望现任美国政府和所有西方社会乃至全世界认清真正的敌人，搁置内部争议矛盾，集中力量让中共付出灭亡的代价。
+
+编辑：Victor Torres；发稿：神奇四侠
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
++1

@@ -1,11 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 阿拉斯加会晤，我们可能不会看到双方做出妥协
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/992713/)
+## 鉴于斯威威尔被指控涉共，众议院将投票把他从情报委员会移除
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/992850/)
 
-3/18/2021 章家敦：此次阿拉斯加会晤，我们可能不会看到双方做出妥协，不会有太多的让步和收获。
+3/19/2021 众议院议员德文·努涅斯在玛丽亚的节目评论，鉴于斯威威尔被指控涉共，众议院将投票把他从情报委员会移除。
 
 By： 【秘密翻译组 G-Translators】
 
-0
+
+
++1

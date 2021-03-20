@@ -1,59 +1,123 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登的顶级外交官首次旅程中，美国和日本对中共国的侵略行为表达担忧
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/993489/)
+## 美国政要等每日重要信息0320.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/992944/)
 
-翻译：康州盘古农场 – Raul
-校对：康州盘古农场 – Mike Li
-编辑：康州盘古农场 – 轰炸机
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-据《CNN》 作者：杰西-杨，2021年3月16日报道：
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0320.jpeg)图片来源：康州盘古农场 霹雳年
+### 拜登怎么了
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-177.jpg)3月16日，美国国务卿Antony Blinken和国防部长Lloyd Austin 在东京Likura宾馆
+3月19日朱利安尼先生推文：
 
-（CNN）在周二东京的双边会谈中，美国国务卿安东尼-布林肯（Antony Blinken）批评中共国威胁地区的稳定，警告说如有必要美国和日本将反击。
+“拜登上空军一号的台阶时摔倒3次吗？腐败媒体什么时候要求一个答案？这是怎么回事？”
 
-布林肯和美国国防部长劳埃德-奥斯汀(Lloyd Austin)在东京会晤了他们的日本同行，并举行了一系列双边会谈和“2+2”联合会议，这是拜登内阁官员的首次国际访问。
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-279.png)
 
-就在此之前，美国总统拜登在周五一次虚拟峰会上会见了印度、澳大利亚和日本的领导人这是他就任总统以来的首次多边峰会。
 
-“我们相信民主，人权和法治，因为我们看到我们自己的国家因为我们坚持这些价值观而变得更加强大。因为他们在包括本地区在内的许多地方都在威胁之下” 布林肯在东京举行的联合新闻发布会上说。他还以缅甸最近发生的军事政变和大规模的抗议活动为例。
+19日小唐纳德-川普发推称：
 
-“中国使用胁迫和侵略，系统性的侵蚀香港的自治，消弱台湾的民主，侵犯新疆和西藏的人权，并在南海主张违反国际法的海洋权利”他补充说。“当中国为了达到目的而使用胁迫或侵略手段时，如有必要，我们将予以回击”
+“普京刚刚向乔-拜登发起挑战，进行了一场没有台词的现场辩论。全世界都知道，我们的高层没有领导力，只有一个拿着提词器的空头西装（就这他都做不好）。他们看着美国现在的弱点，垂涎欲滴。”
 
-奥斯汀对记者表示，中国在过去20年里一直致力于军事现代化，而美国却专注于中东地区，“因此，我们的目标是确保我们对中国或任何威胁我们或我们同盟的国家保持竞争优势” 他表示。我们制定了能够威慑任何侵略者的行动计划和能力。
+朱利安尼先生回复称：“也许哈里斯副总统可以做替身？”
 
-日本外务大臣茂木俊光（Toshimitsu Motegi）表示，过去几年印太地区的战略环境发生了变化，无论在军事能力方面，还是在力量平衡方面。
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-280.png)
 
-茂木说：“自由开放的国际秩序受到试图通过武力改变现状和独裁制度进步的挑战”
 
-他说，华盛顿和东京“一致认为，中国的行为不符合现有的国际秩序，是针对日美联盟和国际社会提出的各种问题”
 
-茂木说美国和日本“反对任何试图改变现状的区域包括东海和南海，和共享的一个严重的问题对于中国的海岸警卫队法律”他指的是今年2月中国颁布的法令，允许起海岸警卫队对进入有争议的南海水域的外国船只开火。
 
-茂木还表示，美国已重申帮助日本保卫尖阁列岛（Senkaku）的承诺。尖阁列岛是东海上一系列有争议的岛屿，中国称其为“钓鱼岛及其附属岛屿”，并声称其主权是自己的。
+来自《真正美国之音》的“唯有真相”，珍娜-爱丽丝称，”今晚的表扬要颁给乔-拜登，他今天勇敢而真实地承认了卡马拉-哈里斯总统。也许这就是哈里斯-拜登政府的团结努力”。
 
-中国外交部发言人赵立坚周二表示，美国和日本之间的交流应该有助于增进该地区国家之间的相互理解和信任，“不针对和损害任何第三方的利益”
+周五川普前高级顾问斯蒂芬-米勒接受福克斯新闻采访时警告说，拜登总统的言行正在成为一场 “国家安全危机”。他们在公开嘲笑我们，在嘲笑拜登总统，这很丢脸。他们公开嘲笑和侮辱我们，因为我们没有最高统领，没有总统。他还说，这是精心铺好的地毯，也不滑，拜登摔了三次，他是健康出问题了吗。他之后愤怒地说，“比如在阿拉斯加发生的事情，中（共）国敢在人权问题上教训我们。而安东尼-布林肯（国务卿）和杰克-沙利文（国家安全顾问）就这样坐以待毙！这些都是因为我们家里没有总统，其他国家看到了这个弱点。”
 
-**缅甸和北韩也在议程之上**
+福克斯新闻主播汉尼迪 称，拜登让美国尴尬了，普金一定会嘲笑他。看看昨日中（共）国官员对我们人权的谴责，我们的回答就是“为这些错误表示抱歉”，中（共）国看看你们用病毒对世界做了什么！
 
-美国国务院一份声明称，布林肯和茂木“谴责缅甸的政变和暴力行为，对中华人民共和国扩大独裁和侵略行动表示关切，并同意在这些问题上加强类似的协调”
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Untitled-4.png)
 
-拜登政府此前曾批评缅甸正在进行的暴力活动。最近几周，由于军方试图镇压大规模的平民抗议活动，暴力活动加剧。 政治犯援助会（Assistance Association for Political Prisoners）的数据显示，自军方2月1日夺取政权以来，安全部队向和平抗议者开枪，至少126人死亡。
+[https://www.foxnews.com/politics/stephen-miller-biden-frailty-national-security-crisis](https://www.foxnews.com/politics/stephen-miller-biden-frailty-national-security-crisis)
+### 美国边境危机和特赦
 
-会谈中，布林肯也强调了两个国家之间“强大的和重要的”经济关系
+议员Mo Brooks发推称：“正如我所说 @toddstarnes（媒体人）如果你给予大赦，那么那些想来美国的人就会说，’嘿，我可以违反美国的法律，我可以唾弃他们的宪法，因为最终他们会原谅我，让我留下来。不能特赦。”
 
-他表示：“我们选择日本作为拜登哈里斯政府首次内阁级别出访的目的地，这并非偶然”他说：“日本和美国在我们这个时代的关键问题上进行了深度合作，这些问题实际上影响我们公民的生活，无论是应对气候变化，处理网络安全问题，还是处理全球卫生安全问题”
 
-根据美国国务院的一份声明，两国重申了他们对朝鲜无核化的承诺，并且为美国，日本和韩国之间进一步的三边合作创造机会。
 
-布林肯说，拜登政府一直试图通过多种渠道与朝鲜接触，但平壤迄今一直不予回应。奥斯汀补充说，朝鲜半岛无核化任然是美国任务，与韩国和日本结盟是美国对抗朝鲜威胁的最重要的工具。
+> As I told [@toddstarnes](https://twitter.com/toddstarnes?ref_src=twsrc%5Etfw), if you give amnesty, then the people who want to come to America say, ‘Hey, I can break America’s laws. I can spit on their Constitution because ultimately they’ll forgive me and let me stay.’ NO AMNESTY.
+>  [https://t.co/PgoJKzkXAr](https://t.co/PgoJKzkXAr)
+> — Mo Brooks (@RepMoBrooks) [March 19, 2021](https://twitter.com/RepMoBrooks/status/1372926648681697285?ref_src=twsrc%5Etfw)
 
-周二议程上的其它问题包括美日供应链、清洁能源、Covid-19后的经济复苏，以及如何预防进一步的大流行。双方重申，将致力于实现脱碳，扩大清洁能源技术，并在2050年前实现温室气体净零排放。
 
-布林肯 和 奥斯汀计划在访问的晚些时候会见日本首相菅义伟，然后前往韩国会见他们的同行。据美国有限电视新闻网此前的报道，一名美国政府高级官员称，菅义伟将成为拜登总统任期内首位访问美国的外国领导人。
 
-文章来源：[https://www.cnn.com/2021/03/16/politics/blinken-austin-japan-trip-intl-hnk/index.html](https://www.cnn.com/2021/03/16/politics/blinken-austin-japan-trip-intl-hnk/index.html)
+瑞克-斯科特参议员19日发推称：“今天，亚利桑那州州长@Dougducey和我亲眼目睹了南部边境的人道主义危机，这是由美国总统的灾难性开放边境政策和大赦政策造成的。现在是他对这场危险的危机采取行动的时候了，以保证美国人的安全和保障边境的安全。”
 
-0
+
+
+> Today, AZ Gov [@dougducey](https://twitter.com/dougducey?ref_src=twsrc%5Etfw) & I saw firsthand the humanitarian crisis along the Southern border, caused by [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw)’s disastrous policies of open borders & amnesty. It's time he takes action on this dangerous crisis to keep Americans safe & SECURE THE BORDER: [https://t.co/wFe4o8bH2M](https://t.co/wFe4o8bH2M) [pic.twitter.com/T0HFEpahqi](https://t.co/T0HFEpahqi)
+> — Rick Scott (@SenRickScott) [March 19, 2021](https://twitter.com/SenRickScott/status/1373022193148366850?ref_src=twsrc%5Etfw)
+
+
+
+### 一再被夸张的“种族主义”
+
+19日美国驻联合国大使琳达发推称：“在美国总统的方向上，我们在联合国升半旗，纪念本周亚特兰大可怕悲剧的受害者。我们必须团结一致，反对种族主义的祸害，这是非常重要的。团结起来，我们就有力量。”
+
+当日白宫发言人纳得转推称，“对于美国总统和整个政府，结束种族歧视是我们的首要任务。我们要求其他国家批准和执行《消除一切形式种族歧视国际公约》，与我们一道打击种族主义。”
+
+
+
+> Ending racial discrimination is a top priority for [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) and the entire administration. We ask that other nations join us in fighting racism by ratifying and implementing the International Convention on the Elimination of All Forms of Racial Discrimination. [https://t.co/gg6t2AE5oE](https://t.co/gg6t2AE5oE)
+> — Ned Price (@StateDeptSpox) [March 19, 2021](https://twitter.com/StateDeptSpox/status/1373031934356549640?ref_src=twsrc%5Etfw)
+
+
+
+19日福克斯新闻称“哈里斯明显抹黑川普，称 “拥有最大讲坛 “的人对亚裔美国人喷出仇恨。” 川普总统放弃爆料革命天赐良机在病毒战中的优势，甚至因迁就“中共”始终未敢把“中共病毒”说出口，终于迎来痛击。在与中共战斗的过程中，郭先生讲得精辟“真、善、狠”，任何骑墙、妥协、虚伪和软弱，都没有出路，革命无间道啊。
+
+
+
+> Harris, in apparent swipe at Trump, says people ‘with the biggest pulpits’ spewed hate toward Asian Americans [https://t.co/DTFAapNonB](https://t.co/DTFAapNonB)
+> — Fox News (@FoxNews) [March 19, 2021](https://twitter.com/FoxNews/status/1373053365345738752?ref_src=twsrc%5Etfw)
+
+
+[https://www.foxnews.com/politics/harris-trump-people-pulpits-spewed-hate-asian-americans](https://www.foxnews.com/politics/harris-trump-people-pulpits-spewed-hate-asian-americans)
+### 美中“厕所会谈”
+
+马克-卢比奥议员19日就美中阿拉斯加厕所会晤发推称：“中共官员在阿拉斯加发的外交脾气表明，我们不可能与北京（中共国政府）的敌对和种族灭绝政权进行建设性对话。拜登政府必须接受这一现实，站起来应对中共的威胁。”
+
+
+
+> The diplomatic temper tantrum thrown by Chinese Communist Party officials in Alaska shows that we cannot have constructive dialogue with the hostile and genocidal regime in Beijing. The Biden Administration must accept that reality and rise to meet the threat posed by the CCP.
+> — Marco Rubio (@marcorubio) [March 20, 2021](https://twitter.com/marcorubio/status/1373101461895319555?ref_src=twsrc%5Etfw)
+
+
+
+
+
+### 蹭川普热度
+
+20日据福克斯新闻，川普前日揶揄要参加2024年总统竞选，潜在的共和党竞争对手开始提前造访。
+
+
+
+> As Trump teases a 2024 presidential run, potential GOP rivals start making early visits[https://t.co/BghWmUW5Je](https://t.co/BghWmUW5Je)
+> — Fox News (@FoxNews) [March 20, 2021](https://twitter.com/FoxNews/status/1373227602593390598?ref_src=twsrc%5Etfw)
+
+
+
+### 谴责拜登
+
+众议员提名人安娜接受Newsmax 采访时称，“乔拜登被中（共）国收买了，川普总统或许没有“政治正确”，然而现在的政府太软弱了，没有把美国摆在国际范围上正确的位置。”
+
+
+
+### 军事成就
+
+3月18日NASA公布，“8分钟后，SLS火箭的#阿尔忒弥斯一号核心级试验成功火箭。”
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image-278.png)[https://blogs.nasa.gov/artemis/2021/03/18/green-run-update-full-duration-hot-fire-successfully-completed-on-mar-18/](https://blogs.nasa.gov/artemis/2021/03/18/green-run-update-full-duration-hot-fire-successfully-completed-on-mar-18/)
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+
++1

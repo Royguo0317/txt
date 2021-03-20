@@ -1,31 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：杨洁篪是否严重失态
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/993885/)
+## 慧眼看世界20210320（图片新闻）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/993926/)
 
-出品：《路德社》编辑：《路德社》精选新闻专栏组
-
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/电风扇的.png)
-
-据《法广》3月20日报道，中共中央负责外事最高官杨洁篪在阿拉斯加美中对话的一长串“反击”引发中国官媒高赞，激化新一波反美情绪，但在此间舆论看来，作为一名外交官，且是中国外交首领，重大国际场合如此“露脸”，是否有点“失态”？
-
-中美这场对话，开场白火力全开，东道主，美国国务卿布林肯简短指责中方破坏规则，威胁全球稳定，他举例中方在香港、新疆以及西藏、台湾的所作所为令美方严重关切。美国安全顾问沙利文则称美国不寻求与中国冲突，但欢迎激烈竞争。
-
-杨洁篪随后反击，反劝美国先顾好本国“屠杀”非裔等人权问题，还愤怒地说道：“我把你们想得太好了，我们以为你们会遵守基本的外交礼节。我现在讲一句，你们没有资格在中国的面前说，你们从实力的地位出发，同中国谈话。20年前、30年前你们就没有这个地位，因为中国人是不吃这一套的。”
-
-这就是中共的“战狼外交”作风，一场如此高级别外交会谈，却毫无外交礼节可言，跟泼妇骂街无异，也打破了任何美中关系可能重置的幻想。
+- 作者：2020喜马拉雅
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-[原文链接](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210319-%E6%9D%A8%E6%B4%81%E7%AF%AA%E6%98%AF%E5%90%A6%E4%B8%A5%E9%87%8D%E5%A4%B1%E6%80%81)
+**西班牙2021年3月19日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/11-18.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/12-9.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/13-2.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/14-8.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/15-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/16-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/17.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/18-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/19-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/20.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/22-2.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/24-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/23-8.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/25-4.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/26-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/27-2.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/28.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/29.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/30.png)
+发稿：神奇四侠
 
-【文章仅限作者个人观点】
-
-本文作者：Mayana
-
-审核校对：鲁邦五世
-
-上传排版：玫瑰新闻组
+本文观点均来自于作者，与GNEWS无关
 
 0
