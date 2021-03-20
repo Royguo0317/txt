@@ -1,24 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评粤语快报】03.18:解析美韩联合声明只字未提中共国 阿拉斯加中美会谈中共采取战狼姿态
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/991437/)
+## 慧眼看世界20210319（图片新闻）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/991450/)
 
-制作团队：【喜马拉雅-粤语组】打杂的、螃蟹团长
-
-
-
-主要内容
-
-1. 美韩联合声明中只字未提中共国。东北亚洲局势关系亚太地区稳定，朝鲜半岛因为历史因素成为东北亚的核心，近百年来都像火药桶一样，是主要的热点。在远东地区谁能夺得东北即可以控制亚太。韩国由于地缘因素加上长期受中共渗透，政治局势复杂。美国布林肯此次访韩显示美国重视韩国，积极将韩国列入对抗中共的联盟。在此次美韩联合声明中未有提及中共的议题并不表示韩国对抗中共国的态度软弱，极大可能因为韩国地处中国及朝鲜边界，政治局势敏感，美韩联合声明是对外的，不排除另外有内部协议。美韩声明中提及美日韩三边合作的重要性，虽然美日韩之间的关系过去都有许多矛盾，但是透过本次会面，确定了三方的合作关系及日本在地区性的战略领导地位。相信中共已经意识到美国灭共的坚定心意，预期中共国的牵制战术未来会在两个地区有所动作：分别是东北亚和西北的新疆，其中牵涉到民族、地缘政治、宗教等问题，而美国的亚洲之行与日韩会面显示美方也将会有一系列行动。
-2. 阿拉斯加中美会谈开始，中共采取战狼姿态，双方开场气氛紧张。中美双方正在阿拉斯加会面，美国国务卿布林肯计划在会面中提出中共在新疆、香港、西藏、台湾等地区的行为是违反人权及破坏国际秩序。中方代表王毅及杨洁篪反控诉美国是网络攻击的始祖并且在美国历史上杀害黑人，美方应该先处理自身的人权问题。中美双方开场气氛紧张，会议进行方式类似辩论会，双方各自轮流陈词两分钟，中方激动而且强硬的言论使各方及媒体惊讶。会面如此紧张的开场，意味着私下协商的沟通渠道已经截断，所有讨论只可以在台面上摊开来针锋相对。从此中共国在外交上已经很难以大国的身份与美国对等相交。美国政府经过几年的长期观察、评估，此次与日韩会面，将日本在亚洲的战略地位提升后，面对中方如此的激进态度，已经可以印证并且落实中共国对全球的侵略意图，美国接下来的行动将有明确方向。
-3. 中方派出王毅及杨洁篪代表互为牵制。此次中美会面，王毅和杨洁篪同为中方代表，互相牵制，反映习、江两派内斗的微妙关系。王毅和杨洁篪年龄相近：王毅出身外交世家，主力在亚洲区，特别是在日本；杨洁篪生于上海，属于上海帮，出身平民家庭，早年入外交圈担任驻美大使，曾为老布殊总统翻译，之后在八九年帮中共解脱危机，在美国有深入且稳固的人脉关系，与美国共和党、建制派有良好关系。但是即使杨洁篪在美国掌握有丰富的人脉及经济资源，在中共病毒及新疆种族灭绝这些议题之下，因为爆料革命战友的努力，中共将无法像八九年一样开脱罪名，逃过被审判的命运。
+- 作者：2020喜马拉雅
 
 
-详细内容请观看路德youtube频道
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-【路德时评】[原视频链接1](https://youtu.be/PuDBxoWMnHs)  [原视频链接2](https://youtu.be/JxoHZVq1BFI)
+**西班牙2021年3月19日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/11-12.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/12-12.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/13-7.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/15-6.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/16a.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/17-6-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/18-6-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/20-4.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/49-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/50-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/51a.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/52.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/53-3.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/54.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/57.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/58.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/59-scaled.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/62-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/70-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/79.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/91b.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/95.jpg)
+发稿：神奇四侠
 
-上传：流光飞舞
+本文观点均来自于作者，与GNEWS无关
 
 0
