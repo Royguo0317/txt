@@ -1,22 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国知名经济学家登特警告:美国经济“史，上最惨烈的崩盘”将在6月底发生（玫瑰看新闻2021/03/19 第60期）
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/994668/)
+## 数千德国人举行有关中共病毒措施的抗议活动
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/994850/)
 
-本期焦点新闻摘要：
-\*美国务卿支持日本为举办奥运所作努力
+- 编辑：Victor Torres
+- 发稿：Ranting
 
-\*美国知名经济学家登特警告:美国经济“史，上最惨烈的崩盘”将在6月底发生
 
-\*台湾建议缅甸台资挂立青天白日旗避免遭反华打砸
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-\*荷兰宣布暂停接种AZ疫苗:忧心出现副作用
+**西班牙2021年3月20日电/西喜社——**据美联社3月20日报道，数千人参加了周六在德国卡塞尔举行的有关中共病毒措施的抗议活动。
 
-\*多米诺骨牌效应:欧洲多国暂停打AZ疫苗
+德国新闻社dpa称，抗议者与警察发生冲突，警察对试图冲破警察障碍的人使用了胡椒喷雾和警棍。此外，还与反抗议者发生了几起冲突。
 
-\*爱沙尼亚总理检测阳性反应人均感染率全球第2高
+在柏林，约有1800名警察待命，但只有几十名抗议者聚集在该市地标性建筑勃兰登堡门。
 
-\*英国基因组测序专家:人们需要定期接种加强版疫苗来应对病毒变种
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ce3b5bbb-9f92-477a-8591-4fabc4df3884-1.jpg)
+
+**新闻来源：[美联社](https://apnews.com/article/europe-global-trade-coronavirus-pandemic-ursula-von-der-leyen-coronavirus-vaccine-1f08aa923ea77883b7473bdded65788f)**
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
 
 0
