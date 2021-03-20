@@ -1,31 +1,18 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武汉去年4月已逾130万人感染！《刺胳针》打脸中国数据
-` 喜马拉雅大使馆-经济金融组` [轉載自GNews](https://gnews.org/zh-hans/993942/)
+## 慧眼看世界20210320（图片新闻）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/993926/)
 
-编撰：文W，PEACEMAN
-复核：七角星
+- 作者：2020喜马拉雅
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-180.jpg)图片来自参考链接
 
-去年ccp病毒疫情在中国爆发后，真实死亡人数与确诊人数成谜。顶尖国际医疗期刊《刺胳针》（The Lancet）最新报告：武汉去年四月感染人数超过130万，远远多于官方报告的案例数量。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-《美国之音》称，发表在《刺胳针》的这篇论文，是对中国武汉市居民进行的首次长期血清流行病学研究。研究人员在2020年4月武汉解除封锁后，检测了武汉13个区的3556个家庭中的9542人的抗体，随后在同年6月和10月至12月期间又一次进行了抗体检测。
+**西班牙2021年3月19日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/11-18.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/12-9.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/13-2.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/14-8.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/15-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/16-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/17.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/18-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/19-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/20.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/22-2.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/24-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/23-8.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/25-4.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/26-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/27-2.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/28.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/29.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/30.png)
+发稿：神奇四侠
 
-这些检测案例中，有532人对武肺病毒的抗体检测呈阳性，这一结果相当于武汉市人口中的血清阳性率估计为6.9%。这意味着，湖北省会武汉市1900万人口中，ccp病毒的感染人数在去年4月已超过130万。
-
-在这些产生抗体的人群中，40%的人在4月份产生了防止今后感染的中和性抗体，无论个人是否有症状，这些抗体至少在9个月的时间里保持了稳定。
-
-这项研究是由中国的医学研究人员进行，论文主要作者是中国医学科学院北京协和医学院院校长、呼吸病学与危重症医学专家王辰，由于官方缺乏透明度且试图压制报导疫情的记者，中国实际确诊数字至今仍遭到国际社会质疑。
-
-2021年3月初，一项由中国疾控中心与英国牛津大学发布于《英国医学期刊》（BMJ）的研究显示，2020年前3个月的全中国「超额死亡」中，武汉市的总体死亡率就比预期还高出56%，推测武汉肺炎疫情使死亡人数增加8倍。
-
-此前，美国华盛顿大学医学院和俄亥俄州立大学指出，从武汉火化场发出的骨灰盒数量，以及各项踪迹证据显示，武汉真实死亡人数为官方数据的10倍以上。
-
-点评：中共依靠谎言杀戮起家建政，说谎的恶习一直完整保留至今且从未减缓过，从建政之初许给百姓的民主自由，从亩产万斤，从电价8分钱，从计划生育政府来养老，从每年的经济统计数据，从2020年实现百姓的脱贫一直到新冠疫情每日装模作样地报出的数字都是谎言连着谎言的弥天大谎。中共用谎言和宣传可以蒙蔽一时，可以迷惑一部分人，但绝不可能把所有世人一直蒙蔽和迷惑，而在病毒真相报道当中，爆料革命一直站在最前线地方，在给美国等西方国家传递病毒真相，也让美国等西方政客和人民开始觉醒，最终西方会采取以毒灭共，把ccp扫进历史垃圾堆！
-
-参考链接：
-[武漢去年4月已逾130萬人感染 ！《刺胳針》打臉中國數據](https://news.ltn.com.tw/news/world/breakingnews/3472444)
+本文观点均来自于作者，与GNEWS无关
 
 0
