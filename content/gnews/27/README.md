@@ -1,55 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美就阿拉斯加会谈单方面发表声明
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/994605/)
+## 中共疫苗外交：外国人入境必须接种过中共国产疫苗
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/994659/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+新闻来源：《卫报 (TheGuardian) 》| 作者：海伦·戴维森 (Helen Davidson) | 发布时间：2021年3月17日
 
-编辑上传   水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/S-9-7.jpg)ussanews.com
-美国国务卿布林肯（Antony J. Blinken）和国家安全顾问杰克·沙利文（Jake Sullivan）在阿拉斯加与中共外交官员会面后，向媒体发表声明【1】，全文如下：
+翻译/简评：helloworld | 校对/审核：Beicy-数学老师 | Page：Daoiii
 
-媒体评论
+[!\[\]()!\[\](https://spark.adobe.com/page/cCHuI43afmxxL/images/8fc5bfd4-85ee-48f8-b8e8-7f392fed4bf1.jpg?asset_id=888ebee1-0f3b-4e5e-82df-15c1696db892&amp;img_etag=%22233406dc2b86f9d105c2b9273343cec5%22&amp;size=1024)](https://spark.adobe.com/page/cCHuI43afmxxL/images/8fc5bfd4-85ee-48f8-b8e8-7f392fed4bf1.jpg?asset_id=888ebee1-0f3b-4e5e-82df-15c1696db892&amp;img_etag=%22233406dc2b86f9d105c2b9273343cec5%22&amp;size=1024)金刚狼战友绘画作品《皇帝疫夢》
 
-美国国务卿安东尼·布林肯
+***简评：***
 
-库克船长酒店
+中共仅允许接种中共国生产疫苗的外国游客入境，而由于中共国疫苗仅被少数国家承认，此举引发了对中共目的的质疑。如澳大利亚人等只能接受医生开具的经过批准的疫苗，事实上被排除在了中共国允许入境范围之外。悉尼大学的传染病及疫苗专家表示，中共国此举是“好兆头”，但限制疫苗种类将问题变得复杂，并希望中共国能够认可任何具有良好声誉的疫苗。
 
-阿拉斯加州安克雷奇
+中共国此举正赤裸裸地绑架中国人民以及海外华人，为其政治目的向外国施压。虽然中共之恶人尽皆知，但“只需注射疫苗就可完成手续”的诱惑将驱使大多数普通人向当地政府施压，从而达到中共利用他们实现疫苗推广的目的。其次，目前世卫组织因道德和实际考量仍表态反对疫苗护照，但中共此举为国际上希望推动疫苗普及以及疫苗护照的邪恶势力充当了“马前卒”，给了各国以“对等报复”为由将疫苗护照变为既成事实的借口。同时，此举也可为中共未来闭关锁国提供道义掩护。中共向来倾向于营造潜规则为己谋利。而必须注射中共国疫苗，即能成为其宣传“我们已开放国门”但事实上无人能够出入的关键环节。而无论中共疫苗的有效率存疑、向他国政府施压、造成疫苗护照事实，以及闭关锁国，伤害的都是中国人以及华人同胞。
 
-2021年3月19日
+[!\[\]()!\[\](https://spark.adobe.com/page/cCHuI43afmxxL/images/5e240a78-a64a-473e-b0c4-a54489edfaf0.jpg?asset_id=fba9aa1f-c6db-4466-866b-9d49b726ae0c&amp;img_etag=%22e81c0626707f2bb24e2d1bb09e57700e%22&amp;size=1024)](https://spark.adobe.com/page/cCHuI43afmxxL/images/5e240a78-a64a-473e-b0c4-a54489edfaf0.jpg?asset_id=fba9aa1f-c6db-4466-866b-9d49b726ae0c&amp;img_etag=%22e81c0626707f2bb24e2d1bb09e57700e%22&amp;size=1024)
 
-布林肯国务卿：大家早上好，我有几件事要说。在过去的几天里，我和杰克花了几个小时与中共国同行交谈。我们当然知道，清楚，在一些领域，我们是根本不一致的，包括中共国在新疆的行动，包括香港、西藏、不断增加的台湾（问题），以及在网络空间采取的行动。
+中共正在绑架中国人完成其后疫情时代的政治野心。而其蓄意制造并投放病毒、重创世界的真相将彻底瓦解其邪恶图谋。对于中国人以及海外华人，只有将真相广而告之，才能够让全世界的怒火对准真正的罪魁祸首。这不仅将挽救中国人以及华人的国际形象，也将会把CCP红魔彻底从这个世界铲除，从而真正从中共的绑架中得以解脱。
 
-毫不奇怪，当我们明确而直接地提出这些问题时，我们得到了（他们）有戒心的回应，但我们也能够在这么长时间里，在一个宽泛的议程上进行非常坦诚的交谈。在伊朗、朝鲜、阿富汗、气候问题上，我们的利益交织在一起。在经济、贸易和技术方面，我们告诉我们的同行，我们正在与国会、我们的盟友和伙伴密切磋商，审查这些问题。我们将继续前进，以充分保护和促进工人和企业的利益。
+***原文翻译：***
 
-回顾一下，我们到这里与中共国同行会晤时想做的两件事：第一，我们要与他们表现出一致的重大关切，关切中共国所采取的一系列行动，以及我们的盟国和伙伴所共同表现出要关切的（中共国的）行为。我们做到了，我们还想非常清楚地阐述我们自己的政策、优先事项和世界观，我们也做到了。
+## 中共国将只允许接种过中共国产疫苗的外国来访者入境
 
-杰克，（该你了）。
+[!\[\]()!\[\](https://spark.adobe.com/page/cCHuI43afmxxL/images/e1f275c3-0cca-41fb-9681-9302202d5ed3.png?asset_id=1851100c-cbe8-45b0-ab24-7e99c64319a8&amp;img_etag=%22b189f715edf1ac04c2f3415a14a20c69%22&amp;size=2560)](https://spark.adobe.com/page/cCHuI43afmxxL/images/e1f275c3-0cca-41fb-9681-9302202d5ed3.png?asset_id=1851100c-cbe8-45b0-ab24-7e99c64319a8&amp;img_etag=%22b189f715edf1ac04c2f3415a14a20c69%22&amp;size=1024)一瓶中共国产的科兴生物冠状病毒疫苗。中共国的疫苗已被批准在香港、菲律宾、泰国和伊拉克使用。照片：Athit Perawongmetha/路透社
 
-国家安全顾问沙利文：谢谢大家，正如国务卿所说，我们希望就一系列广泛的问题进行强硬和直接的会谈，而这正是我们所做的。我们有机会阐述我们的重点和目标，听取了中方的重点和意图。我们是光明磊落地进出，回到华盛顿，我们会评估这里（发生的情况）。在向前行进的道路上，我们将继续与盟国和伙伴磋商，当然，也将通过正常的外交渠道就从伊朗到阿富汗的问题进行磋商。我们将继续与中共国合作。
+中共国正在恢复未来自数十个国家的外国人签证办理，但前提是他们必须接种了中共国产的新冠疫苗。
 
-因此，我们感谢你们在这里所花的时间，我们期待着开始着手工作，促进美国的利益和价值观。
+此举引起了人们对这一要求背后动机的质疑，因为中共国的疫苗在许多开放旅行的国家中并未得到批准，并且中共国不会接受包含世界卫生组织(WHO)批准的疫苗在内的、其它地方生产的外国疫苗。
 
-（原文完）
+在新冠疫情流行期间，北京已基本禁止非必要的入境旅行。恢复旅行是经济复苏的关键驱动力。许多国家在实施国内疫苗推广时，也在仔细协商讨论“准许旅行区域”，或是相互认可的疫苗通行证。
 
-评：这不是两国联合声明，是美国单方面向媒体发表的声明，CCP病毒只字未提，也许是杨娘娘一通蛮横表演哄骗国内民众之外的另一个收获。
+中共国驻约20个国家的使馆本周发布了此公告。虽然公告内容略有不同，但大多承诺对部分群体恢复到流行前的签证处理流程，以便恢复“人与人之间的有序交流”。
 
-中共国获得的收获还有，“……进行磋商，继续合作”，无论就什么议题，只要有缝，就有机会。
+到目前为止，中共国使馆对来自香港、美国、英国、印度、澳大利亚、伊拉克、泰国、克罗地亚、以色列、巴基斯坦和菲律宾等地的外国人开放。任何有意入境者必须在旅行前至少14天内注射过完整的两剂疫苗或单剂疫苗，但该疫苗必须是中共国国内生产的疫苗之一。新冠肺炎测试阴性需求和隔离要求也仍然有效。
 
-更何况，王毅明目张胆地作了提醒和暗示，“……布林肯国务卿，国安顾问沙利文，你们与中共的关系已经有很多年了，所以你也是中国人民真正的朋友……”（引自美国国务院网站）【2】，谁都知道，布林肯在拜登儿子的公司与中共国打交道多年，留点故事在所难免。
+驻美使馆发表的声明说，中共国现在将允许“外国人及其家属，以恢复在各个领域的工作和生产为目的，访问中国大陆”。声明还扩大了非紧急“人道主义需求”旅行的资格，这适用于有家庭团聚、照顾老人或患病亲戚、或参加葬礼为的来华需求的中共国公民或居民的家庭成员。
 
-白宫发言人说过，将根据这次会面情况决定是否举行“拜习会面”【3】
+[!\[\]()!\[\](https://spark.adobe.com/page/cCHuI43afmxxL/images/b3a740f2-e7f1-4b14-907c-7b1f75237ae3.png?asset_id=67489680-b90c-4415-86aa-38a4ef0502f5&amp;img_etag=%2277c185d4c26a949849e011e5b91e45a7%22&amp;size=2560)](https://spark.adobe.com/page/cCHuI43afmxxL/images/b3a740f2-e7f1-4b14-907c-7b1f75237ae3.png?asset_id=67489680-b90c-4415-86aa-38a4ef0502f5&amp;img_etag=%2277c185d4c26a949849e011e5b91e45a7%22&amp;size=1024)资料来源：《我们的数据世界》。注意：这些数字与疫苗的个人剂量有关，与疫苗接种者无关。由于大多数疫苗设计为每人两剂，因此每百人疫苗接种率将超过100。图中的数字以国家作为划分。
 
-我们将拭目以待！
+中共国首先在香港宣布了对外国人签证程序的改变。这里，中共国的科兴疫苗是已经向公众接种的疫苗之一。中共国的疫苗也已被批准在菲律宾、泰国和伊拉克使用，但在中共国提供旅行选择的其他几个国家中，中共国疫苗并未被批准使用。
 
-参考链接：
+这意味着，例如澳大利亚人，由于他们只能接受医生开具的经过批准的疫苗，因此在默认情况下，他们被排除于中共国的入境许可之外。
 
-【1】[https://www.state.gov/secretary-antony-j-blinken-and-national-security-advisor-jake-sullivan-statements-to-the-press/](https://www.state.gov/secretary-antony-j-blinken-and-national-security-advisor-jake-sullivan-statements-to-the-press/)
+澳大利亚的传染病医生保罗·格里芬(Paul Griffin)说，澳大利亚的监管机构有可能最终批准中共国的疫苗，“但我不清楚他们接受澳大利亚治疗用品管理局(TGA)的审查的情况……我们肯定没有采购协议。”
 
-【2】[https://www.state.gov/secretary-antony-j-blinken-national-security-advisor-jake-sullivan-chinese-director-of-the-office-of-the-central-commission-for-foreign-affairs-yang-jiechi-and-chinese-state-councilor-wang-yi-at-th/](https://www.state.gov/secretary-antony-j-blinken-national-security-advisor-jake-sullivan-chinese-director-of-the-office-of-the-central-commission-for-foreign-affairs-yang-jiechi-and-chinese-state-councilor-wang-yi-at-th/)
+中共国的疫苗在早期因缺乏公开的实验数据受到批评和怀疑。之后，尽管报告的有效率差异很大，但现在中共国的疫苗得到了更广泛的接受。对于目前已有的疫苗而言，无论在个人还是群体层面，当使用一种以上疫苗时，阻断传播的有效性还是未知数。
 
-【3】https://gnews.org/zh-hans/991643/
+中共国目前拥有五种被批准用于普通或紧急用途的疫苗，其中三种疫苗还通过贸易或援助方式向其他国家销售。这种推动国际供应的举动被称为“疫苗外交”运动，其目的在于提高中共国作为全球卫生贡献者的地位，其主要着力于亚洲、非洲和南美。
+
+周二的新闻发布会上，外交部发言人赵立坚否认该规则旨在推动其他国家承认中共国的疫苗。
+
+赵立坚说：“……有关便利安排，是在充分考虑安全性和有效性基础上，……是单方面的，与疫苗认证无关。”
+
+但事实上，中共国制造的疫苗在很多国家都(未被批准) ，无法获得，这让事情变得很困难。
+
+**🔗[原文链接](https://www.theguardian.com/world/2021/mar/17/china-to-allow-foreign-visitors-who-have-had-chinese-made-vaccine)**
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/cCHuI43afmxxL/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/cCHuI43afmxxL/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
