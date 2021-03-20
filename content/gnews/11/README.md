@@ -1,18 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210320（图片新闻）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/993926/)
+## 欧盟将连续三个月就维吾尔族“种族灭绝”对中国实施制裁
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/994291/)
 
-- 作者：2020喜马拉雅
+编辑：喜马拉雅农场联盟新西兰奥克兰伊甸农场
+编撰：Ray裁决
 
+路透社报道：“两名外交官说，欧盟周三同意将中国官员因侵犯人权行为列入黑名单，这是自1989年天安门广场镇压以来欧盟武器禁运以来对北京的首次制裁，”路透社报道，欧盟在过去的三十年中首次实施制裁，是由于在西北新疆地区普遍存在“系统性”侵犯人权的报道，据说那里有数百万穆斯林维吾尔人仅限于共产党的“再教育”和劳教所。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+路透社指出，这将包括对至少四名中国个人和一个实体的旅行禁令和资产冻结。但是，在3月22日欧盟外交部长正式批准之前，不会公开这些名称。欧盟外交官已经向路透社证实了制裁的准备，
 
-**西班牙2021年3月19日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/11-18.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/12-9.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/13-2.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/14-8.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/15-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/16-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/17.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/18-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/19-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/20.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/22-2.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/24-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/23-8.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/25-4.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/26-1.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/27-2.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/28.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/29.png)![]()![](https://gnews.org/wp-content/uploads/2021/03/30.png)
-发稿：神奇四侠
+报告发布后不久，中国驻欧盟使团发表声明，对这一举动表示愤怒，称其为“对抗性”。
 
-本文观点均来自于作者，与GNEWS无关
+去年7月，美国政府以涉及重大人权侵犯为由，将新疆党委书记陈全国、前新疆政法委书记朱海仑、新疆公安厅厅长王明山及前新疆公安厅党委书记霍留军等四名中国政府官员以及中国新疆地区公安厅列入制裁名单。制裁内容包括全数冻结制裁对象在美资产、直接或间接持有的实体，禁止在美人士与“黑名单”的个人及其拥有的实体作商品或服务交易。陈全国、朱海仑、王明山还被施加签证限制。他们及其直系亲属将无法入境美国。今年1月，美国国务院发表声明称，中国政府在新疆犯下“种族灭绝和反人类罪”。
 
-0
+“种族灭绝”的事实已经铁板钉钉，中共是在做最后的挣扎，中共一定会被钉在人类的耻辱柱上。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-3.gif)![]()![](https://gnews.org/wp-content/uploads/2021/03/2.gif)
+[原文链接](https://www.zerohedge.com/geopolitical/eu-sanction-china-first-time-3-decades-over-uighur-abuses)
+
+审核校对：玫瑰新闻组
+上传排版：玫瑰新闻组
+
++1
