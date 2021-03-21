@@ -1,52 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美劳工组织呼吁政府和国会，停止进口新疆产太阳能产品
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/999283/)
+## 美日印澳四方联合围堵中共疫苗外交
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/999364/)
 
-新闻来源：路透社（Reuters）| 作者：Reuters Staff| 发布时间：2021年3月16日
+作者：宁缺 | 校对：文明明 | 审核：Beicy-数学老师 | Page：青山
 
-翻译/简评：Marialu| 校对：感恩| 审核：Beicy-数学老师| Page：小六月
+[!\[\]()!\[\](https://spark.adobe.com/page/RKg4e1ISpOPkh/images/9b7ebd8a-b72a-46f9-9f65-2d2a19a5b1e2.jpg?asset_id=85421263-df0f-4ce3-ad44-81fbeaca41b1&amp;img_etag=%22c87baac475d6f6aad8511b75b1efd612%22&amp;size=1024)](https://spark.adobe.com/page/RKg4e1ISpOPkh/images/9b7ebd8a-b72a-46f9-9f65-2d2a19a5b1e2.jpg?asset_id=85421263-df0f-4ce3-ad44-81fbeaca41b1&amp;img_etag=%22c87baac475d6f6aad8511b75b1efd612%22&amp;size=1024)美日印澳四国领导人
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GBuElm6rjBBW4/images/f7b96f83-ca94-48ea-97b3-66df6295cb0e.jpg?asset_id=c5e9746e-35ad-420d-ae42-1390b51ca6db&amp;img_etag=%2232385e819a8655c4caf7821a31bcfa85%22&amp;size=1024)](https://spark.adobe.com/page/GBuElm6rjBBW4/images/f7b96f83-ca94-48ea-97b3-66df6295cb0e.jpg?asset_id=c5e9746e-35ad-420d-ae42-1390b51ca6db&amp;img_etag=%2232385e819a8655c4caf7821a31bcfa85%22&amp;size=1024)
+美国、日本、澳大利亚和印度四国领导人星期五（3月12日）举行四方安全对话机制（QUAD）的首次峰会。峰会就新冠疫苗的生产和供应、稀土供应链以及关键新兴科技领域的合作达成一致。虽然美国国家安全顾问说，峰会的焦点不是中共国，但有分析人士说，这是拜登政府联合盟友和伙伴针对中共国打出的“组合拳”中的重要一拳。他们还说，四方对话机制得以升级至峰会级别，是由于中共在亚太地区越来越咄咄逼人的动作。
 
-**简评：**
+🔗新闻链接：[美日印澳四方峰会成果多， 拜登打出遏制中国组合拳?](https://www.voachinese.com/a/quad-summit-china-03122021/5812557.html)
 
-据《路透社》报道，美国最大劳工联合会（美国劳工联合会和产业工会联合会）的领导人呼吁拜登政府和国会，出于对人权问题的关注，停止进口在中共国新疆所生产的太阳能产品。美国劳工联合会主席特鲁姆卡致信美国国务卿布林肯和白宫国家安全顾问沙利文，在信中表示，有 “令人信服的证据”表明，新疆的太阳能生产存在“系统性的强迫劳动”。他在信中还强调：“拜登政府和国会必须采取行动，阻止进口含有利用强迫劳动而生产的多晶硅太阳能产品”。
+**评论：**
 
-前任国务卿彭佩奥指出，中共当局自2017年开始就针对新疆的穆斯林维吾尔人犯下“反人类罪”，中共政府把数以百万的维吾尔人关进拘留营，强迫劳动，对维吾尔妇女强迫绝育，犯下令人发指的暴行。在川普政府任期结束前最后一刻，由彭佩奥认定中共在新疆对穆斯林维吾尔人犯下“种族灭绝”罪，现任拜登政府支持这一决定，并且表示美国必须准备让中共国付出代价。
+[!\[\]()!\[\](https://spark.adobe.com/page/RKg4e1ISpOPkh/images/5cd3f011-219a-4085-9ba1-8b77953829fd.jpg?asset_id=c74c9a2b-cacf-4174-b513-0b73710674c3&amp;img_etag=%22ba924a92206f54cfa83c03afdffb7d06%22&amp;size=1024)](https://spark.adobe.com/page/RKg4e1ISpOPkh/images/5cd3f011-219a-4085-9ba1-8b77953829fd.jpg?asset_id=c74c9a2b-cacf-4174-b513-0b73710674c3&amp;img_etag=%22ba924a92206f54cfa83c03afdffb7d06%22&amp;size=1024)2020年11月，参加马拉巴尔海军演习，来自美、日、印、澳国家的航母和军舰
 
-正如彭佩奥所说，“如果中共被允许对自己人民犯下种族灭绝和反人类罪，想象一下在不久的将来，中共会胆敢对自由世界做些什么？”所以我们呼吁世界文明国家，对中共采取更有力的制裁措施；我们新中国联邦人愿意与世界民主正义的国家和组织一道，尽快结束中共的残暴统治，让中国人真正融入到世界正义的大家庭。消灭中共，是正义之需，是世界实现和平与繁荣的保证！
+新浪网3月6日刊出《中国之声》报道，中共国国药集团子公司国药控股董事长于清明在“两会”期间透露，国药集团高层一年前接种的新冠病毒（COVID-19）疫苗，现在抗体犹在，此言引发网络一片哗然。中共在自己手持解药和疫苗的情况下，制造释放病毒残害他国，搅乱世界的企图昭然若揭。从目前全球混乱的局势来看，中共的病毒策略已获成功。世界经济已经陷入严重危机，各国政府为了勉强维持经济和财政的运转都在竞相开动印钞机。
 
-**原文翻译：**
+大乱之中，中共也没有闲着，正紧锣密鼓地利用疫苗作为要挟其他国家的外交新手段，在全世界不断勒索政治资源。很多国家在中共疫苗的诱惑之下，逐渐降低了抨击中共、要求其赔偿损失的调门。尤其是十年前就指责北京种族灭绝新疆人的土耳其，现在竟然调转枪口在国内打压维吾尔活动人士。
 
-## **美劳工组织敦促政府停止进口新疆产太阳能产品**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/GBuElm6rjBBW4/images/8d94c951-5bd8-4cbd-8737-e0323005ef39.png?asset_id=809facf4-2db1-40a5-a82b-e14857d440e3&amp;img_etag=%22c67d1171ad1a352d534ed7a9fa03facd%22&amp;size=1024)](https://spark.adobe.com/page/GBuElm6rjBBW4/images/8d94c951-5bd8-4cbd-8737-e0323005ef39.png?asset_id=809facf4-2db1-40a5-a82b-e14857d440e3&amp;img_etag=%22c67d1171ad1a352d534ed7a9fa03facd%22&amp;size=1024)文件图片：2018年10月22日，一名工人在中国维吾尔自治区哈密市的一个光伏工业园区内操作清洁太阳能电池板的机器。路透社/斯金格
-
-[!\[\]()!\[\](https://spark.adobe.com/page/GBuElm6rjBBW4/images/ef73e741-e111-4060-9ddb-5b9a6bc6260d.png?asset_id=536d8a08-b6b0-4aea-bd28-4c1d8ba12701&amp;img_etag=%22dab2e1eaa7a06d8f110227d17e6f2ce6%22&amp;size=1024)](https://spark.adobe.com/page/GBuElm6rjBBW4/images/ef73e741-e111-4060-9ddb-5b9a6bc6260d.png?asset_id=536d8a08-b6b0-4aea-bd28-4c1d8ba12701&amp;img_etag=%22dab2e1eaa7a06d8f110227d17e6f2ce6%22&amp;size=1024)文件图片：美国最大劳工联合会总裁理查德·特鲁姆卡（Richard Trumka）2019年12月19日在美国华盛顿的路透社采访中谈到了他在确保《美墨加贸易协定》（The United States-Mexico-Canada Agreement，简称USMCA）中劳工保护的作用。 路透社 /约书亚·罗伯茨（Joshua Roberts）
-
-华盛顿（路透社）—— 美国劳工联合会和产业工会联合会（AFL-CIO），即美国最大的劳工联合会的领导人呼吁拜登政府和国会，出于对人权问题的关注，停止从中共国新疆地区进口太阳能产品。
-
-美国劳工联合会和产业工会联合会主席理查德·特鲁姆卡致信美国国务卿安东尼·布林肯和白宫国家安全顾问杰克·沙利文，在信中表示，有 “令人信服的证据”表明，新疆的太阳能生产存在“系统性的强迫劳动”，他要求 “立即采取有针对性的行动”。
-
-特鲁姆卡在3月12日的信中表示：“拜登政府和国会必须采取行动，阻止进口含有利用强迫劳动而生产的多晶硅太阳能产品”。
-
-国务院和白宫没有立即回应置评请求。
-
-美国劳工联合会和产业工会联合会是拜登总统在11月大选中战胜前总统唐纳德·川普的重要支持者。
-
-拜登政府认可川普政府在最后一刻作出的决定，即中共国在新疆对穆斯林维吾尔人犯下种族灭绝罪，并表示美国必须准备让中共国付出代价。
-
-[原文链接](https://www.reuters.com/article/us-usa-trade-china-idUSKBN2B806L?taid=60501bb3b7d77200018e57fc&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+美国及其在亚太的盟友日本、印度、澳大利亚，显然已经意识到这个问题。如果放任中共继续肆意妄为，那么北京不仅可以洗脱制造、释放病毒的罪行，甚至可能到处收买人心，占据舆论高地。目前，中共还仅仅是在国内遮遮掩掩地宣传美国释放病毒的虚假消息。一旦中共完成了对世界舆论的大范围控制，“美国释放病毒论”可能成为大外宣打造的下一个“世界共识”。
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GBuElm6rjBBW4/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/GBuElm6rjBBW4/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/RKg4e1ISpOPkh/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/RKg4e1ISpOPkh/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

@@ -1,80 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国必须争夺、遏制和对抗中共国
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/999266/)
+## 巴基斯坦总理在接受中共疫苗后感染新冠病毒
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/999354/)
 
-新闻来源：《每日邮报》| 作者：JACK MAIDMENT | 发布时间：2021年3月18日
+新闻来源：《印度电视新闻报道 India TV News Desk》| 作者：伊斯兰堡消息(Islamabad) | 发布时间：2021年3月21日
 
-翻译/简评：新街口 | 校对：SilverSpurs7 | 审核：Beicy-数学老师 | Page：拱卒
+翻译/简评：文明明 | 校对：Beicy-数学老师 | 审核：Beicy-数学老师 | Page：青山
 
-[!\[\]()!\[\](https://spark.adobe.com/page/rpGdWdKmZ79e2/images/1172f07c-3e1f-431a-82fe-5b248fec31a4.jpg?asset_id=5afd1c7f-55c4-4d2d-91c5-219419c15556&amp;img_etag=%22b464057b2f035b0aba44ba2ed7fd7837%22&amp;size=2560)](https://spark.adobe.com/page/rpGdWdKmZ79e2/images/1172f07c-3e1f-431a-82fe-5b248fec31a4.jpg?asset_id=5afd1c7f-55c4-4d2d-91c5-219419c15556&amp;img_etag=%22b464057b2f035b0aba44ba2ed7fd7837%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/RlzJ2KbGxl3ck/images/33f3447d-7b39-4450-b0ba-e92c2251d186.jpg?asset_id=40a3c2b2-bd00-4709-a8d4-dc800f057b19&amp;img_etag=%2296c4bc67f24eacd9d234dec1a3e3250b%22&amp;size=1024)](https://spark.adobe.com/page/RlzJ2KbGxl3ck/images/33f3447d-7b39-4450-b0ba-e92c2251d186.jpg?asset_id=40a3c2b2-bd00-4709-a8d4-dc800f057b19&amp;img_etag=%2296c4bc67f24eacd9d234dec1a3e3250b%22&amp;size=1024)巴基斯坦总理伊姆兰·汗（Imran Khan）
 
 **简评：**
 
-从上世纪八十年代开始，中共利用14亿中国百姓的辛勤劳动和960万平方公里的环境污染去和西方的利益集团进行利益勾兑。这些利益勾兑一方面欺骗、麻痹了西方政府误认为中共会在经济发展后会逐步向民主社会转变；另一方面也造成了西方国家不能够团结在一起，对中共破坏国际秩序和准则的恶行不能有效地制止。
+据印度电视新闻报道，巴基斯坦总理伊姆兰·汗（Imran Khan）的健康事务助手费萨尔·苏尔坦博士在周六表示，巴基斯坦总理伊姆兰·汗（Imran Khan）的新冠病毒检测呈阳性，目前正在家中进行自我隔离。
 
-中共是一个绑匪起家，靠欺骗和暴力夺取政权的流氓政府。1984年欺骗英国政府签订了中英联合声明，承诺了香港各项制度50年不变。但是却在仅仅23年的时间里就完全违背了当初的承诺，使用各种流氓和暴力手段打压香港的民主法制制度，在香港实施独裁统治。
+汗（Khan）是在周五接受了第一剂中共国产的国药疫苗的注射。周五注射疫苗，周六检测出新冠病毒阳性。译者对此颇觉匪夷所思，不知道的人还以为是注射了病毒，这么立竿见影。不过，从这则简短的新闻中，我们至少可以得出中共国产疫苗的质量实在令人担忧的结论。
 
-2016年中共还向美国和南海各国承诺非军事化南海有争议的岛礁，但却偷偷地在扩建的岛礁上修建了飞机场，并且安置了导弹威胁周边国家和过往船只。
-
-以诚信和契约精神为基础的西方文明社会在一次次地被中共欺骗后，逐步开始进行反思并采取行动。这次英国前国家安全顾问塞德威尔大声呼吁英国和盟友必须要团结一致地对中共“争夺、遏制和对抗。”这无疑是向推翻中共这个流氓政权、保障本国和国际社会的安全，迈出了正确的一步。
+与此同时，据报告在过去24小时内，巴基斯坦新增了3876个病例，是自去年7月以来最高的日新增病例数。去年7月2日，巴基斯坦曾报告有4432例阳性病例。而这次的急增病例发生在巴基斯坦全国推广中共疫苗之际，是巧合呢？还是人为？
 
 **原文翻译：**
 
-## **前国家安全顾问表示，当中共国“违反国际准则”时，英国必须要“争夺、遏制和对抗”中共国，并警告说，西方针对北京的团结一直是“可悲地缺乏”**
+## **巴基斯坦总理在接受中共国产——国药疫苗（Sinopharm）首剂注射后几天，新冠病毒检测呈阳性**
 
-前国家安全顾问马克·塞德威尔（Mark Sedwill）表示，英国必须就违反规则的问题“争夺、遏制和对抗”中共国
+巴基斯坦总理伊姆兰·汗（Imran Khan）在接受中共国产的国药疫苗（Sinopharm）首剂注射几天后，新冠病毒检测呈阳性。
 
-前国家安全顾问说中共国只“敬重强大的力量”，并呼吁加强团结
+[!\[\]()!\[\](https://spark.adobe.com/page/RlzJ2KbGxl3ck/images/0fbae466-323b-463d-a5eb-7e46962bd37e.jpg?asset_id=4b45088e-1248-429d-94ac-2faf79291c69&amp;img_etag=%2245a26100b82babdb1d12515cda42680b%22&amp;size=2560)](https://spark.adobe.com/page/RlzJ2KbGxl3ck/images/0fbae466-323b-463d-a5eb-7e46962bd37e.jpg?asset_id=4b45088e-1248-429d-94ac-2faf79291c69&amp;img_etag=%2245a26100b82babdb1d12515cda42680b%22&amp;size=1024)伊姆兰·汗（Imran Khan）新冠病毒检测呈阳性 – 图片来自美联社
 
-他说：“西方联盟共同的决心……令人遗憾地缺乏”
+巴基斯坦总理伊姆兰·汗（Imran Khan）的健康事务助手费萨尔·苏尔坦博士在周六表示，巴基斯坦总理伊姆兰·汗（Imran Khan）的新冠病毒检测呈阳性。汗（Khan）是在周五接受了第一剂中共国产的国药（Sinopharm）疫苗的注射。
 
-在鲍里斯·约翰逊（Boris Johnson）面对保守党反对他的中共国战略时被公布的评论
+苏尔坦博士在推特上说：“伊姆兰·汗（Imran Khan）总理的新冠病毒检测呈阳性，正在家中进行自我隔离。”
 
-[!\[\]()!\[\](https://spark.adobe.com/page/rpGdWdKmZ79e2/images/031b69cc-ee6a-4fec-b6b9-e37718358b99.jpg?asset_id=a3f09a43-c680-49ef-a860-58245d172aa1&amp;img_etag=%229bac5492e995eb1ec0d7ddf8d714a8b3%22&amp;size=2560)](https://spark.adobe.com/page/rpGdWdKmZ79e2/images/031b69cc-ee6a-4fec-b6b9-e37718358b99.jpg?asset_id=a3f09a43-c680-49ef-a860-58245d172aa1&amp;img_etag=%229bac5492e995eb1ec0d7ddf8d714a8b3%22&amp;size=1024)马克·塞德威尔今天表示，当中共国“违反国际准则”时，英国必须“争夺、遏制和对抗”中共国，他警告西方联盟在挑战北京时必须表现出更大的团结。
+[!\[\]()!\[\](https://spark.adobe.com/page/RlzJ2KbGxl3ck/images/7895e520-0788-4e65-81bf-17ecf1153dfc.jpg?asset_id=f4e50ac9-e402-486f-82cc-2fc9956e0659&amp;img_etag=%22fdb93e5402ce18b27b9cd7ae08fd8927%22&amp;size=1024)](https://spark.adobe.com/page/RlzJ2KbGxl3ck/images/7895e520-0788-4e65-81bf-17ecf1153dfc.jpg?asset_id=f4e50ac9-e402-486f-82cc-2fc9956e0659&amp;img_etag=%22fdb93e5402ce18b27b9cd7ae08fd8927%22&amp;size=1024)
 
-这位前国家安全顾问说，中共国现在“更具地区侵略性”，并且“像所有威权政权一样，只会尊重强大的力量和团结”。
+现年67岁的汗 （Khan）接种疫苗是巴基斯坦全国范围内抗新冠病毒、接种疫苗活动的一部分，目前该活动正处在第一阶段。新冠疫苗的接种对象为60岁及以上人群和一线医务人员。
 
-他说，如果西方要“有效地”反对“不可接受的”中共国行为，“我们必须在整个西方同盟中具有共同的决心，这在过去几年中令人遗憾地缺乏”。
+周三，巴基斯坦收到了由中共国捐赠的50万剂新冠病毒疫苗，第二批国药集团（Sinopharm）的疫苗是在拉瓦尔品第（Rawalpindi）的努尔汗（Nur Khan）空军基地交接的。
 
-在鲍里斯·约翰逊面临保守党抗议其中共国关系战略时刻，塞德威尔发表了上述评论。
+与此同时，据报告在过去24小时内，巴基斯坦新增了3876个病例，是自去年7月以来最高的单日病例数。早在去年7月2日，巴基斯坦曾报告有(单日)4432例阳性病例。
 
-英首相本周发表了《政府综合评论》，这份安全文件呼吁与中共国建立“更深层次的贸易联系”，尽管他也承认中共国是对西方的“系统性”威胁。
-
-一些保守党议员认为，政府应该采取更强硬的立场，敦促约翰逊首相对中共国的“地缘战略威胁”大声疾呼。
-
-塞德威尔今天说，英国在中共国“打破国际准则”时必须要“争夺、遏制和对抗”。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/rpGdWdKmZ79e2/images/a1536128-bf1f-4caf-8030-fad3466603d6.jpg?asset_id=81802b3d-8923-499f-9791-8b419a27598e&amp;img_etag=%22df656c7c9418308385d5c6bc7d44ec22%22&amp;size=2560)](https://spark.adobe.com/page/rpGdWdKmZ79e2/images/a1536128-bf1f-4caf-8030-fad3466603d6.jpg?asset_id=81802b3d-8923-499f-9791-8b419a27598e&amp;img_etag=%22df656c7c9418308385d5c6bc7d44ec22%22&amp;size=1024)鲍里斯·约翰逊在本周早些时候宣布了他的新安全策略后，这位前国家安全顾问发表了上述评论。
-
-塞德威尔勋爵今天上午在上议院国际关系与国防委员会上露面时，对英中关系感到不安。
-
-他告诉同僚，在习近平主席的领导下，中共国“更具地区侵略性”，他列举了“香港镇压”以及“对新疆维吾尔族人骇人听闻的行为”。
-
-他说：“我们在获得经济机会的同时，需要在巨大的环境挑战和一些安全挑战方面与中共国合作。但是，我们还必须能够在必要时与中共国进行竞争、遏制，以应对中共国违反国际规范的行为。”
-
-“我认为我们已经看到发生的事情……这在西方国家的政策总体上是一种趋势，在美国非常强劲，在我看来英国是这样，实际上在澳大利亚也是如此。但我们其他的一些盟国中，这种趋势还较弱，我希望他们能同样意识到需要团结一致来竞争、对抗、遏制中共国的不可接受行为，因为当我们确实有共同的决心时，我认为这是影响它的最佳机会。”
-
-“与所有国家一样，与所有威权政权一样，中共国尊重西方之间的强大的力量和统一，我们展示得还不够。”
-
-塞德威尔勋爵表示，近年来，西方在某些问题上未能表现出统一的战线。
-
-他对委员会说：“如果我们要有效地遏制中共国不可接受的部分行为，无论是国内还是国际，我们必须在整个西方联盟中具有共同的决心，而遗憾的是，过去的几年我们缺乏这种决心，这就是为什么中共国能够得寸进尺，并确实挑起或试图欺负个别国家的部分原因。”
-
-“由于要求世界卫生组织对冠状病毒的起源进行强有力的调查，澳大利亚人面临中共重大的经济制裁。”
-
-“坦率地说，澳大利亚仅仅得到世界其他国家的口头上的支持。”
-
-[原文链接](https://www.dailymail.co.uk/news/article-9376171/Mark-Sedwill-says-UK-willing-confront-China.html)
+🔗[原文链接](https://www.indiatvnews.com/news/world/imran-khan-covid19-positive-days-after-chinese-vaccine-inoculation-692310)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/rpGdWdKmZ79e2/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/rpGdWdKmZ79e2/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/RlzJ2KbGxl3ck/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/RlzJ2KbGxl3ck/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

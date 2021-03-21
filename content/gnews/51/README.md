@@ -1,16 +1,16 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月21日 文贵先生盖特 4
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/998478/)
+## 2021年3月21日 文贵先生盖特 6
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/998554/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-中共视人命如草芥 The CCP Has ‘Absolute Disdain for Human Life’
+3月21日：GTV……Gnews……G club．Gfasion将有一系列的……每周每月每季．每年的……按照工作和不同的结果……和节目的质量，长久的打赏和抽奖方式！这是让我们新中国联邦的人所有的战友！每一天，每年．都有人可以改变自己生活命运方式的机会……创造财富，以报父母．成就新中国联邦请大家一定认真的研究，这些难得的．可展现自己潜在的能力．实现自我价值，属于我们新中国联邦人的这前所未有的机会！
 
 
 
-[【2021年3月21日】文贵先生盖特原文](https://gtv.org/getter/60576473d1608d609ea6a0cc)
+[【2021年3月21日】文贵先生盖特原文](https://gtv.org/getter/60576c26d1608d609ea6a4a7)
 
 **喜联盟Gnews编辑部**
 

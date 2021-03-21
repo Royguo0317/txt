@@ -1,19 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210321（图片新闻）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/999489/)
+## 【点睛要闻】挪威又有两名医护人员接种阿斯利康疫苗后因血栓死亡
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/999884/)
 
-- 作者：2020喜马拉雅
-- 封面：透明的遮羞布
+撰稿：三毛【㊙️翻Gnews原创组】
+责编： Shifter
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Picture1-82.jpg)图片来源：tv2.no
+据挪威药品管理局3月21号公布，挪威又有两名卫生工作者在接种阿斯利康疫苗后死于血栓。
 
+这是挪威药品管理局在一份新闻稿中说的。在新闻稿中写道：”挪威药品管理局不能排除这些病例可能与阿斯利康疫苗有关。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+挪威此前已有5名接种阿斯利康疫苗后出现血栓、大出血和血小板计数低的患者入住医院。本周早些时候有一人死亡，现在又有两例死亡报告。
 
-**西班牙2021年3月21日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2000.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/微信图片_20210321194906.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/微信图片_20210321194916-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/微信图片_20210321194946-5.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/微信图片_20210321201533-2.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/微信图片_20210321201541-1.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/微信图片_20210321202619.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/微信图片_20210321202712-4.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/微信图片_20210321202837.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/微信图片_20210321202908.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/微信图片_20210321203012.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/微信图片_20210321212740.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/微信图片_20210321213142.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/微信图片_20210321213154-3.jpg)
-发稿：神奇四侠
+挪威药品管理局和欧洲药品管理局继续审查欧洲类似的不良反应报告，以确定这些病例是否与接种阿斯利康疫苗有关。挪威药品管理局向欧洲药品管理局(EMA)和世界卫生组织报告了挪威的所有病例。
 
-本文观点均来自于作者，与GNEWS无关
+挪威药品管理局、国家公共卫生研究所和奥斯陆大学医院目前正在合作彻底调查这些病例。
 
-+1
+挪威与丹麦和其他几个国家一样，已经短期内暂停了阿斯利康疫苗的接种。根据计划，丹麦本将在周四再次开始接种疫苗，但是丹麦药品管理局的药物监测部门负责人塔尼娅埃里克森（Tanja Erichsen）说，“这些症状是不寻常的，是在接种疫苗后就出现的。我们的工作就是应对这种事情。重要的是我们与 EMA 和其他药物当局一起，花时间来彻底评估这种类型的报告。”
+
+疫苗死那么多人世界媒体没有几家敢报的，北欧国家媒体尚能相对公开透明地报道有关疫苗的副作用和死亡病例，秘翻组将继续跟踪报道相关细节。
+
+参考链接：
+
+[挪威两名医护人员在接种阿斯利康疫苗后因血栓死亡](https://legemiddelverket.no/nyheter/legemiddelverket-har-mottatt-to-meldinger-om-dodsfall-hos-pasienter-pa-ous)
+
+（本文仅代表撰稿者个人观点）
+
+0
