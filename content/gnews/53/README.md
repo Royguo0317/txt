@@ -1,74 +1,133 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 北约高级科学家甘当中共间谍，被判三年
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/997848/)
+## 《新闻快递》节目摘要2021.03.15
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/998087/)
 
-新闻来源：《Daily Beast(每日野兽)》| 作者：Holger Roonemaa ，Michael weiss | 发布时间：2021年3月19日
+《新闻快递》栏目组：Beicy数学老师，文玉，1818;
 
-翻译/简评：Yang | 校对/审核：万人往 | Page：Daoiii
+校对/审核：宁缺； Page: 1818
 
-[!\[\]()!\[\](https://spark.adobe.com/page/R1LO9evtftOMz/images/5be6754e-0b4f-43ff-bb97-7607a28dd6c3.png?asset_id=b70a8709-cc6c-4816-960e-2a0f9b5525ab&amp;img_etag=%22c1c5c3530124c51c9332e062a6459ad9%22&amp;size=2560)](https://spark.adobe.com/page/R1LO9evtftOMz/images/5be6754e-0b4f-43ff-bb97-7607a28dd6c3.png?asset_id=b70a8709-cc6c-4816-960e-2a0f9b5525ab&amp;img_etag=%22c1c5c3530124c51c9332e062a6459ad9%22&amp;size=1024)
+引言：
 
-***简评：***
+英国伦敦喜庄园GTV直播节目《新闻快递News Express》，每周一和周五英国时间18:30为战友带来美国、英国及国内的热点新闻。
 
-**在海洋领域有着很高的知名度的Tarmo Kouts被中共用“蓝金黄”手段招募成为间谍，监视他上级或者中共感兴趣的人，通过他来记录这些人的生活中的那些“有趣的”事情。他和他的同伙被爱沙尼亚当局逮捕，由于他们并没有给中共泄露任何军事机密，所以他被判处三年，而不是刑罚更重的叛国罪。**
+[!\[\]()!\[\](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/3abbd6dd-b1b3-4392-9cb4-78d8a4de9bb8.png?asset_id=e11bd3cb-dc35-4567-91fa-bdb60a8404aa&amp;img_etag=%2265c087b3c6e44ae6285ba24ad1674621%22&amp;size=2560)](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/3abbd6dd-b1b3-4392-9cb4-78d8a4de9bb8.png?asset_id=e11bd3cb-dc35-4567-91fa-bdb60a8404aa&amp;img_etag=%2265c087b3c6e44ae6285ba24ad1674621%22&amp;size=1024)
 
-**文中指出，Tarmo Kouts一直是监视收集中共感兴趣人的“趣事”，我们也可得知，中共应该是想利用这些信息来发展其“蓝金黄”关系网，从而攫取更多的利益。爱沙尼亚的情报部门多年来一直警告称，中共国的威胁日益加剧。中共的狂妄自大成功地引起其他国家的警觉，与中共勾兑的空间越来越狭窄。**
+**[🔗GTV-UK-1号台精彩回看](https://gtv.org/video/id=604fb0d4e9cdd43098e825ba)**
 
-***原文翻译：***
+## 《新闻快递》节目摘要2021.03.15
 
-# 拥有安全许可的北约高级科学家被查出为中共国从事间谍活动
+#### 本期主题：
 
-**上周，一名在北约担任高级职务的爱沙尼亚军事防务科学家被判为中共国从事间谍活动。**
+1. 接种中共疫苗给签证便利；美前国家高级调查人员定性生物武器；
 
-[!\[\]()!\[\](https://spark.adobe.com/page/R1LO9evtftOMz/images/84c299a0-a320-4fd9-b3ee-31b843431241.jpg?asset_id=339a7da6-e3b0-4264-9000-29691a804af7&amp;img_etag=%2292814bc5dcc856b58f4ac8ac62848a6b%22&amp;size=2560)](https://spark.adobe.com/page/R1LO9evtftOMz/images/84c299a0-a320-4fd9-b3ee-31b843431241.jpg?asset_id=339a7da6-e3b0-4264-9000-29691a804af7&amp;img_etag=%2292814bc5dcc856b58f4ac8ac62848a6b%22&amp;size=1024)2019年12月北约29个成员国的领导人周三签署一份联合声明，称中国崛起为北约带来“机遇和挑战”。峰会还将批准一份内部报告，就如何应对中国拟定行动计划。（路透社）
+2. 七哥爆料：中共病毒报告是美国新老政府间最大的问题！
 
-爱沙尼亚，塔林——《每日野兽》获悉，中共国军事情报招募了一名在北约一家研究机构工作的爱沙尼亚人，该机构专注于海洋和潜艇研究。
+3. 英国对港BNO移民专题(7): 英国内政部讲解申请表格；
 
-这名间谍名叫Tarmo Kõuts，在爱沙尼亚科学界以研究闻名，上周被定罪，并被判处三年监禁。这个波罗的海国家的情报部门多年来一直警告说中共的威胁越来越大，但这次定罪是第一次。迄今为止，爱沙尼亚的反情报部门（国内简称KAPO）因成功抓获俄罗斯招募和管理的间谍而受到赞扬。
+4. 美英和印太四国对抗中共威胁，中共建设面向台湾海峡的直升机基地；
 
-据KAPO副主任、塔林的高级反间谍官员亚历山大·托茨（Aleksander Toots）称，Kõuts于2018年被中共国中央军委联合参谋部情报局——众所周知的北京的军事情报机构——招募，同时招募的还有一名尚未在法庭上受审的同伙。两人于2020年9月9日被捕，当时爱沙尼亚媒体既没有公开报道，也没有讨论该案。
+5. 专题：全球经济危机之魏玛共和国恶性通胀。
 
-Kõuts承认代表外国进行反对爱沙尼亚共和国的情报活动。这些指控与叛国罪相差无几。他被判处三年监禁。
+### 新闻线索【1】以毒灭共，病毒&疫苗次生危害持续全球
 
-托茨说，Kõuts是在中共国境内被招募的，他与《每日野兽》和爱沙尼亚《德尔菲报》进行了独家对话。“他的动机来自于人性中的弱点，例如对金钱的和被认可的渴望。”
+#### 疫情数据播报
+[!\[\]()!\[\](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/575304fb-055c-4958-acf2-79ca5d016689.jpg?asset_id=74541054-02d2-4554-b988-1e285d08e168&amp;img_etag=%22e822648d02bde4bcd0330989e4215463%22&amp;size=2560)](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/575304fb-055c-4958-acf2-79ca5d016689.jpg?asset_id=74541054-02d2-4554-b988-1e285d08e168&amp;img_etag=%22e822648d02bde4bcd0330989e4215463%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/a1684f67-3539-4a48-9a15-27db482ab354.jpg?asset_id=0223ffe9-d080-4f88-826a-c79ccbb12ad9&amp;img_etag=%22ab293d27e65eca57e83973752be3f96f%22&amp;size=2560)](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/a1684f67-3539-4a48-9a15-27db482ab354.jpg?asset_id=0223ffe9-d080-4f88-826a-c79ccbb12ad9&amp;img_etag=%22ab293d27e65eca57e83973752be3f96f%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/cf2fb7fc-a219-4cef-8a90-f18315027b3a.jpg?asset_id=08846703-6d08-4f3a-88ff-937d3aedb1a4&amp;img_etag=%22548a0a90499544e4f2419849dd97b737%22&amp;size=2560)](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/cf2fb7fc-a219-4cef-8a90-f18315027b3a.jpg?asset_id=08846703-6d08-4f3a-88ff-937d3aedb1a4&amp;img_etag=%22548a0a90499544e4f2419849dd97b737%22&amp;size=1024)
+**[🔗纽约时报：中共国要求申请签证的人接种中共国制疫苗](https://www.nytimes.com/2021/03/12/world/china-vaccines-hong-kong.html)**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/R1LO9evtftOMz/images/6fc4f015-5e8c-48de-ba99-97fb75828ab1.png?asset_id=81ceca59-4008-4582-aee7-dd90540d77b5&amp;img_etag=%22f33cf84b434a3b86ab8c01538d682bf3%22&amp;size=2560)](https://spark.adobe.com/page/R1LO9evtftOMz/images/6fc4f015-5e8c-48de-ba99-97fb75828ab1.png?asset_id=81ceca59-4008-4582-aee7-dd90540d77b5&amp;img_etag=%22f33cf84b434a3b86ab8c01538d682bf3%22&amp;size=1024)
+**[🔗Gnews: “打杂客”说服世卫其他成员忽视武毒所删除的数据](https://gnews.org/zh-hans/977640/)**
 
-托茨补充说，Kõuts从他的中共国经纪人那里得到了现金，以及到许多亚洲国家的有偿旅行，享受着豪华住宿和在米其林星级餐厅的晚餐。处理他的情报人员是在一个智囊团的掩护下行动的。处理此案的检察官Inna Ombler证实，Kõuts因从事间谍活动赚取了1.7万欧元——略高于2万美元，爱沙尼亚政府后来没收了这些钱。
-
-Kõuts于1999年获得环境物理学博士学位，曾在塔林理工大学海洋研究所工作多年，专门研究地球物理学和实用海洋学。他的研究让海洋科学家成功预测了2005年导致爱沙尼亚海平面迅速上升的一场破坏性冬季风暴。Kõuts也是一个科研小组的成员，该小组因在萨雷马岛寻找到最佳海港位置而在2002年获得爱沙尼亚国家科学奖。虽然官方的设计是为了接纳游轮，但该港口需要同样能够接纳北约的船只。
-
-从2006年起，Kõuts开始直接参与国防部门的工作。他被任命为爱沙尼亚国防部科学委员会成员，该委员会负责监督该国的军事研究和发展举措。作为借调的一部分，他还成为了位于意大利拉斯佩齐亚的北约海底研究中心科学委员会的成员，甚至从2018年到2020年他还担任了该组织的副主席，该组织现在被称为海洋研究和实验中心（CMRE）。据其网站介绍，CMRE“在海洋科学、建模和模拟、声学和其他学科方面进行相关的、最先进的科学研究。”
-
-Kõuts的脸书公开账户显示，2018年4月，他在意大利拉斯佩齐亚莱里奇签到，这是他被中共国招募的那一年。他在北约中心的角色让Kõuts可以直接接触到爱沙尼亚和北约的机密军情。在被捕时，他拥有可以追溯到十四年前国家机密的访问许可以及北约安全许可。据托茨说，在Kõuts为中共国军事情报工作的三年里，他的间谍活动仅限于观察和（泄露）其高层工作的轶事，还没有传递任何机密军事情报。
-
-“他拥有这样的安全许可是我们决定这么早制止他（与中方）合作的原因之一。”托茨说。这可能会使他免于更严格的判决，而如果Kõuts传递了国家或北约的机密，他就会被控叛国罪。
-
-事实上，北约有史以来最大的一次间谍入侵事件发生在爱沙尼亚，就在这个波罗的海国家加入北约四年后。2008年，KAPO逮捕了国防部安全司司长赫尔曼·西姆。西姆的工作是协调国家机密的保护，发放安全许可，并担任爱沙尼亚国防部和北约之间的联络人。他在任职期间一直为俄罗斯的对外情报机构SVR工作。西姆被判处十二年半监禁，他还需要支付130万欧元——按今天的美元价值计算为180万美元的赔偿金。他于2019年圣诞节出狱。
-
-自那次丑闻后，爱沙尼亚成为俄罗斯最主要的间谍抓捕者之一。“我不断地感到惊讶，”爱沙尼亚前总统托马斯·亨里克·伊尔维斯说，“我们一定是克里姆林宫似乎唯一感兴趣的国家，因为只有我们抓住了他们所有的特工。是什么让我们如此特别？”
-
-与其他北约成员国不同的是，这个波罗的海国家有一种倾向，即点名羞辱那些被它俘虏的人。它也很少用间谍换取自己的被俘资产。一个被广泛报道的例外是埃斯顿·科沃(Eston Kohver)的案子。2014年，科沃被俄罗斯国内安全机构联邦安全局(FSB)在爱沙尼亚和俄罗斯边境的爱沙尼亚一侧抓获，当时他正在执行一项阻止跨境走私的行动。2015年，科沃被间谍之桥式的交易，换来了俄罗斯特工阿列克谢·德累森(Aleksei Dressen)。几年前，俄罗斯联邦安全局从卡波的内部招募了这名俄罗斯特工。
-
-托茨负责的反间谍调查导致Simm和Dressen被捕。尽管他在从爱沙尼亚的近邻和前占领国抓捕特工方面颇有建树，但托茨现在看到了来自远东地区不断上升的威胁。
-
-在过去三年里，KAPO和爱沙尼亚对外情报部门Välisluureamet对中共国间谍活动日益加剧的威胁提出了警告。去年，Välisluureamet警告说，前往中共国的爱沙尼亚人很容易受到影响行动和招募。“为此，中共国特勤部门可能会使用各种方法和谎言，比如在互联网上建立第一次接触或提供工作机会。在国内，中共国特勤部门几乎可以无风险地运作。”Välisluureamet在他们的年度安全环境评估中解释道。拥有政治或国防相关许可的政治家、公务员和科学家被列为可能的招募目标。
-
-KAPO补充说，在爱沙尼亚2004年加入欧盟和北约后，它首次发现中共国情报部门对爱沙尼亚的兴趣有所增加，但最近这些兴趣有所加强。爱沙尼亚反间谍部门总结说，中共国尤其对对“北极、气候或贸易等全球问题的决定”特别感兴趣。
-
-Tarmo Kõuts正好符合这招聘的要求，因为他的科学研究主要集中在气候变化对海洋的影响上，他的一些学术论文也完全集中在北极地区。
-
-**🔗[原文链接](https://www.thedailybeast.com/top-nato-scientist-with-security-clearance-busted-spying-for-china)**
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+**🎞视频：Daszak为中共倾情洗地**
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/R1LO9evtftOMz/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/R1LO9evtftOMz/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+**[🔗Gnews: 前美国国务院调查员：新冠可能是生物武器事故造成](https://gnews.org/zh-hans/977649/)**
 
-+2
+**🎞视频：国务院前秘密武器调查员，新冠起源调查负责人大卫•艾舍相信，新冠病毒是中共的生物武器**
+
+
+
+**[🔗 每日邮报：世卫组织将否认武汉实验室与Covid疫情的联系，而指出其来源是动物市场–这加剧了对该组织与中国之间密切联系的 “粉饰 “指控](https://www.dailymail.co.uk/news/article-9359039/WHO-set-reject-Wuhan-lab-link-Covid-outbreak-instead-point-source-animal-market.html)**
+[!\[\]()!\[\](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/a3d15176-7f15-4858-8e57-a134a47208da.jpg?asset_id=ea2f7ba8-eda9-40e8-9252-d91d64b563bf&amp;img_etag=%229b7ad01abcc0e1274cc45fd5751c2ee0%22&amp;size=2560)](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/a3d15176-7f15-4858-8e57-a134a47208da.jpg?asset_id=ea2f7ba8-eda9-40e8-9252-d91d64b563bf&amp;img_etag=%229b7ad01abcc0e1274cc45fd5751c2ee0%22&amp;size=1024)
+**[🎞视频：从犯罪动机来看，中共政府的掩盖，阻挠调查显示其与COVID-19有关联](https://gtv.org/getter/604f6b97527b920e2d830836)**
+
+**[🎞视频：美国人民已被病毒唤醒，为谁会成为全球经济军事主导力量的世界级挑战做好准备](https://gtv.org/getter/604e1b38607c4240c8b58569)**
+
+**[🎞视频：前国家情报局局长：如果我们无法追踪到病毒的具体源头，我们就无法预防下一次大流行病的发生](https://gtv.org/getter/604dba42607c4240c8b57676)**
+
+**[🔗闫博士推特：不了解#COVID19 的具体来源，我们不能阻止下一场疫情大爆发！](https://twitter.com/DrLiMengYAN1/status/1371076987196956677?s=20)**
+
+**[🔗 美国小组将审查阿斯利康的（疫苗接种）数据，因为西班牙最近暂停了接种；德国看到血栓风险增加](https://www.zerohedge.com/covid-19/astrazenecas-european-nightmare-worsening-ireland-netherlands-latest-ban-jabs)**
+
+### 新闻线索【2】 香港圣城, 东方明珠变暗夜
+[!\[\]()!\[\](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/450d2c20-158e-42ce-84d7-7cc73d817e2e.jpg?asset_id=e51e67f7-14fd-44e2-b121-87dc0addc19d&amp;img_etag=%22ab20af3e8ad6f3090cdd603b98abe197%22&amp;size=2560)](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/450d2c20-158e-42ce-84d7-7cc73d817e2e.jpg?asset_id=e51e67f7-14fd-44e2-b121-87dc0addc19d&amp;img_etag=%22ab20af3e8ad6f3090cdd603b98abe197%22&amp;size=1024)
+**[🔗卫报：香港：英国指责中共国违反联合声明 (多米尼克·拉布)](https://www.theguardian.com/politics/2021/mar/13/hong-kong-uk-accuses-china-of-breaching-joint-declaration)**
+
+**[🔗七国集团敦促中共结束对香港的 “压迫”](https://www.france24.com/en/live-news/20210312-g7-powers-urge-china-to-end-oppression-in-hong-kong)**
+
+🎞**视频：七哥揭开林郑妖蛾伏击检查冠状病毒真相**
+
+**[🎞 视频：小明童鞋: 纪念反送中一周年 (2019夏-2020夏)](https://gtv.org/video/id=5f31560abd8c881d62ec77f6)**
+
+#### 英国香港BNO移民专题(7): 英国內政部讲解申请表格
+
+[1. 英国內政部中文讲解在香港申请英国国民(海外)护照](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/900883/Hong_Kong_BNO_Cantonese.pdf)
+
+[2. 英国护照申请表格](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/462278/OS_Form_010.pdf)
+
+[3. 英国公民(海外)定义](https://www.gov.uk/types-of-british-nationality/british-national-overseas)
+
+[4. 英国內政部解读香港BNO签证](https://homeofficemedia.blog.gov.uk/2021/01/29/media-factsheet-hong-kong-bnos/)
+
+**🎞视频：《愿荣光归香港》国语版**
+
+
+
+### 新闻线索【3】全球灭共, 以共灭共: 共产党员必须自救
+[!\[\]()!\[\](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/1d96bb22-8e07-4a13-9320-657cfdc20841.jpg?asset_id=ec4e5300-7533-4709-afe4-5e9f786b09c8&amp;img_etag=%223bc34e670cec2dfec09ff09d7f5a9a2e%22&amp;size=2560)](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/1d96bb22-8e07-4a13-9320-657cfdc20841.jpg?asset_id=ec4e5300-7533-4709-afe4-5e9f786b09c8&amp;img_etag=%223bc34e670cec2dfec09ff09d7f5a9a2e%22&amp;size=1024)
+**[🔗 大全新闻：美国联邦通讯委员会FCC：五家中共国公司构成对美国国家安全的威胁 (华为、中兴、海能达、海康威视、大华)](https://www.newsmax.com/politics/china/2021/03/12/id/1013646/)**
+
+**[🔗Gnews: 中共在新疆犯下种族灭绝罪，而中共官媒对此撒谎](https://gnews.org/zh-hans/976833/)**
+
+**[🔗 乌克兰扣押飞机制造商以防止中国人收购](https://www.breitbart.com/national-security/2021/03/12/ukraine-seizes-aircraft-maker-prevent-chinese-takeover/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed:+breitbart+%28Breitbart+News%29)**
+
+**[🔗 每日邮报：鲍里斯-约翰逊（Boris Johnson）将在英格兰北部建立一支网络部队，以对抗中共国和俄罗斯构成的威胁–它还将解决南北鸿沟问题](https://www.dailymail.co.uk/news/article-9359639/Boris-Johnson-set-cyber-force-North-England-combat-threats-China-Russia.html)**
+[!\[\]()!\[\](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/f917f83a-7c3d-4bfe-8768-fc1dcca6bac6.jpg?asset_id=87802870-697f-40af-a723-a0e969f294dd&amp;img_etag=%225b35010d6d16de4b90bcd1e8b0f671be%22&amp;size=2560)](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/f917f83a-7c3d-4bfe-8768-fc1dcca6bac6.jpg?asset_id=87802870-697f-40af-a723-a0e969f294dd&amp;img_etag=%225b35010d6d16de4b90bcd1e8b0f671be%22&amp;size=1024)
+**[🔗 零对冲：布坎南-与中共国的第二次冷战是不可避免的吗？](https://www.zerohedge.com/geopolitical/buchanan-cold-war-ii-china-inevitable?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed:+zerohedge/feed+%28zero+hedge+-+on+a+long+enough+timeline,+the+survival+rate+for+everyone+drops+to+zero%29)**
+
+**[🔗 GNews: 中共在福建建设威胁台湾的直升机基地](https://gnews.org/zh-hans/978317/)**
+
+**[🔗 缅甸外交部工作人员因中共国会议泄密被拘留](https://www.irrawaddy.com/news/burma/myanmar-foreign-ministry-staff-detained-china-meeting-leak.html)**
+
+**🎞视频：拜登与日、印、澳四国领导人会面，共同对抗中共，退役四星上将基恩认为四国联盟是印太地区对抗中共的基石**
+
+
+
+**🎞视频：蓬佩奥-我会努力推动，确保那些政策得到持续，并在2022年中期选举里落实**
+
+
+
+### 新闻线索【4】 新中国联邦
+
+**[🔗 喜联盟盖特第十六期工作汇报文字版](https://gtv.org/user/5f58c34e245d3c05799fe236)**
+
+**[🔗 七哥15日连发4盖特](https://gtv.org/user/5e596957357cc612d35a8044)**
+
+**[🔗英国伦敦喜庄园新Discord邀请链接](https://spark.adobe.com/page/SC8Oe23tsW3aX/)**
+
+**[🔗英国伦敦喜庄园的英文GTV直播频道《GTV UK English》正式建立](https://gtv.org/user/602f9f5c047c4c3086d4f215)**
+
+**[🔗喜联盟Gnews编辑部Getter官方频道正式建立](https://gtv.org/user/602ab9a2be64150df857ef88)**
+
+
+
+**[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)**
+
+**[点击观看英国伦敦喜庄园在G-TV的精彩直播视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)**
+
+**[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)**
+
+编辑：[**【英国伦敦喜庄园编辑部】**](https://spark.adobe.com/page/gkE3AGW0wWV6o/)
+[!\[\]()!\[\](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/3b10191a-d4a6-4b62-8e51-efddfdd9a8fc.jpg?asset_id=fb4300d5-885e-4154-a058-8567970c8066&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/3b10191a-d4a6-4b62-8e51-efddfdd9a8fc.jpg?asset_id=fb4300d5-885e-4154-a058-8567970c8066&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
++1
