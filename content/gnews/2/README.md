@@ -1,64 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国网络间谍瞄准他国电信运营商，窃取5G秘密
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/999191/)
+## 乌克兰收回发动机制造企业，中共技术剽窃梦碎
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/999338/)
 
-新闻来源：The record| 作者：Catalin Cimpanu| 发布时间：2021年3月16日
+作者：宁缺 | 校对：文明明 | 审核：Beicy-数学老师 | Page：拱卒
 
-翻译/简评：Victory| 校对：SilverSpurs7| 审核：Beicy-数学老师| Page：小六月
+乌克兰宣布，出于国家安全考虑，将在不久的将来把世界顶尖的飞机引擎制造商马达西奇公司重新国有化，以免其落入中共的公司手里。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/xpO7is0C7J3T0/images/a4a4f269-1bb6-40f0-9be7-88d718b733b2.jpg?asset_id=5cc0facf-ae01-41a8-aecd-4f87fb765875&amp;img_etag=%22e98a51476d6f4bee8fd8b88c10440a50%22&amp;size=1024)](https://spark.adobe.com/page/xpO7is0C7J3T0/images/a4a4f269-1bb6-40f0-9be7-88d718b733b2.jpg?asset_id=5cc0facf-ae01-41a8-aecd-4f87fb765875&amp;img_etag=%22e98a51476d6f4bee8fd8b88c10440a50%22&amp;size=1024)
+乌克兰国家安全和国防委员会秘书达尼洛夫周四（3月11日）表示，“马达西奇公司将会通过符合法律和宪法的方式让飞机制造公司马达西奇重新回到乌克兰国家的手中。”
 
-**简评：**
+[!\[\]()!\[\](https://spark.adobe.com/page/zxKtoTgvjKu88/images/7365f6ce-6714-4ef3-985c-f4237de5de93.jpg?asset_id=20ff1cd0-b74b-4a9d-8df7-58acced54bb3&amp;img_etag=%22b8e0af310e1e5f7dcd75c94c7ca5200f%22&amp;size=2560)](https://spark.adobe.com/page/zxKtoTgvjKu88/images/7365f6ce-6714-4ef3-985c-f4237de5de93.jpg?asset_id=20ff1cd0-b74b-4a9d-8df7-58acced54bb3&amp;img_etag=%22b8e0af310e1e5f7dcd75c94c7ca5200f%22&amp;size=1024)资料照：乌克兰马达西奇发动机公司在基辅举行的一个国际武器展上展示的AI-322F引擎。（2018年10月9日）
 
-中共对全球的渗透和入侵是系统性的，全方位的。本文提到对亚洲、美国、欧洲等国家电信运营商网络的攻击是其重要手段之一。近年来，在爆料革命影响下，很多国家逐渐对中共之邪恶认识越来越清晰。中共以华为掩护，控制渗透其他国家电信网络的阴谋已在很大程度上被终止。因此中共开始加强在网络黑客方面的努力。这些网络攻击一方面可能是技术窃取，另外一个其重要目标还是对世界的监控。
+新闻链接：[乌克兰决定把马达西奇收归国有，避免其落入中国之手](https://www.voachinese.com/a/Ukraine-to-nationalise-aircraft-engine-maker-to-prevent-Chinese-takeover-20210312/5812297.html)
 
-前几天看到新闻，中共的老朋友巴基斯坦的议会大厅发现大量隐藏的摄像头，都是中共所为。在去年，我们还看到深圳振华数据信息公司的数据库泄露，包含全球240万人的个人信息，而且都是在各国政界、军界、科学界等各行业的有一定影响力的精英人士。如此庞大的数据库不太可能是由人工整理的，而是通过对电信网络的信息窃取和数据分析得到的。只要一日不灭掉中共，中共就会尝试各种手段监控全人类。
+#### 评论:
 
-**原文翻译：**
+中共收购马达西奇公司的目的是获取这家公司的飞机发动机制造技术和知识产权，从而推动中共国的军事发展，特别是飞机发动机、卫星与巡航导弹的制造。此次收购西奇公司，企图获得直升机发动机关键技术的行为再次暴露了中共国工业制造基础薄弱、创新研发能力不足的悲惨现实。与芯片技术受制于美国一样，中共从来就没有掌握各项科技产品的核心技术。“厉害了，我的国”这一光鲜口号背后是倚靠搜刮民脂民膏获取的天量资金在国外“买、买、买” 的真实现状。
 
-## 中共国网络间谍，瞄准电信运营商，5G秘密
+[!\[\]()!\[\](https://spark.adobe.com/page/zxKtoTgvjKu88/images/6e15f156-accb-4b70-94e5-1d161596c4fa.jpg?asset_id=ee8ad422-e2ef-42fa-a83e-a7a66ee81845&amp;img_etag=%22dd8cf71499a51fd323fc77fdd1958686%22&amp;size=1024)](https://spark.adobe.com/page/zxKtoTgvjKu88/images/6e15f156-accb-4b70-94e5-1d161596c4fa.jpg?asset_id=ee8ad422-e2ef-42fa-a83e-a7a66ee81845&amp;img_etag=%22dd8cf71499a51fd323fc77fdd1958686%22&amp;size=1024)马达西奇公司
 
-一个中共国的网络间谍组织已经将行动从针对梵蒂冈官员和天主教组织转移到亚洲、欧洲和美国的电信运营商。
+“股神”巴菲特有句名言，只有当潮水退去时，你才会知道谁一直在裸泳。之前，世界沉溺在中共的欺骗和收买之下，北京尚且可以东拼西凑、掩人耳目地将他国的高精尖科技产品放入自己精心制作的包装壳中。在全球已经察觉到中共国独裁专制、称霸世界的野心，收紧技术产品出口之后，曾给无数国民打鸡血的、 “中共国制造” 的外强中干的本来面目已经暴露无疑。国内民众终于发现，中共几十年来不遗余力吹嘘的自主研发，不过是轻轻一碰就破灭的泡泡而已。
 
-该组织在网络安全界被称为 “野马熊猫 “或 “红色三角洲”，自去年秋天以来，该组织一直以电信公司员工为目标，打通进入组织内部的门户，最终目标是窃取5G相关信息。
-
-**中共集团以电信公司员工为目标，为其提供工作机会**
-
-根据网络安全公司麦卡菲（McAfee）今天发布的一份名为 “Operation Diànxùn” [PDF]的技术报告，野马熊猫组织主要依靠诱骗电信公司员工到一个伪装成华为招聘页面的恶意网站。
-
-钓鱼网站会要求用户安装一个托管在恶意网站上的Flash软件更新，这个文件随后会下载并安装一个.NET后门，该后门会通过Cobalt Strike信标与攻击者的远程设施进行通信。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/xpO7is0C7J3T0/images/d25bfdde-5225-47d9-865b-7f09b5c232fa.png?asset_id=c34b1dec-7c04-4487-82b0-1bb26cc4118b&amp;img_etag=%220d622faa67c221d8c828c784b98adac1%22&amp;size=1024)](https://spark.adobe.com/page/xpO7is0C7J3T0/images/d25bfdde-5225-47d9-865b-7f09b5c232fa.png?asset_id=c34b1dec-7c04-4487-82b0-1bb26cc4118b&amp;img_etag=%220d622faa67c221d8c828c784b98adac1%22&amp;size=1024) 图片来源：麦卡菲
-
-麦卡菲表示，这些攻击的目的是在电信公司的内部网络上获得立足点。
-
-“我们相信，这种间谍活动旨在窃取与5G技术有关的敏感或秘密信息。”该公司今天表示。
-
-已经观察到有针对东南亚、欧洲和美国的电信公司的攻击；不过，麦卡菲表示，还观察到该组织对德国、越南和印度的电信公司也表现出 “强烈的兴趣”。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/xpO7is0C7J3T0/images/d1faf062-76cb-466e-885e-756ad92b6070.png?asset_id=d047704e-1936-4495-9843-b310bb306c94&amp;img_etag=%2243b40a72e3b5c46d4d089c4ad0f56e5b%22&amp;size=1024)](https://spark.adobe.com/page/xpO7is0C7J3T0/images/d1faf062-76cb-466e-885e-756ad92b6070.png?asset_id=d047704e-1936-4495-9843-b310bb306c94&amp;img_etag=%2243b40a72e3b5c46d4d089c4ad0f56e5b%22&amp;size=1024)图片来源: 麦卡菲
-
-**据信攻击与华为的5G禁令有关。**
-
-“我们相当程度地确信，这一特定活动背后的动机与全球5G推广中禁止中共国技术有关。”麦卡菲今天表示。
-
-一些被野马熊猫集团盯上的国家已经公开声明，打算禁止或限制华为参与本国的5G网络建设，如美国、西班牙和意大利。
-
-不过，在华为已经签署5G推广合同的国家，也出现了被攻击事件。
-
-由于华为是中共国5G设备的主要供应商，据信该中共国组织可能是想了解竞争对手在中共国技术被回避的市场中的表现，或者是想了解当地电信公司如何应对华为目前的参与。
-
-[原文链接](https://therecord.media/chinese-cyberspies-go-after-telco-providers-5g-secrets/)
+值得注意的是，除了美国和日本，就连俄罗斯也不愿意放任中共获得马达西奇公司的控制权。中俄之间的塑料花友谊再一次得到了“扎实”的验证。过去整日幻想万国来朝白日梦的中共统治者，现在迎来的是举世皆敌的现实噩梦。内忧外患之下，中共国还能苦撑多久？
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/xpO7is0C7J3T0/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/xpO7is0C7J3T0/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/zxKtoTgvjKu88/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/zxKtoTgvjKu88/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

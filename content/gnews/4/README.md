@@ -1,22 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 波兰周六报告超2.5万中共病毒病例
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/999144/)
+## 美日防长肯定在台湾问题上的合作
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/999289/)
 
 - 编辑：Victor Torres
+- 素材：peacelv
 - 发稿：Ranting
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年3月21日电/西喜社——**据美联社3月21日报道，波兰周六报告了超过2.5万例中共病毒病例，而3月初只有不到1.5万例。
+**西班牙2021年3月21日电/西喜社——**据路透社3月21日报道，据日本共同社周日援引多名政府消息人士的话报道，日本和美国防长在上周的会晤中同意在中共国和台湾发生军事冲突时进行密切合作。
 
-卫生部长亚当·尼兹斯基（Adam Niedzielski）将增加的原因归咎于该病毒的英国变种，他将其描述为 “极具传染性和恶性”。他敦促波兰人遵守周六重新实施的限制措施，关闭酒店、商场、剧院、画廊和体育中心。
+据该新闻报道，美国国防部长劳埃德-奥斯汀（Lloyd Austin）周二会见日本防卫大臣岸信夫（Nobuo Kishi）时提出了这个问题，不过没有讨论两国应该如何协调应对这种紧急情况的具体内容。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/c3237837-f5b0-4d82-a849-5fa73f70e035-1.jpg)
+共同社说，日本历来不评论台湾可能出现的与中共国有关的紧急情况，其立场仍是 “鼓励对话以和平解决两岸紧张局势”。
 
-**新闻来源：[美联社](https://apnews.com/article/world-news-mumbai-india-coronavirus-pandemic-coronavirus-vaccine-a2dc6a4101380d4b633c4eb53770fa3d)**
+奥斯汀和美国国务卿安东尼-布林肯上周在东京会见了同行，这是美国总统拜登内阁高层成员的首次海外访问。
+
+奥斯汀和布林肯在与日本发表的联合声明中说：”中共国的行为与现有的国际秩序不一致，对联盟和国际社会提出了政治、经济、军事和技术挑战。”
+
+**新闻来源：[雅虎新闻](https://news.yahoo.com/japan-u-defence-chiefs-affirm-071442329.html)**
 
 ![]()![](https://gnews.org/wp-content/uploads/2021/03/招募-2.jpeg)
 
