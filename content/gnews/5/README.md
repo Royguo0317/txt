@@ -1,80 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国必须争夺、遏制和对抗中共国
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/999266/)
+## 美劳工组织呼吁政府和国会，停止进口新疆产太阳能产品
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/999283/)
 
-新闻来源：《每日邮报》| 作者：JACK MAIDMENT | 发布时间：2021年3月18日
+新闻来源：路透社（Reuters）| 作者：Reuters Staff| 发布时间：2021年3月16日
 
-翻译/简评：新街口 | 校对：SilverSpurs7 | 审核：Beicy-数学老师 | Page：拱卒
+翻译/简评：Marialu| 校对：感恩| 审核：Beicy-数学老师| Page：小六月
 
-[!\[\]()!\[\](https://spark.adobe.com/page/rpGdWdKmZ79e2/images/1172f07c-3e1f-431a-82fe-5b248fec31a4.jpg?asset_id=5afd1c7f-55c4-4d2d-91c5-219419c15556&amp;img_etag=%22b464057b2f035b0aba44ba2ed7fd7837%22&amp;size=2560)](https://spark.adobe.com/page/rpGdWdKmZ79e2/images/1172f07c-3e1f-431a-82fe-5b248fec31a4.jpg?asset_id=5afd1c7f-55c4-4d2d-91c5-219419c15556&amp;img_etag=%22b464057b2f035b0aba44ba2ed7fd7837%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/GBuElm6rjBBW4/images/f7b96f83-ca94-48ea-97b3-66df6295cb0e.jpg?asset_id=c5e9746e-35ad-420d-ae42-1390b51ca6db&amp;img_etag=%2232385e819a8655c4caf7821a31bcfa85%22&amp;size=1024)](https://spark.adobe.com/page/GBuElm6rjBBW4/images/f7b96f83-ca94-48ea-97b3-66df6295cb0e.jpg?asset_id=c5e9746e-35ad-420d-ae42-1390b51ca6db&amp;img_etag=%2232385e819a8655c4caf7821a31bcfa85%22&amp;size=1024)
 
 **简评：**
 
-从上世纪八十年代开始，中共利用14亿中国百姓的辛勤劳动和960万平方公里的环境污染去和西方的利益集团进行利益勾兑。这些利益勾兑一方面欺骗、麻痹了西方政府误认为中共会在经济发展后会逐步向民主社会转变；另一方面也造成了西方国家不能够团结在一起，对中共破坏国际秩序和准则的恶行不能有效地制止。
+据《路透社》报道，美国最大劳工联合会（美国劳工联合会和产业工会联合会）的领导人呼吁拜登政府和国会，出于对人权问题的关注，停止进口在中共国新疆所生产的太阳能产品。美国劳工联合会主席特鲁姆卡致信美国国务卿布林肯和白宫国家安全顾问沙利文，在信中表示，有 “令人信服的证据”表明，新疆的太阳能生产存在“系统性的强迫劳动”。他在信中还强调：“拜登政府和国会必须采取行动，阻止进口含有利用强迫劳动而生产的多晶硅太阳能产品”。
 
-中共是一个绑匪起家，靠欺骗和暴力夺取政权的流氓政府。1984年欺骗英国政府签订了中英联合声明，承诺了香港各项制度50年不变。但是却在仅仅23年的时间里就完全违背了当初的承诺，使用各种流氓和暴力手段打压香港的民主法制制度，在香港实施独裁统治。
+前任国务卿彭佩奥指出，中共当局自2017年开始就针对新疆的穆斯林维吾尔人犯下“反人类罪”，中共政府把数以百万的维吾尔人关进拘留营，强迫劳动，对维吾尔妇女强迫绝育，犯下令人发指的暴行。在川普政府任期结束前最后一刻，由彭佩奥认定中共在新疆对穆斯林维吾尔人犯下“种族灭绝”罪，现任拜登政府支持这一决定，并且表示美国必须准备让中共国付出代价。
 
-2016年中共还向美国和南海各国承诺非军事化南海有争议的岛礁，但却偷偷地在扩建的岛礁上修建了飞机场，并且安置了导弹威胁周边国家和过往船只。
-
-以诚信和契约精神为基础的西方文明社会在一次次地被中共欺骗后，逐步开始进行反思并采取行动。这次英国前国家安全顾问塞德威尔大声呼吁英国和盟友必须要团结一致地对中共“争夺、遏制和对抗。”这无疑是向推翻中共这个流氓政权、保障本国和国际社会的安全，迈出了正确的一步。
+正如彭佩奥所说，“如果中共被允许对自己人民犯下种族灭绝和反人类罪，想象一下在不久的将来，中共会胆敢对自由世界做些什么？”所以我们呼吁世界文明国家，对中共采取更有力的制裁措施；我们新中国联邦人愿意与世界民主正义的国家和组织一道，尽快结束中共的残暴统治，让中国人真正融入到世界正义的大家庭。消灭中共，是正义之需，是世界实现和平与繁荣的保证！
 
 **原文翻译：**
 
-## **前国家安全顾问表示，当中共国“违反国际准则”时，英国必须要“争夺、遏制和对抗”中共国，并警告说，西方针对北京的团结一直是“可悲地缺乏”**
+## **美劳工组织敦促政府停止进口新疆产太阳能产品**
 
-前国家安全顾问马克·塞德威尔（Mark Sedwill）表示，英国必须就违反规则的问题“争夺、遏制和对抗”中共国
+[!\[\]()!\[\](https://spark.adobe.com/page/GBuElm6rjBBW4/images/8d94c951-5bd8-4cbd-8737-e0323005ef39.png?asset_id=809facf4-2db1-40a5-a82b-e14857d440e3&amp;img_etag=%22c67d1171ad1a352d534ed7a9fa03facd%22&amp;size=1024)](https://spark.adobe.com/page/GBuElm6rjBBW4/images/8d94c951-5bd8-4cbd-8737-e0323005ef39.png?asset_id=809facf4-2db1-40a5-a82b-e14857d440e3&amp;img_etag=%22c67d1171ad1a352d534ed7a9fa03facd%22&amp;size=1024)文件图片：2018年10月22日，一名工人在中国维吾尔自治区哈密市的一个光伏工业园区内操作清洁太阳能电池板的机器。路透社/斯金格
 
-前国家安全顾问说中共国只“敬重强大的力量”，并呼吁加强团结
+[!\[\]()!\[\](https://spark.adobe.com/page/GBuElm6rjBBW4/images/ef73e741-e111-4060-9ddb-5b9a6bc6260d.png?asset_id=536d8a08-b6b0-4aea-bd28-4c1d8ba12701&amp;img_etag=%22dab2e1eaa7a06d8f110227d17e6f2ce6%22&amp;size=1024)](https://spark.adobe.com/page/GBuElm6rjBBW4/images/ef73e741-e111-4060-9ddb-5b9a6bc6260d.png?asset_id=536d8a08-b6b0-4aea-bd28-4c1d8ba12701&amp;img_etag=%22dab2e1eaa7a06d8f110227d17e6f2ce6%22&amp;size=1024)文件图片：美国最大劳工联合会总裁理查德·特鲁姆卡（Richard Trumka）2019年12月19日在美国华盛顿的路透社采访中谈到了他在确保《美墨加贸易协定》（The United States-Mexico-Canada Agreement，简称USMCA）中劳工保护的作用。 路透社 /约书亚·罗伯茨（Joshua Roberts）
 
-他说：“西方联盟共同的决心……令人遗憾地缺乏”
+华盛顿（路透社）—— 美国劳工联合会和产业工会联合会（AFL-CIO），即美国最大的劳工联合会的领导人呼吁拜登政府和国会，出于对人权问题的关注，停止从中共国新疆地区进口太阳能产品。
 
-在鲍里斯·约翰逊（Boris Johnson）面对保守党反对他的中共国战略时被公布的评论
+美国劳工联合会和产业工会联合会主席理查德·特鲁姆卡致信美国国务卿安东尼·布林肯和白宫国家安全顾问杰克·沙利文，在信中表示，有 “令人信服的证据”表明，新疆的太阳能生产存在“系统性的强迫劳动”，他要求 “立即采取有针对性的行动”。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/rpGdWdKmZ79e2/images/031b69cc-ee6a-4fec-b6b9-e37718358b99.jpg?asset_id=a3f09a43-c680-49ef-a860-58245d172aa1&amp;img_etag=%229bac5492e995eb1ec0d7ddf8d714a8b3%22&amp;size=2560)](https://spark.adobe.com/page/rpGdWdKmZ79e2/images/031b69cc-ee6a-4fec-b6b9-e37718358b99.jpg?asset_id=a3f09a43-c680-49ef-a860-58245d172aa1&amp;img_etag=%229bac5492e995eb1ec0d7ddf8d714a8b3%22&amp;size=1024)马克·塞德威尔今天表示，当中共国“违反国际准则”时，英国必须“争夺、遏制和对抗”中共国，他警告西方联盟在挑战北京时必须表现出更大的团结。
+特鲁姆卡在3月12日的信中表示：“拜登政府和国会必须采取行动，阻止进口含有利用强迫劳动而生产的多晶硅太阳能产品”。
 
-这位前国家安全顾问说，中共国现在“更具地区侵略性”，并且“像所有威权政权一样，只会尊重强大的力量和团结”。
+国务院和白宫没有立即回应置评请求。
 
-他说，如果西方要“有效地”反对“不可接受的”中共国行为，“我们必须在整个西方同盟中具有共同的决心，这在过去几年中令人遗憾地缺乏”。
+美国劳工联合会和产业工会联合会是拜登总统在11月大选中战胜前总统唐纳德·川普的重要支持者。
 
-在鲍里斯·约翰逊面临保守党抗议其中共国关系战略时刻，塞德威尔发表了上述评论。
+拜登政府认可川普政府在最后一刻作出的决定，即中共国在新疆对穆斯林维吾尔人犯下种族灭绝罪，并表示美国必须准备让中共国付出代价。
 
-英首相本周发表了《政府综合评论》，这份安全文件呼吁与中共国建立“更深层次的贸易联系”，尽管他也承认中共国是对西方的“系统性”威胁。
-
-一些保守党议员认为，政府应该采取更强硬的立场，敦促约翰逊首相对中共国的“地缘战略威胁”大声疾呼。
-
-塞德威尔今天说，英国在中共国“打破国际准则”时必须要“争夺、遏制和对抗”。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/rpGdWdKmZ79e2/images/a1536128-bf1f-4caf-8030-fad3466603d6.jpg?asset_id=81802b3d-8923-499f-9791-8b419a27598e&amp;img_etag=%22df656c7c9418308385d5c6bc7d44ec22%22&amp;size=2560)](https://spark.adobe.com/page/rpGdWdKmZ79e2/images/a1536128-bf1f-4caf-8030-fad3466603d6.jpg?asset_id=81802b3d-8923-499f-9791-8b419a27598e&amp;img_etag=%22df656c7c9418308385d5c6bc7d44ec22%22&amp;size=1024)鲍里斯·约翰逊在本周早些时候宣布了他的新安全策略后，这位前国家安全顾问发表了上述评论。
-
-塞德威尔勋爵今天上午在上议院国际关系与国防委员会上露面时，对英中关系感到不安。
-
-他告诉同僚，在习近平主席的领导下，中共国“更具地区侵略性”，他列举了“香港镇压”以及“对新疆维吾尔族人骇人听闻的行为”。
-
-他说：“我们在获得经济机会的同时，需要在巨大的环境挑战和一些安全挑战方面与中共国合作。但是，我们还必须能够在必要时与中共国进行竞争、遏制，以应对中共国违反国际规范的行为。”
-
-“我认为我们已经看到发生的事情……这在西方国家的政策总体上是一种趋势，在美国非常强劲，在我看来英国是这样，实际上在澳大利亚也是如此。但我们其他的一些盟国中，这种趋势还较弱，我希望他们能同样意识到需要团结一致来竞争、对抗、遏制中共国的不可接受行为，因为当我们确实有共同的决心时，我认为这是影响它的最佳机会。”
-
-“与所有国家一样，与所有威权政权一样，中共国尊重西方之间的强大的力量和统一，我们展示得还不够。”
-
-塞德威尔勋爵表示，近年来，西方在某些问题上未能表现出统一的战线。
-
-他对委员会说：“如果我们要有效地遏制中共国不可接受的部分行为，无论是国内还是国际，我们必须在整个西方联盟中具有共同的决心，而遗憾的是，过去的几年我们缺乏这种决心，这就是为什么中共国能够得寸进尺，并确实挑起或试图欺负个别国家的部分原因。”
-
-“由于要求世界卫生组织对冠状病毒的起源进行强有力的调查，澳大利亚人面临中共重大的经济制裁。”
-
-“坦率地说，澳大利亚仅仅得到世界其他国家的口头上的支持。”
-
-[原文链接](https://www.dailymail.co.uk/news/article-9376171/Mark-Sedwill-says-UK-willing-confront-China.html)
+[原文链接](https://www.reuters.com/article/us-usa-trade-china-idUSKBN2B806L?taid=60501bb3b7d77200018e57fc&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/rpGdWdKmZ79e2/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/rpGdWdKmZ79e2/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/GBuElm6rjBBW4/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/GBuElm6rjBBW4/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

@@ -1,52 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美劳工组织呼吁政府和国会，停止进口新疆产太阳能产品
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/999283/)
+## 巴基斯坦总理在接受中共疫苗后感染新冠病毒
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/999354/)
 
-新闻来源：路透社（Reuters）| 作者：Reuters Staff| 发布时间：2021年3月16日
+新闻来源：《印度电视新闻报道 India TV News Desk》| 作者：伊斯兰堡消息(Islamabad) | 发布时间：2021年3月21日
 
-翻译/简评：Marialu| 校对：感恩| 审核：Beicy-数学老师| Page：小六月
+翻译/简评：文明明 | 校对：Beicy-数学老师 | 审核：Beicy-数学老师 | Page：青山
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GBuElm6rjBBW4/images/f7b96f83-ca94-48ea-97b3-66df6295cb0e.jpg?asset_id=c5e9746e-35ad-420d-ae42-1390b51ca6db&amp;img_etag=%2232385e819a8655c4caf7821a31bcfa85%22&amp;size=1024)](https://spark.adobe.com/page/GBuElm6rjBBW4/images/f7b96f83-ca94-48ea-97b3-66df6295cb0e.jpg?asset_id=c5e9746e-35ad-420d-ae42-1390b51ca6db&amp;img_etag=%2232385e819a8655c4caf7821a31bcfa85%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/RlzJ2KbGxl3ck/images/33f3447d-7b39-4450-b0ba-e92c2251d186.jpg?asset_id=40a3c2b2-bd00-4709-a8d4-dc800f057b19&amp;img_etag=%2296c4bc67f24eacd9d234dec1a3e3250b%22&amp;size=1024)](https://spark.adobe.com/page/RlzJ2KbGxl3ck/images/33f3447d-7b39-4450-b0ba-e92c2251d186.jpg?asset_id=40a3c2b2-bd00-4709-a8d4-dc800f057b19&amp;img_etag=%2296c4bc67f24eacd9d234dec1a3e3250b%22&amp;size=1024)巴基斯坦总理伊姆兰·汗（Imran Khan）
 
 **简评：**
 
-据《路透社》报道，美国最大劳工联合会（美国劳工联合会和产业工会联合会）的领导人呼吁拜登政府和国会，出于对人权问题的关注，停止进口在中共国新疆所生产的太阳能产品。美国劳工联合会主席特鲁姆卡致信美国国务卿布林肯和白宫国家安全顾问沙利文，在信中表示，有 “令人信服的证据”表明，新疆的太阳能生产存在“系统性的强迫劳动”。他在信中还强调：“拜登政府和国会必须采取行动，阻止进口含有利用强迫劳动而生产的多晶硅太阳能产品”。
+据印度电视新闻报道，巴基斯坦总理伊姆兰·汗（Imran Khan）的健康事务助手费萨尔·苏尔坦博士在周六表示，巴基斯坦总理伊姆兰·汗（Imran Khan）的新冠病毒检测呈阳性，目前正在家中进行自我隔离。
 
-前任国务卿彭佩奥指出，中共当局自2017年开始就针对新疆的穆斯林维吾尔人犯下“反人类罪”，中共政府把数以百万的维吾尔人关进拘留营，强迫劳动，对维吾尔妇女强迫绝育，犯下令人发指的暴行。在川普政府任期结束前最后一刻，由彭佩奥认定中共在新疆对穆斯林维吾尔人犯下“种族灭绝”罪，现任拜登政府支持这一决定，并且表示美国必须准备让中共国付出代价。
+汗（Khan）是在周五接受了第一剂中共国产的国药疫苗的注射。周五注射疫苗，周六检测出新冠病毒阳性。译者对此颇觉匪夷所思，不知道的人还以为是注射了病毒，这么立竿见影。不过，从这则简短的新闻中，我们至少可以得出中共国产疫苗的质量实在令人担忧的结论。
 
-正如彭佩奥所说，“如果中共被允许对自己人民犯下种族灭绝和反人类罪，想象一下在不久的将来，中共会胆敢对自由世界做些什么？”所以我们呼吁世界文明国家，对中共采取更有力的制裁措施；我们新中国联邦人愿意与世界民主正义的国家和组织一道，尽快结束中共的残暴统治，让中国人真正融入到世界正义的大家庭。消灭中共，是正义之需，是世界实现和平与繁荣的保证！
+与此同时，据报告在过去24小时内，巴基斯坦新增了3876个病例，是自去年7月以来最高的日新增病例数。去年7月2日，巴基斯坦曾报告有4432例阳性病例。而这次的急增病例发生在巴基斯坦全国推广中共疫苗之际，是巧合呢？还是人为？
 
 **原文翻译：**
 
-## **美劳工组织敦促政府停止进口新疆产太阳能产品**
+## **巴基斯坦总理在接受中共国产——国药疫苗（Sinopharm）首剂注射后几天，新冠病毒检测呈阳性**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GBuElm6rjBBW4/images/8d94c951-5bd8-4cbd-8737-e0323005ef39.png?asset_id=809facf4-2db1-40a5-a82b-e14857d440e3&amp;img_etag=%22c67d1171ad1a352d534ed7a9fa03facd%22&amp;size=1024)](https://spark.adobe.com/page/GBuElm6rjBBW4/images/8d94c951-5bd8-4cbd-8737-e0323005ef39.png?asset_id=809facf4-2db1-40a5-a82b-e14857d440e3&amp;img_etag=%22c67d1171ad1a352d534ed7a9fa03facd%22&amp;size=1024)文件图片：2018年10月22日，一名工人在中国维吾尔自治区哈密市的一个光伏工业园区内操作清洁太阳能电池板的机器。路透社/斯金格
+巴基斯坦总理伊姆兰·汗（Imran Khan）在接受中共国产的国药疫苗（Sinopharm）首剂注射几天后，新冠病毒检测呈阳性。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GBuElm6rjBBW4/images/ef73e741-e111-4060-9ddb-5b9a6bc6260d.png?asset_id=536d8a08-b6b0-4aea-bd28-4c1d8ba12701&amp;img_etag=%22dab2e1eaa7a06d8f110227d17e6f2ce6%22&amp;size=1024)](https://spark.adobe.com/page/GBuElm6rjBBW4/images/ef73e741-e111-4060-9ddb-5b9a6bc6260d.png?asset_id=536d8a08-b6b0-4aea-bd28-4c1d8ba12701&amp;img_etag=%22dab2e1eaa7a06d8f110227d17e6f2ce6%22&amp;size=1024)文件图片：美国最大劳工联合会总裁理查德·特鲁姆卡（Richard Trumka）2019年12月19日在美国华盛顿的路透社采访中谈到了他在确保《美墨加贸易协定》（The United States-Mexico-Canada Agreement，简称USMCA）中劳工保护的作用。 路透社 /约书亚·罗伯茨（Joshua Roberts）
+[!\[\]()!\[\](https://spark.adobe.com/page/RlzJ2KbGxl3ck/images/0fbae466-323b-463d-a5eb-7e46962bd37e.jpg?asset_id=4b45088e-1248-429d-94ac-2faf79291c69&amp;img_etag=%2245a26100b82babdb1d12515cda42680b%22&amp;size=2560)](https://spark.adobe.com/page/RlzJ2KbGxl3ck/images/0fbae466-323b-463d-a5eb-7e46962bd37e.jpg?asset_id=4b45088e-1248-429d-94ac-2faf79291c69&amp;img_etag=%2245a26100b82babdb1d12515cda42680b%22&amp;size=1024)伊姆兰·汗（Imran Khan）新冠病毒检测呈阳性 – 图片来自美联社
 
-华盛顿（路透社）—— 美国劳工联合会和产业工会联合会（AFL-CIO），即美国最大的劳工联合会的领导人呼吁拜登政府和国会，出于对人权问题的关注，停止从中共国新疆地区进口太阳能产品。
+巴基斯坦总理伊姆兰·汗（Imran Khan）的健康事务助手费萨尔·苏尔坦博士在周六表示，巴基斯坦总理伊姆兰·汗（Imran Khan）的新冠病毒检测呈阳性。汗（Khan）是在周五接受了第一剂中共国产的国药（Sinopharm）疫苗的注射。
 
-美国劳工联合会和产业工会联合会主席理查德·特鲁姆卡致信美国国务卿安东尼·布林肯和白宫国家安全顾问杰克·沙利文，在信中表示，有 “令人信服的证据”表明，新疆的太阳能生产存在“系统性的强迫劳动”，他要求 “立即采取有针对性的行动”。
+苏尔坦博士在推特上说：“伊姆兰·汗（Imran Khan）总理的新冠病毒检测呈阳性，正在家中进行自我隔离。”
 
-特鲁姆卡在3月12日的信中表示：“拜登政府和国会必须采取行动，阻止进口含有利用强迫劳动而生产的多晶硅太阳能产品”。
+[!\[\]()!\[\](https://spark.adobe.com/page/RlzJ2KbGxl3ck/images/7895e520-0788-4e65-81bf-17ecf1153dfc.jpg?asset_id=f4e50ac9-e402-486f-82cc-2fc9956e0659&amp;img_etag=%22fdb93e5402ce18b27b9cd7ae08fd8927%22&amp;size=1024)](https://spark.adobe.com/page/RlzJ2KbGxl3ck/images/7895e520-0788-4e65-81bf-17ecf1153dfc.jpg?asset_id=f4e50ac9-e402-486f-82cc-2fc9956e0659&amp;img_etag=%22fdb93e5402ce18b27b9cd7ae08fd8927%22&amp;size=1024)
 
-国务院和白宫没有立即回应置评请求。
+现年67岁的汗 （Khan）接种疫苗是巴基斯坦全国范围内抗新冠病毒、接种疫苗活动的一部分，目前该活动正处在第一阶段。新冠疫苗的接种对象为60岁及以上人群和一线医务人员。
 
-美国劳工联合会和产业工会联合会是拜登总统在11月大选中战胜前总统唐纳德·川普的重要支持者。
+周三，巴基斯坦收到了由中共国捐赠的50万剂新冠病毒疫苗，第二批国药集团（Sinopharm）的疫苗是在拉瓦尔品第（Rawalpindi）的努尔汗（Nur Khan）空军基地交接的。
 
-拜登政府认可川普政府在最后一刻作出的决定，即中共国在新疆对穆斯林维吾尔人犯下种族灭绝罪，并表示美国必须准备让中共国付出代价。
+与此同时，据报告在过去24小时内，巴基斯坦新增了3876个病例，是自去年7月以来最高的单日病例数。早在去年7月2日，巴基斯坦曾报告有(单日)4432例阳性病例。
 
-[原文链接](https://www.reuters.com/article/us-usa-trade-china-idUSKBN2B806L?taid=60501bb3b7d77200018e57fc&amp;utm_campaign=trueAnthem:+Trending+Content&amp;utm_medium=trueAnthem&amp;utm_source=twitter)
+🔗[原文链接](https://www.indiatvnews.com/news/world/imran-khan-covid19-positive-days-after-chinese-vaccine-inoculation-692310)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/GBuElm6rjBBW4/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/GBuElm6rjBBW4/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/RlzJ2KbGxl3ck/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/RlzJ2KbGxl3ck/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
