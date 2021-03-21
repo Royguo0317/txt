@@ -1,13 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共政府对拜登政府完全不屑一顾 毫不掩饰
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/997788/)
+## 如果我们允许中共继续，他们抢劫、复制和替代的战略将持续恶化
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/997994/)
 
-3/20/2021 中共政府对拜登政府完全不屑一顾 毫不掩饰。
+3/18/2021 如果我们允许中共继续占美国和自由世界的便宜，他们的抢劫、复制和替代战略将持续恶化。
 
 By： 【秘密翻译组 G-Translators】
 
 
 
-+3
++1
