@@ -1,25 +1,123 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共重演《辛丑条约》的历史？̶̶̶̶̶̅-̶- 谈“以毒灭共”
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/995547/)
+## 美国政要等每日重要信息0320.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/992944/)
 
-#### 作者：  舒平风 审核： pv0 / 莫黎
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-16.jpg)
-1894年清朝甲午战争战败，次年李鸿章和伊藤博文签署了《马关条约》。1899年朱红灯所领导的义和拳从大刀会中借用了金钟罩和“刀枪不入”的观念，从赵三多的义和拳借用了名称和扶清灭洋的口号等，然后加上了降神附体的巫术。1900年春季义和拳与基督/天主教教徒之间的冲突激化，发展为武装排外的「义和团」动用私刑处死了大量基督教等的教徒和外国人，并纵火烧毁了教堂等设施。慈禧太后对这事的态度也多次反复，同年6月，慈禧太后允许义和团进驻北京，义和团又先于清军进攻天津租界，引发八国联军之役。八国联军的行动，成功镇压义和团。义和团溃败以及京津一带清军的溃败，迫使慈禧太后和光绪帝逃往陕西西安。最终清廷与包含派兵八国在内的十一国于1901年9月7日签订《辛丑条约》，主要内容包括：（1）中国对各国赔款4.5亿两白银，价息合计超过9.8亿两白银(当时每年财政收入9000万两)，并以关税和盐税等作抵押；（2）划定北京东交民巷为使馆界，允许各国驻兵保护，不准国人在界内居住；（3）拆毁天津大沽口到北京沿线设防的炮台，允许各国派驻兵驻扎北京到山海关铁路沿线要地；（4）清政府保证严禁人民参加反帝运动；（5）外国认为各个通商章程中应修之处或其他应办的通商事项，清政府概允商议；（6）惩办“首祸诸臣”；（7）改总理各国事务衙门为外务部，班列六部之前；（8）清政府对德、日道歉，等等。庚子赔款使清廷之威信扫地，而人民的生计亦从此而日蹙，十年后清朝灭亡。庚子赔款的一部分，也被美国用于“助学基金”， 1909年成立肄业馆作为留学生的留美预备学校，1911年4月肄业馆改称清华学堂。法，英，日等国也仿效美国，资助中国年轻学生的海外留学等。
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-庚子拳乱的120年后， “中共病毒”这一超限生物武器自2020年1月在武汉大爆发以来，迅速流传到世界各国。截止到2021年3月20日，全球已经累计确诊超过1.22亿（不包括中共虚假数据）人，死亡270万人。这一世界公共卫生的突发事件，给许多国家的经济活动带来了摧毁式的打击。不仅如此，社交活动被取消了、宗教活动受限制了、旅游观光不可能了等等，人们的生活方式完全被改变。这种状态已经持续一年有余，以后还需多久尚未知。人们的精神状态也带来改变，焦虑、暴躁等情绪，随着中共病毒的真相大白必然会像火山喷发一样爆发出来，湮灭中共。远远超过晚清时期的八国联军，80国联军甚至更多国家的军队将参与灭掉中共这个邪魔的行动。离这一天还会远么？
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0320.jpeg)图片来源：康州盘古农场 霹雳年
+### 拜登怎么了
 
-早在2019年秋，习近平亲自指挥亲自部署而释放出了“中共病毒”。现任《华盛顿时报》的国家安全新闻记者比尔.格茨报道，美国情报部门发布的强有力的证据表明病毒来源于武汉实验室，武汉病毒所有员工在2019年秋天患病、类似新冠症状。2019年12月30日，武汉的眼科大夫李文亮在同学群中发了一条关于疫情的信息。公安局马上找到他，要求他签了训诫书，并对他提出严厉警告。武汉警方发布通告称：“一些网民在不经核实的情况下，在网络上发布、转发不实信息，造成不良社会影响。已传唤8名违法人员，并依法进行处理。”CCTV的2020年1月1日新闻节目，给李文亮医生等8人定性为“造谣者”。位于武汉的解放军海军工程大学2020年1月2日前就知道了不明原因的肺炎，并发通知于1月2日进行封校。然而，2020年1月18日，农历小年，武汉市江岸区百步亭社区却举行第20 届“万家宴”，4万余家庭共吃团年饭。事实上，用百姓当作“中共病毒”的传播载体（令人气愤的是习近平却欺骗世人，多次胡说道“始终把人民群众生命安全和身体健康放在第一位。”）。天使闫丽梦博士于2020年1月19日通过路德社披露了SARS-CoV-2病毒的五大特点：传染性强、人与人之间传播、变异率高、从中共军事实验室爆发、中共故意放任病毒传播。这次爆料，彻底打乱了中共继续放任病毒传播的计划，给了中共打了个措手不及。次日晚，一直掩盖疫情的中共只好派钟南山出来说，“已确认存在人传人和医务人员感染。”在中共权贵逃离武汉后，武汉市于1月23日上午10点正式进入“封城”， 不仅限制人们出入武汉，该市的公交车、地铁、轮渡与长途客运都全面停驶。然而，被中共控制的WHO却于同一日宣布，“新型冠状病毒疫情尚未构成国际关注的突发公共卫生事件。”1月28日WHO的“中共书记”谭德塞访问北京，作为中共的走狗与习近平会谈。1月30日晚，谭德塞在日内瓦举行新闻发布会，说明新型冠状病毒感染的肺炎疫情已构成国际关注的突发公共卫生事件，但强调“世卫组织不赞成甚至反对对中国采取旅行或贸易禁令。”WHO的彻底沦陷，加剧了“中共病毒”在世界各国的迅速传播。
+3月19日朱利安尼先生推文：
 
-天使闫丽梦博士逃离香港抵达美国后，和七哥引领的爆料革命战友们联名发表了两篇报告。第一篇报告指出，新冠病毒的基因组排列与中国军方两硏究组织（第三军医大学和南京军区医学研究所）的舟山蝙蝠冠状病毒ZC45 或 ZXC21 甚为相似， Orf8蛋白有94.2%相同，E 蛋白更是百分百相同，没有其他不同冠状病毒与新冠病毒如此相似；位于新冠病毒棘状蛋白（即俗称皇冠形状物）的受体结合区域（RBM)，有S1 及S2 部分，专攻生物载体，引起人传人，新冠的S2 与 ZC45/ ZXC21病毒有九成五雷同；新冠的RBM非比寻常，天然转化机会极微，新冠与2003年沙士病毒异常相似，天然进化说难以自圆其说，是经过基因改造的证据；新冠病毒棘蛋白拥有一个非常独特的弗林（Furin ）分裂部位（酶切位点）会引致高感染力，但天然的同类冠状病毒则没有这个“独特部分”。第二篇报告指出，国际病毒基因库中的（石正丽上传的）RaTG13病毒基因序列为捏造， 在自然界中不存在；新冠病毒和RaTG13病毒不可能通过自然进化相互关联，至少有一个必须是人工的；矿洞说和穿山甲中间宿主说等都有致命错误。另外，“中共病毒”满足超限生物武器的所有特点：（1）它有非常强的毒力，可造成大规模的伤亡；（2）它有高传染性和易传播性，通常以气溶胶的形式通过呼吸道传播，可人传人；（3）它有较强的抗环境变化能力，可运输，并能定向释放。
+“拜登上空军一号的台阶时摔倒3次吗？腐败媒体什么时候要求一个答案？这是怎么回事？”
 
-天使闫丽梦博士和爆料革命的战友们致力于“中共病毒”真相的揭露与传播，世界正义力量也一步步清醒过来。2021年3月19日，美国国务卿安东尼·布林肯，国家安全顾问杰克·沙利文和中共外交负责人杨洁篪，中（共）国外交部长王毅在阿拉斯加安克雷奇举行的两天会谈结束。除新疆、香港、台湾、对美国的网络攻击等议题外，背后的议题应该有病毒真相？习总加速师的战狼外交不容下跪？这是美对中共开战前的最后通牒？人们拭目以待。以毒灭共，中共必然灭亡！
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-279.png)
 
-（本文只代表自己观点）
 
-* * *
+19日小唐纳德-川普发推称：
 
-*发布：法国巴黎七星农场编辑组*
+“普京刚刚向乔-拜登发起挑战，进行了一场没有台词的现场辩论。全世界都知道，我们的高层没有领导力，只有一个拿着提词器的空头西装（就这他都做不好）。他们看着美国现在的弱点，垂涎欲滴。”
 
-0
+朱利安尼先生回复称：“也许哈里斯副总统可以做替身？”
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-280.png)
+
+
+
+
+来自《真正美国之音》的“唯有真相”，珍娜-爱丽丝称，”今晚的表扬要颁给乔-拜登，他今天勇敢而真实地承认了卡马拉-哈里斯总统。也许这就是哈里斯-拜登政府的团结努力”。
+
+周五川普前高级顾问斯蒂芬-米勒接受福克斯新闻采访时警告说，拜登总统的言行正在成为一场 “国家安全危机”。他们在公开嘲笑我们，在嘲笑拜登总统，这很丢脸。他们公开嘲笑和侮辱我们，因为我们没有最高统领，没有总统。他还说，这是精心铺好的地毯，也不滑，拜登摔了三次，他是健康出问题了吗。他之后愤怒地说，“比如在阿拉斯加发生的事情，中（共）国敢在人权问题上教训我们。而安东尼-布林肯（国务卿）和杰克-沙利文（国家安全顾问）就这样坐以待毙！这些都是因为我们家里没有总统，其他国家看到了这个弱点。”
+
+福克斯新闻主播汉尼迪 称，拜登让美国尴尬了，普金一定会嘲笑他。看看昨日中（共）国官员对我们人权的谴责，我们的回答就是“为这些错误表示抱歉”，中（共）国看看你们用病毒对世界做了什么！
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Untitled-4.png)
+
+[https://www.foxnews.com/politics/stephen-miller-biden-frailty-national-security-crisis](https://www.foxnews.com/politics/stephen-miller-biden-frailty-national-security-crisis)
+### 美国边境危机和特赦
+
+议员Mo Brooks发推称：“正如我所说 @toddstarnes（媒体人）如果你给予大赦，那么那些想来美国的人就会说，’嘿，我可以违反美国的法律，我可以唾弃他们的宪法，因为最终他们会原谅我，让我留下来。不能特赦。”
+
+
+
+> As I told [@toddstarnes](https://twitter.com/toddstarnes?ref_src=twsrc%5Etfw), if you give amnesty, then the people who want to come to America say, ‘Hey, I can break America’s laws. I can spit on their Constitution because ultimately they’ll forgive me and let me stay.’ NO AMNESTY.
+>  [https://t.co/PgoJKzkXAr](https://t.co/PgoJKzkXAr)
+> — Mo Brooks (@RepMoBrooks) [March 19, 2021](https://twitter.com/RepMoBrooks/status/1372926648681697285?ref_src=twsrc%5Etfw)
+
+
+
+瑞克-斯科特参议员19日发推称：“今天，亚利桑那州州长@Dougducey和我亲眼目睹了南部边境的人道主义危机，这是由美国总统的灾难性开放边境政策和大赦政策造成的。现在是他对这场危险的危机采取行动的时候了，以保证美国人的安全和保障边境的安全。”
+
+
+
+> Today, AZ Gov [@dougducey](https://twitter.com/dougducey?ref_src=twsrc%5Etfw) & I saw firsthand the humanitarian crisis along the Southern border, caused by [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw)’s disastrous policies of open borders & amnesty. It's time he takes action on this dangerous crisis to keep Americans safe & SECURE THE BORDER: [https://t.co/wFe4o8bH2M](https://t.co/wFe4o8bH2M) [pic.twitter.com/T0HFEpahqi](https://t.co/T0HFEpahqi)
+> — Rick Scott (@SenRickScott) [March 19, 2021](https://twitter.com/SenRickScott/status/1373022193148366850?ref_src=twsrc%5Etfw)
+
+
+
+### 一再被夸张的“种族主义”
+
+19日美国驻联合国大使琳达发推称：“在美国总统的方向上，我们在联合国升半旗，纪念本周亚特兰大可怕悲剧的受害者。我们必须团结一致，反对种族主义的祸害，这是非常重要的。团结起来，我们就有力量。”
+
+当日白宫发言人纳得转推称，“对于美国总统和整个政府，结束种族歧视是我们的首要任务。我们要求其他国家批准和执行《消除一切形式种族歧视国际公约》，与我们一道打击种族主义。”
+
+
+
+> Ending racial discrimination is a top priority for [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) and the entire administration. We ask that other nations join us in fighting racism by ratifying and implementing the International Convention on the Elimination of All Forms of Racial Discrimination. [https://t.co/gg6t2AE5oE](https://t.co/gg6t2AE5oE)
+> — Ned Price (@StateDeptSpox) [March 19, 2021](https://twitter.com/StateDeptSpox/status/1373031934356549640?ref_src=twsrc%5Etfw)
+
+
+
+19日福克斯新闻称“哈里斯明显抹黑川普，称 “拥有最大讲坛 “的人对亚裔美国人喷出仇恨。” 川普总统放弃爆料革命天赐良机在病毒战中的优势，甚至因迁就“中共”始终未敢把“中共病毒”说出口，终于迎来痛击。在与中共战斗的过程中，郭先生讲得精辟“真、善、狠”，任何骑墙、妥协、虚伪和软弱，都没有出路，革命无间道啊。
+
+
+
+> Harris, in apparent swipe at Trump, says people ‘with the biggest pulpits’ spewed hate toward Asian Americans [https://t.co/DTFAapNonB](https://t.co/DTFAapNonB)
+> — Fox News (@FoxNews) [March 19, 2021](https://twitter.com/FoxNews/status/1373053365345738752?ref_src=twsrc%5Etfw)
+
+
+[https://www.foxnews.com/politics/harris-trump-people-pulpits-spewed-hate-asian-americans](https://www.foxnews.com/politics/harris-trump-people-pulpits-spewed-hate-asian-americans)
+### 美中“厕所会谈”
+
+马克-卢比奥议员19日就美中阿拉斯加厕所会晤发推称：“中共官员在阿拉斯加发的外交脾气表明，我们不可能与北京（中共国政府）的敌对和种族灭绝政权进行建设性对话。拜登政府必须接受这一现实，站起来应对中共的威胁。”
+
+
+
+> The diplomatic temper tantrum thrown by Chinese Communist Party officials in Alaska shows that we cannot have constructive dialogue with the hostile and genocidal regime in Beijing. The Biden Administration must accept that reality and rise to meet the threat posed by the CCP.
+> — Marco Rubio (@marcorubio) [March 20, 2021](https://twitter.com/marcorubio/status/1373101461895319555?ref_src=twsrc%5Etfw)
+
+
+
+
+
+### 蹭川普热度
+
+20日据福克斯新闻，川普前日揶揄要参加2024年总统竞选，潜在的共和党竞争对手开始提前造访。
+
+
+
+> As Trump teases a 2024 presidential run, potential GOP rivals start making early visits[https://t.co/BghWmUW5Je](https://t.co/BghWmUW5Je)
+> — Fox News (@FoxNews) [March 20, 2021](https://twitter.com/FoxNews/status/1373227602593390598?ref_src=twsrc%5Etfw)
+
+
+
+### 谴责拜登
+
+众议员提名人安娜接受Newsmax 采访时称，“乔拜登被中（共）国收买了，川普总统或许没有“政治正确”，然而现在的政府太软弱了，没有把美国摆在国际范围上正确的位置。”
+
+
+
+### 军事成就
+
+3月18日NASA公布，“8分钟后，SLS火箭的#阿尔忒弥斯一号核心级试验成功火箭。”
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image-278.png)[https://blogs.nasa.gov/artemis/2021/03/18/green-run-update-full-duration-hot-fire-successfully-completed-on-mar-18/](https://blogs.nasa.gov/artemis/2021/03/18/green-run-update-full-duration-hot-fire-successfully-completed-on-mar-18/)
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+
++1

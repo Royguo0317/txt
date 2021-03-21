@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国将重新收紧中共病毒限制措施
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/994957/)
+## 马斯克称若特斯拉车用于间谍活动公司会被关闭
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/994976/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-20_20-58-22-1.jpg)[techtimes.com](https://www.techtimes.com/articles/258233/20210320/elon-musk-china-tesla-shut-down-cars-used-spying.htm)
+英国独立报报道，特斯拉(Tesla)首席执行官埃隆•马斯克(Elon Musk)周六表示，如果特斯拉的汽车被用于间谍活动，他的公司将被关闭。这是马斯克首次就中共军方禁止特斯拉进入中共军事区域的消息发表评论。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+“我们有很强的动机对任何信息保密。”马斯克在一个著名的中共国论坛上说。他声称，如果特斯拉的汽车在中共国或其他地方被用于监视，特斯拉将被关闭。
 
-**西班牙2021年3月20日电/西喜社——**据美联社3月20日报道，德国总理默克尔表示，由于中共病毒感染加速，德国将不得不采取 “紧急刹车”，以扭转最近一些大流行病限制的放松。
+此前，中共军方已下达指令通知禁止特斯拉汽车进入军事区域，理由是担心车辆上安装的摄像头会造成安全问题。分析人士称中共此举与华盛顿以国家安全为由对中共电信公司华为采取的措施类似。这些限制是在中美两国高级外交官在阿拉斯加举行会晤之际传出的，这是自乔·拜登(Joe Biden)今年1月上任以来，双方首次进行此类面对面交流。
 
-德国国家疾病控制中心表示，由于在英国首次发现的传染性更强的中共病毒变种在该国占主导地位，新的感染病例正在成倍增长。
+马斯克在中共国发展高层论坛上的讲话中敦促世界上最大的两个经济体之间加强互信。
 
-根据两周前与各州州长达成的协议，默克尔应该在每周新增病例数上升到每10万居民100例以上的地区重新实施限制。上周五全国平均水平为95.6。
+特斯拉电动汽车制造商于2019年在上海建立了第一家海外工厂，获得了上海的大力支持。特斯拉Model 3轿车曾是中共国最畅销的电动汽车，后来被价格便宜得多的微型电动汽车取代。特斯拉去年在中共国的销量为147,445辆，占其总销量的30%，然而今年面临着从蔚来到吉利等中共国内新兴电动车的竞争。
 
-默克尔表示，”不幸的是，我们将不得不利用这一紧急刹车”。
+参考链接：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/7000312c-2d11-4a5e-a75f-c86287b8f7aa.jpg)
-
-**新闻来源：[美联社](https://apnews.com/article/europe-global-trade-coronavirus-pandemic-ursula-von-der-leyen-coronavirus-vaccine-1f08aa923ea77883b7473bdded65788f)**
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募.jpeg)
+[https://www.independent.co.uk/asia/east-asia/elon-musk-tesla-china-spying-b1819970.html](https://www.independent.co.uk/asia/east-asia/elon-musk-tesla-china-spying-b1819970.html)
 
 0

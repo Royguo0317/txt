@@ -1,17 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月20日 文贵先生盖特 1
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/995068/)
+## 快讯：巴基斯坦总理接种中共病毒疫苗后感染！
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/995113/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+**路仁**
 
-3月2O号：昨天阿拉斯加的最大的政治骗局．又骗谁，又骗什么？和昨天拜登总统空军一号的三摔．摔出了什么？摔倒了谁？后果有多严重？
+据《印度电视新闻台》3月20日报道， 现年67岁的巴基斯坦总理伊姆兰.汗在周五（3月19日）注射了第一剂中共国药集团疫苗后，于本周六（3月20日）核酸检测，呈病毒阳性反应，目前在家隔离。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ba-2.jpg)
+巴基斯坦上周三接收了中共国提供的第二批500剂国药集团疫苗。
 
+[原文链接](https://www.indiatvnews.com/news/world/imran-khan-covid19-positive-days-after-chinese-vaccine-inoculation-692310)
 
+* * *
 
-[【2021年3月20日】文贵先生盖特原文](https://gtv.org/getter/6055ef81d1608d609ea65fd2)
+*发稿 文锦*
 
-喜联盟Gnews编辑部
-
-0
++1
