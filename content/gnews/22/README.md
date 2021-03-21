@@ -1,13 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 成功治愈5000例新冠病人的南加州医生布莱恩·泰森谈新冠疫苗的副作用
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/997445/)
+## 中共政府对拜登政府完全不屑一顾 毫不掩饰
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/997788/)
 
-3/17/2021 成功治愈5000例新冠病人的南加州医生布莱恩·泰森谈新冠疫苗的副作用。
+3/20/2021 中共政府对拜登政府完全不屑一顾 毫不掩饰。
 
 By： 【秘密翻译组 G-Translators】
 
 
 
-+4
++3
