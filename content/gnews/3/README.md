@@ -1,44 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 巴基斯坦总理在接受中共疫苗后感染新冠病毒
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/999354/)
+## 欧盟因维吾尔族“种族灭绝”问题对中共国实施制裁
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/999490/)
 
-新闻来源：《印度电视新闻报道 India TV News Desk》| 作者：伊斯兰堡消息(Islamabad) | 发布时间：2021年3月21日
+新闻来源：《零对冲（ZEROHEDGE）》| 作者：泰勒·德登（TYLER DURDEN） | 发布时间：2021年3月18日
 
-翻译/简评：文明明 | 校对：Beicy-数学老师 | 审核：Beicy-数学老师 | Page：青山
+翻译/简评：随波逐流 | 校对：Beicy-数学老师 | 审核：Beicy-数学老师 | Page：青山
 
-[!\[\]()!\[\](https://spark.adobe.com/page/RlzJ2KbGxl3ck/images/33f3447d-7b39-4450-b0ba-e92c2251d186.jpg?asset_id=40a3c2b2-bd00-4709-a8d4-dc800f057b19&amp;img_etag=%2296c4bc67f24eacd9d234dec1a3e3250b%22&amp;size=1024)](https://spark.adobe.com/page/RlzJ2KbGxl3ck/images/33f3447d-7b39-4450-b0ba-e92c2251d186.jpg?asset_id=40a3c2b2-bd00-4709-a8d4-dc800f057b19&amp;img_etag=%2296c4bc67f24eacd9d234dec1a3e3250b%22&amp;size=1024)巴基斯坦总理伊姆兰·汗（Imran Khan）
+[!\[\]()!\[\](https://spark.adobe.com/page/9d5vClieMDSka/images/d8397a64-d922-4765-8c14-b38f02a09404.jpg?asset_id=7baff075-b2ad-4555-8980-803fac57532f&amp;img_etag=%224eda9f3160336083f2cc66bec1a2e94e%22&amp;size=1024)](https://spark.adobe.com/page/9d5vClieMDSka/images/d8397a64-d922-4765-8c14-b38f02a09404.jpg?asset_id=7baff075-b2ad-4555-8980-803fac57532f&amp;img_etag=%224eda9f3160336083f2cc66bec1a2e94e%22&amp;size=1024)欧洲联盟成员国大使传17日以迫害人权为由，同意对中国官员实施制裁。 （图取自twitter.com/EU\_Commission）
 
 **简评：**
 
-据印度电视新闻报道，巴基斯坦总理伊姆兰·汗（Imran Khan）的健康事务助手费萨尔·苏尔坦博士在周六表示，巴基斯坦总理伊姆兰·汗（Imran Khan）的新冠病毒检测呈阳性，目前正在家中进行自我隔离。
+美国与北京之间的压力以及急剧恶化的关系最近主要集中在与人权有关的指控上，尤其是中共国对穆斯林社区的镇压，川普政府之前称其为“种族灭绝”。现在欧洲第一次以非常明确的方式表态，即欧盟周三同意将中共国官员列入侵犯人权的黑名单，这将包括对至少四名中共国个人和一个实体的旅行禁令和资产冻结，但在欧盟外长批准前不会公布名字。这是欧盟在三十年中首次因维吾尔族“种族灭绝”问题对中共国实施制裁，也是自1989年天安门广场镇压后，欧盟实施武器禁运以来对北京的第一次制裁。中共国驻欧盟代表团随后发表了声明，对这一举动表示愤怒并称，“制裁是对抗性的，我们要对话，而不是对抗。我们要求欧盟方面三思。如果有人坚持对抗，我们不会退缩，因为我们除了履行对人民的责任外别无选择。”言辞中隐含了威胁意味。与此同时，加拿大的多名国会议员因新疆人权问题，试图敦促欧盟国家和其他国家抵制北京2022年冬季奥运会的提议在欧洲遇到冷处理，因此，预计欧盟的这项制裁措施不一定能达到加拿大和英国一些议员们想要推动的效果。
 
-汗（Khan）是在周五接受了第一剂中共国产的国药疫苗的注射。周五注射疫苗，周六检测出新冠病毒阳性。译者对此颇觉匪夷所思，不知道的人还以为是注射了病毒，这么立竿见影。不过，从这则简短的新闻中，我们至少可以得出中共国产疫苗的质量实在令人担忧的结论。
-
-与此同时，据报告在过去24小时内，巴基斯坦新增了3876个病例，是自去年7月以来最高的日新增病例数。去年7月2日，巴基斯坦曾报告有4432例阳性病例。而这次的急增病例发生在巴基斯坦全国推广中共疫苗之际，是巧合呢？还是人为？
+鉴于中共长期以来在欧盟广泛渗透下形成的利益纠葛，导致欧盟在很多方面与中共构成互相依赖的关系，因此欧盟做事一直瞻前顾后，对中共的态度模糊不清，这可以从欧盟对于退出北京奥运会的提议和之前对新疆人权问题调查的消极态度中得到体现。欧盟的制裁与美国、加拿大、英国等相比，可能会有所软弱，但无论如何，欧盟在对待制裁中共问题上终于迈出了积极的一步。“种族灭绝”问题绝对是灭共的一个重要砝码，总的来说，目前世界各国对灭共还是持观望态度，都在看美国的进一步行动以及中共接下来反应，但西方各国的联合行动方案应该已经在酝酿中，只是需要一个契机达到引爆点。而这个契机很可能由中共自己犯错，不知死活挑战国际秩序造成，笔者认为最可能的原因就是中共突然武力攻打台湾。
 
 **原文翻译：**
 
-## **巴基斯坦总理在接受中共国产——国药疫苗（Sinopharm）首剂注射后几天，新冠病毒检测呈阳性**
+## **欧盟三十年来首次因维吾尔族“种族灭绝”问题对中共国实施制裁**
 
-巴基斯坦总理伊姆兰·汗（Imran Khan）在接受中共国产的国药疫苗（Sinopharm）首剂注射几天后，新冠病毒检测呈阳性。
+美国与北京之间的压力以及急剧恶化的关系最近主要集中在与人权有关的指控上，尤其是中共国对穆斯林社区的镇压，川普政府之前称其为“种族灭绝”，现在欧洲第一次以非常明确的方式表态。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/RlzJ2KbGxl3ck/images/0fbae466-323b-463d-a5eb-7e46962bd37e.jpg?asset_id=4b45088e-1248-429d-94ac-2faf79291c69&amp;img_etag=%2245a26100b82babdb1d12515cda42680b%22&amp;size=2560)](https://spark.adobe.com/page/RlzJ2KbGxl3ck/images/0fbae466-323b-463d-a5eb-7e46962bd37e.jpg?asset_id=4b45088e-1248-429d-94ac-2faf79291c69&amp;img_etag=%2245a26100b82babdb1d12515cda42680b%22&amp;size=1024)伊姆兰·汗（Imran Khan）新冠病毒检测呈阳性 – 图片来自美联社
+据路透社报道：“两名外交官说，欧盟周三同意将中共国官员列入侵犯人权的黑名单，这是自1989年天安门广场镇压后，欧盟实施武器禁运以来对北京的首次制裁。”
 
-巴基斯坦总理伊姆兰·汗（Imran Khan）的健康事务助手费萨尔·苏尔坦博士在周六表示，巴基斯坦总理伊姆兰·汗（Imran Khan）的新冠病毒检测呈阳性。汗（Khan）是在周五接受了第一剂中共国产的国药（Sinopharm）疫苗的注射。
+这次欧盟在过去三十年中的首次制裁源于有广泛的报道称，(中共)在新疆西北地区存在“系统性”侵犯人权行为，数百万穆斯林维吾尔人被囚禁到共产党的“再教育”和劳改营中。
 
-苏尔坦博士在推特上说：“伊姆兰·汗（Imran Khan）总理的新冠病毒检测呈阳性，正在家中进行自我隔离。”
+[!\[\]()!\[\](https://spark.adobe.com/page/9d5vClieMDSka/images/c81f66f4-260d-4d06-aecc-6386cdfd1365.jpg?asset_id=6ca3dd7f-08a0-49cd-9931-db68889bb275&amp;img_etag=%226cb359fdf11607fad78976d9430ebebc%22&amp;size=2560)](https://spark.adobe.com/page/9d5vClieMDSka/images/c81f66f4-260d-4d06-aecc-6386cdfd1365.jpg?asset_id=6ca3dd7f-08a0-49cd-9931-db68889bb275&amp;img_etag=%226cb359fdf11607fad78976d9430ebebc%22&amp;size=1024) 美联社提供
 
-[!\[\]()!\[\](https://spark.adobe.com/page/RlzJ2KbGxl3ck/images/7895e520-0788-4e65-81bf-17ecf1153dfc.jpg?asset_id=f4e50ac9-e402-486f-82cc-2fc9956e0659&amp;img_etag=%22fdb93e5402ce18b27b9cd7ae08fd8927%22&amp;size=1024)](https://spark.adobe.com/page/RlzJ2KbGxl3ck/images/7895e520-0788-4e65-81bf-17ecf1153dfc.jpg?asset_id=f4e50ac9-e402-486f-82cc-2fc9956e0659&amp;img_etag=%22fdb93e5402ce18b27b9cd7ae08fd8927%22&amp;size=1024)
+路透社指出，这将包括对至少四名中共国个人和一个实体的旅行禁令和资产冻结；但是，在欧盟外长于3月22日正式批准之前，预计不会公开这些名字。
 
-现年67岁的汗 （Khan）接种疫苗是巴基斯坦全国范围内抗新冠病毒、接种疫苗活动的一部分，目前该活动正处在第一阶段。新冠疫苗的接种对象为60岁及以上人群和一线医务人员。
+欧盟外交官已经向路透社证实了制裁的准备工作，路透社进一步报道说：
 
-周三，巴基斯坦收到了由中共国捐赠的50万剂新冠病毒疫苗，第二批国药集团（Sinopharm）的疫苗是在拉瓦尔品第（Rawalpindi）的努尔汗（Nur Khan）空军基地交接的。
+1989年欧盟对其第二大贸易伙伴，中共国的武器禁运仍然有效。
 
-与此同时，据报告在过去24小时内，巴基斯坦新增了3876个病例，是自去年7月以来最高的单日病例数。早在去年7月2日，巴基斯坦曾报告有(单日)4432例阳性病例。
+一位欧盟外交官说：“针对严重侵犯和践踏人权的行为采取了限制性措施。”
 
-🔗[原文链接](https://www.indiatvnews.com/news/world/imran-khan-covid19-positive-days-after-chinese-vaccine-inoculation-692310)
+报告发布后不久，中共国驻欧盟代表团发表了声明，对这一举动表示愤怒，称其为“对抗性的”。
+
+中共的推特声明中说：“制裁是对抗性的，我们要对话，而不是对抗。我们要求欧盟方面三思。如果有人坚持对抗，我们不会退缩，因为我们除了履行对人民的责任外别无选择。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/9d5vClieMDSka/images/464ea855-de3e-4d1c-aaa0-79dcbb54b618.jpg?asset_id=1309a606-867f-4ecd-8eb4-fe9190f9773f&amp;img_etag=%22161f273576795926bc5a5904407f7a50%22&amp;size=1024)](https://spark.adobe.com/page/9d5vClieMDSka/images/464ea855-de3e-4d1c-aaa0-79dcbb54b618.jpg?asset_id=1309a606-867f-4ecd-8eb4-fe9190f9773f&amp;img_etag=%22161f273576795926bc5a5904407f7a50%22&amp;size=1024)
+
+与此同时，加拿大在维吾尔族问题上是一直坚持发声并冲在最前面的，许多国会议员试图敦促欧盟国家和其他国家抵制北京的2022年冬季奥运会。
+
+作为对中共国人权问题的回应“信号”，这一引人注目的退出奥运会的提议在欧洲遇到了冷处理。因此，欧盟的这项制裁措施似乎是在尝试“做点事”，但不会像加拿大和英国一些议员们正在推动的那样远。
+
+路透社文章写道，所有这些都是在欧盟官员拒绝中共国邀请—-直接调查维吾尔难民营之后而发生的：“中共国否认在新疆境内有任何侵犯人权的行为，并说其难民营提供职业培训，是打击极端主义的需要。”
+
+“北京曾多次邀请欧盟驻新疆大使，但特使们说，他们不能在中共国当局设定的严格条件和监督下访问。”
+
+🔗[原文链接](https://www.zerohedge.com/geopolitical/eu-sanction-china-first-time-3-decades-over-uighur-abuses?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -47,6 +59,6 @@
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/RlzJ2KbGxl3ck/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/RlzJ2KbGxl3ck/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/9d5vClieMDSka/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/9d5vClieMDSka/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

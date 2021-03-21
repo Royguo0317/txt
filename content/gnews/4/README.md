@@ -1,36 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 乌克兰收回发动机制造企业，中共技术剽窃梦碎
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/999338/)
+## 美日印澳四方联合围堵中共疫苗外交
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/999364/)
 
-作者：宁缺 | 校对：文明明 | 审核：Beicy-数学老师 | Page：拱卒
+作者：宁缺 | 校对：文明明 | 审核：Beicy-数学老师 | Page：青山
 
-乌克兰宣布，出于国家安全考虑，将在不久的将来把世界顶尖的飞机引擎制造商马达西奇公司重新国有化，以免其落入中共的公司手里。
+[!\[\]()!\[\](https://spark.adobe.com/page/RKg4e1ISpOPkh/images/9b7ebd8a-b72a-46f9-9f65-2d2a19a5b1e2.jpg?asset_id=85421263-df0f-4ce3-ad44-81fbeaca41b1&amp;img_etag=%22c87baac475d6f6aad8511b75b1efd612%22&amp;size=1024)](https://spark.adobe.com/page/RKg4e1ISpOPkh/images/9b7ebd8a-b72a-46f9-9f65-2d2a19a5b1e2.jpg?asset_id=85421263-df0f-4ce3-ad44-81fbeaca41b1&amp;img_etag=%22c87baac475d6f6aad8511b75b1efd612%22&amp;size=1024)美日印澳四国领导人
 
-乌克兰国家安全和国防委员会秘书达尼洛夫周四（3月11日）表示，“马达西奇公司将会通过符合法律和宪法的方式让飞机制造公司马达西奇重新回到乌克兰国家的手中。”
+美国、日本、澳大利亚和印度四国领导人星期五（3月12日）举行四方安全对话机制（QUAD）的首次峰会。峰会就新冠疫苗的生产和供应、稀土供应链以及关键新兴科技领域的合作达成一致。虽然美国国家安全顾问说，峰会的焦点不是中共国，但有分析人士说，这是拜登政府联合盟友和伙伴针对中共国打出的“组合拳”中的重要一拳。他们还说，四方对话机制得以升级至峰会级别，是由于中共在亚太地区越来越咄咄逼人的动作。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/zxKtoTgvjKu88/images/7365f6ce-6714-4ef3-985c-f4237de5de93.jpg?asset_id=20ff1cd0-b74b-4a9d-8df7-58acced54bb3&amp;img_etag=%22b8e0af310e1e5f7dcd75c94c7ca5200f%22&amp;size=2560)](https://spark.adobe.com/page/zxKtoTgvjKu88/images/7365f6ce-6714-4ef3-985c-f4237de5de93.jpg?asset_id=20ff1cd0-b74b-4a9d-8df7-58acced54bb3&amp;img_etag=%22b8e0af310e1e5f7dcd75c94c7ca5200f%22&amp;size=1024)资料照：乌克兰马达西奇发动机公司在基辅举行的一个国际武器展上展示的AI-322F引擎。（2018年10月9日）
+🔗新闻链接：[美日印澳四方峰会成果多， 拜登打出遏制中国组合拳?](https://www.voachinese.com/a/quad-summit-china-03122021/5812557.html)
 
-新闻链接：[乌克兰决定把马达西奇收归国有，避免其落入中国之手](https://www.voachinese.com/a/Ukraine-to-nationalise-aircraft-engine-maker-to-prevent-Chinese-takeover-20210312/5812297.html)
+**评论：**
 
-#### 评论:
+[!\[\]()!\[\](https://spark.adobe.com/page/RKg4e1ISpOPkh/images/5cd3f011-219a-4085-9ba1-8b77953829fd.jpg?asset_id=c74c9a2b-cacf-4174-b513-0b73710674c3&amp;img_etag=%22ba924a92206f54cfa83c03afdffb7d06%22&amp;size=1024)](https://spark.adobe.com/page/RKg4e1ISpOPkh/images/5cd3f011-219a-4085-9ba1-8b77953829fd.jpg?asset_id=c74c9a2b-cacf-4174-b513-0b73710674c3&amp;img_etag=%22ba924a92206f54cfa83c03afdffb7d06%22&amp;size=1024)2020年11月，参加马拉巴尔海军演习，来自美、日、印、澳国家的航母和军舰
 
-中共收购马达西奇公司的目的是获取这家公司的飞机发动机制造技术和知识产权，从而推动中共国的军事发展，特别是飞机发动机、卫星与巡航导弹的制造。此次收购西奇公司，企图获得直升机发动机关键技术的行为再次暴露了中共国工业制造基础薄弱、创新研发能力不足的悲惨现实。与芯片技术受制于美国一样，中共从来就没有掌握各项科技产品的核心技术。“厉害了，我的国”这一光鲜口号背后是倚靠搜刮民脂民膏获取的天量资金在国外“买、买、买” 的真实现状。
+新浪网3月6日刊出《中国之声》报道，中共国国药集团子公司国药控股董事长于清明在“两会”期间透露，国药集团高层一年前接种的新冠病毒（COVID-19）疫苗，现在抗体犹在，此言引发网络一片哗然。中共在自己手持解药和疫苗的情况下，制造释放病毒残害他国，搅乱世界的企图昭然若揭。从目前全球混乱的局势来看，中共的病毒策略已获成功。世界经济已经陷入严重危机，各国政府为了勉强维持经济和财政的运转都在竞相开动印钞机。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/zxKtoTgvjKu88/images/6e15f156-accb-4b70-94e5-1d161596c4fa.jpg?asset_id=ee8ad422-e2ef-42fa-a83e-a7a66ee81845&amp;img_etag=%22dd8cf71499a51fd323fc77fdd1958686%22&amp;size=1024)](https://spark.adobe.com/page/zxKtoTgvjKu88/images/6e15f156-accb-4b70-94e5-1d161596c4fa.jpg?asset_id=ee8ad422-e2ef-42fa-a83e-a7a66ee81845&amp;img_etag=%22dd8cf71499a51fd323fc77fdd1958686%22&amp;size=1024)马达西奇公司
+大乱之中，中共也没有闲着，正紧锣密鼓地利用疫苗作为要挟其他国家的外交新手段，在全世界不断勒索政治资源。很多国家在中共疫苗的诱惑之下，逐渐降低了抨击中共、要求其赔偿损失的调门。尤其是十年前就指责北京种族灭绝新疆人的土耳其，现在竟然调转枪口在国内打压维吾尔活动人士。
 
-“股神”巴菲特有句名言，只有当潮水退去时，你才会知道谁一直在裸泳。之前，世界沉溺在中共的欺骗和收买之下，北京尚且可以东拼西凑、掩人耳目地将他国的高精尖科技产品放入自己精心制作的包装壳中。在全球已经察觉到中共国独裁专制、称霸世界的野心，收紧技术产品出口之后，曾给无数国民打鸡血的、 “中共国制造” 的外强中干的本来面目已经暴露无疑。国内民众终于发现，中共几十年来不遗余力吹嘘的自主研发，不过是轻轻一碰就破灭的泡泡而已。
-
-值得注意的是，除了美国和日本，就连俄罗斯也不愿意放任中共获得马达西奇公司的控制权。中俄之间的塑料花友谊再一次得到了“扎实”的验证。过去整日幻想万国来朝白日梦的中共统治者，现在迎来的是举世皆敌的现实噩梦。内忧外患之下，中共国还能苦撑多久？
+美国及其在亚太的盟友日本、印度、澳大利亚，显然已经意识到这个问题。如果放任中共继续肆意妄为，那么北京不仅可以洗脱制造、释放病毒的罪行，甚至可能到处收买人心，占据舆论高地。目前，中共还仅仅是在国内遮遮掩掩地宣传美国释放病毒的虚假消息。一旦中共完成了对世界舆论的大范围控制，“美国释放病毒论”可能成为大外宣打造的下一个“世界共识”。
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/zxKtoTgvjKu88/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/zxKtoTgvjKu88/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/RKg4e1ISpOPkh/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/RKg4e1ISpOPkh/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
