@@ -1,123 +1,168 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0320.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/992944/)
+## 美国政要等每日重要信息0321.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/997132/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
 
 作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0320.jpeg)图片来源：康州盘古农场 霹雳年
-### 拜登怎么了
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0321-3.jpeg)图片来源：康州盘古农场 霹雳年
+#### 美中“厕所会晤”后的反响
 
-3月19日朱利安尼先生推文：
+福克斯新闻3月20日报道了自拜登政府执政以来美中首次外交会晤。在开放部分中共国夸张地向美方开火，双方今日返回。
+[https://www.foxnews.com/shows/special-report](https://www.foxnews.com/shows/special-report)
+记者琼琳称：拜登现在要和中、俄两国正面交锋。拜登一时间要面对很多事情，尽管他登上空军一号时差点摔倒，白宫新闻部门坚持称“他还好”。国务卿布林肯在公开发言时不含糊地指出和中共国外交官员提出的问题，包括在新疆、香港、西藏、最近在台湾方面，以及在网络空间行动的问题。
 
-“拜登上空军一号的台阶时摔倒3次吗？腐败媒体什么时候要求一个答案？这是怎么回事？”
+国家安全顾问朱利文在会谈中表示，这些问题不仅是关乎美国人的，所有同盟国、广泛的国际社会都对此表示关注。
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-279.png)
+中方杨洁篪讲话时称，（美方据中方发言的翻译内容）“美方改变自身形象，停止向全世界主张自己声称的民主非常重要，很多美国国内的人事实上对美国的民主都不怎么相信。”
 
+乘坐空军一号返回的外交部长在应对中方的说法时，坚持称美国对待中共国有自信，处于强势地位。但是白宫新闻部秘书首席代理凯伦（Karine Jean-Pierre）称，“甚至我们谦虚地知道，我们在内部努力成为一个更完美的联合体的国家。”
 
-19日小唐纳德-川普发推称：
-
-“普京刚刚向乔-拜登发起挑战，进行了一场没有台词的现场辩论。全世界都知道，我们的高层没有领导力，只有一个拿着提词器的空头西装（就这他都做不好）。他们看着美国现在的弱点，垂涎欲滴。”
-
-朱利安尼先生回复称：“也许哈里斯副总统可以做替身？”
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-280.png)
+下周布林肯国务卿将前往欧洲访问， 声称要重启美国对其整个新关系，结束过去四年的紧张状态。
 
 
 
+#### 抨击“福奇对美国公众不诚实”
+![]()![](https://gnews.org/wp-content/uploads/2021/03/tucker-paul-fauci.png)[https://www.foxnews.com/shows/tucker-carlson-tonight](https://www.foxnews.com/shows/tucker-carlson-tonight)
+3月20日福克斯新闻塔克主播说：如果你关注冠状病毒大战，就会发现一些变化。之前说不要戴口罩，现在说戴三个，CDC现在说社交距离可以从6英尺改为3英尺了。最有经验长期变化的是安东尼-福奇博士，据说他已经打了疫苗，可是现在仍然戴两层口罩，这是科学吗？
 
-来自《真正美国之音》的“唯有真相”，珍娜-爱丽丝称，”今晚的表扬要颁给乔-拜登，他今天勇敢而真实地承认了卡马拉-哈里斯总统。也许这就是哈里斯-拜登政府的团结努力”。
+参议员保罗（Rand Paul） 公开向福齐博士发问：不管打了疫苗的、还是已经感染的，都要戴口罩，不是说有了免疫能力就可以了吗？那么您关于打疫苗后免疫力、或者感染后传播的研究是什么？这是搞戏剧吗？你不是打了疫苗了吗为什么还戴两层口罩？问题二：关于住院和死亡的再次感染上有什么显著的证据表明其来自变异，我国数据是零。
 
-周五川普前高级顾问斯蒂芬-米勒接受福克斯新闻采访时警告说，拜登总统的言行正在成为一场 “国家安全危机”。他们在公开嘲笑我们，在嘲笑拜登总统，这很丢脸。他们公开嘲笑和侮辱我们，因为我们没有最高统领，没有总统。他还说，这是精心铺好的地毯，也不滑，拜登摔了三次，他是健康出问题了吗。他之后愤怒地说，“比如在阿拉斯加发生的事情，中（共）国敢在人权问题上教训我们。而安东尼-布林肯（国务卿）和杰克-沙利文（国家安全顾问）就这样坐以待毙！这些都是因为我们家里没有总统，其他国家看到了这个弱点。”
-
-福克斯新闻主播汉尼迪 称，拜登让美国尴尬了，普金一定会嘲笑他。看看昨日中（共）国官员对我们人权的谴责，我们的回答就是“为这些错误表示抱歉”，中（共）国看看你们用病毒对世界做了什么！
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Untitled-4.png)
-
-[https://www.foxnews.com/politics/stephen-miller-biden-frailty-national-security-crisis](https://www.foxnews.com/politics/stephen-miller-biden-frailty-national-security-crisis)
-### 美国边境危机和特赦
-
-议员Mo Brooks发推称：“正如我所说 @toddstarnes（媒体人）如果你给予大赦，那么那些想来美国的人就会说，’嘿，我可以违反美国的法律，我可以唾弃他们的宪法，因为最终他们会原谅我，让我留下来。不能特赦。”
+议员在塔克新闻采访中称：政府改变政策没有科学数据支持。这都是政府对你对我的独裁控制。现在没有科学数据表明传播病毒究竟是因为打了疫苗后、还是自然传染后发生的。福奇不回答这些问题，他想让人们知道的是“贵族政策”，因为他认为你们还没有聪明到自己可以决定。政府没有给出科学数据，从来没有新闻报道，政府应该统计打了疫苗后多少人再次感染住院、死亡、继续传播病毒。福对公众不诚实。
 
 
 
-> As I told [@toddstarnes](https://twitter.com/toddstarnes?ref_src=twsrc%5Etfw), if you give amnesty, then the people who want to come to America say, ‘Hey, I can break America’s laws. I can spit on their Constitution because ultimately they’ll forgive me and let me stay.’ NO AMNESTY.
->  [https://t.co/PgoJKzkXAr](https://t.co/PgoJKzkXAr)
-> — Mo Brooks (@RepMoBrooks) [March 19, 2021](https://twitter.com/RepMoBrooks/status/1372926648681697285?ref_src=twsrc%5Etfw)
+#### 还能有多没底线
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Biden-greg-2.png)[https://twitter.com/newsmax/status/1373439214101012488?s=20](https://twitter.com/newsmax/status/1373439214101012488?s=20)
+3月20日Newsmax主播凯里（Greg Kelly)在节目“还能有多没底线”中谈了几个话题，包括首先是对拜登的嘲讽。他说：“大多数时候我们觉得没有总统，尽管刚举行了总统采访，但是这是一个假采访。采访中拜登被问及“边境危机现在更糟了，您以前说会更好？”拜登回答：19年20年也很糟。凯里讽刺他无论何时都责怪川普总统。
+
+此外凯里还就CBS电视节目里播放的辣妹热舞秀进行抨击，因为演员穿着暴露、动作下流，他说这不应该公开播放，过去人们都是在角落里才找到类似的讯息（如色情杂志）。
 
 
 
-瑞克-斯科特参议员19日发推称：“今天，亚利桑那州州长@Dougducey和我亲眼目睹了南部边境的人道主义危机，这是由美国总统的灾难性开放边境政策和大赦政策造成的。现在是他对这场危险的危机采取行动的时候了，以保证美国人的安全和保障边境的安全。”
+#### 国防预算削减
 
 
 
-> Today, AZ Gov [@dougducey](https://twitter.com/dougducey?ref_src=twsrc%5Etfw) & I saw firsthand the humanitarian crisis along the Southern border, caused by [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw)’s disastrous policies of open borders & amnesty. It's time he takes action on this dangerous crisis to keep Americans safe & SECURE THE BORDER: [https://t.co/wFe4o8bH2M](https://t.co/wFe4o8bH2M) [pic.twitter.com/T0HFEpahqi](https://t.co/T0HFEpahqi)
-> — Rick Scott (@SenRickScott) [March 19, 2021](https://twitter.com/SenRickScott/status/1373022193148366850?ref_src=twsrc%5Etfw)
+> These cuts would be nothing short of catastrophic. 
+> 
+> China's goal is nothing less than the complete destruction of the United States. They will not stop simply because you all would choose to ignore them. [https://t.co/gNLR8XRnv4](https://t.co/gNLR8XRnv4)
+> — Rep. Rob Wittman (@RobWittman) [March 19, 2021](https://twitter.com/RobWittman/status/1372933364039225345?ref_src=twsrc%5Etfw)
 
 
 
-### 一再被夸张的“种族主义”
+3月19日波肯议员推文称：“如果我们真的把国防预算减半，我们仍然会花费比中国多一亿多美元的国防经费，比俄罗斯多出3亿美元。请不要让共和党吓唬你，让你去做更多无底线的国防预算。谢了。国防开支削减核心小组”
 
-19日美国驻联合国大使琳达发推称：“在美国总统的方向上，我们在联合国升半旗，纪念本周亚特兰大可怕悲剧的受害者。我们必须团结一致，反对种族主义的祸害，这是非常重要的。团结起来，我们就有力量。”
-
-当日白宫发言人纳得转推称，“对于美国总统和整个政府，结束种族歧视是我们的首要任务。我们要求其他国家批准和执行《消除一切形式种族歧视国际公约》，与我们一道打击种族主义。”
+参议员惠特曼回复称：“这些削减简直是灾难性的。中国的目标无非是彻底摧毁美国。他们不会仅仅因为你们选择无视他们就停止。”
 
 
 
-> Ending racial discrimination is a top priority for [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) and the entire administration. We ask that other nations join us in fighting racism by ratifying and implementing the International Convention on the Elimination of All Forms of Racial Discrimination. [https://t.co/gg6t2AE5oE](https://t.co/gg6t2AE5oE)
-> — Ned Price (@StateDeptSpox) [March 19, 2021](https://twitter.com/StateDeptSpox/status/1373031934356549640?ref_src=twsrc%5Etfw)
+> Are you really dismissing the threat posed by China as "fearmongering?" 
+> 
+> I'd like to invite you to attend a classified briefing on the enormity of the threat we face and the consequences of failure. [https://t.co/lVkS7riIPa](https://t.co/lVkS7riIPa)
+> — Rep. Rob Wittman (@RobWittman) [March 19, 2021](https://twitter.com/RobWittman/status/1372949729995284481?ref_src=twsrc%5Etfw)
 
 
 
-19日福克斯新闻称“哈里斯明显抹黑川普，称 “拥有最大讲坛 “的人对亚裔美国人喷出仇恨。” 川普总统放弃爆料革命天赐良机在病毒战中的优势，甚至因迁就“中共”始终未敢把“中共病毒”说出口，终于迎来痛击。在与中共战斗的过程中，郭先生讲得精辟“真、善、狠”，任何骑墙、妥协、虚伪和软弱，都没有出路，革命无间道啊。
+议员继续称：“你真的把中国构成的威胁当作 “恐吓 “吗？我想邀请你参加一个机密简报会，介绍我们所面临的威胁的艰巨性和失败的后果。”
 
 
 
-> Harris, in apparent swipe at Trump, says people ‘with the biggest pulpits’ spewed hate toward Asian Americans [https://t.co/DTFAapNonB](https://t.co/DTFAapNonB)
-> — Fox News (@FoxNews) [March 19, 2021](https://twitter.com/FoxNews/status/1373053365345738752?ref_src=twsrc%5Etfw)
+#### 美印会晤
 
-
-[https://www.foxnews.com/politics/harris-trump-people-pulpits-spewed-hate-asian-americans](https://www.foxnews.com/politics/harris-trump-people-pulpits-spewed-hate-asian-americans)
-### 美中“厕所会谈”
-
-马克-卢比奥议员19日就美中阿拉斯加厕所会晤发推称：“中共官员在阿拉斯加发的外交脾气表明，我们不可能与北京（中共国政府）的敌对和种族灭绝政权进行建设性对话。拜登政府必须接受这一现实，站起来应对中共的威胁。”
+3月20日劳埃德-J-奥斯汀三世与印度国家安全高级领导人会面，讨论深化美印重大防务伙伴关系，推进 #自由开放的印太 合作。
 
 
 
-> The diplomatic temper tantrum thrown by Chinese Communist Party officials in Alaska shows that we cannot have constructive dialogue with the hostile and genocidal regime in Beijing. The Biden Administration must accept that reality and rise to meet the threat posed by the CCP.
-> — Marco Rubio (@marcorubio) [March 20, 2021](https://twitter.com/marcorubio/status/1373101461895319555?ref_src=twsrc%5Etfw)
+> .[@SecDef](https://twitter.com/SecDef?ref_src=twsrc%5Etfw) Lloyd J. Austin III met with senior Indian national security leaders to discuss deepening the U.S.-India Major Defense Partnership and advancing cooperation for a [#FreeandOpenIndoPacific](https://twitter.com/hashtag/FreeandOpenIndoPacific?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/i4QrR0VRHU](https://t.co/i4QrR0VRHU)
+> — U.S. Indo-Pacific Command (@INDOPACOM) [March 20, 2021](https://twitter.com/INDOPACOM/status/1373393915466838021?ref_src=twsrc%5Etfw)
 
 
 
 
 
-### 蹭川普热度
-
-20日据福克斯新闻，川普前日揶揄要参加2024年总统竞选，潜在的共和党竞争对手开始提前造访。
-
-
-
-> As Trump teases a 2024 presidential run, potential GOP rivals start making early visits[https://t.co/BghWmUW5Je](https://t.co/BghWmUW5Je)
-> — Fox News (@FoxNews) [March 20, 2021](https://twitter.com/FoxNews/status/1373227602593390598?ref_src=twsrc%5Etfw)
+3月19日，美国印太司令部推文：这周 @TheRealCVN71 攻击组进行实弹演习。
+美军太平洋舰队与澳大利亚海军在印度洋进行整合训练。
+@太平洋海军 陆战队在夏威夷进行实弹演习。
+国防部长访问美国印太指挥中心总部。
 
 
 
-### 谴责拜登
-
-众议员提名人安娜接受Newsmax 采访时称，“乔拜登被中（共）国收买了，川普总统或许没有“政治正确”，然而现在的政府太软弱了，没有把美国摆在国际范围上正确的位置。”
-
+> This week: [@TheRealCVN71](https://twitter.com/TheRealCVN71?ref_src=twsrc%5Etfw) Strike Group conducts live-fire exercise. [@USPacificFleet](https://twitter.com/USPacificFleet?ref_src=twsrc%5Etfw) & [@Australian\_Navy](https://twitter.com/Australian_Navy?ref_src=twsrc%5Etfw) integrate for training in the Indian Ocean. [@PacificMarines](https://twitter.com/PacificMarines?ref_src=twsrc%5Etfw) conduct live-fire exercise [#SpartanFury](https://twitter.com/hashtag/SpartanFury?src=hash&amp;ref_src=twsrc%5Etfw) in Hawaii. [@SecDef](https://twitter.com/SecDef?ref_src=twsrc%5Etfw) visits US INDOPACOM Headquarters. [#FreeandOpenIndoPacific](https://twitter.com/hashtag/FreeandOpenIndoPacific?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/013xPuAuji](https://t.co/013xPuAuji)
+> — U.S. Indo-Pacific Command (@INDOPACOM) [March 19, 2021](https://twitter.com/INDOPACOM/status/1372940940936052739?ref_src=twsrc%5Etfw)
 
 
-### 军事成就
 
-3月18日NASA公布，“8分钟后，SLS火箭的#阿尔忒弥斯一号核心级试验成功火箭。”
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image-278.png)[https://blogs.nasa.gov/artemis/2021/03/18/green-run-update-full-duration-hot-fire-successfully-completed-on-mar-18/](https://blogs.nasa.gov/artemis/2021/03/18/green-run-update-full-duration-hot-fire-successfully-completed-on-mar-18/)
+
+
+#### 军事
+
+3月19日导弹驱逐舰 #美国麦凯恩舰 本周在菲律宾海的几次实弹射击活动和演习中发射武器系统。#DDG56＃海军准备状态
+
+
+
+> The [@US7thFleet](https://twitter.com/US7thFleet?ref_src=twsrc%5Etfw) guided-missile destroyer [#USSJohnSMcCain](https://twitter.com/hashtag/USSJohnSMcCain?src=hash&amp;ref_src=twsrc%5Etfw) fires weapon systems during one of several live-fire events and exercises by ships of Destroyer Squadron [#DESRON15](https://twitter.com/hashtag/DESRON15?src=hash&amp;ref_src=twsrc%5Etfw) this week in the Philippine Sea. [#DDG56](https://twitter.com/hashtag/DDG56?src=hash&amp;ref_src=twsrc%5Etfw) [#NavyReadiness](https://twitter.com/hashtag/NavyReadiness?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/HljfTSDFM4](https://t.co/HljfTSDFM4)
+> — U.S. Pacific Fleet (@USPacificFleet) [March 19, 2021](https://twitter.com/USPacificFleet/status/1372991448618987520?ref_src=twsrc%5Etfw)
+
+
+
+3月19日一架直升机在上空飞行， @美国太平洋舰队新奥尔良号从帕劳共和国出发后。#自由开放的印太
+
+
+
+> A helicopter with [@31stMeu](https://twitter.com/31stMeu?ref_src=twsrc%5Etfw) flies above [@USPacificFleet](https://twitter.com/USPacificFleet?ref_src=twsrc%5Etfw) USS New Orleans after departing from the Republic of Palau. [#FreeandOpenIndoPacific](https://twitter.com/hashtag/FreeandOpenIndoPacific?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/8nYpTWGoFQ](https://t.co/8nYpTWGoFQ)
+> — U.S. Indo-Pacific Command (@INDOPACOM) [March 20, 2021](https://twitter.com/INDOPACOM/status/1373084375575887882?ref_src=twsrc%5Etfw)
+
+
+
+3月19日，航母降落练习!
+来自VMFA-121的F-35B “闪电II”，在日本冲绳伊江岛的Castaway 21.1期间，在模拟航母甲板上进行了降落。飞行员们展示了他们在远征基地环境中的主导能力，支持 #自由开放的印度太平洋。
+
+
+
+> Carrier Landing Practice!
+> 
+> F-35B Lightning II from VMFA-121, conducted landings on a simulated carrier deck during Castaway 21.1 at Ie Shima, Okinawa, Japan. Pilots demonstrated their ability to dominate in expeditionary base environments supporting a [#FreeAndOpenIndoPacific](https://twitter.com/hashtag/FreeAndOpenIndoPacific?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/1fFVlCG3MH](https://t.co/1fFVlCG3MH)
+> — 1st MAW Marines (@1stMAW\_Marines) [March 19, 2021](https://twitter.com/1stMAW_Marines/status/1373005605665837057?ref_src=twsrc%5Etfw)
+
+
+
+3月20日美国陆军，#准备战斗 的 #士兵 胜利之翼 “在德国Baumholder的机动训练区进行实弹射击训练。
+
+#陆军训练| #训练和准备好
+
+
+
+> [#Ready2Fight](https://twitter.com/hashtag/Ready2Fight?src=hash&amp;ref_src=twsrc%5Etfw)[#Soldiers](https://twitter.com/hashtag/Soldiers?src=hash&amp;ref_src=twsrc%5Etfw) from [@12thCab](https://twitter.com/12thCab?ref_src=twsrc%5Etfw), "Wings of Victory," conduct live-fire aerial gunnery training at the Maneuver Training Area, Baumholder, Germany.
+> 
+> 🎥 ➡️ Spc. Thomas Mort[#ArmyTraining](https://twitter.com/hashtag/ArmyTraining?src=hash&amp;ref_src=twsrc%5Etfw) | [#TrainedAndReady](https://twitter.com/hashtag/TrainedAndReady?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/SsHRRSRxvX](https://t.co/SsHRRSRxvX)
+> — U.S. Army (@USArmy) [March 21, 2021](https://twitter.com/USArmy/status/1373439546260602881?ref_src=twsrc%5Etfw)
+
+
+
+
+
+#### 皮特纳瓦罗博士的声音呢？
+
+3月20日福克斯新闻主播珍妮提前预报周六晚将采访皮特纳瓦罗先生，然而近12个小时后，仍然没有任何公布的讲话视频或内容……纳瓦罗博士讲了什么关于病毒真相的过分言论了吗……？
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/image-296.png)
+
+
+
+
 （本文当日持续更新中）
 
 文章观点部分仅代表作者本人。
 
 ***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
-+1
+**欢迎关注和支持康州盘古农场推特公众号及时掌握****资讯 **
+
+### 👉🏻[**盘古七星舰队PanGu Heptastar Fleet**](https://twitter.com/PanguF)
+
+
+
+0

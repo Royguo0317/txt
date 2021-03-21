@@ -1,52 +1,133 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 杨洁篪同志的多彩人生汇总8:曾经做过的恶绝对不会被放过
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/996088/)
+## 《新闻快递》节目摘要2021.03.15
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/998087/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/封面8.jpg)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+《新闻快递》栏目组：Beicy数学老师，文玉，1818;
 
-郭文贵先生已经在[郭文贵先生2021年3月18日盖特乱聊阿拉斯加的外交大戏背后的故事](https://gtv.org/getter/6053fdc8527b920e2d83e040)盖特中对于刚刚结束美国与中共在阿拉斯加的会谈做了详细解读，本文将对爆料革命四年来提及的杨洁篪同志的多彩人生进行汇总，正文中引用的郭文贵先生直播视频文字皆来自四年来默默整理文字的义工战友，在此特别向义工战友致敬，以下为本文第八部分也是本系列的终结篇——曾经做过的恶绝对不会被放过
+校对/审核：宁缺； Page: 1818
 
-1据[2019年11月7日文贵直播，投资郭媒体的基金相信共党必灭，苏世民等人要挑战班农](https://youtu.be/3dM7LhAshkQ)
+引言：
 
-［孙力军、吴征、孟建柱、王岐山，我再次告诉你，你干啥我都知道。当郭文贵出手的时候，你记住还包括这个杨洁篪，杨洁篪、孙力军、孟建柱、王岐山，当我出手我打开潘多拉盒子的时候，我就让你知道，你最恐惧的东西比你想象还要恐惧，记住我说的话。记住我说的话，你们啊。郭文贵拿生命，拿几千亿资产，拿全家的生命，跟你这帮畜生，咱们干这一场。你以为你掌握着权力，你想干啥就干啥，你想黑黑路德，美国人就不相信路德了？就不看路德节目了？你黑黑战友之声，你黑黑细思小哥，你黑这些人就没有人看了？你在美国在欧洲所干的事就拉倒了？你的区块链要干掉美元的事儿美国就忘了？你偷了人家几千亿上万亿美元就拉倒了？你们在海外存的上万亿美元黑掉的钱，以反腐革命黑掉的几千亿的上万亿美元就没了？你江家江志成的钱在海外就合法了？你吴征你牛叉你靠找钥匙你能把你在美国登记的Agent取消？能把你犯罪取消？能把你和刘特佐的关系取消？］
+英国伦敦喜庄园GTV直播节目《新闻快递News Express》，每周一和周五英国时间18:30为战友带来美国、英国及国内的热点新闻。
 
-2据**2020年2月8日第一次直播谈为什么说武汉疫情是中国共产党制造并释放出来的**
+[!\[\]()!\[\](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/3abbd6dd-b1b3-4392-9cb4-78d8a4de9bb8.png?asset_id=e11bd3cb-dc35-4567-91fa-bdb60a8404aa&amp;img_etag=%2265c087b3c6e44ae6285ba24ad1674621%22&amp;size=2560)](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/3abbd6dd-b1b3-4392-9cb4-78d8a4de9bb8.png?asset_id=e11bd3cb-dc35-4567-91fa-bdb60a8404aa&amp;img_etag=%2265c087b3c6e44ae6285ba24ad1674621%22&amp;size=1024)
 
-［所以我给世界一个答案：病毒，是共产党的生化武器。武汉实验室放出来是专家对技术的失控和对习、王，中国共产党不满的一次报复。最后，是共产党内部人想利用此来消灭香港，结果把自己消灭了——就这么简单——这是我的判断。我跟每个外国人讲，每个人都说：“有道理！有道理！你说的好！” 我说：“所以你们要调查，你们要调查这个东西是不是人造的。”不管以后这几个原因是什么，只要它是人造的，那就是人放出来的。只要是人放出来的，我不管你是政治原因，还是善良的原因……反正这玩意儿不能炖汤喝，这玩意儿也不能当性药吃，肯定是害人的——他就应该承担责任。谁承担责任？习近平、王岐山、孟建柱、杨洁篪、孙力军……所有的共产党的、中南海的，一个都不能少！怎么办？国际审判，灭掉共产党。］
+**[🔗GTV-UK-1号台精彩回看](https://gtv.org/video/id=604fb0d4e9cdd43098e825ba)**
 
-3据**2020年2月15日告诉战友们一定要耐心在家健身健心，会有解药的！CCP灭了车贷房贷不用还了！**
+## 《新闻快递》节目摘要2021.03.15
 
-［我告诉大家：对待习和王来讲，这俩人的斗争现在基本上你可以看出来，湖北蒋超良是文贵最早说的，蒋超良是王岐山的人。现在你们看到了吧，完了吧？!应勇去了。夏宝龙去香港了，那个张晓明我说的一定被免。很多人在下面说：怎么样？他还在那……他一定被免。还有那个娘娘党…杨洁篪的娘娘党的那个叫什么？上海帮的那个，也免了…都得免！香港同胞跟我说：郭先生，你又蒙对了，你太伟大啦！香港同胞你别夸我，一夸我也蒙，我有时候也会飞的。］
+#### 本期主题：
 
-4据**2020年3月16日参与爆料革命的战友们将来是世界上最受尊敬的人**
+1. 接种中共疫苗给签证便利；美前国家高级调查人员定性生物武器；
 
-［郭文贵是人类上第一个爆料武汉病毒是生化武器的，每次都告诉大家下一步的发展：郭德银郭德银郭德银！石正丽那是狗屁不算！郭德银郭德银郭德银！王岐山王岐山！孟建柱孟建柱！孙力军孙力军！吴征吴征！上海帮上海帮！现在出来马云了。杨娘娘杨洁篪，杨娘娘杨娘娘杨娘娘！杨娘娘快嗝屁了，快完蛋了，杨娘娘已经快歇菜了啊，嗝屁了嗝屁了啊，等着吧。他真的是袁世凯，但是这回这袁世凯死的比较惨，大家很快会看到的。外交部已经没有他了，外交部现在没他了，王毅也得嗝屁。大家看着吧，外交部将洗牌，上海帮的外交牌这个腿要给打断了。］
+2. 七哥爆料：中共病毒报告是美国新老政府间最大的问题！
 
-5据**2020年5月16日郭先生GTV直播**
+3. 英国对港BNO移民专题(7): 英国内政部讲解申请表格；
 
-［现在所有的对美软弱无力，外交软弱无力。杨娘娘也快被抓了，一定会被抓的，杨洁篪一定会被抓的，记住我说的话。我今天告诉大家，他曾经三周是被双规的，完全消失，我说这个话外交部知道。他一个字没有签过，三周的时间全是王沪宁签字，到今天外交也是王沪宁说了算，我可以负责任告诉大家，然后让王沪宁先回来工作是为了现在国际上的这个影响，但他最终一定进去。王岐山被软禁，孟建柱被双规，傅政华被双规，孙力军被双规，那杨娘娘一定会进去的，吴征一定会进去的，这是一个上海帮，盗国之帮，江志成一定会进去的，江绵恒一定不会死在医院里，一定会死在监狱里，咱走着看。］
+4. 美英和印太四国对抗中共威胁，中共建设面向台湾海峡的直升机基地；
 
-［几年前王岐山、孟建柱、孙力军、傅政华、杨洁篪不都是最火的人物吗？现在一半都没了吧，你怎么知道现在主席台那一半一直会坐在那儿呢，分分钟钟都会改变。中共最近派到某些国家一些医疗队，这些医疗队出去以后发现了外面和中国所听到的不一样。］
+5. 专题：全球经济危机之魏玛共和国恶性通胀。
 
-续上篇——
+### 新闻线索【1】以毒灭共，病毒&疫苗次生危害持续全球
 
-[杨洁篪同志的多彩人生汇总1:杨洁篪与中共病毒的关系和渊源](https://gnews.org/zh-hans/994046/)
+#### 疫情数据播报
+[!\[\]()!\[\](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/575304fb-055c-4958-acf2-79ca5d016689.jpg?asset_id=74541054-02d2-4554-b988-1e285d08e168&amp;img_etag=%22e822648d02bde4bcd0330989e4215463%22&amp;size=2560)](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/575304fb-055c-4958-acf2-79ca5d016689.jpg?asset_id=74541054-02d2-4554-b988-1e285d08e168&amp;img_etag=%22e822648d02bde4bcd0330989e4215463%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/a1684f67-3539-4a48-9a15-27db482ab354.jpg?asset_id=0223ffe9-d080-4f88-826a-c79ccbb12ad9&amp;img_etag=%22ab293d27e65eca57e83973752be3f96f%22&amp;size=2560)](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/a1684f67-3539-4a48-9a15-27db482ab354.jpg?asset_id=0223ffe9-d080-4f88-826a-c79ccbb12ad9&amp;img_etag=%22ab293d27e65eca57e83973752be3f96f%22&amp;size=1024)[!\[\]()!\[\](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/cf2fb7fc-a219-4cef-8a90-f18315027b3a.jpg?asset_id=08846703-6d08-4f3a-88ff-937d3aedb1a4&amp;img_etag=%22548a0a90499544e4f2419849dd97b737%22&amp;size=2560)](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/cf2fb7fc-a219-4cef-8a90-f18315027b3a.jpg?asset_id=08846703-6d08-4f3a-88ff-937d3aedb1a4&amp;img_etag=%22548a0a90499544e4f2419849dd97b737%22&amp;size=1024)
+**[🔗纽约时报：中共国要求申请签证的人接种中共国制疫苗](https://www.nytimes.com/2021/03/12/world/china-vaccines-hong-kong.html)**
 
-[杨洁篪同志的多彩人生汇总2:杨洁篪对爆料革命的镇压和抹黑](https://gnews.org/zh-hans/994313/)
+**[🔗Gnews: “打杂客”说服世卫其他成员忽视武毒所删除的数据](https://gnews.org/zh-hans/977640/)**
 
-[杨洁篪同志的多彩人生汇总3: 杨洁篪在中共内部斗争的派系属性](https://gnews.org/zh-hans/994460/)
+**🎞视频：Daszak为中共倾情洗地**
 
-[杨洁篪同志的多彩人生汇总4: 吃猴脑搞双修恋童玩3P的花样人生](https://gnews.org/zh-hans/994489/)
 
-[杨洁篪同志的多彩人生汇总5:祸港乱台重要推手之一的杨洁篪同志](https://gnews.org/zh-hans/994557/)
 
-[杨洁篪同志的多彩人生汇总6:杨洁篪在外交领域的蓝金黄和勾兑](https://gnews.org/zh-hans/995686/)
+**[🔗Gnews: 前美国国务院调查员：新冠可能是生物武器事故造成](https://gnews.org/zh-hans/977649/)**
 
-[杨洁篪同志的多彩人生汇总7:国际上曾经的呼风唤雨已永不再来](https://gnews.org/zh-hans/996044/)
+**🎞视频：国务院前秘密武器调查员，新冠起源调查负责人大卫•艾舍相信，新冠病毒是中共的生物武器**
 
-（文章内容仅代表作者个人观点）
 
-0
+
+**[🔗 每日邮报：世卫组织将否认武汉实验室与Covid疫情的联系，而指出其来源是动物市场–这加剧了对该组织与中国之间密切联系的 “粉饰 “指控](https://www.dailymail.co.uk/news/article-9359039/WHO-set-reject-Wuhan-lab-link-Covid-outbreak-instead-point-source-animal-market.html)**
+[!\[\]()!\[\](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/a3d15176-7f15-4858-8e57-a134a47208da.jpg?asset_id=ea2f7ba8-eda9-40e8-9252-d91d64b563bf&amp;img_etag=%229b7ad01abcc0e1274cc45fd5751c2ee0%22&amp;size=2560)](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/a3d15176-7f15-4858-8e57-a134a47208da.jpg?asset_id=ea2f7ba8-eda9-40e8-9252-d91d64b563bf&amp;img_etag=%229b7ad01abcc0e1274cc45fd5751c2ee0%22&amp;size=1024)
+**[🎞视频：从犯罪动机来看，中共政府的掩盖，阻挠调查显示其与COVID-19有关联](https://gtv.org/getter/604f6b97527b920e2d830836)**
+
+**[🎞视频：美国人民已被病毒唤醒，为谁会成为全球经济军事主导力量的世界级挑战做好准备](https://gtv.org/getter/604e1b38607c4240c8b58569)**
+
+**[🎞视频：前国家情报局局长：如果我们无法追踪到病毒的具体源头，我们就无法预防下一次大流行病的发生](https://gtv.org/getter/604dba42607c4240c8b57676)**
+
+**[🔗闫博士推特：不了解#COVID19 的具体来源，我们不能阻止下一场疫情大爆发！](https://twitter.com/DrLiMengYAN1/status/1371076987196956677?s=20)**
+
+**[🔗 美国小组将审查阿斯利康的（疫苗接种）数据，因为西班牙最近暂停了接种；德国看到血栓风险增加](https://www.zerohedge.com/covid-19/astrazenecas-european-nightmare-worsening-ireland-netherlands-latest-ban-jabs)**
+
+### 新闻线索【2】 香港圣城, 东方明珠变暗夜
+[!\[\]()!\[\](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/450d2c20-158e-42ce-84d7-7cc73d817e2e.jpg?asset_id=e51e67f7-14fd-44e2-b121-87dc0addc19d&amp;img_etag=%22ab20af3e8ad6f3090cdd603b98abe197%22&amp;size=2560)](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/450d2c20-158e-42ce-84d7-7cc73d817e2e.jpg?asset_id=e51e67f7-14fd-44e2-b121-87dc0addc19d&amp;img_etag=%22ab20af3e8ad6f3090cdd603b98abe197%22&amp;size=1024)
+**[🔗卫报：香港：英国指责中共国违反联合声明 (多米尼克·拉布)](https://www.theguardian.com/politics/2021/mar/13/hong-kong-uk-accuses-china-of-breaching-joint-declaration)**
+
+**[🔗七国集团敦促中共结束对香港的 “压迫”](https://www.france24.com/en/live-news/20210312-g7-powers-urge-china-to-end-oppression-in-hong-kong)**
+
+🎞**视频：七哥揭开林郑妖蛾伏击检查冠状病毒真相**
+
+**[🎞 视频：小明童鞋: 纪念反送中一周年 (2019夏-2020夏)](https://gtv.org/video/id=5f31560abd8c881d62ec77f6)**
+
+#### 英国香港BNO移民专题(7): 英国內政部讲解申请表格
+
+[1. 英国內政部中文讲解在香港申请英国国民(海外)护照](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/900883/Hong_Kong_BNO_Cantonese.pdf)
+
+[2. 英国护照申请表格](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/462278/OS_Form_010.pdf)
+
+[3. 英国公民(海外)定义](https://www.gov.uk/types-of-british-nationality/british-national-overseas)
+
+[4. 英国內政部解读香港BNO签证](https://homeofficemedia.blog.gov.uk/2021/01/29/media-factsheet-hong-kong-bnos/)
+
+**🎞视频：《愿荣光归香港》国语版**
+
+
+
+### 新闻线索【3】全球灭共, 以共灭共: 共产党员必须自救
+[!\[\]()!\[\](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/1d96bb22-8e07-4a13-9320-657cfdc20841.jpg?asset_id=ec4e5300-7533-4709-afe4-5e9f786b09c8&amp;img_etag=%223bc34e670cec2dfec09ff09d7f5a9a2e%22&amp;size=2560)](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/1d96bb22-8e07-4a13-9320-657cfdc20841.jpg?asset_id=ec4e5300-7533-4709-afe4-5e9f786b09c8&amp;img_etag=%223bc34e670cec2dfec09ff09d7f5a9a2e%22&amp;size=1024)
+**[🔗 大全新闻：美国联邦通讯委员会FCC：五家中共国公司构成对美国国家安全的威胁 (华为、中兴、海能达、海康威视、大华)](https://www.newsmax.com/politics/china/2021/03/12/id/1013646/)**
+
+**[🔗Gnews: 中共在新疆犯下种族灭绝罪，而中共官媒对此撒谎](https://gnews.org/zh-hans/976833/)**
+
+**[🔗 乌克兰扣押飞机制造商以防止中国人收购](https://www.breitbart.com/national-security/2021/03/12/ukraine-seizes-aircraft-maker-prevent-chinese-takeover/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed:+breitbart+%28Breitbart+News%29)**
+
+**[🔗 每日邮报：鲍里斯-约翰逊（Boris Johnson）将在英格兰北部建立一支网络部队，以对抗中共国和俄罗斯构成的威胁–它还将解决南北鸿沟问题](https://www.dailymail.co.uk/news/article-9359639/Boris-Johnson-set-cyber-force-North-England-combat-threats-China-Russia.html)**
+[!\[\]()!\[\](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/f917f83a-7c3d-4bfe-8768-fc1dcca6bac6.jpg?asset_id=87802870-697f-40af-a723-a0e969f294dd&amp;img_etag=%225b35010d6d16de4b90bcd1e8b0f671be%22&amp;size=2560)](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/f917f83a-7c3d-4bfe-8768-fc1dcca6bac6.jpg?asset_id=87802870-697f-40af-a723-a0e969f294dd&amp;img_etag=%225b35010d6d16de4b90bcd1e8b0f671be%22&amp;size=1024)
+**[🔗 零对冲：布坎南-与中共国的第二次冷战是不可避免的吗？](https://www.zerohedge.com/geopolitical/buchanan-cold-war-ii-china-inevitable?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed:+zerohedge/feed+%28zero+hedge+-+on+a+long+enough+timeline,+the+survival+rate+for+everyone+drops+to+zero%29)**
+
+**[🔗 GNews: 中共在福建建设威胁台湾的直升机基地](https://gnews.org/zh-hans/978317/)**
+
+**[🔗 缅甸外交部工作人员因中共国会议泄密被拘留](https://www.irrawaddy.com/news/burma/myanmar-foreign-ministry-staff-detained-china-meeting-leak.html)**
+
+**🎞视频：拜登与日、印、澳四国领导人会面，共同对抗中共，退役四星上将基恩认为四国联盟是印太地区对抗中共的基石**
+
+
+
+**🎞视频：蓬佩奥-我会努力推动，确保那些政策得到持续，并在2022年中期选举里落实**
+
+
+
+### 新闻线索【4】 新中国联邦
+
+**[🔗 喜联盟盖特第十六期工作汇报文字版](https://gtv.org/user/5f58c34e245d3c05799fe236)**
+
+**[🔗 七哥15日连发4盖特](https://gtv.org/user/5e596957357cc612d35a8044)**
+
+**[🔗英国伦敦喜庄园新Discord邀请链接](https://spark.adobe.com/page/SC8Oe23tsW3aX/)**
+
+**[🔗英国伦敦喜庄园的英文GTV直播频道《GTV UK English》正式建立](https://gtv.org/user/602f9f5c047c4c3086d4f215)**
+
+**[🔗喜联盟Gnews编辑部Getter官方频道正式建立](https://gtv.org/user/602ab9a2be64150df857ef88)**
+
+
+
+**[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)**
+
+**[点击观看英国伦敦喜庄园在G-TV的精彩直播视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)**
+
+**[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)**
+
+编辑：[**【英国伦敦喜庄园编辑部】**](https://spark.adobe.com/page/gkE3AGW0wWV6o/)
+[!\[\]()!\[\](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/3b10191a-d4a6-4b62-8e51-efddfdd9a8fc.jpg?asset_id=fb4300d5-885e-4154-a058-8567970c8066&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=2560)](https://spark.adobe.com/page/gkE3AGW0wWV6o/images/3b10191a-d4a6-4b62-8e51-efddfdd9a8fc.jpg?asset_id=fb4300d5-885e-4154-a058-8567970c8066&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
++1
