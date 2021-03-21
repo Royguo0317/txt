@@ -1,27 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄大使指责英违反核协议
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/999103/)
+## 克罗地亚、塞尔维亚和黑山数千人集会反对反病毒措施
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/999159/)
 
-俄罗斯莫斯科喀秋莎农场  洛夫斯基灭CCP
+- 编辑：Victor Torres
+- 发稿：Ranting
 
-编辑上传  水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/K-1.jpg)english.alarabiya.net
-03月21日RBC报道，英国当局违反了多项国际协议，走向建立国家的核潜力。俄罗斯驻英国大使安德烈·凯林（Andrei Kelin）在接受LBC电台采访时如是说。
 
-据这位外交官介绍，英国打算将弹头数量增加40%，这引起了包括美国专家在内的国际社会的惊讶。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-凯林说，“这违反了‘核武器’不扩散条约和许多其他协议，这些协议只规定减少或降低核弹头的数量。”（塔斯社援引）。
+**西班牙2021年3月21日电/西喜社——**据美联社3月21日报道，尽管过去几周每日感染率上升，克罗地亚、塞尔维亚和黑山的几千人周六集会反对反病毒措施。
 
-俄罗斯大使认为，鉴于所作出的决定，英国当局应开始就核裁军进行谈判。
+克罗地亚的抗议活动在首都萨格勒布和几个小城镇举行。当地媒体称，参与者拒绝戴口罩或彼此保持距离。同时举着 “受够了暴政 “或 “把流感还给我们 “的横幅。
 
-本周3月16日，英国政府公布了新的国防和外交政策战略，称俄罗斯是对国家安全的严重威胁。该战略规定将该国的核能力提高40%，计划将三叉戟弹道导弹的核弹头数量从180枚增加到260枚。
+在塞尔维亚首都贝尔格莱德，塞尔维亚政府本周让酒吧、餐馆和非必要的商店和企业关闭后，数百人举行了抗议活动。
 
-克里姆林宫对伦敦增加核弹头数量表示遗憾。总统发言人德米特里·佩斯科夫说，这样的决定将损害国际稳定。
+据黑山国家RTCG电视台报道，约有一百人冒雨前来抗议反病毒规定。报道称，警方敦促他们尊重疏导。
 
-参考链接：
+![]()![](https://gnews.org/wp-content/uploads/2021/03/9fda99e7-0290-4cff-8e60-538e7e25caf2-1.jpg)
 
-[https://www.rbc.ru/rbcfreenews/60569c6f9a79476cbf4c727b](https://www.rbc.ru/rbcfreenews/60569c6f9a79476cbf4c727b)
+**新闻来源：[美联社](https://apnews.com/article/world-news-mumbai-india-coronavirus-pandemic-coronavirus-vaccine-a2dc6a4101380d4b633c4eb53770fa3d)**
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募-2.jpeg)
 
 0
