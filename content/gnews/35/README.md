@@ -1,31 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》新聞快訊（視頻版）: 20210320納瓦羅先生參加Jeanine法官「發出警報」環節
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/998159/)
+## 2021年3月21日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/998424/)
 
-《路德社》出品
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-以下視頻是詳細內容：
-
-主要內容：
-
-1.中共國不僅讓美國丟臉，還把沙利文和布林肯的臉面給剝了下來
-
-2.川普時期，小混混楊和其他小混混絕不敢跟美國這麼說話
-
-3.布林肯該轉身離開，讓小混混們回北京見屠夫主子
-
-4.CCP說教的同時做的惡：新疆集中營西藏種族清洗摧毀香港民主對台灣虎視眈眈
+鲁迪・朱利安尼：在全世界看来，我们在一个软弱的领导人治下似乎没有足够实力和中共进行抗衡 Rudy Giuliani: It appears to the world that we’re not strong enough to contend with the CCP under a weak leadership.
 
 
 
-翻譯：路德社翻譯組
+[【2021年3月21日】文贵先生盖特原文](https://gtv.org/getter/60576457d1608d609ea6a0bb)
 
-製作：路德社視頻組
+**喜联盟Gnews编辑部**
 
-審核校對：玫瑰新聞群組
-
-上傳排版：玫瑰新聞群組
-
-0
++1
