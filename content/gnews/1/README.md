@@ -1,31 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本和德国将在未来几周签署情报共享协议
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1003078/)
+## 【新闻宅急便】日美防长声明在台湾紧急时进行合作
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1003110/)
 
-翻译：康州盘古农场 – TrueSky
-校对：康州盘古农场 – Mike Li
-编辑：康州盘古农场 – 轰炸机
+翻译：喜马拉雅东京樱花团 / Porsche
 
-据《日经亚洲》 作者：MASAYA KATO，2021年3月18日报道：
+![](https://lh6.googleusercontent.com/EXO2k5QrSqlRQCMLBy8NEYqpYXkJknHQArlUSEmm-1IBq-xXfqjG77_3jZeppcQ3OmtoIz2oixSF0hJyMWkZnMfISNH2lddmDwI1p5m7kfO5b2vegGrUQ0osGvdtmBXp6d6NkhZK)
+[图片来源](https://asia.nikkei.com/Politics/International-relations/US-China-tensions/Japan-U.S.-defense-chiefs-affirm-cooperation-over-Taiwan-emergency)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-212.jpg)2019年，德国巴登-符腾堡号护卫舰在德国威海尔姆港举行的海军部队媒体推介会上的照片
+日本政府消息人士周六表示，日本和美国防长在最近于东京举行的会议上同意，在中国和台湾发生军事冲突的情况下进行密切合作。
 
-东京 — 日本和德国最早将于本月签署一项关于共享防卫相关信息的协议，因为两国正在寻求更密切的防卫合作，特别是在印度洋-太平洋地区。
+消息人士说，美国国防部长劳埃德-奥斯汀(Lloyd Austin)周二（16日）与日本防卫大臣岸信夫(Nobuo Kishi)举行会谈时提出了这一问题，不过没有讨论两国应如何协调应对这种紧急情况。
 
-信息安全协议将使东京和柏林更容易让对方获得有关部队部署计划、国防装备和恐怖分子活动的敏感信息。两国需要对处理机密情报制定严格的控制措施。
+东京对“中国与台湾关系”的政策是鼓励对话，以和平解决两岸紧张关系。台湾和中国大陆自1949年因内战而分裂以来，一直是各自为政。中国一直认为台湾是自己一个待统一的省份。
 
-自2019年2月，德国总理默克尔与时任日本首相安倍晋三达成基本原则性协议以来，达成公约的谈判一直在进行。
+关于台湾问题，岸信夫、奥斯汀、美国国务卿布林肯（Antony Blinken）和日本外相本木敏光（Toshimitsu Motegi）在周二举行会谈后发表声明，呼吁台海的和平与稳定。
 
-随着中共国影响力的扩大，德国对印太地区的关注度越来越高。柏林去年起草了在该地区开展外交的指导方针，预计最早将在夏季派遣一艘护卫舰。
+在早前与奥斯汀的会晤中，岸信夫提到，最近中国战机越过台湾海峡中间线的数量增加，有必要研究日本自卫队在台湾受到中国侵略时，与保卫台湾的美军合作的方法。
 
-去年12月，德国国防部长克朗普-卡伦鲍尔在一次视频会议上对日本同行岸信夫说，德国在该地区有安全利益，并打算增加在该地区的存在力量。
+东京一直在审查，当中国和台湾发生危机时，发布自卫队派遣令保护美国军舰和军机的可行性，因为台湾海峡地理位置上接近日本领土，那里可能发生的武装冲突，会影响日本公民的安全。
 
-她说，向多边组织派遣德国联络官、参加军事演习和进行海军部队的港口访问是柏林正在考虑的一些措施。
+原文资料：
 
-克朗普-卡伦鲍尔解释说，德国政府打算在北约框架内加强与印太地区伙伴的合作。
+[Nikkei News](https://asia.nikkei.com/Politics/International-relations/US-China-tensions/Japan-U.S.-defense-chiefs-affirm-cooperation-over-Taiwan-emergency)
 
-文章来源：[https://asia.nikkei.com/Politics/International-relations/Japan-and-Germany-to-sign-intel-sharing-pact-in-coming-weeks](https://asia.nikkei.com/Politics/International-relations/Japan-and-Germany-to-sign-intel-sharing-pact-in-coming-weeks)
+*免责申明：本文只代表作者观点，与GNews网站无关。*
 
-0
+*校对：喜马拉雅东京樱花团 / 東洋武士*
+*责任编辑：喜马拉雅东京樱花团 / 文小白*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews.org/wp-content/uploads/2021/03/二维码-3.jpg)
+0322C142e
+
++1

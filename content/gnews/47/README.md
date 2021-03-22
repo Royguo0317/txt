@@ -1,31 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 前国务卿迈克·蓬佩奥表态：中共国是美国最大的生存威胁-拜登对俄罗斯的行动是“幼稚”
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1001687/)
+## 立陶宛成立对台关系促进组织
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1001861/)
 
-翻译：康州盘古农场 -郭班之樱
-校对：康州盘古农场 -Mike Li
-编辑：康州盘古农场 -轰炸机
+**作者: Kelvin Chen** **– Taiwan News**
 
-据《Thegatewaypundit》 作者：乔·霍夫特（Joe Hoft），2021年3月20日报道：
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-202.jpg)
-川普总统的国务卿上周针对拜登对中共国采取的**“**幼稚**”**行动品论颇多
+**编译: 莫黎**
 
-前国务卿迈克·蓬佩奥（Mike Pompeo）上周就中国发表了一些看法：
 
-前国务卿迈克·蓬佩奥（Mike Pompeo）本周表示，允许中共国举办2022年冬季奥运会将使该共产主义国家提高信誉，这类似于1936年在德国纳粹举办夏季奥运会。
 
-“蓬佩奥在周四对福克斯新闻（Fox News）的“美国报道”说：“我们了解历史，并且那些与以色列的朋友们一起工作的以及致力于反犹太主义的人们谈论着永远不允许1930年代发生的事情再次发生……” 。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/001234-6.jpeg)**图片: Vaidotas Beniušis**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2-72.jpg)
 
-趋势：拜登边境危机：美联储授予8600万美元合同，以在酒店安置移民家庭
 
-蓬佩奥说：“在1930年代发生的事情，今天正在中共国西部发生。 两者之间有着令人毛骨悚然的相似之处，那就是*举办奥运会，正如德国人在1936年所做的那样为该政权提供了巨大的信誉，我们不应该允许这种情况发生。 国际奥委会有责任确保主办这些运动会是应得的，而中共这种政权当然不是。”*
+台北（台湾新闻）— 据波罗的海新闻社（BNS）报道，立陶宛在周二（3月16日）成立了立陶宛－台湾论坛，以促进与该岛国的关系。立陶宛-台湾论坛旨在加强与台湾的经济、文化、政治关系
 
-*蓬佩奥*补充说，他认为拜登对俄罗斯的行动是“幼稚的”，他也分享道：“中共国对美国构成了“最大的生存威胁”。
+立陶宛在去年10月举行了大选。新政府宣布将支持台湾，称台湾正在 “为自由而战”，并宣布其目标是在在台湾设立代表处。
 
-原文链接：[https://www.thegatewaypundit.com/2021/03/china-greatest-existential-threat-us-bidens-actions-russia-childish-former-secretary-state-mike-pompeo/](https://www.thegatewaypundit.com/2021/03/china-greatest-existential-threat-us-bidens-actions-russia-childish-former-secretary-state-mike-pompeo/)
+据波罗的海新闻社报道，立陶宛政界和文化界代表于周二成立了 “立陶宛-台湾论坛”，并推选前教育部长- 金塔拉斯·斯蒂波纳维修斯（Gintaras Steponavicius）担任主席，以加强与台湾的经济、学术、文化和政治关系。
+
+该支持台湾的组织由50多名创始成员组成，其中包括经济部长奥林·阿莫奈特（Ausrine Armonaite）； 外交部副部长曼塔斯·阿多梅纳斯（Mantas Adomenas）； 首都维尔纽斯市市长西米西乌斯（Remigijus Simasius）。
+
+已经是立陶宛-台湾议会友谊小组主席的斯蒂波纳维修斯表示: “该论坛汇集了立陶宛各行各业的精英，而他们的共同点就是支持基于价值的外交政策，并了解台湾所面临的挑战。”
+
+他补充说，立陶宛人对生活在大国的持续威胁之下再熟悉不过，愿意做出努力使台湾全面融入国际社会。立陶宛曾是前苏联的一个组成共和国，这个波罗的海国家现在认为台湾是民主的典范。
+
+去年4月，200多名政界和知识界人士联名致信总统吉塔纳斯·纳乌塞达（Gitanas Nauseda），表示支持台湾加入国际组织，并在这个东亚国家设立代表处。
+
+
+
+
+
+**新闻来源: **
+
+[Lithuania establishes organization to promote Taiwan ties](http://Lithuania%20establishes%20organization%20to%20promote%20Taiwan%20ties)
+
+[https://www.taiwannews.com.tw/en/news/4156986](https://www.taiwannews.com.tw/en/news/4156986)
+
+
+
+* * *
+
+**发布: 法国巴黎七星编辑组**
+
+
 
 0

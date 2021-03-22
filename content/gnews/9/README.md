@@ -1,53 +1,118 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【五月花报】中共科技巨头被怀疑通过CCP病毒核酸检测搜集美国人基因数据
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1001760/)
+## 美国政要等每日重要信息0322.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1002625/)
 
-五月花写作组 ｜ 翻译：思澈 ｜ 编辑、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-22-at-8.47.23-PM.png)图片来源：de.rt.com
-中共国的华大基因集团（BGI）主要从事于基因测序领域，美国一位主要情报官员怀疑该集团企图通过CCP病毒核酸检测收集美国公民的基因数据，值得注意的是：比尔盖茨基金会也与BGI合作。
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-华大基因集团并不是一个好莱坞电影里企图称霸世界的恶棍企业的名字，该企业1999年成立时的名字是北京基因研究所，自称是全球生命科学和基因研究领域的领导者。如今，华大基因集团绝对是全球化的，因为它为了“不辱使命”，已经在世界一百多个国家和地区设立了分支机构。这个使命是“用基因工程造福人类，做生命科学时代的引领者。”
+作者：康州盘古农场 喜马拉雅的文雅
 
-华大基因集团可能是现在世界上最大的基因组研究公司，成立于人类基因组计划（HGP）期间，中共政府也参与了该计划。从那时起，它已经从一个解读大熊猫和水稻植物基因组等的研究机构，发展成为一个庞大的集团。该集团同时还活跃在动物克隆、健康测试和其他的任务研究领域。
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0322-1.jpeg)
 
-他们也想为抗击CCP病毒大流行做出贡献。他们“从一开始”就加入了联合抗疫的行列，并认为自己有能力“帮助研究人员进一步了解SARS-CoV-2的分子结构和CCP病毒疾病的发病机制”。
+图片来源：康州盘古农场 霹雳年
+### 向拜登发问
 
-但是，如果所谓的美国情报官员是可信的，那么我们有理由对这家公司的相关行为保持最大的关注。在此情况下，美国政治节目《60分钟》暗示了存在可疑的阴谋，指控内容包括：华大基因集团BGI进行“数据挖掘”，通过提供CCP病毒核酸检测和基础（医疗）设施，来收集美国人的基因数据。
+截止3月21日美国现任总统乔-拜登执政60天从未进行公开新闻招待会，当日他接受了ABC新闻乔治（George Stephanopoulos）面对面访谈。美国黑人律师、福克斯媒体人塔拉尔（Leo Terrell）当日发推称：
 
-美国中央情报局和联邦调查局的资深人士及现任美国“国家反间谍和安全中心（NCSC）”主任威廉·埃瓦尼纳（Willianm Evanina）（NCSC隶属于国家情报局局长办公ODNI，即受拜登政府艾薇儿·海因斯Avril Haines的领导）表示，中共国提供的生物技术是个“特洛伊木马”。特别值得注意的是：华大基因集团不仅与中国政府，还与中国军队保持着联系。这是路透社声称通过其发现的研究数据审核、专利申请和其他文件发现的。
+“第60天：拜登政府。 拜登总统：你喜欢打种族牌。在你执政的每一天，我都会给你发一条推特，问你两个问题。
 
-美国媒体报道，华大基因集团在奥巴马执政时期，通过美国外国投资委员会（CFIUS）成功在美国扎根。例如，这家强大的基因公司在2013年3月成功收购了加州的Complete Genomics公司。
+“美国的系统性歧视存在于哪里？ 你为消除系统性歧视做了什么？”
 
-与此同时，硅谷大咖比尔·盖茨的基金会也进入了人们的视野。早在2012年9月，盖茨基金会就签署了一份“全球卫生和农业发展合作谅解备忘录”，企图在卫生和农业发展领域开展和华大基因集团的联合项目。签署协议后，华大基因集团董事长兼联合创始人杨焕明博士毫不掩饰他的喜悦，他表示：“华大基因集团很高兴有机会与比尔及梅琳达-盖茨基金会合作，将基因组学研究的好处带给全球社会。”
 
-杨焕明进一步表示，他们有信心结合各自的专长，在人类、植物和动物基因组研究领域取得重要突破。所有这些都将有助于促进实现卫生和农业可持续健康发展的目标，特别是在所谓的发展中国家。
 
-2010年，比尔·盖茨曾与盖茨基金会中国部负责人叶雷亲自到华大基因集团深圳总部考察基因测序。英国《金融时报》曾报道：”里面有150多台最先进的基因测序仪，每天分析的数量相当于数千个人类基因组。该公司正朝着建立一个庞大的基于数百万人DNA数据的图书馆而努力。”
 
-叶雷赞扬了员工们在公司大厅里的“开放、自由”的精神：“他们比别人做的好的原因是因为开放和自由。大多数人把自己仅当作DNA分析的服务商。然而，他们所建立的数据库才是他们的最有价值的地方。”
 
-在人事层面，盖茨基金会和华大基因集团有着显著的紧密联系与合作。例如，比尔和梅琳达-盖茨基金会全球健康项目的前总裁山田忠孝（Tadataka Yamada）博士现在是华大基因集团的科学顾问委员会主席。
+> Day 60: Biden Administration: President Biden: You love to play race card: Each Day of your Administration, I will send you a tweet which will ask you two questions: Where does systemic discrimination exist in American? What have you done to eliminate systemic discrimination?
+> — TheLeoTerrell (@TheLeoTerrell) [March 21, 2021](https://twitter.com/TheLeoTerrell/status/1373625612338786304?ref_src=twsrc%5Etfw)
 
-而华大基因集团则在美国华盛顿州，即盖茨基金会总部所在地，开设了一家分公司。美国政治节目《60分钟》则指出，去年3月，美国的第一次CCP病毒大爆发就是在华盛顿地区发生的。“随着CCP病毒治疗费率和对核酸检测需求的飙升，一家总部位于中共国的巨头企业，全球最大的生物技术公司——华大基因集团向华盛顿州提出了诱人的报价。”
 
-在一封引人注目的致州长的亲笔信中，华大基因集团提出要在华盛顿疫情现场建立和运营最先进的CCP病毒检测实验室。美国情报官员威廉·埃瓦尼纳非常担心，所以他发出了一份经过授权的罕见的公开警告——“中共国可能从CCP病毒检测中来收集、存储和利用生物特征的信息。”
 
-但最终，华大基因集团的报价随后被拒绝了，原因是怀疑与中共国政府有关。
+ABC主播乔治访谈乔拜登时，拜登的回答让人汗颜，媒体人塔拉尔转推时引用拜登的答复说：“乔治，让我休息一下，伙计，我刚到这儿六周！”
 
-* * *
 
-### 新闻来源：
 
-[https://de.rt.com/international/114179-data-mining-durch-coronatests-chinesisches/](https://de.rt.com/international/114179-data-mining-durch-coronatests-chinesisches/)
+> Joe Biden Tells George Stephanopoulos: ‘Gimme a Break Pal! I’ve Only Been Here Six Weeks!’ [https://t.co/LXSEV3Q96S](https://t.co/LXSEV3Q96S)
+> — TheLeoTerrell (@TheLeoTerrell) [March 22, 2021](https://twitter.com/TheLeoTerrell/status/1373970651984359429?ref_src=twsrc%5Etfw)
 
-* * *
 
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
 
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+《自由时报》21日发表文章刊登了卡拉尔接受福克斯周六晚法官珍妮-皮罗采访时对拜登的评论。文章引用他的话称：
 
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+“当你从整体上看，乔-拜登有问题。我没有投票给这个人，但他是我们的总统。但现在他是个尴尬的人。””他是一个尴尬，不仅是这个国家，而且是全世界的尴尬。”
+
+他还说：“他一直称卡马拉-哈里斯为’哈里斯总统’，这就有问题了……再加上前几天我们看到的他摔倒的情况，乔-拜登就有问题了。我想听听他的白宫医生怎么说。”
+
+他宣布，“最后，这个国家最糟糕的事情就是卡马拉-哈里斯这个‘社会主义者’成为总统。这是个可怕的决定。”
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/leo.png)[https://www.thefreedomtimes.com/2021/03/21/leo-terrell-when-you-look-at-the-totality-of-the-situation-something-is-wrong-with-joe-biden/](https://www.thefreedomtimes.com/2021/03/21/leo-terrell-when-you-look-at-the-totality-of-the-situation-something-is-wrong-with-joe-biden/)
+
+
+
+
+### 白宫为一名华人女律师背书
+
+美中“厕所会晤”刚结束，美国遭受中共羞辱的风波尚未平息，中共新一轮渗透或许已经开始酝酿？…… 3月21日白宫发言人纳得发推称：
+
+“我个人的 #巾帼不让须眉 之一的人是郭建梅（音译），她是中国法律宣传的先驱。今天，她是中国最著名的女律师。作为一个充满激情的活动家，郭建梅代表那些在中国被排除在法律途径之外的人发言。”
+
+
+
+> One of my personal [#WomenOfCourage](https://twitter.com/hashtag/WomenOfCourage?src=hash&amp;ref_src=twsrc%5Etfw) is Jianmei Guo, a pioneer of legal advocacy in China. Today ​she is the country's best-known female lawyer. A passionate activist, Jianmei speaks on behalf of those who have been excluded from legal access in China.
+> — Ned Price (@StateDeptSpox) [March 21, 2021](https://twitter.com/StateDeptSpox/status/1373657036626493441?ref_src=twsrc%5Etfw)
+
+
+
+### 班农先生的诉讼案
+
+22日Newsmax 发推一则19日的新闻：
+
+前总统助理史蒂夫-班农先生要求联邦法官驳回对他诈骗人们对墨西哥私人边境墙捐款的指控，并称时任总统川普对此案的赦免是最终的决定。
+
+班农的律师罗伯特-科斯特洛周四提交了驳回动议。但是纽约的联邦检察官反对驳回，并认为，赦免”涉及宽恕，而不是遗忘”，”不会抹杀可能的原因或撤销起诉。
+
+此前国家安全顾问迈克尔-弗林（Michael Flynn）和说唱歌手莉尔-韦恩（Lil Wayne，又名小德维恩-迈克尔-卡特）案件的法官在川普给予他们特赦后，驳回了对他们的起诉。
+
+
+
+> Steve Bannon has asked a federal judge to dismiss an indictment on fraud charges because he was pardoned by Trump: [https://t.co/aPJ2BHKkS3](https://t.co/aPJ2BHKkS3) [pic.twitter.com/XGujx8wywJ](https://t.co/XGujx8wywJ)
+> — Newsmax (@newsmax) [March 22, 2021](https://twitter.com/newsmax/status/1373893469069062146?ref_src=twsrc%5Etfw)
+
+
+[https://www.newsmax.com/politics/bannon-pardon-indictment-dismiss/2021/03/19/id/1014502/](https://www.newsmax.com/politics/bannon-pardon-indictment-dismiss/2021/03/19/id/1014502/)
+### 蓬佩奥对美国的信心
+
+3月21日蓬佩奥国务卿推文如下：
+
+
+
+> When it came to securing American freedom abroad, we treated the world as it was, not as we wished it to be. When the time came, we led and were TOUGH.
+> 
+> Strength deters bad guys, weakness begets war.
+> — Mike Pompeo (@mikepompeo) [March 22, 2021](https://twitter.com/mikepompeo/status/1373988498760404994?ref_src=twsrc%5Etfw)
+
+
+
+“当涉及到确保美国在海外的自由时，我们对待世界的态度就是它原来的方式，而不是我们希望它成为的那样。当时机成熟时，我们来领导，而且是强硬的。
+
+“力量能阻挡坏人，弱点能产生战争。”
+
+小议，美国当前的弱点何在？就在现任拜登政府及其对待中共卑躬屈膝的态度。是否在蓬佩奥先生看来，拜登政府暴露的弱点将激化美国内部矛盾，在解决美国对外国际利益的问题时，当国内矛盾激化时，正义必将掌权，主导战斗，同时最终战胜邪恶……
+
+
+
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+
+**欢迎关注和支持康州盘古农场推特公众号及时掌握资讯**
+
+### [盘古七星舰队PanGu Heptastar Fleet](https://twitter.com/PanguF)
+
+
 
 0
