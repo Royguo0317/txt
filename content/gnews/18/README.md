@@ -1,36 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 由国内经济数据看人民币走向
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1002222/)
+## 驻马来西亚的朝鲜大使馆人员3月21日全体踏上不归路
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1002383/)
 
-撰稿：信心满满
+![]()![](https://gnews.org/wp-content/uploads/2021/03/封面-54.png)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-据求是网报道，2021年中共国经济增长7.8%，第三产业增加值占比继续提高，固定资产投资、消费增速均大幅回升，居民收入稳定增长。CCP一贯以假治国，一直愚弄百姓，假文章、假报道层出不穷。以上求是报道明显不真实。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/16164077821-1.png)（图片来自网络截图）
-今年以来铁矿暴涨、铜价暴涨，煤炭大涨，粮食价格也大幅度上涨，特别是最近中国限制进口澳洲煤炭、粮食，以及铁矿石价格上涨，更是推高了国内的物价水平。中国经济陷入严重通货膨胀。中国生产者物价指数（PPI），在过去3年多来一直都在下降，但目前已转入增长，实际上，就是即将通货膨胀的预兆。
+据[**七环视频**](https://weibo.com/u/6066193547?refer_flag=0000015010_&amp;from=feed&amp;loc=nickname)[2021年3月22日18：04](https://weibo.com/6066193547/K7o6ZAPEk?ref=home&amp;rid=3_0_8_6558559663994082374_6_0_0) 来自 微博 weibo.com
 
-**中国外汇储备下降**
+[#朝鲜宣布与马来西亚完全断交#](https://s.weibo.com/weibo?q=%23%E6%9C%9D%E9%B2%9C%E5%AE%A3%E5%B8%83%E4%B8%8E%E9%A9%AC%E6%9D%A5%E8%A5%BF%E4%BA%9A%E5%AE%8C%E5%85%A8%E6%96%AD%E4%BA%A4%23&amp;from=default)【[#朝鲜大使馆全体人员已离开马来西亚#](https://s.weibo.com/weibo?q=%23%E6%9C%9D%E9%B2%9C%E5%A4%A7%E4%BD%BF%E9%A6%86%E5%85%A8%E4%BD%93%E4%BA%BA%E5%91%98%E5%B7%B2%E7%A6%BB%E5%BC%80%E9%A9%AC%E6%9D%A5%E8%A5%BF%E4%BA%9A%23&amp;from=default)】3月21日16时55分，朝鲜驻马来西亚使馆全体人员所乘坐的航班起飞。至此，全部朝鲜驻马来西亚大使馆外交人员及其家属已在最后期限前离境。由于马来西亚将一名朝鲜籍人士引渡至美国，3月19日朝鲜宣布与马来西亚完全断交。[#朝鲜大使馆人员今天离开马来西亚#](https://s.weibo.com/weibo?q=%23%E6%9C%9D%E9%B2%9C%E5%A4%A7%E4%BD%BF%E9%A6%86%E4%BA%BA%E5%91%98%E4%BB%8A%E5%A4%A9%E7%A6%BB%E5%BC%80%E9%A9%AC%E6%9D%A5%E8%A5%BF%E4%BA%9A%23&amp;from=default) [O网页链接](http://t.cn/A6tDck4G) [L七环视频的微博视频](http://t.cn/A6tDckbu)收起全文d
 
-中国的外汇储备在2021年2月从前一个月的3.211万亿美元下降至3.205万亿美元，与市场预期的3.2万亿美元相比，反映了估值效应。同时，黄金储备的价值从1月份的1167.6亿美元降至1091.8亿美元。
+这名被引渡的朝鲜人是谁呢？据G-News [引渡此人令朝鲜与马来西亚断交](https://gnews.org/zh-hans/990794/)［03月19日，据朝鲜中央通讯社（KCNA）报道，朝鲜表示，因其一名公民被引渡到美国而与马来西亚断绝外交关系。这名住在马来西亚的朝鲜商人被指控违反联合国制裁，从新加坡向平壤运送违禁奢侈品。马来西亚的最高法院得出结论，他可以被引渡到美国，并驳回了他质疑引渡请求的上诉。］，［据路透社报道，2019年12月，马来西亚法院批准了美国联邦调查局（FBI）对54岁的文彩明（Moon Choi Myung）的引渡请求。 美国司法部指控他涉嫌银行欺诈、洗钱和帮助平壤违反国际制裁。］
 
-**中国综合采购经理指数为10个月最低**
-财新中国综合PMI从1月份的52.2跌至2021年2月的51.7，标志着自5月份以来总商业活动增幅最小，服务业和制造业的产出均以较低的速度增长。新订单增长放缓至10个月低点，而就业率自去年7月以来首次下降。至于价格，尽管通货膨胀率降至三个月低点，投入成本仍继续急剧增加。收费价格也以较缓和的速度上涨。
+毫无疑问的是文彩明向平壤运送的违禁奢侈品的最终用户必为金正恩及其亲信，能够有资格为最高领导人的小圈子运送御用物品的人应该是领袖最信任的人之一，这样的人的级别应高于朝鲜驻马来西亚使馆大使，伴随着文彩明的引渡必将牵出更多的秘密，这恐怕也是引渡令金正恩索然大怒并愤而与马来西亚断交的唯一原因。
 
-**中国新银行贷款意外新增**
-中国的银行在2021年2月发放了人民币1.36万亿元的新增人民币贷款，低于1月份创纪录的3.58万亿元，但远高于市场预期的0.95万亿元。它也高于一年前的0.91万亿元人民币。今年以来，中央银行一直在从市场撤资，这引发了人们对紧缩货币政策的担忧。春节前，人民币贷款余额增长12.9％，而1月份增长12.7％。
+如果文彩明在美国不会再上演金无怠的自杀戏码，相信他将因为被引渡终于逃脱金家摩掌，但是他的家人恐怕将遭遇不测，而与这一起成功引渡息息相关的应该就是朝鲜驻马来西亚使馆的相关负责人了，因为文彩明的被引渡必须经历美国与马来西亚两国之间的官方沟通和确认，而这个过程必不是三天两日可以完成的，在这个过程中朝鲜最高层不可能不知道文彩明的被控制，朝鲜最高层也不可能不会就文彩明被控制和将遭遇的引渡而与马来西亚方面进行交涉，而这些交涉过程中朝鲜驻马来西亚的相关负责人不可能不缺席。
 
-CCP不顾老百姓的死活，利用疫情经济通过大量印制人民币来投入流通领域， 稀释和降低人民币的购买力，是对老百姓再一次资产掠夺。与之相比，从去年3月Covid-19 爆发开始，尽管澳洲央行也进行货币量化发行和降低贷款利率去应对疫情带来对经济的影响，但澳洲政府对失去工作的人们进行了补贴。
+文彩明的被成功引渡宣告了朝鲜最高层与马来西亚方面的交涉完全失败，这份挫败必然会部分或全部归咎于朝鲜驻马来西亚使馆的负责人及相关馆员，依此看来已经在回国路上的原朝鲜驻马来西亚使馆馆员们回国后将凶多吉少，面对他们的将会是犬决还是炮决还是斩监候，我们不得而知。在这最危险的时刻，每一个馆员都像待宰的羔羊一样顺序踏上归国之旅，这其中或许有无奈，或许有怯懦，但是不管怎样，我们唯一可以确认的一点是，在离开马来西亚之前所有馆员们都做出了自己的选择，他们按照自己的选择了踏上了不归路。
 
-从上分析，人民币贬值是不可避免， 在国内的百姓，战友应该屯粮，及时兑换美元，澳币。以人民币计价的资产要尽量兑现和转化成外币。人民币变成废纸的日子不会遥远了。 文贵先生引领爆料革命，将会让战友保命，保财。
-（文章仅代表个人观点）
+（文章内容仅代表作者个人观点）
 
-参考来源
-
-[Https:// HYPERLINK “https://tradingeconmics.com/china” HYPERLINK “https://tradingeconmics.com/china” HYPERLINK “https://tradingeconmics.com/china”tradingeconmics.com HYPERLINK “https://tradingeconmics.com/china” HYPERLINK “https://tradingeconmics.com/china” HYPERLINK “https://tradingeconmics.com/china”/china](https://tradingeconmics.com/china)
-
-[http:// HYPERLINK “http://www.qstheory.cn/qshyjx/2021-01/11/c\_1126968192.htm” HYPERLINK “http://www.qstheory.cn/qshyjx/2021-01/11/c\_1126968192.htm” HYPERLINK “http://www.qstheory.cn/qshyjx/2021-01/11/c\_1126968192.htm”www.qstheory.cn HYPERLINK “http://www.qstheory.cn/qshyjx/2021-01/11/c\_1126968192.htm” HYPERLINK “http://www.qstheory.cn/qshyjx/2021-01/11/c\_1126968192.htm” HYPERLINK “http://www.qstheory.cn/qshyjx/2021-01/11/c\_1126968192.htm”/ HYPERLINK “http://www.qstheory.cn/qshyjx/2021-01/11/c\_1126968192.htm” HYPERLINK “http://www.qstheory.cn/qshyjx/2021-01/11/c\_1126968192.htm” HYPERLINK “http://www.qstheory.cn/qshyjx/2021-01/11/c\_1126968192.htm”qshyjx HYPERLINK “http://www.qstheory.cn/qshyjx/2021-01/11/c\_1126968192.htm” HYPERLINK “http://www.qstheory.cn/qshyjx/2021-01/11/c\_1126968192.htm” HYPERLINK “http://www.qstheory.cn/qshyjx/2021-01/11/c\_1126968192.htm”/2021-01/11/ HYPERLINK “http://www.qstheory.cn/qshyjx/2021-01/11/c\_1126968192.htm” HYPERLINK “http://www.qstheory.cn/qshyjx/2021-01/11/c\_1126968192.htm” HYPERLINK “http://www.qstheory.cn/qshyjx/2021-01/11/c\_1126968192.htm”c\_1126968192.htm](http://www.qstheory.cn/qshyjx/2021-01/11/c_1126968192.htm)
-
-审核：Runaway 编辑：五饼二鱼
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-澳喜Logo-3.jpeg)
-+1
++2
