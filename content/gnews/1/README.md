@@ -1,69 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【詩歌】拯救
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1002923/)
+## 日本和德国将在未来几周签署情报共享协议
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1003078/)
 
-作者：喜马拉雅东京樱花团 / 李文星
+翻译：康州盘古农场 – TrueSky
+校对：康州盘古农场 – Mike Li
+编辑：康州盘古农场 – 轰炸机
 
-![](https://lh6.googleusercontent.com/n7XO035Ql93l6Jxd1NSVVV3yyK4ytNvgKMZABxkMb78f4ADOR8hxsPsNAHqt-QZcVqiZXsBkc-FtapuubDfh4vxLmUkqepW7R28GnyqCjOSMBMkbii5eHD8D6tv90eh5_uc96VrL)
+据《日经亚洲》 作者：MASAYA KATO，2021年3月18日报道：
 
-带着口罩，
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-212.jpg)2019年，德国巴登-符腾堡号护卫舰在德国威海尔姆港举行的海军部队媒体推介会上的照片
 
-走在十字路口。
+东京 — 日本和德国最早将于本月签署一项关于共享防卫相关信息的协议，因为两国正在寻求更密切的防卫合作，特别是在印度洋-太平洋地区。
 
-回不到从前，
+信息安全协议将使东京和柏林更容易让对方获得有关部队部署计划、国防装备和恐怖分子活动的敏感信息。两国需要对处理机密情报制定严格的控制措施。
 
-未来也看不到头。
+自2019年2月，德国总理默克尔与时任日本首相安倍晋三达成基本原则性协议以来，达成公约的谈判一直在进行。
 
-你愿意做，
+随着中共国影响力的扩大，德国对印太地区的关注度越来越高。柏林去年起草了在该地区开展外交的指导方针，预计最早将在夏季派遣一艘护卫舰。
 
-摇旗呐喊的勇士，
+去年12月，德国国防部长克朗普-卡伦鲍尔在一次视频会议上对日本同行岸信夫说，德国在该地区有安全利益，并打算增加在该地区的存在力量。
 
-还是中共的走狗。
+她说，向多边组织派遣德国联络官、参加军事演习和进行海军部队的港口访问是柏林正在考虑的一些措施。
 
-红墙之内，
+克朗普-卡伦鲍尔解释说，德国政府打算在北约框架内加强与印太地区伙伴的合作。
 
-谎言矇昧心智，
-
-高压摧垮老幼，
-
-泪在眼眶，
-
-痛在心头。
-
-泱泱华夏，
-
-谁来拯救这神州。
-
-爆料革命，
-
-燃起人民的怒吼！
-
-我本炎黄的子孙！
-
-不是撒旦黄俄奴！
-
-蓝色星旗新联邦！
-
-誓做崭新中国人！
-
-不灭中共不罢休！
-
-拯救！
-
-拯救苍生！
-
-拯救这神州！
-
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-
-*校对：喜马拉雅东京樱花团 / 文小白*
-*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews.org/wp-content/uploads/2021/03/二维码-3.jpg)
-0322C144g
-
-
+文章来源：[https://asia.nikkei.com/Politics/International-relations/Japan-and-Germany-to-sign-intel-sharing-pact-in-coming-weeks](https://asia.nikkei.com/Politics/International-relations/Japan-and-Germany-to-sign-intel-sharing-pact-in-coming-weeks)
 
 0
