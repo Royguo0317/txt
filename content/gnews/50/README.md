@@ -1,35 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统即将拥有自己的社交平台
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1000830/)
+## 菲律宾称220艘中共国船只入侵了南中国海
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1000922/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+俄罗斯莫斯科喀秋莎农场   银河
 
-编辑上传 水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/T-32-7.jpg)trendingpolitics.com
-《福克斯新闻》发表文章，“川普总统2-3个月后带着‘自己的平台’重返社交媒体”，副标题，杰森·米勒（Jason Miller）告诉《福克斯新闻》的“MediaBuzz”，这个平台将“完全重新定义规则”。
+编辑上传   水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/A-15-5.jpg)asiatimes.com
+路透社报道，菲律宾敦促中共召回200多艘该国船只，称这些船出现在南中国海岛礁上，侵犯了菲律宾对该地区的主权。
 
-全文如下：
+有关部门表示，菲律宾海岸警卫队(coast guard)报告称，3月7日，看到约220艘船只停泊在白灵礁(Whitsun Reef)，马尼拉方面称其为朱利安费利佩礁(Julian Felipe Reef)。据称这些船只由中共海上自卫队人员操纵。
 
-据川普总统的一位高级顾问透露，他将在不久的将来重返社交媒体，为自己服务。
+“我们呼吁中共国停止这种入侵，并立即召回这些侵犯我们海洋权利和侵犯我们主权领土的船只。”菲律宾国防部长德尔芬•洛伦扎纳(Delfin Lorenzana)表示。
 
-川普总统在1月6日国会大厦骚乱后被禁止使用推特，在他担任总统之前和期间，他一直是这一平台上的一位多产的传播者。
+菲律宾军方已经在南中国海进行了空中和海上巡逻，海军少将埃德加德·阿雷瓦洛(Edgard Arevalo)进一步证实这一报道， 他在一份声明中表示，军方已将调查结果提交给其他政府机构，这些结果将被用作采取“不限于提出外交抗议的适当行动”的依据，但没有进行详细说明。
 
-川普总统的高级顾问杰森·米勒周日在《福克斯新闻》的“MediaBuzz”节目中说：“我确实认为，我们将看到川普总统在这里大概两三个月后，带着自己的平台重返社交媒体。”我认为这将是社交媒体上最热门的话题，它将彻底重新定义规则，每个人都将拭目以待，看看川普总统到底做了什么。”
+阿雷瓦洛说，“(菲律宾武装部队)不会违背我们在法律范围内保护和捍卫我们海洋利益的承诺。”当政府被问及是否会就这些船只提出外交抗议时，外交部长特奥多罗·洛钦(Teodoro Locsin)在推特上回答:“只有将军们告诉我。在我的任期内，外交政策是武装部队铁手套上的拳头。”
 
-米勒说，他目前无法提供更多细节，但他确实透露，川普总统一直在马阿拉哥与多个团队就合资企业举行“高层会晤”，“许多公司”都与川普总统接洽。
+据菲律宾安全官员说，这些渔船是由受过中共国军事训练的人员驾驶。中共船只在该地区的存在引发了人们对过度捕捞、海洋环境破坏以及航行安全风险的担忧。
 
-米勒说：“这个新的平台将会很大”，他预测川普总统将吸引“数千万人”。
+中共外交部没有立即回应记者的置评请求。
 
-与此同时，米勒表示，川普总统将继续为共和党候选人背书，并风趣地预计周一将出现的候选人。
+参考链接
 
-“注意佐治亚州明天，星期一，有一个巨大的支持即将到来，这将真正动摇佐治亚州的政治格局，很大，明天就要来了，一定要收看。” （全文完）
+[https://www.reuters.com/article/us-philippines-china-southchinasea/philippines-says-chinese-militia-boats-in-south-china-sea-violate-its-maritime-rights-idUSKBN2BD0DE](https://www.reuters.com/article/us-philippines-china-southchinasea/philippines-says-chinese-militia-boats-in-south-china-sea-violate-its-maritime-rights-idUSKBN2BD0DE)
 
-不加评论了，开一下脑洞，据新中国联邦俄罗斯莫斯科喀秋莎农场的仰望七星透露，川普总统使用的平台，将由新中国联邦提供，或者部分提供，或者部分参与。经过大选前后的经历，川普总统体会、认清了新中国联邦人对美国的贡献，对世界的贡献，只有与新中国联邦合作才能灭共，才能还世界以安宁！
-
-原文链接：
-
-[https://www.foxnews.com/politics/trump-social-media-platform-return-adviser](https://www.foxnews.com/politics/trump-social-media-platform-return-adviser)
-
-+2
++1

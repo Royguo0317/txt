@@ -1,29 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共考虑根据疫苗接种力度出台相应签证政策
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1001009/)
+## 日美深度合作对抗中共台海危机
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1001201/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑上传  水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/va-2.jpg)news18.com
-路透社报道，中共官方表示，中共国加快了中共病毒疫苗接种，在一周内接种了近1000万剂疫苗，并正在考虑根据不同国家的疫苗接种和病毒状况制定不同的签证政策。
+编辑上传    水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/N-11.jpg)asia.nikkei.com
+日媒报道，美国防部长奥斯汀在最近与日本国防部长会晤时提出深化双边合作，两国同意合作，共同防御中共入侵台湾。
 
-中共卫生委员会发言人米峰在新闻发布会上说，截至周六，中共国已经注射了7496万剂疫苗，这一数字高于3月14日的6498万。
+日本和美国的国防部长在最近于东京举行的会议上同意，如果中共国大陆和台湾发生军事冲突，他们将密切合作。报道称，日本可以部署自己的军队来保护在台湾的美国军舰，同时捍卫台湾岛国的主权。自1945年以来，日本一直被禁止在海外执行军事任务，中共扩张，美国结盟，日本正在新的国际形势中寻求恢复其在全球事务中的角色。
 
-据中共官媒报道，中共国的目标是到今年年中为14亿人口中的40%接种疫苗。中共国是去年首批开始接种疫苗的国家之一，已经出口了数百万剂疫苗，但其疫苗接种率落后于以色列和美国等国家。
+日本防卫大臣岸信夫(Nobuo Kishi)表示，“我对中共国海岸警卫队最近加强的活动以及他们与军方更紧密的伙伴关系表示严重关切。”我们绝不能让中共《新海警法》损害包括日本在内的有关国家的合法利益。
 
-北京方面正在考虑根据不同国家的疫苗接种进展和中共病毒疫情，在签证发放、航班和入境人数控制方面采取差异化政策。中共疾病预防控制中心副主任冯子健说“我们暂时不会免除接种疫苗者的检测和隔离措施。”但他表示，中共将关注在开发“疫苗护照”方面的国际进展，并可能在国内人口达到高免疫水平后调整病毒遏制措施。
+日本官员反对拜登可能对中共做出的任何让步。东京强烈敦促美国对中共采取更强硬的立场，并坚决反对其掠夺性政策。
 
-中共已经批准了四种国产疫苗，分别是国药中生北京公司、国药中生武汉公司和北京科兴中维公司生产的灭活疫苗，以及天津康希诺的腺病毒载体疫苗。由中共国科学院微生物研究所研制的第五种疫苗上周被批准紧急使用。继中共推出“疫苗护照”后，中共考虑根据不同国家的疫苗接种进展和中共病毒疫情出台差异化签证政策，致力于进一步推广疫苗经济扩大疫苗外交的影响力。
+自1949年因内战而分裂后，台湾和中共国大陆一直是分开统治的。中共坚持认为台湾是中共国的领土，不承认台湾独立并不放弃武力统一台湾的可能性。在台湾问题上，美日双方在会谈后发表声明，呼吁台海的和平与稳定。同时指出，
 
-中共外交部上个月称，中共正努力向60多个国家提供疫苗。迄今为止，中共已承诺向至少45个国家提供约5亿剂疫苗，其中25国已经开始注射。
-
-美、日、印、澳四方会谈正式将提高疫苗合作列入议程。四国峰会达成协议分工合作提高疫苗产能，以解决印太地区、特别是东南亚国家疫苗短缺的问题。据分析这是四国联盟协力对抗中共的“疫苗外交”，力图削弱中共对外扩张的影响力。对中共疫苗外交警觉的国家不仅是四国同盟，据悉欧盟疫苗护照计划将排除中俄。
+考虑到台湾海峡的地理位置接近以及可能发生影响日本公民安全的武装冲突，东京一直在考虑在中共国大陆和台湾之间发生危机时派遣自卫队以保护美国军舰和军用飞机的安全。
 
 参考链接：
 
-[https://www.reuters.com/article/us-health-coronavirus-china-vaccine/china-steps-up-covid-19-vaccination-considers-differentiated-visa-policies-idUSKBN2BD0A8](https://www.reuters.com/article/us-health-coronavirus-china-vaccine/china-steps-up-covid-19-vaccination-considers-differentiated-visa-policies-idUSKBN2BD0A8)
+[https://english.kyodonews.net/news/2021/03/ce08e08bd25f-japan-us-defense-chiefs-affirm-cooperation-over-taiwan-emergency.html](https://english.kyodonews.net/news/2021/03/ce08e08bd25f-japan-us-defense-chiefs-affirm-cooperation-over-taiwan-emergency.html)
+
+
+
+> [Reports: Japan may deploy military to protect U.S. from China, Tokyo warns of Taiwan tensions, seeks to deploy military overseas for 1st time since 1945](https://www.oann.com/reports-japan-may-deploy-military-to-protect-u-s-from-china-tokyo-warns-of-taiwan-tensions-seeks-to-deploy-military-overseas-for-1st-time-since-1945/)
+
+
 
 +1
