@@ -1,33 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 亚美尼亚承认从俄罗斯购买了不含导弹的苏-30SM
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/998899/)
+## 日美深度合作对抗中共台海危机
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1001201/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+俄罗斯莫斯科喀秋莎农场   银河
 
-编辑上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-21_20-57-18.jpg)[youtube.com](https://www.youtube.com/watch?v=kThW-AtfSHU)
-03月21日，亚美尼亚确实从俄罗斯购买了没有空对空导弹的苏-30SM战斗机。据亚美尼亚卫星通讯社报道，总理尼科尔·帕希尼扬（Nikol Pashinyan）是在与阿拉加措特恩（Aragatsotn）地区奥哈纳万（Ohanavan）村民会晤时承认了这一点。
+编辑上传    水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/N-11.jpg)asia.nikkei.com
+日媒报道，美国防部长奥斯汀在最近与日本国防部长会晤时提出深化双边合作，两国同意合作，共同防御中共入侵台湾。
 
-他指责国家前任领导层做出这样的决定。帕希尼扬说，“是的，我们买了一架飞机，5月份就交付了。是的，我们没有时间在战前买导弹。你要是买了飞机，我们就有时间买导弹了。26年的国家为什么没有战斗机，谁能解释一下？”
+日本和美国的国防部长在最近于东京举行的会议上同意，如果中共国大陆和台湾发生军事冲突，他们将密切合作。报道称，日本可以部署自己的军队来保护在台湾的美国军舰，同时捍卫台湾岛国的主权。自1945年以来，日本一直被禁止在海外执行军事任务，中共扩张，美国结盟，日本正在新的国际形势中寻求恢复其在全球事务中的角色。
 
-同时，帕希尼扬强调，他对去年秋天与阿塞拜疆武装冲突中的失败负有全部责任。
+日本防卫大臣岸信夫(Nobuo Kishi)表示，“我对中共国海岸警卫队最近加强的活动以及他们与军方更紧密的伙伴关系表示严重关切。”我们绝不能让中共《新海警法》损害包括日本在内的有关国家的合法利益。
 
-2020年11月，亚美尼亚武装部队前总参谋长莫夫谢斯·哈科比扬（Movses Hakobyan）指出，埃里温从莫斯科购买了没有弹药的战斗机。他说，2016年他设法劝阻国家领导人不要购买这些飞机，但后来还是购买了。
+日本官员反对拜登可能对中共做出的任何让步。东京强烈敦促美国对中共采取更强硬的立场，并坚决反对其掠夺性政策。
 
-哈科比扬声称，他在签署协议前亲自告诉总理，这将是“犯罪步骤”，因为俄罗斯法律禁止向第三国出售苏-30SM的武器，包括导弹。然而，军方称，莫斯科和埃里温之间合同的拟定者“没有读过俄罗斯法律”。
+自1949年因内战而分裂后，台湾和中共国大陆一直是分开统治的。中共坚持认为台湾是中共国的领土，不承认台湾独立并不放弃武力统一台湾的可能性。在台湾问题上，美日双方在会谈后发表声明，呼吁台海的和平与稳定。同时指出，
 
-2019年1月，亚美尼亚与俄罗斯签署了一份供应4架苏-30SM的合同。一个月后，共和国当局表示，他们打算再购买8架战斗机。
-
-2月下旬，帕希尼扬说，在卡拉巴赫武装冲突期间，俄罗斯的“伊斯坎德尔”导弹系统被证明是无效的，没有爆炸，“或者只爆炸了10%”。总参谋部第一副总参谋长蒂兰·哈恰蒂安（Tiran Khachatrian）驳斥了总理的说法，并称其“不严肃”。然后，将军被罢免。
-
-后来，埃里温官员说，帕希尼扬对在卡拉巴赫冲突期间使用“伊斯坎德尔”的消息是错误的。关于武器的争端升级为政府首脑与军方的直接对抗。
-
-亚美尼亚和阿塞拜疆部队在纳戈尔诺-卡拉巴赫的武装冲突始于2020年9月27日。他们一直持续到11月11日，之后在莫斯科签署了三方和平协议。据此，以前由埃里温控制的卡拉巴赫部分领土已移交给阿塞拜疆。在争议地区部署了俄罗斯维和人员。停战条款在亚美尼亚引发了抗议，并要求帕希尼扬辞职。
+考虑到台湾海峡的地理位置接近以及可能发生影响日本公民安全的武装冲突，东京一直在考虑在中共国大陆和台湾之间发生危机时派遣自卫队以保护美国军舰和军用飞机的安全。
 
 参考链接：
 
-[https://www.rbc.ru/politics/21/03/2021/6056f0509a794781c3b24cc9](https://www.rbc.ru/politics/21/03/2021/6056f0509a794781c3b24cc9)
+[https://english.kyodonews.net/news/2021/03/ce08e08bd25f-japan-us-defense-chiefs-affirm-cooperation-over-taiwan-emergency.html](https://english.kyodonews.net/news/2021/03/ce08e08bd25f-japan-us-defense-chiefs-affirm-cooperation-over-taiwan-emergency.html)
+
+
+
+> [Reports: Japan may deploy military to protect U.S. from China, Tokyo warns of Taiwan tensions, seeks to deploy military overseas for 1st time since 1945](https://www.oann.com/reports-japan-may-deploy-military-to-protect-u-s-from-china-tokyo-warns-of-taiwan-tensions-seeks-to-deploy-military-overseas-for-1st-time-since-1945/)
+
+
 
 +1

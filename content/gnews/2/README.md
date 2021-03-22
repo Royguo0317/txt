@@ -1,59 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】全球爆发大规模反封锁抗议活动
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/999567/)
+## 爱是善良和温暖吗?
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1002214/)
 
-作者：纽约香草山农场 四季
+作者：喜马拉雅东京樱花团 /ThreeColors
+
+![](https://lh5.googleusercontent.com/NZbSl7907msUXTV64i6el8AMZf4YISYvRXF5W78FOySERA6jONFqa-pkvq1ygA2Nuzt2YZbZrBYD0K1-YgrwWOcHsuSaTeIiV-6LX382PQa5aG5QyvRg-av0FyaSXK_v-H6GoyzA)
+
+爱不是善良和温暖，而是努力尝试、挑战突破、救赎与失败。
+
+人生的意义为何？我们要懂得生命的真谛。勇敢博爱、孝敬爹娘，经历世事、依旧纯良。
+
+要更加努力做自己，海外旅行、荣获奖项，每试必中、美食健身。走遍世界是快乐的源泉，帅哥美女要顺其自然。我碰到过四位非常喜欢却不敢直视的漂亮女生。我不认为那就证明我是女同性恋者，为什么？因为我也是颜控，喜欢帅哥。
+
+为爱的人学习做饭，上得厅堂下得厨房。忍耐坚持、敬业律己。学历高见识广，为了爱家人，几乎失去自己的那种感觉真的非常纠结。
+
+爱或许不光是养家糊口疲于奔命，但为了健康快乐平安，此刻勇敢灭共刻不容缓！
+
+邪恶中共释放的病毒让全世界都恐惧，我想用力呐喊，喊出中国人不等于共产党，没有错，中国人不再吃中共这一套
+
+**中国人不再吃中共这一套**
+
+中国人 不要吸雾霾
+
+中国人 拒绝毒食物
+
+中国人 不要当被割的韭菜
+
+中国人 不认党比爹娘还亲
+
+中国人 要言论自由
+
+中国人 要香港真相
+
+中国人 拒做中共的牺牲品
+
+中国人 要恢复博爱与纯良
+
+中国人 要人性教育
+
+中国人 要医疗福利
+
+中国人 不要当中共的炮灰
+
+中国人 要信仰和普世价值
+
+中国人 勤劳又坚强
+
+中国人 不吃中共的那一套
+
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+
+*校对：喜马拉雅东京樱花团 / 煙火1095*
+*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews.org/wp-content/uploads/2021/03/二维码-3.jpg)
+0322C137c
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-《[零对冲](https://www.zerohedge.com/geopolitical/burn-your-masks-massive-anti-lockdown-protests-rage-worldwide)》（ZeroHedge）3月20日以视频的方式报道了全球范围内的大规模反封锁抗议活动。视频中，示威者高呼：“烧掉你的口罩”，“不要再破坏我们孩子的生活”，“自由发言，自由呼吸”。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image-305.png)3月20，德国中部，抗议者在城市凯塞尔参加游行，要求政府尊重人民的基本权利，并结束针对冠状病毒的限制性措施。（图源网络）
-
-据报道，本周六，欧洲各地成千上万的抗议者参加游行，抗议政府继续实施封锁和一些其他基于可疑科学关于大流行病的限制措施。这些措施导致大规模失业，摧毁了小型企业，引发了广泛的抑郁症和精神疾病，并花费了纳税人数万亿美元用以防止整个世界的毁灭。
-
-伦敦，德国，法国，瑞典，荷兰，澳大利亚，比利时，日本，维也纳和其他地方的抗议者都参加了这一“全球自由集会”。
-
-在伦敦市中心，数千名反封锁活动人士走过海德公园，庞大的人群在伦敦市中心的反封锁抗议活动中阻断了交通——英国自去年12月以来就一直处于严格的封锁状态。
-
-在德国卡塞尔市，约有1万5至2万名示威者到场，警方在现场对抗议者使用了胡椒喷雾。在柏林，约有1800名警察处于待命状态。
-
-在澳大利亚墨尔本，有成千上万的抗议者参加了抗议。
-
-在荷兰，退伍军人组成了阿姆斯特丹反封锁抗议者的防线。
-
-在日本，抗议者今天大举出动，抗议因冠状病毒造成的封锁。
-
-在奥地利的维也纳，抗议者试图冲破警察警卫线，但警察向示威者喷射液体。
-
-比利时也发生了巨大的抗议活动。
-
-在冠状病毒肆虐全球一年多后的今天，我们看到示威者举着“停止大重置”的标语牌反抗冠状病毒暴政。这说明，全世界人民已经觉醒，让我们拭目以待。
-
-参考阅读：
-
-[“Burn Your Masks!” Massive Anti-Lockdown Protests Rage Worldwide](https://www.zerohedge.com/geopolitical/burn-your-masks-massive-anti-lockdown-protests-rage-worldwide)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-0
++2
