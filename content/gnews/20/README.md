@@ -1,38 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【各抒己见】中共国骂已名扬四海
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1002676/)
+## 【新闻简评】世界形成合力对抗来自中共的威胁！
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1002763/)
 
-作者：喜马拉雅东京樱花团 / 待命（文晓）
+作者：喜马拉雅东京樱花团 / 李文星
 
-![](https://lh3.googleusercontent.com/qg9Dm02uVOlPhKIPOEyH6sR6d2Un9XA_GaspnCL6yRhChlDSVQUQjavlt-KAgG2aS2OP5gNpiM9hZEgqiAZJ2PljEupr8-r4L8utbgQBKYbXpkzhsAh557li57OXVOmuPWs2dRXd)
-[图片源自](https://www.bannedbook.org/bnews/bannedvideo/20210320/1508753.html)
+![](https://lh5.googleusercontent.com/w1SoJT_EOsxZeYSnrtoD7KD8FZV7w3_-cR1_gtC2tHq6PBN_8q7DWloYuKD4apT2rQPLauCDV4df-4dHssXN7IIudFTd5RnQXF5JyPkyymeixv_15XokH92QDIe1K7UcfBZkHrTJ)
 
-随着近些年中国游客冲出国门走向世界，着实让国人畅快了一把！
+上周，英国制定了新的十年防务战略，且正在寻求在世界舞台上发挥新的作用。
 
-祖宗八辈儿没享受过的事儿啊，那叫一个牛啊！一步一拍照、一餐一即景、一停一顿发。于是乎树上爬的、景物上攀的、路中央站的、当街开骂的、飞机上撒泼的、被当笑话拍下来网传的、被罚款的，我们大包大揽，且一举夺冠拿下了”中国土豪”之冠名。
+英国首相约翰逊表示：中共对英国安全形成了“系统性挑战”，并对英国开放的社会构成巨大挑战。
 
-走出去，开拓视野，这本是好事儿，可为什么竟是好事变坏事儿，花着钱弄了这么个结果？究其原因，不外乎70年的中共教育，把这个民族的文明毁了。70年啊！变坏容易改好难，中华民族要为此付出多大的代价！
+中共在香港所作所为，已经让英国和文明世界看清中共言而无信，说一套做一套的恶行和流氓本质。
 
-仅就“骂人”这个老大难问题，在国外这么多年，几乎没听过一句。可每次回墙国，几乎每天都听得到。而且让人忧心的是，女人甚至儿童，那骂人的样子，那骂人声音……
+皇家联合研究所亚洲分析师韦勒·诺文斯（Veele Nouwens）表示：要对抗中共的强硬，就需要做出广泛回应。
 
-教育是耳濡目染的，教育是潜移默化的，教育是身教言传的，教育是塑人造人的。从中共外事顶级官员、外交部部长、到外交部发言人，无不傲慢无礼、藐视他国、罔顾事实，甚至表情都非常之不礼貌。我们长居海外的华人，因为有比较，相对容易看穿，说实话，每当所在国电视放出这样的画面，真心感觉很难堪！但是，身处墙国的同胞们，每天听着看着那种“厉害国”新闻被动洗脑，久而久之，就会形成“这才是大国风范”、“这才是国强的体现”之畸形的世界观，从而产生错误的判断。
+约翰逊表示：美国仍然是应该是最亲密的盟友，美国国务卿安东尼·布林肯和国防部长劳埃德·奥斯汀上周访问了盟国日本和韩国，而中共国问题是本次访问的首要议事日程。
 
-诸如“XXXX绝没有好下场”、“搬起石头砸自己的脚”、“表示强烈抗议”、“不要对中国指手画脚”、 “我没看到”、 “你了解中国吗？”等等等等，中共一定会狡辩这是外交辞令。可我想问问，西方文明国家不骂人，难道就不能搞外交了？世界上还有几个国家比中共在国际上的名声更臭？所以，上梁不正下梁歪，我们的同胞、我们的孩子，就这样被毁了！
+美国国务卿布林肯表示：如果中共国使用胁迫或侵略行径，我们将在必要时予以回击。
 
-![](https://lh5.googleusercontent.com/ZtPaCrS-IOR0C_TpR7TnCQkH01e7KuoRTknn4QkPsrfe2uLON5JBKhjQGLBQO2T8JeueyQd5C7TG_FYLvKGo2ta1QmXvuvnh1UVE8n7INJLR63EfM3v-S5yVY2Kgec9ouKNf-oFf)
-[图片来源](https://www.fmprc.gov.cn/web/fyrbt_673021/t1862274.shtml)
+CCP病毒已经肆虐人类一年多，各国人民被迫待在家里，失去就业机会、失去经济来源，连基本出行旅游都被束缚，各国人民心理承受已经快达到极限。
 
-就在最近，众所周知的就有中共在美中高层会议上的国骂之“你们没有资格……我们不吃你们那一套”；中共对美日高层会议之国骂“立即停止针对中国的小圈子”；中共对美韩高层会议之国骂“试图搞‘麦克风’外交、带节奏、拉帮结派对华施压的做法是枉费心机，也毫无用处”等等，简直是骂完东家骂西家，活脱脱一个站在地球顶点俯骂世界的泼妇！中共就这样，不仅给国人施以国骂教育，而且带着国骂冲出了国门，使中共国骂名扬四海……
+就在3月20，全球爆发大规模反封锁抗议活动，伦敦，德国、法国、瑞典、荷兰、澳大利亚、比利时、日本、维也纳等地的抗议者参加了“全球自由集会”。人们高呼：“烧掉你的口罩”，“不要再破坏我们孩子的生活”，“自由发言，自由呼吸”。
 
-免责申明：本文只代表作者观点，与GNews网站无关。
+英国前国家安全顾问马克·塞德威尔（Mark Sedwill）更是发出：英国必须就违反规则的问题争夺、遏制和对抗中共国的怒吼。
 
-*校对：喜马拉雅东京樱花团 / 文小白*
-*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
+据3月17日路透社报道，两名外交官说：欧盟周三同意将中共国官员列入侵犯人权的黑名单，这是自1989年天安门广场镇压后，欧盟实施武器禁运以来对中共的首次制裁。”
+
+这段时间，虽然郭文贵先生一直搂着没有爆料，但是国际形势是灭共政策一个又一个的出炉，文明世界已逐渐形成合力，灭共是大势所趋，势在必行！
+
+新闻来源：
+
+[英国准备对抗来自中国的战略性威胁](https://www.voachinese.com/a/britain-defense-review-china-20210321/5823519.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
+[“烧你的面具！” 大规模的反封锁抗议在全球范围内肆虐](https://www.zerohedge.com/geopolitical/burn-your-masks-massive-anti-lockdown-protests-rage-worldwide)
+[欧盟将连续三个月就维吾尔族“种族灭绝”对中国实施制裁](https://www.zerohedge.com/geopolitical/eu-sanction-china-first-time-3-decades-over-uighur-abuses?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+zerohedge%2Ffeed+%28zero+hedge+-+on+a+long+enough+timeline%2C+the+survival+rate+for+everyone+drops+to+zero%29)
+
+
+
+*免责申明：本文只代表作者观点，与GNews网站无关*
+
+*校对：喜马拉雅东京樱花团/待命（文晓）
+责任编辑：喜马拉雅东京樱花团/文小白
+发布：喜马拉雅东京樱花团/煙火1095*
+
+
 ![]()![](https://gnews.org/wp-content/uploads/2021/03/二维码-3.jpg)
-0322C141c
+0322C142e
 
 
 

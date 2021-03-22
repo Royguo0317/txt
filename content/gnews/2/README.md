@@ -1,31 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：蓬佩奥对WHO-中共冠状病毒起源调查表示怀疑，并支持美国国务院关于武汉实验室的情报。
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1003238/)
+## 【新闻宅急便】日美防长声明在台湾紧急时进行合作
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1003110/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
+翻译：喜马拉雅东京樱花团 / Porsche
 
-据washingtonexaminer3月19日独家报导，蓬佩奥（Mike Pompeo）在世卫组织与中共联合发布COVID-19（中共病毒）起源的调查报告前，对其可信度表示怀疑，这位前国务卿支持美国国务院解密的情报，这些情报指向武汉病毒学研究所。
+![](https://lh6.googleusercontent.com/EXO2k5QrSqlRQCMLBy8NEYqpYXkJknHQArlUSEmm-1IBq-xXfqjG77_3jZeppcQ3OmtoIz2oixSF0hJyMWkZnMfISNH2lddmDwI1p5m7kfO5b2vegGrUQ0osGvdtmBXp6d6NkhZK)
+[图片来源](https://asia.nikkei.com/Politics/International-relations/US-China-tensions/Japan-U.S.-defense-chiefs-affirm-cooperation-over-Taiwan-emergency)
 
-川普和拜登两届政府的官员都表示，中共政府努力阻挠对该病毒起源的调查，美国国务院1月中旬发布的一份情况说明书认为，武汉病毒实验室有进行功能增强研究以设计嵌合病毒的公开记录，此外，实验室的生物安全措施也不足。美国驻华使馆官员2018年曾对 “蝙蝠女 “石正丽领导的武汉实验室的生物安全问题提出担忧。
+日本政府消息人士周六表示，日本和美国防长在最近于东京举行的会议上同意，在中国和台湾发生军事冲突的情况下进行密切合作。
 
-世卫组织和中共联合研究中唯一的美国人彼得-那扎克（Peter Daszak）领导的生态健康联盟，提供了至少60万美元的美国国家卫生研究院资金给武汉实验室，用于蝙蝠冠状病毒的研究。他此前批评拜登政府2月份对世卫组织的初步调查结果表示怀疑的事情，并为与中共有联系的媒体站台。
+消息人士说，美国国防部长劳埃德-奥斯汀(Lloyd Austin)周二（16日）与日本防卫大臣岸信夫(Nobuo Kishi)举行会谈时提出了这一问题，不过没有讨论两国应如何协调应对这种紧急情况。
 
-此外，拜登的国务卿安东尼-布林肯(Antony Blinken)和总统的国家安全顾问杰克-沙利文(Jake Sullivan)都批评中共封锁了有关COVID-19起源的资料。
+东京对“中国与台湾关系”的政策是鼓励对话，以和平解决两岸紧张关系。台湾和中国大陆自1949年因内战而分裂以来，一直是各自为政。中国一直认为台湾是自己一个待统一的省份。
 
+关于台湾问题，岸信夫、奥斯汀、美国国务卿布林肯（Antony Blinken）和日本外相本木敏光（Toshimitsu Motegi）在周二举行会谈后发表声明，呼吁台海的和平与稳定。
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/image001-56.png)
+在早前与奥斯汀的会晤中，岸信夫提到，最近中国战机越过台湾海峡中间线的数量增加，有必要研究日本自卫队在台湾受到中国侵略时，与保卫台湾的美军合作的方法。
 
+东京一直在审查，当中国和台湾发生危机时，发布自卫队派遣令保护美国军舰和军机的可行性，因为台湾海峡地理位置上接近日本领土，那里可能发生的武装冲突，会影响日本公民的安全。
 
-[原文链结](https://www.washingtonexaminer.com/news/pompeo-casts-doubt-who-china-covid-origins-inquiry)
+原文资料：
 
-【文章仅限作者个人观点】
+[Nikkei News](https://asia.nikkei.com/Politics/International-relations/US-China-tensions/Japan-U.S.-defense-chiefs-affirm-cooperation-over-Taiwan-emergency)
 
-本文作者：林林虎
+*免责申明：本文只代表作者观点，与GNews网站无关。*
 
-审核校对：鲁邦五世
+*校对：喜马拉雅东京樱花团 / 東洋武士*
+*责任编辑：喜马拉雅东京樱花团 / 文小白*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews.org/wp-content/uploads/2021/03/二维码-3.jpg)
+0322C142e
 
-上传排版：玫瑰新闻组
-
-0
++1
