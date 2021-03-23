@@ -1,47 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 高速公路突然限速 中共交通局抢钱真荒唐
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1008151/)
+## 全世界的媒体都不说真话，只有咱GTV和G-News敢
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1008588/)
 
-视频与撰稿：必有回响
-![]()![](https://gnews.org/wp-content/uploads/2021/03/004-2.jpg)图片来源于网络
-最近有网友上传的一段视频显示，在内蒙古的一条高速路上，本来行驶的道路是100KM/H的限速，但是前面的道路突然就变成了20KM/H。更离谱的则是不远处大约几十米远的道路上就是一组龙门架摄像头，可以说是非常的荒唐。
+简述：2021年3月21日的盖特视频中，郭先生感慨世界和美国媒体的疯狂，疫苗死人和拜登身体等问题没有媒体报道，而只有新中国联邦、爆料革命、GTV和GNEWS敢说真话。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles-20210321-getter1-part1-revised.srt.txt)
+**全世界的媒体都不说真话，只有咱****GTV****和****G-News****敢**
 
-从100KM到20KM这种断崖式的限速，司机为了不被抓拍扣分在短时间里肯定会手忙脚乱减速，而且这样突然的减速也非常可能引起方车辆的追尾。视频可以看到摄像头下非常多大货的刹车印，可以想像满载的大货车因为惯性根本停不下来。如果有两辆车在同一路段行驶，大货车在后的话非常容易出事故——交通局为了罚款抢钱简直是不顾老百姓的生命安全。
-视频：坑人的高速路
-其实在今年中共“两会”上，中共人大代表、重庆索通律师事务所律师韩德云就对外说，中共国交通道路标识和电子警察系统的设置存在不规范的现象。据统计，2020年中共国交通罚款总额3000亿元左右。大概平均每车罚款逾千元，交通局抢钱的力度可想而知。
+**No Media In the World Dares to Tell the Truth, Except for GTV and GNEWS**
 
-当然这个韩德云也并非是真的为了人民百姓说实话，你要知道韩自己也是中共人大代表，显然他出来说这个事肯定是高层有授意的，这是习江的内斗才导致中共体制内的人把矛头指向交通局，所以我老百姓才能一窥交通局的腐败。
+这个周末真是很热闹。全世界的媒体…你说这个世界真的多疯狂啊，多疯狂！这个疫苗死那么多人，那么多人，没有多少敢真报道的。真的是，我们现在真的是遇到媒体为王的时代，全世界都在说，这个世界谁最有权利？谁最牛？扎克伯格，Google 的 Eric Schmidt，Twitter 的 Jack，这最牛，这是媒体老大。都在说这话：“谁是老大？媒体老大。”
 
-自古以来土匪恶霸要想发财，其中的方式之一肯定就是霸占领交通要道开设关卡收取来往行人过路费，俗话说:”此山是我开，此树是我栽，要想从此过，留下买路财。”
+It’s a lively weekend. All the media across the world… you know, how crazy the world is! How crazy! The vaccine has caused so many deaths, but almost no one dares to report it. Seriously, we are in the age when media is the king. People across the world are all asking: Who has the greatest power in the world? Who are the most powerful people? Zuckerberg, Eric Schmidt of Google, and Jack [Dorsey] of Twitter. They are the media bosses. Everyone is saying this: “Who is the boss? The media.”
 
-当然中共比土匪恶霸那是要邪恶千倍万倍，中共不但设关卡收费，还在此基础上发明了乱罚款来抢劫。要是原来的路不够多，不够中共抢怎么办？正如中共土话所说，要想富，就得先修路。当然这个富可不是指普通老百姓富啊，这是指中共当官的要想搞钱的话就要修路，修路有回扣，修路有政绩，当然修好了还可以一直抢劫。
+真是能感觉到，就死那么多人，这么多稀奇地死那些人，没人报道，没人敢报道，一带而过。这还不说，就是拜登总统从空军一号上那三摔，“咔叽”现在”拜三摔”了，直接从楼梯摔下来。哎！美国媒体不报道，世界媒体也不敢报道。因为美国媒体是老大，包括全世界的媒体也是美国资本和中共资本在控制着。你觉得这个世界害不害怕？
 
-中共各地交通局从80年代后期或90年代初开始就慢慢成了一个个香饽饽，生金蛋的鸡。实际上中共自己在2011年CCTV经济半小时就自曝从94年开始，公安部和交通部就已经在开始所谓治理乱罚款问题了，也就是说在94年以前甚至80年代后期的乱罚款现象早就是司空见惯了。
+I can indeed feel it. So many people have died abnormally. Yet, no one has reported on this. No one dares to report or only briefly covered it. It is not only the vaccine, but also President Biden’s three stumbles when boarding Air Force One. He fell over three times directly from the stairs. Well, the American media barely reported it, and the world media didn’t have the courage to report it either. This is because the U.S. media is the boss and the world’s media is controlled by the capital of the US and the CCP. Do you think the world is scary?
 
-早在2011以前的几年，地方交通局每年的罚款总额超4000亿人民币也常事。大家注意这是明面上给了发票的罚款，如果算上没有正规发票的罚款这个钱可能是过万亿的。中共地方一直都通过交通乱罚款来作为创收的手段，特别是没有发票的罚款都是中共当官的灰色收入。
+再一个，冠状病毒，没有多少人敢议论现在，就那几家议论，而且在网络上被屏蔽，不让转发。只有咱新中国联邦，只有咱GTV、G-News，我们的爆料革命，我们的战友们，不吝这一套，是不是？爱他个谁是谁？咱就是说实话，对吧？这才是真正能体现到新中国联邦和爆料革命的真正的力量。兄弟姐妹们，看到了谁是英雄，谁是正义。大家这回看明白了吧？应该引以为豪吧？应该引以为豪吧？兄弟姐妹们。
 
-2011年央视记者亲自在陕西高陵县调查显示，调查地点两个执法点的非高峰时段1小时内，交警共拦下52辆大货车。如果按每天工作8小时,每辆车罚款100元计算，每天可以罚款2万多元，一年罚款将达700万。
+Another one. Not many people dare to discuss the CCP virus. Only a few of them have the courage, but they have been blocked on the internet and their words cannot be spread. The only exception is our New Federal State of China (NFSC), our G-TV, G-News, our Whistleblower Movement (WM), and our fellow fighters, right? We don’t care who will be offended, we just tell the truth, right? This reflects the real power of the NFSC and WM. Brothers and sisters, now you see who is the hero and who stands for justice. Now everyone can see it, right? Should you feel proud, brothers and sisters?
 
-央视还报道黑龙江省林甸县一个运管站站长，一年罚款将近300万，这些罚款将有至少百分之四十会拿给财政分成。因为乱罚款太厉害了，为了摆平下边百姓的举报 这位站长透露：“反贪局检察院来了，请吃饭，得变相报账。谁都知道违法，谁来谁不吃啊？林甸有温泉，经常带他们洗个澡，按按摩的。夏季有水上乐园，去玩玩，划个船，游个泳，吃点小煎鱼。招待吃完了也不能一抹嘴就走，这些费用一年能少得了吗？过年过节的，还得送点礼。要不你这部门，你活不下去。”
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60575c13d1608d609ea69e30](https://gtv.org/getter/60575c13d1608d609ea69e30) (00:10-1:58)
+鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/998813/](https://www.gnews.org/zh-hans/998813/)
 
-当然这不是中共是为了老百姓才揭露这些的。看看这报道是央视在2011年中的时候做的，那时候习正要接大位，这样做的也是中共党内的内斗，习将要上台前帮意爆出这些腐败，以反腐的名义来打击政治对手。跟今年的“两会”的手段是一模一样。
+* * *
 
-（本文仅代表作者观点）
+翻译：【7PawBear】校对：【Isaiah4031】【BruhM】字幕：【XO小粉红】视频解码：【恒久忍耐】技术支持：【Rock小哥】推广：【V%】【TINALS】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-审稿：Gradient Boost
-
-新闻参考链接：
-
-[https://www.yicai.com/news/785631.html](https://www.yicai.com/news/785631.html)
-
-澳喜文章：
-
-[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
-
-欢迎加入澳喜农场：
-
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-澳喜Logo-3.jpeg)
-+1
++2

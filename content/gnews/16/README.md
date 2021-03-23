@@ -1,85 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210323（图片新闻）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1008616/)
+## 中共国老龄数字面纱下老年人的艰难挣扎
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1009296/)
 
-- 作者：2020喜马拉雅
-- 封面：透明的遮羞布
+**作者：墨尔本雅典娜农场 人民公敌**
 
+近期，中共国内与老年群体利益息息相关的话题相继出现在媒体上，使得国内社会老龄化问题跃然眼前。中共国社会已步入老龄化阶段，这是不争的事实。如何处理社会老龄化所带来的养老金压力和医疗保障问题，是对中共执政能力的一个严峻考验。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+早在今年中共两会期间，媒体就已出现强化发展第三支柱养老的声音[1]。所谓的第三支柱养老，即个人储蓄性养老保险或商业养老保险。第一支柱是由国家财政负担的基本养老保险，第二支柱是由单位负担的企业年金和职业年金。第一支柱采用现收现付制度支付养老金，即用这一代人交的钱养活上一代人。
 
-**西班牙2021年3月23日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
+2020年5月28日，李克强在两会闭幕后答记者问时提到，中共国内有6亿人月收入仅1000元[2]。目前，中共国内第一支柱养老保险已覆盖近十亿人口，据中共国民政部门的统计，“十四五”期间，国内老龄人口将突破3亿[3]。很显然，在未来，这6亿月收入1000元的人口缴付的钱养活不了超3亿的老年人。因此，强化发展第三支柱养老保险是中共解决养老金危机的权宜之计。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2000.jpg)
+另据3月22日人民网消息[4]，逐步延迟法定退休年龄将成为“十四五”期间中共应对人口老龄化的又一举措。目前，国内通常的法定退休年龄为男满六十周岁，女满五十五周岁。据称，延迟退休将采取渐进式延迟方式，即每年推迟几个月或者每几个月延迟1个月。按照“长缴多得、多缴多得”的原则，延迟退休继续工作、持续缴费的人员在退休后其基本养老金水平将会得到提高。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/6d651d1d-8502-4d77-bdb7-a35048108497-6.jpg)
+这听上去似乎延迟退休对参保人员无多大影响，实质上却是在利用“长缴多得、多缴多得”的障眼法，让每年的退休人员自己养活自己几个月。即国家财政每年收入的参保费用一分不少，但每年却因为延迟退休而少支出几个月的养老金。如此一来，中共政府则可以缓解一下养老金危机带来的压力，但这不能从根本上解除这个压力，毕竟老龄人口基数在那儿。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ce556ab0-8b32-4f14-bb5c-59073ab1c851-5.jpg)
+那么，如何才能从根本上解决人口老龄化带来的系列社会问题呢？就在人民网3月22日发布延迟退休消息的当天，其网站几乎同步发布了未来将大规模为60岁以上健康老人接种疫苗的消息[5]。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b9a2badc-7278-45ac-bd3d-10bbbd535241.jpg)
+据路德社节目中墨博士对中共疫苗的分析，一般情况下，若一款疫苗为有效疫苗，那么将不会出现多款疫苗；若有多款疫苗出现，则说明这些疫苗均为无效疫苗[6]。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3d137245-0184-4129-ac2b-f092bd97055b-2.jpg)
+目前，中共国共推出了5款疫苗，未来还会有新的疫苗上市，这表明没有一款疫苗具有稳定的保护性。近期中共疫苗在香港的老年人接种群体中接连发生致死事件[7]，已证明中共疫苗的不可靠性。既然如此，中共为何还要大规模推行老年人接种疫苗？其居心何在？这是否与中共解决人口老龄化带来的养老金危机和医保危机有关联呢？
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/fc03cbcd-0a17-4214-9c28-c5e061dd0f2c-2.jpg)
+辛苦一生的老人们，本该在退休之后安享晚年。但在中共邪恶政权的淫威下，国内的老人不得不为养老、医疗，甚至为自己的生命挣扎地活着！这就是中共政权下国人的命运！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d6021b20-0d11-4578-b28e-3137b1b2b5da.jpg)
+**（文章仅代表作者本人观点，与GNews无关）**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/fbf4ffd6-442d-40f6-a02a-81cf269530b6-1.jpg)
+**参考链接：**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/70fd7cc5-0e41-4b0a-add9-97c62eeacb0e-1.jpg)
+[1][“养老钱”怎么筹？专家支招强化“第三支柱”](http://www.gov.cn/zhengce/2021-03/07/content_5591213.htm)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/38446eb9-5aa3-462d-9153-5499c036410e.jpg)
+[2] [李克强：中国有6亿人每月收入1000元 疫情过后民生为要](http://house.china.com.cn/home/view/1652795.htm)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/7bfb011f-73a7-4349-8425-5e65e53e01b2.jpg)
+[3][“十四五”期间我国老年人口将突破3亿迈入中度老龄化](https://baijiahao.baidu.com/s?id=1684098557299254076&amp;wfr=spider&amp;for=pc)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/066d7600-601b-4901-9ce8-4e20bf5d2f76.jpg)
+[4] [延迟退休 如何影响你我](http://health.people.com.cn/n1/2021/0322/c14739-32056796.html)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d0dd968d-e34e-42b1-8a95-818957b313c9.jpg)
+[5] [我国将大规模开展60岁以上老年人群疫苗接种](http://society.people.com.cn/n1/2021/0322/c1008-32056877.html)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/017bf42f-7168-4219-874a-3d8e977bad5e-5.jpg)
+[6] [3/21/2021路德时评（路安墨谈）](https://youtu.be/EaXPOYZ_aoo)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/26361718-cf4d-4aeb-8269-e2d25eb3cc9f.jpg)
+[7][《路德社》精选新闻简讯：科兴疫苗香港接连出事，港府不闻不问（2021年3月11日）](https://gnews.org/zh-hans/967247/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e8324af7-3521-46e9-aec8-6533a83d0b73-5.jpg)
+***责任编辑：华盛顿DC农场 光之子(沙加)***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4424b8f3-5861-4a37-bd18-cfbcc01826b7.jpg)
+***编辑/校对：英国喜庄园 AN***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/eac22a79-294e-4b9a-8eae-17217d893593-1.jpg)
+***发布：盘古人生***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/aadf809d-67c5-4d6c-b76d-8a2bfcb32aa5-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0ce7aef8-f476-448f-9dcc-a4d176916833.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/04660500-2c9e-40bc-af55-e10063148825.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/70db36c5-2845-4e2c-a570-e8e733d3e31b.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1b4019bd-4d2b-4208-9e18-39dff74f49fd.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/94e81d93-c9d4-486b-9d5d-ec1ca28d468f-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cc88646a-188b-4414-84a3-6a88886b7982.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/27763c73-4c16-4b6e-b7b8-4679089c7d49.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/f4781187-0147-440d-95a1-2556ad9695a5-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2b226ca3-4c70-4187-9ec7-86b792e8e74c.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cacc00f8-d76a-4fbb-b53e-6d2c357d5b21.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ad03cda7-1f1b-49fd-af9f-dd47ded66671.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/42bd27b4-725d-402f-9d50-bee58edc00f9-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3b7a1a1a-6dbe-424c-a5d4-d457a4e858a1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/de528ae9-b853-4307-84f7-f00d5a2885de.jpg)
-
-发稿：Ranting
-
-本文观点均来自于作者，与GNEWS无关
-
-0
++1

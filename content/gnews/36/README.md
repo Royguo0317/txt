@@ -1,31 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国对俄罗斯和中共国核侵略的应对措施
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1008138/)
+## 【军事快讯】美军创侦察距离新纪录，距中共海岸线仅25.33海里
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1008278/)
 
-翻译：康州盘古农场 – TrueSky
-校对：康州盘古农场 – Raul
-编辑：康州盘古农场 – 轰炸机
+作者：香草山媒体部 白木
 
-据《美国严防网》作者：Marshall Billingslea & Ryan Tully，2021年3月22日报道：
+![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1618-【军事快讯】美军创侦察距离新纪录，距中共海岸线仅25.33海里-1.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-244.jpg)
+SCSPI于美东时间3月22日发表推文，根据迄今为止的公开数据，美国空军RC-135U侦察机，刚刚创下了距中国海岸线最短的侦察距离新纪录，25.33海里。
 
-上周二，英国推出了期待已久的《国家安全综合审查报告》。关于加强英国核力量的部分令人耳目一新，直截了当。其中包含的逻辑与美国即将作出的关于我国战略威慑力现代化的决定所依据的逻辑基本相同。英国宣称，“为了保证我们和盟友的安全，分配给北约防务的最低限度的、可信的、独立的核威慑力量仍然是必不可少的”。 英国还直率地明智地拒绝接受“不首先使用”政策的概念，并简明扼要地说明了原因。 综合来看，这是英国几十年来的政策，很高兴看到首相和女王陛下的政府认为没有理由改变这一政策。
 
-但英国清楚地认识到，有些东西已经发生了变化：我们的北约盟友和我们自己所面临的威胁的环境和性质。目前，莫斯科拥有一个由68个核弹头导弹防御拦截器组成的武器库，旨在确保普京政权在冲突中的生存。这套系统已有几十年历史，旨在拦截从陆地或海上发射的弹道导弹。俄罗斯人正在根据A-235“努多尔”项目对该系统进行升级，据报道，该系统将采用射程更远、精度更高的新型常规型导弹。
 
-俄罗斯的导弹防御升级也不仅仅局限于莫斯科地区。引进S-500的目的是为莫斯科提供额外的能力（在俄罗斯已经拥有的S-300和S-400系统之外），以应对弹道、巡航或超音速弹道的中短程威胁。据报道，S-500估计将于2025年投入使用，可同时对付多个目标，高度可达25英里的平流层。不过，对手导弹防御系统的扩散并不只限于俄罗斯联邦。在军事现代化方面，“龙”有模仿“熊”的倾向。 中共国人正在购买俄罗斯的S-300和S-400系统，并可能会寻求购买S-500，同时将自己的数十亿美元投资于导弹防御项目。
+> USAF RC-135U Combat Sent [#AE01D5](https://twitter.com/hashtag/AE01D5?src=hash&amp;ref_src=twsrc%5Etfw) just set a new record of 25.33NM, the shortest distance US reconnaissance aircraft have reached from the China's coastlines, based on public data so far.
+> 
+> In addition, there was also a P-8A & an EP-3E spotted over the [#SouthChinaSea](https://twitter.com/hashtag/SouthChinaSea?src=hash&amp;ref_src=twsrc%5Etfw), March 22. [pic.twitter.com/uLv49u70Gv](https://t.co/uLv49u70Gv)
+> — SCS Probing Initiative (@SCS\_PI) [March 22, 2021](https://twitter.com/SCS_PI/status/1373886128177041410?ref_src=twsrc%5Etfw)
 
-令人担忧的是，改变的不仅仅是防御环境。俄罗斯和中共国都在大力扩充其核弹头储备，并部署了越来越多的能够打击英国及其北约盟友的运载系统。 中共国显然已经放弃了最低限度的威慑，并开始了秘密的快速军事集结–正如我们的战略司令海军上将查尔斯-理查德最近警告的那样–可能会使其部署的核弹头数量增加四倍，达到1000多枚。 此外，中共国的“不首先使用”政策漏洞百出，即使不是欺骗性的，也是毫无意义的。 随着对核武器基础设施、导弹生产设施的持续大规模投资，以及核试验场的常年活动，中共国显然已经决定与美国（和俄罗斯）达到质的核均势，在全新的海基和陆基导弹“三合一”以及新型远程重型轰炸机上部署弹头。我们也不应忘记中共国在其东部沿海地区部署的1200枚具有核能力的中程导弹，其目标是保护公海航行自由的美国和英国海军。
 
-俄罗斯还在进行军备竞赛，并提出了破坏稳定的核理论。时任国防情报局局长的阿什利将军称，“俄罗斯的非战略核武器储备–已经很庞大，而且种类繁多，并且正在进行现代化改造，着眼于更高的精度、更远的射程和更低的产量，以适应其潜在的战争作用”。 在《中程核力量条约》之后的这个新世界里，包括多达2,000枚所谓的“非战略”核弹头，旨在威胁伦敦和欧洲北约国家的首都。
 
-假设人们看到对英国《综合审查报告》的夸张反应，特别是那些主张 “全球零点”裁军的人的反应。在这种情况下，人们可能会认为，英国已经开始了该计划历史上最广泛的核现代化。 然而，面对俄罗斯和中共国又制造并部署了数千枚核武器和数百枚旨在击落“三叉戟”导弹的拦截器，英国的反应是什么？ 高度克制。10号计划将其海底核威慑力不足200枚弹头，提升到上限不超过260枚。英国将在未来十年内增加多达80枚弹头，这个数字仍将使其成为所有《不扩散条约》（NPT）武器国家中最小的。鉴于威胁环境正在恶化，主要是由于俄罗斯和中共国的活动造成的，综合审查报告中提出的步骤是适度和谨慎的。
+博博士引当年“巴伦支海手术刀事件”对该事件进行评论道：“美军主动挑战中共，离中共不得不开火1.33海里”，“25.33海里，土共找块豆腐撞死算了”。
 
-可想而知，嘲笑英国现代化计划的人现在指责英国违反了《不扩散条约》第六条，该条涉及关于裁减武器的“诚意”谈判。 没有任何证据表明我们的英国盟友对真诚谈判犹豫不决。事实上，情况恰恰相反。在过去的一年里，在多个场合和各种场合，我们与英国同行坐在桌子对面。每一次，他们都想方设法帮助我们实现建立一个新的军备控制制度的目标，这个制度将涵盖所有核武器，并阻止俄罗斯和中共国的集结。相反，中共国始终拒绝真诚谈判。事实上，中共国根本就拒绝谈判。如果说发生了违反《不扩散条约》的行为，那不是英国的行为，而是中共国的行为。
 
-原文链接：[https://www.realcleardefense.com/articles/2021/03/22/the\_uks\_response\_to\_russian\_and\_chinese\_nuclear\_aggression\_769226.html](https://www.realcleardefense.com/articles/2021/03/22/the_uks_response_to_russian_and_chinese_nuclear_aggression_769226.html)
+
+> 阿拉斯加對罵以後，美軍RC-135U偵察機抵近到距離中共國海岸25.33海哩才折返。這是什麼概念呢？進入24海哩毗鄰區就基本可以開火了，所以，美軍主動挑戰中共，離中共不得不開火1.33海哩。比較一下，當年巴倫支海手術刀事件，P-3距離蘇聯海岸48海哩就被宰了。25.33海哩，土共找塊豆腐撞死算了。🤣🤣🤣 [https://t.co/5DiYFaq3ax](https://t.co/5DiYFaq3ax)
+> — Dr. Bo 🇺🇸🇹🇼🇭🇰 (@BoDiplo) [March 22, 2021](https://twitter.com/BoDiplo/status/1374140014628573189?ref_src=twsrc%5Etfw)
+
+
+
+毗连区（contiguous zone），又称“邻接区”、“海上特别权”，是指沿海国根据其国内法，在领海之外邻接领海的一定范围内，为了对某些事项行使必要的管制权，而设立的特殊海域。毗连区的宽度实际上是连同领海在内的不得超过24海里。
+
+此次美军侦察机抵近中共国海岸线25.33海里才折返，离毗连区仅差1.33海里。
+
+本月8日，SCSPI就已曝光美国空军RC-135W电子侦察机对华侦察完整路线，当时距离中共国临海基线仅28.34海里。此次侦察更近一步，仅25.33海里。
+
+
+
+> A rare full trajectory!
+> USAF RC-135W ([#AE01D2](https://twitter.com/hashtag/AE01D2?src=hash&amp;ref_src=twsrc%5Etfw)) from Kadena is conducting a [#SouthChinaSea](https://twitter.com/hashtag/SouthChinaSea?src=hash&amp;ref_src=twsrc%5Etfw) mission, operating alongside China's coastlines near Guangdong, Hainan, and the [#ParacelIslands](https://twitter.com/hashtag/ParacelIslands?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/ZQOuHnEtAc](https://t.co/ZQOuHnEtAc)
+> — SCS Probing Initiative (@SCS\_PI) [March 8, 2021](https://twitter.com/SCS_PI/status/1368801174053289988?ref_src=twsrc%5Etfw)
+
+
+
+继美中会谈，中共宣称“不吃美国那一套”后，目前为止，中共官方并未就此次事件作出任何回应。相较于巴伦支海手术刀事件，苏军就挪威海军作出的反应，中共对这次美军侦察行动的反应验证了，中共就是一只“纸老虎”。
+
+不管中共怎么狐假虎威，怎么垂死挣扎，都无法阻挡世界正义联盟，美、印、日、澳以及北约对中共发起的围剿之势。
+
+编辑/审核/发稿：雪梨
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0
