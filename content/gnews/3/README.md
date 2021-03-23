@@ -1,37 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “到底吃哪套”什么时候能火
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1008092/)
+## 【军事快讯】美军创侦察距离新纪录，距中共海岸线仅25.33海里
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1008278/)
 
-撰稿：烟灰
-![]()![](https://gnews.org/wp-content/uploads/2021/03/001-9.jpg)图片来源网络
-听说过来自动漫游戏，或者电影电视的周边产品，比如印着超人标志的T恤或者哆啦A梦的马克杯。但这个荒唐的年代原来就连“打鸡血”也是能够衍生出各类周边产品的，真是想起那句熟悉的老话，在墙国之内，一切都可以当做生意和买卖。
+作者：香草山媒体部 白木
 
-中共国主管外事工作的政治局委员杨洁篪，在刚过去的中美阿拉斯加会谈上曝出大量“惊世骇俗”的“名言金句”，不但在墙内网络上广为流传，还𧗠生出不少周边商品。在淘宝网键入“杨洁篪”或“中国人不吃这一套”，即能搜到不少这类产品，其中有不少乃印有“金句”的T裇或手机壳。很多商品还同时印有“美国没有资格居高临下同中国说话”等等。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1618-【军事快讯】美军创侦察距离新纪录，距中共海岸线仅25.33海里-1.jpg)
 
-一觉醒来真的是要夸夸中国的商人们，能在短短的一夜之间将购物网站灌满“中国人不吃这一套”的各类产品。某宝，某东纷纷上架这些“爱国”系列产品，从手机壳到衣服大大小小的商品全是“不吃这一套”，但这不吃的究竟是哪一套呢？哪怕是在产品背面能不能解释一下，是欺诈侮辱还是恐吓威胁这套？还是人权自由，民主法制这套？我想说如果是后者我能吃十套，谁都别代表我。
+SCSPI于美东时间3月22日发表推文，根据迄今为止的公开数据，美国空军RC-135U侦察机，刚刚创下了距中国海岸线最短的侦察距离新纪录，25.33海里。
 
-在中共国内爱国绝对是一门好生意，要知道这样做的话即使不赚钱，也绝不会承担任何风险，更别说CCP精心饲养的那些五毛战狗们……等“不吃这套”的这一阵行情过去以后，今后其他的“爱国商人”们一定会更密切关注外交战狼团与其他国家的各种会谈，期待着下一个大火的“金句”出来自己也能捞一把。说不定下一股 “到底吃哪套” 的热情就能转换到其他行业，毕竟旅游餐饮文化等行业过去一年里因为CCP病毒的影响，也都等着有米来下锅呐。
 
-最后真的想奉劝那些被忽悠的小粉红和自干五一句：自古奸商都知道，傻子的钱是最好挣的。也希望等那些爱国小粉红醒来的时候，自己口袋里的钱包还有剩余。毕竟贷款、医疗、养老等支出都不会因为你曾经是粉红而存在哪怕一毛钱的优惠或着折扣。
 
-（文件内容仅代表个人观点）
+> USAF RC-135U Combat Sent [#AE01D5](https://twitter.com/hashtag/AE01D5?src=hash&amp;ref_src=twsrc%5Etfw) just set a new record of 25.33NM, the shortest distance US reconnaissance aircraft have reached from the China's coastlines, based on public data so far.
+> 
+> In addition, there was also a P-8A & an EP-3E spotted over the [#SouthChinaSea](https://twitter.com/hashtag/SouthChinaSea?src=hash&amp;ref_src=twsrc%5Etfw), March 22. [pic.twitter.com/uLv49u70Gv](https://t.co/uLv49u70Gv)
+> — SCS Probing Initiative (@SCS\_PI) [March 22, 2021](https://twitter.com/SCS_PI/status/1373886128177041410?ref_src=twsrc%5Etfw)
 
-审稿：Gradient Boost
 
-新闻参考来源：
 
-[https://www.jwview.com/jingwei/html/03-22/389254.shtml](https://www.jwview.com/jingwei/html/03-22/389254.shtml)
+博博士引当年“巴伦支海手术刀事件”对该事件进行评论道：“美军主动挑战中共，离中共不得不开火1.33海里”，“25.33海里，土共找块豆腐撞死算了”。
 
-澳喜文章：
 
-[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
 
-欢迎加入澳喜农场：
+> 阿拉斯加對罵以後，美軍RC-135U偵察機抵近到距離中共國海岸25.33海哩才折返。這是什麼概念呢？進入24海哩毗鄰區就基本可以開火了，所以，美軍主動挑戰中共，離中共不得不開火1.33海哩。比較一下，當年巴倫支海手術刀事件，P-3距離蘇聯海岸48海哩就被宰了。25.33海哩，土共找塊豆腐撞死算了。🤣🤣🤣 [https://t.co/5DiYFaq3ax](https://t.co/5DiYFaq3ax)
+> — Dr. Bo 🇺🇸🇹🇼🇭🇰 (@BoDiplo) [March 22, 2021](https://twitter.com/BoDiplo/status/1374140014628573189?ref_src=twsrc%5Etfw)
 
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-澳喜Logo-2.jpeg)
 
+
+毗连区（contiguous zone），又称“邻接区”、“海上特别权”，是指沿海国根据其国内法，在领海之外邻接领海的一定范围内，为了对某些事项行使必要的管制权，而设立的特殊海域。毗连区的宽度实际上是连同领海在内的不得超过24海里。
+
+此次美军侦察机抵近中共国海岸线25.33海里才折返，离毗连区仅差1.33海里。
+
+本月8日，SCSPI就已曝光美国空军RC-135W电子侦察机对华侦察完整路线，当时距离中共国临海基线仅28.34海里。此次侦察更近一步，仅25.33海里。
+
+
+
+> A rare full trajectory!
+> USAF RC-135W ([#AE01D2](https://twitter.com/hashtag/AE01D2?src=hash&amp;ref_src=twsrc%5Etfw)) from Kadena is conducting a [#SouthChinaSea](https://twitter.com/hashtag/SouthChinaSea?src=hash&amp;ref_src=twsrc%5Etfw) mission, operating alongside China's coastlines near Guangdong, Hainan, and the [#ParacelIslands](https://twitter.com/hashtag/ParacelIslands?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/ZQOuHnEtAc](https://t.co/ZQOuHnEtAc)
+> — SCS Probing Initiative (@SCS\_PI) [March 8, 2021](https://twitter.com/SCS_PI/status/1368801174053289988?ref_src=twsrc%5Etfw)
+
+
+
+继美中会谈，中共宣称“不吃美国那一套”后，目前为止，中共官方并未就此次事件作出任何回应。相较于巴伦支海手术刀事件，苏军就挪威海军作出的反应，中共对这次美军侦察行动的反应验证了，中共就是一只“纸老虎”。
+
+不管中共怎么狐假虎威，怎么垂死挣扎，都无法阻挡世界正义联盟，美、印、日、澳以及北约对中共发起的围剿之势。
+
+编辑/审核/发稿：雪梨
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0
