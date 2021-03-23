@@ -1,85 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210323（图片新闻）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1008616/)
+## 恶性通货膨胀下的委内瑞拉新纸币
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1009258/)
 
-- 作者：2020喜马拉雅
-- 封面：透明的遮羞布
+- 作者：徽州小镇
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年3月23日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
+**西班牙2021年3月23日电/西喜社——**2021年3月5日，委内瑞拉央行宣布推出3种新面额纸币，分别为20万、50万和100万玻利瓦尔。时过两周，委内瑞拉街头上，已经出现了20万和50万面值的纸币，100万面值的纸币暂未出现，预计本月底各银行机构将会陆续推出。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2000.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Picture1-108.jpg)2021年3月份，委央行新发行的三张不同面额的纸币
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/6d651d1d-8502-4d77-bdb7-a35048108497-6.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Picture2-35.jpg)2021年3月15日，一名妇女离开加拉加斯的一家银行后，出示了20万玻利瓦尔的新票
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ce556ab0-8b32-4f14-bb5c-59073ab1c851-5.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Picture3-8.jpg)2021年3月15日，一名男子离开加拉加斯的一家银行后，持有新的50万玻利瓦尔纸币
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b9a2badc-7278-45ac-bd3d-10bbbd535241.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Picture4-9.jpg)2021年3月22日，委央行公布的外汇汇率
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3d137245-0184-4129-ac2b-f092bd97055b-2.jpg)
+由于持续多年的恶性通货膨胀和经济大衰退，委内瑞拉百姓基本上不愿意使用玻利瓦尔纸币进行交易，市面上流通的玻利瓦尔现金纸币仅占发行总量的1.89%，远低于专家认为的资金可用性最佳的10%至12%的范围。为了解决货币流通性和不断上涨的通货膨胀率问题，马杜罗政府只能不断印制不同面额的新钞票来应对，这次巧妙地用”百万”这个词取代了所有的零。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/fc03cbcd-0a17-4214-9c28-c5e061dd0f2c-2.jpg)
+按照今日委央行公布美元兑玻利瓦尔官方汇率1：180万来计算，新的最大面值100万纸币，折合仅为0.56美元。这张100万玻利瓦尔面额最大的纸币实际购买力水平如何呢，以下是委内瑞拉一些商品的市场价格：一杯咖啡售价280万玻利瓦尔、一包卫生巾350万玻利瓦尔、2斤的大米250万玻利瓦尔、一卷厕纸260万玻利瓦尔。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d6021b20-0d11-4578-b28e-3137b1b2b5da.jpg)
+2021年，委内瑞拉已连续第8年经济大衰退，根据IMF公布数据，2018-2020委内瑞拉的通膨率分别创下65,374.08%、19,906.02%及6,500%。预计2021年通货膨胀率不会低于2020年，这也是为何许多经济学者不看好新钞的寿命，普遍认为新钞最多可以流通6个月，随后马杜罗政府定会重走不断废钞、不断印钞的老路。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/fbf4ffd6-442d-40f6-a02a-81cf269530b6-1.jpg)
+委内瑞拉，原油储量世界第一，人均GDP也曾步入过发达国家的行列。自从查韦斯上台后实行严重左倾共产路线，将这个国家的人民一步步带入了万丈深渊，百姓缺衣少食，无数国民背井离乡，过着凄惨的生活。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/70fd7cc5-0e41-4b0a-add9-97c62eeacb0e-1.jpg)
+委内瑞拉的国有化路线、军政府集权高压统治受到了西方文明国家的各种制裁，目前，除了有限的石油出口，委内瑞拉其实几乎已经不能创造财富，没有新的支柱产业，本国货币实际上退出了经济活动，政府变换各种花招，印出什么样的钱，再多的钱都是废纸。在恶性通胀之下，人民的财富被瞬间吸光，其代价其成本，都是由底层民众承受的！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/38446eb9-5aa3-462d-9153-5499c036410e.jpg)
+中共多年来的“国进民退”，加速国有化进程，对内高压统治，搜刮百姓民脂民膏，同多年前委内瑞拉推行的路线是何其的相似。再加上现阶段中美关系日益恶化、世界以毒灭共的浪潮正在形成，在内忧外困的情况下，不管中共主动还是被动、愿意还是不愿意，以美国为首的西方文明世界必将与中共全面脱钩。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/7bfb011f-73a7-4349-8425-5e65e53e01b2.jpg)
+在目前人民币紧盯美元的外汇政策下，一旦脱钩，人民币汇率必将一泻千里，委内瑞拉百姓抱着成捆现金购买大米的场面将会在中共国内显现，届时，百姓将会深深的意识到美元或其他外币是何其的弥足珍贵，哪怕是一张一美元面值的纸币。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/066d7600-601b-4901-9ce8-4e20bf5d2f76.jpg)
+在世界与中共脱钩的洪流形成之前，那些手握以人民币计价的资产、还深陷在中共国的百姓们，做好应对人民币贬值及紧随其后的恶性通货膨胀的准备了吗？
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d0dd968d-e34e-42b1-8a95-818957b313c9.jpg)
+**新闻来源：[国际货币基金组织](https://www.imf.org/external/datamapper/PCPIPCH@WEO/WEOWORLD/BRB/VEN)；[elDiario](https://eldiario.com/2021/03/19/venezolanos-no-ven-beneficios-en-nuevos-billetes/)；[委内瑞拉中央银行](http://www.bcv.org.ve/)**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/017bf42f-7168-4219-874a-3d8e977bad5e-5.jpg)
+编辑：蚂蚁兄弟；校对：阿伯塔；初审：神奇四侠；发稿：Ranting
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/26361718-cf4d-4aeb-8269-e2d25eb3cc9f.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e8324af7-3521-46e9-aec8-6533a83d0b73-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4424b8f3-5861-4a37-bd18-cfbcc01826b7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/eac22a79-294e-4b9a-8eae-17217d893593-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/aadf809d-67c5-4d6c-b76d-8a2bfcb32aa5-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0ce7aef8-f476-448f-9dcc-a4d176916833.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/04660500-2c9e-40bc-af55-e10063148825.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/70db36c5-2845-4e2c-a570-e8e733d3e31b.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1b4019bd-4d2b-4208-9e18-39dff74f49fd.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/94e81d93-c9d4-486b-9d5d-ec1ca28d468f-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cc88646a-188b-4414-84a3-6a88886b7982.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/27763c73-4c16-4b6e-b7b8-4679089c7d49.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/f4781187-0147-440d-95a1-2556ad9695a5-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2b226ca3-4c70-4187-9ec7-86b792e8e74c.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cacc00f8-d76a-4fbb-b53e-6d2c357d5b21.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ad03cda7-1f1b-49fd-af9f-dd47ded66671.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/42bd27b4-725d-402f-9d50-bee58edc00f9-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3b7a1a1a-6dbe-424c-a5d4-d457a4e858a1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/de528ae9-b853-4307-84f7-f00d5a2885de.jpg)
-
-发稿：Ranting
-
-本文观点均来自于作者，与GNEWS无关
-
-0
++1

@@ -1,29 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [文贵先生盖特]摘录:3.18 GFASHION值得你真爱(2)
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1008401/)
+## 全世界的媒体都不说真话，只有咱GTV和G-News敢
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1008588/)
 
-编辑：童媚 校对：木子
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/image002-53.jpg)
-**中美阿拉斯加会谈的背后是利益勾兑****完成**
+简述：2021年3月21日的盖特视频中，郭先生感慨世界和美国媒体的疯狂，疫苗死人和拜登身体等问题没有媒体报道，而只有新中国联邦、爆料革命、GTV和GNEWS敢说真话。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles-20210321-getter1-part1-revised.srt.txt)
+**全世界的媒体都不说真话，只有咱****GTV****和****G-News****敢**
 
-很多战友给我发信息，问我关于阿拉斯加中美厕所外交谈判的情况。说看到媒体报道王毅十分强硬，然后美国也强硬，针尖对麦芒。王毅一上来就谈美国杀黑人的历史，实际上就是为美国把中共定为反人类罪、种族大屠杀而解套，这也是中共最担心的一点。
+**No Media In the World Dares to Tell the Truth, Except for GTV and GNEWS**
 
-我本人的感觉没那么简单，首先我第一感觉是双方私底下已经勾兑好了。记住，没有哪一国的外交不在见面前就提前勾兑的，千万不要相信媒体，更别相信他们内部对外说的话，怎么可能呢？你上小卖店买个东西，路过了还要打个招呼呢，更何况两国外交，这么大的事情，决定两国最高领导人的政治命运，还有两国人民的福祉。而且是在这种复杂的情况下，两国内部的政治需要都大于两国人民的利益需要。所以在这个背景下，所有谈话的话题第一考量是两国内部领导人的政治需求，这是很悲哀的事情，一个国家为一个人或者几个人买单。美国现在基本就为一个党派或者几个家族来买单，而中共国就为那两三个家族。但你能看到真正的目的在哪？组织这次外交的人是谁？不是拜登总统，是副总统哈里斯。千万记住，国务卿布林肯在外交上沟通最多的是哈里斯。在这事上，拜登总统需要避嫌，也是政治家需要有的政治手腕。所以说，今天一看这情况，杨娘娘和王太监一出手，我就知道了。
+这个周末真是很热闹。全世界的媒体…你说这个世界真的多疯狂啊，多疯狂！这个疫苗死那么多人，那么多人，没有多少敢真报道的。真的是，我们现在真的是遇到媒体为王的时代，全世界都在说，这个世界谁最有权利？谁最牛？扎克伯格，Google 的 Eric Schmidt，Twitter 的 Jack，这最牛，这是媒体老大。都在说这话：“谁是老大？媒体老大。”
 
-王毅什么人啊，永远是唱戏的一个托。当年他在当日本大使的时候，刚回来和我一个山东老乡见面，后来也是外交部的副部长，他给我形容王毅的德行，我那会对王毅的印象还特别好。他说：那王毅，有次在某俱乐部和某明星夫妇见面，那两口子带着孩子过来，王毅那时还是日本大使，他们就求他帮忙，因为孩子要去日本留学。王毅一下车，就一只手和夫妇握手，一边说那夫妇对孩子的要求过于苛刻，另一只手就伸到人家闺女那里去了，把人家闺女的手抓过来了。所以他一只手指责着她爹妈，另一只手拉着人家闺女。一顿饭的时间，就批评那女孩的父母，让他们要有视野，出去以后到日本就交给他吧。一顿饭完了，夫妇就看出来了，说算了，闺女的事不能求王大使了，跟那王八蛋去不知道啥待遇呢。王毅就这德行，他想干嘛啊？批评人家爹妈是假，讨好闺女是真，要把人家闺女骗日本去双修了，那才是真实目的。
+It’s a lively weekend. All the media across the world… you know, how crazy the world is! How crazy! The vaccine has caused so many deaths, but almost no one dares to report it. Seriously, we are in the age when media is the king. People across the world are all asking: Who has the greatest power in the world? Who are the most powerful people? Zuckerberg, Eric Schmidt of Google, and Jack [Dorsey] of Twitter. They are the media bosses. Everyone is saying this: “Who is the boss? The media.”
 
-所以今天他一开场一说，还有昨天我内部情报一了解说勾兑好了。“勾兑好”这三个字一给我，我就明白了。先讨副总统哈里斯的欢心，第一个就指责美国之前杀过黑人吗？实际讨好的是美国的黑人，包括黑人国防部长，还有这届政府的黑人实权。还有说明拜登已经搞定了，是自己人，中共说什么，拜登也不会在意的，因为已经搞定了，所以这次直接对着副总统去的，给副总统未来在解决种族大屠杀的问题上留有了空间，而且让副总统和国防部长在对中共的行动上，深刻地受他们影响，因为第一句话就指责美国你们就是种族歧视，被歧视的就是你们的国防部长，美国副总统。这就是给副总统留下了足够空间，副总统永远可以拿着这个事在内部说，她不见得对着媒体说。醉翁之意不在酒。这王毅是玩老千的老手，在我文贵面前，我看这些中共官员太多了，就是透明人。
+真是能感觉到，就死那么多人，这么多稀奇地死那些人，没人报道，没人敢报道，一带而过。这还不说，就是拜登总统从空军一号上那三摔，“咔叽”现在”拜三摔”了，直接从楼梯摔下来。哎！美国媒体不报道，世界媒体也不敢报道。因为美国媒体是老大，包括全世界的媒体也是美国资本和中共资本在控制着。你觉得这个世界害不害怕？
 
-**“用镜子的另一面照你”****才能照出外交官真相**
+I can indeed feel it. So many people have died abnormally. Yet, no one has reported on this. No one dares to report or only briefly covered it. It is not only the vaccine, but also President Biden’s three stumbles when boarding Air Force One. He fell over three times directly from the stairs. Well, the American media barely reported it, and the world media didn’t have the courage to report it either. This is because the U.S. media is the boss and the world’s media is controlled by the capital of the US and the CCP. Do you think the world is scary?
 
-另外一个，杨娘娘和王毅今天绝对是一个红脸一个黑脸。黑脸是王毅，红脸就是杨娘娘。走着看，真正的是两边都在演戏，也得给国务卿布林肯留够回来演戏：你看，我也很硬。当两边都硬的时候，这底下绝对有交易。你们还记得伊朗当年和美国谈判的那次，11次见面，在酒店大堂把包什么的摔在地上，说走了，不和你奥巴马谈了，最后拉了一飞机钱给美国，十几亿美元。外交上有个很有名的话，叫“用镜子的另一面照你自己”，这个镜面是给你看的，所以你看到的是虚的假的，所有镜子背后的才是真的，镜子的另一面才能照出外交官的真相。
+再一个，冠状病毒，没有多少人敢议论现在，就那几家议论，而且在网络上被屏蔽，不让转发。只有咱新中国联邦，只有咱GTV、G-News，我们的爆料革命，我们的战友们，不吝这一套，是不是？爱他个谁是谁？咱就是说实话，对吧？这才是真正能体现到新中国联邦和爆料革命的真正的力量。兄弟姐妹们，看到了谁是英雄，谁是正义。大家这回看明白了吧？应该引以为豪吧？应该引以为豪吧？兄弟姐妹们。
 
-**看勾兑假戏**
+Another one. Not many people dare to discuss the CCP virus. Only a few of them have the courage, but they have been blocked on the internet and their words cannot be spread. The only exception is our New Federal State of China (NFSC), our G-TV, G-News, our Whistleblower Movement (WM), and our fellow fighters, right? We don’t care who will be offended, we just tell the truth, right? This reflects the real power of the NFSC and WM. Brothers and sisters, now you see who is the hero and who stands for justice. Now everyone can see it, right? Should you feel proud, brothers and sisters?
 
-**盼民心所向**
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60575c13d1608d609ea69e30](https://gtv.org/getter/60575c13d1608d609ea69e30) (00:10-1:58)
+鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/998813/](https://www.gnews.org/zh-hans/998813/)
 
-但是这一切对于爆料革命，新中国联邦绝对是好事。我们就希望他们把勾兑好的假戏演给美国人看。不是美国所有人都看不懂这是场戏，会认为你真的强硬。共产党永远是到他国拿下国防部长、情报部长、财政部长，还有几个家族或者元首，这是不变的。他们现在就在乎美国华尔街、好莱坞、硅谷、华盛顿几个大头。但是现在我们需要的是民生，需要民心跟我们。还有现在美国搞的几个杀害亚裔的事件，这些事情到最终，越斗越能保护亚洲人，因为有一波在挑事的，就有另一波在反抗的，这中间就是我们新中国联邦，我们在当中调停，劝架，因为我们是没有利益的，没有任何诉求的，就一个目的：保护海外同胞的安全和利益，还有维护海外华人的尊严和形象，保证我们所有海外家庭的孩子不能受到歧视和安全的威胁。中共这帮孙子正在出卖中国人，他们恨不得现在美国杀几万个中国人，才能给他们在外交上有讲数的权利。你去问问王毅和杨洁篪还有中南坑，如果现在美国发动民族种族歧视，像印尼排华这样的大事件，他们一定说是上天给的礼物，这样他们就有筹码可以讲数，最好杀个十万中国人，这就是共产党。这就是海外华人社交媒体的悲哀，没有人敢说实话，没有任何人敢站出来保护中国人，只有我们新中国联邦，我们的新中国联邦是对真正中国人的安全、利益绝对的捍卫者。看看结果，就当看戏。
+* * *
 
-0
+翻译：【7PawBear】校对：【Isaiah4031】【BruhM】字幕：【XO小粉红】视频解码：【恒久忍耐】技术支持：【Rock小哥】推广：【V%】【TINALS】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
++2

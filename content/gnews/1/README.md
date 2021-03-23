@@ -1,202 +1,100 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0323.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1007957/)
+## 中共国正在增强贸易武器化的能力
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1010197/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
+新闻来源：CNBC《全国广播公司商业频道》| 作者：Yen Nee Lee| 发布时间：2021年3月17日
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0223-5.jpeg)图片来源：康州盘古农场 霹雳年
-3月23日美国国务院发推如下。
+翻译/简评：文意 |校对：X-Wing飞得更高 |审核：万人往 |Page：小雨
 
+[!\[\]()!\[\](https://spark.adobe.com/page/SFSzP5w3puAXD/images/140e3632-d785-4c58-91bd-4d7b2dd0f9d9.jpg?asset_id=e3e2e103-d3c4-4512-92e6-4b5965ff0d7b&amp;img_etag=%22fa1d57b788ed0fb4b1ac59260d7ea22d%22&amp;size=1024)](https://spark.adobe.com/page/SFSzP5w3puAXD/images/140e3632-d785-4c58-91bd-4d7b2dd0f9d9.jpg?asset_id=e3e2e103-d3c4-4512-92e6-4b5965ff0d7b&amp;img_etag=%22fa1d57b788ed0fb4b1ac59260d7ea22d%22&amp;size=1024)
 
+**简评：**
 
-> 美国国务院：
-> 正在现场直播！ 美国务卿安东尼·布林肯[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw)加入北约[@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw)秘书长斯托尔滕贝格[@jensstoltenberg](https://twitter.com/jensstoltenberg?ref_src=twsrc%5Etfw)，就“加强跨大西洋纽带关系” 进行适度对话。 [https://t.co/cAj8WaK4SF](https://t.co/cAj8WaK4SF)
-> — 川普等政要…直译推 (@zhiyitw33) [March 23, 2021](https://twitter.com/zhiyitw33/status/1374291181971079177?ref_src=twsrc%5Etfw)
+本文作者反复提到关于中共对其进口产品供应链的多元化产业结构的加强，以巩固供应链的稳定性和持久性。包括收购国外公司、更多依赖从“稳定的专治政体”进口商品、利用贸易作为武器打击报复地缘政治对手等。
 
+中共从原来的接近民主国家，到后来倾斜于专制政权以便于其控制，可以看出他们是处心积虑地保护和延续中共的事业。也可以看出他们对民主法治国家的恐惧。只有全世界更多的国家意识到中共的阴险狡诈，了解他们的恶意谋划，才能清醒看到他们的真正目的是控制全世界。世界人民应该清醒了，政治家们不能再勾兑了。如果世界上的国家还继续跟中共交往勾兑，世界人民还会遭殃。
 
+**原文翻译：**
 
-22日关于对中共新疆种族屠杀的制裁的几则推文。
+## **新报告称中共国正在建立增强以贸易为武器的能力**
 
+**要点**
 
+**中共国是原油和铁矿石等主要商品的消费大国，但它严重依赖进口来满足国内对这些商品的需求。**
 
-> 国务卿安东尼·布林肯：
-> 美国正在根据全球马格尼茨基法案制裁指定的两名 [#中华人民共和国](https://twitter.com/hashtag/%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 官员，这些制裁针对新疆境内严重侵犯人权行为。我们与英国，加拿大和欧盟团结一致，促进追责侵犯人权者。 [https://t.co/dFAMVVeSeJ](https://t.co/dFAMVVeSeJ)
-> — 川普等政要…直译推 (@zhiyitw33) [March 22, 2021](https://twitter.com/zhiyitw33/status/1374076673696563200?ref_src=twsrc%5Etfw)
+**Verisk Maplecroft的一份报告中称，中共国通过收购海外公司和进口转向“稳定的专制政权”，来使其关键的自然资源供应多元化。**
 
+**该风险咨询公司表示：“通过确保原材料来源的多元化，中共国更好地使贸易武器化来应对其地缘政治的对手。”**
 
+[!\[\]()!\[\](https://spark.adobe.com/page/SFSzP5w3puAXD/images/d3045247-5ead-43d5-bd6b-d9684db2aa63.jpg?asset_id=8934ce5d-5e72-4fd4-b750-3ac6f97ec12b&amp;img_etag=%22b600a65ed5e53f941de0ddd5ac83f197%22&amp;size=1024)](https://spark.adobe.com/page/SFSzP5w3puAXD/images/d3045247-5ead-43d5-bd6b-d9684db2aa63.jpg?asset_id=8934ce5d-5e72-4fd4-b750-3ac6f97ec12b&amp;img_etag=%22b600a65ed5e53f941de0ddd5ac83f197%22&amp;size=1024)插在船舶后部的一面中共国国旗迎风飘扬，对面是堆放在中国深圳港码头的集装箱 摄影：Daniel Berehulak / 盖蒂图片新闻 /盖蒂图片社
 
+根据风险咨询公司Verisk Maplecroft最新的一份报告显示，中共正在多元化其关键自然资源的供应。此举将增强中共以贸易为武器来针对其地缘政治对手的能力。
 
+“如果中共国有软肋的话，那一定是其对于外国自然资源的高度依赖性。”周四发布的报告这样写道。
 
-> 美国务院发言人尼德·普莱斯：
-> 美国正在与我们的合作伙伴一起在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 及全世界范围内努力捍卫人权，打击腐败并促进追责。
-> 【附国务院官网相关新闻公告】 [https://t.co/yNBRTtXPYS](https://t.co/yNBRTtXPYS)
-> — 川普等政要…直译推 (@zhiyitw33) [March 22, 2021](https://twitter.com/zhiyitw33/status/1374075103454007297?ref_src=twsrc%5Etfw)
+中共国是包括原油和铁矿石在内的主要大宗商品的消费大国，但是严重依赖进口来满足内需。
 
+Verisk Maplecroft报告说，中共国通过收购国外公司来实施进口多元化，这样可以增加中共国拥有的资源的进口比例。
 
+[!\[\]()!\[\](https://spark.adobe.com/page/SFSzP5w3puAXD/images/747f4cb0-faf0-48c2-bf70-ba85fe09e0e6.png?asset_id=4c2912e5-344b-4ef6-9537-d7117dc7e7ad&amp;img_etag=%2226d0fe0c577ad0c16b4a7990eb6e2aa3%22&amp;size=2560)](https://spark.adobe.com/page/SFSzP5w3puAXD/images/747f4cb0-faf0-48c2-bf70-ba85fe09e0e6.png?asset_id=4c2912e5-344b-4ef6-9537-d7117dc7e7ad&amp;img_etag=%2226d0fe0c577ad0c16b4a7990eb6e2aa3%22&amp;size=1024)2000年至2020年在大洋洲，外资拥有的基本金属和黄金的公司: 矿山，冶炼厂和精炼厂所有权的变化
 
+这家咨询公司举例说，在大洋洲，中共国拥有的基本金属和黄金公司的数量从2000年的0家增加到去年的59家。该报告显示，中共国约占外国所有的此类公司总数的22.6%。
 
+大洋洲是一个包括澳大利亚、巴布亚新几内亚、新西兰、斐济和许多岛屿国家的地区。
 
-> 参议员瑞克·斯科特：
-> 今天对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 的制裁是正确的举动，但还需要采取更多行动来制止习近平总书记对维吾尔人正在进行的种族灭绝。
-> 
-> 美国必须努力制止这些罪行，并惩处那些继续施行这些罪行的人。
-> 【附CNBC报道：以侵犯维吾尔人权为由，拜登政府制裁两位中共国官员】 [https://t.co/zRiNlSopaR](https://t.co/zRiNlSopaR)
-> — 川普等政要…直译推 (@zhiyitw33) [March 22, 2021](https://twitter.com/zhiyitw33/status/1374117485012688896?ref_src=twsrc%5Etfw)
+中共国正在寻求通过海外投资以及与跨国公司结为合作来加强对全球供应链的控制。自上世纪90年代末以来，北京方面一直在支持中共国有企业“走出去”并建立对海外资源原材料的控制。
 
+**转向“独裁政权”**
 
+Verisk Maplecroft表示，中共国从“高度集中”的贸易伙伴集团进口关键大宗商品，例如原油、天然气、冶炼煤和铁矿石。
 
-### 期待美英联手
+报告补充说，在多样化进口来源方面，中共国更喜欢来自“稳定的专制政体”的供应商，而不倾向民主国家，民主国家可能涉及政府的频繁变动或政策的潜在转变。
 
-3月23日蓬佩奥国务卿发推一篇《真正清晰防卫》的文章《英国对俄罗斯和中国核侵略的应对措施》，推文称“正如这篇伟大的文章所指出的那样，英国和美国都必须准备捍卫自由。很高兴英国的审查证实了它可以接受挑战。”
+通过确保多元化的供应商，中共国将处于更好地利用贸易武器对付地缘政敌的位置，同时增加新旧贸易伙伴对（中共国）经济的依赖。
 
+“我们的数据表明，中共国正在转向依赖更加专制的政权为供应商，而不是民主国家，这些政体所提供的供应链比那些已经和可能成为敌对北京的民主国家更加稳定。北京同时也利用它庞大的市场作为外交筹码。”
 
+Verisk Maplecroft：“通过确保原料来源的多元化，中共国将处于更好的位置，可以利用贸易为武器胁迫地缘政治对手，同时增加新旧合作伙伴对（中共国）经济的依赖。”
 
-> As noted in this great piece, both UK and America must be prepared to defend liberty. Glad UK review confirmed that it is up for the challenge.[https://t.co/HQWY89vLa6](https://t.co/HQWY89vLa6)
-> — Mike Pompeo (@mikepompeo) [March 23, 2021](https://twitter.com/mikepompeo/status/1374330585431339009?ref_src=twsrc%5Etfw)
+[!\[\]()!\[\](https://spark.adobe.com/page/SFSzP5w3puAXD/images/5922d36b-8a4e-41cd-8f65-23bc42104b0e.png?asset_id=23d59e43-04b9-453d-a4c8-bfbe1575525e&amp;img_etag=%227f857fcb3f88f6a519cc95ef3c6ac730%22&amp;size=2560)](https://spark.adobe.com/page/SFSzP5w3puAXD/images/5922d36b-8a4e-41cd-8f65-23bc42104b0e.png?asset_id=23d59e43-04b9-453d-a4c8-bfbe1575525e&amp;img_etag=%227f857fcb3f88f6a519cc95ef3c6ac730%22&amp;size=1024)2020年中共国关键资源的顶级供应商
 
+但是民主国家在某些资源的生产中占主导地位——其中之一是铁矿石。去年，中共国最大的铁矿石供应商是澳大利亚，这是美国的盟友，最近受到北京贸易限制的打击。
 
-[https://www.realcleardefense.com/articles/2021/03/22/the\_uks\_response\_to\_russian\_and\_chinese\_nuclear\_aggression\_769226.html](https://www.realcleardefense.com/articles/2021/03/22/the_uks_response_to_russian_and_chinese_nuclear_aggression_769226.html)
-### 传统价值观与共产主义思潮的斗争
+Refinitiv的数据显示，2020年澳大利亚平均每月向中共国装运6086万吨铁矿石，占中共国大宗商品进口总量的60%以上。
 
-3月23日蓬佩奥先生的两则如下。
+根据Verisk Maplecroft的报告说，这就是为什么中共国一直在加强与巴西和几内亚等其他铁矿石生产商的贸易关系。
 
-“消灭文化已经渗透到我们的学校，并威胁到数百万美国人在建国之初为之而战的言论自由。它在美国没有立足之地。”
+报告说：“尽管在博尔纳罗（Bolsonaro）总统领导下巴西对北京采取了强硬措施，但是巴西仍然是中共国进行原材料多元化的战略重点，而几内亚的民主倒退在政治上对北京是有利的。”
 
-“让生理男性参加女性体育比赛是不公平或平等的。句号。” （态度坚定地反对变性人参加体育竞赛。）
-![]()![](https://gnews.org/wp-content/uploads/2021/03/pompeo-0323.png)
-22日朱利安尼先生转推一则推文，推文来自他本人推荐的45任密苏里州州长、议员竞选人艾瑞克。推文称：
+**以贸易为武器**
 
-“作为一名海豹突击队队员，我为这个国家而战，以确保我们的自由得到保护。现在，左派想把这些自由从你身边夺走。这就是为什么我在密苏里州竞选美国参议员的原因。我们必须为把美国从左派的疯狂中夺回来而战。”
+研究公司Capital Economics称，迄今为止，中共国是澳大利亚最大的商品和服务贸易伙伴，占澳大利亚2019年至2020年商品出口的39.4%，服务出口的17.6%。
 
+根据Verisk Maplecroft的报告，北京方面已经表明，愿意将贸易作为地缘政治杠杆。
 
+报告引用了中共国禁止澳大利亚煤炭的例子。在澳大利亚支持要求对中共国处理从武汉首先爆发的新冠疫情进行国际调查的呼吁后，两国关系急剧恶化。煤炭只是受到中共国报复性措施打击的澳大利亚出口产品之一，其他打击还包括关税、禁止进口和各种限制。
 
-> As a Navy SEAL, I fought for this country to ensure our freedoms are protected. Now, the Left wants to take those freedoms away from you. 
-> 
-> That’s why I’m running for the US Senate in Missouri. We must fight to take America back from the lunacy of the left. [pic.twitter.com/cbfw4Q8aJ6](https://t.co/cbfw4Q8aJ6)
-> — Eric Greitens (@EricGreitens) [March 22, 2021](https://twitter.com/EricGreitens/status/1374128706768269316?ref_src=twsrc%5Etfw)
+# 很多公司和投资者都直接面临北京外交行动的冲击，将需要作相应的准备。
 
+#### — Verisk Maplecroft
 
+随着中共国加快努力减少对“不友好的”资源供应商的依赖，这种地缘政治紧张局势可能会继续存在。Verisk Maplecroft报告总结说。
 
-### “厕所会谈”继续发酵
+“禁止从澳大利亚进口煤炭是一个很好的例子，但可能还会有更多，这将对全球大宗商品贸易和地缘政治格局产生重大影响。”
 
-朱利安尼先生23日就《纽约邮报》19日关于阿拉斯加美中“厕所会谈”的报道进行转推，称：“中（共）国在阿拉斯加峰会嘲笑美国。” 并引用会上杨洁篪的原话：
+“很多公司和投资者直接面临北京外交行动的冲击，将需要作相应准备。”
 
-“我们认为美国改变形象、停止在全世界输出自己声称的民主很重要。”
+[🔗原文链接](https://www.cnbc.com/2021/03/18/china-is-building-up-its-ability-to-weaponize-trade-new-report-says.html)
 
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
-> China mocks US at Alaska summit
-> 
-> “We believe that it is important for the United States to change its own image and to stop advancing its own democracy in the rest of the world.”[https://t.co/8GtgsdOxq6](https://t.co/8GtgsdOxq6)
-> — Rudy W. Giuliani (@RudyGiuliani) [March 23, 2021](https://twitter.com/RudyGiuliani/status/1374368365846872066?ref_src=twsrc%5Etfw)
+编辑：【英国伦敦喜庄园编辑部】
 
-
-[https://nypost.com/2021/03/19/biden-proud-of-team-after-china-mocks-us-at-alaska-summit/](https://nypost.com/2021/03/19/biden-proud-of-team-after-china-mocks-us-at-alaska-summit/)
-《纽约邮报》这片文章援引C-Span视频，视频中拜登19日被问及对前日美中会晤的反应时称“对国务卿感到自豪。”文章引述了峰会上中方的讲话的关键内容，并称川普总统在大选前曾说，如果拜登获胜，美国将成为“中国拥有”。
-
-
-
-### 非法移民不能投票
-
-皮特纳瓦罗博士23日推文，强调他在班农疫情战斗室的讲话：
-
-“每一位在2022年竞选参众两院的候选人，无论他们是民主党还是共和党，都需要这样做：签署一份承诺书，声明任何在2021年1月20日之后非法越境的人，将永远没有机会获得公民身份，并被送回他们来自的地方。”
-
-
-
-> Every candidate running for House & Senate in 2022 whether they're D or Rs needs to do this: sign a pledge stating that ANYONE who crossed our border after Jan 20, 2021 ILLEGALLY will NEVER have a path to citizenship & be returned to where they came from.[https://t.co/hCJHxxsvPG](https://t.co/hCJHxxsvPG)
-> — Peter Navarro (@RealPNavarro) [March 23, 2021](https://twitter.com/RealPNavarro/status/1374416978388000789?ref_src=twsrc%5Etfw)
-
-
-
-
-
-### 现任国务卿今日主要推文
-
-“我们和我们的伙伴一起呼吁北京（中共国政府）立即释放两名被任意拘留的加拿大人Michael Spavor和Michael Kovrig。人不是讨价还价的筹码。”
-
-
-
-> We join our partners in calling on Beijing to immediately release the two arbitrarily detained Canadians, Michael Spavor and Michael Kovrig. Human beings are not bargaining chips. [https://t.co/e5WszeKKuS](https://t.co/e5WszeKKuS)
-> — Secretary Antony Blinken (@SecBlinken) [March 23, 2021](https://twitter.com/SecBlinken/status/1374350372911845376?ref_src=twsrc%5Etfw)
-
-
-
-“在我访问东京和首尔时，各方一致认为，美国、日本和大韩民国之间的有力合作对促进共同利益和价值观至关重要，我期待着在这个三边动力的基础上更进一步。”
-
-
-
-> On my visit to Tokyo and Seoul, all sides agreed robust cooperation between and among the United States, Japan, and the Republic of Korea is critical to promoting shared interests and values, and I look forward to building on this trilateral momentum.
-> — Secretary Antony Blinken (@SecBlinken) [March 22, 2021](https://twitter.com/SecBlinken/status/1374092629147848712?ref_src=twsrc%5Etfw)
-
-
-
-“很高兴与北大西洋公约组织秘书长 @JensStoltenberg见面。
-在今天晚些时候举行的北约外交部长会议之前，我们进行了建设性的讨论，讨论了我们如何加强跨大西洋联盟和更新我们的全球关系。我们就如何加强跨大西洋联盟和更新我们的全球关系进行了建设性的讨论。”
-
-
-
-> Great to meet with [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Secretary General [@JensStoltenberg](https://twitter.com/jensstoltenberg?ref_src=twsrc%5Etfw) in advance of the NATO Foreign Ministerial later today. We had a constructive discussion on how we can strengthen the Transatlantic Alliance and renew our global relationships. [pic.twitter.com/QkFZxoreHQ](https://t.co/QkFZxoreHQ)
-> — Secretary Antony Blinken (@SecBlinken) [March 23, 2021](https://twitter.com/SecBlinken/status/1374356507458945027?ref_src=twsrc%5Etfw)
-
-
-
-
-
-“很高兴今天在布鲁塞尔与意大利外长@luigidimaio会面，这也是本次北大西洋公约组织外交部长会议的一部分。在我们面对全球挑战时，意大利是美国的重要盟友和朋友。”
-
-
-
-> Very pleased to meet Italian Foreign Minister [@luigidimaio](https://twitter.com/luigidimaio?ref_src=twsrc%5Etfw) today in Brussels as part of the [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Foreign Ministerial. Italy is a key ally and friend to the United States as we confront global challenges. [pic.twitter.com/ewFumsiIsU](https://t.co/ewFumsiIsU)
-> — Secretary Antony Blinken (@SecBlinken) [March 23, 2021](https://twitter.com/SecBlinken/status/1374370348049793024?ref_src=twsrc%5Etfw)
-
-
-
-“北大西洋公约组织盟国和伙伴立场坚定，致力于通过 “坚决支持 “培训任务以实现阿富汗的长期安全与稳定。我们将确保阿富汗的土地不再被用来对美国或其盟友发动攻击。”
-
-“正如在报告中指出的那样，我们将确保阿富汗的土地永远不会被用来对美国或其盟友发动攻击。
-“在北大西洋公约组织国防部长会议上，美国和我们的北约盟国和伙伴正在推动负责任地结束阿富汗战争。作为盟国，我们必须保持团结：我们一起进入，我们将一起调整，当时机成熟时，我们将一起离开。”
-
-
-
-> .[@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Allies and partners remain firmly committed to Afghanistan’s long-term security and stability through the Resolute Support training mission. We will ensure that Afghan soil is never again used to launch an attack on America or her allies. [pic.twitter.com/gSBwpmAyaC](https://t.co/gSBwpmAyaC)
-> — Secretary Antony Blinken (@SecBlinken) [March 23, 2021](https://twitter.com/SecBlinken/status/1374377898480521219?ref_src=twsrc%5Etfw)
-
-
-
-和过去一样，北约正在适应战略环境的变化。我支持@延斯托尔滕贝格提出的#NATO2030倡议。我们必须应对联盟面临的系统性威胁和挑战，包括气候变化和咄咄逼人的强硬对手和竞争者。
-
-
-
-> As in the past, [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) is adapting to changes in the strategic environment. I support [@jensstoltenberg](https://twitter.com/jensstoltenberg?ref_src=twsrc%5Etfw)’s [#NATO2030](https://twitter.com/hashtag/NATO2030?src=hash&amp;ref_src=twsrc%5Etfw) initiative. We must address systemic threats and challenges to the Alliance, including climate change and aggressive, assertive adversaries and competitors. [pic.twitter.com/Rw1GTFbRvE](https://t.co/Rw1GTFbRvE)
-> — Secretary Antony Blinken (@SecBlinken) [March 23, 2021](https://twitter.com/SecBlinken/status/1374403003743006720?ref_src=twsrc%5Etfw)
-
-
-
-### 反对众议员的社会主义者偷盗
-
-众议员布鲁克斯推文：“众议院社会主义者正积极试图在选举后140天，从共和党获胜者手中抢走爱荷华州的第二国会席位。我和几十位同事一起表达了对佩洛西议长公然偷选的反对。”
-
-
-
-> House Socialists are actively trying to steal Iowa's 2nd Congressional seat away from the Republican winner 140 days after the election. I joined dozens of colleagues in expressing our opposition to [@SpeakerPelosi](https://twitter.com/SpeakerPelosi?ref_src=twsrc%5Etfw)’s blatant election theft. [pic.twitter.com/QjsID0Eqtj](https://t.co/QjsID0Eqtj)
-> — Mo Brooks (@RepMoBrooks) [March 23, 2021](https://twitter.com/RepMoBrooks/status/1374422427116085250?ref_src=twsrc%5Etfw)
-
-
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
-
-**欢迎关注和支持康州盘古农场推特公众号及时掌握****资讯**
-
-### [盘古七星舰队PanGu Heptastar Fleet](https://twitter.com/PanguF)
+[!\[\]()!\[\](https://spark.adobe.com/page/SFSzP5w3puAXD/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/SFSzP5w3puAXD/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

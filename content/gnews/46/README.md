@@ -1,24 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】中共邀俄罗斯加盟贼船，俄要中共先交投名状
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1008223/)
+## 【军事快讯】美军创侦察距离新纪录，距中共海岸线仅25.33海里
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1008278/)
 
-作者：香草山健身部 Jack Li文阳
+作者：香草山媒体部 白木
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1617-【热点播报】中共邀俄罗斯加盟贼船，俄要中共先交投名状-2.jpg)图片来源：VOA
+![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1618-【军事快讯】美军创侦察距离新纪录，距中共海岸线仅25.33海里-1.jpg)
 
-俄罗斯外长拉夫罗夫星期一（3月22日）开启了访问中共国的行程。这是继美日、美韩2+2会谈、中美会谈和美防长访印之后，俄罗斯对中共国的访问。
+SCSPI于美东时间3月22日发表推文，根据迄今为止的公开数据，美国空军RC-135U侦察机，刚刚创下了距中国海岸线最短的侦察距离新纪录，25.33海里。
 
-作为邀请方，中共的真实目的不言而喻，谋求强大军事实力的俄罗斯为其站台。俄罗斯的实力远超朝鲜、伊朗、古巴，即使只是象征性的站台，中共也愿意以利益作为交换。中共亟需向墙内同胞传递信息，俄罗斯是中共国的盟友，中共国有实力和美国平起平坐。
 
-[据报道](https://www.voachinese.com/a/Russian-foreign-minister-calls-China-to-reduce-US-dollar-use-20210322/5823810.html)，临行前，拉夫罗夫呼吁两国一同减少对美元及西方控制的国际支付系统的依赖，以降低制裁风险。另外，他还表示， “推进本币结算和可替代美元的其他国际货币结算，逐步摆脱西方控制的国际支付体系等方式，降低制裁带来的风险”。俄罗斯经济体量小，使用美元总量不大。就算中俄两国贸易不用美元结算，俄罗斯也绝不会答应用人民币来结算。如果中共国也不答应用对方的货币来结算的话，这就是个伪命题。就算中共国召集多国共同建立一种虚拟货币结算体系，因有美中农夫与蛇的前车之鉴，普京总统自然心中有数。
 
-俄罗斯一向擅长利用美中关系为其谋求利益。普京就曾公开表示，在美中贸易战中，俄罗斯要“隔山观虎斗”。
+> USAF RC-135U Combat Sent [#AE01D5](https://twitter.com/hashtag/AE01D5?src=hash&amp;ref_src=twsrc%5Etfw) just set a new record of 25.33NM, the shortest distance US reconnaissance aircraft have reached from the China's coastlines, based on public data so far.
+> 
+> In addition, there was also a P-8A & an EP-3E spotted over the [#SouthChinaSea](https://twitter.com/hashtag/SouthChinaSea?src=hash&amp;ref_src=twsrc%5Etfw), March 22. [pic.twitter.com/uLv49u70Gv](https://t.co/uLv49u70Gv)
+> — SCS Probing Initiative (@SCS\_PI) [March 22, 2021](https://twitter.com/SCS_PI/status/1373886128177041410?ref_src=twsrc%5Etfw)
 
-俄罗斯外长拉夫罗夫访问中共国之前发表如此言论，是俄方在向美中两方呼吁，该下注了，看谁下得多、下得狠。
 
-（文章仅代表作者个人观点。）
+
+博博士引当年“巴伦支海手术刀事件”对该事件进行评论道：“美军主动挑战中共，离中共不得不开火1.33海里”，“25.33海里，土共找块豆腐撞死算了”。
+
+
+
+> 阿拉斯加對罵以後，美軍RC-135U偵察機抵近到距離中共國海岸25.33海哩才折返。這是什麼概念呢？進入24海哩毗鄰區就基本可以開火了，所以，美軍主動挑戰中共，離中共不得不開火1.33海哩。比較一下，當年巴倫支海手術刀事件，P-3距離蘇聯海岸48海哩就被宰了。25.33海哩，土共找塊豆腐撞死算了。🤣🤣🤣 [https://t.co/5DiYFaq3ax](https://t.co/5DiYFaq3ax)
+> — Dr. Bo 🇺🇸🇹🇼🇭🇰 (@BoDiplo) [March 22, 2021](https://twitter.com/BoDiplo/status/1374140014628573189?ref_src=twsrc%5Etfw)
+
+
+
+毗连区（contiguous zone），又称“邻接区”、“海上特别权”，是指沿海国根据其国内法，在领海之外邻接领海的一定范围内，为了对某些事项行使必要的管制权，而设立的特殊海域。毗连区的宽度实际上是连同领海在内的不得超过24海里。
+
+此次美军侦察机抵近中共国海岸线25.33海里才折返，离毗连区仅差1.33海里。
+
+本月8日，SCSPI就已曝光美国空军RC-135W电子侦察机对华侦察完整路线，当时距离中共国临海基线仅28.34海里。此次侦察更近一步，仅25.33海里。
+
+
+
+> A rare full trajectory!
+> USAF RC-135W ([#AE01D2](https://twitter.com/hashtag/AE01D2?src=hash&amp;ref_src=twsrc%5Etfw)) from Kadena is conducting a [#SouthChinaSea](https://twitter.com/hashtag/SouthChinaSea?src=hash&amp;ref_src=twsrc%5Etfw) mission, operating alongside China's coastlines near Guangdong, Hainan, and the [#ParacelIslands](https://twitter.com/hashtag/ParacelIslands?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/ZQOuHnEtAc](https://t.co/ZQOuHnEtAc)
+> — SCS Probing Initiative (@SCS\_PI) [March 8, 2021](https://twitter.com/SCS_PI/status/1368801174053289988?ref_src=twsrc%5Etfw)
+
+
+
+继美中会谈，中共宣称“不吃美国那一套”后，目前为止，中共官方并未就此次事件作出任何回应。相较于巴伦支海手术刀事件，苏军就挪威海军作出的反应，中共对这次美军侦察行动的反应验证了，中共就是一只“纸老虎”。
+
+不管中共怎么狐假虎威，怎么垂死挣扎，都无法阻挡世界正义联盟，美、印、日、澳以及北约对中共发起的围剿之势。
 
 编辑/审核/发稿：雪梨
 
@@ -30,4 +56,4 @@
 
 更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-+1
+0
