@@ -1,27 +1,12 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 捷克扩大雇员大规模强制检测
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1004789/)
+## 3/14/2021 郭先生直播：中共治下的中国就是人间地狱！
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1004872/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+3/14/2021 郭先生直播：中共治下的中国就是人间地狱！
+中共国没有一个人不生活在恐惧当中，包括制造恐惧和被恐惧的人；新中国联邦承受上天的使命-灭共；新中国联邦的正道主义是结合西方的法和理、东方的情和义，就是要让中国人过上没有恐惧、有尊严、和平健康的幸福生活！
 
-
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2021年3月22日电/西喜社——**据美联社3月22日报道，捷克共和国正在扩大对雇员进行大规模强制性中共病毒检测的方案，以涵盖最小的公司。
-
-工业和贸易部长卡雷尔·哈维利切克（Karel Havlicek）说，10人以下的公司必须开始每周对他们进行测试。非政府组织以及与客户有个人联系的自雇人员也将不得不这样做。
-
-部长说，随着新类别的加入，每天将对员工进行总计50万次测试。
-
-政府还决定要求议会批准其将紧急状态再延长30天的计划。目前的紧急状态将于3月28日到期。这将使政府能够保持严格的封锁，至少到4月5日，即复活节的最后一天。
-
-这个拥有1,070万人口的国家有近150万例确诊病例，24,810人死亡。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/f8d77d78-0655-4db6-b8fe-b8fdbba6d573-1.jpg)
-**新闻来源：[美联社](https://apnews.com/article/europe-india-coronavirus-pandemic-coronavirus-vaccine-europe-415f31eed44ab6106ca8b5fc6197f306)**
-
-![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
+By: 【秘密翻译组G-Translators】
 
 0
