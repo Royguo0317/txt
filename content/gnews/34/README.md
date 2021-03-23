@@ -1,38 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全世界的媒体都不说真话，只有咱GTV和G-News敢
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1008588/)
+## [文貴先生蓋特]摘錄:3.19中共從未停止殺各族人民(1)
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1008673/)
 
-简述：2021年3月21日的盖特视频中，郭先生感慨世界和美国媒体的疯狂，疫苗死人和拜登身体等问题没有媒体报道，而只有新中国联邦、爆料革命、GTV和GNEWS敢说真话。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles-20210321-getter1-part1-revised.srt.txt)
-**全世界的媒体都不说真话，只有咱****GTV****和****G-News****敢**
+編輯：童媚 校對：木子
+![]()![](https://www.gnews.org/wp-content/uploads/2021/03/image001-72.png)
+**中共從未停止殺各族人民無數**
 
-**No Media In the World Dares to Tell the Truth, Except for GTV and GNEWS**
+**出招指責美國種族歧視掩蓋自己種族大屠殺**
 
-这个周末真是很热闹。全世界的媒体…你说这个世界真的多疯狂啊，多疯狂！这个疫苗死那么多人，那么多人，没有多少敢真报道的。真的是，我们现在真的是遇到媒体为王的时代，全世界都在说，这个世界谁最有权利？谁最牛？扎克伯格，Google 的 Eric Schmidt，Twitter 的 Jack，这最牛，这是媒体老大。都在说这话：“谁是老大？媒体老大。”
+這下世界亂套了。中美坐下來這一談，各個細節牽動了天下的心。
 
-It’s a lively weekend. All the media across the world… you know, how crazy the world is! How crazy! The vaccine has caused so many deaths, but almost no one dares to report it. Seriously, we are in the age when media is the king. People across the world are all asking: Who has the greatest power in the world? Who are the most powerful people? Zuckerberg, Eric Schmidt of Google, and Jack [Dorsey] of Twitter. They are the media bosses. Everyone is saying this: “Who is the boss? The media.”
+中共這次來，打的招叫種族歧視，種族大屠殺，就是說美國殺黑人。我回答所有歐洲的、美國的朋友，這個問題怎麼看、怎麼辦。我說很簡單，你說共產黨在西藏、新疆殺掉的人，還有殺掉的漢人，還有殺掉的香港人、以及其他民族，包括雲南的幾個小民族，像當年水傣、旱傣，他們總共殺了多少人。我說他們殺的任何一次的零頭都是你們美國200多年歷史的總和。他們沒有任何資格指責你們的種族問題，雖然美國歷史上絕對有這個問題，但是中共正在屠殺，而且此時此刻也在屠殺。所以你們美國人要明白，共產黨和你們玩的是內部的種族大屠殺，我建議他們好好看看印度電影《白虎》，這是共產黨真實的向世界搞文化大革命，文化大革命輸出；搞種族大革命，種族大革命輸出種族仇恨。最重要的是把世界上的所有問題都歸於白人，打你朱利安尼，打你川普，打你班農，打你美國所有的右派和極右派，打你共和黨，就一招就是種族歧視。我說你們的種族歧視和種族大屠殺和他們比實在差的太遠了，現在是你們有機會的時候了。某些人說：對啊，有道理。我說：是你們到了反擊的時候。到底種族歧視還是種族大屠殺，這兩個之間什麼關係，哪個重要。關鍵問題共產黨現在還在幹。讓全世界來調查調查，讓全世界來評評理，你們幹嘛不利用這個機會。
 
-真是能感觉到，就死那么多人，这么多稀奇地死那些人，没人报道，没人敢报道，一带而过。这还不说，就是拜登总统从空军一号上那三摔，“咔叽”现在”拜三摔”了，直接从楼梯摔下来。哎！美国媒体不报道，世界媒体也不敢报道。因为美国媒体是老大，包括全世界的媒体也是美国资本和中共资本在控制着。你觉得这个世界害不害怕？
+這個楊潔篪還有王毅，都想爭下一個管外交的常委。楊潔篪要退，王毅要上，他倆拼命地表現胳膊硬，擀麵杖子硬，你們就讓他們表演吧，但是你們要借著這個表演，讓全世界知道，共產黨殺了多少西藏人、新疆人、水傣、旱傣還有彝族人，為什麼五十幾個民族的人越來越少，甚至是有的消失了，因為他們慢慢地都用看上去美好的政策殺掉了，把這個種族給滅了。更重要的事情，他們正在香港搞大屠殺。漢人還是個大族，那麼殺少數民族是罪，難道殺漢人就不是罪了嗎？殺人都是罪。
 
-I can indeed feel it. So many people have died abnormally. Yet, no one has reported on this. No one dares to report or only briefly covered it. It is not only the vaccine, but also President Biden’s three stumbles when boarding Air Force One. He fell over three times directly from the stairs. Well, the American media barely reported it, and the world media didn’t have the courage to report it either. This is because the U.S. media is the boss and the world’s media is controlled by the capital of the US and the CCP. Do you think the world is scary?
+某CNN主持人，通過各方面緊急聯繫我，問我啥看法。我有啥看法呀，我就這個看法，郭文貴就是個小人物。
 
-再一个，冠状病毒，没有多少人敢议论现在，就那几家议论，而且在网络上被屏蔽，不让转发。只有咱新中国联邦，只有咱GTV、G-News，我们的爆料革命，我们的战友们，不吝这一套，是不是？爱他个谁是谁？咱就是说实话，对吧？这才是真正能体现到新中国联邦和爆料革命的真正的力量。兄弟姐妹们，看到了谁是英雄，谁是正义。大家这回看明白了吧？应该引以为豪吧？应该引以为豪吧？兄弟姐妹们。
+**中共以內鬥為核心**
 
-Another one. Not many people dare to discuss the CCP virus. Only a few of them have the courage, but they have been blocked on the internet and their words cannot be spread. The only exception is our New Federal State of China (NFSC), our G-TV, G-News, our Whistleblower Movement (WM), and our fellow fighters, right? We don’t care who will be offended, we just tell the truth, right? This reflects the real power of the NFSC and WM. Brothers and sisters, now you see who is the hero and who stands for justice. Now everyone can see it, right? Should you feel proud, brothers and sisters?
+**不管他們眼中賤民死活**
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60575c13d1608d609ea69e30](https://gtv.org/getter/60575c13d1608d609ea69e30) (00:10-1:58)
-鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/998813/](https://www.gnews.org/zh-hans/998813/)
+只要共產黨一出手，就都是幫助我們，因為他們的出發點全是內部政治鬥爭，是上海幫和習大神的鬥爭。你去看王楊兩人坐在那裡的時候，看上去都是執行中央的命令，事實上都是想著明年接那個位置，是楊潔篪繼續幹，還是王毅把他幹掉後上來，當所謂的管外交的委員。他們認為中國人死一百萬一千萬一個億根本不是個事，如果現在讓王毅明年接楊潔篪的班，當管外交的委員，甚至進常委，中國死一半人，他都不在乎。
 
-* * *
+這就是共產黨的邪惡，沒有一個人想中國人和他一樣，他認為中國人就是賤民，中、下等人，而他是上等人，這是每個進了中南坑，當了候補委員，到中央委員，到政治局常委，每個人的心理。我接觸過的中央任何一個人，只要到了那個位置以後，不管他保持什麼樣的生活形式，他內心世界的變化都是這樣的。他甚至認為他是神，是菩薩，是佛祖的代言人，甚至是化身，然後中國老百姓是下等人、中等人。這就是真正中國現在的狀態，沒有比這個國家和民族再扯蛋的了，他們說的一切話和做的一切事，都是為了他自己。接下來熱鬧大了。
 
-翻译：【7PawBear】校对：【Isaiah4031】【BruhM】字幕：【XO小粉红】视频解码：【恒久忍耐】技术支持：【Rock小哥】推广：【V%】【TINALS】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+**沒有哪一個家庭是很完美**
 
-+2
+**但是和家人在一起是最美好**
+
+很多戰友還給我發關於家庭和倫理的東西，一個二月二，這麼多人關注這個事。我想和大家說，整個文貴的一生，最快樂的時光，是和我哥哥、爹娘、嫂子、侄子們一起過的。我在家說的最多的是當年我們最窮時候的日子。我們所有家人再在一起的時候，就大家會一起回憶那段日子最快樂。我跟我哥哥的家從來沒有紅過臉，更不要說打架了。我過的最美好的、最窮、最挨餓的生活，都是和家人度過的，這些都是最美好時光。我們家也有很多不幸，過去的幾年，總有這樣那樣的事情，但是我的人生是這樣過來的，我必須展示真實的我。我們家裡也有那些小心眼、佔便宜的人，就是你們說的所有事情我們家都有。但說實話，我從來沒有記住過我家任何人的不好。我也有哥哥嫂子是自私的，到現在河南裕達旁邊我二哥還開著一個小賣店，在幾十億的五星級飯店旁邊開個小賣店，你說氣不氣人。但這就是一個曾經被下放到農村，在農村種地長大、殺豬出身的二哥，他就是那點心胸，你沒法生氣，這是他的人生。但是他是我哥，是我親哥，我愛他，我想他，每個哥我都想，我真的想他們。由於過去幾年，爆料革命新中國聯邦，我和任何人都不能聯繫，因為我怕牽連他們，但我真的很想念他們。從整個新中國聯邦和爆料革命來講，父母關係、兄妹關係、妯娌關係，很複雜，這真不是一竿子能打到底的。我所說的追求的都是美好的生活，我沒有想追求那些極端的、不正常的和病人的生活。所有未來的出發點，都是基於健康和正常的設計，然後再去考慮不正常和有病人的，我們要避免這種事情在我們每個人的生命中發生，但是我們要基於絕大多數正常的情況下，建立一個美好的制度。我真沒想到，那麼多人給我發資訊，都是關於家人、兄弟、妯娌、姐妹的，但是文貴是個最普通不過的人。
+
+0

@@ -1,59 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】美军创侦察距离新纪录，距中共海岸线仅25.33海里
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1008278/)
+## 人权联盟要求爱彼迎放弃赞助北京冬奥会
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1008570/)
 
-作者：香草山媒体部 白木
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1618-【军事快讯】美军创侦察距离新纪录，距中共海岸线仅25.33海里-1.jpg)
-
-SCSPI于美东时间3月22日发表推文，根据迄今为止的公开数据，美国空军RC-135U侦察机，刚刚创下了距中国海岸线最短的侦察距离新纪录，25.33海里。
+- 编辑：Victor Torres
+- 发稿：Ranting
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-> USAF RC-135U Combat Sent [#AE01D5](https://twitter.com/hashtag/AE01D5?src=hash&amp;ref_src=twsrc%5Etfw) just set a new record of 25.33NM, the shortest distance US reconnaissance aircraft have reached from the China's coastlines, based on public data so far.
-> 
-> In addition, there was also a P-8A & an EP-3E spotted over the [#SouthChinaSea](https://twitter.com/hashtag/SouthChinaSea?src=hash&amp;ref_src=twsrc%5Etfw), March 22. [pic.twitter.com/uLv49u70Gv](https://t.co/uLv49u70Gv)
-> — SCS Probing Initiative (@SCS\_PI) [March 22, 2021](https://twitter.com/SCS_PI/status/1373886128177041410?ref_src=twsrc%5Etfw)
+**西班牙2021年3月23日电/西喜社——**据美联社3月23日报道，爱彼迎(Airbnb) 被一个由150名人权运动者组成的联盟要求，放弃对明年北京冬奥会的赞助。
 
+该联盟由反对中共国诸如在新疆地区拘禁穆斯林维吾尔人等侵犯权利行为的团体领导。
 
+爱彼迎是国际奥委会的15家主要赞助商之一。其中包括可口可乐、三星、Visa、丰田、阿里巴巴、松下、英特尔和宝洁等公司。
 
-博博士引当年“巴伦支海手术刀事件”对该事件进行评论道：“美军主动挑战中共，离中共不得不开火1.33海里”，“25.33海里，土共找块豆腐撞死算了”。
+住房共享企业爱彼迎之所以成为目标，是因为它反复宣称在其商业模式中实践的“社会责任”。
 
+美联社收到了周二发给爱彼迎 CEO 布赖恩·切斯基(Brian Chesky)的公开信。信中认为，爱彼迎试图以牺牲不能在中国自由旅行的维吾尔人和藏人的利益为代价来推动中国的旅游业。
 
+“爱彼迎还在掩盖中共国可怕的人权记录，并向公众正常化国际法公认的严重限制性环境，”信中说。”爱彼迎不应该以牺牲维吾尔族和藏族的权利为代价，鼓励更广泛的旅游业得到支持并允许其蓬勃发展。”
 
-> 阿拉斯加對罵以後，美軍RC-135U偵察機抵近到距離中共國海岸25.33海哩才折返。這是什麼概念呢？進入24海哩毗鄰區就基本可以開火了，所以，美軍主動挑戰中共，離中共不得不開火1.33海哩。比較一下，當年巴倫支海手術刀事件，P-3距離蘇聯海岸48海哩就被宰了。25.33海哩，土共找塊豆腐撞死算了。🤣🤣🤣 [https://t.co/5DiYFaq3ax](https://t.co/5DiYFaq3ax)
-> — Dr. Bo 🇺🇸🇹🇼🇭🇰 (@BoDiplo) [March 22, 2021](https://twitter.com/BoDiplo/status/1374140014628573189?ref_src=twsrc%5Etfw)
+在上一个完整的、为期四年的奥运周期中，15家主要赞助商向国际奥委会支付了约10亿美元的现金或服务，以与奥运会相关。爱彼迎在2019年11月签约。
 
+维权组织正试图向国际奥委会赞助商施压，并推动对奥运会进行外交抵制–甚至是硬抵制–以呼吁人们关注涉嫌虐待维吾尔人、藏人和香港居民的行为。
 
+北京冬奥会将于2022年2月4日开幕。
 
-毗连区（contiguous zone），又称“邻接区”、“海上特别权”，是指沿海国根据其国内法，在领海之外邻接领海的一定范围内，为了对某些事项行使必要的管制权，而设立的特殊海域。毗连区的宽度实际上是连同领海在内的不得超过24海里。
+中共国说，抵制努力的背后是 “政治动机”。中共将新疆的拘留营描述为职业中心。
 
-此次美军侦察机抵近中共国海岸线25.33海里才折返，离毗连区仅差1.33海里。
+“中国坚决反对将体育政治化，反对利用人权问题干涉别国内政，”外交部发言人赵立坚本月早些时候说。他说，抵制的努力 “注定要失败”。
 
-本月8日，SCSPI就已曝光美国空军RC-135W电子侦察机对华侦察完整路线，当时距离中共国临海基线仅28.34海里。此次侦察更近一步，仅25.33海里。
+维权组织已经与国际奥委会会面，并被告知奥林匹克机构必须保持政治上的 “中立”。国际奥委会告诉他们，中共国已经就人权状况作出了 “保证”。
 
+活动人士说，国际奥委会拒绝公开这些文件，这使得人们无法知道已经承诺了什么，也无法知道中共国是否履行了承诺。
 
+**新闻来源：[美联社](https://apnews.com/article/winter-olympics-beijing-2020-tokyo-olympics-china-olympic-games-c94f6ff2289cf26b0c6395423dc74e33)**
 
-> A rare full trajectory!
-> USAF RC-135W ([#AE01D2](https://twitter.com/hashtag/AE01D2?src=hash&amp;ref_src=twsrc%5Etfw)) from Kadena is conducting a [#SouthChinaSea](https://twitter.com/hashtag/SouthChinaSea?src=hash&amp;ref_src=twsrc%5Etfw) mission, operating alongside China's coastlines near Guangdong, Hainan, and the [#ParacelIslands](https://twitter.com/hashtag/ParacelIslands?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/ZQOuHnEtAc](https://t.co/ZQOuHnEtAc)
-> — SCS Probing Initiative (@SCS\_PI) [March 8, 2021](https://twitter.com/SCS_PI/status/1368801174053289988?ref_src=twsrc%5Etfw)
-
-
-
-继美中会谈，中共宣称“不吃美国那一套”后，目前为止，中共官方并未就此次事件作出任何回应。相较于巴伦支海手术刀事件，苏军就挪威海军作出的反应，中共对这次美军侦察行动的反应验证了，中共就是一只“纸老虎”。
-
-不管中共怎么狐假虎威，怎么垂死挣扎，都无法阻挡世界正义联盟，美、印、日、澳以及北约对中共发起的围剿之势。
-
-编辑/审核/发稿：雪梨
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募-2.jpeg)
 
 0

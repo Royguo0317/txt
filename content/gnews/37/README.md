@@ -1,33 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [文贵先生盖特]摘录:3.18 GFASHION值得你真爱(1)
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1008267/)
+## 全世界的媒体都不说真话，只有咱GTV和G-News敢
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1008588/)
 
-编辑：树懒  校对：木子
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/image001-114.jpg)
-**GFASHION****值得你真爱**
+简述：2021年3月21日的盖特视频中，郭先生感慨世界和美国媒体的疯狂，疫苗死人和拜登身体等问题没有媒体报道，而只有新中国联邦、爆料革命、GTV和GNEWS敢说真话。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles-20210321-getter1-part1-revised.srt.txt)
+**全世界的媒体都不说真话，只有咱****GTV****和****G-News****敢**
 
-尊敬的兄弟姐妹好，我首先说的是头两天，咱们GFASHION的哨子还有一个部分衣服给寄出去。我们遇到了几个大的问题，第一个就是包装盒。我想大家知道包装盒你都最不在乎的，但是爱马仕今年的服装秀用爱马仕的包装盒在后面堆积起来作为一个背景的。
+**No Media In the World Dares to Tell the Truth, Except for GTV and GNEWS**
 
-世界上最牛的就是爱马仕的盒子，我们找的做这些盒子厂家，包括国内的做厂家，我们都找了。都是通过我们战友做了很多样板，都没有一个达到要求的。意大利的咱们战友做得非常棒，文科找了几个厂家，还亲自弄了很多盒子。像Gucci、Chanel等，这根本不够我们级别，它不是我们想要的。所以哨子还有衣服的包装给寄过去的时候差距很大，哨子是银的，盒子太差了，在洛杉矶临时做的。
+这个周末真是很热闹。全世界的媒体…你说这个世界真的多疯狂啊，多疯狂！这个疫苗死那么多人，那么多人，没有多少敢真报道的。真的是，我们现在真的是遇到媒体为王的时代，全世界都在说，这个世界谁最有权利？谁最牛？扎克伯格，Google 的 Eric Schmidt，Twitter 的 Jack，这最牛，这是媒体老大。都在说这话：“谁是老大？媒体老大。”
 
-第二个，大家对GFASHION的理解不同，包括有工业工程师战友发来说，咱们戒指，手链的星是焊上去的，而不是一次铸造成形的。我找了咱们的设计师，人家不接受你说法，因为他说你应该去买那些工艺线的产品，不要买我的手工的。像咱们刚刚挂上那珠宝都他做的每件只有一个，可能有的有大概三五件，这叫艺术品。它是唯一的手工造的，如果追求工业品的话，你不应该买我的东西，不应该让我设计。我们现在从开始GFASHION直到现在，咱们的设计费是营业额五倍甚至更多，就不要说成本和材料了。我们没有一件东西是从大陆做的。如果你们发现GFASHION有一个大陆做的，你们可以告，可以采取任何行动。
+It’s a lively weekend. All the media across the world… you know, how crazy the world is! How crazy! The vaccine has caused so many deaths, but almost no one dares to report it. Seriously, we are in the age when media is the king. People across the world are all asking: Who has the greatest power in the world? Who are the most powerful people? Zuckerberg, Eric Schmidt of Google, and Jack [Dorsey] of Twitter. They are the media bosses. Everyone is saying this: “Who is the boss? The media.”
 
-我们现在美国区的香奈儿的总裁，下周一开始来我们这上班，就在这儿来办公室。香奈儿的有的是布料是六个欧元，一般不超过十个欧元。卖多少钱？卖五千到一万。这多少钱知道吗？一百四十欧八十欧，还有两百多欧。我们是它几十倍的价格，但我卖人家多少钱？我们卖人家十分之一、二十分之一、五十分之一的价格。
+真是能感觉到，就死那么多人，这么多稀奇地死那些人，没人报道，没人敢报道，一带而过。这还不说，就是拜登总统从空军一号上那三摔，“咔叽”现在”拜三摔”了，直接从楼梯摔下来。哎！美国媒体不报道，世界媒体也不敢报道。因为美国媒体是老大，包括全世界的媒体也是美国资本和中共资本在控制着。你觉得这个世界害不害怕？
 
-我们现在要的联络的所有生产厂家都是Gucci、Prada、Chanel、Hermes、Dolce&Gabbana、Celine所有都是跟这些的，像Versace的厂家我们都不用，包括Brioni。Stefano Ricci没有厂家，都是在大的生产线上加工的。但是由于是刚开始，我们必须创造中国人的品牌。我们现在跟各大分包厂都在联系，人家已经给大牌做的那些东西和产品，我们想使用这同一个生产线，甚至是同一个材料，接近的款式加上我们GFASHION的文化和设计，然后卖给你是他们的可能几分之几的价格。这是一个基本的常识。但是前期有点耐心，就像我刚才看那个盒子一样，它是个起码的常识。
+I can indeed feel it. So many people have died abnormally. Yet, no one has reported on this. No one dares to report or only briefly covered it. It is not only the vaccine, but also President Biden’s three stumbles when boarding Air Force One. He fell over three times directly from the stairs. Well, the American media barely reported it, and the world media didn’t have the courage to report it either. This is because the U.S. media is the boss and the world’s media is controlled by the capital of the US and the CCP. Do you think the world is scary?
 
-所以说希望大家能理解。非常非常的抱歉，需要一个过程。此时此刻，我们这两周最起码有这几个大的品牌，几个大的经理，像Chanel美国区总裁一年做二十几亿美元生意，就到咱GFASHION来了。还有其他的像原来爱马仕的，MK的，还有在Celine很多都到咱这工作。
+再一个，冠状病毒，没有多少人敢议论现在，就那几家议论，而且在网络上被屏蔽，不让转发。只有咱新中国联邦，只有咱GTV、G-News，我们的爆料革命，我们的战友们，不吝这一套，是不是？爱他个谁是谁？咱就是说实话，对吧？这才是真正能体现到新中国联邦和爆料革命的真正的力量。兄弟姐妹们，看到了谁是英雄，谁是正义。大家这回看明白了吧？应该引以为豪吧？应该引以为豪吧？兄弟姐妹们。
 
-人家是百年打造一个品牌，咱这才刚刚百天，怎么也得弄个一年两年的吧。大家要有心理准备。如果你真的爱GFASHION，开心的GFASHION你就在这儿。你不开心、不爱，不要买，你干嘛买呀？你不买不就完了嘛。GCLUB卡是长期的一个身份的象征，它有很多的功能，它不光是GFASHION。
+Another one. Not many people dare to discuss the CCP virus. Only a few of them have the courage, but they have been blocked on the internet and their words cannot be spread. The only exception is our New Federal State of China (NFSC), our G-TV, G-News, our Whistleblower Movement (WM), and our fellow fighters, right? We don’t care who will be offended, we just tell the truth, right? This reflects the real power of the NFSC and WM. Brothers and sisters, now you see who is the hero and who stands for justice. Now everyone can see it, right? Should you feel proud, brothers and sisters?
 
-**铁血七人组**
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60575c13d1608d609ea69e30](https://gtv.org/getter/60575c13d1608d609ea69e30) (00:10-1:58)
+鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/998813/](https://www.gnews.org/zh-hans/998813/)
 
-刚才我刚直播完，关于说战友的私人事情，我不能去介入一样。我再重申一遍，刚才有仨战友，跟我说七哥你不是说我吧？吓坏我了，我坐这儿吃饭，我说认啥还有认这个的？跟你啥关系呀？仨战友上来认了，俩女的，一个男的。我对不起，我这得跟你拉黑了，我真没心情、没时间给你扯了。不管你原来你有多烦扰我，我都可以接受，但你这样的行为我就不能接受，我就给你拉黑了。还有认这个的吗？
+* * *
 
-我告诉你，那几个战友都是大家不知道的。而且这些战友的家人，都是第一次跟我联系，所以不要瞎猜，没有人认这个的。另外一个，刚才我直播完以后，很多战友就关于这各农场的资金的问题，很多人我反映没有所谓的利差的问题，都会打条。联盟委员会，就在我直播中间，老班长，长岛哥铁血团就开始行动了。现在安红、木兰也是我们铁血组成员，现在铁血七人组，加上了木兰和安红。未来所有的咱们的新的GTV，所有的新的重建的股份，这里面两个BVI公司的UBO也就是唯一控制发令责任人，一个是安红，一个木兰。这两个公司里边是可能王雪斌先生和草根小哥做一个UBO负责所有的老椅子和借项目的这些人。然后那个UBO是安红负责的，是所有的VOG凤凰的，还有加拿大的、意大利的，还有GDOLLAR GCOIN这些的股权代持和发售。
+翻译：【7PawBear】校对：【Isaiah4031】【BruhM】字幕：【XO小粉红】视频解码：【恒久忍耐】技术支持：【Rock小哥】推广：【V%】【TINALS】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-这是完全是在新的铁血的七人组控制之下的。所以说今天给大家汇报到这儿。
-
-0
++2

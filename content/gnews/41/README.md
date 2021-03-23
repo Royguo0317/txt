@@ -1,47 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 高速公路突然限速 中共交通局抢钱真荒唐
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1008151/)
+## 【军事快讯】美军创侦察距离新纪录，距中共海岸线仅25.33海里
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1008278/)
 
-视频与撰稿：必有回响
-![]()![](https://gnews.org/wp-content/uploads/2021/03/004-2.jpg)图片来源于网络
-最近有网友上传的一段视频显示，在内蒙古的一条高速路上，本来行驶的道路是100KM/H的限速，但是前面的道路突然就变成了20KM/H。更离谱的则是不远处大约几十米远的道路上就是一组龙门架摄像头，可以说是非常的荒唐。
+作者：香草山媒体部 白木
 
-从100KM到20KM这种断崖式的限速，司机为了不被抓拍扣分在短时间里肯定会手忙脚乱减速，而且这样突然的减速也非常可能引起方车辆的追尾。视频可以看到摄像头下非常多大货的刹车印，可以想像满载的大货车因为惯性根本停不下来。如果有两辆车在同一路段行驶，大货车在后的话非常容易出事故——交通局为了罚款抢钱简直是不顾老百姓的生命安全。
-视频：坑人的高速路
-其实在今年中共“两会”上，中共人大代表、重庆索通律师事务所律师韩德云就对外说，中共国交通道路标识和电子警察系统的设置存在不规范的现象。据统计，2020年中共国交通罚款总额3000亿元左右。大概平均每车罚款逾千元，交通局抢钱的力度可想而知。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1618-【军事快讯】美军创侦察距离新纪录，距中共海岸线仅25.33海里-1.jpg)
 
-当然这个韩德云也并非是真的为了人民百姓说实话，你要知道韩自己也是中共人大代表，显然他出来说这个事肯定是高层有授意的，这是习江的内斗才导致中共体制内的人把矛头指向交通局，所以我老百姓才能一窥交通局的腐败。
+SCSPI于美东时间3月22日发表推文，根据迄今为止的公开数据，美国空军RC-135U侦察机，刚刚创下了距中国海岸线最短的侦察距离新纪录，25.33海里。
 
-自古以来土匪恶霸要想发财，其中的方式之一肯定就是霸占领交通要道开设关卡收取来往行人过路费，俗话说:”此山是我开，此树是我栽，要想从此过，留下买路财。”
 
-当然中共比土匪恶霸那是要邪恶千倍万倍，中共不但设关卡收费，还在此基础上发明了乱罚款来抢劫。要是原来的路不够多，不够中共抢怎么办？正如中共土话所说，要想富，就得先修路。当然这个富可不是指普通老百姓富啊，这是指中共当官的要想搞钱的话就要修路，修路有回扣，修路有政绩，当然修好了还可以一直抢劫。
 
-中共各地交通局从80年代后期或90年代初开始就慢慢成了一个个香饽饽，生金蛋的鸡。实际上中共自己在2011年CCTV经济半小时就自曝从94年开始，公安部和交通部就已经在开始所谓治理乱罚款问题了，也就是说在94年以前甚至80年代后期的乱罚款现象早就是司空见惯了。
+> USAF RC-135U Combat Sent [#AE01D5](https://twitter.com/hashtag/AE01D5?src=hash&amp;ref_src=twsrc%5Etfw) just set a new record of 25.33NM, the shortest distance US reconnaissance aircraft have reached from the China's coastlines, based on public data so far.
+> 
+> In addition, there was also a P-8A & an EP-3E spotted over the [#SouthChinaSea](https://twitter.com/hashtag/SouthChinaSea?src=hash&amp;ref_src=twsrc%5Etfw), March 22. [pic.twitter.com/uLv49u70Gv](https://t.co/uLv49u70Gv)
+> — SCS Probing Initiative (@SCS\_PI) [March 22, 2021](https://twitter.com/SCS_PI/status/1373886128177041410?ref_src=twsrc%5Etfw)
 
-早在2011以前的几年，地方交通局每年的罚款总额超4000亿人民币也常事。大家注意这是明面上给了发票的罚款，如果算上没有正规发票的罚款这个钱可能是过万亿的。中共地方一直都通过交通乱罚款来作为创收的手段，特别是没有发票的罚款都是中共当官的灰色收入。
 
-2011年央视记者亲自在陕西高陵县调查显示，调查地点两个执法点的非高峰时段1小时内，交警共拦下52辆大货车。如果按每天工作8小时,每辆车罚款100元计算，每天可以罚款2万多元，一年罚款将达700万。
 
-央视还报道黑龙江省林甸县一个运管站站长，一年罚款将近300万，这些罚款将有至少百分之四十会拿给财政分成。因为乱罚款太厉害了，为了摆平下边百姓的举报 这位站长透露：“反贪局检察院来了，请吃饭，得变相报账。谁都知道违法，谁来谁不吃啊？林甸有温泉，经常带他们洗个澡，按按摩的。夏季有水上乐园，去玩玩，划个船，游个泳，吃点小煎鱼。招待吃完了也不能一抹嘴就走，这些费用一年能少得了吗？过年过节的，还得送点礼。要不你这部门，你活不下去。”
+博博士引当年“巴伦支海手术刀事件”对该事件进行评论道：“美军主动挑战中共，离中共不得不开火1.33海里”，“25.33海里，土共找块豆腐撞死算了”。
 
-当然这不是中共是为了老百姓才揭露这些的。看看这报道是央视在2011年中的时候做的，那时候习正要接大位，这样做的也是中共党内的内斗，习将要上台前帮意爆出这些腐败，以反腐的名义来打击政治对手。跟今年的“两会”的手段是一模一样。
 
-（本文仅代表作者观点）
 
-审稿：Gradient Boost
+> 阿拉斯加對罵以後，美軍RC-135U偵察機抵近到距離中共國海岸25.33海哩才折返。這是什麼概念呢？進入24海哩毗鄰區就基本可以開火了，所以，美軍主動挑戰中共，離中共不得不開火1.33海哩。比較一下，當年巴倫支海手術刀事件，P-3距離蘇聯海岸48海哩就被宰了。25.33海哩，土共找塊豆腐撞死算了。🤣🤣🤣 [https://t.co/5DiYFaq3ax](https://t.co/5DiYFaq3ax)
+> — Dr. Bo 🇺🇸🇹🇼🇭🇰 (@BoDiplo) [March 22, 2021](https://twitter.com/BoDiplo/status/1374140014628573189?ref_src=twsrc%5Etfw)
 
-新闻参考链接：
 
-[https://www.yicai.com/news/785631.html](https://www.yicai.com/news/785631.html)
 
-澳喜文章：
+毗连区（contiguous zone），又称“邻接区”、“海上特别权”，是指沿海国根据其国内法，在领海之外邻接领海的一定范围内，为了对某些事项行使必要的管制权，而设立的特殊海域。毗连区的宽度实际上是连同领海在内的不得超过24海里。
 
-[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+此次美军侦察机抵近中共国海岸线25.33海里才折返，离毗连区仅差1.33海里。
 
-欢迎加入澳喜农场：
+本月8日，SCSPI就已曝光美国空军RC-135W电子侦察机对华侦察完整路线，当时距离中共国临海基线仅28.34海里。此次侦察更近一步，仅25.33海里。
 
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-澳喜Logo-3.jpeg)
-+1
+
+
+> A rare full trajectory!
+> USAF RC-135W ([#AE01D2](https://twitter.com/hashtag/AE01D2?src=hash&amp;ref_src=twsrc%5Etfw)) from Kadena is conducting a [#SouthChinaSea](https://twitter.com/hashtag/SouthChinaSea?src=hash&amp;ref_src=twsrc%5Etfw) mission, operating alongside China's coastlines near Guangdong, Hainan, and the [#ParacelIslands](https://twitter.com/hashtag/ParacelIslands?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/ZQOuHnEtAc](https://t.co/ZQOuHnEtAc)
+> — SCS Probing Initiative (@SCS\_PI) [March 8, 2021](https://twitter.com/SCS_PI/status/1368801174053289988?ref_src=twsrc%5Etfw)
+
+
+
+继美中会谈，中共宣称“不吃美国那一套”后，目前为止，中共官方并未就此次事件作出任何回应。相较于巴伦支海手术刀事件，苏军就挪威海军作出的反应，中共对这次美军侦察行动的反应验证了，中共就是一只“纸老虎”。
+
+不管中共怎么狐假虎威，怎么垂死挣扎，都无法阻挡世界正义联盟，美、印、日、澳以及北约对中共发起的围剿之势。
+
+编辑/审核/发稿：雪梨
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+0

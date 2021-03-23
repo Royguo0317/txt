@@ -1,85 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210323（图片新闻）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1008616/)
+## 各大制药商向投资者承诺 他们将很快提高中共病毒疫苗的价格
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1009221/)
 
-- 作者：2020喜马拉雅
-- 封面：透明的遮羞布
+- 翻译 作者：葛大饼
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年3月23日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
+**西班牙2021年3月23日电/西喜社——**已获批生产中共病毒疫苗的美国制药公司——强生(Johnson & Johnson)、莫德纳Moderna和辉瑞(Pfizer)——已悄悄宣传计划在不久的将来提高冠状病毒疫苗的价格，中共病毒将会长期和人类共存，制药公司们要好好利用这场大流行所带来的机遇。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2000.jpg)
+辉瑞(Pfizer)首席财务官弗兰克·德阿梅里奥(Frank D’amelio)在一次会议上说，“按照目前的情况，中共病毒大流行将转变为地方性，区域性的流行病，我们认为这对我们来说是一个机遇。其他方面，比如加强中共病毒疫苗注射的需要性，从需求的角度，从价格的角度，考虑到我们的疫苗的临床特点，为我们的中共病毒疫苗提供了一个重要的机会。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/6d651d1d-8502-4d77-bdb7-a35048108497-6.jpg)
+莫德纳Moderna和强生(Johnson & Johnson)也承诺，他们生产的疫苗在大流行期间“能够让大家都负担的起”，但同时也已向投资者们表示，他们计划最早在今年晚些时候恢复更“商业化”的定价。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ce556ab0-8b32-4f14-bb5c-59073ab1c851-5.jpg)
+这些中共病毒疫苗已经成为有史以来最赚钱的药物之一。这些公司预计仅今年就能带来数十亿美元的利润，所有获得批准的中共病毒疫苗的主要制药商们都收到了政府机构的投资和欠付订单。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b9a2badc-7278-45ac-bd3d-10bbbd535241.jpg)
+美国政府为多种中共病毒疫苗的研发提供了全部资金，包括莫德纳Moderna和强生(Johnson & Johnson)生产的疫苗，总计超过20亿美元。美国还向辉瑞(Pfizer)提供了近20亿美元的资金，以获得辉瑞公司与生物科技公司(BioNTech)合作开发的疫苗。生物科技公司(BioNTech)从德国政府获得了近5亿美元的开发援助。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3d137245-0184-4129-ac2b-f092bd97055b-2.jpg)
+辉瑞(Pfizer)是早期疫苗竞赛的全球领导者之一，他们非常清楚在疫苗中看到的巨大的赚钱机会。上周四，在巴克莱全球医疗保健大会(Barclays Global Healthcare Conference)上，该公司首席财务官达梅里奥(D’amelio)在与Zoom的电话会议上讨论了这个问题。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/fc03cbcd-0a17-4214-9c28-c5e061dd0f2c-2.jpg)
+巴克莱银行(Barclays Bank)分析师Carter Lewis Gould指出，辉瑞面临着特殊的挑战，“前景光明”，但被问及何时该公司能够“在未来追求更高的定价”。达梅里奥(D’amelio)说，目前的定价“显然不是我认为那样按照市场条件和需要而定的，但是目前我们正处在中共病毒大流行中，我们要保证满足各政府方面的采购需求，但是”他接着说“一旦大流行结束，辉瑞将面临重大机遇。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d6021b20-0d11-4578-b28e-3137b1b2b5da.jpg)
+在活动期间，辉瑞的高管们宣布，该公司的冠状病毒疫苗预计仅今年就能带来150亿美元的销售收入，其中40亿美元是纯利润。观察人士表示，这一估值将使辉瑞的冠状病毒疫苗成为有史以来最畅销的制药产品之一。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/fbf4ffd6-442d-40f6-a02a-81cf269530b6-1.jpg)
+辉瑞(Pfizer)在其最新的投资者披露中透露，截至12月31日，该公司已收到总计9.57亿美元的疫苗预付款。在美国，该公司已同意以19.50美元的价格出售每剂疫苗，或者以39美元的价格出售两剂系列中共病毒疫苗。在欧盟，该公司收取更高的费用，每剂接近64美元。然而，这些数字可能会增加。例如，辉瑞公司的肺炎球菌疫苗Prevnar 13在私人市场上的价格是每剂200美元。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/70fd7cc5-0e41-4b0a-add9-97c62eeacb0e-1.jpg)
+佛蒙特州参议员伯尼·桑德斯他要求辉瑞(Pfizer)和其他制药商与发展中国家分享与这种疫苗有关的专利和知识产权，以便尽快结束这种流行病。但是医药制造商们通过其庞大的游说团强烈反对这一提议，以及压制要求疫苗价格管制的呼声。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/38446eb9-5aa3-462d-9153-5499c036410e.jpg)
+辉瑞(Pfizer)执行官Albert Bourla在投资者电话会议上表示，该公司无需担心政治上的反对意见。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/7bfb011f-73a7-4349-8425-5e65e53e01b2.jpg)
+Albert Bourla说:“我们相信，通过我们对中共病毒的治疗和疫苗研制的努力，该行业已经获得了国会和主流媒体的大量赞许和肯定。”他补充说，他期待着与拜登政府和两党国会议员合作。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/066d7600-601b-4901-9ce8-4e20bf5d2f76.jpg)
+去年，许多制药公司承诺暂停许多疫苗的定价策略，以帮助尽快结束中共病毒危机。去年10月，莫德纳Moderna公司宣布将不强制执行其疫苗的某些专利权，引起了轩然大波。阿斯利康公司AstraZeneca的疫苗已在国外获得批准，但尚未在美国获得批准，该公司去年承诺只在“大流行期间”向发展中国家提供非营利性的疫苗。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d0dd968d-e34e-42b1-8a95-818957b313c9.jpg)
+但这些承诺并没有兑现。据报道，辉瑞(Pfizer)已经向包括阿根廷在内的拉丁美洲国家政府施压，要求它们提供诸如大使馆建筑和军事基地等主权资产作为抵押品，以支付与中共病毒疫苗产生的副作用有关的诉讼费用。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/017bf42f-7168-4219-874a-3d8e977bad5e-5.jpg)
+**新闻评价：**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/26361718-cf4d-4aeb-8269-e2d25eb3cc9f.jpg)
+**昨天看到这则新闻，想着这世道啊，子弹钱都要涨价了。中共病毒疫苗致死致残的新闻层出不穷，而现在这些疫苗的制造商们都在想着涨价了，有政府撑腰不怕，爆料革命早就告诉我们，疫苗经济，巨大的回扣啊！**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e8324af7-3521-46e9-aec8-6533a83d0b73-5.jpg)
+**德国已经爆出官员利用口罩经济大赚钱，这中共病毒疫苗的黑钱可是随便甩口罩几条大街。那些被忽悠打了疫苗的人们，被打了第一针还有第二针，接下来他们还会告诉你们需要周期性打，你的身体活生生成了这些魔鬼的谋财工具。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4424b8f3-5861-4a37-bd18-cfbcc01826b7.jpg)
+**这让我想起曾经去看过的纳粹集中营，一颗颗的金牙从犹太死囚身上拔出，堆成小山，犹如现在的疫苗经济，谋财害命，惨无人道！**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/eac22a79-294e-4b9a-8eae-17217d893593-1.jpg)
+**几十年的安全老药羟氯喹一直被主流媒体和政府打压和无视，本来低成本就能预防和治疗中共病毒的医疗手段，却一直要劳命伤财去研发高价疫苗。明知道这是中共制造的超限生物武器，明知道共产党不灭，所有疫苗都是徒劳，明知道这些疫苗会夺取很多人的健康和生命，但魔鬼们一意孤行，这些当权者和利益集团们必定会被人们钉在历史的耻辱柱上！人类的大觉醒谁也无法阻挡！ **
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/aadf809d-67c5-4d6c-b76d-8a2bfcb32aa5-1.jpg)
+**郭先生直播中曾经说:“看辉瑞(Pfizer)的背后的所有投资股东；在看微信的投资股东； 在看看蚂蚁金服和陆金所；所有和中国有关系的美国、世界上有关系的股东，无非就是黑石、高盛、新加坡淡马锡、阿布扎比两家、沙特投资局、日本孙正义、然后是香港那两三家、澳大利亚的投资银行啊、 日本偶尔的一两家，就这20几家，永远不会变。偶尔会出来几个个人，那就是刘呈杰、贯君这号的。中国所有的投资里面就两种人，一是，中国的老常委和老政治局；二是，中国的新常委和新政治局。从未改变过。美国就是高盛、摩根斯坦利和华尔街这几大家分了多少。 就这二三十家，所有的上百亿、上千亿的游戏背后都是这帮人，都是国际大盗和国内大盗，就这么简单。”**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0ce7aef8-f476-448f-9dcc-a4d176916833.jpg)
+**新闻来源：[The Intercept](https://theintercept.com/2021/03/18/covid-vaccine-price-pfizer-moderna/)**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/04660500-2c9e-40bc-af55-e10063148825.jpg)
+编辑：蚂蚁兄弟；校对：阿伯塔；初审：神奇四侠；发稿：Ranting
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/70db36c5-2845-4e2c-a570-e8e733d3e31b.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1b4019bd-4d2b-4208-9e18-39dff74f49fd.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/94e81d93-c9d4-486b-9d5d-ec1ca28d468f-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cc88646a-188b-4414-84a3-6a88886b7982.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/27763c73-4c16-4b6e-b7b8-4679089c7d49.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/f4781187-0147-440d-95a1-2556ad9695a5-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2b226ca3-4c70-4187-9ec7-86b792e8e74c.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cacc00f8-d76a-4fbb-b53e-6d2c357d5b21.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ad03cda7-1f1b-49fd-af9f-dd47ded66671.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/42bd27b4-725d-402f-9d50-bee58edc00f9-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3b7a1a1a-6dbe-424c-a5d4-d457a4e858a1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/de528ae9-b853-4307-84f7-f00d5a2885de.jpg)
-
-发稿：Ranting
-
-本文观点均来自于作者，与GNEWS无关
-
-0
++1
