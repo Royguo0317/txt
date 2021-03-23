@@ -1,13 +1,12 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共视人命如草芥
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1002340/)
+## 3/18/2021郭先生直播:共产党的诡辩术无耻至极！
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1004643/)
 
-3/20/2021 中共视人命如草芥。
+3/18/2021郭先生直播：共产党的诡辩术无耻至极！
+共产党的诡辩术登峰造极，竟然说是爆料革命、新中国联邦让它们不敢承认所谓的真相 – 病毒泄露事件；九指妖是法律和精神投机者学习的样板，如果你恨你的孩子，就学九指妖
 
-By： 【秘密翻译组 G-Translators】
-
-
+By: 【秘密翻译组G-Translators】
 
 0

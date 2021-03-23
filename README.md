@@ -12,165 +12,162 @@
 
 ---
 
-### [【新闻宅急便】拉夫罗夫：俄罗斯和中国必须一起脱离美元体系](/content/gnews/1/README.md)
- ` 日本东京樱花团`
-
-### [【新闻宅急便】日美防长声明在台湾紧急时进行合作](/content/gnews/2/README.md)
- ` 日本东京樱花团`
-
-### [3/22/2021金融知识补脑-何为区块链](/content/gnews/3/README.md)
- ` 秘密翻译组G-Translators`
-
-### [2021年3月22日 文贵先生盖特 1](/content/gnews/4/README.md)
- ` 喜联盟七哥盖特组 Miles Guo’s Getter`
-
-### [中共央企刮起“打假风”是否在为逃避美国制裁铺垫？](/content/gnews/5/README.md)
- ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
-
-### [《路德社》精选新闻简讯：蓬佩奥对WHO-中共冠状病毒起源调查表示怀疑，并支持美国国务院关于武汉实验室的情报。](/content/gnews/6/README.md)
- ` 路德社精选`
-
-### [【超限基因武器】中共首例人造生物病毒SARS的真相](/content/gnews/7/README.md)
- ` 纽约香草山MOS01`
-
-### [进攻性导弹和灵活小部队 美军全面备战中共](/content/gnews/8/README.md)
- ` 喜马拉雅大使馆-经济金融组`
-
-### [《路德社》精选新闻简讯：中共病毒(COVID-19)疫情严峻 美民间呼吁国家广场建纪念碑](/content/gnews/9/README.md)
- ` 路德社精选`
-
-### [日本和德国将在未来几周签署情报共享协议](/content/gnews/10/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [《路德社》精選新聞簡訊：楊潔篪的泡面和三文治](/content/gnews/11/README.md)
- ` 路德社精选`
-
-### [《文贵说》| 图片连载（三十四）](/content/gnews/12/README.md)
- ` 文贵说｜Words From Miles`
-
-### [美国政要等每日重要信息0322.2021（持续更新）](/content/gnews/13/README.md)
- ` 喜馬拉雅的文雅 Wenya Himalaya`
-
-### [2020年利润滑坡后，沙特石油巨头阿美缩减花销](/content/gnews/14/README.md)
- ` 康州盘古喜马拉雅农场`
-
-### [《路德社》精选新闻简讯：“胡叼盘”：日本的确干了损害中共的事情 有什么不能骂的？](/content/gnews/15/README.md)
- ` 路德社精选`
-
-### [【詩歌】拯救](/content/gnews/16/README.md)
- ` 日本东京樱花团`
-
-### [中共对东南亚国家的水源战略 垄断雅鲁藏布江、澜沧江流域](/content/gnews/17/README.md)
- ` G-NEWS TAIWAN`
-
-### [【五月花报】中共科技巨头被怀疑通过CCP病毒核酸检测搜集美国人基因数据](/content/gnews/18/README.md)
- ` 波士顿五月花农场`
-
-### [【热点播报】从古代钱庄“收据”到现代数字货币，双G币系统应运而生](/content/gnews/19/README.md)
- ` 纽约香草山MOS01`
-
-### [【新闻简评】世界形成合力对抗来自中共的威胁！](/content/gnews/20/README.md)
- ` 日本东京樱花团`
-
-### [视频美国防部副部长：中共国军事日益增长威胁着地区和平与稳定](/content/gnews/21/README.md)
- ` 秘密翻译组G-Translators`
-
-### [视频中共疫苗的全民接种和免疫通行证](/content/gnews/22/README.md)
- ` 澳喜农场`
-
-### [3/22/2021财经快讯：多国加息，加拿大企业欲收购美国铁路公司](/content/gnews/23/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【各抒己见】中共国骂已名扬四海](/content/gnews/24/README.md)
- ` 日本东京樱花团`
-
-### [《路德社》精選新聞簡訊：中國央行官員謊稱數字人民幣對使用者隱私的保護是現行支付工具中等級最高的](/content/gnews/25/README.md)
- ` 路德社精选`
-
-### [【香草诗词汇】一样与不一样](/content/gnews/26/README.md)
- ` 纽约香草山MOS01`
-
-### [【热点播报】美国正在被摧毁——川普痛斥拜登政府移民政策](/content/gnews/27/README.md)
- ` 纽约香草山MOS01`
-
-### [【各抒己见】中共畸形教育……谁出的馊主意？](/content/gnews/28/README.md)
- ` 日本东京樱花团`
-
-### [2021年3月22日灭共要闻快报](/content/gnews/29/README.md)
- ` 秘密翻译组G-Translators`
-
-### [肥料抽查成摆设，合格率不升反降](/content/gnews/30/README.md)
- ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
-
-### [【文字版】路德时评2021.3.21晚:美日将在钓鱼岛海域举行大型军演](/content/gnews/31/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [视频中美阿拉斯加的政治演戏将加速唤醒世界](/content/gnews/32/README.md)
- ` 澳喜农场`
-
-### [驻马来西亚的朝鲜大使馆人员3月21日全体踏上不归路](/content/gnews/33/README.md)
- ` NewFOC`
-
-### [【每日快报】章家敦指出：中俄 &#8220;不尊重拜登&#8221;，正在&#8221;试探 &#8220;我们 2021.3.22](/content/gnews/34/README.md)
- ` 喜马拉雅-华盛顿DC农场`
-
-### [视频彼得·纳瓦罗评美国在阿拉斯加的惨败](/content/gnews/35/README.md)
- ` 秘密翻译组G-Translators`
-
-### [《路德社》精选新闻简讯：科学家们正在探索阿斯利康疫苗与血栓是否有关的新理论](/content/gnews/36/README.md)
- ` 路德社精选`
-
-### [视频中共视人命如草芥](/content/gnews/37/README.md)
- ` 秘密翻译组G-Translators`
-
-### [视频【路德时评粤语快报】3.17 美国务院对24位中港官员追加金融制裁 崔天凯明确中共不会向文明世界妥协](/content/gnews/38/README.md)
- ` 喜馬拉雅-粵語組`
-
-### [《路德社》精选新闻简讯：奥斯汀会晤印度防长强调美印&#8221;21世纪重要伙伴关系”](/content/gnews/39/README.md)
- ` 路德社精选`
-
-### [打油诗：胡编乱造，也不害臊](/content/gnews/40/README.md)
- ` 喜马拉雅巴黎七星农场`
-
-### [由国内经济数据看人民币走向](/content/gnews/41/README.md)
- ` 澳喜农场`
-
-### [爱是善良和温暖吗?](/content/gnews/42/README.md)
- ` 日本东京樱花团`
-
-### [高福推行群体免疫背后的阴谋](/content/gnews/43/README.md)
- ` 澳喜农场`
-
-### [喀秋莎新闻参考- 2021年3月21日(星期日)](/content/gnews/44/README.md)
+### [出离愤怒的中共反击制裁也无力](/content/gnews/1/README.md)
  ` HimalayaRussia`
 
-### [视频鲁迪·朱利安尼：我们在一个软弱的领导人治下似乎没有足够实力和中共抗衡](/content/gnews/45/README.md)
- ` 秘密翻译组G-Translators`
+### [西方联合制裁中共新疆种族灭绝罪行](/content/gnews/2/README.md)
+ ` HimalayaRussia`
 
-### [2021/03/22 英喜时事速递](/content/gnews/46/README.md)
- ` 英國倫敦喜莊園 Himalaya London Club UK`
+### [俄罗斯外长访华 呼吁减少对美元的依赖](/content/gnews/3/README.md)
+ ` JPHIMALAYA`
 
-### [【香港要闻】终审法院非常任法官包致金：不介入政治，会继续留任](/content/gnews/47/README.md)
- ` 喜馬拉雅-粵語組`
+### [俄外长称中共“疫苗护照”可能侵犯人权](/content/gnews/4/README.md)
+ ` HimalayaRussia`
 
-### [【香港要闻】香港文革2.0 残良而自肥](/content/gnews/48/README.md)
- ` 喜馬拉雅-粵語組`
-
-### [视频史蒂文·莫西博士批中共对人民的残暴和阿拉斯加会谈](/content/gnews/49/README.md)
- ` 秘密翻译组G-Translators`
-
-### [《路德社》精选主题专栏：中美冲突摆上台面，美国拉响5级警报](/content/gnews/50/README.md)
+### [《路德社》精选新闻简讯:台湾传2架F-5E战斗机疑擦撞坠海](/content/gnews/5/README.md)
  ` 路德社精选`
 
-### [立陶宛成立对台关系促进组织](/content/gnews/51/README.md)
+### [【热点播报】针对中共种族灭绝罪行 英美欧盟统一战线 制裁中共官员](/content/gnews/6/README.md)
+ ` 纽约香草山MOS02`
+
+### [《路德社》精选新闻简讯:俄罗斯和中共国蛇鼠一窝欲推动联合议程](/content/gnews/7/README.md)
+ ` 路德社精选`
+
+### [美国政要等每日重要信息0322.2021（持续更新）](/content/gnews/8/README.md)
+ ` 喜馬拉雅的文雅 Wenya Himalaya`
+
+### [2021年03月22日澳喜要闻（每日更新）](/content/gnews/9/README.md)
+ ` 澳喜农场`
+
+### [《文贵说》| 图片连载（三十五）](/content/gnews/10/README.md)
+ ` 文贵说｜Words From Miles`
+
+### [《路德时评》重磅解读俄外长说中俄必须彻底脱离美元体系，及习总加速师与金正恩互致口信](/content/gnews/11/README.md)
+ ` 香柏树`
+
+### [3月22日上午十时许番禺区明经村村民引爆村委造成7死16伤](/content/gnews/12/README.md)
+ ` NewFOC`
+
+### [中共宣布对欧盟官员实施报复性制裁](/content/gnews/13/README.md)
  ` 喜马拉雅巴黎七星农场`
 
-### [视频朱利安尼认为美国应该制裁出席阿拉斯加会谈的中共官员](/content/gnews/52/README.md)
+### [《路德社》精选新闻简讯：中共自嗨谈底气：中纪委评“两个辛丑年的对比刷屏”-背后有四大底气！](/content/gnews/14/README.md)
+ ` 路德社精选`
+
+### [中共官媒利用病毒煽动反亚裔活动](/content/gnews/15/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [风起云涌](/content/gnews/16/README.md)
  ` 秘密翻译组G-Translators`
 
-### [高福回应“西安确诊病例接种疫苗后仍感染”，中共专家不要脸狂洗地！](/content/gnews/53/README.md)
+### [《路德社》精选新闻简讯：彭培奥：病毒的真相终将被揭示](/content/gnews/17/README.md)
+ ` 路德社精选`
+
+### [“中共病毒四大不要脸”之张文宏：造假以色列数据骗人打疫苗](/content/gnews/18/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [【观点】G系列与世界联合政府](/content/gnews/54/README.md)
- ` 墨尔本雅典娜农场`
+### [法国人民载歌载舞，抵制再次封城](/content/gnews/19/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [数百波斯尼亚塞族人抗议加强抗病毒措施](/content/gnews/20/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [锁定期将延长至4月18日-复活节无例外](/content/gnews/21/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [视频3/14/2021 郭先生直播：中共治下的中国就是人间地狱！](/content/gnews/22/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [芬兰指控某中（共）国团伙对其议会实施网络攻击](/content/gnews/23/README.md)
+ ` 喜马拉雅巴黎七星农场`
+
+### [北马其顿宵禁再延长两周](/content/gnews/24/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [中共间谍科学家被抓为欧洲情报界敲响警钟](/content/gnews/25/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频3/14/2021 郭先生直播：对父母最好的孝敬方式是什么？](/content/gnews/26/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [捷克扩大雇员大规模强制检测](/content/gnews/27/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [用美国内部种族歧视问题混淆追责中共病毒及其“种族灭绝罪”](/content/gnews/28/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频3/14/2021郭先生直播：中共的计划生育是人类上最大的种族、人类大屠杀！](/content/gnews/29/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [美国联邦通信委员会禁止中国联通、太平洋网络在美运营](/content/gnews/30/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [【三票专栏】中共会与俄罗斯私奔吗？](/content/gnews/31/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [美中决战会是在风云诡谲一触即发的台海吗?](/content/gnews/32/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [拜登给中共送的都是大礼！](/content/gnews/33/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [视频3/10/2021郭先生直播：共产党不但要“优化”中国人、还要给全世界人民贴标签！](/content/gnews/34/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [视频3/10/2021 郭先生直播:蔡奇为什么敢提低端、中端人口这个概念？](/content/gnews/35/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [德国卫生部长走钢丝](/content/gnews/36/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [视频3/18/2021郭先生直播:共产党的诡辩术无耻至极！](/content/gnews/37/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [中共贼喊捉贼禁令特斯拉](/content/gnews/38/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【史海今钩】浅谈中共推行“集体主义”观念对“自由意志”的阉割](/content/gnews/39/README.md)
+ ` 纽约香草山MOS03`
+
+### [视频3/18/2021 郭先生直播:&#8221;火币&#8221;是中共潘多拉盒子计划的一部分](/content/gnews/40/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [中共在美日部长级会谈之际秀军事肌肉](/content/gnews/41/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [观疫情期间法国弱势群体所得福利有感](/content/gnews/42/README.md)
+ ` 喜马拉雅德国慕尼黑感恩农场`
+
+### [中共“灭白计划”之迟浩田系列五——中共的效仿德国而高于德国](/content/gnews/43/README.md)
+ ` 旧金山金喜准农场 Himalaya San Francisco Golden Farm`
+
+### [从小米的兴衰揭露中共控制、渗透全世界的野心](/content/gnews/44/README.md)
+ ` 喜马拉雅巴黎七星农场`
+
+### [中共国最低生活保障是“假保障”](/content/gnews/45/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
+
+### [普京称克里米亚并入是因俄内部实力增强](/content/gnews/46/README.md)
+ ` HimalayaRussia`
+
+### [郭爆料串珠（209-2/2）中共在美军基地周围布下了天罗地网（秘密军事基地）](/content/gnews/47/README.md)
+ ` 喜马拉雅德国慕尼黑感恩农场`
+
+### [郭爆料串珠（209-1/2）中共在美军基地周围布下了天罗地网（秘密军事基地）](/content/gnews/48/README.md)
+ ` 喜马拉雅德国慕尼黑感恩农场`
+
+### [英称提高核能力为应对俄导弹防御系统](/content/gnews/49/README.md)
+ ` HimalayaRussia`
+
+### [我们砥砺前行](/content/gnews/50/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [俄外长称制裁成为美外交的“本能”](/content/gnews/51/README.md)
+ ` HimalayaRussia`
+
+### [蓬佩奥质疑世卫组织中共病毒起源调查](/content/gnews/52/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [视频【每日快讯】21/03/2021:G系列社交媒体平台将推出打赏功能](/content/gnews/53/README.md)
+ ` GM132 每日快訊`
 

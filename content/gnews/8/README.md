@@ -1,63 +1,118 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 进攻性导弹和灵活小部队 美军全面备战中共
-` 喜马拉雅大使馆-经济金融组` [轉載自GNews](https://gnews.org/zh-hans/1002572/)
+## 美国政要等每日重要信息0322.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1002625/)
 
-编撰：叶落知秋（文秋），PEACEMAN
-复核：七角星
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/t01945710b15bdd837b-1.jpg)
+作者：康州盘古农场 喜马拉雅的文雅
 
-近年来，中共打着经济旗号在全球搞军事扩张引发国际关注，新冠病毒大流行更令全球看到中共的谎言和劣迹。从川普政府开始至现在的拜登政府，美国开始从部署进攻性导弹、灵活性小部队、军事情报等多方面，全面备战中共。
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0322-1.jpeg)
 
-部署进攻性导弹完善防御系统 中共一举一动会有代价
+图片来源：康州盘古农场 霹雳年
+### 向拜登发问
 
-3月9日，美国印度太平洋司令部司令官、四星上将菲利普·戴维森（Philip S. Davidson）在参议院军事委员会就美国在印太地区的指挥态势作报告。他认为，21世纪的最大威胁来自中共，美国最紧迫的国防需求是在亚洲部署能够威胁中共的远程导弹，为来自中共的潜在军事攻击提供全方位保护。
+截止3月21日美国现任总统乔-拜登执政60天从未进行公开新闻招待会，当日他接受了ABC新闻乔治（George Stephanopoulos）面对面访谈。美国黑人律师、福克斯媒体人塔拉尔（Leo Terrell）当日发推称：
 
-戴维森上将表示随着北京不断增加导弹和其它先进武力，亚洲的力量平衡正在向中国转移，而美国在该地区的力量基本上保持静止。他说：“由于这种不平衡，风险正在积累，这可能使中共在我们的军力有可能做出有效反应之前，有胆量单方面改变现状。”
+“第60天：拜登政府。 拜登总统：你喜欢打种族牌。在你执政的每一天，我都会给你发一条推特，问你两个问题。
 
-因此，美国需要补充射程大于310英里的进攻性导弹才能完善现有的导弹防御系统。戴维森说：“我们必须证明，中共可能抱有的任何野心以及对关岛的任何威胁都会付出代价。”
+“美国的系统性歧视存在于哪里？ 你为消除系统性歧视做了什么？”
 
-戴维森上将补充说，需要进攻能力来“让中共知道他们要做的事情成本太高，并使他们对自己的成功产生怀疑”。他用棒球术语来解释进攻性导弹的作用：“如果我不能得分，那我就无法赢得比赛。我们必须具有进攻能力，这会使潜在的对手对他们可能在该地区进行的任何恶性活动进行再三思考。这就是进攻性火力发挥作用的地方。”
 
-除了远程导弹外，美国印太司令部还希望在太平洋岛上部署新的联合火力作战管理网络，该网络将融合空中导弹防御系统、夏威夷岛上的国土防御大型雷达，以及部署在太平洋岛国帕劳（Palau）的战术超视距雷达。
 
-分散灵活小分队 机智应对中共导弹
 
-面对中共在陆、海、空、太空、网络和信息等各个领域的快速全面军事建设，戴维森将军认为，美国还需要更强大和更紧密的联盟，“四方集团”是加强该地区联盟的重要一步。
 
-与此同时，美国将在印度和太平洋部署更广泛的军事力量，而不是将其集中在少数几个基地，以达到保护美军不受中共先进导弹能力的影响。
+> Day 60: Biden Administration: President Biden: You love to play race card: Each Day of your Administration, I will send you a tweet which will ask you two questions: Where does systemic discrimination exist in American? What have you done to eliminate systemic discrimination?
+> — TheLeoTerrell (@TheLeoTerrell) [March 21, 2021](https://twitter.com/TheLeoTerrell/status/1373625612338786304?ref_src=twsrc%5Etfw)
 
-“现在，我们正在从以东北亚和关岛为焦点的服务中心适应到更加融合而分散的联合部队规划过程中。”戴维森将军说，“这包括修改我们与盟国和伙伴的印度太平洋部队编制，以应对中共迅速推进的现代化。”
 
-这种新的部队态势必须“创造出规模庞大而没有聚点的优点，并通过在战区的广度和深度上部署向前推进的联合部队，同时兼顾其杀伤力和生存能力来实现”。
 
-《日经亚洲评论》报导，自冷战结束以来，美军对效率的关注导致美军部队集中在常驻基地，例如美国海军第7舰队驻扎在日本的横须贺；驻扎在日本的5万名美国军事人员中，有一半以上居住在冲绳；根据国会研究处（Congressional Research Service）2019年的报告，约有11,000名军人及相关民众居住在关岛。但是集中在一个地方的大部队很容易受到精确导弹的打击。
+ABC主播乔治访谈乔拜登时，拜登的回答让人汗颜，媒体人塔拉尔转推时引用拜登的答复说：“乔治，让我休息一下，伙计，我刚到这儿六周！”
 
-因此，新的规划将让美军更加灵活应战。戴维森说，目标是建立一支“可指挥的如意灵活部队”，并具有“多域火力”深度以获得优势。
 
-影响力作战 美推进军事情报支援行动
 
-戴维森将军还揭露了中共在信息战和虚假信息行动方面的细节。他认为中共拥有庞大信息造假机器，包括常规媒体和社交媒体，有近百万人在破坏美国利益，并为中共的利益争夺话语权，还在美国的盟友和伙伴之间挑拨离间。
+> Joe Biden Tells George Stephanopoulos: ‘Gimme a Break Pal! I’ve Only Been Here Six Weeks!’ [https://t.co/LXSEV3Q96S](https://t.co/LXSEV3Q96S)
+> — TheLeoTerrell (@TheLeoTerrell) [March 22, 2021](https://twitter.com/TheLeoTerrell/status/1373970651984359429?ref_src=twsrc%5Etfw)
 
-美国海军现役军事检察官、太平洋特种作战司令部法律顾问埃里卡·德拉帕拉·格伦（Erika De La Parra Gehlen）和网络与创新政策研究所（CIPI）教授兼所长弗兰克·史密斯三世（Frank L. Smith III）联合撰文分析了美国在应对中共信息情报战方面的策略。他们认为，中美之间的战斗大部分是在信息环境中展开的，而美国海军恰恰忽略了军事情报支援行动。
 
-两位专家在文章中指出，军事情报支援行动在《2013～2028美国海军情报优势路线图》、《2020年国防部海军情报优势愿景》和《2020～2025年美国舰队网络司令部/第十届美国舰队的战略计划》中都没有讨论。美国海军使命基本任务的开发、评估、报告和认证中缺少军事情报支援行动。
 
-他们介绍，军事情报支援行动的目的是说服包括对手、朋友和第三方在内的外国受众。他们有选择地使用信息来影响个人或团体的态度、观点以及最终的行为。在战斗中，军事情报支援行动能够降低敌人的战斗力，减少附带损害，并增加当地战友的支持。
+《自由时报》21日发表文章刊登了卡拉尔接受福克斯周六晚法官珍妮-皮罗采访时对拜登的评论。文章引用他的话称：
 
-第二次世界大战期间，军事情报支援行动取得过明显成就。1942年8月，埃利斯·扎卡里亚斯（Ellis Zacharias）上尉在海军情报局内建立了一个秘密的心理战支部，代号为OP-16-W。他的著作《秘密任务：一位情报官的故事》描述了这小群水手如何影响了德国、意大利和日本海军，并为盟军带来优势。
+“当你从整体上看，乔-拜登有问题。我没有投票给这个人，但他是我们的总统。但现在他是个尴尬的人。””他是一个尴尬，不仅是这个国家，而且是全世界的尴尬。”
 
-两位专家因此建议，为了在信息环境中竞争，美国海军应与海军陆战队和海岸警卫队合作，以改善美国海军的影响力作战能力。美国海军陆战队于2009年开始恢复其军事情报支援行动。在2017年，美国海军陆战队设立了远征军情报小组，具有了军事情报支援行动的能力。在2018年，心理战术行动已成为海军陆战队队员入伍的主要专业。
+他还说：“他一直称卡马拉-哈里斯为’哈里斯总统’，这就有问题了……再加上前几天我们看到的他摔倒的情况，乔-拜登就有问题了。我想听听他的白宫医生怎么说。”
 
-两位专家因此表示，美国海军陆战队将帮助填补美国海军影响力行动的空白，但这要求美国海军变得更为积极，并在信息战中发挥海军的作用。因为“中共并不等待美国海军去适应”。
+他宣布，“最后，这个国家最糟糕的事情就是卡马拉-哈里斯这个‘社会主义者’成为总统。这是个可怕的决定。”
 
-点评：邪共不除，世界难有安宁，美国的军事实力绝对地表最强，但中共的无底线也绝对地表最LOW。面对中共无底线的超限战，美国的内部已被严重撕裂且深陷CCP病毒的泥潭而难以脱身。
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/leo.png)[https://www.thefreedomtimes.com/2021/03/21/leo-terrell-when-you-look-at-the-totality-of-the-situation-something-is-wrong-with-joe-biden/](https://www.thefreedomtimes.com/2021/03/21/leo-terrell-when-you-look-at-the-totality-of-the-situation-something-is-wrong-with-joe-biden/)
 
-面对CCP病毒的肆虐，面对美国即将崩塌的经济，面对本周阿拉斯加会谈中中共官员对美国外交官近乎羞辱般的教训，面对中共在台湾问题上的咄咄逼人等情况，美国的保守势力空前凝聚并在分秒必争地唤醒更多灭共的民意，可以想象这种被唤醒后的汹涌民意将逼迫美国和西方的绥靖派再难有和中共勾兑的空间，而美国最近在印太一系列行动和访问也表示，美国政客也在病毒上面达成一致，下定决心要在印太地区加大军事联盟，以来遏制中共嚣张的气焰，未来灭共将是必然！
 
-参考链接:
-[进攻性导弹和灵活小部队 美军全面备战中共](https://www.epochtimes.com/gb/21/3/20/n12823488.htm/amp?__twitter_impression=true)
+
+
+### 白宫为一名华人女律师背书
+
+美中“厕所会晤”刚结束，美国遭受中共羞辱的风波尚未平息，中共新一轮渗透或许已经开始酝酿？…… 3月21日白宫发言人纳得发推称：
+
+“我个人的 #巾帼不让须眉 之一的人是郭建梅（音译），她是中国法律宣传的先驱。今天，她是中国最著名的女律师。作为一个充满激情的活动家，郭建梅代表那些在中国被排除在法律途径之外的人发言。”
+
+
+
+> One of my personal [#WomenOfCourage](https://twitter.com/hashtag/WomenOfCourage?src=hash&amp;ref_src=twsrc%5Etfw) is Jianmei Guo, a pioneer of legal advocacy in China. Today ​she is the country's best-known female lawyer. A passionate activist, Jianmei speaks on behalf of those who have been excluded from legal access in China.
+> — Ned Price (@StateDeptSpox) [March 21, 2021](https://twitter.com/StateDeptSpox/status/1373657036626493441?ref_src=twsrc%5Etfw)
+
+
+
+### 班农先生的诉讼案
+
+22日Newsmax 发推一则19日的新闻：
+
+前总统助理史蒂夫-班农先生要求联邦法官驳回对他诈骗人们对墨西哥私人边境墙捐款的指控，并称时任总统川普对此案的赦免是最终的决定。
+
+班农的律师罗伯特-科斯特洛周四提交了驳回动议。但是纽约的联邦检察官反对驳回，并认为，赦免”涉及宽恕，而不是遗忘”，”不会抹杀可能的原因或撤销起诉。
+
+此前国家安全顾问迈克尔-弗林（Michael Flynn）和说唱歌手莉尔-韦恩（Lil Wayne，又名小德维恩-迈克尔-卡特）案件的法官在川普给予他们特赦后，驳回了对他们的起诉。
+
+
+
+> Steve Bannon has asked a federal judge to dismiss an indictment on fraud charges because he was pardoned by Trump: [https://t.co/aPJ2BHKkS3](https://t.co/aPJ2BHKkS3) [pic.twitter.com/XGujx8wywJ](https://t.co/XGujx8wywJ)
+> — Newsmax (@newsmax) [March 22, 2021](https://twitter.com/newsmax/status/1373893469069062146?ref_src=twsrc%5Etfw)
+
+
+[https://www.newsmax.com/politics/bannon-pardon-indictment-dismiss/2021/03/19/id/1014502/](https://www.newsmax.com/politics/bannon-pardon-indictment-dismiss/2021/03/19/id/1014502/)
+### 蓬佩奥对美国的信心
+
+3月21日蓬佩奥国务卿推文如下：
+
+
+
+> When it came to securing American freedom abroad, we treated the world as it was, not as we wished it to be. When the time came, we led and were TOUGH.
+> 
+> Strength deters bad guys, weakness begets war.
+> — Mike Pompeo (@mikepompeo) [March 22, 2021](https://twitter.com/mikepompeo/status/1373988498760404994?ref_src=twsrc%5Etfw)
+
+
+
+“当涉及到确保美国在海外的自由时，我们对待世界的态度就是它原来的方式，而不是我们希望它成为的那样。当时机成熟时，我们来领导，而且是强硬的。
+
+“力量能阻挡坏人，弱点能产生战争。”
+
+小议，美国当前的弱点何在？就在现任拜登政府及其对待中共卑躬屈膝的态度。是否在蓬佩奥先生看来，拜登政府暴露的弱点将激化美国内部矛盾，在解决美国对外国际利益的问题时，当国内矛盾激化时，正义必将掌权，主导战斗，同时最终战胜邪恶……
+
+
+
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+
+**欢迎关注和支持康州盘古农场推特公众号及时掌握资讯**
+
+### [盘古七星舰队PanGu Heptastar Fleet](https://twitter.com/PanguF)
+
+
 
 0

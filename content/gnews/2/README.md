@@ -1,36 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻宅急便】日美防长声明在台湾紧急时进行合作
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1003110/)
+## 西方联合制裁中共新疆种族灭绝罪行
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1005727/)
 
-翻译：喜马拉雅东京樱花团 / Porsche
+俄罗斯莫斯科喀秋莎农场   银河
 
-![](https://lh6.googleusercontent.com/EXO2k5QrSqlRQCMLBy8NEYqpYXkJknHQArlUSEmm-1IBq-xXfqjG77_3jZeppcQ3OmtoIz2oixSF0hJyMWkZnMfISNH2lddmDwI1p5m7kfO5b2vegGrUQ0osGvdtmBXp6d6NkhZK)
-[图片来源](https://asia.nikkei.com/Politics/International-relations/US-China-tensions/Japan-U.S.-defense-chiefs-affirm-cooperation-over-Taiwan-emergency)
+编辑上传   水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/E-10.jpg)beltandroad.news
+路透社报道，美国、欧盟、英国和加拿大首次联合行动，宣布对在新疆侵犯人权的中共国官员实施制裁。
 
-日本政府消息人士周六表示，日本和美国防长在最近于东京举行的会议上同意，在中国和台湾发生军事冲突的情况下进行密切合作。
+周一，欧盟率先对四名中共国官员和一家实体实施制裁，英国和加拿大随后也做出了类似决定。这些协调一致的努力似乎是美国联合外交的努力与中共对抗的早期成果。美国政府高级官员说，他们每天都就与中共有关的问题与欧洲各国政府接触。
 
-消息人士说，美国国防部长劳埃德-奥斯汀(Lloyd Austin)周二（16日）与日本防卫大臣岸信夫(Nobuo Kishi)举行会谈时提出了这一问题，不过没有讨论两国应如何协调应对这种紧急情况。
+美国国务卿布林肯本周在布鲁塞尔与欧盟和北约部长举行会议之前发表声明说:“在国际谴责日益强烈的情况下，(中共)继续在新疆犯下种族灭绝和反人类罪行。” 西方政府正在寻求让北京对大规模拘留维吾尔族穆斯林罪行负责。
 
-东京对“中国与台湾关系”的政策是鼓励对话，以和平解决两岸紧张关系。台湾和中国大陆自1949年因内战而分裂以来，一直是各自为政。中国一直认为台湾是自己一个待统一的省份。
+加拿大外交部表示:“越来越多的证据表明，中共政府主导了系统性侵犯人权行为。” 加拿大和英国的外交部长与布林肯发表联合声明说，三国一致要求北京结束其在新疆的“镇压行为”。他们表示，他们掌握了“压倒性”证据，“包括卫星图像、目击者证词和中共政府自己的文件”。
 
-关于台湾问题，岸信夫、奥斯汀、美国国务卿布林肯（Antony Blinken）和日本外相本木敏光（Toshimitsu Motegi）在周二举行会谈后发表声明，呼吁台海的和平与稳定。
+澳大利亚和新西兰的外交部长对越来越多中共在新疆侵犯人权的可靠报道表示严重担忧。对加拿大、欧盟、美国和英国的制裁表示支持。这是欧盟几十年来的首次重大制裁。
 
-在早前与奥斯汀的会晤中，岸信夫提到，最近中国战机越过台湾海峡中间线的数量增加，有必要研究日本自卫队在台湾受到中国侵略时，与保卫台湾的美军合作的方法。
+北京出离愤怒，立即对欧盟采取了范围更广的惩罚性措施进行回击。制裁范围包括欧洲议员、外交官、机构和家庭，并禁止欧盟企业与中共国进行贸易。
 
-东京一直在审查，当中国和台湾发生危机时，发布自卫队派遣令保护美国军舰和军机的可行性，因为台湾海峡地理位置上接近日本领土，那里可能发生的武装冲突，会影响日本公民的安全。
+欧盟的制裁标志着对中共态度从软弱转向为强硬。欧盟被中共视为友好的贸易伙伴，现在指责中共有系统地滥用权利和自由。欧盟27国政府都同意欧盟的惩罚性措施，但匈牙利外交部长彼得·希贾托称这些措施“有害”且“毫无意义”。
 
-原文资料：
+参考链接：
 
-[Nikkei News](https://asia.nikkei.com/Politics/International-relations/US-China-tensions/Japan-U.S.-defense-chiefs-affirm-cooperation-over-Taiwan-emergency)
+[https://www.reuters.com/article/us-usa-china-eu-sanctions-idUSKBN2BE2MC](https://www.reuters.com/article/us-usa-china-eu-sanctions-idUSKBN2BE2MC)
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
+[https://www.reuters.com/article/us-eu-china-sanctions/eu-china-impose-tit-for-tat-sanctions-over-rights-abuses-idUSKBN2BE1AI](https://www.reuters.com/article/us-eu-china-sanctions/eu-china-impose-tit-for-tat-sanctions-over-rights-abuses-idUSKBN2BE1AI)
 
-*校对：喜马拉雅东京樱花团 / 東洋武士*
-*责任编辑：喜马拉雅东京樱花团 / 文小白*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews.org/wp-content/uploads/2021/03/二维码-3.jpg)
-0322C142e
-
-+1
+0
