@@ -1,85 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210323（图片新闻）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1008616/)
+## 欧盟为发展与俄罗斯的关系创造了条件
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1009190/)
 
-- 作者：2020喜马拉雅
-- 封面：透明的遮羞布
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-23_18-34-19-1.jpg)[fotosearch.com](https://www.fotosearch.com/CSP352/k3528303/)
+03月22日，欧盟理事会主席夏尔·米歇尔在与俄罗斯总统普京对话时表示，双方存在严重分歧。米歇尔解释说，如果俄罗斯履行明斯克协议的条件，停止对西方资源的网络攻击，并尊重人权，那么与俄罗斯的关系就能得到更积极的发展。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+欧盟委员会新闻处表示，双方讨论了反腐败基金会（一个在俄罗斯被认定为外国代理人的组织）创始人阿列克谢·纳瓦尔尼事件的情况。报道指出，“查尔斯·米歇尔重申，欧盟呼吁俄罗斯当局释放纳瓦尔尼先生，并对暗杀他的企图进行透明的调查。”
 
-**西班牙2021年3月23日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
+米歇尔和普京还就中共病毒流行和疫苗接种以及其他地区和全球问题交换了意见。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2000.jpg)
+2月初，欧盟外交与安全政策高级代表约瑟夫·博雷尔在莫斯科与俄罗斯外长拉夫罗夫举行会谈。此举将是欧盟外交首脑三年来的首次访问。在会谈中，博雷尔表达了欧盟对纳瓦尔尼情况的担忧，纳瓦尔尼在伊夫·罗彻案中被判处缓刑，回到俄罗斯后被换成了实刑。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/6d651d1d-8502-4d77-bdb7-a35048108497-6.jpg)
+在博雷尔访问莫斯科后，拉夫罗夫表示，如果欧盟实施新的制裁，俄罗斯可能会切断与欧盟的关系。部长说，国家不希望与世界隔绝，但必须为此做好准备。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ce556ab0-8b32-4f14-bb5c-59073ab1c851-5.jpg)
+3月初，欧盟就纳瓦尔尼被迫害一事对俄罗斯官员实施个人制裁。这些人包括调查委员会主席亚历山大·巴斯特里金（Alexander Bastrykin）、总检察长伊戈尔·克拉斯诺夫（Igor Krasnov）、联邦监狱管理局局长亚历山大·卡拉什尼科夫（Alexander Kalashnikov）和俄罗斯联邦国民警卫队局长维克托·佐洛托夫（Viktor Zolotov）。所有的人都被禁止进入欧盟，他们的欧洲资产将被冻结，联盟的居民不能为他们提供任何金融服务。继欧盟制裁俄罗斯之后，美国也对俄罗斯进行了制裁。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b9a2badc-7278-45ac-bd3d-10bbbd535241.jpg)
+俄总统新闻秘书德米特里·佩斯科夫称，实施制裁的国家应该思考这种政策的有效性。在他看来，这样做没有效果，只会恶化双边关系。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3d137245-0184-4129-ac2b-f092bd97055b-2.jpg)
+参考链接：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/fc03cbcd-0a17-4214-9c28-c5e061dd0f2c-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d6021b20-0d11-4578-b28e-3137b1b2b5da.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/fbf4ffd6-442d-40f6-a02a-81cf269530b6-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/70fd7cc5-0e41-4b0a-add9-97c62eeacb0e-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/38446eb9-5aa3-462d-9153-5499c036410e.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/7bfb011f-73a7-4349-8425-5e65e53e01b2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/066d7600-601b-4901-9ce8-4e20bf5d2f76.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d0dd968d-e34e-42b1-8a95-818957b313c9.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/017bf42f-7168-4219-874a-3d8e977bad5e-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/26361718-cf4d-4aeb-8269-e2d25eb3cc9f.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e8324af7-3521-46e9-aec8-6533a83d0b73-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4424b8f3-5861-4a37-bd18-cfbcc01826b7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/eac22a79-294e-4b9a-8eae-17217d893593-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/aadf809d-67c5-4d6c-b76d-8a2bfcb32aa5-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0ce7aef8-f476-448f-9dcc-a4d176916833.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/04660500-2c9e-40bc-af55-e10063148825.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/70db36c5-2845-4e2c-a570-e8e733d3e31b.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1b4019bd-4d2b-4208-9e18-39dff74f49fd.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/94e81d93-c9d4-486b-9d5d-ec1ca28d468f-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cc88646a-188b-4414-84a3-6a88886b7982.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/27763c73-4c16-4b6e-b7b8-4679089c7d49.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/f4781187-0147-440d-95a1-2556ad9695a5-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2b226ca3-4c70-4187-9ec7-86b792e8e74c.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cacc00f8-d76a-4fbb-b53e-6d2c357d5b21.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ad03cda7-1f1b-49fd-af9f-dd47ded66671.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/42bd27b4-725d-402f-9d50-bee58edc00f9-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3b7a1a1a-6dbe-424c-a5d4-d457a4e858a1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/de528ae9-b853-4307-84f7-f00d5a2885de.jpg)
-
-发稿：Ranting
-
-本文观点均来自于作者，与GNEWS无关
+[https://www.rbc.ru/rbcfreenews/6058c6739a7947878ff10b45](https://www.rbc.ru/rbcfreenews/6058c6739a7947878ff10b45)
 
 0

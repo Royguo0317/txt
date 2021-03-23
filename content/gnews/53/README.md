@@ -1,39 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国任意关押加拿大人唐明凯（Kovrig）并被指控谍罪
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1008778/)
+## 慧眼看世界20210323（图片新闻）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1008616/)
 
-翻译：康州盘古农场-WZ
-校对：康州盘古农场-Mike Li
-编辑：康州盘古农场-轰炸机
+- 作者：2020喜马拉雅
+- 封面：透明的遮羞布
 
-据路透社报道：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-257.jpg)
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-北京(路透社)- 田友伦报道迈克尔·唐明凯(Michael Kovrig)因间谍指控在中共国被关押了两年多，目前正在北京的一家闭门法庭接受审判。几天前，美国在阿拉斯加与中共国的紧张双边会谈中对他的案件表示担忧。
+**西班牙2021年3月23日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
 
-2018年12月，在加拿大警方根据美国的逮捕令拘留了中国科技公司华为技术公司(Huawei Technologies)首席财务官孟晚舟后不久，中国逮捕了前外交官唐明凯(Kovrig)和另一名加拿大人迈克尔·斯帕沃(Michael Spavor)。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2000.jpg)
 
-北京坚称，这些拘留与孟的拘留无关，孟目前仍被软禁在温哥华，因为她正在与被引渡到美国作斗争。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/6d651d1d-8502-4d77-bdb7-a35048108497-6.jpg)
 
-加拿大驻华大使馆临时代办吉姆·尼克(Jim Nickel)在北京法院外告诉记者，“我们已多次要求旁听迈克尔·唐明凯(Michael Kovrig)的听证会，但以国家安全为由被拒绝”。“现在我们看到，法庭程序本身并不透明。我们对此感到非常困扰。”
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ce556ab0-8b32-4f14-bb5c-59073ab1c851-5.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2-100.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/b9a2badc-7278-45ac-bd3d-10bbbd535241.jpg)
 
-站在Nickel旁边的美国驻华大使馆临时代办William Klein对记者说：“美国总统(乔)拜登和(国务卿安东尼)布林肯已经表示，在处理迈克尔唐明凯（Michael Kovrig）和迈克尔斯帕沃（Michael Spavor）的案件时，美国将把这两个人当做美国公民对待。“
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3d137245-0184-4129-ac2b-f092bd97055b-2.jpg)
 
-他说：“我们来这里是为了表示团结。任意拘留不是办法。“另一名外交官告诉路透社，她拒绝透露姓名，因为她没有被授权公开谈论加拿大人的审判。
- 
-今年2月，50多个国家签署了一份声明，谴责出于政治目的任意拘留外国公民的行为。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/fc03cbcd-0a17-4214-9c28-c5e061dd0f2c-2.jpg)
 
-周一虽然有大量的警力防护在北京第二中级法院外，但是来自美国、英国、德国、澳大利亚、荷兰和捷克等26个国家的28名外交官以示团结，一些外交官摘下口罩，在法庭外摆姿势合影，每个人都喊出自己代表的是哪个国家，以帮助记者识别他们。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/d6021b20-0d11-4578-b28e-3137b1b2b5da.jpg)
 
-评：众所周知，两个加拿大的迈克被中共国任意关押2年多。看看孟晚舟在加拿大的滋润生活：她在加拿大已经被保释在家有条件的候审，她的行为虽受限制，但是她是可以在家跟孩子先生一起生活，可以跟朋友出去喝茶，吃饭，购物，上学（据报道她已经在哥伦比亚大学注册学习），请最好的律师为她辩护。中领事馆的人时常去她家问寒问暖。她根据法庭安排出庭，每次出庭都是保镖随身护送，律师上法庭辩护。她在当地的媒体镜头前总是一身名牌（可惜她的一身名牌都不是中国产的），派头十足。再看看两名加拿大人在中国的待遇是什么？中共国不允许大使、领事探视、不允许请律师、不允许家人探视，被逮捕的很长一段时间都不透露关押他们的地方。在加方多次交涉后，允许加拿大官员一个月探视30分钟。3月19日和3月21日对这两名加拿大人的庭审是闭门的，不允许加拿大官员旁听，没有律师辩护，请问口口声声说有法制的中共国做的这些无理无法的事情，怎么能够被世界公认为大国？他们以为用奴役中国人民的方式来对付全世界也是有效的吗？很多国家都已经看不过了，那些在北京法庭外的来自20多个国家的外交官们已经集结以示团结。（以上仅代表评论观点）
+![]()![](https://gnews.org/wp-content/uploads/2021/03/fbf4ffd6-442d-40f6-a02a-81cf269530b6-1.jpg)
 
-文章来源：
+![]()![](https://gnews.org/wp-content/uploads/2021/03/70fd7cc5-0e41-4b0a-add9-97c62eeacb0e-1.jpg)
 
-[https://www.reuters.com/article/us-canada-china-idUSKBN2BD0UQ](https://www.reuters.com/article/us-canada-china-idUSKBN2BD0UQ)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/38446eb9-5aa3-462d-9153-5499c036410e.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/7bfb011f-73a7-4349-8425-5e65e53e01b2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/066d7600-601b-4901-9ce8-4e20bf5d2f76.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/d0dd968d-e34e-42b1-8a95-818957b313c9.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/017bf42f-7168-4219-874a-3d8e977bad5e-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/26361718-cf4d-4aeb-8269-e2d25eb3cc9f.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/e8324af7-3521-46e9-aec8-6533a83d0b73-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4424b8f3-5861-4a37-bd18-cfbcc01826b7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/eac22a79-294e-4b9a-8eae-17217d893593-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/aadf809d-67c5-4d6c-b76d-8a2bfcb32aa5-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/0ce7aef8-f476-448f-9dcc-a4d176916833.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/04660500-2c9e-40bc-af55-e10063148825.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/70db36c5-2845-4e2c-a570-e8e733d3e31b.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1b4019bd-4d2b-4208-9e18-39dff74f49fd.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/94e81d93-c9d4-486b-9d5d-ec1ca28d468f-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cc88646a-188b-4414-84a3-6a88886b7982.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/27763c73-4c16-4b6e-b7b8-4679089c7d49.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/f4781187-0147-440d-95a1-2556ad9695a5-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2b226ca3-4c70-4187-9ec7-86b792e8e74c.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cacc00f8-d76a-4fbb-b53e-6d2c357d5b21.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ad03cda7-1f1b-49fd-af9f-dd47ded66671.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/42bd27b4-725d-402f-9d50-bee58edc00f9-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3b7a1a1a-6dbe-424c-a5d4-d457a4e858a1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/de528ae9-b853-4307-84f7-f00d5a2885de.jpg)
+
+发稿：Ranting
+
+本文观点均来自于作者，与GNEWS无关
 
 0
