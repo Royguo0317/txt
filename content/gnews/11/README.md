@@ -1,51 +1,118 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读俄外长说中俄必须彻底脱离美元体系，及习总加速师与金正恩互致口信
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1005321/)
+## 美国政要等每日重要信息0322.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1002625/)
 
-直播视频：
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+
+作者：康州盘古农场 喜马拉雅的文雅
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0322-1.jpeg)
+
+图片来源：康州盘古农场 霹雳年
+### 向拜登发问
+
+截止3月21日美国现任总统乔-拜登执政60天从未进行公开新闻招待会，当日他接受了ABC新闻乔治（George Stephanopoulos）面对面访谈。美国黑人律师、福克斯媒体人塔拉尔（Leo Terrell）当日发推称：
+
+“第60天：拜登政府。 拜登总统：你喜欢打种族牌。在你执政的每一天，我都会给你发一条推特，问你两个问题。
+
+“美国的系统性歧视存在于哪里？ 你为消除系统性歧视做了什么？”
 
 
 
-《路德时评》2021年3月22日早间节目主要内容：
 
-一、俄外长说中俄必须彻底脱离美元体系
 
-雅虎新闻3月22日报道[1]：在美国对北京和莫斯科越来越多的制裁中，俄罗斯外长拉夫罗夫表示，美国制裁的风险需要通过转向替代货币和减少使用美元来减轻。“我们需要加强技术独立性，转而使用本国货币和世界货币来代替美元，从而降低制裁风险。我们需要远离使用西方控制的国际支付系统。”
-![]()![](https://gnews.org/wp-content/uploads/2021/03/脱离美元体系-4.png)[图片地址](https://in.news.yahoo.com/russia-china-must-move-away-000142777.html)
-路德社评论：
+> Day 60: Biden Administration: President Biden: You love to play race card: Each Day of your Administration, I will send you a tweet which will ask you two questions: Where does systemic discrimination exist in American? What have you done to eliminate systemic discrimination?
+> — TheLeoTerrell (@TheLeoTerrell) [March 21, 2021](https://twitter.com/TheLeoTerrell/status/1373625612338786304?ref_src=twsrc%5Etfw)
 
-1、中共没有安排俄外长前往北京，只是在桂林与王毅进行会面，这更显露出中共此时安排与俄外长见面就是为吓唬美国。中共国当年联合美国灭苏，现在想联合俄罗斯灭美，俄罗斯非常清楚中共国的意图，所以俄外长提议中俄脱离美元结算体系，以此试探中共国是否有联合俄罗斯的决心。如果中俄脱离美元结算体系，两国贸易将以卢布结算。
 
-2、全球媒体都开始大肆报道俄外长给中共国的这条建议，这将引起全世界哗然。俄罗斯官员在海外的美元资产跟中共国官员相比，两者完全不是一个数量级，中共国官员在美国的拥有巨额资产和无数私生子女，这是中共最害怕美国制裁的根本原因。在川普政府时代，杨洁篪之所以对蓬佩奥点头哈腰，就是因为中共国害怕中美脱钩，爆料革命提前预警中美即将脱钩，现在已经被验证。
 
-3、俄罗斯现在非常想回到军事时期，因为普京很清楚在经济上比不过美国，但俄罗斯历史上每次强大都离不开军事，无论在拿破仑时代，还是二战都是如此。虽然俄罗斯至今没有被西方国家完全接纳，但是俄罗斯继承了东正教东罗马帝国的衣钵，依然有西方法制体系的样子。
+ABC主播乔治访谈乔拜登时，拜登的回答让人汗颜，媒体人塔拉尔转推时引用拜登的答复说：“乔治，让我休息一下，伙计，我刚到这儿六周！”
 
-4、中共国则是完全脱离西方体系，没有自由、没有民主、没有法制，只有王法，就是县太爷说了算。当年的苏联和中共国同为社会主义体系，最终历史验证中苏无法共同合作，更不用说现在的中共国和俄罗斯已经是两套完全不同的体系，所以中俄不可能结盟。
 
-5、俄罗斯完全有能力，也有条件发展内循环经济，因为它国土面积足够大，资源非常丰富，所以俄罗斯脱离美元体系完全可以独立生存，但是中共国不可能发展内循环经济，更不可能脱离美元体系，因为中共国粮食、能源等必需品都无法自给自足。如果中共国宣布脱离美元体系，人民币马上成为废纸。当年大清朝不仅有实力自给自足，还能向全世界出口茶叶、丝绸和瓷器，现在中共国还不如当年的大清朝。
 
-6、美国属于海洋文化，能包容多种文化体系，海洋文化推崇合作、创新，俄罗斯属于大陆畜牧体系，讲究的是自我强壮，中共国属于大陆农耕体系，并与其他体系格格不入，日本就是看到海洋文化的优越性，所以才选择脱亚入欧。中共国的大陆农耕文明虽然在古代暂时拥有一定的先进性，但是全球社会体系一直在发展进步，可是中共国的体系不但没有进步，反而在倒退，最终阉割了14亿中国老百姓。
+> Joe Biden Tells George Stephanopoulos: ‘Gimme a Break Pal! I’ve Only Been Here Six Weeks!’ [https://t.co/LXSEV3Q96S](https://t.co/LXSEV3Q96S)
+> — TheLeoTerrell (@TheLeoTerrell) [March 22, 2021](https://twitter.com/TheLeoTerrell/status/1373970651984359429?ref_src=twsrc%5Etfw)
 
-二、习总加速师与金正恩互致口信
 
-新华网3月22日报道[2]：习近平总书记同朝鲜劳动党总书记金正恩互致口信。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/47027621_303-2.jpg)[图片地址](https://static.dw.com/image/47027621_303.jpg)
-路德社评论：
 
-1、两国元首如果不能见面一般都采用互相致电，或通电话，现在习又开创了口信方式来传递两国元首的指令。既然是用口信的方式传递消息，这就不是书面的官方正式文件，口信一般只能传达意思，并非要进行双向沟通。
+《自由时报》21日发表文章刊登了卡拉尔接受福克斯周六晚法官珍妮-皮罗采访时对拜登的评论。文章引用他的话称：
 
-2、俄罗斯访问中共国还有一个非常重要的目的就是要稳住北朝鲜，因为朝鲜一直是影响东北亚局势的不稳定因素。金正恩也知道中共想利用北朝鲜牵制美国，但是金正恩现在也按兵不动，维持现状，静待东北亚局势的变化。
+“当你从整体上看，乔-拜登有问题。我没有投票给这个人，但他是我们的总统。但现在他是个尴尬的人。””他是一个尴尬，不仅是这个国家，而且是全世界的尴尬。”
 
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+他还说：“他一直称卡马拉-哈里斯为’哈里斯总统’，这就有问题了……再加上前几天我们看到的他摔倒的情况，乔-拜登就有问题了。我想听听他的白宫医生怎么说。”
 
-参考文章：
+他宣布，“最后，这个国家最糟糕的事情就是卡马拉-哈里斯这个‘社会主义者’成为总统。这是个可怕的决定。”
 
-[1][https://in.news.yahoo.com/russia-china-must-move-away-000142777.html](https://in.news.yahoo.com/russia-china-must-move-away-000142777.html)
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/leo.png)[https://www.thefreedomtimes.com/2021/03/21/leo-terrell-when-you-look-at-the-totality-of-the-situation-something-is-wrong-with-joe-biden/](https://www.thefreedomtimes.com/2021/03/21/leo-terrell-when-you-look-at-the-totality-of-the-situation-something-is-wrong-with-joe-biden/)
 
-[2][http://www.xinhuanet.com/politics/2021-03/22/c\_1127241916.htm](http://www.xinhuanet.com/politics/2021-03/22/c_1127241916.htm)
 
-文章撰写：【重生】  编辑：【香柏树】
 
-+1
+
+### 白宫为一名华人女律师背书
+
+美中“厕所会晤”刚结束，美国遭受中共羞辱的风波尚未平息，中共新一轮渗透或许已经开始酝酿？…… 3月21日白宫发言人纳得发推称：
+
+“我个人的 #巾帼不让须眉 之一的人是郭建梅（音译），她是中国法律宣传的先驱。今天，她是中国最著名的女律师。作为一个充满激情的活动家，郭建梅代表那些在中国被排除在法律途径之外的人发言。”
+
+
+
+> One of my personal [#WomenOfCourage](https://twitter.com/hashtag/WomenOfCourage?src=hash&amp;ref_src=twsrc%5Etfw) is Jianmei Guo, a pioneer of legal advocacy in China. Today ​she is the country's best-known female lawyer. A passionate activist, Jianmei speaks on behalf of those who have been excluded from legal access in China.
+> — Ned Price (@StateDeptSpox) [March 21, 2021](https://twitter.com/StateDeptSpox/status/1373657036626493441?ref_src=twsrc%5Etfw)
+
+
+
+### 班农先生的诉讼案
+
+22日Newsmax 发推一则19日的新闻：
+
+前总统助理史蒂夫-班农先生要求联邦法官驳回对他诈骗人们对墨西哥私人边境墙捐款的指控，并称时任总统川普对此案的赦免是最终的决定。
+
+班农的律师罗伯特-科斯特洛周四提交了驳回动议。但是纽约的联邦检察官反对驳回，并认为，赦免”涉及宽恕，而不是遗忘”，”不会抹杀可能的原因或撤销起诉。
+
+此前国家安全顾问迈克尔-弗林（Michael Flynn）和说唱歌手莉尔-韦恩（Lil Wayne，又名小德维恩-迈克尔-卡特）案件的法官在川普给予他们特赦后，驳回了对他们的起诉。
+
+
+
+> Steve Bannon has asked a federal judge to dismiss an indictment on fraud charges because he was pardoned by Trump: [https://t.co/aPJ2BHKkS3](https://t.co/aPJ2BHKkS3) [pic.twitter.com/XGujx8wywJ](https://t.co/XGujx8wywJ)
+> — Newsmax (@newsmax) [March 22, 2021](https://twitter.com/newsmax/status/1373893469069062146?ref_src=twsrc%5Etfw)
+
+
+[https://www.newsmax.com/politics/bannon-pardon-indictment-dismiss/2021/03/19/id/1014502/](https://www.newsmax.com/politics/bannon-pardon-indictment-dismiss/2021/03/19/id/1014502/)
+### 蓬佩奥对美国的信心
+
+3月21日蓬佩奥国务卿推文如下：
+
+
+
+> When it came to securing American freedom abroad, we treated the world as it was, not as we wished it to be. When the time came, we led and were TOUGH.
+> 
+> Strength deters bad guys, weakness begets war.
+> — Mike Pompeo (@mikepompeo) [March 22, 2021](https://twitter.com/mikepompeo/status/1373988498760404994?ref_src=twsrc%5Etfw)
+
+
+
+“当涉及到确保美国在海外的自由时，我们对待世界的态度就是它原来的方式，而不是我们希望它成为的那样。当时机成熟时，我们来领导，而且是强硬的。
+
+“力量能阻挡坏人，弱点能产生战争。”
+
+小议，美国当前的弱点何在？就在现任拜登政府及其对待中共卑躬屈膝的态度。是否在蓬佩奥先生看来，拜登政府暴露的弱点将激化美国内部矛盾，在解决美国对外国际利益的问题时，当国内矛盾激化时，正义必将掌权，主导战斗，同时最终战胜邪恶……
+
+
+
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+
+**欢迎关注和支持康州盘古农场推特公众号及时掌握资讯**
+
+### [盘古七星舰队PanGu Heptastar Fleet](https://twitter.com/PanguF)
+
+
+
+0

@@ -1,25 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】21/03/2021:G系列社交媒体平台将推出打赏功能
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/1004192/)
+## 我们砥砺前行
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1004235/)
 
-**制作:Cantonese工作室**
-**播报：【二丫】资料整理：【二丫】【安妮】【郁金香】【文林】海报制作：【侬民】【文武全才】视频制作：【Carolin】【Ken】发布:【星星】**
-摘要:
+作者：天空的鸿雁
+![]()![](https://gnews.org/wp-content/uploads/2020/12/xi6.png)图片来源：网络
+长江的水哟九曲十八弯 ，
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-230.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2-91.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-97.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4-66.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/5-53.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/6-45.jpg)
-7.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/7-31.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/0-15.jpg)
+闯过了一关又是一个关，
+
+穿过了急流跃过了险滩，
+
+前面就是那喜马拉雅山，
+
+是爆料革命引领我们向前、向前！
+
+前方的道路曲折又蜿蜒，
+
+我们相互扶持忘记艰险，
+
+翻过了一山又是一座山，
+
+我们无畏恐惧各个争先，
+
+是文贵带领我们奋勇向前！
+
+喜马拉雅的路上艰难凶险，
+
+我们向往的圣殿就在前面，
+
+我们虽然不能再活一百年，
+
+但历史会记住我们的容颜，
+
+新中国联邦我们强大的后援！
+
+为了自由尊严我们携手并肩，当我们胜利登顶的那一瞬间，
+
+我们将会把珍藏的圣火点燃，
+
+人类历史将会记住这个时间，新中国联邦会成为一道亮丽的风景线！
+
+**免责声明：**文章观点仅代表作者本人，与GNEWS平台无关！
+
+**编辑/发布**：比卡丘
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
 0
