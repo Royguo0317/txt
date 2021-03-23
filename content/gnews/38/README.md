@@ -1,25 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共生化病毒严重违反日内瓦协议 禁止使用生物武器
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1008341/)
+## 【军事快讯】美军创侦察距离新纪录，距中共海岸线仅25.33海里
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1008278/)
 
-台湾宝岛准农场 Amitofu
+作者：香草山媒体部 白木
 
-瑞士联邦委员会3月19日发布《中国战略》，瑞士外交大臣卡西斯表示，瑞士政府对于中共未来的外交战略，针对香港民主制度逐渐被限制、新疆集中营种族灭绝等，对少数民族人权的侵犯立场将更为强硬，强调人权问题不再是外交部的专职任务，而是整个政府的职责，并向中共明确表示，瑞士军工企业不会继续对香港警方提供弹药来伤害香港百姓，同时瑞士政府主张建立一个受国际法约束的数字空间。该战略文件除了提到知识产权与双边自由贸易协议外，在贸易、投资、教育研究和旅游业等领域的关系。更重要的是瑞士政府特别提到了中共国与瑞士价值观与制度的不同，瑞士政府的「国际日内瓦」将发挥核心作用，强调这些领域将是全方位瑞士战略的一部分。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/bioccp.jpg)
-**确定禁止使用化学武器和生物武器作为国际法所公认的准则**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1618-【军事快讯】美军创侦察距离新纪录，距中共海岸线仅25.33海里-1.jpg)
 
-1925年国际社会就明文禁止使用化学武器。1925年6月17日当时的「国际联盟」在日内瓦召开【管制武器、军火和战争工具国际贸易会议】所通过的《日内瓦议定书》对禁止有毒武器的惯例和条约加以具体化，**确定禁止使用化学武器和生物武器作为国际法所公认的准则**。【禁止在战争中使用窒息性、毒性或其他气体，以及类似的液体、物质或器件；而且各缔约国还同意将这项禁令扩大到在战斗中**禁止使用细菌**】于1928年2月8日起开始生效至今。笔者认为以瑞士永久中立国的地位，瑞士政府的「国际日内瓦」不仅仅只是对国际联盟的影响力，其中包含联合国UN欧洲总部、世界贸易组织WTO、红十字会、欧洲核子能总署等国际组织，由于**中共生化病毒严重违反1925年在《日内瓦协议》中在对气体和生物武器的使用**。瑞士将与国际联盟合作针对中共生化病毒的反人类罪与新疆种族灭绝罪的行为采取一系列的行动，制定各种具体制裁措施，当然包含中共盗国贼在瑞士银行中大量的资金。
+SCSPI于美东时间3月22日发表推文，根据迄今为止的公开数据，美国空军RC-135U侦察机，刚刚创下了距中国海岸线最短的侦察距离新纪录，25.33海里。
 
-日内瓦公约包括1949年8月12日在日内瓦重新缔结的四部基本的国际人道法，为国际法中的人道主义定下了标准。主要有关战争受难者、战俘和战时平民的待遇。这并不影响在1899年和1907年的《海牙公约》覆盖的武器的使用及1925年在《日内瓦协议》中在对气体和生物武器的使用。中共战狼外交驻瑞士大使馆发言人21日表示，痛批新疆种族灭绝罪等〔这些说法背离基本事实，不利于中瑞关系健康发展〕，中共清楚欧美国家逐渐显示将**对中共定义为跨国犯罪组织达成共识**，相信不久的将来中共这些披着羊皮的羊很快就会自食恶果成为羊肉炉。本文仅代表个人立场
 
-祈祷万佛万神加持文贵先生与新中国联邦每位战友常转法轮
 
-[瑞士政府通过首个公开对华战略](https://www.rfi.fr/tw/%E6%94%BF%E6%B2%BB/20210319-%E7%91%9E%E5%A3%AB%E6%94%BF%E5%BA%9C%E9%80%9A%E9%81%8E%E9%A6%96%E5%80%8B%E5%85%AC%E9%96%8B%E5%B0%8D%E8%8F%AF%E6%88%B0%E7%95%A5)
+> USAF RC-135U Combat Sent [#AE01D5](https://twitter.com/hashtag/AE01D5?src=hash&amp;ref_src=twsrc%5Etfw) just set a new record of 25.33NM, the shortest distance US reconnaissance aircraft have reached from the China's coastlines, based on public data so far.
+> 
+> In addition, there was also a P-8A & an EP-3E spotted over the [#SouthChinaSea](https://twitter.com/hashtag/SouthChinaSea?src=hash&amp;ref_src=twsrc%5Etfw), March 22. [pic.twitter.com/uLv49u70Gv](https://t.co/uLv49u70Gv)
+> — SCS Probing Initiative (@SCS\_PI) [March 22, 2021](https://twitter.com/SCS_PI/status/1373886128177041410?ref_src=twsrc%5Etfw)
 
-审核:Athena雅典娜 發佈:Amitofu
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-+1
+博博士引当年“巴伦支海手术刀事件”对该事件进行评论道：“美军主动挑战中共，离中共不得不开火1.33海里”，“25.33海里，土共找块豆腐撞死算了”。
+
+
+
+> 阿拉斯加對罵以後，美軍RC-135U偵察機抵近到距離中共國海岸25.33海哩才折返。這是什麼概念呢？進入24海哩毗鄰區就基本可以開火了，所以，美軍主動挑戰中共，離中共不得不開火1.33海哩。比較一下，當年巴倫支海手術刀事件，P-3距離蘇聯海岸48海哩就被宰了。25.33海哩，土共找塊豆腐撞死算了。🤣🤣🤣 [https://t.co/5DiYFaq3ax](https://t.co/5DiYFaq3ax)
+> — Dr. Bo 🇺🇸🇹🇼🇭🇰 (@BoDiplo) [March 22, 2021](https://twitter.com/BoDiplo/status/1374140014628573189?ref_src=twsrc%5Etfw)
+
+
+
+毗连区（contiguous zone），又称“邻接区”、“海上特别权”，是指沿海国根据其国内法，在领海之外邻接领海的一定范围内，为了对某些事项行使必要的管制权，而设立的特殊海域。毗连区的宽度实际上是连同领海在内的不得超过24海里。
+
+此次美军侦察机抵近中共国海岸线25.33海里才折返，离毗连区仅差1.33海里。
+
+本月8日，SCSPI就已曝光美国空军RC-135W电子侦察机对华侦察完整路线，当时距离中共国临海基线仅28.34海里。此次侦察更近一步，仅25.33海里。
+
+
+
+> A rare full trajectory!
+> USAF RC-135W ([#AE01D2](https://twitter.com/hashtag/AE01D2?src=hash&amp;ref_src=twsrc%5Etfw)) from Kadena is conducting a [#SouthChinaSea](https://twitter.com/hashtag/SouthChinaSea?src=hash&amp;ref_src=twsrc%5Etfw) mission, operating alongside China's coastlines near Guangdong, Hainan, and the [#ParacelIslands](https://twitter.com/hashtag/ParacelIslands?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/ZQOuHnEtAc](https://t.co/ZQOuHnEtAc)
+> — SCS Probing Initiative (@SCS\_PI) [March 8, 2021](https://twitter.com/SCS_PI/status/1368801174053289988?ref_src=twsrc%5Etfw)
+
+
+
+继美中会谈，中共宣称“不吃美国那一套”后，目前为止，中共官方并未就此次事件作出任何回应。相较于巴伦支海手术刀事件，苏军就挪威海军作出的反应，中共对这次美军侦察行动的反应验证了，中共就是一只“纸老虎”。
+
+不管中共怎么狐假虎威，怎么垂死挣扎，都无法阻挡世界正义联盟，美、印、日、澳以及北约对中共发起的围剿之势。
+
+编辑/审核/发稿：雪梨
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+0

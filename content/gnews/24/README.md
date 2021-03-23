@@ -1,49 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】谈中共财富资源分配
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1008529/)
+## 慧眼看世界20210323（图片新闻）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1008616/)
 
-作者：纽约香草山农场 城君
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+- 作者：2020喜马拉雅
+- 封面：透明的遮羞布
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-从我们父辈开始，他们就经历了工分、粮票、大锅饭的日子。现在看来，这所有的手段，都是中共在控制着社会资源和财富分配的权利，以便于更好的统治。如果你敢于对强权说“不”，也就意味着，在那个年代，你失去了生存下去的可能。
+**西班牙2021年3月23日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
 
-改革开放后，有人认为，中共控制社会财富和资源的情况已经消失了，一切都是市场经济。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2000.jpg)
 
-真的是这样吗？
+![]()![](https://gnews.org/wp-content/uploads/2021/03/6d651d1d-8502-4d77-bdb7-a35048108497-6.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image-336.png)图源网络
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ce556ab0-8b32-4f14-bb5c-59073ab1c851-5.jpg)
 
-2021年三月，中（共）国农业农村部部长唐仁健宣布，籼稻和小麦的最低收购价在去年提高一分钱的基础上，今年继续提高一分钱。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/b9a2badc-7278-45ac-bd3d-10bbbd535241.jpg)
 
-有网友评论：农民每年差不多也就产1000斤粮食，每斤提高一分钱，农民每年收入就提高10元钱。可别小看只有10元钱，辛苦10年就是100元，还能看一次感冒呢……
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3d137245-0184-4129-ac2b-f092bd97055b-2.jpg)
 
-笔者认为，收购价提高一分钱之背后的故事远不止这些。首先，对于一些人来说，他们可能认为，虽然这种收购价只提高了一分钱，但总粮食吨数加起来，最后的量还是很多的。有这种想法不奇怪，但是，这里说的只有籼稻和小麦提价，不包含其他。直白的说，一个普通贪官贪的钱跟这个差不多。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/fc03cbcd-0a17-4214-9c28-c5e061dd0f2c-2.jpg)
 
-其次，像这种基础的粮食作物，倘若收购价提高一分钱，往往物价提高的程度就不是这么简单了。中共左手决定着农民收入的高低，右手又控制物价的水平，在通胀的掩护下，完美“割韭菜”。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/d6021b20-0d11-4578-b28e-3137b1b2b5da.jpg)
 
-与之形成对比的是新中国联邦G系列。正如七哥的那句话：“我们G系列就是要让共产党看看，不在共产党的等级社会里，不用你的利益金钱分配制度，不尊奉你的做人思想规则，大家也能过上合法的、交税的、干净的体面生活。”
+![]()![](https://gnews.org/wp-content/uploads/2021/03/fbf4ffd6-442d-40f6-a02a-81cf269530b6-1.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-g-fashion-1.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/70fd7cc5-0e41-4b0a-add9-97c62eeacb0e-1.jpg)
 
-编辑/校对/发稿：Irene木木
+![]()![](https://gnews.org/wp-content/uploads/2021/03/38446eb9-5aa3-462d-9153-5499c036410e.jpg)
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/7bfb011f-73a7-4349-8425-5e65e53e01b2.jpg)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/066d7600-601b-4901-9ce8-4e20bf5d2f76.jpg)
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/d0dd968d-e34e-42b1-8a95-818957b313c9.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/017bf42f-7168-4219-874a-3d8e977bad5e-5.jpg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/26361718-cf4d-4aeb-8269-e2d25eb3cc9f.jpg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/e8324af7-3521-46e9-aec8-6533a83d0b73-5.jpg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4424b8f3-5861-4a37-bd18-cfbcc01826b7.jpg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/eac22a79-294e-4b9a-8eae-17217d893593-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/aadf809d-67c5-4d6c-b76d-8a2bfcb32aa5-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/0ce7aef8-f476-448f-9dcc-a4d176916833.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/04660500-2c9e-40bc-af55-e10063148825.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/70db36c5-2845-4e2c-a570-e8e733d3e31b.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1b4019bd-4d2b-4208-9e18-39dff74f49fd.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/94e81d93-c9d4-486b-9d5d-ec1ca28d468f-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cc88646a-188b-4414-84a3-6a88886b7982.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/27763c73-4c16-4b6e-b7b8-4679089c7d49.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/f4781187-0147-440d-95a1-2556ad9695a5-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2b226ca3-4c70-4187-9ec7-86b792e8e74c.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cacc00f8-d76a-4fbb-b53e-6d2c357d5b21.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ad03cda7-1f1b-49fd-af9f-dd47ded66671.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/42bd27b4-725d-402f-9d50-bee58edc00f9-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3b7a1a1a-6dbe-424c-a5d4-d457a4e858a1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/de528ae9-b853-4307-84f7-f00d5a2885de.jpg)
+
+发稿：Ranting
+
+本文观点均来自于作者，与GNEWS无关
 
 0
