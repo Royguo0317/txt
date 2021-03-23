@@ -1,47 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 重磅：mRNA冠状病毒疫苗改变人类基因，且可能引發ADE致死❗️
-` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1006115/)
+## 【新闻宅急便】中共巨大“渔船队”惊醒菲律宾
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1006669/)
 
-【作者】滴水穿石，Summer          【编辑】旧金山文宣组
+翻译：喜马拉雅东京樱花团 / Porsche
 
-摩纳达(Moderna)公司首席医学官塔尔·扎克斯（Tal Zaks）早在2017年的TEDx演讲视频中，就已经明确指出，作为一家实验性mRNA技术注射剂的制药公司，该公司研发的mRNA技术正是通过信使RNA来改变您的遗传密码或DNA。这也证实了该公司研发的COVID-19疫苗的确改变了人体天然的DNA。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Viral-Protein-Production4-1.jpg)Moderna 公司早就對mRNA改寫DNA技術公開演講
-虽然媒体上许多人，包括安东尼·弗奇博士和他的一帮习惯的撒谎专家，以及所谓 “事实检查 网站”都宣布这种说法是假的，但实验性mRNA技术注射剂的制药公司之一，Moderna公司的首席医疗官Tal Zaks，在TED x Beacon Street 上的演讲视频，明确解释了证实了COVID-19使用的技术mRNA注射是如何改变你的遗传密码或DNA的！
+![](https://lh5.googleusercontent.com/zwZjb0U-L567U2PFH9Wv6vc2RMcJ-C10QZ7MGmNpF8ewvCVVuQEnSzuOGzh_c9odvpA_CmakjkguWdFwkSLIvuQE-7wAlStmFimVtUh-29ByJx8gflWH0VWaCfaQxuBTilvULM-8)
+[图片链接](https://ichef.bbci.co.uk/news/695/cpsprodpb/D42B/production/_117651345_mediaitem117651343.jpg)
 
-Zaks称之为“黑客生命的软件”。 在视频的第一分钟，Zaks说：“我们一直在进行这场惊人的数字科学革命，今天我在这里告诉您，我们实际上是在骇入生命的软件，并且它正在改变我们的思维方式 关于疾病的预防和治疗。”他甚至重复说，Moderna认为它就像一个电脑操作系统。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Viral-Protein-Production2-10.jpg)mRNA就如同黑客一般改寫DNA的程式
-Zaks指出：“在每个细胞中，都有一种叫做信使RNA或mRNA的东西，它将关键信息从我们基因中的DNA传递到蛋白质.. … 这是决定单元将执行的操作的关键信息。 因此，我们将其视为操作系统… … 因此，如果您实际上可以改变它，……如果您可以引入一行代码或更改一行代码。当“更改”代码行或“引入”代码行”（指DNA）时，“代码”或DNA随之改变，这意味着个人或“受试者”现在的基因组已更改为“ 科学家”进行了编码。 个人或主体不再是上帝的创造，而是人的创造。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Viral-Protein-Production.jpg)左邊：傳統疫苗：有限的病毒蛋白從外部來
-右邊：mRNA疫苗：人體細胞產生病毒蛋白
-他继续说，mRNA会告诉细胞为“病毒”的蛋白质“编码”。 这种“病毒蛋白”对人体而言是外来的。 这个人的身体正在制造一种免疫系统要攻击的外来蛋白质。也就是説，您的免疫系统在攻击人体制造的蛋白质，这意味着“自动免疫反应”正在发生。
+菲律宾呼吁中(共)国撤走200多艘被其指控侵占其南海领海的船只。国防部长德芬-洛伦扎纳说，这些中(共)国船只侵犯了菲律宾的海洋权益。菲律宾方面认为，这些渔船看起来并不是在捕鱼，船上的人不是渔民、而是中(共)国海上民兵。
 
-瞭解到到这个事实之后，就更容易理解接种疫苗的人再面对病毒时什么是如此危险。来听听前美国内外科医生协会主席李梅里特医生(Dr. Lee Merritt) 对於ADE (Antibody Dependent Enhancement抗体依赖增强) 的解释。mRNA在中共病毒之前从未在人体使用过。在以往的SARS疫苗的动物实验中，当接种了mRNA疫苗的猫接受挑战实验时（给他感染SARS），病毒没有被杀死或削弱，而是被自动免疫反应生成的蛋白质把病毒包裹住，使病毒顺利进入猫的体内而不被自身免疫系统察觉，就像特洛伊木马一样。结果是病毒进入后大量的复製，直到爆发性的败血症和心臟衰竭导致猫的死亡。就是这样的一种从未在动物实验上取得成功的技术，而且没有在人体大规模实验过的，就在这次疫情中，开始大规模给人群接种了。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Viral-Protein-Production3-5.jpg)Lee Merritt 醫生
-这种不彻底的疫苗研究根本就不应该在几个月内下结论，更不应该给大规模的人群接种。特别是不应该强迫任何人接种。
+五年前，一个国际法庭驳回了中(共)国对90%相关海域的主权要求。几十年来，菲律宾、文莱、马来西亚、台湾和越南都在争夺中(共)国对几乎所有海域的主权，但近年来紧张局势稳步上升。
 
-李梅里特医生建议我们都不应该叫它“疫苗”，鉴於它生化武器的出身，可以叫它“二元病毒”，即推迟发作时间到的未来某一个可控的时间可以用病毒激发致死的一个生物武器。
+北京继续对一个被称为“九段线”的区域提出主张，并以造岛和巡逻来支持其主张、扩大军事存在，另一方面却坚称其意图是和平的。
 
-【参考来源】
+菲律宾的立场是什么？
 
-人类基因组8和mRNA疫苗[https://www.brighteon.com/59e20408-8324-4a1f-9de5-9c4f9d205394](https://www.brighteon.com/59e20408-8324-4a1f-9de5-9c4f9d205394)
+菲律宾海岸警卫队发布的照片显示，3月7日，一排中国船只停泊在南海的惠珊礁（菲律宾称朱利安-费利佩礁）。该国跨政府特别工作组表示，该礁石位于菲律宾的专属经济区内，中国有大约220艘船只停泊在该岛礁。
 
-Moderna Chief Medical Officer Admits MRNA Alters DNA [https://dcdirtylaundry.com/bombshell-moderna-chief-medical-officer-admits-mrna-alters-dna/](https://dcdirtylaundry.com/bombshell-moderna-chief-medical-officer-admits-mrna-alters-dna/)
+国防部长洛伦扎纳说：”我们呼吁中国人停止这种入侵行为，并立即召回这些侵犯我们海洋权利和侵占我们主权领土的船只”。他指责中国人是“将该地区军事化的挑衅行动”。
 
-Dr. Lee Merrtt: Bio-warfare & Weaponization of Medicine Amid Covid [https://thenewamerican.com/bio-warfare-weaponization-of-medicine-amid-covid/](https://thenewamerican.com/bio-warfare-weaponization-of-medicine-amid-covid/)
+外媒联系中(共)国官员要求置评时，中(共)国官员没有立即回应。中(共)国淡化了有关其利用渔船队帮助维护其领土主张的报道。
 
-【免责声明】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+两年前，菲律宾总统杜特尔特（Rodrigo Duterte）用一句对中(共)国国家主席习近平的调侃来捍卫他对海洋争端的非对抗态度，“当习近平说’我要钓鱼’时，谁能阻止他？”他说。“如果我派海军陆战队去驱赶中国渔民，我保证他们没有一个人能活着回家。”
 
-**欢迎战友加入旧金山金喜准农场**
+新闻来源：
 
-[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+[BBC NEWS](https://www.bbc.co.uk/news/amp/world-asia-56474847)
 
-[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
+*免责申明：本文只代表作者观点，与GNews网站无关。*
 
-[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
+*校对：喜马拉雅东京樱花团 / 文小白*
+*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews.org/wp-content/uploads/2021/03/二维码-3.jpg)
+0323C147fe
 
-[旧金山金喜农场 **Youtu**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[**b**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[**e**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)**
-**
-
-0
++2
