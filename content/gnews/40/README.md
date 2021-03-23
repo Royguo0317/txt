@@ -1,53 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 武汉P4实验室研究人员在中共病毒大爆发前已被感染
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1005684/)
+## 重磅：mRNA冠状病毒疫苗改变人类基因，且可能引發ADE致死❗️
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1006115/)
 
-加拿大多伦多枫叶农场 阿黎
-![]()![](https://gnews.org/wp-content/uploads/2021/03/gtv-3.jpg)
-据SKY NEWS 3月21日报道，武汉病毒学研究所从事冠状病毒研究的研究人员在2019年11月初因出现与中共病毒一致的症状而住院，美国官员怀疑这可能是第一个中共病毒集群。
+【作者】滴水穿石，Summer          【编辑】旧金山文宣组
 
-美国国务院调查中共病毒起源的前首席调查员大卫-阿舍（David Asher）曾在共和党和民主党政府下任职，他此前曾带领政府调查伊朗和朝鲜的生物、化学和核扩散问题。他说，现在已经解密的美国情报以及公开来源的信息证实，武汉病毒学研究所的三名工作人员在11月初至11月中旬，在大流行正式开始之前生病。他们的病症同时符合中共病毒和流感的特征，据他个人评估，很可能是此次疫情的原因。
+摩纳达(Moderna)公司首席医学官塔尔·扎克斯（Tal Zaks）早在2017年的TEDx演讲视频中，就已经明确指出，作为一家实验性mRNA技术注射剂的制药公司，该公司研发的mRNA技术正是通过信使RNA来改变您的遗传密码或DNA。这也证实了该公司研发的COVID-19疫苗的确改变了人体天然的DNA。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Viral-Protein-Production4-1.jpg)Moderna 公司早就對mRNA改寫DNA技術公開演講
+虽然媒体上许多人，包括安东尼·弗奇博士和他的一帮习惯的撒谎专家，以及所谓 “事实检查 网站”都宣布这种说法是假的，但实验性mRNA技术注射剂的制药公司之一，Moderna公司的首席医疗官Tal Zaks，在TED x Beacon Street 上的演讲视频，明确解释了证实了COVID-19使用的技术mRNA注射是如何改变你的遗传密码或DNA的！
 
-他说，”有多名工作人员确实不得不去医院，似乎已经出现了COVID-19的症状，”他说。”人们通常不会因为流感去医院，尤其是一群人（一起去）。这是最有可能的爆发源。”
+Zaks称之为“黑客生命的软件”。 在视频的第一分钟，Zaks说：“我们一直在进行这场惊人的数字科学革命，今天我在这里告诉您，我们实际上是在骇入生命的软件，并且它正在改变我们的思维方式 关于疾病的预防和治疗。”他甚至重复说，Moderna认为它就像一个电脑操作系统。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Viral-Protein-Production2-10.jpg)mRNA就如同黑客一般改寫DNA的程式
+Zaks指出：“在每个细胞中，都有一种叫做信使RNA或mRNA的东西，它将关键信息从我们基因中的DNA传递到蛋白质.. … 这是决定单元将执行的操作的关键信息。 因此，我们将其视为操作系统… … 因此，如果您实际上可以改变它，……如果您可以引入一行代码或更改一行代码。当“更改”代码行或“引入”代码行”（指DNA）时，“代码”或DNA随之改变，这意味着个人或“受试者”现在的基因组已更改为“ 科学家”进行了编码。 个人或主体不再是上帝的创造，而是人的创造。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Viral-Protein-Production.jpg)左邊：傳統疫苗：有限的病毒蛋白從外部來
+右邊：mRNA疫苗：人體細胞產生病毒蛋白
+他继续说，mRNA会告诉细胞为“病毒”的蛋白质“编码”。 这种“病毒蛋白”对人体而言是外来的。 这个人的身体正在制造一种免疫系统要攻击的外来蛋白质。也就是説，您的免疫系统在攻击人体制造的蛋白质，这意味着“自动免疫反应”正在发生。
 
-阿舍先生说，在11月的这次爆发之前，有可能存在病毒感染者的集群，这表明2019年秋季中国的流感高峰可能包括中共病毒病例。
+瞭解到到这个事实之后，就更容易理解接种疫苗的人再面对病毒时什么是如此危险。来听听前美国内外科医生协会主席李梅里特医生(Dr. Lee Merritt) 对於ADE (Antibody Dependent Enhancement抗体依赖增强) 的解释。mRNA在中共病毒之前从未在人体使用过。在以往的SARS疫苗的动物实验中，当接种了mRNA疫苗的猫接受挑战实验时（给他感染SARS），病毒没有被杀死或削弱，而是被自动免疫反应生成的蛋白质把病毒包裹住，使病毒顺利进入猫的体内而不被自身免疫系统察觉，就像特洛伊木马一样。结果是病毒进入后大量的复製，直到爆发性的败血症和心臟衰竭导致猫的死亡。就是这样的一种从未在动物实验上取得成功的技术，而且没有在人体大规模实验过的，就在这次疫情中，开始大规模给人群接种了。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Viral-Protein-Production3-5.jpg)Lee Merritt 醫生
+这种不彻底的疫苗研究根本就不应该在几个月内下结论，更不应该给大规模的人群接种。特别是不应该强迫任何人接种。
 
-这位曾为美国政府牵头成立专案组调查中共病毒起源的前首席调查员宣称，该病毒可能是武汉病毒学研究所开发生物武器时所出的成果。
+李梅里特医生建议我们都不应该叫它“疫苗”，鉴於它生化武器的出身，可以叫它“二元病毒”，即推迟发作时间到的未来某一个可控的时间可以用病毒激发致死的一个生物武器。
 
-一周前，阿舍先生告诉福克斯新闻，在他看来，中共病毒可能是一种生物武器。当《澳大利亚人报》问及这是否是美国政府内部的一个积极调查热线时，他说。他说：”是的”，”中（共）国政府很有可能在武汉病毒学研究所和其他涉及冠状病毒研究的研究所从事武器化工作…无论是（用于）进攻还是防守，这几乎是不可能判断的，它是100%未申报的，这严重违反了《生物武器公约》和世卫组织《国际卫生条例》–以至于它以某种方式溢出。”
+【参考来源】
 
-阿舍先生说，现有的一种理论是，中共病毒是在疫苗开发过程中出现的，（疫苗）甚至有可能作为生物武器的解毒剂。”**有证据表明某些科学家发现……公开发布的序列中存在腺病毒，**“阿舍先生说。
+人类基因组8和mRNA疫苗[https://www.brighteon.com/59e20408-8324-4a1f-9de5-9c4f9d205394](https://www.brighteon.com/59e20408-8324-4a1f-9de5-9c4f9d205394)
 
-“**腺病毒意味着有COVID-19的疫苗存在；这可能表明这是一个包括疫苗的生物防御项目。**”
+Moderna Chief Medical Officer Admits MRNA Alters DNA [https://dcdirtylaundry.com/bombshell-moderna-chief-medical-officer-admits-mrna-alters-dna/](https://dcdirtylaundry.com/bombshell-moderna-chief-medical-officer-admits-mrna-alters-dna/)
 
-“人们通常不会为他们正在研究的东西开发疫苗。这没有任何意义……为一个永远不会见天日的东西提前开发疫苗，这使得这有点荒谬，但这与生物武器计划完全一致。他们开发了一种解毒剂。”
+Dr. Lee Merrtt: Bio-warfare & Weaponization of Medicine Amid Covid [https://thenewamerican.com/bio-warfare-weaponization-of-medicine-amid-covid/](https://thenewamerican.com/bio-warfare-weaponization-of-medicine-amid-covid/)
 
-美国也在研究该研究所是否在研究冠状病毒疫苗的同时开发了中共病毒。
+【免责声明】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-美国国务院调查中共病毒起源的前首席调查员大卫-阿舍（David Asher）表示，不能排除该疫苗被作为生物武器的 “解毒剂 “来研发的可能性。
+**欢迎战友加入旧金山金喜准农场**
 
-最近到武汉考察的世卫组织小组成员马利盎-库普曼斯（Marion Koopmans）曾证实有 “一两个 “工作人员生病。她的观点是，这种情况并不罕见，她没有说明有员工住院。
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
 
-美国国务院在2021年1月15日的一份声明中对情报进行了解密，其中首次披露武汉病毒学研究所的工作人员在2019年秋季生病。
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
 
-当时，该情报被批评者否定，因为国务卿迈克-蓬佩奥在卸任时对中国进行了打击。川普政府前国家安全副顾问马特-波廷格此后证实，美国情报机构曾授权发布该声明中的信息。
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
 
-阿舍先生透露，至少有一名武汉病毒学研究所的员工需要住院治疗，这让信息更进一步。
-
-虽然一些科学家和政治家说中共病毒很可能是自然出现的，但阿舍先生在他的评估中说，它可能来自实验室。
-
-评：
-
-强生公司（Johnson and Johnson)开发并已在使用的中共病毒疫苗就是以腺病毒为载体的疫苗[［1］](https://www.stamfordhealth.org/healthflash-blog/infectious-disease/johnson--johnson-covid-19-vaccine/)。文中提到的已公布的中共病毒序列中的腺病毒是否可以说是疫苗？是中共病毒疫苗？是在此次疫情爆发前就有的疫苗？是在2019年11月发病的武汉P4实验室研究人员血液中发现的疫苗？是他们用来克服中共病毒的解药？强生公司的疫苗实际上早在2019年11月前就已完成？
-
-或许专家们有答案，只是需要他们发声。
-
-[原文链接](https://www.youtube.com/watch?v=YBq-LV3Jm1M)
-
-* * *
-
-编辑 发稿 云起时
+[旧金山金喜农场 **Youtu**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[**b**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[**e**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)**
+**
 
 0
