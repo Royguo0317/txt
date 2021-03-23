@@ -1,69 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】针对中共种族灭绝罪行 英美欧盟统一战线 制裁中共官员
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1005454/)
+## 西方联合制裁中共新疆种族灭绝罪行
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1005727/)
 
-作者：纽约香草山农场 青岛小嫚
+俄罗斯莫斯科喀秋莎农场   银河
 
+编辑上传   水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/E-10.jpg)beltandroad.news
+路透社报道，美国、欧盟、英国和加拿大首次联合行动，宣布对在新疆侵犯人权的中共国官员实施制裁。
 
+周一，欧盟率先对四名中共国官员和一家实体实施制裁，英国和加拿大随后也做出了类似决定。这些协调一致的努力似乎是美国联合外交的努力与中共对抗的早期成果。美国政府高级官员说，他们每天都就与中共有关的问题与欧洲各国政府接触。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+美国国务卿布林肯本周在布鲁塞尔与欧盟和北约部长举行会议之前发表声明说:“在国际谴责日益强烈的情况下，(中共)继续在新疆犯下种族灭绝和反人类罪行。” 西方政府正在寻求让北京对大规模拘留维吾尔族穆斯林罪行负责。
 
+加拿大外交部表示:“越来越多的证据表明，中共政府主导了系统性侵犯人权行为。” 加拿大和英国的外交部长与布林肯发表联合声明说，三国一致要求北京结束其在新疆的“镇压行为”。他们表示，他们掌握了“压倒性”证据，“包括卫星图像、目击者证词和中共政府自己的文件”。
 
+澳大利亚和新西兰的外交部长对越来越多中共在新疆侵犯人权的可靠报道表示严重担忧。对加拿大、欧盟、美国和英国的制裁表示支持。这是欧盟几十年来的首次重大制裁。
 
-据CNN报道，美国周⼀宣布制裁两名中共官员，因为他们对维吾尔族穆斯林“严重侵犯⼈权” 。被制裁的两名中共官员分别是新疆⽣产建设兵团党委书记王俊正和新疆公安局局长陈明国。
+北京出离愤怒，立即对欧盟采取了范围更广的惩罚性措施进行回击。制裁范围包括欧洲议员、外交官、机构和家庭，并禁止欧盟企业与中共国进行贸易。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image-326.png)图：翻摄东突厥斯坦共和国流亡政府官网（资料照片）
+欧盟的制裁标志着对中共态度从软弱转向为强硬。欧盟被中共视为友好的贸易伙伴，现在指责中共有系统地滥用权利和自由。欧盟27国政府都同意欧盟的惩罚性措施，但匈牙利外交部长彼得·希贾托称这些措施“有害”且“毫无意义”。
 
-美国财政部声明：“这些⼈是根据行政命令（EO）13818进⾏制裁的。该命令建立并实施了《全球马格尼茨基⼈权问责法》，其针对严重侵犯⼈权和腐败的肇事者。”
+参考链接：
 
-“只要新疆发生暴行，中（共）国当局将继续面临后果”，财政部外国资产控制办公室主任安德烈·加基（Andrea M. Gacki）说，“财政部致力于追究中（共）国政府侵犯维吾尔族和其他少数民族的人权行为的责任，包括任意拘留和酷刑。”
+[https://www.reuters.com/article/us-usa-china-eu-sanctions-idUSKBN2BE2MC](https://www.reuters.com/article/us-usa-china-eu-sanctions-idUSKBN2BE2MC)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image-327.png)⼀名⽰威者参加抗议活动，抗议中（共）国对维吾尔族穆斯林的侵犯⼈权⾏为，并呼吁美国政府于2019年4⽉6⽇在华盛顿对中共采取⾏动 . YASIN OZTURK/ANADOLU AGENCY/GETTY IMAGES
+[https://www.reuters.com/article/us-eu-china-sanctions/eu-china-impose-tit-for-tat-sanctions-over-rights-abuses-idUSKBN2BE1AI](https://www.reuters.com/article/us-eu-china-sanctions/eu-china-impose-tit-for-tat-sanctions-over-rights-abuses-idUSKBN2BE1AI)
 
-国务卿安东尼·布林肯将中共针对维吾尔⼈的侵犯描述为种族灭绝。
-
-布林肯在声明中说：“在⽇益受到国际谴责的情况下，中（共）国继续在新疆犯下种族灭绝和危害⼈类罪。” “美国再次呼吁中（共）国结束对以穆斯林为主的维吾尔⼈以及新疆其他民族和宗教少数群体成员的镇压，包括释放所有在拘留所和其他被任意拘留的⼈。”
-
-英国和欧盟已与美国和加拿⼤共同采取⾏动，对参于新疆维吾尔族穆斯林大规模拘留的中共⾼级官员实施了平⾏制裁。
-
-受到欧盟和英国制裁的四名中（共）国官员是：朱海伦，新疆政治事务委员会前书记；新疆⽣产建设兵团团长王俊正；新疆公安局局长陈明国；新疆⾃治区政治委员会书记王明⼭。
-
-欧盟说，朱海伦曾被描述为维吾尔族灌输计划的“建筑师”，“因此，对中（共）国境内的严重侵犯⼈权⾏为，特别是对维吾尔族和其他穆斯林少数民族的大规模任意拘留负有责任。”
-
-据The Guardian报道：此举标志着英国或欧盟三⼗年来⾸次因侵犯⼈权⾏为对中共进⾏惩罚。
-
-英国外交⼤⾂多⽶尼克·拉布（Dominic Raab）表⽰，中共对维吾尔族的待遇是“⾃第⼆次世界⼤战以来对民族和宗教团体的最⼤规模的拘留”。
-
-中共⼏乎⽴即采取了针锋相对的惩罚措施。中共于周⼀宣布，对10名欧盟政客和4个实体进行制裁，理由是他们“恶意散布谎⾔和虚假信息”。报告说，他们将被禁⽌进⼊中（共）国⼤陆、⾹港和澳门，⽽其相关公司和机构也被禁⽌与中共开展业务。
-
-与此同时，美国与盟国协调宣布第⼆轮惩罚。
-
-美国国务卿安东尼·布林肯（Antony Blinken）周⼀宣布，对缅甸军⽅实施新制裁，原因是⾃2⽉1⽇军事政变以来，该组织正在持续镇压⽀持民主的抗议活动。
-
-中共极权暴政在新疆所犯下的罪⾏，证据确凿。现在，各国针对中共种族灭绝和⽂化灭绝罪⾏的制裁正在全面展开。美、英及各个盟国联⼿合作，对中共官员的⼀系列制裁，有助于全球共同灭共战线的形成。
-
-参考阅读：
-
-[US and allies announce sanctions against Chinese officials for ‘serious human rights abuses’ against Uyghurs](https://www.cnn.com/2021/03/22/politics/us-eu-china-uyghursanctions/%20index.html)
-
-[US and Canada follow EU and UK to sanction Chinese officials over Xinjiang](https://www.theguardian.com/world/2021/mar/22/china-responds-toeu-%20uk-sanctions-over-uighurs-human-rights)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-+1
+0
