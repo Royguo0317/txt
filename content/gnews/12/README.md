@@ -1,43 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 人权联盟要求爱彼迎放弃赞助北京冬奥会
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1008570/)
+## 慧眼看世界20210323（图片新闻）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1008616/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+- 作者：2020喜马拉雅
+- 封面：透明的遮羞布
 
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年3月23日电/西喜社——**据美联社3月23日报道，爱彼迎(Airbnb) 被一个由150名人权运动者组成的联盟要求，放弃对明年北京冬奥会的赞助。
+**西班牙2021年3月23日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
 
-该联盟由反对中共国诸如在新疆地区拘禁穆斯林维吾尔人等侵犯权利行为的团体领导。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2000.jpg)
 
-爱彼迎是国际奥委会的15家主要赞助商之一。其中包括可口可乐、三星、Visa、丰田、阿里巴巴、松下、英特尔和宝洁等公司。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/6d651d1d-8502-4d77-bdb7-a35048108497-6.jpg)
 
-住房共享企业爱彼迎之所以成为目标，是因为它反复宣称在其商业模式中实践的“社会责任”。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ce556ab0-8b32-4f14-bb5c-59073ab1c851-5.jpg)
 
-美联社收到了周二发给爱彼迎 CEO 布赖恩·切斯基(Brian Chesky)的公开信。信中认为，爱彼迎试图以牺牲不能在中国自由旅行的维吾尔人和藏人的利益为代价来推动中国的旅游业。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/b9a2badc-7278-45ac-bd3d-10bbbd535241.jpg)
 
-“爱彼迎还在掩盖中共国可怕的人权记录，并向公众正常化国际法公认的严重限制性环境，”信中说。”爱彼迎不应该以牺牲维吾尔族和藏族的权利为代价，鼓励更广泛的旅游业得到支持并允许其蓬勃发展。”
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3d137245-0184-4129-ac2b-f092bd97055b-2.jpg)
 
-在上一个完整的、为期四年的奥运周期中，15家主要赞助商向国际奥委会支付了约10亿美元的现金或服务，以与奥运会相关。爱彼迎在2019年11月签约。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/fc03cbcd-0a17-4214-9c28-c5e061dd0f2c-2.jpg)
 
-维权组织正试图向国际奥委会赞助商施压，并推动对奥运会进行外交抵制–甚至是硬抵制–以呼吁人们关注涉嫌虐待维吾尔人、藏人和香港居民的行为。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/d6021b20-0d11-4578-b28e-3137b1b2b5da.jpg)
 
-北京冬奥会将于2022年2月4日开幕。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/fbf4ffd6-442d-40f6-a02a-81cf269530b6-1.jpg)
 
-中共国说，抵制努力的背后是 “政治动机”。中共将新疆的拘留营描述为职业中心。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/70fd7cc5-0e41-4b0a-add9-97c62eeacb0e-1.jpg)
 
-“中国坚决反对将体育政治化，反对利用人权问题干涉别国内政，”外交部发言人赵立坚本月早些时候说。他说，抵制的努力 “注定要失败”。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/38446eb9-5aa3-462d-9153-5499c036410e.jpg)
 
-维权组织已经与国际奥委会会面，并被告知奥林匹克机构必须保持政治上的 “中立”。国际奥委会告诉他们，中共国已经就人权状况作出了 “保证”。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/7bfb011f-73a7-4349-8425-5e65e53e01b2.jpg)
 
-活动人士说，国际奥委会拒绝公开这些文件，这使得人们无法知道已经承诺了什么，也无法知道中共国是否履行了承诺。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/066d7600-601b-4901-9ce8-4e20bf5d2f76.jpg)
 
-**新闻来源：[美联社](https://apnews.com/article/winter-olympics-beijing-2020-tokyo-olympics-china-olympic-games-c94f6ff2289cf26b0c6395423dc74e33)**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/d0dd968d-e34e-42b1-8a95-818957b313c9.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募-2.jpeg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/017bf42f-7168-4219-874a-3d8e977bad5e-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/26361718-cf4d-4aeb-8269-e2d25eb3cc9f.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/e8324af7-3521-46e9-aec8-6533a83d0b73-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4424b8f3-5861-4a37-bd18-cfbcc01826b7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/eac22a79-294e-4b9a-8eae-17217d893593-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/aadf809d-67c5-4d6c-b76d-8a2bfcb32aa5-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/0ce7aef8-f476-448f-9dcc-a4d176916833.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/04660500-2c9e-40bc-af55-e10063148825.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/70db36c5-2845-4e2c-a570-e8e733d3e31b.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1b4019bd-4d2b-4208-9e18-39dff74f49fd.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/94e81d93-c9d4-486b-9d5d-ec1ca28d468f-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cc88646a-188b-4414-84a3-6a88886b7982.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/27763c73-4c16-4b6e-b7b8-4679089c7d49.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/f4781187-0147-440d-95a1-2556ad9695a5-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2b226ca3-4c70-4187-9ec7-86b792e8e74c.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cacc00f8-d76a-4fbb-b53e-6d2c357d5b21.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ad03cda7-1f1b-49fd-af9f-dd47ded66671.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/42bd27b4-725d-402f-9d50-bee58edc00f9-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3b7a1a1a-6dbe-424c-a5d4-d457a4e858a1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/de528ae9-b853-4307-84f7-f00d5a2885de.jpg)
+
+发稿：Ranting
+
+本文观点均来自于作者，与GNEWS无关
 
 0

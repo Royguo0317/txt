@@ -1,47 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我们要加快让全世界普通民众了解中共≠中国人
-` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1008049/)
+## 【军事快讯】美军创侦察距离新纪录，距中共海岸线仅25.33海里
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1008278/)
 
-**撰稿: 天鹅**
+作者：香草山媒体部 白木
 
-**审核: 慧心, pv0**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1618-【军事快讯】美军创侦察距离新纪录，距中共海岸线仅25.33海里-1.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4bddd6b2a6712546.jpg)**图片: 昆仑竹**
-
-3月23日美英加三国及澳新发表了有关新疆的联合声明[1]：“我们—加拿大外交部长与英国外交大臣和美国国务卿，共同对中国在新疆违反和践踏人权表示我们深切和持续的关注…今天，我们协调行动，采取措施，并与欧洲联盟采取的措施并行，就新疆发生的违反和践踏人权行为发出一个明确讯息。我们团结一致地呼吁中国结束针对维吾尔穆斯林和新疆其他少数民族与宗教少数群体的压制行为，并释放那些被任意拘押的人…新西兰和澳大利亚欢迎加拿大、欧洲联盟、英国和美国夜间宣布的措施”。这是西方联盟第一次联合起来，以正式的制裁文件的形式明确中共在新疆犯下种族灭绝罪和反人类罪。联合声明中还反映了不仅仅是加拿大、英国、新西兰、澳大利亚会和美国一起行动，整个欧盟都会共同实施对中共的制裁及反制措施，随着全球灭共的大势到来，越来越多的国家也会加入到灭共联盟中。现在中共的每一次一意孤行和对外国政府的羞辱、说教、强词夺理，都会导致灭共联盟行动的加速。
-
-与此同时，大纪元也报道了[2]：“周一（3月22日），法国外交部宣布，将召见中共驻法大使卢沙野，因为中共大使馆一再对法国议员和研究人员进行侮辱和威胁，以及北京制裁欧盟官员以报复欧盟制裁四名在新疆侵犯人权的中共官员。”尽管中共在法国渗透严重，但中共一再的挑衅、羞辱下，法国政府也不得不站出来捍卫一下自己的尊严。在墙内老百姓们引以为憾的战狼外交，再一次使中共国家形象蒙羞。
-
-在郭文贵先生盖特3月22日文字版中[3]说到，“现在国内沸腾，连街道都开会了，中国不吃那一套，划时代的改变，中国人已经领导世界了，中国人已经开始给美国人上课了，美国人已经腿发抖了…拜登总统一摔三次，都说明中华民族要走向伟大的时代，领导全宇宙。”。美阿拉斯加会晤后，中共在墙内大肆宣传“中强美弱”，中（共）国即将替代美国成为世界的老大。3月23日官媒对国际制裁做出回应，环球网发文[4]：“涉疆问题不是什么人权、民族、宗教问题，而是反暴恐、反分裂问题。中国人权状况怎么样，中国人民最有发言权。”中共面对新疆种族灭绝、反人类罪完全没有任何悔改的意思，企图牢牢抓住十四亿人作为肉票与全世界对抗到底。爆料革命、新中国联邦绝对不会让你得逞。
-
-中共如此疯狂地绑架十四亿人民，煽动民族仇恨，反美反西方，反普世价值，因此爆料革命、新中国联邦的任重而道远，全世界各种语言的人民都需要了解中共病毒真相、香港危机真相，如何有智慧的，有策略的宣传，让全世界，特别是普通民众了解到中共≠中国人尤为重要。无论有多少政客与中共勾兑，只要有了大部分民意的觉醒，了解到中共的邪恶，那么那些政客最终也会倒戈，民主世界的国家是没有人敢对抗民意的。战友们，在爆料革命、新中国联邦的推动下，全球灭共、以法灭共、以毒灭共正在加速进行中，共产党你完了！
-
-最后，我仅代表我自己欢迎多语种翻译的战友们进驻法国巴黎七星农场的大家庭，不离不弃，缺你不行，感谢你们的到来！
+SCSPI于美东时间3月22日发表推文，根据迄今为止的公开数据，美国空军RC-135U侦察机，刚刚创下了距中国海岸线最短的侦察距离新纪录，25.33海里。
 
 
 
-
-
-**本文仅代表作者个人观点。**
-
-**参考新闻: **
-
-[美英加三国及澳新两国有关新疆的联合声明(全文翻译)](http://美英加三国及澳新两国有关新疆的联合声明%28全文翻译%29)
-
-[反击中使馆威胁言论 法国将召见中共大使](http://反击中使馆威胁言论%20法国将召见中共大使)
-
-[接连回击！中国驻加拿大、澳大利亚、英国使馆回击所谓“涉疆指责”，外交部也出手！](http://接连回击！中国驻加拿大、澳大利亚、英国使馆回击所谓“涉疆指责”，外交部也出手！)
+> USAF RC-135U Combat Sent [#AE01D5](https://twitter.com/hashtag/AE01D5?src=hash&amp;ref_src=twsrc%5Etfw) just set a new record of 25.33NM, the shortest distance US reconnaissance aircraft have reached from the China's coastlines, based on public data so far.
+> 
+> In addition, there was also a P-8A & an EP-3E spotted over the [#SouthChinaSea](https://twitter.com/hashtag/SouthChinaSea?src=hash&amp;ref_src=twsrc%5Etfw), March 22. [pic.twitter.com/uLv49u70Gv](https://t.co/uLv49u70Gv)
+> — SCS Probing Initiative (@SCS\_PI) [March 22, 2021](https://twitter.com/SCS_PI/status/1373886128177041410?ref_src=twsrc%5Etfw)
 
 
 
-> [郭文贵先生盖特3月22日 文字版](https://gnews.org/zh-hans/1003522/)
+博博士引当年“巴伦支海手术刀事件”对该事件进行评论道：“美军主动挑战中共，离中共不得不开火1.33海里”，“25.33海里，土共找块豆腐撞死算了”。
 
 
 
-* * *
+> 阿拉斯加對罵以後，美軍RC-135U偵察機抵近到距離中共國海岸25.33海哩才折返。這是什麼概念呢？進入24海哩毗鄰區就基本可以開火了，所以，美軍主動挑戰中共，離中共不得不開火1.33海哩。比較一下，當年巴倫支海手術刀事件，P-3距離蘇聯海岸48海哩就被宰了。25.33海哩，土共找塊豆腐撞死算了。🤣🤣🤣 [https://t.co/5DiYFaq3ax](https://t.co/5DiYFaq3ax)
+> — Dr. Bo 🇺🇸🇹🇼🇭🇰 (@BoDiplo) [March 22, 2021](https://twitter.com/BoDiplo/status/1374140014628573189?ref_src=twsrc%5Etfw)
 
-**发布: 法国巴黎七星编辑组**
+
+
+毗连区（contiguous zone），又称“邻接区”、“海上特别权”，是指沿海国根据其国内法，在领海之外邻接领海的一定范围内，为了对某些事项行使必要的管制权，而设立的特殊海域。毗连区的宽度实际上是连同领海在内的不得超过24海里。
+
+此次美军侦察机抵近中共国海岸线25.33海里才折返，离毗连区仅差1.33海里。
+
+本月8日，SCSPI就已曝光美国空军RC-135W电子侦察机对华侦察完整路线，当时距离中共国临海基线仅28.34海里。此次侦察更近一步，仅25.33海里。
+
+
+
+> A rare full trajectory!
+> USAF RC-135W ([#AE01D2](https://twitter.com/hashtag/AE01D2?src=hash&amp;ref_src=twsrc%5Etfw)) from Kadena is conducting a [#SouthChinaSea](https://twitter.com/hashtag/SouthChinaSea?src=hash&amp;ref_src=twsrc%5Etfw) mission, operating alongside China's coastlines near Guangdong, Hainan, and the [#ParacelIslands](https://twitter.com/hashtag/ParacelIslands?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/ZQOuHnEtAc](https://t.co/ZQOuHnEtAc)
+> — SCS Probing Initiative (@SCS\_PI) [March 8, 2021](https://twitter.com/SCS_PI/status/1368801174053289988?ref_src=twsrc%5Etfw)
+
+
+
+继美中会谈，中共宣称“不吃美国那一套”后，目前为止，中共官方并未就此次事件作出任何回应。相较于巴伦支海手术刀事件，苏军就挪威海军作出的反应，中共对这次美军侦察行动的反应验证了，中共就是一只“纸老虎”。
+
+不管中共怎么狐假虎威，怎么垂死挣扎，都无法阻挡世界正义联盟，美、印、日、澳以及北约对中共发起的围剿之势。
+
+编辑/审核/发稿：雪梨
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0
