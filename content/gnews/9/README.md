@@ -1,64 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 芬兰指责有中共背景的APT31黑客组织入侵议会
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1010306/)
+## 中共在死亡倒计时的作死路上越走越远
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1010636/)
 
-新闻来源：《CYBERSCOOP》| 作者：Sean Lyngaas | 发布时间：2021年3月18日
+整理：桂花酒 | 素材制作：健身健心、Bobby | 校对：宁缺 | 审核：free dust | Page：Daoiii
 
-翻译/简评：新街口 | 校对：X-Wing飞得更高 | 审核：万人往 | Page：Daoiii
+[!\[\]()!\[\](https://spark.adobe.com/page/Spul3PH1z04Xb/images/533f99d7-8392-417c-895c-374d818a8acb.jpg?asset_id=7e16fcd6-dd66-4c14-b2fe-dac594ba076c&amp;img_etag=%22c4acba0f4512f5c218e66ccac8e98f49%22&amp;size=1024)](https://spark.adobe.com/page/Spul3PH1z04Xb/images/533f99d7-8392-417c-895c-374d818a8acb.jpg?asset_id=7e16fcd6-dd66-4c14-b2fe-dac594ba076c&amp;img_etag=%22c4acba0f4512f5c218e66ccac8e98f49%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/SaBE1aIA2xg3u/images/0bcaccea-1774-41fd-ac3d-6f3b491f59a8.jpg?asset_id=faed11b2-c7cc-49bd-bae6-fa7663109e21&amp;img_etag=%22f4991c56246d3d2a1bb72df1a79326e5%22&amp;size=2560)](https://spark.adobe.com/page/SaBE1aIA2xg3u/images/0bcaccea-1774-41fd-ac3d-6f3b491f59a8.jpg?asset_id=faed11b2-c7cc-49bd-bae6-fa7663109e21&amp;img_etag=%22f4991c56246d3d2a1bb72df1a79326e5%22&amp;size=1024)
+## **围炉夜话第十九期直播精要**
 
-***简评：***
+[G-TV直播视频链接](https://gtv.org/video/id=6055e207a26ac57138def036)
 
-网络战是中共超限战的一种重要形式。无数的事实证明，中共早已经对美国及其盟国的企业、政府和军事目标开展了全方位的网络战争。
+[!\[\]()!\[\](https://spark.adobe.com/page/Spul3PH1z04Xb/images/3fa17266-383c-4695-b8d5-bfc2023b5122.png?asset_id=af249b54-74f3-463b-b008-3d5bf8be912b&amp;img_etag=%2267a956102e96b5550f84488dd872c862%22&amp;size=1024)](https://spark.adobe.com/page/Spul3PH1z04Xb/images/3fa17266-383c-4695-b8d5-bfc2023b5122.png?asset_id=af249b54-74f3-463b-b008-3d5bf8be912b&amp;img_etag=%2267a956102e96b5550f84488dd872c862%22&amp;size=1024)
 
-在企业方面，中共通过网络黑客盗取他国核心技术的案例已经数不胜数。最著名的案例包括2018年美国司法部指控两名中共黑客涉嫌按中共国国安部指示，参与名为APT10的黑客团体，盗取12个国家的知识产权与商业机密。另外一个案例就是2020年2月美国司法部宣布对中共军方的4名成员提起诉讼，理由是他们涉嫌参与了2017年对美国信用评级机构巨头Equifax数据库的大规模黑客攻击，窃取了数百万美国人的私人数据。
+本期节目开头讨论了英国首相约翰逊再次注射疫苗、国药控股董事长于清明持续一年的“以身试药”以及WHO作为非政府组织正配合中共作恶等新闻。这些事件显示权利与民众对立加剧，“以毒灭共”已成为趋势。
 
-在政府方面，中共不仅通过黑客手段影响他国选举，例如本文所披露的APT13去年把乔·拜登的总统竞选作为黑客目标；还通过窃取其他国家政府的机密信息用来影响他国政策，如本文所报道的对芬兰议会的黑客入侵。
+从外交层面看，中共国已经陷入与世皆敌的泥潭。首先，中共以台湾凤梨风险很高为由拒绝进口，把贸易事情政治化。其次，就孟晚舟事件批评加拿大犯了政治错误，刻意回避利用科技偷盗监控他国的罪行。并且反对韩国称沙尘暴来自中共国的表述，小粉红质疑如此表述，那么蒙古属于中共国，此事透露出国内舆情舆论逻辑的混乱。最后是缅甸人逐渐看清了中共为了利益肆意插手别国内政，输出专制与杀戮。同时，八国联军上热搜也看出民意在苏醒中。这些都说明中共当前已经面临四面楚歌，而其自身的反人类本质注定了它的灭亡。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/SaBE1aIA2xg3u/images/d538920a-10a1-45e5-83ec-0b75aca309eb.jpg?asset_id=d5ac01b3-d4cc-49ec-a614-62e888d045c2&amp;img_etag=%22ea1ecb45c74028ca617b457043fcad09%22&amp;size=1024)](https://spark.adobe.com/page/SaBE1aIA2xg3u/images/d538920a-10a1-45e5-83ec-0b75aca309eb.jpg?asset_id=d5ac01b3-d4cc-49ec-a614-62e888d045c2&amp;img_etag=%22ea1ecb45c74028ca617b457043fcad09%22&amp;size=1024)2018年12月，美国指控两名中国籍黑客朱华（Zhu Hua）、张士龙（Zhang Shilong）涉嫌按中国国安部指示，参与名为APT10的黑客团体，盗取12国的知识产权与商业机密。
+从内政方面看，江习斗目前的妥协表达出的政治信号，值得重视。嘉宾从古代皇帝对宰相权利的制衡，可以窥见中共权斗乃封建余孽。中共篡政后的五马进京，毛刘（帝相）之争引发文革。中共经过毛对权利重新分配，毛死后邓重新对权利重新分配，到今天习借纪念华国锋再次来分配权利。分析整个权力变动的过程可以推断出此次纪念华国锋传递的三点政治信号：一、习准备找人接班；二、习通过追忆过去接班权斗的惨烈，表达避免斗争，顺利交接的意愿；三、韩正出现纪念会表明习江已经妥协。不排除习在党内选择戈尔巴乔夫式人物来结束中共的统治。
 
-在军事方面，中共除了通过网络窃取他国的军事信息和情报外，还会利用网络攻击来瘫痪他国重要的基础设施，造成混乱。例如中共与马航MH370飞机神秘失踪有着千丝万缕的关系；还有就是已经被证实的，2017年7月对郭文贵先生的游艇发动国家级别的网络攻击，导致游艇操作系统失灵，差点造成严重的撞船事故。
+最后，嘉宾还讨论了近期墙内发生的诸多时事热点。家庭是社会的细胞。以天价彩礼为代表，可以窥见中共制造了一个多达3000~5000万光棍的畸形世态：社会养老名存实亡，城乡之间经济天差地别，民族思想进步未与经济发展、物质丰富成正比，女性在社会上被歧视、在家庭里成为价值扭曲的牺牲品。中共七十年来一切以金钱为标准的唯物论洗脑恶果带来的社会撕裂，还有资源被中共绝对垄断造成民众心里缺乏安全感，都使得保障下一代的祈盼也成泡影。没有包括性权利在内的人权，是全民族的悲剧。
 
-***原文翻译：***
+综上，病毒还在肆虐，战狼依然作死狂奔，内斗依旧持续，百姓福祉渺茫。没有中共的世界，才可能存在基本的安全和希望。灭共成为中国人唯一的选择。
 
-## **芬兰指责与中共国有关的APT31对议会黑客入侵**
+每周六GTV-UK-2号台定时直播
 
-[!\[\]()!\[\](https://spark.adobe.com/page/SaBE1aIA2xg3u/images/6f63aeb6-7e75-4056-9dcd-3dc4451e4ee7.png?asset_id=a718e7ce-bf2c-4889-bace-490519788060&amp;img_etag=%22151439c4c146404fdb3dbda355057473%22&amp;size=1024)](https://spark.adobe.com/page/SaBE1aIA2xg3u/images/6f63aeb6-7e75-4056-9dcd-3dc4451e4ee7.png?asset_id=a718e7ce-bf2c-4889-bace-490519788060&amp;img_etag=%22151439c4c146404fdb3dbda355057473%22&amp;size=1024)2019年3月，芬兰议会外的环保抗议者。芬兰官员称，与中共国有联系的黑客组织入侵了议会。（VESA MOILANEN / AFP通过盖蒂图片社）
+- 英国时间：12:00-14:00
+- 美东时间：7:00-9:00
+- 盘古时间：20:00-22:00
 
-芬兰政府谴责了一组可疑的中共国间谍，原因是他们去年入侵了芬兰议会并获取了电子邮件。
 
-在周四的一份声明中，芬兰情报官员将矛头指向了一个叫做APT31的黑客组织，安全研究人员称该组织代表中共国利益而开展活动。APT31对芬兰议会的入侵始于去年秋天，并于去年12月被揭露出来，当时芬兰议会议长将其描述为可能损害芬兰的利益的“有敌意的网络活动”。
+欢迎关注英国伦敦喜庄园艺术组《缪斯殿堂》节目
 
-芬兰安全和情报服务部门将其标记为国家背后支持的行动。该声明说APT31对攻击负有责任，但没有直接点名中共国。另外，芬兰警方周四将这次黑客行为描述为“严重的间谍活动”和“消息窃听”。
-
-芬兰的声明是在欧洲的美国同盟国越来越愿意使用的一种模式，用来指责特定的从事间谍活动的黑客组织。芬兰学者维克多·兰塔拉（Viktor Rantala）说，这是他第一次记得芬兰当局公开地将一次网络情报行动认定是某一特定组织所为。
-
-经常会有针对立法机关进行的网络间谍活动，因为来自各个国家的间谍都在试图获取他国政府机密。但是一些芬兰官员仍然对议会遭到入侵感到愤怒。
-
-芬兰国会议员佩特里·奥波（Petteri Orpo）周四表示，“必须制止类似入侵议会这样的黑客活动”，并呼吁芬兰“采取适当行动”对入侵行为做出回应，而不需做更多的解释。
-
-近年来，中共国对芬兰的兴趣与日俱增，随着中共国企业的投资日益增加，使北京成为芬兰这一北欧国家最大的贸易伙伴之一。
-
-据戴尔（Dell）旗下的Secureworks称，APT31是因针对法律和咨询行业而知名的黑客组织，并通过使用GitHub和Dropbox来存储其计算工具，达到隐藏踪迹的目的。据称，该组织去年曾经把乔·拜登的总统竞选作为目标。
-
-周四，中共国驻华盛顿大使馆对上述指控提出置评的请求并未给以回应。北京经常否认进行黑客行动。
-
-这起芬兰的网络入侵事件，只不过是震撼北欧议会的最新一起所谓的网络间谍事件。挪威官员在10月指控俄罗斯政府支持的黑客渗透了挪威议会的IT系统，并从电子邮件中窃取了数据。莫斯科对这一指控予以否认。
-
-这也不是欧洲最近报道的唯一一次APT31的攻击。德国情报官员在一月份警告说，该组织已经对多个德国政府机构的网络进行了侦察行动。
-
-**🔗[原文链接](https://www.cyberscoop.com/finland-apt31-china-parliament-hack/)**
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+- 请订阅 [英国伦敦喜庄园GTV-UK-1号台](https://gtv.org/user/5ee680a45bd6f123dd104807)
+- 请订阅 [英国伦敦喜庄园GTV-UK-2号台](https://gtv.org/user/5fb02ac8bd0d464fad04dfdb)
+- 请订阅 [英国伦敦喜庄园英语频道GTV UK English](https://gtv.org/user/602f9f5c047c4c3086d4f215)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/SaBE1aIA2xg3u/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/SaBE1aIA2xg3u/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+![]()![](https://spark.adobe.com/page/nnRAweKwRnu0Z/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

@@ -1,85 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210323（图片新闻）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1008616/)
+## “中国人不吃这一套”爆红是真悲哀
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1009269/)
 
-- 作者：2020喜马拉雅
-- 封面：透明的遮羞布
+俄罗斯莫斯科喀秋莎农场 娜洁仕达
+
+编辑上传 水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/C-22-8.jpg)news.enorth.com.cn
+最近两三天中共国的微信朋友圈、微博、各大网站头条被外交部霸屏了，杨洁篪、王毅、华春莹、赵立坚一众外交官被网民热捧，连在阿拉斯加的女翻译张京都被扒出了简历，杨洁篪在阿拉斯加的“中国人不吃这一套”成为了热词，淘宝商家也不甘示弱推出了“不吃这一套”系列中共外交语言的酒瓶、手机壳、T恤衫，于是全民高潮，欢呼中国人民“硬”起来了，瞬间，王毅带领的“外交天团”再一次走红网络。
+
+搜了搜百度百科，外交通常含义是指一个国家为了实现其对外政策，通过互相在对方首都设立使馆，派遣或者接受特别使团，领导人访问，参加联合国等国际组织，参加政府性国际会议，用谈判、通讯和缔结条约等方法，处理其国际关系的活动。
+
+综上所述，外交是在用和平的方式进行协商的政治手段，反观中共国的外交官屡屡被爆出丑闻并且语出惊人，且不说赵立坚、刘晓明点赞黄色网站，对推特上持反对意见的人士一律拉黑，我们就看看他们的所作所为，王毅的名句“ 哼!一派胡言！”华春莹“中国有句很网红的话叫做‘做人不能太美国了’，我们希望美方有些人能够深刻地反省一下”。耿爽的： “中国人不信邪、 不怕压， 从来不吃这一套”更成为了2020年中共国外交的金句广泛流传。一个泱泱大国的外交官如此无礼、傲慢、毫无逻辑、撒泼式的外交方式竟然被网络热捧，真是悲哀！
+
+中共国现在由于疫情问题、香港问题、台湾问题、新疆问题、干涉美国大选问题、盗取他国知识产权、渗透全世界等等问题已经激起了全世界政府和人民的愤怒，一系列报复、打击行动都在酝酿中，呼之欲出；箭在弦上，中共国的老百姓将要遭受的苦难几乎可以预见。
+
+作为中共国的外交人员本该在这个时候挺身而出，用他们独自拥有的渠道以和平的方式化干戈为玉帛，让中共国的老百姓免于遭受被全世界人民歧视的窘境，免于落入更为深重的灾难中。而泱泱大国的外交官，在中共处于“人人喊打“的境地、中共国14亿老百姓处在危险边缘的时候，依然没有选择站在人民的一方，依然为这个邪恶的体制唱赞歌，在全世界拉仇恨、秀肌肉，这是置14亿老百姓于水深火热之中！
+
+就在今天仍然爆出“外交部负责人召见英国驻华大使就英国对华制裁提出严正抗议”，“法国外交部‘召见’我大使，大使馆：今天没空，明天再说”这样丑态百出的外交手段，实在让每一个中国人蒙羞！这些人必将被钉在历史的耻辱柱上。
+
+我们爆料革命的战友，新中国联邦的公民，绝不承认中共等于中国人，绝不让中共的外交官代表我们。中共国14亿人没有途径发声，他们没有选票，没有言论自由，面对着即将到来的来自全世界人们的愤怒，我们只有勇敢地站出来，大声疾呼“中国共产党不代表中国人！”
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
-
-**西班牙2021年3月23日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2000.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/6d651d1d-8502-4d77-bdb7-a35048108497-6.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ce556ab0-8b32-4f14-bb5c-59073ab1c851-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b9a2badc-7278-45ac-bd3d-10bbbd535241.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3d137245-0184-4129-ac2b-f092bd97055b-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/fc03cbcd-0a17-4214-9c28-c5e061dd0f2c-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d6021b20-0d11-4578-b28e-3137b1b2b5da.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/fbf4ffd6-442d-40f6-a02a-81cf269530b6-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/70fd7cc5-0e41-4b0a-add9-97c62eeacb0e-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/38446eb9-5aa3-462d-9153-5499c036410e.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/7bfb011f-73a7-4349-8425-5e65e53e01b2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/066d7600-601b-4901-9ce8-4e20bf5d2f76.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d0dd968d-e34e-42b1-8a95-818957b313c9.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/017bf42f-7168-4219-874a-3d8e977bad5e-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/26361718-cf4d-4aeb-8269-e2d25eb3cc9f.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e8324af7-3521-46e9-aec8-6533a83d0b73-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4424b8f3-5861-4a37-bd18-cfbcc01826b7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/eac22a79-294e-4b9a-8eae-17217d893593-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/aadf809d-67c5-4d6c-b76d-8a2bfcb32aa5-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0ce7aef8-f476-448f-9dcc-a4d176916833.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/04660500-2c9e-40bc-af55-e10063148825.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/70db36c5-2845-4e2c-a570-e8e733d3e31b.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1b4019bd-4d2b-4208-9e18-39dff74f49fd.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/94e81d93-c9d4-486b-9d5d-ec1ca28d468f-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cc88646a-188b-4414-84a3-6a88886b7982.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/27763c73-4c16-4b6e-b7b8-4679089c7d49.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/f4781187-0147-440d-95a1-2556ad9695a5-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2b226ca3-4c70-4187-9ec7-86b792e8e74c.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cacc00f8-d76a-4fbb-b53e-6d2c357d5b21.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ad03cda7-1f1b-49fd-af9f-dd47ded66671.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/42bd27b4-725d-402f-9d50-bee58edc00f9-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3b7a1a1a-6dbe-424c-a5d4-d457a4e858a1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/de528ae9-b853-4307-84f7-f00d5a2885de.jpg)
-
-发稿：Ranting
-
-本文观点均来自于作者，与GNEWS无关
 
 0
