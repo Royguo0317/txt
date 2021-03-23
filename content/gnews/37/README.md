@@ -1,42 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】律政司司长郑若骅撰文炫耀「轻罪重判」成绩单
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1008713/)
+## 慧眼看世界20210323（图片新闻）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1008616/)
 
-搜集/编撰：天灭中共
+- 作者：2020喜马拉雅
+- 封面：透明的遮羞布
 
-**新闻简述**
 
-律政司司长郑若骅今日（23 日）发表网志，表示相比往年，律政司在 2020 年提出的覆核刑罚的申请是前年的四倍。在提出 17 宗覆核刑罚的申请中，15 宗已完成审讯，结果律政司均获判得直，意味着案件的被告或全数遭加刑重判。郑若骅将之定义为检控人员不偏不倚地秉行公义。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/32395-1.jpg)图片来源：立场新闻
-**事件分析**
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-郑若骅司长在2019年1月的法律年度开启礼上致辞，谴责「有些人仅因为裁决的结果不合其心意，便无理地肆意抨击、甚至恶意中伤某些法官，这些言行不能容忍」。两年后同一场合，她再次强调说「2020年目睹有不少类似情况，不得不再次作出提醒」。
+**西班牙2021年3月23日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
 
-香港人经常说「有口话人，冇口话自己」，即是说某人对人对己持双重标准，用在郑司长身上再贴切不过。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2000.jpg)
 
-对于年轻、非暴力，甚至残障的示威者，原讼法庭基于量刑以「具阻吓性」为原则，大多数都获得守行为、社会服务令等非监禁式的裁决。中共党媒这个时候就全数冲出来，撰文围剿这些法官，不断施加舆论压力，另一边厢，律政司就打配合战，坚持上诉直至他们全部获遭重判，才罢手。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/6d651d1d-8502-4d77-bdb7-a35048108497-6.jpg)
 
-对此，郑若骅在网志中就以「公众利益」为由，指出「即使涉及相对较低程度的暴力，在未来亦可能判处即时监禁」，「被告年轻或个人背景的考虑比重极其有限，甚至是微不足道，因严惩或阻吓的需要远超过犯案者更生的需要。」
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ce556ab0-8b32-4f14-bb5c-59073ab1c851-5.jpg)
 
-最后，她主动提到这项原则若「引起了包括负责判刑法庭的不同意见」，「日后可以再作讨论」。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/b9a2badc-7278-45ac-bd3d-10bbbd535241.jpg)
 
-言下之意，重判示威者是权衡「公众利益」之后的应有之义，无论如何，反对者就要坐牢，坐了再说，至于对与错就日后再讨论。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2-97.jpg)图片来源：东网
-**笔者评论**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3d137245-0184-4129-ac2b-f092bd97055b-2.jpg)
 
-郑若骅的网志中，尽情炫耀其领导下的律政司，在沦为政权打手之后，如何战功彪炳。在这期间，有多少心存司法正义的检控官因此离职，郑若骅从未提及，亦不敢提及。中共极权统治之下，劣币驱逐良币是预期之内，但律政司整体专业操守败坏之急速，着实令人咂舌。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/fc03cbcd-0a17-4214-9c28-c5e061dd0f2c-2.jpg)
 
-法治的核心，是以法限权，制衡公权力的滥用，借此保障市民基本人权自由，律政司非但不制约反而纵容滥用公权力之人。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/d6021b20-0d11-4578-b28e-3137b1b2b5da.jpg)
 
-当权者滥用公权力而无任何后果之时，就会变成魔鬼，绝对的权力使人绝对的腐化，有权必用，用时必尽，无权可用，立法制新，如此循环，变本加厉。这个就是今日香港法治之实况。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/fbf4ffd6-442d-40f6-a02a-81cf269530b6-1.jpg)
 
-【以上观点仅代表笔者本人】
+![]()![](https://gnews.org/wp-content/uploads/2021/03/70fd7cc5-0e41-4b0a-add9-97c62eeacb0e-1.jpg)
 
-资料来源：
-[律政司司长网志](https://www.doj.gov.hk/tc/community_engagement/sj_blog/20210323_blog1.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/38446eb9-5aa3-462d-9153-5499c036410e.jpg)
 
-覆核：卡西欧 / 上传：天网灰灰
+![]()![](https://gnews.org/wp-content/uploads/2021/03/7bfb011f-73a7-4349-8425-5e65e53e01b2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/066d7600-601b-4901-9ce8-4e20bf5d2f76.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/d0dd968d-e34e-42b1-8a95-818957b313c9.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/017bf42f-7168-4219-874a-3d8e977bad5e-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/26361718-cf4d-4aeb-8269-e2d25eb3cc9f.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/e8324af7-3521-46e9-aec8-6533a83d0b73-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4424b8f3-5861-4a37-bd18-cfbcc01826b7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/eac22a79-294e-4b9a-8eae-17217d893593-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/aadf809d-67c5-4d6c-b76d-8a2bfcb32aa5-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/0ce7aef8-f476-448f-9dcc-a4d176916833.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/04660500-2c9e-40bc-af55-e10063148825.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/70db36c5-2845-4e2c-a570-e8e733d3e31b.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1b4019bd-4d2b-4208-9e18-39dff74f49fd.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/94e81d93-c9d4-486b-9d5d-ec1ca28d468f-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cc88646a-188b-4414-84a3-6a88886b7982.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/27763c73-4c16-4b6e-b7b8-4679089c7d49.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/f4781187-0147-440d-95a1-2556ad9695a5-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2b226ca3-4c70-4187-9ec7-86b792e8e74c.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cacc00f8-d76a-4fbb-b53e-6d2c357d5b21.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ad03cda7-1f1b-49fd-af9f-dd47ded66671.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/42bd27b4-725d-402f-9d50-bee58edc00f9-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3b7a1a1a-6dbe-424c-a5d4-d457a4e858a1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/de528ae9-b853-4307-84f7-f00d5a2885de.jpg)
+
+发稿：Ranting
+
+本文观点均来自于作者，与GNEWS无关
 
 0

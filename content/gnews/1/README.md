@@ -1,100 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国正在增强贸易武器化的能力
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1010197/)
+## 伊姆兰·汗总理感染病毒和巴基斯坦疫情飙升是偶然的吗？
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1010485/)
 
-新闻来源：CNBC《全国广播公司商业频道》| 作者：Yen Nee Lee| 发布时间：2021年3月17日
+作者：文明明 | 校对：宁缺 | 审核：freedust | Page：青山
 
-翻译/简评：文意 |校对：X-Wing飞得更高 |审核：万人往 |Page：小雨
+[!\[\]()!\[\](https://spark.adobe.com/page/Tlv6zjNWnkQvc/images/00deee77-1c2b-4ebe-88e5-14d91b109a52.jpg?asset_id=389a19d9-591f-4369-b764-455f68b47ced&amp;img_etag=%2245a26100b82babdb1d12515cda42680b%22&amp;size=2560)](https://spark.adobe.com/page/Tlv6zjNWnkQvc/images/00deee77-1c2b-4ebe-88e5-14d91b109a52.jpg?asset_id=389a19d9-591f-4369-b764-455f68b47ced&amp;img_etag=%2245a26100b82babdb1d12515cda42680b%22&amp;size=1024)巴基斯坦总理伊姆兰·汗（Imran Khan）
 
-[!\[\]()!\[\](https://spark.adobe.com/page/SFSzP5w3puAXD/images/140e3632-d785-4c58-91bd-4d7b2dd0f9d9.jpg?asset_id=e3e2e103-d3c4-4512-92e6-4b5965ff0d7b&amp;img_etag=%22fa1d57b788ed0fb4b1ac59260d7ea22d%22&amp;size=1024)](https://spark.adobe.com/page/SFSzP5w3puAXD/images/140e3632-d785-4c58-91bd-4d7b2dd0f9d9.jpg?asset_id=e3e2e103-d3c4-4512-92e6-4b5965ff0d7b&amp;img_etag=%22fa1d57b788ed0fb4b1ac59260d7ea22d%22&amp;size=1024)
+据报道，巴基斯坦总理伊姆兰·汗（Imran Khan）的健康事务助手费萨尔·苏尔坦博士在周六表示，巴基斯坦总理伊姆兰·汗的新冠病毒检测呈阳性，目前正在家中进行自我隔离。
 
-**简评：**
+现年67岁的伊姆兰·汗在周五接受了第一剂中共国产的国药疫苗，这是巴基斯坦最新推出全国范围内抗新冠病毒、接种疫苗活动中的一部分。另据报道说，在过去24小时（周五）内，巴基斯坦新增了3876个新冠病例，是自去年7月以来最高的单日感染病例数。
 
-本文作者反复提到关于中共对其进口产品供应链的多元化产业结构的加强，以巩固供应链的稳定性和持久性。包括收购国外公司、更多依赖从“稳定的专治政体”进口商品、利用贸易作为武器打击报复地缘政治对手等。
+🔗[原文链接](http://Pakistan%20PM%20Imran%20Khan%20tests%20positive%20for%20Covid-19%20days%20after%20receiving%20first%20jab%20of%20Chinese%20vaccine%20Sinopharm)：
 
-中共从原来的接近民主国家，到后来倾斜于专制政权以便于其控制，可以看出他们是处心积虑地保护和延续中共的事业。也可以看出他们对民主法治国家的恐惧。只有全世界更多的国家意识到中共的阴险狡诈，了解他们的恶意谋划，才能清醒看到他们的真正目的是控制全世界。世界人民应该清醒了，政治家们不能再勾兑了。如果世界上的国家还继续跟中共交往勾兑，世界人民还会遭殃。
+[!\[\]()!\[\](https://spark.adobe.com/page/Tlv6zjNWnkQvc/images/a915627f-ca50-46e0-8d25-0224c555f604.jpg?asset_id=4874c405-87ce-4e64-9217-65f1b9fdcd3f&amp;img_etag=%2202c527a12bff99a9e6f3bae067b0dcd5%22&amp;size=1024)](https://spark.adobe.com/page/Tlv6zjNWnkQvc/images/a915627f-ca50-46e0-8d25-0224c555f604.jpg?asset_id=4874c405-87ce-4e64-9217-65f1b9fdcd3f&amp;img_etag=%2202c527a12bff99a9e6f3bae067b0dcd5%22&amp;size=1024)
 
-**原文翻译：**
+**评论：**
 
-## **新报告称中共国正在建立增强以贸易为武器的能力**
+从这则简短的新闻中，我们可以看出几个问题：
 
-**要点**
+***1、接种疫苗已经成为各国领导人的个人政治秀***
 
-**中共国是原油和铁矿石等主要商品的消费大国，但它严重依赖进口来满足国内对这些商品的需求。**
+[!\[\]()!\[\](https://spark.adobe.com/page/Tlv6zjNWnkQvc/images/9b58d88a-c283-4d08-8b5e-f854ef148b63.jpg?asset_id=a3ab3965-1377-4750-b8f4-b01b0689c043&amp;img_etag=%22134c0f8ee92d68ade49aaf8c96f20365%22&amp;size=1024)](https://spark.adobe.com/page/Tlv6zjNWnkQvc/images/9b58d88a-c283-4d08-8b5e-f854ef148b63.jpg?asset_id=a3ab3965-1377-4750-b8f4-b01b0689c043&amp;img_etag=%22134c0f8ee92d68ade49aaf8c96f20365%22&amp;size=1024)
 
-**Verisk Maplecroft的一份报告中称，中共国通过收购海外公司和进口转向“稳定的专制政权”，来使其关键的自然资源供应多元化。**
+迄今为止，已经有多国领导人在电视上、在公开场合，大张旗鼓、乐此不疲地接种疫苗。许多人把目前仍然存在许多问题和后遗症的疫苗当成了捞取个人政治资本，打击政治对手的武器。甚至前不久还有人被揭露出来在接种疫苗时，连针头的保护盖都没有取下来。这不禁让人起疑，他们注射的真的是疫苗吗？疫苗真的有效吗？如果真的有效，那么，为什么瑞士医学协会认为至少有四分之一的医生不会接种新冠疫苗？那么，为什么巴基斯坦总理伊姆兰·汗（Imran Khan）在接种后一天，会宣布病毒检测呈阳性？
 
-**该风险咨询公司表示：“通过确保原材料来源的多元化，中共国更好地使贸易武器化来应对其地缘政治的对手。”**
+***2、疫苗经济、疫苗外交已经成为中共对外扩张的有力工具***
 
-[!\[\]()!\[\](https://spark.adobe.com/page/SFSzP5w3puAXD/images/d3045247-5ead-43d5-bd6b-d9684db2aa63.jpg?asset_id=8934ce5d-5e72-4fd4-b750-3ac6f97ec12b&amp;img_etag=%22b600a65ed5e53f941de0ddd5ac83f197%22&amp;size=1024)](https://spark.adobe.com/page/SFSzP5w3puAXD/images/d3045247-5ead-43d5-bd6b-d9684db2aa63.jpg?asset_id=8934ce5d-5e72-4fd4-b750-3ac6f97ec12b&amp;img_etag=%22b600a65ed5e53f941de0ddd5ac83f197%22&amp;size=1024)插在船舶后部的一面中共国国旗迎风飘扬，对面是堆放在中国深圳港码头的集装箱 摄影：Daniel Berehulak / 盖蒂图片新闻 /盖蒂图片社
+[!\[\]()!\[\](https://spark.adobe.com/page/Tlv6zjNWnkQvc/images/086fc031-1e18-4251-8d3c-dae00f28d2ae.jpg?asset_id=782b34d0-3dab-4cf2-b485-99c7ab648aae&amp;img_etag=%22be3879e54491963564f2b8fc2ef5ccdc%22&amp;size=2560)](https://spark.adobe.com/page/Tlv6zjNWnkQvc/images/086fc031-1e18-4251-8d3c-dae00f28d2ae.jpg?asset_id=782b34d0-3dab-4cf2-b485-99c7ab648aae&amp;img_etag=%22be3879e54491963564f2b8fc2ef5ccdc%22&amp;size=1024)
 
-根据风险咨询公司Verisk Maplecroft最新的一份报告显示，中共正在多元化其关键自然资源的供应。此举将增强中共以贸易为武器来针对其地缘政治对手的能力。
+尽管世界各国的科学家们和政府一直在敦促中共国的疫苗制造商要在临床试验数据方面更加透明，但中共国对此一直置若罔闻。其在国内动用喉舌媒体进行误导的宣传，质疑莫德纳（Moderna）和辉瑞-生物技术（Pfizer-BioNTech）所产疫苗的安全性，却宣称在历史上从未自行研制开发任何疫苗的中共国产的疫苗是更好的替代品。同时，又以给接种中共国产疫苗的外国人优先发放签证为诱饵，推广中共国产疫苗。
 
-“如果中共国有软肋的话，那一定是其对于外国自然资源的高度依赖性。”周四发布的报告这样写道。
+在国际上，为了试图增加中共疫苗的吸引力和达到其政治目的，大量地向亚非国家捐赠中共国产疫苗。巴基斯坦是中共的“老朋友”，过去一直在国际舞台上扮演着中共小弟的角色，成为中共在南亚地区制衡印度的一枚棋子。中共对巴基斯坦一向投之以桃，也报之以李。就像这次，中共国又向巴基斯坦政府捐赠这50万剂疫苗。其实，这些国家都很明白中共真正的目的是通过推广它的疫苗来实现它的对外扩张，而这些国家的政治领袖为了维护自己在本国的声誉和地位，却与中共狼狈为奸，一拍即合，上演着一出出拙劣的政治秀。
 
-中共国是包括原油和铁矿石在内的主要大宗商品的消费大国，但是严重依赖进口来满足内需。
+***3、中共捐赠疫苗和巴基斯坦疫情飙升的背后会有什么秘密吗？***
 
-Verisk Maplecroft报告说，中共国通过收购国外公司来实施进口多元化，这样可以增加中共国拥有的资源的进口比例。
+[!\[\]()!\[\](https://spark.adobe.com/page/Tlv6zjNWnkQvc/images/46b724f6-6b05-4e20-86dc-761461744a3b.jpg?asset_id=be9f9319-8486-4c28-a2d0-20e1a8a29c19&amp;img_etag=%22e989d34a6ed2b37a7054a8a6d103f49d%22&amp;size=1024)](https://spark.adobe.com/page/Tlv6zjNWnkQvc/images/46b724f6-6b05-4e20-86dc-761461744a3b.jpg?asset_id=be9f9319-8486-4c28-a2d0-20e1a8a29c19&amp;img_etag=%22e989d34a6ed2b37a7054a8a6d103f49d%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/SFSzP5w3puAXD/images/747f4cb0-faf0-48c2-bf70-ba85fe09e0e6.png?asset_id=4c2912e5-344b-4ef6-9537-d7117dc7e7ad&amp;img_etag=%2226d0fe0c577ad0c16b4a7990eb6e2aa3%22&amp;size=2560)](https://spark.adobe.com/page/SFSzP5w3puAXD/images/747f4cb0-faf0-48c2-bf70-ba85fe09e0e6.png?asset_id=4c2912e5-344b-4ef6-9537-d7117dc7e7ad&amp;img_etag=%2226d0fe0c577ad0c16b4a7990eb6e2aa3%22&amp;size=1024)2000年至2020年在大洋洲，外资拥有的基本金属和黄金的公司: 矿山，冶炼厂和精炼厂所有权的变化
+据报告在过去24小时内，巴基斯坦新增了3876个病例，是自去年7月以来最高的单日新增病例数。就在巴基斯坦政府在为中共疫苗站台的同时，感染病例飙升，是偶然的，还是有其它的原因呢？最近，美、日、印和澳大利亚举行了四方安全对话机制的峰会，峰会就新冠疫苗的生产和供应，以及关键新兴科技领域的合作达成一致。
 
-这家咨询公司举例说，在大洋洲，中共国拥有的基本金属和黄金公司的数量从2000年的0家增加到去年的59家。该报告显示，中共国约占外国所有的此类公司总数的22.6%。
+据报道，在这四个国家的组合中，美国拥有生物科技和疫苗专利以及技术，印度拥有大规模迅速生产医药的能力和技术，日本拥有雄厚的资金，而澳大利亚可以提供疫苗的配送和资金。四国承诺将自己的资源整合在一起， 为东南亚国家以及亚太地区提供十亿剂疫苗，从根本上击退中共国推出的强势的战狼式疫苗外交。相信中共对此一定非常的不爽，所以又想到了自己的小弟巴基斯坦。中共将如何利用这个小弟搞事，现在还不清楚。但是，可以肯定的是，中共面对四国的联手，绝不会坐以待毙，一定会有所行动，那这次飙升的疫情的背后会不会有中共的影子呢？
 
-大洋洲是一个包括澳大利亚、巴布亚新几内亚、新西兰、斐济和许多岛屿国家的地区。
+总之，笔者认为在这个节骨眼上伊姆兰·汗总理感染病毒和巴基斯坦疫情飙升不是偶然，我们将拭目以待，关注事态的发展。
 
-中共国正在寻求通过海外投资以及与跨国公司结为合作来加强对全球供应链的控制。自上世纪90年代末以来，北京方面一直在支持中共国有企业“走出去”并建立对海外资源原材料的控制。
-
-**转向“独裁政权”**
-
-Verisk Maplecroft表示，中共国从“高度集中”的贸易伙伴集团进口关键大宗商品，例如原油、天然气、冶炼煤和铁矿石。
-
-报告补充说，在多样化进口来源方面，中共国更喜欢来自“稳定的专制政体”的供应商，而不倾向民主国家，民主国家可能涉及政府的频繁变动或政策的潜在转变。
-
-通过确保多元化的供应商，中共国将处于更好地利用贸易武器对付地缘政敌的位置，同时增加新旧贸易伙伴对（中共国）经济的依赖。
-
-“我们的数据表明，中共国正在转向依赖更加专制的政权为供应商，而不是民主国家，这些政体所提供的供应链比那些已经和可能成为敌对北京的民主国家更加稳定。北京同时也利用它庞大的市场作为外交筹码。”
-
-Verisk Maplecroft：“通过确保原料来源的多元化，中共国将处于更好的位置，可以利用贸易为武器胁迫地缘政治对手，同时增加新旧合作伙伴对（中共国）经济的依赖。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/SFSzP5w3puAXD/images/5922d36b-8a4e-41cd-8f65-23bc42104b0e.png?asset_id=23d59e43-04b9-453d-a4c8-bfbe1575525e&amp;img_etag=%227f857fcb3f88f6a519cc95ef3c6ac730%22&amp;size=2560)](https://spark.adobe.com/page/SFSzP5w3puAXD/images/5922d36b-8a4e-41cd-8f65-23bc42104b0e.png?asset_id=23d59e43-04b9-453d-a4c8-bfbe1575525e&amp;img_etag=%227f857fcb3f88f6a519cc95ef3c6ac730%22&amp;size=1024)2020年中共国关键资源的顶级供应商
-
-但是民主国家在某些资源的生产中占主导地位——其中之一是铁矿石。去年，中共国最大的铁矿石供应商是澳大利亚，这是美国的盟友，最近受到北京贸易限制的打击。
-
-Refinitiv的数据显示，2020年澳大利亚平均每月向中共国装运6086万吨铁矿石，占中共国大宗商品进口总量的60%以上。
-
-根据Verisk Maplecroft的报告说，这就是为什么中共国一直在加强与巴西和几内亚等其他铁矿石生产商的贸易关系。
-
-报告说：“尽管在博尔纳罗（Bolsonaro）总统领导下巴西对北京采取了强硬措施，但是巴西仍然是中共国进行原材料多元化的战略重点，而几内亚的民主倒退在政治上对北京是有利的。”
-
-**以贸易为武器**
-
-研究公司Capital Economics称，迄今为止，中共国是澳大利亚最大的商品和服务贸易伙伴，占澳大利亚2019年至2020年商品出口的39.4%，服务出口的17.6%。
-
-根据Verisk Maplecroft的报告，北京方面已经表明，愿意将贸易作为地缘政治杠杆。
-
-报告引用了中共国禁止澳大利亚煤炭的例子。在澳大利亚支持要求对中共国处理从武汉首先爆发的新冠疫情进行国际调查的呼吁后，两国关系急剧恶化。煤炭只是受到中共国报复性措施打击的澳大利亚出口产品之一，其他打击还包括关税、禁止进口和各种限制。
-
-# 很多公司和投资者都直接面临北京外交行动的冲击，将需要作相应的准备。
-
-#### — Verisk Maplecroft
-
-随着中共国加快努力减少对“不友好的”资源供应商的依赖，这种地缘政治紧张局势可能会继续存在。Verisk Maplecroft报告总结说。
-
-“禁止从澳大利亚进口煤炭是一个很好的例子，但可能还会有更多，这将对全球大宗商品贸易和地缘政治格局产生重大影响。”
-
-“很多公司和投资者直接面临北京外交行动的冲击，将需要作相应准备。”
-
-[🔗原文链接](https://www.cnbc.com/2021/03/18/china-is-building-up-its-ability-to-weaponize-trade-new-report-says.html)
+*文章仅代表作者本人观点*
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/SFSzP5w3puAXD/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/SFSzP5w3puAXD/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/Tlv6zjNWnkQvc/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/Tlv6zjNWnkQvc/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

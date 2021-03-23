@@ -1,38 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全世界的媒体都不说真话，只有咱GTV和G-News敢
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1008588/)
+## 【香港要闻】律政司司长郑若骅撰文炫耀「轻罪重判」成绩单
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1008713/)
 
-简述：2021年3月21日的盖特视频中，郭先生感慨世界和美国媒体的疯狂，疫苗死人和拜登身体等问题没有媒体报道，而只有新中国联邦、爆料革命、GTV和GNEWS敢说真话。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles-20210321-getter1-part1-revised.srt.txt)
-**全世界的媒体都不说真话，只有咱****GTV****和****G-News****敢**
+搜集/编撰：天灭中共
 
-**No Media In the World Dares to Tell the Truth, Except for GTV and GNEWS**
+**新闻简述**
 
-这个周末真是很热闹。全世界的媒体…你说这个世界真的多疯狂啊，多疯狂！这个疫苗死那么多人，那么多人，没有多少敢真报道的。真的是，我们现在真的是遇到媒体为王的时代，全世界都在说，这个世界谁最有权利？谁最牛？扎克伯格，Google 的 Eric Schmidt，Twitter 的 Jack，这最牛，这是媒体老大。都在说这话：“谁是老大？媒体老大。”
+律政司司长郑若骅今日（23 日）发表网志，表示相比往年，律政司在 2020 年提出的覆核刑罚的申请是前年的四倍。在提出 17 宗覆核刑罚的申请中，15 宗已完成审讯，结果律政司均获判得直，意味着案件的被告或全数遭加刑重判。郑若骅将之定义为检控人员不偏不倚地秉行公义。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/32395-1.jpg)图片来源：立场新闻
+**事件分析**
 
-It’s a lively weekend. All the media across the world… you know, how crazy the world is! How crazy! The vaccine has caused so many deaths, but almost no one dares to report it. Seriously, we are in the age when media is the king. People across the world are all asking: Who has the greatest power in the world? Who are the most powerful people? Zuckerberg, Eric Schmidt of Google, and Jack [Dorsey] of Twitter. They are the media bosses. Everyone is saying this: “Who is the boss? The media.”
+郑若骅司长在2019年1月的法律年度开启礼上致辞，谴责「有些人仅因为裁决的结果不合其心意，便无理地肆意抨击、甚至恶意中伤某些法官，这些言行不能容忍」。两年后同一场合，她再次强调说「2020年目睹有不少类似情况，不得不再次作出提醒」。
 
-真是能感觉到，就死那么多人，这么多稀奇地死那些人，没人报道，没人敢报道，一带而过。这还不说，就是拜登总统从空军一号上那三摔，“咔叽”现在”拜三摔”了，直接从楼梯摔下来。哎！美国媒体不报道，世界媒体也不敢报道。因为美国媒体是老大，包括全世界的媒体也是美国资本和中共资本在控制着。你觉得这个世界害不害怕？
+香港人经常说「有口话人，冇口话自己」，即是说某人对人对己持双重标准，用在郑司长身上再贴切不过。
 
-I can indeed feel it. So many people have died abnormally. Yet, no one has reported on this. No one dares to report or only briefly covered it. It is not only the vaccine, but also President Biden’s three stumbles when boarding Air Force One. He fell over three times directly from the stairs. Well, the American media barely reported it, and the world media didn’t have the courage to report it either. This is because the U.S. media is the boss and the world’s media is controlled by the capital of the US and the CCP. Do you think the world is scary?
+对于年轻、非暴力，甚至残障的示威者，原讼法庭基于量刑以「具阻吓性」为原则，大多数都获得守行为、社会服务令等非监禁式的裁决。中共党媒这个时候就全数冲出来，撰文围剿这些法官，不断施加舆论压力，另一边厢，律政司就打配合战，坚持上诉直至他们全部获遭重判，才罢手。
 
-再一个，冠状病毒，没有多少人敢议论现在，就那几家议论，而且在网络上被屏蔽，不让转发。只有咱新中国联邦，只有咱GTV、G-News，我们的爆料革命，我们的战友们，不吝这一套，是不是？爱他个谁是谁？咱就是说实话，对吧？这才是真正能体现到新中国联邦和爆料革命的真正的力量。兄弟姐妹们，看到了谁是英雄，谁是正义。大家这回看明白了吧？应该引以为豪吧？应该引以为豪吧？兄弟姐妹们。
+对此，郑若骅在网志中就以「公众利益」为由，指出「即使涉及相对较低程度的暴力，在未来亦可能判处即时监禁」，「被告年轻或个人背景的考虑比重极其有限，甚至是微不足道，因严惩或阻吓的需要远超过犯案者更生的需要。」
 
-Another one. Not many people dare to discuss the CCP virus. Only a few of them have the courage, but they have been blocked on the internet and their words cannot be spread. The only exception is our New Federal State of China (NFSC), our G-TV, G-News, our Whistleblower Movement (WM), and our fellow fighters, right? We don’t care who will be offended, we just tell the truth, right? This reflects the real power of the NFSC and WM. Brothers and sisters, now you see who is the hero and who stands for justice. Now everyone can see it, right? Should you feel proud, brothers and sisters?
+最后，她主动提到这项原则若「引起了包括负责判刑法庭的不同意见」，「日后可以再作讨论」。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60575c13d1608d609ea69e30](https://gtv.org/getter/60575c13d1608d609ea69e30) (00:10-1:58)
-鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/998813/](https://www.gnews.org/zh-hans/998813/)
+言下之意，重判示威者是权衡「公众利益」之后的应有之义，无论如何，反对者就要坐牢，坐了再说，至于对与错就日后再讨论。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2-97.jpg)图片来源：东网
+**笔者评论**
 
-* * *
+郑若骅的网志中，尽情炫耀其领导下的律政司，在沦为政权打手之后，如何战功彪炳。在这期间，有多少心存司法正义的检控官因此离职，郑若骅从未提及，亦不敢提及。中共极权统治之下，劣币驱逐良币是预期之内，但律政司整体专业操守败坏之急速，着实令人咂舌。
 
-翻译：【7PawBear】校对：【Isaiah4031】【BruhM】字幕：【XO小粉红】视频解码：【恒久忍耐】技术支持：【Rock小哥】推广：【V%】【TINALS】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+法治的核心，是以法限权，制衡公权力的滥用，借此保障市民基本人权自由，律政司非但不制约反而纵容滥用公权力之人。
 
-+2
+当权者滥用公权力而无任何后果之时，就会变成魔鬼，绝对的权力使人绝对的腐化，有权必用，用时必尽，无权可用，立法制新，如此循环，变本加厉。这个就是今日香港法治之实况。
+
+【以上观点仅代表笔者本人】
+
+资料来源：
+[律政司司长网志](https://www.doj.gov.hk/tc/community_engagement/sj_blog/20210323_blog1.html)
+
+覆核：卡西欧 / 上传：天网灰灰
+
+0

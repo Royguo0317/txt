@@ -1,202 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0323.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1007957/)
+## 追随爆料革命四年之感悟（之二）
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1010274/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
+#### *作者：首尔喜韩农场hongliu*
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0223-5.jpeg)图片来源：康州盘古农场 霹雳年
-3月23日美国国务院发推如下。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/图片-1-16.png)
 
+**幼苗破土而出**
 
+经过三年多奋战，2020年6月4日，新中国联邦在美国自由女神像前成立。文贵、班农先生主持，郝海东先生宣读宣言。正当文贵咬破手指、歃血盟誓之际，他身后的自由女神上空突然打了个闪电，这是否寓意着上天也在支持新中国的诞生？新中国联邦刚刚建国，虽然暂时还不能回归本土，但它却是中国人的希望。中国有一句话叫有苗不愁长，如今苗有了，何愁长不成参天大树？国有了，破土而出的新生力量崛起了，何愁不灭共？中国人几千年来未曾有过的、梦寐以求的一人一票选举，建立自由、民主、法治、平等、公平、正义国家的梦想已是指日可待。
 
-> 美国国务院：
-> 正在现场直播！ 美国务卿安东尼·布林肯[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw)加入北约[@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw)秘书长斯托尔滕贝格[@jensstoltenberg](https://twitter.com/jensstoltenberg?ref_src=twsrc%5Etfw)，就“加强跨大西洋纽带关系” 进行适度对话。 [https://t.co/cAj8WaK4SF](https://t.co/cAj8WaK4SF)
-> — 川普等政要…直译推 (@zhiyitw33) [March 23, 2021](https://twitter.com/zhiyitw33/status/1374291181971079177?ref_src=twsrc%5Etfw)
+**二不理论、二全理论**
 
+多少年来各国政府及人民都以为中国就等于中共，中国人就是中共。是倡导创建新中国联邦的文贵先生，第一个提出：中国不等于中共，中国人不等于中共的“二不”理论。在此基础上，又提出了“二全”理论，即：全中国灭共，全世界灭共。文贵先生以爆料革命的形式，从理论到实践阐述了这个两个理论的内涵。
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/图片-2-5.png)
 
-22日关于对中共新疆种族屠杀的制裁的几则推文。
+1）二不理论论述
 
+爆料革命以实例揭露了中共的社会主义公有制及其理论，就是强盗编造设计的欺骗全世界最大的骗局。公有制的政治体系下，人民没有真正的选举权，只是中共自己一代一代夺权传承，却欺骗全世界说人民选举了它。它篡政领导中国人民，谁不服就镇压谁，或投进监狱，并对强烈反抗者杀无赦。中共用防火墙向全世界屏蔽中国人民的声音，让全世界都看不到中国的真实情况。公有制的经济体系下，人民没有话语权、财富分配权和监督权，法律如同儿戏，国家财富绝大多数为最高当权者即盗国贼及其私生子女所有，并被转移到世界各地，盗国贼想什么时候用就什么时候取，人民毫不知情也绝不让问，更不敢问。对于老百姓的私有财产，中共随时就以莫须有的罪名没收，或屈打成招、或栽赃陷害、或诬告为黑社会犯罪，总之会用各种名义加以抢夺。当权者还随意搜刮民脂民膏，盗窃国家财富据为私有。他们富可敌国，财富都集中到了几大盗国贼家族手中。中共高官享受国家免费医疗甚至随意按需杀人来换器官，还有免费旅游、免费住房、高额补助津贴等无尽的福利待遇。而老百姓则受压迫、剥削、迫害，当奴隶、做牛马。甚至有的百姓被活活饿死，有的病人被确诊却因拿不出钱医治被迫回家，家人眼睁睁看着亲人死去；有的看不起病，上不起学，被逼得走投无路，最后以上吊、投河、跳楼等各种形式自杀。而中共政府对百姓的生存现状不管不问。但中共最善于伪装，每逢过年过节就会找一俩个“穷人”，拿袋面、拿桶油，找央视拍几个装模作样以示亲民的视频，大肆宣传欺骗全天下，实际上老百姓基本上都是自生自灭。
 
+中共视人命如草芥，想杀谁就杀谁，被跳楼、上吊、车祸，是永远查不出真相的杀人手段。每一个活着的中国人，都早已是高官们配型成功的器官定点储存库，想取谁的器官，就活摘谁的器官。摄像头遍地大街小巷，违章车辆罚款一个也跑不了，访民、异议人士插翅难飞，无路、无处可躲的环境下，然而又有多少孩子、青年无端失踪，报案永无结果，实则是被按需活摘了器官，已被毁尸灭迹。在西藏、新疆、内蒙古少数民族地区的学校，中共强制学生学习汉字、党文化，限制他们学习本民族文字、文化。把有反抗意识的人都抓起来，关在所建的集中营里（实则是监狱）进行思想改造、洗脑，强迫劳动和学习马列邪教，改造世界观、人生观以及文化理念。强制、引导、诱导他们拥护、热爱中国共产党，忘掉自己本民族的宗教及文化，施行文化灭绝政策。中共甚至想把反抗强烈有行动的维族人斩尽杀绝，对关在集中营里的男人实行绝育，强迫留在家里的女人、女孩，接受中共指派人员的强奸配对、长期霸淩，为其生汉族人的后裔，施行种族灭绝暴行。
 
-> 国务卿安东尼·布林肯：
-> 美国正在根据全球马格尼茨基法案制裁指定的两名 [#中华人民共和国](https://twitter.com/hashtag/%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 官员，这些制裁针对新疆境内严重侵犯人权行为。我们与英国，加拿大和欧盟团结一致，促进追责侵犯人权者。 [https://t.co/dFAMVVeSeJ](https://t.co/dFAMVVeSeJ)
-> — 川普等政要…直译推 (@zhiyitw33) [March 22, 2021](https://twitter.com/zhiyitw33/status/1374076673696563200?ref_src=twsrc%5Etfw)
+中共与中国人是统治与被统治、压迫与被压迫、剥削与被剥削的关系。中共与普通中国人不是一个阶级，中共不能代表中国人，二者是完全的敌对关系。通过爆料革命揭露出的中共邪恶真相，使国内、特别是体制内对中共不满的正义勇敢人士，纷纷响应，暗中支持爆料革命。他们或提供情报，或捐钱或投资，通过各种渠道、时机，默默地在全国扩散传播爆料革命资讯。爆料革命已经点燃了国内灭共的火种，逐渐形成燎原之势。
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/图片-3-8.png)
 
+2）二全理论论述
 
+文贵先生以事例为实证，以情报为佐证，理论实践互证，向全世界揭露中共觊觎世界的野心和阴谋，揭露其利用民主国家的体制，实施邪恶的完美犯罪而躲开法律制裁。
 
+中共以一带一路或无偿援助为幌子，让全世界沾染不按规则、不按法律办事的行贿受贿恶习；通过经济侵略和无耻手段，控制他国主权，意在统治全世界甚至领导全世界。中共以文化交流为幌子，在世界发达文明国家建立孔子学院。此举实则是为了安插间谍，择机偷窃先进技术；培养亲共国民，为中共站台，替中共说话，为中共服务；输出社会主义、共产主义文化理念，企图让全世界都变成和中共一样的独裁国家，以达到统治全世界的目的。从中共军委副主席迟浩田退休后讲话伊始，中共就探讨病毒作为生化武器的可行性，并计划用其杀死美国人，占领美国及全世界。中共拿中国人当小白鼠，为了实验，投放SARS、中共病毒，并把中共病毒刻意扩散到全世界。杀死中国人还不算，现主已使全世界感染人数超过1亿人，致死265万多人，目前还没有尽头。中共以先握有毒株的先机研发出疫苗，再以病毒的投放、疫苗的出售控制全世界。
 
-> 美国务院发言人尼德·普莱斯：
-> 美国正在与我们的合作伙伴一起在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 及全世界范围内努力捍卫人权，打击腐败并促进追责。
-> 【附国务院官网相关新闻公告】 [https://t.co/yNBRTtXPYS](https://t.co/yNBRTtXPYS)
-> — 川普等政要…直译推 (@zhiyitw33) [March 22, 2021](https://twitter.com/zhiyitw33/status/1374075103454007297?ref_src=twsrc%5Etfw)
+中共在联合国机构里，把有话语权的国际组织，用“蓝金黄”手段渗透，把总干事或主席换成接受过中共贿赂、听从中共旨意的人。他们为中共说话、办事，鼓吹中共体制伟光正，向全世界撒谎、狡辩，或隐瞒中共的丑恶嘴脸或罪行。中共收买世界顶级科学杂志、期刊以及科学家，使他们丧失心智，失去了正义和良知。他们昧着良心，不顾事实、科学、人伦、道德，为中共掩盖病毒来源真相并洗地推责。中共将大量身居高位的科学家拉下水为其所用，使他们变成金钱的奴隶，把科学与科学家在人们心目中的地位摧毁了，最后使其变成了被人们唾弃的伪科学与伪科学家。
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/图片-4-6.png)
 
+中共更邪恶的本性还有，利用民主国家的选举换届制度、纠偏机制，改换政府带来的政策摇摆性。押宝式的用金钱大面积培植未来可能当选总统或议员的候选人，再用金钱开路、舆论宣传造势，选举作弊等手段，把被培植的人推上位置。作为回报，无论是当选的总统还是议员、议长，都必亲共，签署或制定对中共有利的命令、法律或政策。中共还利用议会体制，用金钱游说或捐款给议员、政客，形成议会里亲共的局面，左右议会，为中共说话、办事，或提案并通过对中共有利的法案。
 
+* * *
 
+（文章仅代表作者本人观点，与GNews无关）
 
-> 参议员瑞克·斯科特：
-> 今天对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 的制裁是正确的举动，但还需要采取更多行动来制止习近平总书记对维吾尔人正在进行的种族灭绝。
-> 
-> 美国必须努力制止这些罪行，并惩处那些继续施行这些罪行的人。
-> 【附CNBC报道：以侵犯维吾尔人权为由，拜登政府制裁两位中共国官员】 [https://t.co/zRiNlSopaR](https://t.co/zRiNlSopaR)
-> — 川普等政要…直译推 (@zhiyitw33) [March 22, 2021](https://twitter.com/zhiyitw33/status/1374117485012688896?ref_src=twsrc%5Etfw)
-
-
-
-### 期待美英联手
-
-3月23日蓬佩奥国务卿发推一篇《真正清晰防卫》的文章《英国对俄罗斯和中国核侵略的应对措施》，推文称“正如这篇伟大的文章所指出的那样，英国和美国都必须准备捍卫自由。很高兴英国的审查证实了它可以接受挑战。”
-
-
-
-> As noted in this great piece, both UK and America must be prepared to defend liberty. Glad UK review confirmed that it is up for the challenge.[https://t.co/HQWY89vLa6](https://t.co/HQWY89vLa6)
-> — Mike Pompeo (@mikepompeo) [March 23, 2021](https://twitter.com/mikepompeo/status/1374330585431339009?ref_src=twsrc%5Etfw)
-
-
-[https://www.realcleardefense.com/articles/2021/03/22/the\_uks\_response\_to\_russian\_and\_chinese\_nuclear\_aggression\_769226.html](https://www.realcleardefense.com/articles/2021/03/22/the_uks_response_to_russian_and_chinese_nuclear_aggression_769226.html)
-### 传统价值观与共产主义思潮的斗争
-
-3月23日蓬佩奥先生的两则如下。
-
-“消灭文化已经渗透到我们的学校，并威胁到数百万美国人在建国之初为之而战的言论自由。它在美国没有立足之地。”
-
-“让生理男性参加女性体育比赛是不公平或平等的。句号。” （态度坚定地反对变性人参加体育竞赛。）
-![]()![](https://gnews.org/wp-content/uploads/2021/03/pompeo-0323.png)
-22日朱利安尼先生转推一则推文，推文来自他本人推荐的45任密苏里州州长、议员竞选人艾瑞克。推文称：
-
-“作为一名海豹突击队队员，我为这个国家而战，以确保我们的自由得到保护。现在，左派想把这些自由从你身边夺走。这就是为什么我在密苏里州竞选美国参议员的原因。我们必须为把美国从左派的疯狂中夺回来而战。”
-
-
-
-> As a Navy SEAL, I fought for this country to ensure our freedoms are protected. Now, the Left wants to take those freedoms away from you. 
-> 
-> That’s why I’m running for the US Senate in Missouri. We must fight to take America back from the lunacy of the left. [pic.twitter.com/cbfw4Q8aJ6](https://t.co/cbfw4Q8aJ6)
-> — Eric Greitens (@EricGreitens) [March 22, 2021](https://twitter.com/EricGreitens/status/1374128706768269316?ref_src=twsrc%5Etfw)
-
-
-
-### “厕所会谈”继续发酵
-
-朱利安尼先生23日就《纽约邮报》19日关于阿拉斯加美中“厕所会谈”的报道进行转推，称：“中（共）国在阿拉斯加峰会嘲笑美国。” 并引用会上杨洁篪的原话：
-
-“我们认为美国改变形象、停止在全世界输出自己声称的民主很重要。”
-
-
-
-> China mocks US at Alaska summit
-> 
-> “We believe that it is important for the United States to change its own image and to stop advancing its own democracy in the rest of the world.”[https://t.co/8GtgsdOxq6](https://t.co/8GtgsdOxq6)
-> — Rudy W. Giuliani (@RudyGiuliani) [March 23, 2021](https://twitter.com/RudyGiuliani/status/1374368365846872066?ref_src=twsrc%5Etfw)
-
-
-[https://nypost.com/2021/03/19/biden-proud-of-team-after-china-mocks-us-at-alaska-summit/](https://nypost.com/2021/03/19/biden-proud-of-team-after-china-mocks-us-at-alaska-summit/)
-《纽约邮报》这片文章援引C-Span视频，视频中拜登19日被问及对前日美中会晤的反应时称“对国务卿感到自豪。”文章引述了峰会上中方的讲话的关键内容，并称川普总统在大选前曾说，如果拜登获胜，美国将成为“中国拥有”。
-
-
-
-### 非法移民不能投票
-
-皮特纳瓦罗博士23日推文，强调他在班农疫情战斗室的讲话：
-
-“每一位在2022年竞选参众两院的候选人，无论他们是民主党还是共和党，都需要这样做：签署一份承诺书，声明任何在2021年1月20日之后非法越境的人，将永远没有机会获得公民身份，并被送回他们来自的地方。”
-
-
-
-> Every candidate running for House & Senate in 2022 whether they're D or Rs needs to do this: sign a pledge stating that ANYONE who crossed our border after Jan 20, 2021 ILLEGALLY will NEVER have a path to citizenship & be returned to where they came from.[https://t.co/hCJHxxsvPG](https://t.co/hCJHxxsvPG)
-> — Peter Navarro (@RealPNavarro) [March 23, 2021](https://twitter.com/RealPNavarro/status/1374416978388000789?ref_src=twsrc%5Etfw)
-
-
-
-
-
-### 现任国务卿今日主要推文
-
-“我们和我们的伙伴一起呼吁北京（中共国政府）立即释放两名被任意拘留的加拿大人Michael Spavor和Michael Kovrig。人不是讨价还价的筹码。”
-
-
-
-> We join our partners in calling on Beijing to immediately release the two arbitrarily detained Canadians, Michael Spavor and Michael Kovrig. Human beings are not bargaining chips. [https://t.co/e5WszeKKuS](https://t.co/e5WszeKKuS)
-> — Secretary Antony Blinken (@SecBlinken) [March 23, 2021](https://twitter.com/SecBlinken/status/1374350372911845376?ref_src=twsrc%5Etfw)
-
-
-
-“在我访问东京和首尔时，各方一致认为，美国、日本和大韩民国之间的有力合作对促进共同利益和价值观至关重要，我期待着在这个三边动力的基础上更进一步。”
-
-
-
-> On my visit to Tokyo and Seoul, all sides agreed robust cooperation between and among the United States, Japan, and the Republic of Korea is critical to promoting shared interests and values, and I look forward to building on this trilateral momentum.
-> — Secretary Antony Blinken (@SecBlinken) [March 22, 2021](https://twitter.com/SecBlinken/status/1374092629147848712?ref_src=twsrc%5Etfw)
-
-
-
-“很高兴与北大西洋公约组织秘书长 @JensStoltenberg见面。
-在今天晚些时候举行的北约外交部长会议之前，我们进行了建设性的讨论，讨论了我们如何加强跨大西洋联盟和更新我们的全球关系。我们就如何加强跨大西洋联盟和更新我们的全球关系进行了建设性的讨论。”
-
-
-
-> Great to meet with [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Secretary General [@JensStoltenberg](https://twitter.com/jensstoltenberg?ref_src=twsrc%5Etfw) in advance of the NATO Foreign Ministerial later today. We had a constructive discussion on how we can strengthen the Transatlantic Alliance and renew our global relationships. [pic.twitter.com/QkFZxoreHQ](https://t.co/QkFZxoreHQ)
-> — Secretary Antony Blinken (@SecBlinken) [March 23, 2021](https://twitter.com/SecBlinken/status/1374356507458945027?ref_src=twsrc%5Etfw)
-
-
-
-
-
-“很高兴今天在布鲁塞尔与意大利外长@luigidimaio会面，这也是本次北大西洋公约组织外交部长会议的一部分。在我们面对全球挑战时，意大利是美国的重要盟友和朋友。”
-
-
-
-> Very pleased to meet Italian Foreign Minister [@luigidimaio](https://twitter.com/luigidimaio?ref_src=twsrc%5Etfw) today in Brussels as part of the [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Foreign Ministerial. Italy is a key ally and friend to the United States as we confront global challenges. [pic.twitter.com/ewFumsiIsU](https://t.co/ewFumsiIsU)
-> — Secretary Antony Blinken (@SecBlinken) [March 23, 2021](https://twitter.com/SecBlinken/status/1374370348049793024?ref_src=twsrc%5Etfw)
-
-
-
-“北大西洋公约组织盟国和伙伴立场坚定，致力于通过 “坚决支持 “培训任务以实现阿富汗的长期安全与稳定。我们将确保阿富汗的土地不再被用来对美国或其盟友发动攻击。”
-
-“正如在报告中指出的那样，我们将确保阿富汗的土地永远不会被用来对美国或其盟友发动攻击。
-“在北大西洋公约组织国防部长会议上，美国和我们的北约盟国和伙伴正在推动负责任地结束阿富汗战争。作为盟国，我们必须保持团结：我们一起进入，我们将一起调整，当时机成熟时，我们将一起离开。”
-
-
-
-> .[@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Allies and partners remain firmly committed to Afghanistan’s long-term security and stability through the Resolute Support training mission. We will ensure that Afghan soil is never again used to launch an attack on America or her allies. [pic.twitter.com/gSBwpmAyaC](https://t.co/gSBwpmAyaC)
-> — Secretary Antony Blinken (@SecBlinken) [March 23, 2021](https://twitter.com/SecBlinken/status/1374377898480521219?ref_src=twsrc%5Etfw)
-
-
-
-和过去一样，北约正在适应战略环境的变化。我支持@延斯托尔滕贝格提出的#NATO2030倡议。我们必须应对联盟面临的系统性威胁和挑战，包括气候变化和咄咄逼人的强硬对手和竞争者。
-
-
-
-> As in the past, [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) is adapting to changes in the strategic environment. I support [@jensstoltenberg](https://twitter.com/jensstoltenberg?ref_src=twsrc%5Etfw)’s [#NATO2030](https://twitter.com/hashtag/NATO2030?src=hash&amp;ref_src=twsrc%5Etfw) initiative. We must address systemic threats and challenges to the Alliance, including climate change and aggressive, assertive adversaries and competitors. [pic.twitter.com/Rw1GTFbRvE](https://t.co/Rw1GTFbRvE)
-> — Secretary Antony Blinken (@SecBlinken) [March 23, 2021](https://twitter.com/SecBlinken/status/1374403003743006720?ref_src=twsrc%5Etfw)
-
-
-
-### 反对众议员的社会主义者偷盗
-
-众议员布鲁克斯推文：“众议院社会主义者正积极试图在选举后140天，从共和党获胜者手中抢走爱荷华州的第二国会席位。我和几十位同事一起表达了对佩洛西议长公然偷选的反对。”
-
-
-
-> House Socialists are actively trying to steal Iowa's 2nd Congressional seat away from the Republican winner 140 days after the election. I joined dozens of colleagues in expressing our opposition to [@SpeakerPelosi](https://twitter.com/SpeakerPelosi?ref_src=twsrc%5Etfw)’s blatant election theft. [pic.twitter.com/QjsID0Eqtj](https://t.co/QjsID0Eqtj)
-> — Mo Brooks (@RepMoBrooks) [March 23, 2021](https://twitter.com/RepMoBrooks/status/1374422427116085250?ref_src=twsrc%5Etfw)
-
-
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
-
-**欢迎关注和支持康州盘古农场推特公众号及时掌握****资讯**
-
-### [盘古七星舰队PanGu Heptastar Fleet](https://twitter.com/PanguF)
+*责任编辑：加拿大多伦多枫叶农场 文锦
+编辑/校对：英国喜庄园 AN
+发布：巴黎七星农场 文月*
 
 0
