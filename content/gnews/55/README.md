@@ -1,43 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文贵视角】文贵先生阻止了一场什么样的战争
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1008043/)
+## 【军事快讯】美军创侦察距离新纪录，距中共海岸线仅25.33海里
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1008278/)
 
-#### 作者：三毛【㊙️翻Gnews原创组】
-责编：萌萌的朋克
-![]()![](https://gnews.org/wp-content/uploads/2021/03/文贵先生-5.jpg)图片来源：GTV
-很多战友在问郭文贵先生在前面的盖特中提到阻止了一场什么样的战争？郭文贵先生直播中没有直接说出。但是他以他的小狗狗Snow的行为提示了大家。
+作者：香草山媒体部 白木
 
-**乱咬蚂蚁的问题被解决了，伤害无辜的战狼被制止了**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1618-【军事快讯】美军创侦察距离新纪录，距中共海岸线仅25.33海里-1.jpg)
 
-很多战友问郭先生制止了一场什么样战争？郭先生说，“这事很大，说我们家的Snow最近情绪不好，路上就是有蚂蚁就咬。” 然后先生说，“Snow看见一个鹿的雕塑也咬，最后我智慧的解决了这个问题，它再也不咬了，也不去咬那无辜的蚂蚁了。” 郭先生没有说出谜底，但显然这事与中共的战狼外交有关。我们可以假设情绪不好的Snow暗喻着到处被制裁被围剿的“中共”。根据中共一贯的做法，“你打我，我就打百姓，打我自己家的奴隶。” 郭先生看见了一只鹿，鹿是谁呢？鹿的雕塑让郭先生找到了办法，能制止这只发疯的战狼伤害无辜。
+SCSPI于美东时间3月22日发表推文，根据迄今为止的公开数据，美国空军RC-135U侦察机，刚刚创下了距中国海岸线最短的侦察距离新纪录，25.33海里。
 
-世界局势被郭先生用简单几句话概括了，“这披着羊皮的羊非要当狼，当狼还不算数还要当战狼，现在弄的全世界又是疯狗又是战狼的，又是披着羊皮的羊，披着羊皮的狼，全世界都是中共话题。”
 
-**日落西山，国力弱；中俄结盟，百姓苦**
 
-在2017年以前，共产党搞一带一路的时候，全世界买买买，海航之类的企业到处签约，中国还可以称自己是醒来的狮子，现在完全没有往日的霸气，只是偶尔冒出来几个（杨洁篪王毅之流）骗钱的江湖政客打打嘴炮。短短几年中国国力西落西山，成为挨打的靶子的时候，中共只能去找它自认的拜把子“兄弟”——俄罗斯。
+> USAF RC-135U Combat Sent [#AE01D5](https://twitter.com/hashtag/AE01D5?src=hash&amp;ref_src=twsrc%5Etfw) just set a new record of 25.33NM, the shortest distance US reconnaissance aircraft have reached from the China's coastlines, based on public data so far.
+> 
+> In addition, there was also a P-8A & an EP-3E spotted over the [#SouthChinaSea](https://twitter.com/hashtag/SouthChinaSea?src=hash&amp;ref_src=twsrc%5Etfw), March 22. [pic.twitter.com/uLv49u70Gv](https://t.co/uLv49u70Gv)
+> — SCS Probing Initiative (@SCS\_PI) [March 22, 2021](https://twitter.com/SCS_PI/status/1373886128177041410?ref_src=twsrc%5Etfw)
 
-“中南海八只加一堆也玩不过普京的一个胳膊，”郭先生说，“普京是天生的政治家。” 借用叶利钦对普京的评介，俄罗斯几百年没出来一个懂真正的俄罗斯政治和国际政治的一个人，而普京就是这么一个人。普京是克格勃出生，玩情报的出身兼通晓国际政治。中共玩的是流氓外交，流氓政治，但国际外交是实力外交，和普京玩中共完全占不到便宜，而且只会像历史规律一样，割让国家利益，戕害百姓生命。
 
-历史发展总能寻找到规律。郭先生提醒大家看看中俄的历史，找到征兆。他担心中国即将迎来更大的灾难。他说，“必须得想想马克思列宁主义，从马克思列宁主义到达中国，害得中国那么惨，最后马克思列宁主义，共产主义，现在又和俄罗斯站在一起，这两国人民都会受害，咱走着看，两国人民都会受害。”
 
-对于独裁者的行为不好预测。对两国之间的实权的掌握者，即国家机器的控制者，无论是中南坑还有普京政府，“你很难说将发生什么事，”郭先生说，“我们只能往好了想。”
+博博士引当年“巴伦支海手术刀事件”对该事件进行评论道：“美军主动挑战中共，离中共不得不开火1.33海里”，“25.33海里，土共找块豆腐撞死算了”。
 
-**要让其灭亡，必先让其疯狂**
 
-虽然郭先生说，“毋容置疑的，共产党必将灭亡，很快会灭亡。” 但国家民族现在已经被中共用“爹亲娘亲不如党亲”长期洗脑，把人民教育成只信奉假丑恶，老百姓的疯狂，亲人和家人竟然沦落到如此的境界，让郭先生伤心至极。整个国家和民族，即是处在了走向地狱的灾难时刻，也是重生的关键时刻。
 
-关于国内经济，郭先生说，“国内的啥经济都没有了，玩来玩去就是房地产，中国老百姓没有任何梦想，就是房子，好像房子能让你长寿，房子能治你的病，房子就让你有饭吃？你家房子就能种几亩麦子？然后有一少部分人，梦想的所谓的股市的奇迹，这个擀面杖子股市，然后剩下时间，就是靠谣言，靠八卦，靠战狼外交，你说这咋办哪？”
+> 阿拉斯加對罵以後，美軍RC-135U偵察機抵近到距離中共國海岸25.33海哩才折返。這是什麼概念呢？進入24海哩毗鄰區就基本可以開火了，所以，美軍主動挑戰中共，離中共不得不開火1.33海哩。比較一下，當年巴倫支海手術刀事件，P-3距離蘇聯海岸48海哩就被宰了。25.33海哩，土共找塊豆腐撞死算了。🤣🤣🤣 [https://t.co/5DiYFaq3ax](https://t.co/5DiYFaq3ax)
+> — Dr. Bo 🇺🇸🇹🇼🇭🇰 (@BoDiplo) [March 22, 2021](https://twitter.com/BoDiplo/status/1374140014628573189?ref_src=twsrc%5Etfw)
 
-他提醒同胞们，仇恨中共，仇恨中国，还有仇恨中国人的思潮正在疾速发展，而只有新中国联邦爆料革命，在努力的把中国人和共产党分开。 我们既要小心冠状病毒，又要小心共产党病毒，战友们一定不能大意。
 
-期待郭先生星期三上午的直播。
 
-参考链接：
-1． [郭文贵先生3月22号盖特视频](https://gtv.org/user/5e596957357cc612d35a8044)
+毗连区（contiguous zone），又称“邻接区”、“海上特别权”，是指沿海国根据其国内法，在领海之外邻接领海的一定范围内，为了对某些事项行使必要的管制权，而设立的特殊海域。毗连区的宽度实际上是连同领海在内的不得超过24海里。
 
-（本文仅代表编者个人观点）
+此次美军侦察机抵近中共国海岸线25.33海里才折返，离毗连区仅差1.33海里。
 
-+1
+本月8日，SCSPI就已曝光美国空军RC-135W电子侦察机对华侦察完整路线，当时距离中共国临海基线仅28.34海里。此次侦察更近一步，仅25.33海里。
+
+
+
+> A rare full trajectory!
+> USAF RC-135W ([#AE01D2](https://twitter.com/hashtag/AE01D2?src=hash&amp;ref_src=twsrc%5Etfw)) from Kadena is conducting a [#SouthChinaSea](https://twitter.com/hashtag/SouthChinaSea?src=hash&amp;ref_src=twsrc%5Etfw) mission, operating alongside China's coastlines near Guangdong, Hainan, and the [#ParacelIslands](https://twitter.com/hashtag/ParacelIslands?src=hash&amp;ref_src=twsrc%5Etfw). [pic.twitter.com/ZQOuHnEtAc](https://t.co/ZQOuHnEtAc)
+> — SCS Probing Initiative (@SCS\_PI) [March 8, 2021](https://twitter.com/SCS_PI/status/1368801174053289988?ref_src=twsrc%5Etfw)
+
+
+
+继美中会谈，中共宣称“不吃美国那一套”后，目前为止，中共官方并未就此次事件作出任何回应。相较于巴伦支海手术刀事件，苏军就挪威海军作出的反应，中共对这次美军侦察行动的反应验证了，中共就是一只“纸老虎”。
+
+不管中共怎么狐假虎威，怎么垂死挣扎，都无法阻挡世界正义联盟，美、印、日、澳以及北约对中共发起的围剿之势。
+
+编辑/审核/发稿：雪梨
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+0

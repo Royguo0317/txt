@@ -1,38 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全世界的媒体都不说真话，只有咱GTV和G-News敢
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1008588/)
+## 马斯克的特斯拉：中共的新“人质”？
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1008597/)
 
-简述：2021年3月21日的盖特视频中，郭先生感慨世界和美国媒体的疯狂，疫苗死人和拜登身体等问题没有媒体报道，而只有新中国联邦、爆料革命、GTV和GNEWS敢说真话。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles-20210321-getter1-part1-revised.srt.txt)
-**全世界的媒体都不说真话，只有咱****GTV****和****G-News****敢**
+#### 作者： 舒平风 审核： pv0 / 慧心
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-23.jpg)
+自从华为高管孟晚舟在加拿大被捕后，2018年12月10日，中（共）国以涉嫌“危害中国国家安全”扣捕了加拿大前外交官康明凯（Michael Kovrig）和涉足于朝鲜的商人斯帕弗（Michael Spavor）。路透社曾报道说，康明凯被捕期间，虽然表面无伤痕，但被禁止会见律师，日以继夜受审，睡觉不准关灯，每月只可以有一次见加拿大领事。中（共）国外交部称，已依法保障他各项合法权益和人道主义待遇，并反问加方，中国公民被扣押时有没有关心过她的待遇和权益问题。另外，至少加拿大一名女教师被指“非法就业”而被捕。这种“人质外交”，充分暴露了中共这一人类历史以来最大黑帮的流氓本质。加拿大总理特鲁多对中共的绥靖政策也助长了中共的嚣张气焰。
 
-**No Media In the World Dares to Tell the Truth, Except for GTV and GNEWS**
+拜登政府的上台，又给中共送了个软柿子。2021年3月19日，美国国务卿安东尼·布林肯，国家安全顾问杰克·沙利文和中共外交负责人杨洁篪，中（共）国外交部长王毅在阿拉斯加安克雷奇举行的会谈结束。按事后班农的评价，布林肯不过是中共的打工仔，而沙利文则是个送信人。如此的软弱外交，导致了在中（共）国的美国企业成了中共砧板上的肉。如下面的图片显示，中（共）国政府在3月19日（与美方会谈结束的同一天）限制军队人员和重点国企的员工使用特斯拉的汽车，其（骗人的）理由是担心特斯拉汽车收集的数据可能导致国家安全信息泄露。按他们的说法，此前中（共）国政府对特斯拉汽车进行了安全评估，结果表明特斯拉汽车的摄像头可以时刻记录影像，并获取各种数据，比如用车时间、方式和地点，以及与汽车同步的手机上联系人名单。他们表示，中共担心某些数据可能会被发回美国。背后的真正理由是什么？中共欲拿特斯拉当作新“人质”，给拜登政府来个下马威？
 
-这个周末真是很热闹。全世界的媒体…你说这个世界真的多疯狂啊，多疯狂！这个疫苗死那么多人，那么多人，没有多少敢真报道的。真的是，我们现在真的是遇到媒体为王的时代，全世界都在说，这个世界谁最有权利？谁最牛？扎克伯格，Google 的 Eric Schmidt，Twitter 的 Jack，这最牛，这是媒体老大。都在说这话：“谁是老大？媒体老大。”
-
-It’s a lively weekend. All the media across the world… you know, how crazy the world is! How crazy! The vaccine has caused so many deaths, but almost no one dares to report it. Seriously, we are in the age when media is the king. People across the world are all asking: Who has the greatest power in the world? Who are the most powerful people? Zuckerberg, Eric Schmidt of Google, and Jack [Dorsey] of Twitter. They are the media bosses. Everyone is saying this: “Who is the boss? The media.”
-
-真是能感觉到，就死那么多人，这么多稀奇地死那些人，没人报道，没人敢报道，一带而过。这还不说，就是拜登总统从空军一号上那三摔，“咔叽”现在”拜三摔”了，直接从楼梯摔下来。哎！美国媒体不报道，世界媒体也不敢报道。因为美国媒体是老大，包括全世界的媒体也是美国资本和中共资本在控制着。你觉得这个世界害不害怕？
-
-I can indeed feel it. So many people have died abnormally. Yet, no one has reported on this. No one dares to report or only briefly covered it. It is not only the vaccine, but also President Biden’s three stumbles when boarding Air Force One. He fell over three times directly from the stairs. Well, the American media barely reported it, and the world media didn’t have the courage to report it either. This is because the U.S. media is the boss and the world’s media is controlled by the capital of the US and the CCP. Do you think the world is scary?
-
-再一个，冠状病毒，没有多少人敢议论现在，就那几家议论，而且在网络上被屏蔽，不让转发。只有咱新中国联邦，只有咱GTV、G-News，我们的爆料革命，我们的战友们，不吝这一套，是不是？爱他个谁是谁？咱就是说实话，对吧？这才是真正能体现到新中国联邦和爆料革命的真正的力量。兄弟姐妹们，看到了谁是英雄，谁是正义。大家这回看明白了吧？应该引以为豪吧？应该引以为豪吧？兄弟姐妹们。
-
-Another one. Not many people dare to discuss the CCP virus. Only a few of them have the courage, but they have been blocked on the internet and their words cannot be spread. The only exception is our New Federal State of China (NFSC), our G-TV, G-News, our Whistleblower Movement (WM), and our fellow fighters, right? We don’t care who will be offended, we just tell the truth, right? This reflects the real power of the NFSC and WM. Brothers and sisters, now you see who is the hero and who stands for justice. Now everyone can see it, right? Should you feel proud, brothers and sisters?
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60575c13d1608d609ea69e30](https://gtv.org/getter/60575c13d1608d609ea69e30) (00:10-1:58)
-鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/998813/](https://www.gnews.org/zh-hans/998813/)
+特斯拉电动汽车制造商于2019年在上海建立了第一家海外工厂，特斯拉Model 3轿车曾是中（共）国最畅销的电动汽车，后来被价格便宜得多的微型电动汽车取代。特斯拉去年在中（共）国的销量为147,445辆，占其总销量的30%，然而今年面临着从蔚来到吉利等中（共）国内新兴电动车的竞争。特斯拉这一“人质”在中（共）国的死活，取决于美国拜登政府是否“肾虚”。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image-337.png)
+（本文只代表自己观点）
 
 * * *
 
-翻译：【7PawBear】校对：【Isaiah4031】【BruhM】字幕：【XO小粉红】视频解码：【恒久忍耐】技术支持：【Rock小哥】推广：【V%】【TINALS】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+*发布：法国巴黎七星农场编辑组*
 
-+2
+0
