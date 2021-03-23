@@ -1,46 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 风起云涌
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1005045/)
+## 3月22日上午十时许番禺区明经村村民引爆村委造成7死16伤
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1005222/)
 
-#### 作者：秋叶
-责编：三毛【㊙️翻Gnews原创组】
-![](https://gnews.org/wp-content/uploads/2021/03/图像-3.bmp)图片制作：Skagen 素材：战鹰团
-这是一位读者在Gnews文章《美中假面戏：“披着羊皮的狼”和“披着羊皮装狼的羊”》留言区的诗歌作品。我们不知道该作者真实姓名，他（她）以“秋叶”笔名在秘翻组【文贵视角】专栏文章评论区写下一首绝佳的诗作《风起云涌》。作者称诗作改编自歌曲《霸王别姬》。诗歌精炼地描写了 一位当世英雄——郭文贵先生，读来令人慷慨激昂、血脉偾张。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/封面-161.jpg)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-我站在暴风雨中，
+据[乱沌@lyndon96227727](https://twitter.com/lyndon96227727)于[下午9:52 · 2021年3月22日·Twitter for Android](https://twitter.com/lyndon96227727)发布的推文
 
-愤满腔，热血澎拜汹涌！
 
-望苍天，四海翻腾，
 
-剑在手，舍我谁是英雄！
+> 广州番禺化龙镇 [pic.twitter.com/Z7PGBaQNu5](https://t.co/Z7PGBaQNu5)
+> — 乱沌 (@lyndon96227727) [March 22, 2021](https://twitter.com/lyndon96227727/status/1373996105105559554?ref_src=twsrc%5Etfw)
 
-人世间有百态万丛，
 
-我只爱真善那一种，
 
-伤心事梦中常见改兰冢，
+根据以上内容及推持相关评论内容，本次引爆村委的诱因在于村民与村委在鱼塘征收赔偿方面积怨颇深，再加上当事者身患绝症，终于在2021年3月22日广州市番禺区明经村村委开会期间，该村民携自制炸弹在村委与他沟通过程中引爆自制炸弹，据网友透露消息，该起事件目前已造成16伤7死，死者中包括村委书记、两个高层、两个队长、两个党员。
 
-多少年国贼压榨民众！
+现场视频情况据[新聞看點@MuYangLee\_XWKD](https://twitter.com/MuYangLee_XWKD)于 [上午3:00 · 2021年3月23日](https://twitter.com/MuYangLee_XWKD/status/1374073399031472129)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
 
-我心中，这最重，
 
-入虎穴，为灭共，
 
-民用汗水乳汁，养肥盗国蛀虫！
+> 中國廣州突發爆炸事件。3月22日上午，廣州市番禺區化龍鎮明經村發生一起爆炸事件，官方只稱“刑事案件，有人員傷亡”。
+> 
+> 網友指已有5人死亡，包括村委正副書記。也有知情人對外媒表示，有16人死傷。 [pic.twitter.com/fIky2fPaW2](https://t.co/fIky2fPaW2)
+> — 新聞看點 (@MuYangLee\_XWKD) [March 22, 2021](https://twitter.com/MuYangLee_XWKD/status/1374073399031472129?ref_src=twsrc%5Etfw)
 
-我心中娘最重，我的剑向贼冲！
 
-在世就该称雄！
 
-笑看七星旗当空！
-
-在此诚请作者与木兰传奇（@mulan20200604）联系，以文灭共、以歌灭共！
-
-参考链接：
-
-[【文贵视角】美中假面戏：“披着羊皮的狼”和“披着羊皮装狼的羊”](https://gnews.org/zh-hans/999151/)（本文仅代表作者个人观点）
+（文章内容仅代表作者个人观点）
 
 +3

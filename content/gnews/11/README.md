@@ -1,31 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 西方联合制裁中共新疆种族灭绝罪行
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1005727/)
+## 北约秘书长称中共威胁是挑战也是机遇
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1005923/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑上传   水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/E-10.jpg)beltandroad.news
-路透社报道，美国、欧盟、英国和加拿大首次联合行动，宣布对在新疆侵犯人权的中共国官员实施制裁。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/NA-1.jpg)gopusa.com
+北约秘书长延斯·斯托尔滕贝格 (Jens Stoltenberg)在接受《德国之声》采访指出，中共是“与我们的价值观不同”的“一个崛起中的大国”。 中共正致力于破坏基于规则的国际秩序，因此西方必须联合参与其中，中共的崛起将有助于跨大西洋关系。
 
-周一，欧盟率先对四名中共国官员和一家实体实施制裁，英国和加拿大随后也做出了类似决定。这些协调一致的努力似乎是美国联合外交的努力与中共对抗的早期成果。美国政府高级官员说，他们每天都就与中共有关的问题与欧洲各国政府接触。
+斯托尔滕贝格表示，西方根本无法避免与中共的崛起打交道，“中共国正越来越接近我们，对我们关键的基础设施进行投资。”“中共国的崛起和全球力量平衡的转变给我们的地区联盟带来的安全后果，我们无法避免。”
 
-美国国务卿布林肯本周在布鲁塞尔与欧盟和北约部长举行会议之前发表声明说:“在国际谴责日益强烈的情况下，(中共)继续在新疆犯下种族灭绝和反人类罪行。” 西方政府正在寻求让北京对大规模拘留维吾尔族穆斯林罪行负责。
+这位北约领导人指出，中共“不认同我们的价值观”。他说，“你可以从他们在香港的行为中看到这一点，他们如何压制自己国家的反对派，以及他们破坏基于规则的秩序的方式。”
 
-加拿大外交部表示:“越来越多的证据表明，中共政府主导了系统性侵犯人权行为。” 加拿大和英国的外交部长与布林肯发表联合声明说，三国一致要求北京结束其在新疆的“镇压行为”。他们表示，他们掌握了“压倒性”证据，“包括卫星图像、目击者证词和中共政府自己的文件”。
+尽管如此，斯托尔滕贝格表示，这种竞争关系也提供了“一个独一无二的机会，为北约、美国、欧洲关系打开新的篇章。”
 
-澳大利亚和新西兰的外交部长对越来越多中共在新疆侵犯人权的可靠报道表示严重担忧。对加拿大、欧盟、美国和英国的制裁表示支持。这是欧盟几十年来的首次重大制裁。
+周一，美国、欧盟、英国和加拿大首次联合行动，宣布了对在新疆侵犯人权的中共国官员实施制裁。欧盟率先对四名中共国官员和一家实体实施制裁，英国和加拿大随后也做出了类似决定。这是欧盟和英国近30年内首次对中共的制裁，而西方国家这步调一致的联合行动，似乎是美国联合外交抵抗中共的结果。
 
-北京出离愤怒，立即对欧盟采取了范围更广的惩罚性措施进行回击。制裁范围包括欧洲议员、外交官、机构和家庭，并禁止欧盟企业与中共国进行贸易。
+北约秘书长斯托尔滕贝格认为，中共的崛起和带给世界的威胁，是挑战也是机遇。
 
-欧盟的制裁标志着对中共态度从软弱转向为强硬。欧盟被中共视为友好的贸易伙伴，现在指责中共有系统地滥用权利和自由。欧盟27国政府都同意欧盟的惩罚性措施，但匈牙利外交部长彼得·希贾托称这些措施“有害”且“毫无意义”。
+因中共的霸权专制，世界现在划分成了共产主义极权和民主法治两种意识形态的阵营，这划时代的结盟与国家之间的关系重组，将直接影响世界目前及未来的发展格局。
 
 参考链接：
 
-[https://www.reuters.com/article/us-usa-china-eu-sanctions-idUSKBN2BE2MC](https://www.reuters.com/article/us-usa-china-eu-sanctions-idUSKBN2BE2MC)
+[https://www.dw.com/en/china-is-challenge-and-opportunity-nato-chief-tells-dw/a-56955546?maca=en-rss-en-all-1573-rdf](https://www.dw.com/en/china-is-challenge-and-opportunity-nato-chief-tells-dw/a-56955546?maca=en-rss-en-all-1573-rdf)
 
-[https://www.reuters.com/article/us-eu-china-sanctions/eu-china-impose-tit-for-tat-sanctions-over-rights-abuses-idUSKBN2BE1AI](https://www.reuters.com/article/us-eu-china-sanctions/eu-china-impose-tit-for-tat-sanctions-over-rights-abuses-idUSKBN2BE1AI)
-
-0
++1
