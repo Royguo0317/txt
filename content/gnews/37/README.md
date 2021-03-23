@@ -1,36 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “中共病毒四大不要脸”之张文宏：造假以色列数据骗人打疫苗
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1004874/)
+## 3月22日上午十时许番禺区明经村村民引爆村委造成7死16伤
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1005222/)
 
-作者:Stephen文文
+![]()![](https://gnews.org/wp-content/uploads/2021/03/封面-161.jpg)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-中共病毒四大不要脸的钟南山、高福、张文宏等近日频频发声，为中共疫苗摇旗呐喊，忽悠中共国内民众打疫苗。
+据[乱沌@lyndon96227727](https://twitter.com/lyndon96227727)于[下午9:52 · 2021年3月22日·Twitter for Android](https://twitter.com/lyndon96227727)发布的推文
 
-为推销中共利益集团的疫苗，各种谎都敢撒，可见中共的疫苗经济是真不行了。中共在老百姓心中的信用已经进入破产期，中共已经陷入“塔西佗陷阱”。中共越喊什么，民众就越不相信什么。
 
-张文宏20日举办的一场长三角新经济年会上发表演讲时称，新冠感染后大量的无症状病例使得全球必须要采取极为积极的疫苗接种策略，以遏制新冠病毒的传播。发言中，张文宏卖力宣传以色列，疫苗接种率已经达到60%-70%，现在的新发病例“每天只有几百例”。
 
-明明以色列的新增感染人数依然维持在1000-2000人/天，甚至更高，张文宏却瞪着眼说瞎话，更改以色列的疫情数据。
+> 广州番禺化龙镇 [pic.twitter.com/Z7PGBaQNu5](https://t.co/Z7PGBaQNu5)
+> — 乱沌 (@lyndon96227727) [March 22, 2021](https://twitter.com/lyndon96227727/status/1373996105105559554?ref_src=twsrc%5Etfw)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/032301-2.jpg)
 
-以下是以色列近几日的新增感染人数： 
-3月20日: 1189 
-3月19日: 1634 
-3月18日: 1279 
-3月17日: 1718 
-3月16日: 2241 
-3月15日: 空缺 
-3月14日: 1482 
-3月13日: 2698
 
-张文宏到底是怎么得出以色列每日新增仅几百例的结论的？是他的党性让他这么说的吧。
+根据以上内容及推持相关评论内容，本次引爆村委的诱因在于村民与村委在鱼塘征收赔偿方面积怨颇深，再加上当事者身患绝症，终于在2021年3月22日广州市番禺区明经村村委开会期间，该村民携自制炸弹在村委与他沟通过程中引爆自制炸弹，据网友透露消息，该起事件目前已造成16伤7死，死者中包括村委书记、两个高层、两个队长、两个党员。
 
-[援引原文](https://news.sina.cn/2021-03-22/detail-ikknscsi9209223.d.html?cre=tianyi&amp;mod=w2019ncov&amp;loc=6&amp;r=0&amp;rfunc=42&amp;tj=cxvertical_2019ncov&amp;tr=85&amp;vt=4&amp;pos=222)
+现场视频情况据[新聞看點@MuYangLee\_XWKD](https://twitter.com/MuYangLee_XWKD)于 [上午3:00 · 2021年3月23日](https://twitter.com/MuYangLee_XWKD/status/1374073399031472129)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
 
-审核校对：鲁邦五世
-上传排版：糖果儿
+
+
+> 中國廣州突發爆炸事件。3月22日上午，廣州市番禺區化龍鎮明經村發生一起爆炸事件，官方只稱“刑事案件，有人員傷亡”。
+> 
+> 網友指已有5人死亡，包括村委正副書記。也有知情人對外媒表示，有16人死傷。 [pic.twitter.com/fIky2fPaW2](https://t.co/fIky2fPaW2)
+> — 新聞看點 (@MuYangLee\_XWKD) [March 22, 2021](https://twitter.com/MuYangLee_XWKD/status/1374073399031472129?ref_src=twsrc%5Etfw)
+
+
+
+（文章内容仅代表作者个人观点）
 
 +3

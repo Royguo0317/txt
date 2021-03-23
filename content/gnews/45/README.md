@@ -1,12 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 3/14/2021 郭先生直播：对父母最好的孝敬方式是什么？
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1004819/)
+## 数百波斯尼亚塞族人抗议加强抗病毒措施
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1004910/)
 
-3/14/2021 郭先生直播：对父母最好的孝敬方式是什么？
-新中国联邦未来要为中国人打造真正的幸福家庭生活！共产党的“一胎政策”摧毁了中国人几千年的伦理纲常！新中国联邦未来要建立刑、法、伦、常合一的新型养老方式，既有西方的冷静和理智，也有东方的人性、感情，做到真正的老有所依、老有所养！
+- 编辑：Victor Torres
+- 发稿：Ranting
 
-By: 【秘密翻译组G-Translators】
+
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2021年3月22日电/西喜社——**据美联社3月22日报道，在波斯尼亚塞族人控制的地区，数百人抗议加强抗病毒措施，该地区感染率急剧上升，给卫生系统带来负担。
+
+抗议者聚集在北部城镇巴尼亚卢卡，高喊 “打倒措施”，要求国家帮助酒吧、餐馆和其他受影响的企业主。
+
+波斯尼亚塞族实体的当局已经关闭了滑雪场以及食品和饮料点，以遏制疫情激增。医生警告说，情况令人震惊，医院的床位已经用完。
+
+过去两周整个波斯尼亚都面临感染和死亡人数激增的情况。周一，当局表示，在过去24小时内，这个拥有330万人口的国家已有73人死亡。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/8c07fbee-158f-4290-ada3-1fab2b4c388e-1.jpg)
+
+**新闻来源：[美联社](https://apnews.com/article/europe-india-coronavirus-pandemic-coronavirus-vaccine-europe-415f31eed44ab6106ca8b5fc6197f306)**
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
 
 0

@@ -1,42 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法国人民载歌载舞，抵制再次封城
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1004976/)
+## 中共宣布对欧盟官员实施报复性制裁
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1005156/)
 
-```
-新闻来源：BFM TV
-记者：安布雷·莱波夫（Ambre Lepoivre）
-发布时间：2021.03.22
-翻译整理/简评：旦旦
-```
+**作者: STUART LAU**
+
+**编译: 莫黎**
 
 
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/00123456-5.jpeg)**图片: Irish Times**
 
-> Annecy aujourd'hui. Chanter et danser sans masques [pic.twitter.com/YCGl5SXsg7](https://t.co/YCGl5SXsg7)
-> — Valerina (@valdej28) [March 21, 2021](https://twitter.com/valdej28/status/1373673686012661760?ref_src=twsrc%5Etfw)
+中共北京方面针对欧盟今日因其虐待新疆穆斯林少数民族而实施的制裁做出了即刻回应，并对许多欧盟官员采取报复性措施，其中可能包括27名大使以及和其他政治目标。
+
+在中(共)国的制裁名单上，最突出的实体是欧洲理事会的政治和安全委员会。中(共)国的声明没有立即说明新的制裁是否直接针对组成该委员会的27位大使。欧盟理事会和中(共)国驻欧盟使团都无法立即对此作出澄清。
+
+欧洲议会有五名成员也在该名单上，包括议会中国代表团团长莱因哈德·比蒂科夫（Reinhard Bütikofer）以及迈克尔·加勒（Michael Gahler）, 拉斐尔·格鲁克斯曼（Raphaël Glucksmann），伊尔汗·库修克（Ilhan Kyuchyuk）和米里亚姆·莱克斯曼（Miriam Lexmann）。 欧洲议会人权小组委员会也受到了制裁。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/IMG_3599-6.jpg)**图片: 中国外交部**
+
+在欧盟批准了制裁包括新疆地区第二号中共领导人在内的四名新疆官员后不久，中国外交部就公布了自己的制裁名单。
+
+中国外交部发言人在声明中说：”欧盟的举动是基于谎言和虚假信息，无视和歪曲事实，严重干涉了中国内政，公然违反国际法和国际关系基本准则，严重损害中欧关系”。
+
+发言人称: “相关人员及其家属被禁止入境中国内地、香港以及澳门。他们及与他们相关联的企业和机构也被限制与中国进行往来。”
+
+他补充说: “中方敦促欧盟方面自我反省，正视错误的严重性，并予以纠正。欧方必须停止就人权问题上教训他人，以及干涉他国内政。必须停止虚伪的双重标准做法，停止在错误的道路上越走越远。否则，中方将坚决做出进一步的反应。”
+
+呼吁抵制明年北京冬奥会的荷兰议会议员斯约德·维默·舍尔德玛（Sjoerd Wiemer Sjoerdsma）、立陶宛议员多维尔·萨卡利安（Dovilė Šakalienė）以及试图在立法机构提出种族灭绝法案的比利时议员塞缪尔·科古拉蒂（Samuel Cogolati）也受到了北京方面的制裁。
+
+因其关于新疆集中营的著作被广泛引用的德国学者阿德里安·曾茨（Adrian Zenz），瑞典学者比约恩·杰登（Björn Jerdén）也在制裁此次名单中，同时还有总部设在柏林的著名中国研究中心 – 德国墨卡托中国研究院。
+
+此外，北京方面还将矛头指向了由前北约秘书长安德斯·福格·拉斯穆森（Anders Fogh Rasmussen）领导的丹麦民主联盟基金会。
 
 
 
-即便在上萨瓦省 (Haute-Savoie)，疫情数据令人堪忧，但依然无法抑制人们聚集，反抗政府封禁令的意愿。上周日，上千人不戴口罩，聚集在安纳西市 (Annecy) 省政府门口抗议。人们的目的只有一个：反对所有形式的剥夺自由的政府行为。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Annecy-manif-sans-masques-992136-e1616450080370.jpg)图为：周日，近一千人聚集在阿讷西，抗议对健康的限制。 封面来源：（Twitter屏幕截图）
-#### 简评：
 
-**上周末，在全世界各地都有大批民众聚集游行，目的是为了反抗政府那一味用政治手段抑制人们生活自由的行为。欧洲政府在畏畏缩缩，不向中共讨真相、讨说法的情况下，一味的进行一些治标不治本的封城政策，抑制经济，私下却继续与中共打太极拳。**
 
-**明明是一颗廉价的硫酸羟氯喹能够解决的问题，却一定要让部分人做出牺牲去尝试疫苗。牛津疫苗的风险已被证实，但德国、意大利等国在一度停用以后又再次启用。对于这样反复的危险操作，人们难道都会沉默下去？其实在政客眼里，人命也许不算什么，只有他们自己的地位与财源才是第一要务。**
+**新闻来源: **
 
-**但是，请战友们不要泄气，不要低估民主国家公民们的自由意识。大家上街游行，抗议政府的行为已经是一个好的开端。在这时宣传病毒真相，揭穿各国卑鄙政府的谎言也许是最佳时机！希望战友们能坚持宣传真相，身在墙外的战友们与身边的朋友团结，不论国籍不论肤色，让全世界追求民主自由的力量团结起来，消灭中共，消灭和中共为伍的黑暗势力！**
+[china-slaps-retaliatory-sanctions-on-eu-officials](https://www.politico.eu/article/china-slaps-retaliatory-sanctions-on-eu-officials/)
 
-**（免责声明：本文的简评只代表译者观点，跟GNEWS平台无关。）**
 
-**新闻来源链接：**
 
-🔗[ANNECY: PRÈS D’UN MILLIER DE PERSONNES RASSEMBLÉES SANS MASQUES DIMANCHE POUR PROTESTER CONTRE LES RESTRICTIONS](https://www.bfmtv.com/sante/annecy-pres-d-un-millier-de-personnes-rassemblees-sans-masques-dimanche_AN-202103220305.html)
+
 
 * * *
 
-**审核/校对：**Ting Guo
+**发布: 法国巴黎七星编辑组**
 
-+3
++2

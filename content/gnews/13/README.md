@@ -1,36 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共新名词补偿式返乡用意何在
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1005860/)
+## 重磅：mRNA冠状病毒疫苗改变人类基因，且可能引發ADE致死❗️
+` 旧金山金喜准农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1006115/)
 
-撰稿：自由战士
-![]()![](https://gnews.org/wp-content/uploads/2021/03/屏幕截图-2021-03-23-130800-2-3.png)图片来自网络截图
-邪恶的中共为了拉动所谓内需，在清明节到来之际，开始在墙内大肆宣传忽悠百姓进行跨地区活动。大内宣部门甚至还创造出一个新词：补偿式返乡。我们先来看看老谋深算的中共国政府为百姓们准备的各种收割模式：
+【作者】滴水穿石，Summer          【编辑】旧金山文宣组
 
-1. 交通方面，通往一些大城市的机票比起2019年同期，价格上涨30%
-2. 住宿方面，乡村振兴带动乡村民宿和度假酒店预订增速显著。清明乡村民宿预订量增长超165%，清明酒店预订量较上周增长也超过140%，价格上涨势不可免。
-3. 租车平台，清明租车预订量周环比增长涨超140%，价格也随之上涨许多。
-4. 国家卫生健康委员会现在引导百姓，低风险地区可以持有健康码出现，但是建议可以在假期来临之前提前接种疫苗，增加安全防护。引导百姓去接种疫苗，以另外一种收割模式来等你付费。
-5. 餐饮业在去年一年的低迷期后，这次机会肯定会抓住，进行互相伤害式的加价营业，甚至出现宰客行为。
+摩纳达(Moderna)公司首席医学官塔尔·扎克斯（Tal Zaks）早在2017年的TEDx演讲视频中，就已经明确指出，作为一家实验性mRNA技术注射剂的制药公司，该公司研发的mRNA技术正是通过信使RNA来改变您的遗传密码或DNA。这也证实了该公司研发的COVID-19疫苗的确改变了人体天然的DNA。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Viral-Protein-Production4-1.jpg)Moderna 公司早就對mRNA改寫DNA技術公開演講
+虽然媒体上许多人，包括安东尼·弗奇博士和他的一帮习惯的撒谎专家，以及所谓 “事实检查 网站”都宣布这种说法是假的，但实验性mRNA技术注射剂的制药公司之一，Moderna公司的首席医疗官Tal Zaks，在TED x Beacon Street 上的演讲视频，明确解释了证实了COVID-19使用的技术mRNA注射是如何改变你的遗传密码或DNA的！
 
+Zaks称之为“黑客生命的软件”。 在视频的第一分钟，Zaks说：“我们一直在进行这场惊人的数字科学革命，今天我在这里告诉您，我们实际上是在骇入生命的软件，并且它正在改变我们的思维方式 关于疾病的预防和治疗。”他甚至重复说，Moderna认为它就像一个电脑操作系统。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Viral-Protein-Production2-10.jpg)mRNA就如同黑客一般改寫DNA的程式
+Zaks指出：“在每个细胞中，都有一种叫做信使RNA或mRNA的东西，它将关键信息从我们基因中的DNA传递到蛋白质.. … 这是决定单元将执行的操作的关键信息。 因此，我们将其视为操作系统… … 因此，如果您实际上可以改变它，……如果您可以引入一行代码或更改一行代码。当“更改”代码行或“引入”代码行”（指DNA）时，“代码”或DNA随之改变，这意味着个人或“受试者”现在的基因组已更改为“ 科学家”进行了编码。 个人或主体不再是上帝的创造，而是人的创造。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Viral-Protein-Production.jpg)左邊：傳統疫苗：有限的病毒蛋白從外部來
+右邊：mRNA疫苗：人體細胞產生病毒蛋白
+他继续说，mRNA会告诉细胞为“病毒”的蛋白质“编码”。 这种“病毒蛋白”对人体而言是外来的。 这个人的身体正在制造一种免疫系统要攻击的外来蛋白质。也就是説，您的免疫系统在攻击人体制造的蛋白质，这意味着“自动免疫反应”正在发生。
 
-如上所述，狡诈的中共给各位准备好了各种的收割套餐，并同步现在已经在墙内各大新闻媒体平台冲上热搜的“补偿式返乡”概念。在这波操作后，恐怕会有许多无知的百姓跟随这次所谓的探亲团聚的热潮进行中共的定制式消费，把大家口袋里面的钱再次抢劫。
+瞭解到到这个事实之后，就更容易理解接种疫苗的人再面对病毒时什么是如此危险。来听听前美国内外科医生协会主席李梅里特医生(Dr. Lee Merritt) 对於ADE (Antibody Dependent Enhancement抗体依赖增强) 的解释。mRNA在中共病毒之前从未在人体使用过。在以往的SARS疫苗的动物实验中，当接种了mRNA疫苗的猫接受挑战实验时（给他感染SARS），病毒没有被杀死或削弱，而是被自动免疫反应生成的蛋白质把病毒包裹住，使病毒顺利进入猫的体内而不被自身免疫系统察觉，就像特洛伊木马一样。结果是病毒进入后大量的复製，直到爆发性的败血症和心臟衰竭导致猫的死亡。就是这样的一种从未在动物实验上取得成功的技术，而且没有在人体大规模实验过的，就在这次疫情中，开始大规模给人群接种了。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Viral-Protein-Production3-5.jpg)Lee Merritt 醫生
+这种不彻底的疫苗研究根本就不应该在几个月内下结论，更不应该给大规模的人群接种。特别是不应该强迫任何人接种。
 
-我相信假期过后，中共肯定会再鼓吹一波他们所谓的内循环伟大成果，声称他们所奴役的14亿百姓完全可以扛起这个GDP的大旗，小粉红们即刻开始狂欢“伟大祖国”世界无敌。同时中共国还会再次渲染西方国家看到中共国的强大，感觉到了对他们的威胁，继续增加14亿人民对西方国家的敌对情绪。
+李梅里特医生建议我们都不应该叫它“疫苗”，鉴於它生化武器的出身，可以叫它“二元病毒”，即推迟发作时间到的未来某一个可控的时间可以用病毒激发致死的一个生物武器。
 
-把百姓更加紧密地绑在他们的这个邪恶的组织上，让百姓陪葬。我们必须要加大区分中共和中国人的区别，同时往墙内传播真相，唤醒更多的良知人士。全球的战友们揭穿邪恶中共的真相，需要我们每个人的持续付出，动动手指传播起来。
+【参考来源】
 
-（本文仅代表个人观点）
+人类基因组8和mRNA疫苗[https://www.brighteon.com/59e20408-8324-4a1f-9de5-9c4f9d205394](https://www.brighteon.com/59e20408-8324-4a1f-9de5-9c4f9d205394)
 
-审稿：Gradient Boost 编辑：MG1
+Moderna Chief Medical Officer Admits MRNA Alters DNA [https://dcdirtylaundry.com/bombshell-moderna-chief-medical-officer-admits-mrna-alters-dna/](https://dcdirtylaundry.com/bombshell-moderna-chief-medical-officer-admits-mrna-alters-dna/)
 
-澳喜文章：
+Dr. Lee Merrtt: Bio-warfare & Weaponization of Medicine Amid Covid [https://thenewamerican.com/bio-warfare-weaponization-of-medicine-amid-covid/](https://thenewamerican.com/bio-warfare-weaponization-of-medicine-amid-covid/)
 
-[https://gnews.org/zh-hans/author/aujenny/](https://gnews.org/zh-hans/author/aujenny/)
+【免责声明】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-欢迎加入澳喜农场：
+**欢迎战友加入旧金山金喜准农场**
 
-[https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-澳喜Logo-3.jpeg)
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
+
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
+
+[旧金山金喜农场 **Youtu**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[**b**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)[**e**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)**
+**
+
 0
