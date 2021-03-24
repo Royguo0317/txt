@@ -1,40 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国与盟友启用马格尼茨基人权法案制裁中共
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1014568/)
+## “打杂客”持续为CGTN唱赞歌
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1014583/)
 
-新闻来源：美国国务院（USGovernmentofState）| 作者：安东尼·布林肯（Antony J.Blinken）| 发布时间：2021年3月22日
+新闻来源：The National Pulse 国家脉动| 作者：NATALIE WINTERS 娜塔莉·温特斯| 发布时间：2021年3月21日
 
-翻译/简评：随波逐流| 校对：SilverSpurs7| 审核：万人往| Page：小六月
+翻译/简评：wmorpho| 校对：万人往| 审核：万人往| Page：小六月
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CWD60A4ct0PZw/images/86ba919b-35ff-4574-a504-e938426fb965.jpg?asset_id=4994ad48-0ec0-4bcf-94f9-aff5fc55e505&amp;img_etag=%221a64f75537970415e76d164ea0dce68d%22&amp;size=1024)](https://spark.adobe.com/page/CWD60A4ct0PZw/images/86ba919b-35ff-4574-a504-e938426fb965.jpg?asset_id=4994ad48-0ec0-4bcf-94f9-aff5fc55e505&amp;img_etag=%221a64f75537970415e76d164ea0dce68d%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/2eeb4717-11f5-4cc1-aba1-21a807991957.jpg?asset_id=f8a08736-cb68-4184-a7ea-69bd8eb55c54&amp;img_etag=%2202138c22f526b1788b8b0da69b3bf103%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/2eeb4717-11f5-4cc1-aba1-21a807991957.jpg?asset_id=f8a08736-cb68-4184-a7ea-69bd8eb55c54&amp;img_etag=%2202138c22f526b1788b8b0da69b3bf103%22&amp;size=1024)
 
 **简评：**
 
-美国国务院发表声明称，美国将与英国、加拿大和欧盟等全球合作伙伴一道，根据马格尼茨基人权制裁法案，在全球范围内对中共严重侵犯人权的责任人发起定向制裁，被制裁的个人包括新疆生产建设兵团党委书记王君正和新疆公安厅厅长陈明国。美国再次呼吁中华人民共和国结束对以新疆穆斯林为多数的维吾尔人以及其他民族和宗教少数群体的镇压，包括释放所有被任意关押在集中营和拘留所中的人。美国称，跨大西洋国家的联合响应向国际上那些侵犯或践踏人权的责任人发出了强烈的信号，美国将与观点一致的伙伴协调合作，采取进一步行动。美国表明将继续与世界各地的盟友站在一起，呼吁立即制止中共国的罪行，并为众多受害者伸张正义。
+世界卫生组织的“独立调查员”彼得·达扎克在将中共拒绝交出有关中共病毒起源的关键数据归咎于美国媒体之后，达扎克又开始为中共国的大外宣卖力地促销。达扎克所促销的大部分是来自中共国全球电视网（CGTN）——自由之家智库将其描述为“北京镇压工具库中的一项常备武器”，其“使命是攻击共产党认定的敌人”。达扎克称赞CGTN主持人“犀利”，采访“出色”、“诚实”，并称赞节目为“很棒”。除了称赞电视网外，他还不加批判地分享了该网站上的文章，从而进一步夸大了武汉病毒学研究所“从未泄漏病毒或感染任何人”的说法。达扎克的所言所行哪里是什么“独立调查员”，他分明是中共国的国际宣传员，他的言论已经丧失了对中共病毒调查的公正性。
 
-之前对中共的人权问题的调查和指责只限于非官方机构或一些民间组织，并没有什么有效制裁措施。而中共一再无视国际谴责，继续我行我素侵害新疆维吾尔族人权，以致达到了人神共愤的地步。美国前政府已将中共在新疆的暴行定义为“种族灭绝”和“反人类罪”，将其正式上升到了政府层面，今天又得到多国的联合响应，从而启动了强大的全球马格尼茨基人权制裁法案。这不仅为新疆人民，也为受中共压迫的全体中国人民带来了希望的曙光，是灭共道路上的一个里程碑。若中共拒不悔改，或者变本加厉继续挑衅并负隅顽抗，便只有灭共才能阻止其继续犯罪。目前中共的态度仍然强硬，而美国已呼吁全世界盟友一起，终止中共罪行并为受害者伸张正义，这是对中共采取进一步行动的强烈信号，全球盟友联合一致的灭共行动将很快到来。
+一个人的言行可以使自己升到天国，也可以把自己贬到地狱。中共病毒已经肆虐全球一年有余，死亡人数前所未有，对人们身心的伤害已达到极限，后续的次级灾害无法估量，这样的罪恶天理难容。达扎克不但不对中共的罪行追究责任，反而一再为中共开脱和唱赞歌，达扎克到底是人还是魔？印度的神秘主义者曾警告说：“小心！小心！从你这里说出去的东西，还要回到你这里来。” “打杂客”，你要小心了！
 
 **原文翻译：**
 
-## **与我们的合作伙伴一起推动对侵犯人权行为的追责**
+## **世界卫生组织的“独立调查员”一直在大肆炒作中共大外宣**
 
-今天，美国与我们的合作伙伴一道，根据全球马格尼茨基法案（Global Magnitsky）制裁计划，共同对新疆生产建设兵团（XPCC）党委书记王君正（Wang Junzheng）和新疆公安厅（XPSB）厅长陈明国（Chen Mingguo）实施制裁。我们的行动针对的是发生在新疆严重践踏少数民族和宗教少数群体人权的行为。
+[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/17831703-975b-42ae-bc2b-978abcaa4ea5.png?asset_id=4d1b4efd-f6e0-43a9-b812-b63c635ea95f&amp;img_etag=%225c1a3d14958c97e525660bfdec650c7f%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/17831703-975b-42ae-bc2b-978abcaa4ea5.png?asset_id=4d1b4efd-f6e0-43a9-b812-b63c635ea95f&amp;img_etag=%225c1a3d14958c97e525660bfdec650c7f%22&amp;size=1024)
 
-对王君正和陈明国的制裁认定，以针对中华人民共和国（PRC）在新疆骇人听闻的暴行发布的第13818号行政命令为依据。王君正被认定执行了行动，或据称是为新疆生产建设兵团服务，或直接或间接代表新疆生产建设兵团行事。陈明国被认定为担任新疆公安厅负责人或官员的外国人员，该机构本身或其成员从事与陈某任期有关的严重践踏人权的行为。
+**最近去过中共国（调查中共病毒起源）的世界卫生组织美国调查员彼得·达扎克（Peter Daszak）在推特上一再大肆炒作中共国官方媒体机构。**
 
-在国际社会谴责日益高涨之际，中华人民共和国继续在新疆犯下种族灭绝和反人类罪。美国再次呼吁中华人民共和国停止镇压新疆穆斯林为多数的维吾尔人以及其他民族和宗教少数派群体成员，包括释放所有被任意关押在集中营和拘留所中的人。
+促进中共国政府自我认可的“宣传”运动的达扎克，被进一步质疑作为世界卫生组织调查员的公正性。
 
-我们今天已采取这一行动，以声援我们在英国、加拿大和欧盟的合作伙伴。作为他们今天行动的一部分，我们的合作伙伴还对新疆地区以及与其他国家发生的暴行有关的侵犯人权者实施了制裁。这些行动表明，我们一直致力于通过多边合作促进对人权的尊重，并曝光中华人民共和国政府和中共内部对这些暴行负责的人。
+达扎克最推崇和赞扬的媒体是中国环球电视网（CGTN）——自由之家智库将其描述为“北京镇压工具库中的一项常备武器”，其“使命是攻击共产党认定的敌人”。
 
-美国致力于通过全球马格尼茨基制裁计划和类似的努力，在打击严重侵犯人权行为的全球行动中发挥强有力的领导作用。有针对性的制裁，包括对那些侵犯或践踏人权者的制裁，是挫败恶意行为者和倡导问责制的重要工具。
+达扎克称赞CGTN主持人“犀利”，采访“出色”、“诚实”，并称赞节目为“很棒”：
 
-美国赞扬欧盟今天采取了更广泛的人权制裁行动。我们欢迎欧盟使用这一强大的工具在全球范围内推进对侵犯人权行为的追责。跨大西洋两岸国家的联合响应向国际上那些侵犯或践踏人权的人发出了强烈的信号，我们将与观点一致的伙伴协调合作，采取进一步行动。我们将继续与世界各地的盟友站在一起，呼吁立即制止中华人民共和国的罪行，并为众多受害者伸张正义。
+[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/efb7aebe-a37c-4fed-8ba9-a442a04c5836.png?asset_id=cda50002-d7e2-40f7-bc2e-595304185c2c&amp;img_etag=%2270352ab696516238e8a289ff28a5452c%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/efb7aebe-a37c-4fed-8ba9-a442a04c5836.png?asset_id=cda50002-d7e2-40f7-bc2e-595304185c2c&amp;img_etag=%2270352ab696516238e8a289ff28a5452c%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CWD60A4ct0PZw/images/8e5658a7-9edb-418e-ba3f-53bc4003d14a.jpg?asset_id=b994e597-01fd-4e5b-9491-4a4307bcea6b&amp;img_etag=%228d494e197a15ff5050c3d07241b6c42e%22&amp;size=1024)](https://spark.adobe.com/page/CWD60A4ct0PZw/images/8e5658a7-9edb-418e-ba3f-53bc4003d14a.jpg?asset_id=b994e597-01fd-4e5b-9491-4a4307bcea6b&amp;img_etag=%228d494e197a15ff5050c3d07241b6c42e%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/de4812b0-30ee-4bf5-a86e-b341f005c3e7.png?asset_id=55b6b9f9-da7e-4d5b-8bf5-2f67c1677623&amp;img_etag=%2244adb39883e305563c16737a2d056f75%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/de4812b0-30ee-4bf5-a86e-b341f005c3e7.png?asset_id=55b6b9f9-da7e-4d5b-8bf5-2f67c1677623&amp;img_etag=%2244adb39883e305563c16737a2d056f75%22&amp;size=1024)
 
-[原文链接](https://www.state.gov/promoting-accountability-for-human-rights-abuse-with-our-partners/)
+[视频链接](https://twitter.com/PeterDaszak/status/1044743782175051776?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1044743782175051776%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fthenationalpulse.com%2Fbreaking%2Fthe-world-health-organizations-independent-investigator-keeps-hyping-chinese-communist-propaganda-outlets%2F)
+
+除了称赞该网站，他还不加批判地分享了该网站上的文章，从而进一步夸大了武汉病毒学研究所“从未泄漏病毒或感染任何人”的说法。
+[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/6e0333ef-e41c-4705-92b1-da133814fe2d.png?asset_id=6ad3baa0-f65e-4c13-a8fa-5db03e942862&amp;img_etag=%2249db6d1e46c9024f42fa1935f85a80c8%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/6e0333ef-e41c-4705-92b1-da133814fe2d.png?asset_id=6ad3baa0-f65e-4c13-a8fa-5db03e942862&amp;img_etag=%2249db6d1e46c9024f42fa1935f85a80c8%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/fc2a7a8a-a57b-4b71-95f2-7298a560bfdd.png?asset_id=4c62ce15-b9a2-4dc7-8520-73bb0ae6dd70&amp;img_etag=%22d36b0991adcfec0f56890d0babfa276b%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/fc2a7a8a-a57b-4b71-95f2-7298a560bfdd.png?asset_id=4c62ce15-b9a2-4dc7-8520-73bb0ae6dd70&amp;img_etag=%22d36b0991adcfec0f56890d0babfa276b%22&amp;size=1024)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/2dd88af9-dbd1-403c-8499-7d1d52d3887c.png?asset_id=582f723c-3b07-4450-ac8d-d174ccc927a5&amp;img_etag=%221d71dcbb5e4364e9c834156415c3500e%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/2dd88af9-dbd1-403c-8499-7d1d52d3887c.png?asset_id=582f723c-3b07-4450-ac8d-d174ccc927a5&amp;img_etag=%221d71dcbb5e4364e9c834156415c3500e%22&amp;size=1024)
+
+更重要的是，达扎克还赞扬了由中共国疾病预防控制中心等国营企业赞助的中共国医学杂志。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/0598d424-d83a-4c74-8a80-bdbb4a69d2f8.png?asset_id=d2e8f1d1-c110-4d66-b3fb-7fc6cbe8701f&amp;img_etag=%2232171ee492e48a913b5aab608f285d43%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/0598d424-d83a-4c74-8a80-bdbb4a69d2f8.png?asset_id=d2e8f1d1-c110-4d66-b3fb-7fc6cbe8701f&amp;img_etag=%2232171ee492e48a913b5aab608f285d43%22&amp;size=1024)
+
+达扎克最近将中共拒绝交出(有关中共病毒起源的)关键数据归咎于美国媒体：这是北京方面的一个话题。
+
+娜塔莉·温特斯（Natalie Winters）是《国家脉动》的高级记者，也是《国家脉动》电视节目的制片人。
+
+[原文链接](https://thenationalpulse.com/breaking/the-world-health-organizations-independent-investigator-keeps-hyping-chinese-communist-propaganda-outlets/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -43,6 +59,6 @@
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CWD60A4ct0PZw/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/CWD60A4ct0PZw/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
