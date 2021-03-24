@@ -1,29 +1,82 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：章家敦：习近平故意传播病毒到境外
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1011626/)
+## 视频：种族主义是种族主义者的问题，也是产生种族主义的社会问题
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1011799/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/image001-120.jpg)
-3月24日zeroherge:章家敦接受对采访时从多方面讲告诉了我们中共是如何威胁全世界的。
+内容：
 
-在病毒方面，章说：“我们确实知道一件事。我们知道，中共国领导人习近平有意采取措施将病原体传播到中共国境外。他主要通过两种方式做到这一点。首先，他对这种疾病的传染性撒谎。他知道这是人与人之间高度可传播的。他告诉世界，事实并非如此。
+I am a descendant of slaves.
 
-“然后，他在封锁武汉和中共国其他地区的同时，要求各国不要对来自中共国的入境人员实施旅行限制和隔离，这意味着他认为这些旅行限制和隔离措施对防止疾病传播是有效的。当然，这意味着他知道自己是在通过强迫其他国家接收来自中共国的难民来传播疾病。这表明他有恶意。”
+我是一个奴隶的后裔
 
-在美国的学者界，政治界中，章博士对中共的了解非常深刻。在采访中章博士对中共国侵占印度领土，威胁台湾，杀害香港人，新疆集中营等方方面面都有很本质的认知。在聊到中共对美国的威胁时，他谈到：“中共政权是不合法的。。。。中国故意释放了这种疾病，该疾病已经杀死了超过50万美国人。仅此一项就意味着无法与中国合作。”这直接点出了中共是一个非法政权的本质。遗憾的是，章博士在采访中还是未提到中共与中国的区别。既然说到了中共是一个不合法政权，那么中共就不能代表中国，也就必须将中共与中国分开，与中国人分开！
+My great-grandmother, Mary Thomas, born in 1865,
 
+我的曾祖母，玛丽·托马斯，生于1865年
 
+Was the child of a slave – this is just three generations back from me.
 
-[原文链接](https://www.zerohedge.com/geopolitical/china-what-do-about-it)
+是一名儿童奴隶 – 到我这儿是三代人
 
-【文章仅限作者个人观点】
+I grew up in the segregated South, I was bused to a segregated school
 
-本文作者：喜马拉雅摄影师
+我在种族隔离的南方长大，我被送往一所隔离的学校上学
 
-审核校对：鲁邦五世
+And on weekends the Ku Klux Klan burned crosses on lawns in our neighborhood.
 
-上传排版：玫瑰新闻组
+周末，3K党(Ku Klux Klan)在我们的邻里附近的草坪上烧了十字架
+
+When I was in high school, I was asked by a little girl for whom I babysat,
+
+当我上高中的时候，有一个小女孩问我，我是谁的保姆
+
+If I was an n-word, because her dad had used that word for me.
+
+如果我是黑奴，因为她的父亲曾用过这个词形容我
+
+I know the ugly face of racism
+
+我知道种族主义的丑陋嘴脸
+
+I lived racism. I have experienced racism.  And I survived racism.
+
+我在种族主义之中生活过。 我经历过种族主义。而且我在种族主义中幸存下来
+
+And through this process, I learned a simple truth
+
+通过这个过程，我学到了一个简单的道理
+
+Racism is not the problem of the person who experiences it.
+
+种族主义不是经历它的人的问题
+
+Those of us who experience racism cannot and should not, internalize it.
+
+我们当中那些经历种族主义的人们不能也不应将其内部化
+
+Despite the impact it can have on our everyday lives.
+
+尽管它会影响我们的日常生活
+
+We must face it down every time, no matter whom it’s directed towards.
+
+无论它是针对谁的，我们每次都必须面对它
+
+Racism is the problem of the racist, and it is the problem of the society that produces the racist-
+
+种族主义是种族主义者的问题，也是产生种族主义的社会问题
+
+and in today’s world, that is every society.
+
+在当今世界，那是每个社会的问题
+
+———————————————–
+
+英听校：    康州盘古农场 – Layka
+翻译：       康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发文：康州盘古农场-轰炸机
 
 0
