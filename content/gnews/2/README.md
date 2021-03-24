@@ -1,71 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅】如何彻底终结CCP病毒大流行（三）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1011248/)
+## 【新闻简评】从美国纾困方案看未来
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1011353/)
 
-五月花写作组 ｜ 作者：北美教练陪练｜ 编辑、美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/03/如何彻底终结CCP病毒大流行V3.jpg)
-### **往期链接：**
+作者：喜马拉雅东京樱花团 / 贻人小筑
 
-[【重磅】如何彻底终结CCP病毒大流行（一）](https://gnews.org/zh-hans/1010646/)
+前言：美国的纾困方案将会为美国乃至全球经济带来沉重负担，G系列是为数不多的价值成长型资产，“墙”国将进一步控制外汇流出。
 
-[【重磅】如何彻底终结CCP病毒大流行（二）](https://gnews.org/zh-hans/1011043/)
+拜登政府在3月11日正式签署1.9万亿美元新冠纾困救助法案，只要年收入在7.5万美元以下的美国个人，和年收入在15万美元以下的夫妇，在财政部和国税局留有银行账户信息的民众，将直接收到1400美元，12日美国方面开始发放个人纾困金，正式付款是3月17日，一些银行提前处理了发放事宜，到美国时间3月17日，已经发送给9000万个家庭，约2420亿美元，达预期一半。考虑到美国家庭收入中位数是6.87万美元，就是大部分美国家庭都可以收到这1400美元救命钱。同时，拜登政府不仅搞了1.9万亿美元的刺激方案，还要追加2万亿（也可能增加到4万亿）美元的基建计划。
 
-* * *
+![](https://lh3.googleusercontent.com/hcgwBrpD9CbZmOWilqfIPnIHlsfJt8secCb5QeuMuyK9JO0rQ494CsXS5mSmy7JMjdWBsecesqzkHNi0f6uy2c25fseeoB4cPjR68CGIJADSaNSxe_LPZjv056Vyi6Cw81XwNYYu)
+图片来自网络
 
-### **开放伊维菌素为非处方药，就这么简单的事情**！
+那么，几万亿美金的投入，钱从哪里来呢？无非就是借钱或者赚钱（或者抢钱？！）。借钱，就是通过继续投放国债来达成；而赚钱，则是通过增加税收来实现。无论哪种方式，对美国未来的经济，都会带来沉重的影响。过去一年内，美国已经推出一系列纾困措施，可以说，美国政府已经债务累累。截止3月1日，美国联邦政府债务已经达到21.9万亿美元，为二战以来最高。按这个趋势，两年后美国国债将很有可能达到30万亿美元，每年利息达到恐怖的7000亿美元。目前，在不断恶化的通胀预期背景下，美国10年期国债收益率已经迅速走高，市场积压了大量抛售美国国债的动能。想通过继续发债募集资金，已经不能作为长期募资的手段。拜登政府计划和正在考虑的措施包括：
 
-William C. Campbell 和 Satoshi Ōmura因合作开发出抵御蛔虫感染的伊维菌素 (Ivermectin) 而获2015年诺贝尔生理学或医学奖。
+1、 提高年收入超过40万美元人群的个人所得税税率；
 
-1973年，日本微生物学家Satoshi Ōmura在土壤中发现了新型的链霉菌，该链霉菌被成功分离并在实验室进行培养，Satoshi Ōmura发现这些链霉菌可以产生抗寄生虫的物质，在默克药物筛选实验室的协助下，研究者于1975年完成了对有效成份的纯化鉴定，命名为阿维菌素(Avermectins)。致力于寄生虫研究的美国科学家William C. Campbell ，对阿维菌素进行一定的化学结构修饰，得到了更加安全高效的伊维菌素。1981年，伊维菌素在畜牧业、农业、水产养殖等领域取得上市准许。
+2、  扩大遗产税范围；
 
-也许，没有比伊维菌素离穷苦人更近的药物了。全球每年大约有2.5亿人服用伊维菌素，抵御两种可怕的疾病——盘尾丝虫病和淋巴丝虫病。这些人多居住在偏远落后的欠发达地区，没有机会接受最基本的医疗救助，得益于药品捐助组织的帮助，他们才得以享受免费提供的伊维菌素。
+3、  削减有限责任公司、合伙企业等公司的税收优惠；
 
-伊维菌素带来绵延40年之久的巨大成功。在人类与寄生虫病斗争的过程中，伊维菌素曾立下赫赫战功，拯救了数以百万的生命，这是近代制药工业辉煌的一页。
+4、  将企业税从21%提高至28%；
 
-伊维菌素（Ivermactin）有抗CCP 病毒的作用。第一个报道是澳大利亚的科学家，体外细胞实验证明伊维菌素有效（17）。实际上，抗寄生虫的药物都可能对CCP病毒有效。伊维菌素有效的灵感可能来自于羟氯喹，因为羟氯喹也是抗寄生虫的药物。
+5、  对年收入至少为100万美元的个人征收更高的资本利得税。
 
-按理来说伊维菌素是个老药，有这一篇文章就足够了，CCP病毒大流行，死这么多人，没有有效的治疗方法，任何人都应该可以试用。但事情可没有这么简单。首先第一个跳出来的是FDA，“有效吗？人药不给你、兽药也不许用！”（18）
+无论如何，正如郭先生的判断，美国经济未来几年，将面临极其严重的衰退风险，进而影响到全球经济的大衰退，这必然是人类“大重启”过程中不得不付出的代价。在全人类面临如此困境的时候，新中国联邦的G系列业务可能是当下以及未来相当长一段时间内唯一具有投资价值和增长空间的标的。关于G系列业务的投资价值，已经有很多相关文章和分析，这里就不做赘述了。
 
-Pierre Kory是一线CCP病毒治疗联盟（Front line COVID-19 Critical Care Alliance）医生。他多次向NIH呼吁伊维菌素有奇效无果，最后在国会作证（19）（20）。2021年1月14号NIH终于扭扭捏捏、羞羞答答的确认伊维菌素可以应用。注意，NIH只是不反对了，但是并不推荐，更不鼓励。Pierre Kory医生的许多重要视频被Youtube 禁了。为什么？你懂的！
+在写这篇文章的同时，恰好笔者看到来自墙内的这样一段评论：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-24-at-7.41.13-AM.png)Pierre Kory医生
+“严格控制结汇和购汇，是中国阻止美元霸权洗劫中国财富的重要选项，相当于我们建了一道城墙，防止野人进来洗劫我们。没有金融主权的国家，是任人宰割的国家，美国人并不关心谁上台执政，他们只关心你们有没有开放金融主权。今天美国人指责我们的所有东西，攻击我们的所有理由，从香港到新疆，目的都是希望中国改变体制，从而在多党间下注，就能打开中国的金融主权。这样中国也会变成一块大好肥肉，像阿根廷、泰国、巴西等其他发展中国家一样，供他们来回掠食。”
 
-阿根廷开展了一项研究实验，1195名医务人员中，407 名无预防用药，788名口服伊维菌素预防用药14 天，30天后的结果是：无预防用药组有58% 染病。服伊维菌素预防用药组无人感染（21）。按此结果，伊维菌素完全是个可以改变游戏规则的药物，如果全球每个人都用，同时用1-2个月，疫情也许会完全消失。比疫苗有效，同时用1-2个月，相当于1-2个月的群体免疫。病毒不就没有了吗？
+整个话语和观点，透出多么熟悉的“墙”国风味。可以预见，为了进一步控制外汇流出，CCP治下的舆论导向，将会持续围绕美国经济做文章，加强民粹主义宣传，并严控外汇资金的流转。并美其名曰：一切都是为你好，一切都是为国家好。
 
-巴西O Progresso医生在回答是否羟氯喹和伊维菌素缺乏科学证据时，非常激动的说：“需要数月、数年才能找到各种级别的证据。现在口口声声要证据简直是疯了。病人最后气管插管有用吗，你们怎么不要证据？在战时，在疫情面前医学官僚大咖们已经彻底的失去了合法性。面对这医疗系统崩溃，医院关门，大量病人死在医院门口。贝伦市（Belem，巴西的一座城市）采用了我们的治疗方案，仅仅几周时间，问题就解决了。如果这不是科学证据，那什么是科学证据？科学证据有意义吗？”（22）
+笔者再次呼吁墙内同胞：早日觉醒，不要再做韭菜，投身爆料革命和G系列，共同迎接新时代的到来。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-24-at-7.46.06-AM.png)O Progresso 医生
+*免责申明：本文只代表作者观点，与GNews网站无关。*
 
-46个临床实时回顾分析研究表明伊维菌素对预防CCP病毒效果极佳（23）。面对这样的效果，政客们，医疗精英们，是什么让你们蒙上了双眼？
+*校对：喜马拉雅东京樱花团 / 东洋武士
+责任编辑：喜马拉雅东京樱花团 / 文小白
+发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews.org/wp-content/uploads/2021/03/二维码-9.jpg)
+0323C158b
 
-（未完待续）
-
-* * *
-
-### 参考资料：
-
-（17）[https://www.sciencedirect.com/science/article/pii/S0166354220302011](https://www.sciencedirect.com/science/article/pii/S0166354220302011)
-
-（18）[https://www.fda.gov/animal-veterinary/product-safety-information/fda-letter-stakeholders-do-not-use-ivermectin-intended-animals-treatment-covid-19-humans](https://www.fda.gov/animal-veterinary/product-safety-information/fda-letter-stakeholders-do-not-use-ivermectin-intended-animals-treatment-covid-19-humans)
-
-（19）[https://vimeo.com/490351508](https://vimeo.com/490351508)
-
-（20）[https://covid19criticalcare.com/](https://covid19criticalcare.com/)
-
-（21）[https://trialsitenews.com/argentinas-ivercar-ivermectin-carrageenan-study-shows-positive-results-targeting-covid-19/](https://trialsitenews.com/argentinas-ivercar-ivermectin-carrageenan-study-shows-positive-results-targeting-covid-19/)
-
-（22）[https://rclutz.wordpress.com/2020/07/19/brazil-early-treatment-with-covid-kit-including-hcq-is-effective-and-safe/](https://rclutz.wordpress.com/2020/07/19/brazil-early-treatment-with-covid-kit-including-hcq-is-effective-and-safe/)
-
-（23）[https://ivmmeta.com/#fig\_fpr](https://ivmmeta.com/)
-
-* * *
-
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
-
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
-
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
-
-0
++1

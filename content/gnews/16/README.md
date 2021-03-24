@@ -1,202 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0323.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1007957/)
+## 【聚焦】西方世界联合起来制裁中共对新疆种族灭绝罪行
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1011189/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
+#### 翻译：文扬
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0223-5.jpeg)图片来源：康州盘古农场 霹雳年
-3月23日美国国务院发推如下。
+#### 校对：猫咖
 
+#### 编辑：文泓
+![]()![](https://gnews.org/wp-content/uploads/2021/03/13-4.png)
+图片来源：墨尔本雅典娜农场设计组（精灵蓝）
 
+#### 译评：
 
-> 美国国务院：
-> 正在现场直播！ 美国务卿安东尼·布林肯[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw)加入北约[@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw)秘书长斯托尔滕贝格[@jensstoltenberg](https://twitter.com/jensstoltenberg?ref_src=twsrc%5Etfw)，就“加强跨大西洋纽带关系” 进行适度对话。 [https://t.co/cAj8WaK4SF](https://t.co/cAj8WaK4SF)
-> — 川普等政要…直译推 (@zhiyitw33) [March 23, 2021](https://twitter.com/zhiyitw33/status/1374291181971079177?ref_src=twsrc%5Etfw)
+此篇报道指出，继美国、欧盟、英国、加拿大制裁中共在新疆实施种族灭绝反人类罪行之后，而中共国出台了一系列针对性反制措施，近日澳洲新西兰外长也发表联合声明，声援西方盟国对中共国的制裁，与此同时，澳洲正在研究通过《马格尼茨基法》，为下一步制裁中共反人类罪行做好铺垫。
 
+新中国联邦的战友们坚持不懈四年多，我们正在唤醒全世界！今天中共可以在新疆西藏实施种族灭绝，明天它们的暴行一定会蔓延到世界各地。去年香港人民反送中有多少人被失踪？今年缅甸人民反独裁军政府又有多少人被枪杀？一切的一切皆因中共的黑手。西方社会正在不断清醒，一个独裁的超级大国一定是全人类的噩梦。
 
+#### 译文：
 
-22日关于对中共新疆种族屠杀的制裁的几则推文。
+伦敦消息，美国、欧盟、加拿大和英国因中共虐待维吾尔族人而对中国实施制裁，这使西方与北京的紧张关系急剧升级。
 
+西方盟友（欧盟）周一（澳洲东部时间周二）同时宣布对四名新疆高官和中国地区公安局实施旅行禁令和资产冻结，这是自1989年天安门事件以来布鲁塞尔首次对中国实施制裁。
 
+北京立即回击，对一系列的欧洲议员、智库和学者进行制裁，指责他们散布 “谎言”。
 
-> 国务卿安东尼·布林肯：
-> 美国正在根据全球马格尼茨基法案制裁指定的两名 [#中华人民共和国](https://twitter.com/hashtag/%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 官员，这些制裁针对新疆境内严重侵犯人权行为。我们与英国，加拿大和欧盟团结一致，促进追责侵犯人权者。 [https://t.co/dFAMVVeSeJ](https://t.co/dFAMVVeSeJ)
-> — 川普等政要…直译推 (@zhiyitw33) [March 22, 2021](https://twitter.com/zhiyitw33/status/1374076673696563200?ref_src=twsrc%5Etfw)
+澳大利亚外交部长玛丽斯.佩恩（Marise Payne）和她的新西兰同行娜娜娅.马胡塔（Nanaia Mahuta）支持制裁，但未追随他们的盟友，尽管他们重申谴责了在新疆有“越来越多关于严重侵犯人权的可信报告”。
 
+“特别是，有明确的证据表明存在严重侵犯人权的行为，包括限制宗教自由、大规模监控、大规模法外拘留，以及强迫劳动和强迫节育，包括（强制）绝育，”澳大利亚-新西兰联合声明说。
 
+澳大利亚和新西兰欢迎加拿大、欧盟、英国和美国在一夜之间宣布的措施。 我们与这些国家一样深切关注，这些关注在澳大利亚和新西兰社区中普遍存在。
 
+“今天，我们强调透明度和问责制的重要性，并再次呼吁中国允许联合国专家和其他独立观察员有意义地、不受限制地进入新疆。”
 
+据了解，莫里森政府认为自己不具备制定制裁措施的法律地位，因为与其他国家不同，澳大利亚没有所谓的《马格尼茨基法》, 该法允许锁定（并制裁）个别侵犯人权者。政府计划在今年晚些时候提出立法草案。
 
-> 美国务院发言人尼德·普莱斯：
-> 美国正在与我们的合作伙伴一起在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 及全世界范围内努力捍卫人权，打击腐败并促进追责。
-> 【附国务院官网相关新闻公告】 [https://t.co/yNBRTtXPYS](https://t.co/yNBRTtXPYS)
-> — 川普等政要…直译推 (@zhiyitw33) [March 22, 2021](https://twitter.com/zhiyitw33/status/1374075103454007297?ref_src=twsrc%5Etfw)
+中国驻澳大利亚大使馆批评说，联合声明充分暴露了“澳方根深蒂固的意识形态偏见和抹黑中国的卑劣伎俩，这种企图完全是徒劳的”。
 
+在美国国务卿安东尼.布林肯（Antony Blinken）上周刚在阿拉斯加与中共国同行公开争吵后，就飞往布鲁塞尔参加北约峰会，并宣布了这一经协调的跨大西洋声明。
 
+他将寻求将欧洲大陆集结到对中共国更强硬的路线上，周一他对西方大国协调他们的突击制裁的能力表示赞赏。
 
+欧盟试图在与中共国的关系上走两边，在优先考虑经济关系的同时，也将这个崛起的大国称之为“系统性竞争对手”。
 
+尽管欧洲方面对中共虐待维吾尔人的言论越来越强硬，但许多人权对话是在秘密的情况下进行的，布鲁塞尔最近还与北京签署了一项新的投资协定。
 
-> 参议员瑞克·斯科特：
-> 今天对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 的制裁是正确的举动，但还需要采取更多行动来制止习近平总书记对维吾尔人正在进行的种族灭绝。
-> 
-> 美国必须努力制止这些罪行，并惩处那些继续施行这些罪行的人。
-> 【附CNBC报道：以侵犯维吾尔人权为由，拜登政府制裁两位中共国官员】 [https://t.co/zRiNlSopaR](https://t.co/zRiNlSopaR)
-> — 川普等政要…直译推 (@zhiyitw33) [March 22, 2021](https://twitter.com/zhiyitw33/status/1374117485012688896?ref_src=twsrc%5Etfw)
+但是，欧盟的语气在周一更加明确，外交政策负责人博雷尔（Josep Borrell）告诉记者，中国的制裁“令人遗憾和不可接受”。
 
+“中国没有改变政策，没有解决我们的合理关切，而是选择视而不见，”博雷尔（Borrell）先生说：“欧盟捍卫人权，对严重侵犯和虐待行为作出反应的决心不会改变，无论它们在何处发生。”
 
+布林肯先生在一份声明中说，联合制裁“表明我们一直致力于通过多边努力促进对人权的尊重，并揭露那些对暴行负有责任的（中国）政府和共产党。”
 
-### 期待美英联手
+他们（中共）开始回应这些指控，即中共国当局在新疆的劳教营中关押了超过100万维吾尔人和其他穆斯林少数民族。还存在强奸，强迫绝育以及儿童与家人分离的指控。
 
-3月23日蓬佩奥国务卿发推一篇《真正清晰防卫》的文章《英国对俄罗斯和中国核侵略的应对措施》，推文称“正如这篇伟大的文章所指出的那样，英国和美国都必须准备捍卫自由。很高兴英国的审查证实了它可以接受挑战。”
+英国外交大臣多米尼克·拉布（Dominic Raab）说：“在新疆广泛侵犯人权的证据不容忽视—包括大规模拘留和监视，酷刑和强迫绝育的报道。”
 
+“我们正与国际伙伴合作，实施有针对性的制裁，以追究责任人的责任。”
 
+中共国发表声明予以回击，称欧盟应“正视其错误的严重性并予以纠正”。
 
-> As noted in this great piece, both UK and America must be prepared to defend liberty. Glad UK review confirmed that it is up for the challenge.[https://t.co/HQWY89vLa6](https://t.co/HQWY89vLa6)
-> — Mike Pompeo (@mikepompeo) [March 23, 2021](https://twitter.com/mikepompeo/status/1374330585431339009?ref_src=twsrc%5Etfw)
+“‘欧盟’必须停止在人权问题上对其他国家说教，停止干涉其内政。欧盟必须停止虚伪的双重标准做法。”
 
+博雷尔先生回应说，布鲁塞尔希望北京“与欧盟就人权问题进行对话，而不是对抗”。
 
-[https://www.realcleardefense.com/articles/2021/03/22/the\_uks\_response\_to\_russian\_and\_chinese\_nuclear\_aggression\_769226.html](https://www.realcleardefense.com/articles/2021/03/22/the_uks_response_to_russian_and_chinese_nuclear_aggression_769226.html)
-### 传统价值观与共产主义思潮的斗争
+新的制裁针对的是新疆生产建设兵团公安局，该局负责管理该地区的安全和治安工作。新疆政界高官朱海仑、王君正、王明山、陈明国等也是被锁定，但新疆高官陈全国却没有。
 
-3月23日蓬佩奥先生的两则如下。
+中共国对欧盟“严重损害中国主权和利益、恶意散布谎言和虚假信息”的十人和四个实体进行制裁报复，包括德国和丹麦的两个智库，德国和瑞典的学者，以及德国、比利时、立陶宛和荷兰的议员。
 
-“消灭文化已经渗透到我们的学校，并威胁到数百万美国人在建国之初为之而战的言论自由。它在美国没有立足之地。”
+原文链接：
 
-“让生理男性参加女性体育比赛是不公平或平等的。句号。” （态度坚定地反对变性人参加体育竞赛。）
-![]()![](https://gnews.org/wp-content/uploads/2021/03/pompeo-0323.png)
-22日朱利安尼先生转推一则推文，推文来自他本人推荐的45任密苏里州州长、议员竞选人艾瑞克。推文称：
-
-“作为一名海豹突击队队员，我为这个国家而战，以确保我们的自由得到保护。现在，左派想把这些自由从你身边夺走。这就是为什么我在密苏里州竞选美国参议员的原因。我们必须为把美国从左派的疯狂中夺回来而战。”
-
-
-
-> As a Navy SEAL, I fought for this country to ensure our freedoms are protected. Now, the Left wants to take those freedoms away from you. 
-> 
-> That’s why I’m running for the US Senate in Missouri. We must fight to take America back from the lunacy of the left. [pic.twitter.com/cbfw4Q8aJ6](https://t.co/cbfw4Q8aJ6)
-> — Eric Greitens (@EricGreitens) [March 22, 2021](https://twitter.com/EricGreitens/status/1374128706768269316?ref_src=twsrc%5Etfw)
-
-
-
-### “厕所会谈”继续发酵
-
-朱利安尼先生23日就《纽约邮报》19日关于阿拉斯加美中“厕所会谈”的报道进行转推，称：“中（共）国在阿拉斯加峰会嘲笑美国。” 并引用会上杨洁篪的原话：
-
-“我们认为美国改变形象、停止在全世界输出自己声称的民主很重要。”
-
-
-
-> China mocks US at Alaska summit
-> 
-> “We believe that it is important for the United States to change its own image and to stop advancing its own democracy in the rest of the world.”[https://t.co/8GtgsdOxq6](https://t.co/8GtgsdOxq6)
-> — Rudy W. Giuliani (@RudyGiuliani) [March 23, 2021](https://twitter.com/RudyGiuliani/status/1374368365846872066?ref_src=twsrc%5Etfw)
-
-
-[https://nypost.com/2021/03/19/biden-proud-of-team-after-china-mocks-us-at-alaska-summit/](https://nypost.com/2021/03/19/biden-proud-of-team-after-china-mocks-us-at-alaska-summit/)
-《纽约邮报》这片文章援引C-Span视频，视频中拜登19日被问及对前日美中会晤的反应时称“对国务卿感到自豪。”文章引述了峰会上中方的讲话的关键内容，并称川普总统在大选前曾说，如果拜登获胜，美国将成为“中国拥有”。
-
-
-
-### 非法移民不能投票
-
-皮特纳瓦罗博士23日推文，强调他在班农疫情战斗室的讲话：
-
-“每一位在2022年竞选参众两院的候选人，无论他们是民主党还是共和党，都需要这样做：签署一份承诺书，声明任何在2021年1月20日之后非法越境的人，将永远没有机会获得公民身份，并被送回他们来自的地方。”
-
-
-
-> Every candidate running for House & Senate in 2022 whether they're D or Rs needs to do this: sign a pledge stating that ANYONE who crossed our border after Jan 20, 2021 ILLEGALLY will NEVER have a path to citizenship & be returned to where they came from.[https://t.co/hCJHxxsvPG](https://t.co/hCJHxxsvPG)
-> — Peter Navarro (@RealPNavarro) [March 23, 2021](https://twitter.com/RealPNavarro/status/1374416978388000789?ref_src=twsrc%5Etfw)
-
-
-
-
-
-### 现任国务卿今日主要推文
-
-“我们和我们的伙伴一起呼吁北京（中共国政府）立即释放两名被任意拘留的加拿大人Michael Spavor和Michael Kovrig。人不是讨价还价的筹码。”
-
-
-
-> We join our partners in calling on Beijing to immediately release the two arbitrarily detained Canadians, Michael Spavor and Michael Kovrig. Human beings are not bargaining chips. [https://t.co/e5WszeKKuS](https://t.co/e5WszeKKuS)
-> — Secretary Antony Blinken (@SecBlinken) [March 23, 2021](https://twitter.com/SecBlinken/status/1374350372911845376?ref_src=twsrc%5Etfw)
-
-
-
-“在我访问东京和首尔时，各方一致认为，美国、日本和大韩民国之间的有力合作对促进共同利益和价值观至关重要，我期待着在这个三边动力的基础上更进一步。”
-
-
-
-> On my visit to Tokyo and Seoul, all sides agreed robust cooperation between and among the United States, Japan, and the Republic of Korea is critical to promoting shared interests and values, and I look forward to building on this trilateral momentum.
-> — Secretary Antony Blinken (@SecBlinken) [March 22, 2021](https://twitter.com/SecBlinken/status/1374092629147848712?ref_src=twsrc%5Etfw)
-
-
-
-“很高兴与北大西洋公约组织秘书长 @JensStoltenberg见面。
-在今天晚些时候举行的北约外交部长会议之前，我们进行了建设性的讨论，讨论了我们如何加强跨大西洋联盟和更新我们的全球关系。我们就如何加强跨大西洋联盟和更新我们的全球关系进行了建设性的讨论。”
-
-
-
-> Great to meet with [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Secretary General [@JensStoltenberg](https://twitter.com/jensstoltenberg?ref_src=twsrc%5Etfw) in advance of the NATO Foreign Ministerial later today. We had a constructive discussion on how we can strengthen the Transatlantic Alliance and renew our global relationships. [pic.twitter.com/QkFZxoreHQ](https://t.co/QkFZxoreHQ)
-> — Secretary Antony Blinken (@SecBlinken) [March 23, 2021](https://twitter.com/SecBlinken/status/1374356507458945027?ref_src=twsrc%5Etfw)
-
-
-
-
-
-“很高兴今天在布鲁塞尔与意大利外长@luigidimaio会面，这也是本次北大西洋公约组织外交部长会议的一部分。在我们面对全球挑战时，意大利是美国的重要盟友和朋友。”
-
-
-
-> Very pleased to meet Italian Foreign Minister [@luigidimaio](https://twitter.com/luigidimaio?ref_src=twsrc%5Etfw) today in Brussels as part of the [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Foreign Ministerial. Italy is a key ally and friend to the United States as we confront global challenges. [pic.twitter.com/ewFumsiIsU](https://t.co/ewFumsiIsU)
-> — Secretary Antony Blinken (@SecBlinken) [March 23, 2021](https://twitter.com/SecBlinken/status/1374370348049793024?ref_src=twsrc%5Etfw)
-
-
-
-“北大西洋公约组织盟国和伙伴立场坚定，致力于通过 “坚决支持 “培训任务以实现阿富汗的长期安全与稳定。我们将确保阿富汗的土地不再被用来对美国或其盟友发动攻击。”
-
-“正如在报告中指出的那样，我们将确保阿富汗的土地永远不会被用来对美国或其盟友发动攻击。
-“在北大西洋公约组织国防部长会议上，美国和我们的北约盟国和伙伴正在推动负责任地结束阿富汗战争。作为盟国，我们必须保持团结：我们一起进入，我们将一起调整，当时机成熟时，我们将一起离开。”
-
-
-
-> .[@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Allies and partners remain firmly committed to Afghanistan’s long-term security and stability through the Resolute Support training mission. We will ensure that Afghan soil is never again used to launch an attack on America or her allies. [pic.twitter.com/gSBwpmAyaC](https://t.co/gSBwpmAyaC)
-> — Secretary Antony Blinken (@SecBlinken) [March 23, 2021](https://twitter.com/SecBlinken/status/1374377898480521219?ref_src=twsrc%5Etfw)
-
-
-
-和过去一样，北约正在适应战略环境的变化。我支持@延斯托尔滕贝格提出的#NATO2030倡议。我们必须应对联盟面临的系统性威胁和挑战，包括气候变化和咄咄逼人的强硬对手和竞争者。
-
-
-
-> As in the past, [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) is adapting to changes in the strategic environment. I support [@jensstoltenberg](https://twitter.com/jensstoltenberg?ref_src=twsrc%5Etfw)’s [#NATO2030](https://twitter.com/hashtag/NATO2030?src=hash&amp;ref_src=twsrc%5Etfw) initiative. We must address systemic threats and challenges to the Alliance, including climate change and aggressive, assertive adversaries and competitors. [pic.twitter.com/Rw1GTFbRvE](https://t.co/Rw1GTFbRvE)
-> — Secretary Antony Blinken (@SecBlinken) [March 23, 2021](https://twitter.com/SecBlinken/status/1374403003743006720?ref_src=twsrc%5Etfw)
-
-
-
-### 反对众议员的社会主义者偷盗
-
-众议员布鲁克斯推文：“众议院社会主义者正积极试图在选举后140天，从共和党获胜者手中抢走爱荷华州的第二国会席位。我和几十位同事一起表达了对佩洛西议长公然偷选的反对。”
-
-
-
-> House Socialists are actively trying to steal Iowa's 2nd Congressional seat away from the Republican winner 140 days after the election. I joined dozens of colleagues in expressing our opposition to [@SpeakerPelosi](https://twitter.com/SpeakerPelosi?ref_src=twsrc%5Etfw)’s blatant election theft. [pic.twitter.com/QjsID0Eqtj](https://t.co/QjsID0Eqtj)
-> — Mo Brooks (@RepMoBrooks) [March 23, 2021](https://twitter.com/RepMoBrooks/status/1374422427116085250?ref_src=twsrc%5Etfw)
-
-
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
-
-**欢迎关注和支持康州盘古农场推特公众号及时掌握****资讯**
-
-### [盘古七星舰队PanGu Heptastar Fleet](https://twitter.com/PanguF)
+[Sharp escalation as China and the West trade blows over Uighurs](https://www.afr.com/world/asia/sharp-escalation-as-china-and-the-west-trade-sanctions-over-uighurs-20210323-p57d40)
 
 0
