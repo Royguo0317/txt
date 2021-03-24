@@ -1,46 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中美阿拉斯加会谈是披着羊皮的狼和披着羊皮的狼演的一出戏
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1011178/)
+## 我们是第一个喊出反对歧视中国人、把共产党和中国人分开的人
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1011345/)
 
-简述：在2021年3月21日的盖特中，郭先生第一次披露了中美阿拉斯加会谈的本质 —— 那是一出戏！中共的王毅和杨洁篪是披着狼皮的羊，而美方是披着羊皮的狼，他们之所以这样演是因为，中共可以继续骗14亿老百姓，而美方也可以满足私利，而最后买单的则是中国14亿草根老百姓，不信就等着瞧。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210321-getter1-part2.srt.txt)
+简述：在2021年3月21日的盖特视频中，郭先生对美国最近的反种族歧视和发歧视华人运动发表评论，指出在西方第一个喊出把共产党和中国人分开和保护华人的是新中国联邦。无数的战友还有美国朋友为此正在不懈地努力，他们包括：班农先生、朱利安尼市长、前国务卿蓬佩奥和 Miles Yu 先生。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210321-getter1-part3.srt-1.txt)
+**我们是第一个喊出反对歧视中国人、把共产党和中国人分开的人**
 
-**中美阿拉斯加会谈是披着羊皮的狼和披着羊皮的狼演的一出戏**
+**Anti-Discrimination Against Chinese Is First Voiced by the NFSC**
 
-**The US-China Alaska Meeting Is a Show**
+像这些天在美国在全世界，现在开始有人想起来了，反对种族歧视，反对歧视中国人，反对仇恨。扯蛋呐。我们两三年了，我们喊两三年了。没有新中国联邦，没有新中国联邦为中国人，把共产党和中国人分开，没有在西方说绝对是共产党病毒，不是中国病毒，没有我们一再地说，“所有的共产党绑架了中国人民，所有共产党不等于中国人民”，要不是早这几年说，不是种族仇恨，一定会是像印尼亚排华事件一样，是种族大屠杀，甚至种族大动乱。如果但凡有点良知有点心的人去想一想，他就是这个结果。
 
-咱这个先不多说，咱再说说更夸张的。这几天都在说的是，所有的阿拉斯加，中美两国会谈，只有咱们一家说这是演戏，没有任何人知道演戏，因为咱知道情报，那不是瞎蒙的，你老蒙的那是永远不可能100%准确的，是吧？只有咱一家说出这是演戏。这几天很多有良知的所谓的媒体人，还有政客们跟七哥开会都快疯了，[问]“为什么 Miles 你能知道这是在演戏呢？”很简单兄弟姐妹们，我说看这个演戏，我给他们形容了一个，我说：“中共国假擀面杖子经济，假的吹牛，我说它就像一个什么？”
+Now in the U.S. and in the world, there are people who suddenly remembered the issue of anti-racial discrimination, anti-discrimination against Chinese, and anti-hatred. All bullshit. We have being voicing this for two to three years! Without the NFSC’s years of effort of separating the CCP from Chinese people, telling the West that it’s the CCP virus rather than China virus, repeatedly saying that the CCP has kidnapped Chinese people, and that the CCP cannot represent Chinese people, we would not have just racial hatred now, we would have something like the discrimination of Chinese decedents in Indonesia, which was basically a genocide, or even a racial turmoil. Anyone who has some conscience and think a little about this would reach this conclusion.
 
-Let’s just move on and talk about something more absurd. All that people have been talking about these days was the Alaska meeting between the US and China. We are the only one saying that it was a show. No one else knew about this. It’s because we have the intelligence, so we are not taking a shot in the dark. If you guess blindly, you will never be 100% correct, right? We are the only media who said it was a show. In these days, many so-called media professionals with conscience along with politicians have had meetings with me like crazy, asking “How do you know it was a show, Miles?” It is very simple, brothers and sisters. I said, “Look, this is a show.” Then I made a metaphor, “What do the ‘rolling pin’ (fake) economy of the CCP and their boastings look like?”
+新中国联邦和爆料革命我们每个人，我们的《路德访谈》，我们的博士军团，我们无数个战友们，在全世界各地的上街游行呼吁，和G-News上写了这么多文章的，我们的战友和义工们，还有我们现在秘密翻译组，以及所有即时翻译西方和东方的即时新闻的这些义工战友们，做出了巨大的贡献。让东西方逐渐明白中共不代表中国人，是共产党病毒，不是中国人想要的，中国人也是受害者。我们和西方的所有的战友们，班农、朱利安尼、蓬佩奥、 Miles Yu 等等等，告诉这不是中国人干的。这个功劳，这个给中国人带来的利益是用金钱不能衡量的。
 
-我说：你去想想中共国的经济、军事，所有的实力跟美国比，它真的就是一个羊，这没办法。那么美国在世界上军事、政治、经济、技术、影响力，它绝对是个狼。咱用这这两个动物来讲。那么中共国今天为啥敢这么嚣张？中共敢这么嚣张，因为它手里边它绑架到14亿中国人民，还有一个它在美国有蓝金黄，它就是14亿奴隶和蓝金黄手段，所笼络的资源，不就这个吗？是吧？兄弟姐妹们，还有啥可说的，不就这两招儿吗？
+It’s everyone in the NFSC and the WM, our Lude Media, our doctor team, as well as our countless fellow fighters who protested in the street all over the world, the many articles on G-News, the enormous contribution of our fellow fighter volunteers, including the G-Translators, and all the volunteers who translate real-time news in the West and East, that made the West and East gradually understand that the CCP cannot represent Chinese people, the CCP virus is not what the Chinese people wanted and Chinese people themselves are also victims. We together with all the Western fellow fighters, such as Bannon, Giuliani, Pompeo, Miles Yu, and many more told the world that the virus was not made by Chinese people. This contribution and the benefit brought to Chinese people cannot be measured by money.
 
-I said, think about the economic and military strength of the CCP, when compared to the US, it is like a sheep, with no doubt. Considering the strength and influence of military, politics, economy, and technology, the US is absolutely a wolf. Let’s use these two animals to tell the story. Then, why dare the CCP to be so arrogant? It is because the CCP has kidnapped 1.4 billion Chinese people. Another reason is the BGY plot in the US, using all the resources netted by abusing the 1.4 billion slaves. Right? Brothers and sisters, what else can I say? The CCP only has only these two tricks, right?
+这是为什么昨天有一个人说：“我要投资你巨额资金，就是因为我的孩子在西方得到了安全，新中国联邦把中国人和共产党分开。”有良知的人是绝大多数的。所以兄弟姐妹们永远不要忘了，“把共产党和中国人分开、干掉共产党”是我们唯一生存下去的希望和手段，其它都是可以往后搁。不要因为一粒灰尘让你失去了未来，所有的事都是小事，我们的未来就是灭共，灭掉共产党一切都好讲。
 
-我说那为什么中美阿拉斯加峰会成这样的滑稽的场面？很多欧美人问我：你怎么看这件事情。我说：非常简单，看中共和美国这两个峰会，我有两个比喻。中共所谓的杨娘娘，还有王公公就是一个披着羊皮的羊，披着羊皮的羊它还是羊，咋呼得很厉害，左顾右盼、前看后看，在那又蹬腿又挠地的，“啪啪啪”它把它自己当成了狼了。
-
-I then asked, “Why did the US-China Alaska meeting have such an absurd scene?” Many people from Europe and America asked me, “What’s your take on this?” I said, “It was very simple. I can use two metaphors to describe the meetings between the CCP and the US. The so-called Empress Yang (Jiechi Yang) and Eunuch Wang (Yi Wang) were sheep covered with the skin of a wolf. Sheep in wolf’s clothing are still sheep no matter how much fuss they make, how they check around, look back and forth, kick and scratch the ground, or how much they believe they are a wolf.”
-
-我说美国那是什么呢？是披着羊皮的狼，是披着羊皮的狼，完了。他为啥？它真把自己当羊了。为什么美国这个狼要把自己披着羊皮呢？因为美国有弱点，美国不敢当狼，因为这个羊跟它之间有默契，要让它当一次羊，因为回到中共国去好骗那14亿的奴隶。咱俩演戏，然后我这个羊，穿着羊皮的咋呼的羊，要开始给你多送点羊过来，或者在美国弄点狼肉吃吃。就这么简单。
-
-I continued, “Then what was America like? It was a wolf in sheep’s clothing. Period. Why? It indeed treated itself as a sheep. Why was America the wolf willing to put on sheep’s clothing? It’s because others got goods on America, so that it didn’t have the courage to be a wolf. It’s because the sheep had a tacit agreement with it and asked it to pretend to be a sheep for once, in order to cheat the 1.4 billion slaves in Communist China. So, if you America agreed to put on a show with me, I, the noisy sheep in wolf’s clothing would send more sheep to you or even some other wolf’s meat for you America to eat.”
-
-我说：最终，一定要记住，美国狼还会回到本质，美国的狼还会是披着狼皮的狼，中共国还是披着羊皮的羊，或者被扒了皮的羊，就这么简单。他们都爱笑死了。
-
-“Simple as this,” I said, “ultimately, please remember, the America wolf will go back to its nature. The American wolf will turn back to a wolf in wolf’s skin, and the CCP sheep will still be a sheep in sheep’s skin or naked with its skin peeled. That’s it.” They all laughed.
-
-不管你咋咋呼，你都是披着羊皮的羊。所以说，我说：他越咋呼越好，他对香港对台湾以及到非洲、中东，玩的这一切手段都是政治手段，一切都是为内政，一切都是内政。好好看看第二次世界大战，希特勒，当时的法国、英国，包括日本，很多重大的影响国家命运的决策，当时都和内政，内部政治有绝对的关系，这全世界的政治都是一家的，都是流氓。但是中共国不是流氓，它是真正的黑社会，它是绑架14亿中国人民的，它是以14亿人民作为筹码跟全世界讲数的。美国人愿意，知道自己是狼，还披着羊皮，就是更为了获取个人获得更多的羊肉，为个人获得更多的羊肉，和未来吃更多的羊崽子，甚至吃个羊胎盘啥的，是吧？就这么简单。
-
-No matter how loud you voiced, you are still a sheep in sheep’s skin. So, I said, “It is better if they keep making more fuss. All means the CCP has used toward Hong Kong, Taiwan, Africa, and the Middle East are political tactics for its domestic politics. Please take a good look at WWII. Many critical decisions that influenced a nation’s fate made by Hitler, France, the UK, or Japan at that time were absolutely connected with their domestic politics. All the world’s politicians belong to the same family – they are all rogues. Yet, the CCP is not a rogue, rather, it is a true gangsterdom. It has kidnapped 1.4 billion Chinese and used the 1.4 billion Chinese as leverage to bargain with the world. The Americans were willing to put on sheep’s clothing, even though they knew they were wolves, because they wanted to get more sheep meat for their personal interest and get more lambs for the future, or even get some sheep placentas to eat, right? Simple as this.”
-
-但是美国这次是被羞辱的，中共这次是咋咋呼呼的解决了内部的上海邦和习大神的问题，更重要的事情最后是剪韭菜，最后买单的是咱中国老百姓。两边，不管是狼披羊皮，还是羊披羊皮，但最后买单的就咱中国老百姓，草根。就这么简单，信不信？不信拉倒。
-
-America was humiliated this time, and the noisy CCP has solved its internal conflict between the Shanghai Gang and God Xi. More importantly, the CCP could reach its ultimate goal of harvesting the chives (referring to robbing the ordinary Chinese) and having the ordinary Chinese to pay the bills in the end. No matter to the wolf in sheep’s clothing or the sheep in sheep’s skins, in the end, it is the ordinary Chinese who will pay for the bills, the grassroots. Simple as this. Do you believe me? It doesn’t matter if you don’t.
+This is why someone told me yesterday, “I want to invest a huge amount of money in you because my kids have safety in the West due to the NFSC’s effort in separating Chinese from the CCP.” The majority of people have conscience. So, brothers and sisters, please always remember that separating the CCP from Chinese and taking down the CCP are the only hopes and means for us to survive, and everything else is less important than these things. Don’t let your vision of the future be blurred by just one tiny piece of dust. Everything is trivial compared with taking down the CCP, which bears our future. Once the CCP is taken down, everything will be fine.
 
 （以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60575c13d1608d609ea69e30](https://gtv.org/getter/60575c13d1608d609ea69e30)  (1:59-2:54, 3:07-7:21)
+视频来源：[https://gtv.org/getter/60575c13d1608d609ea69e30](https://gtv.org/getter/60575c13d1608d609ea69e30)  (7:21-9:36)
 鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/998813/](https://www.gnews.org/zh-hans/998813/)
 
 * * *
@@ -52,4 +35,4 @@ GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0b
 Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
 Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-0
++1

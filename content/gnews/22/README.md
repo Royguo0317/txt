@@ -1,43 +1,82 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我们新的气候政策可能导致增加对中共国的依赖
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1011574/)
+## 视频：种族主义是种族主义者的问题，也是产生种族主义的社会问题
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1011799/)
 
-翻译：康州盘古农场 – Raul
-校对：康州盘古农场 – TrueSky
-编辑：康州盘古农场 – 轰炸机
+内容：
 
-据《The Hill》作者：Nadia Schadlow，2021年 3月19日报道：
+I am a descendant of slaves.
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-262.jpg)
+我是一个奴隶的后裔
 
-意见贡献者表达的观点是他们自己的，并非《The Hill》的观点。
+My great-grandmother, Mary Thomas, born in 1865,
 
-拜登政府的关键气候目标，比如减少能源和交通部门的温室气体排放，可能会被中共国控制。这是因为离开化石燃料依赖于锂离子电池。由于中共国在这一行占据主导地位，拜登政府将需要用战略来减轻这种影响。尽管气候特使约翰克里希望把气候问题作为一个“独立的问题”来处理，“事实是，地缘政治将影响环境选择，他将无法把国内的气候政策与中共国分开。”
+我的曾祖母，玛丽·托马斯，生于1865年
 
-能源存储是低碳经济的粘合剂，它使风能和太阳能等间隙性能源得到更多的利用。世界经济论坛认为，电池是实现《巴黎气候协定》将气温上升限制在2摄氏度目标的关键因素。中共国当然主导了电池供应链的四个阶段，这就是开采，加工，组装和回收。
+Was the child of a slave – this is just three generations back from me.
 
-首先，中共国现在已经巩固了对锂，石墨，钴和镍等关键矿物的控制。中共国企业占先进电池原材料全球总产量的80%左右。利用与南美和澳大利亚人公司达成的有利协议，中共国公司控制了全球大约一半的锂产量。
+是一名儿童奴隶 – 到我这儿是三代人
 
-中共国也是全球最大的天然石墨供应国，近年来提供了60%以上的天然石墨。世界上超过一半的钴储量在刚果民主共和国，而中共国控制该国一半的生产。然而镍没有那么紧要， 但中共国正在收紧印度尼西亚镍矿产品出口，印尼占镍世界镍生产的30%。
+I grew up in the segregated South, I was bused to a segregated school
 
-其次，中共国拥有世界上最大的矿产加工工业，从任何环境角度来看，这个加工都是不环保的。《基准矿产情报》（Benchmark Mineral Intelligentce）的数据，中共国控制着60%的锂，65%的镍和80%以上的钴的加工。中共国也提纯100%的球形石墨。
+我在种族隔离的南方长大，我被送往一所隔离的学校上学
 
-第三，中共国在将加工过的矿物转化成电池组的组装超级工厂方面处于领先地位。在世界范围里，180多家千兆工厂中有130多家计划或者运作的公司都在或将会在中国。只有10家将在美国，通用汽车表示，它将在美国建立第二家电池工厂，朝着正确的方向迈出了一步。
+And on weekends the Ku Klux Klan burned crosses on lawns in our neighborhood.
 
-第四，中共国在回收电池方面占据主导地位，因为中共国建立了回收消费性电子产品中的锂离子电池的关键基础设施。世界上大约70%的锂离子电池在中共国和韩国被回收。在不到10年的时间里，1100万吨锂离子电池将达到其使用寿命。
+周末，3K党(Ku Klux Klan)在我们的邻里附近的草坪上烧了十字架
 
-事实上，中共国在整个供应链上占据主导地位并不令人意外。中共国在识别和控制一些基础技术领域和平台方面一直很强大。比如金融技术或者宽带蜂窝网络，高级能源技术将是关键平台。中共国制定了一项全球计划，将“新能源”作为一个关键的重要领域，而且不会轻易的看到自己的技术优势消失。认为中共国不会利用这些优势也是不符合历史的。
+When I was in high school, I was asked by a little girl for whom I babysat,
 
-中共国去年颁布了一项法律，允许共产党控制属于国家安全范畴的产品出口。中共国威胁要切断对美国稀土的加工供应，并继续通过限制进口来惩罚澳大利亚，除非堪培拉服从一些政治要求。
+当我上高中的时候，有一个小女孩问我，我是谁的保姆
 
-正如拜登总统自己所说的，要把美国定位为电动汽车制造的“全球领导者”，不能依赖我们最坚定的竞争对手。在共产党看来，美国和中共国正在进行一场电池竞赛。即使全球碳排放很低，美国的努力也会受到竞争。美国应该把清洁能源技术作为一个有竞争力的空间，以避免对中共国的严重依赖。
+If I was an n-word, because her dad had used that word for me.
 
-在开始对供应链进行的评估的同时，拜登政府应该采纳它的前任政府的政策，那就是去鉴别政府投资的优先度。政府面临艰难的选择，为了增加国内工业，他应该解决处理设施的环保挑战，权衡利弊将是必要的。拜登可能在实现他的目标上取得进展，但将会有一点气候现实主义，并承诺采取竞争性政策来实现我们在电池技术方面的独立性。
+如果我是黑奴，因为她的父亲曾用过这个词形容我
 
-Nadia Schadlow， 哈德逊研究所的高级顾问，斯坦福大虚胡夫研究所访问研究员。她曾在上界政府担任国家战略副安全顾问。
+I know the ugly face of racism
 
-原文链接： [https://thehill.com/opinion/international/544070-how-our-new-climate-policies-could-lead-to-increased-reliance-on-china?rl=1](https://thehill.com/opinion/international/544070-how-our-new-climate-policies-could-lead-to-increased-reliance-on-china?rl=1)
+我知道种族主义的丑陋嘴脸
+
+I lived racism. I have experienced racism.  And I survived racism.
+
+我在种族主义之中生活过。 我经历过种族主义。而且我在种族主义中幸存下来
+
+And through this process, I learned a simple truth
+
+通过这个过程，我学到了一个简单的道理
+
+Racism is not the problem of the person who experiences it.
+
+种族主义不是经历它的人的问题
+
+Those of us who experience racism cannot and should not, internalize it.
+
+我们当中那些经历种族主义的人们不能也不应将其内部化
+
+Despite the impact it can have on our everyday lives.
+
+尽管它会影响我们的日常生活
+
+We must face it down every time, no matter whom it’s directed towards.
+
+无论它是针对谁的，我们每次都必须面对它
+
+Racism is the problem of the racist, and it is the problem of the society that produces the racist-
+
+种族主义是种族主义者的问题，也是产生种族主义的社会问题
+
+and in today’s world, that is every society.
+
+在当今世界，那是每个社会的问题
+
+———————————————–
+
+英听校：    康州盘古农场 – Layka
+翻译：       康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发文：康州盘古农场-轰炸机
 
 0
