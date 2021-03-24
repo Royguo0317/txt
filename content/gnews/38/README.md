@@ -1,91 +1,133 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共和党参议员里克·斯科特（Rick Scott）呼吁冬季奥运会赞助商，要求将2022年冬季奥运会迁出中国
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1012896/)
+## 美国政要等每日重要信息0324.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1012928/)
 
-翻译：康州盘古农场 — Layka
-校对：康州盘古农场 — Mike Li
-编辑：康州盘古农场 — 轰炸机
+**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
 
-据福克斯新闻布鲁克·辛格曼(Brooke Singman) 2021年3月23日报道：
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0324.jpeg)图片来源：康州盘古农场 霹雳年
+### 国务卿访欧
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-272.jpg)
+3月24日美国现任国务卿布林肯推文：“今天美国政府官员在伊朗、俄罗斯、中国和其他紧迫问题上与法国外长、德国外交部长、和英国外长进行了良好会晤。跨大西洋关系是解决全球挑战的核心。”
 
-共和党参议员推动决议案将2022年冬季奥运会从北京移开
 
-中国抨击抵制2022年冬季冬季奥运会的呼吁； 格雷格·帕尔科特（Greg Palkot）报告。
 
-独家：共和党参议员里克·斯科特（Rick Scott）敦促冬季奥运会赞助商要求在侵犯人权和涉嫌对中共国维吾尔族穆斯林和少数民族实行种族灭绝的情况下，将2022年冬季冬季奥运会从北京迁出。
+> Good meeting with French Foreign Minister [@JY\_LeDrian](https://twitter.com/JY_LeDrian?ref_src=twsrc%5Etfw), German Foreign Minister [@HeikoMaas](https://twitter.com/HeikoMaas?ref_src=twsrc%5Etfw), and UK Foreign Secretary [@DominicRaab](https://twitter.com/DominicRaab?ref_src=twsrc%5Etfw) today on Iran, Russia, China, and other pressing issues. The Transatlantic relationship is central to solving global challenges. [pic.twitter.com/2UiH3YYVMh](https://t.co/2UiH3YYVMh)
+> — Secretary Antony Blinken (@SecBlinken) [March 24, 2021](https://twitter.com/SecBlinken/status/1374513793296830464?ref_src=twsrc%5Etfw)
 
-佛罗里达州的参议员斯科特写了一封由福克斯新闻（Fox News）独家获得的寄给国际奥委会赞助商的信，包括Airbnb、阿里巴巴集团、安联、Atos、普利司通、可口可乐、DOW、通用电气、英特尔、欧米茄、松下、宝洁、三星、丰田和Visa。
 
-斯科特在星期二写给这些公司的信中说：“作为国际奥委会的赞助商，您有独特的条件参加这场斗争，并要求国际奥委会站在人权立场上，将运动会从共产主义的中国撤出，否则将失去您的赞助和支持。”
 
-由150个人权运动家组成的联盟也向赞助商发出了一封公开信，要求他们放弃对2022年冬季奥运会的支持。
 
-“我相信你同意习近平总书记所犯的罪行是可怕的。我们不能给一个如此明显地侵犯人权的国家一个通过举办冬季奥运会来粉饰其罪行的平台。”斯科特写道。“因此，我要你捍卫人权和自由，并利用您的巨大影响力作为2022年冬季奥运会的赞助商，公开敦促国际奥委会将冬季奥运会推向重视人的尊严和自由的国家。”
 
-斯科特补充说，如果国际奥委会“继续拒绝，而您继续担任赞助商，那么您将表示您对实施种族灭绝的政权表示支持。”
+### 保卫宪法拥枪权
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2-106.jpg)（美联社照片/ Ashwini Bhatia，文件）（美联社照片/ Ashwini Bhatia，文件）
+参议员莫-布鲁克斯23日推文：“乔-拜登、南希-佩洛西和查克-舒默试图破坏我们的第二修正案的持枪权。拜登政府和社会主义民主党的目标是把守法公民变成罪犯。我将与所有社会主义者削弱我们第二修正案权利的努力作斗争。”
 
-在2021年2月3日的这张档案照片中，流亡的西藏人以奥运五环作为道具，他们在印度达摩萨拉举行街头抗议2022年冬季冬季奥运会的抗议活动。 某种抵制活动几乎肯定会影响明年的北京冬季冬季奥运会。
 
-斯科特在周二接受福克斯新闻独家专访时说，他相信赞助商将加入将冬季奥运会迁出北京的呼吁。
 
-斯科特对福克斯新闻说：“我不认为任何人想与对自己的人民实行种族灭绝的政府有联系。”他称对维吾尔人的虐待令人“恶心的”。
+> Joe Biden, Nancy Pelosi, and Chuck Schumer seek to gut our Second Amendment Right to Bear Arms. The goal of the Biden Admin. and Socialist Dems is to make criminals out of law abiding citizens. I will fight all Socialist efforts to weaken our Second Amendment rights. [pic.twitter.com/aOQ1zRQ1t4](https://t.co/aOQ1zRQ1t4)
+> — Mo Brooks (@RepMoBrooks) [March 23, 2021](https://twitter.com/RepMoBrooks/status/1374497184197062656?ref_src=twsrc%5Etfw)
 
-他说：“我希望赞助商们看到与像这样卑鄙的政府结盟并不符合他们的最大利益。”
 
-斯科特说，如果这些赞助公司与中国共产党合作，“他们就是对种族灭绝视而不见”。
 
-斯科特一直在领导将冬季奥运会迁出北京的努力，但坚持认为美国不应抵制参赛，正如一些共和党议员所要求的那样。
+### 抵制2022北京冬奥
 
-他说：“抵制参赛将伤害我们的运动员。” “我们需要转移这些比赛。期望我们的运动员抵制他们已经计划了一生的事情是不公平的。”
+23日参议员斯科特推文：“不能给习总书记一个粉饰罪行的平台。今天，我给奥委会发信，呼吁他们站在自由和人权的立场上，和我一起呼吁把2022年奥运会搬出共产党统治的中国。”
 
-上个月，斯科特请求与拜登总统举行会谈，讨论转移奥林匹克运动会，但告诉福克斯新闻，他尚未收到白宫的任何回应。
 
-斯科特告诉福克斯新闻：“白宫一直无所作为。” “我要求开会与拜登总统讨论此事，但他没有回应。”
 
-拜登政府官员上周与中国代表团在阿拉斯加进行了紧张的双边会谈，但是斯科特说，他“没有听到”有关奥运问题的报道，这说明缺乏谈论关于这一话题的对话“非常令人失望”。
+> General Secretary Xi can’t be given a platform to whitewash his crimes. Today, I sent a letter to [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw) sponsors calling on them to stand up for freedom and human rights and join my call to move the 2022 Olympic Games out of Communist China: [https://t.co/I0cCubwmv8](https://t.co/I0cCubwmv8)
+> — Rick Scott (@SenRickScott) [March 23, 2021](https://twitter.com/SenRickScott/status/1374443469389791234?ref_src=twsrc%5Etfw)
 
-斯科特说：“从历史上看，民主党人一直对中共国持软弱态度，拜登一直对中国持软弱态度，我不认为美国应对中国持软弱态度。” “美国是希望、自由、自由的灯塔，我们需要竭尽全力反对种族灭绝。”
 
-不过，拜登政府本周对中共的政府官员实施了针对新疆维吾尔自治区少数民族的“严重侵犯人权”的新制裁，并警告说，如果中共国的“暴行”继续下去，将继续面临严重后果。
 
-拜登政府周一采取的行动是对欧盟、英国和加拿大采取的行动的补充，后者对这些个人和其他人实施了制裁。
+### 内心有国家和军人吗？
 
-同时，白宫表示，在对维吾尔族上，本届政府将继续“对中共国的危害人类罪和种族灭绝罪深表关注”。
+3月24日，福克斯新闻称 “副总统哈里斯在空军二号上屡次不敬军礼，打破先例”
 
-白宫新闻秘书詹·普萨基（Jen Psaki）说：“这是一个问题，这是总统在几周前与中共国国家主席的谈话中提出的一个问题。”
 
-据高级行政官员说，自上个月上任以来，拜登首次与中国国家主席习近平进行了会谈，拜登概述了他对中国“侵略活动和虐待”的“核心关切”。
 
-拜登政府的一些官员，包括国务卿安东尼·布林肯（Antony Blinken）和国家安全顾问杰克·沙利文（Jake Sullivan），已经表明中共国对美国构成了最大的国家安全威胁之一。川普政府的官员们也警告过中共国对美国的国家安全的威胁-许多人都认为这是一个两党问题。
+> VP Harris repeatedly fails to salute military on Air Force Two, breaking with precedent [https://t.co/ToAd7T6din](https://t.co/ToAd7T6din)
+> — Fox News (@FoxNews) [March 24, 2021](https://twitter.com/FoxNews/status/1374514885279707144?ref_src=twsrc%5Etfw)
 
-当被问及美国是否会进一步制裁时，普萨基说，制裁“旨在阻止行为”，但不会在政府初期就“裁定或排除任何行动”。
 
-普萨基说：“显然，我可以向您保证，我们将与全球盟友和合作伙伴密切协调，评估下一步应该采取什么适当措施。” 她补充说，与过去的政府相比，本届政府“中共肯定是注意到我们正在与盟国和伙伴更加紧密地合作”。
 
-白宫表示，拜登政府准备与中共国进行“坦率对话”，并且正在从“实力”的立场进行谈判。
+### 反抗拜登涨税
 
-但是斯科特批评新政府对中共国的做法。
+23日Just the News 推文：“就业创造者网说‘天呐，绝不！’‘这不在我们的监督之下！’。对小企业加税的想法说不！”
 
-斯科特说：“他们什么也没做。” “拜登政府是一群和事老。”
+小议：拜登欲对美国人取消拥枪权，对小企业主这样的中产阶层加征税收，都是在一步步削弱有经济基础、又有传统道德观和正义良知的人，本质上是在配合中共的3F计划。
 
-与此同时，斯科特表示，他打算与白宫和国际奥委会赞助商进行跟进，并继续与世界各地的领导人就转移冬季奥运会进行对话。
 
-斯科特告诉福克斯新闻，他曾写信给英国首相鲍里斯·约翰逊（Boris Johnson），并在加拿大议会加入电话会议后，他充满了希望。
 
-他说：“我希望拜登政府对此有所作为。” “对于这些赞助公司来说，它们是美国和国际公司。我认为，这些公司最终会说冬季奥运会必须被移走，因为这将影响他们的品牌。”
+> ‘HELL NO! NOT ON OUR WATCH!’: Job Creators Network says no to the idea of small business tax hikes [#JustTheNews](https://twitter.com/hashtag/JustTheNews?src=hash&amp;ref_src=twsrc%5Etfw) [@alexnitzberg](https://twitter.com/alexnitzberg?ref_src=twsrc%5Etfw) [@JobCreatorsUSA](https://twitter.com/JobCreatorsUSA?ref_src=twsrc%5Etfw) [https://t.co/32uFiM3yQu](https://t.co/32uFiM3yQu)
+> — Just the News (@JustTheNews) [March 24, 2021](https://twitter.com/JustTheNews/status/1374526266964070400?ref_src=twsrc%5Etfw)
 
-斯科特在谈到冬季奥运会最终被移走时说：“这将会发生。” “这不是一条直接的道路，但这是我每天要做的事情的一部分，因为我相信，在它正在进行种族灭绝时，世界不应该进入共产主义中国。”
 
-他补充说：“我相信会有世界领导人、政治和商业的领导人说我们不能这样做 —— 这真令人恶心。”
 
-美联社对此报告做出了贡献。
+### 不明飞行物（UFO）
 
-原文链接：[https://www.foxnews.com/politics/rick-scott-olympics-sponsors-china-genocide](https://www.foxnews.com/politics/rick-scott-olympics-sponsors-china-genocide)
+前五角大楼项目负责人称：“UFO报告将是令人信服的。”
+
+
+
+> Former Pentagon program chief: UFO report will be compelling [https://t.co/ojrjYQacTj](https://t.co/ojrjYQacTj)
+> — Newsmax (@newsmax) [March 24, 2021](https://twitter.com/newsmax/status/1374588039947751425?ref_src=twsrc%5Etfw)
+
+
+
+### 军事
+
+“美国军队正处于过去40年中最重要的转型之中。”
+
+
+
+> The [@USArmy](https://twitter.com/USArmy?ref_src=twsrc%5Etfw) is in the middle of the most significant transformation in the past 40 years. 
+> 
+> Read more: [https://t.co/YXxEKVZb0w](https://t.co/YXxEKVZb0w)[#People](https://twitter.com/hashtag/People?src=hash&amp;ref_src=twsrc%5Etfw) | [#Modernization](https://twitter.com/hashtag/Modernization?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YYrYl8kqUv](https://t.co/YYrYl8kqUv)
+> — U.S. Army Reserve (@USArmyReserve) [March 24, 2021](https://twitter.com/USArmyReserve/status/1374692481082793984?ref_src=twsrc%5Etfw)
+
+
+
+“‘热带愤怒’给飞行员和士兵提供了展示他们 “立即准备 “能力的机会。”
+
+
+
+> Tropic Fury gave [#Airmen](https://twitter.com/hashtag/Airmen?src=hash&amp;ref_src=twsrc%5Etfw) and [#Soldiers](https://twitter.com/hashtag/Soldiers?src=hash&amp;ref_src=twsrc%5Etfw) the opportunity to demonstrate their "Ready Now" capabilities. More photos at the link! [@15thWing](https://twitter.com/15thWing?ref_src=twsrc%5Etfw)[https://t.co/TVbiZv3cXg](https://t.co/TVbiZv3cXg) [pic.twitter.com/wB1lV2rZpR](https://t.co/wB1lV2rZpR)
+> — PACAF (@PACAF) [March 19, 2021](https://twitter.com/PACAF/status/1372925075024871432?ref_src=twsrc%5Etfw)
+
+
+
+
+
+### 美国边境危机
+
+24日媒体人汉尼迪发推：“拜登边境停电，在笼子里藏了几千名儿童。”
+
+
+
+> Biden Border Blackout Hides Thousands Of Kids In Cages [https://t.co/BI0I7u13UD](https://t.co/BI0I7u13UD)
+> — Sean Hannity (@seanhannity) [March 24, 2021](https://twitter.com/seanhannity/status/1374692478348111873?ref_src=twsrc%5Etfw)
+
+
+
+
+
+24日汉尼迪发推：“拜登政府要花费8600万给非法移民居住旅店。”
+
+
+
+> Biden Admin To Spend $86 Million On Hotels For Illegal Immigrants [https://t.co/rPQL7RKpAh](https://t.co/rPQL7RKpAh)
+> — Sean Hannity (@seanhannity) [March 24, 2021](https://twitter.com/seanhannity/status/1374694426589720577?ref_src=twsrc%5Etfw)
+
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
 0
