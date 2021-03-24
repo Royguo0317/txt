@@ -1,75 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅】如何彻底终结CCP病毒大流行（二）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1011043/)
+## 【新闻简评】从美国纾困方案看未来
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1011353/)
 
-五月花写作组 ｜ 作者：北美教练陪练｜ 编辑、美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/03/如何彻底终结CCP病毒大流行V2.jpg)
-### **往期链接：**
+作者：喜马拉雅东京樱花团 / 贻人小筑
 
-[【重磅】如何彻底终结CCP病毒大流行（一）](https://gnews.org/zh-hans/1010646/)
+前言：美国的纾困方案将会为美国乃至全球经济带来沉重负担，G系列是为数不多的价值成长型资产，“墙”国将进一步控制外汇流出。
 
-* * *
+拜登政府在3月11日正式签署1.9万亿美元新冠纾困救助法案，只要年收入在7.5万美元以下的美国个人，和年收入在15万美元以下的夫妇，在财政部和国税局留有银行账户信息的民众，将直接收到1400美元，12日美国方面开始发放个人纾困金，正式付款是3月17日，一些银行提前处理了发放事宜，到美国时间3月17日，已经发送给9000万个家庭，约2420亿美元，达预期一半。考虑到美国家庭收入中位数是6.87万美元，就是大部分美国家庭都可以收到这1400美元救命钱。同时，拜登政府不仅搞了1.9万亿美元的刺激方案，还要追加2万亿（也可能增加到4万亿）美元的基建计划。
 
-### 开放羟氯喹为非处方药，就这么简单的事情！
+![](https://lh3.googleusercontent.com/hcgwBrpD9CbZmOWilqfIPnIHlsfJt8secCb5QeuMuyK9JO0rQ494CsXS5mSmy7JMjdWBsecesqzkHNi0f6uy2c25fseeoB4cPjR68CGIJADSaNSxe_LPZjv056Vyi6Cw81XwNYYu)
+图片来自网络
 
-对抗CCP病毒必须要有正确的方案。我们都知道羟氯喹有效（对预防和轻症患者治疗有效，但对重症无效）。开放羟氯喹为非处方药，多么简单的事情，就是不做。什么原因？“你懂的”！利益链条哇！大药厂要挣钱，他们要挣棺材钱！无良政客、精英医生（尤其是有话语权的，所谓的学术带头人，key opinion leader）可能很多已经被收买。
+那么，几万亿美金的投入，钱从哪里来呢？无非就是借钱或者赚钱（或者抢钱？！）。借钱，就是通过继续投放国债来达成；而赚钱，则是通过增加税收来实现。无论哪种方式，对美国未来的经济，都会带来沉重的影响。过去一年内，美国已经推出一系列纾困措施，可以说，美国政府已经债务累累。截止3月1日，美国联邦政府债务已经达到21.9万亿美元，为二战以来最高。按这个趋势，两年后美国国债将很有可能达到30万亿美元，每年利息达到恐怖的7000亿美元。目前，在不断恶化的通胀预期背景下，美国10年期国债收益率已经迅速走高，市场积压了大量抛售美国国债的动能。想通过继续发债募集资金，已经不能作为长期募资的手段。拜登政府计划和正在考虑的措施包括：
 
-全世界最早说羟氯喹可以治疗CCP病毒的是路德节目中的莫博士和他的妻子（3）。据闫丽梦博士透露，羟氯喹被使用已有60年的历史，针对病毒对人体所造成的伤害，羟氯喹实际上都有很好的疗效，能有效针对病毒的各种致病机理，是一个可长期服用的安全药物，只要注意遵守安全的服用剂量要求即可。 据她披露，在中共国，达到某些级别的高官都知道羟氯喹对新冠病毒有治疗作用，这些高官和一些军医院的医生可能自己也在服用。但是这些重要资讯并不是所有的中共国人都知道，那些面临高风险的前线医护人员也不知道这一点。至于为什么中共不公布这些信息？闫丽梦博士说：中共不公布病毒来源的真实信息、病毒的信息和它的真实行为模式，不是因为中共可以找到疫苗，它们不想让全世界知道这病毒到底是怎么回事，并拖延真正科学界应对病毒作出的反应。
+1、 提高年收入超过40万美元人群的个人所得税税率；
 
-讲羟氯喹有效就像捅了主流媒体、精英医生们的肺管子一样。福奇（Anthony Fauci）博士，是几届美国总统医学顾问。为了推动病毒大流行，他先是教导美国民众不用带口罩，后来又改口说带应该带口罩，又辩解说开始口罩少，怕民众抢购。民众会和医务人员抢口罩？看看民众疫情期间捐了多少口罩？这真是对善良的美国人民的侮辱！他现在又是拜登总统的防疫顾问，又开始兜售给12岁以下的儿童打疫苗！2020年3月20日福奇博士别有用心地反对用羟氯喹预防和治疗CCP病毒感染。事实上2005年8月22日，美国CDC曾发表过一篇文章：羟氯喹可以预防和治疗SARS冠状病毒感染（4）。但福奇博士对CCP病毒的策略是，黑不提白不提，揣着明白装糊涂。
+2、  扩大遗产税范围；
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-24-at-7.03.48-AM.png)福奇（Anthony Fauci）博士，美国国立卫生研究院免疫与传染病主任几届美国总统医学顾问。所谓的学术带头人，key opinion leader
+3、  削减有限责任公司、合伙企业等公司的税收优惠；
 
-公众对福奇博士提出质疑。美国医学院联盟、美国传染病学会、美国儿童疾病研究学会、美国CDC等医学界精英大佬们竟然联合起来，联名力挺福奇博士（5-9）。
+4、  将企业税从21%提高至28%；
 
-Vladimir Zelenko医生用羟氯喹治疗了成功治疗了700多个CCP病毒感染的病人后，曾给川普总统写信说明羟氯喹的效果（10）（11）。网上攻击Vladimir Zelenko的文章铺天盖地。 大量Zelenko医生的Youtube 视频被下架。纽约时报攻击说Zelenko医生是个乡下医生，住在一个破烂不堪的房子里，兜售没有FDA通过的羟氯喹（12）。在无数次证明羟氯喹治疗效果后，Zelenko医生说羟氯喹反对者是集体大屠杀的凶手（13）。最终，Zelenko医生被迫离开他居住的小镇（14）。
+5、  对年收入至少为100万美元的个人征收更高的资本利得税。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-24-at-7.04.19-AM.png)Vladimir Zelenko医生
+无论如何，正如郭先生的判断，美国经济未来几年，将面临极其严重的衰退风险，进而影响到全球经济的大衰退，这必然是人类“大重启”过程中不得不付出的代价。在全人类面临如此困境的时候，新中国联邦的G系列业务可能是当下以及未来相当长一段时间内唯一具有投资价值和增长空间的标的。关于G系列业务的投资价值，已经有很多相关文章和分析，这里就不做赘述了。
 
-Brian Tyson是治疗CCP病毒病人的一线医生，他表示：CCP病毒是根据某些人的需要弄到美国的瘟疫，羟氯喹效果极其有效，根本无需疫苗（15）（16）。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-24-at-7.04.44-AM.png)Brian Tyson医生
-（未完待续）
+在写这篇文章的同时，恰好笔者看到来自墙内的这样一段评论：
 
-* * *
+“严格控制结汇和购汇，是中国阻止美元霸权洗劫中国财富的重要选项，相当于我们建了一道城墙，防止野人进来洗劫我们。没有金融主权的国家，是任人宰割的国家，美国人并不关心谁上台执政，他们只关心你们有没有开放金融主权。今天美国人指责我们的所有东西，攻击我们的所有理由，从香港到新疆，目的都是希望中国改变体制，从而在多党间下注，就能打开中国的金融主权。这样中国也会变成一块大好肥肉，像阿根廷、泰国、巴西等其他发展中国家一样，供他们来回掠食。”
 
-### 参考资料：
+整个话语和观点，透出多么熟悉的“墙”国风味。可以预见，为了进一步控制外汇流出，CCP治下的舆论导向，将会持续围绕美国经济做文章，加强民粹主义宣传，并严控外汇资金的流转。并美其名曰：一切都是为你好，一切都是为国家好。
 
-（3）[https://www.youtube.com/watch?v=m3PQss3oMkg&t=113s](https://www.youtube.com/watch?v=m3PQss3oMkg&amp;t=113s)
+笔者再次呼吁墙内同胞：早日觉醒，不要再做韭菜，投身爆料革命和G系列，共同迎接新时代的到来。
 
-（4）[Martin J Vincent](https://pubmed.ncbi.nlm.nih.gov/?term=Vincent+MJ&amp;cauthor_id=16115318), [Eric Bergeron](https://pubmed.ncbi.nlm.nih.gov/?term=Bergeron+E&amp;cauthor_id=16115318), [Suzanne Benjannet](https://pubmed.ncbi.nlm.nih.gov/?term=Benjannet+S&amp;cauthor_id=16115318), [Bobbie R Erickson](https://pubmed.ncbi.nlm.nih.gov/?term=Erickson+BR&amp;cauthor_id=16115318), [Pierre E Rollin](https://pubmed.ncbi.nlm.nih.gov/?term=Rollin+PE&amp;cauthor_id=16115318), [Thomas G Ksiazek](https://pubmed.ncbi.nlm.nih.gov/?term=Ksiazek+TG&amp;cauthor_id=16115318), [Nabil G Seidah](https://pubmed.ncbi.nlm.nih.gov/?term=Seidah+NG&amp;cauthor_id=16115318), [Stuart T Nichol](https://pubmed.ncbi.nlm.nih.gov/?term=Nichol+ST&amp;cauthor_id=16115318). Chloroquine is a potent inhibitor of SARS coronavirus infection and spread. Virol J  2005 Aug 22;2:69. doi: 10.1186/1743-422X-2-69.
+*免责申明：本文只代表作者观点，与GNews网站无关。*
 
-（5）[https://www.aamc.org/news-insights/press-releases/aamc-statement-support-anthony-fauci-md](https://www.aamc.org/news-insights/press-releases/aamc-statement-support-anthony-fauci-md)
+*校对：喜马拉雅东京樱花团 / 东洋武士
+责任编辑：喜马拉雅东京樱花团 / 文小白
+发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews.org/wp-content/uploads/2021/03/二维码-9.jpg)
+0323C158b
 
-（6）[https://abcnews.go.com/Politics/doctors-cry-foul-white-house-targets-fauci-cdc/story?id=71773393](https://abcnews.go.com/Politics/doctors-cry-foul-white-house-targets-fauci-cdc/story?id=71773393)
-
-（7）[https://www.societyforpediatricresearch.org/joint-statement-in-support-of-dr-fauci-of-science-and-public-health](https://www.societyforpediatricresearch.org/joint-statement-in-support-of-dr-fauci-of-science-and-public-health)
-
-（8）[https://www.pop.org/cleanvaccine/?gclid=Cj0KCQiArvX\_BRCyARIsAKsnTxPJSh7wudv8jsfiY3RUdpKWDGwLM-brfaypcMZhI5IgcbFVJDJ3gf8aAuq3EALw\_wcB](https://www.pop.org/cleanvaccine/?gclid=Cj0KCQiArvX_BRCyARIsAKsnTxPJSh7wudv8jsfiY3RUdpKWDGwLM-brfaypcMZhI5IgcbFVJDJ3gf8aAuq3EALw_wcB)
-
-（9）[https://www.idsociety.org/news–publications-new/articles/2020/isda-statement-in-support-of-anthony-fauci-m.d.-fidsa](https://www.idsociety.org/news--publications-new/articles/2020/isda-statement-in-support-of-anthony-fauci-m.d.-fidsa)
-
-（10）[https://www.herald.ng/after-successfully-treating-700-covid-19-patients-doctor-pens-letter-to-trump-on-drug-regimen/](https://www.herald.ng/after-successfully-treating-700-covid-19-patients-doctor-pens-letter-to-trump-on-drug-regimen/)
-
-（11）[https://www.youtube.com/watch?v=Fz4Nc967ZVo](https://www.youtube.com/watch?v=Fz4Nc967ZVo)
-
-（12）[https://www.nytimes.com/2020/04/02/technology/doctor-zelenko-coronavirus-drugs.html](https://www.nytimes.com/2020/04/02/technology/doctor-zelenko-coronavirus-drugs.html)
-
-（13）[https://www.israel365news.com/154281/dr-zelenko-vindicated-after-hydroxychloroquine-proven-effective-calls-naysayers-mass-murderers/](https://www.israel365news.com/154281/dr-zelenko-vindicated-after-hydroxychloroquine-proven-effective-calls-naysayers-mass-murderers/)
-
-（14）[https://nypost.com/2020/05/21/doctor-who-promoted-covid-cocktail-leaves-jewish-community/](https://nypost.com/2020/05/21/doctor-who-promoted-covid-cocktail-leaves-jewish-community/)
-
-（15）[https://www.youtube.com/watch?v=PE3QfTnIazU&t=1s](https://www.youtube.com/watch?v=PE3QfTnIazU&amp;t=1s)
-
-（16）[https://www.thedesertreview.com/news/dr-brian-tyson-speaks-at-america-s-frontline-doctors-in-washington-dc/article\_4bd9aae0-11fb-11eb-a470-dbd980aa27bd.html](https://www.thedesertreview.com/news/dr-brian-tyson-speaks-at-america-s-frontline-doctors-in-washington-dc/article_4bd9aae0-11fb-11eb-a470-dbd980aa27bd.html)
-
-* * *
-
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
-
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
-
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
-
-0
++1

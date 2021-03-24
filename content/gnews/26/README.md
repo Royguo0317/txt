@@ -1,45 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [文贵先生盖特]摘录:2021年3月20日拜登三摔，把世界给摔懵
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1008874/)
+## 白宫评估阿拉斯加会面是“实质性的”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1011181/)
 
-编辑：童媚 校对：木子
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/image001-78.png)
-**拜登三摔，把世界****给****摔懵**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**媒体****胡扯****，被家族****所****操弄**
+编辑上传 水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/C-22-9.jpg)nypost.com
+白宫2021年3月22日的新闻简报透露，阿拉斯加会面“是一次实质性的会议”，“我们期待着与中共国就一系列广泛的问题进行强硬和直接的会谈”。由此推断，“拜习会”在4月份上演将是大概率事件。【1】
 
-今天有三个是很严肃的会，所以沐浴更衣很正装。
+白宫曾多次透露，是否存在“拜习会面”将取决于对阿拉斯加会面的评估。看了杨、王在阿拉斯加的表演，像文贵先生在第一时间指出的，这是在演戏，是勾兑或正在勾兑中的剧目。
 
-昨天发生的事情，大家都在评论。拜登总统在空军一号上摔了三下，把世界给摔懵了，把所有人都摔懵了。但是在我们爆料革命经历了几年的战友们，都应该在预料之中。很多人都在说贺锦丽就要上阵了。战友们，看看世界媒体的悲剧和悲哀，没有任何媒体可以告诉你真正的答案。请看过去三到四年，你亲身经历的事情，不要让别人来评断，有一件事是媒体告诉你真正的答案吗？从来没有。人类走到媒体肠梗阻的时代，都是胡说八道，都是事后的诸葛亮，根本不存在任何争议，包括事后找到所谓的证据，来圆一个事实的时候，都带有所谓的公正的观点，然后把事实全部过滤掉。因为要”公正”，所以要左边右边平衡，一平衡就没有事实了。你去看世界媒体到最后，全是抓眼球。所以人类上政治要变革，宗教要变革，媒体当然要到了大变革的时候，完全是胡扯的，完全是被家族所操弄的。
+现将昨天白宫新闻简报【2】涉及中共国部分摘译，供战友参考、分析。
 
-**无法回避的****几件事情**
+问：我能再问一个问题吗？周末的会议–上周，与中共国–
 
-昨天，拜登从飞机上摔了三跤，最大的意义不是贺锦丽当不当总统，这是根本不存在的问题。有三件事是永远无法回避的：美国总统大选，无论是选举前还是选举后，还是在历史上，最重要的就是诚实的问题。关于川普总统的账单和税单，已经折腾了几年了。还有川普总统所有关于通俄还有税单的问题，那就是诚实不诚实的问题。对待拜登，他当上了总统之后，就是围绕两件事，一个是他身体健康的问题，一个就是核心的核心他儿子亨特拜登的问题。他本人的争议就在这两个问题上。亨特拜登的问题就是关于中共的，亨特拜登的哥们是习大神，川普总统被传说的哥们是普京，而习大神和普京又是好哥们，那你想这事和美国什么关系，你得看本质。
+普萨基：当然。
 
-**摔出问题之一：总统的合法性**
+问：中共国在阿拉斯加的代表团，拜登从那次会面中得到了他想要的东西吗？他对此有什么样的反应？那么，（这次会面）会把两国引向哪里去呢？例如，拜登和习近平现在举行某种双边会晤的可能性是大还是小？你能告诉我们什么吗？
 
-拜登这一摔摔出了个大问题，就是你这个总统选上合不合法？你当时所有被高度关注你的医生和健康报告是真是假，如果健康报告是假的，或者说你欺瞒了事实，这个总统的合法性就没了。连你的人没了，人的合法性都没了，总统这个主体没了，那贺锦丽上去当总统合法吗？先不说选前你有没有多米尼系统，有没有其他什么操作，这选后关于大选真假的问题，就是大事。2022年的中期选举或者在这之前，所有的问题老百姓可以不讨论，但在党内会大讨论，弄不好民主党就主动弹劾他了。这就是美国所谓的民主政治。不管它真假，有没有操控，比你中共好的多，跟你不是一回事，你一个压根就没有洗过澡的人，和别人讲卫生，就是胡扯的事。这件事就摔出了一个最大的问题，就是美国总统选举的合法性，还有他能干多长时间。这又是在普京总统对拜登总统说：我了解你，我祝你健康。然后就摔了。俄罗斯的普京对美国总统的健康以及各方面的了解，一点也不奇怪，太正常了，就像美国了解习大神的健康情况一样，不能说百分之百，但至少是百分之九十以上。对各国领导人特别是几个大国，对你生活、起居、家庭比如你什么时候抠鼻子，什么时候抠右眼和左眼，这些基本都在预料之中，这是现代科技的必然产物。
+普萨基：嗯，我们期待着与中共国就一系列广泛的问题进行强硬和直接的会谈，而事实正是如此。
 
-**摔出问题之二：****保守势力回归****新中国联邦****灭共事业好上加好**
+我知道大家都很关注一些公共表演，或者，你知道，更戏剧化的公开报道，但我可以向你保证，从我们国家安全小组的谈话来看，这是一次实质性的会议，这是一个为期两天的会议。他们涵盖了一系列问题，从我们对人权侵犯的担忧、到对香港、台湾的侵略–我们关心的问题、经济问题–我们对经济和知识产权的担忧。当然，我们也会讨论我们合作的方式。
 
-昨天这一摔，摔出了新中国联邦更大的希望。这一摔完，不用想的保守势力迅速回归。对新中国联邦一定是更好；对灭共的事业是好上加好、再好；更重要的事情，2022年中期选举，保守派一定回归，那对新中国联邦又是好事。
+所以我们在评估我们现在的状况，我们现在就在这里，我希望总统一定会和他的国家安全团队交谈–杰克·沙利文和托尼·布林肯，我们的国务卿和国家安全顾问。在前进的道路上，我们将与盟国和伙伴进行密切磋商，我们将继续与中共国合作，当然，向前看，这符合美国人民的利益。
 
-**摔出问题之三：****拜登****灭共无回头路**
+但就下一步而言，安克雷奇（Anchorage）是一个特别的会议，我们没有更多的东西来推断下一步要做什么。
 
-另一个深层次的问题，拜登总统对中共，不管任何情况下，现在想往回走已经不可能了，只能越来越强硬。不是阿拉斯加的会议，阿拉斯加会议百分之百就是演戏，纯胡扯。接下去共产党就会到世界上吹牛去了，他们在国内吹牛，因为必须保持假擀面杖是挺着的，因为一拿下来就完了。所有的戏都是演的，就像中共外交部发言人说的，前几分钟就是小菜，中间还有很多话呢，然后他们就到全世界去吹牛去了，干嘛啊？到国外去骗钱，到国外去骗资源，到国外去拉盟友，然后表演给所有国内的老百姓看。中国人永远死在谎言里，这一点我是越来越相信了。所以你发现对爆料革命、新中国联邦、灭共事业、经济、香港事件来看，相信真话的人是很少的。相信假话的人是很多的。包括九指妖，说啥你都信，叫你写遗书，因为你有钱，你就信。这就是中国人走到今天的很多灾难事件的根本原因：不辨是非，不辨真假，不辨善恶。这个共产党已经完了几十年了，屡试不爽，所以他们能到处吹牛。
+问： 今天，美国、欧盟和其他国家宣布对中共国实施新的制裁？
 
-**摔出的问题之四：美国经济完蛋**
+普萨基：是的。
 
-拜登总统为什么摔出了另外一个问题呢？就是美国的经济完蛋了。如果美国经济完了，最大的受惠者又是咱们G系列。美国的经济真的绝对完了，1.9万亿和共和党与民主党竞争的2022年中期选举，和美国所有关于冠状病毒的争执，这一摔完全全都明白了。只有一招铤而走险，能让拜登总统和贺锦丽副总统转移视线，就是严肃灭共、认真灭共，真实灭共。
+问：关于侵犯人权，在安克雷奇发生的事受到影响到了吗？换言之，如果满足某些条件，美国是否会不参与这一进程了？两者之间有联系吗？
 
-**台湾危矣**
+你认为下一步该怎么办？中共国对欧盟进行了报复，你认为会对美国报复吗？如果他们不采取行动改变对这些少数民族的虐待，你还会采取什么制裁措施？
 
-接下来你放心共产党一定在台湾问题上铤而走险。台湾真是危矣，真担心。我从昨天到现在一直想台湾的亲人和朋友怎么办，还有台湾的战友。真的要把大牛和巴黎接出来了，这是核心。
+普萨基：好吧，关于第一个问题，我不知道会有什么联系或者（原）计划的撤回。显然，这是对我们认为的严重侵犯人权行为的反应–显然，欧洲人也有这种感觉–针对新疆少数民族和宗教群体的成员，任何会议都不会改变我们对此的担忧。
 
-**准备坐世界的过山车****，好戏真的登场了**
+正如你所指出的，我们与英国、加拿大和欧洲联盟一道采取了行动，他们也对与这些暴行有关的侵犯人权者采取了行动。你知道，这表明我们一直致力于多边合作，促进对人权的尊重，我们继续严重关切中共国在新疆对维吾尔人犯下的反人类罪和种族灭绝罪。
 
-这一摔，和阿拉斯加的演戏，和普京总统全面公开的介入，和习大神要在全世界全面开始擀面杖的外交和经济，然后真刀真枪对台湾，世界真的将开始乱起来了。这时候，经济能好吗？我不相信。所以兄弟姐妹们，准备好坐这个世界的过山车，从庚子年到辛丑年，世界不会苏醒，不会太平。更重要的是，我们要抓住机会，对我们新中国联邦，对灭共的事业，是好上加好。有什么不好的？告诉我。世界只要最后找到了乱透的原因，那就到了关键的关键，这事为什么阿拉斯加不把冠状病毒抬到桌上？因为中方强烈要求，不允许把冠状病毒有一句话指责给中共，竟然美国真没干。但是，这是重要的大餐，这事开始了。不谈病毒来源，不谈美国人死亡，不谈整个生物武器，美国也真不出手，到底是被买了，还是吓住了，还是被勾兑了，还是美国背后有更深的战略考虑呢？好戏真的登场了，大家做好准备。
+但我没有任何东西可以预测你（设想的）未来的制裁。显然，这是上周会面提出的问题，也是几周前拜登与习近平谈话时提出的问题。
+
+问：如果中共国不改变态度，美国会怎么做？这算是一种一次性制裁吗？或者在今后的道路上，是否会重新审视这一点，是否有可能实施进一步的制裁？我的意思是，他们（中共国）没有表示任何改变行为的迹象，事实上，他们几乎在加倍展示，他们对这些少数群体没有做错什么。
+
+普萨基：嗯，很明显，制裁是为了阻止罪行，但我不打算裁决或采取任何行动，在这个时候–甚至不到60天，今天是哪一天？第62天？我甚至不确定–对政府（来说）。
+
+我可以向你们保证，很明显，这是–再说一遍，我们将与世界各地的伙伴和盟国密切协调，评估下一步的合适的步骤，正如国务卿在本次会议后的讲话中指出的那样，我们确信，中共国正在注意到，我们与盟友和伙伴的合作比过去四年更加密切，我们正集中精力采取措施，投资和改善我们在国内的经济竞争，这些都是我们确信他们能看到的（我们所采取的）措施。
+
+原文部分：
+
+Q：Can I ask a follow-up? The meeting over the weekend — last week, with the Chinese (inaudible)
+
+MS. PSAKI:  Sure.
+
+Q：the Chinese delegation in Alaska.  Did the President get what he wanted out of that meeting?  Does he have any response to what came from it?  And where does it leave the countries now, going forward?  For instance, is the prospect of some sort of bilateral meeting between President Biden and President Xi now more or less likely?  Is there anything you can give us on that?
+
+MS. PSAKI:  Well, we expected tough and direct talks with the PRC on a wide range of issues, and that’s exactly what happened.
+
+And I know there has been a lot of focus on some of the public theatrics or, you know, more dramatic public piece, but I can assure you from talking to our national security team that it was a substantive meeting.  It was a two-day meeting.  They covered a range of issues, from our concerns about human rights abuses; to aggression in Hong Kong, Taiwan — our concerns there; economic — our concerns about economic and intellectual property.  And we also, of course, talk about ways we can work together.
+
+So we’re taking stock of where we are.  This is where we are now.  I expect the President will certainly be talking with his national security team — well, Jake Sullivan and Tony Blinken, our Secretary of State and National Security Advisor who traveled.  And we will have close consultation with allies and partners on the way forward.  We’ll continue to work with China, of course, going forward, where it’s in the interests of the American people.
+
+But in terms of next steps, Anchorage was a standalone meeting, and we don’t have anything more to determine about what’s next.
+
+Q：And today, the U.S., EU, and other countries announced new sanctions on China —
+
+MS. PSAKI:  Yeah.
+
+Q：— with respect to human rights abuses.  Did anything happen — that happened in Anchorage affect that?  In other words, would the U.S. have not participated in that had certain conditions been met?  Is there any link between the two?
+
+And what next steps do you think — China has retaliated against the EU.  Do you expect U.S. retaliation?  And is there any more sanctions that you would do if they don’t act to change course with respect to the treatment of these minority groups?
+
+MS. PSAKI:  Well, on the first question, I’m not aware of any linkage or plans to pull that back.  Obviously, this was a reaction to what we felt were serious human rights abuses — and, obviously, the Europeans felt this as well — against members of Xinjiang’s ethnic and religious minority groups.  And no meeting would change our concerns related to that.
+
+And we took action, as you noted, in unity with the United Kingdom, Canada, and the European Union, who also acted against human rights abusers in connection with these atrocities.  You know, this demonstrates our ongoing commitment to work multilaterally to advance respect for human rights, and we continue to have grave concerns about China’s crimes against humanity and genocide on Uyghurs in Xinjiang.
+
+But I don’t have anything to predict for you on future sanctions.  Obviously, this is an issue that was raised in this meeting last week and was an issue that was raised by the President in his conversation with President Xi just a few weeks ago.
+
+Q：What will the U.S. do, if anything, if China doesn’t change its approach?  Is this, sort of, a one-stop sanction?  Or down the road, will this be revisited and are further sanctions possible?  I mean, they’ve given no indication that they would change approach; in fact, they have more or less doubled down that they’re doing nothing wrong with respect to these minority groups.
+
+MS. PSAKI:  Well, clearly, sanctions are meant to deter behavior, but I’m not going to rule in or rule out any actions when we’re at — not even day 60.  What day are we at?  Sixty-two?  I’m not even sure — of the administration.
+
+I can assure you that, obviously, this is — again, we will be evaluating what the appropriate next steps are in close coordination with our partners and allies around the world.  And as Secretary of State noted in his comments after this meeting, we are certain that the Chinese are noting that we are working much more closely with our allies and partners than had happened over the last four years, that we are focused on taking steps to invest in and improve our economic competition here at home.  Those are all steps we are certain they’re taking note of.
+
+参考链接：
+
+【1】[https://gnews.org/zh-hans/991643/](https://gnews.org/zh-hans/991643/)
+
+【2】https://www.whitehouse.gov/briefing-room/press-briefings/2021/03/22/press-briefing-by-press-secretary-jen-psaki-march-22-2021/
 
 0
