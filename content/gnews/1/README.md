@@ -1,26 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世界在觉醒 Take Down the CCP
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1012089/)
+## 【每日快讯】23/03/2021:欧盟3月22日批准了对四名中共官员制裁
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/1012188/)
 
-撰稿人：冰沙奶茶
+**制作:Cantonese工作室**
+**播报:【Annie】 资料整理：【文依】【 专业家庭煮妇】 【闪电】 【Annie】海报制作:【Penny】   视频制作：【Caroline 】【 小豆牙】发布:【星星】**
+摘要:
 
-3月22日，欧盟宣布制裁侵犯新疆人权的中共官员和实体，被制裁的包括新疆生产建设兵团党委书记王君正、新疆公安局局长陈明国、新疆政法委前书记朱海仑、新疆维吾尔自治区政治和法律部长王明山，以及新疆生产建设兵团公安局等,他们将被实施旅游禁令及冻结资产。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1616565702-1.jpg)图片选自澳喜文宣
-紧接着加拿大、英国也跟进宣布制裁。美国除了在去年宣布对新疆党委书记陈全国实施制裁，此次新增对新疆维吾尔自治区政府副主席、公安厅厅长陈明国，以及新疆党委副书记、新疆生产建设兵团党委书记王君正实施进行制裁。
-
-同日，澳洲联邦议员克里斯滕森（George Christensen）在众议院辩论时表示，中共迫害宗教团体和少数民族，犯下了反人类罪和种族灭绝罪，“中共应该被视为跨国犯罪组织”。
-
-3月23日德国和日本签署了一项协议，以促进两国之间机密信息的交流，加强防务合作，参与印太地区事务。根据该协定，日德间交换军事机密和反恐情报将变得更加便捷，也将消除日本向欧洲国家出口防卫装备的一大障碍，其中的意味不言而喻。
-
-一夜之间，在文贵先生领导的爆料革命推进之下，世界正在觉醒，随着中共的恶行越来越多地大白天下，灭共之势如破竹席卷全球。我们必须从地球上把共产党消灭，战友加把劲添稻草，正所谓众人拾柴火焰高，让这股烈火烧出一个新世界。
-（本文纯属个人观点）
-
-审稿：文筝 编辑：五饼二鱼
-
-资料来源：
-[https://www.epochtimes.com/gb/21/3/23/n12829336.htm](https://www.epochtimes.com/gb/21/3/23/n12829336.htm)
-[https://www.epochtimes.com/gb/21/3/23/n12829289.htm](https://www.epochtimes.com/gb/21/3/23/n12829289.htm)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-澳喜Logo-3.jpeg)
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-265.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2-103.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-116.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4-69.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/5-60.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/6-46.jpg)
 0
