@@ -1,41 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新西兰斯蒂芬·廷德尔爵士担心IceHouse公司与人权黑名单公司的关系
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1012680/)
+## 【热点播报】俄罗斯疫苗在欧洲开始施展影响力
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1013008/)
 
-编译：正义的伙伴zero
+作者：香草山商业部 文锤
 
-新西兰媒体Stuff下属的巡回（Circuit）工作组的纪录片《被删除的》（Deleted）揭露了新西兰与的科大讯飞（iFlytek）的商业和政治联系，并调查了一名维吾尔族新西兰人的兄弟被中共法外监禁的事件。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1630-【热点播报】俄罗斯疫苗在欧洲开始施展影响力.png)图片来源：*REUTERS*
 
-科大讯飞是中共控制的人工智能巨头，该公司的技术被广泛用于侵犯中国新疆维吾尔族人的人权。
+根据[法国费加罗报](https://www.lefigaro.fr/sciences/spoutnik-v-le-vaccin-russe-qui-seme-la-zizanie-dans-la-diplomatie-europeenne-20210322)3月22日的报道，俄罗斯“Spoutnik V”疫苗在欧洲外交领域中开始搅动一池春水。
 
-与科大讯飞有商业关系的是冰室公司（IceHouse Ventures，以下简称IHV），IHV有新西兰政府背景。IHV的母公司是一家创业孵化公司，IHV是母公司下属专门负责投资的部门。2019年，IHV与科大讯飞签署了合作协议。
+目前，俄罗斯疫苗并未开始在欧洲市场上使用，欧洲内部市场专员(Thierry Breton) 周日晚声称，“欧盟绝对不需要俄罗斯疫苗”。这番言论引发了克里姆林宫的愤怒：“我们想知道这些人是在保护欧洲的老百姓，还是在保护欧洲的制药厂？”
 
-在巡回（Circuit）工作组提出质疑后，其董事会要求调查这次投资行动。
+另一方面，德国默克尔声称，德国已经准备订购一批俄罗斯疫苗，一旦欧盟批准，将立刻下单。作为青年时代生活在前苏联的东欧人，他们年轻时就接种过苏联产的疫苗，他们对俄罗斯的疫苗有信心。匈牙利，捷克和斯洛伐克已经订购了俄罗斯的疫苗，欧盟内部对此的议论已经炸开了锅。作为欧盟成员国，这些国家很显然并没有受到欧盟卫生当局的约束。
 
-对于IHV与科大讯飞的关系，又有一位备受瞩目的新西兰商人希望得到IHV的回复。斯蒂芬·廷德尔爵士（Sir Stephen Tindall）通过投资公司K One W One在IHV中持有少量股份，他对后续的合伙关系感到担忧。廷德尔爵士更为人所知的是The Warehouse的创始人，他同时也是K One W One的董事长和大股东。
+此外，早在2020年11月，俄罗斯主权基金(RDIF)宣布，与印度制药集团Hetero合作每年生产1亿剂疫苗，与印度制药公司Strides合作，计划从2021年第三季度开始生产2亿剂“Spoutnik V”疫苗，届时可以为1亿人接种。
 
-他告诉巡回工作组：“我们确实知道IHV与科大讯飞有关系，但我们不知道科大讯飞在侵犯人权上的行为。我们正在寻求更好地澄清这种关系。”
+很显然，这场全球疫苗大战，现在已经成为大国划分势力范围政治较力的工具。
 
-在廷德尔之前，山姆·斯塔布斯（Sam Stubbs） 也想得到回复。斯塔布斯是Simplicity公司的总经理，Simplicity是新西兰养老金公司KiwiSaver的供应商。斯塔布斯和廷德尔一样，也是IHV的股东。
+爆料革命的战友十分清楚，现在全世界开展的疫苗运动是又一次中共病毒次生灾难。对各国医药势力来说，疫苗是否有用，是否会产生不良后果，并不是他们最迫切考虑的问题，他们在意的是尽快在大众觉醒之前尽可能多地出售他们的产品。而对于政客而言，疫苗就是政治，疫苗就是外交，疫苗就是势力范围。
 
-上周，斯塔布斯告诉巡回工作组：“这是我们认真对待的事情。科大讯飞是一家在美国被列入黑名单的公司。这是一个涉及人权的严重问题。”
+面对欧洲4.3亿人口的庞大的市场，和地缘政治的巨大优势，俄罗斯正在用像石油和天然气一样的方式，伸出新的疫苗触角，紧紧抓住欧洲。
 
-这种商业关系对Simplicity公司造成伤害，Simplicity公司一直崇尚道德投资，去年表示不会投资违反联合国人权议定书的公司。
+编辑/校对/发稿：雪梨
 
-斯塔布斯说：“我们尽管是少数股东，但仍然是IHV的部分所有者，对IHV负有责任，我们的成员和新西兰公众可以从中学到这一点，并在必要时进行改进。”
 
-自2017年以来，公众一直在关注科大讯飞的语音识别技术被用来记录维吾尔人的声音。 这些”声纹”被保存在数据库中，可用于通过声音识别找到说话的人。
 
-《被删除的》还指出，科大讯飞的机器人被用在幼儿园，用在对维吾尔族儿童传授普通话，用在“智能法庭”和“智能起诉”中。
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
-IHV每年从政府下属的创新机构Callaghan获得70万美元。
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
 
-除了揭示科大讯飞与有新西兰政府背景的公司的合作关系外，《被删除的》还引出了政府拥有的种子基金Aspire的承认，它知道科大讯飞因侵犯人权而被列入黑名单，却继续进行投资了科大讯飞等公司。
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
 
-原文链接：
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-[https://www.stuff.co.nz/national/stuff-circuit/300260747/sir-stephen-tindall-concerned-about-icehouse-relationship-with-blacklisted-chinese-company](https://www.stuff.co.nz/national/stuff-circuit/300260747/sir-stephen-tindall-concerned-about-icehouse-relationship-with-blacklisted-chinese-company)
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

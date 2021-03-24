@@ -1,40 +1,133 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】建制派 「左斗左」 M+博物馆遭文革式批斗
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1012653/)
+## 美国政要等每日重要信息0324.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1012928/)
 
-搜集\编撰：西西
+**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
 
-**「港版文革」继续上演，形成建制派「左斗左」的现象。中共喉舌报章《大公报》23日刊文大举批斗M+博物馆，指其花公帑购入大批受争议艺术品，包括1.77亿元购入的希克藏品内容涉及「辱国」，以及异见艺术家艾未未对天安门「举中指」的作品涉违国安法等。据悉，西九文化区管理局已决定，在年底举行的M+博物馆开幕礼上，将不会展出艾未未「举中指」的作品。**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2740451_abc9760ca3fc16249b387af86a433a41_620.jpg)西九M+藏品被指違國安
-据大纪元香港报道，特首林郑月娥今早出席行会前见记者时，被问及用政治角度审查艺术品，会否对M+博物馆的国际声誉造成打击，令人感到香港无创作自由。林郑称，十四五规划首次提及香港文化地位，若有文化工作与「港版国安法」有冲突，政府一定会严肃处理。
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0324.jpeg)图片来源：康州盘古农场 霹雳年
+### 国务卿访欧
 
-林郑又点名政协常委、西九文化区管理局董事局主席唐英年，在任职前政务司司长时，曾亲自促成M+博物馆的大型捐赠，她称「对唐先生有百分百信任。」
+3月24日美国现任国务卿布林肯推文：“今天美国政府官员在伊朗、俄罗斯、中国和其他紧迫问题上与法国外长、德国外交部长、和英国外长进行了良好会晤。跨大西洋关系是解决全球挑战的核心。”
 
-唐英年发表声明回应称，得悉林郑月娥的信任，西九文化区管理局必定会遵守《基本法》、本港法律和「港版国安法」。他并强调，M+策展团队在筹划年底的开幕展览时亦会严守法律，以专业、客观和持平的态度进行策展工作。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0403-00176-069b1.jpg)
-原订于今年年底正式开幕的M+博物馆，12日举办传媒预览时，馆长华安雅指，「港版国安法」下仍不会回避展示六四、「反送中」抗争相关作品，并称艾未未部份作品属M+馆藏，强调博物馆策划展览向来根据史实。
 
-新民党容海恩曾在林郑17日出席立法会时，要求政府将涉违反「港版国安法」的作品下架。林郑当时称，当局尊重文化艺术表达自由，但认为公职人员能够分清，什么是散播仇恨、破坏两地人民关系等。
 
-点评：
+> Good meeting with French Foreign Minister [@JY\_LeDrian](https://twitter.com/JY_LeDrian?ref_src=twsrc%5Etfw), German Foreign Minister [@HeikoMaas](https://twitter.com/HeikoMaas?ref_src=twsrc%5Etfw), and UK Foreign Secretary [@DominicRaab](https://twitter.com/DominicRaab?ref_src=twsrc%5Etfw) today on Iran, Russia, China, and other pressing issues. The Transatlantic relationship is central to solving global challenges. [pic.twitter.com/2UiH3YYVMh](https://t.co/2UiH3YYVMh)
+> — Secretary Antony Blinken (@SecBlinken) [March 24, 2021](https://twitter.com/SecBlinken/status/1374513793296830464?ref_src=twsrc%5Etfw)
 
-M+博物馆代表了香港的艺术领域，而M+博物馆背后有着强大的建制派势力。中共喉媒这几天对M+ 攻击不断，可以说是借打击M+ 艺术品来打击政治对手，形成建制派「左斗左」的现象。
 
-M+博物馆并非最重要，最重要的是香港的艺术领域，如果一个有如此强大建制势力的博物馆也要向【国安法】跪下、向政治打压跪下，那么接下来所有在香港无论是大型的、小型的、独立的还是地下的艺术界人士都必将应声倒下。这里释放了一个的信号：艺术界将成为下一个被政权整顿的对象。
 
-在10年的文革浩劫里，当时共匪提倡和主导思想，规范和控制了文艺界创作的主题。迫使文艺都必须为政治服务，我们可预示香港未来从事艺术创作和表达个人意志艺术界会全面窒息。
 
-见微知著，正如志豪所说，从建制派对艾末末作品的批判，令人联想到政权要杀鸡儆猴。建制派议员容海恩明显是借艺术之名进行政治批斗，根本就不是从艺术的层面出发，而是为了政权而出发，去攻击香港艺术自由的领域。而中共这次在艺术领域发起的「左斗左」不过是这个魔鬼政党斗争史上的沧海一粟，它们就是寄生于人类人性阴暗面的吸血鬼，靠吸食鲜血和散播恐惧维系生存。我们要做的就是唤醒更多的人，让他们认清中共的本质。
 
-【以上观点仅代表笔者本人 】
+### 保卫宪法拥枪权
 
-资料来源：
-[大纪元香港](https://hk.epochtimes.com/news/2021-03-23/13463773)
+参议员莫-布鲁克斯23日推文：“乔-拜登、南希-佩洛西和查克-舒默试图破坏我们的第二修正案的持枪权。拜登政府和社会主义民主党的目标是把守法公民变成罪犯。我将与所有社会主义者削弱我们第二修正案权利的努力作斗争。”
 
-[自媒体：志豪LIVE SHOW](https://youtu.be/xL9EwyCCsKk)
 
-审稿：卡西欧 \ 上传：天网灰灰
+
+> Joe Biden, Nancy Pelosi, and Chuck Schumer seek to gut our Second Amendment Right to Bear Arms. The goal of the Biden Admin. and Socialist Dems is to make criminals out of law abiding citizens. I will fight all Socialist efforts to weaken our Second Amendment rights. [pic.twitter.com/aOQ1zRQ1t4](https://t.co/aOQ1zRQ1t4)
+> — Mo Brooks (@RepMoBrooks) [March 23, 2021](https://twitter.com/RepMoBrooks/status/1374497184197062656?ref_src=twsrc%5Etfw)
+
+
+
+### 抵制2022北京冬奥
+
+23日参议员斯科特推文：“不能给习总书记一个粉饰罪行的平台。今天，我给奥委会发信，呼吁他们站在自由和人权的立场上，和我一起呼吁把2022年奥运会搬出共产党统治的中国。”
+
+
+
+> General Secretary Xi can’t be given a platform to whitewash his crimes. Today, I sent a letter to [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw) sponsors calling on them to stand up for freedom and human rights and join my call to move the 2022 Olympic Games out of Communist China: [https://t.co/I0cCubwmv8](https://t.co/I0cCubwmv8)
+> — Rick Scott (@SenRickScott) [March 23, 2021](https://twitter.com/SenRickScott/status/1374443469389791234?ref_src=twsrc%5Etfw)
+
+
+
+### 内心有国家和军人吗？
+
+3月24日，福克斯新闻称 “副总统哈里斯在空军二号上屡次不敬军礼，打破先例”
+
+
+
+> VP Harris repeatedly fails to salute military on Air Force Two, breaking with precedent [https://t.co/ToAd7T6din](https://t.co/ToAd7T6din)
+> — Fox News (@FoxNews) [March 24, 2021](https://twitter.com/FoxNews/status/1374514885279707144?ref_src=twsrc%5Etfw)
+
+
+
+### 反抗拜登涨税
+
+23日Just the News 推文：“就业创造者网说‘天呐，绝不！’‘这不在我们的监督之下！’。对小企业加税的想法说不！”
+
+小议：拜登欲对美国人取消拥枪权，对小企业主这样的中产阶层加征税收，都是在一步步削弱有经济基础、又有传统道德观和正义良知的人，本质上是在配合中共的3F计划。
+
+
+
+> ‘HELL NO! NOT ON OUR WATCH!’: Job Creators Network says no to the idea of small business tax hikes [#JustTheNews](https://twitter.com/hashtag/JustTheNews?src=hash&amp;ref_src=twsrc%5Etfw) [@alexnitzberg](https://twitter.com/alexnitzberg?ref_src=twsrc%5Etfw) [@JobCreatorsUSA](https://twitter.com/JobCreatorsUSA?ref_src=twsrc%5Etfw) [https://t.co/32uFiM3yQu](https://t.co/32uFiM3yQu)
+> — Just the News (@JustTheNews) [March 24, 2021](https://twitter.com/JustTheNews/status/1374526266964070400?ref_src=twsrc%5Etfw)
+
+
+
+### 不明飞行物（UFO）
+
+前五角大楼项目负责人称：“UFO报告将是令人信服的。”
+
+
+
+> Former Pentagon program chief: UFO report will be compelling [https://t.co/ojrjYQacTj](https://t.co/ojrjYQacTj)
+> — Newsmax (@newsmax) [March 24, 2021](https://twitter.com/newsmax/status/1374588039947751425?ref_src=twsrc%5Etfw)
+
+
+
+### 军事
+
+“美国军队正处于过去40年中最重要的转型之中。”
+
+
+
+> The [@USArmy](https://twitter.com/USArmy?ref_src=twsrc%5Etfw) is in the middle of the most significant transformation in the past 40 years. 
+> 
+> Read more: [https://t.co/YXxEKVZb0w](https://t.co/YXxEKVZb0w)[#People](https://twitter.com/hashtag/People?src=hash&amp;ref_src=twsrc%5Etfw) | [#Modernization](https://twitter.com/hashtag/Modernization?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YYrYl8kqUv](https://t.co/YYrYl8kqUv)
+> — U.S. Army Reserve (@USArmyReserve) [March 24, 2021](https://twitter.com/USArmyReserve/status/1374692481082793984?ref_src=twsrc%5Etfw)
+
+
+
+“‘热带愤怒’给飞行员和士兵提供了展示他们 “立即准备 “能力的机会。”
+
+
+
+> Tropic Fury gave [#Airmen](https://twitter.com/hashtag/Airmen?src=hash&amp;ref_src=twsrc%5Etfw) and [#Soldiers](https://twitter.com/hashtag/Soldiers?src=hash&amp;ref_src=twsrc%5Etfw) the opportunity to demonstrate their "Ready Now" capabilities. More photos at the link! [@15thWing](https://twitter.com/15thWing?ref_src=twsrc%5Etfw)[https://t.co/TVbiZv3cXg](https://t.co/TVbiZv3cXg) [pic.twitter.com/wB1lV2rZpR](https://t.co/wB1lV2rZpR)
+> — PACAF (@PACAF) [March 19, 2021](https://twitter.com/PACAF/status/1372925075024871432?ref_src=twsrc%5Etfw)
+
+
+
+
+
+### 美国边境危机
+
+24日媒体人汉尼迪发推：“拜登边境停电，在笼子里藏了几千名儿童。”
+
+
+
+> Biden Border Blackout Hides Thousands Of Kids In Cages [https://t.co/BI0I7u13UD](https://t.co/BI0I7u13UD)
+> — Sean Hannity (@seanhannity) [March 24, 2021](https://twitter.com/seanhannity/status/1374692478348111873?ref_src=twsrc%5Etfw)
+
+
+
+
+
+24日汉尼迪发推：“拜登政府要花费8600万给非法移民居住旅店。”
+
+
+
+> Biden Admin To Spend $86 Million On Hotels For Illegal Immigrants [https://t.co/rPQL7RKpAh](https://t.co/rPQL7RKpAh)
+> — Sean Hannity (@seanhannity) [March 24, 2021](https://twitter.com/seanhannity/status/1374694426589720577?ref_src=twsrc%5Etfw)
+
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
 0

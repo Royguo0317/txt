@@ -1,54 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇控制下的EcoHealth因为隐瞒资金去向而被起诉
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1012143/)
+## 第三波疫情使欧洲再次进入封锁状态
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1012676/)
 
-作者： 滴水穿石 编辑：Candy
+翻译：康州盘古农场 – TrueSky
+校对：康州盘古农场 – Mike Li
+编辑：康州盘古农场 – 心照
 
-3月15日，美国＂生态健康联盟＂ 被起诉，因何缘故？
+据3月19日《布雷特巴特》报道：
 
-2015年开始，伪医学家福奇博士控制下的非政府机构 “生态健康联盟”（EcoHealth Alliance），陆续向中共武汉病毒实验室提供370万美元资助经费，以支持武汉病毒研究所对动物進行冠狀病毒的实验。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-269.jpg)
 
-＂生态健康联盟＂组织会长皮特.斯扎克（Pete Daszak) 和中共武汉病毒研究所的石正丽有相当长的密切合作关系。他为什么支持武汉病毒研究所的动物冠状病毒的实验研究呢？因为可以名正言顺在武汉病毒研究所获得多样动物冠状病毒的样本，再进行人类的疫苗研发成果推向其控制的医药市场，在全球市场获得的利润胜于制毒贩毒利益所得。
+意大利大部分地区进入“红区”冠状病毒封锁的状态
 
-武汉病毒研究所的外国执照，有效时间直到2024年1月31号。所以他们资助武汉病毒研究所共享资研究成果，然后通过完美犯罪让人群感染。再假扮成天使, 以其病原体研制成的疫苗和药品类用于患者。美其名是＂医治＂，实为控制人类，从而达到其全球命运共同体归附于共产主义中共的邪恶目的d。这些龌龊的政客与伪科学家为了获取他们与红魔共舞的最高利益，成为了金钱的俘虏，同时也与共产红魔奔向地狱之门。
+在所谓的”第三波”冠状病毒大流行的情况下，欧洲多个国家和城市再次封锁，这让前欧盟成员国英国看起来像一艘”快艇”一样飞速前进。
 
-White Coat Waste Project 起诉EcoHealth，是为了保护美国纳税人的利益，也为了唤起美国民众的思考。为什么他们用自己缴纳的税金去邦助中共做恶，中共又反过来以完美犯罪的形式害死了美国几十万人？
+因为最近冠状病毒病感染人数的的突然上升，意大利、法国、波兰、德国和英国等，本周进入封锁或延长封锁期。
 
-惩恶扬善，正义之举。
+意大利新的封锁措施从周一开始，数千万意大利人陷入所谓的“红色区域”。封锁区域共有11个地区，覆盖了全国大部分地区。这些是意大利政府认为特别容易感染冠状病毒的区域。在这些地区内，除了必要的企业外，所有企业都被关闭，居民受到严格的旅行禁令；和之前的封锁一样，公民如果想要获准离开自己的家园，必须打印并填写一份意大利政府的官方表格。
 
-2021年3月23日
-
-参考源：
-
-
-
-> EcoHealth gets sued for concealing the money trail. 
-> 
-> The discovery documents in this should be good reading. [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/iGjzV1bbeM](https://t.co/iGjzV1bbeM)
-> — DrQuay (@quay\_dr) [March 23, 2021](https://twitter.com/quay_dr/status/1374175691231485952?ref_src=twsrc%5Etfw)
+法国首都巴黎将于周五晚上开始为期一个月的新的封锁。据BBC报道，和其他欧洲国家一样，政府也将此归咎于冠状病毒的”第三波”疫情。同意大利一样，非必要的企业将被关闭，如果没有合法理由，巴黎人将不被允许前往该国其他地区，如果想去，必须填写一份政府表格。
 
 
 
-【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-作者其他文章
-
-
-
-> [揭底伪科学家福奇与其控制的国家卫生研究院（NIH)资助中共武毒所之背后的利益链](https://gnews.org/zh-hans/933169/)
+> Most of Italy Goes into ‘Red Zone’ Coronavirus Lockdown Restrictions [https://t.co/7or0lX8Ow8](https://t.co/7or0lX8Ow8)
+> — Breitbart London (@BreitbartLondon) [March 16, 2021](https://twitter.com/BreitbartLondon/status/1371787579654344705?ref_src=twsrc%5Etfw)
 
 
 
-**欢迎战友加入旧金山金喜农场**
+波兰也将在今晚午夜进入为期三周的封锁。据Politico报道：原因是在“第三波”疫情下，冠状病毒病例迅速增长。
 
-[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+在中欧国家，包括购物中心、滑雪和游泳等休闲活动以及电影院在内的众多企业被勒令关闭。
 
-[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
+德国之声称，德国已经开始了冠状病毒的“第三波”疫情。
 
-[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
+为此，德国今天还在关注进一步的封锁。据路透社报道，德国卫生部长延斯-斯帕恩表示，“不断上升的病例数可能意味着我们无法在未来几周内采取进一步的开放措施， 相反，我们甚至可能不得不采取退步措施”。
 
-[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
+这些事态发展与欧盟首都布鲁塞尔的滚动剧情相映成趣。
+
+欧洲官僚们为此指责：“导致现状的原因是因为整个集团的疫苗接种进展缓慢”。
+
+去年，其他国家在疫苗接种的联系和订单方面取得了迅速的进展。而欧盟声称：“可以通过布鲁塞尔的集体谈判能力，将更快、更便宜地获得疫苗”。结果发现自己被官僚主义的惰性所俘虏，在几个月后才得到订单，而且其合同的形式也很糟糕。
+
+但是，目前还不清楚，是否由于欧洲的低疫苗接种率，使其容易受到所谓的第三次疫情的影响，从而导致采取新的封锁措施。然而，欧洲主流媒体的消息来源一再暗示，即使是间接的，也是有联系的。
+
+然而，这并不能解释在疫苗接种方面遥遥领先于欧盟的英国，却被告知今年晚些时候将迎来另一波疫苗接种潮和封锁。
+
+伦敦Breitbart本周报道说，尽管这次疫苗接种成功，但英国的最高统计学家预测今年秋天会出现冠状病毒的 “第三波”。他对电视台说：”……我们也需要认识到这是一种不会消失的病毒，我毫不怀疑，在秋季还会有一波感染。按照目前的情况，英国政府预计将不会早于6月21日 结束封锁，包括节日和夜总会等大型社会活动。
+
+原文链接：[https://www.breitbart.com/politics/2021/03/19/among-vaccine-woes-europe-goes-into-lockdown-again/](https://www.breitbart.com/politics/2021/03/19/among-vaccine-woes-europe-goes-into-lockdown-again/)
 
 0

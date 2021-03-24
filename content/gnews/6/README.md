@@ -1,133 +1,85 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0324.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1012928/)
+## 《路德时评》重磅解读美太平洋舰队司令警告中共侵台迫在眉睫，及美众议员提议将台湾纳入“北约加”成员
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1013133/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
+直播视频：
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0324.jpeg)图片来源：康州盘古农场 霹雳年
-### 国务卿访欧
 
-3月24日美国现任国务卿布林肯推文：“今天美国政府官员在伊朗、俄罗斯、中国和其他紧迫问题上与法国外长、德国外交部长、和英国外长进行了良好会晤。跨大西洋关系是解决全球挑战的核心。”
 
+《路德时评》2021年3月23日晚间节目主要内容：
 
+一、快讯快评
 
-> Good meeting with French Foreign Minister [@JY\_LeDrian](https://twitter.com/JY_LeDrian?ref_src=twsrc%5Etfw), German Foreign Minister [@HeikoMaas](https://twitter.com/HeikoMaas?ref_src=twsrc%5Etfw), and UK Foreign Secretary [@DominicRaab](https://twitter.com/DominicRaab?ref_src=twsrc%5Etfw) today on Iran, Russia, China, and other pressing issues. The Transatlantic relationship is central to solving global challenges. [pic.twitter.com/2UiH3YYVMh](https://t.co/2UiH3YYVMh)
-> — Secretary Antony Blinken (@SecBlinken) [March 24, 2021](https://twitter.com/SecBlinken/status/1374513793296830464?ref_src=twsrc%5Etfw)
+新闻一
 
+新华网3月23日报道[1]：22日下午，正在福建武夷山市考察的习近平总书记来到朱熹园，了解朱熹生平及理学研究等情况。习近平表示，我们走中国特色社会主义道路，一定要推进马克思主义中国化。如果没有中华五千年文明，哪里有什么中国特色？如果不是中国特色，哪有我们今天这么成功的中国特色社会主义道路？我们要特别重视挖掘中华五千年文明中的精华，弘扬优秀传统文化，把其中的精华同马克思主义立场观点方法结合起来，坚定不移走中国特色社会主义道路。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/朱熹园.jpg)[图片地址](http://www.xinhuanet.com/politics/2021-03/23/1127243217_16164603383121n.jpg)
+路德社评论：
 
+习总加速师计划再次兴起儒家思想来巩固自己的集权统治，中共始终想代表中国的先进文化，1989年之后，共产主义思潮在中共国慢慢走向没落，开始转向认钱为爹的时代，现在以美国为首的西方世界开始围剿中共国经济，认钱为爹也开始失效，现在的意识形态建立以及党内激烈的内斗就成为中共新一轮的主要任务。共产党就是秦始皇商鞅愚民五术加马克思共产邪教思想的混合体，现在他们希望与中国传统文化相结合，以此作为切入点，用表面上仁义道德的形式给国内老百姓洗脑，在道德层面形成垄断。
 
+新闻二
 
+大纪元新闻网3月24日报道[2]：前美国总统川普1月20日离任时给现任总统拜登在白宫留下一封信。他在接受福克斯新闻主持人丽莎·布特（Lisa Boothe）的播客采访时，对这封信函的内容加以了描述。他说：“基本上我祝他好运，你知道，这封信有几页长，是发自内心写的，因为我想看到他好好干。”川普补充说：“我希望他好好干，但这并不包括关闭Keystone（输油）管道，顺便说一下，这（Keystone管道）比用火车运输原油要好得多。但拜登的朋友和支持者沃伦·巴菲特（Warren Buffett）有火车。从来没有人谈论过这个问题。”
+![]()![](https://gnews.org/wp-content/uploads/2021/03/川普.jpg)[图片地址](https://static.dw.com/image/46844116_303.jpg)
+路德社评论：
 
-### 保卫宪法拥枪权
+川普总统在信中明确表示希望拜登总统好好干。川普总统的意思就是希望拜登总统延续川普总统的对共政策，川普总统任期已经准备好打击中共的板砖，拜登只要好好使用这些板砖就能打垮中共。由此也可以看到，美国政策的延续性是非常成熟的，这是中美政权非常大的区别。拜登总统上台时非常强调“愈合”，他说共和党和民主党分裂的时代已经过去。拜登政府只有在两党之间找到共同点才能促进两党协作，现在只有推动灭共才能促使两党合作，而且中共也是导致两党分裂的根本原因，这应该就是川普总统希望拜登总统好好干的目的。
 
-参议员莫-布鲁克斯23日推文：“乔-拜登、南希-佩洛西和查克-舒默试图破坏我们的第二修正案的持枪权。拜登政府和社会主义民主党的目标是把守法公民变成罪犯。我将与所有社会主义者削弱我们第二修正案权利的努力作斗争。”
+二、美太平洋舰队司令警告中共侵台迫在眉睫
 
+大纪元新闻网3月24日报道[3]：本周二，美国印太司令提名人、海军上将阿基里诺表示，中共入侵台湾的威胁是严重的，且比许多人所理解的更迫在眉睫。他强调，面对中共对台湾日渐增强的军事施压，美国应持续维持前进部署与可靠威吓力量，并持续对台军售，协助台湾发展不对称系统，确保台湾有能力自卫。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/将军司令.jpg)[图片地址](https://i.epochtimes.com/assets/uploads/2021/03/GettyImages-543870068-600x400.jpg)
+路德社评论：
 
+1、阿基里诺将军是川普总统在去年12月提名的太平洋舰队总司令，他认为中共侵台迫在眉睫，并提醒美国要认真对待，这是阿诺司令通过以丰富的一线作战经验，对中共和台湾的了解，并基于情报分析的基础上得出的结论。前任太平洋舰队司令认为中共国对台湾发起军事打击将在六年后发生，该想法太过于乐观，文贵先生此前多次爆料，习总加速师现在最想干的就是收复台湾，新任太平洋舰队司令的意见和爆料革命获得情报相吻合，他的意见非常重要，因为太平洋舰队与台湾的关系非常紧密，台湾就在太平洋舰队的辖区范围内。
 
-> Joe Biden, Nancy Pelosi, and Chuck Schumer seek to gut our Second Amendment Right to Bear Arms. The goal of the Biden Admin. and Socialist Dems is to make criminals out of law abiding citizens. I will fight all Socialist efforts to weaken our Second Amendment rights. [pic.twitter.com/aOQ1zRQ1t4](https://t.co/aOQ1zRQ1t4)
-> — Mo Brooks (@RepMoBrooks) [March 23, 2021](https://twitter.com/RepMoBrooks/status/1374497184197062656?ref_src=twsrc%5Etfw)
+2、阿基里诺1984年毕业于美国海军学院，获得物理学学士学位。他随后参加了飞行训练，并在1986年8月获得了双翼。阿基里诺毕业于海军战斗机武器学校(Top Gun)，联合部队参谋学院，并完成了哈佛肯尼迪学院的国家和国际安全管理教育课程。阿基里诺的作战任务包括许多F-14 A/B“雄猫”战斗机中队和F-18 C/E/F“大黄蜂”战斗机中队。他的舰队任务包括142战斗机中队(VF)的幽灵骑手和VF-41的黑ace。他指挥了VF-11的红色开膛手，2号航母空军联队和2号航母战斗群/乔治·h·w·布什战斗群。他已经做了几次延长的部署，以支持行动拒绝飞行，故意的力量，南方守望，高贵的鹰，持久的自由和伊拉克的自由。[4]
 
+3、阿基里诺的实战经验非常丰富，是在实战中被提拔起来的将军。他成为太平洋舰队总司令后，台海将成为最重要的区域，而且他给出的许多意见非常重要，因为美台军事上的情报分享和信息分享都是在他的辖区中进行，他也亲自参与，所以他对台湾的现状非常了解。阿基里诺的实战经验是中共国现任将军都没有经历过的，这才是真正的职业军人，中共军队就是假擀面杖。
 
+4、美国的军事战略重心从中东等地区已经向印太地区转移，单单就这些战略部署对中共就是一种威慑，阿基里诺司令也认识到中共已经不仅仅将台湾作为一个谈判的筹码，而是要采取切实的军事行动。随着美国继续制裁中共国经济，中共党内压力不断升级，攻打台湾是一个非常好的转移国内矛盾的方式。
 
-### 抵制2022北京冬奥
+5、近代对《论语》的解释都认为朱熹是标准的解释，朱熹推崇的礼学思想第一次阉割了中国人，他将四书五经往仕途之路进行解释，然后变成八股文。海洋文明一直在不断进步，中共国却想退回到朱熹的礼学教育，美国是靠赢下一场场战争建立起的国际秩序，这靠的是实力。美军司令是经历过实战历练出来的，而现在的中共国将军普遍都没有实战经验，这和美国相差甚远。
 
-23日参议员斯科特推文：“不能给习总书记一个粉饰罪行的平台。今天，我给奥委会发信，呼吁他们站在自由和人权的立场上，和我一起呼吁把2022年奥运会搬出共产党统治的中国。”
+6、阿基里诺提议要执行一项270亿美元的军事计划，以加强美国在印太和台湾地区的防御实力。这笔军费将被用来建造西太平洋导弹防御系统，以此来压制中共国火箭军的武装打击，并在中共国第一岛链安置中程导弹反击中共，让太平洋舰队各兵种的武器换代，更换一批具有反潜反舰能力的武器，同时，还需要增加对台军售，培训台湾军队，提升台湾军队的战斗力。
 
+7、拜登政府上台后，中共国已经多次派军机靠近台湾岛，同时还在演习中以美军航母作为攻击目标，这都引起了美军的重视，只要中共国对台湾有实质性行动，美国政府将立即加大对军队的拨款，这背后还有军火商利益集团的推动。再结合杨洁篪和王毅在中美谈判中的叫嚣行为，这彻底让西方明白中共已经威胁到美国乃至世界的安全。
 
+三、美众议员提议将台湾纳入“北约加”成员
 
-> General Secretary Xi can’t be given a platform to whitewash his crimes. Today, I sent a letter to [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw) sponsors calling on them to stand up for freedom and human rights and join my call to move the 2022 Olympic Games out of Communist China: [https://t.co/I0cCubwmv8](https://t.co/I0cCubwmv8)
-> — Rick Scott (@SenRickScott) [March 23, 2021](https://twitter.com/SenRickScott/status/1374443469389791234?ref_src=twsrc%5Etfw)
+美国之音3月23日报道[5]：众议院外委会成员佩里(Scott Perry, R-PA)上星期五(3月19日)提出的法案名为“Taiwan PLUS Act”，其目的是要美国将台湾视同“北约加”其他国家的成员之一，在军售上享有和这些国家同等的待遇。目前的“北约加”包括日本、澳大利亚、韩国、以色列及新西兰。此前也曾经有国会议员主张将印度纳为“北约加”成员，将“北约加5”扩大为“北约加6”。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/台湾进北约.png)[图片地址](https://gdb.voanews.com/5B09ADF5-CCE8-44F3-8554-FDA908371AB1_cx0_cy8_cw0_w1023_n_r1_st.jpg)
+路德社评论：
 
+1、一旦该法案通过，其影响力将远超过《台湾关系法》，“北约加”成员国享受与北约成员国同等待遇，只要任何一位成员国受到中共国攻击，等于中共国向所有北约成员国宣战，该法案一旦通过，中共绝不敢再对台湾下手。
 
+2、北约及北约加所有成员国的GDP总量超过中共国好几倍，单用经济制裁就能打垮中共，这也看出美国一旦想拉帮结派对付中共国，那绝对是毫不留情。
 
-### 内心有国家和军人吗？
+3、“北约加”成员国包括日本、澳大利亚、韩国、以色列和新西兰，，印太国家都在北约加成员国中，到时印太联盟将全面和北约组织形成同盟。
 
-3月24日，福克斯新闻称 “副总统哈里斯在空军二号上屡次不敬军礼，打破先例”
+4、北约包围圈从俄罗斯转向中共国，印太联盟之所以没有着急纳入台湾，一方面是因为美国暂时不想让台海形势太过于紧张，另一方面也是想考察台湾，川普政府时期对台的一系列优惠政策，但是台湾却不敢公开与美国站队，现在美国想重新给台湾一次站队的机会。
 
+5、该法案的提出与太平洋舰队司令的发言内容肯定是一套完整的推进计划，中共国在新疆犯下种族灭绝罪，以及他们在香港的所作所为彻底让西方国家看清楚中共的邪恶本质，该法案一旦通过，中共不得不做出选择，如果中共没有行动，这就意味着台湾变向成为美国认可的独立国家。如果中共国对台湾采取行动，美国及盟军就可以借机消灭中共。
 
+6、台湾如果要成为北约加成员国，首先得美国政府同意，其次是北约成员国同意，蓬佩奥国务卿在卸任前多次前往北约进行协商，同时也在促成印太联盟的建立，由此可以判断美国这么做就是想把台湾纳入北约加成员国，这对中共国来说是一个不可能完成的考验，无论中共如何行动都只有死路一条。
 
-> VP Harris repeatedly fails to salute military on Air Force Two, breaking with precedent [https://t.co/ToAd7T6din](https://t.co/ToAd7T6din)
-> — Fox News (@FoxNews) [March 24, 2021](https://twitter.com/FoxNews/status/1374514885279707144?ref_src=twsrc%5Etfw)
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
 
+参考文章：
 
+[1][http://www.xinhuanet.com/politics/2021-03/23/c\_1127243217.htm](http://www.xinhuanet.com/politics/2021-03/23/c_1127243217.htm)
 
-### 反抗拜登涨税
+[2][https://www.epochtimes.com/gb/21/3/23/n12831164.htm](https://www.epochtimes.com/gb/21/3/23/n12831164.htm)
 
-23日Just the News 推文：“就业创造者网说‘天呐，绝不！’‘这不在我们的监督之下！’。对小企业加税的想法说不！”
+[3][https://www.epochtimes.com/gb/21/3/23/n12831122.htm](https://www.epochtimes.com/gb/21/3/23/n12831122.htm)
 
-小议：拜登欲对美国人取消拥枪权，对小企业主这样的中产阶层加征税收，都是在一步步削弱有经济基础、又有传统道德观和正义良知的人，本质上是在配合中共的3F计划。
+[4][https://en.wikipedia.org/wiki/John\_C.\_Aquilino](https://en.wikipedia.org/wiki/John_C._Aquilino)
 
+[5][https://www.voachinese.com/a/republican-congressman-scott-perry-introduces-taiwan-plus-act-to-treat-taiwan-as-nato-plus-countries-in-arms-sales-20210322/5824477.html](https://www.voachinese.com/a/republican-congressman-scott-perry-introduces-taiwan-plus-act-to-treat-taiwan-as-nato-plus-countries-in-arms-sales-20210322/5824477.html)
 
+文章撰写：【重生】  编辑：【香柏树】
 
-> ‘HELL NO! NOT ON OUR WATCH!’: Job Creators Network says no to the idea of small business tax hikes [#JustTheNews](https://twitter.com/hashtag/JustTheNews?src=hash&amp;ref_src=twsrc%5Etfw) [@alexnitzberg](https://twitter.com/alexnitzberg?ref_src=twsrc%5Etfw) [@JobCreatorsUSA](https://twitter.com/JobCreatorsUSA?ref_src=twsrc%5Etfw) [https://t.co/32uFiM3yQu](https://t.co/32uFiM3yQu)
-> — Just the News (@JustTheNews) [March 24, 2021](https://twitter.com/JustTheNews/status/1374526266964070400?ref_src=twsrc%5Etfw)
-
-
-
-### 不明飞行物（UFO）
-
-前五角大楼项目负责人称：“UFO报告将是令人信服的。”
-
-
-
-> Former Pentagon program chief: UFO report will be compelling [https://t.co/ojrjYQacTj](https://t.co/ojrjYQacTj)
-> — Newsmax (@newsmax) [March 24, 2021](https://twitter.com/newsmax/status/1374588039947751425?ref_src=twsrc%5Etfw)
-
-
-
-### 军事
-
-“美国军队正处于过去40年中最重要的转型之中。”
-
-
-
-> The [@USArmy](https://twitter.com/USArmy?ref_src=twsrc%5Etfw) is in the middle of the most significant transformation in the past 40 years. 
-> 
-> Read more: [https://t.co/YXxEKVZb0w](https://t.co/YXxEKVZb0w)[#People](https://twitter.com/hashtag/People?src=hash&amp;ref_src=twsrc%5Etfw) | [#Modernization](https://twitter.com/hashtag/Modernization?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YYrYl8kqUv](https://t.co/YYrYl8kqUv)
-> — U.S. Army Reserve (@USArmyReserve) [March 24, 2021](https://twitter.com/USArmyReserve/status/1374692481082793984?ref_src=twsrc%5Etfw)
-
-
-
-“‘热带愤怒’给飞行员和士兵提供了展示他们 “立即准备 “能力的机会。”
-
-
-
-> Tropic Fury gave [#Airmen](https://twitter.com/hashtag/Airmen?src=hash&amp;ref_src=twsrc%5Etfw) and [#Soldiers](https://twitter.com/hashtag/Soldiers?src=hash&amp;ref_src=twsrc%5Etfw) the opportunity to demonstrate their "Ready Now" capabilities. More photos at the link! [@15thWing](https://twitter.com/15thWing?ref_src=twsrc%5Etfw)[https://t.co/TVbiZv3cXg](https://t.co/TVbiZv3cXg) [pic.twitter.com/wB1lV2rZpR](https://t.co/wB1lV2rZpR)
-> — PACAF (@PACAF) [March 19, 2021](https://twitter.com/PACAF/status/1372925075024871432?ref_src=twsrc%5Etfw)
-
-
-
-
-
-### 美国边境危机
-
-24日媒体人汉尼迪发推：“拜登边境停电，在笼子里藏了几千名儿童。”
-
-
-
-> Biden Border Blackout Hides Thousands Of Kids In Cages [https://t.co/BI0I7u13UD](https://t.co/BI0I7u13UD)
-> — Sean Hannity (@seanhannity) [March 24, 2021](https://twitter.com/seanhannity/status/1374692478348111873?ref_src=twsrc%5Etfw)
-
-
-
-
-
-24日汉尼迪发推：“拜登政府要花费8600万给非法移民居住旅店。”
-
-
-
-> Biden Admin To Spend $86 Million On Hotels For Illegal Immigrants [https://t.co/rPQL7RKpAh](https://t.co/rPQL7RKpAh)
-> — Sean Hannity (@seanhannity) [March 24, 2021](https://twitter.com/seanhannity/status/1374694426589720577?ref_src=twsrc%5Etfw)
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
-
-0
++1
