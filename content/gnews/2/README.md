@@ -1,27 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 朝鲜进行新的导弹试验
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1011912/)
+## 拜登政府删除了国务院网站中记录中共种族灭绝人权侵犯行为的网页
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1011905/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+翻译-康州盘古农场-战友小鸡
+校对-康州盘古农场-Mike Li
+编辑-康州盘古农场-轰炸机
 
-编辑上传   水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/N-16.jpg)thewest.com.au
-《法兰西24》报道，朝鲜上周末发射了短程导弹。朝鲜无视美国政府提出的恢复谈判的建议进行新的导弹试验。美方官员们试图淡化导弹试验的重要性，指出它们不包括在联合国安理会旨在阻止朝鲜追求核计划的决议范围内。
+据《国家动脉》，作者:娜塔莉•温特斯(Natalie Winters )，于2021年3月23日发布：
 
-美国国务卿安东尼·布林肯(Antony Blinken)上周敦促中共利用其“巨大的影响力”说服朝鲜放弃核计划。就在几天前，金正恩(Kim Jong Un)的妹妹威胁了美国和韩国举行的联合军事演习。金与正(Kim Yo Jong)抨击了美国正在进行的与韩国的常规军事演习，认为这是入侵朝鲜的彩排, 并警告美国政府，“如果它想在未来的四年里安然入睡，它最好在第一步就别‘玩火’。”
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-264.jpg)
 
-韩国国防部周三在一份声明中表示，周日上午探测到朝鲜疑似发射了两枚巡航导弹。韩国表示，这些导弹是在朝鲜西海岸发射的，表示韩国正在对此进行分析。
+美国总统拜登的国务院网站删除了一个专门记录中共对维吾尔人虐待行为的网页。
 
-声明说，韩国与美国合作密切监视朝鲜的导弹活动，但指出韩国不会公布有关朝鲜的所有信息。
+这个网站—“中共在新疆的人权侵犯”，包含五个部分:“新疆发生了什么”、“强迫人口控制”、“强迫劳动”、“侵犯宗教自由”、“蓬佩奥国务卿的声明”。
 
-拜登政府一直公开表示希望与朝鲜进行谈判，尽管朝鲜政权拒绝了两国对话的呼吁。拜登本人对记者说，导弹试验不是挑衅。他说“他们所做的并没有什么新的改变。”
+“中共正在对中国新疆的维吾尔族妇女、男子和儿童以及其他突厥族穆斯林少数群体成员开展有针对性的运动。记录在案的侵犯人权行为包括强制控制人口的方法、强迫劳动、在集中营中的任意拘留、酷刑、身体和性虐待、大规模监视、家庭分离以及压制文化和宗教表达方式，”该网站的一个存档版本解释道。
 
-拜登政府的一名官员补充说，拜登政府并不认为周末的导弹试验关闭了与朝鲜谈判的大门。美国国家安全顾问杰克·沙利文(Jake Sullivan)还将于下周会晤韩国和日本的国家安全顾问，讨论解决朝鲜问题的途径。
+然而，现在，同样的链接将用户引导到一个已不存在的页面，显示出一条信息：“我们对造成的不便表示歉意…”
 
-参考链接：
+该网站似乎在2021年1月21日就被清理了–这是拜登政权执政的第一天。
 
-[https://www.france24.com/en/asia-pacific/20210323-north-korea-conducted-short-range-missile-test-white-house-says](https://www.france24.com/en/asia-pacific/20210323-north-korea-conducted-short-range-missile-test-white-house-says)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-23-at-9.30.23-AM-800x370-1.png)
 
-0
+这里有川普时代的网站截图，该网站曾记载对抗中共侵犯人权的行为。
+
+文章来源：
+
+
+
+> [Biden’s State Dept Just Deleted a Website Which Chronicled China’s Genocidal Human Rights Abuses.](https://thenationalpulse.com/breaking/biden-deletes-uyghur-state-website/)
+
+
+
++1

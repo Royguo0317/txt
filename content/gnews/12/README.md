@@ -1,82 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 视频：种族主义是种族主义者的问题，也是产生种族主义的社会问题
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1011799/)
+## 《路德社》精选新闻简讯：美日两国明确将联合保卫台湾应对中共国威胁
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1011800/)
 
-内容：
+出品：《路德社》   编辑：《路德社》精选新闻专栏组
 
-I am a descendant of slaves.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/032411.jpg)
 
-我是一个奴隶的后裔
+Newsmax最新报道：日本共同社周日援引多位政府消息人士的话说，日本和美国国防部长在上周的会晤中同意，在中国大陆和台湾发生军事冲突的情况下，将密切合作。据新闻媒体报道，美国国防部长劳埃德·奥斯汀在周二会见日本防卫大臣岸信介时提出了这个问题，尽管没有讨论两国应如何协调应对此类紧急情况的细节。
 
-My great-grandmother, Mary Thomas, born in 1865,
+评论：
 
-我的曾祖母，玛丽·托马斯，生于1865年
+美国在地缘政治上授予日本更高的军事地位，美国彻底松绑日本的军事发展，让日本承担起保卫台湾的责任。如果中共国攻打台湾，日本军队将主动出击保卫台湾，那日本军队就不能再称为自卫队，而应该改称国防军。日本自卫队反潜能力世界第二，扫雷能力世界第一，韩国的萨德系统、日本爱国者和台湾的爱国者已经形成一套完整的导弹防御系统。美国从日本到台湾，再到菲律宾已经形成一道防线，南海则由英、法、澳为首的北约盟军联合牵制中共国，只要中共对台湾动武之日，就是中共灭亡之时。
 
-Was the child of a slave – this is just three generations back from me.
+[援引原文](https://www.newsmax.com/headline/japan-us-defense-chiefs/2021/03/21/id/1014565/:joy:)
 
-是一名儿童奴隶 – 到我这儿是三代人
-
-I grew up in the segregated South, I was bused to a segregated school
-
-我在种族隔离的南方长大，我被送往一所隔离的学校上学
-
-And on weekends the Ku Klux Klan burned crosses on lawns in our neighborhood.
-
-周末，3K党(Ku Klux Klan)在我们的邻里附近的草坪上烧了十字架
-
-When I was in high school, I was asked by a little girl for whom I babysat,
-
-当我上高中的时候，有一个小女孩问我，我是谁的保姆
-
-If I was an n-word, because her dad had used that word for me.
-
-如果我是黑奴，因为她的父亲曾用过这个词形容我
-
-I know the ugly face of racism
-
-我知道种族主义的丑陋嘴脸
-
-I lived racism. I have experienced racism.  And I survived racism.
-
-我在种族主义之中生活过。 我经历过种族主义。而且我在种族主义中幸存下来
-
-And through this process, I learned a simple truth
-
-通过这个过程，我学到了一个简单的道理
-
-Racism is not the problem of the person who experiences it.
-
-种族主义不是经历它的人的问题
-
-Those of us who experience racism cannot and should not, internalize it.
-
-我们当中那些经历种族主义的人们不能也不应将其内部化
-
-Despite the impact it can have on our everyday lives.
-
-尽管它会影响我们的日常生活
-
-We must face it down every time, no matter whom it’s directed towards.
-
-无论它是针对谁的，我们每次都必须面对它
-
-Racism is the problem of the racist, and it is the problem of the society that produces the racist-
-
-种族主义是种族主义者的问题，也是产生种族主义的社会问题
-
-and in today’s world, that is every society.
-
-在当今世界，那是每个社会的问题
-
-———————————————–
-
-英听校：    康州盘古农场 – Layka
-翻译：       康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发文：康州盘古农场-轰炸机
+本文作者：《重生者》
+审核校对：鲁邦五世
+上传排版：糖果儿
 
 0

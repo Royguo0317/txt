@@ -1,75 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅】如何彻底终结CCP病毒大流行（二）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1011043/)
+## 海莉：社会主义正在阻碍社会正义
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1011219/)
 
-五月花写作组 ｜ 作者：北美教练陪练｜ 编辑、美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/03/如何彻底终结CCP病毒大流行V2.jpg)
-### **往期链接：**
+- 编辑：Victor Torres
+- 发稿：Ranting
 
-[【重磅】如何彻底终结CCP病毒大流行（一）](https://gnews.org/zh-hans/1010646/)
 
-* * *
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-### 开放羟氯喹为非处方药，就这么简单的事情！
+**西班牙2021年3月24日电/西喜社——**3月23日，DailyWire刊登了前南卡罗来纳州州长和前美国驻联合国大使妮基·海莉（Nikki Haley）撰写的一篇文章。
 
-对抗CCP病毒必须要有正确的方案。我们都知道羟氯喹有效（对预防和轻症患者治疗有效，但对重症无效）。开放羟氯喹为非处方药，多么简单的事情，就是不做。什么原因？“你懂的”！利益链条哇！大药厂要挣钱，他们要挣棺材钱！无良政客、精英医生（尤其是有话语权的，所谓的学术带头人，key opinion leader）可能很多已经被收买。
+内容如下：
 
-全世界最早说羟氯喹可以治疗CCP病毒的是路德节目中的莫博士和他的妻子（3）。据闫丽梦博士透露，羟氯喹被使用已有60年的历史，针对病毒对人体所造成的伤害，羟氯喹实际上都有很好的疗效，能有效针对病毒的各种致病机理，是一个可长期服用的安全药物，只要注意遵守安全的服用剂量要求即可。 据她披露，在中共国，达到某些级别的高官都知道羟氯喹对新冠病毒有治疗作用，这些高官和一些军医院的医生可能自己也在服用。但是这些重要资讯并不是所有的中共国人都知道，那些面临高风险的前线医护人员也不知道这一点。至于为什么中共不公布这些信息？闫丽梦博士说：中共不公布病毒来源的真实信息、病毒的信息和它的真实行为模式，不是因为中共可以找到疫苗，它们不想让全世界知道这病毒到底是怎么回事，并拖延真正科学界应对病毒作出的反应。
+我是个女人
 
-讲羟氯喹有效就像捅了主流媒体、精英医生们的肺管子一样。福奇（Anthony Fauci）博士，是几届美国总统医学顾问。为了推动病毒大流行，他先是教导美国民众不用带口罩，后来又改口说带应该带口罩，又辩解说开始口罩少，怕民众抢购。民众会和医务人员抢口罩？看看民众疫情期间捐了多少口罩？这真是对善良的美国人民的侮辱！他现在又是拜登总统的防疫顾问，又开始兜售给12岁以下的儿童打疫苗！2020年3月20日福奇博士别有用心地反对用羟氯喹预防和治疗CCP病毒感染。事实上2005年8月22日，美国CDC曾发表过一篇文章：羟氯喹可以预防和治疗SARS冠状病毒感染（4）。但福奇博士对CCP病毒的策略是，黑不提白不提，揣着明白装糊涂。
+我是一个棕色皮肤的女人。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-24-at-7.03.48-AM.png)福奇（Anthony Fauci）博士，美国国立卫生研究院免疫与传染病主任几届美国总统医学顾问。所谓的学术带头人，key opinion leader
+我是一个父母来自其他国家的棕色皮肤的女人。
 
-公众对福奇博士提出质疑。美国医学院联盟、美国传染病学会、美国儿童疾病研究学会、美国CDC等医学界精英大佬们竟然联合起来，联名力挺福奇博士（5-9）。
+把这些加起来，我是什么？
 
-Vladimir Zelenko医生用羟氯喹治疗了成功治疗了700多个CCP病毒感染的病人后，曾给川普总统写信说明羟氯喹的效果（10）（11）。网上攻击Vladimir Zelenko的文章铺天盖地。 大量Zelenko医生的Youtube 视频被下架。纽约时报攻击说Zelenko医生是个乡下医生，住在一个破烂不堪的房子里，兜售没有FDA通过的羟氯喹（12）。在无数次证明羟氯喹治疗效果后，Zelenko医生说羟氯喹反对者是集体大屠杀的凶手（13）。最终，Zelenko医生被迫离开他居住的小镇（14）。
+如果你听自由派领导人说，我的性别、肤色和家庭让我成为受害者，仅此而已。他们的说法是，我的处境对我不利，我也没办法。事实上，他们说，事情是如此糟糕，以至于我们需要翻转桌子，给每个人发不同的牌，甚至可能完全开始一个新的游戏。根据他们的说法，除了另一场美国革命之外，不需要其他任何东西，因为这个国家据说已经烂到了极点。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-24-at-7.04.19-AM.png)Vladimir Zelenko医生
+但这些自由主义者是错误的。当他们用性别和肤色来定义人们时，他们就错了—那是一种侮辱—而且他们对美国的看法也是错误的。
 
-Brian Tyson是治疗CCP病毒病人的一线医生，他表示：CCP病毒是根据某些人的需要弄到美国的瘟疫，羟氯喹效果极其有效，根本无需疫苗（15）（16）。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-24-at-7.04.44-AM.png)Brian Tyson医生
-（未完待续）
+美国不是性别歧视、种族主义或腐朽的。恰恰相反，美国是历史上第一个拒绝性别歧视和种族主义的国家。《独立宣言》明确指出，任何形式的歧视在美国都没有地位。前几代人为了让我们更接近自由和人人平等的建国承诺而奋斗，甚至牺牲。
 
-* * *
+毫无疑问，还有很多工作要做。但今天的自由主义者正站在进步的道路上。他们宣称自己是在为社会正义而战，但他们实际上是在使一个更公正的社会无法实现。他们声称自己是 “进步的”，但他们却在拖美国的后腿。
 
-### 参考资料：
+我所描述的世界观是由几乎所有的领先的民主党人和他们在媒体和高等教育中的盟友所持有的，他们痴迷于美国是完全不公正的想法。有人称之为 “醒”。有人称它为 “身份政治”。在某种程度上，这是一个准确的描述， 但有一些更深和更危险的的东西在起作用。
 
-（3）[https://www.youtube.com/watch?v=m3PQss3oMkg&t=113s](https://www.youtube.com/watch?v=m3PQss3oMkg&amp;t=113s)
+这东西就是社会主义。
 
-（4）[Martin J Vincent](https://pubmed.ncbi.nlm.nih.gov/?term=Vincent+MJ&amp;cauthor_id=16115318), [Eric Bergeron](https://pubmed.ncbi.nlm.nih.gov/?term=Bergeron+E&amp;cauthor_id=16115318), [Suzanne Benjannet](https://pubmed.ncbi.nlm.nih.gov/?term=Benjannet+S&amp;cauthor_id=16115318), [Bobbie R Erickson](https://pubmed.ncbi.nlm.nih.gov/?term=Erickson+BR&amp;cauthor_id=16115318), [Pierre E Rollin](https://pubmed.ncbi.nlm.nih.gov/?term=Rollin+PE&amp;cauthor_id=16115318), [Thomas G Ksiazek](https://pubmed.ncbi.nlm.nih.gov/?term=Ksiazek+TG&amp;cauthor_id=16115318), [Nabil G Seidah](https://pubmed.ncbi.nlm.nih.gov/?term=Seidah+NG&amp;cauthor_id=16115318), [Stuart T Nichol](https://pubmed.ncbi.nlm.nih.gov/?term=Nichol+ST&amp;cauthor_id=16115318). Chloroquine is a potent inhibitor of SARS coronavirus infection and spread. Virol J  2005 Aug 22;2:69. doi: 10.1186/1743-422X-2-69.
+大多数人认为社会主义只是关于经济，其实不然。
 
-（5）[https://www.aamc.org/news-insights/press-releases/aamc-statement-support-anthony-fauci-md](https://www.aamc.org/news-insights/press-releases/aamc-statement-support-anthony-fauci-md)
+社会主义声称要在日常生活的每一个部分实现平等。但这不是机会平等—每个人都可以自由翱翔。而是结果的平等—每个人都注定是一样的。
 
-（6）[https://abcnews.go.com/Politics/doctors-cry-foul-white-house-targets-fauci-cdc/story?id=71773393](https://abcnews.go.com/Politics/doctors-cry-foul-white-house-targets-fauci-cdc/story?id=71773393)
+左派称之为 “公平”，但没有什么公平可言。他们的整个愿景基于提供对美国人民完全控制的政府。目标不是要提升人们的地位，而是要让人们平起平坐—这意味着要扯下一些人。然而，在这个过程中，如果不把美国撕裂，就没有办法做到这一点。
 
-（7）[https://www.societyforpediatricresearch.org/joint-statement-in-support-of-dr-fauci-of-science-and-public-health](https://www.societyforpediatricresearch.org/joint-statement-in-support-of-dr-fauci-of-science-and-public-health)
+证据就在我们眼前上演。
 
-（8）[https://www.pop.org/cleanvaccine/?gclid=Cj0KCQiArvX\_BRCyARIsAKsnTxPJSh7wudv8jsfiY3RUdpKWDGwLM-brfaypcMZhI5IgcbFVJDJ3gf8aAuq3EALw\_wcB](https://www.pop.org/cleanvaccine/?gclid=Cj0KCQiArvX_BRCyARIsAKsnTxPJSh7wudv8jsfiY3RUdpKWDGwLM-brfaypcMZhI5IgcbFVJDJ3gf8aAuq3EALw_wcB)
+左派持续关注冤屈、受害和特权，使人们对彼此充满了愤怒和仇恨。结果是审查制度，因为人们对那些他们不同意的人，特别是右派，大喊大叫，噤若寒蝉。这里存在暴力，因为如果美国真的是不公正的，那么它就应该被推翻。
 
-（9）[https://www.idsociety.org/news–publications-new/articles/2020/isda-statement-in-support-of-anthony-fauci-m.d.-fidsa](https://www.idsociety.org/news--publications-new/articles/2020/isda-statement-in-support-of-anthony-fauci-m.d.-fidsa)
+最后，自由主义将导致暴政， 政府可以决定我们说什么，我们想什么， 以及我们如何生活。
 
-（10）[https://www.herald.ng/after-successfully-treating-700-covid-19-patients-doctor-pens-letter-to-trump-on-drug-regimen/](https://www.herald.ng/after-successfully-treating-700-covid-19-patients-doctor-pens-letter-to-trump-on-drug-regimen/)
+这是社会主义的必然结果。这与真正的社会正义截然相反，而我们的国家实际上需要的是社会正义。实现一个更公正的社会的方式不是通过拒绝或取代美国。而是要重新相信美国的指导原则。
 
-（11）[https://www.youtube.com/watch?v=Fz4Nc967ZVo](https://www.youtube.com/watch?v=Fz4Nc967ZVo)
+左派最大的谎言是，美国是建立在不公正的基础上。的确，我们的创始人不是圣人—远非如此。确实有很多真正可怕的罪恶玷污了我们国家的过去。但这些事实并不能改变这样一个事实，即美国建国时承诺人人享有自由和平等权利。这些原则是我们国家成功的源泉，它们仍然是我们努力达到的标准。近250年来，这些原则帮助我们纠正了过去的错误，并向更多的人兑现了美国的承诺。
 
-（12）[https://www.nytimes.com/2020/04/02/technology/doctor-zelenko-coronavirus-drugs.html](https://www.nytimes.com/2020/04/02/technology/doctor-zelenko-coronavirus-drugs.html)
+为了实现更美好的未来，每个人都有机会过上最好的生活，也需要这些原则。如果我们接受这些原则，我们将打破阻碍人们前进的障碍—在我们的经济、教育系统和文化中。我们将使美国更接近我们的理想，就像弗雷德里克-道格拉斯、苏珊-B-安东尼和其他许多人在我们的历史上所做的那样。
 
-（13）[https://www.israel365news.com/154281/dr-zelenko-vindicated-after-hydroxychloroquine-proven-effective-calls-naysayers-mass-murderers/](https://www.israel365news.com/154281/dr-zelenko-vindicated-after-hydroxychloroquine-proven-effective-calls-naysayers-mass-murderers/)
+但如果我们拒绝美国的原则，我们就注定要走向一个黑暗的未来—一个不那么平等和自由的未来，而不是更平等自由。这将是一个审查、暴力和社会主义暴政的未来。听我一个棕色皮肤的女人说：美国比这更好。
 
-（14）[https://nypost.com/2020/05/21/doctor-who-promoted-covid-cocktail-leaves-jewish-community/](https://nypost.com/2020/05/21/doctor-who-promoted-covid-cocktail-leaves-jewish-community/)
+**新闻来源：[DailyWire](https://www.dailywire.com/news/haley-socialism-is-standing-in-the-way-of-social-justice)**
 
-（15）[https://www.youtube.com/watch?v=PE3QfTnIazU&t=1s](https://www.youtube.com/watch?v=PE3QfTnIazU&amp;t=1s)
-
-（16）[https://www.thedesertreview.com/news/dr-brian-tyson-speaks-at-america-s-frontline-doctors-in-washington-dc/article\_4bd9aae0-11fb-11eb-a470-dbd980aa27bd.html](https://www.thedesertreview.com/news/dr-brian-tyson-speaks-at-america-s-frontline-doctors-in-washington-dc/article_4bd9aae0-11fb-11eb-a470-dbd980aa27bd.html)
-
-* * *
-
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
-
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
-
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
 
 0

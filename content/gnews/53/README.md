@@ -1,93 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫评估阿拉斯加会面是“实质性的”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1011181/)
+## [疫情下的西班牙] 睾丸酮失效易导致严重的中共病毒症——意大利和西班牙科学家发现一种新的治疗方法
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1011246/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+- 作者：gokuabuela
 
-编辑上传 水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/C-22-9.jpg)nypost.com
-白宫2021年3月22日的新闻简报透露，阿拉斯加会面“是一次实质性的会议”，“我们期待着与中共国就一系列广泛的问题进行强硬和直接的会谈”。由此推断，“拜习会”在4月份上演将是大概率事件。【1】
 
-白宫曾多次透露，是否存在“拜习会面”将取决于对阿拉斯加会面的评估。看了杨、王在阿拉斯加的表演，像文贵先生在第一时间指出的，这是在演戏，是勾兑或正在勾兑中的剧目。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-现将昨天白宫新闻简报【2】涉及中共国部分摘译，供战友参考、分析。
+**西班牙2021年3月24日电/西喜社——**睾丸酮染色体的基因变异导致其功能不足，是ICU男性中共病毒患者较多的几个原因之一。这种遗传变异常见于25%至30%的欧洲人。这当然不是唯一的解释，但它是患有严重中共病毒的风险的情况之一。
 
-问：我能再问一个问题吗？周末的会议–上周，与中共国–
+研究已由意大利锡耶纳大学领导，由西班牙的贝尔维切生物医学研究所 (Idibell)，瓦勒德希伯伦（VALL D HEBRON）、 拉巴斯(LA PAZ)、 里奥哈健康基金会(la Fundación Rioja Salud) 和西博罕见疾病研究所（CIBER）以及西班牙的一些病人共同参与。
 
-普萨基：当然。
+关键是这种基因变异导致睾丸激素染色体无效，不能很好地捕获激素。而睾丸激素是人体调节炎症的工具之一，这种功能失常会降低一个人调节炎症的能力，多数情况下会加重中共病毒的病情。
 
-问：中共国在阿拉斯加的代表团，拜登从那次会面中得到了他想要的东西吗？他对此有什么样的反应？那么，（这次会面）会把两国引向哪里去呢？例如，拜登和习近平现在举行某种双边会晤的可能性是大还是小？你能告诉我们什么吗？
+功能失常的原因是某种过量：染色体中某种氨基酸的拷贝过多，达到9至36份。研究人员已经能够确定，当超过23份时，患严重中共病毒的风险就会增加。23份以下，则几乎没有影响，统计来自于没有其他疾病的中共病毒病人，不分年龄。
 
-普萨基：嗯，我们期待着与中共国就一系列广泛的问题进行强硬和直接的会谈，而事实正是如此。
+睾酮受体在X染色体上。女人有两个X，虽然看起来很矛盾，但她们却用这双重的机会来稀释这个问题。如果她们有那种多余拷贝的基因变异，通过与一个或另一个X的作用，她们最终会稀释。而且她们还有其他的激素来调节炎症。 而男性则没有这样的功能，这也是男性患者较多的一个原因。
 
-我知道大家都很关注一些公共表演，或者，你知道，更戏剧化的公开报道，但我可以向你保证，从我们国家安全小组的谈话来看，这是一次实质性的会议，这是一个为期两天的会议。他们涵盖了一系列问题，从我们对人权侵犯的担忧、到对香港、台湾的侵略–我们关心的问题、经济问题–我们对经济和知识产权的担忧。当然，我们也会讨论我们合作的方式。
+意大利的研究也在西班牙的几个中心进行，以确保变异体的存在不受地理因素影响。
 
-所以我们在评估我们现在的状况，我们现在就在这里，我希望总统一定会和他的国家安全团队交谈–杰克·沙利文和托尼·布林肯，我们的国务卿和国家安全顾问。在前进的道路上，我们将与盟国和伙伴进行密切磋商，我们将继续与中共国合作，当然，向前看，这符合美国人民的利益。
+“这是一种相对风险，远低于年龄和并发症引发的病毒感染，但高于因为于某一种血型而产生的易感性。但它还是有足够的影响的，虽然我们不能说它是决定性的”，罗杰-克罗布兰（Roger Colobran ），在 VHIR 诊断免疫学组的研究员和这项研究的作者之一，如此说道。
 
-但就下一步而言，安克雷奇（Anchorage）是一个特别的会议，我们没有更多的东西来推断下一步要做什么。
+但研究人员已经在考虑测试对这种变异的中共病毒患者使用睾丸激素，以防止病情加重。
 
-问： 今天，美国、欧盟和其他国家宣布对中共国实施新的制裁？
+**简评：**
 
-普萨基：是的。
+**经过一段时间的摸索和研究，针对中共病毒的一些方案被不断发现和实施，对疫情的治疗也有一定的帮助，这是好事。**
 
-问：关于侵犯人权，在安克雷奇发生的事受到影响到了吗？换言之，如果满足某些条件，美国是否会不参与这一进程了？两者之间有联系吗？
+**我们注意到“ 这种遗传变异常见于25%至30%的欧洲人”这句话，是不是验证了中共病毒是有人种针对性的，是“灭白计划”的一部分？ 有没有医学界的朋友，可以查证一下，亚洲人、中国人、有色人种，受这种遗传变异的概率是多少？**
 
-你认为下一步该怎么办？中共国对欧盟进行了报复，你认为会对美国报复吗？如果他们不采取行动改变对这些少数民族的虐待，你还会采取什么制裁措施？
+**正如7哥之前说的，疫情爆发后，一定会有很多的研究成果和疫苗问世，果不其然，但是，有一样是真正解决问题的吗？**
 
-普萨基：好吧，关于第一个问题，我不知道会有什么联系或者（原）计划的撤回。显然，这是对我们认为的严重侵犯人权行为的反应–显然，欧洲人也有这种感觉–针对新疆少数民族和宗教群体的成员，任何会议都不会改变我们对此的担忧。
+**这些成果大多数都是战术性的，而非战略性的，甚至有的只能称是暂时性的，因为中共病毒有变种，治疗方法和疫苗不一定能针对所有变种。什么时候，欧美的科学界，医学界，政界能真正形成一股合力，直抓本质—病毒溯源，掐死中国病毒研制、释放的源头，才能真正研制出有效的疫苗和治疗方法。    引用一个闫博士描述过的经典比喻：一群狗拼命抢一块骨头，抢到了又怎么样，人还可以扔第二块、第三块，必须先解决人。**
 
-正如你所指出的，我们与英国、加拿大和欧洲联盟一道采取了行动，他们也对与这些暴行有关的侵犯人权者采取了行动。你知道，这表明我们一直致力于多边合作，促进对人权的尊重，我们继续严重关切中共国在新疆对维吾尔人犯下的反人类罪和种族灭绝罪。
+**新闻来源：[先锋报](https://www.lavanguardia.com/vida/20210323/6604130/fallo-testosterona-predispone-covid-grave.html)**
 
-但我没有任何东西可以预测你（设想的）未来的制裁。显然，这是上周会面提出的问题，也是几周前拜登与习近平谈话时提出的问题。
+编辑：蚂蚁兄弟；校对：阿伯塔；初审：神奇四侠；发稿：Ranting
 
-问：如果中共国不改变态度，美国会怎么做？这算是一种一次性制裁吗？或者在今后的道路上，是否会重新审视这一点，是否有可能实施进一步的制裁？我的意思是，他们（中共国）没有表示任何改变行为的迹象，事实上，他们几乎在加倍展示，他们对这些少数群体没有做错什么。
+[疫情下的西班牙专栏目录](https://gnews.org/zh-hans/993776/)
 
-普萨基：嗯，很明显，制裁是为了阻止罪行，但我不打算裁决或采取任何行动，在这个时候–甚至不到60天，今天是哪一天？第62天？我甚至不确定–对政府（来说）。
-
-我可以向你们保证，很明显，这是–再说一遍，我们将与世界各地的伙伴和盟国密切协调，评估下一步的合适的步骤，正如国务卿在本次会议后的讲话中指出的那样，我们确信，中共国正在注意到，我们与盟友和伙伴的合作比过去四年更加密切，我们正集中精力采取措施，投资和改善我们在国内的经济竞争，这些都是我们确信他们能看到的（我们所采取的）措施。
-
-原文部分：
-
-Q：Can I ask a follow-up? The meeting over the weekend — last week, with the Chinese (inaudible)
-
-MS. PSAKI:  Sure.
-
-Q：the Chinese delegation in Alaska.  Did the President get what he wanted out of that meeting?  Does he have any response to what came from it?  And where does it leave the countries now, going forward?  For instance, is the prospect of some sort of bilateral meeting between President Biden and President Xi now more or less likely?  Is there anything you can give us on that?
-
-MS. PSAKI:  Well, we expected tough and direct talks with the PRC on a wide range of issues, and that’s exactly what happened.
-
-And I know there has been a lot of focus on some of the public theatrics or, you know, more dramatic public piece, but I can assure you from talking to our national security team that it was a substantive meeting.  It was a two-day meeting.  They covered a range of issues, from our concerns about human rights abuses; to aggression in Hong Kong, Taiwan — our concerns there; economic — our concerns about economic and intellectual property.  And we also, of course, talk about ways we can work together.
-
-So we’re taking stock of where we are.  This is where we are now.  I expect the President will certainly be talking with his national security team — well, Jake Sullivan and Tony Blinken, our Secretary of State and National Security Advisor who traveled.  And we will have close consultation with allies and partners on the way forward.  We’ll continue to work with China, of course, going forward, where it’s in the interests of the American people.
-
-But in terms of next steps, Anchorage was a standalone meeting, and we don’t have anything more to determine about what’s next.
-
-Q：And today, the U.S., EU, and other countries announced new sanctions on China —
-
-MS. PSAKI:  Yeah.
-
-Q：— with respect to human rights abuses.  Did anything happen — that happened in Anchorage affect that?  In other words, would the U.S. have not participated in that had certain conditions been met?  Is there any link between the two?
-
-And what next steps do you think — China has retaliated against the EU.  Do you expect U.S. retaliation?  And is there any more sanctions that you would do if they don’t act to change course with respect to the treatment of these minority groups?
-
-MS. PSAKI:  Well, on the first question, I’m not aware of any linkage or plans to pull that back.  Obviously, this was a reaction to what we felt were serious human rights abuses — and, obviously, the Europeans felt this as well — against members of Xinjiang’s ethnic and religious minority groups.  And no meeting would change our concerns related to that.
-
-And we took action, as you noted, in unity with the United Kingdom, Canada, and the European Union, who also acted against human rights abusers in connection with these atrocities.  You know, this demonstrates our ongoing commitment to work multilaterally to advance respect for human rights, and we continue to have grave concerns about China’s crimes against humanity and genocide on Uyghurs in Xinjiang.
-
-But I don’t have anything to predict for you on future sanctions.  Obviously, this is an issue that was raised in this meeting last week and was an issue that was raised by the President in his conversation with President Xi just a few weeks ago.
-
-Q：What will the U.S. do, if anything, if China doesn’t change its approach?  Is this, sort of, a one-stop sanction?  Or down the road, will this be revisited and are further sanctions possible?  I mean, they’ve given no indication that they would change approach; in fact, they have more or less doubled down that they’re doing nothing wrong with respect to these minority groups.
-
-MS. PSAKI:  Well, clearly, sanctions are meant to deter behavior, but I’m not going to rule in or rule out any actions when we’re at — not even day 60.  What day are we at?  Sixty-two?  I’m not even sure — of the administration.
-
-I can assure you that, obviously, this is — again, we will be evaluating what the appropriate next steps are in close coordination with our partners and allies around the world.  And as Secretary of State noted in his comments after this meeting, we are certain that the Chinese are noting that we are working much more closely with our allies and partners than had happened over the last four years, that we are focused on taking steps to invest in and improve our economic competition here at home.  Those are all steps we are certain they’re taking note of.
-
-参考链接：
-
-【1】[https://gnews.org/zh-hans/991643/](https://gnews.org/zh-hans/991643/)
-
-【2】https://www.whitehouse.gov/briefing-room/press-briefings/2021/03/22/press-briefing-by-press-secretary-jen-psaki-march-22-2021/
+![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
 
 0

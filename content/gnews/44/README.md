@@ -1,76 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国和中共必有一战（第一期）&#8212;&#8212;&#8212;新西兰伊甸农场战斗室节目有感
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1011286/)
+## 我们是第一个喊出反对歧视中国人、把共产党和中国人分开的人
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1011345/)
 
-编辑：Ray裁决
+简述：在2021年3月21日的盖特视频中，郭先生对美国最近的反种族歧视和发歧视华人运动发表评论，指出在西方第一个喊出把共产党和中国人分开和保护华人的是新中国联邦。无数的战友还有美国朋友为此正在不懈地努力，他们包括：班农先生、朱利安尼市长、前国务卿蓬佩奥和 Miles Yu 先生。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210321-getter1-part3.srt-1.txt)
+**我们是第一个喊出反对歧视中国人、把共产党和中国人分开的人**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/032404.jpg)
+**Anti-Discrimination Against Chinese Is First Voiced by the NFSC**
 
-七哥在3月17日在盖特上发布消息:1/13中美差点开战。战友们都有很多观点，所以新西兰奥克兰伊甸农场的伊甸战斗室邀请农场成员畅聊一下 “美国中共必有一战”，发表各自的观点：
+像这些天在美国在全世界，现在开始有人想起来了，反对种族歧视，反对歧视中国人，反对仇恨。扯蛋呐。我们两三年了，我们喊两三年了。没有新中国联邦，没有新中国联邦为中国人，把共产党和中国人分开，没有在西方说绝对是共产党病毒，不是中国病毒，没有我们一再地说，“所有的共产党绑架了中国人民，所有共产党不等于中国人民”，要不是早这几年说，不是种族仇恨，一定会是像印尼亚排华事件一样，是种族大屠杀，甚至种族大动乱。如果但凡有点良知有点心的人去想一想，他就是这个结果。
 
-**@澳洲七哥**战友谈到他的人生经历，以及现在身在墙内的家人的境遇与关系，CCP对同胞的洗脑不管是墙内还是墙外都是深入骨髓的。世界都被CCP破坏了，只有爆料革命，闫博士在不停的揭露真相，美国作为最后的防线，必将与中共有一战。
+Now in the U.S. and in the world, there are people who suddenly remembered the issue of anti-racial discrimination, anti-discrimination against Chinese, and anti-hatred. All bullshit. We have being voicing this for two to three years! Without the NFSC’s years of effort of separating the CCP from Chinese people, telling the West that it’s the CCP virus rather than China virus, repeatedly saying that the CCP has kidnapped Chinese people, and that the CCP cannot represent Chinese people, we would not have just racial hatred now, we would have something like the discrimination of Chinese decedents in Indonesia, which was basically a genocide, or even a racial turmoil. Anyone who has some conscience and think a little about this would reach this conclusion.
 
-**@挣扎的韭菜**战友从利益资本角度看到，中共从来不按契约做事， 挑战整个国际秩序，是整个人类文明规则的破坏者。美国对中共的生化武器超限战， 也必将反击。为了拿回利益，为了保持军事上的绝对优势地位，美国也不会允许中共 的持续和没有规则的威胁。
+新中国联邦和爆料革命我们每个人，我们的《路德访谈》，我们的博士军团，我们无数个战友们，在全世界各地的上街游行呼吁，和G-News上写了这么多文章的，我们的战友和义工们，还有我们现在秘密翻译组，以及所有即时翻译西方和东方的即时新闻的这些义工战友们，做出了巨大的贡献。让东西方逐渐明白中共不代表中国人，是共产党病毒，不是中国人想要的，中国人也是受害者。我们和西方的所有的战友们，班农、朱利安尼、蓬佩奥、 Miles Yu 等等等，告诉这不是中国人干的。这个功劳，这个给中国人带来的利益是用金钱不能衡量的。
 
-**@我是豹警官**战友从历史角度对比二战前后时期美国经济状况，谈到真正让美国经济复苏的，是第二次世界大战。CCP的生化病毒，全社会lockdown，商品不流动，那么士兵就要流动。香港、台湾和病毒都可能触发战争，美国不打这一仗，美国会崩溃。偷技术、南海、中共的超限战，每一样都触及到美国的核心利益。
+It’s everyone in the NFSC and the WM, our Lude Media, our doctor team, as well as our countless fellow fighters who protested in the street all over the world, the many articles on G-News, the enormous contribution of our fellow fighter volunteers, including the G-Translators, and all the volunteers who translate real-time news in the West and East, that made the West and East gradually understand that the CCP cannot represent Chinese people, the CCP virus is not what the Chinese people wanted and Chinese people themselves are also victims. We together with all the Western fellow fighters, such as Bannon, Giuliani, Pompeo, Miles Yu, and many more told the world that the virus was not made by Chinese people. This contribution and the benefit brought to Chinese people cannot be measured by money.
 
-**@TS2020相聚盘古**战友谈美国与中共必有一战，有必然性也会有偶然性，分别从国家国民信仰层面，法律上根本的不同，地缘政治，国际法，能源之争，太空资源之争，经济之争以及中共对墙内人洗脑拉仇恨这些方面进行了深入精彩的剖析：
+这是为什么昨天有一个人说：“我要投资你巨额资金，就是因为我的孩子在西方得到了安全，新中国联邦把中国人和共产党分开。”有良知的人是绝大多数的。所以兄弟姐妹们永远不要忘了，“把共产党和中国人分开、干掉共产党”是我们唯一生存下去的希望和手段，其它都是可以往后搁。不要因为一粒灰尘让你失去了未来，所有的事都是小事，我们的未来就是灭共，灭掉共产党一切都好讲。
 
-***CCP没有信仰***，只崇尚暴力，美国是有自由信仰的国家，心中有爱，有和自然 平衡的意识。信仰有与无的冲突，是根本冲突的核心。
+This is why someone told me yesterday, “I want to invest a huge amount of money in you because my kids have safety in the West due to the NFSC’s effort in separating Chinese from the CCP.” The majority of people have conscience. So, brothers and sisters, please always remember that separating the CCP from Chinese and taking down the CCP are the only hopes and means for us to survive, and everything else is less important than these things. Don’t let your vision of the future be blurred by just one tiny piece of dust. Everything is trivial compared with taking down the CCP, which bears our future. Once the CCP is taken down, everything will be fine.
 
-***法律上的根本冲突***。⻄方⺠主国家，私有财产是绝对无上的神圣权力，不可侵 犯，宪法保障。CCP是公有制，是和私有制根本的对立。大陆不光私有制消灭 了，连原私有制的人都全部被消灭了。香港昨天发生的，今天发生的，都在验 证CCP一直在消灭私有制，并直播给了全世界。毛泽东，说无法无天。刘少奇 说，共产党的法律是给别人制定的。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60575c13d1608d609ea69e30](https://gtv.org/getter/60575c13d1608d609ea69e30)  (7:21-9:36)
+鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/998813/](https://www.gnews.org/zh-hans/998813/)
 
-***地缘政治的冲突***。美苏两大体系，⺠主对共产，形成了地缘冲突，最明显就是 朝鲜半岛的38度线、越南的37度线。最后不了不之，谁也没有征服谁。在这个 体系下，CCP在经济不大的情况下，文化革命前，就把共产主义革命输出到了 北韩、巴基斯坦、缅甸 老挝、印尼，这就是CCP地缘政治的扩张。苏联共产党 把共产主义输出到美国后花园古巴，被美国阻止。但国际共产主义，现在完全 被CCP接手。8964后，美国为了灭苏联，和中共勾兑，现在却被CCP偷袭。
+* * *
 
-***国际法意识的不同***。CCP对香港，对南海的武力取得，都是无视国际法，是流 氓政权的表现，永远不会按合同按律法来解决问题，他只认暴力。你不把他制 服，他就不懂，暴力是它唯一明白的语言。美国一味幻想用协议来解决问题， 使得CCP轻易得手，控制香港和南海。这只是CCP对外扩张的准备阶段，大戏 还没开始。真正的热战，应该从攻占台湾开始。这是台湾的地理战略位置决定 的。
+翻译：【7PawBear】校对：【Isaiah4031】【BruhM】字幕：【Rock小哥】视频解码：【恒久忍耐】技术支持：【Rock小哥】推广：【V%】【TINALS】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-***能源之争是最大的障碍***。大陆的能源哪里来的?石油、天然气、核能、水力电 力不平衡。十年前胡锦涛以167亿美元，买下澳洲达尔文港口30年的天然气所 开采权，167亿美元，30条天然气冷藏船，每天起航一条船到深圳，中途是30 天，这些能源只能够广东和深圳一地的供应。中国的能源大部是靠买，国产的 能源是不能平衡的，而美国也是很大的能源消耗国，这就形成能源之争，CCP 就会无序扩张，扩张必然就有冲突，除了比价格，比实力，就是比拳头。新中 国联邦接管中国大陆，能避免这种争端。CCP无序的工业发展，导致能源的供 应也是无序。
-
-***太空火箭军之争***。过去叫星球大战计划。现代军事技术，发现即摧毁。如何发 现呢，越高越安全，越高越能发现敌人。美国在这方面占绝对优势。卫星频 道、轨道、高度控制权，如同土地划界一样。比的是谁能看得更远，看得更精 准。探索土星和火星，跟争夺太空关系不是太大，绕月⻜行和卫星才是关键。 另一个是，CCP的天眼技术，通过卫星确定美国的航空母舰的位置，然后通过 战略导弹打击航空母舰。目前全球具备太空军事之争的仅有美国与中共。
-
-***CCP通过洗脑人⺠，拉仇恨，仇美，仇⺠主国家，这也是一个重要原因***。1950 年，抗美援朝开始就一直在这么做。中美之间的冲突，最早开始于八国联军， 但是其他的冲突，都是美国和CCP的冲突:1950年韩战、1962年和印度之战 (美国只是后勤支援)、1967越战，在这些事件过程中和事后，CCP一直在输出革命，却恶人先告状，反咬美国是霸权，美国实际是在维护世界和平。后来的 伊拉克1991年海湾战争，实际上美国人日本人花钱，美国人打战维护秩序，清 除萨达姆，最终受益的却是CCP，最后石油工程重建，都被CCP三大石油公司 拿走了。包括后来的叙利亚、利比亚之战，美国花钱解决了体制和法制问题， 利益却全部被CCP截走。CCP一直输出革命，截取利益，实际上是截胡美国利 益，但美国人⺠却没有意识到。而中国与美国到底是什么关系?过去八国联军 进攻北京，只有美国没有拿庚子赔款。美国观察到中国这个国家不开化，需要 开智，需让百姓了解美国，所以，清朝选派到美国的留学人员资助均来自于庚 子赔款，还包括清华大学、同济大学，北京协和医院、上海同仁医院的创办也 来自于庚子赔款，最后还退了一部分钱给清廷。当时美国在华没有一寸租界 地，仅有一个上海美国法庭，专⻔处理美国和中国大陆的经济官司的，不像日 本、俄罗斯占了中国大量土地，到现在也是如此。抗日期间，美国出钱出力出 人为中国抗战，从不收钱，还贷款给中国恢复经济。日本投降后，美国军舰帮 助国⺠政府收回了很多南海的岛屿和台湾岛。本来准备把琉球交给国⺠政府， 由于当时蒋介石和中国大陆在内战争夺，美国就委托日本托管，很庆幸，当时 这个地方没有给CCP。意外成为防卫CCP军事进攻的关键支撑点。美国是一直 把中国当做朋友，甚至可以说是无私的，更谈不上欺负和侵略。
-
-而CCP却一直 教育和愚弄国⺠去仇美，现在连教育上还要取消英语教育，这是多么悲哀的事 情。
-
-经济之争。2008年，温家宝当政，超发4万亿人⺠币刺激经济计划，高铁、高 速公路、港口建设等大规模建设，就把中国经济推进了12年。CCP在经济上出 口，强制结汇，就是超发货币。出口美国，顺差净得5000亿美元 (折合4万亿人 ⺠币)，每年能偷回这么多回来，一直持续了15年。这就是所谓CCP经济动力之 源之一，在中共病毒之前，一直给人一种很火爆的感觉。融资，从华尔街骗来 的资金更是天文数字，也是CCP主要经济动力源。其他的，还包括偷技术，病 毒超限战等。
-
-美国和中共必有一战。这次，不是打服它，而是消灭它。这就是郭先生说的，今后进入世界千年和平时代。CCP是一切祸害的根源。
-
-**@黑暗即将过去**战友谈这个CCP病毒，已经让世界人⺠忍无可忍。美国中共必有一战。
-
-**@石⻣上的叶子**战友说美国有资本才有主义，没资本就没主义。中国最致命的就是外汇，第二致命的就是科技。透过香港流转外汇。美国只要不让外汇在香港流转，CCP彻底就完蛋了。
-
-第一期主要讲“Why”。介绍了节目的生成目的，重点交流美国和中共为什么必有一战。几位战友从不同的角度分析了其中的原因，不管是从历史上经济走势发展的对比，还是从一百多年来地缘政治事态的变化，以及现如今中共的邪恶面目被爆料革命曝光于世界释放超限战生物武器以及“13579”灭白计划，想要称霸世界甚至太空的野心，这一战也无可避免。从最近美国，北约，亚洲日韩印澳的各方面军事动态来看，军事上的合围已经慢慢形成，都在为这一仗做着准备。这一仗必打！
-
-更多精彩内容请点击GTV, 搜索：新西兰农场综合台[【美国与中共必有一战】](https://gtv.org/video/id=605717dfa26ac57138dfe53e)
-
-回顾战友们的精彩对话。
-
-下一期预告为“How”美共之战会如何进行 ，敬请期待。
-
-感谢：
-
-主持人：@星云，@ Linda
-
-嘉宾：@Enzo20石骨上的叶子，@澳洲7哥，@豹警官，@黑暗即將将过去，@挣扎的韭菜，@高频，@TS2020相聚盘古
-
-策划：@TS2020相聚盘古
-
-封面：@文恩小蚂蚁
-
-片头视频：@掙扎的韭菜
-
-技术支持：@Think Wh， @喜国哥
-
-场记：@135790abc， @文恩小蚂蚁
-
-资料收集：@文滿，@生當自由，@如果云知道，@Leo，@豹警官，@文石1120
-
-审核校对：鲁邦五世
-上传排版：糖果儿
-
-
-
-0
++1

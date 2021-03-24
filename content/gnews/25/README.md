@@ -1,23 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：因中共病毒导致的大规模反封锁抗议活动在世界各地爆发
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1011575/)
+## 澳喜要闻3月23日 路德时评摘要
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1011579/)
 
-出品：《路德社》   编辑：《路德社》精选新闻专栏组
+YouTube视频
+内容简介：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/032408.jpg)
+**路德社早间时评：**
 
-ZeroHedge新闻网3月20日报道，由于中共病毒疫情在全世界肆虐，至今已有一亿多人确诊感染，许多国家为抑制疫情大面积传播都进行全国封锁。长时间的封锁导致上万民抗议者上街游行，在伦敦、德国、法国、瑞典、荷兰、澳大利亚、比利时、日本、维也纳和其他地方，都爆发了为争取自由而举行的全球集会，多个地区都发生了示威者与警察的冲突，不可否认的是，全国封锁导致大规模失业，摧毁了中小企业，引发了广泛的抑郁和精神疾病。
+1. 俄外长提议中俄彻底脱离美元体系，以卢布结算，试探中共联俄决心；
+2. 习总加速师与金正恩互致口信。
 
-评论：
 
-随着中共病毒疫情在全球肆虐，疫情带来的社会危机和人道危机逐渐显现，各种社会矛盾不断激化。一旦全世界认定中共病毒就是中共发起的超限生物武器战争，全球必将联合围剿中共，那时，中共必成为人人喊打的丧家之犬。
+**路德社晚间时评：**
 
-[援引原文](https://www.zerohedge.com/geopolitical/burn-your-masks-massive-anti-lockdown-protests-rage-worldwide)
+1. 美英欧盟宣布联合制裁中共官员；
+2. 中共变本加厉制裁欧盟。
 
-本文作者：《重生者》
-审核校对：鲁邦五世
-上传排版：糖果儿
 
+供稿: HA WarRoom
+
+（视频只代表作者观点，不代表Gnews立场）
+
+参考来源: [https://www.youtube.com/watch?v=1yTmzNZO5wM](https://www.youtube.com/watch?v=1yTmzNZO5wM)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-澳喜Logo-2.jpeg)
 0

@@ -1,19 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】22/03/2021:重磅！俄外长说中俄必须一起退出美元体系应对美国制裁
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/1011836/)
+## 美海军上将提醒中共短期内将军事打击台湾
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1011871/)
 
-**制作: Cantonese工作室**
-**播报：【安妮】资料整理：【陆企陆捌】【闪电】海报制作：【文武全才】【米线】视频制作：【KEN】上传:【星星】**
-摘要:
+俄罗斯莫斯科喀秋莎农场   银河
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-258.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2-101.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-107.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4-68.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/5-59.jpg)
-0
+编辑上传   水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/T-32-8.jpg)defence.pk
+印太地区是美国的优先领域，是对美国未来战略影响最大的地区。美国海军上将约翰·阿奎利诺(John Aquilino)在参议院军事委员会(Senate Armed Services Committee)上说，虽然俄罗斯、朝鲜和暴力极端主义组织对印度洋-太平洋地区构成威胁，但是中共仍然是令人担忧的问题，尤其中共宣称将控制台湾是此区域的首要防务。该委员会正在考虑提名阿奎利诺担任美国印太司令部司令。
+
+近期美国主要军事官员发出了一系列越来越严厉的警告，提醒美国政策制定者注意中共的野心，以及他们认为北京将会付出多大努力来实现这些野心。即将退休的美国印太司令部司令菲利普·戴维森在本月表示，华盛顿无力充分反击中共的军事活动，正鼓励中共变得更加咄咄逼人。中共正在“加速他们的野心”，把台湾、关岛和其他盟友置于更大的风险之中，中共正加速在世界舞台上超越美国的计划。
+
+阿基里诺指出，中共可能决定从现在到2045年之间的某个时候对台湾发动军事打击，“这个问题比大多数人认为的更接近我们。” 他说，如果中共被允许接管台湾，这将严重打击美国作为该地区强大和值得信赖的伙伴的信誉。要应对这一挑战，需要动用所有国家力量，带着紧迫感共同努力，团结美国的盟国和战略伙伴共同抵制中共威胁。
+
+阿基里诺说，太平洋威慑倡议是在该地区竞争和获胜所需努力的一个强有力的例子。该计划的重点是获取先进的军事能力以威慑中共，包括天基雷达、导弹防御、远程精确火力、后勤、创新及实验，和改善与盟友和伙伴的互操作性和演习。
+
+根据《与台湾关系法》(Taiwan Relations Act)，美国和多国伙伴将与台湾进行训练演习。此外，阿基里诺强调，他对台湾购买防御性军事能力感到鼓舞。
+
+阿基里诺强调美国在印太区域的军事部署至关重要。他说，奥巴马政府的《国家安全战略临时指导》指出，“美国的命运与国外的事件交织在一起。全球和平与繁荣取决于我们在印度洋-太平洋地区的存在。”
+
+参考链接：
+
+[https://www.defense.gov/Explore/News/Article/Article/2547389/defense-of-taiwan-vital-to-regional-national-security-admiral-says/](https://www.defense.gov/Explore/News/Article/Article/2547389/defense-of-taiwan-vital-to-regional-national-security-admiral-says/)
+
++1

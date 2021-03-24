@@ -1,38 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我们是第一个喊出反对歧视中国人、把共产党和中国人分开的人
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1011345/)
+## 【新闻简评】从美国纾困方案看未来
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1011353/)
 
-简述：在2021年3月21日的盖特视频中，郭先生对美国最近的反种族歧视和发歧视华人运动发表评论，指出在西方第一个喊出把共产党和中国人分开和保护华人的是新中国联邦。无数的战友还有美国朋友为此正在不懈地努力，他们包括：班农先生、朱利安尼市长、前国务卿蓬佩奥和 Miles Yu 先生。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210321-getter1-part3.srt-1.txt)
-**我们是第一个喊出反对歧视中国人、把共产党和中国人分开的人**
+作者：喜马拉雅东京樱花团 / 贻人小筑
 
-**Anti-Discrimination Against Chinese Is First Voiced by the NFSC**
+前言：美国的纾困方案将会为美国乃至全球经济带来沉重负担，G系列是为数不多的价值成长型资产，“墙”国将进一步控制外汇流出。
 
-像这些天在美国在全世界，现在开始有人想起来了，反对种族歧视，反对歧视中国人，反对仇恨。扯蛋呐。我们两三年了，我们喊两三年了。没有新中国联邦，没有新中国联邦为中国人，把共产党和中国人分开，没有在西方说绝对是共产党病毒，不是中国病毒，没有我们一再地说，“所有的共产党绑架了中国人民，所有共产党不等于中国人民”，要不是早这几年说，不是种族仇恨，一定会是像印尼亚排华事件一样，是种族大屠杀，甚至种族大动乱。如果但凡有点良知有点心的人去想一想，他就是这个结果。
+拜登政府在3月11日正式签署1.9万亿美元新冠纾困救助法案，只要年收入在7.5万美元以下的美国个人，和年收入在15万美元以下的夫妇，在财政部和国税局留有银行账户信息的民众，将直接收到1400美元，12日美国方面开始发放个人纾困金，正式付款是3月17日，一些银行提前处理了发放事宜，到美国时间3月17日，已经发送给9000万个家庭，约2420亿美元，达预期一半。考虑到美国家庭收入中位数是6.87万美元，就是大部分美国家庭都可以收到这1400美元救命钱。同时，拜登政府不仅搞了1.9万亿美元的刺激方案，还要追加2万亿（也可能增加到4万亿）美元的基建计划。
 
-Now in the U.S. and in the world, there are people who suddenly remembered the issue of anti-racial discrimination, anti-discrimination against Chinese, and anti-hatred. All bullshit. We have being voicing this for two to three years! Without the NFSC’s years of effort of separating the CCP from Chinese people, telling the West that it’s the CCP virus rather than China virus, repeatedly saying that the CCP has kidnapped Chinese people, and that the CCP cannot represent Chinese people, we would not have just racial hatred now, we would have something like the discrimination of Chinese decedents in Indonesia, which was basically a genocide, or even a racial turmoil. Anyone who has some conscience and think a little about this would reach this conclusion.
+![](https://lh3.googleusercontent.com/hcgwBrpD9CbZmOWilqfIPnIHlsfJt8secCb5QeuMuyK9JO0rQ494CsXS5mSmy7JMjdWBsecesqzkHNi0f6uy2c25fseeoB4cPjR68CGIJADSaNSxe_LPZjv056Vyi6Cw81XwNYYu)
+图片来自网络
 
-新中国联邦和爆料革命我们每个人，我们的《路德访谈》，我们的博士军团，我们无数个战友们，在全世界各地的上街游行呼吁，和G-News上写了这么多文章的，我们的战友和义工们，还有我们现在秘密翻译组，以及所有即时翻译西方和东方的即时新闻的这些义工战友们，做出了巨大的贡献。让东西方逐渐明白中共不代表中国人，是共产党病毒，不是中国人想要的，中国人也是受害者。我们和西方的所有的战友们，班农、朱利安尼、蓬佩奥、 Miles Yu 等等等，告诉这不是中国人干的。这个功劳，这个给中国人带来的利益是用金钱不能衡量的。
+那么，几万亿美金的投入，钱从哪里来呢？无非就是借钱或者赚钱（或者抢钱？！）。借钱，就是通过继续投放国债来达成；而赚钱，则是通过增加税收来实现。无论哪种方式，对美国未来的经济，都会带来沉重的影响。过去一年内，美国已经推出一系列纾困措施，可以说，美国政府已经债务累累。截止3月1日，美国联邦政府债务已经达到21.9万亿美元，为二战以来最高。按这个趋势，两年后美国国债将很有可能达到30万亿美元，每年利息达到恐怖的7000亿美元。目前，在不断恶化的通胀预期背景下，美国10年期国债收益率已经迅速走高，市场积压了大量抛售美国国债的动能。想通过继续发债募集资金，已经不能作为长期募资的手段。拜登政府计划和正在考虑的措施包括：
 
-It’s everyone in the NFSC and the WM, our Lude Media, our doctor team, as well as our countless fellow fighters who protested in the street all over the world, the many articles on G-News, the enormous contribution of our fellow fighter volunteers, including the G-Translators, and all the volunteers who translate real-time news in the West and East, that made the West and East gradually understand that the CCP cannot represent Chinese people, the CCP virus is not what the Chinese people wanted and Chinese people themselves are also victims. We together with all the Western fellow fighters, such as Bannon, Giuliani, Pompeo, Miles Yu, and many more told the world that the virus was not made by Chinese people. This contribution and the benefit brought to Chinese people cannot be measured by money.
+1、 提高年收入超过40万美元人群的个人所得税税率；
 
-这是为什么昨天有一个人说：“我要投资你巨额资金，就是因为我的孩子在西方得到了安全，新中国联邦把中国人和共产党分开。”有良知的人是绝大多数的。所以兄弟姐妹们永远不要忘了，“把共产党和中国人分开、干掉共产党”是我们唯一生存下去的希望和手段，其它都是可以往后搁。不要因为一粒灰尘让你失去了未来，所有的事都是小事，我们的未来就是灭共，灭掉共产党一切都好讲。
+2、  扩大遗产税范围；
 
-This is why someone told me yesterday, “I want to invest a huge amount of money in you because my kids have safety in the West due to the NFSC’s effort in separating Chinese from the CCP.” The majority of people have conscience. So, brothers and sisters, please always remember that separating the CCP from Chinese and taking down the CCP are the only hopes and means for us to survive, and everything else is less important than these things. Don’t let your vision of the future be blurred by just one tiny piece of dust. Everything is trivial compared with taking down the CCP, which bears our future. Once the CCP is taken down, everything will be fine.
+3、  削减有限责任公司、合伙企业等公司的税收优惠；
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60575c13d1608d609ea69e30](https://gtv.org/getter/60575c13d1608d609ea69e30)  (7:21-9:36)
-鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/998813/](https://www.gnews.org/zh-hans/998813/)
+4、  将企业税从21%提高至28%；
 
-* * *
+5、  对年收入至少为100万美元的个人征收更高的资本利得税。
 
-翻译：【7PawBear】校对：【Isaiah4031】【BruhM】字幕：【Rock小哥】视频解码：【恒久忍耐】技术支持：【Rock小哥】推广：【V%】【TINALS】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+无论如何，正如郭先生的判断，美国经济未来几年，将面临极其严重的衰退风险，进而影响到全球经济的大衰退，这必然是人类“大重启”过程中不得不付出的代价。在全人类面临如此困境的时候，新中国联邦的G系列业务可能是当下以及未来相当长一段时间内唯一具有投资价值和增长空间的标的。关于G系列业务的投资价值，已经有很多相关文章和分析，这里就不做赘述了。
+
+在写这篇文章的同时，恰好笔者看到来自墙内的这样一段评论：
+
+“严格控制结汇和购汇，是中国阻止美元霸权洗劫中国财富的重要选项，相当于我们建了一道城墙，防止野人进来洗劫我们。没有金融主权的国家，是任人宰割的国家，美国人并不关心谁上台执政，他们只关心你们有没有开放金融主权。今天美国人指责我们的所有东西，攻击我们的所有理由，从香港到新疆，目的都是希望中国改变体制，从而在多党间下注，就能打开中国的金融主权。这样中国也会变成一块大好肥肉，像阿根廷、泰国、巴西等其他发展中国家一样，供他们来回掠食。”
+
+整个话语和观点，透出多么熟悉的“墙”国风味。可以预见，为了进一步控制外汇流出，CCP治下的舆论导向，将会持续围绕美国经济做文章，加强民粹主义宣传，并严控外汇资金的流转。并美其名曰：一切都是为你好，一切都是为国家好。
+
+笔者再次呼吁墙内同胞：早日觉醒，不要再做韭菜，投身爆料革命和G系列，共同迎接新时代的到来。
+
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+
+*校对：喜马拉雅东京樱花团 / 东洋武士
+责任编辑：喜马拉雅东京樱花团 / 文小白
+发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews.org/wp-content/uploads/2021/03/二维码-9.jpg)
+0323C158b
 
 +1
