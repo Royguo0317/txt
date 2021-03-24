@@ -1,41 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《文贵说》| 图片连载（三十七）
-` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/993368/)
+## 澳喜要闻3月23日 墨博士新闻点评
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1011553/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/05-1-4.jpg)
-**因为我们的勇气，因为我们的无私，因为我们相信上天，我们才迎来了爆料革命的春天，这就是答案。**
+YouTube视频
+内容简介：
 
-**—— 郭文贵先生 2020年5月7日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/06-1-4.jpg)
-**一个人的经历啊，你的思想境界，还有你的家人，你的抱负，决定了你到底想要什么。这才是核心！**
-
-**—— 郭文贵先生 2020年3月3日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/03-10.jpg)
-**全人类，你查遍历史，没有一个党，没有一个皇帝，没有一个政权，像今天的共产党，能把中国人愚昧到这种程度!**
-
-**—— 郭文贵先生 2020年5月7日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/04-1-6.jpg)
-**说实在话我告诉所有的战友，你要想让你以自己最快乐的方式——把自己的事情做好，让你自己强大，让你的敌人和对手看到你活得比他好。**
-
-**—— 郭文贵先生 2020年5月7日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2020574.jpg)
-**无限的未来、无限的可能、无限的权利。而且会让人像太阳一般，那样的正义，照灭黑暗。这就叫爆料革命。**
-
-**—— 郭文贵先生 2020年5月7日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/02-7.jpg)
-**只有尊重民意， 为民意服务、负责， 你才会有未来。**
-
-**—— 郭文贵先生 2018年5月10日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/11-1-1.jpg)
-**爆料革命的战友必须拥有：安全的、美好的、体面的生活和未来，这就是叫爆料革命。**
-
-**—— 郭文贵先生 2020年5月7日**
+1. 中共本土病例疑点多，中共疫苗可能“暴雷”；
+2. 中共战狗外交，海外看透加深了解中共本质；
+3. 排除红毒，从孔子学院开始；
+4. 美国与“亡羊”厕所外交后，转身与北约盟国磋商会谈！
 
 
+供稿: HA WarRoom
 
-- [***更多精美海报请点击G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4)
+（视频只代表作者观点，不代表Gnews立场）
 
+参考来源:
 
-+1
+[https://www.youtube.com/watch?v=-3pYVJsvc3c](https://www.youtube.com/watch?v=-3pYVJsvc3c)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-澳喜Logo-2.jpeg)
+0

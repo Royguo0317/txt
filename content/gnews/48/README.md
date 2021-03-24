@@ -1,55 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中美阿拉斯加会谈是披着羊皮的狼和披着羊皮的狼演的一出戏
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1011178/)
+## 【新闻简评】从美国纾困方案看未来
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1011353/)
 
-简述：在2021年3月21日的盖特中，郭先生第一次披露了中美阿拉斯加会谈的本质 —— 那是一出戏！中共的王毅和杨洁篪是披着狼皮的羊，而美方是披着羊皮的狼，他们之所以这样演是因为，中共可以继续骗14亿老百姓，而美方也可以满足私利，而最后买单的则是中国14亿草根老百姓，不信就等着瞧。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210321-getter1-part2.srt.txt)
+作者：喜马拉雅东京樱花团 / 贻人小筑
 
-**中美阿拉斯加会谈是披着羊皮的狼和披着羊皮的狼演的一出戏**
+前言：美国的纾困方案将会为美国乃至全球经济带来沉重负担，G系列是为数不多的价值成长型资产，“墙”国将进一步控制外汇流出。
 
-**The US-China Alaska Meeting Is a Show**
+拜登政府在3月11日正式签署1.9万亿美元新冠纾困救助法案，只要年收入在7.5万美元以下的美国个人，和年收入在15万美元以下的夫妇，在财政部和国税局留有银行账户信息的民众，将直接收到1400美元，12日美国方面开始发放个人纾困金，正式付款是3月17日，一些银行提前处理了发放事宜，到美国时间3月17日，已经发送给9000万个家庭，约2420亿美元，达预期一半。考虑到美国家庭收入中位数是6.87万美元，就是大部分美国家庭都可以收到这1400美元救命钱。同时，拜登政府不仅搞了1.9万亿美元的刺激方案，还要追加2万亿（也可能增加到4万亿）美元的基建计划。
 
-咱这个先不多说，咱再说说更夸张的。这几天都在说的是，所有的阿拉斯加，中美两国会谈，只有咱们一家说这是演戏，没有任何人知道演戏，因为咱知道情报，那不是瞎蒙的，你老蒙的那是永远不可能100%准确的，是吧？只有咱一家说出这是演戏。这几天很多有良知的所谓的媒体人，还有政客们跟七哥开会都快疯了，[问]“为什么 Miles 你能知道这是在演戏呢？”很简单兄弟姐妹们，我说看这个演戏，我给他们形容了一个，我说：“中共国假擀面杖子经济，假的吹牛，我说它就像一个什么？”
+![](https://lh3.googleusercontent.com/hcgwBrpD9CbZmOWilqfIPnIHlsfJt8secCb5QeuMuyK9JO0rQ494CsXS5mSmy7JMjdWBsecesqzkHNi0f6uy2c25fseeoB4cPjR68CGIJADSaNSxe_LPZjv056Vyi6Cw81XwNYYu)
+图片来自网络
 
-Let’s just move on and talk about something more absurd. All that people have been talking about these days was the Alaska meeting between the US and China. We are the only one saying that it was a show. No one else knew about this. It’s because we have the intelligence, so we are not taking a shot in the dark. If you guess blindly, you will never be 100% correct, right? We are the only media who said it was a show. In these days, many so-called media professionals with conscience along with politicians have had meetings with me like crazy, asking “How do you know it was a show, Miles?” It is very simple, brothers and sisters. I said, “Look, this is a show.” Then I made a metaphor, “What do the ‘rolling pin’ (fake) economy of the CCP and their boastings look like?”
+那么，几万亿美金的投入，钱从哪里来呢？无非就是借钱或者赚钱（或者抢钱？！）。借钱，就是通过继续投放国债来达成；而赚钱，则是通过增加税收来实现。无论哪种方式，对美国未来的经济，都会带来沉重的影响。过去一年内，美国已经推出一系列纾困措施，可以说，美国政府已经债务累累。截止3月1日，美国联邦政府债务已经达到21.9万亿美元，为二战以来最高。按这个趋势，两年后美国国债将很有可能达到30万亿美元，每年利息达到恐怖的7000亿美元。目前，在不断恶化的通胀预期背景下，美国10年期国债收益率已经迅速走高，市场积压了大量抛售美国国债的动能。想通过继续发债募集资金，已经不能作为长期募资的手段。拜登政府计划和正在考虑的措施包括：
 
-我说：你去想想中共国的经济、军事，所有的实力跟美国比，它真的就是一个羊，这没办法。那么美国在世界上军事、政治、经济、技术、影响力，它绝对是个狼。咱用这这两个动物来讲。那么中共国今天为啥敢这么嚣张？中共敢这么嚣张，因为它手里边它绑架到14亿中国人民，还有一个它在美国有蓝金黄，它就是14亿奴隶和蓝金黄手段，所笼络的资源，不就这个吗？是吧？兄弟姐妹们，还有啥可说的，不就这两招儿吗？
+1、 提高年收入超过40万美元人群的个人所得税税率；
 
-I said, think about the economic and military strength of the CCP, when compared to the US, it is like a sheep, with no doubt. Considering the strength and influence of military, politics, economy, and technology, the US is absolutely a wolf. Let’s use these two animals to tell the story. Then, why dare the CCP to be so arrogant? It is because the CCP has kidnapped 1.4 billion Chinese people. Another reason is the BGY plot in the US, using all the resources netted by abusing the 1.4 billion slaves. Right? Brothers and sisters, what else can I say? The CCP only has only these two tricks, right?
+2、  扩大遗产税范围；
 
-我说那为什么中美阿拉斯加峰会成这样的滑稽的场面？很多欧美人问我：你怎么看这件事情。我说：非常简单，看中共和美国这两个峰会，我有两个比喻。中共所谓的杨娘娘，还有王公公就是一个披着羊皮的羊，披着羊皮的羊它还是羊，咋呼得很厉害，左顾右盼、前看后看，在那又蹬腿又挠地的，“啪啪啪”它把它自己当成了狼了。
+3、  削减有限责任公司、合伙企业等公司的税收优惠；
 
-I then asked, “Why did the US-China Alaska meeting have such an absurd scene?” Many people from Europe and America asked me, “What’s your take on this?” I said, “It was very simple. I can use two metaphors to describe the meetings between the CCP and the US. The so-called Empress Yang (Jiechi Yang) and Eunuch Wang (Yi Wang) were sheep covered with the skin of a wolf. Sheep in wolf’s clothing are still sheep no matter how much fuss they make, how they check around, look back and forth, kick and scratch the ground, or how much they believe they are a wolf.”
+4、  将企业税从21%提高至28%；
 
-我说美国那是什么呢？是披着羊皮的狼，是披着羊皮的狼，完了。他为啥？它真把自己当羊了。为什么美国这个狼要把自己披着羊皮呢？因为美国有弱点，美国不敢当狼，因为这个羊跟它之间有默契，要让它当一次羊，因为回到中共国去好骗那14亿的奴隶。咱俩演戏，然后我这个羊，穿着羊皮的咋呼的羊，要开始给你多送点羊过来，或者在美国弄点狼肉吃吃。就这么简单。
+5、  对年收入至少为100万美元的个人征收更高的资本利得税。
 
-I continued, “Then what was America like? It was a wolf in sheep’s clothing. Period. Why? It indeed treated itself as a sheep. Why was America the wolf willing to put on sheep’s clothing? It’s because others got goods on America, so that it didn’t have the courage to be a wolf. It’s because the sheep had a tacit agreement with it and asked it to pretend to be a sheep for once, in order to cheat the 1.4 billion slaves in Communist China. So, if you America agreed to put on a show with me, I, the noisy sheep in wolf’s clothing would send more sheep to you or even some other wolf’s meat for you America to eat.”
+无论如何，正如郭先生的判断，美国经济未来几年，将面临极其严重的衰退风险，进而影响到全球经济的大衰退，这必然是人类“大重启”过程中不得不付出的代价。在全人类面临如此困境的时候，新中国联邦的G系列业务可能是当下以及未来相当长一段时间内唯一具有投资价值和增长空间的标的。关于G系列业务的投资价值，已经有很多相关文章和分析，这里就不做赘述了。
 
-我说：最终，一定要记住，美国狼还会回到本质，美国的狼还会是披着狼皮的狼，中共国还是披着羊皮的羊，或者被扒了皮的羊，就这么简单。他们都爱笑死了。
+在写这篇文章的同时，恰好笔者看到来自墙内的这样一段评论：
 
-“Simple as this,” I said, “ultimately, please remember, the America wolf will go back to its nature. The American wolf will turn back to a wolf in wolf’s skin, and the CCP sheep will still be a sheep in sheep’s skin or naked with its skin peeled. That’s it.” They all laughed.
+“严格控制结汇和购汇，是中国阻止美元霸权洗劫中国财富的重要选项，相当于我们建了一道城墙，防止野人进来洗劫我们。没有金融主权的国家，是任人宰割的国家，美国人并不关心谁上台执政，他们只关心你们有没有开放金融主权。今天美国人指责我们的所有东西，攻击我们的所有理由，从香港到新疆，目的都是希望中国改变体制，从而在多党间下注，就能打开中国的金融主权。这样中国也会变成一块大好肥肉，像阿根廷、泰国、巴西等其他发展中国家一样，供他们来回掠食。”
 
-不管你咋咋呼，你都是披着羊皮的羊。所以说，我说：他越咋呼越好，他对香港对台湾以及到非洲、中东，玩的这一切手段都是政治手段，一切都是为内政，一切都是内政。好好看看第二次世界大战，希特勒，当时的法国、英国，包括日本，很多重大的影响国家命运的决策，当时都和内政，内部政治有绝对的关系，这全世界的政治都是一家的，都是流氓。但是中共国不是流氓，它是真正的黑社会，它是绑架14亿中国人民的，它是以14亿人民作为筹码跟全世界讲数的。美国人愿意，知道自己是狼，还披着羊皮，就是更为了获取个人获得更多的羊肉，为个人获得更多的羊肉，和未来吃更多的羊崽子，甚至吃个羊胎盘啥的，是吧？就这么简单。
+整个话语和观点，透出多么熟悉的“墙”国风味。可以预见，为了进一步控制外汇流出，CCP治下的舆论导向，将会持续围绕美国经济做文章，加强民粹主义宣传，并严控外汇资金的流转。并美其名曰：一切都是为你好，一切都是为国家好。
 
-No matter how loud you voiced, you are still a sheep in sheep’s skin. So, I said, “It is better if they keep making more fuss. All means the CCP has used toward Hong Kong, Taiwan, Africa, and the Middle East are political tactics for its domestic politics. Please take a good look at WWII. Many critical decisions that influenced a nation’s fate made by Hitler, France, the UK, or Japan at that time were absolutely connected with their domestic politics. All the world’s politicians belong to the same family – they are all rogues. Yet, the CCP is not a rogue, rather, it is a true gangsterdom. It has kidnapped 1.4 billion Chinese and used the 1.4 billion Chinese as leverage to bargain with the world. The Americans were willing to put on sheep’s clothing, even though they knew they were wolves, because they wanted to get more sheep meat for their personal interest and get more lambs for the future, or even get some sheep placentas to eat, right? Simple as this.”
+笔者再次呼吁墙内同胞：早日觉醒，不要再做韭菜，投身爆料革命和G系列，共同迎接新时代的到来。
 
-但是美国这次是被羞辱的，中共这次是咋咋呼呼的解决了内部的上海邦和习大神的问题，更重要的事情最后是剪韭菜，最后买单的是咱中国老百姓。两边，不管是狼披羊皮，还是羊披羊皮，但最后买单的就咱中国老百姓，草根。就这么简单，信不信？不信拉倒。
+*免责申明：本文只代表作者观点，与GNews网站无关。*
 
-America was humiliated this time, and the noisy CCP has solved its internal conflict between the Shanghai Gang and God Xi. More importantly, the CCP could reach its ultimate goal of harvesting the chives (referring to robbing the ordinary Chinese) and having the ordinary Chinese to pay the bills in the end. No matter to the wolf in sheep’s clothing or the sheep in sheep’s skins, in the end, it is the ordinary Chinese who will pay for the bills, the grassroots. Simple as this. Do you believe me? It doesn’t matter if you don’t.
+*校对：喜马拉雅东京樱花团 / 东洋武士
+责任编辑：喜马拉雅东京樱花团 / 文小白
+发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews.org/wp-content/uploads/2021/03/二维码-9.jpg)
+0323C158b
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60575c13d1608d609ea69e30](https://gtv.org/getter/60575c13d1608d609ea69e30)  (1:59-2:54, 3:07-7:21)
-鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/998813/](https://www.gnews.org/zh-hans/998813/)
-
-* * *
-
-翻译：【7PawBear】校对：【Isaiah4031】【BruhM】字幕：【Rock小哥】视频解码：【恒久忍耐】技术支持：【Rock小哥】推广：【V%】【TINALS】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-0
++1

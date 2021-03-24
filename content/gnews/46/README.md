@@ -1,64 +1,78 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅】如何彻底终结CCP病毒大流行（三）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1011248/)
+## 【重磅】如何彻底终结CCP病毒大流行（四）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1011349/)
 
-五月花写作组 ｜ 作者：北美教练陪练｜ 编辑、美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/03/如何彻底终结CCP病毒大流行V3.jpg)
+五月花写作组 ｜ 作者：北美教练陪练 ｜ 编辑、美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/03/如何彻底终结CCP病毒大流行V4.jpg)
 ### **往期链接：**
 
 [【重磅】如何彻底终结CCP病毒大流行（一）](https://gnews.org/zh-hans/1010646/)
 
 [【重磅】如何彻底终结CCP病毒大流行（二）](https://gnews.org/zh-hans/1011043/)
 
+[【重磅】如何彻底终结CCP病毒大流行（三）](https://gnews.org/zh-hans/1011248/)
+
 * * *
 
-### **开放伊维菌素为非处方药，就这么简单的事情**！
+## **羟氯喹和伊维菌素“有罪”，因为太便宜**
 
-William C. Campbell 和 Satoshi Ōmura因合作开发出抵御蛔虫感染的伊维菌素 (Ivermectin) 而获2015年诺贝尔生理学或医学奖。
+这次疫情让某些无良精英医生、医院赚大了，疫苗即将让某些制药公司也赚到盆满钵满。据报道，2021年Pfizer和Moderna卖疫苗收入可达320亿美元（24）。20岁-40岁年龄段的CCP病毒病人住院的平均费用是981821美元（25）。疫情开始后，美国卫生部开始给各州医院发放紧急抗疫资金，按每个病人发放几万到几十万美元不等（26）。据内部消息人士说：医院诊断报告一例CCP病毒病人，就可得到13000美元，如果病人上呼吸机还可再额外得到39000美元补助（27）。如此巨大的利益，某些相关人士巴不得CCP病毒永远流行下去。美国疾病控制中心（CDC）鼓励医生诊断COVID-19，美国明尼苏达州参议员Scott Jensen（也是一名医生）说：医院弄虚作假，夸大了CCP病毒死亡人数（28）。美国疾病控制中心主任也承认医院夸大了CCP病毒病人数据以便获得更多的补助（29）。两位勇敢的美国一线急诊科医生Dan Erickson和Artin Massihi曾在2020年4月召开记者招待会，曝光了医院要求在每个死亡证书上都加上CCP病毒的死因。事后两位医生受到美国急诊医师协会（American college of emergency physicians）和美国急救医学学会（American academy of emergency medicine）的联合责难，记者招待会视频也从YouTube被移除（30）。
 
-1973年，日本微生物学家Satoshi Ōmura在土壤中发现了新型的链霉菌，该链霉菌被成功分离并在实验室进行培养，Satoshi Ōmura发现这些链霉菌可以产生抗寄生虫的物质，在默克药物筛选实验室的协助下，研究者于1975年完成了对有效成份的纯化鉴定，命名为阿维菌素(Avermectins)。致力于寄生虫研究的美国科学家William C. Campbell ，对阿维菌素进行一定的化学结构修饰，得到了更加安全高效的伊维菌素。1981年，伊维菌素在畜牧业、农业、水产养殖等领域取得上市准许。
+名噪一时的老药，效果好，而且极其便宜。这对病人来说是福音，轻松就控制了病情。但麻烦的是，这对精英医生、医院来说可能不是个好消息， 原因再清楚不过了，这可能会断了这些人的财路。
 
-也许，没有比伊维菌素离穷苦人更近的药物了。全球每年大约有2.5亿人服用伊维菌素，抵御两种可怕的疾病——盘尾丝虫病和淋巴丝虫病。这些人多居住在偏远落后的欠发达地区，没有机会接受最基本的医疗救助，得益于药品捐助组织的帮助，他们才得以享受免费提供的伊维菌素。
+## 某些医疗精英、利益集团已经彻底的丧失了职业道德
 
-伊维菌素带来绵延40年之久的巨大成功。在人类与寄生虫病斗争的过程中，伊维菌素曾立下赫赫战功，拯救了数以百万的生命，这是近代制药工业辉煌的一页。
+这次疫情把美国FDA、NIH、CDC、医疗精英利益集团的自私、腐烂、傲慢、偏见暴露无疑。多年的假严管、假监管，其实是作茧自缚！打着保护消费者的名义欺骗美国民众。
 
-伊维菌素（Ivermactin）有抗CCP 病毒的作用。第一个报道是澳大利亚的科学家，体外细胞实验证明伊维菌素有效（17）。实际上，抗寄生虫的药物都可能对CCP病毒有效。伊维菌素有效的灵感可能来自于羟氯喹，因为羟氯喹也是抗寄生虫的药物。
+医生开处方，病人到药房才可以买药，最初的目的是保护病人。但现在处方变成了限制病人生死的关卡，医生不是救人，反而是在害病人。可怜的病人被人骗死还要帮人挣钱！把羟氯喹和伊维菌素类药物变为非处方药物咋就这么难？很难想象医生会因为病人开羟氯喹处方被医院开除，Simone Gold 医生就是一个活生生的例子（31-33）。
 
-按理来说伊维菌素是个老药，有这一篇文章就足够了，CCP病毒大流行，死这么多人，没有有效的治疗方法，任何人都应该可以试用。但事情可没有这么简单。首先第一个跳出来的是FDA，“有效吗？人药不给你、兽药也不许用！”（18）
+任何一个医生都曾宣誓希波克拉底誓言。希波克拉底誓言的精髓是：不故意伤害病人（First do no harm）。第三条：承认我能力的局限，只要我的病人病情需要，我应向我的各种卫生专业的同事求助。第六条：主要为了我病人的最佳利益，而不是主要为了推行社会的、政治的或财政的政策或我自己的利益而行动。
 
-Pierre Kory是一线CCP病毒治疗联盟（Front line COVID-19 Critical Care Alliance）医生。他多次向NIH呼吁伊维菌素有奇效无果，最后在国会作证（19）（20）。2021年1月14号NIH终于扭扭捏捏、羞羞答答的确认伊维菌素可以应用。注意，NIH只是不反对了，但是并不推荐，更不鼓励。Pierre Kory医生的许多重要视频被Youtube 禁了。为什么？你懂的！
+而血淋淋的现实是医院、医疗精英利益集团已经完全背叛了波克拉底誓言。为了一己之利和党派之争，不惜向全国人民撒谎，造成几千万人感染，几十万人死亡，长期霸占学术地位，疯狂打压有良知的医生。这哪里还有一点点职业道德？
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-24-at-7.41.13-AM.png)Pierre Kory医生
+羟氯喹和伊维菌素就像一面照妖镜，把美国FDA、NIH、CDC、医疗精英利益集团的罪恶彻底的暴露在光天化日之下。抗疫一路走来，人们现在已经越来越清楚了，非专业人士可能比专业人士更可信赖、普通医生可能比学术带头人精英医生更可信赖！
 
-阿根廷开展了一项研究实验，1195名医务人员中，407 名无预防用药，788名口服伊维菌素预防用药14 天，30天后的结果是：无预防用药组有58% 染病。服伊维菌素预防用药组无人感染（21）。按此结果，伊维菌素完全是个可以改变游戏规则的药物，如果全球每个人都用，同时用1-2个月，疫情也许会完全消失。比疫苗有效，同时用1-2个月，相当于1-2个月的群体免疫。病毒不就没有了吗？
+难道不是吗？莫博士和他的妻子是非专业人士，全世界最早在路德视频节目中说羟氯喹可以治疗CCP病毒（34）。加拿大一个老年看护中心的家属都知道伊维菌素可以预防、治疗CCP病毒（35）。普通医生Dr. vladimir zelenko，用《纽约时报》的话说：是纽约乡下的医生，住在一个破烂不堪的房子里。但是，他却知道用羟氯喹可以治疗CCP病毒，有勇气向川普总统写信呼吁。普通医生Dr. Pierre Kory 2002 年毕业于 St George 大学。St George 大学是西太平洋岛国格拉纳达的一所学校，学生都是进不了美国本土医学院的学生。不是名校毕业，而且是属于外国的医学院毕业生，但他知道怎样治疗、预防CCP病毒，他说真话，有一颗悬壶济世的心！为真相奔走呼号。
 
-巴西O Progresso医生在回答是否羟氯喹和伊维菌素缺乏科学证据时，非常激动的说：“需要数月、数年才能找到各种级别的证据。现在口口声声要证据简直是疯了。病人最后气管插管有用吗，你们怎么不要证据？在战时，在疫情面前医学官僚大咖们已经彻底的失去了合法性。面对这医疗系统崩溃，医院关门，大量病人死在医院门口。贝伦市（Belem，巴西的一座城市）采用了我们的治疗方案，仅仅几周时间，问题就解决了。如果这不是科学证据，那什么是科学证据？科学证据有意义吗？”（22）
+而福奇（Anthony Fauci）是 NIH传染病主任，康奈尔大学医学院毕业，这些精英们、学术带头人掌握医学界的话语权，却撒谎成性，也许仅为了一己私利或背后集团的利益，就造成了几千万人感染，几十万人死亡。呜呼，这真是美国的悲哀！这真是医学的悲哀！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-24-at-7.46.06-AM.png)O Progresso 医生
+## **结束语**
 
-46个临床实时回顾分析研究表明伊维菌素对预防CCP病毒效果极佳（23）。面对这样的效果，政客们，医疗精英们，是什么让你们蒙上了双眼？
+经过这一年多的抗疫，感觉CCP病毒真的就是个政治病毒，兜售疫苗也许更是趁火打劫。 CCP固然可恨，但同样可恨的还有世界上邪恶势力、邪恶大财团、各国无良政客们和医疗精英们！说到这里，我想起 了一位名人的话：
 
-（未完待续）
+人类千万年的历史，最为珍贵的不是令人眩目的科技，不是浩瀚的大师经典著作，不是政客们天花乱坠的演讲，而是真相和良心！CCP病毒并不可怕，可怕的是无良政客和所谓医学精英们的贪婪、伪善、傲慢与偏见！
+
+爆料革命和新中国联邦人背负着上天的使命。只要我们同勇敢、正义的美国人民站在一起，坚定地同世界人民站在一起，铲除中共邪恶势力、世界上的无良政客和某些医疗精英，就一定能彻底终结CCP病毒大流行！
+
+（全文完）
 
 * * *
 
 ### 参考资料：
 
-（17）[https://www.sciencedirect.com/science/article/pii/S0166354220302011](https://www.sciencedirect.com/science/article/pii/S0166354220302011)
+（24） [https://www.cnn.com/2020/12/11/business/pfizer-vaccine-covid-moderna-revenue/index.html](https://www.cnn.com/2020/12/11/business/pfizer-vaccine-covid-moderna-revenue/index.html)
 
-（18）[https://www.fda.gov/animal-veterinary/product-safety-information/fda-letter-stakeholders-do-not-use-ivermectin-intended-animals-treatment-covid-19-humans](https://www.fda.gov/animal-veterinary/product-safety-information/fda-letter-stakeholders-do-not-use-ivermectin-intended-animals-treatment-covid-19-humans)
+（25）[https://www.healthcarefinancenews.com/news/average-cost-hospital-care-covid-19-ranges-51000-78000-based-age](https://www.healthcarefinancenews.com/news/average-cost-hospital-care-covid-19-ranges-51000-78000-based-age)
 
-（19）[https://vimeo.com/490351508](https://vimeo.com/490351508)
+（26）[https://www.beckershospitalreview.com/finance/state-by-state-breakdown-of-federal-aid-per-covid-19-case.html](https://www.beckershospitalreview.com/finance/state-by-state-breakdown-of-federal-aid-per-covid-19-case.html)
 
-（20）[https://covid19criticalcare.com/](https://covid19criticalcare.com/)
+（27） [https://insidesources.com/are-hospitals-over-reporting-covid-19-cases-because-of-financial-incentive/](https://insidesources.com/are-hospitals-over-reporting-covid-19-cases-because-of-financial-incentive/)
 
-（21）[https://trialsitenews.com/argentinas-ivercar-ivermectin-carrageenan-study-shows-positive-results-targeting-covid-19/](https://trialsitenews.com/argentinas-ivercar-ivermectin-carrageenan-study-shows-positive-results-targeting-covid-19/)
+（28）[https://vidmax.com/video/194750-proof-minnesota-state-sen-proves-his-state-i](https://vidmax.com/video/194750-proof-minnesota-state-sen-proves-his-state-i)?
 
-（22）[https://rclutz.wordpress.com/2020/07/19/brazil-early-treatment-with-covid-kit-including-hcq-is-effective-and-safe/](https://rclutz.wordpress.com/2020/07/19/brazil-early-treatment-with-covid-kit-including-hcq-is-effective-and-safe/)
+（29）[https://www.christianpost.com/news/cdc-director-agrees-that-hospitals-have-monetary-incentive-to-inflate-covid-19-data.html](https://www.christianpost.com/news/cdc-director-agrees-that-hospitals-have-monetary-incentive-to-inflate-covid-19-data.html)
 
-（23）[https://ivmmeta.com/#fig\_fpr](https://ivmmeta.com/)
+（30） [https://fee.org/articles/physicians-say-hospitals-are-pressuring-er-docs-to-list-covid-19-on-death-certificates-here-s-why/](https://fee.org/articles/physicians-say-hospitals-are-pressuring-er-docs-to-list-covid-19-on-death-certificates-here-s-why/)
+
+（31） [https://www.youtube.com/watch?v=0oSGIC\_irVs](https://www.youtube.com/watch?v=0oSGIC_irVs)
+
+（32）[https://www.youtube.com/watch?v=tynTVhyGxiI](https://www.youtube.com/watch?v=tynTVhyGxiI)
+
+（33） [https://www.youtube.com/watch?v=7g8qfGMQVDg](https://www.youtube.com/watch?v=7g8qfGMQVDg)
+
+（34） [https://www.youtube.com/watch?v=8XCYzpHBEkI](https://www.youtube.com/watch?v=8XCYzpHBEkI)
 
 * * *
 
