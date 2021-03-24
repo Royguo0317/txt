@@ -1,11 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵直播2021/03/21
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1013209/)
+## 3/4/2021 瑞恩·科尔博士：新冠病毒疫苗缺乏长期安全和有效的保证，并可能会导致ADE
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1013685/)
 
-采集：滴水莲花
+人为制造的短缺提高了人们对疫苗的需求，但这些疫苗却并不能像传统疫苗那样能刺激人体产生免疫力和阻止疾病传播——如果注射疫苗后你产生了免疫力，那么为什么你还需要戴口罩和保持社交距离？所以这等于承认了他们知道那并不是疫苗。新冠病毒疫苗的长期安全性目前尚未得到数据的支持，所有的数据也只是疫苗厂商自己得到的，并没有独立机构对数据进行审核，而我对疫苗最大的担忧是ADE效应（抗体依赖性增强效应）。
 
-设计排版：空之灵
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-24-at-13.11.44.jpeg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-24-at-13.11.44-1.jpeg)
+By: 【秘密翻译组G-Translators】
+
 0
