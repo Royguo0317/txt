@@ -1,39 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 学费上涨，教学质量下降，中共教育上演“内循环”？
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1011120/)
+## 白宫评估阿拉斯加会面是“实质性的”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1011181/)
 
-作者：香草山农场  鹰(文言)
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-环球网3月23日转载辽沈晚报消息，辽宁省将于今年秋季学期上调省内高校学费标准。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Captura-de-pantalla-2021-03-23-a-las-7.42.43-p.-m..png)
-辽宁省22日发布《关于调整我省公办普通高校本科学费政策的通知》，统一上调高校学费标准，不具硕士学位授予权的高校文史、理工和医学类收费分别增至4400、4900、5200元/生/年；具备硕士学位授予权的高校对应调整为4800、5200、5500元/生/年（现行文史类标准为3500、4000、4200、4800元不等；现行理工农类标准为4200、4800、5200元不等；医学类为4800、5200元不等）。即高校学费新的收费标准是“择高”而定，涨幅从14%到37%（例3500提至4800元）。
+编辑上传 水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/C-22-9.jpg)nypost.com
+白宫2021年3月22日的新闻简报透露，阿拉斯加会面“是一次实质性的会议”，“我们期待着与中共国就一系列广泛的问题进行强硬和直接的会谈”。由此推断，“拜习会”在4月份上演将是大概率事件。【1】
 
-此前2020年多地高校曾被爆出收费猛涨的现象：如9月份河北外国语学院新的收费标准“突增”5000元（学校回应称调价因疫情导致物价上涨，且经省教育、财政厅审批，属合理收费）；2020年上半年河南、河北、山东、山西、安徽等省份上调本科学费。在经历了中共“经济转正”、“全面脱贫”的媒体假宣传后，高校学费涨价的现象并未消除，而且仍在持续上演。辽宁省的“择高定标准”更将因疫情导致地方政府财政压力过大以及物价上涨拉高开支的实情曝光于众，不但“打脸”一切的经济繁荣虚假宣传，更撤掉中共的“人民利益至上”遮羞布。
+白宫曾多次透露，是否存在“拜习会面”将取决于对阿拉斯加会面的评估。看了杨、王在阿拉斯加的表演，像文贵先生在第一时间指出的，这是在演戏，是勾兑或正在勾兑中的剧目。
 
-在高校收费上涨的同时，教育质量非但没有提高，反而进入“内循环”阶段。自2020年2月中共教育部、科技部发布《关于规范高等学校SCI论文相关指标使用 树立正确评价导向的若干意见》，以破除论文“SCI至上”的名义掀起对世界前沿尖端期刊的“轻视潮”；此前中国人民大学、北京师范大学、外交学院、中国农业大学、中央财经大学、北京语言大学、华中科技大学等7所大学取消申请硕士学位发表论文的硬指标，而今清华大学也正式加入此行列，众多国内名牌高校的“弃论文化”以及对境外期刊的种种防备，和教育界以规范职称评价标准为由掀起的项目论、功绩论，都揭示着中共正在逐步削减论文层面的学术交流普遍性。
+现将昨天白宫新闻简报【2】涉及中共国部分摘译，供战友参考、分析。
 
-再结合因高福、石正丽等发表的科技论文与中共隐瞒疫情相悖，成为指证中共恶意制造生化武器的证据，这才有了中共在2020年2月份加大对科技论文的审查力度，实为防范病毒真相被“不慎”发表。此后的破壁论文“唯SCI论”和取消学位论文硬性指标等做法，都反映出中共对墙内论文“无意”暴露事实的防范，以及对学生群体接触外国理性思维后影响洗脑成果的担忧，所以“弃论文化”与其说是纠正学术造假风气、减轻学生负担，不如说是在科技领域掀起的现代版“闭关锁国”。
+问：我能再问一个问题吗？周末的会议–上周，与中共国–
 
-综上，在经济萎靡不振现状下，中共的各地高校也只能纷纷通过涨价来维系运营或敛财“致富”，但教育成本的增加并未带来教育质量的提高，反而学术圈的闭关锁国现象越发严重。中共更是设定各种捆绑指标以统治墙内科技、学术圈，又以去SCI化、去论文化的导向使得学生群体远离世界前沿科技和理性逻辑思维，并用“爱国主义”和捏造的党史洗脑，继续强化愚昧化和奴隶化教育。
+普萨基：当然。
 
-（文章仅代表作者观点，与GNEWS网站无关）
+问：中共国在阿拉斯加的代表团，拜登从那次会面中得到了他想要的东西吗？他对此有什么样的反应？那么，（这次会面）会把两国引向哪里去呢？例如，拜登和习近平现在举行某种双边会晤的可能性是大还是小？你能告诉我们什么吗？
 
-新闻来源：
+普萨基：嗯，我们期待着与中共国就一系列广泛的问题进行强硬和直接的会谈，而事实正是如此。
 
-[辽宁调整高校学费！快看你的学校涨了多少](https://china.huanqiu.com/article/42QCa0qOxVw)
-[高校临开学新生收费猛增5千：学费外其他费用全都涨](https://news.163.com/20/0912/18/FMBHO1O600019K82.html)
-[多省教育厅通知，高校学费正式上涨，上学成本再次增加](https://new.qq.com/omn/20210108/20210108A0A3Q600.html)
-[重磅改革！清华大学：申请硕士学位不必发表论文](https://news.163.com/21/0318/17/G5D0BOJH0001899O.html)
-[申请硕士学位不用发论文 还需更多大学“进群”](https://edu.sina.com.cn/kaoyan/2021-03-19/doc-ikkntiam5548095.shtml)
-[光明网评论员：早该如此：申请硕士学位不用发论文](https://guancha.gmw.cn/2021-03/19/content_34700238.htm)
-[教育部 科技部印发《关于规范高等学校SCI论文相关指标使用 树立正确评价导向的若干意见》的通知](http://www.gov.cn/zhengce/zhengceku/2020-03/03/content_5486229.htm)
+我知道大家都很关注一些公共表演，或者，你知道，更戏剧化的公开报道，但我可以向你保证，从我们国家安全小组的谈话来看，这是一次实质性的会议，这是一个为期两天的会议。他们涵盖了一系列问题，从我们对人权侵犯的担忧、到对香港、台湾的侵略–我们关心的问题、经济问题–我们对经济和知识产权的担忧。当然，我们也会讨论我们合作的方式。
 
-责任编辑：韩国首尔喜韩农场 文迹~见证神迹
-编辑/校对：加拿大多伦多枫叶农场 约瑟
-发布：台湾宝岛农场 Cute panda
+所以我们在评估我们现在的状况，我们现在就在这里，我希望总统一定会和他的国家安全团队交谈–杰克·沙利文和托尼·布林肯，我们的国务卿和国家安全顾问。在前进的道路上，我们将与盟国和伙伴进行密切磋商，我们将继续与中共国合作，当然，向前看，这符合美国人民的利益。
 
+但就下一步而言，安克雷奇（Anchorage）是一个特别的会议，我们没有更多的东西来推断下一步要做什么。
 
+问： 今天，美国、欧盟和其他国家宣布对中共国实施新的制裁？
 
-+1
+普萨基：是的。
+
+问：关于侵犯人权，在安克雷奇发生的事受到影响到了吗？换言之，如果满足某些条件，美国是否会不参与这一进程了？两者之间有联系吗？
+
+你认为下一步该怎么办？中共国对欧盟进行了报复，你认为会对美国报复吗？如果他们不采取行动改变对这些少数民族的虐待，你还会采取什么制裁措施？
+
+普萨基：好吧，关于第一个问题，我不知道会有什么联系或者（原）计划的撤回。显然，这是对我们认为的严重侵犯人权行为的反应–显然，欧洲人也有这种感觉–针对新疆少数民族和宗教群体的成员，任何会议都不会改变我们对此的担忧。
+
+正如你所指出的，我们与英国、加拿大和欧洲联盟一道采取了行动，他们也对与这些暴行有关的侵犯人权者采取了行动。你知道，这表明我们一直致力于多边合作，促进对人权的尊重，我们继续严重关切中共国在新疆对维吾尔人犯下的反人类罪和种族灭绝罪。
+
+但我没有任何东西可以预测你（设想的）未来的制裁。显然，这是上周会面提出的问题，也是几周前拜登与习近平谈话时提出的问题。
+
+问：如果中共国不改变态度，美国会怎么做？这算是一种一次性制裁吗？或者在今后的道路上，是否会重新审视这一点，是否有可能实施进一步的制裁？我的意思是，他们（中共国）没有表示任何改变行为的迹象，事实上，他们几乎在加倍展示，他们对这些少数群体没有做错什么。
+
+普萨基：嗯，很明显，制裁是为了阻止罪行，但我不打算裁决或采取任何行动，在这个时候–甚至不到60天，今天是哪一天？第62天？我甚至不确定–对政府（来说）。
+
+我可以向你们保证，很明显，这是–再说一遍，我们将与世界各地的伙伴和盟国密切协调，评估下一步的合适的步骤，正如国务卿在本次会议后的讲话中指出的那样，我们确信，中共国正在注意到，我们与盟友和伙伴的合作比过去四年更加密切，我们正集中精力采取措施，投资和改善我们在国内的经济竞争，这些都是我们确信他们能看到的（我们所采取的）措施。
+
+原文部分：
+
+Q：Can I ask a follow-up? The meeting over the weekend — last week, with the Chinese (inaudible)
+
+MS. PSAKI:  Sure.
+
+Q：the Chinese delegation in Alaska.  Did the President get what he wanted out of that meeting?  Does he have any response to what came from it?  And where does it leave the countries now, going forward?  For instance, is the prospect of some sort of bilateral meeting between President Biden and President Xi now more or less likely?  Is there anything you can give us on that?
+
+MS. PSAKI:  Well, we expected tough and direct talks with the PRC on a wide range of issues, and that’s exactly what happened.
+
+And I know there has been a lot of focus on some of the public theatrics or, you know, more dramatic public piece, but I can assure you from talking to our national security team that it was a substantive meeting.  It was a two-day meeting.  They covered a range of issues, from our concerns about human rights abuses; to aggression in Hong Kong, Taiwan — our concerns there; economic — our concerns about economic and intellectual property.  And we also, of course, talk about ways we can work together.
+
+So we’re taking stock of where we are.  This is where we are now.  I expect the President will certainly be talking with his national security team — well, Jake Sullivan and Tony Blinken, our Secretary of State and National Security Advisor who traveled.  And we will have close consultation with allies and partners on the way forward.  We’ll continue to work with China, of course, going forward, where it’s in the interests of the American people.
+
+But in terms of next steps, Anchorage was a standalone meeting, and we don’t have anything more to determine about what’s next.
+
+Q：And today, the U.S., EU, and other countries announced new sanctions on China —
+
+MS. PSAKI:  Yeah.
+
+Q：— with respect to human rights abuses.  Did anything happen — that happened in Anchorage affect that?  In other words, would the U.S. have not participated in that had certain conditions been met?  Is there any link between the two?
+
+And what next steps do you think — China has retaliated against the EU.  Do you expect U.S. retaliation?  And is there any more sanctions that you would do if they don’t act to change course with respect to the treatment of these minority groups?
+
+MS. PSAKI:  Well, on the first question, I’m not aware of any linkage or plans to pull that back.  Obviously, this was a reaction to what we felt were serious human rights abuses — and, obviously, the Europeans felt this as well — against members of Xinjiang’s ethnic and religious minority groups.  And no meeting would change our concerns related to that.
+
+And we took action, as you noted, in unity with the United Kingdom, Canada, and the European Union, who also acted against human rights abusers in connection with these atrocities.  You know, this demonstrates our ongoing commitment to work multilaterally to advance respect for human rights, and we continue to have grave concerns about China’s crimes against humanity and genocide on Uyghurs in Xinjiang.
+
+But I don’t have anything to predict for you on future sanctions.  Obviously, this is an issue that was raised in this meeting last week and was an issue that was raised by the President in his conversation with President Xi just a few weeks ago.
+
+Q：What will the U.S. do, if anything, if China doesn’t change its approach?  Is this, sort of, a one-stop sanction?  Or down the road, will this be revisited and are further sanctions possible?  I mean, they’ve given no indication that they would change approach; in fact, they have more or less doubled down that they’re doing nothing wrong with respect to these minority groups.
+
+MS. PSAKI:  Well, clearly, sanctions are meant to deter behavior, but I’m not going to rule in or rule out any actions when we’re at — not even day 60.  What day are we at?  Sixty-two?  I’m not even sure — of the administration.
+
+I can assure you that, obviously, this is — again, we will be evaluating what the appropriate next steps are in close coordination with our partners and allies around the world.  And as Secretary of State noted in his comments after this meeting, we are certain that the Chinese are noting that we are working much more closely with our allies and partners than had happened over the last four years, that we are focused on taking steps to invest in and improve our economic competition here at home.  Those are all steps we are certain they’re taking note of.
+
+参考链接：
+
+【1】[https://gnews.org/zh-hans/991643/](https://gnews.org/zh-hans/991643/)
+
+【2】https://www.whitehouse.gov/briefing-room/press-briefings/2021/03/22/press-briefing-by-press-secretary-jen-psaki-march-22-2021/
+
+0

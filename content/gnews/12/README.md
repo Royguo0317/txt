@@ -1,23 +1,82 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：美国将与北约盟国讨论结束阿富汗战争计划
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1011659/)
+## 视频：种族主义是种族主义者的问题，也是产生种族主义的社会问题
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1011799/)
 
-出品：《路德社》   编辑：《路德社》精选新闻专栏组
+内容：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/032409.jpg)
+I am a descendant of slaves.
 
-华尔街日报3月21日报道：拜登政府官员本周将与盟友会晤，讨论结束阿富汗战争计划。美国务卿布林肯本周将前往布鲁塞尔，与北约组织成员国举行会议。在此之前，美防长奥斯汀周日对阿富汗进行了未经宣布的访问，撤军计划是川普政府制定的，美国官员至今还未就是否会在5月1日撤军进行表态，目前至少有2500名美军和6500名北约部队驻扎在阿富汗，盟友表示，他们将依靠美国的后勤支持撤军。
+我是一个奴隶的后裔
 
-评论：
+My great-grandmother, Mary Thomas, born in 1865,
 
-布林肯与中方代表团结束会谈后立即转战北约，向北约盟国传递此次谈判最新进展。以美国为首的北约各成员国都在陆续派兵前往中共国附近海域，北约联合军演陆续展开。美国如果此次与北约盟国达成阿富汗撤军计划，那将有更多主力部队被调往应对中共国的前线阵地，这再次验证路德社在2020年的爆料，北约将在今年三、四月份开始全面备战状态。
+我的曾祖母，玛丽·托马斯，生于1865年
 
-[援引原文](https://www.wsj.com/articles/defense-secretary-lloyd-austin-makes-unannounced-visit-to-afghanistan-11616335453?mod=hp_lead_pos5)
+Was the child of a slave – this is just three generations back from me.
 
-本问作者：《重生者》
-审核校对：鲁邦五世
-上传排版：糖果儿
+是一名儿童奴隶 – 到我这儿是三代人
+
+I grew up in the segregated South, I was bused to a segregated school
+
+我在种族隔离的南方长大，我被送往一所隔离的学校上学
+
+And on weekends the Ku Klux Klan burned crosses on lawns in our neighborhood.
+
+周末，3K党(Ku Klux Klan)在我们的邻里附近的草坪上烧了十字架
+
+When I was in high school, I was asked by a little girl for whom I babysat,
+
+当我上高中的时候，有一个小女孩问我，我是谁的保姆
+
+If I was an n-word, because her dad had used that word for me.
+
+如果我是黑奴，因为她的父亲曾用过这个词形容我
+
+I know the ugly face of racism
+
+我知道种族主义的丑陋嘴脸
+
+I lived racism. I have experienced racism.  And I survived racism.
+
+我在种族主义之中生活过。 我经历过种族主义。而且我在种族主义中幸存下来
+
+And through this process, I learned a simple truth
+
+通过这个过程，我学到了一个简单的道理
+
+Racism is not the problem of the person who experiences it.
+
+种族主义不是经历它的人的问题
+
+Those of us who experience racism cannot and should not, internalize it.
+
+我们当中那些经历种族主义的人们不能也不应将其内部化
+
+Despite the impact it can have on our everyday lives.
+
+尽管它会影响我们的日常生活
+
+We must face it down every time, no matter whom it’s directed towards.
+
+无论它是针对谁的，我们每次都必须面对它
+
+Racism is the problem of the racist, and it is the problem of the society that produces the racist-
+
+种族主义是种族主义者的问题，也是产生种族主义的社会问题
+
+and in today’s world, that is every society.
+
+在当今世界，那是每个社会的问题
+
+———————————————–
+
+英听校：    康州盘古农场 – Layka
+翻译：       康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发文：康州盘古农场-轰炸机
 
 0

@@ -1,93 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 白宫评估阿拉斯加会面是“实质性的”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1011181/)
+## 中美阿拉斯加会谈是披着羊皮的狼和披着羊皮的狼演的一出戏
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1011178/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+简述：在2021年3月21日的盖特中，郭先生第一次披露了中美阿拉斯加会谈的本质 —— 那是一出戏！中共的王毅和杨洁篪是披着狼皮的羊，而美方是披着羊皮的狼，他们之所以这样演是因为，中共可以继续骗14亿老百姓，而美方也可以满足私利，而最后买单的则是中国14亿草根老百姓，不信就等着瞧。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210321-getter1-part2.srt.txt)
 
-编辑上传 水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/C-22-9.jpg)nypost.com
-白宫2021年3月22日的新闻简报透露，阿拉斯加会面“是一次实质性的会议”，“我们期待着与中共国就一系列广泛的问题进行强硬和直接的会谈”。由此推断，“拜习会”在4月份上演将是大概率事件。【1】
+**中美阿拉斯加会谈是披着羊皮的狼和披着羊皮的狼演的一出戏**
 
-白宫曾多次透露，是否存在“拜习会面”将取决于对阿拉斯加会面的评估。看了杨、王在阿拉斯加的表演，像文贵先生在第一时间指出的，这是在演戏，是勾兑或正在勾兑中的剧目。
+**The US-China Alaska Meeting Is a Show**
 
-现将昨天白宫新闻简报【2】涉及中共国部分摘译，供战友参考、分析。
+咱这个先不多说，咱再说说更夸张的。这几天都在说的是，所有的阿拉斯加，中美两国会谈，只有咱们一家说这是演戏，没有任何人知道演戏，因为咱知道情报，那不是瞎蒙的，你老蒙的那是永远不可能100%准确的，是吧？只有咱一家说出这是演戏。这几天很多有良知的所谓的媒体人，还有政客们跟七哥开会都快疯了，[问]“为什么 Miles 你能知道这是在演戏呢？”很简单兄弟姐妹们，我说看这个演戏，我给他们形容了一个，我说：“中共国假擀面杖子经济，假的吹牛，我说它就像一个什么？”
 
-问：我能再问一个问题吗？周末的会议–上周，与中共国–
+Let’s just move on and talk about something more absurd. All that people have been talking about these days was the Alaska meeting between the US and China. We are the only one saying that it was a show. No one else knew about this. It’s because we have the intelligence, so we are not taking a shot in the dark. If you guess blindly, you will never be 100% correct, right? We are the only media who said it was a show. In these days, many so-called media professionals with conscience along with politicians have had meetings with me like crazy, asking “How do you know it was a show, Miles?” It is very simple, brothers and sisters. I said, “Look, this is a show.” Then I made a metaphor, “What do the ‘rolling pin’ (fake) economy of the CCP and their boastings look like?”
 
-普萨基：当然。
+我说：你去想想中共国的经济、军事，所有的实力跟美国比，它真的就是一个羊，这没办法。那么美国在世界上军事、政治、经济、技术、影响力，它绝对是个狼。咱用这这两个动物来讲。那么中共国今天为啥敢这么嚣张？中共敢这么嚣张，因为它手里边它绑架到14亿中国人民，还有一个它在美国有蓝金黄，它就是14亿奴隶和蓝金黄手段，所笼络的资源，不就这个吗？是吧？兄弟姐妹们，还有啥可说的，不就这两招儿吗？
 
-问：中共国在阿拉斯加的代表团，拜登从那次会面中得到了他想要的东西吗？他对此有什么样的反应？那么，（这次会面）会把两国引向哪里去呢？例如，拜登和习近平现在举行某种双边会晤的可能性是大还是小？你能告诉我们什么吗？
+I said, think about the economic and military strength of the CCP, when compared to the US, it is like a sheep, with no doubt. Considering the strength and influence of military, politics, economy, and technology, the US is absolutely a wolf. Let’s use these two animals to tell the story. Then, why dare the CCP to be so arrogant? It is because the CCP has kidnapped 1.4 billion Chinese people. Another reason is the BGY plot in the US, using all the resources netted by abusing the 1.4 billion slaves. Right? Brothers and sisters, what else can I say? The CCP only has only these two tricks, right?
 
-普萨基：嗯，我们期待着与中共国就一系列广泛的问题进行强硬和直接的会谈，而事实正是如此。
+我说那为什么中美阿拉斯加峰会成这样的滑稽的场面？很多欧美人问我：你怎么看这件事情。我说：非常简单，看中共和美国这两个峰会，我有两个比喻。中共所谓的杨娘娘，还有王公公就是一个披着羊皮的羊，披着羊皮的羊它还是羊，咋呼得很厉害，左顾右盼、前看后看，在那又蹬腿又挠地的，“啪啪啪”它把它自己当成了狼了。
 
-我知道大家都很关注一些公共表演，或者，你知道，更戏剧化的公开报道，但我可以向你保证，从我们国家安全小组的谈话来看，这是一次实质性的会议，这是一个为期两天的会议。他们涵盖了一系列问题，从我们对人权侵犯的担忧、到对香港、台湾的侵略–我们关心的问题、经济问题–我们对经济和知识产权的担忧。当然，我们也会讨论我们合作的方式。
+I then asked, “Why did the US-China Alaska meeting have such an absurd scene?” Many people from Europe and America asked me, “What’s your take on this?” I said, “It was very simple. I can use two metaphors to describe the meetings between the CCP and the US. The so-called Empress Yang (Jiechi Yang) and Eunuch Wang (Yi Wang) were sheep covered with the skin of a wolf. Sheep in wolf’s clothing are still sheep no matter how much fuss they make, how they check around, look back and forth, kick and scratch the ground, or how much they believe they are a wolf.”
 
-所以我们在评估我们现在的状况，我们现在就在这里，我希望总统一定会和他的国家安全团队交谈–杰克·沙利文和托尼·布林肯，我们的国务卿和国家安全顾问。在前进的道路上，我们将与盟国和伙伴进行密切磋商，我们将继续与中共国合作，当然，向前看，这符合美国人民的利益。
+我说美国那是什么呢？是披着羊皮的狼，是披着羊皮的狼，完了。他为啥？它真把自己当羊了。为什么美国这个狼要把自己披着羊皮呢？因为美国有弱点，美国不敢当狼，因为这个羊跟它之间有默契，要让它当一次羊，因为回到中共国去好骗那14亿的奴隶。咱俩演戏，然后我这个羊，穿着羊皮的咋呼的羊，要开始给你多送点羊过来，或者在美国弄点狼肉吃吃。就这么简单。
 
-但就下一步而言，安克雷奇（Anchorage）是一个特别的会议，我们没有更多的东西来推断下一步要做什么。
+I continued, “Then what was America like? It was a wolf in sheep’s clothing. Period. Why? It indeed treated itself as a sheep. Why was America the wolf willing to put on sheep’s clothing? It’s because others got goods on America, so that it didn’t have the courage to be a wolf. It’s because the sheep had a tacit agreement with it and asked it to pretend to be a sheep for once, in order to cheat the 1.4 billion slaves in Communist China. So, if you America agreed to put on a show with me, I, the noisy sheep in wolf’s clothing would send more sheep to you or even some other wolf’s meat for you America to eat.”
 
-问： 今天，美国、欧盟和其他国家宣布对中共国实施新的制裁？
+我说：最终，一定要记住，美国狼还会回到本质，美国的狼还会是披着狼皮的狼，中共国还是披着羊皮的羊，或者被扒了皮的羊，就这么简单。他们都爱笑死了。
 
-普萨基：是的。
+“Simple as this,” I said, “ultimately, please remember, the America wolf will go back to its nature. The American wolf will turn back to a wolf in wolf’s skin, and the CCP sheep will still be a sheep in sheep’s skin or naked with its skin peeled. That’s it.” They all laughed.
 
-问：关于侵犯人权，在安克雷奇发生的事受到影响到了吗？换言之，如果满足某些条件，美国是否会不参与这一进程了？两者之间有联系吗？
+不管你咋咋呼，你都是披着羊皮的羊。所以说，我说：他越咋呼越好，他对香港对台湾以及到非洲、中东，玩的这一切手段都是政治手段，一切都是为内政，一切都是内政。好好看看第二次世界大战，希特勒，当时的法国、英国，包括日本，很多重大的影响国家命运的决策，当时都和内政，内部政治有绝对的关系，这全世界的政治都是一家的，都是流氓。但是中共国不是流氓，它是真正的黑社会，它是绑架14亿中国人民的，它是以14亿人民作为筹码跟全世界讲数的。美国人愿意，知道自己是狼，还披着羊皮，就是更为了获取个人获得更多的羊肉，为个人获得更多的羊肉，和未来吃更多的羊崽子，甚至吃个羊胎盘啥的，是吧？就这么简单。
 
-你认为下一步该怎么办？中共国对欧盟进行了报复，你认为会对美国报复吗？如果他们不采取行动改变对这些少数民族的虐待，你还会采取什么制裁措施？
+No matter how loud you voiced, you are still a sheep in sheep’s skin. So, I said, “It is better if they keep making more fuss. All means the CCP has used toward Hong Kong, Taiwan, Africa, and the Middle East are political tactics for its domestic politics. Please take a good look at WWII. Many critical decisions that influenced a nation’s fate made by Hitler, France, the UK, or Japan at that time were absolutely connected with their domestic politics. All the world’s politicians belong to the same family – they are all rogues. Yet, the CCP is not a rogue, rather, it is a true gangsterdom. It has kidnapped 1.4 billion Chinese and used the 1.4 billion Chinese as leverage to bargain with the world. The Americans were willing to put on sheep’s clothing, even though they knew they were wolves, because they wanted to get more sheep meat for their personal interest and get more lambs for the future, or even get some sheep placentas to eat, right? Simple as this.”
 
-普萨基：好吧，关于第一个问题，我不知道会有什么联系或者（原）计划的撤回。显然，这是对我们认为的严重侵犯人权行为的反应–显然，欧洲人也有这种感觉–针对新疆少数民族和宗教群体的成员，任何会议都不会改变我们对此的担忧。
+但是美国这次是被羞辱的，中共这次是咋咋呼呼的解决了内部的上海邦和习大神的问题，更重要的事情最后是剪韭菜，最后买单的是咱中国老百姓。两边，不管是狼披羊皮，还是羊披羊皮，但最后买单的就咱中国老百姓，草根。就这么简单，信不信？不信拉倒。
 
-正如你所指出的，我们与英国、加拿大和欧洲联盟一道采取了行动，他们也对与这些暴行有关的侵犯人权者采取了行动。你知道，这表明我们一直致力于多边合作，促进对人权的尊重，我们继续严重关切中共国在新疆对维吾尔人犯下的反人类罪和种族灭绝罪。
+America was humiliated this time, and the noisy CCP has solved its internal conflict between the Shanghai Gang and God Xi. More importantly, the CCP could reach its ultimate goal of harvesting the chives (referring to robbing the ordinary Chinese) and having the ordinary Chinese to pay the bills in the end. No matter to the wolf in sheep’s clothing or the sheep in sheep’s skins, in the end, it is the ordinary Chinese who will pay for the bills, the grassroots. Simple as this. Do you believe me? It doesn’t matter if you don’t.
 
-但我没有任何东西可以预测你（设想的）未来的制裁。显然，这是上周会面提出的问题，也是几周前拜登与习近平谈话时提出的问题。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60575c13d1608d609ea69e30](https://gtv.org/getter/60575c13d1608d609ea69e30)  (1:59-2:54, 3:07-7:21)
+鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/998813/](https://www.gnews.org/zh-hans/998813/)
 
-问：如果中共国不改变态度，美国会怎么做？这算是一种一次性制裁吗？或者在今后的道路上，是否会重新审视这一点，是否有可能实施进一步的制裁？我的意思是，他们（中共国）没有表示任何改变行为的迹象，事实上，他们几乎在加倍展示，他们对这些少数群体没有做错什么。
+* * *
 
-普萨基：嗯，很明显，制裁是为了阻止罪行，但我不打算裁决或采取任何行动，在这个时候–甚至不到60天，今天是哪一天？第62天？我甚至不确定–对政府（来说）。
-
-我可以向你们保证，很明显，这是–再说一遍，我们将与世界各地的伙伴和盟国密切协调，评估下一步的合适的步骤，正如国务卿在本次会议后的讲话中指出的那样，我们确信，中共国正在注意到，我们与盟友和伙伴的合作比过去四年更加密切，我们正集中精力采取措施，投资和改善我们在国内的经济竞争，这些都是我们确信他们能看到的（我们所采取的）措施。
-
-原文部分：
-
-Q：Can I ask a follow-up? The meeting over the weekend — last week, with the Chinese (inaudible)
-
-MS. PSAKI:  Sure.
-
-Q：the Chinese delegation in Alaska.  Did the President get what he wanted out of that meeting?  Does he have any response to what came from it?  And where does it leave the countries now, going forward?  For instance, is the prospect of some sort of bilateral meeting between President Biden and President Xi now more or less likely?  Is there anything you can give us on that?
-
-MS. PSAKI:  Well, we expected tough and direct talks with the PRC on a wide range of issues, and that’s exactly what happened.
-
-And I know there has been a lot of focus on some of the public theatrics or, you know, more dramatic public piece, but I can assure you from talking to our national security team that it was a substantive meeting.  It was a two-day meeting.  They covered a range of issues, from our concerns about human rights abuses; to aggression in Hong Kong, Taiwan — our concerns there; economic — our concerns about economic and intellectual property.  And we also, of course, talk about ways we can work together.
-
-So we’re taking stock of where we are.  This is where we are now.  I expect the President will certainly be talking with his national security team — well, Jake Sullivan and Tony Blinken, our Secretary of State and National Security Advisor who traveled.  And we will have close consultation with allies and partners on the way forward.  We’ll continue to work with China, of course, going forward, where it’s in the interests of the American people.
-
-But in terms of next steps, Anchorage was a standalone meeting, and we don’t have anything more to determine about what’s next.
-
-Q：And today, the U.S., EU, and other countries announced new sanctions on China —
-
-MS. PSAKI:  Yeah.
-
-Q：— with respect to human rights abuses.  Did anything happen — that happened in Anchorage affect that?  In other words, would the U.S. have not participated in that had certain conditions been met?  Is there any link between the two?
-
-And what next steps do you think — China has retaliated against the EU.  Do you expect U.S. retaliation?  And is there any more sanctions that you would do if they don’t act to change course with respect to the treatment of these minority groups?
-
-MS. PSAKI:  Well, on the first question, I’m not aware of any linkage or plans to pull that back.  Obviously, this was a reaction to what we felt were serious human rights abuses — and, obviously, the Europeans felt this as well — against members of Xinjiang’s ethnic and religious minority groups.  And no meeting would change our concerns related to that.
-
-And we took action, as you noted, in unity with the United Kingdom, Canada, and the European Union, who also acted against human rights abusers in connection with these atrocities.  You know, this demonstrates our ongoing commitment to work multilaterally to advance respect for human rights, and we continue to have grave concerns about China’s crimes against humanity and genocide on Uyghurs in Xinjiang.
-
-But I don’t have anything to predict for you on future sanctions.  Obviously, this is an issue that was raised in this meeting last week and was an issue that was raised by the President in his conversation with President Xi just a few weeks ago.
-
-Q：What will the U.S. do, if anything, if China doesn’t change its approach?  Is this, sort of, a one-stop sanction?  Or down the road, will this be revisited and are further sanctions possible?  I mean, they’ve given no indication that they would change approach; in fact, they have more or less doubled down that they’re doing nothing wrong with respect to these minority groups.
-
-MS. PSAKI:  Well, clearly, sanctions are meant to deter behavior, but I’m not going to rule in or rule out any actions when we’re at — not even day 60.  What day are we at?  Sixty-two?  I’m not even sure — of the administration.
-
-I can assure you that, obviously, this is — again, we will be evaluating what the appropriate next steps are in close coordination with our partners and allies around the world.  And as Secretary of State noted in his comments after this meeting, we are certain that the Chinese are noting that we are working much more closely with our allies and partners than had happened over the last four years, that we are focused on taking steps to invest in and improve our economic competition here at home.  Those are all steps we are certain they’re taking note of.
-
-参考链接：
-
-【1】[https://gnews.org/zh-hans/991643/](https://gnews.org/zh-hans/991643/)
-
-【2】https://www.whitehouse.gov/briefing-room/press-briefings/2021/03/22/press-briefing-by-press-secretary-jen-psaki-march-22-2021/
+翻译：【7PawBear】校对：【Isaiah4031】【BruhM】字幕：【Rock小哥】视频解码：【恒久忍耐】技术支持：【Rock小哥】推广：【V%】【TINALS】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0

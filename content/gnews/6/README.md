@@ -1,82 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 视频：种族主义是种族主义者的问题，也是产生种族主义的社会问题
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1011799/)
+## 美海军上将提醒中共短期内将军事打击台湾
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1011871/)
 
-内容：
+俄罗斯莫斯科喀秋莎农场   银河
 
-I am a descendant of slaves.
+编辑上传   水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/T-32-8.jpg)defence.pk
+印太地区是美国的优先领域，是对美国未来战略影响最大的地区。美国海军上将约翰·阿奎利诺(John Aquilino)在参议院军事委员会(Senate Armed Services Committee)上说，虽然俄罗斯、朝鲜和暴力极端主义组织对印度洋-太平洋地区构成威胁，但是中共仍然是令人担忧的问题，尤其中共宣称将控制台湾是此区域的首要防务。该委员会正在考虑提名阿奎利诺担任美国印太司令部司令。
 
-我是一个奴隶的后裔
+近期美国主要军事官员发出了一系列越来越严厉的警告，提醒美国政策制定者注意中共的野心，以及他们认为北京将会付出多大努力来实现这些野心。即将退休的美国印太司令部司令菲利普·戴维森在本月表示，华盛顿无力充分反击中共的军事活动，正鼓励中共变得更加咄咄逼人。中共正在“加速他们的野心”，把台湾、关岛和其他盟友置于更大的风险之中，中共正加速在世界舞台上超越美国的计划。
 
-My great-grandmother, Mary Thomas, born in 1865,
+阿基里诺指出，中共可能决定从现在到2045年之间的某个时候对台湾发动军事打击，“这个问题比大多数人认为的更接近我们。” 他说，如果中共被允许接管台湾，这将严重打击美国作为该地区强大和值得信赖的伙伴的信誉。要应对这一挑战，需要动用所有国家力量，带着紧迫感共同努力，团结美国的盟国和战略伙伴共同抵制中共威胁。
 
-我的曾祖母，玛丽·托马斯，生于1865年
+阿基里诺说，太平洋威慑倡议是在该地区竞争和获胜所需努力的一个强有力的例子。该计划的重点是获取先进的军事能力以威慑中共，包括天基雷达、导弹防御、远程精确火力、后勤、创新及实验，和改善与盟友和伙伴的互操作性和演习。
 
-Was the child of a slave – this is just three generations back from me.
+根据《与台湾关系法》(Taiwan Relations Act)，美国和多国伙伴将与台湾进行训练演习。此外，阿基里诺强调，他对台湾购买防御性军事能力感到鼓舞。
 
-是一名儿童奴隶 – 到我这儿是三代人
+阿基里诺强调美国在印太区域的军事部署至关重要。他说，奥巴马政府的《国家安全战略临时指导》指出，“美国的命运与国外的事件交织在一起。全球和平与繁荣取决于我们在印度洋-太平洋地区的存在。”
 
-I grew up in the segregated South, I was bused to a segregated school
+参考链接：
 
-我在种族隔离的南方长大，我被送往一所隔离的学校上学
+[https://www.defense.gov/Explore/News/Article/Article/2547389/defense-of-taiwan-vital-to-regional-national-security-admiral-says/](https://www.defense.gov/Explore/News/Article/Article/2547389/defense-of-taiwan-vital-to-regional-national-security-admiral-says/)
 
-And on weekends the Ku Klux Klan burned crosses on lawns in our neighborhood.
-
-周末，3K党(Ku Klux Klan)在我们的邻里附近的草坪上烧了十字架
-
-When I was in high school, I was asked by a little girl for whom I babysat,
-
-当我上高中的时候，有一个小女孩问我，我是谁的保姆
-
-If I was an n-word, because her dad had used that word for me.
-
-如果我是黑奴，因为她的父亲曾用过这个词形容我
-
-I know the ugly face of racism
-
-我知道种族主义的丑陋嘴脸
-
-I lived racism. I have experienced racism.  And I survived racism.
-
-我在种族主义之中生活过。 我经历过种族主义。而且我在种族主义中幸存下来
-
-And through this process, I learned a simple truth
-
-通过这个过程，我学到了一个简单的道理
-
-Racism is not the problem of the person who experiences it.
-
-种族主义不是经历它的人的问题
-
-Those of us who experience racism cannot and should not, internalize it.
-
-我们当中那些经历种族主义的人们不能也不应将其内部化
-
-Despite the impact it can have on our everyday lives.
-
-尽管它会影响我们的日常生活
-
-We must face it down every time, no matter whom it’s directed towards.
-
-无论它是针对谁的，我们每次都必须面对它
-
-Racism is the problem of the racist, and it is the problem of the society that produces the racist-
-
-种族主义是种族主义者的问题，也是产生种族主义的社会问题
-
-and in today’s world, that is every society.
-
-在当今世界，那是每个社会的问题
-
-———————————————–
-
-英听校：    康州盘古农场 – Layka
-翻译：       康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发文：康州盘古农场-轰炸机
-
-0
++1

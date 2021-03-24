@@ -1,38 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 我们是第一个喊出反对歧视中国人、把共产党和中国人分开的人
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1011345/)
+## 大流行时代的新医疗对策DOMANE
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1011374/)
 
-简述：在2021年3月21日的盖特视频中，郭先生对美国最近的反种族歧视和发歧视华人运动发表评论，指出在西方第一个喊出把共产党和中国人分开和保护华人的是新中国联邦。无数的战友还有美国朋友为此正在不懈地努力，他们包括：班农先生、朱利安尼市长、前国务卿蓬佩奥和 Miles Yu 先生。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210321-getter1-part3.srt-1.txt)
-**我们是第一个喊出反对歧视中国人、把共产党和中国人分开的人**
+Dvidshub 2月23日发表了Revell Phillips博士和Dale Taylor的这篇文章, 摘录翻译后共享如下。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1000x665_q95-2.jpg)图片来源Dvidshub
+国防威胁减少局的化学和生物技术部作为联合科学技术办公室，正在开发一个名为DOMANE的系统中的系统 — — 发现针对新型实体的医疗对策 — — 这是一项跨学科工作，小组成员的专长包括计算机科学、物理学和医学。国防威胁减少局认为，一种药物可能不足以对抗威胁，因此它正在开发DOMANE，以快速识别药物组合，从多个目标上影响新型生物威胁，这可能被证明可以有效地促进疾病改变效果，以对抗生物威胁。
 
-**Anti-Discrimination Against Chinese Is First Voiced by the NFSC**
+DOMANE内的系统包括机器学习、高通量筛选、硅片预测工具、低温电子显微镜（cryo-EM）、片上器官等新兴技术。机器学习算法大大减少了搜索海量药物和疾病数据所需的时间。这些研究的结果是在全球范围内提供了大量关于生物威胁如何影响人体的实验室和临床数据（”大数据”）库。
 
-像这些天在美国在全世界，现在开始有人想起来了，反对种族歧视，反对歧视中国人，反对仇恨。扯蛋呐。我们两三年了，我们喊两三年了。没有新中国联邦，没有新中国联邦为中国人，把共产党和中国人分开，没有在西方说绝对是共产党病毒，不是中国病毒，没有我们一再地说，“所有的共产党绑架了中国人民，所有共产党不等于中国人民”，要不是早这几年说，不是种族仇恨，一定会是像印尼亚排华事件一样，是种族大屠杀，甚至种族大动乱。如果但凡有点良知有点心的人去想一想，他就是这个结果。
+COVID-19大流行以及由此造成的国家人员和经济损失表明，美国对新出现的和未知的传染性疾病的脆弱性是明确的和现实的。对于战场上的联合部队来说，由于新出现的生物威胁而生病的可能性会影响他们的任务。理想情况下，他们应该配备所需的医疗对策，以减少新出现的生物威胁的影响。
 
-Now in the U.S. and in the world, there are people who suddenly remembered the issue of anti-racial discrimination, anti-discrimination against Chinese, and anti-hatred. All bullshit. We have being voicing this for two to three years! Without the NFSC’s years of effort of separating the CCP from Chinese people, telling the West that it’s the CCP virus rather than China virus, repeatedly saying that the CCP has kidnapped Chinese people, and that the CCP cannot represent Chinese people, we would not have just racial hatred now, we would have something like the discrimination of Chinese decedents in Indonesia, which was basically a genocide, or even a racial turmoil. Anyone who has some conscience and think a little about this would reach this conclusion.
+DOMANE从2019年开始，在目前的大流行之前，目标是缩短传统的，多年的时间来开发医疗对策来治疗新型疾病。利用食品和药物管理局（FDA）已经批准的药物，DOMANE将评估将其重新用作医疗对策以对抗新兴威胁的可行性。使用FDA批准的药物的一些优势是，它们已经可以制造，具有众所周知的毒理学特征，并且可以直接进行人类疗效或动物规则研究。这可以减少或消除耗费时间的动物毒理学和人类安全研究，并加强当前的良好制造实践，以扩大工艺和持续稳定性评估。
 
-新中国联邦和爆料革命我们每个人，我们的《路德访谈》，我们的博士军团，我们无数个战友们，在全世界各地的上街游行呼吁，和G-News上写了这么多文章的，我们的战友和义工们，还有我们现在秘密翻译组，以及所有即时翻译西方和东方的即时新闻的这些义工战友们，做出了巨大的贡献。让东西方逐渐明白中共不代表中国人，是共产党病毒，不是中国人想要的，中国人也是受害者。我们和西方的所有的战友们，班农、朱利安尼、蓬佩奥、 Miles Yu 等等等，告诉这不是中国人干的。这个功劳，这个给中国人带来的利益是用金钱不能衡量的。
+国防威胁减少局-联合科学技术办公室正在使用COVID-19测试DOMANE作为概念验证，以评估DOMANE概念是否能够识别出有效治疗疾病的药物。DOMANE已经确定了几种FDA批准的药物，可以重新用于治疗COVID-19，这些药物在许多案例研究中已经显示出潜在的疗效。
 
-It’s everyone in the NFSC and the WM, our Lude Media, our doctor team, as well as our countless fellow fighters who protested in the street all over the world, the many articles on G-News, the enormous contribution of our fellow fighter volunteers, including the G-Translators, and all the volunteers who translate real-time news in the West and East, that made the West and East gradually understand that the CCP cannot represent Chinese people, the CCP virus is not what the Chinese people wanted and Chinese people themselves are also victims. We together with all the Western fellow fighters, such as Bannon, Giuliani, Pompeo, Miles Yu, and many more told the world that the virus was not made by Chinese people. This contribution and the benefit brought to Chinese people cannot be measured by money.
+下一步是建立随机临床试验，充分证明这些再利用药物的有效性。例如，如果一种药物及其批准的剂量无效或产生了意想不到的效果，那么临床医生可以改变剂量或在组合中添加另一种药物，以追求另一种治疗方案。
 
-这是为什么昨天有一个人说：“我要投资你巨额资金，就是因为我的孩子在西方得到了安全，新中国联邦把中国人和共产党分开。”有良知的人是绝大多数的。所以兄弟姐妹们永远不要忘了，“把共产党和中国人分开、干掉共产党”是我们唯一生存下去的希望和手段，其它都是可以往后搁。不要因为一粒灰尘让你失去了未来，所有的事都是小事，我们的未来就是灭共，灭掉共产党一切都好讲。
+DOMANE确定的COVID-19药物的疗效将通过两项住院患者临床试验和一项计划中的虚拟临床试验来测试。其中一项住院试验是评估DOMANE鉴定的药物对严重的晚期COVID-19患者的疗效，另一项住院试验是评估药物对新入院的COVID-19患者的疗效。
 
-This is why someone told me yesterday, “I want to invest a huge amount of money in you because my kids have safety in the West due to the NFSC’s effort in separating Chinese from the CCP.” The majority of people have conscience. So, brothers and sisters, please always remember that separating the CCP from Chinese and taking down the CCP are the only hopes and means for us to survive, and everything else is less important than these things. Don’t let your vision of the future be blurred by just one tiny piece of dust. Everything is trivial compared with taking down the CCP, which bears our future. Once the CCP is taken down, everything will be fine.
+目前的COVID-19大流行已经证明了生物疾病对国家安全和日常生活的影响，这可能为国家和非国家行为者故意实施生物攻击以造成大流行级破坏的时代奠定了基础。DOMANE的成功开发将产生一个发现和验证引擎，用于识别新兴生物威胁的医疗对策。该引擎将在数月而非数十年内产生可用于临床前和临床开发的医疗对策，以保护联合部队和国家免受生物威胁。有了DOMANE，国防部不仅有能力对抗COVID-19，而且有能力对抗尚未浮出水面的疾病，从而确保维持一支强大的杀伤力部队。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60575c13d1608d609ea69e30](https://gtv.org/getter/60575c13d1608d609ea69e30)  (7:21-9:36)
-鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/998813/](https://www.gnews.org/zh-hans/998813/)
+小议，科学界对于中共冠状病毒COVID-19大流行的存在，已经充分认知了生物战争的可能性和存在性，即科学家闫丽梦博士所称的超限生物战。无数先进领域聪明的人正在集结，把科学和现代化用于对抗极权主义中共制造的病毒生物武器。诚然这种研究在短期内的成功能够大大提高现代社会应对疾病、乃至超限生物病毒战争等威胁的防治能力，也能极大增强军队作战能力，从而有效对抗毫无人类生存底线、制造各种危机的中共，然而要想从根本上解决病毒问题、让人类获得生存安全，只有消灭中共、消灭独裁体制、消灭社会主义思潮，从而再也不会产生中共生物病毒以及中共各种病毒对人类的压迫。
 
-* * *
+（文章观点部分仅代表作者本人。）
 
-翻译：【7PawBear】校对：【Isaiah4031】【BruhM】字幕：【Rock小哥】视频解码：【恒久忍耐】技术支持：【Rock小哥】推广：【V%】【TINALS】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+[原文链接](https://www.dvidshub.net/image/6529920/new-domane-pandemic-era)
 
-+1
+欢迎关注 **[当日美国政要等新闻、资讯、美国社会思潮等讯息](https://gnews.org/zh-hans/1007957)**
+
+0
