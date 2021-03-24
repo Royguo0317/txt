@@ -1,41 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《文贵说》| 图片连载（三十八）
-` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/993395/)
+## 文贵直播2021/03/21
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1013209/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/10-10.jpg)
-**法治基金捐款者捐的不是钱，而是你的未来与信任。**
+采集：滴水莲花
 
-**—— 郭文贵先生 2020年5月7日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/08-4.jpg)
-**我们的爆料革命绝不依靠任何国家任何人，以美灭共，以法灭共，绝不是搞勾搭交际灭共。如果有一天爆料革发现郭文贵跟任何人有协议、有交易没公开，你们记住郭文贵就是你们最大的敌人。**
-
-**—— 郭文贵先生 2020年4月30日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/09-4.jpg)
-**我不在乎你捐多少钱，我在乎的是你的勇敢，我在乎的是你这种真正的正直，和对爆料革命的信任。**
-
-**—— 郭文贵先生 2020年5月7日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/07-1-3.jpg)
-**共产党内部的人，你问问他们有多少人真心的相信共产党？没有的。**
-
-**—— 郭文贵先生 2020年5月7日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/05-2-2.jpg)
-**珍惜亲人，珍惜朋友，珍惜现在我们一切的拥有，盗国贼即将灭亡，我们一定会赢！**
-
-**—— 郭文贵先生 2018年5月10日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/06-6.jpg)
-**这就是共产党牛的地方：就是中国人被绑成房奴、车奴、钱奴、贷奴，所有奴之后，就是你宁可选择死亡也得为我打工、得劳动。**
-
-**—— 郭文贵先生 2020年5月7日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/04-3-1.jpg)
-**蓝金黄的结果就是让蓝金黄的人当猪当狗，坏良心，不尊重法制、不尊重人权，更不可能有民主，所以这个趋势我深信不疑。**
-
-**—— 郭文贵先生 2018年5月10日**
-
-
-
-- [***更多精美海报请点击G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4)
-
-
-+1
+设计排版：空之灵
+![]()![](https://www.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-24-at-13.11.44.jpeg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-24-at-13.11.44-1.jpeg)
+0

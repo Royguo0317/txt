@@ -1,133 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0324.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1012928/)
+## 中共国的对抗性军事建设将被美国间谍机构史无前例地揭露
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1013002/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
+翻译：康州盘古农场 – TrueSky
+校对：康州盘古农场 – Mike Li
+编辑：康州盘古农场 – 轰炸机
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0324.jpeg)图片来源：康州盘古农场 霹雳年
-### 国务卿访欧
+据《华盛顿时报》作者：Bill Gertz，2021年3月21日报道：
 
-3月24日美国现任国务卿布林肯推文：“今天美国政府官员在伊朗、俄罗斯、中国和其他紧迫问题上与法国外长、德国外交部长、和英国外长进行了良好会晤。跨大西洋关系是解决全球挑战的核心。”
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-273.jpg)资料图–在这张2017年8月1日的档案照片中，在军事博物馆举办的纪念中共国人民解放军建军90周年展览，参观者在观看中共国航母的比例模型
 
+美国的公共和私人研究人员即将获得对中共国军事集结范围的前所未有的了解。
 
+作为2021财年批准的情报授权法的一部分，负责监管美国间谍卫星图像的国家地理空间情报局正（NGA）准备制作关于中共国军事和国家安全计划的公开报告。
 
-> Good meeting with French Foreign Minister [@JY\_LeDrian](https://twitter.com/JY_LeDrian?ref_src=twsrc%5Etfw), German Foreign Minister [@HeikoMaas](https://twitter.com/HeikoMaas?ref_src=twsrc%5Etfw), and UK Foreign Secretary [@DominicRaab](https://twitter.com/DominicRaab?ref_src=twsrc%5Etfw) today on Iran, Russia, China, and other pressing issues. The Transatlantic relationship is central to solving global challenges. [pic.twitter.com/2UiH3YYVMh](https://t.co/2UiH3YYVMh)
-> — Secretary Antony Blinken (@SecBlinken) [March 24, 2021](https://twitter.com/SecBlinken/status/1374513793296830464?ref_src=twsrc%5Etfw)
+该法律要求NGA主任罗伯特-夏普副上将（Robert G. Sharp）在6月25日之前启动有关中共国军事的开源项目。
 
+“根据法律规定，NGA有180天的时间从颁布后就情报授权法内的指令的具体内容作出答复”，NGA公共事务主管Don Kerr说，”NGA目前正在进行这项正式答复。”
 
+披露任务被加进去年12月签署成为法律的1.4万亿美元综合支出法案中。它要求NGA与学术界和非营利性研究团体合作开展开源情报项目。
 
+该机构目前正在进行一项类似的计划，名为 tearline.mil，自2018年以来，该计划利用商业卫星图像制作了关于朝鲜、中国的穆斯林维吾尔族营地以及北京的一带一路倡议基础设施计划的情报报告，美国官员称该计划是执政的共产党全球扩张主义的跟踪。
 
+立法规定，夏普上将将利用卫星图像和相关照片分析中共国境内对美国国家安全构成风险的活动。该机构的报告将在网站上公布。
 
-### 保卫宪法拥枪权
+法律规定的情报计划的目标包括中共国人民解放军地面、海军、空军和火箭军的所有”值得注意”活动。另外一个重点将是解放军的战略支援部队，这个相对较新的军事部门负责军事间谍和网络情报以及太空战。
 
-参议员莫-布鲁克斯23日推文：“乔-拜登、南希-佩洛西和查克-舒默试图破坏我们的第二修正案的持枪权。拜登政府和社会主义民主党的目标是把守法公民变成罪犯。我将与所有社会主义者削弱我们第二修正案权利的努力作斗争。”
+中共国的国内安全部队、人民武装警察和中共国海岸警卫队，在南海开展军事式活动，也被列入NGA任务清单。
 
+国会还希望NGA计划利用其图像能力来监测中共国在南海的填海造地工程。北京一直与美国和一些地区国家就其在这一战略水道上的侵略性主权主张僵持不下。
 
+NGA还将制作中共国在印度洋地区的海上活动和更广泛的海洋活动的卫星图像报告。
 
-> Joe Biden, Nancy Pelosi, and Chuck Schumer seek to gut our Second Amendment Right to Bear Arms. The goal of the Biden Admin. and Socialist Dems is to make criminals out of law abiding citizens. I will fight all Socialist efforts to weaken our Second Amendment rights. [pic.twitter.com/aOQ1zRQ1t4](https://t.co/aOQ1zRQ1t4)
-> — Mo Brooks (@RepMoBrooks) [March 23, 2021](https://twitter.com/RepMoBrooks/status/1374497184197062656?ref_src=twsrc%5Etfw)
+此外，还将涉及全球健康威胁，包括中共国有可能爆发大流行病的迹象和警告，以及对中共国气候变化和环境恶化记录的分析。
 
+NGA官员负责为该计划寻找学术和非营利团体或多个团体，该计划必须至少执行10年。
 
+该条款是由众议院情报问题常设特别委员会的民主党工作人员添加的。该委员会没有回应评论请求。
 
-### 抵制2022北京冬奥
+**透明度模式**
 
-23日参议员斯科特推文：“不能给习总书记一个粉饰罪行的平台。今天，我给奥委会发信，呼吁他们站在自由和人权的立场上，和我一起呼吁把2022年奥运会搬出共产党统治的中国。”
+NGA的Tearline项目被视为情报透明化的典范，该机构已经与兰德公司智库和几所大学合作了几个项目。Tearline可以成为新的中共国图像分析项目的模式。
 
+根据Tearline，NGA为研究团体购买高分辨率的商业卫星图像。然后，该机构向研究人员提供提示，以帮助识别图像中描绘的物体和地形。然后，该项目报告会在网上发布，并与美国情报机构共享。
 
+一些美国研究人员已经在对中共国军队进行卫星照片研究。
 
-> General Secretary Xi can’t be given a platform to whitewash his crimes. Today, I sent a letter to [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw) sponsors calling on them to stand up for freedom and human rights and join my call to move the 2022 Olympic Games out of Communist China: [https://t.co/I0cCubwmv8](https://t.co/I0cCubwmv8)
-> — Rick Scott (@SenRickScott) [March 23, 2021](https://twitter.com/SenRickScott/status/1374443469389791234?ref_src=twsrc%5Etfw)
+与战略与国际研究中心有联系的私人图像分析团体”亚洲海上透明计划”，密切跟踪中共国在南海的建岛情况。该项目中的商业图像已经确定了中共国在南海争议岛屿上的军事部署，包括导弹部署。
 
+争议岛屿的军事化一直是中美关系的一大症结，也是美国军舰和飞机在该海域增加行动的重点。
 
+根据新法律，NGA将定期”确定原始的、非机密的地理空间数据，如果这些数据被公开，根据伙伴关系进行的研究可以得到改善；并将这些数据公开”。 该机构将在年底向国会介绍该计划。
 
-### 内心有国家和军人吗？
+商业卫星照片已经揭示了解放军军事基地和武器的一些关键方面，包括中共国潜艇在南海海南岛使用的水下隧道的图像；中共国航母在造船厂的建造；以及位于非洲之角吉布提的中共国首个海外军事基地的扩建。
 
-3月24日，福克斯新闻称 “副总统哈里斯在空军二号上屡次不敬军礼，打破先例”
+其他照片还显示了台湾政府大楼和军事基地的模拟图，分析人士称，这些照片显示了中共国军事计划攻打台湾的迹象。
 
+退役海军上尉、前太平洋舰队情报总监吉姆-范内尔说，目前迫切需要联邦对中国军队的开源计划。他说，多年来他一直主张美国情报部门公开中共国军事活动的细节。
 
+范内尔上尉说，”这至少晚了半年，特别是当我们看到中共国的南海战略形势探测倡议每天都在做什么的时候。”
 
-> VP Harris repeatedly fails to salute military on Air Force Two, breaking with precedent [https://t.co/ToAd7T6din](https://t.co/ToAd7T6din)
-> — Fox News (@FoxNews) [March 24, 2021](https://twitter.com/FoxNews/status/1374514885279707144?ref_src=twsrc%5Etfw)
+中共国的南海战略态势感知计划是一个亲北京的网络，主要由中共国学者和退役军人组成，他们试图推动北京的官方说法，即南中共国海的大部分地区是中共国的海洋领土。川普政府根据国际法宣布这些说法是非法的。
 
+范内尔上尉还说，”分享有关中共国海上活动的事实不仅有利于民主，也是明智的外交。”
 
+他补充说，公开有关中共国活动的详细数据，还可以被美国和国际公众用来对中共国日益增长的实力做出更现实的结论。
 
-### 反抗拜登涨税
+他又说，”广泛提供这些信息将有助于反击中共国关于美国行动是西太平洋不稳定根源的虚假叙述。这两种结果都符合我们的国家利益。”
 
-23日Just the News 推文：“就业创造者网说‘天呐，绝不！’‘这不在我们的监督之下！’。对小企业加税的想法说不！”
-
-小议：拜登欲对美国人取消拥枪权，对小企业主这样的中产阶层加征税收，都是在一步步削弱有经济基础、又有传统道德观和正义良知的人，本质上是在配合中共的3F计划。
-
-
-
-> ‘HELL NO! NOT ON OUR WATCH!’: Job Creators Network says no to the idea of small business tax hikes [#JustTheNews](https://twitter.com/hashtag/JustTheNews?src=hash&amp;ref_src=twsrc%5Etfw) [@alexnitzberg](https://twitter.com/alexnitzberg?ref_src=twsrc%5Etfw) [@JobCreatorsUSA](https://twitter.com/JobCreatorsUSA?ref_src=twsrc%5Etfw) [https://t.co/32uFiM3yQu](https://t.co/32uFiM3yQu)
-> — Just the News (@JustTheNews) [March 24, 2021](https://twitter.com/JustTheNews/status/1374526266964070400?ref_src=twsrc%5Etfw)
-
-
-
-### 不明飞行物（UFO）
-
-前五角大楼项目负责人称：“UFO报告将是令人信服的。”
-
-
-
-> Former Pentagon program chief: UFO report will be compelling [https://t.co/ojrjYQacTj](https://t.co/ojrjYQacTj)
-> — Newsmax (@newsmax) [March 24, 2021](https://twitter.com/newsmax/status/1374588039947751425?ref_src=twsrc%5Etfw)
-
-
-
-### 军事
-
-“美国军队正处于过去40年中最重要的转型之中。”
-
-
-
-> The [@USArmy](https://twitter.com/USArmy?ref_src=twsrc%5Etfw) is in the middle of the most significant transformation in the past 40 years. 
-> 
-> Read more: [https://t.co/YXxEKVZb0w](https://t.co/YXxEKVZb0w)[#People](https://twitter.com/hashtag/People?src=hash&amp;ref_src=twsrc%5Etfw) | [#Modernization](https://twitter.com/hashtag/Modernization?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YYrYl8kqUv](https://t.co/YYrYl8kqUv)
-> — U.S. Army Reserve (@USArmyReserve) [March 24, 2021](https://twitter.com/USArmyReserve/status/1374692481082793984?ref_src=twsrc%5Etfw)
-
-
-
-“‘热带愤怒’给飞行员和士兵提供了展示他们 “立即准备 “能力的机会。”
-
-
-
-> Tropic Fury gave [#Airmen](https://twitter.com/hashtag/Airmen?src=hash&amp;ref_src=twsrc%5Etfw) and [#Soldiers](https://twitter.com/hashtag/Soldiers?src=hash&amp;ref_src=twsrc%5Etfw) the opportunity to demonstrate their "Ready Now" capabilities. More photos at the link! [@15thWing](https://twitter.com/15thWing?ref_src=twsrc%5Etfw)[https://t.co/TVbiZv3cXg](https://t.co/TVbiZv3cXg) [pic.twitter.com/wB1lV2rZpR](https://t.co/wB1lV2rZpR)
-> — PACAF (@PACAF) [March 19, 2021](https://twitter.com/PACAF/status/1372925075024871432?ref_src=twsrc%5Etfw)
-
-
-
-
-
-### 美国边境危机
-
-24日媒体人汉尼迪发推：“拜登边境停电，在笼子里藏了几千名儿童。”
-
-
-
-> Biden Border Blackout Hides Thousands Of Kids In Cages [https://t.co/BI0I7u13UD](https://t.co/BI0I7u13UD)
-> — Sean Hannity (@seanhannity) [March 24, 2021](https://twitter.com/seanhannity/status/1374692478348111873?ref_src=twsrc%5Etfw)
-
-
-
-
-
-24日汉尼迪发推：“拜登政府要花费8600万给非法移民居住旅店。”
-
-
-
-> Biden Admin To Spend $86 Million On Hotels For Illegal Immigrants [https://t.co/rPQL7RKpAh](https://t.co/rPQL7RKpAh)
-> — Sean Hannity (@seanhannity) [March 24, 2021](https://twitter.com/seanhannity/status/1374694426589720577?ref_src=twsrc%5Etfw)
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+原文链接：[https://www.washingtontimes.com/news/2021/mar/21/china-military-buildup-be-revealed-national-geospa/](https://www.washingtontimes.com/news/2021/mar/21/china-military-buildup-be-revealed-national-geospa/)
 
 0

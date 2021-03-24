@@ -1,115 +1,133 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【班农战斗室】818-819-820期简讯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1012935/)
+## 美国政要等每日重要信息0324.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1012928/)
 
-#### **翻译：七彩光**
+**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
 
-#### **校对/编辑：文泓**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/818-819-820.png)
-**图片来源：墨尔本雅典娜农场设计组（精灵蓝）**
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0324.jpeg)图片来源：康州盘古农场 霹雳年
+### 国务卿访欧
 
-**主持人：史蒂夫****.班农**
+3月24日美国现任国务卿布林肯推文：“今天美国政府官员在伊朗、俄罗斯、中国和其他紧迫问题上与法国外长、德国外交部长、和英国外长进行了良好会晤。跨大西洋关系是解决全球挑战的核心。”
 
-**嘉宾：****Erik Prince, Ernie Preate, Michael Yon, Jeff Brain, Dr. Betsy MacCaughey, Dan Schultz, Dr. Carol Swain**
 
-#### **1、刺青而不是泰迪熊—拜登的边境危机正波及到全美学校**
 
-贝茜‧麦考伊(Betsy McCaughey)告诉《战斗室》，边境危机很快就会波及全美学校。**【**备注**：**贝茜‧麦考伊(Betsy McCaughey) 是政治评论员，宪法专家，联合专栏作家，并且出版多部著作，曾任纽约州副州长。】
+> Good meeting with French Foreign Minister [@JY\_LeDrian](https://twitter.com/JY_LeDrian?ref_src=twsrc%5Etfw), German Foreign Minister [@HeikoMaas](https://twitter.com/HeikoMaas?ref_src=twsrc%5Etfw), and UK Foreign Secretary [@DominicRaab](https://twitter.com/DominicRaab?ref_src=twsrc%5Etfw) today on Iran, Russia, China, and other pressing issues. The Transatlantic relationship is central to solving global challenges. [pic.twitter.com/2UiH3YYVMh](https://t.co/2UiH3YYVMh)
+> — Secretary Antony Blinken (@SecBlinken) [March 24, 2021](https://twitter.com/SecBlinken/status/1374513793296830464?ref_src=twsrc%5Etfw)
 
-前纽约州副州长麦考伊解释说，边境地区75%的移民子女是15至17岁的男孩。“想想（他们身上的）刺青，他们可不是（怀抱）泰迪熊玩具的孩子”，她说。
 
-这些青少年很快就会（被允许）进入公立学校系统，并将纳税人的钱更多地投入到资金业已紧张的（公立）教育系统中。麦考伊最近在纽约邮报的一篇社论中解释了这个问题。
 
-“它每天都会对课堂上该班所有孩子的日常运作产生真正的影响”，麦考伊说：“这对当地家庭和当地纳税人来说真的是一个很大的打击。”
 
-艾瑞克·普林斯（Erik Prince）说：“他们不会（被允许）去西德威尔友谊中学（这样的私立学校）。”**【**备注：西德威尔友谊中学（Sidwell Friends School）位于华盛顿特区创建于1883年，是美国最著名的私立学校之一。艾瑞克.普林斯是一名美国商人和前海豹部队军官，他最出名是创办了私人军事的美国黑水公司（现在该公司称为Academi）。】
 
-普林斯说，让民选官员对其开放边界政策负责的方法，是将（这些）无人陪伴的未成年人送到南希.佩洛西（Nancy Pelosi）所居住的地区。
+### 保卫宪法拥枪权
 
-他说：“让他们活在他们强加给我们其他人的错误决定中。”
+参议员莫-布鲁克斯23日推文：“乔-拜登、南希-佩洛西和查克-舒默试图破坏我们的第二修正案的持枪权。拜登政府和社会主义民主党的目标是把守法公民变成罪犯。我将与所有社会主义者削弱我们第二修正案权利的努力作斗争。”
 
-#### 2、在战斗室发布了选区计划后，共和党各个职位开始被MAGA支持者取代
 
-丹.舒尔茨说，随着他的“选区计划”策略正在共和党内生效，县级办公室（职位）正被MAGA支持者们替代。在一些地区，当地的共和党办公室人满为患，官员们都在“抱怨史蒂夫.班农和丹.舒尔茨”。
 
-舒尔茨今年2月份在《战斗室》节目中首次阐述了他的填补共和党内20万个空缺选区职位的计划。此后，数以千计的人涌入他的网站，许多人都投入了工作，包括最近在佛罗里达州成为共和党民选官员的雾城米奇（Fog City Midge）。
+> Joe Biden, Nancy Pelosi, and Chuck Schumer seek to gut our Second Amendment Right to Bear Arms. The goal of the Biden Admin. and Socialist Dems is to make criminals out of law abiding citizens. I will fight all Socialist efforts to weaken our Second Amendment rights. [pic.twitter.com/aOQ1zRQ1t4](https://t.co/aOQ1zRQ1t4)
+> — Mo Brooks (@RepMoBrooks) [March 23, 2021](https://twitter.com/RepMoBrooks/status/1374497184197062656?ref_src=twsrc%5Etfw)
 
-“我们正处于一场政治战争中，而政治战争是由（不同的）政党参与对垒”,舒尔茨说:“方法就是用步兵来充实对战的力量。”
 
-舒尔茨说，地区委员会的职位是最重要的，“你可以直接选举谁是县主席”,他说:“你可以选出（参与）选举全国委员会委员的人。”
 
-“这才是真正的政治权力，”他说。
+### 抵制2022北京冬奥
 
-此外，（如何填补）这些空缺职位还能够在共和党全国委员会（RNC）写入党纲。
+23日参议员斯科特推文：“不能给习总书记一个粉饰罪行的平台。今天，我给奥委会发信，呼吁他们站在自由和人权的立场上，和我一起呼吁把2022年奥运会搬出共产党统治的中国。”
 
-舒尔茨说，现在，“里诺们（共和党伪类们）出现了，他们几乎很好地控制了政治机器”。
 
-舒尔茨解释说，保守派有必要克服他们对参与政治的保留态度。他们可以在网站[PrecinctStrategy.com](https://theprecinctproject.wordpress.com/)上了解如何参与政治。
 
-“这是从现有掌控共和党的人手中重新夺回共和党控制权的一个策略”，舒尔茨说：“而且这一策略正在（贯彻）执行中。”
+> General Secretary Xi can’t be given a platform to whitewash his crimes. Today, I sent a letter to [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw) sponsors calling on them to stand up for freedom and human rights and join my call to move the 2022 Olympic Games out of Communist China: [https://t.co/I0cCubwmv8](https://t.co/I0cCubwmv8)
+> — Rick Scott (@SenRickScott) [March 23, 2021](https://twitter.com/SenRickScott/status/1374443469389791234?ref_src=twsrc%5Etfw)
 
-#### 3、脸书移除了疑与ISIS有关系的科罗拉多州枪手的账号
 
-脸书（Facebook）删除了在科罗拉多州博尔德市造成10人死亡的疑似枪手艾哈迈德.艾萨（Ahmed Al Issa）的账号。(备注：博尔德**是**美国中西部地区的一个小型城市，位于科罗拉多州的博尔德郡。)
 
-拉希姆.卡萨姆（Raheem Kassam）将疑似枪手的脸书账号的页面存档，其页面存在“很多反川普的文章信息”，而这些页面文章信息来自于《华盛顿邮报》和伊斯兰宗教贴文。
+### 内心有国家和军人吗？
 
-《同一个美国新闻网（OANN）》记者杰克.波索比克（Jack Posobiec）报道说，乔.拜登接到了有关艾哈迈德.艾萨对“ISIS持有同情心”的简报。
+3月24日，福克斯新闻称 “副总统哈里斯在空军二号上屡次不敬军礼，打破先例”
 
-“现在开始看起来，博尔德枪击案是一起圣战分子的恐怖袭击,”波索比克说。
 
-卡萨姆说，属于艾哈迈德.艾萨账号的脸书页面（之前）还发布了一篇来自于美国公共电视网（PBS）的文章《论为什么难民对美国有利》。
 
-#### 4、《战斗室》警告：如果世界与美元脱钩，美国将立刻成为魏玛共和国。
+> VP Harris repeatedly fails to salute military on Air Force Two, breaking with precedent [https://t.co/ToAd7T6din](https://t.co/ToAd7T6din)
+> — Fox News (@FoxNews) [March 24, 2021](https://twitter.com/FoxNews/status/1374514885279707144?ref_src=twsrc%5Etfw)
 
-班农(Stephen Bannon)和艾瑞克·普林斯(Erik Prince)警告说，如果世界与美元脱钩，美国经济会迅速崩溃。
 
-“美国会立即变成阿根廷（那样），”班农说。
 
-“更糟糕的是，它变成了魏玛共和国”,普林斯说：“那是20世纪20年代的德国，它（经济）完全崩溃，最后阿道夫.希特勒被选举上台了。”
+### 反抗拜登涨税
 
-“当出现经济崩溃，于是人们看到他们一生的积蓄被恶性通货膨胀化为乌有，更坏的事情就会发生。”普林斯说。
+23日Just the News 推文：“就业创造者网说‘天呐，绝不！’‘这不在我们的监督之下！’。对小企业加税的想法说不！”
 
-据报道，俄罗斯和中共国正在讨论如何减少对美元的依赖。在阿拉斯加的美中会谈中，中共国羞辱了拜登政府的团队，显示美国（政府）在拜登领导下的软弱无能。
+小议：拜登欲对美国人取消拥枪权，对小企业主这样的中产阶层加征税收，都是在一步步削弱有经济基础、又有传统道德观和正义良知的人，本质上是在配合中共的3F计划。
 
-#### 5、因为传播有关民主党人的真相，脸书暂停了卡罗尔.史万博士的账号  
 
-特朗普总统的1776委员会副主席卡罗尔.史万博士，是大科技公司审查制度的最新受害者。
 
-**【**备注**：**1776委员会（1776 Commission）是川普总统于2020年9月成立的一个联邦咨询委员会。拜登上台后宣布解散1776委员会。】
+> ‘HELL NO! NOT ON OUR WATCH!’: Job Creators Network says no to the idea of small business tax hikes [#JustTheNews](https://twitter.com/hashtag/JustTheNews?src=hash&amp;ref_src=twsrc%5Etfw) [@alexnitzberg](https://twitter.com/alexnitzberg?ref_src=twsrc%5Etfw) [@JobCreatorsUSA](https://twitter.com/JobCreatorsUSA?ref_src=twsrc%5Etfw) [https://t.co/32uFiM3yQu](https://t.co/32uFiM3yQu)
+> — Just the News (@JustTheNews) [March 24, 2021](https://twitter.com/JustTheNews/status/1374526266964070400?ref_src=twsrc%5Etfw)
 
-回顾两年前，脸书找借口暂停了史万博士的脸书直播，以阻止她反对批判种族理论的活动。【备注：批判种族理论是美国流行的左派思潮，认为法律和法律机构本质上是种族主义的，种族本身不是以生物为基础和自然的，而是一个社会构建的概念，白人利用这个概念来促进他们的经济和政治利益，从而牺牲有色人种的利益。】
 
-“我猜有人真的认为我威胁到了他们”，周二，史万博士告诉《战斗室》：“我只是一个来自弗吉尼亚州西南部的老年公民。”
 
-“你是个战士”，班农说：“你不会退缩的。”
+### 不明飞行物（UFO）
 
-史万博士说，有关的疑问信息是别人在2019年2月分享的，显示（有些）民主党人是三K党的成员。**（**备注：三K党是指美国历史和现代三个不同时期奉行白人至上主义运动和基督教恐怖主义的民间团体，也是美国种族主义的代表性组织。）
+前五角大楼项目负责人称：“UFO报告将是令人信服的。”
 
-“他们恰恰就是那些创造了三K党的人”，史万博士谈及民主党人：“而我们看到他们现在正在分裂这个国家。”
 
-史万博士是文化马克思主义和左派改写美国历史的激烈反对者。史万是川普总统1776委员会的领导人，并利用脸书直播向更多的观众传播真相。
 
-“大科技公司，他们是民主党人，他们所做的一切都是为了民主党。”史万说。
+> Former Pentagon program chief: UFO report will be compelling [https://t.co/ojrjYQacTj](https://t.co/ojrjYQacTj)
+> — Newsmax (@newsmax) [March 24, 2021](https://twitter.com/newsmax/status/1374588039947751425?ref_src=twsrc%5Etfw)
 
-史万对（自己的脸书账号）暂停使用提出了申诉，但还没有收到（脸书）回应。
 
-“我不想浪费口舌”，她说：“我会一直坚守（在社交媒体），直到他们把我（账号）彻底删除。”
 
-**原文链接****:**
+### 军事
 
-1.  [Episode 819 – Tattoos, Not Teddy Bears … Border Crisis is Coming to a School Near You](https://pandemic.warroom.org/2021/03/23/episode-819-tattoos-not-teddy-bears-border-crisis-is-coming-to-a-school-near-you/)
+“美国军队正处于过去40年中最重要的转型之中。”
 
-2.  [GOP Meetings Overrun by MAGA Supporters After War Room Advertises Precinct Project](https://pandemic.warroom.org/2021/03/23/gop-meetings-overrun-by-maga-supporters-after-war-room-advertises-precinct-project/)
 
-3.  [Facebook Removes Account of Colorado Shooter Suspect With Possible ISIS Ties](https://pandemic.warroom.org/2021/03/23/facebook-removes-account-of-colorado-shooter-suspect-with-possible-isis-ties/)
 
-4.  [War Room Warns U.S. Could Become Weimar Republic ‘Immediately’ if World Moves Off Dollar](https://pandemic.warroom.org/2021/03/23/war-room-warns-u-s-could-become-weimar-republic-immediately-if-world-moves-off-dollar/)
+> The [@USArmy](https://twitter.com/USArmy?ref_src=twsrc%5Etfw) is in the middle of the most significant transformation in the past 40 years. 
+> 
+> Read more: [https://t.co/YXxEKVZb0w](https://t.co/YXxEKVZb0w)[#People](https://twitter.com/hashtag/People?src=hash&amp;ref_src=twsrc%5Etfw) | [#Modernization](https://twitter.com/hashtag/Modernization?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YYrYl8kqUv](https://t.co/YYrYl8kqUv)
+> — U.S. Army Reserve (@USArmyReserve) [March 24, 2021](https://twitter.com/USArmyReserve/status/1374692481082793984?ref_src=twsrc%5Etfw)
 
-5.  [Biden’s Border Crisis is Coming to a School Near You](https://pandemic.warroom.org/2021/03/23/bidens-border-crisis-is-coming-to-a-school-near-you/)
 
-6.  [Facebook Suspends Dr. Carol Swain for Telling the Truth About Democrats](https://pandemic.warroom.org/2021/03/23/facebook-suspends-dr-carol-swain-for-telling-the-truth-about-democrats/)
+
+“‘热带愤怒’给飞行员和士兵提供了展示他们 “立即准备 “能力的机会。”
+
+
+
+> Tropic Fury gave [#Airmen](https://twitter.com/hashtag/Airmen?src=hash&amp;ref_src=twsrc%5Etfw) and [#Soldiers](https://twitter.com/hashtag/Soldiers?src=hash&amp;ref_src=twsrc%5Etfw) the opportunity to demonstrate their "Ready Now" capabilities. More photos at the link! [@15thWing](https://twitter.com/15thWing?ref_src=twsrc%5Etfw)[https://t.co/TVbiZv3cXg](https://t.co/TVbiZv3cXg) [pic.twitter.com/wB1lV2rZpR](https://t.co/wB1lV2rZpR)
+> — PACAF (@PACAF) [March 19, 2021](https://twitter.com/PACAF/status/1372925075024871432?ref_src=twsrc%5Etfw)
+
+
+
+
+
+### 美国边境危机
+
+24日媒体人汉尼迪发推：“拜登边境停电，在笼子里藏了几千名儿童。”
+
+
+
+> Biden Border Blackout Hides Thousands Of Kids In Cages [https://t.co/BI0I7u13UD](https://t.co/BI0I7u13UD)
+> — Sean Hannity (@seanhannity) [March 24, 2021](https://twitter.com/seanhannity/status/1374692478348111873?ref_src=twsrc%5Etfw)
+
+
+
+
+
+24日汉尼迪发推：“拜登政府要花费8600万给非法移民居住旅店。”
+
+
+
+> Biden Admin To Spend $86 Million On Hotels For Illegal Immigrants [https://t.co/rPQL7RKpAh](https://t.co/rPQL7RKpAh)
+> — Sean Hannity (@seanhannity) [March 24, 2021](https://twitter.com/seanhannity/status/1374694426589720577?ref_src=twsrc%5Etfw)
+
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
 0
