@@ -1,39 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】「理大围城」遭秋后算账 港警违背承诺起诉全数登记抗争者
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1014514/)
+## “打杂客”持续为CGTN唱赞歌
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1014583/)
 
-搜集\编撰：西西
+新闻来源：The National Pulse 国家脉动| 作者：NATALIE WINTERS 娜塔莉·温特斯| 发布时间：2021年3月21日
 
-**2019年11月17日傍晚，警方重重封锁被大批抗争者占领的理工大学，其后同意由多名政教界人士接走18岁以下未成年学生，警方对学生登记身份证资料并拍照；对18岁以上人士，则即时以涉嫌暴动罪拘捕。参与过营救行动的消息人士表示，警方当时曾承诺，在场登记的18岁以下人士不会被起诉，但若他们再发生其它事情，则可能会有刑责。保安局局长李家超曾经说过：离开理大的自首者，将会以暴动罪拘捕。**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/封面-182.jpg)消息指，警方将对理大围城后登记身份离开校园人士秋后算账，料可能会面临起诉。图为2019年11月20日，香港理工大学内「无自由毋宁死」的喷字。 （余天佑／大纪元）
-据大纪元3月23日讯，警方将展开马拉松式秋后算帐，「全部中奖永不落空」，料「理大围城」后曾自愿登记身份离开校园的人士可能会面临起诉，警方暂未回覆查询。报道引述参与过营救行动的消息人士表示，警方当时曾承诺，在场登记的18岁以下人士不会被起诉，但若他们再发生其它事情，则可能会有刑责。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image003-32.png)由于校园内的环境日益危险和留守者的健康和情绪情况日差，校方会见警方时，，要求警方必须采取和平和人道方式去安排当时还在校园的留守者和平离开，其中的做法可以是登记他们身份证后便让他们离开。
-**「理大围城」抗争者出境时遭阻挠**
+翻译/简评：wmorpho| 校对：万人往| 审核：万人往| Page：小六月
 
-保安局局长李家超在「理大围城」期间曾表示，对于离开理大自首的人，会全部以暴动罪拘捕。警方今年2月拘捕12名曾被困理大的人士，指控其参与暴动。有登记离开并顺利求医的抗争者报称，事后在出境时遭阻挠，被警方以暴动罪当场拘捕。亦有经救护车离开的人士透露，事隔一年后，接到警察致电通知须「协助调查」，到达警署后警方即改口称要控告他「参与未经批准集结」，不排除改控「暴动罪」。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image005-20.png)2019年11月18日 理工大学外。
-**战友观点：**
+[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/2eeb4717-11f5-4cc1-aba1-21a807991957.jpg?asset_id=f8a08736-cb68-4184-a7ea-69bd8eb55c54&amp;img_etag=%2202138c22f526b1788b8b0da69b3bf103%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/2eeb4717-11f5-4cc1-aba1-21a807991957.jpg?asset_id=f8a08736-cb68-4184-a7ea-69bd8eb55c54&amp;img_etag=%2202138c22f526b1788b8b0da69b3bf103%22&amp;size=1024)
 
-2019年11月17日傍晚，警方重重封锁被大批抗争者占领的理工大学，众多市民涌至附近营救围困于校内的人士。被困者有的寻路突围，有人用天桥游绳离开，甚至有人爬地下污水渠道，想尽办法离开理大。
+**简评：**
 
-2019年11月18日，警方当晚同意特别安排，接走18岁以下未成年学生，警方对学生登记身份证资料并拍照，称保留追究可能，不作即场拘捕，但对18岁以上人士，则即时以涉嫌暴动罪拘捕。
+世界卫生组织的“独立调查员”彼得·达扎克在将中共拒绝交出有关中共病毒起源的关键数据归咎于美国媒体之后，达扎克又开始为中共国的大外宣卖力地促销。达扎克所促销的大部分是来自中共国全球电视网（CGTN）——自由之家智库将其描述为“北京镇压工具库中的一项常备武器”，其“使命是攻击共产党认定的敌人”。达扎克称赞CGTN主持人“犀利”，采访“出色”、“诚实”，并称赞节目为“很棒”。除了称赞电视网外，他还不加批判地分享了该网站上的文章，从而进一步夸大了武汉病毒学研究所“从未泄漏病毒或感染任何人”的说法。达扎克的所言所行哪里是什么“独立调查员”，他分明是中共国的国际宣传员，他的言论已经丧失了对中共病毒调查的公正性。
 
-2019年11月29日正式解封理大，并公布该次事件共拘捕1,377人，包括810名从理大离开的人士，并对318名未成年人登记了身份。
+一个人的言行可以使自己升到天国，也可以把自己贬到地狱。中共病毒已经肆虐全球一年有余，死亡人数前所未有，对人们身心的伤害已达到极限，后续的次级灾害无法估量，这样的罪恶天理难容。达扎克不但不对中共的罪行追究责任，反而一再为中共开脱和唱赞歌，达扎克到底是人还是魔？印度的神秘主义者曾警告说：“小心！小心！从你这里说出去的东西，还要回到你这里来。” “打杂客”，你要小心了！
 
-当时在理大自愿登记离开的Daniel对自由亚洲记者表示，当时他登记离开理大后，没有被马上拘捕，也没有收到警方联络。港府和警队向来缺乏诚信，自己从离开理大那天，一直都没有心存侥幸。 Daniel表示「理大围城」是整个反送中运动最具代表性的一场战役，港府一定会赶尽杀绝的，这样才能在社会营造一种「宁错勿纵」的肃杀气氛。
+**原文翻译：**
 
-【以上观点仅代表笔者本人 】
+## **世界卫生组织的“独立调查员”一直在大肆炒作中共大外宣**
 
-资料来源：
+[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/17831703-975b-42ae-bc2b-978abcaa4ea5.png?asset_id=4d1b4efd-f6e0-43a9-b812-b63c635ea95f&amp;img_etag=%225c1a3d14958c97e525660bfdec650c7f%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/17831703-975b-42ae-bc2b-978abcaa4ea5.png?asset_id=4d1b4efd-f6e0-43a9-b812-b63c635ea95f&amp;img_etag=%225c1a3d14958c97e525660bfdec650c7f%22&amp;size=1024)
 
-大纪元香港：[传警拟秋后算账 拘捕逾千登记…](https://hk.epochtimes.com/news/2021-03-23/86174870)
+**最近去过中共国（调查中共病毒起源）的世界卫生组织美国调查员彼得·达扎克（Peter Daszak）在推特上一再大肆炒作中共国官方媒体机构。**
 
-[自由亚洲](https://youtu.be/Ft3gXvepElQ)
+促进中共国政府自我认可的“宣传”运动的达扎克，被进一步质疑作为世界卫生组织调查员的公正性。
 
-封面素材：大纪元
+达扎克最推崇和赞扬的媒体是中国环球电视网（CGTN）——自由之家智库将其描述为“北京镇压工具库中的一项常备武器”，其“使命是攻击共产党认定的敌人”。
 
-审稿：卡西欧 \ 上传：文粤
+达扎克称赞CGTN主持人“犀利”，采访“出色”、“诚实”，并称赞节目为“很棒”：
+
+[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/efb7aebe-a37c-4fed-8ba9-a442a04c5836.png?asset_id=cda50002-d7e2-40f7-bc2e-595304185c2c&amp;img_etag=%2270352ab696516238e8a289ff28a5452c%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/efb7aebe-a37c-4fed-8ba9-a442a04c5836.png?asset_id=cda50002-d7e2-40f7-bc2e-595304185c2c&amp;img_etag=%2270352ab696516238e8a289ff28a5452c%22&amp;size=1024)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/de4812b0-30ee-4bf5-a86e-b341f005c3e7.png?asset_id=55b6b9f9-da7e-4d5b-8bf5-2f67c1677623&amp;img_etag=%2244adb39883e305563c16737a2d056f75%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/de4812b0-30ee-4bf5-a86e-b341f005c3e7.png?asset_id=55b6b9f9-da7e-4d5b-8bf5-2f67c1677623&amp;img_etag=%2244adb39883e305563c16737a2d056f75%22&amp;size=1024)
+
+[视频链接](https://twitter.com/PeterDaszak/status/1044743782175051776?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1044743782175051776%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fthenationalpulse.com%2Fbreaking%2Fthe-world-health-organizations-independent-investigator-keeps-hyping-chinese-communist-propaganda-outlets%2F)
+
+除了称赞该网站，他还不加批判地分享了该网站上的文章，从而进一步夸大了武汉病毒学研究所“从未泄漏病毒或感染任何人”的说法。
+[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/6e0333ef-e41c-4705-92b1-da133814fe2d.png?asset_id=6ad3baa0-f65e-4c13-a8fa-5db03e942862&amp;img_etag=%2249db6d1e46c9024f42fa1935f85a80c8%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/6e0333ef-e41c-4705-92b1-da133814fe2d.png?asset_id=6ad3baa0-f65e-4c13-a8fa-5db03e942862&amp;img_etag=%2249db6d1e46c9024f42fa1935f85a80c8%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/fc2a7a8a-a57b-4b71-95f2-7298a560bfdd.png?asset_id=4c62ce15-b9a2-4dc7-8520-73bb0ae6dd70&amp;img_etag=%22d36b0991adcfec0f56890d0babfa276b%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/fc2a7a8a-a57b-4b71-95f2-7298a560bfdd.png?asset_id=4c62ce15-b9a2-4dc7-8520-73bb0ae6dd70&amp;img_etag=%22d36b0991adcfec0f56890d0babfa276b%22&amp;size=1024)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/2dd88af9-dbd1-403c-8499-7d1d52d3887c.png?asset_id=582f723c-3b07-4450-ac8d-d174ccc927a5&amp;img_etag=%221d71dcbb5e4364e9c834156415c3500e%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/2dd88af9-dbd1-403c-8499-7d1d52d3887c.png?asset_id=582f723c-3b07-4450-ac8d-d174ccc927a5&amp;img_etag=%221d71dcbb5e4364e9c834156415c3500e%22&amp;size=1024)
+
+更重要的是，达扎克还赞扬了由中共国疾病预防控制中心等国营企业赞助的中共国医学杂志。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/0598d424-d83a-4c74-8a80-bdbb4a69d2f8.png?asset_id=d2e8f1d1-c110-4d66-b3fb-7fc6cbe8701f&amp;img_etag=%2232171ee492e48a913b5aab608f285d43%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/0598d424-d83a-4c74-8a80-bdbb4a69d2f8.png?asset_id=d2e8f1d1-c110-4d66-b3fb-7fc6cbe8701f&amp;img_etag=%2232171ee492e48a913b5aab608f285d43%22&amp;size=1024)
+
+达扎克最近将中共拒绝交出(有关中共病毒起源的)关键数据归咎于美国媒体：这是北京方面的一个话题。
+
+娜塔莉·温特斯（Natalie Winters）是《国家脉动》的高级记者，也是《国家脉动》电视节目的制片人。
+
+[原文链接](https://thenationalpulse.com/breaking/the-world-health-organizations-independent-investigator-keeps-hyping-chinese-communist-propaganda-outlets/)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

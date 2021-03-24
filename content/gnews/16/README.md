@@ -1,49 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】海运费、原材料同时暴涨，双重夹击中共国外贸加工业
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1013897/)
+## 慧眼看世界20210324（图片新闻）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1013965/)
 
-作者：纽约香草山健身部 Jack Li文阳
-
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
-
+- 作者：2020喜马拉雅
+- 封面：透明的遮羞布
 
 
-由于受中共病毒的影响，国际物流运力下降，从2020年10月起至今，中共国出口的货运海运费疯涨。再加上原材料巨幅涨价，中共国的外贸相关企业面临艰难困境。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/图片10-10.png)
+**西班牙2021年3月24日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
 
-在国际海运航线中，中美航线的涨幅最大，一个标箱的运费从过去的1000多美元涨到6000至7000美元。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/8f98a3e6-6756-4c43-9ff7-da622fa4c3da-7.jpg)
 
-中共疫情爆发引发的全球范围内集装箱周转不畅，速度变慢。中共国海运市场面临着船舱紧张、集装箱数量吃紧的状况，直接导致集装箱价格飞涨。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/bd7b0abc-fc12-46f0-adf0-dac93405f4fd.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/图片12-4.png)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2d334929-e483-4be0-833e-a62d35642067.jpg)
 
-屋漏偏逢连夜雨，船迟又遇顶头风。从2020年2季度初开始，大宗商品价格疯涨。铜涨38%，塑料涨35%，铝涨37%，铁涨30%，玻璃涨30%，锌合金涨48%，不锈钢也暴涨45%！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3e74487f-b006-48e8-b995-52eed495324b.jpg)
 
-全球主要国家释放巨量纾困资金，拟缓解中共病毒对国家经济的严重打击，企图重振经济，但也造成了恶性通货膨胀。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/c1026eb2-50a0-4c85-be05-c2c4445274dd.jpg)
 
-暴涨的原材料价格正在侵蚀外贸企业及下游客户的利润，也持续打击着他们对未来的信心。原材料暴涨影响了几乎所有的外贸加工企业，目前工厂报价要求海外客户回复的时间，往往跟不上原材料上涨的速度。很多海外进口商面对上涨后的报价，一时抓不定主意，就造成了流单，双方失去了这个机会，等到回复确认订货时，价钱又涨了。现在，行业内流行着一句话：拼命保住最后的1%利润。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/0d044014-8c10-4d7a-9d08-03b35ac66334.jpg)
 
-因受中共超限病毒疫情影响，世界各国在2020年纷纷停摆，经济停顿，百姓收入大受影响。各国的进口商也会考虑他们客户的承受能力，不断上涨的报价直接导致爽约、放弃交易。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/5f504364-77f5-4cca-aae1-26af00102f14.jpg)
 
-中美贸易战导致了很多外贸加工企业搬离中共国，转移到东南亚。紧接着习总加速师亲自部署，亲自指挥对全世界释放中共病毒。在国际贸易上，引发了近几十年少有的天价海运费和原材料巨额暴涨，全世界都要为其疯狂行为买单，中共国将迎来新一波的外贸加工企业的死亡潮。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/e5bd564c-30d8-4fba-bfe1-31f5af252aad.jpg)
 
-新闻来源：[https://www.163.com/dy/article/G40UJH290518W4HN.html](https://www.163.com/dy/article/G40UJH290518W4HN.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ce6532b6-46aa-4345-a37f-60cf95632226.jpg)
 
-[https://www.chinanews.com/cj/2021/01-26/9397228.shtml](https://www.chinanews.com/cj/2021/01-26/9397228.shtml)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/6464e74b-8e94-42b0-9634-72e5972462d2.jpg)
 
-校对/发稿：飞虹
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3b48ab16-173e-4bc7-aa05-0cd86f1ac6ae.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-g-fashion-2.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/06b1b205-74d3-4ee1-b167-dff6f42d260f.jpg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3a38cf69-d621-4258-a2b5-47a99114b66c.jpg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/0d1bcd56-db42-4833-985b-e1a87153791b.jpg)
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cf9c4a9e-c688-4a89-850c-8b5c75d28e80.jpg)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/6518344b-5b97-431d-a3f9-689446cd8fcb.jpg)
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/74bca56c-7a1e-47f6-9ef9-3656b74960fc.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/16fdeeec-204d-4b31-9c9d-460125bd24f8.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/fb21b8f3-296f-4557-a5bd-f466f2eb934e.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/6d58b9ce-eeb5-4144-9b47-ba3966dc14b5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/d5f39f23-d6be-4962-a485-36190472ec08.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/d4ba9d85-1a02-4616-ab6d-48fd9caa5607.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/dc25c3b1-f3be-4ca2-ab30-f0c9ddde26e1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2698f74d-473b-4886-a130-c7615193fc6b.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/117e06a5-c7c8-4df6-9314-c190fba4a0aa.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/b9e893dd-0341-4358-8693-14c00314552d.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/53634885-0243-4df6-b225-7522ce2b6c46.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/7e0ea4a6-aaf8-4051-a875-6c7cdfe6cf40.jpg)
+
+发稿：Ranting
+
+本文观点均来自于作者，与GNEWS无关
 
 0

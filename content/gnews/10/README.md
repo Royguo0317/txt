@@ -1,75 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210324（图片新闻）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1013965/)
+## 武汉八成阳性患者为无症状感染者
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1013287/)
 
-- 作者：2020喜马拉雅
-- 封面：透明的遮羞布
+#### 翻译：明澈 | 责编：萌萌的朋克
+![]()![](https://gnews.org/wp-content/uploads/2021/03/明澈.jpg)图片来源：https://www.health.com/
+3月23日，据新加坡《海峡时报》（The Straits Times）报道，上周六（3月20日）医学杂志《柳叶刀》（Lancet）发布一篇最新研究报告，该项研究调查了去年4月至12月间 9542 名武汉人的血清阳性率或抗体流行率。参与这项研究的人员来自包括中国医学科学院和北京协和医学院在内的医疗和研究机构。
 
+自疫情爆发以来，这是第一项关于中共病毒爆发中心（武汉）的抗体流行率的长期研究。研究者发现，武汉 82% 的阳性患者为无症状感染者，大大高于全世界报导的平均比例（40％至45％），其中约 40% 的的阳性患者产生了可以预防未来感染的中和抗体，而有症状感染者更容易产生这种稳定性至少为九个月的抗体。研究者还发现，武汉的抗体阳性率为 6.9％，而中共国疾控中心于 12 月进行的研究却显示武汉抗体流行率为 4.43％。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+根据中共官方资料，武汉 2019 年常住人口高达 1121.2 万人，如果按照 2018 年常住人口 1108 万人来计算，可能有将近 76.5 万人被感染，印证了当时的一些报道——武汉的实际感染人数远高于官方统计的约五万例。
 
-**西班牙2021年3月24日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
+香港大学病毒学教授金东彦博士说，这项研究很重要，因为这增加了我们对中共病毒的了解——武汉的实际感染人数比官方数字高得多。他还指出，尽管这项研究发现只有 40％ 的感染者产生了中和抗体，但这并不意味着没有这种抗体的人就不会对中共病毒产生免疫力，金教授说，“很可能他们体内有抵御 Sars-CoV-2 的记忆 B细胞或 T 细胞”。记忆 B 细胞和 T 细胞是在感染病毒后发育出来的长寿细胞，在人体再次感染病原体之前会一直处于休眠状态，一旦感染，它们就会快速触发免疫反应。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/8f98a3e6-6756-4c43-9ff7-da622fa4c3da-7.jpg)
+金教授还说，当人被感染或接种疫苗之后，如果能够迅速产生中和抗体，那么这类人群也是能够得到全面保护的。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/bd7b0abc-fc12-46f0-adf0-dac93405f4fd.jpg)
+原文链接：[Most Covid-19 cases in Wuhan had no symptoms, less than half produced antibodies against new infection: Study](https://www.straitstimes.com/asia/east-asia/most-covid-19-cases-in-wuhan-have-no-symptoms-less-than-half-produced-antibodies)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2d334929-e483-4be0-833e-a62d35642067.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3e74487f-b006-48e8-b995-52eed495324b.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/c1026eb2-50a0-4c85-be05-c2c4445274dd.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0d044014-8c10-4d7a-9d08-03b35ac66334.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/5f504364-77f5-4cca-aae1-26af00102f14.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e5bd564c-30d8-4fba-bfe1-31f5af252aad.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ce6532b6-46aa-4345-a37f-60cf95632226.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/6464e74b-8e94-42b0-9634-72e5972462d2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3b48ab16-173e-4bc7-aa05-0cd86f1ac6ae.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/06b1b205-74d3-4ee1-b167-dff6f42d260f.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3a38cf69-d621-4258-a2b5-47a99114b66c.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0d1bcd56-db42-4833-985b-e1a87153791b.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cf9c4a9e-c688-4a89-850c-8b5c75d28e80.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/6518344b-5b97-431d-a3f9-689446cd8fcb.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/74bca56c-7a1e-47f6-9ef9-3656b74960fc.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/16fdeeec-204d-4b31-9c9d-460125bd24f8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/fb21b8f3-296f-4557-a5bd-f466f2eb934e.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/6d58b9ce-eeb5-4144-9b47-ba3966dc14b5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d5f39f23-d6be-4962-a485-36190472ec08.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d4ba9d85-1a02-4616-ab6d-48fd9caa5607.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/dc25c3b1-f3be-4ca2-ab30-f0c9ddde26e1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2698f74d-473b-4886-a130-c7615193fc6b.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/117e06a5-c7c8-4df6-9314-c190fba4a0aa.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b9e893dd-0341-4358-8693-14c00314552d.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/53634885-0243-4df6-b225-7522ce2b6c46.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/7e0ea4a6-aaf8-4051-a875-6c7cdfe6cf40.jpg)
-
-发稿：Ranting
-
-本文观点均来自于作者，与GNEWS无关
-
-0
++1

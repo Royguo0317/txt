@@ -1,11 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 文贵直播2021/03/21
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1013209/)
+## 3/14/2021 郭先生直播：中共治下的中国就是人间地狱！
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1013700/)
 
-采集：滴水莲花
+中共国没有一个人不生活在恐惧当中，包括制造恐惧和被恐惧的人；新中国联邦承受上天的使命-灭共；新中国联邦的正道主义是结合西方的法和理、东方的情和义，就是要让中国人过上没有恐惧、有尊严、和平健康的幸福生活！
 
-设计排版：空之灵
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-24-at-13.11.44.jpeg)![]()![](https://www.gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-24-at-13.11.44-1.jpeg)
+By: 【秘密翻译组G-Translators】
+
 0
