@@ -1,24 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳喜要闻3月23日 墨博士新闻点评
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1011553/)
+## 《路德社》精选新闻快讯：因中共病毒导致的大规模反封锁抗议活动在世界各地爆发
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1011575/)
 
-YouTube视频
-内容简介：
+出品：《路德社》   编辑：《路德社》精选新闻专栏组
 
-1. 中共本土病例疑点多，中共疫苗可能“暴雷”；
-2. 中共战狗外交，海外看透加深了解中共本质；
-3. 排除红毒，从孔子学院开始；
-4. 美国与“亡羊”厕所外交后，转身与北约盟国磋商会谈！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/032408.jpg)
 
+ZeroHedge新闻网3月20日报道，由于中共病毒疫情在全世界肆虐，至今已有一亿多人确诊感染，许多国家为抑制疫情大面积传播都进行全国封锁。长时间的封锁导致上万民抗议者上街游行，在伦敦、德国、法国、瑞典、荷兰、澳大利亚、比利时、日本、维也纳和其他地方，都爆发了为争取自由而举行的全球集会，多个地区都发生了示威者与警察的冲突，不可否认的是，全国封锁导致大规模失业，摧毁了中小企业，引发了广泛的抑郁和精神疾病。
 
-供稿: HA WarRoom
+评论：
 
-（视频只代表作者观点，不代表Gnews立场）
+随着中共病毒疫情在全球肆虐，疫情带来的社会危机和人道危机逐渐显现，各种社会矛盾不断激化。一旦全世界认定中共病毒就是中共发起的超限生物武器战争，全球必将联合围剿中共，那时，中共必成为人人喊打的丧家之犬。
 
-参考来源:
+[援引原文](https://www.zerohedge.com/geopolitical/burn-your-masks-massive-anti-lockdown-protests-rage-worldwide)
 
-[https://www.youtube.com/watch?v=-3pYVJsvc3c](https://www.youtube.com/watch?v=-3pYVJsvc3c)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-澳喜Logo-2.jpeg)
+本文作者：《重生者》
+审核校对：鲁邦五世
+上传排版：糖果儿
+
 0
