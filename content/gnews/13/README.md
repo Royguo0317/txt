@@ -1,54 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇控制下的EcoHealth因为隐瞒资金去向而被起诉
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1012143/)
+## 我看中共党媒对蓬佩奥的攻击
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1012525/)
 
-作者： 滴水穿石 编辑：Candy
+#### 作者：喜马拉雅大使馆  陌冰仙
 
-3月15日，美国＂生态健康联盟＂ 被起诉，因何缘故？
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2222222222-1.jpg)
 
-2015年开始，伪医学家福奇博士控制下的非政府机构 “生态健康联盟”（EcoHealth Alliance），陆续向中共武汉病毒实验室提供370万美元资助经费，以支持武汉病毒研究所对动物進行冠狀病毒的实验。
+近日，笔者看到了一些中共喉舌对蓬佩奥先生的污蔑，指其“罔顾事实，无端攻击和蓄意抹黑中国政府治疆政策，粗暴干涉中国内政，妄图挑拨新疆民族关系”，具体见后附新闻。我们来探讨一下为何CCP喉舌的言论是错误的。
 
-＂生态健康联盟＂组织会长皮特.斯扎克（Pete Daszak) 和中共武汉病毒研究所的石正丽有相当长的密切合作关系。他为什么支持武汉病毒研究所的动物冠状病毒的实验研究呢？因为可以名正言顺在武汉病毒研究所获得多样动物冠状病毒的样本，再进行人类的疫苗研发成果推向其控制的医药市场，在全球市场获得的利润胜于制毒贩毒利益所得。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3333333-4.jpg)
 
-武汉病毒研究所的外国执照，有效时间直到2024年1月31号。所以他们资助武汉病毒研究所共享资研究成果，然后通过完美犯罪让人群感染。再假扮成天使, 以其病原体研制成的疫苗和药品类用于患者。美其名是＂医治＂，实为控制人类，从而达到其全球命运共同体归附于共产主义中共的邪恶目的d。这些龌龊的政客与伪科学家为了获取他们与红魔共舞的最高利益，成为了金钱的俘虏，同时也与共产红魔奔向地狱之门。
+首先，仅仅因为思想与所谓的“党中央”不一致而去进行集中强制学习是不合适的。只要不极端，每个人都有其思想自由，对其粗暴干涉才是真正的对老百姓的无端攻击、肆意抹黑。暂且先不评价所谓的“宗教极端思想”到底是不是邪恶的东西，就单纯从“不良思想”等几句话联系上下文来看，在中共眼里，凡是他们不认可的就是不良思想，他们认可的才是好思想，如果你不和党中央一致，那就是有精神病——中共邪党的流氓无赖嘴脸昭然若揭。
 
-White Coat Waste Project 起诉EcoHealth，是为了保护美国纳税人的利益，也为了唤起美国民众的思考。为什么他们用自己缴纳的税金去邦助中共做恶，中共又反过来以完美犯罪的形式害死了美国几十万人？
+其次，中共喉舌叫嚣“我出生在南疆、长期工作在南疆，见证了党领导全国人民取得举世瞩目伟大成就的历程，见证了家乡发生的巨大变化”和“蓬佩奥，闭上你的嘴，听新疆人怎么说”。笔者闻言真是大牙都要笑掉了，你们这些中共邪党的狗腿子还能再无耻一些吗？除了被洗脑的中国大陆人民和一部分被假象所欺骗的外国人，谁不知道中共统治的“墙国”有变态的言论审查？谁敢说出不好的事情？敢说出来你就是“人民的敌人”（其实是共产党的敌人），那就是“西方反华势力的狗腿子”，是会被“专政”的。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/444444444.jpg)
+再次，从所谓的“再教育营”里面传出的学员被虐待、见不到家人的事情还少吗？由此可见，CCP一边虚情假意地说“新疆人最有发言权”，又对持不同政见者进行打击，十分令人不齿。
 
-惩恶扬善，正义之举。
+共产党一直干着既当婊子又立牌坊的事情。多行不义必自毙，共产党必灭！
 
-2021年3月23日
+（文章仅代表作者本人观点，与GNews无关）
 
-参考源：
+* * *
 
+新闻来源：
 
+蓬佩奥，请停止你的政治闹剧
 
-> EcoHealth gets sued for concealing the money trail. 
-> 
-> The discovery documents in this should be good reading. [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/iGjzV1bbeM](https://t.co/iGjzV1bbeM)
-> — DrQuay (@quay\_dr) [March 23, 2021](https://twitter.com/quay_dr/status/1374175691231485952?ref_src=twsrc%5Etfw)
+[http://k.sina.com.cn/article\_2881676250\_abc2e3da02001jg5x.html](http://k.sina.com.cn/article_2881676250_abc2e3da02001jg5x.html)
 
+蓬佩奥 闭上你的嘴 听新疆人怎么说
 
+[https://www.163.com/dy/article/G26BGT4N0550ASLZ.html](https://www.163.com/dy/article/G26BGT4N0550ASLZ.html)
 
-【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+蓬佩奥我告诉你，身为新疆人我很自豪！
 
-作者其他文章
+[http://www.gzhshoulu.wang/article/1003422475](http://www.gzhshoulu.wang/article/1003422475)
 
+*责任编辑：加拿大多伦多枫叶农场 文锦*
 
+*编辑/校对：美国纽约香草山农场 七哩香*
 
-> [揭底伪科学家福奇与其控制的国家卫生研究院（NIH)资助中共武毒所之背后的利益链](https://gnews.org/zh-hans/933169/)
+*发布：喜马拉雅工作站 文知*
 
-
-
-**欢迎战友加入旧金山金喜农场**
-
-[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
-
-[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
-
-[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
-
-[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
-
-0
++1

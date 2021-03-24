@@ -1,21 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 番禺一村民因无法忍受村委村霸压迫愤而引爆村委造成人员死伤
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1012468/)
+## 新西兰斯蒂芬·廷德尔爵士担心IceHouse公司与人权黑名单公司的关系
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1012680/)
 
-**【日本东京方舟农场】**撰稿：Maarago 素材整理：文柯Miles 校对：miumiu law
+编译：正义的伙伴zero
 
-据[时间视频](https://weibo.com/6250824982?refer_flag=1001030103_) [2021年3月22日15:34](https://weibo.com/6250824982/K7n8bbDCE?refer_flag=1001030103_) 来自 [社会综合 · 视频社区](https://weibo.com/)
+新西兰媒体Stuff下属的巡回（Circuit）工作组的纪录片《被删除的》（Deleted）揭露了新西兰与的科大讯飞（iFlytek）的商业和政治联系，并调查了一名维吾尔族新西兰人的兄弟被中共法外监禁的事件。
 
-【网曝番禺一村庄发生爆炸 警方：涉及刑案有人员伤亡，正全力调查】[#警方回应番禺一村庄发生爆炸#](https://s.weibo.com/weibo?q=%23%E8%AD%A6%E6%96%B9%E5%9B%9E%E5%BA%94%E7%95%AA%E7%A6%BA%E4%B8%80%E6%9D%91%E5%BA%84%E5%8F%91%E7%94%9F%E7%88%86%E7%82%B8%23)3月22日，网曝广州番禺化龙镇明经村发生爆炸，造成多人伤亡。网传画面显示，有人受伤倒地，墙面、楼梯均有血迹。案发后，警方赶赴现场处置并配合当地政府协同消防、医疗开展救援。[#广州番禺警方通报#](https://s.weibo.com/weibo/%23%E5%B9%BF%E5%B7%9E%E7%95%AA%E7%A6%BA%E8%AD%A6%E6%96%B9%E9%80%9A%E6%8A%A5%23)称，事件涉及刑案有人员伤亡。伤员已送医，案件相关情况正调查。 [L时间视频的微博视频](http://t.cn/A6tD4ceS) [收起全文d](void%280%29;)
+科大讯飞是中共控制的人工智能巨头，该公司的技术被广泛用于侵犯中国新疆维吾尔族人的人权。
 
-根据素材整理提供的信息，此次爆炸案实为村民对村委的报复性事件，
+与科大讯飞有商业关系的是冰室公司（IceHouse Ventures，以下简称IHV），IHV有新西兰政府背景。IHV的母公司是一家创业孵化公司，IHV是母公司下属专门负责投资的部门。2019年，IHV与科大讯飞签署了合作协议。
 
-以下为现场相关视频——
+在巡回（Circuit）工作组提出质疑后，其董事会要求调查这次投资行动。
 
-注：本文仅代表作者观点
+对于IHV与科大讯飞的关系，又有一位备受瞩目的新西兰商人希望得到IHV的回复。斯蒂芬·廷德尔爵士（Sir Stephen Tindall）通过投资公司K One W One在IHV中持有少量股份，他对后续的合伙关系感到担忧。廷德尔爵士更为人所知的是The Warehouse的创始人，他同时也是K One W One的董事长和大股东。
 
-参考链接：[https://s.weibo.com/weibo/%25E5%25B9%25BF%25E5%25B7%259E%25E7%2595%25AA%25E7%25A6%25BA?topnav=1&wvr=6&b=1](https://s.weibo.com/weibo/%25E5%25B9%25BF%25E5%25B7%259E%25E7%2595%25AA%25E7%25A6%25BA?topnav=1&amp;wvr=6&amp;b=1)
+他告诉巡回工作组：“我们确实知道IHV与科大讯飞有关系，但我们不知道科大讯飞在侵犯人权上的行为。我们正在寻求更好地澄清这种关系。”
+
+在廷德尔之前，山姆·斯塔布斯（Sam Stubbs） 也想得到回复。斯塔布斯是Simplicity公司的总经理，Simplicity是新西兰养老金公司KiwiSaver的供应商。斯塔布斯和廷德尔一样，也是IHV的股东。
+
+上周，斯塔布斯告诉巡回工作组：“这是我们认真对待的事情。科大讯飞是一家在美国被列入黑名单的公司。这是一个涉及人权的严重问题。”
+
+这种商业关系对Simplicity公司造成伤害，Simplicity公司一直崇尚道德投资，去年表示不会投资违反联合国人权议定书的公司。
+
+斯塔布斯说：“我们尽管是少数股东，但仍然是IHV的部分所有者，对IHV负有责任，我们的成员和新西兰公众可以从中学到这一点，并在必要时进行改进。”
+
+自2017年以来，公众一直在关注科大讯飞的语音识别技术被用来记录维吾尔人的声音。 这些”声纹”被保存在数据库中，可用于通过声音识别找到说话的人。
+
+《被删除的》还指出，科大讯飞的机器人被用在幼儿园，用在对维吾尔族儿童传授普通话，用在“智能法庭”和“智能起诉”中。
+
+IHV每年从政府下属的创新机构Callaghan获得70万美元。
+
+除了揭示科大讯飞与有新西兰政府背景的公司的合作关系外，《被删除的》还引出了政府拥有的种子基金Aspire的承认，它知道科大讯飞因侵犯人权而被列入黑名单，却继续进行投资了科大讯飞等公司。
+
+原文链接：
+
+[https://www.stuff.co.nz/national/stuff-circuit/300260747/sir-stephen-tindall-concerned-about-icehouse-relationship-with-blacklisted-chinese-company](https://www.stuff.co.nz/national/stuff-circuit/300260747/sir-stephen-tindall-concerned-about-icehouse-relationship-with-blacklisted-chinese-company)
 
 0
