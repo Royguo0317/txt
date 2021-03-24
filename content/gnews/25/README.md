@@ -1,46 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [疫情下的西班牙] 睾丸酮失效易导致严重的中共病毒症——意大利和西班牙科学家发现一种新的治疗方法
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1011246/)
+## 【重磅】如何彻底终结CCP病毒大流行（三）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1011248/)
 
-- 作者：gokuabuela
+五月花写作组 ｜ 作者：北美教练陪练｜ 编辑、美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/03/如何彻底终结CCP病毒大流行V3.jpg)
+### **往期链接：**
 
+[【重磅】如何彻底终结CCP病毒大流行（一）](https://gnews.org/zh-hans/1010646/)
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+[【重磅】如何彻底终结CCP病毒大流行（二）](https://gnews.org/zh-hans/1011043/)
 
-**西班牙2021年3月24日电/西喜社——**睾丸酮染色体的基因变异导致其功能不足，是ICU男性中共病毒患者较多的几个原因之一。这种遗传变异常见于25%至30%的欧洲人。这当然不是唯一的解释，但它是患有严重中共病毒的风险的情况之一。
+* * *
 
-研究已由意大利锡耶纳大学领导，由西班牙的贝尔维切生物医学研究所 (Idibell)，瓦勒德希伯伦（VALL D HEBRON）、 拉巴斯(LA PAZ)、 里奥哈健康基金会(la Fundación Rioja Salud) 和西博罕见疾病研究所（CIBER）以及西班牙的一些病人共同参与。
+### **开放伊维菌素为非处方药，就这么简单的事情**！
 
-关键是这种基因变异导致睾丸激素染色体无效，不能很好地捕获激素。而睾丸激素是人体调节炎症的工具之一，这种功能失常会降低一个人调节炎症的能力，多数情况下会加重中共病毒的病情。
+William C. Campbell 和 Satoshi Ōmura因合作开发出抵御蛔虫感染的伊维菌素 (Ivermectin) 而获2015年诺贝尔生理学或医学奖。
 
-功能失常的原因是某种过量：染色体中某种氨基酸的拷贝过多，达到9至36份。研究人员已经能够确定，当超过23份时，患严重中共病毒的风险就会增加。23份以下，则几乎没有影响，统计来自于没有其他疾病的中共病毒病人，不分年龄。
+1973年，日本微生物学家Satoshi Ōmura在土壤中发现了新型的链霉菌，该链霉菌被成功分离并在实验室进行培养，Satoshi Ōmura发现这些链霉菌可以产生抗寄生虫的物质，在默克药物筛选实验室的协助下，研究者于1975年完成了对有效成份的纯化鉴定，命名为阿维菌素(Avermectins)。致力于寄生虫研究的美国科学家William C. Campbell ，对阿维菌素进行一定的化学结构修饰，得到了更加安全高效的伊维菌素。1981年，伊维菌素在畜牧业、农业、水产养殖等领域取得上市准许。
 
-睾酮受体在X染色体上。女人有两个X，虽然看起来很矛盾，但她们却用这双重的机会来稀释这个问题。如果她们有那种多余拷贝的基因变异，通过与一个或另一个X的作用，她们最终会稀释。而且她们还有其他的激素来调节炎症。 而男性则没有这样的功能，这也是男性患者较多的一个原因。
+也许，没有比伊维菌素离穷苦人更近的药物了。全球每年大约有2.5亿人服用伊维菌素，抵御两种可怕的疾病——盘尾丝虫病和淋巴丝虫病。这些人多居住在偏远落后的欠发达地区，没有机会接受最基本的医疗救助，得益于药品捐助组织的帮助，他们才得以享受免费提供的伊维菌素。
 
-意大利的研究也在西班牙的几个中心进行，以确保变异体的存在不受地理因素影响。
+伊维菌素带来绵延40年之久的巨大成功。在人类与寄生虫病斗争的过程中，伊维菌素曾立下赫赫战功，拯救了数以百万的生命，这是近代制药工业辉煌的一页。
 
-“这是一种相对风险，远低于年龄和并发症引发的病毒感染，但高于因为于某一种血型而产生的易感性。但它还是有足够的影响的，虽然我们不能说它是决定性的”，罗杰-克罗布兰（Roger Colobran ），在 VHIR 诊断免疫学组的研究员和这项研究的作者之一，如此说道。
+伊维菌素（Ivermactin）有抗CCP 病毒的作用。第一个报道是澳大利亚的科学家，体外细胞实验证明伊维菌素有效（17）。实际上，抗寄生虫的药物都可能对CCP病毒有效。伊维菌素有效的灵感可能来自于羟氯喹，因为羟氯喹也是抗寄生虫的药物。
 
-但研究人员已经在考虑测试对这种变异的中共病毒患者使用睾丸激素，以防止病情加重。
+按理来说伊维菌素是个老药，有这一篇文章就足够了，CCP病毒大流行，死这么多人，没有有效的治疗方法，任何人都应该可以试用。但事情可没有这么简单。首先第一个跳出来的是FDA，“有效吗？人药不给你、兽药也不许用！”（18）
 
-**简评：**
+Pierre Kory是一线CCP病毒治疗联盟（Front line COVID-19 Critical Care Alliance）医生。他多次向NIH呼吁伊维菌素有奇效无果，最后在国会作证（19）（20）。2021年1月14号NIH终于扭扭捏捏、羞羞答答的确认伊维菌素可以应用。注意，NIH只是不反对了，但是并不推荐，更不鼓励。Pierre Kory医生的许多重要视频被Youtube 禁了。为什么？你懂的！
 
-**经过一段时间的摸索和研究，针对中共病毒的一些方案被不断发现和实施，对疫情的治疗也有一定的帮助，这是好事。**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-24-at-7.41.13-AM.png)Pierre Kory医生
 
-**我们注意到“ 这种遗传变异常见于25%至30%的欧洲人”这句话，是不是验证了中共病毒是有人种针对性的，是“灭白计划”的一部分？ 有没有医学界的朋友，可以查证一下，亚洲人、中国人、有色人种，受这种遗传变异的概率是多少？**
+阿根廷开展了一项研究实验，1195名医务人员中，407 名无预防用药，788名口服伊维菌素预防用药14 天，30天后的结果是：无预防用药组有58% 染病。服伊维菌素预防用药组无人感染（21）。按此结果，伊维菌素完全是个可以改变游戏规则的药物，如果全球每个人都用，同时用1-2个月，疫情也许会完全消失。比疫苗有效，同时用1-2个月，相当于1-2个月的群体免疫。病毒不就没有了吗？
 
-**正如7哥之前说的，疫情爆发后，一定会有很多的研究成果和疫苗问世，果不其然，但是，有一样是真正解决问题的吗？**
+巴西O Progresso医生在回答是否羟氯喹和伊维菌素缺乏科学证据时，非常激动的说：“需要数月、数年才能找到各种级别的证据。现在口口声声要证据简直是疯了。病人最后气管插管有用吗，你们怎么不要证据？在战时，在疫情面前医学官僚大咖们已经彻底的失去了合法性。面对这医疗系统崩溃，医院关门，大量病人死在医院门口。贝伦市（Belem，巴西的一座城市）采用了我们的治疗方案，仅仅几周时间，问题就解决了。如果这不是科学证据，那什么是科学证据？科学证据有意义吗？”（22）
 
-**这些成果大多数都是战术性的，而非战略性的，甚至有的只能称是暂时性的，因为中共病毒有变种，治疗方法和疫苗不一定能针对所有变种。什么时候，欧美的科学界，医学界，政界能真正形成一股合力，直抓本质—病毒溯源，掐死中国病毒研制、释放的源头，才能真正研制出有效的疫苗和治疗方法。    引用一个闫博士描述过的经典比喻：一群狗拼命抢一块骨头，抢到了又怎么样，人还可以扔第二块、第三块，必须先解决人。**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-24-at-7.46.06-AM.png)O Progresso 医生
 
-**新闻来源：[先锋报](https://www.lavanguardia.com/vida/20210323/6604130/fallo-testosterona-predispone-covid-grave.html)**
+46个临床实时回顾分析研究表明伊维菌素对预防CCP病毒效果极佳（23）。面对这样的效果，政客们，医疗精英们，是什么让你们蒙上了双眼？
 
-编辑：蚂蚁兄弟；校对：阿伯塔；初审：神奇四侠；发稿：Ranting
+（未完待续）
 
-[疫情下的西班牙专栏目录](https://gnews.org/zh-hans/993776/)
+* * *
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
+### 参考资料：
+
+（17）[https://www.sciencedirect.com/science/article/pii/S0166354220302011](https://www.sciencedirect.com/science/article/pii/S0166354220302011)
+
+（18）[https://www.fda.gov/animal-veterinary/product-safety-information/fda-letter-stakeholders-do-not-use-ivermectin-intended-animals-treatment-covid-19-humans](https://www.fda.gov/animal-veterinary/product-safety-information/fda-letter-stakeholders-do-not-use-ivermectin-intended-animals-treatment-covid-19-humans)
+
+（19）[https://vimeo.com/490351508](https://vimeo.com/490351508)
+
+（20）[https://covid19criticalcare.com/](https://covid19criticalcare.com/)
+
+（21）[https://trialsitenews.com/argentinas-ivercar-ivermectin-carrageenan-study-shows-positive-results-targeting-covid-19/](https://trialsitenews.com/argentinas-ivercar-ivermectin-carrageenan-study-shows-positive-results-targeting-covid-19/)
+
+（22）[https://rclutz.wordpress.com/2020/07/19/brazil-early-treatment-with-covid-kit-including-hcq-is-effective-and-safe/](https://rclutz.wordpress.com/2020/07/19/brazil-early-treatment-with-covid-kit-including-hcq-is-effective-and-safe/)
+
+（23）[https://ivmmeta.com/#fig\_fpr](https://ivmmeta.com/)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
 0
