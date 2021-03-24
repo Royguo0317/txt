@@ -1,82 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 视频：种族主义是种族主义者的问题，也是产生种族主义的社会问题
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1011799/)
+## 26国外交官在中共法庭外声援加拿大“涉谍”公民审判
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1011830/)
 
-内容：
+俄罗斯莫斯科喀秋莎农场 DongDong
+编辑上传 银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-24_06-19-15.jpg)[thestar.com](https://www.thestar.com/politics/2021/03/22/canadian-michael-kovrig-tried-in-beijing-as-western-nations-protest.html)
+据路透社报道，美国政府周二（3月 23 日）表示将密切关注在中共国被拘留的两名加拿大人，中共国法律程序缺乏透明度，美国政府呼吁两人应获得领事探视权。
 
-I am a descendant of slaves.
+“我们仍然对迈克尔-斯帕弗（Michael Spavor）和康明凯（Michael Kovrig）的法律程序缺乏透明度深感不安，并与加拿大一起呼吁根据《维也纳领事关系公约》给予其领事探视权，”美国国务院发言人内德-普莱斯（Ned Price）在 Twitter 上发文称。
 
-我是一个奴隶的后裔
+加拿大公民康明凯和斯帕弗在 2018 年被中共国方面逮捕，到现在已经整整两年。国际社会普遍认为，这是中共明显的报复行动，他们是孟晚舟事件的牺牲品。
 
-My great-grandmother, Mary Thomas, born in 1865,
+孟晚舟是华为公司创始人任正非的女儿，被捕前担任华为公司首席财务官。她于 2018 年 12 月 1 日在加拿大温哥华机场转机时被当地警方逮捕。加拿大配合与其有引渡条约的美国执行了这一抓捕行动。
 
-我的曾祖母，玛丽·托马斯，生于1865年
+美方提出的指控是，孟晚舟参与了华为公司把美国设备卖给伊朗的交易，违反了华为公司向美国作出的遵守美国制裁伊朗规定的承诺。同时，美国还指控孟晚舟在这个交易中犯有金融欺诈罪。美国方面据此要求加拿大逮捕孟晚舟并将其引渡到美国。
 
-Was the child of a slave – this is just three generations back from me.
+“孟晚舟事件”导致中共国方面的全面报复和加中两国关系的迅速恶化。康明凯和斯帕弗就是在孟晚舟被捕数日后遭到中共国当局扣押的。
 
-是一名儿童奴隶 – 到我这儿是三代人
+孟晚舟在加拿大获得保释，住在温哥华一幢有着 7 间卧室的豪宅里。虽然她戴着一个 GPS 追踪器，但她能自由地上私人绘画课、购物，而且还能去听中共国歌手的演唱会。
 
-I grew up in the segregated South, I was bused to a segregated school
+与之鲜明对比的是，康明凯和斯帕弗一直被关押在条件艰苦的监狱里。康明凯与世隔绝，有时只能够吃到米饭和煮熟的蔬菜，失去自由并且被禁止与外界联系，直到 2020 年 10 月才与加拿大外交官通过视频见了面。
 
-我在种族隔离的南方长大，我被送往一所隔离的学校上学
+北京市第二中级人民法院于日前表示，前加拿大外交官康明凯及其辩护律师3月 22 日到庭参加诉讼，该法院表示将择期宣判。康明凯被指控为境外刺探国家秘密、情报。三日前，在中共国东北城市丹东一家地方法院对迈克尔·斯帕弗的间谍案进行了类似的审理。庭审长达数小时，法院同样没有做出判决。
 
-And on weekends the Ku Klux Klan burned crosses on lawns in our neighborhood.
+在 3 月 22 日北京市第二中级人民法院外有来自 26 个国家的 28 个外交官现身，表达对康明凯和加拿大的支持。加拿大政府则再度谴责中共国政府任意拘捕加拿大公民的强制外交手段。与此同时，加拿大协同美、英和欧盟一起对中共国侵犯新疆人权的官员和实体实施制裁。
 
-周末，3K党(Ku Klux Klan)在我们的邻里附近的草坪上烧了十字架
+庭审当日有大批中共警员戒备并拉起封锁线。因为康明凯被秘密审讯，没有人能知道法庭内究竟是甚麽情况。不仅加拿大驻华使馆官员抵达法庭，还有包括美国丶英国丶德国丶澳大利亚丶荷兰和捷克等 26 个国家的 28 个外交官到场，大家站在法庭外，显示团结一心支持康明凯和加拿大的立场。加拿大驻华使馆临时代办倪杰民（Jim Nickel）在法庭外称，已多次要求旁听康明凯的审讯，但中共国以国家安全为由拒绝。“尽管中共有签署国际领事公约，承诺会提供领事服务，但中共还是拒绝我们参与庭审，司法程序很不透明，我们深感困扰。我们感谢那麽多国家的外交官员在法院外支持康明凯和加拿大。”
 
-When I was in high school, I was asked by a little girl for whom I babysat,
-
-当我上高中的时候，有一个小女孩问我，我是谁的保姆
-
-If I was an n-word, because her dad had used that word for me.
-
-如果我是黑奴，因为她的父亲曾用过这个词形容我
-
-I know the ugly face of racism
-
-我知道种族主义的丑陋嘴脸
-
-I lived racism. I have experienced racism.  And I survived racism.
-
-我在种族主义之中生活过。 我经历过种族主义。而且我在种族主义中幸存下来
-
-And through this process, I learned a simple truth
-
-通过这个过程，我学到了一个简单的道理
-
-Racism is not the problem of the person who experiences it.
-
-种族主义不是经历它的人的问题
-
-Those of us who experience racism cannot and should not, internalize it.
-
-我们当中那些经历种族主义的人们不能也不应将其内部化
-
-Despite the impact it can have on our everyday lives.
-
-尽管它会影响我们的日常生活
-
-We must face it down every time, no matter whom it’s directed towards.
-
-无论它是针对谁的，我们每次都必须面对它
-
-Racism is the problem of the racist, and it is the problem of the society that produces the racist-
-
-种族主义是种族主义者的问题，也是产生种族主义的社会问题
-
-and in today’s world, that is every society.
-
-在当今世界，那是每个社会的问题
-
-———————————————–
-
-英听校：    康州盘古农场 – Layka
-翻译：       康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发文：康州盘古农场-轰炸机
+参考链接：
+[1] [U.S. ’deeply troubled’ over Canadians detained in China: U.S. State Dept] – REUTERS
+[2] [中共国审理加拿大人康明凯涉间谍案，未做判决] – 华尔街日报（中文）
+[3] [中共国法院开始闭门审理加拿大人斯帕弗和康明凯案] – BBC（中文）
 
 0
