@@ -1,25 +1,82 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：俄罗斯外长拉夫罗夫展开访中共行程 呼吁中共俄减少使用美元
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1011712/)
+## 视频：种族主义是种族主义者的问题，也是产生种族主义的社会问题
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1011799/)
 
-出品：《路德社》   编辑：《路德社》精选新闻专栏组
+内容：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/032410.png)
+I am a descendant of slaves.
 
-路透莫斯科3月22日 – 俄罗斯外长拉夫罗夫周一展开访问中共国行程 呼吁两国一同减少对美元及西方支付系统的倚赖，以抵抗他口中所说的西方意识形态。
+我是一个奴隶的后裔
 
-在拉夫罗夫访华前，中共国《环球时报》暗示拉夫罗夫此行象征着中共和俄罗斯密切协作将抗衡“美国制造麻烦”的影响。
+My great-grandmother, Mary Thomas, born in 1865,
 
-环球时报指出，拉夫罗夫访华的时机别具意义意，因为在中共和美面对面沟通后，中共选择分享重要议题信息和观点的第一个国家就是俄罗斯。
+我的曾祖母，玛丽·托马斯，生于1865年
 
-在全世都在报道俄罗斯要中共自行脱钩美元来“自宫站队”时，中共媒体却一个都不报道。本来中共是想拉俄罗斯来演戏撑腰给世界看，想不到俄罗斯直接喊中共“自宫”，脱钩美元意味着中共“擀面杖子经济”直接被斩断，如意算盘被打翻，这下中共又被逼到墙角“演砸啦”。
+Was the child of a slave – this is just three generations back from me.
 
-[援引原文](https://cn.reuters.com/article/russia-lavrov-china-visit-0322-idCNKBS2BE17H)
+是一名儿童奴隶 – 到我这儿是三代人
 
-本文作者：Ray裁决
-审核校对：鲁邦五世
-上传排版：糖果儿
+I grew up in the segregated South, I was bused to a segregated school
+
+我在种族隔离的南方长大，我被送往一所隔离的学校上学
+
+And on weekends the Ku Klux Klan burned crosses on lawns in our neighborhood.
+
+周末，3K党(Ku Klux Klan)在我们的邻里附近的草坪上烧了十字架
+
+When I was in high school, I was asked by a little girl for whom I babysat,
+
+当我上高中的时候，有一个小女孩问我，我是谁的保姆
+
+If I was an n-word, because her dad had used that word for me.
+
+如果我是黑奴，因为她的父亲曾用过这个词形容我
+
+I know the ugly face of racism
+
+我知道种族主义的丑陋嘴脸
+
+I lived racism. I have experienced racism.  And I survived racism.
+
+我在种族主义之中生活过。 我经历过种族主义。而且我在种族主义中幸存下来
+
+And through this process, I learned a simple truth
+
+通过这个过程，我学到了一个简单的道理
+
+Racism is not the problem of the person who experiences it.
+
+种族主义不是经历它的人的问题
+
+Those of us who experience racism cannot and should not, internalize it.
+
+我们当中那些经历种族主义的人们不能也不应将其内部化
+
+Despite the impact it can have on our everyday lives.
+
+尽管它会影响我们的日常生活
+
+We must face it down every time, no matter whom it’s directed towards.
+
+无论它是针对谁的，我们每次都必须面对它
+
+Racism is the problem of the racist, and it is the problem of the society that produces the racist-
+
+种族主义是种族主义者的问题，也是产生种族主义的社会问题
+
+and in today’s world, that is every society.
+
+在当今世界，那是每个社会的问题
+
+———————————————–
+
+英听校：    康州盘古农场 – Layka
+翻译：       康州盘古农场 – Layka
+翻译终校：康州盘古农场 – Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发文：康州盘古农场-轰炸机
 
 0

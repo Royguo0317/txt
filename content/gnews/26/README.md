@@ -1,23 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共威胁制裁美国及其盟友
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1011824/)
+## 【每日快讯】22/03/2021:重磅！俄外长说中俄必须一起退出美元体系应对美国制裁
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/1011836/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+**制作: Cantonese工作室**
+**播报：【安妮】资料整理：【陆企陆捌】【闪电】海报制作：【文武全才】【米线】视频制作：【KEN】上传:【星星】**
+摘要:
 
-编辑上传   水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/A-15-14.jpg)countercurrents.org
-华盛顿时报 (The Washington Times)报道，中共威胁要报复美国针对中共在新疆侵犯人权罪行的制裁，中共誓言要美国及其盟友“为他们的无知和傲慢付出代价”。
-
-美国、加拿大、英国和欧盟周一宣布联合制裁措施，标志着国际社会谴责和惩罚中共对待新疆维吾尔族穆斯林和其他少数民族种族灭绝的最新举措。中共官员否认了拜登政府的指控，并激烈地辩护攻击美国的奴隶制历史，阿富汗和叙利亚平民的死亡，以及北美各地土著人民的待遇。
-
-“美国和西方一直在鼓吹保护人权，但他们到底在保护谁，保护什么权利?”中共外交部发言人华春莹在周二的新闻发布会上说。“外国列强用大炮强迫中国开门的日子已经一去不复返了，几位所谓的学者和官方媒体勾结诋毁中共而不受惩罚的日子也一去不复返了。”她表示，“我们敦促他们不要低估中共国人民捍卫国家利益和尊严的坚定决心。这是一种礼尚往来。他们将为自己的无知和傲慢付出代价。”
-
-美国、英国、欧盟和加拿大周一发表联合声明说，有大量无可争辩的证据证实中共在新疆的恐怖行为。“压倒性的证据，包括来自中共政府自己的文件、卫星图像和目击者的证词。”声明指出，“中共广泛的镇压计划包括严格限制宗教自由，使用强迫劳动，在拘留营大规模拘留，强迫绝育，以及协同破坏维吾尔族遗产。”
-
-参考链接：
-
-[https://www.washingtontimes.com/news/2021/mar/23/china-threatens-us-over-sanctions-they-will-pay-pr/](https://www.washingtontimes.com/news/2021/mar/23/china-threatens-us-over-sanctions-they-will-pay-pr/)
-
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-258.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2-101.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-107.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4-68.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/5-59.jpg)
 0
