@@ -1,55 +1,76 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中美阿拉斯加会谈是披着羊皮的狼和披着羊皮的狼演的一出戏
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1011178/)
+## 美国和中共必有一战（第一期）&#8212;&#8212;&#8212;新西兰伊甸农场战斗室节目有感
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1011286/)
 
-简述：在2021年3月21日的盖特中，郭先生第一次披露了中美阿拉斯加会谈的本质 —— 那是一出戏！中共的王毅和杨洁篪是披着狼皮的羊，而美方是披着羊皮的狼，他们之所以这样演是因为，中共可以继续骗14亿老百姓，而美方也可以满足私利，而最后买单的则是中国14亿草根老百姓，不信就等着瞧。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210321-getter1-part2.srt.txt)
+编辑：Ray裁决
 
-**中美阿拉斯加会谈是披着羊皮的狼和披着羊皮的狼演的一出戏**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/032404.jpg)
 
-**The US-China Alaska Meeting Is a Show**
+七哥在3月17日在盖特上发布消息:1/13中美差点开战。战友们都有很多观点，所以新西兰奥克兰伊甸农场的伊甸战斗室邀请农场成员畅聊一下 “美国中共必有一战”，发表各自的观点：
 
-咱这个先不多说，咱再说说更夸张的。这几天都在说的是，所有的阿拉斯加，中美两国会谈，只有咱们一家说这是演戏，没有任何人知道演戏，因为咱知道情报，那不是瞎蒙的，你老蒙的那是永远不可能100%准确的，是吧？只有咱一家说出这是演戏。这几天很多有良知的所谓的媒体人，还有政客们跟七哥开会都快疯了，[问]“为什么 Miles 你能知道这是在演戏呢？”很简单兄弟姐妹们，我说看这个演戏，我给他们形容了一个，我说：“中共国假擀面杖子经济，假的吹牛，我说它就像一个什么？”
+**@澳洲七哥**战友谈到他的人生经历，以及现在身在墙内的家人的境遇与关系，CCP对同胞的洗脑不管是墙内还是墙外都是深入骨髓的。世界都被CCP破坏了，只有爆料革命，闫博士在不停的揭露真相，美国作为最后的防线，必将与中共有一战。
 
-Let’s just move on and talk about something more absurd. All that people have been talking about these days was the Alaska meeting between the US and China. We are the only one saying that it was a show. No one else knew about this. It’s because we have the intelligence, so we are not taking a shot in the dark. If you guess blindly, you will never be 100% correct, right? We are the only media who said it was a show. In these days, many so-called media professionals with conscience along with politicians have had meetings with me like crazy, asking “How do you know it was a show, Miles?” It is very simple, brothers and sisters. I said, “Look, this is a show.” Then I made a metaphor, “What do the ‘rolling pin’ (fake) economy of the CCP and their boastings look like?”
+**@挣扎的韭菜**战友从利益资本角度看到，中共从来不按契约做事， 挑战整个国际秩序，是整个人类文明规则的破坏者。美国对中共的生化武器超限战， 也必将反击。为了拿回利益，为了保持军事上的绝对优势地位，美国也不会允许中共 的持续和没有规则的威胁。
 
-我说：你去想想中共国的经济、军事，所有的实力跟美国比，它真的就是一个羊，这没办法。那么美国在世界上军事、政治、经济、技术、影响力，它绝对是个狼。咱用这这两个动物来讲。那么中共国今天为啥敢这么嚣张？中共敢这么嚣张，因为它手里边它绑架到14亿中国人民，还有一个它在美国有蓝金黄，它就是14亿奴隶和蓝金黄手段，所笼络的资源，不就这个吗？是吧？兄弟姐妹们，还有啥可说的，不就这两招儿吗？
+**@我是豹警官**战友从历史角度对比二战前后时期美国经济状况，谈到真正让美国经济复苏的，是第二次世界大战。CCP的生化病毒，全社会lockdown，商品不流动，那么士兵就要流动。香港、台湾和病毒都可能触发战争，美国不打这一仗，美国会崩溃。偷技术、南海、中共的超限战，每一样都触及到美国的核心利益。
 
-I said, think about the economic and military strength of the CCP, when compared to the US, it is like a sheep, with no doubt. Considering the strength and influence of military, politics, economy, and technology, the US is absolutely a wolf. Let’s use these two animals to tell the story. Then, why dare the CCP to be so arrogant? It is because the CCP has kidnapped 1.4 billion Chinese people. Another reason is the BGY plot in the US, using all the resources netted by abusing the 1.4 billion slaves. Right? Brothers and sisters, what else can I say? The CCP only has only these two tricks, right?
+**@TS2020相聚盘古**战友谈美国与中共必有一战，有必然性也会有偶然性，分别从国家国民信仰层面，法律上根本的不同，地缘政治，国际法，能源之争，太空资源之争，经济之争以及中共对墙内人洗脑拉仇恨这些方面进行了深入精彩的剖析：
 
-我说那为什么中美阿拉斯加峰会成这样的滑稽的场面？很多欧美人问我：你怎么看这件事情。我说：非常简单，看中共和美国这两个峰会，我有两个比喻。中共所谓的杨娘娘，还有王公公就是一个披着羊皮的羊，披着羊皮的羊它还是羊，咋呼得很厉害，左顾右盼、前看后看，在那又蹬腿又挠地的，“啪啪啪”它把它自己当成了狼了。
+***CCP没有信仰***，只崇尚暴力，美国是有自由信仰的国家，心中有爱，有和自然 平衡的意识。信仰有与无的冲突，是根本冲突的核心。
 
-I then asked, “Why did the US-China Alaska meeting have such an absurd scene?” Many people from Europe and America asked me, “What’s your take on this?” I said, “It was very simple. I can use two metaphors to describe the meetings between the CCP and the US. The so-called Empress Yang (Jiechi Yang) and Eunuch Wang (Yi Wang) were sheep covered with the skin of a wolf. Sheep in wolf’s clothing are still sheep no matter how much fuss they make, how they check around, look back and forth, kick and scratch the ground, or how much they believe they are a wolf.”
+***法律上的根本冲突***。⻄方⺠主国家，私有财产是绝对无上的神圣权力，不可侵 犯，宪法保障。CCP是公有制，是和私有制根本的对立。大陆不光私有制消灭 了，连原私有制的人都全部被消灭了。香港昨天发生的，今天发生的，都在验 证CCP一直在消灭私有制，并直播给了全世界。毛泽东，说无法无天。刘少奇 说，共产党的法律是给别人制定的。
 
-我说美国那是什么呢？是披着羊皮的狼，是披着羊皮的狼，完了。他为啥？它真把自己当羊了。为什么美国这个狼要把自己披着羊皮呢？因为美国有弱点，美国不敢当狼，因为这个羊跟它之间有默契，要让它当一次羊，因为回到中共国去好骗那14亿的奴隶。咱俩演戏，然后我这个羊，穿着羊皮的咋呼的羊，要开始给你多送点羊过来，或者在美国弄点狼肉吃吃。就这么简单。
+***地缘政治的冲突***。美苏两大体系，⺠主对共产，形成了地缘冲突，最明显就是 朝鲜半岛的38度线、越南的37度线。最后不了不之，谁也没有征服谁。在这个 体系下，CCP在经济不大的情况下，文化革命前，就把共产主义革命输出到了 北韩、巴基斯坦、缅甸 老挝、印尼，这就是CCP地缘政治的扩张。苏联共产党 把共产主义输出到美国后花园古巴，被美国阻止。但国际共产主义，现在完全 被CCP接手。8964后，美国为了灭苏联，和中共勾兑，现在却被CCP偷袭。
 
-I continued, “Then what was America like? It was a wolf in sheep’s clothing. Period. Why? It indeed treated itself as a sheep. Why was America the wolf willing to put on sheep’s clothing? It’s because others got goods on America, so that it didn’t have the courage to be a wolf. It’s because the sheep had a tacit agreement with it and asked it to pretend to be a sheep for once, in order to cheat the 1.4 billion slaves in Communist China. So, if you America agreed to put on a show with me, I, the noisy sheep in wolf’s clothing would send more sheep to you or even some other wolf’s meat for you America to eat.”
+***国际法意识的不同***。CCP对香港，对南海的武力取得，都是无视国际法，是流 氓政权的表现，永远不会按合同按律法来解决问题，他只认暴力。你不把他制 服，他就不懂，暴力是它唯一明白的语言。美国一味幻想用协议来解决问题， 使得CCP轻易得手，控制香港和南海。这只是CCP对外扩张的准备阶段，大戏 还没开始。真正的热战，应该从攻占台湾开始。这是台湾的地理战略位置决定 的。
 
-我说：最终，一定要记住，美国狼还会回到本质，美国的狼还会是披着狼皮的狼，中共国还是披着羊皮的羊，或者被扒了皮的羊，就这么简单。他们都爱笑死了。
+***能源之争是最大的障碍***。大陆的能源哪里来的?石油、天然气、核能、水力电 力不平衡。十年前胡锦涛以167亿美元，买下澳洲达尔文港口30年的天然气所 开采权，167亿美元，30条天然气冷藏船，每天起航一条船到深圳，中途是30 天，这些能源只能够广东和深圳一地的供应。中国的能源大部是靠买，国产的 能源是不能平衡的，而美国也是很大的能源消耗国，这就形成能源之争，CCP 就会无序扩张，扩张必然就有冲突，除了比价格，比实力，就是比拳头。新中 国联邦接管中国大陆，能避免这种争端。CCP无序的工业发展，导致能源的供 应也是无序。
 
-“Simple as this,” I said, “ultimately, please remember, the America wolf will go back to its nature. The American wolf will turn back to a wolf in wolf’s skin, and the CCP sheep will still be a sheep in sheep’s skin or naked with its skin peeled. That’s it.” They all laughed.
+***太空火箭军之争***。过去叫星球大战计划。现代军事技术，发现即摧毁。如何发 现呢，越高越安全，越高越能发现敌人。美国在这方面占绝对优势。卫星频 道、轨道、高度控制权，如同土地划界一样。比的是谁能看得更远，看得更精 准。探索土星和火星，跟争夺太空关系不是太大，绕月⻜行和卫星才是关键。 另一个是，CCP的天眼技术，通过卫星确定美国的航空母舰的位置，然后通过 战略导弹打击航空母舰。目前全球具备太空军事之争的仅有美国与中共。
 
-不管你咋咋呼，你都是披着羊皮的羊。所以说，我说：他越咋呼越好，他对香港对台湾以及到非洲、中东，玩的这一切手段都是政治手段，一切都是为内政，一切都是内政。好好看看第二次世界大战，希特勒，当时的法国、英国，包括日本，很多重大的影响国家命运的决策，当时都和内政，内部政治有绝对的关系，这全世界的政治都是一家的，都是流氓。但是中共国不是流氓，它是真正的黑社会，它是绑架14亿中国人民的，它是以14亿人民作为筹码跟全世界讲数的。美国人愿意，知道自己是狼，还披着羊皮，就是更为了获取个人获得更多的羊肉，为个人获得更多的羊肉，和未来吃更多的羊崽子，甚至吃个羊胎盘啥的，是吧？就这么简单。
+***CCP通过洗脑人⺠，拉仇恨，仇美，仇⺠主国家，这也是一个重要原因***。1950 年，抗美援朝开始就一直在这么做。中美之间的冲突，最早开始于八国联军， 但是其他的冲突，都是美国和CCP的冲突:1950年韩战、1962年和印度之战 (美国只是后勤支援)、1967越战，在这些事件过程中和事后，CCP一直在输出革命，却恶人先告状，反咬美国是霸权，美国实际是在维护世界和平。后来的 伊拉克1991年海湾战争，实际上美国人日本人花钱，美国人打战维护秩序，清 除萨达姆，最终受益的却是CCP，最后石油工程重建，都被CCP三大石油公司 拿走了。包括后来的叙利亚、利比亚之战，美国花钱解决了体制和法制问题， 利益却全部被CCP截走。CCP一直输出革命，截取利益，实际上是截胡美国利 益，但美国人⺠却没有意识到。而中国与美国到底是什么关系?过去八国联军 进攻北京，只有美国没有拿庚子赔款。美国观察到中国这个国家不开化，需要 开智，需让百姓了解美国，所以，清朝选派到美国的留学人员资助均来自于庚 子赔款，还包括清华大学、同济大学，北京协和医院、上海同仁医院的创办也 来自于庚子赔款，最后还退了一部分钱给清廷。当时美国在华没有一寸租界 地，仅有一个上海美国法庭，专⻔处理美国和中国大陆的经济官司的，不像日 本、俄罗斯占了中国大量土地，到现在也是如此。抗日期间，美国出钱出力出 人为中国抗战，从不收钱，还贷款给中国恢复经济。日本投降后，美国军舰帮 助国⺠政府收回了很多南海的岛屿和台湾岛。本来准备把琉球交给国⺠政府， 由于当时蒋介石和中国大陆在内战争夺，美国就委托日本托管，很庆幸，当时 这个地方没有给CCP。意外成为防卫CCP军事进攻的关键支撑点。美国是一直 把中国当做朋友，甚至可以说是无私的，更谈不上欺负和侵略。
 
-No matter how loud you voiced, you are still a sheep in sheep’s skin. So, I said, “It is better if they keep making more fuss. All means the CCP has used toward Hong Kong, Taiwan, Africa, and the Middle East are political tactics for its domestic politics. Please take a good look at WWII. Many critical decisions that influenced a nation’s fate made by Hitler, France, the UK, or Japan at that time were absolutely connected with their domestic politics. All the world’s politicians belong to the same family – they are all rogues. Yet, the CCP is not a rogue, rather, it is a true gangsterdom. It has kidnapped 1.4 billion Chinese and used the 1.4 billion Chinese as leverage to bargain with the world. The Americans were willing to put on sheep’s clothing, even though they knew they were wolves, because they wanted to get more sheep meat for their personal interest and get more lambs for the future, or even get some sheep placentas to eat, right? Simple as this.”
+而CCP却一直 教育和愚弄国⺠去仇美，现在连教育上还要取消英语教育，这是多么悲哀的事 情。
 
-但是美国这次是被羞辱的，中共这次是咋咋呼呼的解决了内部的上海邦和习大神的问题，更重要的事情最后是剪韭菜，最后买单的是咱中国老百姓。两边，不管是狼披羊皮，还是羊披羊皮，但最后买单的就咱中国老百姓，草根。就这么简单，信不信？不信拉倒。
+经济之争。2008年，温家宝当政，超发4万亿人⺠币刺激经济计划，高铁、高 速公路、港口建设等大规模建设，就把中国经济推进了12年。CCP在经济上出 口，强制结汇，就是超发货币。出口美国，顺差净得5000亿美元 (折合4万亿人 ⺠币)，每年能偷回这么多回来，一直持续了15年。这就是所谓CCP经济动力之 源之一，在中共病毒之前，一直给人一种很火爆的感觉。融资，从华尔街骗来 的资金更是天文数字，也是CCP主要经济动力源。其他的，还包括偷技术，病 毒超限战等。
 
-America was humiliated this time, and the noisy CCP has solved its internal conflict between the Shanghai Gang and God Xi. More importantly, the CCP could reach its ultimate goal of harvesting the chives (referring to robbing the ordinary Chinese) and having the ordinary Chinese to pay the bills in the end. No matter to the wolf in sheep’s clothing or the sheep in sheep’s skins, in the end, it is the ordinary Chinese who will pay for the bills, the grassroots. Simple as this. Do you believe me? It doesn’t matter if you don’t.
+美国和中共必有一战。这次，不是打服它，而是消灭它。这就是郭先生说的，今后进入世界千年和平时代。CCP是一切祸害的根源。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60575c13d1608d609ea69e30](https://gtv.org/getter/60575c13d1608d609ea69e30)  (1:59-2:54, 3:07-7:21)
-鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/998813/](https://www.gnews.org/zh-hans/998813/)
+**@黑暗即将过去**战友谈这个CCP病毒，已经让世界人⺠忍无可忍。美国中共必有一战。
 
-* * *
+**@石⻣上的叶子**战友说美国有资本才有主义，没资本就没主义。中国最致命的就是外汇，第二致命的就是科技。透过香港流转外汇。美国只要不让外汇在香港流转，CCP彻底就完蛋了。
 
-翻译：【7PawBear】校对：【Isaiah4031】【BruhM】字幕：【Rock小哥】视频解码：【恒久忍耐】技术支持：【Rock小哥】推广：【V%】【TINALS】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+第一期主要讲“Why”。介绍了节目的生成目的，重点交流美国和中共为什么必有一战。几位战友从不同的角度分析了其中的原因，不管是从历史上经济走势发展的对比，还是从一百多年来地缘政治事态的变化，以及现如今中共的邪恶面目被爆料革命曝光于世界释放超限战生物武器以及“13579”灭白计划，想要称霸世界甚至太空的野心，这一战也无可避免。从最近美国，北约，亚洲日韩印澳的各方面军事动态来看，军事上的合围已经慢慢形成，都在为这一仗做着准备。这一仗必打！
+
+更多精彩内容请点击GTV, 搜索：新西兰农场综合台[【美国与中共必有一战】](https://gtv.org/video/id=605717dfa26ac57138dfe53e)
+
+回顾战友们的精彩对话。
+
+下一期预告为“How”美共之战会如何进行 ，敬请期待。
+
+感谢：
+
+主持人：@星云，@ Linda
+
+嘉宾：@Enzo20石骨上的叶子，@澳洲7哥，@豹警官，@黑暗即將将过去，@挣扎的韭菜，@高频，@TS2020相聚盘古
+
+策划：@TS2020相聚盘古
+
+封面：@文恩小蚂蚁
+
+片头视频：@掙扎的韭菜
+
+技术支持：@Think Wh， @喜国哥
+
+场记：@135790abc， @文恩小蚂蚁
+
+资料收集：@文滿，@生當自由，@如果云知道，@Leo，@豹警官，@文石1120
+
+审核校对：鲁邦五世
+上传排版：糖果儿
+
+
 
 0

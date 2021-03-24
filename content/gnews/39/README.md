@@ -1,75 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅】如何彻底终结CCP病毒大流行（二）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1011043/)
+## [疫情下的西班牙] 睾丸酮失效易导致严重的中共病毒症——意大利和西班牙科学家发现一种新的治疗方法
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1011246/)
 
-五月花写作组 ｜ 作者：北美教练陪练｜ 编辑、美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/03/如何彻底终结CCP病毒大流行V2.jpg)
-### **往期链接：**
+- 作者：gokuabuela
 
-[【重磅】如何彻底终结CCP病毒大流行（一）](https://gnews.org/zh-hans/1010646/)
 
-* * *
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-### 开放羟氯喹为非处方药，就这么简单的事情！
+**西班牙2021年3月24日电/西喜社——**睾丸酮染色体的基因变异导致其功能不足，是ICU男性中共病毒患者较多的几个原因之一。这种遗传变异常见于25%至30%的欧洲人。这当然不是唯一的解释，但它是患有严重中共病毒的风险的情况之一。
 
-对抗CCP病毒必须要有正确的方案。我们都知道羟氯喹有效（对预防和轻症患者治疗有效，但对重症无效）。开放羟氯喹为非处方药，多么简单的事情，就是不做。什么原因？“你懂的”！利益链条哇！大药厂要挣钱，他们要挣棺材钱！无良政客、精英医生（尤其是有话语权的，所谓的学术带头人，key opinion leader）可能很多已经被收买。
+研究已由意大利锡耶纳大学领导，由西班牙的贝尔维切生物医学研究所 (Idibell)，瓦勒德希伯伦（VALL D HEBRON）、 拉巴斯(LA PAZ)、 里奥哈健康基金会(la Fundación Rioja Salud) 和西博罕见疾病研究所（CIBER）以及西班牙的一些病人共同参与。
 
-全世界最早说羟氯喹可以治疗CCP病毒的是路德节目中的莫博士和他的妻子（3）。据闫丽梦博士透露，羟氯喹被使用已有60年的历史，针对病毒对人体所造成的伤害，羟氯喹实际上都有很好的疗效，能有效针对病毒的各种致病机理，是一个可长期服用的安全药物，只要注意遵守安全的服用剂量要求即可。 据她披露，在中共国，达到某些级别的高官都知道羟氯喹对新冠病毒有治疗作用，这些高官和一些军医院的医生可能自己也在服用。但是这些重要资讯并不是所有的中共国人都知道，那些面临高风险的前线医护人员也不知道这一点。至于为什么中共不公布这些信息？闫丽梦博士说：中共不公布病毒来源的真实信息、病毒的信息和它的真实行为模式，不是因为中共可以找到疫苗，它们不想让全世界知道这病毒到底是怎么回事，并拖延真正科学界应对病毒作出的反应。
+关键是这种基因变异导致睾丸激素染色体无效，不能很好地捕获激素。而睾丸激素是人体调节炎症的工具之一，这种功能失常会降低一个人调节炎症的能力，多数情况下会加重中共病毒的病情。
 
-讲羟氯喹有效就像捅了主流媒体、精英医生们的肺管子一样。福奇（Anthony Fauci）博士，是几届美国总统医学顾问。为了推动病毒大流行，他先是教导美国民众不用带口罩，后来又改口说带应该带口罩，又辩解说开始口罩少，怕民众抢购。民众会和医务人员抢口罩？看看民众疫情期间捐了多少口罩？这真是对善良的美国人民的侮辱！他现在又是拜登总统的防疫顾问，又开始兜售给12岁以下的儿童打疫苗！2020年3月20日福奇博士别有用心地反对用羟氯喹预防和治疗CCP病毒感染。事实上2005年8月22日，美国CDC曾发表过一篇文章：羟氯喹可以预防和治疗SARS冠状病毒感染（4）。但福奇博士对CCP病毒的策略是，黑不提白不提，揣着明白装糊涂。
+功能失常的原因是某种过量：染色体中某种氨基酸的拷贝过多，达到9至36份。研究人员已经能够确定，当超过23份时，患严重中共病毒的风险就会增加。23份以下，则几乎没有影响，统计来自于没有其他疾病的中共病毒病人，不分年龄。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-24-at-7.03.48-AM.png)福奇（Anthony Fauci）博士，美国国立卫生研究院免疫与传染病主任几届美国总统医学顾问。所谓的学术带头人，key opinion leader
+睾酮受体在X染色体上。女人有两个X，虽然看起来很矛盾，但她们却用这双重的机会来稀释这个问题。如果她们有那种多余拷贝的基因变异，通过与一个或另一个X的作用，她们最终会稀释。而且她们还有其他的激素来调节炎症。 而男性则没有这样的功能，这也是男性患者较多的一个原因。
 
-公众对福奇博士提出质疑。美国医学院联盟、美国传染病学会、美国儿童疾病研究学会、美国CDC等医学界精英大佬们竟然联合起来，联名力挺福奇博士（5-9）。
+意大利的研究也在西班牙的几个中心进行，以确保变异体的存在不受地理因素影响。
 
-Vladimir Zelenko医生用羟氯喹治疗了成功治疗了700多个CCP病毒感染的病人后，曾给川普总统写信说明羟氯喹的效果（10）（11）。网上攻击Vladimir Zelenko的文章铺天盖地。 大量Zelenko医生的Youtube 视频被下架。纽约时报攻击说Zelenko医生是个乡下医生，住在一个破烂不堪的房子里，兜售没有FDA通过的羟氯喹（12）。在无数次证明羟氯喹治疗效果后，Zelenko医生说羟氯喹反对者是集体大屠杀的凶手（13）。最终，Zelenko医生被迫离开他居住的小镇（14）。
+“这是一种相对风险，远低于年龄和并发症引发的病毒感染，但高于因为于某一种血型而产生的易感性。但它还是有足够的影响的，虽然我们不能说它是决定性的”，罗杰-克罗布兰（Roger Colobran ），在 VHIR 诊断免疫学组的研究员和这项研究的作者之一，如此说道。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-24-at-7.04.19-AM.png)Vladimir Zelenko医生
+但研究人员已经在考虑测试对这种变异的中共病毒患者使用睾丸激素，以防止病情加重。
 
-Brian Tyson是治疗CCP病毒病人的一线医生，他表示：CCP病毒是根据某些人的需要弄到美国的瘟疫，羟氯喹效果极其有效，根本无需疫苗（15）（16）。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-24-at-7.04.44-AM.png)Brian Tyson医生
-（未完待续）
+**简评：**
 
-* * *
+**经过一段时间的摸索和研究，针对中共病毒的一些方案被不断发现和实施，对疫情的治疗也有一定的帮助，这是好事。**
 
-### 参考资料：
+**我们注意到“ 这种遗传变异常见于25%至30%的欧洲人”这句话，是不是验证了中共病毒是有人种针对性的，是“灭白计划”的一部分？ 有没有医学界的朋友，可以查证一下，亚洲人、中国人、有色人种，受这种遗传变异的概率是多少？**
 
-（3）[https://www.youtube.com/watch?v=m3PQss3oMkg&t=113s](https://www.youtube.com/watch?v=m3PQss3oMkg&amp;t=113s)
+**正如7哥之前说的，疫情爆发后，一定会有很多的研究成果和疫苗问世，果不其然，但是，有一样是真正解决问题的吗？**
 
-（4）[Martin J Vincent](https://pubmed.ncbi.nlm.nih.gov/?term=Vincent+MJ&amp;cauthor_id=16115318), [Eric Bergeron](https://pubmed.ncbi.nlm.nih.gov/?term=Bergeron+E&amp;cauthor_id=16115318), [Suzanne Benjannet](https://pubmed.ncbi.nlm.nih.gov/?term=Benjannet+S&amp;cauthor_id=16115318), [Bobbie R Erickson](https://pubmed.ncbi.nlm.nih.gov/?term=Erickson+BR&amp;cauthor_id=16115318), [Pierre E Rollin](https://pubmed.ncbi.nlm.nih.gov/?term=Rollin+PE&amp;cauthor_id=16115318), [Thomas G Ksiazek](https://pubmed.ncbi.nlm.nih.gov/?term=Ksiazek+TG&amp;cauthor_id=16115318), [Nabil G Seidah](https://pubmed.ncbi.nlm.nih.gov/?term=Seidah+NG&amp;cauthor_id=16115318), [Stuart T Nichol](https://pubmed.ncbi.nlm.nih.gov/?term=Nichol+ST&amp;cauthor_id=16115318). Chloroquine is a potent inhibitor of SARS coronavirus infection and spread. Virol J  2005 Aug 22;2:69. doi: 10.1186/1743-422X-2-69.
+**这些成果大多数都是战术性的，而非战略性的，甚至有的只能称是暂时性的，因为中共病毒有变种，治疗方法和疫苗不一定能针对所有变种。什么时候，欧美的科学界，医学界，政界能真正形成一股合力，直抓本质—病毒溯源，掐死中国病毒研制、释放的源头，才能真正研制出有效的疫苗和治疗方法。    引用一个闫博士描述过的经典比喻：一群狗拼命抢一块骨头，抢到了又怎么样，人还可以扔第二块、第三块，必须先解决人。**
 
-（5）[https://www.aamc.org/news-insights/press-releases/aamc-statement-support-anthony-fauci-md](https://www.aamc.org/news-insights/press-releases/aamc-statement-support-anthony-fauci-md)
+**新闻来源：[先锋报](https://www.lavanguardia.com/vida/20210323/6604130/fallo-testosterona-predispone-covid-grave.html)**
 
-（6）[https://abcnews.go.com/Politics/doctors-cry-foul-white-house-targets-fauci-cdc/story?id=71773393](https://abcnews.go.com/Politics/doctors-cry-foul-white-house-targets-fauci-cdc/story?id=71773393)
+编辑：蚂蚁兄弟；校对：阿伯塔；初审：神奇四侠；发稿：Ranting
 
-（7）[https://www.societyforpediatricresearch.org/joint-statement-in-support-of-dr-fauci-of-science-and-public-health](https://www.societyforpediatricresearch.org/joint-statement-in-support-of-dr-fauci-of-science-and-public-health)
+[疫情下的西班牙专栏目录](https://gnews.org/zh-hans/993776/)
 
-（8）[https://www.pop.org/cleanvaccine/?gclid=Cj0KCQiArvX\_BRCyARIsAKsnTxPJSh7wudv8jsfiY3RUdpKWDGwLM-brfaypcMZhI5IgcbFVJDJ3gf8aAuq3EALw\_wcB](https://www.pop.org/cleanvaccine/?gclid=Cj0KCQiArvX_BRCyARIsAKsnTxPJSh7wudv8jsfiY3RUdpKWDGwLM-brfaypcMZhI5IgcbFVJDJ3gf8aAuq3EALw_wcB)
-
-（9）[https://www.idsociety.org/news–publications-new/articles/2020/isda-statement-in-support-of-anthony-fauci-m.d.-fidsa](https://www.idsociety.org/news--publications-new/articles/2020/isda-statement-in-support-of-anthony-fauci-m.d.-fidsa)
-
-（10）[https://www.herald.ng/after-successfully-treating-700-covid-19-patients-doctor-pens-letter-to-trump-on-drug-regimen/](https://www.herald.ng/after-successfully-treating-700-covid-19-patients-doctor-pens-letter-to-trump-on-drug-regimen/)
-
-（11）[https://www.youtube.com/watch?v=Fz4Nc967ZVo](https://www.youtube.com/watch?v=Fz4Nc967ZVo)
-
-（12）[https://www.nytimes.com/2020/04/02/technology/doctor-zelenko-coronavirus-drugs.html](https://www.nytimes.com/2020/04/02/technology/doctor-zelenko-coronavirus-drugs.html)
-
-（13）[https://www.israel365news.com/154281/dr-zelenko-vindicated-after-hydroxychloroquine-proven-effective-calls-naysayers-mass-murderers/](https://www.israel365news.com/154281/dr-zelenko-vindicated-after-hydroxychloroquine-proven-effective-calls-naysayers-mass-murderers/)
-
-（14）[https://nypost.com/2020/05/21/doctor-who-promoted-covid-cocktail-leaves-jewish-community/](https://nypost.com/2020/05/21/doctor-who-promoted-covid-cocktail-leaves-jewish-community/)
-
-（15）[https://www.youtube.com/watch?v=PE3QfTnIazU&t=1s](https://www.youtube.com/watch?v=PE3QfTnIazU&amp;t=1s)
-
-（16）[https://www.thedesertreview.com/news/dr-brian-tyson-speaks-at-america-s-frontline-doctors-in-washington-dc/article\_4bd9aae0-11fb-11eb-a470-dbd980aa27bd.html](https://www.thedesertreview.com/news/dr-brian-tyson-speaks-at-america-s-frontline-doctors-in-washington-dc/article_4bd9aae0-11fb-11eb-a470-dbd980aa27bd.html)
-
-* * *
-
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
-
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
-
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
 
 0

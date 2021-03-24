@@ -1,75 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【聚焦】西方世界联合起来制裁中共对新疆种族灭绝罪行
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1011189/)
+## 白宫评估阿拉斯加会面是“实质性的”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1011181/)
 
-#### 翻译：文扬
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-#### 校对：猫咖
+编辑上传 水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/C-22-9.jpg)nypost.com
+白宫2021年3月22日的新闻简报透露，阿拉斯加会面“是一次实质性的会议”，“我们期待着与中共国就一系列广泛的问题进行强硬和直接的会谈”。由此推断，“拜习会”在4月份上演将是大概率事件。【1】
 
-#### 编辑：文泓
-![]()![](https://gnews.org/wp-content/uploads/2021/03/13-4.png)
-图片来源：墨尔本雅典娜农场设计组（精灵蓝）
+白宫曾多次透露，是否存在“拜习会面”将取决于对阿拉斯加会面的评估。看了杨、王在阿拉斯加的表演，像文贵先生在第一时间指出的，这是在演戏，是勾兑或正在勾兑中的剧目。
 
-#### 译评：
+现将昨天白宫新闻简报【2】涉及中共国部分摘译，供战友参考、分析。
 
-此篇报道指出，继美国、欧盟、英国、加拿大制裁中共在新疆实施种族灭绝反人类罪行之后，而中共国出台了一系列针对性反制措施，近日澳洲新西兰外长也发表联合声明，声援西方盟国对中共国的制裁，与此同时，澳洲正在研究通过《马格尼茨基法》，为下一步制裁中共反人类罪行做好铺垫。
+问：我能再问一个问题吗？周末的会议–上周，与中共国–
 
-新中国联邦的战友们坚持不懈四年多，我们正在唤醒全世界！今天中共可以在新疆西藏实施种族灭绝，明天它们的暴行一定会蔓延到世界各地。去年香港人民反送中有多少人被失踪？今年缅甸人民反独裁军政府又有多少人被枪杀？一切的一切皆因中共的黑手。西方社会正在不断清醒，一个独裁的超级大国一定是全人类的噩梦。
+普萨基：当然。
 
-#### 译文：
+问：中共国在阿拉斯加的代表团，拜登从那次会面中得到了他想要的东西吗？他对此有什么样的反应？那么，（这次会面）会把两国引向哪里去呢？例如，拜登和习近平现在举行某种双边会晤的可能性是大还是小？你能告诉我们什么吗？
 
-伦敦消息，美国、欧盟、加拿大和英国因中共虐待维吾尔族人而对中国实施制裁，这使西方与北京的紧张关系急剧升级。
+普萨基：嗯，我们期待着与中共国就一系列广泛的问题进行强硬和直接的会谈，而事实正是如此。
 
-西方盟友（欧盟）周一（澳洲东部时间周二）同时宣布对四名新疆高官和中国地区公安局实施旅行禁令和资产冻结，这是自1989年天安门事件以来布鲁塞尔首次对中国实施制裁。
+我知道大家都很关注一些公共表演，或者，你知道，更戏剧化的公开报道，但我可以向你保证，从我们国家安全小组的谈话来看，这是一次实质性的会议，这是一个为期两天的会议。他们涵盖了一系列问题，从我们对人权侵犯的担忧、到对香港、台湾的侵略–我们关心的问题、经济问题–我们对经济和知识产权的担忧。当然，我们也会讨论我们合作的方式。
 
-北京立即回击，对一系列的欧洲议员、智库和学者进行制裁，指责他们散布 “谎言”。
+所以我们在评估我们现在的状况，我们现在就在这里，我希望总统一定会和他的国家安全团队交谈–杰克·沙利文和托尼·布林肯，我们的国务卿和国家安全顾问。在前进的道路上，我们将与盟国和伙伴进行密切磋商，我们将继续与中共国合作，当然，向前看，这符合美国人民的利益。
 
-澳大利亚外交部长玛丽斯.佩恩（Marise Payne）和她的新西兰同行娜娜娅.马胡塔（Nanaia Mahuta）支持制裁，但未追随他们的盟友，尽管他们重申谴责了在新疆有“越来越多关于严重侵犯人权的可信报告”。
+但就下一步而言，安克雷奇（Anchorage）是一个特别的会议，我们没有更多的东西来推断下一步要做什么。
 
-“特别是，有明确的证据表明存在严重侵犯人权的行为，包括限制宗教自由、大规模监控、大规模法外拘留，以及强迫劳动和强迫节育，包括（强制）绝育，”澳大利亚-新西兰联合声明说。
+问： 今天，美国、欧盟和其他国家宣布对中共国实施新的制裁？
 
-澳大利亚和新西兰欢迎加拿大、欧盟、英国和美国在一夜之间宣布的措施。 我们与这些国家一样深切关注，这些关注在澳大利亚和新西兰社区中普遍存在。
+普萨基：是的。
 
-“今天，我们强调透明度和问责制的重要性，并再次呼吁中国允许联合国专家和其他独立观察员有意义地、不受限制地进入新疆。”
+问：关于侵犯人权，在安克雷奇发生的事受到影响到了吗？换言之，如果满足某些条件，美国是否会不参与这一进程了？两者之间有联系吗？
 
-据了解，莫里森政府认为自己不具备制定制裁措施的法律地位，因为与其他国家不同，澳大利亚没有所谓的《马格尼茨基法》, 该法允许锁定（并制裁）个别侵犯人权者。政府计划在今年晚些时候提出立法草案。
+你认为下一步该怎么办？中共国对欧盟进行了报复，你认为会对美国报复吗？如果他们不采取行动改变对这些少数民族的虐待，你还会采取什么制裁措施？
 
-中国驻澳大利亚大使馆批评说，联合声明充分暴露了“澳方根深蒂固的意识形态偏见和抹黑中国的卑劣伎俩，这种企图完全是徒劳的”。
+普萨基：好吧，关于第一个问题，我不知道会有什么联系或者（原）计划的撤回。显然，这是对我们认为的严重侵犯人权行为的反应–显然，欧洲人也有这种感觉–针对新疆少数民族和宗教群体的成员，任何会议都不会改变我们对此的担忧。
 
-在美国国务卿安东尼.布林肯（Antony Blinken）上周刚在阿拉斯加与中共国同行公开争吵后，就飞往布鲁塞尔参加北约峰会，并宣布了这一经协调的跨大西洋声明。
+正如你所指出的，我们与英国、加拿大和欧洲联盟一道采取了行动，他们也对与这些暴行有关的侵犯人权者采取了行动。你知道，这表明我们一直致力于多边合作，促进对人权的尊重，我们继续严重关切中共国在新疆对维吾尔人犯下的反人类罪和种族灭绝罪。
 
-他将寻求将欧洲大陆集结到对中共国更强硬的路线上，周一他对西方大国协调他们的突击制裁的能力表示赞赏。
+但我没有任何东西可以预测你（设想的）未来的制裁。显然，这是上周会面提出的问题，也是几周前拜登与习近平谈话时提出的问题。
 
-欧盟试图在与中共国的关系上走两边，在优先考虑经济关系的同时，也将这个崛起的大国称之为“系统性竞争对手”。
+问：如果中共国不改变态度，美国会怎么做？这算是一种一次性制裁吗？或者在今后的道路上，是否会重新审视这一点，是否有可能实施进一步的制裁？我的意思是，他们（中共国）没有表示任何改变行为的迹象，事实上，他们几乎在加倍展示，他们对这些少数群体没有做错什么。
 
-尽管欧洲方面对中共虐待维吾尔人的言论越来越强硬，但许多人权对话是在秘密的情况下进行的，布鲁塞尔最近还与北京签署了一项新的投资协定。
+普萨基：嗯，很明显，制裁是为了阻止罪行，但我不打算裁决或采取任何行动，在这个时候–甚至不到60天，今天是哪一天？第62天？我甚至不确定–对政府（来说）。
 
-但是，欧盟的语气在周一更加明确，外交政策负责人博雷尔（Josep Borrell）告诉记者，中国的制裁“令人遗憾和不可接受”。
+我可以向你们保证，很明显，这是–再说一遍，我们将与世界各地的伙伴和盟国密切协调，评估下一步的合适的步骤，正如国务卿在本次会议后的讲话中指出的那样，我们确信，中共国正在注意到，我们与盟友和伙伴的合作比过去四年更加密切，我们正集中精力采取措施，投资和改善我们在国内的经济竞争，这些都是我们确信他们能看到的（我们所采取的）措施。
 
-“中国没有改变政策，没有解决我们的合理关切，而是选择视而不见，”博雷尔（Borrell）先生说：“欧盟捍卫人权，对严重侵犯和虐待行为作出反应的决心不会改变，无论它们在何处发生。”
+原文部分：
 
-布林肯先生在一份声明中说，联合制裁“表明我们一直致力于通过多边努力促进对人权的尊重，并揭露那些对暴行负有责任的（中国）政府和共产党。”
+Q：Can I ask a follow-up? The meeting over the weekend — last week, with the Chinese (inaudible)
 
-他们（中共）开始回应这些指控，即中共国当局在新疆的劳教营中关押了超过100万维吾尔人和其他穆斯林少数民族。还存在强奸，强迫绝育以及儿童与家人分离的指控。
+MS. PSAKI:  Sure.
 
-英国外交大臣多米尼克·拉布（Dominic Raab）说：“在新疆广泛侵犯人权的证据不容忽视—包括大规模拘留和监视，酷刑和强迫绝育的报道。”
+Q：the Chinese delegation in Alaska.  Did the President get what he wanted out of that meeting?  Does he have any response to what came from it?  And where does it leave the countries now, going forward?  For instance, is the prospect of some sort of bilateral meeting between President Biden and President Xi now more or less likely?  Is there anything you can give us on that?
 
-“我们正与国际伙伴合作，实施有针对性的制裁，以追究责任人的责任。”
+MS. PSAKI:  Well, we expected tough and direct talks with the PRC on a wide range of issues, and that’s exactly what happened.
 
-中共国发表声明予以回击，称欧盟应“正视其错误的严重性并予以纠正”。
+And I know there has been a lot of focus on some of the public theatrics or, you know, more dramatic public piece, but I can assure you from talking to our national security team that it was a substantive meeting.  It was a two-day meeting.  They covered a range of issues, from our concerns about human rights abuses; to aggression in Hong Kong, Taiwan — our concerns there; economic — our concerns about economic and intellectual property.  And we also, of course, talk about ways we can work together.
 
-“‘欧盟’必须停止在人权问题上对其他国家说教，停止干涉其内政。欧盟必须停止虚伪的双重标准做法。”
+So we’re taking stock of where we are.  This is where we are now.  I expect the President will certainly be talking with his national security team — well, Jake Sullivan and Tony Blinken, our Secretary of State and National Security Advisor who traveled.  And we will have close consultation with allies and partners on the way forward.  We’ll continue to work with China, of course, going forward, where it’s in the interests of the American people.
 
-博雷尔先生回应说，布鲁塞尔希望北京“与欧盟就人权问题进行对话，而不是对抗”。
+But in terms of next steps, Anchorage was a standalone meeting, and we don’t have anything more to determine about what’s next.
 
-新的制裁针对的是新疆生产建设兵团公安局，该局负责管理该地区的安全和治安工作。新疆政界高官朱海仑、王君正、王明山、陈明国等也是被锁定，但新疆高官陈全国却没有。
+Q：And today, the U.S., EU, and other countries announced new sanctions on China —
 
-中共国对欧盟“严重损害中国主权和利益、恶意散布谎言和虚假信息”的十人和四个实体进行制裁报复，包括德国和丹麦的两个智库，德国和瑞典的学者，以及德国、比利时、立陶宛和荷兰的议员。
+MS. PSAKI:  Yeah.
 
-原文链接：
+Q：— with respect to human rights abuses.  Did anything happen — that happened in Anchorage affect that?  In other words, would the U.S. have not participated in that had certain conditions been met?  Is there any link between the two?
 
-[Sharp escalation as China and the West trade blows over Uighurs](https://www.afr.com/world/asia/sharp-escalation-as-china-and-the-west-trade-sanctions-over-uighurs-20210323-p57d40)
+And what next steps do you think — China has retaliated against the EU.  Do you expect U.S. retaliation?  And is there any more sanctions that you would do if they don’t act to change course with respect to the treatment of these minority groups?
+
+MS. PSAKI:  Well, on the first question, I’m not aware of any linkage or plans to pull that back.  Obviously, this was a reaction to what we felt were serious human rights abuses — and, obviously, the Europeans felt this as well — against members of Xinjiang’s ethnic and religious minority groups.  And no meeting would change our concerns related to that.
+
+And we took action, as you noted, in unity with the United Kingdom, Canada, and the European Union, who also acted against human rights abusers in connection with these atrocities.  You know, this demonstrates our ongoing commitment to work multilaterally to advance respect for human rights, and we continue to have grave concerns about China’s crimes against humanity and genocide on Uyghurs in Xinjiang.
+
+But I don’t have anything to predict for you on future sanctions.  Obviously, this is an issue that was raised in this meeting last week and was an issue that was raised by the President in his conversation with President Xi just a few weeks ago.
+
+Q：What will the U.S. do, if anything, if China doesn’t change its approach?  Is this, sort of, a one-stop sanction?  Or down the road, will this be revisited and are further sanctions possible?  I mean, they’ve given no indication that they would change approach; in fact, they have more or less doubled down that they’re doing nothing wrong with respect to these minority groups.
+
+MS. PSAKI:  Well, clearly, sanctions are meant to deter behavior, but I’m not going to rule in or rule out any actions when we’re at — not even day 60.  What day are we at?  Sixty-two?  I’m not even sure — of the administration.
+
+I can assure you that, obviously, this is — again, we will be evaluating what the appropriate next steps are in close coordination with our partners and allies around the world.  And as Secretary of State noted in his comments after this meeting, we are certain that the Chinese are noting that we are working much more closely with our allies and partners than had happened over the last four years, that we are focused on taking steps to invest in and improve our economic competition here at home.  Those are all steps we are certain they’re taking note of.
+
+参考链接：
+
+【1】[https://gnews.org/zh-hans/991643/](https://gnews.org/zh-hans/991643/)
+
+【2】https://www.whitehouse.gov/briefing-room/press-briefings/2021/03/22/press-briefing-by-press-secretary-jen-psaki-march-22-2021/
 
 0
