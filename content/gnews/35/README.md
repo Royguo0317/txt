@@ -1,75 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【重磅】如何彻底终结CCP病毒大流行（二）
-` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1011043/)
+## 彭佩奥再揭中共和WHO掩盖病毒真相的黑幕
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1011224/)
 
-五月花写作组 ｜ 作者：北美教练陪练｜ 编辑、美工、发稿：灭共小宇宙
-![]()![](https://gnews.org/wp-content/uploads/2021/03/如何彻底终结CCP病毒大流行V2.jpg)
-### **往期链接：**
+#### 翻译：Evalu | 责编：人间四月
+![]()![](https://gnews.org/wp-content/uploads/2021/03/capture-14-38.jpg)图片来源：路德社
+据《华盛顿观察家报》2021年3月21日报道，刚卸任的川普内阁国务卿彭佩奥在该报的采访中谈到了在起源于中共国武汉的致命性新冠病毒造成全球大流行中，中共对真相竭尽掩盖，阻止真相的传播并阻碍人们对真相的调查，他对世卫组织与中共合作将发表的关于中共病毒如何起源以及来自武汉实验室将要呈现的证据表示怀疑。
 
-[【重磅】如何彻底终结CCP病毒大流行（一）](https://gnews.org/zh-hans/1010646/)
+关于对世卫组织与中方共同调查这个事件有何看法，彭佩奥认为当这个报告出来后，所有人应该与这些调查人员当面对质，提出一系列问题，告诉大家针对选择对象有什么样的限制，这些人是如何被选出来的，有没有利益冲突，在确立调查范围时，所获得资料的宽度如何？哪些是中共特别规定不允许去查的？调查人员能获得2019年及2020年早期武汉病毒研究所科学家的情况吗？能与科学家们自由谈话吗？能获得真实的原始数据而不是人为改动的二手信息吗？这些问题对这个报告的出台极为重要，否则彭佩奥担心这个报告根本不能反映出真实的被蒸发了的情形，因为他无法相信这些调查人员做了这些调查或者能夠获取完全的信息来揭示武汉病毒最终导致爆发的真实情况。
 
-* * *
+彭佩奥也确认已经在一月中旬国务院解密文件中公布了事实清单。该清单是由国务院主导所作的努力，彭佩奥说他看到这些数据，要确保全世界都能看到这些数据，所以，他和同事们做了三件事，第一，核实了所得到的信息以确保是正确的，不能把那些未经证实的信息公布出来，只有从事实的不同角度确实能理解时才公布；第二，与情报部门联系以确保能夠向公众去公布这些信息而不会损害到信息源或收集方法。第三，把所有信息放在一起形成一个模式，以确保政府国家安全部门所有人都能理解，彭佩奥所要做的事是分享他认为重要的关于病毒的起源以及在武汉病毒所发生的什么样的危险事情。
 
-### 开放羟氯喹为非处方药，就这么简单的事情！
+当时国务院每个人都同意应该尽快把这些准确的信息公布出来，彭佩奥本希望更快公布但这还是化了一段时间去确保事情的准确性。
 
-对抗CCP病毒必须要有正确的方案。我们都知道羟氯喹有效（对预防和轻症患者治疗有效，但对重症无效）。开放羟氯喹为非处方药，多么简单的事情，就是不做。什么原因？“你懂的”！利益链条哇！大药厂要挣钱，他们要挣棺材钱！无良政客、精英医生（尤其是有话语权的，所谓的学术带头人，key opinion leader）可能很多已经被收买。
+关于病毒是否从武汉病毒所不小心泄露，彭佩奥表示有很多事情还不知道，但所有事实都指向病毒来自武汉病毒研究所的释放。很明显，中共病毒是经过了一些改造，功能活性增强，这个工作自2017年在武汉病毒研究所内已经做了相当长的一段时间了，这在生物安全领域是不适当的。有三件事情合在一起，首先，他们一直在研究着该病毒，这是事实，第二，该研究所的生物安全措施不够恰当，第三，来自中共最高层的大量隐瞒，这三个因素都足以说明很有必要去调查清楚。
 
-全世界最早说羟氯喹可以治疗CCP病毒的是路德节目中的莫博士和他的妻子（3）。据闫丽梦博士透露，羟氯喹被使用已有60年的历史，针对病毒对人体所造成的伤害，羟氯喹实际上都有很好的疗效，能有效针对病毒的各种致病机理，是一个可长期服用的安全药物，只要注意遵守安全的服用剂量要求即可。 据她披露，在中共国，达到某些级别的高官都知道羟氯喹对新冠病毒有治疗作用，这些高官和一些军医院的医生可能自己也在服用。但是这些重要资讯并不是所有的中共国人都知道，那些面临高风险的前线医护人员也不知道这一点。至于为什么中共不公布这些信息？闫丽梦博士说：中共不公布病毒来源的真实信息、病毒的信息和它的真实行为模式，不是因为中共可以找到疫苗，它们不想让全世界知道这病毒到底是怎么回事，并拖延真正科学界应对病毒作出的反应。
+彭佩奥还表示，关于武汉病毒研究所，所有这些广泛的生物活动都发生在中共国国内，美国当时已经尽所能去让世界卫生组织标注这个事。他认为所有这些专业的实验室标准都来自于法国，但中共P4实验室还没有达到全球标准，中共仍然在国内搞这种活动，这已经不是第一次中共发生病毒从实验室逃逸的事件，以前看到过SARS就是这个情况。推广西方和美国所用的标准，这是一个挑战，在中共看来，只是投资些钱让人在里面研究而不在乎标准。这是需要全球去推动中共去走正确的路，这也是世卫组织失败的关键地方—-要担负起加强国际卫生规范，而不幸的是，世卫组织已变成了政治机构而不是科学机构。
 
-讲羟氯喹有效就像捅了主流媒体、精英医生们的肺管子一样。福奇（Anthony Fauci）博士，是几届美国总统医学顾问。为了推动病毒大流行，他先是教导美国民众不用带口罩，后来又改口说带应该带口罩，又辩解说开始口罩少，怕民众抢购。民众会和医务人员抢口罩？看看民众疫情期间捐了多少口罩？这真是对善良的美国人民的侮辱！他现在又是拜登总统的防疫顾问，又开始兜售给12岁以下的儿童打疫苗！2020年3月20日福奇博士别有用心地反对用羟氯喹预防和治疗CCP病毒感染。事实上2005年8月22日，美国CDC曾发表过一篇文章：羟氯喹可以预防和治疗SARS冠状病毒感染（4）。但福奇博士对CCP病毒的策略是，黑不提白不提，揣着明白装糊涂。
+有关世卫组织调查团成员之一的彼特 达乍克（Peter Daszak) 是环境卫生联合会的主席，并与武汉病毒研究所合作多年，彭佩奥认为他作为一个与之有关的人会被选中值得提出疑问，所以应该要求他讲清他以前所做的以及他在调查中做了什么。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-24-at-7.03.48-AM.png)福奇（Anthony Fauci）博士，美国国立卫生研究院免疫与传染病主任几届美国总统医学顾问。所谓的学术带头人，key opinion leader
+彭佩奥还强调，从一开始，美国高层疾控中心（CDC）和人类健康服务部(HHS)官员们就试图获得原始病毒样本，但中共方面很可能破坏掉了，如果这是真的，这个数据就永远不会得到，希望有人能把它从中共国悄悄传递出来，或者有人有该病毒的复制品。而其他数据将最终会获得，不管需要多久，但最终会还原出那里所发生的事，彭佩奥很有信心，在那里工作的科学家们会回答这些问题，虽然目前那些人肯定不会被允许与西方人自由接触，但随着时间推移和历史发展，会有这么一天，他们可以找到他们的方式来与世界分享他们所知道的事情，并不只是2019年12月和2020年1月或更早那里所发生的事情，而是之前几年所发生的全部事情，他们所受到来自上级单位医学科学界的政治压力不得不做的对全球带来真实危害的活动。
 
-公众对福奇博士提出质疑。美国医学院联盟、美国传染病学会、美国儿童疾病研究学会、美国CDC等医学界精英大佬们竟然联合起来，联名力挺福奇博士（5-9）。
-
-Vladimir Zelenko医生用羟氯喹治疗了成功治疗了700多个CCP病毒感染的病人后，曾给川普总统写信说明羟氯喹的效果（10）（11）。网上攻击Vladimir Zelenko的文章铺天盖地。 大量Zelenko医生的Youtube 视频被下架。纽约时报攻击说Zelenko医生是个乡下医生，住在一个破烂不堪的房子里，兜售没有FDA通过的羟氯喹（12）。在无数次证明羟氯喹治疗效果后，Zelenko医生说羟氯喹反对者是集体大屠杀的凶手（13）。最终，Zelenko医生被迫离开他居住的小镇（14）。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-24-at-7.04.19-AM.png)Vladimir Zelenko医生
-
-Brian Tyson是治疗CCP病毒病人的一线医生，他表示：CCP病毒是根据某些人的需要弄到美国的瘟疫，羟氯喹效果极其有效，根本无需疫苗（15）（16）。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-24-at-7.04.44-AM.png)Brian Tyson医生
-（未完待续）
+最后，彭佩奥很确定病毒起源于中共国是美国国务院无人质疑的事情。他认为美国不应该花纳税人的钱去支持一个世卫组织，他对拜登政府重新加入世卫组织感到失望，美国不应该让中共来操控世卫组织，中共的行为与他们在国际卫生规范中所保证的完全不一致，而美国，在川普以前的政府，曾经试图改革世卫组织的很多方面，但中共病毒已经证明这种改革完全是失败的。
 
 * * *
 
-### 参考资料：
+点评：刚卸任的彭佩奥国务卿详细谈论了针对中共武汉病毒造成全球大流行的前前后后事件，揭露了中共在生物安全方面的不当行为，私自做病毒功能增强试验，隐瞒疫情和数据，销毁最初病毒样品，以及世卫组织在这件事上行动缓慢，迁就放任中共，随意让与利益相关人员去调查等不负责任的行为，是造成全球大流行的原因。
 
-（3）[https://www.youtube.com/watch?v=m3PQss3oMkg&t=113s](https://www.youtube.com/watch?v=m3PQss3oMkg&amp;t=113s)
-
-（4）[Martin J Vincent](https://pubmed.ncbi.nlm.nih.gov/?term=Vincent+MJ&amp;cauthor_id=16115318), [Eric Bergeron](https://pubmed.ncbi.nlm.nih.gov/?term=Bergeron+E&amp;cauthor_id=16115318), [Suzanne Benjannet](https://pubmed.ncbi.nlm.nih.gov/?term=Benjannet+S&amp;cauthor_id=16115318), [Bobbie R Erickson](https://pubmed.ncbi.nlm.nih.gov/?term=Erickson+BR&amp;cauthor_id=16115318), [Pierre E Rollin](https://pubmed.ncbi.nlm.nih.gov/?term=Rollin+PE&amp;cauthor_id=16115318), [Thomas G Ksiazek](https://pubmed.ncbi.nlm.nih.gov/?term=Ksiazek+TG&amp;cauthor_id=16115318), [Nabil G Seidah](https://pubmed.ncbi.nlm.nih.gov/?term=Seidah+NG&amp;cauthor_id=16115318), [Stuart T Nichol](https://pubmed.ncbi.nlm.nih.gov/?term=Nichol+ST&amp;cauthor_id=16115318). Chloroquine is a potent inhibitor of SARS coronavirus infection and spread. Virol J  2005 Aug 22;2:69. doi: 10.1186/1743-422X-2-69.
-
-（5）[https://www.aamc.org/news-insights/press-releases/aamc-statement-support-anthony-fauci-md](https://www.aamc.org/news-insights/press-releases/aamc-statement-support-anthony-fauci-md)
-
-（6）[https://abcnews.go.com/Politics/doctors-cry-foul-white-house-targets-fauci-cdc/story?id=71773393](https://abcnews.go.com/Politics/doctors-cry-foul-white-house-targets-fauci-cdc/story?id=71773393)
-
-（7）[https://www.societyforpediatricresearch.org/joint-statement-in-support-of-dr-fauci-of-science-and-public-health](https://www.societyforpediatricresearch.org/joint-statement-in-support-of-dr-fauci-of-science-and-public-health)
-
-（8）[https://www.pop.org/cleanvaccine/?gclid=Cj0KCQiArvX\_BRCyARIsAKsnTxPJSh7wudv8jsfiY3RUdpKWDGwLM-brfaypcMZhI5IgcbFVJDJ3gf8aAuq3EALw\_wcB](https://www.pop.org/cleanvaccine/?gclid=Cj0KCQiArvX_BRCyARIsAKsnTxPJSh7wudv8jsfiY3RUdpKWDGwLM-brfaypcMZhI5IgcbFVJDJ3gf8aAuq3EALw_wcB)
-
-（9）[https://www.idsociety.org/news–publications-new/articles/2020/isda-statement-in-support-of-anthony-fauci-m.d.-fidsa](https://www.idsociety.org/news--publications-new/articles/2020/isda-statement-in-support-of-anthony-fauci-m.d.-fidsa)
-
-（10）[https://www.herald.ng/after-successfully-treating-700-covid-19-patients-doctor-pens-letter-to-trump-on-drug-regimen/](https://www.herald.ng/after-successfully-treating-700-covid-19-patients-doctor-pens-letter-to-trump-on-drug-regimen/)
-
-（11）[https://www.youtube.com/watch?v=Fz4Nc967ZVo](https://www.youtube.com/watch?v=Fz4Nc967ZVo)
-
-（12）[https://www.nytimes.com/2020/04/02/technology/doctor-zelenko-coronavirus-drugs.html](https://www.nytimes.com/2020/04/02/technology/doctor-zelenko-coronavirus-drugs.html)
-
-（13）[https://www.israel365news.com/154281/dr-zelenko-vindicated-after-hydroxychloroquine-proven-effective-calls-naysayers-mass-murderers/](https://www.israel365news.com/154281/dr-zelenko-vindicated-after-hydroxychloroquine-proven-effective-calls-naysayers-mass-murderers/)
-
-（14）[https://nypost.com/2020/05/21/doctor-who-promoted-covid-cocktail-leaves-jewish-community/](https://nypost.com/2020/05/21/doctor-who-promoted-covid-cocktail-leaves-jewish-community/)
-
-（15）[https://www.youtube.com/watch?v=PE3QfTnIazU&t=1s](https://www.youtube.com/watch?v=PE3QfTnIazU&amp;t=1s)
-
-（16）[https://www.thedesertreview.com/news/dr-brian-tyson-speaks-at-america-s-frontline-doctors-in-washington-dc/article\_4bd9aae0-11fb-11eb-a470-dbd980aa27bd.html](https://www.thedesertreview.com/news/dr-brian-tyson-speaks-at-america-s-frontline-doctors-in-washington-dc/article_4bd9aae0-11fb-11eb-a470-dbd980aa27bd.html)
-
-* * *
-
-更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
-
-更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
-
-欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+&gt;&gt;原报道链接&gt;&gt;[EXCLUSIVE: Mike Pompeo talks to the *Washington Examiner* about China, WHO, COVID, and the Wuhan lab](https://www.washingtonexaminer.com/news/mike-pompeo-interview-china-who-covid-wuhan-lab)
 
 0

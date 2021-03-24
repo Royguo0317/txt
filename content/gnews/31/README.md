@@ -1,33 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彭佩奥再揭中共和WHO掩盖病毒真相的黑幕
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1011224/)
+## 中美阿拉斯加会谈是披着羊皮的狼和披着羊皮的狼演的一出戏
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1011178/)
 
-#### 翻译：Evalu | 责编：人间四月
-![]()![](https://gnews.org/wp-content/uploads/2021/03/capture-14-38.jpg)图片来源：路德社
-据《华盛顿观察家报》2021年3月21日报道，刚卸任的川普内阁国务卿彭佩奥在该报的采访中谈到了在起源于中共国武汉的致命性新冠病毒造成全球大流行中，中共对真相竭尽掩盖，阻止真相的传播并阻碍人们对真相的调查，他对世卫组织与中共合作将发表的关于中共病毒如何起源以及来自武汉实验室将要呈现的证据表示怀疑。
+简述：在2021年3月21日的盖特中，郭先生第一次披露了中美阿拉斯加会谈的本质 —— 那是一出戏！中共的王毅和杨洁篪是披着狼皮的羊，而美方是披着羊皮的狼，他们之所以这样演是因为，中共可以继续骗14亿老百姓，而美方也可以满足私利，而最后买单的则是中国14亿草根老百姓，不信就等着瞧。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210321-getter1-part2.srt.txt)
 
-关于对世卫组织与中方共同调查这个事件有何看法，彭佩奥认为当这个报告出来后，所有人应该与这些调查人员当面对质，提出一系列问题，告诉大家针对选择对象有什么样的限制，这些人是如何被选出来的，有没有利益冲突，在确立调查范围时，所获得资料的宽度如何？哪些是中共特别规定不允许去查的？调查人员能获得2019年及2020年早期武汉病毒研究所科学家的情况吗？能与科学家们自由谈话吗？能获得真实的原始数据而不是人为改动的二手信息吗？这些问题对这个报告的出台极为重要，否则彭佩奥担心这个报告根本不能反映出真实的被蒸发了的情形，因为他无法相信这些调查人员做了这些调查或者能夠获取完全的信息来揭示武汉病毒最终导致爆发的真实情况。
+**中美阿拉斯加会谈是披着羊皮的狼和披着羊皮的狼演的一出戏**
 
-彭佩奥也确认已经在一月中旬国务院解密文件中公布了事实清单。该清单是由国务院主导所作的努力，彭佩奥说他看到这些数据，要确保全世界都能看到这些数据，所以，他和同事们做了三件事，第一，核实了所得到的信息以确保是正确的，不能把那些未经证实的信息公布出来，只有从事实的不同角度确实能理解时才公布；第二，与情报部门联系以确保能夠向公众去公布这些信息而不会损害到信息源或收集方法。第三，把所有信息放在一起形成一个模式，以确保政府国家安全部门所有人都能理解，彭佩奥所要做的事是分享他认为重要的关于病毒的起源以及在武汉病毒所发生的什么样的危险事情。
+**The US-China Alaska Meeting Is a Show**
 
-当时国务院每个人都同意应该尽快把这些准确的信息公布出来，彭佩奥本希望更快公布但这还是化了一段时间去确保事情的准确性。
+咱这个先不多说，咱再说说更夸张的。这几天都在说的是，所有的阿拉斯加，中美两国会谈，只有咱们一家说这是演戏，没有任何人知道演戏，因为咱知道情报，那不是瞎蒙的，你老蒙的那是永远不可能100%准确的，是吧？只有咱一家说出这是演戏。这几天很多有良知的所谓的媒体人，还有政客们跟七哥开会都快疯了，[问]“为什么 Miles 你能知道这是在演戏呢？”很简单兄弟姐妹们，我说看这个演戏，我给他们形容了一个，我说：“中共国假擀面杖子经济，假的吹牛，我说它就像一个什么？”
 
-关于病毒是否从武汉病毒所不小心泄露，彭佩奥表示有很多事情还不知道，但所有事实都指向病毒来自武汉病毒研究所的释放。很明显，中共病毒是经过了一些改造，功能活性增强，这个工作自2017年在武汉病毒研究所内已经做了相当长的一段时间了，这在生物安全领域是不适当的。有三件事情合在一起，首先，他们一直在研究着该病毒，这是事实，第二，该研究所的生物安全措施不够恰当，第三，来自中共最高层的大量隐瞒，这三个因素都足以说明很有必要去调查清楚。
+Let’s just move on and talk about something more absurd. All that people have been talking about these days was the Alaska meeting between the US and China. We are the only one saying that it was a show. No one else knew about this. It’s because we have the intelligence, so we are not taking a shot in the dark. If you guess blindly, you will never be 100% correct, right? We are the only media who said it was a show. In these days, many so-called media professionals with conscience along with politicians have had meetings with me like crazy, asking “How do you know it was a show, Miles?” It is very simple, brothers and sisters. I said, “Look, this is a show.” Then I made a metaphor, “What do the ‘rolling pin’ (fake) economy of the CCP and their boastings look like?”
 
-彭佩奥还表示，关于武汉病毒研究所，所有这些广泛的生物活动都发生在中共国国内，美国当时已经尽所能去让世界卫生组织标注这个事。他认为所有这些专业的实验室标准都来自于法国，但中共P4实验室还没有达到全球标准，中共仍然在国内搞这种活动，这已经不是第一次中共发生病毒从实验室逃逸的事件，以前看到过SARS就是这个情况。推广西方和美国所用的标准，这是一个挑战，在中共看来，只是投资些钱让人在里面研究而不在乎标准。这是需要全球去推动中共去走正确的路，这也是世卫组织失败的关键地方—-要担负起加强国际卫生规范，而不幸的是，世卫组织已变成了政治机构而不是科学机构。
+我说：你去想想中共国的经济、军事，所有的实力跟美国比，它真的就是一个羊，这没办法。那么美国在世界上军事、政治、经济、技术、影响力，它绝对是个狼。咱用这这两个动物来讲。那么中共国今天为啥敢这么嚣张？中共敢这么嚣张，因为它手里边它绑架到14亿中国人民，还有一个它在美国有蓝金黄，它就是14亿奴隶和蓝金黄手段，所笼络的资源，不就这个吗？是吧？兄弟姐妹们，还有啥可说的，不就这两招儿吗？
 
-有关世卫组织调查团成员之一的彼特 达乍克（Peter Daszak) 是环境卫生联合会的主席，并与武汉病毒研究所合作多年，彭佩奥认为他作为一个与之有关的人会被选中值得提出疑问，所以应该要求他讲清他以前所做的以及他在调查中做了什么。
+I said, think about the economic and military strength of the CCP, when compared to the US, it is like a sheep, with no doubt. Considering the strength and influence of military, politics, economy, and technology, the US is absolutely a wolf. Let’s use these two animals to tell the story. Then, why dare the CCP to be so arrogant? It is because the CCP has kidnapped 1.4 billion Chinese people. Another reason is the BGY plot in the US, using all the resources netted by abusing the 1.4 billion slaves. Right? Brothers and sisters, what else can I say? The CCP only has only these two tricks, right?
 
-彭佩奥还强调，从一开始，美国高层疾控中心（CDC）和人类健康服务部(HHS)官员们就试图获得原始病毒样本，但中共方面很可能破坏掉了，如果这是真的，这个数据就永远不会得到，希望有人能把它从中共国悄悄传递出来，或者有人有该病毒的复制品。而其他数据将最终会获得，不管需要多久，但最终会还原出那里所发生的事，彭佩奥很有信心，在那里工作的科学家们会回答这些问题，虽然目前那些人肯定不会被允许与西方人自由接触，但随着时间推移和历史发展，会有这么一天，他们可以找到他们的方式来与世界分享他们所知道的事情，并不只是2019年12月和2020年1月或更早那里所发生的事情，而是之前几年所发生的全部事情，他们所受到来自上级单位医学科学界的政治压力不得不做的对全球带来真实危害的活动。
+我说那为什么中美阿拉斯加峰会成这样的滑稽的场面？很多欧美人问我：你怎么看这件事情。我说：非常简单，看中共和美国这两个峰会，我有两个比喻。中共所谓的杨娘娘，还有王公公就是一个披着羊皮的羊，披着羊皮的羊它还是羊，咋呼得很厉害，左顾右盼、前看后看，在那又蹬腿又挠地的，“啪啪啪”它把它自己当成了狼了。
 
-最后，彭佩奥很确定病毒起源于中共国是美国国务院无人质疑的事情。他认为美国不应该花纳税人的钱去支持一个世卫组织，他对拜登政府重新加入世卫组织感到失望，美国不应该让中共来操控世卫组织，中共的行为与他们在国际卫生规范中所保证的完全不一致，而美国，在川普以前的政府，曾经试图改革世卫组织的很多方面，但中共病毒已经证明这种改革完全是失败的。
+I then asked, “Why did the US-China Alaska meeting have such an absurd scene?” Many people from Europe and America asked me, “What’s your take on this?” I said, “It was very simple. I can use two metaphors to describe the meetings between the CCP and the US. The so-called Empress Yang (Jiechi Yang) and Eunuch Wang (Yi Wang) were sheep covered with the skin of a wolf. Sheep in wolf’s clothing are still sheep no matter how much fuss they make, how they check around, look back and forth, kick and scratch the ground, or how much they believe they are a wolf.”
+
+我说美国那是什么呢？是披着羊皮的狼，是披着羊皮的狼，完了。他为啥？它真把自己当羊了。为什么美国这个狼要把自己披着羊皮呢？因为美国有弱点，美国不敢当狼，因为这个羊跟它之间有默契，要让它当一次羊，因为回到中共国去好骗那14亿的奴隶。咱俩演戏，然后我这个羊，穿着羊皮的咋呼的羊，要开始给你多送点羊过来，或者在美国弄点狼肉吃吃。就这么简单。
+
+I continued, “Then what was America like? It was a wolf in sheep’s clothing. Period. Why? It indeed treated itself as a sheep. Why was America the wolf willing to put on sheep’s clothing? It’s because others got goods on America, so that it didn’t have the courage to be a wolf. It’s because the sheep had a tacit agreement with it and asked it to pretend to be a sheep for once, in order to cheat the 1.4 billion slaves in Communist China. So, if you America agreed to put on a show with me, I, the noisy sheep in wolf’s clothing would send more sheep to you or even some other wolf’s meat for you America to eat.”
+
+我说：最终，一定要记住，美国狼还会回到本质，美国的狼还会是披着狼皮的狼，中共国还是披着羊皮的羊，或者被扒了皮的羊，就这么简单。他们都爱笑死了。
+
+“Simple as this,” I said, “ultimately, please remember, the America wolf will go back to its nature. The American wolf will turn back to a wolf in wolf’s skin, and the CCP sheep will still be a sheep in sheep’s skin or naked with its skin peeled. That’s it.” They all laughed.
+
+不管你咋咋呼，你都是披着羊皮的羊。所以说，我说：他越咋呼越好，他对香港对台湾以及到非洲、中东，玩的这一切手段都是政治手段，一切都是为内政，一切都是内政。好好看看第二次世界大战，希特勒，当时的法国、英国，包括日本，很多重大的影响国家命运的决策，当时都和内政，内部政治有绝对的关系，这全世界的政治都是一家的，都是流氓。但是中共国不是流氓，它是真正的黑社会，它是绑架14亿中国人民的，它是以14亿人民作为筹码跟全世界讲数的。美国人愿意，知道自己是狼，还披着羊皮，就是更为了获取个人获得更多的羊肉，为个人获得更多的羊肉，和未来吃更多的羊崽子，甚至吃个羊胎盘啥的，是吧？就这么简单。
+
+No matter how loud you voiced, you are still a sheep in sheep’s skin. So, I said, “It is better if they keep making more fuss. All means the CCP has used toward Hong Kong, Taiwan, Africa, and the Middle East are political tactics for its domestic politics. Please take a good look at WWII. Many critical decisions that influenced a nation’s fate made by Hitler, France, the UK, or Japan at that time were absolutely connected with their domestic politics. All the world’s politicians belong to the same family – they are all rogues. Yet, the CCP is not a rogue, rather, it is a true gangsterdom. It has kidnapped 1.4 billion Chinese and used the 1.4 billion Chinese as leverage to bargain with the world. The Americans were willing to put on sheep’s clothing, even though they knew they were wolves, because they wanted to get more sheep meat for their personal interest and get more lambs for the future, or even get some sheep placentas to eat, right? Simple as this.”
+
+但是美国这次是被羞辱的，中共这次是咋咋呼呼的解决了内部的上海邦和习大神的问题，更重要的事情最后是剪韭菜，最后买单的是咱中国老百姓。两边，不管是狼披羊皮，还是羊披羊皮，但最后买单的就咱中国老百姓，草根。就这么简单，信不信？不信拉倒。
+
+America was humiliated this time, and the noisy CCP has solved its internal conflict between the Shanghai Gang and God Xi. More importantly, the CCP could reach its ultimate goal of harvesting the chives (referring to robbing the ordinary Chinese) and having the ordinary Chinese to pay the bills in the end. No matter to the wolf in sheep’s clothing or the sheep in sheep’s skins, in the end, it is the ordinary Chinese who will pay for the bills, the grassroots. Simple as this. Do you believe me? It doesn’t matter if you don’t.
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60575c13d1608d609ea69e30](https://gtv.org/getter/60575c13d1608d609ea69e30)  (1:59-2:54, 3:07-7:21)
+鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/998813/](https://www.gnews.org/zh-hans/998813/)
 
 * * *
 
-点评：刚卸任的彭佩奥国务卿详细谈论了针对中共武汉病毒造成全球大流行的前前后后事件，揭露了中共在生物安全方面的不当行为，私自做病毒功能增强试验，隐瞒疫情和数据，销毁最初病毒样品，以及世卫组织在这件事上行动缓慢，迁就放任中共，随意让与利益相关人员去调查等不负责任的行为，是造成全球大流行的原因。
-
-&gt;&gt;原报道链接&gt;&gt;[EXCLUSIVE: Mike Pompeo talks to the *Washington Examiner* about China, WHO, COVID, and the Wuhan lab](https://www.washingtonexaminer.com/news/mike-pompeo-interview-china-who-covid-wuhan-lab)
+翻译：【7PawBear】校对：【Isaiah4031】【BruhM】字幕：【Rock小哥】视频解码：【恒久忍耐】技术支持：【Rock小哥】推广：【V%】【TINALS】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
