@@ -1,54 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇控制下的EcoHealth因为隐瞒资金去向而被起诉
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1012143/)
+## 中共在玩三国杀还是玩火自焚？
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1012211/)
 
-作者： 滴水穿石 编辑：Candy
+#### 撰文作者：铜豌豆
 
-3月15日，美国＂生态健康联盟＂ 被起诉，因何缘故？
+《圣经》马修书24第6句和第7句：“你会听到战争以及关于战争的传言。听我说，别害怕，因为这些事情必须发生，但是还没有到终结的时代。国家与国家会起来对抗，王国会对抗王国，在不同的地方会有饥荒和地震。”
+![]()![](https://gnews.org/wp-content/uploads/2021/03/22032021.png)
+3月22日，中共国务委员兼外长王毅在广西桂林与俄罗斯外长拉夫罗夫进行了会晤1。对杨洁篪在阿拉斯会谈的撒泼叫嚣刚刚大肆报道后，中共外宣难以控制精神病人般的歇斯底里，又开始热情洋溢的对中俄外长级别会晤大加赞赏了：中共特别强调，俄罗斯外交部长拉夫罗夫在莫斯科接受中共驻俄记者联合线上采访时表示，中共国对于俄罗斯来说是真正的战略伙伴2。中共外交部发言人华春莹在3月22日在例行记者会3上也明确表示 “世界越是动荡不宁，中俄合作越要坚定前行”。
 
-2015年开始，伪医学家福奇博士控制下的非政府机构 “生态健康联盟”（EcoHealth Alliance），陆续向中共武汉病毒实验室提供370万美元资助经费，以支持武汉病毒研究所对动物進行冠狀病毒的实验。
+中共跟俄罗斯的积极结盟，完全是遵循了中共军方对于国际局势的判断以及既定路线的规划。3月8日昆仑策网站的一篇文章4，已经明确表示了与俄罗斯的战略伙伴关系是战略打击美国、欧洲、日本的关键因素，中共把同俄罗斯的同盟关系视为摆脱被动、冲破包围、最终战胜美国的要义。
 
-＂生态健康联盟＂组织会长皮特.斯扎克（Pete Daszak) 和中共武汉病毒研究所的石正丽有相当长的密切合作关系。他为什么支持武汉病毒研究所的动物冠状病毒的实验研究呢？因为可以名正言顺在武汉病毒研究所获得多样动物冠状病毒的样本，再进行人类的疫苗研发成果推向其控制的医药市场，在全球市场获得的利润胜于制毒贩毒利益所得。
+中共断定俄罗斯除了出售石油能源和出售军用武器装备外没有什么支柱产业，在美欧日严厉经济制裁的情况下，在国际能源价格波动的情况下，俄罗斯想要恢复昔日大国荣光的愿望将长期看不到希望，注定会投奔中共的怀抱。然而事实是，与其说俄罗斯投奔中共，不如说美国拜登政府逼迫本来有强烈从良愿望的俄罗斯重新走上了匪徒的路。
 
-武汉病毒研究所的外国执照，有效时间直到2024年1月31号。所以他们资助武汉病毒研究所共享资研究成果，然后通过完美犯罪让人群感染。再假扮成天使, 以其病原体研制成的疫苗和药品类用于患者。美其名是＂医治＂，实为控制人类，从而达到其全球命运共同体归附于共产主义中共的邪恶目的d。这些龌龊的政客与伪科学家为了获取他们与红魔共舞的最高利益，成为了金钱的俘虏，同时也与共产红魔奔向地狱之门。
+3月16日拜登总统在接受左媒ABC主持人乔治·史蒂凡诺普鲁斯（George Stephanopoulos）的采访时称，他认为俄罗斯总统弗拉迪米尔·普京（Vladimir Putin）是个[杀人犯](https://abcnews.go.com/Politics/transcript-abc-news-george-stephanopoulos-interviews-president-joe/story?id=76509669)。莫斯科当地时间3月18日普京总统随即表示想邀请拜登总统进行一次开诚布公的讨论，最好定在3月19日（周五）或者在3月22日（周一）举行。然而，白宫发言人珍·沙琪（Jen Psaki）美东时间3月18日（周四）答记者时称，拜登总统[很忙](https://www.foxnews.com/politics/white-house-biden-busy-putin-live-chat)，不会会见普京总统。
 
-White Coat Waste Project 起诉EcoHealth，是为了保护美国纳税人的利益，也为了唤起美国民众的思考。为什么他们用自己缴纳的税金去邦助中共做恶，中共又反过来以完美犯罪的形式害死了美国几十万人？
+对于拜登政府的反应，普京政府将外交人员召回莫斯科，冻结俄罗斯与美国关系是[有可能](https://www.rt.com/russia/518573-biden-putin-killer-comment-escalation/)的。从登记注册了的俄罗斯大外宣媒体RT的表态来看，俄罗斯对于拜登政府的此番举动反应强硬，明确[表示](https://www.rt.com/op-ed/518837-biden-assault-china-russia/)拜登政府的举动迫使俄罗斯将跟中共合作，于是有了22日和23日的中俄外长桂林会晤。俄罗斯是否在玩 “三国演义”，目前还不得而知，然而从俄罗斯外长邀约中共一道出手[摧毁](https://www.rt.com/russia/518818-lavrov-china-dollar-finances/)美元货币体系的行为来看，并不是闹着玩儿的。
 
-惩恶扬善，正义之举。
+从美国拜登政府的内部动作来看，中情局CIA公布的关于分析国外势力对于美国2020年总统大选的干预情况的[解密报告](https://www.odni.gov/files/ODNI/documents/assessments/ICA-declass-16MAR21.pdf)中，中共依然被放了一马，而俄罗斯头上被扣的“干预”帽子并没有被完全摘下来，这意味着拜登政府对于俄罗斯的态度会保持继续强硬，从而实质上，会进一步把中共国和俄罗斯撮合到一起。
 
-2021年3月23日
+这对于中国老百姓来说将会是个巨大的灾难。纵观真正的历史，共产党在中国这片土地上的起家史中就充满了各种汉奸卖国行为。无论是在对待日本军国主义侵略问题上，还是在对待俄罗斯历史遗留的侵占中国领土的问题上，中共都是一贯的割地求荣。为了一党私利以及在中国这片土地上百分之百的统治权和控制权，中共不惜出卖百姓各种权益甚至生命，更不用说出卖领土了。中共大外宣所吹嘘的20年前2001年跟俄罗斯在莫斯科签署的《中俄睦邻友好合作条约》就是把[海参威](https://www.ntdtv.com/gb/2018/09/13/a1391226.html)出卖给了俄罗斯，这是真正的丧权辱国的卖国条约。20年后的今天，为了拉拢俄罗斯，这一次中共打算把中国的哪一块土地再割让出去？！
 
-参考源：
+最无耻、最残忍、最邪恶、对中国和中国老百姓最惨无人道的就是中国共产党。任何为了利益跟中共站在一起的，世世代代都将被视为肮脏、龌龊的流氓，其人民也永远不可能坦然面对上帝的最终判决。世界上的每一个人，每一个政权，无论再强大、再无耻，都不可能逃脱最终的审判。终结的时代正在向这个世界走来，谁也挡不住。
 
+**引用《圣经》（The New American Standard Bible）Matthew 24：6-7**
 
-
-> EcoHealth gets sued for concealing the money trail. 
-> 
-> The discovery documents in this should be good reading. [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVIDー19](https://twitter.com/hashtag/COVID%E3%83%BC19?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/iGjzV1bbeM](https://t.co/iGjzV1bbeM)
-> — DrQuay (@quay\_dr) [March 23, 2021](https://twitter.com/quay_dr/status/1374175691231485952?ref_src=twsrc%5Etfw)
-
+- You will be hearing of wars and rumors of wars. See that you are not frightened, for those things must take place, but that is not yet the end. For nation will rise against nation, and kingdom against kingdom, and in various places there will be famines and earthquakes.
 
 
-【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+**引用的中共外宣消息**
 
-作者其他文章
-
-
-
-> [揭底伪科学家福奇与其控制的国家卫生研究院（NIH)资助中共武毒所之背后的利益链](https://gnews.org/zh-hans/933169/)
-
+1. 中共国新华社网站：*[王毅会见俄罗斯外长拉夫罗夫](http://www.xinhuanet.com/world/2021-03/22/c_1127242473.htm)*
+2. 中共国环球网：*[俄罗斯外交部长拉夫罗夫：中国是俄罗斯真正的战略伙伴](https://oversea.huanqiu.com/article/42PI06YDnX3)*
+3. 中共国中新网：*[中方谈俄罗斯外长访华：世界越是动荡不宁，中俄合作越要坚定前行](http://www.chinanews.com/gn/2021/03-22/9437856.shtml)*
+4. 中共国昆仑策网站：*[李光满：生死存亡！中国的全局研判和战略选择](https://www.kunlunce.com/gcjy/quanqiuzhanlue/2021-03-08/150851.html)*
 
 
-**欢迎战友加入旧金山金喜农场**
+（本文仅代表作者个人观点，与Gnews网站无关）
 
-[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
-
-[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
-
-[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
-
-[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
+**其他工作人员**
+*收稿审核：Nena
+责任编辑：铜豌豆
+图片设计：铜豌豆
+排版发布：铜豌豆*
 
 0

@@ -1,82 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 视频：种族主义是种族主义者的问题，也是产生种族主义的社会问题
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1011799/)
+## 揭开中共国海关对放射性超标玛瑙石退运的真相
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1011829/)
 
-内容：
+撰稿: 张文谦
 
-I am a descendant of slaves.
+据中华人民共和国海关总署办公厅在2021年3月12日报道, 新闻内容如下：
+近日 深圳海关所属大鹏海关对玛瑙石等27.8吨放射性超标的矿石出具责令退运通知书。目前，该批货物已经退运出境。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1616554925.png)图片来自网络
+大鹏海关关员对一柜进口磷灰石、堇青石、玛瑙石等27.8吨矿石进行常规石材放射性检测时，手持式辐射探测仪上频繁闪动，该批矿石辐射剂量率达到3.2μSv/h。完全拆开包装袋并经反复测量，辐射剂量率均远高于检验管理规定的限制水平和标准。现场关员立即启动辐射超标处置预案，通知码头经营公司将货柜调离至隔离处置区，同时抽样送实验室进行核素分析。结果显示放射性指标均严重超出了我国强制性技术规范要求，属于天然放射性超标。
 
-我是一个奴隶的后裔
+最后海关还特别提醒: 在宝石学中，宝石一般分为贵重宝石和半宝石两类，半宝石按矿物或岩石的名称有玛瑙、水晶、青金石等，加工后可以做成装饰品或工艺品，其中饰品常见的有手串、项链等。如果半宝石放射性超标，而携带者在不知情的情况下长期佩戴，就会受到放射性损伤，影响身体健康。
 
-My great-grandmother, Mary Thomas, born in 1865,
+笔者对以上新闻报道的评论如下：
+一、共产党真没有美金了，早在去年就有听说中共国要求海关加强对进口的商品加强查验，加强对固体废弃物的罚款，据海关人员说单票打底罚款RMB30万起。笔者就在思考共产党会用什么招来阻止玛瑙石原石的进口，既然是天然的产品，应当不可能被用固体废弃物来阻止进口，万万没有想到共产党竟然想到会以放射性超标为由来阻止玛瑙石原石的进口，减少外汇的支出，共产党真是太邪恶了。
 
-我的曾祖母，玛丽·托马斯，生于1865年
+二、国内经济不好，共产党开始鼓吹宝石和半宝石有放射性超标，长期佩戴宝石半宝石会受到放射性损伤，从而影响身体健康。欺骗老百姓不要购买宝石和半宝石等奢侈品。
 
-Was the child of a slave – this is just three generations back from me.
+三、共产党要拿这些进口宝石和半宝石原材料的企业主开刀了，因为共产党知道这些企业主口袋里还是有点钱的，虽然是要求退运出境，这些涉事的企业主肯定难逃被大金额的罚款。少则十几万人民币，多则要大几十万人民币。
 
-是一名儿童奴隶 – 到我这儿是三代人
+四、共产党连买粮食外汇都没有了，怎么可能允许老百姓再消耗这紧缺的美金来购买他们认为没有用的商品，共产党完全不顾老百姓的死活，这两年就因国内经济差，辽宁省阜新的很多原来从事玛瑙石产品生产的大小工厂都因经济差，玛瑙成品卖不动而改行做农业和养殖业。
 
-I grew up in the segregated South, I was bused to a segregated school
+（本文纯属个人观点）
+因怕CCP删掉新闻,笔者截图为证.
 
-我在种族隔离的南方长大，我被送往一所隔离的学校上学
+新闻链接地址:
 
-And on weekends the Ku Klux Klan burned crosses on lawns in our neighborhood.
+[https://baijiahao.baidu.com/s?id=1694012072923750251&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1694012072923750251&amp;wfr=spider&amp;for=pc)
 
-周末，3K党(Ku Klux Klan)在我们的邻里附近的草坪上烧了十字架
-
-When I was in high school, I was asked by a little girl for whom I babysat,
-
-当我上高中的时候，有一个小女孩问我，我是谁的保姆
-
-If I was an n-word, because her dad had used that word for me.
-
-如果我是黑奴，因为她的父亲曾用过这个词形容我
-
-I know the ugly face of racism
-
-我知道种族主义的丑陋嘴脸
-
-I lived racism. I have experienced racism.  And I survived racism.
-
-我在种族主义之中生活过。 我经历过种族主义。而且我在种族主义中幸存下来
-
-And through this process, I learned a simple truth
-
-通过这个过程，我学到了一个简单的道理
-
-Racism is not the problem of the person who experiences it.
-
-种族主义不是经历它的人的问题
-
-Those of us who experience racism cannot and should not, internalize it.
-
-我们当中那些经历种族主义的人们不能也不应将其内部化
-
-Despite the impact it can have on our everyday lives.
-
-尽管它会影响我们的日常生活
-
-We must face it down every time, no matter whom it’s directed towards.
-
-无论它是针对谁的，我们每次都必须面对它
-
-Racism is the problem of the racist, and it is the problem of the society that produces the racist-
-
-种族主义是种族主义者的问题，也是产生种族主义的社会问题
-
-and in today’s world, that is every society.
-
-在当今世界，那是每个社会的问题
-
-———————————————–
-
-英听校：    康州盘古农场 – Layka
-翻译：       康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发文：康州盘古农场-轰炸机
-
-0
+审稿：文筝 编辑：五饼二鱼
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-澳喜Logo-2.jpeg)
++1
