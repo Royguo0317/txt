@@ -1,85 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210323（图片新闻）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1008616/)
+## 【灭共头条】中美闭门会谈底线曝光 新中国联邦提前化解潜在危机
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1009790/)
 
-- 作者：2020喜马拉雅
-- 封面：透明的遮羞布
+#### 撰稿：MIYA【㊙️翻Gnews原创组】
+责编：萌萌的朋克
+![]()![](https://gnews.org/wp-content/uploads/2021/03/NFSC-11.jpg)图片来源：GNEWS
+为期两天的美中高层对话已结束，中方代表在会晤中彰显出的 “战狼外交”气势，一时间激发了“强国情绪”高涨的民意。杨洁篪在这场全球瞩目的中美对话中对比两国制度，与美方代表首先提出的关于香港、新疆和台湾议题相比，看似突兀，却自有中共一贯的险恶用心。
 
+回顾中美对话中的首场会议上，杨洁篪批评美国的民主制度没有凝聚力，相较而言，他称 “中（共）国领导层受到中国人民的广泛支持”。中方代表刻意营造出中共代表中国人民在美国“扬眉吐气”的“剧情”骗来了墙内炽烈又荒唐的“民意“。足以见得，中共靠防火墙成功绑架了墙内的14亿人民，再一次将不明真相的中国人民狠狠地愚弄了一把。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+中共官媒新浪网3月21日的报道中披露了中美闭门会谈的底线，中方强调，中共的执政地位和制度安全不容损害，这是“不可触碰的红线”，中方敦促美方“消除上届政府对华错误政策影响”，并声称共产党的执政地位是历史的选择、人民的选择，党的核心领袖地位，得到14亿中国人的衷心拥护。
 
-**西班牙2021年3月23日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
+中方极为罕见地在中美对话中大篇幅谈及中共的执政，并要求在拜登政府时期消除以往的错误，这似乎与川普政府官员不断加大对中共的抨击，把“中共”和“中国人民”区别开来有关。尤其是以前国务卿蓬佩奥为代表的美国政要已明确表示，“美中冲突只是美国与中共的冲突”，认定病毒、新疆、香港和台湾问题归根结底是中共作恶多端的结果，14亿中国人民也是最大的受害者。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2000.jpg)
+习近平在去年9月3日纪念抗日战争胜利75周年之际，提出五个“中国人民都绝不答应”，其中包括“任何人、任何势力企图把中共和中国人民割裂开来、对立起来，中国人民都绝不答应”。可想而知，爆料革命和新中国联邦成功将中共与中国、中国人民彻底分开，精准地打击到了中共的要害。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/6d651d1d-8502-4d77-bdb7-a35048108497-6.jpg)
+随着病毒是中共发动的生物超限战的真相呼之欲出，中共终于等到与拜登政府对话的时刻，借此机会对内愚弄中国人民，稳定已岌岌可危的政权，同时对外绑架中国人民承担与全世界为敌的危机。爆料革命和新中国联邦人揭露病毒来源真相，推动中共不等于中国，不等于中国人民，拒绝共产党的代表，相当于化解了一场全球因病毒追责中共而波及中国同胞的反华浪潮。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ce556ab0-8b32-4f14-bb5c-59073ab1c851-5.jpg)
+参考链接：
+[中方敦促美方消除上届政府对华错误政策影响](http://finance.sina.com.cn/china/2021-03-21/doc-ikkntiam5870994.shtml)
+[五个”必须”、五个”绝不答应”……习近平最新讲话照亮前路](http://cpc.people.com.cn/n1/2020/0904/c164113-31848883.html)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b9a2badc-7278-45ac-bd3d-10bbbd535241.jpg)
+（本文仅代表作者个人观点）
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3d137245-0184-4129-ac2b-f092bd97055b-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/fc03cbcd-0a17-4214-9c28-c5e061dd0f2c-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d6021b20-0d11-4578-b28e-3137b1b2b5da.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/fbf4ffd6-442d-40f6-a02a-81cf269530b6-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/70fd7cc5-0e41-4b0a-add9-97c62eeacb0e-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/38446eb9-5aa3-462d-9153-5499c036410e.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/7bfb011f-73a7-4349-8425-5e65e53e01b2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/066d7600-601b-4901-9ce8-4e20bf5d2f76.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d0dd968d-e34e-42b1-8a95-818957b313c9.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/017bf42f-7168-4219-874a-3d8e977bad5e-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/26361718-cf4d-4aeb-8269-e2d25eb3cc9f.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e8324af7-3521-46e9-aec8-6533a83d0b73-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4424b8f3-5861-4a37-bd18-cfbcc01826b7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/eac22a79-294e-4b9a-8eae-17217d893593-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/aadf809d-67c5-4d6c-b76d-8a2bfcb32aa5-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0ce7aef8-f476-448f-9dcc-a4d176916833.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/04660500-2c9e-40bc-af55-e10063148825.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/70db36c5-2845-4e2c-a570-e8e733d3e31b.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1b4019bd-4d2b-4208-9e18-39dff74f49fd.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/94e81d93-c9d4-486b-9d5d-ec1ca28d468f-5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cc88646a-188b-4414-84a3-6a88886b7982.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/27763c73-4c16-4b6e-b7b8-4679089c7d49.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/f4781187-0147-440d-95a1-2556ad9695a5-3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2b226ca3-4c70-4187-9ec7-86b792e8e74c.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cacc00f8-d76a-4fbb-b53e-6d2c357d5b21.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ad03cda7-1f1b-49fd-af9f-dd47ded66671.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/42bd27b4-725d-402f-9d50-bee58edc00f9-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3b7a1a1a-6dbe-424c-a5d4-d457a4e858a1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/de528ae9-b853-4307-84f7-f00d5a2885de.jpg)
-
-发稿：Ranting
-
-本文观点均来自于作者，与GNEWS无关
-
-0
++1

@@ -1,27 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [文贵先生盖特]摘录: 3.21未来打赏绝对史诗级 (2)
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1008808/)
+## 【重磅】如何彻底终结CCP病毒大流行（二）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1011043/)
 
-编辑：皮卡丘     校对：木子
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/image001-77.png)
-**未来****打赏绝对史诗级**
+五月花写作组 ｜ 作者：北美教练陪练｜ 编辑、美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/03/如何彻底终结CCP病毒大流行V2.jpg)
+### **往期链接：**
 
-**有本事、有能力，请在****GNEWSGTV****上做好准备**
+[【重磅】如何彻底终结CCP病毒大流行（一）](https://gnews.org/zh-hans/1010646/)
 
-尊敬的战友们好，很多战友给我发信息关于最近咱们GTV这些节目的问题，还有GNEWS节目的未来和走向的问题。非常的感谢，我想给战友说的事情是希望战友们认认真真的准备一下。如果你没有一个非常好的工作，让你足够让你有信仰、有理想，还能赚钱的工作的话，我建议你们认真的想一想，好好学学GTV的网络版，还有APP版，包括安卓版，好好的使用OBS。大家会看到像昨天玛莎和郝海东先生、叶钊颖妹妹，长岛哥做的真人真事节目引起了巨大的反响。我们的七芒星节目我是英雄，唐萍妹妹威廉王搞节目绝对影响巨大。共产党是非常害怕的，像这样的节目。那另外一个像我们现在每周末联盟委员会关于情况的报告的工作汇报的节目，也可以说每个战友都要看的，它是关乎自己的利益和未来和信仰的问题。另外一个就是说咱们节目现在是没有广告费，所以说大家是无利可图。大家记住，当有一个事儿老在那儿无利可图的时候，你就会想到如果他能活下去，活得还好的话，一定会有大事发生，这是我思考事情的逻辑。当一个事儿，天天在那会儿跟你小钱小钱儿的，这种事儿一定要小心了，因为这可能是酝酿了另外一个要你大钱的阴谋。
+* * *
 
-这是为什么国内老是有e租宝和各种P2P骗局，因为咱们都贪小便宜，都不要先付出，都要先得到，这就是贪小便宜吃大亏。GTV是战友们的一个赚钱和实现信仰、追求理想的平台，他是不一样的。现在我们要让更多的战友，不但你要追求信仰和理想的路上体面富有的去追求信仰和理想，还能让你过上体面的生活，更重要的事情还得养家。什么人都可以，不用投资，你也可以在这儿发财。好好在GNEWS，GTV上你们做好准备。我会告诉两个月以后，GTV、GNEWS将大面积的开始打赏，GCOIN、GDOLLAR，包括信用卡打赏，还有GFASHION的产品打赏。
+### 开放羟氯喹为非处方药，就这么简单的事情！
 
-大家现在做的是要做群体节目，要做点有质量的、实际的节目，不能老搞talk show一个人在那儿讲。关键是你一个人讲，有些人不一定信，不一定听。
+对抗CCP病毒必须要有正确的方案。我们都知道羟氯喹有效（对预防和轻症患者治疗有效，但对重症无效）。开放羟氯喹为非处方药，多么简单的事情，就是不做。什么原因？“你懂的”！利益链条哇！大药厂要挣钱，他们要挣棺材钱！无良政客、精英医生（尤其是有话语权的，所谓的学术带头人，key opinion leader）可能很多已经被收买。
 
-我想说的是啥，兄弟姐妹，接下来GCOIN、GDOLLAR、打赏，绝对是史诗级的。所有这些全部上线以后，我们将开始英语化、国际化。在这之前咱是做不到的，我们要把它做得好，做得到，要具备功能。你打开客厅，你迎接客人，你别客厅里边灯也不亮，沙发一坐咯吱咯吱响。这厨房也不冒烟，打火也不灵。咱现在最起码来了像那么回事儿，咱们打开咱们的客厅，能接待世界上各种宗教、种族、肤色、语言的人。
+全世界最早说羟氯喹可以治疗CCP病毒的是路德节目中的莫博士和他的妻子（3）。据闫丽梦博士透露，羟氯喹被使用已有60年的历史，针对病毒对人体所造成的伤害，羟氯喹实际上都有很好的疗效，能有效针对病毒的各种致病机理，是一个可长期服用的安全药物，只要注意遵守安全的服用剂量要求即可。 据她披露，在中共国，达到某些级别的高官都知道羟氯喹对新冠病毒有治疗作用，这些高官和一些军医院的医生可能自己也在服用。但是这些重要资讯并不是所有的中共国人都知道，那些面临高风险的前线医护人员也不知道这一点。至于为什么中共不公布这些信息？闫丽梦博士说：中共不公布病毒来源的真实信息、病毒的信息和它的真实行为模式，不是因为中共可以找到疫苗，它们不想让全世界知道这病毒到底是怎么回事，并拖延真正科学界应对病毒作出的反应。
 
-到那个时候你们就会看到，就像十几年前的google和youtube，七八年前的facebook一样，你们可以看到，而且会超过他们。接下来你们会看到所有的一切都是万象更新，完全不同。所以说我现在给兄弟姐妹们说要做好准备，我也做好准备。要把我穿的很多的衣服，甚至我曾经拥有的车辆，再一高兴弄不好把飞机什么，咱去也可以打赏。我们现在就一起研究未来就是可能在打赏当中就会买本田的，还有塞斯纳的私人飞机作为最后的中奖。最新款的车，未来我们也可以买各种那种快艇放到上面去。大家要有本事、有能力，请在GNEWS,GTV上做好准备。平台未来的打赏绝对是史无前例的，就像头一段GCLUB抽奖一样，改变了多少人，抽到了十万块现金或者抽到了移民的指标，还多少人抽到奖？抽到了宝马。我们GNEWS,GTV，可能每周都要有奖，每个月都有奖，每个季度有大奖，那每年肯定有大奖。这就我给大家说的。所以很多战友们的建议我都收到了，非常感谢。相信咱们的那还真正的招还没出来呢。
+讲羟氯喹有效就像捅了主流媒体、精英医生们的肺管子一样。福奇（Anthony Fauci）博士，是几届美国总统医学顾问。为了推动病毒大流行，他先是教导美国民众不用带口罩，后来又改口说带应该带口罩，又辩解说开始口罩少，怕民众抢购。民众会和医务人员抢口罩？看看民众疫情期间捐了多少口罩？这真是对善良的美国人民的侮辱！他现在又是拜登总统的防疫顾问，又开始兜售给12岁以下的儿童打疫苗！2020年3月20日福奇博士别有用心地反对用羟氯喹预防和治疗CCP病毒感染。事实上2005年8月22日，美国CDC曾发表过一篇文章：羟氯喹可以预防和治疗SARS冠状病毒感染（4）。但福奇博士对CCP病毒的策略是，黑不提白不提，揣着明白装糊涂。
 
-**如何让咱们战友过上体面、有尊严、富有的生活，这是我们灭共的核武器**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-24-at-7.03.48-AM.png)福奇（Anthony Fauci）博士，美国国立卫生研究院免疫与传染病主任几届美国总统医学顾问。所谓的学术带头人，key opinion leader
 
-这几天这弄一个大事儿，得开六十次会才能有结果。所以说这十几天得好好的辛苦辛苦，开六十次会。然后再一个就是GCOIN、GDOLLAR太多人想要了，兄弟姐妹，请大家一定理解，真的不可能满足所有的人，真的没办法。但是我们一定要考虑的事情就是必须要保证的，我们有些义工一定要给，还有给很多人在给法治基金捐款，包括投资G系列受到了共产党的威胁和伤害的，这个两千万个是必须留在那儿的。未来会想办法给大家去发。但是我在这重申任何农场不允许和战友有任何借贷和代持的关系，可以代购，不能代持。任何农场，没有任何权利许诺给战友，任何GCOIN、GDOLLAR，包括代持任何股份，这绝对不可以。任何战友给各农场之间只要有汇钱、付钱，有任何问题请和我还有我们喜马拉雅联盟委员会联系。绝对不允许任何农场主和战友之间有汇款的利差，还有当地囤积现金，这绝对不允许，而且绝对不允许代持GCOIN、G币。现在很快将全面开始我们的G系列的新时代走着看。过一段时间GFASHION的团队将再一次的公布，你们会震撼，看看GFASHION都谁加入了。未来的GFASHION希望更多的战友加入，GTV的工程师，有更多战友加入。GTV马上和GNEWS的工程师将会出台一系列的一百万GTV股票的十年工作的激励机制，请大家注意。包括GTV  GNEWS GCLUB GFASHION全都有。太多好事了，七哥每时每刻都想着如何让咱们战友过上体面、有尊严、富有的生活，这是我们灭共的核武器。
+公众对福奇博士提出质疑。美国医学院联盟、美国传染病学会、美国儿童疾病研究学会、美国CDC等医学界精英大佬们竟然联合起来，联名力挺福奇博士（5-9）。
+
+Vladimir Zelenko医生用羟氯喹治疗了成功治疗了700多个CCP病毒感染的病人后，曾给川普总统写信说明羟氯喹的效果（10）（11）。网上攻击Vladimir Zelenko的文章铺天盖地。 大量Zelenko医生的Youtube 视频被下架。纽约时报攻击说Zelenko医生是个乡下医生，住在一个破烂不堪的房子里，兜售没有FDA通过的羟氯喹（12）。在无数次证明羟氯喹治疗效果后，Zelenko医生说羟氯喹反对者是集体大屠杀的凶手（13）。最终，Zelenko医生被迫离开他居住的小镇（14）。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-24-at-7.04.19-AM.png)Vladimir Zelenko医生
+
+Brian Tyson是治疗CCP病毒病人的一线医生，他表示：CCP病毒是根据某些人的需要弄到美国的瘟疫，羟氯喹效果极其有效，根本无需疫苗（15）（16）。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Screen-Shot-2021-03-24-at-7.04.44-AM.png)Brian Tyson医生
+（未完待续）
+
+* * *
+
+### 参考资料：
+
+（3）[https://www.youtube.com/watch?v=m3PQss3oMkg&t=113s](https://www.youtube.com/watch?v=m3PQss3oMkg&amp;t=113s)
+
+（4）[Martin J Vincent](https://pubmed.ncbi.nlm.nih.gov/?term=Vincent+MJ&amp;cauthor_id=16115318), [Eric Bergeron](https://pubmed.ncbi.nlm.nih.gov/?term=Bergeron+E&amp;cauthor_id=16115318), [Suzanne Benjannet](https://pubmed.ncbi.nlm.nih.gov/?term=Benjannet+S&amp;cauthor_id=16115318), [Bobbie R Erickson](https://pubmed.ncbi.nlm.nih.gov/?term=Erickson+BR&amp;cauthor_id=16115318), [Pierre E Rollin](https://pubmed.ncbi.nlm.nih.gov/?term=Rollin+PE&amp;cauthor_id=16115318), [Thomas G Ksiazek](https://pubmed.ncbi.nlm.nih.gov/?term=Ksiazek+TG&amp;cauthor_id=16115318), [Nabil G Seidah](https://pubmed.ncbi.nlm.nih.gov/?term=Seidah+NG&amp;cauthor_id=16115318), [Stuart T Nichol](https://pubmed.ncbi.nlm.nih.gov/?term=Nichol+ST&amp;cauthor_id=16115318). Chloroquine is a potent inhibitor of SARS coronavirus infection and spread. Virol J  2005 Aug 22;2:69. doi: 10.1186/1743-422X-2-69.
+
+（5）[https://www.aamc.org/news-insights/press-releases/aamc-statement-support-anthony-fauci-md](https://www.aamc.org/news-insights/press-releases/aamc-statement-support-anthony-fauci-md)
+
+（6）[https://abcnews.go.com/Politics/doctors-cry-foul-white-house-targets-fauci-cdc/story?id=71773393](https://abcnews.go.com/Politics/doctors-cry-foul-white-house-targets-fauci-cdc/story?id=71773393)
+
+（7）[https://www.societyforpediatricresearch.org/joint-statement-in-support-of-dr-fauci-of-science-and-public-health](https://www.societyforpediatricresearch.org/joint-statement-in-support-of-dr-fauci-of-science-and-public-health)
+
+（8）[https://www.pop.org/cleanvaccine/?gclid=Cj0KCQiArvX\_BRCyARIsAKsnTxPJSh7wudv8jsfiY3RUdpKWDGwLM-brfaypcMZhI5IgcbFVJDJ3gf8aAuq3EALw\_wcB](https://www.pop.org/cleanvaccine/?gclid=Cj0KCQiArvX_BRCyARIsAKsnTxPJSh7wudv8jsfiY3RUdpKWDGwLM-brfaypcMZhI5IgcbFVJDJ3gf8aAuq3EALw_wcB)
+
+（9）[https://www.idsociety.org/news–publications-new/articles/2020/isda-statement-in-support-of-anthony-fauci-m.d.-fidsa](https://www.idsociety.org/news--publications-new/articles/2020/isda-statement-in-support-of-anthony-fauci-m.d.-fidsa)
+
+（10）[https://www.herald.ng/after-successfully-treating-700-covid-19-patients-doctor-pens-letter-to-trump-on-drug-regimen/](https://www.herald.ng/after-successfully-treating-700-covid-19-patients-doctor-pens-letter-to-trump-on-drug-regimen/)
+
+（11）[https://www.youtube.com/watch?v=Fz4Nc967ZVo](https://www.youtube.com/watch?v=Fz4Nc967ZVo)
+
+（12）[https://www.nytimes.com/2020/04/02/technology/doctor-zelenko-coronavirus-drugs.html](https://www.nytimes.com/2020/04/02/technology/doctor-zelenko-coronavirus-drugs.html)
+
+（13）[https://www.israel365news.com/154281/dr-zelenko-vindicated-after-hydroxychloroquine-proven-effective-calls-naysayers-mass-murderers/](https://www.israel365news.com/154281/dr-zelenko-vindicated-after-hydroxychloroquine-proven-effective-calls-naysayers-mass-murderers/)
+
+（14）[https://nypost.com/2020/05/21/doctor-who-promoted-covid-cocktail-leaves-jewish-community/](https://nypost.com/2020/05/21/doctor-who-promoted-covid-cocktail-leaves-jewish-community/)
+
+（15）[https://www.youtube.com/watch?v=PE3QfTnIazU&t=1s](https://www.youtube.com/watch?v=PE3QfTnIazU&amp;t=1s)
+
+（16）[https://www.thedesertreview.com/news/dr-brian-tyson-speaks-at-america-s-frontline-doctors-in-washington-dc/article\_4bd9aae0-11fb-11eb-a470-dbd980aa27bd.html](https://www.thedesertreview.com/news/dr-brian-tyson-speaks-at-america-s-frontline-doctors-in-washington-dc/article_4bd9aae0-11fb-11eb-a470-dbd980aa27bd.html)
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
 0

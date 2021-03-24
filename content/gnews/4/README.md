@@ -1,45 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [文贵先生盖特]摘录:2021年3月20日拜登三摔，把世界给摔懵
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1008874/)
+## 中美阿拉斯加会谈是披着羊皮的狼和披着羊皮的狼演的一出戏
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1011178/)
 
-编辑：童媚 校对：木子
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/image001-78.png)
-**拜登三摔，把世界****给****摔懵**
+简述：在2021年3月21日的盖特中，郭先生第一次披露了中美阿拉斯加会谈的本质 —— 那是一出戏！中共的王毅和杨洁篪是披着狼皮的羊，而美方是披着羊皮的狼，他们之所以这样演是因为，中共可以继续骗14亿老百姓，而美方也可以满足私利，而最后买单的则是中国14亿草根老百姓，不信就等着瞧。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210321-getter1-part2.srt.txt)
 
-**媒体****胡扯****，被家族****所****操弄**
+**中美阿拉斯加会谈是披着羊皮的狼和披着羊皮的狼演的一出戏**
 
-今天有三个是很严肃的会，所以沐浴更衣很正装。
+**The US-China Alaska Meeting Is a Show**
 
-昨天发生的事情，大家都在评论。拜登总统在空军一号上摔了三下，把世界给摔懵了，把所有人都摔懵了。但是在我们爆料革命经历了几年的战友们，都应该在预料之中。很多人都在说贺锦丽就要上阵了。战友们，看看世界媒体的悲剧和悲哀，没有任何媒体可以告诉你真正的答案。请看过去三到四年，你亲身经历的事情，不要让别人来评断，有一件事是媒体告诉你真正的答案吗？从来没有。人类走到媒体肠梗阻的时代，都是胡说八道，都是事后的诸葛亮，根本不存在任何争议，包括事后找到所谓的证据，来圆一个事实的时候，都带有所谓的公正的观点，然后把事实全部过滤掉。因为要”公正”，所以要左边右边平衡，一平衡就没有事实了。你去看世界媒体到最后，全是抓眼球。所以人类上政治要变革，宗教要变革，媒体当然要到了大变革的时候，完全是胡扯的，完全是被家族所操弄的。
+咱这个先不多说，咱再说说更夸张的。这几天都在说的是，所有的阿拉斯加，中美两国会谈，只有咱们一家说这是演戏，没有任何人知道演戏，因为咱知道情报，那不是瞎蒙的，你老蒙的那是永远不可能100%准确的，是吧？只有咱一家说出这是演戏。这几天很多有良知的所谓的媒体人，还有政客们跟七哥开会都快疯了，[问]“为什么 Miles 你能知道这是在演戏呢？”很简单兄弟姐妹们，我说看这个演戏，我给他们形容了一个，我说：“中共国假擀面杖子经济，假的吹牛，我说它就像一个什么？”
 
-**无法回避的****几件事情**
+Let’s just move on and talk about something more absurd. All that people have been talking about these days was the Alaska meeting between the US and China. We are the only one saying that it was a show. No one else knew about this. It’s because we have the intelligence, so we are not taking a shot in the dark. If you guess blindly, you will never be 100% correct, right? We are the only media who said it was a show. In these days, many so-called media professionals with conscience along with politicians have had meetings with me like crazy, asking “How do you know it was a show, Miles?” It is very simple, brothers and sisters. I said, “Look, this is a show.” Then I made a metaphor, “What do the ‘rolling pin’ (fake) economy of the CCP and their boastings look like?”
 
-昨天，拜登从飞机上摔了三跤，最大的意义不是贺锦丽当不当总统，这是根本不存在的问题。有三件事是永远无法回避的：美国总统大选，无论是选举前还是选举后，还是在历史上，最重要的就是诚实的问题。关于川普总统的账单和税单，已经折腾了几年了。还有川普总统所有关于通俄还有税单的问题，那就是诚实不诚实的问题。对待拜登，他当上了总统之后，就是围绕两件事，一个是他身体健康的问题，一个就是核心的核心他儿子亨特拜登的问题。他本人的争议就在这两个问题上。亨特拜登的问题就是关于中共的，亨特拜登的哥们是习大神，川普总统被传说的哥们是普京，而习大神和普京又是好哥们，那你想这事和美国什么关系，你得看本质。
+我说：你去想想中共国的经济、军事，所有的实力跟美国比，它真的就是一个羊，这没办法。那么美国在世界上军事、政治、经济、技术、影响力，它绝对是个狼。咱用这这两个动物来讲。那么中共国今天为啥敢这么嚣张？中共敢这么嚣张，因为它手里边它绑架到14亿中国人民，还有一个它在美国有蓝金黄，它就是14亿奴隶和蓝金黄手段，所笼络的资源，不就这个吗？是吧？兄弟姐妹们，还有啥可说的，不就这两招儿吗？
 
-**摔出问题之一：总统的合法性**
+I said, think about the economic and military strength of the CCP, when compared to the US, it is like a sheep, with no doubt. Considering the strength and influence of military, politics, economy, and technology, the US is absolutely a wolf. Let’s use these two animals to tell the story. Then, why dare the CCP to be so arrogant? It is because the CCP has kidnapped 1.4 billion Chinese people. Another reason is the BGY plot in the US, using all the resources netted by abusing the 1.4 billion slaves. Right? Brothers and sisters, what else can I say? The CCP only has only these two tricks, right?
 
-拜登这一摔摔出了个大问题，就是你这个总统选上合不合法？你当时所有被高度关注你的医生和健康报告是真是假，如果健康报告是假的，或者说你欺瞒了事实，这个总统的合法性就没了。连你的人没了，人的合法性都没了，总统这个主体没了，那贺锦丽上去当总统合法吗？先不说选前你有没有多米尼系统，有没有其他什么操作，这选后关于大选真假的问题，就是大事。2022年的中期选举或者在这之前，所有的问题老百姓可以不讨论，但在党内会大讨论，弄不好民主党就主动弹劾他了。这就是美国所谓的民主政治。不管它真假，有没有操控，比你中共好的多，跟你不是一回事，你一个压根就没有洗过澡的人，和别人讲卫生，就是胡扯的事。这件事就摔出了一个最大的问题，就是美国总统选举的合法性，还有他能干多长时间。这又是在普京总统对拜登总统说：我了解你，我祝你健康。然后就摔了。俄罗斯的普京对美国总统的健康以及各方面的了解，一点也不奇怪，太正常了，就像美国了解习大神的健康情况一样，不能说百分之百，但至少是百分之九十以上。对各国领导人特别是几个大国，对你生活、起居、家庭比如你什么时候抠鼻子，什么时候抠右眼和左眼，这些基本都在预料之中，这是现代科技的必然产物。
+我说那为什么中美阿拉斯加峰会成这样的滑稽的场面？很多欧美人问我：你怎么看这件事情。我说：非常简单，看中共和美国这两个峰会，我有两个比喻。中共所谓的杨娘娘，还有王公公就是一个披着羊皮的羊，披着羊皮的羊它还是羊，咋呼得很厉害，左顾右盼、前看后看，在那又蹬腿又挠地的，“啪啪啪”它把它自己当成了狼了。
 
-**摔出问题之二：****保守势力回归****新中国联邦****灭共事业好上加好**
+I then asked, “Why did the US-China Alaska meeting have such an absurd scene?” Many people from Europe and America asked me, “What’s your take on this?” I said, “It was very simple. I can use two metaphors to describe the meetings between the CCP and the US. The so-called Empress Yang (Jiechi Yang) and Eunuch Wang (Yi Wang) were sheep covered with the skin of a wolf. Sheep in wolf’s clothing are still sheep no matter how much fuss they make, how they check around, look back and forth, kick and scratch the ground, or how much they believe they are a wolf.”
 
-昨天这一摔，摔出了新中国联邦更大的希望。这一摔完，不用想的保守势力迅速回归。对新中国联邦一定是更好；对灭共的事业是好上加好、再好；更重要的事情，2022年中期选举，保守派一定回归，那对新中国联邦又是好事。
+我说美国那是什么呢？是披着羊皮的狼，是披着羊皮的狼，完了。他为啥？它真把自己当羊了。为什么美国这个狼要把自己披着羊皮呢？因为美国有弱点，美国不敢当狼，因为这个羊跟它之间有默契，要让它当一次羊，因为回到中共国去好骗那14亿的奴隶。咱俩演戏，然后我这个羊，穿着羊皮的咋呼的羊，要开始给你多送点羊过来，或者在美国弄点狼肉吃吃。就这么简单。
 
-**摔出问题之三：****拜登****灭共无回头路**
+I continued, “Then what was America like? It was a wolf in sheep’s clothing. Period. Why? It indeed treated itself as a sheep. Why was America the wolf willing to put on sheep’s clothing? It’s because others got goods on America, so that it didn’t have the courage to be a wolf. It’s because the sheep had a tacit agreement with it and asked it to pretend to be a sheep for once, in order to cheat the 1.4 billion slaves in Communist China. So, if you America agreed to put on a show with me, I, the noisy sheep in wolf’s clothing would send more sheep to you or even some other wolf’s meat for you America to eat.”
 
-另一个深层次的问题，拜登总统对中共，不管任何情况下，现在想往回走已经不可能了，只能越来越强硬。不是阿拉斯加的会议，阿拉斯加会议百分之百就是演戏，纯胡扯。接下去共产党就会到世界上吹牛去了，他们在国内吹牛，因为必须保持假擀面杖是挺着的，因为一拿下来就完了。所有的戏都是演的，就像中共外交部发言人说的，前几分钟就是小菜，中间还有很多话呢，然后他们就到全世界去吹牛去了，干嘛啊？到国外去骗钱，到国外去骗资源，到国外去拉盟友，然后表演给所有国内的老百姓看。中国人永远死在谎言里，这一点我是越来越相信了。所以你发现对爆料革命、新中国联邦、灭共事业、经济、香港事件来看，相信真话的人是很少的。相信假话的人是很多的。包括九指妖，说啥你都信，叫你写遗书，因为你有钱，你就信。这就是中国人走到今天的很多灾难事件的根本原因：不辨是非，不辨真假，不辨善恶。这个共产党已经完了几十年了，屡试不爽，所以他们能到处吹牛。
+我说：最终，一定要记住，美国狼还会回到本质，美国的狼还会是披着狼皮的狼，中共国还是披着羊皮的羊，或者被扒了皮的羊，就这么简单。他们都爱笑死了。
 
-**摔出的问题之四：美国经济完蛋**
+“Simple as this,” I said, “ultimately, please remember, the America wolf will go back to its nature. The American wolf will turn back to a wolf in wolf’s skin, and the CCP sheep will still be a sheep in sheep’s skin or naked with its skin peeled. That’s it.” They all laughed.
 
-拜登总统为什么摔出了另外一个问题呢？就是美国的经济完蛋了。如果美国经济完了，最大的受惠者又是咱们G系列。美国的经济真的绝对完了，1.9万亿和共和党与民主党竞争的2022年中期选举，和美国所有关于冠状病毒的争执，这一摔完全全都明白了。只有一招铤而走险，能让拜登总统和贺锦丽副总统转移视线，就是严肃灭共、认真灭共，真实灭共。
+不管你咋咋呼，你都是披着羊皮的羊。所以说，我说：他越咋呼越好，他对香港对台湾以及到非洲、中东，玩的这一切手段都是政治手段，一切都是为内政，一切都是内政。好好看看第二次世界大战，希特勒，当时的法国、英国，包括日本，很多重大的影响国家命运的决策，当时都和内政，内部政治有绝对的关系，这全世界的政治都是一家的，都是流氓。但是中共国不是流氓，它是真正的黑社会，它是绑架14亿中国人民的，它是以14亿人民作为筹码跟全世界讲数的。美国人愿意，知道自己是狼，还披着羊皮，就是更为了获取个人获得更多的羊肉，为个人获得更多的羊肉，和未来吃更多的羊崽子，甚至吃个羊胎盘啥的，是吧？就这么简单。
 
-**台湾危矣**
+No matter how loud you voiced, you are still a sheep in sheep’s skin. So, I said, “It is better if they keep making more fuss. All means the CCP has used toward Hong Kong, Taiwan, Africa, and the Middle East are political tactics for its domestic politics. Please take a good look at WWII. Many critical decisions that influenced a nation’s fate made by Hitler, France, the UK, or Japan at that time were absolutely connected with their domestic politics. All the world’s politicians belong to the same family – they are all rogues. Yet, the CCP is not a rogue, rather, it is a true gangsterdom. It has kidnapped 1.4 billion Chinese and used the 1.4 billion Chinese as leverage to bargain with the world. The Americans were willing to put on sheep’s clothing, even though they knew they were wolves, because they wanted to get more sheep meat for their personal interest and get more lambs for the future, or even get some sheep placentas to eat, right? Simple as this.”
 
-接下来你放心共产党一定在台湾问题上铤而走险。台湾真是危矣，真担心。我从昨天到现在一直想台湾的亲人和朋友怎么办，还有台湾的战友。真的要把大牛和巴黎接出来了，这是核心。
+但是美国这次是被羞辱的，中共这次是咋咋呼呼的解决了内部的上海邦和习大神的问题，更重要的事情最后是剪韭菜，最后买单的是咱中国老百姓。两边，不管是狼披羊皮，还是羊披羊皮，但最后买单的就咱中国老百姓，草根。就这么简单，信不信？不信拉倒。
 
-**准备坐世界的过山车****，好戏真的登场了**
+America was humiliated this time, and the noisy CCP has solved its internal conflict between the Shanghai Gang and God Xi. More importantly, the CCP could reach its ultimate goal of harvesting the chives (referring to robbing the ordinary Chinese) and having the ordinary Chinese to pay the bills in the end. No matter to the wolf in sheep’s clothing or the sheep in sheep’s skins, in the end, it is the ordinary Chinese who will pay for the bills, the grassroots. Simple as this. Do you believe me? It doesn’t matter if you don’t.
 
-这一摔，和阿拉斯加的演戏，和普京总统全面公开的介入，和习大神要在全世界全面开始擀面杖的外交和经济，然后真刀真枪对台湾，世界真的将开始乱起来了。这时候，经济能好吗？我不相信。所以兄弟姐妹们，准备好坐这个世界的过山车，从庚子年到辛丑年，世界不会苏醒，不会太平。更重要的是，我们要抓住机会，对我们新中国联邦，对灭共的事业，是好上加好。有什么不好的？告诉我。世界只要最后找到了乱透的原因，那就到了关键的关键，这事为什么阿拉斯加不把冠状病毒抬到桌上？因为中方强烈要求，不允许把冠状病毒有一句话指责给中共，竟然美国真没干。但是，这是重要的大餐，这事开始了。不谈病毒来源，不谈美国人死亡，不谈整个生物武器，美国也真不出手，到底是被买了，还是吓住了，还是被勾兑了，还是美国背后有更深的战略考虑呢？好戏真的登场了，大家做好准备。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60575c13d1608d609ea69e30](https://gtv.org/getter/60575c13d1608d609ea69e30)  (1:59-2:54, 3:07-7:21)
+鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/998813/](https://www.gnews.org/zh-hans/998813/)
+
+* * *
+
+翻译：【7PawBear】校对：【Isaiah4031】【BruhM】字幕：【Rock小哥】视频解码：【恒久忍耐】技术支持：【Rock小哥】推广：【V%】【TINALS】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0

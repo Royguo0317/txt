@@ -1,58 +1,202 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共发射火箭是对人民赤裸裸的威胁和伤害
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1010523/)
+## 美国政要等每日重要信息0323.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1007957/)
 
-作者：文呈 | 校对：宁缺 |审核：freedust |Page：小雨
+**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/nnRAweKwRnu0Z/images/91bd0cb9-2bae-4a7a-9fe2-9e20fe70e087.jpg?asset_id=77485ca6-e88d-41ab-8a4a-a6e75c91d137&amp;img_etag=%228819494a54c250e6dde8c6f8b9c4ccc7%22&amp;size=2560)](https://spark.adobe.com/page/nnRAweKwRnu0Z/images/91bd0cb9-2bae-4a7a-9fe2-9e20fe70e087.jpg?asset_id=77485ca6-e88d-41ab-8a4a-a6e75c91d137&amp;img_etag=%228819494a54c250e6dde8c6f8b9c4ccc7%22&amp;size=1024)
-
-[新闻链接1](https://lahoo.ca/2021/03/17/111141)
-
-[新闻链接2](https://news.sina.com.cn/o/2010-06-04/092717609959s.shtml)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/nnRAweKwRnu0Z/images/c16852dd-731b-4aca-be2b-55554b77ed52.png?asset_id=d43d43d6-bfa9-49df-a60d-cb5e962d2d7a&amp;img_etag=%229883607726cd8020cea00269df8aed88%22&amp;size=3413)](https://spark.adobe.com/page/nnRAweKwRnu0Z/images/c16852dd-731b-4aca-be2b-55554b77ed52.png?asset_id=d43d43d6-bfa9-49df-a60d-cb5e962d2d7a&amp;img_etag=%229883607726cd8020cea00269df8aed88%22&amp;size=1024)
-
-笔者近日在某微信群组看到一篇公众号内容“躲卫星，是200万贵州人的日常”。这些内容本不在我的阅读列表当中，但由于群组内网页调侃老铁来个火箭，引起了我的注意。在文章中我看到中共发展所谓航天科技的可笑和对人性的泯灭，以及中共发射火箭背后一些未曾关注的内容和生活在火箭残骸掉落区老百姓生活的无奈。
-
-在这篇文章中，作者将火箭残骸大量掉落在人群活动的贵州黔南，东北部地区形容为航天事业的蓬勃发展；把影响人民正常生活，甚至会威胁到生命的火箭残骸抵达警告，形容为温馨的警告；把这些所谓的落区群众无奈离开自己的正常生活或工作岗位形容为激情动员；把每一次终于在火箭发射后残骸掉落，幸存者的感动形容为贵州人的热闹。
-
-这些虚伪的大外宣却让笔者想起曾经参观西昌酒泉发射中心后，脑海中产生的诸多疑问。由于在山区，抵达发射中心停车场已经花费大量时间，想要更加靠近火箭发射台一睹芳容，还需单独购票乘坐小巴再穿过一些山路来到拥挤窄小的观景台参观一番，最后却没能了解到中共的航天科技究竟有多厉害。火箭体积如此巨大，连游客进入都如此耗时，火箭部件如此紧密要如何快速安全的运送？火箭发射地点选择的西昌的山谷中，树林茂密，引起森林大火的风险有多少？九千六百万平方公里的中华大地难道就没有更加安全的地点了吗？
-
-[!\[\]()!\[\](https://spark.adobe.com/page/nnRAweKwRnu0Z/images/2b409789-f7e1-45b8-b849-a50f528eb6a2.jpg?asset_id=eefde0f9-cc38-45fc-b443-4d19813af877&amp;img_etag=%224036880f4ba95c939b14aac8b769c057%22&amp;size=2560)](https://spark.adobe.com/page/nnRAweKwRnu0Z/images/2b409789-f7e1-45b8-b849-a50f528eb6a2.jpg?asset_id=eefde0f9-cc38-45fc-b443-4d19813af877&amp;img_etag=%224036880f4ba95c939b14aac8b769c057%22&amp;size=1024)
-
-当时的疑问伴随着这篇文章让笔者产生了更多的疑问，同时也了解更多的信息。在这里和各位读者一起分享，也欢迎各位读者在评论区一起讨论。与其说是火箭残骸，不如说是火箭部件，通过这些图片不难看到这些火箭残骸的完整度之高，甚至可以二次创作。这样完整的部件从空中掉落的危险系数究竟几何？
-
-如果这样的部件砸向老百姓，成功逃离现场的机会有多少？为什么蓬勃发展的中共国航天事业不能寻找一个更加远离人群，更加安全的地点？是中共国的航天事业还不够蓬勃？还是担心选择人少安全的开阔区域会被人发现时常发射失败的真相？为什么所谓经过精密计算的火箭掉落位置却会有部分掉进有人居住的楼房，有人栽种的的农田？究竟是计算的人员不够精密？还是我们对精密计算的理解有着文化上的差异？
-
-[!\[\]()!\[\](https://spark.adobe.com/page/nnRAweKwRnu0Z/images/4d401743-5e78-4b7b-99a4-254d9da3bbc4.png?asset_id=920200e8-0b40-4f3d-9305-a79d4486ee25&amp;img_etag=%221d5bee8798448e66c3e62b65f65d18ba%22&amp;size=2560)](https://spark.adobe.com/page/nnRAweKwRnu0Z/images/4d401743-5e78-4b7b-99a4-254d9da3bbc4.png?asset_id=920200e8-0b40-4f3d-9305-a79d4486ee25&amp;img_etag=%221d5bee8798448e66c3e62b65f65d18ba%22&amp;size=1024)
-
-被火箭砸到是会赔钱的，2010年1月的一枚火箭残骸掉在了仁怀市九仓镇小水村，把朱世芳老太太家的坟地给砸坏了，最后赔了1200块钱。
-
-从上面的新闻可以看到，砸坏老太太的坟墓，只赔偿１２００元，让老百姓死了都不能安心地闭眼。那要砸到房屋，农田又能保证多少老百姓的利益？２０１０年有新闻报道，一枚火箭助推器砸在镇远县羊场镇境内，产生的气浪和火焰把直径６０米范围内的草木都烧焦了。那么有没有村民因为掉落的火箭残骸受伤甚至往生？还是如同文章中写道的在屋里打死人不负责？
-
-[!\[\]()!\[\](https://spark.adobe.com/page/nnRAweKwRnu0Z/images/b8a7cce7-e4af-4814-b008-208686939569.png?asset_id=8d2390e0-e092-4673-825b-1e65ef95ddcb&amp;img_etag=%229f66ce9e062cc34a613dba094af6107c%22&amp;size=2560)](https://spark.adobe.com/page/nnRAweKwRnu0Z/images/b8a7cce7-e4af-4814-b008-208686939569.png?asset_id=8d2390e0-e092-4673-825b-1e65ef95ddcb&amp;img_etag=%229f66ce9e062cc34a613dba094af6107c%22&amp;size=1024)
-
-这难道就是中共所谓的大国担当？看到这些落区老百姓的的群众实拍的画面，不难看到这些地区的经济水平并不高，可是这些在火箭残骸掉落区的十九个县市２００万老百姓有选择吗？
-
-[!\[\]()!\[\](https://spark.adobe.com/page/nnRAweKwRnu0Z/images/06916064-2627-4b11-a929-311f8ea801cc.jpg?asset_id=b201c78c-1d98-4b6e-9b26-e454a5f7f572&amp;img_etag=%22b65d3a9840357450a6860b51e7c8a510%22&amp;size=2560)](https://spark.adobe.com/page/nnRAweKwRnu0Z/images/06916064-2627-4b11-a929-311f8ea801cc.jpg?asset_id=b201c78c-1d98-4b6e-9b26-e454a5f7f572&amp;img_etag=%22b65d3a9840357450a6860b51e7c8a510%22&amp;size=1024)
-
-和火箭残骸一同掉落的火箭燃料内含四氧化二氮、偏二甲肼和氧化产生的二氧化氮（图中黄烟）。上网搜索不难了解这些液体不仅剧毒，易爆，致癌且具备腐蚀性。这样危险的液体倾撒中华大地，对人、对环境的危害究竟就多大？如何处理这些污染物？
-
-还是如同这篇公众号作者采访的某中共弹道专家所称，仅仅是中等毒性？或许该专家比较的对象为中共病毒才得出这样的结论，但笔者依然不敢苟同。如果我们用正常的人的视角比较中美之间的火箭发射技术，以ｓｐａｃｅ　ｘ火箭为例，现在最新的技术不仅能够定区域，甚至定点回收一级火箭、整流罩，并且一级火箭能够反复使用，降低成本。反观中共国的火箭技术不仅频频发射失败，即使成功发生，也要一路到处丢下火箭残骸，不仅危及附近２００万老百姓的生命财产安全，反复使用更是无从谈起。
-
-这样的火箭发射，笔者看到的是中共对落区老百姓生命和财产的漠视。中共口中国家的主人，每每发生火箭生命和财产却都受到威胁，这还不算上剧毒燃料对身体和环境的慢性伤害。从这样的发射中还可以看到的是中共对环境的漠视和虚伪的环保口号。一个政党叫嚣发展科技却没有让人民生活得更好，反而威胁老百姓的生命安全，污染环境，最后还满口谎言的宣传号召为国奉献，欺骗人民安康。我想问问各位读者，你们还要这样的杀人魔控制你的生活多久？
-
-同时我想问问中共，等着爆料革命灭你和自己消失，以你中共的底气，会选择哪一个？
-
-编辑：【英国伦敦喜庄园编辑部】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0223-5.jpeg)图片来源：康州盘古农场 霹雳年
+3月23日美国国务院发推如下。
 
 
-[!\[\]()!\[\](https://spark.adobe.com/page/nnRAweKwRnu0Z/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/nnRAweKwRnu0Z/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+
+> 美国国务院：
+> 正在现场直播！ 美国务卿安东尼·布林肯[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw)加入北约[@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw)秘书长斯托尔滕贝格[@jensstoltenberg](https://twitter.com/jensstoltenberg?ref_src=twsrc%5Etfw)，就“加强跨大西洋纽带关系” 进行适度对话。 [https://t.co/cAj8WaK4SF](https://t.co/cAj8WaK4SF)
+> — 川普等政要…直译推 (@zhiyitw33) [March 23, 2021](https://twitter.com/zhiyitw33/status/1374291181971079177?ref_src=twsrc%5Etfw)
+
+
+
+22日关于对中共新疆种族屠杀的制裁的几则推文。
+
+
+
+> 国务卿安东尼·布林肯：
+> 美国正在根据全球马格尼茨基法案制裁指定的两名 [#中华人民共和国](https://twitter.com/hashtag/%E4%B8%AD%E5%8D%8E%E4%BA%BA%E6%B0%91%E5%85%B1%E5%92%8C%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 官员，这些制裁针对新疆境内严重侵犯人权行为。我们与英国，加拿大和欧盟团结一致，促进追责侵犯人权者。 [https://t.co/dFAMVVeSeJ](https://t.co/dFAMVVeSeJ)
+> — 川普等政要…直译推 (@zhiyitw33) [March 22, 2021](https://twitter.com/zhiyitw33/status/1374076673696563200?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> 美国务院发言人尼德·普莱斯：
+> 美国正在与我们的合作伙伴一起在 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 及全世界范围内努力捍卫人权，打击腐败并促进追责。
+> 【附国务院官网相关新闻公告】 [https://t.co/yNBRTtXPYS](https://t.co/yNBRTtXPYS)
+> — 川普等政要…直译推 (@zhiyitw33) [March 22, 2021](https://twitter.com/zhiyitw33/status/1374075103454007297?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> 参议员瑞克·斯科特：
+> 今天对 [#中共国](https://twitter.com/hashtag/%E4%B8%AD%E5%85%B1%E5%9B%BD?src=hash&amp;ref_src=twsrc%5Etfw) 的制裁是正确的举动，但还需要采取更多行动来制止习近平总书记对维吾尔人正在进行的种族灭绝。
+> 
+> 美国必须努力制止这些罪行，并惩处那些继续施行这些罪行的人。
+> 【附CNBC报道：以侵犯维吾尔人权为由，拜登政府制裁两位中共国官员】 [https://t.co/zRiNlSopaR](https://t.co/zRiNlSopaR)
+> — 川普等政要…直译推 (@zhiyitw33) [March 22, 2021](https://twitter.com/zhiyitw33/status/1374117485012688896?ref_src=twsrc%5Etfw)
+
+
+
+### 期待美英联手
+
+3月23日蓬佩奥国务卿发推一篇《真正清晰防卫》的文章《英国对俄罗斯和中国核侵略的应对措施》，推文称“正如这篇伟大的文章所指出的那样，英国和美国都必须准备捍卫自由。很高兴英国的审查证实了它可以接受挑战。”
+
+
+
+> As noted in this great piece, both UK and America must be prepared to defend liberty. Glad UK review confirmed that it is up for the challenge.[https://t.co/HQWY89vLa6](https://t.co/HQWY89vLa6)
+> — Mike Pompeo (@mikepompeo) [March 23, 2021](https://twitter.com/mikepompeo/status/1374330585431339009?ref_src=twsrc%5Etfw)
+
+
+[https://www.realcleardefense.com/articles/2021/03/22/the\_uks\_response\_to\_russian\_and\_chinese\_nuclear\_aggression\_769226.html](https://www.realcleardefense.com/articles/2021/03/22/the_uks_response_to_russian_and_chinese_nuclear_aggression_769226.html)
+### 传统价值观与共产主义思潮的斗争
+
+3月23日蓬佩奥先生的两则如下。
+
+“消灭文化已经渗透到我们的学校，并威胁到数百万美国人在建国之初为之而战的言论自由。它在美国没有立足之地。”
+
+“让生理男性参加女性体育比赛是不公平或平等的。句号。” （态度坚定地反对变性人参加体育竞赛。）
+![]()![](https://gnews.org/wp-content/uploads/2021/03/pompeo-0323.png)
+22日朱利安尼先生转推一则推文，推文来自他本人推荐的45任密苏里州州长、议员竞选人艾瑞克。推文称：
+
+“作为一名海豹突击队队员，我为这个国家而战，以确保我们的自由得到保护。现在，左派想把这些自由从你身边夺走。这就是为什么我在密苏里州竞选美国参议员的原因。我们必须为把美国从左派的疯狂中夺回来而战。”
+
+
+
+> As a Navy SEAL, I fought for this country to ensure our freedoms are protected. Now, the Left wants to take those freedoms away from you. 
+> 
+> That’s why I’m running for the US Senate in Missouri. We must fight to take America back from the lunacy of the left. [pic.twitter.com/cbfw4Q8aJ6](https://t.co/cbfw4Q8aJ6)
+> — Eric Greitens (@EricGreitens) [March 22, 2021](https://twitter.com/EricGreitens/status/1374128706768269316?ref_src=twsrc%5Etfw)
+
+
+
+### “厕所会谈”继续发酵
+
+朱利安尼先生23日就《纽约邮报》19日关于阿拉斯加美中“厕所会谈”的报道进行转推，称：“中（共）国在阿拉斯加峰会嘲笑美国。” 并引用会上杨洁篪的原话：
+
+“我们认为美国改变形象、停止在全世界输出自己声称的民主很重要。”
+
+
+
+> China mocks US at Alaska summit
+> 
+> “We believe that it is important for the United States to change its own image and to stop advancing its own democracy in the rest of the world.”[https://t.co/8GtgsdOxq6](https://t.co/8GtgsdOxq6)
+> — Rudy W. Giuliani (@RudyGiuliani) [March 23, 2021](https://twitter.com/RudyGiuliani/status/1374368365846872066?ref_src=twsrc%5Etfw)
+
+
+[https://nypost.com/2021/03/19/biden-proud-of-team-after-china-mocks-us-at-alaska-summit/](https://nypost.com/2021/03/19/biden-proud-of-team-after-china-mocks-us-at-alaska-summit/)
+《纽约邮报》这片文章援引C-Span视频，视频中拜登19日被问及对前日美中会晤的反应时称“对国务卿感到自豪。”文章引述了峰会上中方的讲话的关键内容，并称川普总统在大选前曾说，如果拜登获胜，美国将成为“中国拥有”。
+
+
+
+### 非法移民不能投票
+
+皮特纳瓦罗博士23日推文，强调他在班农疫情战斗室的讲话：
+
+“每一位在2022年竞选参众两院的候选人，无论他们是民主党还是共和党，都需要这样做：签署一份承诺书，声明任何在2021年1月20日之后非法越境的人，将永远没有机会获得公民身份，并被送回他们来自的地方。”
+
+
+
+> Every candidate running for House & Senate in 2022 whether they're D or Rs needs to do this: sign a pledge stating that ANYONE who crossed our border after Jan 20, 2021 ILLEGALLY will NEVER have a path to citizenship & be returned to where they came from.[https://t.co/hCJHxxsvPG](https://t.co/hCJHxxsvPG)
+> — Peter Navarro (@RealPNavarro) [March 23, 2021](https://twitter.com/RealPNavarro/status/1374416978388000789?ref_src=twsrc%5Etfw)
+
+
+
+
+
+### 现任国务卿今日主要推文
+
+“我们和我们的伙伴一起呼吁北京（中共国政府）立即释放两名被任意拘留的加拿大人Michael Spavor和Michael Kovrig。人不是讨价还价的筹码。”
+
+
+
+> We join our partners in calling on Beijing to immediately release the two arbitrarily detained Canadians, Michael Spavor and Michael Kovrig. Human beings are not bargaining chips. [https://t.co/e5WszeKKuS](https://t.co/e5WszeKKuS)
+> — Secretary Antony Blinken (@SecBlinken) [March 23, 2021](https://twitter.com/SecBlinken/status/1374350372911845376?ref_src=twsrc%5Etfw)
+
+
+
+“在我访问东京和首尔时，各方一致认为，美国、日本和大韩民国之间的有力合作对促进共同利益和价值观至关重要，我期待着在这个三边动力的基础上更进一步。”
+
+
+
+> On my visit to Tokyo and Seoul, all sides agreed robust cooperation between and among the United States, Japan, and the Republic of Korea is critical to promoting shared interests and values, and I look forward to building on this trilateral momentum.
+> — Secretary Antony Blinken (@SecBlinken) [March 22, 2021](https://twitter.com/SecBlinken/status/1374092629147848712?ref_src=twsrc%5Etfw)
+
+
+
+“很高兴与北大西洋公约组织秘书长 @JensStoltenberg见面。
+在今天晚些时候举行的北约外交部长会议之前，我们进行了建设性的讨论，讨论了我们如何加强跨大西洋联盟和更新我们的全球关系。我们就如何加强跨大西洋联盟和更新我们的全球关系进行了建设性的讨论。”
+
+
+
+> Great to meet with [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Secretary General [@JensStoltenberg](https://twitter.com/jensstoltenberg?ref_src=twsrc%5Etfw) in advance of the NATO Foreign Ministerial later today. We had a constructive discussion on how we can strengthen the Transatlantic Alliance and renew our global relationships. [pic.twitter.com/QkFZxoreHQ](https://t.co/QkFZxoreHQ)
+> — Secretary Antony Blinken (@SecBlinken) [March 23, 2021](https://twitter.com/SecBlinken/status/1374356507458945027?ref_src=twsrc%5Etfw)
+
+
+
+
+
+“很高兴今天在布鲁塞尔与意大利外长@luigidimaio会面，这也是本次北大西洋公约组织外交部长会议的一部分。在我们面对全球挑战时，意大利是美国的重要盟友和朋友。”
+
+
+
+> Very pleased to meet Italian Foreign Minister [@luigidimaio](https://twitter.com/luigidimaio?ref_src=twsrc%5Etfw) today in Brussels as part of the [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Foreign Ministerial. Italy is a key ally and friend to the United States as we confront global challenges. [pic.twitter.com/ewFumsiIsU](https://t.co/ewFumsiIsU)
+> — Secretary Antony Blinken (@SecBlinken) [March 23, 2021](https://twitter.com/SecBlinken/status/1374370348049793024?ref_src=twsrc%5Etfw)
+
+
+
+“北大西洋公约组织盟国和伙伴立场坚定，致力于通过 “坚决支持 “培训任务以实现阿富汗的长期安全与稳定。我们将确保阿富汗的土地不再被用来对美国或其盟友发动攻击。”
+
+“正如在报告中指出的那样，我们将确保阿富汗的土地永远不会被用来对美国或其盟友发动攻击。
+“在北大西洋公约组织国防部长会议上，美国和我们的北约盟国和伙伴正在推动负责任地结束阿富汗战争。作为盟国，我们必须保持团结：我们一起进入，我们将一起调整，当时机成熟时，我们将一起离开。”
+
+
+
+> .[@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) Allies and partners remain firmly committed to Afghanistan’s long-term security and stability through the Resolute Support training mission. We will ensure that Afghan soil is never again used to launch an attack on America or her allies. [pic.twitter.com/gSBwpmAyaC](https://t.co/gSBwpmAyaC)
+> — Secretary Antony Blinken (@SecBlinken) [March 23, 2021](https://twitter.com/SecBlinken/status/1374377898480521219?ref_src=twsrc%5Etfw)
+
+
+
+和过去一样，北约正在适应战略环境的变化。我支持@延斯托尔滕贝格提出的#NATO2030倡议。我们必须应对联盟面临的系统性威胁和挑战，包括气候变化和咄咄逼人的强硬对手和竞争者。
+
+
+
+> As in the past, [@NATO](https://twitter.com/NATO?ref_src=twsrc%5Etfw) is adapting to changes in the strategic environment. I support [@jensstoltenberg](https://twitter.com/jensstoltenberg?ref_src=twsrc%5Etfw)’s [#NATO2030](https://twitter.com/hashtag/NATO2030?src=hash&amp;ref_src=twsrc%5Etfw) initiative. We must address systemic threats and challenges to the Alliance, including climate change and aggressive, assertive adversaries and competitors. [pic.twitter.com/Rw1GTFbRvE](https://t.co/Rw1GTFbRvE)
+> — Secretary Antony Blinken (@SecBlinken) [March 23, 2021](https://twitter.com/SecBlinken/status/1374403003743006720?ref_src=twsrc%5Etfw)
+
+
+
+### 反对众议员的社会主义者偷盗
+
+众议员布鲁克斯推文：“众议院社会主义者正积极试图在选举后140天，从共和党获胜者手中抢走爱荷华州的第二国会席位。我和几十位同事一起表达了对佩洛西议长公然偷选的反对。”
+
+
+
+> House Socialists are actively trying to steal Iowa's 2nd Congressional seat away from the Republican winner 140 days after the election. I joined dozens of colleagues in expressing our opposition to [@SpeakerPelosi](https://twitter.com/SpeakerPelosi?ref_src=twsrc%5Etfw)’s blatant election theft. [pic.twitter.com/QjsID0Eqtj](https://t.co/QjsID0Eqtj)
+> — Mo Brooks (@RepMoBrooks) [March 23, 2021](https://twitter.com/RepMoBrooks/status/1374422427116085250?ref_src=twsrc%5Etfw)
+
+
+
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+
+**欢迎关注和支持康州盘古农场推特公众号及时掌握****资讯**
+
+### [盘古七星舰队PanGu Heptastar Fleet](https://twitter.com/PanguF)
 
 0

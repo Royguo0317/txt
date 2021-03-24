@@ -1,62 +1,64 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 杰森·米勒：川普计划数月内推出自己的社交媒体平台
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1009676/)
+## 芬兰指责有中共背景的APT31黑客组织入侵议会
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1010306/)
 
-新闻来源：《Business Insider 商业内参》 | 作者：Connor Perrett | 发布时间：2021年3月22日
+新闻来源：《CYBERSCOOP》| 作者：Sean Lyngaas | 发布时间：2021年3月18日
 
-翻译/简评：文明明 | 校对：X-Wing飞得更高 | 审核：万人往 | Page：青山
+翻译/简评：新街口 | 校对：X-Wing飞得更高 | 审核：万人往 | Page：Daoiii
 
-[!\[\]()!\[\](https://spark.adobe.com/page/TcZKEIBSiWBvL/images/72b491fd-14fa-4489-855c-230f01c7db35.jpg?asset_id=bbfa3f42-19c6-4435-a685-bdcdc887eb77&amp;img_etag=%22cd70106a6c242022e332b8536733a87b%22&amp;size=1024)](https://spark.adobe.com/page/TcZKEIBSiWBvL/images/72b491fd-14fa-4489-855c-230f01c7db35.jpg?asset_id=bbfa3f42-19c6-4435-a685-bdcdc887eb77&amp;img_etag=%22cd70106a6c242022e332b8536733a87b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/SaBE1aIA2xg3u/images/0bcaccea-1774-41fd-ac3d-6f3b491f59a8.jpg?asset_id=faed11b2-c7cc-49bd-bae6-fa7663109e21&amp;img_etag=%22f4991c56246d3d2a1bb72df1a79326e5%22&amp;size=2560)](https://spark.adobe.com/page/SaBE1aIA2xg3u/images/0bcaccea-1774-41fd-ac3d-6f3b491f59a8.jpg?asset_id=faed11b2-c7cc-49bd-bae6-fa7663109e21&amp;img_etag=%22f4991c56246d3d2a1bb72df1a79326e5%22&amp;size=1024)
 
-**简评：**
+***简评：***
 
-周日，前总统川普的长期顾问杰森·米勒在出席福克斯新闻的《媒体热议》节目时表示，川普正计划在未来几个月内推出自己的社交媒体平台。他表示前总统这次回归社交媒体平台，预示着川普将“彻底重新定义游戏规则”。米勒并没有透露过多的有关平台的细节，但是他坚信这将是一个属于川普自己的平台，川普将为这个平台带来数千万的追随者。
+网络战是中共超限战的一种重要形式。无数的事实证明，中共早已经对美国及其盟国的企业、政府和军事目标开展了全方位的网络战争。
 
-众所周知，川普总统是拥有近8000万追随者的“网红”，曾经以单日发推特数百次著称。在担任总统期间，饱受了传统媒体和社交媒体的打压和不公正对待，尤其在1月6日的国会大厦骚乱之后，被禁止在包括脸书和推特在内的大多数社交媒体平台上发声。这才导致他痛下决心，要拥有自己的社交媒体平台。
+在企业方面，中共通过网络黑客盗取他国核心技术的案例已经数不胜数。最著名的案例包括2018年美国司法部指控两名中共黑客涉嫌按中共国国安部指示，参与名为APT10的黑客团体，盗取12个国家的知识产权与商业机密。另外一个案例就是2020年2月美国司法部宣布对中共军方的4名成员提起诉讼，理由是他们涉嫌参与了2017年对美国信用评级机构巨头Equifax数据库的大规模黑客攻击，窃取了数百万美国人的私人数据。
 
-文贵先生在去年9月就说过，中共认为最终能打败美国的最强有力的武器是社交媒体。当时大多数人对此还将信将疑，这次美国大选之后，想必这些人在痛定思痛后才有了大彻大悟。人类社会发展到今天，谁掌握了社交媒体平台，谁就掌握了话语权，可惜的是文贵先生的真知灼见竟然要在付出这么大的代价后才被世人重视，可叹！
+在政府方面，中共不仅通过黑客手段影响他国选举，例如本文所披露的APT13去年把乔·拜登的总统竞选作为黑客目标；还通过窃取其他国家政府的机密信息用来影响他国政策，如本文所报道的对芬兰议会的黑客入侵。
 
-**原文翻译：**
+[!\[\]()!\[\](https://spark.adobe.com/page/SaBE1aIA2xg3u/images/d538920a-10a1-45e5-83ec-0b75aca309eb.jpg?asset_id=d5ac01b3-d4cc-49ec-a614-62e888d045c2&amp;img_etag=%22ea1ecb45c74028ca617b457043fcad09%22&amp;size=1024)](https://spark.adobe.com/page/SaBE1aIA2xg3u/images/d538920a-10a1-45e5-83ec-0b75aca309eb.jpg?asset_id=d5ac01b3-d4cc-49ec-a614-62e888d045c2&amp;img_etag=%22ea1ecb45c74028ca617b457043fcad09%22&amp;size=1024)2018年12月，美国指控两名中国籍黑客朱华（Zhu Hua）、张士龙（Zhang Shilong）涉嫌按中国国安部指示，参与名为APT10的黑客团体，盗取12国的知识产权与商业机密。
 
-## **川普的顾问杰森·米勒表示：川普计划将在未来几个月内推出自己的社交媒体平台**
+在军事方面，中共除了通过网络窃取他国的军事信息和情报外，还会利用网络攻击来瘫痪他国重要的基础设施，造成混乱。例如中共与马航MH370飞机神秘失踪有着千丝万缕的关系；还有就是已经被证实的，2017年7月对郭文贵先生的游艇发动国家级别的网络攻击，导致游艇操作系统失灵，差点造成严重的撞船事故。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/TcZKEIBSiWBvL/images/316ace65-0342-4351-a04a-cc4f495838f6.jpg?asset_id=2c64cabf-e123-4c05-bd6a-9812534ea5ef&amp;img_etag=%22eb27a4134647abd3b27847dbbd623eef%22&amp;size=1024)](https://spark.adobe.com/page/TcZKEIBSiWBvL/images/316ace65-0342-4351-a04a-cc4f495838f6.jpg?asset_id=2c64cabf-e123-4c05-bd6a-9812534ea5ef&amp;img_etag=%22eb27a4134647abd3b27847dbbd623eef%22&amp;size=1024)2021年1月8日，在白宫外，智能手机上显示唐纳德·川普的推特帐户被暂停的图片—— 来自路透社 Joshua Roberts
+***原文翻译：***
 
-• 据报道，前总统唐纳德·川普计划在未来几个月内推出自己的社交媒体平台。
+## **芬兰指责与中共国有关的APT31对议会黑客入侵**
 
-• 周日，川普的长期顾问杰森·米勒（Jason Miller）在福克斯新闻节目露面，表示前总统即将回归，并且将“彻底重新定义游戏规则”。
+[!\[\]()!\[\](https://spark.adobe.com/page/SaBE1aIA2xg3u/images/6f63aeb6-7e75-4056-9dcd-3dc4451e4ee7.png?asset_id=a718e7ce-bf2c-4889-bace-490519788060&amp;img_etag=%22151439c4c146404fdb3dbda355057473%22&amp;size=1024)](https://spark.adobe.com/page/SaBE1aIA2xg3u/images/6f63aeb6-7e75-4056-9dcd-3dc4451e4ee7.png?asset_id=a718e7ce-bf2c-4889-bace-490519788060&amp;img_etag=%22151439c4c146404fdb3dbda355057473%22&amp;size=1024)2019年3月，芬兰议会外的环保抗议者。芬兰官员称，与中共国有联系的黑客组织入侵了议会。（VESA MOILANEN / AFP通过盖蒂图片社）
 
-• 1月6日引发国会大厦骚乱后，川普就被包括脸书和推特在内的大多数社交媒体平台赶走。
+芬兰政府谴责了一组可疑的中共国间谍，原因是他们去年入侵了芬兰议会并获取了电子邮件。
 
-周日，川普的长期顾问杰森·米勒在出席福克斯新闻的《媒体热议》（Media Buzz）节目时表示，前总统川普正计划在未来几个月内推出自己的社交媒体平台。
+在周四的一份声明中，芬兰情报官员将矛头指向了一个叫做APT31的黑客组织，安全研究人员称该组织代表中共国利益而开展活动。APT31对芬兰议会的入侵始于去年秋天，并于去年12月被揭露出来，当时芬兰议会议长将其描述为可能损害芬兰的利益的“有敌意的网络活动”。
 
-米勒在周日表示：“我坚信我们将在这两三个月内看到川普总统通过自己的平台重返社交媒体，我认为这将成为社交媒体中最热门的话题。 ”
+芬兰安全和情报服务部门将其标记为国家背后支持的行动。该声明说APT31对攻击负有责任，但没有直接点名中共国。另外，芬兰警方周四将这次黑客行为描述为“严重的间谍活动”和“消息窃听”。
 
-他补充道：“这将彻底重新定义游戏规则，大家可以拭目以待，看看川普总统到底会做些什么，但这一定会是他自己的平台。”
+芬兰的声明是在欧洲的美国同盟国越来越愿意使用的一种模式，用来指责特定的从事间谍活动的黑客组织。芬兰学者维克多·兰塔拉（Viktor Rantala）说，这是他第一次记得芬兰当局公开地将一次网络情报行动认定是某一特定组织所为。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/TcZKEIBSiWBvL/images/9bb2e886-c8d2-443d-8843-45e907f9af21.jpg?asset_id=3a417081-3106-42a8-a1a6-60a631931f69&amp;img_etag=%22047f7be5d6c54a157843c4e95b1ae670%22&amp;size=1024)](https://spark.adobe.com/page/TcZKEIBSiWBvL/images/9bb2e886-c8d2-443d-8843-45e907f9af21.jpg?asset_id=3a417081-3106-42a8-a1a6-60a631931f69&amp;img_etag=%22047f7be5d6c54a157843c4e95b1ae670%22&amp;size=1024)
+经常会有针对立法机关进行的网络间谍活动，因为来自各个国家的间谍都在试图获取他国政府机密。但是一些芬兰官员仍然对议会遭到入侵感到愤怒。
 
-米勒拒绝透露这个社交网络的具体内容和细节，但他告诉《媒体热议》节目主播霍华德·库尔茨（Howard Kurtz），前总统离开华盛顿后，在他的住所海湖庄园（Mar-a-Lago）与“众多公司”进行了“很多高规格的会议”，旨在帮助他推出这个平台。
+芬兰国会议员佩特里·奥波（Petteri Orpo）周四表示，“必须制止类似入侵议会这样的黑客活动”，并呼吁芬兰“采取适当行动”对入侵行为做出回应，而不需做更多的解释。
 
-在经历1月6日美国国会大厦骚乱造成5人死亡之后，川普被禁止使用包括脸书和推特在内的大多数社交媒体平台。
+近年来，中共国对芬兰的兴趣与日俱增，随着中共国企业的投资日益增加，使北京成为芬兰这一北欧国家最大的贸易伙伴之一。
 
-曾经以单日发推特数百次而著称的川普自从接到禁令以来，已经习惯了通过他的办公室来发布模仿推特的简短声明，特别有意思的是，这些声明还被记者和政治顾问们分享到社交媒体平台上。
+据戴尔（Dell）旗下的Secureworks称，APT31是因针对法律和咨询行业而知名的黑客组织，并通过使用GitHub和Dropbox来存储其计算工具，达到隐藏踪迹的目的。据称，该组织去年曾经把乔·拜登的总统竞选作为目标。
 
-这位曾在2016年为川普入主白宫做出贡献、并在2020年竞选连任失败期间担任川普高级顾问的米勒还提到，川普计划为该平台带来“数千万”的新用户。
+周四，中共国驻华盛顿大使馆对上述指控提出置评的请求并未给以回应。北京经常否认进行黑客行动。
 
-前总统办公室对此没有立即作出回应
+这起芬兰的网络入侵事件，只不过是震撼北欧议会的最新一起所谓的网络间谍事件。挪威官员在10月指控俄罗斯政府支持的黑客渗透了挪威议会的IT系统，并从电子邮件中窃取了数据。莫斯科对这一指控予以否认。
 
-🔗[原文链接](https://www.businessinsider.com/trump-planning-to-launch-his-own-social-media-platform-soon-2021-3?r=US&amp;IR=T)
+这也不是欧洲最近报道的唯一一次APT31的攻击。德国情报官员在一月份警告说，该组织已经对多个德国政府机构的网络进行了侦察行动。
+
+**🔗[原文链接](https://www.cyberscoop.com/finland-apt31-china-parliament-hack/)**
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/TcZKEIBSiWBvL/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/TcZKEIBSiWBvL/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/SaBE1aIA2xg3u/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/SaBE1aIA2xg3u/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
