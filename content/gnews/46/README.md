@@ -1,82 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 视频：种族主义是种族主义者的问题，也是产生种族主义的社会问题
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1011799/)
+## 去中国建设银行办事的所见所闻
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1011894/)
 
-内容：
+撰稿: 张文谦
+![]()![](https://gnews.org/wp-content/uploads/2021/03/16165572391.png)图片来自网络
+笔者讲讲去中国建设银行办事的所见所闻如下：
 
-I am a descendant of slaves.
+一、2019年在这家银行的二楼有个小食堂，专门给这个分行的员工提供午餐，2021年已经没有了，估计是建行要减少开支，同时也是变相在降低员工的福利。
 
-我是一个奴隶的后裔
+二、2019年的两位50-60后的分行的主管，如今已没看见，取而代之现在上来的是70-80后的主管。一方面可能是人员调动，但大概率他们成了高层斗争的牺牲品。
 
-My great-grandmother, Mary Thomas, born in 1865,
+三、2019年这家银行中午12点到下午2点是不营业，如今看到的中午还在营业，银行工作人员分三批，中午12点就开始上岗，第二批是下午1点也在大厅开始工作，最后一批是下午1：30上岗工作，连主管也都到岗开始工作。笔者认为这也是银行变相给员工延长工作时间和降薪的做法。
 
-我的曾祖母，玛丽·托马斯，生于1865年
+四、非常奇怪的现象，所有进来办理私人业务的客户，建行的大堂经理都要问客户有几张建行卡，多余的储蓄卡要注销；笔者猜测有两个原因，第一个是国家现在要控制个人的储蓄卡的持有数量，为了限制个人利用多张卡分流汇款转帐。第二个就是我发现本行的工作人员经常把客户目前持有的建行卡注销，重新开立本行的储蓄卡，笔者认为是银行在抢业绩，很有可能他们银行内部的规定是客户的钱存在哪家开户行的储蓄卡上，这些存款就算是这家储蓄卡开户行的存款。
 
-Was the child of a slave – this is just three generations back from me.
+五、在办理公司开户时，现在不止要上门实地审查拍照，在柜台还要人脸识别，录制语音或视频等，企业到柜台办理业务还要拍照留底，且还要反复强调公司帐户或个人帐户不能借他人使用，可见现在墙内有多少人绞尽脑汁想方设法避开共产党的资金管制，银行也是想尽办法不让一分钱外流。
 
-是一名儿童奴隶 – 到我这儿是三代人
+六、现在银行工作人员服务都很好，做事也很认真，相比海关人员，税务局人员，那服务和态度完全是天壤之别。正如七哥所说的，中国老百姓没有问题，基础党员也没有问题，问题出在是共产党独裁领导，出在社会制度和体制的问题。笔者希望共产党被消灭后，这些工作人员都可以为G-Bank工作。
 
-I grew up in the segregated South, I was bused to a segregated school
+（本文纯属个人观点）
 
-我在种族隔离的南方长大，我被送往一所隔离的学校上学
-
-And on weekends the Ku Klux Klan burned crosses on lawns in our neighborhood.
-
-周末，3K党(Ku Klux Klan)在我们的邻里附近的草坪上烧了十字架
-
-When I was in high school, I was asked by a little girl for whom I babysat,
-
-当我上高中的时候，有一个小女孩问我，我是谁的保姆
-
-If I was an n-word, because her dad had used that word for me.
-
-如果我是黑奴，因为她的父亲曾用过这个词形容我
-
-I know the ugly face of racism
-
-我知道种族主义的丑陋嘴脸
-
-I lived racism. I have experienced racism.  And I survived racism.
-
-我在种族主义之中生活过。 我经历过种族主义。而且我在种族主义中幸存下来
-
-And through this process, I learned a simple truth
-
-通过这个过程，我学到了一个简单的道理
-
-Racism is not the problem of the person who experiences it.
-
-种族主义不是经历它的人的问题
-
-Those of us who experience racism cannot and should not, internalize it.
-
-我们当中那些经历种族主义的人们不能也不应将其内部化
-
-Despite the impact it can have on our everyday lives.
-
-尽管它会影响我们的日常生活
-
-We must face it down every time, no matter whom it’s directed towards.
-
-无论它是针对谁的，我们每次都必须面对它
-
-Racism is the problem of the racist, and it is the problem of the society that produces the racist-
-
-种族主义是种族主义者的问题，也是产生种族主义的社会问题
-
-and in today’s world, that is every society.
-
-在当今世界，那是每个社会的问题
-
-———————————————–
-
-英听校：    康州盘古农场 – Layka
-翻译：       康州盘古农场 – Layka
-翻译终校：康州盘古农场 – Mike Li
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发文：康州盘古农场-轰炸机
-
+审稿：文筝 编辑：五饼二鱼
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-澳喜Logo-2.jpeg)
 0
