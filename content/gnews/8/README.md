@@ -1,64 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## “打杂客”持续为CGTN唱赞歌
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1014583/)
+## 甲方乙方的默契：美国绥靖官僚给中共的“私人订制”
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1014718/)
 
-新闻来源：The National Pulse 国家脉动| 作者：NATALIE WINTERS 娜塔莉·温特斯| 发布时间：2021年3月21日
+作者：宁缺 | 校对：文明明 | 审核：万人往 | Page：青山
 
-翻译/简评：wmorpho| 校对：万人往| 审核：万人往| Page：小六月
+在3月18日至19日举行的中美高层战略对话中，杨娘娘“气势磅礴”地对美方代表团颐指气使，一扫去年夏天会见蓬佩奥时弯腰90度卑躬屈膝的模样。几句“中国人不吃这一套”、“美国没有资格”的文革式叫嚣语言，迅速成为国内舆论宣传的G点，让那些不知道自己的利益早已经被牺牲掉的小粉红们集体高潮了。一时间，中共过去几年来在贸易、科技、金融战被美国按在地上来回摩擦的事实，在几句煽动性口号的粉饰之下烟消云散，仿佛完全没发生过一样。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/2eeb4717-11f5-4cc1-aba1-21a807991957.jpg?asset_id=f8a08736-cb68-4184-a7ea-69bd8eb55c54&amp;img_etag=%2202138c22f526b1788b8b0da69b3bf103%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/2eeb4717-11f5-4cc1-aba1-21a807991957.jpg?asset_id=f8a08736-cb68-4184-a7ea-69bd8eb55c54&amp;img_etag=%2202138c22f526b1788b8b0da69b3bf103%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/oPhKHfeFu464N/images/1796e71e-950c-4c8a-9648-cdf627102e57.jpg?asset_id=e72034b6-00d7-4512-ba3d-b777dc09f0ea&amp;img_etag=%22846c4a173106b6e51ad60e04da765d6e%22&amp;size=1024)](https://spark.adobe.com/page/oPhKHfeFu464N/images/1796e71e-950c-4c8a-9648-cdf627102e57.jpg?asset_id=e72034b6-00d7-4512-ba3d-b777dc09f0ea&amp;img_etag=%22846c4a173106b6e51ad60e04da765d6e%22&amp;size=1024)
 
-**简评：**
+能让美国文职官僚如此全程配合、尽心尽力地友情演出，中共在私下究竟要付出多少“蓝金黄”的成本呢？日本《日经新闻》报道，在双方开始会议的几个小时前，中共国的国企中国国航宣布向美国奇异资本航空服务公司（GE Capital Aviation Services，Gecas）购买18架价值共计22.4亿美元的飞机，这也许只是个意向，亦或是一系列佣金订单的前戏。在国内陷入严重经济危机的“差钱”时刻，中共为了感谢对方奋力帮助自己在国内煽动民族主义情绪，不惜拱手22.4亿美金民脂民膏来导演这么一出国际宣传大戏。在了解情况的战友看来，这完全是打肿脸充胖子，但中共可能内心觉得实在是太划算了。因为胯下作为代价的奴隶虽然不吃美国那一套，但是专爱这种盲目爱国的“洗脑套餐”，毕竟“满清百年屈辱得以洗刷，中国人民真正站起来了”。
 
-世界卫生组织的“独立调查员”彼得·达扎克在将中共拒绝交出有关中共病毒起源的关键数据归咎于美国媒体之后，达扎克又开始为中共国的大外宣卖力地促销。达扎克所促销的大部分是来自中共国全球电视网（CGTN）——自由之家智库将其描述为“北京镇压工具库中的一项常备武器”，其“使命是攻击共产党认定的敌人”。达扎克称赞CGTN主持人“犀利”，采访“出色”、“诚实”，并称赞节目为“很棒”。除了称赞电视网外，他还不加批判地分享了该网站上的文章，从而进一步夸大了武汉病毒学研究所“从未泄漏病毒或感染任何人”的说法。达扎克的所言所行哪里是什么“独立调查员”，他分明是中共国的国际宣传员，他的言论已经丧失了对中共病毒调查的公正性。
+此情此景，不禁让我想起冯小刚的系列电影，《甲方乙方》和《私人订制》。美国绥靖官僚干的不正是电影里造梦公司的事情吗？只要客户给钱，一切做梦的要求都可以得到满足。你想要什么感觉就给你创造什么感觉，你想要什么高潮就给你创造什么高潮。中共抛开内忧外患、山崩地裂的现实，花钱跑到美国这个只认资本的造梦工厂为小粉红们制造“爱国主义”精神鸦片。这哪是洗刷百年耻辱，完全就是晚年满清皇室贵族耗费大量金钱享受福寿膏，醉生梦死的即视感。
 
-一个人的言行可以使自己升到天国，也可以把自己贬到地狱。中共病毒已经肆虐全球一年有余，死亡人数前所未有，对人们身心的伤害已达到极限，后续的次级灾害无法估量，这样的罪恶天理难容。达扎克不但不对中共的罪行追究责任，反而一再为中共开脱和唱赞歌，达扎克到底是人还是魔？印度的神秘主义者曾警告说：“小心！小心！从你这里说出去的东西，还要回到你这里来。” “打杂客”，你要小心了！
+然而，梦境终归是梦境，鸦片吸多了伤身，致幻的毒品吃多了丧命。中美之间互相勾结合作，只会让全世界目睹中共制造和释放病毒，让努力揭露真相的正义力量更加义愤填膺。美国军方保守势力看到一帮收钱办事、败坏美国声誉的卖美贼，估计用水杯砸电视的心都有了。中共用尽全力营造粉墨登场的盛世，最终也不过是土共王朝最后的回光返照罢了。
 
-**原文翻译：**
-
-## **世界卫生组织的“独立调查员”一直在大肆炒作中共大外宣**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/17831703-975b-42ae-bc2b-978abcaa4ea5.png?asset_id=4d1b4efd-f6e0-43a9-b812-b63c635ea95f&amp;img_etag=%225c1a3d14958c97e525660bfdec650c7f%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/17831703-975b-42ae-bc2b-978abcaa4ea5.png?asset_id=4d1b4efd-f6e0-43a9-b812-b63c635ea95f&amp;img_etag=%225c1a3d14958c97e525660bfdec650c7f%22&amp;size=1024)
-
-**最近去过中共国（调查中共病毒起源）的世界卫生组织美国调查员彼得·达扎克（Peter Daszak）在推特上一再大肆炒作中共国官方媒体机构。**
-
-促进中共国政府自我认可的“宣传”运动的达扎克，被进一步质疑作为世界卫生组织调查员的公正性。
-
-达扎克最推崇和赞扬的媒体是中国环球电视网（CGTN）——自由之家智库将其描述为“北京镇压工具库中的一项常备武器”，其“使命是攻击共产党认定的敌人”。
-
-达扎克称赞CGTN主持人“犀利”，采访“出色”、“诚实”，并称赞节目为“很棒”：
-
-[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/efb7aebe-a37c-4fed-8ba9-a442a04c5836.png?asset_id=cda50002-d7e2-40f7-bc2e-595304185c2c&amp;img_etag=%2270352ab696516238e8a289ff28a5452c%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/efb7aebe-a37c-4fed-8ba9-a442a04c5836.png?asset_id=cda50002-d7e2-40f7-bc2e-595304185c2c&amp;img_etag=%2270352ab696516238e8a289ff28a5452c%22&amp;size=1024)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/de4812b0-30ee-4bf5-a86e-b341f005c3e7.png?asset_id=55b6b9f9-da7e-4d5b-8bf5-2f67c1677623&amp;img_etag=%2244adb39883e305563c16737a2d056f75%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/de4812b0-30ee-4bf5-a86e-b341f005c3e7.png?asset_id=55b6b9f9-da7e-4d5b-8bf5-2f67c1677623&amp;img_etag=%2244adb39883e305563c16737a2d056f75%22&amp;size=1024)
-
-[视频链接](https://twitter.com/PeterDaszak/status/1044743782175051776?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1044743782175051776%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fthenationalpulse.com%2Fbreaking%2Fthe-world-health-organizations-independent-investigator-keeps-hyping-chinese-communist-propaganda-outlets%2F)
-
-除了称赞该网站，他还不加批判地分享了该网站上的文章，从而进一步夸大了武汉病毒学研究所“从未泄漏病毒或感染任何人”的说法。
-[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/6e0333ef-e41c-4705-92b1-da133814fe2d.png?asset_id=6ad3baa0-f65e-4c13-a8fa-5db03e942862&amp;img_etag=%2249db6d1e46c9024f42fa1935f85a80c8%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/6e0333ef-e41c-4705-92b1-da133814fe2d.png?asset_id=6ad3baa0-f65e-4c13-a8fa-5db03e942862&amp;img_etag=%2249db6d1e46c9024f42fa1935f85a80c8%22&amp;size=1024)
-[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/fc2a7a8a-a57b-4b71-95f2-7298a560bfdd.png?asset_id=4c62ce15-b9a2-4dc7-8520-73bb0ae6dd70&amp;img_etag=%22d36b0991adcfec0f56890d0babfa276b%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/fc2a7a8a-a57b-4b71-95f2-7298a560bfdd.png?asset_id=4c62ce15-b9a2-4dc7-8520-73bb0ae6dd70&amp;img_etag=%22d36b0991adcfec0f56890d0babfa276b%22&amp;size=1024)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/2dd88af9-dbd1-403c-8499-7d1d52d3887c.png?asset_id=582f723c-3b07-4450-ac8d-d174ccc927a5&amp;img_etag=%221d71dcbb5e4364e9c834156415c3500e%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/2dd88af9-dbd1-403c-8499-7d1d52d3887c.png?asset_id=582f723c-3b07-4450-ac8d-d174ccc927a5&amp;img_etag=%221d71dcbb5e4364e9c834156415c3500e%22&amp;size=1024)
-
-更重要的是，达扎克还赞扬了由中共国疾病预防控制中心等国营企业赞助的中共国医学杂志。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/0598d424-d83a-4c74-8a80-bdbb4a69d2f8.png?asset_id=d2e8f1d1-c110-4d66-b3fb-7fc6cbe8701f&amp;img_etag=%2232171ee492e48a913b5aab608f285d43%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/0598d424-d83a-4c74-8a80-bdbb4a69d2f8.png?asset_id=d2e8f1d1-c110-4d66-b3fb-7fc6cbe8701f&amp;img_etag=%2232171ee492e48a913b5aab608f285d43%22&amp;size=1024)
-
-达扎克最近将中共拒绝交出(有关中共病毒起源的)关键数据归咎于美国媒体：这是北京方面的一个话题。
-
-娜塔莉·温特斯（Natalie Winters）是《国家脉动》的高级记者，也是《国家脉动》电视节目的制片人。
-
-[原文链接](https://thenationalpulse.com/breaking/the-world-health-organizations-independent-investigator-keeps-hyping-chinese-communist-propaganda-outlets/)
+*文章仅代表作者观点*
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/0qxdjPJLWNvNS/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/oPhKHfeFu464N/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/oPhKHfeFu464N/images/d2d3f581-dd36-49fd-9cd7-be83370ec74e.jpg?asset_id=92d839be-4107-4988-b618-4ef19d6118ad&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
