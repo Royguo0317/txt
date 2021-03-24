@@ -1,75 +1,74 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210324（图片新闻）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1013965/)
+## 新冠源于实验室泄露是可信的
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1014550/)
 
-- 作者：2020喜马拉雅
-- 封面：透明的遮羞布
+新闻来源：《Real Clear Science》| 作者：Norman Paradis – Undark | 发布时间：2021年3月23日
+
+翻译/简评：村民彼得潘 | 校对：SilverSpurs7 | 审核：万人往 | Page：Daoiii
+
+[!\[\]()!\[\](https://spark.adobe.com/page/ygLCpFFyzm48V/images/032d22d5-e27d-4b2a-9b31-f609578c2e2f.jpg?asset_id=fda219fa-3961-4d17-b1f4-67aafebcd1e8&amp;img_etag=%22be6b3eb00c5d25e925c433506b36ee91%22&amp;size=1024)](https://spark.adobe.com/page/ygLCpFFyzm48V/images/032d22d5-e27d-4b2a-9b31-f609578c2e2f.jpg?asset_id=fda219fa-3961-4d17-b1f4-67aafebcd1e8&amp;img_etag=%22be6b3eb00c5d25e925c433506b36ee91%22&amp;size=1024)
+
+***简评：***
+
+随着Covid-19大流行，病毒来源引发诸多讨论。在甚嚣尘上的自然来源假说席卷了大众视野的当下，本文通过讲述动物园事故进行类比，旁征博引，关联武汉病毒研究所，为实验室泄露的可能性进行背书。论据分四点：其一，自然界与SARS-CoV-2最相近的毒株与大流行源头城市武汉相隔千里；其二，武毒所此前确有收集该类病毒并进行修补改造提升病毒效能的报道传出；其三，两年前美国有相关科学家对该机构进行访问并提出安全方面的警告；其四，今年世卫组织再度访问该机构，武汉地方官员对行程与访客进行了限制。
+
+文章提到了公众视野内可见的相关病毒来源的几乎所有疑点，由药学教授撰写具有一定公信力。但实验室泄露假说的最大意涵不在其本身，而在于向世人揭露病毒来自于实验室，最终导向军方参与、功能增强实验、超限生物武器等关键要点。本文从这一角度来看显然只触及了皮毛，作者持科学家严谨态度在用词上也鲜有确凿的判断。当然这也从能侧面反应出部分美国社会对于整个病毒事件的认知，一方面已经对世卫组织之流所谓权威论调持怀疑态度，一方面又一定程度上缺乏足够证据以支撑其他假说。随着沼泽地及其主人对灭共的需求日益迫切，更多相关情报与分析的流出只是时间问题，并且应该会很快。
+
+***原文翻译：***
+
+## **十足可信的实验室泄露假说**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/ygLCpFFyzm48V/images/a53256dc-3613-4e1c-8005-39745b61daae.png?asset_id=7aac1831-3645-467a-8b36-3153c50d636c&amp;img_etag=%222891fcab0bdada69a86d3712beab39ef%22&amp;size=2560)](https://spark.adobe.com/page/ygLCpFFyzm48V/images/a53256dc-3613-4e1c-8005-39745b61daae.png?asset_id=7aac1831-3645-467a-8b36-3153c50d636c&amp;img_etag=%222891fcab0bdada69a86d3712beab39ef%22&amp;size=1024)
+
+一般来说，对于任何假定有三人以上保守秘密的阴谋论，最好予以抵制。这可能就是为什么生物医学界有很大一部分人拒绝接受武汉病毒研究所（WIV）的实验室泄漏可能是SARS-CoV-2源头的推测。这一病毒导致了Covid-19新冠病毒大流行。
+
+但实验室泄漏假说并不是一个典型的阴谋论，即使事件发生的情形与它靠近武汉病毒研究所的发生地给予了这一论述初步的支持。因为病毒、蝙蝠和疫情感染的世界本质上对大多数人来说是陌生的，那么如果我用一个比喻来解释这个问题呢？
+
+比如说，一只佛罗里达美洲豹在南布朗克斯区（South Bronx）横冲直撞，伤了很多人。很有理由立即怀疑，这怎么可能发生？佛罗里达美洲豹并不住在布朗克斯区附近，而且通常不会如此凶猛。
+
+如果对动物园掌有实权的当地官员们试图掩盖或歪曲最初的发狂，或试图声称发狂发生在一个完全不同的国家，那么人们对这件事的关注可能会进一步增加。如果没有什么好隐瞒的，他们为什么要这么做呢？
+
+[!\[\]()!\[\](https://spark.adobe.com/page/ygLCpFFyzm48V/images/3a32403e-809a-4e76-aceb-cfbe4db5bbc7.jpg?asset_id=60e9ace8-656b-4d8e-82cd-2ae47a2f960f&amp;img_etag=%22bfd9ee4ecc1a3895308b1269f77002bd%22&amp;size=1024)](https://spark.adobe.com/page/ygLCpFFyzm48V/images/3a32403e-809a-4e76-aceb-cfbe4db5bbc7.jpg?asset_id=60e9ace8-656b-4d8e-82cd-2ae47a2f960f&amp;img_etag=%22bfd9ee4ecc1a3895308b1269f77002bd%22&amp;size=1024)
+
+显然，动物园的官员们会担心他们会受到指责。如果确信这只佛罗里达美洲豹不是他们的，合乎逻辑的做法将会是立即召开新闻发布会，并邀请蓝丝带委员会尽快彻查动物园。该委员会可能会确定所有的豹子都已查明身份，没有繁育计划会生出更多的动物。
+
+如果动物园的官员们做法恰恰相反——如果他们一意孤行地拒绝允许立即的独立调查——那么合乎逻辑的结论则会是，这只美洲豹来自该机构的可能性更大。
+
+“但是，等一下，”动物园官员们可以这样说，“虽然我们这里确实有佛罗里达美洲豹，但在市区造成暴乱的那只豹子，其基因组成与我们这里收容的豹子不同。”
+
+没错，这将是一个有说服力的论点。
+
+也就是说，除非有附加的调查揭示了动物园有一个这样的繁育计划，旨在研发更可怕的佛罗里达美洲豹。并且造成事故的那只豹子的基因组成事实上和动物园饲养的豹子们非常相似。
+
+如果是这样，动物园方很可能不得不让步，并允许一个外部调查组进去调查。然而，如果动物园管理员规定调查团队的人员组成需由最初试图掩盖暴乱的地方官员控制，那样仍不能令人放心。如果地方官员将调查工作拖延了近一年，那就更糟糕了——这段时间足够将所有的门锁更换并将饲养簿进行编辑修改。
+
+随着局势的失控，动物园方可能会给出最后的公关论证。“但是，等一下，”他们可能会这样说，“我们刚刚查过了，这并不是一种完全不同的美洲豹，它和那些与德州美洲狮杂交的豹子很相似。我们并没有在这里繁育它。它一定是自然繁殖的。”如果不是因为该动物园多年来一直向佛罗里达州和德克萨斯州派出采集队，这将是一段强有力的论述。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/ygLCpFFyzm48V/images/5964de5b-f2f6-46ab-8abc-d5be9d99f35e.png?asset_id=65cd7a31-d9bb-4976-844e-c1e34e5f2ca4&amp;img_etag=%22740a822dfca2e01ec9a9f320f2c8c24f%22&amp;size=1024)](https://spark.adobe.com/page/ygLCpFFyzm48V/images/5964de5b-f2f6-46ab-8abc-d5be9d99f35e.png?asset_id=65cd7a31-d9bb-4976-844e-c1e34e5f2ca4&amp;img_etag=%22740a822dfca2e01ec9a9f320f2c8c24f%22&amp;size=1024)
+
+如果后来发现，在美洲豹事故发生的两年之前，就有一个特别代表团到该动物园参观，并报告说担心安全设施不足，可能导致美洲豹逃逸，到这时，即使是有所怀疑的人也可能会被说服，这不单只是个无风不起浪的事件。
+
+当然，每个类比都有其局限性，但这一类比是建立在现实和一系列特殊巧合的基础上。武汉病毒研究所距离武汉最初的疫情爆发地约10英里（约16公里），而最接近SARS-CoV-2的天然冠状病毒变种则来自900多英里（约1450公里）外的中国西南地区。武汉病毒研究所在该地区为收集野生冠状病毒投入的努力领先全世界，据报道，他们对野生病毒进行了修补，以培育出有效的新毒株。距疫情发生两年以前，美国外交科学家访问了武汉病毒研究所，并向国务院发回措辞强烈的报告，为该所匮乏的安全条件提出警告。而且在今年早些时候，当世界卫生组织（World Health Organization）的一个代表团出访该研究所时，武汉地方官员对该团队的人员组成与访问进行了限制。
+
+虽然有朝一日我们可能会解决这个问题，但这又似乎不太可能。既然如今研究所本身可能已经被完全清理干净，唯一的解决办法就是将所有涉案的武汉病毒研究所官员及其家属安全地护送出中国，使他们能够在一个可以自由发言的环境中接受采访。这显然不可能发生。
+
+但有一件事我认为我们可以明确断言，世卫组织官员的声明，“任何东西都不太可能从这样的地方逃出来”，是大错特错的。不需要人为因素方面的专家来判别，我们就能理解，要求一个人将处理危险材料作为日常工作的一部分并持续多年，这样的情况使得安全漏洞几乎不可避免。像武汉病毒研究所这样的以政策为主导的机构，应在设立之初将墨菲定律作为一个不可回避的事实，而不是事后才想到。
+
+综合以上，Covid-19新冠病毒还是很有可能是自然外溢事件，我们应当对它没有造成几乎所有人的死亡报以谦卑姿态。但我们也不应该把实验室泄漏的可能性当作单纯的阴谋论。显然，我们对风险的预估出现了灾难性的错误，因为我们曾被多次警告。我们需要尽可能地远离新型传染病的天然宿主。
+
+NormanParadis博士是达特茅斯大学的药学教授。
+
+**🔗[原文链接](https://www.realclearscience.com/articles/2021/03/19/the_utterly_plausible_lab-leak_hypothesis_768917.html)**
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+编辑：【英国伦敦喜庄园编辑部】
 
-**西班牙2021年3月24日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/8f98a3e6-6756-4c43-9ff7-da622fa4c3da-7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/bd7b0abc-fc12-46f0-adf0-dac93405f4fd.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2d334929-e483-4be0-833e-a62d35642067.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3e74487f-b006-48e8-b995-52eed495324b.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/c1026eb2-50a0-4c85-be05-c2c4445274dd.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0d044014-8c10-4d7a-9d08-03b35ac66334.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/5f504364-77f5-4cca-aae1-26af00102f14.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e5bd564c-30d8-4fba-bfe1-31f5af252aad.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ce6532b6-46aa-4345-a37f-60cf95632226.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/6464e74b-8e94-42b0-9634-72e5972462d2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3b48ab16-173e-4bc7-aa05-0cd86f1ac6ae.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/06b1b205-74d3-4ee1-b167-dff6f42d260f.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3a38cf69-d621-4258-a2b5-47a99114b66c.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0d1bcd56-db42-4833-985b-e1a87153791b.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cf9c4a9e-c688-4a89-850c-8b5c75d28e80.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/6518344b-5b97-431d-a3f9-689446cd8fcb.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/74bca56c-7a1e-47f6-9ef9-3656b74960fc.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/16fdeeec-204d-4b31-9c9d-460125bd24f8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/fb21b8f3-296f-4557-a5bd-f466f2eb934e.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/6d58b9ce-eeb5-4144-9b47-ba3966dc14b5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d5f39f23-d6be-4962-a485-36190472ec08.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d4ba9d85-1a02-4616-ab6d-48fd9caa5607.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/dc25c3b1-f3be-4ca2-ab30-f0c9ddde26e1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2698f74d-473b-4886-a130-c7615193fc6b.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/117e06a5-c7c8-4df6-9314-c190fba4a0aa.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b9e893dd-0341-4358-8693-14c00314552d.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/53634885-0243-4df6-b225-7522ce2b6c46.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/7e0ea4a6-aaf8-4051-a875-6c7cdfe6cf40.jpg)
-
-发稿：Ranting
-
-本文观点均来自于作者，与GNEWS无关
+[!\[\]()!\[\](https://spark.adobe.com/page/ygLCpFFyzm48V/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/ygLCpFFyzm48V/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
