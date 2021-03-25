@@ -1,42 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 阿拉斯加会谈是出卖两国人民利益的政治秀
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1018966/)
+## 中共与世界全面脱钩的时刻或将到来
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1019054/)
 
-简述：郭先生在2021年3月21日的盖特视频中继续揭露中美阿拉斯加会议，是一场“羊狼为奸，出卖两国人民的大会，演戏政治大会”。可悲的是中国的羊还在欢呼雀跃。
+#### 作者：天鹅   审核：pv0 / 慧心
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-32.jpg)
+在中共国舆论强烈的抨击下，H&M集团再发声明[1]，但未提到撤销之前的声明，并强调了会遵守《经合组织负责任的商业行为准则》等类似准则(OECD Guidelines for Responsible Business Conduct)。这一声明也侧面表达了他们不会因为一些舆论而改变决定。反观中共这边的表态，官媒《环球时报》发表文章[2] H&M抵制新疆棉花惹众怒，深挖背后还有阿迪耐克等国际品牌！，中共国作为世界第二大经济体，平时以文明、开放、谦逊自居，但面对一份小小的声明反映却如此激烈，不但没有对于显出大国舆论的气度，反而煽动民族仇恨，逼各大媒体、电商、相关广告代言等群体表态。
 
-**阿拉斯加会谈是出卖两国人民利益的政治秀**
+不仅如此，中共还自作多情地在央视网发布图片集[3]我们新疆好地方！这就是咱们新疆的棉花。明眼人都知道国际制裁针对的不是新疆出产的棉花，而是中共在新疆犯下的种族灭绝、反人类罪，这和棉花的质量没有半毛钱的关系。中共一贯的混淆概念，歪曲事实，给墙内老百姓洗脑，大量“小粉红”在网络上掀起抵制浪潮，更有甚者扬言要把国外品牌都赶出中共国。
 
-**Alaska Meeting – A Meeting to Sell the Interest of the Two Nations’ People**
+瑞典的H&M品牌的声明表示认同美国对中共罪行的认定。作为国际知名品牌H&M能够在中共国巨大的市场面前做出这一决定，其背后必定有更大的力量在推动。我们回看当年香港人民游行时，有多少品牌站出来支持了呢？在中共逼迫全世界企业将“台湾”改为“中国台湾”时，又有多少企业站出来发声呢？所有战友们千万不要小看H&M的这份声明，这绝对是世界对中共制裁的开始，只要西方企业、组织遵守类似于《经合组织负责任的商业行为准则》这样的准则，那么后续必然会有更大规模的制裁到来。
 
-哎呀，共产党。刚才我发完那第一个盖特以后，说完以后很多战友都笑死了，很喜欢。是啊，它共产党就是披着羊皮的羊，像狼一样的咋呼，但是你再咋呼，你也是披着羊皮的羊，像狼一样地咋呼，而且是对着一个披着羊皮的狼咋呼。你以为那个狼就真是羊了吗？人家穿的羊皮也能给你吃了，脱了羊皮也能把你吃了，最后反正是羊，最后是狼嘴里的肉。你别咋呼。
+《环球时报》文章中写到[2]，“近两年，美西方政客针对中国涉疆议题的炒作一直没有停止。”，可见中共仍然无视美、加、英等国家的联合声明，将官方认定的种族灭绝、反人类罪扭曲为一种炒作。中共官媒这种低智商、无逻辑的解读，再一次拉底了中共官方媒体的可信度。中共一再地与全世界国家对抗，不仅在官方层面羞辱、挑衅他国，更是在网络上煽动民族仇恨、种族仇恨，绑架民意。中共最终的结果必然是被全世界抛弃，中共与世界全面脱钩的时刻或将到来。
 
-Oops, talking about the CCP,  since I sent out the first Getter just now, many fellow fighters have laughed to death. They really liked it. So, the CCP is like a sheep in sheep’s clothing. No matter how you make a fuss like a wolf, you are still a sheep in sheep’s clothing. You dared to make noise in front of a wolf. Do you really think the wolf is a sheep? A wolf can still eat you no matter if it puts on sheep’s clothing or wolf’s clothing. Eventually, sheep will be the meat in wolves’ mouths. So, don’t make too much noise.
+战友们，全球灭共正在加速进行，以毒灭共、以共灭共也在稳步推进中，中共的覆灭已成必然之势，我们呼吁更多的同胞能够认清中共邪恶的本质，早日加入爆料革命、新中国联邦，大家一起创造新中国人的美好未来！
 
-现在就是人家羊狼为奸，这叫“羊狼为奸”，阿拉斯加羊狼为奸，出卖两国人民的大会，演戏政治大会。啥都提，就不提冠状病毒，这帮孙子，啥都提，不提冠状病毒。你说你杨娘娘，你王毅你能不能不有种，你敢在美国、世界面前你提提病毒。还有美国政府官员你也有点胆量，你问问他冠状病毒。没有，你这可悲不？这叫两国大会吗？全世界的时刻在死人，时刻都在死人，你却不去提这个事情。这背后能没有交易吗？这背后能没有勾对吗？
+参考信息：
 
-Now the sheep and the wolf acted in collusion with each other in the Alaska Meeting – a meeting to sell the interest of the two nations’ people. It’s a political show. They talked about everything except for the coronavirus. These bastards! They talked about everything except for the coronavirus. Yang Jiechi and Wang Yi, do you have the balls to mention the virus in front of the US and the world? And, the US government officials, can you be a little braver and ask them about the coronavirus? No, you didn’t. How pathetic? Is this called a bilateral meeting? While the whole world is losing lives from the virus every moment, you didn’t even mention a word about it. Can there not be no deals under the table? Can there not be no collusion behind this?
+[1] H&M声明
 
-然后就是穿着羊皮的羊的共产党，学着狼一样地叫，回去告诉羊说：“你看看，我已经是狼了，所以说我可以吃掉那个穿着羊皮的狼了。”然后美国的狼回来了，穿着羊皮回来了：“你看看，是吧？我跟他特勾兑好了，羊决定下一步送给我们更多羊。”
+[https://www.hm.com.cn/](https://www.hm.com.cn/)
 
-Then, the CCP, a sheep in sheep’s clothing mimicking a wolf’s screaming, went back to tell the other sheep, “Look, I’m already a wolf, so I can eat the wolf in sheepskin.” And the American wolf also went back, wearing sheepskin, and said, “Look, I’ve made a deal with them, and the sheep will be sending us more sheep meat next.”
+[2] H&M抵制新疆棉花惹众怒，深挖背后还有阿迪耐克等国际品牌！
 
-反正吃亏的就是我们中国人草根儿，都是羊。可悲的是中国的羊还在欢呼雀跃，等待着我们穿着羊皮的羊的羊首领，将我们送上真正披着羊皮的狼，当它的盘中餐。你不信走走看。
+[https://world.huanqiu.com/article/42RXhnTzpHJ](https://world.huanqiu.com/article/42RXhnTzpHJ)
 
-No matter what, our Chinese grassroots, the sheep, are always the ones suffering. The sad thing is that Chinese sheep are still cheering, awaiting for their sheep leaders to send them to the table of wolves who were in sheep’s clothing as food. Wait and see if you don’t believe me.
+[3] 我们新疆好地方！这就是咱们新疆的棉花
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/605772fcd1608d609ea6a74b](https://gtv.org/getter/605772fcd1608d609ea6a74b) (5:12-7:30)
-鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/1000700/](https://www.gnews.org/zh-hans/1000700/)
-
-* * *
-
-字幕：【Rock小哥】校对：【BruhM】视频解码：【恒久忍耐】推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+[https://china.huanqiu.com/gallery/42RHQjy9gYW](https://china.huanqiu.com/gallery/42RHQjy9gYW)
 
 0

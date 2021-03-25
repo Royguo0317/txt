@@ -1,52 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爆料革命战友谈移民
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1018139/)
+## 慧眼看世界20210325（图片新闻）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1018086/)
 
-作者：大明 | 校对：仙女儿-文善 | 审核：宁缺 | Page: Daoiii
-
-[!\[\]()!\[\](https://spark.adobe.com/page/wg0okBoZYBHHT/images/4c33f8a3-7a3d-4c39-b077-028599d25f8c.jpg?asset_id=80f51f8c-113d-4438-91ed-4dfa730771e8&amp;img_etag=%225bb356415221b5e6a3b27a5574ac8a99%22&amp;size=1024)](https://spark.adobe.com/page/wg0okBoZYBHHT/images/4c33f8a3-7a3d-4c39-b077-028599d25f8c.jpg?asset_id=80f51f8c-113d-4438-91ed-4dfa730771e8&amp;img_etag=%225bb356415221b5e6a3b27a5574ac8a99%22&amp;size=1024)
-
-*关键词：**移民自我评估 移民谋生技能 移民国家 移民方法 中介选择 融入社会***
-
-草根小哥做节目时曾谈到墙内战友要如何花小钱，完成短平快移民。G-Club年会上郭先生为战友开出的全家移民大奖，令众多想逃离中共国的战友们兴奋不已。那么，在新中国联邦的护照颁发机制尚未成熟阶段，如何才能靠自己的力量移民至自由世界呢？在这里我想分享一些我的移民经验和心得，也可以令有需要的战友从中获得更多的移民知识。
-
-移民海外，首先要了解自己的客观条件，学历、外语水平、年龄和资金。然而这些条件都出类拔萃的人应该只占少数，大部分人面临的是要么资金不足，要么学历不够，这时候年龄就显得尤为重要了。一般来说，45岁后工签机会就会很少，移民要趁年轻，这样也减少了很多在创业初期对国内年迈父母的牵挂。所以越年轻选择的机会越多，比如半工半读留学。战友可以在日德韩等国家学习技能，这样毕业后即学会了语言也掌握了技能，和当地人同工同酬，也可以有机会自由选择职业，能更好的融入当地社会。其次就是看自己的资金状况，不同的国家有着不同的出国费用，日本一般在三、五万元以下，欧洲国家一般在四、五万元以上。澳洲工签国内中介收费在二十万元人民币以上，加拿大费用差不多，新西兰在八万元以上。而投资移民，具体要看所在国家的要求，投资移民顾名思义是要有资金，就算门槛儿再低的国家几十万元也是一定需要的。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/wg0okBoZYBHHT/images/eda673c6-1b9c-4845-af52-b411d1a69bb5.png?asset_id=b8b8d265-579a-4b15-baba-2ab61040404b&amp;img_etag=%220c8c136ce49a21f4abd057758f458bb2%22&amp;size=1024)](https://spark.adobe.com/page/wg0okBoZYBHHT/images/eda673c6-1b9c-4845-af52-b411d1a69bb5.png?asset_id=b8b8d265-579a-4b15-baba-2ab61040404b&amp;img_etag=%220c8c136ce49a21f4abd057758f458bb2%22&amp;size=1024)
-
-除了有资金可以投资移民自己开店，开公司的人，其他战友第一要考虑的是如何在国外找到工作。现实情况是很多国人来到海外以后都无法找到心仪的工作，甚至与预期相差甚远。诸如很多国内的大学生，博士在国外刚开始要洗碗刷盘子，甚至还有国内一线城市的双学位建筑工程师，为了绿卡在亲戚家餐馆打工。这个问题在欧美国家尤为显著，一般大学毕业生甚至不如国内来的厨师更容易找到工作。各国移民政策不同，很多工作需要持证上岗，还需要基本语言沟通能力。所以，如何能够肉身逃离大陆，又有信心找到合适的工作进而拿到居留权是很重要的。对口的工作机会是可遇不可求的，也就是说出国以后的工作机会不是取决于你会什么，而是取决于国外需求什么样技能的人才。曾经接触过一些有移民意愿的人，总是主观考虑自己的优势，而忽略了移民目的国对人才的真正需求。我有一个朋友想出国找一份司机的工作，因为他觉得他会开车。而客观现实是除了新加坡外，基本上很少有国家有聘用司机的习惯，而且中国驾照在欧盟和很多国家是不被认可的，结果他就是几年都无法完成移民的心愿。在选择移民目的国的时候要考虑很多因素，并不是单纯的选择一个发达国家就OK了。国家的发达程度是相对的，发达国家也不尽是天堂，比如法国的黑绿与治安问题。郭先生曾说过欧洲在几十年内本地人和外地人可能会爆发严重冲突，黑绿引发的治安问题是欧洲无法回避的难题。传统意义上的美、加、澳、新和西欧诸国都是深受追捧的移民国家，另外亚洲的日本也深受华人青睐。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/wg0okBoZYBHHT/images/8f7a0ae8-461d-4a49-a67e-b356ad984bc9.jpg?asset_id=b37bf0d0-7268-44ec-93b0-f42723a21309&amp;img_etag=%22e42a40da6ce2f6d5ebcf22c2a21589d7%22&amp;size=1024)](https://spark.adobe.com/page/wg0okBoZYBHHT/images/8f7a0ae8-461d-4a49-a67e-b356ad984bc9.jpg?asset_id=b37bf0d0-7268-44ec-93b0-f42723a21309&amp;img_etag=%22e42a40da6ce2f6d5ebcf22c2a21589d7%22&amp;size=1024)
-
-和海外华人讨论过多次，哪个国家最适合华人移民生活，答案是没有一个国家是百分百完美的。荷兰有儿童独立签证，除了其他民主国家该有的自由制度外，华人厌恶的大麻、枪支、红灯区都合法。但是就像美国一样，自由既是权利也会产生威胁。日本多发地震海啸，生活过的人都感觉生活压力太大，物价也很贵。但是日本的东西方交融的文化，以及国民的高素质，一直吸引着华人移民。移民澳洲的难点则在于对英语的要求，但是现在可以替代雅思成绩的PTE难度小了很多。如果英语好，可以自己到移民局网站查看技术移民条件，不通过中介办理就会省下很多不必要的费用。新西兰，景色优美，给人的感觉是适合养老，但是缺少了一些打拼创业的氛围，而且工资水平与澳洲相比也差得很多。加拿大，对于爆料革命的战友来说还是深有感触的。加国总理‘小土豆’严重亲共，加拿大已经俨然成为了中共国的一个省，是很多贪官污吏和盗国贼家族的移民天堂。另外值得一提是加拿大的天气，如果你对白雪皑皑的冬季情有独钟的话，那么这里倒是一个不错的移民选择。曾经的大英帝国，虽然已于今年脱欧，但是黑绿治安问题还是不容乐观。除了香港同胞有签证便利外，其他签证类型的难度还是很大的，建议考虑移民英国的朋友要做好充分的准备。而美国，虽然拜登上台后对移民政策有所缓和，但是美签的难度，了解的人都知道，它几乎是所有移民国家中难度最高的。
-
-根据全球幸福指数、全球最宜居国家以及全球教育质量的排名，很多国家都同时出现在了各项指数的前十名单中。联合国发布的2020年《世界幸福报告》，在全球156个国家和地区中，芬兰连续两年被评为“全球最幸福国家”，排名指标包括 收入、自由、社会支持、健康和寿命等。丹麦、挪威、冰岛、荷兰分别进入前五名，而芬兰的小学教育也是连续两年排名世界第一的。对比2019年的《世界幸福报告》，中国从86名下降到93名，战友们可以通过这些全球排名的指数，选择更适合自己的移民国家。但是也不能完全靠这些数据，比如冰岛，虽然幸福指数排名是前十的，但是华人数量少得可怜，只有五百多人。冰岛总人口大约三十多万，这意味着工作机会稀少，所以在不能亲身体验的情况下，多了解当地华人的感受，多了解备选移民国家的真实情况，才能避免不必要的烦恼。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/wg0okBoZYBHHT/images/3c9c3898-9056-4fa4-858b-2f922f29ae92.jpg?asset_id=6e656456-5892-4dd2-9a65-8d5d365b1a69&amp;img_etag=%222d82aead50bfffb060fbbaf62966423c%22&amp;size=1024)](https://spark.adobe.com/page/wg0okBoZYBHHT/images/3c9c3898-9056-4fa4-858b-2f922f29ae92.jpg?asset_id=6e656456-5892-4dd2-9a65-8d5d365b1a69&amp;img_etag=%222d82aead50bfffb060fbbaf62966423c%22&amp;size=1024)联合国的世界幸福榜单显示
-
-移民途径除了工签和留学外，通过合法的婚姻关系也是可以移居海外与家人团聚的。当然很多中介通过结婚造假的方式帮助客户达到移民的目的，这种违法事件在多国移民诉讼中都是屡见不鲜。中介达到了非法敛财的目的，可是等到东窗事发，受害的终是当事人。另外还有技术移民和投资移民，这两种移民方式对大部分人来讲门槛儿要略高一些，主要体现在对学历与资金的要求上。最后一种合法取得居留权的方式是申请政治庇护获得难民身份。这种方式需要申请人提供真实的材料，证明自己在中共国受到迫害，需要他国提供庇护。当然，和假结婚一样，这里也存在很多造假的情况，相信类似这样的移民漏洞也会被逐渐完善的。能够合法移民，对于大部分人来说，工签和留学应该是最普遍，最现实，也是成本最低的方式。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/wg0okBoZYBHHT/images/628d4505-a5f1-4320-969a-85db1d06dc51.jpg?asset_id=c2aa97b6-adb9-4710-8af6-11eeb1735e4d&amp;img_etag=%225785b8af3cd46b02158a675665601c4d%22&amp;size=1024)](https://spark.adobe.com/page/wg0okBoZYBHHT/images/628d4505-a5f1-4320-969a-85db1d06dc51.jpg?asset_id=c2aa97b6-adb9-4710-8af6-11eeb1735e4d&amp;img_etag=%225785b8af3cd46b02158a675665601c4d%22&amp;size=1024)移民也要唯真不破，遵守当地法律，不投机取巧
-
-在中介选择上很重要，毕竟在中共国骗子多如牛毛。中港集团上百家移民咨询公司过去害了多少人？这些机构背后都是中共高层官商勾结的邪恶勾当。切记不要以为网上找一个具有商务部资质的公司就不会被骗，那就太傻太天真了。如何找到信誉好的中介办理出国呢？第一是先看当地的实体店，然后网上多加入一些关于移民的讨论群学习经验。但是一定要有分辨真假的能力，所以掌握更多关于国外的知识就显得尤为重要了。比如骗子用的最多的招数就是推销“高薪高龄低技能，高于该国家的正常薪水”等等。这种把年龄放宽到55周岁，却几乎不要求任何技能，不需要外语能力的骗术就是抓住了大家想移民的迫切心情，以能最大程度骗到人为目的。当遇到类似的招聘信息时，就一定要格外小心了。
-
-关于移民如何融入当地社会的问题。我认识一个移民海外三十多年的高级知识分子家庭，有着体面的高薪工作、别墅、汽车、流利的外语，可还是在谈话中吐露其感受到的歧视。当然这种感受是因人而异的，但海外华人无法融入西方社会的情况是确实存在的，毕竟一代移民的文化基础与西方文化还是有很大差异的。所以期盼新中国联邦早日在海外建立属于我们自己的家园。东西方文化存在差异是不争的事实，所以除非是二代移民或是孩子几岁的时候就出国了，否则真的很难适应。比如西方的AA制、父母没有帮忙看孩子的传统、父母住养老院等等。对于很多接受中国传统文化教育的人来说，这些真的是很难被接受的。从这个角度出发，对想移民的战友来说日本也许是一个不错的选择，毕竟都是东方文化。
-
-在中共没有倒台前，新中国联邦尚未在海外建立家园之时，我想对有意愿移民的战友说，靠自己的能力逃离墙内，享受自由世界的生活，并不是不可能完成的任务。决心与努力能改变事情的结果，更能改变一个人一生的命运。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/wg0okBoZYBHHT/images/df2d85eb-e635-44f8-804a-9b198c2e5e8f.jpg?asset_id=2a460fc7-b3df-4402-bb29-44afc0e05efa&amp;img_etag=%22a5b7d979935f13863442fc6f68816e26%22&amp;size=1024)](https://spark.adobe.com/page/wg0okBoZYBHHT/images/df2d85eb-e635-44f8-804a-9b198c2e5e8f.jpg?asset_id=2a460fc7-b3df-4402-bb29-44afc0e05efa&amp;img_etag=%22a5b7d979935f13863442fc6f68816e26%22&amp;size=1024)
-
-*文章仅代表作者观点*
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+- 作者：2020喜马拉雅
+- 封面：透明的遮羞布
 
 
-编辑：【英国伦敦喜庄园编辑部】
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-[!\[\]()!\[\](https://spark.adobe.com/page/wg0okBoZYBHHT/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/wg0okBoZYBHHT/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+**西班牙2021年3月25日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
 
-+1
+![]()![](https://gnews.org/wp-content/uploads/2021/03/0c39603a-afd0-4ef5-9894-f026f6410ea0.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/e210a553-d8ba-48b5-b3bf-fec8dba6c8e8.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/e421a891-0e8d-440b-84b8-ecbb61139186.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/549dd087-80f6-4e2a-a48e-0dbe1b0961f3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/b975e6cb-fec7-4890-9d63-dfd581bc305e.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/402006e9-1593-47cc-b95f-3c3be33024bc.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/9dca30ec-32d9-4eb9-9883-99740c2ea405.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4345646d-70fe-4952-b5e1-a5cf89dd9776.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/59aecb58-e3d2-411a-bfc3-72e9a388324d.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/5fc777f6-48a0-4ee7-8cfc-e010651cb687.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/29219d03-fb90-464e-8bfb-eb801da69297.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/b915d70a-9af9-4f2b-b188-abfca2fba441.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ae3a0e8a-c5fd-4c6b-ac18-698682f86b72.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/b955d602-daad-4ae9-805c-0ceee7a99248.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/0a36188d-2024-47c0-a707-320286b46402.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3abeb573-569d-4cef-b976-a093791ded91.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/726af436-4bbb-4941-a458-4720054e4c6a.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/029209db-e868-4d13-909d-3ab576d0be91.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/42beb97a-e932-4464-9105-0f7f00381a5c.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/0b136f36-1e67-46d7-b2ba-29166313c97a.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/441d8579-8b8c-41cd-b642-e2b06dc81b20.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/d78e0278-24d1-4564-9325-3baf6a71d8eb.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ddb3d6da-686b-4b6f-a4ee-06cc98fcc73a.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/e26a290b-e6f7-4e9d-aeb5-aaca6d037bf7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/93c47f03-ef6c-41d8-adcc-f62110cfaae3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/dcf2e167-fcc2-4dcf-85d3-1ece2251d982.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/d5bcbbfe-a50c-4f6a-87c2-03a6f71cdbaf.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2d07752e-7edd-4b45-b908-d1676279b240.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cbec786a-092a-4ec2-b100-bb1c3a39dc69.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/a1f71e27-1a82-4fa2-a385-4a791929ee61.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/09f16677-7b02-4a51-a7ad-24380269bef8.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/0c50afbf-27b4-4a25-ad22-9f90cf29ff16.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/9c1fde92-f1c1-4f7c-b9f7-cc4ece864f81.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/230f2e3e-ec82-43fb-99d2-fedb61a54617.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/f637669b-ee08-4253-bcfd-898ee46d0782.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/052d8c9c-5a0e-483f-9066-0d8d4d1e4dc2.jpg)
+
+发稿：Ranting
+
+本文观点均来自于作者，与GNEWS无关
+
+0

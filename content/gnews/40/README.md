@@ -1,91 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210325（图片新闻）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1018086/)
+## 【世事解评】CCP病毒持续破坏性的后遗症
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1018062/)
 
-- 作者：2020喜马拉雅
-- 封面：透明的遮羞布
+作者：纽约香草山农场 Delilah小胖
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年3月25日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0c39603a-afd0-4ef5-9894-f026f6410ea0.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e210a553-d8ba-48b5-b3bf-fec8dba6c8e8.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e421a891-0e8d-440b-84b8-ecbb61139186.jpg)
+今天刚刚得到一个坏消息，我先生姐姐的女儿和她的男朋友，两个人在这个刚刚过去的周末被确诊感染了CCP病毒。那两个年轻人和她的父母都住在离我们很远的一个州。男方在一家医院工作——据说他很早就注射了美国产的疫苗，但上周五被确诊感染。紧接着在周末，他的女朋友也出现了严重的症状：发烧、头疼和浑身发抖，随后也被确诊感染了CCP病毒。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/549dd087-80f6-4e2a-a48e-0dbe1b0961f3.jpg)
+CCP病毒自去年年初在美国开始爆发，在听过路德社的“1·19”爆料后，我就极力在美国和墙内的亲戚朋友中广泛宣讲CCP病毒的危害，提醒亲朋好友们出门注意戴口罩和手套，并建议他们服用硫酸羟氯喹和锌片作为预防手段。但是，真正听进去的人，尤其乐意采纳这种预防疗法的人并不多。这一方面是因为，美国政府和医疗管理部门没有尽早承认硫酸羟氯喹和锌片对CCP病毒的预防作用；同时，这也跟美国本地的文化有关——美国人不太轻易向人推荐医疗方案，他们主要选择相信自己的医生。面对这样的情况，我也只能是干着急。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b975e6cb-fec7-4890-9d63-dfd581bc305e.jpg)
+自病毒爆发开始，时间过去一年多了。可以说，很长一段时间里，我有好几次在内心里祈祷和感恩：我周围的亲戚朋友（甚至邻居），都没有听说有感染上的。偶有邻居孩子的学校中零星几个病例被报告出来，也因为学校积极做好了停课和预防措施，没有造成大面积的传染和爆发。那段时间，我是多少有点忐忐忑忑、惶恐不安地过着日子，几乎每天都要去查看网络上报道出来的感染人数的变化，特别是我们本州的情况。那个时候也有点庆幸，自己的亲朋好友还算运气。但是，今天，这个运气被打破了，我认识的亲朋被CCP病毒击倒了。想想我有多恨CCP啊！CCP在全世界制造超限生物武器，危害全人类。在疫情爆发后，还掩盖疫情真相，完全不配合世界其他国家积极制止疫情蔓延，任凭全世界已经有1亿2千400万人感染，274万人死亡。单在美国，就已经有3000万人感染CCP病毒，54万4千人死亡。CCP这个用超限生物武器杀人的反人类魔王，一定要被消灭。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/402006e9-1593-47cc-b95f-3c3be33024bc.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image-370.png)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/9dca30ec-32d9-4eb9-9883-99740c2ea405.jpg)
+我先生的那个侄女，是一个在美国的注册牧师，过去曾经在医院里长期从事为病患祷告和心理咨询的工作。我们虽然仅仅见过一面，但她留给我的印象非常好。我参加过她为她哥哥主持的婚礼。当时，她穿着白色的神职服装和长到小腿的白色宽围巾，画着非常显眼的红色眼影，用神圣的仪态和爽朗的声音主持了那场完美的婚礼。我非常欣赏她的表现。侄女就是在疫情期间，才跟她现在的男朋友开始交往。没想到，如今两人双双中招，目前都在家自我隔离中。我为他们祈祷，期望他们能尽快恢复过来。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4345646d-70fe-4952-b5e1-a5cf89dd9776.jpg)
+据爆料革命和路德社的报道，CCP新冠病毒，是中共研制的超限生化武器。中共用其完美的犯罪手段，借由病毒袭击了美国，使得全美近9%的人在这一年多一点的时间里感染上CCP病毒。而且至今，疫情仍然没有停止的迹象。就美国来看，按目前的统计情况，CCP病毒的死亡率虽然只有1.8%左右，但越来越多的主流媒体开始公开报道CCP新冠病毒（COVID-19）长期潜在的严重后遗症问题。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/59aecb58-e3d2-411a-bfc3-72e9a388324d.jpg)
+《纽约时报》3月22日报道，一位感染CCP冠状病毒的幸存者，从未有过精神疾病家族史的49岁壮年男子伊万·阿格顿（Ivan Agerton），在感染后数周出现了精神病症状。患者出现幻听、幻觉和妄想症，不得不接受抗精神病和抗焦虑药物的治疗[1]。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/5fc777f6-48a0-4ee7-8cfc-e010651cb687.jpg)
+该文同时指出，在《纽约时报》去年12月发表了有关感染CCP新冠病毒（COVID-19）出现精神疾病的文章后，好几个人主动联系，表示他们本人或认识的人在感染CCP病毒后，都经历过这样的精神疾病的症状。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/29219d03-fb90-464e-8bfb-eb801da69297.jpg)
+伊万·阿格顿的精神科医生指出，偏执狂、妄想症本来更常见于青少年的精神分裂症或老年痴呆症。但到目前为止，很多年龄在30岁到50岁间的CCP病毒患者也出现了精神疾病的情况。而且截止目前，医生还无法回答因CCP病毒导致的精神健康问题是否是临时性的，以及该风险会持续多久。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b915d70a-9af9-4f2b-b188-abfca2fba441.jpg)
+另外一篇来自CNBC网站的报道表明，CCP新冠病毒对患者会有长期的影响。也就是说，即使患者能够从严重的肺炎症状中恢复过来，但仍会出现长期的COVID-19（CCP病毒）症状，包括四种或更多的神经系统症状。这些症状包括脑雾（类似痴呆症）、头痛、麻木或刺痛感，味觉和嗅觉丧失以及肌肉疼痛。而其他相关报道也提到过，COVID-19患者可能出现难以忍受的严重耳鸣，同时伴有疲劳、呼吸急促、头昏眼花等症状[2]。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ae3a0e8a-c5fd-4c6b-ac18-698682f86b72.jpg)
+报道中解释到，85%的患者经历了四种或更多的神经系统症状。美国的医疗研究人员戴维·普特里诺（David Putrino）呼吁，希望专注于帮助那些患者，并加强宣传新冠病毒（CCP病毒）破坏性后遗症的严重问题。这位研究人员在接受CNBC采访时说，COVID-19（CCP病毒）对患者的长期影响以及CCP病毒的大流行，正在改变医生对患者的治疗方式：即使是常规的诊断，医生首先也要询问病人是否感染过COVID-19（CCP病毒），以及要认真倾听患者对自身症状的描述，从而采取更有针对性的治疗措施，而不是像疫情之前对病人的治疗，用一种治疗方法和手段就能解决大部分的问题。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b955d602-daad-4ae9-805c-0ceee7a99248.jpg)
+据Barron’s报道，欧洲政要已经意识到，目前在欧洲出现的CCP病毒变种，更具致命性与传染性，而且传染性会持续更长时间[3]。但是随着夏季的到来，越来越多的人开始计划着走出家门。美国方面，各地的旅游酒店、独立屋，以及航班的预定开始火热了起来，有些旅游景区的客房预定量已经超过了疫情之前的水平[4]。老百姓对疫情已经变得麻木，但疫情潜在的再次爆发似乎指日可见。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0a36188d-2024-47c0-a707-320286b46402.jpg)
+笔者认为，当下更为重要的是，美国和全世界应该真正向人民公布CCP新冠病毒是超限生物武器这一真相——因为人民对CCP新冠病毒的致命传染性和长期危害性普遍认识不足。我们真诚期盼爆料革命郭文贵先生在其直播中提到的，美国正在草拟和准备的新冠病毒白皮书能够尽快公布出来。由此让美国人民和全世界无辜的老百姓明白到底发生了什么，从而彻底追责CCP用超限生物病毒危害世界人民的反人类罪行。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3abeb573-569d-4cef-b976-a093791ded91.jpg)
+（本文观点仅代表作者）
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/726af436-4bbb-4941-a458-4720054e4c6a.jpg)
+参考阅读：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/029209db-e868-4d13-909d-3ab576d0be91.jpg)
+1. [First Covid, Then Psychosis: ‘The Most Terrifying Thing I’ve Ever Experienced’](https://www.nytimes.com/2021/03/22/health/covid-psychosis.html)
+2. [Lingering Covid symptoms pose ‘really serious problem,’ researcher says](https://www.cnbc.com/2021/03/23/lingering-covid-symptoms-pose-really-serious-problem-researcher-says.html)
+3. [‘We Are In A New Pandemic’ Due To Virus Variant: Merkel](https://www.barrons.com/news/we-are-in-a-new-pandemic-due-to-virus-variant-merkel-01616466604?tesla=y)
+4. [Sandals Caribbean resorts sees vacation bookings outpace pre-COVID numbers](https://www.foxbusiness.com/lifestyle/sandals-caribbean-resorts-vacation-coronavirus-lifestyle-travel)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/42beb97a-e932-4464-9105-0f7f00381a5c.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0b136f36-1e67-46d7-b2ba-29166313c97a.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-g-fashion-1.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/441d8579-8b8c-41cd-b642-e2b06dc81b20.jpg)
+编辑/校对/发稿：Irene木木
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d78e0278-24d1-4564-9325-3baf6a71d8eb.jpg)
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ddb3d6da-686b-4b6f-a4ee-06cc98fcc73a.jpg)
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e26a290b-e6f7-4e9d-aeb5-aaca6d037bf7.jpg)
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/93c47f03-ef6c-41d8-adcc-f62110cfaae3.jpg)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/dcf2e167-fcc2-4dcf-85d3-1ece2251d982.jpg)
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d5bcbbfe-a50c-4f6a-87c2-03a6f71cdbaf.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2d07752e-7edd-4b45-b908-d1676279b240.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cbec786a-092a-4ec2-b100-bb1c3a39dc69.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/a1f71e27-1a82-4fa2-a385-4a791929ee61.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/09f16677-7b02-4a51-a7ad-24380269bef8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0c50afbf-27b4-4a25-ad22-9f90cf29ff16.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/9c1fde92-f1c1-4f7c-b9f7-cc4ece864f81.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/230f2e3e-ec82-43fb-99d2-fedb61a54617.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/f637669b-ee08-4253-bcfd-898ee46d0782.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/052d8c9c-5a0e-483f-9066-0d8d4d1e4dc2.jpg)
-
-发稿：Ranting
-
-本文观点均来自于作者，与GNEWS无关
 
 0

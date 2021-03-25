@@ -1,79 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国联合亚洲及欧洲盟友 共同对抗中共
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1018704/)
+## 阿拉斯加会谈是出卖两国人民利益的政治秀
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1018966/)
 
-【**翻译者】：冰糖葫芦喵**
+简述：郭先生在2021年3月21日的盖特视频中继续揭露中美阿拉斯加会议，是一场“羊狼为奸，出卖两国人民的大会，演戏政治大会”。可悲的是中国的羊还在欢呼雀跃。
 
-**【编辑】：冰糖葫芦喵、灭共文明**
+**阿拉斯加会谈是出卖两国人民利益的政治秀**
 
-据《华盛顿观察报》3月25日报道，**美国总统乔·拜登(Joe Biden)推动西方团结起来对抗中共国，这让欧洲盟友感到意外。**欧洲官员觉得拜登任期中有一股“神奇的力量”，预示着这个跨大西洋联盟表面上的激烈争议即将结束。
+**Alaska Meeting – A Meeting to Sell the Interest of the Two Nations’ People**
 
-之前，**由于2020年12月30日，中欧之间达成投资协议，使得大西洋联盟与美国川普政府在对中政策出现分歧。**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2020年12月中共与欧洲签订协议-e1616707615514.png)中共习近平视频连线和欧盟领导人及德国总理默克尔、法国总统马克龙举行会晤，中欧共同宣布完成了投资协定的谈判。图片来自路透社
-***“我们有北约******(NATO):******随着俄罗斯和中共国结盟对抗美国盟友，******21******世纪的联盟应运而生。”***
+哎呀，共产党。刚才我发完那第一个盖特以后，说完以后很多战友都笑死了，很喜欢。是啊，它共产党就是披着羊皮的羊，像狼一样的咋呼，但是你再咋呼，你也是披着羊皮的羊，像狼一样地咋呼，而且是对着一个披着羊皮的狼咋呼。你以为那个狼就真是羊了吗？人家穿的羊皮也能给你吃了，脱了羊皮也能把你吃了，最后反正是羊，最后是狼嘴里的肉。你别咋呼。
 
-美国务卿安东尼•布林肯(Antony Blinken)本周访问布鲁塞尔时表示，**除了北约外长会议外, 他将与欧盟官员就去年12月份中欧投资协定进行磋商，因为 这份协议让拜登团队感到失望**。**他们原本希望**，在中共国让维族人遭受“现代奴役”以及新疆大规模拘留营中发生的暴行之际，**欧洲官员将拒绝签署此类协议。**
+Oops, talking about the CCP,  since I sent out the first Getter just now, many fellow fighters have laughed to death. They really liked it. So, the CCP is like a sheep in sheep’s clothing. No matter how you make a fuss like a wolf, you are still a sheep in sheep’s clothing. You dared to make noise in front of a wolf. Do you really think the wolf is a sheep? A wolf can still eat you no matter if it puts on sheep’s clothing or wolf’s clothing. Eventually, sheep will be the meat in wolves’ mouths. So, don’t make too much noise.
 
-布林肯星期三对记者称，**美国把欧盟视为首要的合作伙伴，我们需共同合作推动我们的经济利益，一起对抗中共国在全世界经济和军事力量上形成的暴力胁迫，并让中共履行其在国际秩序上的承诺。**
+现在就是人家羊狼为奸，这叫“羊狼为奸”，阿拉斯加羊狼为奸，出卖两国人民的大会，演戏政治大会。啥都提，就不提冠状病毒，这帮孙子，啥都提，不提冠状病毒。你说你杨娘娘，你王毅你能不能不有种，你敢在美国、世界面前你提提病毒。还有美国政府官员你也有点胆量，你问问他冠状病毒。没有，你这可悲不？这叫两国大会吗？全世界的时刻在死人，时刻都在死人，你却不去提这个事情。这背后能没有交易吗？这背后能没有勾对吗？
 
-这一切听起来很客气，但现实很明显。一位欧洲外交官表示，欧洲官员再也没有那样一个川普可以随意摆布了，现在他们可能感到了更大的压力。
+Now the sheep and the wolf acted in collusion with each other in the Alaska Meeting – a meeting to sell the interest of the two nations’ people. It’s a political show. They talked about everything except for the coronavirus. These bastards! They talked about everything except for the coronavirus. Yang Jiechi and Wang Yi, do you have the balls to mention the virus in front of the US and the world? And, the US government officials, can you be a little braver and ask them about the coronavirus? No, you didn’t. How pathetic? Is this called a bilateral meeting? While the whole world is losing lives from the virus every moment, you didn’t even mention a word about it. Can there not be no deals under the table? Can there not be no collusion behind this?
 
-上周，国务卿布林肯和国防部长劳埃德·奥斯汀结束了首次环太平洋之旅。在他们离开白宫几天前，白宫官员公布了一项与日本、澳大利亚和印度合作的疫苗生产计划。这是蓬佩奥倡导的一个外交四方小组，中共国担心它可能成为一个“小北约”。
+然后就是穿着羊皮的羊的共产党，学着狼一样地叫，回去告诉羊说：“你看看，我已经是狼了，所以说我可以吃掉那个穿着羊皮的狼了。”然后美国的狼回来了，穿着羊皮回来了：“你看看，是吧？我跟他特勾兑好了，羊决定下一步送给我们更多羊。”
 
-布林肯和奥斯丁抵达韩国的几天前，**韩国刚刚宣布就如何分摊美军在朝鲜半岛的部署费用达成协议。**拜登的团队表明其对韩美同盟的承诺，同时**韩国同意将原来的部署费用增加了13.9%。**捍卫民主基金会高级研究员戴维·马克斯韦尔(David Maxwell)表示：“这是川普政府政府安排制定的协议，而拜登政府敲定了这笔交以而已。”
+Then, the CCP, a sheep in sheep’s clothing mimicking a wolf’s screaming, went back to tell the other sheep, “Look, I’m already a wolf, so I can eat the wolf in sheepskin.” And the American wolf also went back, wearing sheepskin, and said, “Look, I’ve made a deal with them, and the sheep will be sending us more sheep meat next.”
 
-随后，布林肯和白宫国家安全顾问杰克•沙利文(Jake Sullivan)上周在阿拉斯加举行了与中共国官员的第一轮激烈交锋，这是一场世界各地都在关注的公开争端。
+反正吃亏的就是我们中国人草根儿，都是羊。可悲的是中国的羊还在欢呼雀跃，等待着我们穿着羊皮的羊的羊首领，将我们送上真正披着羊皮的狼，当它的盘中餐。你不信走走看。
 
-**3月22日，美国、加拿大、英国和欧盟对侵犯维吾尔族穆斯林人权的中共官员实施了一系列制裁**。欧盟外长会议通过对四名中共官员以及一家机构进行制裁的决议，其范围包括禁止入境以及冻结他们的国外资产。**这是欧盟自1989年以来首次因中共侵犯人权而对中共国高官实施制裁。**随后，**中共也发动了制裁反击**，欧盟政治人物对此表示谴责，**因此中欧的投资协议命运堪忧**。
+No matter what, our Chinese grassroots, the sheep, are always the ones suffering. The sad thing is that Chinese sheep are still cheering, awaiting for their sheep leaders to send them to the table of wolves who were in sheep’s clothing as food. Wait and see if you don’t believe me.
 
-本周，中共国驻巴黎大使卢沙野在推特上发了一连串“侮辱和威胁”的帖子，激怒了法国人。当法国召见该名大使时，他却以没有时间为由拒绝了传召。法国外交使团的欧洲部长克莱门特·博恩(Clement Beaune)回应说：“法国和欧洲都不是受气包，当你作为大使被召见时，你要去一趟外交部。”
-![]()![](https://gnews.org/wp-content/uploads/2021/03/中共大使卢小野-e1616708651915.png)图片来源：网络截图
-据报，中共制裁了德国籍欧洲议会议员彼蒂科菲尔(Reinhard Bütikofer)。**德国外交部长海科·马斯(Heiko Maas)周二表示**:“我们已经向中共国驻柏林大使明确表示，批评议员和科学家的行为是绝对不可理解的。”**“当我们制裁侵犯人权时，中共制裁民主。我们不能接受这一点。”**
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/605772fcd1608d609ea6a74b](https://gtv.org/getter/605772fcd1608d609ea6a74b) (5:12-7:30)
+鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/1000700/](https://www.gnews.org/zh-hans/1000700/)
 
-**对于中共国发动的制裁反击**，欧盟政治人物对此表示谴责，并表示**欧洲议会将会回击，“没有我们欧洲议会的批准，欧中之间就不会签署什么协议。”**
+* * *
 
-**【笔者评论】**
-
-拜登政府在处理美中，美欧的关系上并没有完全颠覆川普总统任职期间的总体战略，相反，**拜登政府在上任初期就频频出招，全面执行并大力推进其前任川普总统努力制定而没能落实的各种方案。**
-
-**川普总统任职的后期**，身为国务卿的**蓬佩奥多次串访欧洲和亚洲盟国，推出更加协调一致的行动来打击中共国破坏世界秩序的行为**。但是，那时的欧洲对美国并不完全买帐，一边与美国商谈，一边与中共国达成投资协议。对美国的倡议表现出貌合神离，不时地设置各种各样地羁绊。
-
-**而今，欧洲似乎已经彻底抛弃了对中共的幻想，变消极接受为积极参与，与美方的步调相当的一致。**
-
-**究其原因，有以下几点：**
-
-**一方面，在拜登政府就任之初，**拜登的国际政策特别时对中共的政策出现过片刻的犹疑，但很快，国内的议会和刚卸任的共和党势力便对其进行讨伐和纠正，**民意觉醒已经倾向于反共抗共，**而拜登所谓的与中共国合作的一些方向（如气候环境议题）已经显得相当乏力。
-
-**美国国务卿布林肯继蓬佩奥之后**，首次出行环太平洋之旅，**加强了印太联盟的基础，对抗中共国日益强大的经济和军事力量。**在朝鲜半岛的军事部署上也取得了重大胜利，韩国最终同意增加驻韩美军费用13.9%。**美日联合声明，中共国严重违背了国际秩序**。
-
-**另一方面，川普政府在任期间，在反击中共的策略上，已经打下了坚实的基础。前国务卿蓬佩奥宣布，中共国在新疆对维吾尔族人民犯下了种族灭绝和反人类罪，彻底走上了反共、灭共的道路**。而在拜登上台之后，中共国表现出的“战狗外交“策略，恰恰印证了前任政府策略的正确性，**拜登政府这时也只能顺应美国的民意，挥起川普政府准备好的大棒砸向中共。**
-
-**如今欧洲意识到，美国拜登政府与川普总统在任期间的政策走向一致。**欧州主要国家如英、法、德等，将来一定会达成CCP病毒是中共军方的生化武器的共识。**只要美国能够发布中共病毒是生化武器的“白皮书“，再由欧洲主要国家对于这个结论背书，必定推动全世界，共同围剿中共。**
-
-**综上所述，郭文贵先生在最近的直播中已经明确指出，**在CCP病毒生化武器这个问题上，美国、欧洲、亚洲乃至全世界，最终会达成一致：**定性中共军方制造了病毒，并作为生化武器释放，以实现控制美国乃至全世界的险恶目的。**
-
-**2021年，爆料革命以毒灭共正在逐步成为现实，全球灭共的时代已经大踏步来临**。
-
-**【参考来源】**
-
-[Biden’s moves against China remind Europe it doesn’t have Trump to kick around anymore (washingtonexaminer.com)](https://www.washingtonexaminer.com/policy/defense-national-security/bidens-moves-against-china-remind-euore-it-doesnt-have-trump-kick-around-anymore)
-
-[‘We have NATO’: 21st-century coalitions emerge as Russia and China align against US allies (washingtonexaminer.com)](https://www.washingtonexaminer.com/policy/defense-national-security/21st-century-coalitions-emerge-china-russian-align-against-us-allies)
-
-[(52) 路德时评 – YouTube](https://www.youtube.com/results?search_query=%E8%B7%AF%E5%BE%B7%E6%97%B6%E8%AF%84)
-
-**【免责声明】 ** 尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-**欢迎战友加入旧金山金喜准农场**
-
-[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
-
-[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
-
-[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
-
-[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
+字幕：【Rock小哥】校对：【BruhM】视频解码：【恒久忍耐】推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
