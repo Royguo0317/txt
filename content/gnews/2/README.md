@@ -1,38 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 默克尔的道歉遗留下一个大问号
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1018493/)
+## 2021年3月25日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1018621/)
 
-```
-新闻来源：世界报
-发布时间：2021年3月23日
-记者：   罗宾·亚历山大（Robin Alexander）副总编辑
-```
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/unnamed-9-e1616701420289.jpg)封面来源：俄罗斯卫星通讯社
-总理的危机管理崩溃了。她第一次向市民道歉。在德国最高领导人中这是有争议的。这就是证明总理府的决定是彻底的无稽之谈。 甚至是是白痴。
+325：中共要脱钩了……所有国内的同胞们只能到G翻身……来买所需的真正的真货，真时尚品牌啦……文贵在这等着呢……我似乎看见乌泱乌泱来买鸡翻身的人喽。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cd0aeb2e83662d2bb38fdefa3c52e6fb.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/c4845ae2ff245dba0492939d97edf6c0.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/b664b9cb3d7b45e75972cb04c5127567.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/32796e844c36eaba34ef860f0451656d.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/387f50535a934754b151984fa2c14b11.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/18ba647e07ce0447d30f283d60e53cca.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/7ef89c2730d66893806830730c4aa82d.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/5dac7cbd82370af8a1124b0f44f2255e.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/0cfbcb5b249b87f33cba10d5970fb051.jpg)
+[【2021年3月25日】文贵先生盖特原文](https://gtv.org/getter/605ceac1d1608d609ea7a9df)
 
-这是在德国具有历史意义的一天。安琪拉·默克尔（CDU）首次在16年的总理职位上向公民道歉。该国的第一个反应是人道的：“尊重！”是社交媒体和评论员的自发表达。实际上，是承担责任被描述为榜样的行为。
-
-但是，在此过程中发生了决定性的事情，自由民主党人随后在联邦议院中提到：“您什么时候可以终止半夜闭门造车，和小圈子里做决定。 您应该与从业者，专门知识人员，各部委进行协商，来决定数以百万计的人的生活！”
-
-#### **简评：**
-
-**德国总理默克尔到今年执政已经16年。 自从病毒大流行以来， 她也在各种争议中和各州州长们举行了多次峰会， 做出的决定当然只是封城，解封， 疫苗。 在最近一次举行的峰会中， 因为重新封城的决定， 以及具体封城的措施， 使这个峰会的讨论一直持续到半夜， 并且在半夜3点发出最后的封城的决定——重新回到封锁状态， 并且在复活节期间也不例外。 同时这次封城的决定也更加严厉。 这也导致了全民反弹， 对此默克尔不得不在3月24日向全民道歉， 撤回严厉的封锁决定， 并重新商定复活节期间的封城决定！**
-
-**由此引起的大讨论已经在在野党对此峰会的极大不满， 要求默克尔不能开小会决定全民的生活方式， 等等。 这个决定的正确与否， 我们暂且不评。 我只想说， 这个可恶的病毒大流行， 已经完全超越了所有领导人的想象力， 他们根本无计可施， 即便是全国封锁期间，并没有得到控制疫情的效果。 难道这些政客们的病毒专家智囊团，就不能读一读闫博士的两份报告吗？如果你们敢于公布这个生化武器的事实报告， 政客们也许会有有效的应对措施， 那就是灭共！**
-
-**让我们耐心的等待美国有关病毒的白皮书的发布吧， 也许那个时候， 德国才如梦初醒！**
-
-**（免责声明：本文的简评只代表译者观点，跟GNEWS平台无关。）**
-
-**原文来源链接：**
-
-🔗[Merkels Entschuldigung lässt eine große Frage offen](https://www.welt.de/politik/deutschland/plus229075611/Lockdown-Ostern-Merkels-Entschuldigung-laesst-eine-grosse-Frage-offen.html)
-
-* * *
-
-**翻译整理/简评：**Shuizhuyu **审核/校对：**Ting Guo
+**喜联盟Gnews编辑部**
 
 0

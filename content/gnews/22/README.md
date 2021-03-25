@@ -1,79 +1,209 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】生死之间——武汉新冠纪实（上）
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1018114/)
+## 美国政要等每日重要信息0325.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1017388/)
 
-作者：纽约香草山 顽童2017
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-**（一）**
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0325.jpeg)图片来源：康州盘古农场 霹雳年
+### 批评拜登
 
-离过年还有一个星期，工厂被政府强令关停，这样也好，不像往年，家里不停地电话催，啥时候回家呀？过年怎么安排呀？
-
-今天是2020年1月22日，大年28，平时玩得好的几家朋友相约晚上过来喝酒，也算是拜年。快到晚餐时间的时候接到消息，因为武汉新冠肺炎，武汉市将于23日上午10点开始封城，禁止所有车辆和人员离开武汉。因为以前没有遇到过这样的事情，虽然经历过03年的SARS疫情，也没有太放在心上，想著也就是几天的事情。下午五点左右接到2个电话，朋友们都以这个肺炎疫情为理由，要求取消了这个聚会。家庭晚餐喝得挺开心，老婆准备了许多好吃的，80多岁的老奶奶、儿子以及他的女朋友，都喝了不少酒，热烈地讨论年前年后各自的安排。
-
-晚上八点左右接到叔叔电话，告诉我们第二天不要去他们家里拜年了，堂妹当天晚上要回澳大利亚。堂妹刚刚几天前从澳大利亚带孩子一起回的武汉，计划过年后初十才回澳洲的。叔叔说怕第二天离不了武汉，当天晚上她弟弟连夜开车到南昌，堂妹第二天从南昌飞香港，然后直接飞回澳洲。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/111645870_gettyimages-1195416697.jpg)
-
-收拾完残羹回到房间，我和老婆相对无语，这是怎么了？叔叔是省里的高级领导，得到封城消息并做出这样的反应，说明了问题很严重。
-
-老婆的表情很忧郁，她说：看样子你在1月1日发在群里关于武汉肺炎的消息并非是空穴来风（我是听了路德12.31日直播以后发的警告信息），但是没有想到会在临近年关的时候封城，这将给普通百姓的正常生活带来极大的不便，令人恐慌的是不知道要封多少时间。
-
-（二）
-
-晚上11点多，阳光老师突然来电话，问我们医院有没有熟人？他爱人小星发热，看第二天能不能找熟人看看，做一个核酸测试。挂了电话，心里一片恐慌，马上给人民医院的姐姐打电话，问她能不能帮忙以最快的速度做一个核酸检测，电话里的回复比现实还要冰冷：所有科室全部不接本科室病人，住院的限时出院，现在医院到处都是人，没有人能够特殊，没有任何机会特殊，没有足够的医生，没有足够的医疗资源。
-
-心凉了半截，忐忑地过了一个晚上。
-
-第二天起得比较早，其实一个晚上也没有这么睡著，第一件事就是怎么想办法尽快地可以做核算测试，咨询政府的朋友回复是：首先去社区医院初诊，首要和必须条件是37.3左右发低热多天，肺部CT检查诊断明显病变，然后由社区安排车辆送往定点医院（那个时间点武汉市大概就三家医院）做核酸测试。后来才知道，其实这是伪命题，社区医院（其实就是像早些时候的卫生室）没有足够的医生，没有足够的诊断设备，也没有足够的相关护理人员，更没有足够的车辆，而恐慌的病人已经塞满每一个可以立足的角落，也许是应对准备不充分，其实就是把几乎所有的病人拒之于这道门槛之外。
-
-心情特别沉重，尽量用平和的口气和阳光老师通了电话，安慰他应该不会有事，更大的可能只是普通感冒，为了安心建议送小星去就近的医院先做一个肺部CT，看看是什么情况？！
-
-女人就是心细，老婆问我20日晚上我们一起聚餐、一起看演出的人不会有事吧？心里一咯噔，是啊，20日中午我邀请阳光老师夫妻去我朋友闫总公司聚餐，然后小星开车送我们去另外一个酒店，因为晚上我要为一个朋友的女儿接风，参加这个晚宴的将近有二十个朋友，然后又一起去看了汇报演出。
-
-中午时分，阳光老师电话告知小星的肺部CT诊断：肺部发白，严重病变！小星继续发烧，浑身无力，呼吸困难。
-
-想办法赶紧进医院吧，打遍了所有可能的电话，回答都是没有核酸结果，医院不会接受住院或者其他进一步治疗。
-
-又过了一个不眠之夜。大年三十的天气依旧寒冷，没有烟花，也没有对联，内心恐慌不安，连基本的拜年电话也没有心情打。让人高兴的是小星可以在三医院做核酸测试了，但是检验结果要2～3天才出来，当时所有人以为得到确诊住进医院就有希望、有救了。
-
-记得小时候的正月初一，穿上妈妈亲手缝制的新衣服，口袋里装著自制的糖果，怀里揣著几毛压岁钱，就找小伙伴疯去了。每个大人们的脸上都挂满笑容，美好的生活仿佛明天就要开始。
-
-今年的正月初一屋外一片沉寂，在老婆不停的催促下，才懒洋洋地起床，心里面一片迷茫、没有方向，喝了咖啡以后，勉强打起精神给长辈们电话拜年，除了往年的新年套话，今年多加了一句：没有事不要出门。
-
-中午时分给阳光老师打电话，问小星核酸做了没有，回复是医院里里外外都是人，还在排队等。
-
-接下来群里互相发祝福信息，发红包，没有一个人提到关于新冠肺炎的事情，大家似乎都在刻意在回避这个话题。
-
-天快黑的时候，阳光老师来了信息，核酸已做，结果要等二天以后出来，一只靴子终于落地了，现在就等第二只了…
-
-（三）
-
-2个月多后一个阳光明媚的中午，阳光老师坐在我对面，一脸的疲惫，抽了2支烟以后他才打开话题：那几天找遍了各种可能帮上忙的人，每一个回答都是失望，这要是在平时是不太可能的事情，最后是同单位一个领导的女婿在三医院工作，做了大量工作，破例直接做核酸检测，绕过了社区医院这道门槛，当天做完核酸检测已经天黑了，也不敢回家，觉得在医院里心里安心一些。回家拿了一床棉被，铺在离门诊大门4～5米的右边的墙边，小星就躺在那里，持续发烧，身体像棉花一样软，讲一句话的力气都没有，始终眯著眼睛。门诊大厅和所有的走道里都是人，有站著的，有躺著的，有坐著的，没有平时的吵闹声，也看不到有医生出来走动，相对出奇的安静使人感到特别恐怖，所有人的脸上都是一脸焦急而无奈的神态。
-
-大概晚上11点左右的时候，一阵轻微的骚动，伴随著一种尽量克制的哭声，有一个病人去世了，正在往外抬，死之前没有任何喊叫的声音，无声无息。
-
-半夜里特别冷，因为要保持通风，所有的门都是敞开的，小星冷得发抖，我只能尽可能地坐在风口的位置。当凌晨二点多，第三个死亡的病人抬出去的时候，我没有前面的恐慌和寒怕了，反而有一点麻木了，到早上八点医生换班的时候，这个晚上总共抬出去8个，这个三医院在武汉也就是三流水平，挂靠一个大医院，平时就医的病人并不多。
-
-正月初二是儿子的生日，我和小星商量中午回家去陪一下儿子，然后把儿子送到姥姥家，让她在医院等。街上空无一人，冷冷清清，像是世界的末日。中午之前又回到医院，小星依然发低热，闭著眼睛不想说话，我内心万分著急，握著她的手，眼泪在眼眶里打转，一个大男人就这样的无助，无法为自己的女人做一些什么……。就这样在医院大厅的地上，又过了一个不安之夜。
-
-这个晚上抬出去7个病人，比昨天少一个，病人在去世之前基本没有接受任何治疗和抢救。
-
-按政府的规定，在确诊病人是新冠肺炎之前，医生是没有权利开处方的，更没有资格安排病人住院，和医院、社区多次协调，还有朋友的从中斡旋，政府方面终于同意可以先去隔离点隔离观察。
-
-（未完待续）
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-g-fashion-2.jpg)
+3月24日朱利安尼先生推文：“即使是自由派媒体也批评拜登政府缺少透明度。细节请收看节目《常识》。”
 
 
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+> Even LIBERAL Media SLAMS Biden Over Lack Of Transparency
+> 
+> Rudy Giuliani breaks it down, HERE: [https://t.co/s1NExR8zKj](https://t.co/s1NExR8zKj) [pic.twitter.com/dpbUnayF1L](https://t.co/dpbUnayF1L)
+> — Rudy W. Giuliani (@RudyGiuliani) [March 25, 2021](https://twitter.com/RudyGiuliani/status/1374904546988818432?ref_src=twsrc%5Etfw)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+25日瑞克-斯科特议员推文：“民主党不计后果的支出使美国债务有望达到30万亿，带来通胀上升的风险，伤害家庭与企业。我问了 @联邦储备局的开放市场委员会如何计划保护美国人和解决这一危机：https://bit.ly/3siJtcA。”
+
+
+
+> The Democrats' reckless spending has U.S. debt on track to reach $30T, posing the risk of rising inflation that hurts families & businesses. I asked the [@federalreserve](https://twitter.com/federalreserve?ref_src=twsrc%5Etfw)’s Open Market Committee how it plans to protect Americans & address this crisis: [https://t.co/oKANs1SWGs](https://t.co/oKANs1SWGs)
+> — Rick Scott (@SenRickScott) [March 25, 2021](https://twitter.com/SenRickScott/status/1375070835371823104?ref_src=twsrc%5Etfw)
+
+
+
+### 美国边境危机
+
+当日皮特-纳瓦罗博士转推参加班农战斗室的谈话，节目主题是“班农和纳瓦罗对拜登的边境危机的看法：如同圣经般重要比重的灾难”
+
+推文称：“由于 #拜登边境危机，美国城市地区和郊区的蓝领将长期受到损害，实际工资不会上涨。”
+
+
+
+> There will be long term damage to blue collar America in our urban areas and suburban areas due to the [#BidenBorderCrisis](https://twitter.com/hashtag/BidenBorderCrisis?src=hash&amp;ref_src=twsrc%5Etfw). Real wages are NOT going up. [https://t.co/iolVUTcWxB](https://t.co/iolVUTcWxB)
+> — Peter Navarro (@RealPNavarro) [March 25, 2021](https://twitter.com/RealPNavarro/status/1375107006533603336?ref_src=twsrc%5Etfw)
+
+
+
+
+
+当日众议员安迪-巴尔发推：
+
+“墨西哥总统正在陈述一个显而易见的事实：拜登总统对我们南部边境的危机负有直接责任。他取消了与中美洲国家的庇护协议，而这是川普时代的一个重大外交胜利。
+
+我们需要与这些国家重新接触，扭转造成#拜登边境危机的、拜登政府一连串灾难性的失误。”
+
+
+
+> We need to reengage with these countries and reverse a string of disastrous blunders by the Biden Administration that created the [#BidenBorderCrisis](https://twitter.com/hashtag/BidenBorderCrisis?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Rep. Andy Barr (@RepAndyBarr) [March 24, 2021](https://twitter.com/RepAndyBarr/status/1374835944940011526?ref_src=twsrc%5Etfw)
+
+
+
+
+
+### 中共式记者会
+
+3月24日朱利安尼先转发了杰森-米勒的推文。“避重就轻。就这么简单：乔-拜登会召集预先挑选的记者，提出预先筛选的问题。就这么简单。来自CNN政治的文章《三环文件夹和14号字体：拜登是如何准备新闻发布会的 》”
+
+CNN这篇文章称，拜登被问及下午即将举行的记者招待会时，轻描淡写地说“什么记者会？” 但是很多人证实拜登最近忙于准备这场记者会。
+
+拜登上任后六十多天从未举行过记者招待会，CNN表示，上任后的多次讲话都是白宫对着摄像头进行的。这次面对记者将会是多样化的。
+
+
+
+> Terrible write-up that misses the obvious. It’s this simple: Joe Biden is going to call on pre-selected reporters with pre-screened questions. It’s that simple. 
+> 
+> “Three-ring binders and 14-point font: How Biden preps for a news conference – CNNPolitics” [https://t.co/XJXRbu2L5I](https://t.co/XJXRbu2L5I)
+> — Jason Miller (@JasonMillerinDC) [March 25, 2021](https://twitter.com/JasonMillerinDC/status/1374901108737462274?ref_src=twsrc%5Etfw)
+
+
+
+
+
+### 民主党的变化
+
+3月24日众议员莫-布鲁克斯推文：“民主党和一二十年前不同了。反美社会主义者已经接管了这个政党。他们不再对美国人具有同情心，而要完全开放边境。”
+
+
+
+> The Democrat Party isn’t the same as it was a decade or two ago. Anti-American Socialists have taken over the party. They no longer have any compassion for Americans and want completely open-borders. 
+>  [https://t.co/hkouuD1wTW](https://t.co/hkouuD1wTW)
+> — Mo Brooks (@RepMoBrooks) [March 24, 2021](https://twitter.com/RepMoBrooks/status/1374761765440004096?ref_src=twsrc%5Etfw)
+
+
+
+当日众议员莫-布鲁克斯推文：“社会主义者试图破坏第二修正案的拥枪权，并夺走你的枪。他们甚至不再试图掩盖它。”
+
+
+
+> The Socialists seek to gut the Second Amendment Right to Bear Arms and take your guns. They’re aren’t even trying to hide it anymore.[https://t.co/wYOzawVVC7](https://t.co/wYOzawVVC7)
+> — Mo Brooks (@RepMoBrooks) [March 25, 2021](https://twitter.com/RepMoBrooks/status/1375092956298895365?ref_src=twsrc%5Etfw)
+
+
+
+
+
+### 黑客入侵
+
+马克卢比奥医院24日推文：“**个人或敌对政府正在瞄准（美国）地方政府。**FBI警告MAMBA RANSOMWARE被用来攻击公共交通、法律和技术服务、工业、商业、制造业和建筑业。”
+
+
+
+> Individuals or hostile governments are targeting local governments. FBI warns MAMBA RANSOMWARE being used to target public transportation, legal & technology services, industrial, commercial, manufacturing, & construction businesses. [https://t.co/76MBdgtl2K](https://t.co/76MBdgtl2K)
+> — Marco Rubio (@marcorubio) [March 24, 2021](https://twitter.com/marcorubio/status/1374815114759704589?ref_src=twsrc%5Etfw)
+
+
+
+
+
+### 在中共国做生意的教训
+
+卢比奥议员3月25日推文：“美国企业正在艰难地学习，要想在中（共）国做生意，你一般必须保持沉默，或者成为共产党犯罪的帮凶，比如在 #新疆 实施 #维吾尔族种族屠杀”
+
+
+
+> U.S. corporations are learning the hard way that to be allowed to do business in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) you generally must remain silent or become accomplices in the Communist Party’s crimes, like the [#UyghurGenocide](https://twitter.com/hashtag/UyghurGenocide?src=hash&amp;ref_src=twsrc%5Etfw) in [#Xinjiang](https://twitter.com/hashtag/Xinjiang?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Marco Rubio (@marcorubio) [March 25, 2021](https://twitter.com/marcorubio/status/1375058126685286402?ref_src=twsrc%5Etfw)
+
+
+
+
+
+### 现任国务卿布林克当日推文
+
+“针对军事政变和缅甸军方对和平示威者的持续暴力镇压，美国正在采取进一步行动，指认缅甸经济控股上市公司和缅甸经济股份有限公司。”
+
+“美国和英国一直在履行我们的承诺，继续推动对缅甸政变和暴力侵害缅甸人民的行为进行问责。我们仍然坚定不移地支持缅甸人民恢复和平与民主的努力。”
+
+
+
+> The United States and the UK have followed through on our pledges to continue promoting accountability for the coup and violence against the people of Burma. We remain steadfast in our support for the people of Burma in their efforts to restore peace and democracy. [@dominicraab](https://twitter.com/DominicRaab?ref_src=twsrc%5Etfw)
+> — Secretary Antony Blinken (@SecBlinken) [March 25, 2021](https://twitter.com/SecBlinken/status/1375093691577171976?ref_src=twsrc%5Etfw)
+
+
+
+
+
+### 新疆今昔？
+
+当日，就H&M、耐克公司抵制新疆棉花的声明恐引发更大浪潮，中共国外交部华春莹发推：
+
+“1908年的 #密西西比 对比 #2015年的新疆。
+一把猎枪和几条猎犬方阵对比笑脸和收获。有强迫劳动吗？”
+
+纽约时报记者奥斯丁回复：“‘新疆比百年前的密西西比好 ’或许不是中国外交部认为的振奋人心的依据。”
+
+
+
+> "Xinjiang: better than Mississippi a century ago" is perhaps not the rousing endorsement China's foreign ministry thinks it is [https://t.co/9vR5T8HFKe](https://t.co/9vR5T8HFKe)
+> — Austin Ramzy (@austinramzy) [March 25, 2021](https://twitter.com/austinramzy/status/1375020691532128257?ref_src=twsrc%5Etfw)
+
+
+
+
+
+### 美国对外政策
+
+白宫发言人推文：“我们很高兴地宣布通过@USAID 提供1,500万美元的人道主义援助，以满足西岸和加沙的紧急、拯救生命的粮食和健康需求。这符合美国的价值观，也是我们战胜 #COVID19 的全球承诺的一部分。”
+
+
+
+> We are pleased to announce $15 million in humanitarian assistance through [@USAID](https://twitter.com/USAID?ref_src=twsrc%5Etfw) to meet immediate, life-saving food and health needs in the West Bank and Gaza. This is consistent with American values and part of our global commitment to combat [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/MxK2fPzUcv](https://t.co/MxK2fPzUcv)
+> — Ned Price (@StateDeptSpox) [March 25, 2021](https://twitter.com/StateDeptSpox/status/1375134131059748872?ref_src=twsrc%5Etfw)
+
+
+
+### 拜登新闻记者会
+
+当日福克斯新闻：“前总统唐纳德-川普将于美国东部时间今晚10点加入 “英格拉姆视角 “节目，对乔-拜登的首次总统新闻发布会作出反应。”
+
+
+
+> Former President Donald Trump will join [@IngrahamAngle](https://twitter.com/IngrahamAngle?ref_src=twsrc%5Etfw) on “The Ingraham Angle” tonight at 10 p.m. ET with reaction to the first presidential news conference from [@JoeBiden](https://twitter.com/JoeBiden?ref_src=twsrc%5Etfw). Tune in![https://t.co/gPSkyYtn43](https://t.co/gPSkyYtn43) [pic.twitter.com/ZeJY5kO8yP](https://t.co/ZeJY5kO8yP)
+> — Fox News (@FoxNews) [March 25, 2021](https://twitter.com/FoxNews/status/1375104357012758534?ref_src=twsrc%5Etfw)
+
+
+
+### 英国王室里的辛普森计划……
+
+当日福克斯新闻：“王室专家称，查尔斯王子希望对哈里和梅根的指控‘逐点’进行回应。”
+
+
+
+> Prince Charles wanted to issue 'point by point' response to Harry and Meghan's allegations, royal expert says [https://t.co/blLX8ZAW5p](https://t.co/blLX8ZAW5p)
+> — Fox News (@FoxNews) [March 25, 2021](https://twitter.com/FoxNews/status/1375028733774548992?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
 0

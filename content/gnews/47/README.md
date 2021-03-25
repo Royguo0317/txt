@@ -1,31 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》新闻快讯（视频版）: 20210324蓬佩奥国务卿接受采访
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1017773/)
+## 乌克兰破纪录日增16669例中共病毒病例
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1017906/)
 
-《路德社》出品
-
-以下视频是详细内容：
-
-主要内容：
-
-1. 中国共产党从根本上对人权有不同的理解
-
-2. 中国共产党将这种马列滤镜后的理解称为中共国特色社会主义
-
-3.这种主义不在于人权，而在于权力、影响力、腐败以及如何让CCP获得不仅在中共国内的支配权
-
-4.呼吁现任国务院委员会聚焦如何抵抗CCP意识形态带来的威胁
+- 编辑：Victor Torres
+- 发稿：Ranting
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-翻译：路德社翻译组
+**西班牙2021年3月25日电/西喜社——**据美联社3月25日报道，乌克兰在过去24小时内报告了16669例中共病毒病例，为疫情期间最高。
 
-制作：路德社视频组
+卫生部周四表示，前一天有363人死亡，高于之前342人的记录。一些地区和该国首都已实行严格的封锁限制，以减缓病毒的传播。
 
-审核校对：玫瑰新闻组
+这个拥有4100万人口的国家已报告近160万例中共病毒确诊病例，超过3.1万人确诊死亡。
 
-上传排版：玫瑰新闻组
+![]()![](https://gnews.org/wp-content/uploads/2021/03/fdba3cad-8ff1-49c9-9fad-cc640b993058.jpg)
+
+**新闻来源：[美联社](https://apnews.com/article/pandemics-brazil-coronavirus-vaccine-sri-lanka-coronavirus-pandemic-84c8b91b1dfbee00980a265cd5a6bc6c)**
+
+![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
 
 0
