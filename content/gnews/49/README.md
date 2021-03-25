@@ -1,36 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 3/25/2021 财经快讯：美国SEC开始推出旨在退市的法规，中共科技股下跌
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1017399/)
+## 有报道称，确定了COVID-19大流行的起源地—在中国武汉两个生物战设施之间
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1017599/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Picture2-23.png)
-[图片来源](http://townnews.com)
+编译：WLQF
 
-**1.美国SEC开始推出旨在退市的法规，中共科技股下跌**
+据Lawrence Sellin, Ph.D.（劳伦斯-塞林博士），**基于中共自己的数据统计分析显示，****COVID-19****大流行的原始地点应该发生在武汉病毒研究所和中国生物技术股份有限公司武汉生物制品研究所之间的四里地居民区。**
 
-[路透社3月24日-双重上市的中共公司股价周四在亚洲大幅下跌，此前美国证券监管机构采取的措施是，如果外国公司不遵守美国的审计标准，将被踢出美国证券交易所。证券交易委员会(SEC)此举是对中共国内科技公司前所未有的监管打压的补充，理由是担心这些公司建立了扼杀竞争的市场力量。在香港，这一消息促使过去两年在香港交易所上市的美国上市中共国公司遭到大幅抛售。](https://www.reuters.com/article/us-usa-sec-foreigncompanies/u-s-sec-begins-rollout-of-law-aimed-at-delisting-chinese-firms-idUSKBN2BG2AI)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/截屏2021-03-25-下午8.59.23.png)
 
-**2.全球供应链一片混乱，一艘货船堵住了世界第二大航运运河造成雪上加霜的局面**
+**武汉病毒学研究所和武汉生物制品研究所（目前已研制出****Vero****细胞新冠肺病毒灭活疫苗。****2021****年****2****月****25****日，中共国家药品监督管理局附条件批准该疫苗的注册申请）**，这两个机构都与中共的生物战计划有关，在大流行发生之前和以来，它们一直都在疫苗开发方面进行合作。
 
-[商业内幕3月24日- 短缺和运输延迟已经给全球供应链带来了巨大的压力。由于芯片短缺和德州寒冷天气的影响，已经对几家公司造成了损失。苏伊士运河的堵塞将推动石油和进口商品价格进一步上涨。供应量的减少和需求的增加也将迫使企业将价格推高。美国民众可能会被迫面对大流行后更高的生活成本。](https://www.businessinsider.com/boat-stuck-suez-canal-latest-setback-global-supply-chain-crisis-2021-3)
+在2019年12月大流行开始后的几个月里，中国在科学文献中充斥着微妙的或不那么微妙的各种信息，支持其说法，即COVID-19是一种自然发生的疾病，从动物 “跳 “到武汉华南海鲜批发市场，最后到人类。2020年5月26日，《华尔街日报》曾报道称，中共国终于被迫承认COVID-19并非源自武汉华南海鲜批发市场，这一理论现在已经完全被否定，甚至被中国疾病预防控制中心否定。
 
-**3.独家：消息人士称，随着中共国审查范围的扩大，腾讯高层与中共反垄断官员会面**
+**然而，中共国还在继续试图掩盖****COVID-19****的来源。**甚至在今年2月份，中共还拒绝向世界卫生组织（WHO）一个探究疫情起源的团队提供早期COVID-19病例的原始数据。**当然，我们现在已经看到****WHO****已经彻底沦落为一个与中共国狼狈为奸的政治附庸，早已无法承担起联合国系统内卫生问题的指导和协调机构的职责。**
 
-[路透社3月24日-三位直接知情人士近日表示，中共最大的社交媒体和视频游戏公司腾讯控股的创始人马化腾（Pony Ma）本月与中共反垄断监督机构官员会面，讨论其集团的合规问题。这次会议是迄今为止最具体的迹象，表明中共前所未有的反垄断打击行动，从去年年底开始针对亿万富翁马云的阿里巴巴商业帝国，可能很快就会针对其他互联网巨头。](https://www.reuters.com/article/us-china-tech-antitrust-tencent-exclusiv/exclusive-tencent-boss-meets-china-antitrust-officials-as-scrutiny-widens-sources-idUSKBN2BG09L)
+中共政府试图对COVID-19起源于中国的说法提出怀疑，指出进口冷冻食品是一个渠道。可悲的是，中共政治附庸—世卫组织团队竟然同意中共的说法，将中共认为这一可疑的疫情起源解释写入其发表的充满谎言的WHO新冠病毒溯源报告。至此，WHO彻底撕下了伪装，选择与中共政府站在一起，企图期满全世界COVID-19大流行的起源。
 
-**4.因全球芯片短缺，通用汽车进一步削减北美产量**
+**然而，根据中共国自己的数据，对****COVID-19****的来源有一个简单得多、准确得多的解释。**根据武汉市卫计委公布的统计数据显示，武昌区在疫情初期确诊的COVID-19患者数量最多。同期，武昌也是无症状感染者最集中的地区。也正是如此，在2020年1月上半月，COVID-19在国际上早期传播的人群中，曾到过武昌区，但没有到过武汉华南海鲜批发市场。武汉市武昌区卫生局公布的数据称，**疫情初期感染最集中的地方是黄鹤楼街和紫阳街一带的居民区，均位于武汉市病毒研究所和武汉生物制品研究所之间的四里范围内。**
 
-[Newsmax 3月24日-由于全球范围内的半导体芯片短缺影响了汽车行业，通用汽车公司周三扩大了在北美的减产范围。去年中共病毒疫情期间，由于北美汽车厂停工两个月，芯片订单被取消。加上人们在家工作和玩电子游戏，消费电子行业的需求激增，造成芯片短缺，使得汽车制造商现在不得不抢购芯片。最近日本Renesas电子公司的一家芯片工厂发生火灾，加剧了短缺的现状。通用汽车正在评估大火造成的影响。](https://www.newsmax.com/newsfront/general-motors-chip-shortage-production-cu/2021/03/24/id/1015024/)
+这些观察结果在时间和地点上与从中共新浪微博平台上获得的社交媒体数据非常吻合，新浪微博平台旨在为那些认为可能被感染的人提供一个寻求帮助的渠道。**从该出版物中的一张图，但稍作修改，显示了武汉病毒学研究所（****WIV****，黑星）和生物制剂研究所（****BPI****，黄色方块）的位置，该图显示，****2020****年****1****月****18****日之前，求助者最集中的地方是在这两个研究机构之间的区域。需要注意的是，该区域以外的求助者较少，包括武汉华南海鲜批发市场（红圈）。**
 
-**5.美国和欧盟将就中国对话、俄罗斯挑战进行合作：声明**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/图片-1-18.png)图片来自Gateway Pundit
 
-[路透社3月24日-根据周三的一份联合声明，美国和欧盟已经同意重启对中共的双边对话，并共同应对俄罗斯的 “挑战行为”。美国国务卿安东尼-布林肯（Antony Blinken）和欧盟外交事务高级代表约瑟普-博雷尔（Josep Borrell）”承认对与中共国的关系有共同的理解，即与中共国的关系是多方面的，包括合作、竞争和系统性竞争的因素”。声明说，他们还将就互惠、经济问题、韧性、人权、安全、多边主义和气候变化等议题进行合作。](https://www.reuters.com/article/us-usa-blinken-eu/u-s-eu-to-cooperate-on-china-dialogue-russia-challenge-statement-idUSKBN2BG349)
+根据现有的科学证据，**COVID-19****病毒是**** “****获得功能**** “****研究的产物，而不是从动物宿主自然传播给人类。**增强功能研究的定义是，对天然存在的病毒进行基因或其他操作，使其具有更强的传染性、更强的杀伤力，或两者兼而有之。
 
-By 【金融组- 海奥华预言】
+Gateway Pundit发表的独家报道《确定COVID-19大流行的起源地—在中国武汉两个生物战设施之间，英文：Location of Origin of COVID-19 Pandemic Identified – Between Two of China’s Biological Warfare Facilities in Wuhan》一文中提到，进行功能增强研究的原因只有两个：一是了解病毒的结构特征和作用，以制造疫苗，应对潜在的疾病爆发；二是制造生物武器，或两者兼而有之。中共很有可能在生物战计划的框架内，同时开发一种独特的基因工程冠状病毒病原体和治疗该病的疫苗。
 
-素材搜集：文罡
+**但是，我们必须要注意的是，中共历史上没有一个疫苗研制成功****!**
 
-校对：Tracy
 
-+1
+
+> “It is most likely that China was conducting, within the framework of a biological warfare program, parallel development of a unique genetically-engineered CoV pathogen and a vaccine to treat it”
+> Note, NO vaccine is developed successfully in CCP’s history![https://t.co/LLvf5FR0h0](https://t.co/LLvf5FR0h0)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [March 24, 2021](https://twitter.com/DrLiMengYAN1/status/1374850649393881096?ref_src=twsrc%5Etfw)
+
+
+
+无论中共如何狡辩，其利用新型冠状病毒发动的“超限生物战”已经坐实，未来将会有越来越的证据出现，越来越多的科学家以及各级科学界的人士站出来揭露中共CCP病毒的真相。
+
+**新闻来源：****[Gateway Pundit](https://www.thegatewaypundit.com/2021/03/breaking-exclusive-location-origin-covid-19-pandemic-identified-two-chinas-biological-warfare-facilities-wuhan/)**
+
++5

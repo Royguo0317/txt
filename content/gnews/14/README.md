@@ -1,45 +1,91 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读中共专家呼吁网络信息空间与美国脱钩
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1018059/)
+## 慧眼看世界20210325（图片新闻）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1018086/)
 
-直播视频：
+- 作者：2020喜马拉雅
+- 封面：透明的遮羞布
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-《路德时评》2021年3月25日早间节目主要内容：
+**西班牙2021年3月25日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
 
-**·**中共专家呼吁网络信息空间与美国脱钩
+![]()![](https://gnews.org/wp-content/uploads/2021/03/0c39603a-afd0-4ef5-9894-f026f6410ea0.jpg)
 
-目前，美国有的方面坚决要与我脱钩，并欲置我于死地；有的方面试图缓脱钩、半脱钩亦可不脱钩甚至要钩得更紧。昆仑策研究院高级研究员牟承晋主任敏锐指出，我国不能不做全面脱钩的准备，不能不做突然脱钩和非突然脱钩、被动脱钩和主动脱钩、单一或局部脱钩和有计划有步骤全面脱钩的精心、充分准备。将主要观点发布如下：1、中美脱钩的大趋势已不可逆；2、网络信息空间必须准备全面脱钩、随时脱钩，并不排除主动脱钩；3、虚拟叠加网络展现和隐匿的所有不安全问题，都与基础设施网络密切相关，彻底解决基础设施网络的不安全问题极其重要。[1]
-![]()![](https://gnews.org/wp-content/uploads/2021/03/互联网.jpg)[图片地址](http://www.kunlunce.com/d/file/gcjy/zxzz11111111/2021-03-25/ed7219eacaa02522cae214985638e85d.jpg)
-路德社评论：
+![]()![](https://gnews.org/wp-content/uploads/2021/03/e210a553-d8ba-48b5-b3bf-fec8dba6c8e8.jpg)
 
-1、路德社在2018年爆料中美必将脱钩，现在中共终于承认中美脱钩趋势不可逆转，原先习总加速师以为1月20日拜登总统上台后就可以扭转中美关系，路德社当时爆料称：拜登政府上台将开启两党联合灭共的大时代。拜登总统上任至今已有两个月，川普总统颁布的中共制裁令继续发酵，中概股即将被踢出美国市场，像耐克这样的亲共生态圈企业也开始撤离中共国，现在不仅是美国，整个欧盟和日本都开始推动全面脱钩。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/e421a891-0e8d-440b-84b8-ecbb61139186.jpg)
 
-2、中共病毒的事还未开始发酵，中共已经意识到西方社会必会向中共追责，所以，中共现在开始大肆抹黑闫博士，这就是战前准备。中美脱钩大势不可逆转，人民币早晚成为一张废纸，中共现在通过操控外汇炒高人民币，然后中共盗国贼们趁机将国内资产转移到海外，国内老百姓却不能自由换汇。中共国的经济一直被王岐山掌控，国内金融界人士早已经看清习总加速师已经像脱缰的野马，想与西方一争高低，所以很多金融界人士在加紧转移资产。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/549dd087-80f6-4e2a-a48e-0dbe1b0961f3.jpg)
 
-3、中共之所以要发射北斗系统，就是想脱离美国的网络信息系统，中共为此已经做了很多年的准备。中共计划在网络信息方面建立一套新的系统与美国分庭抗礼，同时，让香港成为中共国经济秩序的中心，与纽约平起平坐，中共国再利用数字货币建立亚元区，脱离对美元体系的依赖。中共还可以利用中共病毒长期扰乱美国的经济秩序，通过冷战形式拖垮美国。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/b975e6cb-fec7-4890-9d63-dfd581bc305e.jpg)
 
-4、现在互联网的根域名在美国，但是中共已经建好了可以取代美国的根域名，到时中共能以国家安全的名义切断国内互联网对美国的依赖，所以美国才要建立太空军来应对中共国的北斗系统，美国早在几年前就已经做好灭共的全盘计划，现在就是按流程行事。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/402006e9-1593-47cc-b95f-3c3be33024bc.jpg)
 
-5、昨天，美国SEC开始全面推动让中概股退市，外国上市公司问责法案去年12月份通过实施，对应的行动方案也已经出台，现在就等着采取实际行动。强制中概股退市牵扯的最大问题就是如何让这些中概股公司还钱，目前市值最大的中概股就是阿里巴巴、腾讯和百度，如果这些公司抵赖，美国可以直接封锁这些公司的根域名，到时这些公司就变得一文不值。中共到时肯定不愿意还钱，所以他们就想着自己建立一个根域名系统，同时在香港上市继续忽悠投资者，保证这些公司在中共控制的区域内正常运营。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/9dca30ec-32d9-4eb9-9883-99740c2ea405.jpg)
 
-6、中共在可控的地缘范围之内通过光缆就能保证信息传输，不可控的地缘范围可通过北斗系统链接，以此来控制基础网络架构，华为作为实施单位在其中扮演非常重要的角色，所以华为必须有自己的服务器、交换机、光缆和电源，美国要破解中共这招必须先对华为动手。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4345646d-70fe-4952-b5e1-a5cf89dd9776.jpg)
 
-7、美国军情部门都已经看透中共的阴谋，所以从商业层面，美国的军事、粮食、美元体系、科技以及文化产业都在全面推动，从国家安全层面，美国肯定已经有能力破解中共国的根域名技术。美国军方的科技水平是普通人无法想象的，美国在二战时期就使用无线电话通信，使用雷达检测敌军情况，用图灵机破解密码，美国军队科技水平与民间差距起码四五十年。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/59aecb58-e3d2-411a-bfc3-72e9a388324d.jpg)
 
-8、中美之间的较量是全方位的较量，中共这是要挑战美国近几十年投入几十万亿建立的体系。这个地球上存在三种文化，一种是大陆农耕文化，一种是大陆游牧/畜牧文化，第三种是海洋文化，人类历史上就是这三种文化之间的较量，其中必有军事较量。海洋文化能孕育高效的协作和高质量的科技产品，海航队伍中需要专人写日志，记录每次航行的所有信息，所以整个队伍无论从产品质量、团队协作、职业素养，还是信息记录都必须有高要求，高质量，只要稍微造假都将葬送整个团队。但是在大陆农耕文化中，造假仍然有赢的机会，毛贼东就是如此，所以，不论中共的战略如何高，它的体系就已经决定不可能战胜海洋文化。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/5fc777f6-48a0-4ee7-8cfc-e010651cb687.jpg)
 
-9、当人类迈向星际文明时，这三种文化就必须互助共存，但是互助共存的前提条件就是真实，要集合社区文化，游牧文化和海洋体系文化这三种文化才能推进人类文明前进。美国定海神针的力量决定着人类前进的方向，中共现在就是人类社会前进的阻碍，所以定海神针的力量肯定会淘汰掉中共。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/29219d03-fb90-464e-8bfb-eb801da69297.jpg)
 
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/b915d70a-9af9-4f2b-b188-abfca2fba441.jpg)
 
-参考文章：
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ae3a0e8a-c5fd-4c6b-ac18-698682f86b72.jpg)
 
-[1][http://www.kunlunce.com/gcjy/zxzz11111111/2021-03-25/151250.html](http://www.kunlunce.com/gcjy/zxzz11111111/2021-03-25/151250.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/b955d602-daad-4ae9-805c-0ceee7a99248.jpg)
 
-文章撰写：【重生】  编辑：【香柏树】
+![]()![](https://gnews.org/wp-content/uploads/2021/03/0a36188d-2024-47c0-a707-320286b46402.jpg)
 
-+3
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3abeb573-569d-4cef-b976-a093791ded91.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/726af436-4bbb-4941-a458-4720054e4c6a.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/029209db-e868-4d13-909d-3ab576d0be91.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/42beb97a-e932-4464-9105-0f7f00381a5c.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/0b136f36-1e67-46d7-b2ba-29166313c97a.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/441d8579-8b8c-41cd-b642-e2b06dc81b20.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/d78e0278-24d1-4564-9325-3baf6a71d8eb.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ddb3d6da-686b-4b6f-a4ee-06cc98fcc73a.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/e26a290b-e6f7-4e9d-aeb5-aaca6d037bf7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/93c47f03-ef6c-41d8-adcc-f62110cfaae3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/dcf2e167-fcc2-4dcf-85d3-1ece2251d982.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/d5bcbbfe-a50c-4f6a-87c2-03a6f71cdbaf.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2d07752e-7edd-4b45-b908-d1676279b240.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cbec786a-092a-4ec2-b100-bb1c3a39dc69.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/a1f71e27-1a82-4fa2-a385-4a791929ee61.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/09f16677-7b02-4a51-a7ad-24380269bef8.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/0c50afbf-27b4-4a25-ad22-9f90cf29ff16.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/9c1fde92-f1c1-4f7c-b9f7-cc4ece864f81.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/230f2e3e-ec82-43fb-99d2-fedb61a54617.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/f637669b-ee08-4253-bcfd-898ee46d0782.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/052d8c9c-5a0e-483f-9066-0d8d4d1e4dc2.jpg)
+
+发稿：Ranting
+
+本文观点均来自于作者，与GNEWS无关
+
+0

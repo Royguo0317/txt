@@ -1,91 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210325（图片新闻）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1018086/)
+## 美制裁将降低美元作为世界储备货币的作用
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1018390/)
 
-- 作者：2020喜马拉雅
-- 封面：透明的遮羞布
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+编辑上传 银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-25_21-36-43.jpg)[unhashed.com](https://unhashed.com/cryptocurrency-news/what-happens-crypto-us-dollar-collapses/)
+经济学家布兰科·米兰诺维奇（Branko Milanovic）表示，制裁将降低美元作为世界储备货币的作用。他认为，美国对其他国家的大规模经济压力正在削弱对美元的信心。
 
+03月25日，美国实施的制裁使得美元在全球经济中的作用越来越小，而人冥币和欧元却越来越受欢迎。纽约市立大学斯通社会和经济不平等中心的主要研究员、伦敦经济学院教授、经济学家布兰科·米兰诺维奇在接受RBC采访时这样说。“美国在使用制裁时，没有考虑太多。就拿名单上的国家来说：委内瑞拉、伊朗、中共国，甚至欧盟，最近还有瑞士。”他列举了美国限制的国家和组织。（美国对瑞士Chimconnect AG公司实施制裁，指控该公司与发展大规模毁灭性武器的计划有联系，禁止向该公司运送任何来自美国、可用于发展或生产化学或生物武器的材料和设备）。“事实上，世界上几乎没有不受美国限制影响的国家了。在这样的环境下，人们显然不太可能把钱留在美国的银行体系中。” 经济学家说。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+米拉诺维奇认为，美元不再是安全的储蓄货币。“人们更愿意将资本储存在新加坡等地，而不是美元或美国政府债券。颇具讽刺意味的是，制裁正在削弱美元作为储备货币的作用。”这位经济学家总结道。不过，米兰诺维奇也指出，在可预见的未来，美元仍将是世界上主要的储备货币，只是其作用会有所降低。
 
-**西班牙2021年3月25日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
+2020年夏天，国际清算银行（BIS）报告称，约50%的跨境贷款和国际债券以美元计价。2020年10月，欧元在全球支付中的份额自2013年2月以来首次位居全球第一。 SWIFT服务的汇款中37.8%是欧元货币。美元略微落后，占全球支付的37.64%，以巨大的优势排在第三位的是英镑，为6.92%。2015年4月美元在国际支付中的使用量达到峰值，为45.3%。自2019年底以来，美元的使用量下降了4.6个百分点。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0c39603a-afd0-4ef5-9894-f026f6410ea0.jpg)
+米拉诺维奇的预测与其他一些经济学家的说法一致。华盛顿彼得森世界经济研究所研究员加里·霍夫鲍尔（Gary Hufbauer）也认为，未来美元作为主要储备货币的地位将受到侵蚀。他告诉《新闻周刊》，有三个因素会造成这种情况。首先是美国预算赤字不断增加。在2020财年的前8个月（从2019年10月开始），美国预算赤字升至1.9万亿美元，这加剧了其他央行对通胀上升和美元价值下降的担忧，以及对美国经济不稳定和缺乏投资资金的担忧。第二个原因是制裁，特别是对中共、伊朗和俄罗斯的制裁。最后，欧元可以与美元竞争，欧洲央行已经在采取行动挤压美元。破坏美元作为主要储备货币的地位，可能会导致与其他国家进行贸易的美国公司增加成本，并增加政府的借贷成本。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e210a553-d8ba-48b5-b3bf-fec8dba6c8e8.jpg)
+俄罗斯认为有必要摆脱美元的使用。2019年，俄罗斯对外情报局(SVR)局长谢尔盖·纳里什金(Sergey Naryshkin)称美元是现代世界经济的过时产物。他认为，当“美国表现得如此咄咄逼人，难以预测，却继续成为主要储备货币的持有者”的情况是“不正常的”。外交部副部长谢尔盖·里亚布科夫（Sergei Ryabkov）认为，由于乔·拜登领导的美国新政府正表示愿意对莫斯科实施越来越多的制裁，俄罗斯应采取紧急措施，将美元的使用减少到最低限度。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e421a891-0e8d-440b-84b8-ecbb61139186.jpg)
+俄罗斯银行正在减少美元储备。在2018年3月之前，其持有43-48%的资产为美元，之后在美国制裁收紧的情况下，大幅转向欧元和人冥币。因此，在2018年初，俄罗斯持有约1000亿美元的美国政府债券，但截至2020年10月底（美国财政部最新数据），俄罗斯只持有60亿美元。与此同时，俄罗斯银行正在增加黄金在其储备中的份额。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/549dd087-80f6-4e2a-a48e-0dbe1b0961f3.jpg)
+至于俄罗斯与其他国家贸易的货币结构，大部分交易仍以美元进行。例如，2018年，与中共国的贸易额中，以美元计价的份额为75.8%。企业更喜欢用美元和欧元进行交易，因为这些货币的波动性较小且流动性更高。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b975e6cb-fec7-4890-9d63-dfd581bc305e.jpg)
+Gazprombank战略发展中心负责人伊戈尔·苏辛（Yegor Susin）对RBC表示，美元作为主要储备货币地位退化的先决条件已经形成，但这个过程是长期性的。专家说：“全球外汇储备和美元以外的货币在全球储备中的数量正在增长，而美元所占的份额仍保持在差不多的水平。这些趋势将持续下去，包括因为近几十年来，美国经济在全球GDP中的作用大幅下降。” 苏辛补充道；“此外，当前的货币政策也让人对美国经济增长的可持续性产生怀疑。”不过，应该理解的是，鉴于美元在债市中的作用，以及在计算和定价中的作用，美元作为储备货币将在一段时间内占据主导地位，苏辛指出，“到目前为止，美元还没有明显的替代品，无论是从相关的基础设施还是从市场容量来看。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/402006e9-1593-47cc-b95f-3c3be33024bc.jpg)
+苏辛提醒，美国货币在国际结算中的作用在下降，这是一个长期趋势。他指出，近年来，包括俄罗斯在内的一些国家增加了以欧元结算的数量。然而，该专家补充说，大规模过渡到替代工具是有代价的。“在一定程度上，美元已经成为对其他国家施加影响和压力的工具。未来，如果以美元结算的成本（特别是限制风险）继续增加，其使用量可能会下降。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/9dca30ec-32d9-4eb9-9883-99740c2ea405.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4345646d-70fe-4952-b5e1-a5cf89dd9776.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/59aecb58-e3d2-411a-bfc3-72e9a388324d.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/5fc777f6-48a0-4ee7-8cfc-e010651cb687.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/29219d03-fb90-464e-8bfb-eb801da69297.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b915d70a-9af9-4f2b-b188-abfca2fba441.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ae3a0e8a-c5fd-4c6b-ac18-698682f86b72.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b955d602-daad-4ae9-805c-0ceee7a99248.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0a36188d-2024-47c0-a707-320286b46402.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3abeb573-569d-4cef-b976-a093791ded91.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/726af436-4bbb-4941-a458-4720054e4c6a.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/029209db-e868-4d13-909d-3ab576d0be91.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/42beb97a-e932-4464-9105-0f7f00381a5c.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0b136f36-1e67-46d7-b2ba-29166313c97a.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/441d8579-8b8c-41cd-b642-e2b06dc81b20.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d78e0278-24d1-4564-9325-3baf6a71d8eb.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ddb3d6da-686b-4b6f-a4ee-06cc98fcc73a.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e26a290b-e6f7-4e9d-aeb5-aaca6d037bf7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/93c47f03-ef6c-41d8-adcc-f62110cfaae3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/dcf2e167-fcc2-4dcf-85d3-1ece2251d982.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d5bcbbfe-a50c-4f6a-87c2-03a6f71cdbaf.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2d07752e-7edd-4b45-b908-d1676279b240.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cbec786a-092a-4ec2-b100-bb1c3a39dc69.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/a1f71e27-1a82-4fa2-a385-4a791929ee61.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/09f16677-7b02-4a51-a7ad-24380269bef8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0c50afbf-27b4-4a25-ad22-9f90cf29ff16.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/9c1fde92-f1c1-4f7c-b9f7-cc4ece864f81.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/230f2e3e-ec82-43fb-99d2-fedb61a54617.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/f637669b-ee08-4253-bcfd-898ee46d0782.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/052d8c9c-5a0e-483f-9066-0d8d4d1e4dc2.jpg)
-
-发稿：Ranting
-
-本文观点均来自于作者，与GNEWS无关
+参考链接：https://www.rbc.ru/politics/25/03/2021/6058936c9a79476fccc92d79
 
 0
