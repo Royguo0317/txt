@@ -1,133 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0324.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1012928/)
+## 各大国际服装品牌抵制新疆棉花引爆墙内舆论
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1015918/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
+撰稿：Gradient Boost
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image-364.png)
+图片来源：Pexels免费照片素材库；作者：Artem Beliaikin
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0324.jpeg)图片来源：康州盘古农场 霹雳年
-### 国务卿访欧
+就在北京时间3月24日夜间，瑞典服装品牌H&M的一份声明引起来墙内微博舆论的关注。该声明内容则主要与新疆目前出现的人权问题相关，H&M因此决议不再使用新疆的棉花作为原料，也不与该地区任何服装厂合作。
 
-3月24日美国现任国务卿布林肯推文：“今天美国政府官员在伊朗、俄罗斯、中国和其他紧迫问题上与法国外长、德国外交部长、和英国外长进行了良好会晤。跨大西洋关系是解决全球挑战的核心。”
+此事一出，墙内粉红们再度像打了鸡血一般开始叫嚣要求抵制，一些与H&M合作的明星代言人求生欲也是极为强烈，立马宣布解约。甚至各大互联网品牌也是闻风而动，自我审查极其到位，一晚的功夫H&M的产品就从网店中下架消失。
 
+然而今天事情似乎起了变化，原来抵制新疆棉花的品牌并非只有H&M一家，根据微博网友整理的不完全统计，抵制新疆棉花的国际服装品牌众多，其中有不少想必大家耳熟能详。运动品牌方面，有耐克、阿迪达斯、新百伦、Kappa、Puma、迪卡侬等；大型服装连锁品牌则包括Zara及优衣库等；另外还有一些并非纯服装行业的品牌，例如宜家和无印良品等。
 
+随着耐克、优衣库等品牌纷纷登上微博热搜，部分网民开始犯难了：是啊，抵制一家倒还好说，这要是全部抵制那还穿什么呢？笔者也观察了一下自己的衣柜和鞋柜，大多数休闲运动服装也都是挂着耐克、阿迪达斯的牌子，另一些服饰则都是在迪卡侬买的。现在打字过程中坐的椅子是宜家的，要是全数抵制，屋里东西说不定都要少一半。
 
-> Good meeting with French Foreign Minister [@JY\_LeDrian](https://twitter.com/JY_LeDrian?ref_src=twsrc%5Etfw), German Foreign Minister [@HeikoMaas](https://twitter.com/HeikoMaas?ref_src=twsrc%5Etfw), and UK Foreign Secretary [@DominicRaab](https://twitter.com/DominicRaab?ref_src=twsrc%5Etfw) today on Iran, Russia, China, and other pressing issues. The Transatlantic relationship is central to solving global challenges. [pic.twitter.com/2UiH3YYVMh](https://t.co/2UiH3YYVMh)
-> — Secretary Antony Blinken (@SecBlinken) [March 24, 2021](https://twitter.com/SecBlinken/status/1374513793296830464?ref_src=twsrc%5Etfw)
+当然也有网友在评论下方留言以后只穿国货，结果立刻就遭到如下吐槽：例如国产服装鞋帽造型太丑、抄袭其它品牌、穿着不舒服等等……和昨天H&M有关新闻下方整齐一致的抵制评论相差甚远。说到底，穿H&M的人可能就一部分，剩下的人基本不穿，所以站着说话不腰疼。真是到了自己喜欢的品牌例如耐克或者阿迪被推上风口浪尖，该怎么穿还是得怎么穿。
 
+事实上H&M有关新疆棉花的声明其实去年就已经发出，并不是新闻，这个时间点突然被提出或者炒成热点，不知道是否又是在为某些其它问题打掩护或者转移注意。当然也有可能是想杀鸡儆猴，让其它服装品牌都小心点，要做生意就少提新疆问题。没想到舆论把控失利，直接把所有抵制新疆棉花的品牌全部卷了进去，让诸位网民发现自己还离不开这些国际服饰，反而不好办了。
 
+笔者认为，这些大型服装品牌在抵制新疆棉花的同时，肯定也已经预测过中共国市场的反应。但是它们仍然选择抵制，当然是存在一些道义原因，不过更为重要的，是这些服装品牌意识到了中共国市场对这些国际服饰的依赖。没错，虽然许多服饰鞋帽都是“中共国生产”，然而一旦去掉上面的国际品牌logo，立刻就失去光环。结合路德先生昨日在节目中所说，如今的所谓“中共国制造”在消费者心中的分量，真还不如一百多年以前大清国产的瓷器和绸缎呢。
 
+（本文纯属个人观点）
 
+审核及编辑：cindy
 
-### 保卫宪法拥枪权
+新闻参考链接：
 
-参议员莫-布鲁克斯23日推文：“乔-拜登、南希-佩洛西和查克-舒默试图破坏我们的第二修正案的持枪权。拜登政府和社会主义民主党的目标是把守法公民变成罪犯。我将与所有社会主义者削弱我们第二修正案权利的努力作斗争。”
+[搜狐新闻](https://www.sohu.com/a/457187477_162522)（中共国墙内媒体）
 
-
-
-> Joe Biden, Nancy Pelosi, and Chuck Schumer seek to gut our Second Amendment Right to Bear Arms. The goal of the Biden Admin. and Socialist Dems is to make criminals out of law abiding citizens. I will fight all Socialist efforts to weaken our Second Amendment rights. [pic.twitter.com/aOQ1zRQ1t4](https://t.co/aOQ1zRQ1t4)
-> — Mo Brooks (@RepMoBrooks) [March 23, 2021](https://twitter.com/RepMoBrooks/status/1374497184197062656?ref_src=twsrc%5Etfw)
-
-
-
-### 抵制2022北京冬奥
-
-23日参议员斯科特推文：“不能给习总书记一个粉饰罪行的平台。今天，我给奥委会发信，呼吁他们站在自由和人权的立场上，和我一起呼吁把2022年奥运会搬出共产党统治的中国。”
-
-
-
-> General Secretary Xi can’t be given a platform to whitewash his crimes. Today, I sent a letter to [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw) sponsors calling on them to stand up for freedom and human rights and join my call to move the 2022 Olympic Games out of Communist China: [https://t.co/I0cCubwmv8](https://t.co/I0cCubwmv8)
-> — Rick Scott (@SenRickScott) [March 23, 2021](https://twitter.com/SenRickScott/status/1374443469389791234?ref_src=twsrc%5Etfw)
-
-
-
-### 内心有国家和军人吗？
-
-3月24日，福克斯新闻称 “副总统哈里斯在空军二号上屡次不敬军礼，打破先例”
-
-
-
-> VP Harris repeatedly fails to salute military on Air Force Two, breaking with precedent [https://t.co/ToAd7T6din](https://t.co/ToAd7T6din)
-> — Fox News (@FoxNews) [March 24, 2021](https://twitter.com/FoxNews/status/1374514885279707144?ref_src=twsrc%5Etfw)
-
-
-
-### 反抗拜登涨税
-
-23日Just the News 推文：“就业创造者网说‘天呐，绝不！’‘这不在我们的监督之下！’。对小企业加税的想法说不！”
-
-小议：拜登欲对美国人取消拥枪权，对小企业主这样的中产阶层加征税收，都是在一步步削弱有经济基础、又有传统道德观和正义良知的人，本质上是在配合中共的3F计划。
-
-
-
-> ‘HELL NO! NOT ON OUR WATCH!’: Job Creators Network says no to the idea of small business tax hikes [#JustTheNews](https://twitter.com/hashtag/JustTheNews?src=hash&amp;ref_src=twsrc%5Etfw) [@alexnitzberg](https://twitter.com/alexnitzberg?ref_src=twsrc%5Etfw) [@JobCreatorsUSA](https://twitter.com/JobCreatorsUSA?ref_src=twsrc%5Etfw) [https://t.co/32uFiM3yQu](https://t.co/32uFiM3yQu)
-> — Just the News (@JustTheNews) [March 24, 2021](https://twitter.com/JustTheNews/status/1374526266964070400?ref_src=twsrc%5Etfw)
-
-
-
-### 不明飞行物（UFO）
-
-前五角大楼项目负责人称：“UFO报告将是令人信服的。”
-
-
-
-> Former Pentagon program chief: UFO report will be compelling [https://t.co/ojrjYQacTj](https://t.co/ojrjYQacTj)
-> — Newsmax (@newsmax) [March 24, 2021](https://twitter.com/newsmax/status/1374588039947751425?ref_src=twsrc%5Etfw)
-
-
-
-### 军事
-
-“美国军队正处于过去40年中最重要的转型之中。”
-
-
-
-> The [@USArmy](https://twitter.com/USArmy?ref_src=twsrc%5Etfw) is in the middle of the most significant transformation in the past 40 years. 
-> 
-> Read more: [https://t.co/YXxEKVZb0w](https://t.co/YXxEKVZb0w)[#People](https://twitter.com/hashtag/People?src=hash&amp;ref_src=twsrc%5Etfw) | [#Modernization](https://twitter.com/hashtag/Modernization?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YYrYl8kqUv](https://t.co/YYrYl8kqUv)
-> — U.S. Army Reserve (@USArmyReserve) [March 24, 2021](https://twitter.com/USArmyReserve/status/1374692481082793984?ref_src=twsrc%5Etfw)
-
-
-
-“‘热带愤怒’给飞行员和士兵提供了展示他们 “立即准备 “能力的机会。”
-
-
-
-> Tropic Fury gave [#Airmen](https://twitter.com/hashtag/Airmen?src=hash&amp;ref_src=twsrc%5Etfw) and [#Soldiers](https://twitter.com/hashtag/Soldiers?src=hash&amp;ref_src=twsrc%5Etfw) the opportunity to demonstrate their "Ready Now" capabilities. More photos at the link! [@15thWing](https://twitter.com/15thWing?ref_src=twsrc%5Etfw)[https://t.co/TVbiZv3cXg](https://t.co/TVbiZv3cXg) [pic.twitter.com/wB1lV2rZpR](https://t.co/wB1lV2rZpR)
-> — PACAF (@PACAF) [March 19, 2021](https://twitter.com/PACAF/status/1372925075024871432?ref_src=twsrc%5Etfw)
-
-
-
-
-
-### 美国边境危机
-
-24日媒体人汉尼迪发推：“拜登边境停电，在笼子里藏了几千名儿童。”
-
-
-
-> Biden Border Blackout Hides Thousands Of Kids In Cages [https://t.co/BI0I7u13UD](https://t.co/BI0I7u13UD)
-> — Sean Hannity (@seanhannity) [March 24, 2021](https://twitter.com/seanhannity/status/1374692478348111873?ref_src=twsrc%5Etfw)
-
-
-
-
-
-24日汉尼迪发推：“拜登政府要花费8600万给非法移民居住旅店。”
-
-
-
-> Biden Admin To Spend $86 Million On Hotels For Illegal Immigrants [https://t.co/rPQL7RKpAh](https://t.co/rPQL7RKpAh)
-> — Sean Hannity (@seanhannity) [March 24, 2021](https://twitter.com/seanhannity/status/1374694426589720577?ref_src=twsrc%5Etfw)
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
-
-0
+[德国之声](https://www.dw.com/zh/%2525E8%2525BF%25259C%2525E7%2525A6%2525BB%2525E6%252596%2525B0%2525E7%252596%252586%2525E4%2525BE%25259B%2525E5%2525BA%252594%2525E9%252593%2525BE-hm%2525E5%25259C%2525A8%2525E4%2525B8%2525AD%2525E5%25259B%2525BD%2525E9%252581%2525AD%2525E6%25258A%2525B5%2525E5%252588%2525B6/a-56976416)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-澳喜Logo-3.jpeg)
++3
