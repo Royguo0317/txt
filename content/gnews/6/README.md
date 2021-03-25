@@ -1,133 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0324.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1012928/)
+## Intel宣布将盖2座晶圆代工厂会影响台积电吗?
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1015516/)
 
-**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
+作者:台湾准农场 樱桃的奇幻之旅
+![]()![](https://gnews.org/wp-content/uploads/2021/03/photo325-1.jpg)图片来源:[经济日报](https://money.udn.com/money/story/12926/5341974)
+美国Intel(英特尔)新执行长:盖尔辛格(Pat Gelsinger)在美国周二(3/23日)股巿盘后宣布启动IDM 2.0战略计画，将斥资200亿美元在亚利桑那州Ocotillo园区建两家新晶片厂代工业务(Intel Foundry Services，IFS)，预计在2024年投产。新厂将以生产7奈米或更先进制程晶片及代工，产能承诺给美国及欧洲客户，公司同时宣称部份晶片外包。该公司称，将与IBM成立合作伙伴关系，以改善逻辑晶片和封装技术，这将增强美国半导体产业的竞争力，并支持美国政府。
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0324.jpeg)图片来源：康州盘古农场 霹雳年
-### 国务卿访欧
+台积电为全球最大晶圆代工龙头厂，在台北时间3/23日开盘时股价受此消息冲击，股价下跌新台币18元收在576元，跌幅达3.03%，创2个多月新低，巿值缩水4,667亿元，达14.93兆元，并影响台股当日大盘指数153点。
 
-3月24日美国现任国务卿布林肯推文：“今天美国政府官员在伊朗、俄罗斯、中国和其他紧迫问题上与法国外长、德国外交部长、和英国外长进行了良好会晤。跨大西洋关系是解决全球挑战的核心。”
+## **半导体产业有三大商业模式：IDM，Fabless及Foundry**
 
+IDM：公司指从IC设计，制造到销售的垂直整合。 Intel即属于IDM厂。
 
+Fabless(无厂)：公司专注于IC设计。
 
-> Good meeting with French Foreign Minister [@JY\_LeDrian](https://twitter.com/JY_LeDrian?ref_src=twsrc%5Etfw), German Foreign Minister [@HeikoMaas](https://twitter.com/HeikoMaas?ref_src=twsrc%5Etfw), and UK Foreign Secretary [@DominicRaab](https://twitter.com/DominicRaab?ref_src=twsrc%5Etfw) today on Iran, Russia, China, and other pressing issues. The Transatlantic relationship is central to solving global challenges. [pic.twitter.com/2UiH3YYVMh](https://t.co/2UiH3YYVMh)
-> — Secretary Antony Blinken (@SecBlinken) [March 24, 2021](https://twitter.com/SecBlinken/status/1374513793296830464?ref_src=twsrc%5Etfw)
+Foundry晶圆代工：公司专注于制造生产，台积电为全球晶圆代工厂的龙头。 .
 
+IDM公司本身为了降低制造成本或将低毛利的产品等并会以委外制造，以降低资本支出，而公司本身可以专注在高毛利产品。 Intel宣称要建两2座新的晶圆代工厂将以先制程为客户做整合服务。而Intel的IDM 2.0,即是代工一条龙服务，替客户做客制化的晶圆代工+IP(矽智财)+封测。
 
+## **Intel先进制程目前落后台积两个世代，现在急起直追**
 
+台积电目前最先进制程5奈米今年开始量产，3奈米将于2022年开始量产，而Intel 7奈米(相当于台积电的5奈米)将在2022年量产，落后台积电两个世代。
 
+虽然Intel在当时10奈米走了一段冤枉路，没导入EUV（极紫外光刻）技术，导致良率不顺产能不足影响供货状况，并且制造技术落后台积电。目前公司调整方向，开始采用EUV生产正在急起直追。另外，Intel也拥有许多优秀人材外及美国半导体产业人材济济，新的CEO本身为技术人员，Intel大象转身需要一段时间，公司产品定位在高单价产品上配合美国半导体的产业链完整，就近服务客户，公司将会在很快时间内进入状况。
 
-### 保卫宪法拥枪权
+## **Intel代工产品跟台积电不同，主要以HPC高效能运算，通讯，ＡＩ及绘图等晶片组**
 
-参议员莫-布鲁克斯23日推文：“乔-拜登、南希-佩洛西和查克-舒默试图破坏我们的第二修正案的持枪权。拜登政府和社会主义民主党的目标是把守法公民变成罪犯。我将与所有社会主义者削弱我们第二修正案权利的努力作斗争。”
+Intel除了生产自有CPU外，公司主要以”高效能运算”HPC(High Performance Computing)，国防设计晶片及代工服务等为主要未来方向。由于伺服器(Server)电脑机台主要客户：美国许多大公司如FaceBook，Microsoft，Amazon，Google等公司，每年采购伺服机台数量及金额均很庞大。而伺服机台里的主机板的CPU大部份均以Intel CPU为主要架构，各家公司为了发展或加强自己伺服机的”加速运算能力”或”AI智能学习特殊”等功能，自行开发设计”特殊加速功能”等小IC晶片来辅助Intel的CPU达到HPC高效运算功能。
 
+若Intel未来新的2座先进制程代工厂建立，可专为这些大客户客制化独有的产品(因为他们的量够大)。例如为客户独自开发一些”特殊AI运算速度快的功能模组”可以整合在原来Intel的CPU架构，而客户可以减少开发时间及金额等，未来的诸如此类的代工一条龙业务。
 
+另外，最主要在国防方面，可以在美国内与军方合作或为军方开发特殊国防武器晶片的产品，而不必有委外制造的风险。
 
-> Joe Biden, Nancy Pelosi, and Chuck Schumer seek to gut our Second Amendment Right to Bear Arms. The goal of the Biden Admin. and Socialist Dems is to make criminals out of law abiding citizens. I will fight all Socialist efforts to weaken our Second Amendment rights. [pic.twitter.com/aOQ1zRQ1t4](https://t.co/aOQ1zRQ1t4)
-> — Mo Brooks (@RepMoBrooks) [March 23, 2021](https://twitter.com/RepMoBrooks/status/1374497184197062656?ref_src=twsrc%5Etfw)
+## **全球晶片制程过度集中在亚洲**
 
+目前全球晶片制造相当依赖亚洲大厂，欧美国家期待自己能拥有制造晶片能力，另外，目前中共对台湾的文攻武赫，若是两岸发生战争，全球晶片将会遭受重大影响，尤其台积电为许多重要客户及国防晶片代工生产，产业过度集中在台湾也有风险。 Intel投入新代工厂给予欧美国家有多选项，美国总统拜登先前曾表示，国内半导体制造是政府当务之急，希望能解决晶片短缺问题，并解决外界担忧制造外包使美国更容易受到供应链中断的影响。
 
+Intel宣布扩充晶片制造的能力也获得许多美国大厂的支持，包含Microsoft， Qualcomm(高通)，Cisco(思科)系统及亚马逊等厂商都支持英特尔的决定。
 
-### 抵制2022北京冬奥
+## **美国政府大力支持-半导体是国力的象征**
 
-23日参议员斯科特推文：“不能给习总书记一个粉饰罪行的平台。今天，我给奥委会发信，呼吁他们站在自由和人权的立场上，和我一起呼吁把2022年奥运会搬出共产党统治的中国。”
+美国发展经济复苏及基础建设，半导体企业要求政府提供资金挹注，Intel为美国最先进的IDM厂如今宣布将投资晶圆代工厂，就近支援国内客户，将制造业留在国内，政府大力的支持，而Intel更坚定在IC设计，制造及外包一手包办的企图心，新建2座大厂预计创造超过3000个常设高科技、高薪职位，与约15,000个长期当地工作。政府于国内改善半导体制造的目标，其新晶圆厂将采用先进的制程，这将增强美国半导体产业的竞争力。
 
+## **台积电短期内不受影响**
 
+台积电的优势，除了技术领先竞争者，主要客户产品以消费性产品为主及产品线广泛，例如:手机，伺服机，HPC，车载，电脑及笔记型电脑等，适合走降低成本的大量产品，与Intel主要以高单价产品为主有所区隔，或许有些产品客户有重疉，但客户自会有策略考量。
 
-> General Secretary Xi can’t be given a platform to whitewash his crimes. Today, I sent a letter to [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw) sponsors calling on them to stand up for freedom and human rights and join my call to move the 2022 Olympic Games out of Communist China: [https://t.co/I0cCubwmv8](https://t.co/I0cCubwmv8)
-> — Rick Scott (@SenRickScott) [March 23, 2021](https://twitter.com/SenRickScott/status/1374443469389791234?ref_src=twsrc%5Etfw)
+## **新巿场的需求增加**
 
+5G的起步，通讯，云计算，汽车的电子化应用及电动车销量增加，而采用车用晶片量的倍数增加，Intel及台积电均有各自的巿场需求，两公司在业务上均有成长，主要巿场饼变大了。
 
+## **台积电的隐忧，爆料革命提早预告**
 
-### 内心有国家和军人吗？
+虽然台积电在晶圆技术领先，而为全球许多知名牌代工如Apple及AMD等公司成为台湾的护国神社，但也造成许多重要晶片太集中在台湾生产，两岸若发生战争，则台积电断货，全球晶片供给必会受影响。
 
-3月24日，福克斯新闻称 “副总统哈里斯在空军二号上屡次不敬军礼，打破先例”
+由于郭文贵先生一直预先警示：中共严重对台湾的政治及媒体蓝金黄，另外中共目前为了转移全球各国对中共释放中共生化武器，反人类罪及种族灭绝等声讨及抵制，在国内为了转移政治斗争，中共攻打台湾的讯息越趋明显，若中共以武力犯台，则台湾的股巿将会崩塌，台积电将有危矣！可能许多台积电的外资背后沼泽地(利益团体)提早得知这方面讯息，己在高档相对位置抛售台积电股票。
 
+郭先生在2021/3/3视频: “台积电，一定会倒的一蹋糊涂，它就倒在共产党上，它会被沼泽地(指利益集团)无数次灌还魂汤，喝！死！喝！死！最后….结束，谁也挡不住，这是大势所趋。”
 
+我们不希望有此事发生，台湾多年追求民主自由的价值，才有现今台积电这样的世界级举足轻重的公司出现，爆料革命报导掲露中共的真相己让世界许多国家人民及组织等己觉醒清楚认识中共的邪恶本质，希望进而唤醒更多台湾人民意识到中共的蓝金黄政治，媒体及企业并且对武力犯台的强烈企图心。期待台湾的政府及人民结合国际组织的力量共同对抗中共，以降低对台的损害，起到保护台湾的人民及企业等以维持自由民主的这块净土。
 
-> VP Harris repeatedly fails to salute military on Air Force Two, breaking with precedent [https://t.co/ToAd7T6din](https://t.co/ToAd7T6din)
-> — Fox News (@FoxNews) [March 24, 2021](https://twitter.com/FoxNews/status/1374514885279707144?ref_src=twsrc%5Etfw)
+（本文纯属个人观点）
 
+资料参考：
 
+[英特尔宣布斥资新台币5,600亿建厂跨足晶圆代工，与台积电竞合令人注目](https://technews.tw/2021/03/24/intel-idm-%202-0/)
 
-### 反抗拜登涨税
+*[英特尔扩大晶圆代工布局台积三优势筑竞争高墙](https://money.udn.com/money/story/12926/5341974)*
 
-23日Just the News 推文：“就业创造者网说‘天呐，绝不！’‘这不在我们的监督之下！’。对小企业加税的想法说不！”
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-小议：拜登欲对美国人取消拥枪权，对小企业主这样的中产阶层加征税收，都是在一步步削弱有经济基础、又有传统道德观和正义良知的人，本质上是在配合中共的3F计划。
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
+文章审核：zhong
 
-> ‘HELL NO! NOT ON OUR WATCH!’: Job Creators Network says no to the idea of small business tax hikes [#JustTheNews](https://twitter.com/hashtag/JustTheNews?src=hash&amp;ref_src=twsrc%5Etfw) [@alexnitzberg](https://twitter.com/alexnitzberg?ref_src=twsrc%5Etfw) [@JobCreatorsUSA](https://twitter.com/JobCreatorsUSA?ref_src=twsrc%5Etfw) [https://t.co/32uFiM3yQu](https://t.co/32uFiM3yQu)
-> — Just the News (@JustTheNews) [March 24, 2021](https://twitter.com/JustTheNews/status/1374526266964070400?ref_src=twsrc%5Etfw)
-
-
-
-### 不明飞行物（UFO）
-
-前五角大楼项目负责人称：“UFO报告将是令人信服的。”
-
-
-
-> Former Pentagon program chief: UFO report will be compelling [https://t.co/ojrjYQacTj](https://t.co/ojrjYQacTj)
-> — Newsmax (@newsmax) [March 24, 2021](https://twitter.com/newsmax/status/1374588039947751425?ref_src=twsrc%5Etfw)
-
-
-
-### 军事
-
-“美国军队正处于过去40年中最重要的转型之中。”
-
-
-
-> The [@USArmy](https://twitter.com/USArmy?ref_src=twsrc%5Etfw) is in the middle of the most significant transformation in the past 40 years. 
-> 
-> Read more: [https://t.co/YXxEKVZb0w](https://t.co/YXxEKVZb0w)[#People](https://twitter.com/hashtag/People?src=hash&amp;ref_src=twsrc%5Etfw) | [#Modernization](https://twitter.com/hashtag/Modernization?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YYrYl8kqUv](https://t.co/YYrYl8kqUv)
-> — U.S. Army Reserve (@USArmyReserve) [March 24, 2021](https://twitter.com/USArmyReserve/status/1374692481082793984?ref_src=twsrc%5Etfw)
-
-
-
-“‘热带愤怒’给飞行员和士兵提供了展示他们 “立即准备 “能力的机会。”
-
-
-
-> Tropic Fury gave [#Airmen](https://twitter.com/hashtag/Airmen?src=hash&amp;ref_src=twsrc%5Etfw) and [#Soldiers](https://twitter.com/hashtag/Soldiers?src=hash&amp;ref_src=twsrc%5Etfw) the opportunity to demonstrate their "Ready Now" capabilities. More photos at the link! [@15thWing](https://twitter.com/15thWing?ref_src=twsrc%5Etfw)[https://t.co/TVbiZv3cXg](https://t.co/TVbiZv3cXg) [pic.twitter.com/wB1lV2rZpR](https://t.co/wB1lV2rZpR)
-> — PACAF (@PACAF) [March 19, 2021](https://twitter.com/PACAF/status/1372925075024871432?ref_src=twsrc%5Etfw)
-
-
-
-
-
-### 美国边境危机
-
-24日媒体人汉尼迪发推：“拜登边境停电，在笼子里藏了几千名儿童。”
-
-
-
-> Biden Border Blackout Hides Thousands Of Kids In Cages [https://t.co/BI0I7u13UD](https://t.co/BI0I7u13UD)
-> — Sean Hannity (@seanhannity) [March 24, 2021](https://twitter.com/seanhannity/status/1374692478348111873?ref_src=twsrc%5Etfw)
-
-
-
-
-
-24日汉尼迪发推：“拜登政府要花费8600万给非法移民居住旅店。”
-
-
-
-> Biden Admin To Spend $86 Million On Hotels For Illegal Immigrants [https://t.co/rPQL7RKpAh](https://t.co/rPQL7RKpAh)
-> — Sean Hannity (@seanhannity) [March 24, 2021](https://twitter.com/seanhannity/status/1374694426589720577?ref_src=twsrc%5Etfw)
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+文章发布：Little Liu
 
 0

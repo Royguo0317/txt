@@ -1,29 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 害怕疫苗是人性问题？且看张文宏东施效颦
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1015151/)
+## 川普正考虑与新社交媒体应用进行合作
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1015413/)
 
-作者：YMO
-![]()![](https://gnews.org/wp-content/uploads/2021/03/okko.png)
-据人民日报[微博](https://m.weibo.cn/status/4618207538973241?)报道，3月24日，上海华山医院感染科主任张文宏在谈到有人害怕打疫苗的心理时说：这其实不是疫苗问题，而是人性问题。很多东西你得不到的时候，会一直非常盼望。而当你可以得到，特别是免费时，你突然又觉得为什么要给我。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/iii-1.png)
-在证明A不是B的时候怎么做可以让这个证明的过程变得丑陋？如果你看过新手打辩论赛通常会出现这样一个现象，他们会说因为A和C有着种种关系，所以A不是B。这篇报道里的C就是人性问题。按照张文宏的说法，A是国产疫苗，C是人性问题，而隐藏的B就是疫苗被曝出的种种状况。因为害怕打疫苗只是人性问题，就像晕针晕血一样正常，所以人们的害怕不能说明国产疫苗有害。乍一看挺像回事，实际上却破绽百出。
+汇总翻译：喜马拉雅的文雅
 
-中共一直以来都是推崇党性高于人性，在这个状况即将满百年之际，“人性”突然被张文宏拉出来挡枪，也是怪冤枉的。就算害怕人性，但这和国产疫苗的作用有关系么？他自己口口声声说病毒溯源是个科学问题，如果想让民众相信疫苗也是一样的道理，从作用原理到动物以及一二三期临床试验，这些过程中积累的各项数据资料才是让证明成立的关键，而不是靠自说自话的瞎说。
+译自3月24日《纽约邮报》作者 [Kenneth Garger](https://nypost.com/author/kenneth-garger/) 和 Axios 作者 [Jonathan Swan](https://www.axios.com/authors/jonathanswan/), [Sara Fischer](https://www.axios.com/authors/sara/)
 
-哗众取宠的人有几个特点，第一是说出来的话听上去都很漂亮，第二是说出来的话很多时候都只是学了人家的皮毛。个人猜想张文宏医生是不是也看了路德社的节目，路德先生确实在节目中说过几次要承认人性，比如说要承认沼泽地也是生态的一种，然而张文宏医生可能只想起了人性这两个字就马上要为中共来进行辩护。在前文中我先为张医生着想，假设害怕就说是人性问题，那么这篇报道的观点也已经站不住脚了。那接下来就把假设去掉，那么，张医生所说的人性问题其中的真相究竟是什么。
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/trump-operation-warp-speed.jpg)
 
-既然张医生将这个科学问题扩展到了人性领域，那就来说说人性。按照张医生的说法我想到了几个比较接近的例子，比如说近乡情更怯，又比如粉丝说追星的时候高谈阔论，但真正面对面见到明星本人的时候脑子却会一片空白。然而这里的家乡能够给予你养分来成长，这里的明星有闪光点可以成为你的榜样，而国产疫苗又有什么东西值得来夸耀呢？别的我不知道，有关疫苗的各种负面新闻倒是一大堆。害怕可以是因为自惭形秽，害怕也可以是面临危险感到恐惧。所以这里人们的害怕绝不是张文宏嘴里的人性，而是人们对于危险的本能回避。中共不让民众拥有选票，民众就会用脚投票，这种害怕就是民意的体现。
+图片来源 纽约邮报，法新社 Evan Vucci
+前总统唐纳德-川普正在考虑与现有的应用厂商合作，开发自己的社交媒体网络。
 
-可以说张文宏医生的说法正好印证了什么叫东施效颦。东施效颦为什么通常是个贬义词？不是因为东施长得丑，而是在于一味模仿没有自我的体系。中共让人尤其厌恶的其中一个原因就是中共只对世界进行假骗偷，从来不建立自己的体系。但是你假骗偷赢得了一时，你能一直赢到永恒么？
+三位消息人士告诉Axios媒体，川普正在考虑的厂商之一是一款名为FreeSpace的比较新的应用。FreeSpace 自称是 “以科学为支撑，积极强化好习惯 & 让世界更美好”。 该应用倡导并强调共同价值，所以人们会对做好事“上瘾”。FreeSpace鼓励公众分享他们认为会给自己的生活增加价值的日常行为和内容，并为他人复制健康的习惯树立榜样。
 
-对于一场辩论赛而言，为了捍卫你的观点，反击对手不可或缺，但更重要的是对自身观点的大量准备以及严密论述，就像一艘船的龙骨，有了这些你的反击才能有的放矢。非常感恩有闫博士的报告作为支撑你我观点的龙骨，有战友们的坚持宣传作为反击中共的利器。中共的养殖园式迭代传播虽然可以暂时取得成效，但没有根基不成体系，最后一定会得到应得的落败的下场。
+FreeSpace于2月1日在苹果和谷歌的应用商店推出。根据AppTopia的统计，到目前为止，其在两个商店的下载量只有2万次左右。
 
-（文章仅代表作者本人观点，与GNews无关）
+该应用包括了许多成熟的网络社交媒体的典型功能。该平台允许用户创建个人档案，有一个公共新闻源的 “活动墙 “和用于群发消息的 “房间”。
 
-责任编辑：英国喜庄园 AN
-校对：加拿大多伦多枫叶农场 文锦
-发布： 台湾宝岛农场 Cute panda
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/freespace-1.png)
 
-0
+freespace 苹果商城导航截图。图片来源Axios
+
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/freespace2.png)
+
+Freespace苹果商城简介。图片来源Axios
+
+
+FreeSpace隶属于Skylab Apps，一个为教练、训练师等搭建社区的平台，帮助与人们直接联系。FreeSpace应用自称是 “自由思想者、运动员和企业家的社交融合”。
+
+FreeSpace和Skylab Apps都是由乔恩-威利斯（Jon Willis）运营的。威利斯也是位于亚利桑那州的营销机构Matchstick Media的总裁，同时也是亚利桑那州体育设施Legacy Sports USA的执行副总裁。Matchstick和Legacy Sports USA的广告与其他程序化广告一起出现在网站上，如冷冻酸奶、静脉注射疗法和柴油废液。
+
+在应用排行榜 上，领跑者是Mike Magolnick，他是一位数字企业家，自称在FreeSpace和SkyLab从事战略工作。
+
+有消息人士称，川普也仍在考虑其他选择，”可能是几家公司中的任何一家，本周会有更多的会议。”目前还不清楚川普还与哪些公司进行了谈判。
+
+上周日，川普推出社交媒体的新闻引起了轰动，他的高级顾问杰森-米勒(Jason Miller)告诉福克斯新闻，这位前总统将在未来几个月内以自己的服务平台重返社交媒体。米勒说，”这将彻底重新定义游戏，大家都会拭目以待，看看川普总统到底会怎么做，但这将是他自己的平台。”
+
+
+
+新闻来源
+
+[https://nypost.com/2021/03/24/trump-eyeing-partnership-with-app-for-social-media-network-report/?utm\_medium=SocialFlow&utm\_campaign=SocialFlow&utm\_source=NYPTwitter](https://nypost.com/2021/03/24/trump-eyeing-partnership-with-app-for-social-media-network-report/?utm_medium=SocialFlow&amp;utm_campaign=SocialFlow&amp;utm_source=NYPTwitter)
+
+[https://www.axios.com/trump-social-media-platform-freespace-a77d7dfc-3288-48bf-bc7e-8942da24bdbd.html?utm\_medium=social&utm\_campaign=editorial&utm\_content=politics-trumpsocialapp](https://www.axios.com/trump-social-media-platform-freespace-a77d7dfc-3288-48bf-bc7e-8942da24bdbd.html?utm_medium=social&amp;utm_campaign=editorial&amp;utm_content=politics-trumpsocialapp)
+
++1

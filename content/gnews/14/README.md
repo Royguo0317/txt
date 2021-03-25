@@ -1,46 +1,133 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [疫情下的西班牙] 战争即将来临？（二）——美国考虑冻结从阿富汗撤军的计划
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1015143/)
+## 美国政要等每日重要信息0324.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1012928/)
 
-- 作者：gokuabuela
+**康州盘古农场 & 喜联盟GNEWS编辑部 联合项目**
+
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0324.jpeg)图片来源：康州盘古农场 霹雳年
+### 国务卿访欧
+
+3月24日美国现任国务卿布林肯推文：“今天美国政府官员在伊朗、俄罗斯、中国和其他紧迫问题上与法国外长、德国外交部长、和英国外长进行了良好会晤。跨大西洋关系是解决全球挑战的核心。”
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年3月24日电/西喜社——**美国国务卿安东尼·布林肯昨天在布鲁塞尔证实，美国不太可能实行之前川普总统的计划，即5月1日前单独从阿富汗撤军，这是川普总统抛开北约，在2020年直接与塔利班达成的协议。
+> Good meeting with French Foreign Minister [@JY\_LeDrian](https://twitter.com/JY_LeDrian?ref_src=twsrc%5Etfw), German Foreign Minister [@HeikoMaas](https://twitter.com/HeikoMaas?ref_src=twsrc%5Etfw), and UK Foreign Secretary [@DominicRaab](https://twitter.com/DominicRaab?ref_src=twsrc%5Etfw) today on Iran, Russia, China, and other pressing issues. The Transatlantic relationship is central to solving global challenges. [pic.twitter.com/2UiH3YYVMh](https://t.co/2UiH3YYVMh)
+> — Secretary Antony Blinken (@SecBlinken) [March 24, 2021](https://twitter.com/SecBlinken/status/1374513793296830464?ref_src=twsrc%5Etfw)
 
-布林肯参加了北约外长面对面会议，他明确表示，乔-拜登总统有意重建与北约的关系，将其作为北约对外投射的轴心，但就阿富汗而言，”我们还没有确定我们在阿富汗的立场。我在这里与盟友交流一些想法，进行协商。”因为无论如何，”我们是一起进去的，我们是一起适应的，我们是要一起撤退的”。拜登本人上周也考虑到很难达到5月1日的日期。
 
-布林肯在北约总部保证，华盛顿做出的任何决定 “都将基于北约盟友的想法”，并与盟友共享两个原则，即从那里撤军，但同时 “确保阿富汗永远不会再成为恐怖分子的庇护所”。
 
-美国人还试图与土耳其搞好关系，布林肯和斯托尔滕贝格（Jens Stoltenberg）都在最棘手的问题上发出了和解的信息，包括安卡拉决定购买与盟国使用的技术不兼容的俄罗斯S-400防空导弹系统。时任美国总统特朗普甚至为此对安卡拉发出制裁，但现在北约与俄中关系出现了不同的变化，土耳其的地位变得更加重要。目前大家更愿意相信，如果有必要，安卡拉会站在西方的一边。
 
-这次辩论对北约与俄罗斯关系重要性的另一个表征，是布林肯反对德国为直接获得俄罗斯天然气而修建的北溪2号天然气管道的言论。美国人再次表示，他不认为这是一个好主意，并回顾说，已经批准对参与项目的公司进行制裁。
 
-**简评：**
+### 保卫宪法拥枪权
 
-**首先，我们可以看出，川普总统与中共对抗，更注重双方的“对锤”，更多用经济手段达到目的，这样的手段可能会使中共难受，但并不一定能让中共灭亡。而拜登政府似乎走的是传统的“绞杀”路线，即联合盟友，在地缘政治上包围你，孤立你，最后绞杀你。这就要求必须选定所有重要的“点”，联合所有可以联合的力量，以点成线，形成一个绞索。**
+参议员莫-布鲁克斯23日推文：“乔-拜登、南希-佩洛西和查克-舒默试图破坏我们的第二修正案的持枪权。拜登政府和社会主义民主党的目标是把守法公民变成罪犯。我将与所有社会主义者削弱我们第二修正案权利的努力作斗争。”
 
-**我们来看看阿富汗。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Picture1-36.png)
 
-**阿富汗东边连着中国，南边是巴基斯坦，西边连着伊朗，也就是说，占据了阿富汗，就隔断了中共国和伊朗的联系，这个重要性太大了。换句话说，如果要和中共开战，没有阿富汗，是不可能打赢的。此外，凭借美军的远程攻击能力，是有可能威胁到中共国西部地区，包括成都的，能大量牵制中共的防守兵力，使其不能全部投入到东部沿海。**
+> Joe Biden, Nancy Pelosi, and Chuck Schumer seek to gut our Second Amendment Right to Bear Arms. The goal of the Biden Admin. and Socialist Dems is to make criminals out of law abiding citizens. I will fight all Socialist efforts to weaken our Second Amendment rights. [pic.twitter.com/aOQ1zRQ1t4](https://t.co/aOQ1zRQ1t4)
+> — Mo Brooks (@RepMoBrooks) [March 23, 2021](https://twitter.com/RepMoBrooks/status/1374497184197062656?ref_src=twsrc%5Etfw)
 
-**文中提到的土耳其，从地图上也可以看出，他的主要任务就是防住俄罗斯，他是俄罗斯从黑海进入地中海的唯一通道。为了支持叙利亚的阿萨德政权，俄罗斯一船一船的军火就是通过这个通道运出来的。**
 
-**乌克兰也是防住俄罗斯的。“北溪”二号天然气管道项目形成的隔阂也正在解决。**
 
-**印度、阿富汗、土耳其、北约、乌克兰，顺着这些国家划一条线，一根绞索正在形成。**
+### 抵制2022北京冬奥
 
-**新闻来源：[ABC新闻](https://www.abc.es/internacional/abci-otan-constata-bloqueo-plan-retirada-afganistan-202103240122_noticia.html)**
+23日参议员斯科特推文：“不能给习总书记一个粉饰罪行的平台。今天，我给奥委会发信，呼吁他们站在自由和人权的立场上，和我一起呼吁把2022年奥运会搬出共产党统治的中国。”
 
-编辑：蚂蚁兄弟；校对：阿伯塔；初审：神奇四侠；发稿：Ranting
 
-[疫情下的西班牙专栏目录](https://gnews.org/zh-hans/993776/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
+> General Secretary Xi can’t be given a platform to whitewash his crimes. Today, I sent a letter to [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw) sponsors calling on them to stand up for freedom and human rights and join my call to move the 2022 Olympic Games out of Communist China: [https://t.co/I0cCubwmv8](https://t.co/I0cCubwmv8)
+> — Rick Scott (@SenRickScott) [March 23, 2021](https://twitter.com/SenRickScott/status/1374443469389791234?ref_src=twsrc%5Etfw)
 
-+1
+
+
+### 内心有国家和军人吗？
+
+3月24日，福克斯新闻称 “副总统哈里斯在空军二号上屡次不敬军礼，打破先例”
+
+
+
+> VP Harris repeatedly fails to salute military on Air Force Two, breaking with precedent [https://t.co/ToAd7T6din](https://t.co/ToAd7T6din)
+> — Fox News (@FoxNews) [March 24, 2021](https://twitter.com/FoxNews/status/1374514885279707144?ref_src=twsrc%5Etfw)
+
+
+
+### 反抗拜登涨税
+
+23日Just the News 推文：“就业创造者网说‘天呐，绝不！’‘这不在我们的监督之下！’。对小企业加税的想法说不！”
+
+小议：拜登欲对美国人取消拥枪权，对小企业主这样的中产阶层加征税收，都是在一步步削弱有经济基础、又有传统道德观和正义良知的人，本质上是在配合中共的3F计划。
+
+
+
+> ‘HELL NO! NOT ON OUR WATCH!’: Job Creators Network says no to the idea of small business tax hikes [#JustTheNews](https://twitter.com/hashtag/JustTheNews?src=hash&amp;ref_src=twsrc%5Etfw) [@alexnitzberg](https://twitter.com/alexnitzberg?ref_src=twsrc%5Etfw) [@JobCreatorsUSA](https://twitter.com/JobCreatorsUSA?ref_src=twsrc%5Etfw) [https://t.co/32uFiM3yQu](https://t.co/32uFiM3yQu)
+> — Just the News (@JustTheNews) [March 24, 2021](https://twitter.com/JustTheNews/status/1374526266964070400?ref_src=twsrc%5Etfw)
+
+
+
+### 不明飞行物（UFO）
+
+前五角大楼项目负责人称：“UFO报告将是令人信服的。”
+
+
+
+> Former Pentagon program chief: UFO report will be compelling [https://t.co/ojrjYQacTj](https://t.co/ojrjYQacTj)
+> — Newsmax (@newsmax) [March 24, 2021](https://twitter.com/newsmax/status/1374588039947751425?ref_src=twsrc%5Etfw)
+
+
+
+### 军事
+
+“美国军队正处于过去40年中最重要的转型之中。”
+
+
+
+> The [@USArmy](https://twitter.com/USArmy?ref_src=twsrc%5Etfw) is in the middle of the most significant transformation in the past 40 years. 
+> 
+> Read more: [https://t.co/YXxEKVZb0w](https://t.co/YXxEKVZb0w)[#People](https://twitter.com/hashtag/People?src=hash&amp;ref_src=twsrc%5Etfw) | [#Modernization](https://twitter.com/hashtag/Modernization?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YYrYl8kqUv](https://t.co/YYrYl8kqUv)
+> — U.S. Army Reserve (@USArmyReserve) [March 24, 2021](https://twitter.com/USArmyReserve/status/1374692481082793984?ref_src=twsrc%5Etfw)
+
+
+
+“‘热带愤怒’给飞行员和士兵提供了展示他们 “立即准备 “能力的机会。”
+
+
+
+> Tropic Fury gave [#Airmen](https://twitter.com/hashtag/Airmen?src=hash&amp;ref_src=twsrc%5Etfw) and [#Soldiers](https://twitter.com/hashtag/Soldiers?src=hash&amp;ref_src=twsrc%5Etfw) the opportunity to demonstrate their "Ready Now" capabilities. More photos at the link! [@15thWing](https://twitter.com/15thWing?ref_src=twsrc%5Etfw)[https://t.co/TVbiZv3cXg](https://t.co/TVbiZv3cXg) [pic.twitter.com/wB1lV2rZpR](https://t.co/wB1lV2rZpR)
+> — PACAF (@PACAF) [March 19, 2021](https://twitter.com/PACAF/status/1372925075024871432?ref_src=twsrc%5Etfw)
+
+
+
+
+
+### 美国边境危机
+
+24日媒体人汉尼迪发推：“拜登边境停电，在笼子里藏了几千名儿童。”
+
+
+
+> Biden Border Blackout Hides Thousands Of Kids In Cages [https://t.co/BI0I7u13UD](https://t.co/BI0I7u13UD)
+> — Sean Hannity (@seanhannity) [March 24, 2021](https://twitter.com/seanhannity/status/1374692478348111873?ref_src=twsrc%5Etfw)
+
+
+
+
+
+24日汉尼迪发推：“拜登政府要花费8600万给非法移民居住旅店。”
+
+
+
+> Biden Admin To Spend $86 Million On Hotels For Illegal Immigrants [https://t.co/rPQL7RKpAh](https://t.co/rPQL7RKpAh)
+> — Sean Hannity (@seanhannity) [March 24, 2021](https://twitter.com/seanhannity/status/1374694426589720577?ref_src=twsrc%5Etfw)
+
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+
+0
