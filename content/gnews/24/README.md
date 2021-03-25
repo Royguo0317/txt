@@ -1,91 +1,209 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210325（图片新闻）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1018086/)
+## 美国政要等每日重要信息0325.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1017388/)
 
-- 作者：2020喜马拉雅
-- 封面：透明的遮羞布
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0325.jpeg)图片来源：康州盘古农场 霹雳年
+### 批评拜登
+
+3月24日朱利安尼先生推文：“即使是自由派媒体也批评拜登政府缺少透明度。细节请收看节目《常识》。”
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年3月25日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
+> Even LIBERAL Media SLAMS Biden Over Lack Of Transparency
+> 
+> Rudy Giuliani breaks it down, HERE: [https://t.co/s1NExR8zKj](https://t.co/s1NExR8zKj) [pic.twitter.com/dpbUnayF1L](https://t.co/dpbUnayF1L)
+> — Rudy W. Giuliani (@RudyGiuliani) [March 25, 2021](https://twitter.com/RudyGiuliani/status/1374904546988818432?ref_src=twsrc%5Etfw)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0c39603a-afd0-4ef5-9894-f026f6410ea0.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e210a553-d8ba-48b5-b3bf-fec8dba6c8e8.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e421a891-0e8d-440b-84b8-ecbb61139186.jpg)
+25日瑞克-斯科特议员推文：“民主党不计后果的支出使美国债务有望达到30万亿，带来通胀上升的风险，伤害家庭与企业。我问了 @联邦储备局的开放市场委员会如何计划保护美国人和解决这一危机：https://bit.ly/3siJtcA。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/549dd087-80f6-4e2a-a48e-0dbe1b0961f3.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b975e6cb-fec7-4890-9d63-dfd581bc305e.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/402006e9-1593-47cc-b95f-3c3be33024bc.jpg)
+> The Democrats' reckless spending has U.S. debt on track to reach $30T, posing the risk of rising inflation that hurts families & businesses. I asked the [@federalreserve](https://twitter.com/federalreserve?ref_src=twsrc%5Etfw)’s Open Market Committee how it plans to protect Americans & address this crisis: [https://t.co/oKANs1SWGs](https://t.co/oKANs1SWGs)
+> — Rick Scott (@SenRickScott) [March 25, 2021](https://twitter.com/SenRickScott/status/1375070835371823104?ref_src=twsrc%5Etfw)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/9dca30ec-32d9-4eb9-9883-99740c2ea405.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4345646d-70fe-4952-b5e1-a5cf89dd9776.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/59aecb58-e3d2-411a-bfc3-72e9a388324d.jpg)
+### 美国边境危机
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/5fc777f6-48a0-4ee7-8cfc-e010651cb687.jpg)
+当日皮特-纳瓦罗博士转推参加班农战斗室的谈话，节目主题是“班农和纳瓦罗对拜登的边境危机的看法：如同圣经般重要比重的灾难”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/29219d03-fb90-464e-8bfb-eb801da69297.jpg)
+推文称：“由于 #拜登边境危机，美国城市地区和郊区的蓝领将长期受到损害，实际工资不会上涨。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b915d70a-9af9-4f2b-b188-abfca2fba441.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ae3a0e8a-c5fd-4c6b-ac18-698682f86b72.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b955d602-daad-4ae9-805c-0ceee7a99248.jpg)
+> There will be long term damage to blue collar America in our urban areas and suburban areas due to the [#BidenBorderCrisis](https://twitter.com/hashtag/BidenBorderCrisis?src=hash&amp;ref_src=twsrc%5Etfw). Real wages are NOT going up. [https://t.co/iolVUTcWxB](https://t.co/iolVUTcWxB)
+> — Peter Navarro (@RealPNavarro) [March 25, 2021](https://twitter.com/RealPNavarro/status/1375107006533603336?ref_src=twsrc%5Etfw)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0a36188d-2024-47c0-a707-320286b46402.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3abeb573-569d-4cef-b976-a093791ded91.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/726af436-4bbb-4941-a458-4720054e4c6a.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/029209db-e868-4d13-909d-3ab576d0be91.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/42beb97a-e932-4464-9105-0f7f00381a5c.jpg)
+当日众议员安迪-巴尔发推：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0b136f36-1e67-46d7-b2ba-29166313c97a.jpg)
+“墨西哥总统正在陈述一个显而易见的事实：拜登总统对我们南部边境的危机负有直接责任。他取消了与中美洲国家的庇护协议，而这是川普时代的一个重大外交胜利。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/441d8579-8b8c-41cd-b642-e2b06dc81b20.jpg)
+我们需要与这些国家重新接触，扭转造成#拜登边境危机的、拜登政府一连串灾难性的失误。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d78e0278-24d1-4564-9325-3baf6a71d8eb.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ddb3d6da-686b-4b6f-a4ee-06cc98fcc73a.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e26a290b-e6f7-4e9d-aeb5-aaca6d037bf7.jpg)
+> We need to reengage with these countries and reverse a string of disastrous blunders by the Biden Administration that created the [#BidenBorderCrisis](https://twitter.com/hashtag/BidenBorderCrisis?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Rep. Andy Barr (@RepAndyBarr) [March 24, 2021](https://twitter.com/RepAndyBarr/status/1374835944940011526?ref_src=twsrc%5Etfw)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/93c47f03-ef6c-41d8-adcc-f62110cfaae3.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/dcf2e167-fcc2-4dcf-85d3-1ece2251d982.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d5bcbbfe-a50c-4f6a-87c2-03a6f71cdbaf.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2d07752e-7edd-4b45-b908-d1676279b240.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cbec786a-092a-4ec2-b100-bb1c3a39dc69.jpg)
+### 中共式记者会
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/a1f71e27-1a82-4fa2-a385-4a791929ee61.jpg)
+3月24日朱利安尼先转发了杰森-米勒的推文。“避重就轻。就这么简单：乔-拜登会召集预先挑选的记者，提出预先筛选的问题。就这么简单。来自CNN政治的文章《三环文件夹和14号字体：拜登是如何准备新闻发布会的 》”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/09f16677-7b02-4a51-a7ad-24380269bef8.jpg)
+CNN这篇文章称，拜登被问及下午即将举行的记者招待会时，轻描淡写地说“什么记者会？” 但是很多人证实拜登最近忙于准备这场记者会。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0c50afbf-27b4-4a25-ad22-9f90cf29ff16.jpg)
+拜登上任后六十多天从未举行过记者招待会，CNN表示，上任后的多次讲话都是白宫对着摄像头进行的。这次面对记者将会是多样化的。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/9c1fde92-f1c1-4f7c-b9f7-cc4ece864f81.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/230f2e3e-ec82-43fb-99d2-fedb61a54617.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/f637669b-ee08-4253-bcfd-898ee46d0782.jpg)
+> Terrible write-up that misses the obvious. It’s this simple: Joe Biden is going to call on pre-selected reporters with pre-screened questions. It’s that simple. 
+> 
+> “Three-ring binders and 14-point font: How Biden preps for a news conference – CNNPolitics” [https://t.co/XJXRbu2L5I](https://t.co/XJXRbu2L5I)
+> — Jason Miller (@JasonMillerinDC) [March 25, 2021](https://twitter.com/JasonMillerinDC/status/1374901108737462274?ref_src=twsrc%5Etfw)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/052d8c9c-5a0e-483f-9066-0d8d4d1e4dc2.jpg)
 
-发稿：Ranting
 
-本文观点均来自于作者，与GNEWS无关
+
+
+### 民主党的变化
+
+3月24日众议员莫-布鲁克斯推文：“民主党和一二十年前不同了。反美社会主义者已经接管了这个政党。他们不再对美国人具有同情心，而要完全开放边境。”
+
+
+
+> The Democrat Party isn’t the same as it was a decade or two ago. Anti-American Socialists have taken over the party. They no longer have any compassion for Americans and want completely open-borders. 
+>  [https://t.co/hkouuD1wTW](https://t.co/hkouuD1wTW)
+> — Mo Brooks (@RepMoBrooks) [March 24, 2021](https://twitter.com/RepMoBrooks/status/1374761765440004096?ref_src=twsrc%5Etfw)
+
+
+
+当日众议员莫-布鲁克斯推文：“社会主义者试图破坏第二修正案的拥枪权，并夺走你的枪。他们甚至不再试图掩盖它。”
+
+
+
+> The Socialists seek to gut the Second Amendment Right to Bear Arms and take your guns. They’re aren’t even trying to hide it anymore.[https://t.co/wYOzawVVC7](https://t.co/wYOzawVVC7)
+> — Mo Brooks (@RepMoBrooks) [March 25, 2021](https://twitter.com/RepMoBrooks/status/1375092956298895365?ref_src=twsrc%5Etfw)
+
+
+
+
+
+### 黑客入侵
+
+马克卢比奥医院24日推文：“**个人或敌对政府正在瞄准（美国）地方政府。**FBI警告MAMBA RANSOMWARE被用来攻击公共交通、法律和技术服务、工业、商业、制造业和建筑业。”
+
+
+
+> Individuals or hostile governments are targeting local governments. FBI warns MAMBA RANSOMWARE being used to target public transportation, legal & technology services, industrial, commercial, manufacturing, & construction businesses. [https://t.co/76MBdgtl2K](https://t.co/76MBdgtl2K)
+> — Marco Rubio (@marcorubio) [March 24, 2021](https://twitter.com/marcorubio/status/1374815114759704589?ref_src=twsrc%5Etfw)
+
+
+
+
+
+### 在中共国做生意的教训
+
+卢比奥议员3月25日推文：“美国企业正在艰难地学习，要想在中（共）国做生意，你一般必须保持沉默，或者成为共产党犯罪的帮凶，比如在 #新疆 实施 #维吾尔族种族屠杀”
+
+
+
+> U.S. corporations are learning the hard way that to be allowed to do business in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) you generally must remain silent or become accomplices in the Communist Party’s crimes, like the [#UyghurGenocide](https://twitter.com/hashtag/UyghurGenocide?src=hash&amp;ref_src=twsrc%5Etfw) in [#Xinjiang](https://twitter.com/hashtag/Xinjiang?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Marco Rubio (@marcorubio) [March 25, 2021](https://twitter.com/marcorubio/status/1375058126685286402?ref_src=twsrc%5Etfw)
+
+
+
+
+
+### 现任国务卿布林克当日推文
+
+“针对军事政变和缅甸军方对和平示威者的持续暴力镇压，美国正在采取进一步行动，指认缅甸经济控股上市公司和缅甸经济股份有限公司。”
+
+“美国和英国一直在履行我们的承诺，继续推动对缅甸政变和暴力侵害缅甸人民的行为进行问责。我们仍然坚定不移地支持缅甸人民恢复和平与民主的努力。”
+
+
+
+> The United States and the UK have followed through on our pledges to continue promoting accountability for the coup and violence against the people of Burma. We remain steadfast in our support for the people of Burma in their efforts to restore peace and democracy. [@dominicraab](https://twitter.com/DominicRaab?ref_src=twsrc%5Etfw)
+> — Secretary Antony Blinken (@SecBlinken) [March 25, 2021](https://twitter.com/SecBlinken/status/1375093691577171976?ref_src=twsrc%5Etfw)
+
+
+
+
+
+### 新疆今昔？
+
+当日，就H&M、耐克公司抵制新疆棉花的声明恐引发更大浪潮，中共国外交部华春莹发推：
+
+“1908年的 #密西西比 对比 #2015年的新疆。
+一把猎枪和几条猎犬方阵对比笑脸和收获。有强迫劳动吗？”
+
+纽约时报记者奥斯丁回复：“‘新疆比百年前的密西西比好 ’或许不是中国外交部认为的振奋人心的依据。”
+
+
+
+> "Xinjiang: better than Mississippi a century ago" is perhaps not the rousing endorsement China's foreign ministry thinks it is [https://t.co/9vR5T8HFKe](https://t.co/9vR5T8HFKe)
+> — Austin Ramzy (@austinramzy) [March 25, 2021](https://twitter.com/austinramzy/status/1375020691532128257?ref_src=twsrc%5Etfw)
+
+
+
+
+
+### 美国对外政策
+
+白宫发言人推文：“我们很高兴地宣布通过@USAID 提供1,500万美元的人道主义援助，以满足西岸和加沙的紧急、拯救生命的粮食和健康需求。这符合美国的价值观，也是我们战胜 #COVID19 的全球承诺的一部分。”
+
+
+
+> We are pleased to announce $15 million in humanitarian assistance through [@USAID](https://twitter.com/USAID?ref_src=twsrc%5Etfw) to meet immediate, life-saving food and health needs in the West Bank and Gaza. This is consistent with American values and part of our global commitment to combat [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/MxK2fPzUcv](https://t.co/MxK2fPzUcv)
+> — Ned Price (@StateDeptSpox) [March 25, 2021](https://twitter.com/StateDeptSpox/status/1375134131059748872?ref_src=twsrc%5Etfw)
+
+
+
+### 拜登新闻记者会
+
+当日福克斯新闻：“前总统唐纳德-川普将于美国东部时间今晚10点加入 “英格拉姆视角 “节目，对乔-拜登的首次总统新闻发布会作出反应。”
+
+
+
+> Former President Donald Trump will join [@IngrahamAngle](https://twitter.com/IngrahamAngle?ref_src=twsrc%5Etfw) on “The Ingraham Angle” tonight at 10 p.m. ET with reaction to the first presidential news conference from [@JoeBiden](https://twitter.com/JoeBiden?ref_src=twsrc%5Etfw). Tune in![https://t.co/gPSkyYtn43](https://t.co/gPSkyYtn43) [pic.twitter.com/ZeJY5kO8yP](https://t.co/ZeJY5kO8yP)
+> — Fox News (@FoxNews) [March 25, 2021](https://twitter.com/FoxNews/status/1375104357012758534?ref_src=twsrc%5Etfw)
+
+
+
+### 英国王室里的辛普森计划……
+
+当日福克斯新闻：“王室专家称，查尔斯王子希望对哈里和梅根的指控‘逐点’进行回应。”
+
+
+
+> Prince Charles wanted to issue 'point by point' response to Harry and Meghan's allegations, royal expert says [https://t.co/blLX8ZAW5p](https://t.co/blLX8ZAW5p)
+> — Fox News (@FoxNews) [March 25, 2021](https://twitter.com/FoxNews/status/1375028733774548992?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
 0

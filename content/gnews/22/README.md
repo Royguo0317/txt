@@ -1,209 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0325.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1017388/)
+## 【世事解评】CCP病毒持续破坏性的后遗症
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1018062/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+作者：纽约香草山农场 Delilah小胖
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0325.jpeg)图片来源：康州盘古农场 霹雳年
-### 批评拜登
 
-3月24日朱利安尼先生推文：“即使是自由派媒体也批评拜登政府缺少透明度。细节请收看节目《常识》。”
 
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
-> Even LIBERAL Media SLAMS Biden Over Lack Of Transparency
-> 
-> Rudy Giuliani breaks it down, HERE: [https://t.co/s1NExR8zKj](https://t.co/s1NExR8zKj) [pic.twitter.com/dpbUnayF1L](https://t.co/dpbUnayF1L)
-> — Rudy W. Giuliani (@RudyGiuliani) [March 25, 2021](https://twitter.com/RudyGiuliani/status/1374904546988818432?ref_src=twsrc%5Etfw)
 
+今天刚刚得到一个坏消息，我先生姐姐的女儿和她的男朋友，两个人在这个刚刚过去的周末被确诊感染了CCP病毒。那两个年轻人和她的父母都住在离我们很远的一个州。男方在一家医院工作——据说他很早就注射了美国产的疫苗，但上周五被确诊感染。紧接着在周末，他的女朋友也出现了严重的症状：发烧、头疼和浑身发抖，随后也被确诊感染了CCP病毒。
 
+CCP病毒自去年年初在美国开始爆发，在听过路德社的“1·19”爆料后，我就极力在美国和墙内的亲戚朋友中广泛宣讲CCP病毒的危害，提醒亲朋好友们出门注意戴口罩和手套，并建议他们服用硫酸羟氯喹和锌片作为预防手段。但是，真正听进去的人，尤其乐意采纳这种预防疗法的人并不多。这一方面是因为，美国政府和医疗管理部门没有尽早承认硫酸羟氯喹和锌片对CCP病毒的预防作用；同时，这也跟美国本地的文化有关——美国人不太轻易向人推荐医疗方案，他们主要选择相信自己的医生。面对这样的情况，我也只能是干着急。
 
-25日瑞克-斯科特议员推文：“民主党不计后果的支出使美国债务有望达到30万亿，带来通胀上升的风险，伤害家庭与企业。我问了 @联邦储备局的开放市场委员会如何计划保护美国人和解决这一危机：https://bit.ly/3siJtcA。”
+自病毒爆发开始，时间过去一年多了。可以说，很长一段时间里，我有好几次在内心里祈祷和感恩：我周围的亲戚朋友（甚至邻居），都没有听说有感染上的。偶有邻居孩子的学校中零星几个病例被报告出来，也因为学校积极做好了停课和预防措施，没有造成大面积的传染和爆发。那段时间，我是多少有点忐忐忑忑、惶恐不安地过着日子，几乎每天都要去查看网络上报道出来的感染人数的变化，特别是我们本州的情况。那个时候也有点庆幸，自己的亲朋好友还算运气。但是，今天，这个运气被打破了，我认识的亲朋被CCP病毒击倒了。想想我有多恨CCP啊！CCP在全世界制造超限生物武器，危害全人类。在疫情爆发后，还掩盖疫情真相，完全不配合世界其他国家积极制止疫情蔓延，任凭全世界已经有1亿2千400万人感染，274万人死亡。单在美国，就已经有3000万人感染CCP病毒，54万4千人死亡。CCP这个用超限生物武器杀人的反人类魔王，一定要被消灭。
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image-370.png)
 
+我先生的那个侄女，是一个在美国的注册牧师，过去曾经在医院里长期从事为病患祷告和心理咨询的工作。我们虽然仅仅见过一面，但她留给我的印象非常好。我参加过她为她哥哥主持的婚礼。当时，她穿着白色的神职服装和长到小腿的白色宽围巾，画着非常显眼的红色眼影，用神圣的仪态和爽朗的声音主持了那场完美的婚礼。我非常欣赏她的表现。侄女就是在疫情期间，才跟她现在的男朋友开始交往。没想到，如今两人双双中招，目前都在家自我隔离中。我为他们祈祷，期望他们能尽快恢复过来。
 
-> The Democrats' reckless spending has U.S. debt on track to reach $30T, posing the risk of rising inflation that hurts families & businesses. I asked the [@federalreserve](https://twitter.com/federalreserve?ref_src=twsrc%5Etfw)’s Open Market Committee how it plans to protect Americans & address this crisis: [https://t.co/oKANs1SWGs](https://t.co/oKANs1SWGs)
-> — Rick Scott (@SenRickScott) [March 25, 2021](https://twitter.com/SenRickScott/status/1375070835371823104?ref_src=twsrc%5Etfw)
+据爆料革命和路德社的报道，CCP新冠病毒，是中共研制的超限生化武器。中共用其完美的犯罪手段，借由病毒袭击了美国，使得全美近9%的人在这一年多一点的时间里感染上CCP病毒。而且至今，疫情仍然没有停止的迹象。就美国来看，按目前的统计情况，CCP病毒的死亡率虽然只有1.8%左右，但越来越多的主流媒体开始公开报道CCP新冠病毒（COVID-19）长期潜在的严重后遗症问题。
 
+《纽约时报》3月22日报道，一位感染CCP冠状病毒的幸存者，从未有过精神疾病家族史的49岁壮年男子伊万·阿格顿（Ivan Agerton），在感染后数周出现了精神病症状。患者出现幻听、幻觉和妄想症，不得不接受抗精神病和抗焦虑药物的治疗[1]。
 
+该文同时指出，在《纽约时报》去年12月发表了有关感染CCP新冠病毒（COVID-19）出现精神疾病的文章后，好几个人主动联系，表示他们本人或认识的人在感染CCP病毒后，都经历过这样的精神疾病的症状。
 
-### 美国边境危机
+伊万·阿格顿的精神科医生指出，偏执狂、妄想症本来更常见于青少年的精神分裂症或老年痴呆症。但到目前为止，很多年龄在30岁到50岁间的CCP病毒患者也出现了精神疾病的情况。而且截止目前，医生还无法回答因CCP病毒导致的精神健康问题是否是临时性的，以及该风险会持续多久。
 
-当日皮特-纳瓦罗博士转推参加班农战斗室的谈话，节目主题是“班农和纳瓦罗对拜登的边境危机的看法：如同圣经般重要比重的灾难”
+另外一篇来自CNBC网站的报道表明，CCP新冠病毒对患者会有长期的影响。也就是说，即使患者能够从严重的肺炎症状中恢复过来，但仍会出现长期的COVID-19（CCP病毒）症状，包括四种或更多的神经系统症状。这些症状包括脑雾（类似痴呆症）、头痛、麻木或刺痛感，味觉和嗅觉丧失以及肌肉疼痛。而其他相关报道也提到过，COVID-19患者可能出现难以忍受的严重耳鸣，同时伴有疲劳、呼吸急促、头昏眼花等症状[2]。
 
-推文称：“由于 #拜登边境危机，美国城市地区和郊区的蓝领将长期受到损害，实际工资不会上涨。”
+报道中解释到，85%的患者经历了四种或更多的神经系统症状。美国的医疗研究人员戴维·普特里诺（David Putrino）呼吁，希望专注于帮助那些患者，并加强宣传新冠病毒（CCP病毒）破坏性后遗症的严重问题。这位研究人员在接受CNBC采访时说，COVID-19（CCP病毒）对患者的长期影响以及CCP病毒的大流行，正在改变医生对患者的治疗方式：即使是常规的诊断，医生首先也要询问病人是否感染过COVID-19（CCP病毒），以及要认真倾听患者对自身症状的描述，从而采取更有针对性的治疗措施，而不是像疫情之前对病人的治疗，用一种治疗方法和手段就能解决大部分的问题。
 
+据Barron’s报道，欧洲政要已经意识到，目前在欧洲出现的CCP病毒变种，更具致命性与传染性，而且传染性会持续更长时间[3]。但是随着夏季的到来，越来越多的人开始计划着走出家门。美国方面，各地的旅游酒店、独立屋，以及航班的预定开始火热了起来，有些旅游景区的客房预定量已经超过了疫情之前的水平[4]。老百姓对疫情已经变得麻木，但疫情潜在的再次爆发似乎指日可见。
 
+笔者认为，当下更为重要的是，美国和全世界应该真正向人民公布CCP新冠病毒是超限生物武器这一真相——因为人民对CCP新冠病毒的致命传染性和长期危害性普遍认识不足。我们真诚期盼爆料革命郭文贵先生在其直播中提到的，美国正在草拟和准备的新冠病毒白皮书能够尽快公布出来。由此让美国人民和全世界无辜的老百姓明白到底发生了什么，从而彻底追责CCP用超限生物病毒危害世界人民的反人类罪行。
 
-> There will be long term damage to blue collar America in our urban areas and suburban areas due to the [#BidenBorderCrisis](https://twitter.com/hashtag/BidenBorderCrisis?src=hash&amp;ref_src=twsrc%5Etfw). Real wages are NOT going up. [https://t.co/iolVUTcWxB](https://t.co/iolVUTcWxB)
-> — Peter Navarro (@RealPNavarro) [March 25, 2021](https://twitter.com/RealPNavarro/status/1375107006533603336?ref_src=twsrc%5Etfw)
+（本文观点仅代表作者）
 
+参考阅读：
 
+1. [First Covid, Then Psychosis: ‘The Most Terrifying Thing I’ve Ever Experienced’](https://www.nytimes.com/2021/03/22/health/covid-psychosis.html)
+2. [Lingering Covid symptoms pose ‘really serious problem,’ researcher says](https://www.cnbc.com/2021/03/23/lingering-covid-symptoms-pose-really-serious-problem-researcher-says.html)
+3. [‘We Are In A New Pandemic’ Due To Virus Variant: Merkel](https://www.barrons.com/news/we-are-in-a-new-pandemic-due-to-virus-variant-merkel-01616466604?tesla=y)
+4. [Sandals Caribbean resorts sees vacation bookings outpace pre-COVID numbers](https://www.foxbusiness.com/lifestyle/sandals-caribbean-resorts-vacation-coronavirus-lifestyle-travel)
 
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-g-fashion-1.jpg)
 
-当日众议员安迪-巴尔发推：
+编辑/校对/发稿：Irene木木
 
-“墨西哥总统正在陈述一个显而易见的事实：拜登总统对我们南部边境的危机负有直接责任。他取消了与中美洲国家的庇护协议，而这是川普时代的一个重大外交胜利。
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
-我们需要与这些国家重新接触，扭转造成#拜登边境危机的、拜登政府一连串灾难性的失误。”
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
 
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
 
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-> We need to reengage with these countries and reverse a string of disastrous blunders by the Biden Administration that created the [#BidenBorderCrisis](https://twitter.com/hashtag/BidenBorderCrisis?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Rep. Andy Barr (@RepAndyBarr) [March 24, 2021](https://twitter.com/RepAndyBarr/status/1374835944940011526?ref_src=twsrc%5Etfw)
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 
 
-### 中共式记者会
-
-3月24日朱利安尼先转发了杰森-米勒的推文。“避重就轻。就这么简单：乔-拜登会召集预先挑选的记者，提出预先筛选的问题。就这么简单。来自CNN政治的文章《三环文件夹和14号字体：拜登是如何准备新闻发布会的 》”
-
-CNN这篇文章称，拜登被问及下午即将举行的记者招待会时，轻描淡写地说“什么记者会？” 但是很多人证实拜登最近忙于准备这场记者会。
-
-拜登上任后六十多天从未举行过记者招待会，CNN表示，上任后的多次讲话都是白宫对着摄像头进行的。这次面对记者将会是多样化的。
-
-
-
-> Terrible write-up that misses the obvious. It’s this simple: Joe Biden is going to call on pre-selected reporters with pre-screened questions. It’s that simple. 
-> 
-> “Three-ring binders and 14-point font: How Biden preps for a news conference – CNNPolitics” [https://t.co/XJXRbu2L5I](https://t.co/XJXRbu2L5I)
-> — Jason Miller (@JasonMillerinDC) [March 25, 2021](https://twitter.com/JasonMillerinDC/status/1374901108737462274?ref_src=twsrc%5Etfw)
-
-
-
-
-
-### 民主党的变化
-
-3月24日众议员莫-布鲁克斯推文：“民主党和一二十年前不同了。反美社会主义者已经接管了这个政党。他们不再对美国人具有同情心，而要完全开放边境。”
-
-
-
-> The Democrat Party isn’t the same as it was a decade or two ago. Anti-American Socialists have taken over the party. They no longer have any compassion for Americans and want completely open-borders. 
->  [https://t.co/hkouuD1wTW](https://t.co/hkouuD1wTW)
-> — Mo Brooks (@RepMoBrooks) [March 24, 2021](https://twitter.com/RepMoBrooks/status/1374761765440004096?ref_src=twsrc%5Etfw)
-
-
-
-当日众议员莫-布鲁克斯推文：“社会主义者试图破坏第二修正案的拥枪权，并夺走你的枪。他们甚至不再试图掩盖它。”
-
-
-
-> The Socialists seek to gut the Second Amendment Right to Bear Arms and take your guns. They’re aren’t even trying to hide it anymore.[https://t.co/wYOzawVVC7](https://t.co/wYOzawVVC7)
-> — Mo Brooks (@RepMoBrooks) [March 25, 2021](https://twitter.com/RepMoBrooks/status/1375092956298895365?ref_src=twsrc%5Etfw)
-
-
-
-
-
-### 黑客入侵
-
-马克卢比奥医院24日推文：“**个人或敌对政府正在瞄准（美国）地方政府。**FBI警告MAMBA RANSOMWARE被用来攻击公共交通、法律和技术服务、工业、商业、制造业和建筑业。”
-
-
-
-> Individuals or hostile governments are targeting local governments. FBI warns MAMBA RANSOMWARE being used to target public transportation, legal & technology services, industrial, commercial, manufacturing, & construction businesses. [https://t.co/76MBdgtl2K](https://t.co/76MBdgtl2K)
-> — Marco Rubio (@marcorubio) [March 24, 2021](https://twitter.com/marcorubio/status/1374815114759704589?ref_src=twsrc%5Etfw)
-
-
-
-
-
-### 在中共国做生意的教训
-
-卢比奥议员3月25日推文：“美国企业正在艰难地学习，要想在中（共）国做生意，你一般必须保持沉默，或者成为共产党犯罪的帮凶，比如在 #新疆 实施 #维吾尔族种族屠杀”
-
-
-
-> U.S. corporations are learning the hard way that to be allowed to do business in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) you generally must remain silent or become accomplices in the Communist Party’s crimes, like the [#UyghurGenocide](https://twitter.com/hashtag/UyghurGenocide?src=hash&amp;ref_src=twsrc%5Etfw) in [#Xinjiang](https://twitter.com/hashtag/Xinjiang?src=hash&amp;ref_src=twsrc%5Etfw)
-> — Marco Rubio (@marcorubio) [March 25, 2021](https://twitter.com/marcorubio/status/1375058126685286402?ref_src=twsrc%5Etfw)
-
-
-
-
-
-### 现任国务卿布林克当日推文
-
-“针对军事政变和缅甸军方对和平示威者的持续暴力镇压，美国正在采取进一步行动，指认缅甸经济控股上市公司和缅甸经济股份有限公司。”
-
-“美国和英国一直在履行我们的承诺，继续推动对缅甸政变和暴力侵害缅甸人民的行为进行问责。我们仍然坚定不移地支持缅甸人民恢复和平与民主的努力。”
-
-
-
-> The United States and the UK have followed through on our pledges to continue promoting accountability for the coup and violence against the people of Burma. We remain steadfast in our support for the people of Burma in their efforts to restore peace and democracy. [@dominicraab](https://twitter.com/DominicRaab?ref_src=twsrc%5Etfw)
-> — Secretary Antony Blinken (@SecBlinken) [March 25, 2021](https://twitter.com/SecBlinken/status/1375093691577171976?ref_src=twsrc%5Etfw)
-
-
-
-
-
-### 新疆今昔？
-
-当日，就H&M、耐克公司抵制新疆棉花的声明恐引发更大浪潮，中共国外交部华春莹发推：
-
-“1908年的 #密西西比 对比 #2015年的新疆。
-一把猎枪和几条猎犬方阵对比笑脸和收获。有强迫劳动吗？”
-
-纽约时报记者奥斯丁回复：“‘新疆比百年前的密西西比好 ’或许不是中国外交部认为的振奋人心的依据。”
-
-
-
-> "Xinjiang: better than Mississippi a century ago" is perhaps not the rousing endorsement China's foreign ministry thinks it is [https://t.co/9vR5T8HFKe](https://t.co/9vR5T8HFKe)
-> — Austin Ramzy (@austinramzy) [March 25, 2021](https://twitter.com/austinramzy/status/1375020691532128257?ref_src=twsrc%5Etfw)
-
-
-
-
-
-### 美国对外政策
-
-白宫发言人推文：“我们很高兴地宣布通过@USAID 提供1,500万美元的人道主义援助，以满足西岸和加沙的紧急、拯救生命的粮食和健康需求。这符合美国的价值观，也是我们战胜 #COVID19 的全球承诺的一部分。”
-
-
-
-> We are pleased to announce $15 million in humanitarian assistance through [@USAID](https://twitter.com/USAID?ref_src=twsrc%5Etfw) to meet immediate, life-saving food and health needs in the West Bank and Gaza. This is consistent with American values and part of our global commitment to combat [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/MxK2fPzUcv](https://t.co/MxK2fPzUcv)
-> — Ned Price (@StateDeptSpox) [March 25, 2021](https://twitter.com/StateDeptSpox/status/1375134131059748872?ref_src=twsrc%5Etfw)
-
-
-
-### 拜登新闻记者会
-
-当日福克斯新闻：“前总统唐纳德-川普将于美国东部时间今晚10点加入 “英格拉姆视角 “节目，对乔-拜登的首次总统新闻发布会作出反应。”
-
-
-
-> Former President Donald Trump will join [@IngrahamAngle](https://twitter.com/IngrahamAngle?ref_src=twsrc%5Etfw) on “The Ingraham Angle” tonight at 10 p.m. ET with reaction to the first presidential news conference from [@JoeBiden](https://twitter.com/JoeBiden?ref_src=twsrc%5Etfw). Tune in![https://t.co/gPSkyYtn43](https://t.co/gPSkyYtn43) [pic.twitter.com/ZeJY5kO8yP](https://t.co/ZeJY5kO8yP)
-> — Fox News (@FoxNews) [March 25, 2021](https://twitter.com/FoxNews/status/1375104357012758534?ref_src=twsrc%5Etfw)
-
-
-
-### 英国王室里的辛普森计划……
-
-当日福克斯新闻：“王室专家称，查尔斯王子希望对哈里和梅根的指控‘逐点’进行回应。”
-
-
-
-> Prince Charles wanted to issue 'point by point' response to Harry and Meghan's allegations, royal expert says [https://t.co/blLX8ZAW5p](https://t.co/blLX8ZAW5p)
-> — Fox News (@FoxNews) [March 25, 2021](https://twitter.com/FoxNews/status/1375028733774548992?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
 0
