@@ -1,25 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评粤语快报】03.23：中俄外长发布联合声明 美白宫发言人明确将进一步制裁中共更高级别官员
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1018329/)
+## 川普商谈创建社交网络
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1018491/)
 
-制作团队：【喜马拉雅-粤语组】 wen fei、sad3mom、文恩
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
+编辑上传  银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-25_22-09-35.jpg)[hollywoodfeeder.com](https://hollywoodfeeder.com/which-social-media-services-can-the-president-still-use/)
+03月25日，互联网平台Axios援引熟悉谈判进展消息人士的报道，美国前总统唐纳德·川普（Donald Trump）正在与移动应用开发商商谈创建自己的社交网络。
 
+据该网站谈话人介绍，这些开发商包括隶属于Skylab Apps的FreeSpace平台。后者致力于为教练、培训师等建立社交网络。
 
-主要内容
+应Axios的要求，FreeSpace拒绝对这一情况发表评论。
 
-1、中俄外长发布联合声明
+1月，社交网络推特（Twitter）封锁了川普的账户。该公司表示，官方理由是川普“煽动暴力”。这是在前总统的支持者因不同意选举结果而冲进美国议会大楼后发生的。
 
-2、美白宫发言人明确将进一步制裁中共更高级别官员
+与此同时，苹果、亚马逊和谷歌从其在线商店中删除了川普支持者积极使用的应用程序Parler，该社交网络在2月中旬才恢复工作。
 
-3、美太平洋舰队司令在参议院听证会上明确“中共侵略台湾威胁迫在眉睫”
+2月，川普表示他无意重返推特，因为“它已经不一样了”。同时，这位前国家元首表示，他的团队正在开发一个独立的平台，可以供他的支持者使用。
 
-4、美众议员提出将台湾纳入“北约加”社区成员
+至3月21日，川普的顾问杰森·米勒（Jason Miller）表示，这位前总统将在两三个月内重返社交媒体，但会在不同的平台上。据他介绍，这将是一个拥有数千万用户的大型平台。
 
-【路德时评】[原视频链接1](https://youtu.be/Fa9tD9P9o7Y)  [原视频链接2](https://youtu.be/A6PVAFqmY3o)
+参考链接：
 
-上传：流光飞舞
+https://www.rbc.ru/rbcfreenews/605bf2b89a79470aa155068a
 
 0

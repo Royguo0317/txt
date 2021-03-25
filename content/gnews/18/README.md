@@ -1,27 +1,15 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德美未能如愿重回“伙伴合作关系”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1018468/)
+## 2021年3月25日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1018621/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-编辑上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-25_21-59-44.jpg)[holidaysmart.com](https://www.holidaysmart.com/holidays/daily/german-american-day)
-03月25日，《明镜周刊》报道，美国总统乔·拜登赢得大选后，德国期望与美国重回“伙伴合作关系”，但这并没有发生。
+325：中共要脱钩了……所有国内的同胞们只能到G翻身……来买所需的真正的真货，真时尚品牌啦……文贵在这等着呢……我似乎看见乌泱乌泱来买鸡翻身的人喽。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cd0aeb2e83662d2bb38fdefa3c52e6fb.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/c4845ae2ff245dba0492939d97edf6c0.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/b664b9cb3d7b45e75972cb04c5127567.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/32796e844c36eaba34ef860f0451656d.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/387f50535a934754b151984fa2c14b11.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/18ba647e07ce0447d30f283d60e53cca.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/7ef89c2730d66893806830730c4aa82d.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/5dac7cbd82370af8a1124b0f44f2255e.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/0cfbcb5b249b87f33cba10d5970fb051.jpg)
+[【2021年3月25日】文贵先生盖特原文](https://gtv.org/getter/605ceac1d1608d609ea7a9df)
 
-文章指出：“联邦政府的希望没有实现。” 3月23日德国总统海科·马斯（Heiko Maas）和美国国务卿安东尼·布林肯（Anthony Blinken）举行会谈后得出这一结论的。这是德国和美国拜登政府第一次面对面的会晤，这样的结果“不是个好兆头”。
-
-文章称，在会谈之前，美国就出人意料地向德国提议在4月份召开和平解决阿富汗局势的会议。德国认为在如此短的时间内达成和平协议是不现实的，并担心这可能会扰乱其支持的“多哈敏感谈判”。
-
-此外，在会议之前，布林肯要求德国停止北溪-2号管道的建设，并威胁称将实施制裁。美国曾多次表示，认为该管道对欧洲的能源安全构成威胁。美国对参与 “北溪2号 ”建设、维护、保险和认证的公司出台了制裁措施，这减缓了项目的完工速度。俄罗斯和欧洲当局则指责华盛顿试图将其更昂贵的液化气强加给欧盟。
-
-文章指出，“即使是在德国反对天然气管道建设的人，同样也绝对反对美国的域外制裁。”
-
-援引自《Politico》的报道，由于对天然气管道实施了更严厉的制裁，让拜登“处于锤子和铁砧之间”。他们认为，拜登政府一方面想阻碍项目的实施，另一方面又不想破坏与德国的关系，德国支持完成天然气管道的建设，并称美国的行动干涉内政。
-
-参考链接：
-
-[https://www.rbc.ru/politics/25/03/2021/605c1f229a79471489e100d5](https://www.rbc.ru/politics/25/03/2021/605c1f229a79471489e100d5)
+**喜联盟Gnews编辑部**
 
 0

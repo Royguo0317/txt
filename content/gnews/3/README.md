@@ -1,87 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】由H&amp;M、耐克等企业的新疆棉事件引发的思考
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1018543/)
+## 阿拉斯加会谈是出卖两国人民利益的政治秀
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1018966/)
 
-作者：纽约香草山翻译部 文雅621
+简述：郭先生在2021年3月21日的盖特视频中继续揭露中美阿拉斯加会议，是一场“羊狼为奸，出卖两国人民的大会，演戏政治大会”。可悲的是中国的羊还在欢呼雀跃。
 
+**阿拉斯加会谈是出卖两国人民利益的政治秀**
 
+**Alaska Meeting – A Meeting to Sell the Interest of the Two Nations’ People**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+哎呀，共产党。刚才我发完那第一个盖特以后，说完以后很多战友都笑死了，很喜欢。是啊，它共产党就是披着羊皮的羊，像狼一样的咋呼，但是你再咋呼，你也是披着羊皮的羊，像狼一样地咋呼，而且是对着一个披着羊皮的狼咋呼。你以为那个狼就真是羊了吗？人家穿的羊皮也能给你吃了，脱了羊皮也能把你吃了，最后反正是羊，最后是狼嘴里的肉。你别咋呼。
 
+Oops, talking about the CCP,  since I sent out the first Getter just now, many fellow fighters have laughed to death. They really liked it. So, the CCP is like a sheep in sheep’s clothing. No matter how you make a fuss like a wolf, you are still a sheep in sheep’s clothing. You dared to make noise in front of a wolf. Do you really think the wolf is a sheep? A wolf can still eat you no matter if it puts on sheep’s clothing or wolf’s clothing. Eventually, sheep will be the meat in wolves’ mouths. So, don’t make too much noise.
 
+现在就是人家羊狼为奸，这叫“羊狼为奸”，阿拉斯加羊狼为奸，出卖两国人民的大会，演戏政治大会。啥都提，就不提冠状病毒，这帮孙子，啥都提，不提冠状病毒。你说你杨娘娘，你王毅你能不能不有种，你敢在美国、世界面前你提提病毒。还有美国政府官员你也有点胆量，你问问他冠状病毒。没有，你这可悲不？这叫两国大会吗？全世界的时刻在死人，时刻都在死人，你却不去提这个事情。这背后能没有交易吗？这背后能没有勾对吗？
 
-一、事件概述
+Now the sheep and the wolf acted in collusion with each other in the Alaska Meeting – a meeting to sell the interest of the two nations’ people. It’s a political show. They talked about everything except for the coronavirus. These bastards! They talked about everything except for the coronavirus. Yang Jiechi and Wang Yi, do you have the balls to mention the virus in front of the US and the world? And, the US government officials, can you be a little braver and ask them about the coronavirus? No, you didn’t. How pathetic? Is this called a bilateral meeting? While the whole world is losing lives from the virus every moment, you didn’t even mention a word about it. Can there not be no deals under the table? Can there not be no collusion behind this?
 
-本周，作为良好棉花发展协会（BCI）会员的时装零售商H&M，因去年秋季发表的一则对新疆强迫劳动事件深表担忧的声明，在中共国引发了一场社交媒体风暴和一系列的抵制活动。
+然后就是穿着羊皮的羊的共产党，学着狼一样地叫，回去告诉羊说：“你看看，我已经是狼了，所以说我可以吃掉那个穿着羊皮的狼了。”然后美国的狼回来了，穿着羊皮回来了：“你看看，是吧？我跟他特勾兑好了，羊决定下一步送给我们更多羊。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image-371.png)图源网络
+Then, the CCP, a sheep in sheep’s clothing mimicking a wolf’s screaming, went back to tell the other sheep, “Look, I’m already a wolf, so I can eat the wolf in sheepskin.” And the American wolf also went back, wearing sheepskin, and said, “Look, I’ve made a deal with them, and the sheep will be sending us more sheep meat next.”
 
-H&M在声明中说，它“对来自民间社会组织的报告和媒体的报道深表关注，其中包括对新疆维吾尔自治区少数民族强迫劳动和歧视少数民族及宗教的指控”，“我们不与位于新疆的任何服装制造工厂合作，也不从该地区采购产品或原材料。” 声明还反驳了澳大利亚战略政策研究所对其的指控——称H&M与一家雇佣新疆劳工的中（共）国服装企业有业务关系。显然，这一声明旨在澄清外界对跨国服装企业供应链涉及新疆的怀疑。
+反正吃亏的就是我们中国人草根儿，都是羊。可悲的是中国的羊还在欢呼雀跃，等待着我们穿着羊皮的羊的羊首领，将我们送上真正披着羊皮的狼，当它的盘中餐。你不信走走看。
 
-这份去年发表的声明在数月之后，突然在中（共）国社交网络上受到关注。共青团中央和官媒对此强烈抨击，中（共）国社群媒体周三亦掀起一波怒潮，民族主义情绪高涨。“H&M碰瓷新疆棉花”的标签在微博上成为热搜，有关微博贴文的讨论区被淹没在一片愤怒中：很多人留言要求H&M“滚出中（共）国”，并呼吁抵制该品牌，而H&M亦被指责“种族主义”、“反华”。淘宝、京东、拼多多等中（共）国大陆地区的电商平台屏蔽了H&M的商店和相关商品；百度地图、高德地图则屏蔽了“H&M”或“HM”；中（共）国多个Android应用市场将HM商城App下架。H&M大中华区代言人艺人宋茜、黄轩的工作室亦在当日发布声明，表示已终止了与H&M的合作。
+No matter what, our Chinese grassroots, the sheep, are always the ones suffering. The sad thing is that Chinese sheep are still cheering, awaiting for their sheep leaders to send them to the table of wolves who were in sheep’s clothing as food. Wait and see if you don’t believe me.
 
-中（共）国外交部发言人华春莹在记者会上表示，有关新疆强迫劳动的指责完全是个别反华势力炮制的恶意谎言，目的是抹黑中（共）国形象、破坏新疆安全稳定、阻遏中（共）国的发展。她说，中（共）国的网民有权利表达自己的感受。“这绝对不是什么民族主义，而是朴素的爱国主义。”
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/605772fcd1608d609ea6a74b](https://gtv.org/getter/605772fcd1608d609ea6a74b) (5:12-7:30)
+鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/1000700/](https://www.gnews.org/zh-hans/1000700/)
 
-《环球时报》总编胡锡进在微博中称，H&M的声明是去年9月到10月做出的，之所以今天被翻出来，是因为这两天中西方围绕新疆问题的意识形态交锋出现白热化，带动了两边的社会情绪。
+* * *
 
-胡总编所称的中西方围绕新疆问题交锋的“白热化”所指为何？看一下世界大事，我们就会一清二楚。
-
-二、世界各国对待新疆问题的动作
-
-以下几个代表性的动作，很好地诠释了胡总编的“白热化”一词：
-
-1、2021年1月19日，美国前国务卿蓬佩奥宣布，中（共）国在新疆对维吾尔族及其他穆斯林少数民族犯下种族清洗与反人类罪。
-
-2、2021年3月22日，美国、英国、加拿大以及欧盟首次针对中（共）国在新疆迫害维吾尔人的行为实施联合性制裁。澳大利亚和新西兰发表声明表达支持。
-
-英、加、欧盟制裁名单均为中（共）国四名官员及一个实体，包括前新疆政法委书记朱海仑、新疆自治区党委常委王明山、新疆生产建设兵团政委兼中（共）国新建集团公司董事长王君正，以及新疆自治区公安厅厅长陈明国，被制裁的实体是新疆生产建设兵团公安局。
-
-至于美国，财政部宣布，将王君正及陈明国加入制裁名单，王明山及朱海仑已于去年被美国制裁。
-
-3、2021年3月22日，美国服装与鞋类协会（AAFA）、美国鞋类经销商协会（FDRA）、全国零售联合会（NRF）、零售业领导者协会（RILA）和美国时装工业协会（USFIA）发布联合声明，支持美国国务院的制裁行动，以阻止中（共）国政府对新疆穆斯林的迫害，并推动结束当前的种族灭绝。声明说，商界过去两年一直致力于打击强迫劳动。各行业协会还表示，将继续与美国行政当局和国会合作，“实施一项有效和可执行的战略，解决在新疆以及与之有关的强迫劳动问题”。
-
-以上世界各国对新疆的动作均表明，美欧等西方国家针对新疆人权问题对中（共）国的制裁正一次次收紧。中共国也不势弱，反向对欧盟几个官员也采取了相应制裁，但无论从力度及效果上看，均于事无补。
-
-三、新疆棉事件引发的思考
-
-1、H&M只是开始。
-
-除了H&M，运动消费两大巨头耐克和阿迪达斯也被发现，曾于去年3月在官网发布有关新疆的声明。耐克表示，对“在新疆以及与新疆有关的强迫劳动的报道”感到担忧。“耐克不在该地区采购产品”，并且“我们已经与我们的合同供应商确认他们没有使用该地区的纺织品或短纤纱”。阿迪达斯2020年3月同样声明：“在2019年春季，我们明确要求我们的材料供应商不要从新疆地区购买纱线。” 这些企业都是BCI会员，该协会有来自全球1953家会员，其中不乏世界知名品牌，这些会员均对由强迫劳动生产的新疆制品表示强烈关切及割离。这种迹象表明，越来越多的世界服装制造商会因其反对新疆的强迫劳动而停止从新疆采购棉花。
-
-![谈特朗普疫情系重大袭击发言华春莹：美国人民应得到一个交代](https://s.rfi.fr/media/display/b20cdadc-8f8b-11ea-a9f7-005056a98db9/w:1280/p:16x9/202005061dfc770f4052817bb8414cdd65becaba_origin.webp)图源网络
-
-2、中共通过操纵民众情绪抵制经济
-
-中共政府自知其无法抵赖新疆种族灭绝、强迫劳动等罪行，妄图通过舆论媒体宣传，大肆煽动不明真相的广大民众的所谓民族精神、爱国情绪，用民意抵制各大服装企业在华生意，企图以此威胁各大企业放弃他们正义的立场。正如2019年，美国NBA休斯顿火箭队总经理莫雷在推特上公开支持香港，引发中（共）国大陆民间对NBA的抵制，中共中央电视台体育频道立即中止了NBA的赛事转播。随着NBA的妥协，中（共）国官媒停止炒作，抵制降温。2020年10月，央视恢复播出NBA比赛。美国南卡大学商学院教授谢田认为， 中（共）国政府用政治压制经济的做法较为隐晦，是通过操纵民间抵制实现的——因自发形成的抵制是市场行为，绕过了国际贸易规则，因此，跨国企业无法取证并在国际法庭上诉诸仲裁。
-
-但此次，在要“市场”还是要“立场”方面，我们已经看到，越来越多的企业放弃了诱人的中共国“市场”，而选择了人类正义的“立场”。
-
-3、经济脱钩已经开启，中共正一步步走向灭亡
-
-随着中共病毒超限生化武器、香港人权问题以及台湾领土威胁等一系列问题的显现，西方国家正在寻求与中共国从政治、经济、金融等方面的全面脱钩。而中共此次对H&M的抵制行动，无异于主动与世界经济开始脱钩，全面开启内循环经济，如此一来，势必会对其已面临崩溃边缘的经济再雪上加霜。共产党必将为其所作所为付出应有的代价，尤其是它对新疆人民犯下的种族灭绝等罪行。归根结底，无论共产党如何叫嚣，都无法改变其加速走向灭亡的最终命运。
-
-（本文观点仅代表作者）
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-g-fashion-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
+字幕：【Rock小哥】校对：【BruhM】视频解码：【恒久忍耐】推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0

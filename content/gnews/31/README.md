@@ -1,91 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210325（图片新闻）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1018086/)
+## 理屈词穷之下，中共无赖到底拿加国原著民人权历史说事
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1018401/)
 
-- 作者：2020喜马拉雅
-- 封面：透明的遮羞布
+加拿大多伦多枫叶农场 硫酸羟氯喹64
 
+加拿大知名独立媒体TRUENORTH于3月23日刊登时政文章，针对中共国外交部发言人华春莹就近期加拿大和美国及西方诸盟国，联合对中共政权的种族灭绝和反人类罪行实施的各项国际制裁而采取的敌对立场和回击方式，以及特鲁多的自由党政府对中共此举的反应做了追踪性报道。本文的字里行间里无不透露出作者对中共流氓式无耻叫嚣的鄙视和不屑。同时也对总理特鲁多和其所有内阁成员在中共淫威面前肝胆俱裂，勇气尽丧的卑劣绥靖政策进行了杯葛和鞭挞！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3125-1.jpg)
+全文编译如下：
+最近，在加拿大政府和众多西方盟友因中共政权犯下的种族灭绝罪，而对相关涉案的中共党员个人和所属企业实体实施了各项严厉制裁之后，中共国外交部在疲于招架之际，紧紧咬住了一个“千载难逢之机”，对加拿大的人权历史记录进行了大肆的歪曲和攻击。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+要知道在此前，加拿大联同美国，英国和欧盟等西方民主阵营国家，宣布了一系列针对中共暴政的制裁措施，以此作为齐心协力对中共政权施以国际惩罚的重要参与者之一。
 
-**西班牙2021年3月25日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
+面对接踵而至的国际联合制裁和打击，中共国外交部发言人华春莹显然恼羞成怒，并再度公然大放厥词道：“必须指出的是，那些宣称自己是人权“法官”，并热衷于向他国政府指手划脚，宣经布道的国家，在其本身人权方面的记录却是如此的不堪。因此，这些国家政府无权批评中共国在人权方面（恶劣）的做法，更不用说将他们自己曾经的（在人权方面）所作所为归咎于中共国了。不要忘了，早在1870年代，加拿大政府就将同化当地印第安土著纳入了其正式国务议程，并公开主张杀戮和消灭原著民族。并从这些土著人民的儿童开始，建立了寄宿学校，以执行当时的种族灭绝文化政策。据不完全统计显示，有超过15万名原著民儿童被送到这类学校，其中有约50,000多人死于彼时政府的非人虐待。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0c39603a-afd0-4ef5-9894-f026f6410ea0.jpg)
+而就在本月初，加拿大下议院议员一致投票通过动议，并向全世界宣布中共政权持续对维吾尔人实施的统治政策和措施构成了种族灭绝罪行。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e210a553-d8ba-48b5-b3bf-fec8dba6c8e8.jpg)
+尽管自由党和保守党两派议员们都赞同和支持该史无前例的重大决议，但总理贾斯汀·特鲁多及其整个内阁成员却都罔顾民意的洪流而投了让世人瞠目怒舌，令加拿大政坛受辱蒙羞的弃权票。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e421a891-0e8d-440b-84b8-ecbb61139186.jpg)
+尽管总理及其同僚们缺乏最基本的勇气和胆识将中共暴政的累累罪行公开定性为种族灭绝，但特鲁多却在2019年毫无保留地接受了一项本国历史上有关失踪和被谋杀的印第安原著民包括妇女和儿童的全国调查报告结果，该调查结果声称加拿大政府曾经卷入了对原著民持续的“种族灭绝”。为此，特鲁多当时立即表示：“联邦政府将接受相关部门对此事的调查结果，包括承认发生了以上种族灭绝的行为。”
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ulh2h1wbz2y41.jpg)
+总理还随即牵强地辩解道：“围绕有关术语和这些词句（对原著民种族灭绝的定义）的使用，朝野上下正在进行大量的辩论。但作为一个人权国家，作为民主政府的领导人和加拿大公民，我们必须把政策重点放在为制止这种情况（种族灭绝）而采取的措施上。”（全文完）
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/549dd087-80f6-4e2a-a48e-0dbe1b0961f3.jpg)
+简评：
+颐指气使 华泼妇跨代嚎啕土著人权飘渺 恶棍耍赖舍共其谁
+投鼠忌器 糜土豆隔洋惧惮赤匪种族灭绝 君子粉装无出其右
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b975e6cb-fec7-4890-9d63-dfd581bc305e.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/402006e9-1593-47cc-b95f-3c3be33024bc.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/9dca30ec-32d9-4eb9-9883-99740c2ea405.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4345646d-70fe-4952-b5e1-a5cf89dd9776.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/59aecb58-e3d2-411a-bfc3-72e9a388324d.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/5fc777f6-48a0-4ee7-8cfc-e010651cb687.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/29219d03-fb90-464e-8bfb-eb801da69297.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b915d70a-9af9-4f2b-b188-abfca2fba441.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ae3a0e8a-c5fd-4c6b-ac18-698682f86b72.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b955d602-daad-4ae9-805c-0ceee7a99248.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0a36188d-2024-47c0-a707-320286b46402.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3abeb573-569d-4cef-b976-a093791ded91.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/726af436-4bbb-4941-a458-4720054e4c6a.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/029209db-e868-4d13-909d-3ab576d0be91.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/42beb97a-e932-4464-9105-0f7f00381a5c.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0b136f36-1e67-46d7-b2ba-29166313c97a.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/441d8579-8b8c-41cd-b642-e2b06dc81b20.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d78e0278-24d1-4564-9325-3baf6a71d8eb.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ddb3d6da-686b-4b6f-a4ee-06cc98fcc73a.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e26a290b-e6f7-4e9d-aeb5-aaca6d037bf7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/93c47f03-ef6c-41d8-adcc-f62110cfaae3.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/dcf2e167-fcc2-4dcf-85d3-1ece2251d982.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d5bcbbfe-a50c-4f6a-87c2-03a6f71cdbaf.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2d07752e-7edd-4b45-b908-d1676279b240.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cbec786a-092a-4ec2-b100-bb1c3a39dc69.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/a1f71e27-1a82-4fa2-a385-4a791929ee61.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/09f16677-7b02-4a51-a7ad-24380269bef8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0c50afbf-27b4-4a25-ad22-9f90cf29ff16.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/9c1fde92-f1c1-4f7c-b9f7-cc4ece864f81.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/230f2e3e-ec82-43fb-99d2-fedb61a54617.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/f637669b-ee08-4253-bcfd-898ee46d0782.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/052d8c9c-5a0e-483f-9066-0d8d4d1e4dc2.jpg)
-
-发稿：Ranting
-
-本文观点均来自于作者，与GNEWS无关
+[原文链接](https://tnc.news/2021/03/23/china-lashes-out-at-canadas-ignoble-indigenous-rights-record-in-response-to-sanctions/)
 
 0

@@ -1,226 +1,209 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 带你从病毒早期事件和几份专家报告看CCP病毒的谎言与阴谋
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1017241/)
+## 美国政要等每日重要信息0325.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1017388/)
 
-作者：康州盘古农场- Bc.S
-编辑：康州盘古农场- Antsee-GTV
-二编：康州盘古农场- 轰炸机
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-306.jpg)
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0325.jpeg)图片来源：康州盘古农场 霹雳年
+### 批评拜登
 
-**第一部分：CCP病毒爆发早期的事件和时间线**
+3月24日朱利安尼先生推文：“即使是自由派媒体也批评拜登政府缺少透明度。细节请收看节目《常识》。”
 
-世界的灾难，世界人民的噩梦，从那时开始：
 
-2019年12月18日：武汉中心医院南京路院区急诊科接诊该院第一例武汉肺炎患者。[\[1\]](https://web.archive.org/web/20200218083556/https:/news.sina.com.cn/c/2020-02-17/doc-iimxyqvz3653366.shtml) 2019年12月27日：武汉中心医院急诊科主任艾芬医生接诊第二例武汉肺炎患者。[\[2\]](https://zh.wikipedia.org/wiki/%E8%89%BE%E8%8A%AC)
 
-2019年12月30日：第二例武汉肺炎患者送检结果出来，化验单上注有“SARS冠状病毒”字 样，引起肺炎的原因可能是一种类似SARS的冠状病毒。当天艾芬医生第一时间向医院公共卫生科和院感科部⻔报告,但医院有没有再向上级疾控部⻔报告艾芬医生并不清楚。[\[1\]](https://web.archive.org/web/20200218083556/https:/news.sina.com.cn/c/2020-02-17/doc-iimxyqvz3653366.shtml)
+> Even LIBERAL Media SLAMS Biden Over Lack Of Transparency
+> 
+> Rudy Giuliani breaks it down, HERE: [https://t.co/s1NExR8zKj](https://t.co/s1NExR8zKj) [pic.twitter.com/dpbUnayF1L](https://t.co/dpbUnayF1L)
+> — Rudy W. Giuliani (@RudyGiuliani) [March 25, 2021](https://twitter.com/RudyGiuliani/status/1374904546988818432?ref_src=twsrc%5Etfw)
 
-2019年12月30日：网上曝光了一份政府内部的红头文件《关于做好不明原因肺炎救治的工作》的紧急通知，文件上印有武汉卫健委公章。[\[3\]](https://zh.wikipedia.org/wiki/File:%E5%85%B3%E4%BA%8E%E5%81%9A%E5%A5%BD%E4%B8%8D%E6%98%8E%E5%8E%9F%E5%9B%A0%E8%82%BA%E7%82%8E%E6%95%91%E6%B2%BB%E5%B7%A5%E4%BD%9C%E7%9A%84%E7%B4%A7%E6%80%A5%E9%80%9A%E7%9F%A5.pdf)
 
-2019.12.18~2019.12.30：从接诊第一例武汉肺炎患者到取得第二例武汉肺炎患者的检验 化验单，中间经过了12天。这12天患者不知道自己是冠状病毒的携带者，这些患者在在社会上、人群中自由行动…网络曝光的政府内部文件说明政府或已知晓病毒的危害及可能造成的严重后果。
 
-2019年12月31日：第一批中共卫健委专家到达武汉展开检测核实工作。[\[4\]](https://zh.wikipedia.org/wiki/File:%E5%85%B3%E4%BA%8E%E5%81%9A%E5%A5%BD%E4%B8%8D%E6%98%8E%E5%8E%9F%E5%9B%A0%E8%82%BA%E7%82%8E%E6%95%91%E6%B2%BB%E5%B7%A5%E4%BD%9C%E7%9A%84%E7%B4%A7%E6%80%A5%E9%80%9A%E7%9F%A5.pdf)
+25日瑞克-斯科特议员推文：“民主党不计后果的支出使美国债务有望达到30万亿，带来通胀上升的风险，伤害家庭与企业。我问了 @联邦储备局的开放市场委员会如何计划保护美国人和解决这一危机：https://bit.ly/3siJtcA。”
 
-2020年1月8日：第二批中共卫健委专家到达武汉，其中包括王广发。[\[5\]](https://finance.sina.com.cn/wm/2020-02-26/doc-iimxxstf4577235.shtml)
 
-2020年1月10日：央视采访中共卫健委专家组专家王广发。采访中王广发表示：武汉肺炎 可防可控！[\[6\]](http://www.xinhuanet.com/local/2020-01/11/c_1125448549.htm) 2020年7月10日FOX新闻采访闫丽梦博士，闫博士透露中共疾病防控中心(CDC)的一位专家告诉她，“2019年12月31日他们已经掌握了确切信息，该病毒可人传人，可造成家庭传染。[\[7\]](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower)
 
-2020年1月18日：武汉百步亭社区举办 “万家宴”，四万多个家庭参加。举办方同时派发了二十多万张旅游券。宴会后，这些参加宴会的人们⻜往了世界各地。[\[8\]](http://www.zgjx.cn/2020-02/02/c_138749458.htm)
+> The Democrats' reckless spending has U.S. debt on track to reach $30T, posing the risk of rising inflation that hurts families & businesses. I asked the [@federalreserve](https://twitter.com/federalreserve?ref_src=twsrc%5Etfw)’s Open Market Committee how it plans to protect Americans & address this crisis: [https://t.co/oKANs1SWGs](https://t.co/oKANs1SWGs)
+> — Rick Scott (@SenRickScott) [March 25, 2021](https://twitter.com/SenRickScott/status/1375070835371823104?ref_src=twsrc%5Etfw)
 
-2020年1月18日：中共卫健委高级别专家钟南山前往武汉。
 
-2019.12.31~2020.1.18：这段时间卫健委前后已经派遣了三批专家前往武汉调查武汉肺炎。如果这是一件小事，需要如此兴师动众吗？为什么王广发接受央视采访时表示病毒“可防可控”?武汉人⺠对病毒一无所知，毫无戒备，更别提佩戴口罩或使用其它防护措施了。听信了这个采访的武汉人⺠觉得这个肺炎不严重，一如往常地在社会上流动、交互，无疑极大增加了病毒的传播。为什么宣称“可防可控”? 误导武汉人⺠交叉感染，⻜往世界各地? 或许每个人有不同的看法，结合后来中共采取的一系列不寻常的举动，在我看来，只有一个原因：中共政府故意为之！
 
-2020年1月19日：路德社惊爆武汉冠状病毒具有人传人的特性，将大爆发。- 2020年1月19日路德社“路安艾”时评1分07秒，这已经注定将成为历史时刻，路德先生所爆猛料，由闫丽梦博士冒着生命危险向路德传递[\[9\]](http://www.zgjx.cn/2020-02/02/c_138749458.htm)
+### 美国边境危机
 
-2020年1月20日：中共卫健委高级别专家组专家钟南山记者问答中承认武汉肺炎 (COVID-19)被证实可以“人传人”。[\[10\]](http://www.zgjx.cn/2020-02/02/c_138749458.htm)
+当日皮特-纳瓦罗博士转推参加班农战斗室的谈话，节目主题是“班农和纳瓦罗对拜登的边境危机的看法：如同圣经般重要比重的灾难”
 
-2020.1.19~2020.1.20：在路德社爆料武汉冠状病毒人传人、大爆发、强变异、来自中共军方实验室几个小时后，卫健委高级专家钟南山承认武汉肺炎“人传人”。若不是路德社爆料，中共是断然不会承认“人传人”的。注意!中共为避开免谈引起武汉肺炎的核心-冠状病毒，而只宣称“武汉肺炎”。其目的怕是想尽量回避谈及“冠状病毒”吧?从早期一系列的遮遮掩掩的动作来看，反而欲盖弥彰，若和你中共无关，大可一开始就说明情况，而不是掩盖，这样做反倒显得你中共和冠状病毒的关系非同一般。
+推文称：“由于 #拜登边境危机，美国城市地区和郊区的蓝领将长期受到损害，实际工资不会上涨。”
 
-2020年1月21日：一份中共专家组的科学报告发布。[\[11\]](http://www.zgjx.cn/2020-02/02/c_138749458.htm)
 
-1月21日，中共卫健委专家组的一份关于武汉肺炎的报告发布。报告中显示，有集中性肺炎病例，集中性肺炎病例出现是证明肺炎人传人的一个特点；报告中还显示，在香港、日本、泰国有出口病例，这也是证明肺炎人传人的一点。奇怪的是，这些特点已 经可以证明病毒人传人，但报告上却说没有明显人传人的证据，显然这是自相矛盾 的。再有一点，报告中显示这种病毒是betacoronavirus，感染这种病毒后经常是无明显症状的。这会出现什么问题?一个看起来健康的人可能是病毒的携带者，这对病毒携带者的排查会造成很大的阻碍，相反对病毒的传播有很大的帮助作用。另外， 武汉冠状病毒的S蛋白和人体ACE2有很强的结合亲和力。如果病毒来源于自然，不应该与人体ACE2有如此之强的结合亲和力，这引出病毒可能不是来源于自然。最后，报告中显示武汉冠状病毒会构成重大的公共卫生⻛险。这份报告是在2020年1 月16日提交的，撰写这份报告必定是在1月16日之前，同时也是在钟南山宣布武汉肺炎人传人之前。既然这些专家早已经知道武汉肺炎会构成重大的公共卫生⻛险，为什么不立即告诉武汉人⺠? 并且报告只发布了英文版，而没有中文版。同时这份报告没有被任何一家中共媒体报道。一份只给英文世界看，而非中国人⺠的报告，目的是什么呢? 报告中有一重要引导，蝙蝠是冠状病毒的原生宿主，还可能存在中间宿主。看了这篇 报告的学者就会被引导去追查冠状病毒的中间宿主，而追成中间宿主是需要花费大量 时间的事情，往往需要数年、数十年，最终可能因为查不到中间宿主而不了了之。其 根本目的就是掩盖病毒是来源于非自然。
 
-2020年1月22日：郭文贵先生紧急直播，爆料中国某高官与他通电话的内容，想让爆料 革命不再提武汉冠状病毒的事。提出条件: 返还一百多亿美元资产，亲人团聚。[\[12\]](http://www.zgjx.cn/2020-02/02/c_138749458.htm)
+> There will be long term damage to blue collar America in our urban areas and suburban areas due to the [#BidenBorderCrisis](https://twitter.com/hashtag/BidenBorderCrisis?src=hash&amp;ref_src=twsrc%5Etfw). Real wages are NOT going up. [https://t.co/iolVUTcWxB](https://t.co/iolVUTcWxB)
+> — Peter Navarro (@RealPNavarro) [March 25, 2021](https://twitter.com/RealPNavarro/status/1375107006533603336?ref_src=twsrc%5Etfw)
 
-中共为什么害怕病毒的真相被揭露?如果中共和冠状病毒没关系，中共不必担心冠状病毒的真相。相反，因为中共知道爆料革命说出冠状病毒的信息是真的，中共也明白郭文贵先生了解中共的13579计划（包含生物武器计划），所以不惜代价想要爆料革命闭嘴不谈冠状病毒，也证明了中共和冠状病毒有着非一般的关系。
 
-2020年1月23日：武汉市封城！世界卫生组织WHO否决将中国武汉冠状病毒定为国际 关注公共卫生紧急事件。[\[13\]](https://www.dw.com/zh/%E4%B8%96%E5%8D%AB%E7%BB%84%E7%BB%87%E6%8E%A8%E8%BF%9F%E7%95%8C%E5%AE%9A%E7%96%AB%E6%83%85-%E6%AD%A6%E6%B1%89%E9%BB%84%E5%86%88%E5%BC%80%E5%A7%8B%E4%BA%A4%E9%80%9A%E7%AE%A1%E5%88%B6/a-52115608)
 
-2020年1月28日：世界卫生组织总干事谭德塞专⻔⻜往北京会⻅习近平，对中共高 层防疫工作大加赞赏，谭德塞还表示别的国家没有必要从中国撤侨。但世界卫生组织 WHO将武汉冠状病毒⻛险等级由中改为高。[\[14\]](http://www.zgjx.cn/2020-02/02/c_138749458.htm)
 
-2020年1月30日：世界卫生组织WHO总干事谭德塞宣布将武汉新型冠状病毒定为突发 公共卫生事件。[\[15\]](http://www.zgjx.cn/2020-02/02/c_138749458.htm)
 
-2020年2月12日：世界卫生组织WHO将武汉新型冠状病毒改名为Covid-19。
+当日众议员安迪-巴尔发推：
 
-2020年2月28日：世界卫生组织WHO将武汉新型冠状病毒⻛险等级由高提升至非常 高，但世界卫生组织WHO强调尚无证据表明病毒正在社区中广泛传播。[\[16\]](http://www.zgjx.cn/2020-02/02/c_138749458.htm)
+“墨西哥总统正在陈述一个显而易见的事实：拜登总统对我们南部边境的危机负有直接责任。他取消了与中美洲国家的庇护协议，而这是川普时代的一个重大外交胜利。
 
-2020年3月2日：《路德社》节目披露世界卫生组织报告，与武汉新型冠状病毒最接近的是舟山蝙蝠冠状病毒。[\[17\]](http://www.zgjx.cn/2020-02/02/c_138749458.htm)
+我们需要与这些国家重新接触，扭转造成#拜登边境危机的、拜登政府一连串灾难性的失误。”
 
-2020年3月8日：谭德塞发推文称中共政府要向世界卫生组织WHO捐助2千万美元，谭德塞感谢习近平及中共政府。[\[18\]](http://www.zgjx.cn/2020-02/02/c_138749458.htm)
 
-2020年3月11日：世界卫生组织WHO宣布新型冠状病毒全球大流行。[\[19\]](http://www.zgjx.cn/2020-02/02/c_138749458.htm)
 
-2020年3月24日：台湾在2019年年底已经警告世界卫生组织WHO武汉肺炎(武汉冠状 病毒)可能已经人传人。[\[20\]](http://www.zgjx.cn/2020-02/02/c_138749458.htm)
+> We need to reengage with these countries and reverse a string of disastrous blunders by the Biden Administration that created the [#BidenBorderCrisis](https://twitter.com/hashtag/BidenBorderCrisis?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Rep. Andy Barr (@RepAndyBarr) [March 24, 2021](https://twitter.com/RepAndyBarr/status/1374835944940011526?ref_src=twsrc%5Etfw)
 
-2020.1.23~2020.3.24：世界卫生组织WHO这段时间所做的事情直接帮助武汉冠状病毒在世界各国流行。其中WHO有几个重要的举措很令人费解：
 
-1、否决将武汉 冠状病毒的公共卫生事件定为国际公共卫生紧急事件;
 
-2、世界卫生组织总干事谭德塞专⻔⻜往北京会⻅习近平;
 
-3、为武汉新型冠状病毒改名;
 
-4、收到台湾对武汉肺炎的警告置之不理；
+### 中共式记者会
 
-这些事情在当时的环境下看，它们的关联性好像不是很大。在信息还不完整，还未能窥看到事件全貌的的背景下，确实关联性并不明显。但我们从后来涌现出的更多的证据，发生的更多的事件来看当时，锁定了该病毒是CCP的生物武器的时候，是不是能看得真真切切了呢？否决武汉新型冠状病毒是国际公共卫生紧急事件，让相信世界卫生组织的国家造成大量的感染病例，有助于中共的生物武器达到计划的效果。谭德塞专⻔⻜往北京会⻅习近平同时称赞中共高层的防疫工作，帮中共站台防疫工作做得好，其他国家感染人数上升与中共无关。武汉新型冠状病毒改名，目的防止⻄方社会在名字上联想到中共和病毒有关。对台湾的警告置之不理，既显示中共对世界卫生组织控制力也可达到助推病毒传播的目的。它们的共通性都是尽可能让中共撇清与病毒的关系，助长病毒在世界上的传播，以实现中共释放生物武器的战略意图。
+3月24日朱利安尼先转发了杰森-米勒的推文。“避重就轻。就这么简单：乔-拜登会召集预先挑选的记者，提出预先筛选的问题。就这么简单。来自CNN政治的文章《三环文件夹和14号字体：拜登是如何准备新闻发布会的 》”
 
-2020年7月10日：美国FOX新闻成为全球第一家播出闫丽梦博士采访的媒体。节目中闫丽梦博士透露，她于2020年4月28日逃离香港，⻜往美国。她登上⻜机后的几个小时，中共政府被惊动了，甚至包括中共国安局到闫博士家乡山东⻘岛找她家人的麻烦。她突然间失去了员工帐户和电子邮件，她离开前先向港大申请了休年假。2020年5月中旬，中共政府开始在网络上攻击闫博士，当时的闫博士尚未公开亮相，出现在媒体视野中。中共政府利用网军诋毁闫博士的声誉，指控闫博士撒谎，造谣闫博士有精神障碍。此外，香港大学阻止闫博士登陆她的员工帐户，并试图从香港大学网站删除她的⻚面。[\[21\]](http://www.zgjx.cn/2020-02/02/c_138749458.htm)
+CNN这篇文章称，拜登被问及下午即将举行的记者招待会时，轻描淡写地说“什么记者会？” 但是很多人证实拜登最近忙于准备这场记者会。
 
-为什么中共如此害怕闫丽梦博士?闫丽梦博士是中共官方与WHO联络的指定联络人，她在中共国内取得的医学博士背景，使得她与中共CDC，中共各大医疗机构的一线医生有广泛的接触和人脉网络。同时，她现在所在的香港大学P3实验室，肩负WHO对港，对东南亚地区的流行病监控。更劲爆的是，她的丈夫，以及她丈夫的导师，也是她的导师，斯里兰卡人马利克，是冠状病毒领域的泰斗级人物，她本人的学术背景，科研方向，亦与此有关。因此可以毫不夸张的说，恐怕在这世界上，再没有人能如闫博士这样，在围绕冠状病毒领域的多个维度，都拥有如此得天独厚的参与度和一手信息来源的人了。
+拜登上任后六十多天从未举行过记者招待会，CNN表示，上任后的多次讲话都是白宫对着摄像头进行的。这次面对记者将会是多样化的。
 
-闫博士赴美，在Fox新闻的亮相，也翻开了揭露冠状病毒真相的新篇章。接下来，我们一同来看看闫博士的两份报告，从真正专业的角度，看看她对冠状病毒的揭露吧！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2-115.jpg)
 
-第二部分：闫博士的“两份报告”
+> Terrible write-up that misses the obvious. It’s this simple: Joe Biden is going to call on pre-selected reporters with pre-screened questions. It’s that simple. 
+> 
+> “Three-ring binders and 14-point font: How Biden preps for a news conference – CNNPolitics” [https://t.co/XJXRbu2L5I](https://t.co/XJXRbu2L5I)
+> — Jason Miller (@JasonMillerinDC) [March 25, 2021](https://twitter.com/JasonMillerinDC/status/1374901108737462274?ref_src=twsrc%5Etfw)
 
-2020年9月14日：闫丽梦博士以及爆料革命的几位战友科学家们合著发布了第一份关于SARS-CoV-2冠状病毒真相的报告[\[22\]](http://www.zgjx.cn/2020-02/02/c_138749458.htm) （新型冠状病毒非源于自然），报告指出:
 
-1、SARS-CoV-2(Covid-19)来源于非自然，是功能性增强改造的产物，以舟山蝙 蝠病毒ZC45/ZXC21为⻣架改造而得出的；
 
-2、SARS-CoV-2不存在任何中间宿主；
 
-3、记录显示，武汉病毒研究所(WIV)专题研究过冠状病毒的刺突蛋白（S蛋白）的功能增强；
 
-4、ZC45/ZXC21是中共军方实验室发现并独有的新型蝙蝠冠状病毒。
+### 民主党的变化
 
-5、以增强传播性和致命性为导向的大规模实验室改造行为已经使得该病毒(SARS- CoV-2)彻底失控。结果造成SARS-CoV-2(Covid-19)可能在当前适应人类的过程中并不减弱其传播能力和致死性；
+3月24日众议员莫-布鲁克斯推文：“民主党和一二十年前不同了。反美社会主义者已经接管了这个政党。他们不再对美国人具有同情心，而要完全开放边境。”
 
-6、SARS-CoV-2(Covid-19)是实验室制造的产物；
 
-在上面这些论点中可以知道为什么中共政府一直试图将人们的视线引向病毒起源于自然的方向。 报告中指出SARS-CoV-2(Covid-19)的核心是用舟山蝙蝠病毒ZX45/ZXC21为⻣ 架改造出来的，而这个⻣架恰好是中共军方发现并拥有的新型蝙蝠冠状病毒。如果中共政府不将病毒起源推向自然起源，他们就不可能撇清与SARS-CoV-2的关系。因为这个病毒的核心⻣架为中共军方所独有。所以中共一定要把病毒起源推向自然起源，无论是捏造证据、蓝金⻩世界各国的专家学者、还是控制媒体平台，甚至动用网军、黑客，中共极尽所能将病毒起源推向自然起源。
 
-2020年10月8日，闫丽梦博士以及爆料革命的几位战友科学家们合著发布了第二份关于SARS-CoV-2冠状病毒真相的报告[\[23\]](http://www.zgjx.cn/2020-02/02/c_138749458.htm)[4]  (SARS-CoV-2是一种超限生物武器) ，报告指出:
+> The Democrat Party isn’t the same as it was a decade or two ago. Anti-American Socialists have taken over the party. They no longer have any compassion for Americans and want completely open-borders. 
+>  [https://t.co/hkouuD1wTW](https://t.co/hkouuD1wTW)
+> — Mo Brooks (@RepMoBrooks) [March 24, 2021](https://twitter.com/RepMoBrooks/status/1374761765440004096?ref_src=twsrc%5Etfw)
 
-1、中共上传的冠状病毒在自然界中并不存在，它们的序列是被伪造出来的；
 
-2、所有人工编造的冠状病毒均与ZX45/ZXC21的E蛋白具有100%的氨基酸序列一致性；
 
-3、大规模、有组织的科学欺诈是中共政府精心策划的一场操作；
+当日众议员莫-布鲁克斯推文：“社会主义者试图破坏第二修正案的拥枪权，并夺走你的枪。他们甚至不再试图掩盖它。”
 
-4、对冠状病毒真相的掩盖是在COVID-19大爆发之前精心策划并实施的；
 
-5、病毒不是偶然泄漏的事件；
 
-6、SARS-CoV-2是超限生物武器；
+> The Socialists seek to gut the Second Amendment Right to Bear Arms and take your guns. They’re aren’t even trying to hide it anymore.[https://t.co/wYOzawVVC7](https://t.co/wYOzawVVC7)
+> — Mo Brooks (@RepMoBrooks) [March 25, 2021](https://twitter.com/RepMoBrooks/status/1375092956298895365?ref_src=twsrc%5Etfw)
 
-7、当前的瘟疫大流行是对全人类的攻击；
 
-中共为了洗脱中共军方拥有的ZX45/ZXC21舟山蝙蝠冠状病毒的最大嫌疑，相继向世界公布了一系列的人工伪造冠状病毒序列，试图转移世界对ZX45/ZXC21舟山蝙蝠病毒的注意力。但是闫博士一一揭露中共发现并公布的冠状病毒序列都是人工伪造的序列。关于石正丽发布现的RaTG13，首先是RaTG13的公布时间，RaTG13的完整基因组序列是在2020年1月27日提交给GenBank (注意！这里说的是完整的基因组序列)，原始测序片段是在2020年2月13日公开，但是完整的基因组的组装中必不可少，用 于填补缺口的测序数据在2020年5月19日才公开。既然完整的基因组序列在1月27日已经 提交了，这就应在2月13日把所有的数据都公布出来，为什么要隔开这么⻓的事件才公布?石正丽请GenBank的人去中国唱卡拉OK，喝白酒，打麻将玩了3个月?事实上 是因为后面公布的数据就是可以证明RaTG13是人工伪造的关键信息，而RaTG13出现的 目的就是把所有关注中共军方拥有的舟山蝙蝠冠状病毒ZX45/ZXC21的注意力转移RaTG13身上，同时让学者们相信病毒起源于自然。另外一点，令人惊讶地发现RaTG13 和石正丽于2016年发表的RzBtCoV/4991是同一个病毒，同时RaTG13完整的基因组 测序早在2018年已经完成。为什么2018完成完整基因组测序的病毒在2020年发布?最蹊跷的一点是为什么在COVID-19大爆发的时候发布，而且RaTG13的基因组序列和SARS- CoV-2的基因组序列达到96.2%相同!从这些事情上看难免令人猜想他们这一系列的动作 都是有计划的。这也符合闫博士报告中的观点，大规模，有组织的科学欺诈是中共政府精心策划的一场操作，并行是早于COVID-19爆发前策划的。报告中闫博士将SARS-CoV-2 定义为超限生物武器，其中SARS-CoV-2符合杨瑞馥博士(杨瑞馥博士，任职中共国军事科学院医学研究所、中共国国家及生物恐怖袭击应对专家组成员、曾经作为联合国特别委员会(UNSCOM)的一员，参与调查伊拉克生物武器项目)对生物武器的定义，并且超 出杨瑞馥博士的定义，SARS-CoV-2有极高的无症状感染率，同时造成全球范围的恐慌、 扰乱了社会秩序、引发了世界经济衰退。其中闫博士的报告了显示的无症状感染对应了 2020年1月21日卫健委专家发布的报告中提到的武汉冠状病毒感染后无明显症状。这证明 中共政府一早知道这个病毒有感染后无症状的属性，却一直隐瞒，并掩盖病毒真相，显然 这也是中共释放生物武器计划的一部分，当时在中共政府的政策是无症状感染者不属于武 汉肺炎患者不需要隔离，加强病毒在人群中的传播，使其达到中共释放生物武器的战略效果。
 
-SARS-CoV-2在全球范围内感染率和死亡率还在不断上升，显然这已经对整个人类社会的 安全造成了威胁。
 
-(截止至2021年3月9日，全球新型冠状病毒感染人数:124M；死亡人数: 2.74M，数据来源：Google)。
 
-一年多以来，病毒对人类的影响还在不断地增加，现今全球75亿人里有1亿多人感染 新型冠状病毒，270多万人死于新型冠状病毒，而且数字还在不断地增加。当全球感 染人数是5亿人的时候、10亿人的时候、20亿的时候！谁能保证下一个感染新型冠状病毒的不是你自己，死于新型冠状病毒的不是你呢? 所以立即查清楚新型冠状病 毒的来源真相是当前全人类最重要的事情，关系着每一个人的未来，无论你是白人， 黑人，⻩种人都有可能被新型冠状病毒威胁。你的孩子、你的父母、亲人、朋友都有 可能因感染新型冠状病毒而离世，而你生命的流逝无能为力。
+### 黑客入侵
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-128.jpg)
+马克卢比奥医院24日推文：“**个人或敌对政府正在瞄准（美国）地方政府。**FBI警告MAMBA RANSOMWARE被用来攻击公共交通、法律和技术服务、工业、商业、制造业和建筑业。”
 
-第三部分：中共蓄谋已久的战略图谋
 
-2015年，中共国军事医学科学出版社曾经出版过一本书，名为《非典非自然起源和人制人新种病毒基因武器》。[\[24\]](http://www.zgjx.cn/2020-02/02/c_138749458.htm)
 
-这本书的编写人员几乎是中共军方人员或中共政府机构。例如，第四军医大学 军队流行病教研室主任徐德忠，总后勤部卫生部防疫句副局⻓李锋，军事医学科学出版社社⻓孙宇。
+> Individuals or hostile governments are targeting local governments. FBI warns MAMBA RANSOMWARE being used to target public transportation, legal & technology services, industrial, commercial, manufacturing, & construction businesses. [https://t.co/76MBdgtl2K](https://t.co/76MBdgtl2K)
+> — Marco Rubio (@marcorubio) [March 24, 2021](https://twitter.com/marcorubio/status/1374815114759704589?ref_src=twsrc%5Etfw)
 
-下面是我本人在这本书上看到的内容，其包括一些病毒界比较先进的理论。判定当代基因武器的“金标准”：突然出现之新疾病的发生和/或流行过程及其病原体 ，或致病基因之进化历程均不符合其各自相应的自然史！(此书第125⻚)” COVID-19的发生恰好可以对应到这条“金标准”。
 
-“蝙蝠：国际已公认，非典病毒的共同祖先为我国发现的蝠SARS样冠状病毒(Bt-SLCoV)Rp3(DQ071615)株，但非直接祖先；而在其流行后十年内，仍未查⻅直 接祖先，更无贮存宿主；所以，现在无法认为非典是自然疫源性疾病；根据研究结果， 笔者判断，果子狸不是其贮存宿主，仅是SARS临时或特定传染源，不能维持其⻓期存在和世代循环。” (此书第8⻚)
 
-COVID-19也十分类似，无中间宿主，菊头蝠、穿山甲是中共造出来的临时传染源， 目的为了扰乱专家学者的注意力，在闫博士第二份报告里揭露菊头蝠和穿山甲甚至可 能无法感染SARS-CoV-2，从而无法成为中间宿主。这进一步说明SARS-CoV-2起源 于非自然。
 
-“为何非典呈现上述和其他传染病截然不同的流行病学异常表现?其原因主要在于其 起源:非典病毒并非由某种动物病毒自然进化而成。目前，国内外学者均认为，蝠 SARS样冠状病毒(Bt-SLCoV)Rp3株为非典病毒之祖，但非直接祖先;至今找遍 几大洲，未发现其直接祖先和贮存宿主。故笔者戏称:非典病毒之曾祖已找到，但祖 父母、父母亲均未⻅，而后者可能贮存在某个黑暗的⻆落内。”(此书第27、28⻚)
 
-COVID-19其他传染病对比也有着截然不同的流行病学异常表现，同时至今也还未找 到直接祖先和中间宿主，COVID-19的直接祖先也有可能是在某个黑暗的⻆落内。
+### 在中共国做生意的教训
 
-联系下面这一段话: “在自然界或人群内，不存在引起疾病发生或流行的病原体或致病基因的直接祖先。 因为其为实验室生产之人工新品种，故直接祖先不可能在自然界或自然人群内，唯一 贮存地是在恐怖主义者之实验室内。”(此书第125⻚)
+卢比奥议员3月25日推文：“美国企业正在艰难地学习，要想在中（共）国做生意，你一般必须保持沉默，或者成为共产党犯罪的帮凶，比如在 #新疆 实施 #维吾尔族种族屠杀”
 
-这句话完美的解释了前一段中的“黑暗的⻆落内”是什么，直接引出COVID-19是实验室生产的新品种，而谁会研制这种病毒? 恐怖主义者！
 
-“使用目的已超越军事 和传统基因武器相比，在未发生世界大战之情况下，使用当代基因武器之目的不是军事企图，而是重要的恐怖威胁、政治和地 区或国际战略之需求。虽然，战争或军事动作是完成政治任务之 重要或最后选项;但其明目张胆，暴露于光天化日之下，易受别 国和世人之谴责。若采用当代基因武器，则隐蔽，难于取证;即 使提供学术证据甚至病毒和动物等实证，亦可百般抵赖，阻止和 压制，使国际组织和正义人士无可奈何。”(此书第84⻚)
 
-“恐怖主义者施放当代基因武器，必然有其不可告人之目的。当突发新品种病原体所 致烈性急性传染病在全国流行时，研究国际恐怖主义战略态势必不可少。正如分析案 情，对作案动机的调查十分重要!”(此书第126⻚)
+> U.S. corporations are learning the hard way that to be allowed to do business in [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) you generally must remain silent or become accomplices in the Communist Party’s crimes, like the [#UyghurGenocide](https://twitter.com/hashtag/UyghurGenocide?src=hash&amp;ref_src=twsrc%5Etfw) in [#Xinjiang](https://twitter.com/hashtag/Xinjiang?src=hash&amp;ref_src=twsrc%5Etfw)
+> — Marco Rubio (@marcorubio) [March 25, 2021](https://twitter.com/marcorubio/status/1375058126685286402?ref_src=twsrc%5Etfw)
 
-中共的动机符合上述观点，中共引来在外交上对别国的指认都是百般抵赖，当事国也无可奈何，(如南中国海军事化，侵蚀香港⺠主、法治、自由推行一国一制，单方面撕毁中英联合声明，新疆种族大屠杀，打压宗教自由等等)。释放生物武器，迫使香港人⺠减少上街游行示威，中美贸易战中对美国经济的有力反击，摧毁美国近年来最 好的经济趋势，同时预谋一早买光⻄方国家的防护用品和防护用品的生产设备，利用防护用品出口赚取外汇，利用防护用品迫使别国赞赏中共，为赚取国际上中共的友善形象，同时出口的防护用品是劣质的不及格产品从而控制别国的传染率和死亡率，达 到一举多得的效果，简单一句话，杀了你还要你感谢他。
 
-“利用包括⻜机、炮弹、火箭弹等大型甚至巨型投送装置或包裹、邮件、信件等中小 型各种工具，喷洒或携带释放或直接释放气溶胶战剂等。虽然此类手段，尤其前者看 似十分先进、技术高超，实质易于发现和识别，可迅速应对。而当代基因武器则高明 得多，使靶目标区意想不到、防不胜防，甚至思想混乱、不明真相；更不堪设想和令人痛心的是，可能个别人盲目地认为现在不具备生产和施放“当代基因武器”的企图和 条件，其结果无意地、或多或少地妨碍了对基因武器施放来源之查寻。对于后者，似乎不可想象，尤其是善良的、爱好和平之⺠众；但现实即如此残酷!因为在恐怖主义 者脑袋里装的唯有“威胁”“利益”“扩张”！为掌握这些“威胁”“利益”和“扩张”，其可不择手段;” （此书第86页）
 
-在这段话中当代基因武器的投放方式足以证明中共国对生物武器研究的理论世界领先，无论是投放的收到，如：包裹、邮件、中小型各种工具(小型无人机)等等。同时利用善良、爱好和平的⺠众(⻄方人⺠)不愿意相信病毒是生物武器的事实，建立的完美犯罪的理论体系，使世界各国对中共的所作所为无可奈何！
 
-CCP病毒肆虐全球至今，给人类带来的危害，在世界范围内对和生活、生产相关要素造成的损害，恐怕在人类历史上亦可称“最”了。但仍有众多国家，诸多民众尚未清醒。涉及病毒真相和衍生危害的话题，内容非常多而且广。我们可以从多个角度、着眼点来看，人与人之间，人与社会，人与国家，人与自然的关系皆因CCP病毒而造成的长久且难以逆转的影响而改变。比如我们可以从病毒学或科研领域来看，我们有闫丽梦博士，奎伊博士，汉堡大学物理学泰斗团队的论文，几份从科学角度无法辩驳的报告中都有最专业的论证；或者从疫情爆发后中共和WHO，以及福齐，达扎克等人串通隐瞒疫情真相，导致大量民众不以为然，放松警惕，加速疫情扩散的角度来看；再或者可以从廉价但有效药物羟氯喹的疗效被隐瞒的角度来看；从经济、金融领域的灾害以及实体经济遭遇的严冬和政府超发货币未来可能产生的危害的角度来看；另外，还可以从媒体，这个早已经沦落为金钱奴隶的腐败肮脏东西的角度…从多个角度，太多视角我们能去深入探究CCP病毒的危害了。本文仅选取了一个视角，一个维度，抛砖引玉！相信CCP病毒的真相会很快揭开，我们并不是理想化的在凭空期盼，而是我们认定：任何国家，任何人，在自己的生命和财产遭受巨大威胁时不会无动于衷，我们深信不疑。再加上有我们的爆料革命、新中国联邦、文贵先生、亿万战友们时刻在用自己的方式在唤醒着这个世界。让我们一起来揭露真相，传递真相，唤醒这个世界吧！一切都已经开始！
 
-* * *
+### 现任国务卿布林克当日推文
 
-注释：
+“针对军事政变和缅甸军方对和平示威者的持续暴力镇压，美国正在采取进一步行动，指认缅甸经济控股上市公司和缅甸经济股份有限公司。”
 
-[\[1\]](https://web.archive.org/web/20200218083556/https:/news.sina.com.cn/c/2020-02-17/doc-iimxyqvz3653366.shtml)：[亲历者讲述：武汉市中心医院医护人员被感染始末](https://web.archive.org/web/20200218083556/https:/news.sina.com.cn/c/2020-02-17/doc-iimxyqvz3653366.shtml)
+“美国和英国一直在履行我们的承诺，继续推动对缅甸政变和暴力侵害缅甸人民的行为进行问责。我们仍然坚定不移地支持缅甸人民恢复和平与民主的努力。”
 
-[\[2\]](https://zh.wikipedia.org/wiki/%E8%89%BE%E8%8A%AC)：[艾芬 维基百科](https://zh.wikipedia.org/wiki/%E8%89%BE%E8%8A%AC)
 
-[\[3\]](https://zh.wikipedia.org/wiki/File:%E5%85%B3%E4%BA%8E%E5%81%9A%E5%A5%BD%E4%B8%8D%E6%98%8E%E5%8E%9F%E5%9B%A0%E8%82%BA%E7%82%8E%E6%95%91%E6%B2%BB%E5%B7%A5%E4%BD%9C%E7%9A%84%E7%B4%A7%E6%80%A5%E9%80%9A%E7%9F%A5.pdf)：[File:关于做好不明原因肺炎救治工作的紧急通知.pdf](关于做好不明原因肺炎救治工作的紧急通知.pdf)
 
-[\[4\]](http://m.news.cctv.com/2019/12/31/ARTIsg2QlHWoHQixNnJMlIHb191231.shtml)：[武汉发现不明原因肺炎 国家卫健委专家组已抵达武汉](http://m.news.cctv.com/2019/12/31/ARTIsg2QlHWoHQixNnJMlIHb191231.shtml)
+> The United States and the UK have followed through on our pledges to continue promoting accountability for the coup and violence against the people of Burma. We remain steadfast in our support for the people of Burma in their efforts to restore peace and democracy. [@dominicraab](https://twitter.com/DominicRaab?ref_src=twsrc%5Etfw)
+> — Secretary Antony Blinken (@SecBlinken) [March 25, 2021](https://twitter.com/SecBlinken/status/1375093691577171976?ref_src=twsrc%5Etfw)
 
-[\[5\]](https://finance.sina.com.cn/wm/2020-02-26/doc-iimxxstf4577235.shtml)：[专访卫健委派武汉第二批专家：为何没发现人传人？](https://finance.sina.com.cn/wm/2020-02-26/doc-iimxxstf4577235.shtml)
 
-[\[6\]](http://www.xinhuanet.com/local/2020-01/11/c_1125448549.htm)：[专家称武汉不明原因的病毒性肺炎可防可控](http://www.xinhuanet.com/local/2020-01/11/c_1125448549.htm)
 
-[\[7\]](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower): [\[FOXNEWS\]EXCLUSIVE: Chinese virologist accuses Beijing of coronavirus cover-up, flees Hong Kong: ‘I know how they treat whistleblowers’](https://www.foxnews.com/world/chinese-virologist-coronavirus-cover-up-flee-hong-kong-whistleblower)
 
-[\[8\]](http://www.zgjx.cn/2020-02/02/c_138749458.htm): [“人民网评”——做抗击疫情的舆论尖兵](http://www.zgjx.cn/2020-02/02/c_138749458.htm)
 
-[\[9\]](http://www.zgjx.cn/2020-02/02/c_138749458.htm): [1/19/2020 路安艾时评：重磅！为什么财新胡舒立要一再否认武汉SARS病毒和舟山蝙蝠病毒的关联性？为什么该病毒已经进化具备人传人大爆发强变异？为什么中共要不断隐瞒确诊案例？](https://www.youtube.com/watch?v=CLTjg03CPEs)
+### 新疆今昔？
 
-[\[10\]](http://www.zgjx.cn/2020-02/02/c_138749458.htm): [国家卫健委高级别专家组就新型冠状病毒肺炎答记者问](https://www.guancha.cn/politics/2020_01_21_532447_s.shtml)
+当日，就H&M、耐克公司抵制新疆棉花的声明恐引发更大浪潮，中共国外交部华春莹发推：
 
-[\[11\]](http://www.zgjx.cn/2020-02/02/c_138749458.htm): [Evolution of the novel coronavirus from the ongoing Wuhan outbreak and modeling of its spike protein for risk of human transmission](https://www.sciengine.com/publisher/scp/journal/SCLS/63/3/10.1007/s11427-020-1637-5?slug=fulltext)
+“1908年的 #密西西比 对比 #2015年的新疆。
+一把猎枪和几条猎犬方阵对比笑脸和收获。有强迫劳动吗？”
 
-[\[12\]](http://www.zgjx.cn/2020-02/02/c_138749458.htm): [郭文贵2020年1月22日第二次直播 20200122\_2 谈武汉疫情紧急事](https://gwins.org/cn/milesguo/1091.html)
+纽约时报记者奥斯丁回复：“‘新疆比百年前的密西西比好 ’或许不是中国外交部认为的振奋人心的依据。”
 
-[\[13\]](https://www.dw.com/zh/%E4%B8%96%E5%8D%AB%E7%BB%84%E7%BB%87%E6%8E%A8%E8%BF%9F%E7%95%8C%E5%AE%9A%E7%96%AB%E6%83%85-%E6%AD%A6%E6%B1%89%E9%BB%84%E5%86%88%E5%BC%80%E5%A7%8B%E4%BA%A4%E9%80%9A%E7%AE%A1%E5%88%B6/a-52115608): [世卫组织推迟界定疫情  武汉黄冈开始交通管制](https://www.dw.com/zh/%E4%B8%96%E5%8D%AB%E7%BB%84%E7%BB%87%E6%8E%A8%E8%BF%9F%E7%95%8C%E5%AE%9A%E7%96%AB%E6%83%85-%E6%AD%A6%E6%B1%89%E9%BB%84%E5%86%88%E5%BC%80%E5%A7%8B%E4%BA%A4%E9%80%9A%E7%AE%A1%E5%88%B6/a-52115608)
 
-[\[14\]](http://www.zgjx.cn/2020-02/02/c_138749458.htm)：[习近平会见世界卫生组织总干事谭德塞](http://www.xinhuanet.com/politics/leaders/2020-01/28/c_1125508752.htm)
 
-[\[15\]](https://www.ntdtv.com/b5/2020/01/30/a102765015.html)：[世衛: 新冠肺炎構成國際突發公共衛生事件](https://www.ntdtv.com/b5/2020/01/30/a102765015.html)
+> "Xinjiang: better than Mississippi a century ago" is perhaps not the rousing endorsement China's foreign ministry thinks it is [https://t.co/9vR5T8HFKe](https://t.co/9vR5T8HFKe)
+> — Austin Ramzy (@austinramzy) [March 25, 2021](https://twitter.com/austinramzy/status/1375020691532128257?ref_src=twsrc%5Etfw)
 
-[\[16\]](https://www.ntdtv.com/b5/2020/02/29/a102788300.html)：[武漢肺疫情擴散近50國 世衛：風險調至非常高](https://www.ntdtv.com/b5/2020/02/29/a102788300.html)
 
-[\[17\]](https://www.youtube.com/watch?v=t9fZfdd0WyA)：[3/2/2020 路安时评：WHO正式报告显示武汉新冠最接近的就是舟山蝙蝠病毒！中共发出预备蝗虫大举入侵的紧急通知；美国成立“除籍科”打击入籍作假者的重大意义？](https://www.youtube.com/watch?v=t9fZfdd0WyA)
 
-[\[18\]](https://www.ntdtv.com/b5/2020/03/10/a102796126.html)：[世衞成中共黨支部？網友諷：「譚書記」應該入黨](https://www.ntdtv.com/b5/2020/03/10/a102796126.html)
 
-[\[19\]](https://www.ntdtv.com/b5/2020/03/11/a102797429.html)：[【快訊】WHO宣布 武漢肺炎已「全球大流行」](https://www.ntdtv.com/b5/2020/03/11/a102797429.html)
 
-[\[20\]](https://www.ntdtv.com/b5/2020/03/24/a102807294.html)：[台去年底就通知疫情人傳人 WHO僅回：收到](https://www.ntdtv.com/b5/2020/03/24/a102807294.html)
+### 美国对外政策
 
-[\[21\]](https://www.youtube.com/watch?v=n2E0raFVsrg)：[病毒學家閆麗夢博士歷經死亡威脅出逃美國 爆中共病毒驚天內幕](https://www.youtube.com/watch?v=n2E0raFVsrg)
+白宫发言人推文：“我们很高兴地宣布通过@USAID 提供1,500万美元的人道主义援助，以满足西岸和加沙的紧急、拯救生命的粮食和健康需求。这符合美国的价值观，也是我们战胜 #COVID19 的全球承诺的一部分。”
 
-[\[22\]](https://zenodo.org/record/4028830#.YFyQja9LiUk)：[Unusual Features of the SARS-CoV-2 Genome Suggesting Sophisticated Laboratory Modification Rather Than Natural Evolution and Delineation of Its Probable Synthetic Route](https://zenodo.org/record/4028830#.YFyQja9LiUk)
 
-[\[23\]](https://zenodo.org/record/4073131#.YFyQz69LiUk)：[SARS-CoV-2 Is an Unrestricted Bioweapon: A Truth Revealed through Uncovering a Large-Scale, Organized Scientific Fraud](https://zenodo.org/record/4073131#.YFyQz69LiUk)
 
-[\[24\]](https://drive.google.com/file/d/1ADB2jDpZ1okiXNFCnOxLIh3jVj_-4GKQ/view)：[《非典非自然起源和人制人新种病毒基因武器》](https://drive.google.com/file/d/1ADB2jDpZ1okiXNFCnOxLIh3jVj_-4GKQ/view)
+> We are pleased to announce $15 million in humanitarian assistance through [@USAID](https://twitter.com/USAID?ref_src=twsrc%5Etfw) to meet immediate, life-saving food and health needs in the West Bank and Gaza. This is consistent with American values and part of our global commitment to combat [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw). [https://t.co/MxK2fPzUcv](https://t.co/MxK2fPzUcv)
+> — Ned Price (@StateDeptSpox) [March 25, 2021](https://twitter.com/StateDeptSpox/status/1375134131059748872?ref_src=twsrc%5Etfw)
 
-(以上内容仅代表作者观点）
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-面具先生欢迎您加入康州盘古农场:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-农场法制基金捐款说明链接：
-[https://discord.gg/sKQKDqQTrF](https://discord.gg/sKQKDqQTrF)
+### 拜登新闻记者会
 
-+2
+当日福克斯新闻：“前总统唐纳德-川普将于美国东部时间今晚10点加入 “英格拉姆视角 “节目，对乔-拜登的首次总统新闻发布会作出反应。”
+
+
+
+> Former President Donald Trump will join [@IngrahamAngle](https://twitter.com/IngrahamAngle?ref_src=twsrc%5Etfw) on “The Ingraham Angle” tonight at 10 p.m. ET with reaction to the first presidential news conference from [@JoeBiden](https://twitter.com/JoeBiden?ref_src=twsrc%5Etfw). Tune in![https://t.co/gPSkyYtn43](https://t.co/gPSkyYtn43) [pic.twitter.com/ZeJY5kO8yP](https://t.co/ZeJY5kO8yP)
+> — Fox News (@FoxNews) [March 25, 2021](https://twitter.com/FoxNews/status/1375104357012758534?ref_src=twsrc%5Etfw)
+
+
+
+### 英国王室里的辛普森计划……
+
+当日福克斯新闻：“王室专家称，查尔斯王子希望对哈里和梅根的指控‘逐点’进行回应。”
+
+
+
+> Prince Charles wanted to issue 'point by point' response to Harry and Meghan's allegations, royal expert says [https://t.co/blLX8ZAW5p](https://t.co/blLX8ZAW5p)
+> — Fox News (@FoxNews) [March 25, 2021](https://twitter.com/FoxNews/status/1375028733774548992?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+
+0
