@@ -1,27 +1,28 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国中共病毒确诊病例超3000万
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1018002/)
+## 北约(NATO)海洋科学家为中共军事情报局从事间谍活动被判刑三年
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1018012/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+- 翻译：JIHO
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年3月25日电/西喜社——**据美联社3月25日报道，根据约翰-霍普金斯大学收集的数据，美国中共病毒确诊病例已超过3000万。
 
-周三全美中共病毒病例达到30,001,245例，距离全国达到2000万近三个月。
+据ERR新闻3月19号爆出，爱沙尼亚海洋科学家，现年57岁的Tarmo Kõuts， 因维持与爱沙尼亚的敌对关系以及参加针对爱沙尼亚的情报活动而被定罪，并被设在塔林的哈尔尤县法院判处三年徒刑。
 
-中共病毒相关的死亡人数现在总计超过54.5万人。
+Tarmo Kõuts于去年9月9日被内部安全局逮捕。
 
-全球已确认超过1.24亿例。
+从2006年至2014年，Tarmo Kõuts是国防部科学委员会的成员，从2006年至2012年，是北约海事研究与实验中心（前称北约海底研究中心）的科学委员会成员。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/c6eaadbb-fb7d-4ddd-b9fc-3fbe0dbe8694.jpg)
+国家脉动三月二十四日也爆出Tarmo Kõuts在被捕时拥有国家机密许可证以及14年前的北约安全许可，他还是2018年至2020年北约海事研究与实验中心的副主席。该中心“开展有关海洋科学，建模和模拟，声学和其他学科的相关，最新科学研究。”
 
-**新闻来源：[美联社](https://apnews.com/article/pandemics-brazil-coronavirus-vaccine-sri-lanka-coronavirus-pandemic-84c8b91b1dfbee00980a265cd5a6bc6c)**
+根据爱沙尼亚最高反情报机构副主任Aleksander Toots的说法，Tarmo Kõuts于2018年被中央军事委员会联合参谋部中国情报局在中国领土上招募，并表示Tarmo Kõuts受到传统人类弱点的驱使，例如金钱和需要承认。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
+据国家脉动的说法，Tarmo Kõuts从中国共产党的工作人员那里获得了总计20,000美元的现金付款，此外还前往亚洲多个国家进行了豪华住宿，并在米其林星级餐厅享用晚餐。
 
-+1
+新闻来源：[国家脉搏](https://thenationalpulse.com/breaking/nato-ccp-spy-convicted/)
+
+编辑：蚂蚁兄弟；校对：阿伯塔；初审 发稿：神奇四侠；
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募-3.jpeg)
+0
