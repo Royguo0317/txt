@@ -1,50 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普正考虑与新社交媒体应用进行合作
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1015413/)
+## 3/25/2021 财经快讯：美国SEC开始推出旨在退市的法规，中共科技股下跌
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1017399/)
 
-汇总翻译：喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Picture2-23.png)
+[图片来源](http://townnews.com)
 
-译自3月24日《纽约邮报》作者 [Kenneth Garger](https://nypost.com/author/kenneth-garger/) 和 Axios 作者 [Jonathan Swan](https://www.axios.com/authors/jonathanswan/), [Sara Fischer](https://www.axios.com/authors/sara/)
+**1.美国SEC开始推出旨在退市的法规，中共科技股下跌**
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/trump-operation-warp-speed.jpg)
+[路透社3月24日-双重上市的中共公司股价周四在亚洲大幅下跌，此前美国证券监管机构采取的措施是，如果外国公司不遵守美国的审计标准，将被踢出美国证券交易所。证券交易委员会(SEC)此举是对中共国内科技公司前所未有的监管打压的补充，理由是担心这些公司建立了扼杀竞争的市场力量。在香港，这一消息促使过去两年在香港交易所上市的美国上市中共国公司遭到大幅抛售。](https://www.reuters.com/article/us-usa-sec-foreigncompanies/u-s-sec-begins-rollout-of-law-aimed-at-delisting-chinese-firms-idUSKBN2BG2AI)
 
-图片来源 纽约邮报，法新社 Evan Vucci
-前总统唐纳德-川普正在考虑与现有的应用厂商合作，开发自己的社交媒体网络。
+**2.全球供应链一片混乱，一艘货船堵住了世界第二大航运运河造成雪上加霜的局面**
 
-三位消息人士告诉Axios媒体，川普正在考虑的厂商之一是一款名为FreeSpace的比较新的应用。FreeSpace 自称是 “以科学为支撑，积极强化好习惯 & 让世界更美好”。 该应用倡导并强调共同价值，所以人们会对做好事“上瘾”。FreeSpace鼓励公众分享他们认为会给自己的生活增加价值的日常行为和内容，并为他人复制健康的习惯树立榜样。
+[商业内幕3月24日- 短缺和运输延迟已经给全球供应链带来了巨大的压力。由于芯片短缺和德州寒冷天气的影响，已经对几家公司造成了损失。苏伊士运河的堵塞将推动石油和进口商品价格进一步上涨。供应量的减少和需求的增加也将迫使企业将价格推高。美国民众可能会被迫面对大流行后更高的生活成本。](https://www.businessinsider.com/boat-stuck-suez-canal-latest-setback-global-supply-chain-crisis-2021-3)
 
-FreeSpace于2月1日在苹果和谷歌的应用商店推出。根据AppTopia的统计，到目前为止，其在两个商店的下载量只有2万次左右。
+**3.独家：消息人士称，随着中共国审查范围的扩大，腾讯高层与中共反垄断官员会面**
 
-该应用包括了许多成熟的网络社交媒体的典型功能。该平台允许用户创建个人档案，有一个公共新闻源的 “活动墙 “和用于群发消息的 “房间”。
+[路透社3月24日-三位直接知情人士近日表示，中共最大的社交媒体和视频游戏公司腾讯控股的创始人马化腾（Pony Ma）本月与中共反垄断监督机构官员会面，讨论其集团的合规问题。这次会议是迄今为止最具体的迹象，表明中共前所未有的反垄断打击行动，从去年年底开始针对亿万富翁马云的阿里巴巴商业帝国，可能很快就会针对其他互联网巨头。](https://www.reuters.com/article/us-china-tech-antitrust-tencent-exclusiv/exclusive-tencent-boss-meets-china-antitrust-officials-as-scrutiny-widens-sources-idUSKBN2BG09L)
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/freespace-1.png)
+**4.因全球芯片短缺，通用汽车进一步削减北美产量**
 
-freespace 苹果商城导航截图。图片来源Axios
+[Newsmax 3月24日-由于全球范围内的半导体芯片短缺影响了汽车行业，通用汽车公司周三扩大了在北美的减产范围。去年中共病毒疫情期间，由于北美汽车厂停工两个月，芯片订单被取消。加上人们在家工作和玩电子游戏，消费电子行业的需求激增，造成芯片短缺，使得汽车制造商现在不得不抢购芯片。最近日本Renesas电子公司的一家芯片工厂发生火灾，加剧了短缺的现状。通用汽车正在评估大火造成的影响。](https://www.newsmax.com/newsfront/general-motors-chip-shortage-production-cu/2021/03/24/id/1015024/)
 
+**5.美国和欧盟将就中国对话、俄罗斯挑战进行合作：声明**
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/freespace2.png)
+[路透社3月24日-根据周三的一份联合声明，美国和欧盟已经同意重启对中共的双边对话，并共同应对俄罗斯的 “挑战行为”。美国国务卿安东尼-布林肯（Antony Blinken）和欧盟外交事务高级代表约瑟普-博雷尔（Josep Borrell）”承认对与中共国的关系有共同的理解，即与中共国的关系是多方面的，包括合作、竞争和系统性竞争的因素”。声明说，他们还将就互惠、经济问题、韧性、人权、安全、多边主义和气候变化等议题进行合作。](https://www.reuters.com/article/us-usa-blinken-eu/u-s-eu-to-cooperate-on-china-dialogue-russia-challenge-statement-idUSKBN2BG349)
 
-Freespace苹果商城简介。图片来源Axios
+By 【金融组- 海奥华预言】
 
+素材搜集：文罡
 
-FreeSpace隶属于Skylab Apps，一个为教练、训练师等搭建社区的平台，帮助与人们直接联系。FreeSpace应用自称是 “自由思想者、运动员和企业家的社交融合”。
-
-FreeSpace和Skylab Apps都是由乔恩-威利斯（Jon Willis）运营的。威利斯也是位于亚利桑那州的营销机构Matchstick Media的总裁，同时也是亚利桑那州体育设施Legacy Sports USA的执行副总裁。Matchstick和Legacy Sports USA的广告与其他程序化广告一起出现在网站上，如冷冻酸奶、静脉注射疗法和柴油废液。
-
-在应用排行榜 上，领跑者是Mike Magolnick，他是一位数字企业家，自称在FreeSpace和SkyLab从事战略工作。
-
-有消息人士称，川普也仍在考虑其他选择，”可能是几家公司中的任何一家，本周会有更多的会议。”目前还不清楚川普还与哪些公司进行了谈判。
-
-上周日，川普推出社交媒体的新闻引起了轰动，他的高级顾问杰森-米勒(Jason Miller)告诉福克斯新闻，这位前总统将在未来几个月内以自己的服务平台重返社交媒体。米勒说，”这将彻底重新定义游戏，大家都会拭目以待，看看川普总统到底会怎么做，但这将是他自己的平台。”
-
-
-
-新闻来源
-
-[https://nypost.com/2021/03/24/trump-eyeing-partnership-with-app-for-social-media-network-report/?utm\_medium=SocialFlow&utm\_campaign=SocialFlow&utm\_source=NYPTwitter](https://nypost.com/2021/03/24/trump-eyeing-partnership-with-app-for-social-media-network-report/?utm_medium=SocialFlow&amp;utm_campaign=SocialFlow&amp;utm_source=NYPTwitter)
-
-[https://www.axios.com/trump-social-media-platform-freespace-a77d7dfc-3288-48bf-bc7e-8942da24bdbd.html?utm\_medium=social&utm\_campaign=editorial&utm\_content=politics-trumpsocialapp](https://www.axios.com/trump-social-media-platform-freespace-a77d7dfc-3288-48bf-bc7e-8942da24bdbd.html?utm_medium=social&amp;utm_campaign=editorial&amp;utm_content=politics-trumpsocialapp)
+校对：Tracy
 
 +1

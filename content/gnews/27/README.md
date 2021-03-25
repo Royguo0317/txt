@@ -1,27 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 获有安全许可的北约科学家为中共国从事间谍活动而被定罪
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1015698/)
+## 乌克兰破纪录日增16669例中共病毒病例
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1017906/)
 
-翻译：洛杉矶天使农场-断播
+- 编辑：Victor Torres
+- 发稿：Ranting
 
-校对：洛杉矶天使农场-烟波浩淼
 
-审核：洛杉矶天使农场-黎明的光芒
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Picture1-37.png)一名获得安全许可的北大西洋公约组织科学家，因代表中国共产党从事间谍活动而被定罪。
-一名爱沙尼亚研究员塔尔莫•库斯（Tarmo Kõuts）被中共国军事情报人员招募，他是北大西洋公约组织（NATO）海底研究中心科学委员会委员。库斯在被捕时，还拥有国家机密许可证以及追溯到十四年前的获得的北约安全检查的许可证。他还是2018年至2020年北约海事研究与实验中心的副主席，该中心开展海洋科学相关方面的最一流的科学研究，建模和模拟，声学和一些其它领域。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-根据爱沙尼亚最高反情报机构副主任亚历山大·托茨（Aleksander Toots）的说法，库斯于2018年被中共国的中央军事委员会联合参谋部的情报局招募。据称库特斯有同谋犯，并于2020年9月9日也被警察逮捕。
+**西班牙2021年3月25日电/西喜社——**据美联社3月25日报道，乌克兰在过去24小时内报告了16669例中共病毒病例，为疫情期间最高。
 
-库斯从中共的工作人员那里获得了共20,000美元的现金付款，并且免费前往亚洲各个国家享用豪华住宿和米其林星级餐厅晚餐。根据《国家脉动》的记载，与库斯交往的中共特工是以智囊团名义的掩护下进行活动的，这是中共针对西方研究人员的一种惯用的手段。
+卫生部周四表示，前一天有363人死亡，高于之前342人的记录。一些地区和该国首都已实行严格的封锁限制，以减缓病毒的传播。
 
-库斯被判处三年徒刑。
+这个拥有4100万人口的国家已报告近160万例中共病毒确诊病例，超过3.1万人确诊死亡。
 
-原文作者：娜塔莉·温特（NATALIE WINTERS）
+![]()![](https://gnews.org/wp-content/uploads/2021/03/fdba3cad-8ff1-49c9-9fad-cc640b993058.jpg)
 
-发布时间：2021年3月24日
+**新闻来源：[美联社](https://apnews.com/article/pandemics-brazil-coronavirus-vaccine-sri-lanka-coronavirus-pandemic-84c8b91b1dfbee00980a265cd5a6bc6c)**
 
-原文链接：[https://thenationalpulse.com/breaking/nato-ccp-spy-convicted/](https://thenationalpulse.com/breaking/nato-ccp-spy-convicted/)
+![]()![](https://gnews.org/wp-content/uploads/2021/02/招募.jpeg)
 
-+1
+0
