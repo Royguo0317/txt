@@ -1,8 +1,8 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 丹麦继续暂停使用阿斯利康疫苗三周
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1017940/)
+## 美国中共病毒确诊病例超3000万
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1018002/)
 
 - 编辑：Victor Torres
 - 发稿：Ranting
@@ -10,15 +10,15 @@
 
 ***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年3月25日电/西喜社——**据美联社3月25日报道，丹麦政府决定继续暂停使用阿斯利康疫苗三周。
+**西班牙2021年3月25日电/西喜社——**据美联社3月25日报道，根据约翰-霍普金斯大学收集的数据，美国中共病毒确诊病例已超过3000万。
 
-丹麦于3月11日暂停使用阿斯利康疫苗作为预防措施，此前有报道称，一名60岁的妇女在接种疫苗一周后因身体多个部位出现血栓而死亡。丹麦也有报道称，丹麦有第二个人在接种阿斯利康疫苗后死亡。
+周三全美中共病毒病例达到30,001,245例，距离全国达到2000万近三个月。
 
-丹麦卫生当局表示，他们没有证据表明疫苗对这两起死亡事件负责。挪威和瑞典也已暂停使用阿斯利康疫苗。
+中共病毒相关的死亡人数现在总计超过54.5万人。
 
-丹麦约有15万人注射了阿斯利康疫苗。
+全球已确认超过1.24亿例。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/beb32402-0b23-446b-8bb5-b8787188c810.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/c6eaadbb-fb7d-4ddd-b9fc-3fbe0dbe8694.jpg)
 
 **新闻来源：[美联社](https://apnews.com/article/pandemics-brazil-coronavirus-vaccine-sri-lanka-coronavirus-pandemic-84c8b91b1dfbee00980a265cd5a6bc6c)**
 
