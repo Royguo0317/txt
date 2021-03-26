@@ -1,44 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国新老政府的最大争执就是病毒报告
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1020925/)
+## [文贵先生盖特]摘录:3.25新中国人生活在阳光下中共国人苟且于阴霾中
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1021027/)
 
-简述：在2021年3月15日盖特视频中，郭先生披露美国川普政府和拜登政府之间最大的争执是病毒报告，中共已经准备承认病毒不是自然产生的，而是实验室泄漏。 但是，世卫组织在中国吃喝玩乐以后，私下建议中共否认一切，从而彻底激怒了绝大多数的美国高层，使他们从之前对中共的纵容态度，彻底转向承认中共故意制造病毒。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210315_getter_part1_virus.srt.txt)
-**美国新老政府的最大争执就是病毒报告**
+编辑：童媚校对：木子
+![]()![](https://www.gnews.org/wp-content/uploads/2021/03/image001-87.png)
+**新中国人生活在阳光下**
 
-**The Main Conflict Between the Trump and Biden Administrations Lies in the Virus Report**
+**中共国人苟且于阴霾中**
 
-我再告诉大家一个更核心的问题，可能你们还不知道。就在那个之后，美国内部掀起了轩然大波，就是病毒报告。新政府和老政府争执的最大的问题，就是病毒报告。
+大家看看我们GTV节目里，主播和狗和谐地在一起，这可是过去公主过的日子，这才是新中国联邦人过的日子。再看看我们国内的孩子，炫富、吹牛、吃火锅、买假名牌、生活在雾霾中，还有吃狗肉的，广场舞，不是一个世界的日子。
 
-I will tell you about another key issue that you may not know yet. After the Taiwan incident, the issue that set off the uproar in the US was the virus report. The main conflict between the Trump and Biden administrations lies in the virus report.
+你看我们GTV里主播的笑容和快乐，你们能从CCTV上看见吗？如果有这样的女孩早被弄去双修到变形了。我是一个女儿和儿子的父亲，我说的话绝对是真实的，在中国就那么残忍。原中央电视台台长焦利说过一句经典的话：踏进中央电视台的门，已经不分男女。CCTV就是中南海的后院，想干啥干啥，任何出名的上新闻联播还有春晚的人，无论男女必须要检查身体，检查完还要深入检查，当然就包括掏肛掏子宫了。觉得还不过瘾的，就娶回家去，长期享受，这就是结局。
 
-绝大多数人认为这不是共产党病毒，是叫无意泄露，叫无意的武汉实验室试验泄露。这才导演了WHO到所谓的武汉，走那么一圈，回来定义的结果就是一个，无意的或者是试验事故。已经要承认了，这不是自然的。大家你看这个过程。不是自然的，不是自然学说，否了，但是武汉实验室是自然泄露，或者是某个人所为。等了WHO这帮王八蛋到了中国，吃喝玩乐以后，给他们私下建议，说你这根本不能说泄露，泄露没必要，这就不是你干的。
+这些GTV上的孩子，会得到尊重，夹道欢迎，这才是新中国联邦的未来。打开GTV看看，年轻、真实、快乐、健康、勇气、自然、幸福。
 
-The vast majority of the people believed that the virus was not released by the CCP. Rather it was an unintentional leak from the Wuhan lab. That’s why the WHO people flied to Wuhan and came back with this conclusion: it was unintentional, or a lab accident. At that point, the CCP was already going to admit that it was not natural origin. Do you see the whole development? The natural origin theory was about to be negated, and the CCP was going to admit that the virus was a leak from the Wuhan lab or caused by an individual person. But those WHO bastards went to China, ate and drank, and then privately suggested that the CCP should not admit that it was a leak at all and there was no need to admit it because it was not done by the CCP at all.
+**地狱之蛙无法理解地狱之外的世界**
 
-最后也是中共上面昏了头了，据说是军方还有中国杨娘娘、王太监都说：“这就不能承认，也不能他说泄露，就不是他干的。”就像欺民贼一样，就像九指妖一样，到临死咬着屎橛子不带松口的，她以为自己那叫强硬，她不知道咬着屎橛子。
+**美国不是个国家，是全世界最聪明人聚集的地方**
 
-Finally, the CCP’s higher-ups were not thinking clear. It’s said that some PLA personnels and concubine Yang (Yang Jiechi) and eunuch Wang (Wang Yi) all agreed that they should not admit anything, including the leak. Instead they should deny that they had anything to do with this. Just like those pro-democracy phonies and the nine-fingered demoness (referring to Sara of VOG), they are on the verge of being destroyed but still play tough. They think this makes them look tough, they think it is called tough, but what they are holding onto is just shit.
+昨天晚上，一个从日本回到上海的战友，和我通电话，本来说好十分钟，后来通了一个小时。他说七哥，我在日本呆了一年多，千转万折地回到上海以后，整个国内如同地狱一般，感慨万千。我再说一遍，宁可当美国的狗，也不会当中国的皇上。他们是无知，没选择。前几天九寨沟的战友说：有人说美国的人死的都没人埋，直接扔到大海里去了，城市里面都空了，说曼哈顿人死几星期都没人管都臭了，他们还真信。我告诉他，如果这个事是真的话，别说九寨沟了，十个九寨沟也不会存在了。没有美国的美元、粮食、科技，你的九寨沟就是一堆垃圾，连电都发不成，有点常识吧！
 
-最后就演了一场戏，推出去，从非自然到人为的无意泄露，或事故，到推出去，跟他没关系。惹怒了美国，“啪”调转回来了，原来绝大多数要支持是实验室失误泄露的人，现在全回去了，绝大多数人说，这就是你故意制造的生化病毒。而且是很早就完成的。这一下赢了。
+美国的一个公司，伊隆马斯克的公司，未来将达到四五万亿美元。一个谷歌、苹果，都一两万亿美元市值，是你广东省的GDP，都吹什么呢？你如果能吹狼蛋就算你有种。现在狼蛋不吹了，吹羊蛋去了，你真以为是披着羊皮的羊？你连披着羊皮的羊都不是，美国更不是披着羊皮的狼。说实在话，我们不是崇洋媚外，美国不是个国家，美国是全世界最聪明的人聚集的地方，当然也有很多坏人也在美国。但最坏的人肯定不在美国，全在中国！我比谁都爱中国，但这是事实。
 
-In the end, they put up this show, from potentially admitting that the virus was from an unnatural source to an unintentional lab leak or an accident to denying everything all together. This has really made the US furious. The situation was then turned back around. The overwhelming majority of people, who used to support the idea that it was a lab leaking accident, are now turning to believe that it is a biochemical virus that you, the CCP, created on purpose. Moreover, you have been doing this for a long time. Bingo, we won!
+**比特币一定消失**
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://www.gtv.org/getter/604f6cbd527b920e2d83087e](https://www.gtv.org/getter/604f6cbd527b920e2d83087e) (5:10-7:15)
-鸣谢：
-[1] 感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/978690/](https://gnews.org/zh-hans/978690/)
-[2] 感谢 Mike Li、Antsee-GTV、Liberte 提供英文翻译文本于[https://gnews.org/991193/](https://gnews.org/991193/)
+**多国全面研究Ｇ币 GDollar**
 
-* * *
+未来不会有比特币了，它可能涨到三十万、一百万，最后一定会消失。据我所知，很多国家正在全面研究我们的G币和GDOLLAR。有些人说九指妖和欺民贼，谁相信他们就去找他们去。他们一辈子见过钱吗，除了跟着爆料革命见过钱。一个钱都没见过的人，还告诉你怎么挣钱，你相信吗？
 
-整理校对 & 新闻撰写：【JennyL】字幕：【Rock小哥】视频解码：【恒久忍耐】推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+**未来全中国孩子都会来买所有潮牌最大收藏家****—-G Fashion**
 
-+2
+现在共产党把所有的名牌给封杀了，谁会挣钱？G FASHION！未来全中国的孩子们都会来买G FASHION，全中国孩子想买潮牌，都得来G FASHION，G FASHION在西方是所有潮牌最大的收藏家。我们可以把他所有设计师全部买下，然后天天为我们设计新产品，只有我们有，在中国买犯法，别说生产了。欺民贼九指妖这些人，你问他们见过这些东西吗？会穿吗？她懂吗？丑话和撒谎的级别跟老鼠的级别一样，共产党撒的谎都是人类最低级的，连冷笑话都不是，竟然还有人听。
+
+**有些人和钱没缘分**
+
+最近我的感受太多了，确实有些人跟钱没缘分。钱在他面前也看不见，他当成了冥纸，你给他张冥纸，他当成钱，这样的人，说实在话已经不是喊不醒装睡的人了，因为他压根就没脑子，没用。最好这些人去相信九指妖、相信欺民贼、相信海外的伪类。人类有史以来，你见过这样的人付过一笔钱吗？他见过钱吗？你见他花过钱吗？你看九指妖见了人以后，浑身发抖话也不会说话，但在自己屋里面对着个手机在那瞎侃，可悲可怜。他们还讨论GTV和G CLUB。战友们，你问问这些欺民贼还有中南坑的人，他们有资格有本事有勇气敢拥有G CLUB吗？包括那些白手套，他们敢踏进未来G CLUB联姻或者签成联盟的里边吗？人家让他进吗？他买G CLUB有用吗？
+
+今天我知道了，27万人等着看盖特，很伤心才27万，七哥几年，录了几千个直播，头发都白了，人都老了，才27万人看我的盖特。
+
++1
