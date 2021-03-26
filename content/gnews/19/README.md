@@ -1,25 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 正义联盟小试牛刀 多国宣布对中共新疆走狗实施制裁
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1020877/)
+## 美国新老政府的最大争执就是病毒报告
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1020925/)
 
-#### 翻译：大甄 | 校对：萌萌的朋克
-![]()![](https://gnews.org/wp-content/uploads/2021/03/新疆人权.jpeg)图片来源：维吾尔之声
-据华尔街日报（the Wall Street Journal）3月22日报道，本周一，美国联合欧盟、英国和加拿大对参与新疆种族灭绝的新疆建设兵团党委书记王君正和新疆公安厅厅长陈明国进行制裁。随即澳大利亚和新西兰的外长分别发表声明支持对中共官员的制裁。制裁措施包含冻结海外资产，不得进入其领土、领空等。作为反击，中共宣布制裁欧盟的 10 位议员，以及数位智囊团成员和学者。
+简述：在2021年3月15日盖特视频中，郭先生披露美国川普政府和拜登政府之间最大的争执是病毒报告，中共已经准备承认病毒不是自然产生的，而是实验室泄漏。 但是，世卫组织在中国吃喝玩乐以后，私下建议中共否认一切，从而彻底激怒了绝大多数的美国高层，使他们从之前对中共的纵容态度，彻底转向承认中共故意制造病毒。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210315_getter_part1_virus.srt.txt)
+**美国新老政府的最大争执就是病毒报告**
 
-拜登政府一直与中共关系暧昧，这次制裁是第一次实质性行动。作为川普政府对中共强硬政策的延续，本周一（3月22日），国务卿安东尼·布林肯（Antony Blinken）到达欧盟总部布鲁塞尔（Brussels），与欧盟及北约盟友就中共在新疆和香港犯下的反人类罪进行磋商，布林肯国务卿表示，“跨大西洋统一回击是向违反或滥用国际人权的的人士发出的强烈信号。”当天，布林肯和加拿大及英国的外长在另一份联合声明中提到，证据显示，中共对新疆的践踏令人发指。情报信息由“五眼联盟”提供，包含卫星图像、中共的档案记录和目击证据等。
+**The Main Conflict Between the Trump and Biden Administrations Lies in the Virus Report**
 
-在本月初，拜登总统与澳大利亚、印度和日本进行了首次多国会议，即四方会谈。这几个国家要么与中共存在领土争端，要么正在面对来自中共的经济威胁。会谈结束后，四国同意在疫苗生产和分配上通力合作，以此对抗中共的疫苗外交。
+我再告诉大家一个更核心的问题，可能你们还不知道。就在那个之后，美国内部掀起了轩然大波，就是病毒报告。新政府和老政府争执的最大的问题，就是病毒报告。
 
-对英国和欧盟来说，这是自1989年天安门大屠杀以来首次制裁中共。鉴于中共国庞大的市场及资金池，英国和欧盟显得有些首鼠两端——既要直面中共国的人权问题，又想继续寻求贸易和投资。英国脱欧后外交政策称中国为重要的商业伙伴，尽管“三观”不和，并未撕破脸皮。然而，中共背信弃义，单方面违反《中英联合声明》，屠杀香港人，对此，英国向五百万港人敞开国门也算是正义之举。
+I will tell you about another key issue that you may not know yet. After the Taiwan incident, the issue that set off the uproar in the US was the virus report. The main conflict between the Trump and Biden administrations lies in the virus report.
 
-加拿大是中共“蓝金黄”的重灾区，以往对中共一直不够强硬。中共在大陆扣押并审判了两名加拿大公民， 以作为羁押孟晚舟的报复。 孟是盗国贼控制的华为公司白手套任正非的女儿，前华为财务总监。
+绝大多数人认为这不是共产党病毒，是叫无意泄露，叫无意的武汉实验室试验泄露。这才导演了WHO到所谓的武汉，走那么一圈，回来定义的结果就是一个，无意的或者是试验事故。已经要承认了，这不是自然的。大家你看这个过程。不是自然的，不是自然学说，否了，但是武汉实验室是自然泄露，或者是某个人所为。等了WHO这帮王八蛋到了中国，吃喝玩乐以后，给他们私下建议，说你这根本不能说泄露，泄露没必要，这就不是你干的。
 
-因新疆和香港问题对中共官员发起制裁始于川普政府时期，然而，中共似乎并没看在眼里，依然我行我素，对新疆人和香港人的残害未见收敛。鉴于此，拜登政府采取了联合多国，“群起而攻之”的策略，以确保制裁能够真正戳到痛处，据美国一位高级行政官员表示，“由单边制裁促成民主转型是天方夜谭，多国联合、群策群力才是正道。”
+The vast majority of the people believed that the virus was not released by the CCP. Rather it was an unintentional leak from the Wuhan lab. That’s why the WHO people flied to Wuhan and came back with this conclusion: it was unintentional, or a lab accident. At that point, the CCP was already going to admit that it was not natural origin. Do you see the whole development? The natural origin theory was about to be negated, and the CCP was going to admit that the virus was a leak from the Wuhan lab or caused by an individual person. But those WHO bastards went to China, ate and drank, and then privately suggested that the CCP should not admit that it was a leak at all and there was no need to admit it because it was not done by the CCP at all.
 
-评：希望这次对中共官员的制裁，只是小试牛刀，刚刚开始。 就怕中共当局服软，看到“战狼外交”的反击，战友们就放心了。
+最后也是中共上面昏了头了，据说是军方还有中国杨娘娘、王太监都说：“这就不能承认，也不能他说泄露，就不是他干的。”就像欺民贼一样，就像九指妖一样，到临死咬着屎橛子不带松口的，她以为自己那叫强硬，她不知道咬着屎橛子。
 
-原文链接：[U.S. and Its Allies Sanction China Over Treatment of Uyghurs in a Collective Action](https://www.wsj.com/articles/u-s-and-its-allies-sanction-china-over-treatment-of-uyghurs-in-collective-action-11616440582)
+Finally, the CCP’s higher-ups were not thinking clear. It’s said that some PLA personnels and concubine Yang (Yang Jiechi) and eunuch Wang (Wang Yi) all agreed that they should not admit anything, including the leak. Instead they should deny that they had anything to do with this. Just like those pro-democracy phonies and the nine-fingered demoness (referring to Sara of VOG), they are on the verge of being destroyed but still play tough. They think this makes them look tough, they think it is called tough, but what they are holding onto is just shit.
 
-+3
+最后就演了一场戏，推出去，从非自然到人为的无意泄露，或事故，到推出去，跟他没关系。惹怒了美国，“啪”调转回来了，原来绝大多数要支持是实验室失误泄露的人，现在全回去了，绝大多数人说，这就是你故意制造的生化病毒。而且是很早就完成的。这一下赢了。
+
+In the end, they put up this show, from potentially admitting that the virus was from an unnatural source to an unintentional lab leak or an accident to denying everything all together. This has really made the US furious. The situation was then turned back around. The overwhelming majority of people, who used to support the idea that it was a lab leaking accident, are now turning to believe that it is a biochemical virus that you, the CCP, created on purpose. Moreover, you have been doing this for a long time. Bingo, we won!
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://www.gtv.org/getter/604f6cbd527b920e2d83087e](https://www.gtv.org/getter/604f6cbd527b920e2d83087e) (5:10-7:15)
+鸣谢：
+[1] 感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/978690/](https://gnews.org/zh-hans/978690/)
+[2] 感谢 Mike Li、Antsee-GTV、Liberte 提供英文翻译文本于[https://gnews.org/991193/](https://gnews.org/991193/)
+
+* * *
+
+整理校对 & 新闻撰写：【JennyL】字幕：【Rock小哥】视频解码：【恒久忍耐】推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
++2

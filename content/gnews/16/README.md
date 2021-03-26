@@ -1,44 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国新老政府的最大争执就是病毒报告
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1020925/)
+## 《路德社》精选主题专栏：重疫苗，轻治疗推高中共病毒死亡率
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1020957/)
 
-简述：在2021年3月15日盖特视频中，郭先生披露美国川普政府和拜登政府之间最大的争执是病毒报告，中共已经准备承认病毒不是自然产生的，而是实验室泄漏。 但是，世卫组织在中国吃喝玩乐以后，私下建议中共否认一切，从而彻底激怒了绝大多数的美国高层，使他们从之前对中共的纵容态度，彻底转向承认中共故意制造病毒。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210315_getter_part1_virus.srt.txt)
-**美国新老政府的最大争执就是病毒报告**
+《路德社》精选主题专栏组出品
+![]()![](https://www.gnews.org/wp-content/uploads/2021/03/1615948817962276.jpg)
+2021年3月10日，世界著名药学家，德克萨斯A&M大学医学院教授，内科，心脏病学家彼得.麦卡洛医生（Peter McCullough），出席关于中共病毒治疗的国会听证会。他在 重磅证词中强调了中共病毒早期药物治疗可以使得死亡率降低85%， 但是美国国立卫生研究院（NIH）侧重发展疫苗，打压药物治疗，导致许多病人错过了早期治疗的最佳时期。同时，相关药物治疗的研究论文不能发表，以及社交媒体对药物治疗信息的噤声都造成了中共病毒不可治疗的假象。
 
-**The Main Conflict Between the Trump and Biden Administrations Lies in the Virus Report**
+麦卡洛医生在德州参议院健康与人(health and human service)委员会上作证，他说2020年4月，很多病人只能在家中等待两个星期才能获得住院治疗，到医院时为时已晚，当时的情况是，住院，或者死亡。但是当时5万份医学论文里，竟然没有一份，是告诉医生该如何治疗中共病毒病人的。“我都惊呆了，当我的有关临床治疗的论文在8月发表后，成了引用次数最多的论文“。但是当他自己将信息制成视频，在油管（youtube）发布时,尽管受到很大关注，但是1个星期后，油管就将视频下架，理由是违反规定。
 
-我再告诉大家一个更核心的问题，可能你们还不知道。就在那个之后，美国内部掀起了轩然大波，就是病毒报告。新政府和老政府争执的最大的问题，就是病毒报告。
+麦卡洛医生说2020年5月，当得知可以通过疫苗对抗中共病毒时，所有寻求治疗方法的努力被中止了，NIH有个多种药物综合治疗的研究项目，在治疗了20个病人后，就说再找不到病人了。这是世界上最大的谎言，然后WARP SPEED（当时白宫启动的应急响应计划）完全向疫苗开发倾斜。情况变成是，大家都在尽量降低病毒传播，等待疫苗问世。等到疫苗出来了后，所有的努力都在接种疫苗上。
 
-I will tell you about another key issue that you may not know yet. After the Taiwan incident, the issue that set off the uproar in the US was the virus report. The main conflict between the Trump and Biden administrations lies in the virus report.
+中共病毒一直都是可以治疗的疾病，德州麦金尼市（McKinney）一个大型研究项目，以及纽约的一个研究项目，对50岁以上，伴有其他疾病的病人采取早期治疗，采用一系列多药物疗法（4-6种药物），住院率和死亡率下降了85%，请大家记住这个数字85%，美国已经超过50万人死亡，其中85%的死亡人数是可以避免的。
 
-绝大多数人认为这不是共产党病毒，是叫无意泄露，叫无意的武汉实验室试验泄露。这才导演了WHO到所谓的武汉，走那么一圈，回来定义的结果就是一个，无意的或者是试验事故。已经要承认了，这不是自然的。大家你看这个过程。不是自然的，不是自然学说，否了，但是武汉实验室是自然泄露，或者是某个人所为。等了WHO这帮王八蛋到了中国，吃喝玩乐以后，给他们私下建议，说你这根本不能说泄露，泄露没必要，这就不是你干的。
+麦卡洛医生在证词中，多次提到美国疫情期间，媒体上没有任何国内外治疗信息，人们都以为中共病毒不可治愈，当人们在门诊检测到阳性时，拿到一张让你回家等待的通知，没有任何治疗指南，没有可以获得帮助的热线电话或任何研究资源，这已经不是美国的医疗标准了，这种情况下，德州丧失了45000人并不奇怪。我们进行了各种药物治疗实验，用药物阻止病毒复制，取得了很棒的抗体，4000名患者的双盲随机安慰剂对照实验，死亡率降低50%，没有人关注，完全封锁了我们的研究信息。
 
-The vast majority of the people believed that the virus was not released by the CCP. Rather it was an unintentional leak from the Wuhan lab. That’s why the WHO people flied to Wuhan and came back with this conclusion: it was unintentional, or a lab accident. At that point, the CCP was already going to admit that it was not natural origin. Do you see the whole development? The natural origin theory was about to be negated, and the CCP was going to admit that the virus was a leak from the Wuhan lab or caused by an individual person. But those WHO bastards went to China, ate and drank, and then privately suggested that the CCP should not admit that it was a leak at all and there was no need to admit it because it was not done by the CCP at all.
+关注疫苗，忽略病人，以及相关部门打压治疗信息的情况，这不禁让人想起文贵先生提到的，疫苗是由黑暗势力控制的。这次病毒大流行，也许就是深层政府实现全球可持续性割韭菜的大招。同时也达到他们消灭地球人口，控制人类的终极目标。
 
-最后也是中共上面昏了头了，据说是军方还有中国杨娘娘、王太监都说：“这就不能承认，也不能他说泄露，就不是他干的。”就像欺民贼一样，就像九指妖一样，到临死咬着屎橛子不带松口的，她以为自己那叫强硬，她不知道咬着屎橛子。
+22/3/21，美国空军退役中将，政伦家托马斯·麦金纳尼（Thomas McInerney）在接受自媒体采访时，呼吁大家“不要接种疫苗，疫苗是危险的”，他说，这一信息被很多大媒体故意忽略，所以他要向观众发出警报，并希望自媒体人对民众广泛宣传教育，“疫苗一般是帮助人体产生抗体的，但是危险的是，对于中共病毒和变种，你无法获得自身免疫”。我们所有的一线工作者，医疗工作人员，军队都准备接种疫苗，这是对国家力量的攻击，我们应该让相关部门进行调查。
 
-Finally, the CCP’s higher-ups were not thinking clear. It’s said that some PLA personnels and concubine Yang (Yang Jiechi) and eunuch Wang (Wang Yi) all agreed that they should not admit anything, including the leak. Instead they should deny that they had anything to do with this. Just like those pro-democracy phonies and the nine-fingered demoness (referring to Sara of VOG), they are on the verge of being destroyed but still play tough. They think this makes them look tough, they think it is called tough, but what they are holding onto is just shit.
+麦金尼将军说，“我在越战两年时间里每天使用羟氯喹，预防疟疾。我们感觉很好”。但是大医药公司，深层政府势力攻击它，用疫情操纵选情，现在用疫苗消灭我们。中共和深层政府达成了交易，疾病控制和防疫中心（CDC），大医药公司赚了巨量财富。CDC 向美国人撒谎，美国出问题了。从未有过的严重问题。
 
-最后就演了一场戏，推出去，从非自然到人为的无意泄露，或事故，到推出去，跟他没关系。惹怒了美国，“啪”调转回来了，原来绝大多数要支持是实验室失误泄露的人，现在全回去了，绝大多数人说，这就是你故意制造的生化病毒。而且是很早就完成的。这一下赢了。
+美国生物技术公司Moderna的首席医疗官塔尔·扎克斯（Tal Zaks）最近表示，公司可以“在几周内”调整其疫苗产品，以跟上未来可能出现的任何实质性病毒变异。德国生物技术公司CureVac的首席执行官Franz-Werner Haas也说研发抗病毒疫苗的空前竞赛使世界处于更好的状态，以应对下一次重大公共卫生危机。
 
-In the end, they put up this show, from potentially admitting that the virus was from an unnatural source to an unintentional lab leak or an accident to denying everything all together. This has really made the US furious. The situation was then turned back around. The overwhelming majority of people, who used to support the idea that it was a lab leaking accident, are now turning to believe that it is a biochemical virus that you, the CCP, created on purpose. Moreover, you have been doing this for a long time. Bingo, we won!
+但是当轮到这些信心爆棚的CEO们接种疫苗时，却匪夷所思的个个打退堂鼓了，近日，辉瑞CEO博拉 （Albert Bourla）在被美国媒体追问疫苗接种一事时，竟公开表示自己不会选择接种甚至宁愿辞职。原来满世界向民众推销的“造福人类”的疫苗，根本上是连自己都不放心，安全性都要打问号的不明针剂！
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://www.gtv.org/getter/604f6cbd527b920e2d83087e](https://www.gtv.org/getter/604f6cbd527b920e2d83087e) (5:10-7:15)
-鸣谢：
-[1] 感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/978690/](https://gnews.org/zh-hans/978690/)
-[2] 感谢 Mike Li、Antsee-GTV、Liberte 提供英文翻译文本于[https://gnews.org/991193/](https://gnews.org/991193/)
+为了让疫苗市场长盛不衰，看来中共病毒在中共和黑暗势力的操纵下，将会绵延不绝，造成一次又一次的大流行，成为他们长期控制世界，获取暴利的有力武器。世界人民若还听之任之，未来的苦果还将世世代代品尝下去。
 
-* * *
 
-整理校对 & 新闻撰写：【JennyL】字幕：【Rock小哥】视频解码：【恒久忍耐】推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
+[参考链结](https://mobile.twitter.com/jsdfposjpqyuee1/status/1374510009120301058)
+
+【文章仅代表作者个人观点】
+
+本文作者：sherryok水云间
+
+审核校对：玫瑰新闻组
+
+上传排版：玫瑰新闻组
 
 +2
