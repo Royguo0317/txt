@@ -1,52 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日美两国将密切合作以防台湾海峡突发武装冲突
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1018098/)
+## 英国对俄中核挑衅的反应
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1018510/)
 
-新闻来源：《共同通讯社（KyodoNews）》| 发布时间：2021年3月21日
+翻译：洛杉矶天使农场–飞利浦
+校对：洛杉矶天使农场–雨山溪桥客
+审核：洛杉矶天使农场–黎明的光芒
+![]()![](https://gnews.org/wp-content/uploads/2021/03/screenshot-from-youtube.png)图片来源: youtube截屏
+上周二，英国推出了期待已久的[《国家安全综合审查》](https://assets.publishing.service.gov.uk/government/uploads/system/uploads/attachment_data/file/969402/The_Integrated_Review_of_Security__Defence__Development_and_Foreign_Policy.pdf)。关于加强英国核力量这一节令人耳目一新的直截了当，它包含了许多相同的逻辑，这些逻辑应该为加强即将到来的美国对我们自身战略威慑现代化决定提供支持。英国宣称“为北约提供防御的最低限度的、可靠的、独立的核威慑力量，对于确保我们和盟国的安全来说是至关重要的。”英国也明确而明智地拒绝了“不首先使用”政策的观点，并简要地说明了原因。总而言之，这几十年来一直是英国的政策，很高兴看到首相和女王陛下政府认为没有理由改变这一政策。
 
-翻译/简评：随波逐流 | 校对：感恩 | 审核：万人往 | Page：Daoiii
+但英国清楚地认识到，情况已经发生了变化：北约盟国和我们自身所面临的威胁的环境和性质。目前，莫斯科拥有[68架核导弹防御拦截装置](https://s3.amazonaws.com/media.hudson.org/Hudson%20Transcript%20-%20The%20Arms%20Control%20Landscape.pdf)，旨在确保普京政权在发生冲突时的生存。这个系统，有几十年历史，是用来拦截从陆地或海洋发射的弹道导弹。俄国人正在升级[A-235核武器](https://www.ainonline.com/aviation-news/defense/2019-06-26/russia-modernize-moscow-missile-defense)项目下的系统，据报道，该系统将采用一种新型、远程甚至更高精度的常规导弹。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/bZkoaM6qoQ6zK/images/6150bd94-c181-4267-ae28-78b018b7c987.jpg?asset_id=6bcf093f-43e8-4607-86cc-b438a0714587&amp;img_etag=%2214f756c82fdb055f1a6e82288892dace%22&amp;size=1024)](https://spark.adobe.com/page/bZkoaM6qoQ6zK/images/6150bd94-c181-4267-ae28-78b018b7c987.jpg?asset_id=6bcf093f-43e8-4607-86cc-b438a0714587&amp;img_etag=%2214f756c82fdb055f1a6e82288892dace%22&amp;size=1024)
+俄罗斯导弹防御升级也不局限于莫斯科地区。S-500的引入旨在为莫斯科提供（俄罗斯已经拥有的S-300和S-400系统之外）[对付来自弹道、巡航或高超音速轨道的中短程威胁的额外能力](https://www.defense.gov/Explore/News/Article/Article/2291331/missile-defense-becomes-part-of-great-power-competition/)。估计S-500将于[2025](https://media.defense.gov/2020/Jul/28/2002466237/-1/-1/1/CHINESE_RUSSIAN_MISSILE_DEFENSE_FACT_SHEET.PDF)年列装，据报道，它可在高达25英里进入平流层同时对付多个目标。然而，敌方导弹防御系统的激增不仅限于俄罗斯联邦。说到军事现代化，龙倾向于模仿熊。[中共正在购买俄罗斯S-300和S-400系统](https://media.defense.gov/2020/Jul/28/2002466237/-1/-1/1/CHINESE_RUSSIAN_MISSILE_DEFENSE_FACT_SHEET.PDF)，并可能会寻求购买S-500，同时将自己的数十亿美元投资于导弹防御项目。
 
-***简评：***
+令人担忧的不仅仅是防御环境已经改变。俄罗斯和中共都在扩大其核弹头储备，并[部署越来越多可以打击英国及其北约盟国的运载系统](https://www.heritage.org/arms-control/report/extending-new-start-makes-us-nuclear-modernization-imperative)。中共显然已经放弃了其最小的威慑力量，开始秘密的急速军事扩充——正如我们的战略指挥官查尔斯·理查德（Charles Richard）上将最近警告的那样——可能使他们部署的武器库中的弹头数量增加四倍，[达到1000多枚](https://www.youtube.com/embed/Q4arub5vmXg)。此外，[中共的“不首先使用”政策漏洞百出](https://www.stratcom.mil/Media/Speeches/Article/2086752/us-strategic-command-and-us-northern-command-sasc-testimony/)，即使不是骗人的，也毫无意义。随着中共在核武器基础设施、导弹生产设施和[核试验场全年活动](https://www.wsj.com/articles/possible-chinese-nuclear-testing-stirs-u-s-concern-11586970435)方面的大规模持续投资，中共已明确决定与美国（和俄罗斯）实现核质量对等，部署核弹头跨越一个[全新的“三位一体”](https://www.usni.org/magazines/proceedings/2021/february/forging-21st-century-strategic-deterrence)的海基和陆基导弹和新的远程重型轰炸机。[我们也不应忘记中共在其东部海岸部署的1200枚核能力中程导弹](https://www.defensenews.com/global/asia-pacific/2020/06/05/china-could-lose-95-of-ballistic-cruise-missiles-under-strategic-arms-control-pact-says-new-analysis/)，瞄准保护公海航行自由的美国和英国海军。
 
-尽管日美两国呼吁应以和平方式解决海峡两岸紧张局势，但由于未来局势发展的不确定性，日美两国国防部长最近在东京举行的会议上同意将密切合作，以防中共国与台湾之间发生军事冲突。目前尚无关于两国应如何协调应对此类紧急情况的讨论。据说，在与美国防长奥斯丁举行的较早会晤中，日本国防大臣岸信夫提到了最近越过台湾海峡中线的中共国战机数量增加，以及需要研究一旦中共国发动侵略，日本自卫队与美军合作保卫台湾的方式。考虑到台湾海峡邻近的地理位置以及那里有可能发生影响日本公民安全的武装冲突，东京一直在审查发布自卫队派遣令的可行性，以便在中共国和台湾之间发生危机时保护美国军舰和军用飞机。
+俄罗斯也在军备竞赛，拥有破坏稳定的核理论。据时任国防情报局局长的阿什利将军说：“俄罗斯的非战略核武器储备已经很大，种类繁多，并且正在进行现代化，着眼于更高的精确度，更远的射程和更低的产量方向发展，以适应其可能的作战作用。” 在这个新的后中程核力量条约世界中，这包括多达2000枚所谓的“非战略”核弹头，旨在威胁伦敦和整个欧洲的北约首都。
 
-台湾的紧张局势受到日美两国的高度关注是必然的，因为地理位置决定了这威胁到日本的安全。根据《日美安全条约》以及日美两国对台湾的防卫义务，若中共侵略台湾，日美需要做出应对措施，不排除使用武力。但在中共侵略台湾的同时，很可能会有对印太地区邻国一并扩张的野心，这不仅给印太地区带来军事威胁，也给全世界带来了安全威胁，因此台湾海峡的紧张局势也成为全球注目的焦点。因中共病毒造成的感染、死亡、无序、经济停摆以及可能引发的金融海啸等问题在不断发酵，很多国家正考虑向中共索赔，再加上中共对新疆的“种族灭绝”罪行，都导致了全球的灭共呼声不断高涨。根据目前的局势判断，南中国海的多国联军已经部署完毕，完全具备作战能力，正处于待命状态，若中共悍然发动战争武统台湾，等于向联军宣战。而几乎可以肯定的是，日美两国一定会第一时间参战，其他国家为了各自利益很可能迅速加入日美联军阵营，中共必定会加速灭亡。
+假设一个人着眼于英国《综合审查》的夸张反应，尤其是那些主张“[全球零”裁军](https://www.theguardian.com/uk-news/2021/mar/15/cap-on-trident-nuclear-warhead-stockpile-to-rise-by-more-than-40)的人。在这种情况下，人们可能会认为英国已经开始了该项目历史上最广泛的核现代化。然而，面对俄罗斯和中共制造和部署数以千计的核武器和数百个针对三叉戟导弹的拦截器，英国的反应是什么？高度克制。10号计划将其海底核威慑力量从略低于200枚核弹头提高到不超过260枚的上限。英国将在未来十年中增加多达80枚弹头，这一数字仍将成为任何《不扩散核武条约》（NPT）国家中最小的武器库。鉴于威胁环境正在恶化，主要是由于俄罗斯和中共的行动，综合审查提出的步骤既温和又谨慎。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/bZkoaM6qoQ6zK/images/fb959421-951b-451a-8339-7248ce5a3ef6.jpg?asset_id=39dd5d0e-e8b1-48da-9632-b5102053bcca&amp;img_etag=%2246aa35b47aa1395bf3ee847d51310860%22&amp;size=1024)](https://spark.adobe.com/page/bZkoaM6qoQ6zK/images/fb959421-951b-451a-8339-7248ce5a3ef6.jpg?asset_id=39dd5d0e-e8b1-48da-9632-b5102053bcca&amp;img_etag=%2246aa35b47aa1395bf3ee847d51310860%22&amp;size=1024)
+可以预见的是，嘲讽英国现代化计划的合唱团现在指责英国违反《不扩散条约》第六条，这涉及削减武器的“诚信”谈判。没有证据表明我们的英国盟友对善意谈判犹豫不决。事实上，恰恰相反。在过去的一年里，我们多次在不同的场合和我们的英国同行坐在桌子对面。在每一个转折点上，他们都在寻找办法，帮助我们实现建立一个新的军备控制制度的目标，这个制度将涵盖所有核武器，并阻止俄罗斯和中共的扩充。相比之下，中共一贯拒绝诚意谈判。事实上，中共根本拒绝谈判。如果发生了违反《不扩散核武器条约》的行为，它不是英国的行为，而是中共的行为。
 
-***原文翻译：***
+* * *
 
-## 日本、美国国防部长确认在台湾紧急状况下的合作
+***马歇尔·比林斯莱（Marshall Billingslea****）是哈德逊研究所的一名兼职研究员，也是负责军备控制的总统特使。**瑞安·图利（******Ryan Tully****）是欧洲和俄罗斯事务高级主任，也是参议院情报特别委员会的专业工作人员。*
 
-东京 —日本政府消息人士周六表示，日美两国国防部长最近在东京举行的会议上一致同意，如果中共国与台湾之间发生军事冲突，将密切合作。
+原文作者：[马歇尔·比林斯莱](https://www.realcleardefense.com/authors/marshall_billingslea/)和 [瑞安·塔利](https://www.realcleardefense.com/authors/ryan_tully/) 
+发布时间：2021年3月22 日 
+原文链接：
 
-消息人士说，美国国防部长劳埃德·奥斯丁（Lloyd Austin）周二在与日本防卫大臣岸信夫（Nobuo Kishi）举行会谈时提出了这个问题，尽管目前尚无关于两国应如何协调应对此类紧急情况的讨论。
-
-东京关于中共国-台湾关系的政策是鼓励对话，以和平方式解决海峡两岸紧张局势。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/bZkoaM6qoQ6zK/images/e4758ec8-c313-416e-a869-cad46be9a6e5.png?asset_id=3e90201f-ab0b-404c-9fc6-717ada217ec3&amp;img_etag=%22cc7accccb7dbc6ce744a8bc251fa67ce%22&amp;size=1024)](https://spark.adobe.com/page/bZkoaM6qoQ6zK/images/e4758ec8-c313-416e-a869-cad46be9a6e5.png?asset_id=3e90201f-ab0b-404c-9fc6-717ada217ec3&amp;img_etag=%22cc7accccb7dbc6ce744a8bc251fa67ce%22&amp;size=1024)图为在2021年3月16日的东京会谈前，美国国防部长劳埃德·奥斯丁（Lloyd Austin）（左）和日本防卫大臣岸信夫(NobuoKishi)的合影照片。（共同通讯社）
-
-自1949年内战导致两岸分裂以来，台湾和中国大陆一直受到分治管理。中共国将台湾视为一个等待统一的叛变省份。
-
-关于台湾问题，岸信夫和奥斯丁以及美国国务卿安东尼·布林肯（Antony Blinken）和日本外交大臣茂木敏充（ToshimitsuMotegi）还在周二举行的会谈后发表了一个声明，只是呼吁保持在台湾海峡的和平与稳定。
-
-他们说，在与奥斯丁举行的较早会晤中，岸信夫提到了最近越过台湾海峡中线的中共国战机数量增加，以及需要研究一旦中共国发动侵略，日本自卫队与美军合作保卫台湾的方式。
-
-考虑到台湾海峡接近的地理位置以及那里可能发生影响日本公民安全的武装冲突，东京一直在审查发布自卫队（SDF）派遣令的可行性，以便在中共国和台湾之间发生危机时保护美国军舰和军用飞机。
-
-**🔗[原文链接](https://english.kyodonews.net/news/2021/03/ce08e08bd25f-japan-us-defense-chiefs-affirm-cooperation-over-taiwan-emergency.html)**
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/bZkoaM6qoQ6zK/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/bZkoaM6qoQ6zK/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+https://www.realcleardefense.com/articles/2021/03/22/the\_uks\_response\_to\_russian\_and\_chinese\_nuclear\_aggression\_769226.html
 
 0

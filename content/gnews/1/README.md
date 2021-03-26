@@ -1,44 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻宅急便】Facebook对中共国黑客动手
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1019069/)
+## 【新闻宅急便】美国务卿发推直指北约第五条
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1019379/)
 
-翻译：喜马拉雅东京樱花团 /Porsche
+翻译：喜马拉雅东京樱花团Porsche
 
-![](https://lh4.googleusercontent.com/yIVl9jlUklnXLhfkkeZN33YOGuWEu8qiFIlPk2Upi6wdevBxx_5SigJmcXeCs-gxNG9SSddFdJ3-S4LdSYZ2B0wf1X_dO1WhnT1fO2pEqhwENq6J9-xNuAjatGAT6Sr76NMGeHl8)
-[图片链接](https://www.adweek.com/wp-content/uploads/2021/03/HackerIllustrationGreenOnBlack-640x360.jpg)
+![](https://lh5.googleusercontent.com/vzWPY2PKxvi4nWIP0xg5TOtBMwqY-qgcqAYOQMxUbJ1U2yAblwplXFwNtvNgOu5cdNtwlRE0ilWgqm0DGQ57DApCsSPfyzKcRpfv9XRz2aGX9ohnZM85exp1fxaSHWZzFoYj4mju)
+[图片链接](https://www.nato.int/nato_static_fl2014/assets/pictures/images_mfu/2021/2/stock/210208-nato-star-map.jpg)
 
-Facebook的威胁情报分析师和安全专家致力于发现和阻止各种威胁，包括网络间谍活动、有影響力的行动、以及国家级人员和其他团体对我们平台的黑客攻击。作为这些努力的一部分，我们的团队经常通过禁用对手的行动来阻止他们，同时向用户公开分享我们所发现的异常现象，通知用户是否应该采取措施保护他们的帐户，以继续改进我们产品的安全性。
+今天，我很荣幸地在北约的世贸中心纪念碑前表示敬意。9/11事件后的第二天，北约盟国与我们站在一起，在联盟历史上第一次也是唯一一次援引第5条。我们将永远不会忘记。
 
-今天，我们要分享的是针对中共国的一群黑客采取的行动，通过此次行动，我们破坏了他们滥用我们的平台、分发恶意软件和在互联网上入侵人们账户的能力。这些黑客在安全行业被称为Earth Empusa或Evil Eye。他们的目标是主要居住在土耳其、哈萨克斯坦、美国、叙利亚、澳大利亚、加拿大等国外的中国新疆维吾尔族中的活动家、记者和持不同政见者。该团伙利用各种网络间谍手段确定目标，利用恶意软件感染他们的设备，以便进行监控。
+[推文](https://twitter.com/secblinken/status/1375176863295897601?s=21)
 
-这种活动具有资源充足和持续行动的特点，同时混淆了谁是幕后黑手。在我们的平台上，这种网络间谍活动主要表现为发送恶意网站的链接，而不是直接分享恶意软件本身。我们看到这种活动在不同时期有所放缓，很可能只是为了应对我们和其他公司所采取的行动。
+在2021年2月8日的北约官网专门讲解了北约第五条相关内容（链接附后）：
 
-我们发现这种威胁行为者在互联网上使用的战术、技术和程序（TTP）如下：
+集体防御原则是北约创始条约的核心。它仍然是一项独特和持久的原则，将其成员联系在一起，使他们承诺相互保护，并在联盟内树立团结的精神。
 
-•   选择性目标和漏洞利用保护。这个组织采取了一些措施来隐藏他们的活动和保护他们作恶的工具，只有当人们通过了某些技术检查，包括IP地址、操作系统、浏览器、国家和语言设置时，他们才会感染iOS恶意软件。
+- 集体防御是指对一个盟国的攻击被视为对所有盟国的攻击。
+- 集体防卫原则载于《华盛顿条约》第5条。
+- 北约在对美国的 “9-11 “恐怖袭击事件后，历史上首次援引了第5条。
+- 北约多次采取集体防卫措施，如应对叙利亚局势和俄乌危机后。
+- 北约有现役的常备部队，长期为联盟的集体防卫努力作出贡献。
 
-•   篡改和冒充新闻网站。该团伙建立了恶意网站，使用与流行的维吾尔族和土耳其新闻网站相似的域名。他们似乎还入侵了目标经常访问的合法网站，作为水坑攻击的一部分。水坑攻击是指黑客感染预定目标经常访问的网站，以损害其设备。这些网页中的一些网页包含与之前报道的漏洞相似的恶意javascript代码，一旦人们的设备被入侵，就会在设备上安装名为INSOMNIA的iOS恶意软件。
 
-•   社会工程。该组织在Facebook上使用假账户，创建虚构的角色，冒充记者、学生、人权倡导者或维吾尔族社区成员，以建立与目标人群的信任，诱使他们点击恶意链接。
+北约第五条原文：
 
-•   使用虚假的第三方应用商店。我们发现该团伙的网站在模仿第三方安卓应用商店，在那里发布维吾尔族主题的应用，包括键盘应用、祈祷应用和字典应用。这些应用被木马化（含有恶意软件，误导人们的真实意图），有两种安卓恶意软件菌株——ActionSpy或PluginPhantom。
+Article 5
 
-•   外包恶意软件开发。我们观察到这个组织使用了几个不同的Android恶意软件系列。具体来说，我们调查和恶意软件分析发现，北京百思联科技有限公司（Best United Technology Co. (Best Lh)和大连9Rush科技有限公司(9Rush)，这这两家中国公司是该团伙部署的部分Android工具的幕后开发者。我们能够对其中一家公司作出评估，是因为得益于网络安全公司FireEye的研究。这些位于中国的公司很可能是一个庞大的供应商网络的一部分，它们的运营安全程度各不相同。
+The Parties agree that an armed attack against one or more of them in Europe or North America shall be considered an attack against them all and consequently they agree that, if such an armed attack occurs, each of them, in exercise of the right of individual or collective self-defence recognised by Article 51 of the Charter of the United Nations, will assist the Party or Parties so attacked by taking forthwith, individually and in concert with the other Parties, such action as it deems necessary, including the use of armed force, to restore and maintain the security of the North Atlantic area.
 
-•    行业追踪。我们的行业同行在追踪这些活动时发现，他们是由一个单一的威胁行为体驱动的，这个威胁行为体被广泛地称为Earth Empusa，或者Evil Eye，或者PoisonCarp。我们的调查证实，我们今天所破坏的活动与前两者，Earth Empusa或Evil Eye，密切相关。虽然PoisonCarp共享一些TTP，包括针对和使用一些相同的供应商开发的恶意软件，但我们的平台分析表明，它是一个单独的活动集群。
+Any such armed attack and all measures taken as a result thereof shall immediately be reported to the Security Council. Such measures shall be terminated when the Security Council has taken the measures necessary to restore and maintain international peace and security .
 
-我们与业界同行分享了我们的发现和威胁指标，以便他们也能检测和阻止这种活动。为了破坏这一行动，我们阻止了恶意域名在我们的平台上共享，下架了该群组的账户，并通知了我们认为是该威胁行为者目标的用户。
+第五条（中文翻译）
 
-[英文新闻来源](https://about.fb.com/news/2021/03/taking-action-against-hackers-in-china)
+各方同意，在欧洲或北美对一方或多方的武装攻击应被视为对各方的攻击，因此，各方同意，如果发生这种武装攻击，各方在行使《联合国宪章》第五十一条承认的单独或集体自卫权时，将协助受到攻击的一方或多方，立即单独并与其他各方一起采取其认为必要的行动，包括使用武力，以恢复和维持北大西洋地区的安全。
+
+应立即向安全理事会报告任何这类武装攻击和因此而采取的所有措施。当安全理事会采取了恢复和维持国际和平与安全的必要措施后，这种措施即告终止。
+
+[英文内容链接](https://www.nato.int/cps/en/natohq/topics_110496.htm)
 
 *免责申明：本文只代表作者观点，与GNews网站无关。*
 
-*校对：喜马拉雅东京樱花团 / 東洋武士*
-*责任编辑：喜马拉雅东京樱花团 / 文小白*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
+*校对：喜马拉雅东京樱花团 / 文小白*
+*责任编辑：喜马拉雅东京樱花团 / 煙火1095*
+*发布：喜马拉雅东京樱花团 /煙火1095*
+
+
 ![]()![](https://gnews.org/wp-content/uploads/2021/03/二维码-9.jpg)
-0325C179e
+0325C186e
 
 0

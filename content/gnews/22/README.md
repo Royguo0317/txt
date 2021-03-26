@@ -1,15 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年3月25日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1018621/)
+## 《文贵说》| 图片连载（四十一）
+` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/993525/)
 
-编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+![]()![](https://gnews.org/wp-content/uploads/2021/03/006-1.jpg)
+**战友们，我再告诉大家留住G币，不要乱花，我再次说留住！**
 
-325：中共要脱钩了……所有国内的同胞们只能到G翻身……来买所需的真正的真货，真时尚品牌啦……文贵在这等着呢……我似乎看见乌泱乌泱来买鸡翻身的人喽。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cd0aeb2e83662d2bb38fdefa3c52e6fb.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/c4845ae2ff245dba0492939d97edf6c0.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/b664b9cb3d7b45e75972cb04c5127567.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/32796e844c36eaba34ef860f0451656d.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/387f50535a934754b151984fa2c14b11.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/18ba647e07ce0447d30f283d60e53cca.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/7ef89c2730d66893806830730c4aa82d.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/5dac7cbd82370af8a1124b0f44f2255e.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/0cfbcb5b249b87f33cba10d5970fb051.jpg)
-[【2021年3月25日】文贵先生盖特原文](https://gtv.org/getter/605ceac1d1608d609ea7a9df)
+**—— 郭文贵先生 2020年4月29日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2020523.jpg)
+**只有经过风雨，才能见彩虹。**
 
-**喜联盟Gnews编辑部**
+**—— 郭文贵先生 2020年5月2日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/003-4.jpg)
+**共产党屏蔽掉了我们所有的钱，但是没有挡住我们任何有能力、有智慧、聪明的中国同胞。**
 
-0
+**—— 郭文贵先生 2020年4月29日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/002-3.jpg)
+**每个战友加入到爆料革命、加入到喜马拉雅中你最大的获得和财富就是让你躲开了共产党的所有的这一场猎杀，更重要的事情，你给你们的孩子留下了一个绝对的空间和未来，你最大的获得就是你将有上亿万的战友。**
+
+**—— 郭文贵先生 2020年4月29日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/524.jpg)
+**活着，啥都是你的。不活着，老公，老婆，孩子都是人家的。那就甭说钱了。**
+
+**—— 郭文贵先生 2020年5月2日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4274.jpg)
+**任何一个人你都有冲破天花板的机会，任何一个人你都可能创造历史，任何一个人都能捍卫新闻的自由。那靠什么？G币！**
+
+**—— 郭文贵先生 2020年4月27日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4294.jpg)
+**G币给你无限的希望，也给你真正让你能摸的着、看的到的安全，和给你方便。**
+
+**—— 郭文贵先生 2020年4月29日**
+
+
+
+- [***更多精美海报请点击G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4)
+
+
++1
