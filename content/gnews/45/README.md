@@ -1,13 +1,13 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 石正丽否认武汉实验室参与军事研究
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1020012/)
+## 北约和美国应紧密合作，维护受中俄集权国家挑战基于规则的国际秩序
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1020674/)
 
-3月23日罗格斯大学 (Rutgers University)举办的研讨会上，石正丽回答WHO顾问委员会成员Jamie Matzl的问题，否认武汉实验室参与军事研究。
+3/23/2021 北约和美国应当紧密合作，以维护正受到中俄两个集权国家挑战的基于规则的国际秩序。
 
 By： 【秘密翻译组 G-Translators】
 
 
 
-0
++1

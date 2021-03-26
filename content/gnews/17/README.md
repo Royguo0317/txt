@@ -1,24 +1,175 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评粤语快报】03.25：越来越多全球知名品牌拒用新疆棉花 中共专家呼吁网络信息空间与美国脱钩
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1020956/)
+## 【歌曲】好人 Kind people:當我們的臉孔名字 都成了不能公布的秘密
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/1021065/)
 
-制作团队：【喜马拉雅-粤语组】打杂的、螃蟹团长
+**歌名**:**好人 Kind people**
 
+這是一位無名的香港同胞 作詞作曲演唱的原創作品
 
+因為 香港國安法的關係 所以他無法公開發表這首作品
 
-主要内容
+因此由我們 新中國聯邦 正義的小伙伴接手來製作視頻
 
-1. 越来越多全球知名品牌拒用新疆棉花。各个国家纷纷表态确认中共国在新疆犯下种族灭绝及反人类罪，继**H&M**及**奈克**两大品牌后，陆续有许多国际品牌表态抵制新疆棉花。中共国即刻发动内地艺人发声明抵制各大服装品牌，并拒绝广告代言等合作。对这些国际品牌而言，此时表态是显现他们在重要时刻对于人类价值和文明的支持与承担，代表他们的品牌精神，在历史上将留下正面的评价。反观中共国发布美国侵犯人权报告，以黑奴历史来反击美国，试图在人权问题上争夺话语权，并且组织艺人抵制各大品牌的广告代言，中共国这样的反应变相是推进中共国与全球时尚、文艺、文化和经济的脱钩。
-2. 中共专家呼吁网络信息空间与美国脱钩。中共专家呼吁随时预备网路脱钩和可能发生的冷战局势。灭共趋势愈来愈挡不住，中共恐惧国内人民接收到国外的信息，企图在美国推倒防火墙之前反推防火墙，在网络上与美国脱钩，完全屏蔽外国网络信息。中共的“十、四、五规划”就是用来应对与美国网络脱钩的计划。中共计划利用北斗卫星、自己的海底光缆、伺服器等来应对美国封杀中共国的根域名(Domain Name System)的行动。另外，FaceBook脸书也开始与中共切割，发声明表示中共黑客利用脸书进行监控。现在，纺织业、服装业、网络、金融界、甚至原本亲共的社交平台脸书FaceBook都开始和中共国脱钩。可见，即便是拜登政府上台，民主党执政，灭共大趋势也无法改变。
-3. 大陆农耕文化和游牧文化与海洋文化的对比。人类历史上有三大类文化体系：第一种是大陆农耕文化，以中国为代表，第二种是游牧文化，以俄罗斯为代表，第三种是海洋文化，以英国为代表。此三种文化互相竞争，最终以安全，也就是军事，成为胜败的关键。其中海洋文化因为在海上航行，更注重船只的质量和人与人互信的价值观，相对之下比大陆农耕和游牧文明更适合人类文明的发展。随着航天科技的进步，人类即将进入星际文化。当人类要进入更高文明的时候，须要脱离狭隘的民族、种族仇恨问题，要推崇求真、善，具备勇气、冒险的精神。当海洋文化和即将到来的星际文化都追求真实和品质，而中共却是偷、骗、造假，成为人类文明落后、扯后腿的负资产。因此，人类文明要进步，中共的毁灭是必须的。
-4. 布林肯发推提到北约第五条款。布林肯与北约会谈之后在推特上提到北约第五条款，此条款明确写着北约之内任何一个国家受军事、网络、生物武器等攻击，将视为对整个北约集团的攻击。布林肯的推特中提到当年美国的911事件是北约上一次运用北约第五条款。回想路德社曾经讲过美国政府有三件事是要重点处理的：新疆种族灭绝、经济脱钩、中共病毒。现在新疆种族灭绝已经确认，经济脱钩也在进行中，布林肯到北约会谈显示美国与北约各个国家之间的情报及信息交流，已经确认病毒是由中共释放出的生物武器，北约及亚太区的美国盟友将会群起，就病毒向中共追责。历史上清朝面对八国联军，如今中共面对的可能是八十国联军，甚至更多国家联合起来围剿中共国。
-5. 美国证监会提出对中概股审查法规后中概股暴跌。今日美国股市大升，但是中概股却逆势狂跌，显示金融脱钩已经发生了。中概股狂跌的原因除了审计问题，也因为国际对中共国的经济制裁。中概股狂跌除了反应股票的价值之外，背后也牵涉到股市炒作和银行借贷、抵押、融资等更加多的资金，这样中概股狂跌将会引发连锁反应。接下来中共内部的民营及国营企业的资金必然出现问题，造成中共国内部的资源不足，斗争愈演愈烈。中共政权的崩溃指日可待。
+視頻內容是過去這些日子 香港同胞們所經歷過的一切
 
+「當我們的臉孔名字 都成了不能公布的秘密
 
-【路德时评】[原视频链接1](https://youtu.be/E3ZZb8BpRf4)   [原视频链接2](https://youtu.be/N56RBAG9vsQ)
+世間上的人們 還何以維持自己的正義呢？」
 
-上传：流光飞舞
+**歌词如下:**
 
-+1
+生命恍如朝夕的繁花
+
+Life is like a prosperous flower
+
+总能将奇迹流传吧
+
+Can always spread miracles
+
+你是怜悯　降落城市　将一对翼折下
+
+Mercifully landing in the city with your pair of wings
+
+未惧怕走入悲情筑成的篱笆
+
+Not afraid to step into the fence of sadness
+
+以白袍一身见证高雅
+
+Witness the elegance in a white robe
+
+病床步履间　厘定了身价
+
+The dedication you put into the hospital beds determines your worth.
+
+要按时轮班太迟回家
+
+you work shifts and you come home very late
+
+脸上仍抹不褪是你牵挂
+
+the concern is what still cannot be erased from your face
+
+眼前是困苦吗　信明日会好吗
+
+Is it the hardship you face? Do you think tomorrow you’ll be okay?
+
+一生的好人　满心恻隐
+
+The life of kind people is full of compassion
+
+请祝福好人　祈求天公允
+
+Please bless kind people and pray for the justice
+
+同路在黄昏　如若是留心
+
+On the same road at dusk, if you pay attention
+
+能站在旁边  察觉你内蕴
+
+you can stay still and perceive your connotation
+
+简单的好人　平凡的身份
+
+just kind people, with an ordinary identity
+
+漆黑中守望　是为点一盏灯
+
+in the dark watch for hope to light a lamp
+
+一生好人　慷慨像你　会有护荫
+
+The lives of kind and generous people like you will be blessed
+
+要按时轮班太迟回家
+
+you work shifts and you come home very late
+
+脸上仍抹不褪是你牵挂
+
+the concern is what still cannot be erased from your face
+
+为寻觅美好吗
+
+to look for splendor?
+
+北风凛冽里栽花
+
+Plant flowers in the icy north wind
+
+照亮人世间构成图画
+
+Light up the world and outline a drawing
+
+寄在年月承受着风沙
+
+Ride through the time and withstands sandstorms
+
+为成就美好吗
+
+to reach perfection?
+
+替身边者铺砖筑瓦
+
+They have put tiles and bricks for those around him.
+
+一生的好人　满心恻隐
+
+The life of kind people is full of compassion
+
+请祝福好人　祈求天公允
+
+Please bless kind people and pray for the justice
+
+同路在黄昏　如若是留心
+
+On the same road at dusk, if you pay attention
+
+明白善良  丰富了你内蕴
+
+Understand goodness and enrich your connotation
+
+简单的好人　平凡的身份
+
+just kind people, with an ordinary identity
+
+漆黑中守望　是为点一盏灯
+
+in the dark watch for hope to light a lamp
+
+一生好人　珍贵像你　会有护荫
+
+The lives of kind and precious people like you will be blessed.
+
+一生的好人　满心恻隐
+
+The life of kind people is full of compassion
+
+天真的好人　常留低共振
+
+Innocent and kind people often resonate with humility
+
+从没问原因　怀着是纯真
+
+They never ask why, they just possess innocence
+
+良善就似天使危城俯瞰
+
+Kindness is like heaven. The dangerous city looks up to see it
+
+请祝福好人　求平安的一生
+
+Please bless kind people and pray for a peaceful life.
+
+漆黑中守望　烙下一双足印
+
+in the dark look for hope to mark a set of footprints
+
+充当好人　天会为你　化作树荫
+
+Always be a kind person and heaven will become a blessing to you.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3A9DADEA-1C81-4A9A-98F1-E2FB32DF2F7F-1.jpeg)
+0
