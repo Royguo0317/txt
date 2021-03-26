@@ -1,45 +1,112 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】从“辛普森计划”看对台湾的影响
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1018845/)
+## 世卫组织的“独立调查员”一直在炒作中共的宣传媒体
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1020629/)
 
-作者：纽约香草山香港部 羟氯喹
+翻译：洛杉矶天使农场-Jessi/詹茜
+校对：洛杉矶天使农场-Feihua
+审核：洛杉矶天使农场-断播
+![]()![](https://gnews.org/wp-content/uploads/2021/03/世卫组织的独立调查员一直在炒作中共的宣传媒体thenationalpulse.com_-e1616759969845.jpeg)世卫组织最近派往中共国代表团的美国调查员皮特·达扎克（Peter Daszak）在推特上反复炒作中共国的官方媒体
+皮特·达扎克（Peter Daszak）是世卫组织（World Health Organization）最近派往中共国代表团的美国调查员，一直在推特上反复炒作中共国的官方媒体。
 
+皮特·达扎克极力推广的这些媒体，是中共国政府自诩的“[宣传活动](https://freedomhouse.org/report/special-report/2020/beijings-global-megaphone)”媒体的一部分，其行为[进一步](https://thenationalpulse.com/exclusive/who-investigators-ccp-covid-ties/)引起了人们对其作为世卫组织调查员公正性的怀疑。
 
+达扎克最推崇和赞扬的媒体是中共国的《环球电视网》（China Global Television Network (CGTN)），被自由之家智囊团称为“中共长期镇压武器库中的武器”，[其](https://freedomhouse.org/article/china-central-television-long-standing-weapon-beijings-arsenal-repression)“任务是攻击中共指定的敌人”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-郭文贵先生在3月23日的直播里再次爆出猛料，指出中共对欧盟以及全世界布局的“辛普森”计划。中共效仿当年的希特勒，在主要目标国家通过渗透、收买、扶植的手法，达到通过非常规手段来控制其他国家以及地区的目的。其中，文贵先生特别提到英国、德国、日本、香港、台湾等等，都是中共执行“辛普森”计划的重要目标。这一计划的影响体现在，去年欧盟想要对香港政府以及中共国政府实施制裁时，欧盟内部有“温莎公爵”和“辛普森夫人”的组织纷纷出手阻止，成功替中共政权拦下当时对他们来说致命的制裁打击，并帮助中共政权在欧洲继续坐大。
-
-我们可以回看我们的香港，林郑月娥和一众政府高官，都是身为香港人出身，但完全服务于中共政权的。在2019年，他们强行推出《国安法》，将中共蛮横无理的政策强加于香港市民身上，完全妄顾香港市民的利益，只为中共政权涂脂抹粉，且对反对者百般打压、残害，颠倒黑白。然后，我们再看缅甸，缅甸军政府竟然在2021年对民选政府发动政变，并对手无寸铁的抗议百姓进行残酷的镇压，枪杀无辜百姓，轰动世界。香港和缅甸这两个地区，现任政府和中共政权都显然关系密切。中共都是打着“不干涉内政”的旗号，但实则在背后通过“温莎公爵”、“辛普森夫人”进行操纵，达到维护自身独裁利益的目的，但最终还要将其推诿为，地方内部的自主选择。而且，通过在香港和缅甸的一系列操作，为中共未来通过“一带一路”进一步扩张势力，提供了治理经验和依据。
-
-![台湾民调到底准不准：近9成民众支持选举投票年龄下修？_调查]()![台湾民调到底准不准：近9成民众支持选举投票年龄下修？_调查](http://5b0988e595225.cdn.sohucs.com/images/20200415/56c4762638cb45df91847490a8ea2a33.jpeg)图源网络
-
-所幸的是，根据文贵先生的爆料，欧盟经过几年的秘密调查，破获出内部的“温莎公爵”和“辛普森夫人”。接下来，欧盟应该会更加紧密地和美国一起抗共、灭共，对中共实施一系列的制裁。因此，中共也将更加快速地走向灭亡。但在此过程中，中共一定会作出垂死挣扎：在迫不得已对台湾发动武统前，一定会千方百计地采用非常规手段来达到控制台湾的目的。台湾目前执政为民进党，立场上不如国民党那般亲共，因此，发生如港共政府一般作为的可能性不大，但我们仍然需要提防类似于缅甸军政府的情况发生。虽然在台湾法律上说，总统为三军统帅，但实际上，中共通过对台湾军方几十年来的渗透，使得不少台湾退休将领公然替中共说话的情况屡见不鲜。而且，最近几年台湾军方频频发生事故，例如台湾参谋总长的坠机事件，还有层出不穷的演习过程中出现的坠机、坠海事故。再结合文贵先生之前曾爆料，在今年1月20日前，美国国务卿曾安排美国驻联合国大使访问台湾，但因为台湾政府惧怕中共政府打击报复，最终取消。从这一系列事件中我们可以看出，蔡英文总统对台湾军队的实际掌控能力不容乐观。虽然当时一触即发的大战目前暂时得以避免，但随着中共政权已进入倒计时的阶段，台湾这一块华人自由民主象征的宝地也将随时面临着历史巨变的发生。台湾朝野上下应该给予足够的重视，避免香港以及缅甸的灾难在台湾发生。
-
-（本文观点仅代表作者）
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-g-fashion-1.jpg)
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+达扎克也曾盛赞中共国环球电视网的主持人“[犀利](https://twitter.com/PeterDaszak/status/1044222937270816768?s=20)”，采访“[精彩](https://twitter.com/PeterDaszak/status/1044743782175051776?s=20)”和“诚实”，节目“[很棒](https://twitter.com/PeterDaszak/status/1044763482883796992?s=20)”：
 
 
 
+> Here’s my interview on China Global Television News [@CGTNOfficial](https://twitter.com/CGTNOfficial?ref_src=twsrc%5Etfw) with the always sharp LIU Xin from “The Point” @thepointwithlx. 1st question (4 mins in) was straight to the point re how important scientific collaboration with China is right now… [https://t.co/fNx1DVXBqR](https://t.co/fNx1DVXBqR)
+> — Peter Daszak (@PeterDaszak) [September 24, 2018](https://twitter.com/PeterDaszak/status/1044222937270816768?ref_src=twsrc%5Etfw)
 
 
-+2
+
+*彼得·**达萨克（Peter Daszak**） @PeterDaszak · 2018**年9**月24**日*
+
+*以下是我接受中共国《环球电视新闻》（China Global Television News**）《观点》节目主持人刘欣（Liu Xin**）的采访。第一个问题（4**分钟处）直指现在与中共国的科学合作是多么重要。*
+
+
+
+> Part 2 of my interview on LIU Xin's “The Point” on [@CGTNOfficial](https://twitter.com/CGTNOfficial?ref_src=twsrc%5Etfw). How to get children into STEM. Shout out to [@michiokaku](https://twitter.com/michiokaku?ref_src=twsrc%5Etfw) (17:00 mins in) + GREAT interviews w Chinese children (18:00-20:00) incl would-be shark biologist & a critic of 'narcissistic egoism'![https://t.co/iYYoPEr2sW](https://t.co/iYYoPEr2sW)
+> — Peter Daszak (@PeterDaszak) [September 26, 2018](https://twitter.com/PeterDaszak/status/1044763482883796992?ref_src=twsrc%5Etfw)
+
+
+
+*彼得·**达萨克（Peter Daszak**） @PeterDaszak · 2018**年9**月25**日*
+
+*我接受刘欣《观点》采访的第二部分，如何让孩子们喜欢上理工科。向@michiokaku**大声喊话及与中共国孩子绝妙的面谈，包括未来的鲨鱼生物学家和自私自利的批评家。*
+
+
+
+> What do kids in China think of science and a STEM career? Checkout these fantastic interviews from [@CGTNOfficial](https://twitter.com/CGTNOfficial?ref_src=twsrc%5Etfw) @thepointwithlx. Wherever you travel around the world – if you need an honest answer – just ask a child! [pic.twitter.com/mvcJhkdltD](https://t.co/mvcJhkdltD)
+> — Peter Daszak (@PeterDaszak) [September 26, 2018](https://twitter.com/PeterDaszak/status/1044743782175051776?ref_src=twsrc%5Etfw)
+
+
+
+*彼得·**达萨克（Peter Daszak**） @**彼得·**达萨克（PeterDaszak**） · 2018**年9**月25**日*
+
+*中共国的孩子如何看待科学和理工科职业？请登录中共国《全球电视新闻》官方网站（@CGTNOfficial**），观看刘欣在《观点》@thepoint**）的精彩访谈。无论你身居世界何处–**如果你需要一个诚实的答案–**问问孩子就知道了。*
+
+除了赞扬该网站，他还[不加批判](https://twitter.com/PeterDaszak/status/1350622584753188864?s=20)地分享了此网站的[文章](https://twitter.com/PeterDaszak/status/1265053667230613505?s=20)，强化了武汉病毒所（Wuhan Institue of Virology）“[从未有泄露](https://twitter.com/PeterDaszak/status/1296443186508959744?s=20)或任何人感染”的说法。
+
+
+
+> Prof. Zhengli Shi speaking w/ Liu Xin [@thepoint\_CGTN](https://twitter.com/thepoint_CGTN?ref_src=twsrc%5Etfw) “we’ve been running our Biosecurity labs for 10 yrs & have never had a leakage or anyone infected”[https://t.co/hq72i5tpOZ](https://t.co/hq72i5tpOZ)
+> — Peter Daszak (@PeterDaszak) [August 20, 2020](https://twitter.com/PeterDaszak/status/1296443186508959744?ref_src=twsrc%5Etfw)
+
+
+
+*彼得·**达萨克（Peter Daszak**） @PeterDaszak**） · 2020**年8**月20**日*
+
+*石正丽教授与刘欣在@thePointCGTN**的访谈：“我们的实验室已经安全运行了十年，从未发生过泄露或有人被感染的事件。*”
+
+
+
+> “These viruses exist in nature whether we admit it or not. If we don’t study [them], there will possibly be another outbreak” Hear! Hear! [https://t.co/b7xPOl3RFO](https://t.co/b7xPOl3RFO) via [@cgtnofficial](https://twitter.com/CGTNOfficial?ref_src=twsrc%5Etfw)
+> — Peter Daszak (@PeterDaszak) [May 25, 2020](https://twitter.com/PeterDaszak/status/1265053667230613505?ref_src=twsrc%5Etfw)
+
+
+
+*彼得·**达萨克（Peter Daszak**） @**（PeterDaszak**） · 2020**年5**月25**日*
+
+*无论我们承认与否，这些病毒都存在于自然界中。如果我们不去研究[**他们]**，可能还会有大爆发。”太对了！太对了！*
+
+
+
+> Well said, [@DrMikeRyan](https://twitter.com/DrMikeRyan?ref_src=twsrc%5Etfw). Organizing the logistics for this mission cannot have been easy. Thanks to our China colleagues & hosts, to you, [@Peterfoodsafety](https://twitter.com/Peterfoodsafety?ref_src=twsrc%5Etfw), [@DrTedros](https://twitter.com/DrTedros?ref_src=twsrc%5Etfw), & the whole [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) [@WHOGOARN](https://twitter.com/WHOGOARN?ref_src=twsrc%5Etfw) team for getting us to Wuhan. Already hard at work! [https://t.co/2Kw9sdylXk](https://t.co/2Kw9sdylXk)
+> — Peter Daszak (@PeterDaszak) [January 17, 2021](https://twitter.com/PeterDaszak/status/1350622584753188864?ref_src=twsrc%5Etfw)
+
+
+
+*彼得·**达萨克（Peter Daszak**） @PeterDaszak · 1**月16*
+
+*说的好！@DrMikeRyan**组织这次代表团的后勤工作并非易事。感谢我们的中共国同行和主持人，感谢你们@Peterfoodsafety**，@Dr.Dedro**，感谢整个@WHO @WHOGORN**团队使我们顺利到达武汉。我们已经开始努力工作了。*
+
+此外，达扎克还[赞扬](https://twitter.com/PeterDaszak/status/1203922841105772544?s=20)了[包括](https://www.journals.elsevier.com/biosafety-and-health/)中共国疾病控制和预防中心（Chinese Center for Disease Control and Prevention）在内的国有机构赞助的中共国医学杂志。
+
+
+
+> Meet the Editors of an excellent new journal from China – Biosafety & Health – here with William Liu from China CDC [pic.twitter.com/JW2lzHidYL](https://t.co/JW2lzHidYL)
+> — Peter Daszak (@PeterDaszak) [December 9, 2019](https://twitter.com/PeterDaszak/status/1203922841105772544?ref_src=twsrc%5Etfw)
+
+
+
+*彼得·**达萨克（Peter Daszak**） @PeterDaszak · 2019**年12**月9**日*
+
+*同中共国优秀杂志《生物安全和健康》（Biosafey& Health**）的编辑们会面。下图为同中共国疾控中心的威廉姆.**刘在一起。*
+
+达扎克最近将中共拒绝交出重要数据的行为[归咎于美国媒体](https://thenationalpulse.com/news/daszak-slams-bannon-reveals-database-lies/)—中共的一个谈话要点。
+
+原文作者：娜塔莉.温特斯（NATALIE WINTERS）
+发布时间：2021年3月21日
+原文链接：
+
+
+
+> [The World Health Organization’s ‘Independent Investigator’ Keeps Hyping Chinese Communist Propaganda Outlets.](https://thenationalpulse.com/breaking/the-world-health-organizations-independent-investigator-keeps-hyping-chinese-communist-propaganda-outlets/)
+
+
+
+0
