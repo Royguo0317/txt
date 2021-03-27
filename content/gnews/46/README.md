@@ -1,81 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210326（图片新闻）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1023106/)
+## 【热点播报】“样板戏”将重回中共国舞台
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1024446/)
 
-- 作者：2020喜马拉雅
-- 封面：透明的遮羞布
+作者：纽约香草山美食部 蓝天大海
+
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年3月26日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
+据大纪元报道，3月23日，中共中央就中国共产党成立100周年庆祝活动的有关情况举行发布会，中宣部副部长、文化和旅游部部长胡和平称，为了迎接中共建党100周年，将重新排练上演文革中的样板戏《白毛女》和《红色娘子军》，以此作为庆祝中共建党100周年的重要节目。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0c39603a-afd0-4ef5-9894-f026f6410ea0.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1920px-Revolutionary_opera.jpg)图片来源：维基百科
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/5c950af6-0fc1-45aa-9d6e-c1adb392f976.jpg)
+文化大革命是毛泽东为了搞掉他的政治对手、前国家主席刘少奇而发动的一场群众运动。这是一场十年浩劫，他把五千年来积淀的璀璨文明摧毁殆尽。中国各民族原本都有自己引以为豪的传统文化，但是在文革期间，以破旧立新为名，统统被打入冷宫。泱泱大国八亿人口，只有八个样板戏，不为娱乐，只为洗脑民众。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d6564dbb-7bce-4e1d-a145-b93dc1602da6.jpg)
+中共为何又要重新推出样板戏？笔者认为，这是在当前国际大环境下，中共闭关锁国的信号，也是江郎才尽、束手无策的表现。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/da9efee1-ec4c-4ea8-86a8-1ed440b665eb.jpg)
+首先，在国际社会形成联盟，一致谴责中共对新疆维吾尔族犯下的种族灭绝和反人类罪大背景下，中共对内宣扬民族仇恨，煽动民族主义，特别是对50岁以下没有经历过文革的民众洗脑，宣传共产党一贯的“伟光正”，仇恨西方国家，转移国际社会对共产党这个黑社会组织的追责与围剿。《白毛女》就是中共利用文艺宣传巩固暴力统治的典型，这是一个杜撰的故事，中共以“旧社会把人变成鬼，新社会把鬼变成人”的谎言欺骗了一代又一代的中国人。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/5f30980f-aa8d-4dca-8a77-e92ec2583e2c.jpg)
+其次，中共为重新闭关锁国，开启文革2.0做准备。随着国际社会对CCP病毒的追责，中共的经济面临崩塌。为了继续中共对中国人民的统治，实现习总加速师的皇帝梦，他们会不惜一切代价，复辟文革，让中国彻底朝鲜化。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/232b46c3-1782-4717-812c-7eb3427deaae.jpg)
+最后，中共在现代社会推崇古板僵硬的说教化样板戏，显示他们已经黔驴技穷。面对内外交困的局势，中共国应对毫无章法。在历史的关键时刻，盗国贼们永远只会选择黑暗而不是光明。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/506dca4f-28a0-410f-ba2c-ab658b43ff1e.jpg)
+校对/发稿：飞虹
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/f1626f45-401c-45ff-aa56-f28cc9535fe3.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-g-fashion-2.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1ccfc530-e49f-4845-a70e-847f7863eb19.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e726b74a-b148-41a7-815a-fb8404ef88be.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/191ec9e0-9f22-44a8-b373-c0f72c5becc0.jpg)
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0a0d6faa-61d6-4c66-97c6-1c3ade0de446.jpg)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/dfd6255f-2cbb-4da6-be51-5d50968e7ccb.jpg)
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/a4e2d8f4-dc8a-4524-942a-f4b39cdfcdc4.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/67a05483-d950-4ac0-9227-b70c3de223ec.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/f4f4aa8a-65ef-4b34-8bb0-8e2d1d43aa67.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/a78079b5-2806-4fdc-8b60-1c7ff1be2e1b.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0e75a372-5d01-48d6-8df4-0b0fe278ce0f.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/a3a10b30-9939-4f84-8762-ab10ab7d459c.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/37c42190-1f84-4b3f-9a5e-5da33b3f0143.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/6385ef41-8ec6-4101-a42d-6cea39a51836.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d5247833-f1dc-4483-85c6-6d8a57bc8cf2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4ca9f3f1-c05b-4aee-b8c0-3ea43c62ca03.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/dea45ce2-0492-4999-9070-6bdf036f4c7c.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d77dcdce-1ab2-4910-8640-353c01e2e44a.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/75c14029-5247-4c27-8e70-ed3adbcb1f59.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ba6aa1fc-de86-4d04-aee4-596fb35b1171.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/5007879a-4f61-4aa3-b1b2-8d93cd54eadf.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/fffa6e69-ddcc-4511-a01e-73598b1c8b9e.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/36464b6e-9e47-4464-944c-1fa69187bd99.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/f50d5969-d013-4b0d-aede-4356a4317204.jpg)
-
-发稿：Ranting
-
-本文观点均来自于作者，与GNEWS无关
-
-+1
++4
