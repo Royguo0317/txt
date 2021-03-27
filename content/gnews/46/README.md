@@ -1,67 +1,81 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国国家情报局正以铺天盖地的卫星侦测中共国的侵略性军事设施
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1020641/)
+## 慧眼看世界20210326（图片新闻）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1023106/)
 
-#### 翻译报道:牛小妹
+- 作者：2020喜马拉雅
+- 封面：透明的遮羞布
 
-#### 责编：白夜
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-136.png)图片来源Getty Images：中共在南海四大群岛之一的西沙群岛链人工建岛的鸟瞰图
-根据《华盛顿时报》报导，美国无论公部门或者私人研究机构都对中共国军事力量的发展范围进行史无前例的侦测与了解。
 
-#### 美国对中共的”猎狐行动”
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-自从2018年以来，美国国家地理空间情报局就进行一项计划，称为“tearline.mil”。该计划利用商业卫星图像侦测北朝鲜、中共国维吾尔族穆斯林集中营以及中共国”一带一路”的基础设施计划，以提供情报报告。美国官员称这是针对中国共产党全球扩张主义的”猎狐行动”。
+**西班牙2021年3月26日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
 
-Tearline是一种对中共国图像分析项目的新的计划，国家地理空间情报局的Tearline计划被视为情报透明化的典范，该机构已与Rand Corp.智囊团和几所大学合作开展了多个项目。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/0c39603a-afd0-4ef5-9894-f026f6410ea0.jpg)
 
-国家地理空间情报局官员主要负责为“tearline.mil”计划寻找至少可以研究相关议题10年以上的学术和非营利性的多个机构。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/5c950af6-0fc1-45aa-9d6e-c1adb392f976.jpg)
 
-在Tearlin的计划之下，国家地理空间情报局为研究小组采购了高解析率的商业卫星图像，并向研究人员提供帮助分析识别图像中所获取的资讯及划面，之后再将该计划的报告发布在网路上，并与美国情报机构共享。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/d6564dbb-7bce-4e1d-a145-b93dc1602da6.jpg)
 
-#### 美国”猎狐行动” 纳入法案
+![]()![](https://gnews.org/wp-content/uploads/2021/03/da9efee1-ec4c-4ea8-86a8-1ed440b665eb.jpg)
 
-去年12月，川普将签署的1.4万亿美元综合支出法案纳入了对国家地理空间情报局的强制要求，责令国家地理空间情报局要与学术机构和非营利研究小组合作，以进行”开放式去中心化”公开情报资源计划。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/5f30980f-aa8d-4dca-8a77-e92ec2583e2c.jpg)
 
-国家地理空间情报局公共事务负责人丹可(Don Kerr)说， “根据《情报授权法》，国家地理空间情报局从去年12月颁布开始起有180天的准备时间，以回复法案中各项指令的具体规定。”该授权法要求国家地理空间情报局主任罗伯特•G•夏普（Robert G. Sharp）副上将在6月25日之前启动开放式创新并且”去中心化”对中共国军方的相关合作研究项目。此法案特别强调，夏普将军要对中共国进行可能危害美国国家安全的活动中使用卫星图像和相关的照片分析功能，并将相关报告公布在网站上。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/232b46c3-1782-4717-812c-7eb3427deaae.jpg)
 
-法案所涵盖的情报计划目标包括中共国人民解放军的陆军、海军、空军和砲弹部队的所有可疑的活动，另一个重点则是解放军的战略支援部队，这是一个相对较新的军事部门，负责军事间谍，网路情报和太空战。国家地理空间情报局的任务清单中还包括中共国在南中国海进行了军事式活动的中共国内部安全部队，人民武装警察和中共国海岸警卫队。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/506dca4f-28a0-410f-ba2c-ab658b43ff1e.jpg)
 
-作为2021财政年度批准的情报授权法的一部分，负责监视美国间谍卫星图像的国家地理空间情报局（National Geospatial-Intelligence Agency）正在准备发布有关中共国军事和国家安全计划的公共报告。报告还涵盖了中共国对全球可能的健康威胁，警告中共国具有中共病毒大流行潜在的威胁，以及对中共国在气候变化和环境恶化方面记录的分析。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/f1626f45-401c-45ff-aa56-f28cc9535fe3.jpg)
 
-根据新法律，民主党众议院常设常设情报委员会的增设了一个规定，国家地理空间情报局将定期“识别原始的，未分类的”地理空间数据，如果公开这些数据得以改善与合作夥伴所进行的研究，就会公开提供此类数据。” 国家地理空间情报局预计在年底前向国会简介此一计划。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1ccfc530-e49f-4845-a70e-847f7863eb19.jpg)
 
-美国国会还希望国家地理空间情报局利用影像能力来监测中共国在南中国海的土地开垦工作，同时扩大范围将中共国在印度洋地区的海洋活动和更广泛的海洋活动制作成卫星图像报告。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/e726b74a-b148-41a7-815a-fb8404ef88be.jpg)
 
-#### “亚洲海事透明度研究组织”侦测中共的军事部署
+![]()![](https://gnews.org/wp-content/uploads/2021/03/191ec9e0-9f22-44a8-b373-c0f72c5becc0.jpg)
 
-中共国因为在战略海上航道的侵略性主权主张而与美国及相关地区的几个国家关系陷入僵局，美国一些研究人员已经在对中共国军队进行卫星照片的相关研究。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/0a0d6faa-61d6-4c66-97c6-1c3ade0de446.jpg)
 
-“亚洲海事透明度研究组织”(AMTI)是一个与非营利组织”战略与国际研究中心”相关连的一个私人图像分析工作团队，他们在密切跟踪中共国在南中国海的岛屿建设的商业图像发现并确认中共国在有争议的南海诸岛上的军事部署，其中还包括导弹部署。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/dfd6255f-2cbb-4da6-be51-5d50968e7ccb.jpg)
 
-“中共在有争议的岛屿军事化的建设”一直是阻碍美中关系发展的主要症结，也是美国考量在这个海域增加军舰和海上飞机的重要因素。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/a4e2d8f4-dc8a-4524-942a-f4b39cdfcdc4.jpg)
 
-私人商业卫星照片已经发现中共国解放军军事基地和武器的许多关键部分，包括中共国潜艇在南海海南岛使用的水下隧道的图像、在造船厂建造的中共国航空母舰，并扩大了在非洲之角吉布提的中共国第一个海外军事基地。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/67a05483-d950-4ac0-9227-b70c3de223ec.jpg)
 
-另外还有照片显示中共设立台湾政府大楼和军事基地的实体模型，分析人士说，这表示中共国军方正准备对台湾发动袭击。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/f4f4aa8a-65ef-4b34-8bb0-8e2d1d43aa67.jpg)
 
-#### 美国公开分享中共军情是对中共的”照妖镜”
+![]()![](https://gnews.org/wp-content/uploads/2021/03/a78079b5-2806-4fdc-8b60-1c7ff1be2e1b.jpg)
 
-多年来，一直主张美国情报部门应该公开中共国军事活动细节的前太平洋舰队情报部门负责人海军上尉吉姆•法内尔说，联合公开有关中共国军情资源的计划是美国政府迫切需要做的事。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/0e75a372-5d01-48d6-8df4-0b0fe278ce0f.jpg)
 
-法内尔上尉说，这件事至少已经晚了五年，特别是当美国看到中共国的《南中国海战略形势调查倡议》每天都在做什么的时候，美国更要明白这件事的重要性。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/a3a10b30-9939-4f84-8762-ab10ab7d459c.jpg)
 
-《南中国海战略形势调查倡议》是一个由亲共人士组成的网路，主要由中共国学者和退休军人组成，旨在宣扬中共有关南海大部分地区为中国共海域的官方说法。川普政府时代曾根据国际法，主张这些说法是非法的。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/37c42190-1f84-4b3f-9a5e-5da33b3f0143.jpg)
 
-“分享独裁的中共国在海上嚣张跋扈的现况不仅对自由民主有好处，更是聪明的外交手段。”法内尔上尉说。他补充说，公开披露有关中共国活动的详细资讯也是美国和国际更清楚认知中共国野心的实际做法；另一个好处是有助于抵制中共国污蔑美国的恶劣行径，抹黑美国在西太平洋地区的行动是这个区域动荡不安的根本原因，而这两者都符合美国的国家利益。”他说。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/6385ef41-8ec6-4101-a42d-6cea39a51836.jpg)
 
-#### 点评:
+![]()![](https://gnews.org/wp-content/uploads/2021/03/d5247833-f1dc-4483-85c6-6d8a57bc8cf2.jpg)
 
-中共的军事野心无论上天、下海、钻地，都逃不出绕行在地球轨道上的各个卫星的”魔镜”。美国上下无论政府或私人机构，共和党或者民主党，都意识到”中共不灭，世界不会太平。”除非中共从地球上消失，否则卫星的”照妖镜”总会暴露中共狂妄的行径，让中共无所遁逃！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4ca9f3f1-c05b-4aee-b8c0-3ea43c62ca03.jpg)
 
-中共，你彻底地完了!
+![]()![](https://gnews.org/wp-content/uploads/2021/03/dea45ce2-0492-4999-9070-6bdf036f4c7c.jpg)
 
-文章链接 **[China’s confrontational military buildup to be laid bare by U.S. spy agency in unprecedented reveal](https://www.washingtontimes.com/news/2021/mar/21/china-military-buildup-be-revealed-national-geospa/)**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/d77dcdce-1ab2-4910-8640-353c01e2e44a.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/75c14029-5247-4c27-8e70-ed3adbcb1f59.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ba6aa1fc-de86-4d04-aee4-596fb35b1171.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/5007879a-4f61-4aa3-b1b2-8d93cd54eadf.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/fffa6e69-ddcc-4511-a01e-73598b1c8b9e.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/36464b6e-9e47-4464-944c-1fa69187bd99.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/f50d5969-d013-4b0d-aede-4356a4317204.jpg)
+
+发稿：Ranting
+
+本文观点均来自于作者，与GNEWS无关
 
 +1

@@ -1,175 +1,87 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【歌曲】好人 Kind people:當我們的臉孔名字 都成了不能公布的秘密
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/1021065/)
+## 前北约秘书长拉斯穆森: 如果中(共)国威胁到台湾, 我们须做好战争的准备
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1023813/)
 
-**歌名**:**好人 Kind people**
+**作者: Maria Runøe Møller**
 
-這是一位無名的香港同胞 作詞作曲演唱的原創作品
+**编译: 莫黎**
 
-因為 香港國安法的關係 所以他無法公開發表這首作品
 
-因此由我們 新中國聯邦 正義的小伙伴接手來製作視頻
 
-視頻內容是過去這些日子 香港同胞們所經歷過的一切
+![]()![](https://gnews.org/wp-content/uploads/2021/03/00123456.jpeg)**图片: NATO.int**
 
-「當我們的臉孔名字 都成了不能公布的秘密
 
-世間上的人們 還何以維持自己的正義呢？」
 
-**歌词如下:**
+**安德斯·福格·拉斯穆森（Anders Fogh Rasmussen****）刚刚遭到中(****共)****国的制裁，被禁止进入这个东亚国家并不得与该国进行任何合作。**
 
-生命恍如朝夕的繁花
+自1949年中国内战结束以来，台湾一直是一个独立的国家。然而，中(共)国仍然将这个岛国视为即将与大陆统一的一个省。
 
-Life is like a prosperous flower
+特别是近几年来，中共军方战斗机频繁侵犯台湾领空，而该政权的军舰则经常在台湾附近的海峡航行。
 
-总能将奇迹流传吧
+如果中(共)国严肃地对待这些威胁，那么丹麦以及北约其他国家也应该做好援救台湾的准备。这是丹麦前首相、北约前任秘书长安德斯·福格·拉斯穆森的观点。
 
-Can always spread miracles
+– 拉斯穆森在丹麦《电视二台新闻》节目 “Lippert “中表示, 必须采取军事上的行动。美国和台湾之间已有一项军事防御协议，其中美国有义务向台湾提供武器。因此，美国会毫无疑问地作出回应。但我认为我们必须帮助美国盟友，北约和世界民主国家必须团结起来捍卫台湾。
 
-你是怜悯　降落城市　将一对翼折下
+我们说的是北约和中(共)国之间的战争吗？
 
-Mercifully landing in the city with your pair of wings
+– 我认为这不会发生。但防止这种情况发生的最好办法是向中共发出一个明确的信息，即如果他们打算攻打台湾，那么就会面临直截了当的、军事上的回应。
 
-未惧怕走入悲情筑成的篱笆
+2019年，中共国家主席习近平称统一 “不可避免”。而2049年被多次提到，也就是人民共和国成立100周年，这可能会是一个截止日期。
 
-Not afraid to step into the fence of sadness
+同时，台湾试图彻底摆脱和中(共)国之间的关联。该国有自己的国旗、国防和货币，自1996年以来，台湾的民主制度确保了2 400多万居民的自由。
 
-以白袍一身见证高雅
+拉斯穆森称两国之间的冲突为 “民主与专政之间的根本斗争”。但他表示，民主的胜利并不是必然的。
 
-Witness the elegance in a white robe
+– 这正是令人担忧的地方。在许多西方国家，我们过于倾向于相信自由和民主在规模上优于独裁，以至于我们将永远获胜。但我认为我们不能肯定我们的价值观一定会赢。
 
-病床步履间　厘定了身价
+– 这也是我对中共的批评尖锐化的原因。作为首相和后来的北约秘书长，我曾多次尝试与专制政权以及独裁者接触，但我不得不承认，这是行不通的，对他们而言只有一件事是有效的: 坚定的统治。
 
-The dedication you put into the hospital beds determines your worth.
+**这位前首相被列入黑名单: ****安德斯·福格·拉斯穆森刚刚遭到了中共的制裁。**
 
-要按时轮班太迟回家
+周一，欧盟 (除匈牙利外) 、加拿大和美国对中共实施了一系列制裁，原因是中共在新疆西北地区对穆斯林维吾尔族 的”严重侵犯人权”行为。
 
-you work shifts and you come home very late
+在将近四年的时间里，中共政府拘留了多达100万的维吾尔人，并将他们安置在所谓的教育中心。 逃出该中心的维吾尔人将其比作集中营，并讲述了该中心涉及强迫劳动、强奸和绝育。
 
-脸上仍抹不褪是你牵挂
+中共称维吾尔人构成了恐怖威胁，而设立这些中心是为了帮助他们消除激进化。
 
-the concern is what still cannot be erased from your face
+在欧盟宣布制裁的同一天，中共做出了对欧洲的10名个人以及四个组织进行制裁的回应，其中包括丹麦前首相、北约秘书长拉斯穆森的“丹麦民主联盟基金会”。
 
-眼前是困苦吗　信明日会好吗
+同时，据中(共)国外交部的一份声明称，如果西方国家不停止其在人权问题上的 “双重标准 ” 以及中国对人权的解释，该政权则威胁要采取进一步的措施。
 
-Is it the hardship you face? Do you think tomorrow you’ll be okay?
+– 拉斯穆森表示，我成立了一项专为世界民主国家相互合作的基金会，而中共对此十分不悦。但我想说明的是: 我将继续我们的工作。
 
-一生的好人　满心恻隐
+作为基金会的负责人，他在去年夏天邀请台湾总统蔡英文和香港民主活动家黃之鋒参加了一个会议，两人都在会上批评了中共政权。
 
-The life of kind people is full of compassion
+当时，中国驻哥本哈根大使馆称这次会议为 “挑衅”，因此，拉斯穆森对被纳入此次的制裁名单并不奇怪。
 
-请祝福好人　祈求天公允
+– 但我以为中国人会明白，我并不反华。当时作为首相，我在2008年签署了《战略伙伴协议》，我以为中国人会明白，在西方有朋友是挺好的一件事，但我已经变得更明智了。
 
-Please bless kind people and pray for the justice
+拉斯穆森的中国观近年来发生了根本性的变化。
 
-同路在黄昏　如若是留心
+作为丹麦首相，他于2008年与该政权建立了战略伙伴关系，以加强丹麦与这个东亚国家的政治、文化和商业联系。他亲眼见证了经济的飞速发展，并曾经希望中国的发展也能让这里朝着更加民主的方向前进。
 
-On the same road at dusk, if you pay attention
+– 拉斯穆森称，”我以为经济自由化也会导致政治自由化。我以为该国日益壮大的中产阶级会导致人们要求更多的政治自由。”
 
-能站在旁边  察觉你内蕴
+但现在他对这个国家的看法完全不同。尤其是在2012年现任国家主席习近平上台后。这位67岁的主席也是中共总书记和国家中央军委主席。此外，他还设法取消了对主席任职期限的限制。
 
-you can stay still and perceive your connotation
+这位前首相表示，随着习近平的上台，西方世界已经清楚地看到，中国的经济增长和专制是密不可分的。
 
-简单的好人　平凡的身份
+自欧盟上一次对中国实施制裁以来，已经过去了30多年。那次是针对1989年北京天安门广场的大屠杀，当时有多达100万名抗议者持续数周地要求更多的政治开放性、言论自由和减少审查。而中共军方却施以武力镇压，从而导致多达一万人丧生。欧盟随后带头禁止与中(共)国进行武器贸易- 而这一禁令至今仍然有效。
 
-just kind people, with an ordinary identity
 
-漆黑中守望　是为点一盏灯
 
-in the dark watch for hope to light a lamp
 
-一生好人　慷慨像你　会有护荫
 
-The lives of kind and generous people like you will be blessed
+**新闻来源: **
 
-要按时轮班太迟回家
+[Hvis Kina truer Taiwan, skal vi være klar til krig, siger Anders Fogh](http://Hvis%20Kina%20truer%20Taiwan,%20skal%20vi%20være%20klar%20til%20krig,%20siger%20Anders%20Fogh)
 
-you work shifts and you come home very late
 
-脸上仍抹不褪是你牵挂
 
-the concern is what still cannot be erased from your face
+* * *
 
-为寻觅美好吗
+**发布: 法国巴黎七星编辑组**
 
-to look for splendor?
-
-北风凛冽里栽花
-
-Plant flowers in the icy north wind
-
-照亮人世间构成图画
-
-Light up the world and outline a drawing
-
-寄在年月承受着风沙
-
-Ride through the time and withstands sandstorms
-
-为成就美好吗
-
-to reach perfection?
-
-替身边者铺砖筑瓦
-
-They have put tiles and bricks for those around him.
-
-一生的好人　满心恻隐
-
-The life of kind people is full of compassion
-
-请祝福好人　祈求天公允
-
-Please bless kind people and pray for the justice
-
-同路在黄昏　如若是留心
-
-On the same road at dusk, if you pay attention
-
-明白善良  丰富了你内蕴
-
-Understand goodness and enrich your connotation
-
-简单的好人　平凡的身份
-
-just kind people, with an ordinary identity
-
-漆黑中守望　是为点一盏灯
-
-in the dark watch for hope to light a lamp
-
-一生好人　珍贵像你　会有护荫
-
-The lives of kind and precious people like you will be blessed.
-
-一生的好人　满心恻隐
-
-The life of kind people is full of compassion
-
-天真的好人　常留低共振
-
-Innocent and kind people often resonate with humility
-
-从没问原因　怀着是纯真
-
-They never ask why, they just possess innocence
-
-良善就似天使危城俯瞰
-
-Kindness is like heaven. The dangerous city looks up to see it
-
-请祝福好人　求平安的一生
-
-Please bless kind people and pray for a peaceful life.
-
-漆黑中守望　烙下一双足印
-
-in the dark look for hope to mark a set of footprints
-
-充当好人　天会为你　化作树荫
-
-Always be a kind person and heaven will become a blessing to you.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3A9DADEA-1C81-4A9A-98F1-E2FB32DF2F7F-1.jpeg)
-0
++1

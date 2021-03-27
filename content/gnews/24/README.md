@@ -1,44 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国新老政府的最大争执就是病毒报告
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1020925/)
+## 中共可能利用非法移民潮给美国制造第二波疫情
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1023590/)
 
-简述：在2021年3月15日盖特视频中，郭先生披露美国川普政府和拜登政府之间最大的争执是病毒报告，中共已经准备承认病毒不是自然产生的，而是实验室泄漏。 但是，世卫组织在中国吃喝玩乐以后，私下建议中共否认一切，从而彻底激怒了绝大多数的美国高层，使他们从之前对中共的纵容态度，彻底转向承认中共故意制造病毒。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/03/Miles_20210315_getter_part1_virus.srt.txt)
-**美国新老政府的最大争执就是病毒报告**
+撰稿：永遠の小学生文筝
+![]()![](https://gnews.org/wp-content/uploads/2021/03/非法移民潮.png)图片来自网络
+随着美国疫情情况趋向缓和，中共为了向美国传播病毒从而认为制造第二波疫情，很有可能利用非法移民这一条线。之前众议院少数党领袖麦卡锡说，“在德州美墨边境的医生告诉他，10%的非法移民在被释放到附近的社区之前，中共病毒（武汉肺炎、COVID-19）检测呈阳性。”随着这些进入美国，病毒变种也就被带到美国。
 
-**The Main Conflict Between the Trump and Biden Administrations Lies in the Virus Report**
+2020年中共病毒开始爆发之时，川普总统签署了对中共国的旅行禁令，以及禁止非法移民的政策，这些从根本上阻止了中共大规模有计划实施对美投毒的计划。但随着拜登上台，从政策上纵容非法移民跨越边境，这就给中共的投毒计划打开了一扇门。因为中共的新冠病毒生化武器的特性，可以产生无症状的病毒携带者，这就给在美国传播带来了便利，能够长期传播到多个地方。
 
-我再告诉大家一个更核心的问题，可能你们还不知道。就在那个之后，美国内部掀起了轩然大波，就是病毒报告。新政府和老政府争执的最大的问题，就是病毒报告。
+尽管在边境有执法人员，但无上限的非法移民潮已经让边境执法人员超负荷运转，现在已经形成了边境危机。而拜登政府还不让其他人访问边境设施，这种做法就是中共常用的拖延计。参议员格雷厄姆在接受福克斯采访时说，“我周五将与18名参议员一起前往边境，如果我被拒绝进入任何我想进入的地方，我们将关闭参议院。”
 
-I will tell you about another key issue that you may not know yet. After the Taiwan incident, the issue that set off the uproar in the US was the virus report. The main conflict between the Trump and Biden administrations lies in the virus report.
+一位在边境的巡罗队员向《大纪元时报》透露了边境非法移民的真实状况。关押非法移民的某些拘留室的卫生状况非常糟糕，这也就解释了为什么被释放的大量非法移民身上带有中共病毒的原因。因为拜登政府糟糕的边境政策，巡逻人员的流失情况非常严重，大家不想再做边境巡逻的工作了。这就自然助长了走私跟贩毒，中共想通过这一渠道运进什么东西就更容易了。
 
-绝大多数人认为这不是共产党病毒，是叫无意泄露，叫无意的武汉实验室试验泄露。这才导演了WHO到所谓的武汉，走那么一圈，回来定义的结果就是一个，无意的或者是试验事故。已经要承认了，这不是自然的。大家你看这个过程。不是自然的，不是自然学说，否了，但是武汉实验室是自然泄露，或者是某个人所为。等了WHO这帮王八蛋到了中国，吃喝玩乐以后，给他们私下建议，说你这根本不能说泄露，泄露没必要，这就不是你干的。
+中共本身就有搞弱美国（Foment weakness）、搞乱美国（Foment chaos）、搞死美国（Foment destruction）的“3F计划”，通过向美国输出毒品芬太尼，这些年跟美国的犯罪组织肯定都有联系，再加上拜登政府的政策配合，现在这种情况更像是中共联合美奸进行政变。但碍于美国的权力分散的架构，遭到了多方的阻止。但在边境问题上是否跟习总加速师做了勾兑，就很难说了。
 
-The vast majority of the people believed that the virus was not released by the CCP. Rather it was an unintentional leak from the Wuhan lab. That’s why the WHO people flied to Wuhan and came back with this conclusion: it was unintentional, or a lab accident. At that point, the CCP was already going to admit that it was not natural origin. Do you see the whole development? The natural origin theory was about to be negated, and the CCP was going to admit that the virus was a leak from the Wuhan lab or caused by an individual person. But those WHO bastards went to China, ate and drank, and then privately suggested that the CCP should not admit that it was a leak at all and there was no need to admit it because it was not done by the CCP at all.
+(文章内容仅代表作者观点)
 
-最后也是中共上面昏了头了，据说是军方还有中国杨娘娘、王太监都说：“这就不能承认，也不能他说泄露，就不是他干的。”就像欺民贼一样，就像九指妖一样，到临死咬着屎橛子不带松口的，她以为自己那叫强硬，她不知道咬着屎橛子。
+审稿：光耀华夏
+编辑：MG4
 
-Finally, the CCP’s higher-ups were not thinking clear. It’s said that some PLA personnels and concubine Yang (Yang Jiechi) and eunuch Wang (Wang Yi) all agreed that they should not admit anything, including the leak. Instead they should deny that they had anything to do with this. Just like those pro-democracy phonies and the nine-fingered demoness (referring to Sara of VOG), they are on the verge of being destroyed but still play tough. They think this makes them look tough, they think it is called tough, but what they are holding onto is just shit.
+消息来源：
 
-最后就演了一场戏，推出去，从非自然到人为的无意泄露，或事故，到推出去，跟他没关系。惹怒了美国，“啪”调转回来了，原来绝大多数要支持是实验室失误泄露的人，现在全回去了，绝大多数人说，这就是你故意制造的生化病毒。而且是很早就完成的。这一下赢了。
+[麦卡锡：10％非法移民获释前病毒检测呈阳性](https://www.epochtimes.com/gb/21/3/16/n12814214.htm)
 
-In the end, they put up this show, from potentially admitting that the virus was from an unnatural source to an unintentional lab leak or an accident to denying everything all together. This has really made the US furious. The situation was then turned back around. The overwhelming majority of people, who used to support the idea that it was a lab leaking accident, are now turning to believe that it is a biochemical virus that you, the CCP, created on purpose. Moreover, you have been doing this for a long time. Bingo, we won!
+[格雷厄姆：若被拒访问边境设施 GOP将关闭参院](https://www.epochtimes.com/gb/21/3/24/n12833422.htm)
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://www.gtv.org/getter/604f6cbd527b920e2d83087e](https://www.gtv.org/getter/604f6cbd527b920e2d83087e) (5:10-7:15)
-鸣谢：
-[1] 感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/978690/](https://gnews.org/zh-hans/978690/)
-[2] 感谢 Mike Li、Antsee-GTV、Liberte 提供英文翻译文本于[https://gnews.org/991193/](https://gnews.org/991193/)
+[【独家】特工冒险揭美边境移民设施内幕](https://www.epochtimes.com/gb/21/3/24/n12832498.htm)
 
-* * *
-
-整理校对 & 新闻撰写：【JennyL】字幕：【Rock小哥】视频解码：【恒久忍耐】推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
+[CBP：流入美国的芬太尼数量创历史新高](https://www.epochtimes.com/gb/21/3/13/n12808295.htm)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-澳喜Logo-3.jpeg)
 +2
