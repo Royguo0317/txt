@@ -1,44 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全球灭共之势已成，习近平作最后告别之旅
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1027171/)
+## 慧眼看世界20210327（图片新闻）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1025918/)
 
-作者：宁缺 |校对：仙女儿-文善 |审核：Beicy-数学老师 |Page：小雨
+- 作者：2020喜马拉雅
+- 封面：透明的遮羞布
 
-[!\[\]()!\[\](https://spark.adobe.com/page/B1AQnqE8YtBaa/images/daef4c79-7f84-4c68-9f16-829ecc3c9a14.jpg?asset_id=c832f45b-8daf-4f66-902a-cc9bb3f55760&amp;img_etag=%223032ca773ff1bade32d514cc97147c50%22&amp;size=1024)](https://spark.adobe.com/page/B1AQnqE8YtBaa/images/daef4c79-7f84-4c68-9f16-829ecc3c9a14.jpg?asset_id=c832f45b-8daf-4f66-902a-cc9bb3f55760&amp;img_etag=%223032ca773ff1bade32d514cc97147c50%22&amp;size=1024)
 
-近日，H&M集团去年在网站发布的一份声明引发了关注。这份声明写道：H&M集团对来自民间社会组织的报告和媒体的报道深表关注，其中包括对新疆维吾尔自治区少数民族强迫劳动和宗教歧视的指控。声明中，H&M集团表示，我们不与位于新疆的任何服装制造工厂合作，也不会从该地区采购产品/原材料。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-中共主动捅开H&M的陈年旧事，还造势煽风点火，一时间引发轩然大波。让中共感到意外的是，耐克、阿迪达斯、优衣库、CK等国际知名品牌陆续跟进，纷纷指责中共对新疆少数民族的种族灭绝暴行。目前，官媒正在疯狂引导国内舆论，煽动小粉红声势浩大地抵制这些“洋货”。与上述品牌有商业合作的代言明星被迫纷纷现身表态站队，与相关品牌划清界限。仔细观察分析此次事件的整个过程，我们可以发现很多不同寻常的细节问题。
+**西班牙2021年3月27日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/B1AQnqE8YtBaa/images/556a9eb2-0d84-4b62-aa40-97ba0c76e309.jpg?asset_id=f2a7805e-111d-4300-8408-88572e259636&amp;img_etag=%222ed18b39cd4ff84f51f58d8e0db69897%22&amp;size=2560)](https://spark.adobe.com/page/B1AQnqE8YtBaa/images/556a9eb2-0d84-4b62-aa40-97ba0c76e309.jpg?asset_id=f2a7805e-111d-4300-8408-88572e259636&amp;img_etag=%222ed18b39cd4ff84f51f58d8e0db69897%22&amp;size=1024)BCI（Better Cotton Initiative，良好棉花发展协会）部分会员公司
+![]()![](https://gnews.org/wp-content/uploads/2021/03/0c39603a-afd0-4ef5-9894-f026f6410ea0.jpg)
 
-首先，中共作为一个把面子问题放在第一位的独裁政府招惹一件早已平息的事情显得十分突兀。在过去，当西方发生“反华”事件时，中共通常的做法都是不惜利用各种“蓝、金、黄”手段大而化小、小而化了，降低“反华”声音的调门。现在情况已经发生了变化，北京花这么大力气招惹一个巨大的马蜂窝，并且通过明星刷屏热搜的方式搞得全社会各个阶层，人尽皆知，似乎刻意要将事态扩大化，烘托营造中西激烈对立的氛围。目前，民族主义仍在大陆持续发酵，中共下一步的动作直接关系到自身存亡选择，需要密切观察。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/76e6d59c-6d58-49eb-84b4-cabc8702302e.jpg)
 
-其次，跨国企业作为追逐利益的商业实体，对政治问题相当敏感，会主动避免介入所在国的政治议题。一旦意外卷入国际政治矛盾，一般会尽快主动道歉，低调平息事端。商业组织都深谙和气生财的道理，这也是过去中共对涉事企业采取施压、要挟的低劣手段而屡试不爽的根本原因。这次却有了明显的不同，去年，对新疆人权问题的指责完全是由这些跨国企业和组织主动挑起，所以更加意义非凡。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/b95c6796-1566-418e-aee4-6ab28fe2c5b1.jpg)
 
-再次，过去西方企业偶尔不慎触碰到中共老虎敏感的政治屁股，基本是因为个别高管或者代言明星一时兴奋失言所导致。这些案例呈现个别、零散、无意识的行动特征，最后也以赔礼道歉收场。这次H&M和各品牌服装企业先后都是以整个实体的名义强硬表态中共新疆暴行。用中共的话说就是，“有组织、有预谋的大规模反华行为”。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/795aa92a-5b41-43ae-8638-0d7204654f7c.jpg)
 
-最后，这些经济实体的行为不仅代表企业本身，更表明幕后老板的真实态度。耐克、阿迪达斯、CK，这些国际大品牌公司的真正股东是欧洲财团、政治家族、美国华尔街资本。过去有些制衣企业本身还雇佣过中共压迫的新疆奴隶劳工，与中共建立长期的合作伙伴关系，并非一朝一夕的点滴雨露交往。这次集体行动实质是国际金融财团势力抛弃中共，并与之切割的政治宣言。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/37b222cb-3389-43cb-a285-bc96b44d573e.jpg)
 
-结合最近的国际政治形势，也可以发现一些显著的大变化。中共病毒来自武汉实验室的真实信息开始在全世界主流舆论和媒体扩散；美国拜登政府明显提高了打压中共的调门和措施力度，并加大了对中共在美上市企业的退场力度；中欧已经开始陷入大规模互相制裁的强硬外交对抗。同时，中欧贸易协定细节讨论停滞，面临破局，中共拉拢欧洲对抗美国的策略失败；之前面对美中较量，一直深藏功名的日本也有议员站出来公开指责中共新疆暴行。从全球几大权利核心态度的变动，可以得出结论，全球强国联合灭共之势已成。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/e0ef861f-73bf-40a4-8a22-384e7b18afa1.jpg)
 
-反观此时的中共党魁习近平，在内外举世皆敌，洪水滔天的危机时刻，却跑到曾经主政过的福建地区视察工作。在各路媒体的新闻报道中，习充满了对过去福建工作的回忆。这不是一次简单的日常工作巡查之旅，这是习近平政治生命终结的告别之旅。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/24374892-2a49-4d5e-86f0-0d52e0563cda.jpg)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/B1AQnqE8YtBaa/images/e63cc69d-8480-476c-b17b-3951b3267b6a.jpg?asset_id=9648824b-b2a4-419b-88a6-d9fa714072ca&amp;img_etag=%22ae2aa7c4475f31d5701a18fd4eec8f8a%22&amp;size=1024)](https://spark.adobe.com/page/B1AQnqE8YtBaa/images/e63cc69d-8480-476c-b17b-3951b3267b6a.jpg?asset_id=9648824b-b2a4-419b-88a6-d9fa714072ca&amp;img_etag=%22ae2aa7c4475f31d5701a18fd4eec8f8a%22&amp;size=1024)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/d6087a49-43bd-4d7d-93ae-d053c39ad759.jpg)
 
-2月20日，中共纪念华国锋同志诞辰100周年座谈会高调在京举行。在3月20日围炉夜话节目的直播中，笔者通过整理分析中共历史整个权力变动的过程，可以推断出此次纪念华国锋传递的三点政治信号：一、习准备找人接班；二、习通过追忆过去接班权斗的惨烈，表达避免斗争，顺利交接的意愿；三、韩正出现纪念会表明习江已经妥协，江派尊重并认可一尊未来的组织人事安排。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ececab21-7ca6-443d-8ff1-6fadc4bf652f.jpg)
 
-终结共产主义制度，是中共国内各方都认可的政治妥协结果。同时，不排除习在党内选择戈尔巴乔夫式人物来结束中共的统治。综合所有的情况看，中共在国内大概率很快会平稳走向灭亡，是一个喜丧。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ea726b17-14b5-49e0-a665-85f0e58f4232.jpg)
 
-**文章仅代表个人观点**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/eeb53129-71f8-493b-9dd6-c17c1dd3caac.jpg)
 
-编辑：【英国伦敦喜庄园编辑部】
-[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3f640734-4079-4438-9356-8a5f1485d5a9.jpg)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/B1AQnqE8YtBaa/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/B1AQnqE8YtBaa/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/7d6c5e9e-b487-4fd7-9f68-82ecf530bd7d.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cd38bcb8-fc4b-409a-8da5-9f27259c1bec.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/9a7d6f12-d80d-4795-8e48-663c604c4a96.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/156ada6c-67af-4115-b9ff-6d6384524e78.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/59e765fd-02d2-4c48-92f1-dc6b1031d234.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4674eb3b-4377-4316-a9a8-856971f64e93.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/154b9837-6385-4e37-babf-32429a461346.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/c1de450b-5cc4-4eeb-a7d9-bd245f05b1dc.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/6a6381e6-fc8f-4ae8-b6c0-70c991de2bd6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/edb09e70-905e-4986-8dc0-c02434f0c9ae.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/a651eaad-9f41-47ec-be7d-d28da6126df6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/384218b1-9e8c-4549-9024-16a468038433.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/0213fa91-e99a-499f-9e92-84c92f74cd81.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4cf00b33-96eb-4aaa-a7c6-3a4966c6ae2f.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/fee09b74-7976-4abc-b62c-ca08f2c0756a.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/c48322c1-53b5-4cd5-b222-21d7c6c073fd.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/b2804332-3d10-4e3e-aaf8-8cb645bbf0a3.jpg)
+
+发稿：Ranting
+
+本文观点均来自于作者，与GNEWS无关
 
 0
