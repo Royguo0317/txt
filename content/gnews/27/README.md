@@ -1,23 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 菲律宾海军增强“海上主权巡逻”抵抗中共入侵
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1025784/)
+## 【热点播报】台海危机升温，苏伊士运河塞断后，共机出动20架次扰台
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1025873/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：纽约香草山健身部 Jack Li文阳
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-27_20-28-38.jpg)[opinion.inquirer.net](https://opinion.inquirer.net/87250/independent-ph-foreign-policy)
-布赖特巴特新闻(Breitbart News)报道，菲律宾下令其海军在有争议的南中国海暗礁附近海域加强“海上主权巡逻”，此前北京方面拒绝服从马尼拉方面上周发出的从该海域召回渔船舰队的命令。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
-菲律宾海岸警卫队(coast guard)报告称，3月7日，约220艘中共船只停泊在白灵礁(Whitsun Reef)，马尼拉方面称其为朱利安费利佩礁(Julian Felipe Reef)。据称这些船只由中共海上自卫队人员操纵。菲律宾国防部长德尔芬·洛伦扎纳(Delfin Lorenzana)表示，“我们呼吁中共国停止这种入侵，并立即召回这些侵犯我们海洋权利和侵犯我们主权领土的船只。”然而中共拒绝了马尼拉方面的要求。中共对马尼拉要求其召回船只的命令做出回应，称这些渔船是由于恶劣的天气条件被迫停泊在该地区的。但中共关于天气的说辞与最初发现中共船只入侵时对天气状况的描述相矛盾。
 
-菲律宾军方已经在南中国海进行了空中和海上巡逻，海军少将埃德加德·阿雷瓦洛(Edgard Arevalo)表示，军方已将调查结果提交给其他政府机构，这些结果将被用作采取“不限于提出外交抗议的适当行动”的依据。
 
-作为对中共入侵的回应，菲律宾最高外交官、外交事务部长特奥多罗·洛钦(Teodoro Locsin)周三敦促菲律宾参议院接受一项菲律宾和美国之间的共同防御条约，让美国军队参与菲律宾与中共正在进行中的领土冲突。同时宣布菲律宾海军将在有争议的南中国海暗礁附近海域加强“海上主权巡逻”。
+据台湾中央社报道，美台25日签署“设立海巡工作小组了解备忘录”，中共接连出动20架次军机扰台，创台国防部公布统计以來最多架次的一次。美国国防部今天严正敦促北京，停止施压台湾，台海战争风险骤然升高。
 
-参考链接：
+美国在台协会（AIT）与驻美代表处于美东时间25日签署合作备忘录，设立海巡工作小组促进双方沟通、合作与资讯分享。这是美国总统拜登上任以來，美台签署的首份合作备忘录。
 
-[https://www.breitbart.com/asia/2021/03/26/philippine-navy-responds-beijing-invasion-south-china-sea-sovereignty-patrols/](https://www.breitbart.com/asia/2021/03/26/philippine-navy-responds-beijing-invasion-south-china-sea-sovereignty-patrols/)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/图片4-40.png)
+
+台北时间26日，共有20架次共机侵扰台湾西南防空识别区，包括2架运8反潜机、1架空警500预警机、4架轰6K、10架歼16、2架歼10、1架运8电子侦察机，其中轰6K、运8反潜机更罕见侵扰台湾东南方。
+
+这创下国防部去年9月17日起在官网“即时军事动态”专区发布共机动态以來，规模最大的一次，也是今年数量最多的一次。
+
+面对共机大规模扰台，美国国务院一位不具名发言人今天回复记者询问时表示，美国严正敦促北京停止在军事、外交和经济上施压台湾。
+
+自3月23日，苏伊士运河航道被搁浅货船堵塞后，经抢救4天后仍无力脱困。如果苏伊士运河无法尽快恢复航运，绕道南非好望角将会成为很多货船和军舰不得已的选择。
+
+通常，货船以12节的速度从苏伊士运河前往荷兰阿姆斯特丹约需12天，而绕道南非好望角则需41天，航程增加约1万公里。欧洲的航母军舰就无法快速应对亚洲的军事危机。
+
+塞断苏伊士运河，中共即派大规模军机扰台，再结合中共近期高调叫嚣要武力进犯台湾岛，台海危机骤然升高。美日澳印欧应尽快采取快速有效措施，震慑中共，令其不敢越台海半步，维护亚太地区的和平繁荣发展。
+
+新闻来源：
+
+[https://tw.news.yahoo.com/%E7%BE%8E%E5%8F%B0%E7%B0%BD%E5%82%99%E5%BF%98%E9%8C%84%E5%85%B1%E6%A9%9F%E9%A0%BB%E6%93%BE%E5%8F%B0-%E7%BE%8E%E5%9C%8B%E5%8B%99%E9%99%A2%E7%B1%B2%E5%8C%97%E4%BA%AC%E5%81%9C%E6%AD%A2%E6%96%BD%E5%A3%93-195417432.html](https://tw.news.yahoo.com/%E7%BE%8E%E5%8F%B0%E7%B0%BD%E5%82%99%E5%BF%98%E9%8C%84%E5%85%B1%E6%A9%9F%E9%A0%BB%E6%93%BE%E5%8F%B0-%E7%BE%8E%E5%9C%8B%E5%8B%99%E9%99%A2%E7%B1%B2%E5%8C%97%E4%BA%AC%E5%81%9C%E6%AD%A2%E6%96%BD%E5%A3%93-195417432.html)
+
+[https://www.163.com/dy/article/G63PHCN20512B07B.html](https://www.163.com/dy/article/G63PHCN20512B07B.html)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-g-fashion-2.jpg)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

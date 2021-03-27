@@ -1,77 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210327（图片新闻）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1025918/)
+## 国际社会对中共流氓行为亮拳
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1027279/)
 
-- 作者：2020喜马拉雅
-- 封面：透明的遮羞布
+新闻来源：新闻稿 | 作者：新闻稿 | 发布时间：2021年3月23日
+翻译/简评：乡间小路 | 校对：SilverSpurs7 | 审核：Beicy-数学老师 | Page：小六月
+
+[!\[\]()!\[\](https://spark.adobe.com/page/2wlUktmmbUtCy/images/9374dbaa-892d-4039-90ae-492f6683358a.jpg?asset_id=971d582e-5713-4943-be12-31a0042766b1&amp;img_etag=%223206baf93802268a1985e6708a26bd3e%22&amp;size=1024)](https://spark.adobe.com/page/2wlUktmmbUtCy/images/9374dbaa-892d-4039-90ae-492f6683358a.jpg?asset_id=971d582e-5713-4943-be12-31a0042766b1&amp;img_etag=%223206baf93802268a1985e6708a26bd3e%22&amp;size=1024)
+
+**简评：**
+
+**美国、加拿大、英国和欧盟对中共迫害维吾尔人进行联合制裁。美国众议院议长南希·佩洛西对此发表声明称，美国及其盟友在保护维吾尔人人权的立场上是一致的，并表示国会还将采取进一步的立法措施。在声明末尾，佩洛西表达了美国需要为发生在中共国的人权问题发声的必要性——如果美国顾虑同中共之间的商贸问题而保持沉默，美国将失去在世界其它地方为人权发声的道德公信力。**
+
+**世界是一艘大船，每个国家都是这艘船的一部分——有些掌舵引领文明方向，有些鼓帆提供前进的动力。但中共国在中共70年的专制统治下已逐渐发霉腐烂，如果世界对发生在中共治下的环境、生存等危机继续作壁上观，最终结果极有可能是整艘大船到处发霉腐烂。让人安慰的是，世界终于开始对中共这个流氓亮拳了。**
+
+**原文翻译：**
+
+## 佩洛西就国际社会对中共侵犯维吾尔族人权罪进行制裁发表声明
+
+旧金山——众议院议长南希·佩洛西针对美国、加拿大、英国和欧盟共同制裁北京当局对维吾尔族穆斯林的迫害活动——已被美国国会及国会中国委员会列为反人类罪——发表如下声明：
+
+“拜登政府协同实施对中共国的共同制裁，这是朝着追责中共对维吾尔族人的野蛮暴行这一方向迈出了坚定、响亮的一步。这些制裁极为清晰地表明，美国和国际社会在保护维吾尔族人权利和尊严免遭中共任意践踏方面是一致的。”
+
+“中共国对维吾尔族人的迫害——包括在劳动营关押100多万人、拷打、未经法庭宣判的杀害和更多其它手段——这些暴行挑战世界的良知，我们必须采取行动。这些制裁加强了美国国会在两党基础上为致力于向北京当局追责所采取的行动，其中包括去年通过的《维吾尔人权政策法案》。国会将在立法倡议上采取进一步的行动，包括吉姆·麦戈文（Jim McGovern）主席发起的《维吾尔族强迫劳动预防法案》，多伊奇（Deutch）主席发起的《维吾尔族人权保护法案》和国会议员韦克斯顿（Wexton）的《维吾尔族强迫劳动信息披露法案》。”
+
+“美国和我们的盟友一起将继续追责北京当局践踏人权的活动，这包括那些针对西藏人、香港人、新闻记者、人权律师、大陆活动人士的犯罪行为。如果美国顾虑商贸问题而不为发生在中国的人权问题发声，那么我们就失去了在世界其它任何地方为人权发声的道德公信力。”
+
+[原文链接](https://www.speaker.gov/newsroom/32321-2)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+编辑：【英国伦敦喜庄园编辑部】
 
-**西班牙2021年3月27日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0c39603a-afd0-4ef5-9894-f026f6410ea0.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/76e6d59c-6d58-49eb-84b4-cabc8702302e.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b95c6796-1566-418e-aee4-6ab28fe2c5b1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/795aa92a-5b41-43ae-8638-0d7204654f7c.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/37b222cb-3389-43cb-a285-bc96b44d573e.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e0ef861f-73bf-40a4-8a22-384e7b18afa1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/24374892-2a49-4d5e-86f0-0d52e0563cda.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d6087a49-43bd-4d7d-93ae-d053c39ad759.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ececab21-7ca6-443d-8ff1-6fadc4bf652f.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ea726b17-14b5-49e0-a665-85f0e58f4232.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/eeb53129-71f8-493b-9dd6-c17c1dd3caac.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3f640734-4079-4438-9356-8a5f1485d5a9.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/7d6c5e9e-b487-4fd7-9f68-82ecf530bd7d.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cd38bcb8-fc4b-409a-8da5-9f27259c1bec.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/9a7d6f12-d80d-4795-8e48-663c604c4a96.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/156ada6c-67af-4115-b9ff-6d6384524e78.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/59e765fd-02d2-4c48-92f1-dc6b1031d234.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4674eb3b-4377-4316-a9a8-856971f64e93.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/154b9837-6385-4e37-babf-32429a461346.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/c1de450b-5cc4-4eeb-a7d9-bd245f05b1dc.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/6a6381e6-fc8f-4ae8-b6c0-70c991de2bd6.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/edb09e70-905e-4986-8dc0-c02434f0c9ae.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/a651eaad-9f41-47ec-be7d-d28da6126df6.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/384218b1-9e8c-4549-9024-16a468038433.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0213fa91-e99a-499f-9e92-84c92f74cd81.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4cf00b33-96eb-4aaa-a7c6-3a4966c6ae2f.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/fee09b74-7976-4abc-b62c-ca08f2c0756a.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/c48322c1-53b5-4cd5-b222-21d7c6c073fd.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b2804332-3d10-4e3e-aaf8-8cb645bbf0a3.jpg)
-
-发稿：Ranting
-
-本文观点均来自于作者，与GNEWS无关
+[!\[\]()!\[\](https://spark.adobe.com/page/2wlUktmmbUtCy/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/2wlUktmmbUtCy/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
