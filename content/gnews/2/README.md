@@ -1,31 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 葡萄牙谴责中共扼杀澳门新闻自由
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1025807/)
+## 【热点播报】台海危机升温，苏伊士运河塞断后，共机出动20架次扰台
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1025873/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：纽约香草山健身部 Jack Li文阳
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-27_20-45-43.jpg)[portuguese-american-journal.com](http://portuguese-american-journal.com/travel-first-direct-flight-linking-portugal-to-china-inaugurated-portugal/)
-《香港自由新闻》(Hong Kong Free Press)3月27日报道，上周，葡萄牙政府就中共政府最近对澳门电视和广播进行有争议的审查，发表了一份措辞强硬的声明，呼吁中共遵守其对葡萄牙基本权利的国际条约义务。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
-这一指责是在《香港自由新闻》披露了澳门广播电视股份有限公司（TDM）执行委员会于3月11日向大约40名葡萄牙语和英语记者发布了新的审核规则，要求记者遵守中共官方规定，这引发了里斯本方面自1999年回归以来首次对北京提出尖锐批评。
 
-新规定指出，记者不仅会被审查并被禁止报道，还会被要求积极支持澳门和中共政府的宣传。规则要求记者“促进爱国主义,尊重和热爱祖国与澳门特别行政区”,拒绝“与中华人民共和国中央政府的政策或意见不一致的信息，支持澳门特别行政区的措施”和支持“爱国者统治香港特别行政区的基本原则”。该声明进一步指出:“澳门广播电视公司是中华人民共和国中央政府及澳门特别行政区的信息传播机构”。记者还被告知，如果他们违反了新的指导方针，他们将被解雇并无权获得赔偿。
 
-自回归以来，面对澳门越来越多的侵犯基本权利的事件，葡萄牙明显持默许态度。但葡萄牙外交部长奥古斯托·桑托斯·席尔瓦(Augusto Santos Silva)这次显然不愿再保持沉默。桑托斯·席尔瓦表示，葡萄牙政府“期待并依赖双方遵守《基本法》的所有条款。”
+据台湾中央社报道，美台25日签署“设立海巡工作小组了解备忘录”，中共接连出动20架次军机扰台，创台国防部公布统计以來最多架次的一次。美国国防部今天严正敦促北京，停止施压台湾，台海战争风险骤然升高。
 
-援引1987年的双边条约,“葡萄牙和中华人民共和国之间关于澳门的联合声明”, 桑托斯·席尔瓦强调葡萄牙希望中共尊重澳门的基本法,尊重当地的新闻自由。他说，“基本法非常清楚在确保新闻自由”。
+美国在台协会（AIT）与驻美代表处于美东时间25日签署合作备忘录，设立海巡工作小组促进双方沟通、合作与资讯分享。这是美国总统拜登上任以來，美台签署的首份合作备忘录。
 
-这是葡萄牙政府20年来首次呼吁中共在基本权利问题上遵守其国际义务。在政治语言上，桑托斯·席尔瓦的言论是强硬的，他不仅要求严格尊重新闻自由，而且要求尊重整个人权。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/图片4-40.png)
 
-澳门当局最近提出的立场，表示澳门没有义务遵守《公民权利和政治权利国际公约》(International Covenant on Civil and Political Rights)，将可能助长事态的发展。
+台北时间26日，共有20架次共机侵扰台湾西南防空识别区，包括2架运8反潜机、1架空警500预警机、4架轰6K、10架歼16、2架歼10、1架运8电子侦察机，其中轰6K、运8反潜机更罕见侵扰台湾东南方。
 
-中共政府对香港民主自由的暴力扼杀已经引起世界警醒。基于共同的价值观，民主国家无法再继续容忍中共恶行，先前温顺的葡萄牙政府也加入了国际社会批评中共的行列。
+这创下国防部去年9月17日起在官网“即时军事动态”专区发布共机动态以來，规模最大的一次，也是今年数量最多的一次。
 
-参考链接：
+面对共机大规模扰台，美国国务院一位不具名发言人今天回复记者询问时表示，美国严正敦促北京停止在军事、外交和经济上施压台湾。
 
-[https://hongkongfp.com/2021/03/27/macau-media-gag-forces-portugal-out-of-its-shell-to-issue-stinging-rebuke-to-china-over-its-obligations/](https://hongkongfp.com/2021/03/27/macau-media-gag-forces-portugal-out-of-its-shell-to-issue-stinging-rebuke-to-china-over-its-obligations/)
+自3月23日，苏伊士运河航道被搁浅货船堵塞后，经抢救4天后仍无力脱困。如果苏伊士运河无法尽快恢复航运，绕道南非好望角将会成为很多货船和军舰不得已的选择。
+
+通常，货船以12节的速度从苏伊士运河前往荷兰阿姆斯特丹约需12天，而绕道南非好望角则需41天，航程增加约1万公里。欧洲的航母军舰就无法快速应对亚洲的军事危机。
+
+塞断苏伊士运河，中共即派大规模军机扰台，再结合中共近期高调叫嚣要武力进犯台湾岛，台海危机骤然升高。美日澳印欧应尽快采取快速有效措施，震慑中共，令其不敢越台海半步，维护亚太地区的和平繁荣发展。
+
+新闻来源：
+
+[https://tw.news.yahoo.com/%E7%BE%8E%E5%8F%B0%E7%B0%BD%E5%82%99%E5%BF%98%E9%8C%84%E5%85%B1%E6%A9%9F%E9%A0%BB%E6%93%BE%E5%8F%B0-%E7%BE%8E%E5%9C%8B%E5%8B%99%E9%99%A2%E7%B1%B2%E5%8C%97%E4%BA%AC%E5%81%9C%E6%AD%A2%E6%96%BD%E5%A3%93-195417432.html](https://tw.news.yahoo.com/%E7%BE%8E%E5%8F%B0%E7%B0%BD%E5%82%99%E5%BF%98%E9%8C%84%E5%85%B1%E6%A9%9F%E9%A0%BB%E6%93%BE%E5%8F%B0-%E7%BE%8E%E5%9C%8B%E5%8B%99%E9%99%A2%E7%B1%B2%E5%8C%97%E4%BA%AC%E5%81%9C%E6%AD%A2%E6%96%BD%E5%A3%93-195417432.html)
+
+[https://www.163.com/dy/article/G63PHCN20512B07B.html](https://www.163.com/dy/article/G63PHCN20512B07B.html)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-g-fashion-2.jpg)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0
