@@ -1,31 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 巴西每日因中共病毒死亡近4000人
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1025564/)
+## 美前联合国大使海利指责拜登对中共软弱
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1025580/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传   水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/H-24.jpg)dennismichaellynch.com
+期待美国要员对3.25拜登首场新闻发布会涉及中共国问题【1】的反应，昨天前联合国大使尼基·海利（Nikki Haley）对拜登发出了抨击，指责拜登对中共国表示出的软弱。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+《美国新闻网》及时报道了海利大使的有关新闻，题目“前大使海利就中共国言论抨击拜登”。【2】
 
-**西班牙2021年3月27日电/西喜社——**据美联社3月27日报道，巴西占全球每天中共病毒死亡人数的四分之一，比任何其他国家都多。
+文章说，前联合国大使尼基·海利在拜登第一次记者招待会上就中共国问题发表评论后，对他进行了抨击。
 
-专家，市长和州长们越来越认识到，停工已经无法避免。
+海利周四在推特上说，拜登认为没有必要批评中共国想成为世界上最强大的国家，她说，这是中共国正在“积极实施种族灭绝的”的时候。
 
-专家称，全国7天平均2400人的死亡人数将在几周内达到3000人。每天的死亡人数很快就会达到4000人，上周五有3650人死亡。
+海利补充说：“他软弱的领导能力将对美国的未来产生灾难性的影响。”
 
-一种更具传染性的变种正在巴西各地肆虐。周四，每日新增病例首次突破10万。
+拜登说：“中共国有一个总体目标，我不为这个目标批评他们。但他们的总目标是成为世界领先的国家，世界上最富有的国家，世界上最强大的国家。”
 
-巴西国营科技机构Fiocruz周二呼吁封锁14天以减少传播。
+海利已经呼吁拜登抵制2022年北京奥运会，理由是中共国对外搞威胁和对内施暴政。（原文完）
 
-巴西已经有1240万例确诊病例，超过30.7万人确诊死亡，仅次于美国。
+海利因1.06国会山暴乱指责过川普总统，一段时间不受川普总统的待见，但对中共的认知算是比较清醒，笔者发文报道过海利大使敦促拜登抵制北京奥运的文章（“前美驻联合国大使称拜登应该抵制北京冬奥会”【3】），作出了这样的明示，“今天的中共国比1936年的纳粹德国更加危险”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/6b884511-7d2e-4499-8ba0-9f26d9d17dcd.jpg)
+期待海利女士对中共病毒尽早有清醒的认知，并发出呼吁。更多、更多的美国要员、民众对邪共有清醒的认知！
 
-**新闻来源：[美联社](https://apnews.com/article/pandemics-europe-coronavirus-pandemic-coronavirus-vaccine-asia-pacific-d5af57a8788ef2399c8a8b2430e17c50)**
+参考链接：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募-5.jpeg)
+【1】https://gnews.org/zh-hans/1019514/
+
+【2】[https://www.oann.com/former-ambassador-haley-blasts-biden-over-china-comments/](https://www.oann.com/former-ambassador-haley-blasts-biden-over-china-comments/)
+
+【3】https://gnews.org/zh-hans/934567/
 
 0
