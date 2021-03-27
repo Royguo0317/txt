@@ -1,26 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【每日快讯】26/03/2021:获得享有的G币请义工战友尽快联系核对义工工时；郭先生预计全球恶性通货膨胀，美国金融断崖式崩塌；
-` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/1024903/)
+## 《文贵说》| 图片连载（四十四）
+` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/998035/)
 
-**制作:Cantonese工作室**
-**播報：【海媚】 資料整理：【Elaine】【郁金香】【極寒將至】  海報製作：【米線】【 Kayla】**
-**視頻製作：【文德】發布:【星星】**
-摘要:
+![]()![](https://gnews.org/wp-content/uploads/2021/03/02-9.jpg)
+**一人一票，决定中国人的命运。权力是大家的，财富是个人的。**
 
-1.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1-349.jpg)
-2.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2-126.jpg)
-3.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-140.jpg)
-4.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4-77.jpg)
-5.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/5-67.jpg)
-6.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/6-52.jpg)
-7.
-![]()![](https://gnews.org/wp-content/uploads/2021/03/7-41.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/0-19.jpg)
-0
+**—— 郭文贵先生 2020年2月1日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/01-11.jpg)
+**香港的战友们我可以告诉大家你们一定会赢，一定会赢！我可以为这句话承担一切后果，一定会赢。赢回22年前属于你们的法治和自由。**
+
+**—— 郭文贵先生 2019年6月13日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/215.jpg)
+**有一个政权，有一个政党，不希望老百姓好，不希望老百姓活着，希望你死！这就叫共产党！**
+
+**—— 郭文贵先生 2020年2月1日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/04-10.jpg)
+**如果你真的希望中国没有共产党，真正的拥有法治、拥有信仰的自由、亲人能团聚、让中华民族强大起来的话，那么你做你力所能及的事。**
+
+**—— 郭文贵先生 2020年2月1日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/03-1-10.jpg)
+**假口罩、假疫苗…..这些假东西就是共产党向世界输送的对中国人、对世界来讲，把中国人斩尽杀绝的一个恶棋。**
+
+** —— 郭文贵先生 2020年3月31日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/01-1-8.jpg)
+**共产党给大家洗脑所造成的病毒，贫民、弱民、苦民、穷民的这种毒，远远超过冠状病毒！**
+
+**—— 郭文贵先生 2020年2月1日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/02-2-7.jpg)
+**喜马拉雅就是要让中国人有法治，真正的法治，独立的法治，独立于行政之外的法治。**
+
+**—— 郭文贵先生 2019年4月6日**
+
+
+
+- [***更多精美海报请点击G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4)
+
+
+
+
++1

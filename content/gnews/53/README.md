@@ -1,27 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯:导弹试验将朝鲜推向拜登外交议程的首位
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1024637/)
+## 【每日快讯】26/03/2021:获得享有的G币请义工战友尽快联系核对义工工时；郭先生预计全球恶性通货膨胀，美国金融断崖式崩塌；
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/1024903/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/image001-132.jpg)
-华盛顿（路透社）报导朝鲜上周五声称已发射了一种新型战术短程弹道导弹，突显了该国的军事进展，并将其推向了美国新总统拜登的外交政策议程的首位。
+**制作:Cantonese工作室**
+**播報：【海媚】 資料整理：【Elaine】【郁金香】【極寒將至】  海報製作：【米線】【 Kayla】**
+**視頻製作：【文德】發布:【星星】**
+摘要:
 
-美国谴责了星期四的发射，这是拜登自一月份上任以来举行首次几个小时的白宫新闻发布会。当被问及他是否同意朝鲜是他面临的最重要的外交政策问题时，拜登回答：“是的。”拜登说，尽管进行了导弹试射，美国仍对朝鲜保持开放外交的态度，但警告说“如果平壤升级问题，我们将会做出回应。”不管朝鲜的意图如何，其结果都是提高了重要性，并将其提升到美国政府的议程上。
-
-每当美国和西方对中共强硬时，中共都会把它养的狗(朝鲜)放出来转移目标，但中共病毒对全世界的经济影响和导致数百万人的死亡是无论如何都改变不了的事实，全球联合灭共已是必然的选择。
-
-
-
-[原文链接](https://www.reuters.com/article/us-northkorea-missiles-idUSKBN2BI02R)
-
-【文章仅限作者个人观点】
-
-本文作者：wuxin
-
-审核校对：鲁邦五世
-
-上传排版：玫瑰新闻组
-
-+2
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-349.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2-126.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-140.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4-77.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/5-67.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/6-52.jpg)
+7.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/7-41.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/0-19.jpg)
+0
