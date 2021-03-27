@@ -1,27 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：前美国疾控中心主任称中共病毒来自中共实验室
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1024696/)
+## 【每日快讯】26/03/2021:获得享有的G币请义工战友尽快联系核对义工工时；郭先生预计全球恶性通货膨胀，美国金融断崖式崩塌；
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/1024903/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/image001-133.jpg)
-CNN新闻网3月26日报道：川普政府时期，美国疾病控制和预防中心前主任罗伯特·雷德菲尔德博士接受采访时说，他认为中共病毒大流行的源头是来自中共国的实验室。他说：“如果我要猜的话，这种病毒是在9月、10月在武汉的某个地方开始传播的，病毒起源于中共国的一个实验室，然后“逃逸”，不一定是故意的。这是我自己的感受。只有意见。我现在可以发表自己的意见了。”
+**制作:Cantonese工作室**
+**播報：【海媚】 資料整理：【Elaine】【郁金香】【極寒將至】  海報製作：【米線】【 Kayla】**
+**視頻製作：【文德】發布:【星星】**
+摘要:
 
-评论：
-
-左派新闻网CNN曾撰文批评闫博士的中共病毒实验室来源理论，现在CNN居然采访川普政府时期的CDC总负责人，并且敢报道说中共病毒就来源于中共国实验室，这是巨大的突破。可见，拜登政府上台后，美国两党已经就追溯中共病毒来源真相达成共识，必须向中共追责。爆料革命路德社爆料称，美国及北约军情部门早已经认定中共病毒就是中共发起的生物武器战争，现在左右两派媒体都争相报道中共病毒来源问题，这就是在为接下来进一步的军事行动和政府行动做舆论铺垫。可见，中共死期将近。
-
-
-
-[原文链接](https://www.cnn.com/world/live-news/coronavirus-pandemic-vaccine-updates-03-26-21/index.html)
-
-【文章仅限作者个人观点】
-
-本文作者：【孺子牛】
-
-审核校对：鲁邦五世
-
-上传排版：玫瑰新闻组
-
-+2
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-349.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2-126.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-140.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4-77.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/5-67.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/6-52.jpg)
+7.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/7-41.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/0-19.jpg)
+0
