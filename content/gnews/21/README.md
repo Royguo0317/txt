@@ -1,51 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 爱新疆，我却不敢爱这带血的新疆棉
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1027141/)
+## 全球灭共之势已成，习近平作最后告别之旅
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1027171/)
 
-作者：文呈|校对：西川stanly |审核：Beicy-数学老师 |Page：小雨
+作者：宁缺 |校对：仙女儿-文善 |审核：Beicy-数学老师 |Page：小雨
 
-[!\[\]()!\[\](https://spark.adobe.com/page/mfBI0lDctTOwe/images/f408dafa-3a9f-45c4-9d1a-66c8f74c0b9a.jpg?asset_id=3ab90d4f-bd95-420f-96ea-3c0ad00f529e&amp;img_etag=%229e772e63027df6e1737cdcf2a06eb12e%22&amp;size=2560)](https://spark.adobe.com/page/mfBI0lDctTOwe/images/f408dafa-3a9f-45c4-9d1a-66c8f74c0b9a.jpg?asset_id=3ab90d4f-bd95-420f-96ea-3c0ad00f529e&amp;img_etag=%229e772e63027df6e1737cdcf2a06eb12e%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/B1AQnqE8YtBaa/images/daef4c79-7f84-4c68-9f16-829ecc3c9a14.jpg?asset_id=c832f45b-8daf-4f66-902a-cc9bb3f55760&amp;img_etag=%223032ca773ff1bade32d514cc97147c50%22&amp;size=1024)](https://spark.adobe.com/page/B1AQnqE8YtBaa/images/daef4c79-7f84-4c68-9f16-829ecc3c9a14.jpg?asset_id=c832f45b-8daf-4f66-902a-cc9bb3f55760&amp;img_etag=%223032ca773ff1bade32d514cc97147c50%22&amp;size=1024)
 
-H&M有关新疆人权的通告在半年后终于被中共发现。 H&M和新疆棉的事件随着中共大外宣的操作，我的朋友圈也开始纷纷站队。部分”好友”气愤地发出最新动态，截图中BCI (Better Cotton Initiative, 良好棉花发展协会)会员企业名单展示了他的态度，然而左上角VPN的图标让人看到也是哭笑不得。 究竟他聪明的大脑里在想着什么？
+近日，H&M集团去年在网站发布的一份声明引发了关注。这份声明写道：H&M集团对来自民间社会组织的报告和媒体的报道深表关注，其中包括对新疆维吾尔自治区少数民族强迫劳动和宗教歧视的指控。声明中，H&M集团表示，我们不与位于新疆的任何服装制造工厂合作，也不会从该地区采购产品/原材料。
 
-[![](https://spark.adobe.com/page/mfBI0lDctTOwe/images/5bfa1ee1-51ea-44e8-85e7-56976b36d507?asset_id=ccaa2ea8-5f89-4415-9820-a265c3aa6af1&amp;img_etag=%22f15066da5dca72abde1bbee947c6fbe1%22&amp;size=1024)](https://spark.adobe.com/page/mfBI0lDctTOwe/images/5bfa1ee1-51ea-44e8-85e7-56976b36d507?asset_id=ccaa2ea8-5f89-4415-9820-a265c3aa6af1&amp;img_etag=%22f15066da5dca72abde1bbee947c6fbe1%22&amp;size=1024)
+中共主动捅开H&M的陈年旧事，还造势煽风点火，一时间引发轩然大波。让中共感到意外的是，耐克、阿迪达斯、优衣库、CK等国际知名品牌陆续跟进，纷纷指责中共对新疆少数民族的种族灭绝暴行。目前，官媒正在疯狂引导国内舆论，煽动小粉红声势浩大地抵制这些“洋货”。与上述品牌有商业合作的代言明星被迫纷纷现身表态站队，与相关品牌划清界限。仔细观察分析此次事件的整个过程，我们可以发现很多不同寻常的细节问题。
 
-我相信各位读者面对这样的处境并不陌生。在某企业被报道有辱华事件后，网友”自发的”撕毁，烧毁用自己的钱买来的商品，只因他们听到中共的一面之词，可事情真的是这样吗？为什么BCI 拒绝认证新疆棉花，为什么H&M 、NIKE 、和Adidas 等企业要作出声明，难道他们不想赚中国人的钱吗？
+[!\[\]()!\[\](https://spark.adobe.com/page/B1AQnqE8YtBaa/images/556a9eb2-0d84-4b62-aa40-97ba0c76e309.jpg?asset_id=f2a7805e-111d-4300-8408-88572e259636&amp;img_etag=%222ed18b39cd4ff84f51f58d8e0db69897%22&amp;size=2560)](https://spark.adobe.com/page/B1AQnqE8YtBaa/images/556a9eb2-0d84-4b62-aa40-97ba0c76e309.jpg?asset_id=f2a7805e-111d-4300-8408-88572e259636&amp;img_etag=%222ed18b39cd4ff84f51f58d8e0db69897%22&amp;size=1024)BCI（Better Cotton Initiative，良好棉花发展协会）部分会员公司
 
-[!\[\]()!\[\](https://spark.adobe.com/page/mfBI0lDctTOwe/images/7091a1a9-b115-439a-9a61-7fdb4b803dba.png?asset_id=73ad7722-54d4-4f39-a8b9-335a64b2d9d1&amp;img_etag=%22adfec7e6e4667de5635523934857d505%22&amp;size=1024)](https://spark.adobe.com/page/mfBI0lDctTOwe/images/7091a1a9-b115-439a-9a61-7fdb4b803dba.png?asset_id=73ad7722-54d4-4f39-a8b9-335a64b2d9d1&amp;img_etag=%22adfec7e6e4667de5635523934857d505%22&amp;size=1024)2016年6月1日中共国外长王毅在访问加拿大期间出席新闻发布会时，对一名加拿大记者有关中共国人权问题的傲慢回应。
+首先，中共作为一个把面子问题放在第一位的独裁政府招惹一件早已平息的事情显得十分突兀。在过去，当西方发生“反华”事件时，中共通常的做法都是不惜利用各种“蓝、金、黄”手段大而化小、小而化了，降低“反华”声音的调门。现在情况已经发生了变化，北京花这么大力气招惹一个巨大的马蜂窝，并且通过明星刷屏热搜的方式搞得全社会各个阶层，人尽皆知，似乎刻意要将事态扩大化，烘托营造中西激烈对立的氛围。目前，民族主义仍在大陆持续发酵，中共下一步的动作直接关系到自身存亡选择，需要密切观察。
 
-新疆究竟发生了什么？实话实说，笔者作为一个中国人，九千六百万平方公里，我还未曾涉足新疆，不了解新疆的情况。但根据王毅公公2016年6月回答记者提问的内容，最了解新疆情况的是新疆人自己，他们有发言权。我看到从新疆出逃的当地人，在世界各地走上街头，为自己和同胞的自由而大声疾呼，他们说出自己看到感受到的真实的新疆。我看到世界各大媒体，对他们的事件进行报道，多国政府对在新疆发生的反人类罪行，宗族灭绝事件的认定。 中共却矢口否认，自赏耳光。一个简单的真相，怎么在中共的口中，却成了“薛定谔的猫”。
+其次，跨国企业作为追逐利益的商业实体，对政治问题相当敏感，会主动避免介入所在国的政治议题。一旦意外卷入国际政治矛盾，一般会尽快主动道歉，低调平息事端。商业组织都深谙和气生财的道理，这也是过去中共对涉事企业采取施压、要挟的低劣手段而屡试不爽的根本原因。这次却有了明显的不同，去年，对新疆人权问题的指责完全是由这些跨国企业和组织主动挑起，所以更加意义非凡。
 
-遥记2012反日游行之后，该买日货的还是照样买。日本在疫情伊始送给中共国的口罩，中共也是照单全收。 还不到八年，中共你怎么就软骨头了呢？
+再次，过去西方企业偶尔不慎触碰到中共老虎敏感的政治屁股，基本是因为个别高管或者代言明星一时兴奋失言所导致。这些案例呈现个别、零散、无意识的行动特征，最后也以赔礼道歉收场。这次H&M和各品牌服装企业先后都是以整个实体的名义强硬表态中共新疆暴行。用中共的话说就是，“有组织、有预谋的大规模反华行为”。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/mfBI0lDctTOwe/images/394a1cd0-d2d3-4258-925a-efec05b3486f.png?asset_id=a3f13223-0b81-4ae1-8348-9b39c9a02f06&amp;img_etag=%220d3ba560b1a305f27c8ee24c4d23554a%22&amp;size=1024)](https://spark.adobe.com/page/mfBI0lDctTOwe/images/394a1cd0-d2d3-4258-925a-efec05b3486f.png?asset_id=a3f13223-0b81-4ae1-8348-9b39c9a02f06&amp;img_etag=%220d3ba560b1a305f27c8ee24c4d23554a%22&amp;size=1024)
+最后，这些经济实体的行为不仅代表企业本身，更表明幕后老板的真实态度。耐克、阿迪达斯、CK，这些国际大品牌公司的真正股东是欧洲财团、政治家族、美国华尔街资本。过去有些制衣企业本身还雇佣过中共压迫的新疆奴隶劳工，与中共建立长期的合作伙伴关系，并非一朝一夕的点滴雨露交往。这次集体行动实质是国际金融财团势力抛弃中共，并与之切割的政治宣言。
 
-抗日战争都比这久。
+结合最近的国际政治形势，也可以发现一些显著的大变化。中共病毒来自武汉实验室的真实信息开始在全世界主流舆论和媒体扩散；美国拜登政府明显提高了打压中共的调门和措施力度，并加大了对中共在美上市企业的退场力度；中欧已经开始陷入大规模互相制裁的强硬外交对抗。同时，中欧贸易协定细节讨论停滞，面临破局，中共拉拢欧洲对抗美国的策略失败；之前面对美中较量，一直深藏功名的日本也有议员站出来公开指责中共新疆暴行。从全球几大权利核心态度的变动，可以得出结论，全球强国联合灭共之势已成。
 
-有的网友说，中国人都是鱼的记忆，只有七秒钟。虽是玩笑话，不禁让人想问究竟问题出在哪里了？笔者自有记忆以来便无数次的被教导，小孩儿要听家长的话。我们的家长告诉我们，在学校要听老师的话，在公司要听老板的话。老师告诉我们要听党的话，老板告诉我们要听钱的话。笔者想问题就出在了听话。
+反观此时的中共党魁习近平，在内外举世皆敌，洪水滔天的危机时刻，却跑到曾经主政过的福建地区视察工作。在各路媒体的新闻报道中，习充满了对过去福建工作的回忆。这不是一次简单的日常工作巡查之旅，这是习近平政治生命终结的告别之旅。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/mfBI0lDctTOwe/images/4d433d54-c71f-4080-863b-5b7cd789529b.jpg?asset_id=920ddfe2-65c0-46ef-8d92-47c2d44943ed&amp;img_etag=%2247ef8bfea24063465c9335e677514dd0%22&amp;size=1024)](https://spark.adobe.com/page/mfBI0lDctTOwe/images/4d433d54-c71f-4080-863b-5b7cd789529b.jpg?asset_id=920ddfe2-65c0-46ef-8d92-47c2d44943ed&amp;img_etag=%2247ef8bfea24063465c9335e677514dd0%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/B1AQnqE8YtBaa/images/e63cc69d-8480-476c-b17b-3951b3267b6a.jpg?asset_id=9648824b-b2a4-419b-88a6-d9fa714072ca&amp;img_etag=%22ae2aa7c4475f31d5701a18fd4eec8f8a%22&amp;size=1024)](https://spark.adobe.com/page/B1AQnqE8YtBaa/images/e63cc69d-8480-476c-b17b-3951b3267b6a.jpg?asset_id=9648824b-b2a4-419b-88a6-d9fa714072ca&amp;img_etag=%22ae2aa7c4475f31d5701a18fd4eec8f8a%22&amp;size=1024)
 
-在中共国，从小的教育便一直教育人服从，背诵成了在中共国接受教育的核心思想，背课文，背题型，背答案。学生被要求以成绩分高低，以结果论英雄，却没人在意思考的过程是多么的重要。 人们被要求一口吃成胖子，走路只走最快的那条捷径。 就像那被激素催熟的鸡仔，长得够壮却没什么营养。
+2月20日，中共纪念华国锋同志诞辰100周年座谈会高调在京举行。在3月20日围炉夜话节目的直播中，笔者通过整理分析中共历史整个权力变动的过程，可以推断出此次纪念华国锋传递的三点政治信号：一、习准备找人接班；二、习通过追忆过去接班权斗的惨烈，表达避免斗争，顺利交接的意愿；三、韩正出现纪念会表明习江已经妥协，江派尊重并认可一尊未来的组织人事安排。
 
-就这样一晃几年过去，老百姓在各种”专家”的指导意见下生活，似乎他们才是每个人生活的主角。人们逐渐放弃思考，放弃自己尝试的勇气，放弃了使用人类最引以为傲的大脑。没有人需要思考，也不需要记忆，因为有“专家”，有共产党告诉大家你们需要怎么想。 终于，一个原本健康的孩子变成了一条只有七秒记忆的鱼，一条996只为了温饱的鱼。
+终结共产主义制度，是中共国内各方都认可的政治妥协结果。同时，不排除习在党内选择戈尔巴乔夫式人物来结束中共的统治。综合所有的情况看，中共在国内大概率很快会平稳走向灭亡，是一个喜丧。
 
-但我们是人，而不是鱼。
-
-笔者认为人之所以为人便是拥有思考的能力，拥有辨别是非的能力，拥有属于每个人自己的Critical thinking的权利和义务。无论中共如何“辟谣”，真相永远只有一个。 在这个谎言遍地，洗脑教育，媒体控制的中共国，探寻真相并不容易。中共畏惧老百姓获得独立思考的能力，因为当每一个人都问出为什么的时候，中共七十年以来部下的种种谎言便会显露无疑。 也唯有独立思考才是那盏刺破黑暗的明灯，才能在中共暴毙之际，不成为这段邪恶历史的陪葬品！
-
-*文章仅代表个人观点*
+**文章仅代表个人观点**
 
 编辑：【英国伦敦喜庄园编辑部】
-
 [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-
 [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-
 [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/mfBI0lDctTOwe/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/mfBI0lDctTOwe/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/B1AQnqE8YtBaa/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/B1AQnqE8YtBaa/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0
