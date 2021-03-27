@@ -1,29 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳大利亚要将中共告上WTO
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1025667/)
+## 葡萄牙谴责中共扼杀澳门新闻自由
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1025807/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-27_19-41-12.jpg)[intheblack.com](https://intheblack.com/articles/2015/05/01/is-australia-close-to-china-really)
-卫报报道，澳大利亚贸易部长当地时间周六威胁称，将就中共提高澳大利亚葡萄酒进口关税至多5年的“不合理”决定，向世界贸易组织(WTO)提出申诉。
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-27_20-45-43.jpg)[portuguese-american-journal.com](http://portuguese-american-journal.com/travel-first-direct-flight-linking-portugal-to-china-inaugurated-portugal/)
+《香港自由新闻》(Hong Kong Free Press)3月27日报道，上周，葡萄牙政府就中共政府最近对澳门电视和广播进行有争议的审查，发表了一份措辞强硬的声明，呼吁中共遵守其对葡萄牙基本权利的国际条约义务。
 
-中共商务部宣布，从周日起，将对从澳大利亚进口的葡萄酒征收116.2%至218.4%的关税。这是中共与堪培拉之间的最新一次较量。澳大利亚贸易部长丹·特汉(Dan Tehan)表示，关税意味着澳大利亚葡萄酒在中共市场“基本上不可能”具有竞争力。澳大利亚总理斯科特·莫里森 (Scott Morrison)指出，这是中共对澳洲蓄意报复的行为。
+这一指责是在《香港自由新闻》披露了澳门广播电视股份有限公司（TDM）执行委员会于3月11日向大约40名葡萄牙语和英语记者发布了新的审核规则，要求记者遵守中共官方规定，这引发了里斯本方面自1999年回归以来首次对北京提出尖锐批评。
 
-特汉在回答记者问是提到，“中共政府做出的这个决定非常令人失望，完全没有道理。”“我们将考虑下一步，这些下一步将包括考虑把这个问题提交给世界贸易组织。”
+新规定指出，记者不仅会被审查并被禁止报道，还会被要求积极支持澳门和中共政府的宣传。规则要求记者“促进爱国主义,尊重和热爱祖国与澳门特别行政区”,拒绝“与中华人民共和国中央政府的政策或意见不一致的信息，支持澳门特别行政区的措施”和支持“爱国者统治香港特别行政区的基本原则”。该声明进一步指出:“澳门广播电视公司是中华人民共和国中央政府及澳门特别行政区的信息传播机构”。记者还被告知，如果他们违反了新的指导方针，他们将被解雇并无权获得赔偿。
 
-根据澳大利亚政府的数据，2019年澳大利亚对中共国的葡萄酒出口达到创纪录的13亿澳元，使其成为该产品价值最大的市场。上周五，中共商务部表示，在一项调查发现，来自澳大利亚的“进口葡萄酒的倾销和补贴”影响了中共国市场后，它决定征收反倾销税。
+自回归以来，面对澳门越来越多的侵犯基本权利的事件，葡萄牙明显持默许态度。但葡萄牙外交部长奥古斯托·桑托斯·席尔瓦(Augusto Santos Silva)这次显然不愿再保持沉默。桑托斯·席尔瓦表示，葡萄牙政府“期待并依赖双方遵守《基本法》的所有条款。”
 
-去年末，澳大利亚还呼吁世贸组织调查中共对大麦进口征收的关税，此前澳大利亚对中共国巨大市场实施了一系列经济制裁，或导致澳大利亚产品中断。两国的外交关系已经达到了自中共天安门广场血腥镇压亲民主人士运动以来的最低水平。
+援引1987年的双边条约,“葡萄牙和中华人民共和国之间关于澳门的联合声明”, 桑托斯·席尔瓦强调葡萄牙希望中共尊重澳门的基本法,尊重当地的新闻自由。他说，“基本法非常清楚在确保新闻自由”。
 
-许多人认为，中共制裁是对澳大利亚阻止中共在澳洲敏感领域投资、并公开呼吁调查中共病毒来源的报复。
+这是葡萄牙政府20年来首次呼吁中共在基本权利问题上遵守其国际义务。在政治语言上，桑托斯·席尔瓦的言论是强硬的，他不仅要求严格尊重新闻自由，而且要求尊重整个人权。
 
-澳大利亚总理斯科特·莫里森(Scott Morrison)在悉尼发表讲话，指责北京方面利用关税作为“报复”，并公开表示，澳大利亚与英国首相鲍里斯·约翰逊(Boris Johnson)站在一起。此前，中共对英国和欧盟(EU)的几名人士实施了制裁，原因是他们声援新疆维吾尔族穆斯林少数民族。澳大利亚和新西兰欢迎就维吾尔族虐待问题对中共实施制裁，但澳新暂未因种族灭绝对中共采取行动。
+澳门当局最近提出的立场，表示澳门没有义务遵守《公民权利和政治权利国际公约》(International Covenant on Civil and Political Rights)，将可能助长事态的发展。
+
+中共政府对香港民主自由的暴力扼杀已经引起世界警醒。基于共同的价值观，民主国家无法再继续容忍中共恶行，先前温顺的葡萄牙政府也加入了国际社会批评中共的行列。
 
 参考链接：
 
-[https://www.theguardian.com/australia-news/2021/mar/27/australia-threatens-to-take-china-to-wto-and-backs-boris-johnsons-stance-on-uighur-abuses](https://www.theguardian.com/australia-news/2021/mar/27/australia-threatens-to-take-china-to-wto-and-backs-boris-johnsons-stance-on-uighur-abuses)
+[https://hongkongfp.com/2021/03/27/macau-media-gag-forces-portugal-out-of-its-shell-to-issue-stinging-rebuke-to-china-over-its-obligations/](https://hongkongfp.com/2021/03/27/macau-media-gag-forces-portugal-out-of-its-shell-to-issue-stinging-rebuke-to-china-over-its-obligations/)
 
 0

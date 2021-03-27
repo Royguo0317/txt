@@ -1,49 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】台海危机升温，苏伊士运河塞断后，共机出动20架次扰台
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1025873/)
+## 慧眼看世界20210327（图片新闻）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1025918/)
 
-作者：纽约香草山健身部 Jack Li文阳
-
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
-
+- 作者：2020喜马拉雅
+- 封面：透明的遮羞布
 
 
-据台湾中央社报道，美台25日签署“设立海巡工作小组了解备忘录”，中共接连出动20架次军机扰台，创台国防部公布统计以來最多架次的一次。美国国防部今天严正敦促北京，停止施压台湾，台海战争风险骤然升高。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-美国在台协会（AIT）与驻美代表处于美东时间25日签署合作备忘录，设立海巡工作小组促进双方沟通、合作与资讯分享。这是美国总统拜登上任以來，美台签署的首份合作备忘录。
+**西班牙2021年3月27日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/图片4-40.png)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/0c39603a-afd0-4ef5-9894-f026f6410ea0.jpg)
 
-台北时间26日，共有20架次共机侵扰台湾西南防空识别区，包括2架运8反潜机、1架空警500预警机、4架轰6K、10架歼16、2架歼10、1架运8电子侦察机，其中轰6K、运8反潜机更罕见侵扰台湾东南方。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/76e6d59c-6d58-49eb-84b4-cabc8702302e.jpg)
 
-这创下国防部去年9月17日起在官网“即时军事动态”专区发布共机动态以來，规模最大的一次，也是今年数量最多的一次。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/b95c6796-1566-418e-aee4-6ab28fe2c5b1.jpg)
 
-面对共机大规模扰台，美国国务院一位不具名发言人今天回复记者询问时表示，美国严正敦促北京停止在军事、外交和经济上施压台湾。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/795aa92a-5b41-43ae-8638-0d7204654f7c.jpg)
 
-自3月23日，苏伊士运河航道被搁浅货船堵塞后，经抢救4天后仍无力脱困。如果苏伊士运河无法尽快恢复航运，绕道南非好望角将会成为很多货船和军舰不得已的选择。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/37b222cb-3389-43cb-a285-bc96b44d573e.jpg)
 
-通常，货船以12节的速度从苏伊士运河前往荷兰阿姆斯特丹约需12天，而绕道南非好望角则需41天，航程增加约1万公里。欧洲的航母军舰就无法快速应对亚洲的军事危机。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/e0ef861f-73bf-40a4-8a22-384e7b18afa1.jpg)
 
-塞断苏伊士运河，中共即派大规模军机扰台，再结合中共近期高调叫嚣要武力进犯台湾岛，台海危机骤然升高。美日澳印欧应尽快采取快速有效措施，震慑中共，令其不敢越台海半步，维护亚太地区的和平繁荣发展。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/24374892-2a49-4d5e-86f0-0d52e0563cda.jpg)
 
-新闻来源：
+![]()![](https://gnews.org/wp-content/uploads/2021/03/d6087a49-43bd-4d7d-93ae-d053c39ad759.jpg)
 
-[https://tw.news.yahoo.com/%E7%BE%8E%E5%8F%B0%E7%B0%BD%E5%82%99%E5%BF%98%E9%8C%84%E5%85%B1%E6%A9%9F%E9%A0%BB%E6%93%BE%E5%8F%B0-%E7%BE%8E%E5%9C%8B%E5%8B%99%E9%99%A2%E7%B1%B2%E5%8C%97%E4%BA%AC%E5%81%9C%E6%AD%A2%E6%96%BD%E5%A3%93-195417432.html](https://tw.news.yahoo.com/%E7%BE%8E%E5%8F%B0%E7%B0%BD%E5%82%99%E5%BF%98%E9%8C%84%E5%85%B1%E6%A9%9F%E9%A0%BB%E6%93%BE%E5%8F%B0-%E7%BE%8E%E5%9C%8B%E5%8B%99%E9%99%A2%E7%B1%B2%E5%8C%97%E4%BA%AC%E5%81%9C%E6%AD%A2%E6%96%BD%E5%A3%93-195417432.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ececab21-7ca6-443d-8ff1-6fadc4bf652f.jpg)
 
-[https://www.163.com/dy/article/G63PHCN20512B07B.html](https://www.163.com/dy/article/G63PHCN20512B07B.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ea726b17-14b5-49e0-a665-85f0e58f4232.jpg)
 
-校对/发稿：飞虹
+![]()![](https://gnews.org/wp-content/uploads/2021/03/eeb53129-71f8-493b-9dd6-c17c1dd3caac.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-g-fashion-2.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3f640734-4079-4438-9356-8a5f1485d5a9.jpg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/7d6c5e9e-b487-4fd7-9f68-82ecf530bd7d.jpg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cd38bcb8-fc4b-409a-8da5-9f27259c1bec.jpg)
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/9a7d6f12-d80d-4795-8e48-663c604c4a96.jpg)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/156ada6c-67af-4115-b9ff-6d6384524e78.jpg)
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/59e765fd-02d2-4c48-92f1-dc6b1031d234.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4674eb3b-4377-4316-a9a8-856971f64e93.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/154b9837-6385-4e37-babf-32429a461346.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/c1de450b-5cc4-4eeb-a7d9-bd245f05b1dc.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/6a6381e6-fc8f-4ae8-b6c0-70c991de2bd6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/edb09e70-905e-4986-8dc0-c02434f0c9ae.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/a651eaad-9f41-47ec-be7d-d28da6126df6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/384218b1-9e8c-4549-9024-16a468038433.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/0213fa91-e99a-499f-9e92-84c92f74cd81.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4cf00b33-96eb-4aaa-a7c6-3a4966c6ae2f.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/fee09b74-7976-4abc-b62c-ca08f2c0756a.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/c48322c1-53b5-4cd5-b222-21d7c6c073fd.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/b2804332-3d10-4e3e-aaf8-8cb645bbf0a3.jpg)
+
+发稿：Ranting
+
+本文观点均来自于作者，与GNEWS无关
 
 0

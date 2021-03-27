@@ -1,48 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生首爆料：今年一月中美之战在台湾几乎一触即发
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1025910/)
+## 加拿大主流媒体：人权迫害和强制劳动引发的制裁和棉花战争
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1025878/)
 
-在2021年3月15日的盖特视频中，郭先生说1月20日之前国务卿蓬佩奥并没有打算离开国务院；1月13日，中美之间在台湾的大战几乎一触即发，美国许多军事行动也已准备就绪，但是，台湾却临阵退缩，川普总统遂在最后一刻取消了行动，并且给拜登写了一封长长的信，主动移交权力。否则，中共现在已经被推翻！
+加拿大多伦多枫叶农场 硫酸羟氯喹64
+![]()![](https://gnews.org/wp-content/uploads/2021/03/saveuighur.org_.jpg)*图片来源：saveuighur.org*
+加拿大魁北克主要媒体《魁北克日报》（LE JOURNAL DE QUEBEC）于3月26日在其头版主页刊登文章，就最近加拿大，美国和欧盟等国联合对中共政权因其犯下的种族灭绝和反人类罪而采取的各项制裁，和中共政权因此正在采取的反制措施以及所造成的巨大舆论争议风暴进行了小心翼翼地罕见报道。
 
-**郭先生首爆料：今年一月中美之战在台湾几乎一触即发**
+不难发现，在目前全世界特别是西方民主列国逐渐形成的联合剿匪灭共，这一不可逆转的国际政治趋势和基本民意洪流面前，任何个人，媒体，机构，政党都无法回避而置身于其外。相信随着全球弑共局面的全面形成和展开，随着各国民意的进一步觉醒和推动，越来越多的主流媒体将不得不加入到报道由新中国联邦主导的以毒灭共，以共灭共和全球灭共的事实真相的行列中来。
 
-**The US and China Almost Went to A War in Taiwan Before Jan 20**
+**全文编译如下：**
 
-请大家想一想，包括到了一月初，美国政府公布，联合国克拉夫特要访问美国内阁成员，要访问台湾。没多少人讲清楚这事。七哥得搂住，七哥得搂住。现在很多人都说，都已经报道了，美国的各种政治网站，美国的CNN，美国的布劳迪克都已经报道出来了，大家也都知道了，包括Breitbart也都出来了，我可以说说啊。第二个大家不要忘了，记住我说的话，到一月，就是1.20前，1月16号我做梦啊，我梦见和蓬佩奥联系，蓬佩奥还没有任何说离开国务院的准备。大家知道为什么？ 我告诉大家。
+（中共国）试图针对其在新疆问题上所遭受到的国际制裁进行回击。为此，它们不仅矢口否认了西方各国一致对其在维吾尔穆斯林地区长期施行“强迫劳动”的各项指控，而且还在目前众多著名外国品牌即将撤离中共国内市场的局势动荡之际，开始对英国的相关个人和实体采取了报复性的惩罚措施。
 
-Do you recall in early January, the U.S. government announced that its Ambassador to the United Nations, Kelly Craft, was going to visit Taiwan? A Cabinet member of the U.S. government was going to visit Taiwan, which few people were able to decipher thoroughly. Although I received the information, I could not tell you in advance. Now, many people told me, now that several U.S. newspapers and political websites have already reported it, including CNN and Politico, and people have already been aware of what happened, and Breitbart’s report is out too, so I may talk about what I know now. Also, please don’t forget what I told you around January 20. It was on January 16 that I had a dream. I dreamed that I contacted Pompeo, but he was not ready to leave the State Department at all. Do you know why? Let me tell you.
+长期以来，（中共政权）以其新疆（中国西北部）频频遭受维吾尔伊斯兰极端分裂主义分子针对平民的恐怖袭击为由，对该地区实施了严厉的警察监视和极端控制。
+根据美国和澳大利亚人权机构发布的相关调查研究表明，至少有超过100万维吾尔族人被拘留在当地的“集中营”内，其中大部分人都遭受到残酷的“强迫劳动”待遇，特别是在棉田中的强制工作。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/enduyghurforcedlabour.org_.jpg)*图片来源：enduyghurforcedlabour.org*
+而中共政府却认为在这些外界关于新疆地区人权恶况的报道中充斥着大量“虚假信息”，并言之凿凿地确保那些所谓的“集中营”其实就是“职业培训中心”，旨在为维吾尔族人提供正常就业机会，并以此举使他们远离极端恐怖主义。
 
-1月13号那天几乎是中美开战。克拉夫特的飞机在天上，C40B已经在天上，都已经走了，准备去台湾了。日本基地的军队已经全部准备好了，中间所有的海上行线，海里、天上，就是美国外交官出行的护卫，安全保护已经全开始了。而且在日本，在南海的舰队、航空母舰都已经做好了准备，去访问台湾，那肯定军机护航嘛，美国军机护航，那所有的就近的航空母舰，这是美国的一个基本装备，就像我回家一样，外面外保、中保、内保、家里保卫，它一定是通知到位。你看着没啥，它一定是外中内嘛，它一定是这样的，是吧？还有变装的。他们一样，海、空中、亚洲，经过欧洲，这几个区域的军队，它都在防护中嘛，这是一场重大的军事行动，准军事行动，国家行动。
+基于对中共政权所作所为的回应（种族灭绝和反人类罪），欧盟，英国和加拿大于周一对新疆的四名现任和前任相关涉事中共领导人实施了统一制裁。
 
-On January 13, the U.S. and China almost went to a war. The C40B aircraft that Kelly Craft was boarded had already taken off and was ready to fly to Taiwan on that day. The Japanese military bases were fully prepared. All relevant sea routes, air routes, escort, and security measures for U.S. diplomats’ traveling had been activated. The U.S. fleet in Japan and the South China Sea, and the U.S. aircraft carriers were ready to visit Taiwan. These were the U.S. military aircrafts to conduct the escort mission. All the nearby aircraft carriers had to be in position. This is a routine procedure. It is like all the security measures taken when I go home. The perimeter security, the middle circle security, the inner circle security, and inside security must be notified and be ready. You may not notice anything special, but all the security bodyguards are ready. In addition, there are also some bodyguards in plain clothes. All their military operations are conducted in a similar pattern. In Asia and throughout Europe, the navy and air forces were standing by for defense. It was a major military, paramilitary, and international operation.
+必须要指出的是，自2020年以来美国政府就已经对上述4名被制裁中共官员中的2位实施了惩治，并且现在又将另外两名官员也一起加入了打击名单。
 
-这时候共产党，这个真的是打电话了，就给你通报，不是跟你商量，明确告诉你，来自于中共中央，军委习大神主席，明确告诉你：“只要是你敢军机进台，我的军机就进台；你航空母舰靠台，我就靠台；你开火，我就开火，台湾开火，我就开火。”
+而中共表面上也不甘示弱，随即报复性制裁了欧盟的10位高级官员，其中包括欧洲议会的五名当选议员，他们都被中共当局指控为，以对中共国不实和歧视的调研结果而刻意“造谣抹黑”。
 
-Then the CCP called, saying, “I am just calling to inform you, not to discuss with you.” What followed were the loud and clear words from their Central Military Commission Chairman, God Xi (Xi Jinping): “If any U.S. military aircraft dares to approach Taiwan, our military aircrafts would do it too. If the U.S. aircraft carriers dare to dock in Taiwan, we would do the same. If either the U.S. or Taiwanese opens fire, the PLA would immediately counterattack.”
+为此，中共政府在本周五将其制裁范围扩大到了英国，其中包括5位英国议会的高级议员和4个企业实体。
 
-大家不知道，最后是什么？美国并没有退，美国人说：“那就干吧，去吧。”大家都知道，蓬佩奥还有川普总统要的就是这一刻，那怎么办啊？是台湾退了，台湾说：“我求求啊！求求啊！美大神，习大神，你俩都别打了，你看我一个孤家寡人的，我多害怕啊，我台湾经不起折腾啊，我求求别来了！”就这，最后是台湾左求爹，右求娘，求了半天：“你俩别打了，赶快走，你俩我谁也惹不了，再不行我就钻地道去了。”然后美国知道了，中共是真正做好要打仗的准备，是美军最后报给了川普总统，还有国务院。说只要过去，肯定打，100%。最后一分钟谁取消的？川普总统取消的，川普总统取消的，蓬佩奥是绝对不取消的，干吧。没有人知道。
+中共国的“黑名单”中包括了英国保守党人权委员会（首相鲍里斯·约翰逊的政党）以及前领导人伊恩·邓肯·史密斯等。
 
-Do you know what happened in the end? The U.S. didn’t back down. They said, “Fine, then let’s do it.” Secretary Pompeo and President Trump were waiting for this moment. What happened then? It turned out that Taiwan backed down, and they begged, “Please, American Lord and God Xi, please stop fighting. Can’t you see how scared I am? Taiwan can’t afford a war, and I beg you not to come.” That was it. Taiwan was begging for mercy from both sides, “Please don’t fight or come. We can’t afford to make either of you unhappy. If you insist on coming, then I will have to drill an underground tunnel and hide.” At that moment, the U.S. realized that the CCP was indeed prepared for a war. In the end, the U.S. military reported to President Trump and the State Department that if the U.S. military went to Taiwan, a hundred percent, there would be a war. Who called it off in the last minute? It was President Trump. Pompeo would never call it off because he was ready for a battle. Few people know this.
+面对中共的反击，英国首相鲍里斯·约翰逊表示，那些受到中共政权制裁的英国人在揭露和谴责它们“严重侵犯人权”方面发挥了“积极重要作用”，并向这些被中共制裁的人士表达了他的敬意和支持。与此同时，英国外交部长多米尼克·拉布（Dominic Raab）也立即照会了中共国驻英国大使，并“以非常明确的方式向后者表达了英国政府对其坚定的制裁立场”。
 
-我梦见的，我做梦梦见的，我完全是胡扯的。还有道听途说的，我梦见的，就最后那两天，蓬佩奥没有做出离开国务院的准备，是川普总统写了一封热情洋溢的信，给了拜登：“我最后做了什么决定，把权力给你……”很长，可不是那几句话，什么 “Joe, 你知道，我赢了，I’m winner。” 不是这样，这是假的，未来你们会看到，长长的信，等于是川普总统让路给了,他最后只要是决定，一签，“啪”结束了。
+该外交部长强调，中共国的激烈反应不会阻止英国政府“继续密切关注和试图改善穆斯林维吾尔族人民和新疆其他少数民族的险困境地”。
 
-You may think that what I am telling you was all in my dreams, all nonsense [and it is up to you to believe it or not]. Just two days before [January 20] – hearsay or just a dream I had – Pompeo still hadn’t prepared to leave the State Department. Finally, it was President Trump who wrote a passionate, long letter to Biden, “I finally made a decision… I am transferring the power to you…” It was inaccurate that he wrote, “Joe, you know I won. I am the winner.” Maybe someday, this letter will be released. It was President Trump who took the initiative to transfer the power to Biden. If he had signed the order related to Taiwan, the CCP would have been taken down instantly.
+他还为此警告说，如果中共当局仍然“拒绝”允许联合国人权事务高级专员米歇尔·巴切莱特进入新疆实地调查的话，那么对该国各方面的国际压力将继续增加。
+而在中共的对外新闻发布会上，当被记者问及国际社会联合一致对其采取的最新制裁措施时，其外交部发言人华春莹则高调指责西方同盟各国就是所有敌对行动的策源地。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://www.gtv.org/getter/604f6cbd527b920e2d83087e](https://www.gtv.org/getter/604f6cbd527b920e2d83087e) (0:38-5:09)
-鸣谢：
-[1] 感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/978690/](https://gnews.org/zh-hans/978690/)
-[2] 感谢 Mike Li、Antsee-GTV、Liberte提供英文翻译文本于 [https://gnews.org/991193/](https://gnews.org/991193/)
+该发言人为此强硬表示：“鉴于此，我方唯有采取（以牙还牙）这一让西方世界能够秒懂和难忘的方式来回敬他们。”
+
+随着对中共国制裁的广度和深度的不断加大，以致于目前像H＆M，耐克和阿迪达斯等国际知名品牌都无法置身于事外。
+
+在有关对中共国非法“强迫劳动”的调查研究结果公开发表之后，瑞典的H＆M，美国的耐克，德国的阿迪达斯，还有日本的优衣库等数家全球知名服装及相关产品公司，于去年就对各自政府承诺将会抵制来自新疆，由残酷“强迫劳动”方式生产的棉花及相关原材料。
+
+据全球贸易统计数据显示，新疆地区的棉花产量占世界总产量的近五分之一，是众多世界级服装巨头生产原料的最大供应地。
+
+这些公司在本周共同发表了抵制新疆产棉花的声明之后，就立即在中共国的各大社交网络平台和微博上引发了轩然大波，掀起了各界激烈争议的狂澜。
+
+H＆M是第一家采取撤退行动的公司，本周三，它的产品已经从中共国主要的在线销售网站中下架。但是，该公司在中共国各地的零售商店仍然继续营业。
+
+极富戏剧性的是，本周四，随着多位在中共国知名的演员和歌手公开宣布他们将停止与耐克，阿迪达斯，优衣库，匡威，甚至是卡尔文·克莱因（Calvin Klein）的合作，并不再作为这些公司的产品形象代言人之后，这场备受世界关注的角逐再度进一步升级。
+
+有迹象表明中共高层领导人介入了此次舆论风暴，并由中共的附属权力组织中共青年团幕后负责，在社交平台和微博上组织发动了针对西方盟国以及这些国际知名品牌公司的敌对反击行动。
+
+目前，生活在中共国新疆地区的维吾尔族人主要是穆斯林教徒，他们大都讲突厥语，其人口数量占新疆2500万人的一半以下。（全文完）
+
+正是：
+危墙预塌众士推 恶共将崩万卒捶
+困魔犹斗技尽穷 可悲粉红陪葬随
+
+[原文链接](https://www.journaldequebec.com/2021/03/26/ouighours-londres-condamne-les-sanctions-chinoises-contre-des-elus-britanniques)
 
 * * *
 
-整理校对 & 新闻撰写：【7PawBear】校对：【Isaiah4031】【BruhM】字幕：【JennyL】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+编辑 发稿 云起时
 
-+1
+0
