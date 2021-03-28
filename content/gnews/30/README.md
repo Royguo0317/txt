@@ -1,78 +1,54 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共一直致力于渗透美国的大学
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1027246/)
+## 【热点播报】英国最高法院法官预计 管控措施将持续10年之久
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1027339/)
 
-新闻来源：Campusreform《校园改革》| 作者：Logan•Washburn| 发布时间：2021年3月26日
-翻译/简评：万能青年| 校对：SilverSpurs7| 审核：万人往| Page：小六月
-
-[!\[\]()!\[\](https://spark.adobe.com/page/288smaQIpoyWy/images/a65c2eb5-93c0-44fc-8933-c12555017242.jpg?asset_id=b0c1162e-6698-4c0d-8de1-964fd761dced&amp;img_etag=%22c7dd5dda89357077348c39f5fcd54db7%22&amp;size=1024)](https://spark.adobe.com/page/288smaQIpoyWy/images/a65c2eb5-93c0-44fc-8933-c12555017242.jpg?asset_id=b0c1162e-6698-4c0d-8de1-964fd761dced&amp;img_etag=%22c7dd5dda89357077348c39f5fcd54db7%22&amp;size=1024)
-
-**简评：**
-
-**由前谷歌主席埃里克·施密特领导的美国人工智能安全委员会的最新报告指出，与中共国关联的企业一直都在美国大学里运作，收集信息与研究成果。美国大学急需采取措施保护研究成果不被中共国窃取。**
-
-**共产党从成立以来一直利用邪恶流氓手段做恶，对内以假治国、以黑治国、以警治国，奴役百姓，扭曲人们的观念；对外以“蓝金黄”渗透各国、各领域、各阶层。如果放任中共继续作恶，人类文明将遭受史无前例的毁灭，法治、自由、公平、正义被假、丑、恶取而代之。**
-
-**华大基因渗透美国校园只是中共窃取技术的冰山一角，现在能在主流媒体发酵，说明美国已经意识到中共的“蓝金黄”手段及危害，期待更多的实锤砸向中共。**
-
-**原文翻译：**
-
-## 由前谷歌主席领导的国家安全委员会发出警告：中国共产党一直致力于渗透到我们的大学
-
-由前谷歌主席埃里克•施密特担任主席的一个委员会的最新报告指出，美国大学急需采取措施保护研究成果不被中共国窃取。
-
-该报告建议政府加强对学术研究的监督。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/288smaQIpoyWy/images/e3938e16-f76a-40b0-a38c-7222381ff6c5.png?asset_id=0afb1709-86b6-42a4-bb0d-a401b1f7403e&amp;img_etag=%226e6a175f029667dcd04217cbd10f1967%22&amp;size=1024)](https://spark.adobe.com/page/288smaQIpoyWy/images/e3938e16-f76a-40b0-a38c-7222381ff6c5.png?asset_id=0afb1709-86b6-42a4-bb0d-a401b1f7403e&amp;img_etag=%226e6a175f029667dcd04217cbd10f1967%22&amp;size=1024)
-
-据国家人工智能安全委员会出台的最新报告，美国大学应该马上采取有效措施应对中共国对研发的盗窃行为。
-
-由谷歌前主席埃里克·施密特领导的该组织在报告中说：所有与中共国政府有紧密关系的企业一直都在美国大学里运作，收集信息与研究成果，然后发给中共。
-
-其中一个项目叫做华大基因，前身为北京基因研究所。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/288smaQIpoyWy/images/4d6175ac-7b1f-4938-9cca-364ddef87a86.jpg?asset_id=a648517c-6b53-4f00-b49e-46dc99e78e67&amp;img_etag=%2202900ef2ee5c0295c9727de914fdd5f8%22&amp;size=2560)](https://spark.adobe.com/page/288smaQIpoyWy/images/4d6175ac-7b1f-4938-9cca-364ddef87a86.jpg?asset_id=a648517c-6b53-4f00-b49e-46dc99e78e67&amp;img_etag=%2202900ef2ee5c0295c9727de914fdd5f8%22&amp;size=1024)
-
-该组织的网站声称：“自1999年成立以来，（华大基因）业务遍及全球100多个国家和地区。”该网站还说到，“华大基因已经与数千家不同的机构建立了合作伙伴关系……”
-
-报告称，华大基因“与多所美国大学有研究联系，包括华盛顿大学和华盛顿州立大学。”然而，华盛顿大学医学院发言人雷拉·格雷（Leila Gray）对《校园改革》说：“华盛顿大学医学院与华大基因没有任何关系。”
-
-哈佛大学的网站上有一个关于华大基因的页面。当被问到是否与华大基因保持何种关系（如果有的话）时，哈佛大学并没有对《校园改革》做出回应。
-
-美国国家人工智能安全委员会对华大基因与中共国政府的密切关系表示担忧。华大基因运营着中国基因库。正如报告中所说，华大基因可以为中共国政府提供“获取世界各地关键人物敏感个人信息的途径”。
-
-哈佛大学化学系负责人于2020年因涉嫌在与中共国政府的关系上向官员撒谎而被起诉。
-
-这所常春藤大学还因从中共国等国家“收受了数亿美元的外国礼物和合同”而接受调查。
-
-该委员会担心，通过与美国大学的这种合作，“华大基因可能有意或无意地成为中共国政府基因数据库的全球收集机制，为中共国提供更多的原始数据和人类基因组样本的多样性。”
-
-美国国家人工智能安全委员会建议国务院“严密监控华大基因的活动，如果华大基因被用作中共国政府的大规模DNA采集设备，它可能会面临额外的美国监管行动。”
-
-美国国家人工智能安全委员会负责战略、通讯与部署的负责人塔拉·瑞格勒（Tara Rigler）告诉《校园改革》，美国大学应该严肃对待这种威胁。
-
-“我们面临的现实是，外国对手正在利用我们开放的研究环境，加速他们的军事和情报系统的发展。特别是中共国，在网络入侵、人才招聘项目等方面进行了多方面的努力，并操纵研究伙伴关系，利用美国政府资助的对人工智能等优先新兴技术的研究，使其成为优势。”瑞格勒说。
-
-正如《校园改革》之前报道的那样，自2020年初以来，多名中共国学生、研究人员和美国大学的教授因涉嫌与中共国政府和情报机构有联系而被捕。比如，加州大学洛杉矶分校（UCLA）的一名研究人员因涉嫌在美国联邦调查局（FBI）调查他将美国敏感数据转移给中共国国防实体时试图处理硬盘而被捕。
-
-为了打击这种窃取敏感信息的行为，美国国家人工智能安全委员会提出了几项建议。
-
-瑞格勒对《校园改革》说：“明确地说，委员会建议国会成立一个政府资助的研发安全卓越中心，要求每个研究资助机构进行合规操作，并规范各机构的拨款流程和数据库，以方便审计。”
-
-她解释说：“美国还应该通过实施一种特殊的签证审查程序，防止有可疑背景的研究人员进入美国。”
-
-[原文链接](https://campusreform.org/article?id=17067)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+作者：纽约香草山农场 四季
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/288smaQIpoyWy/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/288smaQIpoyWy/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+据《[零对冲](https://www.zerohedge.com/covid-19/uk-supreme-court-judge-expects-people-will-be-forced-wear-masks-stay-home-ten-years)》 Zero Hedge 3月27日的报道，英国前最高法院法官萨默普特勋爵（Lord Sumption）警告说，冠状病毒大流行带来的“社会控制”可能会被政府保留长达10年之久。人们将被迫戴上口罩，在家待上十年。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image-398.png)图源网络
+
+萨默普特法官评论说：“指望政府现在反悔，在政治上是不现实的。”他对政府的“极权主义”式的封锁政策提出了强烈批评。 这位法官将这种封锁与第二次世界大战后持续了九年的配给制作了比较，并补充说，这次“我认为可能会更久”。他认为，在1951年的大选中，工党失去了多数席位，完全是因为多了五年的社会控制，而人们对社会控制产生了厌倦。这种情况迟早会在这个国家发生。
+
+萨默普特法官的警告是针对于英格兰公共卫生官员提出的言论——只要其他国家没有为每个人接种疫苗，限制将继续存在，且这个过程可能需要很多年。
+
+尽管英国政府承诺，限制措施将在6月份结束。但昨天，政府已经将冠状病毒紧急法律延长至10月——卫生部长马特-汉考克（Matt Hancock）拒绝透露此后该法律将保持多久。
+
+萨默普特法官还认为，各国政府正在政治上利用该病毒。他还谈到政府对反封锁抗议者的严厉打击，他说：“人们应该有权表达他们的不同意见。对锁定政策持怀疑态度的科学家‘遭受了极其不愉快的个人虐待运动’。”
+
+文章作者警告称，在允许政府开了可以随心所欲的将整个社会置于事实上的软禁之下的先例之后，就会看到这种政策会以不同的理由不断的重复。而这些理由与冠状病毒毫无关系。
+
+封锁就是全球主义者所制定的管控地球的社会控制吧。如果各国的民意都显示对中共病毒大流行规则的强烈支持的话，人类的生活将被彻底改变，这将是人类的悲哀。只有新中国联邦和爆料革命一直在不遗余力的向全世界揭示冠状病毒的真相。只有消灭中共，才能终结肆虐全球一年多的中共病毒，还人类自由与和平。
+
+参考阅读：
+
+[UK Supreme Court Judge Expects People Will Be Forced To Wear Masks, Stay Home For Ten Years](https://www.zerohedge.com/covid-19/uk-supreme-court-judge-expects-people-will-be-forced-wear-masks-stay-home-ten-years)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
 
 
 

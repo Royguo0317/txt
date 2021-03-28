@@ -1,77 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210327（图片新闻）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1025918/)
+## 拜登邀请普京和习近平参加气候谈判
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1027325/)
 
-- 作者：2020喜马拉雅
-- 封面：透明的遮羞布
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-27_23-19-39.jpg)[international.sindonews.com](https://international.sindonews.com/read/377816/42/biden-undang-putin-dan-xi-jinping-ke-ktt-iklim-virtual-1616803436)
+03月26日，白宫新闻处的报道，美国总统拜登已邀请俄罗斯总统普京和中共国国家主席习大神参加气候谈判。会议计划于4月22日至23日举行。预计受全球气候变化影响最大的40多个国家的领导人将出席。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+这是拜登政府的第一次重大气候谈判。峰会的时间将与当局即将宣布的美国经济现代化减排计划相配合。会议的一个主要目标将是努力降低地球上平均气温的增长。此外，还将动员政府和私营企业为零碳排放筹集资金。
 
-**西班牙2021年3月27日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
+美联社写道，拜登有意邀请参加会谈的不仅仅是他的国际伙伴。“考虑到这个问题对世界其他地区是多么重要，我们应该准备好在高级别上进行谈判。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0c39603a-afd0-4ef5-9894-f026f6410ea0.jpg)
+美国前川普总统（Donald Trump）对人类活动引起的全球气候变化导致更频繁、更严重的自然灾害的说法表示怀疑。川普作为总统的第一个决定之一就是退出2015年巴黎气候协议。拜登曾把回归气候议程作为其竞选议程的重要项目之一。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/76e6d59c-6d58-49eb-84b4-cabc8702302e.jpg)
+在1月21日就职后的几个小时内，拜登就撤销了川普的几项行政命令，包括签署了一份让美国重返《巴黎气候协定》的文件。一个月后，它开始生效。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b95c6796-1566-418e-aee4-6ab28fe2c5b1.jpg)
+联合国秘书长安东尼奥·古特雷斯赞同白宫的决定。“我热烈欢迎拜登总统重新加入《巴黎气候变化协定》的举动。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/795aa92a-5b41-43ae-8638-0d7204654f7c.jpg)
+据悉，今年3月在美国安克雷奇市举行会谈后，中美双方同意成立联合工作组，应对气候变化。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/37b222cb-3389-43cb-a285-bc96b44d573e.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e0ef861f-73bf-40a4-8a22-384e7b18afa1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/24374892-2a49-4d5e-86f0-0d52e0563cda.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d6087a49-43bd-4d7d-93ae-d053c39ad759.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ececab21-7ca6-443d-8ff1-6fadc4bf652f.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/ea726b17-14b5-49e0-a665-85f0e58f4232.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/eeb53129-71f8-493b-9dd6-c17c1dd3caac.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3f640734-4079-4438-9356-8a5f1485d5a9.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/7d6c5e9e-b487-4fd7-9f68-82ecf530bd7d.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cd38bcb8-fc4b-409a-8da5-9f27259c1bec.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/9a7d6f12-d80d-4795-8e48-663c604c4a96.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/156ada6c-67af-4115-b9ff-6d6384524e78.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/59e765fd-02d2-4c48-92f1-dc6b1031d234.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4674eb3b-4377-4316-a9a8-856971f64e93.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/154b9837-6385-4e37-babf-32429a461346.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/c1de450b-5cc4-4eeb-a7d9-bd245f05b1dc.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/6a6381e6-fc8f-4ae8-b6c0-70c991de2bd6.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/edb09e70-905e-4986-8dc0-c02434f0c9ae.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/a651eaad-9f41-47ec-be7d-d28da6126df6.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/384218b1-9e8c-4549-9024-16a468038433.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0213fa91-e99a-499f-9e92-84c92f74cd81.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4cf00b33-96eb-4aaa-a7c6-3a4966c6ae2f.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/fee09b74-7976-4abc-b62c-ca08f2c0756a.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/c48322c1-53b5-4cd5-b222-21d7c6c073fd.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/b2804332-3d10-4e3e-aaf8-8cb645bbf0a3.jpg)
-
-发稿：Ranting
-
-本文观点均来自于作者，与GNEWS无关
+参考链接：https://www.rbc.ru/politics/26/03/2021/605e2e2a9a7947d073575902
 
 0

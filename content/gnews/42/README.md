@@ -1,41 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【战友心声】小蚂蚁过海与大浪淘沙
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1025837/)
+## 爱新疆，我却不敢爱这带血的新疆棉
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1027141/)
 
-作者：纽约香草山福音部：文一
+作者：文呈|校对：西川stanly |审核：Beicy-数学老师 |Page：小雨
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/mfBI0lDctTOwe/images/f408dafa-3a9f-45c4-9d1a-66c8f74c0b9a.jpg?asset_id=3ab90d4f-bd95-420f-96ea-3c0ad00f529e&amp;img_etag=%229e772e63027df6e1737cdcf2a06eb12e%22&amp;size=2560)](https://spark.adobe.com/page/mfBI0lDctTOwe/images/f408dafa-3a9f-45c4-9d1a-66c8f74c0b9a.jpg?asset_id=3ab90d4f-bd95-420f-96ea-3c0ad00f529e&amp;img_etag=%229e772e63027df6e1737cdcf2a06eb12e%22&amp;size=1024)
 
+H&M有关新疆人权的通告在半年后终于被中共发现。 H&M和新疆棉的事件随着中共大外宣的操作，我的朋友圈也开始纷纷站队。部分”好友”气愤地发出最新动态，截图中BCI (Better Cotton Initiative, 良好棉花发展协会)会员企业名单展示了他的态度，然而左上角VPN的图标让人看到也是哭笑不得。 究竟他聪明的大脑里在想着什么？
 
+[![](https://spark.adobe.com/page/mfBI0lDctTOwe/images/5bfa1ee1-51ea-44e8-85e7-56976b36d507?asset_id=ccaa2ea8-5f89-4415-9820-a265c3aa6af1&amp;img_etag=%22f15066da5dca72abde1bbee947c6fbe1%22&amp;size=1024)](https://spark.adobe.com/page/mfBI0lDctTOwe/images/5bfa1ee1-51ea-44e8-85e7-56976b36d507?asset_id=ccaa2ea8-5f89-4415-9820-a265c3aa6af1&amp;img_etag=%22f15066da5dca72abde1bbee947c6fbe1%22&amp;size=1024)
 
-今天在小组聚会时听到姊妹分享她以前在Sarah VOG那边做义工的经历，和失去以前战友的伤心感受，不但她们以前的工作付之东流，更有对于爆料革命的忠诚被Sarah所欺骗所玩弄的后悔，还有许多国内的战友都消失无音了，这是我们这些跟随爆料革命的小蚂蚁们，万万没有想到的。听了她的分享以后我也非常难过，再看到周围这么多战友都有类似的痛苦经历，觉得有必要说几句话安慰并鼓励以前在VOG和凤凰农场被蒙骗的战友们。
+我相信各位读者面对这样的处境并不陌生。在某企业被报道有辱华事件后，网友”自发的”撕毁，烧毁用自己的钱买来的商品，只因他们听到中共的一面之词，可事情真的是这样吗？为什么BCI 拒绝认证新疆棉花，为什么H&M 、NIKE 、和Adidas 等企业要作出声明，难道他们不想赚中国人的钱吗？
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image1-31.jpg)
+[!\[\]()!\[\](https://spark.adobe.com/page/mfBI0lDctTOwe/images/7091a1a9-b115-439a-9a61-7fdb4b803dba.png?asset_id=73ad7722-54d4-4f39-a8b9-335a64b2d9d1&amp;img_etag=%22adfec7e6e4667de5635523934857d505%22&amp;size=1024)](https://spark.adobe.com/page/mfBI0lDctTOwe/images/7091a1a9-b115-439a-9a61-7fdb4b803dba.png?asset_id=73ad7722-54d4-4f39-a8b9-335a64b2d9d1&amp;img_etag=%22adfec7e6e4667de5635523934857d505%22&amp;size=1024)2016年6月1日中共国外长王毅在访问加拿大期间出席新闻发布会时，对一名加拿大记者有关中共国人权问题的傲慢回应。
 
-各位战友弟兄姐妹，我们正处于一个大重启与大复兴互相博弈的世代，同时，中华民族也正经历浴火重生与大洗礼互相平衡的时代。由郭文贵先生所开启的爆料革命，非常像圣经里的摩西，正带领被压制的以色列人走出埃及，经历红海，走向迦南美地。我们的迦南美地就是新中国联邦能在中华大地上成为现实。
+新疆究竟发生了什么？实话实说，笔者作为一个中国人，九千六百万平方公里，我还未曾涉足新疆，不了解新疆的情况。但根据王毅公公2016年6月回答记者提问的内容，最了解新疆情况的是新疆人自己，他们有发言权。我看到从新疆出逃的当地人，在世界各地走上街头，为自己和同胞的自由而大声疾呼，他们说出自己看到感受到的真实的新疆。我看到世界各大媒体，对他们的事件进行报道，多国政府对在新疆发生的反人类罪行，宗族灭绝事件的认定。 中共却矢口否认，自赏耳光。一个简单的真相，怎么在中共的口中，却成了“薛定谔的猫”。
 
-但是在CCP彻底垮台之前，我们都在见证过红海的奇迹，两边都有汹涌的洪涛，左边是CCP在国内乃至世界各地的无底线凶残，右边是左派大重启在文明社会各领域之内的极端操控，我们这些在郭先生带领下的小蚂蚁们，肩头上正承担着无法推卸的历史性责任。“爆料革命没你不行”，这不但是一个口号，也是我们承受各种压力、逼迫和挑战的动力，因为我们是一群尊从上天旨意的，凭着信心和信仰来扇动动各自的翅膀，来引发能够埋葬CCP力量的人，这个奇迹正在实现，正像我们所看到的，在全世界范围内大灭共环境正在成型。
+遥记2012反日游行之后，该买日货的还是照样买。日本在疫情伊始送给中共国的口罩，中共也是照单全收。 还不到八年，中共你怎么就软骨头了呢？
 
-所以，我们是做不掉队的小蚂蚁呢？还是做被海浪推来摇去的一粒沙呢？弟兄姐妹各位战友，我们不要先努力做什么惊天动地的大事，而是首先做一个不掉队的小蚂蚁，
+[!\[\]()!\[\](https://spark.adobe.com/page/mfBI0lDctTOwe/images/394a1cd0-d2d3-4258-925a-efec05b3486f.png?asset_id=a3f13223-0b81-4ae1-8348-9b39c9a02f06&amp;img_etag=%220d3ba560b1a305f27c8ee24c4d23554a%22&amp;size=1024)](https://spark.adobe.com/page/mfBI0lDctTOwe/images/394a1cd0-d2d3-4258-925a-efec05b3486f.png?asset_id=a3f13223-0b81-4ae1-8348-9b39c9a02f06&amp;img_etag=%220d3ba560b1a305f27c8ee24c4d23554a%22&amp;size=1024)
 
-摩西带领近百万以色列人走干地过红海，没有损失一个，但是法老的兵马追入红海，却没有一个返回。我们的爆料革命也是这样，如果我们是有生命的小蚂蚁，我们就要紧紧跟随，参加被联邦农场委员会所认证的农场的各项活动，联入各个互相服事互相关怀的小组，建造新联邦各种有战斗力的团队。爆料革命也一定会“不放弃不丢弃”每一位战友。但是，如果我们仅仅是一粒没有生命的海滩沙粒，就无法避免在被世俗的洪流冲击中而消失。这也是为什么假信徒、假牧师、假战友一个个被爆料的洪流所弃绝，四年来在文贵先生周围的众多人物的起落沉浮，都是大浪淘沙的例证。
+抗日战争都比这久。
 
-各位战友，各位弟兄姐妹，你周围有掉队的战友吗？你认识以前在VOG和凤凰农场很热心而近来冷落心凉的战友吗？请打一个电话，发一个短信，重新复兴他们，重新邀请他们加入我们香草山农场，或者加入被喜马拉雅农场联邦委员会所认证的其他农场和各个事工小组吧。我们只要跟随不掉队，就是走在喜马拉雅的路上，就是奔向新中国联邦的迦南美地的开始，让我们大家互相提醒“爆料革命，没你不行”，共同呼喊“CCP，你完了！”。
+有的网友说，中国人都是鱼的记忆，只有七秒钟。虽是玩笑话，不禁让人想问究竟问题出在哪里了？笔者自有记忆以来便无数次的被教导，小孩儿要听家长的话。我们的家长告诉我们，在学校要听老师的话，在公司要听老板的话。老师告诉我们要听党的话，老板告诉我们要听钱的话。笔者想问题就出在了听话。
 
-校对/发稿：飞虹
+[!\[\]()!\[\](https://spark.adobe.com/page/mfBI0lDctTOwe/images/4d433d54-c71f-4080-863b-5b7cd789529b.jpg?asset_id=920ddfe2-65c0-46ef-8d92-47c2d44943ed&amp;img_etag=%2247ef8bfea24063465c9335e677514dd0%22&amp;size=1024)](https://spark.adobe.com/page/mfBI0lDctTOwe/images/4d433d54-c71f-4080-863b-5b7cd789529b.jpg?asset_id=920ddfe2-65c0-46ef-8d92-47c2d44943ed&amp;img_etag=%2247ef8bfea24063465c9335e677514dd0%22&amp;size=1024)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-g-fashion-2.jpg)
+在中共国，从小的教育便一直教育人服从，背诵成了在中共国接受教育的核心思想，背课文，背题型，背答案。学生被要求以成绩分高低，以结果论英雄，却没人在意思考的过程是多么的重要。 人们被要求一口吃成胖子，走路只走最快的那条捷径。 就像那被激素催熟的鸡仔，长得够壮却没什么营养。
 
+就这样一晃几年过去，老百姓在各种”专家”的指导意见下生活，似乎他们才是每个人生活的主角。人们逐渐放弃思考，放弃自己尝试的勇气，放弃了使用人类最引以为傲的大脑。没有人需要思考，也不需要记忆，因为有“专家”，有共产党告诉大家你们需要怎么想。 终于，一个原本健康的孩子变成了一条只有七秒记忆的鱼，一条996只为了温饱的鱼。
 
+但我们是人，而不是鱼。
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+笔者认为人之所以为人便是拥有思考的能力，拥有辨别是非的能力，拥有属于每个人自己的Critical thinking的权利和义务。无论中共如何“辟谣”，真相永远只有一个。 在这个谎言遍地，洗脑教育，媒体控制的中共国，探寻真相并不容易。中共畏惧老百姓获得独立思考的能力，因为当每一个人都问出为什么的时候，中共七十年以来部下的种种谎言便会显露无疑。 也唯有独立思考才是那盏刺破黑暗的明灯，才能在中共暴毙之际，不成为这段邪恶历史的陪葬品！
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+*文章仅代表个人观点*
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+编辑：【英国伦敦喜庄园编辑部】
 
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/mfBI0lDctTOwe/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/mfBI0lDctTOwe/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

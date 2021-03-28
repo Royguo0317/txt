@@ -1,23 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 菲律宾海军增强“海上主权巡逻”抵抗中共入侵
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1025784/)
+## 【热点播报】“新疆血棉”闹剧，中共把对自己的“种族灭绝”和“反人类罪”指控，偷换为“强制劳动”
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1025934/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：纽约香草山健身部 Jack Li文阳
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-27_20-28-38.jpg)[opinion.inquirer.net](https://opinion.inquirer.net/87250/independent-ph-foreign-policy)
-布赖特巴特新闻(Breitbart News)报道，菲律宾下令其海军在有争议的南中国海暗礁附近海域加强“海上主权巡逻”，此前北京方面拒绝服从马尼拉方面上周发出的从该海域召回渔船舰队的命令。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
-菲律宾海岸警卫队(coast guard)报告称，3月7日，约220艘中共船只停泊在白灵礁(Whitsun Reef)，马尼拉方面称其为朱利安费利佩礁(Julian Felipe Reef)。据称这些船只由中共海上自卫队人员操纵。菲律宾国防部长德尔芬·洛伦扎纳(Delfin Lorenzana)表示，“我们呼吁中共国停止这种入侵，并立即召回这些侵犯我们海洋权利和侵犯我们主权领土的船只。”然而中共拒绝了马尼拉方面的要求。中共对马尼拉要求其召回船只的命令做出回应，称这些渔船是由于恶劣的天气条件被迫停泊在该地区的。但中共关于天气的说辞与最初发现中共船只入侵时对天气状况的描述相矛盾。
 
-菲律宾军方已经在南中国海进行了空中和海上巡逻，海军少将埃德加德·阿雷瓦洛(Edgard Arevalo)表示，军方已将调查结果提交给其他政府机构，这些结果将被用作采取“不限于提出外交抗议的适当行动”的依据。
 
-作为对中共入侵的回应，菲律宾最高外交官、外交事务部长特奥多罗·洛钦(Teodoro Locsin)周三敦促菲律宾参议院接受一项菲律宾和美国之间的共同防御条约，让美国军队参与菲律宾与中共正在进行中的领土冲突。同时宣布菲律宾海军将在有争议的南中国海暗礁附近海域加强“海上主权巡逻”。
+近日，中共国国内各大媒体铺天盖地地报道了一系列新疆血棉新闻，中共把国际社会指控其在新疆建维吾尔族集中营，犯下种族灭绝和反人类罪，偷梁换柱，偷偷换成“强制劳工”“强制劳动”。
 
-参考链接：
+![]()![](https://gnews.org/wp-content/uploads/2021/03/图片39.png)图片来源：路透社
 
-[https://www.breitbart.com/asia/2021/03/26/philippine-navy-responds-beijing-invasion-south-china-sea-sovereignty-patrols/](https://www.breitbart.com/asia/2021/03/26/philippine-navy-responds-beijing-invasion-south-china-sea-sovereignty-patrols/)
+据墙内报道：美国鞋业公司SKECHERS（斯凯奇）在《斯凯奇关于维吾尔人的声明》中表示，该公司对中国供应商进行独立调查后，并没有发现所谓的“强制劳工”。然后翻炒了战狗发言人赵立坚在1月14日中共外交部例行记者会上表示的，所谓“强迫劳动”问题完全是美国等个别西方国家、机构和人员凭空捏造出来的“世纪谎言”。
+
+另据路透社东京3月25日报道，经营无印良品品牌的日本良品7453.T表示，“非常关切”中国新疆地区强制劳动的报导。
+
+2020年9月，美国众议院通过《防止维吾尔强制法案》，禁止从新疆进口商品。川普政府2021年1月19日宣布，中国在新疆对维吾尔人犯下了种族灭绝和反人类罪。前美国国务卿蓬佩奥在推特上说：“我决定，中共国在新疆针对维吾尔穆斯林和其他宗教和少数族裔犯下了种族灭族和反人类罪。这些行为是对中国人民和世界各地所有文明国家的侮辱。中共必须被问责。”
+
+这次，中共想再次利用其强大的宣传机器和被其绑架的现代义和团，碰瓷式高调翻炒旧文，避重就轻，企图转移视线。对内蒙蔽人民，掩盖近期中共在国际上有如丧家犬，人人喊打的窘境。对外，高调地东拉西扯一大帮西方国际企业，吸引国际眼球，目的也是企图把美国和西方对其种族灭绝和反人类罪指控，偷换概念成强制劳动，并企图利用国际企业来向西方各国政府施压。其更深层的目的是掩盖病毒真相，逃避国际追责。
+
+有新中国联邦在，有爆料革命在，中共的一切掩盖真相的企图都是徒劳。
+
+新闻来源：
+
+[https://news.163.com/21/0327/08/G634QN1K0001899O.html](https://news.163.com/21/0327/08/G634QN1K0001899O.html)
+
+[https://www.reuters.com/article/japan-muji-xinjiang-cotton-0325-idCNKBS2BH1LQ](https://www.reuters.com/article/japan-muji-xinjiang-cotton-0325-idCNKBS2BH1LQ)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-2.jpg)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

@@ -1,45 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】“新疆血棉”闹剧，中共把对自己的“种族灭绝”和“反人类罪”指控，偷换为“强制劳动”
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1025934/)
+## 慧眼看世界20210327（图片新闻）
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1025918/)
 
-作者：纽约香草山健身部 Jack Li文阳
-
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
-
+- 作者：2020喜马拉雅
+- 封面：透明的遮羞布
 
 
-近日，中共国国内各大媒体铺天盖地地报道了一系列新疆血棉新闻，中共把国际社会指控其在新疆建维吾尔族集中营，犯下种族灭绝和反人类罪，偷梁换柱，偷偷换成“强制劳工”“强制劳动”。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/图片39.png)图片来源：路透社
+**西班牙2021年3月27日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
 
-据墙内报道：美国鞋业公司SKECHERS（斯凯奇）在《斯凯奇关于维吾尔人的声明》中表示，该公司对中国供应商进行独立调查后，并没有发现所谓的“强制劳工”。然后翻炒了战狗发言人赵立坚在1月14日中共外交部例行记者会上表示的，所谓“强迫劳动”问题完全是美国等个别西方国家、机构和人员凭空捏造出来的“世纪谎言”。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/0c39603a-afd0-4ef5-9894-f026f6410ea0.jpg)
 
-另据路透社东京3月25日报道，经营无印良品品牌的日本良品7453.T表示，“非常关切”中国新疆地区强制劳动的报导。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/76e6d59c-6d58-49eb-84b4-cabc8702302e.jpg)
 
-2020年9月，美国众议院通过《防止维吾尔强制法案》，禁止从新疆进口商品。川普政府2021年1月19日宣布，中国在新疆对维吾尔人犯下了种族灭绝和反人类罪。前美国国务卿蓬佩奥在推特上说：“我决定，中共国在新疆针对维吾尔穆斯林和其他宗教和少数族裔犯下了种族灭族和反人类罪。这些行为是对中国人民和世界各地所有文明国家的侮辱。中共必须被问责。”
+![]()![](https://gnews.org/wp-content/uploads/2021/03/b95c6796-1566-418e-aee4-6ab28fe2c5b1.jpg)
 
-这次，中共想再次利用其强大的宣传机器和被其绑架的现代义和团，碰瓷式高调翻炒旧文，避重就轻，企图转移视线。对内蒙蔽人民，掩盖近期中共在国际上有如丧家犬，人人喊打的窘境。对外，高调地东拉西扯一大帮西方国际企业，吸引国际眼球，目的也是企图把美国和西方对其种族灭绝和反人类罪指控，偷换概念成强制劳动，并企图利用国际企业来向西方各国政府施压。其更深层的目的是掩盖病毒真相，逃避国际追责。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/795aa92a-5b41-43ae-8638-0d7204654f7c.jpg)
 
-有新中国联邦在，有爆料革命在，中共的一切掩盖真相的企图都是徒劳。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/37b222cb-3389-43cb-a285-bc96b44d573e.jpg)
 
-新闻来源：
+![]()![](https://gnews.org/wp-content/uploads/2021/03/e0ef861f-73bf-40a4-8a22-384e7b18afa1.jpg)
 
-[https://news.163.com/21/0327/08/G634QN1K0001899O.html](https://news.163.com/21/0327/08/G634QN1K0001899O.html)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/24374892-2a49-4d5e-86f0-0d52e0563cda.jpg)
 
-[https://www.reuters.com/article/japan-muji-xinjiang-cotton-0325-idCNKBS2BH1LQ](https://www.reuters.com/article/japan-muji-xinjiang-cotton-0325-idCNKBS2BH1LQ)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/d6087a49-43bd-4d7d-93ae-d053c39ad759.jpg)
 
-校对/发稿：飞虹
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ececab21-7ca6-443d-8ff1-6fadc4bf652f.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-2.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/ea726b17-14b5-49e0-a665-85f0e58f4232.jpg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/eeb53129-71f8-493b-9dd6-c17c1dd3caac.jpg)
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3f640734-4079-4438-9356-8a5f1485d5a9.jpg)
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/7d6c5e9e-b487-4fd7-9f68-82ecf530bd7d.jpg)
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cd38bcb8-fc4b-409a-8da5-9f27259c1bec.jpg)
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+![]()![](https://gnews.org/wp-content/uploads/2021/03/9a7d6f12-d80d-4795-8e48-663c604c4a96.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/156ada6c-67af-4115-b9ff-6d6384524e78.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/59e765fd-02d2-4c48-92f1-dc6b1031d234.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4674eb3b-4377-4316-a9a8-856971f64e93.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/154b9837-6385-4e37-babf-32429a461346.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/c1de450b-5cc4-4eeb-a7d9-bd245f05b1dc.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/6a6381e6-fc8f-4ae8-b6c0-70c991de2bd6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/edb09e70-905e-4986-8dc0-c02434f0c9ae.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/a651eaad-9f41-47ec-be7d-d28da6126df6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/384218b1-9e8c-4549-9024-16a468038433.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/0213fa91-e99a-499f-9e92-84c92f74cd81.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4cf00b33-96eb-4aaa-a7c6-3a4966c6ae2f.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/fee09b74-7976-4abc-b62c-ca08f2c0756a.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/c48322c1-53b5-4cd5-b222-21d7c6c073fd.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/b2804332-3d10-4e3e-aaf8-8cb645bbf0a3.jpg)
+
+发稿：Ranting
+
+本文观点均来自于作者，与GNEWS无关
 
 0

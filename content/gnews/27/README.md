@@ -1,41 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国际社会对中共流氓行为亮拳
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1027279/)
+## 德意志时讯2021.03.27：新疆种族问题在德语媒体全面发酵
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1027403/)
 
-新闻来源：新闻稿 | 作者：新闻稿 | 发布时间：2021年3月23日
-翻译/简评：乡间小路 | 校对：SilverSpurs7 | 审核：Beicy-数学老师 | Page：小六月
+*《德意志时讯》发表的译文和报道不代表我们认同原文作者的观点，仅供读者了解德国媒体的走向及德国社会状况*
 
-[!\[\]()!\[\](https://spark.adobe.com/page/2wlUktmmbUtCy/images/9374dbaa-892d-4039-90ae-492f6683358a.jpg?asset_id=971d582e-5713-4943-be12-31a0042766b1&amp;img_etag=%223206baf93802268a1985e6708a26bd3e%22&amp;size=1024)](https://spark.adobe.com/page/2wlUktmmbUtCy/images/9374dbaa-892d-4039-90ae-492f6683358a.jpg?asset_id=971d582e-5713-4943-be12-31a0042766b1&amp;img_etag=%223206baf93802268a1985e6708a26bd3e%22&amp;size=1024)
-
-**简评：**
-
-**美国、加拿大、英国和欧盟对中共迫害维吾尔人进行联合制裁。美国众议院议长南希·佩洛西对此发表声明称，美国及其盟友在保护维吾尔人人权的立场上是一致的，并表示国会还将采取进一步的立法措施。在声明末尾，佩洛西表达了美国需要为发生在中共国的人权问题发声的必要性——如果美国顾虑同中共之间的商贸问题而保持沉默，美国将失去在世界其它地方为人权发声的道德公信力。**
-
-**世界是一艘大船，每个国家都是这艘船的一部分——有些掌舵引领文明方向，有些鼓帆提供前进的动力。但中共国在中共70年的专制统治下已逐渐发霉腐烂，如果世界对发生在中共治下的环境、生存等危机继续作壁上观，最终结果极有可能是整艘大船到处发霉腐烂。让人安慰的是，世界终于开始对中共这个流氓亮拳了。**
-
-**原文翻译：**
-
-## 佩洛西就国际社会对中共侵犯维吾尔族人权罪进行制裁发表声明
-
-旧金山——众议院议长南希·佩洛西针对美国、加拿大、英国和欧盟共同制裁北京当局对维吾尔族穆斯林的迫害活动——已被美国国会及国会中国委员会列为反人类罪——发表如下声明：
-
-“拜登政府协同实施对中共国的共同制裁，这是朝着追责中共对维吾尔族人的野蛮暴行这一方向迈出了坚定、响亮的一步。这些制裁极为清晰地表明，美国和国际社会在保护维吾尔族人权利和尊严免遭中共任意践踏方面是一致的。”
-
-“中共国对维吾尔族人的迫害——包括在劳动营关押100多万人、拷打、未经法庭宣判的杀害和更多其它手段——这些暴行挑战世界的良知，我们必须采取行动。这些制裁加强了美国国会在两党基础上为致力于向北京当局追责所采取的行动，其中包括去年通过的《维吾尔人权政策法案》。国会将在立法倡议上采取进一步的行动，包括吉姆·麦戈文（Jim McGovern）主席发起的《维吾尔族强迫劳动预防法案》，多伊奇（Deutch）主席发起的《维吾尔族人权保护法案》和国会议员韦克斯顿（Wexton）的《维吾尔族强迫劳动信息披露法案》。”
-
-“美国和我们的盟友一起将继续追责北京当局践踏人权的活动，这包括那些针对西藏人、香港人、新闻记者、人权律师、大陆活动人士的犯罪行为。如果美国顾虑商贸问题而不为发生在中国的人权问题发声，那么我们就失去了在世界其它任何地方为人权发声的道德公信力。”
-
-[原文链接](https://www.speaker.gov/newsroom/32321-2)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+- 翻译、评论：gogogo4
+- 信息来源：fokus, srf, taz, faz, Spiegel
+- 原文标题：
+[Erstmals seit mehr als 30 JahrenEU verhängt Sanktionen wegen Menschenrechtsverletzungen in China](https://www.focus.de/politik/ausland/erstmals-seit-mehr-als-30-jahren-eu-verhaengt-sanktionen-wegen-menschenrechtsverletzungen-in-china_id_13109504.html)
+[Menschenrechtsverletzungen “Unbegründete Angriffe”: China reagiert auf Schweizer Kritik](https://www.srf.ch/news/schweiz/menschenrechtsverletzungen-unbegruendete-angriffe-china-reagiert-auf-schweizer-kritik)
+[Sanktionen zwischen China und EU :Macht und Moral](https://taz.de/Sanktionen-zwischen-China-und-EU/!5757101/)
+[“UNANGEMESSENE ESKALATION”: Chinas Botschafter zu Gespräch ins Auswärtige Amt geladen](https://www.faz.net/aktuell/politik/ausland/chinas-botschafter-zu-gespraech-ins-auswaertige-amt-geladen-17259544.html)
+[Wegen “Beleidigungen und Drohungen” Frankreich bestellt Chinas Botschafter ein](https://www.spiegel.de/politik/ausland/frankreich-bestellt-chinas-botschafter-nach-kritik-an-forscher-ein-a-a4b024c7-f171-4d1e-ad08-c856281008d5)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+本周德语媒体有关中共的报道很多，内容和观点类似，不过“类似的”又和从前不同，是让人欣慰的不同：
 
-[!\[\]()!\[\](https://spark.adobe.com/page/2wlUktmmbUtCy/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/2wlUktmmbUtCy/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+-“30多年来欧盟首次对中国侵犯人权行为实施制裁”。fokus在此报道中提到了，欧盟决定对压迫新疆维吾尔族的责任人采取惩罚措施；中共国对欧盟官员及在华研究所实施反制裁；中共国驻欧盟大使张明对欧盟的尖锐批评；德国外长表示，他正在推动对中共国实施制裁
 
-0
+-“中共国回应瑞士的批评：侵犯人权行为是’毫无根据的攻击’”。srf的这篇报道中写道，中共驻瑞士大使王世廷表示瑞士向外界发出了错误信号，并称有关新疆劳改营和强迫劳动的报道纯属恶意政治炒作；但最后仍然表示中共国对中瑞继续进行人权对话和自由贸易协定持开放态度
+
+-“中共国与欧盟之间的制裁：权力与道德”。taz表示，欧盟对中共国的制裁来的太晚；2020年底的欧中投资保护协议中没能涉及到有关维吾尔族人强迫劳动的问题，大众汽车也在新疆投资；中共国目前对欧洲的报复性制裁比欧洲的严厉
+
+-“德国联邦外交部召见中共国大使”。据faz报道，德国国务秘书向中共国大使吴恳表示，中共国的反制是一种升级紧张形势的行为
+
+-“因为‘侮辱和威胁’，法国召见中共国大使”。Spiegel指出，法国外交部指责中共国大使卢沙野对其外交官的侮辱和威胁，并要求其澄清此事
+
+**评论：**中共与西方关系急转直下，离不开总加速师的助力。“新疆种族灭绝”这个抓手已经握稳，接下来随着全球经济走向崩溃边缘，各国政府都需要找人来背锅，那么从我们新中国联邦手中接过“疫情来源真相”这个抓手就刻不容缓。灭共进入读秒阶段。
+
++2
