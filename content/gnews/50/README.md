@@ -1,27 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登邀请普京和习近平参加气候谈判
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1027325/)
+## 【热点播报】英国最高法院法官预计 管控措施将持续10年之久
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1027339/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+作者：纽约香草山农场 四季
 
-编辑上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-27_23-19-39.jpg)[international.sindonews.com](https://international.sindonews.com/read/377816/42/biden-undang-putin-dan-xi-jinping-ke-ktt-iklim-virtual-1616803436)
-03月26日，白宫新闻处的报道，美国总统拜登已邀请俄罗斯总统普京和中共国国家主席习大神参加气候谈判。会议计划于4月22日至23日举行。预计受全球气候变化影响最大的40多个国家的领导人将出席。
 
-这是拜登政府的第一次重大气候谈判。峰会的时间将与当局即将宣布的美国经济现代化减排计划相配合。会议的一个主要目标将是努力降低地球上平均气温的增长。此外，还将动员政府和私营企业为零碳排放筹集资金。
 
-美联社写道，拜登有意邀请参加会谈的不仅仅是他的国际伙伴。“考虑到这个问题对世界其他地区是多么重要，我们应该准备好在高级别上进行谈判。”
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-美国前川普总统（Donald Trump）对人类活动引起的全球气候变化导致更频繁、更严重的自然灾害的说法表示怀疑。川普作为总统的第一个决定之一就是退出2015年巴黎气候协议。拜登曾把回归气候议程作为其竞选议程的重要项目之一。
 
-在1月21日就职后的几个小时内，拜登就撤销了川普的几项行政命令，包括签署了一份让美国重返《巴黎气候协定》的文件。一个月后，它开始生效。
 
-联合国秘书长安东尼奥·古特雷斯赞同白宫的决定。“我热烈欢迎拜登总统重新加入《巴黎气候变化协定》的举动。”
+据《[零对冲](https://www.zerohedge.com/covid-19/uk-supreme-court-judge-expects-people-will-be-forced-wear-masks-stay-home-ten-years)》 Zero Hedge 3月27日的报道，英国前最高法院法官萨默普特勋爵（Lord Sumption）警告说，冠状病毒大流行带来的“社会控制”可能会被政府保留长达10年之久。人们将被迫戴上口罩，在家待上十年。
 
-据悉，今年3月在美国安克雷奇市举行会谈后，中美双方同意成立联合工作组，应对气候变化。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image-398.png)图源网络
 
-参考链接：https://www.rbc.ru/politics/26/03/2021/605e2e2a9a7947d073575902
+萨默普特法官评论说：“指望政府现在反悔，在政治上是不现实的。”他对政府的“极权主义”式的封锁政策提出了强烈批评。 这位法官将这种封锁与第二次世界大战后持续了九年的配给制作了比较，并补充说，这次“我认为可能会更久”。他认为，在1951年的大选中，工党失去了多数席位，完全是因为多了五年的社会控制，而人们对社会控制产生了厌倦。这种情况迟早会在这个国家发生。
+
+萨默普特法官的警告是针对于英格兰公共卫生官员提出的言论——只要其他国家没有为每个人接种疫苗，限制将继续存在，且这个过程可能需要很多年。
+
+尽管英国政府承诺，限制措施将在6月份结束。但昨天，政府已经将冠状病毒紧急法律延长至10月——卫生部长马特-汉考克（Matt Hancock）拒绝透露此后该法律将保持多久。
+
+萨默普特法官还认为，各国政府正在政治上利用该病毒。他还谈到政府对反封锁抗议者的严厉打击，他说：“人们应该有权表达他们的不同意见。对锁定政策持怀疑态度的科学家‘遭受了极其不愉快的个人虐待运动’。”
+
+文章作者警告称，在允许政府开了可以随心所欲的将整个社会置于事实上的软禁之下的先例之后，就会看到这种政策会以不同的理由不断的重复。而这些理由与冠状病毒毫无关系。
+
+封锁就是全球主义者所制定的管控地球的社会控制吧。如果各国的民意都显示对中共病毒大流行规则的强烈支持的话，人类的生活将被彻底改变，这将是人类的悲哀。只有新中国联邦和爆料革命一直在不遗余力的向全世界揭示冠状病毒的真相。只有消灭中共，才能终结肆虐全球一年多的中共病毒，还人类自由与和平。
+
+参考阅读：
+
+[UK Supreme Court Judge Expects People Will Be Forced To Wear Masks, Stay Home For Ten Years](https://www.zerohedge.com/covid-19/uk-supreme-court-judge-expects-people-will-be-forced-wear-masks-stay-home-ten-years)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 0

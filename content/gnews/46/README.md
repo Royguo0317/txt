@@ -1,33 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德意志时讯2021.03.27：新疆种族问题在德语媒体全面发酵
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1027403/)
+## 金灿荣：中共国取代美国地位的计划
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1027470/)
 
-*《德意志时讯》发表的译文和报道不代表我们认同原文作者的观点，仅供读者了解德国媒体的走向及德国社会状况*
+***翻译/简评： 加拿大草原三省战友之家 文莱***
+![]()![](https://gnews.org/wp-content/uploads/2021/03/金灿荣-rfa.jpg)
+据DJHJ传媒今日报道，中国人民大学国际问题学院教授、副院长金灿荣在2016年7月的“中美战略哲学”的演讲中，阐述了中共国要逐步地取代美国、并成为世界唯一的超级大国的计划。金灿荣以极其反美的言论著称，他表示中共国需要在加强建设自身的同时拆掉美国。
 
-- 翻译、评论：gogogo4
-- 信息来源：fokus, srf, taz, faz, Spiegel
-- 原文标题：
-[Erstmals seit mehr als 30 JahrenEU verhängt Sanktionen wegen Menschenrechtsverletzungen in China](https://www.focus.de/politik/ausland/erstmals-seit-mehr-als-30-jahren-eu-verhaengt-sanktionen-wegen-menschenrechtsverletzungen-in-china_id_13109504.html)
-[Menschenrechtsverletzungen “Unbegründete Angriffe”: China reagiert auf Schweizer Kritik](https://www.srf.ch/news/schweiz/menschenrechtsverletzungen-unbegruendete-angriffe-china-reagiert-auf-schweizer-kritik)
-[Sanktionen zwischen China und EU :Macht und Moral](https://taz.de/Sanktionen-zwischen-China-und-EU/!5757101/)
-[“UNANGEMESSENE ESKALATION”: Chinas Botschafter zu Gespräch ins Auswärtige Amt geladen](https://www.faz.net/aktuell/politik/ausland/chinas-botschafter-zu-gespraech-ins-auswaertige-amt-geladen-17259544.html)
-[Wegen “Beleidigungen und Drohungen” Frankreich bestellt Chinas Botschafter ein](https://www.spiegel.de/politik/ausland/frankreich-bestellt-chinas-botschafter-nach-kritik-an-forscher-ein-a-a4b024c7-f171-4d1e-ad08-c856281008d5)
+金灿荣在演讲中概述的计划表明了中共将会采取一系列行动来击垮美国，包括干涉美国选举、控制美国市场、培养全球的敌人以挑战美国、窃取美国技术、扩大中共国领土、以及影响国际组织。并且他还建议，中共国将会和那些仇恨美国的人站在同一战线。
 
+金灿荣被中共国网友称为“国师“，因为他不单单是来自中共国的著名学者，还是中共国两大权力机构：组织部和统战部的顾问。不过目前还不清楚他与习近平的关系，但考虑到他拥有强有力的社交网络，所以他与习的密切关系也就不足为奇了。
 
-本周德语媒体有关中共的报道很多，内容和观点类似，不过“类似的”又和从前不同，是让人欣慰的不同：
+金灿荣表示实行此计划的第一步就是直接参与美国选举，并力推对中共国友好的政客上任（就像中共在2020年所做的）。他建议中共国利用他们在美国的公司，督促员工投票给公司选中的候选人。
 
--“30多年来欧盟首次对中国侵犯人权行为实施制裁”。fokus在此报道中提到了，欧盟决定对压迫新疆维吾尔族的责任人采取惩罚措施；中共国对欧盟官员及在华研究所实施反制裁；中共国驻欧盟大使张明对欧盟的尖锐批评；德国外长表示，他正在推动对中共国实施制裁
+金灿荣在演讲中说：“美国的投票率约为30%，也就是说每个国会选区约有20万居民投票给该选区的代表。一般情况下，两个候选人之间的票数差距在1万张以内。如果中共国手上有几千张选票，那么中共国将成为候选人的老大。不过最佳的情况是中共国可以收买美国，并把美国众议院改为第二个人大常委会。”
 
--“中共国回应瑞士的批评：侵犯人权行为是’毫无根据的攻击’”。srf的这篇报道中写道，中共驻瑞士大使王世廷表示瑞士向外界发出了错误信号，并称有关新疆劳改营和强迫劳动的报道纯属恶意政治炒作；但最后仍然表示中共国对中瑞继续进行人权对话和自由贸易协定持开放态度
+随后由于“美国的投资机会很好，因为美国的市场比日本和欧洲的市场更开放”， 所以金灿荣还强调了中共国必须努力控制美国市场的重要性。
 
--“中共国与欧盟之间的制裁：权力与道德”。taz表示，欧盟对中共国的制裁来的太晚；2020年底的欧中投资保护协议中没能涉及到有关维吾尔族人强迫劳动的问题，大众汽车也在新疆投资；中共国目前对欧洲的报复性制裁比欧洲的严厉
+简评：
 
--“德国联邦外交部召见中共国大使”。据faz报道，德国国务秘书向中共国大使吴恳表示，中共国的反制是一种升级紧张形势的行为
+中共邪恶的本质正在遭受着世界的审视，金灿荣作为中共国的“战狼“代表之一，他的话语可以达到非常有效的认证作用，因为世界每时每刻都在忍受着中共的超限战攻击。郭先生早在2017年就告诫了全世界，中共恶灵将不惜一切代价挑战全世界，每一个生命都将面临来自中共的威胁，血淋淋的现实正在每时每刻地唤醒正义的生命。征服代表自由民主的美国是中共的终极目标，并且由于习近平日益膨胀的野心加上共产党欺压弱势的本性，导致了中共正在加速“大一统”世界的进程。但是爆料革命与正义力量，以及数以万计的战友不会妥协。真相正在被越来越多的群体接受，目前美国左右媒体针对中共病毒的狂轰乱炸将会唤醒所有正义意识一齐抗击中共。
 
--“因为‘侮辱和威胁’，法国召见中共国大使”。Spiegel指出，法国外交部指责中共国大使卢沙野对其外交官的侮辱和威胁，并要求其澄清此事
+***新闻链接：***
 
-**评论：**中共与西方关系急转直下，离不开总加速师的助力。“新疆种族灭绝”这个抓手已经握稳，接下来随着全球经济走向崩溃边缘，各国政府都需要找人来背锅，那么从我们新中国联邦手中接过“疫情来源真相”这个抓手就刻不容缓。灭共进入读秒阶段。
+[CCP Adviser Outlined Detailed Plan to Defeat US, Including Manipulating Elections | DJHJ Media](https://djhjmedia.com/steven/ccp-adviser-outlined-detailed-plan-to-defeat-us-including-manipulating-elections/)
+
+* * *
+
+*发稿 文锦*
 
 +2
