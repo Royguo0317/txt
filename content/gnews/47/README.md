@@ -1,33 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德意志时讯2021.03.27：新疆种族问题在德语媒体全面发酵
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1027403/)
+## 【世事解评】美国小伙被CCP洗脑的成功案例
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1027587/)
 
-*《德意志时讯》发表的译文和报道不代表我们认同原文作者的观点，仅供读者了解德国媒体的走向及德国社会状况*
-
-- 翻译、评论：gogogo4
-- 信息来源：fokus, srf, taz, faz, Spiegel
-- 原文标题：
-[Erstmals seit mehr als 30 JahrenEU verhängt Sanktionen wegen Menschenrechtsverletzungen in China](https://www.focus.de/politik/ausland/erstmals-seit-mehr-als-30-jahren-eu-verhaengt-sanktionen-wegen-menschenrechtsverletzungen-in-china_id_13109504.html)
-[Menschenrechtsverletzungen “Unbegründete Angriffe”: China reagiert auf Schweizer Kritik](https://www.srf.ch/news/schweiz/menschenrechtsverletzungen-unbegruendete-angriffe-china-reagiert-auf-schweizer-kritik)
-[Sanktionen zwischen China und EU :Macht und Moral](https://taz.de/Sanktionen-zwischen-China-und-EU/!5757101/)
-[“UNANGEMESSENE ESKALATION”: Chinas Botschafter zu Gespräch ins Auswärtige Amt geladen](https://www.faz.net/aktuell/politik/ausland/chinas-botschafter-zu-gespraech-ins-auswaertige-amt-geladen-17259544.html)
-[Wegen “Beleidigungen und Drohungen” Frankreich bestellt Chinas Botschafter ein](https://www.spiegel.de/politik/ausland/frankreich-bestellt-chinas-botschafter-nach-kritik-an-forscher-ein-a-a4b024c7-f171-4d1e-ad08-c856281008d5)
+作者：纽约香草山农场 兰兰
 
 
-本周德语媒体有关中共的报道很多，内容和观点类似，不过“类似的”又和从前不同，是让人欣慰的不同：
 
--“30多年来欧盟首次对中国侵犯人权行为实施制裁”。fokus在此报道中提到了，欧盟决定对压迫新疆维吾尔族的责任人采取惩罚措施；中共国对欧盟官员及在华研究所实施反制裁；中共国驻欧盟大使张明对欧盟的尖锐批评；德国外长表示，他正在推动对中共国实施制裁
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
--“中共国回应瑞士的批评：侵犯人权行为是’毫无根据的攻击’”。srf的这篇报道中写道，中共驻瑞士大使王世廷表示瑞士向外界发出了错误信号，并称有关新疆劳改营和强迫劳动的报道纯属恶意政治炒作；但最后仍然表示中共国对中瑞继续进行人权对话和自由贸易协定持开放态度
 
--“中共国与欧盟之间的制裁：权力与道德”。taz表示，欧盟对中共国的制裁来的太晚；2020年底的欧中投资保护协议中没能涉及到有关维吾尔族人强迫劳动的问题，大众汽车也在新疆投资；中共国目前对欧洲的报复性制裁比欧洲的严厉
 
--“德国联邦外交部召见中共国大使”。据faz报道，德国国务秘书向中共国大使吴恳表示，中共国的反制是一种升级紧张形势的行为
+最近的“新疆棉花”被炒得沸沸扬扬，连外国小伙也忍不住凑个热闹，要为“中（共）国棉花”代言一下。
 
--“因为‘侮辱和威胁’，法国召见中共国大使”。Spiegel指出，法国外交部指责中共国大使卢沙野对其外交官的侮辱和威胁，并要求其澄清此事
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image-404.png)图片来源：[Instagram](https://www.instagram.com/p/Bad-kF3Afgn/?utm_source=ig_web_copy_link)
 
-**评论：**中共与西方关系急转直下，离不开总加速师的助力。“新疆种族灭绝”这个抓手已经握稳，接下来随着全球经济走向崩溃边缘，各国政府都需要找人来背锅，那么从我们新中国联邦手中接过“疫情来源真相”这个抓手就刻不容缓。灭共进入读秒阶段。
+视频主角是一位在中（共）国留学的美国人。
 
-+2
+如果单从语言的角度出发，这位留学生的语音清晰、语调标准，说起普通话来完全没有洋腔洋调。倘若不看视频光听语音的话，观众很难察觉这位留学生是一个美国人。作为一个留学生，能说出这么流利且发音标准的普通话应该是对外汉语老师们辛辛苦苦栽培的成功案例。我相信他的老师为他的语言水平感到骄傲。
+
+但从这位留学生视频的内容来看，就让人感到愤怒和恐慌。凭啥你来代言“中（共）国棉花”？你到底知不知道“中（共）国棉花”事件是什么事件？在这位留学生的视频里，他自己说道：“虽然我是一个美国人，但是我作为一个从小学习中文和受中（共）国文化的影响和教育而长大的人，早已把中（共）国当成自己的祖国和家乡一样，我是看不下去也接受不了。这些西方媒体，多年对中（共）国进行的造谣、妖魔化和抹黑。这些品牌呢，是想边赚我们的钱，边赚中（共）国人民的钱。他们诋毁我们，那我们能允许他们这么干吗？绝对不行。所以，我们不能为这些谎言买单，也应该和中（共）国人民站在一起，抵制所有对中（共）国进行造谣和妖魔化的品牌。尤其是我们作为在中（共）国生活的外国人和来华留学生，应该且必须把中（共）国故事讲好，把中（共）国故事讲出去，让我们身边的朋友和家人更了解中（共）国，看见中（共）国，以后有机会来中（共）国体验一下，让他们亲眼看见中（共）国的真实情况到底如何。谢谢大家。”
+
+好一个从小学习中文和受中（共）国文化的影响和教育而长大的外国人，这不得不让人想到海外千千万万个“孔子学院”中所教授的学生。中文和中华文化本身值得传播和发扬，但是这位小伙，你的语言学习没有问题，但你的思想偏离了方向啊。最辛苦的海外中文老师凭着热情，用青春书写的海外汉语教学事业，最后全都成了CCP恶魔的帮凶，这是多么可悲！这位留学生显然已把中（共）国当做自己的祖国了，也成了CCP民粹主义宣传下的热血人士一样，成了CCP乐于看见的被深深洗脑的留学生。这位小伙，你在中（共）国看到的、听到的，那只是你个人的经历，并不能反应整个全貌啊。你深深地记住了CCP想要你达到的使命：作为在中（共）国生活的外国人和来华留学生，应该且必须把中（共）国故事讲好，把中（共）国故事讲出去。但你为什么发现不了你的中（共）国同学的生活并没有那么好呢？最起码你享受了全额奖学金，但你的中（共）国同学可不是啊。你深深受益于CCP的来华留学生政策，但你可知道，这些政策都是建立在对中（共）国人民的剥削之上的。
+
+出于对这位小伙的愤怒，笔者往他的社交媒体上多看了一眼，结果发现原来他是一名“美国共产党员”。他虽然是一个美国人，但他从骨子里就是一个“共产党员”，他的思想有着深深的“共产党员”的烙印。“共产党”这个组织太邪恶，太妖魔，太让人窒息了！
+
+文中视频链接：
+
+[https://www.instagram.com/p/CM3XHwTl7hI/](https://www.instagram.com/p/CM3XHwTl7hI/)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-g-fashion-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
+0
