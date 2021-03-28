@@ -1,31 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美加谴责中共在维族问题上的制裁“报复”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1028379/)
+## 【热点播报】美国获奖生物学家抨击彼得·达扎克和世卫组织共同兜售中共“虚假信息”
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1028521/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：纽约香草山翻译部 文明世界
 
-编辑上传   水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/S-9-11.jpg)tribuneindia.com
-路透社报道，美国周六谴责中共对两名美国宗教人士和一名加拿大议员的制裁，这是中共对美国和加拿大批评中共在新疆穆斯林维吾尔族的种族灭绝罪行的报复行为。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
-美国国务卿安东尼·布林肯在一份声明中说到，中共的举动“只会加剧国际社会对新疆正在进行的种族灭绝和反人类罪行的关注。”“我们与加拿大、英国、欧盟以及世界各地的其他伙伴和盟友站在一起，呼吁(中共)结束侵犯和侵犯人权的行为。” 周一，美国、欧盟、英国和加拿大联合行动，对涉及虐待维吾尔人的中共官员实施了制裁。
 
-布林肯发表声明之前，加拿大总理贾斯廷·特鲁多谴责了北京，并誓言捍卫人权。
 
-中共制裁了加拿大反对派议员、加拿大国会外交与国际发展常务委员会(Standing Committee on Foreign Affairs and International Development)及其国际人权小组委员会(Subcommittee on International Human Rights)副主席庄文浩 (Michael Chong)，后者本月提交了一份报告，结论是新疆的暴行构成了反人类罪和种族灭绝罪。
+据3月27日国家脉动（The National Pulse）消息，分子生物学家Elbright博士坚称，最近这次世界卫生组织去中国溯源新冠病毒联合专家组调查员——特别是彼得·达扎克——是”虚假信息的参与者”。
 
-中共还表示，将对美国国际宗教自由委员会主席盖尔·曼钦（Gayle Manchin）和副主席托尼·珀金斯（Tony Perkins）采取措施。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/图片7-19.png)图片来源：网络
 
-被北京制裁的个人不得进入中共国大陆、香港和澳门，且中共国公民和机构不得与这三人进行任何业务往来。
+Richard H. Ebright博士是罗格斯大学Rutgers化学和化学生物理事会教授和Waksman微生物研究所实验室主任。他领导着一个由大约15名博士后、研究生和技术人员组成的实验室，发表论文160多篇，拥有40多项已颁发和正在申请的专利。他多次获得奖项，包括美国国家卫生研究院的荣誉，是美国科学促进会、美国微生物学会和美国传染病学会的研究员。
 
-中共外交部警告西方国家，“必须停止在涉疆问题上的政治操纵，停止以任何形式干涉中共国内政，不能在错误道路上越走越远”，否则将会自讨苦吃。
+消息称Ebright博士接受了《独立科学新闻》的采访，他认为世界卫生组织(WHO)最近的调查团有缺陷，强调 一个可信的调查团应当由无利益冲突的团员组成， 不应该让调查对象和/或与调查对象密切相关的人参加。
 
-庄文浩 (Michael Chong)是加拿大反对党保守党的成员，他认为中共的制裁是“荣誉勋章”。他说，“这表明议员们正在有效地引起人们对正在发生在中共西部的维族大屠杀的关注”。同时他敦促特鲁多政府“正式承认维吾尔族种族灭绝”，并表示制裁不会产生实际效果，因为他没有前往中共国的计划。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/图片8-12.png)图片来源：网络
 
-参考链接：
+消息还提到，Ebright博士说世界卫生组织团的这些成员至少在一个案例中，很积极热心地参与了造谣！并解释说世卫组织的调查根本就是事先商量好的，不承认病毒有可能来自实验室，甚至没有提到武汉病毒研究所（WIV）、武汉疾病控制中心（CDC）或武汉生物制品研究所。
 
-[https://www.reuters.com/article/us-china-usa-canada-idUSKBN2BJ0DW](https://www.reuters.com/article/us-china-usa-canada-idUSKBN2BJ0DW)
+Ebright博士特别提到彼得·达扎克——他与武汉病毒学研究所（WIV）有利益冲突。达扎克是WIV实验室的承包商、研究项目合作伙伴与共同作者，该实验室拿过美国国务院提供的2亿美元的分包合同，和美国国家卫生研究所提供的700万美元分包合同，而该实验室可能就是病毒的来源。
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-g-fashion-2.jpg)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

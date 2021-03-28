@@ -1,174 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0327.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1024833/)
-
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
-
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0326-27.jpeg)图片来源：康州盘古农场 霹雳年
-### 川普总统GAB
-
-“John Durham在哪儿？他还活着吗？会有一个Durham报告吗？
-
-（注：John Durham是负责挖掘FBI “交火飓风 “俄罗斯调查起源的人— 据波士顿先锋）
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/trump-gab-0327-3.png)
-
-
-### 病毒来源
-
-
-
-> 参议员泰德·克鲁兹转国家评论推文：
-> 美国疾控中心前主任 罗伯特·雷德菲尔德(Robert Redfield) 博士说，他相信新型冠状病毒源自武汉的一个实验室。
-> 
-> 【附国家评论杂志national review网站相关内容报道】 [https://t.co/8yiPomr4Sb](https://t.co/8yiPomr4Sb)
-> — 川普等政要…直译推 (@zhiyitw33) [March 27, 2021](https://twitter.com/zhiyitw33/status/1375801448198504450?ref_src=twsrc%5Etfw)
-
-
-
-26日朱利安尼先生转推纽约邮报新闻：“美国疾病控制和预防中心前主任认为，导致COVID-19的病毒是从中国武汉的一个实验室逃出来的。”
-
-
-
-> Former director of the Centers for Disease Control and Prevention believes the virus that causes COVID-19 escaped from a lab in Wuhan, China. [https://t.co/wuNPFEtobs](https://t.co/wuNPFEtobs)
-> — Rudy W. Giuliani (@RudyGiuliani) [March 26, 2021](https://twitter.com/RudyGiuliani/status/1375464744866480132?ref_src=twsrc%5Etfw)
-
-
-
-
-
-### **3月26日安迪巴尔议员推文：**
-
-“中共公然违反美国制裁，向伊朗、委内瑞拉和朝鲜等不良行为者大肆进行现金收买，拜登总统和他的政府正在睡觉。
-
-北京在经济上支持这些国家构成了全球性的威胁，美国需要发出强烈的信息，如果继续下去，将会有后果。”
-
-
-
-> Beijing propping these countries up economically poses a global threat and the U.S. needs to send a strong message that there will be consequences if it continues.
-> — Rep. Andy Barr (@RepAndyBarr) [March 26, 2021](https://twitter.com/RepAndyBarr/status/1375514529170268160?ref_src=twsrc%5Etfw)
-
-
-
-
-
-### 灭白文化
-
-27日朱利安尼先生发推：“拜登总统说‘他不知道2024年共和党是否还存在。’这是弗洛伊德的失误吗？”
-
-OANN主播纳特里-哈皮转推时称：
-
-“停止支付警察，废除移民和海关执法局
-现在是： 废除共和党
-取消文化的终极目标：极权统治。”
-
-
-
-> Defund the police. Abolish ICE.
-> 
-> Now it’s: Abolish the [@GOP](https://twitter.com/GOP?ref_src=twsrc%5Etfw).
-> 
-> Cancel culture’s ultimate goal: Totalitarian rule. [https://t.co/jlBAxILC5u](https://t.co/jlBAxILC5u)
-> — Natalie Harp (@NatalieJHarp) [March 26, 2021](https://twitter.com/NatalieJHarp/status/1375527652254232579?ref_src=twsrc%5Etfw)
-
-
-
-
-
-27日《华尔街时报》社论委员会发表文章《北京全球消灭文化》称：
-
-习近平已经成为在与外国批评者的政治争端中发挥中（共）国商业力量的高手。中（共）国国家主席的最新目标是用中国消费者（抵制）瑞典T恤和美国运动鞋等。
-
-参议员玛莎-布莱克本转推称：“中国共产党将利用中（共）国的市场力量铲除批评者，无论是个人、公司还是政府。全球社会必须继续站出来反对中共政权。”
-
-
-
-> The [#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hash&amp;ref_src=twsrc%5Etfw) will leverage China’s market power to eradicate critics whether it’s a person, company or a government.
-> The global community must continue to stand up to the communist regime.[https://t.co/DSWXgZXu6O](https://t.co/DSWXgZXu6O)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 27, 2021](https://twitter.com/MarshaBlackburn/status/1375894591178739713?ref_src=twsrc%5Etfw)
-
-
-
-
-
-众议员莫-布鲁克斯今日转推23日Breibart的文章“莫-布鲁克斯议员称大赦将在10 -20年内（让美国）增加1亿人。”，推文称“社会主义者想做的是通过美国国会推动大赦，他们的论点是这能以某种方式解决问题。任何一个理性的人都知道，这只会使问题变得更糟。”
-
-
-
-> What the Socialists want to do is push amnesty through the United States Congress, their argument being that somehow fixes the problem. Any rational person knows that just makes it worse.[https://t.co/yAgkPIsqwC](https://t.co/yAgkPIsqwC)
-> — Mo Brooks (@RepMoBrooks) [March 26, 2021](https://twitter.com/RepMoBrooks/status/1375486311721734145?ref_src=twsrc%5Etfw)
-
-
-
-### 缅甸
-
-国务卿布林肯推文：“我们对缅甸安全部队犯下的流血事件感到震惊，这表明军政府将牺牲人民的生命为少数人服务。我向受害者家属表示最深切的慰问。勇敢的缅甸人民拒绝军方的恐怖统治。”
-
-
-
-> We are horrified by the bloodshed perpetrated by Burmese security forces, showing that the junta will sacrifice the lives of the people to serve the few. I send my deepest condolences to the victims’ families. The courageous people of Burma reject the military’s reign of terror.
-> — Secretary Antony Blinken (@SecBlinken) [March 27, 2021](https://twitter.com/SecBlinken/status/1375919200364036101?ref_src=twsrc%5Etfw)
-
-
-
-
-
-### 中共国和伊朗紧密关系被美国关注
-
-今日《纽约邮报》发表文章《伊朗中国签订25年贸易合作协议》，文章称合作范围包括石油、矿产、交通、农业、工业。两国关系已经到达战略伙伴关系。
-
-
-
-> Iran and China ink 25-year trade cooperation deal [https://t.co/9pGGMCR03N](https://t.co/9pGGMCR03N) [pic.twitter.com/lXPBva8k2e](https://t.co/lXPBva8k2e)
-> — New York Post (@nypost) [March 27, 2021](https://twitter.com/nypost/status/1375921455695794178?ref_src=twsrc%5Etfw)
-
-
-
-
-
-### 美国2024
-
-蓬佩奥国务卿即将参加美国2024总统大选。
-
-
-
-> Campaign 2024: Former Secretary of State Mike Pompeo at Westside Conservative Club in Urbandale, Iowa – 8pm ET on C-SPAN [https://t.co/roVFI4lZds](https://t.co/roVFI4lZds) [pic.twitter.com/roPp7QTWhK](https://t.co/roPp7QTWhK)
-> — CSPAN (@cspan) [March 26, 2021](https://twitter.com/cspan/status/1375595923808526339?ref_src=twsrc%5Etfw)
-
-
-
-
-
-### 上市中资企业返港
-
-华尔街日报中国实时27日发文《香港 “返乡企业 “盛行，但纽约仍是主角》
-
-该媒体推文称：在政治紧张局势加剧的情况下，在美国上市的中国公司纷纷赴港上市，但并没有转化为交易热潮，纽约仍然是最值得一去的地方。
-
-
-
-> U.S.-listed Chinese companies are flocking to go public in Hong Kong amid heightened political tension. But when it comes to trading, New York remains the place to beat. [https://t.co/xgmMPEzScT](https://t.co/xgmMPEzScT)
-> — WSJ China Real Time (@ChinaRealTime) [March 26, 2021](https://twitter.com/ChinaRealTime/status/1375417292557856768?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-
-
-
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
-
-0
+## 信仰与关键抉择——理解愛系列之四
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1028077/)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/理解愛系列之四.png)图片源自微博网站
+撰稿：星子
+
+审核：Jenny 编辑：MG4
+
+信仰是一个迷一般的名词
+许多人都在强调信仰，但却没有说出它真正是什么。在不同的文化理解中，信仰也有不同的解释。在新时代运动中，信仰是：“你真正相信你之所是”。
+它是一个你如何定义自己的概念。当一个人定义了自己，他就会以这个概念为思考的源泉，一切思考都将围绕这个概念生成和发展，然后指导人采取行动，最终产生结果。
+新时代运动的正向传导中强调，每个人都是神（至高无上的整体）的一部分，探索着无限存在的无限可能。
+信仰很自由，完全由你自己选择。当你选择了一个信仰，你就会以它为核心构建你自己的思维方式并创造你的生活；当一个族群选择了一个信仰，就构建了一个文化思维，并且创造出自己独特的文明。世界各民族的文明形式无不如此。
+信仰、文化与社会现实
+以天主教和新教为代表的基督教体系，从中世纪开始追赶超越地球上的其他信仰体系，引领了近现代地球的兴盛。其核心信仰是“神以自己的样子创造了人”。潜藏的含意即“人拥有神的一切可能，神之下众生平等”。但是在天主教独大时期，要求人们要通过一个权威来与神联系，极大地限制了人的自由，社会并没有太多的成果。直到新教改革运动的兴起，人类扔掉了神与自己之间的阻隔，西方社会追求平等自由、力求认识神、追求神的能力的欲望越来越强烈。在此过程中建立了民主自由的社会和引领了世界科学与技术的大爆发。
+华夏文明，传说中负责造人的是女娲，在可寻的文字记录中，女娲并不是创世神，并且并没有一个统一的理论体系支持这个传说。华夏民族的信仰是权力——即物质资源的集中，简述之即：相信自己真正是物质的偶然巧合的产物。今天，这个定义我们可以在初中课本对意识的解释中找到。因为华夏民族的信仰是物质，所以中华文化一定是代表物质信仰的官本位体系，不论它叫儒家文化还是社会主义或者共产主义。官本位体系唯一的爱好是垄断权力，从而获得物质资源上的不断满足。所以它不喜欢变化，只喜欢控制。
+伊斯兰教类比天主教，而且更加渴求垄断和控制力，也不存在多少改革的空间。所以中世纪后也没有了上升的空间，所有剥夺平等、自由权力的体系都最终成于控制，败于控制。在新时代运动看来，每个生命都是神自己，每个生命都从最本质上追求着平等与自由，所有与之相反的事物必不长久。
+日本神道教是一个萨满教，自然崇拜和多神信仰。神道教有一个最显著的特点，就是将一切比自己强的都称为神（KAMI），不论是正是邪。如果无法战胜它，就屈服于它：学习它，模仿它，改进它，超过它，然后消灭它。所以日本的历史也一直这样展现给世界，从西学大唐、明朝入侵到明治维新、侵略世界，都展现出这样的特性，而且日本一直迫切追求着科技进步。
+佛教强调“往生”。它还有“一切诸佛”、“佛在一切中”等高深说法，但是世俗社会记住的或许只有一点——“一切皆虚幻，求往生成佛”，所以所有佛教国家都不太追求进步。
+概念决定思维，思维指导行动创造结果。一个社会文明展现何种形态，追根溯源一定有其独特的信仰在支撑着这个文明的文化思维，从而不断在此基础上为文明添砖加瓦。
+信仰体系决定了文明选择的方向
+为何美国每个关键抉择都是正确的？为何中华每次到了关键抉择都一败涂地？
+美国的体系建立了240多年，立足于“人生而平等，神爱众人”的信仰。每个人都有话语权，每个人都有表达自己合理意愿的空间。整个社会围绕这一概念，不断追索着神的能力与高贵。每当遇到关键决策时，首先想到的是所有人而不是某个人。美国的先贤们在美国成立之初，本着对”神之下人生而平等“这一信仰的理解，慎重考虑了权力与欲望的影响，建立了一个能够自我完善的系统来约束权力与欲望的放纵。整个系统从废除黑奴，到让所有种族同样获得平等权力的努力，一步步在实现着先贤们的理想。在每次重要抉择中都能够站在促进人类整体进步的方向上。当川普总统完全可以以绝对强势手腕获得多数人的支持而胜选的时候，他并没有如此去做。因为还有将近一半的美国人不同意他。他的败选却让全美左右两边的人都站到了同一个认识上来。他的退出让习惯强权思维的中国人完全不能理解。美国也在这样的一次次正确抉择中一步步的强大起来。
+中国的主流信仰是“物质化信仰”。在此概念之下，文化思维必然追求获取最大限度的物质圆满，因此必然选择“官本位”这一社会表现形式。从秦朝统一中原开始，整个社会都一直坚定地贯彻着自己的物质化信仰，中华文化的“官本位”从未改变过。官本位文化强调唯官唯上，社会的资源完全集中在皇族和官员的手中，这样一来才能够保证强权不被动摇；越是上层越掌握资源，越是要求下级通过取悦上级以取得或保有资源；大众只能通过选择依附和赞颂统治者来谋求生存；统治者和大众之间是主与仆的关系，统治者从来不觉得是大众养活自己，相反，他们觉得是自己的施舍养活了大众；官僚系统中，上层同样把下层当作奴仆，同样通过压迫下层官员来实现自己欲望，上层往往在无法调节与大众的关系时，以牺牲下级官员来维持稳定，并且视一切为理所当然；整个文化一定以权力和利益为中心，以权力和利益为驱动，如果涉及权力和利益，大众生死也只不过是手段而已，因此不存在“藏富于民”的可能，驭民五术才是官本位的选择；整个系统就是一个天然内卷体系，一定因为追逐权力和利益，一步一步的蚕食各种社会和经济活动，并最终把自己也吞食殆尽。所以秦一统中国之后的2200多年来，平均118年就会推倒重来一次，而每次的推倒重来，都伴随着针对平民的大屠杀，并且一次比一次惨绝。错误的抉择并不是每118年才有一次，而是当统治者开始大张旗鼓地宣扬儒家思想的时候就开始了，因为儒家思想就是完完全全的官本位思想。它不论鬼神，看似没有信仰，其实，没有信仰就是纯粹的物质信仰，一切只看物资资源的集中，只有物质不断集中才能令中国人感到圆满。每当当政者想要稳固权力或者想要更多权力的时候，错误的抉择必然发生。到了现代，由于科技与资讯的发展，中国人绝对不会再有118年的试错时间。
+概念必然决定思维方式
+儒家思想和马列主义都是唯物主义，而马列主义是更彻底的唯物主义，这是巧合吗？
+华夏文明的物质化信仰，必然会选择一个物质化的思维方式，因为物质化就是它的概念。所以2000年前，华夏文明必然选择儒家文化。当更加彻底的唯物主义——马列主义出现的时候，儒家文化就被以破坏性的手段进行更换掉。然而，只是物质化更进一步而已。
+一切万有如一，一切都是生命在回归整体的过程中的学习。
+地球在这个升扬的关键时刻，以展现生命追求平等自由本质的美国体系和以追求绝对物质化的中华体系之间的对决并非偶然。在亚特兰蒂斯时斯人类已经经历过。追求心灵和追求权力的力量的对决，并且以善于玩弄权力的物质信仰取得了胜利，却以文明完全毁灭为终结。
+地球世代轮回就是要超越物质信仰的桎梏，重新回到理解一切万有如一的爱上来。沉迷于物质信仰实质是停留在爱心标尺的自爱一级，践行一切万有如一则是试图超越自爱与互爱的平衡点，向理解一切万有如一的爱前进，向理解自我神性前进。
+新时代运动坚信，无论灵魂多么沉迷于自私的游戏，最终都将会回到重新理解爱上来。
+
+（文章内容仅代表作者观点）
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-澳喜Logo-4.jpeg)
+
+
++1
