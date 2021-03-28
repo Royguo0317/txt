@@ -1,48 +1,79 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生首爆料：今年一月中美之战在台湾几乎一触即发
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1025910/)
+## 中共一直致力于渗透美国的大学
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1027246/)
 
-在2021年3月15日的盖特视频中，郭先生说1月20日之前国务卿蓬佩奥并没有打算离开国务院；1月13日，中美之间在台湾的大战几乎一触即发，美国许多军事行动也已准备就绪，但是，台湾却临阵退缩，川普总统遂在最后一刻取消了行动，并且给拜登写了一封长长的信，主动移交权力。否则，中共现在已经被推翻！
+新闻来源：Campusreform《校园改革》| 作者：Logan•Washburn| 发布时间：2021年3月26日
+翻译/简评：万能青年| 校对：SilverSpurs7| 审核：万人往| Page：小六月
 
-**郭先生首爆料：今年一月中美之战在台湾几乎一触即发**
+[!\[\]()!\[\](https://spark.adobe.com/page/288smaQIpoyWy/images/a65c2eb5-93c0-44fc-8933-c12555017242.jpg?asset_id=b0c1162e-6698-4c0d-8de1-964fd761dced&amp;img_etag=%22c7dd5dda89357077348c39f5fcd54db7%22&amp;size=1024)](https://spark.adobe.com/page/288smaQIpoyWy/images/a65c2eb5-93c0-44fc-8933-c12555017242.jpg?asset_id=b0c1162e-6698-4c0d-8de1-964fd761dced&amp;img_etag=%22c7dd5dda89357077348c39f5fcd54db7%22&amp;size=1024)
 
-**The US and China Almost Went to A War in Taiwan Before Jan 20**
+**简评：**
 
-请大家想一想，包括到了一月初，美国政府公布，联合国克拉夫特要访问美国内阁成员，要访问台湾。没多少人讲清楚这事。七哥得搂住，七哥得搂住。现在很多人都说，都已经报道了，美国的各种政治网站，美国的CNN，美国的布劳迪克都已经报道出来了，大家也都知道了，包括Breitbart也都出来了，我可以说说啊。第二个大家不要忘了，记住我说的话，到一月，就是1.20前，1月16号我做梦啊，我梦见和蓬佩奥联系，蓬佩奥还没有任何说离开国务院的准备。大家知道为什么？ 我告诉大家。
+**由前谷歌主席埃里克·施密特领导的美国人工智能安全委员会的最新报告指出，与中共国关联的企业一直都在美国大学里运作，收集信息与研究成果。美国大学急需采取措施保护研究成果不被中共国窃取。**
 
-Do you recall in early January, the U.S. government announced that its Ambassador to the United Nations, Kelly Craft, was going to visit Taiwan? A Cabinet member of the U.S. government was going to visit Taiwan, which few people were able to decipher thoroughly. Although I received the information, I could not tell you in advance. Now, many people told me, now that several U.S. newspapers and political websites have already reported it, including CNN and Politico, and people have already been aware of what happened, and Breitbart’s report is out too, so I may talk about what I know now. Also, please don’t forget what I told you around January 20. It was on January 16 that I had a dream. I dreamed that I contacted Pompeo, but he was not ready to leave the State Department at all. Do you know why? Let me tell you.
+**共产党从成立以来一直利用邪恶流氓手段做恶，对内以假治国、以黑治国、以警治国，奴役百姓，扭曲人们的观念；对外以“蓝金黄”渗透各国、各领域、各阶层。如果放任中共继续作恶，人类文明将遭受史无前例的毁灭，法治、自由、公平、正义被假、丑、恶取而代之。**
 
-1月13号那天几乎是中美开战。克拉夫特的飞机在天上，C40B已经在天上，都已经走了，准备去台湾了。日本基地的军队已经全部准备好了，中间所有的海上行线，海里、天上，就是美国外交官出行的护卫，安全保护已经全开始了。而且在日本，在南海的舰队、航空母舰都已经做好了准备，去访问台湾，那肯定军机护航嘛，美国军机护航，那所有的就近的航空母舰，这是美国的一个基本装备，就像我回家一样，外面外保、中保、内保、家里保卫，它一定是通知到位。你看着没啥，它一定是外中内嘛，它一定是这样的，是吧？还有变装的。他们一样，海、空中、亚洲，经过欧洲，这几个区域的军队，它都在防护中嘛，这是一场重大的军事行动，准军事行动，国家行动。
+**华大基因渗透美国校园只是中共窃取技术的冰山一角，现在能在主流媒体发酵，说明美国已经意识到中共的“蓝金黄”手段及危害，期待更多的实锤砸向中共。**
 
-On January 13, the U.S. and China almost went to a war. The C40B aircraft that Kelly Craft was boarded had already taken off and was ready to fly to Taiwan on that day. The Japanese military bases were fully prepared. All relevant sea routes, air routes, escort, and security measures for U.S. diplomats’ traveling had been activated. The U.S. fleet in Japan and the South China Sea, and the U.S. aircraft carriers were ready to visit Taiwan. These were the U.S. military aircrafts to conduct the escort mission. All the nearby aircraft carriers had to be in position. This is a routine procedure. It is like all the security measures taken when I go home. The perimeter security, the middle circle security, the inner circle security, and inside security must be notified and be ready. You may not notice anything special, but all the security bodyguards are ready. In addition, there are also some bodyguards in plain clothes. All their military operations are conducted in a similar pattern. In Asia and throughout Europe, the navy and air forces were standing by for defense. It was a major military, paramilitary, and international operation.
+**原文翻译：**
 
-这时候共产党，这个真的是打电话了，就给你通报，不是跟你商量，明确告诉你，来自于中共中央，军委习大神主席，明确告诉你：“只要是你敢军机进台，我的军机就进台；你航空母舰靠台，我就靠台；你开火，我就开火，台湾开火，我就开火。”
+## 由前谷歌主席领导的国家安全委员会发出警告：中国共产党一直致力于渗透到我们的大学
 
-Then the CCP called, saying, “I am just calling to inform you, not to discuss with you.” What followed were the loud and clear words from their Central Military Commission Chairman, God Xi (Xi Jinping): “If any U.S. military aircraft dares to approach Taiwan, our military aircrafts would do it too. If the U.S. aircraft carriers dare to dock in Taiwan, we would do the same. If either the U.S. or Taiwanese opens fire, the PLA would immediately counterattack.”
+由前谷歌主席埃里克•施密特担任主席的一个委员会的最新报告指出，美国大学急需采取措施保护研究成果不被中共国窃取。
 
-大家不知道，最后是什么？美国并没有退，美国人说：“那就干吧，去吧。”大家都知道，蓬佩奥还有川普总统要的就是这一刻，那怎么办啊？是台湾退了，台湾说：“我求求啊！求求啊！美大神，习大神，你俩都别打了，你看我一个孤家寡人的，我多害怕啊，我台湾经不起折腾啊，我求求别来了！”就这，最后是台湾左求爹，右求娘，求了半天：“你俩别打了，赶快走，你俩我谁也惹不了，再不行我就钻地道去了。”然后美国知道了，中共是真正做好要打仗的准备，是美军最后报给了川普总统，还有国务院。说只要过去，肯定打，100%。最后一分钟谁取消的？川普总统取消的，川普总统取消的，蓬佩奥是绝对不取消的，干吧。没有人知道。
+该报告建议政府加强对学术研究的监督。
 
-Do you know what happened in the end? The U.S. didn’t back down. They said, “Fine, then let’s do it.” Secretary Pompeo and President Trump were waiting for this moment. What happened then? It turned out that Taiwan backed down, and they begged, “Please, American Lord and God Xi, please stop fighting. Can’t you see how scared I am? Taiwan can’t afford a war, and I beg you not to come.” That was it. Taiwan was begging for mercy from both sides, “Please don’t fight or come. We can’t afford to make either of you unhappy. If you insist on coming, then I will have to drill an underground tunnel and hide.” At that moment, the U.S. realized that the CCP was indeed prepared for a war. In the end, the U.S. military reported to President Trump and the State Department that if the U.S. military went to Taiwan, a hundred percent, there would be a war. Who called it off in the last minute? It was President Trump. Pompeo would never call it off because he was ready for a battle. Few people know this.
+[!\[\]()!\[\](https://spark.adobe.com/page/288smaQIpoyWy/images/e3938e16-f76a-40b0-a38c-7222381ff6c5.png?asset_id=0afb1709-86b6-42a4-bb0d-a401b1f7403e&amp;img_etag=%226e6a175f029667dcd04217cbd10f1967%22&amp;size=1024)](https://spark.adobe.com/page/288smaQIpoyWy/images/e3938e16-f76a-40b0-a38c-7222381ff6c5.png?asset_id=0afb1709-86b6-42a4-bb0d-a401b1f7403e&amp;img_etag=%226e6a175f029667dcd04217cbd10f1967%22&amp;size=1024)
 
-我梦见的，我做梦梦见的，我完全是胡扯的。还有道听途说的，我梦见的，就最后那两天，蓬佩奥没有做出离开国务院的准备，是川普总统写了一封热情洋溢的信，给了拜登：“我最后做了什么决定，把权力给你……”很长，可不是那几句话，什么 “Joe, 你知道，我赢了，I’m winner。” 不是这样，这是假的，未来你们会看到，长长的信，等于是川普总统让路给了,他最后只要是决定，一签，“啪”结束了。
+据国家人工智能安全委员会出台的最新报告，美国大学应该马上采取有效措施应对中共国对研发的盗窃行为。
 
-You may think that what I am telling you was all in my dreams, all nonsense [and it is up to you to believe it or not]. Just two days before [January 20] – hearsay or just a dream I had – Pompeo still hadn’t prepared to leave the State Department. Finally, it was President Trump who wrote a passionate, long letter to Biden, “I finally made a decision… I am transferring the power to you…” It was inaccurate that he wrote, “Joe, you know I won. I am the winner.” Maybe someday, this letter will be released. It was President Trump who took the initiative to transfer the power to Biden. If he had signed the order related to Taiwan, the CCP would have been taken down instantly.
+由谷歌前主席埃里克·施密特领导的该组织在报告中说：所有与中共国政府有紧密关系的企业一直都在美国大学里运作，收集信息与研究成果，然后发给中共。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://www.gtv.org/getter/604f6cbd527b920e2d83087e](https://www.gtv.org/getter/604f6cbd527b920e2d83087e) (0:38-5:09)
-鸣谢：
-[1] 感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/978690/](https://gnews.org/zh-hans/978690/)
-[2] 感谢 Mike Li、Antsee-GTV、Liberte提供英文翻译文本于 [https://gnews.org/991193/](https://gnews.org/991193/)
+其中一个项目叫做华大基因，前身为北京基因研究所。
 
-* * *
+[!\[\]()!\[\](https://spark.adobe.com/page/288smaQIpoyWy/images/4d6175ac-7b1f-4938-9cca-364ddef87a86.jpg?asset_id=a648517c-6b53-4f00-b49e-46dc99e78e67&amp;img_etag=%2202900ef2ee5c0295c9727de914fdd5f8%22&amp;size=2560)](https://spark.adobe.com/page/288smaQIpoyWy/images/4d6175ac-7b1f-4938-9cca-364ddef87a86.jpg?asset_id=a648517c-6b53-4f00-b49e-46dc99e78e67&amp;img_etag=%2202900ef2ee5c0295c9727de914fdd5f8%22&amp;size=1024)
 
-整理校对 & 新闻撰写：【7PawBear】校对：【Isaiah4031】【BruhM】字幕：【JennyL】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+该组织的网站声称：“自1999年成立以来，（华大基因）业务遍及全球100多个国家和地区。”该网站还说到，“华大基因已经与数千家不同的机构建立了合作伙伴关系……”
 
-+1
+报告称，华大基因“与多所美国大学有研究联系，包括华盛顿大学和华盛顿州立大学。”然而，华盛顿大学医学院发言人雷拉·格雷（Leila Gray）对《校园改革》说：“华盛顿大学医学院与华大基因没有任何关系。”
+
+哈佛大学的网站上有一个关于华大基因的页面。当被问到是否与华大基因保持何种关系（如果有的话）时，哈佛大学并没有对《校园改革》做出回应。
+
+美国国家人工智能安全委员会对华大基因与中共国政府的密切关系表示担忧。华大基因运营着中国基因库。正如报告中所说，华大基因可以为中共国政府提供“获取世界各地关键人物敏感个人信息的途径”。
+
+哈佛大学化学系负责人于2020年因涉嫌在与中共国政府的关系上向官员撒谎而被起诉。
+
+这所常春藤大学还因从中共国等国家“收受了数亿美元的外国礼物和合同”而接受调查。
+
+该委员会担心，通过与美国大学的这种合作，“华大基因可能有意或无意地成为中共国政府基因数据库的全球收集机制，为中共国提供更多的原始数据和人类基因组样本的多样性。”
+
+美国国家人工智能安全委员会建议国务院“严密监控华大基因的活动，如果华大基因被用作中共国政府的大规模DNA采集设备，它可能会面临额外的美国监管行动。”
+
+美国国家人工智能安全委员会负责战略、通讯与部署的负责人塔拉·瑞格勒（Tara Rigler）告诉《校园改革》，美国大学应该严肃对待这种威胁。
+
+“我们面临的现实是，外国对手正在利用我们开放的研究环境，加速他们的军事和情报系统的发展。特别是中共国，在网络入侵、人才招聘项目等方面进行了多方面的努力，并操纵研究伙伴关系，利用美国政府资助的对人工智能等优先新兴技术的研究，使其成为优势。”瑞格勒说。
+
+正如《校园改革》之前报道的那样，自2020年初以来，多名中共国学生、研究人员和美国大学的教授因涉嫌与中共国政府和情报机构有联系而被捕。比如，加州大学洛杉矶分校（UCLA）的一名研究人员因涉嫌在美国联邦调查局（FBI）调查他将美国敏感数据转移给中共国国防实体时试图处理硬盘而被捕。
+
+为了打击这种窃取敏感信息的行为，美国国家人工智能安全委员会提出了几项建议。
+
+瑞格勒对《校园改革》说：“明确地说，委员会建议国会成立一个政府资助的研发安全卓越中心，要求每个研究资助机构进行合规操作，并规范各机构的拨款流程和数据库，以方便审计。”
+
+她解释说：“美国还应该通过实施一种特殊的签证审查程序，防止有可疑背景的研究人员进入美国。”
+
+[原文链接](https://campusreform.org/article?id=17067)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/288smaQIpoyWy/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/288smaQIpoyWy/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
+
+
+0

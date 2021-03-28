@@ -1,31 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 葡萄牙谴责中共扼杀澳门新闻自由
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1025807/)
+## 爱新疆，我却不敢爱这带血的新疆棉
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1027141/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：文呈|校对：西川stanly |审核：Beicy-数学老师 |Page：小雨
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-27_20-45-43.jpg)[portuguese-american-journal.com](http://portuguese-american-journal.com/travel-first-direct-flight-linking-portugal-to-china-inaugurated-portugal/)
-《香港自由新闻》(Hong Kong Free Press)3月27日报道，上周，葡萄牙政府就中共政府最近对澳门电视和广播进行有争议的审查，发表了一份措辞强硬的声明，呼吁中共遵守其对葡萄牙基本权利的国际条约义务。
+[!\[\]()!\[\](https://spark.adobe.com/page/mfBI0lDctTOwe/images/f408dafa-3a9f-45c4-9d1a-66c8f74c0b9a.jpg?asset_id=3ab90d4f-bd95-420f-96ea-3c0ad00f529e&amp;img_etag=%229e772e63027df6e1737cdcf2a06eb12e%22&amp;size=2560)](https://spark.adobe.com/page/mfBI0lDctTOwe/images/f408dafa-3a9f-45c4-9d1a-66c8f74c0b9a.jpg?asset_id=3ab90d4f-bd95-420f-96ea-3c0ad00f529e&amp;img_etag=%229e772e63027df6e1737cdcf2a06eb12e%22&amp;size=1024)
 
-这一指责是在《香港自由新闻》披露了澳门广播电视股份有限公司（TDM）执行委员会于3月11日向大约40名葡萄牙语和英语记者发布了新的审核规则，要求记者遵守中共官方规定，这引发了里斯本方面自1999年回归以来首次对北京提出尖锐批评。
+H&M有关新疆人权的通告在半年后终于被中共发现。 H&M和新疆棉的事件随着中共大外宣的操作，我的朋友圈也开始纷纷站队。部分”好友”气愤地发出最新动态，截图中BCI (Better Cotton Initiative, 良好棉花发展协会)会员企业名单展示了他的态度，然而左上角VPN的图标让人看到也是哭笑不得。 究竟他聪明的大脑里在想着什么？
 
-新规定指出，记者不仅会被审查并被禁止报道，还会被要求积极支持澳门和中共政府的宣传。规则要求记者“促进爱国主义,尊重和热爱祖国与澳门特别行政区”,拒绝“与中华人民共和国中央政府的政策或意见不一致的信息，支持澳门特别行政区的措施”和支持“爱国者统治香港特别行政区的基本原则”。该声明进一步指出:“澳门广播电视公司是中华人民共和国中央政府及澳门特别行政区的信息传播机构”。记者还被告知，如果他们违反了新的指导方针，他们将被解雇并无权获得赔偿。
+[![](https://spark.adobe.com/page/mfBI0lDctTOwe/images/5bfa1ee1-51ea-44e8-85e7-56976b36d507?asset_id=ccaa2ea8-5f89-4415-9820-a265c3aa6af1&amp;img_etag=%22f15066da5dca72abde1bbee947c6fbe1%22&amp;size=1024)](https://spark.adobe.com/page/mfBI0lDctTOwe/images/5bfa1ee1-51ea-44e8-85e7-56976b36d507?asset_id=ccaa2ea8-5f89-4415-9820-a265c3aa6af1&amp;img_etag=%22f15066da5dca72abde1bbee947c6fbe1%22&amp;size=1024)
 
-自回归以来，面对澳门越来越多的侵犯基本权利的事件，葡萄牙明显持默许态度。但葡萄牙外交部长奥古斯托·桑托斯·席尔瓦(Augusto Santos Silva)这次显然不愿再保持沉默。桑托斯·席尔瓦表示，葡萄牙政府“期待并依赖双方遵守《基本法》的所有条款。”
+我相信各位读者面对这样的处境并不陌生。在某企业被报道有辱华事件后，网友”自发的”撕毁，烧毁用自己的钱买来的商品，只因他们听到中共的一面之词，可事情真的是这样吗？为什么BCI 拒绝认证新疆棉花，为什么H&M 、NIKE 、和Adidas 等企业要作出声明，难道他们不想赚中国人的钱吗？
 
-援引1987年的双边条约,“葡萄牙和中华人民共和国之间关于澳门的联合声明”, 桑托斯·席尔瓦强调葡萄牙希望中共尊重澳门的基本法,尊重当地的新闻自由。他说，“基本法非常清楚在确保新闻自由”。
+[!\[\]()!\[\](https://spark.adobe.com/page/mfBI0lDctTOwe/images/7091a1a9-b115-439a-9a61-7fdb4b803dba.png?asset_id=73ad7722-54d4-4f39-a8b9-335a64b2d9d1&amp;img_etag=%22adfec7e6e4667de5635523934857d505%22&amp;size=1024)](https://spark.adobe.com/page/mfBI0lDctTOwe/images/7091a1a9-b115-439a-9a61-7fdb4b803dba.png?asset_id=73ad7722-54d4-4f39-a8b9-335a64b2d9d1&amp;img_etag=%22adfec7e6e4667de5635523934857d505%22&amp;size=1024)2016年6月1日中共国外长王毅在访问加拿大期间出席新闻发布会时，对一名加拿大记者有关中共国人权问题的傲慢回应。
 
-这是葡萄牙政府20年来首次呼吁中共在基本权利问题上遵守其国际义务。在政治语言上，桑托斯·席尔瓦的言论是强硬的，他不仅要求严格尊重新闻自由，而且要求尊重整个人权。
+新疆究竟发生了什么？实话实说，笔者作为一个中国人，九千六百万平方公里，我还未曾涉足新疆，不了解新疆的情况。但根据王毅公公2016年6月回答记者提问的内容，最了解新疆情况的是新疆人自己，他们有发言权。我看到从新疆出逃的当地人，在世界各地走上街头，为自己和同胞的自由而大声疾呼，他们说出自己看到感受到的真实的新疆。我看到世界各大媒体，对他们的事件进行报道，多国政府对在新疆发生的反人类罪行，宗族灭绝事件的认定。 中共却矢口否认，自赏耳光。一个简单的真相，怎么在中共的口中，却成了“薛定谔的猫”。
 
-澳门当局最近提出的立场，表示澳门没有义务遵守《公民权利和政治权利国际公约》(International Covenant on Civil and Political Rights)，将可能助长事态的发展。
+遥记2012反日游行之后，该买日货的还是照样买。日本在疫情伊始送给中共国的口罩，中共也是照单全收。 还不到八年，中共你怎么就软骨头了呢？
 
-中共政府对香港民主自由的暴力扼杀已经引起世界警醒。基于共同的价值观，民主国家无法再继续容忍中共恶行，先前温顺的葡萄牙政府也加入了国际社会批评中共的行列。
+[!\[\]()!\[\](https://spark.adobe.com/page/mfBI0lDctTOwe/images/394a1cd0-d2d3-4258-925a-efec05b3486f.png?asset_id=a3f13223-0b81-4ae1-8348-9b39c9a02f06&amp;img_etag=%220d3ba560b1a305f27c8ee24c4d23554a%22&amp;size=1024)](https://spark.adobe.com/page/mfBI0lDctTOwe/images/394a1cd0-d2d3-4258-925a-efec05b3486f.png?asset_id=a3f13223-0b81-4ae1-8348-9b39c9a02f06&amp;img_etag=%220d3ba560b1a305f27c8ee24c4d23554a%22&amp;size=1024)
 
-参考链接：
+抗日战争都比这久。
 
-[https://hongkongfp.com/2021/03/27/macau-media-gag-forces-portugal-out-of-its-shell-to-issue-stinging-rebuke-to-china-over-its-obligations/](https://hongkongfp.com/2021/03/27/macau-media-gag-forces-portugal-out-of-its-shell-to-issue-stinging-rebuke-to-china-over-its-obligations/)
+有的网友说，中国人都是鱼的记忆，只有七秒钟。虽是玩笑话，不禁让人想问究竟问题出在哪里了？笔者自有记忆以来便无数次的被教导，小孩儿要听家长的话。我们的家长告诉我们，在学校要听老师的话，在公司要听老板的话。老师告诉我们要听党的话，老板告诉我们要听钱的话。笔者想问题就出在了听话。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/mfBI0lDctTOwe/images/4d433d54-c71f-4080-863b-5b7cd789529b.jpg?asset_id=920ddfe2-65c0-46ef-8d92-47c2d44943ed&amp;img_etag=%2247ef8bfea24063465c9335e677514dd0%22&amp;size=1024)](https://spark.adobe.com/page/mfBI0lDctTOwe/images/4d433d54-c71f-4080-863b-5b7cd789529b.jpg?asset_id=920ddfe2-65c0-46ef-8d92-47c2d44943ed&amp;img_etag=%2247ef8bfea24063465c9335e677514dd0%22&amp;size=1024)
+
+在中共国，从小的教育便一直教育人服从，背诵成了在中共国接受教育的核心思想，背课文，背题型，背答案。学生被要求以成绩分高低，以结果论英雄，却没人在意思考的过程是多么的重要。 人们被要求一口吃成胖子，走路只走最快的那条捷径。 就像那被激素催熟的鸡仔，长得够壮却没什么营养。
+
+就这样一晃几年过去，老百姓在各种”专家”的指导意见下生活，似乎他们才是每个人生活的主角。人们逐渐放弃思考，放弃自己尝试的勇气，放弃了使用人类最引以为傲的大脑。没有人需要思考，也不需要记忆，因为有“专家”，有共产党告诉大家你们需要怎么想。 终于，一个原本健康的孩子变成了一条只有七秒记忆的鱼，一条996只为了温饱的鱼。
+
+但我们是人，而不是鱼。
+
+笔者认为人之所以为人便是拥有思考的能力，拥有辨别是非的能力，拥有属于每个人自己的Critical thinking的权利和义务。无论中共如何“辟谣”，真相永远只有一个。 在这个谎言遍地，洗脑教育，媒体控制的中共国，探寻真相并不容易。中共畏惧老百姓获得独立思考的能力，因为当每一个人都问出为什么的时候，中共七十年以来部下的种种谎言便会显露无疑。 也唯有独立思考才是那盏刺破黑暗的明灯，才能在中共暴毙之际，不成为这段邪恶历史的陪葬品！
+
+*文章仅代表个人观点*
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+
+[点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+
+[欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/mfBI0lDctTOwe/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/mfBI0lDctTOwe/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0
