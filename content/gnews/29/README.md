@@ -1,127 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒溯源问题白宫在等世卫组织报告
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1032487/)
+## 西班牙巴塞罗那喜悦农场：简说历史专栏
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1032524/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+- 西班牙巴塞罗那喜悦农场编辑部
+- 专栏作者：一颗星星
 
-编辑上传  水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/C-22-13.jpg)yalibnan.com
-3月26日CNN重磅播出罗伯特·雷德菲尔德博士（Robert Redfield）中共病毒来源说【1】，震惊了全美，记者立即追问到了白宫新闻发布会，看看白宫新闻秘书普萨基怎样说（以下将白宫新闻简报涉及中共国内容摘译）：【2】
 
-2021年3月26日，新闻秘书詹·普萨基（Jen Psaki）的新闻简报
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-新闻发布会
+**西班牙2021年3月28日电/西喜社——**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/980f248601196f3c.jpg)
+“80后”这个词曾几何时代表了中国的希望与未来，“我们80后”这个短语，每每被人说起时，语气中总是洋溢着满足、自豪和自我优越感。我便是一个生在“改革开放年代”，成长在“红旗”下的“80后”。
 
-新闻简报室
+年少时的我曾经也是一枚十足的“小粉红”，那时的我对“国家”、“民族”、“政府”和“党”的概念及界限是模糊的。每每看到宣传中有有损于“国家”之事时，我和身边的同学、朋友们，总是义愤填膺，乃至热血沸腾。随着年龄的增长，读书的增多，好多疑问浮现在我脑中：“为什么会有文化大革命？”“为何二战之后一贫如洗的日本会发展的如此强大？”“为什么身边的好多人都把出国留学做为最时髦、最向往的目标？”……带着好多“为什么”我度过了高中，进入了大学。
 
-……
+幸运的是，在大学中一个偶然的机会让我也能够到“帝国主义”国家求学，浅尝了“资本主义社会”的“味道”。不幸的是在留学结束之后，满怀精忠报国思想的我被家里安排到了北京，谋得了一份“体制内”的工作。然而，不善于承欢献媚、勾心斗角的我，在干了两年后，便匆匆的离开了。在那个环境还算宽松的年代，我或在网络上，或在朋友帮助下，阅读了些许有别于国内历史教材的书籍，结合曾经的工作经历，我心中的那些“为什么”逐渐解开了。
 
-问：……下面，关于疫情：前CDC主任雷德菲尔德博士今天上午说，他相信病毒来自武汉的实验室，拜登总统是否对病毒的起源有任何看法，或者美国是否就此得出结论？
+学生时代曾经读过奥威尔先生的《1984》，书中那压抑梦幻的场景让我把它当作是一本科幻小说赏读。但是，随着网络时代的大发展，大数据的大推广，中国大陆慢慢的把《1984》逐渐演绎成了现实……2020年初，一场毫无预警的“病毒”席卷世界，在“墙”内，一切都“封”了。在“墙内”苟活的我，在病毒爆发前的一个月，有幸学会了“翻墙”。于是，我便开始在网络中查找这看似不寻常的病毒的各种资讯。趴在“墙头”上的我看到了路德社，知道了“爆料革命”，了解到了郭文贵先生，也知晓了香港同胞们那将会永载史册的奋勇抗争。国内的高压环境让我压抑许久，一向谨言慎行的我彷佛找到了另一片天地，在油管上可以看到各种观点的时事资讯，在推特上可以随心所欲的畅所欲言，在GTV上让我知道了世界上的各个角落有着一群为了正义事业而默默付出的“战友”。“自由”在向我呼唤，“爆料革命”激发了我血液中那潜藏已久的“自由”。我义无反顾的加入到了“爆料革命”的队伍中。
 
-普萨基：嗯，你知道，世卫组织正在研究这个问题，不久将发布一份报告，一旦有了那份报告，我们会再看一遍。
+人类中每一个王朝的诞生与覆灭都写在了历史里。有的人说“历史是由胜利者书写的”，我始终不认同这个观点。因为没有任何一个人或者组织能够永远站在胜利者的位置上去书写历史，更何况那些邪恶的人（或组织）。历史可以由胜利者书写，但是真实的历史永远不会改变。人类的历史中写满了各种阴谋诡计和可歌可泣，但是纵观历史，没有任何人能够阻挡人类向着民主、自由、和谐的生活前进。没有人可以阻挡住滚滚向前的历史“车轮”，没有人可以改写已然发生过的历史事实。那些被邪恶者们修改粉饰过的“肮脏”，也终有一天会重见天日。
 
-我们将继续更多地了解中共病毒疫情开始的最初几天，包括它的起源，以便我们能够更好地为未来的危机做好准备。
+读史使人明智。在一个个写满“教训”的历史故事中，人类始终摆脱不掉“贪、嗔、痴、慢、疑”这五种心魔。在阅读每一个历史故事的过程中，我们只要勤于思考，总能看到问题的本质，或事件、或人物，总是逃不掉天理的轮回。一句“为真不破”道出了人们应该前进的道路和方向。
 
-我知道瓦伦斯基（Walensky）博士谈到了这一点，我认为福奇博士今天上午也谈到了这一点，我们将密切关注随时出现的信息。
+历史是可以借鉴的，昏聩残暴而苟延残喘的中共，像极了“辛丑”中的晚清。“墙内”的高压，已经把百姓的思想洗了又洗。在这激荡浑浊的大时代里，墙内人依旧生活在强国美梦之中。而人类最大的弊病就是“从来不以史为鉴”。
 
-问：总统被告知的观点是由世卫组织的报告，还是他顾问的报告？我是说，他是什么-
+在一片浮华之下，清醒的人是孤独的。但是这种“孤独”却并不孤单，在我的身后，有千千万万个素未谋面的战友们，无时不刻的在努力着、奋斗着。他们用心去呼唤着正义和真相，他们用血去维系着中华民族最后的良知。“爆料革命”的故事，终将会被载入史册源远流长。
 
-普萨基：当然是他的健康和医疗顾问，因此，他们将审查——当然，当报告和更多数据出现时，他们将审查这些内容和人。
+感谢“爆料革命”让我重新认识了世界；感谢“爆料革命”让我参与其中，让我本以为碌碌无为的一生，得到了一次人生的升华。
 
-问：最后一个是关于中共国新疆的强迫劳动，一些公司受到了中共国政府的压力，一些零售商实际上也放弃了不使用该地区强迫劳动生产的产品的承诺。那么，你知道，美国在做什么来阻止或制止中共国对导致这一问题的公司进行的这种威胁呢？
+天地不仁，举世惶惶。居庙堂者全无庙算，处江湖者粪土江山。举目望去，墙内一片歌舞升平。集思细酌，实则饿殍遍野。威威中华早已国将不国……
 
-普萨基：当然，我们一直在密切关注这个问题，大家都知道，我们也采取了强有力的行动，以防止中共国从新疆可怕的侵犯人权行为中获利，并阻止从中共国进口强迫劳动生产的产品。
+万涓成水终究汇流成河，无数次正义的呐喊与呼唤，终将汇聚成惊涛骇浪，激浊扬清，荡尽一切邪恶与污垢。中国和世界必将迎来光明。
 
-美国消费者和世界各地的消费者应该知道，他们的商品是–他们购买的商品不是用强迫劳动制造的，许多公司都在维护消费者的权利。
+特此感谢曾经帮助、激励过我的战友们以及爆料革命和西班牙巴塞喜悦农场，让我找到心的归宿。
 
-我们认为，国际社会应该反对中共国将私营企业依赖市场的行为武器化，以扼杀言论自由，抑制商业道德，所以这是我们密切关注的事情。
+编辑：蚂蚁兄弟；校对：阿伯塔；发稿：神奇四侠
 
-当然，我们已经采取了自己的行动，我希望政府和商业部门今天晚些时候对此有更多要说的。
+- 简说历史专栏：
+- [简说历史：揭露中共世纪骗局史1949~1955：三反、五反](https://gnews.org/zh-hans/977645/)
+- [简说历史：揭露中共世纪骗局史1949~1955：镇反、肃反](https://gnews.org/zh-hans/977597/)
+- [简说历史：揭露中共世纪骗局史1949~1955：“保家卫国”的“抗美援朝”](https://gnews.org/zh-hans/974831/)
+- [简说历史：揭露中共世纪骗局史1949~1955：土地改革](https://gnews.org/zh-hans/972471/)
+- [简说历史：揭露中共世纪骗局史1949~1955：建国初相（2）](https://gnews.org/zh-hans/972448/)
+- [简说历史：揭露中共世纪骗局史1949~1955：建国初相（1）](https://gnews.org/zh-hans/972416/)
 
-问：接着问一下，因为在本届政府的头几个月里，你们似乎一直在传递这样的信息，但事实上，中共国似乎更大胆地威胁这些公司，那么，白宫还能做些什么来阻止他们做出这些威胁呢？
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募-6.jpeg)
 
-普萨基：好吧，我们可以与我们的国际伙伴合作，很明显，正如我所传达的，我们将如何回击中共国对私营企业进行武器化的企图，我们可以像现在这样公开传达，当然也可以参与到私营实体企业中来应对（中共国的）这些企图。
-
-但很多这样的行动将发生在商业上，在某些情况下，还有国务院，再说一次，我希望他们今天晚些时候会有更多的细节要说。
-
-凯特兰（Kaitlan），该你问了。
-
-问：有几个问题，关于世卫组织调查（报告）即将出炉，国家安全顾问杰克·沙利文（Jake Sullivan）几个月前表示，他们对调查的进行方式深感担忧，他们还有哪些深切的担忧吗？
-
-普萨基：部分原因是由于缺乏透明度，而且缺乏–我们无法确保我们能够得到可用的数据，所以出现了延迟，他们实际上推迟了那份报告的发表，我们也支持。我们得看一看，确保我们能获得基本的信息。
-
-问：那么，如果这份报告出来了，而拜登总统对此并不满意，会发生什么呢？
-
-普萨基：是对报告不满意？
-
-问：（没听清）
-
-普萨基：好吧，我们还呼吁进行国际调查，调查发生了什么事，以及起源–不只是起源，我应该说–中共国缺乏透明度，我们已经恢复或是重新组建了我们在北京的团队。
-
-那我们看看报告怎么说，在我们关注的地方，我们会查看底层数据，如果我们可以访问这些数据的话，然后我们必须通过跨部门的程序来决定下一步的行动。（摘译完）
-
-没有查到新上任的CDC主任伦斯基（Walensky）对中共病毒来源的态度，昨天她的表态是等世卫组织的报告，老贼福奇虽然没有明确反对雷德菲尔德博士的“起源武汉说”，但其暗示话语充满了为中共的开脱。
-
-从普萨基的回答获得的信息如下：
-
-1、“但很多这样的行动将发生在商业上，在某些情况下，还有国务院，再说一次，我希望他们今天晚些时候会有更多的细节要说。”说明会对中共国有进一步的制裁行动；
-
-2、世卫组织的调查报告被推迟，或者退回补充，不久会发布；
-
-3、“我们已经恢复或是重新组建了我们在北京的团队”，说明美国在北京有团队，应该是调查团队，还是其他？
-
-相关链接：
-
-【1】https://gnews.org/zh-hans/1023905/
-
-【2】https://www.whitehouse.gov/briefing-room/press-briefings/2021/03/26/press-briefing-by-press-secretary-jen-psaki-march-26-2021/
-
-原文部分：
-
-Q: And then, on the pandemic: Dr. Redfield, the former CDC director, said this morning that he believes that the virus originated from the lab in Wuhan.  Does President Biden have any views on where the virus may have originated, or has the U.S. come to a conclusion on that yet?
-
-MS. PSAKI: Well, as you know, the WHO is examining this and will be releasing a report soon.  We’ll review that report once it’s available.
-
-We continue to learn more about the earliest days of the COVID-19 pandemic, including its origins, so we can better prepare for future crises.
-
-I know Dr. Walensky addressed this and I think Dr. Fauci did as well this morning, and we’ll look closely at that information when it’s available.
-
-Q: Are the President’s views being informed by that WHO report or his advisors?  I mean, what is he–
-
-MS. PSAKI:  By his health and medical advisors, certainly. And so they’ll review — they will be, of course, the people reviewing the reports and more data when it becomes available.
-
-Q: And then, last one on the forced labor in Xinjiang, in China. Some companies have come under pressure from the Chinese government, and some retailers have actually dropped pledges not to use products made with forced labor from that region. So, you know, what is the U.S. doing to stop or deter China from making those kind of threats against companies that have resulted in this problem?
-
-MS. PSAKI: Well, we certainly have been watching this issue closely, as you well know, and we’ve taken our own strong actions in order to prevent China from profiting off of its horrific human rights abuses in Xinjiang and to stop imports of products made with forced labor in China.
-
-American consumers and consumers everywhere deserve to know that their goods are — that the goods they are buying are not made with forced labor, and many companies are standing up for consumers’ rights.
-
-The international community, in our view, should oppose China’s weaponizing of private companies’ dependence on its markets to stifle free expression and inhibit ethical business practices.  So it is something we are watching closely.
-
-We’ve, of course, taken our own action.  I would expect that State and Commerce will have more to say on this later today.
-
-Q：And just one quick follow-up, though.  It’s — because it seems like you’ve been having this message out there for the first couple months of this administration, but it’s — China only seems more emboldened to threaten these companies.  So what more can be done from the White House to try to deter them from making these threats?
-
-MS. PSAKI: Well, we can work with our international partners, obviously, as I conveyed, on how we’re going to push back on China’s efforts to weaponize private companies.  And we can convey publicly, as we are now, and of course engage with private sector entities about these efforts.
-
-But a lot of that action would happen from Commerce and, in some cases, the State Department.  And again, I expect they’ll have more specifics to say later today on this.
-
-Go ahead, Kaitlan.
-
-Q: A few questions.  On the WHO investigation that’s coming out, Jake Sullivan, the National Security Advisor, said a few months ago that they had deep concerns about the way the investigation was being conducted.  Do they still have those deep concerns?
-
-MS. PSAKI: In part because there was a lack of transparency and there was a lack of — we weren’t ensured that we would have access to the data available, so there was a delay.  They actually delayed the release of that report, which we were encouraged by. We’ll have to take a look at it and make sure we have access to the underlying information.
-
-Q: So what happens if the report comes out and President Biden is not satisfied with it?
-
-MS. PSAKI: Not satisfied with the report?
-
-Q: (Inaudible.)
-
-MS. PSAKI:  Well, we’ve also — we’ve also called for an international investigation and look into what’s — what’s happened and the origin — not just the origin, I should say — the lack of transparency from the Chinese.  We have reinstituted or reengaged with — through staffing of our — of our team on the ground in Beijing.
-
-So we’ll see what the report says.  Where we have concerns, we’ll look at the underlying data, if we have access to that.  And then we’ll have to make a determination through an interagency process on what’s next.
 
 0
