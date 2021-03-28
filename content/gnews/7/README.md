@@ -1,27 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快讯！ 中共外交部宣布制裁美加3人及实体
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1028550/)
+## 【每日快讯】27/03/2021:霍尔木兹海峡是共产党企图控制全世界经济，能源供给，中共布局的根本手段。炸掉邮轮，堵住霍尔木兹海峡来对付西方。
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/1028534/)
 
-【日本东京方舟农场】作者：青衣 素材采编：武汉老温 校对：文小律
+**制作:Cantonese工作室**
+**播报：【Annie】 资料整理：【An】【 Ruby 】【闪电】 海报制作：【Penny】【 侬民】
+ 视频制作：【caroline】上传:【星星】**
+摘要:
 
-中共外交部发言人3月27日宣布对美国、加拿大有关人员和实体实施制裁
-
-中共外交部表示，针对美国、加拿大基于谎言和虚假信息，在本月22日对新疆有关人员和实体实施单边制裁的行径，中方决定对美国国际宗教自由委员会主席曼钦、副主席伯金斯，加拿大联邦众议员庄文浩、众议院外委会国际人权小组委员会实施制裁，禁止上述人员入境中国内地及香港、澳门特别行政区，禁止中国公民及机构与上述人员交易或同上述实体往来。 同时，早前中方对美方在涉疆问题上严重损害中方主权和利益人员的制裁仍然有效。
-
-中共外交部还表示，中（共）国政府捍卫国家主权、安全和发展利益的决心坚定不移。 中方敦促有关方面认清形势，纠正错误，停止在涉疆问题上搞政治操弄，停止以任何方式干涉中（共）国内政，不要在错误的道路上越走越远，否则必将玩火自焚。
-
-过去几天，中共再次出动”战狼外交”就新疆人权问题与各国政府和企业对抗。3月22日，中共外交部对欧盟10名人员和4个实体实施制裁，昨天（3月26日），又对英国9名人员和 4个实体实施制裁。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2-130.jpg)
-
-注：本文仅代表作者观点
-
-参考链接：
-
-1.[https://news.rthk.hk/rthk/ch/component/k2/1582935-20210327.htm](https://news.rthk.hk/rthk/ch/component/k2/1582935-20210327.htm)
-
-2.[https://hd.stheadline.com/news/realtime/chi/2033118/%E5%8D%B3%E6%99%82-%E4%B8%AD%E5%9C%8B-%E5%A4%96%E4%BA%A4%E9%83%A8%E5%AE%A3%E5%B8%83%E5%88%B6%E8%A3%81%E7%BE%8E%E5%8A%A03%E4%BA%BA%E5%8F%8A%E5%AF%A6%E9%AB%94](https://hd.stheadline.com/news/realtime/chi/2033118/%E5%8D%B3%E6%99%82-%E4%B8%AD%E5%9C%8B-%E5%A4%96%E4%BA%A4%E9%83%A8%E5%AE%A3%E5%B8%83%E5%88%B6%E8%A3%81%E7%BE%8E%E5%8A%A03%E4%BA%BA%E5%8F%8A%E5%AF%A6%E9%AB%94)
-
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-355.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2-129.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-142.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4-79.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/5-69.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/6-53.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/7-42.jpg)
 0
