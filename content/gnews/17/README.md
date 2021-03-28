@@ -1,41 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 国际社会对中共流氓行为亮拳
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1027279/)
+## 【热点播报】英国最高法院法官预计 管控措施将持续10年之久
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1027339/)
 
-新闻来源：新闻稿 | 作者：新闻稿 | 发布时间：2021年3月23日
-翻译/简评：乡间小路 | 校对：SilverSpurs7 | 审核：Beicy-数学老师 | Page：小六月
-
-[!\[\]()!\[\](https://spark.adobe.com/page/2wlUktmmbUtCy/images/9374dbaa-892d-4039-90ae-492f6683358a.jpg?asset_id=971d582e-5713-4943-be12-31a0042766b1&amp;img_etag=%223206baf93802268a1985e6708a26bd3e%22&amp;size=1024)](https://spark.adobe.com/page/2wlUktmmbUtCy/images/9374dbaa-892d-4039-90ae-492f6683358a.jpg?asset_id=971d582e-5713-4943-be12-31a0042766b1&amp;img_etag=%223206baf93802268a1985e6708a26bd3e%22&amp;size=1024)
-
-**简评：**
-
-**美国、加拿大、英国和欧盟对中共迫害维吾尔人进行联合制裁。美国众议院议长南希·佩洛西对此发表声明称，美国及其盟友在保护维吾尔人人权的立场上是一致的，并表示国会还将采取进一步的立法措施。在声明末尾，佩洛西表达了美国需要为发生在中共国的人权问题发声的必要性——如果美国顾虑同中共之间的商贸问题而保持沉默，美国将失去在世界其它地方为人权发声的道德公信力。**
-
-**世界是一艘大船，每个国家都是这艘船的一部分——有些掌舵引领文明方向，有些鼓帆提供前进的动力。但中共国在中共70年的专制统治下已逐渐发霉腐烂，如果世界对发生在中共治下的环境、生存等危机继续作壁上观，最终结果极有可能是整艘大船到处发霉腐烂。让人安慰的是，世界终于开始对中共这个流氓亮拳了。**
-
-**原文翻译：**
-
-## 佩洛西就国际社会对中共侵犯维吾尔族人权罪进行制裁发表声明
-
-旧金山——众议院议长南希·佩洛西针对美国、加拿大、英国和欧盟共同制裁北京当局对维吾尔族穆斯林的迫害活动——已被美国国会及国会中国委员会列为反人类罪——发表如下声明：
-
-“拜登政府协同实施对中共国的共同制裁，这是朝着追责中共对维吾尔族人的野蛮暴行这一方向迈出了坚定、响亮的一步。这些制裁极为清晰地表明，美国和国际社会在保护维吾尔族人权利和尊严免遭中共任意践踏方面是一致的。”
-
-“中共国对维吾尔族人的迫害——包括在劳动营关押100多万人、拷打、未经法庭宣判的杀害和更多其它手段——这些暴行挑战世界的良知，我们必须采取行动。这些制裁加强了美国国会在两党基础上为致力于向北京当局追责所采取的行动，其中包括去年通过的《维吾尔人权政策法案》。国会将在立法倡议上采取进一步的行动，包括吉姆·麦戈文（Jim McGovern）主席发起的《维吾尔族强迫劳动预防法案》，多伊奇（Deutch）主席发起的《维吾尔族人权保护法案》和国会议员韦克斯顿（Wexton）的《维吾尔族强迫劳动信息披露法案》。”
-
-“美国和我们的盟友一起将继续追责北京当局践踏人权的活动，这包括那些针对西藏人、香港人、新闻记者、人权律师、大陆活动人士的犯罪行为。如果美国顾虑商贸问题而不为发生在中国的人权问题发声，那么我们就失去了在世界其它任何地方为人权发声的道德公信力。”
-
-[原文链接](https://www.speaker.gov/newsroom/32321-2)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
+作者：纽约香草山农场 四季
 
 
-编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/2wlUktmmbUtCy/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/2wlUktmmbUtCy/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+据《[零对冲](https://www.zerohedge.com/covid-19/uk-supreme-court-judge-expects-people-will-be-forced-wear-masks-stay-home-ten-years)》 Zero Hedge 3月27日的报道，英国前最高法院法官萨默普特勋爵（Lord Sumption）警告说，冠状病毒大流行带来的“社会控制”可能会被政府保留长达10年之久。人们将被迫戴上口罩，在家待上十年。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image-398.png)图源网络
+
+萨默普特法官评论说：“指望政府现在反悔，在政治上是不现实的。”他对政府的“极权主义”式的封锁政策提出了强烈批评。 这位法官将这种封锁与第二次世界大战后持续了九年的配给制作了比较，并补充说，这次“我认为可能会更久”。他认为，在1951年的大选中，工党失去了多数席位，完全是因为多了五年的社会控制，而人们对社会控制产生了厌倦。这种情况迟早会在这个国家发生。
+
+萨默普特法官的警告是针对于英格兰公共卫生官员提出的言论——只要其他国家没有为每个人接种疫苗，限制将继续存在，且这个过程可能需要很多年。
+
+尽管英国政府承诺，限制措施将在6月份结束。但昨天，政府已经将冠状病毒紧急法律延长至10月——卫生部长马特-汉考克（Matt Hancock）拒绝透露此后该法律将保持多久。
+
+萨默普特法官还认为，各国政府正在政治上利用该病毒。他还谈到政府对反封锁抗议者的严厉打击，他说：“人们应该有权表达他们的不同意见。对锁定政策持怀疑态度的科学家‘遭受了极其不愉快的个人虐待运动’。”
+
+文章作者警告称，在允许政府开了可以随心所欲的将整个社会置于事实上的软禁之下的先例之后，就会看到这种政策会以不同的理由不断的重复。而这些理由与冠状病毒毫无关系。
+
+封锁就是全球主义者所制定的管控地球的社会控制吧。如果各国的民意都显示对中共病毒大流行规则的强烈支持的话，人类的生活将被彻底改变，这将是人类的悲哀。只有新中国联邦和爆料革命一直在不遗余力的向全世界揭示冠状病毒的真相。只有消灭中共，才能终结肆虐全球一年多的中共病毒，还人类自由与和平。
+
+参考阅读：
+
+[UK Supreme Court Judge Expects People Will Be Forced To Wear Masks, Stay Home For Ten Years](https://www.zerohedge.com/covid-19/uk-supreme-court-judge-expects-people-will-be-forced-wear-masks-stay-home-ten-years)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 0

@@ -1,29 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 澳大利亚要将中共告上WTO
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1025667/)
+## 美太平洋特遣部队将对抗中共的信息战
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1025713/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-27_19-41-12.jpg)[intheblack.com](https://intheblack.com/articles/2015/05/01/is-australia-close-to-china-really)
-卫报报道，澳大利亚贸易部长当地时间周六威胁称，将就中共提高澳大利亚葡萄酒进口关税至多5年的“不合理”决定，向世界贸易组织(WTO)提出申诉。
+编辑   星河   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-27_19-57-05.jpg)[zerohedge.com](https://www.zerohedge.com/technology/tech-war-unfolds-ai-race-erupts-china-could-overtake-us-ai-next-decade)
+美媒报道，美国特种作战司令部(U.S. Special Operations Command)在太平洋地区成立了一支特遣部队，与那里的盟友合作，共同抵抗中共的信息行动。
 
-中共商务部宣布，从周日起，将对从澳大利亚进口的葡萄酒征收116.2%至218.4%的关税。这是中共与堪培拉之间的最新一次较量。澳大利亚贸易部长丹·特汉(Dan Tehan)表示，关税意味着澳大利亚葡萄酒在中共市场“基本上不可能”具有竞争力。澳大利亚总理斯科特·莫里森 (Scott Morrison)指出，这是中共对澳洲蓄意报复的行为。
+特别行动司令部指挥官理查德·克拉克上将在谈到特别工作组的工作时表示，该小组准备与该地区志同道合的伙伴合作，“以压制他们(中共)不断散布的一些虚假信息”，力图挫败中共的信息行动。
 
-特汉在回答记者问是提到，“中共政府做出的这个决定非常令人失望，完全没有道理。”“我们将考虑下一步，这些下一步将包括考虑把这个问题提交给世界贸易组织。”
+由于中共不断增强信息战能力，传播虚假消息，太平洋战区更是中共军方的关注重点。美印度洋-太平洋联合特遣部队将专注于太平洋战区的信息和影响行动， 这是美国军方寻求扼杀中共破坏性影响和信息行动的新方向。
 
-根据澳大利亚政府的数据，2019年澳大利亚对中共国的葡萄酒出口达到创纪录的13亿澳元，使其成为该产品价值最大的市场。上周五，中共商务部表示，在一项调查发现，来自澳大利亚的“进口葡萄酒的倾销和补贴”影响了中共国市场后，它决定征收反倾销税。
+国防部长特别行动助理克里斯托弗·迈尔在众议院军事委员会听证会上指出，中共的虚假信息战引发担忧。“对手使用虚假信息、错误信息和宣传带来了今天的最大挑战之一”， 迈尔说，今天的信息环境使俄罗斯、中共和非国家行为体能够实时接触到全球观众。“凭借先发优势，通过在信息环境中充斥经过深思熟虑和操纵的信息，这些信息大多是经过精心制作的欺骗性内容，而行为者可以获得威胁我们利益的筹码。”
 
-去年末，澳大利亚还呼吁世贸组织调查中共对大麦进口征收的关税，此前澳大利亚对中共国巨大市场实施了一系列经济制裁，或导致澳大利亚产品中断。两国的外交关系已经达到了自中共天安门广场血腥镇压亲民主人士运动以来的最低水平。
+迈尔解释说，国防部将其打击虚假信息、错误信息和宣传的努力集中在四个方面:反击对手的宣传，武力保护，反击对手的虚假信息和海外战略欺骗，以及威慑和破坏对手的影响力。
 
-许多人认为，中共制裁是对澳大利亚阻止中共在澳洲敏感领域投资、并公开呼吁调查中共病毒来源的报复。
+国防部的“向前防御”指令要求网络司令部尽可能接近美国境外网络中的对手，这是打击外国网络并在其抵达美国海岸之前影响行动的关键方面。网络司令部司令保罗·中曾根(Paul Nakasone)周四向参议员解释说，该司令部在2020年大选之前进行了十几次行动，以阻止外国的影响威胁。
 
-澳大利亚总理斯科特·莫里森(Scott Morrison)在悉尼发表讲话，指责北京方面利用关税作为“报复”，并公开表示，澳大利亚与英国首相鲍里斯·约翰逊(Boris Johnson)站在一起。此前，中共对英国和欧盟(EU)的几名人士实施了制裁，原因是他们声援新疆维吾尔族穆斯林少数民族。澳大利亚和新西兰欢迎就维吾尔族虐待问题对中共实施制裁，但澳新暂未因种族灭绝对中共采取行动。
+特种部队司令部因此建立了一个信息战中心，然而，官员们最终解释说，军方只是国家力量压制这些恶意活动的工具之一。虽然对信息或影响行动作出反应是必要的，但这种反应可以是外交或财政上的，而不仅仅是军事行动。这可以是财政部、联邦调查局、司法部、国土安全部协同努力的地方。
 
 参考链接：
 
-[https://www.theguardian.com/australia-news/2021/mar/27/australia-threatens-to-take-china-to-wto-and-backs-boris-johnsons-stance-on-uighur-abuses](https://www.theguardian.com/australia-news/2021/mar/27/australia-threatens-to-take-china-to-wto-and-backs-boris-johnsons-stance-on-uighur-abuses)
+[https://www.c4isrnet.com/information-warfare/2021/03/25/special-operations-team-in-pacific-will-confront-chinese-information-campaigns/](https://www.c4isrnet.com/information-warfare/2021/03/25/special-operations-team-in-pacific-will-confront-chinese-information-campaigns/)
 
 0

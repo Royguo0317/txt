@@ -1,27 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登邀请普京和习近平参加气候谈判
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1027325/)
+## 德意志时讯2021.03.27：新疆种族问题在德语媒体全面发酵
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1027403/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+*《德意志时讯》发表的译文和报道不代表我们认同原文作者的观点，仅供读者了解德国媒体的走向及德国社会状况*
 
-编辑上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-27_23-19-39.jpg)[international.sindonews.com](https://international.sindonews.com/read/377816/42/biden-undang-putin-dan-xi-jinping-ke-ktt-iklim-virtual-1616803436)
-03月26日，白宫新闻处的报道，美国总统拜登已邀请俄罗斯总统普京和中共国国家主席习大神参加气候谈判。会议计划于4月22日至23日举行。预计受全球气候变化影响最大的40多个国家的领导人将出席。
+- 翻译、评论：gogogo4
+- 信息来源：fokus, srf, taz, faz, Spiegel
+- 原文标题：
+[Erstmals seit mehr als 30 JahrenEU verhängt Sanktionen wegen Menschenrechtsverletzungen in China](https://www.focus.de/politik/ausland/erstmals-seit-mehr-als-30-jahren-eu-verhaengt-sanktionen-wegen-menschenrechtsverletzungen-in-china_id_13109504.html)
+[Menschenrechtsverletzungen “Unbegründete Angriffe”: China reagiert auf Schweizer Kritik](https://www.srf.ch/news/schweiz/menschenrechtsverletzungen-unbegruendete-angriffe-china-reagiert-auf-schweizer-kritik)
+[Sanktionen zwischen China und EU :Macht und Moral](https://taz.de/Sanktionen-zwischen-China-und-EU/!5757101/)
+[“UNANGEMESSENE ESKALATION”: Chinas Botschafter zu Gespräch ins Auswärtige Amt geladen](https://www.faz.net/aktuell/politik/ausland/chinas-botschafter-zu-gespraech-ins-auswaertige-amt-geladen-17259544.html)
+[Wegen “Beleidigungen und Drohungen” Frankreich bestellt Chinas Botschafter ein](https://www.spiegel.de/politik/ausland/frankreich-bestellt-chinas-botschafter-nach-kritik-an-forscher-ein-a-a4b024c7-f171-4d1e-ad08-c856281008d5)
 
-这是拜登政府的第一次重大气候谈判。峰会的时间将与当局即将宣布的美国经济现代化减排计划相配合。会议的一个主要目标将是努力降低地球上平均气温的增长。此外，还将动员政府和私营企业为零碳排放筹集资金。
 
-美联社写道，拜登有意邀请参加会谈的不仅仅是他的国际伙伴。“考虑到这个问题对世界其他地区是多么重要，我们应该准备好在高级别上进行谈判。”
+本周德语媒体有关中共的报道很多，内容和观点类似，不过“类似的”又和从前不同，是让人欣慰的不同：
 
-美国前川普总统（Donald Trump）对人类活动引起的全球气候变化导致更频繁、更严重的自然灾害的说法表示怀疑。川普作为总统的第一个决定之一就是退出2015年巴黎气候协议。拜登曾把回归气候议程作为其竞选议程的重要项目之一。
+-“30多年来欧盟首次对中国侵犯人权行为实施制裁”。fokus在此报道中提到了，欧盟决定对压迫新疆维吾尔族的责任人采取惩罚措施；中共国对欧盟官员及在华研究所实施反制裁；中共国驻欧盟大使张明对欧盟的尖锐批评；德国外长表示，他正在推动对中共国实施制裁
 
-在1月21日就职后的几个小时内，拜登就撤销了川普的几项行政命令，包括签署了一份让美国重返《巴黎气候协定》的文件。一个月后，它开始生效。
+-“中共国回应瑞士的批评：侵犯人权行为是’毫无根据的攻击’”。srf的这篇报道中写道，中共驻瑞士大使王世廷表示瑞士向外界发出了错误信号，并称有关新疆劳改营和强迫劳动的报道纯属恶意政治炒作；但最后仍然表示中共国对中瑞继续进行人权对话和自由贸易协定持开放态度
 
-联合国秘书长安东尼奥·古特雷斯赞同白宫的决定。“我热烈欢迎拜登总统重新加入《巴黎气候变化协定》的举动。”
+-“中共国与欧盟之间的制裁：权力与道德”。taz表示，欧盟对中共国的制裁来的太晚；2020年底的欧中投资保护协议中没能涉及到有关维吾尔族人强迫劳动的问题，大众汽车也在新疆投资；中共国目前对欧洲的报复性制裁比欧洲的严厉
 
-据悉，今年3月在美国安克雷奇市举行会谈后，中美双方同意成立联合工作组，应对气候变化。
+-“德国联邦外交部召见中共国大使”。据faz报道，德国国务秘书向中共国大使吴恳表示，中共国的反制是一种升级紧张形势的行为
 
-参考链接：https://www.rbc.ru/politics/26/03/2021/605e2e2a9a7947d073575902
+-“因为‘侮辱和威胁’，法国召见中共国大使”。Spiegel指出，法国外交部指责中共国大使卢沙野对其外交官的侮辱和威胁，并要求其澄清此事
 
-0
+**评论：**中共与西方关系急转直下，离不开总加速师的助力。“新疆种族灭绝”这个抓手已经握稳，接下来随着全球经济走向崩溃边缘，各国政府都需要找人来背锅，那么从我们新中国联邦手中接过“疫情来源真相”这个抓手就刻不容缓。灭共进入读秒阶段。
+
++2
