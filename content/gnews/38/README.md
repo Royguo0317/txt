@@ -1,31 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 葡萄牙谴责中共扼杀澳门新闻自由
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1025807/)
+## 【热点播报】“新疆血棉”闹剧，中共把对自己的“种族灭绝”和“反人类罪”指控，偷换为“强制劳动”
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1025934/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+作者：纽约香草山健身部 Jack Li文阳
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-27_20-45-43.jpg)[portuguese-american-journal.com](http://portuguese-american-journal.com/travel-first-direct-flight-linking-portugal-to-china-inaugurated-portugal/)
-《香港自由新闻》(Hong Kong Free Press)3月27日报道，上周，葡萄牙政府就中共政府最近对澳门电视和广播进行有争议的审查，发表了一份措辞强硬的声明，呼吁中共遵守其对葡萄牙基本权利的国际条约义务。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
-这一指责是在《香港自由新闻》披露了澳门广播电视股份有限公司（TDM）执行委员会于3月11日向大约40名葡萄牙语和英语记者发布了新的审核规则，要求记者遵守中共官方规定，这引发了里斯本方面自1999年回归以来首次对北京提出尖锐批评。
 
-新规定指出，记者不仅会被审查并被禁止报道，还会被要求积极支持澳门和中共政府的宣传。规则要求记者“促进爱国主义,尊重和热爱祖国与澳门特别行政区”,拒绝“与中华人民共和国中央政府的政策或意见不一致的信息，支持澳门特别行政区的措施”和支持“爱国者统治香港特别行政区的基本原则”。该声明进一步指出:“澳门广播电视公司是中华人民共和国中央政府及澳门特别行政区的信息传播机构”。记者还被告知，如果他们违反了新的指导方针，他们将被解雇并无权获得赔偿。
 
-自回归以来，面对澳门越来越多的侵犯基本权利的事件，葡萄牙明显持默许态度。但葡萄牙外交部长奥古斯托·桑托斯·席尔瓦(Augusto Santos Silva)这次显然不愿再保持沉默。桑托斯·席尔瓦表示，葡萄牙政府“期待并依赖双方遵守《基本法》的所有条款。”
+近日，中共国国内各大媒体铺天盖地地报道了一系列新疆血棉新闻，中共把国际社会指控其在新疆建维吾尔族集中营，犯下种族灭绝和反人类罪，偷梁换柱，偷偷换成“强制劳工”“强制劳动”。
 
-援引1987年的双边条约,“葡萄牙和中华人民共和国之间关于澳门的联合声明”, 桑托斯·席尔瓦强调葡萄牙希望中共尊重澳门的基本法,尊重当地的新闻自由。他说，“基本法非常清楚在确保新闻自由”。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/图片39.png)图片来源：路透社
 
-这是葡萄牙政府20年来首次呼吁中共在基本权利问题上遵守其国际义务。在政治语言上，桑托斯·席尔瓦的言论是强硬的，他不仅要求严格尊重新闻自由，而且要求尊重整个人权。
+据墙内报道：美国鞋业公司SKECHERS（斯凯奇）在《斯凯奇关于维吾尔人的声明》中表示，该公司对中国供应商进行独立调查后，并没有发现所谓的“强制劳工”。然后翻炒了战狗发言人赵立坚在1月14日中共外交部例行记者会上表示的，所谓“强迫劳动”问题完全是美国等个别西方国家、机构和人员凭空捏造出来的“世纪谎言”。
 
-澳门当局最近提出的立场，表示澳门没有义务遵守《公民权利和政治权利国际公约》(International Covenant on Civil and Political Rights)，将可能助长事态的发展。
+另据路透社东京3月25日报道，经营无印良品品牌的日本良品7453.T表示，“非常关切”中国新疆地区强制劳动的报导。
 
-中共政府对香港民主自由的暴力扼杀已经引起世界警醒。基于共同的价值观，民主国家无法再继续容忍中共恶行，先前温顺的葡萄牙政府也加入了国际社会批评中共的行列。
+2020年9月，美国众议院通过《防止维吾尔强制法案》，禁止从新疆进口商品。川普政府2021年1月19日宣布，中国在新疆对维吾尔人犯下了种族灭绝和反人类罪。前美国国务卿蓬佩奥在推特上说：“我决定，中共国在新疆针对维吾尔穆斯林和其他宗教和少数族裔犯下了种族灭族和反人类罪。这些行为是对中国人民和世界各地所有文明国家的侮辱。中共必须被问责。”
 
-参考链接：
+这次，中共想再次利用其强大的宣传机器和被其绑架的现代义和团，碰瓷式高调翻炒旧文，避重就轻，企图转移视线。对内蒙蔽人民，掩盖近期中共在国际上有如丧家犬，人人喊打的窘境。对外，高调地东拉西扯一大帮西方国际企业，吸引国际眼球，目的也是企图把美国和西方对其种族灭绝和反人类罪指控，偷换概念成强制劳动，并企图利用国际企业来向西方各国政府施压。其更深层的目的是掩盖病毒真相，逃避国际追责。
 
-[https://hongkongfp.com/2021/03/27/macau-media-gag-forces-portugal-out-of-its-shell-to-issue-stinging-rebuke-to-china-over-its-obligations/](https://hongkongfp.com/2021/03/27/macau-media-gag-forces-portugal-out-of-its-shell-to-issue-stinging-rebuke-to-china-over-its-obligations/)
+有新中国联邦在，有爆料革命在，中共的一切掩盖真相的企图都是徒劳。
+
+新闻来源：
+
+[https://news.163.com/21/0327/08/G634QN1K0001899O.html](https://news.163.com/21/0327/08/G634QN1K0001899O.html)
+
+[https://www.reuters.com/article/japan-muji-xinjiang-cotton-0325-idCNKBS2BH1LQ](https://www.reuters.com/article/japan-muji-xinjiang-cotton-0325-idCNKBS2BH1LQ)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-2.jpg)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

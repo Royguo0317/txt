@@ -1,29 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国指责中共因维吾尔族问题抵制西方品牌
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1027264/)
+## 德意志时讯2021.03.27：新疆种族问题在德语媒体全面发酵
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1027403/)
 
-俄罗斯莫斯科喀秋莎农场  洛夫斯基灭CCP
+*《德意志时讯》发表的译文和报道不代表我们认同原文作者的观点，仅供读者了解德国媒体的走向及德国社会状况*
 
-编辑上传    银河
-![]()![](https://cdn.discordapp.com/attachments/820270844600909864/825414449975787561/0001-18941597807_20210328_010141_0000.png)俄罗斯莫斯科喀秋莎农场 文宣
-03月27日，中共在国家层面正在抵制拒绝使用新疆维吾尔族种植的棉花的外国公司。来自彭博社的报道，美国务院副发言人贾丽娜·波特在一次发布会称，
+- 翻译、评论：gogogo4
+- 信息来源：fokus, srf, taz, faz, Spiegel
+- 原文标题：
+[Erstmals seit mehr als 30 JahrenEU verhängt Sanktionen wegen Menschenrechtsverletzungen in China](https://www.focus.de/politik/ausland/erstmals-seit-mehr-als-30-jahren-eu-verhaengt-sanktionen-wegen-menschenrechtsverletzungen-in-china_id_13109504.html)
+[Menschenrechtsverletzungen “Unbegründete Angriffe”: China reagiert auf Schweizer Kritik](https://www.srf.ch/news/schweiz/menschenrechtsverletzungen-unbegruendete-angriffe-china-reagiert-auf-schweizer-kritik)
+[Sanktionen zwischen China und EU :Macht und Moral](https://taz.de/Sanktionen-zwischen-China-und-EU/!5757101/)
+[“UNANGEMESSENE ESKALATION”: Chinas Botschafter zu Gespräch ins Auswärtige Amt geladen](https://www.faz.net/aktuell/politik/ausland/chinas-botschafter-zu-gespraech-ins-auswaertige-amt-geladen-17259544.html)
+[Wegen “Beleidigungen und Drohungen” Frankreich bestellt Chinas Botschafter ein](https://www.spiegel.de/politik/ausland/frankreich-bestellt-chinas-botschafter-nach-kritik-an-forscher-ein-a-a4b024c7-f171-4d1e-ad08-c856281008d5)
 
-由中共当局监督的社交网络开始有针对性的信息活动，抵制那些不想购买在新疆自治区收获的棉花，并认为该自治区的产品是用奴隶劳动生产的外国企业。
 
-“这相当于企业和消费者的抵制。”国务院发言人说。
+本周德语媒体有关中共的报道很多，内容和观点类似，不过“类似的”又和从前不同，是让人欣慰的不同：
 
-据路透社报道，中共国社交媒体呼吁用户放弃购买服装品牌H&M、耐克和阿迪达斯，这些品牌的生产工厂已经停止购买新疆棉。北京表示，这种决定将主要给企业自身造成损失。
+-“30多年来欧盟首次对中国侵犯人权行为实施制裁”。fokus在此报道中提到了，欧盟决定对压迫新疆维吾尔族的责任人采取惩罚措施；中共国对欧盟官员及在华研究所实施反制裁；中共国驻欧盟大使张明对欧盟的尖锐批评；德国外长表示，他正在推动对中共国实施制裁
 
-美国、欧盟和英国认为，中共国正在迫害居住在新疆维吾尔自治区的维吾尔族穆斯林。因此，西方国家联合对中共国进行了制裁。
+-“中共国回应瑞士的批评：侵犯人权行为是’毫无根据的攻击’”。srf的这篇报道中写道，中共驻瑞士大使王世廷表示瑞士向外界发出了错误信号，并称有关新疆劳改营和强迫劳动的报道纯属恶意政治炒作；但最后仍然表示中共国对中瑞继续进行人权对话和自由贸易协定持开放态度
 
-2018年，联合国说，中共国当局把少数民族赶进集中营，强迫他们工作。该组织的专家报告说，至少有300万维吾尔族人被关押在这种营地。
+-“中共国与欧盟之间的制裁：权力与道德”。taz表示，欧盟对中共国的制裁来的太晚；2020年底的欧中投资保护协议中没能涉及到有关维吾尔族人强迫劳动的问题，大众汽车也在新疆投资；中共国目前对欧洲的报复性制裁比欧洲的严厉
 
-3月，中美代表团在安克雷奇举行会谈时，美国国务卿安东尼·布林肯说，中共国在新疆的行动“威胁到维护全球稳定的基于规则的秩序”。随后，欧盟对几名来自自治区的中共国官员进行了制裁。北京做出了镜像回应，宣布因欧盟干涉内政而对一些欧洲公民和组织进行限制。
+-“德国联邦外交部召见中共国大使”。据faz报道，德国国务秘书向中共国大使吴恳表示，中共国的反制是一种升级紧张形势的行为
 
-欧盟外交主管约瑟普·博雷尔（Josep Borrell）称中共国的制裁是不可接受的，并敦促中共国进行对话，而不是对抗。他说，欧盟将继续保护人权，并对侵犯人权的行为做出反应，无论其发生在哪里。
+-“因为‘侮辱和威胁’，法国召见中共国大使”。Spiegel指出，法国外交部指责中共国大使卢沙野对其外交官的侮辱和威胁，并要求其澄清此事
 
-参考链接：https://www.rbc.ru/politics/27/03/2021/605e7e439a7947e489e5edf0
+**评论：**中共与西方关系急转直下，离不开总加速师的助力。“新疆种族灭绝”这个抓手已经握稳，接下来随着全球经济走向崩溃边缘，各国政府都需要找人来背锅，那么从我们新中国联邦手中接过“疫情来源真相”这个抓手就刻不容缓。灭共进入读秒阶段。
 
-0
++2

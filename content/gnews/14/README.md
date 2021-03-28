@@ -1,33 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德意志时讯2021.03.27：新疆种族问题在德语媒体全面发酵
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1027403/)
+## 【世事解评】中共国的人口结构崩溃即将到来
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1027459/)
 
-*《德意志时讯》发表的译文和报道不代表我们认同原文作者的观点，仅供读者了解德国媒体的走向及德国社会状况*
-
-- 翻译、评论：gogogo4
-- 信息来源：fokus, srf, taz, faz, Spiegel
-- 原文标题：
-[Erstmals seit mehr als 30 JahrenEU verhängt Sanktionen wegen Menschenrechtsverletzungen in China](https://www.focus.de/politik/ausland/erstmals-seit-mehr-als-30-jahren-eu-verhaengt-sanktionen-wegen-menschenrechtsverletzungen-in-china_id_13109504.html)
-[Menschenrechtsverletzungen “Unbegründete Angriffe”: China reagiert auf Schweizer Kritik](https://www.srf.ch/news/schweiz/menschenrechtsverletzungen-unbegruendete-angriffe-china-reagiert-auf-schweizer-kritik)
-[Sanktionen zwischen China und EU :Macht und Moral](https://taz.de/Sanktionen-zwischen-China-und-EU/!5757101/)
-[“UNANGEMESSENE ESKALATION”: Chinas Botschafter zu Gespräch ins Auswärtige Amt geladen](https://www.faz.net/aktuell/politik/ausland/chinas-botschafter-zu-gespraech-ins-auswaertige-amt-geladen-17259544.html)
-[Wegen “Beleidigungen und Drohungen” Frankreich bestellt Chinas Botschafter ein](https://www.spiegel.de/politik/ausland/frankreich-bestellt-chinas-botschafter-nach-kritik-an-forscher-ein-a-a4b024c7-f171-4d1e-ad08-c856281008d5)
+作者：纽约香草山农场 四季
 
 
-本周德语媒体有关中共的报道很多，内容和观点类似，不过“类似的”又和从前不同，是让人欣慰的不同：
 
--“30多年来欧盟首次对中国侵犯人权行为实施制裁”。fokus在此报道中提到了，欧盟决定对压迫新疆维吾尔族的责任人采取惩罚措施；中共国对欧盟官员及在华研究所实施反制裁；中共国驻欧盟大使张明对欧盟的尖锐批评；德国外长表示，他正在推动对中共国实施制裁
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
--“中共国回应瑞士的批评：侵犯人权行为是’毫无根据的攻击’”。srf的这篇报道中写道，中共驻瑞士大使王世廷表示瑞士向外界发出了错误信号，并称有关新疆劳改营和强迫劳动的报道纯属恶意政治炒作；但最后仍然表示中共国对中瑞继续进行人权对话和自由贸易协定持开放态度
 
--“中共国与欧盟之间的制裁：权力与道德”。taz表示，欧盟对中共国的制裁来的太晚；2020年底的欧中投资保护协议中没能涉及到有关维吾尔族人强迫劳动的问题，大众汽车也在新疆投资；中共国目前对欧洲的报复性制裁比欧洲的严厉
 
--“德国联邦外交部召见中共国大使”。据faz报道，德国国务秘书向中共国大使吴恳表示，中共国的反制是一种升级紧张形势的行为
+3月25日，《[零对冲](https://www.zerohedge.com/geopolitical/coming-demographic-collapse-china)》Zero Hedge对中共国的人口结构做了报道并预言，在没有战争和疾病的情况下，本世纪的中共国将经历历史上最剧烈的人口崩溃。 目前，中共国的人口是美国的4倍多。到2100年，美国的人口可能会超过中共国。
 
--“因为‘侮辱和威胁’，法国召见中共国大使”。Spiegel指出，法国外交部指责中共国大使卢沙野对其外交官的侮辱和威胁，并要求其澄清此事
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image-401.png)图源网络
 
-**评论：**中共与西方关系急转直下，离不开总加速师的助力。“新疆种族灭绝”这个抓手已经握稳，接下来随着全球经济走向崩溃边缘，各国政府都需要找人来背锅，那么从我们新中国联邦手中接过“疫情来源真相”这个抓手就刻不容缓。灭共进入读秒阶段。
+中共国对自己是世界上人口最多的国家之一感到非常自豪。北京（中共）报告称，2019年中共国人口在上一年的13.9亿之上增加到了14亿。
 
-+2
+不过，有些人对中共国的总人口数字持怀疑态度。威斯康星大学麦迪逊分校的科学家易富贤（Yi Fuxian）告诉《国家利益》，2020年的中（共）国可能仅拥有12.6亿人口。显然，这位著名的人口学家并不认为这个数字可能超过12.8亿。
+
+易富贤认为，中（共）国的人口信息是不精确的。中共国家卫生和计划生育委员会官员的报告夸大了出生人数——因为如果公布真实的出生人数，该机构被会被取消。市政府、地方教育部门和医院一直都在夸大中（共）国的出生人数还有另一个原因，即为了获得补贴或维持预算拨款。
+
+北京在2016年初就取消了臭名昭著的“独生子女”政策——这或许是历史上最雄心勃勃的社会工程。当年，中共曾出现过生育高峰，但此后出生人数逐年下降。
+
+北京尚未公布去年的出生人数，但早期的数据显示，从2019年开始，北京的出生人数急剧下降。去年户籍户口系统中的出生人数骤降14.9%，为1.035万。由于按照这个系统登记的出生人数占总出生人数的80%左右，人口学家何亚夫估计，去年全国总出生人数为1254万。
+
+易富贤先生认为，实际上全国的出生人数约为800万，不可能超过1000万。各省和其他政府单位在人口普查前就已经上报了数据，有些地方的出生人口下降了30%以上。
+
+现今最大的问题是中（共）国的发展轨迹。官方媒体对一个关键数字讳莫如深，即该国的总生育率：一般是指每个达到生育年龄的女性的子女数量。据中共官方的《中国日报》报道说，北京大学的陆杰华（Lu Jiehua）认为，中（共）国的总生育率（TFR）“已经跌破了1.7”。
+
+易富贤先生告诉跨国研究所（TNI），中（共）国去年的总生育率TFR是0.90，不可能超过1.1。易富贤的估计偏低，但与《中国日报》2015年1.05的报道一致。
+
+无论如何，中共国的人口将快速萎缩。中共国社会科学院预测，如果总生育率TFR从1.6降到1.3，到2100年，中（共）国的人口将减少一半。然而，中（共）国的总生育率TFR远低于1.3。如果中（共）国的总人口比例能稳定在1.2-1.2，将是一个巨大的增长。但按照目前的情况，到本世纪末，中（共）国的人口将只有4.8亿。
+
+“中（共）国现在出现了危机。”何亚夫对中共《环球时报》说，一旦总出生率滑落到1.5以下，一个国家就会陷入低生育率的陷阱，不可能恢复。目前，中共国已经远远低于这个数字。
+
+中共把“计划生育”当作国策，践踏人权，也使中共国已经快速进入人口老龄化社会。中共国的人口数据造假，害己害人。不知道中共想怎样继续已知的“中（共）国文明”。
+
+参考阅读：
+
+[The Coming Demographic Collapse Of China](https://www.zerohedge.com/geopolitical/coming-demographic-collapse-china)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-g-fashion-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
++1

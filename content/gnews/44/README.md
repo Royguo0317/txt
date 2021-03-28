@@ -1,29 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美太平洋特遣部队将对抗中共的信息战
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1025713/)
+## 葡萄牙谴责中共扼杀澳门新闻自由
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1025807/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑   星河   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-27_19-57-05.jpg)[zerohedge.com](https://www.zerohedge.com/technology/tech-war-unfolds-ai-race-erupts-china-could-overtake-us-ai-next-decade)
-美媒报道，美国特种作战司令部(U.S. Special Operations Command)在太平洋地区成立了一支特遣部队，与那里的盟友合作，共同抵抗中共的信息行动。
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-27_20-45-43.jpg)[portuguese-american-journal.com](http://portuguese-american-journal.com/travel-first-direct-flight-linking-portugal-to-china-inaugurated-portugal/)
+《香港自由新闻》(Hong Kong Free Press)3月27日报道，上周，葡萄牙政府就中共政府最近对澳门电视和广播进行有争议的审查，发表了一份措辞强硬的声明，呼吁中共遵守其对葡萄牙基本权利的国际条约义务。
 
-特别行动司令部指挥官理查德·克拉克上将在谈到特别工作组的工作时表示，该小组准备与该地区志同道合的伙伴合作，“以压制他们(中共)不断散布的一些虚假信息”，力图挫败中共的信息行动。
+这一指责是在《香港自由新闻》披露了澳门广播电视股份有限公司（TDM）执行委员会于3月11日向大约40名葡萄牙语和英语记者发布了新的审核规则，要求记者遵守中共官方规定，这引发了里斯本方面自1999年回归以来首次对北京提出尖锐批评。
 
-由于中共不断增强信息战能力，传播虚假消息，太平洋战区更是中共军方的关注重点。美印度洋-太平洋联合特遣部队将专注于太平洋战区的信息和影响行动， 这是美国军方寻求扼杀中共破坏性影响和信息行动的新方向。
+新规定指出，记者不仅会被审查并被禁止报道，还会被要求积极支持澳门和中共政府的宣传。规则要求记者“促进爱国主义,尊重和热爱祖国与澳门特别行政区”,拒绝“与中华人民共和国中央政府的政策或意见不一致的信息，支持澳门特别行政区的措施”和支持“爱国者统治香港特别行政区的基本原则”。该声明进一步指出:“澳门广播电视公司是中华人民共和国中央政府及澳门特别行政区的信息传播机构”。记者还被告知，如果他们违反了新的指导方针，他们将被解雇并无权获得赔偿。
 
-国防部长特别行动助理克里斯托弗·迈尔在众议院军事委员会听证会上指出，中共的虚假信息战引发担忧。“对手使用虚假信息、错误信息和宣传带来了今天的最大挑战之一”， 迈尔说，今天的信息环境使俄罗斯、中共和非国家行为体能够实时接触到全球观众。“凭借先发优势，通过在信息环境中充斥经过深思熟虑和操纵的信息，这些信息大多是经过精心制作的欺骗性内容，而行为者可以获得威胁我们利益的筹码。”
+自回归以来，面对澳门越来越多的侵犯基本权利的事件，葡萄牙明显持默许态度。但葡萄牙外交部长奥古斯托·桑托斯·席尔瓦(Augusto Santos Silva)这次显然不愿再保持沉默。桑托斯·席尔瓦表示，葡萄牙政府“期待并依赖双方遵守《基本法》的所有条款。”
 
-迈尔解释说，国防部将其打击虚假信息、错误信息和宣传的努力集中在四个方面:反击对手的宣传，武力保护，反击对手的虚假信息和海外战略欺骗，以及威慑和破坏对手的影响力。
+援引1987年的双边条约,“葡萄牙和中华人民共和国之间关于澳门的联合声明”, 桑托斯·席尔瓦强调葡萄牙希望中共尊重澳门的基本法,尊重当地的新闻自由。他说，“基本法非常清楚在确保新闻自由”。
 
-国防部的“向前防御”指令要求网络司令部尽可能接近美国境外网络中的对手，这是打击外国网络并在其抵达美国海岸之前影响行动的关键方面。网络司令部司令保罗·中曾根(Paul Nakasone)周四向参议员解释说，该司令部在2020年大选之前进行了十几次行动，以阻止外国的影响威胁。
+这是葡萄牙政府20年来首次呼吁中共在基本权利问题上遵守其国际义务。在政治语言上，桑托斯·席尔瓦的言论是强硬的，他不仅要求严格尊重新闻自由，而且要求尊重整个人权。
 
-特种部队司令部因此建立了一个信息战中心，然而，官员们最终解释说，军方只是国家力量压制这些恶意活动的工具之一。虽然对信息或影响行动作出反应是必要的，但这种反应可以是外交或财政上的，而不仅仅是军事行动。这可以是财政部、联邦调查局、司法部、国土安全部协同努力的地方。
+澳门当局最近提出的立场，表示澳门没有义务遵守《公民权利和政治权利国际公约》(International Covenant on Civil and Political Rights)，将可能助长事态的发展。
+
+中共政府对香港民主自由的暴力扼杀已经引起世界警醒。基于共同的价值观，民主国家无法再继续容忍中共恶行，先前温顺的葡萄牙政府也加入了国际社会批评中共的行列。
 
 参考链接：
 
-[https://www.c4isrnet.com/information-warfare/2021/03/25/special-operations-team-in-pacific-will-confront-chinese-information-campaigns/](https://www.c4isrnet.com/information-warfare/2021/03/25/special-operations-team-in-pacific-will-confront-chinese-information-campaigns/)
+[https://hongkongfp.com/2021/03/27/macau-media-gag-forces-portugal-out-of-its-shell-to-issue-stinging-rebuke-to-china-over-its-obligations/](https://hongkongfp.com/2021/03/27/macau-media-gag-forces-portugal-out-of-its-shell-to-issue-stinging-rebuke-to-china-over-its-obligations/)
 
 0
