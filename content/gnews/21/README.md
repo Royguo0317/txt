@@ -1,127 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒溯源问题白宫在等世卫组织报告
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1032487/)
+## 美国前疾控中心主任接受CNN专访：病毒来自中共实验室
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1032514/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+新闻来源：WKYT | 作者：CNN记者| 发布时间：2021年3月27日
 
-编辑上传  水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/C-22-13.jpg)yalibnan.com
-3月26日CNN重磅播出罗伯特·雷德菲尔德博士（Robert Redfield）中共病毒来源说【1】，震惊了全美，记者立即追问到了白宫新闻发布会，看看白宫新闻秘书普萨基怎样说（以下将白宫新闻简报涉及中共国内容摘译）：【2】
+翻译/简评：Victory |校对：Beicy-数学老师 |审核：万人往|Page：小雨
 
-2021年3月26日，新闻秘书詹·普萨基（Jen Psaki）的新闻简报
+[!\[\]()!\[\](https://spark.adobe.com/page/DHzmg1EJlJWex/images/67f90c7f-797e-48a3-b9de-46162d4e965e.jpg?asset_id=5411d02b-0b4e-46ca-b965-42468cdad1bf&amp;img_etag=%22d132ae13209646ab8224bc088d9e95c4%22&amp;size=1024)](https://spark.adobe.com/page/DHzmg1EJlJWex/images/67f90c7f-797e-48a3-b9de-46162d4e965e.jpg?asset_id=5411d02b-0b4e-46ca-b965-42468cdad1bf&amp;img_etag=%22d132ae13209646ab8224bc088d9e95c4%22&amp;size=1024)
 
-新闻发布会
+**简评：**
 
-新闻简报室
+病毒来源真相是最终让中共灭亡的引爆点，左媒CNN此前基本未对中共病毒来源事实做出报道。在此时播出对美国前疾控中心主任兼病毒专家的专访，这是美国左派做出的选择，也是左派和右派联手灭共的标志之一。
 
-……
+前CDC主任雷德菲尔德博士采访中指出病毒起源早于大家所知道的时间，并且来自实验室。前CDC主任做出这样的判断一定是源于他在任时的情报支持加上作为科学家的专业判断。他在职时不便轻易给出这样的判断，因为这将被认为是美国官方的结论，影响难以估量。他在卸任后的采访中说出他的判断，则不必承受太大政治压力。报道在左媒CNN播出，将会让美国左派民众开始了解病毒真相，最终形成左派灭共的民意基础。至于福奇，他从头到尾一直在撒谎和误导，他是中共的共谋，必将和中共一起接受审判。
 
-问：……下面，关于疫情：前CDC主任雷德菲尔德博士今天上午说，他相信病毒来自武汉的实验室，拜登总统是否对病毒的起源有任何看法，或者美国是否就此得出结论？
+**原文翻译：**
 
-普萨基：嗯，你知道，世卫组织正在研究这个问题，不久将发布一份报告，一旦有了那份报告，我们会再看一遍。
+## **美国前疾控中心主任认为冠状病毒起源于中共国实验室**
 
-我们将继续更多地了解中共病毒疫情开始的最初几天，包括它的起源，以便我们能够更好地为未来的危机做好准备。
+[!\[\]()!\[\](https://spark.adobe.com/page/DHzmg1EJlJWex/images/cc7fc827-8439-4c80-8dc3-65a0e1d31c42.png?asset_id=deda0780-1042-4d81-a735-aee002850e5c&amp;img_etag=%22988df4e9abcba2e840ee2e6f8363185d%22&amp;size=1024)](https://spark.adobe.com/page/DHzmg1EJlJWex/images/cc7fc827-8439-4c80-8dc3-65a0e1d31c42.png?asset_id=deda0780-1042-4d81-a735-aee002850e5c&amp;img_etag=%22988df4e9abcba2e840ee2e6f8363185d%22&amp;size=1024)罗伯特·雷德菲尔德博士（Dr. Robert Redfield）接受CNN采访
 
-我知道瓦伦斯基（Walensky）博士谈到了这一点，我认为福奇博士今天上午也谈到了这一点，我们将密切关注随时出现的信息。
+美国有线电视新闻网（CNN）–前疾病控制和预防中心主任表示，他相信新冠病毒始于中共国武汉的一个实验室。
 
-问：总统被告知的观点是由世卫组织的报告，还是他顾问的报告？我是说，他是什么-
+前疾控中心主任罗伯特·雷德菲尔德（Robert Redfield）博士在接受CNN首席医学记者桑杰·古普塔(Sanjay Gupta)博士采访时说，他相信这种病毒在（2019年）9月或10月的武汉某处开始传播，这正是它首次被发现的城市。
 
-普萨基：当然是他的健康和医疗顾问，因此，他们将审查——当然，当报告和更多数据出现时，他们将审查这些内容和人。
+“这是我自己的感受也只是看法。我现在可以有看法了。”雷德菲尔德说。“你知道，我的观点是，我还是认为武汉这个病原体最有可能从实验室逃出来。别人不相信没关系。科学最终会弄明白的。”
 
-问：最后一个是关于中共国新疆的强迫劳动，一些公司受到了中共国政府的压力，一些零售商实际上也放弃了不使用该地区强迫劳动生产的产品的承诺。那么，你知道，美国在做什么来阻止或制止中共国对导致这一问题的公司进行的这种威胁呢？
+“在实验室里研究的呼吸道病原体传染给实验室工作人员，这并不稀奇。”这类研究在武汉也并不少见。
 
-普萨基：当然，我们一直在密切关注这个问题，大家都知道，我们也采取了强有力的行动，以防止中共国从新疆可怕的侵犯人权行为中获利，并阻止从中共国进口强迫劳动生产的产品。
+武汉是中共国知名的病毒研究中心，包括武汉病毒学研究所，该所对蝙蝠冠状病毒进行了广泛的实验。
 
-美国消费者和世界各地的消费者应该知道，他们的商品是–他们购买的商品不是用强迫劳动制造的，许多公司都在维护消费者的权利。
+疫情发生时，雷德菲尔德是疾控中心主任。他首次公开表示，他相信这次疫情比人们所知道的时间要早几个月开始，疫情不是起源于海鲜市场，而是起源于一家实验室。
 
-我们认为，国际社会应该反对中共国将私营企业依赖市场的行为武器化，以扼杀言论自由，抑制商业道德，所以这是我们密切关注的事情。
+“这并不是在暗示是故意的，你知道？”雷德菲尔德说。“这是我的看法，我是个病毒学家。我一生都在病毒学领域工作。 我不相信这病毒会莫名其妙地从一只蝙蝠传给了一个人。而在那个时候，病毒传给了人类，成为了我们所知道的传染性最强的人传人的病毒之一。”
 
-当然，我们已经采取了自己的行动，我希望政府和商业部门今天晚些时候对此有更多要说的。
+“通常情况下，当一个病原体从人畜共患病到感染人类，它需要一段时间适应在人与人之间的传播中变得越来越高效。我觉得这在生物学上不合理。”
 
-问：接着问一下，因为在本届政府的头几个月里，你们似乎一直在传递这样的信息，但事实上，中共国似乎更大胆地威胁这些公司，那么，白宫还能做些什么来阻止他们做出这些威胁呢？
+[!\[\]()!\[\](https://spark.adobe.com/page/DHzmg1EJlJWex/images/cfff44a6-bf13-4135-b347-0b64d7c85a31.png?asset_id=59e3d4c7-ceda-4560-b57a-14da37a57222&amp;img_etag=%22d64ce456a75e9ba06a5203ac1354dd87%22&amp;size=1024)](https://spark.adobe.com/page/DHzmg1EJlJWex/images/cfff44a6-bf13-4135-b347-0b64d7c85a31.png?asset_id=59e3d4c7-ceda-4560-b57a-14da37a57222&amp;img_etag=%22d64ce456a75e9ba06a5203ac1354dd87%22&amp;size=1024)福奇博士
 
-普萨基：好吧，我们可以与我们的国际伙伴合作，很明显，正如我所传达的，我们将如何回击中共国对私营企业进行武器化的企图，我们可以像现在这样公开传达，当然也可以参与到私营实体企业中来应对（中共国的）这些企图。
+雷德菲尔德表示，增强传播效率的过程可能发生在一家实验室里。
 
-但很多这样的行动将发生在商业上，在某些情况下，还有国务院，再说一次，我希望他们今天晚些时候会有更多的细节要说。
+“比如说我有冠状病毒，我正在研究。我们大多数人在实验室里，当试图培养一种病毒时，我们试图帮助使它生长得越来越好，越来越好……所以我们可以做实验并弄清楚它的情况，”雷德菲尔德说，“这就是我完成它的方式。”
 
-凯特兰（Kaitlan），该你问了。
+雷德菲尔德的更多观点可以观看一个名为“新冠战争：大流行病医生说”的2小时特别节目。
 
-问：有几个问题，关于世卫组织调查（报告）即将出炉，国家安全顾问杰克·沙利文（Jake Sullivan）几个月前表示，他们对调查的进行方式深感担忧，他们还有哪些深切的担忧吗？
+该节目于美国东部时间周日（3月28日）晚上9点在CNN频道播出。
 
-普萨基：部分原因是由于缺乏透明度，而且缺乏–我们无法确保我们能够得到可用的数据，所以出现了延迟，他们实际上推迟了那份报告的发表，我们也支持。我们得看一看，确保我们能获得基本的信息。
+世界卫生组织称雷德菲尔德提出的实验室泄漏理论“极不可能”。
 
-问：那么，如果这份报告出来了，而拜登总统对此并不满意，会发生什么呢？
+美国国家过敏和传染病研究所所长福奇博士对此表示，他认为雷德菲尔德是在表达一种观点，也是阐述一种可能。
 
-普萨基：是对报告不满意？
+福奇说，大多数公共卫生官员都认为，这种病毒“很可能是在监控之下，在中共国的社区中传播了几个星期，甚至一个月或更长时间，这使得它第一次得到临床认识时，适应性很强。”
 
-问：（没听清）
+🔗[原文链接](https://www.wkyt.com/2021/03/26/former-cdc-director-thinks-coronavirus-originated-in-china-lab/)
 
-普萨基：好吧，我们还呼吁进行国际调查，调查发生了什么事，以及起源–不只是起源，我应该说–中共国缺乏透明度，我们已经恢复或是重新组建了我们在北京的团队。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-那我们看看报告怎么说，在我们关注的地方，我们会查看底层数据，如果我们可以访问这些数据的话，然后我们必须通过跨部门的程序来决定下一步的行动。（摘译完）
 
-没有查到新上任的CDC主任伦斯基（Walensky）对中共病毒来源的态度，昨天她的表态是等世卫组织的报告，老贼福奇虽然没有明确反对雷德菲尔德博士的“起源武汉说”，但其暗示话语充满了为中共的开脱。
+编辑：【英国伦敦喜庄园编辑部】
 
-从普萨基的回答获得的信息如下：
-
-1、“但很多这样的行动将发生在商业上，在某些情况下，还有国务院，再说一次，我希望他们今天晚些时候会有更多的细节要说。”说明会对中共国有进一步的制裁行动；
-
-2、世卫组织的调查报告被推迟，或者退回补充，不久会发布；
-
-3、“我们已经恢复或是重新组建了我们在北京的团队”，说明美国在北京有团队，应该是调查团队，还是其他？
-
-相关链接：
-
-【1】https://gnews.org/zh-hans/1023905/
-
-【2】https://www.whitehouse.gov/briefing-room/press-briefings/2021/03/26/press-briefing-by-press-secretary-jen-psaki-march-26-2021/
-
-原文部分：
-
-Q: And then, on the pandemic: Dr. Redfield, the former CDC director, said this morning that he believes that the virus originated from the lab in Wuhan.  Does President Biden have any views on where the virus may have originated, or has the U.S. come to a conclusion on that yet?
-
-MS. PSAKI: Well, as you know, the WHO is examining this and will be releasing a report soon.  We’ll review that report once it’s available.
-
-We continue to learn more about the earliest days of the COVID-19 pandemic, including its origins, so we can better prepare for future crises.
-
-I know Dr. Walensky addressed this and I think Dr. Fauci did as well this morning, and we’ll look closely at that information when it’s available.
-
-Q: Are the President’s views being informed by that WHO report or his advisors?  I mean, what is he–
-
-MS. PSAKI:  By his health and medical advisors, certainly. And so they’ll review — they will be, of course, the people reviewing the reports and more data when it becomes available.
-
-Q: And then, last one on the forced labor in Xinjiang, in China. Some companies have come under pressure from the Chinese government, and some retailers have actually dropped pledges not to use products made with forced labor from that region. So, you know, what is the U.S. doing to stop or deter China from making those kind of threats against companies that have resulted in this problem?
-
-MS. PSAKI: Well, we certainly have been watching this issue closely, as you well know, and we’ve taken our own strong actions in order to prevent China from profiting off of its horrific human rights abuses in Xinjiang and to stop imports of products made with forced labor in China.
-
-American consumers and consumers everywhere deserve to know that their goods are — that the goods they are buying are not made with forced labor, and many companies are standing up for consumers’ rights.
-
-The international community, in our view, should oppose China’s weaponizing of private companies’ dependence on its markets to stifle free expression and inhibit ethical business practices.  So it is something we are watching closely.
-
-We’ve, of course, taken our own action.  I would expect that State and Commerce will have more to say on this later today.
-
-Q：And just one quick follow-up, though.  It’s — because it seems like you’ve been having this message out there for the first couple months of this administration, but it’s — China only seems more emboldened to threaten these companies.  So what more can be done from the White House to try to deter them from making these threats?
-
-MS. PSAKI: Well, we can work with our international partners, obviously, as I conveyed, on how we’re going to push back on China’s efforts to weaponize private companies.  And we can convey publicly, as we are now, and of course engage with private sector entities about these efforts.
-
-But a lot of that action would happen from Commerce and, in some cases, the State Department.  And again, I expect they’ll have more specifics to say later today on this.
-
-Go ahead, Kaitlan.
-
-Q: A few questions.  On the WHO investigation that’s coming out, Jake Sullivan, the National Security Advisor, said a few months ago that they had deep concerns about the way the investigation was being conducted.  Do they still have those deep concerns?
-
-MS. PSAKI: In part because there was a lack of transparency and there was a lack of — we weren’t ensured that we would have access to the data available, so there was a delay.  They actually delayed the release of that report, which we were encouraged by. We’ll have to take a look at it and make sure we have access to the underlying information.
-
-Q: So what happens if the report comes out and President Biden is not satisfied with it?
-
-MS. PSAKI: Not satisfied with the report?
-
-Q: (Inaudible.)
-
-MS. PSAKI:  Well, we’ve also — we’ve also called for an international investigation and look into what’s — what’s happened and the origin — not just the origin, I should say — the lack of transparency from the Chinese.  We have reinstituted or reengaged with — through staffing of our — of our team on the ground in Beijing.
-
-So we’ll see what the report says.  Where we have concerns, we’ll look at the underlying data, if we have access to that.  And then we’ll have to make a determination through an interagency process on what’s next.
+[!\[\]()!\[\](https://spark.adobe.com/page/DHzmg1EJlJWex/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/DHzmg1EJlJWex/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

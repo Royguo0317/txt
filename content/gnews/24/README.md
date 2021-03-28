@@ -1,103 +1,127 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新冠病毒起源追溯
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1032457/)
+## 中共病毒溯源问题白宫在等世卫组织报告
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1032487/)
 
-翻译及评论： MICHELLE喜乐 / 发稿： 杰西
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/C-22-13.jpg)yalibnan.com
+3月26日CNN重磅播出罗伯特·雷德菲尔德博士（Robert Redfield）中共病毒来源说【1】，震惊了全美，记者立即追问到了白宫新闻发布会，看看白宫新闻秘书普萨基怎样说（以下将白宫新闻简报涉及中共国内容摘译）：【2】
 
+2021年3月26日，新闻秘书詹·普萨基（Jen Psaki）的新闻简报
 
-***新冠病毒起源:***
+新闻发布会
 
-***X是人畜共患病—所谓的自然学说?***
+新闻简报室
 
-***X是实验室事故—被WHO强烈驳回的?***
+……
 
-***X亦或是根本是外来的—由冷冻食品的进口而流入中国的?***
+问：……下面，关于疫情：前CDC主任雷德菲尔德博士今天上午说，他相信病毒来自武汉的实验室，拜登总统是否对病毒的起源有任何看法，或者美国是否就此得出结论？
 
-*自闫丽梦博士揭露病毒真相的两份报告相继而出，她指出:新冠病毒是中国人民解放军和武汉生物科技研究院P4实验室，共同联合以军民融合的方式，制造研发，通过改变病毒的基因，Gain-of-Function，增强功能，使之更易传播人类，以及传播的速度。这是生物武器，而更准确的说是中共对世界发起的超限战。之后，整个世界寂静了几个月，即便有反驳也只是空洞的泛泛之谈，没有更专业的人士用专业的科学数据作为依据佐证。在德国随着一汉堡物理学家Roland Wiesendanger站出来说:Sars-Cov-2新冠病毒起源可能是实验室事故。之后3月6日由德国媒体WISSEN报道了,NTV采访德国遗传学教授(分子生物专业)Günter Theißen有关病毒起源的观点。( 以下是全文翻译，载自德国WISSEN )*
+普萨基：嗯，你知道，世卫组织正在研究这个问题，不久将发布一份报告，一旦有了那份报告，我们会再看一遍。
 
-周六，2021年3月6日德国WISSEN** **
+我们将继续更多地了解中共病毒疫情开始的最初几天，包括它的起源，以便我们能够更好地为未来的危机做好准备。
 
-新冠病毒大流行难道是一场事故**?**
+我知道瓦伦斯基（Walensky）博士谈到了这一点，我认为福奇博士今天上午也谈到了这一点，我们将密切关注随时出现的信息。
 
-“这样的病毒可以在实验室制造”
+问：总统被告知的观点是由世卫组织的报告，还是他顾问的报告？我是说，他是什么-
 
-新冠病毒大流行的起源，我们需要解开这个谜底。研究人员一群体写了封公开信，在国际各种报刊包括【纽约时报】都已经发布，声称应该对实验室事故的假设进行彻底调查。其中一位在耶拿Friedrich-Schiller-Universität Jena大学德国遗传学教授Günter Theißen，在接受ntv采访时解释，为何对Sars-CoV-2的源头和对汉堡研究人士Roland Wiesendanger有争议的研究工作提出了自己的见解，并且对解开新冠病毒的源头之谜做出了评估。以下是ntv的采访:
+普萨基：当然是他的健康和医疗顾问，因此，他们将审查——当然，当报告和更多数据出现时，他们将审查这些内容和人。
 
-Ntv:
+问：最后一个是关于中共国新疆的强迫劳动，一些公司受到了中共国政府的压力，一些零售商实际上也放弃了不使用该地区强迫劳动生产的产品的承诺。那么，你知道，美国在做什么来阻止或制止中共国对导致这一问题的公司进行的这种威胁呢？
 
-Theißen先生，在这封公开信中，您和另二十多位来自世界各地的研究人员一致决定，要求全面搜索调查Sars-CoV-2的起源，并且包含实验室泄漏事故的可能性。而WHO世界卫生组织现任特派团领导人，已经表明，认为：实验室事故是极不可能！并且不愿意继续追究这个假设。您是如何认为的?
+普萨基：当然，我们一直在密切关注这个问题，大家都知道，我们也采取了强有力的行动，以防止中共国从新疆可怕的侵犯人权行为中获利，并阻止从中共国进口强迫劳动生产的产品。
 
-Günter Theißen:
+美国消费者和世界各地的消费者应该知道，他们的商品是–他们购买的商品不是用强迫劳动制造的，许多公司都在维护消费者的权利。
 
-如果只剩下实验室事故的可能性，就必须对其进行测试，至少公开的，全方位的进行调查，这就是我们写这封公开信的原因。我们不想激起偏见，只想知道，怎么发生的? 有很多种方法可以测试，但我们不想被认为是刻意的带方向的阴谋论。
+我们认为，国际社会应该反对中共国将私营企业依赖市场的行为武器化，以扼杀言论自由，抑制商业道德，所以这是我们密切关注的事情。
 
+当然，我们已经采取了自己的行动，我希望政府和商业部门今天晚些时候对此有更多要说的。
 
+问：接着问一下，因为在本届政府的头几个月里，你们似乎一直在传递这样的信息，但事实上，中共国似乎更大胆地威胁这些公司，那么，白宫还能做些什么来阻止他们做出这些威胁呢？
 
-Ntv: 自病毒大流行开始，一直重点在”人畜共患病”说—即是在武汉海鲜市场，由动物传到人，由蝙蝠或其他动物作为中间宿主，这样的病毒自然起源说。您对这个假说有疑问吗?
+普萨基：好吧，我们可以与我们的国际伙伴合作，很明显，正如我所传达的，我们将如何回击中共国对私营企业进行武器化的企图，我们可以像现在这样公开传达，当然也可以参与到私营实体企业中来应对（中共国的）这些企图。
 
-Günter : 很多证据表明，”人畜共患病”的假说是被支持的，因为在政治上是最无害的，如果病毒大流行是自然原因，谁也不需背责。它 主要是个类比的结论:与先前的原始Sars病毒以及Mers病毒一样，是一种人畜共患病，所以现在新冠病毒也必须是这样的。在自然科学中，下这种结论是危险的。所以病毒大流行一年之后的今天，我们仍然没有可被证实是自然起源假说的科学证明。此外，这次的新冠病毒与以前的病毒有很大的差异，以前的这些病毒(被证实是人畜共患病 )的序列和人类病毒的序列相似度超过99%，但是新冠病毒Sars-CoV-2 不是，它只有96%相似度，这看上去相差不多，但是基于正常的分子进化，意味着蝙蝠病毒和新冠病毒Sars-CoV-2之间的最后的共同祖先必须存在于30-50年之前。这就需要个解释，在30-50年之前发生过什么?
+但很多这样的行动将发生在商业上，在某些情况下，还有国务院，再说一次，我希望他们今天晚些时候会有更多的细节要说。
 
+凯特兰（Kaitlan），该你问了。
 
+问：有几个问题，关于世卫组织调查（报告）即将出炉，国家安全顾问杰克·沙利文（Jake Sullivan）几个月前表示，他们对调查的进行方式深感担忧，他们还有哪些深切的担忧吗？
 
-Ntv: 可能的解释是什么呢?
+普萨基：部分原因是由于缺乏透明度，而且缺乏–我们无法确保我们能够得到可用的数据，所以出现了延迟，他们实际上推迟了那份报告的发表，我们也支持。我们得看一看，确保我们能获得基本的信息。
 
+问：那么，如果这份报告出来了，而拜登总统对此并不满意，会发生什么呢？
 
+普萨基：是对报告不满意？
 
-Günter : 几种假设。假设1.该病毒存在于动物中，但未被发现，只是最近才传播给人类。我们不排除这一点，但是我认为这似乎不太可能，该病毒的受体结合域中的氨基酸与人的ACE2受体非常吻合，新冠病毒非常适合感染人类，我们在蝙蝠的冠状病毒中也没发现蛋白酶的接口。这些只是专业知识的一小部分解释，但是病毒起源于动物是肯定的。假设2.Sars-CoV-2已经在人类中存在了30-50年，而此前从未发现过。
+问：（没听清）
 
-但是这又很矛盾，就我们目前正在密集搜索的病毒序列中，只能证实所有Sars-CoV-2病毒的最后共同祖先是存在于2019年秋季的某个时间。没有任何的证明有较旧的病毒序列。
+普萨基：好吧，我们还呼吁进行国际调查，调查发生了什么事，以及起源–不只是起源，我应该说–中共国缺乏透明度，我们已经恢复或是重新组建了我们在北京的团队。
 
-Ntv: 这个旧病毒序列必须确定能找到吗?
+那我们看看报告怎么说，在我们关注的地方，我们会查看底层数据，如果我们可以访问这些数据的话，然后我们必须通过跨部门的程序来决定下一步的行动。（摘译完）
 
-Günter : 当然不能排除这种病毒存在于某些没有被取样的封闭人群。但是我认为这不可能。
+没有查到新上任的CDC主任伦斯基（Walensky）对中共病毒来源的态度，昨天她的表态是等世卫组织的报告，老贼福奇虽然没有明确反对雷德菲尔德博士的“起源武汉说”，但其暗示话语充满了为中共的开脱。
 
-Ntv: 病毒也可能自然的跳跃式的进化发展吗?
+从普萨基的回答获得的信息如下：
 
-Günter : 在“Gain-of-Function”即”功能获得”研究中，病毒是被人工改造，让它通过突变影响感染途径的难易。这项工作在科学界是有争议的，一方认为，此类尝试太危险，可能引发大流行。另一方指出，病毒的改变无论如何都是自然发生的，研究它可以加深我们对病毒的了解，从而制止可能引起的大流行。
+1、“但很多这样的行动将发生在商业上，在某些情况下，还有国务院，再说一次，我希望他们今天晚些时候会有更多的细节要说。”说明会对中共国有进一步的制裁行动；
 
-现在看来，这变得越来越有趣。病毒通过自然分子进化的可能性(这方面是我的专长)，我将把它排除在外.但是可以在实验室创建类似的病毒，假如您愿意。这种假设正将被检验，事实上已经进行了相应的Gain-of-Function”功能获得”调查。
+2、世卫组织的调查报告被推迟，或者退回补充，不久会发布；
 
-Ntv是什么让您对人畜共患病的假设怀疑呢 ?
+3、“我们已经恢复或是重新组建了我们在北京的团队”，说明美国在北京有团队，应该是调查团队，还是其他？
 
-Günter : 有一年之久我对整个事情感兴趣，为什么这么肯定是”人畜共患病”呢?最初病毒是由武汉海鲜市场传播给人类的，我看了报道，发现当时中国所有的冠状病毒专家都聚集在武汉，更加蹊跷的是，这些专家一直多年在研究冠状病毒，曾经去过洞穴收集蝙蝠样本并带回武汉。在武汉实验室对其病毒进行了基因修饰，并将其引入人体细胞，以观察病毒对人体的侵害行为。知道了这些，被”人畜共患病”一说所困中的人还不明白，清醒吗?
+相关链接：
 
-Ntv: 如果Sars-CoV-2新冠病毒起源于武汉实验室，您认为它已经被公布了吗?
+【1】https://gnews.org/zh-hans/1023905/
 
+【2】https://www.whitehouse.gov/briefing-room/press-briefings/2021/03/26/press-briefing-by-press-secretary-jen-psaki-march-26-2021/
 
+原文部分：
 
-这很难说，我需要更多的了解当地的情况，关于那里的安全条件。可以想象一下，一名实验室员工由于粗心而被感染病毒，但是都没发觉，几天一周，在武汉，去市场买东西，不知不觉中感染了其他人，然而被感染的人又没有症状，，，，，这也是并非不可能的。
+Q: And then, on the pandemic: Dr. Redfield, the former CDC director, said this morning that he believes that the virus originated from the lab in Wuhan.  Does President Biden have any views on where the virus may have originated, or has the U.S. come to a conclusion on that yet?
 
-Ntv: 您现在正与其他研究人员呼吁进行新的全面的研究调查，但是那要如何开展呢- 正如各方所批评的那样，中共政府已经收回数据，即便对在现场调查的WHO世界卫生组织成员。
+MS. PSAKI: Well, as you know, the WHO is examining this and will be releasing a report soon.  We’ll review that report once it’s available.
 
-Günter :中国政府阻止调查，那他们怕什么呢? 当然调查会很困难，我们愿意看到有相关科研人员的举报，最低目标是对WHO所提出的病毒是”人畜共患病“的自然学说质疑，而且不能封杀”人畜共患病”以外的其他理论.
+We continue to learn more about the earliest days of the COVID-19 pandemic, including its origins, so we can better prepare for future crises.
 
-Ntv: 通过举报人可以对中共施加压力，要求其打开进一步调查的大门。
+I know Dr. Walensky addressed this and I think Dr. Fauci did as well this morning, and we’ll look closely at that information when it’s available.
 
-Günter : 是一方面，另一方面应该建立共识，即研究人员之间并非绝对一致认为这是”人畜共患病”。总是有人表达自己的观点，但是却以非专家或个人意见的形式出现。但是，对此不赞同的圈子正在扩大，我就是刚开始一个孤独的反抗者，可是现在我看到更多像我这样的人。
+Q: Are the President’s views being informed by that WHO report or his advisors?  I mean, what is he–
 
-Ntv:
+MS. PSAKI:  By his health and medical advisors, certainly. And so they’ll review — they will be, of course, the people reviewing the reports and more data when it becomes available.
 
-您提到了这一点: 在前一阶段德国汉堡物理学家Roland Wiesendanger，因讲述实验室事故是Sars-CoV-2最可能的起源而被批评。您如何评价?
+Q: And then, last one on the forced labor in Xinjiang, in China. Some companies have come under pressure from the Chinese government, and some retailers have actually dropped pledges not to use products made with forced labor from that region. So, you know, what is the U.S. doing to stop or deter China from making those kind of threats against companies that have resulted in this problem?
 
-Günter:
+MS. PSAKI: Well, we certainly have been watching this issue closely, as you well know, and we’ve taken our own strong actions in order to prevent China from profiting off of its horrific human rights abuses in Xinjiang and to stop imports of products made with forced labor in China.
 
-他的手稿很好，与我的方式类似，只是更加细节化。但是从我的角度，他把整个过程称为研究是个很大的错误，这是被人抓到的批评点。对于批评者，最好是逐点的提出异议而不是全盘否定。因此，我认为Roland Wiesendanger和其他许多人一样，在媒体上受到非常恶劣的对待。
+American consumers and consumers everywhere deserve to know that their goods are — that the goods they are buying are not made with forced labor, and many companies are standing up for consumers’ rights.
 
-Ntv: 也有人批评说，Roaland Wiesendanger是物理学家，对于研究病毒学科的必然陌生，，，，，，
+The international community, in our view, should oppose China’s weaponizing of private companies’ dependence on its markets to stifle free expression and inhibit ethical business practices.  So it is something we are watching closely.
 
-Günter : 学科的不相通，这是个误区。在科学中，真正具有创新的与常规背道而驰的东西往往来自”非专业人员”.我自己的专业是生物分子，而它原则上是由物理学家发现的。
+We’ve, of course, taken our own action.  I would expect that State and Commerce will have more to say on this later today.
 
-Ntv: 来自中国的要求是，应调查另一种病毒起源理论:该病毒是否可以通过进口冷冻食品而被流入该国?即新冠病毒不是起源于中国。您认为是否也该对此进行调查?
+Q：And just one quick follow-up, though.  It’s — because it seems like you’ve been having this message out there for the first couple months of this administration, but it’s — China only seems more emboldened to threaten these companies.  So what more can be done from the White House to try to deter them from making these threats?
 
-Günter : 所有的假设都应该被检验，从理论上讲不排除病毒不是来自中国。我虽然认为不可能，但是在还没有证实病毒起源之前，要对各种假设进行检验调查。
+MS. PSAKI: Well, we can work with our international partners, obviously, as I conveyed, on how we’re going to push back on China’s efforts to weaponize private companies.  And we can convey publicly, as we are now, and of course engage with private sector entities about these efforts.
 
-Ntv: 您在公开信中强调，寻找新冠病毒的起源非常重要，以便人类可以避免下一次可能更糟的大流行的发生。您认为Sars-CoV-2的起源之谜会得到解决吗?
+But a lot of that action would happen from Commerce and, in some cases, the State Department.  And again, I expect they’ll have more specifics to say later today on this.
 
-Günter : 认为真相迟早会大白。只是可能会花点时间。如果关键人员不配合，则可能要花费更久，并且可能我们又将处在下一次的大流行中了。
+Go ahead, Kaitlan.
 
-**我们可以看到世界在急速的醒来，真相大白的日子快了。中共一旦被世界定义成使用生物武器，危害全人类，最后的结果只能被消灭。我们新中国联邦人感激有闫博士，勇敢睿智的她成为病毒真相揭露的第一人**。
+Q: A few questions.  On the WHO investigation that’s coming out, Jake Sullivan, the National Security Advisor, said a few months ago that they had deep concerns about the way the investigation was being conducted.  Do they still have those deep concerns?
+
+MS. PSAKI: In part because there was a lack of transparency and there was a lack of — we weren’t ensured that we would have access to the data available, so there was a delay.  They actually delayed the release of that report, which we were encouraged by. We’ll have to take a look at it and make sure we have access to the underlying information.
+
+Q: So what happens if the report comes out and President Biden is not satisfied with it?
+
+MS. PSAKI: Not satisfied with the report?
+
+Q: (Inaudible.)
+
+MS. PSAKI:  Well, we’ve also — we’ve also called for an international investigation and look into what’s — what’s happened and the origin — not just the origin, I should say — the lack of transparency from the Chinese.  We have reinstituted or reengaged with — through staffing of our — of our team on the ground in Beijing.
+
+So we’ll see what the report says.  Where we have concerns, we’ll look at the underlying data, if we have access to that.  And then we’ll have to make a determination through an interagency process on what’s next.
 
 0

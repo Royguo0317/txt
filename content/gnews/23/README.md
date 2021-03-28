@@ -1,61 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中概股面临摘牌，港股应声下挫
-` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1032475/)
+## 世卫组织关于病毒来源的报告因中共干预再被推迟
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1032488/)
 
-新闻来源：《CNBC》| 作者：Arjun Kharpal | 发布时间： 2021年3月24日
+新闻来源：《零对冲》| 作者：泰勒·杜顿(TYLER DURDEN) | 发布时间：2021年3月27日
 
-翻译/简评：Victory | 校对：感恩 | 审核：万人往| Page：Daoiii
+翻译/简评：叶知秋（文义）| 校对：万人往 | 审核：万人往 | Page：青山
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CKm0Swf6vZyxa/images/512a4ad6-7cd6-47a9-85d1-110aa4dd1331.jpg?asset_id=23a3dcae-fcec-4297-a800-da68f7aa852e&amp;img_etag=%22e4de1b6b9c4ae286ded670b4a3c41931%22&amp;size=1024)](https://spark.adobe.com/page/CKm0Swf6vZyxa/images/512a4ad6-7cd6-47a9-85d1-110aa4dd1331.jpg?asset_id=23a3dcae-fcec-4297-a800-da68f7aa852e&amp;img_etag=%22e4de1b6b9c4ae286ded670b4a3c41931%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/posKmZwo3zmjb/images/ddacbb02-ae0a-44cd-afe9-20c7dce11acd.jpg?asset_id=75c8700f-ff56-46c1-94d2-05f9cf5d03c7&amp;img_etag=%22cce9bca9478f15f9eb7070d9e047635d%22&amp;size=1024)](https://spark.adobe.com/page/posKmZwo3zmjb/images/ddacbb02-ae0a-44cd-afe9-20c7dce11acd.jpg?asset_id=75c8700f-ff56-46c1-94d2-05f9cf5d03c7&amp;img_etag=%22cce9bca9478f15f9eb7070d9e047635d%22&amp;size=1024)
 
-***简评：***
+**简评：**
 
-据美国证券交易委员会(SEC)2019年统计，中共国已有超过150家企业在美各大交易所挂牌，总市值达1.2万亿美元。而按照此前的规则，如此巨大市值规模的在美上市企业，大部分都雇用香港或中国大陆的会计师事务所，居然不受美国会计师监督委员会的审计。这些企业提交的数据有多少水分呢？这样的风险，华尔街的人此前会不知道吗？事实上，只要稍作调研，我们就可以看到其中大量中共相关企业都是由华尔街配合包装赴美上市、联合起来在美国股市圈钱的。很明显，现在情况已经有了本质转变。
+今天做这篇翻译的时候，我是带着微笑的。原因之一是，前美国疾控中心主任罗伯特·雷德菲尔德博士在接受“美国有线电视新闻”(CNN)采访时表示：“新冠病毒来自武汉实验室。”原因之二就是本篇文章，世卫组织推迟发布关于中共病毒的调查报告，理由是“中共国极力争取报告里的每一句话”。
 
-《外国公司问责法案》在2020年川普总统在任时已经签署，而现在SEC拿出了法案要开始执行。这背后是什么力量推动的？一定是资本市场的选择。所有和中共利益勾兑的机构都不得不开始转向、脱钩。所谓天下大势、浩浩汤汤。《道德经》有一句：“其安易持，其未兆易谋；其脆易泮，其微易散。为之于未有，治之于未乱。”大意为：事物在处于萌芽阶段，就依照迹象判断并处理才最稳妥。现如今中共崩盘大势已成，非常明显，全球对其围剿在所难免。大家只需顺势而为。
+世卫组织对于中共病毒真相心知肚明，从中共病毒爆发至今，它所扮演的角色，众所周知。如今出现这样的反应，很明显是进退两难，继续帮助中共国掩盖病毒真相，组织和个人都无法承受未来真相被曝光的后果；停止助共为虐，又深陷中共“蓝金黄”的沼泽池，难以自拔。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CKm0Swf6vZyxa/images/86314332-b8ca-48ce-a468-07ddda8791d9.jpg?asset_id=403a60f0-2f91-45bf-97d4-8e3bcef73022&amp;img_etag=%2277e81bec12831d8673752576e0b5bc33%22&amp;size=1024)](https://spark.adobe.com/page/CKm0Swf6vZyxa/images/86314332-b8ca-48ce-a468-07ddda8791d9.jpg?asset_id=403a60f0-2f91-45bf-97d4-8e3bcef73022&amp;img_etag=%2277e81bec12831d8673752576e0b5bc33%22&amp;size=1024)
+前美国疾控中心主任在CNN的观点，不会是个人闲谈，美国左派媒体CNN能报道出这样的消息，更加不会是偶然事件。这一系列消息的集中出现，说明中共正在失去对病毒真相的控制力。
 
-***原文翻译：***
+俗语说“上贼船容易，下贼船难”，现在看起来，贼船上的“贼”们已经开始衡量利益得失，准备跳船求生了。中共，你完了！
 
-## **中共科技股遭重创，因美国法律威胁要求其从美国交易所退市**
+**原文翻译：**
 
-**要点**
+## **世卫组织武汉新冠病毒起源报告推迟，因为中共国“极力争取每一句话”**
 
-- 周四，在香港交易所的美港同时上市的中共国主要科技股受重创，因某些公司可能被从美国证券交易所退市的担忧再次浮现。
-- 周三，美国证券交易委员会(SEC)通过了一项名为《外国公司问责法案》的法律。
-- 香港时间下午1:04，阿里巴巴跌超4%，百度大跌超8%，京东跌超4%，网易跌近3%。
+据世界卫生组织咨询委员会成员杰米·梅茨尔(Jamie Metzl)说，世界卫生组织(WHO)已经推迟了其关于新冠病毒起源的报告，因为中共国正在**“极力争取每一句话”。**
 
+[!\[\]()!\[\](https://spark.adobe.com/page/posKmZwo3zmjb/images/e002961a-17cb-4e63-ba67-52210d3f0d9c.jpg?asset_id=eb801e2f-5d4e-4d45-b856-8933ca0351c3&amp;img_etag=%22ac0db680080e193cc180e9fa68ea6830%22&amp;size=1024)](https://spark.adobe.com/page/posKmZwo3zmjb/images/e002961a-17cb-4e63-ba67-52210d3f0d9c.jpg?asset_id=eb801e2f-5d4e-4d45-b856-8933ca0351c3&amp;img_etag=%22ac0db680080e193cc180e9fa68ea6830%22&amp;size=1024)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CKm0Swf6vZyxa/images/eebfa61b-a95b-4256-9167-dbddf6f4a9b7.png?asset_id=d22cce21-401b-4cf1-ab80-ba7b1c77ee68&amp;img_etag=%22c34919c8b6a93ffefbf7f0f31899aa1f%22&amp;size=1024)](https://spark.adobe.com/page/CKm0Swf6vZyxa/images/eebfa61b-a95b-4256-9167-dbddf6f4a9b7.png?asset_id=d22cce21-401b-4cf1-ab80-ba7b1c77ee68&amp;img_etag=%22c34919c8b6a93ffefbf7f0f31899aa1f%22&amp;size=1024)2020年3月13日，在美国纽约，纽约证券交易所(NYSE)交易时段开盘后，一名交易员在场内工作。 Lucas Jackson | Reuters Lucas Jackson|路透社
+“刚刚得到证实，世卫组织组织的国际委员会/中共国政府新冠病毒起源报告的发布再次被推迟，”梅茨尔周五在推特上说，并补充说，“显然是因为中共国方面极力争取每一句话。有人相信这份妥协报告是可信的吗？”
 
-中国广州 – 因对某些公司可能被从美国证券交易所退市的担忧，在香港交易所的美港同时上市的中共国主要科技股受重创。
+[!\[\]()!\[\](https://spark.adobe.com/page/posKmZwo3zmjb/images/168ef534-765e-4379-8e87-4c8006fa372c.jpg?asset_id=a5cbe573-1c75-4932-bcf1-0fc1abed2c23&amp;img_etag=%22f835146f9ddb370f9a9c01bc8fd8faa9%22&amp;size=1024)](https://spark.adobe.com/page/posKmZwo3zmjb/images/168ef534-765e-4379-8e87-4c8006fa372c.jpg?asset_id=a5cbe573-1c75-4932-bcf1-0fc1abed2c23&amp;img_etag=%22f835146f9ddb370f9a9c01bc8fd8faa9%22&amp;size=1024)
 
-港股中在美上市的中共国科技股大幅下跌。香港时间下午1点04分，阿里巴巴跌超4%，百度大跌超8%，京东跌超4%，网易跌近3%。
+星期一，负责东亚和太平洋事务的前副助理国务卿戴维·菲斯(David Feith)在《华盛顿邮报》上写道，世卫组织的调查人员**“未经中共国官方同意，将不能发表调查结果。”**
 
-此前一天，美国证券交易委员会(SEC)通过了一项名为《外国公司问责法案》的法律，该法案由前总统唐纳德•川普政府通过。
+*那么，世卫组织的最终报告会把重点放在武汉病毒研究所么？这就别指望了。因为同样的世卫组织的调查人员，当他们在回应媒体的质询时，虽然确认了生病的实验室工作人员的存在，却立即淡化了这条信息的重要性。*
 
-美国证券交易委员会确定的某些公司将需要美国监督机构进行审计。这些公司将被要求提交某些文件，以证明它们不是由外国管辖区的政府实体拥有或控制的。
+***“那时是流感季节！”****世卫组织调查人员彼得·达萨克(Peter Daszak)在推特上说，尽管他不能提供任何证据证明这些实验室工作人员患的是流感，而不是新冠肺炎。*
 
-美国证券交易委员会周三表示，中共国公司将不得不说出每个身为中共官员的董事会成员的名字。美国监管机构可能会停止那些违反其规则的证券交易。
+***如此重要的调查怎么可以让可能有“利益冲突”的调查员参与而危及其可信度？****哦，世卫组织的调查并不仅仅是世卫组织的调查。这是世卫组织与中共国政府共同努力的结果，世卫组织召集了大约19名国际调查人员，中共国政府挑选了17名中共国研究人员，并且这些研究人员对外国专家拥有否决权。**未经中共国官方同意，调查人员将不能发表调查结果。**——《华盛顿邮报》*
 
-中共国科技公司不仅面临国外退市威胁的压力，还对国内更严格的监管感到担忧。北京希望能够控制科技巨头的权力，并在从金融科技到电子商务等领域建立新的规则。
+正如《每日来电者》(Daily Caller)报道的那样，此次推迟发布是紧随世卫组织拒绝发布有关新冠病毒起源的临时报告之后发生的，因为人们对其调查的合法性越来越感到担忧。
 
-虽然中共国政府的打压始于亿万富翁马云的帝国，包括暂停蚂蚁集团的超大规模首次公开募股，但有迹象表明，北京的目标可能不止于蚂蚁集团。
+“中国专家于3月17日收到了世卫组织报告的英文版。这份报告能否在下周发布，取决于中国和国际专家之间的讨论。”一位中共国政府发言人3月19日在推特上说。
 
-路透社本周报道称，腾讯创始人马化腾本月与中共国反垄断官员会面。腾讯只在香港上市，香港时间下午1点17分左右，其股价下跌超过2%。
+[!\[\]()!\[\](https://spark.adobe.com/page/posKmZwo3zmjb/images/57c175c2-1ef4-4156-a119-238185fd8c94.jpg?asset_id=35add93f-9891-464a-a246-0ddf137c4ac1&amp;img_etag=%2225554af14ff9a092abc8bea6b409a379%22&amp;size=1024)](https://spark.adobe.com/page/posKmZwo3zmjb/images/57c175c2-1ef4-4156-a119-238185fd8c94.jpg?asset_id=35add93f-9891-464a-a246-0ddf137c4ac1&amp;img_etag=%2225554af14ff9a092abc8bea6b409a379%22&amp;size=1024)
 
-**🔗[原文链接](https://www.cnbc.com/2021/03/25/chinese-tech-stocks-fall-as-us-sec-begins-law-aimed-at-delisting.html)**
+世卫组织调查小组成员还告诉《华尔街日报》：“中共国同行对报告进行了审查并做出了可能的改变。”
+
+*世卫组织没有回答“每日来电者新闻基金会”(the Daily Caller News Foundation)有关中共国官员如何能够更改报告的问题，而是通过发言人说：“一旦我们确定了报告的发布日期，我们将通知媒体。”*
+
+*然而，一群科学家、学者、国会议员和其他人呼吁进行一个单独的、更独立的调查。*
+
+*国际科学家和学者组织在3月4日的公开信中写道，找到病毒的起源“对于更好地应对当前的大流行和降低未来的大流行都至关重要。”——《每日来电者》*
+
+菲斯(Feith)在《华盛顿邮报》上写道：“也许世卫组织的最终报告将提供证据，来证明调查人员显然对追求实验室泄漏理论缺乏兴趣。世卫组织是否有生病的（中共国武汉病毒研究所）实验室研究人员的名字？他们被采访过吗？世卫组织看到他们的病历了吗？抗体检测结果呢？如果是这样，这些信息是否将被列入世卫组织的报告？”
+
+看来我们只有习近平和北京方面允许世卫组织得出的结论……
+
+🔗[原文链接](https://www.zerohedge.com/covid-19/who-wuhan-covid-origins-report-delayed-china-fights-tooth-nail-over-each-sentence)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/CKm0Swf6vZyxa/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/CKm0Swf6vZyxa/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/posKmZwo3zmjb/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/posKmZwo3zmjb/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

@@ -1,75 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210328（图片新闻）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1032109/)
+## 【各抒己见】拜拜了！CCP的墙国银行
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1032274/)
 
-- 作者：2020喜马拉雅
-- 封面：透明的遮羞布
+作者：喜马拉雅东京樱花团 /待命（文晓）
 
+![](https://lh6.googleusercontent.com/vNyBZQJvWKuo6fL36Vn29GrHSLVgTdN0Q1Q_tkQH3yEoXZww80u23zcMqLLE6wrv_fMLcZ37LQRq1BChvraHDiFVBtALbdiSwBLhq3xzcYx6VRIqJ-To9N8pGxYxX-OLjAaGT1Ye)
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+（笔者拍摄于文中的银行门前）
 
-**西班牙2021年3月28日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
+每次回国都免不了要去某银行存取款，可每次来到这家银行前，都要找找这诺大的门到底能推开哪一扇。好不容易找到了进入口，紧接着又是一道需要确认哪一扇是可以进去的门。几乎每次走进这家银行的那一瞬间都找不到北，不知道该朝哪个方向前进，仿佛是刘姥姥进了大观园。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0c39603a-afd0-4ef5-9894-f026f6410ea0.jpg)
+这银行好大啊！好气派！好壮观！大厅里回荡着高音质呼叫号码的播音，使人仿佛置身于国际机场，相信这厅堂在全世界的银行中也应该能排得上名次。银行拿出不到整个大厅十分之一的面积，修建了三个戒备森严的个人业务窗口，“全心全意”为储户服务！（注 ：我说的可仅仅是一楼，上面还有好多层啊！）
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d702eaf4-e42d-4f13-a12c-694516748338.jpg)
+装饰很气派的大厅服务柜台里空无一人，找遍整个大厅没找到汇率和利率显示板。这光景，我在国外很多年都没见过，难道是我少见多怪了？有几个人在大厅里边玩手机边走来走去，不知道是谁？是干什么的？有事该问谁？带着猜测，笔者仔细观察了那些走来走去的人，原来大棉袄里面穿的是银行制服。哦，原来是银行职员！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/9dc96734-b01e-4d98-a7d5-2dd815b226e0.jpg)
+![](https://lh3.googleusercontent.com/IlxPSEkk7tUbK7913H0bOA96Gv0v9unb52hV94Ns6lm49WT-PpKnDOWevVhjV_se0suxe19rd7Okkmat0qPKjD7eSN-Cg4xzQWMZMudeLS74C6smYwQEpZKw2QF-0sRkU1g6rubx)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e7e3dcca-6b86-449e-9192-b006e7ffbdde.jpg)
+（笔者拍摄于文中的银行大厅）
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e93b480b-036c-4262-b71f-d73e18a80348.jpg)
+我几乎每年都回国，也就是说每年都会来这家银行。可同是这家银行，几乎每次办理存取款的位置都不同。外币业务跟人民币业务几度是分窗口，也曾几度是在同一个窗口。记忆中一楼居多，也曾被请上过二楼，偶尔还赏我进过贵宾室。我在这家银行的存款很多年几乎没变化，可我的身份却随着银行的心情变化着。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/327f5888-7a06-4538-ac86-9ce2bfc9acfc.jpg)
+再走近看看那个小小的业务窗口，真是戒备森严！（注：说到这里，我想起了很多年前读过的韩寒写的一篇关于医院那个小窗口的文章）感觉是越来越严实，越来越安全，越来越难看请隔着窗口跟我对话那张脸！咱说话要实事求是，银行不仅为自己的安全着想，还着实为广大储户也花了不少钱，小窗口外，为储户们设置了智能型触屏业务操作设备。我得像操作掌上电脑那样，在银行职员居高临下式“高效率”的指挥下，才能完成存取款业务。那些不会玩智能手机的老储户们，能行吗？也许我这是杞人忧天！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/15958e23-756d-495b-8c78-1be180162ca5.jpg)
+总而言之，墙国的银行看上去真有钱！从表面上看，绝对是世界领先！至于众所周知的，存点外币有多难！取点外币更有多难！我就把服务状况的细节描述省略了吧，不想粘口了。否则，也一定是个另类的世界领先！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/fb0bbf03-cdf9-4210-a7da-84591be29750.jpg)
+笔者曾在墙国最大的银行工作过10年。那时的银行，储户的账户管理是纸质账页，利息计算用的是算盘，业务空间是储户和银行几乎各占一半。可不客气地说，完成每一笔业务的所需时间，应该不比现在多！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/a708ba2a-b0d9-4a08-986c-0189b2bdd375.jpg)
+设备的先进、实力的增强本都是好事儿，是应该有助于银行提高服务质量、提高工作效率、简化储户办理手续的好事儿。可是，很遗憾！我没看到这些，反倒感觉越来越慢、越来越麻烦！我既是曾经的墙国银行职员，又是墙国银行的储户，有资格这样说，几十年过去了，墙国的银行，大楼盖高了、设备能力大大提高了，可为储户服务的效率没有任何改变。其实，在CCP的统治下，墙国有哪个行业能与CCP常常挂在嘴上的“为人民服务”相符呢？
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1713d4fa-c370-49b5-86f9-8408cc2c9c09.jpg)
+得文贵先生启发，我已将墙国银行的存款全部处理完毕。拜拜了！CCP的墙国银行。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4c82e1ba-e81d-4b4e-8630-431a96758fea.jpg)
+*免责申明：本文只代表作者观点，与GNews网站无关。*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/70bca1d4-67db-4daf-84a9-55a61d54dee7.jpg)
+*校对：喜马拉雅东京樱花团 / 文小白*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/8c71d7e8-6de0-4d47-b264-7acd202b2c3a.jpg)
+*责任编辑：喜马拉雅东京樱花团 / 東洋武士*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/58202f54-cbbb-4509-8917-2334d11d8584.jpg)
+*发布：喜马拉雅东京樱花团 / 霹雳年2020*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/8290e78b-d7ba-4a5f-b184-eee402d48ccf.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/二维码-10.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/34838d0e-fb23-48b4-8511-e92863c744d6.jpg)
+0328C200c
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/7449a235-a217-4eb4-8564-a6b78c31530b.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/31034a44-7c15-4e03-8d29-f1143e1229e6.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/5b92dcc5-e3fe-4d78-ad86-be28210fac03.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/c40ccc8c-becd-4059-8a51-4293ed4e2422.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2f8f1365-feb7-4045-8f86-eea25faa7f46.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/8a8e9d2a-20db-4808-94c3-2718cb692a6c.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/67545399-0094-4129-8b96-b8055643c416.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/00eb7865-25d8-4ff3-af5e-b87723fa7d76.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/9b133c38-a150-4db6-97f0-56c7e63aa347.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/44e8756d-4b5c-43c2-9386-99d0d7be768a.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/725f8a66-23fb-48fe-bf63-bdc89063c806.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/73ff3d55-d8b6-4785-8f7b-0d604dacc90c.jpg)
-
-发稿：Ranting
-
-本文观点均来自于作者，与GNEWS无关
-
-+1
++4
