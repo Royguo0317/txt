@@ -1,174 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0327.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1024833/)
+## 佐治亚州改革选举法案令川普欢喜拜登愁
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1028183/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0326-27.jpeg)图片来源：康州盘古农场 霹雳年
-### 川普总统GAB
+编辑上传   水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/S-9-10.jpg)cypheravenue.com
+昨天笔者第一时间报道了川普总统发表的两则声明，其中第二则是对佐治亚州刚刚签署的改革选举法案（Georgia Senate Bill 202，GA SB202）的祝贺，短短的两句话，也表达了他对“迟来正义”的愤慨【1】。
 
-“John Durham在哪儿？他还活着吗？会有一个Durham报告吗？
+这里把事件做一简单回放，佐治亚州是“合法窃取”2020大选的典型案例，反川普总统人士（不仅限于民主党）在数月前，甚至更长的时间内进行了周密的安排，借故中共病毒，临时修订了投票规则，出现了大量的非法延时投票，无身份验证投票等等，明明知道这是在舞弊、偷窃，但由于修订的规则已既成事实，翻盘选举结果基本无望，即使只需进行一下简单的“实名验证”，拜登领先的1万2即刻就会变为大大的负数。可是，疑似中共爪牙的州务卿拉德·拉芬斯珀格（Brad Raffensperger）死扛，对川普总统亲自通话的选票实名验证要求置之不理（当时笔者就认为，川普总统此举太天真），川普总统差点反而因此被治罪。舞弊、偷窃者们的理由很简单，我们是按照规则办事，即使是新修订的规则，你们早干啥了呢？
 
-（注：John Durham是负责挖掘FBI “交火飓风 “俄罗斯调查起源的人— 据波士顿先锋）
+川普总统的支持者愤怒，大多数共和党愤怒，正义的美国人民更愤怒，神圣的选举被偷鸡摸狗地龌龊窃取，必须给予及时的纠错！
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/trump-gab-0327-3.png)
+亚利桑那州、威斯康星州议会最近分别作出重新计票的决定【2】【3】，前不久，佐治亚州议会批准了改革选举法案（GA SB202），周四州长签署该法案。
 
+这仅仅是开始，所有涉嫌选举舞弊欺诈的行为都会受到清算以及制约，不止是摇摆州，这正是川普总统要做的，保守派政治行动会议（CPAC）之后共和党的举措。
 
-### 病毒来源
+民主党人做贼心虚，试图先下手为强，一方面拜登还未坐定白宫椅子，就签署了一大堆行政命令（及撤销令），其中包括移民和边境政策，导致了目前的边境危机。这些非法涌入的移民，将是民主党几年后的票仓。另一方面由巫婆主导的《为人民法案》，已经进入参议院的最后表决期。所谓《为人民法案》就是主张投票的随意性，无需身份验证，延期投票，邮寄投票，几乎无约束地可一人多投、异地再投，将2020大选的欺诈舞弊方式合法化，他们在2020大选以这种方式尝到了甜头，所以急于通过这项法案。
 
+面对佐治亚州的情况，拜登发表声明“大叫大骂”，称佐治亚州通过的法律是“吉姆·克劳法”（Jim Crow laws）【4】，不会是什么好词，懒得查了，估计是种族歧视之类的投票法案。拜登在声明中呼吁国会通过H.R.1，即《为人民法案》，还说，“佐治亚州的这项法律，就像共和党在全国各州推行的其他法律一样，是对宪法和良知的公然攻击，我们有道德和宪法义务采取行动。”
 
+拜登还说，白宫和司法部都在研究与佐治亚州投票权有关的潜在行动。
 
-> 参议员泰德·克鲁兹转国家评论推文：
-> 美国疾控中心前主任 罗伯特·雷德菲尔德(Robert Redfield) 博士说，他相信新型冠状病毒源自武汉的一个实验室。
-> 
-> 【附国家评论杂志national review网站相关内容报道】 [https://t.co/8yiPomr4Sb](https://t.co/8yiPomr4Sb)
-> — 川普等政要…直译推 (@zhiyitw33) [March 27, 2021](https://twitter.com/zhiyitw33/status/1375801448198504450?ref_src=twsrc%5Etfw)
+完全验证了文贵先生昨天盖特说过的“宪政危机”，民主党人只能依靠偷盗、舞弊、作假才能赢得大选，他们急于将这些行为合法化，美其名曰《为人民法案》，方便人民投票，是人民就可以随便投票。共和党人能眼睁睁地熟视无睹？让民主党勾兑走10名议员，去拥护《为人民法案》？
 
+如果法案被60:40获得通过，那可真是共和党的悲哀，美国人民的悲哀！
 
+参考链接：
 
-26日朱利安尼先生转推纽约邮报新闻：“美国疾病控制和预防中心前主任认为，导致COVID-19的病毒是从中国武汉的一个实验室逃出来的。”
+【1】https://gnews.org/zh-hans/1024051/
 
+【2】[https://gnews.org/zh-hans/995149/](https://gnews.org/zh-hans/995149/)
 
+【3】[https://gnews.org/zh-hans/1014742/](https://gnews.org/zh-hans/1014742/)
 
-> Former director of the Centers for Disease Control and Prevention believes the virus that causes COVID-19 escaped from a lab in Wuhan, China. [https://t.co/wuNPFEtobs](https://t.co/wuNPFEtobs)
-> — Rudy W. Giuliani (@RudyGiuliani) [March 26, 2021](https://twitter.com/RudyGiuliani/status/1375464744866480132?ref_src=twsrc%5Etfw)
+【4】https://www.politico.com/news/2021/03/26/biden-congress-georgia-voting-restrictions-478170
 
-
-
-
-
-### **3月26日安迪巴尔议员推文：**
-
-“中共公然违反美国制裁，向伊朗、委内瑞拉和朝鲜等不良行为者大肆进行现金收买，拜登总统和他的政府正在睡觉。
-
-北京在经济上支持这些国家构成了全球性的威胁，美国需要发出强烈的信息，如果继续下去，将会有后果。”
-
-
-
-> Beijing propping these countries up economically poses a global threat and the U.S. needs to send a strong message that there will be consequences if it continues.
-> — Rep. Andy Barr (@RepAndyBarr) [March 26, 2021](https://twitter.com/RepAndyBarr/status/1375514529170268160?ref_src=twsrc%5Etfw)
-
-
-
-
-
-### 灭白文化
-
-27日朱利安尼先生发推：“拜登总统说‘他不知道2024年共和党是否还存在。’这是弗洛伊德的失误吗？”
-
-OANN主播纳特里-哈皮转推时称：
-
-“停止支付警察，废除移民和海关执法局
-现在是： 废除共和党
-取消文化的终极目标：极权统治。”
-
-
-
-> Defund the police. Abolish ICE.
-> 
-> Now it’s: Abolish the [@GOP](https://twitter.com/GOP?ref_src=twsrc%5Etfw).
-> 
-> Cancel culture’s ultimate goal: Totalitarian rule. [https://t.co/jlBAxILC5u](https://t.co/jlBAxILC5u)
-> — Natalie Harp (@NatalieJHarp) [March 26, 2021](https://twitter.com/NatalieJHarp/status/1375527652254232579?ref_src=twsrc%5Etfw)
-
-
-
-
-
-27日《华尔街时报》社论委员会发表文章《北京全球消灭文化》称：
-
-习近平已经成为在与外国批评者的政治争端中发挥中（共）国商业力量的高手。中（共）国国家主席的最新目标是用中国消费者（抵制）瑞典T恤和美国运动鞋等。
-
-参议员玛莎-布莱克本转推称：“中国共产党将利用中（共）国的市场力量铲除批评者，无论是个人、公司还是政府。全球社会必须继续站出来反对中共政权。”
-
-
-
-> The [#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hash&amp;ref_src=twsrc%5Etfw) will leverage China’s market power to eradicate critics whether it’s a person, company or a government.
-> The global community must continue to stand up to the communist regime.[https://t.co/DSWXgZXu6O](https://t.co/DSWXgZXu6O)
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [March 27, 2021](https://twitter.com/MarshaBlackburn/status/1375894591178739713?ref_src=twsrc%5Etfw)
-
-
-
-
-
-众议员莫-布鲁克斯今日转推23日Breibart的文章“莫-布鲁克斯议员称大赦将在10 -20年内（让美国）增加1亿人。”，推文称“社会主义者想做的是通过美国国会推动大赦，他们的论点是这能以某种方式解决问题。任何一个理性的人都知道，这只会使问题变得更糟。”
-
-
-
-> What the Socialists want to do is push amnesty through the United States Congress, their argument being that somehow fixes the problem. Any rational person knows that just makes it worse.[https://t.co/yAgkPIsqwC](https://t.co/yAgkPIsqwC)
-> — Mo Brooks (@RepMoBrooks) [March 26, 2021](https://twitter.com/RepMoBrooks/status/1375486311721734145?ref_src=twsrc%5Etfw)
-
-
-
-### 缅甸
-
-国务卿布林肯推文：“我们对缅甸安全部队犯下的流血事件感到震惊，这表明军政府将牺牲人民的生命为少数人服务。我向受害者家属表示最深切的慰问。勇敢的缅甸人民拒绝军方的恐怖统治。”
-
-
-
-> We are horrified by the bloodshed perpetrated by Burmese security forces, showing that the junta will sacrifice the lives of the people to serve the few. I send my deepest condolences to the victims’ families. The courageous people of Burma reject the military’s reign of terror.
-> — Secretary Antony Blinken (@SecBlinken) [March 27, 2021](https://twitter.com/SecBlinken/status/1375919200364036101?ref_src=twsrc%5Etfw)
-
-
-
-
-
-### 中共国和伊朗紧密关系被美国关注
-
-今日《纽约邮报》发表文章《伊朗中国签订25年贸易合作协议》，文章称合作范围包括石油、矿产、交通、农业、工业。两国关系已经到达战略伙伴关系。
-
-
-
-> Iran and China ink 25-year trade cooperation deal [https://t.co/9pGGMCR03N](https://t.co/9pGGMCR03N) [pic.twitter.com/lXPBva8k2e](https://t.co/lXPBva8k2e)
-> — New York Post (@nypost) [March 27, 2021](https://twitter.com/nypost/status/1375921455695794178?ref_src=twsrc%5Etfw)
-
-
-
-
-
-### 美国2024
-
-蓬佩奥国务卿即将参加美国2024总统大选。
-
-
-
-> Campaign 2024: Former Secretary of State Mike Pompeo at Westside Conservative Club in Urbandale, Iowa – 8pm ET on C-SPAN [https://t.co/roVFI4lZds](https://t.co/roVFI4lZds) [pic.twitter.com/roPp7QTWhK](https://t.co/roPp7QTWhK)
-> — CSPAN (@cspan) [March 26, 2021](https://twitter.com/cspan/status/1375595923808526339?ref_src=twsrc%5Etfw)
-
-
-
-
-
-### 上市中资企业返港
-
-华尔街日报中国实时27日发文《香港 “返乡企业 “盛行，但纽约仍是主角》
-
-该媒体推文称：在政治紧张局势加剧的情况下，在美国上市的中国公司纷纷赴港上市，但并没有转化为交易热潮，纽约仍然是最值得一去的地方。
-
-
-
-> U.S.-listed Chinese companies are flocking to go public in Hong Kong amid heightened political tension. But when it comes to trading, New York remains the place to beat. [https://t.co/xgmMPEzScT](https://t.co/xgmMPEzScT)
-> — WSJ China Real Time (@ChinaRealTime) [March 26, 2021](https://twitter.com/ChinaRealTime/status/1375417292557856768?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-
-
-
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
-
-0
++1

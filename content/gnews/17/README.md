@@ -1,39 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《文贵说》| 图片连载（四十五）
-` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/1028212/)
+## 【每日快讯】27/03/2021:霍尔木兹海峡是共产党企图控制全世界经济，能源供给，中共布局的根本手段。炸掉邮轮，堵住霍尔木兹海峡来对付西方。
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/1028534/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/01-2-5.jpg)
-**西方的媒体把爆料革命的信息引为叫——震撼！**
+**制作:Cantonese工作室**
+**播报：【Annie】 资料整理：【An】【 Ruby 】【闪电】 海报制作：【Penny】【 侬民】
+ 视频制作：【caroline】上传:【星星】**
+摘要:
 
-**—— 郭文贵先生 2020年2月21日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/002-4.jpg)
-**每个人都有死，都得一死。人生在世，首先把得与失、生与死看明白，什么事情你就都明白了。**
-
-**—— 郭文贵先生 2017年9月19日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/001-1-1.jpg)
-**第一邪恶的力量不是贪婪，是羡慕和妒忌。**
-
-**—— 郭文贵先生 2020年4月23日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/004-4.jpg)
-**这个世界上很现实，它也很客观、很科学、很公平，所有的爱和情和尊严和尊重，还有金钱，它只跟强者，只跟高尚者，只跟有信仰、有理想的人，它往高处走，它不往低处流 ——这就是文贵的人生哲学。**
-
-**—— 郭文贵先生 2020年4月22日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/003-1-1.jpg)
-**与好人为伍，那是幸运，与坏人相交，那是灾难的开始，是上天对你的惩罚。**
-
-**—— 郭文贵先生 2020年4月23日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/42213.jpg)
-**当一个人回避真话的时候，不愿意听真话的时候，你的生命已经结束了。**
-
-**—— 郭文贵先生 2020年04月22日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/423.jpg)
-**共产党、共产主义它的本质是什么？灭掉上天、灭掉信仰、灭掉自然、灭掉真相、灭掉自我，拉仇恨。**
-
-**—— 郭文贵先生 2020年4月23日**
-
-- [***更多精美海报请点击G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4)
-
-
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-355.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2-129.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-142.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4-79.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/5-69.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/6-53.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/7-42.jpg)
 0
