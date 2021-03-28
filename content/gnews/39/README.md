@@ -1,75 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210328（图片新闻）
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1032109/)
+## 3.28.2021文贵先生盖特文字版
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1032273/)
 
-- 作者：2020喜马拉雅
-- 封面：透明的遮羞布
+文字整理：左媛
+
+昨晚和原来“中战会”中国对外战略协会“友战会”中国对外友好协会——这都是外交部对外关系的 —-老同志进行了很好的沟通。我说，你们怎么看，操纵的又是搞耐克又是搞新疆棉花。老同志们都笑，说现在有些领导还太年轻，他们不吃点亏是不知道咋回事儿的；说共产党这块牌子不是你说打就打的，共产党的东西不是你想学就能学会的，共产党靠的不是这个，现在时代不同了，靠这个不行了。
+
+我说些啥意思啊？这老人家一下子说到事实上了。所以共产党这帮流氓他在坑里说，在那把椅子上说，他就玩那游戏，他离开他那游戏，他也知道他就是坑蒙拐骗流氓土匪。他说的是很正确，他说1959年到1969年发生什么事，二战之后1949年到1959年原苏联发生了什么事，“无人探月”，把美国人给刺激了，当时那种民族主义，原苏联全球的社会主义，我们的共产党还在打着什么亚非拉第三世界，咱们真认真的，以为社会主义真领导全球呢。到1969年，美国把人类送上月球去了，还下来走几步，“我的一小步是人类的一大步”。我说老人家说得特别好，脑子还很冷静。他说更夸张的是工业革命之后几百年把中国人给打惨了，不是八国联军把中国人打惨了，也不是辛丑条约庚子赔款，是中国人义和团中国人的内斗中国人的假大空欺骗和短暂的利己主义，卖掉所有的未来。
+
+这老人家了得！共产党里面还是有精英的，他说把整个民族给毁了。又来了一个共产党，老人家兴奋起来了。他说那十年是什么，是世界工业革命之后，义和团之后，人类走上真正的科技时代，新的通讯时代，那是全球一切的变化，最大的挑战是什么？宗教！人上了月球没见上帝佛祖任何的神，月球上啥也没有，全是沙子，走一小步就回来了。人们开始怀疑到底有没有信仰。他说，文贵你没想到，共产党的骗局这时候其实已经被揭开了，他还不知道咋回事，结果，从那时开始，从1970年到1982年，从毛泽东到邓小平的时代，又折腾了10年。他说，中国人要想开智明眼，面对真相，他说，文贵，太难了！那时又大地震，又毛泽东死亡，又到改革开放，又内部斗争，斗来斗去，一直到89年，又快十年。1959到1989是多少年？人家前苏联上月球多少年了，又搞了个8964，你想中国人愚昧无知不开眼到啥程度？被共产党玩成这样！他说被共产党玩成这样还不说，后来又搞奥运会。这完全是希特勒的手法，修高速搞奥运，剥夺你的枪支许诺给你选举，搞什么党内选举，跟当年希特勒一样。我们很多老同志看你的爆料革命，你说的都靠谱，我们都爱看。虽然不都正确但还靠谱，这是他原话啊。他说，这几天你问问题问得好啊。他说当时南斯拉夫大使馆的事实，南海撞机事件，这两件事操纵民意达到高峰，最大受益是共产党，去大使馆抗议，砸日本车，排日本货，让全世界是挺害怕的，十几亿人搞这事真不敢惹，外交上获得突破性的胜利，共产党天天拿着这个东西吓唬你。
+
+这回事变了。他说，这回事最大的问题是什么？新疆的事真有。这是老人家原话。第二句话，外国人也不吃你这一套，甚至外国人认为你越烧越好。这句话重要。甚至认为你继续乱下去才好。我说这两天啥情况。老人家说，阿呀，他们都是胆小鬼。下面的一报告，说各省各市都要发动排洋货，排耐克，阿迪达斯。下面评估是每天有多少每周有多少，他害怕了，马上叫停。怕老百姓借这把火烧得不可控，不可控不就完了吗？老百姓有很多不知道啥叫阿迪达，斯耐克，也不知道H&M，可能接下来就变成信访变成运动了，哪个运动不是这么起来的？上面害怕了，赶快停赶快收。更可怕的是，就这几天，你知道外汇流出多少吗？千亿美元万亿人民币，一个西部省的GDP整没了。再闹下去怎么办？都跑了。这回美国人欧洲人不吃这一套，傻了吧！所以共产党就是个纸老虎，你只要真一跟它打，它就完。美国人和西方人到现在都不知道它是纸老虎。
+
+老人家还说，还有一件事可怕不？所以中国内部的企业家在这件事上出奇的冷静，认为中国真的是要走向北朝鲜，很多企业家纷纷要关门大吉，走人。他说更夸张的是什么，上海那边看不下去了，说你们这么折腾下去，我们大家都得完球蛋。这么折腾，会变成政治运动，变成8964，变成中西方对抗。虽然在埃及苏伊士运河搞这动作，都知道这是共产党干的，你能控制一段油价，中东的盟友能帮你干，早晚能不穿帮吗？穿帮以后这世界怎么对付中共啊？
+
+老人家这番话告诉战友们真正的本质，中国人太容易被操弄。我们不要被操弄，不要成为被操弄的人。第二，共产党这些招都不灵了。第三，在中东，七哥告诉你它那些计划是“自残”。最后老人家说，你这个“以毒灭共”“以钱灭共”实在是高实在是高啊。我说老人家你多活几天吧。看来，党内所谓的“心”都没了，都心归“新中国联邦”。
+
+#### 郭先生盖特链接 [https://gtv.org/getter/6060861649339063d060d2c4](https://gtv.org/getter/6060861649339063d060d2c4)
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年3月28日电/西喜社——**本文所有图片均是采集网络，如果侵权请联系删除。
+![](https://lh3.googleusercontent.com/vOvI5eyV7g83ar1u8b340iaQ2sPCwEqsRmeCwWinMKdtyEGjUG129gkVosenU3KCW_WHwdL6MqUJaDimKAlj3tgI_3sUujL2O7xP4QiG0jA2Bf9m4EwOC9PkybMZoaaAU3FfjAOw)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/0c39603a-afd0-4ef5-9894-f026f6410ea0.jpg)
+### **欢迎战友加入旧金山金喜农场**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/d702eaf4-e42d-4f13-a12c-694516748338.jpg)
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[** **](https://discord.gg/QQzQ79grEA)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/9dc96734-b01e-4d98-a7d5-2dd815b226e0.jpg)
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)[** **](https://twitter.com/sf_himalaya)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e7e3dcca-6b86-449e-9192-b006e7ffbdde.jpg)
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/e93b480b-036c-4262-b71f-d73e18a80348.jpg)
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/327f5888-7a06-4538-ac86-9ce2bfc9acfc.jpg)
+【**责任编辑**】：bingo 旧金山文宣组
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/15958e23-756d-495b-8c78-1be180162ca5.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/fb0bbf03-cdf9-4210-a7da-84591be29750.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/a708ba2a-b0d9-4a08-986c-0189b2bdd375.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/1713d4fa-c370-49b5-86f9-8408cc2c9c09.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4c82e1ba-e81d-4b4e-8630-431a96758fea.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/70bca1d4-67db-4daf-84a9-55a61d54dee7.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/8c71d7e8-6de0-4d47-b264-7acd202b2c3a.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/58202f54-cbbb-4509-8917-2334d11d8584.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/8290e78b-d7ba-4a5f-b184-eee402d48ccf.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/34838d0e-fb23-48b4-8511-e92863c744d6.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/7449a235-a217-4eb4-8564-a6b78c31530b.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/31034a44-7c15-4e03-8d29-f1143e1229e6.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/5b92dcc5-e3fe-4d78-ad86-be28210fac03.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/c40ccc8c-becd-4059-8a51-4293ed4e2422.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2f8f1365-feb7-4045-8f86-eea25faa7f46.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/8a8e9d2a-20db-4808-94c3-2718cb692a6c.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/67545399-0094-4129-8b96-b8055643c416.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/00eb7865-25d8-4ff3-af5e-b87723fa7d76.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/9b133c38-a150-4db6-97f0-56c7e63aa347.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/44e8756d-4b5c-43c2-9386-99d0d7be768a.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/725f8a66-23fb-48fe-bf63-bdc89063c806.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/73ff3d55-d8b6-4785-8f7b-0d604dacc90c.jpg)
-
-发稿：Ranting
-
-本文观点均来自于作者，与GNEWS无关
-
-+1
++16

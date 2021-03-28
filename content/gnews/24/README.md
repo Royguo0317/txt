@@ -1,127 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒溯源问题白宫在等世卫组织报告
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1032487/)
+## 郭爆料串珠（213）无神论对共产党已经不适应了，党要封圣封神
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1032536/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+**简述：中国现在社科院上百号人研究着把这个所谓给理论化，要把中国社会给阶级理论化，要给中南坑的人要封圣封神，然后告诉你：你的贫穷不是你不是国内有什么错，是你不努力、是你修行不够。然后现在要让佛教、伊斯兰教，各教的大佬都要出来，觉的习近平讲的是对的。……可不是你理解的修正主义，就是共产党实际上是秉承上天旨意的，我们相信无神论对共产党已经不适应了，共产党理解的神和你理解的神不一样。你理解的耶稣、佛祖啊、阿拉呀，是吧？那不对的，共产党理解的神，只要是成功的人、能领导人民走向美好的生活的人都是神，而且是经过科学地验证研究这些人确实有能力，基本上这些人吐出的唾沫你舔了，你就会比美容还管用，如果他的精子得到了，被得到、被他双修过，那基本上你就不死了。是吧？如果说你要是说得了癌症，就这个人只要摸一下你的头，你(癌症)就没了。如果你运气不太好你想挣钱，他基本看你一眼，你挣钱到哪儿去都是一马平川，遇到沟沟填平，遇到车祸，车都是只人家车翻你车不翻。——郭文贵2021年3月10日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image0-119.jpg)
+2020年5月10日
+每年我去中岳这个庙去看的时候，那墙上画的这个炸油锅啊，然后要一万年天天扎你竹签子，我深信比那还可怕。所以有宗教有信仰，你有畏惧。而且你知道人类之外，咱们是最弱的一个群体，动物群体。千万不要去与天斗，与地斗，与人斗。更不要于鬼斗，更不要去用自己的无知来解释全人类，全世界。那是作死！
 
-编辑上传  水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/C-22-13.jpg)yalibnan.com
-3月26日CNN重磅播出罗伯特·雷德菲尔德博士（Robert Redfield）中共病毒来源说【1】，震惊了全美，记者立即追问到了白宫新闻发布会，看看白宫新闻秘书普萨基怎样说（以下将白宫新闻简报涉及中共国内容摘译）：【2】
+这就是共产党说的马列主义，无神论。哪个溷蛋他不相信神呐。不相信神，你毛泽东埋天安门干啥啊？你咋不找个粪坑去埋了去。为什么中央领导人给自己爹妈修的坟，比老百姓的大，恨不得一个城市那么大！你不信神，你这是干嘛？把你爹你妈埋茅屎坑去呗，对不对啊？火化了，给它铲平它。为啥能平老百姓的坟，不平你们的坟啊？他比谁都信！他关键是不让你信，他让你变成奴隶——物质上的奴隶、精神上的奴隶，天下的鬼的奴隶。这才是可怕的，这才是本质。
 
-2021年3月26日，新闻秘书詹·普萨基（Jen Psaki）的新闻简报
+2020年11月26日
+头两天一个国内的历史学家，跟我在那块发半天信息。最后我告诉他，我说你这个历史学的主要是清朝历史，中国五千年历史，你能说啥呀？唐宋元明清才一千多年，你能说能捯饬出一千八百年以前？两千年以前？在这给我吹狼蛋呢！一帮伪知识分子，一帮傲慢的所谓的知识分子，你懂个球啊你懂？那些日本的历史学家都学到成啥了都？最后在最大的事情面前全失败了。那日本的政治家干了三年、三代人，在美国总统的事上，犯了如此低级的错误。不要迷信这些伪类的东西，没有人是万能的，什么都是相对的。学历史的，学历史你能干什么？你能创造历史吗？你能改变历史吗？你能让别人通过你的知识，能给人类带来更多的和平，能给人类带来更多的和谐，能吗？
+这就是共产党的本质，骗骗骗，傲慢傲慢。我说贪嗔痴慢疑，痴和慢是共产党最好的代表。你看看毛贼东与天斗与地斗与人斗，其乐无穷。最后斗啥啦？中国死了几千万人，饿死几千万人，把所有当年跟他干的人全弄死了。玩儿遍所有他喜欢的女人，走了；来了一个邓小平，叫一部分人先富起来，富起来了是吧？把中国的祖宗都快卖了。是富起来啦？中国人还在贫穷当中，然后来一个8964，把坦克把老百姓给压了。然后来一江泽民，你看江泽民一上来是什么？以德治国，以德治国，啥叫德治国啊？德治国，你说中国人到什么程度了？以德治国，以德治国不行了，最后发展到叫什么？三个代表，共产党始终代表着人民的利益，始终代表着世界的先进文明，代表着中国人的文明。放狗屁呢，你代表个屁呀你代表！你代表你的流氓，世界上最大的流氓代表，最大的这个共产主义的，整个是无人性的、流氓黑社会的政权，流氓政权的代表。你代表什么？你代表人类最黑暗的无神论，所谓的就是灭神的人！神的敌人！
 
-新闻发布会
+2021年1月28日
+你像昨天就是把盘古大观经中南坑老杂毛研究完以后，把中国唯一一个，所谓他们信奉的他们是龙的传人，龙形建筑，当年奥林匹克奥运会上在全世界最大影响的一个建筑，唯一是中国人文化为主建筑，不是鸟巢也不是水立方买爹文化、建筑文化的买爹，自己没有爹买个爹回来的那种文化，是吧？丢死人了。只有盘古代表十四亿中国人，这种文化。现在他要把龙头因为爆料革命对这个无神论的无神论的这个党——共产党，非常相信神的存在。说，自从郭文贵的出现，跟共产党的较量没有一次不赢的，没有一次不赢的！经过共产党社科院、易经协会、还有所谓大师，还听说还找了几个藏派，藏派大师，进行研究、论证，说这个盘古龙头来之有术、有风有水、有使命、有力量、有不可琢磨的力量。
 
-新闻简报室
+2021年3月5日
+跟今天的习的思想、王的思想和共产党的中南坑几个老杂毛一模一样——我就是神。所以党现在以后高喊了嘛，你就是习就是神嘛——现代的神，用科学论证习就是代表上帝、就是神，已经在开始研究了。听说社科院有几个院士联名写说，我们共产党无神论但是我们可以提出现证，就是说现代科学和能力之神，叫行为现实当中可找的神，那就是习近平。就是说你看不见的神那就是上边的，我们能看见的神那就是习近平，叫社会主义之神。跟当年希特勒一样，内部就叫你是神呐，几次谋杀都没弄成，是吧？你能活着，这大大的加大了希特勒的这种野心——影响人类，现在一模一样，呵呵~。
 
-……
+2021年3月10日
+中国现在到了什么时候了呢？——已经认真地，严肃地不加掩饰地在将高中低端人口法律化，并且一点都不含煳的将低端和中端和高端人口三个层次阶级斗争，和中国的经济分层次、人分层次、教育分层次，最后要达到一个中国回到现在的中南坑所谓的研究的共产党这些年我们修正主义要重新开始。
+什么叫修正主义？可不是你理解的修正主义，就是共产党实际上是秉承上天旨意的，我们相信无神论对共产党已经不适应了，共产党理解的神和你理解的神不一样。你理解的耶稣、佛祖啊、阿拉呀，是吧？那不对的，共产党理解的神，只要是成功的人、能领导人民走向美好的生活的人都是神，而且是经过科学地验证研究这些人确实有能力，基本上这些人吐出的唾沫你舔了，你就会比美容还管用，如果他的精子得到了，被得到、被他双修过，那基本上你就不死了。是吧？如果说你要是说得了癌症，就这个人只要摸一下你的头，你(癌症)就没了。如果你运气不太好你想挣钱，他基本看你一眼，你挣钱到哪儿去都是一马平川，遇到沟沟填平，遇到车祸，车都是只人家车翻你车不翻。
+最后就在现实中发现完全封圣是有道理的，封圣封神是有道理的。然后就解释出来你看看，马丁路德金在美国这号人实际上是神，这个神被美国人杀了，是吧？佛洛依德这人也是神大家不理解的。还有英国刚刚过世这科学家宇宙学家叫什么金，我也见过这人，这都是神，英国人错过了机会没有封他神。那么中国过去毛泽东就是神，大家是心里知道都把他当神尊敬，没有给他法律化，现在发现了习大大、习大神是神、是圣，他是神、他是圣。那是不是他算一极呢？他算一极，他是人间的神、中国人的神，封圣，剩下咱都是什么？咱是人，他是神，两等出来了吧。这人里边又分出等了，所以说雷锋要活着，那他就是上等人，是吧？你像薄熙来这些人是吧？被抓到秦城监狱的这些人，这属于下等人。谁是什么高尚的人呐？这些劳工们，刚才视频出来的那个，你是高尚的人，但你是下等人。
+共产党员是什么人呢？你有使命的人就叫中等人，就算郝海东兄弟，叶钊颖妹妹啊，你包括像路德这样在国内都属于中下等人了，郝海东先生属于中等人，是吧？也可能中上给你定，科学家是中下人、中上人。你属于中等人、中上人、中下人。反正你在中这你不能上，是吧？
 
-问：……下面，关于疫情：前CDC主任雷德菲尔德博士今天上午说，他相信病毒来自武汉的实验室，拜登总统是否对病毒的起源有任何看法，或者美国是否就此得出结论？
+这个社会你现在不知道有多危险！战友们！中国现在社科院上百号人研究着把这个所谓给理论化，要把中国社会给阶级理论化，要给中南坑的人要封圣封神，然后告诉你：你的贫穷不是你不是国内有什么错，是你不努力、是你修行不够。然后现在要让佛教、伊斯兰教，各教的大佬都要出来，觉的习近平讲的是对的，用佛教的说，用咱爆料革命的话说是唯真不破、说真话，说真话是最好的修行。那就是说事实上你就是因为你上一辈子没干好事所以你穷。说你看杨改兰，为什么杨改兰你那么穷啊？是你上辈子没干好事。对吧？刚才那哥们为什么一天那么辛苦啊？你咋没进中南坑啊？是你爹你妈都没干好事，你也没干好事。像海外这爆料革命这帮小子，为什么这帮小子要灭共啊？因为这帮小子天生长得就是反骨，都是一帮loser，是吧？欺民贼那就是垃圾，垃圾生出来的，你就不入流了。爆料革命天生反骨，是吧？你们爹妈就是下流人，所以你们都是反骨，把咱肯定打成这个了。是吧？那知识分子那有些人出来闹事，那这些人都是下等人，只是披了中等人的衣裳。
 
-普萨基：嗯，你知道，世卫组织正在研究这个问题，不久将发布一份报告，一旦有了那份报告，我们会再看一遍。
+2021年3月22日
+伟大的党要封圣，不是一个而是八个封圣。基本上打个电话你不怀孕也会怀孕了。连偏远的新疆和东北都在学习“杨王”在习大神领导下划时代的国际大事件，让中国人站起来了。中国人是披着狮子皮的羊了，牛了牛了。但据战友说，我家还是吃着咸菜，大葱蘸酱，没啥改变。正等着美国把苹果手机和羊肉牛肉送给中国。不得不说，杨娘娘王公公是划时代的英雄。据说在国内说，当年撒切尔夫人被一口痰吐倒，中国迎来了香港回归的新时代；现在在大会堂，董建华成了疫苗“董栽倒”，香港彻底回了；拜登总统一摔三次，都说明中华民族要走向伟大的时代，领导全宇宙。未来决定不登火星了，直接把火星拿回北京用，自己独享，多好！这就像作家莫言写的，高密县长出了摩天大楼……兄弟姐妹们，你们觉得中共还有正常人吗？整个中共国已经是胡言乱语了。天呐！还好，有我新中国联邦！我现在和国内战友聊天，还能保持正常的生活状态，已经难能可贵了！21世纪竟然有这样的人民这样的政府，互联网时代能让人民变成这样，我欲哭无泪，不知说什么好！
+所以，今天早上有一堆话想跟大家聊，录了两段，算了，胡扯吧。健身后说不定再和大家聊吧。兄弟姐妹们，保持一个清醒的脑子有多么重要，有个起码的判断力多不容易，别忘了我们是人不是猪有多么的重要！共产党我R你八辈祖宗，把中国人变成这样！等新中国联邦收拾你们吧，很快你会看到的！
 
-我们将继续更多地了解中共病毒疫情开始的最初几天，包括它的起源，以便我们能够更好地为未来的危机做好准备。
+2021年3月24日郭先生直播：
+1.共产党内部出现了很多义和团，这几天国内的状况郭先生都懵了，从农村到首都，咱都呆过，都知道，一夜之间怎么就回到八国联军之前义和团的时候呢？连东北的边陲小镇，到西藏整个深山老林，到美丽自然的所谓的小瑞士，到云南大理，甚至到中越边境，整个最穷、最先进或最危险的地方，到处都歌颂杨娘娘、王公公，中共国政府世界、中国人不吃这一套，到处传说着习大神和中南坑八个老人家如何英勇伟大，更有甚者，各大院校都在探讨过去对共产党的判断是误解，有些都是错的，要清醒认识共产党要给人类带来新文明，共产党是耶稣、基督、天主、阿拉的化身。某省师范学校某位刚刚年轻有为的人说了几句话，全世界还在造谣，我党我国，对穆斯林新疆、我党我国在香港进行了大屠杀，我党我国领导人子女都在国外，这些都是造谣，要批假、反假、要为我党证明，不存在什么少数民族被打压欺负。说我党是个浪漫的党，尊重的党，这哥们直接被纪委叫去谈话，此人两次被组织警告，看爆料革命、路德访谈、博士军团，这哥们惨了，有记录，说这话不是心里话，这就是反话，为党证明事实上是在传播爆料革命、新中国联邦的政治谣言，这哥们被弄得很惨。
+2.更有一位女士，我党是浪漫的党，无论是习大神还是彭丽媛，还是过去江泽民、邓小平、都是一个浪漫的党，歌颂我党的浪漫和与时俱进，三个代表，与世界要和谐共处的、和平未来的、伟大的党，甚至我党有很多罗密欧主义，浪漫之说也被中纪委、政法委谈话，不允许使用电脑警告不允许使用翻墙看海外新中国联邦的视频。
 
-我知道瓦伦斯基（Walensky）博士谈到了这一点，我认为福奇博士今天上午也谈到了这一点，我们将密切关注随时出现的信息。
+推荐阅读：[郭爆料串珠（170 – 1/2）裕达易主、“盘古”换头，预示政权更迭，共产党彻底颠复了自己的无神论](https://gnews.org/zh-hans/905988/)
 
-问：总统被告知的观点是由世卫组织的报告，还是他顾问的报告？我是说，他是什么-
+[郭爆料串珠系列文章标题和链接汇总213- 1](https://gnews.org/zh-hans/888831/)
 
-普萨基：当然是他的健康和医疗顾问，因此，他们将审查——当然，当报告和更多数据出现时，他们将审查这些内容和人。
-
-问：最后一个是关于中共国新疆的强迫劳动，一些公司受到了中共国政府的压力，一些零售商实际上也放弃了不使用该地区强迫劳动生产的产品的承诺。那么，你知道，美国在做什么来阻止或制止中共国对导致这一问题的公司进行的这种威胁呢？
-
-普萨基：当然，我们一直在密切关注这个问题，大家都知道，我们也采取了强有力的行动，以防止中共国从新疆可怕的侵犯人权行为中获利，并阻止从中共国进口强迫劳动生产的产品。
-
-美国消费者和世界各地的消费者应该知道，他们的商品是–他们购买的商品不是用强迫劳动制造的，许多公司都在维护消费者的权利。
-
-我们认为，国际社会应该反对中共国将私营企业依赖市场的行为武器化，以扼杀言论自由，抑制商业道德，所以这是我们密切关注的事情。
-
-当然，我们已经采取了自己的行动，我希望政府和商业部门今天晚些时候对此有更多要说的。
-
-问：接着问一下，因为在本届政府的头几个月里，你们似乎一直在传递这样的信息，但事实上，中共国似乎更大胆地威胁这些公司，那么，白宫还能做些什么来阻止他们做出这些威胁呢？
-
-普萨基：好吧，我们可以与我们的国际伙伴合作，很明显，正如我所传达的，我们将如何回击中共国对私营企业进行武器化的企图，我们可以像现在这样公开传达，当然也可以参与到私营实体企业中来应对（中共国的）这些企图。
-
-但很多这样的行动将发生在商业上，在某些情况下，还有国务院，再说一次，我希望他们今天晚些时候会有更多的细节要说。
-
-凯特兰（Kaitlan），该你问了。
-
-问：有几个问题，关于世卫组织调查（报告）即将出炉，国家安全顾问杰克·沙利文（Jake Sullivan）几个月前表示，他们对调查的进行方式深感担忧，他们还有哪些深切的担忧吗？
-
-普萨基：部分原因是由于缺乏透明度，而且缺乏–我们无法确保我们能够得到可用的数据，所以出现了延迟，他们实际上推迟了那份报告的发表，我们也支持。我们得看一看，确保我们能获得基本的信息。
-
-问：那么，如果这份报告出来了，而拜登总统对此并不满意，会发生什么呢？
-
-普萨基：是对报告不满意？
-
-问：（没听清）
-
-普萨基：好吧，我们还呼吁进行国际调查，调查发生了什么事，以及起源–不只是起源，我应该说–中共国缺乏透明度，我们已经恢复或是重新组建了我们在北京的团队。
-
-那我们看看报告怎么说，在我们关注的地方，我们会查看底层数据，如果我们可以访问这些数据的话，然后我们必须通过跨部门的程序来决定下一步的行动。（摘译完）
-
-没有查到新上任的CDC主任伦斯基（Walensky）对中共病毒来源的态度，昨天她的表态是等世卫组织的报告，老贼福奇虽然没有明确反对雷德菲尔德博士的“起源武汉说”，但其暗示话语充满了为中共的开脱。
-
-从普萨基的回答获得的信息如下：
-
-1、“但很多这样的行动将发生在商业上，在某些情况下，还有国务院，再说一次，我希望他们今天晚些时候会有更多的细节要说。”说明会对中共国有进一步的制裁行动；
-
-2、世卫组织的调查报告被推迟，或者退回补充，不久会发布；
-
-3、“我们已经恢复或是重新组建了我们在北京的团队”，说明美国在北京有团队，应该是调查团队，还是其他？
-
-相关链接：
-
-【1】https://gnews.org/zh-hans/1023905/
-
-【2】https://www.whitehouse.gov/briefing-room/press-briefings/2021/03/26/press-briefing-by-press-secretary-jen-psaki-march-26-2021/
-
-原文部分：
-
-Q: And then, on the pandemic: Dr. Redfield, the former CDC director, said this morning that he believes that the virus originated from the lab in Wuhan.  Does President Biden have any views on where the virus may have originated, or has the U.S. come to a conclusion on that yet?
-
-MS. PSAKI: Well, as you know, the WHO is examining this and will be releasing a report soon.  We’ll review that report once it’s available.
-
-We continue to learn more about the earliest days of the COVID-19 pandemic, including its origins, so we can better prepare for future crises.
-
-I know Dr. Walensky addressed this and I think Dr. Fauci did as well this morning, and we’ll look closely at that information when it’s available.
-
-Q: Are the President’s views being informed by that WHO report or his advisors?  I mean, what is he–
-
-MS. PSAKI:  By his health and medical advisors, certainly. And so they’ll review — they will be, of course, the people reviewing the reports and more data when it becomes available.
-
-Q: And then, last one on the forced labor in Xinjiang, in China. Some companies have come under pressure from the Chinese government, and some retailers have actually dropped pledges not to use products made with forced labor from that region. So, you know, what is the U.S. doing to stop or deter China from making those kind of threats against companies that have resulted in this problem?
-
-MS. PSAKI: Well, we certainly have been watching this issue closely, as you well know, and we’ve taken our own strong actions in order to prevent China from profiting off of its horrific human rights abuses in Xinjiang and to stop imports of products made with forced labor in China.
-
-American consumers and consumers everywhere deserve to know that their goods are — that the goods they are buying are not made with forced labor, and many companies are standing up for consumers’ rights.
-
-The international community, in our view, should oppose China’s weaponizing of private companies’ dependence on its markets to stifle free expression and inhibit ethical business practices.  So it is something we are watching closely.
-
-We’ve, of course, taken our own action.  I would expect that State and Commerce will have more to say on this later today.
-
-Q：And just one quick follow-up, though.  It’s — because it seems like you’ve been having this message out there for the first couple months of this administration, but it’s — China only seems more emboldened to threaten these companies.  So what more can be done from the White House to try to deter them from making these threats?
-
-MS. PSAKI: Well, we can work with our international partners, obviously, as I conveyed, on how we’re going to push back on China’s efforts to weaponize private companies.  And we can convey publicly, as we are now, and of course engage with private sector entities about these efforts.
-
-But a lot of that action would happen from Commerce and, in some cases, the State Department.  And again, I expect they’ll have more specifics to say later today on this.
-
-Go ahead, Kaitlan.
-
-Q: A few questions.  On the WHO investigation that’s coming out, Jake Sullivan, the National Security Advisor, said a few months ago that they had deep concerns about the way the investigation was being conducted.  Do they still have those deep concerns?
-
-MS. PSAKI: In part because there was a lack of transparency and there was a lack of — we weren’t ensured that we would have access to the data available, so there was a delay.  They actually delayed the release of that report, which we were encouraged by. We’ll have to take a look at it and make sure we have access to the underlying information.
-
-Q: So what happens if the report comes out and President Biden is not satisfied with it?
-
-MS. PSAKI: Not satisfied with the report?
-
-Q: (Inaudible.)
-
-MS. PSAKI:  Well, we’ve also — we’ve also called for an international investigation and look into what’s — what’s happened and the origin — not just the origin, I should say — the lack of transparency from the Chinese.  We have reinstituted or reengaged with — through staffing of our — of our team on the ground in Beijing.
-
-So we’ll see what the report says.  Where we have concerns, we’ll look at the underlying data, if we have access to that.  And then we’ll have to make a determination through an interagency process on what’s next.
+整理：德国感恩农场文迅等
+发稿：如风
+郭爆料串珠系列文章，都是从800多篇郭文贵先生直播听写文字版、盖特精选而成，具有文献价值。由德国感恩农场文迅等按时间、主题整理。感谢战友听写！
 
 0
