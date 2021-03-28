@@ -12,168 +12,165 @@
 
 ---
 
-### [【新闻宅急便】纽约邮报：COVID-19是生物武器](/content/gnews/1/README.md)
- ` 日本东京樱花团`
-
-### [【各抒己见】金融入门的第一课](/content/gnews/2/README.md)
- ` 日本东京樱花团`
-
-### [【各抒己见】做个合格的新中国联邦人](/content/gnews/3/README.md)
- ` 日本东京樱花团`
-
-### [运动后马上洗澡的危害](/content/gnews/4/README.md)
- ` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels`
-
-### [中共火币蕴含的融资风险](/content/gnews/5/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【军事快讯】美军特种作战司令部成立新机构，专门应对中共信息战](/content/gnews/6/README.md)
- ` 纽约香草山MOS01`
-
-### [中共超限战灭港计划（21）新时代舆论战之中共新战略](/content/gnews/7/README.md)
- ` 喜馬拉雅-粵語組`
-
-### [辩别真假是非能力对新中国联邦人的重要性](/content/gnews/8/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [【热点播报】中共外交部宣布对美、加有关人员和实体实施制裁，美英加欧盟将往何处去？](/content/gnews/9/README.md)
- ` 纽约香草山MOS01`
-
-### [【热点播报】媒体报道李克强视察“新疆棉事件”原料外资工厂，是否急转弯，为事件灭火？](/content/gnews/10/README.md)
- ` 纽约香草山MOS01`
-
-### [视频美印太司令提名人约翰·阿奎利诺：中共入侵台湾的威胁迫在眉睫](/content/gnews/11/README.md)
- ` 秘密翻译组G-Translators`
-
-### [【香港要闻】 港人百亿 美元 转移加拿大史上最高水平资金 逃亡浪潮](/content/gnews/12/README.md)
- ` 喜馬拉雅-粵語組`
-
-### [拜登延续川普在印太地区的政策](/content/gnews/13/README.md)
+### [布林肯抨击中共国对美国和加拿大官员实施报复性制裁](/content/gnews/1/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [中共加速与世界背道而驰，同伊朗签署长达25年总价4000亿美元订单协议！](/content/gnews/14/README.md)
- ` G-NEWS TAIWAN`
-
-### [【信仰之声】荆棘中的上主(二)](/content/gnews/15/README.md)
- ` 纽约香草山MOS03`
-
-### [长荣货轮苏伊士运河搁浅 看台湾海峡的重要](/content/gnews/16/README.md)
- ` G-NEWS TAIWAN`
-
-### [视频【每日快讯】27/03/2021:霍尔木兹海峡是共产党企图控制全世界经济，能源供给，中共布局的根本手段。炸掉邮轮，堵住霍尔木兹海峡来对付西方。](/content/gnews/17/README.md)
- ` GM132 每日快訊`
-
-### [中共抵制洋货经济绑架惹众怒，李克强敏感时刻视察外企唱反调](/content/gnews/18/README.md)
- ` JPHIMALAYA`
-
-### [《路德社》精选新闻简讯：ZARA母公司疑悄悄撤下抵制新疆棉声明](/content/gnews/19/README.md)
- ` 路德社精选`
-
-### [【国际众声】我们不吃这一套，不过说一套、做一套](/content/gnews/20/README.md)
- ` 喜馬拉雅-粵語組`
-
-### [快讯！ 中共外交部宣布制裁美加3人及实体](/content/gnews/21/README.md)
- ` JPHIMALAYA`
-
-### [《文贵说》| 图片连载（四十五）](/content/gnews/22/README.md)
- ` 文贵说｜Words From Miles`
-
-### [把新疆棉写在标签上不是李宁公司蠢到极点坏到极点的第一次](/content/gnews/23/README.md)
- ` JPHIMALAYA`
-
-### [【热点播报】美国获奖生物学家抨击彼得·达扎克和世卫组织共同兜售中共“虚假信息”](/content/gnews/24/README.md)
- ` 纽约香草山MOS01`
-
-### [5G时代](/content/gnews/25/README.md)
- ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
-
-### [大火一直在燃烧](/content/gnews/26/README.md)
- ` 澳喜农场`
-
-### [纽约邮报重磅文章：闫丽梦博士是第一个站出来揭露中共病毒真相的科学家](/content/gnews/27/README.md)
- ` 喜马拉雅德国慕尼黑感恩农场`
-
-### [美加谴责中共在维族问题上的制裁“报复”](/content/gnews/28/README.md)
+### [布林肯称美与中共国对抗性日益增强](/content/gnews/2/README.md)
  ` HimalayaRussia`
 
-### [中共“流氓外交”几时休？](/content/gnews/29/README.md)
+### [美国空军退役中将托马斯·麦金纳尼](/content/gnews/3/README.md)
+ ` 温哥华圆成农场🇨🇦`
+
+### [郭爆料串珠（214-3/3）中南坑要把划分高、中、低端人口法律化、宗教化](/content/gnews/4/README.md)
+ ` 喜马拉雅德国慕尼黑感恩农场`
+
+### [郭爆料串珠（214-2/3）中南坑要把划分高、中、低端人口法律化、宗教化](/content/gnews/5/README.md)
+ ` 喜马拉雅德国慕尼黑感恩农场`
+
+### [【世事解评】从黄金储备看世界面临的经济大危机和G币未来](/content/gnews/6/README.md)
+ ` 纽约香草山MOS01`
+
+### [郭爆料串珠（214-1/3）中南坑要把划分高、中、低端人口法律化、宗教化](/content/gnews/7/README.md)
+ ` 喜马拉雅德国慕尼黑感恩农场`
+
+### [【文贵视角】中国人历来容易被操纵，共产党显露出纸老虎本质](/content/gnews/8/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [简说历史：揭露中共世纪骗局史1949~1955：“百花齐放”、“百家争鸣”——“双百运动”](/content/gnews/9/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [【小一观点】新疆棉花事件背后是一盘大棋](/content/gnews/10/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [禁摩托、电动两轮车出行，动了中共什么蛋糕？](/content/gnews/11/README.md)
  ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [缅甸安全部队屠杀了包括儿童在内的114名抗议者](/content/gnews/30/README.md)
- ` HimalayaRussia`
-
-### [【世事解评】从显卡脱销的背后看GCoin的未来](/content/gnews/31/README.md)
+### [视频【字幕】3/28/2021文贵盖特：与中国共产党的老干部．老革命聊天的感受](/content/gnews/12/README.md)
  ` 纽约香草山MOS01`
 
-### [【世事解评】中共“舔肛”文化（一）：康震其人与《石壕吏》](/content/gnews/32/README.md)
- ` 纽约香草山MOS03`
+### [简说历史：揭露中共世纪骗局史1949~1955：序言](/content/gnews/13/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
 
-### [《路德社》精选新闻简讯：香港 &#8220;返家上市 &#8220;的热潮正在进行中，但纽约仍是中共企业上市的首选](/content/gnews/33/README.md)
- ` 路德社精选`
+### [中共假借朱熹理学奴役百姓，套用王阳明心学争斗官场](/content/gnews/14/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [【国际众声】一朵棉花 引发的血 案全球陷入大型“自宫”现场](/content/gnews/34/README.md)
- ` 喜馬拉雅-粵語組`
-
-### [佐治亚州改革选举法案令川普欢喜拜登愁](/content/gnews/35/README.md)
+### [负责调查的大卫·阿舍称病毒来自中共实验室](/content/gnews/15/README.md)
  ` HimalayaRussia`
 
-### [信仰与关键抉择——理解愛系列之四](/content/gnews/36/README.md)
- ` 澳喜农场`
-
-### [【战友心声】中共在塞尔维亚的一盘棋](/content/gnews/37/README.md)
- ` 纽约香草山MOS03`
-
-### [2021年03月27日澳喜要闻（每日更新）](/content/gnews/38/README.md)
- ` 澳喜农场`
-
-### [疫苗护照的本质是玩美国人](/content/gnews/39/README.md)
- ` wenwu`
-
-### [美国政要等每日重要信息0327.2021（持续更新）](/content/gnews/40/README.md)
- ` 喜馬拉雅的文雅 Wenya Himalaya`
-
-### [新疆棉花到底是机器采摘还是人工采摘？真相在这里！](/content/gnews/41/README.md)
- ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
-
-### [随着威胁的加剧，中共的间谍“可以在英国的各个角落窃听您的手机通话”](/content/gnews/42/README.md)
- ` JPHIMALAYA`
-
-### [伊朗和中国签署25年合作协议，当地爆发激烈反中情绪](/content/gnews/43/README.md)
+### [郭爆料串珠（213）无神论对共产党已经不适应了，党要封圣封神](/content/gnews/16/README.md)
  ` 喜马拉雅德国慕尼黑感恩农场`
 
-### [诋毁共匪英烈的许某怡已被刑拘，而我们都是这个国家的“敌人”](/content/gnews/44/README.md)
- ` JPHIMALAYA`
-
-### [【以钱灭共】](/content/gnews/45/README.md)
- ` 喜马拉雅农场新西兰站`
-
-### [【老江观点】—谈谈黄金，谈谈百度](/content/gnews/46/README.md)
- ` Laojiang`
-
-### [郭先生3月27日直播精要文字版](/content/gnews/47/README.md)
- ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
-
-### [【世事解评】中共的巨额财富与中国人微薄的公共福利](/content/gnews/48/README.md)
- ` 纽约香草山MOS01`
-
-### [欧洲很脆弱，处于俄罗斯和北京的攻击之下——欧洲多国公布本国国家安全状况评估](/content/gnews/49/README.md)
+### [西班牙巴塞罗那喜悦农场：简说历史专栏](/content/gnews/17/README.md)
  ` 西班牙巴塞罗那喜悦农场`
 
-### [安东尼VS战狼：敢于和中国站在一起会怎样？——法国外交官评中共的战狼外交](/content/gnews/50/README.md)
- ` 西班牙巴塞罗那喜悦农场`
+### [美国前疾控中心主任接受CNN专访：病毒来自中共实验室](/content/gnews/18/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
 
-### [CNN报道美国前疾控中心主任揭示Covid-19源自中共实验室](/content/gnews/51/README.md)
+### [英国奥尔顿勋爵：中共的制裁不会让我保持沉默](/content/gnews/19/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [世卫组织关于病毒来源的报告因中共干预再被推迟](/content/gnews/20/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [中共病毒溯源问题白宫在等世卫组织报告](/content/gnews/21/README.md)
+ ` HimalayaRussia`
+
+### [【班农战斗室】3/27/2021 戴夫·拉姆斯瓦米（Dave Ramaswamy ）的咽喉要塞理论 &#8211; 苏伊士运河 &amp; 马六甲海峡](/content/gnews/22/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [中概股面临摘牌，港股应声下挫](/content/gnews/23/README.md)
+ ` 英國倫敦喜莊園 Himalaya London Club UK`
+
+### [新冠病毒起源追溯](/content/gnews/24/README.md)
  ` 喜马拉雅德国慕尼黑感恩农场`
 
-### [【各抒己见】有家的感觉真好](/content/gnews/52/README.md)
- ` 日本东京樱花团`
+### [特鲁多认为中共国反制裁是“对自由的攻击”](/content/gnews/25/README.md)
+ ` HimalayaRussia`
 
-### [美日首脑会谈期间美承认日本对钓鱼岛拥有主权？](/content/gnews/53/README.md)
+### [布林肯称中共国的报复性制裁毫无根据](/content/gnews/26/README.md)
+ ` HimalayaRussia`
+
+### [2021年3月28日 文贵先生盖特 1](/content/gnews/27/README.md)
+ ` 喜联盟七哥盖特组 Miles Guo’s Getter`
+
+### [面对中共霸凌 加国主流媒体首提“种族灭绝和反人类罪”](/content/gnews/28/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [快讯！中共国北方沙尘暴又来了，超15省市将受影响](/content/gnews/54/README.md)
+### [“长赐号” 集装箱货轮搁浅阻塞苏伊士运河，海运运费急剧上升](/content/gnews/29/README.md)
+ ` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels`
+
+### [中伊签署4000亿美元基建换石油协议](/content/gnews/30/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [3.28.2021文贵先生盖特文字版](/content/gnews/31/README.md)
+ ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+
+### [香港手足集气系列（二）香港人写给公民党议员郭家麒的信](/content/gnews/32/README.md)
+ ` 喜馬拉雅-粵語組`
+
+### [【各抒己见】拜拜了！CCP的墙国银行](/content/gnews/33/README.md)
+ ` 日本东京樱花团`
+
+### [俄罗斯知名媒体人波兹涅尔：只有美国才能帮俄，俄美需联手对抗中共](/content/gnews/34/README.md)
  ` 喜马拉雅德国慕尼黑感恩农场`
 
-### [[以毒灭共】美国著名生物学家 揭露世卫专家配合中共掩盖CCP病毒真相](/content/gnews/55/README.md)
- ` 旧金山金喜农场 Himalaya San Francisco Golden Farm`
+### [中共国和伊朗周六签署了一项为期25年的合作协议，以加强其长期的经济和政治联盟](/content/gnews/35/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [慧眼看世界20210328（图片新闻）](/content/gnews/36/README.md)
+ ` 西班牙巴塞罗那喜悦农场`
+
+### [基辛格说，美国需要与中共国达成新的谅解，否则有冲突的风险](/content/gnews/37/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [中共驻法大使战狼式撒野惹众怒](/content/gnews/38/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [台湾报道最大的中共国空军入侵](/content/gnews/39/README.md)
+ ` 康州盘古喜马拉雅农场`
+
+### [视频《路德社》新闻快讯（视频版）: 20210328纳瓦罗先生接受Jeanine法官采访](/content/gnews/40/README.md)
+ ` 路德社`
+
+### [喀秋莎新闻参考- 2021年3月27日(星期六)](/content/gnews/41/README.md)
+ ` HimalayaRussia`
+
+### [郭先生0327VI: G系列是安全的投资项目,投机者一定会吃亏](/content/gnews/42/README.md)
+ ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
+
+### [【香港快讯】 3月28日 李宇轩返港6天 仍下落不明 人大常委会料周二表决阉港选制](/content/gnews/43/README.md)
+ ` 喜馬拉雅-粵語組`
+
+### [视频路德时评简讯（视频版）：美众议员提议将台湾纳入“北约加”成员(2021.3.23晚间 路德社简讯之路博艾冠谈）](/content/gnews/44/README.md)
+ ` 路德社`
+
+### [《文贵说》| 图片连载（四十六）](/content/gnews/45/README.md)
+ ` 文贵说｜Words From Miles`
+
+### [郭先生0327V七哥人生里从未见富豪靠投机和押期货发财的](/content/gnews/46/README.md)
+ ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
+
+### [一眼望不到头的打疫苗队伍和陆续加入的人群都在坠入深渊的路上](/content/gnews/47/README.md)
+ ` JPHIMALAYA`
+
+### [视频3/27/2021郭先生直播: 中共控制世界和绑架中国人民的计划在过去70年里从未停止！](/content/gnews/48/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [【每日快报】中共国与伊朗签署25年巨额协议以中国的基础设施投资4000亿美金换取石油 2021.03.28](/content/gnews/49/README.md)
+ ` 喜马拉雅-华盛顿DC农场`
+
+### [郭先生0327IV共产党对霍斯木海峡和巴拿马运河早有预谋](/content/gnews/50/README.md)
+ ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
+
+### [新中国联邦新面貌——礼仪](/content/gnews/51/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
+
+### [郭先生0327III如今的黄金需求和黄金趋势正在重演08年的一幕](/content/gnews/52/README.md)
+ ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
+
+### [日本前首相安倍晋三：日本已成为美中两国对立的最前线](/content/gnews/53/README.md)
+ ` 喜马拉雅德国慕尼黑感恩农场`
+
+### [雷德菲尔德：冠状病毒从武汉实验室“逃离”](/content/gnews/54/README.md)
+ ` 康州盘古喜马拉雅农场`
 

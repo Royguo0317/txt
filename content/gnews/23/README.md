@@ -1,51 +1,61 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 把新疆棉写在标签上不是李宁公司蠢到极点坏到极点的第一次
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1028322/)
+## 中概股面临摘牌，港股应声下挫
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1032475/)
 
-**【日本东京方舟农场】** 撰稿：Maarago   素材整理：文柯Miles   校对：miumiu law
+新闻来源：《CNBC》| 作者：Arjun Kharpal | 发布时间： 2021年3月24日
 
-据[澎湃新闻](https://weibo.com/thepapernewsapp) [2021年3月25日 13:28](https://weibo.com/5044281310/K7OAs3eCT?from=page_1002065044281310_profile&amp;wvr=6&amp;mod=weibotime) 来自 微博视频号
+翻译/简评：Victory | 校对：感恩 | 审核：万人往| Page：Daoiii
 
-【[#李宁客服回应标签写新疆棉#](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E5%AE%81%E5%AE%A2%E6%9C%8D%E5%9B%9E%E5%BA%94%E6%A0%87%E7%AD%BE%E5%86%99%E6%96%B0%E7%96%86%E6%A3%89%23&amp;from=default) ：一起支持中国新疆棉】3月25日，有网友发图称李宁将“采用新疆棉”写在吊牌上，澎湃新闻就此询问电商平台李宁旗舰店客服，得到肯定回复。今日[#李宁股价大涨逾7%#](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E5%AE%81%E8%82%A1%E4%BB%B7%E5%A4%A7%E6%B6%A8%E9%80%BE7%25%23&amp;from=default) [#李宁把新疆棉写在标签上#](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E5%AE%81%E6%8A%8A%E6%96%B0%E7%96%86%E6%A3%89%E5%86%99%E5%9C%A8%E6%A0%87%E7%AD%BE%E4%B8%8A%23&amp;from=default)
-[°李宁客服回应服装标签：一起支持中国新疆棉](https://weibo.com/ttarticle/p/show?id=2309354618627566665935) [L澎湃新闻的微博视频](http://t.cn/A6tsWKui) ​​​​
+[!\[\]()!\[\](https://spark.adobe.com/page/CKm0Swf6vZyxa/images/512a4ad6-7cd6-47a9-85d1-110aa4dd1331.jpg?asset_id=23a3dcae-fcec-4297-a800-da68f7aa852e&amp;img_etag=%22e4de1b6b9c4ae286ded670b4a3c41931%22&amp;size=1024)](https://spark.adobe.com/page/CKm0Swf6vZyxa/images/512a4ad6-7cd6-47a9-85d1-110aa4dd1331.jpg?asset_id=23a3dcae-fcec-4297-a800-da68f7aa852e&amp;img_etag=%22e4de1b6b9c4ae286ded670b4a3c41931%22&amp;size=1024)
 
-在这个世界上很多人、很多公司总是在最关键的时刻做出最正确的选择，而那些在最关键时刻做出最错误选择的人或公司则并不仅仅是蠢，而是坏，而这一次把新疆棉写到标签上所透露出来的李宁公司骨子里的蠢到极点和坏到极点却真不是史无前例的第一次。
+***简评：***
 
-1、把爱国做成生意的李宁公司是如何爱国的？——
+据美国证券交易委员会(SEC)2019年统计，中共国已有超过150家企业在美各大交易所挂牌，总市值达1.2万亿美元。而按照此前的规则，如此巨大市值规模的在美上市企业，大部分都雇用香港或中国大陆的会计师事务所，居然不受美国会计师监督委员会的审计。这些企业提交的数据有多少水分呢？这样的风险，华尔街的人此前会不知道吗？事实上，只要稍作调研，我们就可以看到其中大量中共相关企业都是由华尔街配合包装赴美上市、联合起来在美国股市圈钱的。很明显，现在情况已经有了本质转变。
 
-据[拆台CT](https://weibo.com/u/6059492811?refer_flag=1005055014_) [2021年3月26日 13:03](https://weibo.com/6059492811/K7XR45nNx?from=page_1005056059492811_profile&amp;wvr=6&amp;mod=weibotime) 已编辑自诩爱国企业李宁是这样爱国的：同样的款式，不一样的价格，女鞋比男鞋贵。请林丹代言，一年只给50万；请三哥三姐，4年4000多万，划水没事，糊了也没事，只要是外国人，就给优待。在价格上，不仅是男女有别，内外也有别，国内价格比国外价格要高。做出这么多恶心事儿，居然敢营销不买李宁就不爱国。我踏马先吐为敬。[#李宁官宣肖战#](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E5%AE%81%E5%AE%98%E5%AE%A3%E8%82%96%E6%88%98%23&amp;from=default)收起全文d
+《外国公司问责法案》在2020年川普总统在任时已经签署，而现在SEC拿出了法案要开始执行。这背后是什么力量推动的？一定是资本市场的选择。所有和中共利益勾兑的机构都不得不开始转向、脱钩。所谓天下大势、浩浩汤汤。《道德经》有一句：“其安易持，其未兆易谋；其脆易泮，其微易散。为之于未有，治之于未乱。”大意为：事物在处于萌芽阶段，就依照迹象判断并处理才最稳妥。现如今中共崩盘大势已成，非常明显，全球对其围剿在所难免。大家只需顺势而为。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/F0FA6CD9-CC96-4EB2-BCC5-372BF8F3B9F1.jpeg)
+[!\[\]()!\[\](https://spark.adobe.com/page/CKm0Swf6vZyxa/images/86314332-b8ca-48ce-a468-07ddda8791d9.jpg?asset_id=403a60f0-2f91-45bf-97d4-8e3bcef73022&amp;img_etag=%2277e81bec12831d8673752576e0b5bc33%22&amp;size=1024)](https://spark.adobe.com/page/CKm0Swf6vZyxa/images/86314332-b8ca-48ce-a468-07ddda8791d9.jpg?asset_id=403a60f0-2f91-45bf-97d4-8e3bcef73022&amp;img_etag=%2277e81bec12831d8673752576e0b5bc33%22&amp;size=1024)
 
-2、把爱国做成生意的李宁公司能不能在表演爱国的时候装得像一些？——
+***原文翻译：***
 
-另据[拆台CT](https://weibo.com/u/6059492811?refer_flag=1005055014_) [2021年3月26日 22:39](https://weibo.com/6059492811/K81CH6BHY?from=page_1005056059492811_profile&amp;wvr=6&amp;mod=weibotime) 已编辑[@李宁官方微博](https://weibo.com/n/%E6%9D%8E%E5%AE%81%E5%AE%98%E6%96%B9%E5%BE%AE%E5%8D%9A?from=feed&amp;loc=at) 你们这年报地图，确定没用错？
+## **中共科技股遭重创，因美国法律威胁要求其从美国交易所退市**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4524E9C7-9528-4D44-A9D3-600A661C7502.jpeg)
+**要点**
 
-也许把地图印错只是无心之举，可是既然李宁公司能把爱国当成生意做难道连爱国也装不像吗？
+- 周四，在香港交易所的美港同时上市的中共国主要科技股受重创，因某些公司可能被从美国证券交易所退市的担忧再次浮现。
+- 周三，美国证券交易委员会(SEC)通过了一项名为《外国公司问责法案》的法律。
+- 香港时间下午1:04，阿里巴巴跌超4%，百度大跌超8%，京东跌超4%，网易跌近3%。
 
-3、把爱国当成生意做的李宁公司却被曝出是一家外国法人独资的有限责任公司，那么李宁公司表现的爱国到底爱得是谁的国呢？
 
-据[乙大多同志](https://weibo.com/u/5071371776?refer_flag=1005055014_)[2021年3月26日 22:10](https://weibo.com/5071371776/K81qUE4PE?from=page_1005055071371776_profile&amp;wvr=6&amp;mod=weibotime)
+[!\[\]()!\[\](https://spark.adobe.com/page/CKm0Swf6vZyxa/images/eebfa61b-a95b-4256-9167-dbddf6f4a9b7.png?asset_id=d22cce21-401b-4cf1-ab80-ba7b1c77ee68&amp;img_etag=%22c34919c8b6a93ffefbf7f0f31899aa1f%22&amp;size=1024)](https://spark.adobe.com/page/CKm0Swf6vZyxa/images/eebfa61b-a95b-4256-9167-dbddf6f4a9b7.png?asset_id=d22cce21-401b-4cf1-ab80-ba7b1c77ee68&amp;img_etag=%22c34919c8b6a93ffefbf7f0f31899aa1f%22&amp;size=1024)2020年3月13日，在美国纽约，纽约证券交易所(NYSE)交易时段开盘后，一名交易员在场内工作。 Lucas Jackson | Reuters Lucas Jackson|路透社
 
-[#李宁官网地图缺少西藏#](https://s.weibo.com/weibo?q=%23%E6%9D%8E%E5%AE%81%E5%AE%98%E7%BD%91%E5%9C%B0%E5%9B%BE%E7%BC%BA%E5%B0%91%E8%A5%BF%E8%97%8F%23&amp;from=default)有人洗这是15年的事情并且已经道歉原则上的事情就是不能原谅，道歉只是为了继续赚钱而不是出于悔改，敢做出这种事情就表明了他是个崇洋媚外的企业，国内国外两幅面孔，用这种恶心的手段想赚两头的钱下贱。而且李宁是一家外国法人独资的有限责任公司，为了避税在开曼群岛注册请不要再拿国货来营销了，你真不是
+中国广州 – 因对某些公司可能被从美国证券交易所退市的担忧，在香港交易所的美港同时上市的中共国主要科技股受重创。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/952AF28A-0317-4BC7-8832-637275B9C3BE.jpeg)
+港股中在美上市的中共国科技股大幅下跌。香港时间下午1点04分，阿里巴巴跌超4%，百度大跌超8%，京东跌超4%，网易跌近3%。
 
-综述：李宁公司在产品上的男女有别、在产品代言上的内外有别、在装爱国上漏掉西藏的心不在焉、在用离岸公司偷税同时用所谓国有品牌和民族品牌骗取中国韭菜方面的登峰造极只能说明一点——这家公司是来骗钱的而不是来赚钱的，既然蠢到极点坏到极点的李宁公司是这种货色，那么那些被李宁公司麻痹的人如果既不蠢也不坏的话，那就只能是笨到极点了，可是一个人能笨到极点他还能保证他一点也不蠢一点也不坏吗？我们一定要知道笨蛋要是认了死理做起事来，那可就绝不仅仅是蠢和坏了。
+此前一天，美国证券交易委员会(SEC)通过了一项名为《外国公司问责法案》的法律，该法案由前总统唐纳德•川普政府通过。
 
-注：本文仅代表作者观点
+美国证券交易委员会确定的某些公司将需要美国监督机构进行审计。这些公司将被要求提交某些文件，以证明它们不是由外国管辖区的政府实体拥有或控制的。
 
-参考链接：
+美国证券交易委员会周三表示，中共国公司将不得不说出每个身为中共官员的董事会成员的名字。美国监管机构可能会停止那些违反其规则的证券交易。
 
-1. [https://weibo.com/5044281310/K7OAs3eCT?from=page\_1002065044281310\_profile&wvr=6&mod=weibotime](https://weibo.com/5044281310/K7OAs3eCT?from=page_1002065044281310_profile&amp;wvr=6&amp;mod=weibotime)
-2. [https://weibo.com/6059492811/K7XR45nNx?from=page\_1005056059492811\_profile&wvr=6&mod=weibotime](https://weibo.com/6059492811/K7XR45nNx?from=page_1005056059492811_profile&amp;wvr=6&amp;mod=weibotime)
-3. [https://weibo.com/6059492811/K81CH6BHY?from=page\_1005056059492811\_profile&wvr=6&mod=weibotime](https://weibo.com/6059492811/K81CH6BHY?from=page_1005056059492811_profile&amp;wvr=6&amp;mod=weibotime)
-4. [https://weibo.com/n/%E6%9D%8E%E5%AE%81%E5%AE%98%E6%96%B9%E5%BE%AE%E5%8D%9A?from=feed&loc=at](https://weibo.com/n/%E6%9D%8E%E5%AE%81%E5%AE%98%E6%96%B9%E5%BE%AE%E5%8D%9A?from=feed&amp;loc=at)
-5. [https://weibo.com/5071371776/K81qUE4PE?from=page\_1005055071371776\_profile&wvr=6&mod=weibotime](https://weibo.com/5071371776/K81qUE4PE?from=page_1005055071371776_profile&amp;wvr=6&amp;mod=weibotime)
+中共国科技公司不仅面临国外退市威胁的压力，还对国内更严格的监管感到担忧。北京希望能够控制科技巨头的权力，并在从金融科技到电子商务等领域建立新的规则。
 
+虽然中共国政府的打压始于亿万富翁马云的帝国，包括暂停蚂蚁集团的超大规模首次公开募股，但有迹象表明，北京的目标可能不止于蚂蚁集团。
+
+路透社本周报道称，腾讯创始人马化腾本月与中共国反垄断官员会面。腾讯只在香港上市，香港时间下午1点17分左右，其股价下跌超过2%。
+
+**🔗[原文链接](https://www.cnbc.com/2021/03/25/chinese-tech-stocks-fall-as-us-sec-begins-law-aimed-at-delisting.html)**
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/CKm0Swf6vZyxa/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/CKm0Swf6vZyxa/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
