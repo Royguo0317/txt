@@ -1,127 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒溯源问题白宫在等世卫组织报告
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1032487/)
+## 《路德时评》重磅解读俄全面宣传中共是最大威胁，及安倍称日本已站在抗共最前沿
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1033440/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+直播视频：
 
-编辑上传  水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/C-22-13.jpg)yalibnan.com
-3月26日CNN重磅播出罗伯特·雷德菲尔德博士（Robert Redfield）中共病毒来源说【1】，震惊了全美，记者立即追问到了白宫新闻发布会，看看白宫新闻秘书普萨基怎样说（以下将白宫新闻简报涉及中共国内容摘译）：【2】
 
-2021年3月26日，新闻秘书詹·普萨基（Jen Psaki）的新闻简报
 
-新闻发布会
+《路德时评》2021年月日间节目主要内容：
 
-新闻简报室
+一、俄全面宣传中共是最大威胁
 
-……
+美国之音3月28日报道[1]：俄罗斯知名媒体人波兹涅尔3月25日在主要自由派媒体莫斯科回声广播电台的一档晚间访谈节目中强调，普京当局在推动与中国走近时，似乎没有意识到中国威胁的严重程度，没有危机感，或许中国威胁还没有逼近，但俄罗斯领导层应比美国更聪明一些。他认为，只有当中国威胁迫在眉睫时，克里姆林宫领导层才会意识到中国威胁的紧迫性，不过可能已经为时已晚。
 
-问：……下面，关于疫情：前CDC主任雷德菲尔德博士今天上午说，他相信病毒来自武汉的实验室，拜登总统是否对病毒的起源有任何看法，或者美国是否就此得出结论？
+今年87岁的波兹涅尔从苏联时代起就家喻户晓。他从60年代加入苏联媒体后就担任时事评论员，但最主要的工作是在当时苏联对外宣传的英语广播中主持节目。苏联解体后，他继续活跃在俄罗斯传媒界，曾担任过俄罗斯电视学院院长职务，负责组织和颁发俄罗斯电视传媒的主要大奖。他目前在最大的俄罗斯国营第一电视频道主持一档访谈节目。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/56950960_303-1.jpg)
+路德社评论：
 
-普萨基：嗯，你知道，世卫组织正在研究这个问题，不久将发布一份报告，一旦有了那份报告，我们会再看一遍。
+1、87岁高龄的波兹涅尔经历苏俄两个政府时代，他涉及军界、政界和媒体界，曾任职于苏联情报口，所以他肯定非常了解中共国和美国，他的此番言论绝不仅代表个人，还代表他背后的势力团体。路德社曾在节目中分析俄外长前往中共国桂林多以旅游为主，双方达成的协议也没有任何实质性意义，普京总统也没有和习进行任何通话，甚至金正恩与习交流都用口信，由此可以看出，中共国盟友领导人都非常介意与习会面。
 
-我们将继续更多地了解中共病毒疫情开始的最初几天，包括它的起源，以便我们能够更好地为未来的危机做好准备。
+2、现在美国，英国，欧盟以及英联邦国家都已经完成对中共国新疆种族灭绝罪的认定，制裁行动才刚刚开始。第一个开炮的行业组织居然是瑞士BCI组织，它率先跟进禁止使用新疆棉，瑞士银行藏有大量盗国贼的资产，中共绝不敢得罪瑞士，可见世界各国都已经开始战队联合对抗中共国。
 
-我知道瓦伦斯基（Walensky）博士谈到了这一点，我认为福奇博士今天上午也谈到了这一点，我们将密切关注随时出现的信息。
+3、波兹涅尔曾任俄罗斯电视学院院长，他的徒子徒孙现在已经是俄罗斯各大媒体的中流砥柱，媒体要做得长久靠的就是信息来源，波兹涅尔曾在情报部门工作，拥有非常可靠的信息，这就是他胜任电视学院院长的原因。
 
-问：总统被告知的观点是由世卫组织的报告，还是他顾问的报告？我是说，他是什么-
+4、像中共这样通过集权的方式赚钱是一种非常野蛮的赚钱方式，英美才是真正的高级玩家，背后的大佬始终不露面。跟随世界相对容易，但是要引领世界就很困难，要引领世界就必须探索，那就意味着可能为此付出巨大的代价。
 
-普萨基：当然是他的健康和医疗顾问，因此，他们将审查——当然，当报告和更多数据出现时，他们将审查这些内容和人。
+5、俄罗斯在此次中共病毒疫情中也损失惨重，以俄罗斯情报部克格勃的实力，可能也获得了和美军同样的情报，同样掌握了中共病毒真相，而且俄罗斯生物武器专家应该也认真分析了闫博士的两篇报告，普京总统肯定也认真阅读了来自克格勃的情报信息，波兹涅尔老爷子应该也同样获取了相关情报，所以他才敢说中共是俄罗斯最大的威胁。如果全世界都联合围剿中共，俄罗斯绝不可能跟中共战队，但是俄罗斯又想从中共国捞取利益，所以就通过唱双簧的形式，在左右摇摆间从中共获取利益。
 
-问：最后一个是关于中共国新疆的强迫劳动，一些公司受到了中共国政府的压力，一些零售商实际上也放弃了不使用该地区强迫劳动生产的产品的承诺。那么，你知道，美国在做什么来阻止或制止中共国对导致这一问题的公司进行的这种威胁呢？
+6、中共体制是一套非常落后，非常原始的体制，俄罗斯的体制虽然不如西方民主国家先进，但绝对远超中共国，所以俄罗斯绝不可能与中共为伍，他们看中的就是中共国的钱，一旦将中共国的利益瓜分干净，俄罗斯就会立即调转枪头。
 
-普萨基：当然，我们一直在密切关注这个问题，大家都知道，我们也采取了强有力的行动，以防止中共国从新疆可怕的侵犯人权行为中获利，并阻止从中共国进口强迫劳动生产的产品。
+二、安倍称日本已站在抗共最前沿
 
-美国消费者和世界各地的消费者应该知道，他们的商品是–他们购买的商品不是用强迫劳动制造的，许多公司都在维护消费者的权利。
+法新社3月28日报道[2]：日本前首相安倍晋三27日在新潟市自民党新潟县支部联合会会议进行讲演，在谈及中美对立时，安倍指出：包括日本在内的亚洲地区已站在美中两国对立的最前线。安倍在讲演中指出：如今，不断崛起的中国的军事力量，正在东海和南海进行单方面改变现状的尝试，在这种情况下，可以说，最前线已经转移到印度洋太平洋地区，就我的认识而言，太平洋地区，包括日本在内已成为中美对立的最前线，因此我们有必要在这种认识的基础上，抱有充分的心理准备，坚实地提炼我们的外交安全保障政策。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/安倍.png)[图片地址](https://s.rfi.fr/media/display/17436758-45cc-11eb-9ef6-005056bfd1d9/w:650/p:16x9/AP20263124711066.webp)
+共同社3月28日报道[3]：日本政府消息人士28日透露，日美韩三国已就4月下旬在美国举行日本外相茂木敏充、美国国务卿布林肯等出席的外长会议一事展开协调。如能实现将成为菅义伟政府与拜登政府的首次。据分析，会谈将磋商合作应对重启弹道导弹发射试验的朝鲜以及被拜登政府视为“唯一竞争对手”的中国。美方有意通过外长会议敦促日韩两国改善关系，并将在应对朝鲜方面持续深化合作的三国框架也运用于应对中国。日美韩在对华政策上存在温差，能在何种程度达成一致成为焦点。韩国外长郑义溶预计也将出席，但在日韩持续对立背景下，面向召开会议的协调工作恐遇困难。
 
-我们认为，国际社会应该反对中共国将私营企业依赖市场的行为武器化，以扼杀言论自由，抑制商业道德，所以这是我们密切关注的事情。
+路德社评论：
 
-当然，我们已经采取了自己的行动，我希望政府和商业部门今天晚些时候对此有更多要说的。
+1、前日本首相安倍此番发言是从来没有过的，他就是代表日本政府发话，提醒所有日本企业和机构要将中共威胁纳入战略制定中。
 
-问：接着问一下，因为在本届政府的头几个月里，你们似乎一直在传递这样的信息，但事实上，中共国似乎更大胆地威胁这些公司，那么，白宫还能做些什么来阻止他们做出这些威胁呢？
+2、日美韩将在4月举行联合外长会议，共同商讨如何应对中共国威胁，韩国也开始加入亚北约联盟。日本脱亚入欧后，一直与西方国家在竞争与合作中进步，竞争的最高较量就是战争，战争是检验整个国民经济和体系真实状况的最佳方式，绝不能有一点参假，体系只要有不完善之处就会导致战争失败，同时这也考验体系在战争中的更新能力。
 
-普萨基：好吧，我们可以与我们的国际伙伴合作，很明显，正如我所传达的，我们将如何回击中共国对私营企业进行武器化的企图，我们可以像现在这样公开传达，当然也可以参与到私营实体企业中来应对（中共国的）这些企图。
+3、由于日本独特的地理环境，这导致他们在做事情时极其用心，这就是武士道精神，日本非常清楚信仰、精神和体系的重要性，日本在二战前自以为各方面都非常强大，但是它输就输在个体上，民族主义完全掩盖了个体创新，过度强调顺服导致领导只要失误就全盘皆输，美国体制则非常尊重个体自由和包容性，每个人都可以自由发表意见，这非常有利于最终决策的制定。
 
-但很多这样的行动将发生在商业上，在某些情况下，还有国务院，再说一次，我希望他们今天晚些时候会有更多的细节要说。
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
 
-凯特兰（Kaitlan），该你问了。
+参考文章：
 
-问：有几个问题，关于世卫组织调查（报告）即将出炉，国家安全顾问杰克·沙利文（Jake Sullivan）几个月前表示，他们对调查的进行方式深感担忧，他们还有哪些深切的担忧吗？
+[1][https://www.voachinese.com/a/russian-famous-journalist-thinks-china-is-threat-and-calls-for-an-alliance-with-the-us-20210327/5830763.html](https://www.voachinese.com/a/russian-famous-journalist-thinks-china-is-threat-and-calls-for-an-alliance-with-the-us-20210327/5830763.html)
 
-普萨基：部分原因是由于缺乏透明度，而且缺乏–我们无法确保我们能够得到可用的数据，所以出现了延迟，他们实际上推迟了那份报告的发表，我们也支持。我们得看一看，确保我们能获得基本的信息。
+[2][https://www.rfi.fr/cn/%E6%94%BF%E6%B2%BB/20210328-%E6%97%A5%E6%9C%AC%E5%89%8D%E9%A6%96%E7%9B%B8%E5%AE%89%E5%80%8D%E8%AE%B2%E6%BC%94%E7%A7%B0%E6%97%A5%E6%9C%AC%E5%B7%B2%E7%AB%99%E5%9C%A8%E4%B8%AD%E7%BE%8E%E5%AF%B9%E7%AB%8B%E6%9C%80%E5%89%8D%E7%BA%BF](https://www.rfi.fr/cn/%E6%94%BF%E6%B2%BB/20210328-%E6%97%A5%E6%9C%AC%E5%89%8D%E9%A6%96%E7%9B%B8%E5%AE%89%E5%80%8D%E8%AE%B2%E6%BC%94%E7%A7%B0%E6%97%A5%E6%9C%AC%E5%B7%B2%E7%AB%99%E5%9C%A8%E4%B8%AD%E7%BE%8E%E5%AF%B9%E7%AB%8B%E6%9C%80%E5%89%8D%E7%BA%BF)
 
-问：那么，如果这份报告出来了，而拜登总统对此并不满意，会发生什么呢？
+[3][https://china.kyodonews.net/news/2021/03/a1e5a8cb8df2-4.html](https://china.kyodonews.net/news/2021/03/a1e5a8cb8df2-4.html)
 
-普萨基：是对报告不满意？
+文章撰写：【重生】  编辑：【香柏树】
 
-问：（没听清）
-
-普萨基：好吧，我们还呼吁进行国际调查，调查发生了什么事，以及起源–不只是起源，我应该说–中共国缺乏透明度，我们已经恢复或是重新组建了我们在北京的团队。
-
-那我们看看报告怎么说，在我们关注的地方，我们会查看底层数据，如果我们可以访问这些数据的话，然后我们必须通过跨部门的程序来决定下一步的行动。（摘译完）
-
-没有查到新上任的CDC主任伦斯基（Walensky）对中共病毒来源的态度，昨天她的表态是等世卫组织的报告，老贼福奇虽然没有明确反对雷德菲尔德博士的“起源武汉说”，但其暗示话语充满了为中共的开脱。
-
-从普萨基的回答获得的信息如下：
-
-1、“但很多这样的行动将发生在商业上，在某些情况下，还有国务院，再说一次，我希望他们今天晚些时候会有更多的细节要说。”说明会对中共国有进一步的制裁行动；
-
-2、世卫组织的调查报告被推迟，或者退回补充，不久会发布；
-
-3、“我们已经恢复或是重新组建了我们在北京的团队”，说明美国在北京有团队，应该是调查团队，还是其他？
-
-相关链接：
-
-【1】https://gnews.org/zh-hans/1023905/
-
-【2】https://www.whitehouse.gov/briefing-room/press-briefings/2021/03/26/press-briefing-by-press-secretary-jen-psaki-march-26-2021/
-
-原文部分：
-
-Q: And then, on the pandemic: Dr. Redfield, the former CDC director, said this morning that he believes that the virus originated from the lab in Wuhan.  Does President Biden have any views on where the virus may have originated, or has the U.S. come to a conclusion on that yet?
-
-MS. PSAKI: Well, as you know, the WHO is examining this and will be releasing a report soon.  We’ll review that report once it’s available.
-
-We continue to learn more about the earliest days of the COVID-19 pandemic, including its origins, so we can better prepare for future crises.
-
-I know Dr. Walensky addressed this and I think Dr. Fauci did as well this morning, and we’ll look closely at that information when it’s available.
-
-Q: Are the President’s views being informed by that WHO report or his advisors?  I mean, what is he–
-
-MS. PSAKI:  By his health and medical advisors, certainly. And so they’ll review — they will be, of course, the people reviewing the reports and more data when it becomes available.
-
-Q: And then, last one on the forced labor in Xinjiang, in China. Some companies have come under pressure from the Chinese government, and some retailers have actually dropped pledges not to use products made with forced labor from that region. So, you know, what is the U.S. doing to stop or deter China from making those kind of threats against companies that have resulted in this problem?
-
-MS. PSAKI: Well, we certainly have been watching this issue closely, as you well know, and we’ve taken our own strong actions in order to prevent China from profiting off of its horrific human rights abuses in Xinjiang and to stop imports of products made with forced labor in China.
-
-American consumers and consumers everywhere deserve to know that their goods are — that the goods they are buying are not made with forced labor, and many companies are standing up for consumers’ rights.
-
-The international community, in our view, should oppose China’s weaponizing of private companies’ dependence on its markets to stifle free expression and inhibit ethical business practices.  So it is something we are watching closely.
-
-We’ve, of course, taken our own action.  I would expect that State and Commerce will have more to say on this later today.
-
-Q：And just one quick follow-up, though.  It’s — because it seems like you’ve been having this message out there for the first couple months of this administration, but it’s — China only seems more emboldened to threaten these companies.  So what more can be done from the White House to try to deter them from making these threats?
-
-MS. PSAKI: Well, we can work with our international partners, obviously, as I conveyed, on how we’re going to push back on China’s efforts to weaponize private companies.  And we can convey publicly, as we are now, and of course engage with private sector entities about these efforts.
-
-But a lot of that action would happen from Commerce and, in some cases, the State Department.  And again, I expect they’ll have more specifics to say later today on this.
-
-Go ahead, Kaitlan.
-
-Q: A few questions.  On the WHO investigation that’s coming out, Jake Sullivan, the National Security Advisor, said a few months ago that they had deep concerns about the way the investigation was being conducted.  Do they still have those deep concerns?
-
-MS. PSAKI: In part because there was a lack of transparency and there was a lack of — we weren’t ensured that we would have access to the data available, so there was a delay.  They actually delayed the release of that report, which we were encouraged by. We’ll have to take a look at it and make sure we have access to the underlying information.
-
-Q: So what happens if the report comes out and President Biden is not satisfied with it?
-
-MS. PSAKI: Not satisfied with the report?
-
-Q: (Inaudible.)
-
-MS. PSAKI:  Well, we’ve also — we’ve also called for an international investigation and look into what’s — what’s happened and the origin — not just the origin, I should say — the lack of transparency from the Chinese.  We have reinstituted or reengaged with — through staffing of our — of our team on the ground in Beijing.
-
-So we’ll see what the report says.  Where we have concerns, we’ll look at the underlying data, if we have access to that.  And then we’ll have to make a determination through an interagency process on what’s next.
-
-0
++3

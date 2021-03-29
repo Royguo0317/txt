@@ -1,22 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 搜索“闫丽梦”在推特无法通过
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1033178/)
+## 【新闻宅急便】罗斯福航母与印度海空军联合军事演习
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1034067/)
 
-**西班牙巴塞罗那喜悦农场 **wenwu
+翻译：喜马拉雅东京樱花团 /Porsche
 
+![](https://lh4.googleusercontent.com/ka2OUNxMwmNOM43H_RiZWc2KQf--VRwSA36tY6xIL5Z0tWwFG4tlcGLDWSF0iCdhJmgDdE-QzVxQOQR54she8xwjYBU_UYx9CKqIPol_wJAbjKTUo_bXy6IGzvxwAU9aFP7kEl2Q)
+[图片链接](https://live.staticflickr.com/65535/51079846183_3bf01b65c6.jpg)
 
+联合一体化是提升海上作战能力的关键。这次非常成功的演习发生在国防部长奥斯汀按计划访问印度之后。
 
+“我非常感谢有机会与印度海空军进行这次演习”，第9航母打击群指挥官道格-维里西莫少将说。“我们不仅对自由、开放、包容的印度洋-太平洋有着共同的愿望，我们也有着共同的价值观和海上传统，这使得我们一起进行的训练更有意义。我们在一起的价值，远远超过了我们各自单独所能做的，通过我们对基于规则的国际秩序的执行和落实，确保进一步安全、稳定和经济繁荣，使所有人受益。”
 
+此次演习的重点是反潜战、联合空中行动、指挥和控制一体化（即C2）等复杂行动。它展示了两国共同行动以推进印太地区的共同愿景、确保其和平与稳定的能力。
 
-> Just saw that ALL the “latest”research results using my name “Yan Limeng” or “闫丽梦” on Twitter are blocked with NO reason!
-> But in “top” results, full of disgusting cartoons/videos to attack me & Yan’s Reports from CCP’s cyber army!
-> What is CCP scared of? My 3rd report? 😎 [pic.twitter.com/BBvYNaxdWc](https://t.co/BBvYNaxdWc)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [March 28, 2021](https://twitter.com/DrLiMengYAN1/status/1376305019310460928?ref_src=twsrc%5Etfw)
+美国海军“邦克山”号导弹巡洋舰（CG 52）及其搭载的“狼群”反潜直升机中队（HSM 75）、美国海军“拉塞尔”号驱逐舰（DGG 59）、美国“西奥多-罗斯福”号航母（CVN 71）、印度“什瓦利克”级巡防舰INS Shivalik（F 47）及其搭载的直升机、来自印度海军INAS 312“信天翁”号海上巡逻机（P-8I）、以及来自印度空军的222飞行“虎鲨”中队飞机，一起进行了联合行动。美国和印度部队在所有领域进行了无缝衔接的演习，展示了我们的作战平台与海空行动的兼容性。
 
+罗斯福航母打击群正在按计划部署到美国第七舰队辖区，以确保海上自由，建立促进海上安全的伙伴关系，同时还将开展更广泛的行动，支持人道主义工作，对潜在的恶意行动起到威慑作用。罗斯福航母打击群由西奥多-罗斯福号（CVN 71）、航母航空联队（CVW）11号、提康德罗加级导弹巡洋舰邦克山号（CG 52）、驱逐舰中队23号、阿利-伯克级导弹驱逐舰拉塞尔号（DDG 59）和约翰-芬恩号（DDG 113）组成。
 
-**`闫丽梦科学家的名字无法在推特上搜索到，但却可以找到攻击闫丽梦科学家的推特网军！中共在害怕什么？我的第三份科学报告？——闫丽梦科学家推特大意内容`**
-这起事件是反常的，因为本人就是通过“Yan Limeng”搜索到科学家的推特，而在路德社爆料7天内将出台第三份科学报告，该推特号无法通过搜索推特号功能寻找。这是反常的，中共在搞鬼！
+西奥多-罗斯福的登舰航空队，包括了：攻击战斗机中队（VFA）31的 “汤姆卡特”、VFA-87中队的 “黄金勇士”、VFA-146中队的 “蓝钻”、VFA-154中队的 “黑骑士”、空降指挥与控制中队（VAW）115的“自由钟”、电子攻击中队（VAQ）142的“灰狼”、直升机海上打击中队（HSM）75的“狼群”、直升机海上战斗中队（HSC）8的“八球者”和舰队后勤支援中队（VRC）30支队3的 “提供者”。
 
-+1
+![](https://lh3.googleusercontent.com/TrhG2WlkiCkO2GX7rPuxqrHlFJAUGnpyZcAyBrPh7JWvFu_jrZq0Ieet953QCgUDIkOou0SbRNsDEdvNVVFcCeg4aUA0TRv9uMI0YmFTprKJmpJoH40-Ka60XRO37Ts5wcaRAY7q)
+[图片来源](https://hk.epochtimes.com/news/2020-07-22/22103200)
+
+罗斯福航母打击群在该地区的可操作性，直接支持海军作战司令的航行计划，以掌握全域舰队行动，同时与志同道合的海军进行演习，以增强我们的集体力量。
+
+作为美国海军最大的前沿部署舰队，美国第7舰队常规作战舰艇和潜艇50-70艘，飞机140架，水兵约2万人。第7舰队的作战区域面积超过1.24亿平方公里，从国际日期线到印巴边境；从北方的千岛群岛到南太平洋的南极，为该地区提供安全与稳定。第七舰队与其他35个海洋国家互动，建立促进海上安全的伙伴关系，同时执行广泛的任务，支持人道主义工作，维护国际海洋法和海洋自由。
+
+罗斯福号航母战斗群是于去年12月23日离开美国圣地亚哥港口，前往印太地区进行预定部署。
+
+新闻来源：
+
+[Commander US Pacific Fleet](https://www.cpf.navy.mil/news.aspx/130831)
+
+*免责申明：本文只代表作者观点，与GNews网站无关。*
+
+*校对：喜马拉雅东京樱花团 / 東洋武士*
+*责任编辑：喜马拉雅东京樱花团 / 文小白*
+*发布：喜马拉雅东京樱花团 / 煙火1095*
+![]()![](https://gnews.org/wp-content/uploads/2021/03/二维码-10.jpg)
+0329C204e
+
+0
