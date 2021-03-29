@@ -1,95 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0329.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1034260/)
+## 布林肯推特一声吼，中共侵犯菲律宾海域民兵船撤离
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1034783/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+【日本东京方舟农场】搜集/编撰：丸子  校对：文小律
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0329-1.jpeg)图片来源：康州盘古农场 霹雳年
+菲律宾海岸警卫队（PCG）的一份报告显示，有200多艘中国海上民兵船停泊在西菲律宾海。
 
+该报告由西菲律宾国家工作队（NTF-WPS）收到，该报告显示PCG于2021年3月7日在朱利安·费利佩礁（Whitsun Reef）聚集了约220艘CMM船舶。
 
-## 反驳世卫报告、再次肯定中共病毒来自武汉实验室
+朱利安·费利佩礁（Julian Felipe Reef）是帕格卡卡伊萨斯礁石（Union Reefs）东北部的大型回旋镖形浅珊瑚礁，位于巴拉望岛Bataraza以西约175海里。
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Untitled-6.png)
+国家特遣队在一份声明中说：“尽管当时天气晴朗，但在礁石上集结的中国船只没有进行任何实际的捕鱼活动，并且在夜间打开了全白灯。”
 
-[https://www.foxnews.com/politics/fauci-says-covid-19-vaccine-push-best-decision-that-hes-made](https://www.foxnews.com/politics/fauci-says-covid-19-vaccine-push-best-decision-that-hes-made)
-杰克-基恩（Jack Keane）将军28日接受福克斯新闻黄金时间采访时，就CDC前总裁罗伯特-莱特弗里德关于“病毒实验室泄漏”说置评，与昨日世卫组织-中国联合研究新闻发布会后的报告草案的结论“病毒可能来自动物而非实验室”不同的是，他说“病毒是可能来自实验室”。他表示蓬佩奥国务卿此前就告诉美国人：病毒来自中共国武汉实验室铁证如山。他还说，中共国武汉实验室是75个生物实验室之一，那里发生的是研发病毒生物武器。因此病毒当然可能是某些事故造成泄漏传染给了人。有一些科学家已经有证据得出同样的结论，我同意他们。主持人义愤填膺地说，一年多了说不清楚是借口，他们毒害了全世界，造成两百多万人死亡，美国死了五十多万人了！
+3月21日，国防部长德尔芬·洛伦扎纳（Delfin Lorenzana）对上述中国船只在西菲律宾海的存在表示“严重关切”。他说：“这显然是使该地区军事化的挑衅行动。这些地区恰好在菲律宾专属经济区（EEZ）和大陆架（CS）内，根据国际法和2016年仲裁裁决，菲律宾人拥有这些资源的唯一权利。”
 
-就拜登对华政策，将军表示，与中共国不应该是竞争关系，而应该是对抗关系，他反对加入气候协定，因为这是与中共国合作。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-154.jpg)
 
+他还呼吁中共停止入侵，并“立即召回这些侵犯我们海洋权利并侵犯我们主权领土的船只”。
 
+菲律宾外交部长当日表示，菲律宾对中国进行外交抗议。
 
-### 疫苗说
+中国驻马尼拉大使馆否认了这些船只属于北京民兵组织的指控，称这些船只是由于“恶劣海况”而庇护的渔船。它还坚持认为珊瑚礁是其领土的一部分。
 
-29日福克斯新闻报道：福奇说中共病毒大流行（COVID-19）疫苗的推广可能是他做出的 “最好的决定”。前川普总统高级顾问杰森-米勒发推称，“如果是靠福奇，我们现在都得不到疫苗。”
+3月29日，澳大利亚驻菲律宾特使表示，澳大利亚对最近在南中国海的“破坏稳定行动”表示关注，因为中国继续在重要水道上坚持其坚定的海事议程。
 
+“澳大利亚支持一个安全，稳定和主权的印度太平洋地区。南海（这是一条重要的国际水路）受到国际规则和规范的约束，其中包括《联合国海洋法公约》。对我们来说非常重要。”澳大利亚驻菲律宾大使史蒂文·罗宾逊（Steven Robinson）告诉ANC。“因此，我们仍然担心可能引起南中国海升级的任何破坏稳定的行动。”
 
+澳大利亚支持联合国支持的海牙仲裁法院2016年的一项裁决，该裁决通过使基于历史的9点划线学说无效而拒绝了中国在南中国海（西菲律宾是其中的一部分）的广泛主张。
 
-> Fauci says COVID-19 vaccine push could be 'best decision' he's made [https://t.co/KbsZIR6j5n](https://t.co/KbsZIR6j5n)
-> — Fox News (@FoxNews) [March 29, 2021](https://twitter.com/FoxNews/status/1376474448585486343?ref_src=twsrc%5Etfw)
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4-12.png)
 
+3月29日，美国国务卿布林肯发推特声明，永远支持盟友菲律宾，并捍卫基于规则的国际秩序。就在布林肯发推当天，爆料革命路德社的博博士转推，在菲律宾西海岸盘踞近一个月的中共武装渔船绝大多数已经撤离。从卫星图上可以看见海面已经风平浪静。
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/6-3.png)
 
+据德国之声3月21日报道：南海具有重要战略意义，菲律宾怀疑中方派遣载有武装民兵的渔船进入争议海域，以强化中方的主权索求，但中国共则对上述说法予以否认。因为中共对几乎整个南海都声称拥有主权。南中国海被认为有丰富海洋资源及矿产资源。 中共在那里建构人造岛，并在有争议岛礁上建造军用设施。
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/7-45.jpg)
 
-> If it were up to Fauci we still wouldn’t have a Covid vaccine. [https://t.co/YlPjOkSxHU](https://t.co/YlPjOkSxHU)
-> — Jason Miller (@JasonMillerinDC) [March 29, 2021](https://twitter.com/JasonMillerinDC/status/1376354201127817222?ref_src=twsrc%5Etfw)
+**战友观点：**
 
+此次行动是中共伺机进行军事侵犯隶属菲律宾主权的无人岛礁，完全是一种无耻的侵略行为。美国国务卿能够及时站出来发声，维护盟友的利益，迈出及时的一步。布林肯的推特下面收到了很多人的感谢。这一行为不仅起到震慑中共的效果，化解了危机，而且有益于将菲律宾加入南海小国的结盟阵线，和日韩台共同形成对抗中共的布局，从而更好地协防中共全球扩张的野心。
 
+注：本文仅代表作者观点
 
-### 疫苗护照
+参考链接**：**
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/covid-passport.jpg)
+1.[https://news.abs-cbn.com/news/03/29/21/australia-concerned-over-destabilizing-actions-in-south-china-sea-envoy](https://news.abs-cbn.com/news/03/29/21/australia-concerned-over-destabilizing-actions-in-south-china-sea-envoy)
 
-[新闻和图片来源](http://新闻和图片来源%20https://www.dailymail.co.uk/news/article-9412921/Biden-administration-working-unified-vaccine-passport-scheme-critics-call-American.html) [https://www.dailymail.co.uk/news/article-9412921/Biden-administration-working-unified-vaccine-passport-scheme-critics-call-American.html](http://新闻和图片来源%20https://www.dailymail.co.uk/news/article-9412921/Biden-administration-working-unified-vaccine-passport-scheme-critics-call-American.html)
-英国每日邮报29日报道：拜登政府正在制定统一的疫苗护照计划以重新开放经济，但批评者称其为 “非美国化”，就像 “需要你的证件 “一样，不应强制执行。
+2.[https://news.abs-cbn.com/news/03/29/21/australia-concerned-over-destabilizing-actions-in-south-china-sea-envoy](https://news.abs-cbn.com/news/03/29/21/australia-concerned-over-destabilizing-actions-in-south-china-sea-envoy)
 
-- 据数据显示，目前至少有17项不同的举措正在酝酿中。
-- 接种者的护照可能以可扫描代码的形式出现。
-- 努力存在重大障碍，包括健康数据的隐私问题。
-- 一些美国人对任何看起来会被联邦政府 “强制要求 “的事情都持谨慎态度。
-
-
-
-
-### 变种病毒引发关注
-
-《英国每日邮报》3月23日一则新闻报道：纽约 “Covid变种，可能逃避疫苗引发的免疫力–但专家说它不会使疫苗无用
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/variant-virus.png)
-
-新闻和图片来源 [https://www.dailymail.co.uk/news/article-9389207/New-York-Covid-variant-evade-vaccine-triggered-immunity-UK.html](https://www.dailymail.co.uk/news/article-9389207/New-York-Covid-variant-evade-vaccine-triggered-immunity-UK.html)
-一个新的冠状病毒变种，可能部分逃避疫苗触发的免疫力，变种病毒首次发现在纽约，现在已经在英国出现。拭子测试表明变体病毒B.1.526可能潜伏至少一个月了。追踪不断发展的病毒科学家说，三例变异株-已在纽约造成严重破坏，英国也开始了。
-
-
-
-## 川普赞扬乔治亚州对选民法的修改
-
-
-
-> Trump lauds Georgia's changes to voter laws [https://t.co/8fR2m4R4Fi](https://t.co/8fR2m4R4Fi) [pic.twitter.com/yzVUWStOPJ](https://t.co/yzVUWStOPJ)
-> — Newsmax (@newsmax) [March 29, 2021](https://twitter.com/newsmax/status/1376496920588353537?ref_src=twsrc%5Etfw)
-
-
-
-29日据NewsMax，前总统唐纳德-川普周五（26日）发表声明，赞扬乔治亚州政治领导人在 “2020年总统大选的荒唐事 “后对选民规则的修改，新规定要求有照片的身份证才能通过邮寄方式进行缺席投票；该规定还设定了申请缺席投票的较早截止日期，限制了选票投递箱的放置地点以及何时可以进入。
-
-川普总统认为这是一种 “21世纪的吉姆-克劳”。他说：祝贺乔治亚州和乔治亚州立法机构改变了他们的选民规则和条例。他们从2020年总统选举的荒唐事件中吸取了教训，再也不能允许这种情况发生。太糟糕了，这些改变不能早点完成！”
-
-川普总统一直坚持认为，让乔-拜登入主白宫的2020年大选结果是不准确、不公平的，受到投票操纵和其他系统性舞弊的影响。
-
-
-
-
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+3.[https://www.dw.com/zh/%E8%8F%B2%E5%BE%8B%E5%AE%BE%E6%8A%97%E8%AE%AE%E4%B8%A4%E7%99%BE%E5%A4%9A%E8%89%98%E4%B8%AD%E6%96%B9%E6%AD%A6%E8%A3%85%E8%88%B9%E5%8F%AA%E4%BE%B5%E5%85%A5/a-56945548](https://www.dw.com/zh/%E8%8F%B2%E5%BE%8B%E5%AE%BE%E6%8A%97%E8%AE%AE%E4%B8%A4%E7%99%BE%E5%A4%9A%E8%89%98%E4%B8%AD%E6%96%B9%E6%AD%A6%E8%A3%85%E8%88%B9%E5%8F%AA%E4%BE%B5%E5%85%A5/a-56945548)
 
 +1

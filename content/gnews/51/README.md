@@ -1,42 +1,95 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 3/29/2021 财经快讯：全球货币市场基金流入创新高；华为获第三方支付牌照
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1034637/)
+## 美国政要等每日重要信息0329.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1034260/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/Picture1-41.png)
-[图片来源](https://www.fengjr.com/)
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-**1.全球货币市场基金获13周以来最高流入量**
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/03/cover-formal-2021-0329-1.jpeg)图片来源：康州盘古农场 霹雳年
 
-[（路透社）理柏数据显示，在3月24日当周，由于对中共病毒的担忧再次升温，以及受欧洲出现的一些新的封锁地区影响，全球投资者将更多的现金投入到安全性更高的货币市场基金中。在当周全球货币市场基金共获得426亿美元的资金流入，为13周以来的最大流入量。与此同时，全球股票基金流入资金为232亿美元，较前一周下降34%，债券基金流入为69.4亿美元，下降17%。](https://www.reuters.com/article/us-global-markets-flows/global-money-market-funds-get-highest-inflows-in-13-weeks-lipper-data-show-idINKBN2BI1FQ)
 
-**2.苏伊士运河事件最新进展**
+## 反驳世卫报告、再次肯定中共病毒来自武汉实验室
 
-[苏伊士运河的封锁目前已经成为一场世界性的航运危机。据估算每小时造成的货运延误损失高达4亿美元，目前从中东向亚洲运送石油的部分油轮租金上涨了47％，达到220万美元，而清理河道可能需要数周时间。据运河维护管理部门称，自1869年通航以来，苏伊士运河已经关闭了五次。](https://www.businessinsider.com/the-suez-canal-blocked-and-closed-several-times-since-opening-2021-3)
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Untitled-6.png)
 
-[据财经真相报道，“长赐号”发言人表示，由于船头受损，目前河水已经涌入两个舱室，在使用大功率泵将水抽出后，目前船体状态稳定。目前并无证据显示货轮无法驶离苏伊士运河，一旦“长赐号”有机会脱浅，将对其能否驶离运河进行评估。简而言之，一切皆有可能，直接沉下去也不是没有可能的。](https://twitter.com/caijingxiang/status/1376148747646726145)
+[https://www.foxnews.com/politics/fauci-says-covid-19-vaccine-push-best-decision-that-hes-made](https://www.foxnews.com/politics/fauci-says-covid-19-vaccine-push-best-decision-that-hes-made)
+杰克-基恩（Jack Keane）将军28日接受福克斯新闻黄金时间采访时，就CDC前总裁罗伯特-莱特弗里德关于“病毒实验室泄漏”说置评，与昨日世卫组织-中国联合研究新闻发布会后的报告草案的结论“病毒可能来自动物而非实验室”不同的是，他说“病毒是可能来自实验室”。他表示蓬佩奥国务卿此前就告诉美国人：病毒来自中共国武汉实验室铁证如山。他还说，中共国武汉实验室是75个生物实验室之一，那里发生的是研发病毒生物武器。因此病毒当然可能是某些事故造成泄漏传染给了人。有一些科学家已经有证据得出同样的结论，我同意他们。主持人义愤填膺地说，一年多了说不清楚是借口，他们毒害了全世界，造成两百多万人死亡，美国死了五十多万人了！
 
-另据报道，俄罗斯在3月25日建议货运商应该考虑将位于俄罗斯的北方海航道（North Sea Route）作为苏伊士运河的“替代方案”。
+就拜登对华政策，将军表示，与中共国不应该是竞争关系，而应该是对抗关系，他反对加入气候协定，因为这是与中共国合作。
 
-**3.美科技公司创始人因投资诈骗被判刑**
 
-[3月26日，由于参与证券欺诈和电汇欺诈，美国一家科技公司的前任首席执行官兼创始人被判处超过8年的监禁。该公司通过财报造假，从250多名个人以及机构投资者处筹集到1800多万美元，其中至少370万美元被该创始人挪用进行个人消费。除了被判入狱以外，该创始人还需上缴其占为己有的370万美元，并赔偿1800万美元的投资者损失。](https://www.washingtonexaminer.com/news/virginia-man-charged-for-fraud-scheme-millions-of-dollars-losses)
 
-**4.两面派：HUGO BOSS在新疆棉声明中的自相矛盾**
+### 疫苗说
 
-[3月25日，德国时装品牌Hugo Boss在官方微博声明，将继续 “购买和支持 “新疆棉花。而当香港自由报记者进一步询问相关评论时，其给出了自相矛盾的回应，称“目前为止，从来没有从直接供应商那里采购过任何原产于新疆的棉花”。关于记者质疑Hugo Boss是否针对中国和西方客户给出了不同的信息，目前尚未得到回应。](https://www.breitbart.com/asia/2021/03/27/hugo-boss-vows-to-buy-slave-cotton-in-chinese-after-denying-purchases-in-english/)
+29日福克斯新闻报道：福奇说中共病毒大流行（COVID-19）疫苗的推广可能是他做出的 “最好的决定”。前川普总统高级顾问杰森-米勒发推称，“如果是靠福奇，我们现在都得不到疫苗。”
 
-**5.亚马逊因未提供员工午休遭诉讼**
 
-[一名前亚马逊员工声称因为没有得到午休时间而向该公司提起诉讼。诉讼称，员工们被剥夺了每5小时工作时间可享受30分钟用餐时间的权利，还声称不得不面对严重的人力不足和巨大的工作量。](https://www.businessinsider.com/amazon-hit-with-lawsuit-over-claims-did-not-provide-lunch-breaks-2021-3)
 
-**6.华为获得第三方移动支付牌照**
+> Fauci says COVID-19 vaccine push could be 'best decision' he's made [https://t.co/KbsZIR6j5n](https://t.co/KbsZIR6j5n)
+> — Fox News (@FoxNews) [March 29, 2021](https://twitter.com/FoxNews/status/1376474448585486343?ref_src=twsrc%5Etfw)
 
-[据企业数据库查询平台天眼查显示，电信企业华为通过收购深圳讯联智付网络有限公司100%股权，获得了中共移动支付牌照。早在5年前，华为就已经通过打造基于NFC的Huawei Pay进入支付领域，此次获得支付牌照，使其在支付领域占据优势。截至目前，小米、百度、阿里巴巴、腾讯、京东都拥有支付牌照](https://www.sohu.com/a/457777978_465270)
 
-By 【金融组 – Rosy Cloud】
 
-素材搜集：Totoro、Rosy Cloud
 
-+3
+
+> If it were up to Fauci we still wouldn’t have a Covid vaccine. [https://t.co/YlPjOkSxHU](https://t.co/YlPjOkSxHU)
+> — Jason Miller (@JasonMillerinDC) [March 29, 2021](https://twitter.com/JasonMillerinDC/status/1376354201127817222?ref_src=twsrc%5Etfw)
+
+
+
+### 疫苗护照
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/covid-passport.jpg)
+
+[新闻和图片来源](http://新闻和图片来源%20https://www.dailymail.co.uk/news/article-9412921/Biden-administration-working-unified-vaccine-passport-scheme-critics-call-American.html) [https://www.dailymail.co.uk/news/article-9412921/Biden-administration-working-unified-vaccine-passport-scheme-critics-call-American.html](http://新闻和图片来源%20https://www.dailymail.co.uk/news/article-9412921/Biden-administration-working-unified-vaccine-passport-scheme-critics-call-American.html)
+英国每日邮报29日报道：拜登政府正在制定统一的疫苗护照计划以重新开放经济，但批评者称其为 “非美国化”，就像 “需要你的证件 “一样，不应强制执行。
+
+- 据数据显示，目前至少有17项不同的举措正在酝酿中。
+- 接种者的护照可能以可扫描代码的形式出现。
+- 努力存在重大障碍，包括健康数据的隐私问题。
+- 一些美国人对任何看起来会被联邦政府 “强制要求 “的事情都持谨慎态度。
+
+
+
+
+### 变种病毒引发关注
+
+《英国每日邮报》3月23日一则新闻报道：纽约 “Covid变种，可能逃避疫苗引发的免疫力–但专家说它不会使疫苗无用
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/variant-virus.png)
+
+新闻和图片来源 [https://www.dailymail.co.uk/news/article-9389207/New-York-Covid-variant-evade-vaccine-triggered-immunity-UK.html](https://www.dailymail.co.uk/news/article-9389207/New-York-Covid-variant-evade-vaccine-triggered-immunity-UK.html)
+一个新的冠状病毒变种，可能部分逃避疫苗触发的免疫力，变种病毒首次发现在纽约，现在已经在英国出现。拭子测试表明变体病毒B.1.526可能潜伏至少一个月了。追踪不断发展的病毒科学家说，三例变异株-已在纽约造成严重破坏，英国也开始了。
+
+
+
+## 川普赞扬乔治亚州对选民法的修改
+
+
+
+> Trump lauds Georgia's changes to voter laws [https://t.co/8fR2m4R4Fi](https://t.co/8fR2m4R4Fi) [pic.twitter.com/yzVUWStOPJ](https://t.co/yzVUWStOPJ)
+> — Newsmax (@newsmax) [March 29, 2021](https://twitter.com/newsmax/status/1376496920588353537?ref_src=twsrc%5Etfw)
+
+
+
+29日据NewsMax，前总统唐纳德-川普周五（26日）发表声明，赞扬乔治亚州政治领导人在 “2020年总统大选的荒唐事 “后对选民规则的修改，新规定要求有照片的身份证才能通过邮寄方式进行缺席投票；该规定还设定了申请缺席投票的较早截止日期，限制了选票投递箱的放置地点以及何时可以进入。
+
+川普总统认为这是一种 “21世纪的吉姆-克劳”。他说：祝贺乔治亚州和乔治亚州立法机构改变了他们的选民规则和条例。他们从2020年总统选举的荒唐事件中吸取了教训，再也不能允许这种情况发生。太糟糕了，这些改变不能早点完成！”
+
+川普总统一直坚持认为，让乔-拜登入主白宫的2020年大选结果是不准确、不公平的，受到投票操纵和其他系统性舞弊的影响。
+
+
+
+
+
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+
++1
