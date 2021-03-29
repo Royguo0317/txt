@@ -1,28 +1,22 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【点睛要闻】丹麦人声援缅甸游行 起点锁定中共国驻丹麦大使馆
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1032958/)
+## 搜索“闫丽梦”在推特无法通过
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1033178/)
 
-作者：三毛【㊙️翻Gnews原创组】
-责编：心声
-![]()![](https://gnews.org/wp-content/uploads/2021/03/丹麦游行.jpg)图片素材来源：DR 
-3月28日丹麦国家广播电台DR报道，丹麦本地居民与居住在丹麦的缅甸人一起，举行和平游行，希望人们聚焦缅甸的动荡局势。
-
-下午1点，和平游行从中国驻丹麦大使馆住址黑勒鲁普（Hellerup）出发，参与者成群结队前往哥本哈根市政厅广场。
-
-昨天，缅甸有114人被军方杀害，其中包括几名儿童。这使得昨天成为自军方赶走昂山素季领导的民选政府夺取政权以来，最血腥的一天。但在血腥镇压面前，今天缅甸仍然出现了示威活动。
-
-这次游行的出发点特意选择了中共国驻丹麦大使馆，暗示缅甸政变和军政府血腥镇压人民的背后黑手是中共。
-
-游行得到了相关政府部门批准，这显然表明了丹麦政府保护言论自由的立场。丹麦前首相和前北约秘书长安德斯·福格·拉斯穆森（Anders Fogh Rasmussen）刚刚遭到了中共的制裁 ，丹麦数十年来首次召见中共驻大使丹麦对话反制裁。
+**西班牙巴塞罗那喜悦农场 **wenwu
 
 
 
-参考链接：
 
-[丹麦人为缅甸举行和平游行正在进行中](https://www.dr.dk/nyheder/seneste/europas-bedste-strand-ligger-i-norge)
 
-（本文仅代表作者个人观点）
+> Just saw that ALL the “latest”research results using my name “Yan Limeng” or “闫丽梦” on Twitter are blocked with NO reason!
+> But in “top” results, full of disgusting cartoons/videos to attack me & Yan’s Reports from CCP’s cyber army!
+> What is CCP scared of? My 3rd report? 😎 [pic.twitter.com/BBvYNaxdWc](https://t.co/BBvYNaxdWc)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [March 28, 2021](https://twitter.com/DrLiMengYAN1/status/1376305019310460928?ref_src=twsrc%5Etfw)
 
-0
+
+**`闫丽梦科学家的名字无法在推特上搜索到，但却可以找到攻击闫丽梦科学家的推特网军！中共在害怕什么？我的第三份科学报告？——闫丽梦科学家推特大意内容`**
+这起事件是反常的，因为本人就是通过“Yan Limeng”搜索到科学家的推特，而在路德社爆料7天内将出台第三份科学报告，该推特号无法通过搜索推特号功能寻找。这是反常的，中共在搞鬼！
+
++1

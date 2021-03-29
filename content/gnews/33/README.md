@@ -1,127 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒溯源问题白宫在等世卫组织报告
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1032487/)
+## 中共假借朱熹理学奴役百姓，套用王阳明心学争斗官场
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1032579/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：仙女儿-文善 | 校对：宁缺 | 审核：Beicy-数学老师 | Page: Daoiii
 
-编辑上传  水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/C-22-13.jpg)yalibnan.com
-3月26日CNN重磅播出罗伯特·雷德菲尔德博士（Robert Redfield）中共病毒来源说【1】，震惊了全美，记者立即追问到了白宫新闻发布会，看看白宫新闻秘书普萨基怎样说（以下将白宫新闻简报涉及中共国内容摘译）：【2】
+[!\[\]()!\[\](https://spark.adobe.com/page/kSyC0oMDC4zyj/images/457619f2-063f-4595-aa0d-f77be86d6a82.png?asset_id=6859570b-cefb-45ad-b85f-d2518be89e3f&amp;img_etag=%2211116f4da6ff05dd1cbbea067717b831%22&amp;size=1024)](https://spark.adobe.com/page/kSyC0oMDC4zyj/images/457619f2-063f-4595-aa0d-f77be86d6a82.png?asset_id=6859570b-cefb-45ad-b85f-d2518be89e3f&amp;img_etag=%2211116f4da6ff05dd1cbbea067717b831%22&amp;size=1024)
 
-2021年3月26日，新闻秘书詹·普萨基（Jen Psaki）的新闻简报
+昨天看到一则关于习近平考察朱熹园的新闻，顿时感觉中共国对百姓的奴役不会停止，只会变本加厉。说到这里需要阐明的是，我没有任何质疑朱子理学的意思。朱熹作为一代圣贤，将儒家与道家思想融会贯通，形成了一套拥有完整体系的哲学理论–朱子理学，其主张对后世的影响有着不可磨灭的积极作用。历史上，朱熹的思想一直受到统治者的重视与追捧，然而，朱熹的理学也最容易被统治阶级断章取义，益我之理论过甚其词，逆我之理论藏之弃之。
 
-新闻发布会
+朱熹的理学主张是相对于“欲”而生的，朱熹的思想理论中最知名的便是“存天理去人欲”，这也是被后世争论最多的朱熹思想。很多人偏激的将“去人欲”解释为牺牲人的所有欲望，包括人性中最基本的欲望。而我相信朱熹这里提到的“欲”一定是指贪欲，是指过渡的，无止境的纵欲。我想中共国盗国贼的一贯行径倒是把此“欲”诠释得淋漓尽致。中共盗国贼们纵使要躺在堆砌的白骨之上，也要享尽这世间奢靡，而反过来却向百姓灌输被他们所篡解的朱熹理学，愚骗百姓安分守己。中共只允许百姓有一定范围内的所谓的正常欲望，超出了正常范围就要被禁止与批判，而这个范围却是由这帮吃人不吐骨头的当权者们来制定的。这种只许州官放火，不许百姓点灯的双重标准在中共统治下已经是见怪不怪了：中南坑的奢靡国宴是彰显大国风范，而百姓捡拾烂菜叶子却成了勤俭持家；盗国贼家族海外资产无数，豪车豪宅养熊猫，而墙内八十岁的老人依然要依靠卖菜维持生活，却被谱写成了励志故事；当权者们都过着古代帝王般的三妻四妾的生活，私生子们需要被编辑成册方可被有效管理，而已经在中共国历时40年的计划生育却剥夺了一个个自然人该有的自然生育权力；全世界正在有序地与中共国经济金融脱钩，直接导致的结果就是外汇枯竭、粮食短缺，然而中共的特权特供不会断，估计百姓的“食欲”该被“依理”灭了…….。人的欲望是与生俱来的，对生存的欲望、对生活的欲望、对自由的欲望、对信仰的欲望、对探索真理的欲望、对一切美好事物的欲望……，如果人没有了这些欲望，人类又将如何进步呢？中共就是想利用朱熹理学之名，压抑百姓在物质层面与精神世界的所有欲望，再配合商鞅的驭民五术，达到约束人民、统治人民、奴役人民的目的，最终将14亿同胞洗脑成为只听中共摆布的行尸走肉。
 
-新闻简报室
+[!\[\]()!\[\](https://spark.adobe.com/page/kSyC0oMDC4zyj/images/87c3b634-8e0b-4009-a17b-abe55741e75e.jpg?asset_id=43e93068-8aa1-4c5a-983f-488c2ebe415b&amp;img_etag=%22478f0f8c60504d41c053aa74e95c5ca6%22&amp;size=1024)](https://spark.adobe.com/page/kSyC0oMDC4zyj/images/87c3b634-8e0b-4009-a17b-abe55741e75e.jpg?asset_id=43e93068-8aa1-4c5a-983f-488c2ebe415b&amp;img_etag=%22478f0f8c60504d41c053aa74e95c5ca6%22&amp;size=1024)
 
-……
+“官大一级压死人”，“君要臣死，臣不得不死”
 
-问：……下面，关于疫情：前CDC主任雷德菲尔德博士今天上午说，他相信病毒来自武汉的实验室，拜登总统是否对病毒的起源有任何看法，或者美国是否就此得出结论？
+朱熹是理学的集大成者，他认为世界的本原是理，万事万物都有它的规律，朱熹学说的最终目的是去认识理。 朱熹认为，我们要去研究客观事物，努力将事物的理研究到极点，这就是“格物”；对事物的研究由浅入深，最终豁然贯通找到事物之真理，这就是“致知”。通过认识和研究事物，最终掌握它的理，这就是著名的“格物致知”。我认为“格物致知”不是我们追求的最终结果，而是当我们了解了事物的真理与规律以后，便可以有章可循，有理可依。朱熹理学无可挑剔，怕就怕被统治者用错了心思。比如邪恶的中共当权者把14亿老百姓圈在墙内，每天看到听到和感受到的都是假的：我们看的新闻是假的；我们读的历史是被篡改的；我们读的书是错的；古建筑是被山寨的；绿化真的是画的；故事是编造的；英雄是塑造的；甚至食物是合成的；我们见到的欣欣向荣的景象是被粉饰的；百姓的强颜欢笑是被和谐过的；我们所见到的一切美好都是被包装过的；而我们见到的一切丑陋，其实真相往往比所见更加丑陋……。在这样一个耳听为虚，眼见也不为实的中共国社会里，我们要“格”的“物”都是假的，又何谈“致知”呢？如果不幸我们真的在中共体制下去“格物致知”了，最终也难逃堕落成为“小粉红”和“战狼”的可悲命运。
 
-普萨基：嗯，你知道，世卫组织正在研究这个问题，不久将发布一份报告，一旦有了那份报告，我们会再看一遍。
+[!\[\]()!\[\](https://spark.adobe.com/page/kSyC0oMDC4zyj/images/b3ff8ce2-f829-4390-ad58-d7691b070fce.jpg?asset_id=adfeb285-8a86-4a2f-ad5d-e8d801c6ec81&amp;img_etag=%2209e8c2e9ab96a9fce2e74effd091125c%22&amp;size=1024)](https://spark.adobe.com/page/kSyC0oMDC4zyj/images/b3ff8ce2-f829-4390-ad58-d7691b070fce.jpg?asset_id=adfeb285-8a86-4a2f-ad5d-e8d801c6ec81&amp;img_etag=%2209e8c2e9ab96a9fce2e74effd091125c%22&amp;size=1024)
 
-我们将继续更多地了解中共病毒疫情开始的最初几天，包括它的起源，以便我们能够更好地为未来的危机做好准备。
+朱熹的《兰亭集序碑》，历代名人对其书法的评价很高，朱熹的书法被誉为“汉魏风骨”及“韵度润逸”（来自维基百科）
 
-我知道瓦伦斯基（Walensky）博士谈到了这一点，我认为福奇博士今天上午也谈到了这一点，我们将密切关注随时出现的信息。
+说到朱熹，就不能不说王阳明。刚才毫不吝啬的将朱熹赞赏了一番，其实，我对朱熹连喜欢都谈不上，最多就是对这位博学多才的圣贤之士深感敬佩。而对王阳明，也不能说是喜欢，确切的说应该是爱。王阳明的心学主张的是“心即是理，致良知，知行合一”。与朱熹相似的是，王阳明也是沿袭了孔孟的儒家思想；而不同的是，王阳明强调“心即是理”，即最高的道理不需要外求，而是遵从自己的内心即可得到。王阳明的这个理论更加接近英国作家Thomas Paine于1776发表的《Common Sense》(《常识》)一书。我对王阳明心学最通俗的理解就是“天理自在人心”。心中的理就是万事万物的理，若想明事理，便要清楚自己内心的真情实感，并用同理心去理解他人的所思所想，靠实践，靠自省，最后做到“知行合一”。
 
-问：总统被告知的观点是由世卫组织的报告，还是他顾问的报告？我是说，他是什么-
+[!\[\]()!\[\](https://spark.adobe.com/page/kSyC0oMDC4zyj/images/22cf2cfa-846e-4c02-bc79-53157093e181.jpg?asset_id=e12297df-f919-4ab5-bfc5-d920524a7518&amp;img_etag=%22e50dce264b247c6320f61e4a8420a3ca%22&amp;size=2560)](https://spark.adobe.com/page/kSyC0oMDC4zyj/images/22cf2cfa-846e-4c02-bc79-53157093e181.jpg?asset_id=e12297df-f919-4ab5-bfc5-d920524a7518&amp;img_etag=%22e50dce264b247c6320f61e4a8420a3ca%22&amp;size=1024)
 
-普萨基：当然是他的健康和医疗顾问，因此，他们将审查——当然，当报告和更多数据出现时，他们将审查这些内容和人。
+王明阳是心学的集大成者，最令我受益匪浅的便是他所主张的“心即是理”。参透了“天理自在人心”，便可以更好的帮助我们认识自己、了解世界，处理人与人之间的关系、人与事之间的关系。我更愿意把这个心中的“理”比作万丈高楼平地起要打好的根基，如果违背了这个“理”，必将一路坎坷，所愿终究难达成。比如中共用“爹亲娘亲不如党亲”这样的谬论愚弄百姓，这个终究是站不住脚跟的，父母与子女之间的爱是与生俱来的， 这就是由心而生的“理”。如果我没有记错，应该是在2008年的奥运会上，我们的两位羽毛球小将夺得了女子双打冠军。在现场的记者采访中，女孩第一时间面对镜头表达了对父母亲的惦念与感激之情，由于只字未提感谢国家感谢党而被攻击诟病，只好在后来的采访中尴尬的尽力展现“党比爹娘还要亲”，中共的脑残行事风格简直是滑稽可笑至极。为何中共连“强扭的瓜不会甜”这样浅显的道理都不懂？为何中共不明白“天理自在人心”的道理才是一个可持续发展的良性循环的治国之道？为何中共在每一个岔路口上所做出的选择都是错的？我想是因为这个老鼠成了精的中共有的只是小聪明，没有慧根则永远达不到智慧的高度。这没有根基的中共万丈高楼，俨然成为了一幢危楼，全世界都在紧锣密鼓地远离它，唯恐躲闪不及。
 
-问：最后一个是关于中共国新疆的强迫劳动，一些公司受到了中共国政府的压力，一些零售商实际上也放弃了不使用该地区强迫劳动生产的产品的承诺。那么，你知道，美国在做什么来阻止或制止中共国对导致这一问题的公司进行的这种威胁呢？
+中共不采用王阳明的心学治理国家实惠百姓，心学理论倒是在中共官场上十分盛行。中共官员熟读王阳明的心学，没有将其用在为百姓谋福利之上，而是把心思都花在了玩弄权术之上。中共官员从来不考虑百姓想要什么，因为他的官职不是民选的，而是上级赏赐的，所以，官员们都争先恐后的打探上级的嗜好，以确保其官运亨通；中南坑的领导们也是挖空心思的揣摩圣意，以确保家族利益安全无虞。中共在全世界实施的“蓝金黄”计划也是利用心学掌握人性弱点，收买或威胁对手，以达到为己所用的目的。中共自作聪明地利用王阳明的心学理论大搞歪门邪道，我只想笑着对中共说：“自以为是的你们根本不懂王阳明的心学，心术不正之人若练此功，其后果地球人都知道。”
 
-普萨基：当然，我们一直在密切关注这个问题，大家都知道，我们也采取了强有力的行动，以防止中共国从新疆可怕的侵犯人权行为中获利，并阻止从中共国进口强迫劳动生产的产品。
+[!\[\]()!\[\](https://spark.adobe.com/page/kSyC0oMDC4zyj/images/b5163ae7-4385-41e2-a117-d72d1561e23a.jpg?asset_id=f1edc3a9-7a8d-4819-b36d-65c28eb8cb3d&amp;img_etag=%225ab04d5734ecbc63b6cb918462be8ece%22&amp;size=1024)](https://spark.adobe.com/page/kSyC0oMDC4zyj/images/b5163ae7-4385-41e2-a117-d72d1561e23a.jpg?asset_id=f1edc3a9-7a8d-4819-b36d-65c28eb8cb3d&amp;img_etag=%225ab04d5734ecbc63b6cb918462be8ece%22&amp;size=1024)
 
-美国消费者和世界各地的消费者应该知道，他们的商品是–他们购买的商品不是用强迫劳动制造的，许多公司都在维护消费者的权利。
+中共一味的将其所谓的“格物致知”之后的“理”灌输给我们，想尽办法让我们相信它编造的假“理”就是至高无上的我们必须遵循的规则。中共最惧怕的就是我们爱上并参透王阳明心学之“心即是理”的真谛。如果我们都可以遵循自己的内心而行事，摆在我们面前的“理”便分明了：我们希望带给家人幸福的生活，所以我们要努力追逐快乐；我们的内心是渴望自由的，所以我们就要推翻中共的独裁政权；我们的信仰是坚定的，所以我们要对残害宗教人士的政党说不；我们是向往有尊严和体面的生活的，所以我们就要挺直腰杆做自信自爱的华夏儿女；我们希望有一个健康的生存环境，所以我们就要反抗当权者的滥杀无辜；我们向往一个有规矩有法治的国度，所以我们就要炒了这帮窃国贼的鱿鱼。如果我们都遵循自己的内心而行事，我们便认同了常识、便有了质疑、有了思考、有了分析、有了逻辑，进而有了反抗，然后便有了中共的灰飞烟灭。从理论上讲，中共的心也是一种“理”，百姓的心更是“理”，但是中共的“理”是邪恶之心造就的邪说歪理，毫无道德可言；而百姓的心是明亮的， 尽管会被一时蒙蔽，但其道德与天理最终一定会回归到它该有的模样；我的心是“理”，别人的心也是“理”，我会成为别人，别人也可以成为我，我们不但要有一颗自知的心，更要有一颗善意的同理之心，你善待了别人，便是善待了自己，这便是“天理”。这天与地之间就有了规矩来丈量这世间的一切方与圆。
 
-我们认为，国际社会应该反对中共国将私营企业依赖市场的行为武器化，以扼杀言论自由，抑制商业道德，所以这是我们密切关注的事情。
+[!\[\]()!\[\](https://spark.adobe.com/page/kSyC0oMDC4zyj/images/f21d9df8-6daa-468e-9cb2-2bf994c7849d.jpg?asset_id=777fdbb3-c507-4228-9b4b-ac46cfcd8fc7&amp;img_etag=%222f97b60bd2785012848b1b5f212356a2%22&amp;size=1024)](https://spark.adobe.com/page/kSyC0oMDC4zyj/images/f21d9df8-6daa-468e-9cb2-2bf994c7849d.jpg?asset_id=777fdbb3-c507-4228-9b4b-ac46cfcd8fc7&amp;img_etag=%222f97b60bd2785012848b1b5f212356a2%22&amp;size=1024)
 
-当然，我们已经采取了自己的行动，我希望政府和商业部门今天晚些时候对此有更多要说的。
+心中有天理，世间方有规矩，天理自在人心。中共70年统治所犯下的滔滔罪行，就算是两千年来稳坐第一暴君宝座的秦始皇都会自愧不如吧？中共失德失人心，中共的幻灭结局是无人可以扭转的。畅想着没有了中共横行的新中国，拨散密布的乌云，又见广阔苍穹，被压抑了这么久的国人的思想，将迎来怎样的一番百家争鸣的壮观景象呢？
 
-问：接着问一下，因为在本届政府的头几个月里，你们似乎一直在传递这样的信息，但事实上，中共国似乎更大胆地威胁这些公司，那么，白宫还能做些什么来阻止他们做出这些威胁呢？
+朱熹与王阳明一生都在找寻同一样东西，那就是“理”。朱熹是从外界的客观事物中去寻找，再反馈到自身；王阳明是从自身去寻找，再到实践中去验证。朱熹一生重在“学”；王阳明一生重在“践”。朱熹在教大家“如何做”；王阳明在教大家“做什么”……。如果只有一次穿越的机会，你更愿意坐在谁的对面谈经论道呢？我会毫不犹豫地选择王阳明，不为别的，只想见识一下，与英勇智慧的七哥相比，王阳明又是一位怎样的英雄？
 
-普萨基：好吧，我们可以与我们的国际伙伴合作，很明显，正如我所传达的，我们将如何回击中共国对私营企业进行武器化的企图，我们可以像现在这样公开传达，当然也可以参与到私营实体企业中来应对（中共国的）这些企图。
+[!\[\]()!\[\](https://spark.adobe.com/page/kSyC0oMDC4zyj/images/17ec7cee-a5e1-4330-a27b-be7f41dee792.png?asset_id=76744797-bf13-4636-9436-3c07b397c94b&amp;img_etag=%2225b0f3bfe1e1963754dfe2f87bc29984%22&amp;size=1024)](https://spark.adobe.com/page/kSyC0oMDC4zyj/images/17ec7cee-a5e1-4330-a27b-be7f41dee792.png?asset_id=76744797-bf13-4636-9436-3c07b397c94b&amp;img_etag=%2225b0f3bfe1e1963754dfe2f87bc29984%22&amp;size=1024)
 
-但很多这样的行动将发生在商业上，在某些情况下，还有国务院，再说一次，我希望他们今天晚些时候会有更多的细节要说。
+*文章仅代表作者观点*
 
-凯特兰（Kaitlan），该你问了。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-问：有几个问题，关于世卫组织调查（报告）即将出炉，国家安全顾问杰克·沙利文（Jake Sullivan）几个月前表示，他们对调查的进行方式深感担忧，他们还有哪些深切的担忧吗？
 
-普萨基：部分原因是由于缺乏透明度，而且缺乏–我们无法确保我们能够得到可用的数据，所以出现了延迟，他们实际上推迟了那份报告的发表，我们也支持。我们得看一看，确保我们能获得基本的信息。
+编辑：【英国伦敦喜庄园编辑部】
 
-问：那么，如果这份报告出来了，而拜登总统对此并不满意，会发生什么呢？
-
-普萨基：是对报告不满意？
-
-问：（没听清）
-
-普萨基：好吧，我们还呼吁进行国际调查，调查发生了什么事，以及起源–不只是起源，我应该说–中共国缺乏透明度，我们已经恢复或是重新组建了我们在北京的团队。
-
-那我们看看报告怎么说，在我们关注的地方，我们会查看底层数据，如果我们可以访问这些数据的话，然后我们必须通过跨部门的程序来决定下一步的行动。（摘译完）
-
-没有查到新上任的CDC主任伦斯基（Walensky）对中共病毒来源的态度，昨天她的表态是等世卫组织的报告，老贼福奇虽然没有明确反对雷德菲尔德博士的“起源武汉说”，但其暗示话语充满了为中共的开脱。
-
-从普萨基的回答获得的信息如下：
-
-1、“但很多这样的行动将发生在商业上，在某些情况下，还有国务院，再说一次，我希望他们今天晚些时候会有更多的细节要说。”说明会对中共国有进一步的制裁行动；
-
-2、世卫组织的调查报告被推迟，或者退回补充，不久会发布；
-
-3、“我们已经恢复或是重新组建了我们在北京的团队”，说明美国在北京有团队，应该是调查团队，还是其他？
-
-相关链接：
-
-【1】https://gnews.org/zh-hans/1023905/
-
-【2】https://www.whitehouse.gov/briefing-room/press-briefings/2021/03/26/press-briefing-by-press-secretary-jen-psaki-march-26-2021/
-
-原文部分：
-
-Q: And then, on the pandemic: Dr. Redfield, the former CDC director, said this morning that he believes that the virus originated from the lab in Wuhan.  Does President Biden have any views on where the virus may have originated, or has the U.S. come to a conclusion on that yet?
-
-MS. PSAKI: Well, as you know, the WHO is examining this and will be releasing a report soon.  We’ll review that report once it’s available.
-
-We continue to learn more about the earliest days of the COVID-19 pandemic, including its origins, so we can better prepare for future crises.
-
-I know Dr. Walensky addressed this and I think Dr. Fauci did as well this morning, and we’ll look closely at that information when it’s available.
-
-Q: Are the President’s views being informed by that WHO report or his advisors?  I mean, what is he–
-
-MS. PSAKI:  By his health and medical advisors, certainly. And so they’ll review — they will be, of course, the people reviewing the reports and more data when it becomes available.
-
-Q: And then, last one on the forced labor in Xinjiang, in China. Some companies have come under pressure from the Chinese government, and some retailers have actually dropped pledges not to use products made with forced labor from that region. So, you know, what is the U.S. doing to stop or deter China from making those kind of threats against companies that have resulted in this problem?
-
-MS. PSAKI: Well, we certainly have been watching this issue closely, as you well know, and we’ve taken our own strong actions in order to prevent China from profiting off of its horrific human rights abuses in Xinjiang and to stop imports of products made with forced labor in China.
-
-American consumers and consumers everywhere deserve to know that their goods are — that the goods they are buying are not made with forced labor, and many companies are standing up for consumers’ rights.
-
-The international community, in our view, should oppose China’s weaponizing of private companies’ dependence on its markets to stifle free expression and inhibit ethical business practices.  So it is something we are watching closely.
-
-We’ve, of course, taken our own action.  I would expect that State and Commerce will have more to say on this later today.
-
-Q：And just one quick follow-up, though.  It’s — because it seems like you’ve been having this message out there for the first couple months of this administration, but it’s — China only seems more emboldened to threaten these companies.  So what more can be done from the White House to try to deter them from making these threats?
-
-MS. PSAKI: Well, we can work with our international partners, obviously, as I conveyed, on how we’re going to push back on China’s efforts to weaponize private companies.  And we can convey publicly, as we are now, and of course engage with private sector entities about these efforts.
-
-But a lot of that action would happen from Commerce and, in some cases, the State Department.  And again, I expect they’ll have more specifics to say later today on this.
-
-Go ahead, Kaitlan.
-
-Q: A few questions.  On the WHO investigation that’s coming out, Jake Sullivan, the National Security Advisor, said a few months ago that they had deep concerns about the way the investigation was being conducted.  Do they still have those deep concerns?
-
-MS. PSAKI: In part because there was a lack of transparency and there was a lack of — we weren’t ensured that we would have access to the data available, so there was a delay.  They actually delayed the release of that report, which we were encouraged by. We’ll have to take a look at it and make sure we have access to the underlying information.
-
-Q: So what happens if the report comes out and President Biden is not satisfied with it?
-
-MS. PSAKI: Not satisfied with the report?
-
-Q: (Inaudible.)
-
-MS. PSAKI:  Well, we’ve also — we’ve also called for an international investigation and look into what’s — what’s happened and the origin — not just the origin, I should say — the lack of transparency from the Chinese.  We have reinstituted or reengaged with — through staffing of our — of our team on the ground in Beijing.
-
-So we’ll see what the report says.  Where we have concerns, we’ll look at the underlying data, if we have access to that.  And then we’ll have to make a determination through an interagency process on what’s next.
+[!\[\]()!\[\](https://spark.adobe.com/page/kSyC0oMDC4zyj/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/kSyC0oMDC4zyj/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0
