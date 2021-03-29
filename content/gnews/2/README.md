@@ -1,22 +1,24 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 搜索“闫丽梦”在推特无法通过
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1033178/)
+## 【小一观点】共产党要台湾做鬼，美国让台湾做人
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1035751/)
 
-**西班牙巴塞罗那喜悦农场 **wenwu
+***加拿大多伦多枫叶农场温哥华战友团 我是1，小一***
+![]()![](https://gnews.org/wp-content/uploads/2021/03/vietrnamtimes.org_.vn_.jpg)
+共产党搞香港就是给台湾亲共派看的。共产党拿下香港，扼杀自由民主，让林郑月娥们当香港的傀儡皇帝，然后自己幕后控制，把香港的一切国有化，藉着为香港人民解决住房问题，抢夺各大富商手里的土地，最终将香港的一切姓党。不认可的，高喊自由民主的，敢反共的，统统弄死，赶走，人可以走，钱留下，这就是共产党。跟着共产党走，你们就是香港的皇帝。不要害怕世界的制裁，14亿韭菜将是你们最大的后盾。
 
+台湾的亲共派，看一看香港，未来对待台湾也是同样模式。你们跟我共产党走，我保证你们也是台湾的皇帝，全台湾的钱和土地都是你们几个人的。以后再也没有真正的选举，都是演戏给屁民看。喊着要自由民主的，不服的统统弄死，赶走，人走钱留下。跟香港一样。
 
+对台湾的共奸来说，一下子当天王老子，这是巨大的诱惑，所以他们加紧帮助共产党控制台湾。其实这是共产党给他们利益的一种方式，简单粗暴，直接掠夺人民，先国有化，然后个人化。
 
+那么美国看到这个问题，也开出药方，给台湾利益，美国给利益的方式是什么呢？承认台湾国际地位，让台湾加入全球各种经济军事组织，比如双边、多边贸易协定，联合国合法席位等等。那时台湾继承了大陆撤离的产业链，经济增长将会火山式爆发。这是一条阳光大道，台湾登上世界舞台，光明正大地法统地与世界交流。
+其实台湾一直存在亲共和亲美势力，关键是中间派，二边都拿出了给利益的方式，一个火葬场，一个阳关道。只是台湾如何选择！
 
+历史的选择不是大众决定的，而是几个人在关键的节点上的决定。一切只是刚刚开始！
 
-> Just saw that ALL the “latest”research results using my name “Yan Limeng” or “闫丽梦” on Twitter are blocked with NO reason!
-> But in “top” results, full of disgusting cartoons/videos to attack me & Yan’s Reports from CCP’s cyber army!
-> What is CCP scared of? My 3rd report? 😎 [pic.twitter.com/BBvYNaxdWc](https://t.co/BBvYNaxdWc)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [March 28, 2021](https://twitter.com/DrLiMengYAN1/status/1376305019310460928?ref_src=twsrc%5Etfw)
+* * *
 
-
-**`闫丽梦科学家的名字无法在推特上搜索到，但却可以找到攻击闫丽梦科学家的推特网军！中共在害怕什么？我的第三份科学报告？——闫丽梦科学家推特大意内容`**
-这起事件是反常的，因为本人就是通过“Yan Limeng”搜索到科学家的推特，而在路德社爆料7天内将出台第三份科学报告，该推特号无法通过搜索推特号功能寻找。这是反常的，中共在搞鬼！
+*发稿 文锦*
 
 +1

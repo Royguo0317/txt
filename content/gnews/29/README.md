@@ -1,23 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本和印尼联合反对中共霸权扩张
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1033534/)
+## 巴基斯坦在首都伊斯兰堡等高危地区实施部分封锁
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1035122/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+- 编辑：Victor Torres
+- 发稿：Ranting
 
-编辑   水星   上传  银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/图片3-42.png)youtube
-共同社新闻报道，日本和印尼的国防部长周日同意向世界其他国家发出信息，即两国将强烈反对中共采取任何可能加剧该地区水域紧张局势的行动。
 
-日本防卫大臣岸信夫在东京与印尼防卫大臣普拉博沃举行会谈后对记者说，他们将敦促中共不要试图单方面改变南海和东海的现状。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-岸信夫对中共出台的新海警法表示担忧，新海警法允许中共海岸警卫队向其认为侵入属于自己领海的船只开火。岸信夫表示，日本和印尼双方同意加强防务合作，在南中国海举行日本和印尼军队的联合演习。
+**西班牙2021年3月29日电/西喜社——**据美联社3月29日报道，在中共病毒感染的阳性率跃升至11%以上后，巴基斯坦当局周一又在首都伊斯兰堡等几个高危地区实施了部分封锁。
 
-日本和印尼的外交部长和国防部长定于周二在东京举行会谈。这将是自2015年12月以来两国的第二次2 + 2会谈。
+巴基斯坦正面临着中共病毒感染的又一次激增，官员们说，这比去年的疫情还要严重，当时巴基斯坦不得不实行全国范围的封锁。
 
-参考链接：
+周一，东部旁遮普省当局还宣布从4月1日起在高风险城市实施为期两周的部分封锁，旨在遏制病毒的传播。
 
-[https://english.kyodonews.net/news/2021/03/890b6a172aa4-japan-indonesia-defense-chiefs-opposed-to-assertive-moves-by-china.html](https://english.kyodonews.net/news/2021/03/890b6a172aa4-japan-indonesia-defense-chiefs-opposed-to-assertive-moves-by-china.html)
+到目前为止，巴基斯坦政府避免了全国范围内的封锁，以使该国陷入困境的经济免受更多损害。
+
+周一，巴基斯坦报告说，过去24小时内又有41人死亡，4525例中共病毒病例。
+
+自去年以来，巴基斯坦共报告659116例病例，14256人死亡。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/517bb688-2369-476d-b986-ab505e42b568.jpg)
+
+**新闻来源：[美联社](https://apnews.com/article/europe-germany-coronavirus-pandemic-portugal-a305825d96991f19238b1c7bc09c2c72)**
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募-7.jpeg)
 
 0
