@@ -1,31 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 葡萄牙收紧飞行限制
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1035145/)
+## 快讯！美军成立新特遣队用于对抗中共信息战
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1035057/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+收集：JAY；编撰：WLQF
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/截屏2021-03-29-下午10.11.13.png)图片来自网络
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+美国特种作战司令部（United States Special Operations Command，缩写作USSOCOM或SOCOM）负责人周四向参议院军事委员会表示，**该司令部启动了一支新的特遣部队，专注于在太平洋地区对抗中国的信息行动。**
 
-**西班牙2021年3月29日电/西喜社——**据美联社3月29日报道，由于中共病毒，葡萄牙正在收紧飞行限制，对来自疫情恶化的其他欧盟国家的入境者实行更严格的限制。
+根据C4ISRNET的一份报告，这个被称为 “联合特遣部队印度-太平洋小组 “的特遣部队将专注于 “太平洋战区的信息和影响行动”。SOCOM司令小理查德·道格拉斯·克拉克说，特遣部队将与该地区 “志同道合的伙伴 “开展合作。
 
-内政部周一宣布，14天内从发病率超过每10万人口500人的国家抵达的人必须隔离两周，并且只能因必要的业务而来。
+“我们实际上能抑制中共不断播撒的一些虚假信息，”克拉克说。目前还不清楚这支新的特遣部队具体会做什么，但C4ISRNET的报告指出，进攻性网络行动可能是主要开展活动的一部分。
 
-这一措施覆盖了11个欧盟国家，包括法国和意大利。
+克拉克将军还谈到了在SOCOM的特种作战部队下开展的信息战行动，特别是一个被称为军事信息支持行动专业人员的小组，他们部署在世界各地的大使馆。
 
-对于另外15个发病率超过每10万人口150人的欧盟国家，只允许到葡萄牙进行必要的旅行。这些国家包括德国和荷兰。
+新闻来源：[ZERO HEDGE](https://www.zerohedge.com/geopolitical/us-military-launches-task-force-fight-information-war-against-china)
 
-所有抵达的乘客必须出示24小时内的PCR阴性测试。
-
-除遣返航班外，仍禁止往返英国和巴西的航班。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/49606b13-2782-433b-80bb-e9a25f9ebac7.jpg)
-
-**新闻来源：[美联社](https://apnews.com/article/europe-germany-coronavirus-pandemic-portugal-a305825d96991f19238b1c7bc09c2c72)**
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募-7.jpeg)
-
-0
++2
