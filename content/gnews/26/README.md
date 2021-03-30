@@ -1,41 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】前美疾控中心主任质疑病毒源于武汉实验室泄露，福奇出面粉饰
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1036602/)
+## 红衣主教警告：武汉肺炎是用于实现新世界秩序（大重置）和来攻击“自由”和“家庭”
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1037361/)
 
-翻译/整理：纽约香草山翻译部 Stay文苑
+内容：
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
+Cardinal Burke
+红衣主教伯克
 
+Then there is the mysterious Wuhan virus
+再就是神秘的武汉病毒
 
+about whose nature and prevention
+其性质和预防措施
 
-据CNN3月26日报道，前美国疾控中心主任罗伯特·雷德菲尔德（Robert Redfield）在接受CNN的桑贾伊·古普塔（Sanjay Gupta）博士的采访中透露，导致COVID-19的SARS-CoV-2病毒并非来源于中共国武汉的一个海鲜市场，而是从附近的一个实验室“逃”出来的，该实验室为使蝙蝠冠状病毒更有效地感染人类，正在对其进行增强性功能研究 。
+The mass media daily gave us conflicting information
+大量的媒体每日给我们提供了相互矛盾的信息
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/图片31-1.png)
+What is clear, however
+什么是清楚的，但是
 
-这位前疾控中心主任认为这场大流行病应该早在2019年9月或10月就已经在武汉的局部地区爆发，爆发时间远远早于中共官方宣称的时间。武汉爆发大面积疫情后，中共国的所有省份在随后几个月的大蔓延中无一幸免。 但直到2019年12月31日，美国才正式接到 “神秘的肺炎患者群 “的通知。古普塔博士在采访中说，如果中共在2019年9月或10月疫情刚爆发时就公布真相，那么世界各国就可能做好充分准备，或许能够阻止或控制这场人类灾难性的疫情大爆发。
+is that it has been used
+它已经被利用了
 
-当世界各国被告知中共国的SARS-CoV-2初始病例出自武汉的一个海鲜市场时，雷德菲尔德博士表示有证据确信事实并非如此。2020年1月，雷德菲尔德从和他在中共国疾控中心的同行高福的一次私人电话中得知，很多被确诊的病患根本没有到过海鲜市场。高福告诉雷德菲尔德博士，他也一直被蒙在鼓里，直到2020年1月份才发现事情的严重性远远超乎想象，他惊慌失措，甚至痛哭流泪，高福深知，此事绝对不可能被永远掩盖，疫情真相一定会被曝光。雷德菲尔德博士说，如果他知道中共国疫情最初的死亡率是在 5%~10%之间时，他也会痛哭。
+by certain forces inimical to families and to the freedom of nations
+被某些要破坏家庭和民族自由的势力
 
-雷德菲尔德博士对古普塔博士表示，他不相信病毒是以某种方式从蝙蝠直接传播到人类的。因为通常情况下，当一种病原体从动物传播给人类时，病毒需要不断进化从而进一步弄清楚如何在人与人之间的传播中变得越来越高效。他强调这是他的个人观点，由于他已从疾控中心卸任，现在可以发表个人观点。
+to advance their evil agenda
+以推进他们的邪恶的议程
 
-当被问及他为什么相信实验室会努力让病毒更高效地感染人类时，他说，实验室可以说他们在培养某种冠状病毒，团队的所有人在尝试把病毒培养好，再用这些病毒来反复做实验，以了解其特性。
+These forces tell us
+这些势力告诉我们
 
-雷德菲尔德的观点显然与世界卫生组织（WHO）的观点不同，与美国国家过敏和传染病研究所所长福奇博士的观点也不一样。世界卫生组织称，病毒“极不可能”是从实验室“逃离”的。福奇博士则在得知雷德菲尔德被采访的消息后，在上周五的白宫新闻发布会上称 “大多数科学家认为COVID-19并非来自实验室”。
+that we are now the subjects of the so-called
+我们现在是所谓的
 
-现在，对中共献媚的一些所谓专家们，为讨好中共还在不遗余力地攻击雷德菲尔德博士。而攻击雷德菲尔德这件事本身就足以令人对主流媒体一些言论的真实性产生质疑。
+great reset the new normal
+大重启新常态的主体
 
-校对：AJ2020枫华，飞虹 发稿：飞虹
+Which is dictated to us
+这对我们来说
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-g-fashion-2.jpg)
+by their manipulation of citizens and nations through  ignorance and fear
+通过无知和恐惧达到他们对公民和国家的操纵
 
+* * *
 
+英听校：康州盘古农场 – Layka
+翻译：康州盘古农场 – Layka
+翻译终校：康州盘古农场 -Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发文：康州盘古农场-轰炸机
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-0
++4

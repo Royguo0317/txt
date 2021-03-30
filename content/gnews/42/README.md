@@ -1,29 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：中共病毒疫苗在国内接种剂次超过1亿
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1036398/)
+## 辉瑞公司首席执行官推迟了以色列的访问，因为他没有接种疫苗
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1036044/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
+内容：
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/56396699_101.jpg)
+Meg Tirrell (CNBC reporter)
+梅格·蒂雷尔 （记者）
 
-据中新社报导，来自中共国国家卫健委的数据显示，截至昨天（27日），各地累计报告接种冠病疫苗1亿0241万7000剂次。中共国去年12月15日正式开展重点人群接种工作。国家卫健委方面早前披露，中共国正在按照重点人群、高危人群和其他人群依序推进的原则组织实施接种，稳步提高疫苗人群覆盖率。北京、湖北武汉、安徽合肥等地都已陆续启动60岁以上人群疫苗接种计划。
+Well and a question for you
+好吧，还有一个问题要问你
 
-评论：
+I’ve heard you have not yet had uh your shot
+我听说您还没有注射疫苗
 
-中共已经将接种中共疫苗作为政治任务，众多单位员工都被强制接种，所以中共疫苗接种人数才能在短时间迅速超过一亿人次。随着海外陆续曝光多起疫苗安全性问题，国内肯定已经发生无数起因疫苗导致的死亡或致残事件，只是这些事件都被中共压制了，中国老百姓再次成为中共的牺牲品。
+When do you plan to get it?
+您打算什么时候注射呢？
 
+Pfizer CEO Albert Bourla
+辉瑞公司首席执行官阿尔伯特·波拉（Albert Bourla）
 
+Sooner. I can, I will
+很快。我能, 我会的
 
-[原文链结](https://www.zaobao.com.sg/realtime/china/story20210328-1134793?utm_source=ZB_iPhone&amp;utm_medium=share)
+The only sensitivity here uh Meg is that uh
+梅格，在这里唯一的敏感的是
 
-【文章仅限作者个人观点】
+I don’t want to to have an example
+我不想让大家认为
 
-本文作者：【孺子牛】
+that I’m cutting the line
+我在加塞
 
-审核校对：鲁邦五世
+That I am 59 years old in good health
+我身体健康，今年59岁
 
-上传排版：玫瑰新闻组
+I’m not working in the front line
+我不在（医疗）的前线工作
+
+So my type is not recommended to get vaccination out
+所以像我这样的人群，是不推荐打疫苗的
+
+so that’s one question there is
+所以这是一个问题
+
+I am sorry, I am allergy to bullshit
+对不起，我对鬼扯过敏
+
+* * *
+
+英听校：康州盘古农场 – Layka
+
+翻译：康州盘古农场 – Layka
+
+翻译终校：康州盘古农场 -Mike Li
+
+字幕+视频制作：康州盘古农场-天涯行
+
+审片**：**康州盘古农场-银龙
+
+发文：康州盘古农场-轰炸机
 
 0

@@ -1,39 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧盟数据库显示新冠病毒疫苗造成3,964人死亡162,610人受伤
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1036635/)
+## 种族主义是种族主义者的问题，也是产生种族主义的社会问题
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1037400/)
 
-- 作者：The-world
-- 制图：小鲨鱼
+内容：
 
+I am a descendant of slaves.
+我是一个奴隶的后裔
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+My great-grandmother, Mary Thomas, born in 1865,
+我的曾祖母，玛丽·托马斯，生于1865年
 
-**西班牙2021年3月30日电/西喜社——**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/image0-91-scaled.jpg)
-根据欧盟数据库，COVID“疫苗”的危险似乎越来越严重，记录显示，将近4,000人死亡，超过162,000人已经“因疫苗造成的生理反应而构成损伤”。前辉瑞公司副总裁警告说，该疫苗可能正在用于“大规模人口减少”。
+Was the child of a slave – this is just three generations back from me.
+是一名儿童奴隶 – 到我这儿是三代人
 
-他们在2021年3月13日之前的报告中，在所有注射了3次实验性COVID-19的人中，死亡3964人，受伤162610人
+I grew up in the segregated South, I was bused to a segregated school
+我在种族隔离的南方长大，我被送往一所隔离的学校上学
 
-数据中使用的三种疫苗均为MRNA疫苗，它们全部都会造成接种者大量异常反应, 其中最常见的是广泛性综合症，胃肠道疾病，感染，血液和淋巴系统疾病。甚至还可能造成先天性，家族性和遗传性疾病，良性及恶性肿瘤。
+And on weekends the Ku Klux Klan burned crosses on lawns in our neighborhood.
+周末，3K党(Ku Klux Klan)在我们的邻里附近的草坪上烧了十字架
 
-“美国的前线医生“强烈反对该MRNA疫苗未经临床测试便投入使用。其中Dr.Yeadon将其认定为针对全人类的罪行” 毫无疑问我们活在邪恶势力的阴影下，这是我40年研究生涯中看到过最危险的产品”。
+When I was in high school, I was asked by a little girl for whom I babysat,
+当我上高中的时候，有一个小女孩问我，我是谁的保姆
 
-他还认为既然那么多专家和医师站出来反对该MRNA疫苗，那么下定决心投放该疫苗的幕后黑手也一定知道这个疫苗的危险性。我们必须搞清楚他们的动机是什么。
+If I was an n-word, because her dad had used that word for me.
+如果我是黑奴，因为她的父亲曾用过这个词形容我
 
-“既然我确定地知道这一点，并且我知道使用它的人也知道这一点，我们必须询问：他们的动机是什么？”
+I know the ugly face of racism
+我知道种族主义的丑陋嘴脸
 
-“虽然我不知道，但我有一些不错的推论，其中只有一个与金钱有关，而且金钱的动机并不明显，因为当考虑到单位成本加倍和代理商分红，他们并不能从中获得太多的利益。所以这应该不是为了钱。而考虑到将来低龄儿童甚至是婴儿都将接种该疫苗时，我认定这是一个异常邪恶的计划”
+I lived racism. I have experienced racism. And I survived racism.
+我在种族主义之中生活过。 我经历过种族主义。而且我在种族主义中幸存下来
 
-“据我所知这些疫苗在设计时会使刺突蛋白发生反应。它会引发血液凝固并激活免疫补体系统这对某一部分人是有害的。对他们来说病毒造成的威胁远小于这些不受身体欢迎的异物。”
+And through this process, I learned a simple truth
+通过这个过程，我学到了一个简单的道理
 
-当越来越多的证据浮出水面，当越来越多的专家站出来向世人宣告这种疫苗的危险。然而媒体，政府，科技公司仍然在推动该疫苗的使用普及。这是对人类   全方位的打击，这是中共勾结比尔盖茨等邪恶势力灭绝全人类的邪恶计划。
+Racism is not the problem of the person who experiences it.
+种族主义不是经历它的人的问题
 
-这显然是人类历史上最危险的时刻。不过感谢川普总统，感谢爆料革命，和所有传播真相的人，这些邪恶势力不得不狗急跳墙提前发动他们灭绝人类的计划。我们需要做的就是传播真相，把这些因疫苗而死的例子告诉那些还没醒悟过来的人。
+Those of us who experience racism cannot and should not, internalize it.
+我们当中那些经历种族主义的人们不能也不应将其内部化
 
-编辑：蚂蚁兄弟；校对：阿伯塔；发稿：神奇四侠
+Despite the impact it can have on our everyday lives.
+尽管它会影响我们的日常生活
 
-新闻来源：[CDP](https://conservativedailypost.com/3964-dead-162610-injuries-eu-database-shows-reactions-to-covid-vaccines-former-pfizer-vp-explains-massive-depopulation/)
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募-6.jpeg)
-0
+We must face it down every time, no matter whom it’s directed towards.
+无论它是针对谁的，我们每次都必须面对它
+
+Racism is the problem of the racist, and it is the problem of the society that produces the racist-
+种族主义是种族主义者的问题，也是产生种族主义的社会问题
+
+and in today’s world, that is every society.
+在当今世界，那是每个社会的问题
+
+* * *
+
+英听校：康州盘古农场 – Layka
+翻译：康州盘古农场 – Layka
+翻译终校：康州盘古农场 -Mike Li
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发文：康州盘古农场-轰炸机
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
++2

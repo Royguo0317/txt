@@ -1,29 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法国新冠重症患者人数再创新高 第三波新冠疫情来势凶猛
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1036618/)
+## 布林肯谈北约用共同的价值观防御
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1037375/)
 
-编撰：JAY(杰伊), PEACEMAN
-复核：七角星
+内容：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3.30-1-2.png)HEALTH-CORONAVIRUS/FRANCE REUTERS – PASCAL ROSSIGNOL
+First, it’s often easy to take good things granted.
+首先，人们通常很容易把的事情当作理所当然
 
-法国第三波新冠疫情来势凶猛，重症患者人数再创年内新高，巴黎医疗中心负责人发出警告医院已不堪负荷将不得不开始选择收容的病人，面临”挑选病人”救治的”医疗灾难”。法国累计确诊总数超过454万例，超过俄罗斯成为第4多国家。
+And I think the last thing that we can afford to do now is to take this alliance for granted.
+我认为，我们现在最不能做的就是把这种（北约）联盟视为理所当然
 
-法国卫生部周日晚通报法国新增重症患者81人，重症总计4872例，已逼近去年11月第二波疫情峰值的最高纪录，再次创下今年以来的最高纪录，新增确诊3万7014例。
+We sometimes forget that it’s truly a remarkable institution, a remarkable initiative bringing
+我们有时会忘记，这是一个真正了不起的机构，一个了不起的计划
 
-巴黎医院公共医疗委员会主席雷米·萨洛蒙（Rémi Salomon）表示，医院陷入如此的灾难状态让我们感到愤怒。可能10天，15天或3周后，我们将面临局面失控的风险。他说：“除了再次封城，我们别无选择。” 萨洛蒙表示，“现在我们到了必须采取所有”刹车”措施的紧急时刻，包括关闭学校”。他建议必须在复活节假期前关闭学校。
+now 30 countries covering almost a billion people on a voluntary basis,
+在自愿的基础上现在覆盖30个国家近十亿人口
 
-此前，巴黎地区的41名医生在报章发表联署文章，他们也警告医院可能要开始选择为哪些病人进行急救。医生们表示选择急救涉及到所有病人。
+and we come together around the shared values of democracy, freedom, openness and a rule
+我们走到一起以共同的民主、自由、开放
 
-法国政府周末宣布下周会有大量的疫苗抵达法国，预计有将近300万剂，4月底会达到400万剂，主要是用辉瑞和莫德纳疫苗。
+based international order, to make sure that countries can move forward peacefully.
+和基于规则的国际秩序的价值观，确保各个国家可以和平前进
 
-医生们表示疫苗接种是在中长期应对新冠疫情的手段，但目前法国所处的危急情况下，疫苗接种还是无法有效扭转局面，当前的防疫措施也不足以快速控制疫情。
+And I also think what is remarkable about it is NATO is really not defined by what
+我还认为，值得注意的是，北约并不由我们反对什么来定义
 
-点评：CCP病毒一波未落一波又起，肆虐全球已经超过一年，目前全世界感染人数1.27亿，死亡人数279万。除了CCP病毒的反复，目前世界很是让人眼花缭乱：苏伊士运河货船的搁浅，伊朗和中共25年合作协议的签订，朝鲜领导人对西方的言语威胁以及习近平和古巴领导人互致信函。其实不难看出这一系列动作的背后都是中共面对西方的经济封锁脱钩，军事压力以及病毒追责的疯狂的反应，另外，中共一边制造病毒，另一方面又利用不成熟的疫苗去蓝金黄一部分国家国家，可见，中共越是激烈和无底线的反应和动作，越加速它的灭亡。
+we are against, but by what we are for. That’s what’s bringing us together.
+而是由我们支持什么来定义，这就是我们走到一起的原因
 
-参考链接:
-[法国重症患者人数再创新高 医疗界警告 医院不堪负荷 将被迫”挑选病人”](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210328-%E6%B3%95%E5%9B%BD%E9%87%8D%E7%97%87%E6%82%A3%E8%80%85%E4%BA%BA%E6%95%B0%E5%86%8D%E5%88%9B%E6%96%B0%E9%AB%98-%E5%8C%BB%E7%96%97%E7%95%8C%E8%AD%A6%E5%91%8A-%E5%8C%BB%E9%99%A2%E4%B8%8D%E5%A0%AA%E8%B4%9F%E8%8D%B7-%E5%B0%86%E8%A2%AB%E8%BF%AB-%E6%8C%91%E9%80%89%E7%97%85%E4%BA%BA)
+But of course, these things we are for we will also stand up resolutely to protect and defend
+但是当然， 我们支持的这些东西，我们也将坚定的站起来保护和捍卫
 
-0
+when they are…they are under being challenged.
+当它们。。。它们正在遭受挑战
+
+* * *
+
+
+
+
+
+
+
+英听校：康州盘古农场 – Raul
+
+
+
+翻译：康州盘古农场 – Raul
+
+
+
+翻译终校：康州盘古农场 -Mike Li
+
+
+
+字幕+视频制作：康州盘古农场–天涯行
+
+
+
+审片**：**康州盘古农场–银龙
+
+
+
+发文：康州盘古农场–轰炸机
+
+
+
+
+
++2

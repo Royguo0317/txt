@@ -1,23 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：中共病毒疫苗在国内接种剂次超过1亿
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1036399/)
+## 【每日快讯】29/03/2021:纳瓦罗与川普同时接受福克斯采访时，福克斯第一次明确病毒来自中共生物武器实验室
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/1037042/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
+**制作:Cantonese工作室**
+**播报：  【Annie】 资料整理：【陆柒陆捌】  【 Annie喜马拉雅 】【 闪电】 海报制作：【Kayla】  【侬民】 视频制作：【文德】 发布:【星星】**
+摘要:
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/NF-29-5.jpg)
-
-据中新社报道，来自中共国国家卫健委的数据显示，截至昨天（27日），各地累计报告接种冠病疫苗1亿0241万7000剂次。中共国去年12月15日正式开展重点人群接种工作。国家卫健委方面早前披露，中共国正在按照重点人群、高危人群和其他人群依序推进的原则组织实施接种，稳步提高疫苗人群覆盖率。北京、湖北武汉、安徽合肥等地都已陆续启动60岁以上人群疫苗接种计划。
-
-评论：
-
-中共已经将接种中共疫苗作为政治任务，众多单位员工都被强制接种，所以中共疫苗接种人数才能在短时间迅速超过一亿人次。随着海外陆续曝光多起疫苗安全性问题，国内肯定已经发生无数起因疫苗导致的死亡或致残事件，只是这些事件都被中共压制了，中国老百姓再次成为中共的牺牲品。
-
-[援引原文](https://www.zaobao.com.sg/realtime/china/story20210328-1134793?utm_source=ZB_iPhone&amp;utm_medium=share)
-
-*本文作者：【孺子牛】
-審核校對：魯邦五世
-上傳排版：糖果兒*
-
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-398.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2-144.jpg)
+3
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-155.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/5-73.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/6-57.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/7-47.jpg)
 0

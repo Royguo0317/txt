@@ -1,27 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登暂未打算与金正恩会面
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1036311/)
+## 【每日快讯】28/03/2021:王毅与伊朗签署“一带一路”协议，涉及资金4千亿美元
+` GM132 每日快訊` [轉載自GNews](https://gnews.org/zh-hans/1036788/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+**制作:Cantonese工作室**
+**播报：【二丫】资料整理：【二丫】【文林】【郁金香】【安妮】 海报制作：【侬民】【Penny 】视频制作：【Ken】发布:【星星】**
+摘要:
 
-编辑上传   水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/N-15.jpg)
-日本共同社消息，白宫发言人珍·普萨基 (Jen Psaki)星期一指出，与朝鲜领导人金正恩的会晤目前不在美国总统拜登与平壤进行的外交努力计划之中。
-
-在朝鲜周四向日本海发射了两枚弹道导弹之后，普萨基在记者会上被问及“与”金正恩坐在一起是否是拜登所说的“某种形式的外交”的一部分， 普萨基表示，“这不是他（拜登）的意图。”
-
-朝鲜测试了一种新型的带有固体燃料发动机的“战术制导炮弹”。拜登告诉记者，朝鲜此举违反了联合国1718号决议。拜登表示，美国正在“与我们的伙伴和盟友磋商”，并警告朝鲜，“如果他们选择升级，“我们会做出相应的回应。”拜登强调，“我也准备进行某种形式的外交，但这必须以无核化的最终结果为条件。”
-
-美国国务卿布林肯对朝鲜“破坏稳定的弹道导弹发射”试验进行了谴责，并重申了美国的立场，即朝鲜的导弹发射违反了联合国安理会的多项决议。他还指出，美国及其在亚洲的两个重要盟友，日本和韩国将致力于“反对这些挑衅，推进朝鲜半岛的无核化”。
-
-“我们从平壤看到这些挑衅并没有动摇我们三个国家的意志。” 在访问首尔和东京期间，布林肯一再强调朝鲜无核化的重要性。布林肯强调三国有必要改善合作，共同消除朝鲜对该区域的威胁。
-
-美国驻联合国大使琳达·托马斯-格林菲尔德 (Linda Thomas-Greenfield)也出席了新闻发布会。她说，拜登政府正在寻求联合国可能采取的“额外行动”，以回应朝鲜最近的核试验。
-
-参考链接：
-
-[https://english.kyodonews.net/news/2021/03/8a5a2e4681a1-biden-does-not-plan-to-meet-n-korea-leader-kim-for-now-white-house.html](https://english.kyodonews.net/news/2021/03/8a5a2e4681a1-biden-does-not-plan-to-meet-n-korea-leader-kim-for-now-white-house.html)
-
+1.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/1-355.jpg)
+2.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/2-129.jpg)
+3.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-142.jpg)
+4.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/4-79.jpg)
+5.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/5-69.jpg)
+6.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/6-53.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/03/7-42.jpg)
 0
