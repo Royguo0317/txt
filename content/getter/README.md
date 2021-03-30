@@ -17,6 +17,11 @@
 **郭文贵MILES** `2021-02-21T15:56:09`
 ##
 
+[3月30号：好尊敬的战友们好。￼半小时内开始直播！](/content/getter/content/2021/03/6063217549339063d0614c76.md)
+
+**郭文贵MILES** `2021-03-30T13:02:45`
+##
+
 [3月29號：關於:Gcoion．GTV．配额和重建公司，股权分配．等可能会有改变．提前给大家吹吹风！希望所有的战友们．尽快的和农场核对所有的有关数据，尽快地将两...](/content/getter/content/2021/03/60621e3049339063d06120db.md)
 
 **郭文贵MILES** `2021-03-29T18:36:32`
@@ -155,10 +160,5 @@
 [史蒂文·莫西博士批中共对人民的残暴和阿拉斯加会谈   Dr. Steven Mosher slammed  the CCP for their cruelty ...](/content/getter/content/2021/03/605764a5d1608d609ea6a0e1.md)
 
 **郭文贵MILES** `2021-03-21T15:22:13`
-##
-
-[中共视人命如草芥  The CCP Has 'Absolute Disdain for Human Life'](/content/getter/content/2021/03/60576473d1608d609ea6a0cc.md)
-
-**郭文贵MILES** `2021-03-21T15:21:23`
 ##
 
