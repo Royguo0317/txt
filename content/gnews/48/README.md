@@ -1,25 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疫苗接种率欧盟第一的匈牙利无法减缓疫情激增
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1035111/)
+## 快讯！美军成立新特遣队用于对抗中共信息战
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1035057/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+收集：JAY；编撰：WLQF
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/截屏2021-03-29-下午10.11.13.png)图片来自网络
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+美国特种作战司令部（United States Special Operations Command，缩写作USSOCOM或SOCOM）负责人周四向参议院军事委员会表示，**该司令部启动了一支新的特遣部队，专注于在太平洋地区对抗中国的信息行动。**
 
-**西班牙2021年3月29日电/西喜社——**据美联社3月29日报道，匈牙利接种疫苗的人口比欧盟任何其他国家都多，但在人均中共病毒死亡人数方面，匈牙利仍然是世界上最糟糕的国家之一。
+根据C4ISRNET的一份报告，这个被称为 “联合特遣部队印度-太平洋小组 “的特遣部队将专注于 “太平洋战区的信息和影响行动”。SOCOM司令小理查德·道格拉斯·克拉克说，特遣部队将与该地区 “志同道合的伙伴 “开展合作。
 
-根据欧洲疾病预防控制中心的数据，这个中欧国家至少为近22%的人口接种了第一剂疫苗。欧盟的平均水平是12.3%。
+“我们实际上能抑制中共不断播撒的一些虚假信息，”克拉克说。目前还不清楚这支新的特遣部队具体会做什么，但C4ISRNET的报告指出，进攻性网络行动可能是主要开展活动的一部分。
 
-显然，高比例接种疫苗无法减缓疫情的激增，更何况匈牙利从中共国和俄罗斯也购买了大量疫苗。
+克拉克将军还谈到了在SOCOM的特种作战部队下开展的信息战行动，特别是一个被称为军事信息支持行动专业人员的小组，他们部署在世界各地的大使馆。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/微信图片_20210329163814.png)
+新闻来源：[ZERO HEDGE](https://www.zerohedge.com/geopolitical/us-military-launches-task-force-fight-information-war-against-china)
 
-**新闻来源：[美联社](https://apnews.com/article/europe-germany-coronavirus-pandemic-portugal-a305825d96991f19238b1c7bc09c2c72)**
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募-7.jpeg)
-
-+1
++2

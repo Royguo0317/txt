@@ -1,21 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 快讯！美军成立新特遣队用于对抗中共信息战
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1035057/)
+## 《文贵说》| 图片连载（四十八）
+` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/1033984/)
 
-收集：JAY；编撰：WLQF
+![]()![](https://gnews.org/wp-content/uploads/2021/03/002-1-2.jpg)
+**说“咱现在灭共”，你都是我们战友。而且我深信党员中90%多都是好的。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/截屏2021-03-29-下午10.11.13.png)图片来自网络
+**—— 郭文贵先生 2020年04月22日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/001-12.jpg)
+**我们现在面对最大的敌人、最大的病毒、威胁全人类所有的，是共产党存在70年和病毒残害世界这么多人，美国上百万！只有一个核心原因，就是没有人说出真话。**
 
-美国特种作战司令部（United States Special Operations Command，缩写作USSOCOM或SOCOM）负责人周四向参议院军事委员会表示，**该司令部启动了一支新的特遣部队，专注于在太平洋地区对抗中国的信息行动。**
+**—— 郭文贵先生 2020年4月22日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/001-1-2.jpg)
+**所有造成今天疫情的灾难，原因很简单，就是没有人去戳穿真相，也没有戳穿真相的渠道，就是一个真正的媒体，负责任的媒体！**
 
-根据C4ISRNET的一份报告，这个被称为 “联合特遣部队印度-太平洋小组 “的特遣部队将专注于 “太平洋战区的信息和影响行动”。SOCOM司令小理查德·道格拉斯·克拉克说，特遣部队将与该地区 “志同道合的伙伴 “开展合作。
+**—— 郭文贵先生 2020年4月22日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/002-3-1.jpg)
+**我们在疫情当中、爆料革命当中，我们靠的不是预测，是绝对的情报，绝对的情报！**
 
-“我们实际上能抑制中共不断播撒的一些虚假信息，”克拉克说。目前还不清楚这支新的特遣部队具体会做什么，但C4ISRNET的报告指出，进攻性网络行动可能是主要开展活动的一部分。
+**—— 郭文贵先生 2020年4月22日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/006-2.jpg)
+**郭文贵的一生、就一个梦想、就一个目标、必须达成的任务、——灭掉你共产党！**
 
-克拉克将军还谈到了在SOCOM的特种作战部队下开展的信息战行动，特别是一个被称为军事信息支持行动专业人员的小组，他们部署在世界各地的大使馆。
+**—— 郭文贵先生 2020年4月19日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/004-1-2.jpg)
+**历史只会记住一个在这个时代诞生的伟大的、人类上的正道主义，这个是谁也挡不住的。**
 
-新闻来源：[ZERO HEDGE](https://www.zerohedge.com/geopolitical/us-military-launches-task-force-fight-information-war-against-china)
+**—— 郭文贵先生 2020年4月19日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/005-2.jpg)
+**人与人之间没有道德的红线，这就是心霾！**
+
+**—— 郭文贵先生 2020年01日29日**
+
+
+
+- [***更多精美海报请点击G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4)
+
+
+
 
 +2
