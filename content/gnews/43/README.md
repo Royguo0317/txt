@@ -1,31 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 巴基斯坦在首都伊斯兰堡等高危地区实施部分封锁
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1035122/)
+## 快讯！美军成立新特遣队用于对抗中共信息战
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1035057/)
 
-- 编辑：Victor Torres
-- 发稿：Ranting
+收集：JAY；编撰：WLQF
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/截屏2021-03-29-下午10.11.13.png)图片来自网络
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+美国特种作战司令部（United States Special Operations Command，缩写作USSOCOM或SOCOM）负责人周四向参议院军事委员会表示，**该司令部启动了一支新的特遣部队，专注于在太平洋地区对抗中国的信息行动。**
 
-**西班牙2021年3月29日电/西喜社——**据美联社3月29日报道，在中共病毒感染的阳性率跃升至11%以上后，巴基斯坦当局周一又在首都伊斯兰堡等几个高危地区实施了部分封锁。
+根据C4ISRNET的一份报告，这个被称为 “联合特遣部队印度-太平洋小组 “的特遣部队将专注于 “太平洋战区的信息和影响行动”。SOCOM司令小理查德·道格拉斯·克拉克说，特遣部队将与该地区 “志同道合的伙伴 “开展合作。
 
-巴基斯坦正面临着中共病毒感染的又一次激增，官员们说，这比去年的疫情还要严重，当时巴基斯坦不得不实行全国范围的封锁。
+“我们实际上能抑制中共不断播撒的一些虚假信息，”克拉克说。目前还不清楚这支新的特遣部队具体会做什么，但C4ISRNET的报告指出，进攻性网络行动可能是主要开展活动的一部分。
 
-周一，东部旁遮普省当局还宣布从4月1日起在高风险城市实施为期两周的部分封锁，旨在遏制病毒的传播。
+克拉克将军还谈到了在SOCOM的特种作战部队下开展的信息战行动，特别是一个被称为军事信息支持行动专业人员的小组，他们部署在世界各地的大使馆。
 
-到目前为止，巴基斯坦政府避免了全国范围内的封锁，以使该国陷入困境的经济免受更多损害。
+新闻来源：[ZERO HEDGE](https://www.zerohedge.com/geopolitical/us-military-launches-task-force-fight-information-war-against-china)
 
-周一，巴基斯坦报告说，过去24小时内又有41人死亡，4525例中共病毒病例。
-
-自去年以来，巴基斯坦共报告659116例病例，14256人死亡。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/517bb688-2369-476d-b986-ab505e42b568.jpg)
-
-**新闻来源：[美联社](https://apnews.com/article/europe-germany-coronavirus-pandemic-portugal-a305825d96991f19238b1c7bc09c2c72)**
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募-7.jpeg)
-
-0
++2
