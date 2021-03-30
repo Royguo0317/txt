@@ -1,65 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 辉瑞公司首席执行官推迟了以色列的访问，因为他没有接种疫苗
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1036044/)
+## 苏伊士运河已经重新开放-但运输链可能需要数周时间才能恢复正常
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1037087/)
 
-内容：
+- 翻译：里奇
+- 制图：七白石
 
-Meg Tirrell (CNBC reporter)
-梅格·蒂雷尔 （记者）
 
-Well and a question for you
-好吧，还有一个问题要问你
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-I’ve heard you have not yet had uh your shot
-我听说您还没有注射疫苗
+**西班牙2021年3月30日电/西喜社——**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/31317d7b-2bd7-4a22-83f4-1205a0fcfc4d.jpg)
+管理运河的埃及当局宣布, 苏伊士运河上的交通已经恢复。
 
-When do you plan to get it?
-您打算什么时候注射呢？
+400米长的“ Ever Given”号货轮被困在苏伊士运河近一个星期，因而阻停了其他船只通过此重要的货运路线航行。
 
-Pfizer CEO Albert Bourla
-辉瑞公司首席执行官阿尔伯特·波拉（Albert Bourla）
+目前至少有369艘船正在等待穿越运河航行。苏伊士运河管理局负责人向埃及电视台确认，估计目前在运河排队的所有船只驶离运河大约需要三天时间。
 
-Sooner. I can, I will
-很快。我能, 我会的
+航运业人士雅各布·克拉森认为，现在重新开放了通行苏伊士运河的交通令人欣慰，但整个运输链要恢复到正常状态还需要几周的时间。航运业占据了世界贸易的绝大部分，这样的事故发生就如同软木塞有效地插入海上最重要的捷径之一一样，它将产生重大后果。
 
-The only sensitivity here uh Meg is that uh
-梅格，在这里唯一的敏感的是
+苏伊士运河连接地中海和红海，是亚洲和欧洲之间最短的路线。它长190公里，深24米，宽205米，每天可通行数十艘巨大的集装箱船。
 
-I don’t want to to have an example
-我不想让大家认为
+世界上约有12％的货物是通过此运河运输的。据苏伊士运河管理局称，2020年，经通此运河的货物总量为11.7亿吨。
 
-that I’m cutting the line
-我在加塞
+据英国广播公司（BBC）报道，在巴拿马注册的“ Ever Given”号由中国驶往荷兰的鹿特丹，搁浅后正在向北航行。
 
-That I am 59 years old in good health
-我身体健康，今年59岁
+**简评:**
 
-I’m not working in the front line
-我不在（医疗）的前线工作
+**据爆料革命发起人郭文贵先生今日披露，霍兹木海峡事件发生之时中共国外交部长王毅带着中共国最高领导人的亲笔信出访中东某些国家，这起大船搁浅在重要交通要塞事故100%是中共策划，意图造成石油价格暴涨，对冠状病毒疫情后的西方经济致以重创乃至致命的严重后果。世界乱象无不有中共黑手染指，中共意图通过扰乱世界达到一统天下的野心昭然若揭。**
 
-So my type is not recommended to get vaccination out
-所以像我这样的人群，是不推荐打疫苗的
+编辑：蚂蚁兄弟；校对：阿伯塔；发稿:神奇四侠
 
-so that’s one question there is
-所以这是一个问题
-
-I am sorry, I am allergy to bullshit
-对不起，我对鬼扯过敏
-
-* * *
-
-英听校：康州盘古农场 – Layka
-
-翻译：康州盘古农场 – Layka
-
-翻译终校：康州盘古农场 -Mike Li
-
-字幕+视频制作：康州盘古农场-天涯行
-
-审片**：**康州盘古农场-银龙
-
-发文：康州盘古农场-轰炸机
-
-0
+新闻来源：**[日德兰邮报](https://jyllands-posten.dk/international/ECE12867847/suezkanalen-er-genaabnet-men-der-kan-gaa-uger-foer-transportkaeden-er-normal/)**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/招募-6.jpeg)
++1
