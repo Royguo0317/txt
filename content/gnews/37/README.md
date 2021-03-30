@@ -1,25 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 52年来奥斯卡颁奖礼首次不在香港播出
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1036233/)
+## 美暂停与缅甸所有贸易直至民选政府回归
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1036302/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
 编辑上传   水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/H-10.jpg)
-布赖特巴特新闻(Breitbart News)报道，香港当地广播公司周一证实，奥斯卡颁奖典礼将不会在香港播出，这是半个多世纪以来的第一次，好莱坞的最高奖项是否会在中共大陆播出仍有疑问。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M-20-2.jpg)
+路透社报道，美国贸易代表戴琪周一表示，根据2013年的贸易和投资协定，美国将立即暂停与缅甸的所有接触，直到民主选举产生的政府回归。
 
-自1969年以来，香港免费电视TVB每年都会在其英语频道播出颁奖典礼。这个惯例今年将被打破。中共中宣部已下令其国有媒体淡化该奖项，不要对颁奖典礼进行现场直播。TVB发言人称:“我们决定今年不参加奥斯卡颁奖典礼纯粹是出于商业考虑。”
+上周六是自2月1日军事政变以来缅甸发生的最血腥的抗议活动，包括儿童在内的114人死于游行镇压。周一，数千人再次走上街头反对军政府的政变，又有5人丧生。缅甸政治动荡中在军政府血腥镇压下已经超过445人丧生。
 
-据悉，此次获得提名的影片清单中有关于香港民主抗议活动的纪录片《不分裂》，以及华裔美国导演赵婷的《游牧民族》。
+戴琪在一份声明中说，缅甸安全部队杀害和平抗议者、学生、工人、劳工领袖和儿童“震惊了国际社会的良知”。她指出:“这些行动直接攻击了缅甸向民主的过渡，以及缅甸人民为实现和平与繁荣的未来所做的努力。”
 
-中共国媒体纷纷发表文章批评香港民主抗议活动的纪录片以掩饰中共在香港的暴行。而民族主义者则在网上抨击赵婷多年前发表的被认为是批评中共的言论。赵婷2013年接受《Filmmaker》杂志访问时曾提到，她年少时生活的中共国是”一个充满谎言的地方”。
+美国商务部早在3月初便对缅甸军方发出警告，商务部当时的新闻在新闻稿中警告称，“商务部正在评估军方行动所要求的潜在额外措施。”“美国政府将继续追究政变肇事者的责任。”商务部对与缅甸国防部和内政部以及军方密切相关的两家公司实施出口管制。同时还对某些用于军事用途的敏感物品实行贸易限制。
 
-此前曾播出过奥斯卡颁奖礼的中共中央电视台(CCTV)尚未确认今年是否会播出奥斯卡颁奖礼。在中共治下，所有媒体都受到严格审查。在“一国两制”的模式下，半自治的香港保持了更多的自由已经成为历史。现在的香港已被中共扼杀了民主自由，新闻自由和选举自由。香港已经“被退化”成为类似中共治下的内地城市。
+美国国务院发言人内德·普赖斯(Ned Price) 曾在新闻发布会上说，“最近的暴力升级表明军政府完全无视自己人民的事实。” 普赖斯呼吁缅甸政权实行“最大限度的克制”，并警告缅甸军方说，美国将采取进一步措施追究缅甸政府拘捕记者和暴力镇压抗议者的责任。
+
+英国和加拿大对缅甸局势表示深切关注并对推翻缅甸民选政府的缅甸军官进行了制裁， 印度，日本，澳大利亚四方集团在首次外交部长会议中也提出了强烈反对缅甸军方武力破坏国家政权，要求缅甸快速恢复民主的呼吁。
 
 参考链接：
 
-[https://www.breitbart.com/entertainment/2021/03/29/communist-crackdown-oscars-wont-show-in-hong-kong-for-first-time-since-1969/](https://www.breitbart.com/entertainment/2021/03/29/communist-crackdown-oscars-wont-show-in-hong-kong-for-first-time-since-1969/)
+[https://cn.reuters.com/article/us-myanmar-politics-usa-trade/ustr-suspends-all-trade-engagement-with-myanmar-until-elected-government-returns-idUSKBN2BL1XH](https://cn.reuters.com/article/us-myanmar-politics-usa-trade/ustr-suspends-all-trade-engagement-with-myanmar-until-elected-government-returns-idUSKBN2BL1XH)
 
 0

@@ -1,43 +1,21 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点推荐】中央巡视组进驻 腾讯将步阿里巴巴后尘？
-` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/1036496/)
+## 《路德社》精选新闻快讯：中国首个区块链特色司法鉴定机构成立
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1035936/)
 
-新闻来源： Epoch Times 大纪元时报 宋碧龙
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-推荐人： 纽约香草山 B· Star
+![]()![](https://gnews.org/wp-content/uploads/2021/03/033001.jpg)
 
-推荐者语：
+3月28日联合早报：中共国首个以区块链技术为特色的司法鉴定机构28日成立，该机构将加速区块链在能源数字化治理领域的创新实践，探索基于区块链的法律科技服务新模式。
 
-《反垄断法》将会让腾讯成为下一个阿里巴巴，中共国的私企会以各种理由或被国有化，或被打击，越来越没有生存空间。
+评论：中共最近一段时间快速推进区块链相关政策的实行，就是为了将数字人民币快速推上市场。中共的想法是，当中共国经济崩溃时，中共就可以通过数字货币完全捏住中国老百姓的钱包，控制通胀，压制反对势力，继续执政，用心极其险恶。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/190321090152100311-600x400-1.jpg)
+[援引原文](https://www.zaobao.com/realtime/china/story20210328-1134721?utm_source=ZB_iPhone&amp;utm_medium=share)
 
-* * *
-
-* * *
-
-原文摘录：
-
-大纪元2021年03月30日讯，中共国家市场监督管理总局近期正在对腾讯进行反垄断调查。有消息人士披露，中央巡视组人员已在上周开始进驻腾讯展开调研工作，并就腾讯一些商业行为与腾讯高层进行对话。
-
-完整内容，请点击原文链接：
-
-[https://www.epochtimes.com/gb/21/3/29/n12844049.htm](https://www.epochtimes.com/gb/21/3/29/n12844049.htm)
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-3.jpg)
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-
+*本文作者：喜马拉雅摄影师
+审核校对：鲁邦五世
+上传排版：糖果儿*
 
 +1

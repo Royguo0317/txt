@@ -1,77 +1,93 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 科学，政治和新冠病毒：真理能赢吗？（1/3）
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1036169/)
+## WHO与CCP联合病毒报告
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1036053/)
 
-**演讲者：**斯科特 W. 阿特拉斯（**Scott W. Atlas** ）**胡佛研究所**
+撰稿人：**西班牙巴塞罗那喜悦农场** wenwu
+素材：**西班牙巴塞罗那喜悦农场** Peacelv
 
-**翻译：杰西拉亚**
+据2021年3月29日《纽约邮报》史蒂文·纳尔逊的**`报道`**，[**`美联社周一首次报道`**](https://nypost.com/2021/03/29/who-report-says-animals-were-likely-source-of-covid-19/)了世卫组织和中共国泄露的联合报告草案，称中共病毒“极不可能”从实验室逃脱。我们知道自2020年3月以来，中共病毒已经感染了3000多万美国人，近55万人死亡。这都由于中共极力掩盖武汉疫情真相和一直撒谎所造成，美国两党和科学家们表示都是知晓的。
 
-\*阿特拉斯的演讲之英文原稿经希尔斯代尔学院出版刊物 Imprimis全文刊登，获授权转载於此。链接：[**https://imprimis.hillsdale.edu/science-politics-covid-will-truth-prevail/**](https://imprimis.hillsdale.edu/science-politics-covid-will-truth-prevail/)
-
-
-
-*以下文字改编自2021年2月18日在凤凰城的希尔斯代尔学院国家领导力研讨会的演讲。*
-
-![新冠病毒大流行毫无疑问是一场悲剧。它暴露了美国错综复杂的问题，这些问题已然威胁了我们美国人习以为常的自由与秩序的基本原则。]()![新冠病毒大流行毫无疑问是一场悲剧。它暴露了美国错综复杂的问题，这些问题已然威胁了我们美国人习以为常的自由与秩序的基本原则。](https://gnews.org/wp-content/uploads/2021/03/03-28-2021Scott-Atlas-Hoover-Institute.png)**Scott W. Atlas** 是斯坦福大学胡佛研究所罗伯特·韦森高级研究员。他曾担任斯坦福大学医疗中心教授并任职神经放射学主任达14年。他从伊利诺伊大学香槟分校获得理学学士，从芝加哥大学医学院获得医学博士学位。他是诺贝尔医学和生理学奖提名委员会的特别成员，曾在2008年，2012年和2016年担任多位总统候选人的高级医疗保健顾问。
-
-2020年7月至2020年12月间，他担任特朗普总统特别顾问，是白宫冠状病毒特别工作组成员。他现在是第五版的《大脑和脊柱磁共振成像》的编辑，著有多本著作，包括《恢复优质医疗保健：以较低成本进行全面改革的六点计划》。
-
-
-> 新冠病毒大流行毫无疑问是一场悲剧。它暴露了美国错综复杂的问题，这些问题已然威胁了我们美国人习以为常的自由与秩序的基本原则。
-
-
-**首先，我对自去年三月以来政府前所未有地行使权力感到震惊 ， 像单方面颁布法令，勒令关闭企业，教堂和学校；限制个人活动，进行强制以及无限期地暂停基本自由。**
-
-**其次，美国人民对这种破坏，武断，完全罔顾科学的规则，限制和命令的默许，我至今感到震惊。**
-
-大流行亦将我们早已认知且容忍多年的东西提上日程：如媒体的偏见，校园学术自由的衰落，科技巨头的强控，以及科学政治化… 现在更为明目张胆。最后，美国人追寻和陈述他们信以为是的自由受到了威胁。
-
-首先，和所有人一样，我承认新冠病毒大流行及其管理产生的后果是巨大的。超过50万美国人因此病毒而死，还陆续有来。即使近一年过后，大流行仍然置我们的国家于瘫痪之地。尽管我们已经竭尽所能，但不可置否，我们未能阻止案件升级，也未能阻碍住院和死亡人数。
-
-但是，尚有一个未得到承认的现实就是，几乎不无例外，美国每个州和大城市都实施历时数月的严格限制令，包括关闭商业，叫停学校当面授课，限制出行，宵禁，隔离，制止团体聚会及实施自去年夏天起就必须戴面罩的规定。
-
-尽管事与愿违，但从对美国人的社交追踪以及从Gullop，YouGov，COVID-19财团和疾控与预防中心（CDC）所获得的数据皆显示，流动量显著减少，而且戴口罩人数的百分比自去年夏天后期以来持续高企，与西欧所见程度相似，亦已达到亚洲水平。
-
-### **结果如何呢？**
-
-今时今日，那些名正言顺的政策制定学究们，应该重新审视那些严重损害了美国儿童和家庭但又对挽救老人回天乏术的政策。
-
-大量的研究，包括一项来自斯坦福大学传染病科学家和流行病学家贝纳维德，欧，巴塔查里亚和洛阿尼德斯的研究表明，几乎每个州所采用的非常措施，其缓解作用是很小的，而且通常有害。**拜登总统本人在1月22日的演讲中向美国人公开承认这些措施好极有限：“我们对改变未来几个月的大流行趋势已经无能为力。“ 但是，令人称奇是，许多人居然因为禁闭和强制令的失败而指责那些要求大规模实施禁闭和采取强制令的人。**
-
-禁闭政策除了对于限制病毒的作用有限之外，还十分有害。停止面对面授课对孩子所造成的危害是巨大的，这些危害包括导致学生学业不良，辍学，社交孤立和产生自杀观头。尤其对低收入的人群而言，情况更是有过之无不及。
-
-最近的一项研究证实，由于错过三个月的筛查期，多达78％的癌症从未被检出。由此类推到整个国家，过去9个月就有75万至100万的新癌症病例是漏检的。除此之外，还有因为错过关键手术，拖延的儿童病情报告，心脏病发，中风，太害怕去医院就诊，以及其他情况所造成的医疗灾难皆有案可查。
-
-据CDC报告，除了医院就医人数外，抑郁症患者增加了4倍，焦虑症状患者增加了3倍，有自杀倾向者增加了一倍，尤其是在禁闭的头几个月后的年轻人，这与美国医学协会关于嗑药过量者和自杀人数的报告遥相呼应。
-
-鉴于与世隔绝和失业，家庭和儿童虐待案例急剧增加。由于许多学校已关闭，成千上万的虐待案件得不到报备，因为通常关注到虐待事件的地方往往是学校。
-
-最后，根据国家经济研究局最新的一项研究，由于关闭而造成的失业冲击将在未来15年内使死亡率提高3％，预期寿命降低0.5％，对非裔美国人和妇女的影响尤其严重。这个可以解读为研究所指“惊人的” 89万额外美国人的死亡人数。
-
-**目前评估对于封城与强制隔离所造成的整体危害，仍为时尚早，因为其影响将会持续数十年。** 也许这就是为什么前期大流行应对分析报告中建议不要使用禁闭措施的原因，即使对于死亡率高得多的疾病也是如此。
-
-为了确定最佳的发展方向，政策制定者们是否应该客观地考虑对迄今为止病毒和反病毒政策所造成影响？ 它彰显了卫生政策的举足轻重。这是我自己的特定领域，与流行病学家和基础科学家相比，需要一个更开阔的视野。 就新冠病而言，它需要考虑到是，对个人的封闭和严格地限制，尤其对工薪阶层和穷人而言，其造成的危害非同小可，乃至致命。
-
-**下文待续，系列文章 （1/3）**
+其中，世卫将组成一个国际专家团前往中共国，以调查病毒起源，所提交专家名单给中共国当局考虑（consideration）。WHO调查团队和中共是有利益冲突，如同“切尔诺贝利”事件在中共国重演。
 
 
 
-【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+> 王林发出来洗地了，说动物活检样本阳性，甚至成功分离出了病毒。
+> 有这么“神奇”的结果，为啥早不公布呢？为啥跟之前公开的信息都不一致呢？
+> CCP撒谎屡屡不成，最后还是回到寻找动物宿主的老把戏。[https://t.co/lM4iraioQi](https://t.co/lM4iraioQi) [pic.twitter.com/mYexodlRS7](https://t.co/mYexodlRS7)
+> — 德意志之鹰 (@dezying) [March 29, 2021](https://twitter.com/dezying/status/1376665620285112325?ref_src=twsrc%5Etfw)
+
+
+**`1.高福: 武汉华南海鲜市场或为受害单位 动物样本中未提取到病毒`**
+**`2.WHO溯源专家：华南海鲜市场内检测的动物样本未发现阳性`** 
+**`3.WHO最后还是回到寻找动物宿主的老把戏。`**
+3月29日爆料革命战友“德意志之鹰”在推特上发布**`推文`**：
+***王林发出来洗地了，说动物活检样本阳性，甚至成功分离出了病毒。 有这么“神奇”的结果，为啥早不公布呢？为啥跟之前公开的信息都不一致呢？ CCP撒谎屡屡不成，最后还是回到寻找动物宿主的老把戏。***
+
+值得注意的是，明日WHO和中共国的中共病毒溯源联合报告将会公开。杰里·邓利维在推特上就此发布了一篇推文，附**`新闻链接`**。该推文如下：
 
 
 
-【**责任编辑**】：bingo 旧金山文宣组
+> NEW: Biden Admin announced the WHO-China COVID-19 report is in the hands of the CDC, FDA, NIH, HHS, USDA, DHS, & USAID and said 17 “experts” would review it, with Psaki noting the U.S. has “ongoing concerns” about how the study was conducted.[@DCExaminer](https://twitter.com/dcexaminer?ref_src=twsrc%5Etfw)[https://t.co/ecUmKyNjCe](https://t.co/ecUmKyNjCe)
+> — Jerry Dunleavy (@JerryDunleavy) [March 29, 2021](https://twitter.com/JerryDunleavy/status/1376666630470656011?ref_src=twsrc%5Etfw)
 
-## **欢迎战友加入旧金山金喜农场**
 
-[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[** **](https://discord.gg/QQzQ79grEA)
+**`最新消息：拜登政府宣布世卫组织和中共国的中共病毒联合报告掌握在疾控中心、美国食品药品监督管理局、美国国立卫生研究院、美国卫生与公众服务部、美国农业部、国土安全部和美国国际开发署手中，并表示17名“专家”将对其进行审查该报告，普萨基指出，美国对这项研究的如何进行“持续关注”`**
+原文翻译
 
-[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)[** **](https://twitter.com/sf_himalaya)
+**白宫宣布对世卫组织和中共国中共病毒起源联合报告进行“专家”审查**
 
-[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
+**新闻来源**：《华盛顿考察员》｜**作者**：司法部记者杰里·邓利维｜**发布时间**：2021年3月29日
 
-[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
+拜登政府宣布，来自一系列联邦机构和科学领域的“专家”将审查有争议的[世卫组织-中共国](https://www.washingtonexaminer.com/news/who-investigator-admits-it-took-chinas-word-on-wuhan-lab-leak)关于中共病毒起源联合[的报告](https://www.washingtonexaminer.com/news/who-investigator-admits-it-took-chinas-word-on-wuhan-lab-leak)，拜登团队继续表达对研究如何进行的“持续关注”。
 
-0
+川普和拜登官员表示，中共政府努力[阻挠](https://www.washingtonexaminer.com/news/biden-administration-world-health-organization-report-china-coronavirus)对病毒起源[的调查](https://www.washingtonexaminer.com/news/biden-administration-world-health-organization-report-china-coronavirus)，该病毒已导致全球278万人死亡，两国政府都对世卫组织与[中国](https://www.washingtonexaminer.com/tag/china?utm_campaign=autolink&amp;utm_source=internal&amp;utm_medium=autolink)联合研究在2021年初进行的方式表示怀疑。
+
+拜登新闻秘书简[·普萨基](https://www.washingtonexaminer.com/tag/jen-psaki?utm_campaign=autolink&amp;utm_source=internal&amp;utm_medium=autolink)周一[表示](https://www.c-span.org/video/?510366-1/white-house-press-secretary-holds-briefing&amp;live&amp;vod)，封锁报告在“美国政府专家手中”。即疾病控制和预防中心、食品药品监督管理局、国家卫生研究院、卫生与公众服务部、农业部、国土安全部和美国国际开发署。
+
+普萨基说：“17名专家，该领域的长期领导者，包括流行病学、公共卫生、临床医学、兽医、传染病、法律、粮食安全、生物安全、生物安保——我们在政府中有很多专家——将集中而迅速地审查这份报告，我们现在有一些最优秀的政府人员专注于审查该报告。”
+
+普萨基补充说：“我们还与世界各地的合作伙伴和盟友密切沟通，以分享我们持续的关注——当然，我们过去表示过这一点.一旦这些人完成审查，我们对报告本身的过程和科学分析…..我们很清楚，我们的重点是进行独立、技术上可靠的调查，一旦对此审查完毕，我们将评估下一步的步骤。”
+
+包括*美联社*在内的多家媒体周一获得了世卫组织与中共国联合研究的报告草稿，[据报道](https://apnews.com/article/who-report-animals-source-covid-19-coronavirus-8a839c179c330c56fa46a763b7286a7f)，该研究得出结论，武汉实验室的泄漏“极不可能”。报告称，从蝙蝠跳到另一只动物到人类的可能性最大，该媒体表示，世卫组织团队建议对每个领域进行更多研究，否决病毒实验室泄漏假说。
+
+在当天早些时候的[新闻发布会上](https://www.c-span.org/video/?510367-1/white-house-covid-19-response-team-holds-briefing&amp;live)，白宫医疗顾问**安东尼·福奇博士**、疾控中心主任**罗谢尔·瓦伦斯基**和白宫应对新冠病毒高级顾问**安迪·斯拉维特**都表示，在报告结论表示是否有信心之前，他们想先审查该报告。
+
+福奇说：“我想先看看那份报告，我还想问一下，这个群体中的人在多大程度上可以直接访问他们需要确定的数据。”“一旦我得到这些信息，我将能够更充分地回答我是否信任它。”
+
+前美国总统[唐纳德·川普](https://www.washingtonexaminer.com/tag/donald-trump?utm_campaign=autolink&amp;utm_source=internal&amp;utm_medium=autolink)领导下的疾病控制和预防中心主任罗伯特·雷德菲尔德博士[表示](https://www.washingtonexaminer.com/news/trump-cdc-director-redfield-covid-came-from-wuhan-lab)，[中共病毒可能源于](https://www.washingtonexaminer.com/news/pompeo-casts-doubt-who-china-covid-origins-inquiry)武汉实验室的意外逃逸，并表示这是在武汉实验室功能增强研究后发生的。
+
+***我认为，我仍然认为武汉这种病理学最有可能的病因来自实验室。雷德菲尔德上周在接受[美国有线电视新闻网](https://www.washingtonexaminer.com/tag/cnn?utm_campaign=autolink&amp;utm_source=internal&amp;utm_medium=autolink)采访时表示，“在实验室里研究呼吸道病原体感染实验室工作人员的情况并不罕见。”***
+
+生态健康联盟的领导人[彼得·达扎克](https://www.washingtonexaminer.com/news/who-coronavirus-investigator-wuhan-lab-biden)（[Peter Daszak](https://www.washingtonexaminer.com/news/who-coronavirus-investigator-wuhan-lab-biden)）为中国冠状病毒应对措施辩护，此前[批评](https://www.washingtonexaminer.com/news/who-origins-investigator-defends-wuhan-lab-blames-lack-access-anti-china-political-rhetoric)拜登政府对世卫组织-中国的报告持怀疑态度。他在周日的*60分钟*[露面](https://www.cbsnews.com/news/covid-19-wuhan-origins-60-minutes-2021-03-28/)中驳回了实验室泄漏理论，并承认调查团队基本上听从了中国实验室工作人员的话，否认冠状病毒从那里逃脱的。
+
+***武汉实验室研究人员“进行了涉及RaTG13的实验，这是WIV在2020年1月确定为最接近SARS-CoV-2的样本（96.2%相似）的蝙蝠冠状病毒”，并[称](https://www.washingtonexaminer.com/news/biden-team-gives-nod-trump-state-department-fact-sheet-wuhan-lab)1月中旬发布的一份[新闻稿称](https://www.washingtonexaminer.com/policy/pompeo-us-wuhan-lab-staff-caught-covid-19-before-pandemic)，该实验室“有进行‘功能增强’研究以设计嵌合病毒的公开记录。”***
+
+国务院概况简报写道：“美国政府有理由相信，在2019年秋季，在确诊首例疫情爆发之前，WIV内部的几位研究人员生病了，症状与中共病毒和常见季节性疾病一致。”该书声称，武汉实验室“至少自2017年以来一直代表中国军方进行了分类研究，包括实验室动物实验。”
+
+前川普官员，包括副国家安全顾问马特·波廷格、前国务卿迈克·蓬佩奥和前国家情报总监约翰·拉特克利夫，都指出了[间接证据](https://www.washingtonexaminer.com/news/pompeo-casts-doubt-who-china-covid-origins-inquiry)，中共病毒可能起源于武汉实验室。
+
+周末，世卫组织总干事谭德塞说：“所有假设都摆在桌面上，需要根据我迄今为止所看到的进行全面和进一步的研究。”他周一表示，该报告将于周二与成员国分享，届时世卫组织调查小组将举行简报会。
+
+国务卿安东尼·布林肯周日在[有线电视新闻网](https://www.washingtonexaminer.com/tag/cnn?utm_campaign=autolink&amp;utm_source=internal&amp;utm_medium=autolink)露面时对该报告[表示怀疑](https://www.youtube.com/watch?v=E9qoS2YIU7k)[。](https://www.washingtonexaminer.com/tag/cnn?utm_campaign=autolink&amp;utm_source=internal&amp;utm_medium=autolink)
+
+***布林肯说：“世界卫生组织不久将发布一份报告——我们对该报告的方法和流程感到真正担忧，包括北京政府显然帮助编写了该报告的事实——但让我们看看该报告的结果。”***
+
+*中国外交部发言人赵立坚周一表示 ， “ 我们绝不接受美方在疫情问题上的无端指责和肆意诋毁 。 ”*
+
+中共国撒谎人类死亡。在中共病毒问题上，从一开始在武汉疫情对世界的撒谎，到现在中共疫苗。而最惨的就是相信中共国谎言的人和中共国的老百姓，闫丽梦科学家曾警告过，中共国从来没有成功研发过一个疫苗，不要相信他们。
+
+爆料革命战友相信，灭共才是走出中共疫情下那令人不安的经济阴霾的阳关大道。
+
+
+
+> Don't trust the Chinese Communist Party's coronavirus vaccine
+> 那新冠疫苗到底能保护多长时间？还在研究过程中间。要打中共疫苗应该是“自求多福”！[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#LimengYan](https://twitter.com/hashtag/LimengYan?src=hash&amp;ref_src=twsrc%5Etfw) [@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#闫丽梦](https://twitter.com/hashtag/%E9%97%AB%E4%B8%BD%E6%A2%A6?src=hash&amp;ref_src=twsrc%5Etfw) [#ccpvirus](https://twitter.com/hashtag/ccpvirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/YJfkOCPEQl](https://t.co/YJfkOCPEQl)
+> — 文扬四海 Covid-19=CCP Virus (@wenyangsihai) [March 29, 2021](https://twitter.com/wenyangsihai/status/1376533181910843397?ref_src=twsrc%5Etfw)
+
+
+**`Don't trust the Chinese Communist Party's coronavirus vaccine 那中共疫苗到底能保护多长时间？还在研究过程中间。要打中共疫苗应该是“自求多福”！——战友推特`**
+
+
++1
