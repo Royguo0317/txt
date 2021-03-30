@@ -1,27 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登暂未打算与金正恩会面
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1036311/)
+## 【热点推荐】中央巡视组进驻 腾讯将步阿里巴巴后尘？
+` 纽约香草山农场` [轉載自GNews](https://gnews.org/zh-hans/1036496/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+新闻来源： Epoch Times 大纪元时报 宋碧龙
 
-编辑上传   水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/N-15.jpg)
-日本共同社消息，白宫发言人珍·普萨基 (Jen Psaki)星期一指出，与朝鲜领导人金正恩的会晤目前不在美国总统拜登与平壤进行的外交努力计划之中。
+推荐人： 纽约香草山 B· Star
 
-在朝鲜周四向日本海发射了两枚弹道导弹之后，普萨基在记者会上被问及“与”金正恩坐在一起是否是拜登所说的“某种形式的外交”的一部分， 普萨基表示，“这不是他（拜登）的意图。”
+推荐者语：
 
-朝鲜测试了一种新型的带有固体燃料发动机的“战术制导炮弹”。拜登告诉记者，朝鲜此举违反了联合国1718号决议。拜登表示，美国正在“与我们的伙伴和盟友磋商”，并警告朝鲜，“如果他们选择升级，“我们会做出相应的回应。”拜登强调，“我也准备进行某种形式的外交，但这必须以无核化的最终结果为条件。”
+《反垄断法》将会让腾讯成为下一个阿里巴巴，中共国的私企会以各种理由或被国有化，或被打击，越来越没有生存空间。
 
-美国国务卿布林肯对朝鲜“破坏稳定的弹道导弹发射”试验进行了谴责，并重申了美国的立场，即朝鲜的导弹发射违反了联合国安理会的多项决议。他还指出，美国及其在亚洲的两个重要盟友，日本和韩国将致力于“反对这些挑衅，推进朝鲜半岛的无核化”。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/190321090152100311-600x400-1.jpg)
 
-“我们从平壤看到这些挑衅并没有动摇我们三个国家的意志。” 在访问首尔和东京期间，布林肯一再强调朝鲜无核化的重要性。布林肯强调三国有必要改善合作，共同消除朝鲜对该区域的威胁。
+* * *
 
-美国驻联合国大使琳达·托马斯-格林菲尔德 (Linda Thomas-Greenfield)也出席了新闻发布会。她说，拜登政府正在寻求联合国可能采取的“额外行动”，以回应朝鲜最近的核试验。
+* * *
 
-参考链接：
+原文摘录：
 
-[https://english.kyodonews.net/news/2021/03/8a5a2e4681a1-biden-does-not-plan-to-meet-n-korea-leader-kim-for-now-white-house.html](https://english.kyodonews.net/news/2021/03/8a5a2e4681a1-biden-does-not-plan-to-meet-n-korea-leader-kim-for-now-white-house.html)
+大纪元2021年03月30日讯，中共国家市场监督管理总局近期正在对腾讯进行反垄断调查。有消息人士披露，中央巡视组人员已在上周开始进驻腾讯展开调研工作，并就腾讯一些商业行为与腾讯高层进行对话。
 
-0
+完整内容，请点击原文链接：
+
+[https://www.epochtimes.com/gb/21/3/29/n12844049.htm](https://www.epochtimes.com/gb/21/3/29/n12844049.htm)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-3.jpg)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+
+
++1
