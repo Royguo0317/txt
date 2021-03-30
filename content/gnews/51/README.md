@@ -1,36 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 德国为Covid病毒患者重症监护病床仅剩1644
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1033193/)
+## 由于全球芯片短缺，蔚来关闭工厂5天
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1035331/)
 
-```
-新闻来源：明镜网页 (Spiegel online)
-发表日期：2021年3月28日 15：39分
-翻译整理/评论： Shuizhuyu
-```
+新闻来源：《CNBC 美国消费者新闻与商业频道》| 作者：Evelyn Cheng | 发布时间：2021年3月26日
 
-![]()
-重症监护医师的总裁警告说：“我们已经达到极限。”汉堡市第一任市长Tschentscher呼吁在全国范围内遵守已达成共识的病毒政策。
+翻译/简评：村民彼得潘 | 校对：X-Wing飞得更高 | 审核：万人往 | Page：青山
 
-鉴于病毒感染人数上升，重症监护医生呼吁硬性封锁两到三周。德国重症与急诊医学跨学科协会（DIVI）主席格诺特·马克思Gernot Marx周日表示：“这将挽救Covid病人的生命，甚至挽救更多生命。”他警告说：“我们已经能够看到我们的重症监护能力陷入了灭亡。”
+[!\[\]()!\[\](https://spark.adobe.com/page/mFFbkDMa0uhSE/images/bf4441d4-c6b6-4d6b-91c1-f122504d86ce.jpg?asset_id=c6f6828e-35b0-457c-ae72-fce268fa4916&amp;img_etag=%22f9f7a8c837ee8ca2f2e37aa49b90fb93%22&amp;size=1024)](https://spark.adobe.com/page/mFFbkDMa0uhSE/images/bf4441d4-c6b6-4d6b-91c1-f122504d86ce.jpg?asset_id=c6f6828e-35b0-457c-ae72-fce268fa4916&amp;img_etag=%22f9f7a8c837ee8ca2f2e37aa49b90fb93%22&amp;size=1024)图片来源：Getty Images
 
-根据DIVI重症监护记录，重症监护病房中仍有1644张病床可供德国各地的病毒患者使用。该协会宣布，自3月10日以来，Covid 19名重症监护患者的数量已从2727例跃升至3448例。 DIVI重症监护注册中心的医学和科学主管Christian Karagiannidis说：“无论我们现在做什么，在接下来的两个半周内，这个数字将继续呈指数级增长。”随着5000多名COVID-19患者的出现，事情变得越来越关键。 “这意味着现在必须采取措施。”
+**简评：**
 
-他的同事斯特芬·韦伯·卡斯滕斯（Steffen Weber-Carstens）说，圣诞节到一月初之间，人们根本不知道情况有多么严重， 许多患者必须要从德国东部或中部飞到北方医院就诊。本周，他已经收到有关转移重症病人的咨询。
+蔚来汽车作为近几年中共国大力发展新能源汽车的个中翘楚，一直以来备受世人瞩目，该公司不单打破了中共国此前频出PPT造车闹剧的刻板印象，更以电池租用等运营新理念、产品高端化定位及现代化服务，一度被海内外媒体视作特斯拉的有力竞争者。前有大资本与高技术投入，后有纳斯达克上市、中外媒体造势，蔚来在短短几年时间崛起，试图弯道超车，其在中共国的背景以及崛起背后的真正目的不免令人遐想。
 
-#### 简评：
+然而这样一颗冉冉升起的新星，在芯片短缺的现实面前，仍免不了捉襟见肘、显露疲态。失去全球化供应链，尤其是高端产品进口的支撑，中共国面临严重运营危机的企业绝不止这一家。可以料见，在拜登政府延续川普时期留下的种种对共强硬政策的大背景下，诸如半导体之类的高精尖行业，如郭先生此前所说，会有几次“回头汤”的转折，但最终必然会背弃中共及其麾下一众企业，形成事实上的两国脱钩。失去国际尖端技术的支持，中共继续其高压统治的幻想终将成为泡影。
 
-**德国的病毒危机越来越严重了， 现在已经将封锁政策延长到了4月18日， 即便封锁， 患病人数还是不断上升，而且这一个病毒的新变种， 导致传染速度快，并且引起的死亡率也非常高。 很多的病毒专家智囊团的医生们都要求政府要实行更严厉的封锁政策， 甚至是严禁不必要的外出活动， 否则情况会更加严重。 德国的重症病床已经告急， 如此下去， 估计两周内会一床难求， 会引起更多的患者死亡。 形式紧急， 就看政客们怎么解决这个难题吧？其实从根本上说， 他们已经没有针对预防病毒的特效措施了。**
+**原文翻译：**
 
-**（免责声明：本文的简评只代表译者观点，跟GNEWS平台无关。）**
+## **由于全球芯片短缺，中共国电动汽车初创公司蔚来关闭工厂5天**
 
-#### 新闻原文链接：
+**要点**
 
-[Präsident der Intensivmediziner: »Wir rennen sehenden Auges ins Verderben«](https://www.spiegel.de/wissenschaft/medizin/coronavirus-news-inzidenz-in-deutschland-steigt-auf-knapp-130-a-a6d49e12-6271-4a3b-8237-a0e7732b338f)
+• 中共国电动汽车初创公司蔚来周五表示，由于全球半导体芯片短缺，他们将关闭一家工厂，为期5天。
 
-* * *
+• 蔚来表示，目前预计本年度前三个月的交付量为1.95万辆，而此前公布的预计数额为2万至2.05万辆。
 
-**审核/校对：**Ting Guo
+[!\[\]()!\[\](https://spark.adobe.com/page/mFFbkDMa0uhSE/images/0719d902-9a0c-484f-b5b9-7b937c652b8f.jpg?asset_id=43e50af6-bd2d-4450-81ab-119ebf839fce&amp;img_etag=%2270ac0abc0d729b443ae7a4aa07cbc74e%22&amp;size=1024)](https://spark.adobe.com/page/mFFbkDMa0uhSE/images/0719d902-9a0c-484f-b5b9-7b937c652b8f.jpg?asset_id=43e50af6-bd2d-4450-81ab-119ebf839fce&amp;img_etag=%2270ac0abc0d729b443ae7a4aa07cbc74e%22&amp;size=1024)2020年12月4日，星期五，媒体参观位于中国安徽省合肥市的蔚来公司的生产设备时，员工们在检测线上进行检查。 Qilai Shen | 彭博社 | 盖蒂图片社
 
-+3
+北京——中共国电动汽车初创公司蔚来周五表示，由于全球半导体芯片短缺，他们将关闭一家工厂，为期5天。
+
+该公司表示，自3月29日开始的停产将使蔚来第一季度的交付量至少减少500辆。
+
+这使得本年度前三个月的预期交付量降至1.95万辆，而此前公布的预计数额为2万至2.05万辆。
+
+即使面临产量减少，蔚来在2021年开始的汽车交付量也将超过其竞争对手小鹏和理想。
+
+由于半导体芯片短缺，全球汽车制造商纷纷宣布停产。芯片高度专业化的供应链受到了川普政府时期的冠状病毒大流行和中美贸易紧张局势的影响。
+
+🔗[原文链接](https://www.cnbc.com/2021/03/26/chinese-ev-start-up-nio-shuts-factory-for-5-days-due-to-chip-shortage.html)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/mFFbkDMa0uhSE/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/mFFbkDMa0uhSE/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+
++1
