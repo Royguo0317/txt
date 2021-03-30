@@ -1,79 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 接种疫苗的人是行走的定时生物炸弹并对社会构成威胁
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1035175/)
+## 由于全球芯片短缺，蔚来关闭工厂5天
+` 英國倫敦喜莊園 Himalaya London Club UK` [轉載自GNews](https://gnews.org/zh-hans/1035331/)
 
-**作者：**Mike Adams 2021-03-26
+新闻来源：《CNBC 美国消费者新闻与商业频道》| 作者：Evelyn Cheng | 发布时间：2021年3月26日
 
-**翻译：**加拿大温哥华圆成农场 卢卡斯
-![]()![](https://gnews.org/wp-content/uploads/2021/03/图片5-7.png)图片来源：网络
-那些无知到可以接受注射一种实验性疫苗的人，他们自己的身体迅速成为具有高度传染性的超级毒株，就像无数正在行走的定时生物炸弹，对我们的社会构成威胁。
+翻译/简评：村民彼得潘 | 校对：X-Wing飞得更高 | 审核：万人往 | Page：青山
 
-全球主义者知道这一点，这些符合他们在全球大规模灭绝人类的目标，他们给最危险和最具传染性的人发放”疫苗护照”，使这些病毒携带者能够自由地在社会上漫游，广泛传播超级病毒。我再说一遍，这一切都是他们设计好的。
+[!\[\]()!\[\](https://spark.adobe.com/page/mFFbkDMa0uhSE/images/bf4441d4-c6b6-4d6b-91c1-f122504d86ce.jpg?asset_id=c6f6828e-35b0-457c-ae72-fce268fa4916&amp;img_etag=%22f9f7a8c837ee8ca2f2e37aa49b90fb93%22&amp;size=1024)](https://spark.adobe.com/page/mFFbkDMa0uhSE/images/bf4441d4-c6b6-4d6b-91c1-f122504d86ce.jpg?asset_id=c6f6828e-35b0-457c-ae72-fce268fa4916&amp;img_etag=%22f9f7a8c837ee8ca2f2e37aa49b90fb93%22&amp;size=1024)图片来源：Getty Images
 
-最安全的人们是那些具有强大的与生俱来的免疫系统，并已经建立了对抗中共病毒的抗体，而不需要任何医疗干预的人们。对大多数人来说，在维生素D、锌、营养、足够的睡眠和避免有毒食物和药物的帮助下，很容易获得这个强大的免疫系统。
+**简评：**
 
-然而，整个”科学”行业拒绝承认任何与生俱来的免疫作用，个人自己产生的抗体不被承认有任何功能对抗中共病毒。例如，你不可能通过展现自己与生俱来的免疫力而获得一个”抗体护照”，即使你已经用上帝赐予你的免疫系统战胜了病原体。
+蔚来汽车作为近几年中共国大力发展新能源汽车的个中翘楚，一直以来备受世人瞩目，该公司不单打破了中共国此前频出PPT造车闹剧的刻板印象，更以电池租用等运营新理念、产品高端化定位及现代化服务，一度被海内外媒体视作特斯拉的有力竞争者。前有大资本与高技术投入，后有纳斯达克上市、中外媒体造势，蔚来在短短几年时间崛起，试图弯道超车，其在中共国的背景以及崛起背后的真正目的不免令人遐想。
 
-现代的”科学”，如果我们敢这样称呼它，希望你相信你根本没有免疫系统，你的身体必须被mRNA疫苗劫持才能发挥作用。这是一个巨大而危险的谎言，它几乎被世界上每一个媒体，医学杂志和医疗”权威”所重复（当然这些人中的大多数都是为中共摧毁西方国家工作）。
+然而这样一颗冉冉升起的新星，在芯片短缺的现实面前，仍免不了捉襟见肘、显露疲态。失去全球化供应链，尤其是高端产品进口的支撑，中共国面临严重运营危机的企业绝不止这一家。可以料见，在拜登政府延续川普时期留下的种种对共强硬政策的大背景下，诸如半导体之类的高精尖行业，如郭先生此前所说，会有几次“回头汤”的转折，但最终必然会背弃中共及其麾下一众企业，形成事实上的两国脱钩。失去国际尖端技术的支持，中共继续其高压统治的幻想终将成为泡影。
 
-接种疫苗的人对社会是最危险的，并且最有可能感染上其他超级菌株，这些菌株已经对现有疫苗表现出完全的免疫力。换句话说，疫苗已经基本上过时了。
+**原文翻译：**
 
-只有与生俱来的人类免疫系统才能在几个小时内处理快速突变并战胜它们，而不是等待10个多月的疫苗行业推出另一种”疫苗助推器疫苗”。
+## **由于全球芯片短缺，中共国电动汽车初创公司蔚来关闭工厂5天**
 
-疫苗行业将永远追逐这些变种和突变菌株，就像抗生素在医院里永远追逐超级细菌一样。然而，今天，整个世界都是疫苗、生物武器行业的超级菌株工厂，事实上，这里还有更险恶的东西在起作用。
+**要点**
 
-疫苗行业将追逐这些变种，Fauci、NIH和CCP需要数十亿人充当生物武器工厂，以永远加速其最终的种族灭绝生物武器菌株，就像抗生素在医院里永远追逐超级细菌一样。然而，今天整个世界都是疫苗、生物武器行业的超级菌株工厂，事实上，这里还有更险恶的东西在起作用。
+• 中共国电动汽车初创公司蔚来周五表示，由于全球半导体芯片短缺，他们将关闭一家工厂，为期5天。
 
-**Fauci，NIH和CCP需要数十亿人作为生物武器工厂，以加速制造其最终的种族灭绝生物武器**
+• 蔚来表示，目前预计本年度前三个月的交付量为1.95万辆，而此前公布的预计数额为2万至2.05万辆。
 
-事实证明，Fauci，NIH和CCP实际上并没有成功地制造出一种致命的生物武器来消灭人类。他们制造的武器（SARS-COV-2）只是为了说服数十亿人接种疫苗，将自己的身体变成生物武器工厂，以便基因突变能够在全球范围内得以进行。
+[!\[\]()!\[\](https://spark.adobe.com/page/mFFbkDMa0uhSE/images/0719d902-9a0c-484f-b5b9-7b937c652b8f.jpg?asset_id=43e50af6-bd2d-4450-81ab-119ebf839fce&amp;img_etag=%2270ac0abc0d729b443ae7a4aa07cbc74e%22&amp;size=1024)](https://spark.adobe.com/page/mFFbkDMa0uhSE/images/0719d902-9a0c-484f-b5b9-7b937c652b8f.jpg?asset_id=43e50af6-bd2d-4450-81ab-119ebf839fce&amp;img_etag=%2270ac0abc0d729b443ae7a4aa07cbc74e%22&amp;size=1024)2020年12月4日，星期五，媒体参观位于中国安徽省合肥市的蔚来公司的生产设备时，员工们在检测线上进行检查。 Qilai Shen | 彭博社 | 盖蒂图片社
 
-通过这种方式，集中的生物武器疫苗军事综合体能够将其生物武器开发计划去中心化，方法是向自然界释放一个相对温和的菌株，并随后用疫苗加速超级毒株的对人类的适应性。实际上，每个接种过疫苗的人现在都是一个行走的生物武器工厂，生产出超级毒株，在疫苗护照的帮助下”散布”到整个社会中。
+北京——中共国电动汽车初创公司蔚来周五表示，由于全球半导体芯片短缺，他们将关闭一家工厂，为期5天。
 
-由于邮轮公司、体育场馆、航空公司、大学和其他组织现在宣布”只服务于接种疫苗的人群”政策，允许这些人恢复正常社会活动，他们正在为传播下一个全球杀手病毒株创造”完美的风暴”条件，这些病毒株将是接种疫苗的人身体里随机突变的结果，而不是通过在基因实验室里通过处心积虑基因工程设计出来的结果。
+该公司表示，自3月29日开始的停产将使蔚来第一季度的交付量至少减少500辆。
 
-疫苗的真正医学目的是消灭杀伤力较小的菌株，并提供病毒适应压力，加速产生更致命的毒株。
+这使得本年度前三个月的预期交付量降至1.95万辆，而此前公布的预计数额为2万至2.05万辆。
 
-这一切都是认为设计造成的。他们知道他们不能在实验室里设计出完美的武器……他们需要把人类当作行走实验室的实验。而这正是疫苗的所要完成的任务。
+即使面临产量减少，蔚来在2021年开始的汽车交付量也将超过其竞争对手小鹏和理想。
 
-**接种疫苗的人危及他周围的人**
+由于半导体芯片短缺，全球汽车制造商纷纷宣布停产。芯片高度专业化的供应链受到了川普政府时期的冠状病毒大流行和中美贸易紧张局势的影响。
 
-现在，任何想在疫苗接种者体内变异的杀手”超级毒株”浪潮中幸存下来的人都必须认识到，远离接种疫苗的人可能是个生死攸关的问题。接种疫苗的人是最危险的，但却被赋予更大的进入社会的机会。在他们自己的自私和对科学的无知中，这些心甘情愿的生物武器志愿者正在帮助实施有史以来最大的危害人类罪：一场全球瘟疫，通过去中心化、加速、适应性的基因塑造来驱动，依靠数十亿乐意的志愿者充当突变实验室。
+🔗[原文链接](https://www.cnbc.com/2021/03/26/chinese-ev-start-up-nio-shuts-factory-for-5-days-due-to-chip-shortage.html)
 
-这个全球规模的对活人进行医学实验，使整个纳粹政权都会感到自惭不如。
-
-当然，当下一波死亡浪潮到来时，媒体会责怪那些未接种疫苗的人，尽管未接种疫苗的人越来越不被允许去任何地方。接种疫苗的人会杀死自己和其他人，这就是我为什么说他们是 “疫苗自杀邪教” 的一部分。
-
-你已经在媒体上看到这一点：超级菌株已经开始出现，目前的疫苗名单可能在今年晚些时候完全过时。辉瑞公司已经宣布计划从每年的中共病毒疫苗注射中获利，因为突变和毒株陷入永无止境的重复业务模式，这些业务通过最初的疫苗得到加速（早就设计好的）。
-
-今天的情况更新讲述了藏在背后的全部故事，下面视频会告诉你这些：
-
-[Brighteon.com/ed06dd3e-5cf4-4001-b2e6-27b62bac359c](http://brighteon.com/ed06dd3e-5cf4-4001-b2e6-27b62bac359c)
-
-**评：**全球揭露中共病毒真相第一人，香港大学病毒科学家闫丽梦博士，去年7月10号在接受美国福克斯新闻采访时说，冠状病毒是中共武汉病毒研究所通过基因工程技术制造并释放的到全世界生化病毒武器，中共刻意掩盖了中共病毒的人传人和来源的真相，目的是让病毒扩散到全世界达到其控制全世界的邪恶目的，并警告说留给世界的作出正确抉择的时间不多了；同年10月8日闫博士连线班农先生战斗室（第428期节目）首次提出“超限生物武器”概念，进一步指出：中共病毒是超限生物武器，这场瘟疫大流行正是中共“超限生物战”的结果，对人类的影响远远超出传统的生物武器。针对中共病毒疫苗的开发的有效性，闫博士的看法是，当前在中共拒绝交出中共病毒的基因序列图，科学家无法确切知道中共病毒的感染人类细胞的机理机制的条件下，不可能有真正的疫苗，目前应对中共病毒的最好办法还是服用硫酸羟氯喹加锌片；路德社对当前世界推行的各种疫苗的看法是：接受注射中共病毒疫苗等于往自己身体里注入一个定时生物炸弹。本文作者揭露出来的信息验证了闫博士和路德社对中共病毒疫苗的看法：疫苗根本不能预防中共病毒，反而是中共用来大规模灭绝全球人类的生化武器。中共是全球主义者，梦想着实现共产主义统治奴役全人类的邪恶目的，与西方黑暗势力相互勾结，充当其先锋马前卒，第一步就是释放中共病毒到全世界，打垮全球经济，然后通过中共病毒疫苗来控制全球政治经济，实现全球大重启，进入到全球主义者的新世界，企图撒旦信仰打败西方基督信仰，进入到千年的共产主义专制独裁残暴的类似中世纪那样的黑暗统治。
-
-最近的有报道指出，在美国多个州的数据表明中共病毒感染人数在上升，尽管这些州有很高的疫苗接种率，这表明疫苗接种根本没有起作用[1];其他的报道称，已经完全接种了疫苗的人们再次被中共病毒所感染，这证明疫苗根本没有像疫苗公司所承诺的那样能抵抗中共病毒[2]。加拿大安省正在遭受第三波中共病毒的袭击，昨天3月27日，报道了2453例新增中共病毒感染，人数达到了近二个月的最高峰,其中的1586例是被中共病毒变种感染[3];安省正在强力推行中共病毒疫苗接种，目前已有45万多伦多居民接种了疫苗，而安省总共有近31万人完成了疫苗接种[4]。这些数据表明中共病毒变体已经开始占据新增感染病例的多数，其具有更快的传播能力和更高的致死率，而加速推行的疫苗接种似乎并没有起到很好的预防中共病毒的作用。这篇文章所揭示的有关中共病毒疫苗的阴谋警示人们不要轻信政府主流媒体和生产疫苗的大医药公司鼓吹的疫苗接种的好处，这帮利益共同体罔顾人命，淡化甚至隐瞒了疫苗的各种副作用和疫苗能致人死亡的严重后果，在中共病毒还在不断变异广泛传播的情况下，根本不可能制造出有效的中共病毒疫苗。我们千万要记住闫博士对人类的警告：中共建有病毒库并且还在继续开发新的病毒，如果不继续追查中共病毒的来源不追责中共，它尝到了释放中共病毒达到其邪恶的目的而没受到任何惩罚的甜头后，随时会继续释放新的病毒祸害世界；只要中共不灭，就不会有真正的解药，中共病毒就不可能得到控制，只有灭共才是中共病毒真正的解药。
-
-##### 原文：Mike Adams, “Vaccinated people are walking biological time bombs and a THREAT to society
-
-**”.《 Natural News》, March 26, 2021. [https://www.naturalnews.com/2021-03-26-situation-update-mar-26-vaccinated-people-are-walking-biological-time-bombs.html](https://www.naturalnews.com/2021-03-26-situation-update-mar-26-vaccinated-people-are-walking-biological-time-bombs.html)**
-
-**[1] [Arsenio Toledo](https://www.newstarget.com/author/arseniotoledo),“Coronavirus cases rise in states with high vaccination rates, proving yet again the vaccines don’t work”.《NewsTarget》March 25, 2021.  [https://www.newstarget.com/2021-03-25-coronavirus-cases-continue-to-rise-despite-vaccination.html](https://www.newstarget.com/2021-03-25-coronavirus-cases-continue-to-rise-despite-vaccination.html)**
-
-**[2] [Lance D Johnson](https://www.naturalnews.com/author/ljdevon),“The fully vaccinated are getting infected again, demonstrating yet again that vaccines don’t really work as promised”.《Natural News》，March 24, 2021. [https://www.naturalnews.com/2021-03-24-fully-vaccinated-are-getting-infected-again.html](https://www.naturalnews.com/2021-03-24-fully-vaccinated-are-getting-infected-again.html)**
-
-##### **[3]**** **[Ryan Rocca](https://globalnews.ca/author/ryan-rocca/),“ Ontario reports largest single-day jump in COVID-19 cases in more than 2 months”. 《GlobalNews》，March 27, 2021. [https://globalnews.ca/news/7723395/covid-19-ontario-cases-march-27-coronavirus/](https://globalnews.ca/news/7723395/covid-19-ontario-cases-march-27-coronavirus/)
-
-##### [4] Liam Casey,“ Quebec, Ontario officials say many vaccine appointments unfilled, ask seniors to act”. 《CTVnews》，March 28, 2021.** **[https://www.ctvnews.ca/health/coronavirus/quebec-ontario-officials-say-many-vaccine-appointments-unfilled-ask-seniors-to-act-1.5365691](https://www.ctvnews.ca/health/coronavirus/quebec-ontario-officials-say-many-vaccine-appointments-unfilled-ask-seniors-to-act-1.5365691)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+[!\[\]()!\[\](https://spark.adobe.com/page/mFFbkDMa0uhSE/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/mFFbkDMa0uhSE/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-编辑/发布：比卡丘
-
-20210329
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
-+5
++1
