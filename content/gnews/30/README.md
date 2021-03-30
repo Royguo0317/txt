@@ -1,27 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 滑稽 有毒的“爱国教育”
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1035368/)
+## 彼得·达扎克主持由中共主办的会议
+` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1035397/)
 
-#### 作者：斩草要除根
-![]()![](https://gnews.org/wp-content/uploads/2021/03/My-Post-29-e1617038253193.jpg)
-习近平说 ，要让中国的青少年从小就烙上红色的烙印，让红色基因代代相传。大学教育要求把爱国的红色基因根植于灵魂深处；在部队中爱国要求把忠诚、拥戴、维护和捍卫党根植官兵头脑，融入官兵血脉。中共所谓的“爱国主义教育”如”毒瘤”一般生长并扩散到社会的各个阶层，各个领域，似乎几十年下来到现在更有着愈演愈烈之势。
+翻译：洛杉矶天使农场 – 飞利浦 
+校对：洛杉矶天使农场 – 烟波浩淼
+审核：洛杉矶天使农场 –黎明的光芒
 
-#### 今天笔者仅就两个领域浅谈一下：
+![]()![](https://www.gnews.org/wp-content/uploads/2021/03/Picture1-44.png)图片来源：彼得•达扎克推特
 
-中共一方面营造宗教自由的假象，另一方面却把控制意识形态的黑手伸向宗教界，把政治要求施加于宗教信仰之上。尼姑唱红歌，颂恩党，高呼“共产党万岁”；寺庙成立党支部，升国旗唱国歌；基督教天主教开展爱国主义教育，接受红色文化熏陶；看似滑稽可笑，实则用心歹毒。中共干涉玷污宗教，使得宗教文化精神走向衰败。这些所谓的“爱国主义教育”不过是作恶的幌子，实际的面目却是用敌视与防范的态度对宗教进行控制打压和控制。
+**在世界卫生组织中共病毒调查人员彼得•达扎克****(Peter Daszak)****的领导下，他的生态健康联盟团体在中共国安排了一个涵盖中共控制的各类实体为赞助商的会议。**
 
-井冈山是中共的红色教育基地，是“毒瘤”的温床。各行各业都以组织去学习为荣，特别是民营企业家们，更甚者还有澳门博彩巨头组织员工连年去学习。我们不禁要问，爱国与经营企业和赌场赌博有毛关系？这种东拉西扯，穿凿附会的爱国形式，其真实用意是要求向党表忠心，强化对企业的绝对控制权和树立党的绝对权威。
+[中共支持](https://thenationalpulse.com/exclusive/who-investigators-ccp-covid-ties/)的这次会议的消息在《国家脉搏》（National Pulse）报道之后突出了达扎克对其他中共政府主办会议的参与以及在他的社交媒体上对中共国营媒体的[宣传](https://thenationalpulse.com/breaking/the-world-health-organizations-independent-investigator-keeps-hyping-chinese-communist-propaganda-outlets/)。
 
-在意识形态上，中共用党国体制把党和国这两个完全不同的概念进行政治捆绑，把党置于国之上，党国不分，让党来代表国，假借爱国之名来维护一个肮脏的体制。另外一个层面中共把爱国主义定义为道德的范畴，维护城市卫生是爱国，爱岗敬业是爱国，乐于助人是爱国，顶着一个道德的光环让大家非爱不可，而所谓爱的国不是民族意义的国而是政治意义上的国。
+2012年10月的这个“*维持生态系统，支持健康”*会议在离武汉约2小时飞行距离的中共国云南省昆明市举行。
 
-中共的“爱国教育”是假丑恶体制的具体表现之一，在这样的教育之下是表里不一、自我矛盾的假，黑白颠倒、是非不分的丑，践踏良知、泯灭人性的恶。70年的“毛毒”不除，“爱国教育”出来的只是一帮无脑的智障和帮凶做恶的奴才。
+达扎克被列为会议筹划委员会成员和国际生态与健康协会组织者认可的理事会成员。达扎克还担任一份与会议组织者有关的出版物《生态健康》（EcoHealth）的主编。“哎呀！那页面现在找不到了”，就是那张显示在该杂志网站有关2012年会议的那些页面里，包括会议日程安排、演讲人摘要和结束语的页面。
 
-**（免责声明：本文仅代表作者个人观点，跟GNEWS平台无关。）**
+不过，该[网站](https://web.archive.org/web/20170703210644/https:/ecohealth.net/wp-content/uploads/2015/11/2012_Final_ConferenceProgram_VeryLow-Res.pdf)的存档[版本](https://web.archive.org/web/20170703224450/https:/ecohealth.net/wp-content/uploads/2015/11/IAEH_2012_KunmingStatement_News-from-IAEH.pdf)显示，达扎克在这会议上主持了两场会议“美国国际开发署-预测：为新出现的大流行病建立全球预警系统”和“全球健康，新出现、再出现以及重新复活的传染病”两个议题。他还发表了一篇题为“全球遭受大传染病的脆弱性和预防它们的经济手段”的演讲。
 
-* * *
+达扎克小组的存档[摘要](https://web.archive.org/web/20170703215548/https:/ecohealth.net/wp-content/uploads/2015/11/Abstracts-book_EcoHealth2012_October-13.pdf)写道：“在这次专题讨论会上，与会者将讨论涉及推进新出现的人畜共患疾病的全球监测和应对机制的投资和重要议题，以及过去3年新出现的流行病风险对策的经验教训。这将包括针对野生动物病原体发现的生态健康或‘全球健康’策略，通过使用地理时空模型确定风险，以及加强当地实验室和现场在调查以及应对疾病爆发的能力。”
 
-**审核/校对：**Ting Guo
+来自中共国立大学和智库的几位学者也在会议上发言，其中包括中共疾病预防控制中心的一位前副主任。
 
-+2
+会议组织者之一的昆明植物研究所（KIB）列举了承接编辑科学百科全书来更好地“建设中国特色社会主义文化”和“在中国共产党的直接领导下”开展工作的研究人员。昆明植物研究所研究人员还获得了许多荣誉，如在简历上被称为“[优秀共产党员](http://groups.english.kib.cas.cn/epb/wjq/Peoples/201711/W020210209571802589067.pdf)”。
+
+![]()![](https://www.gnews.org/wp-content/uploads/2021/03/Picture2-27.png)昆明植物研究所简历
+
+另一个资助单位是国营昆明医科大学，该校的科研期刊上有 “如何培养大学新生的社会主义核心价值观”和“为人民服务是共产党的根本宗旨和价值追求 ”等文章。
+
+“实施国务院和有关政府管理部门委托的工程”的国家自然科学基金委也担任了赞助单位。
+
+这家[国营](http://www.nsfc.gov.cn/english/site_1/index.html)基金会称自己的成立是 “在邓小平同志的亲切关怀下”，继续 “以习近平主席新时代中国特色社会主义思想为指导，认真贯彻落实党的十九大精神”。
+
+国有的中共国科学院[自称](https://english.cas.cn/about_us/)是 “中共国推动探索和利用高科技和自然科学造福中共国和世界的关键”，[以及](https://chinadevelopmentbrief.cn/ngos/partnership-for-community-development/) “在北京市公安局和生态环境部注册的”社区伙伴也是赞助商。
+![]()![](https://www.gnews.org/wp-content/uploads/2021/03/Picture1-45.png)
+阅读会议文件：
+
+[2012年最终会议流程](https://www.scribd.com/document/500199156/2012-Final-ConferenceProgram-VeryLow-Res#from_embed) 由娜塔莉·温特斯订阅
+
+原文作者：娜塔莉·温特斯（Natalie Winters）
+发布时间：2021年3月26日
+原文链接：[https://thenationalpulse.com/exclusive/who-investigator-peter-daszak-conference/](https://thenationalpulse.com/exclusive/who-investigator-peter-daszak-conference/)
+
+
+
+
+
+0
