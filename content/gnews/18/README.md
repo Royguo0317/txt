@@ -1,41 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《文贵说》| 图片连载（五十二）
-` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/1034152/)
+## 震惊！美国中共病毒疫苗致死人数超过去10年总和！
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1040629/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/20194291.jpg)
-**中国的14亿人靠着一个香港的700万人，来顶住了共产党这个邪恶的魔鬼，我们再不全力以赴做什么，我们真的愧对我们这张脸！愧对香港同胞！**
+***路仁***
+![]()![](https://gnews.org/wp-content/uploads/2021/03/winepressnews.com_-1.jpg)
+对中共病毒的强传染性和高致死率， 相信已经没人否认了。截至今天（2021年3月30日），全球共计感染超过1.27亿人感染，死亡超过278万人。仅美国一个国家，截至今天接近3000万人感染，超过54万死亡。死亡人数超过一战和二战死亡人数之和。
 
-**—— 郭文贵先生 2019年11月12日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2019429.jpg)
-**真正的战友从来没有离开过！**
+在人类不得不在中共病毒的肆虐下苦苦挣扎时，人类又不得不面对时下几种疫苗的风险和对人类带来的长期的潜在的威胁。
 
-**—— 郭文贵先生 2020年4月14日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2019429-1.jpg)
-**适者生存是我崇尚的人生处事哲学，是境界。**
+根据美国疾病控制和预防中心（CDC）的数据显示，仅2021年在美国中共病毒疫苗开始接种3个月，因疫苗而致死的人数就超过1750人。对于这个数字，可能很多人心里没有概念。在假疫苗盛行的中共国，由于疫苗致死致残的数据永远是个谜。而在对疫苗要求非常严格的欧美国家，因疫苗致死的人数，是反映疫苗安全和医疗安全的重要指标。
 
-**—— 郭文贵先生 2019年4月29日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/5-71.jpg)
-**我不相信任何中国人走到世界上敢自豪的说：“享受着我们共产主义！”**
+根据美国CDC的数据显示，美国过去十年（2011-2020）因疫苗致死的人数总共为966人。也就是说，仅2021年因中共病毒疫苗致死的1783人，已经超过过去十年因疫苗致死人数总和的966人（2749-1783）。尽管按百分比计算中共病毒疫苗的致死数量仅占总接种人数的0.003%，但这已经时过去十年平均数值的71倍了。
 
-**—— 郭文贵先生 2020年1月7日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/4-1-1.jpg)
-**全世界去中国化的时候，香港是最好的证据、最好的抓手、最好的借口，这就是为什么说香港是我们的耶路撒冷，香港是我们的圣地。**
+根据欧洲药品协会网站（European Medicine Agency）的数据显示，截至2021年3月13日，欧洲因为中共病毒疫苗致死为3964人，致伤16.2万人。
 
-**—— 郭文贵先生 2020年4月11日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-1-1.jpg)
-**共产党是给钱给命、给“双修”、给钱还给“乌纱帽”，没人干活。我们的爆料革命啥也不给，战友们抢着干活，还以此为荣。这就是今天的民心！民意！**
+***参考链接：***
 
-**—— 郭文贵先生 2020年2月18日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/2-3-1.jpg)
-**爆料革命不会忘掉一个！为爆料革命付出的战友们！**
+[Coronavirus disease (COVID-19) pandemic](https://www.who.int/emergencies/diseases/novel-coronavirus-2019?adgroupsurvey={adgroupsurvey})
 
-**—— 郭文贵先生 2020年2月18日**
+[EXCLUSIVE: Per the CDC There Are Nearly Twice As Many Vaccine Related Deaths SO FAR in 2021 (1,755) Than All the Vaccine Deaths this Past Decade (994)](Per%20the%20CDC%20There%20Are%20Nearly%20Twice%20As%20Many%20Vaccine%20Related%20Deaths%20SO%20FAR%20in%202021%20%281,755%29%20Than%20All%20the%20Vaccine%20Deaths%20this%20Past%20Decade%20%28994%29)
 
+[EudraVigilance](http://www.adrreports.eu/en/eudravigilance.html)
 
+* * *
 
-- [***更多精美海报请点击G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4)
+*校对、发稿 文锦*
 
-
-+1
++3

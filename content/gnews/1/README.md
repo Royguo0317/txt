@@ -1,25 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫丽梦科学家第三份科学报告出台
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1040634/)
+## 【突发新闻】闫博士第三份病毒报告重磅出炉！ 进一步证明了SARS-CoV-2的武汉实验室起源和闫博士两份报告有效性
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1040845/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
+作者：闫丽梦、康树、关杰、胡善昌（音译）
 
-
-
-> The 3rd Yan Report is published!
-> 
-> The Wuhan Laboratory Origin of SARS-CoV-2 and the Validity of the Yan Reports Are Further Proved by the Failure of Two Uninvited "Peer Reviews"
-> Link:[https://t.co/Up3aI00aPi](https://t.co/Up3aI00aPi)[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)[#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedScientificMisinformation](https://twitter.com/hashtag/UnrestrictedScientificMisinformation?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/j2q7hpgAnj](https://t.co/j2q7hpgAnj)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [March 31, 2021](https://twitter.com/DrLiMengYAN1/status/1377248049093828611?ref_src=twsrc%5Etfw)
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524.jpg)
 
 
-**`第三次闫丽梦科学家科学报告已发布！两次未经邀请的“同行评审”的链接失效，进一步证明了SARS-CoV-2的武汉实验室起源。`**
-闫博士第三份报告的有效性链接：[**https://zenodo.org/record/4650821#。YGR0\_uT3aEd…**](https://t.co/Up3aI00aPi?amp=1)
-信息来源：2021年3月31日闫丽梦科学家推特
-#新冠病毒（中共病毒）
-#超限生物武器
-#超限科学信息战
+SARS-CoV-2的来源是一个引起全世界关注的问题。有人把它描绘成一个巨大的谜团，尽管这种病毒的实验室性质对受过训练的人来说是显而易见的。造成目前这种局面的根本原因是大规模、多领域、蓄意的科学误导。
 
-+4
+为了消除这种科学上的误导信息，揭露SARS-CoV-2的真实性质，我们发表了两份科学报告。我们的第一份报告用大量的证据和逻辑分析表明，为什么SARS-CoV-2一定是实验室产品，以及如何按照众所周知的概念和现有的技术方便地制造它。 我们的第二份报告揭露了这是一个大规模的、有组织的科学骗局，通过这个骗局，SARS-CoV-2作为一种不受限制的生物武器的性质被暴露无遗。
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-26-112513.jpg)
+
+
+*图片来源：NEW YORK POST*
+
+我们的努力立即遭到了巨大的阻力。在第一份报告发表后十天内，就有两个自称是 “同行评审”的人出来专门批评我们的报告。第一篇评论是由吉吉-格隆瓦尔博士（ Dr. Gigi Gronvall）
+
+领导的约翰-霍普金斯健康安全中心的四位科学家发表的。第二篇评论发表在麻省理工学院出版社，由罗伯特-加洛博士（Dr. Robert Gallo）领导的四位科学家编写。
+
+虽然我们欢迎对我们的报告进行批评性审查，但这种审查必须是诚实的、合乎逻辑的、以证据为基础的，并由合格的科学家提出。然而，这两份审查不符合任何标准。不幸的是，这些差劲的评论还是被媒体用来诽谤我们的报告。把实验室起源的理论说成是 “阴谋论”，并进一步压制SARS-CoV-2起源的真相。
+
+在这些媒体报道的基础上，中共政权又更加放大了自己的声音，宣传SARS-CoV-2一定来自自然界的伪证理论。为了继续打击和战胜科学误导，我们在此对这些评论进行点对点的回应。文件的第一部分是我们对麻省理工学院出版社评论的回应。第二部分是我们对约翰-霍普金斯健康安全中心发表的评论的回应。我们还在开头加了一个简要陈述，总结了 “不受限制的科学误导 “的主要事件，包括与中共政权关系密切的人实施的各种掩饰，以及闫博士为揭露COVID-19的真相所做的持续努力。
+
+我们真诚地希望这份文件能够帮助世界认识到目前正在进行的误导信息风潮，认识到SARS-CoV-2病毒是中共政权研制的一种超限生物武器。我们认为，认识到这一点对于战胜COVID-19大流行病和保护全球社会免受未来生物武器攻击至关重要。
+
+[Combined\_responses\_1.pdf](https://zenodo.org/record/4650821/files/Combined_responses_1.pdf?download=1)
+
+信息来源：
+
+[https://zenodo.org/record/4650821#.YGSMqq9KhPY](https://zenodo.org/record/4650821#.YGSMqq9KhPY)
+
+翻译/校对/发稿：Helen
+
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
+
+
+0
