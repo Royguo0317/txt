@@ -1,32 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【新闻宅急便】美英加澳日等14国关于WHO报告的联合声明
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1039510/)
+## 闫丽梦科学家第三份科学报告出台
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1040634/)
 
-翻译：喜马拉雅东京樱花团Porsche
-
-![](https://lh5.googleusercontent.com/XQWNa3r0jlMQjA0SFG1DOJbpIBWNVyfb4CRQHM5kLJDiZxzvHsRIJANJIhR6VrIQLUODDpvId6vDXLmuLlG3IDPgq6-kNAPrpMLfYLRetBS_Y5ve8Eos20IbfKV74Cm2obfhQG0V)
-[图片链接](https://d2v9ipibika81v.cloudfront.net/uploads/sites/290/State-Department-1140x684.jpg)
-
-澳大利亚、加拿大、捷克、丹麦、爱沙尼亚、以色列、日本、拉脱维亚、立陶宛、挪威、大韩民国、斯洛文尼亚、英国和美国政府，仍然坚定不移地致力于与世界卫生组织(世卫组织)、肩负重要使命的国际专家和国际社会合作，了解这一流行病的根源，以改善我们的集体全球卫生安全和应对措施。我们共同支持在不受干扰和影响的情况下，对COVID-19大流行病的起源进行透明、独立的分析和评估。在这方面，我们共同对世卫组织最近在中国开展的研究表示关切，同时强调必须共同努力，制定和使用一个迅速、有效、透明、以科学为基础的独立程序，以便在今后对此类来源不明的疫情进行国际评估。
-
-世卫组织的使命对于推进全球卫生和健康安全至关重要，我们全力支持其专家和工作人员，并肯定他们为结束COVID-19大流行所做的不懈努力，包括了解该大流行病是如何开始和蔓延的。同样重要的是，我们对关于SARS-CoV-2病毒来源的国际专家研究被严重拖延、且无法获得完整的原始数据和样本，表示共同的关切。因为像这样的科学考察团，应该能够在“可以提出独立和客观的建议和结论的条件下”开展工作。我们对这些问题有同样的关切，不仅是为了尽可能了解这一流行病的起源，而且也是为了给这项研究的下一阶段的推进、以及下一次健康危机的解决，铺设一条及时、透明、以证据为基础的进程道路。
-
-我们注意到有关研究结果和建议，包括对动物的进一步研究、以找到从动物引入到人类的手段。我们敦促为专家主导的这个第二阶段的研究提供动力。 展望未来，世卫组织和所有会员国现在必须对准入调查、透明度和及时性作出新的承诺，以便在一种具有大流行潜力的未知病原体严重爆发时，能够对其来源进行快速、独立、专家主导和不受阻碍的评估，让我们的人民、公共卫生机构、行业和政府能更好地做好准备，这对成功地应对突然爆发的大流行病和预防未来的大流行病至关重要。 独立专家必须能够充分接触到所有相关的人员、动物、科研和环境数据、以及在疫情爆发早期阶段涉及的相关人员，以确定疫情是如何出现的。有了所有数据，国际社会就可以独立评估COVID-19的起源，从这次大流行病中吸取宝贵的教训，并防止未来疾病爆发的破坏性后果。
-
-我们强调，需要建立一个强有力的、全面的、由专家领导的机制，在所有利益攸关方充分和公开合作的情况下，按照透明、尊重隐私、科学和研究诚信的原则，迅速调查来源不明的疾病爆发。我们将与世卫组织通力合作，增强我们的能力，提高全球卫生安全，激发公众对世界检测、预防和应对未来疫情能力的信心和信任。
-
-[英文内容链接](https://www.state.gov/joint-statement-on-the-who-convened-covid-19-origins-study/)
-
-*免责申明：本文只代表作者观点，与GNews网站无关。*
-
-*校对：喜马拉雅东京樱花团 / 文小白*
-*责任编辑：喜马拉雅东京樱花团 / 煙火1095*
-*发布：喜马拉雅东京樱花团 /煙火1095*
-![]()![](https://gnews.org/wp-content/uploads/2021/03/二维码-10.jpg)
-0331C212e
+**西班牙巴塞罗那喜悦农场** wenwu
 
 
+
+> The 3rd Yan Report is published!
+> 
+> The Wuhan Laboratory Origin of SARS-CoV-2 and the Validity of the Yan Reports Are Further Proved by the Failure of Two Uninvited "Peer Reviews"
+> Link:[https://t.co/Up3aI00aPi](https://t.co/Up3aI00aPi)[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)[#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedScientificMisinformation](https://twitter.com/hashtag/UnrestrictedScientificMisinformation?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/j2q7hpgAnj](https://t.co/j2q7hpgAnj)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [March 31, 2021](https://twitter.com/DrLiMengYAN1/status/1377248049093828611?ref_src=twsrc%5Etfw)
+
+
+**`第三次闫丽梦科学家科学报告已发布！两次未经邀请的“同行评审”的链接失效，进一步证明了SARS-CoV-2的武汉实验室起源。`**
+闫博士第三份报告的有效性链接：[**https://zenodo.org/record/4650821#。YGR0\_uT3aEd…**](https://t.co/Up3aI00aPi?amp=1)
+信息来源：2021年3月31日闫丽梦科学家推特
+#新冠病毒（中共病毒）
+#超限生物武器
+#超限科学信息战
 
 +4
