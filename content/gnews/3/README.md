@@ -1,25 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫丽梦科学家第三份科学报告出台
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1040634/)
+## 重磅！闫丽梦博士发表了第三份重磅报告，点对点回应质疑评论
+` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1040868/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
+编撰：WLQF
 
+北京时间2021年3月31日晚，**前香港大学公共卫生学院传染病研究中心的病毒和免疫学科学家闫丽梦在****Zenodo****发表了第三份关于****COVID-19****的重磅报告，报告标题为《两次不请自来的**** “****同行评议**** “****失败，进一步证明了****SARS-CoV-2****的武汉实验室起源和闫丽梦博士报告的有效性”》。**
 
+![]()![](https://gnews.org/wp-content/uploads/2021/03/截屏2021-03-28-上午11.05.44.png)
 
-> The 3rd Yan Report is published!
-> 
-> The Wuhan Laboratory Origin of SARS-CoV-2 and the Validity of the Yan Reports Are Further Proved by the Failure of Two Uninvited "Peer Reviews"
-> Link:[https://t.co/Up3aI00aPi](https://t.co/Up3aI00aPi)[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)[#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedScientificMisinformation](https://twitter.com/hashtag/UnrestrictedScientificMisinformation?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/j2q7hpgAnj](https://t.co/j2q7hpgAnj)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [March 31, 2021](https://twitter.com/DrLiMengYAN1/status/1377248049093828611?ref_src=twsrc%5Etfw)
+该报告指出，SARS-CoV-2的来源是一个引起全世界关注的问题。有人把它描绘成一个巨大的谜团，尽管这种病毒的实验室性质对受过训练的人来说是显而易见的。目前，造成这种局面的根本原因，是一种大规模、多领域、有意识的科学误导。
 
+为了打败这种科学误导，揭露SARS-CoV-2的真实面目，**闫丽梦博士**已经发表了两份科学报告。第一份报告用大量的证据和逻辑分析表明了为什么SARS-CoV-2一定是实验室的产物，以及如何按照众所周知的概念和既定的技术来方便地制造它。第二份报告揭露了一个大规模的、有组织的科学骗局，通过这个骗局揭示了SARS-CoV-2作为一种不受限制的生物武器的本质。
 
-**`第三次闫丽梦科学家科学报告已发布！两次未经邀请的“同行评审”的链接失效，进一步证明了SARS-CoV-2的武汉实验室起源。`**
-闫博士第三份报告的有效性链接：[**https://zenodo.org/record/4650821#。YGR0\_uT3aEd…**](https://t.co/Up3aI00aPi?amp=1)
-信息来源：2021年3月31日闫丽梦科学家推特
-#新冠病毒（中共病毒）
-#超限生物武器
-#超限科学信息战
+闫丽梦博士揭露新冠病毒真相的努力遭到了巨大的阻力。在闫丽梦博士的第一份报告发表后十天内，就有两篇自称 “同行评议 “的文章出来专门批评报。第一篇评论是由吉吉-格隆瓦尔博士领导的约翰-霍普金斯健康安全中心的四位科学家发表的。第二篇评论发表在麻省理工学院出版社上，由Robert Gallo博士领导的四位科学家编写。
 
-+4
+闫丽梦博士表示，“我们欢迎对我们的报告进行批评性评论，但这种评论必须是诚实的、合乎逻辑的、以证据为基础的，并由合格的科学家发起”。然而，这两份评论不符合任何标准。”不幸的是，这些差劲的评论还被媒体用来诽谤我们的报告，把实验室起源论说成是 “阴谋论”，并进一步压制SARS-CoV-2起源的真相。
+
+在这些媒体报道的基础上，中共政权又大肆放大自己的声音，宣扬SARS-CoV-2一定来自自然界的伪证理论。**为了继续打击和战胜科学的错误信息，闫丽梦博士发表了第三份重磅报告，在此对这些评论进行点对点的回应。**
+
+请点击以下链接下载闫丽梦科学家第三份科学报告：
+
+**[两次不请自来的 “同行评议 “失败，进一步证明了SARS-CoV-2的武汉实验室起源和闫丽梦博士报告的有效性”（The Wuhan Laboratory Origin of SARS-CoV-2 and the Validity of the Yan Reports Are Further Proved by the Failure of Two Uninvited “Peer Reviews”）](https://zenodo.org/record/4650821#.YGSRrEgza3W)**
+
+**该报告的第一部分是闫丽梦博士对麻省理工学院出版社评论的回应，第二部分是我闫丽梦博士对约翰****–****霍普金斯健康安全中心发表的评论的回应。**此外，闫丽梦博士还在报告开头加入了一个开场白，总结了 “不受限制的科学误导 “的主要事件，包括与中共政权关系密切的个人所执行的各种掩盖行为，以及闫丽梦博士自身为揭露COVID-19的真相所做的持续努力。
+
+在该份报告中，闫丽梦博士真诚地希望能够通过这份报告帮助世界认识到中国共产党正在进行的误导信息运动，并认识到SARS-CoV-2病毒是中共政权开发的一种不受限制的生物武器。**闫丽梦博士在报告中强调，认识到这一点对于战胜****COVID-19****大流行病和保护全球社会免受未来生物武器攻击至关重要。**
+
+0
