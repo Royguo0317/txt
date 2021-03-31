@@ -1,73 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 布林肯谈北约用共同的价值观防御
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1037375/)
+## 印度封锁字节跳动公司涉嫌逃税的银行账户
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1038735/)
 
-内容：
+俄罗斯莫斯科喀秋莎农场   银河
 
-First, it’s often easy to take good things granted.
-首先，人们通常很容易把的事情当作理所当然
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/B-4-18.jpg)
+路透社报道，印度当局已经封锁了中共字节跳动公司至少两个涉嫌逃税的银行账户，该公司担心这个指令会打击其业务要求法院予以撤销。
 
-And I think the last thing that we can afford to do now is to take this alliance for granted.
-我认为，我们现在最不能做的就是把这种（北约）联盟视为理所当然
+在中印边境冲突后，字节跳动抖音海外版TikTok软件首次被印度禁止使用。在新德里决定保留对视频应用TikTok的禁令后，字节跳动于今年1月在印度进行了裁员。该公司在印度有大约1300名员工，其中大多数为其海外业务服务，包括内容审核等工作。中共多次批评印度的举动，称其违反了世贸组织规则。
 
-We sometimes forget that it’s truly a remarkable institution, a remarkable initiative bringing
-我们有时会忘记，这是一个真正了不起的机构，一个了不起的计划
+3月中旬，有关部门下令封锁字节跳动在印度的花旗银行和汇丰银行两个银行账户，原因是字节跳动印度子公司与其新加坡母公司TikTok Pte Ltd之间的网络广告交易涉嫌逃税。当局还通知花旗银行和汇丰银行字节禁止字节跳动印度公司从与其税务识别号相关的任何其他银行账户提取资金。
 
-now 30 countries covering almost a billion people on a voluntary basis,
-在自愿的基础上现在覆盖30个国家近十亿人口
+字节跳动表示，“我们不同意税务机关在此事上的决定”，称公司致力于遵守当地法律，将与政府合作。
 
-and we come together around the shared values of democracy, freedom, openness and a rule
-我们走到一起以共同的民主、自由、开放
+花旗银行(Citibank)和汇丰银行(HSBC)拒绝置评，而中共财政部也没有回应置评请求。
 
-based international order, to make sure that countries can move forward peacefully.
-和基于规则的国际秩序的价值观，确保各个国家可以和平前进
+去年，印度以国家安全和主权利益为由，禁止了数十款中共应用程序，此举被广泛地与印度抵制中共企业联系在一起。此前，印中在喜马拉雅一处有争议的边境地区发生冲突导致20名印度士兵死亡。
 
-And I also think what is remarkable about it is NATO is really not defined by what
-我还认为，值得注意的是，北约并不由我们反对什么来定义
+字节跳动印度分公司表示，由于银行冻结，令整个业务陷入停顿，这种行为侵犯了其“开展自由贸易和业务”的权利。
 
-we are against, but by what we are for. That’s what’s bringing us together.
-而是由我们支持什么来定义，这就是我们走到一起的原因
+参考链接：
 
-But of course, these things we are for we will also stand up resolutely to protect and defend
-但是当然， 我们支持的这些东西，我们也将坚定的站起来保护和捍卫
+[https://www.reuters.com/article/us-bytedance-india-banks-exclusive/exclusive-india-freezes-bank-accounts-of-chinas-bytedance-in-tax-case-company-mounts-challenge-sources-idUSKBN2BM20F](https://www.reuters.com/article/us-bytedance-india-banks-exclusive/exclusive-india-freezes-bank-accounts-of-chinas-bytedance-in-tax-case-company-mounts-challenge-sources-idUSKBN2BM20F)
 
-when they are…they are under being challenged.
-当它们。。。它们正在遭受挑战
-
-* * *
-
-
-
-
-
-
-
-英听校：康州盘古农场 – Raul
-
-
-
-翻译：康州盘古农场 – Raul
-
-
-
-翻译终校：康州盘古农场 -Mike Li
-
-
-
-字幕+视频制作：康州盘古农场–天涯行
-
-
-
-审片**：**康州盘古农场–银龙
-
-
-
-发文：康州盘古农场–轰炸机
-
-
-
-
-
-+2
+0

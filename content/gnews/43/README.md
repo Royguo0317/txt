@@ -1,76 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 简说历史：揭露中共世纪骗局史1956~1960：“大跃进”
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1036842/)
+## 中共杀人无数&nbsp; 没有权利指责美国种族问题
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1038271/)
 
-- 作者：一颗星星
-- 制图：透明的遮羞布
+简述：郭先生在2021年3月19日的盖特视频中指出中共妄图用美国种族问题说事，为自己在新疆、香港等地的大屠杀洗地。他告诉美国朋友，中共的任何一次大屠杀的杀死的人的零头，都是美国历史上200多年的总和。
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年3月30日电/西喜社——**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/大跃进.jpg)
-毛在“双百运动”失败之后，并未停止保卫自己独裁统治的步伐。（本来是想借助高知清党整风，没想到弄成高知反党，最后迫不得已发动“反右”。）已经把“斗争”这一本质写进了血液里的毛，心中十分清楚，只有不断的发动运动，“与天斗、于地斗、与人斗”，在斗争中才能把自己的对手一个个清除。于是，依旧是中共“伟大领袖”的他，开始计划“大乱中求大治”。
+**中共杀人无数****  ****没有权利指责美国种族问题**
 
-毛首先推翻了周恩来、陈云等带领经济专家制定的前途看好的“第二个五年计划”。（1953年~1957年的“第一个五年计划”，在国家百废待兴的情况下，经济的发展与增长还是非常引人注目的。而“第二个五年计划”才是真正的经济建设的开始。）
+**CCP Has Committed Numerous Massacres and Has No Right to Accuse the US of the Race Problem**
 
-事情缘于1957年，苏联科学家放出了人类历史上的第一颗人造卫星，世界瞩目。而赫鲁晓夫同志也在毛面前大放厥词，扬言苏联要在十五年内超越美国。（1957年，毛访苏参加庆祝十月革命四十周年。）
+大概情况吧，就是中共这回来打的招儿叫种族歧视、种族大屠杀，就是美国你杀黑人。我就回答所有的这些欧洲的、美国的，说你怎么看这问题，我们该怎么办？很多人问。我说，很简单，你说共产党在西藏杀的人，新疆杀的人，还有杀的我们汉人、自己人、香港人，还有50几个其他民族，包括云南那几个小民族，像当年的水傣、汉傣。大家没有查过历史吧，在大理下关水傣和汉傣，那杀了多少人，我说他杀的任何一次零头，都是你美国历史上这200多年的总和。他没有任何资格指责你所谓的种族问题。
 
-一向好大喜功的毛，本就对周所制定的“二五计划”有所不满，一听此言顿时来了精神，于是便信口雌黄的吹出“中国要十五年超越英国”的“伟大目标”。借此机会，毛也正可以砸乱一切后“乱中取胜”。（**亲爱的读者朋友们，但凡有一些经济知识的朋友们都知道，一个国家经济的增长与目标，需要根据经济的发展规律，经过科学的论证、计划与实施，可不是上嘴唇一碰下嘴唇吹出来的。脚踏实地、实事求是的发展是世界上每一个正常国家的运作方式。无奈今天的中国，我们依旧能看到这种“冒进”，“假大空”现象的存在。）**
+Basically the Chinese Communist Party (CCP)’s countermeasure this time is called racial discrimination and genocide. They argued that you, the US killed black people. So, I answered all the European and American people who have asked the questions: “What’s your take on this? What do we do?” I said it’s very simple. You should say that the CCP killed people in Tibet, Xinjiang, and also Han, their own people, Hong Kong people, and people of more than 50 other ethnic groups, including a few small ethnic groups in Yunnan such as Shui Dai and Han Dai. People may have not checked this history. They [the CCP] have killed many people in Xiaguan Shui Dai and Han Dai in Dali. I said that the total number of people killed during America’s 200 years’ history is only a fraction of any single genocide they have committed. So they have no right to accuse you of the so-called race problem.
 
-回国后的毛先是在南宁会议中以“反对‘冒进’就是反革命、反马克思主义”为由要罢官周恩来。之后又竖起“三面红旗”，即“总路线”、“大跃进”、“人民公社”。（南宁会议后，周恩来亲书“检讨书”以检讨“反冒进”的错误，并主动请辞总理职务。周的“以退为进”并没有让他失去总理的职位，最终他在总理的职位直至去世。）
+美国历史上绝对有这个问题，我说但是中共正在扼杀，正在屠杀。而且此时此刻正在屠杀。这就是我说你们美国人要明白，共产党跟你玩的是你内部搞的种族大屠杀。我建议你们好好看一看印度的电影《白虎》，这是共产党真实的，向世界搞文化大革命，文化大革命输出，搞种族大革命，种族大革命输出，种族仇恨。然后最重要的是把世界上所有的问题，历史的全归你白人。我说打你们的所有的朱利安尼，打你川普，打你班农，打你美国所有的右派和极右派，打你共和党，所有的一招儿，你就是种族歧视。我说你的种族歧视和种族大屠杀，觉得实在差太远了，是你们有机会的时候了。
 
-所谓“大跃进”反映在城市的工商业中，便是“以钢为纲”的“土法大炼钢”。1957年中国的钢产量已经达到535万吨，国务院把1958年的钢产量订为650万吨。但是相对于毛所号召的“十五年赶超英国”，这一指标显然太慢。所以，在毛的心中，这一目标应该“翻一番”。但是650万吨的目标相对于当时中国的工业基础已属于超额，而毛提出的“翻一番”便属于绝对不可能完成的神话。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/大跃进2-2.jpg)
-不可一世的毛坚信群众的力量攻无不克、战无不胜。老蒋的四百万军队都被中共打得丢盔卸甲，凶狠美帝都在朝鲜战场上被英勇的志愿军“打败”。区区百万钢铁又算什么？中共向来都是“外行领导内行”，对于那些专家的意见更是不屑一顾了。所以在毛的“圣旨”下，1958年的钢产量被订在了“翻一番”的1070万吨。根据薄一波的回忆，及其它官方记录，1959年的钢产量被订在了更加荒唐的3000万吨；1962年则被订为8千万到1亿吨……
+“Of course this problem existed in American history,” I said, “but the CCP is committing mass killing, a massacre at this very moment.” I continued, “You Americans should understand that the CCP is playing you with the game called “internal racial genocide”. I suggest you all to take a good look at the Indian movie, named ‘White Tiger’. This is the CCP’s real plan – exporting and carrying out a Cultural Revolution in the world, exporting and carrying out a racial revolution, racial hatred, and most importantly, blaming you white people for all the world’s present and historical problems. I said, they use the same trick to beat every one of you, including Giuliani, Trump, Bannon, all the right-wing and far-right people in the US, and the republicans, blaming them for racial discrimination. I said, “Your racial discrimination and their genocide are totally not comparable, so this is your opportunity.”
 
-指标订的太高了，全国的钢厂根本办不到怎么办？为了响应毛主席的号召，为了完成生产指标，从秋季开始，全国各地便搞起了“全民大炼钢”。全国各省的省委书记也在主席面前夸下海口，使毛“龙心大悦”。
+“哎呀。”很多人说：“对呀，有道理。”我说是你们该反击的时候了，到底是种族歧视存不存在？到底种族大屠杀这俩之间是什么关系？哪个重要？关键问题你现在还在干，我说这就让全世界来调查调查吧，让把全世界来评评理吧，我说你干嘛不利用这次机会啊？
 
-为了博得“圣心”，于是乎各省市自治区的“土皇帝”们蜂拥而起，大炼钢铁。终于，老百姓们家中的铁锅、铁窗、铁床、铁门、铁锁、铁钉……凡是铁的东西统统上缴，全部被投进了土质小高炉。
+Many people said, “Yes, it makes sense.” I said, “It’s time for you [Americans] to fight back. Does racial discrimination really exist or not? What is its relationship with the [CCP’s] genocide? Which one is more serious? The key is that the CCP is still committing the crime at this moment.” I continued, “Let the whole world conduct an investigation, and let the whole world be the judge. Why don’t you take advantage of this opportunity?”
 
-上至大部长、大教授、大将军，下至贩夫走卒、毛头小孩，总之农民不下田，学生不入校，“夫妻不上床”，九千万人披挂上阵，没日没夜的大炼钢铁，最终炼出了几百万吨在工业上毫无用处的“铁疙瘩”……
+我说这个杨洁篪还有王毅，他俩都想争下一个常委，都想管外交常委，杨洁篪要退，王毅要上，他俩拼命地表现胳膊硬，擀面杖子硬，是吧？我说你让他表演吗，但你要借着这个表演，你要让全世界知道共产党杀了多少西藏人，杀了多少新疆人，杀了多少其他的水傣、汉傣，还有彝族人，杀了多少人。为什么那50几个民族越来越少，甚至是消失了，慢慢都杀掉了，都用各种所谓的政策，看上去美好的政策，把这种族都给灭了。
 
-而“大跃进”反映在乡村与农业方面，便是“以粮为纲”的“人民公社”了。在全国“土法大炼钢”，百万座“小高炉”的熊熊烈火照耀之下，中国农村就在党的要求下，百万个“初、高级合作社”在数周之内就被合并成26425个“人民公社”了。
+I said, “Yang Jiechi and Wang Yi both want to compete for the next slot for the Member of the Standing Committee and be in charge of foreign affairs in the Standing Committee. Yang Jiechi is retiring, and Wang Yi wants to go up. They both acted desperately to show that their arms are stronger and their rolling pin is harder than the other person, right?” I said, “you should let them keep acting, but you have to use this opportunity to let the world know how many Tibetans, Xinjiang people, Shui Dai and Han Dai people, and Nuosuo people that the CCP has killed. Why is the 50 ethnic groups’ population diminishing, even disappearing? Because they are killed gradually and eliminated by those seemly “good” policies [of the CCP’s].”
 
-“吃饭不要钱”这种“共产主义生活”也确确实实的在中国这片土地上实现了。有了“赶超英国”的目标，钢产量要翻番，粮产量自然也不能落后。毛号召大家“破除迷信，解放思想，发扬敢想、敢说、敢干的精神。”总共中央也提出了“人有多大胆，地有多大产”的口号。于是全国各地又掀起了粮食大跃进的高潮。这一“号角”吹响不久，各地便开始“放卫星”，捷报频传。
-![]()![](https://gnews.org/wp-content/uploads/2021/03/大跃进4.jpg)
-《人民日报》从1958年6月开始陆续刊登全国各县书记们报来的“喜报”。先是河南遂平县卫星人民公社爆出小麦亩产二千一百零五斤的新闻，算是放了第一颗“高产卫星”。
+更重要的事情，在香港现在，他在大屠杀，汉人是不是少数民族？汉人还是大族民族，杀少数民族你当然是大罪，杀汉族难道就不是罪吗？杀人都是罪。是吧？某CNN主持人，是吧？通过各方面的紧急联系，问我啥看法？你说我有啥看法，我就这么几个看法。郭文贵就是个小人物，狗屁不是，是不是？郭三秒、郭骗子、郭强奸、郭没钱，是吧？就这点儿吧？
 
-以后各地逐渐加码，到第29颗卫星出现在《人民日报》时，亩产已达七千三百二十斤。以后连地处高原的青海，也参加了这场“卫星”大合唱，打出八千五百八十五斤的牌子，镇住了各路“好汉”。
+“More importantly, they have a massacre in Hong Kong right now. Are the Han people an ethnic minority? No, the Han ethnic group is a big ethnic group. Of course, killing ethnic minorities is a huge crime, but isn’t killing the Han people a crime too? Any murder is a crime, right? A certain CNN host urgently contacted me through every channel, asking what my opinion is on this. What opinions can I have? I am nobody, and I have only some very small opinions which are nothing, right? I am the “Guo three second”, “Guo Liar”, “Guo Rapist”, and “Guo penniless”, ain’t I? That’s it.
 
-水稻就更神了，报上的数字一个比一个惊人，七千、一万、一万五，乃至湖北蹦出了三万七、安徽蹦了四万三的“奇迹”。到了九月份，一行特大铅字赫然出现在《人民日报》上：“广东穷山出奇迹，一亩中稻六万斤”。
+所以兄弟姐妹们，我告诉过大家，共产党一出手，都是对咱帮助，为什么？因为他的出发点全是内部政治斗争，是上海帮和习大神的斗争。你去看这两个坐在那的时候，看上去执行的都是你中央的命令，事实上都想的是明年谁来接着继续干，杨洁篪继续干，还是王毅上来，当所谓的管外交的委员。共产党一撅啥屁股，就知道它拉什么屎，啥心都不行。中国人死人，死一百万，一千万，一个亿，对他来讲，那简直是太小事了。
 
-为了说明此数字之不虚，那篇报导特地强调，省委秘书长在场验收，决非胡吹乱说。至于整个大跃进运动的头号冠军则属广西环江县，中稻亩产十三万斤！
+So brothers and sisters, let me tell you. Any move of the CCP will only help us. Why? Because their goal is all about internal political struggles, the struggles between the Shanghai Gang and the Great Xi God. So, when you see these two people (Wang and Yang) sitting there [during the meeting in Alaska], who seemed to be executing the orders of their central government, you should know that they were actually thinking about who could go up next, whether Yang Jiechi will continue to work, or Wang Yi will go up to become the so-called commissioner in charge of foreign affairs. So, [just like a dog] once the CCP moves its butt, you would know it’s going to shit. To them, it is such a trivial thing for the Chinese to die, no matter if it is one million, 10 million, or 100 million.
 
-8月间，湖北麻城县稻子亩产三万六千九百五十六斤的消息见报时，《人民日报》特别发布了一幅新闻照片，显示四个小孩站立在田间的稻穗上，照片下的说明是：“孩子们站在上面就像站在沙发上似的。”不过，这个奇迹很快又落伍了。一个月之后，又一幅照片问世，其说明为：“三个人站在上面也压不倒。”
+你让王毅明天来接杨洁篪，管外交的委员，甚至进常委，中国死一半他都不在乎，这就是共产党的邪恶，没有一个人想中国人跟那他一样的。他认为中国人都是贱民、下等人、中下等人，他是上等人，上等人。这是每个进了中南坑所谓当了中央候补委员，到中央委员到政治局常委，每个人的心理。信不信，你自己看着办吧。我接触的中央，不管任何人只要到了上面这个层次以后，不管他保持什么样的生活形式，内心的世界的变化都有这样的，他认为他有…甚至是神，甚至是菩萨，甚至佛祖的代言人，甚至是化身。然后中国老百姓，其他人都是下等人、中等人。这就是真正的中国现在的状态，没有这个国家、这个民族现在在扯淡的。他说的是一切话，做的一切事，都是为了他自己，中间这一块，然后还有嘴上这一块，啥都是扯蛋。所以说到这儿，咱就不讲了，看着吧，接下来的热闹大了！
 
-制造新闻的不光是报纸，还有党的宣传部控制的电影制片厂，尤其是党的一大喉舌中央新闻纪录电影制片厂。该厂在大跃进闹得最红火的时候制造了一系列荒唐透顶的消息，比《人民日报》有过之而无不及。
+If you ask Wang Yi to replace Yang Jiechi tomorrow to become the committee member in charge of foreign affairs, and even the member of the Standing Committee, he wouldn’t care if half of Chinese people will die or not. This is the evilness of the CCP. None of them think that ordinary Chinese people are their equals. He believes that Chinese people are all pariahs, inferiors, or the middle class at most, but he himself is superior. Everyone who has entered the Zhongnan Pit and become the so-called alternate member of the Central Committee, the member of the Central Committee, or the Standing Committee of the Politburo, thinks like this, believe it or not. You can figure it out by yourself. Among those whom I have contacted with, whenever a person has reached to a level high enough, no matter what kind of life style he still maintains, he must have experienced this kind of psychological change. He would think he is now a god, a Bodhisattva, and even the spokesperson of the Buddha or its incarnation, and believe that the other Chinese people are inferior or just middle-class. This is the true state of China now. They claim that what they are doing is for the country and the nation. It is all nonsense. What they do and what they say are all for themselves. Everything that they said is nonsense. So I’ll stop here on this. Let’s see what will happen, it will be fun to watch.
 
-它拍摄了一部《沸腾的广西》。这是一部纪录片，里面有这么一个镜头：一群头戴草帽的农民在割稻子，右边沉甸甸的稻穗上散乱地放著几迭茶碗，一只显然盛满开水的大木桶，桶上写著两个大字：“请茶”。字幕上出现这个镜头的同时，画外的解说词是：“罗城县创造了稻子亩产十三万斤的高产卫星。”
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60549ba5e9fc754b3e12be14](https://gtv.org/getter/60549ba5e9fc754b3e12be14)
+鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/990799/](https://www.gnews.org/zh-hans/990799/)
 
-这部纪录片还有一个同样惊人的新闻：某人民公社“放射了震惊全国的日产铁二十万吨的大卫星”。后来这部片子的摄制者还撰文介绍这个公社：“这是多么了不起啊！他们一天的干劲，等于完成全广西1958年全年的产铁任务。” （《电影画报》一九五九年第二期）
+* * *
 
-**亲爱的读者们，就算在科技如此发展的今天，纵观全世界，又有哪个国家的能达到当时“人民日报”所报的亩产数量呢？中共的宣传主媒竟能面不改色心不跳，厚颜无耻的向全国人民，向全世界编造谎言吹牛皮……（至今未改）悲哉！那一段时期的《人民日报》和党媒的纪录片新闻必将在历史中成为让后人怡笑千载的笑柄……**
+字幕：【XO小粉红】校对：【BruhM】视频解码：【恒久忍耐】推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-可能有的读者心中会有疑问：为何没有说真话的记者、公知、干部站出来？读过前面的小节，再略加思考，您就会很清楚：谁敢站出来？
-
-一场“双百运动”之后的“反右”把数以万计肯说真话的党内外新闻工作者及高知打成“右派”，全部去“蹲牛棚”劳动改造去了。剩下的不是秋后寒蝉，便是“墙头草”，不可能指望这些人挺身而出做批评，说真话。
-
-就连身居高位的周恩来、刘少奇、邓小平等都跟着配合鼓吹，其他人又有何本事“扭转乾坤”呢？中共就是用这种“斗争”的高压方式，把党内、党外，从上到下治理的服服帖帖。（时至今日的中共，依旧在走这条“斗争”的老路。）
-
-当时中共对农村粮食征集的政策美其名曰“统购统销”：粮、油、棉、麻等主要农产品，除了政府规定的可以留给农民自己食用的份额之外的部份，全部由国家统一收购、统一经销。
-
-名曰“卖余粮”，其实是国家先预订一个全国的收购总指标，分配到各省各地，这是“国家任务”，必须完成的。各地“县官老爷们”为了向中央献媚讨好表忠心，“放卫星”、“亩产万斤粮”的牛皮吹的震天响，“国家的任务”可是要根据吹出的“牛皮”实额上缴的。
-
-粮库的粮食不够怎么办？缴口粮，甚至是种籽粮也要凑数上缴。再加上“大跃进”和“人民公社”在全国各地的全面铺开，全国各行业的人力、物力、财力都受到了严重的影响。这种影响在以后的两年中直接造成了几千万人的死亡。这，便是中共口中所谓的“三年自然灾害”。
-
-编辑：蚂蚁兄弟；校对：阿伯塔；发稿：神奇四侠
-
-- [西班牙巴塞罗那喜悦农场：简说历史专栏](https://gnews.org/zh-hans/1032524/)
-- [上一篇：简说历史：揭露中共世纪骗局史1956~1960：“人民公社”](https://gnews.org/zh-hans/1036706/)
-- [下一篇：简说历史：揭露中共世纪骗局史1956~1960：“三年自然灾害”](https://gnews.org/zh-hans/1036987/)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募-7.jpeg)
-0
++2
