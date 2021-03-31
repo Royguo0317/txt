@@ -1,56 +1,96 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共杀人无数&nbsp; 没有权利指责美国种族问题
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1038271/)
+## 澳大利亚国会网络疑似被中共国黑客入侵
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1038538/)
 
-简述：郭先生在2021年3月19日的盖特视频中指出中共妄图用美国种族问题说事，为自己在新疆、香港等地的大屠杀洗地。他告诉美国朋友，中共的任何一次大屠杀的杀死的人的零头，都是美国历史上200多年的总和。
+新闻来源：《Daily Mail每日邮报》| 作者：娜拉·马佐尼（Alana Mazzoni）| 发布时间：2021年3月28日
+
+翻译/简评：wmorpho | 校对：SilverSpurs7 | 审核：万人往 | Page：青山
+
+[!\[\]()!\[\](https://spark.adobe.com/page/TbDdglGSQUk0B/images/f52c4e81-75df-4d4b-9b9c-f751b947c61c.jpg?asset_id=982ac407-4031-4182-8b4d-31fd30aba851&amp;img_etag=%22268eda6727663a2790568d4dada63204%22&amp;size=1024)](https://spark.adobe.com/page/TbDdglGSQUk0B/images/f52c4e81-75df-4d4b-9b9c-f751b947c61c.jpg?asset_id=982ac407-4031-4182-8b4d-31fd30aba851&amp;img_etag=%22268eda6727663a2790568d4dada63204%22&amp;size=1024)
+
+**简评：**
+
+在澳大利亚与中共国的关系日趋紧张的情况下，澳大利亚国会网络周日疑似被中共国黑客入侵，莫里森政府由于担心正在遭受“网络攻击”，被迫切断电子邮件的使用权限。不仅如此，澳大利亚的媒体网络同时也遭到了严重的网络攻击，迫使九号电视台的许多重要的周末节目被迫停播。澳大利亚联邦警察已了解到一起目前针对英联邦议员和澳大利亚高级职员的讯息骗局，假装从值得信赖的同事发出的讯息请求。该骗局起源于WhatsApp，会要求消息接收者下载Telegram应用程序以“进一步交流”。澳大利亚联邦警察建议收件人不要回应这类讯息或将任何双重身份验证代码发送给发件人。在此之前，澳大利亚媒体巨头——《悉尼先驱晨报》和《时代报》的拥有者——表示正在应对“技术问题”。
+
+中共国黑客入侵西方政府网络、盗取政府职员信息的事件层出不穷。几年前美国联邦政府的网络就被中共国的黑客入侵过，很多职员的个人信息落入中共国的手中，相信在美国联邦政府工作过的人都接到过政府就被黑客入侵的事件说明情况的信件。不久之前，美国加州政府的网络也被黑客入侵过，其手段就是通过电邮植入病毒，还有通过微软办公软件360的网络登录漏洞来入侵，迫使加州政府不断升级网络系统的安全措施，而职员则不停地更改登录方式和密码，造成了极大的不便和障碍。中共国的险恶不仅仅是盗窃信息，还有投放恐惧和威胁的目的，有被盗取信息经验的人都会对身边的人增加疑虑，因为带有病毒的软件往往是来自熟悉的人，因为信任才会不设防而中毒。中共国的流氓行径已经不加遮掩，它已经开始全方位地放毒，用大外宣在意识领域放毒，用黑客在网络放毒，用无良科学家在全世界释放人造冠状病毒，人类的身心正在遭受前所未有的侵害，再不消灭中共这个邪恶的怪兽，长久以来人们口中的人类大劫难就会真的发生！
+
+**原文翻译：**
+
+## **在令人担忧的“网络攻击”中，莫里森政府被迫切断电子邮件访问，担心国会大厦被中共国黑客入侵**
+
+**• 政府切断了国会大厦的电子邮件使用权限以对抗网络攻击**
+
+**• 安德鲁·哈斯蒂（Andrew Hastie）表示，议会IT系统受到外国行动者的攻击**
+
+**• 国会事务部在周日向国会工作人员发送了一封电子邮件**
+
+[!\[\]()!\[\](https://spark.adobe.com/page/TbDdglGSQUk0B/images/12f36548-60be-4403-a4e8-44407f97c55b.jpg?asset_id=b03d894b-7c2c-4274-ac0e-a36820281a38&amp;img_etag=%2240cb96664435d1736b6c77ca616a0fef%22&amp;size=2560)](https://spark.adobe.com/page/TbDdglGSQUk0B/images/12f36548-60be-4403-a4e8-44407f97c55b.jpg?asset_id=b03d894b-7c2c-4274-ac0e-a36820281a38&amp;img_etag=%2240cb96664435d1736b6c77ca616a0fef%22&amp;size=1024)联邦政府切断了国会大厦电子邮件的使用权限，以对抗发生在周六中午开始的网络攻击
+
+[!\[\]()!\[\](https://spark.adobe.com/page/TbDdglGSQUk0B/images/c6b63d07-37b1-451a-9168-978257338b3b.jpg?asset_id=1d7d36e8-dfcd-43cd-88b2-8a7929dc3c04&amp;img_etag=%22ab59beb1f8e30f51cb86c9740d1baac0%22&amp;size=2560)](https://spark.adobe.com/page/TbDdglGSQUk0B/images/c6b63d07-37b1-451a-9168-978257338b3b.jpg?asset_id=1d7d36e8-dfcd-43cd-88b2-8a7929dc3c04&amp;img_etag=%22ab59beb1f8e30f51cb86c9740d1baac0%22&amp;size=1024)政府消息人士称，澳大利亚议会的IT系统正受到“外国行动者”的攻击，这引发了人们对中澳两国关系恶化后中共国卷入其中的担忧。图片：中共国国家主席习近平
+
+国会事务部发言人说：“国会事务部正在努力调查事故的原因，作为流程的一部分，澳大利亚网络安全中心正在协助并提供建议。”
+
+国会事务部周日向其工作人员发送了一封电子邮件，通知他们这起紧急事件正在调查当中。
+
+电子邮件说：“信息通信技术中断目前影响到各种信息通信技术的服务，包括电子邮件、日历以及智能手机和平板电脑上的通讯录。”
+
+在援助团队进行调查时，国会事务部工作人员被告知其存储在其设备上的电子邮件、日历活动和通讯录“必须保持可使用状态”。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/TbDdglGSQUk0B/images/adfb1cbc-3c96-4dc7-9961-08f9f701b127.jpg?asset_id=34e06937-ad61-45fe-af4a-ec0ac1d880c1&amp;img_etag=%224adaf10c6aca0ac6174902a17a5718c5%22&amp;size=2560)](https://spark.adobe.com/page/TbDdglGSQUk0B/images/adfb1cbc-3c96-4dc7-9961-08f9f701b127.jpg?asset_id=34e06937-ad61-45fe-af4a-ec0ac1d880c1&amp;img_etag=%224adaf10c6aca0ac6174902a17a5718c5%22&amp;size=1024)国会事务部在周日向其工作人员发送了一封电子邮件，通知他们这起紧急事件正在调查当中。
+
+民政事务发言人克里斯蒂娜·肯尼利（Kristina Keneally）说，她不会对此事进行臆测，但透露政府会向工党通报情况。
+
+消息还显示，潜在的讯息骗局正在酝酿之中，会影响到包括财政部长西蒙·伯明翰在内的高级部长们。
+
+声明说：“澳大利亚联邦警察已了解到目前针对英联邦议员和澳大利亚高级职员的讯息骗局，假装为从值得信赖的同事发出的讯息请求。”
+
+该骗局起源于WhatsApp，会要求消息接收者下载Telegram应用程序以“进一步交流”。
+
+澳大利亚联邦警察表示，该讯息请求“不是真的”，其目的是要从人们的手机中获取信息。
+
+建议收件人不要回应这类讯息或将任何双重身份验证代码发送给发件人。
+
+澳大利亚联邦警察还敦促他们将消息的屏幕截图发送给澳大利亚联邦警察，并保留原始消息，以供随后的澳大利亚联邦警察技术分析和证据使用。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/TbDdglGSQUk0B/images/08d17993-e581-42d4-9881-13181064def3.jpg?asset_id=b4186ca9-a344-4fc6-bfa4-3366dff8d7a2&amp;img_etag=%224858e0f1f70fe8866463f21ff2e569e1%22&amp;size=2560)](https://spark.adobe.com/page/TbDdglGSQUk0B/images/08d17993-e581-42d4-9881-13181064def3.jpg?asset_id=b4186ca9-a344-4fc6-bfa4-3366dff8d7a2&amp;img_etag=%224858e0f1f70fe8866463f21ff2e569e1%22&amp;size=1024)消息还显示，潜在的讯息骗局正在酝酿之中，会影响到包括财政部长西蒙·伯明翰在内的高级部长们。
+
+这是在九号电视台透露其已成为网络攻击的目标之后发生的，九号电视台的网络在悉尼以外地区的直播节目遭到破坏。
+
+这家澳大利亚广播公司证实，由于系统出现了网络攻击而无法在周日早上播出《今日周末》和《周日体育》节目。
+
+在给员工的说明中，九号电视台的员工与文化总监凡妮莎·莫利告诉全国所有员工在家中工作，直到另行通知。
+
+她写道：“我们的IT团队正在全天候工作，以完全恢复我们的系统，这些系统主要影响了广播和企业业务部门。”
+
+“出版和广播系统还在继续运作。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/TbDdglGSQUk0B/images/71cbd529-64bf-47a5-bb24-85cd194e15fb.jpg?asset_id=1850a73c-fe1d-440c-baf2-8990e48cc7d2&amp;img_etag=%22d75d547c0bfae75cbbe469f84b4b2bf7%22&amp;size=2661)](https://spark.adobe.com/page/TbDdglGSQUk0B/images/71cbd529-64bf-47a5-bb24-85cd194e15fb.jpg?asset_id=1850a73c-fe1d-440c-baf2-8990e48cc7d2&amp;img_etag=%22d75d547c0bfae75cbbe469f84b4b2bf7%22&amp;size=1024)《今日周末》节目主持人理查德·威尔金斯（中）在推特上宣布，九号电视台出现技术故障。后来发现其网络被黑客入侵
+
+莫利女士说，尽管电子邮件似乎没有受到影响，但员工预期可以“感受到对九号电视台IT网络的破坏”。
+
+在公司颁布“若干突发事件”之后，九号电视台的《国家橄榄球联盟》、下午六时的《新闻简报》和《周日晚间》报道，包括《60分钟》和《一见钟情》仍按计划播出。
+
+此前，澳大利亚媒体巨头——《悉尼先驱晨报》和《时代报》的拥有者——表示正在应对“技术问题”。
+
+影子财务大臣吉姆·查默斯（Jim Chalmers）将这种情况描述为“严重”。
+
+他对布里斯班斯普林伍德郊区的记者说：“这些都是令人担忧的报道。”
+
+“我们在这里听到的是对媒体组织的一次严重而复杂的针对性攻击。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/TbDdglGSQUk0B/images/78eece6e-32d8-40a3-aa6b-0838d8d056c9.jpg?asset_id=e3a098eb-b042-4381-a30d-6f32c4332224&amp;img_etag=%2293d7ba71ca3d8c446fcc693b1e2d9bea%22&amp;size=3158)](https://spark.adobe.com/page/TbDdglGSQUk0B/images/78eece6e-32d8-40a3-aa6b-0838d8d056c9.jpg?asset_id=e3a098eb-b042-4381-a30d-6f32c4332224&amp;img_etag=%2293d7ba71ca3d8c446fcc693b1e2d9bea%22&amp;size=1024)九号电视台的一名员工在控制室分享了出现错误的屏幕图像，网络被迫放弃了其周末节目
+
+🔗[原文链接](https://www.dailymail.co.uk/news/article-9411315/Parliament-House-outage-caused-Chinese-cyber-attack.html)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-**中共杀人无数****  ****没有权利指责美国种族问题**
+[!\[\]()!\[\](https://spark.adobe.com/page/TbDdglGSQUk0B/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/TbDdglGSQUk0B/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-**CCP Has Committed Numerous Massacres and Has No Right to Accuse the US of the Race Problem**
-
-大概情况吧，就是中共这回来打的招儿叫种族歧视、种族大屠杀，就是美国你杀黑人。我就回答所有的这些欧洲的、美国的，说你怎么看这问题，我们该怎么办？很多人问。我说，很简单，你说共产党在西藏杀的人，新疆杀的人，还有杀的我们汉人、自己人、香港人，还有50几个其他民族，包括云南那几个小民族，像当年的水傣、汉傣。大家没有查过历史吧，在大理下关水傣和汉傣，那杀了多少人，我说他杀的任何一次零头，都是你美国历史上这200多年的总和。他没有任何资格指责你所谓的种族问题。
-
-Basically the Chinese Communist Party (CCP)’s countermeasure this time is called racial discrimination and genocide. They argued that you, the US killed black people. So, I answered all the European and American people who have asked the questions: “What’s your take on this? What do we do?” I said it’s very simple. You should say that the CCP killed people in Tibet, Xinjiang, and also Han, their own people, Hong Kong people, and people of more than 50 other ethnic groups, including a few small ethnic groups in Yunnan such as Shui Dai and Han Dai. People may have not checked this history. They [the CCP] have killed many people in Xiaguan Shui Dai and Han Dai in Dali. I said that the total number of people killed during America’s 200 years’ history is only a fraction of any single genocide they have committed. So they have no right to accuse you of the so-called race problem.
-
-美国历史上绝对有这个问题，我说但是中共正在扼杀，正在屠杀。而且此时此刻正在屠杀。这就是我说你们美国人要明白，共产党跟你玩的是你内部搞的种族大屠杀。我建议你们好好看一看印度的电影《白虎》，这是共产党真实的，向世界搞文化大革命，文化大革命输出，搞种族大革命，种族大革命输出，种族仇恨。然后最重要的是把世界上所有的问题，历史的全归你白人。我说打你们的所有的朱利安尼，打你川普，打你班农，打你美国所有的右派和极右派，打你共和党，所有的一招儿，你就是种族歧视。我说你的种族歧视和种族大屠杀，觉得实在差太远了，是你们有机会的时候了。
-
-“Of course this problem existed in American history,” I said, “but the CCP is committing mass killing, a massacre at this very moment.” I continued, “You Americans should understand that the CCP is playing you with the game called “internal racial genocide”. I suggest you all to take a good look at the Indian movie, named ‘White Tiger’. This is the CCP’s real plan – exporting and carrying out a Cultural Revolution in the world, exporting and carrying out a racial revolution, racial hatred, and most importantly, blaming you white people for all the world’s present and historical problems. I said, they use the same trick to beat every one of you, including Giuliani, Trump, Bannon, all the right-wing and far-right people in the US, and the republicans, blaming them for racial discrimination. I said, “Your racial discrimination and their genocide are totally not comparable, so this is your opportunity.”
-
-“哎呀。”很多人说：“对呀，有道理。”我说是你们该反击的时候了，到底是种族歧视存不存在？到底种族大屠杀这俩之间是什么关系？哪个重要？关键问题你现在还在干，我说这就让全世界来调查调查吧，让把全世界来评评理吧，我说你干嘛不利用这次机会啊？
-
-Many people said, “Yes, it makes sense.” I said, “It’s time for you [Americans] to fight back. Does racial discrimination really exist or not? What is its relationship with the [CCP’s] genocide? Which one is more serious? The key is that the CCP is still committing the crime at this moment.” I continued, “Let the whole world conduct an investigation, and let the whole world be the judge. Why don’t you take advantage of this opportunity?”
-
-我说这个杨洁篪还有王毅，他俩都想争下一个常委，都想管外交常委，杨洁篪要退，王毅要上，他俩拼命地表现胳膊硬，擀面杖子硬，是吧？我说你让他表演吗，但你要借着这个表演，你要让全世界知道共产党杀了多少西藏人，杀了多少新疆人，杀了多少其他的水傣、汉傣，还有彝族人，杀了多少人。为什么那50几个民族越来越少，甚至是消失了，慢慢都杀掉了，都用各种所谓的政策，看上去美好的政策，把这种族都给灭了。
-
-I said, “Yang Jiechi and Wang Yi both want to compete for the next slot for the Member of the Standing Committee and be in charge of foreign affairs in the Standing Committee. Yang Jiechi is retiring, and Wang Yi wants to go up. They both acted desperately to show that their arms are stronger and their rolling pin is harder than the other person, right?” I said, “you should let them keep acting, but you have to use this opportunity to let the world know how many Tibetans, Xinjiang people, Shui Dai and Han Dai people, and Nuosuo people that the CCP has killed. Why is the 50 ethnic groups’ population diminishing, even disappearing? Because they are killed gradually and eliminated by those seemly “good” policies [of the CCP’s].”
-
-更重要的事情，在香港现在，他在大屠杀，汉人是不是少数民族？汉人还是大族民族，杀少数民族你当然是大罪，杀汉族难道就不是罪吗？杀人都是罪。是吧？某CNN主持人，是吧？通过各方面的紧急联系，问我啥看法？你说我有啥看法，我就这么几个看法。郭文贵就是个小人物，狗屁不是，是不是？郭三秒、郭骗子、郭强奸、郭没钱，是吧？就这点儿吧？
-
-“More importantly, they have a massacre in Hong Kong right now. Are the Han people an ethnic minority? No, the Han ethnic group is a big ethnic group. Of course, killing ethnic minorities is a huge crime, but isn’t killing the Han people a crime too? Any murder is a crime, right? A certain CNN host urgently contacted me through every channel, asking what my opinion is on this. What opinions can I have? I am nobody, and I have only some very small opinions which are nothing, right? I am the “Guo three second”, “Guo Liar”, “Guo Rapist”, and “Guo penniless”, ain’t I? That’s it.
-
-所以兄弟姐妹们，我告诉过大家，共产党一出手，都是对咱帮助，为什么？因为他的出发点全是内部政治斗争，是上海帮和习大神的斗争。你去看这两个坐在那的时候，看上去执行的都是你中央的命令，事实上都想的是明年谁来接着继续干，杨洁篪继续干，还是王毅上来，当所谓的管外交的委员。共产党一撅啥屁股，就知道它拉什么屎，啥心都不行。中国人死人，死一百万，一千万，一个亿，对他来讲，那简直是太小事了。
-
-So brothers and sisters, let me tell you. Any move of the CCP will only help us. Why? Because their goal is all about internal political struggles, the struggles between the Shanghai Gang and the Great Xi God. So, when you see these two people (Wang and Yang) sitting there [during the meeting in Alaska], who seemed to be executing the orders of their central government, you should know that they were actually thinking about who could go up next, whether Yang Jiechi will continue to work, or Wang Yi will go up to become the so-called commissioner in charge of foreign affairs. So, [just like a dog] once the CCP moves its butt, you would know it’s going to shit. To them, it is such a trivial thing for the Chinese to die, no matter if it is one million, 10 million, or 100 million.
-
-你让王毅明天来接杨洁篪，管外交的委员，甚至进常委，中国死一半他都不在乎，这就是共产党的邪恶，没有一个人想中国人跟那他一样的。他认为中国人都是贱民、下等人、中下等人，他是上等人，上等人。这是每个进了中南坑所谓当了中央候补委员，到中央委员到政治局常委，每个人的心理。信不信，你自己看着办吧。我接触的中央，不管任何人只要到了上面这个层次以后，不管他保持什么样的生活形式，内心的世界的变化都有这样的，他认为他有…甚至是神，甚至是菩萨，甚至佛祖的代言人，甚至是化身。然后中国老百姓，其他人都是下等人、中等人。这就是真正的中国现在的状态，没有这个国家、这个民族现在在扯淡的。他说的是一切话，做的一切事，都是为了他自己，中间这一块，然后还有嘴上这一块，啥都是扯蛋。所以说到这儿，咱就不讲了，看着吧，接下来的热闹大了！
-
-If you ask Wang Yi to replace Yang Jiechi tomorrow to become the committee member in charge of foreign affairs, and even the member of the Standing Committee, he wouldn’t care if half of Chinese people will die or not. This is the evilness of the CCP. None of them think that ordinary Chinese people are their equals. He believes that Chinese people are all pariahs, inferiors, or the middle class at most, but he himself is superior. Everyone who has entered the Zhongnan Pit and become the so-called alternate member of the Central Committee, the member of the Central Committee, or the Standing Committee of the Politburo, thinks like this, believe it or not. You can figure it out by yourself. Among those whom I have contacted with, whenever a person has reached to a level high enough, no matter what kind of life style he still maintains, he must have experienced this kind of psychological change. He would think he is now a god, a Bodhisattva, and even the spokesperson of the Buddha or its incarnation, and believe that the other Chinese people are inferior or just middle-class. This is the true state of China now. They claim that what they are doing is for the country and the nation. It is all nonsense. What they do and what they say are all for themselves. Everything that they said is nonsense. So I’ll stop here on this. Let’s see what will happen, it will be fun to watch.
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60549ba5e9fc754b3e12be14](https://gtv.org/getter/60549ba5e9fc754b3e12be14)
-鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/990799/](https://www.gnews.org/zh-hans/990799/)
-
-* * *
-
-字幕：【XO小粉红】校对：【BruhM】视频解码：【恒久忍耐】推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-+2
++1

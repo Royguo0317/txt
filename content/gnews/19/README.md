@@ -1,31 +1,30 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日本和印尼2+2会谈应对中共扩张威胁
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1038473/)
+## 蓬佩奥：世卫组织是中共的同谋
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1039400/)
 
-俄罗斯莫斯科喀秋莎农场 奥法
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-编辑上传  水星
-![]()![](https://gnews.org/wp-content/uploads/2021/03/N-7.jpg)gnews
-03月30日NHK报道，日本和印度尼西亚就外交与国防问题举行了部长级会谈，对于中共正在加强海洋扩张的行为，两国决定共享关切的问题，并确认为实现“自由和开放的印度-太平洋地区”而进行合作。
+编辑上传  水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/图片3-34.png)
+难产的中共病毒报告终于问世，果不其然，世卫组织明目张胆地在众目睽睽下显露了原型，进一步证明了中共的邪恶，世卫组织与魔共舞，且看蓬佩奥国务卿第一时间的反应：
 
-这是日本和印度尼西亚之间第二次部长级会议，即所谓的“2+2”会议。日本外交部长茂木敏充和国防部长岸信夫与印尼外交大臣雷特诺(Retno) 和国防部长普拉博沃(Prabowo)参加了这次会议。整个会议大约持续了一个半小时。
+世卫组织的报告是中共-世卫组织虚假活动的欺骗延续，这就是我建议我们离开世卫组织的原因。
 
-会谈开始时，茂木敏充说：“中共正在加强向东中国海和南中国海的扩张。全球安全环境正在发生巨大变化，中共在强权背景下试图单方面改变现状，这将使我们不再能看到支持国际社会和平与繁荣的前提。我们希望将日本和印度尼西亚之间在安全领域的合作提高到一个更高的水平。”
+谭德塞与习近平合作，在关键时刻隐藏人与人之间的传播，武毒所仍然是最有可能的病毒来源，而世卫组织是同谋。
 
-此外，岸信夫表示，中共实施了《海警法》，允许中共海警局使用武器。然而，这个法律包含了与国际法一致性不符的规定，并且该法不得损害到包括日本和印度尼西亚在内的有关国家的合法利益。日本与印尼两国在这种严峻的安全环境中共同协作是非常重要的。
+用词之强烈，反应了蓬佩奥国务卿的愤怒。从中也得知，是蓬佩奥国务卿建议退出世卫组织的。
 
-会谈对中共目前正在加强海洋扩张的现状表示关切，并确认了日本与东南亚国家加强合作以实现“自由和开放的印度太平洋”的方针。
-
-最重要的是，两国同意加强自卫队和包括印度尼西亚武装部队在内的多国联合训练，支持提高印度尼西亚海岸警卫队的能力，并促进南中国海的偏远岛屿的发展。
-
-此外，两国对抗议缅甸军事政变而伤亡平民人数的增加感到担忧，同时两国也对如何应对朝鲜发射弹道导弹的问题交换了意见。
-
-会谈后，日本外交部长茂木敏充和印尼国防部长普拉博沃签署了一项协议。协议意在促进国防装备的转让和技术合作，以加强安全合作。
+静待观察拜登政府的反应。
 
 参考链接：
 
-[https://www3.nhk.or.jp/news/html/20210330/k10012945601000.html?utm\_int=news-politics\_contents\_list-items\_001](https://www3.nhk.or.jp/news/html/20210330/k10012945601000.html?utm_int=news-politics_contents_list-items_001)
 
-0
+
+> The WHO report is a sham continuation of the CCP-WHO disinformation campaign. It’s why I recommended we leave WHO. Dr. Tedros collaborated with Xi to hide human to human transmission at a CRITICAL juncture. WIV remains the most likely source of the virus — and WHO is complicit.
+> — Mike Pompeo (@mikepompeo) [March 30, 2021](https://twitter.com/mikepompeo/status/1376885317232386050?ref_src=twsrc%5Etfw)
+
+
+
++2
