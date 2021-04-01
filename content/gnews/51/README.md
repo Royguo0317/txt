@@ -1,49 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美国逾百名教授要求高校对华关系透明化
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1041460/)
+## 【班农战斗室】835-836-837期简讯
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1040566/)
 
-作者：纽约香草山农场 四季
+#### **翻译：七彩光**
 
+#### **校对****/编辑：文泓**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/813-814-2.png)
+图片来源：墨尔本雅典娜农场设计组（精灵蓝）
 
+**主持人：史蒂夫****.班农**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+**嘉宾：****Dr. Peter Navarro, Maureen Bannon, Bianca Gracia, Deirdre Hairston, Phillip Patrick, Ben Bergquam, Jesse Holguin, Tej Gill, Boris Epshteyn**
 
+#### **1、纳瓦罗：“福奇是个反社会者”**
 
+彼得.纳瓦罗（Peter Navarro）博士告诉《战斗室》，他有一个新的理论可用来解释托尼.福奇（Tony Fauci）博士的失败：他是一个“反社会者”。
 
-据《[华盛顿自由灯塔报](https://freebeacon.com/campus/professors-call-for-transparency-in-colleges-ties-to-china/)》3月31日的报道，超过100名的美国大学教授周二签署了一封联名信，要求他们的高校在与中共国政府的商业往来方面提高透明度。
+“以前我一直对他坚持这样的理论认识，即福奇只是一个糊涂的老人”，纳瓦罗周二说：“这家伙就是个反社会者，这是我对他新的理论认识。”
 
-这封信的签署是为了反对中共国政府3月份对三名教授和一个德国智库的新制裁而发起的。该项制裁是针对这些教授揭露了中共建立新疆维吾尔族穆斯林集中营的事实。著名的签署人包括被中共国直接制裁的斯坦福大学胡佛研究所访问学者、前国家安全副顾问博明（Matt Pottinger），以及带头反对康奈尔大学与北京保持亲密关系的康奈尔大学教授马格努斯-菲斯克斯约（Magnus Fiskesjö）。
+纳瓦罗说，他是在福奇周末接受美国有线电视新闻网（CNN）采访后得出这个结论的，在采访中福奇试图改写疫情早期的（真实）历史。
 
-信中写道：“自由民主国家的大学和研究机构也有责任应对跨国学术压制，保护观点的多样性。至少，这要求与专制国家的对应方签署的协议具有真正的透明度，在所有此类安排中优先考虑研究、教学、思想和表达的自由，确保了解此类国家情况的学者在决策中进行有意义的协商和参与，并承认和补偿由于制裁对初级和中级工作人员的职业发展造成的风险。”
+福奇现在正为疫苗邀功，然而就是他把美国纳税人的钱送给武汉病毒研究所，资助中共进行导致这场新冠疫情的病毒研究。
 
-中共所实施的“蓝金黄”渗透之深，严重危害各国的国家安全，尤其通过其“千人计划”侵入教育、科技等领域，破坏学术自由，盗窃知识产权。现在，中共又通过生化武器制造了肆虐全球的中共病毒灾难，唯有灭共，才能还世界和平。
+“福奇是个反社会的人”，纳瓦罗说：“他创造了武汉实验室功能性增强研究而获得的转基因病毒，现在巴西的变异冠状病毒毒株(正在侵入美国)。”
 
-参考阅读：
+#### 2、拜登的边境政策是“实际上的谋杀”：可怕的巴西新冠病毒变异毒株患者正涌入美国
 
-[Professors Call for Transparency in Colleges’ Ties to China](https://freebeacon.com/campus/professors-call-for-transparency-in-colleges-ties-to-china/)
+彼得.纳瓦罗（Peter Navarro）博士说，乔.拜登（Joe Biden）的开放边境政策是一场“真实有效的谋杀”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-1.jpg)
+纳瓦罗警告《战斗室》，在拜登的边境危机期间，将有数以万计的美国人死于巴西冠状病毒（变异）毒株的渗入。
 
-编辑/校对：雪梨
+“现在这些变异的病毒正通过边境输入”,他说：“乔.拜登领导下的边境政策实际上是谋杀，它会杀死成千上万的美国人，即将成为现实。”
 
-发稿：Irene木木
+纳瓦罗在2020年1月就开始直面中共病毒的肆虐，他说，来自巴西的（变异的冠状病毒）新毒株传染性更强，也更致命。
 
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+“数以万计的美国人可能会因为那开放的边境而死亡”，他说：“看看巴西发生的疫情状况，（那里）医院已经人满为患了。”
 
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+纳瓦罗报告说，巴西（变异的冠状病毒）新毒株的病例正在边境城镇出现。亚利桑那州是一个“（病例）温床”，目前病例正在全国各地蔓延，当前最可能发生在威斯康星州。
 
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+纳瓦罗指责拜登的开放边境政策，以及谴责托尼.福奇，他称福奇是一个“反社会者”，因为他资助中共在武汉的（病毒）功能性增强研究。
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+#### 3、震惊与愤怒：牧师因教堂里做祷告的孕妇没带口罩而报警
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+迪尔德雷·海斯顿（Deirdre Hairston）向《战斗室》讲述了她那令人震惊的故事，德克萨斯州达拉斯市的一位牧师因为她在做弥撒时摘下口罩而报警。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+海斯顿，当时正抱着她一岁大的婴儿在得克萨斯州（Texas）达拉斯市（Dallas）圣三一教堂的后面，她开始感到有些不舒服，这时她距离其他人有好几英尺远。
 
+“我怀孕了，感觉有点头晕，所以我摘下了口罩，这样我就可以呼吸顺畅了。”她说。接下来，当她跪着祷告时，三名警察就控制住了她。
 
+女警察威胁说要以“擅闯”教堂的罪名逮捕她，并说“这是一单生意”。
 
+海斯顿说，在教堂里被人强制束缚，“真的太让人伤心了”。
 
+“州长已经取消了（公共场所强制带）口罩的规定，除此之外，我们自己的主教也没有要求（我们）戴口罩，”海斯顿说。
+
+#### 4、拜登在德克萨斯州卡里佐斯普林斯建造大规模的新拘留中心
+
+据支持川普总统的拉美裔的比安卡.格拉西亚（Bianca Gracia）说，拜登政府正在为无（成年）人陪伴的未成年人建造一个大规模的（非法移民）新拘留中心。
+
+格拉西亚周二在接受《战斗室》采访时表示，拜登的边境危机已经失控。
+
+“他们正计划建造我们所见过的最大设施”,她说：“如果我们没有被（大量的非法移民）冲击，他们为什么要在德克萨斯州的卡里佐斯普林斯（**Carrizo Springs**）建造最大的（非法移民）拘留中心？”
+
+格拉西亚说，由于破坏性的开放边境政策，边境巡逻队的士气正陷入历史低谷。
+
+“他们工作量过大，薪水不足，他们的资源被剥夺，他们被暴露在新冠病毒（威胁）之中，”她说。
+
+格拉西亚说，川普总统宣布他将访问边境，这对边境巡逻人员来说是一种鼓励，“表明还有人在支持他们”。
+
+**原文链接：**
+
+1.  [Navarro: ‘Fauci is a Sociopath’](https://pandemic.warroom.org/2021/03/30/navarro-fauci-is-a-sociopath/)
+
+2.  [Biden’s Border Policy is ‘Effectively Murder’: Deadly Brazilian Virus Strain Pouring into U.S.](https://pandemic.warroom.org/2021/03/30/bidens-border-policy-is-effectively-murder-navarro-says-deadly-brazilian-virus-strain-pouring-into-u-s/)
+
+3.  [Shock and Outrage After Priest Calls Cops on Maskless Pregnant Woman at Church](https://pandemic.warroom.org/2021/03/30/shock-and-outrage-after-priest-calls-cops-on-pregnant-woman-at-church/)
+
+4.  [Biden Building Massive New Detention Center in Carrizo Springs, Texas](https://pandemic.warroom.org/2021/03/30/biden-building-massive-new-detention-center-in-carrizo-springs-texas/)
 
 +1
