@@ -1,50 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士第三个报告今天发表&nbsp; 白宫密切关注
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1041285/)
+## 【热点播报】日本首相将访美，为美日结盟再添砖加瓦
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1041449/)
 
-简述：在2021年3月31日的盖特视频中，郭文贵先生透露闫博士的报告[1-4]一直被白宫关注，并赞扬路德的119（2020年1月19日）首次爆料病毒的贡献。他让大家注意整个美国和西方的联合，并言“以毒灭共”，“联合灭共”势不可挡。
+作者：纽约香草山健身部 Jack Li文阳
 
 
 
-**闫博士第三个报告今天发表****  ****白宫密切关注**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-**Dr. Yan’s Report Is Out Today and the White House Knows It**
 
-那么另外一个今天是我们的科学家，第三个报告出来，据我所知，刚刚我给科学家发了个信息，拜登政府用的几个大咖，最早给我发信息，问英文谁给校对的？我说啥意思啊？我说英文是科学家校对的呀，他也没说啥，绝对是超级人物，就说明咱们科学家的一举一动白宫都盯着呢，你想想那共产党能不盯着吗？所以科学家这个人她绝对是个天使，上天送来的，真的是我们最大的礼物。路波切最大的功劳就是119，啥也不是，就是119，没119他啥也不是，119是他最大的功劳，说的太好了。
 
-So another thing is about our scientist [Dr. Li-Meng Yan]. As far as I know, her third report just came out today. I just sent a message to our scientist. Several big shots from the Biden administration sent me messages earlier, asking me who proofread her English.“What do you mean by that?” I said, “The English was proofread by the scientist herself.” He didn’t say anything, this guy is an absolute big name. It means that every action of our scientist is watched closely by the White House. Think about it, can the CCP not have its eyes on her too? So our scientist, she is definitely an angel, a gift from heaven. She is really the greatest gift to us. LuDe’s greatest contribution is the January 19 broadcast [when for the first time he disclosed the info about the virus that he got from Dr. Yan at the LuDe Media]. Without the January 19 broadcast, he would be nobody. The January 19 broadcast is his greatest contribution, and he did a really great show.
+据报道，⽇本⾸相菅义伟定于4⽉8⽇启程访问美国。9⽇将与美国总统拜登举⾏⾸脑会谈。⽇本⾸相还没启程，中共国媒体就开始对此发起舆论攻势。
 
-但今天是个大日子，科学家的第三个报告，以毒灭共..这个牛了，所以你看反应有多快，我相信今天晚上路波切做节目，他得好好讲讲，今天晚上我估计都得打领带了，是吧？
+⽇本⾸相菅义伟将成为美国拜登总统上任后的第⼀位来访的外国领导⼈，美⽇同盟的重要性不⾔⽽喻。
 
-But today is a big day, with our scientists’ third report and taking down the CCP with the truth about the virus – really awesome! So you see how fast the reaction is. I believe that LuDe will talk about this [report] in depth on his evening show. I guess he will wear a tie this evening, right?
+上⼀次美⽇⾸脑的会谈是在美东时间3⽉12⽇的美⽇印澳四⽅对话上。美国总统拜登与⽇本⾸相菅义伟、印度总理莫迪和澳⼤利亚总理莫⾥森举⾏了四⽅对话机制下的⾸次领导⼈会晤。这次美⽇⾸脑峰会后将发表联合声明，承诺加强合作，共同应对挑战。
 
-另外一个兄弟姐妹们，要注意到整个美国和西方的联合，叫联合起来以毒灭共，看看你七哥的，就今天下午七哥有几个重要的人，我们要好好聊聊，然后要组织一个会，到黄石公园要秘密的开会，要进山，以毒灭共，联合灭共，这已经谁也挡不住了。
+拜登总统和菅义伟⾸相的华盛顿会晤，将会聚焦在加强美⽇同盟，共同应对中共国越来越咄咄逼⼈的威胁。另外，双⽅还将会就朝鲜的⾮核化以及美⽇贸易问题、中共病毒疫情对策和⽓候变化、构建稀⼟和医药品供应链等问题交换意⻅。
 
-Brothers and sisters, another thing is that we must notice the unity of the United States and the West, which is called getting united to take down the CCP with the truth about the virus. Look at your Brother Miles. Just in this afternoon, your Brother Miles will chat with a few important people. Then a meeting will be organized, a secret meeting in Yellowstone. We will go to the mountains to discuss about taking down the CCP together, using the truth about the virus. No one can stop this.
+⽇本⾸相还没起⾏，中共媒体就开始布置针对美⽇⾸脑会晤的对内宣传，中共国媒体今日头条对此事做了预先的表态：关于朝鲜，他代表朝⽅叫嚣威胁，如果美⽇再刺激，不排除采取更激烈的⾏动，还可能会地动⼭摇。关于钓⻥岛问题、台湾问题：不满意不答应。
 
-所以说想想今年七哥定的以毒灭共，以钱灭共，兄弟姐妹们，你们越有钱，共产党死的越快，你们越快乐，共产党死得越快，你们越成功，共产党死得越快，所以你们必须成功，心脏要强大，人要坚强，更重要的要开双眼，不要傻，不要看底下，看上面，不要那么简单的被人家给骗了，啥都不说了。
+⾯对美国为⾸的⻄⽅国家越来越频密的互动结盟，中共很焦虑，很⽣⽓，犹如热锅上的蚂蚁，惶惶不可终⽇。以⾄于中共最近在外交场合做出种种癫狂失态的表现，令世界政坛⼤为震惊。但中共对于世界反共⼤潮却⽆法阻挡，只能在国内媒体上放狠话，搞威胁，打⼝炮。借⽤他们⼀句常⽤的话来形容他们：⾛夜路吹⼝哨，为⾃⼰壮胆。
 
-So think about this year’s goal that Brother Miles has set: taking down the CCP with the truth about the virus and with money [financial activities]. Brothers and sisters-in-arms, the richer you get, the sooner the CCP will die; the happier you become, the sooner the CCP will die; the more successful you become, the sooner the CCP will die. So you must succeed, you must have a strong heart. To be strong, you must open your eyes and not be foolish. Don’t look down, rather you should look above. Don’t be fooled so easily by others. I will stop here.
+以美、⽇、英、加、澳、欧盟为⾸的⻄⽅阵营，已经逐步地认识到中共就是全世界的威胁，近来的每次会晤、会谈都离不开⼀个主题：应对中共威胁。近⽇，⻄⽅媒体逐步向揭露中共病毒真相靠拢集结。3⽉30⽇，美国更联合其他13个国家发布联合声明，要求中共放开，允许国际社会透明彻查病毒来源。这表明了，全球追查、追责病毒真相的⼤⻔已经打开。以毒灭共已成为世界关注的主题。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60647e3549339063d061998c](https://gtv.org/getter/60647e3549339063d061998c) (6:40-7:28, 8:05-9:24)
-鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/1041092/](https://www.gnews.org/zh-hans/1041092/)
+参考阅读：
 
-参考链接：
-[1] [闫博士最新报告（英文版）](https://zenodo.org/record/4650821#.YGSRqy2caQK)： [下载](https://zenodo.org/record/4650821#.YGSRqy2caQK)
-[2] [闫博士报告一（中文PDF）](https://gnews.org/zh-hans/357190/)：[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/09/18030621/Yan_Report-V5.2_Simpified.pdf)
-[3] [闫博士报告二（中文PDF）](https://gnews.org/zh-hans/412951/)：[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/09071629/The_2nd_Yan_Report-V1.0-Simpilfied.pdf) 
-[4] [闫博士驳斥CNN](https://gnews.org/zh-hans/581750/)：[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22120527/Dr_Yan_20201121_Report3_EN_CN_Traditional_PDF-v1.3.pdf)
+[日本确认：菅义伟4月9日访美 台海稳定或被列入峰会联合公报](https://www.voachinese.com/a/Japan-confirms-US-Japan-summit-to-happen-April-9-20210330/5834086.html?utm_source=twitter&amp;utm_medium=social&amp;utm_campaign=dlvr.it)
 
-* * *
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-1.jpg)
 
-校对 & 字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+编辑/校对：雪梨
 
-+7
+发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
+0
