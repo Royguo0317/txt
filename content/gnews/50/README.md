@@ -1,28 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评粤语快报】03.28：俄媒全面宣传中共是主要威胁 安倍称日本已站在对抗中共最前线
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1041340/)
+## 闫博士第三个报告今天发表&nbsp; 白宫密切关注
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1041285/)
 
-制作团队：【喜马拉雅-粤语组】流光飞舞、Andy Su、一帘幽梦、鬼五
-
-
-
-主要内容
-
-1. 俄罗斯知名媒体人波兹涅尔3月25日在一个主流自由派媒体表示，中国正追求全球霸权，想成为世界老大，他不信任中国，更非常担心中国威胁。他认为，对俄罗斯来说，对抗中国的唯一办法就是同美国结盟，因为只有美国才能成为俄罗斯在这一方面的唯一盟友。在俄罗斯文化界，媒体等领域拥有巨大影响的波兹涅尔，其实是普京政府的代言人。他在俄罗斯国营的媒体发出的不是媒体人哗众取宠的声音，而是俄罗斯高层的声音。
-2. 最高级别的竞争就是战争，战争是检验整个国家体系的最佳检验师。要想赢得航海时代的战争，不仅掺不得半点假，也需要体系拥有自我完善的能力，还需要经验的积累和传承，否则全盘结束。二战时期的日本，整个工业体系非常有创造力，但是日本的航海时代只经历了五十年，而英国欧美已经历了上千年 。航海时代的工艺是师父传子，子传孙，很多东西都是经验的累积。人类的文明能走到今天不是通过写几张纸的人权报告写出来的，是通过许许多多代人的生命堆出来的，都是经验的累积。
-3. 日本前首相安倍晋三27日在演讲中谈及中美对立时指出：包括日本在内的亚洲地区已站在美中两国对立的最前线。安倍以前首相的身份这样明确表态 ，告诉日本的企业，制定企业政策的时候要考虑安全保障，这在二战之后是从来没有过的
-4. 美印举行联合军事演习应对中共扩张威胁。近日美国罗斯福号航母打击群被爆出与印度海、空军在印度洋举行联合军事演习，路德社评论认为随着中共区域扩张的威胁不断加剧，美、日、印、澳为主的“亚约”已然成形，此次美、印联合军演1、标志美印两军双边军事互信显著加强，两军军事系统深度融合对接，未来应对冲突的战斗力将大幅度提升，2、区域军事、政治战略平衡将被打破，美印军事交流将在军事上进一步施压中共，特别是演习中美军手把手教印度空军演练空军劫击、空中防御科目，针对中共的意图非常明确
-5. 美国国务卿布林肯称牛轭礁集结船只为中共“民兵船”。国务卿的推文还称美国站在菲律宾一边，维护多边国际规则。美国国务卿的讲话就是为菲律宾站台、警告中共，因为定义为民兵即为军事力量，美军可以直接予以军事打击。
-6. 习近平与古巴领导人互致贺信。在中美对抗的大背景下，中共拉拢古巴意图牵制美国，路德直言中共利用古巴问题，最终只会引火烧身，就如果古巴导弹危机一样，必将刺激美国人加速觉醒。
-7. 纳瓦罗接受福克斯采访指病毒来自于中共生物武器实验室。继CNN采访美国前CDC主任称病毒来自于武汉实验室后，纳瓦罗先生接受福克斯采访进一步称武汉实验室就是P4生物武器实验室，这是福克斯电视台节目第一次直接说病毒来自于中共生物武器实验室，现在美国左、右两派的主流媒体全面推动，路德表示下周闫博士第三篇科学论文即将公开发布，爆料革命就是日拱一卒推动揭露中共病毒的真相，现在美国舆论全方位的推动，待测试新的民意反应后将会有更多的灭共行动。
-8. 美国国务卿布林肯表示不会因病毒问题对中国追责。路德社的回应非常简单，制造、释放病毒的是中共，中国和中国人民同样是受害者，爆料革命就是把中共和中国、中国人民必须彻底分开。
-9. 路德分享一些爆料革命感悟。人类文明、国家的延续必须要有信仰的支撑，尊重探索精神、尊重科技创新，基督文明的赎罪精神造就了西方的宽容、探索、科学精神，所以西方文明战胜了法西斯纳粹，地球如果有太空文明出现，他们也会选择自由、民主的国度，文贵先生发起的爆料革命非常不易，就是要唤醒我们中国人骨子里面的正义、无私和勇气，中国最终要依靠信仰、创造才能强大。
+简述：在2021年3月31日的盖特视频中，郭文贵先生透露闫博士的报告[1-4]一直被白宫关注，并赞扬路德的119（2020年1月19日）首次爆料病毒的贡献。他让大家注意整个美国和西方的联合，并言“以毒灭共”，“联合灭共”势不可挡。
 
 
-【路德时评】[原视频链接1](https://youtu.be/OpMzIUTx9Lc)  [原视频链接2](https://youtu.be/GZTUfVSCtZE)
 
-上传：流光飞舞
+**闫博士第三个报告今天发表****  ****白宫密切关注**
 
-+1
+**Dr. Yan’s Report Is Out Today and the White House Knows It**
+
+那么另外一个今天是我们的科学家，第三个报告出来，据我所知，刚刚我给科学家发了个信息，拜登政府用的几个大咖，最早给我发信息，问英文谁给校对的？我说啥意思啊？我说英文是科学家校对的呀，他也没说啥，绝对是超级人物，就说明咱们科学家的一举一动白宫都盯着呢，你想想那共产党能不盯着吗？所以科学家这个人她绝对是个天使，上天送来的，真的是我们最大的礼物。路波切最大的功劳就是119，啥也不是，就是119，没119他啥也不是，119是他最大的功劳，说的太好了。
+
+So another thing is about our scientist [Dr. Li-Meng Yan]. As far as I know, her third report just came out today. I just sent a message to our scientist. Several big shots from the Biden administration sent me messages earlier, asking me who proofread her English.“What do you mean by that?” I said, “The English was proofread by the scientist herself.” He didn’t say anything, this guy is an absolute big name. It means that every action of our scientist is watched closely by the White House. Think about it, can the CCP not have its eyes on her too? So our scientist, she is definitely an angel, a gift from heaven. She is really the greatest gift to us. LuDe’s greatest contribution is the January 19 broadcast [when for the first time he disclosed the info about the virus that he got from Dr. Yan at the LuDe Media]. Without the January 19 broadcast, he would be nobody. The January 19 broadcast is his greatest contribution, and he did a really great show.
+
+但今天是个大日子，科学家的第三个报告，以毒灭共..这个牛了，所以你看反应有多快，我相信今天晚上路波切做节目，他得好好讲讲，今天晚上我估计都得打领带了，是吧？
+
+But today is a big day, with our scientists’ third report and taking down the CCP with the truth about the virus – really awesome! So you see how fast the reaction is. I believe that LuDe will talk about this [report] in depth on his evening show. I guess he will wear a tie this evening, right?
+
+另外一个兄弟姐妹们，要注意到整个美国和西方的联合，叫联合起来以毒灭共，看看你七哥的，就今天下午七哥有几个重要的人，我们要好好聊聊，然后要组织一个会，到黄石公园要秘密的开会，要进山，以毒灭共，联合灭共，这已经谁也挡不住了。
+
+Brothers and sisters, another thing is that we must notice the unity of the United States and the West, which is called getting united to take down the CCP with the truth about the virus. Look at your Brother Miles. Just in this afternoon, your Brother Miles will chat with a few important people. Then a meeting will be organized, a secret meeting in Yellowstone. We will go to the mountains to discuss about taking down the CCP together, using the truth about the virus. No one can stop this.
+
+所以说想想今年七哥定的以毒灭共，以钱灭共，兄弟姐妹们，你们越有钱，共产党死的越快，你们越快乐，共产党死得越快，你们越成功，共产党死得越快，所以你们必须成功，心脏要强大，人要坚强，更重要的要开双眼，不要傻，不要看底下，看上面，不要那么简单的被人家给骗了，啥都不说了。
+
+So think about this year’s goal that Brother Miles has set: taking down the CCP with the truth about the virus and with money [financial activities]. Brothers and sisters-in-arms, the richer you get, the sooner the CCP will die; the happier you become, the sooner the CCP will die; the more successful you become, the sooner the CCP will die. So you must succeed, you must have a strong heart. To be strong, you must open your eyes and not be foolish. Don’t look down, rather you should look above. Don’t be fooled so easily by others. I will stop here.
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60647e3549339063d061998c](https://gtv.org/getter/60647e3549339063d061998c) (6:40-7:28, 8:05-9:24)
+鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/1041092/](https://www.gnews.org/zh-hans/1041092/)
+
+参考链接：
+[1] [闫博士最新报告（英文版）](https://zenodo.org/record/4650821#.YGSRqy2caQK)： [下载](https://zenodo.org/record/4650821#.YGSRqy2caQK)
+[2] [闫博士报告一（中文PDF）](https://gnews.org/zh-hans/357190/)：[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/09/18030621/Yan_Report-V5.2_Simpified.pdf)
+[3] [闫博士报告二（中文PDF）](https://gnews.org/zh-hans/412951/)：[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/09071629/The_2nd_Yan_Report-V1.0-Simpilfied.pdf) 
+[4] [闫博士驳斥CNN](https://gnews.org/zh-hans/581750/)：[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22120527/Dr_Yan_20201121_Report3_EN_CN_Traditional_PDF-v1.3.pdf)
+
+* * *
+
+校对 & 字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
++7

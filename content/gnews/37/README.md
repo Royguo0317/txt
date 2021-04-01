@@ -1,83 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【班农战斗室】835-836-837期简讯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1040566/)
+## 缅甸乱局升级，各国相继予以制裁，唯独中缅边贸却逆势增长！
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1041625/)
 
-#### **翻译：七彩光**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/擷取41-0.jpg)
+作者：台湾准农场 快慢机
 
-#### **校对****/编辑：文泓**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/813-814-2.png)
-图片来源：墨尔本雅典娜农场设计组（精灵蓝）
+[新闻链接](http://www.mmgpmedia.com/static/content/CJ/2021-03-30/826510060749594624.html)
 
-**主持人：史蒂夫****.班农**
+[新闻链接二](https://new.qq.com/omn/20210331/20210331A0CTRP00.html)
 
-**嘉宾：****Dr. Peter Navarro, Maureen Bannon, Bianca Gracia, Deirdre Hairston, Phillip Patrick, Ben Bergquam, Jesse Holguin, Tej Gill, Boris Epshteyn**
+## 美国政府宣布全面终止与缅甸一切贸易往来，并开始撤离非紧急任务小组外的全部驻缅使馆外交人员。
+![](https://lh5.googleusercontent.com/Ztp53owb1vwJuX13-GlClygNlPnX1PgZx7nHi-Xx0g_qcKpleSYHVHRPdepo-FqTGCu2YshdruaQjzq7D9xAsT_hfRtdF--99dow51Qq3ytG7GS4iVsyB9kY8D-Jt64_Jpnhqlu5CjeW5hSiXA)
+2021年3月29日晚，美国贸易代表凯瑟琳.戴，于公共社交媒体上向外界表示，鉴于缅甸军政府发动军事政变以来，所导致的缅甸动荡乱局现状，美国政府决定全面终止同缅甸现任军政府的一切贸易往来活动，直至缅甸合法民选政府回归执政为止，该决议即刻生效。
 
-#### **1、纳瓦罗：“福奇是个反社会者”**
+次日，美国国务院便向驻缅美国使馆，发出了全面撤离，除紧急任务小组外的全部外交人员及相关家属的紧急命令。
 
-彼得.纳瓦罗（Peter Navarro）博士告诉《战斗室》，他有一个新的理论可用来解释托尼.福奇（Tony Fauci）博士的失败：他是一个“反社会者”。
+## 中、俄两方参加缅甸建军节阅兵式当天，也正是缅甸军方射杀民众数量最多一日。
+![](https://lh5.googleusercontent.com/MtHDbPxFcvFgSgJM3iJTWDDxy7QRpSfpIl3z_Dmfj_pvC17JNWP24A_J09gKuX9Z-ADEiGgPOGxfzUK2CAsqgpFYnHDQOMEjTpYNSqdt0nlKSWy-kAjJlgN3Xdc7K1G9PIUYZZ-WtIeTyFFQmA)
+3月27日，缅甸军政府在全境各地一片抗议浪潮声下，强行举办建军节阅兵式活动，在广发40余份邀请函石沉大海之后，仅有中、俄两方应邀派员出席观礼。
 
-“以前我一直对他坚持这样的理论认识，即福奇只是一个糊涂的老人”，纳瓦罗周二说：“这家伙就是个反社会者，这是我对他新的理论认识。”
+然而就在阅兵式当日，缅甸军方却制造了连日来最为血腥一天。打破了其丧心病狂射杀抗议示威民众的罪恶记录，单日在全境多地残忍射杀致死逾百人，其中不乏妇女及儿童。
 
-纳瓦罗说，他是在福奇周末接受美国有线电视新闻网（CNN）采访后得出这个结论的，在采访中福奇试图改写疫情早期的（真实）历史。
+此举随即便引起国际社会，乃至多达12国防长的联合声明谴责。而这其中自然并未出现缅甸军政府的“好盟友”——“中共”与“俄罗斯”的声音。
 
-福奇现在正为疫苗邀功，然而就是他把美国纳税人的钱送给武汉病毒研究所，资助中共进行导致这场新冠疫情的病毒研究。
+## 缅甸乱局持续恶化，面对国际社会等多国制裁，缅甸贸易额大幅萎缩，缘何唯独中缅边贸却逆势增长？
+![](https://lh5.googleusercontent.com/ZGJswRO63PpxS9wGen4KG_4WSbUzZHpHJP3ZjDVSP6suQhe6f9sgyR5hpERMHWoOHX6HJHWx6zS6gFeEzR1hSJGZbezPyTvgPYboP504cJef6lysXqQtLPdG2knderyxw-jP_KPC1LZSUIItsg)
+据缅甸商务部统计数据显示，2020-2021年度财年，前三个季度的边贸额总体呈下降趋势。之后的2020年10月至2021年3月，缅甸对外贸易进口总额71.4亿美元，相较于上一财年同期额94.7亿美元，缩减达23.2亿美元之多。
+![](https://lh6.googleusercontent.com/7R82UjDHcJnoWvyXzWyLmyIk-H6GvZNOfed-oQSxLFqemHRPqf-1Mp8wHKKobubGuPauoiXSpNms1F1ej-9Rbq-I1pS31RA1xtu0O5RNGOn_T0IfZSHBEd-nvjPxNWR0nJPFY3SoCthrUarQJw)
+而这其中对中共国出口总为20.5亿美元，进口额为9.2亿美元，总贸易额29.7亿美元。相较于上一财年同期，中缅边贸总额的27.5亿美元，竟然还涨幅了2.2亿美元。
 
-“福奇是个反社会的人”，纳瓦罗说：“他创造了武汉实验室功能性增强研究而获得的转基因病毒，现在巴西的变异冠状病毒毒株(正在侵入美国)。”
+众所周知，中缅贸易中，占比份额最大的莫过于缅甸向中方出口的天然气、木材、矿石、和其它农副及水产品等自然资源性货品。
 
-#### 2、拜登的边境政策是“实际上的谋杀”：可怕的巴西新冠病毒变异毒株患者正涌入美国
+中共当局由于近期也在部分领域内，例如能源及科技等方面，不同程度的受制于国际社会的制裁。大陆的能源危机、粮食危机正处于随时爆发的临界点。
 
-彼得.纳瓦罗（Peter Navarro）博士说，乔.拜登（Joe Biden）的开放边境政策是一场“真实有效的谋杀”。
+四面楚歌的中共，不顾与国际社会背道而驰之行，暗地背后支持缅甸军政府的非法军事政变，并对缅甸军方血腥镇压抗议示威民众的恶行“视而不见”。以此换回其急需的缅甸能源与粮食等物资，一解眼下燃眉之急。
 
-纳瓦罗警告《战斗室》，在拜登的边境危机期间，将有数以万计的美国人死于巴西冠状病毒（变异）毒株的渗入。
+而上述这些边贸交易活动，则全部来自于中缅接壤的5个边贸口岸，而这5个口岸的贸易额都比去年同期有所上涨，其中涨幅最多的便是，中缅之间最大的的边贸口岸——木姐。
 
-“现在这些变异的病毒正通过边境输入”,他说：“乔.拜登领导下的边境政策实际上是谋杀，它会杀死成千上万的美国人，即将成为现实。”
+## 多国政府防长相继联合强势声明表态，中共未免引火上身，故技重施，因疫情再度反弹——姐告封闭！
+![](https://lh4.googleusercontent.com/anovp4un8ADOb-VzlVqTG9jF7zz4aF-tEIgX7zux7Mwaa111g9zE5utjCC3wtBwTDtLKYuDbPbk4bnFfgL_dtub7vnE6-wcp_WHBC3-XILfJ-JT9F94s7SimBp2tJpQ7Dsgfxs8pyvyXvqUKLA)
+“木姐”，这一中缅接壤的最大边贸口岸，紧邻中缅边境重镇的云南省德宏州的瑞丽市，而姐告恰巧就坐落在瑞丽。
+![](https://lh4.googleusercontent.com/OcNpKKUqyhxpnAoKG0B_xlLhDgKBe921UNstVWuhZF6eA2Hb1dDbfyfht5fgbEYCrQPlNJOCvxvwYyaQeZGBQRAi2WQc6qVbHPL7Z0Y40la6dc4JalF7jR7sQyOQ2kghG4c5kEoDEmmja6MA1w)
+中共官方通报，2021年3月30日，云南瑞丽新增6例本土新冠确诊病例、3例无症状新冠感染者。其中1例确诊及3例无症状感染者均为缅甸籍。
 
-纳瓦罗在2020年1月就开始直面中共病毒的肆虐，他说，来自巴西的（变异的冠状病毒）新毒株传染性更强，也更致命。
+鉴于瑞丽新冠疫情突发性反弹，中共当局决定即日起，暂时封锁姐告周边区域，瑞丽市宣布再次紧急转入战时状态。
 
-“数以万计的美国人可能会因为那开放的边境而死亡”，他说：“看看巴西发生的疫情状况，（那里）医院已经人满为患了。”
+不要看中共说什么，一定要紧盯它在做什么！中共的“战狼外交部”一面在北京“仰天狂吠”、“装神弄鬼”。中共则暗地在别处“包藏祸心”的小动作不断。眼见国际社会及多国防长联盟对缅甸军政府发出强硬表态，中共便顺势来了个过河拆桥，以免引火上身……
 
-纳瓦罗报告说，巴西（变异的冠状病毒）新毒株的病例正在边境城镇出现。亚利桑那州是一个“（病例）温床”，目前病例正在全国各地蔓延，当前最可能发生在威斯康星州。
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-纳瓦罗指责拜登的开放边境政策，以及谴责托尼.福奇，他称福奇是一个“反社会者”，因为他资助中共在武汉的（病毒）功能性增强研究。
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-#### 3、震惊与愤怒：牧师因教堂里做祷告的孕妇没带口罩而报警
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
-迪尔德雷·海斯顿（Deirdre Hairston）向《战斗室》讲述了她那令人震惊的故事，德克萨斯州达拉斯市的一位牧师因为她在做弥撒时摘下口罩而报警。
+文章审核：zhong
 
-海斯顿，当时正抱着她一岁大的婴儿在得克萨斯州（Texas）达拉斯市（Dallas）圣三一教堂的后面，她开始感到有些不舒服，这时她距离其他人有好几英尺远。
+文章发布：Little Liu
 
-“我怀孕了，感觉有点头晕，所以我摘下了口罩，这样我就可以呼吸顺畅了。”她说。接下来，当她跪着祷告时，三名警察就控制住了她。
-
-女警察威胁说要以“擅闯”教堂的罪名逮捕她，并说“这是一单生意”。
-
-海斯顿说，在教堂里被人强制束缚，“真的太让人伤心了”。
-
-“州长已经取消了（公共场所强制带）口罩的规定，除此之外，我们自己的主教也没有要求（我们）戴口罩，”海斯顿说。
-
-#### 4、拜登在德克萨斯州卡里佐斯普林斯建造大规模的新拘留中心
-
-据支持川普总统的拉美裔的比安卡.格拉西亚（Bianca Gracia）说，拜登政府正在为无（成年）人陪伴的未成年人建造一个大规模的（非法移民）新拘留中心。
-
-格拉西亚周二在接受《战斗室》采访时表示，拜登的边境危机已经失控。
-
-“他们正计划建造我们所见过的最大设施”,她说：“如果我们没有被（大量的非法移民）冲击，他们为什么要在德克萨斯州的卡里佐斯普林斯（**Carrizo Springs**）建造最大的（非法移民）拘留中心？”
-
-格拉西亚说，由于破坏性的开放边境政策，边境巡逻队的士气正陷入历史低谷。
-
-“他们工作量过大，薪水不足，他们的资源被剥夺，他们被暴露在新冠病毒（威胁）之中，”她说。
-
-格拉西亚说，川普总统宣布他将访问边境，这对边境巡逻人员来说是一种鼓励，“表明还有人在支持他们”。
-
-**原文链接：**
-
-1.  [Navarro: ‘Fauci is a Sociopath’](https://pandemic.warroom.org/2021/03/30/navarro-fauci-is-a-sociopath/)
-
-2.  [Biden’s Border Policy is ‘Effectively Murder’: Deadly Brazilian Virus Strain Pouring into U.S.](https://pandemic.warroom.org/2021/03/30/bidens-border-policy-is-effectively-murder-navarro-says-deadly-brazilian-virus-strain-pouring-into-u-s/)
-
-3.  [Shock and Outrage After Priest Calls Cops on Maskless Pregnant Woman at Church](https://pandemic.warroom.org/2021/03/30/shock-and-outrage-after-priest-calls-cops-on-pregnant-woman-at-church/)
-
-4.  [Biden Building Massive New Detention Center in Carrizo Springs, Texas](https://pandemic.warroom.org/2021/03/30/biden-building-massive-new-detention-center-in-carrizo-springs-texas/)
-
-+1
+0
