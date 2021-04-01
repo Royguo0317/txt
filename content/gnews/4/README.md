@@ -1,25 +1,19 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫丽梦科学家第三份科学报告出台
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1040634/)
+## 2021年3月31日灭共要闻快报
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1041676/)
 
-**西班牙巴塞罗那喜悦农场** wenwu
+![](https://gnews.org/634d6c93-a2a9-468c-9959-86605f8b6110)
+重点内容：
+
+- 帕劳总统率团访台，美大使随行；
+- 中共渔船入侵菲律宾水域遭警告；
+- 左媒CBS播出病毒起源专题：病毒或来自武汉实验室；
+- 中共公布：尼日利亚突变株或致疫苗失效；
+- 打疫苗纳入健康码，民忧强制接种。
 
 
+**By**：【秘翻组**–**上天造灭疫组】
 
-> The 3rd Yan Report is published!
-> 
-> The Wuhan Laboratory Origin of SARS-CoV-2 and the Validity of the Yan Reports Are Further Proved by the Failure of Two Uninvited "Peer Reviews"
-> Link:[https://t.co/Up3aI00aPi](https://t.co/Up3aI00aPi)[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)[#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedScientificMisinformation](https://twitter.com/hashtag/UnrestrictedScientificMisinformation?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/j2q7hpgAnj](https://t.co/j2q7hpgAnj)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [March 31, 2021](https://twitter.com/DrLiMengYAN1/status/1377248049093828611?ref_src=twsrc%5Etfw)
-
-
-**`第三次闫丽梦科学家科学报告已发布！两次未经邀请的“同行评审”的链接失效，进一步证明了SARS-CoV-2的武汉实验室起源。`**
-闫博士第三份报告的有效性链接：[**https://zenodo.org/record/4650821#。YGR0\_uT3aEd…**](https://t.co/Up3aI00aPi?amp=1)
-信息来源：2021年3月31日闫丽梦科学家推特
-#新冠病毒（中共病毒）
-#超限生物武器
-#超限科学信息战
-
-+4
+0

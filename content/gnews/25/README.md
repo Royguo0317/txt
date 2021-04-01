@@ -1,41 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选主题专栏：中共死不悔改，世界群起殴之
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1040536/)
+## 闫博士第三个报告今天发表&nbsp; 白宫密切关注
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1041285/)
 
-《路德社》精选主题专栏组出品
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/地方.jpg)
-中共指导下的世卫中共病毒调查报告，终于在一片质疑声中于3月30日出炉，当天即遭到以美国为首的14国联合质疑，数据不完整，调查不透明，要求进行第二阶段独立调查。由此可见，中共已成世界舞台上聚光灯下的头号犯罪嫌疑人，目前它唯一可做的就是坦白从宽，抗拒从严。
-
-据路透社报道，14国政府在联合声明中说：“这项中共病毒溯源报告未能取得全部和原始的资料及样本，我们必须对此表达我们的共同关切。” 声明要求独立调查，“为独立专家提供与疫情暴发初期相关的所有人员、动物和环境的完整数据及研究报告。”
-
-这说明，中共在世卫调查期间，并没有提供完整，真实的资料，甚至可能干扰了世卫的独立调查。英国著名的科普作家麦特 .莱利勋爵（Matt Ridley）在接受英国今日广播访谈时说，世卫的报告就是帮中共洗白的报告，调查组成员要经过中共政府审批；他们的调查依赖中共科学家的分析，而不是进行独立调查；调查组在武汉实地调查时，被中共派出的人员时刻包围，无法直接提问当地人。
-
-在美国和其它13个国家要求独立调查的联合声明里，同样提到世卫调查不透明，不独立的问题。“世卫调查组应当在能够做出客观，独立的结论和发现的条件下工作”。
-
-“所以世卫报告就是个洗白报告”。莱利勋爵在采访中说，“事实也确实如此，300页的报告仅用了一段话，就排除了中共病毒来源实验室的可能；而与此产生强烈对比的是，这份报告用了将近30页纸讲述如何在45000份中共国动物样本里都检测出了阴性，却仍然不能排除动物携带病毒到武汉的可能性！”
-
-换言之，这份世卫报告没有进行任何相关调查，就断言实验室源头说不可能。 “这样妄下断论，就像有人跟你说苏伊士运河没有被船堵上一样糟糕。”
-
-那中共和世卫为什么就这么胆大妄为地睁眼说瞎话呢？美国前国务卿蓬佩奥似乎道出了原由，他在30日深夜推文写道，世卫组织的报告是中共世卫组织（CCP-WHO）虚假宣传的延续。 这就是为什么我建议美国离开世卫组织的原因。 谭德赛（Dr. Tedros，WHO）与习近平合作，在关键时刻隐藏了中共病毒在人与人之间的传播。 武汉病毒研究所（WIV）仍然是最有可能的病毒来源，而世卫组织（WHO）是同谋。
-
-在14国要求独立调查的声明里，各国希望借联合声明为“下一阶段中共病毒起源研究实现及时、透明、基于证据的程序，以应对下一次卫生危机”铺路。美国总统拜登也明确“美国人民、国际社会、医学专家、医生、所有为挽救生命而努力的人以及在中共病毒疫情中失去亲人的家庭，都有权利要求获得更多资讯。”
-
-但中共对世界需要一个真实报告的呼声置若罔闻。3月31日，中共发言人称，美国纠集极少数国家发表所谓“联合声明” 借溯源搞政治操弄。一副死不悔改，你奈我何的嘴脸。几十年在世界范围内的蓝金黄所向披靡，让中共自我膨胀到目中无人。如今，这场中共亲自布局，亲自指挥的生物武器超限战，将置中共于死地，因为世界人民已经锁定中共这一罪魁祸首，只等大棒挥舞，重拳落下，“顷刻间，樯橹灰飞烟灭“。
+简述：在2021年3月31日的盖特视频中，郭文贵先生透露闫博士的报告[1-4]一直被白宫关注，并赞扬路德的119（2020年1月19日）首次爆料病毒的贡献。他让大家注意整个美国和西方的联合，并言“以毒灭共”，“联合灭共”势不可挡。
 
 
 
-[参考链结](https://mobile.twitter.com/mikepompeo/status/1376885317232386050)
+**闫博士第三个报告今天发表****  ****白宫密切关注**
 
-[参考链结2](https://mobile.twitter.com/jsdfposjpqyuee1/status/1376944861689962499)
+**Dr. Yan’s Report Is Out Today and the White House Knows It**
 
-【文章仅代表作者个人观点】
+那么另外一个今天是我们的科学家，第三个报告出来，据我所知，刚刚我给科学家发了个信息，拜登政府用的几个大咖，最早给我发信息，问英文谁给校对的？我说啥意思啊？我说英文是科学家校对的呀，他也没说啥，绝对是超级人物，就说明咱们科学家的一举一动白宫都盯着呢，你想想那共产党能不盯着吗？所以科学家这个人她绝对是个天使，上天送来的，真的是我们最大的礼物。路波切最大的功劳就是119，啥也不是，就是119，没119他啥也不是，119是他最大的功劳，说的太好了。
 
-本文作者：sherryok水云间
+So another thing is about our scientist [Dr. Li-Meng Yan]. As far as I know, her third report just came out today. I just sent a message to our scientist. Several big shots from the Biden administration sent me messages earlier, asking me who proofread her English.“What do you mean by that?” I said, “The English was proofread by the scientist herself.” He didn’t say anything, this guy is an absolute big name. It means that every action of our scientist is watched closely by the White House. Think about it, can the CCP not have its eyes on her too? So our scientist, she is definitely an angel, a gift from heaven. She is really the greatest gift to us. LuDe’s greatest contribution is the January 19 broadcast [when for the first time he disclosed the info about the virus that he got from Dr. Yan at the LuDe Media]. Without the January 19 broadcast, he would be nobody. The January 19 broadcast is his greatest contribution, and he did a really great show.
 
-审核校对：玫瑰新闻组
+但今天是个大日子，科学家的第三个报告，以毒灭共..这个牛了，所以你看反应有多快，我相信今天晚上路波切做节目，他得好好讲讲，今天晚上我估计都得打领带了，是吧？
 
-上传排版：玫瑰新闻组
+But today is a big day, with our scientists’ third report and taking down the CCP with the truth about the virus – really awesome! So you see how fast the reaction is. I believe that LuDe will talk about this [report] in depth on his evening show. I guess he will wear a tie this evening, right?
 
-0
+另外一个兄弟姐妹们，要注意到整个美国和西方的联合，叫联合起来以毒灭共，看看你七哥的，就今天下午七哥有几个重要的人，我们要好好聊聊，然后要组织一个会，到黄石公园要秘密的开会，要进山，以毒灭共，联合灭共，这已经谁也挡不住了。
+
+Brothers and sisters, another thing is that we must notice the unity of the United States and the West, which is called getting united to take down the CCP with the truth about the virus. Look at your Brother Miles. Just in this afternoon, your Brother Miles will chat with a few important people. Then a meeting will be organized, a secret meeting in Yellowstone. We will go to the mountains to discuss about taking down the CCP together, using the truth about the virus. No one can stop this.
+
+所以说想想今年七哥定的以毒灭共，以钱灭共，兄弟姐妹们，你们越有钱，共产党死的越快，你们越快乐，共产党死得越快，你们越成功，共产党死得越快，所以你们必须成功，心脏要强大，人要坚强，更重要的要开双眼，不要傻，不要看底下，看上面，不要那么简单的被人家给骗了，啥都不说了。
+
+So think about this year’s goal that Brother Miles has set: taking down the CCP with the truth about the virus and with money [financial activities]. Brothers and sisters-in-arms, the richer you get, the sooner the CCP will die; the happier you become, the sooner the CCP will die; the more successful you become, the sooner the CCP will die. So you must succeed, you must have a strong heart. To be strong, you must open your eyes and not be foolish. Don’t look down, rather you should look above. Don’t be fooled so easily by others. I will stop here.
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60647e3549339063d061998c](https://gtv.org/getter/60647e3549339063d061998c) (6:40-7:28, 8:05-9:24)
+鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/1041092/](https://www.gnews.org/zh-hans/1041092/)
+
+参考链接：
+[1] [闫博士最新报告（英文版）](https://zenodo.org/record/4650821#.YGSRqy2caQK)： [下载](https://zenodo.org/record/4650821#.YGSRqy2caQK)
+[2] [闫博士报告一（中文PDF）](https://gnews.org/zh-hans/357190/)：[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/09/18030621/Yan_Report-V5.2_Simpified.pdf)
+[3] [闫博士报告二（中文PDF）](https://gnews.org/zh-hans/412951/)：[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/09071629/The_2nd_Yan_Report-V1.0-Simpilfied.pdf) 
+[4] [闫博士驳斥CNN](https://gnews.org/zh-hans/581750/)：[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22120527/Dr_Yan_20201121_Report3_EN_CN_Traditional_PDF-v1.3.pdf)
+
+* * *
+
+校对 & 字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
++7

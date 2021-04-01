@@ -1,51 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 剑指中国、日本和印度尼西亚加强安全关系
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1040494/)
+## 【热点播报】基督教传道牧师起诉南希·佩洛西和卡玛拉·哈里斯
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1041214/)
 
-翻译：康州盘古农场 – 郭班之樱
-校对：康州盘古农场 – Mike Li
-编辑：康州盘古农场 – 心照
+译评：纽约香草山福音部 Daxia
 
-据《路透社》东京，Kiyoshi Takenaka，2021年3月30日发布：
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/1-429.jpg)
 
-2021年3月30日，在日本和印度尼西亚举行的“二加二”会议上，印度尼西亚外交大臣勒特诺·马尔苏迪（Retno Marsudi）和国防部长普拉博沃·苏比安托（Prabowo Subianto）与日本外交大臣茂木敏光（Toshimitsu Motegi）和国防部长岸伸喜夫（Kishi Nobuo）进行了会谈。   戴维·马鲁伊（David Mareuil） / 通过美联社汇集照片。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-东京（路透社）：随着中国经济和军事实力的扩大，作为邻国的日本和印度尼西亚于周二承诺加强安全关系，并签署了一项协议，以促进其国防设备和技术的转让。
 
-中（共）国在东海和南海的领土主张已成为中美关系中日趋激烈的一个首要问题，也给日本带来了重大的安全隐患。
 
-印尼国防部长普拉博沃·苏比安托（Prabowo Subianto）说：“我认为这是日本与印尼之间的一个历史性首次的双边关系。”
+据《纽约邮报》3月31日报道：
 
-他对记者说：“我们邀请日方加入以加强印度尼西亚现代化的国防能力，我们还鼓励（日方）参加我们海陆军的联合训练。”
+美国基督教传道牧师马奥尼周一向华盛顿联邦法院起诉众议院议长南希-佩洛西（Nancy Pelosi）、副总统卡玛拉-哈里斯（Kamala Harris）和国会警察委员会，法院判决称：“全面拒绝”马里奥牧师举行受难节守夜的许可申请，违反了宪法第一修正案赋予他的权利。
 
-这是普拉博沃在日本与印度尼西亚外交和国防部长会议之后，在东京联合媒体面前发表的评论。
+法庭文件显示，马奥尼拟于4月2日在国会大厦西边举行守夜活动，“目的是祈求上帝治愈自2021年1月6日悲剧事件以来萦绕在我们国家的焦虑。”
 
-日本外交大臣茂木敏光说：“我们就东海和南海局势交换了意见。并对（中共国）单方面持续与加强武力，以改变现状的企图表示深切关注。”
+2月2日他提出申请，3月24日被拒绝。法庭文件显示，这些年来，他在同一地点举办了大约30场其他活动。
 
-（中印）会议之后，美国国务卿安东尼·布林肯（Antony Blinken）访问了该地区（东京），他警告了中共国的“胁迫和欺凌”，并对中共国以利益冲突欺负邻居的企图加以批评。
+法院判决称，现在，国会大厦周围竖起了围栏，“实际上是创建了一个禁止讲话的区域”，尽管目前安全威胁已经不复存在，但依然无法得知这一区域何时对外重新开放。
 
-包括印度尼西亚在内的东南亚国家联盟（ASEAN）成员依然对进入中（共）国经济的通道保持警惕，而不愿意涉入华盛顿与北京之间的任何矛盾对抗。
+法庭说，这位神职人员是一个“爱好和平的人”，他“强烈谴责暴徒的犯罪行为”。如果允许他守夜，他也不会对安全构成威胁。
 
-印尼外交大臣勒特诺·马尔苏迪（Retno Marsudi）也强烈批评缅甸军在2月1日军事政变之后针对平民持续发生的暴力行为。她说：“这是难以接受的，印度尼西亚强烈谴责这种行为”。
+佩洛西、哈里斯和国会警察委员会，未就此事立即作出回应。
 
-勒特诺致力成为该地区的代言人，因为她正在努力促成与缅甸军方的谈判。自发动政变以来，缅甸军方已经杀害了500多名抗议者。
+宗教信仰自由是神圣不可侵犯的权利，彰显了美国的伟大。
 
-在缅甸有着广泛商业利益的日本迄今未实施对军事领导人的制裁。
+参考阅读：
 
-而茂木敏光在周二告诉了议会，东京一直是缅甸最大的经济援助供应者，但其官方发展援助已经暂停了。
+[Christian minister sues Nancy Pelosi, Kamala Harris over access to Capitol](https://nypost.com/2021/03/31/minister-sues-nancy-pelosi-kamala-harris-over-capitol-access/?utm_campaign=iphone_nyp&amp;utm_source=pasteboard_app)
 
-安东尼·斯洛德科夫斯基（Antoni Slodkowski）和朴菊敏（Ju-min Park）报道，马克·海因里希（Mark Heinrich）和凯文·利菲（Kevin Liffey）编辑
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-1.jpg)
 
-我们的标准：《汤森路透信托原则》
+编辑：灵性探索
 
-原文链接：[https://www.reuters.com/article/us-japan-indonesia-idUSKBN2BM13C](https://www.reuters.com/article/us-japan-indonesia-idUSKBN2BM13C)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+校对/发稿：Irene木木
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 +1

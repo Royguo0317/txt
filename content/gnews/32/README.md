@@ -1,25 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精選新聞簡訊：NASA官網將臺灣列為“國家”
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1040458/)
+## 【热点播报】川普正在“推进”自己的社交媒体平台计划
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1041286/)
 
-出品：《路德社》 編輯：《路德社》精選新聞專欄組
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/是-11.png)
-3月31日網易新聞：國台辦3月31日上午舉行例行新聞發佈會，有記者問，美國國家航空航天局日前在網上發起“火星船票”活動，其官網將“臺灣”單列為“國家”，引起大陸網友抵制，請問發言人對此有何評論？
+译评：纽约香草山福音部 Daxia
 
-朱鳳蓮表示，臺灣是中國領土不可分割的一部分。希望NASA作為美聯邦政府的機構，尊重中國主權和領土完整，恪守一個中國原則和中美三個聯合公報規定，儘快改正相關錯誤。我們也相信海內外的中華兒女對這件事都會有正確的認識。
 
-評論：中共關於臺灣問題一直用的是“一個中國原則”來糊弄世界，美國所謂的“一個中國”指的是大陸與臺灣只承認一個中國政權，從來沒有表達過這個承認的政權是中共。過去美國也曾利用這種“模糊”的表達來博取中共的利益，可是隨著現在全世界討伐中共的呼聲越來越高，美國各界對臺灣問題的立場表達一定是越來越強硬。
 
-[原文鏈結](https://c.m.163.com/news/a/G6DMLMOB0001899O.html?spss=newsapp)
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-【文章僅限作者個人觀點】
 
-本文作者：喜馬拉雅攝影師
 
-審核校對：魯邦五世
+据《邮约邮报》3月31日报道，“唐纳德-川普正在推进自己的社交媒体平台计划”。
 
-上傳排版：玫瑰新聞群組
+一位熟悉此事的人士告诉福克斯新闻：“我们正在花时间做正确的事，川普将以不同的方式表达他的声音。”
+
+继2021年1月6日美国国会大厦发生骚乱后，川普被无限期禁止使用Twitter和Facebook等社交媒体网站。
+
+笔者在此只想感叹一句：水到穷处成飞瀑，人到绝境是重生。
+
+参考阅读：
+
+[Donald Trump ‘moving forward’ with plans for own social media platform](https://nypost.com/2021/03/31/trump-moving-forward-with-plan-for-social-media-platform/?utm_campaign=iphone_nyp&amp;utm_source=pasteboard_app)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-1.jpg)
+
+编辑：灵性探索
+
+校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 +1
