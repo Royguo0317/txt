@@ -1,214 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0331.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1041138/)
+## 潘多拉魔盒的火币
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1041201/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+作者：滴水穿石
 
-作者：康州盘古农场 喜马拉雅的文雅
+中共国的深圳证券交易所于1989年11月，次年12月1日开始集中交易，利用发行股票和作盘面上技术操作欺诈与收割韭菜已经营运三十个年头，用这个老套路盘剥百姓圈钱方式已不再管用了。中共国几十年前已有国家资本力量扩张吞并全球的计划，是用一种新型盘剥百姓财富，那就是发行火币
 
-文宣图：康州盘古农场 霹雳年
-![]()![](https://gnews.org/wp-content/uploads/2021/03/white-hosue-and-us-flag.jpg)
-## 闫博士第三份报告
+由于国际制裁措施提上日程，全球讨伐其引爆全球大瘟疫疫情的责任，中共国经济溃败已成定局。让民众卷入中共国家机器的＂火币大饼＂宣传，让温井中的百姓购买，用一种市场导向的利率变化和经济下行趋势之时将其贬值，把老百姓的数字货币转入国库中，收进中央银行变成国家的主权货币。再以其他方式借货方式转移，对其坏帐处理而销声匿迹，又通过印刷货币—通货膨胀转债于百姓头上无形中财产缩水。
 
-2021年3月31日这一人类历史征程又一里程碑的日子，天使科学家闫丽梦博士发表了第三篇关于中共病毒的科学报告。闫天使在推文中称：
+**![](https://lh6.googleusercontent.com/wov5t3zLeNgSQHkXhn1zHubV88L-QRjOpUGINi6bhoOSmDgRQiZjd1jJGttzHkXxTJ-FiJJWhxziHN5mpp54GEKDqPgnQnd_eygNbzfcJqX7BhVCoSCMBnXG4GBrkTA0xzoxnyyx)**
 
-第三篇闫氏报告发表！
+发行火币＂醉翁之意不在酒＂，其目的是通过网络平台消费及并行多端的交易，潜移默化且悄无声息抽取民众财源，之后让垄断的大中型国有企业大批量贷款到境外“投资建设”进行洗钱，又转入个人在境外注册的私人公司，以各种形式之名＂贷款＂到境外去＂投资＂，进行大批民众与国家财富被转移，藏富于＂建筑艺术＂红魔基因家族库中。正是以用国家之名义，收刮民众钱财，挪到国外资产投资，赚到钱转入中共盗国贼家族自己的钱袋子中。
 
-两次不请自来的“同行评议”的失败，进一步证明了SARS-CoV-2的武汉实验室起源和闫氏报告的有效性。
-论文链接：[https://zenodo.org/record/4650821#.YGR0\_uT3aEd…](https://zenodo.org/record/4650821#.YGR0_uT3aEd…)
+中共用影子货币发展成国家主权货币，用其在海外的势力集团全面快速地推动发行欧洲、非洲、亚洲和南美洲国家全面推行等同的数字货币体系。因为没有与实物如黄金锚定，存在着巨大的风险。其主要用于收集个人信息，资金流向，各方面情报，行动踪迹。全方位暗中收录全世界政要，企业和外国政府的各种信息，更是收集中国内民众出境的资金流向。对你生活及一切言行进行监控，这是一种高科技高效的高智能监控系统。任何人进入这个货币系统都将为自己的将来套上无形的手链与脚链，你的生活无死角全都被收尽于中共红魔掌控之中。
 
-#COVID19
+用这些钱来蓝金黄西方国家政要，把红色魔爪伸向文明国家影响政策与主权，从而控制他国经济，玩弄于手掌之中，利用经济超限战至西方国家经济崩溃，社会动乱、政变及火战，从而达到吞噬西方文明国家而不费吹灰之力。洗钱惯用技俩：将黑钱通过购买线上消费的形式花掉，去购买的物品就无法追踪，再将物品卖掉，资金完成洗白干净，无法记录！现在用由黑变白的钱再购买数字货币，之后在境外兑现或再投资，多次转手后划入个人财囊之中。
 
-#超限生物武器
+**![](https://lh4.googleusercontent.com/9WBf8CRf_aup3-N3aEFte8x0XzTOK26Os2dhOr3AYB90O-IYRbaNYmc4sxMNKSWDVBPMiqhwbfIB6iOT-TUSuM3xFylQLu5skqX14rkFV-fXEn4If5lWk8f1u7wYZ5IlChnZ4f4V)**
 
-#超限科学误导
+没有与实物黄金为锚定的火币存在的风险是中共及境外集团发行的数字货币没有与有固定资本如黄金进行锚定，数字货币与现金货币的弊端缺点等同存在！数字货币完全脱离中心节点的离线交易，它隐藏着被设计好的作弊黑洞，这个黑洞可以在不定期地悄无声息地窃取转移他人的数字货币，那就是说可以进行洗钱或者窃取他人的财产。这是将逐步取代电子货币网上支付平台的趋势，隐形窃取他人钱财及洗钱的主要途径。中共国用国际储备数字货币用来取代美元为主导的全球支付体系，欲称霸全球，启动快速重启其＂世界命运共同体＂的邪恶计划。
 
+中共国发行的火币相比，G币的优势：
 
+G数字货币的发行的目的是与黄金实物锚定成一定的比率，不会因为社会动荡、经济崩溃与各种类形的战争到来之时而受损失，并且价值保持升值，用其创造的增值财富，用于消灭共产党红色魔鬼扩张侵吞人类文明世界的世界大重启计划，唤醒全球的正道力量集结灭中共红魔。这是有天赋使命的一群人共同去创建的数字货币交易平台，指向性及目标明确。
 
-> The 3rd Yan Report is published!
-> 
-> The Wuhan Laboratory Origin of SARS-CoV-2 and the Validity of the Yan Reports Are Further Proved by the Failure of Two Uninvited "Peer Reviews"
-> Link:[https://t.co/Up3aI00aPi](https://t.co/Up3aI00aPi)[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)[#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedScientificMisinformation](https://twitter.com/hashtag/UnrestrictedScientificMisinformation?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/j2q7hpgAnj](https://t.co/j2q7hpgAnj)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [March 31, 2021](https://twitter.com/DrLiMengYAN1/status/1377248049093828611?ref_src=twsrc%5Etfw)
+而中共国的数字货币是极权统治者以国家机器的力量以发行，用国家资本进行财政极权中心化，在全球推广其不与黄金锚定的风险大升的数字货币，正在欧洲，东亚，非洲，南美洲各国大量发行数字货币，其中有中共财团的影子在其中运行，但其埋下的黑洞为将来用于干什么？是为收集个人、企业与各国政府的信息而撑控情报垄断控制人类的恶行，违反人权与正义的，是与天相背道而驰。
 
+中共国的火币是一种无形的手链与脚链，监控到所有的帐户，个人信息行踪，个人行踪在全球无死角被鉴控追踪，一旦共产红魔用于收集个人信息，红魔启动潘多拉魔盒计划，给现代高科技奴隶上的一幅无形手链与脚链，拜金主义思潮，世界动荡巨变。
 
+当全球经济危机来临之际，你做好准备了吗？你的财富保全了吗？全球因中共的生物武器大瘟疫流行，你的生命能安全与否？开智看天意，唤醒人的良知并与正义力量集结，正道运动与平民主义如同挪亚大方舟，你上到这艘大方舟了吗？还是上红魔末日驶向地狱的那条渗漏的小帆船？
 
+2021年3月26日
 
+**【参考来源】**
 
+**中文維基百科**** **[**https://zh.wikipedia.org/wiki/%E7%81%AB%E5%B8%81%E7%BD%91**](https://zh.wikipedia.org/wiki/%E7%81%AB%E5%B8%81%E7%BD%91)
 
+【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-## 纳瓦罗博士怒了：“病毒之父—蝠奇”
+### **欢迎战友加入旧金山金喜农场**
 
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[** **](https://discord.gg/QQzQ79grEA)
 
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)[** **](https://twitter.com/sf_himalaya)
 
-> Fauci is a sociopath and a liar. He had nothing to do with the vaccine. The father of the vaccine is [@POTUS45](https://twitter.com/POTUS45?ref_src=twsrc%5Etfw). Fauci is the father of the ACTUAL virus. Wuhan lab![https://t.co/LvCCsLwSU0](https://t.co/LvCCsLwSU0)
-> — Peter Navarro (@RealPNavarro) [March 31, 2021](https://twitter.com/RealPNavarro/status/1377277563077283841?ref_src=twsrc%5Etfw)
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
 
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
 
-[https://www.mediaite.com/tv/peter-navarro-goes-on-wild-rant-calling-fauci-the-father-of-the-virus/](https://www.mediaite.com/tv/peter-navarro-goes-on-wild-rant-calling-fauci-the-father-of-the-virus/)
-据3月30日Mediaite文章，《皮特-纳瓦罗大发雷霆，称蝠奇（Anthony Fauci)为 “病毒之父”》，针对日前蝠奇接受CNN采访时称去年1月10日决定开发疫苗是自己一生中做出的“最好”的决定，皮特-纳瓦罗博士接受了福克斯新闻采访，称：
+【**责任编辑**】：旧金山文宣组
 
-“蝠奇是个反社会的人，也是个骗子。他与疫苗毫无关系。疫苗之父是唐纳德-J-川普。”“蝠奇是什么之父？蝠奇是实际病毒之父。根据疾病控制中心的罗伯特-罗德富尔德（Robert Redfield）的说法，这个病毒来自武汉实验室，基本上我们让蝠奇不仅用美国纳税人的钱资助那个实验室，他还授权了这个叫做功能增强型研究的东西。”
-
-纳瓦罗博士说，蝠奇“允许中国共产党、人民解放军利用功能增强对病毒进行基因工程，”“我现在叫它蝠奇病毒。如果他想成为某件事情的父亲，他就是杀死50多万美国人的病毒之父。”
-
-文章称，主播坎波斯-达菲不顾无数的虚假言论，包括蝠奇资助武汉一家实验室制造病毒这一毫无根据的说法，完全没有提出任何反驳。这一说法最早是由新闻网站WorldNetDaily提出的，后来经查实为虚假。
-
-
-
-> Fauci is a sociopath and a liar. He had nothing to do with the vaccine. The father of the vaccine is [@POTUS45](https://twitter.com/POTUS45?ref_src=twsrc%5Etfw). Fauci is the father of the ACTUAL virus. Wuhan lab![https://t.co/LvCCsLwSU0](https://t.co/LvCCsLwSU0)
-> — Peter Navarro (@RealPNavarro) [March 31, 2021](https://twitter.com/RealPNavarro/status/1377277563077283841?ref_src=twsrc%5Etfw)
-
-
-
-
-
-纳瓦罗博士30日参加班农先生疫情战斗室时称，拜登“为中共病毒的致命性变异打开了边界”。他在推文中称：“乔-拜登和卡马拉-哈里斯已经为致命的巴西变种病毒安东尼-蝠奇病毒敞开了边境。”
-
-
-
-> [@JoeBiden](https://twitter.com/JoeBiden?ref_src=twsrc%5Etfw) and [@KamalaHarris](https://twitter.com/KamalaHarris?ref_src=twsrc%5Etfw) have opened our border to a DEADLY Brazilian mutation of the Tony Fauci Virus. [https://t.co/Wmw3ZafeUo](https://t.co/Wmw3ZafeUo)
-> — Peter Navarro (@RealPNavarro) [March 30, 2021](https://twitter.com/RealPNavarro/status/1377033688953815046?ref_src=twsrc%5Etfw)
-
-
-
-纳瓦罗博士在班农战斗室称：“蝠奇博士为了提高自己的粉丝俱乐部而撒谎。他假装自己是疫苗之父，宣称2020年1月10日开发疫苗是自己的功劳。这是对川普总统
-、所有国土安全部、生物医学高级研究与发展局、联邦紧急事务管理局等与之相关的人的冒犯。”
-
-
-
-> Dr. Fauci lies to improve his own fan club. He pretends he is the Father of the Vaccine claiming credit for it on January 10th, 2020. Offensive to [@POTUS45](https://twitter.com/POTUS45?ref_src=twsrc%5Etfw) & everyone in HHS, BARDA, FEMA that ACTUALLY had something to do with it.[https://t.co/OdEkiS84um](https://t.co/OdEkiS84um)
-> — Peter Navarro (@RealPNavarro) [March 30, 2021](https://twitter.com/RealPNavarro/status/1377032956766781447?ref_src=twsrc%5Etfw)
-
-
-
-## 支持香港
-
-3月31日国务卿布林肯推文：
-
-今天，我们向国会报告了中共国继续破坏香港的自由、民主制度和高度自治的情况。美国呼吁中共国扭转方向，履行其国际义务和承诺。#与香港站在一起。
-
-
-
-> Today, we reported to Congress the PRC's continued dismantling of Hong Kong’s freedoms, democratic institutions, and high degree of autonomy. The United States calls on the PRC to reverse course and uphold its international obligations and commitments. [#StandWithHongKong](https://twitter.com/hashtag/StandWithHongKong?src=hash&amp;ref_src=twsrc%5Etfw).
-> — Secretary Antony Blinken (@SecBlinken) [March 31, 2021](https://twitter.com/SecBlinken/status/1377270389450158081?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 尼克松研讨会
-
-3月31日蓬佩奥国务卿转推理查德-尼克松基金会的推文：
-@PayPal 联合创始人Peter Thiel将于4月6日与 迈克-蓬佩奥先生、前白宫国家安全事务负责人奥布莱恩（Robert C. O’Brien）和15位研讨会成员就大科技与中共国议题举行尼克松研讨会。我们需要从硅谷得到什么？
-
-
-
-> The Nixon Seminar will feature [@PayPal](https://twitter.com/PayPal?ref_src=twsrc%5Etfw) co-founder Peter Thiel on April 6th for dialogue with [@mikepompeo](https://twitter.com/mikepompeo?ref_src=twsrc%5Etfw), [@robertcobrien](https://twitter.com/robertcobrien?ref_src=twsrc%5Etfw) & 15 Seminar members on Big Tech and China: What Do We Need from Silicon Valley? 
-> 
-> Watch the [#NixonSeminar](https://twitter.com/hashtag/NixonSeminar?src=hash&amp;ref_src=twsrc%5Etfw) live: [https://t.co/Lk5MdHJkQy](https://t.co/Lk5MdHJkQy)
-> — Richard Nixon Foundation (@nixonfoundation) [March 31, 2021](https://twitter.com/nixonfoundation/status/1377291713132122119?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 教育的侵蚀
-
-当日蓬佩奥国务卿推文：“教导我们的孩子说美国是一个本质上的种族主义或邪恶的国家，是最不美国的 “教训”。批判性种族理论**绝对不应该**在我们的课堂上教授。”
-
-
-
-> Teaching our children that the United States is an inherently racist or evil country is the most un-American “lesson” there is. Critical Race Theory should NEVER be taught in our classrooms.
-> — Mike Pompeo (@mikepompeo) [March 31, 2021](https://twitter.com/mikepompeo/status/1377247209574567938?ref_src=twsrc%5Etfw)
-
-
-
-## 川普总统最新动向
-
-2021年3月31日45届美国总统川普在GAB的发文如下。
-
-乔-拜登实施美国历史上最大规模加税的激进计划，是对中（共）国和许多其他国家的大规模赠予，将把数千家工厂、数百万个工作岗位和数万亿美元送到这些竞争性国家。拜登的计划将压垮美国工人，摧毁美国制造业，同时给外包商、外国公司和巨型跨国公司以特殊的税收特权。
-
-拜登承诺要 “建设得更好”–但他正在建设的国家，尤其是中（共）国和世界其他大片地区。在拜登政府的领导下，美国又一次在与中（共）国的经济战中败下阵来–而拜登令人啼笑皆非的数万亿美元的加税是一种彻底的经济投降战略。当我们的国家从全球大流行病的影响中恢复过来时，牺牲高薪的美国就业机会是我们的公民最不需要的。
-
-拜登的政策将以发达国家中最高的商业税率打破美国工人的后路。根据拜登的计划，如果你在美国创造就业机会，并雇用美国工人，你将支付更多的税款，但如果你关闭你在俄亥俄州和密歇根州的工厂，解雇美国工人，并将所有生产转移到北京和上海，你将支付更少的税款。这与 “美国优先 “恰恰相反–这是把美国放在最后。
-
-把美国的工作岗位送到中（共）国的公司不应该得到乔-拜登的税收法案的奖励，他们应该受到惩罚，以便他们把这些工作岗位留在美国，属于他们的地方。
-
-这项立法将是历史上最大的自我经济创伤之一。如果这个怪兽被允许通过，结果将是更多的美国人失业，更多的家庭破碎，更多的工厂被废弃，更多的产业被破坏，更多的大街被板上钉钉，关门大吉–就像4年前我接任总统之前的情况一样。我当时创造了创纪录的低失业率，有1.6亿人工作。
-
-这次加税是乔-拜登和他的朋友们典型的全球主义背叛：游说者会赢，特殊利益集团会赢，中（共）国会赢，华盛顿的政客和政府官僚会赢–但勤劳的美国家庭会输。
-
-绝不能让乔-拜登对美国梦的残酷无情的攻击成为联邦法律。就像我们的南部边境从最好的到最差的，现在是一团糟一样，我们的经济也将被摧毁!
-
-[https://gab.com/realdonaldtrump/posts/105985556801911443](https://gab.com/realdonaldtrump/posts/105985556801911443)
-
-
-
-## 拜登差点又摔
-
-当日朱利安尼先生转发了退役NBA球星Dave Rubin的推文：
-
-“1. 他（乔-拜登）差点又摔倒
-
-“2. 他为什么戴口罩（暗指拜登不是为自己推行的疫苗而骄傲吗？）
-
-“3. 可爱的香奈儿包 （有嘲讽意味）”
-
-福克斯新闻主播David Webb回推称：“如果又摔的话，他的包成了‘摔男’再次摔倒的借口，有几个总统登上空军一号自己拎包？”
-
-
-
-> The bag is the fall "guy" and can be blamed if he does. How many presidents carry their own bags onto AF1?
-> — David Webb (@davidwebbshow) [March 31, 2021](https://twitter.com/davidwebbshow/status/1377347162061729794?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 血淋淋的耐克撒旦鞋
-
-耐克起诉MSCHF未经批准生产的撒旦鞋Air Max’97继续被发酵, 其包装、限量版的数字等都赋有反基督的寓意。其售价1018元和鞋身印有“Luke10:18”寓意《圣经》路加福音10章第18节的内容：“我看见撒旦从天而降，像闪电一样”。
-
-网友推文：
-
-MSCHF x Lil Nas X “撒旦鞋 “。
-
-运动鞋Nike Air Max ’97
-含60cc红色墨水和1滴人血。
-666 对，单独编号。
-1018元
-2021年3月29日。
-
-南达科他州州长克里斯蒂-诺转推称：
-
-“我们的孩子被灌输这种产品，不仅被允许，而且是 “独家”。但你知道什么是更独家的吗？他们的上帝赐予的永恒的灵魂。
-我们正在为我们国家的灵魂而战。我们需要奋力一搏，而且我们要打得智慧。我们必须要赢。”
-
-朱利安尼先生转发了这一推文。
-
-
-
-> Our kids are being told that this kind of product is, not only okay, it's "exclusive." But do you know what's more exclusive? Their God-given eternal soul.
-> 
-> We are in a fight for the soul of our nation. We need to fight hard. And we need to fight smart. We have to win. [https://t.co/m1k1YWFpuo](https://t.co/m1k1YWFpuo)
-> — Governor Kristi Noem (@govkristinoem) [March 28, 2021](https://twitter.com/govkristinoem/status/1376239196709478400?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
-
-+2
++14

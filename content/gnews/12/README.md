@@ -1,62 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 缅甸乱局升级，各国相继予以制裁，唯独中缅边贸却逆势增长！
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1041625/)
+## 在美亲维族与亲共华人展开争锋相对舆论战
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1041645/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/擷取41-0.jpg)
-作者：台湾准农场 快慢机
+俄罗斯莫斯科喀秋莎农场 DongDong
 
-[新闻链接](http://www.mmgpmedia.com/static/content/CJ/2021-03-30/826510060749594624.html)
+编辑上传 水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/image0-110.jpg)
+周一03月29日，美国左派和伪民运人士开展了大规模的名为“停止仇恨亚洲”的集会活动，试图以“反对亚裔种族歧视”为名，影响美国和西方的民意。就在上周，国际社会越来越认识到对维族人来说，中共犯下了证据确凿的种族灭绝罪。因此，美国、英国、加拿大和欧盟本周对侵犯维族人人权的中共官员实施了制裁[1]。
 
-[新闻链接二](https://new.qq.com/omn/20210331/20210331A0CTRP00.html)
+中共就此指控展开了舆论反击。他们利用美国左派“政治正确”的意识形态，使用左派“反对种族歧视”的语言，从道德制高点展开反攻。中共党喉《环球时报》企图将对中共国的人权制裁，转化为美国和西方世界针对黄皮肤的“亚洲人的种族歧视”，以掀起“白种人和黄种人之间的种族对立”，从而借机将东方世界与西方世界对立起来。
 
-## 美国政府宣布全面终止与缅甸一切贸易往来，并开始撤离非紧急任务小组外的全部驻缅使馆外交人员。
-![](https://lh5.googleusercontent.com/Ztp53owb1vwJuX13-GlClygNlPnX1PgZx7nHi-Xx0g_qcKpleSYHVHRPdepo-FqTGCu2YshdruaQjzq7D9xAsT_hfRtdF--99dow51Qq3ytG7GS4iVsyB9kY8D-Jt64_Jpnhqlu5CjeW5hSiXA)
-2021年3月29日晚，美国贸易代表凯瑟琳.戴，于公共社交媒体上向外界表示，鉴于缅甸军政府发动军事政变以来，所导致的缅甸动荡乱局现状，美国政府决定全面终止同缅甸现任军政府的一切贸易往来活动，直至缅甸合法民选政府回归执政为止，该决议即刻生效。
+但这次亲维族华人团结反击，与亲中共华人在集会上展开了针锋相对的舆论战。自上周日以来，亲维族人的车辆上挂满了呼吁中共政府停止对维族人迫害的条幅和标语，沿途高喊“消灭中共”，亲中共亚裔则回骂他们是 “种族主义者”。
 
-次日，美国国务院便向驻缅美国使馆，发出了全面撤离，除紧急任务小组外的全部外交人员及相关家属的紧急命令。
+时至今日，虽众多美国人已认识到 “中共不代表中国人”，但自川普总统强硬对待中共后以及 中共病毒疫情，使得许多不了解 “真正中国人” 的美国人，将愤怒的情绪发泄到了在美的华人身上，甚至导致华裔被枪杀的悲剧[2]。这次所点燃的反华情绪，间接被中共利用为“对亚裔的种族歧视”，甚至《环球时报》将此事件与“黑命贵”运动联系起来。《环球时报》在周一的社论中盛赞美国的 “黑命贵”运动是“结束针对黑人的种族主义歧视”，这种挑拨美国各个族群之间矛盾的做法，就是典型的共产极权“人民斗人民”的做法。中共国人经历过黑暗十年的文革，但傻白甜的美国人从未经历过，以为社会主义乌托邦真如香格里拉一样美好，那不过是中共编织的又一个谎言。
 
-## 中、俄两方参加缅甸建军节阅兵式当天，也正是缅甸军方射杀民众数量最多一日。
-![](https://lh5.googleusercontent.com/MtHDbPxFcvFgSgJM3iJTWDDxy7QRpSfpIl3z_Dmfj_pvC17JNWP24A_J09gKuX9Z-ADEiGgPOGxfzUK2CAsqgpFYnHDQOMEjTpYNSqdt0nlKSWy-kAjJlgN3Xdc7K1G9PIUYZZ-WtIeTyFFQmA)
-3月27日，缅甸军政府在全境各地一片抗议浪潮声下，强行举办建军节阅兵式活动，在广发40余份邀请函石沉大海之后，仅有中、俄两方应邀派员出席观礼。
+维族人目前遭受的暴行中，有强迫维吾尔妇女与汉族通婚，更恶劣的是强迫绝育，还有强迫劳动——主要是强迫采摘棉花。
 
-然而就在阅兵式当日，缅甸军方却制造了连日来最为血腥一天。打破了其丧心病狂射杀抗议示威民众的罪恶记录，单日在全境多地残忍射杀致死逾百人，其中不乏妇女及儿童。
+西方各国也密切关注新疆强迫采摘棉花的事件，国际社会以及美英加和欧盟的公开发表强烈谴责中共侵犯维族人权的声明[3]，出于维护公司品牌形象和国际声誉的目的，早在一年前 H&M、 Burberry、耐克、阿迪达斯等一线品牌就发表声明，不会使用产自新疆的棉花，但上周此事被中共炒冷饭又一次舆论造势，令国内掀起抵制这些品牌的热潮，几天后中共又将抵制活动悄悄打压下去。
 
-此举随即便引起国际社会，乃至多达12国防长的联合声明谴责。而这其中自然并未出现缅甸军政府的“好盟友”——“中共”与“俄罗斯”的声音。
+本周一03月29日，新疆维吾尔自治区政府新闻发言人徐贵相以战狼外交的姿态进行回应。他首先代表中共否认所有这些指控，以表演的方式安排几位新疆人在新闻发布会上公开发表声明，并宣称 “（西方）编造种族灭绝问题的真正目的是破坏中（共）国的安全和稳定”。其次，煽动民意鼓励民众抵制上述几家的产品，警告这些跨国企业警告不要把新疆问题“政治化”。最后，以骄傲的口吻说道，中（共）国人民遭受西方列强霸凌的时代一去不复返了，制裁的大棒挥向新疆企业的时候，也会砸向自己[4]。再次，强行代表中共国人民与西方文明世界作对。
 
-## 缅甸乱局持续恶化，面对国际社会等多国制裁，缅甸贸易额大幅萎缩，缘何唯独中缅边贸却逆势增长？
-![](https://lh5.googleusercontent.com/ZGJswRO63PpxS9wGen4KG_4WSbUzZHpHJP3ZjDVSP6suQhe6f9sgyR5hpERMHWoOHX6HJHWx6zS6gFeEzR1hSJGZbezPyTvgPYboP504cJef6lysXqQtLPdG2knderyxw-jP_KPC1LZSUIItsg)
-据缅甸商务部统计数据显示，2020-2021年度财年，前三个季度的边贸额总体呈下降趋势。之后的2020年10月至2021年3月，缅甸对外贸易进口总额71.4亿美元，相较于上一财年同期额94.7亿美元，缩减达23.2亿美元之多。
-![](https://lh6.googleusercontent.com/7R82UjDHcJnoWvyXzWyLmyIk-H6GvZNOfed-oQSxLFqemHRPqf-1Mp8wHKKobubGuPauoiXSpNms1F1ej-9Rbq-I1pS31RA1xtu0O5RNGOn_T0IfZSHBEd-nvjPxNWR0nJPFY3SoCthrUarQJw)
-而这其中对中共国出口总为20.5亿美元，进口额为9.2亿美元，总贸易额29.7亿美元。相较于上一财年同期，中缅边贸总额的27.5亿美元，竟然还涨幅了2.2亿美元。
+那么到底中共国所宣称的早已实现全面机械化采摘棉花是否属实，是否有强迫劳动事件呢？据良好棉花发展(Better Cotton Initiative)2012 年给出的官方报告写到，世界上约 80 个国家大规模种植和生产棉花，90%以上的棉农生活在发展中国家，种植面积不足 2 公顷。在全球最贫困的某些国家中，棉花是其数百万人与全球经济极其重要也是唯一的联系。 [4]
 
-众所周知，中缅贸易中，占比份额最大的莫过于缅甸向中方出口的天然气、木材、矿石、和其它农副及水产品等自然资源性货品。
+从上述描述可知道，棉花还做不到大规模机械采摘，属于密集劳动型，而棉花又是重要的经济作物，所以种植棉花的棉农 90%以上生活在发展中国家，例如中共国。此报告最起码从侧面印证，棉花主要靠人工采摘。因而，维族人被强迫采摘棉花是有根据的，不像中共国所宣传的那样。为获得高额剩余价值，存在强迫劳动的动因。
 
-中共当局由于近期也在部分领域内，例如能源及科技等方面，不同程度的受制于国际社会的制裁。大陆的能源危机、粮食危机正处于随时爆发的临界点。
+参考链接
 
-四面楚歌的中共，不顾与国际社会背道而驰之行，暗地背后支持缅甸军政府的非法军事政变，并对缅甸军方血腥镇压抗议示威民众的恶行“视而不见”。以此换回其急需的缅甸能源与粮食等物资，一解眼下燃眉之急。
+[1] [China says US, UK, EU and Canada seek to destabilize China By Reuters , ondequando , 2021-03-29](https://ondequando.com/2021/03/29/china-says-us-uk-eu-and-canada-seek-to-destabilize-china-by-reuters/)
 
-而上述这些边贸交易活动，则全部来自于中缅接壤的5个边贸口岸，而这5个口岸的贸易额都比去年同期有所上涨，其中涨幅最多的便是，中缅之间最大的的边贸口岸——木姐。
+[2] [China warns firms not to engage in politics over Xinjiang, REUTERS, 2021-03-29](https://www.investing.com/news/world-news/china-says-us-uk-eu-and-canada-seek-to-destabilise-china-2459566)
 
-## 多国政府防长相继联合强势声明表态，中共未免引火上身，故技重施，因疫情再度反弹——姐告封闭！
-![](https://lh4.googleusercontent.com/anovp4un8ADOb-VzlVqTG9jF7zz4aF-tEIgX7zux7Mwaa111g9zE5utjCC3wtBwTDtLKYuDbPbk4bnFfgL_dtub7vnE6-wcp_WHBC3-XILfJ-JT9F94s7SimBp2tJpQ7Dsgfxs8pyvyXvqUKLA)
-“木姐”，这一中缅接壤的最大边贸口岸，紧邻中缅边境重镇的云南省德宏州的瑞丽市，而姐告恰巧就坐落在瑞丽。
-![](https://lh4.googleusercontent.com/OcNpKKUqyhxpnAoKG0B_xlLhDgKBe921UNstVWuhZF6eA2Hb1dDbfyfht5fgbEYCrQPlNJOCvxvwYyaQeZGBQRAi2WQc6qVbHPL7Z0Y40la6dc4JalF7jR7sQyOQ2kghG4c5kEoDEmmja6MA1w)
-中共官方通报，2021年3月30日，云南瑞丽新增6例本土新冠确诊病例、3例无症状新冠感染者。其中1例确诊及3例无症状感染者均为缅甸籍。
+[3] [中国人是不好惹的！新疆政府发言人：H&M们要擦亮眼睛，明辨是非, 中央广播电台（Radio Taiwan International)，2021-03-29](https://www.rti.org.tw/news/view/id/2095528)
 
-鉴于瑞丽新冠疫情突发性反弹，中共当局决定即日起，暂时封锁姐告周边区域，瑞丽市宣布再次紧急转入战时状态。
-
-不要看中共说什么，一定要紧盯它在做什么！中共的“战狼外交部”一面在北京“仰天狂吠”、“装神弄鬼”。中共则暗地在别处“包藏祸心”的小动作不断。眼见国际社会及多国防长联盟对缅甸军政府发出强硬表态，中共便顺势来了个过河拆桥，以免引火上身……
-
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
-
-文章审核：zhong
-
-文章发布：Little Liu
+[4] [良好棉花发展(Better Cotton Initiative)官方间接PDF文档 – 2009年初稿 – 2012年终稿](https://bettercotton.org/wp-content/uploads/2014/01/BCI%E7%AE%80%E4%BB%8BBCI-BRIEF-INTRODUCTION.pdf)
 
 0
