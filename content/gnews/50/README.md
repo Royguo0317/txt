@@ -1,50 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士第三个报告今天发表&nbsp; 白宫密切关注
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1041285/)
+## 【世事解评】闫博士发表第三篇报告！重点是哪些？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1041352/)
 
-简述：在2021年3月31日的盖特视频中，郭文贵先生透露闫博士的报告[1-4]一直被白宫关注，并赞扬路德的119（2020年1月19日）首次爆料病毒的贡献。他让大家注意整个美国和西方的联合，并言“以毒灭共”，“联合灭共”势不可挡。
+作者：纽约香草山翻译部 文明世界
 
 
 
-**闫博士第三个报告今天发表****  ****白宫密切关注**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-**Dr. Yan’s Report Is Out Today and the White House Knows It**
 
-那么另外一个今天是我们的科学家，第三个报告出来，据我所知，刚刚我给科学家发了个信息，拜登政府用的几个大咖，最早给我发信息，问英文谁给校对的？我说啥意思啊？我说英文是科学家校对的呀，他也没说啥，绝对是超级人物，就说明咱们科学家的一举一动白宫都盯着呢，你想想那共产党能不盯着吗？所以科学家这个人她绝对是个天使，上天送来的，真的是我们最大的礼物。路波切最大的功劳就是119，啥也不是，就是119，没119他啥也不是，119是他最大的功劳，说的太好了。
 
-So another thing is about our scientist [Dr. Li-Meng Yan]. As far as I know, her third report just came out today. I just sent a message to our scientist. Several big shots from the Biden administration sent me messages earlier, asking me who proofread her English.“What do you mean by that?” I said, “The English was proofread by the scientist herself.” He didn’t say anything, this guy is an absolute big name. It means that every action of our scientist is watched closely by the White House. Think about it, can the CCP not have its eyes on her too? So our scientist, she is definitely an angel, a gift from heaven. She is really the greatest gift to us. LuDe’s greatest contribution is the January 19 broadcast [when for the first time he disclosed the info about the virus that he got from Dr. Yan at the LuDe Media]. Without the January 19 broadcast, he would be nobody. The January 19 broadcast is his greatest contribution, and he did a really great show.
+今天闫丽梦博士的第三篇报告发表了！这篇长达26页，引用文献111篇的重量级报告，对先前两篇不请自来的所谓“同行评估”进行了点对点的驳斥，并明确指出，科学界的各种有意误导是造成目前新冠全球灾难的根本原因。报告揭露了被刻意包装的科学骗局和无良媒体对真相的诽谤打压。这篇报告可以说是对中共日前出台的粗制滥造、毫无逻辑性与科学性的世卫新冠溯源报告的最有力回击。
 
-但今天是个大日子，科学家的第三个报告，以毒灭共..这个牛了，所以你看反应有多快，我相信今天晚上路波切做节目，他得好好讲讲，今天晚上我估计都得打领带了，是吧？
+2021年3月31日，在世卫组织新冠溯源调查报告（中共国部分）曝光后的第二天，一直为爆料革命战友所关注的闫丽梦博士的第三篇报告出来了。跟闫博士先前发表的两篇报告一样，第三篇报告同样是由四位爆料革命战友亦是专业博士联合撰写的，他们是大家熟悉的闫博士、康博士、冠博士和胡博士。报告以法治基金及法治社会的名义发表，是新中国联邦的信用和荣誉。
 
-But today is a big day, with our scientists’ third report and taking down the CCP with the truth about the virus – really awesome! So you see how fast the reaction is. I believe that LuDe will talk about this [report] in depth on his evening show. I guess he will wear a tie this evening, right?
+那两篇不请自来的所谓“同行评估”，第一篇来自约翰-霍普金斯健康安全中心（Johns Hopkins Center for Health Security），由吉吉-格隆瓦尔博士（Dr. Gigi Gronvall）领导的四位科学家发表。其中，格隆瓦尔博士是约翰-霍普金斯大学的副教授，专业是免疫学。第二篇评论发表于麻省理工学院出版社（MIT Press review），由罗伯特-盖洛博士（Dr. Robert Gallo）领导的四位科学家创作。盖洛博士是马里兰大学人类病毒学研究所（IHV）的合伙创建人，因在1984年与同事共同发现HIV是艾滋病的病因，并开发了艾滋病毒HIV血液检测，而闻名于世。
 
-另外一个兄弟姐妹们，要注意到整个美国和西方的联合，叫联合起来以毒灭共，看看你七哥的，就今天下午七哥有几个重要的人，我们要好好聊聊，然后要组织一个会，到黄石公园要秘密的开会，要进山，以毒灭共，联合灭共，这已经谁也挡不住了。
+从这两位“同行”背景看，二位都不是专业研究冠状病毒的。当中，格隆瓦尔博士的背景更是差得远——她主攻免疫学——连一般的病毒研究都谈不上， 何来“同行评估”?
 
-Brothers and sisters, another thing is that we must notice the unity of the United States and the West, which is called getting united to take down the CCP with the truth about the virus. Look at your Brother Miles. Just in this afternoon, your Brother Miles will chat with a few important people. Then a meeting will be organized, a secret meeting in Yellowstone. We will go to the mountains to discuss about taking down the CCP together, using the truth about the virus. No one can stop this.
+闫博士的第三篇报告还揭示了中共政权与各种“超限科学误导”的密切关系。这篇报告将对解开新冠病毒来源之谜起到至关重要和深远的影响，大家拭目以待。
 
-所以说想想今年七哥定的以毒灭共，以钱灭共，兄弟姐妹们，你们越有钱，共产党死的越快，你们越快乐，共产党死得越快，你们越成功，共产党死得越快，所以你们必须成功，心脏要强大，人要坚强，更重要的要开双眼，不要傻，不要看底下，看上面，不要那么简单的被人家给骗了，啥都不说了。
+以下是闫博士第三篇报告引言的全文翻译（原文来自Zenodo）
 
-So think about this year’s goal that Brother Miles has set: taking down the CCP with the truth about the virus and with money [financial activities]. Brothers and sisters-in-arms, the richer you get, the sooner the CCP will die; the happier you become, the sooner the CCP will die; the more successful you become, the sooner the CCP will die. So you must succeed, you must have a strong heart. To be strong, you must open your eyes and not be foolish. Don’t look down, rather you should look above. Don’t be fooled so easily by others. I will stop here.
+SARS-CoV-2的来源是一个引起全世界关注的问题。有人把它描绘成一个巨大的谜团，尽管这种病毒的实验室性质对受过训练的人来说是显而易见的。造成目前这种局面的根本原因在于一种大规模、多领域、有意识的科学误导。为了打败这种科学误导，揭露SARS-CoV-2的真实面目，我们发表了两份科学报告。我们的第一份报告用大量的证据和逻辑分析表明了，为什么SARS-CoV-2一定是实验室的产物，以及如何按照众所周知的概念和既定的技术来方便地制造它。我们的第二份报告揭露了一个大规模的、有组织的科学骗局，并通过这个骗局揭示了SARS-CoV-2作为一种不受限制的生物武器的本质。我们的努力立即遭到了巨大的阻力。在我们的第一份报告发表后十天内，就有两篇自称“同行评论”的文章专门批评我们的报告。第一篇评论是由吉吉-格隆瓦尔博士（Dr. Gigi Gronvall）领导的约翰-霍普金斯健康安全中心的四位科学家发表的。第二篇评论发表在麻省理工学院出版社上，由罗伯特-盖洛博士（Dr. Robert Gallo）领导的四位科学家创作。虽然我们欢迎对我们的报告进行批评性评论，但这种评论必须是诚实的、合乎逻辑的、以证据为基础的，并由合格的科学家发表。然而，这两份评论不符合任何标准。不幸的是，这些差劲的评论还是被媒体用来诽谤我们的报告，把“实验室起源论”说成是“阴谋论”，并进一步掩埋SARS-CoV-2起源的真相。在这些媒体报道的基础上，中共政权又大肆放大自己的声音，宣扬SARS-CoV-2一定来源自然界的伪证理论。为了继续打击和战胜科学的错误信息，我们在此对这些评论进行点对点的回应。文件的第一部分是我们对麻省理工学院出版社评论的回应，第二部分是我们对约翰-霍普金斯健康安全中心发表的评论的回应。我们还在开头加入了一个开场白，总结了“超限科学误导”的主要事件，包括与中共政权关系密切的个人所执行的各种掩盖行为，以及闫博士为揭露COVID-19的真相所做的持续努力。我们真诚地希望这份文件能够帮助世界认识到正在进行的虚假宣传运动，并认识到SARS-CoV-2病毒是中共政权开发的一种超限生物武器。我们认为，认识到这一点对于战胜COVID-19大流行病和保护全球社会免受未来生物武器攻击至关重要。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60647e3549339063d061998c](https://gtv.org/getter/60647e3549339063d061998c) (6:40-7:28, 8:05-9:24)
-鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/1041092/](https://www.gnews.org/zh-hans/1041092/)
+参考阅读：
 
-参考链接：
-[1] [闫博士最新报告（英文版）](https://zenodo.org/record/4650821#.YGSRqy2caQK)： [下载](https://zenodo.org/record/4650821#.YGSRqy2caQK)
-[2] [闫博士报告一（中文PDF）](https://gnews.org/zh-hans/357190/)：[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/09/18030621/Yan_Report-V5.2_Simpified.pdf)
-[3] [闫博士报告二（中文PDF）](https://gnews.org/zh-hans/412951/)：[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/09071629/The_2nd_Yan_Report-V1.0-Simpilfied.pdf) 
-[4] [闫博士驳斥CNN](https://gnews.org/zh-hans/581750/)：[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22120527/Dr_Yan_20201121_Report3_EN_CN_Traditional_PDF-v1.3.pdf)
+[The Wuhan Laboratory Origin of SARS-CoV-2 and the Validity of the Yan Reports Are Further Proved by the Failure of Two Uninvited “Peer Reviews”](https://zenodo.org/record/4650821#.YGUPJWhKhPa)
 
-* * *
+![]()![](https://gnews.org/wp-content/uploads/2021/03/3-g-fashion-1.jpg)
 
-校对 & 字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+编辑/校对/发稿：Irene木木
 
-+7
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
++8
