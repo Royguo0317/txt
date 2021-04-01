@@ -1,62 +1,81 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 缅甸乱局升级，各国相继予以制裁，唯独中缅边贸却逆势增长！
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1041625/)
+## 【热点播报】马克龙总统的讲话中，人们应该记住什么？
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1041654/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/擷取41-0.jpg)
-作者：台湾准农场 快慢机
+译评：纽约香草山媒体部 蜜蜂
 
-[新闻链接](http://www.mmgpmedia.com/static/content/CJ/2021-03-30/826510060749594624.html)
 
-[新闻链接二](https://new.qq.com/omn/20210331/20210331A0CTRP00.html)
 
-## 美国政府宣布全面终止与缅甸一切贸易往来，并开始撤离非紧急任务小组外的全部驻缅使馆外交人员。
-![](https://lh5.googleusercontent.com/Ztp53owb1vwJuX13-GlClygNlPnX1PgZx7nHi-Xx0g_qcKpleSYHVHRPdepo-FqTGCu2YshdruaQjzq7D9xAsT_hfRtdF--99dow51Qq3ytG7GS4iVsyB9kY8D-Jt64_Jpnhqlu5CjeW5hSiXA)
-2021年3月29日晚，美国贸易代表凯瑟琳.戴，于公共社交媒体上向外界表示，鉴于缅甸军政府发动军事政变以来，所导致的缅甸动荡乱局现状，美国政府决定全面终止同缅甸现任军政府的一切贸易往来活动，直至缅甸合法民选政府回归执政为止，该决议即刻生效。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-次日，美国国务院便向驻缅美国使馆，发出了全面撤离，除紧急任务小组外的全部外交人员及相关家属的紧急命令。
 
-## 中、俄两方参加缅甸建军节阅兵式当天，也正是缅甸军方射杀民众数量最多一日。
-![](https://lh5.googleusercontent.com/MtHDbPxFcvFgSgJM3iJTWDDxy7QRpSfpIl3z_Dmfj_pvC17JNWP24A_J09gKuX9Z-ADEiGgPOGxfzUK2CAsqgpFYnHDQOMEjTpYNSqdt0nlKSWy-kAjJlgN3Xdc7K1G9PIUYZZ-WtIeTyFFQmA)
-3月27日，缅甸军政府在全境各地一片抗议浪潮声下，强行举办建军节阅兵式活动，在广发40余份邀请函石沉大海之后，仅有中、俄两方应邀派员出席观礼。
 
-然而就在阅兵式当日，缅甸军方却制造了连日来最为血腥一天。打破了其丧心病狂射杀抗议示威民众的罪恶记录，单日在全境多地残忍射杀致死逾百人，其中不乏妇女及儿童。
+当下，我们新中国联邦人正在为天使科学家闫丽梦博士第三篇疫情报告问世而感到欢欣鼓舞，这一历史性的时刻，证明“以毒灭共”的步伐越迈越大、越走越快。中共离还世界一个病毒真相的日子越来越接近了。但是，被伪装起来的生物武器之面具一日不被揭开，“病毒”仍会肆虐，世界就没有安宁之日。让我们看看就在同一天晚上的法国究竟发生了什么。
 
-此举随即便引起国际社会，乃至多达12国防长的联合声明谴责。而这其中自然并未出现缅甸军政府的“好盟友”——“中共”与“俄罗斯”的声音。
+据【欧洲1台】记者Hugo Pascolo报道：
 
-## 缅甸乱局持续恶化，面对国际社会等多国制裁，缅甸贸易额大幅萎缩，缘何唯独中缅边贸却逆势增长？
-![](https://lh5.googleusercontent.com/ZGJswRO63PpxS9wGen4KG_4WSbUzZHpHJP3ZjDVSP6suQhe6f9sgyR5hpERMHWoOHX6HJHWx6zS6gFeEzR1hSJGZbezPyTvgPYboP504cJef6lysXqQtLPdG2knderyxw-jP_KPC1LZSUIItsg)
-据缅甸商务部统计数据显示，2020-2021年度财年，前三个季度的边贸额总体呈下降趋势。之后的2020年10月至2021年3月，缅甸对外贸易进口总额71.4亿美元，相较于上一财年同期额94.7亿美元，缩减达23.2亿美元之多。
-![](https://lh6.googleusercontent.com/7R82UjDHcJnoWvyXzWyLmyIk-H6GvZNOfed-oQSxLFqemHRPqf-1Mp8wHKKobubGuPauoiXSpNms1F1ej-9Rbq-I1pS31RA1xtu0O5RNGOn_T0IfZSHBEd-nvjPxNWR0nJPFY3SoCthrUarQJw)
-而这其中对中共国出口总为20.5亿美元，进口额为9.2亿美元，总贸易额29.7亿美元。相较于上一财年同期，中缅边贸总额的27.5亿美元，竟然还涨幅了2.2亿美元。
+法国总统埃马纽埃尔-马克龙周三向全国发表讲话时宣布，在全国范围内把防止冠状病毒传播的各种措施延长一个月。从4月12日起，学校将停课三周，同时开放新的抢救床。
 
-众所周知，中缅贸易中，占比份额最大的莫过于缅甸向中方出口的天然气、木材、矿石、和其它农副及水产品等自然资源性货品。
+马克龙号召大家在“4月份动员起来，抗击COVID-19疫情”。他在讲话是宣布，将采取新的措施，以遏制第三波冠状病毒的传播。法国已有超过5000个重症监护室病例，超过了第二波的高峰。
 
-中共当局由于近期也在部分领域内，例如能源及科技等方面，不同程度的受制于国际社会的制裁。大陆的能源危机、粮食危机正处于随时爆发的临界点。
+**全国封锁一个月**
 
-四面楚歌的中共，不顾与国际社会背道而驰之行，暗地背后支持缅甸军政府的非法军事政变，并对缅甸军方血腥镇压抗议示威民众的恶行“视而不见”。以此换回其急需的缅甸能源与粮食等物资，一解眼下燃眉之急。
+马克龙对一年来政府在抗疫工作做了回顾，他说法国“已经进入疫苗接种和英国变种病毒传播之间的速度竞赛”。他肯定了前段时间19省封城的成效，因此，希望将封锁范围 “扩大到全国”。这次封锁从周六晚上开始生效，为期四周，且晚上7点的宵禁依然有效。复活节周末期间，允许旅行，但必须出示迁移证明。
 
-而上述这些边贸交易活动，则全部来自于中缅接壤的5个边贸口岸，而这5个口岸的贸易额都比去年同期有所上涨，其中涨幅最多的便是，中缅之间最大的的边贸口岸——木姐。
+**幼儿园、小学、初、高中、高等院校停课三周**
 
-## 多国政府防长相继联合强势声明表态，中共未免引火上身，故技重施，因疫情再度反弹——姐告封闭！
-![](https://lh4.googleusercontent.com/anovp4un8ADOb-VzlVqTG9jF7zz4aF-tEIgX7zux7Mwaa111g9zE5utjCC3wtBwTDtLKYuDbPbk4bnFfgL_dtub7vnE6-wcp_WHBC3-XILfJ-JT9F94s7SimBp2tJpQ7Dsgfxs8pyvyXvqUKLA)
-“木姐”，这一中缅接壤的最大边贸口岸，紧邻中缅边境重镇的云南省德宏州的瑞丽市，而姐告恰巧就坐落在瑞丽。
-![](https://lh4.googleusercontent.com/OcNpKKUqyhxpnAoKG0B_xlLhDgKBe921UNstVWuhZF6eA2Hb1dDbfyfht5fgbEYCrQPlNJOCvxvwYyaQeZGBQRAi2WQc6qVbHPL7Z0Y40la6dc4JalF7jR7sQyOQ2kghG4c5kEoDEmmja6MA1w)
-中共官方通报，2021年3月30日，云南瑞丽新增6例本土新冠确诊病例、3例无症状新冠感染者。其中1例确诊及3例无症状感染者均为缅甸籍。
+“下周，除保育员和其他一些职业的孩子会有专门安排外，其它大、中、小学和高中的课程将在家里进行。”4月12日之后的两个星期，整个法国将统一放春假，并于4月26日全部开学。
 
-鉴于瑞丽新冠疫情突发性反弹，中共当局决定即日起，暂时封锁姐告周边区域，瑞丽市宣布再次紧急转入战时状态。
+**延长“部分失业”时间**
 
-不要看中共说什么，一定要紧盯它在做什么！中共的“战狼外交部”一面在北京“仰天狂吠”、“装神弄鬼”。中共则暗地在别处“包藏祸心”的小动作不断。眼见国际社会及多国防长联盟对缅甸军政府发出强硬表态，中共便顺势来了个过河拆桥，以免引火上身……
+针对学校的关闭，“将提供经济和社会支持，” 马克龙表示，“需要照顾子女而不能远程工作的父母将享受部分失业待遇。此外，目前对所有适用于雇员、店主、自由职业者、企业家和公司的补助措施将尽可能地延长有效期。”
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+**停业企业名单保持不变**
 
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+目前，受第三波疫情影响特别大的19个省的企业已经关闭，法国本土的其他省份的企业也将全部关闭。据财政部介绍，这项措施涉及15万家企业，估计每月损失成本为110亿欧元
 
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+**新增特护病床**
 
-文章审核：zhong
+马克龙还宣布“额外增援”抢救，以应对涌入的重症COVID-19患者，并在“未来几天”将床位数从目前的7665张增加到1万多张。
 
-文章发布：Little Liu
+**5月15日，疫苗接种范围扩大到所有50岁以上的人**
+
+马克龙宣布，于4月16日将COVID-19疫苗的接种范围扩大到所有60岁以上的人，然后在5月15日扩大到所有50岁以上的人。“还将为所有高危职业，特别是我们的教师，但也包括我们的警察部队和其他一些人，规划一项具体的战略”，他表示，“到夏天结束时，所有18岁以上的法国人，只要愿意接种疫苗，都可以接种。”
+
+**马克龙承认在处理危机时“犯了错误”**
+
+马克龙承认在处理卫生危机方面“犯了错误”，但他确保自己也“学到了”。几天后，他还是拒绝了任何“道歉”。马克龙认为，“我知道一件事：我们一直在坚持，我们一直在学习，我们每次都在进步。”
+
+**5月中旬起重新开放部分文化场所和露天餐厅**
+
+马克龙宣布：“我们将在有条件的情况下授权开放文化场所。在5月中旬至夏季初，逐步建立文化、体育、休闲活动，我们的咖啡馆和餐厅也会有重新开放的时间表。”
+
+法国总统马克龙在电视上一本正经、一如既往地又表现了一番。可怜的法国人民，他们何时才能摆脱苦难。
+
+参考阅读：
+
+[Extension des mesures, écoles… Ce qu’il faut retenir de l’allocution d’Emmanuel Macron](https://www.europe1.fr/politique/extension-des-mesures-ecoles-ce-quil-faut-retenir-de-lallocution-demmanuel-macron-4035396)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-1.jpg)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 0
