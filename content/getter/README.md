@@ -17,6 +17,11 @@
 **郭文贵MILES** `2021-02-21T15:56:09`
 ##
 
+[4月1号：尊敬的战友们好…… G币……系列的投资……是我们战友独特．可拥有的资源，不能有任何沾亲带故的人加入。这是我的原则。科学家闫博士的第三次关于CCp病毒报...](/content/getter/content/2021/04/6065cd0d49339063d061d99d.md)
+
+**郭文贵MILES** `2021-04-01T13:39:25`
+##
+
 [Explore the new arrivals of Spring Summer 2021 Collection, sourced from the best...](/content/getter/content/2021/03/6064c65949339063d061ab15.md)
 
 **郭文贵MILES** `2021-03-31T18:58:33`
@@ -155,10 +160,5 @@
 [3月22日：与SNOW 一起快乐的日子……](/content/getter/content/2021/03/6058b57bd1608d609ea6e25f.md)
 
 **郭文贵MILES** `2021-03-22T15:19:23`
-##
-
-[￼3月22日：尊敬的战友们好……我被传染上精神障碍病了……](/content/getter/content/2021/03/6058a943d1608d609ea6deb7.md)
-
-**郭文贵MILES** `2021-03-22T14:27:15`
 ##
 
