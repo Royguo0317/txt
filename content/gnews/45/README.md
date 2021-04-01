@@ -1,214 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0331.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1041138/)
+## 世卫组织顾问认为中共病毒起源报告不可信
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1041316/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-作者：康州盘古农场 喜马拉雅的文雅
+编辑上传  水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/图片11-2.png)
+继“世卫组织报告”发布后，蓬佩奥国务卿指责“世卫组织是中共的同谋”【1】，众议院共和党领袖麦卡锡谴责“世卫组织的报告完全失败”【2】，又有顾问、专家称“中共国病毒起源报告‘不可信’”。
 
-文宣图：康州盘古农场 霹雳年
-![]()![](https://gnews.org/wp-content/uploads/2021/03/white-hosue-and-us-flag.jpg)
-## 闫博士第三份报告
+《布雷特巴特》今天发文，题目“世界卫生组织顾问：中共国病毒起源报告“不可信”。【3】
 
-2021年3月31日这一人类历史征程又一里程碑的日子，天使科学家闫丽梦博士发表了第三篇关于中共病毒的科学报告。闫天使在推文中称：
+全文如下：
 
-第三篇闫氏报告发表！
+大西洋理事会高级研究员、世界卫生组织（WHO）顾问杰米·梅茨尔（Jamie Metzl）周一与世界各地越来越多的科学家和政治领导人一道，质疑WHO关于中共病毒起源报告的可信度。
 
-两次不请自来的“同行评议”的失败，进一步证明了SARS-CoV-2的武汉实验室起源和闫氏报告的有效性。
-论文链接：[https://zenodo.org/record/4650821#.YGR0\_uT3aEd…](https://zenodo.org/record/4650821#.YGR0_uT3aEd…)
+梅茨尔说，报告受到中共政府干预，没有提供足够证据排除任何假设，包括排除中共病毒从中共国实验室泄露的可能。
 
-#COVID19
+“人们觉得这一定是世界卫生组织的调查，不是的，这不是调查，世界卫生组织也没有这么做，这是一个独立的委员会，由中共国政府的同行组成。因此，他们提出的任何方案都将是一种妥协，是这个委员会和中共国政府之间的共识。”梅茨尔对《福克斯新闻》的劳拉·英格拉汉姆说。
 
-#超限生物武器
+梅茨尔指出，真实可靠证据的分量（表明）-与中共国政府官员期望他们的结论是可信的相反-不支持世界卫生组织的官方结论，即实验室来源是中共病毒起源最不可能的情况：
 
-#超限科学误导
+“COVID-19（中共病毒）可能是通过动物宿主的人畜共患传播开始的，很有可能是实验室意外泄漏造成的，有很多证据表明-这都是间接的-这是非常非常真实的可能性，病毒来自距离武汉一千多英里的马蹄蝠，但武汉拥有的是中共国唯一的P4病毒学研究所，他们有世界上最大的蝙蝠冠状病毒群，他们在进行危险的功能增强研究时，安全记录参差不齐，而我们受到了中共国大规模的掩盖，后果显现出来。
 
+因此，没有人知道或者很少有人知道这个故事到底是什么，但至少，我们需要一个全面而可信的调查，来探索所有的假设。”
 
+梅茨尔的言论与自上周末一份早期草案泄露以来，对世界卫生组织报告的许多批评一致，其中包括世界卫生组织总干事谭德塞和派往武汉的小组组长彼得·本·恩巴雷克的批评，世卫组织承认（比梅茨尔更直截了当地说）中共国没有给调查人员提供足够的原始数据。
 
-> The 3rd Yan Report is published!
-> 
-> The Wuhan Laboratory Origin of SARS-CoV-2 and the Validity of the Yan Reports Are Further Proved by the Failure of Two Uninvited "Peer Reviews"
-> Link:[https://t.co/Up3aI00aPi](https://t.co/Up3aI00aPi)[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)[#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedScientificMisinformation](https://twitter.com/hashtag/UnrestrictedScientificMisinformation?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/j2q7hpgAnj](https://t.co/j2q7hpgAnj)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [March 31, 2021](https://twitter.com/DrLiMengYAN1/status/1377248049093828611?ref_src=twsrc%5Etfw)
+恩巴雷克对中共国的批评是，他们声称隐私和法律方面的考虑，阻止他的团队访问这些数据——鉴于专制的中共国对“隐私权”和“正当程序”的概念，这是一个非常有趣的论点——而谭德塞听起来更为沮丧。“我希望未来的合作研究将包括更及时和全面的数据共享，”世界卫生组织总干事周二说。
 
+美国国务院周二发表了一份由其他13个国家共同签署的声明，对世界卫生组织的报告提出了“共同的担忧”，其他签署国包括澳大利亚、加拿大、以色列、日本和联合王国（英国）。
 
+“像这样的科学任务应该能够在产生独立和客观的建议和发现的条件下开展工作，我们共同关注这些问题，不仅是为了尽我们所能了解这一疫情的起源，也是为了让这项研究的下一阶段以及为下一次的健康危机奠定一条及时、透明、循证的进程。”声明说。
 
+史蒂文·奎伊博士与梅茨尔在3月初签署了一封公开信，呼吁对武汉进行新的、更透明的调查，同时减少中共国政府的干预。他周二补充说，他自己的分析认为，世界卫生组织报告中为数不多的“无可争议的事实”更多地支持了实验室起源理论，而不是反驳它。
 
+“尽管进行了紧张的研究，但与先前的自然人畜共患病不同的是，无论是冠状病毒，还是任何紧密相关者，都尚未在自然界中被发现。最近的病毒相关者来自武汉病毒学研究所的实验室，靠近首批病例的集中区，谈到了世界卫生组织报告中最令人好奇的一个细节：缺乏确凿的证据来证明动物在自然界感染冠状病毒并将其传给人类这一据称最有可能的理论。”
 
+“这种病毒从一开始就高度适应人类的感染，不像以前的自然人畜共患传染病。在人源化小鼠体内培养病毒是磨练其杀伤力的常用技术。”奎伊补充说，他谈到了人类间流行如何以惊人的速度在武汉爆发，同时间动物王国似乎完全没有受到影响。（全文完）
 
+笔者注意到了文中这段话，“恩巴雷克对中共国的批评是，他们声称隐私和法律方面的考虑，阻止了他的团队访问这些数据——鉴于专制的中共国对‘隐私权’和‘正当程序’的概念，”那就意味着因为“隐私”的原因，中共没有提供数据？
 
-## 纳瓦罗博士怒了：“病毒之父—蝠奇”
+而13国联合声明中提到了要“按照透明、尊重隐私和科学研究完整性的原则进行的……”（in accordance with the principles of transparency, respect for privacy, and scientific and research integrity【4】，联合声明最后一段中），笔者翻译此段时感觉逻辑上有些牵强，即，如果中共因为“隐私”的理由不提供数据，你13国就要尊重它，就可以不索要数据吗？所以，在翻译此段时按另外的理解进行了翻译，即“按照透明、不被公众误导和科学研究完整性的原则进行的”。【5】
 
+看来“尊重隐私”是正解！难道下一阶段的调查还要“尊重隐私”，而不获取数据？
 
+拭目以待！
 
-> Fauci is a sociopath and a liar. He had nothing to do with the vaccine. The father of the vaccine is [@POTUS45](https://twitter.com/POTUS45?ref_src=twsrc%5Etfw). Fauci is the father of the ACTUAL virus. Wuhan lab![https://t.co/LvCCsLwSU0](https://t.co/LvCCsLwSU0)
-> — Peter Navarro (@RealPNavarro) [March 31, 2021](https://twitter.com/RealPNavarro/status/1377277563077283841?ref_src=twsrc%5Etfw)
+参考链接：
 
+【1】https://gnews.org/zh-hans/1039400/
 
-[https://www.mediaite.com/tv/peter-navarro-goes-on-wild-rant-calling-fauci-the-father-of-the-virus/](https://www.mediaite.com/tv/peter-navarro-goes-on-wild-rant-calling-fauci-the-father-of-the-virus/)
-据3月30日Mediaite文章，《皮特-纳瓦罗大发雷霆，称蝠奇（Anthony Fauci)为 “病毒之父”》，针对日前蝠奇接受CNN采访时称去年1月10日决定开发疫苗是自己一生中做出的“最好”的决定，皮特-纳瓦罗博士接受了福克斯新闻采访，称：
+【2】[https://gnews.org/zh-hans/1041229/](https://gnews.org/zh-hans/1041229/)
 
-“蝠奇是个反社会的人，也是个骗子。他与疫苗毫无关系。疫苗之父是唐纳德-J-川普。”“蝠奇是什么之父？蝠奇是实际病毒之父。根据疾病控制中心的罗伯特-罗德富尔德（Robert Redfield）的说法，这个病毒来自武汉实验室，基本上我们让蝠奇不仅用美国纳税人的钱资助那个实验室，他还授权了这个叫做功能增强型研究的东西。”
+【3】https://www.breitbart.com/national-security/2021/03/31/w-h-o-adviser-coronavirus-origin-report-not-credible/
 
-纳瓦罗博士说，蝠奇“允许中国共产党、人民解放军利用功能增强对病毒进行基因工程，”“我现在叫它蝠奇病毒。如果他想成为某件事情的父亲，他就是杀死50多万美国人的病毒之父。”
+【4】https://www.state.gov/joint-statement-on-the-who-convened-covid-19-origins-study/
 
-文章称，主播坎波斯-达菲不顾无数的虚假言论，包括蝠奇资助武汉一家实验室制造病毒这一毫无根据的说法，完全没有提出任何反驳。这一说法最早是由新闻网站WorldNetDaily提出的，后来经查实为虚假。
+【5】https://gnews.org/zh-hans/1041087/
 
-
-
-> Fauci is a sociopath and a liar. He had nothing to do with the vaccine. The father of the vaccine is [@POTUS45](https://twitter.com/POTUS45?ref_src=twsrc%5Etfw). Fauci is the father of the ACTUAL virus. Wuhan lab![https://t.co/LvCCsLwSU0](https://t.co/LvCCsLwSU0)
-> — Peter Navarro (@RealPNavarro) [March 31, 2021](https://twitter.com/RealPNavarro/status/1377277563077283841?ref_src=twsrc%5Etfw)
-
-
-
-
-
-纳瓦罗博士30日参加班农先生疫情战斗室时称，拜登“为中共病毒的致命性变异打开了边界”。他在推文中称：“乔-拜登和卡马拉-哈里斯已经为致命的巴西变种病毒安东尼-蝠奇病毒敞开了边境。”
-
-
-
-> [@JoeBiden](https://twitter.com/JoeBiden?ref_src=twsrc%5Etfw) and [@KamalaHarris](https://twitter.com/KamalaHarris?ref_src=twsrc%5Etfw) have opened our border to a DEADLY Brazilian mutation of the Tony Fauci Virus. [https://t.co/Wmw3ZafeUo](https://t.co/Wmw3ZafeUo)
-> — Peter Navarro (@RealPNavarro) [March 30, 2021](https://twitter.com/RealPNavarro/status/1377033688953815046?ref_src=twsrc%5Etfw)
-
-
-
-纳瓦罗博士在班农战斗室称：“蝠奇博士为了提高自己的粉丝俱乐部而撒谎。他假装自己是疫苗之父，宣称2020年1月10日开发疫苗是自己的功劳。这是对川普总统
-、所有国土安全部、生物医学高级研究与发展局、联邦紧急事务管理局等与之相关的人的冒犯。”
-
-
-
-> Dr. Fauci lies to improve his own fan club. He pretends he is the Father of the Vaccine claiming credit for it on January 10th, 2020. Offensive to [@POTUS45](https://twitter.com/POTUS45?ref_src=twsrc%5Etfw) & everyone in HHS, BARDA, FEMA that ACTUALLY had something to do with it.[https://t.co/OdEkiS84um](https://t.co/OdEkiS84um)
-> — Peter Navarro (@RealPNavarro) [March 30, 2021](https://twitter.com/RealPNavarro/status/1377032956766781447?ref_src=twsrc%5Etfw)
-
-
-
-## 支持香港
-
-3月31日国务卿布林肯推文：
-
-今天，我们向国会报告了中共国继续破坏香港的自由、民主制度和高度自治的情况。美国呼吁中共国扭转方向，履行其国际义务和承诺。#与香港站在一起。
-
-
-
-> Today, we reported to Congress the PRC's continued dismantling of Hong Kong’s freedoms, democratic institutions, and high degree of autonomy. The United States calls on the PRC to reverse course and uphold its international obligations and commitments. [#StandWithHongKong](https://twitter.com/hashtag/StandWithHongKong?src=hash&amp;ref_src=twsrc%5Etfw).
-> — Secretary Antony Blinken (@SecBlinken) [March 31, 2021](https://twitter.com/SecBlinken/status/1377270389450158081?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 尼克松研讨会
-
-3月31日蓬佩奥国务卿转推理查德-尼克松基金会的推文：
-@PayPal 联合创始人Peter Thiel将于4月6日与 迈克-蓬佩奥先生、前白宫国家安全事务负责人奥布莱恩（Robert C. O’Brien）和15位研讨会成员就大科技与中共国议题举行尼克松研讨会。我们需要从硅谷得到什么？
-
-
-
-> The Nixon Seminar will feature [@PayPal](https://twitter.com/PayPal?ref_src=twsrc%5Etfw) co-founder Peter Thiel on April 6th for dialogue with [@mikepompeo](https://twitter.com/mikepompeo?ref_src=twsrc%5Etfw), [@robertcobrien](https://twitter.com/robertcobrien?ref_src=twsrc%5Etfw) & 15 Seminar members on Big Tech and China: What Do We Need from Silicon Valley? 
-> 
-> Watch the [#NixonSeminar](https://twitter.com/hashtag/NixonSeminar?src=hash&amp;ref_src=twsrc%5Etfw) live: [https://t.co/Lk5MdHJkQy](https://t.co/Lk5MdHJkQy)
-> — Richard Nixon Foundation (@nixonfoundation) [March 31, 2021](https://twitter.com/nixonfoundation/status/1377291713132122119?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 教育的侵蚀
-
-当日蓬佩奥国务卿推文：“教导我们的孩子说美国是一个本质上的种族主义或邪恶的国家，是最不美国的 “教训”。批判性种族理论**绝对不应该**在我们的课堂上教授。”
-
-
-
-> Teaching our children that the United States is an inherently racist or evil country is the most un-American “lesson” there is. Critical Race Theory should NEVER be taught in our classrooms.
-> — Mike Pompeo (@mikepompeo) [March 31, 2021](https://twitter.com/mikepompeo/status/1377247209574567938?ref_src=twsrc%5Etfw)
-
-
-
-## 川普总统最新动向
-
-2021年3月31日45届美国总统川普在GAB的发文如下。
-
-乔-拜登实施美国历史上最大规模加税的激进计划，是对中（共）国和许多其他国家的大规模赠予，将把数千家工厂、数百万个工作岗位和数万亿美元送到这些竞争性国家。拜登的计划将压垮美国工人，摧毁美国制造业，同时给外包商、外国公司和巨型跨国公司以特殊的税收特权。
-
-拜登承诺要 “建设得更好”–但他正在建设的国家，尤其是中（共）国和世界其他大片地区。在拜登政府的领导下，美国又一次在与中（共）国的经济战中败下阵来–而拜登令人啼笑皆非的数万亿美元的加税是一种彻底的经济投降战略。当我们的国家从全球大流行病的影响中恢复过来时，牺牲高薪的美国就业机会是我们的公民最不需要的。
-
-拜登的政策将以发达国家中最高的商业税率打破美国工人的后路。根据拜登的计划，如果你在美国创造就业机会，并雇用美国工人，你将支付更多的税款，但如果你关闭你在俄亥俄州和密歇根州的工厂，解雇美国工人，并将所有生产转移到北京和上海，你将支付更少的税款。这与 “美国优先 “恰恰相反–这是把美国放在最后。
-
-把美国的工作岗位送到中（共）国的公司不应该得到乔-拜登的税收法案的奖励，他们应该受到惩罚，以便他们把这些工作岗位留在美国，属于他们的地方。
-
-这项立法将是历史上最大的自我经济创伤之一。如果这个怪兽被允许通过，结果将是更多的美国人失业，更多的家庭破碎，更多的工厂被废弃，更多的产业被破坏，更多的大街被板上钉钉，关门大吉–就像4年前我接任总统之前的情况一样。我当时创造了创纪录的低失业率，有1.6亿人工作。
-
-这次加税是乔-拜登和他的朋友们典型的全球主义背叛：游说者会赢，特殊利益集团会赢，中（共）国会赢，华盛顿的政客和政府官僚会赢–但勤劳的美国家庭会输。
-
-绝不能让乔-拜登对美国梦的残酷无情的攻击成为联邦法律。就像我们的南部边境从最好的到最差的，现在是一团糟一样，我们的经济也将被摧毁!
-
-[https://gab.com/realdonaldtrump/posts/105985556801911443](https://gab.com/realdonaldtrump/posts/105985556801911443)
-
-
-
-## 拜登差点又摔
-
-当日朱利安尼先生转发了退役NBA球星Dave Rubin的推文：
-
-“1. 他（乔-拜登）差点又摔倒
-
-“2. 他为什么戴口罩（暗指拜登不是为自己推行的疫苗而骄傲吗？）
-
-“3. 可爱的香奈儿包 （有嘲讽意味）”
-
-福克斯新闻主播David Webb回推称：“如果又摔的话，他的包成了‘摔男’再次摔倒的借口，有几个总统登上空军一号自己拎包？”
-
-
-
-> The bag is the fall "guy" and can be blamed if he does. How many presidents carry their own bags onto AF1?
-> — David Webb (@davidwebbshow) [March 31, 2021](https://twitter.com/davidwebbshow/status/1377347162061729794?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 血淋淋的耐克撒旦鞋
-
-耐克起诉MSCHF未经批准生产的撒旦鞋Air Max’97继续被发酵, 其包装、限量版的数字等都赋有反基督的寓意。其售价1018元和鞋身印有“Luke10:18”寓意《圣经》路加福音10章第18节的内容：“我看见撒旦从天而降，像闪电一样”。
-
-网友推文：
-
-MSCHF x Lil Nas X “撒旦鞋 “。
-
-运动鞋Nike Air Max ’97
-含60cc红色墨水和1滴人血。
-666 对，单独编号。
-1018元
-2021年3月29日。
-
-南达科他州州长克里斯蒂-诺转推称：
-
-“我们的孩子被灌输这种产品，不仅被允许，而且是 “独家”。但你知道什么是更独家的吗？他们的上帝赐予的永恒的灵魂。
-我们正在为我们国家的灵魂而战。我们需要奋力一搏，而且我们要打得智慧。我们必须要赢。”
-
-朱利安尼先生转发了这一推文。
-
-
-
-> Our kids are being told that this kind of product is, not only okay, it's "exclusive." But do you know what's more exclusive? Their God-given eternal soul.
-> 
-> We are in a fight for the soul of our nation. We need to fight hard. And we need to fight smart. We have to win. [https://t.co/m1k1YWFpuo](https://t.co/m1k1YWFpuo)
-> — Governor Kristi Noem (@govkristinoem) [March 28, 2021](https://twitter.com/govkristinoem/status/1376239196709478400?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
-
-+2
++1

@@ -1,27 +1,57 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻简讯：台湾购买新的美国防空导弹防御中共
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1041187/)
+## 【热点播报】基督教传道牧师起诉南希·佩洛西和卡玛拉·哈里斯
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1041214/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
-![]()![](https://www.gnews.org/wp-content/uploads/2021/03/死.png)
-台湾空军告诉路透社，台湾已决定购买爱国者先进能力3（PAC-3）导弹分段增强导弹，交付时间为2025年，第二年开始部署。该导弹为洛克希德·马丁公司的爱国者地对空导弹的升级版，加强了其力量以防范来自中共的威胁。
+译评：纽约香草山福音部 Daxia
 
-与大多数国家一样，美国与台湾没有官方外交关系，但华盛顿受法律约束，必须为台湾提供自卫的手段。
 
-华盛顿一直在推动台湾对其军队进行现代化改造，以使其成为“豪猪”，而中共很难向其发起进攻。
 
-习神为了他的地位稳定，一直对台湾垂涎欲滴想发动战争一方面来确立他在中共党内的地位，另一方面也是为了转移国内快承受不住的经济压力。台湾应该更早的站出来与美国站在一起，而不是畏首畏尾，关注眼前的利益得失。共产党的灭亡已经是板上钉钉的事，台湾还是要注意习二愣子的狗急跳墙，不要在中共灭亡前被他的疯狂带走无辜的生命。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-[原文链结](https://www.reuters.com/article/us-taiwan-defence-idUSKBN2BN1AA)
 
-【文章仅限作者个人观点】
 
-本文作者：Ray裁决
+据《纽约邮报》3月31日报道：
 
-审核校对：鲁邦五世
+美国基督教传道牧师马奥尼周一向华盛顿联邦法院起诉众议院议长南希-佩洛西（Nancy Pelosi）、副总统卡玛拉-哈里斯（Kamala Harris）和国会警察委员会，法院判决称：“全面拒绝”马里奥牧师举行受难节守夜的许可申请，违反了宪法第一修正案赋予他的权利。
 
-上传排版：玫瑰新闻组
+法庭文件显示，马奥尼拟于4月2日在国会大厦西边举行守夜活动，“目的是祈求上帝治愈自2021年1月6日悲剧事件以来萦绕在我们国家的焦虑。”
 
-0
+2月2日他提出申请，3月24日被拒绝。法庭文件显示，这些年来，他在同一地点举办了大约30场其他活动。
+
+法院判决称，现在，国会大厦周围竖起了围栏，“实际上是创建了一个禁止讲话的区域”，尽管目前安全威胁已经不复存在，但依然无法得知这一区域何时对外重新开放。
+
+法庭说，这位神职人员是一个“爱好和平的人”，他“强烈谴责暴徒的犯罪行为”。如果允许他守夜，他也不会对安全构成威胁。
+
+佩洛西、哈里斯和国会警察委员会，未就此事立即作出回应。
+
+宗教信仰自由是神圣不可侵犯的权利，彰显了美国的伟大。
+
+参考阅读：
+
+[Christian minister sues Nancy Pelosi, Kamala Harris over access to Capitol](https://nypost.com/2021/03/31/minister-sues-nancy-pelosi-kamala-harris-over-capitol-access/?utm_campaign=iphone_nyp&amp;utm_source=pasteboard_app)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-1.jpg)
+
+编辑：灵性探索
+
+校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
++1

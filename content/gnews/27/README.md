@@ -1,53 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】闫博士发表第三篇报告！重点是哪些？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1041352/)
+## 缅甸乱局升级，各国相继予以制裁，唯独中缅边贸却逆势增长！
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1041625/)
 
-作者：纽约香草山翻译部 文明世界
+![]()![](https://gnews.org/wp-content/uploads/2021/03/擷取41-0.jpg)
+作者：台湾准农场 快慢机
 
+[新闻链接](http://www.mmgpmedia.com/static/content/CJ/2021-03-30/826510060749594624.html)
 
+[新闻链接二](https://new.qq.com/omn/20210331/20210331A0CTRP00.html)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+## 美国政府宣布全面终止与缅甸一切贸易往来，并开始撤离非紧急任务小组外的全部驻缅使馆外交人员。
+![](https://lh5.googleusercontent.com/Ztp53owb1vwJuX13-GlClygNlPnX1PgZx7nHi-Xx0g_qcKpleSYHVHRPdepo-FqTGCu2YshdruaQjzq7D9xAsT_hfRtdF--99dow51Qq3ytG7GS4iVsyB9kY8D-Jt64_Jpnhqlu5CjeW5hSiXA)
+2021年3月29日晚，美国贸易代表凯瑟琳.戴，于公共社交媒体上向外界表示，鉴于缅甸军政府发动军事政变以来，所导致的缅甸动荡乱局现状，美国政府决定全面终止同缅甸现任军政府的一切贸易往来活动，直至缅甸合法民选政府回归执政为止，该决议即刻生效。
 
+次日，美国国务院便向驻缅美国使馆，发出了全面撤离，除紧急任务小组外的全部外交人员及相关家属的紧急命令。
 
+## 中、俄两方参加缅甸建军节阅兵式当天，也正是缅甸军方射杀民众数量最多一日。
+![](https://lh5.googleusercontent.com/MtHDbPxFcvFgSgJM3iJTWDDxy7QRpSfpIl3z_Dmfj_pvC17JNWP24A_J09gKuX9Z-ADEiGgPOGxfzUK2CAsqgpFYnHDQOMEjTpYNSqdt0nlKSWy-kAjJlgN3Xdc7K1G9PIUYZZ-WtIeTyFFQmA)
+3月27日，缅甸军政府在全境各地一片抗议浪潮声下，强行举办建军节阅兵式活动，在广发40余份邀请函石沉大海之后，仅有中、俄两方应邀派员出席观礼。
 
-今天闫丽梦博士的第三篇报告发表了！这篇长达26页，引用文献111篇的重量级报告，对先前两篇不请自来的所谓“同行评估”进行了点对点的驳斥，并明确指出，科学界的各种有意误导是造成目前新冠全球灾难的根本原因。报告揭露了被刻意包装的科学骗局和无良媒体对真相的诽谤打压。这篇报告可以说是对中共日前出台的粗制滥造、毫无逻辑性与科学性的世卫新冠溯源报告的最有力回击。
+然而就在阅兵式当日，缅甸军方却制造了连日来最为血腥一天。打破了其丧心病狂射杀抗议示威民众的罪恶记录，单日在全境多地残忍射杀致死逾百人，其中不乏妇女及儿童。
 
-2021年3月31日，在世卫组织新冠溯源调查报告（中共国部分）曝光后的第二天，一直为爆料革命战友所关注的闫丽梦博士的第三篇报告出来了。跟闫博士先前发表的两篇报告一样，第三篇报告同样是由四位爆料革命战友亦是专业博士联合撰写的，他们是大家熟悉的闫博士、康博士、冠博士和胡博士。报告以法治基金及法治社会的名义发表，是新中国联邦的信用和荣誉。
+此举随即便引起国际社会，乃至多达12国防长的联合声明谴责。而这其中自然并未出现缅甸军政府的“好盟友”——“中共”与“俄罗斯”的声音。
 
-那两篇不请自来的所谓“同行评估”，第一篇来自约翰-霍普金斯健康安全中心（Johns Hopkins Center for Health Security），由吉吉-格隆瓦尔博士（Dr. Gigi Gronvall）领导的四位科学家发表。其中，格隆瓦尔博士是约翰-霍普金斯大学的副教授，专业是免疫学。第二篇评论发表于麻省理工学院出版社（MIT Press review），由罗伯特-盖洛博士（Dr. Robert Gallo）领导的四位科学家创作。盖洛博士是马里兰大学人类病毒学研究所（IHV）的合伙创建人，因在1984年与同事共同发现HIV是艾滋病的病因，并开发了艾滋病毒HIV血液检测，而闻名于世。
+## 缅甸乱局持续恶化，面对国际社会等多国制裁，缅甸贸易额大幅萎缩，缘何唯独中缅边贸却逆势增长？
+![](https://lh5.googleusercontent.com/ZGJswRO63PpxS9wGen4KG_4WSbUzZHpHJP3ZjDVSP6suQhe6f9sgyR5hpERMHWoOHX6HJHWx6zS6gFeEzR1hSJGZbezPyTvgPYboP504cJef6lysXqQtLPdG2knderyxw-jP_KPC1LZSUIItsg)
+据缅甸商务部统计数据显示，2020-2021年度财年，前三个季度的边贸额总体呈下降趋势。之后的2020年10月至2021年3月，缅甸对外贸易进口总额71.4亿美元，相较于上一财年同期额94.7亿美元，缩减达23.2亿美元之多。
+![](https://lh6.googleusercontent.com/7R82UjDHcJnoWvyXzWyLmyIk-H6GvZNOfed-oQSxLFqemHRPqf-1Mp8wHKKobubGuPauoiXSpNms1F1ej-9Rbq-I1pS31RA1xtu0O5RNGOn_T0IfZSHBEd-nvjPxNWR0nJPFY3SoCthrUarQJw)
+而这其中对中共国出口总为20.5亿美元，进口额为9.2亿美元，总贸易额29.7亿美元。相较于上一财年同期，中缅边贸总额的27.5亿美元，竟然还涨幅了2.2亿美元。
 
-从这两位“同行”背景看，二位都不是专业研究冠状病毒的。当中，格隆瓦尔博士的背景更是差得远——她主攻免疫学——连一般的病毒研究都谈不上， 何来“同行评估”?
+众所周知，中缅贸易中，占比份额最大的莫过于缅甸向中方出口的天然气、木材、矿石、和其它农副及水产品等自然资源性货品。
 
-闫博士的第三篇报告还揭示了中共政权与各种“超限科学误导”的密切关系。这篇报告将对解开新冠病毒来源之谜起到至关重要和深远的影响，大家拭目以待。
+中共当局由于近期也在部分领域内，例如能源及科技等方面，不同程度的受制于国际社会的制裁。大陆的能源危机、粮食危机正处于随时爆发的临界点。
 
-以下是闫博士第三篇报告引言的全文翻译（原文来自Zenodo）
+四面楚歌的中共，不顾与国际社会背道而驰之行，暗地背后支持缅甸军政府的非法军事政变，并对缅甸军方血腥镇压抗议示威民众的恶行“视而不见”。以此换回其急需的缅甸能源与粮食等物资，一解眼下燃眉之急。
 
-SARS-CoV-2的来源是一个引起全世界关注的问题。有人把它描绘成一个巨大的谜团，尽管这种病毒的实验室性质对受过训练的人来说是显而易见的。造成目前这种局面的根本原因在于一种大规模、多领域、有意识的科学误导。为了打败这种科学误导，揭露SARS-CoV-2的真实面目，我们发表了两份科学报告。我们的第一份报告用大量的证据和逻辑分析表明了，为什么SARS-CoV-2一定是实验室的产物，以及如何按照众所周知的概念和既定的技术来方便地制造它。我们的第二份报告揭露了一个大规模的、有组织的科学骗局，并通过这个骗局揭示了SARS-CoV-2作为一种不受限制的生物武器的本质。我们的努力立即遭到了巨大的阻力。在我们的第一份报告发表后十天内，就有两篇自称“同行评论”的文章专门批评我们的报告。第一篇评论是由吉吉-格隆瓦尔博士（Dr. Gigi Gronvall）领导的约翰-霍普金斯健康安全中心的四位科学家发表的。第二篇评论发表在麻省理工学院出版社上，由罗伯特-盖洛博士（Dr. Robert Gallo）领导的四位科学家创作。虽然我们欢迎对我们的报告进行批评性评论，但这种评论必须是诚实的、合乎逻辑的、以证据为基础的，并由合格的科学家发表。然而，这两份评论不符合任何标准。不幸的是，这些差劲的评论还是被媒体用来诽谤我们的报告，把“实验室起源论”说成是“阴谋论”，并进一步掩埋SARS-CoV-2起源的真相。在这些媒体报道的基础上，中共政权又大肆放大自己的声音，宣扬SARS-CoV-2一定来源自然界的伪证理论。为了继续打击和战胜科学的错误信息，我们在此对这些评论进行点对点的回应。文件的第一部分是我们对麻省理工学院出版社评论的回应，第二部分是我们对约翰-霍普金斯健康安全中心发表的评论的回应。我们还在开头加入了一个开场白，总结了“超限科学误导”的主要事件，包括与中共政权关系密切的个人所执行的各种掩盖行为，以及闫博士为揭露COVID-19的真相所做的持续努力。我们真诚地希望这份文件能够帮助世界认识到正在进行的虚假宣传运动，并认识到SARS-CoV-2病毒是中共政权开发的一种超限生物武器。我们认为，认识到这一点对于战胜COVID-19大流行病和保护全球社会免受未来生物武器攻击至关重要。
+而上述这些边贸交易活动，则全部来自于中缅接壤的5个边贸口岸，而这5个口岸的贸易额都比去年同期有所上涨，其中涨幅最多的便是，中缅之间最大的的边贸口岸——木姐。
 
-参考阅读：
+## 多国政府防长相继联合强势声明表态，中共未免引火上身，故技重施，因疫情再度反弹——姐告封闭！
+![](https://lh4.googleusercontent.com/anovp4un8ADOb-VzlVqTG9jF7zz4aF-tEIgX7zux7Mwaa111g9zE5utjCC3wtBwTDtLKYuDbPbk4bnFfgL_dtub7vnE6-wcp_WHBC3-XILfJ-JT9F94s7SimBp2tJpQ7Dsgfxs8pyvyXvqUKLA)
+“木姐”，这一中缅接壤的最大边贸口岸，紧邻中缅边境重镇的云南省德宏州的瑞丽市，而姐告恰巧就坐落在瑞丽。
+![](https://lh4.googleusercontent.com/OcNpKKUqyhxpnAoKG0B_xlLhDgKBe921UNstVWuhZF6eA2Hb1dDbfyfht5fgbEYCrQPlNJOCvxvwYyaQeZGBQRAi2WQc6qVbHPL7Z0Y40la6dc4JalF7jR7sQyOQ2kghG4c5kEoDEmmja6MA1w)
+中共官方通报，2021年3月30日，云南瑞丽新增6例本土新冠确诊病例、3例无症状新冠感染者。其中1例确诊及3例无症状感染者均为缅甸籍。
 
-[The Wuhan Laboratory Origin of SARS-CoV-2 and the Validity of the Yan Reports Are Further Proved by the Failure of Two Uninvited “Peer Reviews”](https://zenodo.org/record/4650821#.YGUPJWhKhPa)
+鉴于瑞丽新冠疫情突发性反弹，中共当局决定即日起，暂时封锁姐告周边区域，瑞丽市宣布再次紧急转入战时状态。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/3-g-fashion-1.jpg)
+不要看中共说什么，一定要紧盯它在做什么！中共的“战狼外交部”一面在北京“仰天狂吠”、“装神弄鬼”。中共则暗地在别处“包藏祸心”的小动作不断。眼见国际社会及多国防长联盟对缅甸军政府发出强硬表态，中共便顺势来了个过河拆桥，以免引火上身……
 
-编辑/校对/发稿：Irene木木
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+文章审核：zhong
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+文章发布：Little Liu
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-+8
+0

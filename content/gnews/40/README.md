@@ -1,47 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共朝鲜化已浮出水面
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1041162/)
+## 闫博士第三个报告今天发表&nbsp; 白宫密切关注
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1041285/)
 
-**西班牙巴塞罗那喜悦农场 **wenwu
-
-***新冠病毒应命名为“中共病毒”，中共的做人底线是其通往地狱的直通车票。自中共病毒在武汉爆发后，中共极力掩盖当地的疫情和迫害当地的吹哨医生。***
-WHO&CCP联合病毒报告在美国公开后，因联合报告只是“小学生逻辑”且不是独立调查，中共这么不科学断然被14国联合否决。不止如此，顿时全世界人类看到联合报告感到自己的智商被耍了，更离谱还有在病毒报告的方向上，中共只以利益绑架而不需要科学证据来血口喷人！
-
-据2021年3月31日《华尔街日报》的**`报道`**，中共国外交部发言人华春莹周三在泰德罗斯的《每日新闻》发布会上多次提到团队的“重要结论”，即武汉实验室不太可能发生泄漏。话锋一转，她敦促世卫组织调查其他国家早期爆发的证据，并建议未来的任何实验室调查都应包括马里兰州德特里克堡的美国军事实验室。中共国官员一再表示，疫情并非始于中共国武汉实验室，中共病毒可能起源于德特里克堡，但没有提供任何证据。中共有一事是对的，闫博士曾爆料过武汉实验室确实不可能泄漏，而是故意投放的。
-
-此外，在美国的安东尼·福奇也和中共一样病的不轻。爆料革命战友皮特·纳瓦罗在推特上更直接用他的名字为新冠病毒来命名，即是**“福奇病毒”（FAUCI VIRUS）**。因为是他在帮助反人类的中共政府制造灭绝人类的超限生物武器。另外，喜站也在推特发布了福克斯节目。该节目表示，***如果无法彻查中共病毒，疫情将祸害人类50年。***
+简述：在2021年3月31日的盖特视频中，郭文贵先生透露闫博士的报告[1-4]一直被白宫关注，并赞扬路德的119（2020年1月19日）首次爆料病毒的贡献。他让大家注意整个美国和西方的联合，并言“以毒灭共”，“联合灭共”势不可挡。
 
 
 
-> Fauci is a sociopath and a liar. He had nothing to do with the vaccine. The father of the vaccine is [@POTUS45](https://twitter.com/POTUS45?ref_src=twsrc%5Etfw). Fauci is the father of the ACTUAL virus. Wuhan lab![https://t.co/LvCCsLwSU0](https://t.co/LvCCsLwSU0)
-> — Peter Navarro (@RealPNavarro) [March 31, 2021](https://twitter.com/RealPNavarro/status/1377277563077283841?ref_src=twsrc%5Etfw)
+**闫博士第三个报告今天发表****  ****白宫密切关注**
 
+**Dr. Yan’s Report Is Out Today and the White House Knows It**
 
-**`福奇是一个反社会者和骗子。他与疫苗无关。疫苗之父是川普总统。福奇是中共病毒之父。`**
-**`那从武汉实验室制造的！`**
+那么另外一个今天是我们的科学家，第三个报告出来，据我所知，刚刚我给科学家发了个信息，拜登政府用的几个大咖，最早给我发信息，问英文谁给校对的？我说啥意思啊？我说英文是科学家校对的呀，他也没说啥，绝对是超级人物，就说明咱们科学家的一举一动白宫都盯着呢，你想想那共产党能不盯着吗？所以科学家这个人她绝对是个天使，上天送来的，真的是我们最大的礼物。路波切最大的功劳就是119，啥也不是，就是119，没119他啥也不是，119是他最大的功劳，说的太好了。
 
+So another thing is about our scientist [Dr. Li-Meng Yan]. As far as I know, her third report just came out today. I just sent a message to our scientist. Several big shots from the Biden administration sent me messages earlier, asking me who proofread her English.“What do you mean by that?” I said, “The English was proofread by the scientist herself.” He didn’t say anything, this guy is an absolute big name. It means that every action of our scientist is watched closely by the White House. Think about it, can the CCP not have its eyes on her too? So our scientist, she is definitely an angel, a gift from heaven. She is really the greatest gift to us. LuDe’s greatest contribution is the January 19 broadcast [when for the first time he disclosed the info about the virus that he got from Dr. Yan at the LuDe Media]. Without the January 19 broadcast, he would be nobody. The January 19 broadcast is his greatest contribution, and he did a really great show.
 
-> 塔克变身路德，节目一半时间评论病毒起源及世卫报告，揭露打杂客世卫与中共的勾结，媒体对真相的掩盖，赞扬闫博士对真相的揭露
-> 他还采访了比尔戈兹，称他为跨党派国家安全官员。
-> 戈兹认为病毒来自于实验室，特别提到武汉p4军方生武项目，及针对特定族裔的生武。他说，如不彻底查清真相，疫情将持续50年 [pic.twitter.com/CsfLxL7Dkf](https://t.co/CsfLxL7Dkf)
-> — 嘻禧僖囍 (@xi\_GLB) [March 31, 2021](https://twitter.com/xi_GLB/status/1377203568621481990?ref_src=twsrc%5Etfw)
+但今天是个大日子，科学家的第三个报告，以毒灭共..这个牛了，所以你看反应有多快，我相信今天晚上路波切做节目，他得好好讲讲，今天晚上我估计都得打领带了，是吧？
 
+But today is a big day, with our scientists’ third report and taking down the CCP with the truth about the virus – really awesome! So you see how fast the reaction is. I believe that LuDe will talk about this [report] in depth on his evening show. I guess he will wear a tie this evening, right?
 
-**`塔克变身路德，节目一半时间评论病毒起源及世卫报告，揭露打杂客世卫与中共的勾结，媒体对真相的掩盖，赞扬闫博士对真相的揭露`**
-**`他还采访了比尔戈兹，称他为跨党派国家安全官员。 戈兹认为病毒来自于实验室，特别提到武汉p4军方生武项目，及针对特定族裔的生武。他说，如不彻底查清真相，疫情将持续50年`**
-——“喜站”推特
-另外，今日有一则新闻是值得提的。据2021年3月31日《中国新闻网》援引《美国中文网》的**`报道`**，美国总统拜登将宣布总额预计至少在3万亿美元的大规模基础设施计划。这是川普时代的计划，爆料革命的郭文贵先生曾爆料过，拜登总统觉得川普的经济复苏计划不错，会用！今日得到了证实。不同的是拜登的启动资金多出一倍，还有中共大外宣对同一个计划在不同的总统情况下有不同的评价。可见过了3年，心里的滋味只有中共自己知晓。
+另外一个兄弟姐妹们，要注意到整个美国和西方的联合，叫联合起来以毒灭共，看看你七哥的，就今天下午七哥有几个重要的人，我们要好好聊聊，然后要组织一个会，到黄石公园要秘密的开会，要进山，以毒灭共，联合灭共，这已经谁也挡不住了。
 
-不仅如此，中共走向朝鲜的画面逐渐明面化。据香港2021年3月31日《CNN》Business保利琳·洛克伍德的**`报道`**，《英国广播公司新闻》（BBC）周三在推特上宣布了位于北京站的约翰·萨德沃思将搬迁到台湾站。虽然英国广播公司没有详细说明这一举动的确切原因，但可以明确的是北京站的新闻机构因在中共国的新疆报道而面临法律诉讼。
+Brothers and sisters, another thing is that we must notice the unity of the United States and the West, which is called getting united to take down the CCP with the truth about the virus. Look at your Brother Miles. Just in this afternoon, your Brother Miles will chat with a few important people. Then a meeting will be organized, a secret meeting in Yellowstone. We will go to the mountains to discuss about taking down the CCP together, using the truth about the virus. No one can stop this.
 
-在该报道中，[中国外国记者俱乐部（FCCC）](https://twitter.com/fccchina/status/1377165166031200260)在本月早些时候发布的[年度报告](https://twitter.com/fccchina/status/1366253375646433280)中表示，过去一年，中共国的新闻自由迅速下降，其部署了“所有国家权力武器”来骚扰和恐吓外国记者、他们的中国同事和消息人士。其中就包括了因报道新疆报道而迁入台湾站的BBC新闻记者，并且还有更多的新闻记者将离开中共国。
+所以说想想今年七哥定的以毒灭共，以钱灭共，兄弟姐妹们，你们越有钱，共产党死的越快，你们越快乐，共产党死得越快，你们越成功，共产党死得越快，所以你们必须成功，心脏要强大，人要坚强，更重要的要开双眼，不要傻，不要看底下，看上面，不要那么简单的被人家给骗了，啥都不说了。
 
-中共国新疆的难民营中，妇女遭到系统性强奸、性虐待和酷刑，[美国国务院](https://www.foreign.senate.gov/imo/media/doc/120418_Busby_Testimony.pdf)声称，多达200万人被安置在拘留营。在疫情下，整个中共国的老百姓已经住在了“纳粹集中营”里，在各地都出现《街道办事处》逼迫老百姓打中共疫苗的宣传。为此，央视女主持更“脱下底裤”唱起“尿尿尿尿尿”（苗苗苗苗苗）。中共的无耻跌破三观！
+So think about this year’s goal that Brother Miles has set: taking down the CCP with the truth about the virus and with money [financial activities]. Brothers and sisters-in-arms, the richer you get, the sooner the CCP will die; the happier you become, the sooner the CCP will die; the more successful you become, the sooner the CCP will die. So you must succeed, you must have a strong heart. To be strong, you must open your eyes and not be foolish. Don’t look down, rather you should look above. Don’t be fooled so easily by others. I will stop here.
 
-附，川普基建计划的**`新浪报道链接`**。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60647e3549339063d061998c](https://gtv.org/getter/60647e3549339063d061998c) (6:40-7:28, 8:05-9:24)
+鸣谢：感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/1041092/](https://www.gnews.org/zh-hans/1041092/)
 
-文章仅代表作者观点，与GNEWS无关
+参考链接：
+[1] [闫博士最新报告（英文版）](https://zenodo.org/record/4650821#.YGSRqy2caQK)： [下载](https://zenodo.org/record/4650821#.YGSRqy2caQK)
+[2] [闫博士报告一（中文PDF）](https://gnews.org/zh-hans/357190/)：[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/09/18030621/Yan_Report-V5.2_Simpified.pdf)
+[3] [闫博士报告二（中文PDF）](https://gnews.org/zh-hans/412951/)：[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/09071629/The_2nd_Yan_Report-V1.0-Simpilfied.pdf) 
+[4] [闫博士驳斥CNN](https://gnews.org/zh-hans/581750/)：[下载](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/22120527/Dr_Yan_20201121_Report3_EN_CN_Traditional_PDF-v1.3.pdf)
 
-+5
+* * *
+
+校对 & 字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
++7

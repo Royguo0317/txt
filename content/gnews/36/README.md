@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】川普正在“推进”自己的社交媒体平台计划
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1041286/)
+## 【热点播报】美国逾百名教授要求高校对华关系透明化
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1041460/)
 
-译评：纽约香草山福音部 Daxia
+作者：纽约香草山农场 四季
 
 
 
@@ -12,23 +12,23 @@
 
 
 
-据《邮约邮报》3月31日报道，“唐纳德-川普正在推进自己的社交媒体平台计划”。
+据《[华盛顿自由灯塔报](https://freebeacon.com/campus/professors-call-for-transparency-in-colleges-ties-to-china/)》3月31日的报道，超过100名的美国大学教授周二签署了一封联名信，要求他们的高校在与中共国政府的商业往来方面提高透明度。
 
-一位熟悉此事的人士告诉福克斯新闻：“我们正在花时间做正确的事，川普将以不同的方式表达他的声音。”
+这封信的签署是为了反对中共国政府3月份对三名教授和一个德国智库的新制裁而发起的。该项制裁是针对这些教授揭露了中共建立新疆维吾尔族穆斯林集中营的事实。著名的签署人包括被中共国直接制裁的斯坦福大学胡佛研究所访问学者、前国家安全副顾问博明（Matt Pottinger），以及带头反对康奈尔大学与北京保持亲密关系的康奈尔大学教授马格努斯-菲斯克斯约（Magnus Fiskesjö）。
 
-继2021年1月6日美国国会大厦发生骚乱后，川普被无限期禁止使用Twitter和Facebook等社交媒体网站。
+信中写道：“自由民主国家的大学和研究机构也有责任应对跨国学术压制，保护观点的多样性。至少，这要求与专制国家的对应方签署的协议具有真正的透明度，在所有此类安排中优先考虑研究、教学、思想和表达的自由，确保了解此类国家情况的学者在决策中进行有意义的协商和参与，并承认和补偿由于制裁对初级和中级工作人员的职业发展造成的风险。”
 
-笔者在此只想感叹一句：水到穷处成飞瀑，人到绝境是重生。
+中共所实施的“蓝金黄”渗透之深，严重危害各国的国家安全，尤其通过其“千人计划”侵入教育、科技等领域，破坏学术自由，盗窃知识产权。现在，中共又通过生化武器制造了肆虐全球的中共病毒灾难，唯有灭共，才能还世界和平。
 
 参考阅读：
 
-[Donald Trump ‘moving forward’ with plans for own social media platform](https://nypost.com/2021/03/31/trump-moving-forward-with-plan-for-social-media-platform/?utm_campaign=iphone_nyp&amp;utm_source=pasteboard_app)
+[Professors Call for Transparency in Colleges’ Ties to China](https://freebeacon.com/campus/professors-call-for-transparency-in-colleges-ties-to-china/)
 
 ![]()![](https://gnews.org/wp-content/uploads/2021/03/M3-1.jpg)
 
-编辑：灵性探索
+编辑/校对：雪梨
 
-校对/发稿：Irene木木
+发稿：Irene木木
 
 更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
