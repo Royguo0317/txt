@@ -1,76 +1,120 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 英国国防部遭受疑似中共的网络攻击
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1044448/)
+## 中共国铁腕治港 创纪录的436亿美元涌入加拿大
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1044395/)
 
-新闻来源：《Express快报 》| 作者：Brian McGleenon | 发布时间：2021年3月27日
+新闻来源：《 国家邮报 (National Post) 》| 作者：路透社 Sarah Wu 及 NicholaSaminather | 发布时间：2021年3月31日
 
-翻译/简评：村民彼得潘 | 校对：Beicy-数学老师 | 审核：万人往 | Page：Daoiii
+翻译/简评：原乡人 | 校对：许先生 | 审核：万人往 | Page：Daoiii
 
-[!\[\]()!\[\](https://spark.adobe.com/page/n7uOnJexhxZ1n/images/1f87426e-9314-453f-a85c-785b491b84d4.png?asset_id=ca38f6d5-9561-4e3e-a14c-8dffb6b572f2&amp;img_etag=%227987af8d3fce44ac01c5f34456d59961%22&amp;size=1024)](https://spark.adobe.com/page/n7uOnJexhxZ1n/images/1f87426e-9314-453f-a85c-785b491b84d4.png?asset_id=ca38f6d5-9561-4e3e-a14c-8dffb6b572f2&amp;img_etag=%227987af8d3fce44ac01c5f34456d59961%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/Ftbs9tPkN9xaX/images/e0882dd9-4ba5-4909-8d5b-3f91c1619f72.jpg?asset_id=94f93ca0-aac9-4019-af6f-51a86e09e730&amp;img_etag=%225d455624e3219e012cd1a46b36cc8dea%22&amp;size=1024)](https://spark.adobe.com/page/Ftbs9tPkN9xaX/images/e0882dd9-4ba5-4909-8d5b-3f91c1619f72.jpg?asset_id=94f93ca0-aac9-4019-af6f-51a86e09e730&amp;img_etag=%225d455624e3219e012cd1a46b36cc8dea%22&amp;size=1024)2019年8月，香港国际机场外的抗议者和游客和一架起飞离港的航班 （来源纽约时报）
 
 ***简评：***
 
-本文将英国国防部遭遇的网络攻击与美国微软此前遭遇的黑客入侵相关联，对网络攻击造成的公民隐私暴露的危害予以警示，并质疑中共为潜在的幕后黑手。令人震惊的是，直到国防部相关学院机构遭到攻击之后，才有该篇报道释出，而文章仅提及美方的指控，没有引述明确的英国官方表态。不难想象在当下的国际灭共形势到来之前，英国对中共的戒备有多么薄弱。当然，另一方面也反映出英国的民意大致到了一个什么样的火候，如非美国事先提出北京方面才是黑客主谋，也许英国媒体还不敢贸然先行一步。
+加拿大金融监管机构自2012年开始统计每笔超过1万加元的电子汇款记录，从香港转到加拿大的资金2020年创历史新高至436亿美元，伴随资金外流的是移民签证申请的剧增。2020年港版国安法实施后，香港人的自由和权利名存实亡，“爱国者治港”更是剥夺了香港公民议政参政的资格。香港前景黯淡无光，迫使港人“用钱投票”、“用脚投票”。除了加拿大外，英国、澳大利亚等其他西方国家也是港人青睐的移民国家，很快这些国家也将发布2020资金流入统计报告，估计来自香港的资金流入数据也会是媒体关注的焦点。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/n7uOnJexhxZ1n/images/9812b6a1-1b58-4e6e-9c47-40b77d865e29.jpg?asset_id=28e08fa9-46be-4d26-932b-b27be8ce3a56&amp;img_etag=%2217f55c8ad8d5e1535a4482e9fc14e453%22&amp;size=1024)](https://spark.adobe.com/page/n7uOnJexhxZ1n/images/9812b6a1-1b58-4e6e-9c47-40b77d865e29.jpg?asset_id=28e08fa9-46be-4d26-932b-b27be8ce3a56&amp;img_etag=%2217f55c8ad8d5e1535a4482e9fc14e453%22&amp;size=1024)
+尽管有大量资金离开香港，香港金管局数据显示2020年香港的存款总额还增长了5.4%至14.5万亿港元（1.9万亿美元），据悉中共国通过“沪港通”也向香港注入了强劲的现金流，一些大公司在香港上市也吸引资金流入香港。我们不仅要问，是否中共又在挖东墙补西墙，让大陆银行的党产“进驻”香港确保港币坚挺不倒？还是海外盗国贼的基金被党国勒令回流香港？还是西方基金要钱不要命，与中共勾兑，继续投资香港？
 
-从积极的层面看，其一，国防部遇袭终于打到了英国权力机构的痛处，危则生变；其二，英国民意的推动总算开始聚能，西方国家治下的老百姓一起对中共同仇敌忾的日子不远了；其三，本文关联国防部与美国还隐含了第二层意思，即五眼联盟情报共享的持续运作，表明大家此刻是同患难的“兄弟”，未来对中共的追责也将兄弟同心。
+2020年香港外流的不仅是港人的资金，更是港人的信心。光天化日之下，昔日中西合璧的东方明珠如今被一帮中共流氓强取豪夺、据为己有。留港不留人就是他们的初衷，在中共眼里香港不过是粤港澳大湾区规划里的一个有国际交易功能的城市。殊不知一个成功的国际交易中心靠的从来不是摩天大厦、高铁港口、智慧城市等等设施硬件，它靠的是诸如自由守信的公民、自治的大社会、清廉的小政府等等制度软件。中共砸碎了香港优秀的自由、民主、自治的制度软件，安装上了低劣的“爱国者治港”这一恶意软件。指望这棵摇钱树依旧给他们招财进宝，中共的愚蠢无知，已是病入膏肓，不可救药。香港的光复不再是远在天边，而是近在眼前了！
 
 ***原文翻译：***
 
-## **对第三次世界大战的担忧：中共国间谍会监听“任何英国公众成员”的谈话**
+## **创纪录资本外逃——中共国铁腕治港致436亿美元涌入加拿大**
 
-中共国间谍可以“监听英国的任何手机通话”，使得人们越来越担心北京的网络间谍会泄露英国公民的隐私。
+*路透社对电子资金转移的调查否定香港的说法，即自2019年首次开始动荡以来，香港没有出现大量资金外流。*
 
-北京的间谍人员能够从中国境内的基地远程拦截卫星和电缆通信。现在恐怕他们能够获取电话通话。一位英国前军事情报官员对《每日镜报》说，中共国甚至还能够拦截英国军方和政府官员之间的非加密电话。
+[!\[\]()!\[\](https://spark.adobe.com/page/Ftbs9tPkN9xaX/images/7a82aefb-b7c8-4503-a893-c7de9c91f66b.png?asset_id=19007a82-77b1-490e-86fb-d1ea0f2967c0&amp;img_etag=%22a6c02ce1b522b4624d2a6ff114d145c8%22&amp;size=2560)](https://spark.adobe.com/page/Ftbs9tPkN9xaX/images/7a82aefb-b7c8-4503-a893-c7de9c91f66b.png?asset_id=19007a82-77b1-490e-86fb-d1ea0f2967c0&amp;img_etag=%22a6c02ce1b522b4624d2a6ff114d145c8%22&amp;size=1024)2020年8月6日，不列颠哥伦比亚省温哥华市中心，一架水上飞机在即将到来的风暴前起飞。加拿大新闻社/DARRYL DYCK
 
-该官员表示：“中共国在电话拦截方面有很强的能力。”
+路透社多伦多3月26日—随着去年中共国在香港大规模抗议后全面实施国安法，香港居民将数百亿美元跨洋转移到了加拿大，在那里数以千计的人希望打造一个新的未来。
 
-“如果不加密，军方可以认为他们的通话会被拦截。”
+去年，从香港各银行流入加拿大的资金创下历史新高，加拿大反洗钱机构FINTRAC负责记录了所有1万加元以上的转账汇报，据其统计，约436亿加元（348亿美元）的资金通过电子转账进入了加拿大。
 
-“无论这些通话的内容听上去多么没有危害，它们都可能是有价值的。”
+这笔此前未经报道的离港入加的资金是自2012年FINTRAC开始记录这些数据以来的历史最高。这是香港安全动荡之后大量资金逃离这一亚洲金融中心的第一笔证据。
 
-“会议时间，其他通话人的名字、日期、时间和地点。”
+加拿大公平银行也向路透社表示，2020年6月港版国安法实施后，来自香港的存款激增。批评者认为该法旨在扼杀异议，北京否认这一指控，声称这是为了加强国家安全。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/n7uOnJexhxZ1n/images/87aa5923-1868-4337-bfd4-0e731bc3683d.png?asset_id=757b0ed2-99a1-4622-a7ba-af7e97fc1fb2&amp;img_etag=%22e42de60d635651cb9d3641e60feabc71%22&amp;size=2560)](https://spark.adobe.com/page/n7uOnJexhxZ1n/images/87aa5923-1868-4337-bfd4-0e731bc3683d.png?asset_id=757b0ed2-99a1-4622-a7ba-af7e97fc1fb2&amp;img_etag=%22e42de60d635651cb9d3641e60feabc71%22&amp;size=1024)中共国间谍可以监听英国的电话通话（图片：盖帝）
+[!\[\]()!\[\](https://spark.adobe.com/page/Ftbs9tPkN9xaX/images/00525206-ee1e-4dd5-861f-3d31606bd2b2.png?asset_id=d54c848d-b4d8-44b6-93c8-88c9a7448a1a&amp;img_etag=%22f93b9d585319569411f491d30ba610a3%22&amp;size=2560)](https://spark.adobe.com/page/Ftbs9tPkN9xaX/images/00525206-ee1e-4dd5-861f-3d31606bd2b2.png?asset_id=d54c848d-b4d8-44b6-93c8-88c9a7448a1a&amp;img_etag=%22f93b9d585319569411f491d30ba610a3%22&amp;size=1024)2014年2月20日星期四，香港的商业和住宅建筑。摄影：彭博社JEROME FAVRE。
 
-“所有信息当被输入到总的情报图景中，都可以被交叉参考以获得有价值的信息。”
+香港的《逃犯条例修正草案》（现已撤回）允许向中国大陆引渡犯人，引发了香港2019年开始的反政府运动。香港政府表示，之后没有出现大量的资金外流。
 
-“而这意味着你也可以假设同样的情况能够发生到任何一位公众成员身上。”
+2020年创纪录的转帐资金与2016年和2019年相比，分别增加了46%和10%。这年香港警方冻结了多名支持民主抗议人士的账户，引发港人对资产安全的担忧。
 
-这个令人震惊的消息是在上周国防部（MoD）遭受网络攻击的事件中传出的。
+这股外流资金仅占香港2020年银行存款总额的1.9%。但是FINTRAC发言人达伦·吉布（Darren Gibb）称，FINTRAC的数据只捕捉到了合法流入加拿大经济体的一小部分，很多交易未统计在内，比如通过加密货币的转账、金融机构之间的转账、或者低于1万加元的转账等。
 
-位于牛津郡斯里文汉（Shrivenham, Oxfordshire）的国防部三军学院遭遇了一次网络攻击，致使其IT网络受到打击，其网站停止工作。
+他说，该机构收到的电子转账资金汇报数量不断增长，与全球趋势一致。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/n7uOnJexhxZ1n/images/27298b1b-94c5-4839-908b-0bca4071dcb6.png?asset_id=7778429b-8da3-4ba0-8f82-a71e2ac99f3c&amp;img_etag=%2261d9466336d85cb9818b3f35004cb6e0%22&amp;size=2560)](https://spark.adobe.com/page/n7uOnJexhxZ1n/images/27298b1b-94c5-4839-908b-0bca4071dcb6.png?asset_id=7778429b-8da3-4ba0-8f82-a71e2ac99f3c&amp;img_etag=%2261d9466336d85cb9818b3f35004cb6e0%22&amp;size=1024)乔·拜登表示，他会对中共国采取更强硬的立场（图片：盖帝）
+而且这不仅仅涉及钱。
 
-官方随后被告知，黑客来自于外国势力。
+路透社采访了十几位移民顾问、律师和房地产经纪人，从他们那里得知，一旦大瘟疫引起的旅行限制结束，许多香港居民渴望在加拿大开始新的生活，并带来数百万美元的资金。
 
-攻击最有可能来自于俄罗斯或中共国的网络间谍单位。
+2020年，不计观光签证，香港来加拿大的签证申请增长了10%至8121份，表明香港的资金有可能进一步流入加拿大。预计英国和澳大利亚也是香港居民青睐的目的地。
 
-一位国防部人士透露：“他们说这是一个外国势力所为。”
+[!\[\]()!\[\](https://spark.adobe.com/page/Ftbs9tPkN9xaX/images/cc7ec93a-9df7-4c1a-8a6e-7c2da44ec731.jpg?asset_id=60118f0f-8e86-4289-b5f7-b8a099344331&amp;img_etag=%22fbfdc278add91f60eb6fccf80af7823e%22&amp;size=1024)](https://spark.adobe.com/page/Ftbs9tPkN9xaX/images/cc7ec93a-9df7-4c1a-8a6e-7c2da44ec731.jpg?asset_id=60118f0f-8e86-4289-b5f7-b8a099344331&amp;img_etag=%22fbfdc278add91f60eb6fccf80af7823e%22&amp;size=1024)香港BN（O）签证：英国准备欢迎成千上万逃离国家安全法的人
 
-“每个人都被告知要使用他们的个人电脑。”
+香港移民顾问公司安乐思(Anlex)的首席执行官罗安德(Andrew Lo)正在寻求拓展加拿大的财富管理服务，他相信加拿大将是“一个蓬勃发展的新移民市场，尤其是来自香港的新移民”。
 
-“这是因为工作电脑都已经宕机。”
+罗说，过去12个月，他帮助了约36个家庭移民加拿大，平均每个家庭带给加拿大150万加元。
 
-“这至少需要五周时间来修复。”
+**流入香港的资金激增**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/n7uOnJexhxZ1n/images/36a5d1b3-31f1-4cd9-8893-1177fdd6e879.png?asset_id=155a3a66-f104-4a5a-afb5-5dcea22b01bd&amp;img_etag=%22f3b3687fbaa5e7d11e17e971bea0e3ac%22&amp;size=2560)](https://spark.adobe.com/page/n7uOnJexhxZ1n/images/36a5d1b3-31f1-4cd9-8893-1177fdd6e879.png?asset_id=155a3a66-f104-4a5a-afb5-5dcea22b01bd&amp;img_etag=%22f3b3687fbaa5e7d11e17e971bea0e3ac%22&amp;size=1024)快报（图像：中共国军队）
+尽管有资金离开香港，但香港资金流入大于流出。根据香港金融管理局（金管局）的数据，2020年存款总额增长5.4%至14.5万亿港元（1.9万亿美元）。
 
-美国声称北京方面是3月初微软Exchange电子邮件软件被黑的幕后黑手。
+“资本因需流入或流出，作为国际金融中心(IFC)的香港对此司空见惯。”一名央行（金管局）发言人在回应资金流向加拿大的问题时向路透社表示。
 
-白宫新闻秘书詹·普萨基（Jen Psaki）表示：“这是一个正在不断发生的威胁。”
+“这是符合国际金融中心的性质和功能的正常现象。”
 
-“每个运行这些服务器的相关人士、政府、私营部门、学术界都需要现在采取行动，给它们打上补丁。”
+分析师和银行家表示，中共国内地通过“沪港通”向香港注入强劲的现金流，以及去年香港一些首次公开募股(IPO)的强烈购买需求，都有助于资金流入香港。
 
-攻击者们利用微软的邮件服务器来攻击他们的目标。
+[!\[\]()!\[\](https://spark.adobe.com/page/Ftbs9tPkN9xaX/images/29d175ef-c959-4c7e-a751-1fa49e8a57e1.jpg?asset_id=fdb71760-f8e6-464f-98de-74f080f69ab8&amp;img_etag=%222dd9465ffd085c63e3d0074b5166efbb%22&amp;size=1024)](https://spark.adobe.com/page/Ftbs9tPkN9xaX/images/29d175ef-c959-4c7e-a751-1fa49e8a57e1.jpg?asset_id=fdb71760-f8e6-464f-98de-74f080f69ab8&amp;img_etag=%222dd9465ffd085c63e3d0074b5166efbb%22&amp;size=1024)
 
-据悉，有数万家美国机构受到影响。
+在1997年英国将其前殖民地移交给中国之前，许多香港居民的家人搬到了温哥华和多伦多地区，加拿大成了他们的第二个家园。在获得加拿大公民身份后，许多人又回到了香港，香港现在有大约30万加拿大人，是海外加拿大人的最大侨居地之一。
 
-**🔗[原文链接](https://www.express.co.uk/news/world/1415817/china-news-latest-chinese-spies-phone-conversations-uk-us-world-war-3?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+daily-express-world-news+%28Express+%3A%3A+World+Feed%29)**
+但在2020年“港版国安法”出台后，更多的香港居民希望在加拿大安家。据移民顾问和律师透露，加拿大去年年底采取措施（[加拿大宣布支持香港居民和在港加拿大人的移民措施](https://www.canada.ca/en/immigration-refugees-citizenship/news/2020/11/canada-announces-immigration-measures-supporting-hong-kong-residents-and-canadians-in-hong-kong.html)）让他们更容易获得工作许可和永久居留权。
+
+港人自述选择加拿大，一是因为港人的权利和自由已日渐丧失，二是想为子女提供更好的教育。很多港人都在出售香港的房产，并携钱离港。
+
+加拿大移民律师伊夫琳·阿卡（Evelyn Ackah）说，政治形势的变迁促使人们做以防万一的准备，并将加拿大视为一种选项。“目前，这只是一个选项，我认为不会出现大规模逃亡，人们只是四处张望，说’万一需要，我可以住在别的地方吗’？”
+
+**不仅仅是一个峰值**
+
+据移民专家透露，即使出发时间因旅行限制和移民局处理时间放缓而推迟，一些人已经开始将钱转入加拿大账户。
+
+总部位于多伦多的Equitable Bank个人银行业务集团主管Mahima Poddar表示，与香港电话号码挂钩的现有账户余额出现了“显著增长”。
+
+在6月至3月中旬期间，这些账户的平均余额上升了30%，而非香港电话号码的账户只上升了4%。
+
+加拿大几个大型银行要么没有回应要求，要么拒绝对任何来自香港的资金流入发表评论。
+
+让·弗朗索瓦·哈维（Jean-Francois Harvey）是一位在香港工作的加拿大律师，专门为高净值人士提供移民服务。自2020年中期以来，他的寻求移居加拿大的客户增加了5倍。他的客户在过去12个月内少则转移了100万加元，更多的是转移了500万至1000万加元。
+
+“在香港特别是对加拿大的需求增加得惊人，以至于在COVID-19期间，我不得不将团队和香港办公室的规模翻倍。”哈维法律集团(Harvey Law Group)的全球管理合伙人哈维说。
+
+“这不是一个尖峰，这是一股浪潮。”
+
+香港律师克利福德·吴（Clifford Ng）本人于1975年移民加拿大，1995年返回香港，他表示，有关移居加拿大的税务影响的咨询增加了4倍。
+
+不过加拿大并不是唯一一个预计会有香港人流入的目的地。
+
+英国政府预计，未来5年将有多达32.16万名香港居民移民英国，其中近一半将在2021年发生。基于此，美国银行(Bank of America)在1月份表示，预计今年与移民相关的资金外流将达到2800亿港元（361亿美元）。
+
+**房产竞赛**
+
+地产顾问表示，部分进入加拿大的资金很可能流入房地产。
+
+根据Soho App国际地产副总裁埃利·麦克杰弗（Eli McGeever）的数据，在2021年的第一个10周内，香港举办的加拿大开发商新建楼盘展览比2019年同期多出近三分之一。
+
+2020年的展览因香港第一波新冠病毒的封锁受到了影响。
+
+移民顾问公司恒信策划（Halcyon Counsel）创办人马丽莎（Alisha Ma）表示，许多香港家庭在看多伦多和温哥华的房产，但要等到取得永久居留权后再买，以避免交付外国买家的税款。
+
+加拿大房地产投资中心（香港）Canadian Real Estate Investment Centre (HK)的创始人基兰·查普曼（Keelan Chapman）表示，他看到明显增加的在好的学区寻找较大的房产的买家是为了最终自用，而不是仅仅用来投资。
+
+他表示，客户中大部分是持有加拿大护照的香港居民，他们返回加拿大的时间从以前的平均8年左右缩减到现在的5年。
+
+他告诉记者：“他们不会明天就急着搬回加拿大住，但作的是长远打算。”
+
+**🔗[原文链接](https://nationalpost.com/news/world/a-record-flight-of-capital-43-6-billion-from-hong-kong-to-canada-as-china-cracks-down)**
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -79,6 +123,6 @@
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/n7uOnJexhxZ1n/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/n7uOnJexhxZ1n/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/Ftbs9tPkN9xaX/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/Ftbs9tPkN9xaX/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-+1
+0

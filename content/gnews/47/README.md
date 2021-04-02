@@ -1,26 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 前国务卿蓬佩奥与台湾驻美代表萧美琴会面
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1044810/)
+## 【热点播报】拜登政府延续上届取消与台交往限制
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1044820/)
 
-台湾宝岛农场 Amitofu
+作者：纽约香草山健身部 童谣
 
-前美国国务卿蓬佩奥3月31日在曾经是台湾驻美大使官邸的双橡园，接受台湾驻美代表萧美琴邀请会面，萧美琴对蓬佩奥表达对美国不分党派支持美台关系的感谢，特别在川普政府时期重申台湾关系法和六项保证、对台军售等，以及川普和拜登政府过渡期间，确保美国与台湾在自由、民主和利伯维尔场经济方面有共同的核心价值。并邀请蓬佩奥在疫情缓解后访问台湾，对增强美台之间的友谊交换意见。
-
-
-
-> Great to see Taiwan Rep. [@bikhim](https://twitter.com/bikhim?ref_src=twsrc%5Etfw) yesterday. As Secretary of State, I worked to support Taiwan — a fellow democracy — in the face of unrelenting pressure. The U.S. shares with Taiwan the core values of freedom, democracy, and a free market economy. [pic.twitter.com/KdNyG5thgB](https://t.co/KdNyG5thgB)
-> — Mike Pompeo (@mikepompeo) [April 1, 2021](https://twitter.com/mikepompeo/status/1377622099460767745?ref_src=twsrc%5Etfw)
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
 
 
-在美国与中华民国仍有外交关系之前时，双橡园是台湾驻美大使的正式官邸，自1979年美台断交后华盛顿西北区的双橡园只能用来作为社交活动的场所，美国高级别现任官员也不能参加在双橡园举行的社交活动，蓬佩奥在卸任前将美台官方接触限制解除，此次前美国国务卿蓬佩奥和萧美琴在曾经是台湾驻美大使官邸的双橡园会面，象征美台关系朝向国与国发展的高度政治意涵，3月28日帕劳总统惠恕仁在美国驻帕劳大使倪约翰随行下，率访问团抵达台湾，是台美断交43年来首位美国大使访台，美方正式透过官方关系与台湾接触建立双方正式管道， 同时也间接承认台湾国家的地位。本文仅代表个人立场
+虽然拜登政府对中共的暧昧态度多次令人诟病，但其与台湾的关系却没有向中共所希望的方向发展。反而不管是在白宫声明还是在国务卿新闻发布会上，对台湾的支持都始终延续着川普时期的做法。
 
-[美国前国务卿蓬佩奥会晤台湾驻美代表萧美琴](https://www.rfi.fr/cn/%E6%94%BF%E6%B2%BB/20210401-%E7%BE%8E%E5%9B%BD%E5%89%8D%E5%9B%BD%E5%8A%A1%E5%8D%BF%E8%93%AC%E4%BD%A9%E5%A5%A5%E4%BC%9A%E6%99%A4%E5%8F%B0%E6%B9%BE%E9%A9%BB%E7%BE%8E%E4%BB%A3%E8%A1%A8%E8%90%A7%E7%BE%8E%E7%90%B4)
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26093927/MOS0494-%E3%80%90%E7%83%AD%E7%82%B9%E6%92%AD%E6%8A%A5%E3%80%91%E5%8F%B0%E6%B9%BE%E9%A9%BB%E7%BE%8E%E4%BB%A3%E8%A1%A8%E5%A4%84%EF%BC%9A%E5%B7%B2%E6%9C%8912%E4%BA%BA%E7%A1%AE%E8%AF%8ACCP%E7%97%85%E6%AF%92.jpg)
 
-审核:Athena雅典娜 发布:Amitofu
+英国《金融时报》报道，美国拜登政府将发布准则，延续前总统川普取消美台交往限制的做法，鼓励美国外交官会见台湾官员；但新准则仍将设限，包括不在任何会面场合展示中华民国国旗，“凡是关乎主权的都不允许”。[1]一位听取了拜登工作简报的官员说美国与台湾外交官互动的大多数限制“将会消失”。
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+同时人类顶尖科技前沿机构美国国家航空航天局在网上发起“火星船票”活动，其官网将“台湾”单列为“国家”。此前布林肯也在多个发布会场合公开对台湾的独立主权予以肯定，并积极帮助促进民主台湾与邦交国的外交关系。这里又有拜登表示延续川普对台政策取消美台交往限制。
+
+虽然青天白日旗尚未能自在飘扬在各个国际外交场所，但这些向台靠拢的迹象表明，不管是从代表人类发展方向的顶尖科技领域，还是从美国政府政策、总统和国务卿的对外表态来看，承认台湾的独立主权地位对制衡中共的武统威胁至关重要。
+
+如果说香港、缅甸等民主萌芽之地已经覆没，那么自由台湾就是亚洲地区需要全世界力量来捍卫的最后一块净土。这个时刻台湾遇到危机也是对美国的考验，从人类文明的视角，台湾是保存五千年古老中华文明火种最完整的地方，民主台湾是复兴中华民族文化、拯救中土大地炎黄子孙的希望。而保护台湾不被侵蚀，不落入魔鬼之手，也有因信仰自由受到万神庇佑才科技发达、国力富强的美国的使命。
+
+[1] 引用来源 #1 source [法国国际电台](https://www.rfi.fr/cn/%E4%B8%AD%E5%9B%BD/20210331-%E6%8B%9C%E7%99%BB%E6%94%BF%E5%BA%9C%E5%B0%86%E5%8F%91%E5%B8%83%E6%96%B0%E5%87%86%E5%88%99%E5%8F%96%E6%B6%88%E5%8F%B0%E7%BE%8E%E4%BA%A4%E5%BE%80%E9%99%90%E5%88%B6%E9%BC%93%E5%8A%B1%E5%A4%96%E4%BA%A4%E5%AE%98%E4%BC%9A%E6%99%A4%E5%8F%B0%E6%B9%BE%E5%AE%98%E5%91%98)
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0
