@@ -1,48 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 由于中共反对，联大安理会就制裁缅甸军政府决议未获通过
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1043850/)
+## 缅甸军政府的所作所为足以构成反人类罪
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1044201/)
 
-![](https://lh3.googleusercontent.com/C9M3RUS06xgvzlAm6eBMmrzUR2YBDNHsxeUhwxtAzQhiAWVOkugrq-K350Z0SlrWPnZww6nd1_1i6Q9seN6K1ajVjtYp5DRx2GWVdwLDug4lfGEN_pe3tUfv5Rrpeh4vjuNN0z0PUijXD7g8ZA)
-作者：台湾准农场 快慢机
+撰稿：永遠の小学生文筝
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20210402_Task2a_Cover.jpg)qququ’aquanquan’bquan’bu全部图片来自网络截图
+缅甸自从2月1日军政府政变，其至今的所作所为足以构成反人类罪。据缅甸流亡社团“囚犯援助组织”（AAPP）估计，已有超过260位英勇抗争的缅甸人在军政府的镇压中牺牲了。
 
-[新闻链接](https://www.163.com/dy/article/G6GA7UOH0534D9HK.html?f=post2020_dy_recommends)
+尤其是3月27日的镇压是最为血腥。军政府以枪杀、刺杀、砸死等惨无人道的方式屠杀抗议者。尽管当天有百位以上的抗争者被杀，但缅甸各地加起来仍有百万以上的人走上街头抗议。
 
-[新闻链接二](https://www.bbc.com/zhongwen/simp/world-56599998.amp)
+军政府的杀人手段已完全不输纳粹在集中营的所作所为，这些巨大的恶在信息时代都将被保存下来，尽管封锁了移动网络，但真实信息仍传到了外界。
 
-## 联合国缅甸特使呼吁安理会，应尽快采取重大行动，遏制缅甸局势进一步恶化。
-![](https://lh4.googleusercontent.com/7VUp7a4Hlc4c_ExgSKlrrlrpP1H8RYtxzccCpVr9UHAKrrPTmh5xy6KZQD6IuH6sUZjz4Ms7F0WY-DFl6LX-geKfgg6pR1rlGaUewDSf7dkH9X7T_0FH233PXY9xSrQvWnq8kt9a-wzvAnG_RA)
-鉴于缅甸当前乱局，有进一步持续性恶化发展趋势。联合国缅甸特使伯格纳于3月31日，在联大安理会上呼吁，联合国应发挥应有作用，尽快采取重大行动，以遏制缅甸局势朝进一步恶化方向发展。
+一位上初3的15岁女孩，在被抓进看守所17天后就被军方打死了。这17天里遭受了多大的折磨，这也只有在军政府被推翻之后才能调查清楚，这一天终究会到来。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20210402_Task2b.jpg)
+不要以为只要不上街就会相安无事。在3月28日到29日，军政府直接登门入户枪杀多名妙龄少女。而在前一周，一名15岁男孩在阻止军政府人员抓捕其父亲时被射杀。为了政府需要进行有目的的杀戮，他们不在乎你是否上街抗议过， 一切肆无忌惮。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20210402_Task2c.jpg)
+这些为军政府搞镇压的人，已经无所顾忌，似乎处于失控的状态。仅仅执行命令都不够，各种抢砸烧随处可见。3月23日在曼德勒的党卫兵，在对一家手机店打砸过后偷走了119部手机，像是在炫耀战利品似的相当自满地拍了照片，这让人想到了土匪抢了地主家之后围着聚餐的场景，而普通的抗议者却被屠杀。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20210402_Task2d.jpg)
+一位缅甸人仅仅因为写了抗议标语就被射杀了。镇压抗议的军政府党卫军对一位已被控制住的抗议者，举起石头活活将其砸死。更为恐怖的，一位抗议者被毫无人道地烧成了灰，这是血淋淋的现实。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20210402_Task2e.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/20210402_Task2f.jpg)![]()![](https://gnews.org/wp-content/uploads/2021/04/20210402_Task2g.jpg)
+当年在伊拉克，萨达姆因杀害杜贾尔村的148名村民而被定义为反人类罪。如今缅甸的屠夫敏昂莱大将仍在屠杀自己的人民，居然还有空去寺庙上香，佛教里说杀人是重罪，烧再多的香佛祖都不会保佑他。作恶者一定会登上历史的审判台，背后支持他的中共亦如此。
 
-自2021年2月1日，缅甸军方突然发起军事政变，非法窃取缅甸政权至今。短短2个月内，缅甸全境无辜民众，被军方以致命性武力射杀的，致死总数已高达521名，其中不乏妇女及儿童。
+(文章内容仅代表作者观点)
 
-缅甸军方竟在其纪念建军节的阅兵式当日，制造了单日射杀抗议示威民众逾百人的血腥记录。事实上，缅甸军方已经不顾国际公约，肆意对平民展开残忍的暴力屠杀。
+参考消息：
 
-中共横加阻拦，反对安理会通过对缅甸军方的制裁决议。
-![](https://lh3.googleusercontent.com/V56UR_uXvEBow9WUHxcPz3lXUldfJrQwukE6Xy7mtxV6SHdjy0hCnDawkH-Uk2_af2platdK4fakWmpyPKHgkVIH-H46_Dw8nQS3-_VtlSd6P5Z38yeh6N10kfUj6dRsWt28Ecd0-cSYBt2wPQ)
-中共常驻联合国代表“张军”，就安理会涉缅议题的相关制裁决议，代表中共当局，横加阻拦，坚决反对联大安理会制裁缅甸军政府的决议案。
+[危害人类罪](https://zh.wikipedia.org/wiki/%E5%8D%B1%E5%AE%B3%E4%BA%BA%E7%B1%BB%E7%BD%AA)
 
-其给出的所谓理由是，片面的施压只会令缅甸当前局势，及一步恶化，各方矛盾再一次被放大、加剧对立危情。这套说辞在之前，中共自己被国际社会所制裁下，也曾有过类似的同一番表述。
+[缅甸政变后最血腥的一天: 德美等12国谴责暴力](https://www.dw.com/zh/%E7%BC%85%E7%94%B8%E6%94%BF%E5%8F%98%E5%90%8E%E6%9C%80%E8%A1%80%E8%85%A5%E7%9A%84%E4%B8%80%E5%A4%A9-%E5%BE%B7%E7%BE%8E%E7%AD%8912%E5%9B%BD%E8%B0%B4%E8%B4%A3%E6%9A%B4%E5%8A%9B/a-57032503)
 
-美国方面则一针见血的指出，应该让那些在缅甸发动军事政变的幕后黑手，付出应有的代价。缅甸当前乱局，不符合美国与盟友，以及世界的价值观及相关利益。言外之意——这似乎恰恰符合“中共当局”的价值观及利益。
+[缅甸暴力镇压持续 当局拒绝放开网禁](https://www.dw.com/zh/%E7%BC%85%E7%94%B8%E6%9A%B4%E5%8A%9B%E9%95%87%E5%8E%8B%E6%8C%81%E7%BB%AD-%E5%BD%93%E5%B1%80%E6%8B%92%E7%BB%9D%E6%94%BE%E5%BC%80%E7%BD%91%E7%A6%81/a-56963463)
 
-## 联大安理会涉缅决议未获通过，缅甸军政府却突然宣布暂时停火。
-![](https://lh5.googleusercontent.com/WxytHiEkq7BeTVP9AmnrikVegduqi_ypr4hte0mxww3DF8OtyGvpmkSg4P02sQHM5GE4HSmA0nfZdry4PQkENrtNuHN0pL4bi0-a6Xj4s84GYuFSPY-rxUhCJa5vZ0sJZciMhlypjK4g3oHoDA)
-就在联大安理会涉缅决议，被中共横加阻拦未获通过的当天。缅甸军政府透过MRTV国营电视台，对外单方面宣布，自2021年4月1日起，对境内少数民族反政府武装，展开30天的停火期。但这其中并不包含“破坏当局政府安全和行政运作者”，简单说就是停火对象并不包括缅甸的抗议示威民众。
+[KOKANG OF MYANMAR缅甸旗帜果敢](https://twitter.com/shenzhilong001/status/1376791386062606339)
 
-由于近期，在缅甸东北部区域的克钦邦，与南部区域的克伦邦等地，相继涌现出，大批少数民族与当地反政府武装相互结盟，共同抗击缅甸军政府暴行的多股游击势力。这些游击武装已经对缅甸军方，成功实施了数次完美的伏击与偷袭行动。给予部分缅军造成了一定程度的打击。
+[缅甸军警把人活活烧死，向示威人群投手雷](https://twitter.com/shenzhilong001/status/1376791386062606339)
 
-就在30号当天，缅甸空军还出动米-24雌鹿式武装直升机，对克伦邦控制区的一个村庄展开了空袭，损毁十余栋房屋后，竟然对惊恐万状的逃难平民，进行低空扫射，造成4死2伤后随即撤离。
-![](https://lh6.googleusercontent.com/vDo97_lnxl-L6KLa7e46E7UXt81RbdQkUE6Jf-gjuhsouypdDsoT_WH_-r2D4oM6w_5s_5-c05kCTlAECmlekkmsfzDC7UhmweDzvB63cxn3RYhRt64WsG_uy0IH9q-Ar-Lfpun_Kv3JD04QSw)
-昨日还杀红了眼，今日就突然偃旗息鼓，单方面停火。除了担心少数民族区域，可能会迅速集结出大批，与反政府武装结盟的游击力量，对抗自己外。考虑到，中共刚刚动用其在联大安理会的“否决权”，帮缅甸军政府暂时躲过一劫。相信该种把戏或许也就仅此一回。
+[一名被抓走17天的仰光15岁国中三年级女生被军方打死在看守所](一名被抓走17天的仰光15岁国中三年级女生被军方打死在看守所)
 
-缅甸当前乱局，中共无疑是其幕后的始作俑者，缅甸只要维持当下之势，中共便可趁火打劫，获渔翁之利。中共只有把世界搞乱，方能寻得一丝短暂喘息之机。
+[15岁男孩因阻止军队逮捕其父亲被射杀于家中客厅](https://twitter.com/shenzhilong001/status/1373879668433063942)
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
-文章审核：zhong
-文章发布：Little Liu
+[3.28－29日缅甸军警登门入户枪杀多名缅甸女孩](3.28－29日缅甸军警登门入户枪杀多名缅甸女孩)
 
-0
+[3.27日一整天91名示威者被杀](https://twitter.com/shenzhilong001/status/1375767241921204234)
+
+[抗议者因写抗议标语被射杀](https://twitter.com/shenzhilong001/status/1375770264781254656)
+
+[曼德勒镇压示威民众的五名士兵抢砸手机店引全缅愤怒](https://twitter.com/shenzhilong001/status/1374549671058698242)
+
+[缅甸军管会最高统帅敏昂莱大将携夫人拜会缅甸最德高望重的僧人](https://twitter.com/shenzhilong001/status/1376537974406443015)
+
+[曼德勒的狗东西用石头将被制服的抗议者活活砸死](https://twitter.com/shenzhilong001/status/1375740225272475648)
+
+* * *
+
+*审稿编辑：光耀华夏*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2.jpg)
++2
