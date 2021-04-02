@@ -1,76 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4月1日《解雇福奇法案》 由国会议员马乔里·泰勒·格林提交国会
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1043333/)
+## 4/1/2021财经快讯：PayPal在美推加密货币结算服务；气候组织呼吁关闭华尔街资金
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1042667/)
 
-**【翻译、点评】冰糖葫芦喵**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-3.jpg)[图片来源](https://www.ccvalue.cn/)
+**1.PayPal宣布在美推出加密货币结算服务**
 
-**【编辑】冰糖葫芦喵、灭共文明**
+[3月31日消息，据国外媒体报道，当地时间周二，支付公司Paypal宣布在美国推出加密货币结算服务，其美国消费者可在数百万商家中使用他们持有的加密货币进行支付。据悉，该服务支持的加密货币包括比特币、比特币现金、以太币和莱特币。PayPal客户在结账时可将其持有的比特币转换为法定货币，以进行支付，该公司不会向使用加密货币支付的客户收取费用，每次购买只能使用一种加密货币。](https://www.sohu.com/a/458378918_211160?spm=smpc.tag-page.fd-news.1.1617243038262UsSeX3W)
 
-**美国国家脉动（The National Pulse）独家报道**，**国会议员马乔里·泰勒·格林(Marjorie Taylor Greene)今天将提出一项名为《解雇福奇法案》(Fire Fauci Act)的新法案，寻求剥夺薪酬最高的美国联邦雇员、“CCP病毒之父“的美国国家过敏和传染病研究所（NIAID)主任职位。**
+**2****.气候组织呼吁克里关闭华尔街资金**
 
-**今年81岁的安东尼·福奇博士（**Anthony Stephen Fauci），是一位美国医学科学家和免疫学家，担任美国国家过敏和传染病研究所主任和总统的首席医学顾问。
+[气候组织呼吁美国国务卿克里(John Kerry)停止向化石燃料行业输送资金，并承认美国金融公司在全球变暖问题上发挥的作用。共有145个组织,包括美国的地球之友和绿色和平组织,写信给克里,气候的总统特使,请求他的支持在处理银行和投资者对气候变化的贡献由融资公司参与化石燃料提取和森林砍伐。](https://www.newsmax.com/Finance/streettalk/FIN-GEN-INDUSTRIES-INS/2021/03/31/id/1015836/)
 
-自1984年以来一直担任美国国家免疫援助研究所的主任至今已有50多年，自罗纳德·里根(Ronald Reagan)以来，他一直是每一位美国总统的顾问。
+[这些组织表示，如果美国要在气候问题上成为全球领导者，就必须采取行动切断向污染者的资金渠道。他们写道:“我们必须认识到，华尔街还不是我们的盟友。”“只要美国公司继续向气候变化的驱动因素投入更多资金，他们就是在积极破坏拜登总统的气候目标。”](https://www.newsmax.com/Finance/streettalk/FIN-GEN-INDUSTRIES-INS/2021/03/31/id/1015836/)
 
-在CCP病毒大流行期间，福奇是川普总统的白宫CCP病毒特别工作组的主要成员之一。此后，福奇于2021年也被任命为乔·拜登总统的首席医疗顾问.
+**3.****在Archegos破产后，美国证券交易委员会开始调查比尔·黄**
 
-在川普总统任职后期的2020年末和2021年初，福奇坚持实行全民戴口罩的规定，但是在2020年3月却对全美人民说：“人民不应该戴着口罩到处走”，并补充说，“没有理由戴着口罩到处走。”
+[彭博新闻(Bloomberg News)周三援引知情人士的话报道称，美国证券交易委员会(SEC)在纽约的Archegos资本管理公司倒闭后，已开始对Bill Hwang展开初步调查。报告称，调查是证券交易委员会在发生重大市场崩盘后启动的例行程序，可能不会导致任何有关不当行为的指控。由于对Archgos的杠杆股权押注不佳，为其交易提供融资的大银行蒙受了至少60亿美元的损失，同时也受到了监管机构的审查。一位知情人士周二对路透表示，美国和英国金融监管机构一直在与包括经纪自营商在内的市场参与者进行讨论，试图确定Archegos违约的影响。](https://www.reuters.com/article/us-usa-markets-blocktrades-regulation/sec-opens-investigation-into-bill-hwang-after-archegos-meltdown-bloomberg-news-idUSKBN2BN36N)
 
-**由于他在CCP病毒大流行期间的多次改变立场的做法，以及最近几周他公开的党派立场，已经导致格林提出从NIAID解雇他的新法案。**
+**4****.美国贸易代表办公室誓言将继续与“重大”外贸壁垒作斗争**
 
-而且，福奇博士与最近承认与中共有联系的世界卫生组织检查员彼得·达扎克博士关系密切。
+[美国政府周三誓言将继续与严重的贸易壁垒作斗争，这些贸易壁垒正在损害美国公司和农民的利益，并将中共国列为造成多个行业产能过剩的“世界头号罪犯”。美国贸易代表办公室表示，其关于这一问题的年度报告显示出“重大障碍，这些障碍构成了重大的政策挑战，对美国未来的增长机会和全球经济的公平性产生影响。”](https://www.reuters.com/article/us-usa-trade/ustr-vows-to-keep-battling-significant-foreign-trade-barriers-idUSKBN2BN39J)
 
-**该法案将有效地将他的工资削减到0美元，而他的继任者将由参议院确定并确认。该法案还将促使美国政府问责局(Government Accountability Office)对福奇在2019年10月1日至2021年12月31日期间的数字通信和金融交易进行审计。**
+[它表示将与外国政府就威胁美国出口商的各种问题进行接触，包括数字政策，农业贸易壁垒和技术壁垒。它还誓言要解决中共国的补贴问题，这些补贴已经导致钢铁，铝和太阳能行业产能过剩，并可能很快影响其他行业。](https://www.reuters.com/article/us-usa-trade/ustr-vows-to-keep-battling-significant-foreign-trade-barriers-idUSKBN2BN39J)
 
-除了福奇拙劣的应对CCP病毒措施外，美国国家传染病研究所主任还长期倡导并资助了功能增强研究，这是一种提高CCP病毒等疾病毒性和传播能力的科学实践。此外，福奇还向达扎克生态健康联盟集团提供了数百万美元的美国纳税人资金。达扎克生态健康联盟与武汉病毒学研究所就这种研究形式进行了合作。
+**5****.英国告诉G7盟国，是时候在全球贸易上对中****共****采取强硬立场**
 
-**皮特·纳瓦罗在3月30日的《班农作战室》节目中表示**：”福奇博士说谎是为了吸引更多粉丝。他假装自己是疫苗之父，并在2020年1月10日宣称自己是疫苗之父。第45届美国川普政府，HHS(美国卫生与公众服务部）, BARDA（生物医学高级研究与开发管理局）, FEMA（联邦紧急事务管理局)的每个人都与此有关。”
+[英国周三将敦促七国集团(G7)盟友就破坏国际贸易体系的“有害做法”对中共采取强硬态度，要求彻底修改过时且无效的世界贸易组织(WTO)规则。贸易部长伊丽莎白·特拉斯(Liz Truss)将主持G7领导人和WTO新任总干事的会议，利用英国担任富裕国家集团现任主席的平台，推动退欧后的英国成为主要的自由贸易倡导者。“现在是对中共及其在全球贸易体系中的行为采取强硬态度的时候了，同时也要让WTO现代化。在许多方面，它仍停留在上世纪90年代，”她在接受英国《金融时报》采访时表示。](https://www.reuters.com/article/us-britain-trade/time-to-get-tough-with-china-on-global-trade-uk-tells-g7-allies-idUSKBN2BN1EN)
 
+**6.央行出新规****，存款自由”的时代或要变了**
 
+[最近很多人去银行购买存款产品的时候，银行的工作人员都会问其是否在本地居住和工作，如果不是则不能购买该产品。去年央行修订的《商业银行法》规定，未经授权，地区性商业银行不得在其住所以外的地区开展业务。此外，今年央行关于互联网存款重组的文件再次强调，银行存款业务应以服务于机构所在地区的客户为基础。正是由于央行的这一规定，一些当地银行在存款前必须询问客户的工作和生活地点。如果不在当地工作和生活，按照银行的规定是不接受存款的。](https://ishare.ifeng.com/c/s/v006Kq5--eUqqORIS-_DdoNlSIcXZceXTaX3YqRB9ki7BV8POiaIkoEt-_R58xfdDi8uaQPuZjYgveismBvZ8DJJxEcDw____?spss=np&amp;aman=1cl40fDc67Xef8749bn4b6hd74Zc6fD418Ze016305)
 
-> Dr. Fauci lies to improve his own fan club. He pretends he is the Father of the Vaccine claiming credit for it on January 10th, 2020. Offensive to [@POTUS45](https://twitter.com/POTUS45?ref_src=twsrc%5Etfw) & everyone in HHS, BARDA, FEMA that ACTUALLY had something to do with it.[https://t.co/OdEkiS84um](https://t.co/OdEkiS84um)
-> — Peter Navarro (@RealPNavarro) [March 30, 2021](https://twitter.com/RealPNavarro/status/1377032956766781447?ref_src=twsrc%5Etfw)
+By 【金融组– Tracy】
+素材搜集: 文罡, Lingken
 
-
-
-**3月22日川普总统在福克斯新闻上表示**，他在任职期间听取了福奇的意见，但是没有按照他说的行事，因为他是一个大错特错的推动者。当被问及是否候汇提拔了福奇，川普总统的回答说：“我没有真正提升他，他在那里工作了40多年，他一直在那里。”
-
-**3月29日，川普总统称黛博拉·伯克斯(Deborah Birx)是“一个被证实的骗子”，并在接受CNN采访后说福奇是两面派**。黛博拉·伯克斯是一名美国医生和外交官，曾在2020年至2021年期间担任川普总统的白宫CCP病毒应对协调员。
-
-根据世界实时统计数据，截至今天美国已经超过3100万人数感染，56万人死亡，室迄今为止世界报告上死亡人数最多的国家。全球共有1亿2900多万例CCP病毒感染确诊病例。
-
-**【译者评论】**
-
-福奇做为美国最高等级的公共卫生方面的专家，是国家政策和全民安全具有非常重要影响的人物。在川普总统任职期间，特别是CCP病毒爆发后的关键时段，福奇的表现让众多美国人感到困惑甚至是愤怒。
-
-而川普总统甚至没有能力把他从那个重要位置上移除，这对于美国确实是一场灾难。从这点上也可以看出，CCP的邪恶已经对美国政坛的影响非常的巨大，这符合了CCP的险恶真实面目，对美国和世界发动生物武器袭击时，最先需要收买和控制美国各界，世卫组织和各个国家最有影响力的人物。
-
-**CCP对世界发动的超限生物武器攻击，是酝酿已久的一场世纪大阴谋。**
-
-要想真正揭示阴谋的本质，除了要把真相揭露出来以外，还要把一些与CCP沆瀣一气或者由一定勾连的沼泽地的重要人彻底曝光。
-
-**【参考来源】**
-
-[EXC: ‘Fire Fauci’ Bill Introduced to Congress Today. – The National Pulse](https://thenationalpulse.com/breaking/mtg-bill-would-fire-fauci/)
-
-[https://ca.news.yahoo.com/trump-fauci-i-listened-to-him-but-i-didnt-do-what-he-said-161745694.html](https://ca.news.yahoo.com/trump-fauci-i-listened-to-him-but-i-didnt-do-what-he-said-161745694.html)
-
-[Trump calls Birx “a proven liar” and says Fauci “flip-flops” after CNN interview (yahoo.com)](https://news.yahoo.com/trump-calls-birx-proven-liar-000849007.html)
-
-[https://rumble.com/vf6yah-navarro-fauci-is-a-sociopath.html](https://rumble.com/vf6yah-navarro-fauci-is-a-sociopath.html)
-
-**【免责声明】 ** 尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-**欢迎战友加入旧金山金喜准农场**
-
-**旧金山金喜准农场** GTV [https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
-
-**旧金山金喜准农场** Discord [https://discord.gg/QQzQ79grEA](https://t.co/hPEjhr0AZA?amp=1)
-
-**旧金山金喜准农场** Twitter [https://twitter.com/sf\_himalaya](https://twitter.com/sf_himalaya)
-
-[** 旧金山金喜农场** – YouTube](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
-
-0
++1
