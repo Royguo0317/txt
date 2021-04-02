@@ -1,53 +1,148 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国的底气来自哪里[一]割断绞索的匕首从苏伊士运河想到北极航线
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1043416/)
+## 美国政要等每日重要信息0401.2021（下）持续更新中
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1043370/)
 
-- 作者：gokuabuela
-- 封面：小鲨鱼
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/03/white-hosue-and-us-flag.jpg)图片来源：康州盘古农场 霹雳年
+## 病毒来源二审！
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+2021年愚人节全世界仍然在中共病毒超限生物战的枪林弹雨之下，美国国务院转推了30日发布的美国为首14国《关于世卫组织召集的COVID-19起源研究的联合声明》，再次重申结束从此被中共及其党羽世卫组织等愚弄的命运。
 
-**西班牙2021年4月1日电/西喜社——**
-
-全球灭共的形势慢慢开始明朗，但我们还是要问一个问题：如果当时是川普当选了，中共就准备跪了吗？ 中共经过多年准备，一定也拥有很多预案和招数，准备殊死反击。在认清全球联合灭共大势已成的趋势后，中共一定会做出战略反击。我们来探讨一下，中共可能的战略思路。
-
-先看看最近的苏伊士运河搁浅事件，我们早在3月25日就撰文指出这就是中共一次“完美犯罪式”的阴谋，它更像一次演习，一次测试，测试咽喉水道的事故可以对世界经济造成多大的损失？同时对世界，主要是欧洲发出两个信号：
-
-1. 欧洲的原油、产品的供应链主要来自亚洲，任何欧洲与亚洲之间的通道都是非常脆弱的。
-2. 我中共国，可是有能力让你的市场轻易崩溃的，怎么样，来和我们搞好关系吧？
+美国国务院发言人今日推文：“本周，美国与许多盟友和合作伙伴一起，对最近世界卫生组织关于COVID起源的研究表示关切。我们今后需要一个更好的调查程序，并支持这项研究的第二阶段由专家推动，及时和透明。”
 
 
-在抛出大棒的同时，中共也为欧洲准备了一个胡萝卜，那就是北极航线。北极航线最早是由普京总统于2011年提出的，即从亚洲北部的港口出发，经北冰洋抵达欧洲的港口。因为地球的曲率和高纬度，北极航线比传统的经马六甲海峡、印度洋、苏伊士运河航线缩短了近5000公里，可节省至少30%的航行时间，降低25%-33%的运输成本。
 
-2014年，日本三井和中国的中远宣布为亚马尔液化天然气项目建造三艘破冰，LNG（液化天然气） 运输船，双方各出资 50%，委托韩国大宇建造。
-
-2017 年年底第一艘船交付。几乎在相同时刻，亚马尔天然气项目启用。该项目由俄罗斯 Novatek、法国道达尔、中石油以及一带一路基金联合拥有。
-
-从图中可以看出，北极航线对中共国的北方城市来说，能大大降低航程。而普京总统曾宣称到2024年，航运量将达到8000万吨。
-
-因为气候变暖，北冰洋的冰层融解了超过30%，使通航面积大大增加。2017年中共国永盛轮（5万吨）测试了北极航线中，从大连港到德国汉堡港的往返航程，获得了成功。技术的进步，也基本保证北极航线可以全年通航。
-
-北极航线不同于传统的南部航线至于美军和盟军的绝对控制下，它主要位于俄罗斯境内，而普京早就宣称“北极航线处于俄罗斯的军事保护下，绝对没有海盗的袭扰，是世界最安全的航线”。也就是说，北极航线是中、俄的绝对势力范围。
-
-北极原本就是俄罗斯的传统后院，北极的冰盖是俄罗斯战略导弹潜艇的最好掩盖物，在此地区，俄罗斯的军事力量暂时大于美国及其盟友。
-
-那么，和平时期，中共国的产品，俄罗斯的天然气、原材料都可以通过北极航线抵达欧洲，降低物流成本，吸引欧洲客户。特别是对中共国的北方港口城市的发展大有好处，比如天津港，大连港等。同时，对日、韩而言，因地处北方，来往欧洲的物流成本会大大降低。
-
-中、日、韩、俄与欧洲的物流占据了欧洲物流业的半壁江山，绝对可以撼动欧洲的市场。表面来看，获益最大的国家应该是俄罗斯，其实不然，因为俄罗斯没有东西可以运，就像一根水管，而水管里真正流动的液体，就是中共国的商品，我们称之为“欧洲的供应链”。
-
-苏伊士运河的断航宣告了供应链的重要性，而北极航线的开通告诉了欧洲另一条“安全、可靠” 的通道。对欧洲而言，这既是威胁，也是利诱。如果欧洲选择了眼前的利益，那就是用“安全、快捷、经济”的方式来维持和中共的产业链，我们可以设想有一天，中共可以宣称对欧洲实施经济制裁！
-
-而战时，这是一条可以避开美军的战略通道。冷战以来，对苏联的亚洲地区，对中共的封堵，都是以日本、台湾、马六甲海峡的第一岛链为前哨，印度洋、苏伊士运河为辅助。而北极航线的开通，像一把匕首，隔断了这根绞索。
-
-果然，面对苏伊士运河的封锁，3月29日，俄罗斯向世界提出了 “[北极航线](https://www.noticiasdegipuzkoa.eus/actualidad/mundo/2021/03/29/ruta-artica-alternativa-futuro-canal/1100157.html) “的建议。仅仅一条航线并不可怕，可怕的是这只是一个引子，它牵出了中共的北方战略思路。
-
-**请看下篇：一个摇摆的俄罗斯和一个分裂的欧洲。**
-
-编辑：蚂蚁兄弟；校对：weiwei；发稿：神奇四侠
+> This week, the U.S. together with many allies and partners, shared concerns over the recent [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) study on COVID origins: We need a better investigative process in the future and support an expert-driven, timely, and transparent phase 2 of this study. [https://t.co/u2cvIy7ZA2](https://t.co/u2cvIy7ZA2)
+> — Ned Price (@StateDeptSpox) [April 1, 2021](https://twitter.com/StateDeptSpox/status/1377671199573086209?ref_src=twsrc%5Etfw)
 
 
+
+
+
+## 对中共病毒的怒火烧到了蝠奇
+
+愚人节的消息多，可不都是为娱乐而来。
+
+今日共和党众议员格林（Taylor Greene）提出法案，将蝠奇(Anthony Fauci)的40万美元工资降为零，直到他被取代为止。根据《福布斯》蝠奇是包括总统在内的所有400万联邦雇员中工资最高的（434,312美元）。《福布斯》还报道称，从2010年到2019年，蝠奇赚了360万美元。自2014年以来，他的工资从33.5万美元增加到目前的417608美元。
+
+小议，川普总统在任四年分毫未收，却无功而返。蝠奇却配合中共病毒的真相把口罩说、疫苗论乃至抢功川普总统玩得风生水起。然而美国民众在文贵先生引领的爆料革命和众多美国正义联盟者如班农先生、蓬佩奥国务卿、纳瓦罗博士等等传递真相的不懈努力下，早已开始苏醒。近日媒体撕裂了过去对中共病毒来源真相三缄其口的窗纸、议员对中共种族屠杀进行声讨，就是美国所有台前、幕后决策力量和沼泽地的态度。对中共追责病毒来源的火势将熊熊燃起，先从中共的炮灰走狗开始，“痰得塞”都反水了，蝠奇还等什么？
+
+
+
+> 🚨NEW BILL ALERT!🚨
+> 
+> The "[#FireFauci](https://twitter.com/hashtag/FireFauci?src=hash&amp;ref_src=twsrc%5Etfw) Act" will slash the salary of Dr. Always Wrong to $0 and the "[#WeWillNotComply](https://twitter.com/hashtag/WeWillNotComply?src=hash&amp;ref_src=twsrc%5Etfw) Act" will ban vaccine "passports," prevent discrimination against the unvaccinated, and much more to protect the freedom of the American People. [pic.twitter.com/JVR01lBID5](https://t.co/JVR01lBID5)
+> — Rep. Marjorie Taylor Greene (@RepMTG) [April 1, 2021](https://twitter.com/RepMTG/status/1377647623339905035?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 美国总统的艾滋病救济紧急计划
+
+国务院发言人今日转发国务卿布林肯推文时称：“自2003年以来，”总统艾滋病紧急救援计划 “总投资超过850亿美元，帮助拯救了2 000万人的生命，预防了数百万人感染艾滋病毒，并大大加强了54个国家的地方卫生系统。这是美国人可以引以为豪的拯救生命的领导力。”
+
+布林肯推文：“很荣幸能与来自世界各地的美国总统的艾滋病救济紧急计划（PEPFAR）团队成员虚拟聚会，帮助启动PEPFAR 2021规划会议。我为他们的成就深感自豪，并感谢他们对这一拯救生命事业的承诺。”
+
+
+
+> With more than $85 billion in total investments since 2003, [@PEPFAR](https://twitter.com/PEPFAR?ref_src=twsrc%5Etfw) has helped save 20 million lives, prevent millions of HIV infections, and significantly strengthen local health systems across 54 countries. This is life​-saving leadership Americans can be proud of. [https://t.co/edEbIbwqNF](https://t.co/edEbIbwqNF)
+> — Ned Price (@StateDeptSpox) [April 1, 2021](https://twitter.com/StateDeptSpox/status/1377698768183787526?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 国际体系讲规则
+
+美国国务院今日发推国务卿布林肯讲话内容：“这是关于维护过去75年里我们所有人为之奋斗的基于规则的国际体系，它很好地服务于我们的利益和我们的价值观。”
+
+
+
+> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): It’s about holding up the international rules-based system that all of us have invested so much into over the last 75 years. And it has served our interests and our values very well. [pic.twitter.com/9clvP1vRK1](https://t.co/9clvP1vRK1)
+> — Department of State (@StateDept) [April 1, 2021](https://twitter.com/StateDept/status/1377609343793836039?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 重申美国价值观
+
+今日蓬佩奥国务卿接受人权活动家、自媒体主播阿亚安（Ayaan Hirsi Ali）采访，谈论了美国的价值观。他们讨论了极端主义意识形态、世界大国的竞争、伊朗核协议的未来以及美国与中共国的关系。他们还讨论了不可剥夺权利委员会的报告。[点击收听访谈。](https://podcasts.apple.com/us/podcast/secretary-mike-pompeo-on-american-values/id1552059697?i=1000515379496)
+
+
+
+> What an honor to have [@mikepompeo](https://twitter.com/mikepompeo?ref_src=twsrc%5Etfw) join me to discuss China, Iran, and the future of American foreign policy. [https://t.co/z4nbiY8HD8](https://t.co/z4nbiY8HD8)[https://t.co/xcP7SCSaxR](https://t.co/xcP7SCSaxR)[https://t.co/hJW3yqGDNz](https://t.co/hJW3yqGDNz)
+> — Ayaan Hirsi Ali (@Ayaan) [April 1, 2021](https://twitter.com/Ayaan/status/1377638798146813954?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 会见台湾代表
+
+彭配奥先生今日推文：“昨天很高兴看到台湾驻美国代表萧美琴。作为国务卿，我在面对无情的压力时，努力支持台湾–一个民主的同胞。美国与台湾共享自由、民主和自由市场经济的核心价值。”
+
+
+
+> Great to see Taiwan Rep. [@bikhim](https://twitter.com/bikhim?ref_src=twsrc%5Etfw) yesterday. As Secretary of State, I worked to support Taiwan — a fellow democracy — in the face of unrelenting pressure. The U.S. shares with Taiwan the core values of freedom, democracy, and a free market economy. [pic.twitter.com/KdNyG5thgB](https://t.co/KdNyG5thgB)
+> — Mike Pompeo (@mikepompeo) [April 1, 2021](https://twitter.com/mikepompeo/status/1377622099460767745?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 反对严格选举、支持中共种族屠杀者
+
+据Newsmax, 由于2020总统选举期间的选民欺诈行为，乔治亚州共和党立法者3月25日推动签署了该州新选举立法，对投票规则作出严格限制。达美航空首席执行官艾德-巴斯蒂安（Ed Bastian）在给员工的一份说明中表示，佐治亚州的新投票法 “不符合达美航空的价值观”。
+
+参议员卢比奥于周四发给达美航空的推特中说，“你们是 #中国共产党 的商业伙伴”，“我们什么时候可以期待你的信，说他们在 #新疆的持续种族屠杀 是不可接受的，不符合达美的价值观？”
+
+苹果公司首席执行官库克（Tim Cook）也反对该项立法，他说“苹果认为，部分得益于技术的力量，每个符合条件的公民行使投票权应该比以往任何时候都更容易”，他表示要为“未来比过去更有希望和包容性而做出的努力。”
+
+
+
+> Marco Rubio slams Delta over China after CEO weighs in on voter curbs [https://t.co/WIHQ5hwKA7](https://t.co/WIHQ5hwKA7)
+> — Newsmax (@newsmax) [April 1, 2021](https://twitter.com/newsmax/status/1377689761800982532?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 拜登家族
+
+3月31日据Justthenews, 两个有影响力的参议院委员会的顶级共和党人格拉斯利（参议院司法委员会的最高共和党人），和约翰逊（国会最有权力的调查机构之一、参议院常设调查小组委员会的首席委员），周三要求美国司法部和国家情报总监办公室交出他们所掌握的有关据说与总统拜登家族有联系的三名中国人物的任何情报和《外国情报监视法》（FISA）规定的证据，包括与叶剑明、董功文和何志平有关的 “所有FISA衍生信息”。
+
+他们在信中援引报道称，在2017年何某因 “国际贿赂和洗钱罪 “被捕后，他 “第一个电话据说是打给总统的弟弟詹姆斯-拜登”。信中说，
+
+总统的儿子亨特-拜登 “在一段时间内代表何某，并收到了至少100万美元的报酬”。
+
+根据在亨特-拜登笔记本电脑上发现的记录，“亨特-拜登很清楚何某与中共政府、特别是其情报部门的联系”。
+
+何是叶的生意伙伴，而叶据称也与拜登夫妇关系密切。叶本人 “据说与共产党政权的人民解放军有联系”。
+
+拜登总统2017年离开奥巴马政府后，和詹姆斯-拜登与叶的一名助手共享办公空间。“如果准确的话，与中国公民和与中共政权及其军方有联系的实体共享办公空间需要额外的解释”。
+
+信中要求 “最迟在2021年4月14日之前提供所有情报记录，包括但不限于与“叶、何和董”有关的所有FISA衍生信息”。
+
+小议，美国为首的世界正义联盟即将追责中共之前，与之过从甚密的拜登家族再次进入人们的视线，并正式由官方介入。其实人们从未忘记与中共勾结欺凌中国人的拜登家族，尤其是当中美双方的“沼泽地”都发力之时，而这一切皆源于爆料革命的推动。中共赤魔灭亡之前一定带走大妖小怪无数，所以早日认清形势、投诚反水，加入爆料革命才是明智的出路。
+
+（此项新闻来源 [https://justthenews.com/government/congress/johnson-grassley-ask-doj-oni-info-chinese-communist-linked-officials-ties](https://justthenews.com/government/congress/johnson-grassley-ask-doj-oni-info-chinese-communist-linked-officials-ties)）
+
+
+
+
+
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
 +3
