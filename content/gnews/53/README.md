@@ -1,33 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 台湾增购美“爱国者”地对空导弹升级版
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1042693/)
+## 【香草诗词汇】清明恨
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1042781/)
 
-俄罗斯莫斯科喀秋莎农场  Helen2448
+作者：纽约香草山健身部  回响
 
-编辑上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/04/КАТЮША.png)gnews
-3月31日星期三，台军方证实说，台湾已决定购买洛克希德·马丁公司的“爱国者”地对空导弹的升级版。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-82.jpg)
 
-最近几个月中共空军屡次入侵该岛的防空识别区。北京方面一直在向台湾施加压力，要求其接受其主权。
 
-台湾空军告诉路透社，台军与美方已经完成增购计划方案，确定会增购一批“爱国者3”MSE导弹，计划在2025年、2026年分批交付及部署。台空军没有透露计划购买多少枚导弹，理由是此事很敏感。
 
-空军发言人告诉路透社：“这些采购计划是根据敌人的威胁制定的。”他补充说，台湾将继续“提高防御能力”。
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/10/29134705/Picture2-37.png)
 
-台湾国防部表示，购买新爱国者的决定是在上届美国总统唐纳德·川普执政期间台湾与美国举行的2019年会议期间做出的。自从一月份上任以来，美国总统拜登政府没有宣布任何对台武器出售，尽管它对这个民主统治的岛屿作出“坚如磐石”的承诺。
+这些年
+看尽
+邪恶的邪，
+看不尽
+正义的正，
+30年这天这个城市烛光从不灭
+直到这个城市不许再亮起烛光
 
-美国对台湾的武器销售又一次激怒了中共，中共方面要求美方停止售台武器及美台间的任何军事联系。
+来来 回回……
 
-去年7月，中共决定对洛克希德·马丁公司实施制裁措施，理由是该公司将为台湾运营的现有爱国者导弹投入6.2亿美元的升级计划。中共目前已经宣布对美国公司的台湾军售处以类似制裁，尽管目前尚不清楚它们采取了什么形式的制裁。
+忍看多少香港烈士血迹未干？！
+如今又多少鲜血流淌在家园——
+红染缅甸 勇士重现
+青春就此成永恒
+亲人永隔阴阳间
 
-与大多数国家一样，美国与台湾没有正式的外交关系，但华盛顿受法律约束，必须为台湾提供自卫的手段。华盛顿一直在推动台湾军事现代化进程，加强台湾的防御能力，使其强大如“刺猬”般难以接近，增加中共军事犯台的难度，以此来防范中共日益增长的威胁。
+还要多少少年永不能成年
+还要多少青年最后都难合眼
 
-目前的敏感时期，美台关系的持续互动，惠台法案能否积极执行？台海局势将会如何变化？这都将是各界关注焦点。
+还要多少来回？！
+还要多少年？
+还要多少天？
 
-参考链接：
+校对/发稿：飞虹
 
-[https://www.reuters.com/article/us-taiwan-defence/taiwan-to-buy-new-us-air-defence-missiles-to-guard-against-china-idUSKBN2BN1AA](https://www.reuters.com/article/us-taiwan-defence/taiwan-to-buy-new-us-air-defence-missiles-to-guard-against-china-idUSKBN2BN1AA)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

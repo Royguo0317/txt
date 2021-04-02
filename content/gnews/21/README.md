@@ -1,69 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】改革开放：一场彻头彻尾的骗局（二）——管控的延续
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1043462/)
+## 闫博士的报告受到世界专家的高度重视和认可
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1043421/)
 
-作者：纽约香草山农场 理想喜国
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+简述：在2021年4月1日的盖特视频中，郭先生说闫博士的报告迎头痛击了世卫组织的病毒报告，世卫组织应该叫 “武汉组织”（注：武汉组织的英文为 WuHan Organization，其简写与世卫组织的WHO相同）才更合适。他并痛斥了整个世界的败坏，没有一个人或国家有道德、能力、良知和专业精神，足以来评价闫博士、爆料革命和新中国联邦的贡献。他说“因为这个世界实在是太黑暗了，被共产党这个流氓组织完全是以假、以骗、以黑、以蓝金黄将各国首长都拿下，连美国这样的国家都不能逃过他这种下三滥的手段。”
 
 
 
-经过三十年的动荡，中共终于打算给饱经风霜的中华大地盖上一层虚假的发展外衣。此时的中共**管天管地管空气——一切改革都从违法开始**。
+**闫博士的报告受到世界专家的高度重视和认可**
 
-邓小平被称为“中国改革开放的总设计师”，这个称谓让所有国人都以为，发生于1978年之后的改革开放是一场经过精心设计、有长远规划的试验。然而，事实果真如此吗？
+**Dr. Yan’s Work Is Highly Recognized by Experts Around the World**
 
-1976年10月，文革结束，中（共）国延续了此前的严管模式：严禁民营产业，严禁国民拥有私人财富，对外国资本家充满敌视。当时，民众开办企业，从事生产经营活动，都是是一种刑事犯罪行为。
+昨天科学家推出的以毒灭共的第三个报告以后，全世界可以说跟 WHO 的所谓的武汉Organization（武汉组织，WHO）所说的所有报告，正好是针尖对麦芒。在这个时候在世界上引起了巨大的反响。
 
-1978年11月，安徽凤阳几个饥饿的农民为了生存，决定秘密分地单干，以激励生产积极性，不再受公社约束。这一举动事实上意味着农民私分集体财产，自己拥有了土地这种生产资料。根据当时的刑法，这就是犯罪（若放在文革时期，这个村的农民基本上都是被批斗到死的命）。
+Yesterday, after our scientist [Dr. Li-Meng Yan] pushed out her third report, [1] aiming for taking down the CCP with the truth about the virus, it has gone head-to-head with the report released by the so-called W.H.O., which should really be called the “WuHan Organization”. So far, Yan’s report has caused a huge response in the world.
 
-1978年12月，“十一届三中全会”召开，在党和政府控制和管理所有社会资源的计划经济模式走投无路的情况下，终于在政治上决定开始尝试“对外开放”，吸引外国资本家来中（共）国开厂；对内决定尝试赋予人民更多的权利，让人民拥有更多的财富。于是，安徽这几个农民幸运的活了下来。中（共）国农民基本的求生本能催生了家庭联产承包责任制，最终成为“改革开放”启动的样本。然而，1980年代的改革，就到这里为止了。允许农民尝试搞承包责任制，但是严禁转包，禁止承包经营权流转，甚至连继承都予以禁止，这事实上相当于否认了农民对土地的财产权。
+闫博士累得两天没怎么睡觉，昨天发信息说头都疼，觉都没睡。真的是她干得太棒了，受到了世界上科学家、传染病学，还有世界上军事的情报机构，以及生化武器研究专家们，高度的重视和高度的认可。将以毒灭共推向了另外一个层次。
 
-这期间，中共尝试吸引外资，但由于制度层面的严重缺失，外资普遍缺乏安全感，整个1980年代进来的外资屈指可数，年投资规模只有几十亿美元。所谓1980年代的改革开放，也就是引入了少量外国的进口优质产品，来与国内傻大黑粗的国企产品相竞争。外国的好东西当然人人都想买，外汇又不够，无法实现每个人都拥有。在这种背景下，特供制度和价格双轨制公然登场——所有的好东西，优先保证各种权贵家庭先行享有。权贵家庭享受之余，手里还有多余的商品指标就拿去倒卖盈利，这就是著名的“官倒”现象。老百姓开个小摊炒瓜子都算刑事犯罪，但是官员空手套白狼，倒卖各种紧缺商品，竟然可以堂而皇之无人追责，简直是滑天下之大稽。官倒、权钱交易、腐败、特权、贫富分化扩大等种种问题愈演愈烈，于是到了1989年，就掀起了一场反官倒、追求民主自由、要求政治改革的全国性政治运动，也就是“89·64”民主运动。
+Dr. Yan was so tired because she didn’t sleep much for the last two days. She sent a message saying that she had a headache because of the lack of sleep. She really did a fantastic job. She has been highly valued and highly recognized by scientists in infectious diseases, military intelligence agencies, and biochemical weapon experts around the world. This has pushed the movement of taking down the CCP with the truth about the virus to another level.
 
-“89·64”最终以中共屠杀学生血腥镇压收场，于是，国内意识形态再次收紧。尽管邓小平在1992年重新推动经济的市场化运动，但是，自由化可能造成的对共产党统治地位的威胁为当局所最高警惕。尤其是1990年苏联的解体以及东欧各社会主义国家的“集体变色”，更是让中共感到了空前的执政危机。正是在这样的背景下，“弱中央、强地方”、“弱政府、强民间”的模式遭到质疑——经济集权主义成为必然性的选择。
+这背后也有我们博士各个军团，和路德访谈广泛传播。我们爆料革命各农场、G-News、GTV的直播，所有战友们的呼应，都是分不开的。没有这些谁知道？谁知道你？你家里做的饭多香，那别人从来不知道的，因为没人给你宣传，是吧？关键是爆料革命新中国联邦的平台，没有这个平台，闫博士、博士军团也都没有任何意义可以说。
 
-邓南巡之后，老百姓终于拥有了一点“人权”：逐渐被允许拥有私人财产，被允许开办私人企业，投机倒把之类的犯罪逐渐被取消，价格双轨制消失了，官倒被严惩，权贵们的政治地位被拉低。难道是中共从良了？当然不是。他们获得的远比失去的多——各种向民众开放的产业经济领域，权贵们都可以让白手套参与。由于他们更灵通的消息来源、更广泛的人脉和更强大的融资能力，他们的企业很快就在大量的产业领域拥有了近乎压倒性的优势地位，并延续至今，形成了中（共）国特色的权贵资本主义体制。
+Behind this [report], there is our Ph.D. Team and the LuDe Media’s effort in breaking the news broadly, also including the effort of all the farms of our Whistleblower Movement, G-News, GTV’s broadcasting, and all our fellow fighters’ cooperation. Without these efforts, who would know this [report]? Who would know you? No one would know how delicious the food you cook in your home if no one spreads the word for you, right? The key is that we have the platform of the Whistleblower Movement and the New Federal State of China (NFSC). Without this platform, neither Dr. Yan nor the Ph.D. Team’s work would be meaningful.
 
-1990年代之后，中（共）国民营经济终于松了脚镣，能开些小企业炒瓜子卖了。但是手铐还在：正常的低买高卖行为，依然被视为投机倒把——这事实上依然堵死了民间贸易的渠道。吸引外资方面，依然是进展很慢。每年的实际利用外资总规模长期维持在500亿美元左右，对中（共）国嗷嗷待哺的经济来说，实在是杯水车薪。因此，中共的对外贸易也很难开展。1980年代的十年里，对外贸易基本处于净逆差状态，每年的逆差规模都有几十亿美元——自己的生产能力没发展起来，净进口外国的好东西了。到了1990年代，总算只有一年逆差，其它都是顺差，但顺差规模也不大，每年只有几十亿到百把多亿美元。
+这时候就看到了我们打的是群体之仗，引起了世界上媒体、武器研究专家、世界军事和情报专家，这种有核裂变的效应。只有事实才能告诉大家答案。我们也不在乎谁怎么评价我们，更不在乎谁怎么来看我们。到目前我们还没有看到一个活着的，配得上从道德上、从境界上、从能力上、专业上，还配得上来评价我们的以毒灭共和爆料革命的，还没有，还没有， 希望越多越好，一个都没有。如果任何有良知的人，都应该有这个基本的判断。我们战友们当然要有这个自信了。你见过一个道德、能力、良知、专业，能配得上评价我们的吗？没有。
 
-这么发展到1990年代后期的时候，中（共）国经济已经发展到了瓶颈阶段，眼看着就要崩塌了——庞大臃肿、毫无效率的国有企业被外资企业和进口商品打得溃不成军，长年累月的亏损。那时，市面上每个人都在找进口商品的渠道，都在黑市兑换美元。
+Now you can see that the war that we are engaging in is a group fight, and we have caused this kind of nuclear fission effect in the media, bioweapon experts, world military and intelligence experts in the world. Only facts can give everyone the answer. We don’t care how other people comment on us, let alone how others see us. So far we have not seen a living person who has the morality, capacity, and professional ability at a level high enough to evaluate our movement of taking down the CCP with the truth about the virus or our Whistleblower Movement. There has been no one yet, not yet. I hope there are as many such people as possible, but no one at all. If anyone has a conscience, he should have this basic judgment. Of course, our fellow fighters should feel confident. Have you ever seen a person at such a level in morality, ability, conscience, and professionalism that can evaluate us? No.
 
-时间来到朱镕基当政时期，中共还是继续“改革”：实施分税制，把税收统统收归中央，让中央集中财力办大事；把住宅商品化，想尽办法掏老百姓手里的银子；为减轻财政压力，将国企抓大放小，国有企业经营者与地方政府、银行上下其手，据国有资产为己有，同时也让千万国企工人下岗。但是这些效果都不大，只能算是苟延残喘，拖住了一口气。
+这就是战友的正确的判断。你有什么资格骂我们，评价我们？没有。包括各国政府，我没有一个叫我感到尊重在这事上评价我们的。所以说俺骄傲，俺相当的骄傲。咱不骄傲不行啊，因为这个世界实在是太黑暗了，被共产党这个流氓组织完全是以假、以骗、以黑、以蓝金黄将各国首长都拿下，连美国这样的国家都不能逃过他这种下三滥的手段。这个世界上我们放眼看去，我们只能俯视这个世界，真的不会仰脸看任何东西，因为太黑暗了。在全世界到处杀人的共产党病毒，种族大屠杀、反人类罪的共产党，还竟然有人与他为伍，情何以堪？何来法？何来能力？何来尊重？何来所谓的信仰？
 
-就这样拖到了2000年，中共才在法律领域彻底废止了投机倒把罪。也就是说到了21世纪，广东的商人从新疆低价进一批棉花，然后高价卖给英国商人，才算是正当合法的行为，不用再被抓去坐牢或者被高额处罚。改革开放了20几年，中国人第一次合法地拥有基本的做生意的权利。试问，是谁阻碍了中国经济的发展？谁是中国经济止步不前的罪魁祸首？
+This is the correct judgment that our fellow fighters should have. What qualifications do they have to scold us or evaluate us? None. Including the governments of various countries, there is no one worth our respect and can judge us on this matter. With that being said, I am proud, very proud. It’s not possible for us not to feel proud because the world is too dark. The rogue organization of the CCP has brought the leaders of all countries to their kneels with falsehood, deception, gangsters’ ways, and the BGY plot. Even countries like the United States cannot escape being corrupted by these dirty means. When we look at this world, we can only look down on people in this world, and really don’t need look up to anybody, because the world is too dark. The CCP is using the CCP virus to kill people all over the world and committing genocide and crimes against humanity, yet there are still people standing with it. How can this be? Where is the justice? Where is the respect? Where is the belief?
 
-回顾历史，我们一再看到这样的景象：中国因拥有最广袤的内需市场和喜乐世俗消费的民众，经济的复苏从来不是一件特别困难的事情。早在20世纪30年代，历史学家傅斯年就给出过一个经济兴衰周期说：根据他的观察，中国只要有70年稳定期，必定重获大繁荣，从秦末大乱到“文景之治”，从隋文帝统一到唐太宗的“贞观之治”，从宋太祖结束五代十国到范仲淹一代的中兴，以及清代的“康乾盛世”，期间均不过两三代人。在他看来，中国若无战乱，十年可恢复，三十年可振兴，五十年到七十年必成盛世。
+**参考链接：**
 
-然而，在中共手里，从1949年建国到文革结束，把中国的经济、文化、人性都砸烂，害死无数人，折磨了整个国家近30年，成功让中国一穷二白。从1978年起又开始做了各种尝试，折腾了二十年，也未见起色。前后50年，中国失去了整整半个世纪。换一头猪来管理中国经济，都比共产党要好。古代的帝王尚且懂得休养生息、无为而治；现代西方文明也推崇小政府大市场。共产党不仅抛弃老祖宗的经验，也把西方现代文明抛诸脑后——管天管地管空气，阉割人的思想，禁锢人的自由，约束人的精神，压制人的天性，是社会主义公有制经济的最大特色。
+[1] [The Wuhan Laboratory Origin of SARS-CoV-2 and the Validity of the Yan Reports Are Further Proved by the Failure of Two Uninvited “Peer Reviews”](https://zenodo.org/record/4650821#.YGYgvi2caQL)
 
-（待续）
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+**视频来源：**[https://gtv.org/getter/6065cd0d49339063d061d99d](https://gtv.org/getter/6065cd0d49339063d061d99d) (2:28-4:47, 5:33-6:35)
+**鸣谢：**感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1043162/](https://gnews.org/zh-hans/1043162/)
 
-相关阅读：
+* * *
 
-[【世事解评】改革开放：一场彻头彻尾的骗局（一）——破烂的开始](https://gnews.org/zh-hans/1043363/)
+字幕：【Rock小哥】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-+3
++4
