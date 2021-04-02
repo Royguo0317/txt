@@ -1,54 +1,40 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彼得·达萨克接受CGTN采访时承认与中共长期联系
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1044353/)
+## 【热播快译】数据库揭示了中共向发展中国家贷款的秘密
+` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1043703/)
 
-新闻来源：《国家脉动（The NationalPulse）》| 作者：NatalieWinters | 发布时间：2021年3月31日
+翻译：烽火
 
-翻译/简评：村民彼得潘 | 校对：感恩 | 审核：万人往 | Page：Daoiii
-
-[!\[\]()!\[\](https://spark.adobe.com/page/OtAflXoL8dcIk/images/b196ba9c-af3b-400d-a1cf-dc5a303780a4.png?asset_id=554a8163-fe91-4dc7-93c4-4f4128eb8b40&amp;img_etag=%22b681f928ad0e4b16629c5b1ccc85a381%22&amp;size=1024)](https://spark.adobe.com/page/OtAflXoL8dcIk/images/b196ba9c-af3b-400d-a1cf-dc5a303780a4.png?asset_id=554a8163-fe91-4dc7-93c4-4f4128eb8b40&amp;img_etag=%22b681f928ad0e4b16629c5b1ccc85a381%22&amp;size=1024)
-
-***简评：***
-
-彼得·达萨克在世卫组织新冠病毒调查报告出来之后，马不停蹄地上中共的电视台为中共背书，诋毁病毒来自实验室的说法。看来这回在中共国停留的短暂时间里，达萨克被招待得不错。有趣的是，这样一位大咖，口口声声称自己多年与武毒所等中共研究机构合作，为什么做这样关键的表态时不选择一家世界影响力更大的媒体，而是选择了众所周知的中共官媒呢？
-
-对比之下，世卫组织总干事谭德赛则嗅到了世界风向的转变，拒绝为自己指派的小组背书。而所谓调查报告，甩给国际社会强买强卖是一方面，同时上呈习总加速师博其欢心也是不容忽视的一层意义。反观达萨克此举，似乎也有表面逢迎中共，时刻准备倒戈之嫌。值得注意的一处细节是，CGTN的采访中媒体方居然会主动提到《国家脉动》此前的报道，联想到《国家脉动》主编拉希姆·卡萨姆与班农先生乃至整个爆料革命的特殊关系，可见中共对于美国右派势力及爆料革命的时刻关注和忌惮从未停歇。
-
-***原文翻译：***
-
-## **彼得·达萨克于中共国官方媒体承认与中共长期的联系**
-
-[!\[\]()!\[\](https://spark.adobe.com/page/OtAflXoL8dcIk/images/433bb5cf-8784-42d1-ad8d-10191711a917.png?asset_id=659428b7-d4d4-414b-b6d1-681f12491586&amp;img_etag=%22f2b777cbef0d43da973e320f78fe1d44%22&amp;size=1024)](https://spark.adobe.com/page/OtAflXoL8dcIk/images/433bb5cf-8784-42d1-ad8d-10191711a917.png?asset_id=659428b7-d4d4-414b-b6d1-681f12491586&amp;img_etag=%22f2b777cbef0d43da973e320f78fe1d44%22&amp;size=1024)世界卫生组织新冠病毒调查员彼得•达萨克（Peter Daszak）在接受中国环球电视网采访时，承认了他与中国共产党众多实体机构的长期“合作”关系。
-
-在世界卫生组织（WHO）极具争议的新冠病毒调查报告发布当天，达萨克就出现在中国环球电视网（CGTN）上炒作调查结果。这是一家曾在线播出过强迫招供片段的官方媒体。
-
-曾反复赞扬中共国官方媒体的达萨克在采访中承认，曾与中共及其科学团队有过合作。
-
-**“大家都知道我与武汉病毒研究所有着多年的密切合作。”他在试图解释为什么实验室泄漏理论不可能后强调。**
-
-*“当谈及实验室泄漏的假说时，我们只是没有看到表明发生了这种情况的重要信息。我的意思是，作为一名科学家，你只能处理你眼前看到的证据，如果证据不存在，那么你只能给出“极不可能”这样的结论。”*
-
-“当然，我和很多很多中共国组织和机构都有合作，因为我们都在研究这些病毒，让我们不要忘记SARS，最初出现在广东的重要冠状病毒。这就是为什么我们在中共国与中国疾控中心、武汉病毒研究所以及很多很多其他组织合作开展工作的原因，因为我们想阻止这种情况的发生。”他再次补充道。
-
-CGTN的记者还向达萨克追问了世卫组织同行的研究人员与中共国的关系，并提到了《国家脉动》关于马里恩·库普曼斯（Marion Koopmans）的报道。
-
-“我知道一些西方媒体也谈论了您与武汉病毒研究所的关系，他们同时提到了马里恩·库普曼斯女士，她与中共国的研究所有着很好的合作关系。”
-
-记者最后总结说：“希望下次您访问武汉或访问中共国时，我也能来。”达萨克答道：“我很期待。”
-
-在这次采访之前，《国家脉动》进行了大量报道，以强调达萨克与中国共产党经济上的联系，其中包括其撰写由中共政权资助的研究报告，以及与中共国营实体一起主办会议等。
-
-**🔗[原文链接](https://thenationalpulse.com/breaking/daszak-admits-ccp-links-on-cgtn/)**
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524.jpg)
 
 
-编辑：【英国伦敦喜庄园编辑部】
+《路透社》周三报道，中共与发展中国家的贷款交易条款异常神秘，要求借款人优先于其他债权人偿还中共国有银行的贷款。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/OtAflXoL8dcIk/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/OtAflXoL8dcIk/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+据报道，美国威廉玛丽学院（College of William & Mary）下属的研究机构AidData花费了超过三年的时间，编列了一个中共政府对不发达国家贷款的资料库。该资料库包含100笔中共与24个中低收入国家签订的贷款合约，其中一些国家在中共病毒的影响下，债务负担不断加重。
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-04-01-213242.jpg)
+
+
+*图片来源：纽约时报中文网*
+
+CGD称，总部位于华盛顿的全球发展中心(CGD)、德国基尔（Kiel）研究所和彼得森国际经济研究所(Peterson Institute for International Economics)的研究人员将中共国的借贷合同与主要贷款人的贷款合同进行了比较，首次对中共对外贷款的法律条款进行了系统评估。他们在77页的报告中说，他们的分析发现了协议的几个不同寻常的特点，这些协议扩大了标准合同内容，以提高还款的机会。报道称，这些条款包括防止借款人透露贷款细则的保密条款、对中方贷款人比其他债权人有利的非正式抵押安排，以及将债务排除在集体重组之外的承诺–被作者称为 “无巴黎俱乐部 “条款。报告补充说，这些合同更利于中共取消贷款或加快还款。
+
+CGD高级研究员、该报告的共同作者斯科特-莫里斯说，这些调查结果让人对中共作为G20主要经济体集团之一的角色产生了疑问。该集团已经商定建立 “共同框架体系”，旨在通过允许贫困国家整顿债务负担来帮助它们应对中共病毒的财政压力。该框架要求对包括私人贷款人在内的所有债权人给予可比待遇，但他说，在审查的中共与各国所签的大多数合同中都禁止各国以平等条件并与其他债权人协调重组这些贷款。莫里斯说：”这是一个非常醒目的禁令，这似乎与中共国在G20峰会上做出的承诺背道而驰。”中共国外交部没有立即回复置评请求。
+
+研究人员审查的研究材料包括与喀麦隆签订的23份合同，与塞尔维亚和阿根廷签订的10份合同，以及与厄瓜多尔签订的8份合同。
+
+信息来源：
+
+[https://www.reuters.com/article/us-china-emerging-debt/database-reveals-secrets-of-chinas-loans-to-developing-nations-says-study-idUSKBN2BN0EY](https://www.reuters.com/article/us-china-emerging-debt/database-reveals-secrets-of-chinas-loans-to-developing-nations-says-study-idUSKBN2BN0EY)
+
+校对/发稿：Helen
+
+更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
+
+更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
+
 
 0
