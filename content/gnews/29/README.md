@@ -1,46 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热播快译】菲律宾战斗机在中共船只占领的礁石上空飞行，称“民兵船只”已在争议海域扩散
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1041439/)
+## 中共秘密搜集英国公民信息
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1043266/)
 
-翻译：燕南飞
+俄罗斯莫斯科喀秋莎农场   DongDong
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524.jpg)
-
-
-【[路透社](https://www.reuters.com/article/us-philippines-china-southchinasea/philippines-says-chinese-militia-swarm-has-spread-in-disputed-waters-idUSKBN2BN0ZS)】消息，菲律宾-马尼拉本周三表示，数百艘的中共国民兵船只已经扩散到南海更广阔的海域，菲律宾一再要求其撤回，并向中共国驻菲律宾大使提出正式外交抗议，但中共北京拒绝召回其所谓的“渔船”。
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-03-31-195702-2.jpg)
+编辑上传   水星
 
 
-*图片来源：Breitbar新闻网*
+![]()![](https://gnews.org/wp-content/uploads/2021/03/789.png)
+据英国《每日电讯报》（Daily Mail）报道，英国官员和游客到中共国公事和旅游时会被例行检查，他们在中共国的一举一动经常会被密切监视[1]。
 
-马尼拉称，在其200英里的圣灵礁（Whitsun Reef）专属经济区内，中共民兵船只是“蜂拥而至和威胁”。对此菲律宾南海特遣部队在一份声明中表示，“菲律宾和国际社会都不会接受中共国宣称的对几乎整个南中国海拥有所谓的‘无可争辩’的综合主权，敦促立即撤出这些船只。”，并援引了巡逻队收集的情报说，目前仍有44艘船只在圣灵礁（Whitsun Reef），另有约200艘船只已分布在南沙群岛的其他地区，包括中共国军事化的人工岛附近，那里还有中共海军的4艘船只。对此，菲律宾军方下令在岛礁附近加强“海上主权巡逻”。
+某网络安全咨询公司获得一泄露的数据库，其中包括商人、医生和教师在内的 100 多名英国公民的详细个人信息，涉及了他们的出生日期、护照号码以及他们的出入境地点。中共警方将这些英国公民列入了他们的“安全观察名单”。可中共国驻伦敦大使馆的发言人说，记录出生日期、护照号码和出入境地点是“国际惯例”。
 
-在马尼拉新闻网Breitbar也有报道，菲律宾国防部长德尔芬·洛伦扎纳（Delfin Lorenzana）证实，菲律宾空军专门在胡安·菲利普礁（Juan Felipe Reef）部署了“ AS211喷气式飞机”，以监视非法停泊在那里的220艘中共渔船船队。洛伦扎纳说：“我们不需要派海军巡逻队到那里”，“从空中观察更容易、更快、更准确”，并声明“我们准备捍卫国家主权，保护菲律宾的海洋资源”。
+此数据库中还包括，在上海设有办事处的一家广告公司的负责人约翰逊（Margaret Johnson OBE）、一名陆军军官和两名维珍大西洋航空公司的飞行员。另外，在上海的 7600 名维吾尔族穆斯林也位列其中，并被标注为“恐怖分子”。
 
-加拿大、澳大利亚、美国、日本和其他国家则对中共国的意图表示担忧，却引发了中共北京方面的指责。 中共党报《环球时报》3月29日援引一位不具名的中共国军事专家的话说：“称他们是海上民兵是不恰当的，在复杂多变的海上形势下，任何国家的渔民在附近岛礁避难都是正常的。”该专家指出，“菲律宾应保持克制，不要派遣战机或军舰干扰中共渔船的正常活动，这可能会挑起两国之间的紧张关系。”中共外交官说，这些船只是为了躲避汹涌的大海，船上没有民兵。
+英国安全局（前身为：军情五处 MI5）正在调查这些数据。分析人员指出这份数据源自于上海公安局服务器，泄露的是 2016 年所搜集到的数据。当前，中英局势因英国强烈谴责中共侵犯维吾尔少数民族人权而变得日益紧张。这份数据档案涉及了中共早已秘密而广泛监视英国公民的事实，说明中共几年前就开始收紧言论管控和加强对异议国际人士的监视。
 
-美国国务卿布林肯（Antony Blinken）周一表示，针对中共在圣灵礁集结的海上民兵，华盛顿站在盟友菲律宾一边。
+例如，英国广播公司（BBC）的中共国记者约翰·萨德沃斯（John Sudworth）就曾因报道中共侵犯人权的事实和揭露中共病毒疫情的真相而受到中共当局的“威胁”，被迫携家人逃往台湾避险。
 
-中共早已摸准各国的脉门，用钱收买外加战狼恐吓，再时不时的拎着假擀面杖子出门秀秀肌肉。用“我是流氓我怕谁”的姿态继续扩张海上领土，其目的除了想控制南海海上贸易，更是剑指台湾，为武力夺台做准备。各国政府虽心知肚明却任由中共为非作歹，不要以为牺牲的仅仅是小小的台湾岛，整个世界的秩序和文明都将被这颗老鼠屎毁掉！我们拭目以待！
+英国安全专家和情报人员了解中共秘密搜集英国公民信息的事实，有助于帮助英国约翰逊政府认清中共的真面目。去年，英国《泰晤士报》曾在头版刊登报道称，中共国企业海康威视已经成为英国闭路电视摄像头的最大供应商，出售设备数量超过 100 万[2]。英国议会安全委员会前主席里夫金德认为，英国政府应对此类监控产品展开深入调查。因为一旦这些设备遭到来自北京的网络攻击，对英国基础设施的影响将不堪设想。
 
-注：西菲律宾海是南中国海在菲律宾以西的部分，即指朱利安·菲利普礁（ulian Felipe Reef），也被称为圣灵礁（Whitsun Reef）。
+但是，一些英国公共服务部门表示对中共国产品有信心。伦敦的哈默史密斯地方政府在接受英国媒体采访时说，不认为安装这些摄像头会存在安全隐忧。伦敦地铁公司则回应说，从未将这些摄像头和互联网连接，他们不认为有网络安全问题。
 
-*信息来源：*
+现在，英国所获取的情报侧面验证了中共搜集英国公民信息的决心和能力，那么接下来英国政府会如何应对中共国的威胁和挑战，拭目以待。
 
-[https://www.reuters.com/article/us-philippines-china-southchinasea/philippines-says-chinese-militia-swarm-has-spread-in-disputed-waters-idUSKBN2BN0ZS](https://www.reuters.com/article/us-philippines-china-southchinasea/philippines-says-chinese-militia-swarm-has-spread-in-disputed-waters-idUSKBN2BN0ZS)
+参考链接：
 
-[https://www.breitbart.com/asia/2021/03/30/philippine-fighter-jets-flying-daily-reef-occupied-hundreds-chinese-ships/](https://www.breitbart.com/asia/2021/03/30/philippine-fighter-jets-flying-daily-reef-occupied-hundreds-chinese-ships/)
+[1] [Chinese spy on British visitors: Officials are routinely checked up on when they travel to the country on business, leaked documents suggest – Daily Mail – 03/31](https://www.dailymail.co.uk/news/article-9425297/Chinese-spy-British-visitors-Officials-routinely-checked-leaked-documents-suggest.html%20)
 
-编辑/校对/发稿：Helen
+[2] [国产监控摄像头占领英国市场，英专家：一言一行或被中国掌控 – 搜狐财经 – 2020/09/18](https://m.sohu.com/n/556986907/)
 
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
-
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
-
-
-0
++3
