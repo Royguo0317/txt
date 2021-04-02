@@ -1,73 +1,23 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共病毒疫苗导致的流产在六周内猛增 366%
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1045150/)
+## 俄外交部对澳的制裁将作出“充分回应”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1045172/)
 
-**作者：**Ethan Huff 2021-03-29
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+编辑 水星 上传 银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/C-22-2.jpg)gnews
+03月31日，俄外交部发言人玛丽亚·扎哈罗娃（Maria Zakharova）表示，澳大利亚在克里米亚问题上对俄罗斯实施的新制裁不会没有回应，她的评论发表在外交部网站上。
 
-**翻译：**加拿大温哥华圆成农场 卢卡斯
+“澳大利亚统治圈的不友好步骤，我们这边不会不做出充分的回应。”她承诺。
 
+扎哈罗娃认为，澳大利亚的外交政策并不独立，反对俄罗斯是出于“西方团结”。俄外交部发言人说：“澳大利亚支持美国及其卫星国的任何反俄袭击，无论它们看起来多么荒谬”。她认为，澳大利亚当局不想客观地评估克里米亚的局势。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/50.png)图片来源：Ethan Huff 原文
-英国政府公布的官方数据显示，注射中共病毒疫苗正以惊人的速度杀死未出生的婴儿。
+3月30日，澳大利亚宣布因修建横跨刻赤海峡的大桥而对莫斯科实施新的制裁，名单上有一名俄罗斯公民和四家公司。澳大利亚外交部长玛丽斯·佩恩（Maris Payne）表示，这些措施是与加拿大、欧盟和英国达成一致的，加拿大、欧盟和英国此前也曾对俄罗斯实施制裁。她没有具体说明俄罗斯人的姓名和被制裁公司的名称。加拿大的制裁针对两个人—-Grand Service Express（通往克里米亚的铁路服务运营商）首席执行官亚历山大·甘诺娃（Alexander Ganov）和Mostotrest公司负责人列昂尼达·列日金娜（Leonid Ryzhenkin），以及JSC Lenpromtransproroekt、FGUP克里米亚铁路公司、克里米亚第一保险公司和JSC Berkakit-Tomot-Yakutsk铁路建设局。
 
-2020年12月9日至2021年3月7日，最新的药品和医疗保健产品监管局（MHRA）黄牌计划报告显示，接种了中共国病毒疫苗注射，流产率大幅上升了366%。
+2014年公投后，克里米亚成为俄罗斯的一部分。乌克兰认为这是一种吞并行为，西方国家就半岛吞并问题对俄罗斯实施制裁。对此，莫斯科表示，投票过程中不存在违法行为，克里米亚的归属问题已经结束。
 
-这是MHRA发布的第七份此类报告，它清楚地表明，中共病毒疫苗是极其致命的，尤其是对于那些无论出于什么原因决定接受注射疫苗孕妇们。
+参考链接：
+https://www.rbc.ru/rbcfreenews/60649e869a794720b63874f5
 
-值得注意的是，没有科学数据表明注射中共病毒疫苗对孕妇是安全的或有效的，然而医生和卫生当局仍在给孕妇注射，导致许多孕妇失去尚未出生的孩子。
-
-英国政府已经警告孕妇，他们可以拒绝接种疫苗，理由就是”没有或有限”的数据可以证明疫苗对孕妇是安全性或有效性。
-
-政府承认”动物生殖毒性研究尚未完成，”，并补充说，”不建议在怀孕期间让孕妇接种疫苗。即便如此，英国仍在对孕妇进行疫苗注射，还是在安排孕期女性接种疫苗。
-
-另外，应建议育龄妇女切记，在接种第二针疫苗后至少2个月内避免怀孕。
-
-要追踪最新的中共疫苗引发的伤亡，请务必查看ChemicalViolence.com。
-
-**注射中共病毒疫苗会污染母乳，导致不孕不育**
-
-英国政府还警告已经分娩但仍在哺乳的妇女避免接种疫苗，因为目前还不清楚实验基因治疗化学物质是否分泌并进入到母乳中。
-
-“不能排除新生儿/婴儿被感染的风险，”警告说。”COVID-19 mRNA（信使RNA）疫苗BNT162b2不应在母乳喂养期间使用。
-
-同样，政府警告如果妇女希望很快怀孕，就不要服用这种疫苗。这个警告是基于注射中共病毒疫苗是否使一个人不被病毒感染，目前还不清楚。
-
-尽管如此，英国仍有无数的孕妇选择注射，现在她们已经没有孩子了。这相当于对未出生婴儿的种族灭绝。
-
-英国新闻机构《每日世博报》报道说：”我们仍然无法回答为什么这些妇女根据政府的建议接种了一种中共病毒疫苗。
-
-但真正令人震惊的是，自那以后的六周内，这个数字增加了多少。
-
-仔细观察MHRA第七份报告中的数据，实际上表明，自1月24日以来，在接受辉瑞和BioNTech的中共病毒疫苗注射后失去婴儿的孕妇人数增加了475%，这永久地改变了人类基因。
-
-自同一天起，由于孕妇接受阿斯利康的中共病毒疫苗，流产增加了150%，这也与致命的血栓有关。
-
-事实证明，英国政府后来”更新”了对孕妇的建议：某些孕妇仍然可以考虑注射疫苗，尽管现在完全缺乏相关的科学来证明疫苗对她们是安全的。
-
-英国医疗部门现在声称，孕妇只有考虑到”当潜在利益大于母亲和胎儿的潜在风险时”，才应当去注射中共病毒疫苗，让既不是科学家也不是医生的孕妇自己去做出这一重大决定。
-
-**评：**去年4月28日从香港登机出逃到美国的病毒专家阎丽梦博士于同年7月10号首次在接受美国福克斯新闻采访时说，冠状病毒是中共武汉病毒研究所通过基因工程技术制造并释放的到全世界生化病毒武器，中共刻意掩盖有关中共病毒来源的真相，其目的是通过低成本的生化病毒武器来达到其控制全世界的邪恶野心，她冒死站出来揭露中共病毒的真相是基于正义和良知，无关党派、政治、宗教、种族，她的目的是告诉全世界中共病毒是多么的恐怖，关系到全世界的生死存亡，并极其严肃发出警告说留给世界的作出正确抉择的时间不多了。
-
-目前正在推行的疫苗接种所使用的各种疫苗根本起不到预防中共病毒的作用[1]; 已经完全接种了疫苗的人们仍然可以被中共病毒再次感染，证明疫苗根本没有像疫苗公司所承诺的那样能抵抗中共病毒[2]。处于种种邪恶的目的，疫苗制造公司跟各国主流媒体和政府中的一些利益相关人士不但淡化甚至隐瞒了疫苗的各种副作用可能导致诸多严重后果，反而大力推广中共病毒的接种运动，他们的图谋不外乎经济金钱利益，全球大重启，新世界秩序，控制奴役人类和实现全球的黑暗统治。那些因为对中共病毒对人类的严重危害的无知而接受注射根本没有经过临床实验验证有效的中共病毒疫苗的人，他们的自身成为具有高度传染性的超级毒株，就像一个成为行走的定时生物炸弹，对社会中的每个人都将构成潜在的威胁[3]。去年10月8日闫博士连线班农先生战斗室（第428期节目）进一步指出：中共病毒是超限生物武器，这场瘟疫大流行正是中共“超限生物战”的结果，对人类的影响远远超出传统的生物武器。全球主义者有设计好的在全球大规模灭绝人类的计划，令人恐怖的中共病毒对全球人类的巨大危害正在逐步展现出来，本文揭露的接种中共病毒疫苗导致孕妇的猛增的流产率，令人感到震惊，然而这仅仅是冰山之一角！正如闫博士说过的：中共不灭就不会有真正的解药，中共病毒就不可能得到控制，灭共是中共病毒真正的解药。
-
-**原文：Ethan Huff,“Miscarriages skyrocket 366% in six weeks due to Covid vaccines”.《 Natural News》, March 29, 2021. [https://www.naturalnews.com/2021-03-29-miscarriages-skyrocket-six-weeks-covid-vaccines.html](https://www.naturalnews.com/2021-03-29-miscarriages-skyrocket-six-weeks-covid-vaccines.html)**
-
-**[1] [Arsenio Toledo](https://www.newstarget.com/author/arseniotoledo),“Coronavirus cases rise in states with high vaccination rates, proving yet again the vaccines don’t work”.《NewsTarget》March 25, 2021.  [https://www.newstarget.com/2021-03-25-coronavirus-cases-continue-to-rise-despite-vaccination.html](https://www.newstarget.com/2021-03-25-coronavirus-cases-continue-to-rise-despite-vaccination.html)**
-
-**[2] [Lance D Johnson](https://www.naturalnews.com/author/ljdevon),“The fully vaccinated are getting infected again, demonstrating yet again that vaccines don’t really work as promised”.《Natural News》，March 24, 2021. [https://www.naturalnews.com/2021-03-24-fully-vaccinated-are-getting-infected-again.html](https://www.naturalnews.com/2021-03-24-fully-vaccinated-are-getting-infected-again.html)**
-
-##### **[3]** Mike Adams, “Vaccinated people are walking biological time bombs and a THREAT to society
-
-**”.《 Natural News》, March 26, 2021. [https://www.naturalnews.com/2021-03-26-situation-update-mar-26-vaccinated-people-are-walking-biological-time-bombs.html](https://www.naturalnews.com/2021-03-26-situation-update-mar-26-vaccinated-people-are-walking-biological-time-bombs.html)**
-
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-编辑/发布：比卡丘
-
-20210402
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
-# ** **
-
-+1
+0
