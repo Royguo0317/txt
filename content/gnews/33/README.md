@@ -1,65 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国海军上将担忧中共国未来入侵台湾
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1043420/)
+## 闫博士的报告受到世界专家的高度重视和认可
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1043421/)
 
-**作者：**Ethan Huff 2021-03-30
+简述：在2021年4月1日的盖特视频中，郭先生说闫博士的报告迎头痛击了世卫组织的病毒报告，世卫组织应该叫 “武汉组织”（注：武汉组织的英文为 WuHan Organization，其简写与世卫组织的WHO相同）才更合适。他并痛斥了整个世界的败坏，没有一个人或国家有道德、能力、良知和专业精神，足以来评价闫博士、爆料革命和新中国联邦的贡献。他说“因为这个世界实在是太黑暗了，被共产党这个流氓组织完全是以假、以骗、以黑、以蓝金黄将各国首长都拿下，连美国这样的国家都不能逃过他这种下三滥的手段。”
 
-**翻译：**加拿大温哥华圆成农场 卢卡斯
-![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/09/13213157/south-china-sea.jpg)图片来源：网络
-《自然新闻》美国太平洋舰队现任司令约翰·阿基利诺（JohnAquilino）上将在最近举行的确认听证会上表示担心，中共国可能会比许多人预期的要快得多地入侵和吞并台湾。
 
-阿基利诺希望成为美国印太平洋司令部的下一任司令，他告诉阿肯色州参议员汤姆·科顿，中共国入侵台湾的可能性是一个”严重问题”，因为它有可能为中国共产党注入新的活力。
 
-“为什么北京如此希望吞并台湾，如果北京真的入侵并吞并台湾，你的军事计划又会如何复杂化呢？”科顿问阿奎利诺。
+**闫博士的报告受到世界专家的高度重视和认可**
 
-“他们认为这是他们的头等大事，”阿基利诺回应道，他指的是中共国在不远的将来入侵和吞并台湾的目标。”中国共产党的复兴岌岌可危。
+**Dr. Yan’s Work Is Highly Recognized by Experts Around the World**
 
-美国印太平洋司令部现任司令菲利普·戴维森上将最近警告说，中共国可能在未来六年内试图入侵台湾。在阿奎利诺看来，真正的时间表可能介于”今天到2045年”的任何一个时刻。
+昨天科学家推出的以毒灭共的第三个报告以后，全世界可以说跟 WHO 的所谓的武汉Organization（武汉组织，WHO）所说的所有报告，正好是针尖对麦芒。在这个时候在世界上引起了巨大的反响。
 
-如果得到证实，阿基利诺希望”在近期内和紧迫的情况下”建立一个50亿美元的基金，称为太平洋威慑倡议（PDI）。早在三月初，美国印度-太平洋司令部就向国会提交了PDI预算，其中包括到2027年拟议支出270亿美元。
+Yesterday, after our scientist [Dr. Li-Meng Yan] pushed out her third report, [1] aiming for taking down the CCP with the truth about the virus, it has gone head-to-head with the report released by the so-called W.H.O., which should really be called the “WuHan Organization”. So far, Yan’s report has caused a huge response in the world.
 
-所有迹象都表明，未来中共国的问题可能导致战争
+闫博士累得两天没怎么睡觉，昨天发信息说头都疼，觉都没睡。真的是她干得太棒了，受到了世界上科学家、传染病学，还有世界上军事的情报机构，以及生化武器研究专家们，高度的重视和高度的认可。将以毒灭共推向了另外一个层次。
 
-几十年来，中国大陆和台湾一直在争论谁是台湾现在所处土地的合法拥有者。北京一直以战争威胁台湾，拒绝让台湾自己被吸收回中国大陆。
+Dr. Yan was so tired because she didn’t sleep much for the last two days. She sent a message saying that she had a headache because of the lack of sleep. She really did a fantastic job. She has been highly valued and highly recognized by scientists in infectious diseases, military intelligence agencies, and biochemical weapon experts around the world. This has pushed the movement of taking down the CCP with the truth about the virus to another level.
 
-早在3月初，据说中共国国家主席习近平就告诉中共国军方，在”不稳定”的安全局势下，要为冲突”做好准备”。自从乔·拜登入主白宫以来，这种不稳定局面大大加快。
+这背后也有我们博士各个军团，和路德访谈广泛传播。我们爆料革命各农场、G-News、GTV的直播，所有战友们的呼应，都是分不开的。没有这些谁知道？谁知道你？你家里做的饭多香，那别人从来不知道的，因为没人给你宣传，是吧？关键是爆料革命新中国联邦的平台，没有这个平台，闫博士、博士军团也都没有任何意义可以说。
 
-在一次新闻发布会上，当被问及国防部（DoD）在防止中国入侵台湾方面有多大信心时，五角大楼新闻秘书约翰·柯比拒绝”推测未来可能采取的行动”。
+Behind this [report], there is our Ph.D. Team and the LuDe Media’s effort in breaking the news broadly, also including the effort of all the farms of our Whistleblower Movement, G-News, GTV’s broadcasting, and all our fellow fighters’ cooperation. Without these efforts, who would know this [report]? Who would know you? No one would know how delicious the food you cook in your home if no one spreads the word for you, right? The key is that we have the platform of the Whistleblower Movement and the New Federal State of China (NFSC). Without this platform, neither Dr. Yan nor the Ph.D. Team’s work would be meaningful.
 
-“没有人希望这会导致冲突，”他补充说，暗示五角大楼可能准备在必要时进行干预。
+这时候就看到了我们打的是群体之仗，引起了世界上媒体、武器研究专家、世界军事和情报专家，这种有核裂变的效应。只有事实才能告诉大家答案。我们也不在乎谁怎么评价我们，更不在乎谁怎么来看我们。到目前我们还没有看到一个活着的，配得上从道德上、从境界上、从能力上、专业上，还配得上来评价我们的以毒灭共和爆料革命的，还没有，还没有， 希望越多越好，一个都没有。如果任何有良知的人，都应该有这个基本的判断。我们战友们当然要有这个自信了。你见过一个道德、能力、良知、专业，能配得上评价我们的吗？没有。
 
-柯比进一步向记者透露：”（国防部长劳埃德·奥斯汀）对（中共国）战略力量发生的重大变化感到担忧。
+Now you can see that the war that we are engaging in is a group fight, and we have caused this kind of nuclear fission effect in the media, bioweapon experts, world military and intelligence experts in the world. Only facts can give everyone the answer. We don’t care how other people comment on us, let alone how others see us. So far we have not seen a living person who has the morality, capacity, and professional ability at a level high enough to evaluate our movement of taking down the CCP with the truth about the virus or our Whistleblower Movement. There has been no one yet, not yet. I hope there are as many such people as possible, but no one at all. If anyone has a conscience, he should have this basic judgment. Of course, our fellow fighters should feel confident. Have you ever seen a person at such a level in morality, ability, conscience, and professionalism that can evaluate us? No.
 
-“他还担心北京方面对他们的所作所为缺乏透明度。我们当然欢迎提高他们的意图和现代化计划的透明度。
+这就是战友的正确的判断。你有什么资格骂我们，评价我们？没有。包括各国政府，我没有一个叫我感到尊重在这事上评价我们的。所以说俺骄傲，俺相当的骄傲。咱不骄傲不行啊，因为这个世界实在是太黑暗了，被共产党这个流氓组织完全是以假、以骗、以黑、以蓝金黄将各国首长都拿下，连美国这样的国家都不能逃过他这种下三滥的手段。这个世界上我们放眼看去，我们只能俯视这个世界，真的不会仰脸看任何东西，因为太黑暗了。在全世界到处杀人的共产党病毒，种族大屠杀、反人类罪的共产党，还竟然有人与他为伍，情何以堪？何来法？何来能力？何来尊重？何来所谓的信仰？
 
-世界卫生组织（WHO）显然站在中共国一边，因为联合国机构拒绝承认台湾在早期报道中共病毒的存在。
+This is the correct judgment that our fellow fighters should have. What qualifications do they have to scold us or evaluate us? None. Including the governments of various countries, there is no one worth our respect and can judge us on this matter. With that being said, I am proud, very proud. It’s not possible for us not to feel proud because the world is too dark. The rogue organization of the CCP has brought the leaders of all countries to their kneels with falsehood, deception, gangsters’ ways, and the BGY plot. Even countries like the United States cannot escape being corrupted by these dirty means. When we look at this world, we can only look down on people in this world, and really don’t need look up to anybody, because the world is too dark. The CCP is using the CCP virus to kill people all over the world and committing genocide and crimes against humanity, yet there are still people standing with it. How can this be? Where is the justice? Where is the respect? Where is the belief?
 
-世卫组织在报告亚洲的”病例”数字时，将中国大陆和台湾混为一谈，以作报告之用。这意味着联合国认为中共国和台湾没有区别，并认为两国是一体的。
+**参考链接：**
 
-“当中共国入侵台湾时，拜登会说，’这是一件文化的事情’，”《每日呼叫者报》的一位评论员写道。”当中共国控制南中国海时，拜登会说，’这是他们自己的事情’。
+[1] [The Wuhan Laboratory Origin of SARS-CoV-2 and the Validity of the Yan Reports Are Further Proved by the Failure of Two Uninvited “Peer Reviews”](https://zenodo.org/record/4650821#.YGYgvi2caQL)
 
-“当中共国主宰世界时，拜登会说，’他们吃了我们的午餐。两党的所有听命于中共的政治家都将兑现中共给自己的好处并庆祝中共的成功，”这位评论员补充道。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+**视频来源：**[https://gtv.org/getter/6065cd0d49339063d061d99d](https://gtv.org/getter/6065cd0d49339063d061d99d) (2:28-4:47, 5:33-6:35)
+**鸣谢：**感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1043162/](https://gnews.org/zh-hans/1043162/)
 
-另一位政客同意了，并补充说，这就是”当你把一个心神不清的共产主义恋童癖者来掌管事情时”发生的事情。
+* * *
 
-如果中国大陆和台湾之间爆发战争，你会发现国家安全网对战争细节的报道。
+字幕：【Rock小哥】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-**评：**在前美国总统川普上任之前，中共对美国及其欧洲盟国的发动超限战已经近25年，主要手段派遣间谍进入各国偷盗各种西方先进的科技收集情报，执行蓝金黄各国的占据领导职位或者有政治前途的政客或社会各界的重要人士，针对美国这个世界民主政治光明正义的自由的灯塔，中共采用更多的手段进行全面的渗透，包括像偷运芬太尼毒品进入美国削弱美国，煽动族群对立搞乱美国，最终想搞死美国。信仰共产主义撒旦魔教的中共是以基督文明立国的美国是天生的死敌。
-
-自从习总加速师上台之后，这个崇拜毛魔的野心勃勃的激进的共产主义原教旨主义者认为是放弃中共和平发展的外衣，开始向西方采取积极进攻的态势。结果2016年川普总统意外击败中共中意的希拉里，成为美国新的总统。川普总统于2018年开启了中美贸易战，持续三年的贸易战，中共的经济濒临崩溃，无奈之下放出中共病毒同时深度介入美国2020年大选，帮助中共走狗拜登击败川普当选新一届总统。中共成功之日也就是它自我毁灭之日的开始，文贵先生4年来的爆料革命运动把中共企图击败美国统治整个世界的阴谋全部揭穿，中共被打的满地找牙；2020年1月19日以来，闫丽梦博士揭露中共病毒真相，震惊了整个世界；中共病毒真相在爆料革命和美国和全世界有良知和正义人士的竭力传播下，已经把中共逼上了绝路。今天处在内外交困中的中共正在图谋铤而走险主动出击，通过“统一”台湾来获得新的生机，否则只能坐以待毙。
-
-拜登总统上台以来把中共在新疆犯下的种族灭绝罪描述成中共国自身的文化问题，也从来不提“中共病毒”，甚至开始与中共进行接触以帮助中共被西方世界孤立的窘境；但是由于拜登家族20多年来与中共的深度勾兑出卖美国国家利益以获取自己家族的利益被其子亨特拜登“三块硬盘”暴露于天下，以及中共被前国务卿彭佩奥定为种族灭绝罪，使得他不敢明目张胆地与中共继续勾兑。然而正如本文所说的，中共基本上控制了联合国，一旦它发动闪电战打下台湾，利用在台湾的中共的沉默力量制造台湾人支持中共统一台湾的民意， 联合国发个不痛不痒的谴责中共武力入侵台湾的声明，拜登对中共继续采取绥靖主义政策，把中共入侵台湾说成中共国内部事务而不予干预。那中共将可能会获得更大的民意支持而变得更加激进具有攻击性，危害整个世界的安全。中共军队正在通过军演和战机绕台湾巡航等军事活动来不断试探美国和台湾的反应[1]，这些常态化的动作也许就是为其发动闪电战占领台湾的准备之一。二战就是西方各国对激进的希特勒通过闪电战开始对外战争扩张所采取的绥靖政策造成了世界人民的大灾难，历史就是一面镜子而且历史经常会重演，因此本文作者的担忧绝不是耸人听闻或杞人忧天。
-
-##### **原文：**Ethan Huff, “ U.S. Admiral expresses worry about communist China’s future invasion of Taiwan”.《 Natural News》, March 30, 2021.** **[https://www.naturalnews.com/2021-03-30-admiral-expresses-worry-china-future-invasion-taiwan.html](https://www.naturalnews.com/2021-03-30-admiral-expresses-worry-china-future-invasion-taiwan.html)
-
-**[1] “中俄美日兵分多路军演，东亚局势紧张”。《东网》，2021/3/30。[https://www.popyard.com/cgi-mod/newspage.cgi?num=7474279&r=0](https://www.popyard.com/cgi-mod/newspage.cgi?num=7474279&amp;r=0)**
-
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-编辑/发布：比卡丘
-
-20210401
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
-+1
++4
