@@ -1,61 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 五个无可争议的事实支持COVID病毒起源于实验室
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1044934/)
+## 中共病毒疫苗导致的流产在六周内猛增 366%
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1045150/)
 
-翻译：康州盘古农场—Layka
+**作者：**Ethan Huff 2021-03-29
 
-校对：康州盘古农场—Mike Li
+**翻译：**加拿大温哥华圆成农场 卢卡斯
 
-编辑：康州盘古农场—心照
 
-新闻由史蒂文·奎伊博士提供 ，2021年3月30日，美东时间09:40时
+![]()![](https://gnews.org/wp-content/uploads/2021/04/50.png)图片来源：Ethan Huff 原文
+英国政府公布的官方数据显示，注射中共病毒疫苗正以惊人的速度杀死未出生的婴儿。
 
-摘要：史蒂文·奎伊博士对世卫组织报告的公开信， 并提出了五个无可争辩的事实来反驳此报告。
+2020年12月9日至2021年3月7日，最新的药品和医疗保健产品监管局（MHRA）黄牌计划报告显示，接种了中共国病毒疫苗注射，流产率大幅上升了366%。
 
-西雅图，2021年3月30日/美通社/ — 史蒂芬·奎伊（Steven Quay）博士今天发表了题为《要阻止下一次的大流行，毫无疑问地需要对COVID的实验室起源有无可厚非的证据》的有关世界卫生组织报告的公开信。
+这是MHRA发布的第七份此类报告，它清楚地表明，中共病毒疫苗是极其致命的，尤其是对于那些无论出于什么原因决定接受注射疫苗孕妇们。
 
-公开信的目的是帮助世卫组织报告的读者、理解科学家们同意的五个事实，这些事实支持以下结论：实验室意外感染可能是造成COVID大流行的原因。
+值得注意的是，没有科学数据表明注射中共病毒疫苗对孕妇是安全的或有效的，然而医生和卫生当局仍在给孕妇注射，导致许多孕妇失去尚未出生的孩子。
 
-五个无可争辩的事实是：
+英国政府已经警告孕妇，他们可以拒绝接种疫苗，理由就是”没有或有限”的数据可以证明疫苗对孕妇是安全性或有效性。
 
-一：正如以前的冠状病毒流行所观察到的那样，在流行之前，COVID-19并未在社区中悄悄的蔓延。
+政府承认”动物生殖毒性研究尚未完成，”，并补充说，”不建议在怀孕期间让孕妇接种疫苗。即便如此，英国仍在对孕妇进行疫苗注射，还是在安排孕期女性接种疫苗。
 
-二：尽管进行了紧张的搜索, 无论是COVID病毒，还是任何的近亲，尚未在大自然中发现, 不像以前的自然人畜共患病。 最接近的病毒亲属是来自武汉病毒研究所，该研究所靠近首批病毒爆发地。
+另外，应建议育龄妇女切记，在接种第二针疫苗后至少2个月内避免怀孕。
 
-三：COVID病毒一开始就没有什么遗传多样性，不像以前的自然人畜共患病。它具有纯净的基因，就像人工疫苗被推出一样。
+要追踪最新的中共疫苗引发的伤亡，请务必查看ChemicalViolence.com。
 
-四：COVID病毒的强大感染触发力是在自然界中其相关病毒组中的任何地方都找不到，但是已经被实验室科学家反复插入病毒中， 包括在武汉病毒研究所。
+**注射中共病毒疫苗会污染母乳，导致不孕不育**
 
-五：该病毒从一开始就非常适合感染人类, 不像以前的自然人畜共患病。 在人源化小鼠中培育病毒是一种磨练其致死能力的常用技术。
+英国政府还警告已经分娩但仍在哺乳的妇女避免接种疫苗，因为目前还不清楚实验基因治疗化学物质是否分泌并进入到母乳中。
 
-奎博士阐述，“因为我坚信这个COVID病毒是一项功能增强实验出了差错, 我们欠了270万死人的家人的答案， 为什么会发生这种情况，”   “因为没有这种认识, 下一次的大流行现在就在全世界做这些危险实验的几十个实验室的某个地方产生。也许是在下一次大流行到来之前，恢复暂停对功能增强研究的时候了。”
+“不能排除新生儿/婴儿被感染的风险，”警告说。”COVID-19 mRNA（信使RNA）疫苗BNT162b2不应在母乳喂养期间使用。
 
-试图协助世卫组织开展工作, 此公开信在发布之前，副本已发送给全球30多位科学家, 包括世卫组织的调查员、武汉病毒研究所的科学家、美国国立卫生研究院和美国国家医学科学院院长, 以及其他杰出的病毒学家。
+同样，政府警告如果妇女希望很快怀孕，就不要服用这种疫苗。这个警告是基于注射中共病毒疫苗是否使一个人不被病毒感染，目前还不清楚。
 
-史蒂芬**·**奎伊博士简介
+尽管如此，英国仍有无数的孕妇选择注射，现在她们已经没有孩子了。这相当于对未出生婴儿的种族灭绝。
 
-史蒂芬·奎伊：密歇根大学医学和哲学博士学位（MD–PhD）， 曾在麻省理工学院化学系与诺贝尔奖获得者H. Gobind Khorana一起做博士后研究员, 哈佛马萨诸塞州综合医院住院医师, 并在斯坦福大学医学院任教近十年。
+英国新闻机构《每日世博报》报道说：”我们仍然无法回答为什么这些妇女根据政府的建议接种了一种中共病毒疫苗。
 
-奎伊博士已发表360余篇医学论文，被引用超过10,000次， 跻身于全球科学家的前1％。 他拥有87项美国专利和已经发明了7种经过FDA批准的药物，已经帮助了8000万人。
+但真正令人震惊的是，自那以后的六周内，这个数字增加了多少。
 
-奎伊博士是畅销书《保持安全：冠状病毒幸存医师指南》的作者。他发表的关于预防乳腺癌的TEDx演讲已被浏览220,000多次。他的科学手《贝叶斯分析得出的合理结论无疑是，SARS-CoV-2不是天然的人畜共患病，而是实验室衍生的》 已被浏览超过115,000次。
+仔细观察MHRA第七份报告中的数据，实际上表明，自1月24日以来，在接受辉瑞和BioNTech的中共病毒疫苗注射后失去婴儿的孕妇人数增加了475%，这永久地改变了人类基因。
 
-同时，奎伊博士是阿托莎治疗公司（Atossa Therapeutics, Inc.）的首席执行官。（纳斯达克股票代码：ATOS），这是一家临床阶段的生物制药公司，致力于开发用于肿瘤学和传染病的新型疗法。
+自同一天起，由于孕妇接受阿斯利康的中共病毒疫苗，流产增加了150%，这也与致命的血栓有关。
 
-了解更多信息，查阅[http://www.DrQuay.com](http://www.drquay.com/)
+事实证明，英国政府后来”更新”了对孕妇的建议：某些孕妇仍然可以考虑注射疫苗，尽管现在完全缺乏相关的科学来证明疫苗对她们是安全的。
 
-公开信可以从Zenodo下载，由欧洲核子研究组织（CERN）运营的通用开放存取存储库，致世界卫生组织的公开信。可以在此处找到有关该论文的简短“解释者”视频：公开信-视频解释者公共关系联系方式：
+英国医疗部门现在声称，孕妇只有考虑到”当潜在利益大于母亲和胎儿的潜在风险时”，才应当去注射中共病毒疫苗，让既不是科学家也不是医生的孕妇自己去做出这一重大决定。
 
-邓恩·佩里尔媒体 | 电话: 571.243.6865
+**评：**去年4月28日从香港登机出逃到美国的病毒专家阎丽梦博士于同年7月10号首次在接受美国福克斯新闻采访时说，冠状病毒是中共武汉病毒研究所通过基因工程技术制造并释放的到全世界生化病毒武器，中共刻意掩盖有关中共病毒来源的真相，其目的是通过低成本的生化病毒武器来达到其控制全世界的邪恶野心，她冒死站出来揭露中共病毒的真相是基于正义和良知，无关党派、政治、宗教、种族，她的目的是告诉全世界中共病毒是多么的恐怖，关系到全世界的生死存亡，并极其严肃发出警告说留给世界的作出正确抉择的时间不多了。
 
-原文链接：
+目前正在推行的疫苗接种所使用的各种疫苗根本起不到预防中共病毒的作用[1]; 已经完全接种了疫苗的人们仍然可以被中共病毒再次感染，证明疫苗根本没有像疫苗公司所承诺的那样能抵抗中共病毒[2]。处于种种邪恶的目的，疫苗制造公司跟各国主流媒体和政府中的一些利益相关人士不但淡化甚至隐瞒了疫苗的各种副作用可能导致诸多严重后果，反而大力推广中共病毒的接种运动，他们的图谋不外乎经济金钱利益，全球大重启，新世界秩序，控制奴役人类和实现全球的黑暗统治。那些因为对中共病毒对人类的严重危害的无知而接受注射根本没有经过临床实验验证有效的中共病毒疫苗的人，他们的自身成为具有高度传染性的超级毒株，就像一个成为行走的定时生物炸弹，对社会中的每个人都将构成潜在的威胁[3]。去年10月8日闫博士连线班农先生战斗室（第428期节目）进一步指出：中共病毒是超限生物武器，这场瘟疫大流行正是中共“超限生物战”的结果，对人类的影响远远超出传统的生物武器。全球主义者有设计好的在全球大规模灭绝人类的计划，令人恐怖的中共病毒对全球人类的巨大危害正在逐步展现出来，本文揭露的接种中共病毒疫苗导致孕妇的猛增的流产率，令人感到震惊，然而这仅仅是冰山之一角！正如闫博士说过的：中共不灭就不会有真正的解药，中共病毒就不可能得到控制，灭共是中共病毒真正的解药。
 
-[https://www.prnewswire.com/news-releases/physician-scientist-steven-quay-provides-open-letter-response-to-who-report-five-undisputed-facts-support-the-laboratory-origin-of-the-covid-virus-301258582.html](https://www.prnewswire.com/news-releases/physician-scientist-steven-quay-provides-open-letter-response-to-who-report-five-undisputed-facts-support-the-laboratory-origin-of-the-covid-virus-301258582.html)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+**原文：Ethan Huff,“Miscarriages skyrocket 366% in six weeks due to Covid vaccines”.《 Natural News》, March 29, 2021. [https://www.naturalnews.com/2021-03-29-miscarriages-skyrocket-six-weeks-covid-vaccines.html](https://www.naturalnews.com/2021-03-29-miscarriages-skyrocket-six-weeks-covid-vaccines.html)**
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+**[1] [Arsenio Toledo](https://www.newstarget.com/author/arseniotoledo),“Coronavirus cases rise in states with high vaccination rates, proving yet again the vaccines don’t work”.《NewsTarget》March 25, 2021.  [https://www.newstarget.com/2021-03-25-coronavirus-cases-continue-to-rise-despite-vaccination.html](https://www.newstarget.com/2021-03-25-coronavirus-cases-continue-to-rise-despite-vaccination.html)**
 
-+4
+**[2] [Lance D Johnson](https://www.naturalnews.com/author/ljdevon),“The fully vaccinated are getting infected again, demonstrating yet again that vaccines don’t really work as promised”.《Natural News》，March 24, 2021. [https://www.naturalnews.com/2021-03-24-fully-vaccinated-are-getting-infected-again.html](https://www.naturalnews.com/2021-03-24-fully-vaccinated-are-getting-infected-again.html)**
+
+##### **[3]** Mike Adams, “Vaccinated people are walking biological time bombs and a THREAT to society
+
+**”.《 Natural News》, March 26, 2021. [https://www.naturalnews.com/2021-03-26-situation-update-mar-26-vaccinated-people-are-walking-biological-time-bombs.html](https://www.naturalnews.com/2021-03-26-situation-update-mar-26-vaccinated-people-are-walking-biological-time-bombs.html)**
+
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+
+编辑/发布：比卡丘
+
+20210402
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+# ** **
+
++1
