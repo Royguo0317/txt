@@ -1,46 +1,76 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彼得·达萨克接受CGTN采访时承认与中共长期联系
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1044353/)
+## 英国国防部遭受疑似中共的网络攻击
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1044448/)
 
-新闻来源：《国家脉动（The NationalPulse）》| 作者：NatalieWinters | 发布时间：2021年3月31日
+新闻来源：《Express快报 》| 作者：Brian McGleenon | 发布时间：2021年3月27日
 
-翻译/简评：村民彼得潘 | 校对：感恩 | 审核：万人往 | Page：Daoiii
+翻译/简评：村民彼得潘 | 校对：Beicy-数学老师 | 审核：万人往 | Page：Daoiii
 
-[!\[\]()!\[\](https://spark.adobe.com/page/OtAflXoL8dcIk/images/b196ba9c-af3b-400d-a1cf-dc5a303780a4.png?asset_id=554a8163-fe91-4dc7-93c4-4f4128eb8b40&amp;img_etag=%22b681f928ad0e4b16629c5b1ccc85a381%22&amp;size=1024)](https://spark.adobe.com/page/OtAflXoL8dcIk/images/b196ba9c-af3b-400d-a1cf-dc5a303780a4.png?asset_id=554a8163-fe91-4dc7-93c4-4f4128eb8b40&amp;img_etag=%22b681f928ad0e4b16629c5b1ccc85a381%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/n7uOnJexhxZ1n/images/1f87426e-9314-453f-a85c-785b491b84d4.png?asset_id=ca38f6d5-9561-4e3e-a14c-8dffb6b572f2&amp;img_etag=%227987af8d3fce44ac01c5f34456d59961%22&amp;size=1024)](https://spark.adobe.com/page/n7uOnJexhxZ1n/images/1f87426e-9314-453f-a85c-785b491b84d4.png?asset_id=ca38f6d5-9561-4e3e-a14c-8dffb6b572f2&amp;img_etag=%227987af8d3fce44ac01c5f34456d59961%22&amp;size=1024)
 
 ***简评：***
 
-彼得·达萨克在世卫组织新冠病毒调查报告出来之后，马不停蹄地上中共的电视台为中共背书，诋毁病毒来自实验室的说法。看来这回在中共国停留的短暂时间里，达萨克被招待得不错。有趣的是，这样一位大咖，口口声声称自己多年与武毒所等中共研究机构合作，为什么做这样关键的表态时不选择一家世界影响力更大的媒体，而是选择了众所周知的中共官媒呢？
+本文将英国国防部遭遇的网络攻击与美国微软此前遭遇的黑客入侵相关联，对网络攻击造成的公民隐私暴露的危害予以警示，并质疑中共为潜在的幕后黑手。令人震惊的是，直到国防部相关学院机构遭到攻击之后，才有该篇报道释出，而文章仅提及美方的指控，没有引述明确的英国官方表态。不难想象在当下的国际灭共形势到来之前，英国对中共的戒备有多么薄弱。当然，另一方面也反映出英国的民意大致到了一个什么样的火候，如非美国事先提出北京方面才是黑客主谋，也许英国媒体还不敢贸然先行一步。
 
-对比之下，世卫组织总干事谭德赛则嗅到了世界风向的转变，拒绝为自己指派的小组背书。而所谓调查报告，甩给国际社会强买强卖是一方面，同时上呈习总加速师博其欢心也是不容忽视的一层意义。反观达萨克此举，似乎也有表面逢迎中共，时刻准备倒戈之嫌。值得注意的一处细节是，CGTN的采访中媒体方居然会主动提到《国家脉动》此前的报道，联想到《国家脉动》主编拉希姆·卡萨姆与班农先生乃至整个爆料革命的特殊关系，可见中共对于美国右派势力及爆料革命的时刻关注和忌惮从未停歇。
+[!\[\]()!\[\](https://spark.adobe.com/page/n7uOnJexhxZ1n/images/9812b6a1-1b58-4e6e-9c47-40b77d865e29.jpg?asset_id=28e08fa9-46be-4d26-932b-b27be8ce3a56&amp;img_etag=%2217f55c8ad8d5e1535a4482e9fc14e453%22&amp;size=1024)](https://spark.adobe.com/page/n7uOnJexhxZ1n/images/9812b6a1-1b58-4e6e-9c47-40b77d865e29.jpg?asset_id=28e08fa9-46be-4d26-932b-b27be8ce3a56&amp;img_etag=%2217f55c8ad8d5e1535a4482e9fc14e453%22&amp;size=1024)
+
+从积极的层面看，其一，国防部遇袭终于打到了英国权力机构的痛处，危则生变；其二，英国民意的推动总算开始聚能，西方国家治下的老百姓一起对中共同仇敌忾的日子不远了；其三，本文关联国防部与美国还隐含了第二层意思，即五眼联盟情报共享的持续运作，表明大家此刻是同患难的“兄弟”，未来对中共的追责也将兄弟同心。
 
 ***原文翻译：***
 
-## **彼得·达萨克于中共国官方媒体承认与中共长期的联系**
+## **对第三次世界大战的担忧：中共国间谍会监听“任何英国公众成员”的谈话**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/OtAflXoL8dcIk/images/433bb5cf-8784-42d1-ad8d-10191711a917.png?asset_id=659428b7-d4d4-414b-b6d1-681f12491586&amp;img_etag=%22f2b777cbef0d43da973e320f78fe1d44%22&amp;size=1024)](https://spark.adobe.com/page/OtAflXoL8dcIk/images/433bb5cf-8784-42d1-ad8d-10191711a917.png?asset_id=659428b7-d4d4-414b-b6d1-681f12491586&amp;img_etag=%22f2b777cbef0d43da973e320f78fe1d44%22&amp;size=1024)世界卫生组织新冠病毒调查员彼得•达萨克（Peter Daszak）在接受中国环球电视网采访时，承认了他与中国共产党众多实体机构的长期“合作”关系。
+中共国间谍可以“监听英国的任何手机通话”，使得人们越来越担心北京的网络间谍会泄露英国公民的隐私。
 
-在世界卫生组织（WHO）极具争议的新冠病毒调查报告发布当天，达萨克就出现在中国环球电视网（CGTN）上炒作调查结果。这是一家曾在线播出过强迫招供片段的官方媒体。
+北京的间谍人员能够从中国境内的基地远程拦截卫星和电缆通信。现在恐怕他们能够获取电话通话。一位英国前军事情报官员对《每日镜报》说，中共国甚至还能够拦截英国军方和政府官员之间的非加密电话。
 
-曾反复赞扬中共国官方媒体的达萨克在采访中承认，曾与中共及其科学团队有过合作。
+该官员表示：“中共国在电话拦截方面有很强的能力。”
 
-**“大家都知道我与武汉病毒研究所有着多年的密切合作。”他在试图解释为什么实验室泄漏理论不可能后强调。**
+“如果不加密，军方可以认为他们的通话会被拦截。”
 
-*“当谈及实验室泄漏的假说时，我们只是没有看到表明发生了这种情况的重要信息。我的意思是，作为一名科学家，你只能处理你眼前看到的证据，如果证据不存在，那么你只能给出“极不可能”这样的结论。”*
+“无论这些通话的内容听上去多么没有危害，它们都可能是有价值的。”
 
-“当然，我和很多很多中共国组织和机构都有合作，因为我们都在研究这些病毒，让我们不要忘记SARS，最初出现在广东的重要冠状病毒。这就是为什么我们在中共国与中国疾控中心、武汉病毒研究所以及很多很多其他组织合作开展工作的原因，因为我们想阻止这种情况的发生。”他再次补充道。
+“会议时间，其他通话人的名字、日期、时间和地点。”
 
-CGTN的记者还向达萨克追问了世卫组织同行的研究人员与中共国的关系，并提到了《国家脉动》关于马里恩·库普曼斯（Marion Koopmans）的报道。
+[!\[\]()!\[\](https://spark.adobe.com/page/n7uOnJexhxZ1n/images/87aa5923-1868-4337-bfd4-0e731bc3683d.png?asset_id=757b0ed2-99a1-4622-a7ba-af7e97fc1fb2&amp;img_etag=%22e42de60d635651cb9d3641e60feabc71%22&amp;size=2560)](https://spark.adobe.com/page/n7uOnJexhxZ1n/images/87aa5923-1868-4337-bfd4-0e731bc3683d.png?asset_id=757b0ed2-99a1-4622-a7ba-af7e97fc1fb2&amp;img_etag=%22e42de60d635651cb9d3641e60feabc71%22&amp;size=1024)中共国间谍可以监听英国的电话通话（图片：盖帝）
 
-“我知道一些西方媒体也谈论了您与武汉病毒研究所的关系，他们同时提到了马里恩·库普曼斯女士，她与中共国的研究所有着很好的合作关系。”
+“所有信息当被输入到总的情报图景中，都可以被交叉参考以获得有价值的信息。”
 
-记者最后总结说：“希望下次您访问武汉或访问中共国时，我也能来。”达萨克答道：“我很期待。”
+“而这意味着你也可以假设同样的情况能够发生到任何一位公众成员身上。”
 
-在这次采访之前，《国家脉动》进行了大量报道，以强调达萨克与中国共产党经济上的联系，其中包括其撰写由中共政权资助的研究报告，以及与中共国营实体一起主办会议等。
+这个令人震惊的消息是在上周国防部（MoD）遭受网络攻击的事件中传出的。
 
-**🔗[原文链接](https://thenationalpulse.com/breaking/daszak-admits-ccp-links-on-cgtn/)**
+位于牛津郡斯里文汉（Shrivenham, Oxfordshire）的国防部三军学院遭遇了一次网络攻击，致使其IT网络受到打击，其网站停止工作。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/n7uOnJexhxZ1n/images/27298b1b-94c5-4839-908b-0bca4071dcb6.png?asset_id=7778429b-8da3-4ba0-8f82-a71e2ac99f3c&amp;img_etag=%2261d9466336d85cb9818b3f35004cb6e0%22&amp;size=2560)](https://spark.adobe.com/page/n7uOnJexhxZ1n/images/27298b1b-94c5-4839-908b-0bca4071dcb6.png?asset_id=7778429b-8da3-4ba0-8f82-a71e2ac99f3c&amp;img_etag=%2261d9466336d85cb9818b3f35004cb6e0%22&amp;size=1024)乔·拜登表示，他会对中共国采取更强硬的立场（图片：盖帝）
+
+官方随后被告知，黑客来自于外国势力。
+
+攻击最有可能来自于俄罗斯或中共国的网络间谍单位。
+
+一位国防部人士透露：“他们说这是一个外国势力所为。”
+
+“每个人都被告知要使用他们的个人电脑。”
+
+“这是因为工作电脑都已经宕机。”
+
+“这至少需要五周时间来修复。”
+
+[!\[\]()!\[\](https://spark.adobe.com/page/n7uOnJexhxZ1n/images/36a5d1b3-31f1-4cd9-8893-1177fdd6e879.png?asset_id=155a3a66-f104-4a5a-afb5-5dcea22b01bd&amp;img_etag=%22f3b3687fbaa5e7d11e17e971bea0e3ac%22&amp;size=2560)](https://spark.adobe.com/page/n7uOnJexhxZ1n/images/36a5d1b3-31f1-4cd9-8893-1177fdd6e879.png?asset_id=155a3a66-f104-4a5a-afb5-5dcea22b01bd&amp;img_etag=%22f3b3687fbaa5e7d11e17e971bea0e3ac%22&amp;size=1024)快报（图像：中共国军队）
+
+美国声称北京方面是3月初微软Exchange电子邮件软件被黑的幕后黑手。
+
+白宫新闻秘书詹·普萨基（Jen Psaki）表示：“这是一个正在不断发生的威胁。”
+
+“每个运行这些服务器的相关人士、政府、私营部门、学术界都需要现在采取行动，给它们打上补丁。”
+
+攻击者们利用微软的邮件服务器来攻击他们的目标。
+
+据悉，有数万家美国机构受到影响。
+
+**🔗[原文链接](https://www.express.co.uk/news/world/1415817/china-news-latest-chinese-spies-phone-conversations-uk-us-world-war-3?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+daily-express-world-news+%28Express+%3A%3A+World+Feed%29)**
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -49,6 +79,6 @@ CGTN的记者还向达萨克追问了世卫组织同行的研究人员与中共�
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/OtAflXoL8dcIk/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/OtAflXoL8dcIk/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/n7uOnJexhxZ1n/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/n7uOnJexhxZ1n/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-0
++1
