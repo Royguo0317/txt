@@ -1,45 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰之声】为什么要成为有神论者
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1043783/)
+## 由于中共反对，联大安理会就制裁缅甸军政府决议未获通过
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1043850/)
 
-作者：纽约香草山福音部 里里
+![](https://lh3.googleusercontent.com/C9M3RUS06xgvzlAm6eBMmrzUR2YBDNHsxeUhwxtAzQhiAWVOkugrq-K350Z0SlrWPnZww6nd1_1i6Q9seN6K1ajVjtYp5DRx2GWVdwLDug4lfGEN_pe3tUfv5Rrpeh4vjuNN0z0PUijXD7g8ZA)
+作者：台湾准农场 快慢机
 
+[新闻链接](https://www.163.com/dy/article/G6GA7UOH0534D9HK.html?f=post2020_dy_recommends)
 
+[新闻链接二](https://www.bbc.com/zhongwen/simp/world-56599998.amp)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+## 联合国缅甸特使呼吁安理会，应尽快采取重大行动，遏制缅甸局势进一步恶化。
+![](https://lh4.googleusercontent.com/7VUp7a4Hlc4c_ExgSKlrrlrpP1H8RYtxzccCpVr9UHAKrrPTmh5xy6KZQD6IuH6sUZjz4Ms7F0WY-DFl6LX-geKfgg6pR1rlGaUewDSf7dkH9X7T_0FH233PXY9xSrQvWnq8kt9a-wzvAnG_RA)
+鉴于缅甸当前乱局，有进一步持续性恶化发展趋势。联合国缅甸特使伯格纳于3月31日，在联大安理会上呼吁，联合国应发挥应有作用，尽快采取重大行动，以遏制缅甸局势朝进一步恶化方向发展。
 
+自2021年2月1日，缅甸军方突然发起军事政变，非法窃取缅甸政权至今。短短2个月内，缅甸全境无辜民众，被军方以致命性武力射杀的，致死总数已高达521名，其中不乏妇女及儿童。
 
+缅甸军方竟在其纪念建军节的阅兵式当日，制造了单日射杀抗议示威民众逾百人的血腥记录。事实上，缅甸军方已经不顾国际公约，肆意对平民展开残忍的暴力屠杀。
 
-为什么要成为有神论者？CCP提倡成为无神论者，我们为什么要跟着CCP走呢？大部分的共产主义国家由于洗脑宣传，导致无神论者偏多。例如，前苏联就是无神论国家，但是，柏林墙倒塌之后，他们的有神论者人数在增加，并且成为一种热潮，甚至普京也标榜信神。美国中情局2004年的调查表明，全世界有12%的人没有宗教信仰，其中2.4%是无神论者。英国大百科全书2005年的统计也和个这个比例差不多：2.3%的无神论者。据介绍，这个比例中没包括那些信仰无神论宗教的人士（例如，信仰佛教的未包括在无神论人士中）。
+中共横加阻拦，反对安理会通过对缅甸军方的制裁决议。
+![](https://lh3.googleusercontent.com/V56UR_uXvEBow9WUHxcPz3lXUldfJrQwukE6Xy7mtxV6SHdjy0hCnDawkH-Uk2_af2platdK4fakWmpyPKHgkVIH-H46_Dw8nQS3-_VtlSd6P5Z38yeh6N10kfUj6dRsWt28Ecd0-cSYBt2wPQ)
+中共常驻联合国代表“张军”，就安理会涉缅议题的相关制裁决议，代表中共当局，横加阻拦，坚决反对联大安理会制裁缅甸军政府的决议案。
 
-2004年有一期国内著名刊物，调查并讨论了信有神、有灵的问题。他们的统计是，全世界大约有10%的人不信有神，且这批人主要分布在亚洲。而细查之下，他们全部分布在中（共）国。不过这个刊物上的内容现在已经查不到了，甚至维基百科的相关解释也跟英文不一样。这么说吧，在中文世界里，只要用汉字的文件，都被带风向的取代；是外文的，都被篡改了翻译。倘若在谷歌上搜“无神论”，头几条的内容都是大外宣的，读完有助于你形成或保持无神论思想。他们会说，那些（西方的）数据统计不准，还有不同的标准等等。CCP提倡无神论，可是现在他的老大控制舆论，想用“说一千遍即成事实”的办法让他自己变为神。然而，人就是人，说一千遍也变不成神，毛贼（毛泽东）的神话不是垮塌得一塌糊涂吗！2019年，在discord的某个房间，有位内部人士给七哥报了个消息，说是亲眼看到内部文件说，习近平很羡慕西方人对神的向心力（大意），意图将CCP慢慢改造并宗教化，成为人们的信仰。说白了，他想把自己神化，做个毛贼神第二，天真不？
+其给出的所谓理由是，片面的施压只会令缅甸当前局势，及一步恶化，各方矛盾再一次被放大、加剧对立危情。这套说辞在之前，中共自己被国际社会所制裁下，也曾有过类似的同一番表述。
 
-其实不天真，他应该是认真的。难怪路德先生他们用了几期节目，谈CCP在梵蒂冈的渗透，和沼泽势力一起搞大重启，妄图把全世界带偏。再回来说无神论，有的国家看得挺严重的，比如回教国家，因为他们跟基督教、天主教一样，认耶和华为独一的造物主、真神（当然区别是存在的）。举个例子，沙特官方认为，谁要是宣称为无神论者，就要以“防治恐怖主义的办法”加以调查。华人的很多行为被诟病：贪婪、无节制、损人利己，嫉妒心强。这就是七哥说的，CCP在中国人中间植入了魔。魔就是阻止人们信有神的。当然，CCP最终是把你变成无神论者，那么对别人来说，你几乎等同于有恐怖主义倾向的，至少，指望不了你干好事。
+美国方面则一针见血的指出，应该让那些在缅甸发动军事政变的幕后黑手，付出应有的代价。缅甸当前乱局，不符合美国与盟友，以及世界的价值观及相关利益。言外之意——这似乎恰恰符合“中共当局”的价值观及利益。
 
-那么，怎样改变我们华人的形象，成为有尊严、有体面、有信仰的新中国联邦人呢？我个人意见：第一，参与灭共，但即使灭共成功，如果华人仍不信神，那华夏大地还会进入一个后无神论世代，同样是很恐怖的；第二，接受华语以外的有关宗教的文化；第三，要弄清为什么说有神；第四，选一个“好”的宗教。当然，有自称基督徒的人实际是伪善的人。一些教会有募捐活动，但这是根据旧约——神要求犹太人将所得的十分之一奉献给教会，即给神的传道者。我们现在是新约的时代，捐献不是一个硬性规定，而是出于感动。因为传道人全身心投入教会事工、祀奉，当他们的积蓄用完的时候，神要供应以“牧养他的羊”——天主教的神父有薪资也是这个道理。CCP是怕你信神的，他们宣传爱国要首先爱党，不是爱主。他们荒谬地让教会自传。怎么自传？还将福音传给自己吗？应当广传福音，这确实是华人的福音。
+## 联大安理会涉缅决议未获通过，缅甸军政府却突然宣布暂时停火。
+![](https://lh5.googleusercontent.com/WxytHiEkq7BeTVP9AmnrikVegduqi_ypr4hte0mxww3DF8OtyGvpmkSg4P02sQHM5GE4HSmA0nfZdry4PQkENrtNuHN0pL4bi0-a6Xj4s84GYuFSPY-rxUhCJa5vZ0sJZciMhlypjK4g3oHoDA)
+就在联大安理会涉缅决议，被中共横加阻拦未获通过的当天。缅甸军政府透过MRTV国营电视台，对外单方面宣布，自2021年4月1日起，对境内少数民族反政府武装，展开30天的停火期。但这其中并不包含“破坏当局政府安全和行政运作者”，简单说就是停火对象并不包括缅甸的抗议示威民众。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+由于近期，在缅甸东北部区域的克钦邦，与南部区域的克伦邦等地，相继涌现出，大批少数民族与当地反政府武装相互结盟，共同抗击缅甸军政府暴行的多股游击势力。这些游击武装已经对缅甸军方，成功实施了数次完美的伏击与偷袭行动。给予部分缅军造成了一定程度的打击。
 
-编辑：Sky妮妮
+就在30号当天，缅甸空军还出动米-24雌鹿式武装直升机，对克伦邦控制区的一个村庄展开了空袭，损毁十余栋房屋后，竟然对惊恐万状的逃难平民，进行低空扫射，造成4死2伤后随即撤离。
+![](https://lh6.googleusercontent.com/vDo97_lnxl-L6KLa7e46E7UXt81RbdQkUE6Jf-gjuhsouypdDsoT_WH_-r2D4oM6w_5s_5-c05kCTlAECmlekkmsfzDC7UhmweDzvB63cxn3RYhRt64WsG_uy0IH9q-Ar-Lfpun_Kv3JD04QSw)
+昨日还杀红了眼，今日就突然偃旗息鼓，单方面停火。除了担心少数民族区域，可能会迅速集结出大批，与反政府武装结盟的游击力量，对抗自己外。考虑到，中共刚刚动用其在联大安理会的“否决权”，帮缅甸军政府暂时躲过一劫。相信该种把戏或许也就仅此一回。
 
-校对/发稿：Irene木木
+缅甸当前乱局，中共无疑是其幕后的始作俑者，缅甸只要维持当下之势，中共便可趁火打劫，获渔翁之利。中共只有把世界搞乱，方能寻得一丝短暂喘息之机。
 
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-
-
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
-
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+文章审核：zhong
+文章发布：Little Liu
 
 0
