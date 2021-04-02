@@ -1,40 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热播快译】数据库揭示了中共向发展中国家贷款的秘密
-` HoustonLitstar` [轉載自GNews](https://gnews.org/zh-hans/1043703/)
+## 4/2/2021 财经快讯：台积电增加千亿美元投资，美国3月制造业创37年新高
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1044727/)
 
-翻译：烽火
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片1.jpg)[图片来源](https://www.taiwannews.com.tw/)
+**1.台积电取消芯片降价并承诺增加1000亿美元投资**
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524.jpg)
+[台积电(TSMC)首席执行官魏伟表示，这家全球第一大芯片代工企业计划在未来三年投资1,000亿美元用来新建晶圆厂及扩建现有晶圆厂，以提高产能，满足需求。该公司正在招募数以千名新员工，购买土地和设备，并开始在全球多个地点建设设施。台积电已经在美国亚利桑那州建立了价值120亿美元的芯片工厂，还在台南建立3纳米芯片工厂。台积电向《日经亚洲》（Nikkei Asia）确认了该投资计划。 魏伟还告诉客户，因为该公司加大了投资以应对芯片需求的“结构性和根本性增长”，它将从今年年底开始暂停未来一年的晶圆降价。](https://asia.nikkei.com/Business/Tech/Semiconductors/TSMC-cancels-chip-price-cuts-and-promises-100bn-investment-surge)
 
+**2.美国3月制造业创37年新高**
 
-《路透社》周三报道，中共与发展中国家的贷款交易条款异常神秘，要求借款人优先于其他债权人偿还中共国有银行的贷款。
+[路透华盛顿 – 受新订单强劲增长的推动，3月美国制造业活动指标升至37年来的最高水平。供应管理协会（ISM）周四表示，美国制造业采购经理指数(PMI)从2月份的60.8跃升至3月份的64.7，达到自1983年12月以来的最高水平。ISM调查显示，上个月制造商支付价格几乎达到自2008年7月以来的最高水平。前瞻性新订单子指数在三月份跃升至68.0，高于2月份的64.7。第一季度的国内生产总值估计年增长率高达10.0％，今年的增长可能超过7％。](https://www.reuters.com/article/us-usa-economy-manufacturing/u-s-manufacturing-sector-index-races-to-37-year-high-in-march-ism-idUSKBN2BO5RB)
 
-据报道，美国威廉玛丽学院（College of William & Mary）下属的研究机构AidData花费了超过三年的时间，编列了一个中共政府对不发达国家贷款的资料库。该资料库包含100笔中共与24个中低收入国家签订的贷款合约，其中一些国家在中共病毒的影响下，债务负担不断加重。
+**3****. 隔夜标普指数首次超4****,****000点，日韩股市高开 **
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/Screenshot-2021-04-01-213242.jpg)
+[周五日韩股市高开，日经225指数开盘涨1.07%，东证指数高开0.9%，韩国KOSPI指数开盘上涨0.87%。周四，美国股市在第二季度的第一个交易日攀升至历史高点，标普500指数历史上首次收盘高于4,000点。截至收盘，标普500指数上涨1.2%。道琼斯工业平均指数上涨0.5%，报33153.21点。纳斯达克综合指数上涨1.8%。科技股领涨，价值股也加入了上涨的行列。](https://finance.sina.com.cn/stock/usstock/c/2021-04-02/doc-ikmxzfmk1016999.shtml)
 
+**4.****美国财政部支持IMF发行6,500亿美元特别提款权**
 
-*图片来源：纽约时报中文网*
+[路透华盛顿 – 美国财政部周四表示，国际货币基金组织（IMF）储备可能会在八月份增加6,500亿美元。财政部已正式将其新分配国际货币基金组织特别提款权的计划通知国会，并开始了为期90天的磋商程序。预计大约70％的拨款将分配给G20国家，这些国家不太可能兑现其特别提款权。低收入国家预计将获得210亿美元的特别提款权储备，兑换为特别提款权的美元将来自美国财政部的外汇稳定基金，但需要通过发行新的美国国债来补充这些美元。](https://www.reuters.com/article/us-usa-treasury-imf/imfs-650-billion-liquidity-boost-could-happen-in-august-u-s-treasury-officials-idUSKBN2BO669)
 
-CGD称，总部位于华盛顿的全球发展中心(CGD)、德国基尔（Kiel）研究所和彼得森国际经济研究所(Peterson Institute for International Economics)的研究人员将中共国的借贷合同与主要贷款人的贷款合同进行了比较，首次对中共对外贷款的法律条款进行了系统评估。他们在77页的报告中说，他们的分析发现了协议的几个不同寻常的特点，这些协议扩大了标准合同内容，以提高还款的机会。报道称，这些条款包括防止借款人透露贷款细则的保密条款、对中方贷款人比其他债权人有利的非正式抵押安排，以及将债务排除在集体重组之外的承诺–被作者称为 “无巴黎俱乐部 “条款。报告补充说，这些合同更利于中共取消贷款或加快还款。
+**5****.欧佩克****+****同意增****产**
 
-CGD高级研究员、该报告的共同作者斯科特-莫里斯说，这些调查结果让人对中共作为G20主要经济体集团之一的角色产生了疑问。该集团已经商定建立 “共同框架体系”，旨在通过允许贫困国家整顿债务负担来帮助它们应对中共病毒的财政压力。该框架要求对包括私人贷款人在内的所有债权人给予可比待遇，但他说，在审查的中共与各国所签的大多数合同中都禁止各国以平等条件并与其他债权人协调重组这些贷款。莫里斯说：”这是一个非常醒目的禁令，这似乎与中共国在G20峰会上做出的承诺背道而驰。”中共国外交部没有立即回复置评请求。
+[知情人士告诉《华尔街日报》，欧佩克+联盟周四同意在未来三个月内开始提高集体石油产量。石油输出国组织（OPEC）与其他主要石油生产商之间达成协议，随着主要经济体的中共病毒疫苗的推广，于5月开始每天生产35万桶石油。消息人士称，6月和7月的桶数将继续增加，每天将达到45万桶。该协议预计将在周四宣布。](https://thehill.com/policy/energy-environment/546021-opec-major-oil-producers-boosting-production-amid-covid-19-vaccine)
 
-研究人员审查的研究材料包括与喀麦隆签订的23份合同，与塞尔维亚和阿根廷签订的10份合同，以及与厄瓜多尔签订的8份合同。
+**6****.****财新3月PMI显示中共国内需疲软**
 
-信息来源：
+[刚刚发布的中共国3月份非官方制造业采购经理人指数（PMI）未达预期，从2月的50.9降至50.6，为2020年4月以来最低水平。财新PMI与此前发布的官方调查结果形成鲜明对比。官方调查显示，在农历新年假期短暂停顿后，大型企业提高了产量，制造业活动增长速度加快。官方调查对象通常是大型国有制造商，而财新/马基特（Markit） PMI调查对象主要是小型、私营和出口型企业。财新调查显示工厂投入成本急剧上升，是40个月来最快涨幅。财新调查也显示，随着全球中共病毒疫苗接种的推广，国外需求增长，导致出口订单又恢复增长。](https://www.voachinese.com/a/china-s-march-factory-activity-growth-lowest-in-almost-a-year-caixin-pmi/5836590.html)
 
-[https://www.reuters.com/article/us-china-emerging-debt/database-reveals-secrets-of-chinas-loans-to-developing-nations-says-study-idUSKBN2BN0EY](https://www.reuters.com/article/us-china-emerging-debt/database-reveals-secrets-of-chinas-loans-to-developing-nations-says-study-idUSKBN2BN0EY)
-
-校对/发稿：Helen
-
-更多资讯，欢迎点击[休斯顿星光农场官方推特账号](https://twitter.com/HLitstar?s=20)！
-
-更多节目资讯，欢迎进入[休斯顿星光G|TV官方链接](https://gtv.org/user/6031a8c0047c4c3086d7683f)！
-
-- ![]()![](https://gnews.org/wp-content/uploads/2021/03/Screenshot-2021-03-25-230524-1.jpg)
-
+By 【金融组 – Kate】
+素材搜集: 文罡、Kate
+校对: Tracy
 
 0
