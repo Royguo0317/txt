@@ -1,63 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共污蔑反抗被种族灭绝的维吾尔族穆斯林犯了 &#8220;仇恨亚洲人&#8221; 罪
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1043440/)
+## 闫博士的报告受到世界专家的高度重视和认可
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1043421/)
 
-**作者：**Ethan Huff 2021-03-31
+简述：在2021年4月1日的盖特视频中，郭先生说闫博士的报告迎头痛击了世卫组织的病毒报告，世卫组织应该叫 “武汉组织”（注：武汉组织的英文为 WuHan Organization，其简写与世卫组织的WHO相同）才更合适。他并痛斥了整个世界的败坏，没有一个人或国家有道德、能力、良知和专业精神，足以来评价闫博士、爆料革命和新中国联邦的贡献。他说“因为这个世界实在是太黑暗了，被共产党这个流氓组织完全是以假、以骗、以黑、以蓝金黄将各国首长都拿下，连美国这样的国家都不能逃过他这种下三滥的手段。”
 
-**翻译：**加拿大温哥华圆成农场 卢卡斯
-![]()![](https://gnews.org/wp-content/uploads/2021/02/GettyImages-1152108739-600x400-2.jpg)图片来源：网络
-《自然新闻》在上周亚特兰大发生假国旗枪击事件后，中国共产党（CCP）正在利用该事件发动一场停止仇恨亚洲人运动。
 
-然而，共产党政权已经从抨击白人转向现在指责它囚禁在集中营中的维吾尔族穆斯林，以及那些支持他们的人，中共仅仅因为这个少数民族宗教团体反对中共对其进行种族灭绝，而发动”反亚仇恨”宣传运动。
 
-据中共称，任何不同意残暴的中共虐待和不人道对待维吾尔族穆斯林的人都被中共打成”种族主义者”。
+**闫博士的报告受到世界专家的高度重视和认可**
 
-中共国官方宣传机构《环球时报》发表了一篇针对维吾尔人及其支持者的仇恨文章，在华盛顿街头爆发大规模抗议活动后，错误地指责他们针对”亚洲人”的”种族主义”。
+**Dr. Yan’s Work Is Highly Recognized by Experts Around the World**
 
-在集会上呼吁中共政权停止迫害维吾尔人，并呼吁世界其他国家确认中共正在从事”种族灭绝”。中共对此作出了回应，指责那些反对中共迫害维吾尔的人是针对”亚洲人”的”种族主义分子”。
+昨天科学家推出的以毒灭共的第三个报告以后，全世界可以说跟 WHO 的所谓的武汉Organization（武汉组织，WHO）所说的所有报告，正好是针尖对麦芒。在这个时候在世界上引起了巨大的反响。
 
-中共喉舌《环球时报》搞笑地宣称：”作为亚裔美国人在美国困境的一个缩影，周日在华盛顿特区举行的停止仇恨亚洲人集会与支持新疆分离主义分子的抗议者发生冲突。
+Yesterday, after our scientist [Dr. Li-Meng Yan] pushed out her third report, [1] aiming for taking down the CCP with the truth about the virus, it has gone head-to-head with the report released by the so-called W.H.O., which should really be called the “WuHan Organization”. So far, Yan’s report has caused a huge response in the world.
 
-“后者高喊’消灭中国’等口号，这是美国敌视中国的极端势力狂热鼓吹的反华言论，不幸在美国引发了反亚洲仇恨浪潮。
+闫博士累得两天没怎么睡觉，昨天发信息说头都疼，觉都没睡。真的是她干得太棒了，受到了世界上科学家、传染病学，还有世界上军事的情报机构，以及生化武器研究专家们，高度的重视和高度的认可。将以毒灭共推向了另外一个层次。
 
-共产主义中国是这个星球上最大的笑话
+Dr. Yan was so tired because she didn’t sleep much for the last two days. She sent a message saying that she had a headache because of the lack of sleep. She really did a fantastic job. She has been highly valued and highly recognized by scientists in infectious diseases, military intelligence agencies, and biochemical weapon experts around the world. This has pushed the movement of taking down the CCP with the truth about the virus to another level.
 
-据中共称，公开反对中共对维吾尔族穆斯林的酷刑和谋杀代表着”对亚裔美国人的歧视”，自从川普总统开始将武汉冠状病毒称为”中国病毒”和”流感”以来，这种歧视就出现了”激增”。
+这背后也有我们博士各个军团，和路德访谈广泛传播。我们爆料革命各农场、G-News、GTV的直播，所有战友们的呼应，都是分不开的。没有这些谁知道？谁知道你？你家里做的饭多香，那别人从来不知道的，因为没人给你宣传，是吧？关键是爆料革命新中国联邦的平台，没有这个平台，闫博士、博士军团也都没有任何意义可以说。
 
-中共更进一步，将所有对其侵犯人权行为的批评归为”反华情绪”。共产党政权声称，反对种族灭绝就是对中国进行”意识形态偏见”。
+Behind this [report], there is our Ph.D. Team and the LuDe Media’s effort in breaking the news broadly, also including the effort of all the farms of our Whistleblower Movement, G-News, GTV’s broadcasting, and all our fellow fighters’ cooperation. Without these efforts, who would know this [report]? Who would know you? No one would know how delicious the food you cook in your home if no one spreads the word for you, right? The key is that we have the platform of the Whistleblower Movement and the New Federal State of China (NFSC). Without this platform, neither Dr. Yan nor the Ph.D. Team’s work would be meaningful.
 
-《环球时报》进一步嘲笑道：”所谓的民主和自由是美国政治家和机构用来获得优越感和压制其他国家的工具。
+这时候就看到了我们打的是群体之仗，引起了世界上媒体、武器研究专家、世界军事和情报专家，这种有核裂变的效应。只有事实才能告诉大家答案。我们也不在乎谁怎么评价我们，更不在乎谁怎么来看我们。到目前我们还没有看到一个活着的，配得上从道德上、从境界上、从能力上、专业上，还配得上来评价我们的以毒灭共和爆料革命的，还没有，还没有， 希望越多越好，一个都没有。如果任何有良知的人，都应该有这个基本的判断。我们战友们当然要有这个自信了。你见过一个道德、能力、良知、专业，能配得上评价我们的吗？没有。
 
-顺便说一句，这种言论在美国左派中很普遍，他们因指责别人做他们做的坏事而臭名昭著。这种把真相放在头上，把肇事者的罪行归咎于受害者的伎俩，似乎很有中国特色。
+Now you can see that the war that we are engaging in is a group fight, and we have caused this kind of nuclear fission effect in the media, bioweapon experts, world military and intelligence experts in the world. Only facts can give everyone the answer. We don’t care how other people comment on us, let alone how others see us. So far we have not seen a living person who has the morality, capacity, and professional ability at a level high enough to evaluate our movement of taking down the CCP with the truth about the virus or our Whistleblower Movement. There has been no one yet, not yet. I hope there are as many such people as possible, but no one at all. If anyone has a conscience, he should have this basic judgment. Of course, our fellow fighters should feel confident. Have you ever seen a person at such a level in morality, ability, conscience, and professionalism that can evaluate us? No.
 
-我们被告知，中共还指示《环球时报》发表文章赞扬黑命贵（BLM）运动，该运动旨在”停止资助”警察，并据称”结束针对黑皮肤的人的种族主义。
+这就是战友的正确的判断。你有什么资格骂我们，评价我们？没有。包括各国政府，我没有一个叫我感到尊重在这事上评价我们的。所以说俺骄傲，俺相当的骄傲。咱不骄傲不行啊，因为这个世界实在是太黑暗了，被共产党这个流氓组织完全是以假、以骗、以黑、以蓝金黄将各国首长都拿下，连美国这样的国家都不能逃过他这种下三滥的手段。这个世界上我们放眼看去，我们只能俯视这个世界，真的不会仰脸看任何东西，因为太黑暗了。在全世界到处杀人的共产党病毒，种族大屠杀、反人类罪的共产党，还竟然有人与他为伍，情何以堪？何来法？何来能力？何来尊重？何来所谓的信仰？
 
-共产主义的中国无视自己作为世界上最大、最丑恶、最压迫性的极权主义警察国家的邪恶存在，现在却胆敢指责美国窝藏”仇恨”，鼓吹”暴力”，允许人民抗议中共及其侵犯人权的行为。
+This is the correct judgment that our fellow fighters should have. What qualifications do they have to scold us or evaluate us? None. Including the governments of various countries, there is no one worth our respect and can judge us on this matter. With that being said, I am proud, very proud. It’s not possible for us not to feel proud because the world is too dark. The rogue organization of the CCP has brought the leaders of all countries to their kneels with falsehood, deception, gangsters’ ways, and the BGY plot. Even countries like the United States cannot escape being corrupted by these dirty means. When we look at this world, we can only look down on people in this world, and really don’t need look up to anybody, because the world is too dark. The CCP is using the CCP virus to kill people all over the world and committing genocide and crimes against humanity, yet there are still people standing with it. How can this be? Where is the justice? Where is the respect? Where is the belief?
 
-布赖特巴特新闻社作家约翰·海沃德（John Hayward）进一步指出中共国的虚伪，中共国抱怨维吾尔族人民抗议对他们的种族灭绝是”反亚洲的”，却无视东突厥斯坦 — 中共称之为新疆的本土 — 完全位于中亚的事实。
+**参考链接：**
 
-“在维吾尔人目前遭受的暴行中，北京强迫维吾尔族妇女与汉族男子生活在一起，因为她们的丈夫被拖进了集中营。这些集中营中的一些人通过劳工项目被运到中共国各地，以防止他们在自己的宗教和文化传统氛围中结婚和抚养孩子。许多人只是被去除生育能力，以保持其人口下降。
+[1] [The Wuhan Laboratory Origin of SARS-CoV-2 and the Validity of the Yan Reports Are Further Proved by the Failure of Two Uninvited “Peer Reviews”](https://zenodo.org/record/4650821#.YGYgvi2caQL)
 
-更多有关中共国的大外宣及其对美国左派的负面影响的新闻可以访问Propaganda.news。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+**视频来源：**[https://gtv.org/getter/6065cd0d49339063d061d99d](https://gtv.org/getter/6065cd0d49339063d061d99d) (2:28-4:47, 5:33-6:35)
+**鸣谢：**感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1043162/](https://gnews.org/zh-hans/1043162/)
 
-**评：**在川普政府的最后期间，美国声明中共对维吾尔人实施了种族灭绝，禁止从新疆省进口棉花，禁止美国投资中共军方相关企业。拜登政府执政后尽管不愿意和中共打一场意识形态之战，但在这些价值观、技术和贸易问题上，并没有像中共预想的那样软化，美国现任国务卿布林肯不仅认同了其前任蓬佩奥中共对维吾尔人种族灭绝的声明，还制裁了另外两名新疆官员。在今年3月22日，欧盟、英国和加拿大宣布就中共侵犯新疆维吾尔族人权的行为，对四名中共官员与一个实体实施旅游禁令和冻结资产，美国也宣布制裁两名中共官员。中共对西方国家清一色制裁中共官员感到不满和恐惧，害怕西方国家进一步对更多更高阶的中共官员进行制裁，美国判定中共在新疆犯下种族灭绝罪是基于人证物证和实拍的视频。中共由于根本无法否认这些铁的证据，只能通过大外宣指责美国也犯有跟中共一样的种族灭绝罪，潜台词就是你美国跟我中共是一副德行，因此没资格来指责和惩罚我的罪过。中共毫无根据地污蔑新疆维吾尔族穆斯林犯了 “仇恨亚洲人” 罪，意思是说新疆人先挑起的种族仇恨，中共对他们实施种族灭绝是有原因的，如果美国等西方国家支持新疆人，那么就是与所有的亚洲人为敌，中共此举既制造种族仇恨又能为自己开脱罪行。美国历史上确实有对印第安人和黑人种族以及在满清末年对替美国修大陆铁路的中国劳工有过迫害，今天美国早已经与这些族群达成和解，这与中共建政以来对新疆，西藏和汉人的迫害和种族灭绝比较，简直是九牛一毛，中共从来没有为自己犯过的种种滔天大罪忏悔赔偿过，一直在掩盖真相洗脑愚民，继续制造更大的杀戮，今天中共的种族灭绝行为是正在进行时。
+* * *
 
-中共大外宣正在制造假新闻鼓吹白人仇恨亚洲人[2]，这是为了挑唆白种人跟亚洲人之间仇恨，制造族群人种之间的对立，中共以此造势团结亚洲国家对抗西方白人世界，其根本目的还是为了搞乱世界来自保。中共的濒临崩溃的经济，自吹自擂的军事实力都是擀面杖子，根本无法与西方国家对抗，中共的谎言一再被爆料革命和西方的正义力量不断戳破，其欺骗手段越来越失去信用和影响力。当前“中共病毒真相”越来越为全世界所知晓，正在成为灭共的最大杀招，因为中共根本承受不了全球对中共病毒的追责。中共剩下的招数也不多了，要么铤而走险发动战争有可能来获得喘息之机，但是更可能导致中共瞬间土崩瓦解，要么束手无策闭关自守坐以待毙。
+字幕：【Rock小哥】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-##### **原文：**Ethan Huff, “CCP says Uyghur Muslims opposing their own genocide are guilty of “hating Asians”
-
-##### ”.《 Natural News》, March 31, 2021.** **[https://www.naturalnews.com/2021-03-31-ccp-uyghurs-opposing-genocide-guilty-hating-asians.html#](https://www.naturalnews.com/2021-03-31-ccp-uyghurs-opposing-genocide-guilty-hating-asians.html)
-
-##### **[1] **纽约香草山农场写作组，“美国定性：中国政府犯下种族灭绝罪和反人类罪**”**。《Gnews》，2021/1/20。[https://gnews.org/zh-hans/775646/](https://gnews.org/zh-hans/775646/)
-
-##### [2]“西方白人对黄种人的恶毒永远不会停止”。2021/3/31。 [https://www.popyard.com/cgi-mod/newspage.cgi?num=7476540&r=0&v=0&k=0](https://www.popyard.com/cgi-mod/newspage.cgi?num=7476540&amp;r=0&amp;v=0&amp;k=0)
-
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-编辑/发布：比卡丘
-
-20210401
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
-+1
++4

@@ -1,52 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士的报告受到世界专家的高度重视和认可
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1043421/)
+## 【世事解评】墙国正式进入人才培养内循环和人才退化的高速公路
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1043567/)
 
-简述：在2021年4月1日的盖特视频中，郭先生说闫博士的报告迎头痛击了世卫组织的病毒报告，世卫组织应该叫 “武汉组织”（注：武汉组织的英文为 WuHan Organization，其简写与世卫组织的WHO相同）才更合适。他并痛斥了整个世界的败坏，没有一个人或国家有道德、能力、良知和专业精神，足以来评价闫博士、爆料革命和新中国联邦的贡献。他说“因为这个世界实在是太黑暗了，被共产党这个流氓组织完全是以假、以骗、以黑、以蓝金黄将各国首长都拿下，连美国这样的国家都不能逃过他这种下三滥的手段。”
+作者：纽约香草山教育部 妖刀
 
 
 
-**闫博士的报告受到世界专家的高度重视和认可**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-**Dr. Yan’s Work Is Highly Recognized by Experts Around the World**
 
-昨天科学家推出的以毒灭共的第三个报告以后，全世界可以说跟 WHO 的所谓的武汉Organization（武汉组织，WHO）所说的所有报告，正好是针尖对麦芒。在这个时候在世界上引起了巨大的反响。
 
-Yesterday, after our scientist [Dr. Li-Meng Yan] pushed out her third report, [1] aiming for taking down the CCP with the truth about the virus, it has gone head-to-head with the report released by the so-called W.H.O., which should really be called the “WuHan Organization”. So far, Yan’s report has caused a huge response in the world.
+经过郭先生领导爆料革命的推动，以及“习一尊”和CCP各级人员的“共同努力”，再加上“战狼”外交的“指引”，CCP不负众望，终于成功地使美、欧、日等各民主国家逐渐认清其邪恶本质，并促使他们联合起来共同抵制CCP。随之而来的，CCP对外贸易处处受到西方的抵制和制裁，走投无路下不得不继续欺骗墙内老百姓，鼓吹经济内循环。
 
-闫博士累得两天没怎么睡觉，昨天发信息说头都疼，觉都没睡。真的是她干得太棒了，受到了世界上科学家、传染病学，还有世界上军事的情报机构，以及生化武器研究专家们，高度的重视和高度的认可。将以毒灭共推向了另外一个层次。
+于此同时，美、欧、日等发达国家开始遣返中共学者和相关留学生，并通过收紧签证等方式大幅削减中国留学生的名额，以此围堵CCP在科技领域的偷盗行为。随着西方留学渠道的逐渐关闭，中（共）国的大学毕业生未来将很难通过留学的方式直接接触人类最先进的科技和文明。至此，中共进入人才培养的内循环时代。
 
-Dr. Yan was so tired because she didn’t sleep much for the last two days. She sent a message saying that she had a headache because of the lack of sleep. She really did a fantastic job. She has been highly valued and highly recognized by scientists in infectious diseases, military intelligence agencies, and biochemical weapon experts around the world. This has pushed the movement of taking down the CCP with the truth about the virus to another level.
+以前，内地顶尖高校的优秀毕业生，通常很容易去往美、欧、日等发达国家的著名高校留学深造，接触和学习先进的科技知识。同时，内地一般高校的毕业生可以补充进入到内地顶尖高校，继续学习深造，如此形成垂直流动的良性循环。那些去往西方著名高校的留学生毕业后，其中一部分逐渐通过各种人才计划被吸引回国，同时又和西方各种机构保持着较好的沟通渠道，从而使得中（共）国各方面的科技得以快速提高和发展。CCP所谓的“改革开放”这几十年的科技发展，基本就是通过这个途径实现的。如果中（共）国是个正常的民主国家，通过留学生正常去西方学习交流，从而提升本国的科技水平，造福本国公民，这是完全正当且合理的。但中国在CCP的专制统治下，这些年的科技发展反被CCP所利用，更加强化了其对国内老百姓的监控、奴役和统治。现在，这条通向西方的留学途径被逐渐关闭了，大批中国留学生无法去往西方继续深造，虽然客观上让CCP接触西方先进科技的主要渠道慢慢减少，使得它获取（偷取）西方技术的可能性大大降低，但这对中国人的未来也将产生深远的负面影响。
 
-这背后也有我们博士各个军团，和路德访谈广泛传播。我们爆料革命各农场、G-News、GTV的直播，所有战友们的呼应，都是分不开的。没有这些谁知道？谁知道你？你家里做的饭多香，那别人从来不知道的，因为没人给你宣传，是吧？关键是爆料革命新中国联邦的平台，没有这个平台，闫博士、博士军团也都没有任何意义可以说。
+由于无法出国留学，加上国内经济形势变差，就业困难，内地各著名高校的优秀毕业生——除了一部分能去香港“留学”以外（香港已经快被CCP变成一个内地普通的城市，逐渐失去了留学的意义）——基本上无处可去，只能留在本校继续读研。因此，从2020年开始，中（共）国出现了一个很滑稽的现象：各高校研究生的生源“普遍提高”了，甚至很多大学的研究生导师还偷偷窃喜。由于被本校毕业生占了大量名额，造成其他一般高校的学生基本很难被更好的著名高校录取读研。这导致大学毕业生所能深造的最好学校基本只能是本校，而每所大学研究生的最好生源基本就是本校的毕业生。至此，人才培养的垂直流动基本停止，真正形成了“近亲繁殖”的内循环模式。
 
-Behind this [report], there is our Ph.D. Team and the LuDe Media’s effort in breaking the news broadly, also including the effort of all the farms of our Whistleblower Movement, G-News, GTV’s broadcasting, and all our fellow fighters’ cooperation. Without these efforts, who would know this [report]? Who would know you? No one would know how delicious the food you cook in your home if no one spreads the word for you, right? The key is that we have the platform of the Whistleblower Movement and the New Federal State of China (NFSC). Without this platform, neither Dr. Yan nor the Ph.D. Team’s work would be meaningful.
+这种“近亲繁殖”的模式必将导致人才培养的退化，导致一代不如一代。即便如此，CCP依然不满足。这两年开始，CCP要求研究生考试必须加入“思政题目”：要求考生对“习一尊”的“名言语录”发表个人看法和观点，以此作为考核的一项决定性指标。如果考生发表的观点和看法不能积极迎合“习一尊”和CCP的“价值观”与“正能量”，其将无法获得研究生深造的资格。内地的所有高校正在遵照CCP的指示，不遗余力的替“中南坑”的权贵们培养忠实的奴仆。长此以往，在CCP的统治下，未来中华民族的人种将跌入逐渐退化的深渊。如今，解救这个民族悲剧的唯一现实可行办法，只有跟随郭先生领导的爆料革命早日推翻CCP，在新中国联邦的监督下形成法治、民主的新中国，彻底变革中国的教育制度，和西方建立千年的互信合作机制，才能将中国人逐渐从深渊中解救回来，并真正释放中华民族的无限潜能。
 
-这时候就看到了我们打的是群体之仗，引起了世界上媒体、武器研究专家、世界军事和情报专家，这种有核裂变的效应。只有事实才能告诉大家答案。我们也不在乎谁怎么评价我们，更不在乎谁怎么来看我们。到目前我们还没有看到一个活着的，配得上从道德上、从境界上、从能力上、专业上，还配得上来评价我们的以毒灭共和爆料革命的，还没有，还没有， 希望越多越好，一个都没有。如果任何有良知的人，都应该有这个基本的判断。我们战友们当然要有这个自信了。你见过一个道德、能力、良知、专业，能配得上评价我们的吗？没有。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-Now you can see that the war that we are engaging in is a group fight, and we have caused this kind of nuclear fission effect in the media, bioweapon experts, world military and intelligence experts in the world. Only facts can give everyone the answer. We don’t care how other people comment on us, let alone how others see us. So far we have not seen a living person who has the morality, capacity, and professional ability at a level high enough to evaluate our movement of taking down the CCP with the truth about the virus or our Whistleblower Movement. There has been no one yet, not yet. I hope there are as many such people as possible, but no one at all. If anyone has a conscience, he should have this basic judgment. Of course, our fellow fighters should feel confident. Have you ever seen a person at such a level in morality, ability, conscience, and professionalism that can evaluate us? No.
+编辑/校对/发稿：Irene木木
 
-这就是战友的正确的判断。你有什么资格骂我们，评价我们？没有。包括各国政府，我没有一个叫我感到尊重在这事上评价我们的。所以说俺骄傲，俺相当的骄傲。咱不骄傲不行啊，因为这个世界实在是太黑暗了，被共产党这个流氓组织完全是以假、以骗、以黑、以蓝金黄将各国首长都拿下，连美国这样的国家都不能逃过他这种下三滥的手段。这个世界上我们放眼看去，我们只能俯视这个世界，真的不会仰脸看任何东西，因为太黑暗了。在全世界到处杀人的共产党病毒，种族大屠杀、反人类罪的共产党，还竟然有人与他为伍，情何以堪？何来法？何来能力？何来尊重？何来所谓的信仰？
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
-This is the correct judgment that our fellow fighters should have. What qualifications do they have to scold us or evaluate us? None. Including the governments of various countries, there is no one worth our respect and can judge us on this matter. With that being said, I am proud, very proud. It’s not possible for us not to feel proud because the world is too dark. The rogue organization of the CCP has brought the leaders of all countries to their kneels with falsehood, deception, gangsters’ ways, and the BGY plot. Even countries like the United States cannot escape being corrupted by these dirty means. When we look at this world, we can only look down on people in this world, and really don’t need look up to anybody, because the world is too dark. The CCP is using the CCP virus to kill people all over the world and committing genocide and crimes against humanity, yet there are still people standing with it. How can this be? Where is the justice? Where is the respect? Where is the belief?
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
 
-**参考链接：**
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
 
-[1] [The Wuhan Laboratory Origin of SARS-CoV-2 and the Validity of the Yan Reports Are Further Proved by the Failure of Two Uninvited “Peer Reviews”](https://zenodo.org/record/4650821#.YGYgvi2caQL)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-**视频来源：**[https://gtv.org/getter/6065cd0d49339063d061d99d](https://gtv.org/getter/6065cd0d49339063d061d99d) (2:28-4:47, 5:33-6:35)
-**鸣谢：**感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1043162/](https://gnews.org/zh-hans/1043162/)
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-* * *
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-字幕：【Rock小哥】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-+4
+
+
+
++5
