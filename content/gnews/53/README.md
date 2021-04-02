@@ -1,45 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共无人机31日绕东沙岛，不排除是侦搜。郭先生盖特：山东部队备战中
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1042583/)
+## 【热点播报】佛州州长发誓要采取行政措施反对“疫苗护照”
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1042647/)
 
-文章作者：台湾宝岛农场 zhong
+作者：纽约香草山翻译部 Naughty（文行）
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
-## **中共无人机绕东沙，东沙易攻难守**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/img-1616383673-99347@900.jpeg)
+佛罗里达州州长在周一的新闻发布会上说，他将采取紧急行政措施，反对疫苗护照，并要求共和党州立法机构起草一份禁止此类护照的法案。
 
-经[新闻报导](https://news.ltn.com.tw/news/politics/breakingnews/3486347)指出，中共今天派无人机对台湾东沙岛进行侦搜，研判为军事或准军事作为。
-![../../../Downloads/螢幕快照%202021-04-01%20下午6.37.47.png](https://lh3.googleusercontent.com/9k3PC50easGkLELA8cXFjffLzGf9e1kJwoS6Xw3lpJmDXrBOmH3BPEhFI8e6oPCchkcNDur7LaBn64wmnsFJQqvS3mVRSouIfxFr1upsS0QfcwgJDSuvdk1mFUerjk3Em4K5ubqA)
-东沙岛，易攻难守。离台湾也远，对于初期军事冲突来说，不二地选。
+德桑蒂斯在塔拉哈西说:“我们总是说，我们想为所有人提供这种服务，而不是强制要求任何人使用它。这只是一些建议，特别是如果你很脆弱，我们不会强迫你这么做。”他补充说:“无论是政府还是私营企业，如果仅仅为了参与正常的社会活动而要求你出示疫苗证明，都是完全不可接受的。”
 
-[郭先生03/31盖特](https://gtv.org/getter/60647e3549339063d061998c)中表示，有墙内人士与郭先生联系，对于山东军队大量集结之后，是真有发起战争的备战准备。在郭先生盖特发布后，台湾海巡署便证实了中共派遣无人机绕东沙岛，疑似进行侦搜任务。
+德桑蒂斯说，他相信人们“拥有一定的自由和个人自由”来决定是否接种该疫苗，并表示如果启动这样的计划，会引起人们对个人隐私的担忧。
 
-其实讲白一点，东沙岛没啥好拍的，更没什么好看的。平白无故派无人机来不就是为了侦搜吗？
-![../../../Downloads/20200609071115219122.jpg](https://lh3.googleusercontent.com/k-uFDs6iyGFvFA5s3pQbBDaFCe914sejTxdz4Bp2eui8u6AyK9whCWzLXYK6-nFr8RN6ueqwMP9YNz0pVTg4cH6BbD9hUdk8e4xaRBXafBVKL-b96l9dVA3MKaQTp0EFiKmq4MvJ)
-图注：东沙岛（没啥好看的是吧？）
+“您想要将所有这些信息提供给某个大公司吗？”州长说，“你想让狐狸守护鸡舍吗？我的意思是饶了我吧。”
 
-## **东沙岛距离高雄约444km，f16 block20作战半径925km尚属于防御范围内**
+州长签署了保护企业和学校免受新冠病毒相关诉讼的法律，随后召开了新闻发布会。德桑蒂斯此前曾表达过他对包括丹麦在内的一些国家已经开始实施的这种护照的反对。
 
-台军在南海尚占有东沙岛、南沙岛、太平岛等，太平岛距离台湾本岛约1700km。台湾现主力战机f16 block20挂载副油箱，勉强可以到达并返航。
+纽约州是美国第一个宣布疫苗护照计划的州，该计划被称为“Excelsior Pass”，它将要求人们使用二维码进入不同场所。
 
-f16战机属于轻型战机，需要挂载三个副油箱尚可将南沙岛纳入作战半径，惟可挂载武器数量大幅减少。基本上无战力可言，因此台湾新购买的F16v战斗机，在机背上有适型油箱，确保毋须挂载副油箱即可达成航程增加。
-![../../../Downloads/800x600_169031075250.jpg](https://lh4.googleusercontent.com/ayvjcYxUnsa99OQ3zXqKY9lk4Ii3Bfh3Y88O61eBI1NoIBhMW7udMeX86cq2RvgRhYqeX5UvSmoR1_p6z2qII_ft4xYc0zUHVDRA0uTXCOY-lQmxTg_ZwIyR3dAzjZhQj-VYB_yP)
-而东沙岛地理位置刚好成为第一岛链遏止中共任意穿越的一个要塞。
-![../../../Downloads/螢幕快照%202021-04-01%20下午6.53.35.png](https://lh5.googleusercontent.com/hskhkR_hAVkO5_arINXogaLanib6ug4EbVzEGcbuZ8wWG4dMrLmRdr90idM_p_YF6BrmaFXpVJdH7fkObepR4pBLo7mDVsUgxhwZ-d0algnBbdssW77rDxT8LjeNSZe_mEaw7jh4)
-但东沙岛地势平坦，易攻难守。反过来说，中共好夺岛，台湾也容易夺回。
+白宫新冠病毒问题高级顾问安迪·斯拉维特(Andy Slavitt)周一早些时候表示，联邦政府“没有把这种方式视为一种护照，也没有把它当作为存储公民数据的地方。”
 
-又东沙岛属于台湾领土，对东沙武力攻击可以达到对台阻吓效果。同时，攻下东沙群岛，也几乎代表着台湾一同失去了南沙群岛、太平岛。除此之外，也大幅降低美军、国际为维护民主、人权等普世价值而直接性武力介入的可能。
+WHO和闫博士的最新报告的巨大反差让全世界认清了新冠病毒就是CCP人工制造的，是袭击全人类的生化武器。“疫苗护照”是CCP妄图通过新冠病毒来控制全世界人类的诡计，值得庆幸的是现在美国已经有人站出来提出抗议，相信很快各国陆续都会跟进出台抵制措施，CCP用病毒控制世界的妄想即将破灭。
 
-南海战略性在今天非过去能相比拟，因此南海诸多岛屿的占据亦成为重点。若中共可以取得实质控制东沙的权利，将可以牵制要进入南海的美军军舰、军机等。
+校对/发稿：飞虹
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
 
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
 
-文章审核：zhong
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-文章发布：Little Liu
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

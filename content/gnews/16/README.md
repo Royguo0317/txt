@@ -1,63 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】改革开放：一场彻头彻尾的骗局（三）——荒谬的发展
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1043513/)
+## 闫博士的报告受到世界专家的高度重视和认可
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1043421/)
 
-作者：纽约香草山农场 理想喜国
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+简述：在2021年4月1日的盖特视频中，郭先生说闫博士的报告迎头痛击了世卫组织的病毒报告，世卫组织应该叫 “武汉组织”（注：武汉组织的英文为 WuHan Organization，其简写与世卫组织的WHO相同）才更合适。他并痛斥了整个世界的败坏，没有一个人或国家有道德、能力、良知和专业精神，足以来评价闫博士、爆料革命和新中国联邦的贡献。他说“因为这个世界实在是太黑暗了，被共产党这个流氓组织完全是以假、以骗、以黑、以蓝金黄将各国首长都拿下，连美国这样的国家都不能逃过他这种下三滥的手段。”
 
 
 
-从1978年开始，中共经历了20年改革开放的尝试，却迟迟无法挽救中（共）国濒临崩塌的经济。但**拨云见日，谁是中国经济的最大功臣？**
+**闫博士的报告受到世界专家的高度重视和认可**
 
-2001年加，中（共）国加入WTO，正式回归正常的全球贸易体系。中（共）国在经济眼看就要崩溃之时回归正常的人类世界，承接了全球的基础制造产业。也正是以美国为首的西方世界接纳中（共）国加入世界经济游戏的这一刻开始，中国经济才真正步入轨道。
+**Dr. Yan’s Work Is Highly Recognized by Experts Around the World**
 
-为了回归世界贸易体系，中共向西方做出了45项承诺（从2001年加入世贸组织，到现在已经20年时间，中共国甚至连入世及格线都还没达到，而且，违反的承诺全都是关键承诺，比如统一制度、关税、金融和防火墙等等）。中共的欺骗加上资本逐利的本性，加入世贸后，外资企业汹涌进入中（共）国，2004年的实际利用外资额超过600亿美元，2010年直接突破了1000亿！
+昨天科学家推出的以毒灭共的第三个报告以后，全世界可以说跟 WHO 的所谓的武汉Organization（武汉组织，WHO）所说的所有报告，正好是针尖对麦芒。在这个时候在世界上引起了巨大的反响。
 
-顺差规模也随之出现了连续的跳涨。2001年的货物贸易顺差规模只有226亿美元，2005年就暴涨到1020亿美元，2006年继续暴涨到1775亿，2015年达到5945亿的峰值。
+Yesterday, after our scientist [Dr. Li-Meng Yan] pushed out her third report, [1] aiming for taking down the CCP with the truth about the virus, it has gone head-to-head with the report released by the so-called W.H.O., which should really be called the “WuHan Organization”. So far, Yan’s report has caused a huge response in the world.
 
-持续的外部资金与产业流入（这里香港起了至关重要的角色：例如香港人才对大陆建设的启蒙培训，例如大陆每年近4000亿美元的贸易转口通过香港，大量的技术引进，近7成中共国外资将香港作为资金通道），帮助中（共）国成功的度过了经济崩溃的风险，并带来了此后连续十几年的经济繁荣，使其成长为基础制造业的世界工厂。
+闫博士累得两天没怎么睡觉，昨天发信息说头都疼，觉都没睡。真的是她干得太棒了，受到了世界上科学家、传染病学，还有世界上军事的情报机构，以及生化武器研究专家们，高度的重视和高度的认可。将以毒灭共推向了另外一个层次。
 
-对比了改革前，改革中20年，和入世20年的三段中国经济历程，我们可以清晰地看到中共在中国经济里面扮演的角色。改革前，中共以社会主义改造的名义没收了地主、资本家、富农等的资产，让自己变成了最大的地主，搞三反五反，人民公社化运动、大跃进，文革……不仅从物质上，而且从精神上，让中国人都变成了“无产阶级”——物质一无所有，精神一贫如洗。
+Dr. Yan was so tired because she didn’t sleep much for the last two days. She sent a message saying that she had a headache because of the lack of sleep. She really did a fantastic job. She has been highly valued and highly recognized by scientists in infectious diseases, military intelligence agencies, and biochemical weapon experts around the world. This has pushed the movement of taking down the CCP with the truth about the virus to another level.
 
-改革开放20年，兜兜转转倒腾了20年，中国经济未见明显起色，改革开放成了一句笑话——因为不敢改革，因为不敢开放。改大了会革到自己的命，开放大了会失去控制，于是收收放放，反反复复……
+这背后也有我们博士各个军团，和路德访谈广泛传播。我们爆料革命各农场、G-News、GTV的直播，所有战友们的呼应，都是分不开的。没有这些谁知道？谁知道你？你家里做的饭多香，那别人从来不知道的，因为没人给你宣传，是吧？关键是爆料革命新中国联邦的平台，没有这个平台，闫博士、博士军团也都没有任何意义可以说。
 
-大家想一想，一个全世界最勤奋的民族，一个十几亿人口的市场，把国门打开什么都不要做，就给全世界缝缝补补，就当打工妹、打工仔，中国的GDP都得值多少钱？ 14亿人每个人去抓一把土，就可以垒成一座山，这是多大的生产力呀？ 现在取得的一点点物质财富是中国人自己打拼下的，早该有的，跟中共一毛钱关系也没有…
+Behind this [report], there is our Ph.D. Team and the LuDe Media’s effort in breaking the news broadly, also including the effort of all the farms of our Whistleblower Movement, G-News, GTV’s broadcasting, and all our fellow fighters’ cooperation. Without these efforts, who would know this [report]? Who would know you? No one would know how delicious the food you cook in your home if no one spreads the word for you, right? The key is that we have the platform of the Whistleblower Movement and the New Federal State of China (NFSC). Without this platform, neither Dr. Yan nor the Ph.D. Team’s work would be meaningful.
 
-在靠西方资本和技术的支持，靠着香港同胞、海外侨胞的鼎立支助，靠着十几亿国人的辛勤汗水与聪慧，换来了中（共）国GDP重回世界第二的成就后，他们就给自己立了一个高高的金字牌坊：在中共伟大光荣正确的“改革开放”政策领导下，中国人民摆脱了贫困，开始富起来了！
+这时候就看到了我们打的是群体之仗，引起了世界上媒体、武器研究专家、世界军事和情报专家，这种有核裂变的效应。只有事实才能告诉大家答案。我们也不在乎谁怎么评价我们，更不在乎谁怎么来看我们。到目前我们还没有看到一个活着的，配得上从道德上、从境界上、从能力上、专业上，还配得上来评价我们的以毒灭共和爆料革命的，还没有，还没有， 希望越多越好，一个都没有。如果任何有良知的人，都应该有这个基本的判断。我们战友们当然要有这个自信了。你见过一个道德、能力、良知、专业，能配得上评价我们的吗？没有。
 
-可悲的是，无数人都信了这个全世界少有的荒谬的故事…
+Now you can see that the war that we are engaging in is a group fight, and we have caused this kind of nuclear fission effect in the media, bioweapon experts, world military and intelligence experts in the world. Only facts can give everyone the answer. We don’t care how other people comment on us, let alone how others see us. So far we have not seen a living person who has the morality, capacity, and professional ability at a level high enough to evaluate our movement of taking down the CCP with the truth about the virus or our Whistleblower Movement. There has been no one yet, not yet. I hope there are as many such people as possible, but no one at all. If anyone has a conscience, he should have this basic judgment. Of course, our fellow fighters should feel confident. Have you ever seen a person at such a level in morality, ability, conscience, and professionalism that can evaluate us? No.
 
-（待续）
+这就是战友的正确的判断。你有什么资格骂我们，评价我们？没有。包括各国政府，我没有一个叫我感到尊重在这事上评价我们的。所以说俺骄傲，俺相当的骄傲。咱不骄傲不行啊，因为这个世界实在是太黑暗了，被共产党这个流氓组织完全是以假、以骗、以黑、以蓝金黄将各国首长都拿下，连美国这样的国家都不能逃过他这种下三滥的手段。这个世界上我们放眼看去，我们只能俯视这个世界，真的不会仰脸看任何东西，因为太黑暗了。在全世界到处杀人的共产党病毒，种族大屠杀、反人类罪的共产党，还竟然有人与他为伍，情何以堪？何来法？何来能力？何来尊重？何来所谓的信仰？
 
-相关阅读：
+This is the correct judgment that our fellow fighters should have. What qualifications do they have to scold us or evaluate us? None. Including the governments of various countries, there is no one worth our respect and can judge us on this matter. With that being said, I am proud, very proud. It’s not possible for us not to feel proud because the world is too dark. The rogue organization of the CCP has brought the leaders of all countries to their kneels with falsehood, deception, gangsters’ ways, and the BGY plot. Even countries like the United States cannot escape being corrupted by these dirty means. When we look at this world, we can only look down on people in this world, and really don’t need look up to anybody, because the world is too dark. The CCP is using the CCP virus to kill people all over the world and committing genocide and crimes against humanity, yet there are still people standing with it. How can this be? Where is the justice? Where is the respect? Where is the belief?
 
-[【世事解评】改革开放：一场彻头彻尾的骗局（一）——破烂的开始](https://gnews.org/zh-hans/1043363/)
+**参考链接：**
 
-[【世事解评】改革开放：一场彻头彻尾的骗局（二）——管控的延续](https://gnews.org/zh-hans/1043462/)
+[1] [The Wuhan Laboratory Origin of SARS-CoV-2 and the Validity of the Yan Reports Are Further Proved by the Failure of Two Uninvited “Peer Reviews”](https://zenodo.org/record/4650821#.YGYgvi2caQL)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+**视频来源：**[https://gtv.org/getter/6065cd0d49339063d061d99d](https://gtv.org/getter/6065cd0d49339063d061d99d) (2:28-4:47, 5:33-6:35)
+**鸣谢：**感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1043162/](https://gnews.org/zh-hans/1043162/)
 
-编辑/校对/发稿：Irene木木
+* * *
 
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+字幕：【Rock小哥】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-+1
++4
