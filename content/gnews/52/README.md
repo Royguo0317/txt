@@ -1,187 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0401.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1042637/)
+## 《路德时评》重磅解读闫博士第三份报告的威力何在
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1043072/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
-
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/03/white-hosue-and-us-flag.jpg)
-
-
-## 外交重心
-
-4月1日，美国国务院发推国务卿布林肯的讲话：美国总统承诺将人权重新置于我们外交政策的中心，这是我和整个国务院非常认真对待的承诺。
+直播视频：
 
 
 
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) has committed to putting human rights back at the center of our foreign policy, and that’s a commitment I and the entire Department of State take very seriously. [pic.twitter.com/24ClNMQz0w](https://t.co/24ClNMQz0w)
-> — Department of State (@StateDept) [April 1, 2021](https://twitter.com/StateDept/status/1377576482101334020?ref_src=twsrc%5Etfw)
+《路德时评》2021年4月1日早间节目主要内容：
+
+一、闫博士第三份报告的威力
+
+闫博士在3月31日发布第三篇题为《两个不请自来的“同行评议 ”的失败，进一步证明了中共病毒的武汉实验室起源和闫氏报告的正确性》的研究报告。
 
 
 
-
-
-## 支持香港
-
-4月1日据华盛顿观察者，斯科特议员称：“随着共产中国对香港的统治基本完成，它的目光已经转向台湾。”
-
-在比以往任何时候都重要，乔-拜登需与我们的盟友合作，遏制北京的影响力。
-
-
-
-> With communist China’s domination of Hong Kong essentially complete, its eyes are already turning to Taiwan, [@SenRickScott](https://twitter.com/SenRickScott?ref_src=twsrc%5Etfw) writes. 
+> The 3rd Yan Report is published!
 > 
-> It is now more important than ever for [@JoeBiden](https://twitter.com/JoeBiden?ref_src=twsrc%5Etfw) to work with our allies to contain Beijing’s reach.
-> 
->  [https://t.co/ELEpID4Dfz](https://t.co/ELEpID4Dfz)
-> — Washington Examiner (@dcexaminer) [April 1, 2021](https://twitter.com/dcexaminer/status/1377601537812357123?ref_src=twsrc%5Etfw)
+> The Wuhan Laboratory Origin of SARS-CoV-2 and the Validity of the Yan Reports Are Further Proved by the Failure of Two Uninvited "Peer Reviews"
+> Link:[https://t.co/Up3aI00aPi](https://t.co/Up3aI00aPi)[#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)[#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedScientificMisinformation](https://twitter.com/hashtag/UnrestrictedScientificMisinformation?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/j2q7hpgAnj](https://t.co/j2q7hpgAnj)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [March 31, 2021](https://twitter.com/DrLiMengYAN1/status/1377248049093828611?ref_src=twsrc%5Etfw)
 
 
 
+闫博士报告中文解读版：《闫博士团队第三篇科学报告戳穿两篇所谓“同行评议”论文的谎言》
 
 
-## 反对社会主义/共产主义
 
-朱利安尼先生推文：“不要忘了，中国和朝鲜的目标是社会主义/共产主义世界。欲知详情，请关注《常识》节目。”
+> [【灭共头条】闫博士团队第三篇科学报告戳穿两篇所谓“同行评议”论文的谎言](https://gnews.org/zh-hans/1041674/)
 
 
 
-> DON'T FORGET, China and North Korea's GOAL is a socialist/communist world. 
-> 
-> Get this full episode of Common Sense on your audio podcast apps or here: [https://t.co/bkYJEETmAD](https://t.co/bkYJEETmAD) [pic.twitter.com/JiFUdeaMPo](https://t.co/JiFUdeaMPo)
-> — Rudy W. Giuliani (@RudyGiuliani) [March 31, 2021](https://twitter.com/RudyGiuliani/status/1377398307417362436?ref_src=twsrc%5Etfw)
+路德社评论：
 
+1、这份报告的体例类似典型的辩论流程，分为三个部分，即开场陈述、对麻省理工学院出版社和约翰•霍普金斯健康安全中心发表的所谓同行评议的“点对点”式的精准驳斥。开场陈述总结了 “超限科学误导 ”的主要事件，包括与中共政权关系密切的个人所执行的各种掩盖行为，以及闫博士团队为揭露中共病毒真相所做的持续努力，展示了中共自证进行“超限生物战”的“著作”[1]——《非典非自然起源和人制人新种病毒基因武器》。
 
+2、闫博士报告的读者不仅有科学界人士，还有军情界人士。闫博士在第二篇报告揭露出李放、王林发以及打杂客等多位冠状病毒界科学家，军情部门随后对这些人进行了布控和调查，现在美国媒体和议员都站出来揭露打杂客私下与中共勾兑的丑恶行径，这些科学家来往的邮件就是被军情部门有关人士曝光到网上的。
 
+3、只要接受美国国家基金资助的科学家必须无条件配合相关部门调查，提供所有资料，军情部门早已经获得他们的来往邮件，就看这些科学家递交的邮件信息是否属实。因为网络的根域名就在美国，美国随时都能掌握你的所有信息，美国调查部门缺的是线索，而闫博士报告为美国调查部门办案提供了非常重要的线索。
 
+4、该报告指出了这些所谓“评议”存在的大量问题：不完整了解或忽视闫博士报告关于中共病毒完整保留舟山蝙蝠ZC45/ZXC21基因组E蛋白骨架的描述、大量引用RaTG13等虚假的蝙蝠病毒基因组做为依据、以受体结合位点的所谓穿山甲来源学说以假盖全、缺少依据和逻辑的偏见、选择性忽视弗林酶切位点出现在β型冠状病毒B链上这一现象的非自然本质、盲目信任中共政权、歪曲生造闫博士论文内容、认为更时髦的CRISPR基因编辑技术一定更好……凡此种种，破绽百出。[1]现在虽然对中共病毒的讨论只停留在实验室来源层面，未来一定会进入更深层次的探讨，因为这是一场战争。
 
-## 是非黑白？究竟谁受歧视？
+5、二战时期，日本也获得情报得知美国根据爱因斯坦提出的理论正在研发原子弹，但是日本心存侥幸就没有进行自主研发，但是美国在得知德国正在研发原子弹后，美国立即加大资金和人力投入，率先成功研发出原子弹。中共现在就是心存侥幸，以为用忽悠的方式就可以骗过全世界，未来只要通过实验验证闫博士报告是正确的，中共必灭亡。
 
-3月30日Newsmax一篇文章《白人教授起诉学院种族歧视，称黑人同行赚得更多》讲述了一位新泽西的化学教授与同事相比，对方和自己同等资历、同等资格只是对方是黑人，他是白人，自己年薪低4-5万美元。他向学校反映申请加薪被拒绝后，求助法律提起诉讼。
+6、任何经过基因编辑的病毒都会留下痕迹，但是中共利用动物传代实验隐藏了这些痕迹，闫博士报告就是将这些都一一揭露出来。闫博士真诚地希望这份报告能够帮助世界认识到正在进行的错误信息运动，并认识到中共病毒是中共政权开发的一种超限生物武器。闫博士团队认为，认识到这一点对于战胜COVID-19大流行病和保护全球社会免受未来生物武器攻击至关重要。[1]昨天，Tucker Show也说到如果不搞清楚中共病毒来源，人类在未来五十年都会受到中共病毒的影响。
 
-小议，无论是不是人类有史以来首个白人状告黑人种族歧视的案例，在这片自由灯塔、曾经白人因教育、收入、文明程度而优越的地方，竟然真实上演了白人受歧视、被弱化的事件，似乎滑稽，实则沉重，因为这与爆料革命中郭先生揭示的共产党“灭白计划”的情报互为佐证。
+二、中共回应WHO调查报告，自煽嘴脸
 
+环球时报最新报道[2]：在世界卫生组织3月30日发布世卫-中国联合专家组赴华溯源研究报告后，联合专家组中方专家3月31日下午在北京召开发布会，介绍报告相关内容，并回击西方部分政客、媒体在报告发布后进行的一系列炒作与质疑。同时，《环球时报》记者3月31日专访多名接近联合溯源专家组的人士和中国专家，他们一致表示，新冠病毒通过实验室引入人类“极不可能”这一观点也是中外科学家的共识，而“中方没向外国专家提供原始数据”更是完全不实的错误说法。
 
+路德社评论：
 
-> ICYMI: White professor suing college for racial discrimination [https://t.co/WxyG31FL5X](https://t.co/WxyG31FL5X) [pic.twitter.com/wlFMN8vYeC](https://t.co/wlFMN8vYeC)
-> — Newsmax (@newsmax) [April 1, 2021](https://twitter.com/newsmax/status/1377596619282071559?ref_src=twsrc%5Etfw)
+1、中共说“病毒实验室来源是不可能的，这已经在中外科学家中达成共识。”现在海外没有一位科学家敢站出来认定中共病毒绝不可能来自实验室，中共不仅把14亿老百姓代表了，还要把海外科学家也给代表了，这就是中共的流氓真相。
 
+2、中共谎称已经将病人数据与外国专家共享，中共提供的数据都是虚假的，它至今没有提交早期患者病毒样本，因为中共很清楚一旦递交原始数据和样本，只有死路一条。
 
+3、中共居然无耻地说：“你很难想象专家到现场以后，对每一例病例，对每一个动物样本，从早期采取的原始记录，一条一条看，这是不现实的，科学研究上也没有这个需要。”做科学研究和调查真相就是要把所有实验数据和样本都挨个检查一遍，真相都藏在细节中，只有这样才能有重大发现，中共这些所谓的砖家把中国人的脸都丢尽了。
 
+4、中共所有冠状病毒专家闭口不谈中共病毒的病毒特性，不谈S蛋白和E蛋白的特点，只谈被他们掩盖的传染病学信息。中共最擅长的不是病毒研究，而是搅混水，所以闫博士才首次提出“超限科学误导”一词，彻底揭露中共才是那个在病毒疫情背后搅混水的罪魁祸首。
 
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
 
-## 现任总统拜登
+参考文章：
 
-4月1日据Newsmax推文，国会想限制拜登的“战争权利”。
+[1][https://gnews.org/zh-hans/1041674/](https://gnews.org/zh-hans/1041674/)
 
+[2][https://world.huanqiu.com/article/42XTDwGyb2S](https://world.huanqiu.com/article/42XTDwGyb2S)
 
+文章撰写：【重生】  编辑：【香柏树】
 
-> Congress wants to limit Biden's 'war powers' [https://t.co/MH0a9H3CCW](https://t.co/MH0a9H3CCW) [pic.twitter.com/zpniHZ2MF2](https://t.co/zpniHZ2MF2)
-> — Newsmax (@newsmax) [April 1, 2021](https://twitter.com/newsmax/status/1377601651440295938?ref_src=twsrc%5Etfw)
-
-
-
-Newsmax名嘴凯里推文：“他又开始吹嘘中国总统在电话里给了他多少时间。 乔，你被耍了！（又一次）”
-
-
-
-> Here he goes BRAGGING about how much time the CHINESE PRESIDENT gave him on the phone. Joe, you got played ! (Again ) [pic.twitter.com/MFEcysLqLZ](https://t.co/MFEcysLqLZ)
-> — Greg Kelly (@gregkellyusa) [March 31, 2021](https://twitter.com/gregkellyusa/status/1377365332902309889?ref_src=twsrc%5Etfw)
-
-
-
-## 美国政界
-
-据Newsmax推文：“彭斯2024？前副总统彭斯为2024年的竞选奠定基础。”
-
-
-
-> PENCE 2024?: The former VP lays groundwork for 2024 run [https://t.co/NdyTbvN3Id](https://t.co/NdyTbvN3Id) [pic.twitter.com/hjnawUdkGQ](https://t.co/hjnawUdkGQ)
-> — Newsmax (@newsmax) [April 1, 2021](https://twitter.com/newsmax/status/1377586552755326985?ref_src=twsrc%5Etfw)
-
-
-
-
-
-3月31日OANN采访朱利安尼先生后发推：
-
-朱利安尼先生给我们讲述了国会议员1（H. R. 1）的真实故事。他说，“如果H. R. 1通过它现在写的形式， 我们将成为一个一党制的国家… …我不认为接下来几年有任何希望会出现第二党。”
-
-
-
-> .[@RudyGiuliani](https://twitter.com/RudyGiuliani?ref_src=twsrc%5Etfw) gives us THE REAL STORY on H.R. 1:
-> 
-> “If H.R. 1 were to pass in the form that it’s written now, we would be a one-party country…and I don’t see any prospect that a second party could emerge in years.”
-> 
-> ICYMI [@OANN](https://twitter.com/OANN?ref_src=twsrc%5Etfw):[https://t.co/zLrJnN5UYq](https://t.co/zLrJnN5UYq)
-> — Natalie Harp (@NatalieJHarp) [April 1, 2021](https://twitter.com/NatalieJHarp/status/1377414282841710592?ref_src=twsrc%5Etfw)
-
-
-
-## 川普总统的官司
-
-3月31日JustTheNews报道，跟据《纽约时报》援引 “知情人士 “的话报道，在曼哈顿对前总统川普及其企业进行调查的州检察官已经传唤了川普组织首席财务官艾伦-H-魏塞尔伯格的个人银行记录，并对魏塞尔伯格及其亲属从川普那里得到的礼物提出质疑。”
-
-《泰晤士报》援引 “对银行送达传票的知情人士 “的话报道，川普或其企业在其中开设账户的银行也被传唤了记录，包括摩根大通和Capital One等。
-
-
-
-
-
-> State prosecutors subpoena personal bank records of Trump Organization’s chief financial officer | Just The News [https://t.co/A19vAetFXo](https://t.co/A19vAetFXo)
-> — John Solomon (@jsolomonReports) [April 1, 2021](https://twitter.com/jsolomonReports/status/1377555096746221572?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 疫苗接种后记得戴口罩
-
-JuesTheNews新闻：“参议员保罗喊话蝠奇博士，打完疫苗戴上多层口罩。”
-
-
-
-> Sen. Paul calls out Dr. Fauci for wearing multiple masks after being fully vaccinated | Just The News [https://t.co/WMsydq7Tce](https://t.co/WMsydq7Tce)
-> — John Solomon (@jsolomonReports) [April 1, 2021](https://twitter.com/jsolomonReports/status/1377581526754398208?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 愚人节
-
-4月1日美国卫生公共服务中心推文：“健康无戏言。今年严肃对待疫情保护好自己的5步骤：打疫苗，戴口罩，自我关心，常规健康习惯，戒烟”。
-
-小议，既然疫苗有效，为何打了疫苗还要戴口罩？虽说无戏言，这本身自我矛盾的说法是要配合4月1日的愚人节吗？
-
-
-
-> Health is no joke. Take charge of your well-being with our top five things to take seriously this year. [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#AprilFools](https://twitter.com/hashtag/AprilFools?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/mCbeN7t5yJ](https://t.co/mCbeN7t5yJ)
-> — HHS.gov (@HHSGov) [April 1, 2021](https://twitter.com/HHSGov/status/1377599131129110528?ref_src=twsrc%5Etfw)
-
-
-
-从2021年4月1日起，生化核辐防御联合方案执行办公室已经开始野战核生化娱乐车。#生化核辐 #愚人节。
-
-
-
-> As of April 1, 2021, JPEO-CBRND has begun fielding the Nuclear Biological Chemical Recreational Vehicle [#AprilFoolsDay](https://twitter.com/hashtag/AprilFoolsDay?src=hash&amp;ref_src=twsrc%5Etfw) [#CBRN](https://twitter.com/hashtag/CBRN?src=hash&amp;ref_src=twsrc%5Etfw) [#AprilFools](https://twitter.com/hashtag/AprilFools?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/qTTD4274Ph](https://t.co/qTTD4274Ph)
-> — JPEO-CBRND (@JPEOCBRND) [April 1, 2021](https://twitter.com/JPEOCBRND/status/1377586289801887746?ref_src=twsrc%5Etfw)
-
-
-
-小议：分秒都在失去生命的世界在超限病毒生物战之下，混乱开始侵蚀自由灯塔的美国，美国战士苦中作乐，可是您笑得出吗？在这个黑暗的年代战友们跟随新中国联邦，看到了光明和希望，未来能够真正会心而笑，当然那不是在愚人节；可是回首从“119”闫博士通过路德社向全世界宣布中共病毒疫情大爆发至今，一年多过去了，大多数人仍然不知病毒真相，这难道不是中共让全世界每天都过愚人节吗？可叹可悲。现在爆料革命要让这一切改变了，要让世人不再过中共的愚人节了！
-
-
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
-
-0
++2

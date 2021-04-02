@@ -1,148 +1,69 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0401.2021（下）持续更新中
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1043370/)
+## 【世事解评】改革开放：一场彻头彻尾的骗局（二）——管控的延续
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1043462/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+作者：纽约香草山农场 理想喜国
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/03/white-hosue-and-us-flag.jpg)图片来源：康州盘古农场 霹雳年
-## 病毒来源二审！
 
-2021年愚人节全世界仍然在中共病毒超限生物战的枪林弹雨之下，美国国务院转推了30日发布的美国为首14国《关于世卫组织召集的COVID-19起源研究的联合声明》，再次重申结束从此被中共及其党羽世卫组织等愚弄的命运。
 
-美国国务院发言人今日推文：“本周，美国与许多盟友和合作伙伴一起，对最近世界卫生组织关于COVID起源的研究表示关切。我们今后需要一个更好的调查程序，并支持这项研究的第二阶段由专家推动，及时和透明。”
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
 
-> This week, the U.S. together with many allies and partners, shared concerns over the recent [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw) study on COVID origins: We need a better investigative process in the future and support an expert-driven, timely, and transparent phase 2 of this study. [https://t.co/u2cvIy7ZA2](https://t.co/u2cvIy7ZA2)
-> — Ned Price (@StateDeptSpox) [April 1, 2021](https://twitter.com/StateDeptSpox/status/1377671199573086209?ref_src=twsrc%5Etfw)
+经过三十年的动荡，中共终于打算给饱经风霜的中华大地盖上一层虚假的发展外衣。此时的中共**管天管地管空气——一切改革都从违法开始**。
 
+邓小平被称为“中国改革开放的总设计师”，这个称谓让所有国人都以为，发生于1978年之后的改革开放是一场经过精心设计、有长远规划的试验。然而，事实果真如此吗？
 
+1976年10月，文革结束，中（共）国延续了此前的严管模式：严禁民营产业，严禁国民拥有私人财富，对外国资本家充满敌视。当时，民众开办企业，从事生产经营活动，都是是一种刑事犯罪行为。
 
+1978年11月，安徽凤阳几个饥饿的农民为了生存，决定秘密分地单干，以激励生产积极性，不再受公社约束。这一举动事实上意味着农民私分集体财产，自己拥有了土地这种生产资料。根据当时的刑法，这就是犯罪（若放在文革时期，这个村的农民基本上都是被批斗到死的命）。
 
+1978年12月，“十一届三中全会”召开，在党和政府控制和管理所有社会资源的计划经济模式走投无路的情况下，终于在政治上决定开始尝试“对外开放”，吸引外国资本家来中（共）国开厂；对内决定尝试赋予人民更多的权利，让人民拥有更多的财富。于是，安徽这几个农民幸运的活了下来。中（共）国农民基本的求生本能催生了家庭联产承包责任制，最终成为“改革开放”启动的样本。然而，1980年代的改革，就到这里为止了。允许农民尝试搞承包责任制，但是严禁转包，禁止承包经营权流转，甚至连继承都予以禁止，这事实上相当于否认了农民对土地的财产权。
 
-## 对中共病毒的怒火烧到了蝠奇
+这期间，中共尝试吸引外资，但由于制度层面的严重缺失，外资普遍缺乏安全感，整个1980年代进来的外资屈指可数，年投资规模只有几十亿美元。所谓1980年代的改革开放，也就是引入了少量外国的进口优质产品，来与国内傻大黑粗的国企产品相竞争。外国的好东西当然人人都想买，外汇又不够，无法实现每个人都拥有。在这种背景下，特供制度和价格双轨制公然登场——所有的好东西，优先保证各种权贵家庭先行享有。权贵家庭享受之余，手里还有多余的商品指标就拿去倒卖盈利，这就是著名的“官倒”现象。老百姓开个小摊炒瓜子都算刑事犯罪，但是官员空手套白狼，倒卖各种紧缺商品，竟然可以堂而皇之无人追责，简直是滑天下之大稽。官倒、权钱交易、腐败、特权、贫富分化扩大等种种问题愈演愈烈，于是到了1989年，就掀起了一场反官倒、追求民主自由、要求政治改革的全国性政治运动，也就是“89·64”民主运动。
 
-愚人节的消息多，可不都是为娱乐而来。
+“89·64”最终以中共屠杀学生血腥镇压收场，于是，国内意识形态再次收紧。尽管邓小平在1992年重新推动经济的市场化运动，但是，自由化可能造成的对共产党统治地位的威胁为当局所最高警惕。尤其是1990年苏联的解体以及东欧各社会主义国家的“集体变色”，更是让中共感到了空前的执政危机。正是在这样的背景下，“弱中央、强地方”、“弱政府、强民间”的模式遭到质疑——经济集权主义成为必然性的选择。
 
-今日共和党众议员格林（Taylor Greene）提出法案，将蝠奇(Anthony Fauci)的40万美元工资降为零，直到他被取代为止。根据《福布斯》蝠奇是包括总统在内的所有400万联邦雇员中工资最高的（434,312美元）。《福布斯》还报道称，从2010年到2019年，蝠奇赚了360万美元。自2014年以来，他的工资从33.5万美元增加到目前的417608美元。
+邓南巡之后，老百姓终于拥有了一点“人权”：逐渐被允许拥有私人财产，被允许开办私人企业，投机倒把之类的犯罪逐渐被取消，价格双轨制消失了，官倒被严惩，权贵们的政治地位被拉低。难道是中共从良了？当然不是。他们获得的远比失去的多——各种向民众开放的产业经济领域，权贵们都可以让白手套参与。由于他们更灵通的消息来源、更广泛的人脉和更强大的融资能力，他们的企业很快就在大量的产业领域拥有了近乎压倒性的优势地位，并延续至今，形成了中（共）国特色的权贵资本主义体制。
 
-小议，川普总统在任四年分毫未收，却无功而返。蝠奇却配合中共病毒的真相把口罩说、疫苗论乃至抢功川普总统玩得风生水起。然而美国民众在文贵先生引领的爆料革命和众多美国正义联盟者如班农先生、蓬佩奥国务卿、纳瓦罗博士等等传递真相的不懈努力下，早已开始苏醒。近日媒体撕裂了过去对中共病毒来源真相三缄其口的窗纸、议员对中共种族屠杀进行声讨，就是美国所有台前、幕后决策力量和沼泽地的态度。对中共追责病毒来源的火势将熊熊燃起，先从中共的炮灰走狗开始，“痰得塞”都反水了，蝠奇还等什么？
+1990年代之后，中（共）国民营经济终于松了脚镣，能开些小企业炒瓜子卖了。但是手铐还在：正常的低买高卖行为，依然被视为投机倒把——这事实上依然堵死了民间贸易的渠道。吸引外资方面，依然是进展很慢。每年的实际利用外资总规模长期维持在500亿美元左右，对中（共）国嗷嗷待哺的经济来说，实在是杯水车薪。因此，中共的对外贸易也很难开展。1980年代的十年里，对外贸易基本处于净逆差状态，每年的逆差规模都有几十亿美元——自己的生产能力没发展起来，净进口外国的好东西了。到了1990年代，总算只有一年逆差，其它都是顺差，但顺差规模也不大，每年只有几十亿到百把多亿美元。
 
+这么发展到1990年代后期的时候，中（共）国经济已经发展到了瓶颈阶段，眼看着就要崩塌了——庞大臃肿、毫无效率的国有企业被外资企业和进口商品打得溃不成军，长年累月的亏损。那时，市面上每个人都在找进口商品的渠道，都在黑市兑换美元。
 
+时间来到朱镕基当政时期，中共还是继续“改革”：实施分税制，把税收统统收归中央，让中央集中财力办大事；把住宅商品化，想尽办法掏老百姓手里的银子；为减轻财政压力，将国企抓大放小，国有企业经营者与地方政府、银行上下其手，据国有资产为己有，同时也让千万国企工人下岗。但是这些效果都不大，只能算是苟延残喘，拖住了一口气。
 
-> 🚨NEW BILL ALERT!🚨
-> 
-> The "[#FireFauci](https://twitter.com/hashtag/FireFauci?src=hash&amp;ref_src=twsrc%5Etfw) Act" will slash the salary of Dr. Always Wrong to $0 and the "[#WeWillNotComply](https://twitter.com/hashtag/WeWillNotComply?src=hash&amp;ref_src=twsrc%5Etfw) Act" will ban vaccine "passports," prevent discrimination against the unvaccinated, and much more to protect the freedom of the American People. [pic.twitter.com/JVR01lBID5](https://t.co/JVR01lBID5)
-> — Rep. Marjorie Taylor Greene (@RepMTG) [April 1, 2021](https://twitter.com/RepMTG/status/1377647623339905035?ref_src=twsrc%5Etfw)
+就这样拖到了2000年，中共才在法律领域彻底废止了投机倒把罪。也就是说到了21世纪，广东的商人从新疆低价进一批棉花，然后高价卖给英国商人，才算是正当合法的行为，不用再被抓去坐牢或者被高额处罚。改革开放了20几年，中国人第一次合法地拥有基本的做生意的权利。试问，是谁阻碍了中国经济的发展？谁是中国经济止步不前的罪魁祸首？
 
+回顾历史，我们一再看到这样的景象：中国因拥有最广袤的内需市场和喜乐世俗消费的民众，经济的复苏从来不是一件特别困难的事情。早在20世纪30年代，历史学家傅斯年就给出过一个经济兴衰周期说：根据他的观察，中国只要有70年稳定期，必定重获大繁荣，从秦末大乱到“文景之治”，从隋文帝统一到唐太宗的“贞观之治”，从宋太祖结束五代十国到范仲淹一代的中兴，以及清代的“康乾盛世”，期间均不过两三代人。在他看来，中国若无战乱，十年可恢复，三十年可振兴，五十年到七十年必成盛世。
 
+然而，在中共手里，从1949年建国到文革结束，把中国的经济、文化、人性都砸烂，害死无数人，折磨了整个国家近30年，成功让中国一穷二白。从1978年起又开始做了各种尝试，折腾了二十年，也未见起色。前后50年，中国失去了整整半个世纪。换一头猪来管理中国经济，都比共产党要好。古代的帝王尚且懂得休养生息、无为而治；现代西方文明也推崇小政府大市场。共产党不仅抛弃老祖宗的经验，也把西方现代文明抛诸脑后——管天管地管空气，阉割人的思想，禁锢人的自由，约束人的精神，压制人的天性，是社会主义公有制经济的最大特色。
 
+（待续）
 
+相关阅读：
 
-## 美国总统的艾滋病救济紧急计划
+[【世事解评】改革开放：一场彻头彻尾的骗局（一）——破烂的开始](https://gnews.org/zh-hans/1043363/)
 
-国务院发言人今日转发国务卿布林肯推文时称：“自2003年以来，”总统艾滋病紧急救援计划 “总投资超过850亿美元，帮助拯救了2 000万人的生命，预防了数百万人感染艾滋病毒，并大大加强了54个国家的地方卫生系统。这是美国人可以引以为豪的拯救生命的领导力。”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-布林肯推文：“很荣幸能与来自世界各地的美国总统的艾滋病救济紧急计划（PEPFAR）团队成员虚拟聚会，帮助启动PEPFAR 2021规划会议。我为他们的成就深感自豪，并感谢他们对这一拯救生命事业的承诺。”
+编辑/校对/发稿：Irene木木
 
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
 
-> With more than $85 billion in total investments since 2003, [@PEPFAR](https://twitter.com/PEPFAR?ref_src=twsrc%5Etfw) has helped save 20 million lives, prevent millions of HIV infections, and significantly strengthen local health systems across 54 countries. This is life​-saving leadership Americans can be proud of. [https://t.co/edEbIbwqNF](https://t.co/edEbIbwqNF)
-> — Ned Price (@StateDeptSpox) [April 1, 2021](https://twitter.com/StateDeptSpox/status/1377698768183787526?ref_src=twsrc%5Etfw)
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
 
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
 
-## 国际体系讲规则
 
-美国国务院今日发推国务卿布林肯讲话内容：“这是关于维护过去75年里我们所有人为之奋斗的基于规则的国际体系，它很好地服务于我们的利益和我们的价值观。”
 
-
-
-> .[@SecBlinken](https://twitter.com/SecBlinken?ref_src=twsrc%5Etfw): It’s about holding up the international rules-based system that all of us have invested so much into over the last 75 years. And it has served our interests and our values very well. [pic.twitter.com/9clvP1vRK1](https://t.co/9clvP1vRK1)
-> — Department of State (@StateDept) [April 1, 2021](https://twitter.com/StateDept/status/1377609343793836039?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 重申美国价值观
-
-今日蓬佩奥国务卿接受人权活动家、自媒体主播阿亚安（Ayaan Hirsi Ali）采访，谈论了美国的价值观。他们讨论了极端主义意识形态、世界大国的竞争、伊朗核协议的未来以及美国与中共国的关系。他们还讨论了不可剥夺权利委员会的报告。[点击收听访谈。](https://podcasts.apple.com/us/podcast/secretary-mike-pompeo-on-american-values/id1552059697?i=1000515379496)
-
-
-
-> What an honor to have [@mikepompeo](https://twitter.com/mikepompeo?ref_src=twsrc%5Etfw) join me to discuss China, Iran, and the future of American foreign policy. [https://t.co/z4nbiY8HD8](https://t.co/z4nbiY8HD8)[https://t.co/xcP7SCSaxR](https://t.co/xcP7SCSaxR)[https://t.co/hJW3yqGDNz](https://t.co/hJW3yqGDNz)
-> — Ayaan Hirsi Ali (@Ayaan) [April 1, 2021](https://twitter.com/Ayaan/status/1377638798146813954?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 会见台湾代表
-
-彭配奥先生今日推文：“昨天很高兴看到台湾驻美国代表萧美琴。作为国务卿，我在面对无情的压力时，努力支持台湾–一个民主的同胞。美国与台湾共享自由、民主和自由市场经济的核心价值。”
-
-
-
-> Great to see Taiwan Rep. [@bikhim](https://twitter.com/bikhim?ref_src=twsrc%5Etfw) yesterday. As Secretary of State, I worked to support Taiwan — a fellow democracy — in the face of unrelenting pressure. The U.S. shares with Taiwan the core values of freedom, democracy, and a free market economy. [pic.twitter.com/KdNyG5thgB](https://t.co/KdNyG5thgB)
-> — Mike Pompeo (@mikepompeo) [April 1, 2021](https://twitter.com/mikepompeo/status/1377622099460767745?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 反对严格选举、支持中共种族屠杀者
-
-据Newsmax, 由于2020总统选举期间的选民欺诈行为，乔治亚州共和党立法者3月25日推动签署了该州新选举立法，对投票规则作出严格限制。达美航空首席执行官艾德-巴斯蒂安（Ed Bastian）在给员工的一份说明中表示，佐治亚州的新投票法 “不符合达美航空的价值观”。
-
-参议员卢比奥于周四发给达美航空的推特中说，“你们是 #中国共产党 的商业伙伴”，“我们什么时候可以期待你的信，说他们在 #新疆的持续种族屠杀 是不可接受的，不符合达美的价值观？”
-
-苹果公司首席执行官库克（Tim Cook）也反对该项立法，他说“苹果认为，部分得益于技术的力量，每个符合条件的公民行使投票权应该比以往任何时候都更容易”，他表示要为“未来比过去更有希望和包容性而做出的努力。”
-
-
-
-> Marco Rubio slams Delta over China after CEO weighs in on voter curbs [https://t.co/WIHQ5hwKA7](https://t.co/WIHQ5hwKA7)
-> — Newsmax (@newsmax) [April 1, 2021](https://twitter.com/newsmax/status/1377689761800982532?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 拜登家族
-
-3月31日据Justthenews, 两个有影响力的参议院委员会的顶级共和党人格拉斯利（参议院司法委员会的最高共和党人），和约翰逊（国会最有权力的调查机构之一、参议院常设调查小组委员会的首席委员），周三要求美国司法部和国家情报总监办公室交出他们所掌握的有关据说与总统拜登家族有联系的三名中国人物的任何情报和《外国情报监视法》（FISA）规定的证据，包括与叶剑明、董功文和何志平有关的 “所有FISA衍生信息”。
-
-他们在信中援引报道称，在2017年何某因 “国际贿赂和洗钱罪 “被捕后，他 “第一个电话据说是打给总统的弟弟詹姆斯-拜登”。信中说，
-
-总统的儿子亨特-拜登 “在一段时间内代表何某，并收到了至少100万美元的报酬”。
-
-根据在亨特-拜登笔记本电脑上发现的记录，“亨特-拜登很清楚何某与中共政府、特别是其情报部门的联系”。
-
-何是叶的生意伙伴，而叶据称也与拜登夫妇关系密切。叶本人 “据说与共产党政权的人民解放军有联系”。
-
-拜登总统2017年离开奥巴马政府后，和詹姆斯-拜登与叶的一名助手共享办公空间。“如果准确的话，与中国公民和与中共政权及其军方有联系的实体共享办公空间需要额外的解释”。
-
-信中要求 “最迟在2021年4月14日之前提供所有情报记录，包括但不限于与“叶、何和董”有关的所有FISA衍生信息”。
-
-小议，美国为首的世界正义联盟即将追责中共之前，与之过从甚密的拜登家族再次进入人们的视线，并正式由官方介入。其实人们从未忘记与中共勾结欺凌中国人的拜登家族，尤其是当中美双方的“沼泽地”都发力之时，而这一切皆源于爆料革命的推动。中共赤魔灭亡之前一定带走大妖小怪无数，所以早日认清形势、投诚反水，加入爆料革命才是明智的出路。
-
-（此项新闻来源 [https://justthenews.com/government/congress/johnson-grassley-ask-doj-oni-info-chinese-communist-linked-officials-ties](https://justthenews.com/government/congress/johnson-grassley-ask-doj-oni-info-chinese-communist-linked-officials-ties)）
-
-
-
-
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
 +3

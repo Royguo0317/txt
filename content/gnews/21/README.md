@@ -1,52 +1,83 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士的报告受到世界专家的高度重视和认可
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1043421/)
+## 【世事解评】改革开放：一场彻头彻尾的骗局（四）——谎言的本质
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1043529/)
 
-简述：在2021年4月1日的盖特视频中，郭先生说闫博士的报告迎头痛击了世卫组织的病毒报告，世卫组织应该叫 “武汉组织”（注：武汉组织的英文为 WuHan Organization，其简写与世卫组织的WHO相同）才更合适。他并痛斥了整个世界的败坏，没有一个人或国家有道德、能力、良知和专业精神，足以来评价闫博士、爆料革命和新中国联邦的贡献。他说“因为这个世界实在是太黑暗了，被共产党这个流氓组织完全是以假、以骗、以黑、以蓝金黄将各国首长都拿下，连美国这样的国家都不能逃过他这种下三滥的手段。”
+作者：纽约香草山农场 理想喜国
 
 
 
-**闫博士的报告受到世界专家的高度重视和认可**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-**Dr. Yan’s Work Is Highly Recognized by Experts Around the World**
 
-昨天科学家推出的以毒灭共的第三个报告以后，全世界可以说跟 WHO 的所谓的武汉Organization（武汉组织，WHO）所说的所有报告，正好是针尖对麦芒。在这个时候在世界上引起了巨大的反响。
 
-Yesterday, after our scientist [Dr. Li-Meng Yan] pushed out her third report, [1] aiming for taking down the CCP with the truth about the virus, it has gone head-to-head with the report released by the so-called W.H.O., which should really be called the “WuHan Organization”. So far, Yan’s report has caused a huge response in the world.
+自从中共加入了WTO之后，中共经济终于开始突飞猛进的发展，似乎中国和中国人民也都一起富裕了。事实却是，**时间是最好的答案，结果是最好的证明——“改革开放”富了谁？**
 
-闫博士累得两天没怎么睡觉，昨天发信息说头都疼，觉都没睡。真的是她干得太棒了，受到了世界上科学家、传染病学，还有世界上军事的情报机构，以及生化武器研究专家们，高度的重视和高度的认可。将以毒灭共推向了另外一个层次。
+有人会说，加入WTO不是中共的功劳吗？当然不是。如果中国不是因为中共领导的这种反人性的体制，西方又怎么会处处提防呢？中共靠欺骗换来的加入世贸，又靠着出卖中国廉价劳动力逐渐富有——中国是富了，可惜富的是盗国贼。
 
-Dr. Yan was so tired because she didn’t sleep much for the last two days. She sent a message saying that she had a headache because of the lack of sleep. She really did a fantastic job. She has been highly valued and highly recognized by scientists in infectious diseases, military intelligence agencies, and biochemical weapon experts around the world. This has pushed the movement of taking down the CCP with the truth about the virus to another level.
+因缺乏统计数据，我们简单对比下有公开报道的一些贪官的贪腐金额变化：
 
-这背后也有我们博士各个军团，和路德访谈广泛传播。我们爆料革命各农场、G-News、GTV的直播，所有战友们的呼应，都是分不开的。没有这些谁知道？谁知道你？你家里做的饭多香，那别人从来不知道的，因为没人给你宣传，是吧？关键是爆料革命新中国联邦的平台，没有这个平台，闫博士、博士军团也都没有任何意义可以说。
+- 80年代，原黑龙江省宾县燃料公司经理兼党支部书记王守信贪污数十万；
+- 90年代，原江西省副省长胡长清因索贿受贿544万余元；
+- 00年代，中（共）国人民解放军海军原副司令王守业：受贿1亿多元；
+- 10年代，原解放军后勤总部副部长谷俊山贪腐一案涉案金额达到200亿元人民币以上。
 
-Behind this [report], there is our Ph.D. Team and the LuDe Media’s effort in breaking the news broadly, also including the effort of all the farms of our Whistleblower Movement, G-News, GTV’s broadcasting, and all our fellow fighters’ cooperation. Without these efforts, who would know this [report]? Who would know you? No one would know how delicious the food you cook in your home if no one spreads the word for you, right? The key is that we have the platform of the Whistleblower Movement and the New Federal State of China (NFSC). Without this platform, neither Dr. Yan nor the Ph.D. Team’s work would be meaningful.
 
-这时候就看到了我们打的是群体之仗，引起了世界上媒体、武器研究专家、世界军事和情报专家，这种有核裂变的效应。只有事实才能告诉大家答案。我们也不在乎谁怎么评价我们，更不在乎谁怎么来看我们。到目前我们还没有看到一个活着的，配得上从道德上、从境界上、从能力上、专业上，还配得上来评价我们的以毒灭共和爆料革命的，还没有，还没有， 希望越多越好，一个都没有。如果任何有良知的人，都应该有这个基本的判断。我们战友们当然要有这个自信了。你见过一个道德、能力、良知、专业，能配得上评价我们的吗？没有。
+中国人均GDP从1980年的156.4元到2019年的10217元，增长了55倍，但公开报道的贪腐金额却增长了几千倍。这还只是公开的，未公开的真实数据只多不少，特别是实权派实际盗取的国家财富再加几个零都不为过。
 
-Now you can see that the war that we are engaging in is a group fight, and we have caused this kind of nuclear fission effect in the media, bioweapon experts, world military and intelligence experts in the world. Only facts can give everyone the answer. We don’t care how other people comment on us, let alone how others see us. So far we have not seen a living person who has the morality, capacity, and professional ability at a level high enough to evaluate our movement of taking down the CCP with the truth about the virus or our Whistleblower Movement. There has been no one yet, not yet. I hope there are as many such people as possible, but no one at all. If anyone has a conscience, he should have this basic judgment. Of course, our fellow fighters should feel confident. Have you ever seen a person at such a level in morality, ability, conscience, and professionalism that can evaluate us? No.
+“改革开放要让一部分人先富起来，然后先富带后富，共奔富裕路。”这句话随着时间的推移，越来越刺耳了……
 
-这就是战友的正确的判断。你有什么资格骂我们，评价我们？没有。包括各国政府，我没有一个叫我感到尊重在这事上评价我们的。所以说俺骄傲，俺相当的骄傲。咱不骄傲不行啊，因为这个世界实在是太黑暗了，被共产党这个流氓组织完全是以假、以骗、以黑、以蓝金黄将各国首长都拿下，连美国这样的国家都不能逃过他这种下三滥的手段。这个世界上我们放眼看去，我们只能俯视这个世界，真的不会仰脸看任何东西，因为太黑暗了。在全世界到处杀人的共产党病毒，种族大屠杀、反人类罪的共产党，还竟然有人与他为伍，情何以堪？何来法？何来能力？何来尊重？何来所谓的信仰？
+哪怕是最近20年经济发展最快的时期，中国和中国人民也是失去远大于得到。一味追求发展，中国的耕地没了，中国的水污染了，空气污染了，中国人的心也被污染了。人与人失去了最基本的信任，连个老人都不敢扶；生不起、住不起、病不起、老不起、死不起，六个口袋供一套房；人人追求物质财富，笑贫不笑娼；人人自危，相互伤害，娱乐至死。
 
-This is the correct judgment that our fellow fighters should have. What qualifications do they have to scold us or evaluate us? None. Including the governments of various countries, there is no one worth our respect and can judge us on this matter. With that being said, I am proud, very proud. It’s not possible for us not to feel proud because the world is too dark. The rogue organization of the CCP has brought the leaders of all countries to their kneels with falsehood, deception, gangsters’ ways, and the BGY plot. Even countries like the United States cannot escape being corrupted by these dirty means. When we look at this world, we can only look down on people in this world, and really don’t need look up to anybody, because the world is too dark. The CCP is using the CCP virus to kill people all over the world and committing genocide and crimes against humanity, yet there are still people standing with it. How can this be? Where is the justice? Where is the respect? Where is the belief?
+我们中国人现在得到了什么？70年产权的一个壳子吗？还是一个“高级奴隶”的称号？
 
-**参考链接：**
+改革开放…这件金灿灿的大袍子里长满了虱子……
 
-[1] [The Wuhan Laboratory Origin of SARS-CoV-2 and the Validity of the Yan Reports Are Further Proved by the Failure of Two Uninvited “Peer Reviews”](https://zenodo.org/record/4650821#.YGYgvi2caQL)
+全世界只有一个国家，年年改革天天改革，朝令夕改。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-**视频来源：**[https://gtv.org/getter/6065cd0d49339063d061d99d](https://gtv.org/getter/6065cd0d49339063d061d99d) (2:28-4:47, 5:33-6:35)
-**鸣谢：**感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1043162/](https://gnews.org/zh-hans/1043162/)
+全世界只有一个国家，界界反贪年年反贪，越反越贪。
 
-* * *
+有没有人想过，中共为什么要这么频繁地改革？
 
-字幕：【Rock小哥】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+改革意味着原来的政策出了问题，而出问题的本质是利益分配不均。一方面是共产党和人民的利益分配不均，催生的是社会问题，维稳费年年高涨；一方面是高层利益分配不均，催生出内斗，以黑反贪，以贪反贪则是常态。中共100年的历史总结起来就是一个字：斗——与人民斗，与自己人斗（内斗），与天地斗。其斗的目的只有一个，维护自己非法的统治地位——为了坐稳江山，所有的运动都是可以搞的，所有的人都是可以牺牲的。中共屁股底下的位置坐稳了，钱和权自然滚滚而来。中国几千年的皇权思想，宫斗之风延续到了今天。中国不愧是历史悠久而且“没有断代”的民族。可惜的是，在中共治下，继承的尽是糟粕。
 
-+4
+一个人民无法拥有选票的非法政权，一个从未替老百姓着想的政府，怎么可能制定出“利在当代，功在千秋”的长久制度和政策呢？他们只能是借改革之名，行争权夺利之实。实质上，他们改的是统治形式，革的是老百姓的血汗钱、老百姓的命。
+
+那么开放呢？为什么西方文明国家从不提开放呢？因为一个开放的社会没必要天天把开放挂在嘴上。这个道理就像一个人越是缺什么，他就越强调什么。靠着防火墙，靠着外汇管制，靠着进出口控制，靠着对土地、石油、电信、矿产、烟草、媒体等资源的垄断，中（共）国本质就是一个封闭的国家——对外资、对民企、对百姓，都有无数条不能逾越的“红线”牢牢束缚着这个国家，控制着这个国家的财富命脉和思想去向。法是用来治百姓的，不是治国的——因为中共治下只有王法，没有宪法。为了掩盖封闭的本质，中共必须立高墙，对国内老百姓洗脑：中（共）国是特色社会主义，特色社会主义市场经济，市场是开放的，但国家要控制经济命脉，要有国企，国企属于人民。中（共）国是特色社会主义民主，人民代表大会代表人民……他们心里笃定却不敢公开说的下半句是：人民属于中共。
+
+中共为什么那么怕放权？为什么那么怕老百姓有自由、有思想？因为有了这些就能看清真相，看清中共的以假治国，看清其用谎言欺骗14亿国民，甚至欺骗全世界的真面目。但管太死人就没有积极性，经济就活不过来，所以中共只能放权。但放权是要慎重的：每次给一点，你才能对它感恩戴德，让你忘了这本来就是属于你的东西——人生来自由，权利平等，私有财产神圣不可侵犯；让你忘了人是有尊严的，进入了所有权利都是共产党赋予的幻境里。于是，中共有了“爹亲娘亲不如毛主席亲，千好万好不如社会主义好”这种反人伦、反人性、反逻辑的宣传语。
+
+另外，当一个行业野蛮生长后，中共就可以把监管失职后的市场乱象当作自己重新严管的借口，再次收权。如此往复，屡试不爽：房地产市场、A股、P2P、数字货币等无数领域都印证了这点。就是在这样一次次国进民退的历程里，人民的财富被一轮又一轮地瓜分洗劫。加上中共掌握着国家宣传机器：强大的洗脑能力让无数不明真相的国民不知不觉成了朝三暮四里的那只猴子，甚至被卖了还帮他们数钱。
+
+**以假治国——中共改革的本质**。中国，需要的不是改革开放的幌子。中国，需要的是回归文明世界。而中国共产党，切断了这条通往文明的路。
+
+相关阅读：
+
+[【世事解评】改革开放：一场彻头彻尾的骗局（一）——破烂的开始](https://gnews.org/zh-hans/1043363/)
+
+[【世事解评】改革开放：一场彻头彻尾的骗局（二）——管控的延续](https://gnews.org/zh-hans/1043462/)
+
+[【世事解评】改革开放：一场彻头彻尾的骗局（三）——荒谬的发展](https://gnews.org/zh-hans/1043513/)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
++2

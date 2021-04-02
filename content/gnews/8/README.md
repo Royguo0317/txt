@@ -1,45 +1,76 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰之声】为什么要成为有神论者
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1043783/)
+## 4月1日《解雇福奇法案》 由国会议员马乔里·泰勒·格林提交国会
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1043333/)
 
-作者：纽约香草山福音部 里里
+**【翻译、点评】冰糖葫芦喵**
 
+**【编辑】冰糖葫芦喵、灭共文明**
 
+**美国国家脉动（The National Pulse）独家报道**，**国会议员马乔里·泰勒·格林(Marjorie Taylor Greene)今天将提出一项名为《解雇福奇法案》(Fire Fauci Act)的新法案，寻求剥夺薪酬最高的美国联邦雇员、“CCP病毒之父“的美国国家过敏和传染病研究所（NIAID)主任职位。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+**今年81岁的安东尼·福奇博士（**Anthony Stephen Fauci），是一位美国医学科学家和免疫学家，担任美国国家过敏和传染病研究所主任和总统的首席医学顾问。
 
+自1984年以来一直担任美国国家免疫援助研究所的主任至今已有50多年，自罗纳德·里根(Ronald Reagan)以来，他一直是每一位美国总统的顾问。
 
+在CCP病毒大流行期间，福奇是川普总统的白宫CCP病毒特别工作组的主要成员之一。此后，福奇于2021年也被任命为乔·拜登总统的首席医疗顾问.
 
-为什么要成为有神论者？CCP提倡成为无神论者，我们为什么要跟着CCP走呢？大部分的共产主义国家由于洗脑宣传，导致无神论者偏多。例如，前苏联就是无神论国家，但是，柏林墙倒塌之后，他们的有神论者人数在增加，并且成为一种热潮，甚至普京也标榜信神。美国中情局2004年的调查表明，全世界有12%的人没有宗教信仰，其中2.4%是无神论者。英国大百科全书2005年的统计也和个这个比例差不多：2.3%的无神论者。据介绍，这个比例中没包括那些信仰无神论宗教的人士（例如，信仰佛教的未包括在无神论人士中）。
+在川普总统任职后期的2020年末和2021年初，福奇坚持实行全民戴口罩的规定，但是在2020年3月却对全美人民说：“人民不应该戴着口罩到处走”，并补充说，“没有理由戴着口罩到处走。”
 
-2004年有一期国内著名刊物，调查并讨论了信有神、有灵的问题。他们的统计是，全世界大约有10%的人不信有神，且这批人主要分布在亚洲。而细查之下，他们全部分布在中（共）国。不过这个刊物上的内容现在已经查不到了，甚至维基百科的相关解释也跟英文不一样。这么说吧，在中文世界里，只要用汉字的文件，都被带风向的取代；是外文的，都被篡改了翻译。倘若在谷歌上搜“无神论”，头几条的内容都是大外宣的，读完有助于你形成或保持无神论思想。他们会说，那些（西方的）数据统计不准，还有不同的标准等等。CCP提倡无神论，可是现在他的老大控制舆论，想用“说一千遍即成事实”的办法让他自己变为神。然而，人就是人，说一千遍也变不成神，毛贼（毛泽东）的神话不是垮塌得一塌糊涂吗！2019年，在discord的某个房间，有位内部人士给七哥报了个消息，说是亲眼看到内部文件说，习近平很羡慕西方人对神的向心力（大意），意图将CCP慢慢改造并宗教化，成为人们的信仰。说白了，他想把自己神化，做个毛贼神第二，天真不？
+**由于他在CCP病毒大流行期间的多次改变立场的做法，以及最近几周他公开的党派立场，已经导致格林提出从NIAID解雇他的新法案。**
 
-其实不天真，他应该是认真的。难怪路德先生他们用了几期节目，谈CCP在梵蒂冈的渗透，和沼泽势力一起搞大重启，妄图把全世界带偏。再回来说无神论，有的国家看得挺严重的，比如回教国家，因为他们跟基督教、天主教一样，认耶和华为独一的造物主、真神（当然区别是存在的）。举个例子，沙特官方认为，谁要是宣称为无神论者，就要以“防治恐怖主义的办法”加以调查。华人的很多行为被诟病：贪婪、无节制、损人利己，嫉妒心强。这就是七哥说的，CCP在中国人中间植入了魔。魔就是阻止人们信有神的。当然，CCP最终是把你变成无神论者，那么对别人来说，你几乎等同于有恐怖主义倾向的，至少，指望不了你干好事。
+而且，福奇博士与最近承认与中共有联系的世界卫生组织检查员彼得·达扎克博士关系密切。
 
-那么，怎样改变我们华人的形象，成为有尊严、有体面、有信仰的新中国联邦人呢？我个人意见：第一，参与灭共，但即使灭共成功，如果华人仍不信神，那华夏大地还会进入一个后无神论世代，同样是很恐怖的；第二，接受华语以外的有关宗教的文化；第三，要弄清为什么说有神；第四，选一个“好”的宗教。当然，有自称基督徒的人实际是伪善的人。一些教会有募捐活动，但这是根据旧约——神要求犹太人将所得的十分之一奉献给教会，即给神的传道者。我们现在是新约的时代，捐献不是一个硬性规定，而是出于感动。因为传道人全身心投入教会事工、祀奉，当他们的积蓄用完的时候，神要供应以“牧养他的羊”——天主教的神父有薪资也是这个道理。CCP是怕你信神的，他们宣传爱国要首先爱党，不是爱主。他们荒谬地让教会自传。怎么自传？还将福音传给自己吗？应当广传福音，这确实是华人的福音。
+**该法案将有效地将他的工资削减到0美元，而他的继任者将由参议院确定并确认。该法案还将促使美国政府问责局(Government Accountability Office)对福奇在2019年10月1日至2021年12月31日期间的数字通信和金融交易进行审计。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+除了福奇拙劣的应对CCP病毒措施外，美国国家传染病研究所主任还长期倡导并资助了功能增强研究，这是一种提高CCP病毒等疾病毒性和传播能力的科学实践。此外，福奇还向达扎克生态健康联盟集团提供了数百万美元的美国纳税人资金。达扎克生态健康联盟与武汉病毒学研究所就这种研究形式进行了合作。
 
-编辑：Sky妮妮
-
-校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+**皮特·纳瓦罗在3月30日的《班农作战室》节目中表示**：”福奇博士说谎是为了吸引更多粉丝。他假装自己是疫苗之父，并在2020年1月10日宣称自己是疫苗之父。第45届美国川普政府，HHS(美国卫生与公众服务部）, BARDA（生物医学高级研究与开发管理局）, FEMA（联邦紧急事务管理局)的每个人都与此有关。”
 
 
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+> Dr. Fauci lies to improve his own fan club. He pretends he is the Father of the Vaccine claiming credit for it on January 10th, 2020. Offensive to [@POTUS45](https://twitter.com/POTUS45?ref_src=twsrc%5Etfw) & everyone in HHS, BARDA, FEMA that ACTUALLY had something to do with it.[https://t.co/OdEkiS84um](https://t.co/OdEkiS84um)
+> — Peter Navarro (@RealPNavarro) [March 30, 2021](https://twitter.com/RealPNavarro/status/1377032956766781447?ref_src=twsrc%5Etfw)
 
 
+
+**3月22日川普总统在福克斯新闻上表示**，他在任职期间听取了福奇的意见，但是没有按照他说的行事，因为他是一个大错特错的推动者。当被问及是否候汇提拔了福奇，川普总统的回答说：“我没有真正提升他，他在那里工作了40多年，他一直在那里。”
+
+**3月29日，川普总统称黛博拉·伯克斯(Deborah Birx)是“一个被证实的骗子”，并在接受CNN采访后说福奇是两面派**。黛博拉·伯克斯是一名美国医生和外交官，曾在2020年至2021年期间担任川普总统的白宫CCP病毒应对协调员。
+
+根据世界实时统计数据，截至今天美国已经超过3100万人数感染，56万人死亡，室迄今为止世界报告上死亡人数最多的国家。全球共有1亿2900多万例CCP病毒感染确诊病例。
+
+**【译者评论】**
+
+福奇做为美国最高等级的公共卫生方面的专家，是国家政策和全民安全具有非常重要影响的人物。在川普总统任职期间，特别是CCP病毒爆发后的关键时段，福奇的表现让众多美国人感到困惑甚至是愤怒。
+
+而川普总统甚至没有能力把他从那个重要位置上移除，这对于美国确实是一场灾难。从这点上也可以看出，CCP的邪恶已经对美国政坛的影响非常的巨大，这符合了CCP的险恶真实面目，对美国和世界发动生物武器袭击时，最先需要收买和控制美国各界，世卫组织和各个国家最有影响力的人物。
+
+**CCP对世界发动的超限生物武器攻击，是酝酿已久的一场世纪大阴谋。**
+
+要想真正揭示阴谋的本质，除了要把真相揭露出来以外，还要把一些与CCP沆瀣一气或者由一定勾连的沼泽地的重要人彻底曝光。
+
+**【参考来源】**
+
+[EXC: ‘Fire Fauci’ Bill Introduced to Congress Today. – The National Pulse](https://thenationalpulse.com/breaking/mtg-bill-would-fire-fauci/)
+
+[https://ca.news.yahoo.com/trump-fauci-i-listened-to-him-but-i-didnt-do-what-he-said-161745694.html](https://ca.news.yahoo.com/trump-fauci-i-listened-to-him-but-i-didnt-do-what-he-said-161745694.html)
+
+[Trump calls Birx “a proven liar” and says Fauci “flip-flops” after CNN interview (yahoo.com)](https://news.yahoo.com/trump-calls-birx-proven-liar-000849007.html)
+
+[https://rumble.com/vf6yah-navarro-fauci-is-a-sociopath.html](https://rumble.com/vf6yah-navarro-fauci-is-a-sociopath.html)
+
+**【免责声明】 ** 尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+**欢迎战友加入旧金山金喜准农场**
+
+**旧金山金喜准农场** GTV [https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+
+**旧金山金喜准农场** Discord [https://discord.gg/QQzQ79grEA](https://t.co/hPEjhr0AZA?amp=1)
+
+**旧金山金喜准农场** Twitter [https://twitter.com/sf\_himalaya](https://twitter.com/sf_himalaya)
+
+[** 旧金山金喜农场** – YouTube](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
 
 0

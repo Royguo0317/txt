@@ -1,76 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4月1日《解雇福奇法案》 由国会议员马乔里·泰勒·格林提交国会
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1043333/)
+## 【热点播报】大陆催打疫苗政治化 不接种者上黑名单
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1043911/)
 
-**【翻译、点评】冰糖葫芦喵**
-
-**【编辑】冰糖葫芦喵、灭共文明**
-
-**美国国家脉动（The National Pulse）独家报道**，**国会议员马乔里·泰勒·格林(Marjorie Taylor Greene)今天将提出一项名为《解雇福奇法案》(Fire Fauci Act)的新法案，寻求剥夺薪酬最高的美国联邦雇员、“CCP病毒之父“的美国国家过敏和传染病研究所（NIAID)主任职位。**
-
-**今年81岁的安东尼·福奇博士（**Anthony Stephen Fauci），是一位美国医学科学家和免疫学家，担任美国国家过敏和传染病研究所主任和总统的首席医学顾问。
-
-自1984年以来一直担任美国国家免疫援助研究所的主任至今已有50多年，自罗纳德·里根(Ronald Reagan)以来，他一直是每一位美国总统的顾问。
-
-在CCP病毒大流行期间，福奇是川普总统的白宫CCP病毒特别工作组的主要成员之一。此后，福奇于2021年也被任命为乔·拜登总统的首席医疗顾问.
-
-在川普总统任职后期的2020年末和2021年初，福奇坚持实行全民戴口罩的规定，但是在2020年3月却对全美人民说：“人民不应该戴着口罩到处走”，并补充说，“没有理由戴着口罩到处走。”
-
-**由于他在CCP病毒大流行期间的多次改变立场的做法，以及最近几周他公开的党派立场，已经导致格林提出从NIAID解雇他的新法案。**
-
-而且，福奇博士与最近承认与中共有联系的世界卫生组织检查员彼得·达扎克博士关系密切。
-
-**该法案将有效地将他的工资削减到0美元，而他的继任者将由参议院确定并确认。该法案还将促使美国政府问责局(Government Accountability Office)对福奇在2019年10月1日至2021年12月31日期间的数字通信和金融交易进行审计。**
-
-除了福奇拙劣的应对CCP病毒措施外，美国国家传染病研究所主任还长期倡导并资助了功能增强研究，这是一种提高CCP病毒等疾病毒性和传播能力的科学实践。此外，福奇还向达扎克生态健康联盟集团提供了数百万美元的美国纳税人资金。达扎克生态健康联盟与武汉病毒学研究所就这种研究形式进行了合作。
-
-**皮特·纳瓦罗在3月30日的《班农作战室》节目中表示**：”福奇博士说谎是为了吸引更多粉丝。他假装自己是疫苗之父，并在2020年1月10日宣称自己是疫苗之父。第45届美国川普政府，HHS(美国卫生与公众服务部）, BARDA（生物医学高级研究与开发管理局）, FEMA（联邦紧急事务管理局)的每个人都与此有关。”
+作者：纽约香草山福音部 凤鸡
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
 
+中国大陆强迫接种疫苗的运动愈演愈烈。政策一天一变，包围圈越来越小，让人细思极恐。
 
-> Dr. Fauci lies to improve his own fan club. He pretends he is the Father of the Vaccine claiming credit for it on January 10th, 2020. Offensive to [@POTUS45](https://twitter.com/POTUS45?ref_src=twsrc%5Etfw) & everyone in HHS, BARDA, FEMA that ACTUALLY had something to do with it.[https://t.co/OdEkiS84um](https://t.co/OdEkiS84um)
-> — Peter Navarro (@RealPNavarro) [March 30, 2021](https://twitter.com/RealPNavarro/status/1377032956766781447?ref_src=twsrc%5Etfw)
+3月31日，微博热搜榜出现话题“村民不打疫苗将被拉入黑名单”，令舆论哗然。相关内容显示，海南省万宁市的万城镇近日贴出一张公告写着“主动接种 全民接种 应种尽种”，下方列出不接种的五个后果。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1564-【热点播报】中共真把自己当成了世界主人？.jpg)
+
+包括： 1. 出行交通没车坐；2. 市场、超市、酒店难进入；3. 餐饮、酒店、商超等服务业不得营业；4. 不得享受政府优惠政策；5. 今后子女上学、工作、参军、住房报建等都会受到影响。
+
+有大陆网民愤怒留言：“我妈有慢性病不能打，社区还天天催。”
+
+亦有网民说：“3月29日新规出来，备孕期也要求打了，都还没有孕期接种的临床测试，如果生出畸形儿国家管吗？”还有人说：“独裁疫苗”“不怪国外说咱们没有人权”。
+
+大陆民众接种国产疫苗意愿低，接种率只有7.1%。
+
+山东省的马女士表示，现在大陆相当多的人对于疫苗持观望态度，还有一部分人是坚持不打疫苗的。
+
+马女士说，中国疫苗的规定特别多，什么年龄层的人不能打，高血压、糖尿病不能打，怀孕的不能打。这样算来是相当一半的人不能打疫苗，那剩下的人打了之后有什么用？照样无法群体免疫。
+
+马女士又说，疫苗出现事故没有人去负责任。她也认识一些这样的家庭，孩子打完假疫苗，一家人生不如死。
+
+地方官员为达成上级交待的“政治任务”使出全力。黑龙江佳木斯的陈先生接受采访时表示，据他所知，多数人对强制接种疫苗都很反感，农村的百姓单纯，容易被诱惑；公务员了解的信息多，他们普遍不愿意接种，有的以有病为由请假不上班的，也有的说自己过敏的。但是上级说，这是政治任务，还以不接种就有安全隐患为由，不让上班。
+
+陈先生说：“这是涉及人命关天的问题啊！谁都不愿意拿自己的生命去做实验。”目前闫博士的第三份报告已经出台，只有依靠爆料革命才能找出病毒真相，才能让世界得救。
+
+在ccp统治大陆71年来，好事哪里轮得到老百姓，最赚钱的原始股权投资都是权贵包揽独吞，凡是威逼利诱老板姓干的事怎么会有好事，普通人都有这个常识，俗话说跟着共产党走向火葬场，所以请大家千万不要打疫苗，要寻找病毒来源，靠自己拯救比较靠谱。
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
 
 
-**3月22日川普总统在福克斯新闻上表示**，他在任职期间听取了福奇的意见，但是没有按照他说的行事，因为他是一个大错特错的推动者。当被问及是否候汇提拔了福奇，川普总统的回答说：“我没有真正提升他，他在那里工作了40多年，他一直在那里。”
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-**3月29日，川普总统称黛博拉·伯克斯(Deborah Birx)是“一个被证实的骗子”，并在接受CNN采访后说福奇是两面派**。黛博拉·伯克斯是一名美国医生和外交官，曾在2020年至2021年期间担任川普总统的白宫CCP病毒应对协调员。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-根据世界实时统计数据，截至今天美国已经超过3100万人数感染，56万人死亡，室迄今为止世界报告上死亡人数最多的国家。全球共有1亿2900多万例CCP病毒感染确诊病例。
-
-**【译者评论】**
-
-福奇做为美国最高等级的公共卫生方面的专家，是国家政策和全民安全具有非常重要影响的人物。在川普总统任职期间，特别是CCP病毒爆发后的关键时段，福奇的表现让众多美国人感到困惑甚至是愤怒。
-
-而川普总统甚至没有能力把他从那个重要位置上移除，这对于美国确实是一场灾难。从这点上也可以看出，CCP的邪恶已经对美国政坛的影响非常的巨大，这符合了CCP的险恶真实面目，对美国和世界发动生物武器袭击时，最先需要收买和控制美国各界，世卫组织和各个国家最有影响力的人物。
-
-**CCP对世界发动的超限生物武器攻击，是酝酿已久的一场世纪大阴谋。**
-
-要想真正揭示阴谋的本质，除了要把真相揭露出来以外，还要把一些与CCP沆瀣一气或者由一定勾连的沼泽地的重要人彻底曝光。
-
-**【参考来源】**
-
-[EXC: ‘Fire Fauci’ Bill Introduced to Congress Today. – The National Pulse](https://thenationalpulse.com/breaking/mtg-bill-would-fire-fauci/)
-
-[https://ca.news.yahoo.com/trump-fauci-i-listened-to-him-but-i-didnt-do-what-he-said-161745694.html](https://ca.news.yahoo.com/trump-fauci-i-listened-to-him-but-i-didnt-do-what-he-said-161745694.html)
-
-[Trump calls Birx “a proven liar” and says Fauci “flip-flops” after CNN interview (yahoo.com)](https://news.yahoo.com/trump-calls-birx-proven-liar-000849007.html)
-
-[https://rumble.com/vf6yah-navarro-fauci-is-a-sociopath.html](https://rumble.com/vf6yah-navarro-fauci-is-a-sociopath.html)
-
-**【免责声明】 ** 尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-**欢迎战友加入旧金山金喜准农场**
-
-**旧金山金喜准农场** GTV [https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
-
-**旧金山金喜准农场** Discord [https://discord.gg/QQzQ79grEA](https://t.co/hPEjhr0AZA?amp=1)
-
-**旧金山金喜准农场** Twitter [https://twitter.com/sf\_himalaya](https://twitter.com/sf_himalaya)
-
-[** 旧金山金喜农场** – YouTube](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0
