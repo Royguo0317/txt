@@ -1,52 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 闫博士的报告受到世界专家的高度重视和认可
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1043421/)
+## PLC门户网站很得意，声言刺穿美国心脏！
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1043515/)
 
-简述：在2021年4月1日的盖特视频中，郭先生说闫博士的报告迎头痛击了世卫组织的病毒报告，世卫组织应该叫 “武汉组织”（注：武汉组织的英文为 WuHan Organization，其简写与世卫组织的WHO相同）才更合适。他并痛斥了整个世界的败坏，没有一个人或国家有道德、能力、良知和专业精神，足以来评价闫博士、爆料革命和新中国联邦的贡献。他说“因为这个世界实在是太黑暗了，被共产党这个流氓组织完全是以假、以骗、以黑、以蓝金黄将各国首长都拿下，连美国这样的国家都不能逃过他这种下三滥的手段。”
+```
+新闻来源：西陆网（中共军事门户网站）
+发布时间：2021年3月31日
+整理/简评： Michael.Tonny
+```
 
 
+中共军事门户网站西陆网发表文章，《[中国刺穿美国心脏！西方才看清北京三个大招](http://www.xilu.com/20210331/1000010001169075_9.html)》。文章宣称，“美国的世界霸权，离着倒台还有多远？这是当今世界最为关注的问题！答案是，2035年，中共国全面建成现代化强国之日，就是美国国家瓦解之时！”全文把战狗精神发挥得淋漓尽致，让笔者叹为观止！
 
-**闫博士的报告受到世界专家的高度重视和认可**
+文章认为，拜登上台以后，美国全球战略发生明显改变。拜登行事调门降低，但在大战略层面，更加积极主动。拜登更擅长国际博弈的暗战风格。
 
-**Dr. Yan’s Work Is Highly Recognized by Experts Around the World**
+中俄阵营的综合实力，已经超过当年苏联率领的华沙组织。这种对抗烈度，以当今世界脆弱的安全结构根本无法承载。欧盟扮演着重要作用。文章透露出中共对控制欧盟仍非常有信心，尤其是法国和德国。
 
-昨天科学家推出的以毒灭共的第三个报告以后，全世界可以说跟 WHO 的所谓的武汉Organization（武汉组织，WHO）所说的所有报告，正好是针尖对麦芒。在这个时候在世界上引起了巨大的反响。
+中共从三个方面表现出强烈的战狼姿态，一、强力介入中东，公布与伊朗经济合作和准军事同盟。二、与俄罗斯协作，加强俄罗斯主导的集体安全组织与中共主导的上合组织的合作。三、重提炸馆血债，公开宣示强硬立场。对欧盟的警告味道十分明显，对俄罗斯、伊朗、朝鲜等诸多被美国西方制裁的国家的支持力度也将前所未有。
 
-Yesterday, after our scientist [Dr. Li-Meng Yan] pushed out her third report, [1] aiming for taking down the CCP with the truth about the virus, it has gone head-to-head with the report released by the so-called W.H.O., which should really be called the “WuHan Organization”. So far, Yan’s report has caused a huge response in the world.
+中共正在陶醉在与俄罗斯、伊朗达成的邪恶轴心国同盟。声称，“综合国力，军事实力，根本不弱于所谓的欧美阵营。”中俄公开联手，不仅在地缘战略层面强硬反击，还要在国际社会价值观层面也开始强力瓦解西方。欧盟诸国在核武威胁的噩梦中瑟瑟发抖的时代或许很快到来。
 
-闫博士累得两天没怎么睡觉，昨天发信息说头都疼，觉都没睡。真的是她干得太棒了，受到了世界上科学家、传染病学，还有世界上军事的情报机构，以及生化武器研究专家们，高度的重视和高度的认可。将以毒灭共推向了另外一个层次。
+作为关键重要的反击，中共认为，一招致命，直接公开宣布强力进入中东。“中东阿拉伯世界最关键的三个大国，沙特、伊朗、土耳其，目前都与中共处于非常友好的合作状态。… …沙特、巴基斯坦、伊朗、土耳其，四个伊斯兰大国，都公开表达了对中共的友好立场“。中共认为，目前已经控制了沙特和伊朗，就已经控制了石油！
 
-Dr. Yan was so tired because she didn’t sleep much for the last two days. She sent a message saying that she had a headache because of the lack of sleep. She really did a fantastic job. She has been highly valued and highly recognized by scientists in infectious diseases, military intelligence agencies, and biochemical weapon experts around the world. This has pushed the movement of taking down the CCP with the truth about the virus to another level.
+文章直接宣称，“中共公开将美国制裁当做一张废纸，当着全世界的面，宣布美国对伊朗制裁非法，并对美国的行为重新定性… …显而易见，这是中国公开在伊朗核问题上为伊朗站台做后盾。面对这种姿态，美国又能奈何？参照一下朝鲜的逍遥自在就一目了然了。… …未来，土耳其作为中共一带一路战略的重要合作伙伴，将与伊朗叙利亚一起，构建起中俄阵营的西线阵地。如此一来，从太平洋沿岸沿着亚欧大陆一路向西，一直到中东、亚欧大陆桥，都是亲近中俄的国家。”
 
-这背后也有我们博士各个军团，和路德访谈广泛传播。我们爆料革命各农场、G-News、GTV的直播，所有战友们的呼应，都是分不开的。没有这些谁知道？谁知道你？你家里做的饭多香，那别人从来不知道的，因为没人给你宣传，是吧？关键是爆料革命新中国联邦的平台，没有这个平台，闫博士、博士军团也都没有任何意义可以说。
+好不得意！！！
 
-Behind this [report], there is our Ph.D. Team and the LuDe Media’s effort in breaking the news broadly, also including the effort of all the farms of our Whistleblower Movement, G-News, GTV’s broadcasting, and all our fellow fighters’ cooperation. Without these efforts, who would know this [report]? Who would know you? No one would know how delicious the food you cook in your home if no one spreads the word for you, right? The key is that we have the platform of the Whistleblower Movement and the New Federal State of China (NFSC). Without this platform, neither Dr. Yan nor the Ph.D. Team’s work would be meaningful.
+文章提到，3月26日，中共PLC国防部长魏凤和，在访问塞尔维亚时，专程去中国驻南联盟使馆旧址，是向美国重提血债。是毫不避讳的警告北约、警告美国、警告西方，不要妄图利用军事手段试探中国，伸手必被剁！
 
-这时候就看到了我们打的是群体之仗，引起了世界上媒体、武器研究专家、世界军事和情报专家，这种有核裂变的效应。只有事实才能告诉大家答案。我们也不在乎谁怎么评价我们，更不在乎谁怎么来看我们。到目前我们还没有看到一个活着的，配得上从道德上、从境界上、从能力上、专业上，还配得上来评价我们的以毒灭共和爆料革命的，还没有，还没有， 希望越多越好，一个都没有。如果任何有良知的人，都应该有这个基本的判断。我们战友们当然要有这个自信了。你见过一个道德、能力、良知、专业，能配得上评价我们的吗？没有。
+目标美元！中共认为，中共国的硬实力，已经形成了真正的不可战胜的优势。“如今，中共国已经是实体经济第一大国，是制造业第一大国，是单一消费市场第一大国，是国际贸易第一大国。中共国上海一个港口一年的吞吐量，比美国前9大港口吞吐量的总和还多，中国的工业总产值已经招过了美日欧的总和，成为了全球产业链的中心。 … …美国庞大的军力面对中俄只能作为摆设，根本无法实际应用，如此就相当于兑子，谁都没有优势。… …全球范围内掀起去美元浪潮”。
 
-Now you can see that the war that we are engaging in is a group fight, and we have caused this kind of nuclear fission effect in the media, bioweapon experts, world military and intelligence experts in the world. Only facts can give everyone the answer. We don’t care how other people comment on us, let alone how others see us. So far we have not seen a living person who has the morality, capacity, and professional ability at a level high enough to evaluate our movement of taking down the CCP with the truth about the virus or our Whistleblower Movement. There has been no one yet, not yet. I hope there are as many such people as possible, but no one at all. If anyone has a conscience, he should have this basic judgment. Of course, our fellow fighters should feel confident. Have you ever seen a person at such a level in morality, ability, conscience, and professionalism that can evaluate us? No.
+文章最后说到，美国的世界霸权，离着倒台还有多远？答案是，2035年，中共国全面建成现代化强国之日，就是美国国家瓦解之时！
 
-这就是战友的正确的判断。你有什么资格骂我们，评价我们？没有。包括各国政府，我没有一个叫我感到尊重在这事上评价我们的。所以说俺骄傲，俺相当的骄傲。咱不骄傲不行啊，因为这个世界实在是太黑暗了，被共产党这个流氓组织完全是以假、以骗、以黑、以蓝金黄将各国首长都拿下，连美国这样的国家都不能逃过他这种下三滥的手段。这个世界上我们放眼看去，我们只能俯视这个世界，真的不会仰脸看任何东西，因为太黑暗了。在全世界到处杀人的共产党病毒，种族大屠杀、反人类罪的共产党，还竟然有人与他为伍，情何以堪？何来法？何来能力？何来尊重？何来所谓的信仰？
+面对中共如此高调的表态，笔者能说什么呢。笔者在这里只能把它们要表达的意思作一个通俗易懂的转摘，希望战狗们再接再励！你们已经甩比金灿荣、龟头李十条街，千万继续！
 
-This is the correct judgment that our fellow fighters should have. What qualifications do they have to scold us or evaluate us? None. Including the governments of various countries, there is no one worth our respect and can judge us on this matter. With that being said, I am proud, very proud. It’s not possible for us not to feel proud because the world is too dark. The rogue organization of the CCP has brought the leaders of all countries to their kneels with falsehood, deception, gangsters’ ways, and the BGY plot. Even countries like the United States cannot escape being corrupted by these dirty means. When we look at this world, we can only look down on people in this world, and really don’t need look up to anybody, because the world is too dark. The CCP is using the CCP virus to kill people all over the world and committing genocide and crimes against humanity, yet there are still people standing with it. How can this be? Where is the justice? Where is the respect? Where is the belief?
+**新闻来源链接：**
 
-**参考链接：**
-
-[1] [The Wuhan Laboratory Origin of SARS-CoV-2 and the Validity of the Yan Reports Are Further Proved by the Failure of Two Uninvited “Peer Reviews”](https://zenodo.org/record/4650821#.YGYgvi2caQL)
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-**视频来源：**[https://gtv.org/getter/6065cd0d49339063d061d99d](https://gtv.org/getter/6065cd0d49339063d061d99d) (2:28-4:47, 5:33-6:35)
-**鸣谢：**感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1043162/](https://gnews.org/zh-hans/1043162/)
+[中国刺穿美国心脏！西方才看清北京三个大招](http://www.xilu.com/20210331/1000010001169075.html)
 
 * * *
 
-字幕：【Rock小哥】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+***审核/校对：**Ting Guo*
 
-+4
+（免责声明：本文仅代表作者个人观点，跟**GNEWS**平台无关。）
+
++2
