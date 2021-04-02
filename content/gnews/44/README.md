@@ -1,36 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4/2/2021 财经快讯：台积电增加千亿美元投资，美国3月制造业创37年新高
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1044727/)
+## 前国务卿蓬佩奥与台湾驻美代表萧美琴会面
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1044810/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片1.jpg)[图片来源](https://www.taiwannews.com.tw/)
-**1.台积电取消芯片降价并承诺增加1000亿美元投资**
+台湾宝岛农场 Amitofu
 
-[台积电(TSMC)首席执行官魏伟表示，这家全球第一大芯片代工企业计划在未来三年投资1,000亿美元用来新建晶圆厂及扩建现有晶圆厂，以提高产能，满足需求。该公司正在招募数以千名新员工，购买土地和设备，并开始在全球多个地点建设设施。台积电已经在美国亚利桑那州建立了价值120亿美元的芯片工厂，还在台南建立3纳米芯片工厂。台积电向《日经亚洲》（Nikkei Asia）确认了该投资计划。 魏伟还告诉客户，因为该公司加大了投资以应对芯片需求的“结构性和根本性增长”，它将从今年年底开始暂停未来一年的晶圆降价。](https://asia.nikkei.com/Business/Tech/Semiconductors/TSMC-cancels-chip-price-cuts-and-promises-100bn-investment-surge)
+前美国国务卿蓬佩奥3月31日在曾经是台湾驻美大使官邸的双橡园，接受台湾驻美代表萧美琴邀请会面，萧美琴对蓬佩奥表达对美国不分党派支持美台关系的感谢，特别在川普政府时期重申台湾关系法和六项保证、对台军售等，以及川普和拜登政府过渡期间，确保美国与台湾在自由、民主和利伯维尔场经济方面有共同的核心价值。并邀请蓬佩奥在疫情缓解后访问台湾，对增强美台之间的友谊交换意见。
 
-**2.美国3月制造业创37年新高**
 
-[路透华盛顿 – 受新订单强劲增长的推动，3月美国制造业活动指标升至37年来的最高水平。供应管理协会（ISM）周四表示，美国制造业采购经理指数(PMI)从2月份的60.8跃升至3月份的64.7，达到自1983年12月以来的最高水平。ISM调查显示，上个月制造商支付价格几乎达到自2008年7月以来的最高水平。前瞻性新订单子指数在三月份跃升至68.0，高于2月份的64.7。第一季度的国内生产总值估计年增长率高达10.0％，今年的增长可能超过7％。](https://www.reuters.com/article/us-usa-economy-manufacturing/u-s-manufacturing-sector-index-races-to-37-year-high-in-march-ism-idUSKBN2BO5RB)
 
-**3****. 隔夜标普指数首次超4****,****000点，日韩股市高开 **
+> Great to see Taiwan Rep. [@bikhim](https://twitter.com/bikhim?ref_src=twsrc%5Etfw) yesterday. As Secretary of State, I worked to support Taiwan — a fellow democracy — in the face of unrelenting pressure. The U.S. shares with Taiwan the core values of freedom, democracy, and a free market economy. [pic.twitter.com/KdNyG5thgB](https://t.co/KdNyG5thgB)
+> — Mike Pompeo (@mikepompeo) [April 1, 2021](https://twitter.com/mikepompeo/status/1377622099460767745?ref_src=twsrc%5Etfw)
 
-[周五日韩股市高开，日经225指数开盘涨1.07%，东证指数高开0.9%，韩国KOSPI指数开盘上涨0.87%。周四，美国股市在第二季度的第一个交易日攀升至历史高点，标普500指数历史上首次收盘高于4,000点。截至收盘，标普500指数上涨1.2%。道琼斯工业平均指数上涨0.5%，报33153.21点。纳斯达克综合指数上涨1.8%。科技股领涨，价值股也加入了上涨的行列。](https://finance.sina.com.cn/stock/usstock/c/2021-04-02/doc-ikmxzfmk1016999.shtml)
 
-**4.****美国财政部支持IMF发行6,500亿美元特别提款权**
 
-[路透华盛顿 – 美国财政部周四表示，国际货币基金组织（IMF）储备可能会在八月份增加6,500亿美元。财政部已正式将其新分配国际货币基金组织特别提款权的计划通知国会，并开始了为期90天的磋商程序。预计大约70％的拨款将分配给G20国家，这些国家不太可能兑现其特别提款权。低收入国家预计将获得210亿美元的特别提款权储备，兑换为特别提款权的美元将来自美国财政部的外汇稳定基金，但需要通过发行新的美国国债来补充这些美元。](https://www.reuters.com/article/us-usa-treasury-imf/imfs-650-billion-liquidity-boost-could-happen-in-august-u-s-treasury-officials-idUSKBN2BO669)
+在美国与中华民国仍有外交关系之前时，双橡园是台湾驻美大使的正式官邸，自1979年美台断交后华盛顿西北区的双橡园只能用来作为社交活动的场所，美国高级别现任官员也不能参加在双橡园举行的社交活动，蓬佩奥在卸任前将美台官方接触限制解除，此次前美国国务卿蓬佩奥和萧美琴在曾经是台湾驻美大使官邸的双橡园会面，象征美台关系朝向国与国发展的高度政治意涵，3月28日帕劳总统惠恕仁在美国驻帕劳大使倪约翰随行下，率访问团抵达台湾，是台美断交43年来首位美国大使访台，美方正式透过官方关系与台湾接触建立双方正式管道， 同时也间接承认台湾国家的地位。本文仅代表个人立场
 
-**5****.欧佩克****+****同意增****产**
+[美国前国务卿蓬佩奥会晤台湾驻美代表萧美琴](https://www.rfi.fr/cn/%E6%94%BF%E6%B2%BB/20210401-%E7%BE%8E%E5%9B%BD%E5%89%8D%E5%9B%BD%E5%8A%A1%E5%8D%BF%E8%93%AC%E4%BD%A9%E5%A5%A5%E4%BC%9A%E6%99%A4%E5%8F%B0%E6%B9%BE%E9%A9%BB%E7%BE%8E%E4%BB%A3%E8%A1%A8%E8%90%A7%E7%BE%8E%E7%90%B4)
 
-[知情人士告诉《华尔街日报》，欧佩克+联盟周四同意在未来三个月内开始提高集体石油产量。石油输出国组织（OPEC）与其他主要石油生产商之间达成协议，随着主要经济体的中共病毒疫苗的推广，于5月开始每天生产35万桶石油。消息人士称，6月和7月的桶数将继续增加，每天将达到45万桶。该协议预计将在周四宣布。](https://thehill.com/policy/energy-environment/546021-opec-major-oil-producers-boosting-production-amid-covid-19-vaccine)
+审核:Athena雅典娜 发布:Amitofu
 
-**6****.****财新3月PMI显示中共国内需疲软**
-
-[刚刚发布的中共国3月份非官方制造业采购经理人指数（PMI）未达预期，从2月的50.9降至50.6，为2020年4月以来最低水平。财新PMI与此前发布的官方调查结果形成鲜明对比。官方调查显示，在农历新年假期短暂停顿后，大型企业提高了产量，制造业活动增长速度加快。官方调查对象通常是大型国有制造商，而财新/马基特（Markit） PMI调查对象主要是小型、私营和出口型企业。财新调查显示工厂投入成本急剧上升，是40个月来最快涨幅。财新调查也显示，随着全球中共病毒疫苗接种的推广，国外需求增长，导致出口订单又恢复增长。](https://www.voachinese.com/a/china-s-march-factory-activity-growth-lowest-in-almost-a-year-caixin-pmi/5836590.html)
-
-By 【金融组 – Kate】
-素材搜集: 文罡、Kate
-校对: Tracy
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
 
 0
