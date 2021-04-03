@@ -1,43 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《文贵说》| 图片连载（五十八）
-` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/1036928/)
+## BioNTech/以色列的疫苗接种研究令人惊讶
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1047479/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/58-7.jpg)
-**我追求的郭七条就是我郭文贵过去28年经历总结的结果，中国人应该有起码做人的尊严，做人的安全，私人财产应该得到保护。**
-
-**—— 郭文贵先生 2017年10月14日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/58-2.png)
-**美好体面的生活、不是共产党的专利，我们中国人、我们战友、每个人都可以拥有，这是我们爆料革命的根本。**
-
-**—— 郭文贵先生 2020年8月2日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/58-1-scaled.jpg)
-**当你这个“我”大的时候，你啥都不会存在，大家一定记住，什么叫“桃子”？“桃子”是因为你想要那个果。那是因为你“我”太大了，你是有目的的，当你心中做的真的是无我，真的不是以获得什么政治、名义、金钱为目的时候，只想干倒CCP的时候，那个“桃子”根本就不存在。**
-
-**—— 郭文贵先生 2020年8月2日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/58-6-scaled.jpg)
-**当你把你的行为当成你的果，而且谁也改变不了你的行为，你的行为就是你的果。你没有想要荣誉、没有想要金钱、没有想要政治权利的时候，当然不存在什么“桃子”也没有什么人摘你的“桃子”。**
-
-**—— 郭文贵先生 2020年8月2日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/58-5-scaled.jpg)
-**你的行为就是你的果，你的行为是没有人能拿走的，不存在谁摘“桃子”的问题。**
-
-**—— 郭文贵先生 2020年8月2日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/58-4-scaled.jpg)
-**对待那些流氓们、土匪们，我们最好的招就是，真、善、 狠，永远不能违背。**
-
-**—— 郭文贵先生 2017年11月2日**
-![]()![](https://gnews.org/wp-content/uploads/2021/03/58-3-scaled.jpg)
-**为了维护郭文贵的权利和美国法律，参加听证会的官员，还有总统都不能不顾法律，谁都不能碰郭文贵，盘问都是违法的，这就是这个国家的伟大**。
-
-**—— 郭文贵先生 2017年11月2日**
+```
+新闻来源：Cosmopolitan网站
+发表日期：2021年4月2日
+翻译整理/评论：Shuizhuyu
+```
 
 
+在疫苗接种方面，以色列遥遥领先。 有关疫苗有效性的第一个结果现已公布。
 
-- [***更多精美海报请点击G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4)
+到目前为止，以色列16岁以上的人群中有70％的人至少接受过一次冠状病毒疫苗接种。 到目前为止，几乎没有其他国家进行过如此成功的疫苗接种运动。 现在已经进行了全面的研究，以确定BioNtech / Pfizer疫苗的真正效力如何。
 
+BioNtech疫苗的功效如何？
 
+正如《 ZEIT》报道的那样，这项研究是由Clalit研究所和内盖夫的Ben Gurion大学与美国哈佛大学合作进行的，并发表在美国《新英格兰医学杂志》上。
 
+研究结果证实了疫苗是高度有效的。在预防任何病毒症状方面，第一剂后两到三周的有效性估计为57％，第二剂后一周的有效性为94％。 BioNtech / Pfizer也应同样有效地抵抗英国的突变，因为这种突变以以色列冠状病毒为主导。
 
-+1
+**简评：**
+
+**这是德国新闻向公众宣传的有关辉瑞疫苗的有效性， 以色列是第一个全民接种最彻底的国家之一， 大部分是接种的辉瑞的疫苗。 按照这个结果， 以色列的大流行应该可以结束了， 但是现今的以色列**国**仍有新发病例，这不得不让人们产生质疑， 我们也只能继续观察这个疫苗的效果吧**！
+
+新闻来源链接：🔗**[Biontech: Israelische Impf-Studie offenbart Überraschung](https://www.cosmopolitan.de/biontech-isralelische-impf-studie-offenbart-ueberraschung-105387.html?utm_source=taboola&amp;utm_medium=campaign&amp;utm_campaign=9143468&amp;utm_term=2979546127#tblciGiCfaUfRytt6QDjVggDrKzzBxddzdgCw3kCDvqwdzzoIQyCt9UYo4MjMl_ab2MnaAQ)**
+
+* * *
+
+**审核*/*校对：***Ting Guo*
+
+（免责声明：本文仅代表译者个人观点，跟GNEWS平台无关。）
+
+0
