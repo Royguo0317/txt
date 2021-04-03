@@ -1,37 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4/3/2021 财经快讯：血棉争端耐克股价良好; OPEC或考虑增加石油产量
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1047166/)
+## 美国务卿布林肯谴责缅甸军方开枪射杀平民-呼吁民权政府重新掌权
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1047491/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片1-1.jpg)[图片来源](https://forbes.com)
-**1.****耐克在中共新疆棉花争端中仍保持吸引力**
+国务卿布林肯：
 
-[耐克NIKE周四（4月1日）收盘下跌0.27％，至每股132.53美元，尽管一周来股价有所下滑，但价位仍旧强势，交易量为560万股。实际上，耐克在3月中旬表现良好，该股的10天和22天平均价格（分别为133.95美元和136.66美元）表明该股票正努力维持其股价。](https://www.forbes.com/sites/qai/2021/04/02/nike-ranks-attractive-in-april-despite-controversies/?sh=73089d4a1820)
+We see it in what’s happened in Burma.
 
-[评：耐克公司拒绝使用来自新疆人权被侵犯、在集中营被强迫劳动劳工的棉花而遭到中共国恶意抵制，吓退投资者，导致股票市场损失。](https://www.forbes.com/sites/qai/2021/04/02/nike-ranks-attractive-in-april-despite-controversies/?sh=73089d4a1820)
+我们在缅甸发生的事情中看到了这一点
 
-**2.****美国继续致电沙特****，**** OPEC增加或延续减产**
+The event since the military coup occurred after this year’s report finished, but we must highlight them.
 
-[美国能源部长格兰霍姆与沙特能源部长阿卜杜勒进行了通话，格兰霍尔姆说：“我们重申国际合作对确保消费者负担得起的可靠能源的重要性。” 石油输出国组织（OPEC）一直在将每日产量减少近700万桶，以支撑价格并减少供过于求。但在过去的24小时里，该组组织现在正在考虑是否要继续减少产量还是提高产量。消息人士称，这一增幅可能达到每天50万桶。去年当油价暴跌时，川普曾致电沙特阿拉伯和俄罗斯，以实现创纪录的减产保护美国页岩油业。](https://www.newsmax.com/t/newsmax/article/1015978/8)
+军事政变发生在今年的报告结束后，但我们必须强调这些事件
 
-**3.****俄罗斯对推特因不拒绝抗议而处以罚款**
+Non-violent protesters in Burma have been killed, beaten, imprisoned, including on Saturday.
 
-[莫斯科一家法院对推特公司（Twitter）进行了罚款，当局声称处罚原因为该社交媒体平台未能消除要求儿童参加抗议活动的呼吁。法院裁定推特违反三项限制非法内容的规定，判该公司支付三项罚款，总计890万卢布（约合11.7万美元）。普京敦促警方采取更多行动来监视社交平台，并追查那些“将儿童引诱到非法和未经批准的街头行动中”的人。俄罗斯政府为加强对互联网和社交媒体的控制而进行的努力可以追溯到2012年，当时通过了一项法律，允许当局将黑名单和阻止某些在线内容列入黑名单。](https://www.newsmax.com/t/newsmax/article/1016151/8)
+缅甸非暴力抗议者被杀害、殴打、监禁，包括周六
 
-**4.****脸书吞下另一个网页服务后将面临反托拉斯审查**
+When more than 100 people were reportedly killed by the military
 
-[脸书（Facebook）对GIF网站Giphy的收购正面临来自英国竞争与市场管理局（CMA）的深入反托拉斯调查。脸书于2020年5月以4亿美元的价格收购了Giphy，其最初意图是将该网站整合到Instagram中。CMA于去年6月开始对该交易进行调查，并于今年1月启动了初步调查。3月25日，监管机构表示，脸书对Giphy的收购“可能已导致或有望导致英国市场的竞争大大减少”。Facebook曾被给予五天的优惠以解决竞争问题，但脸书称其将继续与CMA的调查充分合作。](https://www.breitbart.com/tech/2021/04/02/facebook-to-face-antitrust-scrutiny-after-swallowing-up-another-web-service/)
+据报道，当时有100多人被军方杀害
 
-**5.****可口可乐首席执行官反对佐治亚州****对选举欺诈进行立法**
+Many of those killed protesting on Arm Forced Day, others simply bystanders.
 
-[总部位于佐治亚州的可口可乐公司公司首席执行官詹姆斯·昆西（James Quincey）表示，最近通过的旨在改善州选举完整性的佐治亚州投票法“不可接受”，“错误”和“倒退”，引发了推特上对可口可乐的强烈反对。佐治亚州最近通过的立法旨在通过在整个州实施身份识别要求和限制投票箱来打击选民欺诈，同时又赋予州选举委员会更大的权力，自通过以来其已成为引起争议的根源。直言不讳的保守派演员尼克·塞西（Nick Searcy）针对昆西的言论写道：“左派分子想要选举欺诈。”](https://www.breitbart.com/politics/2021/04/02/coca-cola-faces-harsh-backlash-after-ceo-blasts-georgia-election-laws-patriots-will-choose-another-beverage/)
+许多人在武装强迫日抗议时被杀，其他人只是旁观者
 
-**6.****山姆超市被曝“杀富”****，**** 同一块牛肉豪宅区贵30%**
+The military said in advance the event they might shoot protesters in the back or the head
 
-[在山姆会员店不同地址线上点单，同款商品竟然存在近40元的差价，定位在豪宅区的价格要高出近30%。例如澳洲进口谷饲眼肉在下单地址为南山华侨城某高端住宅时，商品价格为166.4元；而在下单地址为罗湖区某小区住宅时，商品价格则为128.7元，疑似存在“地域歧视”、“大数据杀富”。针对消费者反映和实测情况，某记者就此事联系山姆会员商店相关负责人。山姆方面表示，个别商品价格出现偏差为App系统问题导致。目前已处理，同城同款商品价格均一致。](https://3g.163.com/money/article/G6JGIELB00259DLP.html?spss=adap_pc#adaptation=pc)
+军方事先表示，他们可能会从背后或头部向抗议者开枪
 
-By 【金融组 – 雪梨Cheli】
-素材搜集：Totoro
+and they’ve might good on that thread
+
+他们可能很擅长这些
+
+Among those reportedly killed, four children, the youngest a five-year-old boy
+
+据报道，遇难者中有4名儿童，最小的是一名5岁男孩
+
+We condemned these and other widespread violations by Burma’s security forces in the strongest terms
+
+我们以最强烈的措辞谴责缅甸安全部队的这些和其他广泛的侵犯行为
+
+And we continue to call on the military regime to release all those people who’ve been unjustly detained
+
+我们继续呼吁军事政权释放所有被不公正拘留的人
+
+Stop its attacks on civil society members, journalists and labour unions
+
+停止对公民社会成员、记者和工会的攻击
+
+Halt the killings by its security forces; and return to power the democratically elected government
+
+停止其安全部队的杀戮；民主选举产生的政府应重新掌权
+
+The United Stated committed to working with its allies and partners,
+
+美国承诺与盟国和伙伴合作
+
+to hold the perpetrators of these support acts accountable.
+
+追究这些支持行为的肇事者的责任
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原链接：https://twitter.com/statedept/status/1376999349243281410?s=24
+
+英听校:康州盘古农场-WZ
+翻译: 康州盘古农场-WZ
+翻译终校: 康州盘古农场-Mike Li
+字幕+视频制作:康州盘古农场-天涯行
+审片: 康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

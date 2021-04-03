@@ -1,65 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 由于缺乏透明度，人们普遍批评世卫组织同意了中国的要求
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1046279/)
+## 【战友心声】谁偷了我的自信？
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1046498/)
 
-@60分钟节目主持人：
+作者：纽约香草山金融部 闲聊钱币
 
-The lack of transparency has let to widespread criticism of the WHO for agreeing to China’s demands
-
-由于缺乏透明度，人们普遍批评世卫组织同意了中国的要求
-
-麦特.博明（Matt Pottinger）:
-
-The one thing that I wish the who has done is to pick up their megaphone
-
-我希望世卫组织做的一件事是拿起他们的扩音器，
-
-and start screaming through it to demand that China be more transparent, that it open its border
-
-开始通过扩音器大声疾呼，要求中国更加透明，开放边境，
-
-to allow American CDC officials and other experts from the WHO and around the world to come investigate and to help
-
-允许美国疾控中心官员和来自世卫组织及世界各地的其他专家前来调查和帮助
-
-@60分钟节目主持人：
-
-After 15 months and more than 2.7 million deaths worldwide,
-
-在经历了15个月和全球270多万人死亡之后，
-
-it was hoped the team would provide some clarity on the origin of Covid-19.
-
-人们希望这个团队能为中共病毒的起源提供一些清晰的信息
-
-But the exercise ends with even more questions than it began with.
-
-但调查活动结束时出现了比开始时更多的问题
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接：
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
 
 
-> A lack of transparency on the part of China has led to criticism of the World Health Organization for agreeing to China’s demands during their joint team inquiry into the origins of the COVID-19 virus. [https://t.co/WLc8xIhm03](https://t.co/WLc8xIhm03) [pic.twitter.com/kUN8iE6uz3](https://t.co/kUN8iE6uz3)
-> — 60 Minutes (@60Minutes) [March 28, 2021](https://twitter.com/60Minutes/status/1376316231494549504?ref_src=twsrc%5Etfw)
+人生已过两万多天，回首看看自己都有哪些可圈可点的成就，实在是汗颜，啥也没有。豪宅、靓车、存款，这些中共治下相亲广告中必不可少的被认为是成功人士的条件我一样都没有。唉，真是失败……
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Unknown.jpg)
+
+往事不堪回首。
+
+孩童时代，45分钟手背后坐好上课的标准我是基本上达不到的，于是上课注意力不集中，自由散漫成了每年年终老师评语的固定部分。青春时期，情窦初开，因为和班里男生说笑打闹(那个奇葩的年代，有些班级男女生是不说话的），被班主任单独谈话说要注意影响，不要搞暧昧。高中阶段更是惨不忍睹，在一切都以考试分数做标准，以全年级排名第几论英雄的氛围下，我这种严重偏科的成了理所当然的“差生”。总算考上大学，学了四年这辈子都不会再用的知识；总算毕了业，有了一份打心眼儿里都不爱干的工作……
+
+我很不自信。我拿什么自信？
+
+再后来，成了家，有了娃，出了国。我只有一个很简单很朴实的想法：坚决不能让女儿再受这样的罪，重蹈这样的辙。
+
+时光飞逝，现如今女儿名校毕业，在一家非常知名的金融机构总部工作，开始了她自己的美好人生。而这一切全部是她自己努力的结果。没有课后补习，没有请客送礼，没有阿谀奉承，一切的一切都是她自己凭本事努力的结果。
+
+常常我开玩笑说：“你是扶着墙自己长大的，老妈没本事，啥都没做。” 女儿也常常用暖暖的话语来安慰我：“没有了啦，老妈是最棒哒。”
+
+我的自信哪儿去了？我的自信被中共统治下畸形的教育方式偷走了。它们不要你活波有思想，它们要你听老师的话，做应声虫；它们不会鼓励你扬长避短，而是要求所谓全面发展，做N好生。它们更不会维护你年轻而脆弱的自尊，将考试排名张榜公布，连家长一起羞辱。它们用“cookie cutter”的方式教育迥然不同的孩子，难怪我会被切得头破血流。
+
+现在我参加金融组的直播，撰写G-news稿件，积极参与各种题材讨论，虽然只是刚刚开始，做得很少，但我终于发现原来我不是一无是处，我有很多东西可以和大家分享。
+
+感恩爆料革命、GTV、香草山金融组，是你们给了我一个平台，帮我找回失落多年的自信。谢谢！
+
+———有感于第一次参加金融组直播和G-news 投稿（2021年3月23日）
+
+校对/发稿：飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
 
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-英听校：康州盘古农场 – WZ
-翻译：康州盘古农场 – WZ
-翻译终校：康州盘古农场 -Freeearth
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发文：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0
