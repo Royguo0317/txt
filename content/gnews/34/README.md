@@ -1,81 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共教授：中共加快取代美元成为世界储备货币的计划
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1045613/)
+## 好莱坞和华尔街一起商讨灭共&nbsp; 感谢郭先生的爆料革命帮助了美国
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1045800/)
 
-翻译：洛杉矶天使农场 – 飞利浦
-校对：洛杉矶天使农场 – 烟波浩淼
-审核：洛杉矶天使农场 – 断播
-
-一位中共教授最近透露，中共政权正在加紧努力，通过利用由大流行病引起的经济转变来挑战美元在全球市场和贸易中的主导地位。
-
-2月4日中共人民大学国际关系学院副院长翟东升在中共社交媒体上发布的视频中说，在大流行病过后的世界中，中共国应该是“决定价值基准的人”，“决定价格的货币最终将是人民币。”
-
-去年4月这位教授将大流行病描述为该政权实现其“使世界上所有70亿人为[中共]付出代价”为目标的“百年不遇”的机会。
-
-他说，如果中共币（或人民币）实现全球支配权，中共将有能力印制更多的货币来稀释世界人民持有的人民币价值，从而将财富转移给中共国。
-
-去年年底，在美国广泛传播的有关中共政权通过华尔街的“老朋友”对美国产生了数十年的影响的讲话视频，[使翟声名狼藉](https://www.theepochtimes.com/beijing-manipulated-wall-street-to-steer-us-policy-until-trump-became-president-chinese-professor_3609988.html)。
-
-根据他在中共国人民大学网站上的个人简介，这位教授“为中共的对外经济政策做出了贡献”，并定期参加与中共政权各机构的政策讨论和海外访问，例如外交部，国家计划局，国家发展和改革委员会以及隶属于中共中央委员会的对外联络部。
+简述：郭先生在2021年3月30的GTV直播中说拜登政府的人不会跟着拜登家族去亲共，好莱坞和华尔街大佬一起开会，讨论从中国撤资和全面推动政府灭共，他们感谢郭先生的爆料革命改变了世界和美国。
 
 
 
-**抓住千载难逢的机会**
+**好莱坞和华尔街一起商讨灭共****  ****感谢郭先生的爆料革命帮助了美国**
 
-中共政权一直是西方经济体采取的低利率政策的主要受益者，因为它们急于遏制大流行病带来的经济影响。[根据](https://www.bloomberg.com/news/articles/2021-01-07/china-s-rapid-recovery-puts-global-dollar-hegemony-in-doubt)彭博社的数据，外国投资者购买了中共政府高收益债券，在截至2020年9月30日的12个月内向中共债券注入了1,350亿美元。
+**Hollywood and Wall Street Are on the Same Page on Taking Down the CCP**
 
-全球经济理论指出，除了信贷问题之外，投资者自然会将资金从低利率经济体（例如美国）转移到高利率经济体（例如中共政府）。为了购买以人民币计价的中共债券，投资者将被要求出售美元（低利率经济货币）并购买人民币来购买人民币债券。从理论上讲，这一行动将增加人民币的价值，并使美元贬值。
+拜登政府的国防部长、拜登政府的国务卿、拜登政府的所有，包括副总统Harris，最近在华盛顿圈里边炸了锅了。
 
-翟在去年4月建议该政权应利用大流行病带来的机会去吸引更多的全球投资者，并释放人民币去支持需要现金的外国和公司。
+The Secretary of Defense, Secretary of State, and all others in the Biden Administration, including Vice President Harris, have been on fire in the Washington circle recently.
 
-长期以来，中共政权表露出了根除美元作为世界储备货币的愿望。 2009年，时任中共人民银行行长的周小川[呼吁用](https://www.theepochtimes.com/china-uses-imf-to-create-a-new-global-reserve-currency_1910689.html)国际储备货币代替美元，以便人民币发挥更大的影响力。
+昨天下午，有一个美国沼泽地的九十多岁的大佬，给我打电话说：“Miles，世界在变化。”我说：“有什么变？” “拜登政府认识到了，所有下边的人都知道，都知道享特.拜登和拜登总统和中共的关系，每个人都不想沾这个锅，每个人不想牵涉进去，而且这些人都很明确宁可老子不干，也不会跟着你说亲共去。而且现在很多人说，你要让我在这儿干，那就得灭共。”
 
-根据中共国人民大学国际货币学院汇集的数据，人民币在全球支付中所占的比例从2011年的0.02％增加到2020年的3％以上。
+Yesterday afternoon, a bigwig of the swampland, who is over 90 years old, called me, “Miles, the world is changing.” I said, “What are the changes?” He said, “The Biden Administration has realized it. All the people within the administration know the relationship among Hunter Biden, President Biden, and the CCP. Nobody wants to get wet on this. No one wants to get involved in it. And these people are very clear that they would rather quit than become pro-CCP. Moreover, now, many people said that if you want me to continue working here, then we need to take down the CCP.”
 
-但是，要追赶美元的主导地位, 人民币仍然有很长的路要走。
+最关键的事情就是今年的“以毒灭共”。战友们你记住，七哥过去四年直播当中说的这些五大家族、七大机构，所有这些人都是推动整个灭共最核心力量。彭佩奥、Pottinger（博明）、Miles余、皮特.纳瓦罗，大家看到了吧？整个川普总统的系列，我们的班农兄弟，还有一堆的现在。现在三个史蒂夫都出来了。 那天听娜塔丽去讲那个 Patrick 的时候，你看她讲得多好，这背后都有人，这背后都有力量。
 
-翟建议该政权应该向发展中国家提供贷款，否则他们将无法从发达国家获得贷款。这样，该政权可以收取高利息，以抵消中共政权为其债券支付的相对较高利率的成本。但是这种策略也面临更高的违约风险。
+The most crucial thing is this year’s goal of “taking down the CCP by spreading the truth of the virus”. Fellow fighters, please remember the Five Big Families and Seven Big Agencies that I have mentioned during my live broadcasts in the past four years. All these people are the most central power that advances the process of taking down the CCP. Pompeo, Pottinger, Miles Yu and Peter Navarro, do you see it? The whole President Trump Team, our brother Bannon, and many more now, including three Steves, have all stood out. The other day, I heard Natalie talking about Patrick. Such a great talk. There were forces and people behind all this.
 
-去年四月，翟恳请该政权“尽可能地给予”这些发展中国家。他建议中共政府甚至可以出售其大量外汇储备来提供这些贷款。
+我还想告诉大家，这不算重磅，好莱坞几个大佬刚刚地在黄石公园开过会。好莱坞第一次几个大佬互相仇恨的，不一定好莱坞大佬都是一家人，包括我隔壁这个家伙。所有人开会说就是研究共产党，基本最后都认为共产党是他们的过去是挣钱的所谓的钱袋子，但是他们觉得所有的人、钱、安全、利益、未来、家人都受到了共产党的威胁。这次H&M，还有耐克、新疆棉花事件让他们更加意识到，他们了解了很多真相，也受到了威胁。这些人已经研究好尽快地从大陆撤出来资金，包括要全面推动政府一起灭共寻找病毒真相。
 
-翟说，接受大量债权人的另一面，可能会推动人民币升值太多，并削弱该政权控制汇率的能力。这给该政权带来了巨大的挑战–历史上一直是依靠弱势货币来刺激出口。
+I also want to share with everyone, which is not a bombshell, that several bigwigs in Hollywood just held a meeting in Yellowstone. This was the first time for the big shots in the Hollywood, who used to hate each other, to hold a meeting together. It is not necessarily true that Hollywood big shots all get along like a family, including the guy living next door to me. They attended the meeting to focus on studying the CCP. In the end, they reached a conclusion that the CCP used to be their so-called moneybag, but they now felt the threats from the CCP on everyone’s money, personal safety, interests, future, and families. The incidents of H&M, Nike, and the Xinjiang cotton have made them become clearer about the threats and also know more truths. They have decided to withdraw their capitals from mainland China as soon as possible, including pushing the government to take down the CCP together and find out the truth about the virus.
 
-几十年来，批评家一直指责该政权[人为贬值](https://www.theepochtimes.com/chinas-currency-manipulation-unfair-subsidies-killed-3-7-million-us-jobs_3222304.html)人民币汇率以帮助制造商，从而促进了出口。
+华尔街的这几个大佬，大家记住，跟他们一起参加了视频会。这老人家说了，我没有想到我们好莱坞开完会，跟他们一个视频几个人，跟我们想法一模一样，比我们还极端。但所有人都说，要给我们一年的时间从共产党那把钱和资产撤出来。
 
-翟说，此外，债权人将加强对中共金融市场的审查，留下更少让该政权操纵金融市场的空间。
+Remember that several big shots in Wall Street joined the conference call with them. This old gentleman said, “What I didn’t expect is that the thoughts of those people who participated in the conference call with our Hollywood folks were identical to ours, and even more extreme than ours.” However, all of them said, “Give us one year to withdraw our money and capital from the CCP’s place.”
 
-这位教授还建议中共政府进行监管改革，以进一步刺激外国投资。
+这个老人家说：“Miles，你改变了世界，你改变了美国。”我毫不谦虚，我说：“是的，我要告诉你，是我们在改变世界，是我们在帮助美国。美国的垃圾、人渣很多，但美国这个国家的系统，这个国家绝对是伟大的。”他还说这个美国国家对不住你、欠你的、对你不够好。我说：“不是的。”我说，今天我的律师也这么说，我告诉我律师，我说我爱美国，我今天跟你这么说，我还是爱美国，但这块儿人渣很多，就被共产党收买的。
 
-在过去的几十年中，该制度禁止许多外国投资者将其收益从中共市场转移出去（资本管制）。许多西方商人的知识产权也被当地的商业伙伴或官员[窃取](https://www.theepochtimes.com/no-rule-of-law-when-doing-business-with-china-says-head-of-victims-association_2379809.html)，并且由于该政权缺乏法治而无法追索。
+This old gentleman said, “Miles, you have changed the world. You have changed America.” I replied without modesty, “Yes. I am telling you, we are changing the world. It is us that are helping America. There are lots of trash and many scumbags in the U.S. However, the system of the U.S. and the country are absolutely great.” He also said, “America does not treat you well. It owes you because it doesn’t treat you well enough.” I said, “No, my attorney said the same words to me today. I told him that I love America. I am telling the same thing to you today. I am still in love of America. However, there are many scumbags who have been bought off by the CCP.”
 
-翟在2020年4月说，“[我们的法律]应使其他国家相信中共政府不会没收其他国家的资产；让他们相信，如果他们把钱转移到中共国，就可以买到他们想买的东西；让他们相信，他们可以随时随地取钱。”
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=606346ef49339063d0615737](https://gtv.org/video/id=606346ef49339063d0615737) (47:12-51:10)
+鸣谢：感谢万物归一、文琪、山川异域和喜联盟七哥直播组提供中文文本于 [https://gnews.org/zh-hans/1041973/](https://gnews.org/zh-hans/1041973/)
 
-2019年，该政权通过了《外国投资法》，旨在促进和保护外国投资者的权利。翟说，这些政策奏效了，理由是2020年外国对中共国投资激增。
+* * *
 
-**利用一带一路**
+翻译：【7PawBear】字幕：【Rock小哥】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-翟说，该政权计划的另一个关键组成部分是利用中共政府的BRI（一带一路倡议）来促进人民币在发展中国家的流通。
-
-BRI以前称为‘一带一路’，是中共于2013年发起的一项大规模全球投资战略，旨在增强其横跨亚洲，欧洲，非洲和南美的经济和政治影响力。
-
-翟说，目标是在BRI伙伴国家，特别是代表数十亿人口的发展中国家内部创造人民币流通：中共政府将利用人民币在这些国家投资，用人民币支付在这些国家雇用的人的工资，并要求这些国家以人民币从中共国购买商品，这种循环还在继续。
-
-这将促进人民币在BRI伙伴国家内部和之间的流通，从而在各种利基市场中作为一种交换形式使人民币合法化。随着使用人民币定价的资产和商品不断增加，这将有助于为非BRI国家中进一步使用人民币打好基础，特别是如果它们希望与BRI伙伴国开展业务或进行贸易。
-
-
-
-翟在二月份表示：“我们的目标是这些BRI伙伴国家的股票，而不是债券。”“我们计划利用这些股票来发展一个以人民币计价的全球二级市场。然后，全世界的资本将被这个BRI项目市场所吸引。”
-
-这位教授说，外国经济学家认为BRI是在追求自然资源和矿产是错误的。更准确地说，该政权有兴趣利用伙伴国家的人力资源。
-
-翟说：“财富的来源是人而不是物。”
-
-*余凡**(Fan Yu)**对此报道**有贡献**。*
-
-原文作者：郝妮可（[NICOLE HAO](https://www.theepochtimes.com/author-nicole-hao)）和何凯茜（ [CATHY HE](https://www.theepochtimes.com/author-cathy-he)）
-发布时间：2021年4月1日，2021年4月1日更新
-原文链接：[https://www.theepochtimes.com/beijing-accelerating-plans-to-replace-us-dollar-as-world-reserve-currency-chinese-professor\_3758574.html](https://www.theepochtimes.com/beijing-accelerating-plans-to-replace-us-dollar-as-world-reserve-currency-chinese-professor_3758574.html)
-
-0
++1

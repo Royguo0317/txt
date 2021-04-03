@@ -1,65 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 由于缺乏透明度，人们普遍批评世卫组织同意了中国的要求
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1046279/)
+## 【百姓小妍】包钢员工跳入高炉钢水自杀 中共国企急于撇清干系
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1044501/)
 
-@60分钟节目主持人：
+作者：小妍说
 
-The lack of transparency has let to widespread criticism of the WHO for agreeing to China’s demands
+3月29日，中共国内蒙古包头钢铁厂一男子跳入高炉钢水自杀的视频在网上广泛流传。监控视频右下角有“7号转炉喷渣监控”的字样，显示本月24日晚上22点54分左右，该男子独自走到正在运作的7号转炉喷渣口，炉口壁上呈橘红色。他站在炉口，探头往里看了看，随后脱下安全帽及手套，往炉口走了几步，再探头往里看了看，随后纵身一跳炉口即时涌起大片火光和黑烟。据了解，钢水温度一般超过1150摄氏度。视频流出第二天，3月30日凌晨4时，包钢集团就“3·24”王龙死亡情况发布声明称，“经公安机关初步调查，已排除刑事案件，系自杀。包钢市应急管理部门也认为不属于企业生产安全事故。据工友反映，王龙性格内向，至今未婚，长期通过证券公司购买期货和股票，仅3月24日当日交易就亏损6万多元，怀疑其自杀与亏损数额较大、负债过多、无法偿还有关。”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-3.png)包钢急于摆脱干系的声明
+【作者观点】
 
-由于缺乏透明度，人们普遍批评世卫组织同意了中国的要求
+我刚刚看了那段监控视频，为什么一个人会选择这样惨烈的方式结束自己年轻的生命？监控视频中面对眼前滚滚的钢水，加上上千度的高温，人跳进去瞬间连骨头都会融化掉，到底是什么让死者仍然毅然决然的跳下去？一个人如果死都不怕，那他人生一定经历过比死还要残酷的精神折磨，说明当时的他真绝望了，对这个世界一点留恋都没有。面对滚烫的钢水和困难的生活，他选择了前者——**这意味着他现实生活比铁水还要可怕**，令他窒息痛苦。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/包钢.jpg)男子跳入高炉钢水自杀的视频截图
+包钢集团的声明则让我看到了中共资本家更加冷血的一面，在公安机关未通报调查结果，家属未公开发声的前提下，包钢率先抢占舆论制高点，将内向，未婚，长期购买证券和股票，串联在一起，好像是说，性格内向是错的，未婚是错的，投资亏损是错的，因为他犯了错，受不了错误的代价才选择自杀的。事实真的是这样吗？种种的操作都能看出包钢集团是想赶紧撇清关系，引导舆论归结到个人问题，并且说出“怀疑其自杀与亏损数额较大、负债较多、无法偿还有关”这个看似推测的结论，成功阻断了大家想要进一步深挖的欲望。不过我觉得，自杀是长期的高度心理压力所导致的结果。所谓的交易亏损最多只能算是一个导火索。我们需要注意的是，在亏损之外，还有什么事情渐渐地、弥散地侵蚀该死者的精神，让他长期处于高压的状态？
 
-麦特.博明（Matt Pottinger）:
+除了中共资本家的冷血，我们更看到了很多人对死者毫无怜悯之心。动物尚能为了死去的同类而哀鸣，而我们站于生物链顶端的人，却失去了最本性的怜悯之心。至少从现有信息能看到的，死者是一个生存在底层的、欲望被无限压抑的、还在单身的、看不到希望的人，对他来说资本市场是唯一翻身的希望。
 
-The one thing that I wish the who has done is to pick up their megaphone
+你们以为死者的自杀是他真心的选择吗？不是的，在中共治下的中国，作为一个底层百姓，有尊严的活着，不是所有人都能做到的，况且，即便很多人不要尊严了，活下去也很难，真的很难！因为中国共产党就是一台贪婪无度的抽血机器，生活在其中的底层百姓，只有将自己的大动脉接入抽血机，才能融入现代社会。每一个个体自出生的那一刻起就被住房，医疗，教育，养老，死亡绑架，并且毫无底线。在中共国，每个人的压力其实，真的都很大。哪有什么岁月静好，都是妥妥的残酷现实。什么有生之年根本不存在，生存都是问题何谈生活呢？
 
-我希望世卫组织做的一件事是拿起他们的扩音器，
+编辑：Summer
 
-and start screaming through it to demand that China be more transparent, that it open its border
+【参考来源】
 
-开始通过扩音器大声疾呼，要求中国更加透明，开放边境，
+新闻链接：[https://news.163.com/21/0330/07/G6AP18FD0001899O.html](https://news.163.com/21/0330/07/G6AP18FD0001899O.html)
 
-to allow American CDC officials and other experts from the WHO and around the world to come investigate and to help
+【作者其他文章】
 
-允许美国疾控中心官员和来自世卫组织及世界各地的其他专家前来调查和帮助
+[江苏连云港中共公职人员群睡女辅警](https://gnews.org/zh-hans/998561/)
 
-@60分钟节目主持人：
+[在中共国 老人跌倒了，扶不扶？](https://gnews.org/zh-hans/973460/)
 
-After 15 months and more than 2.7 million deaths worldwide,
+[现在的丧尽天良叫【延迟退休】](https://gnews.org/zh-hans/948700/)
 
-在经历了15个月和全球270多万人死亡之后，
+【免责声明】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-it was hoped the team would provide some clarity on the origin of Covid-19.
+**欢迎战友加入旧金山金喜准农场**
 
-人们希望这个团队能为中共病毒的起源提供一些清晰的信息
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
 
-But the exercise ends with even more questions than it began with.
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
 
-但调查活动结束时出现了比开始时更多的问题
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接：
-
-
-
-> A lack of transparency on the part of China has led to criticism of the World Health Organization for agreeing to China’s demands during their joint team inquiry into the origins of the COVID-19 virus. [https://t.co/WLc8xIhm03](https://t.co/WLc8xIhm03) [pic.twitter.com/kUN8iE6uz3](https://t.co/kUN8iE6uz3)
-> — 60 Minutes (@60Minutes) [March 28, 2021](https://twitter.com/60Minutes/status/1376316231494549504?ref_src=twsrc%5Etfw)
-
-
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-英听校：康州盘古农场 – WZ
-翻译：康州盘古农场 – WZ
-翻译终校：康州盘古农场 -Freeearth
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发文：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
 
 0
