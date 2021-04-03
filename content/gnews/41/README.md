@@ -1,49 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## [疫情下的西班牙]疫情中的西班牙宗教界：“我们一起战斗
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1045671/)
+## 好莱坞和华尔街一起商讨灭共&nbsp; 感谢郭先生的爆料革命帮助了美国
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1045800/)
 
-- 作者：gokuabuela
-- 封面：透明的遮羞布
+简述：郭先生在2021年3月30的GTV直播中说拜登政府的人不会跟着拜登家族去亲共，好莱坞和华尔街大佬一起开会，讨论从中国撤资和全面推动政府灭共，他们感谢郭先生的爆料革命改变了世界和美国。
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年4月2日电/西喜社——**根据社会学研究中心（CIS）今年1月的民意调查显示，疫情并没有使西班牙人更有宗教信仰或灵魂更加崇高，但成功地使人们更加团结。
+**好莱坞和华尔街一起商讨灭共****  ****感谢郭先生的爆料革命帮助了美国**
 
-去年，“西班牙之爱”基金会（Cáritas Española）设法调动了约6 500万欧元，以满足140多万人的基本需求。其中有50万市民第一次向这个教会机构求助。面对西班牙近代史上最严重的健康和社会危机，非政府组织也经历了海啸般的求助。
+**Hollywood and Wall Street Are on the Same Page on Taking Down the CCP**
 
-在过去的12个月里，许多神父看到他们的教区如何变成真正的社会援助中心。
+拜登政府的国防部长、拜登政府的国务卿、拜登政府的所有，包括副总统Harris，最近在华盛顿圈里边炸了锅了。
 
-罗伯托-鲁比奥（Roberto Rubio）神父所在的圣玛丽娜教区，已被改造成新的疫苗接种中心，是当地居民希望的象征。教堂的便利性和宽敞的空间，使他向这个仅有1000名居民的村庄的卫生当局提议，将其作为疫苗接种中心。罗伯托神父说：”这是一次奇妙的经历，因为老人们看到了教会是如何一直并继续在最需要帮助的人身边”。
+The Secretary of Defense, Secretary of State, and all others in the Biden Administration, including Vice President Harris, have been on fire in the Washington circle recently.
 
-上周，在一名医生、一名护士和一群民防志愿者的帮助下，约有一百名当地人在教堂内接种了疫苗。教堂的大空间让老人们在尊重安全距离的前提下，能有条不紊地进行接种工作。
+昨天下午，有一个美国沼泽地的九十多岁的大佬，给我打电话说：“Miles，世界在变化。”我说：“有什么变？” “拜登政府认识到了，所有下边的人都知道，都知道享特.拜登和拜登总统和中共的关系，每个人都不想沾这个锅，每个人不想牵涉进去，而且这些人都很明确宁可老子不干，也不会跟着你说亲共去。而且现在很多人说，你要让我在这儿干，那就得灭共。”
 
-对于他们中的许多人来说，“能够在教堂里接种疫苗，让我们感到很安心，很兴奋”。
+Yesterday afternoon, a bigwig of the swampland, who is over 90 years old, called me, “Miles, the world is changing.” I said, “What are the changes?” He said, “The Biden Administration has realized it. All the people within the administration know the relationship among Hunter Biden, President Biden, and the CCP. Nobody wants to get wet on this. No one wants to get involved in it. And these people are very clear that they would rather quit than become pro-CCP. Moreover, now, many people said that if you want me to continue working here, then we need to take down the CCP.”
 
-瓦莱里亚诺（Valeriano Domínguez Toro）神父则毫不犹豫地把法蒂玛圣母殿旁的教堂院子让给了隔壁的理疗中心，以便他们有地方能对他们的病人进行一些理疗锻炼。 这位61岁的神父说：”只要教堂能合作，我们就不会拒绝。”
+最关键的事情就是今年的“以毒灭共”。战友们你记住，七哥过去四年直播当中说的这些五大家族、七大机构，所有这些人都是推动整个灭共最核心力量。彭佩奥、Pottinger（博明）、Miles余、皮特.纳瓦罗，大家看到了吧？整个川普总统的系列，我们的班农兄弟，还有一堆的现在。现在三个史蒂夫都出来了。 那天听娜塔丽去讲那个 Patrick 的时候，你看她讲得多好，这背后都有人，这背后都有力量。
 
-格拉纳达的“白雪圣女”（Virgen de las Nieves）教会医院则将他们的小教堂改成了住院部。11月以来，教堂由于设置了十四个危重病人救助站，挽救了许多生命。”我们必须团结起来，努力阻止传染。”迭戈-莫利纳神父说。
+The most crucial thing is this year’s goal of “taking down the CCP by spreading the truth of the virus”. Fellow fighters, please remember the Five Big Families and Seven Big Agencies that I have mentioned during my live broadcasts in the past four years. All these people are the most central power that advances the process of taking down the CCP. Pompeo, Pottinger, Miles Yu and Peter Navarro, do you see it? The whole President Trump Team, our brother Bannon, and many more now, including three Steves, have all stood out. The other day, I heard Natalie talking about Patrick. Such a great talk. There were forces and people behind all this.
 
-“一开始，病人的孤独是绝对的。这毁了家庭和病人。现在，当一个人要插管时，他的家人可以进去陪伴他，跟他说再见。”堂区神父解释说，他希望能尽快翻过这一页，回到自己的小教堂里为病人做弥撒。
+我还想告诉大家，这不算重磅，好莱坞几个大佬刚刚地在黄石公园开过会。好莱坞第一次几个大佬互相仇恨的，不一定好莱坞大佬都是一家人，包括我隔壁这个家伙。所有人开会说就是研究共产党，基本最后都认为共产党是他们的过去是挣钱的所谓的钱袋子，但是他们觉得所有的人、钱、安全、利益、未来、家人都受到了共产党的威胁。这次H&M，还有耐克、新疆棉花事件让他们更加意识到，他们了解了很多真相，也受到了威胁。这些人已经研究好尽快地从大陆撤出来资金，包括要全面推动政府一起灭共寻找病毒真相。
 
-而平托神父的教区，其附近的“圣母玛丽亚”（Ave Mari）学校规模很小，由于要保持距离，所以教室不够用。面对这种空间不足的情况，平托神父毫不犹豫地将教堂的房间提供给孩子们上课。 “学生们给教区带来了很多生机，因为你能听到他们的谈笑声。这位42岁的年轻神父说：”看到他们早上的学习情况，真的很令人高兴。”
+I also want to share with everyone, which is not a bombshell, that several bigwigs in Hollywood just held a meeting in Yellowstone. This was the first time for the big shots in the Hollywood, who used to hate each other, to hold a meeting together. It is not necessarily true that Hollywood big shots all get along like a family, including the guy living next door to me. They attended the meeting to focus on studying the CCP. In the end, they reached a conclusion that the CCP used to be their so-called moneybag, but they now felt the threats from the CCP on everyone’s money, personal safety, interests, future, and families. The incidents of H&M, Nike, and the Xinjiang cotton have made them become clearer about the threats and also know more truths. They have decided to withdraw their capitals from mainland China as soon as possible, including pushing the government to take down the CCP together and find out the truth about the virus.
 
-**简评：**
+华尔街的这几个大佬，大家记住，跟他们一起参加了视频会。这老人家说了，我没有想到我们好莱坞开完会，跟他们一个视频几个人，跟我们想法一模一样，比我们还极端。但所有人都说，要给我们一年的时间从共产党那把钱和资产撤出来。
 
-**第一次接触到这个题材，疫情对文化的影响，或者说文化如何抗击疫情。来看看西班牙的普通人，特别是教会，如何在疫情中，顽强的对抗中共病毒的。**
+Remember that several big shots in Wall Street joined the conference call with them. This old gentleman said, “What I didn’t expect is that the thoughts of those people who participated in the conference call with our Hollywood folks were identical to ours, and even more extreme than ours.” However, all of them said, “Give us one year to withdraw our money and capital from the CCP’s place.”
 
-**整篇文章的感觉给我们很温暖。不论你是谁，在这极致困难的环境中，都能感受到有信仰的人不计回报的和你站在一起，帮助你，支持你，是多么可贵和重要。“你没有被抛弃，至少主和我们在一起”。 **
+这个老人家说：“Miles，你改变了世界，你改变了美国。”我毫不谦虚，我说：“是的，我要告诉你，是我们在改变世界，是我们在帮助美国。美国的垃圾、人渣很多，但美国这个国家的系统，这个国家绝对是伟大的。”他还说这个美国国家对不住你、欠你的、对你不够好。我说：“不是的。”我说，今天我的律师也这么说，我告诉我律师，我说我爱美国，我今天跟你这么说，我还是爱美国，但这块儿人渣很多，就被共产党收买的。
 
-**信仰让人善良，信仰让人勇敢。有信仰的西班牙人是那么的可爱和可敬。在这世界的至暗时刻，我们新中国联邦人也要有信仰，要善良，要团结，我们和世界正义力量在一起。**
+This old gentleman said, “Miles, you have changed the world. You have changed America.” I replied without modesty, “Yes. I am telling you, we are changing the world. It is us that are helping America. There are lots of trash and many scumbags in the U.S. However, the system of the U.S. and the country are absolutely great.” He also said, “America does not treat you well. It owes you because it doesn’t treat you well enough.” I said, “No, my attorney said the same words to me today. I told him that I love America. I am telling the same thing to you today. I am still in love of America. However, there are many scumbags who have been bought off by the CCP.”
 
-**新闻来源：[ABC新闻](https://www.abc.es/sociedad/abci-pandemia-revoluciona-culto-iglesias-202104020132_noticia.html)**
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=606346ef49339063d0615737](https://gtv.org/video/id=606346ef49339063d0615737) (47:12-51:10)
+鸣谢：感谢万物归一、文琪、山川异域和喜联盟七哥直播组提供中文文本于 [https://gnews.org/zh-hans/1041973/](https://gnews.org/zh-hans/1041973/)
 
-编辑：Victor Torres；组稿：神奇四侠；发稿：Ranting
+* * *
 
-[西班牙巴塞罗那喜悦农场：疫情下的西班牙专栏](https://gnews.org/zh-hans/993776/)
+翻译：【7PawBear】字幕：【Rock小哥】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/招募-7.jpeg)
-
-0
++1

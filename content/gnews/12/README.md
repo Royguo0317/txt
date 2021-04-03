@@ -1,65 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 由于缺乏透明度，人们普遍批评世卫组织同意了中国的要求
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1046279/)
+## 德国|病毒学家德罗斯滕“严厉的封锁”是不可避免的
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1046425/)
 
-@60分钟节目主持人：
-
-The lack of transparency has let to widespread criticism of the WHO for agreeing to China’s demands
-
-由于缺乏透明度，人们普遍批评世卫组织同意了中国的要求
-
-麦特.博明（Matt Pottinger）:
-
-The one thing that I wish the who has done is to pick up their megaphone
-
-我希望世卫组织做的一件事是拿起他们的扩音器，
-
-and start screaming through it to demand that China be more transparent, that it open its border
-
-开始通过扩音器大声疾呼，要求中国更加透明，开放边境，
-
-to allow American CDC officials and other experts from the WHO and around the world to come investigate and to help
-
-允许美国疾控中心官员和来自世卫组织及世界各地的其他专家前来调查和帮助
-
-@60分钟节目主持人：
-
-After 15 months and more than 2.7 million deaths worldwide,
-
-在经历了15个月和全球270多万人死亡之后，
-
-it was hoped the team would provide some clarity on the origin of Covid-19.
-
-人们希望这个团队能为中共病毒的起源提供一些清晰的信息
-
-But the exercise ends with even more questions than it began with.
-
-但调查活动结束时出现了比开始时更多的问题
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接：
+```
+新闻来源： T-Online 网站
+发表日期： 2021年4月2日
+翻译整理/评论： Shuizhuyu
+```
 
 
+克里斯蒂安·德罗斯滕（Christian Drosten）认为，有必要对德国进行更严格的封锁。病毒学家还为此赋予政客警告：联邦州会议没有认真对待。
 
-> A lack of transparency on the part of China has led to criticism of the World Health Organization for agreeing to China’s demands during their joint team inquiry into the origins of the COVID-19 virus. [https://t.co/WLc8xIhm03](https://t.co/WLc8xIhm03) [pic.twitter.com/kUN8iE6uz3](https://t.co/kUN8iE6uz3)
-> — 60 Minutes (@60Minutes) [March 28, 2021](https://twitter.com/60Minutes/status/1376316231494549504?ref_src=twsrc%5Etfw)
+德罗斯滕认为，在病毒大流行中不可避免地需要进行新的锁定。 “严厉的封锁不可避免，”“ Spiegel”记者罗斯滕说。在巴黎和伦敦看到，对更具攻击性的病毒变种进行部分锁定是无效的。 “该病的发病率持续上升，该病的病程更严重， 死亡率也高。 ”
 
+德罗斯滕：政客们并没有认真对待它
 
+病毒学家梅拉妮·布林克曼（Melanie Brinkmann）表示，如果一切照旧进行，“每个人都会认识病人，每个人的身边都会出现去医院的病人，每个人身边会有人因为病毒死亡或者有人因病毒遭受长期伤害的人”。她很生气，因为科学的警告没有得到更早的回应。
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+#### 简评：
 
-英听校：康州盘古农场 – WZ
-翻译：康州盘古农场 – WZ
-翻译终校：康州盘古农场 -Freeearth
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发文：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
+**德国的病毒学家德罗斯滕从病毒大流行开始就是政客们的智囊团成员， 从口罩无用到必须带口罩， 从封锁到封锁， 他没有提出过更好的建议。 他据称是著名的病毒学家， 和美国的病毒学家也有经常的交流， 那么走到今天， 不管德国是封锁还是疫苗， 都没有有效的控制疫情， 反而现在的感染人数在封锁状态也照样得不到控制。 请你阅读闫博士的报告， 请你用你的学识告诉世界， 这个病毒到底是怎么回事。 **
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+新闻来源链接：🔗[Drosten: “ernsthafter Lockdown” unausweichlich](https://www.t-online.de/nachrichten/panorama/id_89777748/corona-christian-drosten-ein-ernsthafter-lockdown-ist-unausweichlich.html)
+
+* * *
+
+***审核/校对：**Ting Guo*
+
+（免责声明：本文仅代表译者个人观点，跟GNEWS平台无关。）
 
 0

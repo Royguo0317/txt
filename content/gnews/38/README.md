@@ -1,33 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】一次性蓝灰色口罩被发现含有有毒的石棉类物质
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1045723/)
+## 疫苗序列被破解背后的阴谋
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1045823/)
 
-纽约香草山写作组  四季
+撰稿：土小木
 
-《人类自由》网站4月1人报道了加拿大卫生部对蓝灰色一次性口罩发出警告，这种口罩含有一种石棉类物质，与“早期肺部毒性”有关。
+对Moderna新冠病毒疫苗进行反向基因工程，破解其基因序列并将其公布在全球最大的开源代码服务器Github上，消息公布后Moderna股价跳水7%。
 
-型号为SNN200642的口罩早前被列入加拿大公立学校重新开放计划的一部分，这种口罩是中国制造，由魁北克的一家名为Métallifer的公司销售及分销。
+对此“黑客”行为，相关媒体的评价一般倾向于这或有助于增加人类对该疫苗的了解，甚至有网友说这是好消息，因为第三世界国家将可以按照此序列自主生产廉价疫苗。
 
-学生们被告知，他们需要在课堂上佩戴，以防止武汉冠状病毒（Covid-19）的传播。但加拿大卫生部在初步风险评估中发现，这些口罩中含有微量的石墨烯颗粒，吸入后会对肺部造成严重损害。已经有幼儿园工作者发现，孩子们在戴上口罩的时候，感觉好像是在吞食猫毛。现在知道，儿童整天吸入的不是猫毛，而是相当于石棉。
+刚刚公布第三份揭露病毒真相报告的闫丽梦博士早在2020年初，就通过自媒体路德社向全世界发出警告：病毒来自于共产党军方，将引发全球疫情，并表示疫存在极大的副作用和各种不确定性，而真正的解决方法是彻查共产党生化武器病毒的真相，才能研制出真正有效的疫苗。各国目前都在推进疫苗，尤其在共产党统治的中国，甚至已经上纲上线成了政治任务，以至于有地方出现了打疫苗送生活物资的现象。
 
-目前已经证实，加拿大各地学校教室里正在使用的SNN200642型口罩，从来没有经过安全和效果测试。早在去年12月，魁北克省政府就曾向全省1.5万多个日托中心发放了这种有毒口罩。这些口罩全部都不符合安全标准，后来被勒令不再使用。
+在这个背景下，Moderna疫苗序列被破解，使得价格昂贵的疫苗更容易在世界范更大范围采用，这里面有什么阴谋？我们不敢肯定，但通过相关报道可以确定以下事实：
 
-另一种型号为MC9501的类似款式的一次性口罩，在被确定为不安全后，同样被从加拿大各地的分销渠道中撤下。在政府意识到该系列有毒口罩不适合使用之前，该系列的有毒口罩已被分发了多达3 110万个。
+1. 斯坦福的科学家对如何拿到疫苗样本闭口不提，甚至说这个项目采用的不是正投入使用的疫苗。
+2. 斯坦福的科学家表示在项目初期就已经知会了Moderna，且并没有被反对。
+3. Moderna不难知道这种研究结果会给其股票价格带来什么样的利空影响，但依然不反对，且在其股价大幅跳水后也并没有追究任何责任。
 
-据加拿大广播公司CBC新闻的报道，石墨烯是制造业使用的一种坚固，非常薄的材料，但吸入时可能对肺部有害，并可能导致长期的健康问题。一位CBC新闻评论员问道：“难道这些东西在出厂前就不应该进行检测吗？”
 
-迄今为止，全世界只有荷兰拒绝要求强制配戴口罩，瑞典称口罩“毫无意义”。中共在疫情初期就买空了全球的个人防护装备，置世界各国于危险之中。我们不禁要问，现在市面上有多少这样的一次性有毒口罩？中共又输出了多少有毒个人防护产品和有毒疫苗值得世人警惕。只有灭共，才能结束肆虐全球的中共病毒疫情。
+这背后是否有什么不为人知的操作，就只能留给读者细细品味了。
 
-[原文链接](https://humansarefree.com/2021/04/bombshell-disposable-blue-face-masks-found-to-contain-toxic-asbestos-like-substance-that-destroys-lungs.html)
+文章内容仅代表作者观点
 
-审核/发稿：正义的小新
+历次文章链接
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+编辑：文远Bruce
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
+【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
 
-0
+参考消息：
+
+[https://www.theguardian.com/world/2021/mar/30/university-scientists-deconstruct-covid-19-vaccines-and-publish-recipe-on-open-web](https://www.theguardian.com/world/2021/mar/30/university-scientists-deconstruct-covid-19-vaccines-and-publish-recipe-on-open-web)
+
+Github上破解的基因序列：
+
+[https://github.com/NAalytics/Assemblies-of-putative-SARS-CoV2-spike-encoding-mRNA-sequences-for-vaccines-BNT-162b2-and-mRNA-1273](https://github.com/NAalytics/Assemblies-of-putative-SARS-CoV2-spike-encoding-mRNA-sequences-for-vaccines-BNT-162b2-and-mRNA-1273)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2.jpg)
++2

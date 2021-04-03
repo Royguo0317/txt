@@ -1,43 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疫苗序列被破解背后的阴谋
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1045823/)
+## 温哥华反封锁抗议者用惊悚的无声游行震惊了众人
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1046093/)
 
-撰稿：土小木
+阿黎
 
-对Moderna新冠病毒疫苗进行反向基因工程，破解其基因序列并将其公布在全球最大的开源代码服务器Github上，消息公布后Moderna股价跳水7%。
+上周日，约100名自由抗议者在温哥华市中心地区举行了一场无声和平的令人毛骨悚然的游行，震惊了路人。
+![Vancouver anti-lockdown protesters shock people with creepy silent march -  YouTube]()![Vancouver anti-lockdown protesters shock people with creepy silent march -  YouTube](https://i.ytimg.com/vi/bo3r0pxc1eY/maxresdefault.jpg)
+亚历山大-拉萨雷夫(SashaLasarev)和尼古拉-汤普森(Nikolai Thompson)是这次独特游行方法背后的构想者，他们认为，作为约翰-卡朋特(John Carpenter)1988年的经典电影《他们活着》也称（极度空间）(They Live)的衍生品，无声的游行是最好的方式。
+![THEY LIVE Glasses Clip + Trailer (1988) John Carpenter Horror - YouTube]()![THEY LIVE Glasses Clip + Trailer (1988) John Carpenter Horror - YouTube](https://i.ytimg.com/vi/nq09lywyulg/maxresdefault.jpg)《他们活着》电影照片
+现场效果证明他们是对的。沉默的人们缓缓行进，少数人装扮成僵尸，就像科幻片中的政府一样，似乎要求所有行走和驾驶在繁忙的温哥华街道上的人的注意。女记者走在最前排中间，右手伸出食指放在嘴上，示意“安静，别出声！”
 
-对此“黑客”行为，相关媒体的评价一般倾向于这或有助于增加人类对该疫苗的了解，甚至有网友说这是好消息，因为第三世界国家将可以按照此序列自主生产廉价疫苗。
+这群热爱自由的人还举着黑白相间的牌子，牌子上写着压迫性的语句，这些语句表面上陈述着政府和主流媒体希望我们做的和让我们相信的，像“拥抱是危险的 ”,“政客从不撒谎”,“服从”,“ 悖逆是罪 ”,“不要思考”,“害怕”,“畏惧是一种美德”,“抗拒是徒劳的”,“看电视”等等，这让笔者禁不住联想到中共国的文革。全世界的专制主义是相同的。
 
-刚刚公布第三份揭露病毒真相报告的闫丽梦博士早在2020年初，就通过自媒体路德社向全世界发出警告：病毒来自于共产党军方，将引发全球疫情，并表示疫存在极大的副作用和各种不确定性，而真正的解决方法是彻查共产党生化武器病毒的真相，才能研制出真正有效的疫苗。各国目前都在推进疫苗，尤其在共产党统治的中国，甚至已经上纲上线成了政治任务，以至于有地方出现了打疫苗送生活物资的现象。
+1988年由约翰-卡朋特（John Carpenter)导演的电影《极度空间》《They Live》向人们揭示了可怕的现实-人类正在受到看不见的力量的控制，他们是媒体精英、全球主义者、黑客、深层政府、金融大鳄……我们在不知不觉中被媒体和政府洗脑，财富被他们洗劫，变得越来越穷。在世界的控制者眼中，我们只是一种可利用的自然资源。
 
-在这个背景下，Moderna疫苗序列被破解，使得价格昂贵的疫苗更容易在世界范更大范围采用，这里面有什么阴谋？我们不敢肯定，但通过相关报道可以确定以下事实：
+我们不需要思考，只有顺从才能得到安宁和相对的自由，只需默默地遵从奴隶主的吆喝和命令，我们是奴隶。如果你试图反抗，等待你的将是被审查和监禁，被剥夺财产甚至生命。
 
-1. 斯坦福的科学家对如何拿到疫苗样本闭口不提，甚至说这个项目采用的不是正投入使用的疫苗。
-2. 斯坦福的科学家表示在项目初期就已经知会了Moderna，且并没有被反对。
-3. Moderna不难知道这种研究结果会给其股票价格带来什么样的利空影响，但依然不反对，且在其股价大幅跳水后也并没有追究任何责任。
+看看现实社会，电影的预言不是已经部分实现了吗？中共国、陨落的东方明珠香港、被政变的缅甸、暗中被中共控制的新加坡、岌岌可危的台湾、妥协的欧盟各国、被严重操控的美国2020总统大选和危在旦夕的加拿大。
 
+可庆幸的是，加拿大人反抗政府封锁、追求自由的游行示威活动从未停止，只是这些活动没有在主流媒体上报道。人们通过各种可能的社交媒体进行联系、交流和发声。不久前福克斯最著名节目主持人塔克-卡尔森第一次强力发声，严厉抨击加拿大政府违宪设置疫情隔离营，不经审判，用警力绑架加拿大回国人士，将他们投入监狱式的隔离营。
 
-这背后是否有什么不为人知的操作，就只能留给读者细细品味了。
+全球灭共大潮已经到来，加拿大的共产集权趋势将随之被淹没，加拿大人不允许共产主义的滋生和存在。
 
-文章内容仅代表作者观点
+[相关链接](https://www.rebelnews.com/vancouver_anti_lockdown_protesters_shock_people_with_creepy_silent_march)
 
-历次文章链接
+* * *
 
-编辑：文远Bruce
+*校对、发稿 文锦*
 
-[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
-
-【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
-【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
-
-参考消息：
-
-[https://www.theguardian.com/world/2021/mar/30/university-scientists-deconstruct-covid-19-vaccines-and-publish-recipe-on-open-web](https://www.theguardian.com/world/2021/mar/30/university-scientists-deconstruct-covid-19-vaccines-and-publish-recipe-on-open-web)
-
-Github上破解的基因序列：
-
-[https://github.com/NAalytics/Assemblies-of-putative-SARS-CoV2-spike-encoding-mRNA-sequences-for-vaccines-BNT-162b2-and-mRNA-1273](https://github.com/NAalytics/Assemblies-of-putative-SARS-CoV2-spike-encoding-mRNA-sequences-for-vaccines-BNT-162b2-and-mRNA-1273)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2.jpg)
-+2
++1

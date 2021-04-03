@@ -1,62 +1,139 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共的下场将比希特勒更惨
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1045855/)
+## 为什么媒体、科学界和世卫组织不会调查的起源
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1046202/)
 
-摘要：在2021年3月25日的盖特视频中，郭文贵先生说拜登总统“只口不提共产党病毒，但是美国绝对不是总统一个人说了算的。”美国有“辛普森夫人”和“温莎公爵”，但是美国最后一定能找到病毒真相。共产党想要转移焦点、欺骗全世界是不可能成功的。香港的人权被残害、新疆的种族大屠杀、西藏的灭佛和对爆料革命和法轮功的伤害正在把共产党打入地狱。全世界200多个国家中，已经有50多个国家要联合制裁中共。中共最后的下场将比希特勒更惨。
+翻译：康州盘古农场 — Layka
 
+校对：康州盘古农场 — 抽雪茄的奥特曼 Stephanie
 
+编辑：康州盘古农场 — 心照
 
-**中共的下场将比希特勒更惨**
+据《福克斯新闻 》2021年3月30日报道，记者塔克·卡尔森（**Tucker Carlson**）对世卫组织的关于COVID-19起源的调查报告的表示质疑。
 
-**The Fate of the CCP Will Be Worse Than Hitler’s**
+悲剧中的重大转折，仍在持续, 其影响永远改变了这个国家: 就在当局报告武汉首例冠状病毒的几天之前, 世界卫生组织的一名高级调查的一次采访在油管上播出了。
 
-这些天来，拜登总统当上以后，现在正在开记者发布会呢，不管任何情况下，他只口不提共产党病毒，但是美国绝对不是总统一个人说了算的，美国人是一定要要这个病毒真相的，所有的美国的政府部门没有停止工作，24小时没有停止工作，他们是一定要整明白咋回事的，那不是你撒了谎，你骗完就拉倒，那是不可能的，共产党在中国一骗70年，他认为他能成功，他以为这次还能成功，那是不可能的兄弟姐妹们，因为他屡骗屡成功，他才想继续侥幸的再欺骗全世界，现在想尽一切办法要转移全世界的焦点，和对共产党病毒的关注，那么他能做成功吗？他做不成功。
+调查员叫彼得·达萨克（Peter Daszak）。他谈到了他在武汉病毒研究所的研究， 已经持续了15年以上。在访谈中, 达萨克还讨论了他的非营利组织, 从美国政府那里获得了数百万美元的资助。达萨克将其中的很大一部分资金转移到了武汉的实验室, 他将其描述为“最高标准的世界级实验室”。
 
-These days, after Joe Biden became the president, he is actually holding a press conference now, he has not mentioned anything about the CCP virus under any circumstances. However, it is absolutely not the president alone who has the final say in the United States. American people will definitely want the truth about this virus. All the U.S. government agencies have been working, continuously working, 24 hours a day. They definitely want to find out what’s going on. It is not possible for the CCP to lie and cheat, and get away with it. The CCP has been lying for seventy years in mainland China. It believes it has succeeded in the past and can succeed again this time. That is impossible, brothers and sisters. The CCP has repeatedly cheated and succeeded, and that’s why it intends to try to deceive the world again by luck. Now, the CCP is doing everything it can to divert the world’s focus and attention from the CCP virus. But can the CCP succeed? No, it can’t.
+研究所的其中一些工作由美国纳税人支付，用于“功能增强研究”。它涉及在实验室中处理病毒，以使其更易于传播并更致命。
 
-包括共产党的企业，在美国在欧洲的上市，越来越多的企业，被美国证交所除牌，而且所有过去几年对这些企业的制裁，一个都不会少，只能越来越多，大家都看到了吧？都看到了吧？而且告诉大家的事情，种族大屠杀、反人类罪，这已经把共产党打进了地狱，这一点任何人都不可能推翻，谁推翻谁就是作死，谁就是陪葬。谁愿意陪葬，那就尽快去。越多越好，那些极端的坏人们，是不是？
+彼得·达萨克在油管的访谈中畅所欲言。当时，他没有理由不这样做。除了少数外交官之外，没有人对蝙蝠病毒的研究类型表示担忧，结果证明这是非常危险的研究，那是在武汉发生的。
 
-More and more CCP companies, including the companies listed on stock markets in the United States and Europe, are being delisted by the US Stock Exchange. Furthermore, all the sanctions imposed on these companies in the past few years will not be reduced at all. On the contrary, there will be more sanctions. Did you all see it? Did you see it? Moreover, I told everyone that the “Genocide in Xinjiang” and “Crimes Against Humanity” charges are already sending the CCP to hell. No one can overthrow these charges. Whoever tries to overthrow them is taking the road to death and will be buried with the CCP. Whoever wants to be buried can join those extremely evil people of the CCP as soon as possible. The more, the better. Right?
+据彼得·达扎克说，他的研究以及资助这项研究的拨款，对于研制一种预防下一次全球大流行的疫苗是必要的。
 
-这就是我们现在爆料革命的魅力，任何人想和我们反着干，就是跟全人类的正义在干，任何人反对我们灭共，那他就会被这个全世界灭共的浪潮所消灭。这就是事实啊，是吧兄弟姐妹们？这边打高尔夫的所有人都说什么？100%知道爆料革命爆的都是真相，关于共产党病毒，关于共产党对美国的威胁，蓝金黄的计划，关于共产党在美国内部的渗透，大家都是相信我们的。
+达扎克甚至解释了操纵冠状病毒是多么容易。
 
-This is the charm of our Whistleblower Movement. Anyone who wants to work against us is working against the justice of all mankind. Anyone who opposes our effort to take down the CCP will be wiped out by the global wave of taking down the CCP. This is the truth, right, brothers and sisters? All the golfers here, what do they say? They know 100% that the Whistleblower Movement is exposing the truth, about the CCP virus, about the CCP’s threat to the United States, about the BGY Plan and the CCP’s infiltration within the United States. Everyone believes in us.
+他说: 冠状病毒是一个相当好的…你可以在实验室中轻松操作它们。它是刺状蛋白。刺状蛋白驱动冠状病毒发生的许多变化, 有人畜共患病的风险。这样你就可以得到序列, 构建蛋白质。 我们与北卡罗来纳大学(UNC)的拉尔夫·巴拉克（Ralph Barrack）合作完成了此任务, 插入另一种病毒的主干，然后在实验室中实验。
 
-刚刚我们沼泽地的几个大佬给我发信息，昨天我一天没给他们联系，有几个人都慌的不得了了，怎么回事Miles?怎么回事?都很紧张,为什么?很多人的希望就在我们新中国联邦，很多人追究和追究责任和搞出共产党病毒的真相，只希望我们新中国联邦，这是一个世界上大潮流，不会因为那几个烂人、小人所能抹杀的，不要在乎那些事情。
+在一个实验室中“你可以轻松地操纵它们”，这是于2019年12月9日记录的。不久之后，彼得·达萨克停止接受有关他的实验室实验的采访。人们开始问一些不舒服的问题。那里没有一个先进的病毒学实验室，它有一个松散的遏制措施的历史，非常靠近第一次爆发的地方? 是的。 但是彼得·达萨克不想和我谈论这个。因此，他和世界卫生组织的其他官员提出了对该流行病的另一种解释。
 
-Just now, several bigwigs from the swampland sent me messages. I didn’t contact them the whole day yesterday, and a few of them had a panic attack. “Hey, Miles, what’s the matter? What’s the matter?” They are all very nervous. Why? Many people pin their hopes on our New Federal State of China (NFSC). Many people hope that the NFSC will help them to hold the CCP accountable and bring out the truth about the CCP virus. This is a global megatrend. It can’t be obliterated by a few bastards and scumbags. Don’t worry about those things.
+他们告诉世界，这种病毒极有可能是从某种外来哺乳动物中产生的，因为某种原因，这种哺乳动物正在一个武汉的海鲜市场出售。事情就是这样，媒体接受了这种解释。后来我们发现那不是真的。从来没有任何证据表明COVID感染起源于食用穿山甲。
 
-包括最近大家看到五毛是不是多了？当你发现五毛多的时候，就是共产党最疼的时候，当五毛多的时候，他就是无奈的时候，没办法的时候，所以说兄弟姐妹们，大家一定要整明白，我们现在看到每时每刻，过去的30几家，欧洲的世界的国家联合起来要制裁中共，我昨天我说40家，到现在为止已经超过50家了，这种速度，共产党它绝对不相信会发生，世界上一共200多个国家，现在已经50多个国家要全面要制裁中共，我们最终一定达到70家到90家。
+武汉当地人对这个想法嗤之以鼻。彼得·达萨克没有道歉，他只是不断转移实验室的注意力。
 
-Does everybody notice that there have been more trolls from the 50 Cent Army recently? When you see more trolls from the 50 Cent Army, the CCP is hurting the most. When there are more trolls, the CCP is helpless and has no way out. So, brothers and sisters, everyone must understand this. In the past, over 30 countries, including European countries and other countries in the world joined forces to impose sanctions against the CCP. We now see that number growing all the time. Yesterday I said there were forty countries, and now there are more than fifty countries. The CCP absolutely did not believe that it would happen at this speed. There are more than 200 countries globally, and now more than 50 countries want to impose comprehensive sanctions against the CCP. Our goal is to eventually reach 70 to 90 countries.
+他在4月对现在的民主(DemocracyNow)节目表示， “这种病毒从实验室逃脱的想法纯粹是胡说八道的，根本不是真的；我已经在该实验室工作了15年，他们是世界上最好的科学家之一。”
 
-我昨天讲的辛普森计划，辛普森夫人，大家没有一个人解读透的，我有些话我不能说，你们可以说，辛普森是谁？大家心知肚明，谁是温莎公爵？你们心知肚明。但是不管任何人，不管在哪国有多少个温莎公爵和希特勒的合作，不管他有多么的能耐，他不可能改变像当年希特勒那样的命运，一定比希特勒还要惨，这就是事实。
+从那时起，达扎克就一直不懈努力地坚持这一立场。
 
-I talked about the “Simpson Plan” and Mrs. Simpson yesterday, but none of you have interpreted it properly. There is something that I can’t say but you can. Who is Simpson? Everyone knows full well.  Who is the Duke of Windsor? Everyone knows full well. However, whoever they are, whichever country they live in, however many “Dukes of Windsor” are collaborating with “Hitler” and however capable they are, they cannot change their fate that resembles Hitler’s in his time. Their fate will be worse than Hitler’s. This is a fact.
+去年夏天, 他在《卫报》上写了一篇题为“忽略阴谋论：科学家知道Covid-19不是在实验室里制造的”的专栏文章，然后在推特上反复提出这一观点。
 
-七哥不想多说，你看看现在的惩罚、制裁，加拿大、澳大利亚、欧洲，包括现在的日本，包括二流国家都站出来了，越来越多人认识到，中国人民不等于共产党，共产党在走向疯狂的，在征服这个世界，欺骗着世界，威胁这个世界的危险的路上，这个世界再不发声，这个世界就要被共产党彻底给灭了，这难道不是事实吗？所以兄弟姐妹们，还是那句话，莘县阳谷县搭县，咱走走看。
+达扎克: “[功能增强] 研究与COVID的起源无关，除非你相信阴谋论，如果病毒来自蝙蝠，为什么要将两者混合在一起，所有证据都表明了这一点?
 
-Brother Miles doesn’t want to say too much. Look at the punishment and sanctions now: Canada, Australia, Europe, Japan. Even the second-tier countries have come forward. More and more people have realized that the CCP is not the same as the Chinese people. The CCP is on a dangerous path to madness, conquering the world, deceiving the world and threatening the world. If the world stays silent, it will be completely wiped out by the CCP. Isn’t this true? So, brothers and sisters, I am challenging the CCP to set up the rules of the game. I will take them on immediately, and we will see who wins in the end.
+[https://mobile.twitter.com/PeterDaszak/status/1275420482142076929?ref\_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1275420482142076929%7Ctwgr%5E%7Ctwcon%5Es1\_&ref\_url=https%3A%2F%2Fwww.foxnews.com%2Fopinion%2Ftucker-carlson-why-the-media-scientific-community-and-who-wont-investigate-covid-origins](https://mobile.twitter.com/PeterDaszak/status/1275420482142076929?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1275420482142076929%7Ctwgr%5E%7Ctwcon%5Es1_&amp;ref_url=https%3A%2F%2Fwww.foxnews.com%2Fopinion%2Ftucker-carlson-why-the-media-scientific-community-and-who-wont-investigate-covid-origins)
 
-用事实说话，用能力说话，人类历史上从来没像今天团结在一个目标的情况下，那就是灭共，那就是以毒灭共，以香港整个圣诚的人权被残害，包括在新疆的种族大屠杀，在西藏的灭佛，还有对我们爆料革命和法轮功的伤害，这些账是一定要算的， 一个都跑不了，不信走走看。
+海基·雷汉陶斯塔（Heikki rayhantausta）@HeikkiRay 2020年6月23日
 
-Let’s speak with facts and ability. In the history, there has never been a time like today when mankind is united in a common goal, that is, to take down the CCP, to take down the CCP using the truth about the CCP virus. Human rights in our holy city of Hong Kong have been mutilated. The genocide in Xinjiang, the suppression of Buddhism in Tibet, and the harm done to our Whistleblower Movement and Falun Gong. The CCP will be held accountable for all. No one can get away with this. If you don’t believe it, just wait and see.
+@thevageriesofp1 @PeterDaszak 和其他2个
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/605ceac1d1608d609ea7a9df](https://gtv.org/getter/605ceac1d1608d609ea7a9df) (1:55-5:25, 8:11-9:51)
-鸣谢：
-[1] 感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/1019005/](https://gnews.org/zh-hans/1019005/)
-[2] 感谢 YY 和 Liberte 提供英文翻译文本于 [https://gnews.org/1040402/](https://gnews.org/1040402/)
+我认为，确实必须确定真正的起源。另一件事是功能增强研究，在病毒学领域的过去和现在，都是对人类的真正的威胁。我个人意见。
 
-* * *
+彼得·达扎克
 
-整理校对 & 新闻撰写：【雷鸣（文鸣）】字幕：【JennyL】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+@PeterDaszal
 
-+4
+但是，除非您相信阴谋论，否则这种类型的研究与COVID的起源无关。为什么要将两者混合在一起, 如果所有证据都表明这种病毒来自蝙蝠？
+
+2020年6月23日，早上8:28
+
+这个国家几乎所有的媒体都尽职尽责地重复达扎克的说法。
+
+早在一月份，国家公共广播电台就报道说，“中国武汉的一个海鲜市场，正被指责为目前席卷全球的冠状病毒爆发的可能源头。”。那是大流行的几天，不清楚NPR是否派人到武汉，但不知怎么的，他们确切地知道病毒来自半个世界以外的中国中部地区。
+
+以探险闻名的《国家地理》（National Geographic）也以某种方式确定了这一问题的解决。”他们写道：“海鲜市场引发了冠状病毒。”这是你需要知道的。”
+
+所以, 调查记者对没有进行调查感到满意。
+
+但是有些人仍然有疑问，其中一位是阿丽娜 陈  (Alina Chan), 他是哈佛大学和麻省理工学院广泛研究所的分子生物学家。陈注意到冠状病毒有些奇怪。尽管其病毒已经经历了数万亿次的复制，但其基因组并没有随着时间的推移而发生很大变化。那太奇怪了，通常, 从动物传播到人类的病毒必须迅速适应其人类宿主。 那是2003年上一次SARS病毒所做的，在大流行后期，早期SARS病毒看起来与SARS病毒有很大不同。但是这种冠状病毒却没有那样的表现。事实上, 似乎是为人类传播量身定制的。
+
+当陈发表关于她的发现的论文时，彼得·达扎克向任何愿意倾听的记者对陈发动攻击。他称陈的结论是“荒谬”的“阴谋论”。大多数媒体机构都效仿了这一说法，故事就这样结束了。
+
+毕竟，阿丽娜 陈只是一位分子生物学家。她知道什么? 她很容易被忽略。
+
+那是当然, 正如中国的病毒学家闫丽梦博士在这个节目中曾经说过的所发生事实，闫在大流行初期在武汉工作过，但是美国媒体却不以为然，认为她是一个疯子，一个阴谋论者。 这里什么也看不到。走开, 疯狂的中国女人。所以她做到了。
+
+但展望未来，要驳斥这个故事可能要困难得多。周日，疾病预防控制中心的前主任罗伯特·雷德菲尔德告诉CNN，根据他所知的一切，他也相信冠状病毒可能来自武汉的实验室。
+
+雷德菲尔德: 我的观点是，我仍然认为武汉这种病原体最有可能的状况是从实验室逃脱的。 其他人不相信，没关系，科学最终将解决这一问题。在实验室工作的呼吸道病原体感染实验室工作人员并不罕见。
+
+很难将罗伯特·雷德菲尔德视为Qanon迷或疯子。他不是。雷德菲尔德曾是一名军官，一生都在研究病毒学。这并不意味着他对每件事都是对的，事实上，在这次大流行期间，他经常是错的。但这确实意味着他所说的值得仔细评估。这应该是记者们的谋生之道。他们调查那些有一定价值的、未经证实的、但应该调查的事实。尤其是那些对这个国家有巨大影响的主张。
+
+但事实并非如此。MSNBC和CNN的科学家，使阿丽娜陈沉默的那些人应该立即开始工作。
+
+埃琳·伯内特(ERIN BURNETT), CNN: 前疾病预防控制中心主任,  罗伯特·雷德菲尔德, 在新的CNN纪录片中告诉桑杰·古普塔（Sanjay Gupta）, 他认为COVID-19起源于武汉的一个实验室，尽管没有正式的证据支持该理论。
+
+斯科特·戈特利布(SCOTT GOTTLIEB), CBS: 你知道, 除非你汇总了最大数量的冠状病毒并将它们放在实验室中，否则实验室泄漏理论似乎并不是一个合理的理论。
+
+阿里·韦尔希（ALI VELSHI), MSNBC: 这种病毒起源于中共国武汉的实验室。 但是今晚，安东尼·福西（Anthony Fauci）博士告诉国家地理杂志，“这种病毒不可能被人为或故意操纵。”
+
+克里斯·海耶斯(CHRIS HAYES) MSNBC:  科学家和美国情报界都同意，该病毒不是人为制造的。它不可能来源于自然, 它不是来自实验室… 但，很多右翼的人都喜欢“逃出实验室”这个词，因为听起来像是漫威电影或漫画中的东西。听起来好像他们在谈论是中共国正在事实控制的武器化的一种病毒。
+
+因此，科学家和美国情报界是一致的：它并非来自实验室。 当然，有趣的是，我们不知道。在这两个方向上都没有确凿的证据。 那么，为什么这些自封的电视医生和会说话的头头们会立即将其政治化，并立即声称一些他们无法证明的东西呢？
+
+纽约时报立即发表了一篇热门文章，标题为 “前疾病预防控制中心主任支持揭穿Covid-19起源理论.” 据《纽约时报》报道，“情报机构……没有证据表明冠状病毒已从实验室逃脱”。
+
+那不是真的， 这不是一个已解决的问题。
+
+去年四月， 国家情报局局长办公室发表声明，指出情报界尚未排除武汉实验室的泄漏。
+
+情报官员说，他们将“继续严格检查新出现的信息和情报，以确定疫情是否是通过与感染动物的接触而开始的，还是由于武汉某实验室的事故造成的。” 就在上个月，国家情报局局长支持该声明。
+
+所以, 为什么这么多人试图一味地驳回这些声明，就好像他们知道? 他们为什么要让这位前疾病预防控制中心主任保持沉默? 一部分答案, 当然: 是来保护中共国的。 世界卫生组织是由中共国资助的, 他们肯定会为此而努力工作的。 这周, 世卫组织发布了关于冠状病毒起源的所谓“报告”，美国只有一名研究人员参加了世卫组织对病毒起源的调查。 猜猜是谁? 彼得·达扎克，真的是不可思议。
+
+现在猜猜怎样，达扎克和他的同事们在他们所谓的“调查”中发现了什么？ 很多中国人的无辜。 在世卫组织关于冠状病毒起源的120页报告中， 只有两页专门讨论了该病毒可能来自实验室的可能性。
+
+报告承认，”尽管罕见, 实验室事故确实会发生, 并且世界各地的不同实验室都在研究蝙蝠冠状病毒，” 并且， 它说, “武汉疾病预防控制中心实验室于2019年12月2日迁至[海鲜]市场附近的新地点。 这样的举动可能会破坏任何实验室的运作。”
+
+但世卫组织表示，不要误解。 该病毒“极不可能”来自实验室。 到底为什么这么不可能呢？
+
+“在2019年12月之前，任何实验室都没有与[冠状病毒]密切相关的病毒记录, 或基因组， 在结合起来可以提供SARS-CoV-2基因组。”
+
+换句话说，我们没有找到纸质痕迹，因为中共国没有留下痕迹。
+
+但是, 世界卫生组织希望你知道, 如果有人能够阻止致命病毒逃逸到世界各地，它是武汉病毒学研究所。 报告指出：“武汉的三个实验室[冠状病毒]诊断、[冠状病毒]分离和疫苗开发，均具有高质量的生物安全水平设施，并得到了良好管理。”
+
+案件结案。顺便说一下，这与进入实验室的美国外交官的第一手证词相矛盾，并且说   “哇, 这看起来很危险。” 但是根据世卫组织, 中共国和世卫组织没有做错，所以停止问问题。
+
+但是有趣的是人们不会停下来，有人会继续问。
+
+在周日, 一位前国家安全官员告诉哥伦比亚广播公司(CBS) ，世界卫生组织的报告具有北朝鲜晚间新闻广播的所有的可信性。
+
+杰米·梅茨尔（jamiemetzl）曾在克林顿政府任职，后来又在世卫组织咨询委员会任职，不能用右翼人士来形容。“这报告太过分了”杰米·梅茨尔是这么说的。
+
+梅茨:我真的不会把现在发生的事情称为调查。 这本质上是一个高度陪伴, 精心策划的学习之旅…世界各地的每个人都在想这是一种全面的调查。它不是。 这群专家只看到了中国政府希望他们看到的东西…首先达成共识，中国将拥有否决权，甚至可以禁止谁参加任务…世卫组织同意这一点…想象一下我们是否已要求苏联对切尔诺贝利进行共同调查？这真的没有道理。
+
+那么，为什么那么多身居要职的人，包括所谓的科学界人士，如此坚定地认为这里什么都看不到呢？？
+
+这是一个建议: 去年, 理查德·埃布赖特（Richard Ebright）, 罗格斯大学的微生物学家, 接受《波士顿杂志》的采访，他解释了为什么科学界可能想隐藏这样的大流行的起源。 他说, “对于进行功能增益研究的病毒学家的实质性子来说，避免对研究经费的限制、避免实施适当的生物安全标准以及避免实施适当的研究监督是强有力的激励因素。.”
+
+另一位科学家，来自麻省理工学院的安东尼奥·雷加拉多（Antonio Regalado）, 对此更直接。 如果确定病毒来自实验室, 雷加拉多说，它将“彻底粉碎科学大厦”。
+
+科学大厦是华盛顿每个人都希望看到的一件事。它赋予了政客们在过去一年中滥用的权力——改变选举的权力，消灭成千上万的小企业的权力，使某些行业更加富裕和强大，并摧毁其他行业的权力。
+
+明天，拜登政府不会宣布对冠状病毒起源的新调查。他们对世卫组织的报告很满意。相反，他们将宣布这个国家历史上最大的一次增税。可能是最大的。预计总额将在3到4万亿美元之间。大部分成本将落在中产阶级身上。有一次，拜登人甚至试图征收天然气税，以确保小时工受到的伤害最大。
+
+与此同时，中共国的鲁莽和不诚实将美国从全球霸主地位上击倒，并在这一过程中摧毁了数百万人的生命，中共不必为此付出任何代价。他们会越来越富有，而我们却越来越穷。预计这一趋势将持续下去。有趣的是：甚至没有人建议中国赔偿科维德。没有人能说出这个词。赔偿总是由美国来支付的。
+
+原文链接：https://www.foxnews.com/opinion/tucker-carlson-why-the-media-scientific-community-and-who-wont-investigate-covid-origins
+
+0
