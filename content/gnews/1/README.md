@@ -1,46 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美职业棒球全明星赛迁离亚特兰大
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1048252/)
+## 拜登支持全明星赛迁址却不抵制北京冬奥会
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1048263/)
 
 俄罗斯莫斯科喀秋莎农场   仰望七星
 
 编辑 水星  上传 银河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/下载-3-6.jpg)gnews
-正像文贵先生预计的那样，美国的宪政危机已经开始，正义与邪恶的较量正在博弈，初尝甜头、窃取2020大选的民主党，试图将窃取舞弊手段合法化，迫不及待地推出《为人民法案》，煽动大公司、左派联盟造势、响应。在拜登呼吁、美国职业棒球大联盟唯唯顺从、川普总统声援佐治亚州之后，佐治亚州也就美国职业棒球全明星赛的迁离发表声明，反映了正义力量的觉醒。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/图片2-9.jpg)gnews
+靠选票舞弊欺诈登位的拜登，面对多个摇摆州不是重新计票，就是严格了投票程序，以防弄虚作假者轻易得手，在做贼心虚的心态下，表现出了色厉内荏的一面，先是发表声明谴责，继而煽动大公司抵制，造成了当前的宪政危机。
 
-声明全文如下：
+签署选举改革法案的佐治亚州州长坎普，指责拜登是在分散民众们对具有同样，甚至更大的边境危机的注意力；在周五的白宫新闻简报会上，有记者则直截了当，质问拜登（普萨基），“能呼吁全明星比赛迁址，却不抵制北京冬奥会！”
 
-大佐治亚州就MLB的全明星赛决定发表声明
+《联邦主义者》（The Federalist）网站发文对此进行了报道，题目“当被问到拜登是否会支持美国抵制北京奥运会时，普萨基很无礼，因为拜登支持MLB抵制佐治亚州新选举法”。
 
-亚特兰大-针对大联盟将全明星赛和大联盟比赛从亚特兰大迁出的决定，大佐治亚州主席凯利·洛弗勒发表了以下声明：
+全文如下：
 
-“极为不幸的是，美国职棒大联盟陷入了由民主党人散布的误导信息运动，只会损害勤劳的佐治亚州人和小企业的利益。当美国职棒大联盟有机会选择向标志性先驱汉克·亚伦致敬时，他们反而选择了向政治致敬。” 凯利·洛弗勒说。
+白宫新闻秘书詹·普萨基（Jen Psaki）被记者问到，鉴于拜登支持美国职业棒球大联盟（Major League Basketball）审视抵制佐治亚州新选举改革法案，他是否有计划评估美国参加北京奥运会？
 
-“大佐治亚州将继续与支持《选举廉正法》的绝大多数佐治亚州人站在一起，该法扩大了参选机会，加强了我们选举的公正性。”
+“总统表示他支持MLB做出关于佐治亚州全明星赛的决定。”《真正清晰的政见》（Real Clear Politics）网站的菲利普·韦格曼（Philip Wegmann）周五向普萨基（Psaki）提问，“我想知道，鉴于拜登总统说中共习主席体内没有一根‘民主的骨头’，我们什么时候才能指望总统对美国参加北京奥运会做出最终决定？”
 
-声明链接：
+中共国没有公平、自由的选举，该政权还因对新疆维吾尔族穆斯林的种族灭绝而屡遭谴责。
 
+“嗯，我认为美国奥委会将在-” 普萨基开始之前，韦格曼打断了她的话，敦促她回答拜登的立场。
 
+然后，普萨基没有回答他的问题，而是在冒犯记者。
 
-> The [@MLB](https://twitter.com/MLB?ref_src=twsrc%5Etfw) had the chance to honor an iconic trailblazer and [@Braves](https://twitter.com/Braves?ref_src=twsrc%5Etfw) legend Hank Aaron.
-> 
-> Instead, the bowed to the woke disinformation campaign of the Left—to the detriment of hardworking Georgians and small businesses.
-> 
-> Full statement below ⬇️ [pic.twitter.com/VBjzWEYkKZ](https://t.co/VBjzWEYkKZ)
-> — Kelly Loeffler (@KLoeffler) [April 2, 2021](https://twitter.com/KLoeffler/status/1378085880687169539?ref_src=twsrc%5Etfw)
+“我不知道你是否听到了这个问题，答案发生在几分钟前，我们讨论了这个问题，我回答了这个问题，我给出了更多的选项，但也许你没有注意到这一部分。” 普萨基厉声说。
 
+此前在记者招待会上，普萨基声称拜登“没有呼吁企业抵制”佐治亚州，但澄清说，如果他们选择离开佐治亚州，他确实支持他们。
 
+普萨基说，“他也没有指使美国职业棒球大联盟将他们的比赛迁出佐治亚州，他在传达，如果这是一个决定，他肯定会支持这一点，从他在那次采访中所说的话来看，这是真的。”
 
-声明文字整理：
+普萨基继续解释拜登对佐治亚州法案的看法，并重申了白宫有关投票站用水限制的言论，她还声称，美国政府“没有从这里要求企业采取具体的行动”。（原文完）
 
-GREATER GEORGIA ISSUES STATEMENT REGARDING MLB’SALL-STAR GAME DECISION
+发表此文的目的，不是重复拜登因恐惧“欺诈舞弊真相暴露”的言行，也不是指责普萨基对主子的袒护，而是向人们展示，已经有更多的人在认清中共，这个当今世界最大的恶魔。
 
-ATLANTA- In response to the MLBS decision to relocate the All-star Game and MLB Draft from Atlanta, Greater Georgia Chairwoman Kelly Loeffler released the following statement:
+原文链接：
 
-It’s extremely unfortunate that the MLB has fallen into the woke misinformation campaign being spread by Democrats-only to the detriment of hardworking Georgians and small businesses. At a time when the MLB had the opportunity to honor an iconic trailblazer in Hank Aaron, they instead opted to honor politics, “Kelly Loeffler said.
-
-“Greater Georgia will continue to stand with the vast majority of Georgians who support the Election Integrity Act that expands access and strengthens the integrity of our elections.”
+[https://thefederalist.com/2021/04/02/psaki-snaps-when-asked-if-biden-would-support-u-s-beijing-olympics-boycott/](https://thefederalist.com/2021/04/02/psaki-snaps-when-asked-if-biden-would-support-u-s-beijing-olympics-boycott/)
 
 0
