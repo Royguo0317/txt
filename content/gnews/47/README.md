@@ -1,65 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 由于缺乏透明度，人们普遍批评世卫组织同意了中国的要求
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1046279/)
+## 谈谈孔子学院
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1045264/)
 
-@60分钟节目主持人：
+作者：Tang | 校对：文明明 | 审核：万人往 | Page: Daoiii
 
-The lack of transparency has let to widespread criticism of the WHO for agreeing to China’s demands
+[!\[\]()!\[\](https://spark.adobe.com/page/sAGW2hJXFKLUs/images/b38a27c2-7a83-467a-8ced-0cc1398b9e36.png?asset_id=f837ae4d-3a87-4da0-88ca-5700dc9bb069&amp;img_etag=%2217f2913d3b2870bd2af8dc2629a1b30b%22&amp;size=1024)](https://spark.adobe.com/page/sAGW2hJXFKLUs/images/b38a27c2-7a83-467a-8ced-0cc1398b9e36.png?asset_id=f837ae4d-3a87-4da0-88ca-5700dc9bb069&amp;img_etag=%2217f2913d3b2870bd2af8dc2629a1b30b%22&amp;size=1024)
 
-由于缺乏透明度，人们普遍批评世卫组织同意了中国的要求
+最近，田纳西州州长比尔·李提出了一项立法：禁止该州公立大学与孔子学院建立联系。州长在一份声明中说：“大学是进行思想辩论的前沿，而不是在外国政府阴影下运作的地方。”州长为何要针对孔子学院采取上述行动呢？
 
-麦特.博明（Matt Pottinger）:
+孔子学院是我们耳熟能详的、为中共实施文化渗透的组织。自2004年在韩国首尔开设第一所孔子学院以来，至今在全球160多个国家，已设立了超过500所孔子学院和近1200个孔子课堂。
 
-The one thing that I wish the who has done is to pick up their megaphone
+孔子学院对外宣称：要满足世界各国人民对汉语学习的需要，增进世界各国人民对中国语言文化的了解，加强中国与世界各国教育文化交流合作，发展中国与外国的友好关系，发展儒家文化，促进世界多元文化发展，构建和谐世界。乍看之下，冠冕堂皇，与德国歌德学院很类同。但是，我们略作对比就不难看出，二者之间有着本质的不同。说起办学宗旨，歌德学院中国分院院长安德思说：“我们非常努力地去保卫自由——艺术的自由、媒体和言论的自由。”而孔子学院是中共大外宣的组成部分，它听命于中共，为共产政权发声，通过文化交流和语言教学的形式来完成它大外宣的使命。而且，这种声音是排他的，是服从于中共的政治目的。孔子学院在世界各地开办后，就利用“蓝金黄”的手段去收买当地政要和文化名人，然后要求对方接受它的条件，譬如不能议论香港问题、西藏问题、新疆问题等等敏感话题，更不能有批评中共政权的言论。
 
-我希望世卫组织做的一件事是拿起他们的扩音器，
+[!\[\]()!\[\](https://spark.adobe.com/page/sAGW2hJXFKLUs/images/d4d9c0f3-1cbc-4369-8369-85a838039ee6.jpg?asset_id=6c259a85-e9a8-49b3-a15d-13a9b30350c5&amp;img_etag=%227c14696d661670d202b26ddecf8ffb5d%22&amp;size=2560)](https://spark.adobe.com/page/sAGW2hJXFKLUs/images/d4d9c0f3-1cbc-4369-8369-85a838039ee6.jpg?asset_id=6c259a85-e9a8-49b3-a15d-13a9b30350c5&amp;img_etag=%227c14696d661670d202b26ddecf8ffb5d%22&amp;size=1024)
 
-and start screaming through it to demand that China be more transparent, that it open its border
+近年来，世界各地都掀起了反对和抵制孔子学院的活动，各国纷纷关闭孔子学院。（来源大纪元）
 
-开始通过扩音器大声疾呼，要求中国更加透明，开放边境，
+孔子学院既是大外宣机构，也是统战机构。你可以不信他们的共产主义思想（其实他们自己也不相信），但你不能指责中共政权，适当时机还要配合地夸赞这个政权，否则你就拿不到钱，分享不到他们给你的利益。
 
-to allow American CDC officials and other experts from the WHO and around the world to come investigate and to help
+当中国老百姓的家庭被昂贵的教育费用压得喘不过气来的时候，中共却拿着大量的民脂民膏撒去海外，设立孔子学院以及其它相关的海外文宣和统战机构。仅美国哥伦比亚大学在最近五年间就获得了来自孔子学院的一百万美元的资助。全球有500多所孔子学院、近1200所孔子课堂，那又是何等庞大的开支？
 
-允许美国疾控中心官员和来自世卫组织及世界各地的其他专家前来调查和帮助
+一个轻视、甚至仇视知识分子，用文化大革命这样空前规模的群众运动来摧毁中华文化的政党，怎么可能真正“发展儒家文化”，“加强中国与世界各国教育文化的交流与合作”？事实上，从孔子学院组织的各种活动中可以看出，它就是一个歪曲历史、歪曲事实，传播中共意识形态的大外宣和统战机构。
 
-@60分钟节目主持人：
+好在世界已有醒悟！2018年，美国国会通过《国防授权法》，禁止国防部资助有孔子学院的美国大学的中文学习项目。多所大学先后与孔子学院终止了合作关系。
 
-After 15 months and more than 2.7 million deaths worldwide,
+[!\[\]()!\[\](https://spark.adobe.com/page/sAGW2hJXFKLUs/images/9dd067a1-b732-4840-a840-ef28b12dd314.jpg?asset_id=e7cb400b-2bd7-415d-8868-4a3f8dc6d78c&amp;img_etag=%22e79739c4fb234c00d87e20fb4d8bccf7%22&amp;size=1024)](https://spark.adobe.com/page/sAGW2hJXFKLUs/images/9dd067a1-b732-4840-a840-ef28b12dd314.jpg?asset_id=e7cb400b-2bd7-415d-8868-4a3f8dc6d78c&amp;img_etag=%22e79739c4fb234c00d87e20fb4d8bccf7%22&amp;size=1024)
 
-在经历了15个月和全球270多万人死亡之后，
+去年，澳大利亚政府对在澳的十三所设有孔子学院的大学展开调查，审查这些大学是否违反了澳洲的《外国影响力透明化法》。德国、法国、瑞典等欧洲国家在近几年里也有关闭孔子学院的行动。
 
-it was hoped the team would provide some clarity on the origin of Covid-19.
+川普政府更是将孔子学院美国中心（CIUS）定性为中国共产党的“外国使团”。前国务卿蓬佩奥先生将CIUS描述为：“推动北京在美国校园和k-12教室开展全球宣传和恶性影响力运动的实体。”
 
-人们希望这个团队能为中共病毒的起源提供一些清晰的信息
+所以，无论孔子学院怎样地涂脂抹粉、乔装打扮，世界已经明白它并不是中华文化的传播者，也不是学术思想的交流地，而是真真切切的中共党文化的宣传者，是执行中共渗透计划的统战阵地，是中华文化的歪曲者。它必将随同中共政权的垮台而覆灭。
 
-But the exercise ends with even more questions than it began with.
+*文章仅代表作者观点*
 
-但调查活动结束时出现了比开始时更多的问题
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接：
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
 
+编辑：【英国伦敦喜庄园编辑部】
 
-> A lack of transparency on the part of China has led to criticism of the World Health Organization for agreeing to China’s demands during their joint team inquiry into the origins of the COVID-19 virus. [https://t.co/WLc8xIhm03](https://t.co/WLc8xIhm03) [pic.twitter.com/kUN8iE6uz3](https://t.co/kUN8iE6uz3)
-> — 60 Minutes (@60Minutes) [March 28, 2021](https://twitter.com/60Minutes/status/1376316231494549504?ref_src=twsrc%5Etfw)
+[!\[\]()!\[\](https://spark.adobe.com/page/sAGW2hJXFKLUs/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/sAGW2hJXFKLUs/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
-
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-英听校：康州盘古农场 – WZ
-翻译：康州盘古农场 – WZ
-翻译终校：康州盘古农场 -Freeearth
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发文：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-0
++1

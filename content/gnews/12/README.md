@@ -1,111 +1,76 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【班农战斗室】844-845-846期简讯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1047198/)
+## 美国前军官建议 在喜马拉雅山部署第10山地师
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1047231/)
 
-#### **翻译：七彩光**
+新闻来源：The Washington Times《华盛顿时报》| 作者：James Fanell (詹姆斯•范内尔) | 发布时间：2021年3月30日
 
-#### **校对****/编辑：文泓**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/844-845-846.png)
-图片来源：墨尔本雅典娜农场设计组（精灵蓝）
+翻译/简评：新街口 |校对/审核：万人往 |Page：小雨
 
-**主持人：史蒂夫****.班农**
+[!\[\]()!\[\](https://spark.adobe.com/page/FOp81FN91H5Yi/images/49fa82ef-596c-4412-b254-6b43f2c23ce7.jpg?asset_id=01999d9c-b3d2-4f1d-93d4-f366266cbeee&amp;img_etag=%226f0f7d26c7e3e028160981d42a0d7c79%22&amp;size=2560)](https://spark.adobe.com/page/FOp81FN91H5Yi/images/49fa82ef-596c-4412-b254-6b43f2c23ce7.jpg?asset_id=01999d9c-b3d2-4f1d-93d4-f366266cbeee&amp;img_etag=%226f0f7d26c7e3e028160981d42a0d7c79%22&amp;size=1024)
 
-**嘉宾：****Father Robert McTeigue, Jeff Brain, Maria Luisa, Brian McCall, Dr, Maria Ryan, Dr.Yan, Drew Mason, Dr. Peter Navarro, Boris Epshteyn, Jason Jones**
+**简评：**
 
-#  
+自中共非法夺取政权以来，对印度的威胁就一直存在。解放军在1962年对印度的军事进攻之后，去年又在有争议的边界地区对印度军队进行突然袭击，残酷地谋杀了20名印度士兵。
 
-#### **1、震惊：耶稣受难日罗马如苏联式警察国家那样全城封锁**
+本文作者对中共有着清楚的认识，意识到了武力是中共实现“中国梦”的一个重要手段，并且随时会对周边的国家使用。美、印、日、澳四国联盟在海军方面已经着手进行联合演习加强军事合作，共同抵抗中共海上扩张。同时，作者建议美国政府和印度在陆地上也要建立类似海军模式的战略军事联盟，帮助印度抵抗中共的军事威胁。
 
-意大利记者玛丽亚·路易萨·罗西（Maria Luisa Rossi）加入了“作战室”，带来了一份令人震惊的报告，报告了（意大利）罗马在第三次疫情封城期间的严峻形势。
+作者建议将美国陆军的第10山地师部署到喜马拉雅山脉，与印度军队联合面对中共军队的威胁，这确实是一个大胆且实用的军事部署。
 
-包括圣彼得大教堂在内的城市各处，在耶稣受难日空无一人。
+喜马拉雅山脉是中共国具有天然屏障的大后方，在喜马拉雅山脉上部署美国陆军无疑是在中共的后颈上悬起来一把利剑。对中共进行海上和陆地的军事双重封锁合围，必然会迫使中共不敢轻易对周边国家实施武力，因为这样做会受到联盟国家来自海上和陆地的前后夹击。以中共的军事实力，难以应对这种全方位战争，胜利的机会基本为零。
 
-“永恒之城空无一人”，她说：“今天这样的罗马我从未见过，一幅空荡冷清的罗马画卷，店铺酒店关门，百业凋零。**（备注：**永恒之城代指意大利首都罗马。）
+**原文翻译：**
 
-她说，“一座空城不是因为基督受难而哀悼，而是因为冠状病毒而哀悼”。
+## **通过威慑中共国，捍卫美国的国家利益**
 
-罗西透露，苏联式的警察国家，几乎不会让任何人进出。从意大利的另一次封城来看，目前的（现状）情况是“可怕的”。
+**将美国陆军的第10山地师部署到喜马拉雅山脉**
 
-“我看到了不确定性，我看到了恐惧，我看到了默许”，罗西说：“这就是我在意大利人民身上看到的。”
+[!\[\]()!\[\](https://spark.adobe.com/page/FOp81FN91H5Yi/images/cae93f9a-6da9-4c44-8e60-ed33ed63dec2.jpg?asset_id=72b55ef1-4fb6-444d-af71-d6e7a1ff5b92&amp;img_etag=%22f886502766cb81a3b013a4ee63cdb322%22&amp;size=1024)](https://spark.adobe.com/page/FOp81FN91H5Yi/images/cae93f9a-6da9-4c44-8e60-ed33ed63dec2.jpg?asset_id=72b55ef1-4fb6-444d-af71-d6e7a1ff5b92&amp;img_etag=%22f886502766cb81a3b013a4ee63cdb322%22&amp;size=1024)
 
-“我认为没有人真正知道发生了什么”，她说：“（疫情）数据最好是不确定的，而一些记者声称ICU病房并没有满负荷运转，人们没有任何意识觉醒。”
+前两个月拜登政府已经着手改变前任政府的许多政策，但似乎只有一个例外——公开承诺把“自由和开放的印度太平洋”作为一个安全保障，来面对来自中共国的全球霸权的威胁。
 
-“经济正在死亡”，罗西说：“它在2020年就已经死亡，三十万家企业被关闭，他们真的不知道如何重新开始。”
+在处理中共国的威胁中，拜登政府延续川普政府政策最近的一个著名例子就是它与印度的往来。例如，3月12日，拜登总统（事实上）主持了有史以来首次四方安全对话（四方）高级领导人峰会（SLS）。
 
-#### 2、拉希姆•卡萨姆揭露主要智库、媒体和大科技公司与中共的关系
+四方对话始于2007年，是由印度、日本、澳大利亚和美国组成的非正式战略对话组织，在奥巴马政府期间基本处于休眠状态，但在川普政府期间重新活跃起来。在上一届政府期间，四国联盟的兴起以2020年马拉巴尔演习达到高潮。在那次演习中，所有四个国家的海军在孟加拉湾和阿拉伯海进行了战斗训练。
 
-拉希姆•卡萨姆（Raheem Kassam）在《国家脉动》阐述了他的爆炸性报告内容，该报告揭露了美国智库和大科技公司是中共的资产。
+这是第一次印度和美国都派遣了航空母舰参加了演习，同时向北京发出信号：解放军海军进军印度洋将不会是只面对一国海军，而是要应对四国的舰队。
 
-卡萨姆有中共吹嘘美国媒体和大科技公司谁能“把中国的故事讲好”的确凿证据。
+一周后，拜登政府在四方高级领导人峰会上进行了跟进，当时新任国防部长劳埃德•奥斯丁三世（Lloyd Austin III）前往新德里（3月19日至21日）与印度国防部长拉纳纳特•辛格（Rajnath Singh）进行会谈。在前往印度之前，奥斯汀曾与国务卿安东尼•布林肯（Antony Blinken）一起访问了东京和首尔，以加强对日本和韩国的联盟承诺。
 
-中共的合作者包括，活跃在脸书（Facebook）上的赫勒·托宁•施密特（Helle Thorning-Schmidt），杰克·多西（Jack Dorsey），伊隆·马斯克（Elon Musk），Ebay和反川普运动创始人皮埃尔·奥米迪亚(Pierre Omidyar)，尼古拉·萨科齐（Nicolas Sarkozy），埃里克·施密特（Eric Schmidt）， 劳伦斯·萨默斯（Larry Summers）， 法里德·扎卡利亞 （Fareed Zakaria）， 阿里安娜·赫芬顿（Arianna Huffington）等等。
+3月18日至19日，布林肯在阿拉斯加的安克雷奇市参加国际关注地与中共国的首次面对面对话期间，奥斯丁绕开了这一会议，前往印度。将奥斯丁派遣到德里，而不让他参加与中共国的“ 2 + 2”对话，这是一个有力的声明：即不会回到前国务卿迈克•蓬佩奥所说的“盲目参与”政策，至少不是在军事领域。
 
-（备注：赫勒·托宁-施密特（Helle Thorning-Schmidt）是丹麦政治人物，前任丹麦首相，丹麦社会民主党党魁；
+[!\[\]()!\[\](https://spark.adobe.com/page/FOp81FN91H5Yi/images/c96b8900-502d-4034-8cb3-aa107c9fdbcf.jpg?asset_id=d39deaad-c59f-4e24-805c-ceda97b574ca&amp;img_etag=%2292bcd207991abfd4fcc6c1aa22f2b970%22&amp;size=1024)](https://spark.adobe.com/page/FOp81FN91H5Yi/images/c96b8900-502d-4034-8cb3-aa107c9fdbcf.jpg?asset_id=d39deaad-c59f-4e24-805c-ceda97b574ca&amp;img_etag=%2292bcd207991abfd4fcc6c1aa22f2b970%22&amp;size=1024)
 
-杰克·多西（Jack Dorsey）是推特（Twitter）和Square公司联合创始人兼CEO;伊隆·马斯克（Elon Musk）是一名出生于南非的美国企业家，以SpaceX、特斯拉汽车、PayPal（原X.com）共同创办人而闻名；
+印度领导人和人民并没有忘记这一点。
 
-尼古拉·萨科齐（Nicolas Sarkozy），法国政治家，曾任第23届总统；埃里克·施密特（Eric Schmidt）是一位美国企业家、计算机软件工程师，2015年至2017年为Alphabet Inc.运行董事长；
+因此，问题是相对于四方对话的军事领域而言，美印关系的下一步行动是什么？如前所述，在美国和印度海军从夏威夷海域到阿拉伯海共同行动的海军领域已做出了很大的努力，但在另一个领域，美国和印度可以将这种关系从非正式的安全对话转变为“联盟”，即使没有得到律师的认可，我们的军事领导人也会承认这种关系。那个领域属于两国的军队。
 
-劳伦斯·萨默斯（Larry Summers），美国著名经济学家，美国国家经济委员会主任，在克林顿时期担任第71任美国财政部部长，曾任哈佛大学校长；
+2020年6月，解放军在拉达克东部靠近与中共国有争议的实际控制线的加尔万河谷残酷地杀害了20名印度士兵。这一事件是自1962年中印战争以来，对印度影响最为巨大的一件事。解放军公然残酷杀害了来自印度各地的士兵，这不仅使印度人民感到震惊，而且对印度政府产生了变革性的影响。
 
-法里德·扎卡利亞 （Fareed Zakaria）是美国著名印度裔记者、时事评论家和作家，他现在是《时代杂志》主编、CNN人气时事评论节目《法里德·扎卡利亚的环球公共广场》（Fareed Zakaria GPS）的制片人及主持人阿里安娜·赫芬顿（Arianna Huffington），美国政治博客Huffington Post共同创始人；
+[!\[\]()!\[\](https://spark.adobe.com/page/FOp81FN91H5Yi/images/09bcbb02-d869-41ce-a8a3-6cfc9492e39a.jpg?asset_id=2727db44-0e3a-42d5-9f8b-7db25e668e86&amp;img_etag=%22f80a2227b0da40f774b12f72b1283a18%22&amp;size=2560)](https://spark.adobe.com/page/FOp81FN91H5Yi/images/09bcbb02-d869-41ce-a8a3-6cfc9492e39a.jpg?asset_id=2727db44-0e3a-42d5-9f8b-7db25e668e86&amp;img_etag=%22f80a2227b0da40f774b12f72b1283a18%22&amp;size=1024)
 
-赫芬顿最初是一名保守派时事评论员，创建《赫芬顿邮报》网站，也为《赫芬顿邮报》写博客，2010年出版了第13本著作《第三世界美国》。）
+印度政府不仅没有后退，反而加强了他们的立场。他们还采取了迅速行动，禁止了包括抖音在内的近60个中共国软件（现已增加到接近200个），并且直接限制了来自北京的外国投资。这些行动以及对“四方对话”的日益重视清楚地表明，德里正在寻求更大的合作与协作，以防御中共国的侵略。
 
-中共吹嘘他们（美国智库和大科技公司）是“中国日报的资产”，而中国日报是中共的一个机构。
+为了帮助证明美国的承诺，现任政府应制定一项计划，与印度同行建立例行的美国陆军（和美国海军陆战队）常规训练和演习计划。印度军队将从与美国陆军和其他四方成员地面部队的联合训练中受益匪浅，奥斯汀在美国中央司令部的指挥经验肯定会给这种计划增加可信度。
 
-卡萨姆说，美国人必须联系他们的议员代表，要求正式调查（其中的）金钱关系，以及是否存在出卖西方（国家）的“交换条件”。
+由于五角大楼最近批准允许中非和非洲作战司令部与印度军方直接进行互动，现在正是我们地面部队之间进行这种互动的最佳时机。
 
-[点击这里](https://thenationalpulse.com/exclusive/exc-china-state-propaganda-boasts-control-over-think-tanks/)阅读这篇爆炸性报道。
+拜登政府最好考虑建立一个地面部队演习计划，就像美国太平洋舰队与印度海军在马拉巴尔或环太平洋地区（RIMPAC）等军演中进行的演习。
 
-#### 3、中共利用病毒弱化教会的影响力
+在这种以陆军为中心的军事演习中，可以进行比如称为“喜马拉雅山脉的边缘”（RIMHIM）的演习，以引进美国陆军（例如美国陆军第10山地师）的地面部队专业知识，这将发出另一个明确的信号给北京，迫使中国共产党重新规划其战略思想议程，即选择通过武力实现其“中国梦”。
 
-法学编辑主席、教授布莱恩•麦考尔说，中共利用其病毒攻击了全世界的教会。
+•*詹姆斯•范内尔（James Fanell）是退休的海军上尉，曾是海军太平洋舰队的情报和信息作战总监。他目前是日内瓦安全政策中心的政府研究员。*
 
-（备注：布莱恩•麦考尔（Brian McCall）是CFN主编，也是美国天主教律师协会终身法学教授。）
+🔗[原文链接](https://www.washingtontimes.com/news/2021/mar/30/defending-american-national-interests-by-deterring/)
 
-麦考尔告诉《战斗室》，空荡荡的教堂，就像在罗马一样，是利用恐惧进行攻击的结果，以及软弱的领袖们却不为他们的教徒挺身而出。
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-麦考尔将教堂的关闭追溯到苏联和中国共产党试图摧毁宗教的不同做法。中共的做法更加巧妙。
 
-“那是什么做法呢？”他问：“那就是一边拉拢人心，一边让人们与宗教断绝关系。”
+编辑：【英国伦敦喜庄园编辑部】
 
-“他们利用他们创造的病毒来达到这个目的（封锁）”，麦考尔说，而美国和世界各地的许多教会领袖却都乐于效仿（封锁）。
-
-例如，麦考尔说，大部分关闭教堂的做法不是美国政府强制要求的。
-
-“实际上宗教领袖们自己先示弱了，而没有坚定拒绝，”他说。
-
-作为新书《荒野中的声音：大主教卡洛•玛丽亚•维加诺对教会、美国和世界的看法》的编辑，麦考尔说，中共已经渗透了各个教会，包括梵蒂冈。
-
-麦考尔说，无论是有宗教信仰的美国人还是没有宗教信仰的美国人，都应该阅读维加诺大主教的著作，以了解中共如何渗透到教会各主要机构。
-
-“即使你不是天主教徒，它也给你一个例子，说明一个主要机构是如何从内部被接管的，”麦考尔说。
-
-#### 4、闫博士：新冠病毒是中国军方生物武器且会被多次使用
-
-举报人闫丽梦博士说，中共对其病毒的“虚假宣传战略”正在溃败。
-
-闫博士说，世界卫生组织的报告,排除了该病毒诞生于武汉病毒学研究所，该报告在“误导”世人，是为了掩护中共。
-
-她周五对《战斗室》说：“武汉实验室的新冠病毒起源论和中共军方超限生物武器都得到了进一步的证明。”
-
-作为一直站在揭露由美国纳税人资助的中共生物武器研究的最前沿，闫博士说该病毒是一种超限生物武器。
-
-然而，她警告说，中共军方制造的病毒“可以在任何时候被使用，并且不会只被使用一次”。
-
-**参考资料：**[**维基百科**](https://www.wikipedia.org/)
-
-**原文链接：**
-
-1.  [Shocking: Rome is Soviet-Style Police State Totally Shut Down on Good Friday](https://pandemic.warroom.org/2021/04/02/shocking-rome-is-soviet-style-police-state-totally-shut-down-on-good-friday/)
-
-2.  [Raheem Kassam Exposes Major Think Tank, Media and Big Tech Ties to the Chinese Communist Party](https://pandemic.warroom.org/2021/04/02/raheem-kassam-exposes-major-think-tank-media-and-big-tech-ties-to-the-chinese-communist-party/)
-
-3.  [CCP Using Virus to Weaken the Church](https://pandemic.warroom.org/2021/04/02/ccp-using-virus-to-weaken-the-church/)
-
-4.  [Dr. Yan: Covid-19 is Chinese Military Bioweapon That Can Be Used More Than Once](https://pandemic.warroom.org/2021/04/02/dr-yan-covid-19-is-chinese-military-bioweapon-that-can-be-used-more-than-once/)
+[!\[\]()!\[\](https://spark.adobe.com/page/FOp81FN91H5Yi/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/FOp81FN91H5Yi/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0
