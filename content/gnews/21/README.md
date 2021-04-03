@@ -1,66 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共施压世卫组织 要求在他国找到病毒起源
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1047256/)
+## 美国务卿布林肯谴责缅甸军方开枪射杀平民-呼吁民权政府重新掌权
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1047491/)
 
-新闻来源：《布赖特巴特（Breitbart）》| 作者：约翰·海沃德（JOHN HAYWARD） | 发布时间：2021年3月31日
+国务卿布林肯：
 
-翻译/简评：随波逐流 | 校对：感恩 | 审核：万人往 | Page：Daoiii
+We see it in what’s happened in Burma.
 
-[!\[\]()!\[\](https://spark.adobe.com/page/4TDeuiZ1ChpZw/images/f7feefe2-19a3-4889-b02e-30e031e7ab2a.jpg?asset_id=950d8c4d-33c9-4f79-9f94-13871f31d572&amp;img_etag=%220ce19c7c2989f64c7b9f9a21d7100c10%22&amp;size=1024)](https://spark.adobe.com/page/4TDeuiZ1ChpZw/images/f7feefe2-19a3-4889-b02e-30e031e7ab2a.jpg?asset_id=950d8c4d-33c9-4f79-9f94-13871f31d572&amp;img_etag=%220ce19c7c2989f64c7b9f9a21d7100c10%22&amp;size=1024)
+我们在缅甸发生的事情中看到了这一点
 
-***简评：***
+The event since the military coup occurred after this year’s report finished, but we must highlight them.
 
-中共国官方媒体突然用世界卫生组织有争议的最终报告，宣称已经完全排除了冠状病毒来源于中共国实验室的理论，并说中共将积极地参与到全球范围的病毒溯源工作中。中共官方媒体《环球时报》谎称世卫组织的报告“消除了‘实验室泄露’的阴谋论”，并编造了病毒起源于其他国家，通过不同途经传到中共国的怪异理论，欲甩锅给其他国家。尽管全世界越来越多的科学家已经批评了世卫组织的报告，但中共国官方对此进行了反驳，称这些担心是“毫无根据的”，外交部更是辩称不要“将追查工作政治化”，并威胁这会阻碍全球合作。
+军事政变发生在今年的报告结束后，但我们必须强调这些事件
 
-从武汉新冠爆发以来，中共一直编织着一个又一个的谎言，从没有人传人到有限人传人，从可控到全球大爆发，从蝙蝠起源到穿山甲再到进口海鲜，最后又将中共实验室起源说成了包括欧洲、美国在内的外国实验室起源，并利用其暗中操纵的世卫组织、学术专家以及权威医学期刊为其背书，将这些虚假信息传递到世界各地，绞尽脑汁为自己的罪名开脱。现在中共又要通过世卫组织展开世界范围的溯源工作，但在信息如此发达的今天，有阎丽梦博士等科学家坚持不懈地以事实揭发中共病毒的实验室来源真相，中共与其勾结的世卫组织的掩耳盗铃做法已引起越来越多科学家的质疑。用不了多久，中共一定会为自己灭绝人性的罪行付出代价，受到全世界的惩罚。“以毒灭共”时代正在到来。
+Non-violent protesters in Burma have been killed, beaten, imprisoned, including on Saturday.
 
-[!\[\]()!\[\](https://spark.adobe.com/page/4TDeuiZ1ChpZw/images/729674f9-3d44-4690-b4e4-f8c6830acef0.jpg?asset_id=799db130-e492-43b3-9c96-070516eccaef&amp;img_etag=%22e3125448fbcab82a435c521384335535%22&amp;size=1024)](https://spark.adobe.com/page/4TDeuiZ1ChpZw/images/729674f9-3d44-4690-b4e4-f8c6830acef0.jpg?asset_id=799db130-e492-43b3-9c96-070516eccaef&amp;img_etag=%22e3125448fbcab82a435c521384335535%22&amp;size=1024)
+缅甸非暴力抗议者被杀害、殴打、监禁，包括周六
 
-***原文翻译：***
+When more than 100 people were reportedly killed by the military
 
-## **中共国给世卫组织施压,要求在“其他国家”找到冠状病毒起源**
+据报道，当时有100多人被军方杀害
 
-[!\[\]()!\[\](https://spark.adobe.com/page/4TDeuiZ1ChpZw/images/805c9a58-0a3c-4d90-a983-15d12d9e731f.png?asset_id=997c48b3-b5e4-4419-87f5-9b0f59499720&amp;img_etag=%22ec85cfe44151625dee57e2f717335878%22&amp;size=2560)](https://spark.adobe.com/page/4TDeuiZ1ChpZw/images/805c9a58-0a3c-4d90-a983-15d12d9e731f.png?asset_id=997c48b3-b5e4-4419-87f5-9b0f59499720&amp;img_etag=%22ec85cfe44151625dee57e2f717335878%22&amp;size=1024)
+Many of those killed protesting on Arm Forced Day, others simply bystanders.
 
-中共国官方媒体突然用世界卫生组织（W.H.O.）有争议的最终报告，宣称已经完全排除了冠状病毒来源于中共国实验室的理论，而且世界卫生组织现在应该开始检查其他国家的实验室，看看是否有实验室制造了中共冠状病毒并将其散播到中共国。
+许多人在武装强迫日抗议时被杀，其他人只是旁观者
 
-中共国官方媒体《环球时报》周三援引了世界卫生组织在2月份访问武汉期间，与其合作的“中共国科学家”的话表示，如果世卫组织 “在中共国不能找到有关冠状病毒起源的答案，也许是时候让科学家们深挖其他地方并检验更多的假说来解开谜团了。”
+The military said in advance the event they might shoot protesters in the back or the head
 
-《环球时报》谎称世卫组织的报告“消除了‘实验室泄露’的阴谋论”，并声称它支持中国共产党（CCP）的怪异理论，即中共国冠状病毒是在另一个国家制造的——在那里它神秘地未能像随后在包括欧洲在内的地球上任何地方那样传播开来——然后靠搭载冰冻食品的顺风车到达中共国。
+军方事先表示，他们可能会从背后或头部向抗议者开枪
 
-实际上，即使这份书面报告也只是对这些假设进行了概率评估，并承认没有任何一个假设可以被最终证明或推翻，至少在中共国允许世卫组织调查人员进行审查的数据有限的情况下是这样的。全世界越来越多的科学家已经批评了该报告，**因为该报告在很大程度上是基于中共提供的信息做出了这些非常温和的概率评估。**中共国官方媒体反驳称这些担心是“毫无根据的”。
+and they’ve might good on that thread
 
-《环球时报》重提了在大流行最初的几个月，外交部发言人赵立坚特别推崇的共产党的阴谋论，即中共国的冠状病毒是在美国生物武器实验室制造，并由参加世界军人运动会的美国军方参赛者带到武汉的。
+他们可能很擅长这些
 
-《环球时报》最终承认了世卫组织团队发现这些假设是极不可能的，但还是建议进行调查。在中共国宣传者眼中，报告中只要特别提到他们的阴谋论就赋予了他们阴谋论的合法性。
+Among those reportedly killed, four children, the youngest a five-year-old boy
 
-《环球时报》引用了外交部的不要“将追查工作政治化”的警告写道：“中国外交部周二晚表示，赞赏世卫组织-中国专家组的科学、勤奋和专业精神，并呼吁在其他国家和地区进行进一步调查以追踪病​​毒来源，因为这是世卫组织发布联合报告后的一项全球任务。”
+据报道，遇难者中有4名儿童，最小的是一名5岁男孩
 
-外交部周二晚说：“将溯源问题政治化只会严重阻碍全球溯源合作，破坏全球抗疫努力，并导致更多的生命损失。这违背了国际社会团结抗击这一流行病的意愿。”（外交部）毫不掩饰地威胁世界其他国家，即如果他们期望中共国在当前或未来的健康问题上进行合作，就停止调查中共国。
+We condemned these and other widespread violations by Burma’s security forces in the strongest terms
 
-《环球时报》周三的另一篇文章指出，有趣的是，表面上最有可能的冠状病毒起源的“确凿的科学证据”的缺乏：从在野外患上或者染上这种疾病的动物传播给人类。
+我们以最强烈的措辞谴责缅甸安全部队的这些和其他广泛的侵犯行为
 
-[!\[\]()!\[\](https://spark.adobe.com/page/4TDeuiZ1ChpZw/images/ce939d3e-318f-48ce-b843-4524426c0270.png?asset_id=0c1245b9-7821-43e2-b546-3f70e90d958f&amp;img_etag=%2290a4ba24ca9cb4e1e2795a5b03486165%22&amp;size=2560)](https://spark.adobe.com/page/4TDeuiZ1ChpZw/images/ce939d3e-318f-48ce-b843-4524426c0270.png?asset_id=0c1245b9-7821-43e2-b546-3f70e90d958f&amp;img_etag=%2290a4ba24ca9cb4e1e2795a5b03486165%22&amp;size=1024)
+And we continue to call on the military regime to release all those people who’ve been unjustly detained
 
-尽管其他国家持怀疑态度的科学家指出，这种证据的不足暗示了中共国冠状病毒的中共实验室起源——理由是如果这种疾病来自于自然界，将会有大量动物感染的证据，但没有发现任何（相关证据）——中共国官方文件将这归结为中共国为“遏制病毒传播”而采取的“许多积极措施”，并谴责“外国媒体的猜测”，即冠状病毒可能已经通过中共国臭名昭著的不卫生的“生鲜市场”和野生动物贸易传播。
+我们继续呼吁军事政权释放所有被不公正拘留的人
 
-但是《环球时报》周三的另一篇社论将中共国描绘为好像很渴望参与“全球范围”追踪中共国冠状病毒起源的工作。就为中共国工作的科学家而言，关于武汉及其实验室的调查已经完结，因此现在是时候搜查地球上所有其他国家的实验室了。
+Stop its attacks on civil society members, journalists and labour unions
 
-中国科学家童义刚说：“在下一阶段，我们需要更广阔的视野。我们将在全球溯源追踪框架下，对各种动物进行全面、详细的调查和溯源追踪。”
+停止对公民社会成员、记者和工会的攻击
 
-据《环球时报》报道，童进一步警告说：“有限的视野是违背科学的，可能导致溯源追踪到错误的方向。”
+Halt the killings by its security forces; and return to power the democratically elected government
 
-**🔗[原文链接](https://www.breitbart.com/national-security/2021/03/31/china-pressures-w-h-o-find-origin-coronavirus-other-countries/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+breitbart+%28Breitbart+News%29)**
+停止其安全部队的杀戮；民主选举产生的政府应重新掌权
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+The United Stated committed to working with its allies and partners,
 
+美国承诺与盟国和伙伴合作
 
-编辑：【英国伦敦喜庄园编辑部】
+to hold the perpetrators of these support acts accountable.
 
-[!\[\]()!\[\](https://spark.adobe.com/page/4TDeuiZ1ChpZw/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/4TDeuiZ1ChpZw/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+追究这些支持行为的肇事者的责任
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原链接：https://twitter.com/statedept/status/1376999349243281410?s=24
+
+英听校:康州盘古农场-WZ
+翻译: 康州盘古农场-WZ
+翻译终校: 康州盘古农场-Mike Li
+字幕+视频制作:康州盘古农场-天涯行
+审片: 康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

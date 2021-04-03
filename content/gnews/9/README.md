@@ -1,80 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国务卿布林肯谴责缅甸军方开枪射杀平民-呼吁民权政府重新掌权
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1047491/)
+## 【信仰之声】华夏儿女再树信仰之星 万神万佛佑我新中国联邦
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1047636/)
 
-国务卿布林肯：
+作者：香草山福音部 文敬
 
-We see it in what’s happened in Burma.
+![]()![](https://gnews.org/wp-content/uploads/2021/03/MOS1445-%E3%80%90%E4%BF%A1%E4%BB%B0%E4%B9%8B%E5%A3%B0%E3%80%91%E7%A9%BF%E8%B6%8A%E6%97%B6%E7%A9%BA%E7%9A%84%E8%AD%A6%E5%91%8A.jpeg)
 
-我们在缅甸发生的事情中看到了这一点
+华夏民族是一个由多民族组成的大家庭。各民族以长期生活的地域做为分割线，除汉语做为统一语言之外，形成了不同的语言和地方方言、文化、宗教。华夏大地除拥有佛教、道教、回教（伊斯兰教）、基督教等各大教派外，还曾经拥有过犹太教、拜火教等宗教。
 
-The event since the military coup occurred after this year’s report finished, but we must highlight them.
+自1949年共产党以暴力篡夺政权以来，共产党在华夏大地上开展了一次又一次的大规模的灭佛灭教运动。大批教堂、寺庙、殿宇成为被严重破坏和损毁的主要目标，共产党领导下的红卫兵小将、打砸抢分子肆意拆毁十字架、砸毁佛像。传教士、和尚、尼姑等神职人员，成为重点打击对象，禁止他们从事任何的宗教活动，甚至逼迫和尚和尼姑还俗，有些基督教神职人员被打成特务、反革命，甚至失去了生命。宗教信仰被冠上封建迷信的恶名，广大信众不敢在公开场合进行宗教活动。
 
-军事政变发生在今年的报告结束后，但我们必须强调这些事件
+共产党对中国人进行洗脑教育，很多人成为无神论者。他们中的好多人只信奉丛林法则，弱肉强食，适者生存。为了金钱、美色、权势，将灵魂出卖给了共产党魔鬼集团。以至于如今在我华夏大地，信仰缺失、人心冷漠 、假货泛滥、失信欺骗，触目惊心。
 
-Non-violent protesters in Burma have been killed, beaten, imprisoned, including on Saturday.
+现在的寺庙和教会成了共产党的敛财和控制信众的工具，大多数所谓的和尚、尼姑、长老、牧师神职人员都是共产党统治领导下的傀儡，他们的工作不再是侍奉自己信仰的神，而是和着共产党魔鬼的心意，为了骗取信徒的金钱，在宗教场所表演的演员。
 
-缅甸非暴力抗议者被杀害、殴打、监禁，包括周六
+新中国联邦成立之时，就预示着共产党将被彻底铲除，万神万佛将回归华夏大地。一个多民族、多元宗教的美好国家将展现在世界面前。新中国联邦将吸收世界各先进国家和地区的经验，避免多元宗教之间的纠纷和矛盾，避免因宗教信仰不同导致的流血和冲突事件的发生，建立各种宗教场所，各宗教组织和团体之间互相尊重，和睦相处。民族平等，信仰自由，人民团结，社会安定，宽容与和谐将成为新中国联邦宗教关系的特征。华夏儿女将再树信仰之星，一起向各自心中的神明祈福，万神万佛保佑我新中国联邦国泰民安。
 
-When more than 100 people were reportedly killed by the military
+（文章仅代表作者个人观点）
 
-据报道，当时有100多人被军方杀害
+编辑/校对/发稿：雪梨
 
-Many of those killed protesting on Arm Forced Day, others simply bystanders.
 
-许多人在武装强迫日抗议时被杀，其他人只是旁观者
 
-The military said in advance the event they might shoot protesters in the back or the head
+更多资讯，欢迎订阅美东香草山农场官方中文推特账号！
 
-军方事先表示，他们可能会从背后或头部向抗议者开枪
+英文资讯，欢迎订阅美东香草山农场官方英文推特账号！
 
-and they’ve might good on that thread
+更多视频，欢迎关注美东香草山农场官方YouTube账号！
 
-他们可能很擅长这些
+更多文稿，欢迎浏览美东香草山GNEWS官方链接！
 
-Among those reportedly killed, four children, the youngest a five-year-old boy
-
-据报道，遇难者中有4名儿童，最小的是一名5岁男孩
-
-We condemned these and other widespread violations by Burma’s security forces in the strongest terms
-
-我们以最强烈的措辞谴责缅甸安全部队的这些和其他广泛的侵犯行为
-
-And we continue to call on the military regime to release all those people who’ve been unjustly detained
-
-我们继续呼吁军事政权释放所有被不公正拘留的人
-
-Stop its attacks on civil society members, journalists and labour unions
-
-停止对公民社会成员、记者和工会的攻击
-
-Halt the killings by its security forces; and return to power the democratically elected government
-
-停止其安全部队的杀戮；民主选举产生的政府应重新掌权
-
-The United Stated committed to working with its allies and partners,
-
-美国承诺与盟国和伙伴合作
-
-to hold the perpetrators of these support acts accountable.
-
-追究这些支持行为的肇事者的责任
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原链接：https://twitter.com/statedept/status/1376999349243281410?s=24
-
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场-Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片: 康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多香草山节目资讯，欢迎登陆G|TV — MOS Talk香草山访谈 & 香草山之声！
 
 0
