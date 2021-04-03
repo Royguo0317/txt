@@ -1,111 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【班农战斗室】844-845-846期简讯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1047198/)
+## 中共病毒来源的真与假之争
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1047268/)
 
-#### **翻译：七彩光**
+作者：只狼 | 校对：西川 | 审核：Beicy-数学老师 | Page: Daoiii
 
-#### **校对****/编辑：文泓**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/844-845-846.png)
-图片来源：墨尔本雅典娜农场设计组（精灵蓝）
+[!\[\]()!\[\](https://spark.adobe.com/page/NyGpDgnPUdQu4/images/9f2abbbf-b119-4c21-a78b-fe066a395275.png?asset_id=85f6e371-d082-4bb4-9c8f-6a63bfa2dca4&amp;img_etag=%225c8e731029cd9bea114863257970d0a2%22&amp;size=1024)](https://spark.adobe.com/page/NyGpDgnPUdQu4/images/9f2abbbf-b119-4c21-a78b-fe066a395275.png?asset_id=85f6e371-d082-4bb4-9c8f-6a63bfa2dca4&amp;img_etag=%225c8e731029cd9bea114863257970d0a2%22&amp;size=1024)
 
-**主持人：史蒂夫****.班农**
+#### 中共病毒来源的真与假之争
 
-**嘉宾：****Father Robert McTeigue, Jeff Brain, Maria Luisa, Brian McCall, Dr, Maria Ryan, Dr.Yan, Drew Mason, Dr. Peter Navarro, Boris Epshteyn, Jason Jones**
+中共病毒在全世界肆虐一年多后，受全世界人民质疑的世界卫生组织，终于在2021年3月30日发布了对冠状病毒的溯源报告，将全世界的注意力又移回到了冠状病毒。这篇溯源报告应当是本着科学和事实的原则，用严谨的科学证据来向世界解释冠状病毒的真正起源。但是结果却在中共的影响下变得面目全非，失去本身存在的价值和意义。
 
-#  
+所谓的世卫专家组发布了这么一篇“牛头不对马嘴”的报告，证明世界卫生组织已经沦落成为一个谎言机构。这篇溯源报告里的内容乱七八糟，就连前后逻辑都对不上。例如，报告里面提到，中共的科学家们曾调查并检测了几百上千种动物样本，这些动物样本体内都没有检测出冠状病毒，但报告的结论却坚称冠状病毒的起源来自于这些动物。
 
-#### **1、震惊：耶稣受难日罗马如苏联式警察国家那样全城封锁**
+从这篇报告的内容可以推断出真正的撰写者应该是中共。首先，这篇报告的内容急于把冠状病毒的起源推到自然界，死不承认冠状病毒就是实验室的产物。其次，在这个溯源报告里有一个篇幅，专门用来记录并加以感谢为中共提供过帮助，甚至替中共洗脱罪行的医学专家们。世界卫生组织的一些所谓“权威”专家们跟中共站在一起，试图使得这篇溯源报告在全世界具有“最权威”的说服力。
 
-意大利记者玛丽亚·路易萨·罗西（Maria Luisa Rossi）加入了“作战室”，带来了一份令人震惊的报告，报告了（意大利）罗马在第三次疫情封城期间的严峻形势。
+中共以为这样的以假乱真可以迅速摆脱罪责，但是万万没想到这样一篇长达100多页的报告在发布后还不到一天，就让全世界沸腾。媒体界都纷纷站出来对这篇垃圾报告口诛笔伐，这也让世卫的“谭书记”再也不好意思说冠状病毒的起源来自于自然，改口说冠状病毒可能来自实验室泄露。中共出的这样一篇报告真是让自己赔了夫人又折兵啊！
 
-包括圣彼得大教堂在内的城市各处，在耶稣受难日空无一人。
+在2021年3月31日，也就是世卫发布了对中共病毒溯源报告的一天后，闫博士和她的团队也发布了关于中共病毒的第三份报告。第三份报告是对第一份报告的扩展说明，最为引人关注的部分是，报告中将中共病毒定义为超限战生物武器的详细介绍和说明。报告里的内容不仅可以充分证实中共病毒绝非起源于自然，而且报告里引用的的那些实锤证据，可以完全否定近期“谭书记”提出的冠状病毒是实验室泄露的说法。
 
-“永恒之城空无一人”，她说：“今天这样的罗马我从未见过，一幅空荡冷清的罗马画卷，店铺酒店关门，百业凋零。**（备注：**永恒之城代指意大利首都罗马。）
+闫博士发布的前两份报告已经让全世界有良知的科学专家们为之折服。而且，前两篇报告里的内容和逻辑是那么的缜密和连贯，更别说报告里就连英语的语法和标点符号都没有出现哪怕是一丁点儿问题。可见闫博士和她身边共事之人做事情是那么的严谨，这体现了作为一个科研人员应有的素质。闫博士发布的前两篇报告已经让许许多多在全世界被中共收买的医学界“泰山北斗”暴露在人类面前，尤其是世卫组织的“专家们”都跌落神坛。这些光辉事实也让闫博士的第三篇报告备受全世界各邻域精英们的期待和重视。
 
-她说，“一座空城不是因为基督受难而哀悼，而是因为冠状病毒而哀悼”。
+[!\[\]()!\[\](https://spark.adobe.com/page/NyGpDgnPUdQu4/images/4c0721d4-bee5-4541-8e03-26fe6d466d97.jpg?asset_id=4ac25661-70e2-4b6d-a737-432acab06d16&amp;img_etag=%227025367f6a8f497e9bcfbc218475d563%22&amp;size=1024)](https://spark.adobe.com/page/NyGpDgnPUdQu4/images/4c0721d4-bee5-4541-8e03-26fe6d466d97.jpg?asset_id=4ac25661-70e2-4b6d-a737-432acab06d16&amp;img_etag=%227025367f6a8f497e9bcfbc218475d563%22&amp;size=1024)
 
-罗西透露，苏联式的警察国家，几乎不会让任何人进出。从意大利的另一次封城来看，目前的（现状）情况是“可怕的”。
+闫博士的影响力之所以能够撼动整个世界，凭借的就是一个“真”，因为中共永远都是“假”。中共无论用再多墙内百姓的血汗去全世界收买人心为自己圆谎，也无法改变中共被全世界追责导致中共灭亡的命运。这就是真与假之争，正义与邪恶之争，最终一定是正义战胜邪恶。
 
-“我看到了不确定性，我看到了恐惧，我看到了默许”，罗西说：“这就是我在意大利人民身上看到的。”
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
 
-“我认为没有人真正知道发生了什么”，她说：“（疫情）数据最好是不确定的，而一些记者声称ICU病房并没有满负荷运转，人们没有任何意识觉醒。”
 
-“经济正在死亡”，罗西说：“它在2020年就已经死亡，三十万家企业被关闭，他们真的不知道如何重新开始。”
+编辑：【英国伦敦喜庄园编辑部】
 
-#### 2、拉希姆•卡萨姆揭露主要智库、媒体和大科技公司与中共的关系
-
-拉希姆•卡萨姆（Raheem Kassam）在《国家脉动》阐述了他的爆炸性报告内容，该报告揭露了美国智库和大科技公司是中共的资产。
-
-卡萨姆有中共吹嘘美国媒体和大科技公司谁能“把中国的故事讲好”的确凿证据。
-
-中共的合作者包括，活跃在脸书（Facebook）上的赫勒·托宁•施密特（Helle Thorning-Schmidt），杰克·多西（Jack Dorsey），伊隆·马斯克（Elon Musk），Ebay和反川普运动创始人皮埃尔·奥米迪亚(Pierre Omidyar)，尼古拉·萨科齐（Nicolas Sarkozy），埃里克·施密特（Eric Schmidt）， 劳伦斯·萨默斯（Larry Summers）， 法里德·扎卡利亞 （Fareed Zakaria）， 阿里安娜·赫芬顿（Arianna Huffington）等等。
-
-（备注：赫勒·托宁-施密特（Helle Thorning-Schmidt）是丹麦政治人物，前任丹麦首相，丹麦社会民主党党魁；
-
-杰克·多西（Jack Dorsey）是推特（Twitter）和Square公司联合创始人兼CEO;伊隆·马斯克（Elon Musk）是一名出生于南非的美国企业家，以SpaceX、特斯拉汽车、PayPal（原X.com）共同创办人而闻名；
-
-尼古拉·萨科齐（Nicolas Sarkozy），法国政治家，曾任第23届总统；埃里克·施密特（Eric Schmidt）是一位美国企业家、计算机软件工程师，2015年至2017年为Alphabet Inc.运行董事长；
-
-劳伦斯·萨默斯（Larry Summers），美国著名经济学家，美国国家经济委员会主任，在克林顿时期担任第71任美国财政部部长，曾任哈佛大学校长；
-
-法里德·扎卡利亞 （Fareed Zakaria）是美国著名印度裔记者、时事评论家和作家，他现在是《时代杂志》主编、CNN人气时事评论节目《法里德·扎卡利亚的环球公共广场》（Fareed Zakaria GPS）的制片人及主持人阿里安娜·赫芬顿（Arianna Huffington），美国政治博客Huffington Post共同创始人；
-
-赫芬顿最初是一名保守派时事评论员，创建《赫芬顿邮报》网站，也为《赫芬顿邮报》写博客，2010年出版了第13本著作《第三世界美国》。）
-
-中共吹嘘他们（美国智库和大科技公司）是“中国日报的资产”，而中国日报是中共的一个机构。
-
-卡萨姆说，美国人必须联系他们的议员代表，要求正式调查（其中的）金钱关系，以及是否存在出卖西方（国家）的“交换条件”。
-
-[点击这里](https://thenationalpulse.com/exclusive/exc-china-state-propaganda-boasts-control-over-think-tanks/)阅读这篇爆炸性报道。
-
-#### 3、中共利用病毒弱化教会的影响力
-
-法学编辑主席、教授布莱恩•麦考尔说，中共利用其病毒攻击了全世界的教会。
-
-（备注：布莱恩•麦考尔（Brian McCall）是CFN主编，也是美国天主教律师协会终身法学教授。）
-
-麦考尔告诉《战斗室》，空荡荡的教堂，就像在罗马一样，是利用恐惧进行攻击的结果，以及软弱的领袖们却不为他们的教徒挺身而出。
-
-麦考尔将教堂的关闭追溯到苏联和中国共产党试图摧毁宗教的不同做法。中共的做法更加巧妙。
-
-“那是什么做法呢？”他问：“那就是一边拉拢人心，一边让人们与宗教断绝关系。”
-
-“他们利用他们创造的病毒来达到这个目的（封锁）”，麦考尔说，而美国和世界各地的许多教会领袖却都乐于效仿（封锁）。
-
-例如，麦考尔说，大部分关闭教堂的做法不是美国政府强制要求的。
-
-“实际上宗教领袖们自己先示弱了，而没有坚定拒绝，”他说。
-
-作为新书《荒野中的声音：大主教卡洛•玛丽亚•维加诺对教会、美国和世界的看法》的编辑，麦考尔说，中共已经渗透了各个教会，包括梵蒂冈。
-
-麦考尔说，无论是有宗教信仰的美国人还是没有宗教信仰的美国人，都应该阅读维加诺大主教的著作，以了解中共如何渗透到教会各主要机构。
-
-“即使你不是天主教徒，它也给你一个例子，说明一个主要机构是如何从内部被接管的，”麦考尔说。
-
-#### 4、闫博士：新冠病毒是中国军方生物武器且会被多次使用
-
-举报人闫丽梦博士说，中共对其病毒的“虚假宣传战略”正在溃败。
-
-闫博士说，世界卫生组织的报告,排除了该病毒诞生于武汉病毒学研究所，该报告在“误导”世人，是为了掩护中共。
-
-她周五对《战斗室》说：“武汉实验室的新冠病毒起源论和中共军方超限生物武器都得到了进一步的证明。”
-
-作为一直站在揭露由美国纳税人资助的中共生物武器研究的最前沿，闫博士说该病毒是一种超限生物武器。
-
-然而，她警告说，中共军方制造的病毒“可以在任何时候被使用，并且不会只被使用一次”。
-
-**参考资料：**[**维基百科**](https://www.wikipedia.org/)
-
-**原文链接：**
-
-1.  [Shocking: Rome is Soviet-Style Police State Totally Shut Down on Good Friday](https://pandemic.warroom.org/2021/04/02/shocking-rome-is-soviet-style-police-state-totally-shut-down-on-good-friday/)
-
-2.  [Raheem Kassam Exposes Major Think Tank, Media and Big Tech Ties to the Chinese Communist Party](https://pandemic.warroom.org/2021/04/02/raheem-kassam-exposes-major-think-tank-media-and-big-tech-ties-to-the-chinese-communist-party/)
-
-3.  [CCP Using Virus to Weaken the Church](https://pandemic.warroom.org/2021/04/02/ccp-using-virus-to-weaken-the-church/)
-
-4.  [Dr. Yan: Covid-19 is Chinese Military Bioweapon That Can Be Used More Than Once](https://pandemic.warroom.org/2021/04/02/dr-yan-covid-19-is-chinese-military-bioweapon-that-can-be-used-more-than-once/)
+[!\[\]()!\[\](https://spark.adobe.com/page/NyGpDgnPUdQu4/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/NyGpDgnPUdQu4/images/449b12ae-6540-4009-897c-e9abd9c7e608.jpg?asset_id=4b1282a3-d306-4f0d-8c07-e0b7d9a22d80&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

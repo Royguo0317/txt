@@ -1,65 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 由于缺乏透明度，人们普遍批评世卫组织同意了中国的要求
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1046279/)
+## 上市之前Gcoin畅想
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1045926/)
 
-@60分钟节目主持人：
+撰稿：五月光
+![]()![](https://gnews.org/wp-content/uploads/2021/04/20210402_Task3_Cover.jpg)图片素材来自网络
+最近喜马拉雅总联盟和各个农场的答疑，GTV直播各个频道最热门的话题是Gcoin。郭先生在3月30日直播中说Gcoin会有很好的消息，然后我脑海中开始天马行空，之前Gcoin已经在美国拿到了支付牌照，那么是不是美国政府承认我们新中国联邦的Gcoin作为一个国家货币了？即将持有Gcoin的战友该怎么办？
 
-The lack of transparency has let to widespread criticism of the WHO for agreeing to China’s demands
+众所周知，很多国家都有自己的储备货币，通常是美元，也会有黄金储备。我们的Gdollar与美元1:1挂钩，Gcoin与黄金锚定，双币和美元黄金完美衔接，独一无二。那么以后国家只要储备Gcoin一种货币就可以兼顾美元和黄金，世界石油、黄金等都能以Gcoin计价，世界商品交易也可以用Gcoin结算。
 
-由于缺乏透明度，人们普遍批评世卫组织同意了中国的要求
+简单地说，Gcoin完全可以取代美元，成为全球最安全、最便捷、最高效的流通货币！是不是我想的太多太美好了？绝对不是，我坚信这一切会实现，因为Gcoin和Gdollar是郭先生创造的，我们追随郭先生4年来，看到了郭先生的智力、能力和实力。试问，万恶的CCP即将灰飞烟灭，那么，还有什么事是不能实现的？
 
-麦特.博明（Matt Pottinger）:
+郭先生大爱，Gcoin以0.1美元/个的价格给战友，根据目前的灭共势头和糟糕的全球经济形势，郭先生也多次说过，Gcoin现在是一币难求，上市后的价值无法估量，爆料革命战友是最大的受益者。
 
-The one thing that I wish the who has done is to pick up their megaphone
+郭先生给了我们每个人一匹汗血宝马，可以日行千里，那么我们是不是骑了几周、几个月就下马了，觉得好像已经够快了，够远了？当然不是，我们要精心照顾好自己的马，追随郭先生，长长久久地往前行，并且帮助更多的人前行，奔向我们的喜马拉雅。
 
-我希望世卫组织做的一件事是拿起他们的扩音器，
+（本文仅为作者个人观点）
 
-and start screaming through it to demand that China be more transparent, that it open its border
+* * *
 
-开始通过扩音器大声疾呼，要求中国更加透明，开放边境，
-
-to allow American CDC officials and other experts from the WHO and around the world to come investigate and to help
-
-允许美国疾控中心官员和来自世卫组织及世界各地的其他专家前来调查和帮助
-
-@60分钟节目主持人：
-
-After 15 months and more than 2.7 million deaths worldwide,
-
-在经历了15个月和全球270多万人死亡之后，
-
-it was hoped the team would provide some clarity on the origin of Covid-19.
-
-人们希望这个团队能为中共病毒的起源提供一些清晰的信息
-
-But the exercise ends with even more questions than it began with.
-
-但调查活动结束时出现了比开始时更多的问题
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接：
-
-
-
-> A lack of transparency on the part of China has led to criticism of the World Health Organization for agreeing to China’s demands during their joint team inquiry into the origins of the COVID-19 virus. [https://t.co/WLc8xIhm03](https://t.co/WLc8xIhm03) [pic.twitter.com/kUN8iE6uz3](https://t.co/kUN8iE6uz3)
-> — 60 Minutes (@60Minutes) [March 28, 2021](https://twitter.com/60Minutes/status/1376316231494549504?ref_src=twsrc%5Etfw)
-
-
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-英听校：康州盘古农场 – WZ
-翻译：康州盘古农场 – WZ
-翻译终校：康州盘古农场 -Freeearth
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发文：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
+*审稿编辑：光耀华夏*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2.jpg)
 0
