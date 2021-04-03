@@ -1,52 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 好莱坞和华尔街一起商讨灭共&nbsp; 感谢郭先生的爆料革命帮助了美国
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1045800/)
+## 中共“灭白计划”之迟浩田系列11——荒谬的“党要管党”
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1045820/)
 
-简述：郭先生在2021年3月30的GTV直播中说拜登政府的人不会跟着拜登家族去亲共，好莱坞和华尔街大佬一起开会，讨论从中国撤资和全面推动政府灭共，他们感谢郭先生的爆料革命改变了世界和美国。
+作者：左媛
 
+迟浩田报告接下来的内容只有三个核心词：共产党、美国和生物武器。这三个词的推出是做了前面内容的充分铺垫，直到他说出“牢牢抓住民族的生存空间问题”这个核心。为了抓住这个核心，迟浩田大篇幅谈“中共”“美国”“生物武器”三者的关系。
+        本文尝试分析他谈“牢牢抓住执政党的领导”这一点。
+        迟首先肯定“我们比他们那个国社党（即纳粹党）要抓得好”，因为“他们没能像我们这样强调党的绝对领导权，没有像我们一样把’党要管党’作为第一要务来抓”。
+        比较的对象还是100年前那个臭名昭著的纳粹德国，而不是现在自由民主的德国。这说明中共是一个和别人“比烂”的党，而绝对不是一个“比优”的党。什么叫“绝对领导权”？用共产党的独裁话语来说，就是“东西南北中，党政军民学，党领导一切”；用爆料革命先驱郭文贵先生通俗易懂的话来说，就是“管天管地中间还要管着你的生殖器”。希特勒纳粹党把权力伸向国家政权的方方面面，但还不至于要管天管地管生殖器，中共显然比纳粹党还要恶毒专制一万倍。
+        “党”是什么？繁体“黨”字的构造是“尚”“黑”两部分，据古文字理解包括下列意思：1. 敝垢不鲜，2. 偏私偏袒，3. 朋党——由私人利益关系而结成的集团。“黨”字的这三个词意正吻合中共特色。它的产生就带着各种“敝垢”：它带着西欧“共产主义”的斗争哲学来到中国，它诞生在一条破败的小船上，它的初期成员多死于疾病和枪决，创始人之一陈独秀和李汉俊坚决脱党……“党要管党”，是全世界政党组织的一个大笑话，谁管？管谁？管什么？怎么管？管到什么程度？中共自鸣得意的“党要管党”不过是对这个偏私偏袒，对那个满门抄斩；今天批倒批臭，明天“平反昭雪”，“厚黑学”才是中共生存发展的唯一哲学。
+        有个幽默段子：
+        问——世界上有哪个学校的学生都是官员，而且毕业后当更大的官？
+        答——中央党校！
+        问——世界上有哪个政党领导人的子孙妻妾财富都安置在欧美？
+        答——只有中共！
+        问——哪个政党的官员升迁之路是“男子提钱进部，女子日后提拔”？
+        答——只有中共！
+        在中共国，诸如此类的段子多如牛毛，这是真正的“中共特色”，但每个段子里都浸满了百姓的血泪。由此明白，中共“偏私偏袒”的是什么人？自己人！哪些人是自己人？有生殖器密切关系的人。归根结底，谁来管党？当然是党的最高领导人，今天就是“习核心”。管谁？管“核心”下面的所有人。管什么？管一切。怎么管？为所欲为地管。管到什么程度？管到对方趴下自己满意的程度。这就是“共产党”！何其荒谬！人民呢？人民在哪里？
+        “朋党”：由私人利益关系而结成的集团。没有什么比这个更能精准点评共产党的特点了。共产党“共产共妻”，这不是私人利益关系又是什么？蒋率领国军在浴血抗战时，窑洞派正忙着大换妻，党魁们多是四婚五婚，20岁左右的女学生都主动被动地做了“夫人”。今天更进一步，“家里红旗不倒，外面彩旗飘飘”，成了中共上下盛行的骄奢淫逸的“品味”，“公共情人”只怕也是中共的特产，艳冠全球的央视自然成为了朝野皆知的“中共后花园”“中共春香楼”……所有这些，和中国人民的公共利益有关系吗？与“为人民服务”有关系吗？吴晓晖肖建华叶简明王健等等如雷贯耳的富豪们哪一个不是中共的私人利益关系呢？哪一个又和“人民群众”的利益有关呢？中共为什么绝对禁止老百姓组织民间团队，无非是要垄断“组织权”，垄断“由私人利益关系而结成集团”，因为它知道，真正伟大的力量一定是在民间。推翻大秦王朝的是民间的胜广，而不是嬴政的皇子重臣。
+        “绝对领导权”是源于绝对的恐惧，身边的每一个“大臣”都有可能是篡位的野心家，所以才有“忠诚不绝对，绝对不忠诚”这样的荒诞叫嚷；党的第一要务是“党要管党”，虽然荒谬，却也算打碎了中共各衙门口吃人的五个大字：为人民服务！这可是中共70年最大的谎言！迟浩田充满杀戮之气的这份报告，恰恰暴露出中共惶惶不可终日的惊恐，又不甘死亡，于是要捆绑全世界。只有驾驭了全球，统御了宇宙，它才能安心继续朋党，继续共产，继续共妻，永远酒池肉林！
+        所以，不要听什么“民族的生存空间”，不过就是“党的生存空间”。“党”把党管“好”了，又会做什么呢？请听下回继续分解。
 
+2021.4.1于纽约
 
-**好莱坞和华尔街一起商讨灭共****  ****感谢郭先生的爆料革命帮助了美国**
+【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
-**Hollywood and Wall Street Are on the Same Page on Taking Down the CCP**
+【**责任编辑**】：bingo 旧金山文宣组
 
-拜登政府的国防部长、拜登政府的国务卿、拜登政府的所有，包括副总统Harris，最近在华盛顿圈里边炸了锅了。
+### **欢迎战友加入旧金山金喜农场**
 
-The Secretary of Defense, Secretary of State, and all others in the Biden Administration, including Vice President Harris, have been on fire in the Washington circle recently.
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[** **](https://discord.gg/QQzQ79grEA)
 
-昨天下午，有一个美国沼泽地的九十多岁的大佬，给我打电话说：“Miles，世界在变化。”我说：“有什么变？” “拜登政府认识到了，所有下边的人都知道，都知道享特.拜登和拜登总统和中共的关系，每个人都不想沾这个锅，每个人不想牵涉进去，而且这些人都很明确宁可老子不干，也不会跟着你说亲共去。而且现在很多人说，你要让我在这儿干，那就得灭共。”
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)[** **](https://twitter.com/sf_himalaya)
 
-Yesterday afternoon, a bigwig of the swampland, who is over 90 years old, called me, “Miles, the world is changing.” I said, “What are the changes?” He said, “The Biden Administration has realized it. All the people within the administration know the relationship among Hunter Biden, President Biden, and the CCP. Nobody wants to get wet on this. No one wants to get involved in it. And these people are very clear that they would rather quit than become pro-CCP. Moreover, now, many people said that if you want me to continue working here, then we need to take down the CCP.”
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
 
-最关键的事情就是今年的“以毒灭共”。战友们你记住，七哥过去四年直播当中说的这些五大家族、七大机构，所有这些人都是推动整个灭共最核心力量。彭佩奥、Pottinger（博明）、Miles余、皮特.纳瓦罗，大家看到了吧？整个川普总统的系列，我们的班农兄弟，还有一堆的现在。现在三个史蒂夫都出来了。 那天听娜塔丽去讲那个 Patrick 的时候，你看她讲得多好，这背后都有人，这背后都有力量。
-
-The most crucial thing is this year’s goal of “taking down the CCP by spreading the truth of the virus”. Fellow fighters, please remember the Five Big Families and Seven Big Agencies that I have mentioned during my live broadcasts in the past four years. All these people are the most central power that advances the process of taking down the CCP. Pompeo, Pottinger, Miles Yu and Peter Navarro, do you see it? The whole President Trump Team, our brother Bannon, and many more now, including three Steves, have all stood out. The other day, I heard Natalie talking about Patrick. Such a great talk. There were forces and people behind all this.
-
-我还想告诉大家，这不算重磅，好莱坞几个大佬刚刚地在黄石公园开过会。好莱坞第一次几个大佬互相仇恨的，不一定好莱坞大佬都是一家人，包括我隔壁这个家伙。所有人开会说就是研究共产党，基本最后都认为共产党是他们的过去是挣钱的所谓的钱袋子，但是他们觉得所有的人、钱、安全、利益、未来、家人都受到了共产党的威胁。这次H&M，还有耐克、新疆棉花事件让他们更加意识到，他们了解了很多真相，也受到了威胁。这些人已经研究好尽快地从大陆撤出来资金，包括要全面推动政府一起灭共寻找病毒真相。
-
-I also want to share with everyone, which is not a bombshell, that several bigwigs in Hollywood just held a meeting in Yellowstone. This was the first time for the big shots in the Hollywood, who used to hate each other, to hold a meeting together. It is not necessarily true that Hollywood big shots all get along like a family, including the guy living next door to me. They attended the meeting to focus on studying the CCP. In the end, they reached a conclusion that the CCP used to be their so-called moneybag, but they now felt the threats from the CCP on everyone’s money, personal safety, interests, future, and families. The incidents of H&M, Nike, and the Xinjiang cotton have made them become clearer about the threats and also know more truths. They have decided to withdraw their capitals from mainland China as soon as possible, including pushing the government to take down the CCP together and find out the truth about the virus.
-
-华尔街的这几个大佬，大家记住，跟他们一起参加了视频会。这老人家说了，我没有想到我们好莱坞开完会，跟他们一个视频几个人，跟我们想法一模一样，比我们还极端。但所有人都说，要给我们一年的时间从共产党那把钱和资产撤出来。
-
-Remember that several big shots in Wall Street joined the conference call with them. This old gentleman said, “What I didn’t expect is that the thoughts of those people who participated in the conference call with our Hollywood folks were identical to ours, and even more extreme than ours.” However, all of them said, “Give us one year to withdraw our money and capital from the CCP’s place.”
-
-这个老人家说：“Miles，你改变了世界，你改变了美国。”我毫不谦虚，我说：“是的，我要告诉你，是我们在改变世界，是我们在帮助美国。美国的垃圾、人渣很多，但美国这个国家的系统，这个国家绝对是伟大的。”他还说这个美国国家对不住你、欠你的、对你不够好。我说：“不是的。”我说，今天我的律师也这么说，我告诉我律师，我说我爱美国，我今天跟你这么说，我还是爱美国，但这块儿人渣很多，就被共产党收买的。
-
-This old gentleman said, “Miles, you have changed the world. You have changed America.” I replied without modesty, “Yes. I am telling you, we are changing the world. It is us that are helping America. There are lots of trash and many scumbags in the U.S. However, the system of the U.S. and the country are absolutely great.” He also said, “America does not treat you well. It owes you because it doesn’t treat you well enough.” I said, “No, my attorney said the same words to me today. I told him that I love America. I am telling the same thing to you today. I am still in love of America. However, there are many scumbags who have been bought off by the CCP.”
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=606346ef49339063d0615737](https://gtv.org/video/id=606346ef49339063d0615737) (47:12-51:10)
-鸣谢：感谢万物归一、文琪、山川异域和喜联盟七哥直播组提供中文文本于 [https://gnews.org/zh-hans/1041973/](https://gnews.org/zh-hans/1041973/)
-
-* * *
-
-翻译：【7PawBear】字幕：【Rock小哥】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
 
 +1
