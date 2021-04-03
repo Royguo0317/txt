@@ -1,49 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】美国全面布局芯片科技产业，对抗中共，看谁能把谁逼成“南泥湾”？
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1046331/)
+## 由于缺乏透明度，人们普遍批评世卫组织同意了中国的要求
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1046279/)
 
-作者：纽约香草山健身部 Jack Li文阳
+@60分钟节目主持人：
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
+The lack of transparency has let to widespread criticism of the WHO for agreeing to China’s demands
 
+由于缺乏透明度，人们普遍批评世卫组织同意了中国的要求
 
+麦特.博明（Matt Pottinger）:
 
-在美国对中共国高科技脱钩的背景下，美中两国同时加大了对高科技行业的投入，并出台了一系列相关的扶持政策。这是继美中两国贸易战、媒体战、金融战、病毒战后，又一场没有硝烟的芯片战争已经拉开序幕。
+The one thing that I wish the who has done is to pick up their megaphone
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片7.png)
+我希望世卫组织做的一件事是拿起他们的扩音器，
 
-中共国财政部3月29日宣布，将加快中共国转变为自力更生的“技术强国”的努力，芯片制造商在2030年前进口机械和原材料可以免税。
+and start screaming through it to demand that China be more transparent, that it open its border
 
-2020年，中共国有超过5万家与半导体相关的新公司注册，是2015年的三倍多。中共国的龙头芯片制造商中芯国际上个月表示，将斥资23.5亿美元，与深圳市政府一起在深圳建厂。
+开始通过扩音器大声疾呼，要求中国更加透明，开放边境，
 
-美国方面，拜登政府正在继续推进川普前总统提出的“对抗中共国科技威胁”的政策。近期世界范围出现的芯片荒也给美国政府敲响了警钟，即要把芯片科研和生产环节牢牢的控制在自己的手上。
+to allow American CDC officials and other experts from the WHO and around the world to come investigate and to help
 
-3月11日，包括英特尔、高通、美光和AMD等在内的一批美国芯片制造企业致信总统拜登，要求美国政府资助高科技产业的发展。拜登总统在3月31日宣布的2万亿美元基础设施计划中，特别要求在高科技制造和研究方面投资500亿美元。
+允许美国疾控中心官员和来自世卫组织及世界各地的其他专家前来调查和帮助
 
-日本首相菅义伟将于4月16日前往美国与拜登总统会面。《日经亚洲评论》获悉，美国和日本政府将合作确保高科技的战略技术元件的供应链，并希望在美日元首4月中旬会面时一起达成供应链协议。此外，美国也打算寻求与日本合作，谋求共同限制对中共国出口。
+@60分钟节目主持人：
 
-曾经放言要超越苹果的华为称：我们推出了“南泥湾”项目，华为进入养猪业，不依靠手机也能生存。在美国川普、拜登政府的连番制裁下，中共国的几大科技企业包括华为、腾讯纷纷进入求生模式——拓展其他领域的业务，合作项目包括汽车业、养猪业、矿业、渔业养殖甚至是酿酒业。名义上希望透过仪表监控、大数据分析和AI管理等方法，推动“数据化 ”“智能化”“无人化”，实则其属下的科技产业无法在美国高科技制裁下继续生存发展，不得已而为之。就像文革时期的农业自动化，不过多穿个高科技马甲，生产自救而已。
+After 15 months and more than 2.7 million deaths worldwide,
 
-只要控制住芯片等高科技技术和生产，就可以在太空、军事、医疗、高科技、电动车与AI等领域，保持领先的地位，这是美中两国都特别关注的地方。目前，美国在芯片等高科技领域领先中共国至少10～15年。如果美国一方面加大高科技研发投入，鼓励其国产化，同时继续对中共国实施科技制裁，切断其科技偷窃途径。两国的高科技差距将会继续拉大，中共国在南泥湾精神和三星堆精神的指引下，很快就会追上朝鲜的科技水平了。
+在经历了15个月和全球270多万人死亡之后，
 
-没有了高科技，中共的擀面杖就硬不起来，结合对其进行贸易和金融的制裁，切断中共的金钱来源，打断中共蓝金黄的两条腿，大力在全球推进对中共病毒追责，以毒灭共，中共的末日就不远了。
+it was hoped the team would provide some clarity on the origin of Covid-19.
 
-新闻来源：https://www.voachinese.com/a/us-china-investment-in-semiconductors-20210402/5838438.html
+人们希望这个团队能为中共病毒的起源提供一些清晰的信息
 
-校对/发稿：飞虹
+But the exercise ends with even more questions than it began with.
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+但调查活动结束时出现了比开始时更多的问题
 
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
 
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+原视频链接：
 
 
+
+> A lack of transparency on the part of China has led to criticism of the World Health Organization for agreeing to China’s demands during their joint team inquiry into the origins of the COVID-19 virus. [https://t.co/WLc8xIhm03](https://t.co/WLc8xIhm03) [pic.twitter.com/kUN8iE6uz3](https://t.co/kUN8iE6uz3)
+> — 60 Minutes (@60Minutes) [March 28, 2021](https://twitter.com/60Minutes/status/1376316231494549504?ref_src=twsrc%5Etfw)
+
+
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+英听校：康州盘古农场 – WZ
+翻译：康州盘古农场 – WZ
+翻译终校：康州盘古农场 -Freeearth
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发文：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
