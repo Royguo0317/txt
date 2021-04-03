@@ -1,120 +1,62 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班农战斗室】838-839-840期简讯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1045733/)
+## 中共的下场将比希特勒更惨
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1045855/)
 
-**翻译：七彩光**
-
-**校对****/****编辑：枳实**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/IMG_8755.jpg)
-图片来源：墨尔本雅典娜农场设计组（精灵蓝）
-
-**主持人：史蒂夫****.****班农**
-
-**嘉宾：****Dr. Peter Navarro, Boris Epshteyn, Mike Lindell, Lydia Friend**
-
-**1. ****迈克****·****林德尔新的社交媒体平台****“Frank”****不可能被消失，服务器可容纳****10****亿人同时在线**
-
-迈克·林德尔的媒体平台Frank将成为言论自由的天堂，其服务器可容纳10亿人。
-
-周三，林德尔在《战斗室》节目上向观众预先展示了这个平台，表示当平台在4月12日开始的新的一周时上线，平台将不可能被审查或被关闭运营。
-
-“我设计这个平台是为了言论自由和让人们能够说话表达，”林德尔说。”它将是全世界（人们）的发声平台。”
-
-林德尔表示，Frank将成为一个油管（YouTube）和推特（Twitter）的功能的综合体，不受大科技寡头公司们的控制。
-
-林德尔说：”再也不会有任何（关于真相）言论和资料可以被苹果（公司）或杰弗里·贝索斯（Jeffrey Bezos）所封杀。”此前，有推特的竞争者的应用被从谷歌和苹果各自的应用商店以及亚马逊服务器上被审查（和下架）。
-
-**备注：**杰弗里·贝索斯（Jeffrey Bezos），亚马逊公司创始人及现任董事长兼CEO。2021年2月2日，贝索斯宣布，他将于2021年第三季度辞去亚马逊执行长一职，并将转任为董事会主席。
-
-“在纳粹德国，当他们占领了某一地区，他们自己就成为了舆论操纵者，”林德尔说。”他们做的首要事情就是剥夺（人们的）言论自由。”
-
-林德尔说，在保护数据安全和为全球数亿人提供服务所需的服务器容量方面，钱不是问题。他说，”我相信，平台可以同时容纳最多10亿人在线 “。
-
-“这基本上能够保证人们自由发声的权利，”林德尔说。”言论自由，这是极为重要的原则。”
-
-**2. ****迈克****·****林德尔宣布成立新的法律辩护基金**
-
-迈克·林德尔正在创建一个新的法律诉讼基金，而不只是辩护。
-
-林德尔法律诉讼基金将成为调查和诉讼的资源中心，去主动调查和起诉（违背）宪法的敌人。
-
-“我们要成立一个律师团队，他们将在这里参与这场运动，”他说。林德尔解释说，他有拯救美国的好主意，但是现在（才）可以利用这些资源实现这些（好主意）。
-
-“杰克·多西（Jack Dorseys），我现在已经雇人调查你的推特公司（Twitters），还有维基百科（Wikipedia），”他说。”我们正在调查所有这些事情。”
-
-“我们会在得到证据的时候将其曝露于天下，”林德尔说。
-
-该基金还将用于针对对亚利桑那州的道格·杜西（Doug Ducey）州长和佐治亚州的布赖恩·坎普（Brian Kemp）以及其他人之前的所作所为进行调查。
-
-林德尔说，该基金的运作将与他为 “我的枕头”（My Pillow）和与 “多猫腻“（Dominion）“的法律诉讼完全分开。
-
-“我所做的一切都是在通过这些伟大的项目来帮助我们的国家，并整合资源来帮助这些（项目），”他说。
-
-“我们都知道这件事会更深入，”林德尔说。”当我们的国家受到来自[中共]的攻击时……美国内部也存在帮助中共的代理人。”
-
-**3. ****迈克****·****林德尔的新影片展示了大选结果被偷窃的科学证据**
-
-迈克·林德尔周三发布了一部新的纪录片，该纪录片提供了川普总统的大选（当选结果）被窃取的科学证据。
-
-影片《科学证据》对物理学家道格拉斯·G·弗兰克（Douglas G. Frank）博士进行了长达一小时的采访，他揭示了全国范围内用于控制选举的惊人算法。”这里只有一个真相，”林德尔说。”真假之间不存在任何中间地带，现在真相已经出来了。”
-
-这次采访非常有说服力，林德尔决定将其与他即将推出的纪录片分开发布。纪录片《绝对干涉》将于下周上映，展示中国干涉2020年大选的证据。该片是《绝对证据》的延续作品，有1.4亿人观看了第一部纪录片《绝对证据》。
-
-“当我推出《绝对证据》的时候，所有的数据，包含经度、纬度、IP地址等，”林德尔说。”从那个时候开始，我们带着团队去国内外实地验证这些IP地址。林德尔说，影片中包括了后来在“多猫腻（Dominion）案”上翻供的举报人。林德尔表示，这部影片提供了100%的（证明）选举被盗的”无可辩驳的证据”。
-
-“我们收到了《绝对证据》放映后的所有反馈，“好吧，你想要更多（证据）？我们会得到（和提供）更多证据，’”他说。”里面的每一件事我们都科学地证明了，”林德尔说。”并且实地验证这些是真的。如这是电脑，这是电脑的密码，这是转换投票。”林德尔说，对弗兰克博士的采访证明了 “百分之百这是一次网络攻击，而且是针对所有的县。” 弗兰克博士透露了他之前对2010年人口普查的研究是如何偶然发现全国各地都在使用的（相同）算法。林德尔说，这种算法模式是独一无二的。
-
-[点击这里](http://lindelltv.com/)观看影片《科学证据》。
-
-**4. ****纳瓦罗：福奇是****“****病毒之父****”****而谷歌在网络中将其掩盖**
-
-彼得·纳瓦罗博士告诉《战斗室》，托尼·福奇（Tony Fauci）是 “病毒之父”，而谷歌一年前就采取行动掩盖这一事实。
-
-“福奇用美国纳税人的钱资助了（危险的病毒研究），”纳瓦罗周三说。”而福奇和美国国立卫生研究院的院长弗朗西斯·柯林斯（Francis Collins）基本上是对（病毒）功能性增强研究开了绿灯。”
-
-（**译者注：**弗朗西斯·柯林斯，美国遗传学家，美国国立卫生研究院院长，领导人类基因组计划。）
-
-纳瓦罗解释说，功能性增强研究对病毒进行基因工程，使其更加致命和危险——”将其武器化”。
-
-福奇背着川普政府，从美国国家卫生研究院向武汉病毒学研究所输送了数百万美国纳税人的钱。前疾控中心主任罗伯特·雷德菲尔德（Robert Redfield）最近表示，他认为病毒是从该实验室泄露的。
-
-“谷歌从互联网上清除了这个信息资料，”纳瓦罗说。”一年后的真相就是一年前的真相，从未改变。然而谷歌、社交媒体却删除隐藏了这个真相。”
-
-纳瓦罗说，福奇在世界卫生组织的朋友彼得·达萨克（Peter Daszak）”应该是为中国工作的的注册外国代理人”。达萨克撰写了20多个中共资助的研究报告，并为武汉实验室工作了近20年。
-
-纳瓦罗说，病毒的无症状传播是由武汉实验室设计的。”这件事就像电视剧《24》中的情节一样，”纳瓦罗说。”他们把这些无(病毒感染)症状的中国人送到世界各地，导致了世界范围的病毒瘟疫大流行。”
-
-（**译者注：**《24》是一部美国反恐与谍战题材电视剧，由福克斯广播公司于2001年首播。）
-
-“托尼·福奇是病毒之父，”纳瓦罗说。”福奇已无处可逃，无处可藏，””CNN、MSNBC他们现在必须要站出来（揭露此真相）。”
-
-“雷德菲尔德摧毁了水坝”（意指真相的洪流将无可避免地扑面而来）。”他说。
-
-**5. ****纳瓦罗抨击泰德****·****克鲁兹边境之行：他患上了林赛****·****格雷厄姆病**
-
-彼得·纳瓦罗博士说，泰德·克鲁兹正在 “掩盖”边境危机本质，还是不要出镜为好。
-
-“每次泰德·克鲁兹去到边境，走到镜头前，他就得了林赛·格雷厄姆病，”纳瓦罗周三告诉《战斗室》。”他走到镜头前，然后就不知所以了，’人道主义危机’，”纳瓦罗说。”他们正在掩盖问题本质。问题的本质是要必须确保边境安全。”
-
-纳瓦罗说，他已经厌倦了听到称呼（非法）越过边境的人是“好人”这个说法。
-
-“我已经真的听腻了说（非法）越境者是好人，”他说。”是的，他们是好人。但有许许多多贩毒集团的人因此而赚了一大笔钱，并且强奸、杀人、虐待。”
-
-纳瓦罗说，失控的危机将导致非法移民增加200万人，并且致命的巴西中共病毒变异毒株正在传播（到美国）。
-
-“每一个携带有巴西病毒毒株的非法移民 “都会 “感染一个美国人，”纳瓦罗说。
-
-“这是拜登政府在谋杀（美国人），”他说。 “这是谋杀，史蒂夫。这是边境政策在谋杀（美国人）。”
-
-**原文链接：**
-
-1. [Mike Lindell’s New Social Media ‘Frank’ Can’t Be Cancelled, Servers Can Hold 1 Billion People](https://pandemic.warroom.org/2021/03/31/mike-lindells-new-social-media-frank-cant-be-cancelled-servers-can-hold-1-billion-people/)
-2. [Mike Lindell Announces New Legal Offense Fund](https://pandemic.warroom.org/2021/03/31/mike-lindell-announces-new-legal-offense-fund/)
-3. [Mike Lindell’s New Film Offers Scientific Proof of Stolen Election](https://pandemic.warroom.org/2021/03/31/mike-lindells-new-film-offers-scientific-proof-of-stolen-election/)
-4. [Navarro: Fauci is the ‘Father of the Virus’ and Google Scrubbed it from the Internet](https://pandemic.warroom.org/2021/03/31/navarro-fauci-is-the-father-of-the-virus-and-google-scrubbed-it-from-the-internet/)
-5. [Navarro Blasts Ted Cruz PR Border Trip: ‘He’s Got Lindsey Graham Disease’](https://pandemic.warroom.org/2021/03/31/navarro-blasts-ted-cruz-pr-border-trip-hes-got-lindsey-graham-disease/)
+摘要：在2021年3月25日的盖特视频中，郭文贵先生说拜登总统“只口不提共产党病毒，但是美国绝对不是总统一个人说了算的。”美国有“辛普森夫人”和“温莎公爵”，但是美国最后一定能找到病毒真相。共产党想要转移焦点、欺骗全世界是不可能成功的。香港的人权被残害、新疆的种族大屠杀、西藏的灭佛和对爆料革命和法轮功的伤害正在把共产党打入地狱。全世界200多个国家中，已经有50多个国家要联合制裁中共。中共最后的下场将比希特勒更惨。
 
 
-0
+
+**中共的下场将比希特勒更惨**
+
+**The Fate of the CCP Will Be Worse Than Hitler’s**
+
+这些天来，拜登总统当上以后，现在正在开记者发布会呢，不管任何情况下，他只口不提共产党病毒，但是美国绝对不是总统一个人说了算的，美国人是一定要要这个病毒真相的，所有的美国的政府部门没有停止工作，24小时没有停止工作，他们是一定要整明白咋回事的，那不是你撒了谎，你骗完就拉倒，那是不可能的，共产党在中国一骗70年，他认为他能成功，他以为这次还能成功，那是不可能的兄弟姐妹们，因为他屡骗屡成功，他才想继续侥幸的再欺骗全世界，现在想尽一切办法要转移全世界的焦点，和对共产党病毒的关注，那么他能做成功吗？他做不成功。
+
+These days, after Joe Biden became the president, he is actually holding a press conference now, he has not mentioned anything about the CCP virus under any circumstances. However, it is absolutely not the president alone who has the final say in the United States. American people will definitely want the truth about this virus. All the U.S. government agencies have been working, continuously working, 24 hours a day. They definitely want to find out what’s going on. It is not possible for the CCP to lie and cheat, and get away with it. The CCP has been lying for seventy years in mainland China. It believes it has succeeded in the past and can succeed again this time. That is impossible, brothers and sisters. The CCP has repeatedly cheated and succeeded, and that’s why it intends to try to deceive the world again by luck. Now, the CCP is doing everything it can to divert the world’s focus and attention from the CCP virus. But can the CCP succeed? No, it can’t.
+
+包括共产党的企业，在美国在欧洲的上市，越来越多的企业，被美国证交所除牌，而且所有过去几年对这些企业的制裁，一个都不会少，只能越来越多，大家都看到了吧？都看到了吧？而且告诉大家的事情，种族大屠杀、反人类罪，这已经把共产党打进了地狱，这一点任何人都不可能推翻，谁推翻谁就是作死，谁就是陪葬。谁愿意陪葬，那就尽快去。越多越好，那些极端的坏人们，是不是？
+
+More and more CCP companies, including the companies listed on stock markets in the United States and Europe, are being delisted by the US Stock Exchange. Furthermore, all the sanctions imposed on these companies in the past few years will not be reduced at all. On the contrary, there will be more sanctions. Did you all see it? Did you see it? Moreover, I told everyone that the “Genocide in Xinjiang” and “Crimes Against Humanity” charges are already sending the CCP to hell. No one can overthrow these charges. Whoever tries to overthrow them is taking the road to death and will be buried with the CCP. Whoever wants to be buried can join those extremely evil people of the CCP as soon as possible. The more, the better. Right?
+
+这就是我们现在爆料革命的魅力，任何人想和我们反着干，就是跟全人类的正义在干，任何人反对我们灭共，那他就会被这个全世界灭共的浪潮所消灭。这就是事实啊，是吧兄弟姐妹们？这边打高尔夫的所有人都说什么？100%知道爆料革命爆的都是真相，关于共产党病毒，关于共产党对美国的威胁，蓝金黄的计划，关于共产党在美国内部的渗透，大家都是相信我们的。
+
+This is the charm of our Whistleblower Movement. Anyone who wants to work against us is working against the justice of all mankind. Anyone who opposes our effort to take down the CCP will be wiped out by the global wave of taking down the CCP. This is the truth, right, brothers and sisters? All the golfers here, what do they say? They know 100% that the Whistleblower Movement is exposing the truth, about the CCP virus, about the CCP’s threat to the United States, about the BGY Plan and the CCP’s infiltration within the United States. Everyone believes in us.
+
+刚刚我们沼泽地的几个大佬给我发信息，昨天我一天没给他们联系，有几个人都慌的不得了了，怎么回事Miles?怎么回事?都很紧张,为什么?很多人的希望就在我们新中国联邦，很多人追究和追究责任和搞出共产党病毒的真相，只希望我们新中国联邦，这是一个世界上大潮流，不会因为那几个烂人、小人所能抹杀的，不要在乎那些事情。
+
+Just now, several bigwigs from the swampland sent me messages. I didn’t contact them the whole day yesterday, and a few of them had a panic attack. “Hey, Miles, what’s the matter? What’s the matter?” They are all very nervous. Why? Many people pin their hopes on our New Federal State of China (NFSC). Many people hope that the NFSC will help them to hold the CCP accountable and bring out the truth about the CCP virus. This is a global megatrend. It can’t be obliterated by a few bastards and scumbags. Don’t worry about those things.
+
+包括最近大家看到五毛是不是多了？当你发现五毛多的时候，就是共产党最疼的时候，当五毛多的时候，他就是无奈的时候，没办法的时候，所以说兄弟姐妹们，大家一定要整明白，我们现在看到每时每刻，过去的30几家，欧洲的世界的国家联合起来要制裁中共，我昨天我说40家，到现在为止已经超过50家了，这种速度，共产党它绝对不相信会发生，世界上一共200多个国家，现在已经50多个国家要全面要制裁中共，我们最终一定达到70家到90家。
+
+Does everybody notice that there have been more trolls from the 50 Cent Army recently? When you see more trolls from the 50 Cent Army, the CCP is hurting the most. When there are more trolls, the CCP is helpless and has no way out. So, brothers and sisters, everyone must understand this. In the past, over 30 countries, including European countries and other countries in the world joined forces to impose sanctions against the CCP. We now see that number growing all the time. Yesterday I said there were forty countries, and now there are more than fifty countries. The CCP absolutely did not believe that it would happen at this speed. There are more than 200 countries globally, and now more than 50 countries want to impose comprehensive sanctions against the CCP. Our goal is to eventually reach 70 to 90 countries.
+
+我昨天讲的辛普森计划，辛普森夫人，大家没有一个人解读透的，我有些话我不能说，你们可以说，辛普森是谁？大家心知肚明，谁是温莎公爵？你们心知肚明。但是不管任何人，不管在哪国有多少个温莎公爵和希特勒的合作，不管他有多么的能耐，他不可能改变像当年希特勒那样的命运，一定比希特勒还要惨，这就是事实。
+
+I talked about the “Simpson Plan” and Mrs. Simpson yesterday, but none of you have interpreted it properly. There is something that I can’t say but you can. Who is Simpson? Everyone knows full well.  Who is the Duke of Windsor? Everyone knows full well. However, whoever they are, whichever country they live in, however many “Dukes of Windsor” are collaborating with “Hitler” and however capable they are, they cannot change their fate that resembles Hitler’s in his time. Their fate will be worse than Hitler’s. This is a fact.
+
+七哥不想多说，你看看现在的惩罚、制裁，加拿大、澳大利亚、欧洲，包括现在的日本，包括二流国家都站出来了，越来越多人认识到，中国人民不等于共产党，共产党在走向疯狂的，在征服这个世界，欺骗着世界，威胁这个世界的危险的路上，这个世界再不发声，这个世界就要被共产党彻底给灭了，这难道不是事实吗？所以兄弟姐妹们，还是那句话，莘县阳谷县搭县，咱走走看。
+
+Brother Miles doesn’t want to say too much. Look at the punishment and sanctions now: Canada, Australia, Europe, Japan. Even the second-tier countries have come forward. More and more people have realized that the CCP is not the same as the Chinese people. The CCP is on a dangerous path to madness, conquering the world, deceiving the world and threatening the world. If the world stays silent, it will be completely wiped out by the CCP. Isn’t this true? So, brothers and sisters, I am challenging the CCP to set up the rules of the game. I will take them on immediately, and we will see who wins in the end.
+
+用事实说话，用能力说话，人类历史上从来没像今天团结在一个目标的情况下，那就是灭共，那就是以毒灭共，以香港整个圣诚的人权被残害，包括在新疆的种族大屠杀，在西藏的灭佛，还有对我们爆料革命和法轮功的伤害，这些账是一定要算的， 一个都跑不了，不信走走看。
+
+Let’s speak with facts and ability. In the history, there has never been a time like today when mankind is united in a common goal, that is, to take down the CCP, to take down the CCP using the truth about the CCP virus. Human rights in our holy city of Hong Kong have been mutilated. The genocide in Xinjiang, the suppression of Buddhism in Tibet, and the harm done to our Whistleblower Movement and Falun Gong. The CCP will be held accountable for all. No one can get away with this. If you don’t believe it, just wait and see.
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/605ceac1d1608d609ea7a9df](https://gtv.org/getter/605ceac1d1608d609ea7a9df) (1:55-5:25, 8:11-9:51)
+鸣谢：
+[1] 感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/1019005/](https://gnews.org/zh-hans/1019005/)
+[2] 感谢 YY 和 Liberte 提供英文翻译文本于 [https://gnews.org/1040402/](https://gnews.org/1040402/)
+
+* * *
+
+整理校对 & 新闻撰写：【雷鸣（文鸣）】字幕：【JennyL】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
++4
