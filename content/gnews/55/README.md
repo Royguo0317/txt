@@ -1,31 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【小一观点】闫博士第三篇报告攻守兼备，但守大于攻
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1047325/)
+## 美国务卿布林肯谴责缅甸军方开枪射杀平民-呼吁民权政府重新掌权
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1047491/)
 
-**加拿大多伦多枫叶农场温哥华战友团 我是1，小一 **
-![]()![](https://gnews.org/wp-content/uploads/2021/03/tou.jpg)
-闫博士第三篇报告在这个时候出现太重要了。小一观点：报告的威力攻守兼备，但现在这个时间点，防守的功效大于进攻。分析如下：
+国务卿布林肯：
 
-1.闫博士第一篇报告出来就已经拉开正义联盟全面进攻共产党的序幕。在学术界真正吹响了消灭共产党的号角，这个意义是载入史册的。
+We see it in what’s happened in Burma.
 
-2.第二份报告出来后，世界上已经没有人敢公然反对了。这说明在业界看来，闫博士的陈述如“1+1=2”一般，无可辩驳，谁来挑战自取灭亡。
+我们在缅甸发生的事情中看到了这一点
 
-3.全世界正义联盟对灭共的决心已经毫不怀疑，坚定不移，按部就班紧锣密鼓地从各个领域频频出手。包括各大媒体已经明显转向，社会舆论已经点起。闫博士有没有第三篇报告，全球联合以毒灭共已经不可逆转。
+The event since the military coup occurred after this year’s report finished, but we must highlight them.
 
-4.第三篇报告现在发布，为进攻一方的正义联盟更是加添一枚核弹。他们将操盘让报告在全世界范围内快速持续发酵，以获得最终动手足够的民意支持。
+军事政变发生在今年的报告结束后，但我们必须强调这些事件
 
-5.为什么这报告防守的功效还比进攻威力更重要呢？防的就是以裴伟士（Malik Peiris）为代表的亲共黑暗势力在学术界最后的反扑。避免在前方高奏凯歌，节节胜利的情况下，被背后暗箭所伤，功亏一篑。
+Non-violent protesters in Burma have been killed, beaten, imprisoned, including on Saturday.
 
-6.中共无路可走下，一定会逼裴伟士出手，而裴伟士想看看闫博士手里到底有什么牌，所以一定要等第三份报告出来，研究端倪。而闫博士也一定会留有后手，引裴伟士出手。 裴伟士将从哪些角度来批驳闫博士，想要解锁。而闫博士很清楚，报告就从不同角度上锁。这样的防守就彻底断绝反攻的可能性。
+缅甸非暴力抗议者被杀害、殴打、监禁，包括周六
 
-7.裴伟士是该领域的最权威泰斗，只要出手，其实就代表他输了。也意味着中共病毒在学术界科学领域的纠缠结束，彻底宣告共产党故意放毒杀害全世界的事实铁板钉钉，正义联盟拿到正义制高点，民意沸腾，将给中共最后一击。
+When more than 100 people were reportedly killed by the military
 
-**总结**：防止以裴伟士为代表的亲共黑暗势力在学术界最后的反扑，正面锁上他们想要反攻的各种路径，不给反扑势力任何机会，同时后山又设下陷阱，这比进攻更重要。裴伟士将是未来期待的看点，不管如何，中共必灭，这么多条人命一定会要交代。一切只是刚刚开始。
+据报道，当时有100多人被军方杀害
 
-* * *
+Many of those killed protesting on Arm Forced Day, others simply bystanders.
 
-*校对、发稿 文锦*
+许多人在武装强迫日抗议时被杀，其他人只是旁观者
 
-+2
+The military said in advance the event they might shoot protesters in the back or the head
+
+军方事先表示，他们可能会从背后或头部向抗议者开枪
+
+and they’ve might good on that thread
+
+他们可能很擅长这些
+
+Among those reportedly killed, four children, the youngest a five-year-old boy
+
+据报道，遇难者中有4名儿童，最小的是一名5岁男孩
+
+We condemned these and other widespread violations by Burma’s security forces in the strongest terms
+
+我们以最强烈的措辞谴责缅甸安全部队的这些和其他广泛的侵犯行为
+
+And we continue to call on the military regime to release all those people who’ve been unjustly detained
+
+我们继续呼吁军事政权释放所有被不公正拘留的人
+
+Stop its attacks on civil society members, journalists and labour unions
+
+停止对公民社会成员、记者和工会的攻击
+
+Halt the killings by its security forces; and return to power the democratically elected government
+
+停止其安全部队的杀戮；民主选举产生的政府应重新掌权
+
+The United Stated committed to working with its allies and partners,
+
+美国承诺与盟国和伙伴合作
+
+to hold the perpetrators of these support acts accountable.
+
+追究这些支持行为的肇事者的责任
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原链接：https://twitter.com/statedept/status/1376999349243281410?s=24
+
+英听校:康州盘古农场-WZ
+翻译: 康州盘古农场-WZ
+翻译终校: 康州盘古农场-Mike Li
+字幕+视频制作:康州盘古农场-天涯行
+审片: 康州盘古农场-银龙
+发布：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0
