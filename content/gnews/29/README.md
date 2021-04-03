@@ -1,29 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 世卫组织报告是中共国“精心策划” 的粉饰调查
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1046131/)
+## 由于缺乏透明度，人们普遍批评世卫组织同意了中国的要求
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1046279/)
 
-翻译： 康州盘古农场 – Freeearth
+@60分钟节目主持人：
 
-校对： 康州盘古农场 – Mike Li
+The lack of transparency has let to widespread criticism of the WHO for agreeing to China’s demands
 
-编辑： 康州盘古农场 – 心照
+由于缺乏透明度，人们普遍批评世卫组织同意了中国的要求
 
-据《福克斯新闻》 (Fox News) ，2021年3月30日发布
+麦特.博明（Matt Pottinger）:
 
-摘要:     美国国务院负责中共病毒起源的前首席调查员戴维•艾希尔（David Asher）抨击世界卫生组织的报告，指出这是一出编“故事”的闹剧，称实质上是中共国“精心策划”了一场粉饰，以掩盖中共病毒的真实来源。
+The one thing that I wish the who has done is to pick up their megaphone
 
-视频链接：
+我希望世卫组织做的一件事是拿起他们的扩音器，
 
-[https://video.foxnews.com/v/6245529259001#sp=show-clips](https://video.foxnews.com/v/6245529259001#sp=show-clips)
+and start screaming through it to demand that China be more transparent, that it open its border
 
-美国国务院负责中共病毒起源的前首席调查员戴维•艾希尔（David Asher）抨击世界卫生组织的报告，指出这是一出编“故事”的闹剧，称实质上是中共国“精心策划”了一场粉饰（以掩盖中共病毒的真实来源）。
+开始通过扩音器大声疾呼，要求中国更加透明，开放边境，
 
-艾希尔：好吧，只有中国人能告诉我们到底发生了什么，但中共是不会（说的）；本质上是他们精心策划了一起由世界卫生组织的粉饰闹剧，该调查看起来是除最可能发生的那块岩石之外的所有岩石（该调查研究了除最有可能的事件以外的所有事件）。 也就是说，武汉病毒研究所及其相关实验室存在实验室泄漏，其中之一，与马路对面研究疫苗的实验室相关。 而且，（中共病毒）这是一种正在发展中的人为致病性武器载体，具有非常重要的隐身特性，使其能够以从未见过的冠状病毒传播的方式传播。
+to allow American CDC officials and other experts from the WHO and around the world to come investigate and to help
 
-我曾与伊拉克的简易爆炸装置作战，特别是与伊朗有关的简易爆炸装置。 关于简易爆炸装置，它实际上是一种心理武器和经济武器。 它不会杀死所有人，但可以吓到所有人。 它阻碍了人们的行动自由。 无论是否有意释放，都该看看这种超限生化武器对世界经济和国家、社会的影响吧！
+允许美国疾控中心官员和来自世卫组织及世界各地的其他专家前来调查和帮助
 
-文章链接：https://www.foxnews.com/media/former-state-dept-investigator-blasts-who-report-china-essentially-orchestrated-investigation-whitewash
+@60分钟节目主持人：
+
+After 15 months and more than 2.7 million deaths worldwide,
+
+在经历了15个月和全球270多万人死亡之后，
+
+it was hoped the team would provide some clarity on the origin of Covid-19.
+
+人们希望这个团队能为中共病毒的起源提供一些清晰的信息
+
+But the exercise ends with even more questions than it began with.
+
+但调查活动结束时出现了比开始时更多的问题
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接：
+
+
+
+> A lack of transparency on the part of China has led to criticism of the World Health Organization for agreeing to China’s demands during their joint team inquiry into the origins of the COVID-19 virus. [https://t.co/WLc8xIhm03](https://t.co/WLc8xIhm03) [pic.twitter.com/kUN8iE6uz3](https://t.co/kUN8iE6uz3)
+> — 60 Minutes (@60Minutes) [March 28, 2021](https://twitter.com/60Minutes/status/1376316231494549504?ref_src=twsrc%5Etfw)
+
+
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+英听校：康州盘古农场 – WZ
+翻译：康州盘古农场 – WZ
+翻译终校：康州盘古农场 -Freeearth
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发文：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

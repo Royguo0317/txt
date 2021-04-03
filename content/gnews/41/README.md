@@ -1,52 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 好莱坞和华尔街一起商讨灭共&nbsp; 感谢郭先生的爆料革命帮助了美国
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1045800/)
+## 温哥华反封锁抗议者用惊悚的无声游行震惊了众人
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1046093/)
 
-简述：郭先生在2021年3月30的GTV直播中说拜登政府的人不会跟着拜登家族去亲共，好莱坞和华尔街大佬一起开会，讨论从中国撤资和全面推动政府灭共，他们感谢郭先生的爆料革命改变了世界和美国。
+阿黎
 
+上周日，约100名自由抗议者在温哥华市中心地区举行了一场无声和平的令人毛骨悚然的游行，震惊了路人。
+![Vancouver anti-lockdown protesters shock people with creepy silent march -  YouTube]()![Vancouver anti-lockdown protesters shock people with creepy silent march -  YouTube](https://i.ytimg.com/vi/bo3r0pxc1eY/maxresdefault.jpg)
+亚历山大-拉萨雷夫(SashaLasarev)和尼古拉-汤普森(Nikolai Thompson)是这次独特游行方法背后的构想者，他们认为，作为约翰-卡朋特(John Carpenter)1988年的经典电影《他们活着》也称（极度空间）(They Live)的衍生品，无声的游行是最好的方式。
+![THEY LIVE Glasses Clip + Trailer (1988) John Carpenter Horror - YouTube]()![THEY LIVE Glasses Clip + Trailer (1988) John Carpenter Horror - YouTube](https://i.ytimg.com/vi/nq09lywyulg/maxresdefault.jpg)《他们活着》电影照片
+现场效果证明他们是对的。沉默的人们缓缓行进，少数人装扮成僵尸，就像科幻片中的政府一样，似乎要求所有行走和驾驶在繁忙的温哥华街道上的人的注意。女记者走在最前排中间，右手伸出食指放在嘴上，示意“安静，别出声！”
 
+这群热爱自由的人还举着黑白相间的牌子，牌子上写着压迫性的语句，这些语句表面上陈述着政府和主流媒体希望我们做的和让我们相信的，像“拥抱是危险的 ”,“政客从不撒谎”,“服从”,“ 悖逆是罪 ”,“不要思考”,“害怕”,“畏惧是一种美德”,“抗拒是徒劳的”,“看电视”等等，这让笔者禁不住联想到中共国的文革。全世界的专制主义是相同的。
 
-**好莱坞和华尔街一起商讨灭共****  ****感谢郭先生的爆料革命帮助了美国**
+1988年由约翰-卡朋特（John Carpenter)导演的电影《极度空间》《They Live》向人们揭示了可怕的现实-人类正在受到看不见的力量的控制，他们是媒体精英、全球主义者、黑客、深层政府、金融大鳄……我们在不知不觉中被媒体和政府洗脑，财富被他们洗劫，变得越来越穷。在世界的控制者眼中，我们只是一种可利用的自然资源。
 
-**Hollywood and Wall Street Are on the Same Page on Taking Down the CCP**
+我们不需要思考，只有顺从才能得到安宁和相对的自由，只需默默地遵从奴隶主的吆喝和命令，我们是奴隶。如果你试图反抗，等待你的将是被审查和监禁，被剥夺财产甚至生命。
 
-拜登政府的国防部长、拜登政府的国务卿、拜登政府的所有，包括副总统Harris，最近在华盛顿圈里边炸了锅了。
+看看现实社会，电影的预言不是已经部分实现了吗？中共国、陨落的东方明珠香港、被政变的缅甸、暗中被中共控制的新加坡、岌岌可危的台湾、妥协的欧盟各国、被严重操控的美国2020总统大选和危在旦夕的加拿大。
 
-The Secretary of Defense, Secretary of State, and all others in the Biden Administration, including Vice President Harris, have been on fire in the Washington circle recently.
+可庆幸的是，加拿大人反抗政府封锁、追求自由的游行示威活动从未停止，只是这些活动没有在主流媒体上报道。人们通过各种可能的社交媒体进行联系、交流和发声。不久前福克斯最著名节目主持人塔克-卡尔森第一次强力发声，严厉抨击加拿大政府违宪设置疫情隔离营，不经审判，用警力绑架加拿大回国人士，将他们投入监狱式的隔离营。
 
-昨天下午，有一个美国沼泽地的九十多岁的大佬，给我打电话说：“Miles，世界在变化。”我说：“有什么变？” “拜登政府认识到了，所有下边的人都知道，都知道享特.拜登和拜登总统和中共的关系，每个人都不想沾这个锅，每个人不想牵涉进去，而且这些人都很明确宁可老子不干，也不会跟着你说亲共去。而且现在很多人说，你要让我在这儿干，那就得灭共。”
+全球灭共大潮已经到来，加拿大的共产集权趋势将随之被淹没，加拿大人不允许共产主义的滋生和存在。
 
-Yesterday afternoon, a bigwig of the swampland, who is over 90 years old, called me, “Miles, the world is changing.” I said, “What are the changes?” He said, “The Biden Administration has realized it. All the people within the administration know the relationship among Hunter Biden, President Biden, and the CCP. Nobody wants to get wet on this. No one wants to get involved in it. And these people are very clear that they would rather quit than become pro-CCP. Moreover, now, many people said that if you want me to continue working here, then we need to take down the CCP.”
-
-最关键的事情就是今年的“以毒灭共”。战友们你记住，七哥过去四年直播当中说的这些五大家族、七大机构，所有这些人都是推动整个灭共最核心力量。彭佩奥、Pottinger（博明）、Miles余、皮特.纳瓦罗，大家看到了吧？整个川普总统的系列，我们的班农兄弟，还有一堆的现在。现在三个史蒂夫都出来了。 那天听娜塔丽去讲那个 Patrick 的时候，你看她讲得多好，这背后都有人，这背后都有力量。
-
-The most crucial thing is this year’s goal of “taking down the CCP by spreading the truth of the virus”. Fellow fighters, please remember the Five Big Families and Seven Big Agencies that I have mentioned during my live broadcasts in the past four years. All these people are the most central power that advances the process of taking down the CCP. Pompeo, Pottinger, Miles Yu and Peter Navarro, do you see it? The whole President Trump Team, our brother Bannon, and many more now, including three Steves, have all stood out. The other day, I heard Natalie talking about Patrick. Such a great talk. There were forces and people behind all this.
-
-我还想告诉大家，这不算重磅，好莱坞几个大佬刚刚地在黄石公园开过会。好莱坞第一次几个大佬互相仇恨的，不一定好莱坞大佬都是一家人，包括我隔壁这个家伙。所有人开会说就是研究共产党，基本最后都认为共产党是他们的过去是挣钱的所谓的钱袋子，但是他们觉得所有的人、钱、安全、利益、未来、家人都受到了共产党的威胁。这次H&M，还有耐克、新疆棉花事件让他们更加意识到，他们了解了很多真相，也受到了威胁。这些人已经研究好尽快地从大陆撤出来资金，包括要全面推动政府一起灭共寻找病毒真相。
-
-I also want to share with everyone, which is not a bombshell, that several bigwigs in Hollywood just held a meeting in Yellowstone. This was the first time for the big shots in the Hollywood, who used to hate each other, to hold a meeting together. It is not necessarily true that Hollywood big shots all get along like a family, including the guy living next door to me. They attended the meeting to focus on studying the CCP. In the end, they reached a conclusion that the CCP used to be their so-called moneybag, but they now felt the threats from the CCP on everyone’s money, personal safety, interests, future, and families. The incidents of H&M, Nike, and the Xinjiang cotton have made them become clearer about the threats and also know more truths. They have decided to withdraw their capitals from mainland China as soon as possible, including pushing the government to take down the CCP together and find out the truth about the virus.
-
-华尔街的这几个大佬，大家记住，跟他们一起参加了视频会。这老人家说了，我没有想到我们好莱坞开完会，跟他们一个视频几个人，跟我们想法一模一样，比我们还极端。但所有人都说，要给我们一年的时间从共产党那把钱和资产撤出来。
-
-Remember that several big shots in Wall Street joined the conference call with them. This old gentleman said, “What I didn’t expect is that the thoughts of those people who participated in the conference call with our Hollywood folks were identical to ours, and even more extreme than ours.” However, all of them said, “Give us one year to withdraw our money and capital from the CCP’s place.”
-
-这个老人家说：“Miles，你改变了世界，你改变了美国。”我毫不谦虚，我说：“是的，我要告诉你，是我们在改变世界，是我们在帮助美国。美国的垃圾、人渣很多，但美国这个国家的系统，这个国家绝对是伟大的。”他还说这个美国国家对不住你、欠你的、对你不够好。我说：“不是的。”我说，今天我的律师也这么说，我告诉我律师，我说我爱美国，我今天跟你这么说，我还是爱美国，但这块儿人渣很多，就被共产党收买的。
-
-This old gentleman said, “Miles, you have changed the world. You have changed America.” I replied without modesty, “Yes. I am telling you, we are changing the world. It is us that are helping America. There are lots of trash and many scumbags in the U.S. However, the system of the U.S. and the country are absolutely great.” He also said, “America does not treat you well. It owes you because it doesn’t treat you well enough.” I said, “No, my attorney said the same words to me today. I told him that I love America. I am telling the same thing to you today. I am still in love of America. However, there are many scumbags who have been bought off by the CCP.”
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=606346ef49339063d0615737](https://gtv.org/video/id=606346ef49339063d0615737) (47:12-51:10)
-鸣谢：感谢万物归一、文琪、山川异域和喜联盟七哥直播组提供中文文本于 [https://gnews.org/zh-hans/1041973/](https://gnews.org/zh-hans/1041973/)
+[相关链接](https://www.rebelnews.com/vancouver_anti_lockdown_protesters_shock_people_with_creepy_silent_march)
 
 * * *
 
-翻译：【7PawBear】字幕：【Rock小哥】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+*校对、发稿 文锦*
 
 +1
