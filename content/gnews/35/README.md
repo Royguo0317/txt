@@ -1,65 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 由于缺乏透明度，人们普遍批评世卫组织同意了中国的要求
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1046279/)
+## 中共财政陷入绝境
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1046290/)
 
-@60分钟节目主持人：
+#### 作者：约翰婶婶
 
-The lack of transparency has let to widespread criticism of the WHO for agreeing to China’s demands
+近日，中共财政将对31个省份实施转移支付，总金额为83370亿元。在31个省市中有21个严重依赖中央财政转移支付资金的救济。
 
-由于缺乏透明度，人们普遍批评世卫组织同意了中国的要求
+地方财政加上中央给的钱也只能勉强维持财政正常，确保“基本民生、保工资、保运转”不出问题，在医疗、教育等方面难以保障。
 
-麦特.博明（Matt Pottinger）:
+2021年中共两会期间，政府工作报告少见地提及“一些地方财政收支矛盾突出”；预算报告则指出，财政运行面临的困难和挑战“多年未有”。
 
-The one thing that I wish the who has done is to pick up their megaphone
+2020年，中共财政收入大幅下滑，收支矛盾异常突出，地方财政运转尤为困难。2020年中共国一般公共预算收入180270亿元，预算支出247850亿元。产生6万亿的财政赤字。
 
-我希望世卫组织做的一件事是拿起他们的扩音器，
+面对财政困境，中央层面只能靠印钞，举债度日。
 
-and start screaming through it to demand that China be more transparent, that it open its border
+而地方政府应对财政资金不足除了举债就是卖地。2020 年，地方政府债券发行规模超过 6.44 万亿元，比 2019 年增长逾 47%，创下地方债发行量历史新高。
 
-开始通过扩音器大声疾呼，要求中国更加透明，开放边境，
+2021年，中共债务规模将达336万亿，在今年和未来三年，每一年到期债务都要超过2.5万亿，2023年到期规模将超过3.5万亿。
 
-to allow American CDC officials and other experts from the WHO and around the world to come investigate and to help
+这些债务的利息和本金都是当地财政收入难以负担的。
 
-允许美国疾控中心官员和来自世卫组织及世界各地的其他专家前来调查和帮助
+《万历会计录》记载，万历六年（1578年），明朝财政赤字到达45万两之多，赤字率在2.5%左右。到崇祯二年(1629年)，明朝财政难以为继，大量裁员，其中一人就是在陕西米脂县银川驿作驿卒的李自成。
 
-@60分钟节目主持人：
+中共政权的崩塌也将如明朝那样，从财政陷入绝境开始，今年将是百年中共的最后一年，历史将重回崇祯二年，以钱灭共的历史时刻正加速到来！
 
-After 15 months and more than 2.7 million deaths worldwide,
+**参考媒体：**
 
-在经历了15个月和全球270多万人死亡之后，
-
-it was hoped the team would provide some clarity on the origin of Covid-19.
-
-人们希望这个团队能为中共病毒的起源提供一些清晰的信息
-
-But the exercise ends with even more questions than it began with.
-
-但调查活动结束时出现了比开始时更多的问题
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接：
+1. [8万亿中央资金流向图：四川河南总额最多 中西部占七成多](https://3g.163.com/money/article/G6HEJ385002580S6.html)
+2. [透视2020年地方财政账本：非税收入大涨，对中央转移支付依赖上升](http://finance.eastmoney.com/a/202102071805807996.html)
+3. [我国GDP总量突破一百万亿元可喜，债务规模达到三百多万亿堪忧？](https://new.qq.com/omn/20210118/20210118A072YY00.html)
 
 
+* * *
 
-> A lack of transparency on the part of China has led to criticism of the World Health Organization for agreeing to China’s demands during their joint team inquiry into the origins of the COVID-19 virus. [https://t.co/WLc8xIhm03](https://t.co/WLc8xIhm03) [pic.twitter.com/kUN8iE6uz3](https://t.co/kUN8iE6uz3)
-> — 60 Minutes (@60Minutes) [March 28, 2021](https://twitter.com/60Minutes/status/1376316231494549504?ref_src=twsrc%5Etfw)
+***审核/校对：**Ting Guo*
 
-
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-英听校：康州盘古农场 – WZ
-翻译：康州盘古农场 – WZ
-翻译终校：康州盘古农场 -Freeearth
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发文：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+（免责声明：本文仅代表作者个人观点，跟**GNEWS**平台无关。）
 
 0

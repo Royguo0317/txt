@@ -1,31 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 浅谈跟随爆料革命对自我灵魂的拯救和生活的帮助
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1045941/)
+## 由于缺乏透明度，人们普遍批评世卫组织同意了中国的要求
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1046279/)
 
-撰稿：何处是我家
-![]()![](https://gnews.org/wp-content/uploads/2021/04/20210402_Task5_Cover.jpg)网络图片
-一切来的都是那么的意外和突然，和大多数战友一样，我幸运地在2017年4月19日看到了郭文贵先生在美国之音VOA的直播。那段时间我喜欢看美国之音的节目，之后，从开始的好奇，看热闹的心态到接下来的一段时间里，在网络上到处搜寻“郭文贵”的名字，以便能收看到郭先生的直播。最开始是油管上，还有零星其他个人和媒体对郭先生的采访。依稀记得有明镜（和中共关系早已暴露的九层妖塔），包括郭先生借用过其他人的频道（那时中共国的假擀面杖子还有八两劲呢，郭先生的推特，油管被封了再封）。一直到现在有了战友们自己的媒体GTV。虽说我可能不是跟随郭先生的第一梯队，但是从关注以来没掉队。
+@60分钟节目主持人：
 
-回想郭先生的爆料，那真是一浪高过一浪，永不停息。一个高峰越过一个高峰，绵延不断。在这过程中，比侦探小说都悬念丛生，跌宕起伏。孟建柱，孙立军，傅振华，吴征等人纷纷落马，海航也一命呜呼，王健更是命丧普罗旺斯！吴小晖安邦集团，明天系都消失的没有了踪迹。如今又有多少的盗国贼躲在被窝里瑟瑟发抖，成为中共权利斗争的祭品。
+The lack of transparency has let to widespread criticism of the WHO for agreeing to China’s demands
 
-郭先生的爆料是真相，是启蒙，是呐喊，是唤醒，对我更是拯救！郭先生的爆料有时娓娓道来，有时是抑扬顿挫，他一次能讲述一个小时，两个小时，有几次甚至超过四个小时。
+由于缺乏透明度，人们普遍批评世卫组织同意了中国的要求
 
-之前的我像个癌症晚期或垂老之人，心灰意冷，活得无精打采。生活经历让自己变得胆小，懦弱，不自信以及没有责任和担当，对现实的一切都漠不关心。而最好的说辞就是：我也知道共产党统治下中国的真实现状，一些弊端，一些乱象，一些假象，一些丑恶和脏脏。可我能怎么办？中国现状就这样，大多数中国人就这德性，是帮不了的阿斗，扶不上墙的烂泥。自己躲远点，少和他们接触不就行了吗？像个阿Q一次又一次的原谅自己的懦弱，胆怯。
+麦特.博明（Matt Pottinger）:
 
-那时的我，哪有勇气，哪有自信，哪有担当和信仰，更不会追求事情的真相，就是知道一点也不敢说啊！跟随着郭先生的爆料，看到更多有胆量，有学识，有能力的战友加入爆料革命的队伍中来。路德社，安红，老江，面具先生等等，还有如雨后春笋般出现的全球各地的农场，终于我们有了自己的家——新中国联邦的成立！这一切使我自己的内心慢慢的有了生气，有了力量，活过来了，好像枯木逢春。一切是如此的随意，不知不觉，水到渠成般的发生了。心活了，生活很自然的就起了变化。
+The one thing that I wish the who has done is to pick up their megaphone
 
-清晰记得对我触动最大的一句话是：“你有执行力吗？”这是郭先生爆料之初说过的话。就这句话给了我无尽的勇气和自信。我开始尝试着去找工作。那时是2017年年底的事，在几个月后，我有了一份可以养家糊口的工作。到下周，我已经工作了三整年。我得到了什么？我得到了生活必须的钱，因为有数的钱很快就会花光，如果没有工作，从国内带过来的钱不会坚持到今天。
+我希望世卫组织做的一件事是拿起他们的扩音器，
 
-最重要的是我融入到了当地的社会，我得到了尊重，自信，我知道了真相，我知道有勇气，有行动后的回报。我还知道这里和共产党统治下的中国到底有什么不同。要知道我的战友们，尽管那时我已经在这里生活了三年，可一句简单的“早晨好”，说之前我自己在嘴里要默默地念至少三遍，才会小声说出来。如今这已经不是障碍，是因为郭先生的那句“你有执行力吗？你有执行力吗？”（我对这句话的理解就是“你行动了吗？）这句话天天在我耳边回响，真是振聋发聩。今天的我，真不知道应该是感谢郭先生的这句话，还是感谢郭先生，还是感谢爆料革命。如果不跟随爆料革命，今天的我不知道会是什么样。
+and start screaming through it to demand that China be more transparent, that it open its border
 
-我想，我已经得到了最好的礼物！
+开始通过扩音器大声疾呼，要求中国更加透明，开放边境，
 
-(本文仅代表作者个人观点)
+to allow American CDC officials and other experts from the WHO and around the world to come investigate and to help
 
-* * *
+允许美国疾控中心官员和来自世卫组织及世界各地的其他专家前来调查和帮助
 
-*审稿编辑：光耀华夏*
-![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2.jpg)
+@60分钟节目主持人：
+
+After 15 months and more than 2.7 million deaths worldwide,
+
+在经历了15个月和全球270多万人死亡之后，
+
+it was hoped the team would provide some clarity on the origin of Covid-19.
+
+人们希望这个团队能为中共病毒的起源提供一些清晰的信息
+
+But the exercise ends with even more questions than it began with.
+
+但调查活动结束时出现了比开始时更多的问题
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+原视频链接：
+
+
+
+> A lack of transparency on the part of China has led to criticism of the World Health Organization for agreeing to China’s demands during their joint team inquiry into the origins of the COVID-19 virus. [https://t.co/WLc8xIhm03](https://t.co/WLc8xIhm03) [pic.twitter.com/kUN8iE6uz3](https://t.co/kUN8iE6uz3)
+> — 60 Minutes (@60Minutes) [March 28, 2021](https://twitter.com/60Minutes/status/1376316231494549504?ref_src=twsrc%5Etfw)
+
+
+
+\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+
+英听校：康州盘古农场 – WZ
+翻译：康州盘古农场 – WZ
+翻译终校：康州盘古农场 -Freeearth
+字幕+视频制作：康州盘古农场-天涯行
+审片：康州盘古农场-银龙
+发文：康州盘古农场-文韵
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
 0

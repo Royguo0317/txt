@@ -1,62 +1,68 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共的下场将比希特勒更惨
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1045855/)
+## 闫博士第三份报告正在发酵中
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1046085/)
 
-摘要：在2021年3月25日的盖特视频中，郭文贵先生说拜登总统“只口不提共产党病毒，但是美国绝对不是总统一个人说了算的。”美国有“辛普森夫人”和“温莎公爵”，但是美国最后一定能找到病毒真相。共产党想要转移焦点、欺骗全世界是不可能成功的。香港的人权被残害、新疆的种族大屠杀、西藏的灭佛和对爆料革命和法轮功的伤害正在把共产党打入地狱。全世界200多个国家中，已经有50多个国家要联合制裁中共。中共最后的下场将比希特勒更惨。
+**西班牙巴塞罗那喜悦农场** wenwu
+
+***超限科学误导的概念在31日的第三份闫报告中向中共炸开了。***比尔·格茨也在其**`新闻中`**提到了相关的信息。
 
 
 
-**中共的下场将比希特勒更惨**
+> David Feith, former U.S. Deputy Assistant Secretary of State for East Asian & Pacific Affairs for Trump admin: “Evidence about virus' origins were sketchy at the beginning of outbreak, but many including President Trump, believed culprit came from a Wuhan lab,” according to NPR [https://t.co/mqja8CpRrH](https://t.co/mqja8CpRrH)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 3, 2021](https://twitter.com/DrLiMengYAN1/status/1378144536594165772?ref_src=twsrc%5Etfw)
 
-**The Fate of the CCP Will Be Worse Than Hitler’s**
 
-这些天来，拜登总统当上以后，现在正在开记者发布会呢，不管任何情况下，他只口不提共产党病毒，但是美国绝对不是总统一个人说了算的，美国人是一定要要这个病毒真相的，所有的美国的政府部门没有停止工作，24小时没有停止工作，他们是一定要整明白咋回事的，那不是你撒了谎，你骗完就拉倒，那是不可能的，共产党在中国一骗70年，他认为他能成功，他以为这次还能成功，那是不可能的兄弟姐妹们，因为他屡骗屡成功，他才想继续侥幸的再欺骗全世界，现在想尽一切办法要转移全世界的焦点，和对共产党病毒的关注，那么他能做成功吗？他做不成功。
+闫博士推文大意——**`大卫·费思，前美国负责东亚和太平洋事务的副助理国务卿：“关于病毒起源的证据在疫情爆发之初很粗略，但包括特朗普总统在内的许多人认为罪犯来自武汉实验室。”据美国国家公共广播电台报道`**
+4月2日，闫博士在其推特上发布一条推文。在该推文中附一条《大全》新闻的**`链接`**。原文翻译如下：
 
-These days, after Joe Biden became the president, he is actually holding a press conference now, he has not mentioned anything about the CCP virus under any circumstances. However, it is absolutely not the president alone who has the final say in the United States. American people will definitely want the truth about this virus. All the U.S. government agencies have been working, continuously working, 24 hours a day. They definitely want to find out what’s going on. It is not possible for the CCP to lie and cheat, and get away with it. The CCP has been lying for seventy years in mainland China. It believes it has succeeded in the past and can succeed again this time. That is impossible, brothers and sisters. The CCP has repeatedly cheated and succeeded, and that’s why it intends to try to deceive the world again by luck. Now, the CCP is doing everything it can to divert the world’s focus and attention from the CCP virus. But can the CCP succeed? No, it can’t.
+**中共病毒来自中共国实验室的理论获得了支持者**
 
-包括共产党的企业，在美国在欧洲的上市，越来越多的企业，被美国证交所除牌，而且所有过去几年对这些企业的制裁，一个都不会少，只能越来越多，大家都看到了吧？都看到了吧？而且告诉大家的事情，种族大屠杀、反人类罪，这已经把共产党打进了地狱，这一点任何人都不可能推翻，谁推翻谁就是作死，谁就是陪葬。谁愿意陪葬，那就尽快去。越多越好，那些极端的坏人们，是不是？
+**新闻来源：《大全》｜作者：林恩·艾莉森｜发布时间：2021年4月1日**
 
-More and more CCP companies, including the companies listed on stock markets in the United States and Europe, are being delisted by the US Stock Exchange. Furthermore, all the sanctions imposed on these companies in the past few years will not be reduced at all. On the contrary, there will be more sanctions. Did you all see it? Did you see it? Moreover, I told everyone that the “Genocide in Xinjiang” and “Crimes Against Humanity” charges are already sending the CCP to hell. No one can overthrow these charges. Whoever tries to overthrow them is taking the road to death and will be buried with the CCP. Whoever wants to be buried can join those extremely evil people of the CCP as soon as possible. The more, the better. Right?
+*许多病毒学和国家安全领域的专家认为，中共病毒可能起源于中共国实验室。周二，世界卫生组织发布了一份报告，称实验室泄露病毒的假设“极不可能”。这引起了批评。*
 
-这就是我们现在爆料革命的魅力，任何人想和我们反着干，就是跟全人类的正义在干，任何人反对我们灭共，那他就会被这个全世界灭共的浪潮所消灭。这就是事实啊，是吧兄弟姐妹们？这边打高尔夫的所有人都说什么？100%知道爆料革命爆的都是真相，关于共产党病毒，关于共产党对美国的威胁，蓝金黄的计划，关于共产党在美国内部的渗透，大家都是相信我们的。
+*据[美国国家公共广播电台报道](https://www.npr.org/2021/03/31/983156340/theory-that-covid-came-from-a-chinese-lab-takes-on-new-life-in-wake-of-who-repor)，据说病毒起源地中国武汉市拥有该国一些最先进的生物研究实验室，包括国营的武汉病毒研究所。该研究所以对导致中共病毒的病毒进行实验而闻名，并已夺走了全球近300万人的生命。*
 
-This is the charm of our Whistleblower Movement. Anyone who wants to work against us is working against the justice of all mankind. Anyone who opposes our effort to take down the CCP will be wiped out by the global wave of taking down the CCP. This is the truth, right, brothers and sisters? All the golfers here, what do they say? They know 100% that the Whistleblower Movement is exposing the truth, about the CCP virus, about the CCP’s threat to the United States, about the BGY Plan and the CCP’s infiltration within the United States. Everyone believes in us.
+*美国常务副国务卿国务卿戴维·费思（David Feith）说：“我认为很多人确实将中共病毒和武汉爆发疫情的事实结合起来，而且武汉的实验室非常迅速。”疫情爆发时，其为特朗普政府负责东亚和太平洋事务的副助理国务卿*。
 
-刚刚我们沼泽地的几个大佬给我发信息，昨天我一天没给他们联系，有几个人都慌的不得了了，怎么回事Miles?怎么回事?都很紧张,为什么?很多人的希望就在我们新中国联邦，很多人追究和追究责任和搞出共产党病毒的真相，只希望我们新中国联邦，这是一个世界上大潮流，不会因为那几个烂人、小人所能抹杀的，不要在乎那些事情。
+*费思说，根据美国国家公共广播电台的数据，关于病毒起源的证据在疫情爆发之初很粗略，但包括前总统唐纳德·川普在内的许多人认为罪犯来自武汉的一个实验室。*
 
-Just now, several bigwigs from the swampland sent me messages. I didn’t contact them the whole day yesterday, and a few of them had a panic attack. “Hey, Miles, what’s the matter? What’s the matter?” They are all very nervous. Why? Many people pin their hopes on our New Federal State of China (NFSC). Many people hope that the NFSC will help them to hold the CCP accountable and bring out the truth about the CCP virus. This is a global megatrend. It can’t be obliterated by a few bastards and scumbags. Don’t worry about those things.
+*但尽管世卫组织在与北京进行了为期四周的调查后发布了结论，以收集有关中共病毒起源的关键信息，但其自己的总干事**特德罗斯·阿德诺姆·吉布赖耶斯（Tedros Adhanom Ghebreyesus）**批评了该报告。*
 
-包括最近大家看到五毛是不是多了？当你发现五毛多的时候，就是共产党最疼的时候，当五毛多的时候，他就是无奈的时候，没办法的时候，所以说兄弟姐妹们，大家一定要整明白，我们现在看到每时每刻，过去的30几家，欧洲的世界的国家联合起来要制裁中共，我昨天我说40家，到现在为止已经超过50家了，这种速度，共产党它绝对不相信会发生，世界上一共200多个国家，现在已经50多个国家要全面要制裁中共，我们最终一定达到70家到90家。
+*他在一份[声明中](https://www.who.int/director-general/speeches/detail/who-director-general-s-remarks-at-the-member-state-briefing-on-the-report-of-the-international-team-studying-the-origins-of-sars-cov-2)说：“尽管团队得出结论，实验室泄漏是最不可能的假设，但这需要进一步调查，可能需要涉及专家的额外任务，我愿意部署这些任务。”他补充说，世卫组织的报告只是揭示病毒来源的开始，而不是结束。“我们必须遵循科学，不遗余力。”*
 
-Does everybody notice that there have been more trolls from the 50 Cent Army recently? When you see more trolls from the 50 Cent Army, the CCP is hurting the most. When there are more trolls, the CCP is helpless and has no way out. So, brothers and sisters, everyone must understand this. In the past, over 30 countries, including European countries and other countries in the world joined forces to impose sanctions against the CCP. We now see that number growing all the time. Yesterday I said there were forty countries, and now there are more than fifty countries. The CCP absolutely did not believe that it would happen at this speed. There are more than 200 countries globally, and now more than 50 countries want to impose comprehensive sanctions against the CCP. Our goal is to eventually reach 70 to 90 countries.
+*疾病控制和预防中心前主任**罗伯特·雷德菲尔德**博士公开抨击中共国对冠状病毒大流行的处理方式，他说他会用“掩盖”这个词来标记他们在这个问题上缺乏透明度。*
 
-我昨天讲的辛普森计划，辛普森夫人，大家没有一个人解读透的，我有些话我不能说，你们可以说，辛普森是谁？大家心知肚明，谁是温莎公爵？你们心知肚明。但是不管任何人，不管在哪国有多少个温莎公爵和希特勒的合作，不管他有多么的能耐，他不可能改变像当年希特勒那样的命运，一定比希特勒还要惨，这就是事实。
+*据《[纽约邮报](https://nypost.com/2021/03/29/ex-cdc-director-robert-redfield-covid-19-escaped-from-wuhan-lab/?utm_campaign=applenews&amp;utm_medium=inline&amp;utm_source=applenews)》报道，他说，这种病原体发病一年后，科学家正在对它来自哪里进行批判性分析。在我看来，一些信息是人们对它不透明。我可以用“掩盖”这个词，但我不知道，所以我不会猜测。*
 
-I talked about the “Simpson Plan” and Mrs. Simpson yesterday, but none of you have interpreted it properly. There is something that I can’t say but you can. Who is Simpson? Everyone knows full well.  Who is the Duke of Windsor? Everyone knows full well. However, whoever they are, whichever country they live in, however many “Dukes of Windsor” are collaborating with “Hitler” and however capable they are, they cannot change their fate that resembles Hitler’s in his time. Their fate will be worse than Hitler’s. This is a fact.
+*据《邮报》报道，他说，他向疾控中心提供援助，帮助中国人调查病毒是如何起源和在哪里，甚至当时的川普总统也打电话给习近平主席，但他们的提议没有被接受。*
 
-七哥不想多说，你看看现在的惩罚、制裁，加拿大、澳大利亚、欧洲，包括现在的日本，包括二流国家都站出来了，越来越多人认识到，中国人民不等于共产党，共产党在走向疯狂的，在征服这个世界，欺骗着世界，威胁这个世界的危险的路上，这个世界再不发声，这个世界就要被共产党彻底给灭了，这难道不是事实吗？所以兄弟姐妹们，还是那句话，莘县阳谷县搭县，咱走走看。
+*著名病毒学家雷德菲尔德重申，他认为疫情是从武汉实验室泄漏的，但表示他不认为这是故意的。*
 
-Brother Miles doesn’t want to say too much. Look at the punishment and sanctions now: Canada, Australia, Europe, Japan. Even the second-tier countries have come forward. More and more people have realized that the CCP is not the same as the Chinese people. The CCP is on a dangerous path to madness, conquering the world, deceiving the world and threatening the world. If the world stays silent, it will be completely wiped out by the CCP. Isn’t this true? So, brothers and sisters, I am challenging the CCP to set up the rules of the game. I will take them on immediately, and we will see who wins in the end.
+*雷德菲尔德说：“科学最终会解决的。”他补充说，实验室正在研究的呼吸道病原体感染实验室工作人员并不罕见。*
 
-用事实说话，用能力说话，人类历史上从来没像今天团结在一个目标的情况下，那就是灭共，那就是以毒灭共，以香港整个圣诚的人权被残害，包括在新疆的种族大屠杀，在西藏的灭佛，还有对我们爆料革命和法轮功的伤害，这些账是一定要算的， 一个都跑不了，不信走走看。
+*据[福克斯新闻报道](https://www.foxnews.com/health/who-report-wuhan-lab-leak-investigated-china-coronavirus-metzl)，美国作家、世卫组织人类基因组编辑国际小组成员杰米·梅茨尔抨击该组织的“无耻结论”，即中共病毒“极不可能”是武汉实验室意外泄漏的结果。*
 
-Let’s speak with facts and ability. In the history, there has never been a time like today when mankind is united in a common goal, that is, to take down the CCP, to take down the CCP using the truth about the CCP virus. Human rights in our holy city of Hong Kong have been mutilated. The genocide in Xinjiang, the suppression of Buddhism in Tibet, and the harm done to our Whistleblower Movement and Falun Gong. The CCP will be held accountable for all. No one can get away with this. If you don’t believe it, just wait and see.
+*梅茨尔说，他们在考虑中间动物宿主和冷冻食品传播之间发生人畜共生跳的可能性方面做得很好。但他们甚至根本没有考虑意外泄漏的可能性。令人发指的是，当他们甚至懒得调查它时，他们断言这不太可能。”*
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/605ceac1d1608d609ea7a9df](https://gtv.org/getter/605ceac1d1608d609ea7a9df) (1:55-5:25, 8:11-9:51)
-鸣谢：
-[1] 感谢彩虹桥提供中文文本于 [https://gnews.org/zh-hans/1019005/](https://gnews.org/zh-hans/1019005/)
-[2] 感谢 YY 和 Liberte 提供英文翻译文本于 [https://gnews.org/1040402/](https://gnews.org/1040402/)
+*根据美国国家公共广播电台的数据，美国国务院概况介绍显示，2019年秋季，武汉病毒研究所有几名生病的实验室工作人员，并指出，该设施存在秘密军事活动，因为它正在进行一种危险的冠状病毒研究。虽然中共国驳斥了这一说法，但梅茨尔表示，世卫组织研究人员应该强调这一点，并进一步调查。*
 
-* * *
+*但其他专家表示，深入挖掘病毒的起源可能会在政治上损害两国关系。*
 
-整理校对 & 新闻撰写：【雷鸣（文鸣）】字幕：【JennyL】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+*根据美国国家公共广播电台采访，全球健康专家哈佛大学免疫学家巴里·布鲁姆博士说：“无论世卫组织另一个委员会的理性解释多么好，两国都有一部分人不会相信最有可能的答案。”*
 
-+4
+值得一提的是，闫博士今日的推特上发布的**`推文`**。大意内容：
+***`美国CDC继续声称接种疫苗的人不能携带中共病毒`***（来自纽约邮报）
+
+
+
+> Serious, CDC?! [https://t.co/vATFd3Hfw2](https://t.co/vATFd3Hfw2)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 2, 2021](https://twitter.com/DrLiMengYAN1/status/1378110325250256901?ref_src=twsrc%5Etfw)
+
+
+***CDC，你是认真的吗？***
+
+
++1
