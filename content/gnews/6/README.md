@@ -1,50 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国的“底气”来自哪里 【三】 – 台湾！台湾！稳住两头，中间突破
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1047991/)
+## 新中国联邦是海外华人的安全和利益的捍卫者
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1048088/)
 
-- 作者：gokuabuela
+概要：在2021年3月18日的盖特视频中，郭文贵先生在评价美国最近发生的亚裔被袭击事件时说，中共不惜出卖中国人的生命，甚至乐见海外华人被屠杀，以换取共产党和美国谈判的外交筹码。只有新中国联邦能够真正保护中国人的安全和利益。
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年4月3日电/西喜社——**
+**新中国联邦是海外华人的安全和利益的捍卫者**
 
-自冷战结束以后，美国在亚洲失去了与苏联对抗的必要，开始慢慢收缩力量。亚太地区的代理人应该选谁？中共？日本？
+**Only New Federal State of China Truly Protects Oversea Chinese**
 
-日本虽然很听话，但毕竟吃过美国2颗原子弹，也是世界上唯一与美国进行过航母大战并差点战胜美国的国家。而且在没有了苏联这个威胁之后，日本军旗的恶劣回忆也是东南亚国家梦中的阴影。美国也需要一个可控制的奴隶国家，最终，选择了中共国为其亚洲的代理人，成了亚洲太平洋地区这个堂口的扛把子。
+还有，现在就是美国搞了几个所谓的杀了亚洲人[的事件]，包括亚洲人被排挤的。这事情，到最后的时候，你记住，越斗越能保护亚洲人。有一波说的，就有一波反的。这个中间就是咱新中国联邦：“哎，别打啦。”是吧？咱们才能保护我们真正的同胞。
 
-从克林顿时期开始，美军慢慢撤出了亚洲和太平洋地区。奥巴马执政的最后阶段，曾经有过一个“重返亚洲”的计划，最终却未能成行。美国势力的撤出而留下的权力真空，被中共慢慢的填充了。日本、韩国、东南亚，夹在两个巨人中间，指望不上美国，那就只能选中共了。
+Also, there have been several incidents of Asians being murdered in the U.S., also incidents of anti-Asian racism. Remember, at the end of the day, the more of these incidents there are, the better protection Asians will get. If some people try to stir up these sentiments for political reasons, there will always be someone else to talk against them.  What stands on the middle ground is our New Federal State of China (NFSC). We can say, “Hey, stop fighting.” Right? Only by this can we protect our true fellow compatriots.
 
-日本是美国亚太战略中最重要的一环。但日本一直分为亲华派和亲美派。曾经前首相田中角荣是亲华派的代表，在中国投靠美国阵营，共同对抗苏联的时候，大约在上个世纪80年代，是有过一段中日友好的佳话的。而渐渐的，中共一直重提日本侵华，培养民众的反日情绪，制造钓鱼岛争端，其实就是争夺亚洲在失去美国后的主导权，不断敲打日本。
+我们是没有利益的，没有任何诉求的。就一个目的，保护海外同胞的安全和利益，和维护海外华人和所有中国人的尊严和形象。保重我们所有华人的孩子和家人，在海外不能受到歧视，更不能受到安全的威胁。
 
-日美之间有安保条约，有美国驻军，本来是让我们比较放心的。但前段时间7哥爆料，日本已经被蓝金黄的透透的，让我们全身冷汗，而且日本至今没有勇气揪出自己的“辛普森夫人”。还有日本边上的韩国，特别是这次布林肯亚洲之行，和韩国并没有签订合作条约，韩国的态度令人浮想联翩。中、日、韩三国的市场、技术、资金，特别是电子科技、材料技术、造船、钢铁、航运等方面，绝对是另一个能与美国媲美的联盟 – -“东北亚联盟”。
+We have no hidden agenda, but one and only purpose, and that is to protect the safety and interests of our overseas compatriots, to maintain the dignity and image of all Chinese, and to ensure that the children and families of all our Chinese overseas are not discriminated against and are protected from any threats to their personal safety.
 
-但凡北面的日、韩选择中共，甚至是中立或观望，美国就失去了东北亚。
+这帮孙子现在正在出卖中国人。他[们]恨不得美国现在能杀上几万中国人，才能让他在外交上有讲数的权力。你去问问王毅、杨洁篪，你去问问中南坑，说现在如果美国发动大[规模的]民族种族歧视，像印尼排华事件[这样的]。他[们]一定会说：“[这是]上天给的礼物，跟美国可以讲数。最好你杀十万！”这就是共产党。这就是海外华人所有的所谓“社交媒体”的悲哀。没有人敢说实话，没有任何人敢真正的保护中国人。只有我新中国联邦，我们的新中国联邦是真正的中国人的安全、利益，绝对的捍卫者，信不信？
 
-围堵中共的第一岛链的南面，马六甲海峡还剩多少？经过多年深耕，中共还是有底气的。
+These bastards now are selling out the Chinese people. They [the CCP] can’t wait for the U.S. to kill tens of thousands of Chinese so that they can have some leverage to bargain through diplomacy. Go ask Wang Yi, Yang Jiechi and those in the ZhongNan Pit what they think if racial discrimination against Chinese people happens in the U.S. at a massive scale, just like the discrimination against people of Chinese descent in Indonesia [during the Sukarno regime in 1958]. They will definitely say, “This is a gift from God, and then we can have something to bargain with the U.S. You’d better kill one hundred thousand Chinese!” This is the CCP. The sad reality of the so-called social media of the overseas Chinese is that nobody dares to speak the truth, and nobody dares to truly protect the Chinese people. Only our NFSC dares to do so and is the true guardian defending safety and interests of the Chinese people, believe it or not.
 
-曾经的美国铁杆盟友泰国、新加坡、马来西亚、菲律宾，今天和中共的关系怎么样？泰国的外长说“如果我是女人，我会爱上王毅”，马来西亚外长叫王毅为“大哥”，菲律宾的杜特尔特，很显然靠不住。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/6053fdc8527b920e2d83e040](https://gtv.org/getter/6053fdc8527b920e2d83e040) (7:45-9:23)
+鸣谢：
+[1] 感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/988987/](https://www.gnews.org/zh-hans/988987/)
+[2] 感谢 YY 和 Liberte 提供英文翻译于 [https://gnews.org/1005162/](https://gnews.org/1005162/)
 
-美国突然回首一望，我们在亚洲的铁杆盟友呢？
+* * *
 
-当然，万一美国回来，这些国家又返回美国怀抱，中共怎么办？
+整理校对 & 新闻撰写：【guocamole(文金欠)】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-这个时候我们看看地图，再看看北极航线，看看“北方大陆联盟”，只要或威胁或利诱稳住了欧洲，使用北极航线，完全跳开了马六甲海峡、苏伊士运河对中共经济的封锁，而在军事行动中，东南亚除了提供基地以外，几乎是毫无作用的。这样，美国的“东盟”牌就失效了。
-
-现在就剩下北面的日本和韩国，同样，有“北极航线”牌和“朝鲜牌”可以打，包括俄罗斯在亚洲的军事力量，稳住东北亚地区即可。
-
-这时候，即使日本死心塌地跟着美国也不怕了，因为就剩台湾，紧紧靠着大陆，集全国之力和美军决一死战，况且还有在台湾的特洛伊木马，真的不能说必败。
-
-不管是热战还是超限战，中共都是有把握拿下台湾的。台湾被中共渗透多年，从上到下，全是筛子了。据说，中共拥有台湾军队连级以上军官的所有个人详细资料。而且，中共一定会在台湾制造一些针对蔡英文的事端，利用煽动起来的民意，配合网络水军，颠覆蔡英文政府，甚至因此制造出兵理由。而且，时间会很快，快到美国在亚洲还没有准备好。今天刚刚发生的台湾重大铁路伤亡事故，很有可能就是中共动手的信号。
-
-一旦台湾失守，日本、韩国的海运生命线（中东的原油，澳洲的铁矿，欧洲的贸易）不管是台湾海峡，还是北极航线，全部被掐在中共手里，他们必跪。东南亚无力支撑美军在亚洲的存在。而台湾的东面就是太平洋，太平洋的另一边就是美国，美国失去了台湾，就失去了亚洲，中共一马平川，再无阻碍。
-
-现在，我们可以看的很清楚了，通过北极航线，拉住俄罗斯，吸引德国，稳住欧洲，使东南亚、印度洋、苏伊士运河作用失效，尽量稳住日本，实在不行，就和美国与日本在台湾决死一战。
-
-特别需要说明的是，如果不发展到热战，而是用超限战，经济战，那么这个战略就更加有效，试问，美国该怎么破？
-
-**请看下一篇：凤凰涅槃 – 智慧和勇气**
-
-0
++1

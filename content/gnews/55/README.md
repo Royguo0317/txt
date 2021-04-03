@@ -1,80 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国务卿布林肯谴责缅甸军方开枪射杀平民-呼吁民权政府重新掌权
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1047491/)
+## 美国承诺保护乌克兰抵抗俄罗斯军事侵略
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1047575/)
 
-国务卿布林肯：
+俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
 
-We see it in what’s happened in Burma.
+编辑上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/R-22.jpg)gnews
+04月01日，华盛顿承诺，如果俄罗斯方面的“军事侵略”升级，将向基辅提供支持。这是乌克兰国防部新闻处在两国军事部长电话会谈后报告的。
 
-我们在缅甸发生的事情中看到了这一点
+乌克兰国防部长安德里·塔尔坦（Andriy Tartan）与五角大楼国防部长劳埃德·奥斯汀（Lloyd Austin）举行了对话，因为有报道称俄罗斯军队撤到乌克兰边境。声明称，“乌克兰国防部负责人指出，联合部队行动地区的局势系统性升级，俄罗斯不愿重申对停火制度的承诺。”
 
-The event since the military coup occurred after this year’s report finished, but we must highlight them.
+奥斯汀在回应中保证，“面对俄罗斯在顿巴斯和克里米亚的持续侵略”，美国准备继续支持乌克兰。报道指出：“如果俄罗斯侵略升级，美国不会让乌克兰单独与敌人为伍，也不会允许俄罗斯联邦对乌克兰的侵略愿望实现”。
 
-军事政变发生在今年的报告结束后，但我们必须强调这些事件
+3月26日，舒米镇附近发生了近几个月来最严重的军事冲突事件，炮击造成4名乌克兰士兵死亡。4月1日，乌克兰军队总司令鲁斯兰·霍姆恰克（Ruslan Khomchak）表示，俄罗斯正在罗斯托夫、布良斯克、沃罗涅日地区和克里米亚边境附近加强驻军。据他介绍，截至3月30日，俄军28个营战术小组部署在顿巴斯附近的边境沿线。
 
-Non-violent protesters in Burma have been killed, beaten, imprisoned, including on Saturday.
+《纽约时报》援引其北约消息人士的话说，4000名俄罗斯军人已被部署到与乌克兰的边境。五角大楼表示，已收到相关报告，目前正与联盟伙伴一起讨论乌克兰东部的紧张局势。
 
-缅甸非暴力抗议者被杀害、殴打、监禁，包括周六
+乌克兰总统称俄罗斯的行动是在顿巴斯停火谈判期间向基辅施压的戏码。
 
-When more than 100 people were reportedly killed by the military
+对此，普京的新闻秘书德米特里·佩斯科夫（Dmitry Peskov）表示，顿巴斯冲突完全是乌克兰的内部冲突，俄罗斯没有参与其中，部队调动由莫斯科自行决定，对其他国家不构成威胁。
 
-据报道，当时有100多人被军方杀害
+参考链接：
 
-Many of those killed protesting on Arm Forced Day, others simply bystanders.
-
-许多人在武装强迫日抗议时被杀，其他人只是旁观者
-
-The military said in advance the event they might shoot protesters in the back or the head
-
-军方事先表示，他们可能会从背后或头部向抗议者开枪
-
-and they’ve might good on that thread
-
-他们可能很擅长这些
-
-Among those reportedly killed, four children, the youngest a five-year-old boy
-
-据报道，遇难者中有4名儿童，最小的是一名5岁男孩
-
-We condemned these and other widespread violations by Burma’s security forces in the strongest terms
-
-我们以最强烈的措辞谴责缅甸安全部队的这些和其他广泛的侵犯行为
-
-And we continue to call on the military regime to release all those people who’ve been unjustly detained
-
-我们继续呼吁军事政权释放所有被不公正拘留的人
-
-Stop its attacks on civil society members, journalists and labour unions
-
-停止对公民社会成员、记者和工会的攻击
-
-Halt the killings by its security forces; and return to power the democratically elected government
-
-停止其安全部队的杀戮；民主选举产生的政府应重新掌权
-
-The United Stated committed to working with its allies and partners,
-
-美国承诺与盟国和伙伴合作
-
-to hold the perpetrators of these support acts accountable.
-
-追究这些支持行为的肇事者的责任
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原链接：https://twitter.com/statedept/status/1376999349243281410?s=24
-
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场-Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片: 康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[https://www.rbc.ru/politics/01/04/2021/606610cf9a794714da42843d](https://www.rbc.ru/politics/01/04/2021/606610cf9a794714da42843d)
 
 0
