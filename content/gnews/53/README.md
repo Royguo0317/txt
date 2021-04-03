@@ -1,120 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 班农战斗室】838-839-840期简讯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1045733/)
+## 好莱坞和华尔街一起商讨灭共&nbsp; 感谢郭先生的爆料革命帮助了美国
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1045800/)
 
-**翻译：七彩光**
-
-**校对****/****编辑：枳实**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/IMG_8755.jpg)
-图片来源：墨尔本雅典娜农场设计组（精灵蓝）
-
-**主持人：史蒂夫****.****班农**
-
-**嘉宾：****Dr. Peter Navarro, Boris Epshteyn, Mike Lindell, Lydia Friend**
-
-**1. ****迈克****·****林德尔新的社交媒体平台****“Frank”****不可能被消失，服务器可容纳****10****亿人同时在线**
-
-迈克·林德尔的媒体平台Frank将成为言论自由的天堂，其服务器可容纳10亿人。
-
-周三，林德尔在《战斗室》节目上向观众预先展示了这个平台，表示当平台在4月12日开始的新的一周时上线，平台将不可能被审查或被关闭运营。
-
-“我设计这个平台是为了言论自由和让人们能够说话表达，”林德尔说。”它将是全世界（人们）的发声平台。”
-
-林德尔表示，Frank将成为一个油管（YouTube）和推特（Twitter）的功能的综合体，不受大科技寡头公司们的控制。
-
-林德尔说：”再也不会有任何（关于真相）言论和资料可以被苹果（公司）或杰弗里·贝索斯（Jeffrey Bezos）所封杀。”此前，有推特的竞争者的应用被从谷歌和苹果各自的应用商店以及亚马逊服务器上被审查（和下架）。
-
-**备注：**杰弗里·贝索斯（Jeffrey Bezos），亚马逊公司创始人及现任董事长兼CEO。2021年2月2日，贝索斯宣布，他将于2021年第三季度辞去亚马逊执行长一职，并将转任为董事会主席。
-
-“在纳粹德国，当他们占领了某一地区，他们自己就成为了舆论操纵者，”林德尔说。”他们做的首要事情就是剥夺（人们的）言论自由。”
-
-林德尔说，在保护数据安全和为全球数亿人提供服务所需的服务器容量方面，钱不是问题。他说，”我相信，平台可以同时容纳最多10亿人在线 “。
-
-“这基本上能够保证人们自由发声的权利，”林德尔说。”言论自由，这是极为重要的原则。”
-
-**2. ****迈克****·****林德尔宣布成立新的法律辩护基金**
-
-迈克·林德尔正在创建一个新的法律诉讼基金，而不只是辩护。
-
-林德尔法律诉讼基金将成为调查和诉讼的资源中心，去主动调查和起诉（违背）宪法的敌人。
-
-“我们要成立一个律师团队，他们将在这里参与这场运动，”他说。林德尔解释说，他有拯救美国的好主意，但是现在（才）可以利用这些资源实现这些（好主意）。
-
-“杰克·多西（Jack Dorseys），我现在已经雇人调查你的推特公司（Twitters），还有维基百科（Wikipedia），”他说。”我们正在调查所有这些事情。”
-
-“我们会在得到证据的时候将其曝露于天下，”林德尔说。
-
-该基金还将用于针对对亚利桑那州的道格·杜西（Doug Ducey）州长和佐治亚州的布赖恩·坎普（Brian Kemp）以及其他人之前的所作所为进行调查。
-
-林德尔说，该基金的运作将与他为 “我的枕头”（My Pillow）和与 “多猫腻“（Dominion）“的法律诉讼完全分开。
-
-“我所做的一切都是在通过这些伟大的项目来帮助我们的国家，并整合资源来帮助这些（项目），”他说。
-
-“我们都知道这件事会更深入，”林德尔说。”当我们的国家受到来自[中共]的攻击时……美国内部也存在帮助中共的代理人。”
-
-**3. ****迈克****·****林德尔的新影片展示了大选结果被偷窃的科学证据**
-
-迈克·林德尔周三发布了一部新的纪录片，该纪录片提供了川普总统的大选（当选结果）被窃取的科学证据。
-
-影片《科学证据》对物理学家道格拉斯·G·弗兰克（Douglas G. Frank）博士进行了长达一小时的采访，他揭示了全国范围内用于控制选举的惊人算法。”这里只有一个真相，”林德尔说。”真假之间不存在任何中间地带，现在真相已经出来了。”
-
-这次采访非常有说服力，林德尔决定将其与他即将推出的纪录片分开发布。纪录片《绝对干涉》将于下周上映，展示中国干涉2020年大选的证据。该片是《绝对证据》的延续作品，有1.4亿人观看了第一部纪录片《绝对证据》。
-
-“当我推出《绝对证据》的时候，所有的数据，包含经度、纬度、IP地址等，”林德尔说。”从那个时候开始，我们带着团队去国内外实地验证这些IP地址。林德尔说，影片中包括了后来在“多猫腻（Dominion）案”上翻供的举报人。林德尔表示，这部影片提供了100%的（证明）选举被盗的”无可辩驳的证据”。
-
-“我们收到了《绝对证据》放映后的所有反馈，“好吧，你想要更多（证据）？我们会得到（和提供）更多证据，’”他说。”里面的每一件事我们都科学地证明了，”林德尔说。”并且实地验证这些是真的。如这是电脑，这是电脑的密码，这是转换投票。”林德尔说，对弗兰克博士的采访证明了 “百分之百这是一次网络攻击，而且是针对所有的县。” 弗兰克博士透露了他之前对2010年人口普查的研究是如何偶然发现全国各地都在使用的（相同）算法。林德尔说，这种算法模式是独一无二的。
-
-[点击这里](http://lindelltv.com/)观看影片《科学证据》。
-
-**4. ****纳瓦罗：福奇是****“****病毒之父****”****而谷歌在网络中将其掩盖**
-
-彼得·纳瓦罗博士告诉《战斗室》，托尼·福奇（Tony Fauci）是 “病毒之父”，而谷歌一年前就采取行动掩盖这一事实。
-
-“福奇用美国纳税人的钱资助了（危险的病毒研究），”纳瓦罗周三说。”而福奇和美国国立卫生研究院的院长弗朗西斯·柯林斯（Francis Collins）基本上是对（病毒）功能性增强研究开了绿灯。”
-
-（**译者注：**弗朗西斯·柯林斯，美国遗传学家，美国国立卫生研究院院长，领导人类基因组计划。）
-
-纳瓦罗解释说，功能性增强研究对病毒进行基因工程，使其更加致命和危险——”将其武器化”。
-
-福奇背着川普政府，从美国国家卫生研究院向武汉病毒学研究所输送了数百万美国纳税人的钱。前疾控中心主任罗伯特·雷德菲尔德（Robert Redfield）最近表示，他认为病毒是从该实验室泄露的。
-
-“谷歌从互联网上清除了这个信息资料，”纳瓦罗说。”一年后的真相就是一年前的真相，从未改变。然而谷歌、社交媒体却删除隐藏了这个真相。”
-
-纳瓦罗说，福奇在世界卫生组织的朋友彼得·达萨克（Peter Daszak）”应该是为中国工作的的注册外国代理人”。达萨克撰写了20多个中共资助的研究报告，并为武汉实验室工作了近20年。
-
-纳瓦罗说，病毒的无症状传播是由武汉实验室设计的。”这件事就像电视剧《24》中的情节一样，”纳瓦罗说。”他们把这些无(病毒感染)症状的中国人送到世界各地，导致了世界范围的病毒瘟疫大流行。”
-
-（**译者注：**《24》是一部美国反恐与谍战题材电视剧，由福克斯广播公司于2001年首播。）
-
-“托尼·福奇是病毒之父，”纳瓦罗说。”福奇已无处可逃，无处可藏，””CNN、MSNBC他们现在必须要站出来（揭露此真相）。”
-
-“雷德菲尔德摧毁了水坝”（意指真相的洪流将无可避免地扑面而来）。”他说。
-
-**5. ****纳瓦罗抨击泰德****·****克鲁兹边境之行：他患上了林赛****·****格雷厄姆病**
-
-彼得·纳瓦罗博士说，泰德·克鲁兹正在 “掩盖”边境危机本质，还是不要出镜为好。
-
-“每次泰德·克鲁兹去到边境，走到镜头前，他就得了林赛·格雷厄姆病，”纳瓦罗周三告诉《战斗室》。”他走到镜头前，然后就不知所以了，’人道主义危机’，”纳瓦罗说。”他们正在掩盖问题本质。问题的本质是要必须确保边境安全。”
-
-纳瓦罗说，他已经厌倦了听到称呼（非法）越过边境的人是“好人”这个说法。
-
-“我已经真的听腻了说（非法）越境者是好人，”他说。”是的，他们是好人。但有许许多多贩毒集团的人因此而赚了一大笔钱，并且强奸、杀人、虐待。”
-
-纳瓦罗说，失控的危机将导致非法移民增加200万人，并且致命的巴西中共病毒变异毒株正在传播（到美国）。
-
-“每一个携带有巴西病毒毒株的非法移民 “都会 “感染一个美国人，”纳瓦罗说。
-
-“这是拜登政府在谋杀（美国人），”他说。 “这是谋杀，史蒂夫。这是边境政策在谋杀（美国人）。”
-
-**原文链接：**
-
-1. [Mike Lindell’s New Social Media ‘Frank’ Can’t Be Cancelled, Servers Can Hold 1 Billion People](https://pandemic.warroom.org/2021/03/31/mike-lindells-new-social-media-frank-cant-be-cancelled-servers-can-hold-1-billion-people/)
-2. [Mike Lindell Announces New Legal Offense Fund](https://pandemic.warroom.org/2021/03/31/mike-lindell-announces-new-legal-offense-fund/)
-3. [Mike Lindell’s New Film Offers Scientific Proof of Stolen Election](https://pandemic.warroom.org/2021/03/31/mike-lindells-new-film-offers-scientific-proof-of-stolen-election/)
-4. [Navarro: Fauci is the ‘Father of the Virus’ and Google Scrubbed it from the Internet](https://pandemic.warroom.org/2021/03/31/navarro-fauci-is-the-father-of-the-virus-and-google-scrubbed-it-from-the-internet/)
-5. [Navarro Blasts Ted Cruz PR Border Trip: ‘He’s Got Lindsey Graham Disease’](https://pandemic.warroom.org/2021/03/31/navarro-blasts-ted-cruz-pr-border-trip-hes-got-lindsey-graham-disease/)
+简述：郭先生在2021年3月30的GTV直播中说拜登政府的人不会跟着拜登家族去亲共，好莱坞和华尔街大佬一起开会，讨论从中国撤资和全面推动政府灭共，他们感谢郭先生的爆料革命改变了世界和美国。
 
 
-0
+
+**好莱坞和华尔街一起商讨灭共****  ****感谢郭先生的爆料革命帮助了美国**
+
+**Hollywood and Wall Street Are on the Same Page on Taking Down the CCP**
+
+拜登政府的国防部长、拜登政府的国务卿、拜登政府的所有，包括副总统Harris，最近在华盛顿圈里边炸了锅了。
+
+The Secretary of Defense, Secretary of State, and all others in the Biden Administration, including Vice President Harris, have been on fire in the Washington circle recently.
+
+昨天下午，有一个美国沼泽地的九十多岁的大佬，给我打电话说：“Miles，世界在变化。”我说：“有什么变？” “拜登政府认识到了，所有下边的人都知道，都知道享特.拜登和拜登总统和中共的关系，每个人都不想沾这个锅，每个人不想牵涉进去，而且这些人都很明确宁可老子不干，也不会跟着你说亲共去。而且现在很多人说，你要让我在这儿干，那就得灭共。”
+
+Yesterday afternoon, a bigwig of the swampland, who is over 90 years old, called me, “Miles, the world is changing.” I said, “What are the changes?” He said, “The Biden Administration has realized it. All the people within the administration know the relationship among Hunter Biden, President Biden, and the CCP. Nobody wants to get wet on this. No one wants to get involved in it. And these people are very clear that they would rather quit than become pro-CCP. Moreover, now, many people said that if you want me to continue working here, then we need to take down the CCP.”
+
+最关键的事情就是今年的“以毒灭共”。战友们你记住，七哥过去四年直播当中说的这些五大家族、七大机构，所有这些人都是推动整个灭共最核心力量。彭佩奥、Pottinger（博明）、Miles余、皮特.纳瓦罗，大家看到了吧？整个川普总统的系列，我们的班农兄弟，还有一堆的现在。现在三个史蒂夫都出来了。 那天听娜塔丽去讲那个 Patrick 的时候，你看她讲得多好，这背后都有人，这背后都有力量。
+
+The most crucial thing is this year’s goal of “taking down the CCP by spreading the truth of the virus”. Fellow fighters, please remember the Five Big Families and Seven Big Agencies that I have mentioned during my live broadcasts in the past four years. All these people are the most central power that advances the process of taking down the CCP. Pompeo, Pottinger, Miles Yu and Peter Navarro, do you see it? The whole President Trump Team, our brother Bannon, and many more now, including three Steves, have all stood out. The other day, I heard Natalie talking about Patrick. Such a great talk. There were forces and people behind all this.
+
+我还想告诉大家，这不算重磅，好莱坞几个大佬刚刚地在黄石公园开过会。好莱坞第一次几个大佬互相仇恨的，不一定好莱坞大佬都是一家人，包括我隔壁这个家伙。所有人开会说就是研究共产党，基本最后都认为共产党是他们的过去是挣钱的所谓的钱袋子，但是他们觉得所有的人、钱、安全、利益、未来、家人都受到了共产党的威胁。这次H&M，还有耐克、新疆棉花事件让他们更加意识到，他们了解了很多真相，也受到了威胁。这些人已经研究好尽快地从大陆撤出来资金，包括要全面推动政府一起灭共寻找病毒真相。
+
+I also want to share with everyone, which is not a bombshell, that several bigwigs in Hollywood just held a meeting in Yellowstone. This was the first time for the big shots in the Hollywood, who used to hate each other, to hold a meeting together. It is not necessarily true that Hollywood big shots all get along like a family, including the guy living next door to me. They attended the meeting to focus on studying the CCP. In the end, they reached a conclusion that the CCP used to be their so-called moneybag, but they now felt the threats from the CCP on everyone’s money, personal safety, interests, future, and families. The incidents of H&M, Nike, and the Xinjiang cotton have made them become clearer about the threats and also know more truths. They have decided to withdraw their capitals from mainland China as soon as possible, including pushing the government to take down the CCP together and find out the truth about the virus.
+
+华尔街的这几个大佬，大家记住，跟他们一起参加了视频会。这老人家说了，我没有想到我们好莱坞开完会，跟他们一个视频几个人，跟我们想法一模一样，比我们还极端。但所有人都说，要给我们一年的时间从共产党那把钱和资产撤出来。
+
+Remember that several big shots in Wall Street joined the conference call with them. This old gentleman said, “What I didn’t expect is that the thoughts of those people who participated in the conference call with our Hollywood folks were identical to ours, and even more extreme than ours.” However, all of them said, “Give us one year to withdraw our money and capital from the CCP’s place.”
+
+这个老人家说：“Miles，你改变了世界，你改变了美国。”我毫不谦虚，我说：“是的，我要告诉你，是我们在改变世界，是我们在帮助美国。美国的垃圾、人渣很多，但美国这个国家的系统，这个国家绝对是伟大的。”他还说这个美国国家对不住你、欠你的、对你不够好。我说：“不是的。”我说，今天我的律师也这么说，我告诉我律师，我说我爱美国，我今天跟你这么说，我还是爱美国，但这块儿人渣很多，就被共产党收买的。
+
+This old gentleman said, “Miles, you have changed the world. You have changed America.” I replied without modesty, “Yes. I am telling you, we are changing the world. It is us that are helping America. There are lots of trash and many scumbags in the U.S. However, the system of the U.S. and the country are absolutely great.” He also said, “America does not treat you well. It owes you because it doesn’t treat you well enough.” I said, “No, my attorney said the same words to me today. I told him that I love America. I am telling the same thing to you today. I am still in love of America. However, there are many scumbags who have been bought off by the CCP.”
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=606346ef49339063d0615737](https://gtv.org/video/id=606346ef49339063d0615737) (47:12-51:10)
+鸣谢：感谢万物归一、文琪、山川异域和喜联盟七哥直播组提供中文文本于 [https://gnews.org/zh-hans/1041973/](https://gnews.org/zh-hans/1041973/)
+
+* * *
+
+翻译：【7PawBear】字幕：【Rock小哥】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
++1
