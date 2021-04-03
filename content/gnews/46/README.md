@@ -1,35 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## BioNTech/以色列的疫苗接种研究令人惊讶
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1047479/)
+## 斯托克先生发明了一种疫苗 ——现在他面临入狱威胁
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1047531/)
 
 ```
-新闻来源：Cosmopolitan网站
+新闻来源：世界报网站
+记者：扬·克劳斯（Jan Klauth）
 发表日期：2021年4月2日
-翻译整理/评论：Shuizhuyu
 ```
 
 
-在疫苗接种方面，以色列遥遥领先。 有关疫苗有效性的第一个结果现已公布。
+医生和企业家温弗里德·斯托克（WinfriedStöcker）生产自己的病毒疫苗，首先为自己和家人接种疫苗，然后为一百名志愿者接种疫苗。他没有许可证。现在他可能会入狱。他到底是违法，还是危及人类生命？
 
-到目前为止，以色列16岁以上的人群中有70％的人至少接受过一次冠状病毒疫苗接种。 到目前为止，几乎没有其他国家进行过如此成功的疫苗接种运动。 现在已经进行了全面的研究，以确定BioNtech / Pfizer疫苗的真正效力如何。
+2020年9月，就在德国政府将3.75亿欧元转给疫苗生产商Biontech之前，温弗里德·斯托克（WinfriedStöcker）写信给了保罗·埃里希研究所（PEI）。这位医生和企业家向负责疫苗的联邦机构解释说，他已经在春季产生了一种抗原，该抗原会触发针对冠状病毒的中和抗体的形成：“为了节省时间，我很长时间没有申请许可证，但是产生一种抗原，然后肌肉接种几次。”
 
-BioNtech疫苗的功效如何？
+测试人员本人是斯托克（Stöcker）本人，他仍然充满欢乐：“受试者1现在对Sars-CoV-2免疫了。”但医生没有恭喜他，他最初没有得到任何答案，后来他得知有针对他的调查。他被他的错误地挫败了还是在危及人类生命？
 
-正如《 ZEIT》报道的那样，这项研究是由Clalit研究所和内盖夫的Ben Gurion大学与美国哈佛大学合作进行的，并发表在美国《新英格兰医学杂志》上。
+#### 简评： 
 
-研究结果证实了疫苗是高度有效的。在预防任何病毒症状方面，第一剂后两到三周的有效性估计为57％，第二剂后一周的有效性为94％。 BioNtech / Pfizer也应同样有效地抵抗英国的突变，因为这种突变以以色列冠状病毒为主导。
+**为了抗疫，各种形态，各种人生 。按照此文章， 这位医生早在Biontech得到国家资金之前， 就已经研制了一种抗疫疫苗，而且在自己的全家家人中试用。 那么上报给研究所， 他们是怎么考虑的。 而现在这位医生可能会遭到法律的制裁。 因为他没有申请许可。 **
 
-**简评：**
+新闻来源链接：
 
-**这是德国新闻向公众宣传的有关辉瑞疫苗的有效性， 以色列是第一个全民接种最彻底的国家之一， 大部分是接种的辉瑞的疫苗。 按照这个结果， 以色列的大流行应该可以结束了， 但是现今的以色列**国**仍有新发病例，这不得不让人们产生质疑， 我们也只能继续观察这个疫苗的效果吧**！
-
-新闻来源链接：🔗**[Biontech: Israelische Impf-Studie offenbart Überraschung](https://www.cosmopolitan.de/biontech-isralelische-impf-studie-offenbart-ueberraschung-105387.html?utm_source=taboola&amp;utm_medium=campaign&amp;utm_campaign=9143468&amp;utm_term=2979546127#tblciGiCfaUfRytt6QDjVggDrKzzBxddzdgCw3kCDvqwdzzoIQyCt9UYo4MjMl_ab2MnaAQ)**
+🔗[Herr Stöcker erfand einen Impfstoff – und nun droht ihm Haft](https://www.welt.de/wirtschaft/plus228974717/Impfstoff-Erfinder-Winfried-Stoecker-Held-oder-Verbrecher.html)
 
 * * *
 
-**审核*/*校对：***Ting Guo*
+***翻译整理/评论：**Shuizhuyu***审核*/*校对：***Ting Guo*
 
 （免责声明：本文仅代表译者个人观点，跟GNEWS平台无关。）
 

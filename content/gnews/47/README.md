@@ -1,80 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国务卿布林肯谴责缅甸军方开枪射杀平民-呼吁民权政府重新掌权
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1047491/)
+## 【世事解评】《他们以为他们是自由的》
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1047542/)
 
-国务卿布林肯：
+作者：纽约香草山写作一组 文非
 
-We see it in what’s happened in Burma.
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
-我们在缅甸发生的事情中看到了这一点
 
-The event since the military coup occurred after this year’s report finished, but we must highlight them.
 
-军事政变发生在今年的报告结束后，但我们必须强调这些事件
+一个人长久的生活经验和阅历会影响自己的未来命运，个人还会凭借自己的常识对事物进行相应的判断。自由的概念常常被中共这类专制集权政府所歪解，让国人总以为他们是自由的。历史中，德国纳粹政府也是这样欺骗老百姓的。本文将对《他们以为他们是自由的》这本书结合当前的中共体制进行分析。
 
-Non-violent protesters in Burma have been killed, beaten, imprisoned, including on Saturday.
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/09/11062218/image22.jpg)
 
-缅甸非暴力抗议者被杀害、殴打、监禁，包括周六
+《他们以为他们是自由的》是一本记录1933～1945年生活在德国纳粹统治下普通人视角的书，作者米尔顿·迈耶通过采访10个扮演不同社会角色的人物——分别有冲锋队队长、士兵、木匠、纳粹办公室主任、高中生、面包师等——探访德国纳粹体制在普通人身上的作用。
 
-When more than 100 people were reportedly killed by the military
+这些小人物善良、勤劳并且对生活充满乐观精神，但是纳粹体制的存在让他们的观念发生了深深改变。这种状态与生活在中共体制下的人们极为相似。
 
-据报道，当时有100多人被军方杀害
+**1****.****对外界认知的缺乏**
 
-Many of those killed protesting on Arm Forced Day, others simply bystanders.
+**“他们对外部世界没有兴趣，除了从德国的敌人那里听说之外，他们不曾听说任何关于纳粹的邪恶事情”**，这些小人物满足于自己眼前的生活，对外界的事物毫不知情，当有任何关于抨击纳粹邪恶的信息时，他们往往选择掩耳盗铃，更愿意相信纳粹的官方宣传：这一切都是境外反动势力的诽谤。“戈培尔的那位在宣传部中直接负责广播的下属，在纽伦堡作证说他曾听说过用毒气杀死犹太人一事，并向戈培尔做过汇报。戈培尔说那是假的，那是敌人的宣传。”当前中共被全世界报道在新疆犯下了反人类罪和种族灭绝，中共开足大外宣马力，歪曲事实，对不知真相的老百姓灌输自己的意识：这一切都是“反动势力”的污蔑。
 
-许多人在武装强迫日抗议时被杀，其他人只是旁观者
+**2****.****清醒独立会被群体排斥**
 
-The military said in advance the event they might shoot protesters in the back or the head
+“在整个共同体几乎以一种方式感知和思考时，以不同方式说话或做事意味着一种内部流亡。“相当一部分人知晓纳粹的邪恶但是仍然选择了同流合污，因为提出异议的人士会被视为异类，往往会被群体抛弃。
 
-军方事先表示，他们可能会从背后或头部向抗议者开枪
+**3****.****认为钱财比体制更重要**
 
-and they’ve might good on that thread
+**“快速而出色的发展与我们拥有一个民主政体或独裁政府或其他什么并没有关系。政府形式并不重要。只要让人们有了钱财，有了机会，他们并不会关心任何体制问题。”**这是一个小人物的视角，他们认为独裁政府能让他们生活幸福也是可以的，如果共产主义可以给他们带来好生活，他们也会高呼万岁。现在很多国人亦是如此，一时的贪婪与单纯只会造成更大的灾难。当纳粹发动对外战争，强迫青壮年上战场赴死，被全世界审判时，抱着“老婆孩子热炕头”思想的人又怎会想到？
 
-他们可能很擅长这些
+**4****.****“我”什么也做不了**
 
-Among those reportedly killed, four children, the youngest a five-year-old boy
+当被问及自己是否可以拒绝纳粹的体质时，小人物纷纷表示无法做到。“一个人只能承担那么点责任。如果让他承担更多的责任，他会崩溃的；因此，为了使自己免于崩溃，她拒绝承担超出其能力的责任。”纳粹治下的人们对纳粹的所作所为看在眼里，但是并不为所动。当然，这与纳粹的网格式管理有关，**“身份制度像罗网一样覆盖整个德国，每个市镇都有一个罪犯灯具处，那里记录者每一个曾惹过所谓麻烦人的履历”**，这些小人物为了避免惹麻烦，认为“我”什么也做不了。
 
-据报道，遇难者中有4名儿童，最小的是一名5岁男孩
+**5****.****领袖永远是英明的**
 
-We condemned these and other widespread violations by Burma’s security forces in the strongest terms
+**“屠杀犹太人？我要告诉你下面这个事实——那是希姆莱干的，希特勒与此毫无关系。” “你认为他（希特勒）知道此事？”“我不知道，嗨，我永远不会知道”。**这些小人物会认为希特勒用人不当，这些罪行都是希特勒手下自己干的，他们欺骗了“伟大元首”。在国内，仍有很多人将毛泽东、习近平等人的画像悬挂在自己家中，认为社会中出现的任何问题都是下面执行不当导致的，曲解了中央的好政策，拿着鸡毛当令箭。
 
-我们以最强烈的措辞谴责缅甸安全部队的这些和其他广泛的侵犯行为
+当前的中共是共产主义的集大成者，与邪恶的纳粹有着众多相似之处。共产主义的思想正在戕害着中华大地的老百姓，意识形态机器对人的洗脑作用是极大的，在灭共后，对共产主义的揭露与批判将是重要的工作之一。要防止其死灰复燃，彻底将中共及其意识形态送入地狱。
 
-And we continue to call on the military regime to release all those people who’ve been unjustly detained
+校对/发稿：飞虹
 
-我们继续呼吁军事政权释放所有被不公正拘留的人
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-Stop its attacks on civil society members, journalists and labour unions
 
-停止对公民社会成员、记者和工会的攻击
 
-Halt the killings by its security forces; and return to power the democratically elected government
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-停止其安全部队的杀戮；民主选举产生的政府应重新掌权
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-The United Stated committed to working with its allies and partners,
-
-美国承诺与盟国和伙伴合作
-
-to hold the perpetrators of these support acts accountable.
-
-追究这些支持行为的肇事者的责任
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原链接：https://twitter.com/statedept/status/1376999349243281410?s=24
-
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场-Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片: 康州盘古农场-银龙
-发布：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0
