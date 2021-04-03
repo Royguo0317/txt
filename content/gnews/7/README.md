@@ -1,32 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统发声明力挺佐治亚州新选举法
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1048158/)
+## 美职业棒球全明星赛迁离亚特兰大
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1048252/)
 
-俄罗斯莫斯科喀秋莎农场 仰望七星
-编辑 水星 上传 银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/T-32-10.jpg)gnews
-4月2日，一天里川普总统两发声明，第一个是在拜登气急败坏地呼吁美国职业棒球全明星赛迁离亚特兰大后，美国职业棒球大联盟（MLB）随即宣布将原定于在亚特兰大举行的2021年全明星赛和美国职业棒球大联盟比赛迁至待定地点。【1】为此，川普总统发表声明，声援对佐治亚州的支持，声明全文如下【2】：
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-棒球已经失去了大量的球迷，现在他们带着全明星赛离开亚特兰大，因为他们害怕激进的左派民主党人，他们不希望选民身份验证，（而这种身份验证）是迫切需要的，事关我们的选举。抵制棒球和所有煽动妨碍自由、公正选举的公司，你们在听可口可乐，达美航空，所有的！
+编辑 水星  上传 银河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/下载-3-6.jpg)gnews
+正像文贵先生预计的那样，美国的宪政危机已经开始，正义与邪恶的较量正在博弈，初尝甜头、窃取2020大选的民主党，试图将窃取舞弊手段合法化，迫不及待地推出《为人民法案》，煽动大公司、左派联盟造势、响应。在拜登呼吁、美国职业棒球大联盟唯唯顺从、川普总统声援佐治亚州之后，佐治亚州也就美国职业棒球全明星赛的迁离发表声明，反映了正义力量的觉醒。
 
-克鲁兹参议员转发了此川普总统的声明。
+声明全文如下：
 
-随后川普总统再次发表声明谴责欺诈舞弊，并告知全世界，“越来越多的事实正在浮出水面”。
+大佐治亚州就MLB的全明星赛决定发表声明
 
-声明全文如下【3】：
+亚特兰大-针对大联盟将全明星赛和大联盟比赛从亚特兰大迁出的决定，大佐治亚州主席凯利·洛弗勒发表了以下声明：
 
-为什么每次讨论2020选举舞弊时，假新闻媒体总是说这样的指控毫无证据、毫无根据等等？可悲的是，在2020年的总统选举中出现了大规模的舞弊，很多愤怒的人都明白这一点，随着时间的流逝，不幸的是，对于激进的左派狂热分子来说，越来越多的事实正在浮出水面。
+“极为不幸的是，美国职棒大联盟陷入了由民主党人散布的误导信息运动，只会损害勤劳的佐治亚州人和小企业的利益。当美国职棒大联盟有机会选择向标志性先驱汉克·亚伦致敬时，他们反而选择了向政治致敬。” 凯利·洛弗勒说。
 
-除此之外，复活节快乐！
+“大佐治亚州将继续与支持《选举廉正法》的绝大多数佐治亚州人站在一起，该法扩大了参选机会，加强了我们选举的公正性。”
 
-评：2020大选欺诈舞弊能算完吗？多个摇摆州都有动作，做贼心虚的民主党也在负隅顽抗，与作假沆瀣一气的大公司仍在配合左派。
+声明链接：
 
-参考链接：
 
-【1】https://gnews.org/zh-hans/1047739/
-【2】https://twitter.com/tedcruz/status/1378169715277901832
-【3】https://twitter.com/JennaEllisEsq/status/1378206782711943171
 
-+1
+> The [@MLB](https://twitter.com/MLB?ref_src=twsrc%5Etfw) had the chance to honor an iconic trailblazer and [@Braves](https://twitter.com/Braves?ref_src=twsrc%5Etfw) legend Hank Aaron.
+> 
+> Instead, the bowed to the woke disinformation campaign of the Left—to the detriment of hardworking Georgians and small businesses.
+> 
+> Full statement below ⬇️ [pic.twitter.com/VBjzWEYkKZ](https://t.co/VBjzWEYkKZ)
+> — Kelly Loeffler (@KLoeffler) [April 2, 2021](https://twitter.com/KLoeffler/status/1378085880687169539?ref_src=twsrc%5Etfw)
+
+
+
+声明文字整理：
+
+GREATER GEORGIA ISSUES STATEMENT REGARDING MLB’SALL-STAR GAME DECISION
+
+ATLANTA- In response to the MLBS decision to relocate the All-star Game and MLB Draft from Atlanta, Greater Georgia Chairwoman Kelly Loeffler released the following statement:
+
+It’s extremely unfortunate that the MLB has fallen into the woke misinformation campaign being spread by Democrats-only to the detriment of hardworking Georgians and small businesses. At a time when the MLB had the opportunity to honor an iconic trailblazer in Hank Aaron, they instead opted to honor politics, “Kelly Loeffler said.
+
+“Greater Georgia will continue to stand with the vast majority of Georgians who support the Election Integrity Act that expands access and strengthens the integrity of our elections.”
+
+0

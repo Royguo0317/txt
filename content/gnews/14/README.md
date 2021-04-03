@@ -1,48 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 首轮接种失败 欧洲加速疫苗计划
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1048108/)
+## 新中国联邦是海外华人的安全和利益的捍卫者
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1048088/)
 
-- 翻译：文乐
+概要：在2021年3月18日的盖特视频中，郭文贵先生在评价美国最近发生的亚裔被袭击事件时说，中共不惜出卖中国人的生命，甚至乐见海外华人被屠杀，以换取共产党和美国谈判的外交筹码。只有新中国联邦能够真正保护中国人的安全和利益。
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年4月3日电/西喜社——**
+**新中国联邦是海外华人的安全和利益的捍卫者**
 
-据路透社（苏黎世）4月1日报道，由于在首轮疫苗接种的失败和打击，以及新一波感染的双重压力下，欧洲正争先恐后地加快接种速度，避免被英国和美国进一步抛在后面。
+**Only New Federal State of China Truly Protects Oversea Chinese**
 
-在巴黎，神圣的国家足球场正在转变为大规模疫苗接种中心，而在每天有2万人感染的意大利，在新总理马里奥·德拉吉（Mario Graghi）解雇该国疫苗沙皇后，接种工作由军方和民防机构接管。
+还有，现在就是美国搞了几个所谓的杀了亚洲人[的事件]，包括亚洲人被排挤的。这事情，到最后的时候，你记住，越斗越能保护亚洲人。有一波说的，就有一波反的。这个中间就是咱新中国联邦：“哎，别打啦。”是吧？咱们才能保护我们真正的同胞。
 
-复活节过后，德国北莱茵-威斯特法伦州也放宽了接种45万剂阿斯利康疫苗的年龄规定。德国原本限制60岁以上的人群才可接种，现孕妇及其伴侣以及其他优先群体也是首批被提供阿斯利康疫苗的人群。
+Also, there have been several incidents of Asians being murdered in the U.S., also incidents of anti-Asian racism. Remember, at the end of the day, the more of these incidents there are, the better protection Asians will get. If some people try to stir up these sentiments for political reasons, there will always be someone else to talk against them.  What stands on the middle ground is our New Federal State of China (NFSC). We can say, “Hey, stop fighting.” Right? Only by this can we protect our true fellow compatriots.
 
-“我们决定尽快通过疫苗接种中心将他们送去。”北莱茵-威斯特法伦州卫生部长卡尔-约瑟夫·劳曼（Karl-Josef Laumann）告诉记者。
+我们是没有利益的，没有任何诉求的。就一个目的，保护海外同胞的安全和利益，和维护海外华人和所有中国人的尊严和形象。保重我们所有华人的孩子和家人，在海外不能受到歧视，更不能受到安全的威胁。
 
-欧洲迫切需要扭转世卫组织周四所称的疫苗接种”令人无法接受的缓慢”局面，因为最初在英国、南非和现在巴西发现的变种病毒激起了人们的担忧，即行动太慢会让病毒再次扩散。
+We have no hidden agenda, but one and only purpose, and that is to protect the safety and interests of our overseas compatriots, to maintain the dignity and image of all Chinese, and to ensure that the children and families of all our Chinese overseas are not discriminated against and are protected from any threats to their personal safety.
 
-由于在疫苗出口问题的争吵、对阿斯利康疫苗健康问题的担忧以及辉瑞、Moderna和阿斯利康疫苗的一些临时交付延误，欧洲疫苗推广的混乱局面更加严重。
+这帮孙子现在正在出卖中国人。他[们]恨不得美国现在能杀上几万中国人，才能让他在外交上有讲数的权力。你去问问王毅、杨洁篪，你去问问中南坑，说现在如果美国发动大[规模的]民族种族歧视，像印尼排华事件[这样的]。他[们]一定会说：“[这是]上天给的礼物，跟美国可以讲数。最好你杀十万！”这就是共产党。这就是海外华人所有的所谓“社交媒体”的悲哀。没有人敢说实话，没有任何人敢真正的保护中国人。只有我新中国联邦，我们的新中国联邦是真正的中国人的安全、利益，绝对的捍卫者，信不信？
 
-欧盟要慢于英美，不仅是去年订购疫苗的动作慢，而且在批准疫苗方面也慢。即使获批，接种率也令人失望。世卫组织估计，从较富裕的斯堪的纳维亚半岛到较贫穷的巴尔干国家，欧洲大陆53个国家的7.5亿人口中，只有4%已经完全接种了疫苗，只占美国人口的四分之一。
+These bastards now are selling out the Chinese people. They [the CCP] can’t wait for the U.S. to kill tens of thousands of Chinese so that they can have some leverage to bargain through diplomacy. Go ask Wang Yi, Yang Jiechi and those in the ZhongNan Pit what they think if racial discrimination against Chinese people happens in the U.S. at a massive scale, just like the discrimination against people of Chinese descent in Indonesia [during the Sukarno regime in 1958]. They will definitely say, “This is a gift from God, and then we can have something to bargain with the U.S. You’d better kill one hundred thousand Chinese!” This is the CCP. The sad reality of the so-called social media of the overseas Chinese is that nobody dares to speak the truth, and nobody dares to truly protect the Chinese people. Only our NFSC dares to do so and is the true guardian defending safety and interests of the Chinese people, believe it or not.
 
-根据欧洲疫苗追踪器的数据，尽管欧盟的疫苗接种率正在缓慢攀升，但欧盟只有13.4%的成年人至少接种过一次疫苗。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/6053fdc8527b920e2d83e040](https://gtv.org/getter/6053fdc8527b920e2d83e040) (7:45-9:23)
+鸣谢：
+[1] 感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/988987/](https://www.gnews.org/zh-hans/988987/)
+[2] 感谢 YY 和 Liberte 提供英文翻译于 [https://gnews.org/1005162/](https://gnews.org/1005162/)
 
-相比之下，官方数据和路透社的计算显示，超过一半的英国成年人和38%的美国成年人至少接受了一种剂量的疫苗。
+* * *
 
-不过，情况正在好转：路透社的一项分析显示，德国、法国、意大利和西班牙这四个最大国家的7天平均日均值在上周达到历史最高水平。
+整理校对 & 新闻撰写：【guocamole(文金欠)】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-像法国一样，西班牙目前正在将会议中心、足球场等场所改造成大规模疫苗接种中心，预计到夏季结束时，该国4700万人口中的70%将接种疫苗。
-
-西班牙卫生部长卡罗莱纳·达里亚斯（Carolina Darias）说：“随着更多的疫苗涌入西班牙，4月份将是一个转折点。”欧盟预计，到7月份第二季度的交付量将大幅增加，足以为至少2.55亿人接种疫苗，占其成年人口的70%。
-
-本季度将交付约2亿剂辉瑞疫苗，足够1亿人接种，而强生公司的单剂疫苗将于本月开始交付。法国、意大利和瑞士等国都想方设法来加快疫苗的接种速度。大量的疫苗投入市场，从民众自愿接种到政府军方接管接种疫苗，而此时最关键的问题却被压抑，即：疫苗到底安全么？
-
-大量证据表明包括中共病毒在内的多种疫苗都存在严重副作用并会致人死亡。关键是在接种疫苗之后依然出现感染大规模爆发，其有效性十分可疑。而在对感染大爆发的恐慌情绪的支配之下（或者说是有意为之），各国政府病急乱投医，盲目加快接种疫苗的行为恐将是毁灭性的。
-
-在病毒真相大白之前，最好对所有疫苗都保持警惕。
-
-主编：蚂蚁兄弟；校对：weiwei；组稿 发稿:神奇四侠
-
-新闻来源：[路透社](https://www.reuters.com/article/us-health-coronavirus-europe-vaccines/europe-recasts-covid-19-vaccine-playbook-after-first-round-flop-idUSKBN2BO6DA)
-
-0
++1

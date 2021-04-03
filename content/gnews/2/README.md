@@ -1,46 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美职业棒球全明星赛迁离亚特兰大
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1048252/)
+## 【各抒己见】不再让钱去“打工”
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1042133/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：喜马拉雅东京樱花团/半日闲
 
-编辑 水星  上传 银河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/下载-3-6.jpg)gnews
-正像文贵先生预计的那样，美国的宪政危机已经开始，正义与邪恶的较量正在博弈，初尝甜头、窃取2020大选的民主党，试图将窃取舞弊手段合法化，迫不及待地推出《为人民法案》，煽动大公司、左派联盟造势、响应。在拜登呼吁、美国职业棒球大联盟唯唯顺从、川普总统声援佐治亚州之后，佐治亚州也就美国职业棒球全明星赛的迁离发表声明，反映了正义力量的觉醒。
+![](https://lh5.googleusercontent.com/JXY7tEMD9SPVC-HLd9y5GzqFYPCUYTOJ4GtzSAukg9Qcm544JoyO4ij5oOn5HVAdEwkPCJX8QftTO1HUGPJcQDaKjvjyoWvHRKOSv3FnYgS6hTUVr52Q078ydQEhI7LdWwUZryjx)
+[图片源自](https://k.sina.cn/article_7545238688_1c1bb34a000100tgci.html)
 
-声明全文如下：
+我只是一个普通的人，年轻的时候有各种梦想，但无论怎样努力也只是草根而已。每天忙忙碌碌，过着朝九晚五的平庸生活。
 
-大佐治亚州就MLB的全明星赛决定发表声明
+当看见中共的领导层及他们的七大姑八大姨那风风光光的奢侈生活时，真是羡慕不已，但深知那种生活是羡慕不来的，草根就得低头过日子。虽然心不甘，但能把人家咋样呢？于是，学会了逆来顺受。直到有一天看了2017年七哥的直播，才让我猛然觉醒。原来共产党不能代表我们老百姓，不是合法政权，我是被共产党洗脑了。一直觉得反共产党就是反人民，共产党把概念偷换了，所以老百姓就大错特错的认命了。
 
-亚特兰大-针对大联盟将全明星赛和大联盟比赛从亚特兰大迁出的决定，大佐治亚州主席凯利·洛弗勒发表了以下声明：
+现在，我们清晰的了解了，共产党不等于中国，也不等于中国人。所以，为了子孙后代，我们必须坚决的站起来，勇敢的说不。感谢七哥这颗璀璨的星点亮黑暗的夜空，掀起了灭共潮！
 
-“极为不幸的是，美国职棒大联盟陷入了由民主党人散布的误导信息运动，只会损害勤劳的佐治亚州人和小企业的利益。当美国职棒大联盟有机会选择向标志性先驱汉克·亚伦致敬时，他们反而选择了向政治致敬。” 凯利·洛弗勒说。
+随着七哥创建新中国联邦以及G系列，我们这些草根也有了希望。私募不再只是共产党的高官及其群带关系人的特供，七哥给了我们草根参与的机会。由于共产党的高级黑和扰乱，我们又阴差阳错的、幸运的升级为原始股东。哇哦，让我们闲置的钱有了安全感，有了去处，有了未来的希望。跟了爆料革命，跟了七哥，这一切好事就象天上掉下来的一样，足够我们灭共，足够我们余生。
 
-“大佐治亚州将继续与支持《选举廉正法》的绝大多数佐治亚州人站在一起，该法扩大了参选机会，加强了我们选举的公正性。”
+很多人喜欢用钱投资商业、投资股市、投资期货、投资房产等等，其实都是让钱去“打工”。大家明白打工是挣不了几个钱的，而我们只要有七哥在，我们的钱不用去“打工”，我们也会有无尽的财富。
 
-声明链接：
+*免责申明：本文只代表作者观点，与GNews网站无关*
 
+*校对：喜马拉雅东京樱花团 / 待命（文晓）
+发布：喜马拉雅东京樱花团 / 文小白
+责任编辑：喜马拉雅东京樱花团 / 煙火1095*
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/二维码.jpg)
 
-> The [@MLB](https://twitter.com/MLB?ref_src=twsrc%5Etfw) had the chance to honor an iconic trailblazer and [@Braves](https://twitter.com/Braves?ref_src=twsrc%5Etfw) legend Hank Aaron.
-> 
-> Instead, the bowed to the woke disinformation campaign of the Left—to the detriment of hardworking Georgians and small businesses.
-> 
-> Full statement below ⬇️ [pic.twitter.com/VBjzWEYkKZ](https://t.co/VBjzWEYkKZ)
-> — Kelly Loeffler (@KLoeffler) [April 2, 2021](https://twitter.com/KLoeffler/status/1378085880687169539?ref_src=twsrc%5Etfw)
-
-
-
-声明文字整理：
-
-GREATER GEORGIA ISSUES STATEMENT REGARDING MLB’SALL-STAR GAME DECISION
-
-ATLANTA- In response to the MLBS decision to relocate the All-star Game and MLB Draft from Atlanta, Greater Georgia Chairwoman Kelly Loeffler released the following statement:
-
-It’s extremely unfortunate that the MLB has fallen into the woke misinformation campaign being spread by Democrats-only to the detriment of hardworking Georgians and small businesses. At a time when the MLB had the opportunity to honor an iconic trailblazer in Hank Aaron, they instead opted to honor politics, “Kelly Loeffler said.
-
-“Greater Georgia will continue to stand with the vast majority of Georgians who support the Election Integrity Act that expands access and strengthens the integrity of our elections.”
+0401C004c
 
 0

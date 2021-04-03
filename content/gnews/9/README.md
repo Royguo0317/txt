@@ -1,42 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中国联邦是海外华人的安全和利益的捍卫者
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1048088/)
+## 关于中共病毒和疫苗现状的思考
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1048176/)
 
-概要：在2021年3月18日的盖特视频中，郭文贵先生在评价美国最近发生的亚裔被袭击事件时说，中共不惜出卖中国人的生命，甚至乐见海外华人被屠杀，以换取共产党和美国谈判的外交筹码。只有新中国联邦能够真正保护中国人的安全和利益。
+**MyWay**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/tou.jpg)
+中共病毒才2019年底爆发导致全球大流行，到现状仍没有得到有效控制，关于病毒来源的真相，由于中共国的蓝金黄策略，全世界仍然没有统一认识，但随着新中国联邦战友的不懈努力和闫丽梦博士团队第三篇病毒来源报告的发布，一切真相就会在短时间内大白于天下，在此期间，各国政府和卫生部门以及制药企业不是大力研发能有效预防和治疗中共病毒的药物，反而将所有精力都用于大封锁和根本不成熟的中共病毒疫苗的推进，这背后的阴谋也将随着病毒真相的查明而显露在世人面前。在此本文仅对病毒和疫苗的现状进行浅析，以达到抛砖引玉的目的。
+![Dramatic development …… LI - MENG YAN is escape | This has n… | Flickr]()![Dramatic development …… LI - MENG YAN is escape | This has n… | Flickr](https://live.staticflickr.com/65535/50166068123_d2f439cc15_b.jpg)
+首先，关于病毒的本质，从路德访谈节目在2020年1月19日爆料以来，关于中共病毒的中共军方拥有、功能增强、大爆发、人传人和强变异五大特征得到的全世界科学界的认可和验证，由于病毒的功能增强，未经过动物中间宿主就直接感染人类，在一年多的的和人类共生情况下病毒毒性仍然没有下降，而且某些变异毒株还会毒性增强传染性增加。作为一款超限生物武器，其目的不是为了造成大规模死亡，而是保持持续防范的传染性以重创经济和人类的正常生活。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/winepressnews.com_-1.jpg)
+其次，关于疫苗的安全性和有效性在全世界范围也被广泛质疑，目前全世界使用的疫苗都没有经过大规模动物实验而直接进入人体临床，在几个月的时间内就完成了I-III期临产实验，在实验的安全性和有效性都没有得到认证的前提下就开始全球大规模接种。以美国为例，目前政府推广的疫苗都仅属于FDA紧急授权，而并不是由FDA批准授权。从近几个月的统计来，[美国接种中共病毒疫苗后每周大约有200多例死亡](http://1.	https://humansarefree.com/2021/03/cdc-adds-another-200-recorded-deaths-this-week-following-covid-experimental-vaccines-brining-the-total-to-1739-dead.html)，从VAERS发布的数据来看，受到其它副作用以及的永久和长期损害的患者更是死亡率的数倍。从近几个月对大规模接种的区域数据统计，其传染率和未接种区域没有明显区别，说明[疫苗的有效性并没有得到验证](http://2.	https://www.ctvnews.ca/health/coronavirus/covid-19-vaccines-block-disease-but-do-they-stop-infection-1.5323867)。而各国卫生部门也对实际接种疫苗造成死亡和人体损害的数据讳莫如深。
 
+再者，从资本运作的角度来看，目前所有发声这一切都只有利于药企的利润。在病毒爆发一开始，硫酸羟氯喹等药物就已经经过临床验证，对预防和早期治疗都有非常号的效果，但由于过了专利保护期，对于药厂而言没有利润可言，各国政府都以各种手段对羟氯喹的使用进行层层限制，对羟氯喹的管制比对海洛因还要严格。此外，即使药企能够开发出新的临床治疗药物，也只能对1%的重症患者使用，药品也可能普及并大面积使用。但疫苗则完全不同，疫苗经过政府强制后会基本上所有人群都要接种，而且随着变种毒株的出现，可能每隔几个月就需要对新变种病毒进行循环接种，资本回报率要比药物研发好的多。更为可笑的是，由于此次疫苗仅仅是紧急授权使用，并没有通过药监机构的认证，所以药企和保险公司都可以对疫苗造成的人体损害和死亡不做任何赔偿，只有某几个国家的政府会象征性对受害者进行补偿。但由于政府掩盖真实数据，并通过媒体平台大肆宣传，人们对疫苗仍然趋之若鹜，等数年后发现病毒对人体造成了永久损害，例如神经系统损伤、生殖系统遭到破坏以及冠状病毒的ADE效应等等，一切都已经悔之晚矣，自己种的苦果只能自己吞下。人们永远要记住的是，政府和药企永远考虑的只有利益和回报，没有人会把人民的健康考虑在内。
+![]()![](https://cdn.discordapp.com/attachments/712485685336211527/826956444955836416/20210331_182058.jpg)
+政府之所以能够推进疫苗，主要是对疫情期间病毒数据的造假，并且不积极控制病毒的传播，最开始“病毒之父”福齐博士还建议人们不要戴口罩保持社交距离，连川普总统关闭中国航班都进行反对，正式由于政府的不作为或有意为之才加剧了病毒的大流行。
 
+另外，通过[历年各国死亡人数统计的数据](http://3.	https://www.who.int/data/gho/data/themes/mortality-and-global-health-estimates)，2020年全球人口死亡数量并未高于往年，说明此次中国病毒造成的人口死亡远低于一百年前的西班牙大流感。 在病毒传播早期，由于病毒毒性非常高，造成了大量的感染人口死亡，但随着病毒和人体环境的适应，病毒毒性趋于稳定，致死率也大为下降。但理疗机构为了获得政府财政拨款，都会虚报病毒感染的死亡人数，把各种死因都归于病毒感染。目前对于60岁以下健康人群，大部分症状非常轻微，[即使重症入院经过治疗也能康复出院](http://4.	https://www.cdc.gov/nchs/nvss/vsrr/covid_weekly/index.htm#SexAndAge)。
 
-**新中国联邦是海外华人的安全和利益的捍卫者**
+所有上述这一切的发声，归根到底是政治因素。目前政府和其所控制的媒体所作的就是夸大疫情的严重性，但同时掩盖由于疫苗注射所带来的负面作用，这一次都是为了保持人们对病毒的恐惧，以推行疫苗护照和后续的人体芯片，做大重启做准备，并借机侵害民众的权利。目前政府主要还是通过大封锁，限制人的社交和商务自由作为主要手段，但以瑞典为例， 从以前刚开始瑞典就没有进行封锁，一切按照正常生活，但感染率和死亡率并没有高于其他周边国家，这也充分说明了政府进行的[封锁对延缓疫情并没有实际作用](http://5.	https://www.medpagetoday.com/infectiousdisease/covid19/87812)。众所周知要控制一个人最好的办法就是让他恐惧，这也是政府的反复封锁经济唯一的目，商鞅的驭民五术和当今这些国家的所为可以说是异曲同工。
 
-**Only New Federal State of China Truly Protects Oversea Chinese**
-
-还有，现在就是美国搞了几个所谓的杀了亚洲人[的事件]，包括亚洲人被排挤的。这事情，到最后的时候，你记住，越斗越能保护亚洲人。有一波说的，就有一波反的。这个中间就是咱新中国联邦：“哎，别打啦。”是吧？咱们才能保护我们真正的同胞。
-
-Also, there have been several incidents of Asians being murdered in the U.S., also incidents of anti-Asian racism. Remember, at the end of the day, the more of these incidents there are, the better protection Asians will get. If some people try to stir up these sentiments for political reasons, there will always be someone else to talk against them.  What stands on the middle ground is our New Federal State of China (NFSC). We can say, “Hey, stop fighting.” Right? Only by this can we protect our true fellow compatriots.
-
-我们是没有利益的，没有任何诉求的。就一个目的，保护海外同胞的安全和利益，和维护海外华人和所有中国人的尊严和形象。保重我们所有华人的孩子和家人，在海外不能受到歧视，更不能受到安全的威胁。
-
-We have no hidden agenda, but one and only purpose, and that is to protect the safety and interests of our overseas compatriots, to maintain the dignity and image of all Chinese, and to ensure that the children and families of all our Chinese overseas are not discriminated against and are protected from any threats to their personal safety.
-
-这帮孙子现在正在出卖中国人。他[们]恨不得美国现在能杀上几万中国人，才能让他在外交上有讲数的权力。你去问问王毅、杨洁篪，你去问问中南坑，说现在如果美国发动大[规模的]民族种族歧视，像印尼排华事件[这样的]。他[们]一定会说：“[这是]上天给的礼物，跟美国可以讲数。最好你杀十万！”这就是共产党。这就是海外华人所有的所谓“社交媒体”的悲哀。没有人敢说实话，没有任何人敢真正的保护中国人。只有我新中国联邦，我们的新中国联邦是真正的中国人的安全、利益，绝对的捍卫者，信不信？
-
-These bastards now are selling out the Chinese people. They [the CCP] can’t wait for the U.S. to kill tens of thousands of Chinese so that they can have some leverage to bargain through diplomacy. Go ask Wang Yi, Yang Jiechi and those in the ZhongNan Pit what they think if racial discrimination against Chinese people happens in the U.S. at a massive scale, just like the discrimination against people of Chinese descent in Indonesia [during the Sukarno regime in 1958]. They will definitely say, “This is a gift from God, and then we can have something to bargain with the U.S. You’d better kill one hundred thousand Chinese!” This is the CCP. The sad reality of the so-called social media of the overseas Chinese is that nobody dares to speak the truth, and nobody dares to truly protect the Chinese people. Only our NFSC dares to do so and is the true guardian defending safety and interests of the Chinese people, believe it or not.
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/6053fdc8527b920e2d83e040](https://gtv.org/getter/6053fdc8527b920e2d83e040) (7:45-9:23)
-鸣谢：
-[1] 感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/988987/](https://www.gnews.org/zh-hans/988987/)
-[2] 感谢 YY 和 Liberte 提供英文翻译于 [https://gnews.org/1005162/](https://gnews.org/1005162/)
+中共的战略有着深远的布局，对由于郭文贵先生爆料革命的横空出世，运行多年的蓝金黄计划、3F搞弱美国计划、双龙计划、13579计划、建筑艺术项目、灭白计划和辛普森计划等，一一得到验证并展现在了世人面前，当一切丑恶行径无所遁形，中共想通过其浸淫多年的邪恶计划控制全世界的目的破产之后，迎接他们的只有最终的审判。那些现状还和中共沆瀣一气，为了攫取自身和家族利益不择手段的政客和各界人士，再不及早醒来只能和中共一起走向灭亡。
 
 * * *
 
-整理校对 & 新闻撰写：【guocamole(文金欠)】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+*编辑、发稿 文锦*
 
-+1
+0
