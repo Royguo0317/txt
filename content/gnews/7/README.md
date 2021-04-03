@@ -1,47 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 拜登支持乌克兰和俄罗斯对抗大有玄机
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1048139/)
+## 新中国联邦是海外华人的安全和利益的捍卫者
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1048088/)
 
-**丁过**
-![Ukraine accuses Russia of 'muscle-flexing' as tensions rise | Border  Disputes News | Al Jazeera]()![Ukraine accuses Russia of 'muscle-flexing' as tensions rise | Border  Disputes News | Al Jazeera](https://www.aljazeera.com/wp-content/uploads/2015/06/f7407b5c20024a52b616600625283def_18.jpeg?w=770&amp;resize=770%2C433)
-即将出任美国印太司令的阿奎利诺将军于**3**月**23**日的国会听证会上称，中共将“收复”台湾视为首要任务**，**否则中共的复兴就濒临危险。此前美国海军陆战队调整战略，首次把俄罗斯的威胁降级至与伊朗、朝鲜及极端组织并列，而把中国当成了头号威胁。美国国防部长奥斯汀、现任印太司令截维森等都明确指示美国的最大威胁来自中(共)国。
+概要：在2021年3月18日的盖特视频中，郭文贵先生在评价美国最近发生的亚裔被袭击事件时说，中共不惜出卖中国人的生命，甚至乐见海外华人被屠杀，以换取共产党和美国谈判的外交筹码。只有新中国联邦能够真正保护中国人的安全和利益。
 
-但是作为美国三军统帅的美国总统乔·拜登至今一直认为美国的最大威胁来自俄罗斯。请注意，拜登和五角大楼及各军种负责人可不是节目嘉宾，双方的辩论不会即时产生实际影响。**3**月**16**日拜登突然攻击普京，称要普京为干预美国大选付出代价，并攻击普京为“杀手”，“没有灵魂的人”。可以说拜登完全凭一己之力激怒了俄罗斯，起码在客观上为中共创造了中俄联手的外部环境。
 
-最近，乌克兰为了夺回被俄罗斯侵占的克里米亚，平定乌克兰东部由俄罗斯支持的亲俄反叛武装，在乌俄边境部署了大量坦克和部队，俄罗斯也大批屯兵与乌军对峙，战事有一触即发之势。俄罗斯外长拉夫罗夫**4**月**1**日宣称**:**在乌克兰东部挑起任何军事冲突的企图最终都可能摧毁乌克兰。用大白话来说，就是对乌克兰发出了灭国的威胁。作为回应，**4**月**2**日乌克兰总统泽伦斯基和拜登通话，拜登称美国“坚定支持”乌克兰对俄罗斯的军事对峙。此前白宫曾发表声明**:“**面对俄罗斯对顿巴斯和克里米亚的持续侵略，拜登总统申明，美国坚定不移地支持乌克兰的主权和领土完整”。
 
-这里稍微探讨一下，乌克兰要夺回顿巴斯和克里米亚有胜算吗？**2014**年**2**月**27**日，俄罗斯趁乌克兰内乱之际，出兵控制了乌克兰领土克里米亚。在普京的授意下，[克里米亚自治共和国](https://zh.m.wikipedia.org/wiki/%E5%85%8B%E9%87%8C%E7%B1%B3%E4%BA%9A%E8%87%AA%E6%B2%BB%E5%85%B1%E5%92%8C%E5%9B%BD)政府于2014年3月16日发起公投，投票结果显示绝大多数（约97%）选民赞成脱乌入俄，3月17日克里米亚议会认可了这项公民投票结果**(**维基**)**，随后俄罗斯把克里米亚纳入了自己的版图。如果乌俄爆发战争，预计乌克兰很难得到克里米亚人民的民意支持。
+**新中国联邦是海外华人的安全和利益的捍卫者**
 
-美国及其北约盟友不太可能出兵参战，由于俄罗斯是武器出口大国，拥有威力仅次于核武器“地狱火”空气炸弹这样的大规模杀伤性武器，单从常规军事实力而言乌克兰毫无胜算；由于**CCP**病毒肆虐及台海局势的动荡，当前内忧外患的美国及其北约盟友不太可能直接参战，因为打仗太烧钱了，因此对乌克兰的支持将相当有限，可以限于部分武器的支援和加大对俄制裁。另外，俄罗斯地域广阔，有足够的战略纵深，人口分布相对分散，在应对核战争时有巨大优势，这也是对西方进行核威慑的一个重要枸成因素。
+**Only New Federal State of China Truly Protects Oversea Chinese**
 
-据悉，美国当前对乌克兰每年**5**亿美元的援助都难以保证。乌克兰约有一半的国民支持加入俄罗斯**(**东部接壤俄罗斯部分**)**，一旦战争爆发，这些亲俄地区可能步克里米亚后尘加速投入俄罗斯怀抱。也就是说，乌克兰潜在的战争风险大大高于战争可能带来的潜在利益；对于俄罗斯而言，即使战争陷入持久战，严重消耗俄罗斯的财政和国力，但俄罗斯可能将釆用吞并克里米亚的方式侵占更多乌克兰领土。
+还有，现在就是美国搞了几个所谓的杀了亚洲人[的事件]，包括亚洲人被排挤的。这事情，到最后的时候，你记住，越斗越能保护亚洲人。有一波说的，就有一波反的。这个中间就是咱新中国联邦：“哎，别打啦。”是吧？咱们才能保护我们真正的同胞。
 
-更为可怕的是，俄罗斯为了应对西方的经济制裁和军事对抗，极有可能和中共结盟，寻求中共在财政和经济上的支持及军事上的联手。这是中共梦寐以求的，中共于**2014**年支持俄罗斯吞并克里米亚，是因为希望和俄罗斯结盟以图共同统治欧亚大陆，进而取代美国的世界霸主地位。由于普京对中共的狂妄和邪恶有清醒的认识，中共的图谋并未得逞。
+Also, there have been several incidents of Asians being murdered in the U.S., also incidents of anti-Asian racism. Remember, at the end of the day, the more of these incidents there are, the better protection Asians will get. If some people try to stir up these sentiments for political reasons, there will always be someone else to talk against them.  What stands on the middle ground is our New Federal State of China (NFSC). We can say, “Hey, stop fighting.” Right? Only by this can we protect our true fellow compatriots.
 
-欧盟对美国将战略重心放在印太颇为担心，因为欧盟需要面对来自俄罗斯更大的防务压力。但印太才是美国的根本利益所在，试设想一下，如果中俄结盟，中共将肆无忌惮地进攻第一岛链上的中心点台湾，台湾一旦沦陷，美国围堵中共的印太战略将土崩瓦解，美国将失去日韩等印太盟友，不得不后撒到中共大量中程导弹覆盖范围之外的太平洋深处，孤独地和中共的海军对抗。台大名誉教授明居正曾经指出，台湾沦陷，等于世界霸权易主。因此，拜登对中共绥靖，却决绝地和俄罗斯为敌确实令人费解。
+我们是没有利益的，没有任何诉求的。就一个目的，保护海外同胞的安全和利益，和维护海外华人和所有中国人的尊严和形象。保重我们所有华人的孩子和家人，在海外不能受到歧视，更不能受到安全的威胁。
 
-众所周知，国际话语权是由军事实力来支撑的。当前中共和俄罗斯、伊朗的油气贸易已经弃用美元，一旦中俄联手，对美元霸权将形成巨大冲击，因为被中俄控制的中东、非洲产油国和进口国将相继弃用美元。比如产油大国沙特已明显倒向中共，最近沙特王子即沙特阿美的**CEO**跑到北京开会，并表态要保证中**(**共**)**国**50**年的能源安全。
+We have no hidden agenda, but one and only purpose, and that is to protect the safety and interests of our overseas compatriots, to maintain the dignity and image of all Chinese, and to ensure that the children and families of all our Chinese overseas are not discriminated against and are protected from any threats to their personal safety.
 
-简单的说，油气是全球经济的血液，美元霸权主要是通过石油美元来实现的，很多国家持有美元是为了用于油气交易。中俄阵营国家弃用的美元无疑将冲击外汇金融市场和回流美国，势必造成美元的拋售和贬值。班农先生曾经非常有预见性地指出**:**当美元大量回流美国时，美国的通胀将失控，美国将快速沦落为阿根廷这样的国家。
+这帮孙子现在正在出卖中国人。他[们]恨不得美国现在能杀上几万中国人，才能让他在外交上有讲数的权力。你去问问王毅、杨洁篪，你去问问中南坑，说现在如果美国发动大[规模的]民族种族歧视，像印尼排华事件[这样的]。他[们]一定会说：“[这是]上天给的礼物，跟美国可以讲数。最好你杀十万！”这就是共产党。这就是海外华人所有的所谓“社交媒体”的悲哀。没有人敢说实话，没有任何人敢真正的保护中国人。只有我新中国联邦，我们的新中国联邦是真正的中国人的安全、利益，绝对的捍卫者，信不信？
 
-中共刚刚在伊朗签订**4000**亿美元大单，就是要扶植伊朗在中东称霸，并挤压中东的石油美元；中共近来为了推动人民币国际化动作频频，于**3**月**25**日提出了一套“央行数字货币的全球规则”，罗列了从全球如何使用数字货币到监控和信息共享等高度敏感问题。中共央行研究局局长王欣在**4**月**1**日表示，人行已与香港、泰国和阿联酋的货币当局启动了多边数字货币研究试点计划。试点针对研究使用分布式分类账技术在货币对跨境交易中所谓的支付与支付（PvP）结算**——**中共对美元霸权的挑战已付诸实施。
+These bastards now are selling out the Chinese people. They [the CCP] can’t wait for the U.S. to kill tens of thousands of Chinese so that they can have some leverage to bargain through diplomacy. Go ask Wang Yi, Yang Jiechi and those in the ZhongNan Pit what they think if racial discrimination against Chinese people happens in the U.S. at a massive scale, just like the discrimination against people of Chinese descent in Indonesia [during the Sukarno regime in 1958]. They will definitely say, “This is a gift from God, and then we can have something to bargain with the U.S. You’d better kill one hundred thousand Chinese!” This is the CCP. The sad reality of the so-called social media of the overseas Chinese is that nobody dares to speak the truth, and nobody dares to truly protect the Chinese people. Only our NFSC dares to do so and is the true guardian defending safety and interests of the Chinese people, believe it or not.
 
-回顾川普政府的政策可以看到其清晰的战略意图**:**川普政府希望联俄抗中**(**被民主党以通俄门耽误了**)**，在中东扶持以色列和沙特，创造中东和平环境，把伊朗死死按住，把中共的势力逐出中东，把印度请进“亚洲北约”以控制中共在印度洋的石油航线，目的除了围堵中共的军事扩张，保护美元霸权和打击人民币国际化的战略意图也非常明显。
-
-拜登对俄罗斯的敌对，使印度左右为难，印度由于使用**60%**的俄制武器，一定程度上只能被动跟随俄罗斯，从而削弱了“亚洲北约”的力量。拜登继承奥巴马的中东政策，激活了伊朗，使沙特倒向中共，中共得以在中东重新呼风唤雨。今天的以色列和奥巴马时期的以色列一样都被搞得灰头土脸，当年的以色列曾一度动了和美国断交的心思。
-
-所幸的是，全世界正义力量对**CCP**病毒溯源，对中共发动超限生物战的定性和追责正在快速推进，当大多数国家都认定中共放毒时，很难想象俄罗斯和那些唯利是图丧失底线的国家还能够和中共狼狈为奸，因此，中共离被剿灭仅一步之遥。
-
-*新闻来源：*
-
-[Any attempt to start a new war in Donbass could destroy Ukraine: Russia](https://www.hindustantimes.com/world-news/any-attempt-to-start-a-new-war-in-donbass-could-destroy-ukraine-russia-101617280522247.html)
-
-[Biden offers Ukraine ‘unwavering support’ in faceoff with Russia](https://www.reuters.com/article/us-usa-ukraine-biden-idUSKBN2BP14C)
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/6053fdc8527b920e2d83e040](https://gtv.org/getter/6053fdc8527b920e2d83e040) (7:45-9:23)
+鸣谢：
+[1] 感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/988987/](https://www.gnews.org/zh-hans/988987/)
+[2] 感谢 YY 和 Liberte 提供英文翻译于 [https://gnews.org/1005162/](https://gnews.org/1005162/)
 
 * * *
 
-*发稿 文锦*
+整理校对 & 新闻撰写：【guocamole(文金欠)】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-0
++1
