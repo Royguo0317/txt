@@ -1,65 +1,131 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 由于缺乏透明度，人们普遍批评世卫组织同意了中国的要求
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1046279/)
+## 2021/04/03 英喜时事速递
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1046282/)
 
-@60分钟节目主持人：
+收集：Filon，Daniel，感言
+*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
 
-The lack of transparency has let to widespread criticism of the WHO for agreeing to China’s demands
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/1-21-2.jpeg)
 
-由于缺乏透明度，人们普遍批评世卫组织同意了中国的要求
+## Gnews：[伊朗与中共国的巨额交易包括军事情报共享](https://gnews.org/zh-hans/1042779/)
 
-麦特.博明（Matt Pottinger）:
-
-The one thing that I wish the who has done is to pick up their megaphone
-
-我希望世卫组织做的一件事是拿起他们的扩音器，
-
-and start screaming through it to demand that China be more transparent, that it open its border
-
-开始通过扩音器大声疾呼，要求中国更加透明，开放边境，
-
-to allow American CDC officials and other experts from the WHO and around the world to come investigate and to help
-
-允许美国疾控中心官员和来自世卫组织及世界各地的其他专家前来调查和帮助
-
-@60分钟节目主持人：
-
-After 15 months and more than 2.7 million deaths worldwide,
-
-在经历了15个月和全球270多万人死亡之后，
-
-it was hoped the team would provide some clarity on the origin of Covid-19.
-
-人们希望这个团队能为中共病毒的起源提供一些清晰的信息
-
-But the exercise ends with even more questions than it began with.
-
-但调查活动结束时出现了比开始时更多的问题
-
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
-
-原视频链接：
+![]()![](https://spark.adobe.com/page/a0JFhkuvrM5RM/images/e2034e0f-4379-4968-8905-0734c1b15ad2.jpg?asset_id=49397dd5-e323-40df-b67c-09b4a1364ab9&amp;img_etag=%22c3117fe91c2431705adf7614f8607e19%22&amp;size=1024)
 
 
-
-> A lack of transparency on the part of China has led to criticism of the World Health Organization for agreeing to China’s demands during their joint team inquiry into the origins of the COVID-19 virus. [https://t.co/WLc8xIhm03](https://t.co/WLc8xIhm03) [pic.twitter.com/kUN8iE6uz3](https://t.co/kUN8iE6uz3)
-> — 60 Minutes (@60Minutes) [March 28, 2021](https://twitter.com/60Minutes/status/1376316231494549504?ref_src=twsrc%5Etfw)
+> 评论：国际社会对中共追讨越强劲，以前遮遮掩掩唱双簧的几个邪恶独裁国家抱团就会更紧密。但它们试图继续绑架本国民众来对抗正义联盟的诡计终将被击碎。
 
 
+## Gnews：[4月1日《](https://gnews.org/zh-hans/1042799/)[解雇福奇法案](https://gnews.org/zh-hans/1043333/)[》 由国会议员马乔里·泰勒·格林提交国会](https://gnews.org/zh-hans/1042799/)
 
-\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_\_
+![特朗普炮轰福奇是″灾难″ | 德国之声来自德国介绍德国| DW | 20.10.2020]()![特朗普炮轰福奇是″灾难″ | 德国之声来自德国介绍德国| DW | 20.10.2020](https://static.dw.com/image/54123059_303.jpg)
 
-英听校：康州盘古农场 – WZ
-翻译：康州盘古农场 – WZ
-翻译终校：康州盘古农场 -Freeearth
-字幕+视频制作：康州盘古农场-天涯行
-审片：康州盘古农场-银龙
-发文：康州盘古农场-文韵
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
 
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+> 评论：在这场CCP病毒期间，福奇用其在美国公共卫生领域的话语权肆无忌惮的配合中共，导致美国疫情出现如今灾难的局面。表明了科学领域只靠资历缺乏监督质疑的体系同样急需一场势如破竹的变革。
 
+
+## Gnews：[中共“灭白计划”之迟浩田系列十—— 祸害完中国再祸害世界](https://gnews.org/zh-hans/1042799/)
+
+![wenqiao a Twitter: &quot;灭白计划的杀手锏就是：虚拟货币打掉美元；病毒干掉白人。接下来的病毒一定是灭白开始，记住我今天的直播… &quot;](https://pbs.twimg.com/media/Eu9ByD9XYAQZPhL.jpg:large)
+
+
+> 评论：中共邪恶计划谋划已久，如果不是爆料革命文贵先生警醒世界，世界恐会遭遇更多的伤害。
+
+
+## 央视：赶紧倒掉“财富自由”这碗毒鸡汤
+
+![央视网点评“财富自由门槛”：直指要倒掉这碗毒鸡汤_数字]()![央视网点评“财富自由门槛”：直指要倒掉这碗毒鸡汤_数字](https://p0.itc.cn/q_70/images03/20210403/fed201f516204fdda00c4dcd0a3d2f45.jpeg)
+
+
+> 评论：中共为了防止资金流动来保住自己的钱袋子，可以说是不要脸的找出各种蹩脚的理由了，但是明事理的老百姓根本不吃这一套。
+
+
+## 参考消息 ： 外媒：美年度贸易报告妄称中国产能过剩阻碍他国发展
+
+![外媒：美年度贸易报告妄称中国产能过剩阻碍他国发展_手机新浪网]()![外媒：美年度贸易报告妄称中国产能过剩阻碍他国发展_手机新浪网](https://k.sinaimg.cn/n/news/transform/26/w550h276/20210402/255a-knaqvqp3481181.png/w700h350z1l10t10897.jpg)
+
+
+> 评论：美年度贸易报告让中共心虚和恐惧，因为中共已经真切的明白了自身和美国的全方位脱钩是不可逆的并且正在发生当中。
+
+
+## 环球网：快讯！外媒：缅甸军方要求关闭全国无线互联网
+
+![外媒：缅甸军方要求关闭全国无线互联网_国际_新闻_星岛环球网]()![外媒：缅甸军方要求关闭全国无线互联网_国际_新闻_星岛环球网](https://n.sinaimg.cn/news/transform/308/w550h558/20210402/ae14-knaqvqp3226689.png)
+
+
+> 评论：缅甸军方着这种做法背后具有非常浓厚的CCP风格，也许这是一场中共为将来墙内大规模断网后干坏事的一次海外预演。虽然世界上的正义力量正在逐渐觉醒和集结，但是由于各种原因动作依然迟缓，希望正义力量能在中共干出更多伤天害理之事以及造成更多地不可挽回损失之前尽早灭共。
+
+
+## 澎湃新闻：黄河禁渔期又来了，将来会全禁吗？鱼类现状如何？专家解析
+
+![黄河禁渔期又来了将来会全禁吗？鱼类现状如何？专家解析|农业农村部_新浪新闻]()![黄河禁渔期又来了将来会全禁吗？鱼类现状如何？专家解析|农业农村部_新浪新闻](https://n.sinaimg.cn/sinakd202142s/83/w530h353/20210402/3a81-knaqvqp2583529.jpg)
+
+
+> 评论：中共每次都是在发生一些严重的生态问题时才想着去解决，但事实上很多问题并没有正真解决，并经常干只许州官放火不许百姓点灯之事，就例如中南坑老帮菜的餐桌上经常可以出现一些被列为国家保护的濒危动物。而老百姓连捕捞点水产或者摆摆地摊去养家户口都要被各种刁难，有时还不得不跑到外海和别国抢渔业资源也间接制造了由中共引起各种争端，所以只有灭共才能让老百姓的生活慢慢恢复正常。
+
+
+## 新浪新闻：这是中国外交罕见的一幕！
+
+![这是中国外交罕见的一幕！|东盟|中国外交_新浪新闻]()![这是中国外交罕见的一幕！|东盟|中国外交_新浪新闻](https://n.sinaimg.cn/spider202142/251/w625h426/20210402/d9e8-knaqvqp2767207.jpg)
+
+
+> 评论：六个邻国外长接连访中国，确实是中共有心的安排。但这代表不了中国有多少朋友，背后可能代表着中国百姓的利益被CCP大量的给交易了出去。
+
+
+## 法广：中国制造业3月统计刚说亮眼，独立数据却指11个月来最低
+
+![中国制造业3月统计刚说亮眼独立数据却指11个月来最低](https://s.rfi.fr/media/display/3f3ce0ac-1690-11ea-9a63-005056a99247/w:1280/p:16x9/2016-03-28t040451z_841455770_gf10000359803_rtrmadp_3_cosco-results.webp)
+
+
+> 评论：中共的统计数据再次被打脸，不假不是共产党。
+
+
+## 法广：美国前国务卿蓬佩奥会晤台湾驻美代表萧美琴
+
+![新闻大家谈】连破中共禁区蓬佩奥会台驻美代表| 新唐人中文电视台在线]()![新闻大家谈】连破中共禁区蓬佩奥会台驻美代表| 新唐人中文电视台在线](https://www.ntdtv.com/assets/uploads/2021/04/986bbdb0c0e9477f7f0e73077386cc80.jpg)
+
+
+> 评论：美国前国务卿蓬佩奥与台湾驻美代表萧美琴首次当面会晤，依据照片背景研判，两人会面地点就在华盛顿哥伦比亚特区的古迹建筑双橡园（Twin Oaks），为中华民国政府国有财产。此时与萧美琴会晤，传递出美国对台海危机的强烈关注，并对现任拜登政府延续川普对台政策的强烈要求。
+
+
+## 法广：通识科变身：增国教、删「普世价值」「法治」民调指逾半市民反对删减
+
+![通识科变身：增国教、删「普世价值」「法治」民调指逾半市民反对删减](https://s.rfi.fr/media/display/f20d4ee6-1209-11ea-99d6-005056a99247/w:900/p:16x9/9%E6%9C%8811%E6%97%A5%E6%89%93%E6%89%8B%E5%8A%BF%E4%BB%A5%E7%A4%BA%E5%8F%8D%E5%9B%BD%E6%95%99.webp)
+
+
+> 评论：被建制派指是青年参与社运元凶的高中「通识教育科」，教育局决定改名为「公民与社会发展科」，但新科内容较原来方案更集中谈中国发展，重点学习「一国两制」优势，并删减环保和各国合作等国际议题，「普世价值」和「法治」亦失踪。中共恐惧真正的「普世价值」和「法治」，欲在香港推行其当高于法，高于普世价值的伪价值观。
+
+
+## 法广：澳美日印将参加法国军事演习
+
+![澳美日印将参加法国军事演习]()![澳美日印将参加法国军事演习](https://s.rfi.fr/media/display/e1e90c72-932b-11eb-8a67-005056bff430/w:1280/p:16x9/D7Vj57kXoAAGdWO.png)
+
+
+> 评论：日本学者认为，未来有可能发展成为创设抗衡中国的亚洲版北约(Otan)。也展现合作对抗中共加强扩大军事霸权的姿态。
+
+
+## 法广：凯迪的“猫眼看人”突遭关闭了
+
+![凯迪的“猫眼看人”突遭关闭了](https://s.rfi.fr/media/display/6b5a4d8a-92f6-11eb-95ac-005056a964fe/w:1280/p:16x9/mykr.webp)
+
+
+> 评论：中国网友感叹，当局对言论的管控日趋严厉，未来恐“莫谈国事，只谈风月”。
+
+
+## 法广：李宇轩案提堂疑被「官派律师」 家属未能接触斥如中国模式
+
+![李宇轩案提堂疑被「官派律师」 家属未能接触斥如中国模式](https://s.rfi.fr/media/display/35e182de-e894-11ea-942d-005056a964fe/w:900/p:16x9/unnamed-1400042419697.webp)
+
+
+> 评论：完全是中共模式，香港笼罩在中共的阴云之下。
+
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0
