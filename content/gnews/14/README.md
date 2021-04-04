@@ -1,42 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中国联邦是海外华人的安全和利益的捍卫者
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1048088/)
+## 【世事解评】美国证监会助纣为虐中共
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1048199/)
 
-概要：在2021年3月18日的盖特视频中，郭文贵先生在评价美国最近发生的亚裔被袭击事件时说，中共不惜出卖中国人的生命，甚至乐见海外华人被屠杀，以换取共产党和美国谈判的外交筹码。只有新中国联邦能够真正保护中国人的安全和利益。
+作者：纽约香草山金融部
 
 
 
-**新中国联邦是海外华人的安全和利益的捍卫者**
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-**Only New Federal State of China Truly Protects Oversea Chinese**
 
-还有，现在就是美国搞了几个所谓的杀了亚洲人[的事件]，包括亚洲人被排挤的。这事情，到最后的时候，你记住，越斗越能保护亚洲人。有一波说的，就有一波反的。这个中间就是咱新中国联邦：“哎，别打啦。”是吧？咱们才能保护我们真正的同胞。
 
-Also, there have been several incidents of Asians being murdered in the U.S., also incidents of anti-Asian racism. Remember, at the end of the day, the more of these incidents there are, the better protection Asians will get. If some people try to stir up these sentiments for political reasons, there will always be someone else to talk against them.  What stands on the middle ground is our New Federal State of China (NFSC). We can say, “Hey, stop fighting.” Right? Only by this can we protect our true fellow compatriots.
+**SEC****调查GTV****始末**
 
-我们是没有利益的，没有任何诉求的。就一个目的，保护海外同胞的安全和利益，和维护海外华人和所有中国人的尊严和形象。保重我们所有华人的孩子和家人，在海外不能受到歧视，更不能受到安全的威胁。
+2020年，GTV在美国注册并且成功上线。作为一家合法运行的互联网媒体公司，GTV不仅仅是普通的媒体平台，它更是为了反抗中国共产党（CCP）对中国人民的暴政与奴役统治，戳穿其虚假宣传和企图控制世界的野心而创建的。在几乎全世界的主流媒体都被中共收买的环境中，GTV是唯一一个为真相发声，传递中共国内部和世界真实新闻的平台。特别在COVID-19（CCP病毒）爆发之时，GTV是最早揭露病毒人传人，中国尤其是武汉百姓被病毒封城、死亡无数的真实情况，并一直揭露中共掩盖病毒真实来源的事实真相。当全世界的有良知的华人为了这最后一个可以发声的平台而义无反顾地投资的时候，却遭到了CCP举国之力的诽谤和破坏。与此同时，美国证监会（SEC）在收到虚假举报后开始调查GTV的投资——其不顾GTV的律师团队提交的上千页的真实证据，反而惧于中共的淫威，一再故意拖延调查过程，造成GTV不能进行正常的商业运作，给投资者造成了经济和人生的巨大伤害。
 
-We have no hidden agenda, but one and only purpose, and that is to protect the safety and interests of our overseas compatriots, to maintain the dignity and image of all Chinese, and to ensure that the children and families of all our Chinese overseas are not discriminated against and are protected from any threats to their personal safety.
+**中共的邪恶阴谋**
 
-这帮孙子现在正在出卖中国人。他[们]恨不得美国现在能杀上几万中国人，才能让他在外交上有讲数的权力。你去问问王毅、杨洁篪，你去问问中南坑，说现在如果美国发动大[规模的]民族种族歧视，像印尼排华事件[这样的]。他[们]一定会说：“[这是]上天给的礼物，跟美国可以讲数。最好你杀十万！”这就是共产党。这就是海外华人所有的所谓“社交媒体”的悲哀。没有人敢说实话，没有任何人敢真正的保护中国人。只有我新中国联邦，我们的新中国联邦是真正的中国人的安全、利益，绝对的捍卫者，信不信？
+GTV基于“为真不破”的原则，其所有投资过程都在GTV平台上公开发布——但这也给了中共一个巨大的破坏机会。他们派特务来伪装成GTV的投资者，骗取投资机会，并借此获得GTV内部私募的详细内容和一些在墙内投资者的真实身份信息。随后，中共的这些伪装特务很快在没有任何原因的情况下，恶意要求GTV退回其投资款项，并开始疯狂地泄露投资相关内容，同时，他们向SEC发起对GTV的虚假举报——诈骗。更有甚者，他们打着GTV投资的名义，在没有任何金融牌照的许可下，私下骗取意向投资人的资金。这些特务中不乏已经在美国取得合法身份的美国公民。在墙内，中共则开始对GTV真实的投资人开始迫害——在自己和家人受到生命威胁的情况下，在被枪顶住后脑勺的情况下，投资人不得不给SEC举报假案。
 
-These bastards now are selling out the Chinese people. They [the CCP] can’t wait for the U.S. to kill tens of thousands of Chinese so that they can have some leverage to bargain through diplomacy. Go ask Wang Yi, Yang Jiechi and those in the ZhongNan Pit what they think if racial discrimination against Chinese people happens in the U.S. at a massive scale, just like the discrimination against people of Chinese descent in Indonesia [during the Sukarno regime in 1958]. They will definitely say, “This is a gift from God, and then we can have something to bargain with the U.S. You’d better kill one hundred thousand Chinese!” This is the CCP. The sad reality of the so-called social media of the overseas Chinese is that nobody dares to speak the truth, and nobody dares to truly protect the Chinese people. Only our NFSC dares to do so and is the true guardian defending safety and interests of the Chinese people, believe it or not.
+**SEC****的无限期调查**
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/6053fdc8527b920e2d83e040](https://gtv.org/getter/6053fdc8527b920e2d83e040) (7:45-9:23)
-鸣谢：
-[1] 感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/988987/](https://www.gnews.org/zh-hans/988987/)
-[2] 感谢 YY 和 Liberte 提供英文翻译于 [https://gnews.org/1005162/](https://gnews.org/1005162/)
+SEC作为美国独立的联邦政府机构，监管证券市场，其目的是为了保护大众投资人不因人为干预市场而受到伤害。在其收到任何投资涉嫌违规的举报后，理应立案调查。但是，SEC对于GTV的调查却并非按照常规，而是采取了超长时间的特殊 “照顾”。GTV团队在收到调查通知的第一天起，就全面配合各种询问和证据的收集，律师团队也24小时工作，提供了上千页的文件——其中包括了真实投资者被中共逼迫的事实证据。作为敢和CCP对抗的真实媒体，GTV团队预见到中共的破坏和阻挠，对于私募投资人的资金分文未动，平台运作费用都由贷款来维持。而SEC对海量的事实、证据视而不见，片面地只采用虚假报案的信息。而今，在中共已经被定义为种族灭绝、独裁暴政的时事背景下，SEC继续不肯接受很多举报者被中共胁迫的事实，故意拖延调查已经８个多月，让调查结果遥遥无期。对于一个每天需要巨额资金运营的数据媒体平台来说，每一分钟的拖延都是巨大的损失。这不就是中共最想要的结果吗？为什么SEC不按照正常的调查程序来做呢？是惧怕还是被收买？中共的“蓝金黄”又一次显现了淫威！
 
-* * *
+**真正的歧视和伤害**
 
-整理校对 & 新闻撰写：【guocamole(文金欠)】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+在美国纽交所上市的中（共）国企业可以不遵守美国会计、审计的监管标准，堂而皇之地骗取世界资本（瑞信咖啡等等）——就因为有中共在背后和华尔街的勾兑，让他们钻法律的漏洞，逃脱监管。直到去年美国才出台《外国公司问责法》，打上这个漏洞，但SEC到现在还没有开始具体实施。如今，SEC不去监管这些中共控制的上市企业，却对提交上千页法律文件，一切都按照美国法律来做的GTV百般苛责，这难道不是双重标准吗？不是歧视吗？而更严重的是，很多在中共国的GTV投资者遭受严刑逼供，他们付出了血肉，甚至生命的代价。他们不仅仅是投资，他们更是为了捍卫真相、捍卫言论自由，捍卫正义而贡献了自己的一份力量。这难道不是号称民主、自由灯塔的美国所宣扬的价值观吗？而SEC作为美国的证监会，到底是在保护谁的利益呢？
 
-+1
+在这个被独裁者、大资本、大媒体、大政府垄断资源的世界里，不仅仅是中国，全世界的老百姓什么时候有过真正投资的机会？大家每天地为生活、为孩子、为了看不见的未来而奔波。殊不知，你的未来、你孩子的未来已经被这些官僚体制划地为牢了。
+
+今天我们在这里坚定地、勇敢地抗议SEC美国证监会对GTV的不公正调查。你们伤害了全世界GTV投资者的利益，必须给出一个公开、公正的回答！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
+
+0

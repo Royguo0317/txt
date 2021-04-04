@@ -1,53 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 继阿拉斯加会谈之后布林肯认为中共对美国人权记录的看法是正确的
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1048138/)
+## 美职业棒球全明星赛迁离亚特兰大
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1048252/)
 
-翻译：洛杉矶天使农场 -飞利浦
-校对：洛杉矶天使农场 – 雨山溪桥客
-审核：洛杉矶天使农场 – 黎明的光芒
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/Picture1.png)金庆勋（Kim Kyung-Hoon）/ 法新社通过盖蒂图片社
-在中共批评美国虐待黑人之后，美国国务卿布林肯星期二对记者说，美国必须面对境内侵犯人权的行为，包括“系统性的种族主义”。
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-本月初，在包括布林肯在内的拜登政府官员和他们的中共的对应方在阿拉斯加举行的首次亲自会晤中，中共就人权问题指责美国。
+编辑 水星  上传 银河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/下载-3-6.jpg)gnews
+正像文贵先生预计的那样，美国的宪政危机已经开始，正义与邪恶的较量正在博弈，初尝甜头、窃取2020大选的民主党，试图将窃取舞弊手段合法化，迫不及待地推出《为人民法案》，煽动大公司、左派联盟造势、响应。在拜登呼吁、美国职业棒球大联盟唯唯顺从、川普总统声援佐治亚州之后，佐治亚州也就美国职业棒球全明星赛的迁离发表声明，反映了正义力量的觉醒。
 
-中共政治局委员杨洁篪在向记者介绍3月18日的会议时，督促美国“在人权问题上做得更好……而不是推卸责任”，并指责美国虐待黑人。
+声明全文如下：
 
-布林肯周二的评论表明，他同意中共对美国人权记录的看法。
+大佐治亚州就MLB的全明星赛决定发表声明
 
-国务卿就美国国务院每年发布的国家人权报告接受记者的采访，指出：
+亚特兰大-针对大联盟将全明星赛和大联盟比赛从亚特兰大迁出的决定，大佐治亚州主席凯利·洛弗勒发表了以下声明：
 
-像往年一样，我们会听到一些国家（比如中共国）说我们无权批评他们，因为我们有自己的挑战需要应对。嗯，我们知道我们在国内还有工作要做，包括解决严重的不平等问题，包括系统性的种族主义。
+“极为不幸的是，美国职棒大联盟陷入了由民主党人散布的误导信息运动，只会损害勤劳的佐治亚州人和小企业的利益。当美国职棒大联盟有机会选择向标志性先驱汉克·亚伦致敬时，他们反而选择了向政治致敬。” 凯利·洛弗勒说。
 
-我们不会假装这些问题不存在，或者试图掩盖它们。我们不会忽视它们。我们会完全透明公开地处理这些问题。
+“大佐治亚州将继续与支持《选举廉正法》的绝大多数佐治亚州人站在一起，该法扩大了参选机会，加强了我们选举的公正性。”
 
-布林肯接着指出，美国的民主与中共这样独裁政体的区别在于美国有“公开”应对人权挑战的能力和意愿。
-
-国务卿补充说：“我们在国内面对挑战的方式将使我们在海外倡导人权方面具有更大的合法性。”
-
-多年来，中共一直对美国国务院提及中共的违法行为的年度人权报告做出轻蔑的回应。中共最近开始发布自己的美国人权评估年度报告，批评美国“种族歧视”。
-
-今年，美国和中国的人权报告涵盖了2020年的侵权行为。
-
-星期二，布林肯强调了在报告中提到的中共侵犯人权的行为，包括对它在新疆以穆斯林为主的维吾尔少数民族族群和香港持不同政见者的侵犯。
-
-布林肯说：
-
-我们今天发布的报告显示人权趋势线继续朝着错误的方向发展。我们看到证据表明，在世界各地，这种情况正在发生。我们从（中共）对新疆以穆斯林为主的维吾尔人和其他宗教少数民族犯下的种族灭绝罪行中看到了这一点。
-
-他还呼吁俄罗斯侵犯人权问题，包括对记者的攻击。
-
-当一名记者问及他计划如何反击来自中国和俄罗斯对美国新人权报告的“批评”时，布林肯回答说，美国“不反对”这两个国家，他补充说：
-
-比如，我们不是试图遏制或压制中国，我们要做的是维护基本原则、基本权利，以及一个以规则为基础的国际秩序，这个秩序可以非常好地为我们以及世界各国服务。
-
-他还说：“当任何国家以任何方式试图破坏那些权利或破坏那种秩序时，是的，我们将站出来，直言不讳。”
-
-原文作者：埃德温·摩拉（EDWIN MORA）
-发布时间：2021年4月1日
-原文链接：[https://www.breitbart.com/politics/2021/03/30/following-alaska-fiasco-blinken-suggests-china-right-on-u-s-human-rights-record/](https://www.breitbart.com/politics/2021/03/30/following-alaska-fiasco-blinken-suggests-china-right-on-u-s-human-rights-record/)
+声明链接：
 
 
+
+> The [@MLB](https://twitter.com/MLB?ref_src=twsrc%5Etfw) had the chance to honor an iconic trailblazer and [@Braves](https://twitter.com/Braves?ref_src=twsrc%5Etfw) legend Hank Aaron.
+> 
+> Instead, the bowed to the woke disinformation campaign of the Left—to the detriment of hardworking Georgians and small businesses.
+> 
+> Full statement below ⬇️ [pic.twitter.com/VBjzWEYkKZ](https://t.co/VBjzWEYkKZ)
+> — Kelly Loeffler (@KLoeffler) [April 2, 2021](https://twitter.com/KLoeffler/status/1378085880687169539?ref_src=twsrc%5Etfw)
+
+
+
+声明文字整理：
+
+GREATER GEORGIA ISSUES STATEMENT REGARDING MLB’SALL-STAR GAME DECISION
+
+ATLANTA- In response to the MLBS decision to relocate the All-star Game and MLB Draft from Atlanta, Greater Georgia Chairwoman Kelly Loeffler released the following statement:
+
+It’s extremely unfortunate that the MLB has fallen into the woke misinformation campaign being spread by Democrats-only to the detriment of hardworking Georgians and small businesses. At a time when the MLB had the opportunity to honor an iconic trailblazer in Hank Aaron, they instead opted to honor politics, “Kelly Loeffler said.
+
+“Greater Georgia will continue to stand with the vast majority of Georgians who support the Election Integrity Act that expands access and strengthens the integrity of our elections.”
 
 0

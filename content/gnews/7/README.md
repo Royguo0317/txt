@@ -1,46 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美职业棒球全明星赛迁离亚特兰大
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1048252/)
+## 【各抒己见】中共末日的表演
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1048376/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+作者：喜马拉雅东京樱花团 /小百合1212
 
-编辑 水星  上传 银河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/下载-3-6.jpg)gnews
-正像文贵先生预计的那样，美国的宪政危机已经开始，正义与邪恶的较量正在博弈，初尝甜头、窃取2020大选的民主党，试图将窃取舞弊手段合法化，迫不及待地推出《为人民法案》，煽动大公司、左派联盟造势、响应。在拜登呼吁、美国职业棒球大联盟唯唯顺从、川普总统声援佐治亚州之后，佐治亚州也就美国职业棒球全明星赛的迁离发表声明，反映了正义力量的觉醒。
+![](https://lh6.googleusercontent.com/mvWo3QxqKKQ8WJaSzxOhmUyKHtwrQkXrfJmXJEnmCRUSQOPKU21dbp94HsykSD1tBwrdmbRt6bUM_56dU0JPoH7Y8n3JOX-UIz3bySCBbk4XZLQGz-HIoO-erwOQ5eaYDkFKfxwl)
+[图片来源](https://www.dw.com/zh/%E6%8B%9C%E7%99%BB%E7%99%BB%E6%9C%BA%E6%97%B6%E8%BF%9E%E8%B7%8C%E4%B8%89%E6%AC%A1-%E9%83%BD%E6%98%AF%E9%A3%8E%E7%9A%84%E9%94%99/a-56939336)
 
-声明全文如下：
+近日中共杨娘娘谈判桌上飞扬跋扈式的表演，让中共粉红又一次沉浸在自我意淫幻觉之中。
 
-大佐治亚州就MLB的全明星赛决定发表声明
+这次谈判桌上双方的表演，虽然演技相当拙劣但依然收割不少观众的眼球，中共国各官方媒体大肆渲染这次高调的强硬反击。
 
-亚特兰大-针对大联盟将全明星赛和大联盟比赛从亚特兰大迁出的决定，大佐治亚州主席凯利·洛弗勒发表了以下声明：
+所谓“不吃这一套”一切都是说给中共国民众听的，“杨娘娘”几乎所有慷慨激昂的说辞甚至泡面都是为中共国民众准备的戏码。
 
-“极为不幸的是，美国职棒大联盟陷入了由民主党人散布的误导信息运动，只会损害勤劳的佐治亚州人和小企业的利益。当美国职棒大联盟有机会选择向标志性先驱汉克·亚伦致敬时，他们反而选择了向政治致敬。” 凯利·洛弗勒说。
+美方配角的演技也是可圈可点，让记者离开又换回记者，一时间主角配角的这一出双簧瞬间让世界看到剧情燃起来了，但是这一出戏始终还是一部三流的剧本，只会让矇昧的人们感觉好看。
 
-“大佐治亚州将继续与支持《选举廉正法》的绝大多数佐治亚州人站在一起，该法扩大了参选机会，加强了我们选举的公正性。”
+但这出戏让追随爆料革命的战友们倒胃口，病毒只字未提，美国因病毒失去生命、中国因病毒失去生命、全世界因病毒失去生命的人数都不在这次谈判桌上，似乎人类这次没有发生CCP病毒似的，世界都已经千疮百孔了，经济，旅游，贸易全球近乎停摆，人类被锁在家里，这一切的一切都因CCP病毒。
 
-声明链接：
+真相在哪里？到目前为止没有哪个国家元首敢于直面这个问题，如果没有爆料革命战友没有郭先生还在夜以继日的为全球吹哨！为整个人类呐喊！
 
+真的很难想象世界将会怎样？人类将会走向何方？
 
+拜登登机的一连三摔，茶余饭后的谈资之外是否预示着拜登未来执政未必平坦？中共下面又要怎样的表演？
 
-> The [@MLB](https://twitter.com/MLB?ref_src=twsrc%5Etfw) had the chance to honor an iconic trailblazer and [@Braves](https://twitter.com/Braves?ref_src=twsrc%5Etfw) legend Hank Aaron.
-> 
-> Instead, the bowed to the woke disinformation campaign of the Left—to the detriment of hardworking Georgians and small businesses.
-> 
-> Full statement below ⬇️ [pic.twitter.com/VBjzWEYkKZ](https://t.co/VBjzWEYkKZ)
-> — Kelly Loeffler (@KLoeffler) [April 2, 2021](https://twitter.com/KLoeffler/status/1378085880687169539?ref_src=twsrc%5Etfw)
+让子弹飞一会，我们拭目以待。
 
+*免责申明：本文只代表作者观点，与GNews网站无关。*
 
-
-声明文字整理：
-
-GREATER GEORGIA ISSUES STATEMENT REGARDING MLB’SALL-STAR GAME DECISION
-
-ATLANTA- In response to the MLBS decision to relocate the All-star Game and MLB Draft from Atlanta, Greater Georgia Chairwoman Kelly Loeffler released the following statement:
-
-It’s extremely unfortunate that the MLB has fallen into the woke misinformation campaign being spread by Democrats-only to the detriment of hardworking Georgians and small businesses. At a time when the MLB had the opportunity to honor an iconic trailblazer in Hank Aaron, they instead opted to honor politics, “Kelly Loeffler said.
-
-“Greater Georgia will continue to stand with the vast majority of Georgians who support the Election Integrity Act that expands access and strengthens the integrity of our elections.”
+*校对：喜马拉雅东京樱花团 /文小白*
+*责任编辑：喜马拉雅东京樱花团 /東洋武士*
+*发布：喜马拉雅东京樱花团 /煙火1095*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/二维码.jpg)
+0401C013c
 
 0
