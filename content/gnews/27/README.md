@@ -1,83 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【草根访谈】4月1日GTV直播新闻汇编及解读
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1048784/)
+## 中共利用霍尔木兹海峡&nbsp; 制造世界经济动荡&nbsp; 对付美国和西方
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1049492/)
 
-【日本东京方舟农场】 作者：宇宙之泾   新闻采编：墨博士   校对：miumiu law
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-6.jpeg)**GTV直播组与你相约一起宣传闫丽梦博士的三份史诗级揭露中共病毒的报告**
-**大陆军机绕飞**** ****台国防部称有应对底线与原则**
+简述：郭文贵先生在[2021年3月27的GTV直播](https://gtv.org/video/id=605f2b3fa54f827240b88147)中说：“共产党影响经济、市场、石油价格、黄金价格，想对付西方的其中之手段：炸掉油轮，堵掉霍尔木兹海峡，甚至在巴拿马运河给它开始做动作。”中共篡权70年来只想想干坏事、统治全世界、绑架全中国人民，制定无数诸如“13579计划”、“潘多拉盒子计划”、“辛普森夫人计划”、“南普陀计划”、“灭白计划”的邪恶计划。
 
-中国大陆解放军军机近日频繁在台湾空域活动，台湾军方今天表示，空军评估威胁状况有底线与原则，不会使军方后勤过度损耗。
 
-** **据台湾《自由时报》报道，根据台湾国防部昨天公布的即时军事动态，大陆歼-10、歼-16共八架战斗机，以及一架空警-500预警机和一架运-8反潜机自台湾西南空域进入台防空识别区。
 
-另外，日本防卫省统合幕僚监部昨晚发布消息称，大陆一架运-9预警机和一架运-9情报收集机从东海穿过冲绳本岛与宫古岛之间宫古海峡进入太平洋，往返飞行。日本航空自卫队战机紧急升空应对。台湾官员星期一（3月29日）表示，在中国飞机入侵台湾防空识别区时，将主要改用“飞弹追瞄”，避免落入对方的消耗战。
+**中共利用霍尔木兹海峡  制造世界经济动荡  对付美国和西方**
 
-**【评论】路透社说，有专家称中国此举是对美台就“设立海警工作组”签署备忘录表达不满。路透社说对了一半，中共除了针对备忘录发泄情绪，还有就是对入侵台湾武统的野心从未改变。**
+**CCP Uses the Strait of Hormuz as a Starting Point to Create a World Economic Turmoil**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/E2833837-4983-4843-8452-28AF56D65604.jpeg)
+记得七哥从2017年爆料，全世界有一个人到现在为止，敢说过霍尔木兹海峡将是世界经济危机动荡，共产党制造经济麻烦和能源供给，对付美国和西方、欧洲以及在中东布局的根本的一个开始手段。有必要的时候会炸掉一个船，甚至把船捅一个窟窿，或者堵死霍尔木兹海峡。包括当时的吉布提所有的所谓军事基地，包括马六甲海峡，包括霍尔木兹海峡共产党的一带一路，一带一路。
 
-**拜登政府将发布新准则取消台美交往限制鼓励外交官会晤台湾官员**
+Remember that I, your brother Miles, was the only one in this world who said since 2017 that the Strait of Hormuz would be used by the CCP as essentially a starting point to create a world economic turmoil, economic hardship and energy supply problems for the United States, the West, and Europe, as well as set up their layout in the Middle East. When necessary, it will blow up a ship, even pierce a hole in a ship, or block the Strait of Hormuz. Their plan also involves all the so-called military bases in Djibouti at that time, the Strait of Malacca, and the CCP’s Belt and Road Initiative.
 
-英国金融时报报导，美国拜登政府将发布准则，延续前总统特朗普取消美台交往限制的做法，鼓励美国外交官会见台湾官员；但新准则仍将设限，包括不在任何会面场合展示中华民国国旗，「凡是关乎主权的都不允许」。金融时报说，听取过拜登政府这项政策简报的人士透露，新准则将保留特朗普政府美台交往政策的许多部分，其重点是鼓励美国官员会见台湾对口官员，而不是为沟通设限。另一名人士说，美国与台湾外交官互动的大多数限制「将会消失」。
+所以说大家看到了它对的是什么？石油、黄金价格、整个的世界能源供给、控制。石油价格一定会影响黄金价格，你发现最近石油有什么变化？兄弟姐妹们？去年这个时间，也就是说去年4月份的时候黄金啥价格，兄弟姐妹们？石油什么价格，兄弟姐妹们？ 今天的黄金和石油什么价格大家算一算。
 
-美国驻日本的代理大使杨舟日前在他的推特上公布，当周稍早邀请了台湾驻日代表谢长廷到他的大使官邸交流。这是1979年台美断交以来美国官方首度邀请台湾驻日代表到官邸交流。（中国台湾网）
+Has everyone seen what their aim is? They aim at controlling the oil and gold prices and the world energy supply and price. The price of oil will certainly affect that of gold. Brothers and sisters, have you noticed the recent price change of oil? Brothers and sisters, what was the gold price at the same time last year, that is April last year? What was the oil price then, brothers and sisters? Look at today’s gold and oil prices and then do you math.
 
-**【评论】我们赞成美日对台更宽松的外交政策，但是这些远远不够，他们对中共邪魔的本质认识也是幼儿园水平。早日明确台湾的国际地位和国家主权，展示台湾青天白日国旗，才是打击中共张牙舞爪的有效手段。拜登政府只是延续了前任总统川普的一些正确方法，凸显懦弱的姿态。对付中共从战狼外交变为流氓外交，国际社会只有“以眼还眼，以牙还牙”才能扼止马列魔爪。**
+然后大家看到开头那个照片了，是我们一个叫文英的战友发给我的。她说：“七哥，不对劲儿。怎么这么大一油轮拿一推土机往那儿推这个船？”大家知道不过是百米的霍尔木兹海峡。大家再想想，埃及还有一个运河呢，巴拿马运河（注：可能指苏伊士运河，下文同）呢。 只有七哥在五年前告诉全人类——共产党影响经济、市场、石油价格、黄金价格，想对付西方的其中之手段：炸掉油轮，堵掉霍尔木兹海峡，甚至在巴拿马运河给它开始做动作。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/AC955DE8-ABF8-40AF-AA0B-9747749F0073.jpeg)
+Everyone saw the photo shown at the beginning of the broadcast, which was sent to me by a fellow fighter named Wenying. She said, “Brother Miles, something is wrong. How come such a big tanker was pushed by a bulldozer over there?” Everyone knows that the Strait of Hormuz is only hundreds of meters wide. Think about it, everyone, there is also a canal in Egypt, the Panama Canal (possibly referring to Suez Canal). Only your Brother Miles told all mankind five years ago that one of the methods used by the CCP to influence the economy, the market, the oil and gold prices to go against the West is: bombing tankers to block the Strait of Hormuz, and even starting to have some actions in the Panama Canal.
 
-**美国务院公布最新年度人权报告明文指出新疆发生种族灭绝**
+为什么七哥知道？七哥不是神，七哥是个最普通的人，[有]七情六欲。原因非常简单，共产党是一系列都有计划。就像有战友给我整理出来，过去这五年我爆了八个计划。 战友们，共产党专案组都是按照时间、地点，比如说，2015.1.10 就是吴征这个王八蛋给我打电话、威胁我、抓了我全部的同事、家人的时候，这个案名叫2015.1.10 就是“1.10专案组”，简称“15110专案组”。共产党做什么事都有计划，这是“13579计划”、“潘多拉盒子计划”，是吧，“辛普森夫人计划”。
 
-美国国务院星期二(3月30日)公布了2020年度的《各国人权报告》，详细说明了中国、俄罗斯等近200个国家的人权状况。这份年度人权报告首次明文指出，在新疆发生了种族灭绝和反人类罪。
+Why does Brother Miles know? I am not a god, I am just the most ordinary type of person who has both emotions and desires. The reason is very simple. The CCP has a series of plans. A fellow fighter sorted it out for me and found that I have exposed eight plans in the past five years. My fellow fighters, the CCP name their special task forces based on time and location. For example, when the bastard Bruno Wu called and threatened me and arrested all my colleagues and family members on January 10, 2015, the case was called “1/10/2015 Task Force”, or “15110 Task Force” for short. The CCP has plans for everything such as the “13579 Plan” and the “Pandora Box Plan”, and the “Mrs. Simpson Plan”, right?
 
-在报告的中国部分，美国国务院提到，中国当局让四名报道最初武汉疫情的公民记者失踪。偏离官方疫情叙事的中国学者遭到了骚扰和言论审查，在某些情况下受到校方和警方的干预。
+一个中共的国家一年365天大概得开一万多个重要的会，你想它有多少计划。而且共产党他最邪恶也是最厉害的地方，它这个共产党是一个政党，过去的70年就想干坏事、统治全世界、绑架全中国人民，然后让他自己过着天天做新郎夜夜入洞房的日子、让他们的子子孙孙，包括生殖器治国的所有的子孙万代遍及世界。然后“灭白计划”，它从来没停过。
 
-布林肯表示，“2020年太多人在残暴的情况下受苦，一些政府以新冠病毒危机为借口，限制(人民）权利并巩固极权统治”。布林肯并强调，拜登政府反对世界上一切违反人权行径，并不会顾及违反人权者是美国的敌手还是合作伙伴。（美国之音）
+The CCP probably has over 10,000 important meetings over the 365 days a year. So you can imagine how many plans it has. Moreover, the most evil and worst thing about the CCP is that, as a political party, the only thing it has done over the past 70 years is doing wicked things, dominating the world, holding all Chinese hostage, and then they themselves can live like a bridegroom every night and their descendants can rule the country generations after generations and spread their offsprings all over the world. Also their “White Extermination Plan” has never stopped.
 
-**【评论】世界上各国无辜又无知的老百姓正面临中共病毒与免疫护照的里外夹击，只有心怀公平正义有信仰的人，相信爆料革命支持爆料革命甚至加入爆料革命才是人类大劫难时代的光明大道。对于美国务院最近的表态，我们乐于见到继续沿用了前国务卿蓬佩奥对中共和新疆的准确定位：种族灭绝和反人类罪行。**
+因为七哥窥见了他们所谓的“南普陀计划”，还有“灭白计划”，这些所有的绝密，这才导致共产党对七哥的追杀。七哥这30年有准备，那不可能不惦记着。你床上旁边睡一个人，你早晚有一天你想着我有一天跟这个人可能要是敌人，你想想他一举一动，你都用另外的一种心情和眼光记录下来。你真正的把对方当成爱人的话很多事你都会不记得，不记得不是忘了你是因为他没有其它用心。七哥是别有用心地和共产党睡了30多年，这就记得它们。所以霍尔木兹海峡当大家看到的时候，战友们我真的不愿意给你们说太多，它啥时候决定要做，怎么做，媒体上怎么来讲，七哥百分之百掌握。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/A88EE366-5142-4623-A309-F82A16CC021F.jpeg)
+My knowledge of the “South Putuo Plan”, the “White Extermination Plan”, and the whole series of top-secret plans is the reason that I am being hunted by the CCP. Your Brother Miles has prepared for 30 years, so it is impossible for me not to pay attention [to what they do]. It’s like you sleep with a person knowing that one day you two will become enemies, so every move of this person in your eyes will be recorded carefully in your mind. If you truly regard the other person as your lover, you will not remember many details. If you do not remember many things, it is because you two have no second thought in your relationship. Your Brother Miles has “slept” with the CCP for more than 30 years with ulterior motives, so I remember those things. So my fellow fighters, I don’t really want to tell you guys too much about this, but when everyone saw [the CCP’s movement in] the Strait of Hormuz, I had already known when they decided to do it, how it would be done, and how the media would report it, 100% of them.
 
-**美国等****14****国发表联合声明**** ****对世卫新冠病毒溯源报告提出共同关切。白宫质疑世卫新冠病毒报告，要求第二阶段调查**
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=605f2b3fa54f827240b88147](https://gtv.org/video/id=605f2b3fa54f827240b88147) (42:22-46:44)
+鸣谢：感谢贝贝、万物归一、山川异域和喜联盟七哥直播组提供中文文本于 [https://gnews.org/zh-hans/1029546/](https://gnews.org/zh-hans/1029546/)
 
-美国和其它13个国家星期二(3月30日)发表声明，对世界卫生组织新公布的有关新冠病毒起源的报告提出了“共同的关切”。
+* * *
 
-在美国国务院以及其它签署国的网站上发表的这项声明说，必须要对有关病毒起源的国际专家研究被严重推迟而且缺乏获取完整和初始数据与样本的准入途径表达关切。
+字幕：【JennyL】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-除了美国政府之外，签署声明的还有澳大利亚、英国、加拿大、捷克共和国、丹麦、爱沙尼亚、以色列、日本、拉脱维亚、立陶宛、挪威、韩国和斯洛文尼亚13国政府。
-
-世卫组织总干事谭德塞(Tedros Adhanom Ghebreyesus)星期二说，还需要进一步研究和更多的数据来证实病毒是通过食物链或通过野生或农场动物传播到人类的。（SBS新闻）
-
-**【评论】3月31日闫丽梦博士针对中共病毒第三份报告的重磅推出，与WHO那份前后矛盾毫无科学依据的勾兑报告形成“针尖对麦芒”的独特效果。爆料革命因为有这样勇敢无畏精神的守护天使和众多专业博士感到骄傲和自豪，自信而认真地坚持做正确的事情不畏强权，把个人生死置之度外。爆料革命，新中国联邦正在拯救全人类。**
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/AC858078-C99C-414F-BB37-E9252FB7692D.jpeg)
-
-**欧盟与世卫发起倡议制定疫情大流行全球条约**
-
-由欧盟发起并与世卫组织合作倡议的疫情大流行全球条约周二发表，包括法国在内的25国领导人签署，但美、中、俄缺席，欧洲理事会主席米歇尔强调，推动成立疫情大流行全球条约将增强疫情透明度、问责制及国际的共同责任。
-
-这项呼吁得到包括法国总统马克龙、德国总理默克尔、英国首相约翰逊、、韩国总统文在寅等25国国家领导人以及欧盟、世卫等2位领导人共27人支持。文章表示，“新冠疫情利用了我们的弱点和分歧，因此，我们必须抓住机会，作为一个国际大家庭走到一起，让和平合作一直延续到疫情结束之后。”
-
-但美国、中国及俄罗斯并未加入连署。世卫总干事谭德塞就此表示，在一开始的呼吁阶段不需要所有国家都发声，但下个阶段所有194个会员国都可以加入讨论。（RFI）
-
-**【评论】这条新闻不由令人联想到中共习总加速师的“人类命运共同体”。马克龙，默克尔，约翰逊，文在寅等各国首脑，无一不是跟邪魔中国共产党滚床单的马列精神病毒患者。应验了一句话：魔鬼坐在朝堂之上。以疫谋霸是中共的核心策略，目的是统治全球；而适时推出带有强制性的免疫护照，大流行全球条约，就是为了对全世界人民进行家畜似的现代奴隶制有效的管理系统。**
-
-![]()![](https://gnews.org/wp-content/uploads/2021/03/30DAEB53-A642-4A0B-BF98-7ED2835E96EB.jpeg)
-
-**马克龙默克尔与普京举行线上会谈**** ****讨论疫苗合作**
-
-法国总统马克龙与德国总理默克尔周二同俄罗斯总统普京举行线上会谈，讨论在疫苗问题上的合作。
-
-法国总统府爱丽舍宫发布公告称，三位领导人讨论了在疫苗方面可能进行的合作，有关的合作将视欧洲药品局对俄罗斯卫星V疫苗的审查情况而进行。
-
-马克龙及默克尔并对俄罗斯反动派领袖纳瓦尔尼的命运表示关注，要求俄罗斯方面尊重在俄罗斯东部被囚禁的纳瓦尔尼的权利，并关注他的健康状况。
-
-法德领导人还希望俄罗斯承诺维持乌克兰停火。马克龙与默克尔还与普京就伊朗，白俄罗斯，利比亚与非洲的人道主义危机及叙利亚问题进行了讨论。（DW新闻）
-
-**【评论】油头滑脑的法国总统马克龙加上一个中了共产精神病毒浑身颤抖的默克尔，也不是普京十分之一的下饭菜。对于中共病毒肆虐全球的今天，摆在台面上这些无关紧要的议题，简直就是浪费时间，例如拜登政府最感兴趣的气候峰会。没有一个国家元首真正提出病毒从哪儿来？是不是共产党生化武器偷袭了我们？疫情发生到现在，谁掩盖了疫情？谁跟****WHO****勾结？谁最得利，谁最无耻？没有，一群懦夫和魔鬼的帮凶。作为一个人，对恶行沉默也是罪。**
-
-注：本文仅代表作者观点
-
-0
++3
