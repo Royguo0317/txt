@@ -1,155 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0402-3.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1047183/)
+## 闫丽梦博士第一份报告中关于动物传代实验是如何描述的
+` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1048268/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+![]()![](https://gnews-media-offload.s3.amazonaws.com/wp-content/uploads/2020/11/26113136/%E5%B0%81%E9%9D%A2-95.jpg)
+撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)插图：康州盘古农场 霹雳年
-## 追责病毒来源
+路德社在[4/3/2021路德时评（路博艾谈）：HBO王牌脱口秀主持人Bill Maher节目都开始谈论的话题太重磅了意味着什么？](https://www.youtube.com/watch?v=ert86J2HNU8) 访谈开始点出了[Dr. Lawrence \[email protected\]于上午1:03 · 2021年4月4日·Twitter Web App](https://twitter.com/LawrenceSellin)发布的推文——
 
-玛莎-布莱克本议员4月1日推文称：“@世卫组织 的最新报告表明了我在过去一年中所关切的问题。现在已有13个志同道合的国家加入我们的行列，表达了这些关切。世卫组织必须责成中国提供准确的数据和充分的信息，以便了解COVID-19的来源。”
+The [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) virus was likely pre-adapted for human infection by serial passage through “humanized” animal models To explore such capabilities, begin here [#COVID](https://twitter.com/hashtag/COVID?src=hashtag_click) [#Corona](https://twitter.com/hashtag/Corona?src=hashtag_click) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) [#DRASTIC](https://twitter.com/hashtag/DRASTIC?src=hashtag_click) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hashtag_click) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hashtag_click) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hashtag_click) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click)
 
 
 
-> The [@WHO](https://twitter.com/WHO?ref_src=twsrc%5Etfw)’s latest report demonstrates the concerns I’ve raised for the past year. 13 like-minded nations have now joined us in expressing these concerns. The WHO must hold China accountable for providing accurate data & full access in order to understand the origins of COVID-19.
-> — Sen. Marsha Blackburn (@MarshaBlackburn) [April 1, 2021](https://twitter.com/MarshaBlackburn/status/1377624882800951299?ref_src=twsrc%5Etfw)
+> The [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) virus was likely pre-adapted for human infection by serial passage through "humanized" animal models 
+> To explore such capabilities, begin here[#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#DRASTIC](https://twitter.com/hashtag/DRASTIC?src=hash&amp;ref_src=twsrc%5Etfw) [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/uhjk1AQDMu](https://t.co/uhjk1AQDMu)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 3, 2021](https://twitter.com/LawrenceSellin/status/1378392745170112513?ref_src=twsrc%5Etfw)
 
 
 
+这则推文列出两个中共超限生物战的专家——[邓宏魁](http://cellbiology.bjmu.edu.cn/xxgk/szjs/183230.htm)和[秦川](https://baike.baidu.com/item/%E7%A7%A6%E5%B7%9D/364675?fr=aladdin)
 
+那么Dr. Lawrence Sellin到底是什么人呢？这则推文又意味着什么呢？据路德社[4/3/2021路德时评（路博艾谈）：HBO王牌脱口秀主持人Bill Maher节目都开始谈论的话题太重磅了意味着什么？](https://www.youtube.com/watch?v=ert86J2HNU8)时间点[25：52](https://youtu.be/ert86J2HNU8?t=1552)
 
-## 关注香港和台湾
 
-瑞克-斯科特议员4月3日推文：“共产中国已经破坏了香港的民主，现在对我们的联盟、和平和民主的台湾虎视眈眈。是时候让我们的总统保卫台湾的民主、为保护台湾的自由和安全而采取行动了。”
 
+［Larence Sellin博士是美国前军情部门专家，他的推是零FOLLOW，从来不FOLLOW任何人，这个推就是纯粹传递信息的，他发的是什么东西？今天发的这个东西绝对重磅，他说COVID19病毒很可能是通过提前适应了让人类感染被一系列的“人性化”的动物模型通过连续传代感染，然后具备传染人的能力，从这里开始——超限生物武器/冠状病毒的来源。然后附上邓宏魁和秦川的照片，这个人绝对是军情部门的，他是生物武器专家，第一次提到动物传达，我们在119第一次提到动物传代，闫博士告诉大家通过动物传代打磨，然后她在第一份报告里头，闫博士的第一份报告里面就讲了一整页，第19页第五部分大家去看。］
 
+下面我们按图索骥看一下闫丽梦博士的报告原文（注：以下英文取自闫丽梦博士的报告原文，中文部分摘自GNEWS此前发布过的闫丽梦博士第一份报告译文）——
 
-> 🚨ICYMI: Communist China has destroyed democracy in Hong Kong & now has its sights set on our peaceful & democratic ally, Taiwan. It's time [@POTUS](https://twitter.com/POTUS?ref_src=twsrc%5Etfw) defends democracy in Taiwan & takes action to protect its freedom & security: [https://t.co/jufqvEemxW](https://t.co/jufqvEemxW)
-> — Rick Scott (@SenRickScott) [April 3, 2021](https://twitter.com/SenRickScott/status/1378398406998159360?ref_src=twsrc%5Etfw)
+Step 5: Optimize the virus for fitness and improve its hACE2-binding affinity in vivo (2.5-3 months) 步骤5：优化病毒的适应性，提⾼病毒在体内的hACE2结合亲和⼒（2.5-3个⽉）
 
+Virus recovered from step 4 needs to be further adapted undergoing the classic experiment – serial passage in laboratory animals101. This final step would validate the virus’ fitness and ensure its receptororiented adaptation toward its intended host, which, according to the analyses above, should be human. Importantly, the RBM and the furin-cleavage site, which were introduced into the Spike protein separately, would now be optimized together as one functional unit. Among various available animal models (e.g. mice, hamsters, ferrets, and monkeys) for coronaviruses, hACE2 transgenic mice (hACE2-mice) should be the most proper and convenient choice here. This animal model has been established during the study of SARS-CoV and has been available in the Jackson Laboratory for many years102-104.
 
+从步骤4中回收的病毒需要经过经典的实验—实验室动物的连续传代—进⾏进⼀步调整101。这最后⼀步将验证病毒的适应性，并确保其⾯向受体的适应性，以适应其预定的宿主，根据上述分析，宿主应该是⼈类。重要的是，RBM和弗林酶切位点，被分别引⼊到刺突蛋⽩中，现在将作为⼀个功能单元⼀起优化。在各种可⽤的冠状病毒动物模型（如⼩⿏、仓⿏、雪貂和猴⼦）中，hACE2转基因⼩⿏（hACE2-mice）应该是这⾥最合适、最⽅便的选择。这种动物模型在SARS-CoV的研究过程中已经建⽴起来了，并且在杰克逊实验室已经有多年的使⽤经验102-104。
 
+The procedure of serial passage is straightforward. Briefly, the selected viral strain from step 4, a precursor of SARS-CoV-2, would be intranasally inoculated into a group of anaesthetized hACE2-mice. Around 2-3 days post infection, the virus in lungs would usually amplify to a peak titer. The mice would then be sacrificed and the lungs homogenized. Usually, the mouse-lung supernatant, which carries the highest viral load, would be used to extract the candidate virus for the next round of passage. After approximately 10~15 rounds of passage, the hACE2-binding affinity, the infection efficiency, and the lethality of the viral strain would be sufficiently enhanced and the viral genome stabilized101. Finally, after a series of characterization experiments (e.g. viral kinetics assay, antibodies response assay, symptom observation and pathology examination), the final product, SARS-CoV-2, would be obtained, concluding the whole creation process. From this point on, this viral pathogen could be amplified (most probably using Vero E6 cells) and produced routinely.
 
+连续传代的程序是简单直接的。简⽽⾔之，从步骤4中选择的病毒株，即SARS-CoV-2的前体，将被⿐内接种到⼀组⿇醉的hACE2-⼩⿏中。感染后2-3天左右，肺部的病毒通常会放⼤到⼀个峰值滴度。然后，⼩⿏将死去，其肺部最后均质化。通常，携带病毒量最⾼的⿏肺上清液将被⽤于提取候选病毒，以备下⼀轮传代。经过⼤约10~15轮的传代，病毒株的hACE2结合亲和⼒、感染效率和致死率都会得到充分的提⾼，病毒基因组也会趋于稳定101。最后，经过⼀系列的表征实验（如病毒动⼒学化验、抗体反应化验、症状观察和病理检查等），得到最终产品SARS-CoV-2，从⽽结束了整个研制过程。从此，这种病毒病原体可以被扩增（很可能使⽤VeroE6细胞），并进⾏常规⽣产。
 
-## 解决“大哥”前先着手“小弟”？
+It is noteworthy that, based on the work done on SARS-CoV, the hACE2-mice, although suitable for SARS-CoV-2 adaptation, is not a good model to reflect the virus’ transmissibility and associated clinical symptoms in humans. We believe that those scientists might not have used a proper animal model (such as the golden Syrian hamster) for testing the transmissibility of SARS-CoV-2 before the outbreak of COVID-19. If they had done this experiment with a proper animal model, the highly contagious nature of SARS-CoV-2 would be extremely evident and consequently SARS-CoV-2 would not have been described as “not causing human-to-human transmission” at the start of the outbreak.
 
-4月2日蓬佩奥国务卿推文：“三年前的今天，川普总统派我去朝鲜，谈判我们两国之间的会晤。我们的新方针是通过实力实现和平。不是为了威胁战争，而是为了阻止战争。”
+值得注意的是，根据对SARS-CoV的研究，hACE2⼩⿏虽然适合SARS-CoV-2的适应性，但并不是反映病毒在⼈类中的传播性和相关临床症状的良好模型。我们认为，在COVID-19爆发前，那些科学家可能没有使⽤合适的动物模型（如叙利亚仓⿏）来测试SARS-CoV-2的传播性。如果他们使⽤适当的动物模型进⾏实验，SARS-CoV-2的⾼传染性就会⾮常明显，因此SARS-CoV-2不会在疫情爆发之初被描述为“不会造成⼈传⼈”。
 
+We also speculate that the extensive laboratory-adaptation, which is oriented toward enhanced transmissibility and lethality, may have driven the virus too far. As a result, SARS-CoV-2 might have lost the capacity to attenuate on both transmissibility and lethality during its current adaptation in the human population. This hypothesis is consistent with the lack of apparent attenuation of SARS-CoV-2 so far despite its great prevalence and with the observation that a recently emerged, predominant variant only shows improved transmissibility105-108.
 
+我们还假定，针对提⾼传播能⼒和致死率的⼴泛实验室适应措施可能会让病毒变得更加强⼤。因此，SARS-CoV-2在⽬前对⼈类的适应过程中，可能已经失去了在传播性和致死性上弱化的能⼒。这⼀假设与SARS-CoV-2尽管在⼤流⾏，但到⽬前为⽌还没有明显的减弱迹象，也与最近出现的主要变异体只表现出更强的传播性的观察相⼀致105-108。
 
-> Three years ago today, President Trump sent me to North Korea to negotiate a meeting between our two countries. Our new approach was peace through strength. Not to threaten war, but to deter it. [pic.twitter.com/E1LRJ6DVoE](https://t.co/E1LRJ6DVoE)
-> — Mike Pompeo (@mikepompeo) [April 2, 2021](https://twitter.com/mikepompeo/status/1378032727581204483?ref_src=twsrc%5Etfw)
+Serial passage is a quick and intensive process, where the adaptation of the virus is accelerated. Although intended to mimic natural evolution, serial passage is much more limited in both time and scale. As a result, less random mutations would be expected in serial passage than in natural evolution. This is particularly true for conserved viral proteins, such as the E protein. Critical in viral replication, the E protein is a determinant of virulence and engineering of it may render SARS-CoV-2 attenuated109-111 Therefore, at the initial assembly stage, these scientists might have decided to keep the amino acid sequence of the E protein unchanged from that of ZC45/ZXC21. Due to the conserved nature of the E protein and the limitations of serial passage, no amino acid mutation actually occurred, resulting in a 100% sequence identity on the E protein between SARS-CoV-2 and ZC45/ZXC21. The same could have happened to the marks of molecular cloning (restriction sites flanking the RBM). Serial passage, which should have partially naturalized the SARS-CoV-2 genome, might not have removed all signs of artificial manipulation.
 
+连续传代是⼀个快速⽽密集的过程，在这个过程中，病毒的适应性被加速。虽然意在模仿⾃然进化，但连续传代在时间和规模上都受到更多限制。因此，与⾃然进化相⽐，预计连续传代过程中随机突变的情况会更少。这对于保守的病毒蛋⽩来说尤其如此，例如E蛋⽩。E蛋⽩在病毒复制中⾄关重要，是毒性的决定因素，对它进⾏⼯程化处理可能会使SARS-CoV-2减毒109-111。因此，在最初的组装阶段，这些科学家可能决定保持E蛋⽩的氨基酸序列与ZC45/ZXC21的序列不变。由于E蛋⽩的保守性和连续传代的限制，实际上没有发⽣氨基酸突变，导致SARS-CoV-2和ZC45/ZXC21之间E蛋⽩的序列⼀致性100%相同。同样的情况也可能发⽣在分⼦克隆的标记（RBM两侧的限制性位点）上。连续传代，应该使SARS-CoV-2基因组部分⾃然化，但可能没有消除所有⼈⼯操纵的痕迹。
 
+\*\*\*\*\*\*\*闫丽梦博士第一份报告中英文内容引用完毕\*\*\*\*\*\*\*
 
+综述：我们大部分人都不是中共病毒专家，所以即使把闫丽梦博士的报告放在我们面前，我们也无法彻底读懂它，但是闫丽梦博士的报告正在唤醒这个世界，美国军情生物武器专家Larence Sellin博士已经通过推文公开认可了闫丽梦博士关于中共病毒是［超限生物武器］的定义和定性，并且Larence Sellin博士已经在推文中列出中共的超限生物武器专家名单，我相信这份名单要甚于当年美军在伊拉克公布的伊拉克前政要人员扑克牌，我相信凡是上这个榜单的所有中共专家他们都无法逃避最终的审判！
 
+（文章内容仅代表作者个人观点）
 
-## 2020大选舞弊、棒球队、假新闻
-
-4月2日川普总统GAB 发文如下：
-
-“棒球已经失去了大量的球迷，现在他们离开亚特兰大与他们的全明星赛，因为他们害怕激进的左派民主党人，他们不想要选民持有合法证件，这是迫切需要的，与我们的选举有任何关系。抵制棒球，抵制所有干涉自由公平选举的愚蠢公司。你听到了吗？可口可乐，达美航空，和其他所有左派公司！”
-
-“为什么每次讨论2020年选举舞弊的时候，假新闻媒体总是说这种指控毫无根据，毫无根据，毫无道理等等？可悲的是，2020年总统大选存在大规模的舞弊，很多非常愤怒的人都明白这一点。随着时间的推移，不幸的是，对于激进左派疯子来说，越来越多的事实被揭露出来。”
-
-
-
-蓬佩奥先生4月3日转推美国职业棒球联盟网站的文章《美国职业棒球联盟公布与中共国合作关系，帮助其在中共国发展比赛》，文章称联盟与北京企业地产集团有限公司合作开发新设施。文章发表于2017年12月，可见与中共国关系发展已久，而川普总统当日抨击美国棒球队反对有效证件投票选举的政策，从一个侧面佐证了中共在美国大选舞弊背后的干扰和渗透。
-
-
-
-> Georgia’s laws don’t comport with [@MLB](https://twitter.com/MLB?ref_src=twsrc%5Etfw) “values” but China’s do?[https://t.co/354BUflBd3](https://t.co/354BUflBd3)
-> — Mike Pompeo (@mikepompeo) [April 3, 2021](https://twitter.com/mikepompeo/status/1378343590326337538?ref_src=twsrc%5Etfw)
-
-
-
-福克斯新闻近日头版头条新闻“[美国职业棒球队远离美国城市，却与中共国残暴的政权做生意](https://www.foxnews.com/politics/crenshaw-rubio-biden-mlb-georgia-boycott-china)”。
-
-## 
-拜登家族与中共关系继续发酵
-
-4月2日记者阿克森转发了个人网站于3月31日发表的美国议员对乔-拜登家族的检控信，其内容和旁征附件来自美国司法网站、纽约时报、每日呼吁者、福克斯新闻等。文章总结称拜登家族及其与外国政府和企业，特别是与中共国的关系，一直是国会和记者调查的对象。一些调查提出可能存在利益冲突和国家安全风险的问题，包括：
-
-- 拜登总统和拜登家族曾强烈否认有任何不正当的商业交易或关系。
-- 拜登总统曾表示，他没有从儿子的商业交易中获得报酬，包括与中共政府有关的企业。但有消息称，乔-拜登在私下沟通中被称为 “大人物”，他将在一次亨特-拜登的商业交易中获得资金分成。
-- 去年12月，亨特-拜登发表声明称，美国特拉华州的检察官办公室正在调查他的 “税务事务”。他说对此 “有信心，对这些事情进行专业和客观的审查，将证明我合法和适当地处理我的事务。”
-- 众多消息来源证实，作为调查的一部分，FBI一年多以前已经掌握了一台属于亨特-拜登的笔记本电脑。
-- 2018年在特拉华州发生了一起涉及亨特-拜登的诡异枪支事件。特勤局特工介入了2018年的调查，试图从亨特-拜登在2018年买枪的经销商那里收集文件。购枪表格询问购买者是否吸毒成瘾。而亨特-拜登在2013年因可卡因测试呈阳性而从军队预备役退役。
-- 在特勤局介入亨特-拜登枪支调查的时候，乔-拜登并没有受到特勤局的保护，所以目前还不清楚该机构为什么会介入。
-
-
-
-
-> Senators ask for intel records on Chinese criminal reported to be associate of Hunter Biden, and who allegedly paid Hunter Biden $1 million for legal representation [https://t.co/yozvdVGUck](https://t.co/yozvdVGUck)
-> — Sharyl Attkisson🕵️‍♂️ (@SharylAttkisson) [March 31, 2021](https://twitter.com/SharylAttkisson/status/1377357303179997185?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 达美航空（Delta)与中共国的关系
-
-4月3日汤姆-科顿议员的推文称：“如果达美航空有价值观，他们就不会与中共拥有的公司合作。他们没有价值观，他们的观点认为在乔治亚州选举法上撒谎对做生意有利。”
-
-
-
-> If [@Delta](https://twitter.com/Delta?ref_src=twsrc%5Etfw) had values, they wouldn't partner with a company owned by the Chinese Communist Party.
-> 
-> They don't have values—they just concluded that lying about Georgia's election law would be good for business. [pic.twitter.com/DNNoJ1sjkE](https://t.co/DNNoJ1sjkE)
-> — Tom Cotton (@TomCottonAR) [April 2, 2021](https://twitter.com/TomCottonAR/status/1377973040399671297?ref_src=twsrc%5Etfw)
-
-
-
-新闻人格雷格-凯里当日推文嘲讽达美航空：“所以，@达美航空公司—寻思反对乔治亚州选举法？ 你何不专注在保持你的飞机不从滑行跑道上出轨。(同时把你那破烂的WiFi修好)。 “除此之外，复活节快乐！ 😉 ”
-
-
-
-> So ⁦[@Delta](https://twitter.com/Delta?ref_src=twsrc%5Etfw)⁩ AIRLINES—weighing in Against on the Georgia Election Law? How about you focus on KEEPING YOUR AIRPLANES FROM SKIDDING OFF THE RUNWAY. (And fix ur crummy WiFi while you’re at it ). “Other than that, Happy Easter !” 😉 [pic.twitter.com/xJ0vpeN3qS](https://t.co/xJ0vpeN3qS)
-> — Greg Kelly (@gregkellyusa) [April 3, 2021](https://twitter.com/gregkellyusa/status/1378393844857724928?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 助纣为虐的大公司们
-
-当日凯里的推文：可口可乐总裁说：在反对佐治亚州投票法的意见上“我很透明”。 ”很透明?” @可口可乐公司 就是所有“很透明”的事情的反对派。 那个垃圾说法是毒药。我们为什么要喝那个垃圾？可口可乐说法律违反了“他们的价值观”，什么价值观？让人们都发胖吗？
-
-（译者注，乔治州近日通过的选举法要求选民必须提供有效证件。）
-
-
-
-> The CEO of Coke: “Let me by Crystal Clear” in OPPOSING the Georgia Voting Law. “CRYSTAL CLEAR”???—[@CocaCola](https://twitter.com/CocaCola?ref_src=twsrc%5Etfw) is THE OPPOSITE of Crystal Clear ANYTHING. That crap is POISON. Why do we drink that Junk? Coke says the law violates “their values.” What values? MAKING PEOPLE FAT? [pic.twitter.com/pY0d6OsqOG](https://t.co/pY0d6OsqOG)
-> — Greg Kelly (@gregkellyusa) [April 3, 2021](https://twitter.com/gregkellyusa/status/1378344162068738052?ref_src=twsrc%5Etfw)
-
-
-
-4月2日汤姆科顿议员针对苹果公司总裁Tim Cook反对乔治亚州新选举法，称选举“应该变得容易”发推文：“苹果公司在游说反对停止中共国维族人的强迫劳动后，视线转移到乔治亚州的选举法。”
-
-
-
-> .[@Apple](https://twitter.com/Apple?ref_src=twsrc%5Etfw) is focused on Georgia's election law after lobbying against stopping forced labor of Uighurs in China. [https://t.co/nGaKlFkUfj](https://t.co/nGaKlFkUfj) [pic.twitter.com/SChrTur0ng](https://t.co/SChrTur0ng)
-> — Tom Cotton (@TomCottonAR) [April 2, 2021](https://twitter.com/TomCottonAR/status/1377971795987464196?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 中病毒疫苗统治
-
-耶稣受难日（周五）康奈尔大学公布一项规定：预计学生和教职员工接种中共病毒（COVID-19)疫苗才能返校，有宗教和医疗豁免者除外。位于新泽西州的罗格斯大学（Rutgers University）被认为是第一所宣布（于在3月25日）强制接种疫苗的大学。（新闻来源于[纽约邮报](https://nypost.com/2021/04/03/cornell-university-mandates-covid-19-vaccines-for-students/)）
-
-美国疾病防控中心总裁耶稣受难日（周五）表示，完全接种了冠状病毒疫苗的美国人可以在美国境内和国际上旅行 ，他们”对自己的风险很低”，但他们必须继续采取预防措施，如在公共场合戴上口罩，以避免可能将病毒传播给他人。（新闻来源于[纽约时报](https://www.nytimes.com/2021/04/02/science/cdc-travel-vaccinated.html)）
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
-
-0
++3

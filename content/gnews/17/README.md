@@ -1,46 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美职业棒球全明星赛迁离亚特兰大
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1048252/)
+## 香港手足集气系列（十）香港人写给葵青石荫区议员尹兆坚的信
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1048965/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+搜集整理：阿恩 / 封面合成：文粤
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4041.jpg)
+**港人写给葵青石荫区议员尹兆坚的信**
 
-编辑 水星  上传 银河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/下载-3-6.jpg)gnews
-正像文贵先生预计的那样，美国的宪政危机已经开始，正义与邪恶的较量正在博弈，初尝甜头、窃取2020大选的民主党，试图将窃取舞弊手段合法化，迫不及待地推出《为人民法案》，煽动大公司、左派联盟造势、响应。在拜登呼吁、美国职业棒球大联盟唯唯顺从、川普总统声援佐治亚州之后，佐治亚州也就美国职业棒球全明星赛的迁离发表声明，反映了正义力量的觉醒。
+阿尹，没有红牛喝习惯吗？
 
-声明全文如下：
+与阿尹相识十多年，直至近年才有机会与他天天共事，之前认识的阿尹是一位平易近人的政界前辈，愿意聆听不同声音。及至与他共事后，对他才有更深一层了解，知道他喜欢喝红牛，知道他很想天天健身但无时间，知道他经常请同事吃饭（请我比较少，哈哈），知道他比较喜欢当社工而非议员，知道他不承认自己是「肥佬」。
 
-大佐治亚州就MLB的全明星赛决定发表声明
+如果问一个立法会议员最花时间是否就是出席立法会会议，我会说对于一个懒的议员答案可能「是」。我身边的议员日常除了开立法会，还要与市民、团体、屋苑法团、官员会面，处理个案，花时间研究政府的档，而阿尹作为房委会委员，更有不少关注本港房屋问题的学者、压力团体都经常找他讨论相关政策。有时看到他难得抽到时间健身，笑容如同中了六合彩一样。
 
-亚特兰大-针对大联盟将全明星赛和大联盟比赛从亚特兰大迁出的决定，大佐治亚州主席凯利·洛弗勒发表了以下声明：
+忙碌归忙碌，相信市民对于这位议员就是印象模糊，阿尹在新一批议员中，无疑认知度明显低了一点。有时同事们会不禁对他说「现在是资讯爆炸的年代，你的工作要让人看见，否则市民会觉得你没做事」，他通常都笑说「我比较老派，抢镁光灯的事我不懂做」。
 
-“极为不幸的是，美国职棒大联盟陷入了由民主党人散布的误导信息运动，只会损害勤劳的佐治亚州人和小企业的利益。当美国职棒大联盟有机会选择向标志性先驱汉克·亚伦致敬时，他们反而选择了向政治致敬。” 凯利·洛弗勒说。
+印象中，有次某局长大锣大鼓宣布「创新政策」学校、工厦改建成过渡性房屋，我想这个不就是尹的倡议吗！记得数年前尹大力倡议政府应大量收回棕地建屋，其间兴建公屋若赶不上进度，就先运用闲置土地、废弃学校和工厦改建大量过渡性房屋「止渴」，更可借此压抑劏房的租金。他自己还去了英国、荷兰实地考察如何建过渡性房屋，以及如何管理这种小社区。换着是保皇党，当天就会高调喊叫「成功争取」，他却只说﹕「房屋beat的记者会知道的，有需要会找我啦。」
 
-“大佐治亚州将继续与支持《选举廉正法》的绝大多数佐治亚州人站在一起，该法扩大了参选机会，加强了我们选举的公正性。”
+虽然很多人都会预期政权会用尽一切技俩打压异见人士，但眼看尹失去自由，特别是要与家人分离，伤心及无力感顿时压得透不过气。记得尹有次很紧张的问我哪天是「last day」，我还在想什么「last day」时，他就说趁还是立法会议员，要提醒同事尽量安排多些公务探访在囚人士。听说探监可以让高墙内的人在刻板苦闷的生活中带来一点色彩，我就先排着队，希望等家人律师探望后，可以见他15分钟。
 
-声明链接：
+临别一天尹在立法会收拾物品，他送了一个平日开会时烧热水的水壶给我，我当时还打趣说「中共打过来了，很快可能不能见面了，拍张照片留念吧」，遗憾却一语成真。
 
+前同事 细辉
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4042.jpg)
+人物介绍：
 
+尹兆坚（英语：Andrew Wan Siu-kin，1969年6月7日生），英国雅息士大学社会学学士及社会学文学硕士，香港理工大学应用社会科学系的兼职导师。曾任民主党副主席和香港新界西选区立法会议员，现为香港葵青区议会石荫选区区议员。 2021年1月6日因涉嫌干犯颠覆国家政权罪被捕，现被羁押中。
 
-> The [@MLB](https://twitter.com/MLB?ref_src=twsrc%5Etfw) had the chance to honor an iconic trailblazer and [@Braves](https://twitter.com/Braves?ref_src=twsrc%5Etfw) legend Hank Aaron.
-> 
-> Instead, the bowed to the woke disinformation campaign of the Left—to the detriment of hardworking Georgians and small businesses.
-> 
-> Full statement below ⬇️ [pic.twitter.com/VBjzWEYkKZ](https://t.co/VBjzWEYkKZ)
-> — Kelly Loeffler (@KLoeffler) [April 2, 2021](https://twitter.com/KLoeffler/status/1378085880687169539?ref_src=twsrc%5Etfw)
+资料来源：[苹果日报](https://hk.appledaily.com/local/20210329/QE7Y3TJ4AFASPGRYGZXMFZWHQ4/)
 
+封面素材：明报
 
-
-声明文字整理：
-
-GREATER GEORGIA ISSUES STATEMENT REGARDING MLB’SALL-STAR GAME DECISION
-
-ATLANTA- In response to the MLBS decision to relocate the All-star Game and MLB Draft from Atlanta, Greater Georgia Chairwoman Kelly Loeffler released the following statement:
-
-It’s extremely unfortunate that the MLB has fallen into the woke misinformation campaign being spread by Democrats-only to the detriment of hardworking Georgians and small businesses. At a time when the MLB had the opportunity to honor an iconic trailblazer in Hank Aaron, they instead opted to honor politics, “Kelly Loeffler said.
-
-“Greater Georgia will continue to stand with the vast majority of Georgians who support the Election Integrity Act that expands access and strengthens the integrity of our elections.”
+审核：卡西欧 /上传：天网灰灰
 
 0

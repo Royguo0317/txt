@@ -1,42 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新中国联邦是海外华人的安全和利益的捍卫者
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1048088/)
+## 中共就病毒源头问题甩锅冷链运输的图谋注定失败
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1048853/)
 
-概要：在2021年3月18日的盖特视频中，郭文贵先生在评价美国最近发生的亚裔被袭击事件时说，中共不惜出卖中国人的生命，甚至乐见海外华人被屠杀，以换取共产党和美国谈判的外交筹码。只有新中国联邦能够真正保护中国人的安全和利益。
+撰稿: 张文谦
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image-10.png)图片制作：澳喜农场©森森
+据北京日报3月27日报道，因从进口自美国的一批冷冻鸡全腿的外包装样品中检出新冠病毒核酸阳性，海关总署按照2020年的第103号规定，自当日起暂停接受美国禽肉生产企业Simmons Prepared Foods Inc.（注册号为P1949）的产品进口申报，为期1周时间。
 
+冷链进口一直是中共国用来甩锅疫情来源的主要对象，一旦局部地区出现了疫情的扩散，在大内宣的逻辑里，那多半就和进口冷冻食品就脱不了干系。病毒阳性甚至还可以用作贸易反击和惩戒的武器，中共国若想阻止什么商品的进口，打击某国某公司的贸易，让其商品检测呈阳性就可以达到目的。
 
+此次美国冻鸡腿检测阳性是共产党使用这种下三烂的手法威吓美国及美国公司，不然为什么只暂停申报一周？如果是有问题的食品，为了中国老百姓的安危，那不是应该立即全部拒收退运？因此笔者认为包装物阳性是假，那是共产党的借口，一来展示自身强硬态度，二来可以继续甩锅病毒来源，三来可以收刮老百姓的钱财。说不定这些冻品会被共产党扣押，明面上说是要销毁，但很有可能就是被共产党私下瓜分吃掉。
 
-**新中国联邦是海外华人的安全和利益的捍卫者**
+事实上自疫情在全球爆发以来，像这种进口冻品外包装检测阳性的报道在中共国墙内比比皆是。举最近的一些例子来说，2020年12月31日，辽宁凌海市发布消息，称该市在开展进口冷链食品大排查中，发现某超市进口俄罗斯鳕鱼外包装样本检测呈阳性； 2020年12月14日，中国经济网报道天津一批进口冻品 外包装核酸检测阳性；2020年9月20日报道长春通报从俄罗斯进口冻品外包装样本检测阳性……由于案例过多，这里就不再一一进行列举。
 
-**Only New Federal State of China Truly Protects Oversea Chinese**
+笔者认为，一系列进口冷链检测阳性的宣传，不仅是疫情复发期间的甩锅行为，同时还埋藏这另一个巨大伏笔：即中共考虑过将武汉疫情爆发的源头也转嫁到进口冷链上，从而撇清自己和病毒的干系。而在如今这个时间点再次高调宣传冷链出现阳性反应，也是打算在全球疫情追责行动的压力下尝试甩锅，同时继续欺骗墙内百姓。至于最终效果，实际上是弄巧成拙，世界卫生组织报告遭到多国质疑以及闫博士第三份报告收到广泛关注都证明了这一点。
 
-还有，现在就是美国搞了几个所谓的杀了亚洲人[的事件]，包括亚洲人被排挤的。这事情，到最后的时候，你记住，越斗越能保护亚洲人。有一波说的，就有一波反的。这个中间就是咱新中国联邦：“哎，别打啦。”是吧？咱们才能保护我们真正的同胞。
+（本文纯属个人观点）
 
-Also, there have been several incidents of Asians being murdered in the U.S., also incidents of anti-Asian racism. Remember, at the end of the day, the more of these incidents there are, the better protection Asians will get. If some people try to stir up these sentiments for political reasons, there will always be someone else to talk against them.  What stands on the middle ground is our New Federal State of China (NFSC). We can say, “Hey, stop fighting.” Right? Only by this can we protect our true fellow compatriots.
+*审稿：Gradient Boost*
 
-我们是没有利益的，没有任何诉求的。就一个目的，保护海外同胞的安全和利益，和维护海外华人和所有中国人的尊严和形象。保重我们所有华人的孩子和家人，在海外不能受到歧视，更不能受到安全的威胁。
+新闻参考链接:
 
-We have no hidden agenda, but one and only purpose, and that is to protect the safety and interests of our overseas compatriots, to maintain the dignity and image of all Chinese, and to ensure that the children and families of all our Chinese overseas are not discriminated against and are protected from any threats to their personal safety.
+[https://baijiahao.baidu.com/s?id=1686018853519179901&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1686018853519179901&amp;wfr=spider&amp;for=pc)
 
-这帮孙子现在正在出卖中国人。他[们]恨不得美国现在能杀上几万中国人，才能让他在外交上有讲数的权力。你去问问王毅、杨洁篪，你去问问中南坑，说现在如果美国发动大[规模的]民族种族歧视，像印尼排华事件[这样的]。他[们]一定会说：“[这是]上天给的礼物，跟美国可以讲数。最好你杀十万！”这就是共产党。这就是海外华人所有的所谓“社交媒体”的悲哀。没有人敢说实话，没有任何人敢真正的保护中国人。只有我新中国联邦，我们的新中国联邦是真正的中国人的安全、利益，绝对的捍卫者，信不信？
+[https://baijiahao.baidu.com/s?id=1678362548984637754&wfr=spider&for=pc](https://baijiahao.baidu.com/s?id=1678362548984637754&amp;wfr=spider&amp;for=pc)
 
-These bastards now are selling out the Chinese people. They [the CCP] can’t wait for the U.S. to kill tens of thousands of Chinese so that they can have some leverage to bargain through diplomacy. Go ask Wang Yi, Yang Jiechi and those in the ZhongNan Pit what they think if racial discrimination against Chinese people happens in the U.S. at a massive scale, just like the discrimination against people of Chinese descent in Indonesia [during the Sukarno regime in 1958]. They will definitely say, “This is a gift from God, and then we can have something to bargain with the U.S. You’d better kill one hundred thousand Chinese!” This is the CCP. The sad reality of the so-called social media of the overseas Chinese is that nobody dares to speak the truth, and nobody dares to truly protect the Chinese people. Only our NFSC dares to do so and is the true guardian defending safety and interests of the Chinese people, believe it or not.
+[https://xw.qq.com/amphtml/20210101A02KKS00](https://xw.qq.com/amphtml/20210101A02KKS00)
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/6053fdc8527b920e2d83e040](https://gtv.org/getter/6053fdc8527b920e2d83e040) (7:45-9:23)
-鸣谢：
-[1] 感谢彩虹桥提供中文文本于[https://www.gnews.org/zh-hans/988987/](https://www.gnews.org/zh-hans/988987/)
-[2] 感谢 YY 和 Liberte 提供英文翻译于 [https://gnews.org/1005162/](https://gnews.org/1005162/)
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-* * *
-
-整理校对 & 新闻撰写：【guocamole(文金欠)】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
-
-+1
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2.jpg)
++5
