@@ -1,51 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【军事快讯】美国军舰出现在长江口东海海域
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1050230/)
+## 美日首脑会晤有望将台湾纳入美国的防卫范围
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1050295/)
 
-作者：纽约香草山农场 人世间
+加拿大多伦多枫叶农场 向真
 
+日本首相菅义伟原计划在4月8日访美，但近日日本宣布将访问时间推迟一周。据日媒不断的报道和披露，本次日美首脑会谈涉及很多重要而敏感的议题，菅义伟未能按期成行，似乎系双方在某些问题上的磋商还未达成共识，甚至存在较大的分岐。
+![]()![](https://gnews.org/wp-content/uploads/2021/03/usmilitarypresence.weebly.com-2.jpg)*图片来源：usmilitarypresence.weebly.com*
+据悉，日美将把新疆人权及香港选举问题纳入联合声明；美日将签署正式条约把尖阁诸岛(钓鱼群岛)纳入《日美安保条约》第5条适用范围，此前美国仅作口头承诺，并且美国对尖阁诸岛的主权归属不持特定立场；美国以条约方式承诺对日本提供“核保护伞”，日本还可能要求美国同意日本生产并拥有核武器；日本推动美国将台海安全事项纳入美日安保范围之内，以完成美日在印太整体大战略的布局，由于这一条可能立即引发台海局势的激烈动荡，因此最引人注目。
 
+据日经新闻今天报道，日美拟在菅义伟的此次访美，就稳定台湾海峡的重要性达成共识。由于国內经济濒临崩溃，国际社会加快了对病毒溯源的进程等，当前的国内外形势对中共极其不利，为了“以战逼和”及利用战争转移内部矛盾，中共“收复”台湾可能提前逼近。因此，如何保住第一岛链上最核心的台湾成了美日必须面对的问题。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+值得关注的是，前美国国务卿蓬佩奥3月31日接受台湾驻美代表萧美琴邀请，在曾经是台湾驻美大使官邸的双橡园会面，萧美琴赞赏蓬佩奥不分党派支持美台关系的努力。这令外界产生诸多遐想，比如拜登政府是否沿袭川普政府的路线，恢复和台湾的邦交正常化？
 
+3月28日台湾邦交国帕劳总统惠恕仁访台，美国驻帕劳大使亨尼西尼兰也是访团成员之一，这是自“1979年台美断交”美国驻外大使首次公开访问台湾。这样的安排是美国对中共的一次试探，同时也表明了美国以台制共的决心。得台湾者得天下。毫不夸张的说，台湾事关美国的国运，关乎日本的存亡，影响民主阵营的兴衰。由于台湾的巨大战略价值，本次日美首脑会谈极有可能力排纷乱噪杂的声音，在台湾防卫问题上放弃模糊策略，对中共强硬划下台海、南海、东海不能逾越的红线，或且干脆直接把台海明确纳入美日的安保范围。
 
+看一看中共一年多以来在香港、新疆犯下令人发指的罪行，发动超限生化战造成的全球大灾难，我们有理由认为，当所有的外交努力均宣告失败时，为了我们自己，为了人类文明的存续，值得为台湾决一死战！
 
-根据中共官方智库“南海战略态势感知计划”（SCSPI）平台和美国太平洋舰队在社交媒体上发布的消息，美国军舰近日在东海、南海海域活动频繁。
+参考链接：[Taiwan’s peace, stability key to region, says Japan’s Yoshihide Suga](https://www.hindustantimes.com/world-news/taiwans-peace-stability-key-to-region-says-japan-s-yoshihide-suga-101617569886377.html?utm_source=ht_site_copyURL&amp;utm_medium=social&amp;utm_campaign=ht_site)
 
-![]()![](https://media.discordapp.net/attachments/798081578805755925/828443163404009502/44.jpg)
+* * *
 
-该平台4月3日发布消息称，据AIS（船舶自动识别系统）信号显示，4月3日零时左右，美国海军的“马斯廷”号导弹驱逐舰（DDG-89）出现在东海长江口附近海域，随后向南驶去。4月4日，该平台又发布消息指，上午8时美军“罗斯福”号航空母舰打击群（The Theodore Roosevelt Carrier Strike Group），包括“拉塞尔”号驱逐舰（USS Russell）、“邦克山”号巡洋舰（USS Bunker Hill）等，经由马六甲海峡驶入南海，并称这是“罗斯福”号今年第3次进入南海活动。
-
-![]()![](https://media.discordapp.net/attachments/798081578805755925/828443166469521408/45.jpg)
-
-另外，美国太平洋舰队3月30日发布消息称，美国第七舰队旗舰“蓝岭”号两栖指挥舰与日本海上自卫队的金刚级宙斯盾驱逐舰“金刚”号在东海海域开展了联合演习。
-
-![]()![](https://media.discordapp.net/attachments/798081578805755925/828443170764619826/46.jpg)
-
-由此可见，美国海军近期在中共国周边活动频繁，中美紧张局势仍在持续。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-审核：灵性探索
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
+编辑 发稿 云起时
 
 0
