@@ -1,70 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0405.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1050677/)
+## 邱香果-中共渗透加拿大科学界之谍影重重
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1050853/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+**路仁**
+![]()![](https://gnews.org/wp-content/uploads/2021/02/CBC2.jpg)
+2021年3月22日， 加拿大首都渥太华。加拿大国会中加关系特别委员会，命令加拿大公共卫生署（PHAC）上交有关加拿大最高安全级别实验室解雇两名科学家，以及早些时间向中共国武汉病毒实验室转移病毒的所有文件。特别委员会限定公共卫生署20天以内上交未编辑的原始文件。之后，特别委员会将召开闭门会议并同国会法律团队商榷，如何在不违反国家安全和不泄露正在进行的皇家骑警调查的情况下公开其内容。而公共卫生署署长易安.斯图尔特在会议中拒绝回答为什么要在1月份解雇邱香果和程克定夫妇。
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
-## 中共病毒继续挖料
+据加拿大广播公司(CBC)报道，加拿大卫生部媒体关系主管莫里塞特发邮件证实：“自2021年1月20日起，这两名科学家将不再受雇于加拿大公共卫生署。出于保密原因，我们不能透露其他信息，也不能发表评论。”
 
-4月5日劳伦斯博士继续使用爆料革命关于中共病毒的定义和闫博士关于超限生物武器的定论发推宣传，推文也找出更多中共病毒专家的照片：
+从网上可以找到的公开资料我们可以得到以下信息：
 
-毫无疑问，陈薇少将应该是中共生物战计划的负责人&所显示的每个人都曾在军方工作过。在中国，民用和军用研究没有区别。
+邱香果博士，天津人，1980年16岁考入河北医学院（河北医科大学前身），1985年在河北医科大学获得医学学位，1990年在天津医科大学获得免疫学硕士学位。她于1996年作为访问科学家前往美国德克萨斯州MD安德森癌症中心，次年作为研究助理前往马尼托巴癌症治疗中心。据网上文献推测，邱香果博士大约2003年前加入了加拿大国家微生物实验室的特殊病原体计划。而她的丈夫程克定，则是一位病毒学家，同样就职于加拿大公共卫生署下属的国家微生物实验室。
+![]()![](https://gnews.org/wp-content/uploads/2021/02/CBC.jpg)
+位于加拿大曼尼托巴省首府温尼伯的[加拿大国家微生物实验室NML](https://en.wikipedia.org/wiki/National_Microbiology_Laboratory)（National Microbiology Lab)于1992年开始建设，1999年正式建成运营。NML是加拿大唯一一个可以处理最致命病毒的P4实验室。
 
-#中共病毒 #超限生物战 #超限生物武器 #COVID19病毒来源
+2019年3月31日，两个分别装有号称“全世界最致命病原体”的埃博拉和亨尼巴病毒株的小瓶从温尼伯寄出，经由多伦多搭乘加航商业航班运往北京。[根绝CBC的报道，](https://www.cbc.ca/news/canada/manitoba/canadian-scientist-sent-deadly-viruses-to-wuhan-lab-months-before-rcmp-asked-to-investigate-1.5609582)寄出病毒的，正是邱香果博士和她的丈夫程克定，而病毒的接收方，正是在这次全球中共病毒大爆发中处在风口浪尖的武汉病毒研究所P4实验室。CBC记者也查到了中方收件人在这个特殊的包裹抵达后发来的感谢邮件：”我们衷心感谢你们一直以来的支持，尤其是邱博士和安德斯！非常感谢！！期待着我们在未来进一步合作。”
 
+2019年5月24日，加拿大皇家骑警收到加拿大公共卫生署的委托，对微生物实验室涉嫌”政策违规行为“进行调查。
 
+2019年7月5日，邱香果和她的丈夫成克定以及她的几个华裔研究生被警方强行带离国家微生物实验室NML。他们进入实验室的许可证被取消。同事被告知勿与他们联系。有消息称，早在几个月前，邱香果办公室电脑就被更换，她过去频繁的出差中国的许可也被取消。
 
-> Make no mistake, Maj. Gen. Wei Chen is presumed head of the CCP biowarfare program & everyone shown has worked with the military. In China, there is no distinction between civilian and military research.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/luEHWbcH2F](https://t.co/luEHWbcH2F)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1379000079768510467?ref_src=twsrc%5Etfw)
+2021年1月20日， 记者被告知，邱香果夫妇被加拿大公共卫生署解雇。但即便是面对国会特别委员会成员，卫生署署长仍旧不愿意透露到底是什么原因解雇两位科学家，理由是隐私原因。
 
+时至今日，加拿大皇家骑警对邱香果夫妇的行政调查已经进行了一年多，但无论是公共卫生署还是警方都没有公布调查进展。对于调查为何迟迟没有结果，公共卫生署发言人在解释说，行政调查必须公正而彻底，同时必须遵守程序，尊重当事人权利。
 
+然而，对于这件事，渥太华大学法学院教授和流行病学家阿塔兰（Amir Attaran）认为，整个时间事件是“可疑的，令人担忧的，可能危及生命的”。
 
-译者认为，这些照片一方面是让这些中共国内直接参与病毒研究的人了解自己已经上了美国追查病毒真相的黑名单，另一方面是通知与这些人有工作交往的美国科研界、医疗界相关人员明白，自己曾经与中共国为伍、简介资助和辅助中共病毒超限生物战的大爆发，下一步何去何从该好好反思了。
+他在接受[CBC采访](https://www.cbc.ca/player/play/1750217795564)时说，”现在的情况是，加拿大皇家骑警从全国安全级别最高的实验室中逐出一名研究人员，原因是什么政府不肯说，要保密。我们知道的是，她在皇家骑警出现之前，把全世界最致命的病毒之一寄往中国，寄给一个从事危险的基因功能增强实验的、与中国军方有联系的实验室，而且被寄出的病毒株有多种基因差异，可供对方进行不同的实验。adio-功能增强试验把新基因直接导入一个细胞或个体以观察其变异。这类实验因为过于危险而加拿大没有做，世界上大部分国家也都望而却步，只有中国在从事了大量的这种实验，我担心我们可能帮了他们。” 他说：“武汉病毒研究所做这些实验，而我们向他们提供埃博拉和亨尼巴病毒。稍微有点脑子就能明白，这是一个不智的决定。” 在采访中，他表达了对加拿大有关管理里部门的“极度不满”。
 
+另据[CBC报道](https://www.cbc.ca/news/canada/manitoba/national-microbiology-lab-scientist-investigation-china-1.5307424)，仅在2017-18年度，邱香果博士在就职加拿大微生物实验室（NML）期间至少访问中共国5次。包括一次是给新获认证武汉病毒研究所P4实验室的科学家和技术人员做培训，而这个实验室，正在进行着最致命病毒的研究。比较蹊跷的是，这些旅行都是由第三方出资，并不是加拿大公共卫生署的预算。在CBC记者得到的文件中，这个第三方出资者名字被抹掉了。
 
+文件同时显示，在2017年9月19-30日的出访中，她还与北京的合作方见了面。而文件中这个合作方的名字同样被涂抹掉了。
 
-## 美国拨款武汉病毒实验室研究中共病毒
+在2018年发表在《Journal of Virology》上的一篇关于伊波拉病毒的论文“Equine-Origin Immunoglobulin Fragments Protect Nonhuman Primates from Ebola Virus Disease”，在共同署名里面，我们能看到的熟悉的名字，除了邱香果博士，她的丈夫程克定还有中科院中国CDC主任高福等，其中第一作者王华磊来自于中国军事科学院军事兽医研究所。
 
-4月4日晚《每日呼声》发表文章《NIH称美国拨款给武汉病毒实验室用于增强型蝙蝠冠状病毒研究未经过HHS审查》
+由此可见，邱香果博士与中共国军事科学院，中科院以及武汉病毒研究所之间的联系。
 
-文章称，罗格斯大学化学生物学教授Richard H. Ebright表示，美国国家健康研究院（NIH） “系统性地阻止”了政府对危险病原体研究的监督。
+那么问题来了：
 
-一项NIH拨款，涉及对基于蝙蝠冠状病毒的改造，在病毒大流行之前向武汉病毒学研究所转移了60万美元，绕过了P3CO审查，因为安东尼-蝠齐领导的国家过敏和传染病研究所没有标记对该项目进行审查。
-
-据《纽约时报》报道，2014年，美国政府暂停了对增强功能研究的资助，因为实验室工作人员意外接触到了疾病控制中心的炭疽病毒。此前，2011年威斯康星州和荷兰的实验室被曝出有意修改H5N1禽流感病毒，能够有效地在雪貂之间传染，引发反响。
-
-该集团总裁Peter Daszak在2019年12月武汉首例COVID-19报告前几周在新加坡拍摄的播客采访中表示，Ecohealth有改造蝙蝠冠状病毒的历史。
-
-[点击查看此项新闻来源。](https://dailycaller.com/2021/04/04/nih-gain-of-function-anthony-fauci-review-board-wuhan-lab/)
-
-
-
-
-
-
+1. 邱香果博士曾经去武汉病毒实验室给那里的科学家和技术人员做培训，那她一定和武毒所的相关科学家和技术人员熟悉，那么她知不知道武毒所一直从事的实验？尤其是冠状病毒功能增强型实验？她有没有参与？
+2. 邱香果博士除了寄出伊波拉等两种致命病毒外，还有没有寄出其他类型的病毒？
+3. 谁是邱香果博士访问中共国的第三方出资人？
+4. 邱香果博士有没有和中国军事科学院有合作项目？
 
 
+加拿大一直是中共“蓝金黄”的桥头堡。在左派自由党执政的今天，加拿大已经沦落称为中共的后花园。以下事件可以明显看出：
+
+1. 前些日子媒体爆出的加拿大[军方在加拿大训练中共国军官](https://torontosun.com/opinion/columnists/fatah-chinas-troops-trained-in-canada-against-which-country)的事件
+2. BC省每年都在[培训中共警察](https://biv.com/article/2021/01/chinese-police-training-bc-espionage-risk-critics-say-glacier-investigates)
+3. 加拿大SEC无辜冻结战友GTV投资
+4. 加拿大部分商业银行无辜打压新中国联邦战友投资汇款
+5. 加拿大国会定义中共国在新疆“种族灭绝”的投票中，[加拿大（自由党）内阁集体缺席](https://apnews.com/article/race-and-ethnicity-cabinets-justin-trudeau-china-olympic-games-5c85eedb0d3c3811ba1fd56eb4ac325d)
+6. 公共卫生署PHAC和RCMP至今都未能就邱香果事件给出调查结果
+7. 公共卫生署署长拒绝就解雇邱香果夫妇给出原因
+8. 在本文首提到的中加关系特别委员会命令PHAC必须交出所有有关文件的会议中，[全部5名自由党会员投了反对票](https://www.todocanada.ca/phac-ordered-to-hand-over-documents-on-two-fired-scientists-viruses-sent-to-china/)。（共12个委员）
 
 
+希望在不久的将来，随着中共的土崩瓦解，这些事情的真相都将浮出水面。不可置疑，邱香果博士夫妇是有才华和杰出的科学家。然而“匹夫无罪，怀璧其罪”，有中共恶魔的无处不在，无孔不入，这些杰出的人才都难逃被撒旦引诱而堕落的命运。
 
+* * *
 
-
-
-
-
-
-
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+*编辑、发稿 文锦*
 
 0
