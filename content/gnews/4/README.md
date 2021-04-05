@@ -1,145 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0404.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1049869/)
+## 卡尔加里警方扰乱教堂礼拜后被牧师告发
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1050223/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+**阿黎**
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
 
 
-## 深挖中共病毒真相
+> This is how you handle police who enter a church without a warrant. They’re lucky they only got a tongue-lashing: s. 176 of the Criminal Code makes it a crime to disturb a church service. Those [@CalgaryPolice](https://twitter.com/CalgaryPolice?ref_src=twsrc%5Etfw) thugs were breaking the law (and knew it). [pic.twitter.com/0XhAuwv0yg](https://t.co/0XhAuwv0yg)
+> — Ezra Levant 🍁 (@ezralevant) [April 4, 2021](https://twitter.com/ezralevant/status/1378506465158303747?ref_src=twsrc%5Etfw)
 
-4月4日劳伦斯博士继前一天推文持续揭露中共病毒关键负责人，其用词和理论与爆料革命天使科学家闫博士步调一致。推文如下。
 
-中共军方正在研究 “脑控”病毒影响神经系统。中共的生物战计划与病毒脑效应之间的联系。陈伟（音译）&安婧（音译）曾在第三军医大学重庆分校共同工作。
 
-#中共病毒 #超限生物武器 #COVID19病毒来源
+据Rebel News 4月3日报道，加拿大阿尔伯塔省卡尔加里阿特-帕罗斯基（Artur Pawlowski）牧师向在耶稣受难日在没有搜查令的情况下闯入教堂礼拜的警方和一名卫生检查员进行质疑 。
 
+在世界上居心叵测的人试图利用疫情掀起一场限制和消灭基督教运动的时候，加拿大在今年复活节的前一天再次大面积封城，使基督徒无法在除圣诞节外最重要的基督盛典日——复活节去教堂聚集礼拜。
 
+帕罗斯基牧师在复活节照常进行礼拜，警察和卫生官闯了进来，没有搜查令。帕罗斯基牧师愤怒地向闯入教堂的警察喊道：“出去！立即从这里出去！”警察尽管迟疑，但还是慢慢腾腾地走出了教堂，他们是心虚的。
 
-> China's military is working on "brain control" [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) affects the nervous system. A link between CCP's biowarfare program & viral brain effects. Wei Chen & Jing An worked together at the 3rd Military Medical University Chongqing[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/rzYNObXCQK](https://t.co/rzYNObXCQK)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 4, 2021](https://twitter.com/LawrenceSellin/status/1378603088613945355?ref_src=twsrc%5Etfw)
+帕罗斯基牧师在波兰长大，当时波兰正处于苏联共产集权统治之下，他对暴虐的政府深恶痛绝，并毫不忌讳地指出卡尔加里警方的行为与当年波兰的执法者有相似之处。
 
+帕罗斯基牧师说，”令人难以置信。我们生活在一个被政府接管的地方，盖世太保崇拜的独裁者的暴徒、怂恿者、褐衫军在复活节庆祝活动期间，带着枪支、电击棍和手铐来教堂恐吓？”
 
+“嗯，我想就是这样，他们想像埃及人那样奴役我们所有人。他们想成为今天的法老。人们啊，如果你们不……醒醒吧，站起来，如果加拿大人不起来，我不知道明天会发生什么。看看德国发生了什么。德国已经被法西斯主义占领了。想当希特勒的人已经在统治了。”
 
+“你甚至不能离开一个城市到另一个城市去，这是个完全的封锁。”牧师补充道，”如果你不像狗或猫一样接种疫苗，就不能买卖，不能上学，也不能工作。这是他你想要的未来吗？这是你想要你的孩子或你的孙子所拥有的（未来）吗？真的吗？这就是加拿大的未来吗？难以置信。”
 
+“朋友们，你们要加入战斗。我们有集会。我们每周都在聚集，我们需要更多人。我们需要站出来反对他们，需要对他们提起诉讼。趁着我们还有机会，现在就疯狂吧。因为如果我们现在不做，就没有明天了。他说：”我们的权利被如此迅速地剥夺，这令人难以置信。”
 
-姜世勃，是#COVID19 弗林梅切位点病毒起源的关键一环，2007年从SARS开始，2013年基因改造插入了一个4aa 弗林梅切位点。2015年，一个S1-S2 弗林梅切位点出现在高福的SARS类冠状病毒 “愿望清单 “上。从这些文章中，关注军事链接。#CCP病毒 （#中共病毒）
+说得多好啊！帕罗斯基牧师是从原被共产主义统治的国家来的，他深深懂得现在在加拿大正在发生着什么。加拿大正被共产主义者接管，各级政府利用疫情大搞所谓紧急法令，他们试图用行政命令代替法律，试图无需国会通过，实施一切行政命令。简而言之，就是取消投票——取消民主！宪法已经成为政府的羁绊和敌人，政府就是法。They wish。
 
+中共制毒投毒，造成全世界大瘟疫流行，为共产集权者集权和消灭民主提供了绝佳的机会。他们利用疫情限制人们的自由，关闭小企业，消灭中产阶级，让人们变穷并生活在恐惧中，让人们意志消沉……于是，人们已经准备好做顺民，做奴隶。
 
+笔者曾经向加拿大本地人数落加拿大政府的种种不是，包括对中共国的软弱态度和妥协政策，那位加拿大人当时很不以为然，他说，“你对加拿大不满意，你为什么来这？”哈哈，他把加拿大国和加拿大政府混为一谈了，怎么和被洗脑的中共国人一样？像这样的加拿大人占大多数。
 
-> Shibo Jiang, a key link in the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) 's furin cleavage site (FCS), began with SARS in 2007, genetically inserted a 4aa FCS in 2013. In 2015, a S1-S2 FCS was on Gao Fu's "wish list" for SARS-like coronaviruses. From those articles, follow the military links.[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1h7wufTpzG](https://t.co/1h7wufTpzG)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 4, 2021](https://twitter.com/LawrenceSellin/status/1378725944098238472?ref_src=twsrc%5Etfw)
+正如爆料革命领军人郭文贵先生所说，泰坦尼克号已经在撞向冰山，可船上的人们由于恐惧，不愿意相信。我们爆料革命人在这个历史时刻，肩负着拯救世界的使命，让我们努力传播中共病毒、香港以及中共邪恶真相，唤醒民众，尽早消灭中共这个全球最大黑帮。
 
+[原文链接](https://www.rebelnews.com/police_interrupt_calgary_church_service)
 
+* * *
 
-
-
-## 揭露中共的顶级传染病专家—蝠奇
-
-Arthur Schwartz推文：“中国共产党和蝠奇（Anthony Fauci)似乎总是站在同一条战线上 — 无能并且不诚实的一方。”
-
-推文附两则新闻截图，一幅来自中共国新华网称，“尽管这周得克萨斯和密西西比州已经放宽强制戴口罩和商业活动的限制，美国顶级传染病专家安东尼-蝠奇警告结束大流行病限制措施为时太早。”另一幅来自重磅新闻911的真实新闻，“自从得克萨斯州放宽强制戴口罩的政策3州以来，7天平均感染案例达到自去年6月以来最低记录。”
-
-译者议：蝠奇博士为什么不听听美国真正的新闻，反而与中共唱一出戏呢？他究竟是美国传染病顶级专家，还是中共传染病顶级代言人？闫博士转发了这一推文。
-
-
-
-> The Chinese Communist Party and Fauci always seem to be on the same side — the incompetent & dishonest side. [pic.twitter.com/BUZIWT3P8u](https://t.co/BUZIWT3P8u)
-> — Arthur Schwartz (@ArthurSchwartz) [April 4, 2021](https://twitter.com/ArthurSchwartz/status/1378789874405376001?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 2022冬奥会
-
-4月4日参议员瑞克-斯科特转发了3月23日写给奥委会的信，信中提出“不能给习总书记一个洗白罪行的平台”。他呼吁“奥委会站在自由和人权的立场上，和他一起将2022年冬奥会从共产党的中国移出”。
-
-他今日推文称：“国际奥委会赞助商们，现在是时候为的加入我的呼吁，将2022年奥运会从共产中国转移到一个尊重人权的国家：[信件链接](https://bit.ly/3rM072U)”
-
-
-
-> It’s time for the sponsors of the [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw) to join my call to move the 2022 games out of Communist China and to a nation that respects human rights: [https://t.co/KONHncEeEI](https://t.co/KONHncEeEI) [https://t.co/wbgBown59U](https://t.co/wbgBown59U)
-> — Rick Scott (@SenRickScott) [April 4, 2021](https://twitter.com/SenRickScott/status/1378805032133476356?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 抵制美国职业棒球
-
-4月4日人口研究所所长史蒂文-摩西转推《大纪元》的一篇文章称：“清醒的伪君子公司抵制乔治亚州，拥护种族灭绝的#中国共产党。他们还自以为是地给我们讲‘价值观’”
-
-文章称，美国职业棒球联盟在延长并扩大了与一家中共国电信巨头的合同之后，抵制乔治亚州，原因是该联盟不同意该州民选州长和立法机构最近颁布的选举改革（持有效证件选举）。
-
-
-
-> [https://t.co/t8GCxAvVYd](https://t.co/t8GCxAvVYd)
-> 
-> Woke corporate hypocrites boycott Georgia while embracing the genocidal [#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hash&amp;ref_src=twsrc%5Etfw). 
-> And then they deign to lecture us on "values!"
-> — StevenWMosher @StevenMosher on Parler (@StevenWMosher) [April 4, 2021](https://twitter.com/StevenWMosher/status/1378799679362768899?ref_src=twsrc%5Etfw)
-
-
-！
-## 谁最污染环境
-
-4月3日凯尔巴斯先生推文：“中共国在2020年安装的燃煤电厂比欧洲大陆的全部装机容量还要多。还记得全球媒体称赞习近平的2060年碳中和计划吗？”
-
-人口研究所所长斯蒂夫-莫西转推：“无论美国在 “绿色能源 “上花了多少万亿美元，中共国将在可预见的未来继续燃烧百万吨肮脏的、含硫的煤炭。为什么Greta(瑞典倡导巴黎气候协议的女孩）不去中国？ 可能是因为他们不让她进入）。”
-
-
-
-> Regardless of how many trillions of dollars the U.S. spends on "green energy," [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) will continue to burn megatons of dirty, sulfur-laden coal for the foreseeable future.
-> Why doesn't Greta go to China? (Probably because they won't let her in.) [https://t.co/NJiISeiXMc](https://t.co/NJiISeiXMc)
-> — StevenWMosher @StevenMosher on Parler (@StevenWMosher) [April 4, 2021](https://twitter.com/StevenWMosher/status/1378805760591851523?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-## 轻松一刻
-
-班农战斗室媒体人Raheem今日转推一则英国媒体人Darren Grimes的推文视频，反映“左翼”面对不同旗帜的反应，从英国国旗，转到同性恋旗标、共产主义旗帜、欧盟旗、黑命贵拳头旗的不同反应，从厌恶到喜爱的夸张表情。
-
-
-
-
-
-> 😂🇬🇧 [pic.twitter.com/yDpYRTKJ7Y](https://t.co/yDpYRTKJ7Y)
-> — Darren Grimes (@darrengrimes\_) [April 4, 2021](https://twitter.com/darrengrimes_/status/1378771955906715648?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 复活节和清明节
-
-4月4日是的复活节，信手翻看美国总统、议员、政要、媒体人的推文，不难看到人们向上帝祷告，庆祝耶稣复活日的图文。在中共病毒依旧肆虐的今天，全世界各地很多人没有了往日热闹非凡的集市乐园、关闭了教堂祷告活动、有人觉醒着病毒已经让人们淡化了秉持信仰的意志、滋生的惰性和懈怠在悄无声息地夺去人们本来应该积极生活的风貌，有人依然被中共病毒所操控和洗脑。然而无论如何被政治操控、被利益集团左右，那些播种了文明价值观的人，秉持内心的信仰不会改变、追求正义和传统价值不会放弃。真正的斗争总是艰巨的，革命也会是曲折的，然而正义取胜、上帝掌权永不会改变。您可以延伸至各种信仰之下自己心中的守护神，愿正义大能之神佛永远陪伴爆料革命你我，愿神佛的国降临，愿神佛的旨意行在地上，如同行在天国；愿神佛的旨意行在文明世界，也行在灾难深重的中共国，普度苦难的中华同胞众生，早日战胜赤魔中共。
-
-同一时间的今天亚洲国家进入4月5日，中国传统的清明节。这一天人们祭祖扫墓、追远思亲。中共国大地无数为中共病毒丧生的冤魂、无数八九六四牺牲的民主先烈、无数在香港时代革命中捍卫自由民主和法制、如潮水涌动、英勇抗争、无惧牺牲的香港烈士们，中华大地多少冤魂亡灵，将和新生的新中国联邦人、与复活并永生的上天万佛万神一道聚能合力，消灭中共邪魔。
-
-
-
-> Happy Easter!! "He is not here; He has risen, just as He said." Matthew 28:6a [pic.twitter.com/k2IrpMEtXJ](https://t.co/k2IrpMEtXJ)
-> — Senator Doug Mastriano (@SenMastriano) [April 4, 2021](https://twitter.com/SenMastriano/status/1378709689903554567?ref_src=twsrc%5Etfw)
-
-
-马斯特安努议员推文：”死亡无法阻挡他”,”他不在这里，他已经复活了”。
-
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+*校对、发稿 文锦*
 
 0

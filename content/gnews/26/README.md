@@ -1,32 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄批准延长与美的太空协议
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1049949/)
+## 福奇最近日子不好过
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1049979/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-编辑 水星 上传 银河
+编辑 水星  上传 银河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/下载-10.png)gnews
+一直在暗中支持皮特达扎克上蹿下跳地反对天使闫博士的老贼福奇，近期在挺共问题上似乎收敛了许多。自从川普总统的CDC主任雷德菲尔德博士3月26日在CNN惊爆了中共病毒来自武汉实验室后【1】，惊慌失措的中共“责令”那些亲共人物、媒体（或者栏目）出面否认，媒体们依然用老贼福奇作挡箭牌，包括CNN。
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/图片4.png)Gnews
+回顾一下老贼曾经的表态，是那样坚决、肯定，“病毒出自武汉实验室是极大的阴谋论”等等【2】，但这次听上去不是那样理直气壮了，“雷德菲尔德博士提到的是一种见解，但同样，还有其他的观点——其他的，大多数人持有的”【3】，即使如此大转弯的口吻，还是被各亲共媒体企图用来抵消雷德菲尔德博士的影响，包括白宫发言人，（在回答记者有关雷德菲尔德博士问题时，表态还要关注其他人的观点，比如福奇）。【4】
 
+令笔者感到奇怪的是，3月28日CNN特别报导，“中共病毒战：疫情博士们如是说”两个小时的节目中【5】，对3月26日CNN报道中涉及的雷德菲尔德博士内容增加了更多，而老贼福奇的那番言论却没有听到、找到，是CNN给删掉了，还是老贼自己要求删掉的？
 
-04月03日，俄罗斯政府批准将莫斯科与华盛顿之间关于为和平目探索和利用外层空间的合作协议延长至2030年12月31日。相关文件发布在内阁的网站上。
+按天使闫博士和路德社透露，中共爪牙达扎克已被有关部门调查，或许也预感到了自己的危机，老贼福奇由大张旗鼓变得不动声色？
 
-“在交换外交照会后，将完成延期程序。”政府说。
+随着人们对中共的认识、对邪魔的认知程度不断提高，美国人对老贼的所作所为不会善罢甘休，在罪恶被充分曝光之前，人们已经开始了对老贼福奇的清算。
 
-俄罗斯总理米哈伊尔·米舒斯丁（Mikhail Mishustin）已指示外交部进行换文，必要时允许对所附草案稍作修改。
+格雷厄姆参议员周五抨击老贼福奇，称这位顶级传染病医生对中共病毒在边境移民中传播的风险熟视无睹。《福克斯新闻》的这篇文章也披露了拜登边境政策的失败，以及拜登与福奇之间的相互推诿。【6】
 
-俄罗斯和美国于1992年签署了和平探索和利用外层空间的合作协议，此后它已四次延期。
+马乔里·泰勒·格林（Marjorie Taylor Greene）众议员更是愤怒不已，提出一项题为“解雇福奇”新法案，以剥夺这位美国联邦最高工资雇员、中共病毒“之父”的国家过敏和传染病研究所所长的职位【7】。
 
-该文件是规范空间探索双边合作条件的主要法律文书之一。
+川普总统的顾问皮特·纳瓦罗先生上周在《福克斯新闻》称老贼福奇是中共病毒之父，指责他帮助中共国进行了病毒基因工程【8】。
 
-此前，美国太空部队司令约翰·雷蒙德将军在接受《纽约时报》采访时，对俄罗斯拥有能够干扰美国卫星运行的武器表示担忧。
-
-克里姆林宫称这些担忧是没有根据的。俄罗斯总统发言人德米特里·佩斯科夫说：“俄罗斯是一个和平的国家，重视俄美在太空方面的合作。”
+多行不义必自毙，老贼唯一的出路就是回归正义，揭露邪恶的中共，否则，不会有他的好下场！
 
 参考链接：
 
-[https://www.rbc.ru/rbcfreenews/606833f29a7947b62f2e7f0b](https://www.rbc.ru/rbcfreenews/606833f29a7947b62f2e7f0b)
+【1】https://gnews.org/zh-hans/1023905/
 
-0
+【2】[https://www.businessinsider.com/fauci-denies-wuhan-lab-conspiracy-theories-national-geographic-interview-2020-5](https://www.businessinsider.com/fauci-denies-wuhan-lab-conspiracy-theories-national-geographic-interview-2020-5)；
+
+【3】[https://edition.cnn.com/world/live-news/coronavirus-pandemic-vaccine-updates-03-26-21/h\_d2fe59849d042d0c63b7a9c4d4021a0d](https://edition.cnn.com/world/live-news/coronavirus-pandemic-vaccine-updates-03-26-21/h_d2fe59849d042d0c63b7a9c4d4021a0d)
+
+【4】[https://gnews.org/zh-hans/1032487/](https://gnews.org/zh-hans/1032487/)
+
+【5】https://gnews.org/zh-hant/1038363/
+
+【6】https://www.foxnews.com/politics/lindsey-graham-fauci-border-super-spreader
+
+【7】[https://twitter.com/RepMTG/status/1377647623339905035](https://twitter.com/RepMTG/status/1377647623339905035)
+
+【8】https://www.independent.co.uk/news/world/americas/us-politics/peter-navarro-fox-news-fauci-covid-b1824852.html
+
++2
