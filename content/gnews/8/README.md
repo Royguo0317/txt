@@ -1,34 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共对美发动“以钱灭美”的货币战争&nbsp; 是其“灭白计划”的一部分
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1052112/)
+## “中国人能呼吸吗？”
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1051960/)
 
-简述：郭先生在2021年4月4日深夜发布的盖特视频中，预告了4月5日直播将要讲的两个重要内容：中共怕人民过清明节暴露其病毒死亡真正人数，中共已经对美发动了“以钱灭美”的货币战争，也是其“灭白计划”的一部分。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210404-getter3.srt.txt)
-**中共对美发动“以钱灭美”的货币战争  是其“灭白计划”的一部分**
+```
+新闻来源：央视网
+发布日期：2021.04.05
+简评：斩草要除根
+```
 
-**CCP Launches a Currency War Against America as Part of Its “Extinction of the White People Plan”**
 
-我那个手机很多很多战友发来在国内去清明节，过清明节的感受，以及武汉很多战友说，武汉所有的墓地都是便衣警察，有的人想到十字路口烧纸被抓，火葬场旁边到处是警车。这到底为啥呢？你们就死了几百个人，你说你弄这干什么？然后现在他们真正的感受到了，冠状病毒死的人那可不是一个“0”，两个“0”的事儿了，更夸张的事情，战友们发现了很多的事情，我在这儿不说了吧，所以明天我的直播说说，很多战友让我要直播给大家聊聊，那我就聊聊吧。
+原文  [「马丁.路德.金的梦想仍是梦想，少数族裔在美国依然“不能呼吸”」](https://news.cctv.com/2021/04/05/ARTIUuacODCxNPEAkT0ebJjB210405.shtml?spm=C96370.PPDB2vhvSivD.ERPyWJCsPwT9.16)写到：当地时间4月4日，美国纽约市上万群众走上街头，抗议近期不断在纽约市和全美发生的针对亚裔的种族歧视及暴力事件，文中列举了枪击案、歧视亚裔的暴利案件等例子。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Img392305672-1-e1617648629828.jpg)封面来源：搜狐网站
+#### 简评：
 
-I received many messages from fellow fighters in mainland China, telling me their feelings about the Tomb-Sweeping Day. Many fellow fighters in Wuhan said there were undercover police everywhere in cemeteries. Some people wanted to burn some joss paper at street crosses, but were arrested. There were police cars everywhere close to crematoriums. Why? Isn’t it just a few hundred people died? Why do you need to do all these? Now they truly feel that the number of deaths from the coronavirus should have one or two more zeros at least. What’s more absurd is that our fellow fighters have found out many more things, which I can’t say now. I will talk about it on my broadcast tomorrow. Many fellow fighters asked me to broadcast and chat a little bit.
+**中共国此时自己头上正戴着一顶“对新疆实施种族灭绝人类罪”的帽子，却恬不知耻的指责美国的种族问题，实属下作不堪。在美国至少还可以申请抗议，而中共国里的百姓却连发声的机会都没有。**
 
-另外一个明天还聊一个重点，共产党啊..咱是以钱灭共，以毒灭共，共产党正在以钱灭美，在这之前我不能说，我要说了以后吧，他就不干了，他就不干了，美国人就不信，说咱造谣，胡说八道，是吧？现在美国人已经知道了，上一周美国人感受到了，啊..Miles,你说的有道理，他动了手了我再说，今天不搞重磅的重磅了，是吧，共产党以钱灭美咋灭的？他是灭白计划其中，他必须他要以钱灭美，以钱灭美就那几招儿，你们想听吗？咱明天上午9:30见。
+**文章还称“从美国民权运动领袖马丁·路德·金喊出“我有一个梦想”，到今天的“我无法呼吸”，已经过去了半个多世纪，并称53年后的4月4日这一天，种族歧视这一美国社会的顽疾远未治愈，人权问题堪忧。”从1949年到2021年中共掌控的72年间，仅依据官方的数据“土改”死亡400多万、“文革”死亡2千万、“大饥荒”死亡4千万、“计划生育”死亡至少4亿婴儿、因迫害法轮功死亡300多万，还有64屠城、镇压西藏……直到去年因武汉病毒而被隐瞒的死亡真实数据，随便哪一条拿出来都轮不到中共写这样的文章！**
 
-Another important thing that we will talk about tomorrow is that the CCP is planning to take down the U.S. with money [a currency war], as opposed to our taking down the CCP with financial activities and the truth about the virus. I didn’t say it earlier because if I exposed it prematurely, they might postpone or quit their plan, and then Americans would not believe me or even blame me for lying to them, right? Now Americans have been aware of it. It was last week. They said, “Miles, what you said makes sense, but we will wait for them to move first, then we will react.” So, there won’t be any bombshells for today, alright? How can the CCP take down the U.S. with a currency war? It’s part of their Extinction of the White People Plan. They will for sure implement their plan of taking down the U.S. with a currency war. They have only a few tricks. Do you want to hear? See you tomorrow at 9:30 AM.
+**快递、外卖小哥在骑行的路上被交警一脚踹下倒地的时候，他们是否“无法呼吸”？因P2P暴雷倾家荡产却无处伸冤的时候，他们是否“无法呼吸”？靠出卖苦力干着最脏的活，拿着最低的报酬的那群底层民众**，**是否“无法呼吸”？90岁还需要以捡垃圾、摆摊卖菜为生的他们，是否“无法呼吸”？在武汉及全国那些莫名失踪被怀疑摘取器官的年轻人的父母们，他们是否“无法呼吸”？还有还有…… 你没看到，是因为他们不想让你知道；你所看到的，是他们刻意想让你看到的。这个歹毒邪恶、天理不容的中共政府，因中共病毒而使全世界人民都必须带上口罩的今天，你的灭亡之日便是所有人的自由呼吸之时！**
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/606a6c2fdbc8001854a58991](https://gtv.org/getter/606a6c2fdbc8001854a58991) (00:40-2:15)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1050330/](https://gnews.org/zh-hans/1050330/)
+**原文来源链接：**🔗[马丁·路德·金的梦想仍是梦想 少数族裔在美国依然“不能呼吸”](https://news.cctv.com/2021/04/05/ARTIUuacODCxNPEAkT0ebJjB210405.shtml?spm=C96370.PPDB2vhvSivD.ERPyWJCsPwT9.16)
 
 * * *
 
-字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+***审核/校对：**Ting Guo*
+
+（免责声明：本文仅代表作者个人观点，跟GNEWS平台无关。）
 
 0
