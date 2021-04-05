@@ -1,62 +1,145 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭先生0403VII投资也好什么也好多看一个人过去做了什么
-` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1050165/)
+## 美国政要等每日重要信息0404.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1049869/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/02/封面-162.jpg)
-编辑整理：
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-华盛顿DC农场：Winner为自由而战（文祥）；纽约香草山农场：兰草（文泉）；日本东京方舟农场：山川异域
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
 
-郭文贵先生在[2021年4月3号 文贵直播：投资要把握时机，时间，实务；要具有常识，基本的辨别能力，逻辑关系；共产党是最大的流氓黑帮；以毒灭共到了关键时刻；全球联合歼灭共](https://gtv.org/video/id=606868a76e11a756edd63b0e)中谈到了被美国金融系统封杀的Coinbase玩得是什么狠招儿；谈到了成功投资必须具备的时间、时机、和时务三大要素；谈到了投资最大的第二元素是辨别能力和逻辑思维等内容，本系列将根据郭先生在直播中涉及的不同侧面逐一上传，以下为本系列第七部分也是本系列的终结篇——投资也好什么也好多看一个人过去做了什么
 
-据[2021年4月3号 文贵直播：投资要把握时机，时间，实务；要具有常识，基本的辨别能力，逻辑关系；共产党是最大的流氓黑帮；以毒灭共到了关键时刻；全球联合歼灭共](https://gtv.org/video/id=606868a76e11a756edd63b0e)时间点1：01：02——
+## 深挖中共病毒真相
 
-这时你要想到路德访谈、博士军团过去说要灭共的时候，大家觉得好像很滑稽，往后看三、四年，**还是我那句话投资也好、什么也好，多看一个人过去做过什么。**那像九指妖过去干啥的呢？是不是？找了个男人是倒贴的，最后把人踢出去了，生了个孩子就把人踹走了，然后手指头切了，然后她外遇手指头切了。切手指头、有了外遇、带着人家生的孩子到了美国来了，嫁给一个美国比她自己爹还大的人，然后拿了绿卡护照，然后给人看孩子，然后加入爆料革命，然后现在就成了代表上帝，你就可以给她写遗书，然后又可以代表自由和这些事情，她是有脑子有病。
+4月4日劳伦斯博士继前一天推文持续揭露中共病毒关键负责人，其用词和理论与爆料革命天使科学家闫博士步调一致。推文如下。
 
-你要看她过去做了什么，你看路德访谈、你看博士军团、你看我们闫丽梦博士天使，闫丽梦博士现在能走到今天，你看看我们救了这么多战友出来有多少人不同。人家闫丽梦博士从出来到现在，我真是从我所知道她从来没有休息过一天，她没停止过一天写东西、采访、去科学研究、数据研究、每天掌握病毒情况，她从来没休息过一天。我今天可以用我的一切来保证，这样的科学家她不是天使她是什么？
+中共军方正在研究 “脑控”病毒影响神经系统。中共的生物战计划与病毒脑效应之间的联系。陈伟（音译）&安婧（音译）曾在第三军医大学重庆分校共同工作。
 
-头两天有一堆人给她造绯闻说跟路德有男女关系了，我特严肃啊我也很天真，他俩在视频上，我说你俩必须严肃跟我说，你俩有没有这个男女关系？你俩有男女关系一定得跟我说，我没有资格管你们，你们爱有啥样关系我没资格管，但我个人七哥问你有没有，科学家那脸都歪哧了，科学家都快死了我觉得那个感觉，科学家说了好几句话，就觉得疯了开始，这绝对是不可能，她说我向你保证，拿生命保证绝对没有。然后路德说她能看得起我吗？不可能。这是造谣嘛是吧？但是我要核实。我说你俩要有咱有有的说法，呵呵，怎么可能。这是共产党的造谣，还有别有用心。
+#中共病毒 #超限生物武器 #COVID19病毒来源
 
-我为这件事情我还真认真地去了解去了，我给律师严肃认真地谈过这个问题，我说我没有资格管，我也没有权力管，但我们得了解。但是你知道人家我们律师说了什么吗？他说郭先生你从哪找到这么一个科学家哓？我就没见一个科学家到了一个这样的研究者闫丽梦啊。
 
-我们这个律师跟她见面的时候，他说现在科学家又瘦的，他说你不要让她减肥了，她太瘦了。我从开始她来到美国跟她接触到现在，他说真的她就不是个人，她就没有一天休息过，他说你甭说她跟路德有关系，她跟她先生有没有性关系过去我都怀疑，他说她就没有这个欲望。这个人说的时候两眼含着热泪这个老美这个大律师，原来是美国政府的高官，是我们现在的律师。是非常重要很关键的移民中的最重要的人物之一。含着泪说，他说这个科学家太不容易了。
 
-他说这个路德，你上哪找这么个路德呀？这几年了每天两期，你怎么干下来的他呀？旁边一堆律师眼含热泪。是不是，我们头一段时间就因为这个事，路德那房子送给他，律师说先停先停啊，了解了解这绯闻的事情再过户，然后我说现在你们可以过户了吧？赶快过吧，赶快给路德过去。这几天手续都办完了。
+> China's military is working on "brain control" [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) affects the nervous system. A link between CCP's biowarfare program & viral brain effects. Wei Chen & Jing An worked together at the 3rd Military Medical University Chongqing[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/rzYNObXCQK](https://t.co/rzYNObXCQK)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 4, 2021](https://twitter.com/LawrenceSellin/status/1378603088613945355?ref_src=twsrc%5Etfw)
 
-一个人要看一个人过去干了啥，（手机铃响），哟嗬，到时间了啊，大家看到科学家、路德、博士军团过去做这些事情得到了律师、科学界、专家界所有人的尊重和支持。你从过去可以能判断一个人未来能做什么。七哥过去这四、五年干了啥，你们都是跟你们一起度过的。你就可以判断我们爆料革命走到哪里。
 
-我们新中国联邦马上到一年了，一周年纪念。一周年纪念的时候大家想想，我们几年前没有冠状病毒的时候、没有香港事件的时候，香港、台湾还没有到这个情况的时候，美国总统还是川普的时候，现在已到拜登的时候，大家想想世界变成了什么样？我们变成了什么样？
 
-**新中国联邦是在过去一年里人类上所有全球第一次被全部停止运转的时候，我们诞生了就中国联邦，诞生了G系列！**你给我找出一个中国人是被中国政府打压以后在国外发展到现在这个样子，有我们千分之一规模你给我找一个；你给我找一个和共产党连续作战四、五年，到了海外以后能发展成这个样子的，能给中国人带来这个影响力的，你给我找一个；你给我找一个能到海外发展那么多年，在共产党全权的打压下、陷害的情况下，能让中国人活成这个样，在西方保护中国人的名誉、权利、安全、利益，把中国人和共产党分开，把中国共产党这个流氓以黑、以贪、以假、以警治国的这种丑恶罪行揭露在全世界，形成了对共产党全球灭共，你给我找一个，用这些一系列的事实。
 
-**看一看我们爆料革命战友出镜啥样？你看那九指妖这帮孙子，消失了连脸都不敢露了，看明白了吧？**好了，现在时间，咱得赶快给玛莎、还有老班长让路，《真人真事》节目做的特别好，上一次路德节目做得非常棒，但是很多国内的战友特别是被九指妖、VOG给欺骗的战友非常愤怒，觉得路德讲Sara讲得不真诚，还讲她是”Sara”，她是魔鬼！而且战友说我们当时也相信了路德呀投资了。我已经反应给路德了，路德就是很激动，路德说我那天没准备好，回头我再上节目，会再上《真人真事》。《真人真事》我估计未来要成为咱们的“60分钟”，还有北京中央电视台”焦点访谈”了，这玛莎了不滴了。
 
-咱们一起为七十五亿全世界人民、十四亿中国同胞、新中国联邦人，十四亿新中国联邦人，咱就这样代表、被代表了很多人啊！香港同胞、台湾同胞、西藏同胞、所有爆料革命的战友和家人们祈福(合十)。
+姜世勃，是#COVID19 弗林梅切位点病毒起源的关键一环，2007年从SARS开始，2013年基因改造插入了一个4aa 弗林梅切位点。2015年，一个S1-S2 弗林梅切位点出现在高福的SARS类冠状病毒 “愿望清单 “上。从这些文章中，关注军事链接。#CCP病毒 （#中共病毒）
 
-阿弥陀佛！
 
-这哨子还得吹一吹啊，( 吹哨)驱鬼，特别像在山里边吹这个，这个声音太响了。我这个是金的，（吹哨子）我这个是金的，我这个是金的！昨天我看着旧金山的明道收到了一排，羡慕死我了！我都没有，哎呀真是的。咱G-Fashion最近光买那个办公室给我打样子那些设备，我的妈呀买了这么多打样的设备，我的老天爷呀！但是真快乐啊！做fashion太快乐了！
 
-（郭先生与战友们互动）［“国产疫苗的内幕”，我不跟大家说了吗？过去说跟着共产党，走进火葬场。是吧！然后呢？现在是跟着共产党，你要是想害谁你就让他打疫苗去吧，是吧！你想害谁就让他打疫苗去吧。”免费接种疫苗”，只要是免费的一定不是好事儿，不管在哪国，在美国我觉得也一样，免费没什么好事，反正我从小就相信免费没好事儿］。哨子已经是编号已经没了，金的我不知道有没有了，反正是银的肯定没了那个编号了。
+> Shibo Jiang, a key link in the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) 's furin cleavage site (FCS), began with SARS in 2007, genetically inserted a 4aa FCS in 2013. In 2015, a S1-S2 FCS was on Gao Fu's "wish list" for SARS-like coronaviruses. From those articles, follow the military links.[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1h7wufTpzG](https://t.co/1h7wufTpzG)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 4, 2021](https://twitter.com/LawrenceSellin/status/1378725944098238472?ref_src=twsrc%5Etfw)
 
-（吹哨子）好了，兄弟姐妹们，今天的直播让路了，唔盖噻啦！让给玛莎、老班长、G-TV了。我一会儿我也去看去，边锻炼边看。兄弟姐妹们，今天是乱聊、乱聊、乱聊，常识、常识、时间、时机、实务，千万千万记住，还有一个共产党现在这个流氓文化、黑大哥文化，全世界谴责以毒灭共到了关键时刻，看人、看事儿要看过去、展望未来。中不中？中不中？中不中？撒由那拉！”嗯”，没有”哈”，不要担心啊，没有”嗯哼、嗯哼”。共产党坚决不喜欢帝国主义，但是到了西方全讲英文:嗯哼、嗯哼。。。哎哟，我的娘嘞！
 
-接上文——
 
-[郭先生0403I被美国金融系统封杀的Coinbase玩得是什么狠招](https://gnews.org/zh-hans/1049523/)
 
-[郭先生0403II成功投资必须具备的时间、时机和识时务三大要素](https://gnews.org/zh-hans/1049598/)
 
-[郭先生0403III投资最大的第二元素：辨别能力和逻辑思维](https://gnews.org/zh-hans/1049645/)
+## 揭露中共的顶级传染病专家—蝠奇
 
-[郭先生0403IV G-TV和所有的G系列现在都处于投资的最初始状态](https://gnews.org/zh-hans/1049673/)
+Arthur Schwartz推文：“中国共产党和蝠奇（Anthony Fauci)似乎总是站在同一条战线上 — 无能并且不诚实的一方。”
 
-[郭先生0403V共产党已经到了以贪、假、警、黑治党的地步](https://gnews.org/zh-hans/1049714/)
+推文附两则新闻截图，一幅来自中共国新华网称，“尽管这周得克萨斯和密西西比州已经放宽强制戴口罩和商业活动的限制，美国顶级传染病专家安东尼-蝠奇警告结束大流行病限制措施为时太早。”另一幅来自重磅新闻911的真实新闻，“自从得克萨斯州放宽强制戴口罩的政策3州以来，7天平均感染案例达到自去年6月以来最低记录。”
 
-[郭先生0403VI美国左派将跟随民意最终歼灭中共/GTV重建劝离不劝合](https://gnews.org/zh-hans/1050144/)
+译者议：蝠奇博士为什么不听听美国真正的新闻，反而与中共唱一出戏呢？他究竟是美国传染病顶级专家，还是中共传染病顶级代言人？闫博士转发了这一推文。
 
-\*\*\*\*\*\*\*全文完，下次直播再见\*\*\*\*\*\*\*
+
+
+> The Chinese Communist Party and Fauci always seem to be on the same side — the incompetent & dishonest side. [pic.twitter.com/BUZIWT3P8u](https://t.co/BUZIWT3P8u)
+> — Arthur Schwartz (@ArthurSchwartz) [April 4, 2021](https://twitter.com/ArthurSchwartz/status/1378789874405376001?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 2022冬奥会
+
+4月4日参议员瑞克-斯科特转发了3月23日写给奥委会的信，信中提出“不能给习总书记一个洗白罪行的平台”。他呼吁“奥委会站在自由和人权的立场上，和他一起将2022年冬奥会从共产党的中国移出”。
+
+他今日推文称：“国际奥委会赞助商们，现在是时候为的加入我的呼吁，将2022年奥运会从共产中国转移到一个尊重人权的国家：[信件链接](https://bit.ly/3rM072U)”
+
+
+
+> It’s time for the sponsors of the [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw) to join my call to move the 2022 games out of Communist China and to a nation that respects human rights: [https://t.co/KONHncEeEI](https://t.co/KONHncEeEI) [https://t.co/wbgBown59U](https://t.co/wbgBown59U)
+> — Rick Scott (@SenRickScott) [April 4, 2021](https://twitter.com/SenRickScott/status/1378805032133476356?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 抵制美国职业棒球
+
+4月4日人口研究所所长史蒂文-摩西转推《大纪元》的一篇文章称：“清醒的伪君子公司抵制乔治亚州，拥护种族灭绝的#中国共产党。他们还自以为是地给我们讲‘价值观’”
+
+文章称，美国职业棒球联盟在延长并扩大了与一家中共国电信巨头的合同之后，抵制乔治亚州，原因是该联盟不同意该州民选州长和立法机构最近颁布的选举改革（持有效证件选举）。
+
+
+
+> [https://t.co/t8GCxAvVYd](https://t.co/t8GCxAvVYd)
+> 
+> Woke corporate hypocrites boycott Georgia while embracing the genocidal [#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hash&amp;ref_src=twsrc%5Etfw). 
+> And then they deign to lecture us on "values!"
+> — StevenWMosher @StevenMosher on Parler (@StevenWMosher) [April 4, 2021](https://twitter.com/StevenWMosher/status/1378799679362768899?ref_src=twsrc%5Etfw)
+
+
+！
+## 谁最污染环境
+
+4月3日凯尔巴斯先生推文：“中共国在2020年安装的燃煤电厂比欧洲大陆的全部装机容量还要多。还记得全球媒体称赞习近平的2060年碳中和计划吗？”
+
+人口研究所所长斯蒂夫-莫西转推：“无论美国在 “绿色能源 “上花了多少万亿美元，中共国将在可预见的未来继续燃烧百万吨肮脏的、含硫的煤炭。为什么Greta(瑞典倡导巴黎气候协议的女孩）不去中国？ 可能是因为他们不让她进入）。”
+
+
+
+> Regardless of how many trillions of dollars the U.S. spends on "green energy," [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) will continue to burn megatons of dirty, sulfur-laden coal for the foreseeable future.
+> Why doesn't Greta go to China? (Probably because they won't let her in.) [https://t.co/NJiISeiXMc](https://t.co/NJiISeiXMc)
+> — StevenWMosher @StevenMosher on Parler (@StevenWMosher) [April 4, 2021](https://twitter.com/StevenWMosher/status/1378805760591851523?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+## 轻松一刻
+
+班农战斗室媒体人Raheem今日转推一则英国媒体人Darren Grimes的推文视频，反映“左翼”面对不同旗帜的反应，从英国国旗，转到同性恋旗标、共产主义旗帜、欧盟旗、黑命贵拳头旗的不同反应，从厌恶到喜爱的夸张表情。
+
+
+
+
+
+> 😂🇬🇧 [pic.twitter.com/yDpYRTKJ7Y](https://t.co/yDpYRTKJ7Y)
+> — Darren Grimes (@darrengrimes\_) [April 4, 2021](https://twitter.com/darrengrimes_/status/1378771955906715648?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 复活节和清明节
+
+4月4日是的复活节，信手翻看美国总统、议员、政要、媒体人的推文，不难看到人们向上帝祷告，庆祝耶稣复活日的图文。在中共病毒依旧肆虐的今天，全世界各地很多人没有了往日热闹非凡的集市乐园、关闭了教堂祷告活动、有人觉醒着病毒已经让人们淡化了秉持信仰的意志、滋生的惰性和懈怠在悄无声息地夺去人们本来应该积极生活的风貌，有人依然被中共病毒所操控和洗脑。然而无论如何被政治操控、被利益集团左右，那些播种了文明价值观的人，秉持内心的信仰不会改变、追求正义和传统价值不会放弃。真正的斗争总是艰巨的，革命也会是曲折的，然而正义取胜、上帝掌权永不会改变。您可以延伸至各种信仰之下自己心中的守护神，愿正义大能之神佛永远陪伴爆料革命你我，愿神佛的国降临，愿神佛的旨意行在地上，如同行在天国；愿神佛的旨意行在文明世界，也行在灾难深重的中共国，普度苦难的中华同胞众生，早日战胜赤魔中共。
+
+同一时间的今天亚洲国家进入4月5日，中国传统的清明节。这一天人们祭祖扫墓、追远思亲。中共国大地无数为中共病毒丧生的冤魂、无数八九六四牺牲的民主先烈、无数在香港时代革命中捍卫自由民主和法制、如潮水涌动、英勇抗争、无惧牺牲的香港烈士们，中华大地多少冤魂亡灵，将和新生的新中国联邦人、与复活并永生的上天万佛万神一道聚能合力，消灭中共邪魔。
+
+
+
+> Happy Easter!! "He is not here; He has risen, just as He said." Matthew 28:6a [pic.twitter.com/k2IrpMEtXJ](https://t.co/k2IrpMEtXJ)
+> — Senator Doug Mastriano (@SenMastriano) [April 4, 2021](https://twitter.com/SenMastriano/status/1378709689903554567?ref_src=twsrc%5Etfw)
+
+
+马斯特安努议员推文：”死亡无法阻挡他”,”他不在这里，他已经复活了”。
+
+
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
 0
