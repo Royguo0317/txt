@@ -1,67 +1,145 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【信仰之声】从四川三星堆文物解读华夏文明之渊源（一）
-` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1050054/)
+## 美国政要等每日重要信息0404.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1049869/)
 
-作者：纽约香草山福音部 文一
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
-
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
 
 
-一、老子曰：“一生二，二生三，三生万物。”
+## 深挖中共病毒真相
 
-在成都之北40公里，文川县之南100公里的地方有一个村镇，名三星堆，因为村边上有三个大土堆而得名。土堆为什么是三个？村名为什么叫三星？是模仿埃及金字塔？还是在见证《圣经》第一本书《创世纪》开门三句话所启示的“三而一”的造物主和救世主？在《圣经》中，晨星代表耶稣基督（子神）。
+4月4日劳伦斯博士继前一天推文持续揭露中共病毒关键负责人，其用词和理论与爆料革命天使科学家闫博士步调一致。推文如下。
 
-（创世纪 1:1-3）“1起初，　神（父神乃第一星）创造天地。2地是空虚混沌，渊面黑暗；　神的灵（灵神 乃 第二星）运行在水面上。3神说：‘要有光’，就有了光。”（神说的话就是道，道成了肉身就是子神基督，乃第三星）
+中共军方正在研究 “脑控”病毒影响神经系统。中共的生物战计划与病毒脑效应之间的联系。陈伟（音译）&安婧（音译）曾在第三军医大学重庆分校共同工作。
 
-自30年之前开始发掘这个几平方公里的古城遗址开始，考古人员发掘出诸多黄金、象牙、青铜之类的国宝级文物——这些既不像华夏文化，也无法靠现存文化解释。到目前为止，三星堆已发掘面积还未及总体的千分之一。有专家考证，该遗址建于至少3000年之前的夏商朝代；也有考古学家认证，其属于更久远的5000年之前的文明。三星堆遗址包含的文物材料罕见（不属于巴蜀材料），技艺精悍（远精于内地工艺）。更怪异的是，众多的考古学家无法解释诸多文物的用途和目的。但如果大家熟悉《旧约圣经》的故事，这些文物所述说的，又是如此的清晰可见。
-
-这些文物虽然无法解释巴蜀古国的先进文明为什么忽然消失并被掩埋于三星堆之下，但是这些文物可以清晰地证明华夏文明衍生于巴蜀文明，而巴蜀文明几乎完全由中东地域的文明迁徙而来。如同旧约文明的再现，这些文物述说着华夏神州乃是亚当、夏娃的后裔，甚至与游牧民族亚伯拉罕的后裔亦有所关联。这可能正是CCP政权所恐惧、所无法面对的原因吧。
-
-二、华夏文化无法解释的青铜神树
-
-![]()![](https://media.discordapp.net/attachments/798081578805755925/828403818835869776/42.png?width=405&amp;height=609)图源网络
-
-**技术**：这颗几米高的青铜神树，是解释三星堆巴蜀古国文明的起点，也是见证其与中东圣经文明相一致的根基。首先，该树的铸造和低温焊接技术，不要说中国近代没有传承，就是西方文明中也是在英国工业革命之后才被发明出来（本文注重文物的信仰精义，不以科学考古确据为主线，有兴趣者可以网上阅读此类文献）。为什么那么久古的巴蜀山地能够掌控如此精密的铸造、平衡、焊接技巧？莫非工匠们是从《创世纪》中土八的子孙传承而来的吗？
-
-（创世纪 4:22）“洗拉又生了土八·该隐；他是打造各样铜铁利器的（或译：是铜匠铁匠的祖师）。”
-
-**知识树和生命树**：哪里有神树的清晰记录呢？在《圣经·创世纪》的伊甸园里有两颗：一颗生命树，吃其果者长生不老；一颗知识树，吃其果者双眼明亮、能辨别善恶。耶和华神不允许始祖亚当、夏娃吃知识果，但是祖先却违反了造物主给人类的这仅有的一条律法。于是，罪进入始祖和他们的后裔，使他们都失去了永生，人类也被逐出伊甸园至今。莫非这是亚当、夏娃的后裔来到华夏巴蜀之地后，通过青铜技术来永久记录人类的起初家园吗？记录始祖所犯罪的知识树？还是纪念失去的生命树？
-
-**古蛇与龙**：这是青铜树应该是知识树的又一个例证。是谁诱惑始祖吃了知识果呢？是古蛇，古蛇就是龙（《启示录》），而这颗青桐树上恰恰盘悬着一条青龙，好像正张开大嘴引诱夏娃一样。中华文化中的蛇龙一类与《圣经》中的龙蛇一家真是不谋而合。从伊甸园中的古蛇，到启示录中的大红龙，都能看到与神为敌的CCP和其所信奉的共产主义的魔鬼象征。为什么巴蜀文明能够在华夏文明有文字记录之前，就用龙来描绘伊甸园中的古蛇呢？这岂不是证明，华夏原是神州，同时又证明，中国人自称为龙的传人跟源于始祖从伊甸园的堕落吗？
-
-**果子和鸟**：青铜树枝上有青铜花果，还有四层十个神鸟（顶层还待复原）。不但伊甸园中两颗树的果子代表永生和智慧，在新约中，耶稣基督也用“好树结好果子，坏树结坏果子”来判断人里面的生命。他还用大树和飞鸟安窝来比喻天国的扩增和成长。（路加福音 13:18-19）耶稣说：“　神的国好像甚么？我拿甚么来比较呢？ 好像一粒芥菜种，有人拿去种在园子里，长大成树，天上的飞鸟宿在它的枝上。”但愿三星堆众多文物的出土也像一粒芥菜种，在中华大地上大众的心灵里长出天国的大树，遮盖神州的每一个角落。
-
-至少有三千年历史的青铜树，横跨了旧约的伊甸园，到新约的基督国度，只等到当下这个时代才出土面世，这绝不是偶然。它开始向华夏大地在集权之下的每一个灵魂呼喊：你们要回归信仰之路，回归生命之道，归向新中国联邦，不要再次错过这个最后的全球信仰大复兴的时代。
-
-本文仅属个人对于三星堆文物的信仰解读，后文将继续介绍与《圣经》记载相一致的黄金的文明，青铜面具的奥秘，以及游牧民族的权杖等诸多神秘文物。
-
-（本文观点仅代表作者）
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-审核：灵性探索
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+#中共病毒 #超限生物武器 #COVID19病毒来源
 
 
 
-![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
+> China's military is working on "brain control" [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) affects the nervous system. A link between CCP's biowarfare program & viral brain effects. Wei Chen & Jing An worked together at the 3rd Military Medical University Chongqing[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/rzYNObXCQK](https://t.co/rzYNObXCQK)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 4, 2021](https://twitter.com/LawrenceSellin/status/1378603088613945355?ref_src=twsrc%5Etfw)
 
 
+
+
+
+姜世勃，是#COVID19 弗林梅切位点病毒起源的关键一环，2007年从SARS开始，2013年基因改造插入了一个4aa 弗林梅切位点。2015年，一个S1-S2 弗林梅切位点出现在高福的SARS类冠状病毒 “愿望清单 “上。从这些文章中，关注军事链接。#CCP病毒 （#中共病毒）
+
+
+
+> Shibo Jiang, a key link in the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) 's furin cleavage site (FCS), began with SARS in 2007, genetically inserted a 4aa FCS in 2013. In 2015, a S1-S2 FCS was on Gao Fu's "wish list" for SARS-like coronaviruses. From those articles, follow the military links.[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1h7wufTpzG](https://t.co/1h7wufTpzG)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 4, 2021](https://twitter.com/LawrenceSellin/status/1378725944098238472?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 揭露中共的顶级传染病专家—蝠奇
+
+Arthur Schwartz推文：“中国共产党和蝠奇（Anthony Fauci)似乎总是站在同一条战线上 — 无能并且不诚实的一方。”
+
+推文附两则新闻截图，一幅来自中共国新华网称，“尽管这周得克萨斯和密西西比州已经放宽强制戴口罩和商业活动的限制，美国顶级传染病专家安东尼-蝠奇警告结束大流行病限制措施为时太早。”另一幅来自重磅新闻911的真实新闻，“自从得克萨斯州放宽强制戴口罩的政策3州以来，7天平均感染案例达到自去年6月以来最低记录。”
+
+译者议：蝠奇博士为什么不听听美国真正的新闻，反而与中共唱一出戏呢？他究竟是美国传染病顶级专家，还是中共传染病顶级代言人？闫博士转发了这一推文。
+
+
+
+> The Chinese Communist Party and Fauci always seem to be on the same side — the incompetent & dishonest side. [pic.twitter.com/BUZIWT3P8u](https://t.co/BUZIWT3P8u)
+> — Arthur Schwartz (@ArthurSchwartz) [April 4, 2021](https://twitter.com/ArthurSchwartz/status/1378789874405376001?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 2022冬奥会
+
+4月4日参议员瑞克-斯科特转发了3月23日写给奥委会的信，信中提出“不能给习总书记一个洗白罪行的平台”。他呼吁“奥委会站在自由和人权的立场上，和他一起将2022年冬奥会从共产党的中国移出”。
+
+他今日推文称：“国际奥委会赞助商们，现在是时候为的加入我的呼吁，将2022年奥运会从共产中国转移到一个尊重人权的国家：[信件链接](https://bit.ly/3rM072U)”
+
+
+
+> It’s time for the sponsors of the [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw) to join my call to move the 2022 games out of Communist China and to a nation that respects human rights: [https://t.co/KONHncEeEI](https://t.co/KONHncEeEI) [https://t.co/wbgBown59U](https://t.co/wbgBown59U)
+> — Rick Scott (@SenRickScott) [April 4, 2021](https://twitter.com/SenRickScott/status/1378805032133476356?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 抵制美国职业棒球
+
+4月4日人口研究所所长史蒂文-摩西转推《大纪元》的一篇文章称：“清醒的伪君子公司抵制乔治亚州，拥护种族灭绝的#中国共产党。他们还自以为是地给我们讲‘价值观’”
+
+文章称，美国职业棒球联盟在延长并扩大了与一家中共国电信巨头的合同之后，抵制乔治亚州，原因是该联盟不同意该州民选州长和立法机构最近颁布的选举改革（持有效证件选举）。
+
+
+
+> [https://t.co/t8GCxAvVYd](https://t.co/t8GCxAvVYd)
+> 
+> Woke corporate hypocrites boycott Georgia while embracing the genocidal [#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hash&amp;ref_src=twsrc%5Etfw). 
+> And then they deign to lecture us on "values!"
+> — StevenWMosher @StevenMosher on Parler (@StevenWMosher) [April 4, 2021](https://twitter.com/StevenWMosher/status/1378799679362768899?ref_src=twsrc%5Etfw)
+
+
+！
+## 谁最污染环境
+
+4月3日凯尔巴斯先生推文：“中共国在2020年安装的燃煤电厂比欧洲大陆的全部装机容量还要多。还记得全球媒体称赞习近平的2060年碳中和计划吗？”
+
+人口研究所所长斯蒂夫-莫西转推：“无论美国在 “绿色能源 “上花了多少万亿美元，中共国将在可预见的未来继续燃烧百万吨肮脏的、含硫的煤炭。为什么Greta(瑞典倡导巴黎气候协议的女孩）不去中国？ 可能是因为他们不让她进入）。”
+
+
+
+> Regardless of how many trillions of dollars the U.S. spends on "green energy," [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) will continue to burn megatons of dirty, sulfur-laden coal for the foreseeable future.
+> Why doesn't Greta go to China? (Probably because they won't let her in.) [https://t.co/NJiISeiXMc](https://t.co/NJiISeiXMc)
+> — StevenWMosher @StevenMosher on Parler (@StevenWMosher) [April 4, 2021](https://twitter.com/StevenWMosher/status/1378805760591851523?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+## 轻松一刻
+
+班农战斗室媒体人Raheem今日转推一则英国媒体人Darren Grimes的推文视频，反映“左翼”面对不同旗帜的反应，从英国国旗，转到同性恋旗标、共产主义旗帜、欧盟旗、黑命贵拳头旗的不同反应，从厌恶到喜爱的夸张表情。
+
+
+
+
+
+> 😂🇬🇧 [pic.twitter.com/yDpYRTKJ7Y](https://t.co/yDpYRTKJ7Y)
+> — Darren Grimes (@darrengrimes\_) [April 4, 2021](https://twitter.com/darrengrimes_/status/1378771955906715648?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 复活节和清明节
+
+4月4日是的复活节，信手翻看美国总统、议员、政要、媒体人的推文，不难看到人们向上帝祷告，庆祝耶稣复活日的图文。在中共病毒依旧肆虐的今天，全世界各地很多人没有了往日热闹非凡的集市乐园、关闭了教堂祷告活动、有人觉醒着病毒已经让人们淡化了秉持信仰的意志、滋生的惰性和懈怠在悄无声息地夺去人们本来应该积极生活的风貌，有人依然被中共病毒所操控和洗脑。然而无论如何被政治操控、被利益集团左右，那些播种了文明价值观的人，秉持内心的信仰不会改变、追求正义和传统价值不会放弃。真正的斗争总是艰巨的，革命也会是曲折的，然而正义取胜、上帝掌权永不会改变。您可以延伸至各种信仰之下自己心中的守护神，愿正义大能之神佛永远陪伴爆料革命你我，愿神佛的国降临，愿神佛的旨意行在地上，如同行在天国；愿神佛的旨意行在文明世界，也行在灾难深重的中共国，普度苦难的中华同胞众生，早日战胜赤魔中共。
+
+同一时间的今天亚洲国家进入4月5日，中国传统的清明节。这一天人们祭祖扫墓、追远思亲。中共国大地无数为中共病毒丧生的冤魂、无数八九六四牺牲的民主先烈、无数在香港时代革命中捍卫自由民主和法制、如潮水涌动、英勇抗争、无惧牺牲的香港烈士们，中华大地多少冤魂亡灵，将和新生的新中国联邦人、与复活并永生的上天万佛万神一道聚能合力，消灭中共邪魔。
+
+
+
+> Happy Easter!! "He is not here; He has risen, just as He said." Matthew 28:6a [pic.twitter.com/k2IrpMEtXJ](https://t.co/k2IrpMEtXJ)
+> — Senator Doug Mastriano (@SenMastriano) [April 4, 2021](https://twitter.com/SenMastriano/status/1378709689903554567?ref_src=twsrc%5Etfw)
+
+
+马斯特安努议员推文：”死亡无法阻挡他”,”他不在这里，他已经复活了”。
+
+
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
 0
