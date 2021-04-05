@@ -1,47 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 香港同胞的前世今生
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1051953/)
+## 中共对美发动“以钱灭美”的货币战争&nbsp; 是其“灭白计划”的一部分
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1052112/)
 
-#### 翻译者：Grace | 责编：人间四月
-![]()![](https://gnews.org/wp-content/uploads/2021/04/capture-2.jpg)图片来源：[theprint.in](https://theprint.in/world/hong-kong-bans-protest-movements-rallying-cry-for-revolution/453580/)
-黄肯特（Kent Wong）在洛杉矶时报里发表了一篇文章，讲述他对香港的过去和现在的复杂感情。在文章开头，他说自己虽然几十年来到过世界上很多地方，但只有每次离开香港时，会产生一种说不出的想要回去的渴望。他原本计划在疫情过后去香港，但随着黑暗降临到这座城市，这似乎是不可能的。现在，即使作为美国公民，他也不敢再去香港了。
+简述：郭先生在2021年4月4日深夜发布的盖特视频中，预告了4月5日直播将要讲的两个重要内容：中共怕人民过清明节暴露其病毒死亡真正人数，中共已经对美发动了“以钱灭美”的货币战争，也是其“灭白计划”的一部分。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210404-getter3.srt.txt)
+**中共对美发动“以钱灭美”的货币战争  是其“灭白计划”的一部分**
 
-黄肯特告诉读者，1949年毛泽东接管中共国时，他父亲在台湾驻香港海关工作。1950年，他的父亲参加了爱国起义，带着他们全家来到中共国，帮助新成立的中共国。
+**CCP Launches a Currency War Against America as Part of Its “Extinction of the White People Plan”**
 
-但是在后来由毛泽东发动的 “大跃进 “运动中，他的父亲被作为 “走资派右派 “遭到批判和惩罚。也因为这样，黄肯特在 “文革 “中被称为 “小杂种”，还被下放到边远农村被农民再教育。在经历了三年的苦役后，在他目睹了一批又一批的 “反革命分子 “被公开处决后，他决定逃到香港——一个会接纳他和千千万万像他一样的人的应许之地。
+我那个手机很多很多战友发来在国内去清明节，过清明节的感受，以及武汉很多战友说，武汉所有的墓地都是便衣警察，有的人想到十字路口烧纸被抓，火葬场旁边到处是警车。这到底为啥呢？你们就死了几百个人，你说你弄这干什么？然后现在他们真正的感受到了，冠状病毒死的人那可不是一个“0”，两个“0”的事儿了，更夸张的事情，战友们发现了很多的事情，我在这儿不说了吧，所以明天我的直播说说，很多战友让我要直播给大家聊聊，那我就聊聊吧。
 
-黄肯特讲述到，当他还是70年代的年轻人的时候，在中共国文化大革命和毛泽东统治下的最黑暗的岁月里，他和成千上万绝望的中国人一起，愿意冒着生命危险去争取自由。他加入了数十万绝望的中国人的行列，冒着生命危险去获得自由。在春末秋初之间，在夜里，他们翻山越岭到达海边，从那里游过水面，根据路线游了长达六英里，到达香港。
+I received many messages from fellow fighters in mainland China, telling me their feelings about the Tomb-Sweeping Day. Many fellow fighters in Wuhan said there were undercover police everywhere in cemeteries. Some people wanted to burn some joss paper at street crosses, but were arrested. There were police cars everywhere close to crematoriums. Why? Isn’t it just a few hundred people died? Why do you need to do all these? Now they truly feel that the number of deaths from the coronavirus should have one or two more zeros at least. What’s more absurd is that our fellow fighters have found out many more things, which I can’t say now. I will talk about it on my broadcast tomorrow. Many fellow fighters asked me to broadcast and chat a little bit.
 
-1972年，他第一次尝试时，在海边被解放军士兵抓住。一年后，他在波涛汹涌的海面上挣扎了八个小时后，在香港附近被中共国的渔民抓住。呛着海水，他想到了死亡，但他一直提醒自己：”为了我的母亲、父亲和我自己，我一定要到达香港！”数千名自由泳者死于水中，其中有3人是他的朋友。当他第三次尝试踏上香港的土地时，他相信他已经到了天堂。
+另外一个明天还聊一个重点，共产党啊..咱是以钱灭共，以毒灭共，共产党正在以钱灭美，在这之前我不能说，我要说了以后吧，他就不干了，他就不干了，美国人就不信，说咱造谣，胡说八道，是吧？现在美国人已经知道了，上一周美国人感受到了，啊..Miles,你说的有道理，他动了手了我再说，今天不搞重磅的重磅了，是吧，共产党以钱灭美咋灭的？他是灭白计划其中，他必须他要以钱灭美，以钱灭美就那几招儿，你们想听吗？咱明天上午9:30见。
 
-黄肯特强调，当时，香港有中共国所没有的一切：耀眼的霓虹灯，清晨穿着整齐的商务人士穿行于拥挤的摩天大楼，午夜时分熙熙攘攘的电影院播放着打折的好莱坞电影。香港人骄傲地宣称：”香港永远不睡觉！”香港不夜城！” 他的心也欢呼着，”香港是东方之珠！”
+Another important thing that we will talk about tomorrow is that the CCP is planning to take down the U.S. with money [a currency war], as opposed to our taking down the CCP with financial activities and the truth about the virus. I didn’t say it earlier because if I exposed it prematurely, they might postpone or quit their plan, and then Americans would not believe me or even blame me for lying to them, right? Now Americans have been aware of it. It was last week. They said, “Miles, what you said makes sense, but we will wait for them to move first, then we will react.” So, there won’t be any bombshells for today, alright? How can the CCP take down the U.S. with a currency war? It’s part of their Extinction of the White People Plan. They will for sure implement their plan of taking down the U.S. with a currency war. They have only a few tricks. Do you want to hear? See you tomorrow at 9:30 AM.
 
-他还提到，1975年去美国后，多次回香港。2014年黄雨伞运动的时候，他也在香港。他看到香港同胞在抗议中共对香港行政长官候选人选举的干预，这在《基本法》中是没有的。他认为这是一个奇怪的政治场面。学生们用雨伞不是为了应对不可预知的亚热带雨，而是为了躲避警察的催泪弹。学生们在中环、商业区的主要街道上搭起帐篷，以引起市民的注意。
-
-黄肯特还观察到中环外的生活似乎再正常不过。他与多个小店主，包括在中环内的小店主交谈。 让他惊讶的是，这些店主对学生的支持几乎一致，他没有听到一个直接批评学生的声音。当他询问一位出租车司机对于这些抗议的学生群体有什么看法时，这位出租车司机告诉他自由选举绝不会产生一个由中共国任命的行政长官。
-
-黄肯特认为，香港的学生是理想主义的，是积极向上的，是充满生机的。香港居民满街游行，要求改变，抗议中共利用篡改历史教科书进行洗脑宣传，支持香港的《基本法》。《基本法》本应保护香港自治至2047年，但已被中共严重破坏。
-
-他还表明，在过去的一年里，中共国对香港民主的扼杀，包括最近对47名活动人士的指控和对选举规则的改写，都刺痛了他的心，因为对他和成千上万的中国人来说，香港不仅仅是一座城市，更是一座灯塔。
-
-他在文章中罗列了这些事件：在1950年，中共国通过武装入侵 “和平解放 “西藏；1989年，世界见证了天安门广场大屠杀时，一个年轻人孤身一人挡住坦克的画面；如今，已经有140个国家加入了中共国的 “一带一路 “倡议，该倡议贯穿了维吾尔族所在的新疆，然而只有39个国家谴责中共对维吾尔人的种族灭绝。黄肯特觉得，中共国已经赢了。它将继续利用其软实力，也就是勤劳而仍然廉价的劳动力和不断上升的消费者购买力，和硬实力，以及支持和捍卫其每一个行动的中共国铁杆民族主义者和互联网义务管理员的全球网络，来最终战胜世界上的民主国家。。
-
-另外，他认为中共国日益增长的主导地位应该让每一个民主国家，甚至是他自己的国家感到恐惧。他推断，现在，自毛泽东以来最有野心的独裁领导人已经就位，中共的下一个目标就有可能是台湾。而在台湾之后，拥有强大经济实力的中共国可能就会成为一个真正的全球帝国。
-
-而香港呢？黄肯特认为那个曾经在他心中是他的天堂的香港，现在却被中共永远消失了！
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/606a6c2fdbc8001854a58991](https://gtv.org/getter/606a6c2fdbc8001854a58991) (00:40-2:15)
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1050330/](https://gnews.org/zh-hans/1050330/)
 
 * * *
 
-评论：黄肯特的这篇报道，讲述了他所经历过，所看到过的关于香港的故事。从他的这篇文章中，读者可以看到中共的假，骗，黑，恶在它成立的时候就已经存在了。无数个善良的中国同胞就像他的父亲一样，一开始就已经被中共利用，然后遭受了其毒害。
-
-他告诉读者香港曾经是繁荣的，曾经是中国人心目中的民主灯塔。但是在香港回归中共国之后，在2014年，香港的学生却要用雨伞来守护香港的民主。或许有的读者跟我一样会疑惑，为什么他的这篇文章中没有提到2020年的由学生组织的轰动全世界的反送中运动？为什么他没有提到在这场运动中无数的被中共残酷，冷血的孽待的香港学生？为什么他更没有提到这一代的香港学生要遭受这一切的原因？是因为他不赞同这样的做法？还是因为他不敢提及？
-
-他认为香港的民主已经被中共消失了，民主国家应该为中共国日益增长的主导地位而感到恐惧。请问，恐惧能阻止中共要统治控制全世界的野心吗？香港同胞，中国同胞在过去的几十年里，无论是穷的还是富的，在中共的统治下感到恐惧的日子还不够多吗？恐惧有用吗？难道全世界还不应该向香港的学生一样站起来反共吗？都要在恐惧中等待着被中共灭吗？不是的，我们不能再逃避了，我们都要站起来灭共，不然，即使在海外，我们的下一代也会遭受到比香港孩子更惨的状况。灭共是我们这代人保护后代人的使命。这是唯一能够保障我们的子孙以后有自由，民主，法治的出路。郭先生曾经说过类似的话，如果民主的国家都不参与灭共，全世界将出现了无数个香港。没有香港同胞的反抗，香港已经是死港，虽然香港现在已经失去了自由，民主，但是香港同胞仍然没有放弃斗争，香港是我们的圣城。
-
-
-
-&gt;&gt;原报道来源&gt;&gt; [Op-Ed: My Hong Kong is now a paradise lost](https://www.latimes.com/opinion/story/2021-03-28/hong-kong-freedom-swimmers-china-cultural-revolution)
+字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0

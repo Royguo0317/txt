@@ -1,152 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国病毒调查负责人：新冠病毒来自中共实验室
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1049130/)
+## 华盛顿飘荡着一种不安情绪&nbsp; 说冠状病毒一定会再来而且更夸张
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1051678/)
 
-新闻来源：《每日邮报（DailyMail）》| 作者：IAN BIRRELL 伊恩·比雷尔 | 发布时间：2021年3月28日
-翻译/简评：clau | 校对/审核：万人往 | Page：Daoiii
+简述：在2021年4月2日的盖特视频中，郭先生说华盛顿的朋友透露说，“美国在华盛顿，飘荡着一种不安的情绪，说冠状病毒一定会再来的，而且一定会是更加夸张”。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210402-getter1.srt.txt)
+**华盛顿飘荡着一种不安情绪  说冠状病毒一定会再来而且更夸张**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/xnOZND5QU1YWA/images/8bc4f0d3-fd04-4aca-8c60-d7b97f55e6bb.jpg?asset_id=25e244e4-c444-42e7-a701-6bb2638d2b56&amp;img_etag=%22dc8b258f497696ce8b73c501e5aa08d5%22&amp;size=1024)](https://spark.adobe.com/page/xnOZND5QU1YWA/images/8bc4f0d3-fd04-4aca-8c60-d7b97f55e6bb.jpg?asset_id=25e244e4-c444-42e7-a701-6bb2638d2b56&amp;img_etag=%22dc8b258f497696ce8b73c501e5aa08d5%22&amp;size=1024)
+**It’s Said in Washington D. C. that the Virus Will Come Back for Sure and Even More Ferociously**
 
-***简评：***
+我刚刚在录这个视频盖特之前，我和华盛顿的两个咱们的好朋友，我别说是谁了，通话。他说现在美国在华盛顿，飘荡着一种不安的情绪，说冠状病毒一定会再来的，而且一定会是更加夸张。很多人都害怕，要搬离华盛顿，很多纽约，像洛杉矶很多有钱人，更多人都要搬离，这一段跃跃欲试想回来的人，也都想撤回去了。
 
-**大卫·阿舍是哈德逊研究所和新美国安全中心的高级研究员，同时领导了美国国务院调查新冠病毒起源的工作。近期接受媒体采访时，他明确指出，新冠病毒来自于中共国（军方）实验室的可能性非常大，是唯一合理的源头。他使用了一系列的直接证据、间接证据以及机密情报来佐证自己的观点。世卫组织编写的调查报告已经被扔进垃圾桶，不被承认。新冠病毒就是CCP病毒，这一结论已基本坐实，难以反驳。**
+Right before I started recording this Getter video, I talked over the phone with two friends of ours in Washington D.C., whom I don’t want to name. He said that there is this feeling of uneasiness which can be sensed in the air in Washington D.C. It’s said that the virus will come back for sure, and even more ferociously. Many people are anxious and plan to move out of Washington D.C. Many rich people in New York City and Los Angelos are moving out too. People who planed to move back previously are now turning back.
 
-**全球以毒灭共进入一轮新的高潮，各国开始用各种方式向中共施加压力和追责。美国作为受害最严重的国家，自然走在最前面。前美国疾病控制和预防中心主任、病毒学家罗伯特·雷德菲尔德接受CNN《60分钟》节目采访时谈到，他认为病毒最可能的起源“是来自2019年秋季的实验室泄漏”。 结合阿舍博士最近接受福克斯电视台以及其他纸媒的采访，表明美国两党在就新冠病毒向中共追责这一问题上基本达成了一致，大的趋势已经不可逆，仅存的障碍被扫除也只是时间问题。**
+所以说这个病毒对大家的威胁，它不分高低，不分男女，不分穷人和富人。共产党干了一件事，不分高低左右的，干了一把，就是冠状病毒。所以说是毒主啊，毒主，共产党非它莫属了。
 
-**在这个关键的时间节点，爆料革命的英雄科学家们——闫丽梦博士及其团队——推出了第三份报告，闫博士接受了NEWSMAX的电视采访，往全球以毒灭共的发动机里面又注入了新的燃料。闫博士点对点有针对性地回复、反驳了之前对其报告提出质疑的“审稿人”，可以说是把这些所谓的大咖们按在地上摩擦，让他们毫无还手之力。看完第三份报告，真不知道这些出卖灵魂的人还能如何回应正义的声音。一切都还在发酵之中，让我们等待美国政府《病毒白皮书》的发布，一切已经开始！**
+So, the virus threatens everybody and can’t differentiate lower-class people from the higher-class people, males from females, or the rich from the poor. The CCP has really done one thing that can affect everyone – the CCP virus! So, the CCP is the owner of the virus. “Owner of the virus” – the CCP definitely deserves this title.
 
-[!\[\]()!\[\](https://spark.adobe.com/page/xnOZND5QU1YWA/images/142deb79-f13b-4081-af59-2cf22d87dec9.jpg?asset_id=5dfade49-c1da-451d-bfba-925c18955798&amp;img_etag=%22e3125448fbcab82a435c521384335535%22&amp;size=1024)](https://spark.adobe.com/page/xnOZND5QU1YWA/images/142deb79-f13b-4081-af59-2cf22d87dec9.jpg?asset_id=5dfade49-c1da-451d-bfba-925c18955798&amp;img_etag=%22e3125448fbcab82a435c521384335535%22&amp;size=1024)
+另外一个共产党，他们也掌握情况，中国的经济一塌糊涂。他说这个中国经济还能撑多长时间啊？我说我要跟你说撑三年，你信吗？他说，我不信。那不就完了嘛？三年以内嘛。
 
-***原文翻译：***
+They have also been aware that the CCP’s economy is in a mess. He asked how long it will take for the Chinese economy to collapse? I said, “If I say the economy may hold for another three years, will you believe me?” He said, “No, I won’t.” That’s right. Of course it will collapse within three years.
 
-## “实验室泄密并不是100%确定，但这似乎是新冠病毒的唯一逻辑来源。”领导病毒原因调查的华盛顿专家透露，2019年11月，三名武汉实验室科学家被感染
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60671f1c49339063d0621446](https://gtv.org/getter/60671f1c49339063d0621446) (00:12-1:16)
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1045303/](https://gnews.org/zh-hans/1045303/)
 
-- 大卫·阿舍（David Asher）说，据信科学家们在2019年11月被感染。
-- 他说，“很难断定 ”一定是新冠病毒，但似乎 “极有可能”。
-- 根据一个与中共国关系良好的外国政府提供的“可靠”信息，一名研究人员的妻子于当月晚些时候去世，阿舍补充道。
+* * *
 
-
-据美国调查新冠大流行起源的首席调查员说，在中共国政府承认他们的城市爆发了一种新病毒之前，来自中共国武汉的秘密实验室的一批研究人员至少在六周前因 “新冠病毒样”症状而生病。
-
-领导美国国务院调查新冠病毒起源的大卫·阿舍告诉《星期日邮报》，据信三名科学家在2019年11月的第2周患上了这种神秘的呼吸道疾病。
-
-他说：“有人怀疑——有充分的理由——11月最初的患病人群与武汉病毒学研究所联系在一起，人们开始住院。”
-
-“很难断定肯定是新冠病毒，但可能性很高。”
-
-[!\[\]()!\[\](https://spark.adobe.com/page/xnOZND5QU1YWA/images/7619d938-eb32-4d42-9ec2-8de5bc7e799e.png?asset_id=df977518-add8-421d-9e3a-5d5ccf48d60a&amp;img_etag=%22f3cfff2fada97d1aee1deb3636550cf6%22&amp;size=2560)](https://spark.adobe.com/page/xnOZND5QU1YWA/images/7619d938-eb32-4d42-9ec2-8de5bc7e799e.png?asset_id=df977518-add8-421d-9e3a-5d5ccf48d60a&amp;img_etag=%22f3cfff2fada97d1aee1deb3636550cf6%22&amp;size=1024)
-
-据美国调查新冠大流行起源的首席调查员说，在中共国政府承认他们的城市爆发了一种新病毒之前，来自中共国武汉的秘密实验室的一批研究人员至少在六周前因 “新冠病毒样 ”症状而生病。
-
-根据一个与中共国关系良好的外国政府提供的“可靠”信息，一名研究人员的妻子于当月晚些时候去世，阿舍补充道。
-
-这是一个明显的人传人的迹象——然而，北京直到去年1月中旬才向世界卫生组织确认这一关键事实，那时冠状病毒已经在中共国传播开了，然后开始在地球上蔓延。
-
-“在12月甚至更早的时候，中共的人已经知道他们手上存在一个问题了，一种神秘的冠状病毒在武汉传播。”阿舍说，并补充说，还可能有未识别的更早的感染人群。
-
-***这张地图是否揭示了一条诱人的新线索？***
-
-《自然》杂志上发表的这幅研究地图，能否为我们提供一个关于新冠病毒起源的启示？
-
-它展示了去年5月——武汉市解除封锁一个月后——对近1000万名6岁以上武汉居民的检测结果，并显示了检测出的无症状病例的数量。
-
-感染率最高的地区为红色，不出所料主要集中在长江边人口密集的市中心区，橙色和黄色的区域感染率较低，江对岸是海鲜市场的所在地，而海鲜市场原本就被怀疑是疾病爆发的中心。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/xnOZND5QU1YWA/images/868e33b1-f5c7-4660-8438-f2c1d4d17440.png?asset_id=6d6248b4-3044-4e27-927c-0bfca1541c72&amp;img_etag=%22c5a7f85ff0d98d8f8cb0c24345eb6308%22&amp;size=2560)](https://spark.adobe.com/page/xnOZND5QU1YWA/images/868e33b1-f5c7-4660-8438-f2c1d4d17440.png?asset_id=6d6248b4-3044-4e27-927c-0bfca1541c72&amp;img_etag=%22c5a7f85ff0d98d8f8cb0c24345eb6308%22&amp;size=1024)
-
-《自然》杂志上发表的这幅研究地图，能否为我们提供一个关于新冠病毒起源的启示？
-
-然而，这张地图，来自于中国和英国科学家的论文，地图上用红色显示了一个孤立的区域，其感染水平至少是它周围江夏区域的三倍。
-
-武汉病毒研究所位于此处，一个研究冠状病毒的实验室。
-
-一位怀疑是实验室泄漏的疫苗专家说，这个“美丽的建筑”可能是大家一切怀疑的源头。
-
-但也有人谨慎的给出建议，提出附近一家大医院也可能呈现出高感染率。
-
-他说，作为冠状病毒的世界专家，中共国的人“一定知道”这不是普通的流感。
-
-“如果他们没有掩盖人与人之间的传播，全世界数百万人就不会死亡。”他补充说。
-
-阿舍曾在民主党和共和党总统手下任职，他此前曾领导美国对伊朗、朝鲜和巴基斯坦的生物、化学和核扩散进行调查，并追踪伊斯兰国和贩毒集团首领的财务状况。
-
-他还说：“如果中国人不说出真相，或者我们不理清这场灾难，这会是人类社会历史上最大的失败之一。”
-
-“他们在武汉进行了一系列令人震惊的危险实验，研究高致病性的人工改造的冠状类病毒。”
-
-“并不能百分之百确定是实验室泄漏，但现阶段看来，这是唯一合理的源头。”
-
-“如果发生了意外，并不意味着要结束与中国的关系，但我们必须了解他们社会的本质，为何让这种情况发生，并对生物技术实施新的控制，因为我们已经看到它对世界的危险性。”
-
-阿舍的评论加剧了人们对中共国可能在掩盖实验室事故的担忧，而越来越多的人要求认真对待这一建议。
-
-起初，许多顶尖科学家将这一观点视为“阴谋论”，指出是来自动物的某种自然传播。
-
-但直到今年早些时候，时任美国疾病控制和预防中心主任、病毒学家罗伯特·雷德菲尔德（Robert Redfield）告诉今晚将在美国播出的《60分钟》纪录片，他认为最可能的起源“是来自2019年秋季的实验室泄漏”。
-
-他说，“实验室的工作人员被正在研究的呼吸道病原体感染并不罕见。”
-
-他认为，这种适应性良好的疾病的自然传播的在生物学上说不通。
-
-“我不相信这是莫名其妙地从蝙蝠传到人身上的，与此同时，这个病毒……成为我们所知道的最具传染性的、能在人与人之间传播的病毒之一。”
-
-武汉是几个重要实验室的所在地，其中包括中国唯一一个具有顶级生物安全的研究中心，专家们在那里进行了关于蝙蝠冠状病毒的风险实验，批评者长期以来担心这些实验可能会引发一场大流行病。
-
-阿舍还被指派调查武汉生物制品研究所，一个由武汉病毒研究所与中国国药集团联合建立的相邻的实验室，国药集团一直被认为在研究针对所有冠状病毒的疫苗。
-
-耐人寻味的是，国药集团首席执行官余庆明在接受采访时透露，中共国如何在去年2月25日批准 “有条件销售 ”其公司的疫苗，以及公司高管在去年3月接种了疫苗。
-
-阿舍的调查紧跟美国国务院今年早些时候发布公告，该公告称，2019年秋季 ，“几名 ”武汉病毒研究所的研究人员出现了 “与新冠病毒以及常见季节性疾病一致的症状。
-
-该公告还指责武汉病毒研究所“至少自2017年以来”代表人民解放军进行“秘密军事活动”和秘密研究，包括动物实验。
-[!\[\]()!\[\](https://spark.adobe.com/page/xnOZND5QU1YWA/images/20d7e9d0-1d31-4c0f-811a-191e91cc80c6.png?asset_id=1986c30d-ff4a-44d7-b082-b5f1e3fa774d&amp;img_etag=%22bb1875f19434f9899033fd6f1eb5e140%22&amp;size=2560)](https://spark.adobe.com/page/xnOZND5QU1YWA/images/20d7e9d0-1d31-4c0f-811a-191e91cc80c6.png?asset_id=1986c30d-ff4a-44d7-b082-b5f1e3fa774d&amp;img_etag=%22bb1875f19434f9899033fd6f1eb5e140%22&amp;size=1024)
-2019 领导美国国务院调查新冠病毒起源的大卫·阿舍告诉《星期日邮报》，据信三名科学家在2019年11月的第2周患上了这种神秘的呼吸道疾病。
-
-华盛顿消息人士指出，拜登政府与英国政府一样，对实验室泄密假说的信服度低于川普政府，尽管两国都对世卫组织对疫情起源的调查感到失望，因为世卫组织将大部分控制权让给了中共国。
-
-荷兰病毒学家玛丽安·库普曼斯（Marion Koopmans）是世卫组织团队的成员之一，她承认中共国曾告诉他们，在武汉工作并研究冠状病毒的 “一两个 ”研究人员在秋季生病——但随后又坚持认为这是正常的。她否认这是实验室泄漏，因为中共国官员告诉他们，这些科学家后来对新冠病毒的检测呈阴性。
-
-北京当局正在推动未经证实的理论，即该病毒可能由进口冷冻食品输入，并声称武汉的第一例确诊病例是在2019年12月8日。
-
-官方新冠病毒专家小组组长梁万年表示，在2019年12月之前，武汉没有证据表明病毒存在。
-
-然而《星期日邮报》获得了一份中国医学期刊的报告，基于对汇编官方病例数据的科学家的采访，显示存在更早的病例。
-
-武汉大学生物统计学教授宇传华告诉《健康时报》记者，到2月下旬，他的数据库中有4.7万个病例。
-
-其中包括9月29日发病的一名疑似但未经检测的死亡患者，随后11月14日和21日又出现两例。
-
-采访是在中共国卫生当局发布封口令的当天进行的。
-
-随后，该教授致电记者收回这一信息，称日期有误。
-
-据从美国方面了解，11月14日的案件与武汉研究员妻子疑似死亡的时间非常吻合。
-
-阿舍拒绝对任何机密信息发表评论。
-
-《南华早报》去年3月的权威报道称，截至11月底，共有9起病例，涉及4名男性和5名女性，年龄在39岁至79岁之间，首例患者于11月17日确诊。
-
-这意味着已经有约50人被感染，大部分没有症状，但有症状的病例涉及老年人。
-
-然而，直到12月31日，警觉的台湾官员才向世卫组织发出警报。
-
-南安普顿大学建模专家的一项分析表明，如果早三周采取遏制疾病的行动——而赶在新年前夕，中国可以减少95%的病例。
-
-美国研究人员的另一项研究称，湖北省在2019年10月中旬至11月中旬出现了第一例病例，并得出结论，此类流行病“只允许一个狭窄的窗口采取先发制人的干预”。
-[!\[\]()!\[\](https://spark.adobe.com/page/xnOZND5QU1YWA/images/50e707e4-0644-42af-8535-79bfc6c50e01.png?asset_id=1dd800cb-85c4-4621-9754-800142ffcee3&amp;img_etag=%22433d9d425e685fe44c602290c1fcdd86%22&amp;size=2560)](https://spark.adobe.com/page/xnOZND5QU1YWA/images/50e707e4-0644-42af-8535-79bfc6c50e01.png?asset_id=1dd800cb-85c4-4621-9754-800142ffcee3&amp;img_etag=%22433d9d425e685fe44c602290c1fcdd86%22&amp;size=1024)
-阿舍的评论加剧了人们对中共国可能在掩盖实验室事故的担忧，而越来越多的人要求认真对待这一建议。图为武汉病毒研究所。
-
-**🔗[原文链接](https://www.dailymail.co.uk/news/article-9410163/US-State-Department-expert-David-Asher-says-lab-leak-logical-explanation-Covid-source.html)**
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/xnOZND5QU1YWA/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/xnOZND5QU1YWA/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+翻译：【7PawBear】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0

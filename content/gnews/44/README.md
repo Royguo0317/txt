@@ -1,38 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 华盛顿飘荡着一种不安情绪&nbsp; 说冠状病毒一定会再来而且更夸张
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1051678/)
+## 涉嫌大规模非法欺诈的比特币即将灾难性地崩溃
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1051684/)
 
-简述：在2021年4月2日的盖特视频中，郭先生说华盛顿的朋友透露说，“美国在华盛顿，飘荡着一种不安的情绪，说冠状病毒一定会再来的，而且一定会是更加夸张”。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210402-getter1.srt.txt)
-**华盛顿飘荡着一种不安情绪  说冠状病毒一定会再来而且更夸张**
+**作者：**[Lance D Johnson](https://www.naturalnews.com/author/ljdevon) 2021-04-04
 
-**It’s Said in Washington D. C. that the Virus Will Come Back for Sure and Even More Ferociously**
+**翻译：**加拿大温哥华圆成农场 卢卡斯
+![]()![](https://gnews.org/wp-content/uploads/2021/04/79.png)图片来源：[Lance D Johnson](https://www.naturalnews.com/author/ljdevon)原文
+《自然新闻》著名经济学家和投资银行家詹姆斯•里卡兹（James Rickards）对比特币和泰达加密货币的即将倒闭敲响了警钟。他警告说，建立在欺诈之上的比特币最终将崩溃，使其投资者破产。里卡兹是《纽约时报》畅销书《货币战争：下一个全球危机的形成》和其他六本书的作者，包括《新大萧条》、《后遗症》、《毁灭之路》、《金钱之死》和《黄金新案例》。
 
-我刚刚在录这个视频盖特之前，我和华盛顿的两个咱们的好朋友，我别说是谁了，通话。他说现在美国在华盛顿，飘荡着一种不安的情绪，说冠状病毒一定会再来的，而且一定会是更加夸张。很多人都害怕，要搬离华盛顿，很多纽约，像洛杉矶很多有钱人，更多人都要搬离，这一段跃跃欲试想回来的人，也都想撤回去了。
+**比特币在2018 年的崩溃只是它即将崩溃的样本**
 
-Right before I started recording this Getter video, I talked over the phone with two friends of ours in Washington D.C., whom I don’t want to name. He said that there is this feeling of uneasiness which can be sensed in the air in Washington D.C. It’s said that the virus will come back for sure, and even more ferociously. Many people are anxious and plan to move out of Washington D.C. Many rich people in New York City and Los Angelos are moving out too. People who planed to move back previously are now turning back.
+当比特币投资者在2021年初就获得了丰厚诱人的收益时，不要忘记它在四年前也经历了同样的模式。比特币在2017年年初价值20000美元，但是到2018年12月已跌至3300美元。一年内其83.5%的价值崩盘是投资史上最大的资产价值崩盘。随着比特币在2021年达到50000美元，它即将崩溃的毁灭性将比以前的更大。
 
-所以说这个病毒对大家的威胁，它不分高低，不分男女，不分穷人和富人。共产党干了一件事，不分高低左右的，干了一把，就是冠状病毒。所以说是毒主啊，毒主，共产党非它莫属了。
+里卡兹指出，比特币是一个泡沫，一种与价值无关的投机行为。过去六个月的纵向增长让人想起它最终将灾难性崩溃的猜测。1989年底的日经指数和2000年3月的纳斯达克综合指数都显示出相似的双曲增长模式。泡沫不可能持续下去，事实上，日经指数从1999年开始，暴跌超过80%，至今仍未从原来的高点回升。纳斯达克下跌了75%，它花了15年时间才挽回其灾难性的损失。里卡兹说，“比特币现在处于同样的崩塌危机中。”
 
-So, the virus threatens everybody and can’t differentiate lower-class people from the higher-class people, males from females, or the rich from the poor. The CCP has really done one thing that can affect everyone – the CCP virus! So, the CCP is the owner of the virus. “Owner of the virus” – the CCP definitely deserves this title.
+他相信”在建立起新基数之前，比特币会从5万美元跌至1万美元或更低”。虽然日经指数和纳斯达克的泡沫是建立在投资者的狂热、杠杆作用和希望在指数中取得领先的公司过度炒作的收益释放之上的，但比特币泡沫是建立在潜在的加密欺诈之上的，这种欺诈行为利用了比特币的投资者，并欺诈性地支撑了比特币的价值。由于比特币不受监管，因此无法解决潜在的欺诈问题。当泡沫不可避免地破裂时，损失将远远大于过去日经指数和纳斯达克泡沫的崩溃。
 
-另外一个共产党，他们也掌握情况，中国的经济一塌糊涂。他说这个中国经济还能撑多长时间啊？我说我要跟你说撑三年，你信吗？他说，我不信。那不就完了嘛？三年以内嘛。
+#### 评：当前最火的[比特币](https://www.wikiwand.com/zh-cn/%E6%AF%94%E7%89%B9%E5%B9%A3)（Bitcoin）是世界上第一个[加密电子货币](https://www.wikiwand.com/zh-cn/%E5%8A%A0%E5%AF%86%E9%9B%BB%E5%AD%90%E8%B2%A8%E5%B9%A3)，其特色是使用[密码学](https://www.wikiwand.com/zh-cn/%E5%AF%86%E7%A2%BC%E5%AD%B8)来控制货币的制造和管理，而[非依赖特定的中央机](https://www.wikiwand.com/zh-cn/%E6%9D%83%E5%8A%9B%E5%88%86%E6%95%A3)构。今天4月5日的市场价格达到5万7千美元一枚。著名经济学家和投资银行家詹姆斯•里卡兹揭露它是一个泡沫，一种跟价值无关的投机行为，并以2018年它崩盘的历史做样本，警示比特币即将毁灭性崩盘，使投资者破产。他的观点正好佐证了文贵先生在直播中反复警告过的：比特币不与任何货币挂钩，也没有储备黄金储备对它的支持，且没有市场流通功能；它是中共洗钱的一个工具，大部分被中共军队特务系统持有，当前所处的高价位有助于中共内部往海外搬运财富。中共在新疆犯下种族灭绝罪，撕毁中英撕毁《中英联合声明》，从2019年6月反送中运动以来，中共镇压杀害香港的年轻勇士超过万人，以及即将到来的全球追究中共病毒的真相，全球灭共的时代正在到来，中共受到巨大的内外压力，导致中共内部政治不稳定，中共的统治随时会被结束，导致了墙内的资金财富纷纷逃离中共国，比特币成为金钱逃离中共国的一个途径，因此现在投资比特币有巨大的潜在风险。
 
-They have also been aware that the CCP’s economy is in a mess. He asked how long it will take for the Chinese economy to collapse? I said, “If I say the economy may hold for another three years, will you believe me?” He said, “No, I won’t.” That’s right. Of course it will collapse within three years.
+##### **原文：**[Lance D Johnson](https://www.naturalnews.com/author/ljdevon), “James Rickards warns that Bitcoin and Tether cryptocurrencies are a massive, illegal fraud that will catastrophically collapse”.《 Natural News》, April 4, 2021. [https://www.naturalnews.com/2021-04-04-james-rickards-warns-bitcoin-tether-fraud-will-collapse.html#](https://www.naturalnews.com/2021-04-04-james-rickards-warns-bitcoin-tether-fraud-will-collapse.html#)
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60671f1c49339063d0621446](https://gtv.org/getter/60671f1c49339063d0621446) (00:12-1:16)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1045303/](https://gnews.org/zh-hans/1045303/)
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
 
-* * *
+编辑/发布：比卡丘
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
 
-翻译：【7PawBear】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
