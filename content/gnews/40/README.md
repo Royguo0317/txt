@@ -1,66 +1,88 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】一个非专业人士的学习笔记——闫博士第三篇报告详读浅释（1）
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1049912/)
+## 【世事解评】一个非专业人士的学习笔记——闫博士第三篇报告详读浅释（2）
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1049933/)
 
 作者：纽约香草山写作一组 霍比特人
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
 
 
-引言：感谢闫博士再次发表报告揭露病毒真相。谨在此提供自己的读书笔记（包括翻译和浅释）供参考，希望对大家了解闫博士报告，更好地传播病毒真相有所帮助。欢迎战友们多批评指正。
+**A brief timeline **
 
-* * *
+On December 31st, 2019, Dr. Yan, a virologist and a then core team member of *the WHO H5 Reference Laboratory*and *the State Key Laboratory of Emerging Infectious Diseases of China*at the University of Hong Kong School of Public Health, conducted a secret investigation on the outbreak in Wuhan. On Jan 16th, 2020, Dr. Yan conducted a second investigation. On both occasions, Dr. Yan used her personal connections inside China’s research and hospital systems, including PLA laboratories and hospitals, and the CDC. Through communications with them, Dr. Yan learned first-hand information of the emerging COVID-19 disease, including its severity and scale of spread. She also learned how the CCP government was hiding such information from the public, which was deeply worsening the situation. Dr. Yan then gave timely feedback to her supervisors, professors Leo LM Poon and Malik Peiris, who are top coronavirus experts and core consultants of the WHO. She had hoped that certain actions would be taken internationally to pressure the CCP government to act responsibly. However, no such actions took place. Instead, Dr. Yan was warned repeatedly by professor Poon that she “*should not cross the red line*” and, “*if not, would be disappeared*”.
 
-**The Wuhan Laboratory Origin of SARS-CoV-2** **and the Validity of the Yan Reports Are Further Proved by the Failure of Two Uninvited “Peer Reviews”**
+【译】简明的时间线
 
-**【译】两篇不请自来的同行评议进一步证实了新冠来源于武汉实验室，以及闫博士报告的正确性**
+2019年10月，闫博士那时是一个滤过性病原体学者兼WHO H5参考实验室以及中国新发传染病国家关键实验室核心团队成员，在香港大学公共健康学院进行了一场针对武汉的爆发的秘密调查。在2020年1月16日，闫博士进行了第二次调查。在两次调查中，闫博士都运用了她和包括中国的研究和医疗系统的关系，包括解放军实验室和医院，以及CDC。通过与他们的沟通，闫博士获得了有关COVID-19出现的第一手信息，包括它的严重性和传播广度。她还了解了中共政府是如何对公众隐瞒这些信息的，这令情况严重加剧。闫博士那时定期向她的主管即潘烈文博士和马力克博士做定期信息回馈，他们都是WHO冠状病毒的顶尖科学家和核心顾问。她曾希望能有些国际性行动被采取以迫使中共政府负起责任来。结果，没有这样的行动发生，相反，闫博士不断被潘教授警告“不要越过红线”以及“如果不这么做将被消失”。
 
-Li-Meng Yan (MD, PhD)1, Shu Kang (PhD)1, Jie Guan (PhD)1, Shanchang Hu (PhD)1 1Rule of Law Society & Rule of Law Foundation, New York, NY, USA.
+At the same time, Dr. Yan also obtained intelligence information about the true identity of the SARS-CoV-2 virus – a bioweapon created by the Chinese military. She then verified this herself by analyzing the genetic information of the virus shared on the database using her own expertise in virology and biology. While chasing the initial sequence information, Dr. Yan also noticed that strange changes were made to the earliest deposited SARS-CoV-2 sequence. The first version of the genomic sequence, which was uploaded on January 12th was strangely mistaken. It was then quickly withdrawn and replaced by the second version (MN908947.2) on Jan 14th, which was largely correct. It is noteworthy that, on January 13th, Thailand reported the first case of infection outside China, which entails that sequence information would be obtained by the outside world and no longer under the full control of the CCP government. What is also noteworthy is that the first version was not accessible on the database for a long while until it reappeared (MN908947.1), surprisingly, free of the severe errors that it had carried previously. Finally, on January 17th, a third version was uploaded and some missing nucleotides were added to the sequence (MN908947.3). The intelligence information, the genetic evidence, the severity of the disease, and the cover-up by the CCP government convinced Dr. Yan that a public health crisis may be forthcoming.
 
-Correspondence: [email protected]
+【译】在同一时间，闫博士也获得了有关新冠身份的情报——它是中国军方制造的生物武器。于是她亲自通过分析数据库里的共享病毒信息，用她的病毒学和生物学专业知识证实了这一点。当追溯原始基因序列信息时，闫博士还注意到新冠基因序列遭到了奇怪的改动。这2020年1月12日上传的序列存在奇怪的错误。它很快被回收而被1月14日的第二个版本（MN908947.2）替代。这个版本大体上正确。值得注意的是1月13日，泰国报告了第一例中国境外感染，它势必导致基因序列信息将被外面的世界所获知而不再完全被中共政府控制。同样值得注意的是，第一个版本很长时间里无法被访问，直到它重新出现（MN908947.1），并令人惊奇地摆脱了之前存在的严重错误。最后，1月17日，第三个版本被上传，一些缺失的核苷酸被补入序列（MN908947.3）。情报、基因证据、疾病的严重性和中国政府的掩盖让闫博士确信公共健康危机迫在眉睫。
 
-**Opening Statement**
+This great sense of urgency compelled Dr. Yan to seek alternative avenues to let this information go out to the public. Her hope was, once again, to alert the world and trigger certain international pressure to make the CCP government act responsibly, which may then prevent a global health crisis. On Jan 19th, 2020, she anonymously shared this information on the *LUDE Media*, a YouTube channel that broadcasts to a great Chinese audience both inside and outside mainland China. In this broadcast10, Dr. Yan sent the following five messages:
 
-A year has passed since the COVID-19 pandemic first started. Its damage so far is astonishing: 127 million people have been infected and, among them, 2.78 million died. These numbers continue to grow at a significant speed, indicating that the pandemic is far from being over. Furthermore, mutant viral strains continue to emerge, and no public policies or treatment strategies seem to be sufficiently effective in blocking COVID-19. There seems to be a consensus that the virus will not be eradicated and humans will continue to live under the influence of COVID-19 in the foreseeable future.
+• The virus was created in a PLA laboratory using ZC45/ZXC21 as the template.
 
-【译】开场白
+• The CCP government is actively covering up the true information of the disease.
 
-自从新冠大流行开始，已经过去了一年。迄今为止它的破坏是惊人的：1.27亿人感染，超过278万人死亡。这些数字继续以极快的速度增长，说明达流行离结束尚远。另外，变异的病毒株继续出现，而在阻止新冠方面似乎没有足够有效的公共政策或处理战略。似乎有一种舆论，病毒不会被根除，而人类未来将继续生活在新冠的影响之下。
+• There is human-to-human transmission.
 
-The defeat of humans by COVID-19 is for two fundamental reasons. First, SARS-CoV-2, the causative agent of COVID-19, is not a naturally occurring pathogen but an *Unrestricted Bioweapon*. It has designed and significantly enhanced functions and therefore could not be controlled easily using strategies that would normally work for naturally occurring pathogens. It is a product of the bioweapons program of the Chinese Communist Party (CCP) government, the network of which includes not only the CCP scientists but also certain overseas scientists and organizations. SARS-CoV-2 was created based on template viruses ZC45 and ZXC21, which were originally discovered in bats by scientists of the People’s Liberation Army (PLA). The subsequent laboratory modifications had enabled its ability to infect humans as well as had enhanced the virus in its pathogenicity, transmissibility, and lethality.
+• There are no wild animal intermediate hosts, and the Huanan seafood market is not the origin of the virus.
 
-【译】人类被新冠重创有两个原因：第一，新冠COVID-19的病原体，不是自然出现的病原体，而是“超限生物武器”。它经过设计并且功能显著增强，因此不可能被轻易地以通常对付自然出现的病原体的有效战略所控制。它是中共CCP政府生物武器计划的产物，该计划网络不仅包括了中共科学家，也包括了部分海外科学家和组织。新冠是以ZC45/ZXC21为模板制造出来的，ZC45/ZXC21最初为中共军方科学家在蝙蝠体内发现，随后的实验室改造使其具备了感染人的能力，同时增强了该病毒的感染力和杀伤力。
+• If not controlled immediately, the virus may lead to a pandemic and, as a result, many mutants will emerge inevitably and rapidly.
 
-The second fundamental reason of our defeat was that the world was made to look away from the true nature of SARS-CoV-2 and therefore responded inadequately on multiple aspects and occasions. A massive misinformation campaign has been undertaken by the CCP government to cover up the true origin of SARS-CoV-2, which involved destroying data and samples, publishing fabricated viruses on top scientific journals, controlling the narrative of the origin debate through bribed top scientists and organizations, amplifying the falsified natural origin theory through media control, labeling all other origin theories as “conspiracy theories”, and defaming individuals who reveal the truth of SARS-CoV-2. As a result of the CCP’s efforts here, the true, weaponized nature of SARS-CoV-2 has been obscured and was not known by most of the public.
+【译】这种急迫感迫使闫博士急需寻找替代途径把信息传递给公众。她希望再一次警告世界并给中共政府带来一定压力令其负起责任，那也许能阻止全球健康危机。2020年1月19日，她化名把这一信息分享给路德社，一个油管上的频道，它对海内外很多中国听众进行广播。在广播中闫博士发出以下信息：
 
-One example of the CCP’s misinformation campaign is the defamation of the Yan reports.
+病毒是解放军实验室用ZC45/ZXC21为模板制造
 
-【译】我们失败的第二个根本原因是全世界被从新冠真相上引开，因此在许多方面和许多时候做出了不充分的回应。中共政府一直在实施一场庞大的信息误导运动以掩盖新冠起源的真相。这场运动包括销毁数据和样本，在顶级科学杂志上发表各种伪造的病毒，通过贿赂顶尖科学家和组织来限制对起源的讨论，通过控制媒体鼓吹虚假的自然起源理论，给其他起源说贴上“阴谋论”的标签，诽谤那些揭露新冠真相的个人。作为中共努力的结果，真相，即新冠是生物武器，被模糊了，不为大众所知晓。
+中共政府有意隐瞒疾病的真相
 
-中共信息误导运动的一个例证就是对闫博士报告的诽谤。
+（疾病）能够人传人
 
-On September 14th, 2020, we published our first report1, where we provided abundant scientific evidence and analyses proving that SARS-CoV-2 must not be a product of natural evolution but a product of laboratory creation. We also postulated/reconstructed, based on substantial literature evidence, a pathway for the convenient laboratory creation of SARS-CoV-2. On October 8th, 2020, we published our second report2, where we used scientific evidence and logical analyses to uncover a large-scale, organized scientific fraud committed by the CCP laboratories and orchestrated by the CCP government. This fraud clearly indicates that SARS-CoV-2 is not a natural occurring virus or a simple gain-of-function product that accidentally leaked out from a laboratory. Rather, it must be a deceiving, non-traditional bioweapon created by the CCP regime. We also refuted the claim that the virus was derived from a virus from a mine in Mojiang. Furthermore, the fact that certain fabrications preceded the initial outbreak of COVID-19 suggests that the release of the SARS-CoV-2 must be intentional.
+不存在野生动物中间宿主，武汉海鲜市场不是病毒起源
 
-【译】在2020年9月14日，我们发表了第一篇报告，于报告中我们提供了丰富的科学证据和分析证明新冠一定不是自然演变的产物，而是实验室制造的结果。基于丰富的文献资料，我们也假设和重建了一种便利的实验室制造新冠的流程。在2020年10月我们发表了第二篇报告，于其中我们以科学证据和逻辑分析揭露了一场大范围有组织的科学造假，那是由中共实验室实施和由中共政府协调组织的。这种造假清楚地显示了新冠不是自然界出现的病毒，或实验室泄露的简单的功能获得性产品。实际上，它是一场骗局，是中共政府制造的非传统性生物武器。我们还驳斥了声称病毒来源于云南矿洞的说法。另外，实际上在COVID-19爆发之初进一步出现的几项造假说明，新冠的散布一定是国际性的。
+如果不马上加以控制，病毒将导致大流行，结果会不可避免出现许多变异
 
-Our two reports were published on *zenodo.org*as preprint articles. We chose this site and this format because we were fully aware of the censorship on the laboratory origin of SARS-CoV-2 imposed by the top scientists of the field – peer review would not allow our report to be published as it is in a timely manner or at all. The transparency and expedited publication process offered by z*enodo*, however, were necessary and appropriate in this situation – Dr. Yan and the rest of us wanted the truth of SARS-CoV-2 to be known by the rest of the world as early as possible. Furthermore, peer review is not a guarantee for scientific quality or truthfulness3-7, which is a view shared by many experts, including Dr. Anthony Fauci.
+*The red line had been crossed*. Dr. Yan knew very well then that her actions could lead to severe consequences in her personal safety. If her identity was revealed, she could be “disappeared”, just like what happened to thousands of Hong Kong youths during the pro-democracy protests since June 2019. Dr. Yan did it anyways.
 
-【译】我们的两篇报告作为预印本（一个开放的科学平台）文章发表在zenodo.org上。我们选择此一网站和此一形式是因为我们很清楚由这一领域的顶级科学家施加的对新冠实验室起源学说的言论审查——同行评议不允许我们的报告原原本本地发表，短期以及完全（不允许）。Zenodo提供的透明度和通畅的发表流程，在这种情况下怎么说都是必要的和适当的——闫博士和我们其他人渴望新冠的真相被全世界尽早了解。另外，同行评议并不是科学品质和真实性的保证，这是许多科学家的共识，包括福奇博士。
+The effect of Dr. Yan messages was immediate and significant. The CCP government was shocked by the substantial truth in Dr. Yan’s messages; it was afraid that this anonymous insider was going to expose more of its lies. With its original plans disrupted, the CCP government reacted in a hurry:
 
-After the publication of our first report, within ten days, two uninvited “peer reviews” were published8,9. As shown in the rest of the document, these reviews were completely mistaken and intentionally misleading. However, they were published on well-known platforms and were produced by “reviewers” who hold high academic titles and are affiliated with prestigious institutions. It was a fine display of the status of personnel and organizations engaged in the CCP’s scientific misinformation.
+• Four hours after *LUDE Media*’s broadcast, the CCP government tripled their official number of infections, increasing it from 62 to 198.
 
-However, before diving into details of these “peer reviews”, let us travel back in time and take a quick tour to review Dr. Yan’s journey since the beginning of the COVID-19 pandemic as well as some early events in the origin “debate”.
+• A few hours later, the CCP government reported, for the first time, infections outside of Wuhan.
 
-【译】在我们第一篇报告发表后，在十天里，两篇同行评议不请自来地发表了。如本文后面所述，这些评议是完全错误的和具有国际性误导性的。可是无论如何，它们发表在知名的平台且由具有很高学术头衔并隶属权威机构的评议家写就，这很好地展示了卷入中共的科学信息误导（战略）的那些个人和机构的状况。
+• It also made a nation-wide announcement elevating the infectious disease alertness to the highest level according to the *Law of the People’s Republic of China on the Prevention and Treatment of Infectious Diseases*.
 
-在深入探讨这些同行评议之前，好歹让我们回溯时间做一个缩略旅行，来回顾闫博士自从COVID-19大流行爆发后的经历，以及关于（病毒）起源的争议的一些早期事件。
+• Within one day, the CCP government admitted for the first time that there was human-to-human transmission.
 
-（未完待续）
+• Three days later, Wuhan was put into lockdown.
+
+【译】红线已经越过，闫博士很清楚她的行动将导致自身安全的严重后果。如果她的身份暴露，她将被消失，就像发生在2019年6月以来那些香港反送中运动中的人身上的那样，但闫博士还是做了。闫博士的讯息的效果是巨大而及时的。中共政府震惊于闫博士讯息中确实的真相，他们立即采取了以下行动：
+
+在路德节目播出后四小时，中共把他们公布的感染人数增加了三倍，62变198
+
+几小时后，中共政府第一次报告了武汉之外的感染
+
+它还对全国宣布把传染病警报等级升至最高
+
+同一天，中共政府承认人传人
+
+三天后，武汉封城
+
+At the same time, the scientific field has been mobilized. In China, Dr. Zhengli Shi, the *batwoman*from the Wuhan Institutes of Virology (WIV), hurried out a *Nature*publication (submitted on January 20th and published on February 3rd, 2020)11, where she reported a RaTG13 bat coronavirus sharing a 96.2% sequence identity with SARS-CoV-2. Since then, this RaTG13 virus has served as the founding evidence for the natural origin theory (this publication of Shi has been accessed over 1.11 million times and cited 5431 times by March 30th, 2021). Interestingly, in the same issue of *Nature*, a similar article was published by Dr. Yongzhen Zhang12, which described ZC45 and ZXC21 as the closest match to SARS-CoV-2 evolutionarily. However, Dr. Zhang’s publication received much less attention (0.47 million accesses and 2588 citations by March 30th, 2021). On February 8th, 2020, Major General and bioweapon expert Dr. Wei Chen took over
+
+the leadership of the WIV. Furthermore, a compulsory regulation was put into place
+
+demanding that all manuscripts concerning SARS-CoV-2 research produced by Chinese laboratories must be first reviewed and approved by the CCP government before being submitted for publication.
+
+【译】同一时间，科学界被动员起来。在中国，石正丽博士（武汉病毒所的蝙蝠女）急忙在《自然》杂志上发表（2020年1月20日、2月3日）文章，报告说RaTG13蝙蝠病毒与新冠基因有96.2%的相似度。从那以后，RaTG13就充当了自然起源理论的基础证据（到2021年3月30日，石发表的文章被访问超过一百一十万次，引用543次）。有趣的是同一时间在《自然》杂志上张永振教授发表了类似文章，认为ZC45/ZXC21与新冠最为接近。张博士的发表获得了较少的关注（47万次访问和2588次引用）。2020年2月8日，少将兼生物武器专家陈薇接管了武汉病毒研究所，更进一步的是，一项强制性规定被实施，要求所有中国实验室与新冠有关的研究稿件必须首先被中共政府审查批准才能发表。
 
 校对/发稿：飞虹
+
+
 
 更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
@@ -68,4 +90,4 @@ However, before diving into details of these “peer reviews”, let us travel b
 
 更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-0
++2
