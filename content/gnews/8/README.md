@@ -1,127 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 塞林博士：新冠是中共发起的生物攻击
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1051889/)
+## 中共对美发动“以钱灭美”的货币战争&nbsp; 是其“灭白计划”的一部分
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1052112/)
 
-新闻来源：《GatewayPundit》| 作者：Joe Hoft | 发布时间：2021年4月1日
-翻译/简评：TCC | 校对：万人往 | 审核：万人往 | Page：青山
+简述：郭先生在2021年4月4日深夜发布的盖特视频中，预告了4月5日直播将要讲的两个重要内容：中共怕人民过清明节暴露其病毒死亡真正人数，中共已经对美发动了“以钱灭美”的货币战争，也是其“灭白计划”的一部分。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210404-getter3.srt.txt)
+**中共对美发动“以钱灭美”的货币战争  是其“灭白计划”的一部分**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/0yczvIAK4DOed/images/485392ad-865d-42a0-8345-cababf990c40.jpg?asset_id=e755ccd0-e2ce-4277-a620-192324878ec0&amp;img_etag=%222b7b6c6afac7d0d458e8b7152684408e%22&amp;size=2560)](https://spark.adobe.com/page/0yczvIAK4DOed/images/485392ad-865d-42a0-8345-cababf990c40.jpg?asset_id=e755ccd0-e2ce-4277-a620-192324878ec0&amp;img_etag=%222b7b6c6afac7d0d458e8b7152684408e%22&amp;size=1024)
+**CCP Launches a Currency War Against America as Part of Its “Extinction of the White People Plan”**
 
-**简评：**
+我那个手机很多很多战友发来在国内去清明节，过清明节的感受，以及武汉很多战友说，武汉所有的墓地都是便衣警察，有的人想到十字路口烧纸被抓，火葬场旁边到处是警车。这到底为啥呢？你们就死了几百个人，你说你弄这干什么？然后现在他们真正的感受到了，冠状病毒死的人那可不是一个“0”，两个“0”的事儿了，更夸张的事情，战友们发现了很多的事情，我在这儿不说了吧，所以明天我的直播说说，很多战友让我要直播给大家聊聊，那我就聊聊吧。
 
-越来越多的证据表明，新冠病毒是中共发起的生物战。本文由有军方研究背景的塞林博士所撰写，从中共军民融合的角度解析，尤其是将在国外工作、甚至取得美国公民身份的中共国科学家纳入其网络，并经此获取在冠状病毒研究方面大量的外国研究资金。举证历历，罪证确凿，中共无所遁形。塞林博士从早期疫情爆发数据分析得知，疫情中心围绕着解放军中央战区司令部总医院，距离武汉病毒研究所的P-3级实验室不到一英里。
+I received many messages from fellow fighters in mainland China, telling me their feelings about the Tomb-Sweeping Day. Many fellow fighters in Wuhan said there were undercover police everywhere in cemeteries. Some people wanted to burn some joss paper at street crosses, but were arrested. There were police cars everywhere close to crematoriums. Why? Isn’t it just a few hundred people died? Why do you need to do all these? Now they truly feel that the number of deaths from the coronavirus should have one or two more zeros at least. What’s more absurd is that our fellow fighters have found out many more things, which I can’t say now. I will talk about it on my broadcast tomorrow. Many fellow fighters asked me to broadcast and chat a little bit.
 
-郭先生说我们现在要“以毒灭共”，随着闫博士第三篇论文的发表，美国于追究病毒真相上的两党共识，灭共之日指日可待。
+另外一个明天还聊一个重点，共产党啊..咱是以钱灭共，以毒灭共，共产党正在以钱灭美，在这之前我不能说，我要说了以后吧，他就不干了，他就不干了，美国人就不信，说咱造谣，胡说八道，是吧？现在美国人已经知道了，上一周美国人感受到了，啊..Miles,你说的有道理，他动了手了我再说，今天不搞重磅的重磅了，是吧，共产党以钱灭美咋灭的？他是灭白计划其中，他必须他要以钱灭美，以钱灭美就那几招儿，你们想听吗？咱明天上午9:30见。
 
-相关文章：[中共军方大规模渗透美国病毒研究实验室且已将其殖民](https://gnews.org/zh-hant/990812/)
+Another important thing that we will talk about tomorrow is that the CCP is planning to take down the U.S. with money [a currency war], as opposed to our taking down the CCP with financial activities and the truth about the virus. I didn’t say it earlier because if I exposed it prematurely, they might postpone or quit their plan, and then Americans would not believe me or even blame me for lying to them, right? Now Americans have been aware of it. It was last week. They said, “Miles, what you said makes sense, but we will wait for them to move first, then we will react.” So, there won’t be any bombshells for today, alright? How can the CCP take down the U.S. with a currency war? It’s part of their Extinction of the White People Plan. They will for sure implement their plan of taking down the U.S. with a currency war. They have only a few tricks. Do you want to hear? See you tomorrow at 9:30 AM.
 
-**原文翻译：**
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/606a6c2fdbc8001854a58991](https://gtv.org/getter/606a6c2fdbc8001854a58991) (00:40-2:15)
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1050330/](https://gnews.org/zh-hans/1050330/)
 
-## 是的，新冠是中共的一次生物攻击–劳伦斯·塞林（Lawrence Sellin）博士
+* * *
 
-Sharad S Chauhan博士在2020年12月的《印度国防评论》上必读的文章中将“机会生物恐怖主义”定义为：
-
-“通过故意或不理会行为隐瞒生物剂、病原体或疾病的出现，明知这种行为会损害或杀死动植物，恐吓或胁迫政府或平民以达到进一步的政治或社会目标，或利用局势来获得权力或优势。”
-
-这个“机会”就是新冠，中国共产党（CCP）采取的政策和行动的产物。
-
-首先，至关重要的是，每个人都必须了解，在中共国，军事研究中心和民用研究中心之间是没有区别的。
-
-中共“十三五”规划（2016-2020年）第78章描述了军民研究融合，包括“合成生物学”领域。
-
-甚至在该计划公布之前，中共就将军事研究中心的名称改为更平民化的名称，帮助中共国科学家掩饰其军事联系。
-
-中共军民融合工作的第二个组成部分是将在国外工作的中国科学家纳入网络，甚至中国科学家已成为美国公民，但仍是中共计划的积极成员。
-
-这样，外国机构和外国资金来源实际上成为了中共研究计划的合作伙伴，并为中共国的军事和经济实力做出了贡献。
-
-美国“有用的白痴”参与中共军民研究计划的例子中，最耀眼但绝非唯一的例子，是安东尼·福奇博士。福奇博士的美国国家过敏与传染病研究所（NIAID）通过中共长期合作研究伙伴、生态健康联盟负责人彼得·达扎克(Peter Daszak)资助武汉病毒研究所的冠状病毒研究。
-
-中共整合下的军民病毒研究是由军事医学科学院领导的，人民解放军少将兼病毒学家陈薇博士是该学院的生物工程研究所所长，被认为是中共国生物战计划的负责人。
-
-2020年1月，中共派遣陈薇少将前往武汉，负责应对这扩张的大瘟疫。她还负责中共国新冠疫苗的开发。
-
-也是陈薇少将自己的经验和相关研究为新冠的起源提供了背景。
-[!\[\]()!\[\](https://spark.adobe.com/page/0yczvIAK4DOed/images/086a8379-4f4e-4f0b-9f2f-93b557dfa28d.jpg?asset_id=fda7b4c1-2053-416e-886d-4012dba08887&amp;img_etag=%228fd4dba22215cea272a35332723edb34%22&amp;size=1024)](https://spark.adobe.com/page/0yczvIAK4DOed/images/086a8379-4f4e-4f0b-9f2f-93b557dfa28d.jpg?asset_id=fda7b4c1-2053-416e-886d-4012dba08887&amp;img_etag=%228fd4dba22215cea272a35332723edb34%22&amp;size=1024)
-以下只是一个更广泛，更深入的代表中共国军民融合研究计划的内部和国际网络的快照。
-
-2004年和2005年，陈薇少将在军事医学科学院微生物与流行病学研究所工作，在那里她使用一种称为RNA干扰以阻止该病毒基因表达的基因技术，研究了SARS-I冠状病毒的刺突蛋白，以及分析SARS患者的免疫疗法。
-
-根据她的发表记录，2008年至2013年间，陈薇少将在重庆第三军医大学微生物学系进行了登革热病毒实验。
-
-值得注意的是，中国吹哨人闫丽梦博士声称，新冠病毒的骨架，蝙蝠冠状病毒ZC45和/或ZXC21，是在重庆第三军医大学的监督下，对其进行鉴定和基因改造。
-
-2014年左右，陈薇少将回到军事医学科学院担任生物工程研究所所长，在那里她负责监督在非洲对人类进行的基因工程病毒载体埃博拉疫苗的测试。
-
-周育森(Yusen Zhou)博士是中共国军事科学专家之一，他与陈薇少将合作以应对新冠的爆发。
-
-他接受过军医的培训，并于2004年在与陈薇少将所在的军事医学科学院微生物与流行病学研究所一同研究了首例SARS冠状病毒的刺突蛋白。
-
-周育森在2004年科学文章《重症急性呼吸综合征（SARS）冠状病毒的突触蛋白上的免疫优势位点的鉴定：对SARS诊断和疫苗开发的意义》的合著者是姜世勃博士。
-
-姜世勃也是军事医科大学的毕业生，在纽约血液中心的林兹利·金博尔(Lindsley F. Kimball)研究所工作了将近二十年，并获得了超过1700万美元的美国研究经费，其中绝大部分来自福奇(Fauci)的国家过敏与传染病研究所(NIAID)。
-
-在此期间，姜世勃与美国其他病毒研究实验室建立了广泛的合作研究网络，并成为将中共国军民研究计划与美国研究计划联系起来的纽带。
-[!\[\]()!\[\](https://spark.adobe.com/page/0yczvIAK4DOed/images/8fd0f81a-4b79-4861-9c9b-c8c9c9bba9ae.jpg?asset_id=bcb81921-ff09-4f97-8502-68c3de8c330c&amp;img_etag=%2224f9735117dcf408a441b2d2f5f9a67a%22&amp;size=1024)](https://spark.adobe.com/page/0yczvIAK4DOed/images/8fd0f81a-4b79-4861-9c9b-c8c9c9bba9ae.jpg?asset_id=bcb81921-ff09-4f97-8502-68c3de8c330c&amp;img_etag=%2224f9735117dcf408a441b2d2f5f9a67a%22&amp;size=1024)
-与此同时，姜世勃与周育森和解放军几个实验室保持了研究活动，同时邀请其他中共国科学家进入他在美国的实验室。
-
-其中一位是杜兰英博士，据称是周育森的妻子，她仍然是纽约林德斯利·金博尔研究所的雇员，最近还从福奇的NIAID那里获得了一笔为期5年总额为410万美元的资助。
-
-姜世勃在美国的脉络是由进行尖端冠状病毒研究的实验室组成，其中包括有争议的“功能增强”实验：
-
-- 北卡罗来纳大学教堂山分校Ralph Baric博士
-- 苏达州明尼苏达大学医学院李方博士
-- 杜克-新加坡国立大学医学院新发突发传染病研究所所长王林发
-- 国防部资助的生物防御和新兴传染病中心、高病毒BL-4遏制设施所在地德克萨斯大学加尔维斯顿医学分部曾建德（Chien-Te K. Tseng）
-
-
-以上所有这些人都是通过周育森或武汉病毒研究所的“蝙蝠女”石正丽博士与中共军民研究计划相联系的。
-
-另一位与中共国军队和美国最高研究计划有联系的中共科学家是高福博士（乔治·高）。他是病毒学家和免疫学家，曾任中共国疾病预防控制中心（CCDC）主任。
-
-2019年，他当选为美国国家科学院和美国国家医学科学院的外籍院士。
-
-高福是中共国军方的长期研究伙伴，他与中共军方于2002、2005、2006、2007、2008a，2008b，2010、2011、2013、2014a，2014b，2018、2019和2020年共同发表过论文。
-
-福在中共国疾控中心的同事谭文杰(Wenjie Tan)不仅与姜世勃和周育森有联系，而且还是武汉解放军中央战区司令部总医院胡振宏的紧密合作者。
-
-胡振宏在第三军医大学进行研究，该大学据称是新冠病毒的蝙蝠骨架的发源地。
-
-第三军医大学也是陈薇少将工作了五年的地方。
-
-根据患者数据，疫情爆发的震中最早是解放军中央战区司令部总医院（地图坐标30.53148、114.34356），这也许并非偶然。
-
-该位置距离武汉病毒研究所湖北省病毒病工程技术研究中心的P-3级实验室不到一英里（地图坐标30.53941、114.35085）。
-
-该信息还与武汉武昌区卫生局公布的数据相符，该数据表明，疫情爆发初期感染最集中的地方是距医院约一英里的居民区。
-
-这些观察结果在时间和位置上都符合从新浪微博平台获得的社交媒体数据，该平台旨在作为可疑的新冠患者寻求帮助的渠道。
-
-有趣的是，在2020年5月期间，美国国家科学院发起了中美科学家之间的一系列电话会议，以交流有关正在进行的新冠疫情的信息。
-
-参加电话会议的三名中共国与会者是高福、谭文杰和武汉病毒研究所的“蝙蝠女”石正丽。
-
-这些电话事实上就是通报情况给中共国军队的。
-
-关于新冠的起源，我们仍然知之甚少，在很大程度上这是由于中共领导并在西方科学界成员、一些美国政府官员和顺从的媒体的协助下进行的掩盖行动。
-
-**有人可能会说他们都是“机会生物恐怖主义”的同谋。**
-
-*劳伦斯·塞林（Lawrence Sellin）博士从商业和医学研究的国际职业生涯中退休，在美国陆军预备役服役29年，是（参加）阿富汗和伊拉克（战争）的退伍军人。他是国家安全公民委员会的成员。他的电子邮件地址是[email protected]。*
-
-🔗[原文链接](https://www.thegatewaypundit.com/2021/04/yes-covid-19-biological-attack-chinese-communist-party-lawrence-sellin-ph-d/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/0yczvIAK4DOed/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/0yczvIAK4DOed/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-
+字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0

@@ -1,34 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 习近平视察福建不探军队探武警，异常？
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1051648/)
+## 全美史上最大集体诉讼：起诉多米尼投票机公司侵犯了美国公民的诉讼
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1051911/)
 
-字幕听译：乐禧禧 | 字幕PR：yyshere | 字幕：雨中漫步 | 评论：CharlesS | 评论翻译：Marialu | 评论PR：许先生 | Page：青山
+作者：滴水穿石 ，  Rosemary
 
-[!\[\]()!\[\](https://spark.adobe.com/page/2W8HUeWly9LGE/images/b5684ec8-5b03-4728-b684-a9a05e897381.jpg?asset_id=7789b301-73f8-4b9a-a07d-f852e8ef1ea3&amp;img_etag=%22f129a7775cb236affb35420255239152%22&amp;size=1024)](https://spark.adobe.com/page/2W8HUeWly9LGE/images/b5684ec8-5b03-4728-b684-a9a05e897381.jpg?asset_id=7789b301-73f8-4b9a-a07d-f852e8ef1ea3&amp;img_etag=%22f129a7775cb236affb35420255239152%22&amp;size=1024)
+近日，中国将对2016年，对2019年1600亿美元的对多米尼投票机公司等的集体诉讼，起诉他们侵犯了美国公民的诉讼。 如果你是美国公民、而且已经注册成为选民并且参与了2020年总统大选投票，你可以加入针对Dominion、Facebook，以及一些民选官员的这项集体诉讼。 中国就为美国的一个中国最大的民事权利诉讼！ 如果你符合条件请一定要参加，不参加就是纵容罪犯光天化日之下侵犯你的公民权利，欺凌美国宪法！
 
-在台海局势紧张之际，中共党魁习近平3月底视察离台湾最近的大陆省份福建，却并未视察当地驻军，而是于24日视察了驻地武警。
+申请说明：
 
-有分析称此举为中共对台举措不定，而笔者认为需从3个方面来谈：什么是武警、为何视察武警部队、为何不去视察军队。
+感谢您对加入这一诉讼的兴趣。 为了加入集体诉讼，您必须是在2020年，选举期间登记投票的美国公民，并且有理由相信您的公民权利受到了诉讼中所列被告的侵犯。 要想证明成为此次集体诉讼中的原告，需要提供两样东西，一是你有照片的身份证正反面的清晰照片，二是经过宣誓的公证宣誓书，说明你知道被告的错误行为。
 
-中共于17年底对其武警改制，使其从18年起由中共党中央、中央军委集中领导而与中共国务院脱钩。此举即习加强以警治国的明显举动。文贵先生直播中也曾透露，中共国实际的“枪把子”、“维稳力量”在警不在军。
+一旦这2018年对公司接受并确定是完整和准确的，那么您将被通知您被接受加入集体诉讼。 所有文件可以通过附件或通过我们的网站dominionclassaction.com提交，提交时使用的是您与我们联系的行盘。
 
-而为何要视察驻地武警？首先，上述已明确中共武警的“党卫军宪兵、督军”身份。而在台海局势紧张，中共即将对台动手的情况下，近台地区中共军力、部队将领权力势必增加。而中共领导人历来最关心其权力稳定，对其下属没有天然的同盟关系，只有利害绑定。在全球围剿中共的局势下，习皇是否放心掌握实力的地方军队？所以视察武警，即可能展示了习对军队权力不信任和担忧的内心本质。
+第一次提交的文件是两张照片，包括您身份证的正面和背面。
 
-而没有被视察的当地第73集团军，却可见在习到访前，在中共党报军报上接连发表“新干部们乘风破浪“等相关文章，军队内部受到调整可见一斑。
+证件照上的地址必须与您在2020年选举时登记的投票地址一致。
 
-那么不视察军队，是否如某些评论家认为的是对台举棋不定？或真如习所说的“推进融合发展“这般缓和吗？笔者认为可能性不大，这只是一种假意缓和。习在中共两会结束后迅速访问福建，且加强了对军队控制, 在墙内媒体密集吹风造势攻台的势头下，在中共内外部矛盾不断逼迫的情势下，并没有任何更大利益让其放弃犯台的恶念。而具体何时、何地、是否从福建等，笔者在此不做推测。
+不要允许有阴影，使用良好的灯光照亮整个身份证。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/2W8HUeWly9LGE/images/b8169fac-a0e9-4034-bc3b-fe010f04325c.jpg?asset_id=be9cd771-92ee-4b37-9c6f-b8a9d24d1c64&amp;img_etag=%22d0c993e70ce4f056e43d7986966f482e%22&amp;size=1024)](https://spark.adobe.com/page/2W8HUeWly9LGE/images/b8169fac-a0e9-4034-bc3b-fe010f04325c.jpg?asset_id=be9cd771-92ee-4b37-9c6f-b8a9d24d1c64&amp;img_etag=%22d0c993e70ce4f056e43d7986966f482e%22&amp;size=1024)
+确保图像聚焦良好，文字清晰可辨。
 
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
+第二份材料是一份完整的、签名的、经过公证的宣誓书，以使你有资格在集体诉讼中，以使原告主张受到损害的民事权利。
 
+使用附件中的模板并参考我们目前的原告宣誓书来完成您自己的宣誓书，或咨询您的律师以获得帮助。
 
-编辑：【英国伦敦喜庄园编辑部】
+在您所在国家的公证人面前签署宣誓书。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/2W8HUeWly9LGE/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/2W8HUeWly9LGE/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+将宣誓书扫描成PDF格式上传，或将宣誓书的每一页单独制作成JPG/PN格式，构成一份完整的法律文件上传。
+
+当您的申请被确定为可受理后，您将通过电子邮件收到一份费用协议，以便在线签署和提交。
+
+如果您有更多的问题，请不要犹豫与我们联系。 在您加入我们的集体诉讼，我们将很荣幸地帮助您。
+
+感谢您勇敢地与我们一起这一步，并为您的公民投票权而站起来。
+
+宣誓书可以在UPS  STORE做公证： [https://www.theupsstore.com/store-services/notary-services](https://www.theupsstore.com/store-services/notary-services)
+
+若想加入诉讼➡，请点击链接 ️https://DominionClassAction.com/
+
+观看视频▶️https://youtu.be/GP1ZQ54MDco
+
+阅读这篇原语➡️[https://100percentfedup.com/breaking-you-can-join-the-160-billion-class-action-lawsuit-against-dominion-zuckerberg-facebook-elected-officials-others-first-of-its-kind/](https://100percentfedup.com/breaking-you-can-join-the-160-billion-class-action-lawsuit-against-dominion-zuckerberg-facebook-elected-officials-others-first-of-its-kind/)
+
+编辑：旧金山农场编辑组
 
 0

@@ -1,38 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 华盛顿飘荡着一种不安情绪&nbsp; 说冠状病毒一定会再来而且更夸张
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1051678/)
+## 关于世卫组织公布的中共病毒起源研究的联合声明
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1051879/)
 
-简述：在2021年4月2日的盖特视频中，郭先生说华盛顿的朋友透露说，“美国在华盛顿，飘荡着一种不安的情绪，说冠状病毒一定会再来的，而且一定会是更加夸张”。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210402-getter1.srt.txt)
-**华盛顿飘荡着一种不安情绪  说冠状病毒一定会再来而且更夸张**
+#### **翻译：文非 | 责编：人间四月**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/capture-1.jpg)图片来源：美国国务院网站
+下列政府发表声明:美利坚合众国、澳大利亚、加拿大、捷克、丹麦、爱沙尼亚、以色列、日本、拉脱维亚、立陶宛、挪威、大韩民国、斯洛文尼亚和英国。
 
-**It’s Said in Washington D. C. that the Virus Will Come Back for Sure and Even More Ferociously**
+**内容如下**：
 
-我刚刚在录这个视频盖特之前，我和华盛顿的两个咱们的好朋友，我别说是谁了，通话。他说现在美国在华盛顿，飘荡着一种不安的情绪，说冠状病毒一定会再来的，而且一定会是更加夸张。很多人都害怕，要搬离华盛顿，很多纽约，像洛杉矶很多有钱人，更多人都要搬离，这一段跃跃欲试想回来的人，也都想撤回去了。
+澳大利亚、加拿大、捷克、丹麦、爱沙尼亚、以色列、日本、拉脱维亚、立陶宛、挪威、大韩民国、斯洛文尼亚、英国和美利坚合众国政府继续坚定致力于与世界卫生组织(世卫组织)、肩负重大使命的国际专家以及国际社会合作，了解中共病毒的起源，以改善我们的全球集体卫生安全和应对措施。此外，我们共同支持在不受干扰和不当影响的情况下，对中共病毒的来源进行透明和独立的分析和评价。此外，我们对世卫组织最近在中共国进行的调查表示关切，同时强调必须共同努力，制定和使用一种迅速、有效、透明、科学和独立的程序，在未来对不明原因的此类疫情进行国际评估。
 
-Right before I started recording this Getter video, I talked over the phone with two friends of ours in Washington D.C., whom I don’t want to name. He said that there is this feeling of uneasiness which can be sensed in the air in Washington D.C. It’s said that the virus will come back for sure, and even more ferociously. Many people are anxious and plan to move out of Washington D.C. Many rich people in New York City and Los Angelos are moving out too. People who planed to move back previously are now turning back.
+世卫组织的使命对于推进全球卫生和健康安全至关重要，我们全力支持其专家和工作人员，并认可他们为结束中共病毒的扩散所做的不懈努力，包括病毒是如何开始和传播的。同样重要的是，我们对关于中共病毒来源的国际专家研究被严重拖延，而且无法获得完整的原始数据和样本的情况表示共同的关切。像这样的科学任务应该能够在产生独立客观的建议和发现的条件下进行。我们对这些问题同样感到关切，不仅是为了尽可能了解中共病毒的起源，而且也是为了这项研究的下一阶段和下一次健康危机，奠定一个及时、透明和以证据为基础的进程的途径。
 
-所以说这个病毒对大家的威胁，它不分高低，不分男女，不分穷人和富人。共产党干了一件事，不分高低左右的，干了一把，就是冠状病毒。所以说是毒主啊，毒主，共产党非它莫属了。
+我们注意到这些结论和建议，包括需要对动物进行进一步研究，以找到将其引入人体的方法，并敦促推动专家驱动的第二阶段研究。 展望未来，世卫组织和所有会员国现在必须对获取信息透明度和及时性作出新的承诺。在一种具有大流行潜力的未知病原体爆发时，对其来源进行快速、独立、专家主导和不受阻碍的评估，对于我们的人民、我们的公共卫生机构、我们的行业和我们的政府更好地做准备，成功应对疫情爆发和预防未来的病毒至关重要。独立专家必须能够充分接触到所有相关的人、动物和环境数据、研究，以及在疫情爆发早期阶段参与确定这种大流行病如何出现的人员。有了所有数据，国际社会就可以独立评估中共病毒的起源，从这次疫情中吸取宝贵的教训，并防止今后类似疫情爆发出现破坏性后果。
 
-So, the virus threatens everybody and can’t differentiate lower-class people from the higher-class people, males from females, or the rich from the poor. The CCP has really done one thing that can affect everyone – the CCP virus! So, the CCP is the owner of the virus. “Owner of the virus” – the CCP definitely deserves this title.
+我们强调，需要一个强大、全面和由专家主导的机制，以便在所有利益相关方充分和公开合作的情况下，根据透明、尊重隐私以及科学和研究完整性的原则，迅速调查不明来源的疫情。我们将与世卫组织合作，增强能力，改善全球卫生安全，并激发公众对世界检测、防范和应对未来疫情能力的信心和信任。
 
-另外一个共产党，他们也掌握情况，中国的经济一塌糊涂。他说这个中国经济还能撑多长时间啊？我说我要跟你说撑三年，你信吗？他说，我不信。那不就完了嘛？三年以内嘛。
+结束。
 
-They have also been aware that the CCP’s economy is in a mess. He asked how long it will take for the Chinese economy to collapse? I said, “If I say the economy may hold for another three years, will you believe me?” He said, “No, I won’t.” That’s right. Of course it will collapse within three years.
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60671f1c49339063d0621446](https://gtv.org/getter/60671f1c49339063d0621446) (00:12-1:16)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1045303/](https://gnews.org/zh-hans/1045303/)
-
-* * *
-
-翻译：【7PawBear】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+&gt;&gt; 声明原文链接&gt;&gt; [Joint Statement on the WHO-Convened COVID-19 Origins Study](https://www.state.gov/joint-statement-on-the-who-convened-covid-19-origins-study/)
 
 0

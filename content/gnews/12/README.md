@@ -1,74 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郑若骅：香港将审查政治候选人的所有历史背景
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1051791/)
+## 2021/03/31-班农专访 （4）：经济即将崩溃，中共备战台湾
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1051980/)
 
-新闻来源：《香港自由新闻》| 发布时间：2021年4月3日
+视频字幕：雨中漫步 | 听写/翻译：Wade| 校对：BZ |简评/文字整理/编辑：胖丁|Page：小雨
 
-翻译/简评：叶知秋（文义）| 校对：万人往| 审核：万人往| Page：小六月
-
-[!\[\]()!\[\](https://spark.adobe.com/page/F4NtmueR6u3jB/images/64fa72d7-f698-4706-b8dc-d23a81037d8b.jpg?asset_id=c406f5f8-415e-4c64-b4db-efd0842598f1&amp;img_etag=%229cee4910ca10b05802f28d0579c28261%22&amp;size=1024)](https://spark.adobe.com/page/F4NtmueR6u3jB/images/64fa72d7-f698-4706-b8dc-d23a81037d8b.jpg?asset_id=c406f5f8-415e-4c64-b4db-efd0842598f1&amp;img_etag=%229cee4910ca10b05802f28d0579c28261%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/8qptuq4CxvUNr/images/3f8480fa-ff42-48cc-97f6-c122c5e9edfb.jpg?asset_id=2106f7ce-8e6d-4ec7-8917-a288ad2c5af0&amp;img_etag=%229f5b634533bbd6ce1daf937e5034c507%22&amp;size=2560)](https://spark.adobe.com/page/8qptuq4CxvUNr/images/3f8480fa-ff42-48cc-97f6-c122c5e9edfb.jpg?asset_id=2106f7ce-8e6d-4ec7-8917-a288ad2c5af0&amp;img_etag=%229f5b634533bbd6ce1daf937e5034c507%22&amp;size=1024)
 
 **简评：**
 
-看到图片里的这位年轻人面带微笑看着郑若骅的样子，心里很不好受。在独裁的大陆看到这种场景不奇怪，因为经过七十年的洗脑，加之中共政府多少年来对真实信息的控制，有独立思考能力的年轻人越来越少了。香港则不一样，轰轰烈烈的反送中运动，震撼了全世界，在信息通畅的自由环境下成长起来的香港年轻人，是非善恶还是分得清的。关键在于，你选择站在正义一方，还是与邪恶为伍。
+美国驻帕劳大使与帕劳总统一同对台湾进行了为期5天的访问，这是过去42年来的首次。中共党魁习近平为了转移国内经济面临崩溃的压力，加紧备战台湾。台湾和南中国海的安全迫在眉睫。
 
-在香港几任特首领导下的香港建制派，是彻底跪下了，相信这不是一朝一夕。林郑月娥当然知道，自由世界的空气一定是优于独裁政权的，要不然，她也不会把儿子送到英美去读书，就好像习近平也知道把自己的女儿送到美国读书一样，这些政治骗子一点儿都不傻。
+川普之前的美国政府一直纵容中共的畸形壮大，现任拜登政府的软弱更加助长了中共的狂妄和嚣张。拜登政府需要强硬起来，直截了当地宣布中共对南中国海没有所有权。美国需要保护台湾的安全，保证南中国海的自由通航。否则中共会得寸进尺，不断扩张，最终会导致发生热战。美国需要行动！！！
 
-但是，即便如此，林郑月娥还是让儿子从美国回到了香港。林郑月娥与恶为伍，她自是很清楚，那么她是否考虑过自己孩子的未来呢？在共产党的黑社会体制下，能得善终不容易，即使你纳了投名状，即使你有红色血脉，结局恐怕依旧无法预料。
+- **[GTV视频链接](https://gtv.org/video/id=6065ecce49339063d061e29d)**
 
-薄熙来根红苗正，结果被送进了秦城；安邦集团的吴晓辉是邓小平的外孙女婿，被判入狱十五年；中共的白手套、海航集团董事长王健客死他乡；马云想当年是那么招摇，现在在哪里？万达集团王健林大嘴一张就是一个亿的小目标，还不是被边控？林郑月娥会有特殊？香港亲共建制派官员们会有特殊？你们的妻儿老小会被共产党一直供起来？
 
-对香港政治候选人已开始“无限制”政审，对亲共的治港“爱国者”的政审，什么时候到来呢？毛泽东利用文革对中共国的“开国元勋”进行清洗。假设中共在香港得逞，你们这些建制派的大佬们，是不是也需要被清洗一下呢？
 
-《中英联合声明》是中共国政府对世界的承诺，香港《基本法》是中共国政府对香港人的承诺，如今怎么样了？在独裁政权面前，没有契约精神可言！翻云覆雨就靠当权者一张嘴，进入了中共这个绞肉机体制的香港亲共官员们，勇敢的香港人、有良知的中国人都看得见你们的未来。借用郭文贵先生的一句话：“莘县阳谷县搭县，咱走走看！”
 
-**原文翻译：**
+**视频字幕：**
 
-## **律政司司长：香港将审查政治候选人的整个过去，以确保对中共国忠诚**
+**Sky Sun：**美国驻帕劳大使与帕劳总统一同对台湾进行了为期5天的访问，这是过去42年里的首次。这样的行动对美国中国台湾的三边关系有什么影响？
 
-“我们不能完全限制住自己，说我们只审查过去三到五年的事情，因为我们必须根据相关背景来审查所有事情……也许他或她十年前提到的事情与他们昨天所说的有关。
+**班农：**这是个很好的问题。我认为这些細小的动作是好的。但我们必须更加果敢。我认为我们必須更加果敢，在台湾导弹防卫方面。我认为习近平目前在党内加紧备战，因为严峻的国内经济形势。
 
-在中共国宣布彻底改革（香港选举制度）以确保只有“爱国者”统治香港之后，香港最高司法官员周六表示，香港公职候选人的整个历史都要接受审查。
+尽管中共公布的经济数据不差，但真实的数据显出了中共内部经济的严重滑坡。为了转移人们的视线，我认为习近平在台湾和南海上会更加激进。
 
-周二，北京对香港的选举制度进行了全面改革，这是在经历了大规模的暴力抗议活动后，持续镇压香港民主运动的最新举措。
+回看几周前的阿拉斯加会谈。布林肯在所谓人权问题上唧唧歪歪两分钟。他遭到杨洁篪长达20分钟的炮轰，彻底的羞辱。中共是在试探西方的決心。我觉得这种双边行动是不错的，但我们需要的远远不止于此。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/F4NtmueR6u3jB/images/9fa3a6d2-85f9-4423-8eee-f61c3edcb2a2.png?asset_id=cf1e2dc5-3f12-4640-b1ee-f8b024445888&amp;img_etag=%22d8289ea60a92a6cbb84ea1e6a952cf38%22&amp;size=1024)](https://spark.adobe.com/page/F4NtmueR6u3jB/images/9fa3a6d2-85f9-4423-8eee-f61c3edcb2a2.png?asset_id=cf1e2dc5-3f12-4640-b1ee-f8b024445888&amp;img_etag=%22d8289ea60a92a6cbb84ea1e6a952cf38%22&amp;size=1024)郑若骅（左二）签署请愿书，支持拟议的选举改革。图片：香港政府一站通
+我们需要拜登政府直截了当声明中共对南中国海沒有所有权。川普之前的美国政府对中共的纵容是荒唐的。拜登政府需要对台湾人民的安保做出直接声明。如果不这么做，就无异于鼓励中共得寸进尺。
 
-香港的迷你宪法“《基本法》的最新修正案”确保了大多数议员将由可靠的亲北京委员会选出，每位候选人都将由国家安全官员进行审查。
+我一直强调，只有对抗中共的超限战，才能避免热战。如果不这么做，那么热战注定无法避免。
 
-香港律政司司长郑若骅告诉公共传媒机构《香港电台》，该委员会将考虑“与候选人有关的所有材料”，包括任何“被怀疑影响其忠诚度和忠心的材料”。
+我年轻的時候是海军军官，曾在南中国海巡航，保护那里所有人包括中国人的自由通航。我的战舰在1970年代多次造访台湾。
 
-郑说，对需要审查的内容没有任何限制。
+如果我们今天不对抗中共这个跨国犯罪集团，台湾的自由和安定必将消亡。我认为，在拜登政府的带领下，西方有机会通过果決的行动扭转这样的趋势。
 
-“我们不能完全限制住自己，说我们只审查过去三到五年的事情，因为我们必须根据相关背景来审查所有事情……也许他或她十年前提到的事情与他们昨天所说的有关。”
+**[完整访谈视频](https://youtube.com/embed/EgrTmyAAueM?enablejsapi=1)**
 
-在2019年香港大规模抗议活动爆发后，中共国领导人已断然采取行动，加强对这个国际金融中心的控制，废除了香港仅有的民主制度的支柱（香港司法系统）。
+**主播：**Dr. Ming, Mike, Sky Sun，Dr. TCC, Castle 和Daniel
 
-他们去年实施了一项《国家安全法》，将许多异议定为违法。
+- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
+- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)链接
 
-[!\[\]()!\[\](https://spark.adobe.com/page/F4NtmueR6u3jB/images/b3e7665f-3717-43af-a4b7-195f87a33061.png?asset_id=8244f627-8389-409f-b869-1b756e9d59ed&amp;img_etag=%220df1ae0bcbccd8889f33789c23bf360e%22&amp;size=1024)](https://spark.adobe.com/page/F4NtmueR6u3jB/images/b3e7665f-3717-43af-a4b7-195f87a33061.png?asset_id=8244f627-8389-409f-b869-1b756e9d59ed&amp;img_etag=%220df1ae0bcbccd8889f33789c23bf360e%22&amp;size=1024)图片：香港政府一站通
 
-在“一国两制”框架下，在一个享有比独裁大陆更大的政治自由的城市，抗议活动遭到扼杀之后，数十名参与竞选的活动人士被起诉或入狱。
-
-中共国当局鼓吹选举改革是继全面的《国家安全法》颁布之后，平息骚乱“组合拳”的第二拳。
-
-When Hong Kongers are allowed to vote in limited local elections, they tend to do so overwhelmingly for pro-democracy candidates, something that has rattled authoritarian Beijing.
-
-当香港人被允许在有限的地方选举中投票时，他们以压倒性多数支持泛民主派候选人，这使独裁北京感到恐惧。
-
-根据新措施，香港的立法机关将从70席扩大到90席，但现在只有其中的20席可以由直接选举产生，之前的直选席位是35席。
-
-[原文链接](https://hongkongfp.com/2021/04/03/hong-kong-will-vet-political-candidates-entire-past-to-ensure-loyalty-to-china-justice-chief/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.com/invite/gQcCnsACar)
-
+***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三直播***
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/F4NtmueR6u3jB/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/F4NtmueR6u3jB/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/8qptuq4CxvUNr/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/8qptuq4CxvUNr/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

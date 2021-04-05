@@ -1,41 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 臧其超：40多年全靠抄
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1051666/)
+## FACEBOOK助中共掩盖在新疆的“种族灭绝”罪行
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1051925/)
 
-新闻来源：The National Pulse《国家脉动》| 作者：Natalie Winters (娜塔丽•温特斯）| 发布时间：2021年4月1日
-翻译/简评：随波逐流|校对：感恩|审核：万人往|Page：小雨
+新闻来源：Breitbart《布赖特巴特》| 作者：ALANA MASTRANGELO（阿拉娜•马斯特兰格罗）| 发布时间：2021年4月3日
 
-[!\[\]()!\[\](https://spark.adobe.com/page/pqIiHrIpOufDG/images/3fd3c3d1-fdf9-414b-8004-e5fdf62528ec.jpg?asset_id=8e5e6410-8b9c-4236-8ad4-a547f3f22ed0&amp;img_etag=%2237f24e5e93ae99d7439da1a398842c19%22&amp;size=2560)](https://spark.adobe.com/page/pqIiHrIpOufDG/images/3fd3c3d1-fdf9-414b-8004-e5fdf62528ec.jpg?asset_id=8e5e6410-8b9c-4236-8ad4-a547f3f22ed0&amp;img_etag=%2237f24e5e93ae99d7439da1a398842c19%22&amp;size=1024)
+翻译/简评：随波逐流 |校对/审核：万人往|Page：小雨
+
+[!\[\]()!\[\](https://spark.adobe.com/page/VRc8eedNk7b7Q/images/ec739155-0457-47e2-8a41-681b6831f27a.jpg?asset_id=8045520b-8889-4ab5-b0b6-3dcbef27148f&amp;img_etag=%2271945debdd9a950322e341e5e9ff27ce%22&amp;size=1024)](https://spark.adobe.com/page/VRc8eedNk7b7Q/images/ec739155-0457-47e2-8a41-681b6831f27a.jpg?asset_id=8045520b-8889-4ab5-b0b6-3dcbef27148f&amp;img_etag=%2271945debdd9a950322e341e5e9ff27ce%22&amp;size=1024)
 
 **简评：**
 
-中共的代言人，习近平母校清华大学的市场营销专家兼客座教授臧其超在一次对一群中国企业家的演讲中吹嘘中共政权如何“靠抄袭模式走到世界前列”。他在演讲中透露，过去四十年，中共靠疯狂剽窃和抄袭获得它国的知识产权和专利技术，至今已经学会了一切，可以自己做任何事。这使得中国共产党官员在最近的阿拉斯加峰会上与美国官员对话时态度能够如此强硬。他们认为“你无权以这种方式与我们交谈”。臧其超是一位与中共有紧密关系的教授、作家和商人，他名下公司的客户包括中共国的国有银行和电信公司。他的简短言论于3月21日首次发布在他的中共国社交媒体频道上，此后广为流传。
+据《华尔街日报》的一份报告称，Facebook员工在内部表达了他们对该公司被用作中共宣传渠道的担忧。Facebook员工在内部留言板上表达了对该社交媒体平台上有关中共国政府广告的关注，这些广告宣传了中共国新疆地区的穆斯林少数民族欣欣向荣的虚假信息，欲掩盖中共犯下的“种族灭绝”罪行，同时指责西方国家破坏中共国和谐稳定。有问题的广告和帖子中包括一些新疆人的录像，其中有一些儿童对着镜头说，他们的生活正在改善，而西方国家正在密谋破坏中共国的稳定。Facebook尚未决定是否对员工的担忧做出回应，并正在观察联合国等国际组织如何应对新疆局势。Facebook员工在内部聊天的帖子中写道：“现在是时候让我们的平台采取行动来打击有关维吾尔族种族灭绝的错误信息了。”该职员称该帖子是对领导层的请愿，并请求Facebook的首席产品官克里斯•考克斯以及首席执行官马克•扎克伯格给予关注和回应。
 
-中共治下的国家在共产党的疯狂洗脑教育下，从政府到民间已形成了一套是非不分、不择手段、唯利是图的伪爱国思维模式。大学教授可以在大庭广众之下堂而皇之地吹嘘自己国家如何靠剽窃照抄他国技术，走到世界领先地位。不但没有丝毫惭愧之意，反而有一种洋洋自得的感觉。而国家官员居然可以把犯罪所得作为资本，在谈判中大摇大摆、态度强硬地想要去与他国平起平坐。尤其是大量底层民众竟然在媒体上为这种偷窃行为拍手叫好，认为这是理所当然的利国利民的好事，并为中共歌功颂德。一个五千年文明的大国在短短几十年间让中共糟蹋得不成样子，世界观和是非观被严重扭曲，法治、道德荡然无存。中共不灭，民众思维将会继续固化得不到升华，世界将永无宁日。
+中共已经对西方国家发动了多年的“信息战”，如今已渗透到军方、政府、学校、媒体等各个角落，对社交媒体平台的控制只是其中的一部分。中共近年来通过大量收购各大社交媒体平台或者“蓝金黄”媒体高层为自己的政权服务，不但使这些媒体帮助宣传对自己有利的虚假信息或错误信息来误导大众，而且还通过封锁账号、断播、网络审查等行为压制真实信息的传播，连美国总统川普都未能幸免。这些媒体在西方帮助中共传播虚假信息和阴谋论的同时，在中共国却照样遭到了封锁，中共的宣传真的做到了对内一套，对外一套，两面都在骗。即使如此，也绝不会抹去中共对新疆人民犯下的“种族灭绝”罪行和以病毒攻击世界的真相。所幸美国已经在这场较量中觉醒，成立特种作战部队应对中共国的“信息战”。相信不久的将来，暂时被掩盖的真相将瞬间大白于天下，人类的最终觉醒必将形成全球联合灭共之势！
 
 **原文翻译：**
 
-## 中国共产党的代言人承认“疯狂剽窃”西方国家技术
+## **报告：Facebook员工对投放中共国的外宣广告深感不安**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/pqIiHrIpOufDG/images/4a55abc2-c567-4e94-800b-aec1940fb085.jpg?asset_id=e13e11ee-c454-4840-b57d-6b3ba5ab338e&amp;img_etag=%22bdb9f19799305e758d6afe43434a69d3%22&amp;size=2560)](https://spark.adobe.com/page/pqIiHrIpOufDG/images/4a55abc2-c567-4e94-800b-aec1940fb085.jpg?asset_id=e13e11ee-c454-4840-b57d-6b3ba5ab338e&amp;img_etag=%22bdb9f19799305e758d6afe43434a69d3%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/VRc8eedNk7b7Q/images/65fdd1ae-7d0c-4483-b540-784fd1ac89dd.jpg?asset_id=5dc2c714-866d-4cef-bdf1-c25c2ef52635&amp;img_etag=%22336a1c47e168a85714181abfb416efc6%22&amp;size=1024)](https://spark.adobe.com/page/VRc8eedNk7b7Q/images/65fdd1ae-7d0c-4483-b540-784fd1ac89dd.jpg?asset_id=5dc2c714-866d-4cef-bdf1-c25c2ef52635&amp;img_etag=%22336a1c47e168a85714181abfb416efc6%22&amp;size=1024)Chip Somodevilla摄/盖蒂图片
 
-**一位与中国共产党有联系的商人和教授在一次被曝光的演说中吹嘘，该政权如何“靠抄袭模式走到世界前列”。**
+**据报道，脸书（Facebook）员工在内部信息留言板上表达了对该社交媒体平台上有关中共国政府外宣广告的担忧，这些广告宣传了中共国新疆地区的穆斯林少数民族欣欣向荣的信息。**
 
-习近平母校清华大学的市场营销专家兼客座教授臧其超对一群中共国企业家说，这种剽窃行为使该政权采取了更为激进的方式处理与美国的关系。
+据《华尔街日报》（Wall Street Journal）的一份报告称，Facebook员工在内部表达了他们对该公司被用作中共宣传渠道的担忧。
 
-臧承认：“我们疯狂剽窃，疯狂抄袭。”他补充说：“什么知识产权？ 什么专利技术？我们首先是先拿到它，之后再进行处理。”
+当Facebook在中共国被封锁时，北京正利用该平台通过广告向其他国家的亿万人民传播其政治观点。
 
-臧透露，过去四十年，中国共产党已经“学会了一切，而且可以自己做任何事”，然后补充说：“当我们回头看时，工厂是我们的，设备是我们的，技术是我们的，专利是我们的。”他强调：“外国人已经都走了。”
+接受《华尔街日报》采访的消息人士称，Facebook正在密切注视联合国等国际组织对新疆局势的反应，尚未决定是否对员工的担忧做出回应。
 
-大规模的知识产权窃取使中国共产党官员在最近的阿拉斯加峰会上与拜登总统的国务卿和国家安全顾问间对话持“强硬”态度：
+一位Facebook发言人说，只要广告商在购买播出权时遵守公司的规定，北京有关新疆的广告就不会违反该社交媒体巨头的政策。发言人补充说，Facebook正在监测有关新疆局势的报道，“以帮助告知我们有关这一问题的处理方法和尽职调查。”
 
-“这就是为什么我们的外交部长杨洁篪和王毅在与美国对话时能够如此强硬。[他们认为]你无权以这种方式与我们交谈。”
+有问题的广告和帖子中包括一些新疆人的录像——其中包括一些儿童——他们对着镜头说，他们的生活正在改善，而西方国家正在密谋破坏中共国的稳定。
 
-《大纪元时报》指出：“臧是一位中共国教授、作家和商人，他还担任两家公司的主席，一家通信公司和一家投资公司。这两家公司的客户包括中共国的国有银行和电信公司。他的简短言论于3月21日首次发布在他的中共国社交媒体频道上，之后被广为流传。”
+该报告还说，有Facebook员工在公司为穆斯林员工提供的内部聊天中发了帖子，指出美国政府已宣布北京对待维吾尔族人的方式是种族灭绝。
 
-🔗[原文链接](https://thenationalpulse.com/breaking/ccp-wildly-plagiarizing-from-west/)
+《华尔街日报》获取的这名Facebook员工的帖子中写道：“现在是时候让我们的平台采取行动来打击有关维吾尔族种族灭绝的错误信息了。”
+
+该职员称该帖子是“对我们领导层的请愿”，并提到Facebook的首席产品官克里斯•考克斯（Chris Cox），Facebook首席执行官马克•扎克伯格（Mark Zuckerberg）的高级副手。
+
+考克斯回应说，他将“回头再讨论这个问题”。
+
+考克斯回复道：“谢谢您让我参与进来。这是非常严重的。让我咨询我们的诚信团队以获取状态更新，然后亲自回来讨论或与正确的联系人交流。”
+
+尽管Facebook领导层反复考虑是否应禁止该平台上的共产主义宣传，但该公司似乎毫不犹豫地对美国总统采取了行动，因为马克•扎克伯格于今年早些时候在Facebook和Instagram上“无限期地”将前总统唐纳德•川普列入黑名单。
+
+🔗[原文链接](https://www.breitbart.com/tech/2021/04/03/report-facebook-workers-are-concerned-about-running-chinese-propaganda-ads/)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
 - [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
@@ -43,5 +54,7 @@
 
 
 编辑：【英国伦敦喜庄园编辑部】
-[!\[\]()!\[\](https://spark.adobe.com/page/pqIiHrIpOufDG/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/pqIiHrIpOufDG/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+
+[!\[\]()!\[\](https://spark.adobe.com/page/VRc8eedNk7b7Q/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/VRc8eedNk7b7Q/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+
 0
