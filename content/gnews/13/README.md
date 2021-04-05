@@ -1,34 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共对美发动“以钱灭美”的货币战争&nbsp; 是其“灭白计划”的一部分
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1052112/)
+## 中共在贷款合同中玩手段，逼迫债务国偿还债务
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1052100/)
 
-简述：郭先生在2021年4月4日深夜发布的盖特视频中，预告了4月5日直播将要讲的两个重要内容：中共怕人民过清明节暴露其病毒死亡真正人数，中共已经对美发动了“以钱灭美”的货币战争，也是其“灭白计划”的一部分。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210404-getter3.srt.txt)
-**中共对美发动“以钱灭美”的货币战争  是其“灭白计划”的一部分**
+#### 翻译：文非 | 责编：文旺
+![]()![](https://gnews.org/wp-content/uploads/2021/04/capture-5.jpg)图片来源：美联社
+据《半岛电视台》（Al Jazeera）近日报道，一项研究报告显示，中共与发展中国家的贷款协议条款异常神秘，要求借款人优先偿还中共国有银行的贷款，而不是其他债权人。
 
-**CCP Launches a Currency War Against America as Part of Its “Extinction of the White People Plan”**
+报道指出，这项研究的数据集是美国威廉玛丽学院（College of William & Mary）的‘数据援助’（AidData）研究室在三年内汇编而成的，包括中共国与24个低收入和中等收入国家签订的100份贷款合同。由于中共病毒对世界经济的影响，其中一些国家在不断增加的债务负担中挣扎。
 
-我那个手机很多很多战友发来在国内去清明节，过清明节的感受，以及武汉很多战友说，武汉所有的墓地都是便衣警察，有的人想到十字路口烧纸被抓，火葬场旁边到处是警车。这到底为啥呢？你们就死了几百个人，你说你弄这干什么？然后现在他们真正的感受到了，冠状病毒死的人那可不是一个“0”，两个“0”的事儿了，更夸张的事情，战友们发现了很多的事情，我在这儿不说了吧，所以明天我的直播说说，很多战友让我要直播给大家聊聊，那我就聊聊吧。
+研究人员和经济学家将注意力转向中共国这边，因为它是世界上最大的债权国，占非洲、东欧、拉丁美洲和亚洲价值数千亿美元的官方双边债务的65%。包括美国乔治敦大学（Georgetown University）法学教授安娜·盖尔佩恩（Anna Gelpern）在内的报告作者们认为，中共国是世界上最大的官方债权人，但它与债务国签署的合同缺乏清晰的借贷条款和条件。
 
-I received many messages from fellow fighters in mainland China, telling me their feelings about the Tomb-Sweeping Day. Many fellow fighters in Wuhan said there were undercover police everywhere in cemeteries. Some people wanted to burn some joss paper at street crosses, but were arrested. There were police cars everywhere close to crematoriums. Why? Isn’t it just a few hundred people died? Why do you need to do all these? Now they truly feel that the number of deaths from the coronavirus should have one or two more zeros at least. What’s more absurd is that our fellow fighters have found out many more things, which I can’t say now. I will talk about it on my broadcast tomorrow. Many fellow fighters asked me to broadcast and chat a little bit.
+报道引述路透社（Reuters）的消息称，总部位于华盛顿的全球发展中心(CGD)、德国基尔研究所(Kiel Institute)和彼得森国际经济研究所(Peterson Institute for International Economics)的研究人员，将中共的贷款合同与其他大型银行的贷款合同进行了比较，以对中共对外贷款的法律条款进行首次系统评估。他们长达77页的报告分析揭示了中共贷款协议里几个不同寻常的特征，这些特征扩展了标准的合同工具，以提高还款机会。
 
-另外一个明天还聊一个重点，共产党啊..咱是以钱灭共，以毒灭共，共产党正在以钱灭美，在这之前我不能说，我要说了以后吧，他就不干了，他就不干了，美国人就不信，说咱造谣，胡说八道，是吧？现在美国人已经知道了，上一周美国人感受到了，啊..Miles,你说的有道理，他动了手了我再说，今天不搞重磅的重磅了，是吧，共产党以钱灭美咋灭的？他是灭白计划其中，他必须他要以钱灭美，以钱灭美就那几招儿，你们想听吗？咱明天上午9:30见。
+报道称，这些条款包括，防止借款人披露贷款协议中的保密条款，有利于中共而非其他债权人的非正式抵押安排，以及承诺不让借债方参与集体重组的承诺，这些条款被称为“非巴黎俱乐部”（No Paris Club）条款。巴黎俱乐部是由22个国家组成的集团，成员国大多是发达国家，中共国不在其中，它们同意集体与债务国打交道。其原则之一是各成员国相互分享关于债务国情况的信息，并在可比较的基础上对待借款人。
 
-Another important thing that we will talk about tomorrow is that the CCP is planning to take down the U.S. with money [a currency war], as opposed to our taking down the CCP with financial activities and the truth about the virus. I didn’t say it earlier because if I exposed it prematurely, they might postpone or quit their plan, and then Americans would not believe me or even blame me for lying to them, right? Now Americans have been aware of it. It was last week. They said, “Miles, what you said makes sense, but we will wait for them to move first, then we will react.” So, there won’t be any bombshells for today, alright? How can the CCP take down the U.S. with a currency war? It’s part of their Extinction of the White People Plan. They will for sure implement their plan of taking down the U.S. with a currency war. They have only a few tricks. Do you want to hear? See you tomorrow at 9:30 AM.
+中共坚持借款人遵守保密协议的做法，不同于与其他国家的国家担保贷款机构签订的合同，后者往往主要对贷款机构进行保密。报告称，这些条款意味着“债权国和债务国双方的公民都不能对本国政府问责”。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/606a6c2fdbc8001854a58991](https://gtv.org/getter/606a6c2fdbc8001854a58991) (00:40-2:15)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1050330/](https://gnews.org/zh-hans/1050330/)
+不过，报告指出，主权债务交易缺乏透明度的情况不仅限于中共国，几乎所有非国家支持的银行也没有公开发布其贷款合同的文本。报告称，披露所有债务合同，无论在政治上有多么困难，都应该成为常态，而不是例外，公共债务应该是公开的。该报告还说，中共国与债务人的合同，为中共取消贷款或加速还款提供了很大的余地。
+
+该报告的合著者、CGD高级研究员斯科特•莫里斯（Scott Morris）表示，调查结果引发了人们对中共国作为20国集团（G20）大型经济体集团之一角色的质疑。G20已就一个“共同框架”达成一致，旨在帮助较贫穷国家应对中共病毒造成的财政压力，允许它们全面调整债务负担。该框架要求对所有债权人，包括私人贷款机构给予同等待遇，但他说，所审查的大多数合同都禁止各国在平等条件下与其他债权人协调重组这些贷款。
+
+莫里斯对路透社说，这是一项非常引人注目的禁令，似乎违背了中共国在G20上所作的承诺。不过他补充说，中共有可能不会在贷款合同中执行这些条款。中共外交部没有立即回复路透社的置评请求。
+
+中共过去曾表示，其金融机构，而不仅仅是官方债权人，正在努力帮助缓解非洲国家的债务困境。去年11月，中共还表示，根据G20计划，它已向发展中国家提供了总计21亿美元的债务减免，这在G20成员国中是延期金额最高的。甚至在中共病毒颠覆全球经济之前，中共向非洲提供贷款就变得更加谨慎。美国约翰霍普金斯大学（Johns Hopkins University）本周发布的另一项研究显示，2019年，中共对非洲的融资额近10年来首次跌破90亿美元。研究人员审查的材料包括中共国与喀麦隆签订的23份合同，与塞尔维亚和阿根廷签订的10份合同，以及与厄瓜多尔签订的8份合同。今年1月，世界银行（World Bank）警告称，由于中共病毒导致全球经济严重衰退，一些国家迫切需要债务减免。
 
 * * *
 
-字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+评：中共近年来通过压榨14亿老百姓获取了巨额财富，然后开始在全世界进行“大撒币”，表面上是亏损的买卖，赔本赚吆喝，被国内很多老百姓痛骂。但是中共的诡计从不是显示的那样愚蠢，其真正的野心在上述报道中可以看出。中共在贷款时要求借款方签署保密协议，方便其进行暗箱操作。中共通过债务经济来进行扩张，“一带一路”计划便是其中的杰出代表。
+
+据纽约时报（New York Times）报道，斯里兰卡向中共贷款，最终因无法偿还巨额债务而将重要港口——汉班托塔港，被迫租借给中共99年。这次转让使中共得以控制距其对手印度的海岸仅几百英里的一片区域，以及重要的商业及军事航道沿线战略立足点。此次事件暴露了中共真正的野心，全球投资和借贷项目,实际上相当于给全世界的弱小国家设下债务陷阱，助长了各个陷入困境的民主国家的腐败和专制行为。中共向全世界释放了其制造的病毒，打开了潘多拉盒子，给世界各国经济造成巨大打击，尤其是那些向中共贷款的中小国家，更是雪上加霜，很可能在病毒影响下再也无力偿还中共的债务，只能沦为案板上的鱼肉，任中共肆意宰割。
+
+&gt;&gt;原文链接&gt;&gt;
+
+1. [China demands secrecy in its loans to developing countries: Study](https://www.aljazeera.com/economy/2021/3/31/chinas-loans-to-developing-countries-require-secrecy-study)
+2. [How China Got Sri Lanka to Cough Up a Port](https://www.nytimes.com/2018/06/26/world/asia/china-sri-lanka-port-hant.html)
+
 
 0

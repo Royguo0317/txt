@@ -1,32 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 信仰为“毛”用？
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1051635/)
+## 华盛顿飘荡着一种不安情绪&nbsp; 说冠状病毒一定会再来而且更夸张
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1051678/)
 
-```
-新闻来源：人民网
-发布日期：2021.04.04
-作者：斩草要除根
-```
+简述：在2021年4月2日的盖特视频中，郭先生说华盛顿的朋友透露说，“美国在华盛顿，飘荡着一种不安的情绪，说冠状病毒一定会再来的，而且一定会是更加夸张”。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210402-getter1.srt.txt)
+**华盛顿飘荡着一种不安情绪  说冠状病毒一定会再来而且更夸张**
 
+**It’s Said in Washington D. C. that the Virus Will Come Back for Sure and Even More Ferociously**
 
-在这篇 名为“在红色歌曲种感悟信仰的力量”文章写到“一曲红歌就是一段鲜活的历史，把首首红色歌曲 变成为人们学习党史、领悟党史的一个途径，习近平总书记强调，红色歌曲是红色资源，传唱红歌是传承红色基因。”
+我刚刚在录这个视频盖特之前，我和华盛顿的两个咱们的好朋友，我别说是谁了，通话。他说现在美国在华盛顿，飘荡着一种不安的情绪，说冠状病毒一定会再来的，而且一定会是更加夸张。很多人都害怕，要搬离华盛顿，很多纽约，像洛杉矶很多有钱人，更多人都要搬离，这一段跃跃欲试想回来的人，也都想撤回去了。
 
-#### 简评：
+Right before I started recording this Getter video, I talked over the phone with two friends of ours in Washington D.C., whom I don’t want to name. He said that there is this feeling of uneasiness which can be sensed in the air in Washington D.C. It’s said that the virus will come back for sure, and even more ferociously. Many people are anxious and plan to move out of Washington D.C. Many rich people in New York City and Los Angelos are moving out too. People who planed to move back previously are now turning back.
 
-**我想到两类把唱红歌和信仰产生联系在一起的人，他们可以算是可笑荒谬的存在，第一类就是本应该念阿弥陀佛而现在变成“中共和尚”的，他们唱红歌，感悟出来求财、求色、求官这样不伦不类的信仰，他们开豪车、喝酒抽烟吃荤、有情妇、有私生子；另一类是一群在舞台上用唱红歌夺人眼球的“老外”，他们来自我们要打倒的帝国主义，现在却在共产主义的中共国混得如鱼得水，他们满足了中共的一定政治上的需要，中共也满足了他们的名利需求。**
+所以说这个病毒对大家的威胁，它不分高低，不分男女，不分穷人和富人。共产党干了一件事，不分高低左右的，干了一把，就是冠状病毒。所以说是毒主啊，毒主，共产党非它莫属了。
 
-**红歌是文革时期特殊的一个符号，而开启文革2.0的习近平自从上台以来一直用唱红歌替文革“招魂”，中共利用红歌这个特殊的思想毒药让文革余毒回归和复兴，这是中华民族的再次不幸。**
+So, the virus threatens everybody and can’t differentiate lower-class people from the higher-class people, males from females, or the rich from the poor. The CCP has really done one thing that can affect everyone – the CCP virus! So, the CCP is the owner of the virus. “Owner of the virus” – the CCP definitely deserves this title.
 
-**我们何时能拥有真正的信仰？这是一条漫长的道路，但是我知道只有遵从人性，不强行赋予，信仰才能产生真正的自由和力量。**
+另外一个共产党，他们也掌握情况，中国的经济一塌糊涂。他说这个中国经济还能撑多长时间啊？我说我要跟你说撑三年，你信吗？他说，我不信。那不就完了嘛？三年以内嘛。
 
-原文链接：🔗[在红色歌曲中感悟信仰力量（今日谈）](http://paper.people.com.cn/rmrb/html/2021-04/04/nw.D110000renmrb_20210404_4-01.htm)
+They have also been aware that the CCP’s economy is in a mess. He asked how long it will take for the Chinese economy to collapse? I said, “If I say the economy may hold for another three years, will you believe me?” He said, “No, I won’t.” That’s right. Of course it will collapse within three years.
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60671f1c49339063d0621446](https://gtv.org/getter/60671f1c49339063d0621446) (00:12-1:16)
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1045303/](https://gnews.org/zh-hans/1045303/)
 
 * * *
 
-***审核/校对：**Ting Guo*
-
-（免责声明：本文仅代表作者个人观点，跟GNEWS平台无关。）
+翻译：【7PawBear】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
