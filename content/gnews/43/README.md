@@ -1,145 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0404.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1049869/)
+## 【战友心声】拜登会与闫博士见面吗？
+` 纽约香草山MOS03` [轉載自GNews](https://gnews.org/zh-hans/1050209/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+作者：纽约香草山农场 遍地开花
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
 
 
-## 深挖中共病毒真相
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-4月4日劳伦斯博士继前一天推文持续揭露中共病毒关键负责人，其用词和理论与爆料革命天使科学家闫博士步调一致。推文如下。
 
-中共军方正在研究 “脑控”病毒影响神经系统。中共的生物战计划与病毒脑效应之间的联系。陈伟（音译）&安婧（音译）曾在第三军医大学重庆分校共同工作。
 
-#中共病毒 #超限生物武器 #COVID19病毒来源
+拜登会与闫博士见面吗？本人认为是必然的。以毒灭共已是大势所趋，而闫丽梦博士是以毒灭共的核心。如今，美国媒体开始大力宣传闫博士，当民意达到足够灭共的高度时，拜登与闫丽梦博士的见面也就快了。
 
+中共无底线的邪恶已经超出了人类理解的范畴，美国不能，也不敢再让其胡作非为。路德先生多次提到过，唯一能让美国下定决心灭共的只有追究病毒溯源这一理由。它表明了中共不但有害美之心，更重要的是有了害美的能力，这是美国无法容忍的。除了珍珠港事件外，新冠病毒是唯一打到美国本土的一次超限攻击，史无前例的惨重，且还在持续不断着。难道美国会算了吗？美国一定会反击，而反击就必须有充足的证据，证明病毒是中共的超限生物武器。闫博士的第三篇中共病毒报告已经出台，且经过新中国联邦人的不懈宣传和推广，已经造成了巨大的影响。4月2日路德社晚间节目，路德先生用了不短的时间介绍了闫博士报告在美国的严肃性和权威性。闫博士科学的、严谨的、逻辑性无懈可击的报告，法院是可以直接引用作为依据的。如果中共不能用同等级的病毒报告予以驳回，那么闫博士的报告就是中共超限生物武器攻击世界的证据，是中共完美犯罪的噩梦。
 
+用报告的真，击溃中共一切的假。美国前总统川普的助理纳瓦罗先生公开为闫博士的报告站台——他说闫博士的所做是极为杰出的，建议美国人去看这份报告。路德社在4月1日的早间节目中对纳瓦罗的站台第一时间做出解读。我们得知，纳瓦罗原来是美国背后有定海神针力量的发言人，他的公开背书，几乎等同美国承认了新冠病毒就是中共的超限生物武器。现在，美国要把闫博士推上媒体前沿来唤醒民意，当民意足够之时，就是动手之日。可以看出，美国应该做好了一切准备，就欠民意这个东风了。
 
-> China's military is working on "brain control" [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) affects the nervous system. A link between CCP's biowarfare program & viral brain effects. Wei Chen & Jing An worked together at the 3rd Military Medical University Chongqing[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/rzYNObXCQK](https://t.co/rzYNObXCQK)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 4, 2021](https://twitter.com/LawrenceSellin/status/1378603088613945355?ref_src=twsrc%5Etfw)
+既然灭共已成定局，拜登也别无选择。对外，美国两党一致；但是对内，灭共的功劳大小关乎着捞取利益的多少，两党必然争先恐后地积极灭共。路德先生曾经透露，川普时任总统期间准备了三十多道行政命令——无论推出哪条都能要了中共半条命。这些灭共大餐虽然最终没能上桌，但菜还在那，只是到了民主党拜登手里，拜登只要一端出，中共就得死翘翘。不过，这样或许只能算出餐的功劳，菜还是共和党做的。虽然共和党首先推出了闫博士，但不是官方，川普也没有接见过闫博士。如果拜登正式接见闫丽梦博士，才是代表美国官方首次的承认，其意义不是共和党能比的。这或许就是文贵先生说的，川普就吃亏在这上面了。
 
+爆料革命让我们了解到中共的邪恶，同时也看清了世界的丑陋。但无论如何，以毒灭共已经势不可挡。文贵先生在盖特中说，他又要跑山里开会去了。开会的都是些什么人呢？呵呵。我琢磨着应该是替共产党安排后事去了。文贵先生出山之日，就是灭共高潮的开始。那么，离拜登见闫博士也就不远了。
 
+（本文观点仅代表作者）
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
+审核：灵性探索
 
-姜世勃，是#COVID19 弗林梅切位点病毒起源的关键一环，2007年从SARS开始，2013年基因改造插入了一个4aa 弗林梅切位点。2015年，一个S1-S2 弗林梅切位点出现在高福的SARS类冠状病毒 “愿望清单 “上。从这些文章中，关注军事链接。#CCP病毒 （#中共病毒）
+编辑/校对/发稿：Irene木木
 
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
 
-> Shibo Jiang, a key link in the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) 's furin cleavage site (FCS), began with SARS in 2007, genetically inserted a 4aa FCS in 2013. In 2015, a S1-S2 FCS was on Gao Fu's "wish list" for SARS-like coronaviruses. From those articles, follow the military links.[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1h7wufTpzG](https://t.co/1h7wufTpzG)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 4, 2021](https://twitter.com/LawrenceSellin/status/1378725944098238472?ref_src=twsrc%5Etfw)
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
 
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 
 
-## 揭露中共的顶级传染病专家—蝠奇
+![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg]()![This image has an empty alt attribute; its file name is GNEW-GTV-MOS-LOGO-2-109.jpg](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-109.jpg)
 
-Arthur Schwartz推文：“中国共产党和蝠奇（Anthony Fauci)似乎总是站在同一条战线上 — 无能并且不诚实的一方。”
 
-推文附两则新闻截图，一幅来自中共国新华网称，“尽管这周得克萨斯和密西西比州已经放宽强制戴口罩和商业活动的限制，美国顶级传染病专家安东尼-蝠奇警告结束大流行病限制措施为时太早。”另一幅来自重磅新闻911的真实新闻，“自从得克萨斯州放宽强制戴口罩的政策3州以来，7天平均感染案例达到自去年6月以来最低记录。”
 
-译者议：蝠奇博士为什么不听听美国真正的新闻，反而与中共唱一出戏呢？他究竟是美国传染病顶级专家，还是中共传染病顶级代言人？闫博士转发了这一推文。
-
-
-
-> The Chinese Communist Party and Fauci always seem to be on the same side — the incompetent & dishonest side. [pic.twitter.com/BUZIWT3P8u](https://t.co/BUZIWT3P8u)
-> — Arthur Schwartz (@ArthurSchwartz) [April 4, 2021](https://twitter.com/ArthurSchwartz/status/1378789874405376001?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 2022冬奥会
-
-4月4日参议员瑞克-斯科特转发了3月23日写给奥委会的信，信中提出“不能给习总书记一个洗白罪行的平台”。他呼吁“奥委会站在自由和人权的立场上，和他一起将2022年冬奥会从共产党的中国移出”。
-
-他今日推文称：“国际奥委会赞助商们，现在是时候为的加入我的呼吁，将2022年奥运会从共产中国转移到一个尊重人权的国家：[信件链接](https://bit.ly/3rM072U)”
-
-
-
-> It’s time for the sponsors of the [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw) to join my call to move the 2022 games out of Communist China and to a nation that respects human rights: [https://t.co/KONHncEeEI](https://t.co/KONHncEeEI) [https://t.co/wbgBown59U](https://t.co/wbgBown59U)
-> — Rick Scott (@SenRickScott) [April 4, 2021](https://twitter.com/SenRickScott/status/1378805032133476356?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 抵制美国职业棒球
-
-4月4日人口研究所所长史蒂文-摩西转推《大纪元》的一篇文章称：“清醒的伪君子公司抵制乔治亚州，拥护种族灭绝的#中国共产党。他们还自以为是地给我们讲‘价值观’”
-
-文章称，美国职业棒球联盟在延长并扩大了与一家中共国电信巨头的合同之后，抵制乔治亚州，原因是该联盟不同意该州民选州长和立法机构最近颁布的选举改革（持有效证件选举）。
-
-
-
-> [https://t.co/t8GCxAvVYd](https://t.co/t8GCxAvVYd)
-> 
-> Woke corporate hypocrites boycott Georgia while embracing the genocidal [#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hash&amp;ref_src=twsrc%5Etfw). 
-> And then they deign to lecture us on "values!"
-> — StevenWMosher @StevenMosher on Parler (@StevenWMosher) [April 4, 2021](https://twitter.com/StevenWMosher/status/1378799679362768899?ref_src=twsrc%5Etfw)
-
-
-！
-## 谁最污染环境
-
-4月3日凯尔巴斯先生推文：“中共国在2020年安装的燃煤电厂比欧洲大陆的全部装机容量还要多。还记得全球媒体称赞习近平的2060年碳中和计划吗？”
-
-人口研究所所长斯蒂夫-莫西转推：“无论美国在 “绿色能源 “上花了多少万亿美元，中共国将在可预见的未来继续燃烧百万吨肮脏的、含硫的煤炭。为什么Greta(瑞典倡导巴黎气候协议的女孩）不去中国？ 可能是因为他们不让她进入）。”
-
-
-
-> Regardless of how many trillions of dollars the U.S. spends on "green energy," [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) will continue to burn megatons of dirty, sulfur-laden coal for the foreseeable future.
-> Why doesn't Greta go to China? (Probably because they won't let her in.) [https://t.co/NJiISeiXMc](https://t.co/NJiISeiXMc)
-> — StevenWMosher @StevenMosher on Parler (@StevenWMosher) [April 4, 2021](https://twitter.com/StevenWMosher/status/1378805760591851523?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-## 轻松一刻
-
-班农战斗室媒体人Raheem今日转推一则英国媒体人Darren Grimes的推文视频，反映“左翼”面对不同旗帜的反应，从英国国旗，转到同性恋旗标、共产主义旗帜、欧盟旗、黑命贵拳头旗的不同反应，从厌恶到喜爱的夸张表情。
-
-
-
-
-
-> 😂🇬🇧 [pic.twitter.com/yDpYRTKJ7Y](https://t.co/yDpYRTKJ7Y)
-> — Darren Grimes (@darrengrimes\_) [April 4, 2021](https://twitter.com/darrengrimes_/status/1378771955906715648?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 复活节和清明节
-
-4月4日是的复活节，信手翻看美国总统、议员、政要、媒体人的推文，不难看到人们向上帝祷告，庆祝耶稣复活日的图文。在中共病毒依旧肆虐的今天，全世界各地很多人没有了往日热闹非凡的集市乐园、关闭了教堂祷告活动、有人觉醒着病毒已经让人们淡化了秉持信仰的意志、滋生的惰性和懈怠在悄无声息地夺去人们本来应该积极生活的风貌，有人依然被中共病毒所操控和洗脑。然而无论如何被政治操控、被利益集团左右，那些播种了文明价值观的人，秉持内心的信仰不会改变、追求正义和传统价值不会放弃。真正的斗争总是艰巨的，革命也会是曲折的，然而正义取胜、上帝掌权永不会改变。您可以延伸至各种信仰之下自己心中的守护神，愿正义大能之神佛永远陪伴爆料革命你我，愿神佛的国降临，愿神佛的旨意行在地上，如同行在天国；愿神佛的旨意行在文明世界，也行在灾难深重的中共国，普度苦难的中华同胞众生，早日战胜赤魔中共。
-
-同一时间的今天亚洲国家进入4月5日，中国传统的清明节。这一天人们祭祖扫墓、追远思亲。中共国大地无数为中共病毒丧生的冤魂、无数八九六四牺牲的民主先烈、无数在香港时代革命中捍卫自由民主和法制、如潮水涌动、英勇抗争、无惧牺牲的香港烈士们，中华大地多少冤魂亡灵，将和新生的新中国联邦人、与复活并永生的上天万佛万神一道聚能合力，消灭中共邪魔。
-
-
-
-> Happy Easter!! "He is not here; He has risen, just as He said." Matthew 28:6a [pic.twitter.com/k2IrpMEtXJ](https://t.co/k2IrpMEtXJ)
-> — Senator Doug Mastriano (@SenMastriano) [April 4, 2021](https://twitter.com/SenMastriano/status/1378709689903554567?ref_src=twsrc%5Etfw)
-
-
-马斯特安努议员推文：”死亡无法阻挡他”,”他不在这里，他已经复活了”。
-
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
-
-0
++2
