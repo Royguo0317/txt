@@ -1,26 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【灭共头条】闫丽梦博士的第三份病毒来源报告出炉
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1050644/)
+## 美国政要等每日重要信息0405.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1050677/)
 
-#### 撰稿：MIYA【㊙️翻 Gnews原创组】
-责编：萌萌的朋克
-![]()![](https://gnews.org/wp-content/uploads/2021/04/灭一组封面.jpg)图片来源：爆料革命战友制作
-3月31日，闫丽梦博士发表了第三份病毒来源报告。在这份最新报告中，闫博士进一步揭露了COVID-19疫情是中共精心策划的一场大规模、有组织地向全世界释放病毒的“完美犯罪”行动。
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-COVID-19疫情是一场人类历史上前所未有的浩劫，全球至今已有1.27亿人被感染，其中逾280万人死亡，可怕的是，这些数字还在持续攀升，并且已有多个国家不断涌现出变异病毒株。全世界似乎要被迫接受摆在面前的现实：未来很长一段时间，人类不得不生活在COVID-19的阴影之下。
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
+## 中共病毒继续挖料
 
-去年9月14日，闫丽梦博士发布了第一份报告，该报告证明SARS-CoV-2不是来自于自然，而是中共实验室制造的产物。同年10月8日，闫博士发布了第二份报告，她用大量中共科学家对外公开发表的文章反证得出结论，SARS-CoV-2是中共制造的一种超限生物武器。昨日，第三份病毒来源报告出炉，在这份最新报告中，闫博士除了再次肯定前两份报告的论点外，她更强调指出，SARS-CoV-2是中共生物武器计划的产物，该计划涉及到许多中共和海外的科学家，这场“科学大屠杀”的布局甚至遍及全球很多科学组织。
+4月5日劳伦斯博士继续使用爆料革命关于中共病毒的定义和闫博士关于超限生物武器的定论发推宣传，推文也找出更多中共病毒专家的照片：
 
-最新报告还详细记叙了中共利用人类对科学界的敬畏之心，如何巧妙地掩盖SARS-CoV-2的真实起源和生物武器的本质，如何利用全球的科学家及科学组织的参与，来共同完成这场“完美犯罪”的全过程。其中包括销毁数据和样本、在顶级科学期刊上发表捏造的病毒、通过贿赂顶级科学家和组织控制起源辩论的叙述，通过媒体控制、放大伪造的自然起源论，将所有其他起源论贴上 “阴谋论 “的标签，以及诽谤、打压揭露SARS-CoV-2真相的个人。
+毫无疑问，陈薇少将应该是中共生物战计划的负责人&所显示的每个人都曾在军方工作过。在中国，民用和军用研究没有区别。
 
-闫丽梦博士的三份病毒来源报告，秉承着唯真不破的原则，彻底揭露了中共向全世界发动超限生物战的全过程。站在科学的角度，闫博士的前两份报告至今也无人能够辩驳。她曾在FOX新闻采访中发出警告：“这不是政治问题，这是关乎真相与生命！留给人类的时间不多了。”
+#中共病毒 #超限生物战 #超限生物武器 #COVID19病毒来源
 
-COVID疫情已经持续一年多时间，对全球构成如此大的生存威胁和经济重创，如果全世界不是沿着生物武器的方向寻找疫情的真正根源，仍纵容中共继续误导和拖延追究真相的时间，极有可能再次遭受中共其他生物武器的重创。
 
-参考链接：
-[The Wuhan Laboratory Origin of SARS-CoV-2 and the Validity of the Yan Reports Are Further Proved by the Failure of Two Uninvited “Peer Reviews”](https://zenodo.org/record/4650821#.YGUyn68zbIW)
-（本文仅代表作者个人观点）
+
+> Make no mistake, Maj. Gen. Wei Chen is presumed head of the CCP biowarfare program & everyone shown has worked with the military. In China, there is no distinction between civilian and military research.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/luEHWbcH2F](https://t.co/luEHWbcH2F)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1379000079768510467?ref_src=twsrc%5Etfw)
+
+
+
+译者认为，这些照片一方面是让这些中共国内直接参与病毒研究的人了解自己已经上了美国追查病毒真相的黑名单，另一方面是通知与这些人有工作交往的美国科研界、医疗界相关人员明白，自己曾经与中共国为伍、简介资助和辅助中共病毒超限生物战的大爆发，下一步何去何从该好好反思了。
+
+
+
+## 美国拨款武汉病毒实验室研究中共病毒
+
+4月4日晚《每日呼声》发表文章《NIH称美国拨款给武汉病毒实验室用于增强型蝙蝠冠状病毒研究未经过HHS审查》
+
+文章称，罗格斯大学化学生物学教授Richard H. Ebright表示，美国国家健康研究院（NIH） “系统性地阻止”了政府对危险病原体研究的监督。
+
+一项NIH拨款，涉及对基于蝙蝠冠状病毒的改造，在病毒大流行之前向武汉病毒学研究所转移了60万美元，绕过了P3CO审查，因为安东尼-蝠齐领导的国家过敏和传染病研究所没有标记对该项目进行审查。
+
+据《纽约时报》报道，2014年，美国政府暂停了对增强功能研究的资助，因为实验室工作人员意外接触到了疾病控制中心的炭疽病毒。此前，2011年威斯康星州和荷兰的实验室被曝出有意修改H5N1禽流感病毒，能够有效地在雪貂之间传染，引发反响。
+
+该集团总裁Peter Daszak在2019年12月武汉首例COVID-19报告前几周在新加坡拍摄的播客采访中表示，Ecohealth有改造蝙蝠冠状病毒的历史。
+
+[点击查看此项新闻来源。](https://dailycaller.com/2021/04/04/nih-gain-of-function-anthony-fauci-review-board-wuhan-lab/)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
 0

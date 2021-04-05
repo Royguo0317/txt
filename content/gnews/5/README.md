@@ -1,70 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0405.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1050677/)
+## COVID-19是中共的一次生物袭击之（一）：中共病毒的起源背景
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1050826/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+劳伦斯·塞林 (Lawrence Sellin)博士是COVID-19 (中共病毒）主题专家，并且还专注于国际网络科技和制药行业、医学研究。他从美国陆军预备役上校退休。他发表了“COVID-19是中共的一次生物袭击” 在美国的门户网站上，下面是全文的部分翻译内容。
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
-## 中共病毒继续挖料
+萨哈得 （Sharad S Chauhan）博士在2020年12月的《印度国防评论》上必读的文章中将“机会生物恐怖主义”定义为：“通过故意或不作为行为隐瞒生物制剂、病原体或疾病的出现，而且知道这种行为会损害或杀死人类的动植物，以恐吓或胁迫政府或平民而达到进一步政治上的或社会上的目的，或利用情况来获得其权力或优势。”
 
-4月5日劳伦斯博士继续使用爆料革命关于中共病毒的定义和闫博士关于超限生物武器的定论发推宣传，推文也找出更多中共病毒专家的照片：
+那个“机会”就是中共采取的政策和行动的产物—COVID-19 （中共病毒）。
 
-毫无疑问，陈薇少将应该是中共生物战计划的负责人&所显示的每个人都曾在军方工作过。在中国，民用和军用研究没有区别。
+首先，至关重要的是，每个人都必须了解，在中共国，军事研究中心和民用研究中心之间没有区别。
 
-#中共病毒 #超限生物战 #超限生物武器 #COVID19病毒来源
+中共“十三五”规划（2016-2020年）第78章描述了军事和民用研究的融合，包括“合成生物学”领域。
 
+甚至在该计划公布之前，中共就将军事研究中心的名称改为更平民化的名称，而中共国的科学家掩饰其军事联系是惯例。
 
+中共军民融合工作的第二个组成部分是将在国外工作的中国科学家纳入网络，甚至在中国科学家已成为美国公民但仍是中共计划的积极成员。
 
-> Make no mistake, Maj. Gen. Wei Chen is presumed head of the CCP biowarfare program & everyone shown has worked with the military. In China, there is no distinction between civilian and military research.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/luEHWbcH2F](https://t.co/luEHWbcH2F)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1379000079768510467?ref_src=twsrc%5Etfw)
+这样，外国机构和外国资金来源实际上成为了中共研究计划的合作伙伴，并为中共国的军事和经济实力做出了贡献。
 
+美国中共军民研究计划中最明显但不是唯一的“有用的白痴” 参与者，是安东尼·福奇博士。他的 “美国过敏反应与传染病研究所（NIAID）” 在武汉资助了冠状病毒研究病毒学研究所通过长期的中共研究合作伙伴Peter Daszak （生态健康联盟的负责人）。
 
+中共的军民融合病毒研究是由军事医学科学院领导的，也就是中共解放军少将陈薇兼病毒学家博士和生物工程研究所所长所在的科学院，她并认定为中共国生物战计划的负责人。
 
-译者认为，这些照片一方面是让这些中共国内直接参与病毒研究的人了解自己已经上了美国追查病毒真相的黑名单，另一方面是通知与这些人有工作交往的美国科研界、医疗界相关人员明白，自己曾经与中共国为伍、简介资助和辅助中共病毒超限生物战的大爆发，下一步何去何从该好好反思了。
+2020年1月，中共派遣陈薇少将前往武汉，负责应对日益严重的大流行病，她还负责中共国的COVID-19疫苗开发。陈薇她自己的经历和研究脉络就是COVID-19的起源背景。
 
+[新闻来源链接](https://www.thegatewaypundit.com/2021/04/yes-covid-19-biological-attack-chinese-communist-party-lawrence-sellin-ph-d/)
 
-
-## 美国拨款武汉病毒实验室研究中共病毒
-
-4月4日晚《每日呼声》发表文章《NIH称美国拨款给武汉病毒实验室用于增强型蝙蝠冠状病毒研究未经过HHS审查》
-
-文章称，罗格斯大学化学生物学教授Richard H. Ebright表示，美国国家健康研究院（NIH） “系统性地阻止”了政府对危险病原体研究的监督。
-
-一项NIH拨款，涉及对基于蝙蝠冠状病毒的改造，在病毒大流行之前向武汉病毒学研究所转移了60万美元，绕过了P3CO审查，因为安东尼-蝠齐领导的国家过敏和传染病研究所没有标记对该项目进行审查。
-
-据《纽约时报》报道，2014年，美国政府暂停了对增强功能研究的资助，因为实验室工作人员意外接触到了疾病控制中心的炭疽病毒。此前，2011年威斯康星州和荷兰的实验室被曝出有意修改H5N1禽流感病毒，能够有效地在雪貂之间传染，引发反响。
-
-该集团总裁Peter Daszak在2019年12月武汉首例COVID-19报告前几周在新加坡拍摄的播客采访中表示，Ecohealth有改造蝙蝠冠状病毒的历史。
-
-[点击查看此项新闻来源。](https://dailycaller.com/2021/04/04/nih-gain-of-function-anthony-fauci-review-board-wuhan-lab/)
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+翻译/整理：阿娜；校对：旦旦
 
 0
