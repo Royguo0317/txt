@@ -1,35 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国疾控中心收回称接种疫苗的人不会携带中共病毒的说法
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1050176/)
+## 《文贵说》| 图片连载（六十）
+` 文贵说｜Words From Miles` [轉載自GNews](https://gnews.org/zh-hans/1037101/)
 
-翻译：洛杉矶天使农场 – 烟波浩淼
-校对：洛杉矶天使农场 – 雨山溪桥客
-审核：洛杉矶天使农场 –黎明的光芒
+![]()![](https://gnews.org/wp-content/uploads/2021/03/60-6.png)
+**我们新联邦的国旗未来就得受到这样的尊重，每个人都要像爱自己一样爱国旗，那是你的信仰，你的标志。**
 
-美国疾病控制和预防中心（CDC）反驳了该中心主任的说法，即[接种疫苗的人](https://nypost.com/2021/04/01/us-may-not-even-need-astrazeneca-covid-19-vaccine-fauci-says/)不会携带冠状病毒。
+—— **郭文贵先生 2020年7月27日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/60-5-scaled.jpg)
+**民主运动的几大特征，首先钱是来自于全民自动的支持、经济支持，而不是来自于什么军阀、财阀，不是的，那就真的是叫黑社会组织或非法组织。**
 
-疾控中心主任罗谢尔·瓦伦斯基本周早些时候说，“接种疫苗的人不会携带病毒，不会生病。”
+**—— 郭文贵先生 2020年7月27日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/60-4-scaled.jpg)
+**冒着巨大的风险，自己的付出是造福很多其他人的，这就叫民主领导者和真正的人类发展当中这叫精英。**
 
-但健康署星期四澄清了这一声明，称“证据尚不清楚”，瓦伦斯基的说法是“宽泛”的。
+**—— 郭文贵先生 2020年7月27日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/60-3.jpg)
+**我们新联邦的国旗未来就得受到这样的尊重，每个人要像爱自己一样爱这个国旗，因为那不是国旗，那是你的信仰，是你的标志。**
 
-疾病预防控制中心的一位发言人告诉[《纽约时报》](https://www.nytimes.com/2021/04/01/health/coronavirus-vaccine-walensky.html) ：“一些完整接种疫苗的人可能会感染中共病毒。”。“证据不清楚他们是否能将病毒传播给他人。我们正在继续评估证据。”
+**—— 郭文贵先生 2020年7月27日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/60-2.jpg)
+**每个人的行为都是有痕迹的，你回不到过去了。**
 
-纽约纪念斯隆凯特林癌症中心健康政策和结果中心主任彼得·巴赫（Peter Bach）博士说，对防弹免疫的混淆可能导致美国人在打了疫苗后拒绝戴口罩。
+**—— 郭文贵先生 2020年7月27日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/60-1.jpg)
+**在海外只有两种华人，一种未来你就是彻彻底底的你就是跟共产党站在一起；一种就是支持新中国联邦的，不存在中间人**。
 
-巴赫对该报说：“这为怀疑论者打开了大门，他们认为政府在粉饰科学。”
+**—— 郭文贵先生 2020年7月27日**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/60-7-scaled.jpg)
+**所有水区的战友们，危险度已经超过百分之五十了，咱不要跟那五十碰，离开！这叫什么，识时务者为俊杰。**
 
-周一，瓦伦斯基告诉MSNBC的 [瑞秋·马道](https://www.msnbc.com/transcripts/transcript-rachel-maddow-show-3-29-21-n1262442)（Rachel Maddow）：“我们今天从疾病预防控制中心得到的数据表明，接种疫苗的人不会携带病毒，不会生病。”
+**—— 郭文贵先生 2020年7月25日**
 
-她补充说：“这不仅在临床试验中，在现实世界的数据中也是如此。”
 
-沃伦斯基的评论没有得到疫苗可以完全阻止病菌传播的科学研究的支持。迄今为止还没有任何疫苗被证明对所有人都是100%有效的。
 
-本周早些时候，美国疾病预防控制中心（CDC）公布了一项针对4000人的[研究](https://nypost.com/2021/03/29/cdc-study-reveals-effectiveness-of-single-pfizer-moderna-dose/)，显示辉瑞和摩德纳的疫苗在第二次注射后可预防高达90%的冠状病毒感染。
+- [***更多精美海报请点击G-TV 文贵说｜Words From Miles***](https://gtv.org/user/5fae7ed6bd0d464fad0227c4)
 
-原文作者：娜塔莉·奥尼尔（Natalie O’NeillApril）
-发布时间：2021年4月2日11:37更新 
-原文链接：[https://nypost.com/2021/04/02/cdc-walks-back-claim-that-vaccinated-people-cant-carry-covid/](https://nypost.com/2021/04/02/cdc-walks-back-claim-that-vaccinated-people-cant-carry-covid/)
+
+
 
 0

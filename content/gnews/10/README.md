@@ -1,30 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【各抒己见】清明，别忘记祭奠那些不知姓名的英魂
-` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1050392/)
+## 【音频】迟浩田报告一: 战争正在向我们走来
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1050572/)
 
-作者：喜马拉雅东京樱花团 待命（文晓）
+报告人：迟浩田
 
-![](https://lh3.googleusercontent.com/kVE9mmK46Qid5trSp17DlaNsFZAHM0uOESss4Q1rxbaDokYgod7j5T6niXcesK0-PSP93YZE1-zC4q6e2n9eSuoiE861tkMTleixiyCsfNitNjBXW3RnnW491Dh_qkMwF2jfkLdm)
-[图片源自](https://weibo.com/ttarticle/p/show?id=2309404489897359573088)
+录音：西瓜王
 
-清明节与春节、端午节、中秋节并称为中国四大传统节日。除了中国，世界上还有一些国家和地区也过清明节，比如越南、韩国、马来西亚、新加坡等。清明节是传统的重大春祭节日，扫墓祭祀、缅怀祖先。
+编辑：Summer
 
-记得小时候，清明这天学校会拉上长长的队伍，带我们徒步去烈士陵园。小学一年到五年级，每年都跟同学们往返那条长长的路，去祭奠长眠在那里的人们。那时候，也不明白那个墓碑里睡着什么人，就按照老师教的，通称烈士。近年，随着互联网的发达，那些被扭曲的历史被一件件、一段段拿出来晒干，使得自己偶尔也会反省一下，学生时代长途跋涉去祭奠的那些墓碑下，是否都是真英雄？是否都该算为了人民能过上幸福生活，而失去了生命的革命烈士？
+【编者按】迟浩田，曾任中共国国务委员兼国防部，1995年至2002年任中共军事委员会副主席。在指导军队在北京执行戒严令以镇压天安门广场抗议活动中，迟起到了重要作用。 据估计，这份报告是在第二次报告之前不久发表的：“战争距离我们不远，它是中国世纪的产婆”。这两份报告的言论可能会令你震惊，但是却讲述了中共领导人多年以来的心态和策略。 中共永远不会专注于“和平与发展”，因为在它眼中，战争和争霸才是永恒的主题。对中共来说，他们从来不关注人民的命运，因为他们只关注自己的统治。他们认为，在外面打赢了人民就会成为顺民。
+迟浩田报告一全文音频
+【Source】
 
-过去已经无法改变，但现在、将来，就不能再糊涂了。
+Chinese Original: **[迟浩田: 战争正在向我们走来](https://www.centralnation.com/usstudy/wariscoming.html)**
 
-文贵先生2017年发起爆料革命至今，多次在直播中说过，我们做这些根本不算什么，还有很多我们不知道姓名的人，是他（她）们冒着生命危险，将CCP疯狂镇压香港的计划等信息及时的传递出来，这些人对这场爆料革命起到了决定性的作用。由于这场革命的特殊性，就连我们这些积极参与的战友们也无法知道的更多，不知有多少人，连一声“战友”都没来得及听到。我们知道有很多真正的战士，在被喝茶、在被失踪、在牢狱里度日、在流血、在牺牲……还有，那位可敬的吹哨人——李文亮医生。
+英文版第一部分: **[CCP Former General Chi Haotian: The War is Coming to Us (1/2)](https://gnews.org/1020161/)**
 
-历史，不会忘记他（她）们，我们不该忘记他（她）们，清明时分，让我们一起，向那些重拳于CCP的勇士们，向在这场史无前例的爆料革命中失去了生命的英雄们致敬！
+英文版第二部分: [**CCP Former General Chi Haotian: The War is Coming to Us (2/2)**](https://gnews.org/1020305)
 
-*免责申明：本文只代表作者观点，与GNews网站无关。*
+【Disclaimer】
 
-*校对：喜马拉雅东京樱花团 / 東洋武士*
-*责任编辑：喜马拉雅东京樱花团 / 文小白*
-*发布：喜马拉雅东京樱花团 / 煙火1095*
-![]()![](https://gnews.org/wp-content/uploads/2021/04/二维码.jpg)
-0404C028c
+All views expressed in the report belong to the presenter of the report and do not represent any organization, committee or other individuals.
+
+**欢迎战友加入旧金山金喜准农场**
+
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
+
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
+
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
 
 0
