@@ -12,11 +12,11 @@
 
 ---
 
-### [COVID-19是中共的一次生物袭击之（一）：中共病毒的起源背景](/content/gnews/1/README.md)
- ` 喜马拉雅意大利罗马达芬奇农场`
+### [邱香果-中共渗透加拿大科学界之谍影重重](/content/gnews/1/README.md)
+ ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [【灭共头条】为制裁中共日本政界推动”人权法案”](/content/gnews/2/README.md)
- ` 秘密翻译组G-Translators`
+### [COVID-19是中共的一次生物袭击之（一）：中共病毒的起源背景](/content/gnews/2/README.md)
+ ` 喜马拉雅意大利罗马达芬奇农场`
 
 ### [美国政要等每日重要信息0405.2021（持续更新）](/content/gnews/3/README.md)
  ` 喜馬拉雅的文雅 Wenya Himalaya`
