@@ -1,55 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】Facebook仍在帮助中共散布有关新疆的虚假信息
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1050280/)
+## 美国政要等每日重要信息0405.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1050677/)
 
-作者：纽约香草山农场 人间世
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
+## 中共病毒继续挖料
+
+4月5日劳伦斯博士继续使用爆料革命关于中共病毒的定义和闫博士关于超限生物武器的定论发推宣传，推文也找出更多中共病毒专家的照片：
+
+毫无疑问，陈薇少将应该是中共生物战计划的负责人&所显示的每个人都曾在军方工作过。在中国，民用和军用研究没有区别。
+
+#中共病毒 #超限生物战 #超限生物武器 #COVID19病毒来源
 
 
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+> Make no mistake, Maj. Gen. Wei Chen is presumed head of the CCP biowarfare program & everyone shown has worked with the military. In China, there is no distinction between civilian and military research.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/luEHWbcH2F](https://t.co/luEHWbcH2F)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1379000079768510467?ref_src=twsrc%5Etfw)
 
 
 
-中共在新疆犯下种族灭绝和反人类罪已是无可争议的事实，全世界众多政府和企业纷纷以实际行动谴责中共的邪恶做法。当此之时，全球最大社交媒体平台Facebook却公然助纣为虐，依旧允许中共借助其平台散布关于新疆的虚假信息。
+译者认为，这些照片一方面是让这些中共国内直接参与病毒研究的人了解自己已经上了美国追查病毒真相的黑名单，另一方面是通知与这些人有工作交往的美国科研界、医疗界相关人员明白，自己曾经与中共国为伍、简介资助和辅助中共病毒超限生物战的大爆发，下一步何去何从该好好反思了。
 
-《华尔街日报》中文版4月3日报道，Facebook（脸书）内部员工担忧其平台已沦为中共进行政治宣传的工具。中共政府和官方喉舌，在脸书上发布广告和贴文，让新疆维族人民现身说法，表示自己生活“越来越好”，同时指责西方对中共新疆政策的指控是针对中（共）国的阴谋。
 
-美国正式认定中共在新疆犯下种族灭绝和反人类罪之后，全球众多政府和私人企业纷纷以实际行动谴责中共在新疆的做法。脸书内部员工表示，“现在是我们平台采取行动，在维吾尔族遭到种族灭绝一事上对抗虚假信息的时候了”。**但脸书发言人却辩称，北京（中共）当局的做法并不违法其公司规定。**
 
-据《法广》中文网报道，脸书虽然自2009年起在中共国被禁，但中共国仍是脸书最大的广告收入来源国之一，年广告额达50亿美元，可能仅次于脸书在美国本土的广告收入。
+## 美国拨款武汉病毒实验室研究中共病毒
 
-根据国际调研机构DataReportal的数据，在全球前20个最多人追踪的脸书网页中，中共国官方媒体占了3个。中共国环球电视网(CGTN）在脸书上拥有1亿1500万粉丝，名列全球第4，比可口可乐和流行歌手蕾哈娜（Rihanna）还要多。
+4月4日晚《每日呼声》发表文章《NIH称美国拨款给武汉病毒实验室用于增强型蝙蝠冠状病毒研究未经过HHS审查》
 
-自上届美国政府认定中共在新疆犯下种族灭绝和反人类罪后，全球众多政府和私人企业纷纷响应。而脸书作为全球最大的社交媒体平台，月活跃用户数量超过30亿，却冒天下之大不韪，为了经济利益，甘愿充当中共邪恶政权的吹鼓手，帮助中共在全球数以亿计的用户中散步虚假消息。**脸书的这一方法，已经在事实上与中共“狼狈为奸”，公然站在了人类文明的对立面**。根据郭先生最近在直播中透露的消息，随着数字货币的推广使用，脸书有可能成为全球排名前三的最有权力的实体之一，其权力之大堪与全球大国相提并论。那么，问题来了，未来“权可敌国”的脸书，会不会是另一个中共呢？让我们拭目以待。
+文章称，罗格斯大学化学生物学教授Richard H. Ebright表示，美国国家健康研究院（NIH） “系统性地阻止”了政府对危险病原体研究的监督。
 
-参考阅读：
+一项NIH拨款，涉及对基于蝙蝠冠状病毒的改造，在病毒大流行之前向武汉病毒学研究所转移了60万美元，绕过了P3CO审查，因为安东尼-蝠齐领导的国家过敏和传染病研究所没有标记对该项目进行审查。
 
-[脸书员工忧自家平台将沦为宣传新疆的工具](https://www.rfi.fr/cn/%E7%BE%8E%E6%B4%B2/20210403-%E8%84%B8%E4%B9%A6%E5%91%98%E5%B7%A5%E5%BF%A7%E8%87%AA%E5%AE%B6%E5%B9%B3%E5%8F%B0%E5%B0%86%E6%B2%A6%E4%B8%BA%E5%AE%A3%E4%BC%A0%E6%96%B0%E7%96%86%E7%9A%84%E5%B7%A5%E5%85%B7)
+据《纽约时报》报道，2014年，美国政府暂停了对增强功能研究的资助，因为实验室工作人员意外接触到了疾病控制中心的炭疽病毒。此前，2011年威斯康星州和荷兰的实验室被曝出有意修改H5N1禽流感病毒，能够有效地在雪貂之间传染，引发反响。
 
-[一些Facebook员工因中（共）国在该平台投放涉疆广告而感到不安](https://cn.wsj.com/articles/%E4%B8%80%E4%BA%9Bfacebook%E5%91%98%E5%B7%A5%E5%9B%A0%E4%B8%AD%E5%9B%BD%E5%9C%A8%E8%AF%A5%E5%B9%B3%E5%8F%B0%E6%8A%95%E6%94%BE%E6%B6%89%E7%96%86%E5%B9%BF%E5%91%8A%E8%80%8C%E6%84%9F%E5%88%B0%E4%B8%8D%E5%AE%89-11617414012)
+该集团总裁Peter Daszak在2019年12月武汉首例COVID-19报告前几周在新加坡拍摄的播客采访中表示，Ecohealth有改造蝙蝠冠状病毒的历史。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+[点击查看此项新闻来源。](https://dailycaller.com/2021/04/04/nih-gain-of-function-anthony-fauci-review-board-wuhan-lab/)
 
 
 
 
 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
 0

@@ -1,70 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0405.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1050677/)
+## 香港手足集气系列（十三）香港人写给香港众志秘书长黄之锋的信
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1050506/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+搜集整理：阿恩 / 封面合成：文粤
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4056.jpg)
+**香港人写给香港众志秘书长黄之锋的信**
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
-## 中共病毒继续挖料
+之锋：
 
-4月5日劳伦斯博士继续使用爆料革命关于中共病毒的定义和闫博士关于超限生物武器的定论发推宣传，推文也找出更多中共病毒专家的照片：
+最近有时间回看《进击的巨人》（真的是因为你，才心血来潮想看），原来真的很好看，怪不得连你也赞好，（你）又不允许别人（向你）剧透， （剧情）确实很紧张，又有点出人意表，不过写这信的时侯，我还没有看完，不知道最后的结局如何。
 
-毫无疑问，陈薇少将应该是中共生物战计划的负责人&所显示的每个人都曾在军方工作过。在中国，民用和军用研究没有区别。
+你是不是最喜欢主角艾伦呀？我就不是，因为他整天怀疑自己，如果要选，我会选三笠，他真的好帅（那条红色的围巾真的很衬他），但他有没有可能这么厉害，能以一敌几十个巨人，那要其他调查兵团做什么？不过看戏还是不要驳戏才好。艾伦的朋友艾尔敏都不错，好聪明。
 
-#中共病毒 #超限生物战 #超限生物武器 #COVID19病毒来源
+最近很少收到你狱中的消息，所以想通过《写给47人的家书》告诉你，有人都是《巨人》的粉丝（虽然迟了很多）；如果好像艾伦那样，背负这么多期望，整天要战斗，真的好累，有需要都要休息。
 
+就算之后看完结局，我都不会写信告诉你结局，你一定可以自己看到的。希望其他《巨人》粉丝都写信给你分享。
 
+「什么都无法舍弃的人，什么也改变不了。」我明白呀。
 
-> Make no mistake, Maj. Gen. Wei Chen is presumed head of the CCP biowarfare program & everyone shown has worked with the military. In China, there is no distinction between civilian and military research.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/luEHWbcH2F](https://t.co/luEHWbcH2F)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1379000079768510467?ref_src=twsrc%5Etfw)
+已成《巨人》粉丝的EE
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4057.jpg)
+人物介绍：
 
+黄之锋（英语：Joshua Wong Chi-fung，1996年10月13日生），香港公开大学社会科学荣誉学士学位，香港民主自决派社运人士，曾先后任学民思潮召集人、香港众志秘书长。 2014年他因参与雨伞运动被美国《时代杂志》选为全球25位最具影响力少年。 2018年获美国参议员提名竞逐诺贝尔和平奖。 2020年12月，黄之锋因煽惑他人参与非法集结及组织非法集结被香港法院判囚13个月半。 2021年1月7日再以违反港版国安法的罪名在狱中拘捕，羁押至今。
 
+资料来源：[苹果日报](https://hk.appledaily.com/local/20210323/F3SEMLIQJJCYNFZMY3VMZWRSPI/)
 
-译者认为，这些照片一方面是让这些中共国内直接参与病毒研究的人了解自己已经上了美国追查病毒真相的黑名单，另一方面是通知与这些人有工作交往的美国科研界、医疗界相关人员明白，自己曾经与中共国为伍、简介资助和辅助中共病毒超限生物战的大爆发，下一步何去何从该好好反思了。
+封面素材：头条日报
 
-
-
-## 美国拨款武汉病毒实验室研究中共病毒
-
-4月4日晚《每日呼声》发表文章《NIH称美国拨款给武汉病毒实验室用于增强型蝙蝠冠状病毒研究未经过HHS审查》
-
-文章称，罗格斯大学化学生物学教授Richard H. Ebright表示，美国国家健康研究院（NIH） “系统性地阻止”了政府对危险病原体研究的监督。
-
-一项NIH拨款，涉及对基于蝙蝠冠状病毒的改造，在病毒大流行之前向武汉病毒学研究所转移了60万美元，绕过了P3CO审查，因为安东尼-蝠齐领导的国家过敏和传染病研究所没有标记对该项目进行审查。
-
-据《纽约时报》报道，2014年，美国政府暂停了对增强功能研究的资助，因为实验室工作人员意外接触到了疾病控制中心的炭疽病毒。此前，2011年威斯康星州和荷兰的实验室被曝出有意修改H5N1禽流感病毒，能够有效地在雪貂之间传染，引发反响。
-
-该集团总裁Peter Daszak在2019年12月武汉首例COVID-19报告前几周在新加坡拍摄的播客采访中表示，Ecohealth有改造蝙蝠冠状病毒的历史。
-
-[点击查看此项新闻来源。](https://dailycaller.com/2021/04/04/nih-gain-of-function-anthony-fauci-review-board-wuhan-lab/)
+审核：卡西欧 /上传：天网灰灰
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
 0
