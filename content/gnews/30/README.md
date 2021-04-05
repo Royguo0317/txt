@@ -1,75 +1,145 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## GTV真人真事之专访老班长（下）
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1050137/)
+## 美国政要等每日重要信息0404.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1049869/)
 
-俄罗斯莫斯科喀秋莎农场  文雪
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-编辑上传    银河
-![]()![](https://gnews.org/wp-content/uploads/2021/04/WhatsApp-Image-2021-04-02-at-02.07.50.jpeg)
-抛砖引玉，妙语连珠，欢歌笑谈，真情流露尽在GTV真人真事。在这里您会产生感同身受的共鸣，体会胜似兄弟的关爱，回忆携手同行的时光，受到继续前行的激励。
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
 
-4月3日GTV真人真事邀请到喜马拉雅农场联盟委员会的主席老班长，通过节目专访带您认识一个歌声动人，真诚睿智，爱憎分明，而又不失可爱和幽默的老班长。
 
-在灭共通往喜马拉雅的路上，与老班长同行，他保护战友，默默付出，言语中传递着坦荡和真诚。老班长分享的教育理念、他的行事方式以及对G系列的解读，相信会激发战友们深度的思考，带给战友们新的认知和视角。感恩爆料革命和新中国联邦带给我们的一切，让战友们一路相伴，一路成长。
+## 深挖中共病毒真相
 
-前一段访谈内容，请见GTV真人真事之专访老班长（上）。
+4月4日劳伦斯博士继前一天推文持续揭露中共病毒关键负责人，其用词和理论与爆料革命天使科学家闫博士步调一致。推文如下。
 
-**问题****7****：老班长是第一个把自己的孩子带到镜头前面，通常考虑到风险，一般不会把家里人带到镜头前。我相信老班长肯定考虑到各种因素及带来的风险，孩子在学校有没有碰到被攻击的情况？**
+中共军方正在研究 “脑控”病毒影响神经系统。中共的生物战计划与病毒脑效应之间的联系。陈伟（音译）&安婧（音译）曾在第三军医大学重庆分校共同工作。
 
-老班长：并不是我把她们带到爆料革命中的，她俩参加直播和我没关系，我那时候还不是农场负责人，只是经常听和看GTV。我答应过别人过了1000人，我要开一个直播。我其实不善言辞，只是履行直播的诺言。直播之后，我上GTV竟然发现双胞胎女儿在直播，不断的玩。如果说她们理解爆料革命而直播不真实，其实她们直播的动力就是觉得打赏好玩、太有意思了才直播。
+#中共病毒 #超限生物武器 #COVID19病毒来源
 
-我也没有阻止，而且很尊重她们的选择。半夜三更很激动敲门找我，告诉我“Miles给我留言了，给我的时长加到2个小时，还打赏了很多币”。其实郭先生并不知道我们的关系，并且是先知道她们的。其实没人知道我，在成为农场负责人之后，很多人称我为“双胞胎的爸爸”。
 
-她们进入GTV之后，自己表演，也要看别人，实际上是通过看战友直播而了解爆料革命。我听爆料革命是带耳机听的，所以并不是我影响的她们，但是她们知道我在干什么，所以悄悄上GTV并注册，粉丝达到1000个也是她们自己琢磨的。
 
-她们在学校绝对没有压力，首先新西兰是文明国家，每个人都有自由表达所有意愿和政治倾向的权力，是极度宽容和自由的社会，没有野蛮的东西。任何人想跳出来攻击别人，则是愚蠢和鲁莽的行为。
+> China's military is working on "brain control" [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) affects the nervous system. A link between CCP's biowarfare program & viral brain effects. Wei Chen & Jing An worked together at the 3rd Military Medical University Chongqing[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/rzYNObXCQK](https://t.co/rzYNObXCQK)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 4, 2021](https://twitter.com/LawrenceSellin/status/1378603088613945355?ref_src=twsrc%5Etfw)
 
-长岛哥：我家小孩也是这样，伪类扒出小孩的照片，我问他们是否害怕，他们说“我们照片就是给别人看的，我们也不丑”。小孩的想法和大人不一样，不会担心和害怕。
 
-**问题****8****：聊聊很火爆的****G****系列，作为农场主，一年前组建农场时的想法和现在的想法肯定不一样。请老班长分享一年前组建农场时的想法和今天再去谋划和打造农场的想法有什么不一样，都是什么样的呢****?**
 
-老班长：开始建农场才申请WhatsApp，刚公布就有很多战友涌进来，当时头脑空白，这时候就有一个声音说“老班长你把事情交给我，我能替你摆平，你相信我”，我就交给她了，整个团队的初期建设就是靠这位战友——一杯小酌，她在初期的建设中付出最大、立下了汗马功劳。
 
-当时第一步的想法就是保护战友，我个人安全不足够，要让所有战友有安全感和归宿感，组成了分片区的行动小组并且能够十几个人迅速赶到有需要的战友身边，还组成了线下的、训练有素的安保团队，分了两个，都不在农场的注册会员里面。然后是服务战友，再就是开展灭共和宣传工作。这就是当时我想的所有关于农场的活动。
 
-关于G系列的发展，到现在才形成一个大的概念。农场从成立到现在将近一年的时间，经历了很多次发展和提升。现在除了基本宣传爆料革命、病毒真相、香港危机真相，共产党的邪恶等灭共的活动之外，建设G系列成为我们最重要的一个任务。灭共不能打口炮，要让所有战友认识到G系列整个体系的建立对我们灭共、新中国联邦及喜马拉雅国建立的重大意义。
+姜世勃，是#COVID19 弗林梅切位点病毒起源的关键一环，2007年从SARS开始，2013年基因改造插入了一个4aa 弗林梅切位点。2015年，一个S1-S2 弗林梅切位点出现在高福的SARS类冠状病毒 “愿望清单 “上。从这些文章中，关注军事链接。#CCP病毒 （#中共病毒）
 
-相信经过这几轮G系列的投资乃至整个G系列的布局等一系列工作后，大部分战友都会形成概念。各个农场平台都开始系统介绍G系列的发展。未来我相信我们农场将来除了成为实体——一个梦想之地之外，更重要的是让全世界战友富起来，在当地都能产生政治与经济的影响，形成整个世界农场联系在一起的，有完整的经济、金融结构和体系的虚拟国——就是我心目中的喜马拉雅国，未来的农场结合体。
 
-长岛：目前把联盟委员会的注册地定在新西兰，不仅因为老班长是委员会主席，还有一些政治方面的考量，老班长在新西兰做了很多方面的工作，保证了战友的安全，和当地政府的关系比较融洽，这也是一个多方面的考虑。
 
-**问题****9****：有战友对****GClub****的理解不够深刻，就认为是一个****Gfashion****打折卡，请老班长分享****Gclub****的理解，到底有什么不一样？**
+> Shibo Jiang, a key link in the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) 's furin cleavage site (FCS), began with SARS in 2007, genetically inserted a 4aa FCS in 2013. In 2015, a S1-S2 FCS was on Gao Fu's "wish list" for SARS-like coronaviruses. From those articles, follow the military links.[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1h7wufTpzG](https://t.co/1h7wufTpzG)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 4, 2021](https://twitter.com/LawrenceSellin/status/1378725944098238472?ref_src=twsrc%5Etfw)
 
-老班长：Gclub首先代表战友的一个身份，农场战友和社会人士购买的Gclub卡的编号不一样。未来的会员管理系统已经开始开发，这是属于整个喜马拉雅农场联盟的会员管理系统。这个系统除了含全球农场会员的基础资料之外，也会和Gclub挂上钩。第二是延伸出来的意义，当然不只是打折卡这么简单，Club是一个俱乐部，会是投资、融资的俱乐部，未来可能会推出更高价值的卡，比如10万、50万卡、百万卡，这样卡的待遇，是真正对等的VIP的待遇，可能有机会进到即使有钱也进不到的社交场所、俱乐部。享受独特的服务，比如私人飞机服务、游艇服务等等一系列。
 
-很可能是G系列金融服务的通行证。再把Gdollar、Gcoin和Gclub嫁接在一起，很快会出现GPay，就会从内循环到外循环。G系列双币结合，随着Gpay推广后的发展，很多人就会把钱转成Gdollar，这个转账功能是前所未有的，Greserve是储备银行，就是给数字货币准备的储备银行。传统的储备银行都是政策性银行，都是国家的，政策性银行下面对应就是商业性银行，会有金融服务功能。首先享受金融服务的就是战友——Gclub的持卡人。随着一系列的完善，Gclub卡未来会升级。
 
-**问题****10****：前两期都谈到健身建心，看老班长的照片和兴趣都没有与健身相关的，您对郭先生的健身有什么想分享的？**
 
-老班长：健身房偶尔有，没坚持。自从在联盟工作之后没健身时间，也是偷懒，有时间都睡觉了，我睡觉都是碎片时间。偶尔打羽毛球，试着想打好高尔夫，实在没有天赋，最后就没有信心了。我喜欢旅游、摄影和徒步。
 
-**问题****11****：老班长家里有个车，开到路上经常暂停，是有伪类捣乱还是怎么回事呢？**
+## 揭露中共的顶级传染病专家—蝠奇
 
-老班长：我的车在行驶过程中突然失去动力，有3次之多。我的WIFI被攻击，共产党对我们的干扰从来没停止过。一个所谓的大国政府做的都是见不得光的不耻之事，最近新西兰抓了一个和九指妖有一拼的老骗子叫王靖渝（黄校杰），合伙的骗子叫吴欢。骗子上伪类节目是垃圾归类。我们这么多战友竟然被这样一个低俗的骗子骗了，这就是悲哀，我们要有基本常识和基本判断力，如果不能找到一个农场加入的话，不能找到农场负责人和联盟委员的话，请战友们不要和任何人轻易发生金钱关系。任何人不鼓励你加入农场，阻止你加入农场，阻碍你与农场联盟进行交流，一定有鬼，一定不要和这样的人发生任何金钱关系，不仅会造成财产损失甚至会有生命危险，想想九指妖就明白了。
+Arthur Schwartz推文：“中国共产党和蝠奇（Anthony Fauci)似乎总是站在同一条战线上 — 无能并且不诚实的一方。”
 
-无论是新GTV的投资活动还是虚拟币的投资活动都是全世界找真战友合作。所有代持都必须提供名单——真实姓名、联系方式和地址，联盟一定会完全对接并且确认汇款凭证，任何对应不了的，投资绝对不可能实现。拒绝提供名单的，联盟一定会拒绝投资。所有想投资的战友必须加入一个农场，不接受由别人带领投资。所有代持者装神弄鬼的，请向联盟委员会举报。
+推文附两则新闻截图，一幅来自中共国新华网称，“尽管这周得克萨斯和密西西比州已经放宽强制戴口罩和商业活动的限制，美国顶级传染病专家安东尼-蝠奇警告结束大流行病限制措施为时太早。”另一幅来自重磅新闻911的真实新闻，“自从得克萨斯州放宽强制戴口罩的政策3州以来，7天平均感染案例达到自去年6月以来最低记录。”
 
-**问题****12****：老班长在联盟群里发的公告，对****SEC****进行投诉，****GTV****被****SEC****非法无端调查的事情。请问老班长觉得****GTV****的投资者还能做些什么？**
+译者议：蝠奇博士为什么不听听美国真正的新闻，反而与中共唱一出戏呢？他究竟是美国传染病顶级专家，还是中共传染病顶级代言人？闫博士转发了这一推文。
 
-老班长：做为GTV的投资者要知道，我们过去的投资活动就被SEC终止了。SEC应该保护投资人利益，我们所有的投资者都因为投不了资而叹息。世界上从来没有这样的投资机会，你还可以选择把钱拿回去。GTV在建立和运作的时候从来没有动用战友的一分钱投资，在这种情况下，SEC应该做出明确的决定——介入调查是个错误，应该恢复我们的利益，但是SEC还在编造各种理由不断纠缠，而SEC却不调查中共军方背景的阿里巴巴、腾讯等损害美国利益的公司。
 
-我们一定要问问这是为什么，是不是SEC内部已经有人被共产党控制和蓝金黄了呢，我们认为有共产党的黑手在控制。所以所有的投资者战友，尤其在美国的投资者战友，有这个权利去打电话举报，可以每天举报。作为联盟委员会的负责人，了解到很多美国战友非常愤怒，会采取法律行动，并且在星期一到华盛顿SEC的总部抗议，我们完全同意和赞赏，应该发出投资人的正义声音，表达不满甚至采取法律手段。
 
-**问题****13****：对郭先生有什么理解，有什么想对郭先生说的？**
+> The Chinese Communist Party and Fauci always seem to be on the same side — the incompetent & dishonest side. [pic.twitter.com/BUZIWT3P8u](https://t.co/BUZIWT3P8u)
+> — Arthur Schwartz (@ArthurSchwartz) [April 4, 2021](https://twitter.com/ArthurSchwartz/status/1378789874405376001?ref_src=twsrc%5Etfw)
 
-老班长：郭先生是一个不可思议的人，我觉得郭先生是来自一个另外维度的人。无论在境界、见识、经历、能力、理解力、行动力、执行力，都远远超过一个正常的人，或者是我们所有人的总和。我从来没有见过像他这样的人，可与最底层的人交流，也可与最顶层的人沟通，坚持自己的想法，从来不妥协，赢得了世界的尊重。我想整个中国，乃至整个亚洲都没有第二个人。想对他说，“今生我们所有的人都很荣幸，有这样一个人存在，并且我们能够与他在一起战斗，此生足矣”。我们一起战斗，就到今天为止，我觉得此生已经太幸福了。
 
-长岛：我们一起继续战斗，很荣幸邀请到老班长和我们一起聊天。
 
-玛莎：感谢老班长，今天意犹未尽，希望下次可以再邀请到老班长到来。感谢老班长百忙中抽时间来参加节目。下期嘉宾是我们温柔、美丽、善良的安红女士。
 
-以上是节目的主要内容，节目轻松愉快，也不乏一些警醒，时而又像是来到了联盟委员会的答疑现场。希望战友们都能有所收获，也对辛勤为我们付出的战友们和走在灭共前线的战友充满感恩，互相扶持，继续灭共，共同建设新中国联邦。
+
+## 2022冬奥会
+
+4月4日参议员瑞克-斯科特转发了3月23日写给奥委会的信，信中提出“不能给习总书记一个洗白罪行的平台”。他呼吁“奥委会站在自由和人权的立场上，和他一起将2022年冬奥会从共产党的中国移出”。
+
+他今日推文称：“国际奥委会赞助商们，现在是时候为的加入我的呼吁，将2022年奥运会从共产中国转移到一个尊重人权的国家：[信件链接](https://bit.ly/3rM072U)”
+
+
+
+> It’s time for the sponsors of the [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw) to join my call to move the 2022 games out of Communist China and to a nation that respects human rights: [https://t.co/KONHncEeEI](https://t.co/KONHncEeEI) [https://t.co/wbgBown59U](https://t.co/wbgBown59U)
+> — Rick Scott (@SenRickScott) [April 4, 2021](https://twitter.com/SenRickScott/status/1378805032133476356?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 抵制美国职业棒球
+
+4月4日人口研究所所长史蒂文-摩西转推《大纪元》的一篇文章称：“清醒的伪君子公司抵制乔治亚州，拥护种族灭绝的#中国共产党。他们还自以为是地给我们讲‘价值观’”
+
+文章称，美国职业棒球联盟在延长并扩大了与一家中共国电信巨头的合同之后，抵制乔治亚州，原因是该联盟不同意该州民选州长和立法机构最近颁布的选举改革（持有效证件选举）。
+
+
+
+> [https://t.co/t8GCxAvVYd](https://t.co/t8GCxAvVYd)
+> 
+> Woke corporate hypocrites boycott Georgia while embracing the genocidal [#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hash&amp;ref_src=twsrc%5Etfw). 
+> And then they deign to lecture us on "values!"
+> — StevenWMosher @StevenMosher on Parler (@StevenWMosher) [April 4, 2021](https://twitter.com/StevenWMosher/status/1378799679362768899?ref_src=twsrc%5Etfw)
+
+
+！
+## 谁最污染环境
+
+4月3日凯尔巴斯先生推文：“中共国在2020年安装的燃煤电厂比欧洲大陆的全部装机容量还要多。还记得全球媒体称赞习近平的2060年碳中和计划吗？”
+
+人口研究所所长斯蒂夫-莫西转推：“无论美国在 “绿色能源 “上花了多少万亿美元，中共国将在可预见的未来继续燃烧百万吨肮脏的、含硫的煤炭。为什么Greta(瑞典倡导巴黎气候协议的女孩）不去中国？ 可能是因为他们不让她进入）。”
+
+
+
+> Regardless of how many trillions of dollars the U.S. spends on "green energy," [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) will continue to burn megatons of dirty, sulfur-laden coal for the foreseeable future.
+> Why doesn't Greta go to China? (Probably because they won't let her in.) [https://t.co/NJiISeiXMc](https://t.co/NJiISeiXMc)
+> — StevenWMosher @StevenMosher on Parler (@StevenWMosher) [April 4, 2021](https://twitter.com/StevenWMosher/status/1378805760591851523?ref_src=twsrc%5Etfw)
+
+
+
+
+
+
+
+## 轻松一刻
+
+班农战斗室媒体人Raheem今日转推一则英国媒体人Darren Grimes的推文视频，反映“左翼”面对不同旗帜的反应，从英国国旗，转到同性恋旗标、共产主义旗帜、欧盟旗、黑命贵拳头旗的不同反应，从厌恶到喜爱的夸张表情。
+
+
+
+
+
+> 😂🇬🇧 [pic.twitter.com/yDpYRTKJ7Y](https://t.co/yDpYRTKJ7Y)
+> — Darren Grimes (@darrengrimes\_) [April 4, 2021](https://twitter.com/darrengrimes_/status/1378771955906715648?ref_src=twsrc%5Etfw)
+
+
+
+
+
+## 复活节和清明节
+
+4月4日是的复活节，信手翻看美国总统、议员、政要、媒体人的推文，不难看到人们向上帝祷告，庆祝耶稣复活日的图文。在中共病毒依旧肆虐的今天，全世界各地很多人没有了往日热闹非凡的集市乐园、关闭了教堂祷告活动、有人觉醒着病毒已经让人们淡化了秉持信仰的意志、滋生的惰性和懈怠在悄无声息地夺去人们本来应该积极生活的风貌，有人依然被中共病毒所操控和洗脑。然而无论如何被政治操控、被利益集团左右，那些播种了文明价值观的人，秉持内心的信仰不会改变、追求正义和传统价值不会放弃。真正的斗争总是艰巨的，革命也会是曲折的，然而正义取胜、上帝掌权永不会改变。您可以延伸至各种信仰之下自己心中的守护神，愿正义大能之神佛永远陪伴爆料革命你我，愿神佛的国降临，愿神佛的旨意行在地上，如同行在天国；愿神佛的旨意行在文明世界，也行在灾难深重的中共国，普度苦难的中华同胞众生，早日战胜赤魔中共。
+
+同一时间的今天亚洲国家进入4月5日，中国传统的清明节。这一天人们祭祖扫墓、追远思亲。中共国大地无数为中共病毒丧生的冤魂、无数八九六四牺牲的民主先烈、无数在香港时代革命中捍卫自由民主和法制、如潮水涌动、英勇抗争、无惧牺牲的香港烈士们，中华大地多少冤魂亡灵，将和新生的新中国联邦人、与复活并永生的上天万佛万神一道聚能合力，消灭中共邪魔。
+
+
+
+> Happy Easter!! "He is not here; He has risen, just as He said." Matthew 28:6a [pic.twitter.com/k2IrpMEtXJ](https://t.co/k2IrpMEtXJ)
+> — Senator Doug Mastriano (@SenMastriano) [April 4, 2021](https://twitter.com/SenMastriano/status/1378709689903554567?ref_src=twsrc%5Etfw)
+
+
+马斯特安努议员推文：”死亡无法阻挡他”,”他不在这里，他已经复活了”。
+
+
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
 0

@@ -1,33 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 日首相访美欲缓解中共与台湾之间的紧张局势
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1049961/)
+## 福奇最近日子不好过
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1049979/)
 
-俄罗斯莫斯科喀秋莎农场   银河
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/03/01-6.jpg)gnews
-《华盛顿时报》报道，日本首相菅义伟周日表示，台湾的和平与稳定是该地区的关键，日本将与美国合作，以缓和中共和台湾之间不断升级的紧张局势。
+编辑 水星  上传 银河
+![]()![](https://gnews.org/wp-content/uploads/2021/01/下载-10.png)gnews
+一直在暗中支持皮特达扎克上蹿下跳地反对天使闫博士的老贼福奇，近期在挺共问题上似乎收敛了许多。自从川普总统的CDC主任雷德菲尔德博士3月26日在CNN惊爆了中共病毒来自武汉实验室后【1】，惊慌失措的中共“责令”那些亲共人物、媒体（或者栏目）出面否认，媒体们依然用老贼福奇作挡箭牌，包括CNN。
 
-菅义伟将于下周在华盛顿会晤美国总统拜登，这将是拜登总统今年1月上任以来首次亲自接见外国领导人，出席面对面会谈。东京认为与美国的同盟关系是其外交和安全政策的基石，并渴望与美国新政府发展密切关系。
+回顾一下老贼曾经的表态，是那样坚决、肯定，“病毒出自武汉实验室是极大的阴谋论”等等【2】，但这次听上去不是那样理直气壮了，“雷德菲尔德博士提到的是一种见解，但同样，还有其他的观点——其他的，大多数人持有的”【3】，即使如此大转弯的口吻，还是被各亲共媒体企图用来抵消雷德菲尔德博士的影响，包括白宫发言人，（在回答记者有关雷德菲尔德博士问题时，表态还要关注其他人的观点，比如福奇）。【4】
 
-预计台湾问题将是美日会议议程之一，届时两位领导人将寻求如何应对中共在该地区日益增长的安全威胁。中共战机越来越多地进入台湾领空，中共抗议华盛顿向台湾出售武器装备后达成的一项加强美国和台湾海岸警卫队合作的协议。
+令笔者感到奇怪的是，3月28日CNN特别报导，“中共病毒战：疫情博士们如是说”两个小时的节目中【5】，对3月26日CNN报道中涉及的雷德菲尔德博士内容增加了更多，而老贼福奇的那番言论却没有听到、找到，是CNN给删掉了，还是老贼自己要求删掉的？
 
-菅义伟周日在一个电视访谈节目中说，“重要的是，日本和美国要合作，使用威慑手段，创造一个台湾和中共可以找到和平解决方案的环境。”
+按天使闫博士和路德社透露，中共爪牙达扎克已被有关部门调查，或许也预感到了自己的危机，老贼福奇由大张旗鼓变得不动声色？
 
-近期，中共军机几乎每天都进入台湾西南部防空识别区对台湾施压。2月日本执政党议员呼吁出台一项类似于美国台湾关系法的新法律，目的是在北京武力威胁台湾的状况下帮助台湾自卫。
+随着人们对中共的认识、对邪魔的认知程度不断提高，美国人对老贼的所作所为不会善罢甘休，在罪恶被充分曝光之前，人们已经开始了对老贼福奇的清算。
 
-日本和印尼的国防部长上周日同意向世界其他国家发出信息，即两国将强烈反对中共采取任何可能加剧该地区水域紧张局势的行动。日本防卫大臣岸信夫在东京与印尼防卫大臣普拉博沃举行会谈后对记者说，他们将敦促中共不要试图单方面改变南海和东海的现状。
+格雷厄姆参议员周五抨击老贼福奇，称这位顶级传染病医生对中共病毒在边境移民中传播的风险熟视无睹。《福克斯新闻》的这篇文章也披露了拜登边境政策的失败，以及拜登与福奇之间的相互推诿。【6】
 
-中共宣称台湾是自己的领土，必要时将使用武力一统台，并努力在国际上孤立台湾。
+马乔里·泰勒·格林（Marjorie Taylor Greene）众议员更是愤怒不已，提出一项题为“解雇福奇”新法案，以剥夺这位美国联邦最高工资雇员、中共病毒“之父”的国家过敏和传染病研究所所长的职位【7】。
 
-日本认为中共日益增长的活动是一种安全威胁，并反对北京方面对东中国海(East China Sea，中共国称钓鱼岛)日本控制的尖阁诸岛(Senkaku Islands，中共国称钓鱼岛及其附属岛屿)的主权主张。中共还宣称对几乎整个南中国海拥有主权，并在岛礁和环礁上用沙子和混凝土覆盖建设军事设施。
+川普总统的顾问皮特·纳瓦罗先生上周在《福克斯新闻》称老贼福奇是中共病毒之父，指责他帮助中共国进行了病毒基因工程【8】。
 
-日本首相菅义伟上任后出访了越南和印度尼西亚。菅义伟表示，日本将帮助东南亚国家联盟（东盟）的成员，包括印度尼西亚和越南，打击非法捕鱼导致的海上冲突，意指中共。此次美国与日本的领导人会晤，代表日本积极寻求同盟合作共同抵抗中共威胁，尤其对中共军事压迫下的台湾提供帮助。
+多行不义必自毙，老贼唯一的出路就是回归正义，揭露邪恶的中共，否则，不会有他的好下场！
 
 参考链接：
 
-[Japan’s PM aims to calm China-Taiwan tension on US visit – Washington Times](https://www.washingtontimes.com/news/2021/apr/4/japans-pm-aims-to-calm-china-taiwan-tension-on-us-/)
+【1】https://gnews.org/zh-hans/1023905/
 
-0
+【2】[https://www.businessinsider.com/fauci-denies-wuhan-lab-conspiracy-theories-national-geographic-interview-2020-5](https://www.businessinsider.com/fauci-denies-wuhan-lab-conspiracy-theories-national-geographic-interview-2020-5)；
+
+【3】[https://edition.cnn.com/world/live-news/coronavirus-pandemic-vaccine-updates-03-26-21/h\_d2fe59849d042d0c63b7a9c4d4021a0d](https://edition.cnn.com/world/live-news/coronavirus-pandemic-vaccine-updates-03-26-21/h_d2fe59849d042d0c63b7a9c4d4021a0d)
+
+【4】[https://gnews.org/zh-hans/1032487/](https://gnews.org/zh-hans/1032487/)
+
+【5】https://gnews.org/zh-hant/1038363/
+
+【6】https://www.foxnews.com/politics/lindsey-graham-fauci-border-super-spreader
+
+【7】[https://twitter.com/RepMTG/status/1377647623339905035](https://twitter.com/RepMTG/status/1377647623339905035)
+
+【8】https://www.independent.co.uk/news/world/americas/us-politics/peter-navarro-fox-news-fauci-covid-b1824852.html
+
++2

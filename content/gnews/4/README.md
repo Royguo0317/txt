@@ -1,55 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】Facebook仍在帮助中共散布有关新疆的虚假信息
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1050280/)
+## 【音频】迟浩田报告一: 战争正在向我们走来
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1050572/)
 
-作者：纽约香草山农场 人间世
+报告人：迟浩田
 
+录音：西瓜王
 
+编辑：Summer
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+【编者按】迟浩田，曾任中共国国务委员兼国防部，1995年至2002年任中共军事委员会副主席。在指导军队在北京执行戒严令以镇压天安门广场抗议活动中，迟起到了重要作用。 据估计，这份报告是在第二次报告之前不久发表的：“战争距离我们不远，它是中国世纪的产婆”。这两份报告的言论可能会令你震惊，但是却讲述了中共领导人多年以来的心态和策略。 中共永远不会专注于“和平与发展”，因为在它眼中，战争和争霸才是永恒的主题。对中共来说，他们从来不关注人民的命运，因为他们只关注自己的统治。他们认为，在外面打赢了人民就会成为顺民。
+迟浩田报告一全文音频
+【Source】
 
+Chinese Original: **[迟浩田: 战争正在向我们走来](https://www.centralnation.com/usstudy/wariscoming.html)**
 
+英文版第一部分: **[CCP Former General Chi Haotian: The War is Coming to Us (1/2)](https://gnews.org/1020161/)**
 
-中共在新疆犯下种族灭绝和反人类罪已是无可争议的事实，全世界众多政府和企业纷纷以实际行动谴责中共的邪恶做法。当此之时，全球最大社交媒体平台Facebook却公然助纣为虐，依旧允许中共借助其平台散布关于新疆的虚假信息。
+英文版第二部分: [**CCP Former General Chi Haotian: The War is Coming to Us (2/2)**](https://gnews.org/1020305)
 
-《华尔街日报》中文版4月3日报道，Facebook（脸书）内部员工担忧其平台已沦为中共进行政治宣传的工具。中共政府和官方喉舌，在脸书上发布广告和贴文，让新疆维族人民现身说法，表示自己生活“越来越好”，同时指责西方对中共新疆政策的指控是针对中（共）国的阴谋。
+【Disclaimer】
 
-美国正式认定中共在新疆犯下种族灭绝和反人类罪之后，全球众多政府和私人企业纷纷以实际行动谴责中共在新疆的做法。脸书内部员工表示，“现在是我们平台采取行动，在维吾尔族遭到种族灭绝一事上对抗虚假信息的时候了”。**但脸书发言人却辩称，北京（中共）当局的做法并不违法其公司规定。**
+All views expressed in the report belong to the presenter of the report and do not represent any organization, committee or other individuals.
 
-据《法广》中文网报道，脸书虽然自2009年起在中共国被禁，但中共国仍是脸书最大的广告收入来源国之一，年广告额达50亿美元，可能仅次于脸书在美国本土的广告收入。
+**欢迎战友加入旧金山金喜准农场**
 
-根据国际调研机构DataReportal的数据，在全球前20个最多人追踪的脸书网页中，中共国官方媒体占了3个。中共国环球电视网(CGTN）在脸书上拥有1亿1500万粉丝，名列全球第4，比可口可乐和流行歌手蕾哈娜（Rihanna）还要多。
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
 
-自上届美国政府认定中共在新疆犯下种族灭绝和反人类罪后，全球众多政府和私人企业纷纷响应。而脸书作为全球最大的社交媒体平台，月活跃用户数量超过30亿，却冒天下之大不韪，为了经济利益，甘愿充当中共邪恶政权的吹鼓手，帮助中共在全球数以亿计的用户中散步虚假消息。**脸书的这一方法，已经在事实上与中共“狼狈为奸”，公然站在了人类文明的对立面**。根据郭先生最近在直播中透露的消息，随着数字货币的推广使用，脸书有可能成为全球排名前三的最有权力的实体之一，其权力之大堪与全球大国相提并论。那么，问题来了，未来“权可敌国”的脸书，会不会是另一个中共呢？让我们拭目以待。
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
 
-参考阅读：
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
 
-[脸书员工忧自家平台将沦为宣传新疆的工具](https://www.rfi.fr/cn/%E7%BE%8E%E6%B4%B2/20210403-%E8%84%B8%E4%B9%A6%E5%91%98%E5%B7%A5%E5%BF%A7%E8%87%AA%E5%AE%B6%E5%B9%B3%E5%8F%B0%E5%B0%86%E6%B2%A6%E4%B8%BA%E5%AE%A3%E4%BC%A0%E6%96%B0%E7%96%86%E7%9A%84%E5%B7%A5%E5%85%B7)
-
-[一些Facebook员工因中（共）国在该平台投放涉疆广告而感到不安](https://cn.wsj.com/articles/%E4%B8%80%E4%BA%9Bfacebook%E5%91%98%E5%B7%A5%E5%9B%A0%E4%B8%AD%E5%9B%BD%E5%9C%A8%E8%AF%A5%E5%B9%B3%E5%8F%B0%E6%8A%95%E6%94%BE%E6%B6%89%E7%96%86%E5%B9%BF%E5%91%8A%E8%80%8C%E6%84%9F%E5%88%B0%E4%B8%8D%E5%AE%89-11617414012)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
-
-
-
-
-
-
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
 
 0
