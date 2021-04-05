@@ -1,145 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0404.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1049869/)
+## 尽管有人接种后出现血栓，阿斯利康在澳大利亚继续推广疫苗
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1050198/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+编译：Lelouch.G.Zero
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
+澳洲媒体stuff报道，尽管有人接种后出现血栓，阿斯利康在澳大利亚会继续推广疫苗。
 
+欧盟的药物监督机构周四表示，在对血液疾病的报道进行调查后，欧盟仍然相信阿斯利康公司的Covid-19疫苗的好处大于风险，之前因为这个事件十多个国家暂停了该疫苗的使用。
 
-## 深挖中共病毒真相
+澳大利亚的医疗机构也在监控这个首次出现的凝血病例，同时澳大利亚的阿斯利康疫苗接种计划将按计划继续进行。
 
-4月4日劳伦斯博士继前一天推文持续揭露中共病毒关键负责人，其用词和理论与爆料革命天使科学家闫博士步调一致。推文如下。
+周五，一名44岁的男子因血栓入住墨尔本东郊的Box Hill医院。该男子在3月22日左右接种了疫苗，到目前为止，还没有发现他的病情与接种疫苗有直接的联系。截至目前，澳大利亚已有超过42万人接种了阿斯利康疫苗。
 
-中共军方正在研究 “脑控”病毒影响神经系统。中共的生物战计划与病毒脑效应之间的联系。陈伟（音译）&安婧（音译）曾在第三军医大学重庆分校共同工作。
+副首席医疗官迈克尔·基德（Michael Kidd）周五说，澳大利亚的医疗监管机构和专家疫苗接种小组正在对这例凝血病例进行调查，以了解它是否与疫苗有关。基德说：“我们对此非常重视。我们正在公开的讨论疫苗的风险，也承认这将导致不确定性。”
 
-#中共病毒 #超限生物武器 #COVID19病毒来源
+澳大利亚免疫技术咨询小组（Australian Technical Advisory Group on Immunisation，ATAGI）和治疗用品管理局（Therapeutic Goods Administration，TGA）建议政府继续推广疫苗，因为目前仍没有具体证据表明凝血疾病与疫苗有关。
 
+联邦卫生部秘书布伦丹·墨菲（Brendan Murphy）表示，政府将继续听取独立专家的健康建议。 “如果ATAGI或TGA建议改变，我们会采取相应的行动，但目前他们还没有提出这个建议，”他说。
 
+ATAGI还要求人们，即使在接种疫苗4天以后，也要警惕可能出现的严重副作用。它在一份声明中说：“消费者应该特别警惕严重的持续性头痛，这种头痛不同于他们的’惯常’模式，并且不要用扑热息痛或其他止痛药来解决。”
 
-> China's military is working on "brain control" [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) affects the nervous system. A link between CCP's biowarfare program & viral brain effects. Wei Chen & Jing An worked together at the 3rd Military Medical University Chongqing[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/rzYNObXCQK](https://t.co/rzYNObXCQK)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 4, 2021](https://twitter.com/LawrenceSellin/status/1378603088613945355?ref_src=twsrc%5Etfw)
+墨菲说，在英国，有超过1800万人接种了阿斯利康疫苗，只有少数疑似血栓的病例。英国还在继续推广，因为Covid-19的危害更大。他说：“我们谈论的是极为罕见的事件，以英国的数据而言，大概每百万人中有一到两例，而死于Covid-19的风险是每100人中就有一到两例。”
 
+基德说，轻微的症状很常见，不应该让人们担心。他说：“已经接受任何一种COVID-19疫苗的人们都应该了解常见的副作用，包括发烧，肌肉酸痛，紧绷和头痛。这些症状通常在接种疫苗后24小时内开始，通常只持续一到两天。副作用是预料之中的，除非症状严重或持续存在，否则不必担心。”
 
+这名墨尔本患者到医院就诊时出现发烧和腹痛，医生观察到腹部有血块，血小板数量很低。
 
+墨菲说，病人的情况并不危急。他说：“我认为他的病情稳定，他不在重症监护病房，没有任何较严重的脑血栓形成，并且正在接受最好的治疗。”
 
+欧洲医学机构（European Medicine Agency，EMA）和TGA先前对现有证据进行了审查，并得出结论，疫苗的益处胜过了风险。
 
-姜世勃，是#COVID19 弗林梅切位点病毒起源的关键一环，2007年从SARS开始，2013年基因改造插入了一个4aa 弗林梅切位点。2015年，一个S1-S2 弗林梅切位点出现在高福的SARS类冠状病毒 “愿望清单 “上。从这些文章中，关注军事链接。#CCP病毒 （#中共病毒）
+上个月，在有报道称31名接种者出现脑静脉窦血栓后，几个欧洲国家暂停了阿斯利康的推广工作。受影响的大多数人是55岁以下的女性。
 
+周三，德国暂停该疫苗在60岁以下人群中的使用。加拿大最近也停止了55岁以下人群的推广。
 
+在较早的血液凝结报告之后，澳大利亚监管机构还审查了初步数据。该审查未发现凝血与特定因素有关，例如年龄，性别或先前的凝血病史。
 
-> Shibo Jiang, a key link in the origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) 's furin cleavage site (FCS), began with SARS in 2007, genetically inserted a 4aa FCS in 2013. In 2015, a S1-S2 FCS was on Gao Fu's "wish list" for SARS-like coronaviruses. From those articles, follow the military links.[#CCPvirus](https://twitter.com/hashtag/CCPvirus?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/1h7wufTpzG](https://t.co/1h7wufTpzG)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 4, 2021](https://twitter.com/LawrenceSellin/status/1378725944098238472?ref_src=twsrc%5Etfw)
+EMA在一份声明中说：“与疫苗的因果关系尚未得到证实，但存在这种可能性，并且进一步的分析仍在继续。”
 
+昆士兰州梅特健康（Mater Health）传染病学主任保罗·格里芬（Paul Griffin）副教授不支持暂停推广，他说，不要假设该人的血块与阿斯利康疫苗之间存在联系，他说很可能没有联系。
 
+他说：“我们不用担心。当事件确实在时间上与疫苗相近时，我们显然需要仔细调查，但总体而言，我们要关注的是确定会出现的副作用。我们需要相信我们的监管机构。如果有任何重大不利事件发生或死亡的风险增加，TGA将不允许使用疫苗。”
 
+传染病专家副教授琳达·塞尔维（Linda Selvey）说，在短时间内为数千人接种疫苗时，“事情可能会巧合地发生”。她说：“专家们正在研究每种潜在的副作用事件，以及偶然发生血栓的可能性。”
 
+阿斯利康发表声明称，患者安全仍是其最优先考虑的问题。它说：“我们正在与TGA和ATAGI紧密合作，对澳大利亚报告的血栓病例进行详细评估。英国、欧盟、世界卫生组织的监管部门已经得出结论，在所有成人年龄段，使用我们的疫苗保护人们免受这种致命病毒侵害的好处大大超过了风险。”
 
-## 揭露中共的顶级传染病专家—蝠奇
+以上是来自stuff的报道。我们可以看到，stuff在陈述客观事实的同时，其实是倾向于推广疫苗的接种的，它引用了昆士兰州梅特健康传染病学主任保罗·格里芬，传染病专家副教授琳达·塞尔维，欧洲医学机构EMA，澳大利亚免疫技术咨询小组ATAGI和治疗用品管理局TGA等专家或机构的观点都是为了安抚民众，希望大家听从政府的意见接受疫苗的接种。
 
-Arthur Schwartz推文：“中国共产党和蝠奇（Anthony Fauci)似乎总是站在同一条战线上 — 无能并且不诚实的一方。”
-
-推文附两则新闻截图，一幅来自中共国新华网称，“尽管这周得克萨斯和密西西比州已经放宽强制戴口罩和商业活动的限制，美国顶级传染病专家安东尼-蝠奇警告结束大流行病限制措施为时太早。”另一幅来自重磅新闻911的真实新闻，“自从得克萨斯州放宽强制戴口罩的政策3州以来，7天平均感染案例达到自去年6月以来最低记录。”
-
-译者议：蝠奇博士为什么不听听美国真正的新闻，反而与中共唱一出戏呢？他究竟是美国传染病顶级专家，还是中共传染病顶级代言人？闫博士转发了这一推文。
-
-
-
-> The Chinese Communist Party and Fauci always seem to be on the same side — the incompetent & dishonest side. [pic.twitter.com/BUZIWT3P8u](https://t.co/BUZIWT3P8u)
-> — Arthur Schwartz (@ArthurSchwartz) [April 4, 2021](https://twitter.com/ArthurSchwartz/status/1378789874405376001?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 2022冬奥会
-
-4月4日参议员瑞克-斯科特转发了3月23日写给奥委会的信，信中提出“不能给习总书记一个洗白罪行的平台”。他呼吁“奥委会站在自由和人权的立场上，和他一起将2022年冬奥会从共产党的中国移出”。
-
-他今日推文称：“国际奥委会赞助商们，现在是时候为的加入我的呼吁，将2022年奥运会从共产中国转移到一个尊重人权的国家：[信件链接](https://bit.ly/3rM072U)”
-
-
-
-> It’s time for the sponsors of the [@Olympics](https://twitter.com/Olympics?ref_src=twsrc%5Etfw) to join my call to move the 2022 games out of Communist China and to a nation that respects human rights: [https://t.co/KONHncEeEI](https://t.co/KONHncEeEI) [https://t.co/wbgBown59U](https://t.co/wbgBown59U)
-> — Rick Scott (@SenRickScott) [April 4, 2021](https://twitter.com/SenRickScott/status/1378805032133476356?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 抵制美国职业棒球
-
-4月4日人口研究所所长史蒂文-摩西转推《大纪元》的一篇文章称：“清醒的伪君子公司抵制乔治亚州，拥护种族灭绝的#中国共产党。他们还自以为是地给我们讲‘价值观’”
-
-文章称，美国职业棒球联盟在延长并扩大了与一家中共国电信巨头的合同之后，抵制乔治亚州，原因是该联盟不同意该州民选州长和立法机构最近颁布的选举改革（持有效证件选举）。
-
-
-
-> [https://t.co/t8GCxAvVYd](https://t.co/t8GCxAvVYd)
-> 
-> Woke corporate hypocrites boycott Georgia while embracing the genocidal [#ChineseCommunistParty](https://twitter.com/hashtag/ChineseCommunistParty?src=hash&amp;ref_src=twsrc%5Etfw). 
-> And then they deign to lecture us on "values!"
-> — StevenWMosher @StevenMosher on Parler (@StevenWMosher) [April 4, 2021](https://twitter.com/StevenWMosher/status/1378799679362768899?ref_src=twsrc%5Etfw)
-
-
-！
-## 谁最污染环境
-
-4月3日凯尔巴斯先生推文：“中共国在2020年安装的燃煤电厂比欧洲大陆的全部装机容量还要多。还记得全球媒体称赞习近平的2060年碳中和计划吗？”
-
-人口研究所所长斯蒂夫-莫西转推：“无论美国在 “绿色能源 “上花了多少万亿美元，中共国将在可预见的未来继续燃烧百万吨肮脏的、含硫的煤炭。为什么Greta(瑞典倡导巴黎气候协议的女孩）不去中国？ 可能是因为他们不让她进入）。”
-
-
-
-> Regardless of how many trillions of dollars the U.S. spends on "green energy," [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) will continue to burn megatons of dirty, sulfur-laden coal for the foreseeable future.
-> Why doesn't Greta go to China? (Probably because they won't let her in.) [https://t.co/NJiISeiXMc](https://t.co/NJiISeiXMc)
-> — StevenWMosher @StevenMosher on Parler (@StevenWMosher) [April 4, 2021](https://twitter.com/StevenWMosher/status/1378805760591851523?ref_src=twsrc%5Etfw)
-
-
-
-
-
-
-
-## 轻松一刻
-
-班农战斗室媒体人Raheem今日转推一则英国媒体人Darren Grimes的推文视频，反映“左翼”面对不同旗帜的反应，从英国国旗，转到同性恋旗标、共产主义旗帜、欧盟旗、黑命贵拳头旗的不同反应，从厌恶到喜爱的夸张表情。
-
-
-
-
-
-> 😂🇬🇧 [pic.twitter.com/yDpYRTKJ7Y](https://t.co/yDpYRTKJ7Y)
-> — Darren Grimes (@darrengrimes\_) [April 4, 2021](https://twitter.com/darrengrimes_/status/1378771955906715648?ref_src=twsrc%5Etfw)
-
-
-
-
-
-## 复活节和清明节
-
-4月4日是的复活节，信手翻看美国总统、议员、政要、媒体人的推文，不难看到人们向上帝祷告，庆祝耶稣复活日的图文。在中共病毒依旧肆虐的今天，全世界各地很多人没有了往日热闹非凡的集市乐园、关闭了教堂祷告活动、有人觉醒着病毒已经让人们淡化了秉持信仰的意志、滋生的惰性和懈怠在悄无声息地夺去人们本来应该积极生活的风貌，有人依然被中共病毒所操控和洗脑。然而无论如何被政治操控、被利益集团左右，那些播种了文明价值观的人，秉持内心的信仰不会改变、追求正义和传统价值不会放弃。真正的斗争总是艰巨的，革命也会是曲折的，然而正义取胜、上帝掌权永不会改变。您可以延伸至各种信仰之下自己心中的守护神，愿正义大能之神佛永远陪伴爆料革命你我，愿神佛的国降临，愿神佛的旨意行在地上，如同行在天国；愿神佛的旨意行在文明世界，也行在灾难深重的中共国，普度苦难的中华同胞众生，早日战胜赤魔中共。
-
-同一时间的今天亚洲国家进入4月5日，中国传统的清明节。这一天人们祭祖扫墓、追远思亲。中共国大地无数为中共病毒丧生的冤魂、无数八九六四牺牲的民主先烈、无数在香港时代革命中捍卫自由民主和法制、如潮水涌动、英勇抗争、无惧牺牲的香港烈士们，中华大地多少冤魂亡灵，将和新生的新中国联邦人、与复活并永生的上天万佛万神一道聚能合力，消灭中共邪魔。
-
-
-
-> Happy Easter!! "He is not here; He has risen, just as He said." Matthew 28:6a [pic.twitter.com/k2IrpMEtXJ](https://t.co/k2IrpMEtXJ)
-> — Senator Doug Mastriano (@SenMastriano) [April 4, 2021](https://twitter.com/SenMastriano/status/1378709689903554567?ref_src=twsrc%5Etfw)
-
-
-马斯特安努议员推文：”死亡无法阻挡他”,”他不在这里，他已经复活了”。
-
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+我们不想胡乱怀疑文中涉及到两位专家是否收受中共或制药巨头的利益，仅仅就他们的发言来讲。闫丽梦博士早在去年病毒爆发之初就告诉我们，这个病毒是中共制造的生物武器，里面插入了多种和冠状病毒无关的其他各种病毒基因片段，包括乙脑病毒，艾滋病病毒等。凝血异常并不是这两位专家所说的“偶然发生血栓”，也不是从文章中提到的这位患者才开始发现凝血现象的。早在去年4月的权威期刊《新英格兰医学》就发表过北京协和医院的文章，里面就有患者因感染新冠病毒发生凝血异常的病例。在没有充分研究下做出的疫苗，带有和病毒类似的功能并不奇怪。而且这些专家和专业机构为了推广疫苗，也从来不提打了疫苗后会让人对变种病毒更加脆弱的ADE效应。
 
 0

@@ -1,33 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 实验室泄漏不一定是100％ 但它似乎是病毒的唯一逻辑来源 （二）
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1050718/)
+## 美国政要等每日重要信息0405.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1050677/)
 
-#### 翻译/整理：阿娜
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-**请看上文链接：**[实验室泄漏不一定是100％ 但它似乎是病毒的唯一逻辑来源 （一）](https://gnews.org/zh-hans/1050694/)
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
+## 中共病毒继续挖料
 
-华盛顿消息人士指出，虽然拜登政府与英国政府一样，对实验室泄漏假说的信服程度不及特朗普政府，但是两国对世卫组织的大流行病起源的调查和世卫把很多控制权交给中共的状况而感到沮丧。 世卫组织小组成员荷兰病毒学家马里恩·库普曼斯（Marion Koopmans）承认，中共告诉他们，“一个或两个” 在武汉工作的研究人员在秋天研究冠状病毒已经病倒了，但后来坚持认为这是正常的。
+4月5日劳伦斯博士继续使用爆料革命关于中共病毒的定义和闫博士关于超限生物武器的定论发推宣传，推文也找出更多中共病毒专家的照片：
 
-自从中共国官员告诉他们，这名科学家后来病毒测试是阴性，所以她否认这表明实验室泄漏。 中共正在推动未经证实的理论，即该病毒可能是从冷冻食品中进口的，声称在武汉的首例确诊病例是2019年12月8日。
+毫无疑问，陈薇少将应该是中共生物战计划的负责人&所显示的每个人都曾在军方工作过。在中国，民用和军用研究没有区别。
 
-中共官方冠状病毒专家小组负责人梁万年表示，该月之前在武汉尚无该病毒的证据。然而，《星期日邮报》已经获得了一份中国医学期刊的报道，该报道是基于对这位科学家的采访而汇编的，该病例收集了有关病例的官方数据，这预示着其更早的病例。
+#中共病毒 #超限生物战 #超限生物武器 #COVID19病毒来源
 
-武汉大学生物统计学教授于传华教授告诉《健康时报》（Health Times)，截至2月底，他的数据库中有47,000例病例。其中包括一名疑似但未经测试的9月29日患病的患者死亡，其次是11月14日和21日的两例。
 
-采访发生在中共国卫生主管部门发布消声措施的那天。教授随后打电话给新闻记者，要求他们撤回此信息，声称日期输入不正确。从美国的消息来源了解到，11月14日的案件与武汉研究人员妻子疑似死亡的时间非常吻合。阿舍尔拒绝评论任何机密信息。
 
-去年3月在《南华早报》上的权威报道说，到11月底，共有9例病例，涉及4名男性和5名年龄在39至79岁之间的女性，第一例患者于11月17日被确诊。 这意味着约有50人已被感染，大部分无症状，但有涉及老年人有症状的病例。然而，直到12月31日，震惊的台湾官员才向世卫组织发出警报。
+> Make no mistake, Maj. Gen. Wei Chen is presumed head of the CCP biowarfare program & everyone shown has worked with the military. In China, there is no distinction between civilian and military research.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/luEHWbcH2F](https://t.co/luEHWbcH2F)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1379000079768510467?ref_src=twsrc%5Etfw)
 
-南安普敦大学（Southampton University）模型专家的分析表明，如果提前三周采取行动遏制这种疾病，中共国可以将病例减少95％，而不是着手进行新年庆祝活动。 美国研究人员的另一项研究称，首例病例于2019年10月中旬至11月中旬出现在湖北省。该研究得出的结论是：对这种大流行病实施干预措施的窗口期很短， 要先发制人。’’
 
-**新闻来源链接：**
 
-🔗[A LAB LEAK ISN’T 100% CERTAIN BUT IT SEEMS TO BE THE ONLY LOGICAL SOURCE OF THE VIRUS](https://www.msn.com/en-xl/news/other/a-lab-leak-isn-t-100-certain-but-it-seems-to-be-the-only-logical-source-of-the-virus/ar-BB1f2wZy)
+译者认为，这些照片一方面是让这些中共国内直接参与病毒研究的人了解自己已经上了美国追查病毒真相的黑名单，另一方面是通知与这些人有工作交往的美国科研界、医疗界相关人员明白，自己曾经与中共国为伍、简介资助和辅助中共病毒超限生物战的大爆发，下一步何去何从该好好反思了。
 
-* * *
 
-***审核/校对：****Ting Guo*
+
+## 美国拨款武汉病毒实验室研究中共病毒
+
+4月4日晚《每日呼声》发表文章《NIH称美国拨款给武汉病毒实验室用于增强型蝙蝠冠状病毒研究未经过HHS审查》
+
+文章称，罗格斯大学化学生物学教授Richard H. Ebright表示，美国国家健康研究院（NIH） “系统性地阻止”了政府对危险病原体研究的监督。
+
+一项NIH拨款，涉及对基于蝙蝠冠状病毒的改造，在病毒大流行之前向武汉病毒学研究所转移了60万美元，绕过了P3CO审查，因为安东尼-蝠齐领导的国家过敏和传染病研究所没有标记对该项目进行审查。
+
+据《纽约时报》报道，2014年，美国政府暂停了对增强功能研究的资助，因为实验室工作人员意外接触到了疾病控制中心的炭疽病毒。此前，2011年威斯康星州和荷兰的实验室被曝出有意修改H5N1禽流感病毒，能够有效地在雪貂之间传染，引发反响。
+
+该集团总裁Peter Daszak在2019年12月武汉首例COVID-19报告前几周在新加坡拍摄的播客采访中表示，Ecohealth有改造蝙蝠冠状病毒的历史。
+
+[点击查看此项新闻来源。](https://dailycaller.com/2021/04/04/nih-gain-of-function-anthony-fauci-review-board-wuhan-lab/)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
 0
