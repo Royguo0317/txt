@@ -1,51 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新法案提交国会 解雇“新冠病毒之父”——福奇
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1049198/)
+## 中共趁苏伊士运河堵塞之际推广一带一路
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1049600/)
 
-新闻来源：《 国家脉动 》| 作者：特约撰稿人 | 发布时间：2021年4月1日
-翻译/简评：Victory | 校对/审核：万人往 | Page：Daoiii
+新闻来源：《布莱特巴特(Breitbart)》| 作者：John Hayward | 发布时间：2021年3月30日
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7BgBca0sp4Snk/images/0404143d-cc3a-445a-b009-0914d9a8428b.jpg?asset_id=dad22a88-0c20-40a1-8e29-00b065230349&amp;img_etag=%22c6d5652332063de215b2dffdb66cfd97%22&amp;size=1024)](https://spark.adobe.com/page/7BgBca0sp4Snk/images/0404143d-cc3a-445a-b009-0914d9a8428b.jpg?asset_id=dad22a88-0c20-40a1-8e29-00b065230349&amp;img_etag=%22c6d5652332063de215b2dffdb66cfd97%22&amp;size=1024)
+翻译/简评：MikeHua | 校对：万人往 | 审核：万人往 | Page：青山
 
-***简评：***
+[!\[\]()!\[\](https://spark.adobe.com/page/pSLw6af4n4cEE/images/b12f9653-f2e2-4852-8832-0cd806381f42.jpg?asset_id=62f3a708-9dcc-4fd9-801f-932523e2298c&amp;img_etag=%2203ffa6e4137042cac702f942a4bcc1b0%22&amp;size=1024)](https://spark.adobe.com/page/pSLw6af4n4cEE/images/b12f9653-f2e2-4852-8832-0cd806381f42.jpg?asset_id=62f3a708-9dcc-4fd9-801f-932523e2298c&amp;img_etag=%2203ffa6e4137042cac702f942a4bcc1b0%22&amp;size=1024)
 
-**福奇的最终归宿远不是解雇这么简单，他所作的恶绝不亚于中共，一定会和中共一起接受全人类的审判。福奇是这次席卷全球的中共病毒的罪魁祸首之一。文中讲到，福奇用美国纳税人的钱资助中共研究病毒功能增强研究（此类研究在美国是禁止的）。福奇和中共勾结，共同完成了对全人类的制毒、投毒，并掩盖真相。病毒爆发早期，福奇作为美国政府雇用的最权威的传染病专家，故意误导民众和美国政府，直接导致了病毒在美国大规模爆发，至今造成几十万美国人死亡，他的手上沾满了美国人民的鲜血。**
+**简评：**
 
-**除福奇之外，还有其他几个身在自由世界却蓄意祸害全人类的恶魔。如港大的Malik(裴伟士)，以及本文中提到的彼得·达扎克等等。这些名字将被永远钉在人类历史的耻辱柱上，让后人铭记科学界的耻辱。**
+苏伊士运河的堵塞是共产党精心策划的一场闹剧，这已经人尽皆知。《环球时报》依此宣扬中共的一带一路欧亚运输渠道，用中共国的供应链威胁欧盟，完全是精心策划好的一次联合行动。《环球时报》吹嘘一带一路欧亚陆路运输比苏伊士运河更可靠，很多欧洲的客户通过陆路渠道化解了这次危机。但是，没有中共的搅局，哪来的危机？中共自己挖坑然后填坑的行为，更加让世人看清楚中共的本质。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7BgBca0sp4Snk/images/874cd8cc-4f27-4d2c-b94e-a4f30928e76d.jpg?asset_id=b13cf977-cb2e-4094-b66d-4ea887c8deea&amp;img_etag=%2231fc1be738021dce9d80980b2e78a653%22&amp;size=1024)](https://spark.adobe.com/page/7BgBca0sp4Snk/images/874cd8cc-4f27-4d2c-b94e-a4f30928e76d.jpg?asset_id=b13cf977-cb2e-4094-b66d-4ea887c8deea&amp;img_etag=%2231fc1be738021dce9d80980b2e78a653%22&amp;size=1024)
+在中共的布局下，经历了一年的疫情之后，世界的局势开始慢慢乱起来了。中共一次次的搅局没有起到任何正面作用，反而加速了世界经济危机的到来。西方资本主义国家在经济稳定的情况下最优先考虑的是经济利益，一旦经济出了问题，他们就会去寻找问题的根源，那就是共产党。共产党一定在全球经济“一下一上”之际被世界的正义力量给消灭，共产党完蛋了！
 
-***原文翻译：***
+**原文翻译：**
 
-## 独家:“解雇福奇”法案于今天提交国会
+## **中共国推广一带一路陆路路线作为苏伊士运河的替代方案**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7BgBca0sp4Snk/images/44097851-1250-4a3e-a853-ce1faae1cb75.png?asset_id=75b97c19-eb73-4f71-849b-6a183ac04cf6&amp;img_etag=%22f3a0c6f2161af209c949255941794aea%22&amp;size=1024)](https://spark.adobe.com/page/7BgBca0sp4Snk/images/44097851-1250-4a3e-a853-ce1faae1cb75.png?asset_id=75b97c19-eb73-4f71-849b-6a183ac04cf6&amp;img_etag=%22f3a0c6f2161af209c949255941794aea%22&amp;size=1024)
+[!\[\]()!\[\](https://spark.adobe.com/page/pSLw6af4n4cEE/images/8d015f20-3fac-47e6-ad85-fcd1c4ffb567.jpg?asset_id=ec1b3d98-1cdb-4244-b864-0b18a36611b1&amp;img_etag=%226eadc22d8cf50bf131d9a48a265cc66b%22&amp;size=2560)](https://spark.adobe.com/page/pSLw6af4n4cEE/images/8d015f20-3fac-47e6-ad85-fcd1c4ffb567.jpg?asset_id=ec1b3d98-1cdb-4244-b864-0b18a36611b1&amp;img_etag=%226eadc22d8cf50bf131d9a48a265cc66b%22&amp;size=1024)
 
-国会议员马乔丽·泰勒·格林（Marjorie Taylor Greene）今天将提出一项新法案，题为“解雇福奇法案”，寻求解除这位收入最高的美国联邦雇员兼“新冠病毒之父”的国家过敏和传染病研究所所长的职位。
+**周一，中共国官方媒体利用苏伊士运河被堵之机，提出了中共国一带一路倡议建立的陆上运输贸易路线，作为海上船运的替代选择。**
 
-尽管福奇在2020年底和2021年坚持普及口罩的规定，但他在2020年3月臭名昭著地告诉美国人，“人们不应该带着口罩到处走”，并补充说，“没有理由带着口罩到处走”。
+“尽管一艘大型集装箱船被困在苏伊士运河这条关键航道上，导致苏伊士运河阻塞，但中国的商人发现，这对他们的业务影响有限，许多人转向了更加可靠的替代方案，比如将中国工厂急需的货物运到欧洲市场的中欧货运列车服务。”中共国官方媒体《环球时报》吹嘘称。
 
-他在疫情过程中的多次“反复不定”，以及最近几周公开的党派立场，使得格林要求国家过敏和传染病研究所解聘他。
+该文章引用“行业内部人士”的话称，中欧长途铁路运输的需求“激增，有些情况下运费上涨了10%-20%”，因为“客户正在寻求稳定和安全的选择来保障他们的交易”。
 
-福奇与最近承认与中共有联系的世界卫生组织检查员彼得·达扎克（Peter Daszak）关系密切。
+《环球时报》承认，用铁路运输完全代替海上运输“不可行”，因为最大的货船可以装载上千个集装箱，相当于50多列火车的装载量。
 
-福奇自1984年以来一直担任该职务。该法案将有效地将他的工资削减到0美元，同时他的替代者由参议院选定并确认。该法案还将引发美国政府问责署对福奇2019年10月1日至2021年12月31日期间的数字通信以及财务交易进行审计。
+相反，一带一路火车被建议成为“那些从事电子设备和病毒防护产品等高附加值企业” 的“可行选择”。据《环球时报》的“专家”称，拟议中的北极航线也可以“成为未来的捷径，提供更多选择，缩短交货时间”。
 
-除了福奇对新冠病毒的拙劣反应，这位国家过敏和传染病研究所所长还是功能增强研究的长期倡导者和资助者——这种科学实践可增强新冠病毒等疾病的毒性和传播性。更重要的是，福奇向达扎克的生态健康联盟组织输送了数百万美国纳税人的资金，该组织与武汉病毒研究所合作进行这种形式的研究。福奇还多次在他们的活动中发言。
+周二，《环球时报》对中共国的生产商及其欧洲客户快速地通过海上、航空和陆路运输网络适应苏伊士运河堵塞表示赞赏。
 
-**🔗[原文链接](https://thenationalpulse.com/breaking/mtg-bill-would-fire-fauci/)**
+“这是继新冠疫情之后，对中国供应链韧性的又一次考验。”这家共产党的报纸称。
+
+第二篇社论主要是为了安抚世界其他地区紧张的客户，让他们相信中共国供应链能够适应苏伊士运河危机这样的中断：
+
+*尽管运河堵塞的实际后果尚不清楚，但几家国内企业的消息人士告诉《环球时报》，他们几乎没有遇到什么问题，尽管他们不得不争先恐后地确保从电子设备到玩具和其他物品等急需的商品抵达欧洲目的地。*
+
+*在许多情况下，他们使用其他的运输选项，包括中欧货运火车服务，或者从南非好望角绕行的船只。*
+
+“欧盟有103种严重依赖中国的商品类别，包括电子产品、化学产品、矿物、金属、医药或战略性行业的医疗产品。”《环球时报》引用2020年的一项研究称。
+
+《环球时报》指出了这种依赖，并且驳斥了“将供应链从中国转移到其他地方的轻松说法”，他们还建议外国客户开发更灵活的运输网络，以便从中共国获取廉价商品。
+
+🔗[原文链接](https://www.breitbart.com/national-security/2021/03/30/china-promotes-belt-and-road-land-routes-as-alternatives-to-suez-canal/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+breitbart+%28Breitbart+News%29)
 
 - [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
 
 编辑：【英国伦敦喜庄园编辑部】
 
-[!\[\]()!\[\](https://spark.adobe.com/page/7BgBca0sp4Snk/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/7BgBca0sp4Snk/images/6d862304-0dcb-4615-b827-8eba7e6a3a54.jpg?asset_id=480a03e2-1dfa-411d-9bdc-131a93d133bb&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
-
-
+[!\[\]()!\[\](https://spark.adobe.com/page/pSLw6af4n4cEE/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/pSLw6af4n4cEE/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 +1
