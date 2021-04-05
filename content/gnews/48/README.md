@@ -1,37 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【音频】迟浩田报告一: 战争正在向我们走来
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1050572/)
+## 【灭共头条】闫丽梦博士的第三份病毒来源报告出炉
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1050644/)
 
-报告人：迟浩田
+#### 撰稿：MIYA【㊙️翻 Gnews原创组】
+责编：萌萌的朋克
+![]()![](https://gnews.org/wp-content/uploads/2021/04/灭一组封面.jpg)图片来源：爆料革命战友制作
+3月31日，闫丽梦博士发表了第三份病毒来源报告。在这份最新报告中，闫博士进一步揭露了COVID-19疫情是中共精心策划的一场大规模、有组织地向全世界释放病毒的“完美犯罪”行动。
 
-录音：西瓜王
+COVID-19疫情是一场人类历史上前所未有的浩劫，全球至今已有1.27亿人被感染，其中逾280万人死亡，可怕的是，这些数字还在持续攀升，并且已有多个国家不断涌现出变异病毒株。全世界似乎要被迫接受摆在面前的现实：未来很长一段时间，人类不得不生活在COVID-19的阴影之下。
 
-编辑：Summer
+去年9月14日，闫丽梦博士发布了第一份报告，该报告证明SARS-CoV-2不是来自于自然，而是中共实验室制造的产物。同年10月8日，闫博士发布了第二份报告，她用大量中共科学家对外公开发表的文章反证得出结论，SARS-CoV-2是中共制造的一种超限生物武器。昨日，第三份病毒来源报告出炉，在这份最新报告中，闫博士除了再次肯定前两份报告的论点外，她更强调指出，SARS-CoV-2是中共生物武器计划的产物，该计划涉及到许多中共和海外的科学家，这场“科学大屠杀”的布局甚至遍及全球很多科学组织。
 
-【编者按】迟浩田，曾任中共国国务委员兼国防部，1995年至2002年任中共军事委员会副主席。在指导军队在北京执行戒严令以镇压天安门广场抗议活动中，迟起到了重要作用。 据估计，这份报告是在第二次报告之前不久发表的：“战争距离我们不远，它是中国世纪的产婆”。这两份报告的言论可能会令你震惊，但是却讲述了中共领导人多年以来的心态和策略。 中共永远不会专注于“和平与发展”，因为在它眼中，战争和争霸才是永恒的主题。对中共来说，他们从来不关注人民的命运，因为他们只关注自己的统治。他们认为，在外面打赢了人民就会成为顺民。
-迟浩田报告一全文音频
-【Source】
+最新报告还详细记叙了中共利用人类对科学界的敬畏之心，如何巧妙地掩盖SARS-CoV-2的真实起源和生物武器的本质，如何利用全球的科学家及科学组织的参与，来共同完成这场“完美犯罪”的全过程。其中包括销毁数据和样本、在顶级科学期刊上发表捏造的病毒、通过贿赂顶级科学家和组织控制起源辩论的叙述，通过媒体控制、放大伪造的自然起源论，将所有其他起源论贴上 “阴谋论 “的标签，以及诽谤、打压揭露SARS-CoV-2真相的个人。
 
-Chinese Original: **[迟浩田: 战争正在向我们走来](https://www.centralnation.com/usstudy/wariscoming.html)**
+闫丽梦博士的三份病毒来源报告，秉承着唯真不破的原则，彻底揭露了中共向全世界发动超限生物战的全过程。站在科学的角度，闫博士的前两份报告至今也无人能够辩驳。她曾在FOX新闻采访中发出警告：“这不是政治问题，这是关乎真相与生命！留给人类的时间不多了。”
 
-英文版第一部分: **[CCP Former General Chi Haotian: The War is Coming to Us (1/2)](https://gnews.org/1020161/)**
+COVID疫情已经持续一年多时间，对全球构成如此大的生存威胁和经济重创，如果全世界不是沿着生物武器的方向寻找疫情的真正根源，仍纵容中共继续误导和拖延追究真相的时间，极有可能再次遭受中共其他生物武器的重创。
 
-英文版第二部分: [**CCP Former General Chi Haotian: The War is Coming to Us (2/2)**](https://gnews.org/1020305)
-
-【Disclaimer】
-
-All views expressed in the report belong to the presenter of the report and do not represent any organization, committee or other individuals.
-
-**欢迎战友加入旧金山金喜准农场**
-
-[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
-
-[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
-
-[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
-
-[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
+参考链接：
+[The Wuhan Laboratory Origin of SARS-CoV-2 and the Validity of the Yan Reports Are Further Proved by the Failure of Two Uninvited “Peer Reviews”](https://zenodo.org/record/4650821#.YGUyn68zbIW)
+（本文仅代表作者个人观点）
 
 0
