@@ -1,39 +1,52 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共“灭白计划”之迟浩田系列十三——中共的军刀、现代化和殖民
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1049854/)
+## 中共利用霍尔木兹海峡&nbsp; 制造世界经济动荡&nbsp; 对付美国和西方
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1049492/)
 
-作者：左媛
+简述：郭文贵先生在[2021年3月27的GTV直播](https://gtv.org/video/id=605f2b3fa54f827240b88147)中说：“共产党影响经济、市场、石油价格、黄金价格，想对付西方的其中之手段：炸掉油轮，堵掉霍尔木兹海峡，甚至在巴拿马运河给它开始做动作。”中共篡权70年来只想想干坏事、统治全世界、绑架全中国人民，制定无数诸如“13579计划”、“潘多拉盒子计划”、“辛普森夫人计划”、“南普陀计划”、“灭白计划”的邪恶计划。
 
-上文驳斥了中共迟浩田死抓的“三个代表”，本文讲他说的巩固党地位的第二条：能否带领人民走出去，就是关系到共产党领导地位的最大课题和关键课题。
 
-他说：“大家知道，没有我们党的领导，就没有中国的一切。所以永远保卫我们党的领导地位，就是我们的最高宗旨……六四前小平同志提出，当代世界的主题是和平与发展，但六四暴乱给党敲响了警钟，差一点和平演变成功……六四暴乱使我们认识到，必须把国家的建设发展与准备打仗、带领人民走出去紧密结合起来。”
 
-这段话已经很清楚表明了中共的最高宗旨就是“保卫党的领导地位”，他亲自撕下了共产党所有的欺世盗名的伪面具，什么“为人民服务”，什么“人民至上生命至上”，什么“一切为了老百姓的苦辣酸甜”，什么“人民的儿子”“人民的公仆”……都是欺骗，都是谎言，都是洗脑！“党的领导地位”才是他们的唯一！他们对人民所做的一切都是为了这个！
+**中共利用霍尔木兹海峡  制造世界经济动荡  对付美国和西方**
 
-“没有党的领导就没有中国的一切。”是的，没有共产党的领导，就没有东北西南土地的丢失，就没有亿万中国人生命的人为丢失，就没有人民财产的丢失，就没有人民器官的丢失，就没有蓝天白云的丢失没有肥沃良田的丢失没有美善人心的丢失，就没有港人生命和自由的丢失……没有共产党的领导，就没有官员的普遍贪腐，就没有争先恐后的公共情人，就没有中南坑的“建筑艺术结构图谱”，就没有“以贪治国以黑治国以警治国以骗治国”，就没有“留岛不留人”这样的诳语，就没有超限生物武器杀死世界280多万人，就没有“蓝金黄”计划，就没有山东大学配给非洲留学生的“女伴计划”，就没有“宁与洋人不与家奴”的大撒币……所有的这一切都是在党的领导下才有的，真是“震古烁今”，空前绝后。在中共面前，商纣王自愧不如，商鞅俯首称臣，“永州异蛇”也会从此销声匿迹，希特勒也要喊“你是我的大哥”……因为面对中共，他们的狠毒实在是相形见绌！
+**CCP Uses the Strait of Hormuz as a Starting Point to Create a World Economic Turmoil**
 
-中共对六四运动的镇压和定性，就说明了，谁想改变党的一根毫毛，谁就是死路一条。他们歌颂“五四运动”，但五四运动的核心是推翻封建制度，满清没有了，专制还在。引进“德先生和赛先生”，即引进西方先进的民主和科学，从根本上使中国走上真正现代化道路。日本侵华和中共作祟，内外勾结阻碍了中国现代化的进程。中共的所谓改革开放，经济上高歌猛进，竭泽而渔，彻底破坏了中国的自然资源；政治上固步自封，不进反退，封网禁言，抓捕异议人士……他们骗来偷来了“赛先生”，把更重要的“德先生”拒之门外，取舍都由中共利益来决定。所有的钱是中共的，所有的人是中共的，连空气都是中共的。北京市民头顶的是漫天的雾霾黄沙，而中南坑老杂毛们却365天享有特制的新鲜空气。21世纪的中共国，真相万马齐喑，“奶头乐”现象横行天下，粉饰太平，麻醉大众。中国人真的会“生于乱世死于安乐”吗？
+记得七哥从2017年爆料，全世界有一个人到现在为止，敢说过霍尔木兹海峡将是世界经济危机动荡，共产党制造经济麻烦和能源供给，对付美国和西方、欧洲以及在中东布局的根本的一个开始手段。有必要的时候会炸掉一个船，甚至把船捅一个窟窿，或者堵死霍尔木兹海峡。包括当时的吉布提所有的所谓军事基地，包括马六甲海峡，包括霍尔木兹海峡共产党的一带一路，一带一路。
 
-共产党在担忧：我们最后这批老同志死光了，没有我们掌舵，和平演变还是要光临中国，和前苏联一样。是的，“老同志”镇压了六四，又一次赢得了喘气的机会，六四学生和民众喊出的不过是反对贪腐、新闻和言论自由、推动政治民主化。而贪腐是中共的享受之本，言论自由是中共的封喉之剑，政治民主是中共的断喉之匕，这帮示威的学生和民众在中共眼里就是一群“乱臣贼子”，要对中共的喜恶来一番“兴废”，要卸了中共“龙椅”的几条腿，它怎能不刀枪坦克相对？戈尔巴乔夫宣告“苏共是非法组织”，中共是一定要把这个非法组织进行到底的！中共，要永远做人民的主人，永远不能让人民做主！
+Remember that I, your brother Miles, was the only one in this world who said since 2017 that the Strait of Hormuz would be used by the CCP as essentially a starting point to create a world economic turmoil, economic hardship and energy supply problems for the United States, the West, and Europe, as well as set up their layout in the Middle East. When necessary, it will blow up a ship, even pierce a hole in a ship, or block the Strait of Hormuz. Their plan also involves all the so-called military bases in Djibouti at that time, the Strait of Malacca, and the CCP’s Belt and Road Initiative.
 
-共产党歌颂五四运动，是因为它催生了“中国共产党”这个邪灵组织；镇压六四运动，是因为它动摇了“中国共产党”这个邪灵组织。这个是根本区别。所以，最后我们来看看迟浩田这句话：必须把国家的建设发展和同准备打仗、带领人民走出去紧密结合起来。“国家的建设发展”就是他们所说的现代化，“准备打仗”就是他们说的“军刀”，“带领人民走出去”就是“殖民”。他们鼓吹中国的未来就是“军刀下的现代化”，就是要把西方曾经走过的殖民之路，按照中共的方式再走一遍，走到永远！
+所以说大家看到了它对的是什么？石油、黄金价格、整个的世界能源供给、控制。石油价格一定会影响黄金价格，你发现最近石油有什么变化？兄弟姐妹们？去年这个时间，也就是说去年4月份的时候黄金啥价格，兄弟姐妹们？石油什么价格，兄弟姐妹们？ 今天的黄金和石油什么价格大家算一算。
 
-爆料革命开创的“直播灭共”模式，终结了中共“殖民”的关键课题！六四30年之后的同一天，新中国联邦的成立，郝海东先生一句“灭共是正义的需要”响彻寰宇，它敲响了中共灭亡的丧钟！
+Has everyone seen what their aim is? They aim at controlling the oil and gold prices and the world energy supply and price. The price of oil will certainly affect that of gold. Brothers and sisters, have you noticed the recent price change of oil? Brothers and sisters, what was the gold price at the same time last year, that is April last year? What was the oil price then, brothers and sisters? Look at today’s gold and oil prices and then do you math.
 
-2021.4.4于纽约
+然后大家看到开头那个照片了，是我们一个叫文英的战友发给我的。她说：“七哥，不对劲儿。怎么这么大一油轮拿一推土机往那儿推这个船？”大家知道不过是百米的霍尔木兹海峡。大家再想想，埃及还有一个运河呢，巴拿马运河（注：可能指苏伊士运河，下文同）呢。 只有七哥在五年前告诉全人类——共产党影响经济、市场、石油价格、黄金价格，想对付西方的其中之手段：炸掉油轮，堵掉霍尔木兹海峡，甚至在巴拿马运河给它开始做动作。
 
-【**免责声明**】  尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+Everyone saw the photo shown at the beginning of the broadcast, which was sent to me by a fellow fighter named Wenying. She said, “Brother Miles, something is wrong. How come such a big tanker was pushed by a bulldozer over there?” Everyone knows that the Strait of Hormuz is only hundreds of meters wide. Think about it, everyone, there is also a canal in Egypt, the Panama Canal (possibly referring to Suez Canal). Only your Brother Miles told all mankind five years ago that one of the methods used by the CCP to influence the economy, the market, the oil and gold prices to go against the West is: bombing tankers to block the Strait of Hormuz, and even starting to have some actions in the Panama Canal.
 
-[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)【**责任编辑**】：bingo 旧金山文宣组
+为什么七哥知道？七哥不是神，七哥是个最普通的人，[有]七情六欲。原因非常简单，共产党是一系列都有计划。就像有战友给我整理出来，过去这五年我爆了八个计划。 战友们，共产党专案组都是按照时间、地点，比如说，2015.1.10 就是吴征这个王八蛋给我打电话、威胁我、抓了我全部的同事、家人的时候，这个案名叫2015.1.10 就是“1.10专案组”，简称“15110专案组”。共产党做什么事都有计划，这是“13579计划”、“潘多拉盒子计划”，是吧，“辛普森夫人计划”。
 
-### **欢迎战友加入旧金山金喜农场**
+Why does Brother Miles know? I am not a god, I am just the most ordinary type of person who has both emotions and desires. The reason is very simple. The CCP has a series of plans. A fellow fighter sorted it out for me and found that I have exposed eight plans in the past five years. My fellow fighters, the CCP name their special task forces based on time and location. For example, when the bastard Bruno Wu called and threatened me and arrested all my colleagues and family members on January 10, 2015, the case was called “1/10/2015 Task Force”, or “15110 Task Force” for short. The CCP has plans for everything such as the “13579 Plan” and the “Pandora Box Plan”, and the “Mrs. Simpson Plan”, right?
 
-[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)[** **](https://discord.gg/QQzQ79grEA)
+一个中共的国家一年365天大概得开一万多个重要的会，你想它有多少计划。而且共产党他最邪恶也是最厉害的地方，它这个共产党是一个政党，过去的70年就想干坏事、统治全世界、绑架全中国人民，然后让他自己过着天天做新郎夜夜入洞房的日子、让他们的子子孙孙，包括生殖器治国的所有的子孙万代遍及世界。然后“灭白计划”，它从来没停过。
 
-[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)[** **](https://twitter.com/sf_himalaya)
+The CCP probably has over 10,000 important meetings over the 365 days a year. So you can imagine how many plans it has. Moreover, the most evil and worst thing about the CCP is that, as a political party, the only thing it has done over the past 70 years is doing wicked things, dominating the world, holding all Chinese hostage, and then they themselves can live like a bridegroom every night and their descendants can rule the country generations after generations and spread their offsprings all over the world. Also their “White Extermination Plan” has never stopped.
 
-[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
+因为七哥窥见了他们所谓的“南普陀计划”，还有“灭白计划”，这些所有的绝密，这才导致共产党对七哥的追杀。七哥这30年有准备，那不可能不惦记着。你床上旁边睡一个人，你早晚有一天你想着我有一天跟这个人可能要是敌人，你想想他一举一动，你都用另外的一种心情和眼光记录下来。你真正的把对方当成爱人的话很多事你都会不记得，不记得不是忘了你是因为他没有其它用心。七哥是别有用心地和共产党睡了30多年，这就记得它们。所以霍尔木兹海峡当大家看到的时候，战友们我真的不愿意给你们说太多，它啥时候决定要做，怎么做，媒体上怎么来讲，七哥百分之百掌握。
 
-+6
+My knowledge of the “South Putuo Plan”, the “White Extermination Plan”, and the whole series of top-secret plans is the reason that I am being hunted by the CCP. Your Brother Miles has prepared for 30 years, so it is impossible for me not to pay attention [to what they do]. It’s like you sleep with a person knowing that one day you two will become enemies, so every move of this person in your eyes will be recorded carefully in your mind. If you truly regard the other person as your lover, you will not remember many details. If you do not remember many things, it is because you two have no second thought in your relationship. Your Brother Miles has “slept” with the CCP for more than 30 years with ulterior motives, so I remember those things. So my fellow fighters, I don’t really want to tell you guys too much about this, but when everyone saw [the CCP’s movement in] the Strait of Hormuz, I had already known when they decided to do it, how it would be done, and how the media would report it, 100% of them.
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=605f2b3fa54f827240b88147](https://gtv.org/video/id=605f2b3fa54f827240b88147) (42:22-46:44)
+鸣谢：感谢贝贝、万物归一、山川异域和喜联盟七哥直播组提供中文文本于 [https://gnews.org/zh-hans/1029546/](https://gnews.org/zh-hans/1029546/)
+
+* * *
+
+字幕：【JennyL】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
++3

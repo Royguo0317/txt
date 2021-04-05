@@ -1,47 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 福奇最近日子不好过
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1049979/)
+## 中共成黑客勒索现金的犯罪主力
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1050012/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+俄罗斯莫斯科喀秋莎农场 Ladin
+编辑 水星 上传 银河
+![]()![](https://gnews.org/wp-content/uploads/2021/03/Snipaste_2021-03-14_07-14-52.jpg)gnews
+英国《每日电讯》4月4日报道，快速增长的犯罪涉及黑客窃取IT系统或数据的控制权，靠勒索现金来解锁被侵入的计算机系统。由网络安全公司Internet2.0挖掘出来APT41的中共黑客组织，截至去年，被指责已经进行了超过100宗包括勒索的软件攻击的黑客行动。
 
-编辑 水星  上传 银河
-![]()![](https://gnews.org/wp-content/uploads/2021/01/下载-10.png)gnews
-一直在暗中支持皮特达扎克上蹿下跳地反对天使闫博士的老贼福奇，近期在挺共问题上似乎收敛了许多。自从川普总统的CDC主任雷德菲尔德博士3月26日在CNN惊爆了中共病毒来自武汉实验室后【1】，惊慌失措的中共“责令”那些亲共人物、媒体（或者栏目）出面否认，媒体们依然用老贼福奇作挡箭牌，包括CNN。
+美国联邦调查局去年9月发布了一张通缉海报，上面有5名APT41成员的面孔，他们因对美国，英国，澳大利亚和台湾的一系列袭击而被通缉。该组织还涉嫌为中共国政权进行间谍活动，包括2018年香港的亲民主抗议活动期间。
 
-回顾一下老贼曾经的表态，是那样坚决、肯定，“病毒出自武汉实验室是极大的阴谋论”等等【2】，但这次听上去不是那样理直气壮了，“雷德菲尔德博士提到的是一种见解，但同样，还有其他的观点——其他的，大多数人持有的”【3】，即使如此大转弯的口吻，还是被各亲共媒体企图用来抵消雷德菲尔德博士的影响，包括白宫发言人，（在回答记者有关雷德菲尔德博士问题时，表态还要关注其他人的观点，比如福奇）。【4】
+去年勒索软件的金钱保守估计为2.5亿英镑。 根据加密货币专家Chainalysis的研究，去年这些团伙的勒索收入递增超过300％。
 
-令笔者感到奇怪的是，3月28日CNN特别报导，“中共病毒战：疫情博士们如是说”两个小时的节目中【5】，对3月26日CNN报道中涉及的雷德菲尔德博士内容增加了更多，而老贼福奇的那番言论却没有听到、找到，是CNN给删掉了，还是老贼自己要求删掉的？
+除了美国，英国也是黑客最想攻击的国家，学校，慈善机构甚至个人现在都是他们的目标，比如大公司和政府部门。
 
-按天使闫博士和路德社透露，中共爪牙达扎克已被有关部门调查，或许也预感到了自己的危机，老贼福奇由大张旗鼓变得不动声色？
+自12月以来，超过100间英国学校遭到攻击，拥有Microsoft Exchange电子邮件帐户的人员和组织也成为勒索软件的牺牲品。
 
-随着人们对中共的认识、对邪魔的认知程度不断提高，美国人对老贼的所作所为不会善罢甘休，在罪恶被充分曝光之前，人们已经开始了对老贼福奇的清算。
+就连环保慈善机构 “林地信托Woodland Trust “也未能幸免。黑客在12月将目标锁定在该组织上，造成了几个月的问题。
 
-格雷厄姆参议员周五抨击老贼福奇，称这位顶级传染病医生对中共病毒在边境移民中传播的风险熟视无睹。《福克斯新闻》的这篇文章也披露了拜登边境政策的失败，以及拜登与福奇之间的相互推诿。【6】
+安全专家担心，犯罪分子会像去年9月在德国瘫痪一家大型医院那样，将注意力转移到医疗服务领域。
 
-马乔里·泰勒·格林（Marjorie Taylor Greene）众议员更是愤怒不已，提出一项题为“解雇福奇”新法案，以剥夺这位美国联邦最高工资雇员、中共病毒“之父”的国家过敏和传染病研究所所长的职位【7】。
+直到去年8月还在负责GCHQ国家网络安全中心的Ciaran Martin说，”在疫情期间主要担心的是有黑客会去攻击医院。”
 
-川普总统的顾问皮特·纳瓦罗先生上周在《福克斯新闻》称老贼福奇是中共病毒之父，指责他帮助中共国进行了病毒基因工程【8】。
+互联网2.0联合创始人大卫罗宾逊说：”APT41啥都干， 勒索软件运用一直是他们运营的重要组成部分，我们过去一年中在世界各地看到他们对组织和个人无情又持续的攻击。”
 
-多行不义必自毙，老贼唯一的出路就是回归正义，揭露邪恶的中共，否则，不会有他的好下场！
+APT41的黑客在中共国，但其他勒索团伙在俄罗斯，朝鲜，伊朗和西非部分地区。被认为是在俄罗斯，臭名昭着的REvil集团已经瞄准了微软的电子邮件，它被怀疑对哈里斯教育集团的攻击，哈里斯教育集团成员包括伦敦及其周围近50所中小学。该团伙在控制, 现已破产的英国外币兑换服务公司通济隆集团Travelex系统后，从中获得了180万英镑的赎金。
+
+商业街零售商Fat Face是最新的受害者。据了解，它已经向一个名为Conti的团伙支付了145万英镑的赎金，该团伙窃取了200千兆字节的数据，包括客户信息，并在1月份将该公司锁定在其系统之外。 Conti被认为与一个名为Ryuk的可疑俄罗斯勒索集团有关。如果俄罗斯公司和利益可以得逞，克里姆林宫被指就视而不见。
+
+英国政府在2020年宣布建立一支3,000人的强大的国家网络部队，汇集GCHQ，国防部和情报部门的专家力量来解决黑客勒索问题。
+
+安全专家表示，政府必须让公司更难以支付，目前一些公司，有投保，允许他们保单支付赎金。社会上对勒索黑客有错误的判断，犯罪分子已经利用了它，他们大肆宣扬这是一个有利可图、成功的商业领域。马丁说，”勒索软件应用正在增加，因为收益大。”
 
 参考链接：
-
-【1】https://gnews.org/zh-hans/1023905/
-
-【2】[https://www.businessinsider.com/fauci-denies-wuhan-lab-conspiracy-theories-national-geographic-interview-2020-5](https://www.businessinsider.com/fauci-denies-wuhan-lab-conspiracy-theories-national-geographic-interview-2020-5)；
-
-【3】[https://edition.cnn.com/world/live-news/coronavirus-pandemic-vaccine-updates-03-26-21/h\_d2fe59849d042d0c63b7a9c4d4021a0d](https://edition.cnn.com/world/live-news/coronavirus-pandemic-vaccine-updates-03-26-21/h_d2fe59849d042d0c63b7a9c4d4021a0d)
-
-【4】[https://gnews.org/zh-hans/1032487/](https://gnews.org/zh-hans/1032487/)
-
-【5】https://gnews.org/zh-hant/1038363/
-
-【6】https://www.foxnews.com/politics/lindsey-graham-fauci-border-super-spreader
-
-【7】[https://twitter.com/RepMTG/status/1377647623339905035](https://twitter.com/RepMTG/status/1377647623339905035)
-
-【8】https://www.independent.co.uk/news/world/americas/us-politics/peter-navarro-fox-news-fauci-covid-b1824852.html
+https://www.dailymail.co.uk/news/article-9433257/Inside-HQ-Chinese-cyber-ransom-gang.html
+https://www.infosecurity-magazine.com/news/chinese-apt-group-linked-to/
+https://www.reuters.com/article/us-china-ransomware-idUSKCN0WG2L5
 
 +2

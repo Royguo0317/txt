@@ -1,46 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 卡尔加里警方扰乱教堂礼拜后被牧师告发
-` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1050223/)
+## 【军事快讯】美国军舰出现在长江口东海海域
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1050230/)
 
-**阿黎**
-
-
-
-> This is how you handle police who enter a church without a warrant. They’re lucky they only got a tongue-lashing: s. 176 of the Criminal Code makes it a crime to disturb a church service. Those [@CalgaryPolice](https://twitter.com/CalgaryPolice?ref_src=twsrc%5Etfw) thugs were breaking the law (and knew it). [pic.twitter.com/0XhAuwv0yg](https://t.co/0XhAuwv0yg)
-> — Ezra Levant 🍁 (@ezralevant) [April 4, 2021](https://twitter.com/ezralevant/status/1378506465158303747?ref_src=twsrc%5Etfw)
+作者：纽约香草山农场 人世间
 
 
 
-据Rebel News 4月3日报道，加拿大阿尔伯塔省卡尔加里阿特-帕罗斯基（Artur Pawlowski）牧师向在耶稣受难日在没有搜查令的情况下闯入教堂礼拜的警方和一名卫生检查员进行质疑 。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-在世界上居心叵测的人试图利用疫情掀起一场限制和消灭基督教运动的时候，加拿大在今年复活节的前一天再次大面积封城，使基督徒无法在除圣诞节外最重要的基督盛典日——复活节去教堂聚集礼拜。
 
-帕罗斯基牧师在复活节照常进行礼拜，警察和卫生官闯了进来，没有搜查令。帕罗斯基牧师愤怒地向闯入教堂的警察喊道：“出去！立即从这里出去！”警察尽管迟疑，但还是慢慢腾腾地走出了教堂，他们是心虚的。
 
-帕罗斯基牧师在波兰长大，当时波兰正处于苏联共产集权统治之下，他对暴虐的政府深恶痛绝，并毫不忌讳地指出卡尔加里警方的行为与当年波兰的执法者有相似之处。
+根据中共官方智库“南海战略态势感知计划”（SCSPI）平台和美国太平洋舰队在社交媒体上发布的消息，美国军舰近日在东海、南海海域活动频繁。
 
-帕罗斯基牧师说，”令人难以置信。我们生活在一个被政府接管的地方，盖世太保崇拜的独裁者的暴徒、怂恿者、褐衫军在复活节庆祝活动期间，带着枪支、电击棍和手铐来教堂恐吓？”
+![]()![](https://media.discordapp.net/attachments/798081578805755925/828443163404009502/44.jpg)
 
-“嗯，我想就是这样，他们想像埃及人那样奴役我们所有人。他们想成为今天的法老。人们啊，如果你们不……醒醒吧，站起来，如果加拿大人不起来，我不知道明天会发生什么。看看德国发生了什么。德国已经被法西斯主义占领了。想当希特勒的人已经在统治了。”
+该平台4月3日发布消息称，据AIS（船舶自动识别系统）信号显示，4月3日零时左右，美国海军的“马斯廷”号导弹驱逐舰（DDG-89）出现在东海长江口附近海域，随后向南驶去。4月4日，该平台又发布消息指，上午8时美军“罗斯福”号航空母舰打击群（The Theodore Roosevelt Carrier Strike Group），包括“拉塞尔”号驱逐舰（USS Russell）、“邦克山”号巡洋舰（USS Bunker Hill）等，经由马六甲海峡驶入南海，并称这是“罗斯福”号今年第3次进入南海活动。
 
-“你甚至不能离开一个城市到另一个城市去，这是个完全的封锁。”牧师补充道，”如果你不像狗或猫一样接种疫苗，就不能买卖，不能上学，也不能工作。这是他你想要的未来吗？这是你想要你的孩子或你的孙子所拥有的（未来）吗？真的吗？这就是加拿大的未来吗？难以置信。”
+![]()![](https://media.discordapp.net/attachments/798081578805755925/828443166469521408/45.jpg)
 
-“朋友们，你们要加入战斗。我们有集会。我们每周都在聚集，我们需要更多人。我们需要站出来反对他们，需要对他们提起诉讼。趁着我们还有机会，现在就疯狂吧。因为如果我们现在不做，就没有明天了。他说：”我们的权利被如此迅速地剥夺，这令人难以置信。”
+另外，美国太平洋舰队3月30日发布消息称，美国第七舰队旗舰“蓝岭”号两栖指挥舰与日本海上自卫队的金刚级宙斯盾驱逐舰“金刚”号在东海海域开展了联合演习。
 
-说得多好啊！帕罗斯基牧师是从原被共产主义统治的国家来的，他深深懂得现在在加拿大正在发生着什么。加拿大正被共产主义者接管，各级政府利用疫情大搞所谓紧急法令，他们试图用行政命令代替法律，试图无需国会通过，实施一切行政命令。简而言之，就是取消投票——取消民主！宪法已经成为政府的羁绊和敌人，政府就是法。They wish。
+![]()![](https://media.discordapp.net/attachments/798081578805755925/828443170764619826/46.jpg)
 
-中共制毒投毒，造成全世界大瘟疫流行，为共产集权者集权和消灭民主提供了绝佳的机会。他们利用疫情限制人们的自由，关闭小企业，消灭中产阶级，让人们变穷并生活在恐惧中，让人们意志消沉……于是，人们已经准备好做顺民，做奴隶。
+由此可见，美国海军近期在中共国周边活动频繁，中美紧张局势仍在持续。
 
-笔者曾经向加拿大本地人数落加拿大政府的种种不是，包括对中共国的软弱态度和妥协政策，那位加拿大人当时很不以为然，他说，“你对加拿大不满意，你为什么来这？”哈哈，他把加拿大国和加拿大政府混为一谈了，怎么和被洗脑的中共国人一样？像这样的加拿大人占大多数。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
-正如爆料革命领军人郭文贵先生所说，泰坦尼克号已经在撞向冰山，可船上的人们由于恐惧，不愿意相信。我们爆料革命人在这个历史时刻，肩负着拯救世界的使命，让我们努力传播中共病毒、香港以及中共邪恶真相，唤醒民众，尽早消灭中共这个全球最大黑帮。
+审核：灵性探索
 
-[原文链接](https://www.rebelnews.com/police_interrupt_calgary_church_service)
+编辑/校对/发稿：Irene木木
 
-* * *
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
-*校对、发稿 文锦*
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 0
