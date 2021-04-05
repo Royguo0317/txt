@@ -1,47 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】FDA前任负责人表示美国可能不会发生第四波新冠疫情
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1050494/)
+## 【音频】迟浩田报告一: 战争正在向我们走来
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1050572/)
 
-作者：纽约香草山翻译部 Naughty（文行）
+报告人：迟浩田
 
-美国食品药品管理局前专员斯科特·戈特利布（Scott Gottlieb）博士周日表示，美国不太可能面对“真正的”第四波新冠疫情，但应等待几周时间才能放松缓解措施。
+录音：西瓜王
 
-![]()![](https://gnews.org/wp-content/uploads/2021/03/11111.png)
+编辑：Summer
 
-戈特利布（Gottlieb）在接受哥伦比亚广播公司（CBS News）《面对国家》栏目的采访时承认，在许多州年轻人的活动有可能导致新的冠状病毒爆发，但接种疫苗应可防止该病毒再次爆发。
+【编者按】迟浩田，曾任中共国国务委员兼国防部，1995年至2002年任中共军事委员会副主席。在指导军队在北京执行戒严令以镇压天安门广场抗议活动中，迟起到了重要作用。 据估计，这份报告是在第二次报告之前不久发表的：“战争距离我们不远，它是中国世纪的产婆”。这两份报告的言论可能会令你震惊，但是却讲述了中共领导人多年以来的心态和策略。 中共永远不会专注于“和平与发展”，因为在它眼中，战争和争霸才是永恒的主题。对中共来说，他们从来不关注人民的命运，因为他们只关注自己的统治。他们认为，在外面打赢了人民就会成为顺民。
+迟浩田报告一全文音频
+【Source】
 
-在美国27个州和哥伦比亚特区，新冠确诊病例呈上升趋势，随着学校重新开放，也可能会有更多的疫情爆发。但是，已经有超过1亿美国人约占所有成年人的40％已经接受了至少一剂疫苗，而且这种情况正在加速，周六还会有超过400万剂疫苗接种。
+Chinese Original: **[迟浩田: 战争正在向我们走来](https://www.centralnation.com/usstudy/wariscoming.html)**
 
-根据哥伦比亚广播公司新闻台的报道，戈特利布说：“根据感染者的当前状况，感染趋势正在改变。”
+英文版第一部分: **[CCP Former General Chi Haotian: The War is Coming to Us (1/2)](https://gnews.org/1020161/)**
 
-他说，“大约有2亿美国人已经拥有一定程度的免疫力。我认为人群已经拥有足够的免疫力，因此您不会看到真正的第四波感染。”
+英文版第二部分: [**CCP Former General Chi Haotian: The War is Coming to Us (2/2)**](https://gnews.org/1020305)
 
-戈特利布对哥伦比亚广播公司新闻说：“我认为我们需要在学校里采取严格的缓解措施”，他补充说，保持戴口罩和保持社交距离至关重要，以避免大批学生混在一起造成传染。“如果您在学校采取这些措施，我认为学校可以变得更加安全，我认为在学校的好处胜于风险。”
+【Disclaimer】
 
-戈特利布（Gottlieb）在周日晚些时候的推特中表示，公共卫生官员应在缓解措施与承认民众对“恢复正常状态”的日益增长的渴望之间取得平衡。
+All views expressed in the report belong to the presenter of the report and do not represent any organization, committee or other individuals.
 
-最近几个星期，许多州都取消了戴口罩的要求，室内餐厅、电影院和体育赛事等场所也再次向少数人群开放。
+**欢迎战友加入旧金山金喜准农场**
 
-他在推特上说：“尽管我们需要保持谨慎，但今年春天情况应该会明显改善。” “我们过早地取消了戴口罩等缓解措施。虽然我们已经接近疫情拐点，但还没有到那里。我们还需要2～3周的时间……，更好的日子即将到来。”
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
 
-我们先看看最近的新闻：法国刚刚宣布把限制措施执行范围扩大到全国；美国CDC刚刚收回了“接种疫苗不会携带新冠病毒不会被传染”的说法；阿根廷总理接种疫苗后新冠测试呈阳性……
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
 
-这些消息很难让人有“更好的日子即将到来”的感觉，不知这位戈特利布博士的乐观判断从何而来。爆料革命传播疫情真相已经一年有余，现在连西方的左翼媒体都已经承认病毒是来自中共实验室的生化武器，那些宣扬让足够多的人注射疫苗病毒就不会再次爆发的人一定目的不纯，他们要么是为了平复舆论而麻痹大众，要么就是掩耳盗铃为利益集团倾销库存。
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
 
-在这场关乎人类存亡的大危机面前，即时了解真相才是自保的唯一方法。关注爆料革命传播真相的平台gnews.org和gtv.org，让你第一时间了解病毒真相，把握世事动态，甚至抓住机遇，改变人生！
-
-校对/发稿：飞虹
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
 
 0
