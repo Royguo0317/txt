@@ -1,35 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国疾控中心收回称接种疫苗的人不会携带中共病毒的说法
-` 美国洛杉矶天使农场（筹备） - LA Himalaya Angels` [轉載自GNews](https://gnews.org/zh-hans/1050176/)
+## 【军事快讯】美国军舰出现在长江口东海海域
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1050230/)
 
-翻译：洛杉矶天使农场 – 烟波浩淼
-校对：洛杉矶天使农场 – 雨山溪桥客
-审核：洛杉矶天使农场 –黎明的光芒
+作者：纽约香草山农场 人世间
 
-美国疾病控制和预防中心（CDC）反驳了该中心主任的说法，即[接种疫苗的人](https://nypost.com/2021/04/01/us-may-not-even-need-astrazeneca-covid-19-vaccine-fauci-says/)不会携带冠状病毒。
 
-疾控中心主任罗谢尔·瓦伦斯基本周早些时候说，“接种疫苗的人不会携带病毒，不会生病。”
 
-但健康署星期四澄清了这一声明，称“证据尚不清楚”，瓦伦斯基的说法是“宽泛”的。
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
 
-疾病预防控制中心的一位发言人告诉[《纽约时报》](https://www.nytimes.com/2021/04/01/health/coronavirus-vaccine-walensky.html) ：“一些完整接种疫苗的人可能会感染中共病毒。”。“证据不清楚他们是否能将病毒传播给他人。我们正在继续评估证据。”
 
-纽约纪念斯隆凯特林癌症中心健康政策和结果中心主任彼得·巴赫（Peter Bach）博士说，对防弹免疫的混淆可能导致美国人在打了疫苗后拒绝戴口罩。
 
-巴赫对该报说：“这为怀疑论者打开了大门，他们认为政府在粉饰科学。”
+根据中共官方智库“南海战略态势感知计划”（SCSPI）平台和美国太平洋舰队在社交媒体上发布的消息，美国军舰近日在东海、南海海域活动频繁。
 
-周一，瓦伦斯基告诉MSNBC的 [瑞秋·马道](https://www.msnbc.com/transcripts/transcript-rachel-maddow-show-3-29-21-n1262442)（Rachel Maddow）：“我们今天从疾病预防控制中心得到的数据表明，接种疫苗的人不会携带病毒，不会生病。”
+![]()![](https://media.discordapp.net/attachments/798081578805755925/828443163404009502/44.jpg)
 
-她补充说：“这不仅在临床试验中，在现实世界的数据中也是如此。”
+该平台4月3日发布消息称，据AIS（船舶自动识别系统）信号显示，4月3日零时左右，美国海军的“马斯廷”号导弹驱逐舰（DDG-89）出现在东海长江口附近海域，随后向南驶去。4月4日，该平台又发布消息指，上午8时美军“罗斯福”号航空母舰打击群（The Theodore Roosevelt Carrier Strike Group），包括“拉塞尔”号驱逐舰（USS Russell）、“邦克山”号巡洋舰（USS Bunker Hill）等，经由马六甲海峡驶入南海，并称这是“罗斯福”号今年第3次进入南海活动。
 
-沃伦斯基的评论没有得到疫苗可以完全阻止病菌传播的科学研究的支持。迄今为止还没有任何疫苗被证明对所有人都是100%有效的。
+![]()![](https://media.discordapp.net/attachments/798081578805755925/828443166469521408/45.jpg)
 
-本周早些时候，美国疾病预防控制中心（CDC）公布了一项针对4000人的[研究](https://nypost.com/2021/03/29/cdc-study-reveals-effectiveness-of-single-pfizer-moderna-dose/)，显示辉瑞和摩德纳的疫苗在第二次注射后可预防高达90%的冠状病毒感染。
+另外，美国太平洋舰队3月30日发布消息称，美国第七舰队旗舰“蓝岭”号两栖指挥舰与日本海上自卫队的金刚级宙斯盾驱逐舰“金刚”号在东海海域开展了联合演习。
 
-原文作者：娜塔莉·奥尼尔（Natalie O’NeillApril）
-发布时间：2021年4月2日11:37更新 
-原文链接：[https://nypost.com/2021/04/02/cdc-walks-back-claim-that-vaccinated-people-cant-carry-covid/](https://nypost.com/2021/04/02/cdc-walks-back-claim-that-vaccinated-people-cant-carry-covid/)
+![]()![](https://media.discordapp.net/attachments/798081578805755925/828443170764619826/46.jpg)
+
+由此可见，美国海军近期在中共国周边活动频繁，中美紧张局势仍在持续。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+审核：灵性探索
+
+编辑/校对/发稿：Irene木木
+
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
+
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
+
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+
+
+
+
 
 0
