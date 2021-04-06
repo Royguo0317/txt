@@ -1,59 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/03/31-班农专访 （4）：经济即将崩溃，中共备战台湾
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1051980/)
+## 中共对美发动“以钱灭美”的货币战争&nbsp; 是其“灭白计划”的一部分
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1052112/)
 
-视频字幕：雨中漫步 | 听写/翻译：Wade| 校对：BZ |简评/文字整理/编辑：胖丁|Page：小雨
+简述：郭先生在2021年4月4日深夜发布的盖特视频中，预告了4月5日直播将要讲的两个重要内容：中共怕人民过清明节暴露其病毒死亡真正人数，中共已经对美发动了“以钱灭美”的货币战争，也是其“灭白计划”的一部分。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210404-getter3.srt.txt)
+**中共对美发动“以钱灭美”的货币战争  是其“灭白计划”的一部分**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/8qptuq4CxvUNr/images/3f8480fa-ff42-48cc-97f6-c122c5e9edfb.jpg?asset_id=2106f7ce-8e6d-4ec7-8917-a288ad2c5af0&amp;img_etag=%229f5b634533bbd6ce1daf937e5034c507%22&amp;size=2560)](https://spark.adobe.com/page/8qptuq4CxvUNr/images/3f8480fa-ff42-48cc-97f6-c122c5e9edfb.jpg?asset_id=2106f7ce-8e6d-4ec7-8917-a288ad2c5af0&amp;img_etag=%229f5b634533bbd6ce1daf937e5034c507%22&amp;size=1024)
+**CCP Launches a Currency War Against America as Part of Its “Extinction of the White People Plan”**
 
-**简评：**
+我那个手机很多很多战友发来在国内去清明节，过清明节的感受，以及武汉很多战友说，武汉所有的墓地都是便衣警察，有的人想到十字路口烧纸被抓，火葬场旁边到处是警车。这到底为啥呢？你们就死了几百个人，你说你弄这干什么？然后现在他们真正的感受到了，冠状病毒死的人那可不是一个“0”，两个“0”的事儿了，更夸张的事情，战友们发现了很多的事情，我在这儿不说了吧，所以明天我的直播说说，很多战友让我要直播给大家聊聊，那我就聊聊吧。
 
-美国驻帕劳大使与帕劳总统一同对台湾进行了为期5天的访问，这是过去42年来的首次。中共党魁习近平为了转移国内经济面临崩溃的压力，加紧备战台湾。台湾和南中国海的安全迫在眉睫。
+I received many messages from fellow fighters in mainland China, telling me their feelings about the Tomb-Sweeping Day. Many fellow fighters in Wuhan said there were undercover police everywhere in cemeteries. Some people wanted to burn some joss paper at street crosses, but were arrested. There were police cars everywhere close to crematoriums. Why? Isn’t it just a few hundred people died? Why do you need to do all these? Now they truly feel that the number of deaths from the coronavirus should have one or two more zeros at least. What’s more absurd is that our fellow fighters have found out many more things, which I can’t say now. I will talk about it on my broadcast tomorrow. Many fellow fighters asked me to broadcast and chat a little bit.
 
-川普之前的美国政府一直纵容中共的畸形壮大，现任拜登政府的软弱更加助长了中共的狂妄和嚣张。拜登政府需要强硬起来，直截了当地宣布中共对南中国海没有所有权。美国需要保护台湾的安全，保证南中国海的自由通航。否则中共会得寸进尺，不断扩张，最终会导致发生热战。美国需要行动！！！
+另外一个明天还聊一个重点，共产党啊..咱是以钱灭共，以毒灭共，共产党正在以钱灭美，在这之前我不能说，我要说了以后吧，他就不干了，他就不干了，美国人就不信，说咱造谣，胡说八道，是吧？现在美国人已经知道了，上一周美国人感受到了，啊..Miles,你说的有道理，他动了手了我再说，今天不搞重磅的重磅了，是吧，共产党以钱灭美咋灭的？他是灭白计划其中，他必须他要以钱灭美，以钱灭美就那几招儿，你们想听吗？咱明天上午9:30见。
 
-- **[GTV视频链接](https://gtv.org/video/id=6065ecce49339063d061e29d)**
+Another important thing that we will talk about tomorrow is that the CCP is planning to take down the U.S. with money [a currency war], as opposed to our taking down the CCP with financial activities and the truth about the virus. I didn’t say it earlier because if I exposed it prematurely, they might postpone or quit their plan, and then Americans would not believe me or even blame me for lying to them, right? Now Americans have been aware of it. It was last week. They said, “Miles, what you said makes sense, but we will wait for them to move first, then we will react.” So, there won’t be any bombshells for today, alright? How can the CCP take down the U.S. with a currency war? It’s part of their Extinction of the White People Plan. They will for sure implement their plan of taking down the U.S. with a currency war. They have only a few tricks. Do you want to hear? See you tomorrow at 9:30 AM.
 
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/606a6c2fdbc8001854a58991](https://gtv.org/getter/606a6c2fdbc8001854a58991) (00:40-2:15)
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1050330/](https://gnews.org/zh-hans/1050330/)
 
+* * *
 
-
-**视频字幕：**
-
-**Sky Sun：**美国驻帕劳大使与帕劳总统一同对台湾进行了为期5天的访问，这是过去42年里的首次。这样的行动对美国中国台湾的三边关系有什么影响？
-
-**班农：**这是个很好的问题。我认为这些細小的动作是好的。但我们必须更加果敢。我认为我们必須更加果敢，在台湾导弹防卫方面。我认为习近平目前在党内加紧备战，因为严峻的国内经济形势。
-
-尽管中共公布的经济数据不差，但真实的数据显出了中共内部经济的严重滑坡。为了转移人们的视线，我认为习近平在台湾和南海上会更加激进。
-
-回看几周前的阿拉斯加会谈。布林肯在所谓人权问题上唧唧歪歪两分钟。他遭到杨洁篪长达20分钟的炮轰，彻底的羞辱。中共是在试探西方的決心。我觉得这种双边行动是不错的，但我们需要的远远不止于此。
-
-我们需要拜登政府直截了当声明中共对南中国海沒有所有权。川普之前的美国政府对中共的纵容是荒唐的。拜登政府需要对台湾人民的安保做出直接声明。如果不这么做，就无异于鼓励中共得寸进尺。
-
-我一直强调，只有对抗中共的超限战，才能避免热战。如果不这么做，那么热战注定无法避免。
-
-我年轻的時候是海军军官，曾在南中国海巡航，保护那里所有人包括中国人的自由通航。我的战舰在1970年代多次造访台湾。
-
-如果我们今天不对抗中共这个跨国犯罪集团，台湾的自由和安定必将消亡。我认为，在拜登政府的带领下，西方有机会通过果決的行动扭转这样的趋势。
-
-**[完整访谈视频](https://youtube.com/embed/EgrTmyAAueM?enablejsapi=1)**
-
-**主播：**Dr. Ming, Mike, Sky Sun，Dr. TCC, Castle 和Daniel
-
-- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
-- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)链接
-
-
-***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三直播***
-
-编辑：【英国伦敦喜庄园编辑部】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/8qptuq4CxvUNr/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/8qptuq4CxvUNr/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
