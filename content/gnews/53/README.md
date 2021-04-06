@@ -1,46 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共产党认为自己是神&nbsp; 所以要灭掉所有的神
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1052296/)
+## [文贵先生盖特]摘录: 2021.3.29中共逼迫威胁演艺界支持新疆棉花(1)
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1042738/)
 
-简述：郭先生在2021年4月3日的GTV直播中透彻地分析了共产党的强盗逻辑：只有共产党是好的、是神，资本主义、美国、香港、台湾，包括中共14亿老百姓都是坏的。 他说：“这个逻辑你看明白了，你再看共产党的时候你什么事都看得很清楚了。”
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210403_live_P1.srt.txt)
-**共产党认为自己是神****  ****所以要灭掉所有的神**
+编辑：荷兰豆炒腊肉 校对：童媚木子
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/image003-4.jpg)
+一夜之间惊天变
 
-**CCP Thinks It Is the God, So It Can Kill All Gods**
+三界疯狂求Ｇ币
 
-按照共产党的说法，就所有这美帝国主义的东西都是骗子都垃圾，都是资本主义的嘛，是不是？只有共产党的是好的，对吧？ 就共产党你看它干啥事？共产党说我是无神主义，对吧，我是无神主义，所以我把所有的神要杀掉。佛教、穆斯林、新疆人、基督教最近抓得一塌糊涂，天主教、道教到处扫荡。为什么？因为我是神，我要当神我就要灭掉所有的神。大家我说的是事实吧？几年前七哥就说了吧？
+昨天的一夜之间，好像世界发生了巨大的变化。我真是快被他们给搞崩溃了，突然间紧急的电话一个又一个。三界，跨三界。第一界：演艺界，也称艺术界，就是中国所谓的娱乐界，能把演艺界说成娱乐界，太夸张了。第二界：金融界。第三界：中国所谓的官方。这个官方找我能干啥呀？这个官方几乎昨天找我，突然间所谓的可能是我们爆料革命的战友，有些还在观察，还有一些骑墙派，大量的要买G币，我真是一下子吓傻了。这么多人要买G币，从昨天到今天一下子颠覆似的，从过去要买一说就一亿、几千万，到现在说文贵那几百万也行，几十万个也行。突然间我觉得Ｇ币好像是天下女王的皇冠一样，还得是那个带粉钻的皇冠，号称粉色之影的皇冠，就是万人去求，这是什么情况？
 
-According to the CCP, all things of American imperialism are crooks and rubbish for they are all capitalist, right? Only the Communist Party is good, right? Just look at what the CCP is doing. The CCP says I am atheist, so I’m going to kill all the gods. Recently Buddhists, Muslims, Xinjiang people, and Christians have been arrested massively. Catholics and Taoists have been wiped out in many places. Why? Because I am God, and to be a god, I must destroy all other gods. Everyone, do you admit that what I’m telling you is the truth? Has Brother Miles already told you this a few years ago?
+中共逼迫威胁演艺界支持新疆棉花
 
-第二，资本主义是邪恶的，剥削阶级，是吧？看那私人企业家，是不是啊，你们解决了百分之七十、八十的中国就业问题。什么马云啊，什么许家印啊，万达啊，是吧，叶简明啊，吴小晖啊，肖建华啊，是吧，还有什么刚刚抓捕的搞了无数个孩子的，包括那个什么那个民生啊，董文标是吧，还有张宏伟啊，是吧这些人，抓一堆的张宏伟的家人是吧，就这些人，你们私人企业家，百分之八十就业。是啊，你就玩的就业了，国家还是以国营企业为主。始终国有企业牢牢地抓住这个中国的钱把子、钱袋子，要以国有企业为主。
+另外我也感受到，现在国内很多演艺界的找我。什么这导演那导演，这制片那制片，这歌神那歌神，这天王那天王的，突然间就挤出来了说，七哥，我们都支持你，但我们都有难言之隐，在你节目当中就别骂我们，别提我们。我们支持新疆棉花，你看我照的照片儿，我没办法，我老板是你哥们。我们这些人不是老板给我打电话，你也别说我们老板，全是中共挨个给你说的，你只有俩选择，一个拿着这跟罪犯似的拍出来：我支持新疆棉花，发照片儿。第二，就是我让你举着牌子：我现在支持新疆，然后呢就让你进监狱，所有东西全部下架。其中他们给我讲了很多国内的某某歌神、某某导演，全是这命运。
 
-Second, capitalism is evil because they are the exploiting class, right? Look at the private entrepreneurs who created 70 to 80% of China’s jobs. Those like Jack Ma, Xu Jiayin, the Wanda Group, Ye Jianming, Wu Xiaohui, Xiao Jianhua, also the guy who was just arrested for raping countless young kids, the Minsheng Bank, Dong Wenbiao, and Zhang Hongwei whose family members were mostly arrested, these private entrepreneurs solved 80% of the employment problem. Regardless, the country is still dominated by state-owned enterprises. State-owned enterprises firmly control the moneybags of China and are deemed as the mainstream.
+所以我给战友们想说的事情，大家不要看到这些所谓的娱乐界还有歌星这么做，你就骂他，真的没必要啊。就是昨天，很多具体的事儿我都知道了，因为我要保持个人沟通的隐私，这些人真的是被枪顶着的，包括很多人你最讨厌的明星和唱歌的人，都是被枪顶着的，你必须这么做，你不做你所有东西全都失去。有些人是有家人、有老婆、有孩子、有爹有娘、有老公的，是吧？他没有选择呀。所以拜托大家了，人家是混碗饭吃，咱就别拿着最高标准来要求人家了。说实在话，我们很多人要在墙内呀，你是个唱歌的或者说你是当导演的，你也没选择。如果说让我去决定，我说因为这些人在墙内，如果因为支不支持新疆就要失去自由的话，你没选择，你必须这么做，因为你为家人要承担责任。所以昨天很多人一夜之间就来了，很吓人。每个背后的故事都是共产党做的恶。
 
-那么，啥意思啊？国有企业是谁的？是党的，党产，党始终要说了算。爹亲娘亲都不如党亲，一切都是党的，一切听党的。怎么办？我要有钱，我要当资本家，我把你所有资本家全抓了。共产党这个流氓逻辑：我要当神，我就把神全灭了，我当唯一的神；全中国的所有的企业家，我要当老大，全抓了。抓了吧？一个不给你剩。你看着马化腾这两天还涨呢，马化腾一定是这结局，死不了活不了。它不会让他死的，马云可能弄死他，马化腾不一定弄死他。一定这结局啊，就是让所有天下的钱都是它的，然后杀掉所有有钱人。
+金融界恐慌出逃
 
-So, what does that mean? Who owns the state-owned enterprises? The party. They are the party’s properties and the party always has the final say because “parents are not as intimate as the party”, “everything belongs to the party”, and “you should listen to the party on everything”. How? I, the CCP want to be rich, I want to be a capitalist, so I need to arrest all the capitalists. The gangster logic of the CCP is: I want to be a god, so I ought to destroy all gods, so that I can be the only god; I want to be the boss of all the entrepreneurs in China, so I can arrest all of them. No one can get away. You see Ma Huateng’s stock is still rising the last couple of days, but Ma Huateng will definitely end up like this – can’t die and can’t live either. It won’t let him die, Jack Ma could be killed, but Ma Huateng may not be killed. But the ending will definitely be like this, that is, all the money in the world will belong to the CCP, and then it will kill all the rich people.
+中共在苏伊士运河、霍尔木兹海峡的惊天阴谋
 
-我说你看到没有，这就是共产党 ，它让全世界人民把全世界都说成是流氓、痞子文化，都是假的，动不动就骂这个国家什么痞子，骂美国骂什么骂全世界包括我们爆料革命。它是世界最大的黑帮。它天天喊着我这个狮子醒来了，这个狮子醒来跟你共产党啥球关系啊？14亿人民也不是在70年前才出生的，中国人几千年的文明文化了，跟你共产党啥关系啊？
+三界之一的金融界的基金，真的是疯了。民生的几个基金，包括那几个大的保险公司，包括泰康人寿，包括国内的民生下面那几个基金、包括招商银行，还有什么工商银行、中国银行，那就一下子，突然二十几个都找我。然后就是美国这边、中东那边、日本那边都找我。他们说：七哥，我能不能把这个基金打折卖给你？你只需承诺就行，你不要付钱，都不要现金，你把这个债务给我接走。比如说一百亿的管理资产，我打包给你了，你郭文贵的基金接就行了。特别是提出要求，你中东或者是欧洲哪个基金只要今天说你接了，打五折，一百亿就算五十亿，有一个七百多亿的算三百亿，比打五折还多。我说这什么情况，没那么早经济崩盘吧？他说不是，各方得到了两个最核心的信息。
 
-Have you seen that? This is the CCP. It criticizes all the people in the whole world to be hooligans, rogues and fake. They always scold a country as a ruffian or scold the United States and scold the whole world, including us, the Whistleblower Movement. But itself is the biggest gang in the world. It says the lion [referred to China] has woken up everyday, but does it have anything to do with you, the CCP? The 1.4 billion people were not only born since 70 years ago. The Chinese have a civilization and culture existing for thousands of years. What does it have to do with you, the Communist Party?
+一个苏伊士运河那个大货轮要么就卡在那儿，石油爆涨，石油就像穿天猴一样。你们看到王毅去干啥去了吗？看到王毅去哪了吗？据说王毅到了中东某国，拿着习大神的一封信，参加…,哎呀这个别说漏了，这封信是所谓习总书记的亲笔信。苏伊士运河这个船百分之百是共产党干的，而且现在所有的王毅跟这领导写的信背后的故事，未来会惊天，但有一天一定会出来的。然后现在霍尔木兹海峡，然后人在伊朗，王毅在中东这些国家的同一个时间24小时内，秘密地到伊朗，他们将在霍尔木兹海峡有动作。所有的这些，都是对西方的经济、石油和冠状病毒以后的经济重创，甚至是致命的。
 
-它要挑战全世界，全世界没有好人就它一个好人，然后这些好人当中，它管…因为它是好人，它管着14亿全是坏人。它要当好人，谁也不能当好人，这又是共产党的流氓逻辑。香港，没好东西，抓！杀！台湾收回！中国人不打中国人，只杀中国人，只杀你中国人，干掉台湾。我说这就是流氓的共产党，兄弟姐妹们。这个逻辑你看明白了，你再看共产党的时候你什么事都看得很清楚了。
+拜登政府国务院多人欲放弃病毒真相白皮书出卖美国
 
-It wants to challenge the whole world like there is no other good person in the world but itself. So, it should manage all the people, manage all 1.4 billion bad people. Because it is the only good guy, so nobody else can be good. This is, again, the CCP’s hooligan logic. In Hong Kong, nothing is good, so I can arrest them and kill them! Taiwan, we must take it back! Chinese don’t fight against Chinese? So they only KILL Chinese. They only kill Chinese, and also want to get rid of Taiwan. This is the gangster CCP, brothers and sisters. If you understand this logic, you will find everything about the CCP becomes crystal clear.
+造假越激烈，离真相越近，共产党灭得越快
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=606868a76e11a756edd63b0e](https://gtv.org/video/id=606868a76e11a756edd63b0e) (47:19-50:01, 53:15-54:29)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1049714/](https://gnews.org/zh-hans/1049714/)
+现在美国新的拜登政府下面的国务院，很多人已经从不同的管道，表示要放弃对冠状病毒的白皮书，就是不把共产党当成冠状病毒的元凶，不是生物武器，也就不加制裁。战友们是不是觉得很失望？我告诉大家，这比确定共产党是病毒的元凶，武器的制造者还好。记住七哥今天说的话，很快会证明给你看，他们最好说是谁呀？不是共产党造的，说是美国人造的，那才更好。
 
-* * *
+因为这个世界上我相信一条真理，你造多大恶，你做多大孽，你就会受到多大的惩罚，你就会受到什么样的打击。美国三亿多人都是傻子吗？你瞪眼胡说八道，他们都是傻子吗？你出卖美国，美国人都是傻子吗？美国让你出卖吗？这个消息对金融市场也是一个重灾。中东的石油会一个灾难一个灾难把石油给炒上去。冠状病毒的认证，一个又一个的反复，会把整个金融经济彻底打垮。所有的人都知道，中共也不会停手，对世界的政治经济稳定会一个一个打击，无人确定。最根本的问题，冠状病毒的经济现象已经出来了，全世界生产力下降，怎么有生产剩余价值？全世界所有的商业行业全部是肠梗阻，你怎么可能有盈利？全世界人都在买虚拟货币，为什么？因为没有一个货币是值得相信的，包括美元。
 
-字幕：【V%】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+你们一定要看到昨天这个变化，最好是他们认定冠状病毒，爱说谁说谁，这个事是越造假越激烈，就离真相越近，离真相越近，共产党就灭得越快。
 
-+1
+G系列走在时代最前端
+
+千万不要被淘汰机会只有一次
+
+世界上现在只剩下我们Ｇ系列了。过去这两天，战友之间抢Ｇ币的人也抢疯了，一个一个抢。但是我告诉大家的是，任何人不要去搞代持G币和G系列，还有GTV投资。昨天有一个基金要投资GTV的，竟然说Ｍiles，我给你现在GTV股五块钱一股，和你换股换资产，不中！五块钱一股，是一个日本的一家基金。我说对不起，我们现在没有任何需要和你换资产，这就是时代的变化。我们走在了时代的最前端，每分每秒这个世界都在巨大的变化中，千万自己不要被淘汰，你就这一次机会！
+
+0
