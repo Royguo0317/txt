@@ -1,33 +1,51 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法国政客涉嫌在封禁期间举行豪华地下聚餐
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1059219/)
+## 加拿大议会针对中共间谍从温尼伯实验室窃取病毒问询公共卫生署署长
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1058953/)
 
-**翻译整理/简评：**旦旦
+**翻译&字幕: 舒凡**
 
-复活节期间，法国富商皮埃尔-让·纱朗颂 (Pierre-Jean Chalençon) 涉嫌在他所拥有的薇薇安宫 (Palais Vivienne)，一所位于巴黎的高级古董餐厅俱乐部内宴请法国一些部长级别的政客。据纱朗颂本人透露，此次聚餐菜肴相当豪华，每道菜肴价格分别在160欧到490欧之间。
+**校对&编辑: 莫黎**
 
-该事件先由法国M6台暗中采访，随机瞬间在法国各大媒体发酵，法国内政部长热拉尔德·达尔马宁 (Gérald Damanin) 表示会彻查在巴黎的所有潜在的“地下餐厅”，且巴黎检察官雷米·海兹 (Rémy Heitz) 也在4月4日表示对薇薇安宫的地下聚餐展开刑事调查。
 
-#### **简评: **
 
-**从这则新闻中，我们也许会多少了解到，为什么在人口老龄化且每天感染CCP病毒人数上万的欧洲，政客们还是如此无动于衷，罔顾事实。也许没有蓝金黄，他们和中共那些自认为是人上人的魔鬼也是如出一辙。在法国，民众受CCP病毒的折磨，亲人无法团聚，有人被孤独地困于家中，各小型私人企业因封禁令而面临倒闭之时，这些魔鬼依然逍遥自在。觉得别人的痛苦和死亡与自己毫无关系，因为他们可以私下继续寻欢作乐。其实他们和中南坑的老杂毛一样，吃的是人肉，喝的是人血。**
 
-**这个世界的确需要改变了。相信万神万佛把一切都看在眼里，他们看到了人们的痛苦，看到了新中国联邦的努力，看到了闫博士的才智与勇气。恶终将会有恶报，我们看到病毒之父“福奇”的丑恶嘴脸被曝光与天下；看到美国的左媒也开始报道病毒真相……接下来，以毒灭共会继续推进，直到把中共与整个世界丑恶的政客一起推上审判台。**
 
-**战友们，请继续传播病毒真相，曙光就要到来了！**
+加拿大议会就中共间谍从位于温尼伯的BSL-4实验室向武汉病毒学研究所窃取冠状病毒一事问询了加拿大公共卫生署（PHAC）署长。PHAC署长斯图尔特(Iain Stewart)多次拒绝解释为何加拿大卫生署终止聘用中共间谍邱香果博士及其丈夫程克定（音译）。斯图尔特称，由于隐私问题和皇家骑警仍在进行的 “安全调查”，他不能对此提供细节细节。
 
-**参考新闻链接：**
+在该问询视频会议上，加拿大保守党议员加内特·格努伊斯（Garrett Genuis）质问PHAC署长斯图尔特，之前是否发生过加拿大实验室因安全漏洞或不当的转移病毒而解雇科学家的案例，但斯图尔特表示“不能回答该问题”拒绝做出回答。
 
-1. 🔗[DÎNERS CLANDESTINS: PIERRE-JEAN CHALENÇON NIE EN BLOC ET SE DIT VICTIME D’UN “GUET-APENS”](https://www.bfmtv.com/police-justice/diners-clandestins-pierre-jean-chalencon-nie-en-bloc-et-se-dit-victime-d-un-guet-apens_AN-202104050313.html)
-2. 🔗[DÎNERS CLANDESTINS: GÉRALD DARMANIN DÉCLARE “QU’À SA CONNAISSANCE” AUCUN MINISTRE N’ÉTAIT PRÉSENT](https://www.bfmtv.com/politique/diners-clandestins-gerald-darmanin-assure-qu-a-sa-connaissance-aucun-ministre-n-etait-present_AN-202104060157.html)
+来自魁北克地区的议员斯蒂芬·贝格隆（Stephane Bergeron）警告斯图尔特: 如果继续拒绝提供细节，他可能会被认定为藐视议会。如果该细节过于敏感，不能公开透露，贝格隆建议，可以将其秘密提供给委员会成员。
+
+
+
+**事件回顾: **
+
+加拿大CBC电视台于2019年7月14日报道称，加拿大皇家骑警于7月5日将华裔病毒学家邱香果和她的丈夫程克定带离了加拿大国家微生物实验室(National Microbiology Lab，简称NML)，并撤销了他们的通行许可，原因是他们“违反了相关政策条款”, 而后期所披露的文件显示邱香果从其工作的实验室向武汉病毒研究所走私致命病毒。
+
+据CBC的后续报道称，2019年3月，加拿大国家微生物实验室曾将世界公认“最致命的病原体” 埃博拉病毒（Ebola）以及亨尼巴病毒（Henipah）的样本发往武汉病毒研究所， 而根据披露的电邮文件显示，正是邱香果将那些病毒运往到中国的
+
+CBC报道称，加拿大卫生部媒体关系负责人埃里克·莫里塞特（Eric Morrissette）的邮件证实：「自2021年1月20日起，邱香果以及程克定两位科学家将不再受雇于加拿大公共卫生署。出于保密原因，我们不能透露其他信息，也不能发表评论。」
+
+加拿大温尼伯国家微生物实验室是全球15个P4级别的生物安全实验室之一。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/00567.jpeg)**图片: CTV News Winnipeg**
+
+
+
+
+
+**参考新闻**:
+
+🔗[http://Canadian Parliament Erupt Over Cover Up Of Chinese Spies Stealing Coronavirus From Winnipeg Lab To Wuhan](http://Canadian%20Parliament%20Erupt%20Over%20Cover%20Up%20Of%20Chinese%20Spies%20Stealing%20Coronavirus%20From%20Winnipeg%20Lab%20To%20Wuhan)
+
 
 
 * * *
 
-***审核/校对：**Ting Guo*
+**发布: 法国巴黎七星编辑组**
 
-（免责声明：本文仅代表译者个人观点，跟GNEWS平台无关。）
 
-+1
+
+0
