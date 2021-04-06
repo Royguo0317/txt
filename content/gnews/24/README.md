@@ -1,101 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读美中新冷战局面已无挽回余地，中共借黄金挑战美元霸权，及日德将举行国防会谈
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1058120/)
+## 共产党认为自己是神&nbsp; 所以要灭掉所有的神
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1052296/)
 
-直播视频：
+简述：郭先生在2021年4月3日的GTV直播中透彻地分析了共产党的强盗逻辑：只有共产党是好的、是神，资本主义、美国、香港、台湾，包括中共14亿老百姓都是坏的。 他说：“这个逻辑你看明白了，你再看共产党的时候你什么事都看得很清楚了。”
+[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210403_live_P1.srt.txt)
+**共产党认为自己是神****  ****所以要灭掉所有的神**
 
+**CCP Thinks It Is the God, So It Can Kill All Gods**
 
+按照共产党的说法，就所有这美帝国主义的东西都是骗子都垃圾，都是资本主义的嘛，是不是？只有共产党的是好的，对吧？ 就共产党你看它干啥事？共产党说我是无神主义，对吧，我是无神主义，所以我把所有的神要杀掉。佛教、穆斯林、新疆人、基督教最近抓得一塌糊涂，天主教、道教到处扫荡。为什么？因为我是神，我要当神我就要灭掉所有的神。大家我说的是事实吧？几年前七哥就说了吧？
 
-《路德时评》2021年4月5日晚间节目主要内容：
+According to the CCP, all things of American imperialism are crooks and rubbish for they are all capitalist, right? Only the Communist Party is good, right? Just look at what the CCP is doing. The CCP says I am atheist, so I’m going to kill all the gods. Recently Buddhists, Muslims, Xinjiang people, and Christians have been arrested massively. Catholics and Taoists have been wiped out in many places. Why? Because I am God, and to be a god, I must destroy all other gods. Everyone, do you admit that what I’m telling you is the truth? Has Brother Miles already told you this a few years ago?
 
-一、快讯快评
+第二，资本主义是邪恶的，剥削阶级，是吧？看那私人企业家，是不是啊，你们解决了百分之七十、八十的中国就业问题。什么马云啊，什么许家印啊，万达啊，是吧，叶简明啊，吴小晖啊，肖建华啊，是吧，还有什么刚刚抓捕的搞了无数个孩子的，包括那个什么那个民生啊，董文标是吧，还有张宏伟啊，是吧这些人，抓一堆的张宏伟的家人是吧，就这些人，你们私人企业家，百分之八十就业。是啊，你就玩的就业了，国家还是以国营企业为主。始终国有企业牢牢地抓住这个中国的钱把子、钱袋子，要以国有企业为主。
 
-新闻一
+Second, capitalism is evil because they are the exploiting class, right? Look at the private entrepreneurs who created 70 to 80% of China’s jobs. Those like Jack Ma, Xu Jiayin, the Wanda Group, Ye Jianming, Wu Xiaohui, Xiao Jianhua, also the guy who was just arrested for raping countless young kids, the Minsheng Bank, Dong Wenbiao, and Zhang Hongwei whose family members were mostly arrested, these private entrepreneurs solved 80% of the employment problem. Regardless, the country is still dominated by state-owned enterprises. State-owned enterprises firmly control the moneybags of China and are deemed as the mainstream.
 
-美国智库牛人洛伦·汤普森3月26日在福布斯发表一篇重磅文章，该文分析了台湾对于美国具有重要的战略意义。他建议美国派出一个整建制装甲旅的军力保护台湾，以应对中共国随时可能发起的攻击。
+那么，啥意思啊？国有企业是谁的？是党的，党产，党始终要说了算。爹亲娘亲都不如党亲，一切都是党的，一切听党的。怎么办？我要有钱，我要当资本家，我把你所有资本家全抓了。共产党这个流氓逻辑：我要当神，我就把神全灭了，我当唯一的神；全中国的所有的企业家，我要当老大，全抓了。抓了吧？一个不给你剩。你看着马化腾这两天还涨呢，马化腾一定是这结局，死不了活不了。它不会让他死的，马云可能弄死他，马化腾不一定弄死他。一定这结局啊，就是让所有天下的钱都是它的，然后杀掉所有有钱人。
 
+So, what does that mean? Who owns the state-owned enterprises? The party. They are the party’s properties and the party always has the final say because “parents are not as intimate as the party”, “everything belongs to the party”, and “you should listen to the party on everything”. How? I, the CCP want to be rich, I want to be a capitalist, so I need to arrest all the capitalists. The gangster logic of the CCP is: I want to be a god, so I ought to destroy all gods, so that I can be the only god; I want to be the boss of all the entrepreneurs in China, so I can arrest all of them. No one can get away. You see Ma Huateng’s stock is still rising the last couple of days, but Ma Huateng will definitely end up like this – can’t die and can’t live either. It won’t let him die, Jack Ma could be killed, but Ma Huateng may not be killed. But the ending will definitely be like this, that is, all the money in the world will belong to the CCP, and then it will kill all the rich people.
 
+我说你看到没有，这就是共产党 ，它让全世界人民把全世界都说成是流氓、痞子文化，都是假的，动不动就骂这个国家什么痞子，骂美国骂什么骂全世界包括我们爆料革命。它是世界最大的黑帮。它天天喊着我这个狮子醒来了，这个狮子醒来跟你共产党啥球关系啊？14亿人民也不是在70年前才出生的，中国人几千年的文明文化了，跟你共产党啥关系啊？
 
-> 智庫大牛在福布斯撰文，建議美軍直接在台灣部署一個整建制裝甲旅，為中共設下紅綫，並協助台軍防守戰略要地。這招太狠了啊！如果美軍真使出這一招，共軍那可真危險了。不打，面子上過不去；打，打完結果出來面子上更過不去，很難抉擇啊！🤪
->  [@forbes](https://twitter.com/Forbes?ref_src=twsrc%5Etfw) [https://t.co/uBDp1zxxO7](https://t.co/uBDp1zxxO7)
-> — Dr. Bo 🇺🇸🇹🇼🇭🇰 (@BoDiplo) [April 6, 2021](https://twitter.com/BoDiplo/status/1379234259001610243?ref_src=twsrc%5Etfw)
+Have you seen that? This is the CCP. It criticizes all the people in the whole world to be hooligans, rogues and fake. They always scold a country as a ruffian or scold the United States and scold the whole world, including us, the Whistleblower Movement. But itself is the biggest gang in the world. It says the lion [referred to China] has woken up everyday, but does it have anything to do with you, the CCP? The 1.4 billion people were not only born since 70 years ago. The Chinese have a civilization and culture existing for thousands of years. What does it have to do with you, the Communist Party?
 
+它要挑战全世界，全世界没有好人就它一个好人，然后这些好人当中，它管…因为它是好人，它管着14亿全是坏人。它要当好人，谁也不能当好人，这又是共产党的流氓逻辑。香港，没好东西，抓！杀！台湾收回！中国人不打中国人，只杀中国人，只杀你中国人，干掉台湾。我说这就是流氓的共产党，兄弟姐妹们。这个逻辑你看明白了，你再看共产党的时候你什么事都看得很清楚了。
 
+It wants to challenge the whole world like there is no other good person in the world but itself. So, it should manage all the people, manage all 1.4 billion bad people. Because it is the only good guy, so nobody else can be good. This is, again, the CCP’s hooligan logic. In Hong Kong, nothing is good, so I can arrest them and kill them! Taiwan, we must take it back! Chinese don’t fight against Chinese? So they only KILL Chinese. They only kill Chinese, and also want to get rid of Taiwan. This is the gangster CCP, brothers and sisters. If you understand this logic, you will find everything about the CCP becomes crystal clear.
 
-路德社评论：
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=606868a76e11a756edd63b0e](https://gtv.org/video/id=606868a76e11a756edd63b0e) (47:19-50:01, 53:15-54:29)
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1049714/](https://gnews.org/zh-hans/1049714/)
 
-路德社昨日节目才提及美国陆军开始准备在全球范围内可能与中共发起的军事冲突，今天就有专家建议美国在台湾部署一个整建制装甲旅，以此来应对中共可能对台湾发起的攻击。如果美国在台湾部署一个旅的军队，这意味着美台军事正式进入融合阶段，这也是中共最不愿意发生事。美国已经有多个智库制定好应对中共国的多种方案，现在就看拜登政府选择哪套方案，可见美国智库在灭共上做了充分准备。
+* * *
 
-新闻二
-
-路透社最新报道[1]：俄罗斯政府网站周一公布一份文件显示，俄罗斯总统普京签署一项法律，允许他在2024年当前任期届满后，再担任两届总统。这项立法反映了去年对宪法进行的大规模调整。根据该项立法，如果普京选择继续竞选连任并再次当选，可以执政至2036年。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/普京.png)[俄总统普京](https://p8.itc.cn/images01/20210406/552deff817334a54835b449694737fbb.png)
-路德社评论：
-
-俄罗斯制度建立时是以西方民主自由体制为基础，这和中共体制有着本质性区别。从俄罗斯的历史可以看到，这个国家热衷于两件事情，一件就是扩张领土，另一件就是盛产“大帝”，所以普京连任至2036年一点也不奇怪，但是俄罗斯绝不可能回到前苏联体制。
-
-二、美中新冷战局面已无挽回余地
-
-大纪元3月29日报道[2]：阿拉斯加高层会谈后，美中关系更加紧张；随后美中在香港、疫情、经济领域也多次交锋。川普总统第一任国家安全副顾问撰文说，美中高层会谈之后，双方紧张关系可能已经到了没有挽回的余地了，意味着中美正在进行一场新的冷战。
-
-K.T.麦克法兰（K.T. McFarland）是川普总统第一任国家安全副顾问，帮助制定了一系列给中共带来巨大压力的政策。她在福克斯新闻撰文说，用中共的话讲，中美已经陷入冷战多年。但现在，美国领导人，甚至是民主党左派和拜登政府中一些清醒的社会主义者，都意识到了中共对美国和平与繁荣的威胁。她表示，无论在这些进行当中的或随后的美中谈判中，不太可能在核心的经济、贸易和人权问题上取得任何进展。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/中美回不到从前.jpg)[中美新冷战](https://i.epochtimes.com/assets/uploads/2020/07/GettyImages-51345108-1-600x400.jpg)
-路德社评论：
-
-1、麦克法兰是川普政府时期的第一位国家安全副顾问，他在文中说中美谈判反过来帮了美国一个大忙，中共把新冷战公之于众，但这是中共帮的最后一个忙。这都是习总加速师的功劳，其奉行的战狼外交策略和统治全世界的野心加快了中共的灭亡。这也证明邓时代推崇的韬光养晦策略欺骗了全世界，中共本意就是要消灭美国，统治全世界。
-
-2、所谓的“这是中共帮美国的最后一个忙”显露出美国早已经制定出一套详细的灭共计划，因为作者在任时就已经为川普总统制定出一套给中共巨大压力的政策，定下灭共大方向，之后要推动的只有三件事，分别是下定灭共决心，唤起美国民意，以及联合盟友共同灭共。
-
-3、美国定海神针力量最先下定灭共决心，然后传导到以川普政府为主的行政当局，经过几年的探讨和情报信息分析，最终确定灭共方针，特别是中共向全世界发起中共病毒超限战，然后再通过民主党来唤起美国民意。爆料革命在其中扮演着至关重要的作用，文贵先生向美国提供了许多重要情报，包括中共蓝金黄计划，一带一路计划，3F美国计划等等，这些重要情报最终都被验证是准确的，这才让美国定海神正力量下定灭共决心。现在，美国两党已经就灭共问题达成一致，中共对美国来说再也没有存在的意义了。
-
-4、麦克法兰在文中还回顾了中美外交历史，因为中共国曾经帮助美国灭掉前苏联，作为回报，美国帮助中共国实现现代化。美国一直希望中共国经济发展起来后，中共国可以向民主、自由、法治的社会体制过度，但是中共的一系列战狼外交策略和对美国发起的超限战让美国彻底醒悟。
-
-5、麦克法兰强调仅仅靠中美经济脱钩和产业链迁回美国不足以保证美国未来几年的繁荣。这就是在说美国对中共国绝不可能只是经济脱钩那么简单，如果要保证美国未来几年的繁荣，一定要对中共国采取经济制裁之外的其他手段，例如采取军事行动、外交行动等，只有彻底消灭中共才能保证美国的国家安全。
-
-6、麦克法兰还肯定了拜登政府建立的四国联盟对于牵制中共国的重要性，但是他也提醒拜登政府决不能只停留在口头表态上，延续川普政府的现有对共政策是远远不够的，美国必须要联合印太四国对中共采取实质性行动，站在中共的对立面。如果拜登政府四年内不解决中共，下届政府上台后仍然会消灭中共。
-
-7、现有的川普政策就包括将中共定为种族灭绝罪，但是这也无法保证美国社会未来几年的繁荣，只有联合全世界向中共追责病毒疫情，彻底解决掉中共病毒问题才能保证美国未来几年的繁荣。
-
-三、中共借黄金挑战美元霸权
-
-凤凰财经2月1日报道[3]：据世界黄金协会1月28日发布的《黄金需求趋势报告》表示，由于全球市场的不确定性，黄金仍将具有吸引力，2020年度全球市场对黄金的总投资量同比增长40%，达到1773吨，创下该协会有数据记录以来的新高，其中大部分增长来自黄金ETF。这几年来，德国、荷兰、比利时、瑞士、委内瑞拉、土耳其、匈牙利、斯洛伐克、意大利、罗马尼亚、俄罗斯、奥地利、澳大利亚、法国等14个欧洲和新兴市场国家宣布或计划要提前将黄金运回国。
-
-据ZeroHedge在上周的跟进报道中称，美国金本位制的捍卫者、美国州议员亚历克斯·穆尼在稍早前再次向美国财政部提出了一项黄金储备透明度法案(HR2559)的提案，要求对这些实物黄金进行审计。与此同时，美联储更是无权拒绝或阻止各国投资者运回属于自己国家的黄金，因为，这些黄金的产权是很清晰的，以上这些都在说明，黄金的天然货币和储存财富的价值手段正在从货币历史视野的边缘回归，这也是需要读者朋友们重视的。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/黄金.jpg)[图片地址](https://x0.ifengimg.com/ucms/2021_06/5BE0FA427789CCDB1C9C9172D896808F06EFB72B_size26_w640_h471.jpg)
-路德社评论：
-
-1、这就是文贵先生在直播中说的中共将发起一系列的金融超限战来打款美元霸权体系，中共通过控制疫情让美国经济体制崩溃，利用华尔街来操控美国股市，然后再发动其他国家从美国运回储备黄金来，以此来结束美元霸权体系。
-
-2、数字货币已经成为未来货币的趋势，许多国家计划用自己储备的黄金来建立数字货币体系，中共巧妙地利用了这点来挑战美元霸权体系。中共前两年在全球疯狂收购黄金，现在中共已经采取行动想让美联储出现黄金挤兑现象，同时中共也在怂恿各国发展各自以黄金为铆的数字货币，以此挑战美元全球霸主地位，如果美元霸主地位受到威胁，美国自二战以来建立的国际秩序将被重新改写。所以，拜登政府急需快速行动推动灭共进程，来维护美国世界霸主的地位。
-
-3、拜登政府现在也已经确定中共严重威胁到美国国家安全，他们必须快速推动灭共进程，只有这样才能尽早缓解中共疫情对美国的打击，结束中共3F美国计划。
-
-四、日德将举行国防会谈
-
-据日本《读卖新闻》周一报导[4]，日本和德国决定在4月中旬，以视讯会议的方式举行外交、国防“2+2部长级会谈”，双方将聚焦于合作实现“自由开放的印太地区”，并遏止中共强化其霸权的行为。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/日德.jpg)[日德国防会谈](https://i.epochtimes.com/assets/uploads/2021/04/id12858424-GettyImages-617319960-600x400.jpg)
-路德社评论：
-
-1、现在，美国正在联合其他西方国家站在一起推动灭共，虽然中共可以在黄金上动手脚暂时威胁美元霸权地位，但是德国，法国，日本等国家依然会选择和美国站在一起，因为决定地球霸主地位的还是靠军事实力，只有军事才是硬实力。
-
-2、中共国体制和美国体制有着巨大的区别，即使美元体系出问题，美国也不会出现粮食危机，绝对不会出现委内瑞拉、前苏联粮食短缺的情况，这两个国家就和现在的中共国非常类似，必须要靠外汇从国外进口粮食、原材料和高科技产品。美国不但不需要进口，还是一个粮食、原材料和高科技产品的出口国，美国的粮食解决了全世界的粮食危机，哥伦布在大航海时代从美洲发现了土豆，随着土豆在全世界的推广，以及美国的食品加工技术逐渐解决了世界粮食的短缺问题。
-
-3、在美国的推动下，越来越多国家开始发动针对中共国的联合军事演习，八十国联军围剿中共的雏形开始显现。
-
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
-
-参考文章：
-
-[1][https://www.reuters.com/article/putin-signing-law-0405-mon-idCNKBS2BT01W](https://www.reuters.com/article/putin-signing-law-0405-mon-idCNKBS2BT01W)
-
-[2][https://www.epochtimes.com/gb/21/3/29/n12842228.htm](https://www.epochtimes.com/gb/21/3/29/n12842228.htm)
-
-[3][https://finance.ifeng.com/c/83VFXPb7Ygg](https://finance.ifeng.com/c/83VFXPb7Ygg)
-
-[4][https://www.epochtimes.com/gb/21/4/5/n12858395.htm](https://www.epochtimes.com/gb/21/4/5/n12858395.htm)
-
-文章撰写：【重生】  编辑：【香柏树】
+字幕：【V%】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 +1

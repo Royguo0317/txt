@@ -1,33 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭文贵精品视频-新中国联邦人以法灭共第十七集
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1054642/)
+## 《路德社》精选新闻快讯：Sellin博士公布制造中共病毒的参与者
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1057483/)
 
-撰稿：澳喜cindy
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-“以法灭共、以美灭共”是郭文贵先生2017年开始的爆料革命始终坚持的大计方针。他深知只有美国比较健全的司法制度和体系，才能做出比较公正的裁决，才能把黑帮一样的CCP扳倒。
 
-一直跟随郭先生四年多的战友们都非常清楚郭先生是如何把他的战略战术漂亮的落实在他的每一场战役中。用他一个人微薄的力量几千次的媒体的爆料先唤醒了海内外的成千上万的华人。然后又撬动了整个世界，掀起了全球的反共浪潮。
 
-1.2019年6月9日（香港反送中抗议游行）以前，郭先生用铁证把王岐山家族拥有的如日中天的海航集团的假面具撕了下来。王岐山用自己的权利控制的金融机构，把虚假的资产债务留给了国内很多银行做抵押，换成美元转移到海外的私生子女的几百个账户上。郭先生就像那个说：“皇帝没有穿衣服”的诚实的小男孩，让海航的信誉在国外各相关的金融机构彻底破产。纷纷取消融资给它，导致海航2年后的破产重组及内部的大清洗而发生了2018年7月3日在法国王健被杀灭口的惨案。王健被杀一案郭先生最好的完美的运用了美国的司法制度，戳穿了王岐山等的“王健系自杀”的谎言。
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)'s origin – leadership at Beijing Institute of Microbiology & Epidemiology, Academy of Military Medical Sciences & Chinese Center for Disease Control and Prevention with the same names popping up.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/CL17NY5QXf](https://t.co/CL17NY5QXf)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1378972629831454721?ref_src=twsrc%5Etfw)
 
-2.举世震惊的香港200多万人抗议中共恶法大游行，至今已近两年了。郭先生不遗余力地和新中国联邦的战友们一道传播CCP在香港强奸杀戮的流氓黑社会般执法的恶行。并投入10亿港元之多帮助香港年轻人抗争所需的物资和通讯器材等。极力地推动西方国家对CCP的制裁立法。川普总统指出：“我今天宣布的决定将影响到我们与香港达成的全面协议，从引渡条约到出口管控和技术。我们将采取行动，取消香港作为中共国其他地区以外的一个单独的海关和旅游地区所享有的优惠待遇”。美国还对涉嫌侵害香港自由的中共国与香港官员进行了经济制裁。近日英国也发出了对中共相关人员进行经济制裁！“取消香港自贸区协议，基本上是西方和中共就打起来了，就是事实上的开战。“这是灭共的第一道大门”-郭先生如是说：“香港自贸区地位的取消就是CCP的金融通道没有了”。
 
-3.郭先生在全世界第一个把CCP对新疆100多万人的拘禁强奸种族灭绝的真相公布于世（详见下面文章链接）.美国前国务卿蓬佩奥在离任前最后一天（2021/1/19）发布了公告，定性CCP对新疆人的残害是种族灭绝罪！近日，欧盟27国也就CCP种族灭绝对相关人员进行制裁资产冻结。
 
-4.CCP对美国及西方文明国家的蓝金黄（恐吓、金钱、女色）；3F（搞乱美国、搞弱美国、搞死美国） 渗透之深、之广、破坏之严重有目共睹。是郭先生不畏强权不畏CCP的各种打压，将众多的中共国的情报机构（以国有企业为名）军民融合企业、洗黑钱的中资银行及在美国上市的700多家公司对美国民众欺瞒账目，大肆圈钱的惊人真实材料提交给美国的司法机关并无数次的出庭作证。如今终于得到了美国及西方国家对中共的间谍企业的惩罚，令不合规的上市公司退市。目前大约1000多家被制裁公司，在美国的所有资产被冻结，并且任何再与这些被制裁公司有业务往来的公司和个人也将被美国制裁，任何银行不得给予这些被制裁的企业开户和贷款，当然这些被制裁企业不可以再使用美元进行交易。实际上已经宣判了他们的死亡。并且还对企业的相关几百人进行了经济制裁。
+2021年4月5日，Selin博士发推: [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click)‘s origin – leadership at Beijing Institute of Microbiology & Epidemiology, Academy of Military Medical Sciences & Chinese Center for Disease Control and Prevention with the same names popping up.
 
-无论是新疆的种族灭绝定性、香港的民主自由抗争运动各种立法、还是对大量的中资企业的制裁都凸显出爆料革命在促进这场全世界以法灭共行动中的巨大推动作用。
+中共病毒起源-北京的微生物与流行病研究院，军事医学科学院和中共疾病控制预防中心的几位领导与下图一致。
 
-（本文观点纯属个人）
 
-*审稿：Gradient Boost*
 
-编辑：cindy
+> Make no mistake, Maj. Gen. Wei Chen is presumed head of the CCP biowarfare program & everyone shown has worked with the military. In China, there is no distinction between civilian and military research.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/luEHWbcH2F](https://t.co/luEHWbcH2F)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1379000079768510467?ref_src=twsrc%5Etfw)
 
-作者相关文章：
 
-[hdttps://gnews.org/zh-hans/843661/郭文贵先生300多次的视频呐喊：救救新疆人第十集](https://gnews.org/zh-hans/843661/郭文贵先生300多次的视频呐喊：救救新疆人第十集)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2.jpg)
+
+Make no mistake, Maj. Gen. Wei Chen is presumed head of the CCP biowarfare program & everyone shown has worked with the military. In China, there is no distinction between civilian and military research.
+
+毫无疑问，陈薇少将是中共生物战计划的负责人，下图所有人均为军方工作。在中共国，民用和军事研究之间没有任何分别。
+
+Sellin博士拥有生物学和生理学博士学位，前美军预备役上校，曾担任太平洋特种作战司令部参谋长，他是军方情报部门的重要人士之一。Sellin博士公开点名这几位深度参与中共生物战的核心科学家，表明美国军事界和情报界已经确认爆料革命提供的情报，COVID19就是中共研制并故意投放的生物武器。美国接下来会按照计划，主推闫博士的三篇论文并公开部分确凿证据，揭露病毒的真相，将中共对全球发动生物战定罪。
+
+本文作者：Stranger
+审核校对：鲁邦五世
+上传排版：糖果儿
+
 0
