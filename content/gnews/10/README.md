@@ -1,84 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新闻收集【4/5】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1053827/)
+## 【世事解评】完美犯罪 文明大敌
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1054078/)
 
-**西班牙巴塞罗那喜悦农场 **wenwu
+作者：纽约香草山  猪逻辑
 
-中共病毒是武汉实验室制造只是真相的冰山一角，后面还有更多的陷阱在等着我们。主流媒体曝光感染的病人的真实画面了吗？显然没有，我们只是看到了一堆感染和死亡数据，这是极其不正常。当然还包括了最初在武汉爆发的疫情问题上，媒体更喜欢让人知道疫苗好处而不是共产主义制造并掩盖了这场灾难。然而真相只有一个。
-
-
-
-> [#UnrestrictedScientificMisinformation](https://twitter.com/hashtag/UnrestrictedScientificMisinformation?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/HFZUgIWCbe](https://t.co/HFZUgIWCbe)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 5, 2021](https://twitter.com/DrLiMengYAN1/status/1379063701530161155?ref_src=twsrc%5Etfw)
-
-
-*`1.闫博士推文大意：超限科学误导。据《司法观察》报道，福奇的NIH为中共制造病毒提供了便利。`*
-
-
-> No coincidences🤔 [https://t.co/2iLi9pLkBh](https://t.co/2iLi9pLkBh)
-> — Dr. Dawn Michael💗 (@SexCounseling) [April 4, 2021](https://twitter.com/SexCounseling/status/1378793672225918977?ref_src=twsrc%5Etfw)
-
-
-*`2.网友推文大意：福奇早在2017年1月11日就说过，毫不怀疑在川普任期中会出现大瘟疫。`*
-3. 据2020年11月9日《搜狐》**`报道`**，复星医药与德国生物科技公司BioNTech（拜恩泰科）围绕“mRNA技术”进行了一次远程对话。今年3月，双方宣布达成合作，共同开发基于BioNTech的mRNA技术平台的新冠疫苗。国内媒体先抨击了AZ疫苗的不可靠，而后国内近日开始报道mRNA技术的疫苗出现问题。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
 
 
-> Evolutionary biologist Dr. Weinstein on The Hill, 4 Apr 2021
-> – Abundant high-quality evidence 
-> from non-mainstream scientists shows lab-origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw).
-> – Nature-origin is fairytale, so mainstream scientists’ conclusion suffers under pressure.
-> – Dr. Fauci is dishonest. [https://t.co/KIqLu5i7P8](https://t.co/KIqLu5i7P8)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 5, 2021](https://twitter.com/DrLiMengYAN1/status/1379054255638769673?ref_src=twsrc%5Etfw)
+台铁408次太鲁阁号花莲出轨意外造成严重伤亡，目前统计约50人死，200多伤。尽管尚未形成或取得正式的最终结论，但看似一场普通的交通事故，仔细追究起来似乎疑点重重，值得思索。
+
+笔者非阴谋论者，但联想到几日前郭先生在直播中提到对苏伊士运河封堵事故的看法，联想到三年前揭露的3F计划，借助蓝金黄，建立分散到全世界的网络，流氓主义，对内镇压明目张胆,对外隐秘作案，搞垮、搞弱、搞残西方文明世界，再联想中共官场上盛行的阴谋诡计、权谋术、做局文化、斗争文化，和近几年正邪逐步走向终极对抗的大背景，不禁让人“大胆假设”。只有和中共打过深入交道，了解其行事风格、行事思维与逻辑手法的人，并建立更多情报基础才易于做出本质上的剖析。
+
+这类看似意外的事故大体有几大特点：成本低，损失大，取证难，不易察觉或很难找到直接的法理依据或其幕后真正的黑手，要证明其紧密关联性极为困难，堪称完美犯罪。完美犯罪一词常在符合一部分乃至全部的下述条件的场合使用：它基本是不为社会大众所察觉和熟知，或无法使最终犯人落网、无法判定加害者的犯罪。我们不妨对近几年的一些可疑案例进行串联梳理。
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/48148825_303.jpg)
+
+芬太尼事件。这些合成药物成本低廉，通过互联网上销售，并直接邮寄到美国或墨西哥的走私商手里。芬太尼即使是在摄入0.25mg很低剂量的情况下也可能致命，改变其化学结构以生产类似物质（称为芬太尼类似物）绕过法律控制也相对容易。但它能给当事国的公共健康构成严重威胁。
+
+马航事件。一架现代化的大型客机在信息和电子化时代人间蒸发陨落印度洋至今杳无音讯，郭先生早就提及中共掌握飞行牵引技术，甚至不惜以身证明。
+
+澳洲、美国西部森林大火。以澳洲为例，每年夏季都有一个“丛林野火季”，但从2019年9月开始的野火季，从持续时间、火灾面积和对人畜及环境的破坏，都属有纪录以来最严重之列。
+
+蔓延至今的新冠病毒。事实上在发生之前似乎有迹可循，如2019年11月12日，内蒙古自治区锡林郭勒盟苏尼特左旗2人经专家会诊，被诊断为肺鼠疫确诊病例。2019年11月13日，北京朝阳医院确诊两例鼠疫。以上两例均为媒体或卫生部门公开报道。而其时间点与随后的新冠大爆发的敏感巧合，似乎早已释放出某种信号。
+
+尽管有些事件很难实证或者找到足够的情报，但我们不妨独立思考多追问几个为什么。过去历史中，苏伊士运河被封堵是什么时候？什么原因？就可知类似发生的可能性是多少，发生概率多少？ 如此大规模大范围火灾，在自然环境中连续产生的概率有多大？过去的历史记录中自然发生的频率有多高？台湾高铁发生重大事故的频次是多少？外部原因造成的高铁事故有多少？是否巧合敏感时间点？人类历史上发生过多少次瘟疫或流感大爆发？频次和广度如何？是什么原因造成的？
+
+集权体制下的国家级犯罪，可集一国之力，手法更隐秘、更阴险、更狡诈，可能运用先进的犯案手法和作案技术，进而无法找到证据，有时候或转嫁他人，或借刀杀人，或让百姓背锅，不择手段，low到没节操，花样百出，闻所未闻，突破人类底线，是人类文明的大敌。
+
+中共自以为是地认为，玩阴的永远不会被察觉或追究，实则大错特错。回顾二战后对于战犯的审判追责，希特勒虽然并没有直接杀人，但是希特勒的故意杀人罪是成立的，所有当时受命屠杀犹太人的德国军官中的骨干分子全部受到了审判，国际上不接受因为上级命令而做出的反人类的举动。
 
 
 
-4. 闫博士转推评论战友发布的推文，关于进化学家weinstein接受国会山的采访：
+校对/发稿：飞虹
 
-- 非主流的科学家们提供了大量证据、进行高质量的分析指向病毒来源于实验室洩漏
-- 主流科学家却为了证明病毒自然起源而备受压力
-- 病毒起源于自然，目前还属於传说神话的阶段
-- 福奇有能力、又有最高权限看到情报，却不诚实地推自然起源
-- 四方面说病毒源於实验室
-- 其一病毒基因序列修改痕跡是武毒所做过的
-- 其二病毒族谱上没有过的弗林酶切位点却出现了
-- 其三流行病学角度：病毒没有进化为高度适应人体高传染力的进化时间期间
-- 其四蝙蝠病毒4991改名为RaTG-13不符合科学规定
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
 
 
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-> Biologist Dr. Weinstein on The Hill, 4 Apr 2021
-> – Evidence on lab-origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)
-> 1. Evidence left in SARS-CoV-2 genome after modification 
-> 2. Furin-cleavage site 
-> 3. Well-adapted to human, but not match epidemiological principles 
-> 4. Bat virus 4991 vs RaTG13 in terminology [https://t.co/7PRLl5kzk9](https://t.co/7PRLl5kzk9)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 5, 2021](https://twitter.com/DrLiMengYAN1/status/1379057938136973313?ref_src=twsrc%5Etfw)
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-
-这是在不同领域的领土战争：病毒，科学，媒体，疫苗，共产主义。。。与资本主义的撕扯。另外，在郭文贵先生的今日GTV爆料中提到的以钱灭美。
-
-
-
-> 【温故而知新】
-> 郭先生今天直播提到的卡恩（右），辞职后变成了法中基金会主席，和害死王健的华鋲（左）是好哥们（这张照片已经从网上删除）。什么叫物以类聚！ [pic.twitter.com/IOjDUkklfy](https://t.co/IOjDUkklfy)
-> — 瞿水台 Qu Shuitai (@QuShuitai) [April 5, 2021](https://twitter.com/QuShuitai/status/1379077831796346880?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> 人源化小鼠：模拟人的受体
-> 猴子：灵长类与人类很接近
-> 以上两种动物感染新冠病毒后均可以康复，这给了中共极大的信心，认为新冠病毒这个生物武器杀伤力可控。因此，他们铤而走险，直接开始社区内释放，直接用人做测试，结果传染性和致死率都超出预期 [https://t.co/YKCZmPVuaV](https://t.co/YKCZmPVuaV)
-> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [April 5, 2021](https://twitter.com/jsdfposjpqyuee1/status/1379128154720104448?ref_src=twsrc%5Etfw)
-
-
-***`战友推文大意：实验室人源化小鼠和猴子感染新冠病毒后均可以康复，这给了中共极大的信心，认为新冠病毒这个生物武器杀伤力可控。因此，他们铤而走险，直接开始社区内释放，直接用人做测试，结果传染性和致死率都超出预期`***
-在病毒和疫苗面前，凡人避让！
-
-+2
+0

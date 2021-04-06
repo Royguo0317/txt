@@ -1,70 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0405.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1050677/)
+## 美军构筑亚洲导弹网震慑中共
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1053121/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+加拿大多伦多枫叶农场 军迷Wilson
+![]()![](https://gnews.org/wp-content/uploads/2021/03/usanews.net_.jpg)*图片来源：usanews.net*
+拜登上台后台海局势动荡加剧，由于台湾和日本唇寒齿亡的关系，日本朝野趋入焦虑。日本媒体及高官对中共与台湾在军事力量对比上的失衡尤其担忧，日本防卫相岸信夫在4月2日的记者会上，就中台军力“平衡正朝着中共倾斜，而且差距正在逐年扩大”明确表示忧虑。
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
-## 中共病毒继续挖料
+此前日媒披露中共在其东南沿岸部署了约2000枚中程导弹，在西太平洋区域对美军形成优势，当战事爆发时，美国航母打击群可能被迫后撒到中共的中程导弹射程之外，战斗力将被大大削弱。也就是说，美国在西太平洋现有的导弹数量不足以和中共抗衡，为了对中共形成足够的震慑，美军需要在中共国周边国家部署更多可以吓阻中共的先进导弹。
 
-4月5日劳伦斯博士继续使用爆料革命关于中共病毒的定义和闫博士关于超限生物武器的定论发推宣传，推文也找出更多中共病毒专家的照片：
+即将接替戴维森出任美军印度太平洋司令部司令的阿奎利诺将军近日强调，有必要在亚洲范围内构筑导弹网应对日益咄咄逼人的中共。美方认为日本政府应积极配合美国的行动共同应对来自中共的威胁，这意味着日本要同意美国在日本列岛部署瞄准中共国的陆基导弹，这个消息在日本引起了极大的争议。
 
-毫无疑问，陈薇少将应该是中共生物战计划的负责人&所显示的每个人都曾在军方工作过。在中国，民用和军用研究没有区别。
+韩国在部署美国的萨德导弹系统后遭受中共的严厉制裁，这是日本方面的担忧之一；另外，新部署的导弹基地可能成为中共的攻击目标，因此和日本地方政府的协商将很艰难。但日本相关军方及安保人士认为，为了对中共形成足够的威慑从而达到避免战争保卫和平的愿望，配合美国是日本无法推辞的责任。处于抗共最前线的日本尚且如此阻力重重，在其他国家遇到的困难可想而知。
 
-#中共病毒 #超限生物战 #超限生物武器 #COVID19病毒来源
+日本首相菅义伟在昨天公开强调：加强日美联手以维持威慑力，是创造台海和平环境的关键。这是对日本各界的“统战”及动员令，事实上，日本朝野都十分清楚，既邪恶又疯狂的中共从来都是只认力不认理，唯有联合美国及亚洲盟友，在战争决心及军事力量上对中共形成压倒性优势，才有望维持和平。否则，中共一旦武力进攻台湾，近在咫尺的日本将陷入关乎生死存亡的国家性危机。
 
+参考链接：
+[1。聚焦：日本就对华策略面临重大抉择](https://china.kyodonews.net/news/2021/04/720bd83b106a.html)
+[2。详讯：日美首脑会谈拟签署气候变化协定并磋商台湾问题](https://china.kyodonews.net/news/2021/04/628e8b7f927b.html)
 
+* * *
 
-> Make no mistake, Maj. Gen. Wei Chen is presumed head of the CCP biowarfare program & everyone shown has worked with the military. In China, there is no distinction between civilian and military research.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/luEHWbcH2F](https://t.co/luEHWbcH2F)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1379000079768510467?ref_src=twsrc%5Etfw)
-
-
-
-译者认为，这些照片一方面是让这些中共国内直接参与病毒研究的人了解自己已经上了美国追查病毒真相的黑名单，另一方面是通知与这些人有工作交往的美国科研界、医疗界相关人员明白，自己曾经与中共国为伍、简介资助和辅助中共病毒超限生物战的大爆发，下一步何去何从该好好反思了。
-
-
-
-## 美国拨款武汉病毒实验室研究中共病毒
-
-4月4日晚《每日呼声》发表文章《NIH称美国拨款给武汉病毒实验室用于增强型蝙蝠冠状病毒研究未经过HHS审查》
-
-文章称，罗格斯大学化学生物学教授Richard H. Ebright表示，美国国家健康研究院（NIH） “系统性地阻止”了政府对危险病原体研究的监督。
-
-一项NIH拨款，涉及对基于蝙蝠冠状病毒的改造，在病毒大流行之前向武汉病毒学研究所转移了60万美元，绕过了P3CO审查，因为安东尼-蝠齐领导的国家过敏和传染病研究所没有标记对该项目进行审查。
-
-据《纽约时报》报道，2014年，美国政府暂停了对增强功能研究的资助，因为实验室工作人员意外接触到了疾病控制中心的炭疽病毒。此前，2011年威斯康星州和荷兰的实验室被曝出有意修改H5N1禽流感病毒，能够有效地在雪貂之间传染，引发反响。
-
-该集团总裁Peter Daszak在2019年12月武汉首例COVID-19报告前几周在新加坡拍摄的播客采访中表示，Ecohealth有改造蝙蝠冠状病毒的历史。
-
-[点击查看此项新闻来源。](https://dailycaller.com/2021/04/04/nih-gain-of-function-anthony-fauci-review-board-wuhan-lab/)
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+编辑 发稿 云起时
 
 0

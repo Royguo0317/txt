@@ -1,26 +1,84 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 聚焦:乌克兰把“解放克里米亚”这个皮球踢给拜登
-` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1053701/)
+## 每日新闻收集【4/5】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1053827/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/DB742CC5-19FB-4FBA-8414-4503323806A0_1_201_a.jpeg)图片来源：www.voanews.com
-#### 丁过
+**西班牙巴塞罗那喜悦农场 **wenwu
 
-**乌克兰近来向乌俄边境大量增兵**，旨在平定由俄罗斯支持的顿巴斯地区亲俄武装叛乱，及解放已被俄罗斯纳入版图的克里米亚。**3**月**24**日乌克兰总统泽伦斯基签署了一项法令，宣布要解放克里米亚。**4**月**4**日泽伦斯基总统的发言人声称，乌克兰的解放计划得到土耳其、英国、立陶宛等十几个国家的支持。
+中共病毒是武汉实验室制造只是真相的冰山一角，后面还有更多的陷阱在等着我们。主流媒体曝光感染的病人的真实画面了吗？显然没有，我们只是看到了一堆感染和死亡数据，这是极其不正常。当然还包括了最初在武汉爆发的疫情问题上，媒体更喜欢让人知道疫苗好处而不是共产主义制造并掩盖了这场灾难。然而真相只有一个。
 
-当今的乌克兰因为对国内亲俄武装的连年征战已疲惫不堪，在不依靠外国军队介入的情况下要战胜强大的俄罗斯是不可能的。
 
-虽然**G7**国家（加拿大、法国、德国、意大利、日本、英国和美国）在**3**月**31**日发表了“支持和致力于乌克兰在其国际公认边界内的独立、主权和领土完整”的声明，美国总统乔**.**拜登也在**4**月**2**日和泽连斯基通电活时明确表达了和**G7**声明相同的态度，但是国际社会普遍认为以上国家对乌克兰的支持相当有限。**2014**年俄罗斯侵吞克里米亚时，时任美国总统奥巴马除了动动嘴巴，什么都没有做，拜登是当时乌克兰事务的负责人，现在的拜登几乎完全继承了奥巴马时期的政策。
 
-再来看一下俄罗斯的态度**:**乌俄这一次大规模的军事对峙，俄罗斯是跟在乌克兰后面行动的一方，但态度异常强硬。普京认为，乌克兰境内处于战乱中的人民大多讲俄语，理应得到俄罗斯的保护；俄罗斯外长拉夫罗夫甚至在**4**月**1**日公开宣称，在俄罗斯边境挑起任何军事冲突的企图最终都可能摧毁乌克兰。
+> [#UnrestrictedScientificMisinformation](https://twitter.com/hashtag/UnrestrictedScientificMisinformation?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/HFZUgIWCbe](https://t.co/HFZUgIWCbe)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 5, 2021](https://twitter.com/DrLiMengYAN1/status/1379063701530161155?ref_src=twsrc%5Etfw)
 
-非常明显，俄罗斯准备应战，是因为俄罗斯有取胜的把握，是普京看透了拜登和奥巴马一样的外强中干。客观的说，由于**CCP**病毒肆虐造成国家财政的极度空虚，美国及其北约盟友没有财力支持挥师远征乌克兰，到俄罗斯家门口打仗。回顾鼎盛时期的拿破仑和德国纳粹均在对俄罗斯的征战中大败而归，相信这些史实还普遍留在本世纪的记忆中。
 
-如果，美国及其北约盟友真的卷入乌俄战争，将是一场大规模的局部战争，无形中将为中共创造了进攻台湾进而主导印太的战略机会，美国及北约盟友很难在两条险恶的战线上同时作战。显然，中共最希望美国及北约卷入乌俄战争，因此拜登对乌克兰后续的反应非常值得关注。
+*`1.闫博士推文大意：超限科学误导。据《司法观察》报道，福奇的NIH为中共制造病毒提供了便利。`*
 
-相较于俄罗斯，乌克兰明显信心不足，乌外长德米特罗·库莱巴在上周无奈的说**:**乌克兰仍在等待美国政府采取具体和正确的步骤。主要期望美国更积极、更紧迫地参与解放（顿巴斯）和克里米亚的行动。可以理解，乌克兰如此急切地等待美国的实际行动，是得到了的拜登承诺**——**嘿，拜登，该你出球了。
 
-链接：[乌克兰声称“超过十几个国家”支持克里米亚的解放计划](https://www.breitbart.com/asia/2021/04/05/ukraine-claims-dozen-countries-back-plan-liberate-crimea/)
+> No coincidences🤔 [https://t.co/2iLi9pLkBh](https://t.co/2iLi9pLkBh)
+> — Dr. Dawn Michael💗 (@SexCounseling) [April 4, 2021](https://twitter.com/SexCounseling/status/1378793672225918977?ref_src=twsrc%5Etfw)
 
-0
+
+*`2.网友推文大意：福奇早在2017年1月11日就说过，毫不怀疑在川普任期中会出现大瘟疫。`*
+3. 据2020年11月9日《搜狐》**`报道`**，复星医药与德国生物科技公司BioNTech（拜恩泰科）围绕“mRNA技术”进行了一次远程对话。今年3月，双方宣布达成合作，共同开发基于BioNTech的mRNA技术平台的新冠疫苗。国内媒体先抨击了AZ疫苗的不可靠，而后国内近日开始报道mRNA技术的疫苗出现问题。
+
+
+
+> Evolutionary biologist Dr. Weinstein on The Hill, 4 Apr 2021
+> – Abundant high-quality evidence 
+> from non-mainstream scientists shows lab-origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw).
+> – Nature-origin is fairytale, so mainstream scientists’ conclusion suffers under pressure.
+> – Dr. Fauci is dishonest. [https://t.co/KIqLu5i7P8](https://t.co/KIqLu5i7P8)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 5, 2021](https://twitter.com/DrLiMengYAN1/status/1379054255638769673?ref_src=twsrc%5Etfw)
+
+
+
+4. 闫博士转推评论战友发布的推文，关于进化学家weinstein接受国会山的采访：
+
+- 非主流的科学家们提供了大量证据、进行高质量的分析指向病毒来源于实验室洩漏
+- 主流科学家却为了证明病毒自然起源而备受压力
+- 病毒起源于自然，目前还属於传说神话的阶段
+- 福奇有能力、又有最高权限看到情报，却不诚实地推自然起源
+- 四方面说病毒源於实验室
+- 其一病毒基因序列修改痕跡是武毒所做过的
+- 其二病毒族谱上没有过的弗林酶切位点却出现了
+- 其三流行病学角度：病毒没有进化为高度适应人体高传染力的进化时间期间
+- 其四蝙蝠病毒4991改名为RaTG-13不符合科学规定
+
+
+
+
+> Biologist Dr. Weinstein on The Hill, 4 Apr 2021
+> – Evidence on lab-origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)
+> 1. Evidence left in SARS-CoV-2 genome after modification 
+> 2. Furin-cleavage site 
+> 3. Well-adapted to human, but not match epidemiological principles 
+> 4. Bat virus 4991 vs RaTG13 in terminology [https://t.co/7PRLl5kzk9](https://t.co/7PRLl5kzk9)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 5, 2021](https://twitter.com/DrLiMengYAN1/status/1379057938136973313?ref_src=twsrc%5Etfw)
+
+
+
+这是在不同领域的领土战争：病毒，科学，媒体，疫苗，共产主义。。。与资本主义的撕扯。另外，在郭文贵先生的今日GTV爆料中提到的以钱灭美。
+
+
+
+> 【温故而知新】
+> 郭先生今天直播提到的卡恩（右），辞职后变成了法中基金会主席，和害死王健的华鋲（左）是好哥们（这张照片已经从网上删除）。什么叫物以类聚！ [pic.twitter.com/IOjDUkklfy](https://t.co/IOjDUkklfy)
+> — 瞿水台 Qu Shuitai (@QuShuitai) [April 5, 2021](https://twitter.com/QuShuitai/status/1379077831796346880?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> 人源化小鼠：模拟人的受体
+> 猴子：灵长类与人类很接近
+> 以上两种动物感染新冠病毒后均可以康复，这给了中共极大的信心，认为新冠病毒这个生物武器杀伤力可控。因此，他们铤而走险，直接开始社区内释放，直接用人做测试，结果传染性和致死率都超出预期 [https://t.co/YKCZmPVuaV](https://t.co/YKCZmPVuaV)
+> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [April 5, 2021](https://twitter.com/jsdfposjpqyuee1/status/1379128154720104448?ref_src=twsrc%5Etfw)
+
+
+***`战友推文大意：实验室人源化小鼠和猴子感染新冠病毒后均可以康复，这给了中共极大的信心，认为新冠病毒这个生物武器杀伤力可控。因此，他们铤而走险，直接开始社区内释放，直接用人做测试，结果传染性和致死率都超出预期`***
+在病毒和疫苗面前，凡人避让！
+
++2
