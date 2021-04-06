@@ -1,37 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选新闻快讯：Sellin博士公布制造中共病毒的参与者
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1057483/)
+## 不愿做奴隶的人民要起来推翻共产党了
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1057902/)
 
-出品：《路德社》 编辑：《路德社》精选新闻专栏组
+撰稿：永遠の小学生文筝
+![]()![](https://gnews.org/wp-content/uploads/2021/04/006.jpg)图片制作：澳喜农场©森森
+近日，互联网上流传的一段视频引起了笔者的注意。视频的内容直接且简单：中共拆迁队的家伙们带了盾牌跟梯子想要上房抓人，结果被房主打回去了。讽刺的是，影像中配合的背景音乐是中共国的国歌，竟然还烘托出了某种热血而悲壮的氛围，让人是哭笑不得。然而思考片刻后，又为如今在中共国生活的百姓感到难过。
 
+中共自建政以来作恶多端，此业报必还！现在已经是到了官逼民反的王朝末日时刻了。为什么视频中的房主要以命相搏，难道不怕被抓去坐牢？现实是如不反抗将失去一切——自己的性命、老婆孩子的性命，老父老母的性命都将被中共夺去。土地财政带来的就是血腥的割韭菜，结果就是老百姓凭着本能要推翻新地主共产党。
 
+借着外国传来的过街老鼠般的共产主义思想，靠着欺骗老百姓为其卖命，中共成了最大的地主，而且是中华文明五千年来最邪恶的统治集团。
 
-> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)'s origin – leadership at Beijing Institute of Microbiology & Epidemiology, Academy of Military Medical Sciences & Chinese Center for Disease Control and Prevention with the same names popping up.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/CL17NY5QXf](https://t.co/CL17NY5QXf)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1378972629831454721?ref_src=twsrc%5Etfw)
+土地财政在官商勾结的中共国政治环境下，变成了对老百姓房产的掠夺手段。这些年来因为拆迁造成的悲剧数不胜数，上访者年年增加。百姓对中共的信用已经彻底丧失，没人再期望中共还会为人民着想，因有杨改兰自杀的事件做为活生生的例子，他们在面对拆迁队自然就只会本能地站起来反抗。
 
+(文章内容仅代表作者观点)
 
+*审稿：**Gradient Boost*
 
-2021年4月5日，Selin博士发推: [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click)‘s origin – leadership at Beijing Institute of Microbiology & Epidemiology, Academy of Military Medical Sciences & Chinese Center for Disease Control and Prevention with the same names popping up.
+视频链接：
 
-中共病毒起源-北京的微生物与流行病研究院，军事医学科学院和中共疾病控制预防中心的几位领导与下图一致。
+[YouTube视频网](https://www.youtube.com/watch?v=OR12jR3-R74)
 
+[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
 
-
-> Make no mistake, Maj. Gen. Wei Chen is presumed head of the CCP biowarfare program & everyone shown has worked with the military. In China, there is no distinction between civilian and military research.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/luEHWbcH2F](https://t.co/luEHWbcH2F)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1379000079768510467?ref_src=twsrc%5Etfw)
-
-
-
-Make no mistake, Maj. Gen. Wei Chen is presumed head of the CCP biowarfare program & everyone shown has worked with the military. In China, there is no distinction between civilian and military research.
-
-毫无疑问，陈薇少将是中共生物战计划的负责人，下图所有人均为军方工作。在中共国，民用和军事研究之间没有任何分别。
-
-Sellin博士拥有生物学和生理学博士学位，前美军预备役上校，曾担任太平洋特种作战司令部参谋长，他是军方情报部门的重要人士之一。Sellin博士公开点名这几位深度参与中共生物战的核心科学家，表明美国军事界和情报界已经确认爆料革命提供的情报，COVID19就是中共研制并故意投放的生物武器。美国接下来会按照计划，主推闫博士的三篇论文并公开部分确凿证据，揭露病毒的真相，将中共对全球发动生物战定罪。
-
-本文作者：Stranger
-审核校对：鲁邦五世
-上传排版：糖果儿
-
-0
+[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2.jpg)
++1
