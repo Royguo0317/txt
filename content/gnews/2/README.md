@@ -1,44 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港专题】 港版文革2.（一）国安举报热线 「文革式人斗人」
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1054640/)
+## 《路德社》精选新闻快讯：Sellin博士公布制造中共病毒的参与者
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1057483/)
 
-搜集\编撰：西西
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
-**共产党在1966年- 1976年发起的文革十年浩劫， 不但没有积极反思，相反有些人贼心不死，还想再利用文革的方式来达到不可告人的个人目的，在香港进行「港版文革2.0」 。这种可怕的政治运动正一步步地从根本上摧毁香港的政治、社会、法律、经济、教育等基础。国安设举报热线无疑是中共对港人的一套维稳政策，而这种「文革式人斗人」也就是把10年文革错误路线在香港演绎一遍。**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4068.jpg)
-2020年11月5日，在一片争议声中，香港警方推出「国安处举报热线」，让市民透过中国内地人士常用的微信、电话短讯和电邮向国安处提出与国家安全相关的非紧急举报，当中不包括WhatsApp。警方于近一个月后再推新号码，并透过微信、LINE、SMS短讯和电邮收料。报导引述警方数字显示，该「笃灰」（举报）热线共接获120万个举报讯息，部份成功协助警方采取拘捕行动。警方表示，截至去年10月29日，热线共接获逾1,200,000 宗情报，目前热线仍然运作。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4069.jpg)市民可以透过微信、电话短讯，或者电邮，作出相关非紧急举报。 （香港警察社交专页截图）
-《港区国安法》2020年7月实施，先后有多人涉嫌违法被捕或遭通缉。 《南早》引述消息指，设立热线的概念早在7月国安法生效后已浮现警方认为此举有助加强阻吓作用，因疑犯的一举一动均可能受监视。
 
-《南华早报》引述消息指，公众可能掌握有关可能危害国家安全的资料，或可疑人士的行动资讯，消息人士认为，报料者不会希望致电999，故他们需要适当的管道收集情报。消息指，热线不会有真人接听，但报料者可以透过电邮和不同通讯软件，提供情报，例如资料、相片、录音、录像等，报料者的资料会保密，故不用担心身份曝光。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/40691.jpg)香港「国安处」
-消息指，警方于去年9月抗暴运动如火如荼时期，已设立「笃灰」（举报）热线，先宣布设立WhatsApp号码，呼吁市民提供「反暴力」情报。惟热线开放不足4天，母公司Facebook指WhatsApp设计仅作私人通讯之用为由，删除相关号码。
 
-**立法会议员涂谨申：「寒蝉效应」 香港成为「沉默的社会」**
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)'s origin – leadership at Beijing Institute of Microbiology & Epidemiology, Academy of Military Medical Sciences & Chinese Center for Disease Control and Prevention with the same names popping up.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/CL17NY5QXf](https://t.co/CL17NY5QXf)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1378972629831454721?ref_src=twsrc%5Etfw)
 
-立法会议员涂谨申忧虑，国安处热线旨在收集情报，这会造成人与人之间的信任瓦解，热线更可能成为同事之间打击异己的工具。涂谨申表示举报热线会令香港不再自由，产生「寒蝉效应」，做法等同鼓励「人斗人」，令港人不敢再与人分享政治信念，令香港成为「沉默的社会」，失去活力，亦会加速人才流失、资金流走。
 
-涂谨申表示，举报电话与普通电话报警有很大的不同。对于普通电话，报警者想报案必涉打劫贩毒等，需要相关证据比如武器或违禁品等，不然会被指控报假案或浪费警力；然而国安举报电话的举报人数据是保密的，标准低很多，造成的后果却更为严重。
 
-涂谨申说，「即使是很轻微的政治倾向的表达或分享便有可能构成怀疑甚至是被拘捕。」即使警方没有控告被举报人，也会导致举报人被列在监控名单上。
+2021年4月5日，Selin博士发推: [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click)‘s origin – leadership at Beijing Institute of Microbiology & Epidemiology, Academy of Military Medical Sciences & Chinese Center for Disease Control and Prevention with the same names popping up.
 
-的确，国安设举报热线有如文革式鼓励人斗人，亦如明朝东厂，这种做法必定削弱人与人之间的信任，产生寒蝉效应，社会气氛就像文革时期般相互举报和监视，弥漫白色恐惧，最终导致香港社会解体，对社会的负面影响将无法估计。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/40692.jpg)有分析认为举报电话的作用是为了在社会制造恐怖气氛、使得人人自危。涂谨申表示，这种做法会削弱人与人之间的信任，产生寒蝉效应，最终导致香港社会解体。
-香港人权监察发言人叶宽柔亦忧虑热线会成为「笃灰」（举报）工具，尤其是港区国安法的条文过于宽泛，人权自由易受限制，举报热线可能令穿上某种颜色衣着的年轻人、张贴标语的「黄店」被歧视和举报，重回文革时期互相监视的老路，令香港弥漫白色恐怖。
+中共病毒起源-北京的微生物与流行病研究院，军事医学科学院和中共疾病控制预防中心的几位领导与下图一致。
 
-中共正一步步地扭曲人性、破坏香港昔日社会的互信互助的良好气氛。中共每年花在社会维稳方面的经费远超其他民生支出。这种粉饰太平、坏事做尽，以军警武警来维持社会秩序，维持其极权政府，将永远不得人心。
 
-【以上观点仅代表笔者本人 】
 
-资料来源：
-[头条日报：国安处研设《国安法》热线透过市民举报助警搜证](https://hd.stheadline.com/news/daily/hk/892185/%E6%97%A5%E5%A0%B1-%E6%B8%AF%E8%81%9E-%E5%9C%8B%E5%AE%89%E8%99%95%E7%A0%94%E8%A8%AD-%E5%9C%8B%E5%AE%89%E6%B3%95-%E7%86%B1%E7%B7%9A%E9%80%8F%E9%81%8E%E5%B8%82%E6%B0%91%E8%88%89%E5%A0%B1%E5%8A%A9%E8%AD%A6%E8%92%90%E8%AD%89)
+> Make no mistake, Maj. Gen. Wei Chen is presumed head of the CCP biowarfare program & everyone shown has worked with the military. In China, there is no distinction between civilian and military research.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/luEHWbcH2F](https://t.co/luEHWbcH2F)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1379000079768510467?ref_src=twsrc%5Etfw)
 
-[大纪元时报：港警国安处拟设举报热线 涂谨申：鼓励人斗人](https://hk.epochtimes.com/news/2020-10-30/58714656)
 
-[苹果日报：警设国安热线鼓励笃灰 议员忧举报沦文革损港营商](https://hk.appledaily.com/local/20201029/2TCMR7HEMFCUVOCNYSD4JOOFAI/)
 
-审稿： 卡西欧 \上传：天网灰灰
+Make no mistake, Maj. Gen. Wei Chen is presumed head of the CCP biowarfare program & everyone shown has worked with the military. In China, there is no distinction between civilian and military research.
+
+毫无疑问，陈薇少将是中共生物战计划的负责人，下图所有人均为军方工作。在中共国，民用和军事研究之间没有任何分别。
+
+Sellin博士拥有生物学和生理学博士学位，前美军预备役上校，曾担任太平洋特种作战司令部参谋长，他是军方情报部门的重要人士之一。Sellin博士公开点名这几位深度参与中共生物战的核心科学家，表明美国军事界和情报界已经确认爆料革命提供的情报，COVID19就是中共研制并故意投放的生物武器。美国接下来会按照计划，主推闫博士的三篇论文并公开部分确凿证据，揭露病毒的真相，将中共对全球发动生物战定罪。
+
+本文作者：Stranger
+审核校对：鲁邦五世
+上传排版：糖果儿
 
 0
