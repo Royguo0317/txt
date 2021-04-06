@@ -1,70 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0405.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1050677/)
+## 准备好了吗？ 美国拜登政府将要推行“接种疫苗护照”
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1052940/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+**[翻译者、评论者】冰糖葫芦喵**
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
-## 中共病毒继续挖料
+**【编辑】冰糖葫芦喵、灭共文明**
 
-4月5日劳伦斯博士继续使用爆料革命关于中共病毒的定义和闫博士关于超限生物武器的定论发推宣传，推文也找出更多中共病毒专家的照片：
+**4月5日《国家脉动》报道，在拜登政府的第67天：“如果您想在CCP病毒大流行期间，对旅游、娱乐和社交活动感兴趣，请出示您的“接种疫苗护照**”。”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/拜登哈里斯.png)图片来源：《华盛顿邮报》图片插图;摄影:Demetrius Freeman和Melina Mara/华盛顿邮报。
+**疫苗“护照”马上就要来了。**
 
-毫无疑问，陈薇少将应该是中共生物战计划的负责人&所显示的每个人都曾在军方工作过。在中国，民用和军用研究没有区别。
+在美国航空公司和旅游业团体的敦促下，**拜登白宫正在考虑效仿纽约州长安德鲁·库默(Andrew Cuomo)的计划，推出“疫苗护照”，证明个人已经接种疫苗或没有感染CCP病毒。**
 
-#中共病毒 #超限生物战 #超限生物武器 #COVID19病毒来源
+他们强调，以色列在2020年2月份就启功了疫苗护照计划，而且它是目前是世界上疫苗接种率最高的国家。
 
+但是当时《华尔街日报》强调说这一计划存在许多陷阱，这个计划会对排在最后接种或者不愿意接种疫苗的人被歧视。《纽约杂志》报道称:“还有一些焦点小组证据表明，疫苗护照可以帮助说服不愿接种疫苗的美国人报名接种。”
 
+虽然接种过疫苗的人更容易旅行，参加更多的社交活动，但也会给那些拒绝接种疫苗的人带来被歧视和压力。
 
-> Make no mistake, Maj. Gen. Wei Chen is presumed head of the CCP biowarfare program & everyone shown has worked with the military. In China, there is no distinction between civilian and military research.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/luEHWbcH2F](https://t.co/luEHWbcH2F)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1379000079768510467?ref_src=twsrc%5Etfw)
+**美国政府开发疫苗证书的工作由卫生与公众服务部(HHS)负责，由CCP病毒专家杰夫·齐恩茨(Jeff Zients)协调各部门的工作。**
 
+**【评论】**
 
-
-译者认为，这些照片一方面是让这些中共国内直接参与病毒研究的人了解自己已经上了美国追查病毒真相的黑名单，另一方面是通知与这些人有工作交往的美国科研界、医疗界相关人员明白，自己曾经与中共国为伍、简介资助和辅助中共病毒超限生物战的大爆发，下一步何去何从该好好反思了。
-
-
-
-## 美国拨款武汉病毒实验室研究中共病毒
-
-4月4日晚《每日呼声》发表文章《NIH称美国拨款给武汉病毒实验室用于增强型蝙蝠冠状病毒研究未经过HHS审查》
-
-文章称，罗格斯大学化学生物学教授Richard H. Ebright表示，美国国家健康研究院（NIH） “系统性地阻止”了政府对危险病原体研究的监督。
-
-一项NIH拨款，涉及对基于蝙蝠冠状病毒的改造，在病毒大流行之前向武汉病毒学研究所转移了60万美元，绕过了P3CO审查，因为安东尼-蝠齐领导的国家过敏和传染病研究所没有标记对该项目进行审查。
-
-据《纽约时报》报道，2014年，美国政府暂停了对增强功能研究的资助，因为实验室工作人员意外接触到了疾病控制中心的炭疽病毒。此前，2011年威斯康星州和荷兰的实验室被曝出有意修改H5N1禽流感病毒，能够有效地在雪貂之间传染，引发反响。
-
-该集团总裁Peter Daszak在2019年12月武汉首例COVID-19报告前几周在新加坡拍摄的播客采访中表示，Ecohealth有改造蝙蝠冠状病毒的历史。
-
-[点击查看此项新闻来源。](https://dailycaller.com/2021/04/04/nih-gain-of-function-anthony-fauci-review-board-wuhan-lab/)
+就在今天**4月5日，前国务卿蓬佩奥也发推：“要求美国人为了参与正常的社交活动而出示疫苗接种证明，或“疫苗护照”，是无耻和违反美国价值观的。这与控制病毒无关，而只是左派为了获得更多权力和控制权而提出的又一个危险想法。**”
 
 
 
+> Requiring Americans to show proof of vaccination, or a ‘vaccine passport,’ in order to engage in society is outrageous and un-American. This isn’t about containing a virus, but is just another dangerous idea from the Left in their quest for more power and control.
+> — Mike Pompeo (@mikepompeo) [April 5, 2021](https://twitter.com/mikepompeo/status/1379104844200435713?ref_src=twsrc%5Etfw)
 
 
 
+**上周**CNN主持人克里斯·库默（纽约州长安德鲁·库默的亲弟弟）在采访前“美国计划生育协会”主席温麟衍的节目中所谈论的，鼓动拜登政府说服美国人以接种疫苗来换取行动的自由。**与目前拜登政府推出疫苗护照计划相互呼应**。
 
+由此可以看出，拜登政府正在准备推动疫苗护照计划。如果这个计划一旦实施，会带动世界各个国家纷纷效仿推行这种数字疫苗护照。**这个疫苗护照会追踪你的每一个行动，你去过的每一个地方，你的所有消费都会被一览无余。**
 
+自从CCP病毒爆发以来，关于疫苗的疑问和争议就从来没有停止过，各大医药公司和机构纷纷加入疫苗开发的竞争行列中。可以说疫苗开发的速度快慢几乎成了国家实力的象征，反过来CCP病毒的一再回潮也促使各国政府把疫苗当成唯一可能遏制病毒蔓延的手段。
 
+人们似乎已经忘记病毒是中共实验室人工制造的这一重要事实，而中共到底准备了多少种病毒用来释放无从知晓，不把中共彻底消灭，疫苗开发的速度远远赶不上病毒变异和投放的速度。**只有揭示中共病毒的真相才有可能研制出有效疫苗。**
 
+在CCP病毒大爆发的初期，闫丽梦博士是第一个通过路德社告诉全世界CCP病毒的真相。从CCP病毒爆发，到口罩外交，疫苗外交，这一系列事件背后串联起来就可以看出，**中共发动的生化武器超限战的目的，正如近四年前郭文贵先生所说的：为了3F美国：搞乱美国、搞垮美国、搞死美国。从而取代美国，最终统治全世界。**
 
+**CCP病毒的制造和散播只是个开始，它后续的罪恶链条是推动疫苗经济和疫苗护照，获取接种疫苗的人的大数据，来监控和控制人类的行动轨迹和行为方式。**
 
+**最终以极权统治来代替民主制度，把它的邪恶统治模式销往全世界。**
 
+**【参考来源】**
 
+[On Day 67, Joe Biden Wanted to See Your Vaccine Papers. (thenationalpulse.com)](https://thenationalpulse.com/analysis/day-67-of-the-biden-regime-vaccine-credentials-required-soon-at-an-airline-near-you/)
 
+[https://www.youtube.com/channel/UCm3Ysfy0iXhGbIDTNNwLqbQ](https://www.youtube.com/channel/UCm3Ysfy0iXhGbIDTNNwLqbQ)
 
+[Media Darling Doctor Says the Quiet Part Out Loud: Dangle Freedom as “Carrot” to Force Vaccinations. (thenationalpulse.com)](https://thenationalpulse.com/breaking/use-freedom-as-carrot-to-force-vaccine/)
 
+[3F计划 (gwins.org)](https://gwins.org/cn/word/764.html)
 
+**【免责声明】 ** 尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
 
+**欢迎战友加入旧金山金喜准农场**
 
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
 
-（本文当日持续更新中）
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
 
-文章观点部分仅代表作者本人。
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
 
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
 
-0
++5

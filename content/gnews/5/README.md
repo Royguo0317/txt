@@ -1,72 +1,29 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 准备好了吗？ 美国拜登政府将要推行“接种疫苗护照”
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1052940/)
+## 聚焦:乌克兰把“解放克里米亚”这个皮球踢给拜登
+` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1053296/)
 
-**[翻译者、评论者】冰糖葫芦喵**
+![](https://lh3.googleusercontent.com/OPmOK08Guhc7zD4xa54-ud1ECNPxCsDI21moERvKU-zT4ui0aF3_SxSC_J9Fc9PO_400OhSkoIlnSkmuqLkW8nCcJCGktX6dMBWHk3yJG47tX9g1kGGuCObSDtVbNNtsX-iLG_Ro)
 
-**【编辑】冰糖葫芦喵、灭共文明**
+图片来源： voanews.com
 
-**4月5日《国家脉动》报道，在拜登政府的第67天：“如果您想在CCP病毒大流行期间，对旅游、娱乐和社交活动感兴趣，请出示您的“接种疫苗护照**”。”
-![]()![](https://gnews.org/wp-content/uploads/2021/04/拜登哈里斯.png)图片来源：《华盛顿邮报》图片插图;摄影:Demetrius Freeman和Melina Mara/华盛顿邮报。
-**疫苗“护照”马上就要来了。**
+#### 作者：丁过
 
-在美国航空公司和旅游业团体的敦促下，**拜登白宫正在考虑效仿纽约州长安德鲁·库默(Andrew Cuomo)的计划，推出“疫苗护照”，证明个人已经接种疫苗或没有感染CCP病毒。**
+**乌克兰近来向乌俄边境大量增兵**，旨在平定由俄罗斯支持的顿巴斯地区亲俄武装叛乱，及解放已被俄罗斯纳入版图的克里米亚。**3**月**24**日乌克兰总统泽伦斯基签署了一项法令，宣布要解放克里米亚。**4**月**4**日泽伦斯基总统的发言人声称，乌克兰的解放计划得到土耳其、英国、立陶宛等十几个国家的支持。
 
-他们强调，以色列在2020年2月份就启功了疫苗护照计划，而且它是目前是世界上疫苗接种率最高的国家。
+当今的乌克兰因为对国内亲俄武装的连年征战已疲惫不堪，在不依靠外国军队介入的情况下要战胜强大的俄罗斯是不可能的。
 
-但是当时《华尔街日报》强调说这一计划存在许多陷阱，这个计划会对排在最后接种或者不愿意接种疫苗的人被歧视。《纽约杂志》报道称:“还有一些焦点小组证据表明，疫苗护照可以帮助说服不愿接种疫苗的美国人报名接种。”
+虽然**G7**国家（加拿大、法国、德国、意大利、日本、英国和美国）在**3**月**31**日发表了“支持和致力于乌克兰在其国际公认边界内的独立、主权和领土完整”的声明，美国总统乔**.**拜登也在**4**月**2**日和泽连斯基通电活时明确表达了和**G7**声明相同的态度，但是国际社会普遍认为以上国家对乌克兰的支持相当有限。**2014**年俄罗斯侵吞克里米亚时，时任美国总统奥巴马除了动动嘴巴，什么都没有做，拜登是当时乌克兰事务的负责人，现在的拜登几乎完全继承了奥巴马时期的政策。
 
-虽然接种过疫苗的人更容易旅行，参加更多的社交活动，但也会给那些拒绝接种疫苗的人带来被歧视和压力。
+再来看一下俄罗斯的态度**:**乌俄这一次大规模的军事对峙，俄罗斯是跟在乌克兰后面行动的一方，但态度异常强硬。普京认为，乌克兰境内处于战乱中的人民大多讲俄语，理应得到俄罗斯的保护；俄罗斯外长拉夫罗夫甚至在**4**月**1**日公开宣称，在俄罗斯边境挑起任何军事冲突的企图最终都可能摧毁乌克兰。
 
-**美国政府开发疫苗证书的工作由卫生与公众服务部(HHS)负责，由CCP病毒专家杰夫·齐恩茨(Jeff Zients)协调各部门的工作。**
+非常明显，俄罗斯准备应战，是因为俄罗斯有取胜的把握，是普京看透了拜登和奥巴马一样的外强中干。客观的说，由于**CCP**病毒肆虐造成国家财政的极度空虚，美国及其北约盟友没有财力支持挥师远征乌克兰，到俄罗斯家门口打仗。回顾鼎盛时期的拿破仑和德国纳粹均在对俄罗斯的征战中大败而归，相信这些史实还普遍留在本世纪的记忆中。
 
-**【评论】**
+如果，美国及其北约盟友真的卷入乌俄战争，将是一场大规模的局部战争，无形中将为中共创造了进攻台湾进而主导印太的战略机会，美国及北约盟友很难在两条险恶的战线上同时作战。显然，中共最希望美国及北约卷入乌俄战争，因此拜登对乌克兰后续的反应非常值得关注。
 
-就在今天**4月5日，前国务卿蓬佩奥也发推：“要求美国人为了参与正常的社交活动而出示疫苗接种证明，或“疫苗护照”，是无耻和违反美国价值观的。这与控制病毒无关，而只是左派为了获得更多权力和控制权而提出的又一个危险想法。**”
+相较于俄罗斯，乌克兰明显信心不足，乌外长德米特罗·库莱巴在上周无奈的说**:**乌克兰仍在等待美国政府采取具体和正确的步骤。主要期望美国更积极、更紧迫地参与解放（顿巴斯）和克里米亚的行动。可以理解，乌克兰如此急切地等待美国的实际行动，是得到了的拜登承诺**——**嘿，拜登，该你出球了。
 
+链接：[乌克兰声称“超过十几个国家”支持克里米亚的解放计划](https://www.breitbart.com/asia/2021/04/05/ukraine-claims-dozen-countries-back-plan-liberate-crimea/)
 
-
-> Requiring Americans to show proof of vaccination, or a ‘vaccine passport,’ in order to engage in society is outrageous and un-American. This isn’t about containing a virus, but is just another dangerous idea from the Left in their quest for more power and control.
-> — Mike Pompeo (@mikepompeo) [April 5, 2021](https://twitter.com/mikepompeo/status/1379104844200435713?ref_src=twsrc%5Etfw)
-
-
-
-**上周**CNN主持人克里斯·库默（纽约州长安德鲁·库默的亲弟弟）在采访前“美国计划生育协会”主席温麟衍的节目中所谈论的，鼓动拜登政府说服美国人以接种疫苗来换取行动的自由。**与目前拜登政府推出疫苗护照计划相互呼应**。
-
-由此可以看出，拜登政府正在准备推动疫苗护照计划。如果这个计划一旦实施，会带动世界各个国家纷纷效仿推行这种数字疫苗护照。**这个疫苗护照会追踪你的每一个行动，你去过的每一个地方，你的所有消费都会被一览无余。**
-
-自从CCP病毒爆发以来，关于疫苗的疑问和争议就从来没有停止过，各大医药公司和机构纷纷加入疫苗开发的竞争行列中。可以说疫苗开发的速度快慢几乎成了国家实力的象征，反过来CCP病毒的一再回潮也促使各国政府把疫苗当成唯一可能遏制病毒蔓延的手段。
-
-人们似乎已经忘记病毒是中共实验室人工制造的这一重要事实，而中共到底准备了多少种病毒用来释放无从知晓，不把中共彻底消灭，疫苗开发的速度远远赶不上病毒变异和投放的速度。**只有揭示中共病毒的真相才有可能研制出有效疫苗。**
-
-在CCP病毒大爆发的初期，闫丽梦博士是第一个通过路德社告诉全世界CCP病毒的真相。从CCP病毒爆发，到口罩外交，疫苗外交，这一系列事件背后串联起来就可以看出，**中共发动的生化武器超限战的目的，正如近四年前郭文贵先生所说的：为了3F美国：搞乱美国、搞垮美国、搞死美国。从而取代美国，最终统治全世界。**
-
-**CCP病毒的制造和散播只是个开始，它后续的罪恶链条是推动疫苗经济和疫苗护照，获取接种疫苗的人的大数据，来监控和控制人类的行动轨迹和行为方式。**
-
-**最终以极权统治来代替民主制度，把它的邪恶统治模式销往全世界。**
-
-**【参考来源】**
-
-[On Day 67, Joe Biden Wanted to See Your Vaccine Papers. (thenationalpulse.com)](https://thenationalpulse.com/analysis/day-67-of-the-biden-regime-vaccine-credentials-required-soon-at-an-airline-near-you/)
-
-[https://www.youtube.com/channel/UCm3Ysfy0iXhGbIDTNNwLqbQ](https://www.youtube.com/channel/UCm3Ysfy0iXhGbIDTNNwLqbQ)
-
-[Media Darling Doctor Says the Quiet Part Out Loud: Dangle Freedom as “Carrot” to Force Vaccinations. (thenationalpulse.com)](https://thenationalpulse.com/breaking/use-freedom-as-carrot-to-force-vaccine/)
-
-[3F计划 (gwins.org)](https://gwins.org/cn/word/764.html)
-
-**【免责声明】 ** 尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
-
-**欢迎战友加入旧金山金喜准农场**
-
-[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
-
-[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
-
-[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
-
-[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
-
-+5
+0

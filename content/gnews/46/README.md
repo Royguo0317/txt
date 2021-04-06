@@ -1,34 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共对美发动“以钱灭美”的货币战争&nbsp; 是其“灭白计划”的一部分
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1052112/)
+## 【墙国经济速评】万达是“染红了”还是“被黑了”
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1052244/)
 
-简述：郭先生在2021年4月4日深夜发布的盖特视频中，预告了4月5日直播将要讲的两个重要内容：中共怕人民过清明节暴露其病毒死亡真正人数，中共已经对美发动了“以钱灭美”的货币战争，也是其“灭白计划”的一部分。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210404-getter3.srt.txt)
-**中共对美发动“以钱灭美”的货币战争  是其“灭白计划”的一部分**
+#### 作者：越来越好
 
-**CCP Launches a Currency War Against America as Part of Its “Extinction of the White People Plan”**
+**新闻概述：**
 
-我那个手机很多很多战友发来在国内去清明节，过清明节的感受，以及武汉很多战友说，武汉所有的墓地都是便衣警察，有的人想到十字路口烧纸被抓，火葬场旁边到处是警车。这到底为啥呢？你们就死了几百个人，你说你弄这干什么？然后现在他们真正的感受到了，冠状病毒死的人那可不是一个“0”，两个“0”的事儿了，更夸张的事情，战友们发现了很多的事情，我在这儿不说了吧，所以明天我的直播说说，很多战友让我要直播给大家聊聊，那我就聊聊吧。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/cc96-hyzpvir0057384-e1617651837185.jpg)封面链接：新浪看点
 
-I received many messages from fellow fighters in mainland China, telling me their feelings about the Tomb-Sweeping Day. Many fellow fighters in Wuhan said there were undercover police everywhere in cemeteries. Some people wanted to burn some joss paper at street crosses, but were arrested. There were police cars everywhere close to crematoriums. Why? Isn’t it just a few hundred people died? Why do you need to do all these? Now they truly feel that the number of deaths from the coronavirus should have one or two more zeros at least. What’s more absurd is that our fellow fighters have found out many more things, which I can’t say now. I will talk about it on my broadcast tomorrow. Many fellow fighters asked me to broadcast and chat a little bit.
+关于“染红”，泛指一家民企背景的上市公司邀请一家国企背景公司进行财务投资的行动。
 
-另外一个明天还聊一个重点，共产党啊..咱是以钱灭共，以毒灭共，共产党正在以钱灭美，在这之前我不能说，我要说了以后吧，他就不干了，他就不干了，美国人就不信，说咱造谣，胡说八道，是吧？现在美国人已经知道了，上一周美国人感受到了，啊..Miles,你说的有道理，他动了手了我再说，今天不搞重磅的重磅了，是吧，共产党以钱灭美咋灭的？他是灭白计划其中，他必须他要以钱灭美，以钱灭美就那几招儿，你们想听吗？咱明天上午9:30见。
+3月29日下午，王健林现身珠海，与珠海市政府签署协议。100个小时前，大连[万达](https://finance.sina.com.cn/chanjing/gsnews/2021-04-05/doc-ikmxzfmk3745635.shtml?cref=cj)商业管理集团股份有限公司宣布撤回A股上市申请。
 
-Another important thing that we will talk about tomorrow is that the CCP is planning to take down the U.S. with money [a currency war], as opposed to our taking down the CCP with financial activities and the truth about the virus. I didn’t say it earlier because if I exposed it prematurely, they might postpone or quit their plan, and then Americans would not believe me or even blame me for lying to them, right? Now Americans have been aware of it. It was last week. They said, “Miles, what you said makes sense, but we will wait for them to move first, then we will react.” So, there won’t be any bombshells for today, alright? How can the CCP take down the U.S. with a currency war? It’s part of their Extinction of the White People Plan. They will for sure implement their plan of taking down the U.S. with a currency war. They have only a few tricks. Do you want to hear? See you tomorrow at 9:30 AM.
+在协议中，珠海国资委出资30亿入股万达轻资产商管公司，改道重回港股上市。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/606a6c2fdbc8001854a58991](https://gtv.org/getter/606a6c2fdbc8001854a58991) (00:40-2:15)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1050330/](https://gnews.org/zh-hans/1050330/)
+文中提到，从华夏引入平安、苏宁引入深圳国资的举手投诚，“国重民轻+国投民营”的混改模式已成为当下最完美的结合方式。
+
+#### 简评：
+
+**如今的王健林同志就如青楼女子被迫卖身一样，不得不从。而他的儿子“国民老公”王思聪现在也成了老赖，变成了“国民乞丐”。这一切喜剧性的变化，在四年前谁能想到，而文贵先生早就预料到了，因为他知道中共的邪恶。**
+
+**去年，中共在《关于加强新时代民营经济统战工作的意见》中提出，坚持党对民营经济统战工作的领导。当中共觉得哪些民营企业家不听话，或者侵犯他的利益时，中共会用各种方法来打压你，甚至弄垮你。**
+
+**我很想找一张现场签约的照片，毕竟王健林当年的扶贫视频，“我每年固定给你五个亿，你们自己去分得了”，他那霸气的形象在我的脑海里还是很深刻的。结果找了半天也没有找到，想想他现在也是敏感人物，肯定比以前低调了许多。但我能想到，他一定变瘦了，很疲惫而且是笑的很难堪。**
+
+**媒体来源链接：**🔗[万达“红”了](https://cj.sina.cn/article/normal_detail?url=https://finance.sina.com.cn/chanjing/gsnews/2021-04-05/doc-ikmxzfmk3745635.shtml)
 
 * * *
 
-字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+***审核/校对：**Ting Guo*
+
+（免责声明：本文仅代表作者个人观点，跟GNEWS平台无关。）
 
 0

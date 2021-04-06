@@ -1,60 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## FACEBOOK助中共掩盖在新疆的“种族灭绝”罪行
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1051925/)
+## 中共对美发动“以钱灭美”的货币战争&nbsp; 是其“灭白计划”的一部分
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1052112/)
 
-新闻来源：Breitbart《布赖特巴特》| 作者：ALANA MASTRANGELO（阿拉娜•马斯特兰格罗）| 发布时间：2021年4月3日
+简述：郭先生在2021年4月4日深夜发布的盖特视频中，预告了4月5日直播将要讲的两个重要内容：中共怕人民过清明节暴露其病毒死亡真正人数，中共已经对美发动了“以钱灭美”的货币战争，也是其“灭白计划”的一部分。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210404-getter3.srt.txt)
+**中共对美发动“以钱灭美”的货币战争  是其“灭白计划”的一部分**
 
-翻译/简评：随波逐流 |校对/审核：万人往|Page：小雨
+**CCP Launches a Currency War Against America as Part of Its “Extinction of the White People Plan”**
 
-[!\[\]()!\[\](https://spark.adobe.com/page/VRc8eedNk7b7Q/images/ec739155-0457-47e2-8a41-681b6831f27a.jpg?asset_id=8045520b-8889-4ab5-b0b6-3dcbef27148f&amp;img_etag=%2271945debdd9a950322e341e5e9ff27ce%22&amp;size=1024)](https://spark.adobe.com/page/VRc8eedNk7b7Q/images/ec739155-0457-47e2-8a41-681b6831f27a.jpg?asset_id=8045520b-8889-4ab5-b0b6-3dcbef27148f&amp;img_etag=%2271945debdd9a950322e341e5e9ff27ce%22&amp;size=1024)
+我那个手机很多很多战友发来在国内去清明节，过清明节的感受，以及武汉很多战友说，武汉所有的墓地都是便衣警察，有的人想到十字路口烧纸被抓，火葬场旁边到处是警车。这到底为啥呢？你们就死了几百个人，你说你弄这干什么？然后现在他们真正的感受到了，冠状病毒死的人那可不是一个“0”，两个“0”的事儿了，更夸张的事情，战友们发现了很多的事情，我在这儿不说了吧，所以明天我的直播说说，很多战友让我要直播给大家聊聊，那我就聊聊吧。
 
-**简评：**
+I received many messages from fellow fighters in mainland China, telling me their feelings about the Tomb-Sweeping Day. Many fellow fighters in Wuhan said there were undercover police everywhere in cemeteries. Some people wanted to burn some joss paper at street crosses, but were arrested. There were police cars everywhere close to crematoriums. Why? Isn’t it just a few hundred people died? Why do you need to do all these? Now they truly feel that the number of deaths from the coronavirus should have one or two more zeros at least. What’s more absurd is that our fellow fighters have found out many more things, which I can’t say now. I will talk about it on my broadcast tomorrow. Many fellow fighters asked me to broadcast and chat a little bit.
 
-据《华尔街日报》的一份报告称，Facebook员工在内部表达了他们对该公司被用作中共宣传渠道的担忧。Facebook员工在内部留言板上表达了对该社交媒体平台上有关中共国政府广告的关注，这些广告宣传了中共国新疆地区的穆斯林少数民族欣欣向荣的虚假信息，欲掩盖中共犯下的“种族灭绝”罪行，同时指责西方国家破坏中共国和谐稳定。有问题的广告和帖子中包括一些新疆人的录像，其中有一些儿童对着镜头说，他们的生活正在改善，而西方国家正在密谋破坏中共国的稳定。Facebook尚未决定是否对员工的担忧做出回应，并正在观察联合国等国际组织如何应对新疆局势。Facebook员工在内部聊天的帖子中写道：“现在是时候让我们的平台采取行动来打击有关维吾尔族种族灭绝的错误信息了。”该职员称该帖子是对领导层的请愿，并请求Facebook的首席产品官克里斯•考克斯以及首席执行官马克•扎克伯格给予关注和回应。
+另外一个明天还聊一个重点，共产党啊..咱是以钱灭共，以毒灭共，共产党正在以钱灭美，在这之前我不能说，我要说了以后吧，他就不干了，他就不干了，美国人就不信，说咱造谣，胡说八道，是吧？现在美国人已经知道了，上一周美国人感受到了，啊..Miles,你说的有道理，他动了手了我再说，今天不搞重磅的重磅了，是吧，共产党以钱灭美咋灭的？他是灭白计划其中，他必须他要以钱灭美，以钱灭美就那几招儿，你们想听吗？咱明天上午9:30见。
 
-中共已经对西方国家发动了多年的“信息战”，如今已渗透到军方、政府、学校、媒体等各个角落，对社交媒体平台的控制只是其中的一部分。中共近年来通过大量收购各大社交媒体平台或者“蓝金黄”媒体高层为自己的政权服务，不但使这些媒体帮助宣传对自己有利的虚假信息或错误信息来误导大众，而且还通过封锁账号、断播、网络审查等行为压制真实信息的传播，连美国总统川普都未能幸免。这些媒体在西方帮助中共传播虚假信息和阴谋论的同时，在中共国却照样遭到了封锁，中共的宣传真的做到了对内一套，对外一套，两面都在骗。即使如此，也绝不会抹去中共对新疆人民犯下的“种族灭绝”罪行和以病毒攻击世界的真相。所幸美国已经在这场较量中觉醒，成立特种作战部队应对中共国的“信息战”。相信不久的将来，暂时被掩盖的真相将瞬间大白于天下，人类的最终觉醒必将形成全球联合灭共之势！
+Another important thing that we will talk about tomorrow is that the CCP is planning to take down the U.S. with money [a currency war], as opposed to our taking down the CCP with financial activities and the truth about the virus. I didn’t say it earlier because if I exposed it prematurely, they might postpone or quit their plan, and then Americans would not believe me or even blame me for lying to them, right? Now Americans have been aware of it. It was last week. They said, “Miles, what you said makes sense, but we will wait for them to move first, then we will react.” So, there won’t be any bombshells for today, alright? How can the CCP take down the U.S. with a currency war? It’s part of their Extinction of the White People Plan. They will for sure implement their plan of taking down the U.S. with a currency war. They have only a few tricks. Do you want to hear? See you tomorrow at 9:30 AM.
 
-**原文翻译：**
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/606a6c2fdbc8001854a58991](https://gtv.org/getter/606a6c2fdbc8001854a58991) (00:40-2:15)
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1050330/](https://gnews.org/zh-hans/1050330/)
 
-## **报告：Facebook员工对投放中共国的外宣广告深感不安**
+* * *
 
-[!\[\]()!\[\](https://spark.adobe.com/page/VRc8eedNk7b7Q/images/65fdd1ae-7d0c-4483-b540-784fd1ac89dd.jpg?asset_id=5dc2c714-866d-4cef-bdf1-c25c2ef52635&amp;img_etag=%22336a1c47e168a85714181abfb416efc6%22&amp;size=1024)](https://spark.adobe.com/page/VRc8eedNk7b7Q/images/65fdd1ae-7d0c-4483-b540-784fd1ac89dd.jpg?asset_id=5dc2c714-866d-4cef-bdf1-c25c2ef52635&amp;img_etag=%22336a1c47e168a85714181abfb416efc6%22&amp;size=1024)Chip Somodevilla摄/盖蒂图片
-
-**据报道，脸书（Facebook）员工在内部信息留言板上表达了对该社交媒体平台上有关中共国政府外宣广告的担忧，这些广告宣传了中共国新疆地区的穆斯林少数民族欣欣向荣的信息。**
-
-据《华尔街日报》（Wall Street Journal）的一份报告称，Facebook员工在内部表达了他们对该公司被用作中共宣传渠道的担忧。
-
-当Facebook在中共国被封锁时，北京正利用该平台通过广告向其他国家的亿万人民传播其政治观点。
-
-接受《华尔街日报》采访的消息人士称，Facebook正在密切注视联合国等国际组织对新疆局势的反应，尚未决定是否对员工的担忧做出回应。
-
-一位Facebook发言人说，只要广告商在购买播出权时遵守公司的规定，北京有关新疆的广告就不会违反该社交媒体巨头的政策。发言人补充说，Facebook正在监测有关新疆局势的报道，“以帮助告知我们有关这一问题的处理方法和尽职调查。”
-
-有问题的广告和帖子中包括一些新疆人的录像——其中包括一些儿童——他们对着镜头说，他们的生活正在改善，而西方国家正在密谋破坏中共国的稳定。
-
-该报告还说，有Facebook员工在公司为穆斯林员工提供的内部聊天中发了帖子，指出美国政府已宣布北京对待维吾尔族人的方式是种族灭绝。
-
-《华尔街日报》获取的这名Facebook员工的帖子中写道：“现在是时候让我们的平台采取行动来打击有关维吾尔族种族灭绝的错误信息了。”
-
-该职员称该帖子是“对我们领导层的请愿”，并提到Facebook的首席产品官克里斯•考克斯（Chris Cox），Facebook首席执行官马克•扎克伯格（Mark Zuckerberg）的高级副手。
-
-考克斯回应说，他将“回头再讨论这个问题”。
-
-考克斯回复道：“谢谢您让我参与进来。这是非常严重的。让我咨询我们的诚信团队以获取状态更新，然后亲自回来讨论或与正确的联系人交流。”
-
-尽管Facebook领导层反复考虑是否应禁止该平台上的共产主义宣传，但该公司似乎毫不犹豫地对美国总统采取了行动，因为马克•扎克伯格于今年早些时候在Facebook和Instagram上“无限期地”将前总统唐纳德•川普列入黑名单。
-
-🔗[原文链接](https://www.breitbart.com/tech/2021/04/03/report-facebook-workers-are-concerned-about-running-chinese-propaganda-ads/)
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-
-[!\[\]()!\[\](https://spark.adobe.com/page/VRc8eedNk7b7Q/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/VRc8eedNk7b7Q/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0

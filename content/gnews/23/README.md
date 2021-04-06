@@ -1,43 +1,70 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共“对抗”美国盟友挑衅拜登的决心
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1052783/)
+## 美国政要等每日重要信息0405.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1050677/)
 
-俄罗斯莫斯科喀秋莎农场    银河
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片1-3.png)gnews
-《华盛顿时报》报道，中共方面挑起了与台湾、日本和菲律宾的紧张关系。最近的挑衅似乎是北京对拜登政府政策的又一次考验，拜登政府试图维持川普政府对中共的强硬姿态，同时声称寻求重建联盟。
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
+## 中共病毒继续挖料
 
-最近几天，中共加强了针对美国在亚洲地区盟友的挑衅活动。中共在台湾附近增加了军事飞行，在有争议的菲律宾珊瑚礁附近集结了200多艘渔船。上周，中共称日本政府必须放弃对有争议的尖阁诸岛(Senkaku Islands，中共称钓鱼岛及其附属岛屿)的所有主权主张。进一步加剧了与日本的紧张关系。
+4月5日劳伦斯博士继续使用爆料革命关于中共病毒的定义和闫博士关于超限生物武器的定论发推宣传，推文也找出更多中共病毒专家的照片：
 
-3月29日中共解放军空军在一次演习中10架战机飞进了台湾防空识别区。分析人士说，这次演习似乎是对台湾的一次模拟攻击。就在三天前，他们实施了一次大规模战机入侵。中共官方媒体称，这两次行动都是为了加强战备，并对这个自治岛屿进行钳制军事演习。中共喉舌《环球时报》报道称这意味着台湾岛从东西两个方向被解放军包围。
+毫无疑问，陈薇少将应该是中共生物战计划的负责人&所显示的每个人都曾在军方工作过。在中国，民用和军用研究没有区别。
 
-拜登政府上周允许美国驻帕劳大使陪同帕劳领导人访问台湾，暗示了对台湾更强有力的外交支持。这是自1979年美政府将外交承认从台北转向北京以来，美国大使首次访问台湾。
+#中共病毒 #超限生物战 #超限生物武器 #COVID19病毒来源
 
-五角大楼和国务院发言人都保持相对沉默，没有就不断升级的紧张局势发表公开声明。五角大楼唯一的评论来自发言人柯比(John Kirby)，他上周淡化了中共对台湾的入侵。“这不是我们以前没见过的活动，”他对记者说，“我们帮助台湾自卫的承诺没有任何改变。”
 
-然而，一名国务院官员表示，美国高级官员对中共最近越来越咄咄逼人的行为感到担忧。他说:“美国关切地注意到(中共)不断试图恐吓该地区，包括台湾。”“我们敦促北京方面停止对台湾施加军事、外交和经济压力，与台湾进行有意义的对话。”
 
-与上周的低调回应形成鲜明对比的是，今年1月，美国国务院发言人内德·普莱斯(Ned Price)发表声明，对10架中共战机飞入台湾防空识别区表示“关切”。
+> Make no mistake, Maj. Gen. Wei Chen is presumed head of the CCP biowarfare program & everyone shown has worked with the military. In China, there is no distinction between civilian and military research.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/luEHWbcH2F](https://t.co/luEHWbcH2F)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1379000079768510467?ref_src=twsrc%5Etfw)
 
-印度太平洋司令部的一名官员说，最近的飞行是北京方面在外交上孤立、经济上限制和军事上威胁台湾的更广泛尝试的一部分。
 
-退役海军上尉吉姆·法内尔(Jim Fanell)说，自拜登总统1月份上任以来，中共大幅加强了对台湾、菲律宾和日本在东海的尖阁列岛(senkaku)的侵略行动。
 
-曾任太平洋舰队情报总监的法内尔上尉表示，“虽然这在一定程度上可以归因于对美国新政府的试探，但中共解放军在第一岛链内的活动范围和规模是前所未有的。”“如果放任不管，无视挑战，发生军事对抗的可能性就会越来越大。”
+译者认为，这些照片一方面是让这些中共国内直接参与病毒研究的人了解自己已经上了美国追查病毒真相的黑名单，另一方面是通知与这些人有工作交往的美国科研界、医疗界相关人员明白，自己曾经与中共国为伍、简介资助和辅助中共病毒超限生物战的大爆发，下一步何去何从该好好反思了。
 
-法内尔说，“这种危险的局势将继续恶化到失去控制的地步，除非拜登政府采取行动，在言语和行动上明确表示，美国不会允许北京入侵台湾。”
 
-印度太平洋司令部司令戴维森(Philip Davidson)海军上将最近在参议院听证会上说，五角大楼越来越担心，中共将寻求在近10年内控制台湾。
 
-今年1月卸任的负责东亚和太平洋事务的助理国务卿史迪威(David Stilwell)说，他主要担心的是中共提供虚假信息和对美国施加负面影响的行动，这代表了中共不战而胜的战略的一个关键要素。史迪威说，政府应该让台湾能够坚守阵地，同时美国应向中共提出挑战以抵御中共在东中国海和南中国海的影响力。
+## 美国拨款武汉病毒实验室研究中共病毒
 
-在美中阿拉斯加会谈后，美中勾兑按照中共给的剧本演了一出双簧，自此对中共生物武器病毒真相绝口不提，在台湾问题上也变得软弱。文贵先生揭露了中共以钱灭美，中共策划并实施一揽子行动来挑战美元地位，美元即将崩溃，美国将陷入巨大经济危机。如果美国仍未觉醒，继续与中共勾兑，强大的美国将成为过去，与恶魔为伍是一定要付出代价的。
+4月4日晚《每日呼声》发表文章《NIH称美国拨款给武汉病毒实验室用于增强型蝙蝠冠状病毒研究未经过HHS审查》
 
-参考链接：
+文章称，罗格斯大学化学生物学教授Richard H. Ebright表示，美国国家健康研究院（NIH） “系统性地阻止”了政府对危险病原体研究的监督。
 
-[https://www.washingtontimes.com/news/2021/apr/4/china-tests-biden-resolve-pressure-japan-taiwan-ph/](https://www.washingtontimes.com/news/2021/apr/4/china-tests-biden-resolve-pressure-japan-taiwan-ph/)
+一项NIH拨款，涉及对基于蝙蝠冠状病毒的改造，在病毒大流行之前向武汉病毒学研究所转移了60万美元，绕过了P3CO审查，因为安东尼-蝠齐领导的国家过敏和传染病研究所没有标记对该项目进行审查。
+
+据《纽约时报》报道，2014年，美国政府暂停了对增强功能研究的资助，因为实验室工作人员意外接触到了疾病控制中心的炭疽病毒。此前，2011年威斯康星州和荷兰的实验室被曝出有意修改H5N1禽流感病毒，能够有效地在雪貂之间传染，引发反响。
+
+该集团总裁Peter Daszak在2019年12月武汉首例COVID-19报告前几周在新加坡拍摄的播客采访中表示，Ecohealth有改造蝙蝠冠状病毒的历史。
+
+[点击查看此项新闻来源。](https://dailycaller.com/2021/04/04/nih-gain-of-function-anthony-fauci-review-board-wuhan-lab/)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
 0
