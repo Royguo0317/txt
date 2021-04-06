@@ -1,31 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 普京签署法律或将执政到2036年
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1053764/)
+## 中共航母战斗群将在台湾附近进行定期演习
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1053794/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Snipaste_2021-04-06_06-51-36.jpg)[iheartintelligence.com](https://iheartintelligence.com/vladimir-putin-to-resign-early-next-year-amid-fears-he-has-parkinsons/)
-Just the News报道，俄罗斯总统普京星期一签署了一项法律，允许他继续执政到2036年。
+编辑    水星    上传    银河
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Snipaste_2021-04-06_06-58-50.jpg)gnews
+路透社消息，中共海军周一晚些时候表示，中共航母战斗群正在台湾附近进行演习，这种演习将会成为常态。北京声称拥有主权的台湾岛屿附近的紧张局势进一步升级。
 
-普京目前是第二次连任总统。他曾在2000年至2008年担任俄罗斯总统，2008年由于俄罗斯宪法不允许他连任三届，他不得不辞职。据《莫斯科时报》(Moscow Times)报道，普京签署的这项法律将允许他连任两届。
+台湾抗议中共大陆近几个月来在其附近的军事活动有所增加，中共正加紧武力统一台湾的军事部署。
 
-这项立法正式修改了去年投票通过的俄罗斯宪法。该法律限制任何未来总统的任期不得超过两届。但在这个过程中，普京将限制重新设为两届。据路透社报道，如果他再次当选，他将担任总统至2036年，届时他将83岁。
+中共海军表示，由中共首艘现役航空母舰辽宁号率领的航母战斗群，正在台湾附近海域进行“例行”演习。其目的是“增强维护国家主权、安全和发展利益的能力”,“类似的演习将在未来定期进行”。海军补充说，但没有详细说明。
 
-普京说:“如果这被写入宪法，我不排除竞选公职的可能性。我们将会看到。”
+在中共发表上述声明之前，台湾国防部周一报告称，中共空军再次侵入台湾防空识别区。台湾国防部表示，已“全面掌握”台湾周边的空中和海上形势，正在“妥善处理”此事。
 
-立法在议会两院都通过了。
+日本防卫省周日表示，辽宁舰在5艘护卫舰的陪同下，在前往太平洋的途中经过了宫古海峡。日本最近与澳大利亚宣布了与台湾有关的突发事件防务协议，日本政府也直接与台北达成了协议，并提出了《与台湾关系法》的议案。在本周日本首相访美与拜登首次会晤中，美日合作共同抵抗中共援助台湾是其中最重要的一个议题。
 
-关于可能的继任者，普京说:“经验告诉我，两年后各级政府将会寻找可能的继任者，而不是正常的有节奏的工作。我们需要工作，而不是寻找接班人。”
+台湾与大陆的“统一”一直被认为是中共国的核心利益，习近平认为统一是巩固其统治的关键。在中共对新疆的种族灭绝罪行和中共病毒真相面前，中共急于转移视线同时对国际社会施压，台湾危机迫在眉睫。
 
-如果他成功了，普京将成为自彼得大帝(Peter the Great)以来在位时间最长的俄罗斯领导人，超过约瑟夫·斯大林(Joseph Stalin)。
+参考链接:
 
-援引自BBC的报道，美国智库战略与国际研究中心的高级顾问扎克海姆（Dov S. Zakheim）曾指出普京并不隐讳要恢复俄罗斯大国地位的目标。相比苏联和沙俄时期的领导人，普京在国内享有很高的支持率，在国际上更是一位成熟的政治家。
-
-参考链接：
-
-[https://justthenews.com/world/europe/putin-signs-law-allows-him-stay-power-until-2036](https://justthenews.com/world/europe/putin-signs-law-allows-him-stay-power-until-2036)
+[https://www.reuters.com/article/us-china-taiwan-security/china-says-carrier-group-exercising-near-taiwan-drills-will-become-regular-idUSKBN2BT04D](https://www.reuters.com/article/us-china-taiwan-security/china-says-carrier-group-exercising-near-taiwan-drills-will-become-regular-idUSKBN2BT04D)
 
 0
