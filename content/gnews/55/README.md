@@ -1,34 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共对美发动“以钱灭美”的货币战争&nbsp; 是其“灭白计划”的一部分
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1052112/)
+## 中共把器官捐献纳入城市考核
+` 喜马拉雅巴黎七星农场` [轉載自GNews](https://gnews.org/zh-hans/1052564/)
 
-简述：郭先生在2021年4月4日深夜发布的盖特视频中，预告了4月5日直播将要讲的两个重要内容：中共怕人民过清明节暴露其病毒死亡真正人数，中共已经对美发动了“以钱灭美”的货币战争，也是其“灭白计划”的一部分。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210404-getter3.srt.txt)
-**中共对美发动“以钱灭美”的货币战争  是其“灭白计划”的一部分**
+**撰稿: xinyuan**
 
-**CCP Launches a Currency War Against America as Part of Its “Extinction of the White People Plan”**
+**审核: pv0, Free mars**
 
-我那个手机很多很多战友发来在国内去清明节，过清明节的感受，以及武汉很多战友说，武汉所有的墓地都是便衣警察，有的人想到十字路口烧纸被抓，火葬场旁边到处是警车。这到底为啥呢？你们就死了几百个人，你说你弄这干什么？然后现在他们真正的感受到了，冠状病毒死的人那可不是一个“0”，两个“0”的事儿了，更夸张的事情，战友们发现了很多的事情，我在这儿不说了吧，所以明天我的直播说说，很多战友让我要直播给大家聊聊，那我就聊聊吧。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/22b4259b15e9d937.jpg)**图片: 昆仑竹**
 
-I received many messages from fellow fighters in mainland China, telling me their feelings about the Tomb-Sweeping Day. Many fellow fighters in Wuhan said there were undercover police everywhere in cemeteries. Some people wanted to burn some joss paper at street crosses, but were arrested. There were police cars everywhere close to crematoriums. Why? Isn’t it just a few hundred people died? Why do you need to do all these? Now they truly feel that the number of deaths from the coronavirus should have one or two more zeros at least. What’s more absurd is that our fellow fighters have found out many more things, which I can’t say now. I will talk about it on my broadcast tomorrow. Many fellow fighters asked me to broadcast and chat a little bit.
 
-另外一个明天还聊一个重点，共产党啊..咱是以钱灭共，以毒灭共，共产党正在以钱灭美，在这之前我不能说，我要说了以后吧，他就不干了，他就不干了，美国人就不信，说咱造谣，胡说八道，是吧？现在美国人已经知道了，上一周美国人感受到了，啊..Miles,你说的有道理，他动了手了我再说，今天不搞重磅的重磅了，是吧，共产党以钱灭美咋灭的？他是灭白计划其中，他必须他要以钱灭美，以钱灭美就那几招儿，你们想听吗？咱明天上午9:30见。
 
-Another important thing that we will talk about tomorrow is that the CCP is planning to take down the U.S. with money [a currency war], as opposed to our taking down the CCP with financial activities and the truth about the virus. I didn’t say it earlier because if I exposed it prematurely, they might postpone or quit their plan, and then Americans would not believe me or even blame me for lying to them, right? Now Americans have been aware of it. It was last week. They said, “Miles, what you said makes sense, but we will wait for them to move first, then we will react.” So, there won’t be any bombshells for today, alright? How can the CCP take down the U.S. with a currency war? It’s part of their Extinction of the White People Plan. They will for sure implement their plan of taking down the U.S. with a currency war. They have only a few tricks. Do you want to hear? See you tomorrow at 9:30 AM.
+最近，一个令人震惊的消息在媒体上传播开来：国内顶尖的肺移植专家，江苏省肺移植中心主任陈静瑜在2021年两会召开之际，带来两份议案，准备报送国家文明城市考核办和国务院法制办。其中一份便是《将器官捐献率列入文明城市考核标准的建议》。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/606a6c2fdbc8001854a58991](https://gtv.org/getter/606a6c2fdbc8001854a58991) (00:40-2:15)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1050330/](https://gnews.org/zh-hans/1050330/)
+陈静瑜还提议，也可以给每个城市的器官捐献登记数定个比例。并表示要推广到每个医院。试想一下，如果医院没达标，他们会怎么做？我们不能忘记考核计划生育期间，计生委所犯下的罪恶——4亿无辜生命被强行堕胎。这次的提议如果实施，不敢想象又将会有多少无辜生命在医院被死亡，被强摘？
+
+显而易见，中共这是要在实施犯罪前，先给老百姓吹吹风。陈也一定是在中共的授意之下出演的，目的就是要告知百姓们，他们要开始合法地抢器官了。
+
+器官移植本无对错，可是在中共统治下的这片土地上，就变成了邪恶的赚钱工具。让我们先看看中国这些年离奇失踪的年轻人。
+
+案例1:  身高1.85米的林飞阳是河南洛阳人，从莫斯科大学回到武汉后失踪于武汉常青五路。他父亲林先生告诉记者，“可以推测孩子是临时回国办一件什么事情或见什么人，并无外人知晓，完后还要回莫斯科大学。当时查监控录像，他就在常青五路上往前走，走到中央党校里换了件衣服出来，再走到换乘站那边，车辆特别多，人也多，就看不到了。再没有线索。”
+
+案例二：罗浩
+
+罗浩是江西九江人，在湖南长沙上学。2015年9月10日到武汉大学找同学时失踪于武汉洪山广场。罗浩父亲罗先生告诉记者：洪山广场很繁华，附近有七十多个摄像头。但武昌分局刑警大队说广场录像是国家机密，不让家人看，只能他们（警察）看。
+
+上面是2015年前后的失踪学生，到目前为止，情况并未好转。这一数据已经攀升到了数百人，平均每三个月就有一名大学生或同龄社会青年失踪，目前失踪学生人数已达五六百人。
+
+当你在网络上搜索“失踪学生”几个字时，出现的几乎都是武汉学生失踪的条目，为什么这么多学生在武汉失踪？
+
+武汉有什么特殊性吗？
+
+的确，武汉是一个特殊的城市。该市不仅因病毒事件闻名世界，还因其是中共首屈一指的器官移植地。2015年，中共国前卫生部副部长黄洁夫在武汉举行的中共器官移植大会上表示：“没有湖北，没有武汉，中共就不会进行器官移植。”可见武汉在这一领域的江湖地位有多重要。
+
+这样看来，外界的猜测并不是空穴来风，这些失踪学生很有可能成为了非法器官移植的牺牲品。这也能分析出，为什么只有武汉有大批学生失踪。我们分析一下，器官移植中心在武汉，而器官又具有时间上的时效性，在其他城市实施作案，器官运输过程无法保证。所以中共只能在武汉当地就地绑架学生，实施犯罪。
+
+还曾有报道称，有个在网吧被抓的人说，武汉警察有时先抓人，是先抓人后定罪，并且还要验血，这就很值得怀疑了。而且对已经失踪的学生，武汉警方的态度是不作为。甚至把家长网络上发表的相关文章删除。还因造谣罪拘留了一名写相关文章的人。综上所述，和武汉警方的所作所为，我们也能猜出那些可怜的失踪学生的命运了。
+
+在中共作案如此猖獗的情况下，居然两会的那位代表还提议要把器官移植纳入城市考核标准，一旦这个提议被采纳，那更将是中国百姓的灾难。又将会有多少城市出现学生失踪的问题？多少父母哭瞎双眼？甚至离开人世？又会有多少无良医院暗箱操作，谋财害命？年轻人独自上街，安全如何保障？小问题去医院就医时，进得去，谁能保证还能出得来？想想就让人不寒而栗。此时，又想起黄洁夫曾经说过的话：“希望中国到2023年成为世界器官移植第一大国。”
+
+看来，中共真是铁了心想把14亿人圈起来，像奴隶一样，随意进行身心的收割。先是极尽所能地掠夺财产，再夺走他们的孩子。为了能从那些鲜活的器官中牟取私利，他们哪管草根百姓的死活。讽刺的是，不知情的国人们却还自我感觉良好地欢呼着要跟党走，却不知危险正在逼近。尤其是随着大数据时代的到来，万一哪一天数据库里哪位小粉红的配型被发现与某位大人物一致，那就更讽刺了。即使暂时没有轮到被配型，是不是也活得胆战心惊，不知哪天会被配了。可以这么说，如果中共不灭，不仅是世界的灾难，更是中国人的灾难。世界将永无宁日。写到这里，感觉什么都不重要了，只有一件事最重要：灭共！而且越快越好！
+
+
+
+**本文仅代表作者个人观点。**
+
+**参考新闻: **
+
+[两会健识|全国人大代表陈静瑜：建议将器官捐献率列入文明城市考核](http://两会健识|全国人大代表陈静瑜：建议将器官捐献率列入文明城市考核)
+
+[比雷洋更敏感？武汉大学生失踪事件遭删文家长被警告](http://比雷洋更敏感？武汉大学生失踪事件遭删文家长被警告)
+
+[武汉失踪青年达数百人 警方不作为（上）](http://武汉失踪青年达数百人%20警方不作为（上）)
+
+[武汉失踪青年达数百人 警方不作为（下）](http://武汉失踪青年达数百人%20警方不作为（下）)
+
+
 
 * * *
 
-字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+**发布: 法国巴黎七星编辑组**
 
 0

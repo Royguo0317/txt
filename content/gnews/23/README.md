@@ -1,70 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0405.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1050677/)
+## 平均60个人中就有1人感染，全球疫情反弹，面临新一轮爆发
+` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1053065/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+作者：Stephen文文
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
-## 中共病毒继续挖料
+全球疫情在经历了2021年1-2月的快速、短暂缓解之后，然而却在3月又悄然反弹，人类又面临新一轮的疫情爆发。就在2月初，全球每日新增确诊人数比上一轮的高峰期（2021年1月初）下降了超过50%。然而从3月开始，每日新增确诊人数又逐步回升，到4月初已经回到接近上一轮疫情高峰期的确诊（图1，全球每日新增确诊人数）。
 
-4月5日劳伦斯博士继续使用爆料革命关于中共病毒的定义和闫博士关于超限生物武器的定论发推宣传，推文也找出更多中共病毒专家的照片：
+![]()![](https://gnews.org/wp-content/uploads/2021/04/0406图1.jpg)图1全球每日新增确诊人数
 
-毫无疑问，陈薇少将应该是中共生物战计划的负责人&所显示的每个人都曾在军方工作过。在中国，民用和军用研究没有区别。
+与上轮疫情高峰（2020年底）不同，本轮疫情快速增长主要来源于两个人口大国巴西和印度的确诊人数快速增长（图2，巴西每日新增确诊人数；图3，印度每日新增确诊人数）。这两个国家在4月2日的确诊人数都超过了8万人，超过美国，排在全球新增确诊人数的前两位。
 
-#中共病毒 #超限生物战 #超限生物武器 #COVID19病毒来源
+![]()![](https://gnews.org/wp-content/uploads/2021/04/0406图2.jpg)图2巴西每日新增确诊人数
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/0406图3.jpg)图3印度每日新增确诊人数
 
+美国新增确诊人数在经历了2021年1-2月的快速下降后，在3月处于平稳期，每日确诊人数徘徊在5-10万人之间，而在3月中下旬，确诊病例又显小幅略增到趋势（图4，美国每日新增确诊人数）。同样在3月中下旬，欧洲的法国、意大利、德国也迎来了确诊病例的明显增长（图5，法国每日新增确诊人数）。
 
-> Make no mistake, Maj. Gen. Wei Chen is presumed head of the CCP biowarfare program & everyone shown has worked with the military. In China, there is no distinction between civilian and military research.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/luEHWbcH2F](https://t.co/luEHWbcH2F)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1379000079768510467?ref_src=twsrc%5Etfw)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/0406图4.jpg)图4美国每日新增确诊人数
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/0406图5.jpg)图5法国每日新增确诊人数
 
+除以上的几个国家外，单日新增确诊人数高发的国家还有亚洲的土耳其（约4万/日）、菲律宾（约1.5万/日）；及欧洲的波兰（约3万/日）、乌克兰（约2万/日）。
 
-译者认为，这些照片一方面是让这些中共国内直接参与病毒研究的人了解自己已经上了美国追查病毒真相的黑名单，另一方面是通知与这些人有工作交往的美国科研界、医疗界相关人员明白，自己曾经与中共国为伍、简介资助和辅助中共病毒超限生物战的大爆发，下一步何去何从该好好反思了。
+目前还很难确认本轮疫情快速反弹的原因，各国的情况差异很大。从病毒角度而言，巴西出现了传染率更高，具有一定免疫逃逸能力的P1变种毒株，推动了疫情的反弹。
 
+截至4月2日，在过去的一年半左右的时间里，中共释放的SARS- CoV-2已造成全球超过1.3亿人感染，超过280万人丧生。人类却又面临新一轮的疫情高峰，而荒唐的是制造并释放病毒的罪魁祸手—中共依然逍遥法外，依然使用病毒和假疫苗威胁敲诈勒索世界其他国家。“留给世界的时间不多了。”全球平均60个人中就有一人感染病毒，如果不能让中共开放实验室，找到病毒的完整设计制造线索，全人类都无法阻止病毒的一波又一波袭击。
 
+[数据来源](https://coronavirus.jhu.edu/)
 
-## 美国拨款武汉病毒实验室研究中共病毒
-
-4月4日晚《每日呼声》发表文章《NIH称美国拨款给武汉病毒实验室用于增强型蝙蝠冠状病毒研究未经过HHS审查》
-
-文章称，罗格斯大学化学生物学教授Richard H. Ebright表示，美国国家健康研究院（NIH） “系统性地阻止”了政府对危险病原体研究的监督。
-
-一项NIH拨款，涉及对基于蝙蝠冠状病毒的改造，在病毒大流行之前向武汉病毒学研究所转移了60万美元，绕过了P3CO审查，因为安东尼-蝠齐领导的国家过敏和传染病研究所没有标记对该项目进行审查。
-
-据《纽约时报》报道，2014年，美国政府暂停了对增强功能研究的资助，因为实验室工作人员意外接触到了疾病控制中心的炭疽病毒。此前，2011年威斯康星州和荷兰的实验室被曝出有意修改H5N1禽流感病毒，能够有效地在雪貂之间传染，引发反响。
-
-该集团总裁Peter Daszak在2019年12月武汉首例COVID-19报告前几周在新加坡拍摄的播客采访中表示，Ecohealth有改造蝙蝠冠状病毒的历史。
-
-[点击查看此项新闻来源。](https://dailycaller.com/2021/04/04/nih-gain-of-function-anthony-fauci-review-board-wuhan-lab/)
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+审核校对：鲁邦五世
+上传排版：糖果儿
 
 0
