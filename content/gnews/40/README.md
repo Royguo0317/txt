@@ -1,34 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共对美发动“以钱灭美”的货币战争&nbsp; 是其“灭白计划”的一部分
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1052112/)
+## 2021/03/31-班农专访 （2）：疫苗是否能有效对抗变异病毒？
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1052178/)
 
-简述：郭先生在2021年4月4日深夜发布的盖特视频中，预告了4月5日直播将要讲的两个重要内容：中共怕人民过清明节暴露其病毒死亡真正人数，中共已经对美发动了“以钱灭美”的货币战争，也是其“灭白计划”的一部分。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210404-getter3.srt.txt)
-**中共对美发动“以钱灭美”的货币战争  是其“灭白计划”的一部分**
+视频字幕：JohnsonR | 听写：势不可挡 |翻译：葡萄树 | 校对：Roberts |简评/文字整理/编辑：胖丁|Page：小雨
 
-**CCP Launches a Currency War Against America as Part of Its “Extinction of the White People Plan”**
+[!\[\]()!\[\](https://spark.adobe.com/page/tijNpFQS1jGtE/images/e15afb37-40ea-44e9-86e8-5445b45af9c4.jpg?asset_id=7a13652d-0b4a-49ea-a3a2-57ff8798431c&amp;img_etag=%22f6d0640b4cba6f35f1a46d719a59e8c8%22&amp;size=2560)](https://spark.adobe.com/page/tijNpFQS1jGtE/images/e15afb37-40ea-44e9-86e8-5445b45af9c4.jpg?asset_id=7a13652d-0b4a-49ea-a3a2-57ff8798431c&amp;img_etag=%22f6d0640b4cba6f35f1a46d719a59e8c8%22&amp;size=1024)
 
-我那个手机很多很多战友发来在国内去清明节，过清明节的感受，以及武汉很多战友说，武汉所有的墓地都是便衣警察，有的人想到十字路口烧纸被抓，火葬场旁边到处是警车。这到底为啥呢？你们就死了几百个人，你说你弄这干什么？然后现在他们真正的感受到了，冠状病毒死的人那可不是一个“0”，两个“0”的事儿了，更夸张的事情，战友们发现了很多的事情，我在这儿不说了吧，所以明天我的直播说说，很多战友让我要直播给大家聊聊，那我就聊聊吧。
+**简评：**
 
-I received many messages from fellow fighters in mainland China, telling me their feelings about the Tomb-Sweeping Day. Many fellow fighters in Wuhan said there were undercover police everywhere in cemeteries. Some people wanted to burn some joss paper at street crosses, but were arrested. There were police cars everywhere close to crematoriums. Why? Isn’t it just a few hundred people died? Why do you need to do all these? Now they truly feel that the number of deaths from the coronavirus should have one or two more zeros at least. What’s more absurd is that our fellow fighters have found out many more things, which I can’t say now. I will talk about it on my broadcast tomorrow. Many fellow fighters asked me to broadcast and chat a little bit.
+新中国联邦郭文贵先生透露，美国政府已经完成了一份关于新冠病毒的白皮书，但是发布受阻。为什么受阻？
 
-另外一个明天还聊一个重点，共产党啊..咱是以钱灭共，以毒灭共，共产党正在以钱灭美，在这之前我不能说，我要说了以后吧，他就不干了，他就不干了，美国人就不信，说咱造谣，胡说八道，是吧？现在美国人已经知道了，上一周美国人感受到了，啊..Miles,你说的有道理，他动了手了我再说，今天不搞重磅的重磅了，是吧，共产党以钱灭美咋灭的？他是灭白计划其中，他必须他要以钱灭美，以钱灭美就那几招儿，你们想听吗？咱明天上午9:30见。
+郭文贵先生和科学家闫丽梦博士一年前就预测到新冠病毒会大爆发，并且会产生变异。西方认为疫苗越快出来，疫情就越快过去。62%的英国人赞成疫苗护照，然而，在接种疫苗并建立群体免疫的时候，新的变异病毒正在欧洲和美国肆虐。并且没有科学证明最初的疫苗对变异的病毒，尤其是巴西的变种病毒有效。巴西外交部长声明病毒来自中共国，不放心接种中共国疫苗，因为它只有50%的有效率，随后他被迫辞职。
 
-Another important thing that we will talk about tomorrow is that the CCP is planning to take down the U.S. with money [a currency war], as opposed to our taking down the CCP with financial activities and the truth about the virus. I didn’t say it earlier because if I exposed it prematurely, they might postpone or quit their plan, and then Americans would not believe me or even blame me for lying to them, right? Now Americans have been aware of it. It was last week. They said, “Miles, what you said makes sense, but we will wait for them to move first, then we will react.” So, there won’t be any bombshells for today, alright? How can the CCP take down the U.S. with a currency war? It’s part of their Extinction of the White People Plan. They will for sure implement their plan of taking down the U.S. with a currency war. They have only a few tricks. Do you want to hear? See you tomorrow at 9:30 AM.
+中共是病毒的制造者，他们不在乎会杀死多少人，他们只想控制权力和金钱。而全球的精英们为了利益，对普通民众的生死视而不见，他们成为了中共压迫和残害人民的帮凶。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/606a6c2fdbc8001854a58991](https://gtv.org/getter/606a6c2fdbc8001854a58991) (00:40-2:15)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1050330/](https://gnews.org/zh-hans/1050330/)
+- **[GTV链接](https://gtv.org/video/id=6067355e49339063d0621a63)**
 
-* * *
 
-字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
+
+**视频字幕：**
+
+**Dr. Ming: **郭文贵先生透露，美国政府已经完成了一份关于新冠病毒的白皮书，但发布受阻。考虑到美国疾控中心主任警告说，随着感染人数的再次上升，美国正在走向 “毁灭垂临”，这份文件的重点大概是什么？你预计发布后会产生什么影响？
+
+**班农：** 我一直尊重郭文贵先生的学识。白皮书，我认为它是在川普政府时期就开始撰写了。然而，目前拜登政府在复阅。对我来说，关键是郭先生和闫丽梦博士在去年夏天就说过了，而现在真的正在发生。目前发生在欧洲、在德国和法国，特別是英国的这波疫情，是全新的一波。在欧洲是第三波，在美国这里是第四波了。
+
+我们的疾控中心主任——拜登政府疾控中心的现任主任，有一天确实在电视上哭着说，”毁灭垂临，我好害怕，第四波疫情來了。”这波疫情全面到來了。（去年）郭文贵先生就预测到了这会发生，闫丽梦博士也预测到了，然而西方並不想关注。他们说，“疫苗越快出來，疫情就越快过去。”
+
+然而会有其他的变种，无论是B117，或者特別是巴西的变种。郭文贵先生在去年春天的时候，基本上是一年前，就预测到了。稍后，可能是在4、5月份，变种是闫丽梦博士首先谈论的问题之一。就这个问题，郭文贵先生一直都是对的。他们提前就警告这一天的到来。
+
+“你注射疫苗的時候，你开始建立群体免疫力的时候，新的病毒变种也产生了。”
+
+如果你看一下新闻报道，这就是他们埋藏不愿报道闫博士的原因之一，尤其是在美国。他们谈论这波新的疫情，”这些共和党州長正在除去口罩強制令。”然而这不是核心。核心是我们的南部边境，是巴西的病毒变种。
+
+巴西博尔索纳罗政府本周基本上几乎倒台。埃內斯托-阿茹娜，外交部长，国防部长辞职。現在博尔索纳罗辞退了他的三大将軍，也可能他们自己辞职了。
+
+重点是埃內斯托，明博士，你的节目是要关注埃內斯托，他敢对中共开火。他有胆量说这个病毒来自中共国，我们不放心打中共国的疫苗，因为它只有50%的有效率，而且这是中共的数据，香港人不想要打，我们也不应该打。
+
+从根本上來說，是军方的商界把他逼走的，因为中共在巴西的滲透太深了。我的重点是，因为巴西病毒变种，巴西已经摇摇欲坠了。
+
+郭文贵先生认为，“嘿，他们不会追究的，哪怕只是自然变异。”这表明它不可能來自于自然，最初的病毒一定是人为增強的。这一点至关重要，因为我们现在正处于一場烈火风暴之中，德国，法国，英国，对吧？
+
+英国有一个民意调查出來了。就在我们——明博士和麦克及其团队，上节目的時候，英国的一项民意調查出來了。民调显示，62%的英国人认为现在人们需要疫苗护照，只有20%的人反对。
+
+人们开始变得害怕了，害怕得想要疫苗护照了。但是，重点是沒有人告诉他们，有沒有一个科学事实使我们知道最初的疫苗对这些变种， 特別是巴西的变种有效。
+
+这再一次回到核心问题。西方国家太软弱，无法面对核心问题。这一切的核心问题不是一个科学问题，不是一个公共卫生问题。
+
+核心问题是有一个跨国犯罪组织，它已经恐吓了中国人民70年，他们不在乎杀了多少中国人。他们不在乎对中国做了什么。只要他们能完全控制权力和金钱，这才是他们在乎的一切。他们在全世界的走狗，现在都在这次疫情中暴露出來了。
+
+这次疫情影响的人是谁呢？是穷人，是巴西的老百姓，是美国的老白姓，是英国的老百姓。这是一个全球性的现象。什么是老百姓？根本上来说，就是劳动人民，小人物。老百姓是全球性的。受到冲击的是老百姓，而全球的精英们却视而不见，开始转而成为中共压迫人民的工具。
+
+**[完整访谈视频](https://youtube.com/embed/EgrTmyAAueM?enablejsapi=1)**
+
+**主播：**Dr. Ming, Mike, Dr. TCC, Castle, Daniel 和 Sky Sun
+
+- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
+- [YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)
+
+
+***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三直播***
+
+编辑：【英国伦敦喜庄园编辑部】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/tijNpFQS1jGtE/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/tijNpFQS1jGtE/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0

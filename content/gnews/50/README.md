@@ -1,49 +1,59 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 全美史上最大集体诉讼：起诉多米尼投票机公司侵犯了美国公民的诉讼
-` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1051911/)
+## 2021/03/31-班农专访 （4）：经济即将崩溃，中共备战台湾
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1051980/)
 
-作者：滴水穿石 ，  Rosemary
+视频字幕：雨中漫步 | 听写/翻译：Wade| 校对：BZ |简评/文字整理/编辑：胖丁|Page：小雨
 
-近日，中国将对2016年，对2019年1600亿美元的对多米尼投票机公司等的集体诉讼，起诉他们侵犯了美国公民的诉讼。 如果你是美国公民、而且已经注册成为选民并且参与了2020年总统大选投票，你可以加入针对Dominion、Facebook，以及一些民选官员的这项集体诉讼。 中国就为美国的一个中国最大的民事权利诉讼！ 如果你符合条件请一定要参加，不参加就是纵容罪犯光天化日之下侵犯你的公民权利，欺凌美国宪法！
+[!\[\]()!\[\](https://spark.adobe.com/page/8qptuq4CxvUNr/images/3f8480fa-ff42-48cc-97f6-c122c5e9edfb.jpg?asset_id=2106f7ce-8e6d-4ec7-8917-a288ad2c5af0&amp;img_etag=%229f5b634533bbd6ce1daf937e5034c507%22&amp;size=2560)](https://spark.adobe.com/page/8qptuq4CxvUNr/images/3f8480fa-ff42-48cc-97f6-c122c5e9edfb.jpg?asset_id=2106f7ce-8e6d-4ec7-8917-a288ad2c5af0&amp;img_etag=%229f5b634533bbd6ce1daf937e5034c507%22&amp;size=1024)
 
-申请说明：
+**简评：**
 
-感谢您对加入这一诉讼的兴趣。 为了加入集体诉讼，您必须是在2020年，选举期间登记投票的美国公民，并且有理由相信您的公民权利受到了诉讼中所列被告的侵犯。 要想证明成为此次集体诉讼中的原告，需要提供两样东西，一是你有照片的身份证正反面的清晰照片，二是经过宣誓的公证宣誓书，说明你知道被告的错误行为。
+美国驻帕劳大使与帕劳总统一同对台湾进行了为期5天的访问，这是过去42年来的首次。中共党魁习近平为了转移国内经济面临崩溃的压力，加紧备战台湾。台湾和南中国海的安全迫在眉睫。
 
-一旦这2018年对公司接受并确定是完整和准确的，那么您将被通知您被接受加入集体诉讼。 所有文件可以通过附件或通过我们的网站dominionclassaction.com提交，提交时使用的是您与我们联系的行盘。
+川普之前的美国政府一直纵容中共的畸形壮大，现任拜登政府的软弱更加助长了中共的狂妄和嚣张。拜登政府需要强硬起来，直截了当地宣布中共对南中国海没有所有权。美国需要保护台湾的安全，保证南中国海的自由通航。否则中共会得寸进尺，不断扩张，最终会导致发生热战。美国需要行动！！！
 
-第一次提交的文件是两张照片，包括您身份证的正面和背面。
+- **[GTV视频链接](https://gtv.org/video/id=6065ecce49339063d061e29d)**
 
-证件照上的地址必须与您在2020年选举时登记的投票地址一致。
 
-不要允许有阴影，使用良好的灯光照亮整个身份证。
 
-确保图像聚焦良好，文字清晰可辨。
 
-第二份材料是一份完整的、签名的、经过公证的宣誓书，以使你有资格在集体诉讼中，以使原告主张受到损害的民事权利。
+**视频字幕：**
 
-使用附件中的模板并参考我们目前的原告宣誓书来完成您自己的宣誓书，或咨询您的律师以获得帮助。
+**Sky Sun：**美国驻帕劳大使与帕劳总统一同对台湾进行了为期5天的访问，这是过去42年里的首次。这样的行动对美国中国台湾的三边关系有什么影响？
 
-在您所在国家的公证人面前签署宣誓书。
+**班农：**这是个很好的问题。我认为这些細小的动作是好的。但我们必须更加果敢。我认为我们必須更加果敢，在台湾导弹防卫方面。我认为习近平目前在党内加紧备战，因为严峻的国内经济形势。
 
-将宣誓书扫描成PDF格式上传，或将宣誓书的每一页单独制作成JPG/PN格式，构成一份完整的法律文件上传。
+尽管中共公布的经济数据不差，但真实的数据显出了中共内部经济的严重滑坡。为了转移人们的视线，我认为习近平在台湾和南海上会更加激进。
 
-当您的申请被确定为可受理后，您将通过电子邮件收到一份费用协议，以便在线签署和提交。
+回看几周前的阿拉斯加会谈。布林肯在所谓人权问题上唧唧歪歪两分钟。他遭到杨洁篪长达20分钟的炮轰，彻底的羞辱。中共是在试探西方的決心。我觉得这种双边行动是不错的，但我们需要的远远不止于此。
 
-如果您有更多的问题，请不要犹豫与我们联系。 在您加入我们的集体诉讼，我们将很荣幸地帮助您。
+我们需要拜登政府直截了当声明中共对南中国海沒有所有权。川普之前的美国政府对中共的纵容是荒唐的。拜登政府需要对台湾人民的安保做出直接声明。如果不这么做，就无异于鼓励中共得寸进尺。
 
-感谢您勇敢地与我们一起这一步，并为您的公民投票权而站起来。
+我一直强调，只有对抗中共的超限战，才能避免热战。如果不这么做，那么热战注定无法避免。
 
-宣誓书可以在UPS  STORE做公证： [https://www.theupsstore.com/store-services/notary-services](https://www.theupsstore.com/store-services/notary-services)
+我年轻的時候是海军军官，曾在南中国海巡航，保护那里所有人包括中国人的自由通航。我的战舰在1970年代多次造访台湾。
 
-若想加入诉讼➡，请点击链接 ️https://DominionClassAction.com/
+如果我们今天不对抗中共这个跨国犯罪集团，台湾的自由和安定必将消亡。我认为，在拜登政府的带领下，西方有机会通过果決的行动扭转这样的趋势。
 
-观看视频▶️https://youtu.be/GP1ZQ54MDco
+**[完整访谈视频](https://youtube.com/embed/EgrTmyAAueM?enablejsapi=1)**
 
-阅读这篇原语➡️[https://100percentfedup.com/breaking-you-can-join-the-160-billion-class-action-lawsuit-against-dominion-zuckerberg-facebook-elected-officials-others-first-of-its-kind/](https://100percentfedup.com/breaking-you-can-join-the-160-billion-class-action-lawsuit-against-dominion-zuckerberg-facebook-elected-officials-others-first-of-its-kind/)
+**主播：**Dr. Ming, Mike, Sky Sun，Dr. TCC, Castle 和Daniel
 
-编辑：旧金山农场编辑组
+- [GTV-UK-3号台](https://gtv.org/user/5e862370de21f24fe9135579)
+- [英国伦敦喜庄园英语频道YOUTUBE](https://www.youtube.com/channel/UCeuTI0sjev6RvTKAH2cMYWQ)链接
+
+
+***欢迎关注英国伦敦喜庄园英语频道《班农访谈》节目每周三直播***
+
+编辑：【英国伦敦喜庄园编辑部】
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
+
+
+[!\[\]()!\[\](https://spark.adobe.com/page/8qptuq4CxvUNr/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/8qptuq4CxvUNr/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 
 0
