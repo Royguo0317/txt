@@ -1,242 +1,75 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021/04/05 英喜时事速递
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1051779/)
+## 【世事解评】一个非专业人士的学习笔记——闫博士第三篇报告详读浅释（3）
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1050402/)
 
-收集：Filon，Near，Daniel，感言，文大石，Cindy
-*（世界协调时）部分信息收集于网络世界的各方，请自行甄别*
+作者：纽约香草山写作一组 霍比特人
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/8718919f4e138c54e2274b6fcc0e44a2v1_max_755x425_b3535db83dc50e27c1bb1392364c95a2.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3-1-2.jpg)
 
-## Gnews：[“病毒之父”即将面临的下场 《解雇福奇法案》已提交给国会](https://gnews.org/zh-hans/1047323/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4.3-1.jpg)
 
+Significant movements had also taken place in the scientific circle in the west. On February 19th, 2020, a statement signed by 27 experts was published on the influential journal *Lancet13*. In this statement, the scientists asserted a natural origin of SARS-CoV-2 and condemned “conspiracy theories” that suggested a laboratory origin of the virus. It was later revealed through exposed email exchanges that, intriguingly, their assertion on the virus’ origin was accepted by the signees in the absence of any scientific discussions or supporting evidence14,15. Furthermore, the statement was organized secretly by Dr. Peter Daszak, CEO of the non-profit *EcoHealth Alliance*and long-term collaborator of Dr. Zhengli Shi and the WIV. In fact, it was through Daszak and *EcoHealth Alliance*that millions of NIH funding, which are US tax dollars, were channeled to the WIV and used presumably in military-civil fusion projects there. This conflict of interest (COI) was very likely what prompted Daszak to keep his central role in the *Lancet*statement under the radar. Though, the same COI somehow failed to discourage him from leading the WHO investigation of the origin of COVID-19 in 2021 and subsequently “concluding” that SARS-CoV-2 is “*extremely unlikely*” to have come from a laboratory. Interestingly, when the NIH funding was discontinued for *EcoHealth Alliance*in 2020, Daszak was immediately offered a donation of half a million dollars from an anonymous foundation (Figure 1). It is not known whether or not this donation played any role in encouraging Daszak’s actions in supporting the CCP government.
 
-> 评论：福奇终将因与中共沆瀣一气的真相被曝露而受到正义的审判
+【译】巨大的行动同样在西方科学界展开。2020年2月19日，27名专家联名在著名杂志《柳叶刀》上发文，称科学家们断言新冠起源于自然，并谴责“阴谋论”，即认为新冠起源于实验室的说法。后来通过揭露的邮件可以看到，有趣的是他们对新冠自然起源的断言是在没有任何科学讨论和支持性证据的情况下签署的。另外，宣言是秘密地由彼得·达扎克——非英利利组织环保生态健康联盟的CEO兼石正丽博士和武汉所的长期合作者——组织的。事实上，就是通过达扎克和环保生态健康联盟，成百万的NIII基金的钱——都是美国纳税人的钱——流向了武汉病毒研究所被用于军民融合项目。这种利益冲突（COI）很可能推动达扎克低调地扮演了《柳叶刀》事件的主角。同样的利益冲突使他无法担任2020年WHO调查COVID-19起源的领导，该调查随后得出结论说新冠极不可能来自实验室。有趣的是，当NIII基金在2020年中止流向环保生态健康联盟时，达扎克立即被一个匿名组织提供了50万美元赞助（图1）。这一赞助在达扎克支持中共政府的行动中扮演了什么角色尚未可知。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片18.png)
+*Figure 1. Exposed email shows that an anonymous donation of $500,000 was made to EcoHealth Alliance to partially offset the NIH funds withdrawn.*
 
+【译】（图1邮件大意）
 
-## Gnews：[从雷布斯的崛起看雷斯拉的倒下](https://gnews.org/zh-hans/1049207/)
+兰迪·谢克曼（诺奖得主）写道：
 
-![image]()![image](https://i.ibb.co/BCznW7j/image.png)
+我是理查·罗伯茨团队成员并帮助串联更多获奖者参加阿扎和科林斯请愿。我们不期待他们做出回应，但希望给你的重要工作做出帮助性的贡献，因而参与串联私人资金以弥补你的损失。我们的第一个成功是获得了一个以各种理由搞匿名赞助的基金的支持，理由包括支持生物医学科学。我很高兴报告这个团队将提供给环保生态联盟50万美元，以至少部分弥补从你的项目中抽走的NIII基金。因为他们希望保持匿名，我将很高兴担当中间人给你的项目提供资金。我们可以继续沟通如何进行下一步。
 
+图1揭露的邮件显示一个匿名组织为环保生态健康联盟提供了50万美元以弥补其因为NIII基金抽走遭受的损失。
 
-> 评论：中国大陆的互联网企业只不过是借用CCP独裁垄断的资本才能苟且生存，根本没有企业核心竞争力。所谓的国内市场也是要被统领恩准方可拥有，随时可能无征兆轰塌。
+【浅释】“利益冲突”（COI）是法律用语，简单说就是甲和乙打官司，乙有个做律师的儿子丙，丙是不能接受甲的委托的，那样他就处于利益冲突中，而不能保证为委托人提供合格的服务。这里达扎克与中共有巨大金钱关系，是不可以接受西方的委托调查病毒来源的。他秘密扮演串联的角色为中共服务，并可疑地获得了来路不明的50万美元。
 
+【浅释】“阿扎和科林斯请愿”指的是2020年5月20日，77名美国获奖者要求美国国立卫生研究院（NIH）院长科林斯，以及卫生和公共服务部部长阿扎采取紧急行动，审查NIII基金抽走资金中止与中国合作研究蝙蝠冠状病毒的决定。也就是说，这些所谓科学家在新冠爆发后，为了钱（科研资金）要求继续与中共合作进行蝙蝠冠状病毒的研究。
 
-## Gnews：[中菲对峙！中共掩耳盗铃南海灰色冲突日渐升温](https://gnews.org/zh-hans/1049185/)
+It is also worth mentioning that Dr. Linfa Wang from Duke-NUS Medical School and Dr. Ralph Baric from the University of North Carolina, both long-term collaborators of Zhengli Shi and the WIV, also consciously distanced themselves from the *Lancet*statement to make sure that the statement “*doesn’t link back to our collaboration*” because “*(o)therwise it looks self-serving and we lose impact*” (Figure 2)16.
 
-![网上谈兵： 回顾一下黄岩岛事件始末，可以估计一下这次事件可能的发展- 由北京哥儿们发表- 文学城]()![网上谈兵： 回顾一下黄岩岛事件始末，可以估计一下这次事件可能的发展- 由北京哥儿们发表- 文学城](http://static.statickksmg.com/image/2012/11/30/a007fa4be1736c9d532e795b65a6f64a.jpg)
+【译】同样值得注意的是来自杜克-新加坡国立大学的王林发博士和北卡罗来纳大学的拉尔夫·巴里克，两者都是石正丽以及武汉所的长期合作伙伴，也有意远离《柳叶刀》声明以确保该声明不会“牵连到我们的合作”，因为“否则会显得自私自利而我们将失去名声”。（图2）
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片20.png)
+*Figure 2.**Exposed email**shows Peter Daszak, Linfa Wang, and Ralph Baric purposely avoided signing the Lancet statement although Daszak eventually signed likely because of the central role he played in organizing this statement.*
 
+【译】（图2邮件大意）
 
-> 评论：CCP在东南亚这些小动作并非临时起意，都是其长期计划的一部分。意图试探全球的反应，如果世界听之任之，中共会得寸进尺，扩大散布邪恶。
+拉尔夫发的邮件：标题：不需要你在声明上签字。 内容：我也认为这是个好决定，否则看起来自私自利而我们会失去名声。
 
+达扎克发的邮件：昨晚我和（王）林发谈了关于我们散发的声明，他认为，我也同意，你、我和他都不应该在声明上签字，这样能离它远一点因而不会产生反效果。
 
-## Gnews：[上海公安局数据库被曝光 中共数字监控不分种族中外](https://www.gnews.org/zh-hans/1047940/)
+吉姆·哈格斯、琳达·赛芙、休谟·菲尔德和丽塔.科尔韦尔我相信会签的，然后今晚我会给一些关键人物发一圈。那样我们就能用这种不会牵连到我们的合作的方式把它推开一点，以最大限度弄出一种独立的声音。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-1.jpg)
+图2：揭露的邮件显示彼得·达扎克、王林发和拉尔夫有目的地回避签署《柳叶刀》声明，尽管达扎克最后因为他扮演的中心人物角色不得不签了。
 
+【浅释】这里的叙述以及这些邮件表明，这些与中共勾结的西方科学家为了钱秘密地私下串联制造出伪科学的巨大声音为中共服务，而他们很清楚这是自私自利和丢脸的，所以尽量伪装成与此无关，无耻而卖力地为中共洗地。
 
-> 评论：上海公安局数据库的曝光是中共对新疆实施种族灭绝的有力证据，并且这只是其整张大网很小的一部分。这些一条一条被暴露的证据互相佐证着中共从执政以来就没有想过好好与世界相处，一直有计划的在侵入与控制世界。
+In addition to the *Lancet*statement, on March 17th, 2020, an opinion article titled “*The Proximal Origin of SARS-CoV-2*” was published on the top journal *Nature Medicine**17*. Here the authors also asserted a natural origin of SARS-CoV-2 despite that no convincing evidence was provided and that their theory was built upon the fabricated RaTG13 virus published by Zhengli Shi. Among the five authors of this article was Dr. Ian Lipkin from Columbia University, who, like Daszak, has close ties with China and has received several prestigious awards from the Chinese Communist Party (CCP) government in the past two decades18,19.
 
+【译】作为对《柳叶刀》声明的补充，2020年3月，一份名为“接近的新冠起源”的观点文章发表在顶级刊物Nature Medicine上。该文作者也断言新冠起源于自然，尽管没有提供令人信服的证据，且其理论是建立在石正丽伪造的RaTG13基础上的。五位作者中有来自哥伦比亚大学的伊恩·利普金博士，他和达扎克一样与中共有密切关系且在过去二十年里接受了中共许多显赫的奖励。
 
-## 参考消息 ：美国大使搞“小动作”，在向中方发信号？
+The *Lancet*statement and the *Nature Medicine*article, although baseless scientifically, both concluded that SARS-CoV-2 is a natural occurring pathogen. These publications had subsequently been promoted greatly on traditional media, social media, and other platforms. The result of these combined operations was to declare to the scientific community: *SARS-CoV-2 having a natural origin is the official, accepted view; any dissenting voices would be condemned and dismissed by experts of the field*.
 
-![美国大使搞“小动作” 在向中方发信号？_手机新浪网]()![美国大使搞“小动作” 在向中方发信号？_手机新浪网](https://k.sinaimg.cn/n/sinakd20210403s/106/w853h853/20210403/32b5-knipfse0526082.jpg/w700h350z1l10t10e8c.jpg)
+Therefore, unsurprisingly, although various scientific evidence continued to emerge pointing to the laboratory origin of SARS-CoV-2, much of such information was suppressed fairly efficiently. The public’s opinion of the virus’ origin remained dominated by the natural origin theory.
 
+【译】《柳叶刀》声明和Nature Medicine文章，尽管基本上都是非科学的，却都得出结论说新冠是自然出现的病毒。这些刊物被大量推荐在传统媒体、社交媒体和其他平台上。这些做法的综合结果就是向科学界宣布，新冠起源于自然是官方结论，是既定的观点，任何不同的声音都会被自然起源理论所谴责。
 
-> 评论：拜登政府并没有改变前川普总统政府的对台政策，并且基于之前的对台政策又往前推进了一步，这让中共感到恼羞成怒。
+However, the truth was not meant to be blocked. While Dr. Yan continued to use the *LUDE Media*to expose various facts of COVID-19, including providing intelligence information (For example, pointing out that the *Lancet*statement was an organized effort to suppress the laboratory origin theories) and sharing her expert analyses on aspects of asymptomatic infections, antibody evaluation, autopsy studies, treatment strategies, vaccine development, etc., her identity was eventually discovered by the CCP government, which forced her to leave Hong Kong. At the end of April 2020, Dr. Yan successfully escaped from Hong Kong and arrived at the US. Here she continued to reveal the truth of SARS-CoV-2 to the world. On July 10th, 2020, Dr. Yan made her first public appearance on *Fox News*and, since then, has been continuing to spread the truth of COVID-19 on different platforms. The CCP’s defamation of Dr. Yan, which took place on both traditional media and social media involving CCP’s cyber army, also started right after Dr. Yan’s escape and came in huge waves continuously since then.
 
+【译】总之，真相被有意遮盖。当闫博士继续在路德社上揭露各种COVID-19的真相，包括提供情报（例如指出《柳叶刀》声明是有组织的试图压制实验室起源说的努力）并且分享她在各个方面——无症状感染、抗体评估、尸检报告、治疗方案、疫苗发展等——专业的分析的时候，中共终于发现了她的身份，这迫使她在2020年4月底离开了香港。闫博士成功逃离并抵达美国，在这里她向全世界继续揭露新冠的真相。2020年10月，闫博士第一次在福克斯新闻上公开露面，并且从那时起在各种平台持续传播COVID-19的真相。自那时起，中共在传统媒体和社交媒体（以其网络军）上对闫博士的诽谤也紧随她的出走而持续如巨浪般涌来。
 
-## 循道而行 担当正义（和音）
+（未完待续）
 
-![循道而行 担当正义（和音）--党史学习教育官方网站--人民网](https://lh3.googleusercontent.com/proxy/VKotBSdsmx7FbEYjJyUBUj6jHElNscv3nComsncb1ObmnLUl4wBjnSbOlxKKKrsyn418-Z1nSdg8GucUNDmx7UGRhhoBVozwbVhlgtIQ68Gj674VzTNTFoKhqQ)
+校对/发稿：飞虹
 
 
-> 评论：CCP的“执政密码”就是以假治国，以骗治国，以黑治国，对西方采用BGY手段，慢慢渗透，最后统治全世界！
 
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-## 雷锋精神代代传（红色之旅·百年记忆）
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-![雷锋精神代代传（红色之旅·百年记忆）_螺丝钉]()![雷锋精神代代传（红色之旅·百年记忆）_螺丝钉](https://p1.itc.cn/q_70/images03/20210404/c85732ba02934153989331b828b90336.jpeg)
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-
-> 评论：CCP用假的“雷锋精神”欺骗国人几十年了，现在还在骗这代人，国人被共产主义魔咒洗脑了几十年了，该醒来了
-
-
-## 环球网：中国驻塞尔维亚大使馆凭吊邵云环等烈士
-
-![中国驻塞尔维亚大使馆凭吊邵云环等烈士]()![中国驻塞尔维亚大使馆凭吊邵云环等烈士](https://1400174353.vod2.myqcloud.com/d1db0086vodtranscq1400174353/860be4a65285890816430730318/sampleSnapshot_10_5.jpg)
-
-
-> 评论：清明节在中国有了几千年的历史，今年CCP在清明节气期间全网铺天盖地宣传缅怀国家烈士的报道，似乎是又想以其70年的执政历史来代表华人几千年的文化传统，宣扬爱共主义。
-
-
-## 张文宏权威解答！中国为何优先给年轻人接种疫苗？我们啥时候能自由出行
-
-![张文宏权威解答！中国为何优先给年轻人接种疫苗？我们啥时候能自由出行_人群]()![张文宏权威解答！中国为何优先给年轻人接种疫苗？我们啥时候能自由出行_人群](https://p1.itc.cn/q_70/images03/20210404/a5394d58bd3b4f239788793c1a436032.png)
-
-
-> 评论：在强国，新闻没有可信的，都是CCP带风向宣传的工具，疫苗明知道不安全，却还要全国接种，天灭中共早一日到来，国人就少一分伤害！
-
-
-## 上观 ：11次激烈交锋，华春莹戳破BBC谎言
-
-![11次激烈交锋，华春莹戳破BBC谎言- 万维读者网]()![11次激烈交锋，华春莹戳破BBC谎言- 万维读者网](https://pub.creaders.net/upload_files/image/202104/20210403_16175001513472.jpg)
-
-
-> 评论：华大妈没有戳破BBC谎言而是在打乱仗而已，口炮上的胜利并不是真正的胜利只不过是阿Q式的精神胜利法。逞一时口舌之利并不能改变中共在国际上的事实处境。
-
-
-## 北京日报客户端：叙利亚危机是欧盟填不上的“无底洞”
-
-![叙利亚危机是欧盟填不上的“无底洞”_手机新浪网]()![叙利亚危机是欧盟填不上的“无底洞”_手机新浪网](https://k.sinaimg.cn/n/sinakd202144s/640/w720h720/20210404/4320-knipfse1426341.jpg/w700h350z1l10t10a86.jpg)
-
-
-> 评论：中共想再次借叙利亚危机在中东制造关注点来转移西方的视线。
-
-
-## 安徽一大学生拒服兵役被处罚：2年内不得复学
-
-![安徽一大学生拒服兵役被处罚：2年内不得复学_蜀山区]()![安徽一大学生拒服兵役被处罚：2年内不得复学_蜀山区](https://p4.itc.cn/q_70/images03/20210404/3552381d307f477d8741915898a229b1.png)
-
-
-> 评论：CCP统治中国几十年，中国遍地疮痍，各种奇葩事件，国人如同行尸走肉，自私自利，最基本的人性缺失，没有常识，反抗CCP，从我做起！
-
-
-## 100平方“活人墓”28万包干 当地政府睁只眼闭只眼？记者调查
-
-![100平方“活人墓”28万包干当地政府睁只眼闭只眼？记者调查→ | 新西兰联合报]()![100平方“活人墓”28万包干当地政府睁只眼闭只眼？记者调查→ | 新西兰联合报](https://ucpnz.co.nz/wp-content/uploads/2021/04/100e5b9b3e696b9e6b4bbe4babae5a29328e4b887e58c85e5b9b2-e5bd93e59cb0e694bfe5ba9ce79d81e58faae79cbce997ade58faae79cbcefbc9f.jpg)
-
-
-> 评论：俗话说：上梁不正下梁歪，CCP高高在上不做人事，下面的除了捞钱就是捞钱，什么钱都敢挣，信仰的缺失，太可怕了！
-
-
-## 清明节殡葬行业调查：送别一位逝者到底需要花多少钱？
-
-![清明节殡葬业调查：送别一位逝者需花多少钱？ - 大陆资讯- 倍可亲](https://nimg.ws.126.net/?url=http%3A%2F%2Fdingyue.ws.126.net%2F2021%2F0403%2F352d4c08j00qqzquk002ic000i300chg.jpg&amp;thumbnail=650x2147483647&amp;quality=80&amp;type=jpg)
-
-
-> 评论：在强国，百姓，生不起，活不起，死不起，一个人从出生到死亡，CCP剥削再剥削，韭菜割一茬又一茬，挣小孩的钱，挣病人的钱，挣死人的钱，简直丧尽天良！
-
-
-## 参考消息：【西媒观察#中国经济规模加速逼近美国#】
-
-![西媒观察中国经济规模加速逼近美国_手机新浪网]()![西媒观察中国经济规模加速逼近美国_手机新浪网](https://k.sinaimg.cn/n/sinakd202144s/199/w600h399/20210404/5c4f-knipfse2544176.jpg/w700h350z1l10t10801.jpg)
-
-
-> 评论：中共用出口转内销的假数据继续维持中共迅猛发展的假象。
-
-
-## **国台办发布：【习近平向台湾列车出轨事故遇难同胞表示哀悼】**
-
-![台湾列车重大事故习近平以中共总书记身份表高度关切与哀悼伤亡::: 六度新聞]()![台湾列车重大事故习近平以中共总书记身份表高度关切与哀悼伤亡::: 六度新聞](https://s3.six-degrees.io/upload/media/20210403/480/56a78e1fa6c8582757f6f55d092f79ee.jpg)
-
-
-> 评论：黄鼠狼给鸡拜年，今天照样子战机骚扰，真不要脸。
-
-
-## **搜狐：“只要接手，房子白送！”单价2.5万如今卖8000还送车位，环北京楼市惊现“膝斩”**
-
-![只要接手，房子白送” 环北京楼市惊现“膝斩”：单价2.5万如今卖8000还送车位_香河]()![只要接手，房子白送” 环北京楼市惊现“膝斩”：单价2.5万如今卖8000还送车位_香河](https://p5.itc.cn/q_70/images03/20210405/37d75306cb3e4918a371dc4a94d13b23.jpeg)
-
-
-> 评论：环北京楼市出现价格大跌。
-
-
-## **腾讯：心疼！华为全球份额仅剩4％，荣耀仅剩2％**
-
-![心疼！华为全球份额仅剩4％，荣耀仅剩2％_腾讯新闻](https://inews.gtimg.com/newsapp_bt/0/13350233651/1000)
-
-
-> 评论：全世界看清中共用华为作为偷盗监控工具的阴谋后，全面阻断华为
-
-
-## **腾讯：注意：以后炒房，要负法律责任！**
-
-![这个国家楼市火爆公职人员利用内线消息炒地皮|总统|炒房_网易财经](https://nimg.ws.126.net/?url=http%3A%2F%2Fcms-bucket.ws.126.net%2F2021%2F0403%2F36522c18j00qqypzh0056c000u000k0c.jpg&amp;thumbnail=660x2147483647&amp;quality=80&amp;type=jpg)
-
-
-> 评论：广州发布新规定：”对不实传播房地产政策和市场运行情况、捏造和散布房价上涨言论、制造市场恐慌情绪等扰乱市场秩序的违法违规行为，相关部门将依法依规严肃查处。” 这究竟是为防房产涨价，还是房地产泡沫破灭后的大崩盘？
-
-
-## **搜狐：银行开始大洗牌，一大批银行将消失，又一家3000亿级银行诞生**
-
-![银行开始大洗牌，一大批银行将消失，又一家3000亿级银行诞生_合并]()![银行开始大洗牌，一大批银行将消失，又一家3000亿级银行诞生_合并](https://p4.itc.cn/q_70/images03/20210404/d454ce1ef0c447679db0d49a97e5beb5.jpeg)
-
-
-> 评论：中共将把很多小银行”合并”为新的银行。这是在用所谓的”合并”化解掉小银行的破产潮？
-
-
-## 新头条：新疆人口一下差了100万人？统计维族人口前后不一中共玩数字游戏被抓包
-
-![新疆人口一下差了100萬人? 統計維族人口前後不一中共玩數字遊戲被抓包| 中國| 新頭殼Newtalk]()![新疆人口一下差了100萬人? 統計維族人口前後不一中共玩數字遊戲被抓包| 中國| 新頭殼Newtalk](https://s.newtalk.tw/album/album/1/605eed0d96260.jpeg)
-
-
-> 评论：新疆统计局发布的《2019新疆统计年签》数据，2010年至2018年新疆维吾尔族人口增幅为14.82%；而新疆发展研究中心于新疆社科网发表的《关于境外炒作新疆人口问题的研究报告》声称，2010年至2018年新疆维吾尔族人口增幅为25.04%。怎么莫名奇妙的多了10%的人口，真是自己打脸自己的猪队友。
-
-
-## 新头条：华为2020年业绩增长4%成长率欲创十年新低
-
-![华为年报解读：高端市场战已如箭在弦|华为|财报|苹果_新浪科技_新浪网]()![华为年报解读：高端市场战已如箭在弦|华为|财报|苹果_新浪科技_新浪网](https://n.sinaimg.cn/tech/crawl/20170404/uThR-fycwymx3718685.png)
-
-
-> 评论：4%的成长率可以看出华为业绩在被美国及西方国家的制裁中，成长的空间越来越小。
-
-
-## 新头条：习近平掌解放军陷入3大无解死结
-
-![中國武力真的強？習近平掌解放軍陷入3 大無解死結](https://img-s-msn-com.akamaized.net/tenant/amp/entityid/BB19YcZx.img?h=315&amp;w=600&amp;m=6&amp;q=60&amp;o=t&amp;l=f&amp;f=jpg)
-
-
-> 评论：中共是靠造假起家的土匪，通过假偷骗经营的假擀面杖，关键时刻肯定不管用。中国民众也都不是无知的小粉红，不会做无畏的牺牲。
-
-
-## 新头条：华春莹打网球一身「洋货」 挨酸「嘴上说一套身体很诚实」
-
-![華春瑩打網球一身「洋貨」 挨酸「嘴上說一套身體很誠實」](https://s.yimg.com/ny/api/res/1.2/HiUOtLVdkxOI6VFhUc93hg--/YXBwaWQ9aGlnaGxhbmRlcjt3PTk2MDtoPTE1MzQuNTIzMDc2OTIzMDc2OA--/https://s.yimg.com/uu/api/res/1.2/3u7wMGw7V.13qaVSXv3ukQ--~B/aD0xMDM5O3c9NjUwO2FwcGlkPXl0YWNoeW9u/https://media.zenfs.com/zh-tw/newtalk.tw/c7ebfc92b56b3b5ecf65e1e783920913)
-
-
-> 评论：中共的本性就是「说一套做一套」
-
-
-## 喜站 推文：
-
-
-
-> 前美国步枪协会主席，前美国国家安全委员会成员諾斯(Oliver North)，认为新冠病毒是中共用来攻击美国的生物武器
-> 
-> 🆕嘻站新号 [pic.twitter.com/bgZL6SxlLF](https://t.co/bgZL6SxlLF)
-> — 嘻禧僖囍 (@xi\_GLB) [April 4, 2021](https://twitter.com/xi_GLB/status/1378667556240646146?ref_src=twsrc%5Etfw)
-
-
-
-
-> 评论：步枪协会相关代表人在媒体公开的讨论，代表着新冠病毒是超限生物武器这一概念的进一步背书与推动。
-
-
-## 央视网：接种新冠疫苗 构筑免疫屏障·专访张文宏 何时能自由出行？“明年春天可以期待”
-
-![何时能自由出行？张文宏：明年春天可以期待|24小时_网易视频](http://nimg.ws.126.net/?url=http%3A%2F%2Fvideoimg.ws.126.net%2Fcover%2F20210404%2FyHV5sNTtF_cover.jpg&amp;thumbnail=750x2147483647&amp;quality=85&amp;type=jpg)
-
-
-> 评论：翻译翻译就是：不打疫苗，谁都别想给我恢复自由。破此局唯有推动我们闫博士真相报告、推动病毒真相，才能有效打击这场全球疫苗实施计划。
-
-
-## 西安商报漩涡视频：爆满！北京八达岭长城发布客流黄色预警，启动三级应急响应
-
-![爆满！北京八达岭长城发布客流黄色预警启动三级应急响应_手机新浪网]()![爆满！北京八达岭长城发布客流黄色预警启动三级应急响应_手机新浪网](https://n.sinaimg.cn/sinakd20210404ac/390/w1279h711/20210404/2b02-knipfse2913886.jpg)
-
-
-> 评论：中国大陆所谓黄金周本质其实是大陆企业带薪休假福利的缺失。CCP捆绑百姓人为制造所谓“国家福利”施舍于民众，拉动经济。
-
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
-
-
-编辑：【英国伦敦喜庄园编辑部】
-![]()![](https://spark.adobe.com/page/lssxMILpTK9Im/images/af290d42-340f-4a42-878c-76b22138f20d.jpg?asset_id=e5ecf77b-fe7d-4ae8-b9ff-fbfaa105b8f4&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 0

@@ -1,38 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 华盛顿飘荡着一种不安情绪&nbsp; 说冠状病毒一定会再来而且更夸张
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1051678/)
+## 习近平视察福建不探军队探武警，异常？
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1051648/)
 
-简述：在2021年4月2日的盖特视频中，郭先生说华盛顿的朋友透露说，“美国在华盛顿，飘荡着一种不安的情绪，说冠状病毒一定会再来的，而且一定会是更加夸张”。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210402-getter1.srt.txt)
-**华盛顿飘荡着一种不安情绪  说冠状病毒一定会再来而且更夸张**
+字幕听译：乐禧禧 | 字幕PR：yyshere | 字幕：雨中漫步 | 评论：CharlesS | 评论翻译：Marialu | 评论PR：许先生 | Page：青山
 
-**It’s Said in Washington D. C. that the Virus Will Come Back for Sure and Even More Ferociously**
+[!\[\]()!\[\](https://spark.adobe.com/page/2W8HUeWly9LGE/images/b5684ec8-5b03-4728-b684-a9a05e897381.jpg?asset_id=7789b301-73f8-4b9a-a07d-f852e8ef1ea3&amp;img_etag=%22f129a7775cb236affb35420255239152%22&amp;size=1024)](https://spark.adobe.com/page/2W8HUeWly9LGE/images/b5684ec8-5b03-4728-b684-a9a05e897381.jpg?asset_id=7789b301-73f8-4b9a-a07d-f852e8ef1ea3&amp;img_etag=%22f129a7775cb236affb35420255239152%22&amp;size=1024)
 
-我刚刚在录这个视频盖特之前，我和华盛顿的两个咱们的好朋友，我别说是谁了，通话。他说现在美国在华盛顿，飘荡着一种不安的情绪，说冠状病毒一定会再来的，而且一定会是更加夸张。很多人都害怕，要搬离华盛顿，很多纽约，像洛杉矶很多有钱人，更多人都要搬离，这一段跃跃欲试想回来的人，也都想撤回去了。
+在台海局势紧张之际，中共党魁习近平3月底视察离台湾最近的大陆省份福建，却并未视察当地驻军，而是于24日视察了驻地武警。
 
-Right before I started recording this Getter video, I talked over the phone with two friends of ours in Washington D.C., whom I don’t want to name. He said that there is this feeling of uneasiness which can be sensed in the air in Washington D.C. It’s said that the virus will come back for sure, and even more ferociously. Many people are anxious and plan to move out of Washington D.C. Many rich people in New York City and Los Angelos are moving out too. People who planed to move back previously are now turning back.
+有分析称此举为中共对台举措不定，而笔者认为需从3个方面来谈：什么是武警、为何视察武警部队、为何不去视察军队。
 
-所以说这个病毒对大家的威胁，它不分高低，不分男女，不分穷人和富人。共产党干了一件事，不分高低左右的，干了一把，就是冠状病毒。所以说是毒主啊，毒主，共产党非它莫属了。
+中共于17年底对其武警改制，使其从18年起由中共党中央、中央军委集中领导而与中共国务院脱钩。此举即习加强以警治国的明显举动。文贵先生直播中也曾透露，中共国实际的“枪把子”、“维稳力量”在警不在军。
 
-So, the virus threatens everybody and can’t differentiate lower-class people from the higher-class people, males from females, or the rich from the poor. The CCP has really done one thing that can affect everyone – the CCP virus! So, the CCP is the owner of the virus. “Owner of the virus” – the CCP definitely deserves this title.
+而为何要视察驻地武警？首先，上述已明确中共武警的“党卫军宪兵、督军”身份。而在台海局势紧张，中共即将对台动手的情况下，近台地区中共军力、部队将领权力势必增加。而中共领导人历来最关心其权力稳定，对其下属没有天然的同盟关系，只有利害绑定。在全球围剿中共的局势下，习皇是否放心掌握实力的地方军队？所以视察武警，即可能展示了习对军队权力不信任和担忧的内心本质。
 
-另外一个共产党，他们也掌握情况，中国的经济一塌糊涂。他说这个中国经济还能撑多长时间啊？我说我要跟你说撑三年，你信吗？他说，我不信。那不就完了嘛？三年以内嘛。
+而没有被视察的当地第73集团军，却可见在习到访前，在中共党报军报上接连发表“新干部们乘风破浪“等相关文章，军队内部受到调整可见一斑。
 
-They have also been aware that the CCP’s economy is in a mess. He asked how long it will take for the Chinese economy to collapse? I said, “If I say the economy may hold for another three years, will you believe me?” He said, “No, I won’t.” That’s right. Of course it will collapse within three years.
+那么不视察军队，是否如某些评论家认为的是对台举棋不定？或真如习所说的“推进融合发展“这般缓和吗？笔者认为可能性不大，这只是一种假意缓和。习在中共两会结束后迅速访问福建，且加强了对军队控制, 在墙内媒体密集吹风造势攻台的势头下，在中共内外部矛盾不断逼迫的情势下，并没有任何更大利益让其放弃犯台的恶念。而具体何时、何地、是否从福建等，笔者在此不做推测。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/60671f1c49339063d0621446](https://gtv.org/getter/60671f1c49339063d0621446) (00:12-1:16)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1045303/](https://gnews.org/zh-hans/1045303/)
+[!\[\]()!\[\](https://spark.adobe.com/page/2W8HUeWly9LGE/images/b8169fac-a0e9-4034-bc3b-fe010f04325c.jpg?asset_id=be9cd771-92ee-4b37-9c6f-b8a9d24d1c64&amp;img_etag=%22d0c993e70ce4f056e43d7986966f482e%22&amp;size=1024)](https://spark.adobe.com/page/2W8HUeWly9LGE/images/b8169fac-a0e9-4034-bc3b-fe010f04325c.jpg?asset_id=be9cd771-92ee-4b37-9c6f-b8a9d24d1c64&amp;img_etag=%22d0c993e70ce4f056e43d7986966f482e%22&amp;size=1024)
 
-* * *
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/U9F97ur)
 
-翻译：【7PawBear】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/2W8HUeWly9LGE/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)](https://spark.adobe.com/page/2W8HUeWly9LGE/images/5f252922-8534-476b-a824-827f4f372f36.jpg?asset_id=2dc784fd-dc93-4f64-b153-e60b7273e2dd&amp;img_etag=%22a8bb00791f167c919a809dcf9f5fb58b%22&amp;size=1024)
 
 0

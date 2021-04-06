@@ -1,22 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【路德时评粤语快报】04.03：美日韩国家安全负责人举行闭门会议 HBO王牌节目谈病毒来自实验室
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1051615/)
+## 华盛顿飘荡着一种不安情绪&nbsp; 说冠状病毒一定会再来而且更夸张
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1051678/)
 
-制作团队：【喜马拉雅-粤语组】流光飞舞、wen fei、一帘幽梦、鬼五
+简述：在2021年4月2日的盖特视频中，郭先生说华盛顿的朋友透露说，“美国在华盛顿，飘荡着一种不安的情绪，说冠状病毒一定会再来的，而且一定会是更加夸张”。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210402-getter1.srt.txt)
+**华盛顿飘荡着一种不安情绪  说冠状病毒一定会再来而且更夸张**
 
+**It’s Said in Washington D. C. that the Virus Will Come Back for Sure and Even More Ferociously**
 
+我刚刚在录这个视频盖特之前，我和华盛顿的两个咱们的好朋友，我别说是谁了，通话。他说现在美国在华盛顿，飘荡着一种不安的情绪，说冠状病毒一定会再来的，而且一定会是更加夸张。很多人都害怕，要搬离华盛顿，很多纽约，像洛杉矶很多有钱人，更多人都要搬离，这一段跃跃欲试想回来的人，也都想撤回去了。
 
-主要内容
+Right before I started recording this Getter video, I talked over the phone with two friends of ours in Washington D.C., whom I don’t want to name. He said that there is this feeling of uneasiness which can be sensed in the air in Washington D.C. It’s said that the virus will come back for sure, and even more ferociously. Many people are anxious and plan to move out of Washington D.C. Many rich people in New York City and Los Angelos are moving out too. People who planed to move back previously are now turning back.
 
-1. 美国总统拜登的国家安全顾问沙利文、日本国家安全保障局长北村滋和韩国青瓦台国家安保室长徐薰，在马里兰州安纳波利斯的美国海军学院举行了为期一天的会谈。三国达成一致，将继续对朝鲜施压促使朝放弃核和弹道导弹计划。此外还讨论了如何推动跟中共的供应链脱钩、台湾问题、COVID-19和推动缅甸立即恢复民主。美日韩三国原本可以通过视频会议进行事务协商，之所以要见面谈判肯定有更重要的事情需要商谈。首先美国需要在其中化解日韩民族矛盾。其次是要消除韩国对朝鲜的顾虑，美国此次特意邀请韩国安全官员来亲睹美国的军事实力，让其明白美国军事实力超过世界上任何一个国家数十年。这样日韩两国才能对美国彻底放心，不再惧怕中共的威胁。
-2. 美国著名肾病专家菲舍医生向观众科普为什么新冠病毒是生物武器，他说这个病毒经过实验室”功能增强”改造，更易于传染人，而”功能增强”实验的真正目的就是为了制造生物武器。路德社认为，由于中共几乎收买了全世界最有权威的冠状病毒专家，进行有系统的超限的错误引导，这逼得其他领域的有良心的专家不得不用自己的科学知识来进行证伪。闫博士三篇文章的影响力越来越大，科学界开始正视这个话题，而且对于中共病毒的讨论已进入一个更深层次的探讨，就是病毒功能增强型实验到底是为了研发生物武器，还是为了研发疫苗服务。随着中共病毒就是以舟山蝙蝠病毒为骨架改造而成的这一事实水落石出，全世界都将把焦点转移到中共军方身上。
-3. 大选过后缺少了川普话题，美国三大有线电视网新闻收视率大幅下跌，但是福克斯却成为全美收视率排名第一的新闻电视台。因为福克斯在这次病毒疫情上相信了我们爆料革命和闫博士，向全世界说出中共病毒真相，这让他在新闻界独占鳌头。这也反过来证明，一年多来我们的信息是真实的，得到了美国各界的认可。
+所以说这个病毒对大家的威胁，它不分高低，不分男女，不分穷人和富人。共产党干了一件事，不分高低左右的，干了一把，就是冠状病毒。所以说是毒主啊，毒主，共产党非它莫属了。
 
+So, the virus threatens everybody and can’t differentiate lower-class people from the higher-class people, males from females, or the rich from the poor. The CCP has really done one thing that can affect everyone – the CCP virus! So, the CCP is the owner of the virus. “Owner of the virus” – the CCP definitely deserves this title.
 
-【路德时评】[原视频链接1](https://youtu.be/8KIJ0zmB3FM)  [原视频链接2](https://youtu.be/ert86J2HNU8)
+另外一个共产党，他们也掌握情况，中国的经济一塌糊涂。他说这个中国经济还能撑多长时间啊？我说我要跟你说撑三年，你信吗？他说，我不信。那不就完了嘛？三年以内嘛。
 
-上传：流光飞舞
+They have also been aware that the CCP’s economy is in a mess. He asked how long it will take for the Chinese economy to collapse? I said, “If I say the economy may hold for another three years, will you believe me?” He said, “No, I won’t.” That’s right. Of course it will collapse within three years.
+
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60671f1c49339063d0621446](https://gtv.org/getter/60671f1c49339063d0621446) (00:12-1:16)
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1045303/](https://gnews.org/zh-hans/1045303/)
+
+* * *
+
+翻译：【7PawBear】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
