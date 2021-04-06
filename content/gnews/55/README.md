@@ -1,50 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新西兰伊甸农场大记事图库-1：回看战友一起走过的岁月
-` 喜马拉雅光影传镜` [轉載自GNews](https://gnews.org/zh-hans/1057620/)
+## 【战友观点】清明不该是“为了忘却的纪念”
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1058161/)
 
-编辑：喜马拉雅光影传镜
+#### 作者：豆豆视角
 
-镜头后的世界，总是可以穿越时光的阻隔，牵动心灵的共鸣和埋藏起来的深层记忆。泛黄的旧照片里往往雕刻着历历在目的岁月磨砺和瞬间欢愉。
+#### 编辑：翼族
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2614-iqfqmas8352024-3.jpg)
+图片来源：法新社
 
-当某天，我们回望，岁月里那些记不清的时刻也许都印记在张张图片与行动的路上…….
+《华盛顿邮报》4月5日报道：随着被感染人数和住院人数的增加，仅上周六一天，美国就有超过4百万人接受了中共病毒疫苗的注射，这是自去年12月开展这个项目以来最高的一天。白宫顾问安迪·斯拉韦特（Andy Slavitt）在新闻发布会上说，过去7天平均每天注射310万个疫苗，已经有将近四分之一的成年人接受了全程疫苗接种。
 
-本栏目开始逐步收集新中国联邦大记事及战友行动，回顾时光印记！积攒史料图库，精彩历史瞬间，积累新中国联邦人一路创造和记录历史的图库！
+截至作者发稿时，全球COVID-19感染人数已经超过1.32亿例，死亡280万人（不包含中共国的感染和死亡瞒报案例），美国、巴西和印度感染和死亡人数分列前三位，感染国家已经遍及全球，而且这个数字每天还在不断攀升之中。
 
-一路铭记时光里战友们经历的过往和一起经历的跌宕起伏的那些日子……
+昨天是中国传统的清明节，人们都在祭祖祭亲，自中共建政以来神州大地又有多少冤死的灵魂无处安放？人们祭奠，怀念，感伤，再忘却……年年如此，一年又一年；供奉瓜果，燃烧纸钱，麻木地完成仪式，然后自以为就此安抚了游荡在上空的亲人的冤魂；还苟活着的人，是不是在眼泪之后就忘却了悲痛？在墓前深锁的眉头有没有思索为什么亲人会逝去，并找出悲剧的源头？还是，沉痛之后没有思考，思考之后没有行动，行动却又轻易放弃呢？
 
-今天，从新西兰伊甸农场的点滴开启🔛我们的图库之旅 📹 📷 🏃‍♀️🏃🏃‍♀️🏃
+从路德社2020年1月19日全球首次爆出新冠病毒是中共的生化武器，时间已经过去了一年多，上亿的感染人数和数百万的无辜遇难者，竟没有刺痛被中共长久麻痹的世界政治，也没有几个政府敢于向中共讨个说法。在金钱和利益面前，各国政客和大佬们选择了与中共勾兑、跪拜，有的甚至甘于做中共这个刽子手的帮凶，以至于中共的阴谋一再得逞。继全球被中共病毒肆虐后，中共疫苗再次蚕食了更多原本健康的人，无论穷富、无论贵贱、无论学识高低，一个个失去了自己思维和辨别是非的能力，几乎整个地球都自愿或被动的成了中共老杂毛们餐桌上的盛宴，被这群恶魔饕餮！世界何其荒谬又可怜可叹？面对不断攀升的感染和死亡人数以及接下来中共更加险恶的阴谋，灭共已经刻不容缓，世界需要越来越多清醒的人拯救它！
 
+清明虽然过去，但沉痛却不应忘却，千万别再让清明成为“为了忘却的纪念”，否则下一次的灾难就有可能降临在每一个人的身上。为了不再有冤死的灵魂继续倒在中共铁蹄之下，加入新中国联邦，加入呐喊的人群，灭共需要你我他！
 
-新西兰伊甸农场图文大记事： 回看走过的岁月
+（文章内容仅代表作者观点）
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/0-000.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/10_pure_new_zealand.jpeg)
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/03.jpeg)
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/04.jpeg)
+**参考链接：**
 
+[U.S. appoints new global coronavirus coordinator as Biden steps up efforts to combat pandemic](https://www.washingtonpost.com/nation/2021/04/05/coronavirus-covid-live-updates-us/)
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/05.jpeg)
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/14.jpeg)
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/08.jpeg)
+[COVID-19 CORONAVIRUS PANDEMIC](https://www.worldometers.info/coronavirus/?utm_campaign=homeAdvegas1?)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-29.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/14.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-25.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/08.jpeg)
-
-
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/26.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/41.jpeg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-3.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-1-1.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-14.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-9.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-8.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-1.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/0.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/32.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-33-5.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-16.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-18.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-19.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-17.jpeg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-31.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-13.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-20.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-10.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/image007-5.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-7.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/20200528_122104.jpeg)
-（本主题待续）
-
-本栏目以图库世界回顾，战友们一起走过的那些日子。镜头光影记录创造历史的时光！
-
-**\*栏目长期征集战友原创摄影作品；原创绘画作品；原创精彩视频作品。**
-
-
-
-0
++1

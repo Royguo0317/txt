@@ -1,46 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共产党认为自己是神&nbsp; 所以要灭掉所有的神
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1052296/)
+## 【分析】共产党将如何灭亡（经济篇）( 一）
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1047042/)
 
-简述：郭先生在2021年4月3日的GTV直播中透彻地分析了共产党的强盗逻辑：只有共产党是好的、是神，资本主义、美国、香港、台湾，包括中共14亿老百姓都是坏的。 他说：“这个逻辑你看明白了，你再看共产党的时候你什么事都看得很清楚了。”
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210403_live_P1.srt.txt)
-**共产党认为自己是神****  ****所以要灭掉所有的神**
+五月花写作组 ｜ 作者：义武奋扬 ｜ 编辑、美工、发布：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/04/共产党将如何灭亡经济篇v1-copy.jpg)
+### 往期链接：
 
-**CCP Thinks It Is the God, So It Can Kill All Gods**
+[【重磅】共产党将如何灭亡（政治篇）（一）](https://gnews.org/zh-hans/1035906/)
 
-按照共产党的说法，就所有这美帝国主义的东西都是骗子都垃圾，都是资本主义的嘛，是不是？只有共产党的是好的，对吧？ 就共产党你看它干啥事？共产党说我是无神主义，对吧，我是无神主义，所以我把所有的神要杀掉。佛教、穆斯林、新疆人、基督教最近抓得一塌糊涂，天主教、道教到处扫荡。为什么？因为我是神，我要当神我就要灭掉所有的神。大家我说的是事实吧？几年前七哥就说了吧？
-
-According to the CCP, all things of American imperialism are crooks and rubbish for they are all capitalist, right? Only the Communist Party is good, right? Just look at what the CCP is doing. The CCP says I am atheist, so I’m going to kill all the gods. Recently Buddhists, Muslims, Xinjiang people, and Christians have been arrested massively. Catholics and Taoists have been wiped out in many places. Why? Because I am God, and to be a god, I must destroy all other gods. Everyone, do you admit that what I’m telling you is the truth? Has Brother Miles already told you this a few years ago?
-
-第二，资本主义是邪恶的，剥削阶级，是吧？看那私人企业家，是不是啊，你们解决了百分之七十、八十的中国就业问题。什么马云啊，什么许家印啊，万达啊，是吧，叶简明啊，吴小晖啊，肖建华啊，是吧，还有什么刚刚抓捕的搞了无数个孩子的，包括那个什么那个民生啊，董文标是吧，还有张宏伟啊，是吧这些人，抓一堆的张宏伟的家人是吧，就这些人，你们私人企业家，百分之八十就业。是啊，你就玩的就业了，国家还是以国营企业为主。始终国有企业牢牢地抓住这个中国的钱把子、钱袋子，要以国有企业为主。
-
-Second, capitalism is evil because they are the exploiting class, right? Look at the private entrepreneurs who created 70 to 80% of China’s jobs. Those like Jack Ma, Xu Jiayin, the Wanda Group, Ye Jianming, Wu Xiaohui, Xiao Jianhua, also the guy who was just arrested for raping countless young kids, the Minsheng Bank, Dong Wenbiao, and Zhang Hongwei whose family members were mostly arrested, these private entrepreneurs solved 80% of the employment problem. Regardless, the country is still dominated by state-owned enterprises. State-owned enterprises firmly control the moneybags of China and are deemed as the mainstream.
-
-那么，啥意思啊？国有企业是谁的？是党的，党产，党始终要说了算。爹亲娘亲都不如党亲，一切都是党的，一切听党的。怎么办？我要有钱，我要当资本家，我把你所有资本家全抓了。共产党这个流氓逻辑：我要当神，我就把神全灭了，我当唯一的神；全中国的所有的企业家，我要当老大，全抓了。抓了吧？一个不给你剩。你看着马化腾这两天还涨呢，马化腾一定是这结局，死不了活不了。它不会让他死的，马云可能弄死他，马化腾不一定弄死他。一定这结局啊，就是让所有天下的钱都是它的，然后杀掉所有有钱人。
-
-So, what does that mean? Who owns the state-owned enterprises? The party. They are the party’s properties and the party always has the final say because “parents are not as intimate as the party”, “everything belongs to the party”, and “you should listen to the party on everything”. How? I, the CCP want to be rich, I want to be a capitalist, so I need to arrest all the capitalists. The gangster logic of the CCP is: I want to be a god, so I ought to destroy all gods, so that I can be the only god; I want to be the boss of all the entrepreneurs in China, so I can arrest all of them. No one can get away. You see Ma Huateng’s stock is still rising the last couple of days, but Ma Huateng will definitely end up like this – can’t die and can’t live either. It won’t let him die, Jack Ma could be killed, but Ma Huateng may not be killed. But the ending will definitely be like this, that is, all the money in the world will belong to the CCP, and then it will kill all the rich people.
-
-我说你看到没有，这就是共产党 ，它让全世界人民把全世界都说成是流氓、痞子文化，都是假的，动不动就骂这个国家什么痞子，骂美国骂什么骂全世界包括我们爆料革命。它是世界最大的黑帮。它天天喊着我这个狮子醒来了，这个狮子醒来跟你共产党啥球关系啊？14亿人民也不是在70年前才出生的，中国人几千年的文明文化了，跟你共产党啥关系啊？
-
-Have you seen that? This is the CCP. It criticizes all the people in the whole world to be hooligans, rogues and fake. They always scold a country as a ruffian or scold the United States and scold the whole world, including us, the Whistleblower Movement. But itself is the biggest gang in the world. It says the lion [referred to China] has woken up everyday, but does it have anything to do with you, the CCP? The 1.4 billion people were not only born since 70 years ago. The Chinese have a civilization and culture existing for thousands of years. What does it have to do with you, the Communist Party?
-
-它要挑战全世界，全世界没有好人就它一个好人，然后这些好人当中，它管…因为它是好人，它管着14亿全是坏人。它要当好人，谁也不能当好人，这又是共产党的流氓逻辑。香港，没好东西，抓！杀！台湾收回！中国人不打中国人，只杀中国人，只杀你中国人，干掉台湾。我说这就是流氓的共产党，兄弟姐妹们。这个逻辑你看明白了，你再看共产党的时候你什么事都看得很清楚了。
-
-It wants to challenge the whole world like there is no other good person in the world but itself. So, it should manage all the people, manage all 1.4 billion bad people. Because it is the only good guy, so nobody else can be good. This is, again, the CCP’s hooligan logic. In Hong Kong, nothing is good, so I can arrest them and kill them! Taiwan, we must take it back! Chinese don’t fight against Chinese? So they only KILL Chinese. They only kill Chinese, and also want to get rid of Taiwan. This is the gangster CCP, brothers and sisters. If you understand this logic, you will find everything about the CCP becomes crystal clear.
-
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=606868a76e11a756edd63b0e](https://gtv.org/video/id=606868a76e11a756edd63b0e) (47:19-50:01, 53:15-54:29)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1049714/](https://gnews.org/zh-hans/1049714/)
+[【重磅】共产党将如何灭亡（政治篇）（二）](https://gnews.org/zh-hans/1039040/)
 
 * * *
 
-字幕：【V%】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+按共产党的理论，经济决定政治操作思路，政治决定经济运行方向，两者相辅相成。
 
-+1
+之前尝试描述共产党在政治方面无法避免的死穴，比如对内刺破房产泡沫，对外杨王战狼表演，就是上海帮决定不惜灭掉共产党也要先保障本帮派的生存和利益，因为不这样做，他们想自我了断都难。同样，习派到了这个地步，虽然逐步获得大多数权力，但他们派系也得罪了很多人，本来出身知青，文化学历都低，一步登天已经够招人嫉恨，更别提再给他们卡位之时灭掉了多少人，结下了多少仇。共产党派系之间矛盾是不可能调和了，所以今天看到政法机关整顿，继续对上海帮的刀把子政法机关加大清洗力度，这就是政治上不可遮蔽的死穴。
+
+那么这次尝试描述一下共产党经济方面不可遮蔽的死穴。
+
+共产党政府起家就是欺骗与暴力，以争夺天下为目标，几十年都是过着朝不保夕的日子，自然会有“捞一把就跑”的想法，而上台几十年之后，这种思维已经浸透到每一个共产党人的血液里，那么经济思维自然倾向于将中国百姓当成猪牛极力压榨，再一刀宰 。
+
+四九国殇，共产党把之前的许诺统统作废，田地工厂全部收归国有，把除他们外的所有人变成赤贫，强行彻底让旧有经济轨道变道。为此对国内不惜大开杀戒，对国外冒着与联合国开战的风险也要这样做。为什么？
+
+其一，源于内心不安全感，共产党高层除向忠发和项英外，其他人家境都是颇为富裕，甚至有的人家在当地是一霸的存在，比如邓小平，他爹就是老家的黑社会头子。窃据高位后，他们从自身的经历和历史出发，明白若是社会运行平稳还好，若是不稳，跟他们处于同一阶层的富人不止在民间有名望，而且有财富就有资本招兵买马，更何况有钱有闲就会深思熟虑，想深层次的问题。他们不也是有钱有闲再接触配合共产思想后产生了争霸天下的想法？而穷人一天二十四小时为三餐劳碌，又哪有时间想东想西呢？没有时间思考的人自然对于任何当权者无任何威胁，人最擅长的也是最害怕的，既然如此，自然对全国实行除他们以外的均贫经济政策。
+
+其二，辛辛苦苦几十年东躲西藏刀口舔血的日子，不正是为了登上皇位，搜刮民脂民膏享尽荣华富贵？从这个需求出发，自然会放弃美国，选择苏联模式，当时中国久经战乱，国库见底，共产党也是费尽九牛二虎之力才战胜国民党，那么要供养这批人，钱从哪里来？自然要从民间搜刮。
+
+其三，因为刚结束战乱不久，共产党本来迷信武力，而共产党引以为豪的就是凭借人海战术以本伤人击败国民党，为此建立了世界第一多人数的军队，而且因为与历朝不同，历朝皇权不下乡，而共产党不止建立乡政府，连村里都有村支书民兵队长这类人，这么多张嘴要消耗财富，而且为维持统治需求，待遇还不能低。钱从哪里来？还是得民间搜刮，进行均贫，于是实行将人一生尽力压榨的计划经济。
+
+其四则是这样做符合最基本的共产主义教义，农村变成农庄，城市变成工厂，又红又专，有利于凝聚党心，稳固脑子有毛病的基本教义派。按共产党设想，将农民控制在土地上，工人束缚在工厂，资本家商人除了极少数，其他的要么变成这两种人，要么变成死人，老师这个职业因为对维护统治有利，暂时列入吃公家饭阵营帮共产党一起统治中国人（文化大革命不需要）。按共产党设想，全部中国人一世劳作除基本吃喝用度外，大头全部被共产党拿走。而共产党中南坑稳坐皇宫尽情挥霍，这天下对共产党也可实现长久太平，岂不美哉？
+
+这套经济政策从朝鲜战争爆发后开始，直到文化大革命之后实行，中途还经历了镇反、大饥荒。文化大革命在任何一个国家出现都要改朝换代的事，共产党仍然江山稳固，可见对于统治还是很有效果的。但是这套经济政策本质是完全压抑大多数人的欲望，满足极少数人的欲望，必然人为使这个国家的市场萎缩萧条。
+
+比如日本侵华前的1936年国民党政府国民生产总值为60-70亿美元之间，取65亿美元（查询了一下，数据不一，但都是在这之间）， 那么除以4亿人口，得人均为16.25美元。而1978年改开前共产党治下中国GDP仅仅156亿美元（李先念亲口所说）。
+
+首先，已经过去四十年，1978年的美元能和1936年的美元价值一样？根据资料， 以2015年美元购买力是1来算，历数百年来美元贬值数据，1975年的购买力为4.4472，1980年美元的购买力为2.9037，李先念是1978年公布的数据，那么李先念肯定依据的是中间年份的美元购买力，取平均数，购买力为3.6755. 而美元1935年的购买力为17.4643. 那么17.4643/3.6755=4.75倍。纵向对比一下，1936年的民国政府人均收入是16.25美元×4.75=77.1875美元，而1978年李先念公布的数据是仅仅156美元。四十年的时间除去八年日本侵华三年国共争霸天下，也就是说29年时间的发展，仅仅就是1936年两倍的水平！
+
+这且不说1936年，南京仅仅名义上统一全国，除江南还有华北一部分以外，仅仅不到百分之五十的人口土地能被南京直接控制，其他的都是在其他军阀手里，而且当时工业重地和几千万人口的东北已经落到日本手里，东北的产值那是不可能记在里面，而其他省份报上来的经济数据那也是往少了报哭穷，免得南京借中央政府名义征税，再加上南京当时不受知识分子文人清流待见的环境，整天以骂蒋介石邀名。
+
+这种情况必然影响官僚的思维，财政部官僚基本是宋子文的人，宋家有两大缺心眼大傻叉净给蒋介石埋坑下套，就是二姨子宋庆龄和大舅子宋子文。宋某从美国回来，受西化教育，读书读傻了，内心对于妹夫这种独裁不认同，并与妹夫多次发生冲突，还挨过妹夫一巴掌。虽然为了家族利益不会像宋庆龄一样，但结合当时知识分子文人清流的态度和鼓噪，未必不会在经济数据上又减掉一部分给妹夫上上眼药，以讨好傻叉知识分子和文人清流。
+
+所以可能1936年真实经济情况应该不止人均16.25美元，可能超过20美元都不止呢。 而共产党历来有报喜不报忧的传统，156美元可能砍掉56美元这个零头，真实可能只有100美元。
+
+两者对比一下人民的生活情况，国民党因为还是传统威权政府，有一定的自由度，经济结构比较合理，而且市场也较为活跃，社会财富自然能比较合理分配，而共产党的计划经济政策那是铁桶一块，等级森严，经济结构失衡，又是以亿兆血汗养一大批畜类，如何能分配社会财富？唯有保证饿不死而已。
+
+（未完待续）
+
+* * *
+
+（本文仅代表作者个人观点。经济数据如有失实，与GNews平台无关）
+
+* * *
+
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
+
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
+
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
+
+0
