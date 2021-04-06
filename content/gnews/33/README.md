@@ -1,70 +1,32 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0405.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1050677/)
+## 悉尼大学刊发批评中共的文章后屈服
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1053112/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+撰稿：Shirley
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Shirley1.png)网络图片
+悉尼大学学生报《Honi Soit》的编辑删除了有关两名工程学者与中共国政府项目有联系的调查性文章，被指责为[受中共国压制](https://www.news.com.au/national/nsw-act/news/university-newspaper-capitulated-after-removing-article-critical-of-chinese-communist-party/news-story/49566f19ffc077525881ce7d84449bcd)。
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
-## 中共病毒继续挖料
+该文章指出，该大学的两名现任学者 “与有争议的中国政府人才招聘计划有关，并与受制裁的中国大学合作，开展具有潜在军事用途的研究”。这篇报道引用了研究中国对澳洲干涉的专家乔克（Alex Joske）最近提交的一份议会[调查报告](https://www.smh.com.au/politics/federal/china-talent-programs-may-be-accessing-australian-technology-linked-to-grant-fraud-20210119-p56v8h.html)，他 “列举了19个悉尼大学的学者加入中共人才招聘计划的事例”。
 
-4月5日劳伦斯博士继续使用爆料革命关于中共病毒的定义和闫博士关于超限生物武器的定论发推宣传，推文也找出更多中共病毒专家的照片：
+该报编辑告诉《澳洲新闻网》，出于对文章中被点名的人的安全考虑，文章被删除。虽然文章中的内容没有被证明是不准确的。这个理由遭到了愤怒的回应，该刊物被指责为经营亲中共的 “宣传破烂”。该学生报Facebook上的声明写道，”我们毫无保留地对文章中提到的学者以及对他们、华人社区和我们的读者造成的伤害表示歉意。”
 
-毫无疑问，陈薇少将应该是中共生物战计划的负责人&所显示的每个人都曾在军方工作过。在中国，民用和军用研究没有区别。
+他们脸书帖子的评论者感到愤怒，认为该报 “屈服于中国”，将一个政党等同于一个民族。有人写道：”中共不等于汉族，它们是完全不同的两件事，如果你不能理解这个细微的差别，就把你们的愚蠢出版物关了吧。”
 
-#中共病毒 #超限生物战 #超限生物武器 #COVID19病毒来源
+“这篇文章到底是不是真实的？如果是，你就向一党国家的人权灾难屈服了。”另一个人写道。还有人说，删除一篇真实的文章是在北京发生的事，而不应该是在悉尼发生的事。”在澳洲，只要你实事求是，不必为报道合法新闻而道歉。你越是向恶霸磕头，就越是强化了他们这样的想法，即任何冒犯他们的东西都应该立即被审查。”
 
+澳洲政府越来越关注北京在校园、澳洲的华文媒体，甚至在议会里面所发挥的影响力。
 
+澳洲是一个言论自由的国家，人们可以批评自己不喜欢的任何人或事，而完全不必担心受到迫害。内容没有被证明是不准确的一篇文章不仅被删除了，而且编辑还要公开道歉，在澳洲真是闻所未闻。也真是服了，只有中共才能做出这么奇葩的事情，相信中共的疯狂必招致集体反抗，命不久矣。
 
-> Make no mistake, Maj. Gen. Wei Chen is presumed head of the CCP biowarfare program & everyone shown has worked with the military. In China, there is no distinction between civilian and military research.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/luEHWbcH2F](https://t.co/luEHWbcH2F)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1379000079768510467?ref_src=twsrc%5Etfw)
+（本文仅代表个人观点）
 
+*审核 &编辑 : Runaway*
 
+[欢迎加入【澳喜农场】](https://discord.com/channels/712986898376949760/713012519274283078/776438234401996840)
 
-译者认为，这些照片一方面是让这些中共国内直接参与病毒研究的人了解自己已经上了美国追查病毒真相的黑名单，另一方面是通知与这些人有工作交往的美国科研界、医疗界相关人员明白，自己曾经与中共国为伍、简介资助和辅助中共病毒超限生物战的大爆发，下一步何去何从该好好反思了。
-
-
-
-## 美国拨款武汉病毒实验室研究中共病毒
-
-4月4日晚《每日呼声》发表文章《NIH称美国拨款给武汉病毒实验室用于增强型蝙蝠冠状病毒研究未经过HHS审查》
-
-文章称，罗格斯大学化学生物学教授Richard H. Ebright表示，美国国家健康研究院（NIH） “系统性地阻止”了政府对危险病原体研究的监督。
-
-一项NIH拨款，涉及对基于蝙蝠冠状病毒的改造，在病毒大流行之前向武汉病毒学研究所转移了60万美元，绕过了P3CO审查，因为安东尼-蝠齐领导的国家过敏和传染病研究所没有标记对该项目进行审查。
-
-据《纽约时报》报道，2014年，美国政府暂停了对增强功能研究的资助，因为实验室工作人员意外接触到了疾病控制中心的炭疽病毒。此前，2011年威斯康星州和荷兰的实验室被曝出有意修改H5N1禽流感病毒，能够有效地在雪貂之间传染，引发反响。
-
-该集团总裁Peter Daszak在2019年12月武汉首例COVID-19报告前几周在新加坡拍摄的播客采访中表示，Ecohealth有改造蝙蝠冠状病毒的历史。
-
-[点击查看此项新闻来源。](https://dailycaller.com/2021/04/04/nih-gain-of-function-anthony-fauci-review-board-wuhan-lab/)
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+【[澳喜文章1](https://gnews.org/zh-hans/author/aujenny/)】
+【[澳喜文章2](https://gnews.org/zh-hans/author/himalaya-australia/)】
 
 0
