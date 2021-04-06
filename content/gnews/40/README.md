@@ -1,45 +1,27 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共国要求WTO聘请他们建立一个跨境国际疫苗数据系统
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1053718/)
+## 中共航母战斗群将在台湾附近进行定期演习
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1053794/)
 
-翻译：康州盘古农场 —KY
-校对：康州盘古农场—心照
-审核：康州盘古农场—心照
+俄罗斯莫斯科喀秋莎农场   银河
 
-据作者Joe Hoft2021年4月3日发布:
+编辑    水星    上传    银河
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Snipaste_2021-04-06_06-58-50.jpg)gnews
+路透社消息，中共海军周一晚些时候表示，中共航母战斗群正在台湾附近进行演习，这种演习将会成为常态。北京声称拥有主权的台湾岛屿附近的紧张局势进一步升级。
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/1-12.jpg)
+台湾抗议中共大陆近几个月来在其附近的军事活动有所增加，中共正加紧武力统一台湾的军事部署。
 
-出于“善意”，中共国主动向世界卫生组织（WHO）表示，他们很乐意建立一个用于全球范围内追踪接种过COVID-19疫苗的旅行者的系统。
+中共海军表示，由中共首艘现役航空母舰辽宁号率领的航母战斗群，正在台湾附近海域进行“例行”演习。其目的是“增强维护国家主权、安全和发展利益的能力”,“类似的演习将在未来定期进行”。海军补充说，但没有详细说明。
 
-据USAA News消息，中共国提出要完成一个系统，用来追踪接种过COVID-19疫苗的旅行者。
+在中共发表上述声明之前，台湾国防部周一报告称，中共空军再次侵入台湾防空识别区。台湾国防部表示，已“全面掌握”台湾周边的空中和海上形势，正在“妥善处理”此事。
 
-中共国推出了新的国内旅行政策，允许接种疫苗的人有更多自由。现在，北京希望世卫组织批准启动国际旅行的全球疫苗认证系统，因为它可以 “通过分享经验并提供技术支持来提供帮助”。
+日本防卫省周日表示，辽宁舰在5艘护卫舰的陪同下，在前往太平洋的途中经过了宫古海峡。日本最近与澳大利亚宣布了与台湾有关的突发事件防务协议，日本政府也直接与台北达成了协议，并提出了《与台湾关系法》的议案。在本周日本首相访美与拜登首次会晤中，美日合作共同抵抗中共援助台湾是其中最重要的一个议题。
 
-中共国认为自己是 “世界上使用卫生法规体系最有经验的国家”。
+台湾与大陆的“统一”一直被认为是中共国的核心利益，习近平认为统一是巩固其统治的关键。在中共对新疆的种族灭绝罪行和中共病毒真相面前，中共急于转移视线同时对国际社会施压，台湾危机迫在眉睫。
 
-中国外交部发言人对半岛电视台表示，该系统将 “有助于促进世界经济复苏和便利跨境旅行”。
+参考链接:
 
-信息消费联盟理事长项立刚（所谓中共国专家）对中共新闻机构《环球时报》记者说；“在技术方面，我相信中国企业只需一周时间就可以搭建一个国际平台，但最好是由世界卫生组织而不是任何国家或地区组织作为主办方，以确保平台的独立性、公平性和数据安全性。”
-
-但世界卫生组织并不欢迎这一想法。
-
-此外，很少有国家会接受中国创建的系统-的原因有以下几个，包括中国在透明度方面的不良记录，以及中国是疫情的始发国。
-
-的确，这是一个可怕的想法。 给放出这种COVID-19生物武器的国家提供全球所有旅行者的旅行信息和个人信息。 在这种情况下，不再有隐私和个人自由。
-
-还有，那些对中国直言不讳的人会不会和不直言的人同等待遇？
-
-这是个馊主意，我们不知道拜登/奥巴马会不会去做。
-
-那会出什么问题呢？
-
-原文链接：[https://www.thegatewaypundit.com/2021/04/china-asking-hire-build-international-system-maintain-flyer-data-regarding-vaccines-cross-boarder-travel/](https://www.thegatewaypundit.com/2021/04/china-asking-hire-build-international-system-maintain-flyer-data-regarding-vaccines-cross-boarder-travel/)
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[https://www.reuters.com/article/us-china-taiwan-security/china-says-carrier-group-exercising-near-taiwan-drills-will-become-regular-idUSKBN2BT04D](https://www.reuters.com/article/us-china-taiwan-security/china-says-carrier-group-exercising-near-taiwan-drills-will-become-regular-idUSKBN2BT04D)
 
 0

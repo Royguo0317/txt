@@ -1,84 +1,47 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新闻收集【4/5】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1053827/)
+## 【战友心声】游罗斯福总统纪念园有感
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1053964/)
 
-**西班牙巴塞罗那喜悦农场 **wenwu
+作者：香草山商业部 往后余生
 
-中共病毒是武汉实验室制造只是真相的冰山一角，后面还有更多的陷阱在等着我们。主流媒体曝光感染的病人的真实画面了吗？显然没有，我们只是看到了一堆感染和死亡数据，这是极其不正常。当然还包括了最初在武汉爆发的疫情问题上，媒体更喜欢让人知道疫苗好处而不是共产主义制造并掩盖了这场灾难。然而真相只有一个。
+经历了整整⼀年的居家隔离后，美国逐渐开放。在樱花盛开的春天，⼈们终于可以⾛出家⻔，回归美好的⼤⾃然。在经历了2020年中共病毒肆虐全球后，不禁思考，这个世界将何去何从？
 
-
-
-> [#UnrestrictedScientificMisinformation](https://twitter.com/hashtag/UnrestrictedScientificMisinformation?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/HFZUgIWCbe](https://t.co/HFZUgIWCbe)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 5, 2021](https://twitter.com/DrLiMengYAN1/status/1379063701530161155?ref_src=twsrc%5Etfw)
-
-
-*`1.闫博士推文大意：超限科学误导。据《司法观察》报道，福奇的NIH为中共制造病毒提供了便利。`*
+“以铜为鉴，可以正⾐冠，以⼈为鉴，可以知得失，以史为鉴，可以知兴替”。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS1835-【战友心声】游罗斯福纪念园有感-1.jpg)图⽚： 华盛顿DC著名的樱花景点 – 潮汐湖畔(Tidal Basin)-1![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS1835-【战友心声】游罗斯福纪念园有感-2.jpg)图⽚： 华盛顿DC著名的樱花景点 – 潮汐湖畔(Tidal Basin)-2
+我们来到华盛顿DC着名的樱花景点 – 潮汐湖畔(Tidal Basin) 的罗斯福总统纪念园(Franklin Roosevelt Memorial)，回顾罗斯福总统在位时经历的重⼤历史事件， 得到了很多启发。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS1835-【战友心声】游罗斯福纪念园有感-3.jpg)图⽚： 华盛顿DC的罗斯福公园⼤⻔进⼝处的罗斯福总统塑像-1![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS1835-【战友心声】游罗斯福纪念园有感-4.jpg)图⽚： 华盛顿DC的罗斯福公园⼤⻔进⼝处的罗斯福总统塑像-2
+这座公园是为了纪念美国第32任总统富兰克林·德拉诺·罗斯福而建的。富兰克林·德拉诺·罗斯福（简称FDR），于1882年出⽣于纽约，毕业于哈佛大学和哥伦比亚法学院，曾为纽约州州长。1932年代表⺠主党竞选美国总统，击败了共和党竞选⼈胡佛，而成为美国第32任总统。罗斯福从1933年⾄1945年间，连续出任四届美国总统，是唯⼀连任超过两届的美国总统。在他担任政府公职期间，美国经历了1920⾄1930年代的“经济⼤萧条“，和第⼆次世界⼤战。罗斯福总统带领美国⼈⾛出了经济危机，并且取得了⼆战的胜利。美国从此成为⼀个更强大的国家。
 
 
-> No coincidences🤔 [https://t.co/2iLi9pLkBh](https://t.co/2iLi9pLkBh)
-> — Dr. Dawn Michael💗 (@SexCounseling) [April 4, 2021](https://twitter.com/SexCounseling/status/1378793672225918977?ref_src=twsrc%5Etfw)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS1835-【战友心声】游罗斯福纪念园有感-5.png)图片：1943年11⽉23⽇⾄26⽇在开罗召开的⾼峰会议上，美国，英国，中国的元首商讨⼆战的世界格局，相片从左到右： 中华民国元首蒋中正，美国总统罗斯福，英国首相丘吉尔，中华⺠国第⼀夫⼈宋美龄女士-1![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS1835-【战友心声】游罗斯福纪念园有感-6.png)图片：1943年11⽉23⽇⾄26⽇在开罗召开的⾼峰会议上，美国，英国，中国的元首商讨⼆战的世界格局，相片从左到右： 中华民国元首蒋中正，美国总统罗斯福，英国首相丘吉尔，中华⺠国第⼀夫⼈宋美龄女士-2
+不同于尼克松、基⾟格扶植CCP（中共）政权奴役中国⼈，罗斯福总统可以说是我们中国⼈真正的朋友。在罗斯福总统的带领下，美国联⼿中国浴⾎奋战，共同抗日。在开罗会议上，美国，中国和英国元⾸商讨了抗击⽇本法⻄斯的战略及战后重建国际局势的安排，并发表了着名的开罗宣⾔，要求⽇本⽆条件投降，归还侵华的⼀切⼟地。开罗会议确立了中国成为世界四强的地位 。自鸦⽚战争后，中国⼈第⼀次与英美强国平起平坐，共商国际局势。
 
+正义联盟最终击败了法西斯。中国⼈为世界和平做出了巨⼤贡献，中国以战胜国的姿态赢得了国际上的尊重。这是中国近代史上⼀段没有共产党的辉煌历史，那时的中国是⼀个没有共产党的中国。这段历史证明了，没有共产党，中国人完全可以创造辉煌，没有共产党，中国会更好，会成为⼀个真正伟大的⺠族。
 
-*`2.网友推文大意：福奇早在2017年1月11日就说过，毫不怀疑在川普任期中会出现大瘟疫。`*
-3. 据2020年11月9日《搜狐》**`报道`**，复星医药与德国生物科技公司BioNTech（拜恩泰科）围绕“mRNA技术”进行了一次远程对话。今年3月，双方宣布达成合作，共同开发基于BioNTech的mRNA技术平台的新冠疫苗。国内媒体先抨击了AZ疫苗的不可靠，而后国内近日开始报道mRNA技术的疫苗出现问题。
+2020年6月4日，郭文贵先⽣和无数爆料⾰命的战友们一起见证了新中国联邦的诞生。新中国联邦为海内外华⼈缔造了⼀个没有共产党的，民主、法治、自由、平等的美好愿景。11⽉份，新中国联邦人在华盛顿纪念碑前集会，向全世界展现了新中国联邦⼈的风采。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS1835-【战友心声】游罗斯福纪念园有感-7.png)图片： 2020年11⽉14⽇ 新中国联邦在华盛顿⽅尖碑下集会-1![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS1835-【战友心声】游罗斯福纪念园有感-8.png)图片： 2020年11⽉14⽇ 新中国联邦在华盛顿⽅尖碑下集会-2
+现在的人们很难想象大萧条时期的模样。股市暴跌，美国经济强烈和持久的下滑，失业率飙升，大量工厂停工，无数银行倒闭，老百姓拿不回自己在银行的存款。加上多年干旱，农民收成不好，农场主无力维持经营。彼时的美国到处可以看到人们排着大长队，等待领取救济食品。在⼀些城市的公园、地铁站、大街、桥洞聚集着流浪的⼈们，他们⽤简单的材料自制的住所，成为城市的⼀大景观。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/MOS1835-【战友心声】游罗斯福纪念园有感-9.png)图片： 华盛顿DC罗斯福公园⾥代表美国⼤萧条时期的雕塑（⼈们排队领取救济⻝品）
+当时的美国经济大萧条之前没有任何预兆。相反，在股市暴跌的前⼀个⽉，美国的主流媒体和专家都在唱好美国经济。当时的美国财政部长安德鲁·梅隆公开说：“我们没有理由担心，美国的经济繁荣将继续下去。”
 
+历史总是惊人地相似。现在，美国主流媒体和财政部也没有告诉⺠众真相。郭先⽣在最近的直播中预告，美国将⾯临经济危机。幸运的是，在全球经济即将崩溃的时候，文贵先生已经为新中国联邦⼈打造好了G系列诺亚方舟，帮助墙内外的战友们保命保财保平安, 让⾃由勇敢的新中国⼈过上体⾯的日子，以钱灭共。
 
+（文章仅代表作者个人观点）
 
-> Evolutionary biologist Dr. Weinstein on The Hill, 4 Apr 2021
-> – Abundant high-quality evidence 
-> from non-mainstream scientists shows lab-origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw).
-> – Nature-origin is fairytale, so mainstream scientists’ conclusion suffers under pressure.
-> – Dr. Fauci is dishonest. [https://t.co/KIqLu5i7P8](https://t.co/KIqLu5i7P8)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 5, 2021](https://twitter.com/DrLiMengYAN1/status/1379054255638769673?ref_src=twsrc%5Etfw)
-
-
-
-4. 闫博士转推评论战友发布的推文，关于进化学家weinstein接受国会山的采访：
-
-- 非主流的科学家们提供了大量证据、进行高质量的分析指向病毒来源于实验室洩漏
-- 主流科学家却为了证明病毒自然起源而备受压力
-- 病毒起源于自然，目前还属於传说神话的阶段
-- 福奇有能力、又有最高权限看到情报，却不诚实地推自然起源
-- 四方面说病毒源於实验室
-- 其一病毒基因序列修改痕跡是武毒所做过的
-- 其二病毒族谱上没有过的弗林酶切位点却出现了
-- 其三流行病学角度：病毒没有进化为高度适应人体高传染力的进化时间期间
-- 其四蝙蝠病毒4991改名为RaTG-13不符合科学规定
+编辑/审核/发稿：雪梨
 
 
 
+更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
 
-> Biologist Dr. Weinstein on The Hill, 4 Apr 2021
-> – Evidence on lab-origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)
-> 1. Evidence left in SARS-CoV-2 genome after modification 
-> 2. Furin-cleavage site 
-> 3. Well-adapted to human, but not match epidemiological principles 
-> 4. Bat virus 4991 vs RaTG13 in terminology [https://t.co/7PRLl5kzk9](https://t.co/7PRLl5kzk9)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 5, 2021](https://twitter.com/DrLiMengYAN1/status/1379057938136973313?ref_src=twsrc%5Etfw)
+英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
 
+更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
 
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-这是在不同领域的领土战争：病毒，科学，媒体，疫苗，共产主义。。。与资本主义的撕扯。另外，在郭文贵先生的今日GTV爆料中提到的以钱灭美。
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
-
-
-> 【温故而知新】
-> 郭先生今天直播提到的卡恩（右），辞职后变成了法中基金会主席，和害死王健的华鋲（左）是好哥们（这张照片已经从网上删除）。什么叫物以类聚！ [pic.twitter.com/IOjDUkklfy](https://t.co/IOjDUkklfy)
-> — 瞿水台 Qu Shuitai (@QuShuitai) [April 5, 2021](https://twitter.com/QuShuitai/status/1379077831796346880?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> 人源化小鼠：模拟人的受体
-> 猴子：灵长类与人类很接近
-> 以上两种动物感染新冠病毒后均可以康复，这给了中共极大的信心，认为新冠病毒这个生物武器杀伤力可控。因此，他们铤而走险，直接开始社区内释放，直接用人做测试，结果传染性和致死率都超出预期 [https://t.co/YKCZmPVuaV](https://t.co/YKCZmPVuaV)
-> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [April 5, 2021](https://twitter.com/jsdfposjpqyuee1/status/1379128154720104448?ref_src=twsrc%5Etfw)
-
-
-***`战友推文大意：实验室人源化小鼠和猴子感染新冠病毒后均可以康复，这给了中共极大的信心，认为新冠病毒这个生物武器杀伤力可控。因此，他们铤而走险，直接开始社区内释放，直接用人做测试，结果传染性和致死率都超出预期`***
-在病毒和疫苗面前，凡人避让！
-
-+2
+0
