@@ -1,23 +1,31 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 因疫情朝鲜不参加东京奥运会
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1053740/)
+## 普京签署法律或将执政到2036年
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1053764/)
 
 俄罗斯莫斯科喀秋莎农场   银河
 
-编辑   水星   上传   银河
-![]()![](https://gnews.org/wp-content/uploads/2021/04/Snipaste_2021-04-06_06-44-05.jpg)[world.hebnews.cn](http://world.hebnews.cn/2020-03/22/content_7762887.htm)
-朝鲜周二表示，3月25日在平壤举行的朝鲜奥委会会议上朝鲜领导人金正恩做出决定，朝鲜将不会参加今年夏季的东京奥运会，以保护其运动员不受中共病毒的感染。
+编辑   水星   上传   银河
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Snipaste_2021-04-06_06-51-36.jpg)[iheartintelligence.com](https://iheartintelligence.com/vladimir-putin-to-resign-early-next-year-amid-fears-he-has-parkinsons/)
+Just the News报道，俄罗斯总统普京星期一签署了一项法律，允许他继续执政到2036年。
 
-由于疫情，东京奥运会被推迟到今年。朝鲜此前曾表示愿意派遣朝鲜运动员参加2020年东京夏季奥运会，然而现在改变决定，以保护其运动员免受与病毒相关的“全球健康危机”危害。
+普京目前是第二次连任总统。他曾在2000年至2008年担任俄罗斯总统，2008年由于俄罗斯宪法不允许他连任三届，他不得不辞职。据《莫斯科时报》(Moscow Times)报道，普京签署的这项法律将允许他连任两届。
 
-自去年初以来，朝鲜基本上切断了与中共和俄罗斯之间的交通，原因是担心2019年底在中共武汉首次发现的中共病毒可能跨越边境传播。平壤声称他们目前还没有确诊的中共病毒病例。
+这项立法正式修改了去年投票通过的俄罗斯宪法。该法律限制任何未来总统的任期不得超过两届。但在这个过程中，普京将限制重新设为两届。据路透社报道，如果他再次当选，他将担任总统至2036年，届时他将83岁。
 
-上周四，韩国向国际奥委会(IOC)提出与朝鲜平壤共同举办2032年奥运会的提案，韩国总统文在寅和朝鲜领导人金正恩2018年同意共同申办奥运会，然而自2019年到现在双方关系持续恶化。国际奥委会最终选择澳大利亚布里斯班作为主办2032年奥运会的首选合作伙伴。
+普京说:“如果这被写入宪法，我不排除竞选公职的可能性。我们将会看到。”
+
+立法在议会两院都通过了。
+
+关于可能的继任者，普京说:“经验告诉我，两年后各级政府将会寻找可能的继任者，而不是正常的有节奏的工作。我们需要工作，而不是寻找接班人。”
+
+如果他成功了，普京将成为自彼得大帝(Peter the Great)以来在位时间最长的俄罗斯领导人，超过约瑟夫·斯大林(Joseph Stalin)。
+
+援引自BBC的报道，美国智库战略与国际研究中心的高级顾问扎克海姆（Dov S. Zakheim）曾指出普京并不隐讳要恢复俄罗斯大国地位的目标。相比苏联和沙俄时期的领导人，普京在国内享有很高的支持率，在国际上更是一位成熟的政治家。
 
 参考链接：
 
-[https://english.kyodonews.net/news/2021/04/e8b11c61f649-urgent-n-korea-wont-participate-in-tokyo-olympics-due-to-pandemic.html](https://english.kyodonews.net/news/2021/04/e8b11c61f649-urgent-n-korea-wont-participate-in-tokyo-olympics-due-to-pandemic.html)
+[https://justthenews.com/world/europe/putin-signs-law-allows-him-stay-power-until-2036](https://justthenews.com/world/europe/putin-signs-law-allows-him-stay-power-until-2036)
 
 0

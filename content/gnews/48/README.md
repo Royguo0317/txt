@@ -1,84 +1,39 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新闻收集【4/5】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1053827/)
+## 世卫顾问称压倒性证据表明病毒来自实验室
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1053846/)
 
-**西班牙巴塞罗那喜悦农场 **wenwu
+【日本东京方舟农场】 撰稿：青衣  素材采编：武汉老温  校对：miumiu law
 
-中共病毒是武汉实验室制造只是真相的冰山一角，后面还有更多的陷阱在等着我们。主流媒体曝光感染的病人的真实画面了吗？显然没有，我们只是看到了一堆感染和死亡数据，这是极其不正常。当然还包括了最初在武汉爆发的疫情问题上，媒体更喜欢让人知道疫苗好处而不是共产主义制造并掩盖了这场灾难。然而真相只有一个。
+世界卫生组织咨询委员会顾问兼基因工程委员会现任委员之一的杰米·梅茨（Jamie Metzl），4月4日在接受《天空新闻》采访时表示，基于大量“压倒性的”证据，中共病毒来自武汉病毒学研究所泄漏的说法，是“非常有可能”的。他同时也签署了一封公开信，呼吁对中共病毒的溯源进行新的质询。
 
+对于世卫组织的报告中提到，中共病毒不太可能从实验室泄漏这一说法，梅茨表示不认同，并称事实上有大量最有说服力的间接证据证明，武汉实验室最有可能是中共病毒的起源地。
 
+在列举证据时，梅茨表示：“我们知道，新冠病毒的骨架是一种菊头蝙蝠冠状病毒。那些菊头蝙蝠生活在中国南部，武汉远远超出了它们的栖息范围。武汉没有菊头蝙蝠，并且此次疫情大流行始于深冬季节。”
 
-> [#UnrestrictedScientificMisinformation](https://twitter.com/hashtag/UnrestrictedScientificMisinformation?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/HFZUgIWCbe](https://t.co/HFZUgIWCbe)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 5, 2021](https://twitter.com/DrLiMengYAN1/status/1379063701530161155?ref_src=twsrc%5Etfw)
+“然而，中国唯一的P4病毒研究所就在武汉，那里拥有全球最大的蝙蝠冠状病毒收藏样本实验室，并在那里进行各种功能增强实验，包括那些高致病性病毒，更易传播给人类细胞。我们知道，在疫情爆发伊始，新冠病毒几乎可以完美地在人群中传播。”
 
+“我不能肯定地说新冠病毒始于实验室意外泄漏，但间接证据不胜枚举。重要的是，从第一天起，中（共）国政府就开始进行大规模掩盖行动，包括销毁样本；隐藏数据库和其他记录；囚禁新闻工作者；以及下令禁止任何中国科学家就疫情起源发表口头或书面言论。这个问题就严重了，必须进行彻底的调查。”
 
-*`1.闫博士推文大意：超限科学误导。据《司法观察》报道，福奇的NIH为中共制造病毒提供了便利。`*
+此外，梅茨在采访中还表示：“我们需要澄清的是，这项调查并非是由世界卫生组织所进行的，而是隶属于世界卫生组织的独立咨询委员会，并与中共政府相关单位有联系。更重要的是，该团队的四名国际成员，早先已经与武汉病毒研究所建立了合作关系。其中皮特·达扎克实际上是该研究所“功能增强实验”项目的资助人。这其中存在利益冲突，本应让他回避。所以这并不是调查，它无法检验所有可能的假设。而且我认为，在任何程度上，该报告都不具备权威性。”
 
+这无疑给了世卫的报告当头一棒。根据3月30日世卫组织正式公布的中共病毒溯源报告，认为中共病毒“比较可能至非常可能”通过蝙蝠与中间宿主向人类传播；“可能至比较可能”是蝙蝠将病毒直接传播给人类；“可能”通过冷链食品传人；“极不可能”通过实验室传人。
 
-> No coincidences🤔 [https://t.co/2iLi9pLkBh](https://t.co/2iLi9pLkBh)
-> — Dr. Dawn Michael💗 (@SexCounseling) [April 4, 2021](https://twitter.com/SexCounseling/status/1378793672225918977?ref_src=twsrc%5Etfw)
+对此，梅茨表示：“对所有世界性传染病的鉴定，都需要彻底检查所有可能的起源假说。因此，我们只调查「人畜共患」和「冷冻食品链」假说，而不检验实验室泄漏假说，这样得出的结论当然是不可信的。此外，在检查了某些可能性，却没有检查诸如实验室泄露的可能，并试图对各种可能性进行排名这种做法是荒唐的。所以我认为WHO联合调查团的研究结论不可信或无效。”
 
+当被记者问到，福奇上周回应前CDC主任罗伯特·雷德菲尔德有关病毒实验室泄漏言论时，向公众保证实验室泄露可能性不大，是否应就福奇资助武汉病毒研究所以及他在此项调研上的利益冲突而担忧时，梅茨表示，福奇需要接受调查，但皮特·达扎克和生态健康联盟才是更加令人担忧的，并不仅仅因为他们涉及资助武汉病毒研究所的功能增强实验研究，而是因为他是国际调查团队的一员，而该团队的任务是调查疫情起源，这才是利益冲突所在。
 
-*`2.网友推文大意：福奇早在2017年1月11日就说过，毫不怀疑在川普任期中会出现大瘟疫。`*
-3. 据2020年11月9日《搜狐》**`报道`**，复星医药与德国生物科技公司BioNTech（拜恩泰科）围绕“mRNA技术”进行了一次远程对话。今年3月，双方宣布达成合作，共同开发基于BioNTech的mRNA技术平台的新冠疫苗。国内媒体先抨击了AZ疫苗的不可靠，而后国内近日开始报道mRNA技术的疫苗出现问题。
+在谈到从美国今年早些时候发布的解密情报中得知，中共国有一项生物武器计划，并且武汉病毒研究所由中共军方控制，之前有被采访专家提到了新冠状病毒起源的一种可能性或是疫苗或生物武器计划的解毒剂时，梅茨表示：“我不知道武汉病毒研究所是否有生物武器的研究，但是我们知道「武毒所」的科学家们的确尝试研发针对冠状病毒的疫苗。而且我们知道，该研发过程有一部分是推动这些病毒使它们更具致病性。因此，在我看来，这次疫情大爆发在某些方面可能与这项工作有关，这是极有可能的。”
 
+在世卫组织正式公布中共病毒溯源报告后，美国等14国发表联合声明表示强烈质疑。多家西方主流媒体也质疑世卫报告，认为这份报告所展现的是中共大外宣在为中共洗白。对此，梅茨再次强调；“我们必须百分之百确定这份联合研究报告并不是世卫组织发布的报告，它甚至没有反映出世卫组织的任何观点，总干事谭德赛博士更好地表达了世卫组织的观点，他很清楚地说他认为所有起源说都需要得到充分的研究，当然也包括实验室意外泄漏的可能性。”
 
+注：本文仅代表作者观点
 
-> Evolutionary biologist Dr. Weinstein on The Hill, 4 Apr 2021
-> – Abundant high-quality evidence 
-> from non-mainstream scientists shows lab-origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw).
-> – Nature-origin is fairytale, so mainstream scientists’ conclusion suffers under pressure.
-> – Dr. Fauci is dishonest. [https://t.co/KIqLu5i7P8](https://t.co/KIqLu5i7P8)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 5, 2021](https://twitter.com/DrLiMengYAN1/status/1379054255638769673?ref_src=twsrc%5Etfw)
+参考链接：
 
-
-
-4. 闫博士转推评论战友发布的推文，关于进化学家weinstein接受国会山的采访：
-
-- 非主流的科学家们提供了大量证据、进行高质量的分析指向病毒来源于实验室洩漏
-- 主流科学家却为了证明病毒自然起源而备受压力
-- 病毒起源于自然，目前还属於传说神话的阶段
-- 福奇有能力、又有最高权限看到情报，却不诚实地推自然起源
-- 四方面说病毒源於实验室
-- 其一病毒基因序列修改痕跡是武毒所做过的
-- 其二病毒族谱上没有过的弗林酶切位点却出现了
-- 其三流行病学角度：病毒没有进化为高度适应人体高传染力的进化时间期间
-- 其四蝙蝠病毒4991改名为RaTG-13不符合科学规定
+1. [https://twitter.com/dajiyuan/status/1378784502202433543](https://twitter.com/dajiyuan/status/1378784502202433543)
+2. [https://www.skynews.com.au/details/\_6246516134001](https://www.skynews.com.au/details/_6246516134001)
 
 
-
-
-> Biologist Dr. Weinstein on The Hill, 4 Apr 2021
-> – Evidence on lab-origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)
-> 1. Evidence left in SARS-CoV-2 genome after modification 
-> 2. Furin-cleavage site 
-> 3. Well-adapted to human, but not match epidemiological principles 
-> 4. Bat virus 4991 vs RaTG13 in terminology [https://t.co/7PRLl5kzk9](https://t.co/7PRLl5kzk9)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 5, 2021](https://twitter.com/DrLiMengYAN1/status/1379057938136973313?ref_src=twsrc%5Etfw)
-
-
-
-这是在不同领域的领土战争：病毒，科学，媒体，疫苗，共产主义。。。与资本主义的撕扯。另外，在郭文贵先生的今日GTV爆料中提到的以钱灭美。
-
-
-
-> 【温故而知新】
-> 郭先生今天直播提到的卡恩（右），辞职后变成了法中基金会主席，和害死王健的华鋲（左）是好哥们（这张照片已经从网上删除）。什么叫物以类聚！ [pic.twitter.com/IOjDUkklfy](https://t.co/IOjDUkklfy)
-> — 瞿水台 Qu Shuitai (@QuShuitai) [April 5, 2021](https://twitter.com/QuShuitai/status/1379077831796346880?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> 人源化小鼠：模拟人的受体
-> 猴子：灵长类与人类很接近
-> 以上两种动物感染新冠病毒后均可以康复，这给了中共极大的信心，认为新冠病毒这个生物武器杀伤力可控。因此，他们铤而走险，直接开始社区内释放，直接用人做测试，结果传染性和致死率都超出预期 [https://t.co/YKCZmPVuaV](https://t.co/YKCZmPVuaV)
-> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [April 5, 2021](https://twitter.com/jsdfposjpqyuee1/status/1379128154720104448?ref_src=twsrc%5Etfw)
-
-
-***`战友推文大意：实验室人源化小鼠和猴子感染新冠病毒后均可以康复，这给了中共极大的信心，认为新冠病毒这个生物武器杀伤力可控。因此，他们铤而走险，直接开始社区内释放，直接用人做测试，结果传染性和致死率都超出预期`***
-在病毒和疫苗面前，凡人避让！
-
-+2
+0
