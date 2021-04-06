@@ -1,70 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0405.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1050677/)
+## 前新泽西州长恍然大悟：拜登撒谎并制造分裂
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1053142/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+俄罗斯莫斯科喀秋莎农场 仰望七星
+编辑上传 水星
+![]()![](https://gnews.org/wp-content/uploads/2021/03/D-5.jpg)gnews
+曾经与川普总统同台竞选，前新泽西州州长克里斯蒂（Chrischristie）,一度相信过拜登对川普总统的污蔑，批评过川普总统对大选舞弊欺诈的指控，如今恍然大悟：“拜登‘完全’做了他指责川普的事情：‘撒谎、制造民族分裂’”。
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
-## 中共病毒继续挖料
+《福克斯新闻》今早发文，对克里斯蒂前州长进行了报道。
 
-4月5日劳伦斯博士继续使用爆料革命关于中共病毒的定义和闫博士关于超限生物武器的定论发推宣传，推文也找出更多中共病毒专家的照片：
+全文如下：
 
-毫无疑问，陈薇少将应该是中共生物战计划的负责人&所显示的每个人都曾在军方工作过。在中国，民用和军用研究没有区别。
+前新泽西州州长克里斯蒂指责拜登虚伪，煽动了他在总统竞选期间发誓要平息的政治动荡，他向公众就有关佐治亚州最近通过的投票法案进行了错误的解读。
 
-#中共病毒 #超限生物战 #超限生物武器 #COVID19病毒来源
+拜登称这项新法律是“对宪法和良知的公然攻击”，把它比作“21世纪的吉姆·克劳”，错误地说它的投票站将在下午5点关闭，并支持美国职业棒球大联盟将2021年全明星赛从该州移走作为回应。
 
+身为纽约大都会董事会成员的克里斯蒂指出，这项法律规定提前两周以上投票，包括周末时间，允许多种形式的选民核实，允许投票持续到晚上7点，并要求各郡设立投票箱。
 
+“我坐在这里听了拜登的就职演说。” 共和党人克里斯蒂在CNN星期天对“本周”节目主持人乔治·斯蒂芬诺普洛斯（George Stephanopoulos）说，“这其中有几个真正的要点：政治不一定是一场毁灭一切的熊熊烈火，每一个分歧不一定都是引发全面战争的原因，我们必须摒弃事实本身被操纵或捏造的文化。乔·拜登上任84天就打破了他自己的规则。现在他在对美国人民撒谎，乔治，他在这项法案上撒谎，他在这件事上对美国人民撒谎，是为了引起他说要扑灭的熊熊大火。”
 
-> Make no mistake, Maj. Gen. Wei Chen is presumed head of the CCP biowarfare program & everyone shown has worked with the military. In China, there is no distinction between civilian and military research.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/luEHWbcH2F](https://t.co/luEHWbcH2F)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1379000079768510467?ref_src=twsrc%5Etfw)
+克里斯蒂继续说，在复活节的早晨，信仰天主教的总统必须做他指责前任所做的事，以此说明一个“伪君子”还活着。“这就是乔·拜登在复活节早上醒来时必须面对的情况，他所做的正是他在竞选和过渡期间坐在那里指责川普总统所做的。他在撒谎以引起这个国家的民族分裂，他指责川普总统就是这么做的，他今天早上做了个骗子和伪君子。”
 
+克里斯蒂还指出，佐治亚州民主党投票活动家斯泰西·艾布拉姆斯（Stacey Abrams）赞扬自己的家乡新泽西州通过的投票措施，他说，这些措施甚至不允许像佐治亚州那样多的人进入。
 
+克里斯蒂说：“斯泰西·艾布拉姆斯（Stacey Abrams）在新泽西州，在我所在的州，称赞菲尔·墨菲（Phil Murphy）这周的投票法，新泽西州提前投票时间是9天，是佐治亚州的一半。”“但她在新泽西州的电视上说，这是我们见过的最伟大的扩大投票权法案之一。”
 
-译者认为，这些照片一方面是让这些中共国内直接参与病毒研究的人了解自己已经上了美国追查病毒真相的黑名单，另一方面是通知与这些人有工作交往的美国科研界、医疗界相关人员明白，自己曾经与中共国为伍、简介资助和辅助中共病毒超限生物战的大爆发，下一步何去何从该好好反思了。
+艾布拉姆斯在周二与新泽西州州长菲尔·墨菲举行的一次虚拟活动中说，“我很高兴能够抬头看着新泽西，知道新泽西正把我们带向正确的方向。向墨菲州长、州议会、州务卿以及所有促成这一法案的盟友，我不仅向你们表示最衷心的祝贺，而且向你们表示感谢，因为你们正在为我们大家展示通往更美好民主和更美好未来的道路。” （原文完）
 
+克里斯蒂属前州长，一旦发现你不去做你承诺做的事，而且在撒谎，他肯定不会饶过你！左派觉得偷窃了大选就可以不了了之，对反省、审议大选程序的呼声实施阻碍、污蔑，只能说明他们内心有鬼，保守派不会善罢甘休，正义的人们也不会。
 
-
-## 美国拨款武汉病毒实验室研究中共病毒
-
-4月4日晚《每日呼声》发表文章《NIH称美国拨款给武汉病毒实验室用于增强型蝙蝠冠状病毒研究未经过HHS审查》
-
-文章称，罗格斯大学化学生物学教授Richard H. Ebright表示，美国国家健康研究院（NIH） “系统性地阻止”了政府对危险病原体研究的监督。
-
-一项NIH拨款，涉及对基于蝙蝠冠状病毒的改造，在病毒大流行之前向武汉病毒学研究所转移了60万美元，绕过了P3CO审查，因为安东尼-蝠齐领导的国家过敏和传染病研究所没有标记对该项目进行审查。
-
-据《纽约时报》报道，2014年，美国政府暂停了对增强功能研究的资助，因为实验室工作人员意外接触到了疾病控制中心的炭疽病毒。此前，2011年威斯康星州和荷兰的实验室被曝出有意修改H5N1禽流感病毒，能够有效地在雪貂之间传染，引发反响。
-
-该集团总裁Peter Daszak在2019年12月武汉首例COVID-19报告前几周在新加坡拍摄的播客采访中表示，Ecohealth有改造蝙蝠冠状病毒的历史。
-
-[点击查看此项新闻来源。](https://dailycaller.com/2021/04/04/nih-gain-of-function-anthony-fauci-review-board-wuhan-lab/)
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+原文链接：
+https://www.foxnews.com/politics/christie-biden-trump-lying-racial-divisions
 
 0
