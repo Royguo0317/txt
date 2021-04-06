@@ -1,49 +1,72 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】日本开展系列外交应对中共国威胁
-` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1053046/)
+## 准备好了吗？ 美国拜登政府将要推行“接种疫苗护照”
+` 旧金山金喜农场 Himalaya San Francisco Golden Farm` [轉載自GNews](https://gnews.org/zh-hans/1052940/)
 
-作者：纽约香草山美食部 蓝天大海
+**[翻译者、评论者】冰糖葫芦喵**
 
+**【编辑】冰糖葫芦喵、灭共文明**
 
+**4月5日《国家脉动》报道，在拜登政府的第67天：“如果您想在CCP病毒大流行期间，对旅游、娱乐和社交活动感兴趣，请出示您的“接种疫苗护照**”。”
+![]()![](https://gnews.org/wp-content/uploads/2021/04/拜登哈里斯.png)图片来源：《华盛顿邮报》图片插图;摄影:Demetrius Freeman和Melina Mara/华盛顿邮报。
+**疫苗“护照”马上就要来了。**
 
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+在美国航空公司和旅游业团体的敦促下，**拜登白宫正在考虑效仿纽约州长安德鲁·库默(Andrew Cuomo)的计划，推出“疫苗护照”，证明个人已经接种疫苗或没有感染CCP病毒。**
 
+他们强调，以色列在2020年2月份就启功了疫苗护照计划，而且它是目前是世界上疫苗接种率最高的国家。
 
+但是当时《华尔街日报》强调说这一计划存在许多陷阱，这个计划会对排在最后接种或者不愿意接种疫苗的人被歧视。《纽约杂志》报道称:“还有一些焦点小组证据表明，疫苗护照可以帮助说服不愿接种疫苗的美国人报名接种。”
 
-据《美国之音》4月5日报道，日本和德国将于本月中旬举行首次“2+2”会议。这次会议中，日本方面与会人员为外相茂木敏充和防卫大臣岸信夫，德国方面有外长马斯（Heiko Maas）和国防部长安娜格蕾特-克兰普-卡伦鲍尔（Annegret Kramp-Karrenbauer）。会议讨论的主要议题包括建立“一个自由与开放的印太地区”，以及共同应对“日益强硬的”中共国等。
+虽然接种过疫苗的人更容易旅行，参加更多的社交活动，但也会给那些拒绝接种疫苗的人带来被歧视和压力。
 
-![]()![](https://s3.six-degrees.io/upload/media/20210405/480/ebd38acf79015917e954de2ff550e261.jpg)图源网络
+**美国政府开发疫苗证书的工作由卫生与公众服务部(HHS)负责，由CCP病毒专家杰夫·齐恩茨(Jeff Zients)协调各部门的工作。**
 
-日本的经济长期依赖中共国，而德国则是西方国家中与中共国关系最密切的国家之一——两国目前在中共国都有很多利益关联。而中共国对亚太地区以及全球日益膨胀的野心，让这些原本亲中共国的国家也感到了威胁。本次会谈是两国合作、共同寻求应对这种威胁的最新尝试。
+**【评论】**
 
-同时，为了应对中共国的威胁，日本最近开展了一系列类似的外交活动。除了此次与德国的会谈，日本还于3月12日与美、澳、印举行了四国首脑线上峰会，于3月16日在东京与到访的美国国务卿和国防部长举行了美日“2+2”会议，此后又与澳大利亚、英国、俄罗斯、法国和印尼等国家分别举行了“2+2”会议。这些会议的议题无一例外，都包含印太安全和应对中共国威胁的议题。
-
-日本首相菅义伟拟定于本月中旬访问美国——这是日本系列外交的又一最新尝试。在华盛顿，菅义伟将与拜登总统会谈，预计台海问题也会被列入议程。菅义伟昨天（4日）接受一家媒体采访时说道，“对日本和美国来说，共同合作并使用威慑力量来制造一个环境，让台湾和大陆可以找到一个和平的解决方式，这很重要。”
-
-参考来源：
-
-[德日将举行首次2+2对话，联手遏制中（共）国](https://www.voachinese.com/a/Japan-Germany-to-hold-first-2-plus-2-dialogue-talks-in-April-20210405/5841432.html)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-编辑/校对/发稿：Irene木木
-
-更多资讯，欢迎订阅[美东香草山农场官方中文推特账号](https://twitter.com/MosHimalaya_CN)！
-
-英文资讯，欢迎订阅[美东香草山农场官方英文推特账号](https://twitter.com/MosHimalaya)！
-
-更多视频，欢迎关注[美东香草山农场官方YouTube账号](https://www.youtube.com/channel/UCSLHrqs6Pil7V-_jOuZVVgg)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-![]()![](https://gnews.org/wp-content/uploads/2021/01/GNEW-GTV-MOS-LOGO-2-2-1.jpg)
+就在今天**4月5日，前国务卿蓬佩奥也发推：“要求美国人为了参与正常的社交活动而出示疫苗接种证明，或“疫苗护照”，是无耻和违反美国价值观的。这与控制病毒无关，而只是左派为了获得更多权力和控制权而提出的又一个危险想法。**”
 
 
 
+> Requiring Americans to show proof of vaccination, or a ‘vaccine passport,’ in order to engage in society is outrageous and un-American. This isn’t about containing a virus, but is just another dangerous idea from the Left in their quest for more power and control.
+> — Mike Pompeo (@mikepompeo) [April 5, 2021](https://twitter.com/mikepompeo/status/1379104844200435713?ref_src=twsrc%5Etfw)
 
 
-0
+
+**上周**CNN主持人克里斯·库默（纽约州长安德鲁·库默的亲弟弟）在采访前“美国计划生育协会”主席温麟衍的节目中所谈论的，鼓动拜登政府说服美国人以接种疫苗来换取行动的自由。**与目前拜登政府推出疫苗护照计划相互呼应**。
+
+由此可以看出，拜登政府正在准备推动疫苗护照计划。如果这个计划一旦实施，会带动世界各个国家纷纷效仿推行这种数字疫苗护照。**这个疫苗护照会追踪你的每一个行动，你去过的每一个地方，你的所有消费都会被一览无余。**
+
+自从CCP病毒爆发以来，关于疫苗的疑问和争议就从来没有停止过，各大医药公司和机构纷纷加入疫苗开发的竞争行列中。可以说疫苗开发的速度快慢几乎成了国家实力的象征，反过来CCP病毒的一再回潮也促使各国政府把疫苗当成唯一可能遏制病毒蔓延的手段。
+
+人们似乎已经忘记病毒是中共实验室人工制造的这一重要事实，而中共到底准备了多少种病毒用来释放无从知晓，不把中共彻底消灭，疫苗开发的速度远远赶不上病毒变异和投放的速度。**只有揭示中共病毒的真相才有可能研制出有效疫苗。**
+
+在CCP病毒大爆发的初期，闫丽梦博士是第一个通过路德社告诉全世界CCP病毒的真相。从CCP病毒爆发，到口罩外交，疫苗外交，这一系列事件背后串联起来就可以看出，**中共发动的生化武器超限战的目的，正如近四年前郭文贵先生所说的：为了3F美国：搞乱美国、搞垮美国、搞死美国。从而取代美国，最终统治全世界。**
+
+**CCP病毒的制造和散播只是个开始，它后续的罪恶链条是推动疫苗经济和疫苗护照，获取接种疫苗的人的大数据，来监控和控制人类的行动轨迹和行为方式。**
+
+**最终以极权统治来代替民主制度，把它的邪恶统治模式销往全世界。**
+
+**【参考来源】**
+
+[On Day 67, Joe Biden Wanted to See Your Vaccine Papers. (thenationalpulse.com)](https://thenationalpulse.com/analysis/day-67-of-the-biden-regime-vaccine-credentials-required-soon-at-an-airline-near-you/)
+
+[https://www.youtube.com/channel/UCm3Ysfy0iXhGbIDTNNwLqbQ](https://www.youtube.com/channel/UCm3Ysfy0iXhGbIDTNNwLqbQ)
+
+[Media Darling Doctor Says the Quiet Part Out Loud: Dangle Freedom as “Carrot” to Force Vaccinations. (thenationalpulse.com)](https://thenationalpulse.com/breaking/use-freedom-as-carrot-to-force-vaccine/)
+
+[3F计划 (gwins.org)](https://gwins.org/cn/word/764.html)
+
+**【免责声明】 ** 尽管作者努力揭示真相并保持信息的准确性，但我们对网站，文章中引用的信息或相关图形的完整性，准确性和可靠性不做任何形式的明示或暗示的保证。“观点”部分中表达的所有观点均属于作者，并不代表任何组织或其他个人。
+
+**欢迎战友加入旧金山金喜准农场**
+
+[旧金山金喜农场 **GTV**](https://gtv.org/user/5f72d51a0cd82c6bb6a21fd4)
+
+[旧金山金喜农场 **Discord**](https://discord.gg/QQzQ79grEA)
+
+[旧金山金喜农场 **Twitter**](https://twitter.com/sf_himalaya)
+
+[旧金山金喜农场 **Youtube**](https://www.youtube.com/channel/UCHqGgKiTorpar6DADwZjg2w)
+
++5

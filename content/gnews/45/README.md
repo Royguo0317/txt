@@ -1,70 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国政要等每日重要信息0405.2021（持续更新）
-` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1050677/)
+## 【热点播报】新的世界秩序 – 专制集权
+` 纽约香草山MOS02` [轉載自GNews](https://gnews.org/zh-hans/1053004/)
 
-康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
+纽约香草山写作组   四季
 
-作者：康州盘古农场 喜马拉雅的文雅
-![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
-## 中共病毒继续挖料
+据《自然新闻》网站4月5日的报道，由民主党人主导的纽约州参议院通过了一项法案，“允许”政府官员强制将被认为是“公共健康威胁的人”无限期地扔进集中营。就像二战时纳粹所做的那样。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture1-1.png)图片来自网络
+报道称，武汉冠状病毒（Covid-19）大流行到了下一阶段，如果该法案由州长安德鲁·库莫（Andrew Cuomo）签署成为法律，那么即使是被认为具有“传染性”的健康人也可能会被挖出来并扔进监狱集中营，以保障公众的“安全”。
 
-4月5日劳伦斯博士继续使用爆料革命关于中共病毒的定义和闫博士关于超限生物武器的定论发推宣传，推文也找出更多中共病毒专家的照片：
+这一《 A416议会法案》的内容“涉及清除对公共健康有潜在危险的传染病病例，接触者和携带者”。法案中写道。任何被视为“病人”，甚至只是“病人”的接触者的人，如果可能被“感染”或可能是任何疾病的“携带者”，而不仅仅是中共病毒，都将成为纽约政府官员的目标。他们将有回旋余地和自由裁量权，根据他们认为合适的方式做出反应。
 
-毫无疑问，陈薇少将应该是中共生物战计划的负责人&所显示的每个人都曾在军方工作过。在中国，民用和军用研究没有区别。
+该立法特别规定，只要“州长的意见”认定某人是一个威胁，只要州长认为合适，就可以将其从家中带走，交由政府“照顾”。而这种人或一群人将被拘留在由州长或其受权人指定的医疗设施或其他适当的设施或场所。
 
-#中共病毒 #超限生物战 #超限生物武器 #COVID19病毒来源
+实质上，AB A416法案推翻了《宪法》，取而代之的是一种新的专制制度，据此，至少在纽约，政府现在将拥有无限的权力，可以随心所欲地将人从家中带走，剥夺他们的生命和自由。
 
+政府所要做的就是指责一个人可能感染了“病毒”，这就可以证明把这个人从社会上带走是合理的。试想一下，有多少持不同政见者会被卷入这个计划，并在公共卫生的幌子下被消灭。
 
+财富不能公有，权利不能私有。一旦权力不受约束，每一个人都不能幸免。当下正处在以毒灭共的关键时期，只有消灭中共，才能彻底结束对人类生存前所未有的威胁。
 
-> Make no mistake, Maj. Gen. Wei Chen is presumed head of the CCP biowarfare program & everyone shown has worked with the military. In China, there is no distinction between civilian and military research.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/luEHWbcH2F](https://t.co/luEHWbcH2F)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1379000079768510467?ref_src=twsrc%5Etfw)
+原文链接：[https://www.naturalnews.com/2021-04-05-ny-senate-passed-concentration-camp-bill-nazis.html](https://www.naturalnews.com/2021-04-05-ny-senate-passed-concentration-camp-bill-nazis.html#)
 
+校对/发稿：正义的小新
 
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-译者认为，这些照片一方面是让这些中共国内直接参与病毒研究的人了解自己已经上了美国追查病毒真相的黑名单，另一方面是通知与这些人有工作交往的美国科研界、医疗界相关人员明白，自己曾经与中共国为伍、简介资助和辅助中共病毒超限生物战的大爆发，下一步何去何从该好好反思了。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-
-
-## 美国拨款武汉病毒实验室研究中共病毒
-
-4月4日晚《每日呼声》发表文章《NIH称美国拨款给武汉病毒实验室用于增强型蝙蝠冠状病毒研究未经过HHS审查》
-
-文章称，罗格斯大学化学生物学教授Richard H. Ebright表示，美国国家健康研究院（NIH） “系统性地阻止”了政府对危险病原体研究的监督。
-
-一项NIH拨款，涉及对基于蝙蝠冠状病毒的改造，在病毒大流行之前向武汉病毒学研究所转移了60万美元，绕过了P3CO审查，因为安东尼-蝠齐领导的国家过敏和传染病研究所没有标记对该项目进行审查。
-
-据《纽约时报》报道，2014年，美国政府暂停了对增强功能研究的资助，因为实验室工作人员意外接触到了疾病控制中心的炭疽病毒。此前，2011年威斯康星州和荷兰的实验室被曝出有意修改H5N1禽流感病毒，能够有效地在雪貂之间传染，引发反响。
-
-该集团总裁Peter Daszak在2019年12月武汉首例COVID-19报告前几周在新加坡拍摄的播客采访中表示，Ecohealth有改造蝙蝠冠状病毒的历史。
-
-[点击查看此项新闻来源。](https://dailycaller.com/2021/04/04/nih-gain-of-function-anthony-fauci-review-board-wuhan-lab/)
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-（本文当日持续更新中）
-
-文章观点部分仅代表作者本人。
-
-***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0

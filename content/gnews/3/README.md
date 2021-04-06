@@ -1,84 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 每日新闻收集【4/5】
-` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1053827/)
+## 中共虚构法国记者为其新疆种族灭绝行为洗地
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1053893/)
 
-**西班牙巴塞罗那喜悦农场 **wenwu
+俄罗斯莫斯科喀秋莎农场 DongDong
 
-中共病毒是武汉实验室制造只是真相的冰山一角，后面还有更多的陷阱在等着我们。主流媒体曝光感染的病人的真实画面了吗？显然没有，我们只是看到了一堆感染和死亡数据，这是极其不正常。当然还包括了最初在武汉爆发的疫情问题上，媒体更喜欢让人知道疫苗好处而不是共产主义制造并掩盖了这场灾难。然而真相只有一个。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/S.jpg)ratherexposethem.org
+中共国官媒《中国环球电视网》（CGTN） 3 月 28 日刊出署名“布望”（Laurène Beaumond）的法国自由记者评论，此文章的标题是《我的新疆，阻止虚假新闻横行霸道！》。作者布望自称是法国独立记者，该记者声称新疆并不存在迫害人权、种族灭绝等[1]。
 
+她自我介绍自己是法国公民，在中共国生活了7年，还有家人生活在乌鲁木齐。在 2014 年至 2019 年期间曾多次访问新疆，她说，法国媒体所描述的新疆与她自己的所见所闻完全风马牛不相及。
 
+随即，法国《世界报》（Le Monde）对此人进行查证。首先，在 CGTN 宣称的巴黎第四大学（Sorbonne-Paris IV University）大学名册中并未找到此人。其次，《世界报》进一步向法国负责核发记者证的“法国职业记者证委员会”查询后，也没有经过认证的使用此名字的法国记者。最后，在她据称工作过的法国报纸上也没有发现署名“布望”的文章。而且，“布望”的推特账号是一个月前才刚刚创建的，除了 3 月 31 日在另一家中共国国营媒体网站上的一篇文章，谷歌搜索也没有发现她之前写的文章。这不禁让人怀疑，“布望”的突然出现就是为了洗白中共维吾尔族种族灭绝罪行而发声。
 
-> [#UnrestrictedScientificMisinformation](https://twitter.com/hashtag/UnrestrictedScientificMisinformation?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/HFZUgIWCbe](https://t.co/HFZUgIWCbe)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 5, 2021](https://twitter.com/DrLiMengYAN1/status/1379063701530161155?ref_src=twsrc%5Etfw)
+这位所谓独立记者的名字出现于去年年底，法国战略研究基金会研究员彭达兹 Antoine Bondaz 最早发现了这名独立记者的可疑之处，他在推特上嘲讽说：“我实在不敢想象，刚刚获得法国高级视听管理委员会(CSA)准许，在法国用法语播放的中共国国际电视台的网站居然胆敢用化名发表文章。“
 
+此外，“布望”的文章引发学者怀疑，她曾写道，“我停留最久的地方是乌鲁木齐，也去过喀什和阿克苏。喀纳斯的美丽让我难以忘怀，那里的绿色山谷让人想起 瑞士的阿尔卑斯山 。”
 
-*`1.闫博士推文大意：超限科学误导。据《司法观察》报道，福奇的NIH为中共制造病毒提供了便利。`*
+热衷中共国问题、在法国居住 10 年的网友罗杰·博德（Roger Beaud）指，这文章看起来出自华人手笔，或是由华人“捉刀”。因为，“一位真正的法国女人会想起法国的阿尔卑斯山，而不是瑞士的阿尔卑斯山！”[2]
 
+另一家法国报纸《费加罗报》随后称，虽然“布望”是个化名，但作者确实是真实存在的人，至少有人回应了《费加罗报》记者自称她就是“布望”。自称就是“布望”的人对《费加罗报》说，使用化名是因为“担心自己的人身安全”。CGTN 也为“布望”进行辩解，使用另一个名字往往可以让人更自由、不受约束地表达自己的真实想法，这种做法不仅在新闻领域，在历史中也屡见不鲜，例如第二次世界大战期间的抗战报道就曾出现过这种情况。这种强词夺理的说法，似乎没有人感兴趣，民众不禁要反问的是，为什么一位长期生活在中共国的法国女人，写了一篇为中共辩护的社论后，会对自己的安全感到担忧？
 
-> No coincidences🤔 [https://t.co/2iLi9pLkBh](https://t.co/2iLi9pLkBh)
-> — Dr. Dawn Michael💗 (@SexCounseling) [April 4, 2021](https://twitter.com/SexCounseling/status/1378793672225918977?ref_src=twsrc%5Etfw)
+此事迅速在国际社会发酵，中共外交部也迅速组织力量为虚构的法国记者“布望”洗地。
 
+中共国外交部发言人华春莹在近期的例行记者会上指出，“布望”是在中共国生活多年的独立撰稿人，曾多次到访新疆。“我不知道到底是谁在制造假新闻？正如我刚才所说，这个问题本身就反映了一些国家和媒体的不健康思维，他们认为凡是不符合他们想象以及所谓的价值观和意识形态的东西就一定是假的。”华春莹开启战狼外交模式恶狠狠地说。
 
-*`2.网友推文大意：福奇早在2017年1月11日就说过，毫不怀疑在川普任期中会出现大瘟疫。`*
-3. 据2020年11月9日《搜狐》**`报道`**，复星医药与德国生物科技公司BioNTech（拜恩泰科）围绕“mRNA技术”进行了一次远程对话。今年3月，双方宣布达成合作，共同开发基于BioNTech的mRNA技术平台的新冠疫苗。国内媒体先抨击了AZ疫苗的不可靠，而后国内近日开始报道mRNA技术的疫苗出现问题。
+华春莹抨击法国《世界报》根本就没有经过严格核实，“布望”此人确实存在。她本身就是法籍人士，至于“布望”的详细身份信息，华春莹却说不方便透露，反而声称有人对中共国说句公道话，就会遭到恶意攻击。[3]
 
+紧随外交部其后，CGTN 洋洋洒洒写了一篇“暴跳如雷”的社论。指责“反华”的社交媒体助推了《世界报》的 “误导性内容”，“世界必须清醒地认识到这样一个现实，即关于新疆的报道并非出于善意。”
 
+参考链接：
 
-> Evolutionary biologist Dr. Weinstein on The Hill, 4 Apr 2021
-> – Abundant high-quality evidence 
-> from non-mainstream scientists shows lab-origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw).
-> – Nature-origin is fairytale, so mainstream scientists’ conclusion suffers under pressure.
-> – Dr. Fauci is dishonest. [https://t.co/KIqLu5i7P8](https://t.co/KIqLu5i7P8)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 5, 2021](https://twitter.com/DrLiMengYAN1/status/1379054255638769673?ref_src=twsrc%5Etfw)
+[1] [French Media: China Made Up a Fake French Reporter to Defend Uyghur Genocide – BREITBART – 2021/04/05](https://www.breitbart.com/national-security/2021/04/05/french-media-china-made-up-a-fake-french-reporter-to-defend-uyghur-genocide/)
 
+[2] [中共被指虚构法国记者 文章露馅惹国际笑话 – 大纪元 – 2021/04/02](https://www.epochtimes.com/gb/21/4/1/n12852317.htm)
 
+[3] [中国官媒编造出一位法国记者 – RFI – 2021/04/01](https://www.rfi.fr/cn/%E4%B8%AD%E5%9C%8B/20210401-%E4%B8%AD%E5%9C%8B%E5%AE%98%E5%AA%92%E7%B7%A8%E9%80%A0%E5%87%BA%E4%B8%80%E5%80%8B%E6%B3%95%E5%9C%8B%E8%A8%98%E8%80%85)
 
-4. 闫博士转推评论战友发布的推文，关于进化学家weinstein接受国会山的采访：
-
-- 非主流的科学家们提供了大量证据、进行高质量的分析指向病毒来源于实验室洩漏
-- 主流科学家却为了证明病毒自然起源而备受压力
-- 病毒起源于自然，目前还属於传说神话的阶段
-- 福奇有能力、又有最高权限看到情报，却不诚实地推自然起源
-- 四方面说病毒源於实验室
-- 其一病毒基因序列修改痕跡是武毒所做过的
-- 其二病毒族谱上没有过的弗林酶切位点却出现了
-- 其三流行病学角度：病毒没有进化为高度适应人体高传染力的进化时间期间
-- 其四蝙蝠病毒4991改名为RaTG-13不符合科学规定
-
-
-
-
-> Biologist Dr. Weinstein on The Hill, 4 Apr 2021
-> – Evidence on lab-origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)
-> 1. Evidence left in SARS-CoV-2 genome after modification 
-> 2. Furin-cleavage site 
-> 3. Well-adapted to human, but not match epidemiological principles 
-> 4. Bat virus 4991 vs RaTG13 in terminology [https://t.co/7PRLl5kzk9](https://t.co/7PRLl5kzk9)
-> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 5, 2021](https://twitter.com/DrLiMengYAN1/status/1379057938136973313?ref_src=twsrc%5Etfw)
-
-
-
-这是在不同领域的领土战争：病毒，科学，媒体，疫苗，共产主义。。。与资本主义的撕扯。另外，在郭文贵先生的今日GTV爆料中提到的以钱灭美。
-
-
-
-> 【温故而知新】
-> 郭先生今天直播提到的卡恩（右），辞职后变成了法中基金会主席，和害死王健的华鋲（左）是好哥们（这张照片已经从网上删除）。什么叫物以类聚！ [pic.twitter.com/IOjDUkklfy](https://t.co/IOjDUkklfy)
-> — 瞿水台 Qu Shuitai (@QuShuitai) [April 5, 2021](https://twitter.com/QuShuitai/status/1379077831796346880?ref_src=twsrc%5Etfw)
-
-
-
-
-
-> 人源化小鼠：模拟人的受体
-> 猴子：灵长类与人类很接近
-> 以上两种动物感染新冠病毒后均可以康复，这给了中共极大的信心，认为新冠病毒这个生物武器杀伤力可控。因此，他们铤而走险，直接开始社区内释放，直接用人做测试，结果传染性和致死率都超出预期 [https://t.co/YKCZmPVuaV](https://t.co/YKCZmPVuaV)
-> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [April 5, 2021](https://twitter.com/jsdfposjpqyuee1/status/1379128154720104448?ref_src=twsrc%5Etfw)
-
-
-***`战友推文大意：实验室人源化小鼠和猴子感染新冠病毒后均可以康复，这给了中共极大的信心，认为新冠病毒这个生物武器杀伤力可控。因此，他们铤而走险，直接开始社区内释放，直接用人做测试，结果传染性和致死率都超出预期`***
-在病毒和疫苗面前，凡人避让！
-
-+2
+0
