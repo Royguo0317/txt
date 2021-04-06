@@ -1,46 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共产党认为自己是神&nbsp; 所以要灭掉所有的神
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1052296/)
+## 【香港要闻】本港多个行业政总外接力绝食 要求复业及赔偿
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1058466/)
 
-简述：郭先生在2021年4月3日的GTV直播中透彻地分析了共产党的强盗逻辑：只有共产党是好的、是神，资本主义、美国、香港、台湾，包括中共14亿老百姓都是坏的。 他说：“这个逻辑你看明白了，你再看共产党的时候你什么事都看得很清楚了。”
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210403_live_P1.srt.txt)
-**共产党认为自己是神****  ****所以要灭掉所有的神**
+搜集\编撰：西西
 
-**CCP Thinks It Is the God, So It Can Kill All Gods**
+在政府现行的防疫措施下，部分行业仍须继续停业。有受影响的团体于日前开始在政府总部门外发起绝食行动，促请政府尽快容许他们复业，并要求赔偿。有参与人士表示，行动会持续到本周三或有政府派员到场接收请愿信为止。发起绝食的团体包括香港持牌酒吧会所联会、卡拉ok同业协会、麻雀业界代表及娱乐及饮食协会等。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/40693.jpg)多个行业团体由昨日起在政府总部门外发起绝食行动，有数十名从业员今日到场声援。 （图片来源：巴士的报）
+据大纪元4月6日讯，当天在场有数十名相关行业从业员声援，又高叫「要求复业」、「要求政府赔偿」的口号。香港持牌酒吧会所联会创会会长梁立仁表示，他们会分三轮接力，每轮绝食24小时。他自己已经绝食了25小时，没有感到身体不适，他要求政府正面回应如何赔偿业界，以及解释为何仍勒令他们停业。第二轮绝食行动将由卡拉OK行业代表接力。
 
-按照共产党的说法，就所有这美帝国主义的东西都是骗子都垃圾，都是资本主义的嘛，是不是？只有共产党的是好的，对吧？ 就共产党你看它干啥事？共产党说我是无神主义，对吧，我是无神主义，所以我把所有的神要杀掉。佛教、穆斯林、新疆人、基督教最近抓得一塌糊涂，天主教、道教到处扫荡。为什么？因为我是神，我要当神我就要灭掉所有的神。大家我说的是事实吧？几年前七哥就说了吧？
+梁立仁又指出，酒吧业界由去年4月起，勒令停业共230日，另有100多日在有限制下经营，只有24日能够正常营业。他又说现在疫情好转，复活节假期多个处所如主题公园等地方人头涌涌，但酒吧业界却仍要面对长时间停业，十分痛苦，亦感到不公。
 
-According to the CCP, all things of American imperialism are crooks and rubbish for they are all capitalist, right? Only the Communist Party is good, right? Just look at what the CCP is doing. The CCP says I am atheist, so I’m going to kill all the gods. Recently Buddhists, Muslims, Xinjiang people, and Christians have been arrested massively. Catholics and Taoists have been wiped out in many places. Why? Because I am God, and to be a god, I must destroy all other gods. Everyone, do you admit that what I’m telling you is the truth? Has Brother Miles already told you this a few years ago?
+有议员到场慰问绝食的业界团体，并表示，疫情已有好转迹象，希望政府能准许业界复业，提供开业时间表，及给予赔偿。
 
-第二，资本主义是邪恶的，剥削阶级，是吧？看那私人企业家，是不是啊，你们解决了百分之七十、八十的中国就业问题。什么马云啊，什么许家印啊，万达啊，是吧，叶简明啊，吴小晖啊，肖建华啊，是吧，还有什么刚刚抓捕的搞了无数个孩子的，包括那个什么那个民生啊，董文标是吧，还有张宏伟啊，是吧这些人，抓一堆的张宏伟的家人是吧，就这些人，你们私人企业家，百分之八十就业。是啊，你就玩的就业了，国家还是以国营企业为主。始终国有企业牢牢地抓住这个中国的钱把子、钱袋子，要以国有企业为主。
+此外，有酒吧从业员表示，已经连续4个月没有开工，即使雇主愿意支付底薪，仍然难以负担生活。亦有卡拉ok店从业员今表示，已经耗尽积蓄，求助无门，希望政府关注相关业界，他们亦愿意配合政府的防疫措施只求重新开业。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/40694.jpg)去年11月，香港酒吧业协会副主席钱隽永（小图）认为，要求酒吧关闭的做法
+不合理，属「滥杀无辜」。
+点评：
 
-Second, capitalism is evil because they are the exploiting class, right? Look at the private entrepreneurs who created 70 to 80% of China’s jobs. Those like Jack Ma, Xu Jiayin, the Wanda Group, Ye Jianming, Wu Xiaohui, Xiao Jianhua, also the guy who was just arrested for raping countless young kids, the Minsheng Bank, Dong Wenbiao, and Zhang Hongwei whose family members were mostly arrested, these private entrepreneurs solved 80% of the employment problem. Regardless, the country is still dominated by state-owned enterprises. State-owned enterprises firmly control the moneybags of China and are deemed as the mainstream.
+去年12月政府收紧停业令，强制12类处所停业：分别是：浴室、健身中心、游乐场所、公众娱乐场所、派对房间、美容院、通常供人饮酒，以及跳舞或作其他娱乐的、夜总会、卡拉OK场所、麻将天九耍乐处所、按摩院、体育处所及泳池。
 
-那么，啥意思啊？国有企业是谁的？是党的，党产，党始终要说了算。爹亲娘亲都不如党亲，一切都是党的，一切听党的。怎么办？我要有钱，我要当资本家，我把你所有资本家全抓了。共产党这个流氓逻辑：我要当神，我就把神全灭了，我当唯一的神；全中国的所有的企业家，我要当老大，全抓了。抓了吧？一个不给你剩。你看着马化腾这两天还涨呢，马化腾一定是这结局，死不了活不了。它不会让他死的，马云可能弄死他，马化腾不一定弄死他。一定这结局啊，就是让所有天下的钱都是它的，然后杀掉所有有钱人。
+其中受政府收紧停业令影响的香港美容业总会创会主席叶世雄表示，早前业界已停业28日，元气仍未恢复，担心停业令稍后再延长，料业界累计损失逾亿元。他指至今仍未收到政府上次提及的补助金，今次政府更无提及补助，令业界感到愤怒，促请政府再额外提供援助，而且要尽快批出，否则业界难以挨下去。
 
-So, what does that mean? Who owns the state-owned enterprises? The party. They are the party’s properties and the party always has the final say because “parents are not as intimate as the party”, “everything belongs to the party”, and “you should listen to the party on everything”. How? I, the CCP want to be rich, I want to be a capitalist, so I need to arrest all the capitalists. The gangster logic of the CCP is: I want to be a god, so I ought to destroy all gods, so that I can be the only god; I want to be the boss of all the entrepreneurs in China, so I can arrest all of them. No one can get away. You see Ma Huateng’s stock is still rising the last couple of days, but Ma Huateng will definitely end up like this – can’t die and can’t live either. It won’t let him die, Jack Ma could be killed, but Ma Huateng may not be killed. But the ending will definitely be like this, that is, all the money in the world will belong to the CCP, and then it will kill all the rich people.
+香港酒吧业协会副主席钱隽永在去年11月接受媒体采访时表示，爆发第四波疫情是跳舞群组的阔太而非酒吧，要求酒吧关闭的做法不合理，属「滥杀无辜」。
+酒吧目前营运模式与餐厅相同，每台设有隔板，又或台与台之间相差1.5米，并不断更新防疫措施，门外亦有张贴安心出行二维码，与社交舞「面贴面」跳舞不同，叫停酒吧做法极不合理。
 
-我说你看到没有，这就是共产党 ，它让全世界人民把全世界都说成是流氓、痞子文化，都是假的，动不动就骂这个国家什么痞子，骂美国骂什么骂全世界包括我们爆料革命。它是世界最大的黑帮。它天天喊着我这个狮子醒来了，这个狮子醒来跟你共产党啥球关系啊？14亿人民也不是在70年前才出生的，中国人几千年的文明文化了，跟你共产党啥关系啊？
+如果港共政府对酒吧业界，以及其他各界的诉求作出相应和及时的回应，他们又怎会用这种伤害自己身体的极端方式去抗议？单单是这12个受政府收紧停业令影响的业界，背后有多少个受影响的家庭，不知道高高在上的港共高层可会理解？
 
-Have you seen that? This is the CCP. It criticizes all the people in the whole world to be hooligans, rogues and fake. They always scold a country as a ruffian or scold the United States and scold the whole world, including us, the Whistleblower Movement. But itself is the biggest gang in the world. It says the lion [referred to China] has woken up everyday, but does it have anything to do with you, the CCP? The 1.4 billion people were not only born since 70 years ago. The Chinese have a civilization and culture existing for thousands of years. What does it have to do with you, the Communist Party?
+对酒吧业的经营困境只是整个香港经济的冰山一脚，市场经济崩塌谁也无法独善其身。不知道N 轮绝食行动将由哪行业代表接力？而中共为推行「疫苗外交」不惜绑架全港民生，置市民于绝境而不顾，之前用「港独揽炒经济」诿过于泛民，如今让全世界人都看清楚了谁才是真正的元凶。
 
-它要挑战全世界，全世界没有好人就它一个好人，然后这些好人当中，它管…因为它是好人，它管着14亿全是坏人。它要当好人，谁也不能当好人，这又是共产党的流氓逻辑。香港，没好东西，抓！杀！台湾收回！中国人不打中国人，只杀中国人，只杀你中国人，干掉台湾。我说这就是流氓的共产党，兄弟姐妹们。这个逻辑你看明白了，你再看共产党的时候你什么事都看得很清楚了。
+【以上观点仅代表笔者本人 】
 
-It wants to challenge the whole world like there is no other good person in the world but itself. So, it should manage all the people, manage all 1.4 billion bad people. Because it is the only good guy, so nobody else can be good. This is, again, the CCP’s hooligan logic. In Hong Kong, nothing is good, so I can arrest them and kill them! Taiwan, we must take it back! Chinese don’t fight against Chinese? So they only KILL Chinese. They only kill Chinese, and also want to get rid of Taiwan. This is the gangster CCP, brothers and sisters. If you understand this logic, you will find everything about the CCP becomes crystal clear.
+资料来源：
+[大纪元香港](https://hk.epochtimes.com/news/2021-04-05/82562207)
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=606868a76e11a756edd63b0e](https://gtv.org/video/id=606868a76e11a756edd63b0e) (47:19-50:01, 53:15-54:29)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1049714/](https://gnews.org/zh-hans/1049714/)
+[香港经济日报](https://inews.hket.com/article/2811286/)
 
-* * *
+封面图來源：商台新闻
 
-字幕：【V%】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+审稿： 卡西欧 \ 上传：天网灰灰
 
-+1
+0

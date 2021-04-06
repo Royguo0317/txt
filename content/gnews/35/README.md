@@ -1,96 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年04月05日澳喜要闻（每日更新）
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1057992/)
+## 共产党认为自己是神&nbsp; 所以要灭掉所有的神
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1052296/)
 
-撰稿：GTV澳喜影像视频组、新闻组
+简述：郭先生在2021年4月3日的GTV直播中透彻地分析了共产党的强盗逻辑：只有共产党是好的、是神，资本主义、美国、香港、台湾，包括中共14亿老百姓都是坏的。 他说：“这个逻辑你看明白了，你再看共产党的时候你什么事都看得很清楚了。”
+[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210403_live_P1.srt.txt)
+**共产党认为自己是神****  ****所以要灭掉所有的神**
 
-**一、早间路德时评的重要内容：**
+**CCP Thinks It Is the God, So It Can Kill All Gods**
 
-- **美国前步枪协会主席支持闫丽梦博士论点。**美国前步枪协会主席奥利沃.诺斯认为新冠病毒是中共用来攻击美国的生物武器。诺斯是著名的“伊朗门”事件的执行者，里根时期国家安全委工作人员。两伊战争时期，里根政府秘密向敌对国伊朗军售，希望伊朗促成黎巴嫩真主党释放美国人质，诺斯亲自驾机成功执行了该任务。在违反《博兰修正案》的情况下，诺斯还负责将军售钱款援助尼加拉瓜反政府武装组织。“伊朗门”被民主党揭露后，诺斯替里根顶雷，揽下所有责任，最终被无罪释放。诺斯在特工界影响力巨大，享有很高地位，是现实中的“007”，他站出来为闫博士背书，代表博士论文获得特工界认可。此外，美国步枪协会拥有极大权力，文贵先生多次提到步枪协会是灭共的力量。
+按照共产党的说法，就所有这美帝国主义的东西都是骗子都垃圾，都是资本主义的嘛，是不是？只有共产党的是好的，对吧？ 就共产党你看它干啥事？共产党说我是无神主义，对吧，我是无神主义，所以我把所有的神要杀掉。佛教、穆斯林、新疆人、基督教最近抓得一塌糊涂，天主教、道教到处扫荡。为什么？因为我是神，我要当神我就要灭掉所有的神。大家我说的是事实吧？几年前七哥就说了吧？
 
+According to the CCP, all things of American imperialism are crooks and rubbish for they are all capitalist, right? Only the Communist Party is good, right? Just look at what the CCP is doing. The CCP says I am atheist, so I’m going to kill all the gods. Recently Buddhists, Muslims, Xinjiang people, and Christians have been arrested massively. Catholics and Taoists have been wiped out in many places. Why? Because I am God, and to be a god, I must destroy all other gods. Everyone, do you admit that what I’m telling you is the truth? Has Brother Miles already told you this a few years ago?
 
-- **了解美国的实用主义。**美国实用主义表现在：一、对美国来说，人的生命是第一位，为此可以破例。二、不打到美国痛处，美国不会动真格，以毒灭共是正道。三、巴拿马独裁者诺列加是美国扶植起来的，最后亲自抓捕并审判他的也是美国。美国的实用主义是现实存在的，如果看不到美国真正实力所在，灭共就会南辕北辙。中共自以为协助美国灭苏立下汗马功劳，利用美国的实用主义续命，但是文贵先生和爆料革命对中共病毒的揭露，让美国认识到中共破了规矩，必须消灭。
+第二，资本主义是邪恶的，剥削阶级，是吧？看那私人企业家，是不是啊，你们解决了百分之七十、八十的中国就业问题。什么马云啊，什么许家印啊，万达啊，是吧，叶简明啊，吴小晖啊，肖建华啊，是吧，还有什么刚刚抓捕的搞了无数个孩子的，包括那个什么那个民生啊，董文标是吧，还有张宏伟啊，是吧这些人，抓一堆的张宏伟的家人是吧，就这些人，你们私人企业家，百分之八十就业。是啊，你就玩的就业了，国家还是以国营企业为主。始终国有企业牢牢地抓住这个中国的钱把子、钱袋子，要以国有企业为主。
 
+Second, capitalism is evil because they are the exploiting class, right? Look at the private entrepreneurs who created 70 to 80% of China’s jobs. Those like Jack Ma, Xu Jiayin, the Wanda Group, Ye Jianming, Wu Xiaohui, Xiao Jianhua, also the guy who was just arrested for raping countless young kids, the Minsheng Bank, Dong Wenbiao, and Zhang Hongwei whose family members were mostly arrested, these private entrepreneurs solved 80% of the employment problem. Regardless, the country is still dominated by state-owned enterprises. State-owned enterprises firmly control the moneybags of China and are deemed as the mainstream.
 
-- **法国与亚约四国4月5日举行联合军演。**北约成员国之一的法国加入美日印为期三天的大型联合军演，应对中共对印太地区的挑战，此举宣告北约和亚约的联合行动，为亚北约崛起打下坚实基础。法国一直亲共，但近期法国接连对抗中共，和美国联盟成功不无关系。诺斯和联合军演分别代表情报和军事，可见全球在这两个方面正在全面准备。
+那么，啥意思啊？国有企业是谁的？是党的，党产，党始终要说了算。爹亲娘亲都不如党亲，一切都是党的，一切听党的。怎么办？我要有钱，我要当资本家，我把你所有资本家全抓了。共产党这个流氓逻辑：我要当神，我就把神全灭了，我当唯一的神；全中国的所有的企业家，我要当老大，全抓了。抓了吧？一个不给你剩。你看着马化腾这两天还涨呢，马化腾一定是这结局，死不了活不了。它不会让他死的，马云可能弄死他，马化腾不一定弄死他。一定这结局啊，就是让所有天下的钱都是它的，然后杀掉所有有钱人。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/20210405-Chinese-scaled.jpg)
-**二、晚间路德时评的重要内容：**
+So, what does that mean? Who owns the state-owned enterprises? The party. They are the party’s properties and the party always has the final say because “parents are not as intimate as the party”, “everything belongs to the party”, and “you should listen to the party on everything”. How? I, the CCP want to be rich, I want to be a capitalist, so I need to arrest all the capitalists. The gangster logic of the CCP is: I want to be a god, so I ought to destroy all gods, so that I can be the only god; I want to be the boss of all the entrepreneurs in China, so I can arrest all of them. No one can get away. You see Ma Huateng’s stock is still rising the last couple of days, but Ma Huateng will definitely end up like this – can’t die and can’t live either. It won’t let him die, Jack Ma could be killed, but Ma Huateng may not be killed. But the ending will definitely be like this, that is, all the money in the world will belong to the CCP, and then it will kill all the rich people.
 
-- **辽宁号突破第一岛链。**日本宫古海峡位于台湾和日本冲绳之间，是一条通往西太平洋的狭窄国际航道，也是日本的专属经济区。中共航母辽宁号带队驱逐舰、护卫舰和支援舰穿过宫古海峡，明显是针对美日联盟，其政治意义远大于实战意义，有助于习总加速神巩固党内地位。中共利用毫无战斗力的辽宁号在海上打游击，堵截航道破坏海上秩序，企图达到令美国航母疲于奔命的目的。不过，中共航母此次行动必然被美日联盟全程监视，可让美国看清中共拥有决战的战略意图，促使美国及其盟国加快战术准备并举行更加密集的军事演习。
+我说你看到没有，这就是共产党 ，它让全世界人民把全世界都说成是流氓、痞子文化，都是假的，动不动就骂这个国家什么痞子，骂美国骂什么骂全世界包括我们爆料革命。它是世界最大的黑帮。它天天喊着我这个狮子醒来了，这个狮子醒来跟你共产党啥球关系啊？14亿人民也不是在70年前才出生的，中国人几千年的文明文化了，跟你共产党啥关系啊？
 
+Have you seen that? This is the CCP. It criticizes all the people in the whole world to be hooligans, rogues and fake. They always scold a country as a ruffian or scold the United States and scold the whole world, including us, the Whistleblower Movement. But itself is the biggest gang in the world. It says the lion [referred to China] has woken up everyday, but does it have anything to do with you, the CCP? The 1.4 billion people were not only born since 70 years ago. The Chinese have a civilization and culture existing for thousands of years. What does it have to do with you, the Communist Party?
 
-- **美军为应对全球地面冲突做准备。**美国陆军少将理查•科夫曼表示，中共国是对美国威胁最大的恶意行动者。在军事竞争上，美国首先选择威胁，在战术上保证绝对优势。他还表示，中美之间一旦发生军事冲突，就会引发全球战火，美国正在为应对与中共可能的全球地面冲突做准备，比如其正在领导下一代战车的研制。实际上，在川普时代就已经成立“美国陆军未来司令部”。主要任务有，以微电子和芯片技术为基础研发低成本全自动武器，创建海陆空和卫星及网络协同作战体系等。现在已经投入使用的远程精确射击武器如榴弹炮、加农炮和超音速火炮等，可在低成本下解除韩国和台湾面临的威胁。美国体系可保证美军在应对未来战场的战术上领先全球，反观中共假骗偷体制，只能令其打肿脸充胖子。
+它要挑战全世界，全世界没有好人就它一个好人，然后这些好人当中，它管…因为它是好人，它管着14亿全是坏人。它要当好人，谁也不能当好人，这又是共产党的流氓逻辑。香港，没好东西，抓！杀！台湾收回！中国人不打中国人，只杀中国人，只杀你中国人，干掉台湾。我说这就是流氓的共产党，兄弟姐妹们。这个逻辑你看明白了，你再看共产党的时候你什么事都看得很清楚了。
 
+It wants to challenge the whole world like there is no other good person in the world but itself. So, it should manage all the people, manage all 1.4 billion bad people. Because it is the only good guy, so nobody else can be good. This is, again, the CCP’s hooligan logic. In Hong Kong, nothing is good, so I can arrest them and kill them! Taiwan, we must take it back! Chinese don’t fight against Chinese? So they only KILL Chinese. They only kill Chinese, and also want to get rid of Taiwan. This is the gangster CCP, brothers and sisters. If you understand this logic, you will find everything about the CCP becomes crystal clear.
 
-**三、澳洲新闻：**
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=606868a76e11a756edd63b0e](https://gtv.org/video/id=606868a76e11a756edd63b0e) (47:19-50:01, 53:15-54:29)
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1049714/](https://gnews.org/zh-hans/1049714/)
 
-- **澳洲前高官表示：**必须切断中澳经济纽带。大纪元4月4日消息，中共对澳洲的经济报复让一位曾主张积极与北京发展贸易关系的澳洲前高官彻底改变了观点。他表示，澳洲必须在经济上与中共脱钩，而毁掉中澳关系的是敌视西方价值观的中共，而不是中国人。肯尼恩曾在南澳工党政府内担任贸易厅长。在他任职期间，积极发展与中国贸易关系，促成南澳与山东成为姐妹省。但如今，肯尼恩对中澳贸易关系的态度发生了翻天覆地的变化。他对《澳洲人报》周末版说，中共的经济报复和军国主义扩张意味着，假装认为中澳两国之间的关系还有价值，已经没有意义了。澳洲必须做出抉择，现在是时候远离中共这样一个不认同澳洲价值观的国家了。
+* * *
 
+字幕：【V%】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-**四、来自香港前沿的报道：**
-
-- **香港城市大学酝酿改名可能只是开始**。美国之音4月4日消息，香港城市大学近来传出有意改名为“华南大学”或“南洋大学”的消息，近九成师生表示反对。香港城大学生与资深教授同声对美国之音表示，校名去掉“香港”两字有融入大湾区“去香港化”、向中共政治表忠的意图，一旦开启先例，教育服膺政治将不利于大学独立自主与学术自由，也将失去办大学作为社会良心的意义。香港时评人桑普认为，城市大学的改名可能只是一个开始。他担心不出几年时间，香港大学、香港中文大学、香港科技大学等，可能都会去掉“香港”开头的两个字，以移除港英时代或香港的标志，改为中共方式命名的“第一大学”、“第二大学”。**【战友评论】**极权统治者对占领地做的第一件事，就是“文化阉割”，失去文化传承，统治者的谎言就没有了参照物，可以随意欺骗。
-
-
-**五、伪中共国新闻：**
-
-- **闫丽梦博士最新报告揭穿中共造假**。新唐人4月3日消息，日前，世卫组织公布的中共肺炎病毒溯源调查报告，几乎排除了病毒源自武汉实验室的可能性。中国病毒学家闫丽梦隨后发表最新疫情报告，揭穿世卫报告误导国际。闫丽梦曾于2020年秋季发表过两篇有关中共病毒的报告，她是首位披露中共隐瞒疫情真相的科学家。她在第一份报告中使用大量证据和逻辑分析证明为什么中共病毒一定是实验室产物，以及如何按照众所周知的概念和既定的技术很容易地制造它。
-
-
-- **华春莹批评西方国家对世卫组织病毒溯源报告的质疑。**俄罗斯卫星通讯社3月31日的消息， 中共外交部发言人华春莹在3月31日例行记者会上表示，美国纠集极少数国家发表所谓的联合声明，质疑和否定中国-世卫组织联合专家组的报告，这是他们不尊重科学界溯源，搞政治操弄的确凿证据。**【童媚战友评论】**众所周知，世界卫生组织打着病毒溯源的名义，与中共配合作秀，不被允许做任何超出中共国安排的行程之外的调查，全程也仅仅只有一个多月的时间，其中包括就地隔离14天，这背后的故事，才真正有故事。以美国为首的国家，要求重新追溯病毒起源找寻真相，符合所有受疫情迫害、寻找解决方案的国家的一致利益。但中共深知，WHO可能是最后一次为自己站台，WHO也会因这篇报告而信誉扫地，可是不论中共外交部如何叫嚣，全世界都有权利知道真相，他们的言辞只会越来越苍白无力。
-
-
-- **北京高调纪念解放军飞行员王伟**。新加坡早报4月1日的消息，2001年4月1日在中国海南岛专属经济区上空，中美两国军机发生一起空中相撞事故。当时解放军飞行员王伟驾驶歼-8II战斗机进行监视和拦截，却与美国军机碰撞后坠毁，王伟跳伞后下落不明，被认定为殉职。中共官媒近日高调宣传并纪念王伟，在美中对峙的紧张氛围中，此举被视为凝聚反美情绪的手段之一。**【童媚战友评论】**中美关系走到今日，就算中共自以为在美国的蓝金黄势力多么强，始终无法改变两国对立甚至开战的结果。中共的自身实力有多少，可能他们知道，可能他们自己都不知道。一个以假治国的政权，这样的管理模式是层层复制，级级照抄，因为自从撒第一次谎言开始，就需要用一个又一个更大的谎言去掩盖。这样一个腐朽透顶的国家机器，真正的真相，又有谁能知道呢？在美中关系逐步走向冰点的同时，中共却一再制造民粹运动，激起无脑粉红的反美情绪，实际更流露出中共欲将14亿百姓挡在前面做炮灰的邪恶心理。
-
-
-- **中共试图拉拢东盟。**美国之音4月2日的消息，中共国务委员兼外长王毅本周与新加坡、马来西亚、印度尼西亚和菲律宾四国外长分别举行会谈，有分析人士称，此举目的是拉拢东盟，并扩大中共在东南亚地区的影响力。**【童媚战友评论】**中共本来对亚洲秩序运筹帷幄，但在香港和台湾事件上突破底线，违反国际公约，外加病毒事件真相的揭露，西方文明世界渐渐醒悟，明白中共的野心是要消灭西方文明，将共产主义理念普照全球。这本质是文化和核心价值观的冲突，无法妥协，更不能妥协。美国在川普政府时期，就开始在亚洲联合同样价值观的盟友，拜登政府延续了这一战略，布林肯国务卿与日本韩国两国的2+2会谈，就有意建立一个亚洲同盟。中共国也十分清楚这一格局的改变对自己的打击，所以急于拉拢东南亚的小国。这些国家要么就是政要已被中共持续蓝金黄拿下，要么就是本身极度依赖中共国的经济，所以此时，中共抓住弱点，再用利益交换的方法，让其妥协。但这样的手段是不可持续的，这些东南亚小国是否会坚持站在一个即将崩溃的政权一边？答案显而易见。
-
-
-- **涉嫌伪造签证，为中兴公司在美国招兵买马。**美国之音4月3日消息，佐治亚理工大学的一名73岁华人教授张继昆近日被该州地方检察官起诉，罪名是参与签证造假和电信欺诈。一同受到起诉的还有一名53岁的华人余建军，他曾是中兴通讯美国公司的研究总监。佐治亚北区检察官办公室在新闻稿中指出，张继昆利用职务之便，为一些中国人伪造访问学者身份，以获得J-1签证。这些人在提交给美国国土安全部的申请文件中声称，将在佐治亚理工大学与张继昆一起工作并获得酬劳，而实际他们在抵达美国后，都前往新泽西州中兴通讯美国公司的研究中心与余建军一起工作，更诡异的是，这些中国人在中兴通讯美国公司工作期间的薪水由佐治亚理工学院支付。**【童媚战友评论】**随着辛普森夫人计划的败露，越来越多隐蔽在世界各地为中共工作的组织和个人，都会被连根拔起。特别是像中兴这样被美国制裁的企业，一旦做出制裁决定，一定已掌握详实真相和证据。在这过程中的 每一个链条上的每一个关键人物，都会被美国调查。中共最擅长挂羊头卖狗肉，包装一个看似常规的合作项目，实际背后的真实用意都与项目本身大相径庭，而大学又是一个被中共渗透严重的领域，相信这位张继昆教授绝不是最后一个。
-
-
-**六、美国新闻：**
-
-- **美国专家推出提议，让“一带一路”没有市场。**大纪元4月4日消息，“一带一路”是中共以全球化的名义进行恶意扩张。“一带一路”带来的债务陷阱，以及中共利用“一带一路”在全球渗透，令美国等西方国家警惕。哈德逊研究所亚太安全主席克罗宁博士表示，美国反抗中共努力的一种最佳方式，是提供慷慨的、基于普遍人权、民主与平等的国际合作替代模式，包括为印度-太平洋国家提供有吸引力的贸易和外国援助项目组合。他指出：“美国的重要目标是防止中共将一大批从属国家，组建为反对自由国际秩序的技术独裁联盟或地缘政治堡垒。这就需要在鼓励印度-太平洋国家自由和法治的同时，帮助他们保持其战略自主权。”
-
-
-**七、世界其他地区新闻：**
-
-- **世卫顾问表示：有压倒性证据表明，病毒来自实验室**。大纪元4月4日消息，世卫组织咨询委员会顾问杰米·梅茨披露，基于“压倒性的”大量证据，中共病毒来自武汉病毒学研究所泄漏的说法，是“非常有可能”的。梅茨在接受澳洲《天空新闻》4月4日采访时说，世卫的报告不是世卫本身单独调查后得出的结论，而是一个“独立咨询委员会”和“中国同行”共同进行的。这项调查“不具备审查所有假设的能力”，因此目前不能被视为权威研究，“问题的核心是，对病毒大流行起源的任何起源假说，都需要进行彻底调查。”梅茨还说，支持实验室泄漏理论的间接证据是“压倒性”的，“武汉拥有的中国唯一的四级病毒学研究所，拥有全球最大的蝙蝠冠状病毒收藏（样本）。”
-
-
-- **菲律宾连续两天要求中共离开菲律宾海域**。美国之音4月4日消息，菲律宾方面称，中共正寻求在南中国海占领更多海域，几十艘民兵船继续驻扎菲律宾海域。菲律宾国防部长洛伦扎纳4月4日表示， “中共海上民兵继续驻扎在该地区，表明他们打算进一步占领西菲律宾海(地区)。”**【战友评论】**中共近期在南中国海进行各种挑衅，巴不得和周边国家擦枪走火，然后挑起战争，这样可以顺理成章占领台湾或侵入东南亚国家。中共其实并不在乎中国的疆土，只要能和周边国家促成交易，割让中国土地完全不是问题，最好的例子就是江时代让出了大片土地给俄罗斯。如果挑起战争，受难的是普通老百姓，死的也是普通老百姓的子女，中南海的私生子女们就等着踩着中国普通老百姓的尸骨，接手财富了。
-
-
-- **印度新一波“中共病毒”疫情升温**。大纪元4月5日消息，印度新一波疫情升温，宝莱坞明星阿克夏‧库玛4月4日表示，他的病毒检测呈阳性。库玛是最新一名确诊的印度名人。根据中央社报导，根据印度卫生部公布的数据显示，印度境内周日通报新增9万3249例确诊，是2020年9月以来的新高，染疫总数将近1250万例。印度去年9月新增确诊数达到近10万人高峰后，一度降到9000人以下，但这个13亿人口的国家自2月初以来的单日感染数一直在上升。**【战友评论】**闫丽梦博士多次警告：中共病毒留给人类的时间不多了！病毒面前不分权贵，和种族，唯有加速灭共才能找到中共病毒真正的“解药”。
-
-
-**八、爆料革命大事记：**
-
-**下面是郭先生4月4日盖特节选，摘自4月5日gnews纽约香草山MOS01。**
-
-- 世界经济、世界政治，甚至全世界人民，就像泰坦尼克号要撞向冰山一样。这几天一些有身份、政治方面、情报方面的人，说了打疫苗的后遗症，吓死人了。玩金融的，都想趁机捞一把，贪婪啊，感觉就像泰坦尼克号撞冰山的感觉。魔鬼占据上风后的那种狰狞与疯狂，就是中国共产党现在的写照，疯狂，灭亡前的疯狂。
-
-
-- 新中国联邦在救人，我们拯救的是这艘大船，而不是等船沉了救人，要让这个船沉不下去。国内多少人把家人送到了海外，包括共产党的老杂毛，还有政治局、各省的领导，那些所谓的精英、天天喊爱国的人，把钱和家人送到海外。剩下在国内的人等着灾难的到来，这是真真正正的奴隶制度，家族控制的国家，就是所谓的家天下，而不是人民所拥有的国家。所以说这个世界很残酷。总是1%或5% 、10%的人统治99%和95%的人，要你的命，要你的钱，想要你怎么死就怎么死。
-
-
-- 郭先生在华尔街的朋友们，将自己的大房子做抵押贷款，而且是不赎回的，意味着还不了钱就不赎回了，很多金融资产都往外卖，很多人想跟我们换GTV股份、G-coin，门都没有！这就是现在的形势。这个时候一定要搂住，世界巨变前，搂不住大灾难就会到来，此时不要贪，不要有幻想，要有各种防范。人类从没有像现在这样，面临一切重大改变和挑战，对于有智慧有本事的人来说是机会，愿成为每个战友和所有人的机会吧！
-
-
-感谢新闻摘录，新闻撰稿，配音录制以及视频制作战友们的辛勤付出。
-感谢坦克人提供的技术支持。感谢路德社文宣群的支持。
-欢迎明天澳洲晚九点，北京晚七点继续收听观看“澳喜要闻”
-
-[【澳喜文章1】](https://gnews.org/zh-hans/author/aujenny/)
-
-[【澳喜文章2】](https://gnews.org/zh-hans/author/himalaya-australia/)
-
-*编辑：Runaway*
-![]()![](https://gnews.org/wp-content/uploads/2021/04/%E6%BE%B3%E5%96%9C%E5%9B%BE%E6%A0%872.jpg)
-
-
-0
++1

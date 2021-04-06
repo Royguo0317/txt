@@ -1,41 +1,25 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】苏伊士运河再次发生堵塞
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1058032/)
+## 【快讯】美日将在印太地区推出“一带一路”替代计划
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1058152/)
 
-作者：纽约香草山教育部写作一组 文非
+**路仁**
+![From the Asia-Pacific to the Indo-Pacific: what is the economic  significance for China? - Asia Power Watch]()![From the Asia-Pacific to the Indo-Pacific: what is the economic  significance for China? - Asia Power Watch](https://asiapowerwatch.com/wp-content/uploads/2020/11/BRI-vs-Indo-Pacific.jpg)图片来源: Asia Power Watch
+据《日经亚洲》报道，4月16日日本首相菅义伟将访问华盛顿，在即将举行的美日领导人会晤中，两国将合作推出印太版“一带一路”的替代计划。
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
+鉴于大部分印太地区国家高度依赖旅游业，因而在这次疫情中损失惨重。一些国家不得不转向由中共主导的亚洲基础设施投资银行（AIIB）寻求融资帮助。但中共国经常以此对债务国进行外交施压，也被称为“债务陷阱外交”。除此之外，还有由于中共国技术所带来的潜在的安全和环境风险。
 
+中共常用的策略是通过低成本的基础设施建设拓展其“一带一路”。相比较，美日计划的核心要点则是建立“自由和开放的印太”。 文中指出，通过为企业和公司设立清晰的框架，美日将在印太赢得区域国家的信任，并在与中共国竞争中取得优势。
 
+据悉，5G将是在该区域与中共国竞争的主战场。同时，两国将在该区域合作推广新能源电池，氢能源技术，智能城市等，并注重气候变化等议题。
 
-北京时间4月6日下午，据国外航运情报网站MarineTraffic消息，苏伊士运河再次发生了油轮堵塞情况。一艘名为Rumford的意大利油轮发生“引擎故障”，再次造成了苏伊士运河的停航。距离上次“长赐号”货轮脱困不到一周的时间，苏伊士运河再次发生了堵塞情况。
+**简评**：中共的“一带一路”计划，正如文贵先生所言，是“上吊带，黄泉路”。许多国家因深陷中共的“债务陷阱”而苦不堪言。如同“雄安新区”，“海南自贸区”等一样，“一带一路”已经成陌路黄花，鲜见于中共喉舌媒体了。此次美日的替代计划，会是“一带一路”的终结吗？
 
-航运公司Sharaf Group报道称，在另一艘油轮遭遇引擎故障后，苏伊士运河的交通已经停止。来自tankertrackers.com的数据显示，运河在向北行驶的航道上发生了堵塞，几艘拖船也被派往救援该船。
+[新闻来源](https://asia.nikkei.com/Politics/International-relations/Indo-Pacific/US-and-Japan-plan-Belt-and-Road-alternative-for-Indo-Pacific)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片30.png)
+* * *
 
-彭博社指出，意大利油轮拉姆福德号是罪魁祸首，并援引沙拉夫航运代理公司在给客户的一份简报中说，这艘船“阻塞了所有通过运河的船只”。
+*编辑、发稿 文锦*
 
-苏伊士运河管理局立即采取了救援行动，试图用他们的拖船把这艘船从航道上拖走”。帮助管理该航道的交通的SCA表示，油轮“在向北行驶的航道中转运苏伊士运河时发生了停电”。封锁于当地时间周二10点15分开始。该机构表示：“SCA拖船现在正将这艘船拖离航道，以便恢复船只护航。”据Inchcape Shipping Services称，SCA用拖船拖着这艘船向运河北部驶去。
-
-据彭博社最新消息，海运服务供应商Inchcape最新消息称，意大利“Rumford”号油轮已脱困，苏伊士运河北向航行恢复正常。
-
-郭文贵先生在近期的视频中表示，苏伊士运河上次的堵塞事件背后操纵者便是中共。中共的小动作频频，对全世界造成了巨大的安全隐患。中共费劲心机在全世界搞超限战，利用最小的成本造成最大的伤害。苏伊士运河是全世界最重要的咽喉要道之一，每次发生状况都会对对世界产生一定的影响。现在需要注意的是霍尔木兹海峡，它是中东石油运输的必经之地，和苏伊士运河一样，狭窄的航道一旦发生“事故”，后果不堪设想。
-
-参考链接：[一艘意大利油轮因引擎故障在苏伊士阻塞交通](https://www.zerohedge.com/markets/ship-blocks-traffic-suez-canal-due-engine-trouble)
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
-
-
-
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
-
-0
++1
