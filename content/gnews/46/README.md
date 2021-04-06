@@ -1,59 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【世事解评】台湾铁路事故
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1054594/)
+## 《路德社》精选新闻快讯：Sellin博士公布制造中共病毒的参与者
+` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1057483/)
 
-作者：纽约香草山健身部 阿牛
-
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
+出品：《路德社》 编辑：《路德社》精选新闻专栏组
 
 
 
-2021年4月2日早上9点28分，从树林发车的台铁408次太鲁阁号列车，将进入花莲大清水隧道时，迎头撞上一辆正滑落入轨道的工程车，硬将其挤入隧道内，致使火车出轨并严重擦撞，造成台铁史上最严重50死、200伤的惨剧。
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片26.png)图片摘自：联合新闻网，中央社
-
-事故发生后，当局的相应善后如下：
-
-1. 台铁及花莲县消防局投入抢救。
-2. 总统蔡英文至台铁灾害应变中心，关切善后运作。
-3. 行政院长苏贞昌、交通部长林佳龙、内政部长徐国勇都在事故当日，先后到达事故现场关切救助状况，并随即前往医院探视伤患，对家属表达歉意，强调此时救人第一，现阶段仍会坚守岗位，持续救灾及疏运。
-4. 警方及军方进入支援救难工作。
-5. 民间企业团体捐款援助（约一亿台币）。
-6. 旅客保险及工程车强制保险理赔总计约2.5亿台币。按旅客伤亡程度给付。
-7. 个人投保部份预估总计约1.6亿台币。
-8. 4月6日上午6时19分，最后一具尸体移出。
-9. 预计4月10前復原完成，4月20日完成安全检测后开始通车。
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片27.png)
-
-台湾面对事故的处理措施為：
-
-1. 执政当局立刻面对事故，紧急啟动善后救灾处理。
-2. 在野党抨击执政误失及归责。
-3. 民间及机关团体积极参与救灾、人物力支援、捐助。
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片28.png)
-
-无论以上作为的背后，有何种正反因素，但最终结果，仍是对每个人生命个体最大的重视、关怀与尊重。
-
-台湾，可能还谈不上最好，但我们一直以台湾为荣，也相信台湾最终会走向更好。台湾加油！
-
-新闻素材来源：https://udn.com/news/amp/story/122094/5363094
-
-校对/发稿：飞虹
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+> [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)'s origin – leadership at Beijing Institute of Microbiology & Epidemiology, Academy of Military Medical Sciences & Chinese Center for Disease Control and Prevention with the same names popping up.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/CL17NY5QXf](https://t.co/CL17NY5QXf)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1378972629831454721?ref_src=twsrc%5Etfw)
 
 
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+2021年4月5日，Selin博士发推: [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click)‘s origin – leadership at Beijing Institute of Microbiology & Epidemiology, Academy of Military Medical Sciences & Chinese Center for Disease Control and Prevention with the same names popping up.
 
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+中共病毒起源-北京的微生物与流行病研究院，军事医学科学院和中共疾病控制预防中心的几位领导与下图一致。
 
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
+
+> Make no mistake, Maj. Gen. Wei Chen is presumed head of the CCP biowarfare program & everyone shown has worked with the military. In China, there is no distinction between civilian and military research.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/luEHWbcH2F](https://t.co/luEHWbcH2F)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 5, 2021](https://twitter.com/LawrenceSellin/status/1379000079768510467?ref_src=twsrc%5Etfw)
+
+
+
+Make no mistake, Maj. Gen. Wei Chen is presumed head of the CCP biowarfare program & everyone shown has worked with the military. In China, there is no distinction between civilian and military research.
+
+毫无疑问，陈薇少将是中共生物战计划的负责人，下图所有人均为军方工作。在中共国，民用和军事研究之间没有任何分别。
+
+Sellin博士拥有生物学和生理学博士学位，前美军预备役上校，曾担任太平洋特种作战司令部参谋长，他是军方情报部门的重要人士之一。Sellin博士公开点名这几位深度参与中共生物战的核心科学家，表明美国军事界和情报界已经确认爆料革命提供的情报，COVID19就是中共研制并故意投放的生物武器。美国接下来会按照计划，主推闫博士的三篇论文并公开部分确凿证据，揭露病毒的真相，将中共对全球发动生物战定罪。
+
+本文作者：Stranger
+审核校对：鲁邦五世
+上传排版：糖果儿
 
 0

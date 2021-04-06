@@ -1,77 +1,46 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【文贵视角】炸裂爆料：中共“以钱灭美”计划
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1058073/)
+## 共产党认为自己是神&nbsp; 所以要灭掉所有的神
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1052296/)
 
-撰稿：Skagen【㊙️翻Gnews原创组】
-责编：心声【㊙️翻Gnews原创组】
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2021-4-5-1.png)图片素材：GTV 制作：Skagen
-郭先生四月五号直播爆料连连：**中共如何长期处心积虑执行“以钱灭美”的计划，抽美债，砸美股，将美国黄金储备搬到香港。中共以性以钱将具有政治价值的西方政客拉下水，前任国际货币基金组织总裁卡恩是重要参与人，现任美国总统拜登和一些被中共拉下水的议员听任摆布助中共执行“以钱灭美”计划。**
+简述：郭先生在2021年4月3日的GTV直播中透彻地分析了共产党的强盗逻辑：只有共产党是好的、是神，资本主义、美国、香港、台湾，包括中共14亿老百姓都是坏的。 他说：“这个逻辑你看明白了，你再看共产党的时候你什么事都看得很清楚了。”
+[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210403_live_P1.srt.txt)
+**共产党认为自己是神****  ****所以要灭掉所有的神**
 
-***【背景：历史上的美元危机】**美元危机是指国际金融市场上人们大量抛售美元，引起黄金价格上涨、美元汇率急剧下跌的现象。*
+**CCP Thinks It Is the God, So It Can Kill All Gods**
 
-***第一次美元危机：**1960年10月爆发了，在国际金融市场上人们纷纷抛售美元抢购黄金，金价涨到1盎司41.5美元。
-**第二次美元危机**: 1968年3月，由于美元对内不断贬值，美国不得不实行“黄金双价制”。国际货币基金组织于1969年通过了设立特别提款权的决议。
-**第三次美元危机：**1971年夏，爆发了战后第三次的美元危机，国际金融市场又一次掀起抛售美元、抢购黄金。西方“十国集团”于12月达成“史密森协议”，其主要内容是：美元对黄金贬值7.89%，即38美元等于一盎司黄金。
-**第四次危机：**1972年下半年开始，美国国际收支状况继续恶化，国际金融市场上再次爆发了美元危机。美国政府于1973年2月被迫宣布战后美元第二次贬值，美元对黄金贬值10%，即黄金官价由每盎司38美元再提高到42.22美元，伦敦黄金价格一度涨到每盎司96美元。西方国家经过磋商达成协议：取消本币对美元的固定比价，宣布实行浮动汇率制。至此，以黄金为基础、美元为中心的可调整的固定汇率制彻底解体，布雷顿森林体系完全崩溃。*
+按照共产党的说法，就所有这美帝国主义的东西都是骗子都垃圾，都是资本主义的嘛，是不是？只有共产党的是好的，对吧？ 就共产党你看它干啥事？共产党说我是无神主义，对吧，我是无神主义，所以我把所有的神要杀掉。佛教、穆斯林、新疆人、基督教最近抓得一塌糊涂，天主教、道教到处扫荡。为什么？因为我是神，我要当神我就要灭掉所有的神。大家我说的是事实吧？几年前七哥就说了吧？
 
-**中共的一带一路****2025-30****计划核心目的是干掉美元**
+According to the CCP, all things of American imperialism are crooks and rubbish for they are all capitalist, right? Only the Communist Party is good, right? Just look at what the CCP is doing. The CCP says I am atheist, so I’m going to kill all the gods. Recently Buddhists, Muslims, Xinjiang people, and Christians have been arrested massively. Catholics and Taoists have been wiped out in many places. Why? Because I am God, and to be a god, I must destroy all other gods. Everyone, do you admit that what I’m telling you is the truth? Has Brother Miles already told you this a few years ago?
 
-郭先生在直播中讲道，全世界所有黄金加一起实际上是3万吨，合法美元30万亿，严格讲应该是1万美元兑换1盎司黄金，现在是1800美元兑换1盎司黄金，价格完全不对，美元完全是印纸。黄金严格讲没有内含价值，属于稀有金属。绝大多数储备在美国纽约郭先生家附近分处几十个地方，比如美国情报数字中心附近。官方数据是8000多吨储备，分属 29个国家。但在美国真正存放的不到1万多吨。官方数据称全世界黄金有3万吨，保守说是3万吨。全世界最有钱的国家包括中国的黄金也有在美国储备。30几个国家里面，后面10个国家占比很小，只有几百到几千，最厉害的19个国家占了9000吨里的90%。黄金除了美国有还有英国和瑞士也有，瑞士黄金是在英国不是在美国储藏的。郭先生从2017年爆料就告诉大家，**共产党的一带一路战略，包括马六甲战略计划、吉布提和中东军事基地、对伊朗的核心战略，这所有的一带一路****2025-2035****计划，核心目的是干掉美元，美元完了美国就彻底完了**。
+第二，资本主义是邪恶的，剥削阶级，是吧？看那私人企业家，是不是啊，你们解决了百分之七十、八十的中国就业问题。什么马云啊，什么许家印啊，万达啊，是吧，叶简明啊，吴小晖啊，肖建华啊，是吧，还有什么刚刚抓捕的搞了无数个孩子的，包括那个什么那个民生啊，董文标是吧，还有张宏伟啊，是吧这些人，抓一堆的张宏伟的家人是吧，就这些人，你们私人企业家，百分之八十就业。是啊，你就玩的就业了，国家还是以国营企业为主。始终国有企业牢牢地抓住这个中国的钱把子、钱袋子，要以国有企业为主。
 
-**性变态狂卡恩是中共最亲近的人，中共以性以钱将具有政治价值的西方政客拉下水以执行“以钱灭美”计划**
+Second, capitalism is evil because they are the exploiting class, right? Look at the private entrepreneurs who created 70 to 80% of China’s jobs. Those like Jack Ma, Xu Jiayin, the Wanda Group, Ye Jianming, Wu Xiaohui, Xiao Jianhua, also the guy who was just arrested for raping countless young kids, the Minsheng Bank, Dong Wenbiao, and Zhang Hongwei whose family members were mostly arrested, these private entrepreneurs solved 80% of the employment problem. Regardless, the country is still dominated by state-owned enterprises. State-owned enterprises firmly control the moneybags of China and are deemed as the mainstream.
 
-郭先生在直播中揭露，前法国总统竞选人，曾任国际货币基金组织（IMF）总裁的多米尼克·斯特劳斯·卡恩（Dominique Strauss-Kahn）是共产党最亲近的人，2012年在美国因性丑闻被抓。卡恩在任期内提出并严肃认真在核实存放在美国的黄金数量，因此被多次警告。国际货币基金组织是听从欧洲的，而世界银行是听从美国的。中共想把这两个组织都拿走，通过孟宏伟这些人花钱腐败组织成员。郭先生通过与卡恩的多次交往知道这个人不是好人，绝对是流氓级的，与形象龌龊、看到女人就流哈喇子色鬼样的孟建柱、周永康、中办主任王刚等中南坑人一个德性、一路货色。郭先生回忆与卡恩在伦敦吃早饭，卡恩看到两位漂亮的卡塔尔女士过来，一下呆住以至于说话完全都不看旁边的郭先生了。此货是典型变态性虐待狂。没到国际货币基金组织前，郭先生在法国就认识他。当时共产党已经有人和他建立关系，共产党把所有可能的法国、英国、德国，三驾马车任何有政治价值的人一个不放过。共产党给他弄免费女人太容易了。从 2006年到2010年，很多个少数民族文工团专门给卡恩演出，可怜的藏族、新疆、云南小姑娘，看好了就进房间…，那叫政治任务。直到卡恩在2012年5月份纽约时代广场强奸猥亵事件被抓后，中共还是想尽一切办法扶持他上位法国总统。通过中共的媒体运作，造成他是被美国陷害的假象，认为是因为卡恩提出了要核实黄金在美国，提出了挑战美元，同意中共搞亚投行、亚建行、亚洲基础设施银行，甚至和中共要搞亚洲货币，对美元带来威胁，让美国很不爽。共产党在媒体上的操作能力从卡恩事件就能看出来。郭先生认为，卡恩在美国的性丑闻事件绝对不是被陷害的，因为他之后在全球各地均出现了性丑闻，郭先生还知道现在中国很多当红小明星和卡恩上完床直接进医院了，当时是广东局安排的。郭先生怒骂：“这王八蛋就是个变态流氓。”
+那么，啥意思啊？国有企业是谁的？是党的，党产，党始终要说了算。爹亲娘亲都不如党亲，一切都是党的，一切听党的。怎么办？我要有钱，我要当资本家，我把你所有资本家全抓了。共产党这个流氓逻辑：我要当神，我就把神全灭了，我当唯一的神；全中国的所有的企业家，我要当老大，全抓了。抓了吧？一个不给你剩。你看着马化腾这两天还涨呢，马化腾一定是这结局，死不了活不了。它不会让他死的，马云可能弄死他，马化腾不一定弄死他。一定这结局啊，就是让所有天下的钱都是它的，然后杀掉所有有钱人。
 
-这件事情后郭先生高度关注美国储放黄金的事，发现此事很大。共产党为什么关注这个事情？郭先生发现卡恩帮助共产党要干掉美元、干掉美联储的一系列的计划，在合适时候要把美国储放的黄金弄走。另外郭先生还透露，卡恩和法国人拉加德，即后来的国际货币基金组织总裁关系不错。（注：拉加德于2011年7月5日－2019年9月12日担任国际货币基金组织总裁，拉加德今天依然担任着欧洲中央银行行长）
+So, what does that mean? Who owns the state-owned enterprises? The party. They are the party’s properties and the party always has the final say because “parents are not as intimate as the party”, “everything belongs to the party”, and “you should listen to the party on everything”. How? I, the CCP want to be rich, I want to be a capitalist, so I need to arrest all the capitalists. The gangster logic of the CCP is: I want to be a god, so I ought to destroy all gods, so that I can be the only god; I want to be the boss of all the entrepreneurs in China, so I can arrest all of them. No one can get away. You see Ma Huateng’s stock is still rising the last couple of days, but Ma Huateng will definitely end up like this – can’t die and can’t live either. It won’t let him die, Jack Ma could be killed, but Ma Huateng may not be killed. But the ending will definitely be like this, that is, all the money in the world will belong to the CCP, and then it will kill all the rich people.
 
-**拜登听从中共摆布，中共计划抽美债，砸美股，将各国在美国的黄金储备搬到香港**
+我说你看到没有，这就是共产党 ，它让全世界人民把全世界都说成是流氓、痞子文化，都是假的，动不动就骂这个国家什么痞子，骂美国骂什么骂全世界包括我们爆料革命。它是世界最大的黑帮。它天天喊着我这个狮子醒来了，这个狮子醒来跟你共产党啥球关系啊？14亿人民也不是在70年前才出生的，中国人几千年的文明文化了，跟你共产党啥关系啊？
 
-郭先生有情报来源，他于今年春节前就已听到内部说共产党要开始了（以钱灭美计划）。拜登登基之后，首先，（中共）要让拜登承认，病毒和共产党没关系，新疆大屠杀要拿掉，贸易要重新谈。第二，对美国发动（以钱灭美计划的）最核心是抽回所有中国投资到美国的国债，让美国股市股票砸下去，必须制造美国的金融股市危机，让美国回到2008年，同时劝服所有国家把黄金存到中国去。郭先生认为，中共动用3000亿美元就能绝对砸下美国股市。
+Have you seen that? This is the CCP. It criticizes all the people in the whole world to be hooligans, rogues and fake. They always scold a country as a ruffian or scold the United States and scold the whole world, including us, the Whistleblower Movement. But itself is the biggest gang in the world. It says the lion [referred to China] has woken up everyday, but does it have anything to do with you, the CCP? The 1.4 billion people were not only born since 70 years ago. The Chinese have a civilization and culture existing for thousands of years. What does it have to do with you, the Communist Party?
 
-黄金存放在美国几乎不赚钱，但中共给在美国有黄金储备的国家开出无法拒绝的条件，许诺存一个放一个，大家一起监管，即存一吨黄金给你一吨黄金相应的美元或瑞士法朗的无息贷款。郭先生感叹，“这美国哪能赢过中共啊！”如德国、荷兰、瑞士、比利时、委内瑞拉、罗马尼亚、奥地利、俄罗斯、斯洛伐克、意大利、土耳其、澳大利亚、法国、匈牙利十五个国家都答应了，19个国家签署协议了，贷款利息为零，等同于共产党把你黄金买走了，而这些黄金所有权还是这些国家的。设计方案的人在秦城监狱，此人的女儿是我们的战友，也是GTV投资人。（此处读者可以发挥想像力）
+它要挑战全世界，全世界没有好人就它一个好人，然后这些好人当中，它管…因为它是好人，它管着14亿全是坏人。它要当好人，谁也不能当好人，这又是共产党的流氓逻辑。香港，没好东西，抓！杀！台湾收回！中国人不打中国人，只杀中国人，只杀你中国人，干掉台湾。我说这就是流氓的共产党，兄弟姐妹们。这个逻辑你看明白了，你再看共产党的时候你什么事都看得很清楚了。
 
-如果共产党用贷款和现金把黄金弄到中国去，他们计划将黄金储备放在香港大屿山。郭先生笑称，“香港圣城要变成黄金之城了。”有共产党的驻港部队来管，大屿山佛下面建一个黄金储备地，从西贡监狱的侧面挪到大屿山。这事郭先生第一个爆料，这个计划已经6-7年了，最重要的是所有国家、军人、财政部随时可以进去看，然后给你等额贷款。
+It wants to challenge the whole world like there is no other good person in the world but itself. So, it should manage all the people, manage all 1.4 billion bad people. Because it is the only good guy, so nobody else can be good. This is, again, the CCP’s hooligan logic. In Hong Kong, nothing is good, so I can arrest them and kill them! Taiwan, we must take it back! Chinese don’t fight against Chinese? So they only KILL Chinese. They only kill Chinese, and also want to get rid of Taiwan. This is the gangster CCP, brothers and sisters. If you understand this logic, you will find everything about the CCP becomes crystal clear.
 
-最近全世界媒体全面报道，说什么“是时候了受够了，enough is enough。” 鼓动各国要到美国核实黄金在不在，8000吨还是9000吨。郭先生真不相信黄金还在那里，他预计，**未来黄金和银一定值大钱，一定超过****1****万美元兑****1****盎司黄金，所有的信用纸币一定崩塌，只是时间和方式问题。**关于美国这些黄金是否存在的问题，郭先生推测，卡恩再好色但也不会乱讲话，而拉加德当了国际货币基金主席之后，受到重要警告，提一次这个事情她将跟着完蛋。原一个日本裔的官员也想提，最后辞职了，因这将改变世界货币命运。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/video/id=606868a76e11a756edd63b0e](https://gtv.org/video/id=606868a76e11a756edd63b0e) (47:19-50:01, 53:15-54:29)
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1049714/](https://gnews.org/zh-hans/1049714/)
 
-**共产党行贿美国议员以助它执行“以钱灭美计划”**
+* * *
 
-**中共处心积虑准备“以钱灭美”计划。**某国的元首问郭先生，为什么共产党让他在美国搞几个国会议员作为朋友？包括在未来有影响力的议员。为什么中共要对司法委员会、金融委员会、能源委员会那么感兴趣？特别是金融委员会，而且要能发起议案的议员？郭先生听到后眼睛就亮了，明白了共产党做这些准备是为了未来启动中共“以钱灭美”计划，查美国黄金的时候，必须要有美国议员呼应。郭先生意识到老共已经深深植根于准备这场战争。
+字幕：【V%】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-**“以钱灭美”计划已经全面启动，拜登听任中共摆布配合中共计划，中共操纵全球媒体制造声势，被中共拉下水的美国议员积极配合提出议案。**最近美国起码2-3个议员提起要核查美国给其他国家储放的黄金，包括美国自己的黄金。可见过去一两周共产党出手了，让拜登干的事基本上拜登都干完了，该谈的也谈了，新疆大屠杀属于文化冲突问题，香港也没惩罚，冠状病毒不准谈。接着全世界铺天盖地在上周，通过拉脱维亚、意大利、匈牙利的报纸鼓动各国去美国查黄金，上一周就有七八个国家，包括日本把黄金运回了国。同时美国几个议员提议要查黄金储备，中共化几万美元早就搞定了这些议员，这是中共早在2006年就在准备的。
-
-郭先生预计，接下来的结局可能会出现一系列连锁反应，**美元崩塌，美国经济、信用崩塌，全世界****200****多个国家，****30****个金融城市，瑞士、****BVI****、英国、日本、香港、塞舌尔、塞浦路斯，这些金融国际港，所有这些地方几乎****90%****的银行将不接受美国人和美国公司开账户。如果黄金储备出了问题，美国国家信用直接归零，连共产党都不如。**
-
-**中共的“以钱灭美”计划如果成功，将摧毁美国的一切。**郭先生说，**“**这一天发生的时候美国就出大问题了，我们不要在乎美国人信不信，美国这个国家很伟大，最终他会明白的。”郭先生一点都不在乎美国人知不知道。头两天有人说，美国知道爆料革命的人很少，让郭先生出钱他就帮着宣传爆料革命。郭先生反唇相讥，“我们根本不在乎美国是否知道，是你需不需要！你不知道是你无知！是你失去!是你失败!你知道了是你获得，为什么要让你知道？多少人看，我们真的不在乎！有多少人看GTV、Gnews，我们不在乎。**这个国家的科技界、好莱坞、华尔街的腐败贪婪，最终要付出代价！”**
-
-**郭先生从****3M****公司开始分析美元对于美国的重要性。**3M这种私人公司在美国人最需要口罩的时候说它们没有义务给美国人口罩。私人公司全部向往利益，规则上是对的。但这个国家要完了，私人企业都也完球蛋了。美元都没了美国啥都没了。什么美国豪宅，自由女神、信仰、啥都没了，这个国家是高成本的运作，完全靠一个高成本高质量的法律体系在运行，维护的就是美元。当美元存在，就有了美国的航母、强大的军队和国家的科技能力，没有了美元就没有了美国军队和美国利益，那人才也不聚集在美国了，像埃隆·马斯克（Elon Musk）这样的人就不会呆在美国，还有美国企业吗？ 郭先生讲出了一个简单明白的逻辑，这就是一个简单的“皮之不存，毛将焉附”的道理。
-
-郭先生语带沉重说，这事美国一定要意识到！美国下面官员、执法部门的腐败到什么程度，对共产党的威胁完全无知，今天美国人对共产党的觉醒是远元不够的！经济出问题、黄金出问题，以钱灭美计划、灭白计划、蓝金黄深度、制造种族矛盾逐渐会显现出来。美国这2.9万亿美元的钱都将从老百姓身上拿回来，但这是需要时间的，在这个过程中，美国就可能失去世界第一科技军事强国、第一货币金融强国的位置，美国将四分五裂，这就是共产党想要的：搞弱、搞乱、搞死美国的3F计划，与蓝金黄计划、灭白计划环环相扣的一系列计划。
-
-参考连结：[郭文贵先生4月5号直播视频](https://gtv.org/video/id=606b0c896e11a756edd89042)
-
-相关阅读：
-
-[【文贵视角】数字货币将改变国家排名，新GTV或直接上市](https://gnews.org/zh-hans/1049399/)
-[【文贵视角】投资G系列投的是未来财富安全和体现财富的真正价值](https://gnews.org/zh-hans/1047467/)
-[【文贵视角】我们新中国联邦的民主不是中共那套民主](https://gnews.org/zh-hans/1039744/)
-[【文贵视角】中共将在霍尔姆斯海峡有动作，以重创西方经济](https://gnews.org/zh-hans/1035768/)
-[【文贵视角】中国人历来容易被操纵，共产党显露出纸老虎本质](https://gnews.org/zh-hant/1032698/)
-[【文贵视角】习近平到福建备战](https://gnews.org/zh-hans/1025799/)
-[【文贵视角】行动起来，消灭假丑黑骗的共产党犯罪集团](https://gnews.org/zh-hans/1022971/)
-[【文贵视角】中共在欧洲的现代辛普森计划暴露](https://gnews.org/zh-hans/1016414/)
-[【文贵视角】文贵先生阻止了一场什么样的战争](https://gnews.org/zh-hans/1008043/)
-[【文贵视角】美中假面戏：“披着羊皮的狼”和“披着羊皮装狼的羊”](https://gnews.org/zh-hans/999151/)
-[【文贵视角】拜登摔跤意味着什么？ 媒体不会告诉你的真相](https://gnews.org/zh-hans/995314/)
-[【文贵视角】如何看待共产党玩弄种族矛盾](https://gnews.org/zh-hans/994717/)
-[【文贵视角】镜子的另一面才能照出外交官的真相](https://gnews.org/zh-hans/990403/)
-[【文贵视角】香港危在旦夕 手足务必小心 新中国联邦人全体动员帮同胞](https://gnews.org/zh-hans/985859/)
-[【文贵视角】1月13号几乎中美开战 川普最后一分钟停止了计划](https://gnews.org/zh-hans/979866/)
-[【文贵视角】人民是中共待吃的肉 百姓以绝育的方式停止继续供养肉奴](https://gnews.org/zh-hans/973601/)
-[【文贵视角】中共与希特勒同一天毁约 绥靖将带来比万个希特勒更大的人类灾难](https://gnews.org/zh-hans/957265/)
-
-（本文仅代表撰稿者个人观点）
-
-0
++1

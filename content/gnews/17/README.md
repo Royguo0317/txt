@@ -1,50 +1,35 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新西兰伊甸农场大记事图库-1：回看战友一起走过的岁月
-` 喜马拉雅光影传镜` [轉載自GNews](https://gnews.org/zh-hans/1057620/)
+## 【文革故事】龌龊副厂长升职记
+` 波士顿五月花农场` [轉載自GNews](https://gnews.org/zh-hans/1058140/)
 
-编辑：喜马拉雅光影传镜
+五月花写作组 ｜ 作者：老枪6 ｜ 编辑：文合 ｜ 美工、发稿：灭共小宇宙
+![]()![](https://gnews.org/wp-content/uploads/2021/04/文革故事.jpg)
+小的时候，隔壁老王家有一个小伙伴，与我同龄，我们常在一起玩耍。文革还没有开始时，我们刚上小学，在老师的教育下，我们都把自己当成了共产主义的接班人，立志将来一定要为共产主义奋斗终身。
 
-镜头后的世界，总是可以穿越时光的阻隔，牵动心灵的共鸣和埋藏起来的深层记忆。泛黄的旧照片里往往雕刻着历历在目的岁月磨砺和瞬间欢愉。
+至于问到什么是共产主义？我们各有自己的理解。我说，到了共产主义社会，我们都不用劳动了，想吃什么好吃的就有什么好吃的；而他却说，到了共产主义社会，资本主义和社会主义都没有了，完全现代化，人人平等，谁都不会欺负谁，谁都有大房子住，天天吃大鱼大肉，手一按开关，想要什么就有什么。我问他这些都是谁告诉你的，他轻声地说是他爸爸。我心想，连老师都没有办法形容共产主义社会究竟是个啥样子，可他的父亲却知道得这么多，说得我恨不得明天就想去共产主义社会看看逛逛，让我好长一段时间脑子里全是共产主义社会那如同梦幻般的样子。除此之外，我们的小脑袋瓜里再没有别的什么美梦了。
 
-当某天，我们回望，岁月里那些记不清的时刻也许都印记在张张图片与行动的路上…….
+后来我们上了初中。有一天，我见小伙伴低着头不说话。于是追问他究竟怎么了，发生了什么事？由于我们是哥们儿，平时有啥说啥，一颗糖都可以掰成两半。他见旁边没别人，故意放低声音对我说，我父亲出事了，被打成了走资派。啊？啥是走资派？他解释说，就是走资本主义道路的当权派。他接着说，我爸没有被开除，党籍也保住了。我很是纳闷，他父亲不是知道那么多共产主义的道理嘛，怎么就给打倒了？
 
-本栏目开始逐步收集新中国联邦大记事及战友行动，回顾时光印记！积攒史料图库，精彩历史瞬间，积累新中国联邦人一路创造和记录历史的图库！
+一时间，学校里到处都是：打倒反动权威、阶级斗争一抓就灵……等标语。我问老师，地主资本家不是都没有了么，怎么还有阶级斗争？老师斩钉截铁地告诉我，现在是共产主义的初级阶段，还有阶级敌人隐藏在我们革命的队伍里。还有阶级敌人？于是我左顾右盼，也许老师说的阶级敌人就隐藏在身边呢。那个时候，我脑子里完全乱成了一锅粥，共产主义的初级阶段还这么复杂？到处都是坏人！难怪人与人之间说话都要特别小心，见人说人话 ，见鬼说鬼话。难怪在各行各业中揪出了那么多“牛鬼蛇神”！
 
-一路铭记时光里战友们经历的过往和一起经历的跌宕起伏的那些日子……
+小伙伴父亲的党籍确实保住了，也被平反恢复了原来的工作。后来，在我们刚刚参加工作的时候，有一次他父亲对我们说，一定要尽快入党，这个党籍太重要了，将来提干就要看你是不是党员。CCP党员不怕犯错误，只要能保住党藉，哪怕是留党查看也行，就证明党还没有抛弃你，你就不是普通群众，就有机会继续干。如果被开除了党籍，就什么都完了。这话怎么让我听起来觉得有点怪怪的，越嚼越不是滋味。
 
-今天，从新西兰伊甸农场的点滴开启🔛我们的图库之旅 📹 📷 🏃‍♀️🏃🏃‍♀️🏃
+小伙伴的父亲是某厂的副厂长，当时也是被专政的对象，挨过斗，脖子上挂过牌子。本以为一切前途就此结束了，可后来不知什么原因，厂里的走资派中他第一个获得了“解放”。但是听说在他平反沒多久，又因为有党员检举他，再次被带走了，弄了个二进宫。可是进去没多久，小伙伴的父亲却很快夹着包又回家了……
 
+文革过后，小伙伴的父亲还步步高升，调到某市当了副市长。 终于小伙伴也跟着他父亲搬到了市里，住进了市领导待遇的大房子。由于他们家身份的变化，我们之间也渐行渐远了。
 
-新西兰伊甸农场图文大记事： 回看走过的岁月
+有一次，厂里在文革时期当过工宣队队长、现在看守厂大门的老刘头与朋友聊天，说了这样一番话：王副厂长，文革时要不是党性强，大义灭亲，两次主动捡举郑厂长的右倾言论，他哪里还有今天，早就被批倒、批臭了。听到这，我一时无语了。原来他父亲是这样保住党藉的！干出了出卖同事、出卖灵魂的事儿。我越想越愤慨！无耻、叛徒、阴谋家，这几个词儿不停地在我脑子里浮现，CCP真的可以把人变成鬼。真为老厂长打抱不平，他太冤枉了。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/0-000.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/10_pure_new_zealand.jpeg)
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/03.jpeg)
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/04.jpeg)
+在CCP生态体系，靠出卖同事、检举领导获得升迁的情况稀松平常，而这种风气也助推了民间告密文化。社会各个阶层普遍缺乏诚信体系，甚至内斗和互害。爆料革命所信仰的唯真不破、正道主义，一定会将人性和诚信带回中华大地。
 
+* * *
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/05.jpeg)
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/14.jpeg)
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/08.jpeg)
+更多文章欢迎浏览[波士顿五月花GNEWS官方号](https://gnews.org/zh-hans/author/himalayamayflower/)！
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-29.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/14.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-25.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/08.jpeg)
+更多直播欢迎关注[GTV官方号五月花之声](https://gtv.org/user/5ffb6570f579a75e0bd03d56)和[五月花讲堂](https://gtv.org/user/6004b399f579a75e0bdd19a7)！
 
+欢迎加入[波士顿五月花农场](https://discord.gg/Tg7YCtMP9j)，订阅我们的[官方推特账号](https://twitter.com/HimalayaMayflo1)和[官方油管账号](https://www.youtube.com/channel/UCTnPC3SSXF3hN6hoKL4Tt9Q)！
 
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/26.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/41.jpeg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-3.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-1-1.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-14.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-9.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-8.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-1.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/0.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/32.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-33-5.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-16.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-18.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-19.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-17.jpeg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-31.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-13.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-20.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-10.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/image007-5.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-7.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/20200528_122104.jpeg)
-（本主题待续）
-
-本栏目以图库世界回顾，战友们一起走过的那些日子。镜头光影记录创造历史的时光！
-
-**\*栏目长期征集战友原创摄影作品；原创绘画作品；原创精彩视频作品。**
-
-
-
-0
++1
