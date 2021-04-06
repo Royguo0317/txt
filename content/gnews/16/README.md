@@ -1,46 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共产党认为自己是神&nbsp; 所以要灭掉所有的神
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1052296/)
+## 为生命请愿：解雇福奇并立即调查他！
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1058322/)
 
-简述：郭先生在2021年4月3日的GTV直播中透彻地分析了共产党的强盗逻辑：只有共产党是好的、是神，资本主义、美国、香港、台湾，包括中共14亿老百姓都是坏的。 他说：“这个逻辑你看明白了，你再看共产党的时候你什么事都看得很清楚了。”
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210403_live_P1.srt.txt)
-**共产党认为自己是神****  ****所以要灭掉所有的神**
+上周四，美国众议员泰勒·格林（Marjorie Taylor Greene）提出了对于 “解雇福奇” 的立法法案，她抨击了身为美国国家过敏和传染病研究所所长福奇处理过去一年的大流行病的方式。
 
-**CCP Thinks It Is the God, So It Can Kill All Gods**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-2.png-2-e1617716436122.jpeg)福奇（左）/ 泰勒·格林（右）
 
-按照共产党的说法，就所有这美帝国主义的东西都是骗子都垃圾，都是资本主义的嘛，是不是？只有共产党的是好的，对吧？ 就共产党你看它干啥事？共产党说我是无神主义，对吧，我是无神主义，所以我把所有的神要杀掉。佛教、穆斯林、新疆人、基督教最近抓得一塌糊涂，天主教、道教到处扫荡。为什么？因为我是神，我要当神我就要灭掉所有的神。大家我说的是事实吧？几年前七哥就说了吧？
+两个月前一家《生命申诉》（LIFE PETITION）的网站在呼吁人们签名申诉解雇福奇。迄今为止已经有四万六千多人签名。
 
-According to the CCP, all things of American imperialism are crooks and rubbish for they are all capitalist, right? Only the Communist Party is good, right? Just look at what the CCP is doing. The CCP says I am atheist, so I’m going to kill all the gods. Recently Buddhists, Muslims, Xinjiang people, and Christians have been arrested massively. Catholics and Taoists have been wiped out in many places. Why? Because I am God, and to be a god, I must destroy all other gods. Everyone, do you admit that what I’m telling you is the truth? Has Brother Miles already told you this a few years ago?
+当有关科学家警告美国政府在实验室中制造超级病毒的巨大危险时，一个人公开捍卫这危险的实验：那个人就是美国国家过敏和传染病研究所（NIAID）的有影响力的负责人—-安东尼·福奇博士。
 
-第二，资本主义是邪恶的，剥削阶级，是吧？看那私人企业家，是不是啊，你们解决了百分之七十、八十的中国就业问题。什么马云啊，什么许家印啊，万达啊，是吧，叶简明啊，吴小晖啊，肖建华啊，是吧，还有什么刚刚抓捕的搞了无数个孩子的，包括那个什么那个民生啊，董文标是吧，还有张宏伟啊，是吧这些人，抓一堆的张宏伟的家人是吧，就这些人，你们私人企业家，百分之八十就业。是啊，你就玩的就业了，国家还是以国营企业为主。始终国有企业牢牢地抓住这个中国的钱把子、钱袋子，要以国有企业为主。
+2014年，也就是美国政府要求暂停这项极度危险的研究的同一年，福奇博士的NIAID开始资助一项研究蝙蝠冠状病毒向人类传播的计划。
 
-Second, capitalism is evil because they are the exploiting class, right? Look at the private entrepreneurs who created 70 to 80% of China’s jobs. Those like Jack Ma, Xu Jiayin, the Wanda Group, Ye Jianming, Wu Xiaohui, Xiao Jianhua, also the guy who was just arrested for raping countless young kids, the Minsheng Bank, Dong Wenbiao, and Zhang Hongwei whose family members were mostly arrested, these private entrepreneurs solved 80% of the employment problem. Regardless, the country is still dominated by state-owned enterprises. State-owned enterprises firmly control the moneybags of China and are deemed as the mainstream.
+他的资金不仅用于开发使蝙蝠冠状病毒更容易向人类传播的技术，而且大部分资金流向了位于冠状病毒大流行最终出现的确切地点的实验室：武汉。
 
-那么，啥意思啊？国有企业是谁的？是党的，党产，党始终要说了算。爹亲娘亲都不如党亲，一切都是党的，一切听党的。怎么办？我要有钱，我要当资本家，我把你所有资本家全抓了。共产党这个流氓逻辑：我要当神，我就把神全灭了，我当唯一的神；全中国的所有的企业家，我要当老大，全抓了。抓了吧？一个不给你剩。你看着马化腾这两天还涨呢，马化腾一定是这结局，死不了活不了。它不会让他死的，马云可能弄死他，马化腾不一定弄死他。一定这结局啊，就是让所有天下的钱都是它的，然后杀掉所有有钱人。
+像每个人一样，福奇博士在未被证实有罪之前，应被假定为无罪。
 
-So, what does that mean? Who owns the state-owned enterprises? The party. They are the party’s properties and the party always has the final say because “parents are not as intimate as the party”, “everything belongs to the party”, and “you should listen to the party on everything”. How? I, the CCP want to be rich, I want to be a capitalist, so I need to arrest all the capitalists. The gangster logic of the CCP is: I want to be a god, so I ought to destroy all gods, so that I can be the only god; I want to be the boss of all the entrepreneurs in China, so I can arrest all of them. No one can get away. You see Ma Huateng’s stock is still rising the last couple of days, but Ma Huateng will definitely end up like this – can’t die and can’t live either. It won’t let him die, Jack Ma could be killed, but Ma Huateng may not be killed. But the ending will definitely be like this, that is, all the money in the world will belong to the CCP, and then it will kill all the rich people.
+但是证据如此庞大，以至于福奇用超级病毒去“赌博”而牺牲了全世界，至少他需要从公众信任的位置上被解雇。对于他的行为—“授权在实验室中创建超级病毒的极其危险的做法极可能违反美国法律”应该遭到调查。
 
-我说你看到没有，这就是共产党 ，它让全世界人民把全世界都说成是流氓、痞子文化，都是假的，动不动就骂这个国家什么痞子，骂美国骂什么骂全世界包括我们爆料革命。它是世界最大的黑帮。它天天喊着我这个狮子醒来了，这个狮子醒来跟你共产党啥球关系啊？14亿人民也不是在70年前才出生的，中国人几千年的文明文化了，跟你共产党啥关系啊？
+但是福奇博士远没有为自己的危险 “赌博”负责，反而得到晋升，到目前为止他是美国政府中薪水最高的雇员。
 
-Have you seen that? This is the CCP. It criticizes all the people in the whole world to be hooligans, rogues and fake. They always scold a country as a ruffian or scold the United States and scold the whole world, including us, the Whistleblower Movement. But itself is the biggest gang in the world. It says the lion [referred to China] has woken up everyday, but does it have anything to do with you, the CCP? The 1.4 billion people were not only born since 70 years ago. The Chinese have a civilization and culture existing for thousands of years. What does it have to do with you, the Communist Party?
+就像华尔街大亨因其财务过失导致2008年金融危机而获得巨额救助金一样，安东尼·福奇博士鲁莽的推动了可能导致致命大流行的研究。而现在，他也获得了金钱和权力的回报。
 
-它要挑战全世界，全世界没有好人就它一个好人，然后这些好人当中，它管…因为它是好人，它管着14亿全是坏人。它要当好人，谁也不能当好人，这又是共产党的流氓逻辑。香港，没好东西，抓！杀！台湾收回！中国人不打中国人，只杀中国人，只杀你中国人，干掉台湾。我说这就是流氓的共产党，兄弟姐妹们。这个逻辑你看明白了，你再看共产党的时候你什么事都看得很清楚了。
+正如福克斯的史蒂夫·希尔顿（Steve Hilton）精心细致地记录下来的那样，冠状病毒可能性起源指向安东尼·福奇。
 
-It wants to challenge the whole world like there is no other good person in the world but itself. So, it should manage all the people, manage all 1.4 billion bad people. Because it is the only good guy, so nobody else can be good. This is, again, the CCP’s hooligan logic. In Hong Kong, nothing is good, so I can arrest them and kill them! Taiwan, we must take it back! Chinese don’t fight against Chinese? So they only KILL Chinese. They only kill Chinese, and also want to get rid of Taiwan. This is the gangster CCP, brothers and sisters. If you understand this logic, you will find everything about the CCP becomes crystal clear.
+福奇是实验室开发超级病毒的最大支持者之一。福奇负责通过NIAID资助大部分研究。而且，似乎在美国政府禁止资助这项危险的研究后，福奇还是通过中间人转移纳税人资金允许在不安全的武汉病毒学研究所继续进行研究。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=606868a76e11a756edd63b0e](https://gtv.org/video/id=606868a76e11a756edd63b0e) (47:19-50:01, 53:15-54:29)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1049714/](https://gnews.org/zh-hans/1049714/)
+在对他在当前大流行的起源所扮演的角色进行彻底调查之前，福奇博士不应处于公众信任的位置。
+
+顺便说一下，应当指出的是，福奇博士不仅通过“倡导危险的研究”证明了对公共卫生具有灾难性意义。而且他还是一名糟糕透顶的公共卫生顾问，从经济方面到我们最根本的自由，他所主张的措施都对人类生活产生了负面影响。
+
+如果您同意我们的申诉内容，您也可以去生命申诉网站签名请愿。
+
+新闻来源 ：[生命申诉](https://lifepetitions.com/petition/fire-fauci-and-investigate-him-now)
 
 * * *
 
-字幕：【V%】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+翻译/整理：阿娜； 校对：旦旦
 
-+1
+0
