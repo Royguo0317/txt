@@ -17,9 +17,9 @@
 **郭文贵MILES** `2021-02-21T15:56:09`
 ##
 
-[4/5/2021 Miles Guo: “The CCP’s Plan to Take Down the U.S. with Money”, which per...](/content/getter/content/2021/04/606ce5f6dbc8001854a60d25.md)
+[4/5/2021 Miles Guo: “The CCP’s Plan to Take Down the U.S. with Money”, which per...](/content/getter/content/2021/04/606ce70adbc8001854a60d7c.md)
 
-**郭文贵MILES** `2021-04-06T22:51:34`
+**郭文贵MILES** `2021-04-06T22:56:10`
 ##
 
 [武汉到底死了多少人？ How many people actually died in the Wuhan pandemic?](/content/getter/content/2021/04/606ce5dddbc8001854a60d1c.md)
