@@ -1,45 +1,84 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德社》精选主题专栏：无限制的科学误导，邪恶“科学家”无所遁形
-` 路德社精选` [轉載自GNews](https://gnews.org/zh-hans/1049468/)
+## 每日新闻收集【4/5】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1053827/)
 
-《路德社》精选主题专栏组出品
+**西班牙巴塞罗那喜悦农场 **wenwu
 
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/4.jpg)
-
-就在世卫(WHO)漏洞百出的调查报告现世第二天,全球首位爆料中共病毒的英雄科学家，闫丽梦博士发表了她的第三份科学报告，通过驳斥为中共病毒洗白的科学家谬论,再次证明中共病毒实为超限生物武器的科学论断无懈可击。众目睽睽之下,在这场中共病毒浩劫中,配合中共误导全世界的邪恶”科学家”们也被起底,无所遁形。
-
-在闫丽梦博士里被点名的有彼得.达扎克（Peter Daszak），其负责的生态健康联盟（EcoHealth Alliance）曾在2014年至2019年与武汉病毒所负责人石正丽（外号“蝙蝠女”）协调开展中国各地蝙蝠冠状病毒的调查和编目工作；又从2019年开始，与北卡罗来纳大学免疫学教授巴里奇（RalphS.Baric）合作，进行实验室的人源化小鼠冠状病毒和嵌合体的功能增强（GOF）研究。
-
-美国北卡教授拉尔夫.巴里奇(Ralph Baric)，曾在一个视频讨论会上洋洋得意地炫耀他的功能增强研究，表示改造新冠病毒是非常容易的事情。以老鼠为例，解决新冠病毒不能在老鼠体内生长, 也不能与老鼠ACE2受体结合的问题，可以将4-5组冠状病毒变异放到受体结合域中,同时修改和拿掉两个阻碍结合的氨基酸。他曾说， “进化出能够在物种间跳跃的菌株对于冠状病毒来说并不困难。”
-
-2014年，美国政府以可能不慎造成疫情失控为由，明令禁止了病毒的功能增强研究。但是达扎克不仅从美国国立卫生研究院（National Institutes of Health）筹集到数百万美元资金，还拨给了中共石正丽的武毒所（WIV），支持蝙蝠冠状病毒功能获得研究。
-
-向达扎克提供资金的安东尼·S·福西（Anthony S. Fauci）是NIH负责人，他同时是美国总统卫生方面的首席顾问，前白宫总统顾问纳瓦罗在最近班农战斗室采访中说，被媒体捧为圣人的福奇，竟然与彼得.达扎克“生态健康联盟“有关联，这让他非常惊讶。这说明福奇从达扎克那里获得中共病毒信息，换言之，中共武汉病毒所的虚假情报，间接影响了美国总统，这是多么危险的一件事情。
-
-石正丽，武汉病毒研究所主任，在闫丽梦博士2020年1月19日，在路德社节目中爆料，中共病毒为实验室制造后，急急跳上前台，抛出一个虚构的RaTG13蝙蝠冠状病毒，声称这一病毒与中共病毒共享96.2％同一序列，妄图利用自己“蝙蝠女”的身份将中共病毒自然起源盖棺论定。确实，天真的科学家们被她带偏了方向，闫丽梦博士论文中说，“从那时起，这种RaTG13病毒就成为了自然起源理论的创始证据（截至3月30日，该《石》的出版物已被检索了111万次，被引用了5431次）”。可以想见，全球科学界在这一虚假病毒上浪费了多少时间和精力，耽误了多少本可以挽救的病毒受害者。
-
-不仅是科学家，科学界权威医学杂志《柳叶刀》（The Lancet）2020年2月18日发表一封公开声明，27名国际上知名的医学、公共卫生专家发起联署，谴责病毒实验室来源的“阴谋论“，更是将这场“不受限制的科学误导”推向高潮，而这份声明的幕后组织者又是彼得·达扎克。
-
-不要小看了达扎克，他还是世卫（WHO）中共病毒调查组负责人！所以筹集资金的，进行研究的，制造病毒的，最后调查写报告的，都是同一批人！如果没有闫丽梦博士一枝独秀，没有爆料革命传播真相，这个世界还能逃出生天吗？
-
-闫博士第三份报告还驳斥了两篇证据不实，逻辑混乱的“同行评议”，并真诚地希望这份报告能够帮助世界认识到正在发生的“无限制科学误导”的信息运动。中共病毒是中共政权开发的一种超限生物武器，闫博士团队认为，认识到这一点对于战胜中共病毒，保护全球社会免受未来生物武器攻击至关重要。
-
-达扎克曾对媒体说：搜寻罕见蝙蝠病毒，研究冠状病毒是为了了解未来可能的风险。希望找到病毒并提前开发疫苗。但是事实证明，在反人类的中共眼里，任何能对人类造成大规模伤亡的武器都是他们巩固独裁，扩张势力的必争法宝，
-
-郭文贵先生曾说过，中共使用这种病毒的初衷，是有选择地感染香港民主运动中与中共抗争的人们，以便中共可以将其用作借口在那里实行戒严令并最终镇压香港民主运动。但事态失控，中共就趁势加速实施了13579计划。不管有意还是无意，达扎克之流已经成了这场人类浩劫的推波助澜者。
-
-闫丽梦博士2020年9月14日发表的，第一篇证明中共病毒是实验室产物的科学报告。到目前为止，达到1.1亿条意见和超过75万引用。证明真相永远能够战胜谎言，科学报告铸造的人类历史，终究是由拥有科学精神，为正义挺身而出的科学家所书写，那些与邪恶同流合污的科学界败类们，定会被人民所唾弃和审判。
+中共病毒是武汉实验室制造只是真相的冰山一角，后面还有更多的陷阱在等着我们。主流媒体曝光感染的病人的真实画面了吗？显然没有，我们只是看到了一堆感染和死亡数据，这是极其不正常。当然还包括了最初在武汉爆发的疫情问题上，媒体更喜欢让人知道疫苗好处而不是共产主义制造并掩盖了这场灾难。然而真相只有一个。
 
 
 
-【文章仅代表作者个人观点】
+> [#UnrestrictedScientificMisinformation](https://twitter.com/hashtag/UnrestrictedScientificMisinformation?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/HFZUgIWCbe](https://t.co/HFZUgIWCbe)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 5, 2021](https://twitter.com/DrLiMengYAN1/status/1379063701530161155?ref_src=twsrc%5Etfw)
 
-本文作者：sherryok水云间
 
-审核校对：玫瑰新闻组
+*`1.闫博士推文大意：超限科学误导。据《司法观察》报道，福奇的NIH为中共制造病毒提供了便利。`*
 
-上传排版：玫瑰新闻组
 
-0
+> No coincidences🤔 [https://t.co/2iLi9pLkBh](https://t.co/2iLi9pLkBh)
+> — Dr. Dawn Michael💗 (@SexCounseling) [April 4, 2021](https://twitter.com/SexCounseling/status/1378793672225918977?ref_src=twsrc%5Etfw)
+
+
+*`2.网友推文大意：福奇早在2017年1月11日就说过，毫不怀疑在川普任期中会出现大瘟疫。`*
+3. 据2020年11月9日《搜狐》**`报道`**，复星医药与德国生物科技公司BioNTech（拜恩泰科）围绕“mRNA技术”进行了一次远程对话。今年3月，双方宣布达成合作，共同开发基于BioNTech的mRNA技术平台的新冠疫苗。国内媒体先抨击了AZ疫苗的不可靠，而后国内近日开始报道mRNA技术的疫苗出现问题。
+
+
+
+> Evolutionary biologist Dr. Weinstein on The Hill, 4 Apr 2021
+> – Abundant high-quality evidence 
+> from non-mainstream scientists shows lab-origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw).
+> – Nature-origin is fairytale, so mainstream scientists’ conclusion suffers under pressure.
+> – Dr. Fauci is dishonest. [https://t.co/KIqLu5i7P8](https://t.co/KIqLu5i7P8)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 5, 2021](https://twitter.com/DrLiMengYAN1/status/1379054255638769673?ref_src=twsrc%5Etfw)
+
+
+
+4. 闫博士转推评论战友发布的推文，关于进化学家weinstein接受国会山的采访：
+
+- 非主流的科学家们提供了大量证据、进行高质量的分析指向病毒来源于实验室洩漏
+- 主流科学家却为了证明病毒自然起源而备受压力
+- 病毒起源于自然，目前还属於传说神话的阶段
+- 福奇有能力、又有最高权限看到情报，却不诚实地推自然起源
+- 四方面说病毒源於实验室
+- 其一病毒基因序列修改痕跡是武毒所做过的
+- 其二病毒族谱上没有过的弗林酶切位点却出现了
+- 其三流行病学角度：病毒没有进化为高度适应人体高传染力的进化时间期间
+- 其四蝙蝠病毒4991改名为RaTG-13不符合科学规定
+
+
+
+
+> Biologist Dr. Weinstein on The Hill, 4 Apr 2021
+> – Evidence on lab-origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)
+> 1. Evidence left in SARS-CoV-2 genome after modification 
+> 2. Furin-cleavage site 
+> 3. Well-adapted to human, but not match epidemiological principles 
+> 4. Bat virus 4991 vs RaTG13 in terminology [https://t.co/7PRLl5kzk9](https://t.co/7PRLl5kzk9)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 5, 2021](https://twitter.com/DrLiMengYAN1/status/1379057938136973313?ref_src=twsrc%5Etfw)
+
+
+
+这是在不同领域的领土战争：病毒，科学，媒体，疫苗，共产主义。。。与资本主义的撕扯。另外，在郭文贵先生的今日GTV爆料中提到的以钱灭美。
+
+
+
+> 【温故而知新】
+> 郭先生今天直播提到的卡恩（右），辞职后变成了法中基金会主席，和害死王健的华鋲（左）是好哥们（这张照片已经从网上删除）。什么叫物以类聚！ [pic.twitter.com/IOjDUkklfy](https://t.co/IOjDUkklfy)
+> — 瞿水台 Qu Shuitai (@QuShuitai) [April 5, 2021](https://twitter.com/QuShuitai/status/1379077831796346880?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> 人源化小鼠：模拟人的受体
+> 猴子：灵长类与人类很接近
+> 以上两种动物感染新冠病毒后均可以康复，这给了中共极大的信心，认为新冠病毒这个生物武器杀伤力可控。因此，他们铤而走险，直接开始社区内释放，直接用人做测试，结果传染性和致死率都超出预期 [https://t.co/YKCZmPVuaV](https://t.co/YKCZmPVuaV)
+> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [April 5, 2021](https://twitter.com/jsdfposjpqyuee1/status/1379128154720104448?ref_src=twsrc%5Etfw)
+
+
+***`战友推文大意：实验室人源化小鼠和猴子感染新冠病毒后均可以康复，这给了中共极大的信心，认为新冠病毒这个生物武器杀伤力可控。因此，他们铤而走险，直接开始社区内释放，直接用人做测试，结果传染性和致死率都超出预期`***
+在病毒和疫苗面前，凡人避让！
+
++2
