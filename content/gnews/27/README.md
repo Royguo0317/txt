@@ -1,34 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共对美发动“以钱灭美”的货币战争&nbsp; 是其“灭白计划”的一部分
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1052112/)
+## 世卫组织报告遭痛批 深入调查病毒来源成共识
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1052136/)
 
-简述：郭先生在2021年4月4日深夜发布的盖特视频中，预告了4月5日直播将要讲的两个重要内容：中共怕人民过清明节暴露其病毒死亡真正人数，中共已经对美发动了“以钱灭美”的货币战争，也是其“灭白计划”的一部分。
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210404-getter3.srt.txt)
-**中共对美发动“以钱灭美”的货币战争  是其“灭白计划”的一部分**
+#### 译评：Kal | 责编：Wenwang
+![]()![](https://gnews.org/wp-content/uploads/2021/04/capture-6.jpg)
+据美国保守派媒体《Newsmax》4月1日有关中共病毒的报道，世界卫生组织(WHO)在近期发布的一份报告中称，病毒”极不可能”来自于实验室泄漏，这一提法被强烈批评。越来越多的人相信，中共病毒“来自于武汉实验室”。
 
-**CCP Launches a Currency War Against America as Part of Its “Extinction of the White People Plan”**
+报道引述美国国家公共广播电台(NPR)的消息说，武汉市是中共病毒爆发的来源地，也是中共国顶级生物实验室的所在地，其中包括武汉病毒学研究所。该研究所以研究多种冠状病毒而闻名。据悉，中共病毒已导致全球近300万人死亡。
 
-我那个手机很多很多战友发来在国内去清明节，过清明节的感受，以及武汉很多战友说，武汉所有的墓地都是便衣警察，有的人想到十字路口烧纸被抓，火葬场旁边到处是警车。这到底为啥呢？你们就死了几百个人，你说你弄这干什么？然后现在他们真正的感受到了，冠状病毒死的人那可不是一个“0”，两个“0”的事儿了，更夸张的事情，战友们发现了很多的事情，我在这儿不说了吧，所以明天我的直播说说，很多战友让我要直播给大家聊聊，那我就聊聊吧。
+报道指出，负责东亚和太平洋事务的前美国副助理国务卿大卫·菲斯（David Feith）告述NPR说,“我认为有很多人依据这样的事实来做出判断，比如武汉有实验室，而病毒又是在武汉最初爆发。”他披露，在疫情爆发之初，有关病毒起源的证据并不充分，但包括前总统川普在内的许多人都认为罪魁祸首来自中共国武汉市的一个实验室。
 
-I received many messages from fellow fighters in mainland China, telling me their feelings about the Tomb-Sweeping Day. Many fellow fighters in Wuhan said there were undercover police everywhere in cemeteries. Some people wanted to burn some joss paper at street crosses, but were arrested. There were police cars everywhere close to crematoriums. Why? Isn’t it just a few hundred people died? Why do you need to do all these? Now they truly feel that the number of deaths from the coronavirus should have one or two more zeros at least. What’s more absurd is that our fellow fighters have found out many more things, which I can’t say now. I will talk about it on my broadcast tomorrow. Many fellow fighters asked me to broadcast and chat a little bit.
+然而，尽管世卫组织与中共国进行了为期四周”走过场”的调查，还“像模像样地”收集了有关病毒起源的所谓关键信息，但世卫组织总干事谭德塞(Tedros)仍对其报告提出了批评。他说，”尽管团队已经得出结论，实验室泄漏的假设是极不可能的，这需要进一步的调查。若需要额外的调查任务，我愿意再派遣专家。”他在一份声明中补充说，对于调查病毒来源，世卫组织的报告仅仅是开始，而不是结束。”“我们必须遵循科学，将竭尽全力调查。”
 
-另外一个明天还聊一个重点，共产党啊..咱是以钱灭共，以毒灭共，共产党正在以钱灭美，在这之前我不能说，我要说了以后吧，他就不干了，他就不干了，美国人就不信，说咱造谣，胡说八道，是吧？现在美国人已经知道了，上一周美国人感受到了，啊..Miles,你说的有道理，他动了手了我再说，今天不搞重磅的重磅了，是吧，共产党以钱灭美咋灭的？他是灭白计划其中，他必须他要以钱灭美，以钱灭美就那几招儿，你们想听吗？咱明天上午9:30见。
+美国疾病预防控制中心(CDC)前主任 ——罗伯特·雷德菲尔德(Robert Redfield)博士公开抨击中共国对中共病毒大流行的处理方式。报道指出，据《纽约邮报》(New York Post)的消息，雷德菲尔德说：“在这种病原体被发现的一年后，科学家们正对其来源进行非常重要的分析。”“在我看来，有些信息是人为不透明的。我可以用‘掩盖’这个词，但我不知道，所以我不会去推测。”
 
-Another important thing that we will talk about tomorrow is that the CCP is planning to take down the U.S. with money [a currency war], as opposed to our taking down the CCP with financial activities and the truth about the virus. I didn’t say it earlier because if I exposed it prematurely, they might postpone or quit their plan, and then Americans would not believe me or even blame me for lying to them, right? Now Americans have been aware of it. It was last week. They said, “Miles, what you said makes sense, but we will wait for them to move first, then we will react.” So, there won’t be any bombshells for today, alright? How can the CCP take down the U.S. with a currency war? It’s part of their Extinction of the White People Plan. They will for sure implement their plan of taking down the U.S. with a currency war. They have only a few tricks. Do you want to hear? See you tomorrow at 9:30 AM.
+雷德菲尔德还披露，他当初曾告知中共国，CDC可以帮助调查病毒的发源地和发生的原因，甚至当时的川普（Trump）总统也给中共最高领导人打电话，但美国的提议没有被中共接受。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/getter/606a6c2fdbc8001854a58991](https://gtv.org/getter/606a6c2fdbc8001854a58991) (00:40-2:15)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1050330/](https://gnews.org/zh-hans/1050330/)
+作为著名病毒学家，雷德菲尔德重申，疫情是从武汉的一个实验室泄露出来的，但他表示泄漏不是有意为之。他说，“科学最终会解决这个问题。”“在实验室研究呼吸道病原体的工作人员被感染并非罕见。”
+
+报道援引福克斯新闻（Fox News）的消息称，美国作家，世卫组织人类基因组编辑国际小组成员杰米·梅茨尔(Jamie Metzl)抨击世卫组织得出的病毒“极不可能”是从武汉实验室意外泄漏造成的，称这是“令人愤怒的结论”。梅茨尔说，“他们做了大量工作，考虑了动物传染病在中间动物宿主和冷冻食物传播之间的可能性。”“但他们根本没有考虑意外泄露这一可能性。他们甚至都没有费心去调查一下就断言泄漏是极其不可能的，这令人非常发指。”
+
+报道称，据NPR报道，美国国务院发布的一份简报披露，2019年秋，武汉病毒研究所有几名实验室工作人员生病，并指出该设施有秘密军事活动，因为该研究所从事一种危险的冠状病毒研究。虽然中共国驳斥了这一说法，但梅茨尔说，世界卫生组织的研究人员应该坚持这一点，并进一步进行调查。有些专家把美国及全世界人民的生命威胁抛到一边，居然称深入研究这种病毒的起源可能会破坏美中两国政治关系。哈佛免疫学家巴里·布鲁姆（Barry Bloom）博士就是其中一位。他说，“世卫组织另一个委员会的合理解释不管有多好，这两个国家都有一部分人不相信最有可能的答案。”
 
 * * *
 
-字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+**评：**中共病毒已肆虐全球，至今已超过1.3亿人口确诊感染，超过283万人死亡。即使是中共病毒在武汉爆发一年后的今天，各国人民仍处于中共病毒的戕害之中。不少人（包括笔者在内）以为推出疫苗后，中共病毒疫情也该告一段落了，但是事实却截然相反。近日全世界疫情控制形势告急，美国，巴西和印度等地纷纷亮起警报，确诊病例出现明显上升势头。例如4月2日的单日中共病毒疫情数据显示：美国69,822例确诊，967人死亡；印度89,129例确诊，714人死亡；巴西70,238例确诊，2,922人死亡；俄罗斯8,682例确诊，392人死亡……。
+
+现实的残忍是各国仍有泯灭良心的人或者被中共统战的人站出来替中共说话，把“问责中共”和“维护国家关系”绑在一起，并且与被郭文贵先生戏称为“武汉组织”的世界卫生组织“一唱一和”，互打掩护，企图扰乱视听，以留给中共苟延残喘甚至让其蒙混过关的机会。在病毒来源上，中共倾尽各种手段在学术、传媒、智库等领域，与追求真相的正义力量暗战正酣，但显然地，中共已处于苦苦挣扎的阶段。中共国的外交部台面上的“嘴硬”，但桌子底下却四处出手，显示出“各种急”，做贼心虚本质无疑。例如世界卫生组织发布的病毒起源调查报告中，称病毒”极不可能”来自于实验室泄漏，被各界强烈抨击，甚至该报告被指是中共直接写出来的。前美国国务卿蓬佩奥也发推表示，世卫组织病毒来源报告是“中共和世卫组织虚假宣传的虚伪延续”。
+
+爆料革命新中国联邦在揭露中共病毒真相上起到了“大功率探照灯”的作用，让各国政府尽快认清病毒真相。尤其是英雄科学家——闫丽梦博士在美国主流媒体上，勇敢地现身阐述病毒来自中共国实验室的事实逻辑，并且接连发表三篇重磅论文，让中共国官方和学术界无力反驳。如果说闫丽梦博士的第一篇论文是举证为什么病毒来自于中共官方实验室，第二篇揭露中共病毒是经过“功能增强”改造的实验室产品，那么第三篇则是“搂草打兔子”让人们看清替中共掩盖病毒真相的学术“鳄鱼”们和误导世界舆论的世卫组织，同时直指病毒是中共政权开发的一种不受限制的生物武器，这无疑让人们睁开了“不敢相信的眼睛”，看到了中共“潘多拉盒子”露出的冰山一角。
+
+&gt;&gt;原报道链接&gt;&gt;：[Theory That COVID-19 Came From a Chinese Lab Gains Supporters](https://www.newsmax.com/Health/headline/Wuhan-lab-covid-world-health-organization/2021/04/01/id/1016061/)
 
 0

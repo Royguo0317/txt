@@ -1,130 +1,38 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 场景数据驱动的G商业生态应用
-` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1051643/)
+## 华盛顿飘荡着一种不安情绪&nbsp; 说冠状病毒一定会再来而且更夸张
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1051678/)
 
-#### 第28期喜马拉雅商业评论直播精要
+简述：在2021年4月2日的盖特视频中，郭先生说华盛顿的朋友透露说，“美国在华盛顿，飘荡着一种不安的情绪，说冠状病毒一定会再来的，而且一定会是更加夸张”。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210402-getter1.srt.txt)
+**华盛顿飘荡着一种不安情绪  说冠状病毒一定会再来而且更夸张**
 
-作者：火星 | 编辑：正道主义 | 校对:仙女儿-文善 | 审核: Beicy-数学老师| Page：小雨
+**It’s Said in Washington D. C. that the Virus Will Come Back for Sure and Even More Ferociously**
 
-[视频链接：](https://gtv.org/video/id=6069bf576e11a756edd75d83)[https://gtv.org/video/id=6069bf576e11a756edd75d83](https://gtv.org/video/id=6069bf576e11a756edd75d83)
+我刚刚在录这个视频盖特之前，我和华盛顿的两个咱们的好朋友，我别说是谁了，通话。他说现在美国在华盛顿，飘荡着一种不安的情绪，说冠状病毒一定会再来的，而且一定会是更加夸张。很多人都害怕，要搬离华盛顿，很多纽约，像洛杉矶很多有钱人，更多人都要搬离，这一段跃跃欲试想回来的人，也都想撤回去了。
 
-[!\[\]()!\[\](https://spark.adobe.com/page/XDXzq3egHO4Ko/images/acf64aaf-7db9-4b63-9fe2-cecd2408d3f7.jpg?asset_id=4275d89a-a915-40b0-8e41-61acbb57f5b3&amp;img_etag=%22bc389d1c49f2fb08b2b62c166074df88%22&amp;size=2560)](https://spark.adobe.com/page/XDXzq3egHO4Ko/images/acf64aaf-7db9-4b63-9fe2-cecd2408d3f7.jpg?asset_id=4275d89a-a915-40b0-8e41-61acbb57f5b3&amp;img_etag=%22bc389d1c49f2fb08b2b62c166074df88%22&amp;size=1024)
+Right before I started recording this Getter video, I talked over the phone with two friends of ours in Washington D.C., whom I don’t want to name. He said that there is this feeling of uneasiness which can be sensed in the air in Washington D.C. It’s said that the virus will come back for sure, and even more ferociously. Many people are anxious and plan to move out of Washington D.C. Many rich people in New York City and Los Angelos are moving out too. People who planed to move back previously are now turning back.
 
-本篇我们从埃隆马斯克（Elon Musk）的产业架构展开分析。
+所以说这个病毒对大家的威胁，它不分高低，不分男女，不分穷人和富人。共产党干了一件事，不分高低左右的，干了一把，就是冠状病毒。所以说是毒主啊，毒主，共产党非它莫属了。
 
-很多战友对埃隆马斯克（Elon Musk）和他的产业都有所了解，比如Tesla、SpaceX、StarLink……但绝不仅仅于此。
+So, the virus threatens everybody and can’t differentiate lower-class people from the higher-class people, males from females, or the rich from the poor. The CCP has really done one thing that can affect everyone – the CCP virus! So, the CCP is the owner of the virus. “Owner of the virus” – the CCP definitely deserves this title.
 
-还包括有：
+另外一个共产党，他们也掌握情况，中国的经济一塌糊涂。他说这个中国经济还能撑多长时间啊？我说我要跟你说撑三年，你信吗？他说，我不信。那不就完了嘛？三年以内嘛。
 
-- SolarCity-太阳能新能源公司
-- The Boring Company：隧道挖掘公司
-- Neuralink：脑机接口技术开发公司
-- OpenAI：人工智能技术研发机构
-- Hyperloop：亚音速轨道列车研发公司
-- ……
+They have also been aware that the CCP’s economy is in a mess. He asked how long it will take for the Chinese economy to collapse? I said, “If I say the economy may hold for another three years, will you believe me?” He said, “No, I won’t.” That’s right. Of course it will collapse within three years.
 
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/60671f1c49339063d0621446](https://gtv.org/getter/60671f1c49339063d0621446) (00:12-1:16)
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1045303/](https://gnews.org/zh-hans/1045303/)
 
-[!\[\]()!\[\](https://spark.adobe.com/page/XDXzq3egHO4Ko/images/3d9d9283-7c82-46b8-aa4f-3885e6a905fe.jpg?asset_id=0f81e699-7fd1-4308-a305-01dfdc223c89&amp;img_etag=%222ff104ab416beb839ab02fd4dfd7ac0c%22&amp;size=1024)](https://spark.adobe.com/page/XDXzq3egHO4Ko/images/3d9d9283-7c82-46b8-aa4f-3885e6a905fe.jpg?asset_id=0f81e699-7fd1-4308-a305-01dfdc223c89&amp;img_etag=%222ff104ab416beb839ab02fd4dfd7ac0c%22&amp;size=1024)
+* * *
 
-各位战友对这些公司了解以后有什么感受？
+翻译：【7PawBear】字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】校对 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
-相信您一定会大吃一惊或者深感佩服。
-
-在我看来，这就是人类的未来，是无论从思想上、认知上还是生活条件上都将对我们产生重大影响与改变的。我深信，这将是我们的未来……
-
-是我们的未来，为何呢？
-
-跟随爆料革命的战友们一定了解，郭先生任基金主席的阿中基金是早期投资Tesla的重要力量。这些科技很大可能性会在不远的将来以超乎我们想象的方式融入到我们的生活中，给我们的生活和思维认知带来巨大的转变！
-
-单从StarLink（星链）来看，基于低轨道卫星的超级WiFi技术已经相当成熟，剩下的就是今明两年的全球覆盖，这都得益于SpaceX的低成本卫星发射技术。
-
-我们在这里要重点讨论一个重要的信息，有消息称特斯拉（Tesla）将要推出自己的智能手机，而且完全使用自己开发的手机操作系统。据消息表明，该款手机可以直接连接StarLink，速率甚至可以达到210M/S，拥有一款高达4000万像素的主摄像头，具备超强的夜间拍摄功能，最让人惊奇的是，手机将具有智能推理功能集，可以实现部分实体场景的AI推测，甚至其运算能力可以实现“挖矿”。另外还可以与脑机接口相连接，这样是不是可以理解为未来只要用意念就可以控制手机了？
-
-让我们展开联想，未来如果我们在墙内拥有了这款手机，那可以有理由相信，任何防火墙将失去其意义，因为手机就可以直接连接到超级WiFi，您还需要通过家里的路由器忍受三大运营商的“大中华局域网”服务吗？
-
-当然，作为智能硬件，市场覆盖率是很重要的商业标准。对特斯拉（Tesla）这款智能手机来说，不仅仅是销售手机这么简单，更重要的是要普及空间技术与个人移动相互结合的技术生态。因为这个生态一旦推广应用，那么巨大的数据产业将被激活，可以实现IoT（Internet of Things）物联网的任何应用。所以，我推测特斯拉（Tesla）很可能在未来推广手机的同时也推广拥有上述科技功能的手机“基板”给其他手机厂家，其他手机厂家生产的手机也同时拥有特斯拉（Tesla）的应用技术。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/XDXzq3egHO4Ko/images/7ca46ca8-920a-4ee9-8b11-e2299bbf0bd1.jpg?asset_id=f236685c-9cb2-4dfa-a596-2d74302f5357&amp;img_etag=%2207e7f1e767296cc30ae82502625a1b2b%22&amp;size=1024)](https://spark.adobe.com/page/XDXzq3egHO4Ko/images/7ca46ca8-920a-4ee9-8b11-e2299bbf0bd1.jpg?asset_id=f236685c-9cb2-4dfa-a596-2d74302f5357&amp;img_etag=%2207e7f1e767296cc30ae82502625a1b2b%22&amp;size=1024)
-
-可以看出，科技大重组之后的世界将会是应用科技爆发的时代。世界将进入到场景数据驱动传统产业、人工智能广泛与人类协作、生物科技与医疗技术的进步、太空探索与开发将汇聚大型企业携手开拓火星及月球。
-
-加入爆料革命的战友应该都深信一个观点，新中国联邦未来拥有的技术和技术合作方要远超出我们的想象，很多事情不能说的太多也不能说的太早，这都要根据世界的结构性变化适时的走入我们的生活。
-
-相比现在的防火墙和所谓的5G、6G技术，只要有了超级WiFi，任何运营商的服务和基站甚至于骨干光纤网络都无任何应用价值了，这种“降维式”的打击将会来的相当迅猛，谁也阻挡不了人民对真实信息的渴望。当然，真相是需要传播的，我们会携手通过多种科技手段将真相传递给每一位中华儿女。
-
-谈到传播，我们一定要谈GTV和GNEWS。作为我们战友自己的媒体，在传播真相的过程中起到至关重要的作用。未来，G系列将重点发展两个主力媒体平台，在这里将利用数字技术把完全属实（经由媒体超脑中的审核算法集检测后属实）的报道或消息赋予相应的数字价值画像。这种将信息直接赋予价值的策略将会催生更多的独立记者或者战友个体捕捉即时消息，极大的丰富新闻报道内容。这种技术模式完全可以发展为产业化模式，将我们自己的GCOIN与作者、内容、传播、读者、广告融合为一条具有区块链数字技术的价值链条，且具有独立性和数字表现，是所有关联节点公认的，当然被阅读的过程就是读者向作者支付GCOIN的过程。
-
-这种赋予新闻以可交换数字价值的模式完全可以在G生态的技术推动下应用于我们的媒体矩阵中，既促进了媒体的内容丰富度，同时也形成了G媒体的数字驱动的商业模式。
-
-所以，基于上述分析的空间网络技术的应用和赋予数字交易价值的新媒体商业模式，我们可以大胆的推断，此时的防火墙可以随时被打掉。一旦防火墙被打掉，引发的将是真相的大面积传播，我想这一点是毋庸置疑的，重点是真实新闻在传播的过程中应用G系列的技术完全可以实现新闻赋予数字价值，并且可以是去中心化的传播方式。
-
-战友们准备好迎接万物互联的时代了吗？
-
-IoT（物联网）技术的提出已经很久了，从最早对万物互联的产业联想再到实现物联网的基础网络的布局，墙国一直在鼓吹这个新兴的科技概念，但是事实却绝非向我们所希望的方向发展。
-
-从技术上来分析，IoT（物联网）技术可应用到包括生产加工、畜牧农业、航空物流、仓储管理、社会零售业甚至于家用电器行业，这确实是一项非常高效的技术应用。但要实现这一场景必要的条件是网络的互联互通，而且带宽和速率要非常的迅捷且无延迟。按照墙国的规划，未来将基于5G通信技术的广泛覆盖来实现行业的IoT（物联网）技术应用，届时达到在物流业、供应链、零售业、城市交通等领域的率先突破，随后带动其他社会服务业的跟进。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/XDXzq3egHO4Ko/images/467f7609-f07d-4e93-9727-092b0172c6e9.jpg?asset_id=1e4699cb-0d4c-431b-8fa5-b6ac055a713c&amp;img_etag=%226ddc2ff276e6c72810805a46661cf17c%22&amp;size=1024)](https://spark.adobe.com/page/XDXzq3egHO4Ko/images/467f7609-f07d-4e93-9727-092b0172c6e9.jpg?asset_id=1e4699cb-0d4c-431b-8fa5-b6ac055a713c&amp;img_etag=%226ddc2ff276e6c72810805a46661cf17c%22&amp;size=1024)
-
-但是，当有了StarLink超级WiFi，也就意味着现有的5G产业布局都是盲目的投入，未来很可能起不到任何产业衔接的作用，只是基于地表某一个区域的应用，完全没有考虑到空间应用。所以，可以很负责任的说，一旦StarLink超级WiFi接入，我们之前多年提出的基于5G网络的IoT（物联网）产业布局都成为一纸空谈。
-
-基于这个思维，我们设想一下，2022年开始已经具备实现IoT（物联网）技术的商业应用了，只要你的商品上贴有RFID（Radio Frequency IDentification）射频识别芯片，然后在行经任意网络节点时都可以将商品信息上传至世界任意一个需要管理该产品的数据节点。一旦基于StarLink超级WiFi技术的物联网实现应用，任何商品的属性信息都可以随时用于管理，整个流通的准确率将大大提升，届时节省的成本也会大幅度提高，而且物流效率也会提升。
-
-如果将这一技术应用到未来新中国联邦的农业中，只要为作物配以可以移动的检测机器人集群（基于视觉技术、生物感知技术和自动化技术的结合），对作物的生物属性进行追踪，并将信息通过StarLink超级WiFi传输至G-data的农业场景运算中心，就可以实现对某一地区的某一农场中的某一批作物实行跟踪。伴随着这批农作物的生命周期，配以相应的保障，一直到临成熟时提前安排物流，甚至于在G-data中的农业算法和负责社区营销的算法相互自动协作，提前为该批次农作物开展相应的预售制营销。整个流程是无需人工干预的，它是由营销算法负责宣传和结算，结果交付给负责农业物流的算法来指挥调度车辆提货，最后在社区中通知到货，用户可以在社区楼下直接取货。整个过程完全由农业场景的数据进行作业驱动，社区营销数据驱动在线预售，农业物流场景数据是对接货、运输、分拣和最终交付进行驱动作业的。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/XDXzq3egHO4Ko/images/eb61ed3e-31a5-457b-988f-c22f34f31f8e.jpg?asset_id=628adfa7-ba97-48d5-ab2e-37318b69f8ad&amp;img_etag=%22c5041463eb7782b96c5c52a81f05d78b%22&amp;size=1024)](https://spark.adobe.com/page/XDXzq3egHO4Ko/images/eb61ed3e-31a5-457b-988f-c22f34f31f8e.jpg?asset_id=628adfa7-ba97-48d5-ab2e-37318b69f8ad&amp;img_etag=%22c5041463eb7782b96c5c52a81f05d78b%22&amp;size=1024)
-
-我相信，G系列结合StarLink超级WiFi的应用可以为未来新中国联邦的实体发展奠定非常卓越的技术基础。可以在这种技术平台上孕育新的产业和商业模式。
-
-**对由场景数据驱动的G商业模式的未来判断**
-
-一、 基于信息不对称的行业垄断现象将逐步消失
-
-随着G系列的拓展，未来G系列的技术平台、商业平台和媒体平台会为新的商业提供去中心化的结算模式，同时为商业提供最迅捷的对接机制，为资源的流通和产品的交易提供最有效的保障。以往这些利用信息垄断或者只能通过消息打探、行贿受贿才能开展的商业行为，将会被真实信息的自由流通所摧毁，这样的不法商业模式将退出历史舞台。进而让有创造、创新能力的新商业群体充分展现其价值，为有思想有能力的战友提供最佳创业环境和营商环境。
-
-[!\[\]()!\[\](https://spark.adobe.com/page/XDXzq3egHO4Ko/images/5af4c110-4bab-4ef0-b629-5a14c6a73033.jpg?asset_id=b6ad49ef-9116-4b0c-be48-6a9352950c31&amp;img_etag=%222c99d606c26f6a8b9aee40328580679f%22&amp;size=1024)](https://spark.adobe.com/page/XDXzq3egHO4Ko/images/5af4c110-4bab-4ef0-b629-5a14c6a73033.jpg?asset_id=b6ad49ef-9116-4b0c-be48-6a9352950c31&amp;img_etag=%222c99d606c26f6a8b9aee40328580679f%22&amp;size=1024)
-
-二、 未来商业系统中，最好的帮手会是AI，AI的基础为场景数据。
-
-G-data将主要用于商业、生产、运营、营销、传媒等各种场景算法的工作，为需要介入该系统的战友们提供适用于各自商业模式的场景数据驱动服务，替代不必要的人工操作环节，主要是起到提升运营效率和提高产值的作用。
-
-同时，G系列可以有G-data的技术加持，在全世界率先应用由实体产业中的场景数据作为驱动力生产出符合商业运行的AI模块，将生产出的AI模块灵活布局于实体商业运营的各个运营环节，这也将是G系列为人类商业进入数据驱动时代在技术应用方面作出的一项突破贡献。
-
-三、 围绕场景数据而衍生的面向民生的服务：
-
-- 智慧零售业 – 社区零售、供应链、仓储物流
-- 订单式农业 – 区域性农场率先进入G供应链体系
-- 订制化工业 – G-fashion高端定制，G-club物件订制
-- 管家式医疗 – G-family，可以信任的家庭医疗解决方案，跟踪与管理
-- ……
-
-
-[!\[\]()!\[\](https://spark.adobe.com/page/XDXzq3egHO4Ko/images/809ea74d-1887-40bb-b474-ecb524553425.jpg?asset_id=7a67c378-92e5-42be-ae4c-b6789b2e6815&amp;img_etag=%2212b60c47dfb81b8023bcc41ed848ea14%22&amp;size=1024)](https://spark.adobe.com/page/XDXzq3egHO4Ko/images/809ea74d-1887-40bb-b474-ecb524553425.jpg?asset_id=7a67c378-92e5-42be-ae4c-b6789b2e6815&amp;img_etag=%2212b60c47dfb81b8023bcc41ed848ea14%22&amp;size=1024)
-
-**文章仅代表作者个人观点**
-
-**《喜马拉雅商业评论》第28期（2021年4月4日）**
-
-- 主播：火星
-- 导播：KK
-- 嘉宾：正道主义、湾湾
-
-
-📺 [GTV-UK-1号台](https://gtv.org/user/5ee680a45bd6f123dd104807)每周日直播：
-
-- 英国时间 14：30
-- 北京时间 21：30
-
-
-***欢迎关注英国伦敦喜庄园《喜马拉雅商业评论》节目***
-
-编辑：【英国伦敦喜庄园编辑部】
-
-- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
-- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
-- [英国伦敦喜庄园Spotify Podcast电台/Apple Podcast电台](https://open.spotify.com/show/0DiAKozDK3XaNCtRvLEYB9)
-
-[!\[\]()!\[\](https://spark.adobe.com/page/XDXzq3egHO4Ko/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/XDXzq3egHO4Ko/images/471bbed6-129e-4c3d-b496-e173918318a1.jpg?asset_id=e4af7851-a267-4c44-ba08-e78ce0fccca6&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
 0

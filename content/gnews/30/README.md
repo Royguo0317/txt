@@ -1,35 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【灭共头条】2021胡润财务自由门槛发布 一 线城市入门级门槛为1900万元
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1052046/)
+## 中共对美发动“以钱灭美”的货币战争&nbsp; 是其“灭白计划”的一部分
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1052112/)
 
-#### 撰稿：MIYA【㊙️翻 Gnews原创组】| 责编：萌萌的朋克
-![]()![](https://gnews.org/wp-content/uploads/2021/04/capture-3.jpg)图片来源：MBA智库.智讯
-在中共国，多少钱才能实现财富自由？31日，胡润研究院发布的《2021胡润财富自由门槛》（Hurun Financial Freedom in China 2021）给出了一组数据。相信绝大多数人看后会大声惊呼，中共国的财富自由门槛竟如此之高！
+简述：郭先生在2021年4月4日深夜发布的盖特视频中，预告了4月5日直播将要讲的两个重要内容：中共怕人民过清明节暴露其病毒死亡真正人数，中共已经对美发动了“以钱灭美”的货币战争，也是其“灭白计划”的一部分。
+[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210404-getter3.srt.txt)
+**中共对美发动“以钱灭美”的货币战争  是其“灭白计划”的一部分**
 
-胡润研究院将中共国的财富自由门槛分为入门级、中级、高级和国际级四个阶段，并把每个阶段按三个线级城市划分出各自的门槛标准，主要考虑常住房、金融投资和家庭税后年收入等若干要素。（详见下表，计价单位均为人民币）
+**CCP Launches a Currency War Against America as Part of Its “Extinction of the White People Plan”**
 
-**《2021胡润财富自由门槛》**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/capture1-1.jpg)图片数据来自：新浪财经
-如图表所示，中共国一线城市入门级财富自由门槛是1,900万元，主要包括一套120平米的市区常住房、2辆车、60万元的家庭税后年收入和800万元的金融投资。
+我那个手机很多很多战友发来在国内去清明节，过清明节的感受，以及武汉很多战友说，武汉所有的墓地都是便衣警察，有的人想到十字路口烧纸被抓，火葬场旁边到处是警车。这到底为啥呢？你们就死了几百个人，你说你弄这干什么？然后现在他们真正的感受到了，冠状病毒死的人那可不是一个“0”，两个“0”的事儿了，更夸张的事情，战友们发现了很多的事情，我在这儿不说了吧，所以明天我的直播说说，很多战友让我要直播给大家聊聊，那我就聊聊吧。
 
-胡润百富董事长兼首席调研官胡润表示，中共国的入门级财富自由门槛相对于其他国家是比较高的，因为购房需求大，之所以将财富自由门槛分为四个阶段，是因为每到一个门槛，家庭情况的变化会产生新的需求。
+I received many messages from fellow fighters in mainland China, telling me their feelings about the Tomb-Sweeping Day. Many fellow fighters in Wuhan said there were undercover police everywhere in cemeteries. Some people wanted to burn some joss paper at street crosses, but were arrested. There were police cars everywhere close to crematoriums. Why? Isn’t it just a few hundred people died? Why do you need to do all these? Now they truly feel that the number of deaths from the coronavirus should have one or two more zeros at least. What’s more absurd is that our fellow fighters have found out many more things, which I can’t say now. I will talk about it on my broadcast tomorrow. Many fellow fighters asked me to broadcast and chat a little bit.
 
-胡润对比了印度的情况。印度年轻人购房需求相对较弱，所以入门级财富自由门槛要低得多，印度孟买入门级财富自由门槛，相比上海的1900万元，可能只需要900万元人民币。笔者则认为，超高房价是中共国财富门槛畸高的重要因素之一。
+另外一个明天还聊一个重点，共产党啊..咱是以钱灭共，以毒灭共，共产党正在以钱灭美，在这之前我不能说，我要说了以后吧，他就不干了，他就不干了，美国人就不信，说咱造谣，胡说八道，是吧？现在美国人已经知道了，上一周美国人感受到了，啊..Miles,你说的有道理，他动了手了我再说，今天不搞重磅的重磅了，是吧，共产党以钱灭美咋灭的？他是灭白计划其中，他必须他要以钱灭美，以钱灭美就那几招儿，你们想听吗？咱明天上午9:30见。
 
-胡润研究院在另一份《2020方太·胡润财富报告》中，揭示了中共国资产“富裕家庭”数量首次突破500万户，实际数字高达600万。笔者仍然认为，房产在中共国家庭财富方面占有相当大的比重，因此，房产首当其冲也是使中共国家庭晋升“富裕家庭”的重要因素。
+Another important thing that we will talk about tomorrow is that the CCP is planning to take down the U.S. with money [a currency war], as opposed to our taking down the CCP with financial activities and the truth about the virus. I didn’t say it earlier because if I exposed it prematurely, they might postpone or quit their plan, and then Americans would not believe me or even blame me for lying to them, right? Now Americans have been aware of it. It was last week. They said, “Miles, what you said makes sense, but we will wait for them to move first, then we will react.” So, there won’t be any bombshells for today, alright? How can the CCP take down the U.S. with a currency war? It’s part of their Extinction of the White People Plan. They will for sure implement their plan of taking down the U.S. with a currency war. They have only a few tricks. Do you want to hear? See you tomorrow at 9:30 AM.
 
-尽管近年来各地楼市调控政策不断加码，包括限制土地供应量、严查违规房贷等措施，但中共国房产泡沫仍一路攀升。中共国国家统计局公布的2020年商品房销售面积和销售额仍创下历史新高，超过十七亿平米和十七万亿元，同比分别增长2.6%和8.7%。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/606a6c2fdbc8001854a58991](https://gtv.org/getter/606a6c2fdbc8001854a58991) (00:40-2:15)
+鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1050330/](https://gnews.org/zh-hans/1050330/)
 
-中共作恶多端，内交外困日益加剧，居高不下的房价建立在仅70年居住权的房产制度基础上，摇摇欲坠的中共政权下的房产泡沫一旦戳破，这个虚高的财富自由门槛中比重最大的房产价值将瞬间缩水，很多家庭省吃俭用、耗尽几代人积蓄购买的房产，到头来只是空欢喜一场。
+* * *
 
-参考链接：
-
-[2021胡润财富自由门槛](https://www.hurun.net/zh-CN/Info/Detail?num=COYHXH5D4FMJ)
-
-[各地楼市调控政策不断加码 防止资金制造房市泡沫](https://www.rfa.org/mandarin/yataibaodao/jingmao/ql2-03182021072211.html)
-
-（本文仅代表作者个人观点）
+字幕：【Rock小哥】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+喜马拉雅玫瑰园小队出品
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0
