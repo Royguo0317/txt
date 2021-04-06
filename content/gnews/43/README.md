@@ -1,50 +1,65 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新西兰伊甸农场大记事图库-1：回看战友一起走过的岁月
-` 喜马拉雅光影传镜` [轉載自GNews](https://gnews.org/zh-hans/1057620/)
+## 习近平的真实故事
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1058343/)
 
-编辑：喜马拉雅光影传镜
+翻译：康州盘古农场 – WH
+校对：康州盘古农场 – TrueSky
+编辑：康州盘古农场 – 心照
 
-镜头后的世界，总是可以穿越时光的阻隔，牵动心灵的共鸣和埋藏起来的深层记忆。泛黄的旧照片里往往雕刻着历历在目的岁月磨砺和瞬间欢愉。
+据《国会山》评论人马克·C·斯托雷拉，2021年4月3日报道:
 
-当某天，我们回望，岁月里那些记不清的时刻也许都印记在张张图片与行动的路上…….
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/1-14-4.jpg)
 
-本栏目开始逐步收集新中国联邦大记事及战友行动，回顾时光印记！积攒史料图库，精彩历史瞬间，积累新中国联邦人一路创造和记录历史的图库！
+在国际关系中，表述很重要。而中共一直在忙于讲述一个“美国的完美显然是错误”的故事。
 
-一路铭记时光里战友们经历的过往和一起经历的跌宕起伏的那些日子……
+3月18日在阿拉斯加的安克雷奇进行中美外交官的尖刻的交流中，中共外交事务负责人杨洁篪问：“难道中国人民过去没有受够外国带来的痛苦吗？”
 
-今天，从新西兰伊甸农场的点滴开启🔛我们的图库之旅 📹 📷 🏃‍♀️🏃🏃‍♀️🏃
+该声明反映了中共对其称为“世纪耻辱”的受迫害的表述。根据这一表述，中国自1839年以来的挫折是由于外国的掠夺，而不是中国领导人的失败。
 
+从“世纪耻辱”的故事来看，中共总书记习近平提出了他的“中国梦”的概念。 与对手美国不同，习近平的“中国梦”并非建立在个人成就感和自由之上，而是着眼于提升中共国的国力和声望，以应对西方，尤其是美国压制中国的努力。
 
-新西兰伊甸农场图文大记事： 回看走过的岁月
+但是将美国列为一直以来贬低中国的国家是错误和危险的。在关键的转折点上，美国帮助维护了中国的独立性并促进了中国的经济发展。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/0-000.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/10_pure_new_zealand.jpeg)
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/03.jpeg)
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/04.jpeg)
+外国人（过去）确实掠夺了中国。在1839年至1842年的第一次鸦片战争中，英国的炮艇迫使中国向危险的毒品销售开放，并签署了损害中国主权的不平等条约。
 
+美国于1844年单独与中国缔结了不平等条约，但（条约）却具有美国特色。美国条约保护了美国传教士传播基督教的权利，并允许美国人学习中文，这是中共所禁止的。美国条约还接受了中国的法律授权，起诉被捕从事鸦片贸易的美国人。
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/05.jpeg)
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/14.jpeg)
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/08.jpeg)
+随着衰弱的满族王朝摇摇欲坠，外国势力，如中国人经常说的，准备像切瓜一样瓜分中国。但是，在1899年和1900年，美国国务卿约翰·海（John Hay）发表了《敞开大门宣言》，敦促外国势力尊重中国的主权和领土完整。该宣言拖慢了欧洲和日本对中国的入侵。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-29.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/14.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-25.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/08.jpeg)
+中共对在第二次世界大战中战胜日本的描写忽略了一样事实：在很大程度上，美国和民族主义的中国人击败了日本。中共发挥了相对温和的作用。战后，胜利的美国放弃了对中国的任何特殊权利或领土要求。
 
+当朝鲜入侵韩国时，美中爆发冲突，美军向北推进到中国边界。中国的“志愿军”加入朝鲜共产党领导人金日成这边。美国不但没有利用其核能优势对刚刚起步的中华人民共和国（PRC）进行打击，反而表示了反对。杜鲁门总统开除了他最好的将军，而不是发动与中国的更广泛战争。
 
+当中国和苏联在1960年代后期发生边界冲突时，美国再次帮助中国，撤销了苏联对中国核设施进行先发制人的攻击的调查，并向中国进行了广泛开放，有效地钳制了苏联在东方的“霸权”。
 
+当中国在1976年从自己造成的文化大革命的混乱中摆脱出来时，美国与其他国家一道，将外国直接投资注入该国，为中国经济实力的崛起做出了贡献。
 
+最重要的是，美国推崇基于规则的贸易体系。该体系扩大了中共国进入国外市场的机会。 美国于2001年将中共国纳入世界贸易组织，并向中国商品开放其市场。中共欣然接受了这些机会，与此同时，（却）大规模侵犯美国的知识产权。美国联邦调查局局长克里斯托弗·雷（Christopher Wray）（将这种侵犯行为）称其为“人类历史上最大的财富转移”之一。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/26.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/41.jpeg)
+在中共国寻求向西方学习的过程中，美国欢迎成千上万的中国学生到美国顶尖大学学习。 习近平就将他唯一的孩子送到哈佛就读。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-3.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-1-1.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-14.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-9.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-8.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-1.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/0.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/32.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-33-5.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-16.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-18.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-19.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-17.jpeg)
+美国的第七舰队保持了东亚的和平，进一步促进了中共国的发展。美国的每一步都追求自己的利益，但这样做的同时，也使中共国受益。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-31.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-13.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-20.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-10.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/image007-5.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-7.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/20200528_122104.jpeg)
-（本主题待续）
+北京单方面解读美国一意孤行地破坏中国的表述，有可能成为能实现的预言，因为美国人认为中共的表述是对美国的毫无根据的敌意。此外，中共领导人在中国人民中间引起的反美敌意也可能难以控制。
 
-本栏目以图库世界回顾，战友们一起走过的那些日子。镜头光影记录创造历史的时光！
+美中之间不可避免地要发生新的冷战。但中共就美国对付中国的行为的虚假陈述只会助长关系的进一步恶化。
 
-**\*栏目长期征集战友原创摄影作品；原创绘画作品；原创精彩视频作品。**
+美国必须认真审视自己讲述自己过去的故事。但是中共也必须将其在“世纪耻辱”中对美国角色的表述与事实进行核实。
 
+正如毛泽东钦佩中国作家鲁迅一样，习近平也是如此。鲁迅的著名作品《阿Q正传》突出了外国对不幸的中国的虐待。中共领导人很想将美国视为中国的折磨者，但这种描述显然是错误的。
 
+习近平的真实故事应该反映美中关系的更复杂现实，这对中美两国都有利。
+
+*本文作者**马克**·C·**斯托雷拉（**Mark C. Storella**）是波士顿大学弗雷德里克**·S·**帕迪（**Frederick S. Pardee**）全球研究学院的外交实践教授，此前曾担任过三十年的美国外交官。*
+
+原文链接**：**
+
+[https://thehill.com/opinion/international/546302-the-true-story-of-xi-jinping](https://thehill.com/opinion/international/546302-the-true-story-of-xi-jinping)
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

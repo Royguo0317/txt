@@ -1,46 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 共产党认为自己是神&nbsp; 所以要灭掉所有的神
-` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1052296/)
+## 英政府一直在密谋疫苗护照
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1058388/)
 
-简述：郭先生在2021年4月3日的GTV直播中透彻地分析了共产党的强盗逻辑：只有共产党是好的、是神，资本主义、美国、香港、台湾，包括中共14亿老百姓都是坏的。 他说：“这个逻辑你看明白了，你再看共产党的时候你什么事都看得很清楚了。”
-[下载字幕](https://gnews.org/wp-content/uploads/2021/04/Miles_20210403_live_P1.srt.txt)
-**共产党认为自己是神****  ****所以要灭掉所有的神**
+- 作者： 葛大饼
 
-**CCP Thinks It Is the God, So It Can Kill All Gods**
 
-按照共产党的说法，就所有这美帝国主义的东西都是骗子都垃圾，都是资本主义的嘛，是不是？只有共产党的是好的，对吧？ 就共产党你看它干啥事？共产党说我是无神主义，对吧，我是无神主义，所以我把所有的神要杀掉。佛教、穆斯林、新疆人、基督教最近抓得一塌糊涂，天主教、道教到处扫荡。为什么？因为我是神，我要当神我就要灭掉所有的神。大家我说的是事实吧？几年前七哥就说了吧？
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-According to the CCP, all things of American imperialism are crooks and rubbish for they are all capitalist, right? Only the Communist Party is good, right? Just look at what the CCP is doing. The CCP says I am atheist, so I’m going to kill all the gods. Recently Buddhists, Muslims, Xinjiang people, and Christians have been arrested massively. Catholics and Taoists have been wiped out in many places. Why? Because I am God, and to be a god, I must destroy all other gods. Everyone, do you admit that what I’m telling you is the truth? Has Brother Miles already told you this a few years ago?
+**西班牙2021年4月6日电/西喜社——**
 
-第二，资本主义是邪恶的，剥削阶级，是吧？看那私人企业家，是不是啊，你们解决了百分之七十、八十的中国就业问题。什么马云啊，什么许家印啊，万达啊，是吧，叶简明啊，吴小晖啊，肖建华啊，是吧，还有什么刚刚抓捕的搞了无数个孩子的，包括那个什么那个民生啊，董文标是吧，还有张宏伟啊，是吧这些人，抓一堆的张宏伟的家人是吧，就这些人，你们私人企业家，百分之八十就业。是啊，你就玩的就业了，国家还是以国营企业为主。始终国有企业牢牢地抓住这个中国的钱把子、钱袋子，要以国有企业为主。
+据零对冲4月6日报道，尽管英国政府一直否认这一点，但事实上英国政府一直计划推出疫苗护照，这引发了人们的指责，称“中共病毒通行证被掩盖在政府的遮掩、谎言和含有阴暗计谋的合同中。”
 
-Second, capitalism is evil because they are the exploiting class, right? Look at the private entrepreneurs who created 70 to 80% of China’s jobs. Those like Jack Ma, Xu Jiayin, the Wanda Group, Ye Jianming, Wu Xiaohui, Xiao Jianhua, also the guy who was just arrested for raping countless young kids, the Minsheng Bank, Dong Wenbiao, and Zhang Hongwei whose family members were mostly arrested, these private entrepreneurs solved 80% of the employment problem. Regardless, the country is still dominated by state-owned enterprises. State-owned enterprises firmly control the moneybags of China and are deemed as the mainstream.
+隐私监督机构“老大哥观察”(Big Brother Watch)今天在伦敦《卫报》(the London Guardian)上发表了一篇文章，文中详细描述了疫苗护照系统在2020年12月就进入了后期阶段的过程，而当时部长们还在告诉公众他们并没有相关计划。
 
-那么，啥意思啊？国有企业是谁的？是党的，党产，党始终要说了算。爹亲娘亲都不如党亲，一切都是党的，一切听党的。怎么办？我要有钱，我要当资本家，我把你所有资本家全抓了。共产党这个流氓逻辑：我要当神，我就把神全灭了，我当唯一的神；全中国的所有的企业家，我要当老大，全抓了。抓了吧？一个不给你剩。你看着马化腾这两天还涨呢，马化腾一定是这结局，死不了活不了。它不会让他死的，马云可能弄死他，马化腾不一定弄死他。一定这结局啊，就是让所有天下的钱都是它的，然后杀掉所有有钱人。
+这篇文章引用了一份12月17日的政府报告，这份报告来自总部位于瑞士的咨询公司祖尔克工程(Zühlke Engineering)，该公司也参与了英国国民健康服务体系(NHS)追踪应用程序。
 
-So, what does that mean? Who owns the state-owned enterprises? The party. They are the party’s properties and the party always has the final say because “parents are not as intimate as the party”, “everything belongs to the party”, and “you should listen to the party on everything”. How? I, the CCP want to be rich, I want to be a capitalist, so I need to arrest all the capitalists. The gangster logic of the CCP is: I want to be a god, so I ought to destroy all gods, so that I can be the only god; I want to be the boss of all the entrepreneurs in China, so I can arrest all of them. No one can get away. You see Ma Huateng’s stock is still rising the last couple of days, but Ma Huateng will definitely end up like this – can’t die and can’t live either. It won’t let him die, Jack Ma could be killed, but Ma Huateng may not be killed. But the ending will definitely be like this, that is, all the money in the world will belong to the CCP, and then it will kill all the rich people.
+《卫报》指出，该文件“详细研究了公众对中共病毒证书(中共病毒护照)的可能态度。”这将使用中共病毒疫苗接种状态、最近的中共病毒阴性测试或中共病毒抗体证明，当国家开放时，人们可以自由进出公众场所。”
 
-我说你看到没有，这就是共产党 ，它让全世界人民把全世界都说成是流氓、痞子文化，都是假的，动不动就骂这个国家什么痞子，骂美国骂什么骂全世界包括我们爆料革命。它是世界最大的黑帮。它天天喊着我这个狮子醒来了，这个狮子醒来跟你共产党啥球关系啊？14亿人民也不是在70年前才出生的，中国人几千年的文明文化了，跟你共产党啥关系啊？
+该报告还包括基于应用程序的中共病毒证书图表，带有可扫描二维码，全部连接到英国国民健康服务体系的应用程序。
 
-Have you seen that? This is the CCP. It criticizes all the people in the whole world to be hooligans, rogues and fake. They always scold a country as a ruffian or scold the United States and scold the whole world, including us, the Whistleblower Movement. But itself is the biggest gang in the world. It says the lion [referred to China] has woken up everyday, but does it have anything to do with you, the CCP? The 1.4 billion people were not only born since 70 years ago. The Chinese have a civilization and culture existing for thousands of years. What does it have to do with you, the Communist Party?
+峰会新闻曾在2020年12月报道，英国政府与多家公司签订合同，开发中共病毒“自由护照”，用于在社会上隔离已接受中共病毒检测或接种中共病毒疫苗的人，和未接受中共病毒检测或接种中共病毒疫苗的人。
 
-它要挑战全世界，全世界没有好人就它一个好人，然后这些好人当中，它管…因为它是好人，它管着14亿全是坏人。它要当好人，谁也不能当好人，这又是共产党的流氓逻辑。香港，没好东西，抓！杀！台湾收回！中国人不打中国人，只杀中国人，只杀你中国人，干掉台湾。我说这就是流氓的共产党，兄弟姐妹们。这个逻辑你看明白了，你再看共产党的时候你什么事都看得很清楚了。
+与此同时，一位来自卫生部的消息人士称“他们正在考虑这是否有可能”，但主张“目前还没有引入免疫护照的计划”。
 
-It wants to challenge the whole world like there is no other good person in the world but itself. So, it should manage all the people, manage all 1.4 billion bad people. Because it is the only good guy, so nobody else can be good. This is, again, the CCP’s hooligan logic. In Hong Kong, nothing is good, so I can arrest them and kill them! Taiwan, we must take it back! Chinese don’t fight against Chinese? So they only KILL Chinese. They only kill Chinese, and also want to get rid of Taiwan. This is the gangster CCP, brothers and sisters. If you understand this logic, you will find everything about the CCP becomes crystal clear.
+该计划一直旨在开发一款基于应用程序的系统，整合一个与数字护照相连的二维码，这将用于进入俱乐部、集会场所、电影院，基本上任何公共场所。
 
-（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
-视频来源：[https://gtv.org/video/id=606868a76e11a756edd63b0e](https://gtv.org/video/id=606868a76e11a756edd63b0e) (47:19-50:01, 53:15-54:29)
-鸣谢：感谢彩虹桥提供中文文本于[https://gnews.org/zh-hans/1049714/](https://gnews.org/zh-hans/1049714/)
+早在2020年11月，我们就报道了这些计划，然后在2021年1月，疫苗护照的推广计划逐渐浮出水面。变得很明显。
 
-* * *
+两周前，英国首相鲍里斯·约翰逊(Boris Johnson)建议，酒吧可以自行决定使用疫苗通行证，这在私营老板和顾客人群中引起了强烈反对。
 
-字幕：【V%】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
-喜马拉雅玫瑰园小队出品
-敬请关注:
-GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
-Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
-Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
+上周，约翰逊收回了这一建议，宣布酒吧和餐馆将不受此限制。他们的计划很明显，一开始给你点颜色瞧瞧，当人们提出抗议时，政府表面上退一小步，实际上是让人们更容易去接受他们早就策划好的整个系统。
 
-+1
+现在，政府已经宣布，将“敦促”公众每周进行两次中共病毒检测，以重新参与社会活动。
+
+这场人类大灾难到底何时才会结束? 答案是在酒吧、音乐会和体育赛事中使用数字面部扫描。国内外的生物身份识别系统最终都相互连接，并连接到中共国式的社会信用评分系统中。
+
+英国大臣们将对中共病毒疫苗护照系统进行投票，现在阻止这种噩梦般的未来还为时不晚。只要老百姓们大觉醒，至少在短期内我们能够团结起来消灭这该死的系统。
+
+**简评：**
+
+**大觉醒对抗大重启！这场人类大灾难到底何时才会结束? 直到平民大觉醒！直到共产党被消灭！这场中共病毒大灾难已经让老百姓们清楚看清了政客们的丑陋嘴脸，让老百姓们看清了大科技公司财团们的贪婪自私。这帮要钱不要命的无耻之徒早就计划好了，怎么用网套住我们的自由和生命。**
+
+**我们每一个人都是在为自己的生命而战斗，没有肤色之分，没有种族之分，没有语言之分，外星人来地球了，也必须加入灭共战斗中！**
+
+**第一步，释放中共病毒（爆料革命，闫博士科学报告无懈可击已经证明中共制造了超限生化病毒武器）;第二步，推广中共病毒疫苗（全球的中共病毒疫苗致死，致伤事故层出不穷，路德社爆出疫苗病毒激活剂的概念）;第三步，强制使用中共病毒疫苗护照（用疫苗护照限制人们的自由，达到控制和奴役老百姓）。就好像象棋中的局，他们视我们老百姓是卒子，但是最后将军的可能就是不起眼的卒子！只要我们觉醒并团结起来，行动起来！**
+
+**2017年郭先生在美国华盛顿国家记者俱乐部警告世人，指出“共产党的 (蓝金黄)BGY和(搞弱搞残搞死)3F 计划，来自中共盗国贼的黑夜即将到来，将弥漫着世界和西方的文明世界，我们每个人都将不安全，大家做好准备!”很多人不相信，觉得是阴谋论，觉得是 《权力的游戏》 看多了。**
+
+**当中共病毒爆发后，爆料革命第一个说出病毒的真相，这是中国共产党制造的超限生化武器病毒。事实都在一步步验证郭先生当初的每一句话！全世界竟然还有那么多不要命、不要脸的政客，利益集团们为之洗地和捞钱，全世界的主流媒体在帮着说谎。**
+
+**黑暗中唯有一个真实的声音在努力反抗，爆料革命，便是那艘诺亚方舟。越来越多的人们被唤醒，世界在翻天覆地中，你还在等什么! ？天地都要翻转了，你还惦记你家那一亩三分地?钢筋混凝土的房子?你还相信政客的话?赶紧跟上爆料革命的队伍，好好活着啊！**
+
+编辑：Victor Torres；校对: 阿伯塔；组稿：神奇四侠；发稿：信心的选择
+
+**新闻来源：**[零对冲](https://www.zerohedge.com/political/leaked-docs-show-uk-government-has-planned-vaccine-passports-all-along)
+
++2
