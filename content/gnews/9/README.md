@@ -1,30 +1,50 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【灭共头条】中共官员千方百计躲避接种 百姓沦为国产疫苗的“小白鼠”
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1058037/)
+## 新西兰伊甸农场大记事图库-1：回看战友一起走过的岁月
+` 喜马拉雅光影传镜` [轉載自GNews](https://gnews.org/zh-hans/1057620/)
 
-#### 撰稿：MIYA【㊙️翻Gnews原创组】
-责编：萌萌的朋克
-![]()![](https://gnews.org/wp-content/uploads/2021/04/土共去死.jpg)图片来源：东方网
-尽管中共大力号召“全民接种，应种尽种”，强制民众接种国产疫苗，但在“只许州官放火，不许百姓点灯”的体制下，中共的官员仍利用手中的特权，藉口牙痛、备孕等各种奇葩理由，逃避接种国产疫苗。
+编辑：喜马拉雅光影传镜
 
-大纪元近日爆光辽宁省鞍山市台安县新台镇的疫苗接种统计表。这些统计数据显示出，新台镇政府、住建局、政法委等多个当地政府部门及事业单位的接种率极低。官员们以身患高血压、糖尿病等各种疾病和以感冒、过敏体质、准备受孕等各种理由不接种疫苗，接种率最高不超过30%，最低仅7.5%。
+镜头后的世界，总是可以穿越时光的阻隔，牵动心灵的共鸣和埋藏起来的深层记忆。泛黄的旧照片里往往雕刻着历历在目的岁月磨砺和瞬间欢愉。
 
-中共官方声称有健康问题的人可以暂不接种疫苗，这成为一贯享有特权的中共官员的“逃逸”通道。而对于绝大多数老百姓来说，很难获得相关的证明。此外，中共将接种疫苗“政治化”，捆绑着老百姓的衣食住行，甚至影响着未来子女的教育和就业等很多方面，这些强制性的附带条件，迫使手无特权的民众无奈之下只能接受接种。
+当某天，我们回望，岁月里那些记不清的时刻也许都印记在张张图片与行动的路上…….
 
-令人担忧的是，中国各地注射国产疫苗时，必须签一份知情同意书，也就是免责协议。协议表示，该疫苗尚未在人体进行过实验，有直接感染病毒的风险。《人民日报》3月21日的一篇报导还引述中共专家的说法，“不建议接种者进行抗体检测”。
+本栏目开始逐步收集新中国联邦大记事及战友行动，回顾时光印记！积攒史料图库，精彩历史瞬间，积累新中国联邦人一路创造和记录历史的图库！
 
-与国产疫苗的安全性相比，更让人紧张的是国产疫苗背后隐藏的政治目的。据大纪元报道，科兴疫苗在香港推广已有1个多月，至今已有12人接种后死亡、多人出现面瘫等严重不良反应。而中共卫健委在3月28日公布，国产疫苗接种已超过1亿剂次，至今未通报一例接种疫苗后死亡或不良反应的案例。
+一路铭记时光里战友们经历的过往和一起经历的跌宕起伏的那些日子……
 
-中国另一个疫苗厂家——国药集团中国生物，其负责疫苗研发和生产的董事长杨晓明自称，集团得到了“举国之力”，以“中国速度”完成COVID-19疫苗从立项、研发、临床到最后的上市，全程仅用335天。然而，受到中共鼎力支持的疫苗项目，至今没有出具任何来自独立第三方的检测数据。此外，国药集团旗下的疫苗生产机构之一——武汉生物制品研究所（WIBP），被台湾新闻（Taiwannews）[曝光](https://www.taiwannews.com.tw/en/news/4137284)，WIBP隶属于中共军方，是中共指定的生物武器生产厂家，其厂址与武汉病毒研究所（WIV）极不寻常地同在一个建筑群。
+今天，从新西兰伊甸农场的点滴开启🔛我们的图库之旅 📹 📷 🏃‍♀️🏃🏃‍♀️🏃
 
-随着闫丽梦博士三份病毒来源报告的推进，全世界的生物学专家和军方开始质疑病毒是中共制造的超限生物武器。中共以举国之力出台疫苗的行动，是一个大规模生物武器计划中的一部分，而完全没有科学依据和安全保障的国产疫苗全民接种，潜藏着巨大的公共卫生安全隐患，一旦出现疫情初期的失控局面，后果将不堪设想。
 
-参考链接：
-1、[中共地方官不愿接种疫苗 以各种借口躲避](https://www.epochtimes.com/gb/21/4/4/n12857360.htm)
-2、[Biowarfare history of China’s Sinopharm vaccine maker raises questions](https://www.taiwannews.com.tw/en/news/4137284)
+新西兰伊甸农场图文大记事： 回看走过的岁月
 
-（本文仅代表作者个人观点）
+![]()![](https://gnews.org/wp-content/uploads/2021/04/0-000.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/10_pure_new_zealand.jpeg)
+- ![]()![](https://gnews.org/wp-content/uploads/2021/04/03.jpeg)
+- ![]()![](https://gnews.org/wp-content/uploads/2021/04/04.jpeg)
 
-+2
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/04/05.jpeg)
+- ![]()![](https://gnews.org/wp-content/uploads/2021/04/14.jpeg)
+- ![]()![](https://gnews.org/wp-content/uploads/2021/04/08.jpeg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-29.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/14.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-25.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/08.jpeg)
+
+
+
+
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/26.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/41.jpeg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-3.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-1-1.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-14.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-9.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-8.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-1.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/0.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/32.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-33-5.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-16.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-18.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-19.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-17.jpeg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1-31.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-13.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-20.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-10.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/image007-5.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-7.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/20200528_122104.jpeg)
+（本主题待续）
+
+本栏目以图库世界回顾，战友们一起走过的那些日子。镜头光影记录创造历史的时光！
+
+**\*栏目长期征集战友原创摄影作品；原创绘画作品；原创精彩视频作品。**
+
+
+
+0

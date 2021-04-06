@@ -1,50 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新西兰伊甸农场大记事图库-1：回看战友一起走过的岁月
-` 喜马拉雅光影传镜` [轉載自GNews](https://gnews.org/zh-hans/1057620/)
+## 王毅通话日外长显外交滑铁卢
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1058104/)
 
-编辑：喜马拉雅光影传镜
+**作者：墨尔本雅典娜农场 人民公敌**
 
-镜头后的世界，总是可以穿越时光的阻隔，牵动心灵的共鸣和埋藏起来的深层记忆。泛黄的旧照片里往往雕刻着历历在目的岁月磨砺和瞬间欢愉。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/Picture2.png)
 
-当某天，我们回望，岁月里那些记不清的时刻也许都印记在张张图片与行动的路上…….
+据新华网4月5日消息[1]，中共外交部长王毅当天与日本外相茂木敏充通电话时表示，在面对当前复杂的国际形势时，“双方应珍惜和维护中日关系来之不易的发展大局”。王毅强调“两国关系不折腾、不停滞、不倒退，不卷入所谓大国对抗”，并提醒日方在面对美日同盟关系时要遵守中日友好条约。茂木敏充则表示，“日美同盟不针对特定第三方……日方愿同中方保持沟通，加强对话，增进互信，妥善管控分歧……日方愿同中方加强各领域交流合作，就互相支持办好东京奥运会和北京冬奥会保持沟通。”
 
-本栏目开始逐步收集新中国联邦大记事及战友行动，回顾时光印记！积攒史料图库，精彩历史瞬间，积累新中国联邦人一路创造和记录历史的图库！
+就这则消息来看，中共对日本在面对中美对抗选边站问题上的警告意味浓厚。在美国紧锣密鼓地布局“亚约”战略之际，日本因其紧邻台湾和中共国的特殊地理位置原因，对中共国和美国来说，是两国必然要争取的对象。目前，美日同盟俨然越来越紧密，且双方已趋于实质性的军事同盟。中共对此必然紧张而抓狂。
 
-一路铭记时光里战友们经历的过往和一起经历的跌宕起伏的那些日子……
+尽管王毅在就任中共外交部部长前，早已在日本深耕多年外交关系，但这次同日方外长的通话则显露出其外交的失败。茂木敏充以“日美同盟不针对特定第三方”巧妙避开了王毅简单粗暴提及的美日同盟对抗中共的暗示，同时也表达了对日美同盟关系的坚持。“妥善管控分歧”，听上去理性而客观，但却暗示双方在面临分歧时，日方会坚守自己的立场与底线，暗藏其不让丝毫的强硬态度。大概在这番通话中，能够让中共感到一丝安慰的，就剩下“日方愿同中方……就互相支持办好东京奥运会和北京冬奥会保持沟通”这一体育领域的交流合作了。
 
-今天，从新西兰伊甸农场的点滴开启🔛我们的图库之旅 📹 📷 🏃‍♀️🏃🏃‍♀️🏃
+或许中共喉舌认为以上信息不足以彰显中共“战狼”外交的本色，不利于挑动国内“粉红”的“爱国热情”。就在这则消息发布后不到两分钟，新华网再次就此次通话发布消息《王毅：日本应以更积极心态看待中国发展》[2]。
 
+文章称王毅在与茂木敏充通话时表示，“中国的发展是世界和平力量的增长，是促进国际合作的有利因素，也是日本经济长久发展的重要机遇”。中方“坚定支持以联合国为核心的国际体系”，“中国不干涉别国内政，也不允许他国干涉中国内政”，“某个超级大国的意志代表不了国际社会，跟随这个超级大国的少数国家也无权垄断多边规则”。
 
-新西兰伊甸农场图文大记事： 回看走过的岁月
+此则消息通篇除了王毅的话语，并无日方一个字的表达。结合前一条消息内容看，王毅此番话语借谈中共国发展与世界和日本的关系问题，赤裸裸地向日方传递出中共坚决对抗美日同盟的强硬态度和对日本的警告。当然，这只是基于新华网先后发布的消息进行的分析。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/0-000.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/10_pure_new_zealand.jpeg)
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/03.jpeg)
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/04.jpeg)
+尽管这些消息已经过中共喉舌的编辑，但从中也不难看出，中共欲借王毅这头“战狼”及其多年深耕日本所获得的资源，企图阻止美日同盟进一步的深入合作，以削弱“亚约”对中共的威胁，却不料遭遇日本外长不软不硬的“回呛”。
 
+中共除了一帮自己用钱供养的“小弟”与其交好外，还有哪个大国在面对病毒追责和中共的种族灭绝时与其交好呢？中共的外交线上，王毅、赵立坚、崔天凯等“战狼”的嚎叫对国际社会早已失去“威慑”力，杨洁篪这只老狐狸也在阿拉斯加会谈中自绝生路，还有谁能为中共的外交力挽狂澜呢？
 
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/05.jpeg)
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/14.jpeg)
-- ![]()![](https://gnews.org/wp-content/uploads/2021/04/08.jpeg)
+（文章仅代表作者本人观点，与GNews无关）
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-29.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/14.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-25.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/08.jpeg)
+参考链接：
+[1] [王毅同日本外相茂木敏充通电话](http://王毅同日本外相茂木敏充通电话)
+[2] [王毅：日本应以更积极心态看待中国发展](http://王毅：日本应以更积极心态看待中国发展)
 
-
-
-
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/26.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/41.jpeg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-3.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-1-1.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-14.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-9.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-8.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-1.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/0.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/32.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-33-5.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-16.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-18.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-19.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-17.jpeg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1-31.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-13.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-20.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-10.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/image007-5.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/1-7.jpeg)![]()![](https://gnews.org/wp-content/uploads/2021/04/20200528_122104.jpeg)
-（本主题待续）
-
-本栏目以图库世界回顾，战友们一起走过的那些日子。镜头光影记录创造历史的时光！
-
-**\*栏目长期征集战友原创摄影作品；原创绘画作品；原创精彩视频作品。**
-
-
+*责任编辑：华盛顿DC农场 光之子(沙加)*
+*编辑/校对：日本东京方舟农场 老蚂蚁666*
+*发布: Hong*
 
 0
