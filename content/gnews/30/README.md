@@ -1,43 +1,84 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 菲律宾确诊病例飙升与中共在菲疫苗利益
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1053479/)
+## 每日新闻收集【4/5】
+` wenwu` [轉載自GNews](https://gnews.org/zh-hans/1053827/)
 
-作者：Stephen文文
+**西班牙巴塞罗那喜悦农场 **wenwu
 
-从2月底开始，菲律宾COVID-19确诊人数开始大幅攀升，至4月初每日新增确诊病例超过一万人（图1），已排入全球新增确诊前10位。近年来，菲律宾与中共关系非常密切，也是中共一带一路战略上必须要控制的重要国家。
+中共病毒是武汉实验室制造只是真相的冰山一角，后面还有更多的陷阱在等着我们。主流媒体曝光感染的病人的真实画面了吗？显然没有，我们只是看到了一堆感染和死亡数据，这是极其不正常。当然还包括了最初在武汉爆发的疫情问题上，媒体更喜欢让人知道疫苗好处而不是共产主义制造并掩盖了这场灾难。然而真相只有一个。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/060407.jpg)
 
-此前约半年时间内（2020年9月-2021年2月），菲律宾疫情较为稳定，每日新增确诊病例徘徊在1000-2000人的稳定范围，为何突然疫情在2月底加速失控？是否和菲律宾在疫苗选择上的立场变化有关？是否与中共在菲律宾的疫苗利益相关？是否中共有可能在菲律宾放毒，操控当地疫情？
 
-我们来看一下菲律宾在中共病毒疫苗上的立场与态度变化，就可以看到其中与疫情之间有着或明或暗的关联性：
+> [#UnrestrictedScientificMisinformation](https://twitter.com/hashtag/UnrestrictedScientificMisinformation?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/HFZUgIWCbe](https://t.co/HFZUgIWCbe)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 5, 2021](https://twitter.com/DrLiMengYAN1/status/1379063701530161155?ref_src=twsrc%5Etfw)
 
-1. 2020年12月底，菲总统安全卫队成员接种了据称是走私入境的中共国药疫苗，该疫苗在菲未获得使用许可，后续调查不了了之。 
-2. 2021年1月14日，菲律宾首先批准了辉瑞公司疫苗的使用。1月28日，又批准了阿斯利康疫苗紧急使用授权。 
-3. 1月13日，菲律宾与阿斯利康签署协议，购买2000万剂疫苗。菲律宾还将通过世卫(WHO)购买辉瑞的疫苗。此时，菲律宾疫情还处于稳定期。 
-4. 1月19日，菲律宾一些参议员敦促政府优先购买辉瑞公司疫苗，总统杜特尔特表示反对。 
-5. 至1月中旬，菲律宾一些议员对杜特尔特订购科兴疫苗提出质疑。彼时，菲政府已获得2500万剂科兴疫苗、1700万剂阿斯利康疫苗、3000万剂印度Covovax疫苗。中共疫苗在对菲律宾出口未获明显优势，且尚未获批使用！ 
-6. 2月22日，杜特尔特表示倾向于接种中共国药疫苗。 
-7. 2月23日，科兴新冠疫苗在菲律宾获批紧急使用。此时，菲疫情已现缓慢攀升势头。 
-8. 2月28日，中共向菲律宾援助了一批科兴疫苗。 
-9. 3月1日，马尼拉市开始接种科兴疫苗。 
-10. 3月29日，菲律宾政府采购的首批科兴新冠疫苗29日运抵马尼拉，共100万剂。 11. 4月4日，马尼拉市市长莫雷诺接种科兴疫苗。
 
-从以上新闻梳理中我们可以发现：辉瑞与阿斯利康疫苗在菲律宾的获批早于中共疫苗；中共疫苗起先在菲并不占优势，而杜特尔特力挺中共疫苗；中共疫苗的获批时间恰恰在菲疫情爆发之前；菲律宾疫情暴增，中共疫苗“恰好”运到；菲政要公开为中共疫苗代言站台（图2，图3）。
+*`1.闫博士推文大意：超限科学误导。据《司法观察》报道，福奇的NIH为中共制造病毒提供了便利。`*
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/060408.jpg)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/060409.jpg)
+> No coincidences🤔 [https://t.co/2iLi9pLkBh](https://t.co/2iLi9pLkBh)
+> — Dr. Dawn Michael💗 (@SexCounseling) [April 4, 2021](https://twitter.com/SexCounseling/status/1378793672225918977?ref_src=twsrc%5Etfw)
 
-可见，中共疫苗“似乎”就是为菲律宾的疫情爆发提前准备好的，一切都是刚刚好！巧合的背后隐藏着中共与菲律宾政客的利益勾兑、控制，菲律宾人民与中国人民一样则都是牺牲品。
 
-[援引原文](https://xueqiu.com/S/AZN/168638861)
-[援引原文2](https://3g.163.com/dy/article/G62LRD9G0517NS1A.html)
-[援引原文3](https://xw.qq.com/amphtml/20210119A04MKO00)
+*`2.网友推文大意：福奇早在2017年1月11日就说过，毫不怀疑在川普任期中会出现大瘟疫。`*
+3. 据2020年11月9日《搜狐》**`报道`**，复星医药与德国生物科技公司BioNTech（拜恩泰科）围绕“mRNA技术”进行了一次远程对话。今年3月，双方宣布达成合作，共同开发基于BioNTech的mRNA技术平台的新冠疫苗。国内媒体先抨击了AZ疫苗的不可靠，而后国内近日开始报道mRNA技术的疫苗出现问题。
 
-审核校对：鲁邦五世
-上传排版：糖果儿
 
-0
+
+> Evolutionary biologist Dr. Weinstein on The Hill, 4 Apr 2021
+> – Abundant high-quality evidence 
+> from non-mainstream scientists shows lab-origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw).
+> – Nature-origin is fairytale, so mainstream scientists’ conclusion suffers under pressure.
+> – Dr. Fauci is dishonest. [https://t.co/KIqLu5i7P8](https://t.co/KIqLu5i7P8)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 5, 2021](https://twitter.com/DrLiMengYAN1/status/1379054255638769673?ref_src=twsrc%5Etfw)
+
+
+
+4. 闫博士转推评论战友发布的推文，关于进化学家weinstein接受国会山的采访：
+
+- 非主流的科学家们提供了大量证据、进行高质量的分析指向病毒来源于实验室洩漏
+- 主流科学家却为了证明病毒自然起源而备受压力
+- 病毒起源于自然，目前还属於传说神话的阶段
+- 福奇有能力、又有最高权限看到情报，却不诚实地推自然起源
+- 四方面说病毒源於实验室
+- 其一病毒基因序列修改痕跡是武毒所做过的
+- 其二病毒族谱上没有过的弗林酶切位点却出现了
+- 其三流行病学角度：病毒没有进化为高度适应人体高传染力的进化时间期间
+- 其四蝙蝠病毒4991改名为RaTG-13不符合科学规定
+
+
+
+
+> Biologist Dr. Weinstein on The Hill, 4 Apr 2021
+> – Evidence on lab-origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw)
+> 1. Evidence left in SARS-CoV-2 genome after modification 
+> 2. Furin-cleavage site 
+> 3. Well-adapted to human, but not match epidemiological principles 
+> 4. Bat virus 4991 vs RaTG13 in terminology [https://t.co/7PRLl5kzk9](https://t.co/7PRLl5kzk9)
+> — Dr. Li-Meng YAN (@DrLiMengYAN1) [April 5, 2021](https://twitter.com/DrLiMengYAN1/status/1379057938136973313?ref_src=twsrc%5Etfw)
+
+
+
+这是在不同领域的领土战争：病毒，科学，媒体，疫苗，共产主义。。。与资本主义的撕扯。另外，在郭文贵先生的今日GTV爆料中提到的以钱灭美。
+
+
+
+> 【温故而知新】
+> 郭先生今天直播提到的卡恩（右），辞职后变成了法中基金会主席，和害死王健的华鋲（左）是好哥们（这张照片已经从网上删除）。什么叫物以类聚！ [pic.twitter.com/IOjDUkklfy](https://t.co/IOjDUkklfy)
+> — 瞿水台 Qu Shuitai (@QuShuitai) [April 5, 2021](https://twitter.com/QuShuitai/status/1379077831796346880?ref_src=twsrc%5Etfw)
+
+
+
+
+
+> 人源化小鼠：模拟人的受体
+> 猴子：灵长类与人类很接近
+> 以上两种动物感染新冠病毒后均可以康复，这给了中共极大的信心，认为新冠病毒这个生物武器杀伤力可控。因此，他们铤而走险，直接开始社区内释放，直接用人做测试，结果传染性和致死率都超出预期 [https://t.co/YKCZmPVuaV](https://t.co/YKCZmPVuaV)
+> — 🔥火来2号🔥🌽✊🚌 (@jsdfposjpqyuee1) [April 5, 2021](https://twitter.com/jsdfposjpqyuee1/status/1379128154720104448?ref_src=twsrc%5Etfw)
+
+
+***`战友推文大意：实验室人源化小鼠和猴子感染新冠病毒后均可以康复，这给了中共极大的信心，认为新冠病毒这个生物武器杀伤力可控。因此，他们铤而走险，直接开始社区内释放，直接用人做测试，结果传染性和致死率都超出预期`***
+在病毒和疫苗面前，凡人避让！
+
++2
