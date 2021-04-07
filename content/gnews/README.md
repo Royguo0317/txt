@@ -12,168 +12,168 @@
 
 ---
 
-### [美国极左和中共在意识形态上亲如表兄弟](/content/gnews/1/README.md)
+### [视频【粤语配音】彼得⋅纳瓦罗：新变种巴西毒株正在随着航班传遍世界](/content/gnews/1/README.md)
  ` 秘密翻译组G-Translators`
 
-### [无知的中外民众被打疫苗 — 半年后等待他们的会是什么](/content/gnews/2/README.md)
+### [【灭共头条】中共疫苗第二剂接种后不到两个月 五分之一接种者中和抗体失效](/content/gnews/2/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [美国启动对中共国的信息大战](/content/gnews/3/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [美国极左和中共在意识形态上亲如表兄弟](/content/gnews/4/README.md)
+ ` 秘密翻译组G-Translators`
+
+### [无知的中外民众被打疫苗 — 半年后等待他们的会是什么](/content/gnews/5/README.md)
  ` 喜马拉雅巴黎七星农场`
 
-### [2021年4月7日 文贵先生盖特 1](/content/gnews/3/README.md)
+### [2021年4月7日 文贵先生盖特 1](/content/gnews/6/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [视频【樱华乐章】第三期 灭共歌曲](/content/gnews/4/README.md)
+### [视频【樱华乐章】第三期 灭共歌曲](/content/gnews/7/README.md)
  ` 日本东京樱花团`
 
-### [【五月花评】CCP——腐败之工厂，魔鬼之温床](/content/gnews/5/README.md)
+### [【五月花评】CCP——腐败之工厂，魔鬼之温床](/content/gnews/8/README.md)
  ` 波士顿五月花农场`
 
-### [面对国际社会追责，中共宣传部门无力应对](/content/gnews/6/README.md)
+### [面对国际社会追责，中共宣传部门无力应对](/content/gnews/9/README.md)
  ` 喜马拉雅巴黎七星农场`
 
-### [视频路德时评简讯（视频版）:闫博士接受Newsmax采访爆料病毒真相(2021.4.2早间路德社简讯之路路安墨谈)](/content/gnews/7/README.md)
+### [视频路德时评简讯（视频版）:闫博士接受Newsmax采访爆料病毒真相(2021.4.2早间路德社简讯之路路安墨谈)](/content/gnews/10/README.md)
  ` 路德社`
 
-### [【G时评】原创时政小段子：组团灭共，比组团打 怪兽更来劲！](/content/gnews/8/README.md)
+### [【G时评】原创时政小段子：组团灭共，比组团打 怪兽更来劲！](/content/gnews/11/README.md)
  ` 墨尔本雅典娜农场`
 
-### [视频苏伊士运河或霍尔木兹海峡迟早会再出事](/content/gnews/9/README.md)
+### [视频苏伊士运河或霍尔木兹海峡迟早会再出事](/content/gnews/12/README.md)
  ` 秘密翻译组G-Translators`
 
-### [视频路德时评简讯（视频版）: 更多科学家站出来支持闫博士报告结论(2021.4.3早间路德社简讯之路路安墨谈)](/content/gnews/10/README.md)
+### [视频路德时评简讯（视频版）: 更多科学家站出来支持闫博士报告结论(2021.4.3早间路德社简讯之路路安墨谈)](/content/gnews/13/README.md)
  ` 路德社`
 
-### [美国务卿布林肯要求中共说明SARS-CoV-2生化病毒来源](/content/gnews/11/README.md)
+### [美国务卿布林肯要求中共说明SARS-CoV-2生化病毒来源](/content/gnews/14/README.md)
  ` G-NEWS TAIWAN`
 
-### [视频路德时评简讯（视频版）:美报告揭露中共一带一路放贷骗局(2021.4.2晚间路德社简讯之路博艾冠谈）](/content/gnews/12/README.md)
+### [视频路德时评简讯（视频版）:美报告揭露中共一带一路放贷骗局(2021.4.2晚间路德社简讯之路博艾冠谈）](/content/gnews/15/README.md)
  ` 路德社`
 
-### [布林肯严词讲话：彻查病毒来源 避免生物威胁 直面挑战](/content/gnews/13/README.md)
+### [布林肯严词讲话：彻查病毒来源 避免生物威胁 直面挑战](/content/gnews/16/README.md)
  ` JPHIMALAYA`
 
-### [中共超限战灭港计划（二十八）六七暴动之是谁煽动年轻人](/content/gnews/14/README.md)
+### [中共超限战灭港计划（二十八）六七暴动之是谁煽动年轻人](/content/gnews/17/README.md)
  ` 喜馬拉雅-粵語組`
 
-### [视频路德时评简讯（视频版）:闫博士第三份报告的威力(2021.4.1早间路德社简讯之路路安墨谈)](/content/gnews/15/README.md)
+### [视频路德时评简讯（视频版）:闫博士第三份报告的威力(2021.4.1早间路德社简讯之路路安墨谈)](/content/gnews/18/README.md)
  ` 路德社`
 
-### [视频路德时评简讯（视频版）:纳瓦罗认定闫博士的报告非常出色(2021.4.1晚间路德社简讯之路博艾冠谈）](/content/gnews/16/README.md)
+### [视频路德时评简讯（视频版）:纳瓦罗认定闫博士的报告非常出色(2021.4.1晚间路德社简讯之路博艾冠谈）](/content/gnews/19/README.md)
  ` 路德社`
 
-### [郭德银、石正丽、李放、邬开朗再次上榜，李放与MERS是啥关系](/content/gnews/17/README.md)
+### [郭德银、石正丽、李放、邬开朗再次上榜，李放与MERS是啥关系](/content/gnews/20/README.md)
  ` NewFOC`
 
-### [美国考虑加入抵制2022年北京冬季奥运会的行列](/content/gnews/18/README.md)
+### [美国考虑加入抵制2022年北京冬季奥运会的行列](/content/gnews/21/README.md)
  ` 康州盘古喜马拉雅农场`
 
-### [2021年4月6日 文贵先生盖特 6](/content/gnews/19/README.md)
+### [2021年4月6日 文贵先生盖特 6](/content/gnews/22/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [澳大利亚美国军事战备 应对台湾可能发生的冲突](/content/gnews/20/README.md)
+### [澳大利亚美国军事战备 应对台湾可能发生的冲突](/content/gnews/23/README.md)
  ` 康州盘古喜马拉雅农场`
 
-### [“爱国主义”被滥用，国货球鞋遭“爆炒”](/content/gnews/21/README.md)
+### [“爱国主义”被滥用，国货球鞋遭“爆炒”](/content/gnews/24/README.md)
  ` 喜联盟编辑部 Himalaya Alliance Editorial Team`
 
-### [【战友心声】新中国人不再沉默](/content/gnews/22/README.md)
+### [【战友心声】新中国人不再沉默](/content/gnews/25/README.md)
  ` 纽约香草山MOS01`
 
-### [2021年4月6日 文贵先生盖特 5](/content/gnews/23/README.md)
+### [2021年4月6日 文贵先生盖特 5](/content/gnews/26/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [2021/04/07 英喜时事速递](/content/gnews/24/README.md)
+### [2021/04/07 英喜时事速递](/content/gnews/27/README.md)
  ` 倫敦英喜莊園 Himalaya UK`
 
-### [2021年4月6日 文贵先生盖特 4](/content/gnews/25/README.md)
+### [2021年4月6日 文贵先生盖特 4](/content/gnews/28/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [2021年4月6日 文贵先生盖特 3](/content/gnews/26/README.md)
+### [2021年4月6日 文贵先生盖特 3](/content/gnews/29/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [2021年4月6日 文贵先生盖特 2](/content/gnews/27/README.md)
+### [2021年4月6日 文贵先生盖特 2](/content/gnews/30/README.md)
  ` 喜联盟七哥盖特组 Miles Guo’s Getter`
 
-### [卡迪拉公司寻求印度政府批准将治疗丙型肝炎药物（聚乙二醇干扰素α-2b）重新用于CCP病毒的治疗](/content/gnews/28/README.md)
+### [卡迪拉公司寻求印度政府批准将治疗丙型肝炎药物（聚乙二醇干扰素α-2b）重新用于CCP病毒的治疗](/content/gnews/31/README.md)
  ` JPHIMALAYA`
 
-### [【热点播报】“⾎棉花”——国际奥委会与⽀持新疆棉的中国企业签订奥运会制服合同，引发质疑](/content/gnews/29/README.md)
+### [【热点播报】“⾎棉花”——国际奥委会与⽀持新疆棉的中国企业签订奥运会制服合同，引发质疑](/content/gnews/32/README.md)
  ` 纽约香草山MOS01`
 
-### [[文贵先生盖特]摘录:2021.4.4唯有新中国联邦正道主义才是人类未来(2)](/content/gnews/30/README.md)
+### [[文贵先生盖特]摘录:2021.4.4唯有新中国联邦正道主义才是人类未来(2)](/content/gnews/33/README.md)
  ` 路德社精选`
 
-### [[文贵先生盖特]摘录:2020.4.2毒主，共产党非他莫属了](/content/gnews/31/README.md)
+### [[文贵先生盖特]摘录:2020.4.2毒主，共产党非他莫属了](/content/gnews/34/README.md)
  ` 路德社精选`
 
-### [《路德时评》重磅解读Sellin博士提及神秘的SIXTA组织，及美国将联合盟友抵制2022年冬奥会](/content/gnews/32/README.md)
+### [《路德时评》重磅解读Sellin博士提及神秘的SIXTA组织，及美国将联合盟友抵制2022年冬奥会](/content/gnews/35/README.md)
  ` 香柏树`
 
-### [视频【路德时评粤语快报】4.05：美国国会山报认可闫丽梦博士对病毒的观点 日德将举行外交国防2+2会谈](/content/gnews/33/README.md)
+### [视频【路德时评粤语快报】4.05：美国国会山报认可闫丽梦博士对病毒的观点 日德将举行外交国防2+2会谈](/content/gnews/36/README.md)
  ` 喜馬拉雅-粵語組`
 
-### [3月31日起全员核酸检测、居家隔离一周、全城封城之下的瑞丽](/content/gnews/34/README.md)
+### [3月31日起全员核酸检测、居家隔离一周、全城封城之下的瑞丽](/content/gnews/37/README.md)
  ` JPHIMALAYA`
 
-### [[文贵先生盖特]摘录:2021.4.4共产党制造和释放病毒的事实永远不会被埋没(1)](/content/gnews/35/README.md)
+### [[文贵先生盖特]摘录:2021.4.4共产党制造和释放病毒的事实永远不会被埋没(1)](/content/gnews/38/README.md)
  ` 路德社精选`
 
-### [寄望疫苗“群体免疫”解决CCP病毒问题是不可能的任务](/content/gnews/36/README.md)
+### [寄望疫苗“群体免疫”解决CCP病毒问题是不可能的任务](/content/gnews/39/README.md)
  ` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf`
 
-### [中共在全国范围内强推疫苗记录汇总——2021年4月2日](/content/gnews/37/README.md)
+### [中共在全国范围内强推疫苗记录汇总——2021年4月2日](/content/gnews/40/README.md)
  ` JPHIMALAYA`
 
-### [【热点播报】港共拟推绑架选民，限制“投白票”](/content/gnews/38/README.md)
+### [【热点播报】港共拟推绑架选民，限制“投白票”](/content/gnews/41/README.md)
  ` 纽约香草山MOS01`
 
-### [2021年4月6日秘翻快报【头条新闻】](/content/gnews/39/README.md)
+### [2021年4月6日秘翻快报【头条新闻】](/content/gnews/42/README.md)
  ` 秘密翻译组G-Translators`
 
-### [[文贵先生盖特]摘录:2020.4.1GTV，GCOIN是战友的](/content/gnews/40/README.md)
+### [[文贵先生盖特]摘录:2020.4.1GTV，GCOIN是战友的](/content/gnews/43/README.md)
  ` 路德社精选`
 
-### [赞美新疆的“法国记者”原来是中共央视前主播](/content/gnews/41/README.md)
+### [赞美新疆的“法国记者”原来是中共央视前主播](/content/gnews/44/README.md)
  ` JPHIMALAYA`
 
-### [世卫组织报告：COVID很可能首先从动物传染给人类](/content/gnews/42/README.md)
+### [世卫组织报告：COVID很可能首先从动物传染给人类](/content/gnews/45/README.md)
  ` 康州盘古喜马拉雅农场`
 
-### [如何正确理解G系列投资及&#8211;如何将闲置的资金合理分配到G系列投资上](/content/gnews/43/README.md)
+### [如何正确理解G系列投资及&#8211;如何将闲置的资金合理分配到G系列投资上](/content/gnews/46/README.md)
  ` 喜马拉雅农场新西兰站`
 
-### [清华北大30名学子参军入伍反应了什么？](/content/gnews/44/README.md)
+### [清华北大30名学子参军入伍反应了什么？](/content/gnews/47/README.md)
  ` 澳喜农场`
 
-### [视频路德时评简讯（视频版）:闫博士发布第三份中共病毒报告(2021.3.31早间路德社简讯之路安墨谈)](/content/gnews/45/README.md)
+### [视频路德时评简讯（视频版）:闫博士发布第三份中共病毒报告(2021.3.31早间路德社简讯之路安墨谈)](/content/gnews/48/README.md)
  ` 路德社`
 
-### [郭先生0405X英女王是代表上帝的全英国的精神按摩师](/content/gnews/46/README.md)
+### [郭先生0405X英女王是代表上帝的全英国的精神按摩师](/content/gnews/49/README.md)
  ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
 
-### [一万个灭共的理由(一)](/content/gnews/47/README.md)
+### [一万个灭共的理由(一)](/content/gnews/50/README.md)
  ` 澳喜农场`
 
-### [郭先生0405IX劝战友说G-TV是骗人不要投资的要留下索赔证据](/content/gnews/48/README.md)
+### [郭先生0405IX劝战友说G-TV是骗人不要投资的要留下索赔证据](/content/gnews/51/README.md)
  ` 喜联盟七哥直播组 Miles Guo’s Live Broadcast`
 
-### [中共的亲密伴侣达扎克和福奇的亲密关系](/content/gnews/49/README.md)
+### [中共的亲密伴侣达扎克和福奇的亲密关系](/content/gnews/52/README.md)
  ` 康州盘古喜马拉雅农场`
 
-### [中共侵略让越南靠拢美国](/content/gnews/50/README.md)
+### [中共侵略让越南靠拢美国](/content/gnews/53/README.md)
  ` HimalayaRussia`
 
-### [推特跟着共产党必将走进火葬场](/content/gnews/51/README.md)
+### [推特跟着共产党必将走进火葬场](/content/gnews/54/README.md)
  ` 澳喜农场`
 
-### [【文字版】路德时评2021.4.6早间（路安墨谈）:国务卿布林肯发表最新讲话太重磅](/content/gnews/52/README.md)
+### [【文字版】路德时评2021.4.6早间（路安墨谈）:国务卿布林肯发表最新讲话太重磅](/content/gnews/55/README.md)
  ` 喜马拉雅-华盛顿DC农场`
-
-### [立陶宛专家认为与中共分手迫在眉睫](/content/gnews/53/README.md)
- ` HimalayaRussia`
-
-### [视频30/3/2021彼得⋅纳瓦罗：巴西变异病毒的传染性和致死性更强](/content/gnews/54/README.md)
- ` 秘密翻译组G-Translators`
-
-### [赛林博士：世界重要的军情网络部门已有情报定性CCP病毒是人为投放的超限生物武器](/content/gnews/55/README.md)
- ` 喜马拉雅德国慕尼黑感恩农场`
 

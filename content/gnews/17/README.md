@@ -1,78 +1,89 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭德银、石正丽、李放、邬开朗再次上榜，李放与MERS是啥关系
-` NewFOC` [轉載自GNews](https://gnews.org/zh-hans/1060961/)
+## 中共超限战灭港计划（二十八）六七暴动之是谁煽动年轻人
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1061090/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-2.png)
-撰稿：喜马拉雅的肉夹馍；审核：喜马拉雅的馍夹肉；校对：Maarago
+搜集/撰文：岁月如歌 / 封面合成：文粤
 
-据[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于[下午11:42 · 2021年4月6日](https://twitter.com/LawrenceSellin/status/1379459492077797384)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
-
-
-
-> Kailang Wu, Wuhan University, near the [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) outbreak epicenter & research collaborator of Deyin Guo & Fang Li, coronavirus human binding expert and collaborator with bat woman Zheng-Li Shi, identified (hat tip to [@Hlu28849973](https://twitter.com/Hlu28849973?ref_src=twsrc%5Etfw))[#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/UzoyG2d8r4](https://t.co/UzoyG2d8r4)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 6, 2021](https://twitter.com/LawrenceSellin/status/1379459492077797384?ref_src=twsrc%5Etfw)
-
-
-
-·
-
-Kailang Wu, Wuhan University, near the [#COVID19](https://twitter.com/hashtag/COVID19?src=hashtag_click) outbreak epicenter & research collaborator of Deyin Guo & Fang Li, coronavirus human binding expert and collaborator with bat woman Zheng-Li Shi, identified (hat tip to [@Hlu28849973](https://twitter.com/Hlu28849973)) [#Corona](https://twitter.com/hashtag/Corona?src=hashtag_click) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click)
-
-中文大意：［邬开朗，武汉大学，靠近中共病毒爆发中心&郭德银和李放的合作研究者，与蝙蝠女巫石正丽同为人类冠状病毒合作专家，（小费福利送给[@Hlu28849973](https://twitter.com/Hlu28849973)）[#冠状病毒](https://twitter.com/hashtag/Corona?src=hashtag_click) [#超限生物武器](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hashtag_click) [#中共冠状病毒起源](https://twitter.com/hashtag/OriginOfCOVID19?src=hashtag_click)］
-
-Lawrence Sellin博士在这则推文里点出了郭德银、石正丽、李放、[邬开朗](http://klv.whu.edu.cn/index.php/View/1556)四个中共毒王，我们重点看一下李放，李放博士应该是已经被惊着了，据[冠军的亲爹(冠博士)@Guan\_PhD](https://twitter.com/Guan_PhD)
-
-于[上午11:26 · 2021年4月7日](https://twitter.com/Guan_PhD/status/1379636709172862980)·[Twitter for iPad](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文——
+在六七暴动前期中共地下党（左派）一直在利用或制造劳资纠纷的问题策动一场又一场的政治工潮。很多单位都被这些政治工潮搞到停业或者倒闭，他们命令潜伏在里面的左派工人怠工、罢工或者抗议等方式把所在单位搞得一塌糊涂，乱糟糟，没法正常运作。上海、中央两家的士公司和青洲英泥厂就是例子。他们是怎样去驱动驱使这些人怠工罢工或者上街游行示威的呢？又是谁在操控的呢？
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4071.jpg)图片来自消失的档案
+《自由亚洲中文网》采访了一个六七暴动的亲历者——苏婆婆。这是一个当时在底层工作的普通员工，中共左派是怎样把他们变成自己的人呢？苏婆婆当时在华润旗下的子公司华丰国货做会计工作，华润的背景前面的文章已经介绍过。这家公司是华侨和国内合资，后来是国营。 1962年就开始与国内做棉毛针织品生意来往，香港所有的棉毛针织品都必须经过这家公司，在六期暴动之前这家公司已经和国内合作了几年了。从苏婆婆介绍可知道华润公司及其下属单位一直都和华侨合作，是不是可以这样说中共地下党已经发展到华侨里边了。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4072.jpg)图片来自CGCL
+苏婆婆说六七暴动最开始发生的假花厂（人造塑胶花厂）闹工潮，适逢大陆文革高潮，这个说法和维基百科说的时间一致。这些闹工潮都是大陆指挥，苏婆婆为什么这么说呢？原来华润公司的子公司华丰国货是大本营幕后黑手，大陆中央把任务交给华润再由华润安排具体操作，苏婆婆和工友们都留守保卫公司，是直接的参予者。六七期间香港和大陆一样，都是一片赤潮，人性扭曲到精神癫疯，在红色思维的影响下根本不觉得67暴动是暴力，而是觉得非常威风理所当然。他们六亲不认，没有朋友没有亲情只有革命。上头吩咐你几时去港督府或港英政府门前示威就几时去，分多少批去，和什么口号，或者谁和谁去贴大字报，都随时听候命令。中共很会把人团结在一起，形成一条心，一致去干一件事。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4073.jpg)图片来自open.com hk
+不要以为你热情高涨终于革命就是个合格的人，中共就会对你百分百相信。错了，中共不会这么容易相信一个人，他们对下面的人的背景摸的非常清楚，家庭是什么成分，你在大陆有没有氢气朋友都要向上级会报备案。中共就这样把人紧紧的握在手里为其所用，为了自身安全你是不敢抗命的。 2019年6月香港爆发反送中运动后，在广东也发生过中共调查家庭关系背景的事情。由于中共的宣传大陆人非常相信和支持中共，都在骂香港人搞港独，是一群反骨仔。后来村里或者单位有文件下来要他们如实详细登记自家在香港或台湾的亲戚朋友。大家都知道广东是当年战乱和饥荒逃到香港最多的地方，中共此时搞登记调查，有人竟然相信了中共的谎言，不会有什么事，只是个正常的普查。当然也有不信的，但是妳不得不配合完成调查。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4074.jpg)图片来自明报
+随着反送中运动加剧，很多人就接到了当地政府的信息，可以说是威胁的信息。比如你在香港的某个亲戚上街游行了，政府就会告诉你你有责任对他劝阻否则会连累到你们。当时生活中听得最多的就是谁家的亲戚上街游行，连累到他收到政府的威胁信息，好害怕，或者是谁家的亲戚因为在香港做了什么害他家有人被政府抓去做人质了。在网上骂废青，骂港独的转骂亲戚“痴线”（神经病）“有病”，“放着好好的生活不过，要做港独”，“才过上几天资本主义好日子就反社会主义的妈了”，“没有中国强大的后盾支持，你香港能有今天吗”，“白眼狼”，“留岛不留人，有种就去你英国妈那里，去你美国爸那里，别留在香港，香港不欢迎你们这些吃里扒外的家伙”。 “永远不认这个亲戚”⋯⋯很多家庭因为这件事划清界线断绝来往了，或者为这件事吵得不可开交。香港反送中如火如荼，大陆骂架也如火如荼。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4075.jpg)图片来自文化按摩师
+中共左派在香港宣传常成功，在当时左派极富煽动的宣传下，香港很多年轻人都知道中共是为人民谋幸福的，国民党是很坏，通美，腐败等等。因此他们非常相信中共左派发起的“反英抗暴，反殖民地”是正义的斗争，他们都以为香港就要解放了就要脱离殖民地统治了，非常开心，热情高涨地参与革命，苏婆婆就是其中之一。后来的岁月苏婆婆经过很长时间的沉淀才明白中共左派在香港发起的运动是一场错误的革命，并且知道中共的宣传是虚假的。比如中共宣传他们是怎样为人民服务，打倒恶霸使人民过上好的生活，这些都是假的。但是在当时的香港他们对大陆的一切都不知道，所有的消息都来自中共左派的宣传。苏婆婆还透露一个消息她初中时的老师有一半是共产党员，可见中共在香港的布下的是天罗地网，全方位对香港人进行宣传洗脑渗透。早期地下党员梁慕娴女士就是在读中学时被她的老师发展成地下党员的。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4076.jpg)图片来自立场新闻
+对于中共的宣传洗脑书婆婆是这样说的，「我们就是一群傻瓜很早就被这些宣引导了，解放后香港出现很多剧艺社（这个说法和早期地下党员梁慕娴女士说的一样）。他们最拿手就是在文化方面下手」。
+（未完待续）
 
 
+【本文仅代表作者个人观点】
 
-> 2020年四月，李放的主页教育经历还有北大的本科和哈佛的博士后，2020年九月李放在主页删除了自己的照片同时也删去了这两段教育经历，只留下耶鲁博士。
-> 是否这两段经历有他认为敏感的？
-> 李放和高福的博士后都是在哈佛的Stephen Harrison实验室做的。高福2001年离开，李放2002年毕业后加入，前后脚差一年 [https://t.co/g3g2DiSaHy](https://t.co/g3g2DiSaHy)
-> — 冠军的亲爹(冠博士) (@Guan\_PhD) [April 7, 2021](https://twitter.com/Guan_PhD/status/1379636709172862980?ref_src=twsrc%5Etfw)
+资料来源：
+[纽约时报中文-香港六七暴动的亲历者](https://cn.nytimes.com/china/20190920/hongkong-north-point-1967-riot/zh-hant/)
 
+导读：
+中共超限战灭港计划
 
+[中共超限战灭港计划（一）权贵家族在香港的扩张](https://gnews.org/zh-hans/958921/)
 
-2020年四月，李放的主页教育经历还有北大的本科和哈佛的博士后，2020年九月李放在主页删除了自己的照片同时也删去了这两段教育经历，只留下耶鲁博士。 是否这两段经历有他认为敏感的？ 李放和高福的博士后都是在哈佛的Stephen Harrison实验室做的。高福2001年离开，李放2002年毕业后加入，前后脚差一年。
+[中共超限战灭港计划（二）香港地下党员](https://gnews.org/zh-hans/961318/)
 
-李放与高福是脚前脚后的关系，那么李放与邬开朗是什么关系呢？据[\[email protected\]](https://twitter.com/BOfz618)于[上午7:26 · 2021年4月7日](https://twitter.com/BOfz618/status/1379576149764808707)·[Twitter for Android](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)
+[中共超限战灭港计划（三）中共早期地下党员梁慕娴](https://gnews.org/zh-hans/964147/)
 
-发布的推文——
+[中共超限战灭港计划（四）香港早期活跃人物司徒华的前半生](https://gnews.org/zh-hans/966481/)
 
+[中共超限战灭港计划（五）司徒华的下半生](https://gnews.org/zh-hans/969837/)
 
+[中共超限战灭港计划（六）五区公投](https://gnews.org/zh-hans/972231/https:/gnews.org/zh-hans/972231/)
 
-> ■ 李放，是谁？
-> 2007年起，他与邬开朗在合作。
-> ■“故意投毒”的概念开始推进 [https://t.co/em6OlymgAb](https://t.co/em6OlymgAb) [https://t.co/MOMMPtC9NV](https://t.co/MOMMPtC9NV) [pic.twitter.com/qMrXcTbcrn](https://t.co/qMrXcTbcrn)
-> — BOBOin (@BOfz618) [April 6, 2021](https://twitter.com/BOfz618/status/1379576149764808707?ref_src=twsrc%5Etfw)
+[中共超限战灭港计划（七）五区公投的前因与后果](https://gnews.org/zh-hans/975744/)
 
+[中共超限战灭港计划（八）](https://gnews.org/zh-hans/977519/)[23条之战与五区公投后果](https://gnews.org/zh-hans/977519/)
 
+[中共超限战灭港计划（九）中共十三届四次会议](https://gnews.org/zh-hans/981210/)
 
-李放，是谁？ 2007年起，他与邬开朗在合作。 ■“故意投毒”的概念开始推进。既然现在Lawrence Sellin博士已经把郭德银、石正丽、李放、邬开朗在中共制造和投放冠状病毒超限生物武器的角色进行了界定，那么此前的MERS病毒是不是也是中共故意投放的呢？
+[中共超限战灭港计划（十）梁慕娴揭露香港中共地下党](https://gnews.org/zh-hans/983319/)
 
-为了更多搜集一下李放的论文，我们发现了[华人学者首次发现MERS病毒从蝙蝠到人类传播机制](http://www.ebiotrade.com/newsf/2014-8/2014813122838212.htm)（时间：2014年08月14日 来源：生物通）：
+[中共超限战灭港计划（十一）梁振英的地下党员身分之争](https://gnews.org/zh-hans/986516/)
 
-［生物通报道：最近，研究人员确定了致命的MERS病毒用以从蝙蝠到人类的传播机制。蝙蝠是MERS的一种原始宿主，这一研究成果对于了解该病毒的动物起源，以及预防和控制MERS及相关病毒在人类的传播，是至关重要的。
+[中共超限战灭港计划（十二）林郑月娥共产党员身分](https://gnews.org/zh-hans/990380/)
 
-相关研究结果发表在最近的《PNAS》杂志。本研究的通讯作者分别是明尼苏达大学医学院药理学副教授李放（Fang Li）博士和复旦大学“\*\*\*\*”特聘专家、纽约血液中心的姜世勃（Shibo Jiang）教授。李放教授实验室的研究生Yang Yang和Chang Liu参与了这项研究。纽约血液中心Lanying Du博士和北卡罗来纳大学的Ralph Baric也参与了这项研究工作。
+[中共超限战灭港计划（十三）老鼠窝中联办](https://gnews.org/zh-hans/992518/)
 
-MERS（中东呼吸综合征），在2012年被首次诊断，从那以后在全球已经引起800多人感染。大约40%的这类感染者都死于这种疾病。研究已经将MERS与流行性SARS病毒这样的冠状病毒家族联系在一起。这两种病毒被认为都起源于蝙蝠。］
+[中共超限战灭港计划（十四）占领舆论阵地之两封密电](https://gnews.org/zh-hans/997143/)
 
-这篇论文又牵出了李放博士与［复旦大学“\*\*\*\*”特聘专家、纽约血液中心的姜世勃（Shibo Jiang）教授］，且慢，为什么特聘专家前要加“\*\*\*\*”呢，看来中共也被打草惊蛇了，连“千人计划”都要用“\*\*\*\*”代替，那么我们再来看看这篇论文原文——[Receptor usage and cell entry of bat coronavirus HKU4 provide insight into bat-to-human transmission of MERS coronavirus](https://pubmed.ncbi.nlm.nih.gov/25114257/)（蝙蝠冠状病毒用HKU4通过受体进入细胞以从蝙蝠到人类的传播机制），在这篇论文里我们看到了李放与中共千人计划引进的军人出身的姜世勃，在这篇论文里我们看到了已经被心脏病死的中共毒王周育森的妻子杜兰英，对于李放教授实验室的研究生Yang Yang和Chang Liu我们暂时还不知道更多的信息。
+[中共超限战灭港计划（十五）占领舆论阵地之私营报纸的存亡](https://gnews.org/zh-hans/1001701/)
 
-但是作为反人类的科学家的李放和杜兰英和姜世勃，他们难道只是在中共冠状病毒COVID-19的时候才开始反人类了吗？我是不相信的，既然SARS病毒是中共的生物武器，那么自SARS以来的各种病毒尤其是冠状病毒中共能逃得了干系吗？也许中共没有任何研究成果的病毒是无辜的，那么只要是中共的毒王研究过的或者出过“研究成果”的，我相信中共都脱不了干系，路德社已经在[4/6/2021路德时评（路博冠谈）：Sellin博士提到类似于二战研究图灵机的布莱奇利公园的SIXTA神秘机构正在全面解密….？SIXTA机构到底是干什么的？美正联合全球西方国家抵制北京冬奥会；](https://youtu.be/Amm7O9417JY)里对[Dr. Lawrence \[email protected\]](https://twitter.com/LawrenceSellin)于 [下午10:13 · 2021年4月6日](https://twitter.com/LawrenceSellin/status/1379437072763609090)·[Twitter Web App](https://help.twitter.com/using-twitter/how-to-tweet#source-labels)发布的推文进行了解读，
+[中共超限战灭港计划（十六）抢占香港舆论阵地之共英之约](https://gnews.org/zh-hans/1006899/)
 
+[中共超限战灭港计划（十七）抢占舆论阵地之雨后春笋](https://gnews.org/zh-hans/1012264/)
 
+[中共超限战灭港计划（十八）抢占香港舆论阵地之张五场](https://gnews.org/zh-hans/1016253/)
 
-> Research network analysis similar to SIXTA from British WW2 codebreaking center, Bletchley Park, used to identify the laboratory origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) – Linking expertise to a local release in the Wuchang epicenter.[#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/pRgBxI9M0t](https://t.co/pRgBxI9M0t)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 6, 2021](https://twitter.com/LawrenceSellin/status/1379437072763609090?ref_src=twsrc%5Etfw)
+[中共超限战灭港计划（十九）传媒舆论分](https://gnews.org/zh-hans/1020122/)[析](https://gnews.org/zh-hans/1020122/)
 
+[中共超限战灭港计划（二十）新时代舆论战之反送中运动](https://gnews.org/zh-hans/1024389/)
 
+[中共超限战灭港计划（二十一）新时代舆论战之中共新战略](https://gnews.org/zh-hans/1028829/)
 
-美国的一个神秘机构正在破译中共病毒的密码，我相信在未来不仅仅是中共病毒COVID-19，包括MERS，包括此前的禽流感，再包括此前的SARS，所有的秘密都会浮出水面，自2003年以来所有为中共从事反人类超限生物武器的罪犯都跑不掉，而现在李放已经慌了，姜世勃的千人计划已经用\*\*\*\*代替了，再接下来呢？还有那些暂时还未上Lawrence Sellin博士榜单的中共反人类科学家们，还要加把劲儿才行，既然已经做了，这要是不上榜，那可不行！
+[中共超限战灭港计划（二十二）双十暴动](https://gnews.org/zh-hans/1036475/)[(上)](https://gnews.org/zh-hans/1036475/)
 
-（文章内容仅代表作者个人观点）
+[中共超限战灭港计划（二十三）双十暴动](https://gnews.org/zh-hans/1039951/)[(下)](https://gnews.org/zh-hans/1039951/)
+
+[中共超限战灭港计划（二十四）暗杀周恩来](https://gnews.org/zh-hans/1046701/)
+
+[中共超限战灭港计划（二十五）六七暴动前的澳门](https://gnews.org/zh-hans/1049039/)
+
+[中共超限战灭港计划（二十六）六七暴动前的香港](https://gnews.org/zh-hans/1050567/)
+
+[中共超限战灭港计划（二十七）六七暴动之中共左派策动政治潮](https://gnews.org/zh-hans/1054412/)
+
+审稿：卡西欧 /上传：天网灰灰
 
 0

@@ -1,101 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《路德时评》重磅解读Sellin博士提及神秘的SIXTA组织，及美国将联合盟友抵制2022年冬奥会
-` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1060795/)
+## 【热点播报】“⾎棉花”——国际奥委会与⽀持新疆棉的中国企业签订奥运会制服合同，引发质疑
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1060817/)
 
-直播视频：
+作者：纽约⾹草⼭写作组 ⻘岛⼩嫚
 
-
-
-《路德时评》2021年4月6日晚间节目主要内容：
-
-一、Sellin博士提及神秘的SIXTA组织
-
-Sellin博士4月6日再发重磅推特：与英国Bletchley公园二战密码破解中心SIXTA组织类似的美国网络研究分析组织正在进行新冠病毒实验室来源的情报分析，他们还发现武汉市武昌区出现疫情大爆发与人为释放病毒有关。
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
 
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片43.png)图片来源: Aïda Amer/Axios
+据Axios 报道，国际奥委会（IOC）与⼀家⽀持并使⽤新疆“⾎棉花”的中共国纺织品恒源祥（HYX）公司签订了东京2021年夏季奥运会和北京2022年冬季奥运会制服合同。
 
-> Research network analysis similar to SIXTA from British WW2 codebreaking center, Bletchley Park, used to identify the laboratory origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) – Linking expertise to a local release in the Wuchang epicenter.[#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/pRgBxI9M0t](https://t.co/pRgBxI9M0t)
-> — Dr. Lawrence Sellin (@LawrenceSellin) [April 6, 2021](https://twitter.com/LawrenceSellin/status/1379437072763609090?ref_src=twsrc%5Etfw)
+国际奥委会于2019年9⽉宣布，恒源祥（HYX）集团将为国际奥委会成员和⼯作⼈员提供正式的制服，例如⽤于仪式的制服。HYX集团与中国奥委会有着⻓期合作关系，并且是2008年北京奥运会的赞助商。HYX宣传和销售多种新疆棉的产品，并且在新疆有多家供货⼯⼚。
 
+国际棉花可持续性组织“更好的棉花倡议”（Better Cotton Initiative-BCI）于2020年10⽉宣布，在确定⽆法从道德上参与新疆棉的制作后，BCI正式退出新疆。之后H&M、ZARA、 NIKE等众多国际品牌做出了不会使⽤新疆棉的声明。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/图片45.png)图片来源：Eniola Odetunde / Axios
+劳动权利组织（Worker Rights Consortium）的战略研究总监Penelope Kyritsis,在查看了有关HYX Group的信息之后表示：**“**奥运会不应该与维吾尔地区的公司联系在⼀起。奥委会与⼀家从维吾尔地区采购资源，⽽且在产品⼴告中以使⽤新疆棉引以为傲的公司合作，在道义上是应受谴责的。”她强调：“当全世界都意识到维吾尔地区发⽣的恐怖事件时，国际奥委会似乎视⽽不⻅。”
 
+根据英国⼴播公司（BBC）12⽉的调查，在过去的三年中，中国政府已迫使成千上万的维吾尔族和新疆其他穆斯林少数⺠族在该地区的棉⽥从事季节性劳动。
 
-路德社评论：
+国际奥委会发⾔⼈告诉Axios，HYX集团向国际奥委会提供了⽤于⽣产国际奥委会制服的棉花的原产地证书，并且该证书表明该棉花来⾃中国境外。发⾔⼈没有说是哪个机构签发了证书，也没有应Axios的要求提供证书的副本。国际奥委会在提供给Axios的⼀份声明中说：“鉴于奥运会的多样化参与，国际奥委会必须在所有全球政治问题上保持中⽴。”并声明，尽管国际奥委会致⼒于维护⼈权，但它“既⽆职权，也⽆能⼒改变主权国家的法律或政治制度。
 
-1、SIXTA组织是二战时期最牛的密码破译组织，该组织当年位于英国Bletchley公园，在第二次世界大战期间，该庄园内设有政府密码学校，定期渗透邪恶轴心国的秘密通信系统，其中最重要的就是破译德国Enigma和Lorenz密码。Bletchley 公园的密码破译团队发明了一台自动密码破译机，最终发展成为全球第一台可编程数字电子计算机Colossus，正是因为该组织的密码破译工作，才使得二战提前二到四年结束。[1]图灵当年就从事揭秘工作，他最终使用自己发明的图灵机成功破译了德军密码，当原始密码被破解后，SIXTA组织就要对其进行情报复原工作。
+在奥委会⽆视中共严重侵犯⼈权和种族灭绝的同时，据AXIOS报道，美国国务院发⾔⼈内德·普莱斯（Ned Price）在4⽉6⽇的记者发布会上说，美国将与其盟国和伙伴讨论联合抵制2022年冬季奥运会的内容。⼈权律师Djaouida Siac告诉Axios的记者Bethany Allen- Ebrahimian，美国及其盟国抵制中共国承办奥林匹克运动可能有助于说服国际法律机构展开与新疆种族灭绝指控有关的调查。
 
-2、Sellin博士说美国已经成立类似二战时期的SIXTA组织，这就是在暗示世界已经处在第三次世界大战中，中共以超限战的方式开启了第三次世界大战，而中共派遣大量五毛在各大媒体发送海量垃圾信息，中共还收买各大医学机构和病毒科学家发表虚假论文来掩盖病毒真相，这些都是为混淆视听，这些都是闫博士第三篇报告所说的超限生物误导。
+Axios的肯德尔·⻉克（Kendall Baker）和戴夫·劳勒（Dave Lawler）报告称，2022年冬季奥运会的赞助商将⾯临撤出或表达反对中共侵犯⼈权⾏为两个选择。
 
-3、情报破译是一项工作，而有效的情报收集和情报分析是一项更复杂的工作，美军情报部门现在就在认真筛选关于中共病毒的有效情报进行分析，他们肯定已经从嫌疑人的电话、短信、邮件、社交媒体软件以及监视摄像头获得了大量情报，经过分析后得出结论，这就是中共通过实验室改造出中共病毒，并将该病毒有意投放到全世界。
+去年9⽉，超过160⼈权组织，呼吁国际奥委会从中国撤回2022年冬季奥运会。
 
-4、美军现在已经开始用独立的情报分析系统来确定中共病毒的所有真相，无论中共如何利用科学家和WHO掩盖病毒真相，都无济于事。这再次验证路德社此前爆料的美国军方已经获得关于中共病毒的重要情报信息，并在夜以继日地进行分析和整理工作。
+未来美国联合国际社会共同施压中共，抵制2022冬奥会在中共国举⾏，是对中共种族灭绝罪⾏追责⽽掀起的全球灭共运动的⼀部分。国际奥委会声称致⼒于维护⼈权，但在中共的蓝⾦⻩之下，奥委会的“中⽴”表态，将使其失去国际信⽤和领导⼒。
 
-5、美国现在已经从病毒实验室来源层面推动到中共故意投放病毒层面，如果未来认定中共有意向全世界释放中共病毒，那上升到战争层面进行对待。
+（⽂章仅代表作者本⼈观点，不代表GNews⽴场）
 
-6、中共对美国发起的病毒超限战就像当年德国闪击波兰，以及日本偷袭珍珠港一样，趁对方来不及进行战争动员就提前抢占先机。中共原先计划在春节之后才对外公布病毒疫情信息，要不是闫博士通过爆料革命路德社“119”节目提前向全世界揭露病毒真相，那后果将不堪设想，否则全世界早就已经陷入崩溃中。中共就是想利用病毒让美国的医疗体系崩溃，瓦解美国的军事力量，尤其是海上作战力量，进而让整个美国陷入崩溃。
+新闻来源：
 
-7、从现在来看，一切都是天意，路德社119节目向全世界揭露了中共病毒真相，文贵先生在去年1月23日组织了法制基金年会，爆料革命向班农先生和比尔·格茨先生传递了关于中共病毒的重要情报，班农先生和比尔·格茨先生随后分别向白宫和军情部门转达了这些重要信息，美国正在用超乎人类想象的科技分析中共病毒，中共这次绝对逃不掉。
+1.Olympic committee gave uniform contract to Chinese company with Xinjiang ties. https://www.axios.com/olympic-committee-gave-uniform-contract-to-chinese-company-withxinjiang-ties-7ef4000e-2d39-49c8-8134-2e871be6837f.html
 
-8、中共发起的病毒超限战是中共“13579”计划和灭白计划，击垮美元体系的第一步，中共通过动物传代实验将病毒伪装成自然来源，然后借病毒打垮美国的医疗系统、经济系统和军队系统，以此来破坏美国秩序，这就是超限战。如果没有爆料革命提前揭露病毒信息，美国军队早已经全面沦陷，中共就可以快速拿下台湾，再控制亚洲，进而推动控制全球的计划。中共还可以利用体制优势，逼着中共国老百姓快速复产复工恢复经济。到时中共再迅速推进疫苗经济、数字货币，然后，中共再怂恿其他国家将存在美国的黄金运回本国，这一连串的打法就想彻底击垮美元体系。这比发动火战更加有效。现在回击中共超限战的核心就是情报，闫博士给美国情报部门提供了获得重要的情报线索，这就加快了美国调查中共病毒真相的速度。
+2.The scope of forced labor in Xinjiang is bigger than we knew. https://www.axios.com/xinjiang-forced-labor-uyghurs-a3b58b6e-c98f-4ce4-ae52-7b4a37fa61f5.html
 
-9、美国此次联合北约和亚约国家共同发起围剿中共行动，这些国家军方肯定已经就中共病毒问题达成一致，这才让这些国家站得如此紧密。
+3.U.S. could consider boycotting 2022 Beijing Olympics with allies. https://www.axios.com/us-boycott-2022-beijing-winter-olympics-9a6349f5-41db-4067-a2c8-53ed004f54ac.html
 
-二、专栏作家Mosher再次撰文力挺闫博士
+校对/发稿：飞虹
 
-《纽约邮报》专栏作家Mosher再次撰文，他说闫博士揭露的中共病毒真相都是对的。闫博士说中共病毒为“超限生物武器”，该病毒是以中共军分离舟山蝙蝠病毒为骨架，再通过“功能增强型”实验对其进行了改造，使其更具感染力和致命性。”
-
-
-
-> [https://t.co/Ta0cZ3fEjV](https://t.co/Ta0cZ3fEjV)
-> 
-> "[@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) calls the virus an “unrestricted bioweapon,” saying that it was a bat coronavirus isolated by the PLA that has been re-engineered using “gain of function” research to make it more infectious and deadly."
-> She is correct. We are in a biowar.
-> — StevenWMosher @StevenMosher on Parler (@StevenWMosher) [April 6, 2021](https://twitter.com/StevenWMosher/status/1379454079345299457?ref_src=twsrc%5Etfw)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
 
 
 
-路德社评论：
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
 
-1、美国军情部门的代言人和各大媒体现在都站出来揭露中共病毒真相，所以布林肯国务卿才正式发言要彻查病毒来源，美国必须直面生物威胁的挑战。由此可以看到，不论哪个党派就任美国总统都必须尊重事实，这些事实都来自美国的情报信息。闫博士的报告理顺了美国获得的病毒情报信息，破坏中共想在其中搅混水的阴谋。
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
 
-2、闫博士提供的证据与情报将香港P3实验室拖出水面，Malik最后也会被公布，闫博士还用自己当作诱饵将打杂客，Gallo等多位与中共勾兑的科学家都暴露出来。
-
-3、美国体制决定了美国不可能像中共国那样，在中共国，只要习总加速师一声令下就可以迅速调转方向，现在的美国与中共在各领域都有众多合作，所以只有彻底坐实中共病毒就是来自于中共实验室，并且中共主动向美国发起了一场超限生物武器攻击这一事实，美国才能够顺理成章地推动中美脱钩，推动灭共进程。
-
-4、有战友发现，参与CCP病毒实验室改造的中共科学家李放博士下架了他本人在官网上的所有照片，由此可见，李放也很害怕爆料革命路德社的影响力。
-
-三、美国将联合抵制2020年北京冬奥会
-
-CNBC新闻网4月4日报道称[2]：美国国务院表示，他们正在考虑联合盟友抵制2022年北京冬季奥运会。
-
-
-
-> UPDATE: State Dept. backs away from the idea of a Beijing Olympics boycott. 
-> 
-> “Our position on the 2022 Olympics has not changed. We have not discussed and are not discussing any joint boycott with allies and partners,” a senior State Dept. official said. [https://t.co/YSGDMHtQkP](https://t.co/YSGDMHtQkP)
-> — CNBC Now (@CNBCnow) [April 7, 2021](https://twitter.com/CNBCnow/status/1379600036376555523?ref_src=twsrc%5Etfw)
-
-
-
-路德社评论：
-
-1、美国连同西方国家已经坐实中共在新疆犯下种族灭绝和反人类罪，种族灭绝罪和反人类罪与奥林匹克精神相违背，如果西方国家前往参加2022年北京冬奥会，这就是在为中共独裁政权站台，所以西方正义力量绝不可能与中共同流合污。
-
-2、冬奥会与夏季奥运会有着明显区别，如果是夏季奥运会，中共可以拉亚非拉盟友参加，但是冬奥会大部分项目只有西方发达国家才能玩得起的。美国各大媒体、大量议员和前政府官员现在都站出来推动政府抵制北京冬奥会。如果美国联合盟友全面抵制2022年北京冬奥会，这对中共的杀伤力非常大，拜登此举彻底打脸习总加速师。
-
-3、中共国被国际认可就是从2001年开始，中共在那年加入了WTO，并且申奥成功，这宣示着中共被世界主流秩序认可，如果西方国家联合抵制北京冬奥会，这就相当于中共又被踢出了以西方国家为首的国际秩序中，这也意味着美国与中共国的意识形态之争彻底摆上台面。
-
-4、2022年北京冬奥会如果无法举办，这对习总加速师的连任又是一个重大打击，他在党内的威信将大大下降。拜登政府现在推动的对共政策完全是政治家手段，未来所有的焦点还是要回归到中共病毒上，只有中共病毒才是导致中共灭亡的最致命因素。
-
-[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
-
-参考文章：
-
-[1][https://en.wikipedia.org/wiki/Bletchley\_Park](https://en.wikipedia.org/wiki/Bletchley_Park)
-
-[2][https://www.cnbc.com/2021/04/06/us-considering-joining-boycott-of-2022-beijing-olympics.html](https://www.cnbc.com/2021/04/06/us-considering-joining-boycott-of-2022-beijing-olympics.html)
-
-文章撰写：【重生】  编辑：【香柏树】
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
 
 0
