@@ -1,49 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 社交媒体的言论审查、垄断、泄露隐私，宛如中共国
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1061707/)
+## 维州与中共国的秘密协议正面临联邦政府的审查
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1061758/)
 
-文章作者:台湾宝岛农场 铃铃卷
-![]()![](https://gnews.org/wp-content/uploads/2021/04/brett-jordan-tWX_ho-328k-unsplash-scaled.jpg)
-[网路监控危机- Bing images](https://www.bing.com/images/search?view=detailV2&amp;ccid=vKywQJXg&amp;id=B7B0B6DC5F866BE2235B92D51D54D0DDC13E121F&amp;thid=OIP.vKywQJXgFuNAL78VpiHsiwHaEb&amp;mediaurl=https%3a%2f%2fs.yimg.com%2fuu%2fapi%2fres%2f1.2%2f7OLy8_ic2WRbtywDWwD6Aw--%7eB%2faD00NjA7dz03Njg7c209MTthcHBpZD15dGFjaHlvbg--%2fhttp%3a%2f%2fmedia.zenfs.com%2fzh_hant_tw%2fNews%2fawakeningtw%2f__WhatsApp-7eee98f8198c77b82a02594312d2c9f2&amp;exph=460&amp;expw=768&amp;q=%e7%b6%b2%e8%b7%af%e7%9b%a3%e6%8e%a7%e5%8d%b1%e6%a9%9f&amp;simid=608053320630417622&amp;ck=69D4D7EACDF93785BE53B180FA2E730C&amp;selectedIndex=116&amp;FORM=IRPRST&amp;ajaxhist=0)
+撰稿：Shirley
 
-## **便利的搜寻引擎与监控隐私的潜在危机**
+《时代报》报道，澳大利亚联邦政府将调查维州政府与中共国之间的[第三项协议](https://www.theage.com.au/politics/victoria/victoria-s-secret-agreement-with-china-faces-federal-government-scrutiny-20210406-p57grs.html)，此协议用以推进基础设施项目的公私生意伙伴关系（PPP）。该协议与维州有争议的“一带一路”协议是分开签署的。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1617800488.png) 网络图片
+维州政府被迫交出了州长安德鲁斯（Daniel Andrews）在2017年3月，与中共国国家发展和改革委员会签署的谅解备忘录的细节，该备忘录一直是保密的。在莫里森政府根据其新的外国否决法迫使该州交出文件后，该文件被曝光。
 
-网路媒体的日新月异，为人们带来了便捷的生活模式，但人们是否想过，在便捷的生活下，所可能带来的隐形危机?
+如果维州不能充分解释该协议符合澳大利亚的国家利益，联邦政府可以下令[终止该文件](https://www.abc.net.au/news/2020-12-08/what-are-the-governments-new-foreign-relations-laws-about/12947590)。
 
-各位是否有这样的经历?当你用Google Maps搜寻交通工具及路线，并搭上大众运输后，突然收到来自Google Maps的通知，询问你是否在车上?车内是否拥挤?起初不以为意，后来想着，如果手机的定位系统在开启的状态下，而个人的一举一动是否就一直被监控着呢?
+维州与中共国签署的一带一路协议，在澳洲国家安全机构和外交贸易部都引起了关注。
 
-美国Record等多家媒体4月3日（当地时间）报道，Facebook用户资讯遭外泄，全世界超过106个国家，包括日本在内的5.33亿用户的个人信息被公开，对此Facebook对媒体表示:”这是2019年报告的老数据，并说明，该数据外泄的脆弱性原因已在同年8月得到修正。
+外交政策专家称，这份早先在2017年签署的协议，比一带一路倡议（BRI）文件还早18个月，这将在联邦政府内部进一步敲响警钟。
 
-这已经不是Facebook第一次出现资讯泄露问题。
+外交政策专家、澳大利亚战略政策研究所国防、战略和国家安全主任舒布里奇（Michael Shoebridge）表示，过去三年来，公私合作协议承诺项目的影响越来越大，上个月的政治会议之后，国家安全风险进一步加剧。
 
-在2016年，Facebook将多达8700万人的个人信息泄露给数据分析咨询公司Cambridge Analytica，这引发了一个涉及美国政府的重大问题。
+舒布里奇先生说，”公私伙伴关系以及一带一路倡议，是以北京为中心的全球经济计划的核心，是利用私人公司和企业资本来达到中共政府的目的。”
 
-## **只有极权国家才会言论审查**
+维州政府周二对《时代报》和《悉尼先驱晨报》关于该协议的一连串问题进行了单线回复。它拒绝提供任何有关文件内容的细节。
 
-Facebook在近期遭诉讼，其涉及了言论审查、垄断、隐私安全等问题。
+总理莫里森（Scott Morrison）和内政部长达顿（Peter Dutton）等高级部长一直在[批评维州](https://www.theguardian.com/world/2020/may/25/chinas-belt-and-road-initiative-what-is-it-and-why-is-victoria-under-fire-for-its-involvement)在一带一路上与中共国打交道，声称这削弱了外交部和贸易部的作用。
 
-这让人想起在不久前，网路上有FB高层对话曝光：内容是脸书全球计画负责人汤玛斯私下透露:脸书创办人祖克柏才36岁，却拥有掌控全世界20亿人口的权力。他认为脸书公司已经成长为一头难以掌控的巨兽，美国联邦政府应该要出手介入，将脸书以及Google拆解成数家公司。汤玛斯并表示Facebook已经不只是公司，而是国家，而祖克柏宛如是统治了20亿人的国王。就连Facebook内部人都对扎克柏格的做法感到担忧。言论审查、垄断、泄露隐私之类的事件，感觉只有极权国家才会对他们的人民进行监控，这样的行为，不禁让人联想，脸书是不是中共国的附随组织?这监控系统现在还持续发生中吗?
+莫里森强调，澳大利亚永远不会为与中国的关系 “屈服于自己的价值观”，绝不会在[国家利益](https://www.skynews.com.au/details/_6246945418001)上妥协。
 
-## **世界权力者的善与恶，造就世界的和平与灾难**
+随着更多的秘密协议被曝光，相信会有越来越多的民众清醒过来，认识到中共一带一路的邪恶本质，和中共“蓝金黄”对当地造成的危害。中共利用一带一路，希望颠覆现有的，以西方价值观为主导的社会秩序和社会基础，注定会破灭。
 
-文贵先生在4月3日直播中也曾提到扎克柏格，他拥有FB的20亿用户，等同于他拥有全世界第五大国家权利的人，如他成功将版图扩张至数字货币市场的话，他的权力将更强大到世界前三大，甚至于第一，想像这一天到来时，人民的网路言论将持续遭审查、垄断、及个人隐私安全暴露，那扎克柏格是不是就成为极权世界的国王了。本文仅代表个人立场。
+（本文仅代表个人观点）
 
-[また？ 5亿人を超えるFacebookユーザーの情报がオンライン上に流出- iPhone Mania (iphone-mania.jp)](https://iphone-mania.jp/news-358197/)
+[第三项协议](https://www.theage.com.au/politics/victoria/victoria-s-secret-agreement-with-china-faces-federal-government-scrutiny-20210406-p57grs.html)
 
-[5.33亿人のFacebookユーザーの电话番号を含む个人情报、犯罪フォーラムで公开（ITmedia NEWS） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/1dc6b229aa42148c2ce37ddb068187b9575e0354)
+[终止该文件](https://www.abc.net.au/news/2020-12-08/what-are-the-governments-new-foreign-relations-laws-about/12947590)
 
-[FB高层对话曝光：祖克柏统治20亿人宛如国王｜@新闻精选【新唐人亚太电视】三节新闻Live直播｜20210318 – YouTube](https://www.youtube.com/watch?v=pwKt4ccgLqI)
+[批评维州](https://www.theguardian.com/world/2020/may/25/chinas-belt-and-road-initiative-what-is-it-and-why-is-victoria-under-fire-for-its-involvement)
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+[国家利益](https://www.skynews.com.au/details/_6246945418001)
 
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
-
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
-
-文章审核：zhong
-
-文章发布：Little Liu
-
-+1
+审稿：文筝     编辑：五饼二鱼
+![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2.jpg)
+0

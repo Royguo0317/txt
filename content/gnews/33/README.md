@@ -1,13 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】彼得⋅纳瓦罗：新变种巴西毒株正在随着航班传遍世界
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1061354/)
+## 中共野蛮抄袭西方的真相
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1061492/)
 
-3/30/2021 班农战斗室——彼得⋅纳瓦罗：新变种病毒巴西毒株正在随着航班传遍世界。
+摘要：看中共40年野蛮抄袭西方的真相，一路抄到世界第一排。
 
-By： 【秘密翻译组 G-Translators】
-
-
+**By：【秘密翻译组 G-Translators】**
 
 0
