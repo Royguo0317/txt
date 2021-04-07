@@ -1,44 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【G时评】原创时政小段子:一个强盗和40个阿里巴巴
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1062222/)
+## 2021年4月7日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1062340/)
 
-作者：Giselle
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-58.png)
-【G时评】
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-[https://gtv.org/user/5f72f8f60cd82c6bb6a248a6](https://gtv.org/user/5f72f8f60cd82c6bb6a248a6)
+中共在打造自己的数字货币，为它监控公民和经济提供新的途径，并削弱美国的制裁 CCP is creating its own digital currency, which will give it new ways to monitor citizens and the economy, and offset US sanctions
 
-1，请简单描述一下“中共超限战”。
 
-——凿日本的船，堵埃及的运河，让全世界每小时损失4亿美元……
 
-——拿美国的钱、偷美国的科技、杀美国的人。
+[【2021年4月7日】文贵先生盖特原文](https://gtv.org/getter/606dadbddbc8001854a63704)
 
-2，请简单描述一下中共目前的处境。
+**喜联盟Gnews编辑部**
 
-—— 一个强盗和40个阿里巴巴，
-藏宝山洞开启咒语：病毒真相。
-
-3，中共砖家声称，备孕者可接种病毒疫苗。
-
-——你确定不是避孕针？
-
-——一针下去，永不生育。
-
-4，如何看待日本、印度、菲律宾联手抗共？
-
-——由北往南，曲线包抄。
-
-5，如何看待非法移民“租借”儿童入境美国？
-
-——他们怎么不直接把拜登借走？不用还。
-
-6，你觉得中共冬奥会还搞得下去吗？
-
-——我觉得中共会被冬奥会搞下去。
-
-（文章内容仅代表作者个人观点）
-
-0
++1
