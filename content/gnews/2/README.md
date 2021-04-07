@@ -1,13 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】美国前CDC主任罗伯特·雷德菲尔德博士 ： 新冠病毒来自武汉实验室
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1061521/)
+## 30/3/2021 穆罕默德·马兰迪：这是伊朗和中共国向美国发出的信号
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1061632/)
 
-3/26/2021美国前CDC主任罗伯特·雷德菲尔德博士 ： 新冠病毒来自武汉实验室。
+摘要：穆罕默德·马兰迪：这是伊朗和中共国向美国发出的信号，表明他们之间的关系更为紧密。
 
-By： 【秘密翻译组 G-Translators】
+**By： 【秘密翻译组 G-Translators】**
 
-
-
-0
++1

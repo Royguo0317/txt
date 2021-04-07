@@ -1,27 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德时评简讯（视频版）: 更多科学家站出来支持闫博士报告结论( 2021.4.3早间 路德社简讯之路路安墨谈)
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1061118/)
+## 2021年4月7日 文贵先生盖特 1
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1061261/)
 
-《路德社》出品
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-以下视频是详细内容:
-
-内容摘要：
-
-一、美日韩国安官员在美海军学院举行闭门会议
-
-二、更多科学家站出来支持闫博士报告结论
-
-三、福克斯稳居美三大电视网收视率第一
+文贵的警告再次应验：苏伊士运河或霍尔木兹海峡迟早会再出事 Miles Guo’s warning came true again: A matter of time a Suez Canal or Hormuz Straits accident repeats again
 
 
 
-制作：路德社简讯视频组
+[【2021年4月7日】文贵先生盖特原文](https://gtv.org/getter/606d7f5fdbc8001854a62dd5)
 
-审核校对：玫瑰新闻组
-
-上传排版：玫瑰新闻组
+**喜联盟Gnews编辑部**
 
 0
