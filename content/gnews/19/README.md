@@ -1,67 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 慧眼看世界20210407（图片新闻）
-` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1062515/)
+## 习近平喊话默克尔：要有独立判断能力
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1062763/)
 
-- 制图：透明的遮羞布
-- 编辑：Ranting
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/M-1.jpg)wtvbam.com
+因极端作恶，被世界正在清醒认知的邪共，自感深陷孤立，抓住一切可能抓住的机会，对西方阵营“短板”处打压、诱惑，继续施展妖术，以图缓解、摆脱困境。反川普总统的亲共分子德国总理默克尔再度被选为中共施压对象，受到总加速师“习神”的“告诫”。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+欧洲的《政治》（politico）网站发文，“中共国习近平致电默克尔：欧盟应对中共国作出独立判断”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-1.jpg)
+文章摘要说，这位中共国主席表达了北京对拜登总统领导下的美国与欧盟更紧密关系的不安。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-2.jpg)
+全文如下：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-3.jpg)
+星期三，中共主席习近平在与德国总理安吉拉·默克尔（Angela Merkel）的电话中说，在中美政策协调不断恶化的情况下，欧盟成员国的对华立场，应该“独立地作出正确的判断”。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-4.jpg)
+据官媒央视报道，“目前中欧关系面临新的发展机遇，但也面临着不同的挑战。中共国的发展是欧盟的一个机遇，我们希望欧盟能够独立作出正确判断，真正实现战略自主。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-5.jpg)
+习近平强调，“中共国将继续对德国企业开放，并敦促柏林不要对中共国企业施加限制。”习近平说，“连续五年，中共一直是德国最大的贸易伙伴，我们希望德国继续开放和扩大……我们国家和企业之间的合作。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/a-6.jpg)
+中共主席发出这一呼吁之际，正值中共国与欧盟关系冷淡，此前欧盟针对其侵犯维吾尔族少数民族人权的事件，将4名新疆官员列入制裁名单，北京对欧洲议会成员实施了制裁。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-1-1.jpg)
+中方没有提及制裁或欧中投资协议，这是德国去年担任欧盟理事会主席期间接近尾声时达成的，据报道，习近平只是说：“去年我们进行了多次沟通，在中德和中欧关系中发挥了主导作用……我们有能力做一些有意义的大事。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-2.jpg)
+习近平承诺在气候变化和多边主义问题上与欧盟合作，同时在与默克尔的通话中反对疫苗民族主义。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-3.jpg)
+没有得到总理办公室即时的电话回应，（但）央视援引她的话说，柏林期待着与北京合作，应对世界的挑战。（原文完）
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-4.jpg)
+这条新闻占据了大量左派媒体的版面，默克尔再一次为邪共提供了发声的平台，不管是否作了回应，当下的中共急需这样的喊话渠道。自古以来华夏之地不乏“术招”，远交近攻、合纵连横，信奉堡垒完全可以从内部攻克的信条，蓝金黄开路，制造短板，将人性恶的一面发挥到极致，为魔所用，造成了当今世界的乱局。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-5.jpg)
+默克尔，当你认识到中共用超限生物武器袭击了世界的时候，你还替魔鬼站台吗？
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-6.jpg)
+原文链接：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-7.jpg)
+https://www.politico.eu/article/chinas-xi-calls-on-merkel-eu-to-achieve-real-strategic-autonomy/
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-8.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-10.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-11.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-12.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-13.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-14.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-15.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-16.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/b-18.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/c-1.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/c-2.jpg)
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/c-3.jpg)
-
-本文仅代表作者观点
-
-发稿：Ranting
-
-+1
+0
