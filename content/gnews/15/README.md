@@ -1,140 +1,44 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彼得·纳瓦罗（Peter Navarro）称安东尼·福奇（Anthony Fauci）为“病毒之父”
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1059980/)
+## 郭先生0405VI今天美国人对共产党的威胁和觉醒远远不够
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1060270/)
 
-内容
+![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-24.jpg)
+编辑整理：
 
-Dr. Fauci
+巴塞罗那喜悦农场：笑笑；华盛顿DC农场：YIMING（文鸣）；日本东京方舟农场：山川异域
 
-福奇博士
+郭文贵先生在[2021年4月5号 文贵直播：共产党的清明经济，清明政治，清明关系，挣死人钱，回老家搞关系，升官发财； 共产党实施的以钱灭美计划，美元经济崩溃，黄金一定大涨](https://gtv.org/video/id=606b0c896e11a756edd89042)中谈到了无神论的共产党利用清明节搞清明经济、清明政治、清明关系和以钱灭美等话题，本系列将根据郭先生在直播中涉及的不同侧重点逐一上传，以下为本系列第六部分——今天美国人对共产党的威胁和觉醒远远不够
 
-It became very clear
+据[2021年4月5号 文贵直播：共产党的清明经济，清明政治，清明关系，挣死人钱，回老家搞关系，升官发财； 共产党实施的以钱灭美计划，美元经济崩溃，黄金一定大涨](https://gtv.org/video/id=606b0c896e11a756edd89042)时间点1：13：09——
 
-它变得非常清楚
+我们不要在乎美国人信不信我们，它信不信真的咱别管，美国这个国家很伟大，她最终会明白的。我一点儿都不在乎美国人知道不知道，头两天有一个美国人跟我说，郭先生，美国人知道爆料革命的人还很少，我要让更多的美国人知道知道你什么，然后呢说你可以给我个十万美元的预算，我帮着让你美国人知道。我说一毛钱都不给你，我根本不在乎你美国人知道不知道，是你美国需不需要知道，你不知道是你的无知是你的失去、是你的失败，你知道了是你获得，我干嘛让你知道，我干嘛让你知道，我真的不在乎。包括G-TV，G-News，真的是多少美国人看我们真的不在乎。
 
-that decision we made on January the 10th
+因为这个国家**现在是华尔街和好莱坞还有美国科技公司的腐败贪婪，它最终它要付出代价的。**就像美国的私人公司3M公司在美国最需要口罩的时候，它就在电视上说，欸，我没有义务给你口罩啊。对呀，就像川普还有皮特纳瓦罗还有蓬佩奥都说美国是私人公司，私人公司一切向往利益，它完全不考虑政治。这是对的，按规则说是对的，但是这个国家要完了你这私人企业也都完球蛋。他们太贪婪了，你跟共产党做生意，你去。
 
-在1月10日我们做出的决定
+美元都没了你啥都没了，什么美国的豪宅呀、自由女神啊、民主啊、信仰，想啥都没了。这个国家是高成本地运作，完全靠一个高成本高质量法律团体系，维护的就是一个问题——美元。美国唯一让美元能够存在就是美国的航空母舰、美国的强大的军队和国家的科技能力。当美元没有的时候美国军队就没了，美国军队没了美国的利益就没了，美国利益就没了，这些人才也不聚集美国了，美国就完了。那你说美国企业呢还有行吗？像Elon Musk这样的人他就不会待在美国，他弄不好迁都，把他公司迁到香港、迁到上海去了或者到欧洲去了。
 
-to go all out and develop a vaccine
+这是美国人他一定要意识到的，现在你看到美国这个下边的官员，不管这些执法部门的腐败到了什么程度，腐败、被收买和无知，对共产党的威胁完全没有认识，**没有我们新中国联邦没有爆料革命美国人绝对达不到今天这个程度，今天美国人对共产党的威胁的觉醒远远是不够的。**
 
-来全力以赴开发一款疫苗
+这次美国经济出了问题、黄金出了问题，共产党的以钱灭美的计划和灭白计划和制造种族对立矛盾的计划和蓝金黄的深度逐渐会显现出来，然后美国这两万亿美元所谓的基建和一万多亿美元的基建，这三万多亿美元都要从企业家的身上拿出来，企业家会再从这些穷老百姓手里拿回来。
 
-We have a number of vaccine candidates
+但这个过程它是需要时间的，它不是一天两天，它不像共产党一样把马云、马化腾是不是把这些老板全抓了，它做不到的，国家就没了，它要一个时间，在这个时间当中可能美国人就完全失去了世界第一经济强国、第一科技强国、第一军事强国、第一信用之国和信用美元体系全部崩塌。剩下的美国可能是哪儿叫美国，德州德克萨斯叫美国，美塔那、马塔那叫美国，爱荷华州，Idaho就是黄石公园叫美国，其它都不叫美国，像什么纽约洛杉矶啊估计都乱了。
 
-我们有许多候选疫苗
+这就是共产党想要的，搞弱、搞乱、搞死美国，蓝金黄，三F方案，蓝金黄方案，灭白计划。这都是共产党是一系列的，从科恩、从IMF世界银行，从所有的，从国会、从情报部门儿、从司法部门，你看那Higginbotham那司法部的，就为了遣返郭文贵他能收几百万、几千万美元。刘特佐，你看刘特佐那什么概念，把马，大家还记得吧，马哈蒂尔上去了把纳吉布干掉了，人家纳吉布又派了个把马哈蒂尔干掉了，马哈蒂尔上来以后现在弄了个西丁外交部长，就是人家纳吉布的人家的亲表兄弟，人家纳吉布的亲表弟又回到北京，在刘特佐的安排下——孟建柱的私生子的安排下，公开在外交部喊王毅你是我大哥，哈哈，共产党这邪恶到啥程度。
 
-May have been the best decision that I’ve ever made
+你再看看阿拉斯加那个会面，大家我最起码我在那个YouTube上我看了三遍了，我认真地看了三遍，每一个字儿、每一句话都是精心的安排，每一个字儿、每一句话都是对美国的羞辱和侮辱，那个阿拉斯加的见面绝对等同于当年撒切尔夫人在北京跌倒那一跤。
 
-可能这是我关于作为研究所负责人
+接上文——
 
-with regard to intervention as the director of the institution
+[郭先生0405I中国历史上关于清明节的故事很多但未必可信](https://gnews.org/zh-hans/1058342/)
 
-做过的最好的决定
+[郭先生0405II共产党利用清明搞政治、赚死人钱、拉关系搞生殖器](https://gnews.org/zh-hans/1058590/)
 
-0:21
+[郭先生0405III清明节里最可悲的是生不如死的苛活的同胞](https://gnews.org/zh-hans/1058680/)
 
-Rachel Campos-Duffy (Fox News)
+[郭先生0405IV我们要真正的行动干掉魔鬼为死去的人而奋斗](https://gnews.org/zh-hans/1058741/)
 
-瑞秋·坎波斯·达菲(福克斯新闻）
-
-All right a quick reaction to that
-
-好吧, 对此的快速反应
-
-I know that’s got to be steaming you Peter
-
-我知道那一定要让你烦，彼得
-
-0:28
-
-Dr. peter navarro
-
-彼得·纳瓦罗博士
-
-Fauci is a sociopath and a liar
-
-福奇是一个社交变态者和骗子
-
-He had nothing to do with the vaccine
-
-他与疫苗无关
-
-The father of the vaccine is Donald J Trump
-
-疫苗之父是唐纳德·J·川普
-
-What is Fauci the father of,
-
-福奇是什么的父亲
-
-Fauci is the father of the actual virus
-
-福奇其实是病毒之父
-
-Fauci is the guy
-
-福奇是这样的家伙
-
-this virus according to Bob Redfield at the centers for disease control
-
-这个病毒按照疾病控制中心的鲍勃·雷德菲尔德（Bob Redfield） 的意见
-
-Came from the Wuhan lab
-
-是来自武汉实验室
-
-and basically we had Fauci not funding that lab with American tax payer dollars
-
-并且基本上，福奇不止用美国纳税人的钱资助了那个实验室
-
-He authorized this thing called gain-of-function research
-
-他授权了这个叫做功能增强研究的东西
-
-He allowed the Chinese Communist Party,
-
-他允许中国共产党
-
-the people’s liberation Army to genetically engineer a virus using gain-of-function
-
-人民解放军使用功能增强来制造基因病毒
-
-I call it the Fauci virus now
-
-我现在叫它福奇病毒
-
-If he wants to be the father of something
-
-如果他想成为某事之父
-
-He’s the father of the virus that’s killed over half a million Americans
-
-他是那个杀死了超过50几万美国人的病毒之父
-
-1:12
-
-Rachel
-
-瑞秋
-
-Well, Peter, we’re still trying to get to the bottom of that
-
-好，彼得，我们对那个仍然尝试着深挖到底
-
-* * *
-
-英听校：康州盘古农场 – Layka
-翻译：康州盘古农场 – Layka
-翻译终校：康州盘古农场 -Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片:康州盘古农场-银龙
-发文编辑：康州盘古农场-轰炸机
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+[郭先生0405V过去的一周共产党开始全面实施以钱灭美行动](https://gnews.org/zh-hans/1060164/)
 
 0

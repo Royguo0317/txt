@@ -1,45 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 麦康奈尔称对福奇“完全信任”
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1059652/)
+## 别忘了中共和北朝鲜的同一个目标：社会主义共产世界
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1059896/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+内容：
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/M.jpg)businessinsider.nl
-前天笔者发文，“福奇（Fauci）最近日子不好过”【1】，今天（4月6日）早晨《路德社》也透露，“NIH福奇接受调查”【2】。中共病毒真相被揭露后，福奇被调查是顺理成章的事，当然与魔共舞者不会轻易就范，会千方百计地抵赖，“同事加战友”（或者受同一个后台指使）也会鼎力相助，关键时刻中共女婿麦康奈尔（Mitch McConnell）跳出来，试图替“难兄难弟”福奇解围，已经觉醒的美国人看清了这帮与邪恶中共打得火热的人的嘴脸，第一时间揭露出来，《门道专家》发文报道了此事。
+朱利安尼先生（Giuliani）：
 
-全文如下：【3】
+Then Kim, Jong-un, kind of，put a finishing touch on it.
 
-天哪，麦康奈尔为福奇辩护：“他是我见过的最可靠的证人。”
+然后，金正恩画了最后一笔
 
-共和党参议院少数党领袖麦康奈尔提供了另一个例子，说明他是多么的不识时务，麦康奈尔是第一个声称川普总统在2020年选举中失败的人，尽管有大量证据表明选举被偷窃，现在他支持（处于）矛盾、危险和疯狂（漩涡中）的福奇。
+When he and Xi, Jing-Ping,
 
-针对一些共和党同事对安东尼·福奇提出的批评，参议员米奇·麦康奈尔周一申明，他仍然对福奇有信心。
+他和习近平
 
-在周一的一次鼓励接种疫苗的活动中，参议院少数党领袖再次提到了民意调查显示共和党男性犹豫不决的情况，并说他们都应该接种疫苗，因为疫苗安全有效。
+just the other day, put out a joint statement
 
-麦康奈尔首先被问及拜登政府的基础设施法案，然后有记者问他是否仍然对福奇“完全信任”。
+就在前几天，发表了一份联合声明。
 
-麦康奈尔在ABC上分享了他的观点：
+The joint statement is a kind of Duvet an opera
 
-（原文链接了ABC的推文）
+联合声明就像唱双簧的
 
-少数党领袖麦康奈尔表达了对福奇的信心：“我认为他是我们过去几年所依赖的主要人物，我想这已经引起了一些争议，但是，我们必须听取某人的意见……他是我见过的最可靠的证人。”
+They are on the same side that they reform the unity as communist countries
 
-对大多数人来说，福奇是个反社会者，福奇毁了经济，毁了生活，他的误诊导致数以万计的老年人死于病毒。
+他们站在共产主义国家改革团结的立场上
 
-米奇·麦康奈尔每天都表现出他缺乏良好的判断力，给福奇贴上“可靠”的标签简直是疯了。（原文完）
+Working together to cop with hostile forces United State
 
-《门道专家》不了解中国有句谚语，笔者这里稍作“演绎”，那就是“不是一家人，不护自家人”，他们本身就是“一家人”，都与邪共为一家！
+与敌对势力联手迫使美国
 
-参考链接：
+into advanced costs of socialism
 
-【1】[https://gnews.org/zh-hans/1049979/](https://gnews.org/zh-hans/1049979/)
+进入“先进的昂贵的”社会主义
 
-【2】[https://gnews.org/zh-hans/1058842/](https://gnews.org/zh-hans/1058842/)
+Please don’t forget that they have a goal
 
-【3】https://www.thegatewaypundit.com/2021/04/augh-mitch-mcconnell-defends-fauci-reliable-witness-seen/
+请不要忘记，他们有一个目标
+
+that is to make the world socialist and communist
+
+那就是使世界成为社会主义和共产主义
+
+No god, the state owns your property and owns you
+
+没有上帝，国家拥有你的财产，拥有你
+
+That is for communism and socialism are in real life
+
+那是因为共产主义和社会主义就在在现实生活中的体现
+
+A lot of our children don’t know that because we don’t teach them any more
+
+我们很多孩子都不知道这一点，因为我们不再教他们了
+
+* * *
+
+英听校:康州盘古农场-WZ
+
+翻译: 康州盘古农场-WZ
+
+翻译终校: 康州盘古农场-Mike Li
+
+字幕+视频制作:康州盘古农场-天涯行
+
+审片：康州盘古农场-银龙
+
+发文编辑：康州盘古农场-轰炸机
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盤古農場歡迎您加入:(或點擊上方圖片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

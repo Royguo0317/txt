@@ -1,66 +1,26 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 赶紧打疫苗吧-自鸣得意的专制主义与微笑
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1059955/)
+## 【各抒己见】Ｇ系列投资的收益多少不完全取决于投资额的大小
+` 日本东京樱花团` [轉載自GNews](https://gnews.org/zh-hans/1060213/)
 
-内容：
+作者：喜马拉雅东京樱花团/待命（文晓）
 
-It is clear to them that the vaccine is the ticket back to pre-pandemic life.
+![](https://lh3.googleusercontent.com/F6iOX3tLNMtU82W-BQ-bpt-8wBsCaAqarmXM0VtylYWCfsa3a0iKXJa2gFTbMLAbVteuSPuz1xm8p3T8p0-oRMDCeTG51d_YLuI0vE26mt_YaWV_DmnkA8RtVbFH088TKk9_qPMD)
+[图片源自](https://blog.csdn.net/weixin_39574065/article/details/112696558)
 
-他们很清楚，疫苗是回到大流行前生活的门票
+近日，G系列投资成了战友之间最热门的话题，也是联盟各农场为之开会次数最多的话题。文贵先生一句“不能让爆料革命的战友们继续穷巴巴的”，不是说着玩的，已经得到落实，已经开始行动。由于战友们大多非专业理财人士，为此，联盟以及各农场的管理团队真的是下了一番功夫，不厌其烦的答疑，让我们这些墙国生墙国长的人，享受了一次真正的被服务。
 
-And the window to do that is real narrowly
+现在，只要有经济能力，大多战友都希望能多投一些。以Gcoin为例，谁都想得到更多配额，我自己也一样。不过呢，战友购买数额所占比例大是好事，同时也是令人担心的事，特别是令行家担心的事。因为战友中大多是投资的外行，当Gcoin上市后，不等到其充分的成长，抛售套现的情况就很可能出现。大多数人没见过大钱，翻了10倍20倍就容易满足了。而文贵先生真的是为我们操碎了心，他在直播中苦口婆心地给大家普及相关知识和常识，我边听边祈祷啊！希望大家都能听懂，希望战友们都能保持最初投资GTV那样的心情，拿出不至于影响正常生活的钱，让它既富裕了自己，也支持了爆料革命。
 
-而做到这一点的时间窗口真正的非常狭窄
+其实，同样是初期购入1万个Gcoin的战友们，最终的收益不一定是一样的。投资额可以相同，但在不同的值点卖出，其结果一定是不同的。假如1万个G币，张三涨到10美金卖出了，李四涨到100美元卖出了，王五涨到1000美金卖出了，赵六涨到10000美金卖出了，各自的收益这个帐不难算吧！因此，一定要搂住，千万别把眼前小利当机会，千万珍惜文贵先生给战友们带来的这千载难逢的大机会！机会我们赶上了，剩下的就靠我们自己去把握了，Ｇ系列投资的收益多少不完全取决于投资额的大小，最终获利多少，靠战友们自己操纵。
 
-You were mentioning help all these states are re opening
+*免责申明：本文只代表作者观点，与GNews网站无关。*
 
-你提到帮助所有这些州重新开放
+*校对：喜马拉雅东京樱花团 /文小白*
+*责任编辑：喜马拉雅东京樱花团 /東洋武士*
+*发布：喜马拉雅东京樱花团 /煙火1095*
+![]()![](https://gnews.org/wp-content/uploads/2021/04/二维码.jpg)
+0406C033c
 
-They are opening 100% and we have a very narrow window to
-
-他们将100%开放，我们只有一个非常狭窄的时间窗口
-
-tie re-opening policy to vaccination status
-
-来将重新开放政策与疫苗接种状况联系起来
-
-Because otherwise everything is re opened what is carry going to being
-
-因为不然的话，一切都会被重新翻转
-
-How we are going to satisfy the people actually to get the vaccine
-
-我们如何才能真正满足人们接种疫苗的要求呢？
-
-So that’s why the CDC and bottom administration need to come out a lot of
-
-因此，这就是为什么疾控中心和基层政府需要制定
-
-border and say
-
-很多条条框框，比如
-
-If you are vaccinated you can do all the things, here is all the freedom that you have
-
-如果你接种了疫苗，你就可以做所有的事情，这就是你所拥有的所有自由
-
-Because otherwise, people are going to out to enjoy freedoms anyway
-
-因为不然的话，人们无论如何都会走出去享受自由
-
-* * *
-
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场-Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片:康州盘古农场-银龙
-发文编辑：康州盘古农场-轰炸机
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
-
-+1
+0

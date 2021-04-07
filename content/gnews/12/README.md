@@ -1,60 +1,34 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统抨击《纽约时报》贬低草根筹款
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1060040/)
+## 中共一直在支持缅甸军方的佐证
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1060334/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+【日本东京方舟农场】编撰：丸子  素材整理：武汉老温   校对：文小律
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/G.jpg)commondreams.org
-川普总统在回击《纽约时报》时，继续揭露民主党人如何窃取了2020大选。
+新闻杂志《伊洛瓦底》（The Irrawaddy）周四（1日）报道，大批解放军士兵及军车出现在云南省的中缅边境缪斯镇（KyalKhaung ,Muse township），保护石油及天然气运输管道，防止受到破坏。
 
-声明全文如下：
+解放军出现在云南省姐告，该地接壤缅甸掸邦木姐。有缅甸少数民族武装组织认为，中国陈兵边境是警告缅甸。随着缅甸反华情绪高涨，有人扬言要炸毁通往中国的石油及天然气运输管道，中方上月初要求缅方提供保护。
 
-2021年4月5日
+尽管中方一再否认协助缅甸军方发动2月政变，但不少缅甸民间声音认定政变是中共国幕后支持。近期有缅甸公民团体在一份报告中披露，中国北方工业公司、中国航空工业集团等五家企业长期向缅甸军政府出售武器。一位熟悉缅甸政治及军事情况的人士称，中共会千方百计阻止缅甸投向美国怀抱。
 
-美利坚合众国第45任总统唐纳德·川普的声明
+3月31日联合国缅甸特使柏格纳在联合国安理会的一次闭门会议上，呼吁联合国应考虑所有可用的手段，采取集体行动，以避免缅甸事态更加恶化。但中共驻联合国代表张军却再次表明，中共不支持对缅甸实施制裁，并称制裁只会激化矛盾、加剧对立。引发缅甸民众对中共不满。
 
-在另一个高度党派化的报道中，失败的《纽约时报》本周末写了一篇完全误导人的、片面的攻击文章，试图贬低我们创纪录的、草根筹款行动在2020年竞选中的地位。若不是大规模的选举舞弊，这场竞选很容易就被你们喜欢的共和党总统，我，胜出！
+5日下午3点半左右，在缅甸最大的城市仰光，许多市民挥舞要求恢复民主的旗帜再次上街游行，部分民众更戴着反对联合国被中共“噤声”面具，以抗议中共在背后支持军变，并在联合国安理会上多次阻扰联合国谴责军变和实施制裁。
 
-我们在2020年获得了前所未有的巨大支持（迄今为止，获得的选票超过了历史上任何一位在任总统），这已经成为民主党的主要威胁，这也解释了为什么《纽约时报》立即匆忙捍卫其激进的左翼盟友。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/08A2A481-3B3C-4876-9922-A8AC78BE400C.jpeg)图片来源：美联社
 
-在我们两次大选之前，2016年和2020年的共和党人总是会损失少量的捐款，现在我们赢了，或者说做得很好，因为我们是美国的劳动党，我们在自己的竞赛中打败了民主党，我们从自由派的“蓝色行动”（Actblue）中学到了东西——现在我们比他们做得更好！事实上，很多人都很热心，一次又一次地捐款，在某些情况下，如果捐款过多，我们会及时退还他们的捐款。我们的整体纠纷率不到网上捐款总额的1%，这是一个非常低的数字。这也是民主党（DEM）做的。
+战友观点：
 
-《纽约时报》知道这一点，但将这些细节隐藏起来不谈论，他们不谈作弊的民主党人如何绕过摇摆州的州立法机构（美国宪法要求批准）操纵2020年总统选举，或者民主党人如何在许多城市中心搞有偿投票，施展那些被称作“绕钱走”的小花招，也不谈民主党人如何威胁工会成员，如果他们不投票给民主党人，他们将失去工作，大量的假邮寄选票，非法移民和死人投票给民主党人等等。我们的筹款工作，与共和党合作，都是合法的，都是为了确保我的政府能够继续让美国再次伟大起来，另一方面，选举被大量操纵和窃取，现在看看我们国家，特别是我们南部边界发生了什么。
+滇缅协助会主席张胜其本周四接受自由亚洲电台采访时说，中国企业向缅甸出售武器，由来已久，这在当地已不算秘密。缅甸军方是中共南部的军事盟友。中共政府在十年前就已经把安全防线，从滇南缅北一代转移到了缅甸以南的。整个缅甸都被中共视为安全防线以内。缅甸的稳定直接影响了中国的利益和国家安全。中共在缅甸孟加拉湾投资的军港和中缅石油管道，那是中共军队能源的命脉。中共必须为了保护在缅甸的军事投资和存在，支持缅甸维持稳定。所以缅甸人民爆发的抗议示威矛盾也一直在指向中共，如果缅甸是一个民主的国家，必然影响中共的巨大利益，由此可见军政府发动的政变也是和中共利益勾兑的必然结果。
 
-如果你是创纪录的7500万美国人中的一员，那些投票支持我，捐款或志愿服务的，谢谢你，最好的还没来呐！（声明完）
+注：本文仅代表作者观点
 
-大选舞弊的揭露涉及宪政危机，川普总统正在全力推进这项议程，而民主党也会竭尽全力掩盖阻止，一条贼船上的左媒自然会选边，不过，真相不会永远被掩盖，7500万人众不能受欺太久，背后的恶魔终究会暴露，邪恶必将受到惩治！
+参考链接：
 
-声明原文链接：
+1. [https://www.soundofhope.org/post/492026](https://www.soundofhope.org/post/492026)
+2. [https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/ql2-02172021234248.html](https://www.rfa.org/mandarin/yataibaodao/junshiwaijiao/ql2-02172021234248.html)
+3. [https://www.irrawaddy.com/news/burma/chinese-troops-gather-myanmars-border-protect-pipelines.html](https://www.irrawaddy.com/news/burma/chinese-troops-gather-myanmars-border-protect-pipelines.html)
 
-
-
-> President Trump responds to NYT hit piece:
-> 
-> “Our support in 2020 was so big—never before seen (received more votes than any sitting President in history, by far), that it has become a major threat to the Democrat Party…”
-> 
-> FULL STATEMENT: [pic.twitter.com/IaCQMYThRs](https://t.co/IaCQMYThRs)
-> — Natalie Harp (@NatalieJHarp) [April 5, 2021](https://twitter.com/NatalieJHarp/status/1379151646177980416?ref_src=twsrc%5Etfw)
-
-
-
-声明文字整理：
-
-Apnl5, 2021
-
-Statement by Donald J. Trump, 45th President of the United States of America
-
-In yet another highly partisan story, the failing New York Times wrote a completely misleading, one-sided attack piece this weekend that tried to disparage our record-setting grassroots fundraising operation during the 2020 campaign. Except for massive voter fraud this was a campaign that was easily won by your favorite Republican President, me!
-
-Our support in 2020 was so big-never before seen (received more votes than any sitting President in history, by far), that it has become a major threat to the Democrat Party, which explains why the New York Times immediately rushed to defend their Radical Left allies.
-
-Before our two campaigns, 2016 and 2020 Republicans would always lose small dollar donations. Now we win, or do very well, because we are the Party of Working Americans and we beat the Democrats at their own game. We learned from liberal Actblue–and now were better than they are! In fact, many people were so enthusiastic that they gave over and over, and in certain cases where they would give too much, we would promptly refund their contributions. Our overall dispute rate was less than 1% of total online donations, a very low number. This is done by Dems also.
-
-The New York Times knew this but buried these details in their story-they didn’t talk about, however, how the CHEATING Democrats circumvented State Legislatures (approval is required by the U.S.  Constitution) in Swing States to rig the 2020 Presidential Election, or how Democrats paid for votes in many Urban Centers, in a little thing called walking around money, how Democrats threatened Union Members with the loss of their jobs if they didn’t vote Democrat, massive Fake Mail-In Ballots, illegal immigrants and dead people who voted (for Dems) and much more. Our fundraising efforts, working together with the Republican party, were all done legally, and all with the goal of ensuring that my Administration could continue to Make America Great Again. The Election on the other hand, was massively rigged and stolen-and now look what is happening to our Country, and in particular at our southern border.
-
-If you are one of the record-setting 75 million Americans who voted for me, donated or volunteered, THANK YOUI The best is yet to come!
 
 0

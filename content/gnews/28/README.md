@@ -1,85 +1,98 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 新冠病毒巴西变种P.1大幅增加了对18-45岁人群的传染性
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1059728/)
+## 人权是美国外交政策的核心
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1059943/)
 
-编译：Lelouch.G.Zero
+内容：
 
-摘要：新冠病毒巴西变种P.1，具有更强的感染性。对感染过早期病毒的已有抗体的人，再次感染的几率增加了25%至61%。温哥华加人冰球队中超过半数的球员患病，多人病情严重，他们都是健壮的年轻精英运动员。3月，巴西至少有66,000人死于Covid-19，是该国2020年7月死亡人数的两倍多，单日3869人死亡破纪录。巴西当局被迫作出可怕的决定，挖出多年前埋在墓地里的尸体，为越来越多的死者腾出空间
+President Biden is committed to putting human rights
 
-巴西公共卫生机构Fiocruz于3月26日发布的Covid-19简报显示，巴西正面临卫生系统崩溃的危险。这一流行病在巴西呈现出新的特点：病毒感染年轻人的几率大幅增加了。
+拜登总统致力于将人权
 
-简报提供的数据显示，将2021年第1周和第10周（3月7日至13日）进行比较，病例的总数增加了316.88%。
+back at the centre of American foreign policy, and that’s a commitment that I and the entire
 
-然而，当分析30-39、40-49岁和50-59岁年龄段时，研究人员观察到的增幅分别为565.08%、626%和525.93%。这表明病毒感染年轻人的几率大幅增加了。
+放回到美国外交政策的中心，这是我个人和
 
-在死亡人数上，总数增加了223.10%。30岁至39岁的增幅为352.62%。40岁至49岁的增幅为419.23%，50岁至59岁的增幅为317.08%。死亡人数和病例总数的增加幅度接近，表明该病毒的致死率没有明显提升。
+Department of State take very seriously.
 
-研究人员强调，把疫情开始的第46周（2020年11月8日至14日），当作第二波疫情的开始，卫生服务部门已经看到了更多的有症状的年轻人。这一增幅高于其他年龄组的增幅。发病率向年轻年龄组的转移，死亡率仍集中在高年龄组。由于年轻人受并发症的影响较小，因此演化成严重和致命病例的速度较慢，这些病人经常在重症监护室停留更多天。这会增加医院病床资源耗尽的可能性。[1]
+国务院所有人非常认真的承诺
 
-这种新变种已经遍及巴西，并蔓延到其他国家。
+We will bring to bear all the tools of our diplomacy to defend human rights and
 
-越来越多的证据表明，年轻人不仅更有可能感染这种被称为P.1的新变种，而且还会因此死亡。
+我们将动用所有外交手段捍卫人权
 
-巴西重症医学协会表示，今年2月至3月，18岁至45岁人群因Covid-19需要重症监护的人数是2020年9月至11月的3倍，该年龄段的致死人数增加接近一倍。
+hold accountable perpetrators of abuse.
 
-在巴西的一线的医生和护士们注意到，越来越多的年轻患者挤满了病床。
+追究施暴者的责任
 
-“去年，我们有更多的危重老年患者。现在，完全不同了。我们正在处理大量30到50岁的重症患者，”来自丛林城市玛瑙斯（Manaus）的格图里奥·巴尔加斯（Getulio Vargas）医院的安妮·梅内塞斯（Anne Menezes） 博士告诉半岛电视台。
+The reports we’re releasing today are just one way to do that.
 
-这位29岁的医生说，看到年轻的病人死亡特别令人震惊。她说：“最近有与我同龄的患者死亡。同样的事情可能也会发生在我身上。我们为挽救他们而竭尽全力，直到最后。”
+我们今天发布的报告只是实现这一目标的一种方式
 
-圣保罗大学研究人员最近与牛津大学和伦敦帝国理工学院合作，他们的研究表明，这种变异体具有更强的感染性和传播性—-高达 2.2 倍—-并且对感染过早期病毒的已有抗体的人，再次感染的几率增加了25%至61%。
+One of the core principles of human rights is that they are universal.
 
-目前，该病毒正在全球许多国家蔓延，加拿大发生的一系列备受瞩目的感染事件，更让人担忧该病毒对年轻人和健康人的影响。
+人权的核心原则之一是它们是放之四海而皆准的普世原则。
 
-温哥华地区最近成为P.1变种的热点地区，现在温哥华加人冰球队中超过半数的球员在Covid-19的检测中呈阳性。
+All people are entitled to these rights, no matter where they’re born,
 
-周日，又有两个人的名字被加入到球队的Covid-19名单中，总数达到了16人，根据多个消息来源，其中一些人处于 “艰难状态”。一位加人队球员告诉ESPN，他听说有队友因为严重脱水而接受静脉治疗。
+所有人都有权享有这些权利，无论他们出生在哪里，
 
-“疲劳、脱水–症状很严重，”一位加人队的经纪人说，”很多人都倒下了。有些人甚至不能下床。”
+What they believe, whom they love, or any other characteristic.
 
-该消息人士表示，在影响加人队的几例病例中，已经发现了传染性更强的P.1变种。
+无论他们的信仰，他们爱的人，或任何其他性格
 
-哈佛大学流行病学家Eric Liang Feigl-Ding博士说，让人担忧的是，加人队的病例都是健壮的年轻精英运动员。
+Human rights are also co-equal;
 
-“尽管有严格的工作场所协议。尽管有大量的个人防护装备预算。尽管每天都要进行测试。团队中仍然超过50%的人患病，许多人病情严重，P.1变种就是这么可怕。”他在推特上说。
+人权亦是平等的；
 
-巴西处理死难者的严峻形势
+there is no hierarchy that makes some rights more important than others.
 
-巴西当局被迫作出可怕的决定，挖出多年前埋在墓地里的尸体，为越来越多的死者腾出空间，因为巴西的Covid-19病例和死亡人数不断刷新纪录。
+没有等级制度使某些权利比其他权利更重要。
 
-圣保罗北部维拉新卡乔伊琳娜（Vila New Cachoeirinha）公墓的掘墓工人穿着白色的危险品防护服通宵达旦地打开墓穴，将腐烂的遗体装入袋中，以便转移到另一个地方。
+Past unbalanced statements that suggest such a hierarchy,
 
-虽然转移遗体是公墓作业的标准动作，但负责殡葬服务的市政秘书表示，在南美国家日益严峻的形势下，这项工作变得非常紧迫。
+过去不平衡的声明暗示了这样的等级制度，
 
-开放时间已经延长，允许深夜埋葬，以跟上不断涌入尸体的速度。
+including those offered by a recently disbanded
 
-从其他墓地传来的令人心碎的画面显示，掘墓工人穿着全套防护装备，在泛光灯下挖掘一排排坟墓，通宵达旦地工作。
+包括最进撤销的一个声明
 
-3月，巴西至少有66,000人死于Covid-19，是该国2020年7月死亡人数的两倍多，2020年7月是疫情以来死亡人数第二多的月份。
+State Department advisory committee,
 
-巴西已经是仅次于美国的疫情重灾区国家，在上个月，情况还在进一步恶化。
+国务院顾问委员会，
 
-周三，巴西卫生部连续第二天录得最高的Covid-19单日死亡人数，单日3869人死亡。
+do not represent a guiding document for this administration.
 
-这种情况是如此糟糕，以至于巴西目前占全世界Covid-19每日死亡人数的四分之一。
+不代表本届政府的指导性文件
 
-专家预测它只会变得更糟，疫苗的推出缓慢而痛苦，总统扎尔·博尔索纳罗（Jair Bolsonaro）不支持封城限行，这位巴西领导人因在疫情早期否认病毒的存在而闻名，直到他自己也感染。
+At my confirmation hearing,
 
-美洲的患者激增幅度可能比2020年 “更大”。
+在我的提名确认听证会上，
 
-随着拉丁美洲各国关闭边界并实施封锁以控制病毒的传播，有人警告说，最近的病例和死亡人数激增可能是该地区迄今为止最严重的一次。
+I promised the Biden-Harris Administration
 
-在本周的新闻发布会上，泛美卫生组织（PAHO）主任卡里莎·艾蒂安（Carissa Etienne）说，最近的高峰与南半球的暑假相吻合，这并非偶然。
+我向拜登-哈里斯政府承诺
 
-她对记者说：“如果不采取预防措施，我们地区可能会面临比上一次更大的激增。我对遭受传播激增的地方的主要指导可以概括为：呆在家里。” [2]
+would repudiate those unbalanced views.
 
-参考资料：
+会否定那些不平衡的观点
 
-[1] https://portal.fiocruz.br/en/news/fiocruz-bulletin-covid-19-alerts-pandemic-getting-younger-brazil
+We do so decisively today.
 
-[2] https://www.nzherald.co.nz/world/covid-19-coronavirus-brazil-strain-three-times-more-deadly-for-those-aged-18-45-research-shows/A4LAA4JTXZK2XMSKOLPKHQWMJI/
+今天我们非常果断地这样做了
+
+* * *
+
+英听校:康州盘古农场-WZ
+翻译: 康州盘古农场-WZ
+翻译终校: 康州盘古农场-Mike Li
+字幕+视频制作:康州盘古农场-
+审片:康州盘古农场-银龙
+发文编辑：康州盘古农场-轰炸机
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

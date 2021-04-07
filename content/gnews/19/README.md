@@ -1,98 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 人权是美国外交政策的核心
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1059943/)
+## 中共加强海洋行动，日本罕见直批
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1060168/)
 
-内容：
+【日本东京方舟农场】 搜集/编撰：丸子  校对：miumiu law
 
-President Biden is committed to putting human rights
+据大纪元2021年04月05日讯，周一（4月5日），日本外相茂木敏充给王毅打电话90分钟，表达了罕见的“强烈担忧”，他要求中共停止入侵争议海域，呼吁中共改善维吾尔人的人权条件，并停止对香港的镇压。
 
-拜登总统致力于将人权
+3日，以“辽宁号”为首的航舰编队从东海通过冲绳本岛与宫古岛间的宫古海峡，穿越“第一岛链”进入西太平洋。日本防卫省研判，中共此次航行是北京在东海加强海洋行动的一环。
 
-back at the centre of American foreign policy, and that’s a commitment that I and the entire
+对于中共此次行动的解释，国际评估与数据战略重心高级研究员Richard Fisher称这些部署旨在威胁日本，恐吓日本不要支持台湾，中共想要攻占台湾，接管台湾，消灭台湾的民主文化。此举引发日本的强烈反应。
 
-放回到美国外交政策的中心，这是我个人和
+日本首相菅义伟日前在出席电视节目时表示，希望在美日合作维持的情况下，创造可以使中国大陆及台湾和平解决的环境，他强调，有关台湾的情势对日本十分重要。
 
-Department of State take very seriously.
+此外，菅义伟还表示，若被界定为“有事”时，日本可能有限地行使集体自卫权，即在与本国关系密切的国家卷入他国武力纷争时，无论自身是否受到攻击，都会出兵海外，参与多方军事集团，以武力主动介入他国战争事务以打击某一方。
 
-国务院所有人非常认真的承诺
+日本首相菅义伟将在4月16日亲赴美国，与美国总统拜登举行首次首脑会谈，外界预测应对中共崛起，“台湾安全问题”等将成为重要议题。日本在这次会谈前释放出罕见的强硬信号，引发国际关注。
 
-We will bring to bear all the tools of our diplomacy to defend human rights and
+![]()![](https://gnews.org/wp-content/uploads/2021/04/C5944FC8-3365-49F8-868F-D3D2F98C7BF8.jpeg)
 
-我们将动用所有外交手段捍卫人权
+战友观点：
 
-hold accountable perpetrators of abuse.
+由此可见，中共对有争议海域的入侵，就是针对美日台结盟和统一对抗中共的事实而来。台湾作为美国遏制中共国太平洋威慑计划的首位，美国驻军台湾很可能会公开化和正式化。而这一切都是由于近期中共对台海、南海及东海的威胁加剧造成的，带来日本和美国等诸多结盟国的加速行动。
 
-追究施暴者的责任
+路德社节目曾说过，习总加速师面临内忧外患，中共内部政治的稳固性岌岌可危，武统台湾是实现其民族主义的复兴之路，还有台湾有先进的晶片工艺等重要原因，武统台湾可以转移国内矛盾，维稳其统治地位。虽然中共面临世界各国的加速结盟，但也无路可退，总加速师毕竟只能且只会无限加速度下去，这样与世界为敌，与正义为敌，也必然走向加速灭亡。
 
-The reports we’re releasing today are just one way to do that.
+注：本文仅代表作者观点
 
-我们今天发布的报告只是实现这一目标的一种方式
+参考链接：
 
-One of the core principles of human rights is that they are universal.
+1. [https://www.epochtimes.com/gb/21/4/5/n12859457.htm](https://www.epochtimes.com/gb/21/4/5/n12859457.htm)
+2. [https://telegra.ph/soundofhope-04-06-8](https://telegra.ph/soundofhope-04-06-8)
+3. [https://twitter.com/yulin18494807/status/1379242944138342401](https://twitter.com/yulin18494807/status/1379242944138342401)
+4. [https://cn.nytimes.com/opinion/20201223/china-armed-reunification-taiwan/zh-hant/](https://cn.nytimes.com/opinion/20201223/china-armed-reunification-taiwan/zh-hant/)
+5. [https://www.soundofhope.org/post/491978](https://www.soundofhope.org/post/491978)
+6. [https://twitter.com/BoDiplo/status/1379234259001610243](https://twitter.com/BoDiplo/status/1379234259001610243)
 
-人权的核心原则之一是它们是放之四海而皆准的普世原则。
-
-All people are entitled to these rights, no matter where they’re born,
-
-所有人都有权享有这些权利，无论他们出生在哪里，
-
-What they believe, whom they love, or any other characteristic.
-
-无论他们的信仰，他们爱的人，或任何其他性格
-
-Human rights are also co-equal;
-
-人权亦是平等的；
-
-there is no hierarchy that makes some rights more important than others.
-
-没有等级制度使某些权利比其他权利更重要。
-
-Past unbalanced statements that suggest such a hierarchy,
-
-过去不平衡的声明暗示了这样的等级制度，
-
-including those offered by a recently disbanded
-
-包括最进撤销的一个声明
-
-State Department advisory committee,
-
-国务院顾问委员会，
-
-do not represent a guiding document for this administration.
-
-不代表本届政府的指导性文件
-
-At my confirmation hearing,
-
-在我的提名确认听证会上，
-
-I promised the Biden-Harris Administration
-
-我向拜登-哈里斯政府承诺
-
-would repudiate those unbalanced views.
-
-会否定那些不平衡的观点
-
-We do so decisively today.
-
-今天我们非常果断地这样做了
-
-* * *
-
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场-Mike Li
-字幕+视频制作:康州盘古农场-
-审片:康州盘古农场-银龙
-发文编辑：康州盘古农场-轰炸机
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
