@@ -1,39 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 芯片制造困境难解，产能受限又迎来涨价潮
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1061520/)
+## 维州与中共国的秘密协议正面临联邦政府的审查
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1061758/)
 
-**作者：纽约香草山农场  鹰(文言)**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片1-8.png)
-澎湃网4月7日转载中新经纬微信公众号消息，由于全球芯片产能紧张，全球最大硅片制造商于4月1日起提价10%-20%，台湾台积电、联华电子、力积电以及中共的中兴国际和沪硅产业也纷纷发布提价声明。
+撰稿：Shirley
 
-2019年中美贸易战加剧，芯片相关技术和工艺受到更加严格的封锁，以华为和中兴为首的中共军方背景公司遭到“灭顶”式的打击。一方面是高端芯片技术被卡脖子，高精尖芯片制造成为过去时，另一方面中低端芯片的产能和进口被限制。随着制裁力度加大，华为不但在2020年9月15日断供期前包机运回芯片，其后更是被迫舍弃荣耀手机业务，以改换门庭的方式规避相关技术封锁，而中兴国际被列入实体清单后也只能苟延馋喘。
+《时代报》报道，澳大利亚联邦政府将调查维州政府与中共国之间的[第三项协议](https://www.theage.com.au/politics/victoria/victoria-s-secret-agreement-with-china-faces-federal-government-scrutiny-20210406-p57grs.html)，此协议用以推进基础设施项目的公私生意伙伴关系（PPP）。该协议与维州有争议的“一带一路”协议是分开签署的。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1617800488.png) 网络图片
+维州政府被迫交出了州长安德鲁斯（Daniel Andrews）在2017年3月，与中共国国家发展和改革委员会签署的谅解备忘录的细节，该备忘录一直是保密的。在莫里森政府根据其新的外国否决法迫使该州交出文件后，该文件被曝光。
 
-由于高端芯片相关技术和工艺基础的匮乏，中共航天领域对进口严重依赖，导致2020年接连发生重大航天事故。商业领域，虽然华为鼓吹鸿蒙操作系统，各地政府大搞“建芯”工程，但无论鸿蒙的“胎死腹中”以及6个百亿级芯片项目先后“烂尾”都打脸中共自我标榜的“科技强国”，并揭示着“大跃进”式造芯的不切实际。
+如果维州不能充分解释该协议符合澳大利亚的国家利益，联邦政府可以下令[终止该文件](https://www.abc.net.au/news/2020-12-08/what-are-the-governments-new-foreign-relations-laws-about/12947590)。
 
-2020年11月中兴国际披露其14nm工艺良率达到业界水准，21年4月份更有传言称试产7nm工艺。虽然媒体宣传暂缓了国内“缺芯”的热度，但21年4月初受芯片短缺影响，上汽集团部分车型阶段性停产，以及国内最先进光刻机仍处于90nm水平（由上海微电子装备股份有限公司所产），这些事实反映出“芯片卡脖子”困境短期不会有明显好转并将长期存在。
+维州与中共国签署的一带一路协议，在澳洲国家安全机构和外交贸易部都引起了关注。
 
-在美国亦步亦趋的制裁下，华为、中兴等芯片研制进程停滞，中端的汽车芯片产能也受到连带影响，而今由于原材料硅成本上升，芯片紧缺的困境下又遭遇涨价潮，国产造芯更加难有建树。中共靠偷骗抢行径掠夺国外前沿科技和理论成果，并通过低廉劳动力代工代产来赚取利益，这一技术掠夺方式以牺牲科技成长性和基础科学的扎实度为代价，造成国内科技界立项颇多，但可用于提高生产力的成果寥寥，更有学术造假问题频发。鉴于中共以假治国的体制和蒙骗偷的做法，“中国芯”只能成为虚无的梦。
+外交政策专家称，这份早先在2017年签署的协议，比一带一路倡议（BRI）文件还早18个月，这将在联邦政府内部进一步敲响警钟。
 
-（文章仅代表作者本人观点，与GNews无关）
+外交政策专家、澳大利亚战略政策研究所国防、战略和国家安全主任舒布里奇（Michael Shoebridge）表示，过去三年来，公私合作协议承诺项目的影响越来越大，上个月的政治会议之后，国家安全风险进一步加剧。
 
-参考链接：
+舒布里奇先生说，”公私伙伴关系以及一带一路倡议，是以北京为中心的全球经济计划的核心，是利用私人公司和企业资本来达到中共政府的目的。”
 
-[芯片再迎涨价潮：5G手机二季度或上涨，上半年手机缺货或成常态](https://www.thepaper.cn/newsDetail_forward_12081799)
+维州政府周二对《时代报》和《悉尼先驱晨报》关于该协议的一连串问题进行了单线回复。它拒绝提供任何有关文件内容的细节。
 
-[缺芯笼罩汽车产业 上汽集团部分车型阶段性停产](https://news.sina.com.cn/c/2021-04-07/doc-ikmxzfmk5387394.shtml)
+总理莫里森（Scott Morrison）和内政部长达顿（Peter Dutton）等高级部长一直在[批评维州](https://www.theguardian.com/world/2020/may/25/chinas-belt-and-road-initiative-what-is-it-and-why-is-victoria-under-fire-for-its-involvement)在一带一路上与中共国打交道，声称这削弱了外交部和贸易部的作用。
 
-[痛点｜“芯”求大战②中国芯片产业投资难在何处](https://www.thepaper.cn/newsDetail_forward_10021266)
+莫里森强调，澳大利亚永远不会为与中国的关系 “屈服于自己的价值观”，绝不会在[国家利益](https://www.skynews.com.au/details/_6246945418001)上妥协。
 
-[产业链人士：联华电子力积电将再次提高芯片代工报价 不低于10%](https://finance.sina.com.cn/tech/2021-03-31/doc-ikmxzfmi9871849.shtml)
+随着更多的秘密协议被曝光，相信会有越来越多的民众清醒过来，认识到中共一带一路的邪恶本质，和中共“蓝金黄”对当地造成的危害。中共利用一带一路，希望颠覆现有的，以西方价值观为主导的社会秩序和社会基础，注定会破灭。
 
-* * *
+（本文仅代表个人观点）
 
-*责任编辑：美国纽约香草山农场 七哩香*
+[第三项协议](https://www.theage.com.au/politics/victoria/victoria-s-secret-agreement-with-china-faces-federal-government-scrutiny-20210406-p57grs.html)
 
-*编辑/校对：华盛顿DC农场 光之子(沙加)*
+[终止该文件](https://www.abc.net.au/news/2020-12-08/what-are-the-governments-new-foreign-relations-laws-about/12947590)
 
-*发布：纽约香草山农场 shangshang*
+[批评维州](https://www.theguardian.com/world/2020/may/25/chinas-belt-and-road-initiative-what-is-it-and-why-is-victoria-under-fire-for-its-involvement)
 
+[国家利益](https://www.skynews.com.au/details/_6246945418001)
+
+审稿：文筝     编辑：五饼二鱼
+![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2.jpg)
 0

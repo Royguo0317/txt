@@ -1,38 +1,49 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 4/7/2021 财经快讯：IMF上调全球经济增长预期，Coinbase称一季度收入同比翻9倍
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1061497/)
+## 社交媒体的言论审查、垄断、泄露隐私，宛如中共国
+` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1061707/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片1-4.jpg)[图片来源](https://www.cfr.org/)
-**1.IMF上调全球经济增长预期**
+文章作者:台湾宝岛农场 铃铃卷
+![]()![](https://gnews.org/wp-content/uploads/2021/04/brett-jordan-tWX_ho-328k-unsplash-scaled.jpg)
+[网路监控危机- Bing images](https://www.bing.com/images/search?view=detailV2&amp;ccid=vKywQJXg&amp;id=B7B0B6DC5F866BE2235B92D51D54D0DDC13E121F&amp;thid=OIP.vKywQJXgFuNAL78VpiHsiwHaEb&amp;mediaurl=https%3a%2f%2fs.yimg.com%2fuu%2fapi%2fres%2f1.2%2f7OLy8_ic2WRbtywDWwD6Aw--%7eB%2faD00NjA7dz03Njg7c209MTthcHBpZD15dGFjaHlvbg--%2fhttp%3a%2f%2fmedia.zenfs.com%2fzh_hant_tw%2fNews%2fawakeningtw%2f__WhatsApp-7eee98f8198c77b82a02594312d2c9f2&amp;exph=460&amp;expw=768&amp;q=%e7%b6%b2%e8%b7%af%e7%9b%a3%e6%8e%a7%e5%8d%b1%e6%a9%9f&amp;simid=608053320630417622&amp;ck=69D4D7EACDF93785BE53B180FA2E730C&amp;selectedIndex=116&amp;FORM=IRPRST&amp;ajaxhist=0)
 
-[（路透社）- 国际货币基金组织（IMF）周二把今年的全球经济增长率预期上调至6％。IMF将美国2021年增长预期从一月底的5.1％调至6.4％，这是自1980年代初以来最快增速。但是对新兴市场经济体的预测仅上调了0.4％。由于美国前景的改善，IMF将发达经济体的增长预期从4.3％增至5.1％。国际货币基金组织还把对中共国2021年的经济增长预期提高了0.3个百分点，至8.4％。这主要是因为该国出口的外部需求，但是国内消费支出仍然滞后，经济增长主要是由公共投资推动的。国际货币基金组织同时也强调了前景的高度不确定性。](https://www.reuters.com/article/us-imf-worldbank-outlook-idUSKBN2BT1MC)
+## **便利的搜寻引擎与监控隐私的潜在危机**
 
-**2****.Coinbase估计第一季度收入比去年增长9倍**
+网路媒体的日新月异，为人们带来了便捷的生活模式，但人们是否想过，在便捷的生活下，所可能带来的隐形危机?
 
-[为下周在纳斯达克上市做准备，美国最大加密货币交易所Coinbase周二向投资者更新了第一季度财务状况。据初步未经审计的数据表明，该公司第一季度收入从去年同期的1.906亿美元跃升至约18亿美元。净收入从一年前的3190万美元增长至7.3亿美元至8亿美元之间，并有5600万经过验证的用户。](https://www.cnbc.com/2021/04/06/coinbase-reports-estimated-q1-revenue-of-1point8-billion-up-nine-fold.html)
+各位是否有这样的经历?当你用Google Maps搜寻交通工具及路线，并搭上大众运输后，突然收到来自Google Maps的通知，询问你是否在车上?车内是否拥挤?起初不以为意，后来想着，如果手机的定位系统在开启的状态下，而个人的一举一动是否就一直被监控着呢?
 
-[Coinbase上周表示，美国证券交易委员会（SEC）批准了该公司于4月14日直接上市。Coinbase计划注册将近1.15亿股A类普通股，股票代码为COIN。在直接上市中，发行公司放弃出售新股票，而是允许现有利益相关者将其股票出售给新投资者。](https://www.cnbc.com/2021/04/06/coinbase-reports-estimated-q1-revenue-of-1point8-billion-up-nine-fold.html)
+美国Record等多家媒体4月3日（当地时间）报道，Facebook用户资讯遭外泄，全世界超过106个国家，包括日本在内的5.33亿用户的个人信息被公开，对此Facebook对媒体表示:”这是2019年报告的老数据，并说明，该数据外泄的脆弱性原因已在同年8月得到修正。
 
-**3.美国职位空缺跃升至两年高点**
+这已经不是Facebook第一次出现资讯泄露问题。
 
-[华盛顿（路透社）- 劳工部的每月职位空缺和劳动力流动调查（JOLTS报告）显示，截至2月底，美国职位空缺（衡量劳动力需求的指标）增加了26.8万，达到740万。这是自2019年1月以来的最高水平，比中共病毒爆发前的水-平高出5.1％。其中卫生保健和社会援助行业有23.3万个职位空缺。旅游住宿业和餐饮服务业增加了10.4万个工作岗位。艺术，娱乐和休闲职位空缺增加了5.6万个。但是州和地方政府，教育，以及教育服务和信息的空缺职位减少了。随着更多服务业的重新开放，对劳动力的需求可能会进一步增加。](https://www.reuters.com/article/us-usa-economy-idUSKBN2BT1TY)
+在2016年，Facebook将多达8700万人的个人信息泄露给数据分析咨询公司Cambridge Analytica，这引发了一个涉及美国政府的重大问题。
 
-**4.美元全球外储占比连续三季度下滑**
+## **只有极权国家才会言论审查**
 
-[路透4月6日 – 数据显示，2020年第四季度，美元在全球外汇储备中占比连续第三季度下滑至59%，是自1995年以来最低水平。2020年第一季，第二季和第三季占比分别是61.8%，61.2%和60.5%。如果2020年最后三季度美元外汇储备连续下降的状况持续到明年底，美元在外汇储备中的占比将降至50%的关口，王者地位令人堪忧。](https://cn.reuters.com/article/idCNL4S2LZ23L)
+Facebook在近期遭诉讼，其涉及了言论审查、垄断、隐私安全等问题。
 
-**5.瑞士信贷****Archegos****相关亏损估计达****47****亿美****元****，高层改组**** **
+这让人想起在不久前，网路上有FB高层对话曝光：内容是脸书全球计画负责人汤玛斯私下透露:脸书创办人祖克柏才36岁，却拥有掌控全世界20亿人口的权力。他认为脸书公司已经成长为一头难以掌控的巨兽，美国联邦政府应该要出手介入，将脸书以及Google拆解成数家公司。汤玛斯并表示Facebook已经不只是公司，而是国家，而祖克柏宛如是统治了20亿人的国王。就连Facebook内部人都对扎克柏格的做法感到担忧。言论审查、垄断、泄露隐私之类的事件，感觉只有极权国家才会对他们的人民进行监控，这样的行为，不禁让人联想，脸书是不是中共国的附随组织?这监控系统现在还持续发生中吗?
 
-[苏黎世（路透社）4月6日 – 瑞士信贷集团(Credit Suiss)周二宣布，与Archegos 资本管理的往来损失大约为44亿瑞郎(47亿美元)，甩卖超过20亿美元的股票以降低风险，并将中止一项股票回购计划，同时缩减拟议股息。该银行还表示，首席风险官劳拉•华纳（Lara Warner）及投行业务主管布莱恩•陈（Brian Chin）将辞任。克里斯蒂安·梅森纳（Christian Meissner）将自5月1日起接任投行部门主管，约阿希姆·欧克林（Joachim Oechslin）将暂时接任首席风险官，托马斯•戈特斯坦（Thomas Grotzer）将暂时接任全球合规主管。就在Archegos爆仓几周前，瑞信运营提供融资的另一客户 – 英国金融公司格林希尔（Greensill）刚刚倒闭。摩根大通分析师预计这两家公司的爆雷可能给瑞士信贷带来高达75亿美元的损失。](https://cn.reuters.com/article/credit-suisse-gparchegos-loss-0406-idCNKBS2BT0P0)
+## **世界权力者的善与恶，造就世界的和平与灾难**
 
-**6****.****中共国化肥价格持续上涨**
+文贵先生在4月3日直播中也曾提到扎克柏格，他拥有FB的20亿用户，等同于他拥有全世界第五大国家权利的人，如他成功将版图扩张至数字货币市场的话，他的权力将更强大到世界前三大，甚至于第一，想像这一天到来时，人民的网路言论将持续遭审查、垄断、及个人隐私安全暴露，那扎克柏格是不是就成为极权世界的国王了。本文仅代表个人立场。
 
-[随着春耕备耕在中共国全面展开，化肥近期价格继续增长。与今年1月相比，四种主要化肥品种的平均价格上涨了10％以上，也高于2020年和2019年同期。尿素、磷酸二铵的价格同比已上涨13%和28%，氯化钾和复合肥的价格3月份还在继续增长。安徽有化肥企业告诉记者，目前企业的四条复合肥生产线、两条水溶肥生产线都满负荷运转。山东一家化肥企业生产负责人告诉记者，每天出货量5000吨，比去年同期增加20%。记者了解到，价格上涨一方面是因为国内春耕用肥增加，另一方面是国际市场的需求大增。](https://www.yicai.com/news/101011564.html)
+[また？ 5亿人を超えるFacebookユーザーの情报がオンライン上に流出- iPhone Mania (iphone-mania.jp)](https://iphone-mania.jp/news-358197/)
 
-By 【金融组 – Kate】
-素材搜集: Wendy、Kate
-校对: Tracy
+[5.33亿人のFacebookユーザーの电话番号を含む个人情报、犯罪フォーラムで公开（ITmedia NEWS） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/1dc6b229aa42148c2ce37ddb068187b9575e0354)
 
-0
+[FB高层对话曝光：祖克柏统治20亿人宛如国王｜@新闻精选【新唐人亚太电视】三节新闻Live直播｜20210318 – YouTube](https://www.youtube.com/watch?v=pwKt4ccgLqI)
+
+[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+
+[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+
+[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+
+文章审核：zhong
+
+文章发布：Little Liu
+
++1
