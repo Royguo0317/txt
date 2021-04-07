@@ -1,55 +1,71 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 《华尔街日报》鼓吹数字人民币将取代美元（一）
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1059263/)
+## 阳光使中共病毒失活的速度是先前预测的8倍
+` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1059418/)
 
-俄罗斯莫斯科喀秋莎农场 DongDong
+**作者：**Virgilio Marin 2021-04-05
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/R.jpg)thetechplatform.com
-一千年前，当货币还是硬币时，华夏民族就发明了纸币。现在，中共正在以数字方式铸造现金，重塑了可能会动摇美国权力根基的货币形象。
+**翻译：**加拿大温哥华圆成农场 卢卡斯
+![]()![](https://gnews.org/wp-content/uploads/2021/04/000.png)图片来源：Virgilio Marin原文
+《自然新闻》研究人员发现，阳光使中共病毒失活的速度是预测的八倍多。加州大学圣巴巴拉分校的机械工程学教授保罗·卢扎托-费吉兹和他的同事回顾了最近的研究，这些研究探讨了紫外线（UV）光的不同波段（即UVA、UVB和UVC辐射）对中共病毒的影响。
 
-看起来，金钱似乎已经可以是虚拟化的了。信用卡和支付应用，如美国的Apple Pay和中共国的微信支付，使得商贸交易不再需要纸币或硬币为中间媒介。其实上述支付手段本质上依旧是借助电子支付方式在交易者之间移动纸质货币罢了，中共正谋划的是彻底将法定货币数字化。
+UVA是三个波段中最弱的，而UVC是最有活力的，并已被证明能灭活病毒，例如中共病毒。几乎所有到达地表的紫外线辐射都是 UVA，因为所有的 UVC 和大多数UVB紫外线都被地球的臭氧层所吸收。
 
-以比特币为代表的加密货币体系，已预示数字化货币的巨大潜力。尽管数字加密货币尚游离于主流全球金融体系之外，不像政府发行的现金那样是法定货币。
+阳光灭活病毒的能力通常归因于UVB，它可以杀死微生物。例如，研究人员分析的一项研究表明，中共病毒由于UVB损害病毒的RNA而失去其活性。
 
-中共国版的数字货币由其央行发行和控制。它的问世预计将为中共提供大量新的用以监控其经济运行和人民生活的衍生工具。在数字货币的设计上，数字人民币将去除比特币的一个主要亮点，即匿名交易和转账。
+这项研究表明，紫外线UVB灯照可以在大约20分钟内在模拟唾液中使病毒灭活。但在上一个月晚些时候发表的一项研究表明，阳光本身就能在同样的时间内使病毒灭活。这导致研究人员怀疑UVB引起的RNA灭活结论”是片面的”。
 
-北京还将数字人民币定位为国际贸易的用途。数字人民币必会与全球金融体系脱钩，即绕过美元支付结算系统，而自二战以来美元就一直统治着全球金融体系。中共正在积极参与货币在内的多种形式的数字化，希望从数字化建设中获得更多的信息集中控制权，以便在未来科技上抢得先机。
+阳光也许能预防感染
 
-“为了保护我们的货币主权和法定货币地位，我们必须提前规划。” 在中共人民银行主持该项目的穆长春说。
+第二个实验室研究表明，唾液中的病毒在暴露于阳光中10到20分钟内便失去活性，这就像暴露于UVB中一样。保罗·卢扎托-费吉兹和他的团队指出，这个时间范围的上限比第一个研究的理论模型所预测的要快八倍以上。同时，在生长介质中培养的病毒的灭活速度比预测的要快三倍以上。
 
-数字化货币可能会像亚马逊公司冲击零售业和Uber科技公司扰乱出租车行业一样，从根本上改变金融行业的生态圈。
+另外，研究人员暗示，除了UVB之外，可能还有另一种紫外线。例如，UVA可能扮演比最初想象的更积极的杀灭病毒的角色。
 
-华府深感不安，因为专制的中共及美国的竞争对手们已经率先推出了国家数字货币，在加密货币专家看来，这事儿时不待我、十分紧迫。
+保罗·卢扎托-费吉兹和他的团队指出，如果中共病毒对较弱的光波长很敏感，那么阳光也许比先前所认为的更能减轻病毒在更广阔的纬度范围和白天时间的户外传播。远离赤道的地区往往受到少量的太阳辐射，而在黄昏和黎明时分的阳光照射会减少。
 
-最近几周来，当被问及中共国等数字化国家货币对美元可能会产生什么影响时，时任财政部长珍妮特·耶伦（Janet Yellen）和美联储主席杰罗姆·鲍威尔（Jerome Powell）均表示，正在认真调研此问题，即有朝一日美元数字化的可能性。
+UVA辐射还可以提供更方便、更安全的紫外线消毒方法。虽然 UVC 辐射可以人工制造，但它是最具破坏性的紫外线形式，会引起了安全问题，这限制了其实际应用。
 
-例如，之前欧元曾试图挑战美元的霸主地位，但欧元暴露出越来越多缺点时，美元就会显得更加重要。在国际外汇交易中的使用率排名中，美元远远超过所有其他货币。国际清算银行的最新排名中，美元的使用率为88%。人民币的使用比例仅为4%。
+UVC非常适合医院，俄勒冈州立大学环境和分子毒理学教授、本文合著者朱莉·麦克默里说。但在其他环境中（例如厨房或地铁），UVC 会与颗粒物质相互作用，产生有害的臭氧。
 
-分析师和经济学家说，在银行间电汇业务中数字人民币不会构成对美元的挑战。但在新的业务领域，数字人民币可能会在国际金融体系的边缘获得一席之地。例如，数字人民币为贫穷国家的人们提供国际间转账的另一种选择。随着美国越来越多的对中共国公司或个人实施制裁，即便是在有限的跨国转账中使用数字人民币，也可弱化美国“长臂管辖”制裁威力。
+加州大学圣巴巴拉分校机械工程学教授、本文的另一位合著者朱阳英指出，现在广泛使用的LED灯泡比阳光强很多倍。这些灯泡可用于加速病毒灭活，而 UVA 射线则可用于增强空气过滤系统的功能，因为其对人体的危险度很低。
 
-现任大西洋理事会智库的前国际货币基金组织工作人员乔希·利普斯基（Josh Lipsky）说： “任何威胁到美元的事情都涉及到国家安全问题。”
+总的来说，研究人员建议进行额外的实验，以完全确定不同波长的紫外线对存在于不同介质中的病毒的影响。
 
-虽然数字人民币诞生于互联网，但它即可在手机上使用，也可通过银行卡使用。更重要的是，用数字人民币购物不必要求必须联网。在手机屏幕上，数字人民币也印有毛泽东的头像，看起来和纸币的样子没什么区别。
+**评：**美国国土安全部的科技顾问威廉布莱恩说，自然阳光含有的紫外线很容易摧毁病毒； 迄今为止最引人注目的观察就是太阳光似乎对杀死病毒具有强大影响，无论是在表面还是在空气中；仅仅在阳光下晒太阳有助于降低中共病毒的感染和传播的风险，因为病毒根本无法与自然阳光共存;然而中共的走狗世界卫生组织，就像比尔盖茨那样只支持药物和疫苗对中共病毒起作用疾病，警告UVC可以烧伤皮肤，造成眼睛损伤[1]。另外，维生素 D 可以预防 COVID，尤其是在黑人患者中[2][3]。维生素D缺乏是中共病毒感染者住院和死亡的主要原因，而且医院临床表明维生素D帮助中共病毒感染者恢复健康作用巨大，但是维生素D的作用往往被忽视，因为疫苗制造公司需要从中获利，因此任何其他对身体更有帮助的东西都会被压制和审查，以迫使他们服从一个带有自己风险的虚假救世主—疫苗[4]。如果我们每周2~3次每次30~60分钟沐浴在阳光下，阳光照射在我们的皮肤上提供给我们维生素D[5]。因此晒太阳不但能使中共病毒失去活性，而且让我们体内产生帮助我们对抗中国病毒的维生素D，是一举两得的事情。
 
-在最近几个月的内测中，中共国有超过10万人下载了央行的数字人民币APP程序，通过手机人们就能在商店使用政府发放的小额数字现金购物，甚至包括星巴克和麦当劳的中共国分店也不例外。
+常识告诉我们，足够自然光照射对我们的健康非常重要！特别是在当前中共病毒全球大流行时刻，接种中共病毒疫苗不但不能保护我们避免中共病毒的感染，反而等于一个植入我们人体的定时生物炸弹。中共病毒疫苗是全球主义者用来全球人口灭绝计划的一个手段。为了保护自己，我们必须拒绝接种任何中共病毒疫苗，同时需要通过其他途径譬如说服用硫酸羟氯喹，锻炼身体，晒太阳等办法来保护自己免受中共病毒的感染。然而我们要想最好地保护自己免遭中共病毒的致命伤害，还得回到解决中共病毒的终极解决办法，那就是消灭邪恶的CCP，拯救整个人类。
 
-“挺好用的。” 北京的一位年轻女性陶薇（Tao Wei）在内测时使用数字人民币后说。把 iPhone对准收款机，瞬间就为2岁的女儿购买了生日素描画像。中共还让党员用数字人民币支付每月的党费。
+#### **原文：**Virgilio Marin, “GET OUTSIDE: Sunlight inactivates Wuhan coronavirus 8 times faster than previously predicted, researchers found”.《 Natural News》, April 5, 2021.** **[https://www.naturalnews.com/2021-04-05-sunlight-inactivates-coronavirus-8-times-faster.html](https://www.naturalnews.com/2021-04-05-sunlight-inactivates-coronavirus-8-times-faster.html)
 
-中共国表示，未来一段时间数字人民币会与纸币及硬币一起流通。银行家和其他分析人士表示，北京的终极目标是实现所有货币的数字化。当前，北京尚未彻底解决所有货币数字化的问题。
+####  
 
-从宏观经济调控来说，数字化货币像是当前政府梦寐以求的强化统治工具。它可实时跟踪消费情况，提高赈灾速度，或标记犯罪活动。一旦拥有数字货币，北京就将获得空前的权力，习近平主席的独裁统治也会得到巩固和强化。
+#### [1] [Ethan Huff](https://www.naturalnews.com/author/ethanh), “Homeland security scientist confirms that natural sunlight kills coronavirus”. 《 Natural News》, May 1, 2020. [https://www.naturalnews.com/2020-05-01-homeland-security-scientist-natural-sunlight-kills-coronavirus.html](https://www.naturalnews.com/2020-05-01-homeland-security-scientist-natural-sunlight-kills-coronavirus.html)
 
-在中共国已经存在这种“强化控制”，因为数字化支付渗入百姓的日常生活。穆长春表示，央行会限制数字人民币追踪个人隐私信息，他称之为 “可控的匿名”。
+####  
 
-数字货币本身是可编程的，即意味着能写入控制数字货币使用的代码。例如，北京已经测试了在数字货币中嵌入超期作废日，目的是鼓励用户在数字货币作废之前快速花掉这些钱，以备需快速提升消费、振兴国内经济时派上用场。
+#### [2] [Jeremiah Rodriguez](https://www.ctvnews.ca/more/ctvnews-ca-team/jeremiah-rodriguez-1.4199667), “High vitamin D levels may protect against COVID-19, especially for Black people: study”. 《CTVNews》，March 21, 2021.** **[https://www.ctvnews.ca/health/coronavirus/high-vitamin-d-levels-may-protect-against-covid-19-especially-for-black-people-study-1.5356165](https://www.ctvnews.ca/health/coronavirus/high-vitamin-d-levels-may-protect-against-covid-19-especially-for-black-people-study-1.5356165)
 
-数字人民币也是可溯源追踪的，为中共国严密的国家监控添加了另一个强力工具。中共已部署了数以亿计的面部识别摄像头来监控流动的人口，例如利用监控摄像对乱穿马路等行为进行罚款。数字人民币将使执法部门有可能在发现违规行为那一刻，就立即发出违法通知并自动缴纳罚金。
+####  
 
-参考链接：
+#### [3] Mary Van Beusekom, “Vitamin D may prevent COVID, especially in Black patients”. [《CIDRAP News](%20《CIDRAP%20News)》, March 22, 2021. [https://www.cidrap.umn.edu/news-perspective/2021/03/vitamin-d-may-prevent-covid-especially-black-patients](https://www.cidrap.umn.edu/news-perspective/2021/03/vitamin-d-may-prevent-covid-especially-black-patients)
 
-[1] [China Creates its Own Digital Currency, a First for Major Economy – THE WALL STREET JOURNAL – 2021/04/05](https://www.wsj.com/articles/china-creates-its-own-digital-currency-a-first-for-major-economy-11617634118)
+####  
 
-+1
+#### [4] [Lance D Johnson](https://www.naturalnews.com/author/ljdevon), “Vitamin D deficiency is the primary cause of covid hospitalizations and deaths”.** **March 31, 2021.** **[https://www.naturalnews.com/2021-03-31-vitamin-d-deficiency-cause-covid-hospitalizations-deaths.html](https://www.naturalnews.com/2021-03-31-vitamin-d-deficiency-cause-covid-hospitalizations-deaths.html)
+
+####  
+
+#### [5] Mike Adams, “Every person needs sunlight exposure to create vitamin D, obesity impairs vitamin D absorption”.  《 Natural News》, January 01, 2005.** **[https://www.naturalnews.com/003838.html](https://www.naturalnews.com/003838.html)
+
+免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
+
+编辑/发布：比卡丘
+
+20210406
+![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
+#  
+
+
+
+0

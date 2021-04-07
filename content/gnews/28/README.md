@@ -1,39 +1,45 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【三票专栏】旧文重发：邮件显示科学界帮助中共掩盖COVID-19来源真相
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1059556/)
+## 麦康奈尔称对福奇“完全信任”
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1059652/)
 
-三票先生Mr.3rights
-![]()![](https://gnews.org/wp-content/uploads/2021/04/三票-e1617751866704.png)
-重发说明：本人去年11月20日在GNEWS上发此文，根据爆料革命获得的邮件资料，揭露Peter Daszak 2020年2月6日就串通26名美国知名公共卫生专家联名签署声明，说中共病毒非自然起源是阴谋论，误导美国科学界进而误导美国政府对中共病毒起源的判断。这就是闫丽梦博士说的**超限科学误导**。4个多月后的今天美国各界逐步知道了真相。事实证明只要我们坚持不懈爆料，真相终会大白于天下。文中的英文为邮件中英文的原话，以便读者准确理解。原文如下：
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-On November 18, emails obtained by U.S. Right to Know show that a [statement in *The Lancet*](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2930418-9/fulltext) authored by 27 prominent public health scientists condemning “conspiracy theories suggesting that COVID-19 does not have a natural origin” was organized by  EcoHealth Alliance, a non-profit group. The scientists’ letter appeared in*The Lancet* on February 18, just one week after the World Health Organization announced that the disease caused by the novel coronavirus would be named COVID-19.
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/M.jpg)businessinsider.nl
+前天笔者发文，“福奇（Fauci）最近日子不好过”【1】，今天（4月6日）早晨《路德社》也透露，“NIH福奇接受调查”【2】。中共病毒真相被揭露后，福奇被调查是顺理成章的事，当然与魔共舞者不会轻易就范，会千方百计地抵赖，“同事加战友”（或者受同一个后台指使）也会鼎力相助，关键时刻中共女婿麦康奈尔（Mitch McConnell）跳出来，试图替“难兄难弟”福奇解围，已经觉醒的美国人看清了这帮与邪恶中共打得火热的人的嘴脸，第一时间揭露出来，《门道专家》发文报道了此事。
 
-这份声明是由Dr**. Peter Daszak**, President of EcoHealth Alliance,于2月6日发起的，邀请了其余26位知名公共卫生科学家联名签署，目的是针对the recent spreading of rumors, misinformation and conspiracy theories on the virus origins，签署a statement in support of the scientists, public health and medical professionals of China，这些中国专家已经和他们合作多年。此前的1月19日，**闫丽梦**博士，香港大学公共卫生学院传染病研究中心的病毒和免疫学研究员，匿名通过**路德社**向全世界公开揭露了COVID-19是由中共控制的武汉病毒研究所等机构制造并故意投放的。这就是他们所说的 rumors, misinformation and conspiracy theories。公开的邮件显示，他们并没有从科学角度探讨病毒的来源，而是由Dr. **Peter Daszak**直接起草了一个draft邀请其他人签名，但在声明中他们强调COVID-19是来源于自然而不是人造，这和CCP的观点是完全一致的。声明发表后不久，一个不愿意透露名字的机构向EcoHealth Alliance捐赠了50万美元。
+全文如下：【3】
 
-Dr. **Peter Daszak**在邮件中说，这份声明将coincide with a letter from the Presidents of the US National Academies of Science, Engineering, and Medicine, which will likely be released a few days later。共同签名的Dr. **Rita Colwell** is former Director of US National Science Foundation。Dr. Peter Daszak is now a member of that gives answers to scientific questions at short notice from the White House Coronavirus Task Force。他们和**福奇**博士，美国国家过敏和传染病研究所所长，一起对川普总统制定和实施anti-COVID-19的政策有巨大影响。
+天哪，麦康奈尔为福奇辩护：“他是我见过的最可靠的证人。”
 
-闫丽梦博士在爆料革命的帮助下于今年4月底逃离香港来到美国，今年7月以来公开发表了两篇科学论文，揭露中共制造和投放COVID-19的真相。爆料革命和闫丽梦博士将继续揭露科学界帮助中共掩盖COVID-19来源，以及since this LANCET letter published, scientific world and top journals turned out to blame Trump government in anti-COVID-19 , and got involved into US election 的真相。敬请留意。
+共和党参议院少数党领袖麦康奈尔提供了另一个例子，说明他是多么的不识时务，麦康奈尔是第一个声称川普总统在2020年选举中失败的人，尽管有大量证据表明选举被偷窃，现在他支持（处于）矛盾、危险和疯狂（漩涡中）的福奇。
 
-原文链接：[【热点播报】邮件显示科学界帮助中共掩盖COVID-19来源真相 – GNEWS](https://gnews.org/zh-hans/576066/)
+针对一些共和党同事对安东尼·福奇提出的批评，参议员米奇·麦康奈尔周一申明，他仍然对福奇有信心。
 
-（本文仅代表作者个人观点）
+在周一的一次鼓励接种疫苗的活动中，参议院少数党领袖再次提到了民意调查显示共和党男性犹豫不决的情况，并说他们都应该接种疫苗，因为疫苗安全有效。
 
-阅读本人文章请搜索“三票先生”
+麦康奈尔首先被问及拜登政府的基础设施法案，然后有记者问他是否仍然对福奇“完全信任”。
 
-本人其他文章导读：
+麦康奈尔在ABC上分享了他的观点：
 
-[从历史的高度看《新中国联邦宣言》 – GNEWS](https://gnews.org/zh-hans/224002/)
+（原文链接了ABC的推文）
 
-[中共为什么那么有钱搞全球渗透与扩张 – GNEWS](https://gnews.org/zh-hans/169646/)
+少数党领袖麦康奈尔表达了对福奇的信心：“我认为他是我们过去几年所依赖的主要人物，我想这已经引起了一些争议，但是，我们必须听取某人的意见……他是我见过的最可靠的证人。”
 
-[十权一统：看中共的极权统治 – GNEWS](https://gnews.org/zh-hans/193423/)
+对大多数人来说，福奇是个反社会者，福奇毁了经济，毁了生活，他的误诊导致数以万计的老年人死于病毒。
 
-[正道主义论 – GNEWS](https://gnews.org/zh-hans/231288/)
+米奇·麦康奈尔每天都表现出他缺乏良好的判断力，给福奇贴上“可靠”的标签简直是疯了。（原文完）
 
-[【三票专栏】 《商君书》选读（3）超限战的鼻祖 – GNEWS](https://gnews.org/zh-hans/892639/)
+《门道专家》不了解中国有句谚语，笔者这里稍作“演绎”，那就是“不是一家人，不护自家人”，他们本身就是“一家人”，都与邪共为一家！
 
-发布：GLC
+参考链接：
 
-+1
+【1】[https://gnews.org/zh-hans/1049979/](https://gnews.org/zh-hans/1049979/)
+
+【2】[https://gnews.org/zh-hans/1058842/](https://gnews.org/zh-hans/1058842/)
+
+【3】https://www.thegatewaypundit.com/2021/04/augh-mitch-mcconnell-defends-fauci-reliable-witness-seen/
+
+0

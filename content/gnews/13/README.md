@@ -1,77 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 别忘了中共和北朝鲜的同一个目标：社会主义共产世界
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1059896/)
+## 赶紧打疫苗吧-自鸣得意的专制主义与微笑
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1059955/)
 
 内容：
 
-朱利安尼先生（Giuliani）：
+It is clear to them that the vaccine is the ticket back to pre-pandemic life.
 
-Then Kim, Jong-un, kind of，put a finishing touch on it.
+他们很清楚，疫苗是回到大流行前生活的门票
 
-然后，金正恩画了最后一笔
+And the window to do that is real narrowly
 
-When he and Xi, Jing-Ping,
+而做到这一点的时间窗口真正的非常狭窄
 
-他和习近平
+You were mentioning help all these states are re opening
 
-just the other day, put out a joint statement
+你提到帮助所有这些州重新开放
 
-就在前几天，发表了一份联合声明。
+They are opening 100% and we have a very narrow window to
 
-The joint statement is a kind of Duvet an opera
+他们将100%开放，我们只有一个非常狭窄的时间窗口
 
-联合声明就像唱双簧的
+tie re-opening policy to vaccination status
 
-They are on the same side that they reform the unity as communist countries
+来将重新开放政策与疫苗接种状况联系起来
 
-他们站在共产主义国家改革团结的立场上
+Because otherwise everything is re opened what is carry going to being
 
-Working together to cop with hostile forces United State
+因为不然的话，一切都会被重新翻转
 
-与敌对势力联手迫使美国
+How we are going to satisfy the people actually to get the vaccine
 
-into advanced costs of socialism
+我们如何才能真正满足人们接种疫苗的要求呢？
 
-进入“先进的昂贵的”社会主义
+So that’s why the CDC and bottom administration need to come out a lot of
 
-Please don’t forget that they have a goal
+因此，这就是为什么疾控中心和基层政府需要制定
 
-请不要忘记，他们有一个目标
+border and say
 
-that is to make the world socialist and communist
+很多条条框框，比如
 
-那就是使世界成为社会主义和共产主义
+If you are vaccinated you can do all the things, here is all the freedom that you have
 
-No god, the state owns your property and owns you
+如果你接种了疫苗，你就可以做所有的事情，这就是你所拥有的所有自由
 
-没有上帝，国家拥有你的财产，拥有你
+Because otherwise, people are going to out to enjoy freedoms anyway
 
-That is for communism and socialism are in real life
-
-那是因为共产主义和社会主义就在在现实生活中的体现
-
-A lot of our children don’t know that because we don’t teach them any more
-
-我们很多孩子都不知道这一点，因为我们不再教他们了
+因为不然的话，人们无论如何都会走出去享受自由
 
 * * *
 
 英听校:康州盘古农场-WZ
-
 翻译: 康州盘古农场-WZ
-
 翻译终校: 康州盘古农场-Mike Li
-
 字幕+视频制作:康州盘古农场-天涯行
-
-审片：康州盘古农场-银龙
-
+审片:康州盘古农场-银龙
 发文编辑：康州盘古农场-轰炸机
 [!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盤古農場歡迎您加入:(或點擊上方圖片）
+康州盘古农场欢迎您加入:(或点击上方图片）
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-0
++1
