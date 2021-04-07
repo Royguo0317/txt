@@ -1,13 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】彼得⋅纳瓦罗：巴西变异病毒的传染性和致死性更强
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1061349/)
+## 2021年4月7日 文贵先生盖特 2
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1061587/)
 
-3/30/2021 班农战斗室——彼得⋅纳瓦罗：初步科学证据表明，巴西变异病毒的传染性和致死性更强，疫苗对此可能也不太有效。
+编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
 
-By： 【秘密翻译组 G-Translators】
+国务卿布林肯：这是一个关键时刻，美国将直面挑战！ Secretary of State Blinken: This is a pivotal moment, and the United States will rise to the challenge!
 
 
+
+[【2021年4月7日】文贵先生盖特原文](https://gtv.org/getter/606d9d5bdbc8001854a63299)
+
+**喜联盟Gnews编辑部**
 
 0

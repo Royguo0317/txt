@@ -1,13 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】对中共国前线发出5级警报：病毒问题和中伊协议
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1061445/)
+## 30/3/2021 穆罕默德·马兰迪：这是伊朗和中共国向美国发出的信号
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1061632/)
 
-3/28/2021对中共国前线发出5级警报：病毒问题和中伊协议。
+摘要：穆罕默德·马兰迪：这是伊朗和中共国向美国发出的信号，表明他们之间的关系更为紧密。
 
-By： 【秘密翻译组 G-Translators】
+**By： 【秘密翻译组 G-Translators】**
 
-
-
-0
++1

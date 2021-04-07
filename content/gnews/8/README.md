@@ -1,27 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德时评简讯（视频版）: 美国发布香港自治评估报告(2021.3.31晚间路德社简讯之路博艾冠谈）
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1060612/)
+## 2021年4月7日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1062340/)
 
-《路德社》出品
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
 
-以下视频是详细内容：
-
-内容摘要：
-
-一、美国发布香港自治评估报告
-
-二、中共决绝接受再次调查武毒所
-
-三、博士团初步解读闫博士第三份报告
+中共在打造自己的数字货币，为它监控公民和经济提供新的途径，并削弱美国的制裁 CCP is creating its own digital currency, which will give it new ways to monitor citizens and the economy, and offset US sanctions
 
 
 
-制作：路德社简讯视频组
+[【2021年4月7日】文贵先生盖特原文](https://gtv.org/getter/606dadbddbc8001854a63704)
 
-审核校对：玫瑰新闻组
+**喜联盟Gnews编辑部**
 
-上传排版：玫瑰新闻组
-
-0
++1

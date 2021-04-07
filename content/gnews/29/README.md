@@ -1,39 +1,104 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 芯片制造困境难解，产能受限又迎来涨价潮
-` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1061520/)
+## 美国政要等每日重要信息0407.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1061322/)
 
-**作者：纽约香草山农场  鹰(文言)**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片1-8.png)
-澎湃网4月7日转载中新经纬微信公众号消息，由于全球芯片产能紧张，全球最大硅片制造商于4月1日起提价10%-20%，台湾台积电、联华电子、力积电以及中共的中兴国际和沪硅产业也纷纷发布提价声明。
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-2019年中美贸易战加剧，芯片相关技术和工艺受到更加严格的封锁，以华为和中兴为首的中共军方背景公司遭到“灭顶”式的打击。一方面是高端芯片技术被卡脖子，高精尖芯片制造成为过去时，另一方面中低端芯片的产能和进口被限制。随着制裁力度加大，华为不但在2020年9月15日断供期前包机运回芯片，其后更是被迫舍弃荣耀手机业务，以改换门庭的方式规避相关技术封锁，而中兴国际被列入实体清单后也只能苟延馋喘。
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
 
-由于高端芯片相关技术和工艺基础的匮乏，中共航天领域对进口严重依赖，导致2020年接连发生重大航天事故。商业领域，虽然华为鼓吹鸿蒙操作系统，各地政府大搞“建芯”工程，但无论鸿蒙的“胎死腹中”以及6个百亿级芯片项目先后“烂尾”都打脸中共自我标榜的“科技强国”，并揭示着“大跃进”式造芯的不切实际。
 
-2020年11月中兴国际披露其14nm工艺良率达到业界水准，21年4月份更有传言称试产7nm工艺。虽然媒体宣传暂缓了国内“缺芯”的热度，但21年4月初受芯片短缺影响，上汽集团部分车型阶段性停产，以及国内最先进光刻机仍处于90nm水平（由上海微电子装备股份有限公司所产），这些事实反映出“芯片卡脖子”困境短期不会有明显好转并将长期存在。
+4月7日劳伦斯-塞林博士继续推进中共病毒溯源的重磅线索，他的推文称：
 
-在美国亦步亦趋的制裁下，华为、中兴等芯片研制进程停滞，中端的汽车芯片产能也受到连带影响，而今由于原材料硅成本上升，芯片紧缺的困境下又遭遇涨价潮，国产造芯更加难有建树。中共靠偷骗抢行径掠夺国外前沿科技和理论成果，并通过低廉劳动力代工代产来赚取利益，这一技术掠夺方式以牺牲科技成长性和基础科学的扎实度为代价，造成国内科技界立项颇多，但可用于提高生产力的成果寥寥，更有学术造假问题频发。鉴于中共以假治国的体制和蒙骗偷的做法，“中国芯”只能成为虚无的梦。
+“中共的全球军民冠状病毒研究网络利用美国的专业知识和资金来推动中共寻求军事和经济主导地位的一个小例子。#中共病毒 #超限生物战 #超限生物武器 #中共病毒大流行来源 #中共病毒2019大流行 #中共病毒大流行”
 
-（文章仅代表作者本人观点，与GNews无关）
 
-参考链接：
 
-[芯片再迎涨价潮：5G手机二季度或上涨，上半年手机缺货或成常态](https://www.thepaper.cn/newsDetail_forward_12081799)
+> One small example of the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s global military-civilian [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) research network exploiting U.S. expertise and funding to advance the CCP's quest for military and economic dominance.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/XwfNATNXtn](https://t.co/XwfNATNXtn)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 7, 2021](https://twitter.com/LawrenceSellin/status/1379754150611853313?ref_src=twsrc%5Etfw)
 
-[缺芯笼罩汽车产业 上汽集团部分车型阶段性停产](https://news.sina.com.cn/c/2021-04-07/doc-ikmxzfmk5387394.shtml)
 
-[痛点｜“芯”求大战②中国芯片产业投资难在何处](https://www.thepaper.cn/newsDetail_forward_10021266)
 
-[产业链人士：联华电子力积电将再次提高芯片代工报价 不低于10%](https://finance.sina.com.cn/tech/2021-03-31/doc-ikmxzfmi9871849.shtml)
 
-* * *
 
-*责任编辑：美国纽约香草山农场 七哩香*
+塞林博士推文中的插图如下。列举了中共病毒改造和增强功能的研究过程和关键环节负责人。包括：
 
-*编辑/校对：华盛顿DC农场 光之子(沙加)*
+- 从SARS病人分离病毒并进行病原体基因变异广泛分析和来自47 SARS-CoV的流行病学，涉及邬开朗, 郭德银。
+- 人类血管紧张素转换酶2上的病毒结合热点对两种不同的冠状病毒的结合至关重要。涉及邬开朗，李放。
+- 冠状病毒：流行病学，基因复制及其与宿主的相互作用。设计石政丽，郭德银。
+- 病原体冠状病毒的来源和进化。涉及李放，石政丽。
 
-*发布：纽约香草山农场 shangshang*
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/04/sellin-twitter-0407.jpg)
+
+
+
+
+## CNBC抵制中共冬奥会口风有变
+
+美国左媒CNBC昨日发布新闻“美国国务院称，美国考虑与盟友联合抵制2022年北京冬奥会。”6小时后，CNBC立即发布了另一则新闻进行更新，并发推称：
+
+更新：国务院从抵制北京奥运会的想法中退缩。
+
+“我们对2022年奥运会的立场没有改变。我们没有讨论过，也不会与盟友和合作伙伴讨论任何联合抵制，”国务院一位高级官员说。
+
+
+
+> UPDATE: State Dept. backs away from the idea of a Beijing Olympics boycott. 
+> 
+> “Our position on the 2022 Olympics has not changed. We have not discussed and are not discussing any joint boycott with allies and partners,” a senior State Dept. official said. [https://t.co/YSGDMHtQkP](https://t.co/YSGDMHtQkP)
+> — CNBC Now (@CNBCnow) [April 7, 2021](https://twitter.com/CNBCnow/status/1379600036376555523?ref_src=twsrc%5Etfw)
+
+
+[https://www.cnbc.com/2021/04/06/us-considering-joining-boycott-of-2022-beijing-olympics.html](https://www.cnbc.com/2021/04/06/us-considering-joining-boycott-of-2022-beijing-olympics.html)
+据CNBC4月6日更新的新闻：
+
+国务院发言人内德-普莱斯最初在周二早些时候的新闻发布会上表示，抵制奥运会是解决中国侵犯人权问题的可能性之一。
+
+国务院周二晚间否认正在考虑与盟友共同抵制2022年北京冬奥会。国务院一位高级官员在给CNBC的电子邮件声明中写道，“我们对2022年奥运会的立场没有改变。我们没有讨论过，也没有与盟友和合作伙伴讨论任何联合抵制的问题。”
+
+任何关于外交抵制奥运会的讨论，都将在拜登政府努力召集盟友对中国进行国际反击之际进行。虽然两党广泛支持对中国采取更强硬的政策立场，但很难达成一致意见，认为抵制是最有效的途径。
+
+凯尔巴斯先生就此转推称：
+
+“感谢上帝！#抵制北京2022#抵制北京奥运#中国。西方民主国家很难参加由种族屠杀者主办的奥运会。”
+
+
+
+> HALLELUJAH!! [#boycottBeijing2022](https://twitter.com/hashtag/boycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw) [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai?ref_src=twsrc%5Etfw) [@ABlinken](https://twitter.com/ABlinken?ref_src=twsrc%5Etfw) Hard for Western Democracies to participate in Olympics hosted by Genocidal killers. [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/A9dB21bvvS](https://t.co/A9dB21bvvS)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [April 6, 2021](https://twitter.com/Jkylebass/status/1379517503836200965?ref_src=twsrc%5Etfw)
+
+
+
+
+
+针对中共“日人民报”4月6日发推倒打一耙，称“美国明确表示要抵制#北京2022年冬奥会。所谓“联合抵制”是将体育政治化，违背奥林匹克精神，不会被国际社会接受。中国国家体育总局新闻发言人”。凯尔巴斯先生回推，引用了早前网络流传的中共奥运屠杀的图片，推文称，
+
+“中国政府已被美国国务院（布林肯和蓬佩奥国务卿）正式认定为犯下种族灭绝罪和反人类罪的政权。习近平的任何宣传都无法掩盖他们邪恶的恐怖。#抵制北京奥运 @崔天凯大使 ”
+
+
+
+> [https://t.co/SESKydICrp](https://t.co/SESKydICrp)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [April 7, 2021](https://twitter.com/Jkylebass/status/1379746819555610627?ref_src=twsrc%5Etfw)
+
+
+
+凯尔巴斯先生还附上了2018年裁决中共国法庭作出的临时裁决书，内容包括中共国实施抢摘器官，对法轮功人士和对维吾尔族人犯下的种族灭绝反人类罪。[点击查看详情。](https://chinatribunal.com/final-judgment/)
+
+
+
+
+
+
+
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
 0
