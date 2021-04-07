@@ -1,32 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 印尼发现中共病毒新变种&#8221;Eek&#8221;
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1062234/)
+## 2021年4月7日 文贵先生盖特 3
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1062340/)
 
-- 作者：文乐
+编辑整理：** 西班牙巴塞罗那喜悦农场** （文惜）
+
+中共在打造自己的数字货币，为它监控公民和经济提供新的途径，并削弱美国的制裁 CCP is creating its own digital currency, which will give it new ways to monitor citizens and the economy, and offset US sanctions
 
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-**西班牙2021年4月7日电/西喜社——**
+[【2021年4月7日】文贵先生盖特原文](https://gtv.org/getter/606dadbddbc8001854a63704)
 
-据路透社4月6日报道，印度尼西亚报告了首例中共病毒新变种的感染病例，该变种病毒以其更易传播和能降低疫苗保护性而闻名。
+**喜联盟Gnews编辑部**
 
-此种新变种含有在南非和巴西首次发现的变种中发现的E484K突变。
-
-它被一些科学家戏称为”Eek”，因为它明显能躲早前中共病毒感染者产生的自然免疫力，并能减少现有疫苗提供的保护。
-
-印度尼西亚迄今约有154万人感染和41900人死亡，是东南亚病例数量最多的国家，也是亚洲最严重的疫区之一。
-
-其疫苗接种计划旨在为1.81亿人接种疫苗，并且由于阿斯利康疫苗的发运延误，它严重依赖中共国的科兴疫苗。
-
-之前日本也发现了这种E484K变种病毒，并且该国相关研究机构刚刚出炉了一份研究报告。该报告称其有三大特性：第一，能够躲避免疫，现有疫苗可能对其无效；第二，已经感染过中共病毒的人易于再次感染；第三，感染力可能较强。
-
-中共病毒不断产生新的变种，而疫苗无法信任，战友们不能放松警惕。
-
-编辑：Victor Torres；校对: 阿伯塔；组稿：神奇四侠；发稿：信心的选择
-
-**新闻来源：**[路透社](https://www.reuters.com/article/us-health-coronavirus-indonesia-mutation-idUSKBN2BT1FV)
-
-0
++1

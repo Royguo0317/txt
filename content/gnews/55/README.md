@@ -1,20 +1,104 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 清明节寄语
-` 新加坡狮城农场 Himalaya Singapore` [轉載自GNews](https://gnews.org/zh-hans/1061705/)
+## 美国政要等每日重要信息0407.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1061322/)
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/unnamed-3.jpg)
-清明节已至,家乡的人们都在给已故亲人上坟扫墓。可以想象各种各样的花朵插上坟头随风摇曳寄托对亲人的思念,听老人们讲在阴间人的灵魂一直停留在那边(投胎转世的例外)。他们的灵魂时时刻刻都想离开黄泉回阳间来,可是那边的门看得严，闯那道回阳间的门要么粉身碎骨,要么被抓继续泡在黄泉水里永世不让超生。但一年有一次机会可以出来,那就是鬼节也就是清明节,允许他们出来但一天内必须回去,他们出来后第一件事情就是看看摸摸坟头上有无亲人来看来烧纸钱,越多他们越高兴,越多说明之前在阳间做的好事多有很多后人纪念,功德无量的话阴司就会考虑让你提前转世,早早离开黄泉之狱是每个阴魂的梦想。所以上清明坟对自己的已故亲人至关重要.
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-可是这个邪恶的魔鬼中共,制造生化武器的病毒杀死那么多人,还让我们这些生者远隔重洋,这么重要的清明节也不能回去给亲人上坟,尤其想到我父母,他们在那暗无天日的阴间,在那腐蚀及强的黄泉水里,日等月盼望眼欲穿,日月煎熬,好不容易等来了回阳间的日子,结果发现我们七个孩子六个都不能回去给他们坟上插花和烧纸钱,他们是多么的失望和伤心,回到阴间继续受那无尽的煎熬又是多么的无助,.写到这里我再也忍不住嚎啕大哭。爸爸妈妈呀，在世的时候我们儿女本就对不起您们,死了也不能让您们如愿,都几年没回去给您们上坟,实在是不得已,女儿请您们原谅,等回去的那天我们一定加倍补偿。
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
 
-记得女儿告诉过您们,我们虽然暂时回不了,可是我们在外面干着大事,在干着解救中国14亿人和解救全世界的大事。我们跟着文贵先生爆料革命说真相,还有女英雄闫博士把中共在武汉造生化武器病毒的真相向全世界播讲。我们就要推翻当年好话说尽坏事做绝的吃人政府,全世界组成联军讨伐这个反人类的黑帮政府。我们的国家由合法政府新中国联邦掌管。我们及我们的后代不再贫穷,我们真心跟着文贵先生的战友都会当富人正当合法地赚钱,以后建立的新国家会建立专门的养老机构,老人不会再孤独,不会再倚门而望孩子们是否能归。孩子都会上好的学校受最好的教育，儿童不在被留守被欺负被失踪被拐卖。
 
-也听说人的灵魂不死不灭，你们都很善良，而且我们祖上积德，您们在世的时候经常给我们讲1949年朱毛没过长江的时候,爷爷的妈妈我们的太奶奶就把我们家的十多间房和几十亩地以及家里粮食和存款都自行分给了周边的穷人和佃户,他们行善积德，祖宗庇佑您们一定会早早的转世做人,一定会看到这些的。
+4月7日劳伦斯-塞林博士继续推进中共病毒溯源的重磅线索，他的推文称：
 
-阴间的冤魂一年才出来一回，8964天安门广场，那些为自由民主而牺牲的年轻学生，香港的为自由牺牲的勇士们以及国内被活摘器官还有未成年在计划生育强行堕胎的幼儿冤魂们，你们都去找中南坑老杂毛算账吧！你们有怨报怨，有冤喊冤，有仇报仇。这时候的鬼节,文贵先生在盖特里意味深长的说，鬼会在这个时候出来索魂，估计那些人会被冤魂索命，应该是好消息，战友们都懂的，老杂毛你们的日子不长了，全世界因为病毒害死的冤魂更会向你们索命，等着吧！该是你们血债血偿的时候了。
+“中共的全球军民冠状病毒研究网络利用美国的专业知识和资金来推动中共寻求军事和经济主导地位的一个小例子。#中共病毒 #超限生物战 #超限生物武器 #中共病毒大流行来源 #中共病毒2019大流行 #中共病毒大流行”
 
-by 金色苹果
+
+
+> One small example of the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s global military-civilian [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) research network exploiting U.S. expertise and funding to advance the CCP's quest for military and economic dominance.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/XwfNATNXtn](https://t.co/XwfNATNXtn)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 7, 2021](https://twitter.com/LawrenceSellin/status/1379754150611853313?ref_src=twsrc%5Etfw)
+
+
+
+
+
+塞林博士推文中的插图如下。列举了中共病毒改造和增强功能的研究过程和关键环节负责人。包括：
+
+- 从SARS病人分离病毒并进行病原体基因变异广泛分析和来自47 SARS-CoV的流行病学，涉及邬开朗, 郭德银。
+- 人类血管紧张素转换酶2上的病毒结合热点对两种不同的冠状病毒的结合至关重要。涉及邬开朗，李放。
+- 冠状病毒：流行病学，基因复制及其与宿主的相互作用。设计石政丽，郭德银。
+- 病原体冠状病毒的来源和进化。涉及李放，石政丽。
+
+
+- ![]()![](https://gnews.org/wp-content/uploads/2021/04/sellin-twitter-0407.jpg)
+
+
+
+
+## CNBC抵制中共冬奥会口风有变
+
+美国左媒CNBC昨日发布新闻“美国国务院称，美国考虑与盟友联合抵制2022年北京冬奥会。”6小时后，CNBC立即发布了另一则新闻进行更新，并发推称：
+
+更新：国务院从抵制北京奥运会的想法中退缩。
+
+“我们对2022年奥运会的立场没有改变。我们没有讨论过，也不会与盟友和合作伙伴讨论任何联合抵制，”国务院一位高级官员说。
+
+
+
+> UPDATE: State Dept. backs away from the idea of a Beijing Olympics boycott. 
+> 
+> “Our position on the 2022 Olympics has not changed. We have not discussed and are not discussing any joint boycott with allies and partners,” a senior State Dept. official said. [https://t.co/YSGDMHtQkP](https://t.co/YSGDMHtQkP)
+> — CNBC Now (@CNBCnow) [April 7, 2021](https://twitter.com/CNBCnow/status/1379600036376555523?ref_src=twsrc%5Etfw)
+
+
+[https://www.cnbc.com/2021/04/06/us-considering-joining-boycott-of-2022-beijing-olympics.html](https://www.cnbc.com/2021/04/06/us-considering-joining-boycott-of-2022-beijing-olympics.html)
+据CNBC4月6日更新的新闻：
+
+国务院发言人内德-普莱斯最初在周二早些时候的新闻发布会上表示，抵制奥运会是解决中国侵犯人权问题的可能性之一。
+
+国务院周二晚间否认正在考虑与盟友共同抵制2022年北京冬奥会。国务院一位高级官员在给CNBC的电子邮件声明中写道，“我们对2022年奥运会的立场没有改变。我们没有讨论过，也没有与盟友和合作伙伴讨论任何联合抵制的问题。”
+
+任何关于外交抵制奥运会的讨论，都将在拜登政府努力召集盟友对中国进行国际反击之际进行。虽然两党广泛支持对中国采取更强硬的政策立场，但很难达成一致意见，认为抵制是最有效的途径。
+
+凯尔巴斯先生就此转推称：
+
+“感谢上帝！#抵制北京2022#抵制北京奥运#中国。西方民主国家很难参加由种族屠杀者主办的奥运会。”
+
+
+
+> HALLELUJAH!! [#boycottBeijing2022](https://twitter.com/hashtag/boycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw) [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai?ref_src=twsrc%5Etfw) [@ABlinken](https://twitter.com/ABlinken?ref_src=twsrc%5Etfw) Hard for Western Democracies to participate in Olympics hosted by Genocidal killers. [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/A9dB21bvvS](https://t.co/A9dB21bvvS)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [April 6, 2021](https://twitter.com/Jkylebass/status/1379517503836200965?ref_src=twsrc%5Etfw)
+
+
+
+
+
+针对中共“日人民报”4月6日发推倒打一耙，称“美国明确表示要抵制#北京2022年冬奥会。所谓“联合抵制”是将体育政治化，违背奥林匹克精神，不会被国际社会接受。中国国家体育总局新闻发言人”。凯尔巴斯先生回推，引用了早前网络流传的中共奥运屠杀的图片，推文称，
+
+“中国政府已被美国国务院（布林肯和蓬佩奥国务卿）正式认定为犯下种族灭绝罪和反人类罪的政权。习近平的任何宣传都无法掩盖他们邪恶的恐怖。#抵制北京奥运 @崔天凯大使 ”
+
+
+
+> [https://t.co/SESKydICrp](https://t.co/SESKydICrp)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [April 7, 2021](https://twitter.com/Jkylebass/status/1379746819555610627?ref_src=twsrc%5Etfw)
+
+
+
+凯尔巴斯先生还附上了2018年裁决中共国法庭作出的临时裁决书，内容包括中共国实施抢摘器官，对法轮功人士和对维吾尔族人犯下的种族灭绝反人类罪。[点击查看详情。](https://chinatribunal.com/final-judgment/)
+
+
+
+
+
+
+
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
 
 0
