@@ -1,60 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统抨击《纽约时报》贬低草根筹款
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1060040/)
+## 【国际众声】疫苗“金钟罩” 给你护照，乖乖戴上“镣铐”
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1060151/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+搜集\编撰：之之
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2q2we333-2.jpg)图片来源：网络
+**据【4月4日联合报消息】整理：**
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/G.jpg)commondreams.org
-川普总统在回击《纽约时报》时，继续揭露民主党人如何窃取了2020大选。
+**名为疫苗接种凭证计画（VCI）的「疫苗护照」全球标准规格,计划于4月将公布。制定此标准的组织包含微软、甲骨文等多家科技巨擘和医疗照护业者等超过200个成员。**
 
-声明全文如下：
+**「疫苗护照」规格标准，将整合经数位验证的诊疗资讯、用户的姓名、生日和疫苗接种纪录，以及新冠病毒筛检状态，并且以机器可读取的QR码呈现即便于操作的应用程式（ App）。未来可望整合入航空公司App等平台，为后疫情时期的旅游通关做准备。**
 
-2021年4月5日
+目前已有多个研发团队正如火如荼测试几款疫苗护照App。例如生物辨识扫描技术公司Clear正与夏威夷州政府合作，推出受信任旅客计画（TTP），帮助旅客下载App并加速通过机场安检。此外，Clear的健康护照App已被多个体育联盟和博物馆采用，能验证购票者的疫苗接种状态。
 
-美利坚合众国第45任总统唐纳德·川普的声明
+另外，非营利组织Commons Project基金会和国际航空运输协会（IATA）等组织也正各自推出App，方便乘客证明他们的新冠病毒筛检或疫苗接种资讯，以便快速通关。这类App能解决乘客的问题，旅客不必到每个入境国的移民网站上传健康资料文件。人们也能藉由秀出这类疫苗护照，获准进入办公室、餐厅、酒吧等公共场所。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/lolkvf5.jpg)图片来源：网络
+**战友观点：**
 
-在另一个高度党派化的报道中，失败的《纽约时报》本周末写了一篇完全误导人的、片面的攻击文章，试图贬低我们创纪录的、草根筹款行动在2020年竞选中的地位。若不是大规模的选举舞弊，这场竞选很容易就被你们喜欢的共和党总统，我，胜出！
+“金钟罩”乃一传说神功，练者刀枪不入。人是凡夫肉体难敌刀枪是孩童都知的常识，可叹对神功深信不疑者仍执迷不悟。
 
-我们在2020年获得了前所未有的巨大支持（迄今为止，获得的选票超过了历史上任何一位在任总统），这已经成为民主党的主要威胁，这也解释了为什么《纽约时报》立即匆忙捍卫其激进的左翼盟友。
+迷信之人会丧失分辨真假之能力，曾经人类迷信宗教陷入黑暗，原以为事过境迁进入了更文明的科技时代，却不知“科学”被包装为宗教，以新形式迷惑众生。如今人类又将被“科学”宗教带入新劫难，这就是“中共病毒”催生的“疫苗魔咒”。
 
-在我们两次大选之前，2016年和2020年的共和党人总是会损失少量的捐款，现在我们赢了，或者说做得很好，因为我们是美国的劳动党，我们在自己的竞赛中打败了民主党，我们从自由派的“蓝色行动”（Actblue）中学到了东西——现在我们比他们做得更好！事实上，很多人都很热心，一次又一次地捐款，在某些情况下，如果捐款过多，我们会及时退还他们的捐款。我们的整体纠纷率不到网上捐款总额的1%，这是一个非常低的数字。这也是民主党（DEM）做的。
+疫苗为人类所用已有上百年历史，时至今日种类繁多，几乎人人都接种过。众所周知疫苗从研发到应用已有严格流程，最短的也在五年以上，可中共病毒疫苗从病毒爆发到全球大面积接种匆匆忙忙，连一贯做事严谨的欧美也手忙脚乱，何故？事有蹊跷，且寻踪问迹探个究竟。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/yhyhyh655566.jpg)图片来源：网络
+**一切从阎丽梦博士曝光中共病毒开始，中共原想悄无声息进行的“病毒超限战”，一年多来在目睽睽之下无所遁形。对国内中共封锁信息（掩盖死亡、传染真相），销毁、造假病毒数据，对世界则蓄意播毒，在各国恐吓、收买、抹黑无所不用其极。中共的种种卑劣行径令人愤怒，但众多所谓民主国家的表现，真正颠覆乾坤，世人不禁为之愕然。**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/rtrtrtgr587.jpg)图片来源：网络
+其一、权力、利益至上。病毒已至200多万人死亡，竟无一国政府揭穿中共恶行，各国感染、死亡的国民成为政客和利益者们的牺牲品。可以保命、救人的羟氯喹被刻意忽视，制药公司只盘算疫苗生意的利益，并不稳定的疫苗被大量接种，让民众面临病毒、疫苗双重伤害。政客则一边帮疫苗背书捞政治资本，一边跟中共勾兑用国家利益换取好处。
 
-《纽约时报》知道这一点，但将这些细节隐藏起来不谈论，他们不谈作弊的民主党人如何绕过摇摆州的州立法机构（美国宪法要求批准）操纵2020年总统选举，或者民主党人如何在许多城市中心搞有偿投票，施展那些被称作“绕钱走”的小花招，也不谈民主党人如何威胁工会成员，如果他们不投票给民主党人，他们将失去工作，大量的假邮寄选票，非法移民和死人投票给民主党人等等。我们的筹款工作，与共和党合作，都是合法的，都是为了确保我的政府能够继续让美国再次伟大起来，另一方面，选举被大量操纵和窃取，现在看看我们国家，特别是我们南部边界发生了什么。
+其二、民主、法制的脆弱。中共多年的蓝金黄和渗透，原本应为人民服务的西方政府沦为贪利忘义之地，美国大选就是血淋淋的现实。中共更玩弄意识形态多年，掌控报纸、电视等媒体，把控网络话语权，民主、法制的基石被破坏。美国、法国、德国、加拿大等更时有遵纪守法者被伤害，破坏者反被纵容的消息。
 
-如果你是创纪录的7500万美国人中的一员，那些投票支持我，捐款或志愿服务的，谢谢你，最好的还没来呐！（声明完）
+其三、神性迷失，人性堕落。中共善利用人性作恶，曾经西方国家认为自己的宗教信仰能抵御中共之恶。事实是新疆、香港、缅甸一个个堕入中共操控的地狱，连美国也摇摇欲坠，人们才不得不相信，如今罗马教廷都已迷失。新兴的科技巨头俨然已将自己凌驾于众生之上，控制言论、封锁真相，隐约显现出共产邪灵的分身。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/gyhyt5544.jpg)图片来源：网络
+现在明白“疫苗护照”是何物了吗？是否有似曾相识之感，稍作回忆，2020年疫情一开始中共借口防疫就在国内推出的“健康码”，2021年以同样手段在香港换装上市的“安心出行”。初始假意宣传“自愿安装”，再以恢复经济、生活为由强推接种疫苗，最终结合为“疫苗证”，如无将禁入任何场所、禁用任何交通工具，加上中共国早已无处不在的监控摄像、人脸识别、车辆跟踪等等，让你寸步难行，犹如监狱。此即以“为人民服务”的名义来管控人民，也称中共国奴隶证。
 
-大选舞弊的揭露涉及宪政危机，川普总统正在全力推进这项议程，而民主党也会竭尽全力掩盖阻止，一条贼船上的左媒自然会选边，不过，真相不会永远被掩盖，7500万人众不能受欺太久，背后的恶魔终究会暴露，邪恶必将受到惩治！
+如此“疫苗护照”一成，西方民众将同中共国人民一起享受“没有民主、法制、自由”的新生活。多年来西方利益者们以中共为师，步步为营，新兴科技巨头更想借此开创新型权力“监控资本主义”，借科技打造“牢笼”控制世界。病毒、疫苗不过是早编好的剧本，最终人人获送“疫苗镣铐”，世界大同，“现代奴隶制”时代来临！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/mkmkbg.jpg)图片来源：网络
+【以上观点仅代表笔者个人】
 
-声明原文链接：
+资料来源：
 
+[打造疫苗护照 全球新标准出炉](https://udn.com/news/story/120944/5364441)
 
+[为了武汉肺炎，中国推出超强黑科技！人人都逃不掉的「健康码」](https://www.storm.mg/lifestyle/2464218)
 
-> President Trump responds to NYT hit piece:
-> 
-> “Our support in 2020 was so big—never before seen (received more votes than any sitting President in history, by far), that it has become a major threat to the Democrat Party…”
-> 
-> FULL STATEMENT: [pic.twitter.com/IaCQMYThRs](https://t.co/IaCQMYThRs)
-> — Natalie Harp (@NatalieJHarp) [April 5, 2021](https://twitter.com/NatalieJHarp/status/1379151646177980416?ref_src=twsrc%5Etfw)
+[防疫为名 监控为实：健康码如何导致全民监控？](https://www.hkctu.org.hk/zh-hant/content/%E9%98%B2%E7%96%AB%E7%82%BA%E5%90%8D-%E7%9B%A3%25%20E6%8E%A7%E7%82%BA%E5%AF%A6%EF%BC%9A%E5%81%A5%E5%BA%B7%E7%A2%BC%E5%A6%82%E4%25%20BD%95%E5%B0%8E%E8%87%B4%E5%85%A8%E6%B0%91%E7%9B%A3%E6%8E%A7%EF%BC%9F)
 
+[纽约州发表采用IBM区块链平台的疫苗护照](https://www.ithome.com.tw/news/143515)
 
-
-声明文字整理：
-
-Apnl5, 2021
-
-Statement by Donald J. Trump, 45th President of the United States of America
-
-In yet another highly partisan story, the failing New York Times wrote a completely misleading, one-sided attack piece this weekend that tried to disparage our record-setting grassroots fundraising operation during the 2020 campaign. Except for massive voter fraud this was a campaign that was easily won by your favorite Republican President, me!
-
-Our support in 2020 was so big-never before seen (received more votes than any sitting President in history, by far), that it has become a major threat to the Democrat Party, which explains why the New York Times immediately rushed to defend their Radical Left allies.
-
-Before our two campaigns, 2016 and 2020 Republicans would always lose small dollar donations. Now we win, or do very well, because we are the Party of Working Americans and we beat the Democrats at their own game. We learned from liberal Actblue–and now were better than they are! In fact, many people were so enthusiastic that they gave over and over, and in certain cases where they would give too much, we would promptly refund their contributions. Our overall dispute rate was less than 1% of total online donations, a very low number. This is done by Dems also.
-
-The New York Times knew this but buried these details in their story-they didn’t talk about, however, how the CHEATING Democrats circumvented State Legislatures (approval is required by the U.S.  Constitution) in Swing States to rig the 2020 Presidential Election, or how Democrats paid for votes in many Urban Centers, in a little thing called walking around money, how Democrats threatened Union Members with the loss of their jobs if they didn’t vote Democrat, massive Fake Mail-In Ballots, illegal immigrants and dead people who voted (for Dems) and much more. Our fundraising efforts, working together with the Republican party, were all done legally, and all with the goal of ensuring that my Administration could continue to Make America Great Again. The Election on the other hand, was massively rigged and stolen-and now look what is happening to our Country, and in particular at our southern border.
-
-If you are one of the record-setting 75 million Americans who voted for me, donated or volunteered, THANK YOUI The best is yet to come!
+审核：卡西欧 /  上传：彩虹（ Rainbow )
 
 0

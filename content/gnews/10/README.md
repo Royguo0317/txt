@@ -1,117 +1,101 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 中共在全国范围内强推疫苗记录汇总——2021年4月2日
-` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1060659/)
+## 《路德时评》重磅解读Sellin博士提及神秘的SIXTA组织，及美国将联合盟友抵制2022年冬奥会
+` 香柏树` [轉載自GNews](https://gnews.org/zh-hans/1060795/)
 
-【日本东京方舟农场】撰稿：Maarago 素材整理：文柯Miles 校对：miumiu law
+直播视频：
 
-据[央视网快看](https://weibo.com/1977460817?refer_flag=1001030103_) [04月01日 21:17](https://weibo.com/1977460817/K8VEocNwH?refer_flag=1001030103_) 来自 微博视频号
 
-【[#央视主播喊你一起打疫苗#](https://s.weibo.com/weibo?q=%23%E5%A4%AE%E8%A7%86%E4%B8%BB%E6%92%AD%E5%96%8A%E4%BD%A0%E4%B8%80%E8%B5%B7%E6%89%93%E7%96%AB%E8%8B%97%23) 撸起袖子，一起苗一个？】这两天深圳街头这句呼吁大家接种新冠疫苗的宣传语火了。昨天深圳卫健委的同志证实，这确实出自他们之手。这可能是受一首网红歌曲的启发。说实话，歌我还真不会唱。但我读了一遍发现同样朗朗上口。重要的事情读三遍：“我们一起打疫苗，一起苗苗苗苗苗”、“深圳一起打疫苗，一起苗苗苗苗苗”、“大爷一起打疫苗，一起苗苗苗苗苗”。你看，把我们换成你所在的任何地方，把我们换成大爷大妈叔叔阿姨兄弟姐妹。丝毫不影响它朗朗上口的节奏。当然，朗朗上口的目的是要带起疫苗上手的节奏。关于打疫苗的重要性，钟南山院士说，不打疫苗有风险；张文宏医生说，不打疫苗就吃亏了。各国都在加速接种，27日24时全国接种破亿剂次。但离免疫屏障需要覆盖百分之七八十的人口，差的可不少。为了早日回到疫情前的生活，撸起袖子，一起苗一个？
 
-目前这则视频已经下架，但是互联网是有记忆的，接下来我们把截止2021年4月2日中共国接种疫苗的种种奇葩进行汇总，这一幕一幕我们一点也笑不起来，因为所有被接种中共疫苗者都不知道他们正在经历的是什么危险和他们在今后将会怎样——
+《路德时评》2021年4月6日晚间节目主要内容：
 
-一、各地打疫苗信息汇总：
+一、Sellin博士提及神秘的SIXTA组织
 
-1、3月28日东莞市塘厦镇西南4公里四村社区 免费注射疫苗（18至59岁）
+Sellin博士4月6日再发重磅推特：与英国Bletchley公园二战密码破解中心SIXTA组织类似的美国网络研究分析组织正在进行新冠病毒实验室来源的情报分析，他们还发现武汉市武昌区出现疫情大爆发与人为释放病毒有关。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/8318979F-0082-4663-A648-B4B635EA9235.jpeg)
 
-2、3月26日上海松江区中山街道蓝天五村发放免费接种疫苗宣传单：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/074E5C13-F49A-4EBA-BD26-FDA7E6664EED.jpeg)
+> Research network analysis similar to SIXTA from British WW2 codebreaking center, Bletchley Park, used to identify the laboratory origin of [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) – Linking expertise to a local release in the Wuchang epicenter.[#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [#Corona](https://twitter.com/hashtag/Corona?src=hash&amp;ref_src=twsrc%5Etfw) [#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/pRgBxI9M0t](https://t.co/pRgBxI9M0t)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 6, 2021](https://twitter.com/LawrenceSellin/status/1379437072763609090?ref_src=twsrc%5Etfw)
 
-3、4月1日北京景山街道宣传：接种疫苗给5斤鸡蛋
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/9A40E277-0AEF-4246-BF55-AFF75DA4A361.jpeg)
 
-4、据[三峡日报](https://weibo.com/u/2129452154) [2021年4月2日11：08](https://weibo.com/2129452154/K915NuVDJ?from=page_1002062129452154_profile&amp;wvr=6&amp;mod=weibotime) 来自 [iPhone客户端](http://vip.weibo.com/prividesc?priv=1006&amp;from=feed)【秭归县人民医院40名健康志愿者入户宣传疫苗接种工作】为落实好新冠疫苗全民接种工作，秭归县人民医院在扎实履行新冠疫苗接种点工作任务的同时，充分发挥党员先进模范作用，组织40名健康志愿者赴幸福小区包片责任区上门宣传动员，力争符合要求小区居民“应接尽接”。志愿者敲开每一户居民的大门后，热情地向居民讲解疫苗接种的重要性和必要性，并且号召大家相信科学，对疫苗接种流程及注意事项进行详细讲解。
+路德社评论：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/BED57E98-37BF-4B27-BDF0-2B3069FFD047.jpeg)
+1、SIXTA组织是二战时期最牛的密码破译组织，该组织当年位于英国Bletchley公园，在第二次世界大战期间，该庄园内设有政府密码学校，定期渗透邪恶轴心国的秘密通信系统，其中最重要的就是破译德国Enigma和Lorenz密码。Bletchley 公园的密码破译团队发明了一台自动密码破译机，最终发展成为全球第一台可编程数字电子计算机Colossus，正是因为该组织的密码破译工作，才使得二战提前二到四年结束。[1]图灵当年就从事揭秘工作，他最终使用自己发明的图灵机成功破译了德军密码，当原始密码被破解后，SIXTA组织就要对其进行情报复原工作。
 
-5、据[海南日报](https://weibo.com/3204782330?refer_flag=1001030103_)[2021年4月2日10:00](https://weibo.com/3204782330/K90DZBWX7?from=page_1002063204782330_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0) [#抗击疫情#](https://s.weibo.com/weibo?q=%23%E6%8A%97%E5%87%BB%E7%96%AB%E6%83%85%23)【海口公交车为新冠疫苗接种“代言”】“我们一起打疫苗，一起苗苗苗苗苗！”4月1日，印有上述公益广告标语的海口15条公交线路45辆公交车从五源河体育馆驶出，穿行至海口市区各个街道，为新冠疫苗接种工作“代言”，倡导公众积极接种新冠疫苗。除让45辆公交车“代言”外，海口卫健委还在海府路、海秀路、南海大道等主要干道的140个公交车站台的宣传屏刊发类似广告和标语，最大力度动员市民接种新冠疫苗。（记者张期望）
+2、Sellin博士说美国已经成立类似二战时期的SIXTA组织，这就是在暗示世界已经处在第三次世界大战中，中共以超限战的方式开启了第三次世界大战，而中共派遣大量五毛在各大媒体发送海量垃圾信息，中共还收买各大医学机构和病毒科学家发表虚假论文来掩盖病毒真相，这些都是为混淆视听，这些都是闫博士第三篇报告所说的超限生物误导。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/26C1A3EF-1A2B-4A09-A0B7-BCD7C4E75E23.jpeg)
+3、情报破译是一项工作，而有效的情报收集和情报分析是一项更复杂的工作，美军情报部门现在就在认真筛选关于中共病毒的有效情报进行分析，他们肯定已经从嫌疑人的电话、短信、邮件、社交媒体软件以及监视摄像头获得了大量情报，经过分析后得出结论，这就是中共通过实验室改造出中共病毒，并将该病毒有意投放到全世界。
 
-7、3月31日【在强制推行疫苗】海南万宁万成镇发通知：不打疫苗会 不能坐公交车和打车、超市酒店市场难进入、餐厅酒店商超不能营业、列入黑名单没有政府优惠政策、子女上学参军工作住房等受影响
+4、美军现在已经开始用独立的情报分析系统来确定中共病毒的所有真相，无论中共如何利用科学家和WHO掩盖病毒真相，都无济于事。这再次验证路德社此前爆料的美国军方已经获得关于中共病毒的重要情报信息，并在夜以继日地进行分析和整理工作。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/EE668286-717B-466D-9932-27851A694D9C.jpeg)
+5、美国现在已经从病毒实验室来源层面推动到中共故意投放病毒层面，如果未来认定中共有意向全世界释放中共病毒，那上升到战争层面进行对待。
 
-8、3月31日海南万宁万城镇：没打疫苗的不能进入市场购物——
+6、中共对美国发起的病毒超限战就像当年德国闪击波兰，以及日本偷袭珍珠港一样，趁对方来不及进行战争动员就提前抢占先机。中共原先计划在春节之后才对外公布病毒疫情信息，要不是闫博士通过爆料革命路德社“119”节目提前向全世界揭露病毒真相，那后果将不堪设想，否则全世界早就已经陷入崩溃中。中共就是想利用病毒让美国的医疗体系崩溃，瓦解美国的军事力量，尤其是海上作战力量，进而让整个美国陷入崩溃。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1F36D968-3978-4B84-B253-FFD4F32F3D2E.jpeg)
+7、从现在来看，一切都是天意，路德社119节目向全世界揭露了中共病毒真相，文贵先生在去年1月23日组织了法制基金年会，爆料革命向班农先生和比尔·格茨先生传递了关于中共病毒的重要情报，班农先生和比尔·格茨先生随后分别向白宫和军情部门转达了这些重要信息，美国正在用超乎人类想象的科技分析中共病毒，中共这次绝对逃不掉。
 
-二、网上收集的关于打疫苗的副作用汇总——
+8、中共发起的病毒超限战是中共“13579”计划和灭白计划，击垮美元体系的第一步，中共通过动物传代实验将病毒伪装成自然来源，然后借病毒打垮美国的医疗系统、经济系统和军队系统，以此来破坏美国秩序，这就是超限战。如果没有爆料革命提前揭露病毒信息，美国军队早已经全面沦陷，中共就可以快速拿下台湾，再控制亚洲，进而推动控制全球的计划。中共还可以利用体制优势，逼着中共国老百姓快速复产复工恢复经济。到时中共再迅速推进疫苗经济、数字货币，然后，中共再怂恿其他国家将存在美国的黄金运回本国，这一连串的打法就想彻底击垮美元体系。这比发动火战更加有效。现在回击中共超限战的核心就是情报，闫博士给美国情报部门提供了获得重要的情报线索，这就加快了美国调查中共病毒真相的速度。
 
-1、3月31日网友发帖：父亲接种疫苗后出现副作用，全身红点点发烧、拉肚子,好可怕——
+9、美国此次联合北约和亚约国家共同发起围剿中共行动，这些国家军方肯定已经就中共病毒问题达成一致，这才让这些国家站得如此紧密。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/BFCAF63D-D912-4814-9CAC-CBFA27D93EDD.jpeg)
+二、专栏作家Mosher再次撰文力挺闫博士
 
-2、3月31日网友发帖：接种新冠疫苗出现红肿块硬结还超级痒痒
+《纽约邮报》专栏作家Mosher再次撰文，他说闫博士揭露的中共病毒真相都是对的。闫博士说中共病毒为“超限生物武器”，该病毒是以中共军分离舟山蝙蝠病毒为骨架，再通过“功能增强型”实验对其进行了改造，使其更具感染力和致命性。”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/6F08EA95-B795-4CAC-B942-0AEF0549BB53.jpeg)
 
-3、3月31日网友发帖：接种疫苗后起红痘痘，后背也有很痒痒 还影响月经正常来——
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/343C4FB2-3A0D-432B-874F-EFB999101ADD.jpeg)
+> [https://t.co/Ta0cZ3fEjV](https://t.co/Ta0cZ3fEjV)
+> 
+> "[@DrLiMengYAN1](https://twitter.com/DrLiMengYAN1?ref_src=twsrc%5Etfw) calls the virus an “unrestricted bioweapon,” saying that it was a bat coronavirus isolated by the PLA that has been re-engineered using “gain of function” research to make it more infectious and deadly."
+> She is correct. We are in a biowar.
+> — StevenWMosher @StevenMosher on Parler (@StevenWMosher) [April 6, 2021](https://twitter.com/StevenWMosher/status/1379454079345299457?ref_src=twsrc%5Etfw)
 
-4、3月31日网友发帖4：打疫苗后出现副作用：耳鸣聋了，北京检查医生说好多个打了疫苗后耳鸣耳聋的，网友发帖哭泣——
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/2D9D3619-F6A9-47F7-BD3B-B1AA8C677CBF.jpeg)
 
-5、3月31日网友发帖：打了北京生物的新冠疫苗后出现副作用，轻微头疼然后进入发烧阶段，博主说后劲很大但是今天恢复了——
+路德社评论：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/5216C9E8-4817-4DC1-B59B-B0AF418C0F5E.jpeg)
+1、美国军情部门的代言人和各大媒体现在都站出来揭露中共病毒真相，所以布林肯国务卿才正式发言要彻查病毒来源，美国必须直面生物威胁的挑战。由此可以看到，不论哪个党派就任美国总统都必须尊重事实，这些事实都来自美国的情报信息。闫博士的报告理顺了美国获得的病毒情报信息，破坏中共想在其中搅混水的阴谋。
 
-6、3月31日网友发帖：打完国药集团新冠疫苗后，男性性功能在下降已经一个月了——
+2、闫博士提供的证据与情报将香港P3实验室拖出水面，Malik最后也会被公布，闫博士还用自己当作诱饵将打杂客，Gallo等多位与中共勾兑的科学家都暴露出来。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/7AB96389-3002-4A3F-8B2F-1FE5E79A83E1.jpeg)
+3、美国体制决定了美国不可能像中共国那样，在中共国，只要习总加速师一声令下就可以迅速调转方向，现在的美国与中共在各领域都有众多合作，所以只有彻底坐实中共病毒就是来自于中共实验室，并且中共主动向美国发起了一场超限生物武器攻击这一事实，美国才能够顺理成章地推动中美脱钩，推动灭共进程。
 
-7、4月1日打疫苗现场有人倒地不起，不准拍摄
+4、有战友发现，参与CCP病毒实验室改造的中共科学家李放博士下架了他本人在官网上的所有照片，由此可见，李放也很害怕爆料革命路德社的影响力。
 
-三、关于疫苗内含有抵抗怀孕发泡剂成份的资料汇总——
+三、美国将联合抵制2020年北京冬奥会
 
-1、重组新冠病毒疫苗（腺病毒载体）接种知情同意书里的说明——
+CNBC新闻网4月4日报道称[2]：美国国务院表示，他们正在考虑联合盟友抵制2022年北京冬季奥运会。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/D4D43D73-4711-40BC-8B88-89C8251F781A.jpeg)
 
-2、欧洲专利局发表的美国“绝育疫苗专利”文件确凿证实“聚山梨醇脂80”是“绝育疫苗专利”中重要成分的说明——
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/9AD98FAA-DD07-4CB3-B857-70DF59019130.jpeg)
+> UPDATE: State Dept. backs away from the idea of a Beijing Olympics boycott. 
+> 
+> “Our position on the 2022 Olympics has not changed. We have not discussed and are not discussing any joint boycott with allies and partners,” a senior State Dept. official said. [https://t.co/YSGDMHtQkP](https://t.co/YSGDMHtQkP)
+> — CNBC Now (@CNBCnow) [April 7, 2021](https://twitter.com/CNBCnow/status/1379600036376555523?ref_src=twsrc%5Etfw)
 
-3、关于中共疫苗配方的说明——
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/06481F4E-8A45-40B0-AA83-747ECAE41B77.jpeg)
 
-四、4月1日接种疫苗多少天会产生抗体，钟南山和官方说的不一致——
+路德社评论：
 
-1、人民网2021年3月26日8：37发布的[新冠疫苗接种“20问”](http://hlj.people.com.cn/n2/2021/0326/c220027-34642187.html)提到的是［接种完第二剂28天以后，中和抗体阳转率均达百分百］
+1、美国连同西方国家已经坐实中共在新疆犯下种族灭绝和反人类罪，种族灭绝罪和反人类罪与奥林匹克精神相违背，如果西方国家前往参加2022年北京冬奥会，这就是在为中共独裁政权站台，所以西方正义力量绝不可能与中共同流合污。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/03202E5E-752A-4C31-9C30-1024424F1532.jpeg)
+2、冬奥会与夏季奥运会有着明显区别，如果是夏季奥运会，中共可以拉亚非拉盟友参加，但是冬奥会大部分项目只有西方发达国家才能玩得起的。美国各大媒体、大量议员和前政府官员现在都站出来推动政府抵制北京冬奥会。如果美国联合盟友全面抵制2022年北京冬奥会，这对中共的杀伤力非常大，拜登此举彻底打脸习总加速师。
 
-2、据[北京日报](https://weibo.com/beijingdaily) [2021年3月31日 15:27](https://weibo.com/1893892941/K8JVRpjEY?from=page_1002061893892941_profile&amp;wvr=6&amp;mod=weibotime) 来自 [微博 weibo.com](https://app.weibo.com/t/feed/6vtZb0)
+3、中共国被国际认可就是从2001年开始，中共在那年加入了WTO，并且申奥成功，这宣示着中共被世界主流秩序认可，如果西方国家联合抵制北京冬奥会，这就相当于中共又被踢出了以西方国家为首的国际秩序中，这也意味着美国与中共国的意识形态之争彻底摆上台面。
 
-【钟南山：[#灭活疫苗40天后才产生足量抗体#](https://s.weibo.com/weibo?q=%23%E7%81%AD%E6%B4%BB%E7%96%AB%E8%8B%9740%E5%A4%A9%E5%90%8E%E6%89%8D%E4%BA%A7%E7%94%9F%E8%B6%B3%E9%87%8F%E6%8A%97%E4%BD%93%23&amp;from=default)】[#钟南山分析为何西安病例接种疫苗后仍感染#](https://s.weibo.com/weibo?q=%23%E9%92%9F%E5%8D%97%E5%B1%B1%E5%88%86%E6%9E%90%E4%B8%BA%E4%BD%95%E8%A5%BF%E5%AE%89%E7%97%85%E4%BE%8B%E6%8E%A5%E7%A7%8D%E7%96%AB%E8%8B%97%E5%90%8E%E4%BB%8D%E6%84%9F%E6%9F%93%23&amp;from=default)3月18日，西安市一名检验师在接种完新冠疫苗的情况下仍感染了新冠病毒。对此，钟南山在3月30日接受采访时表示，原因有两点。
+4、2022年北京冬奥会如果无法举办，这对习总加速师的连任又是一个重大打击，他在党内的威信将大大下降。拜登政府现在推动的对共政策完全是政治家手段，未来所有的焦点还是要回归到中共病毒上，只有中共病毒才是导致中共灭亡的最致命因素。
 
-第一是，看打完疫苗多长时间。像灭活疫苗一般要一个多月以后（40天以后）才能够产生充分、足量的抗体，足以预防疫苗的感染。我们现在常见的有刚打完第二个礼拜就感染了新冠，这没什么奇怪，因为抗体还没产生。
+[点击观看往期《路德时评》节目总结文章](https://gnews.org/zh-hans/author/harmony/)
 
-另外一点，任何疫苗的保护率都不是100%，个体打完疫苗后会有一个百分率，即有一部分人群不能产生相应的抗体或者是产生相应的细胞免疫。我们现在正在研究打了疫苗以后如何评价疫苗的疗效，这是一个很重要的研究课题。（人民日报健康客户端 [@健康时报](https://weibo.com/n/%E5%81%A5%E5%BA%B7%E6%97%B6%E6%8A%A5?from=feed&amp;loc=at)）
+参考文章：
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4310AF1A-8E6F-41AF-87DC-F9B12D1DE3F2.jpeg)
+[1][https://en.wikipedia.org/wiki/Bletchley\_Park](https://en.wikipedia.org/wiki/Bletchley_Park)
 
-3、据新华网客户端2021年1月15日12：12发布的[新冠病毒疫苗两针怎样打最有效？多久能产生抗体？保护期如何？——国药集团中国生物董事长杨晓明详解疫苗接种焦点问题](https://baijiahao.baidu.com/s?id=1688924595010300324&amp;wfr=spider&amp;for=pc)：
+[2][https://www.cnbc.com/2021/04/06/us-considering-joining-boycott-of-2022-beijing-olympics.html](https://www.cnbc.com/2021/04/06/us-considering-joining-boycott-of-2022-beijing-olympics.html)
 
-［问：接种两针后，多久可以产生抗体形成保护效力？
+文章撰写：【重生】  编辑：【香柏树】
 
-答：由于个体差异，每个人对于疫苗的敏感程度不尽相同，因此打完疫苗后形成保护的时间也各有差异。
-
-从目前国药集团中国生物新冠病毒灭活疫苗Ⅲ期临床试验的阶段性分析看，第一针注射10天后就可以产生抗体，但是，不同人之间抗体产生的差距很大，所以我们要打第二针。两针注射后，再过14天，就能产生高滴度抗体，形成有效保护，且全人群中和抗体阳转率达99%。］
-
-![]()![](https://gnews.org/wp-content/uploads/2021/04/F0EA4271-ECDC-4D18-BB0D-A1A4410F77AD.jpeg)
-
-综述：在这一场针对十四亿中国人民的强推中共病毒疫苗运动中，我们看到了打疫苗后出现泡疹、巨痒、发烧、头晕、耳聋、月经不调、不能晨勃以及打完疫苗晕倒后不让拍摄的场景，有多少人还有其他并发症我们不知道，我们看到了疫苗配方中存在抵抗怀孕发泡剂成份的信息，在疫苗中除了埋有抵抗怀孕的雷之外还有哪些我们不知道的雷？中共正在推广的疫苗也许是另一场史无前例的双盲实验，只是在这种双盲实验中，被植入疫苗者甚至还不如实验室里的小白鼠，因为所有的不良反应或者因种疫苗致死者都在第一时间被抹掉存在痕迹，这一切唯一能够说明的就是一点——我们已经被超限生物战包围。
-
-注：本文仅代表作者观点
-
-+1
+0

@@ -1,33 +1,140 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】 清明节港人没有 忘记抗争的孤魂港共政府派警驻 守
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1059799/)
+## 彼得·纳瓦罗（Peter Navarro）称安东尼·福奇（Anthony Fauci）为“病毒之父”
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1059980/)
 
-搜集/编撰：心听见
-![]()![](https://gnews.org/wp-content/uploads/2021/04/aaaaazzz.png)图片来源立场新闻：「守护孩子」成员陈基裘先生（陈伯）
-**据（独媒报导）时值清明节翌日，清明节一整天阴雨连绵，暮雨生寒，今日凉风飒飒。在沙岭坟场，继昨日后，今日续有零星市民到场悼念。连续第三天在场的「守护孩子」成员陈基裘（陈伯）指，现时政治气氛严峻，故只好「做得多少就多少」，亦盼望勉励前来拜祭的同路人，「希望大家都不要放弃。」**
+内容
 
-**在早上十时许，从罗湖道入口步行，沿途已有数架警车停泊，亦不有军装警员巡逻。初时市民人数颇多，包括一家大细和老人家。沿着斜路和楼梯蜿蜒而上，经过一座座刻有名字的石墓，人渐变得疏落。再顺着金塔斜坡段步行，歪过小路，便到达近七年的土葬山坡段。**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/cxcxxxx.png)图片来源看中国：港共便衣警员截查登记前来拜祭人士的身份证号码
-而警方自早上起便于沙岭坟场驻守，并要求市民和记者在进入T2019年段与T2020年段时，均需要登记身分证。今日亦不例外，记者欲进入公墓范围时，在正门守候的便衣警员立刻作截查。从楼梯拾级而上，只见石碑东歪西倒的竖立在两侧；碑上没有名字，没有相片，仅得死亡年份和号码，碑下埋葬着一具具无名尸体。现场稍显冷清，杂草丛生，惟不少墓碑前摆放着水果、糖果和奶油蛋糕，是市民前来纪念先人的凭证。每当有其他市民到场遭警员截查时，陈伯必会箭步在旁监察，又不忙向市民提供蚊怕水和矿泉水。
+Dr. Fauci
 
-身穿黑衣的陈小姐于十一时半抵场，在T2020段的墓区放置近百束白花，其中部分由自己和朋友自制而成。她指自己原本不懂得折纸，惟希望多行一步，遂与友人据网上影片自学，花近三天时间，以丝带折成一束束花朵。她表示因为是初学者，每朵花接近花费逾半个钟才完成，但希望以此机会向无名手足传意。
+福奇博士
 
-**战友点评：**
+It became very clear
 
-「**清明时节雨纷纷路上行人欲断魂。」这是描写清明时节的一句诗词，也描述了多少人的心情，然而我们的心情随着清明的到来，也变得有少许沉重，因为让我们想起无论是在中共国内地、香港被中共极权迫害而死亡的人，甚至因为中共的邪恶制造中共病毒肆虐全球感染至死的几百万人，整个世界因为邪恶的暴政在哭泣，多少家庭因为中共的邪恶而失去了亲人。我们也看到邪恶的中共极权暴政不会给世界带来安宁，只给世界带来了秩序的混乱及死亡的威胁和伤悲。**
+它变得非常清楚
 
-在中共极权统治的国度，因政见不同而或者因暴政人为的死亡者，到了年的清明时节他们的墓地都会被中共派打手监视。而在暴政统治下的香港，已经没有了自由也是这样，拜祭也被极权监控，中共真的无耻到人死了都不放过，真不知道港共政府惧怕什么？坏事做绝，是怕天网恢恢 ？
-![]()![](https://gnews.org/wp-content/uploads/2021/04/fedes111.png)图片来源：网络图片
-**派打手黑警自早上起便于沙岭坟场驻守，进入T2019年段与T2020年段时，警员不但监视，亦截查，是不是已经说明了这些碑上没有名字，没有相片，仅得死亡年份和号码，碑下埋葬着一具具无名尸体与政治有关？令人心痛，难道这里埋葬了就是暴政之下因政治原因各种「死无可疑」的人士？虽然无名石碑之下的人是一个迷，但是港共政府派出警力戒备，如此夸张的手法已经告诉我们。不但被黑警监视骚扰，仍有市民不畏强权暴政，前来悼念因抗争而去世的无名手足。**
+that decision we made on January the 10th
 
-**而中共以为滥用权力就可以掩盖，抹去曾经伤害香港人的罪行，无论中共怎样的动用权力恶法来阻止，但是他们的初心都会不变，而我相信这个世界是有公义的，中共极权暴政对世界人民所作的恶魔行为，总有一天会被审判，还因中共暴政而死去的人一个公道和早日安息。**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/ghyujuu.png)图片来源：网络图片
-【以上观点仅代表笔者本人】
+在1月10日我们做出的决定
 
-新闻来源：[独立媒体](https://www.inmediahk.net/node/1081853)
+to go all out and develop a vaccine
 
-审稿：卡西欧   /   上传：彩虹（ Rainbow )
+来全力以赴开发一款疫苗
 
-+1
+We have a number of vaccine candidates
+
+我们有许多候选疫苗
+
+May have been the best decision that I’ve ever made
+
+可能这是我关于作为研究所负责人
+
+with regard to intervention as the director of the institution
+
+做过的最好的决定
+
+0:21
+
+Rachel Campos-Duffy (Fox News)
+
+瑞秋·坎波斯·达菲(福克斯新闻）
+
+All right a quick reaction to that
+
+好吧, 对此的快速反应
+
+I know that’s got to be steaming you Peter
+
+我知道那一定要让你烦，彼得
+
+0:28
+
+Dr. peter navarro
+
+彼得·纳瓦罗博士
+
+Fauci is a sociopath and a liar
+
+福奇是一个社交变态者和骗子
+
+He had nothing to do with the vaccine
+
+他与疫苗无关
+
+The father of the vaccine is Donald J Trump
+
+疫苗之父是唐纳德·J·川普
+
+What is Fauci the father of,
+
+福奇是什么的父亲
+
+Fauci is the father of the actual virus
+
+福奇其实是病毒之父
+
+Fauci is the guy
+
+福奇是这样的家伙
+
+this virus according to Bob Redfield at the centers for disease control
+
+这个病毒按照疾病控制中心的鲍勃·雷德菲尔德（Bob Redfield） 的意见
+
+Came from the Wuhan lab
+
+是来自武汉实验室
+
+and basically we had Fauci not funding that lab with American tax payer dollars
+
+并且基本上，福奇不止用美国纳税人的钱资助了那个实验室
+
+He authorized this thing called gain-of-function research
+
+他授权了这个叫做功能增强研究的东西
+
+He allowed the Chinese Communist Party,
+
+他允许中国共产党
+
+the people’s liberation Army to genetically engineer a virus using gain-of-function
+
+人民解放军使用功能增强来制造基因病毒
+
+I call it the Fauci virus now
+
+我现在叫它福奇病毒
+
+If he wants to be the father of something
+
+如果他想成为某事之父
+
+He’s the father of the virus that’s killed over half a million Americans
+
+他是那个杀死了超过50几万美国人的病毒之父
+
+1:12
+
+Rachel
+
+瑞秋
+
+Well, Peter, we’re still trying to get to the bottom of that
+
+好，彼得，我们对那个仍然尝试着深挖到底
+
+* * *
+
+英听校：康州盘古农场 – Layka
+翻译：康州盘古农场 – Layka
+翻译终校：康州盘古农场 -Mike Li
+字幕+视频制作:康州盘古农场-天涯行
+审片:康州盘古农场-银龙
+发文编辑：康州盘古农场-轰炸机
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+
+0
