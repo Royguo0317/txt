@@ -1,23 +1,67 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美空军报告高超音速导弹试验失败
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1062530/)
+## 慧眼看世界20210407（图片新闻）
+` 神奇四侠` [轉載自GNews](https://gnews.org/zh-hans/1062515/)
 
-俄罗斯莫斯科喀秋莎农场 洛夫斯基灭CCP
+- 制图：透明的遮羞布
+- 编辑：Ranting
 
-编辑上传 水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/D.jpg)defpost.com
-04月06日，据美国有线电视新闻网（CNN）报道，美国空军报告了高超音速导弹AGM-183A ARRW发射试验失败。
 
-它由一架波音B-52 Stratofortress轰炸机发射。美国空军在一份声明中说“然而，这枚导弹未能完成发射程序”，仍留在飞机上，飞机随即返回加州爱德华兹空军基地。
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
 
-军方计划研究失败的原因，“从中吸取教训”，并尝试再次发射导弹。美国有线电视新闻网（CNN）写道，他们预计它能够加速到20倍音速。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-1.jpg)
 
-2020年9月，美军成功测试了两枚高超音速导弹的原型。这是洛克希德·马丁公司和雷神公司研制的装有大气喷气发动机的导弹。这些导弹并非自己飞行。对它们进行了载荷测试，并测试了它们在舰载机底部下承受5倍音速的能力。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-2.jpg)
 
-五角大楼随后表示，高超音速武器将在2023年进入美国地面部队服役。美国前国防部长马克·埃斯佩尔（Mark Esper）称，高超音速武器是美军“任务清单上的首要任务”。他说，为其发展投入了前所未有的人力和财力。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-3.jpg)
 
-参考链接：https://www.rbc.ru/politics/06/04/2021/606c7ebf9a79475c48131e78
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-4.jpg)
 
-0
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/a-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-1-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-3.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-4.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-5.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-6.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-7.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-8.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-10.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-11.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-12.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-13.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-14.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-15.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-16.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/b-18.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/c-1.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/c-2.jpg)
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/c-3.jpg)
+
+本文仅代表作者观点
+
+发稿：Ranting
+
++1

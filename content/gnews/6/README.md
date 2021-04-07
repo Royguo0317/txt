@@ -1,41 +1,80 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统批评佐治亚州新选举法过于软弱
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1062601/)
+## 美国情报部门警告 应重视供应链被中共国威胁
+` 倫敦英喜莊園 Himalaya UK` [轉載自GNews](https://gnews.org/zh-hans/1062770/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+新闻来源：FOXNEWS《福克斯新闻》| 作者：Brooke Singman| 发布时间：2021年4月1日
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/G-5.jpg)mjpureplayindex.com
-以拜登为首的左派大张旗鼓地攻击佐治亚州的选举改革法，川普总统则针锋相对，在反击左派、力挺佐治亚州的同时，也批评了佐治亚州选举改革法的不足，昨晚川普总统发表声明，对过长的选举时间提出了批评。
+翻译/简评：Dreamer文童|校对：感恩|审核：万人往|Page：小雨
 
-声明全文如下：
+[!\[\]()!\[\](https://spark.adobe.com/page/AfwKsl9RclzMt/images/1fcf3b46-2ea2-4a75-8474-1a5d2f11f74a.jpg?asset_id=0f047645-b939-4b75-ae77-8795c02952e1&amp;img_etag=%22725fb5a88864b36922147ece48637c0e%22&amp;size=1024)](https://spark.adobe.com/page/AfwKsl9RclzMt/images/1fcf3b46-2ea2-4a75-8474-1a5d2f11f74a.jpg?asset_id=0f047645-b939-4b75-ae77-8795c02952e1&amp;img_etag=%22725fb5a88864b36922147ece48637c0e%22&amp;size=1024)
 
-2021年4月6日
+**简评：**
 
-美利坚合众国第45任总统唐纳德·川普的声明
+去年年初，中共病毒肆虐世界，毫无准备的各国政府面对“闪电战”般的突然袭击而无力应对。多家媒体均报道，在疫情初期，个人防护设备（PPE）极其短缺，专业医护人员尚且没有充足的防护设备，更别提普通民众的各种窘境。众多网友在网络上传各种自制口罩和防护面具的视频。并非美国等西方发达国家没有能力制造这些技术含量较低的防护设备，而是数十年以来，中共国利用廉价劳动力已经垄断全球的低技术含量产品供应链。因此，在疫情初期，各国立刻陷入防疫物资短缺的困境，这对病毒突袭来说更是雪上加霜。之后，美国和日本意识到产业链回归的重要性，率先推出政策激励本国制造业产业链迁回国内。
 
-佐治亚州的选举改革法过于软弱，无法确保真正的选票真实和完整！选举日应该是选举日，而不是选举周，或选举月，投票的时间太长了，在这么长的一段时间里，可能会发生太多的“恶作剧”，你在2020年的总统选举中看到了这一点，鲁比·弗里曼（Ruby Freeman，笔者注：疑似舞弊的、佐治亚州民主党手提箱嫌疑人）怎么样了？
+本篇报道指出，美国情报和国家安全部门正式向公众发出警告，呼吁各企业应重视供应链威胁，并将供应链的安全性上升到“国家的生命力”的高度。可见，经过一年多的情报核实，美国官方已经认识到中共超限战之供应链市场垄断的威力。表面上看似，这几十年来一直利用十四亿中共国奴隶的血汗获取高额利润，殊不知，这个诱饵已经引诱美国在自己的脖子上套上了致命绳索。疫情初期防护用品短缺带来的惨痛，已经唤醒了美国官方，至此特发起应对产业链威胁的“行动号召”。
 
-州长布莱恩·肯普（Brian Kemp）和佐治亚州的州务卿本应消除无借口、泛滥的大规模邮寄投票，避免危险和不安全的投递箱，并应保持和扩大签名验证，以与历史选民档案进行匹配，等等！希望里诺（RINOs，共和党）一家开心。
+郭文贵先生早在去年年初通过视频提醒世界各国，应该调查哪些人在世界各地提前大量囤积口罩等防护设备，这就是在给各国情报部门提供线索。爆料革命和新中国联邦在此次全球灭共的世界格局巨变中，一直走在最前列，为唤醒各国民众及政府意识到中共对世界的威胁而奔走呼喊。等最后所有事实被一一验证后，爆料革命和新中国联邦将受到世界的承认和前所未有的尊重。
 
-坎普也向激进的左翼暴徒屈服了，他们威胁说，如果他取消周末的投票，他们会称他为种族主义者。看看，他（坎普）保留了这些条款，他们还叫他种族主义者！（声明完）
+**原文翻译：**
 
-宪政危机在发酵、博弈中，静待观察其它摇摆州，以及事态的发展。
+## **情报和国家安全机构对美国供应链威胁发出警告**
 
-声明链接：https://twitter.com/JennaEllisEsq/status/1379588554519670793/photo/1
+**黑客愈发利用公司和受信赖的供应商作为针对美国的“攻击载体**”
 
-声明文字整理：
+情报界周四发起一项加强美国供应链的“行动号召”，以应对来自外国对手的威胁，情报官员表示，这些威胁构成了“独特的反情报和安全威胁”。
 
-April 6, 2021
+国家情报总监办公室下属的国家反情报和安全中心（NCSC）与国土安全部的网络安全和基础设施安全局（CISA）、联邦通信委员会（FCC）和国防部的卓越安全发展中心合作，以“提高对美国供应链威胁的意识”，并与公众分享风险缓解的信息。
 
-Statement by Donald J Trump, 45th President of the United States of America
+“如果新冠病毒大流行和由此造成的产品短缺还不足以敲响警钟的话，那么最近对美国工业和政府的软件供应链攻击应该成为一个响亮的行动号角，”NCSC代理主任迈克尔•奥兰多（Michael Orlando）称，“我们必须增强供应链的弹性、多样性和安全性。”
 
-Georgia’s election reform law is far too weak and soft to ensure real ballot integrity! Election Day is supposed to be Election Day, not Election Week or Election Month. Far too many days are given to vote. Too much “mischief can happen during this very long period of time. You saw that in the 2020 Presidential Election. How’s Ruby Freeman doing?
+他补充道：“我们国家的生命力取决于此。”
 
-Governor Brian Kemp and Georgia Secretary of State should have eliminated no-excuse, widespread mass Mail-In Voting, gotten rid of the dangerous and unsecure Drop-boxes, and should have kept and EXPANDED Signature Verification to do matches against the historical voter file, among other things! Hope theRINOsare happy.
+这些机构还与美国国家采购官员协会和国家郡级协会合作，参与NCSC命名的“第四届全国供应链诚信月”。
 
-Kemp also caved to the radical left-wing woke mob who threatened to call him racist if he got rid of weekend voting. Well, he kept it, and they still call him racist!
+情报界表示，影响美国供应链的因素众多，包括生产短缺、贸易中断和自然灾害，但警告道：“外国对手利用美国供应链中的缺陷而实施的行动构成了独特的反情报和安全威胁。”
 
-0
+[!\[\]()!\[\](https://spark.adobe.com/page/AfwKsl9RclzMt/images/77e8bc2a-4598-417f-a464-2b452843d236.jpg?asset_id=f85e65cb-53cb-4d92-a10a-54b5e01605ce&amp;img_etag=%2231718f7e7c3128c2de1c617c699f23ee%22&amp;size=2560)](https://spark.adobe.com/page/AfwKsl9RclzMt/images/77e8bc2a-4598-417f-a464-2b452843d236.jpg?asset_id=f85e65cb-53cb-4d92-a10a-54b5e01605ce&amp;img_etag=%2231718f7e7c3128c2de1c617c699f23ee%22&amp;size=1024)2020年5月14日的照片显示，政府组织记者在北京参观时，身穿防护设备的员工在瑞萨电子（Renesas Electronics）的半导体生产厂工作。 (美联社图片/Mark Schiefelbein，文档)
+
+NCSC表示，外国对手愈发利用公司和受信赖的供应商作为针对美国的“攻击载体”，进行间谍活动、信息窃取和破坏。情报官员警告称，这些行为损害了“支撑美国政府和工业”的产品和服务，并警告会造成影响——“失去知识产权、工作岗位、经济优势和军事势力的下降”。
+
+NCSC解释道，最近的SolarWinds泄密事件使得公众更加关注软件供应链攻击，但表示这只是过去几年一系列攻击中的最新例子。
+
+据NCSC报道，今年2月，美国对朝鲜军方黑客的网络犯罪指控被解封，该指控推断加密货币计划得到软件供应链攻击的支持。
+
+去年10月，六名俄罗斯军方情报部门成员因多起网络犯罪而被起诉，其中包括2017年NotPetya软件供应链攻击，该攻击“使全世界的银行、商业、公用事业和物流陷入瘫痪”。
+
+去年9月，NCSC表示，美国对中共国黑客的指控被解封，他们曾针对全球100多家公司进行攻击，包括软件供应商。NCSC表示，黑客修改了供应商的软件代码，对全球客户进行“进一步的网络入侵”，以窃取数据和商业信息。
+
+NCSC本周表示，软件供应链攻击“特别隐蔽”，因为它们“侵蚀了消费者和软件提供商之间的基本信任”，并警告客户应该“警惕”即使是基本的网络任务，称“授权资源可能会被泄露”。
+
+至于应对威胁，NCSC表示，各组织和公司应努力使其供应链多样化，同时加强与政府和行业在威胁信息方面的合作，但也承认“没有单一且良好的解决方案使美国对供应链威胁产生免疫”。
+
+NCSC表示，关键是美国公司应该在整个组织中进行沟通，建立培训意识计划，识别关键系统和网络，建立缓解和减少任何企图破坏或攻击的方法。
+
+情报界对供应链威胁进行教育的努力，是在拜登总统2月签署行政命令，指示对计算机芯片、大容量电池、药品和关键矿物及稀土材料四个领域内的供应链进行为期100天的审查之后进行的。
+
+[!\[\]()!\[\](https://spark.adobe.com/page/AfwKsl9RclzMt/images/f064ef2f-735c-4b69-8a67-f30bf9b0bb1c.jpg?asset_id=291622aa-6eff-47ac-9100-e193ca01ec1d&amp;img_etag=%2246a34ab770323e7eb56871e1220318ae%22&amp;size=2560)](https://spark.adobe.com/page/AfwKsl9RclzMt/images/f064ef2f-735c-4b69-8a67-f30bf9b0bb1c.jpg?asset_id=291622aa-6eff-47ac-9100-e193ca01ec1d&amp;img_etag=%2246a34ab770323e7eb56871e1220318ae%22&amp;size=1024)
+
+该命令将指示在一年内完成6个部门的审查，重点是国防、公共卫生和生物防备、信息和通信技术、交通、能源和食品生产。
+
+情报和国家安全官员以及两党议员均警告称，中共国对美国供应链构成威胁，但该行政命令未提到中共国，也未单独指出中共国，而是重点关注其它缺陷。
+
+“我们并没有在行政命令中单独挑出任何国家的名称，”一位高级行政官员当时表示，“我们看到的是在一系列关键产品和部门建立强大而有弹性的供应链的努力，这些缺陷是能力、单点故障和潜在的环境灾难。”
+
+该官员补充道，他们“打算用这次审查来审视并解决一系列不同的缺陷”，特别是在美国“过度依赖竞争国家”的部分，包括中共国。
+
+🔗[原文链接](https://www.foxnews.com/politics/intelligence-national-security-agencies-us-supply-chain-threats)
+
+- [点击阅读英国伦敦喜庄园在G-News 的更多精彩文章](https://gnews.org/zh-hans/author/himalaya_hawk/)
+- [点击观看英国伦敦喜庄园在G-TV的精彩视频](https://gtv.org/web/#/UserInfo/5ee680a45bd6f123dd104807)
+- [欢迎加入【英国伦敦喜庄园】Discord官方群](https://discord.gg/gQcCnsACar)
+
+
+编辑：【英国伦敦喜庄园编辑部】
+
+[!\[\]()!\[\](https://spark.adobe.com/page/AfwKsl9RclzMt/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)](https://spark.adobe.com/page/AfwKsl9RclzMt/images/2b4299fe-43f0-4259-bbf1-03c2336cd64a.jpg?asset_id=d8cf6c88-68d9-4dfb-bcd0-ca11de9aad4e&amp;img_etag=%22f7bfd04bc68d76591fddb216c0435eab%22&amp;size=1024)
+
++1

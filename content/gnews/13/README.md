@@ -1,66 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 俄称制裁缅甸会导致内战
-` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1062440/)
+## 川普总统批评佐治亚州新选举法过于软弱
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1062601/)
 
-- 作者：文乐
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/G-5.jpg)mjpureplayindex.com
+以拜登为首的左派大张旗鼓地攻击佐治亚州的选举改革法，川普总统则针锋相对，在反击左派、力挺佐治亚州的同时，也批评了佐治亚州选举改革法的不足，昨晚川普总统发表声明，对过长的选举时间提出了批评。
 
-***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+声明全文如下：
 
-**西班牙2021年4月7日电/西喜社——**
+2021年4月6日
 
-据路透社4月6日报道，俄罗斯周二表示，西方对在政变中夺取政权的军政府实施制裁可能会引发缅甸内战，但法国表示，欧盟将加强对其的制裁。
+美利坚合众国第45任总统唐纳德·川普的声明
 
-克里姆林宫支持于2月1日推翻了昂山素季的民选文官政府的缅甸军政府。但是，它仍然面临着全国各地持续的民主示威和公民不服从运动，以及来自西方的谴责和更多的制裁。
+佐治亚州的选举改革法过于软弱，无法确保真正的选票真实和完整！选举日应该是选举日，而不是选举周，或选举月，投票的时间太长了，在这么长的一段时间里，可能会发生太多的“恶作剧”，你在2020年的总统选举中看到了这一点，鲁比·弗里曼（Ruby Freeman，笔者注：疑似舞弊的、佐治亚州民主党手提箱嫌疑人）怎么样了？
 
-周二，在缅甸主要城市仰光，抗议者在公路上喷洒红色油漆，象征着安全部队镇压人民的血迹。
+州长布莱恩·肯普（Brian Kemp）和佐治亚州的州务卿本应消除无借口、泛滥的大规模邮寄投票，避免危险和不安全的投递箱，并应保持和扩大签名验证，以与历史选民档案进行匹配，等等！希望里诺（RINOs，共和党）一家开心。
 
-“血还没干，”一位抗议者说到。
+坎普也向激进的左翼暴徒屈服了，他们威胁说，如果他取消周末的投票，他们会称他为种族主义者。看看，他（坎普）保留了这些条款，他们还叫他种族主义者！（声明完）
 
-政治犯协会（AAPP）说，自政变以来，几乎每天都有骚乱，军队和警察已经枪杀了570人，其中包括数十名儿童，而安全部队逮捕了近3500人。
+宪政危机在发酵、博弈中，静待观察其它摇摆州，以及事态的发展。
 
-被拘留的人中包括缅甸最受欢迎的政治家昂山素季，以及她的全国民主联盟成员，该联盟在11月的选举中击败军方支持的候选人。
+声明链接：https://twitter.com/JennaEllisEsq/status/1379588554519670793/photo/1
 
-然而，俄罗斯周二表示，对当局的制裁是徒劳和极其危险的。
+声明文字整理：
 
-国际文传电讯社援引俄罗斯外交部的话说，“事实上，这样的立场会使双方对立起来，并最终将缅甸人民推向全面内战。”
+April 6, 2021
 
-俄罗斯是缅甸的主要武器供应国，其国防部副部长上月在首都内比都会见了政变领导人敏昂莱将军，遭到人权活动人士的批评，他们指责莫斯科使军政府合法化。
+Statement by Donald J Trump, 45th President of the United States of America
 
-法国外交部长让-伊夫·勒德里安（Jean-Yves Le Drian）在巴黎表示，欧盟正准备针对缅甸军方的商业利益对其实施集体制裁。
+Georgia’s election reform law is far too weak and soft to ensure real ballot integrity! Election Day is supposed to be Election Day, not Election Week or Election Month. Far too many days are given to vote. Too much “mischief can happen during this very long period of time. You saw that in the 2020 Presidential Election. How’s Ruby Freeman doing?
 
-“我们将在27个（欧盟国家）的水平上增加对与军队有联系的经济实体的经济制裁，以便制裁可以很快实施，”勒德里安告诉立法者。
+Governor Brian Kemp and Georgia Secretary of State should have eliminated no-excuse, widespread mass Mail-In Voting, gotten rid of the dangerous and unsecure Drop-boxes, and should have kept and EXPANDED Signature Verification to do matches against the historical voter file, among other things! Hope theRINOsare happy.
 
-上个月欧盟对一些参与了政变和随后镇压的人士实施了制裁，而美国也对个人和军企采取了制裁措施，这些企业占了缅甸经济生活很大一部分。
-
-定于周三举行的抗议活动要求焚烧中国制造的商品。许多抗议者反对中共国，因为中共被视为支持军政府，是缅甸主要的投资者。
-
-过去两个月来，缅甸因政变而愤怒，政变突然结束了缅甸军方1962-2011年压迫性统治之后的民主和经济改革以及国际一体化的短暂时代。
-
-昂山素季和她的政党承诺修改宪法，以削弱军方的政治影响力。
-
-军政府说，它之所以采取行动，是因为11月的选举存在舞弊。选举委员会和国际观察员否认了这一说法，并表示将举行新的选举。
-
-西方国家支持抗议者要求昂山素季及其政府复职的呼吁。
-
-由于军方限制宽带、无线互联网和移动数据服务，组织抗议活动的能力受到限制。
-
-周二，那些能够访问社交媒体的人分享了罢工工人在曼德勒市游行第二天的照片，一些人戴着防毒面具，行三指礼，这已成为反抗军队统治的象征。
-
-据Mizzima新闻网站报道，当局已经对数十名名人、模特和大V发出了逮捕令，周二，一名著名喜剧演员在仰光被捕。
-
-著名记者西图·昂明特（Sithu Aung Myint）也在通缉名单上。他在脸书上表示他为自己被视为威胁而感到自豪。
-
-他写道：“当犯下罪行的政变委员会宣布你与全国人民都是动乱份子时，你会非常高兴，因为你在这场革命中被视为英雄。”
-
-“你的下一代将以你们为荣”。
-
-俄罗斯的表态明显是在支持缅甸军政府。是不是熟悉的味道？用“全面内战”来威胁国际社会和缅甸人民，这种颠倒黑白、恶人先告状的口吻与中共是何其的相似！不去谴责杀人犯，反倒说自卫者会导致更严重的后果，这就是威胁恐吓，其本质就是在拉偏架，就是在纵容、支持犯罪！在全世界自动灭共的大背景下，俄罗斯在缅甸问题上还和中共同一战线，令人愤慨。
-
-编辑：Victor Torres；校对: 阿伯塔；组稿：神奇四侠；发稿：信心的选择
-
-**新闻来源：**[路透社](https://www.reuters.com/article/us-myanmar-politics/russia-says-myanmar-sanctions-could-lead-to-civil-war-but-eu-plans-more-idUSKBN2BT0MP)
+Kemp also caved to the radical left-wing woke mob who threatened to call him racist if he got rid of weekend voting. Well, he kept it, and they still call him racist!
 
 0
