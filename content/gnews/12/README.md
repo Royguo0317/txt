@@ -1,158 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 郭爆料串珠（223-1/2）中共病毒和疫苗就是中共给全世界准备的人尸丸！
-` 喜马拉雅德国慕尼黑感恩农场` [轉載自GNews](https://gnews.org/zh-hans/1061842/)
+## 前国际货币基金组织卡恩是中共代言人&nbsp; 中共对美货币战迫在眉睫
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1061675/)
 
-**简述：现在是各种疫苗、测试剂蜂拥而上……捐测试剂的、捐疫苗的多了去了。但是兄弟姐妹们，我说过，我在几周以前就说过，什么疫苗啊、测试剂啊，会蜂拥而上。让我说啊，可以尝试，但别上当；而且共产党玩的就是这个，放毒者一定给你解药。
-什么叫人尸丸呢？2017年爆料的时候就说过人尸丸这个词。在共产党逻辑里面，是人都得让你相信，共产党的党员，让他吃了人尸丸一样。啥叫人尸丸？就是给你吃了人尸丸，你就得听我的指挥，那你还能活下去吗？你不听我指挥，你就不能活下去，让你死你就死，让你变坏你变坏，让你干啥你干啥。因为下一次你要吃解药，不吃你就得死，这就是吃了人尸丸的命运共同体。共产党玩的其实很简单，就是人尸丸的这种逻辑——玩大了！它现在想给全世界都吃人尸丸——CCP冠状病毒。这回玩大了！诶，它也在弄解药呢，看着办吧，看看全世界能不能被它给打趴下。——郭文贵20年3月20日
-你吃了他的“人尸丸”，你怕得病，得了病你得吃他的药。而且一旦你不去工厂工作，你的房贷、你的车贷，将让你死无葬身之地。这就是共产党的绑架，他的“人尸丸”。——郭文贵2020年3月28日**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-13-6.jpg)
-封面图文：吃了人尸丸，就得听我的指挥……不听我指挥，你就不能活下去，让你死你就死。……中共现在想给全世界都吃人尸丸——CCP冠状病毒。——郭文贵20年3月20日
+**郭先生在2021年4月6日的盖特视频中进一步曝光前世界货币组织主席卡恩（Dominique Strauss-Kahn）被中共收买，并且世界各大货币金融组织都已经被中共渗透。中共也正致力于抽走美国黄金、抛售美债等打击美国经济的一系列计划。然而美国的钟摆效应导致情报人员和政策不能够连贯，全国上下还在搞房地产经纪，两党还在争选票。此时的美国像一个诺大的冰山，在中共的煽风点火下已经沉没在即、迫在眉睫！**
 
-2017年7月3日
-今天所有的推友们没有想明白一件事，为啥你们生意这么难做？很简单，你贷不着钱，为什么？这就是王岐山的战略，控制住金融就控制了你的行为，对不对？你的商业行为全被他控制住了。你听过他提过教育吗？他不提教育，他认为你越傻越好。所以现在所有人难做，因为银行被他控制了，就让你难受，你的生意难做。
+**前国际货币基金组织卡恩是中共代言人****  ****中共对美货币战迫在眉睫**
 
-挣大钱，你可能吗？挣大钱你不官商勾结那行吗？官商勾结你就要行贿、犯罪嫌疑，按照他们定的那标准那5000块钱就抓人了，那他就要了你的命。官商勾结你就成了他整个筐里面的那个…他想怎么着你就怎么着你，就吃了人尸丸了，对不对呀？
+**Former President of IMF Kahn Is Owned by the CCP**
 
-然后，现在中国所有推友们，你们所有的生活行为被谁控制的？就是被那些官员。官员被谁控制的？官员的乌纱帽是『中组部』说了算，不给你乌纱帽是王岐山说了算。但是『中组部』要给乌纱帽，他（王岐山）说不，你是给不了的。所以说他不会把任何人放在眼里边。
+兄弟姐妹们大家好啊，4月6号。昨天，大家知道，直播之后影响非常非常大。跟我联系的(人)，非常明显，昨天这个直播完以后跟我联系的，绝大多数都是世界政治、经济(的)战略家，都是世界级的人物。（他们）就来了，来了来了来了，是吧？然后咱们战友们反应就不太了解啊欧洲啊，WTO组织，IMF(国际货币基金组织)，世界银行，这(些)是世界上合法的世界(级)机构。基本上现在大家还都以为这三个机构欧洲、美国的，是吧？控制着。不同的情况下，事实上都被老共不同程度的渗透，（但CCP)想弄也弄不下来。
 
-现在很多人说他没有军权，完全是无知愚蠢。军队最核心的就是粮草，他控制了金融你就没粮草，这是第一。第二个，哪个军队的家人不是在党内工作的，控制了党就控制了你的军队。他对党有生杀大权，还什么军队，无知啊，军队不是党员？起码常识都没有。
+Hello, brothers and sisters. Today is April 6th. You know, the response to yesterday’s live broadcast was huge! The people who contacted me after I came out of the broadcast were largely international political and economic strategists, and they were all world-class figures. They just reached out to me, alright? However, our fellow fighters’ responses reflected that they did not know much about Europe, the WTO, the IMF (International Monetary Fund), and the World Bank – those legal institutions in the world. Basically, everyone now still thinks that these three institutions are under the control of Europe and the United States, right? Actually, they have been more or less infiltrated by the CCP, but the CCP hasn’t succeeded even though they wanted to.
 
-一个前总参谋长说的，“王岐山是上天派来惩罚共产党的”。他说完这句话后，我对他刮目相看。这个前总参谋长说对了，这是上天派来惩罚共产党的。然后说，“上天让他来吸老百姓的血的”，我说为什么？他说：“这个家伙，就是吸老百姓血的……”
+另外一个就我说的那个卡恩 [注：国际货币基金组织前总裁]，卡恩这个小子上台以后百分之一百是共产党控制的。从他离开以后，他(去了)哪儿呢？就是在中法基金会当主席。马云和共产党一年给他1200万美元。你去想想去吧，(他)在美国弄成“犯罪”以后回到法国，又选总统。他要是选上总统，法国就是中共说的算了，想干啥干啥啊，那就是法国成了中共的小三了，百分之百的嘛！你看他现在还是。大家还记得这个人吧？跟那个什么斌啊，华斌，法国的华斌，那个特务，中法基金会主席。
 
-把所有钱都控制了，制定了金融政策，什么『财政部』，什么《中金》，你看他玩的这些《建行》、《中建投》、《长城资产》，全都是他的，龌龊啊。老百姓太可怜了，老百姓一天到晚看病看不起，吃饭吃不起，有车烧油烧不起，完全动荡之中，旅个游能把人给急死。你想想他们的那些子孙们坐着787，N个飞机，中国现在900架私人飞机都什么人？有一个是卖糖葫芦用的吗？有一个是杀猪的吗？有一个是种青菜的吗？你看看城管现在就抓那些山里边卖青菜的老头老太太，你连教育都不给人家，人家都不知道你是什么规则，结果进城你就把人家给抓了。你说悲哀不悲哀，可怜不可怜？
-傅政华和王岐山是心理变态、精神变态，他就是人间魔鬼。熊光楷是军方的王岐山，绝对绝对是坏蛋。人在做天在看，这最好的一句话。为老百姓做什么，都是对的，任何坑害老百姓的都会得天报，一定会得报应。
+The other thing is about Kahn (note: Dominique Strauss-Kahn, Former President of IMF). This guy, after coming to power, has been 100% controlled by the CCP. Since he stepped down, where has he gone? He became the Chairman of the France China Foundation. Jack Ma and the CCP give him 12 million U.S. dollars a year. Go think about it, he could return to France campaigning for presidency after committing a crime in the U.S. If he were elected, France would be owned by the CCP, and the CCP would be able to do whatever it wanted to and France would become the CCP’s mistress, 100%! Look at him, he is still like that [colluding with the CCP] now. You may still remember this person because of the guy named Hua Bin in France, a CCP agent, the Chairman of the France China Foundation.
 
-2017年7月24日
-所以说推友们，文贵再次呼吁，不要再互相掐，互相斗了，这都是病毒，都还是毛病。但凡有一点点脑子，有一点点常识的能相信他们说的哪句话呢？凡是他们说的你都要say no 不要看，我现在他们说的我都不看。不要浪费自己的生命，不要再让他们在你的脑子里植入人尸丸，不要再当他们的牺牲品，不要再回到毛屎坑当大蛆去。我们要当海里的鱼，山上的老鹰和鸟，不要当毛屎坑里的蛆。
+所以整个当时IMF这个机构里边，也有咱战友。他清晰的记得当年卡恩这个家伙搞亚币啊，基础银行啊亚投行啊 [指：亚洲基础设施投资银行]，都(是)他折腾出来的。后来这就是为啥美国人当时警告他（的原因），你再敢说亚币整死你孙子，这就闭嘴不敢说了。这里面很多故事，哪天我要讲的时候，要是聊起来那大家会很惊讶，因为很多人很多事都是我亲身经历的。
 
-2017年8月3日
-甚至不管你怎么说，得到什么样的答案，都是对他们有利的。而且你无法控制，因为国家机器，这四把武器在他手里。但是九千万党员不是傻子，我初步的评估九千万党员，百分之一的人是坏人，九百万人，有个七，八百万人吧，一百万人，我们就说五十万人！是坏人，百分之九十九是好人，他们在玩弄百分之九十九的人。让这百分之九十九的人能站出来说话，那比登天还难，为什么？我们的嵴梁被打断了，我们很多人已经被蒙上了眼睛，洗脑了，吃了人尸丸了。
+So we have a fellow fighter in the IMF this whole time. He clearly remembered that Kahn was engaged in Asian currency and the Asian Infrastructure Investment Bank, which were all this guy’s work. For this, later he was warned by Americans that “if you dare to say anything about Asian currency, you bastard will get killed”. And then this guy shut up and dared not say it anymore. There are a lot of stories behind this. When I am ready to tell you someday, everyone will be surprised by these things. Many people and things are based on personal experiences.
 
-百分之一的人控制真百分之九十九的共产党员，要让他们看清楚，看明白，对他们实实在在的威胁，是需要时间和事件的。光仅仅一个海航那是不可能的，就像我说的那恒大的许家印，那香港的股市你好好查查，过去这些年股市怎么起，怎么伏的？那贷款哪来的？那每个项目的容积率是怎么调整的？怎么搞的金融？怎么获得盛京银行的股权的？哪个公司的股权是怎么来的？那说起来大了去了，还有上海的上海银行，多大呀，是不是。还有头两天…
+这就是看出来咱战友们对世界形势的把握和认识。你看昨天路的访谈，博士军团整不明白这事，他没亲身经历，是吧？没有亲身经历就整不明白，只能是从表面上看，这背后的故事是看不到的。这就是一个局限性，这种事情你不亲身经历你是说不清楚，道不明白的。这整个的，中共谁去跟他(卡恩)联络，怎么回事？(发生了什么事)在法国？当年在欧洲怎么弄的？这里面有很多很多事情和人。
 
-对说到这儿，我听说…我昨天才知道，有人告诉我说，我说到金木棉公司，金木棉竟然发信息威胁我们，我这还不知道。金木棉公司你听着，威胁谁都可能，你威胁郭文贵你威胁错了，你再来威胁威胁试试？接下来一定有你金木棉！你再威胁威胁，你把你那黑料拿美国来试试，你对我来试试。我就巴着你们有点行动才好呢。
+From this we can see how much our fellow fighters understand the world situation. If you have watched yesterday’s Lude Show, you will find that our PhD Team didn’t know much about this [IMF and Kahn]. That’s because they haven’t personally experienced it, have they? So they can only interpret it superficially because they didn’t know the stories behind the scene. This is their limitation. So if you don’t personally experience this kind of thing, you can’t interpret it clearly. This whole thing includes who was sent by the CCP to contact him (Kahn) and what was done, what happened in France, and what did they do in Europe. There are many many things and people involved.
 
-还有绿地集团，还有澳大利亚那些私生子，这些事情早着呢。所以说这些东西爆出来，哪个都是很大的事儿。所以等这些事情爆完以后你才能发现，推友们！我说的盗国贼们远远超出你们的想象。这是为什么717以后，全世界有本事有知识的华人们，像袁虹冰大师，像唐柏桥先生，像辛浩年先生，像曹长青先生，像赖建平律师，还有像一个个出来的女士们，都看到了事实的本质和真相，这是需要时间的。
+你要没有这个亲身经历，你没有一个国家级的权力的这个参与，很难窥视到这种核心的秘密。就连美国这个国家所谓的情报部门，因为它政府每四年、每八年换一次，一换完人就走了，很多人也没有连续下来，这是美国很可怕的地方。好是好在一个民主的政府，坏是坏在四年左四年右，八年左八年右，你没办法。政府也换，国家策略也换。这是美国的很不好的地方，很难打交道，很难延续政策性，很难让这个国家能完整的记忆下来曾经历史上给它带来的危机和伤害。
 
-717绝对是一个革命的事件，接下来我们还会在爆料中一次一次的有革命事件，让全国人民多一点人…一千万人民坚定的相信盗国贼是他们的威胁，是我们国家和民族的威胁，也是习主席和九千万党员，九十九点九的人真正的威胁，我们才有机会赢！这才是重点，这才是真正的重点！所以说，大家要看到，盗国贼接下来要用的手段，那会越来越猖狂。他越猖狂越好，郭文贵就是个照妖镜。
+If you don’t have this personal experience, or you haven’t been involved in this with a state-level power, it will be difficult for you to get a glimpse of this kind of core secret. Even people in the so-called national intelligence agencies in the U.S. don’t have continuous exposure [to this kind of secret] because its government is replaced every four or eight years, and people leave as soon as an administration is over. This is a terrible thing about the U.S. The good side is that it is a democratic government, and the downside is that its government shifts between left and right every four or eight years and you have no choice. The government constantly changes, and so are the national strategies. This is a very bad part of the U.S., because it makes it difficult for people to deal with them, there is hardly any continuity in its policies, and it is difficult for this country to fully remember the crises and harms ever brought to it in history.
 
-2018年3月18日
-不管你反不反腐，真反腐假反腐，这个环境一点没改。现在世界上最残酷的、最冷酷的、最可怕的就是那个讲：“我感动” 的那个，就是党员，基层党员——都是人家的工具，都是为了那种什么什么尸丸了，人尸丸了，让你干啥你干啥。不用你，啪唧，你就完了。不给你为刑事犯你就活不了。这就叫盗国贼，绑架了14亿人民，绑架了全国人民。最惨的是共产党，最惨的是军队。嘭嚓嚓，嘭嚓嚓。
+就像这样的事情很多美国人就是一弄就过去了。 但是共产党可不过去啊，弄了七十年了。所以说这是完全不同的概念。这就是昨天华盛顿的很多人跟我说，“哇！都是最高级的人，问的问题跟孩子一样，跟孩子一样。”我说你走着看吧啊，这回(共产党)抽掉(美国的)黄金，抽走黄金，这都在计划范围之内。它抽黄金，这边儿准备好抛售（美国）的国债。
 
-我们家就有好几个，朋友家好几个，都是在北京仪仗队出来的，身体都练坏了，回去以后谁管你啊！都成了老兵。再过10年，看那个捂住宪法那个，护送宪法的人，都那样那个，您看那些老兵啊，都得成为老兵，都得被信访了。这个，说实在话，手按宪法的严肃性就是多少人尊重。
+Things just like what I mentioned can be easily let go by many Americans. But the CCP won’t let it go, it has been working on those things for 70 years. So this is a completely different concept. This is why many people in Washington D. C. told me yesterday, “Wow! Those people are all top-rank officials, but the questions they asked are like questions from a child.” I said let’s wait and see. This time the CCP is withdrawing gold from the U.S., which is totally within the scope of the CCP’s plan. While they are withdrawing gold, they are getting ready to sell U.S. Treasury Securities.
 
-他来自于哪里？他来自于老百姓，你不用按着它，你心里有你就会尊重它，如果你心里没有，对你来讲你抱着那都是骗人的。那是你的，跟这些人没关系。那是为王岐山等盗国贼所用的。有用吗？什么国家长治久安，不需要党内斗争，西方势力侵略我们，我们现在一致对外，需要一个环境，不需要斗争….这都是借口。那就你行吗》别人也行啊！14亿人民就你行吗？对不对啊？啊呀，有些话我就不说了。
+美国现在使劲推房地产市场，房地产你知道，美国上次的金融危机，就是房地产市场(引发的)，是不是？就是房地美，这些房地产完全是胡扯的，是诈骗。最后搞（成了）个世界级的金融灾难。美国是在那个时候美元大幅贬值，大家你拿的还是美元，但是经过2008年的金融危机，美元已经大幅贬值，甚至信用超级受损，那个是永远过不去的。这个是美国非常可怕的一面。
 
-2019年10月18日
-所以说共产党的疯狂只要他行动。我从第一天爆料就说，共产党的恐惧就是我们的武器。共产党愚蠢的行动就是我们的证据。我们拍死就不搞爆料革命了，甭说是钱了。大家但凡有点良知的就看看陈彦霖，看看被砸昏的，两次被砸成这样的岑子杰。如果我们还俱死，我们还配当人吗？如果我们在乎那点皮毛损失，所谓的虚假的，完全两个面包就能换来的名义。我们还配当人吗？面对这个邪恶的共产党有权力干一切事情，一切都是党的，一切听党的，爹亲娘亲不如党亲。然后他站在天安门城楼上，害死你家人后，让你的家人举着你的牌，坐在车上，然后这样举手（举手状）。向右转，就这样，丑的不能再丑了，滑稽到了极点，面无表情一群行尸走肉吃人尸丸的人。
+The U.S. is now pushing its real estate market vigorously. But you know the real estate was what caused the previous financial crisis in the U.S. Like Freddie Mac, these real estate firms were completely nonsense and were a fraud. In the end, they led to a global financial crisis. During that time, the U.S. dollar depreciated sharply. So, the dollars in everyone’s hands now are still called U.S. dollars, but after the 2008 financial crisis, the U.S. dollar has depreciated a lot, and even its credit has been extremely damaged and will never go back again. This is a very scary thing about the U.S.
 
-悲哀啊！唱那些最愚弄人的歌曲，有一天我希望全世界把这歌曲定为全世界最最有毒的歌曲，谁唱谁犯法。
+这就(是)为什么现在美国人没闹明白，(美国)还在推房产，两党之间（还在）完全（想着如何）拉选民，是吧？然后现在还要不允许房地产止赎，就是你把房地产赎回去这是不可以的。不允许银行强迫老百姓把房子怎么样，这不就共产主义了吗？共产主义（但）所有金融市场都是私人商业行为，那最终就完蛋了嘛，就这么简单。
 
-东方红太阳升，中国出来个毛泽东。然后他为人民呼呀嗨，他为过人民吗？他为人民的毒药都是子弹啊。社会主义好，社会主义好，社会主义哪好了，死那么多人。你可以生一个孩子，他可以生一群孩子。你的房子，你的地都是他的。谁家有个美姑娘他想弄走就弄走。谁家有个好儿子，陪他们家人上床去。都是工具，想杀谁杀谁。世界上有这么邪恶的组织嘛？到了美国来，我要跟你谈合同，谈协议。谈完一切不算数。偷人家的技术，偷人家的钱，还得说人家是美帝国主义。一骂人家七十年，天下岂有此理啊。还要人家服你，还得让人家说你是我的好朋友。
+That’s why I say Americans still haven’t figured it out now because they are still pushing real estate, and the two parties are still thinking about how to please their voters, right? And now even foreclosure of real estate is not allowed, that is, it is impossible for you [the bank] to reclaim its properties. If banks are not allowed to foreclosure people’s houses, it will be just like communism, right? Communism with all the financial markets still being private businesses will lead to everyone’s deaths. It’s that simple.
 
-2019年12月1日
-招商银行，昨天我看路德先生爆料李小冉还有什么。那个叫票据，用票据搞走的10几亿，太容易了。一张信封里边盖个章，10几亿拿走了。这个信封，他永远不掉下来，只要转、一直转，钱都弄到外国去了。为什么这么做？因为中国在搞票据金融，完全是诈骗金融。他靠什么来养活这票据金融、影子银行、盗国贼的印钞和财富，通货还不膨胀。很多外国人都在问我。为啥中国通货不膨胀。我说因为他滞涨啊！这是个最起码的常识。中国的核心问题是滞涨！还有一个中国东西南北经济不平衡，市场不透明，生产材料绝对垄断，然后非市场化的，绝对是社会稳定性的材料的供给，包括粮食、农作物，这是核心。
+所以说货币供应出了问题，整个黄金再被(共产党)偷走，（美国）国家信用出了问题，然后金融市场再出问题……你再拿钱补，你(美国)再印钞票吗？是不可能的。所以（大家）能听到现在，（美国)现在站在一个冰，即将化掉的冰块上。这就是世界政治和世界经济(的现状)。
 
-中国人就是奴隶！就是被他们统治的行尸丸、人尸丸、统治的奴隶！这是为啥中国人不知道呢！
+So now the currency supply has encountered problems, all the gold is being stolen by the CCP, and the credit of the country is problematic, and then the financial market encounters problems too. You want to use money to fill the holes? You want to print more money again? No way! So if you hear me to this point, you will know that the U.S. is like standing on an iceberg, a melting iceberg. This is the current state of world politics and the world economy.
 
-那些当村长的、当县长的、当市长的，你们这些王八蛋，你们就不会告诉这些农民、你们家人吗？你种粮食就是个傻瓜，全是赔钱的。美国的农民种粮食利润率是多少？大家上网查一查。中国农民种粮食的利润率是多少？大家上网查一查。欧洲农民种粮食的回报率是多少？巴西种粮食的是多少？巴西几乎是自然形成，巴西农民农作物粮食的回报是中国的200倍、200倍。美国是中国农民的是多少？是50倍。欧洲是中国的一百倍。50 、100 、200倍。巴西的粮食放在那弄完就是一个人工成本。价格，中国买走。为什么？中国人投一块钱，农民里面投一块钱，回来0.01分。一亩地挣300块钱，一亩地挣50块钱，还有一亩地要赔钱。但这一亩地的粮食是多少钱？大家算一算。人家巴西是多少钱？你美国多少钱？欧洲多少钱？50，100，200。
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/606c6e1edbc8001854a5f3af](https://gtv.org/getter/606c6e1edbc8001854a5f3af) (0:14-5:31)
 
-中国人的可怜，为啥现在要建那么多火葬场要给你们准备着？用火葬场把你所有的钱给你榨干，然后再用墓地，如果榨不干再用墓地！中国人说实话，拍拍自己的良心窝子。有几个人能死得起，有几个人能埋得起。你想埋在地里面去，给你挖出来，给你扔了、给你扔了。共产党让你火化，那不是开玩笑的。你火化就让你死之前把钱全给火化场，死的方式都给你定好了。还有这共产党。一个国家的土地被一个党控制着，这个王八蛋，哪有这个！全人类上只有这一个。
+鸣谢：感谢盘古小蚂蚁、Antsee-GTV、TING GUO 提供中文文本于 [https://gnews.org/zh-hans/1059090/](https://gnews.org/zh-hans/1059090/)
 
-美国人、我从没见过美国人说，中国人没有土地，他不懂。我们要让美国人说中国人是没有土地的，这土地是被党管的，是没有人相信的。然后中国人死亡方式是共产党说了算，死亡以后的处理方式共产党说了算。火葬场对外开放吗？你见过私人开火葬场的吗？恒大超级医院，他是因为不允许开火葬场，他才在那个医院里面搞了一个死亡以后的所谓的化妆一条龙服务，变相的弄个火葬生意。因为火葬是垄断的，火葬场是垄断的。然后到了墓地，墓地又是垄断的。你能拿到墓地的经营证吗？哪个不是有钱人家！
+* * *
 
-人家曾庆红的儿子曾伟第一笔生意。当年的在承德搞了第一个生意也就是在重庆被抓起来的老孙。第一块地，批了块墓地，这是曾伟起家的开始。孙政才、孙政才，大家知道孙政才怎么发家的吧！孙政才就是当时搞了，给曾伟的。这一说墓地，这泡泡都起来了，不是龚火鸡发力了吧！孙政才帮助曾伟搞得块墓地，发了财了。大家都知道这事儿。
-
-2019年12月18日
-我说我们未来中国人，我早上可以换你，我晚上可以换你。但是这个国家的法治是第一重要，这是法治基金的重要性。法治必须以法办事，然后要宗教信仰的自由。中国人只要有了可以宗教信仰了、自由了，他不会跟你扯淡去，不会给你闹腾去。
-
-所有中国的核心问题是这个党控制了老百姓的脑子，搞了一个最溷蛋的教育部，然后呢！又信仰、宗教不自由，把中国人变成了人尸丸的人尸，变成了行尸走肉，就这几条。我们现在要的革命就是把土地还给老百姓，把那剥削老百姓的钱和老百姓的东西还给老百姓，让老百姓随时可以决定政府的去留，这就是我们想要的。
-
-然后、当然外国人说好、好。怎么办？我就说了推翻共产党，建立一个有法治的、民主的自由政府。香港给了全世界答案，就这么简单。那么从昨天香港看到了台湾，你看看台湾。台湾如果要有香港人10%的勇气，台湾今天的一切都会比现在好多少倍！最烂的是现在我们大陆14亿男人，完了。
-
-2020年1月1日
-所以说战友们，他看到了整个上下这个被洗脑的严重性，他非常之惊讶。
-
-我要说到我今天跟爆料革命的关系，我们再回到很小的事，跟爆料革命根本不值一提的事，郭宝胜案，火鸡龚案，孟维参案，熊宪民案，夏业良案，李洪宽案，东京爆协案，袁红冰还有相林的秃驴，还有什么说这个这个成水炎，自由中国的这个烂仔。还有美国的叫Waller, Wallop两个骗子，还有吴征案，马蕊强奸案，还有董克文的克文贵的，所谓的7家建筑公司案。梁冠军在楼下的游行和郑祺到门口要两次，要杀害文贵。大家往回看看陈军案，吴征的各个案子以及我们现在看看，在香港反送中运动以来，我们爆料革命的所有媒体，我们发生的事情大家看到了没有？有多少人是明辨是非的，有多少人真的是能做一个起码人和畜牲之分的一个起码判断的，黑白、善恶，这是做人最起码懂的吧，黑天白夜，白天黑夜，黑白白黑呀，还是黑白不分啊？
-
-战友们，大家想想往回想，我是当事人，经历这一年300多天，多少个事情？没有共产党以后的中国，老百姓一夜之间眼睛就张开了？一夜就开智了？
-
-今天早上卡丽熙节目，我们就草根小哥，草根儿小哥儿给路德先生打赏，每次100美金、200美金，天天打，打多长时间是吧，那草根小哥家里可是有钱的哈，那是本人很有钱的，也是很英俊的，非常阳刚的。他以草根小哥的自居，他脑子开悟了，他知道共产党是王八蛋，他知道什么是好是坏，什么是黑是白，什么是善是恶。
-
-他第一次上节目，很粗鲁啊，上节目前问我，我能不能这个，呃，很直接。我说很直接，我们就是草根，就按草根的话说，但是如果他不在爆料革命当中，他在国内，大家想想会什么事情发生，什么事情发生？
-
-看着我们现在一系列的新战友，看了他的背景，如果没有西方的这种教育文化真相媒体影响，每个人都是共产党的，吃了共产党的人尸丸子的，脑子被洗干净的危险分子。
-
-说到这儿，我告诉大家，没有人能了解我的内心感受。上半年还好点儿，后半年我每天我都在问我自己，没有共产党的中国，对中国是好吗？没有共产党的中国，中国会乱吗？没有共产党的中国，会不会成为原来苏联倒台之前俄罗斯那样？
-
-我的答案是，只有没有共产党的中国，中国人才不会像当年苏联那样，为了一块腊肉，为了几条牛仔裤，为了一盒面包，就把自己女儿奉献出去，只有这样。不把共产党灭了，不早点灭共产党，中国人一定会走向那一天。
-
-2020年1月27日
-亲爱的党员们、同胞们，我们把你们当同胞，你们不要把同胞当敌人，这是你们最后一次选择。
-
-如果这次疫情还不让你们看清楚共产党的本质，你们就是吃了人尸丸的工具。那么，未来灾难将伴随着你们。
-
-这是你们一次最好的机会，让你们看清中南坑：他有的，你永远不会有；你有的灾难，他也永远不会有；你有的牺牲，那是你必须做的，这就是现实。
-
-现在全世界已经成什么了，大家看到金融市场，看到黄金市场、股票市场，我请问国内党员，你有钱能取出来现金用吗？你能换成美金吗？你孩子能出国吗？你的领导哪个孩子不出国了，哪个家人不把钱换成美金了。全世界现在金融市场的变化，未来你甭说吃大米、吃猪肉了，你真的能吃垃圾都不错了！
-
-看看我们三年的爆料，有什么没发生，你们扪心自问。我们三年每次在镜头前的直播视频，你就问一句话：如果没有爆料革命，这次疫情会是什么样，看看我们救了多少人。
-
-在国内多少人给我们发信息，感谢爆料革命，感谢我们的路江谈、路德谈、路安谈节目当中叫大家存粮、取钱，提前告知疫情，救了多少人。我每天，我都接不完了，爆棚啦！随便我拿一个手机，每天都达到50万个信息，绝大多数是感谢的。
-
-亲爱的同胞们，不管是党员还是党外的同胞们，此时此刻是我们面临最佳选择的时候，在上天给了我们最后一次明赐，我们要选择站在上天的万佛万神的这个角度，追求让中国有真正的法治社会、信仰自由的社会，听从上天的旨意，做出一个人内心最正确的选择。讲出你们心中的真相，保护好你的子女和父母家人。
-
-我们干掉共产党，是唯一消灭疫情的最佳选择，否则共产党会利用疫情毁掉一切！
-
-站在前线的共产党员们，你们想一想吧！在你站着的时候，中南坑的包括你当地的书记、省长，哪个不是在玩双休？哪个不是洗着热水淋浴澡？哪个不是得有距离地在听着你汇报工作？一个连口罩多少个都搞不清楚的领导，能给你安全吗？吃得肥头大耳的一个个领导，他能吃那普通的饭吗？你站在前线就是工具，不要再执迷不悟了！亲爱的同胞们！不要拿着爹妈、丈夫、老婆、孩子的未来，再去无知地牺牲了，应该醒醒了！
-
-接下来你会看到世界上全面的行动，如果再执迷不悟，那就是过街的老鼠人人喊打。
-
-现在中央电视台天天说，美国搬起石头砸自己的脚，到底谁砸谁的脚了？中国的产业链，现在在哪呢？连个口罩都没有，连个疫苗都没有。中国的人民军队敢打仗、能打仗、能打赢，你现在在哪呢？你连个帐篷你都盖不起来，你打什么仗？！你打什么赢？！
-
-所以亲爱的兄弟姐妹们，此时此刻，我们的每一秒钟都有巨大的价值。上天给了我们使命，我们必须听从上天万佛万神的召唤，铲除在中国大地上的妖魔、邪怪。
-
-中国人这次有疫情，就是因为我们在过去几十年，容忍了共产党，上天对我们的惩罚。我们该做出明智的选择了，不要苟且偷生！
-
-2020年3月20日:
-现在是各种疫苗、测试剂蜂拥而上，哎呀效果……捐测试剂的、捐疫苗的多了去了。但是兄弟姐妹们，我说过，我在几周以前就说过，什么疫苗啊、测试剂啊，会蜂拥而上。让我说啊，可以尝试，但别上当；而且共产党玩的就是这个，放毒者一定给你解药。
-
-什么叫人尸丸呢？2017年爆料的时候就说过人尸丸这个词。在共产党逻辑里面，是人都得让你相信，共产党的党员，让他吃了人尸丸一样。啥叫人尸丸？就是给你吃了人尸丸，你就得听我的指挥，那你还能活下去吗？你不听我指挥，你就不能活下去，让你死你就死，让你变坏你变坏，让你干啥你干啥。因为下一次你要吃解药，不吃你就得死，这就是吃了人尸丸的命运共同体。
-
-共产党玩的其实很简单，就是人尸丸的这种逻辑——玩大了！
-
-它现在想给全世界都吃人尸丸——CCP冠状病毒。这回玩大了！诶，它也在弄解药呢，看着办吧，看看全世界能不能被它给打趴下。
-
-亲爱的兄弟姐妹们，我们一定要清楚，是共产党的病毒，可不是中国人的病毒。川普总统已经改口了吧？他一定会改过来的，他一定会改过来的。绝对不能叫中国病毒、中国人病毒，这叫共产党病毒，CCP病毒，CCP武汉病毒。
-
-所以三天前我跟班农先生有一个通话，他要见我，我没时间，因为他那个团队里面会加入一堆的人进来，要灭共。我提出了很严肃的要求：班农先生，你必须要告诉你的朋友、还有你们新的组织；我跟他说了很久，我说你一定要很严肃地解决这个问题，绝对不能把这个共产党病毒和我们中国人联系在一起，甚至都不能叫中国病毒。共产党它是一个非法组织，绝对不能叫中国病毒，我坚决抗议。
-
-所以凯尔·巴斯，还有班农先生，昨天他在节目当中就明确说：这是共产党病毒，不是中国病毒。凯尔·巴斯先生，开始发推文说：这是中共病毒、武汉病毒，不是中国人病毒。
-
-大家都看明白了是吧！再说这是大事，（这黑锅）不能让中国人给背上。
-
-另外一个，我相信川普总统很快也会改过来的，他也会改，一定会改，我深信不疑。
-
-所以说亲爱的兄弟姐妹们，这是大事，这是原则，这绝对是原则。我们要的就是，决不能让任何人以任何理由、任何手段，把14亿中国人变为全世界的敌人。
-
-别在那装，你装什么装，14亿人都傻？你聪明？少来这套！共产党把全中国人当傻子，你们又来一帮，又把中国人当傻子。你知道有多可怕么，现在各大院校都在争，到底“中国病毒”、“中国人病毒”还是“武汉病毒”、“共产党病毒”。一旦全世界形成，任何一个国家，任何一个群体说“中国人病毒”，我可以告诉你们战友们，任何你们本人、你的家人，以后在这个地方永远无法生存下去。而且可能是合法的被猎杀的对象。
-
-什么叫病毒啊，你这个人种叫病毒了，你要杀人呐，人家杀你是正常的。看看美国国家安全法案说什么，当美国的公民性命收到伤害的时候他有什么权利。——这不是开玩笑的。
-
-所以说，这是多大的事啊，还有人煳涂呢。有人不懂英文，就让人家给你解释解释英文；有的人懒，不愿意上网看那些大家都知道的信息，找个人给你说说信息，都是大家都知道的。你坐在沙发上，你就看着这个，给人家捐钱，然后等着别人再把你家人给杀了。愚蠢到如此的程度，还有人替这人说话。所以中国人这个悲剧啊，它不是偶然的。走到海外了，都民主法治社会了，还那么愚蠢。人家把刀都架你脖子上了，捅到你心窝子里面了，还笑着问你舒不舒服啊，够不够凉啊，够不够快啊。你还说，挺舒服，能不能再使点劲啊，这就可怕。
-
-日本人跟中国的日中战争，侵华战争，就一个道歉的字，到现在不说。为啥不说，说了道歉你要付钱，说了道歉你要负责任。如果把这个事变成中国病毒，中国人病毒，那是很可怕的。
-
-有人说，川普总统说的。放你大爷的屁！你是川普总统吗？人家代表一个美国国家，人家是受害者现在，你是川普总统吗？川普总统说灭共的话你咋不说呀！川普总统说灭共产党的话你咋不说呀！你捡出一个最伤害中国人的话，你让全中国人相信。竟然有人说，川普总统说了，川普总统说要灭共你咋不说呢？
-
-[郭爆料串珠系列文章标题和链接汇总223 – 1](https://gnews.org/zh-hans/888831/)
-
-[郭爆料串珠（223-2/2）中共病毒和疫苗就是中共给全世界准备的人尸丸！](https://gnews.org/zh-hans/1061907/)
-
-整理：德国感恩农场文迅等
-发稿：如风
-郭爆料串珠系列文章，都是从800多篇郭文贵先生直播听写文字版、盖特精选而成，具有文献价值。由德国感恩农场文迅等按时间、主题整理。感谢战友听写！
+字幕：【JennyL】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0

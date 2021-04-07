@@ -1,13 +1,11 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】彼得⋅纳瓦罗：巴西变异病毒的传染性和致死性更强
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1061349/)
+## 中共野蛮抄袭西方的真相
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1061492/)
 
-3/30/2021 班农战斗室——彼得⋅纳瓦罗：初步科学证据表明，巴西变异病毒的传染性和致死性更强，疫苗对此可能也不太有效。
+摘要：看中共40年野蛮抄袭西方的真相，一路抄到世界第一排。
 
-By： 【秘密翻译组 G-Translators】
-
-
+**By：【秘密翻译组 G-Translators】**
 
 0

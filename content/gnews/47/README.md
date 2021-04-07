@@ -1,33 +1,17 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 路德时评简讯（视频版）:闫博士接受Newsmax采访爆料病毒真相(2021.4.2早间路德社简讯之路路安墨谈)
-` 路德社` [轉載自GNews](https://gnews.org/zh-hans/1061160/)
+## 2021年4月7日 文贵先生盖特 1
+` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1061261/)
 
-《路德社》出品
+编辑整理： **西班牙巴塞罗那喜悦农场 **（文惜）
 
-以下视频是详细内容:
-
-内容摘要：
-
-一、美国右派媒体采访闫博士寓意为何
-
-二.闫博士接受Newsmax采访爆料病毒真相
-
-三、蓬佩奥会见台驻美代表萧美琴
-
-四、中共意淫谭德塞病毒“反水”言论
+文贵的警告再次应验：苏伊士运河或霍尔木兹海峡迟早会再出事 Miles Guo’s warning came true again: A matter of time a Suez Canal or Hormuz Straits accident repeats again
 
 
 
-制作：路德社简讯视频组
+[【2021年4月7日】文贵先生盖特原文](https://gtv.org/getter/606d7f5fdbc8001854a62dd5)
 
-审核校对：玫瑰新闻组
-
-上传排版：玫瑰新闻组
-
-
-
-
+**喜联盟Gnews编辑部**
 
 0

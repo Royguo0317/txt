@@ -1,10 +1,10 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【粤语配音】彼得⋅纳瓦罗：新变种巴西毒株正在随着航班传遍世界
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1061354/)
+## 【粤语配音】对中共国前线发出5级警报：病毒问题和中伊协议
+` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1061445/)
 
-3/30/2021 班农战斗室——彼得⋅纳瓦罗：新变种病毒巴西毒株正在随着航班传遍世界。
+3/28/2021对中共国前线发出5级警报：病毒问题和中伊协议。
 
 By： 【秘密翻译组 G-Translators】
 

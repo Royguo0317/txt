@@ -1,49 +1,73 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 社交媒体的言论审查、垄断、泄露隐私，宛如中共国
-` G-NEWS TAIWAN` [轉載自GNews](https://gnews.org/zh-hans/1061707/)
+## 《路德时评》背景解读：福奇如何绕过审查资助武毒所？
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1061721/)
 
-文章作者:台湾宝岛农场 铃铃卷
-![]()![](https://gnews.org/wp-content/uploads/2021/04/brett-jordan-tWX_ho-328k-unsplash-scaled.jpg)
-[网路监控危机- Bing images](https://www.bing.com/images/search?view=detailV2&amp;ccid=vKywQJXg&amp;id=B7B0B6DC5F866BE2235B92D51D54D0DDC13E121F&amp;thid=OIP.vKywQJXgFuNAL78VpiHsiwHaEb&amp;mediaurl=https%3a%2f%2fs.yimg.com%2fuu%2fapi%2fres%2f1.2%2f7OLy8_ic2WRbtywDWwD6Aw--%7eB%2faD00NjA7dz03Njg7c209MTthcHBpZD15dGFjaHlvbg--%2fhttp%3a%2f%2fmedia.zenfs.com%2fzh_hant_tw%2fNews%2fawakeningtw%2f__WhatsApp-7eee98f8198c77b82a02594312d2c9f2&amp;exph=460&amp;expw=768&amp;q=%e7%b6%b2%e8%b7%af%e7%9b%a3%e6%8e%a7%e5%8d%b1%e6%a9%9f&amp;simid=608053320630417622&amp;ck=69D4D7EACDF93785BE53B180FA2E730C&amp;selectedIndex=116&amp;FORM=IRPRST&amp;ajaxhist=0)
+**路仁**
+![]()![](https://gnews.org/wp-content/uploads/2021/03/图片1-92.png)
+《路德时评》4月6日引用DAILY CALLER新闻，解读福奇绕过政府审查资助武汉病毒研究所，经过阅读原文，我们对整个事件过程梳理如下：
 
-## **便利的搜寻引擎与监控隐私的潜在危机**
+**名词注解：**
 
-网路媒体的日新月异，为人们带来了便捷的生活模式，但人们是否想过，在便捷的生活下，所可能带来的隐形危机?
+**HHS    **（Department of Health and Human Services）-美国卫生与公共服务部
 
-各位是否有这样的经历?当你用Google Maps搜寻交通工具及路线，并搭上大众运输后，突然收到来自Google Maps的通知，询问你是否在车上?车内是否拥挤?起初不以为意，后来想着，如果手机的定位系统在开启的状态下，而个人的一举一动是否就一直被监控着呢?
+**P3CO**（ [Potential Pandemic Pathogens Control and Oversight](https://www.phe.gov/s3/dualuse/documents/p3co.pdf) ）-于2017年成立的隶属于HHS的潜在的大流行病原体控制和监督审查委员会，任务是严格评估涉及加强危险病原体（例如冠状病毒）的赠款是否值得承担这些风险，以及是否已采取适当的保障措施。
 
-美国Record等多家媒体4月3日（当地时间）报道，Facebook用户资讯遭外泄，全世界超过106个国家，包括日本在内的5.33亿用户的个人信息被公开，对此Facebook对媒体表示:”这是2019年报告的老数据，并说明，该数据外泄的脆弱性原因已在同年8月得到修正。
+**NIH    **  (The National Institutes of Health)国家卫生研究所，主任为**弗朗西斯****.****考林（****Francis ****S. Collins****）**。
 
-这已经不是Facebook第一次出现资讯泄露问题。
+**NIAID **（National Institute of Allergy and Infectious Diseases）国家过敏与传染病研究所为NIH下属分支机构，**负责人为福奇博士（****Dr. Fauci)****。**
 
-在2016年，Facebook将多达8700万人的个人信息泄露给数据分析咨询公司Cambridge Analytica，这引发了一个涉及美国政府的重大问题。
+**EcoHealth Alliance-** 生态健康联盟，国际性非营利组织，致力于“一种健康”方法来保护人，动物和环境的健康，使其免受新发传染病的侵害。 该组织由两个组织Wildlife Trust和保护医学联盟合并而成。 致力于预防全球热点地区的流行病并促进保护工作。**总裁是皮特.达杂克（Dr. Peter Daszak）**
 
-## **只有极权国家才会言论审查**
+**背景介绍**
 
-Facebook在近期遭诉讼，其涉及了言论审查、垄断、隐私安全等问题。
+NIH的资助计划里曾描述，科学家们正在一个危险的领域里从事一项功能增强研究GOF（gain-of-function research），使得类SARS病毒变得更具传染性。由于广泛的科学界的担忧，这种超级病毒有可能泄露给人类的风险，联邦资金于2014年暂时停滞了对功能增强的研究。
 
-这让人想起在不久前，网路上有FB高层对话曝光：内容是脸书全球计画负责人汤玛斯私下透露:脸书创办人祖克柏才36岁，却拥有掌控全世界20亿人口的权力。他认为脸书公司已经成长为一头难以掌控的巨兽，美国联邦政府应该要出手介入，将脸书以及Google拆解成数家公司。汤玛斯并表示Facebook已经不只是公司，而是国家，而祖克柏宛如是统治了20亿人的国王。就连Facebook内部人都对扎克柏格的做法感到担忧。言论审查、垄断、泄露隐私之类的事件，感觉只有极权国家才会对他们的人民进行监控，这样的行为，不禁让人联想，脸书是不是中共国的附随组织?这监控系统现在还持续发生中吗?
+2017年年底，HHS在成立了P3CO（潜在的大流行病原体控制和监督审查委员会）后恢复了对功能增强性研究（gain-of-function research）的资助。该委员会的主要任务是严格审查增强病原体功能-如冠状病毒是否值得冒险并得到有效防护来评估资助。
 
-## **世界权力者的善与恶，造就世界的和平与灾难**
+根据Daily Caller报道，由福奇博士领导的NIAID，在没有得到P3CO委员会独立审查的情况 下，将联邦资金拨给了由皮特.达杂克领导的非盈利机构EcoHealth Alliance用来研究中共蝙蝠冠状病毒。
 
-文贵先生在4月3日直播中也曾提到扎克柏格，他拥有FB的20亿用户，等同于他拥有全世界第五大国家权利的人，如他成功将版图扩张至数字货币市场的话，他的权力将更强大到世界前三大，甚至于第一，想像这一天到来时，人民的网路言论将持续遭审查、垄断、及个人隐私安全暴露，那扎克柏格是不是就成为极权世界的国王了。本文仅代表个人立场。
+而NIH发言人辩解称：“NIAID在仔细评估了这个研究并不是功能增强实验，因为研究并没有涉及病毒的致命性和传播性”
 
-[また？ 5亿人を超えるFacebookユーザーの情报がオンライン上に流出- iPhone Mania (iphone-mania.jp)](https://iphone-mania.jp/news-358197/)
+然而，EcoHealth是历史上曾经改造过基于蝙蝠框架的冠状病毒。这个机构总裁-皮特·达杂克，在2019年中共病毒（COVID-19）首个病例出现在武汉的几周前，在新加坡的一次博客采访影片中说：“你可以在实验室很容易的操作它，S蛋白在冠状病毒中决定了很多要发生的后果，（包括）人畜共患风险。当你得到序列，你可以重建蛋白-我们与（北卡大学）的**拉夫.巴里克（Ralph Baric）**合作这项研究-插入其他病毒的骨架，并在实验室做一些工作。”
 
-[5.33亿人のFacebookユーザーの电话番号を含む个人情报、犯罪フォーラムで公开（ITmedia NEWS） – Yahoo!ニュース](https://news.yahoo.co.jp/articles/1dc6b229aa42148c2ce37ddb068187b9575e0354)
+EcoHealth得到联邦资助进行的蝙蝠骨架冠状病毒的研究，其中包括给武汉病毒研究所的$600,000.  早在2018年，在美国外交人员对当时中共国最高等级的P4实验室武毒所进行了访问，根据[华盛顿邮报](https://www.washingtonpost.com/opinions/2020/04/14/state-department-cables-warned-safety-issues-wuhan-lab-studying-bat-coronaviruses/)，外交人员曾发回了两份外交电报对其安全性表示担忧。其中一份电报提到，武毒所正在工作（改造）蝙蝠骨架冠状病毒，那意味着，会有一场新的类似SARS病毒的大流行的风险。
 
-[FB高层对话曝光：祖克柏统治20亿人宛如国王｜@新闻精选【新唐人亚太电视】三节新闻Live直播｜20210318 – YouTube](https://www.youtube.com/watch?v=pwKt4ccgLqI)
+而WHO本周二公布的关于病毒起源的所谓“[报告](https://www.who.int/docs/default-source/coronaviruse/who-convened-global-study-of-origins-of-sars-cov-2-china-part-annexes.pdf?sfvrsn=3065bcd8_5)”中也指出，武汉病毒研究所在对蝙蝠骨架冠状病毒测试中使用了“重组病毒（recombinant viruses）。对此，鲁格斯大学(Rutgers University）生物化学教授理查德.伊布莱特(Richard H. Ebright)认为，这正是对”功能增强实验“的定义。
 
-[点击此处阅读更多台湾农场精彩文章](https://gnews.org/zh-hant/author/taiwangnews/)
+根据[纽约时报](https://www.nytimes.com/2017/12/19/health/lethal-viruses-nih.html)，早在2011年，有消息显示，威斯康星州和荷兰的实验室正在故意修饰H5N1禽流感病毒，以便更有效地在雪貂之间感染。此事引发了科学界的强烈抗议。随后又发生了一起疾控中心（Center For Disease Control）的实验室“炭疽病毒”的泄露。这直接导致了2014年美国政府停止资助“功能增强实验”。
 
-[点击此处观看更多台湾农场精彩直播影片](https://gtv.org/user/5f60d588245d3c0579acdbec)
+直到2017年，HHS增加了P3CO对联邦资金资助的项目进行进一步审查后，以确认这类实验的风险可控，才取消了上述限制。然而，根据HHS发言人的说法，HHS对任何一项资助都毫不知情，除非资助机构主动请求HHS对资助项目进行审查。对此，NIH发言人回应，福奇领导的NIAID并没有对资助EcoHealth的资助向HHS报备审查。
 
-[点击此处加入「台湾宝岛农场」Discord伺服器](https://discord.gg/zE5xTQzArt)
+伊布莱特教授针对这个审查漏洞说：“这是系统性的问题”，伊布莱特教授说：“NIAID作为一个下属机构，资助EcoHealth，通过拒绝通知和建议审查，从而系统地摧毁了HHS 建立的P3CO框架，实际上是系统地废除了该框架。”
 
-文章审核：zhong
+伊布莱特（Ebright）告诉记者，福奇和NIAID在确定资助EcoHealth不涉及提高中国蝙蝠型冠状病毒的可传播性上是错误的。 他说，该项目的2019财年的‘[项目摘要](https://reporter.nih.gov/search/ZBjgKIfaCUyvJmxyKyn6xg/project-details/9819304)’里提到了冠状病毒的“体外和体内感染实验”，‘ 明确’要求根据HHS P3CO框架对该项目进行风险收益评估。”
 
-文章发布：Little Liu
+HHS高级官员承认对“功能增强实验”的监管存在漏洞。根据纽约时报，在2014年联邦政府叫停对此类实验的资助，总共有21个类似项目被叫停。但是NIH却对其中10个开了绿灯。
 
-+1
+这里面又有多少是被福奇等人钻了空子呢？
+
+**简评**：正如纳瓦罗博士定义福奇为中共病毒之父一样。福奇的撒谎成性，胆大妄为，好大喜功，阴险狡诈，毫无道德底线，视人命为草芥，在川普总统在任时体现的淋漓尽致。在这篇报道里， 我们可以看到，福奇，皮特.达杂克等这些熟悉的名字， 他们可谓狼狈为奸，处心积虑的绕过HHS的审查，用美国纳税人的钱，去资助中共病毒的研究。他们总与“功能增强实验”（Gian-of-Functioon）息息相关。这项技术被中共用来开发了造成全球大流行的中共病毒，基本上摧毁了西方的经济，改变了人类的民运。而福奇、皮特.达杂克等人既是始作俑者，也是恶魔帮凶。随着美国人民的逐步清醒，这些人将和中共一样逃脱不了被历史审判的命运！
+
+[原文链接](https://dailycaller.com/2021/04/04/nih-gain-of-function-anthony-fauci-review-board-wuhan-lab/)
+
+引用链接:
+
+[Opinion: State Department cables warned of safety issues at Wuhan lab studying bat coronaviruses](https://www.washingtonpost.com/opinions/2020/04/14/state-department-cables-warned-safety-issues-wuhan-lab-studying-bat-coronaviruses/)
+
+[A Federal Ban on Making Lethal Viruses Is Lifted](https://www.nytimes.com/2017/12/19/health/lethal-viruses-nih.html)
+
+[Understanding the Risk of Bat Coronavirus Emergence](https://reporter.nih.gov/search/ZBjgKIfaCUyvJmxyKyn6xg/project-details/9819304)
+
+[WHO-convened Global Study of Origins of SARS-CoV-2:China Part](https://www.who.int/docs/default-source/coronaviruse/who-convened-global-study-of-origins-of-sars-cov-2-china-part-annexes.pdf?sfvrsn=3065bcd8_5)
+
+延申阅读：
+
+[**中共的亲密伴侣达扎克和福奇的亲密关系**](https://gnews.org/zh-hans/1060478/)** -GNews**
+
+* * *
+
+*编辑、发稿 文锦*
+
+0
