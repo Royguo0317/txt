@@ -1,43 +1,104 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 维州与中共国的秘密协议正面临联邦政府的审查
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1061758/)
+## 美国政要等每日重要信息0407.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1061322/)
 
-撰稿：Shirley
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-《时代报》报道，澳大利亚联邦政府将调查维州政府与中共国之间的[第三项协议](https://www.theage.com.au/politics/victoria/victoria-s-secret-agreement-with-china-faces-federal-government-scrutiny-20210406-p57grs.html)，此协议用以推进基础设施项目的公私生意伙伴关系（PPP）。该协议与维州有争议的“一带一路”协议是分开签署的。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/1617800488.png) 网络图片
-维州政府被迫交出了州长安德鲁斯（Daniel Andrews）在2017年3月，与中共国国家发展和改革委员会签署的谅解备忘录的细节，该备忘录一直是保密的。在莫里森政府根据其新的外国否决法迫使该州交出文件后，该文件被曝光。
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
 
-如果维州不能充分解释该协议符合澳大利亚的国家利益，联邦政府可以下令[终止该文件](https://www.abc.net.au/news/2020-12-08/what-are-the-governments-new-foreign-relations-laws-about/12947590)。
 
-维州与中共国签署的一带一路协议，在澳洲国家安全机构和外交贸易部都引起了关注。
+4月7日劳伦斯-塞林博士继续推进中共病毒溯源的重磅线索，他的推文称：
 
-外交政策专家称，这份早先在2017年签署的协议，比一带一路倡议（BRI）文件还早18个月，这将在联邦政府内部进一步敲响警钟。
+“中共的全球军民冠状病毒研究网络利用美国的专业知识和资金来推动中共寻求军事和经济主导地位的一个小例子。#中共病毒 #超限生物战 #超限生物武器 #中共病毒大流行来源 #中共病毒2019大流行 #中共病毒大流行”
 
-外交政策专家、澳大利亚战略政策研究所国防、战略和国家安全主任舒布里奇（Michael Shoebridge）表示，过去三年来，公私合作协议承诺项目的影响越来越大，上个月的政治会议之后，国家安全风险进一步加剧。
 
-舒布里奇先生说，”公私伙伴关系以及一带一路倡议，是以北京为中心的全球经济计划的核心，是利用私人公司和企业资本来达到中共政府的目的。”
 
-维州政府周二对《时代报》和《悉尼先驱晨报》关于该协议的一连串问题进行了单线回复。它拒绝提供任何有关文件内容的细节。
+> One small example of the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s global military-civilian [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) research network exploiting U.S. expertise and funding to advance the CCP's quest for military and economic dominance.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/XwfNATNXtn](https://t.co/XwfNATNXtn)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 7, 2021](https://twitter.com/LawrenceSellin/status/1379754150611853313?ref_src=twsrc%5Etfw)
 
-总理莫里森（Scott Morrison）和内政部长达顿（Peter Dutton）等高级部长一直在[批评维州](https://www.theguardian.com/world/2020/may/25/chinas-belt-and-road-initiative-what-is-it-and-why-is-victoria-under-fire-for-its-involvement)在一带一路上与中共国打交道，声称这削弱了外交部和贸易部的作用。
 
-莫里森强调，澳大利亚永远不会为与中国的关系 “屈服于自己的价值观”，绝不会在[国家利益](https://www.skynews.com.au/details/_6246945418001)上妥协。
 
-随着更多的秘密协议被曝光，相信会有越来越多的民众清醒过来，认识到中共一带一路的邪恶本质，和中共“蓝金黄”对当地造成的危害。中共利用一带一路，希望颠覆现有的，以西方价值观为主导的社会秩序和社会基础，注定会破灭。
 
-（本文仅代表个人观点）
 
-[第三项协议](https://www.theage.com.au/politics/victoria/victoria-s-secret-agreement-with-china-faces-federal-government-scrutiny-20210406-p57grs.html)
+塞林博士推文中的插图如下。列举了中共病毒改造和增强功能的研究过程和关键环节负责人。包括：
 
-[终止该文件](https://www.abc.net.au/news/2020-12-08/what-are-the-governments-new-foreign-relations-laws-about/12947590)
+- 从SARS病人分离病毒并进行病原体基因变异广泛分析和来自47 SARS-CoV的流行病学，涉及邬开朗, 郭德银。
+- 人类血管紧张素转换酶2上的病毒结合热点对两种不同的冠状病毒的结合至关重要。涉及邬开朗，李放。
+- 冠状病毒：流行病学，基因复制及其与宿主的相互作用。设计石政丽，郭德银。
+- 病原体冠状病毒的来源和进化。涉及李放，石政丽。
 
-[批评维州](https://www.theguardian.com/world/2020/may/25/chinas-belt-and-road-initiative-what-is-it-and-why-is-victoria-under-fire-for-its-involvement)
 
-[国家利益](https://www.skynews.com.au/details/_6246945418001)
+- ![]()![](https://gnews.org/wp-content/uploads/2021/04/sellin-twitter-0407.jpg)
 
-审稿：文筝     编辑：五饼二鱼
-![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2.jpg)
+
+
+
+## CNBC抵制中共冬奥会口风有变
+
+美国左媒CNBC昨日发布新闻“美国国务院称，美国考虑与盟友联合抵制2022年北京冬奥会。”6小时后，CNBC立即发布了另一则新闻进行更新，并发推称：
+
+更新：国务院从抵制北京奥运会的想法中退缩。
+
+“我们对2022年奥运会的立场没有改变。我们没有讨论过，也不会与盟友和合作伙伴讨论任何联合抵制，”国务院一位高级官员说。
+
+
+
+> UPDATE: State Dept. backs away from the idea of a Beijing Olympics boycott. 
+> 
+> “Our position on the 2022 Olympics has not changed. We have not discussed and are not discussing any joint boycott with allies and partners,” a senior State Dept. official said. [https://t.co/YSGDMHtQkP](https://t.co/YSGDMHtQkP)
+> — CNBC Now (@CNBCnow) [April 7, 2021](https://twitter.com/CNBCnow/status/1379600036376555523?ref_src=twsrc%5Etfw)
+
+
+[https://www.cnbc.com/2021/04/06/us-considering-joining-boycott-of-2022-beijing-olympics.html](https://www.cnbc.com/2021/04/06/us-considering-joining-boycott-of-2022-beijing-olympics.html)
+据CNBC4月6日更新的新闻：
+
+国务院发言人内德-普莱斯最初在周二早些时候的新闻发布会上表示，抵制奥运会是解决中国侵犯人权问题的可能性之一。
+
+国务院周二晚间否认正在考虑与盟友共同抵制2022年北京冬奥会。国务院一位高级官员在给CNBC的电子邮件声明中写道，“我们对2022年奥运会的立场没有改变。我们没有讨论过，也没有与盟友和合作伙伴讨论任何联合抵制的问题。”
+
+任何关于外交抵制奥运会的讨论，都将在拜登政府努力召集盟友对中国进行国际反击之际进行。虽然两党广泛支持对中国采取更强硬的政策立场，但很难达成一致意见，认为抵制是最有效的途径。
+
+凯尔巴斯先生就此转推称：
+
+“感谢上帝！#抵制北京2022#抵制北京奥运#中国。西方民主国家很难参加由种族屠杀者主办的奥运会。”
+
+
+
+> HALLELUJAH!! [#boycottBeijing2022](https://twitter.com/hashtag/boycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw) [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai?ref_src=twsrc%5Etfw) [@ABlinken](https://twitter.com/ABlinken?ref_src=twsrc%5Etfw) Hard for Western Democracies to participate in Olympics hosted by Genocidal killers. [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/A9dB21bvvS](https://t.co/A9dB21bvvS)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [April 6, 2021](https://twitter.com/Jkylebass/status/1379517503836200965?ref_src=twsrc%5Etfw)
+
+
+
+
+
+针对中共“日人民报”4月6日发推倒打一耙，称“美国明确表示要抵制#北京2022年冬奥会。所谓“联合抵制”是将体育政治化，违背奥林匹克精神，不会被国际社会接受。中国国家体育总局新闻发言人”。凯尔巴斯先生回推，引用了早前网络流传的中共奥运屠杀的图片，推文称，
+
+“中国政府已被美国国务院（布林肯和蓬佩奥国务卿）正式认定为犯下种族灭绝罪和反人类罪的政权。习近平的任何宣传都无法掩盖他们邪恶的恐怖。#抵制北京奥运 @崔天凯大使 ”
+
+
+
+> [https://t.co/SESKydICrp](https://t.co/SESKydICrp)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [April 7, 2021](https://twitter.com/Jkylebass/status/1379746819555610627?ref_src=twsrc%5Etfw)
+
+
+
+凯尔巴斯先生还附上了2018年裁决中共国法庭作出的临时裁决书，内容包括中共国实施抢摘器官，对法轮功人士和对维吾尔族人犯下的种族灭绝反人类罪。[点击查看详情。](https://chinatribunal.com/final-judgment/)
+
+
+
+
+
+
+
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+
 0
