@@ -1,135 +1,63 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【班农战斗室】852•853•854期简讯
-` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1061789/)
+## 前国际货币基金组织卡恩是中共代言人&nbsp; 中共对美货币战迫在眉睫
+` Himalaya Rose Garden Team` [轉載自GNews](https://gnews.org/zh-hans/1061675/)
 
-#### **翻译：七彩光**
+**郭先生在2021年4月6日的盖特视频中进一步曝光前世界货币组织主席卡恩（Dominique Strauss-Kahn）被中共收买，并且世界各大货币金融组织都已经被中共渗透。中共也正致力于抽走美国黄金、抛售美债等打击美国经济的一系列计划。然而美国的钟摆效应导致情报人员和政策不能够连贯，全国上下还在搞房地产经纪，两党还在争选票。此时的美国像一个诺大的冰山，在中共的煽风点火下已经沉没在即、迫在眉睫！**
 
-#### **校对/编辑：文泓**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/852-853-854_.png)
-图片来源：墨尔本雅典娜农场设计组（精灵蓝）
+**前国际货币基金组织卡恩是中共代言人****  ****中共对美货币战迫在眉睫**
 
-**主持人：史蒂夫****.班农**
+**Former President of IMF Kahn Is Owned by the CCP**
 
-**嘉宾：****Joe Hoft, Mark Finchem, Todd Bensman, Dan Schultz, Maureen Bannon, Dr. Peter Navarro, Boris Epshteyn, Victor Avila**
+兄弟姐妹们大家好啊，4月6号。昨天，大家知道，直播之后影响非常非常大。跟我联系的(人)，非常明显，昨天这个直播完以后跟我联系的，绝大多数都是世界政治、经济(的)战略家，都是世界级的人物。（他们）就来了，来了来了来了，是吧？然后咱们战友们反应就不太了解啊欧洲啊，WTO组织，IMF(国际货币基金组织)，世界银行，这(些)是世界上合法的世界(级)机构。基本上现在大家还都以为这三个机构欧洲、美国的，是吧？控制着。不同的情况下，事实上都被老共不同程度的渗透，（但CCP)想弄也弄不下来。
 
-#### **1、《战斗室》与《****网关****专家》一起揭露****利茲·切尼和非法的拜登选举**
+Hello, brothers and sisters. Today is April 6th. You know, the response to yesterday’s live broadcast was huge! The people who contacted me after I came out of the broadcast were largely international political and economic strategists, and they were all world-class figures. They just reached out to me, alright? However, our fellow fighters’ responses reflected that they did not know much about Europe, the WTO, the IMF (International Monetary Fund), and the World Bank – those legal institutions in the world. Basically, everyone now still thinks that these three institutions are under the control of Europe and the United States, right? Actually, they have been more or less infiltrated by the CCP, but the CCP hasn’t succeeded even though they wanted to.
 
-《网关专家（Gateway Pundit）》的吉姆·霍夫特 （Joe Hoft）加入了《战斗室》并戳穿了利茲·切尼（Liz Cheney）对普通民众的最新攻击。
+另外一个就我说的那个卡恩 [注：国际货币基金组织前总裁]，卡恩这个小子上台以后百分之一百是共产党控制的。从他离开以后，他(去了)哪儿呢？就是在中法基金会当主席。马云和共产党一年给他1200万美元。你去想想去吧，(他)在美国弄成“犯罪”以后回到法国，又选总统。他要是选上总统，法国就是中共说的算了，想干啥干啥啊，那就是法国成了中共的小三了，百分之百的嘛！你看他现在还是。大家还记得这个人吧？跟那个什么斌啊，华斌，法国的华斌，那个特务，中法基金会主席。
 
-【备注： 《网关专家（Gateway Pundit）》成立于2004年美国总统大选之前，创始人吉姆•霍夫特，它的宗旨是“讲真话”、“揭露左派的邪恶”，在川普当选后，获得了白宫的新闻采访资格。】
+The other thing is about Kahn (note: Dominique Strauss-Kahn, Former President of IMF). This guy, after coming to power, has been 100% controlled by the CCP. Since he stepped down, where has he gone? He became the Chairman of the France China Foundation. Jack Ma and the CCP give him 12 million U.S. dollars a year. Go think about it, he could return to France campaigning for presidency after committing a crime in the U.S. If he were elected, France would be owned by the CCP, and the CCP would be able to do whatever it wanted to and France would become the CCP’s mistress, 100%! Look at him, he is still like that [colluding with the CCP] now. You may still remember this person because of the guy named Hua Bin in France, a CCP agent, the Chairman of the France China Foundation.
 
-【备注： 利茲·切尼（Liz Cheney），美国政治人物与共和党成员。她是前美国副总统迪克·切尼和前美国第二夫人琳恩·切尼的长女，于乔治·布什总统政府时期在美国国务院担任过几个职位， 2017年就任怀俄明州联邦众议员。】
+所以整个当时IMF这个机构里边，也有咱战友。他清晰的记得当年卡恩这个家伙搞亚币啊，基础银行啊亚投行啊 [指：亚洲基础设施投资银行]，都(是)他折腾出来的。后来这就是为啥美国人当时警告他（的原因），你再敢说亚币整死你孙子，这就闭嘴不敢说了。这里面很多故事，哪天我要讲的时候，要是聊起来那大家会很惊讶，因为很多人很多事都是我亲身经历的。
 
-切尼最近攻击了另一位共和党众议员，该议员敦促共和党就像它在川普总统领导下一样，继续成为工人阶级的政党。切尼称这种想法是“新马克思主义”。
+So we have a fellow fighter in the IMF this whole time. He clearly remembered that Kahn was engaged in Asian currency and the Asian Infrastructure Investment Bank, which were all this guy’s work. For this, later he was warned by Americans that “if you dare to say anything about Asian currency, you bastard will get killed”. And then this guy shut up and dared not say it anymore. There are a lot of stories behind this. When I am ready to tell you someday, everyone will be surprised by these things. Many people and things are based on personal experiences.
 
-“她真的是个讨厌的家伙，不是吗？”霍夫特说。
+这就是看出来咱战友们对世界形势的把握和认识。你看昨天路的访谈，博士军团整不明白这事，他没亲身经历，是吧？没有亲身经历就整不明白，只能是从表面上看，这背后的故事是看不到的。这就是一个局限性，这种事情你不亲身经历你是说不清楚，道不明白的。这整个的，中共谁去跟他(卡恩)联络，怎么回事？(发生了什么事)在法国？当年在欧洲怎么弄的？这里面有很多很多事情和人。
 
-“她怎么可能连这个都想出来？”霍夫特说：“特朗普把一切都为共和党做好了铺垫，而像利兹•切尼这样的人却没有任何感激之情。”
+From this we can see how much our fellow fighters understand the world situation. If you have watched yesterday’s Lude Show, you will find that our PhD Team didn’t know much about this [IMF and Kahn]. That’s because they haven’t personally experienced it, have they? So they can only interpret it superficially because they didn’t know the stories behind the scene. This is their limitation. So if you don’t personally experience this kind of thing, you can’t interpret it clearly. This whole thing includes who was sent by the CCP to contact him (Kahn) and what was done, what happened in France, and what did they do in Europe. There are many many things and people involved.
 
-“她就像希拉里•克林顿（Hillary Clinton）一样”，班农说：“她认为普通民众就应该是可悲的人。”
+你要没有这个亲身经历，你没有一个国家级的权力的这个参与，很难窥视到这种核心的秘密。就连美国这个国家所谓的情报部门，因为它政府每四年、每八年换一次，一换完人就走了，很多人也没有连续下来，这是美国很可怕的地方。好是好在一个民主的政府，坏是坏在四年左四年右，八年左八年右，你没办法。政府也换，国家策略也换。这是美国的很不好的地方，很难打交道，很难延续政策性，很难让这个国家能完整的记忆下来曾经历史上给它带来的危机和伤害。
 
-霍夫特抨击切尼再次攻击川普总统，然而当时她没有采取任何措施来阻止选举被盗。霍夫特说，建制派共和党人缺乏对美国所处危机的洞见。
+If you don’t have this personal experience, or you haven’t been involved in this with a state-level power, it will be difficult for you to get a glimpse of this kind of core secret. Even people in the so-called national intelligence agencies in the U.S. don’t have continuous exposure [to this kind of secret] because its government is replaced every four or eight years, and people leave as soon as an administration is over. This is a terrible thing about the U.S. The good side is that it is a democratic government, and the downside is that its government shifts between left and right every four or eight years and you have no choice. The government constantly changes, and so are the national strategies. This is a very bad part of the U.S., because it makes it difficult for people to deal with them, there is hardly any continuity in its policies, and it is difficult for this country to fully remember the crises and harms ever brought to it in history.
 
-“特朗普总统在各个方面打破了所有的记录，但不知为何最终没有当上总统？” 霍夫特说：“这太令人震惊了，而且我不记得利兹•切尼曾经说过，我们需要调查这些凌晨4点出现在底特律的（载有非法选票的）面包车。”
+就像这样的事情很多美国人就是一弄就过去了。 但是共产党可不过去啊，弄了七十年了。所以说这是完全不同的概念。这就是昨天华盛顿的很多人跟我说，“哇！都是最高级的人，问的问题跟孩子一样，跟孩子一样。”我说你走着看吧啊，这回(共产党)抽掉(美国的)黄金，抽走黄金，这都在计划范围之内。它抽黄金，这边儿准备好抛售（美国）的国债。
 
-“共和国陷入了危机，共和党也陷入了危机。”他说。
+Things just like what I mentioned can be easily let go by many Americans. But the CCP won’t let it go, it has been working on those things for 70 years. So this is a completely different concept. This is why many people in Washington D. C. told me yesterday, “Wow! Those people are all top-rank officials, but the questions they asked are like questions from a child.” I said let’s wait and see. This time the CCP is withdrawing gold from the U.S., which is totally within the scope of the CCP’s plan. While they are withdrawing gold, they are getting ready to sell U.S. Treasury Securities.
 
-霍夫特说，乔•拜登 “在竞选集会上都找不到10个人来填满一圈人”。然而大家却相信他获得了8100万张选票，而且是历史上最多的。
+美国现在使劲推房地产市场，房地产你知道，美国上次的金融危机，就是房地产市场(引发的)，是不是？就是房地美，这些房地产完全是胡扯的，是诈骗。最后搞（成了）个世界级的金融灾难。美国是在那个时候美元大幅贬值，大家你拿的还是美元，但是经过2008年的金融危机，美元已经大幅贬值，甚至信用超级受损，那个是永远过不去的。这个是美国非常可怕的一面。
 
-“（拜登当选）这是一个笑话”，班农说：“完全是非法的。我们要在法庭上证明这一点。我们永远不会放弃。”
+The U.S. is now pushing its real estate market vigorously. But you know the real estate was what caused the previous financial crisis in the U.S. Like Freddie Mac, these real estate firms were completely nonsense and were a fraud. In the end, they led to a global financial crisis. During that time, the U.S. dollar depreciated sharply. So, the dollars in everyone’s hands now are still called U.S. dollars, but after the 2008 financial crisis, the U.S. dollar has depreciated a lot, and even its credit has been extremely damaged and will never go back again. This is a very scary thing about the U.S.
 
-当被问及为什么凯文•麦卡锡（Kevin McCarthy）仍然让切尼在共和党领导层中任职时，霍夫特指出：“我听到传言说是因为保罗•瑞安（Paul Ryan）把她放在那个位置。”
+这就(是)为什么现在美国人没闹明白，(美国)还在推房产，两党之间（还在）完全（想着如何）拉选民，是吧？然后现在还要不允许房地产止赎，就是你把房地产赎回去这是不可以的。不允许银行强迫老百姓把房子怎么样，这不就共产主义了吗？共产主义（但）所有金融市场都是私人商业行为，那最终就完蛋了嘛，就这么简单。
 
-【备注：凯文•麦卡锡，美国共和党政治人物，他是加利福尼亚州第二十三选区选出的众议员。现任众议院少数党领袖，2019年1月3日前作为多数党领袖。】
+That’s why I say Americans still haven’t figured it out now because they are still pushing real estate, and the two parties are still thinking about how to please their voters, right? And now even foreclosure of real estate is not allowed, that is, it is impossible for you [the bank] to reclaim its properties. If banks are not allowed to foreclosure people’s houses, it will be just like communism, right? Communism with all the financial markets still being private businesses will lead to everyone’s deaths. It’s that simple.
 
-【备注：保罗•瑞安，曾任美国众议院议长、联邦众议员，天主教徒，来自威斯康星州。曾于2012年总统大选提名为共和党副总统候选人，被视为共和党的明日之星。议长任期经历奥巴马、特朗普总统。】
+所以说货币供应出了问题，整个黄金再被(共产党)偷走，（美国）国家信用出了问题，然后金融市场再出问题……你再拿钱补，你(美国)再印钞票吗？是不可能的。所以（大家）能听到现在，（美国)现在站在一个冰，即将化掉的冰块上。这就是世界政治和世界经济(的现状)。
 
-#### 2、亚利桑那州选举监事会、州务卿以及多米尼克公司串谋试图阻止选票审计
+So now the currency supply has encountered problems, all the gold is being stolen by the CCP, and the credit of the country is problematic, and then the financial market encounters problems too. You want to use money to fill the holes? You want to print more money again? No way! So if you hear me to this point, you will know that the U.S. is like standing on an iceberg, a melting iceberg. This is the current state of world politics and the world economy.
 
-亚利桑那州州议员马克‧芬赫姆（Mark Finchem）说马里科帕县存在（非法）串通行为，
+（以上翻译整理仅代表作者个人观点，不代表GNEWS或其他方立场。）
+视频来源：[https://gtv.org/getter/606c6e1edbc8001854a5f3af](https://gtv.org/getter/606c6e1edbc8001854a5f3af) (0:14-5:31)
 
-芬赫姆周二告诉《战斗室》，腐败官员仍在试图阻止对200多万张选票的鉴证审计。
+鸣谢：感谢盘古小蚂蚁、Antsee-GTV、TING GUO 提供中文文本于 [https://gnews.org/zh-hans/1059090/](https://gnews.org/zh-hans/1059090/)
 
-州务卿凯蒂•霍布斯（Katie Hobbs）、多米尼克（Dominion）公司和选举监事会“都在抱团，试图掩盖这些事情”，芬赫姆说。
+* * *
 
-但这是行不通的。“但这种违法行为也不会自行消失，”他说。
-
-芬赫姆说，共和党参议员凯伦•范恩（Karen Fann）没有退缩，将继续按计划进行审计。
-
-【备注：凯伦•范恩（Karen Fann），现任亚利桑那州参议员议长】
-
-芬赫姆说，多米尼克公司和其他各方正试图抹黑审计公司，因为他们已经感到绝望了。
-
-“宣传机器已经调转枪口，他们试图将[审计师]边缘化”，芬赫姆说：“这是阿林斯基（Alinsky）提过的老战术，让我们把这些人边缘化。因为这是他们唯一的伎俩。”
-
-【备注：索尔·大卫·阿林斯基（Saul David Alinsky）是美国社区活动家和政治理论家，是一位美国激进主义者。】
-
-芬赫姆还说，丹•舒尔茨（Dan Schultz）的选区作战策略正在亚利桑那州发挥作用，他鼓励其他如果想消除腐败的人也要参与进来。
-
-“不要等待，而是要参与进来，成为一名选区委员，”芬赫姆说。
-
-“改变只有通过改变代理人才能实现，走上街头……收集签名”，他说：“这需要花费很多精力，但非常值得，会有巨大回报。”
-
-#### 3、独家：最新拉斯穆森民调显示75%的选民支持选举中必须使用身份证明
-
-拉斯穆森民调公司（Rasmussen）与《战斗室》独家分享的一项最新民调显示，75%的美国人支持要求带照片的身份证明以确保选举安全。
-
-4月1日-4日对1000名潜在的选民进行的民调显示，绝大多数选民支持类似于大公司抗议的佐治亚州《选举诚信法》中颁布的措施。
-
-选民们被问到“法律要求选民在投票前出示有照片的身份证明，如驾照，这对公平和安全的投票过程是否必要？”
-
-75%的人回答说“是”，只有19%的人说“不是”，另外6%的人表示不确定。
-
-长期以来，选民证得到了广泛的支持，尽管民主党人和媒体忽视了它的受欢迎程度。美国职业棒球大联盟最近将全明星赛移出亚特兰大，就因为一项法律要求邮寄选票时必须提供身份证。此举在普通美国人中引起巨大反弹。
-
-#### 4、拜登政府删除了在边境确认抓到了恐怖分子的新闻稿
-
-拜登政府删除了来自美国海关和边境保护局（CBP）发布的关于抓到两名在观察名单上的也门恐怖分子的新闻稿。
-
-移民研究中心的托德•本斯曼（Todd Bensman）告诉《战斗室》，这些恐怖分子对国家安全构成严重威胁。
-
-“其中一人在禁飞名单上”，本斯曼说：“仅仅是在观察名单上就已经够糟糕了，在禁飞名单上就是一个最高级别的安全警告。”
-
-本斯曼是《美国的秘密战争》（America’s Covert War）一书的作者，该书讲述了圣战分子在南部边境的渗透情况，他说，其中一名恐怖嫌疑人在鞋底藏了一张手机SIM卡。
-
-本斯曼说，一旦消息在社交媒体上传播，拜登的美国海关和边境保护局（CBP）就“删除了那篇新闻稿”。
-
-“这条新闻已经被删除不见了，”他说。
-
-本斯曼说，危险的恐怖分子已越过拜登的开放边境消息与左派的说法是相悖的。
-
-“我的猜测是，民主党人和自由派活动家已经投入了巨大的精力来压制这种说法，”他说：“这件事是一枚手榴弹，引爆了他们的虚假故事：即（有关恐怖份子）这件事不会发生。”
-
-《国家脉动》在[这里](https://thenationalpulse.com/breaking/why-did-u-s-border-protection-delete-this-press-release-about-apprehending-terrorists/)存档了有关于此的原始新闻稿。
-
-#### **5、班农：利兹•切尼“太令人反感了”，比希拉里还糟糕。**
-
-班农对利兹·切尼进行了抨击，称她对普通民众的蔑视“比希拉里•克林顿还糟糕”。
-
-班农说，切尼是“如此令人反感”的政治领袖，因为她攻击川普总统将共和党转变为工人阶级的政党是“新马克思主义”。
-
-“她比希拉里•克林顿更厌恶普通老百姓，”班农说。
-
-Bannon said Cheney is part of “the Bush faction” who are beholden to corporate “paymasters.”
-
-班农说，切尼是“布什派”的一员，他们受制于企业的“代理人”。
-
-“他们手上沾满了中东地区（人们）的鲜血，”他说。
-
-**参考资料：**[**维基百科**](https://www.wikipedia.org/)
-
-**原文链接：**
-
-1.  [War Room and Gateway Pundit Rip Liz Cheney and Illegitimate Biden Election](https://pandemic.warroom.org/2021/04/06/war-room-and-gateway-pundit-rip-liz-cheney-and-illegitimate-biden-election/)
-
-2.  [Arizona Supervisors, Secretary of State and Dominion Colluding to Try to Block Election Audit](https://pandemic.warroom.org/2021/04/06/arizona-supervisors-secretary-of-state-and-dominion-colluding-to-try-to-block-election-audit/)
-
-3.  [Exclusive: 3/4 of Voters Support Voter ID in New Rasmussen Poll](https://pandemic.warroom.org/2021/04/06/exclusive-3-4-of-voters-support-voter-id-in-new-rasmussen-poll/)
-
-4.  [Biden Regime Deletes Press Release Identifying Terrorists Caught on Border](https://pandemic.warroom.org/2021/04/06/biden-regime-deletes-press-release-identifying-terrorists-caught-on-border/)
-
-5.  [Bannon: Liz Cheney is ‘So Revolting,’ Worse Than Hillary](https://pandemic.warroom.org/2021/04/06/bannon-liz-cheney-is-so-revolting-worse-than-hillary/)
+字幕：【JennyL】校对：【BruhM】视频解码：【恒久忍耐】自媒体推广：【V%】【TINALS】翻译 & 编辑：【Isaiah4031】
+[喜马拉雅玫瑰园小队出品](https://gnews.org/zh-hans/?s=%E7%8E%AB%E7%91%B0%E5%9B%AD%E5%B0%8F%E9%98%9F)
+敬请关注:
+GTV: [喜馬拉雅玫瑰園中文頻道](https://gtv.org/user/6005ad73f579a75e0bde4d27)，[Himalaya RGT](https://gtv.org/user/6000fc12f579a75e0bd85249)
+Gab: [https://gab.com/HimalayaRGT](https://gab.com/HimalayaRGT)
+Blog: [https://himalaya-rgt.blogspot.com/](https://himalaya-rgt.blogspot.com/)
 
 0

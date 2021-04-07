@@ -1,27 +1,43 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 疫苗危机：辉瑞疫苗昆士兰州杀死一人
-` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1061684/)
+## 维州与中共国的秘密协议正面临联邦政府的审查
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1061758/)
 
-撰稿：五饼二鱼
+撰稿：Shirley
 
-来自SKY News的突发报导：警方证实，昆士兰州洛根一家老年护理机构的居民在接受COVID-19疫苗后数小时内死亡。据了解，这名82岁的妇女接受了辉瑞疫苗，但是，由于她患有包括肺部疾病在内的既往健康问题，目前尚不清楚该疫苗是否与死亡有关。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/16153575871.png)
-世界各地不断发生的疫苗事故已经清晰的表明，这些赶工研发出来的疫苗并不可靠，如福奇博士所说注射后疫苗大家任然要带好口罩防护，最好带双层。借着疫情世界各国政府相继给了这些医药公司开了应急通道，大量的采购疫苗免费给老百姓打。其实羊毛出在羊身上，政府又不生产钱，但是关键这些医药公司的回扣去了谁的口袋呢？
+《时代报》报道，澳大利亚联邦政府将调查维州政府与中共国之间的[第三项协议](https://www.theage.com.au/politics/victoria/victoria-s-secret-agreement-with-china-faces-federal-government-scrutiny-20210406-p57grs.html)，此协议用以推进基础设施项目的公私生意伙伴关系（PPP）。该协议与维州有争议的“一带一路”协议是分开签署的。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/1617800488.png) 网络图片
+维州政府被迫交出了州长安德鲁斯（Daniel Andrews）在2017年3月，与中共国国家发展和改革委员会签署的谅解备忘录的细节，该备忘录一直是保密的。在莫里森政府根据其新的外国否决法迫使该州交出文件后，该文件被曝光。
 
-艾滋病从1981年开始流行至今四十年，死亡人数已经超过3700万人没有成功研发出疫苗，2002年非典至今也近二十年也未有疫苗，所谓的COVID-19流行一年不到就有疫苗出来，而且是如此强的传染率和死亡率，全球感染超过1.3亿人死亡28.7万人，这样的疫苗实在令人担忧。
+如果维州不能充分解释该协议符合澳大利亚的国家利益，联邦政府可以下令[终止该文件](https://www.abc.net.au/news/2020-12-08/what-are-the-governments-new-foreign-relations-laws-about/12947590)。
 
-如郭先生直播中说到中共国体制内最近流行的话：要恨一个人让他去打疫苗，想换老婆让她去打疫苗，想换老公让他去打疫苗。可见这疫苗就是赤裸裸的杀人工具。
+维州与中共国签署的一带一路协议，在澳洲国家安全机构和外交贸易部都引起了关注。
 
-越来越多的证据表明COVID-19来源于实验室增强实验的生物武器病毒，请参考闫丽梦博士的三份报告完完全全的揭露了CCP病毒真相。笔者呼吁世界各国政府先彻查病毒来源的真相，而不应该在此危机中发疫苗的横财，谁拿了这些肮脏污秽带血的利益一定被钉在历史的耻辱柱上。
+外交政策专家称，这份早先在2017年签署的协议，比一带一路倡议（BRI）文件还早18个月，这将在联邦政府内部进一步敲响警钟。
 
-（文章仅代表个人观点）
+外交政策专家、澳大利亚战略政策研究所国防、战略和国家安全主任舒布里奇（Michael Shoebridge）表示，过去三年来，公私合作协议承诺项目的影响越来越大，上个月的政治会议之后，国家安全风险进一步加剧。
 
-新闻来源：
+舒布里奇先生说，”公私伙伴关系以及一带一路倡议，是以北京为中心的全球经济计划的核心，是利用私人公司和企业资本来达到中共政府的目的。”
 
-[https://www.skynews.com.au/details/\_6247129332001](https://www.skynews.com.au/details/_6247129332001)
+维州政府周二对《时代报》和《悉尼先驱晨报》关于该协议的一连串问题进行了单线回复。它拒绝提供任何有关文件内容的细节。
 
-审核&编辑：五饼二鱼
+总理莫里森（Scott Morrison）和内政部长达顿（Peter Dutton）等高级部长一直在[批评维州](https://www.theguardian.com/world/2020/may/25/chinas-belt-and-road-initiative-what-is-it-and-why-is-victoria-under-fire-for-its-involvement)在一带一路上与中共国打交道，声称这削弱了外交部和贸易部的作用。
+
+莫里森强调，澳大利亚永远不会为与中国的关系 “屈服于自己的价值观”，绝不会在[国家利益](https://www.skynews.com.au/details/_6246945418001)上妥协。
+
+随着更多的秘密协议被曝光，相信会有越来越多的民众清醒过来，认识到中共一带一路的邪恶本质，和中共“蓝金黄”对当地造成的危害。中共利用一带一路，希望颠覆现有的，以西方价值观为主导的社会秩序和社会基础，注定会破灭。
+
+（本文仅代表个人观点）
+
+[第三项协议](https://www.theage.com.au/politics/victoria/victoria-s-secret-agreement-with-china-faces-federal-government-scrutiny-20210406-p57grs.html)
+
+[终止该文件](https://www.abc.net.au/news/2020-12-08/what-are-the-governments-new-foreign-relations-laws-about/12947590)
+
+[批评维州](https://www.theguardian.com/world/2020/may/25/chinas-belt-and-road-initiative-what-is-it-and-why-is-victoria-under-fire-for-its-involvement)
+
+[国家利益](https://www.skynews.com.au/details/_6246945418001)
+
+审稿：文筝     编辑：五饼二鱼
 ![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2.jpg)
 0

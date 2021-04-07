@@ -1,45 +1,104 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】经济寒冬下 港府称过半人打疫苗 才回复社交活动
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1061698/)
+## 美国政要等每日重要信息0407.2021（持续更新）
+` 喜馬拉雅的文雅 Wenya Himalaya` [轉載自GNews](https://gnews.org/zh-hans/1061322/)
 
-搜集\编撰：西西 \封面合成：文粤
+康州盘古农场 & 喜联盟GNEWS编辑部 联合项目
 
-**食物及卫生局局长陈肇始指，现时已有约50 万人港人打了疫苗，但在科学上要达致「群体免疫」仍有一段「颇长距离」，需更「超过一半市民」完成接种，才有条件争取回复正常生活，包括经济、社交活动和跨境出游，做到「真正走出『疫』境」。**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image001-6.png)
-据立场新闻报导，陈肇始在网上发文，强调接种疫苗可以保护自己、家人和朋友，减低受感染或严重并发症的机会，而为鼓励更多市民尽早打疫苗，港府将陆续把完成接种疫苗纳入各项防疫政策当中，正积极研究若有一定数目市民打了疫苗，是否可以进一步调查社交距离措施。
+作者：康州盘古农场 喜马拉雅的文雅
+![]()![](https://gnews.org/wp-content/uploads/2021/04/cover-formal-2021-No-Deco-No-Date-copy-2.jpeg)图片来源：康州盘古农场 霹雳年
 
-林郑月娥今日就到访伊利沙伯体育馆社区疫苗接种中心，视察和为工作人员「打气」，又指疫苗接种计划「优先组别」已扩展至十四个，包括所有30 岁或以上市民，现时科兴及复必泰疫苗都供应充足，市民打完两剂疫苗后要等待14 天，疫苗才能完全发挥应有的保护作用，愈早接种疫苗便愈早可有「完成接种」身分，符合日后方便出行或某些活动的条件。
 
-**战友观点：**
+4月7日劳伦斯-塞林博士继续推进中共病毒溯源的重磅线索，他的推文称：
 
-**港府疫苗政策带有政治任务**
+“中共的全球军民冠状病毒研究网络利用美国的专业知识和资金来推动中共寻求军事和经济主导地位的一个小例子。#中共病毒 #超限生物战 #超限生物武器 #中共病毒大流行来源 #中共病毒2019大流行 #中共病毒大流行”
 
-据媒体报导，香港3月底累计有13名曾经接种新冠疫苗的市民死亡，其中11人曾接种科兴，其余2人曾接种复必泰疫苗。香港时事评论员刘锐绍早前在接受《大纪元时报》专访时表示，中共拿不出疫苗资料，却在香港强推打针，目的是说明提高其疫苗接种率，有一种完成政治任务的意味。
 
-相信大家还记得日前一名外籍男子打错疫苗的事情。事主是55岁的苏格兰人大卫·阿拉迪斯（David Allardice）患有白血病（血癌）。
 
-阿拉迪斯对英文《南华早报》表示，他在3月18日傍晚与一名70多岁友人一同到九龙观塘的接种点，却跑错地方。阿拉迪斯说，他与友人出示香港身份证之后就获准进入接种中心。他说：「我不记得有任何人核查过我有没有预约。这一点都不明显。要是他们有核查的话，就会知道我们没有预约来九龙湾。」
+> One small example of the [#CCP](https://twitter.com/hashtag/CCP?src=hash&amp;ref_src=twsrc%5Etfw)'s global military-civilian [#coronavirus](https://twitter.com/hashtag/coronavirus?src=hash&amp;ref_src=twsrc%5Etfw) research network exploiting U.S. expertise and funding to advance the CCP's quest for military and economic dominance.[#CCPVirus](https://twitter.com/hashtag/CCPVirus?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBiowarfare](https://twitter.com/hashtag/UnrestrictedBiowarfare?src=hash&amp;ref_src=twsrc%5Etfw) [#UnrestrictedBioweapon](https://twitter.com/hashtag/UnrestrictedBioweapon?src=hash&amp;ref_src=twsrc%5Etfw) [#OriginOfCOVID19](https://twitter.com/hashtag/OriginOfCOVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID19](https://twitter.com/hashtag/COVID19?src=hash&amp;ref_src=twsrc%5Etfw) [#COVID](https://twitter.com/hashtag/COVID?src=hash&amp;ref_src=twsrc%5Etfw) [pic.twitter.com/XwfNATNXtn](https://t.co/XwfNATNXtn)
+> — Dr. Lawrence Sellin (@LawrenceSellin) [April 7, 2021](https://twitter.com/LawrenceSellin/status/1379754150611853313?ref_src=twsrc%5Etfw)
 
-阿拉迪斯说：「从头到尾都没有一个人跟我说‘你来错地方了’或者是‘你打错疫苗了’。就像是该有的（防错）系统没有存在似的。」
 
-阿拉迪斯获发注明接种了克尔来福疫苗的接种纪录，但他说因为证书没有标明厂商是科兴，因而没能马上察觉有异，直到接获政府手机短信提示他「爽约」，才发觉「打错针」。
 
-这种不应该发生的医疗事故，也侧面反映出港府的毒疫苗政策：港共政府只为提高疫苗接种率，不管三七二十一该市民是否适合打疫苗，是否是长期病患者都一律马虎处理，只要愿意打就好，不愿打也要用尽各种手段强迫港人接种中共疫苗。舔共政府面对要向中央报数的压力，为讨好北京完全是草菅人命。
 
-中共在利用疫苗赚外汇和进行疫苗外交
 
-据大纪元香港3月18日讯，中共从2020年12月开始，在未公布临床资料的情况下，批准了首批国产疫苗。中共称，截至今年2月，已经向53个发展中国家提供疫苗援助，已经和正在向22个国家出口疫苗。同时，中共把国产疫苗和签证绑定，对已经接种中国产疫苗的外国人放宽入境限制。
+塞林博士推文中的插图如下。列举了中共病毒改造和增强功能的研究过程和关键环节负责人。包括：
 
-美国之音3月18日引述香港城市大学公共卫生助理教授唐宁思（Nicholas Thomas）的分析表示：「这种（签证）激励措施显然是针对商界，也是中共可以帮助确保其疫苗仍然是首选的一种方式，这清楚地表明这些努力是多么注重外交因素，而不是提供医疗公益。」
+- 从SARS病人分离病毒并进行病原体基因变异广泛分析和来自47 SARS-CoV的流行病学，涉及邬开朗, 郭德银。
+- 人类血管紧张素转换酶2上的病毒结合热点对两种不同的冠状病毒的结合至关重要。涉及邬开朗，李放。
+- 冠状病毒：流行病学，基因复制及其与宿主的相互作用。设计石政丽，郭德银。
+- 病原体冠状病毒的来源和进化。涉及李放，石政丽。
 
-司马昭之心，路人皆知。这就是港共政府配合中共疫苗签证的一套组合拳。舔共港官是如何为北京政权的疫苗政策背书，称需更「超过一半市民」完成接种，才有条件争取回复正常生活，包括经济、社交活动和跨境出游。
 
-【以上观点仅代表笔者本人 】
+- ![]()![](https://gnews.org/wp-content/uploads/2021/04/sellin-twitter-0407.jpg)
 
-资料来源：[立场新闻](https://www.thestandnews.com/society/%E6%AD%A6%E6%BC%A2%E8%82%BA%E7%82%8E-%E9%99%B3%E8%82%87%E5%A7%8B-%E9%81%8E%E5%8D%8A%E4%BA%BA%E6%89%93%E7%96%AB%E8%8B%97-%E6%89%8D%E6%9C%89%E6%A2%9D%E4%BB%B6%E7%88%AD%E5%8F%96%E5%9B%9E%E5%BE%A9%E7%A4%BE%E4%BA%A4%E6%B4%BB%E5%8B%95-%E6%97%85%E9%81%8A%E7%AD%89/)、[BBC NEWS](https://www.bbc.com/zhongwen/simp/chinese-news-56639612)、[大纪元香港](https://www.epochtimes.com/gb/21/3/18/n12820227.htm)
 
-审稿：卡西欧 \ 上传：
 
-+3
+
+## CNBC抵制中共冬奥会口风有变
+
+美国左媒CNBC昨日发布新闻“美国国务院称，美国考虑与盟友联合抵制2022年北京冬奥会。”6小时后，CNBC立即发布了另一则新闻进行更新，并发推称：
+
+更新：国务院从抵制北京奥运会的想法中退缩。
+
+“我们对2022年奥运会的立场没有改变。我们没有讨论过，也不会与盟友和合作伙伴讨论任何联合抵制，”国务院一位高级官员说。
+
+
+
+> UPDATE: State Dept. backs away from the idea of a Beijing Olympics boycott. 
+> 
+> “Our position on the 2022 Olympics has not changed. We have not discussed and are not discussing any joint boycott with allies and partners,” a senior State Dept. official said. [https://t.co/YSGDMHtQkP](https://t.co/YSGDMHtQkP)
+> — CNBC Now (@CNBCnow) [April 7, 2021](https://twitter.com/CNBCnow/status/1379600036376555523?ref_src=twsrc%5Etfw)
+
+
+[https://www.cnbc.com/2021/04/06/us-considering-joining-boycott-of-2022-beijing-olympics.html](https://www.cnbc.com/2021/04/06/us-considering-joining-boycott-of-2022-beijing-olympics.html)
+据CNBC4月6日更新的新闻：
+
+国务院发言人内德-普莱斯最初在周二早些时候的新闻发布会上表示，抵制奥运会是解决中国侵犯人权问题的可能性之一。
+
+国务院周二晚间否认正在考虑与盟友共同抵制2022年北京冬奥会。国务院一位高级官员在给CNBC的电子邮件声明中写道，“我们对2022年奥运会的立场没有改变。我们没有讨论过，也没有与盟友和合作伙伴讨论任何联合抵制的问题。”
+
+任何关于外交抵制奥运会的讨论，都将在拜登政府努力召集盟友对中国进行国际反击之际进行。虽然两党广泛支持对中国采取更强硬的政策立场，但很难达成一致意见，认为抵制是最有效的途径。
+
+凯尔巴斯先生就此转推称：
+
+“感谢上帝！#抵制北京2022#抵制北京奥运#中国。西方民主国家很难参加由种族屠杀者主办的奥运会。”
+
+
+
+> HALLELUJAH!! [#boycottBeijing2022](https://twitter.com/hashtag/boycottBeijing2022?src=hash&amp;ref_src=twsrc%5Etfw) [#BoycottBeijingOlympics](https://twitter.com/hashtag/BoycottBeijingOlympics?src=hash&amp;ref_src=twsrc%5Etfw) [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [@AmbCuiTiankai](https://twitter.com/AmbCuiTiankai?ref_src=twsrc%5Etfw) [@ABlinken](https://twitter.com/ABlinken?ref_src=twsrc%5Etfw) Hard for Western Democracies to participate in Olympics hosted by Genocidal killers. [#China](https://twitter.com/hashtag/China?src=hash&amp;ref_src=twsrc%5Etfw) [https://t.co/A9dB21bvvS](https://t.co/A9dB21bvvS)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [April 6, 2021](https://twitter.com/Jkylebass/status/1379517503836200965?ref_src=twsrc%5Etfw)
+
+
+
+
+
+针对中共“日人民报”4月6日发推倒打一耙，称“美国明确表示要抵制#北京2022年冬奥会。所谓“联合抵制”是将体育政治化，违背奥林匹克精神，不会被国际社会接受。中国国家体育总局新闻发言人”。凯尔巴斯先生回推，引用了早前网络流传的中共奥运屠杀的图片，推文称，
+
+“中国政府已被美国国务院（布林肯和蓬佩奥国务卿）正式认定为犯下种族灭绝罪和反人类罪的政权。习近平的任何宣传都无法掩盖他们邪恶的恐怖。#抵制北京奥运 @崔天凯大使 ”
+
+
+
+> [https://t.co/SESKydICrp](https://t.co/SESKydICrp)
+> — 🇺🇸Kyle Bass🇺🇸 (@Jkylebass) [April 7, 2021](https://twitter.com/Jkylebass/status/1379746819555610627?ref_src=twsrc%5Etfw)
+
+
+
+凯尔巴斯先生还附上了2018年裁决中共国法庭作出的临时裁决书，内容包括中共国实施抢摘器官，对法轮功人士和对维吾尔族人犯下的种族灭绝反人类罪。[点击查看详情。](https://chinatribunal.com/final-judgment/)
+
+
+
+
+
+
+
+
+
+（本文当日持续更新中）
+
+文章观点部分仅代表作者本人。
+
+***《美国政要等每日重要信息》诚邀美东时段、亚洲时段的战友加入，及时更新，欢迎和Discord 喜马拉雅的文雅#9554， 喜联盟GNEWS编辑部管理协调组联系。***
+
+0
