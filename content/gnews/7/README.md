@@ -1,39 +1,98 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【三票专栏】旧文重发：邮件显示科学界帮助中共掩盖COVID-19来源真相
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1059556/)
+## 最快四个月——中共国就可以实现14亿人口全部接种新冠疫苗，战友该怎么办？
+` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1059643/)
 
-三票先生Mr.3rights
-![]()![](https://gnews.org/wp-content/uploads/2021/04/三票-e1617751866704.png)
-重发说明：本人去年11月20日在GNEWS上发此文，根据爆料革命获得的邮件资料，揭露Peter Daszak 2020年2月6日就串通26名美国知名公共卫生专家联名签署声明，说中共病毒非自然起源是阴谋论，误导美国科学界进而误导美国政府对中共病毒起源的判断。这就是闫丽梦博士说的**超限科学误导**。4个多月后的今天美国各界逐步知道了真相。事实证明只要我们坚持不懈爆料，真相终会大白于天下。文中的英文为邮件中英文的原话，以便读者准确理解。原文如下：
+作者：keikei
 
-On November 18, emails obtained by U.S. Right to Know show that a [statement in *The Lancet*](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2930418-9/fulltext) authored by 27 prominent public health scientists condemning “conspiracy theories suggesting that COVID-19 does not have a natural origin” was organized by  EcoHealth Alliance, a non-profit group. The scientists’ letter appeared in*The Lancet* on February 18, just one week after the World Health Organization announced that the disease caused by the novel coronavirus would be named COVID-19.
 
-这份声明是由Dr**. Peter Daszak**, President of EcoHealth Alliance,于2月6日发起的，邀请了其余26位知名公共卫生科学家联名签署，目的是针对the recent spreading of rumors, misinformation and conspiracy theories on the virus origins，签署a statement in support of the scientists, public health and medical professionals of China，这些中国专家已经和他们合作多年。此前的1月19日，**闫丽梦**博士，香港大学公共卫生学院传染病研究中心的病毒和免疫学研究员，匿名通过**路德社**向全世界公开揭露了COVID-19是由中共控制的武汉病毒研究所等机构制造并故意投放的。这就是他们所说的 rumors, misinformation and conspiracy theories。公开的邮件显示，他们并没有从科学角度探讨病毒的来源，而是由Dr. **Peter Daszak**直接起草了一个draft邀请其他人签名，但在声明中他们强调COVID-19是来源于自然而不是人造，这和CCP的观点是完全一致的。声明发表后不久，一个不愿意透露名字的机构向EcoHealth Alliance捐赠了50万美元。
 
-Dr. **Peter Daszak**在邮件中说，这份声明将coincide with a letter from the Presidents of the US National Academies of Science, Engineering, and Medicine, which will likely be released a few days later。共同签名的Dr. **Rita Colwell** is former Director of US National Science Foundation。Dr. Peter Daszak is now a member of that gives answers to scientific questions at short notice from the White House Coronavirus Task Force。他们和**福奇**博士，美国国家过敏和传染病研究所所长，一起对川普总统制定和实施anti-COVID-19的政策有巨大影响。
+## **最快四个月，****14****亿人全部接种**
 
-闫丽梦博士在爆料革命的帮助下于今年4月底逃离香港来到美国，今年7月以来公开发表了两篇科学论文，揭露中共制造和投放COVID-19的真相。爆料革命和闫丽梦博士将继续揭露科学界帮助中共掩盖COVID-19来源，以及since this LANCET letter published, scientific world and top journals turned out to blame Trump government in anti-COVID-19 , and got involved into US election 的真相。敬请留意。
+搜集了中共在82天内的全国疫苗接种数据[1]，中共国平均每天接种的人数为300万，根据中共专家的估计，中共国每天最多可接种1千万人口，目前一天的接种速度是三到六百万。**如果按照目前的平均每天450万计算，中共国9个月就可以为14亿人口全部接种，如果按照专家估计的最快速度的话，中共国就可以在4个月左右就可以为14亿人口全部接种。**
+![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/Snipaste_2021-04-07_00-17-52-1024x794.png)
+中共国使出全社会政治动员的方式（见附图），加快新冠疫苗的接种速度。
 
-原文链接：[【热点播报】邮件显示科学界帮助中共掩盖COVID-19来源真相 – GNEWS](https://gnews.org/zh-hans/576066/)
+- 从一开始的疫苗收费，变成了疫苗免费，还送鸡蛋送纸巾，甚至花钱找拖儿[2]；
+- 从一开始的重点人群接种，变成了18-59岁接种，最近有开始了60岁以上接种[3]；
+- 从一开始的自愿接种，变成了到社区摸底，有些地方演变成变相强制[4]。
+
+
+从三月底到四月初，中共国疫苗的日平均接种人数已经呈现指数级增（见上图）。最快今年夏天就可以实现疫苗全国覆盖。
+
+## **墙内战友该怎么办？**
+
+墙内战友还是有很多策略的。
+
+1，尽可能劝说身边的人，不要打疫苗。
+他们信不信是一回事，你说不说是另一回事。
+
+2，以身体不适为由，尽量推脱。
+据中共国官方的疫苗指南中不建议以下人群接种新冠疫苗：哺乳期妇女、发热、慢性病以及急性病发作期患者、接种过其他疫苗14天以内的；
+
+3，找到能证明自己已经接种过疫苗的证明。（你懂的）
 
 （本文仅代表作者个人观点）
 
-阅读本人文章请搜索“三票先生”
+参考：
+![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image-7.png)![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image-1-1.png)![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image-3-1.png)![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image-2-1-493x1024.png)
+中共国疫苗接种相关报道（按时间线整理）：
 
-本人其他文章导读：
+[3月4日：朝阳首批机动疫苗接种点进写字楼](https://www.sohu.com/a/453882516_161623)
 
-[从历史的高度看《新中国联邦宣言》 – GNEWS](https://gnews.org/zh-hans/224002/)
+[12月30日：我国新冠疫苗紧急接种人数已突破50万人](https://baijiahao.baidu.com/s?id=1687465240491557889&amp;wfr=spider&amp;for=pc)
 
-[中共为什么那么有钱搞全球渗透与扩张 – GNEWS](https://gnews.org/zh-hans/169646/)
+[1月19日：全国统筹设置25392个新冠疫苗接种点 接种人数超900万](https://www.163.com/dy/article/FVT6QUOD055061FK.html)
 
-[十权一统：看中共的极权统治 – GNEWS](https://gnews.org/zh-hans/193423/)
+[1月12日 \[今日环球\]北京新冠疫苗接种人数超百万](http://tv.cctv.com/v/v2/VIDEHS2bJzvQlNqPVkQPurn4210112.html)
 
-[正道主义论 – GNEWS](https://gnews.org/zh-hans/231288/)
+[3月3日：北京新冠疫苗累计接种超500万人](http://news.cctv.com/2021/03/03/ARTI7Ds5uaZScFaQbmesOHD6210303.shtml)
+央视网消息：北京自1月1日开展新冠疫苗接种工作以来，截至3月2日下午，已累计接种新冠疫苗765万剂次，接种人数累计超过500万人。北京市疾控中心在3月2日介绍，已为部分有接种需求、且身体基础状况较好的60岁及以上老年人接种新冠疫苗，下一步，将适时全面开展老年人接种以及全市18岁以下人群接种工作。
 
-[【三票专栏】 《商君书》选读（3）超限战的鼻祖 – GNEWS](https://gnews.org/zh-hans/892639/)
+[3月10日：（北京）全市近600万人接种新冠疫苗 接种达标楼宇张贴安全标识](http://www.bj.chinanews.com/news/2021/0310/81150.html)
+
+[1月19日 全国统筹设置25392个新冠疫苗接种点 接种人数超900万](https://www.163.com/dy/article/FVT6QUOD055061FK.html)
+
+[1月21日：关注｜中国新冠疫苗接种量已超1500万人次](https://baijiahao.baidu.com/s?id=1689455617538268147&amp;wfr=spider&amp;for=pc)
+
+[1月26日：中国已接种新冠疫苗2276.7万剂次 各地接种人数在不断增加](http://www.mnw.cn/news/china/2355206.html)
+
+[2月11日 全国新冠疫苗接种超4000万剂次！](https://www.thepaper.cn/newsDetail_forward_11315913)
+
+[12月19日：中国新冠疫苗接种首批预计接种5000万人次，2月15日前完成](http://news.hnr.cn/shxw/article/1/1341188446840033280)
+据12月19日国务院联防联控机制举行新闻发布会消息，将在全国范围内对重点人群进行新冠疫苗接种。12月20日晚，原上海疾控中心免疫规划科疫苗医师陶黎纳告诉健康时报记者，据业内消息，我国首批新冠疫苗预计接种5000万人次，首针将于1月15日接种完成，第二针于2月15日完成。具体仍待官方发布为准。
+
+[2月15日：全球新冠疫苗接种量近1.8亿，中国疫苗在这些国家开打](https://baijiahao.baidu.com/s?id=1691998069140445188&amp;wfr=spider&amp;for=pc)
+据约翰斯·霍普金斯大学最新数据，截至美国东部时间2月15日6时45分，全球疫苗接种总量已达到约1.75亿剂。其中，美国接种量最高，达到约5288万剂。中国紧随其后，约4052万剂。
+
+[全球新冠疫苗接种量达1.94亿剂次，我国累计接种4052万剂次](https://baijiahao.baidu.com/s?id=1692212252778071423&amp;wfr=spider&amp;for=pc)
+而截至当地时间2月19日，约翰斯·霍普金斯大学官网数据显示，接种剂次前10名国家除中国外，依次为美国（59585043） 、英国（16996806）、印度（10188007）、以色列（7078074） 巴西（6206680）、土耳其（5895295）、阿拉伯酋长国（5373730）、 德国（4719900） 俄罗斯（3900000），俄罗斯首次进入前十序列。
+
+[3月21日：国务院联防联控机制2021年3月21日新闻发布会文字实录](http://www.nhc.gov.cn/xcs/yqfkdt/202103/b3b8103da9104fc58d7ce8f5189e9be2.shtml)
+
+[3月20日：截至3月20日中国新冠疫苗累计接种7495．6万剂次](https://baijiahao.baidu.com/s?id=1694889161224644830&amp;wfr=spider&amp;for=pc)
+
+[3月22日：2.54亿老龄人口有望接种新冠疫苗，产量完全可满足接种需求](http://news.cctv.com/2021/03/22/ARTIagMhoqiOC6PkXJwdLdEp210322.shtml?spm=C94212.P4YnMod9m2uD.ENPMkWvfnaiV.60)
+
+[3月22日：截至2021年3月22日24时，我国累计接种新冠病毒疫苗8046.3万剂次，接种人数稳步增长。](https://baijiahao.baidu.com/s?id=1694889161224644830&amp;wfr=spider&amp;for=pc)
+
+
+
+[3月23日 权威发布！上海启动60岁及以上人群新冠疫苗预约接种](http://wsjkw.sh.gov.cn/xwfb/20210323/cbd3025a140e4e0c9678c0e4e549c353.html)
+
+
+
+[广东累计接种新冠疫苗达332万人，将开展18-59岁人群接种工作](https://baijiahao.baidu.com/s?id=1694967430114744799&amp;wfr=spider&amp;for=pc)
+截至3月21日，全省累计接种了332万人，接种人数每日均在稳步增长，群众接种意愿也在逐步增加。据介绍，在总体安排上，广东按照国家统一部署，分阶段逐步推进新冠肺炎疫苗的接种工作，主要按顺序分三步来推动。第一步就包括职业暴露风险较高的人群、有境外感染风险的人群，维持社会基本运行关键岗位的人员，“在前一阶段的已经基本完成以上人员的接种工作。”第二步是其他18-59岁人群，第三步是60岁及以上老年人、基础性疾病患者和其他有接种意愿的人员。
+“今年以来，我们一方面对职业暴露风险较高的人群、有境外感染风险的人群，维持社会基本运行关键岗位的人员开展查漏补种，另一方面逐步加快全省各地各类人群的接种工作，这也是第二步的重点安排。”黄飞介绍，全省各地各类人群的接种工作根据风险防控的情况分为口岸所在地和非口岸所在地两 类地区：在口岸所在地，以口岸所在的县区为单位来完成辖区内18岁到59岁的整个人群的疫苗接种；在非口岸地区，在18~59岁的人群范围内，重点完成服务业、劳动密集型行业、高等院校在校学生、各类学校教师职工等疾病传播风险比较高的人群的接种工作
+
+[4月1日专家：中国达到一天1000万人新冠疫苗接种数量没有问题](https://finance.sina.com.cn/china/gncj/2021-04-01/doc-ikmyaawa3279929.shtml)
+
+[4月2日：北京市新冠疫苗接种突破1000万人](https://world.huanqiu.com/article/42YbpabPFWO)
+
+
 
 发布：GLC
 
-+1
+0

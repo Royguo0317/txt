@@ -1,33 +1,42 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 法国政客涉嫌在封禁期间举行豪华地下聚餐
-` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1059219/)
+## 辉瑞称以色列为香蕉共和国 并停止提供疫苗
+` 喜马拉雅意大利罗马达芬奇农场` [轉載自GNews](https://gnews.org/zh-hans/1059274/)
 
-**翻译整理/简评：**旦旦
+```
+信息来源：FOCUS Online
+发布时间：2021年4月6日
+翻译整理/简评： Shuizhuyu
+```
 
-复活节期间，法国富商皮埃尔-让·纱朗颂 (Pierre-Jean Chalençon) 涉嫌在他所拥有的薇薇安宫 (Palais Vivienne)，一所位于巴黎的高级古董餐厅俱乐部内宴请法国一些部长级别的政客。据纱朗颂本人透露，此次聚餐菜肴相当豪华，每道菜肴价格分别在160欧到490欧之间。
 
-该事件先由法国M6台暗中采访，随机瞬间在法国各大媒体发酵，法国内政部长热拉尔德·达尔马宁 (Gérald Damanin) 表示会彻查在巴黎的所有潜在的“地下餐厅”，且巴黎检察官雷米·海兹 (Rémy Heitz) 也在4月4日表示对薇薇安宫的地下聚餐展开刑事调查。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/S1-JH107_isrvax_M_20210215095805-e1617735657289.jpg)封面来源：华尔街日报
 
-#### **简评: **
+由于以色列在该国进行了大规模的疫苗接种运动，因此它被认为是对抗病毒的全球榜样。这里很大一部分人口都接受了疫苗接种，经济再次苏醒。现在，据说该模式陷入了困境，与疫苗生产商辉瑞公司（Pfizer）遇到了麻烦。
 
-**从这则新闻中，我们也许会多少了解到，为什么在人口老龄化且每天感染CCP病毒人数上万的欧洲，政客们还是如此无动于衷，罔顾事实。也许没有蓝金黄，他们和中共那些自认为是人上人的魔鬼也是如出一辙。在法国，民众受CCP病毒的折磨，亲人无法团聚，有人被孤独地困于家中，各小型私人企业因封禁令而面临倒闭之时，这些魔鬼依然逍遥自在。觉得别人的痛苦和死亡与自己毫无关系，因为他们可以私下继续寻欢作乐。其实他们和中南坑的老杂毛一样，吃的是人肉，喝的是人血。**
+辉瑞公司已暂时中止了向以色列的疫苗运输。造成这种情况的原因是250万剂疫苗帐单，到目前为止，特拉维夫尚未支付。制造商随后关闭了疫苗供给，并停止了约7万剂的交付，该剂量应在上周日到达以色列。据《耶路撒冷邮报》消息。
 
-**这个世界的确需要改变了。相信万神万佛把一切都看在眼里，他们看到了人们的痛苦，看到了新中国联邦的努力，看到了闫博士的才智与勇气。恶终将会有恶报，我们看到病毒之父“福奇”的丑恶嘴脸被曝光与天下；看到美国的左媒也开始报道病毒真相……接下来，以毒灭共会继续推进，直到把中共与整个世界丑恶的政客一起推上审判台。**
+据这家制药公司的高级官员称，辉瑞担心，目前正在联合谈判中的政府将不支付这笔费用。就其本身而言，该小组将执行与以色列在2020年11月签订的合同中的所有订单。以色列还为在全国范围内进行的重大疫苗接种运动订购了一千万剂疫苗。
 
-**战友们，请继续传播病毒真相，曙光就要到来了！**
+当疫苗在2月份用尽时，以色列总理本杰明·内塔尼亚胡（Benjamin Netanyahu）和辉瑞（Pfizer）首席执行官阿尔伯特·布尔拉（Albert Bourla）同意再次装运，但最后250万剂尚未支付。
 
-**参考新闻链接：**
+以色列等国因其大流行病的流行而享誉全球，但现在该国已默认不付款，疫苗生产商对此一无所知，据“陆军电台”称，地中海沿岸国将以色列称为“香蕉”共和国”。
 
-1. 🔗[DÎNERS CLANDESTINS: PIERRE-JEAN CHALENÇON NIE EN BLOC ET SE DIT VICTIME D’UN “GUET-APENS”](https://www.bfmtv.com/police-justice/diners-clandestins-pierre-jean-chalencon-nie-en-bloc-et-se-dit-victime-d-un-guet-apens_AN-202104050313.html)
-2. 🔗[DÎNERS CLANDESTINS: GÉRALD DARMANIN DÉCLARE “QU’À SA CONNAISSANCE” AUCUN MINISTRE N’ÉTAIT PRÉSENT](https://www.bfmtv.com/politique/diners-clandestins-gerald-darmanin-assure-qu-a-sa-connaissance-aucun-ministre-n-etait-present_AN-202104060157.html)
+目前，该公司将与以色列政府续签合同，为该国提供更多剂量的疫苗。辉瑞在一份声明中说：“与此同时，交货量可以调整。”以色列卫生部不想在“耶路撒冷邮报”的要求下对该声明发表评论。
 
+#### 简评：
+
+**接种疫苗方面德国是拿以色列当榜样的， 他们认为以色列的起步早， 因此接种的速度很快， 因此就能够抑制病毒特别是新型病毒的继续大流行。 现在看到这条新闻， 觉得很蹊跷， 一个如此的富裕国家， 以色列会因为250万支疫苗不付款， 也够奇葩的。 **
+
+**原文来源链接：**
+
+🔗[Pfizer bezeichnet Israel als “Bananenrepublik” – und stoppt Impfstoff-Lieferungen](https://www.focus.de/gesundheit/coronavirus/rechnungen-nicht-bezahlt-pfizer-bezeichnet-israel-als-bananenrepublik-und-stoppt-impfstoff-lieferungen_id_13165244.html)
 
 * * *
 
-***审核/校对：**Ting Guo*
+***审核/校对***：*Ting Guo*
 
 （免责声明：本文仅代表译者个人观点，跟GNEWS平台无关。）
 
-+1
+0

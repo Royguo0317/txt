@@ -1,19 +1,36 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 奥股基金大佬呼吁美国“鹰“对中共国竞争
-` 秘密翻译组G-Translators` [轉載自GNews](https://gnews.org/zh-hans/1059406/)
+## 比利时布鲁塞尔骑警践踏反对封城的无上装女子
+` 加拿大多倫多楓葉農場 Himalaya Toronto Maple Leaf` [轉載自GNews](https://gnews.org/zh-hans/1059532/)
 
-#### 翻译：cress\_ma | 责编：沙拉猫
-![]()![](https://gnews.org/wp-content/uploads/2021/04/capture-9.jpg)图片来源：www.kevinoleary.com
-4月5日，加拿大著名投资人、奥股交易型开放式指数基金（O’Shares ETF）董事长凯文·奥利里（Kevin O’Leary）在接受美国全国广播公司商业频道（CNBC）采访中表示，在日益激烈的中美竞争中，他属于偏“鹰派”方，主张美国应该采取“极端激进”的措施在竞争中制衡中共国。
+**阿黎**
 
-奥利里指出，尽管他公司的产品在中共国制造，但他却无法在中国市场销售，然而中共国的产品却可以在北美和欧洲畅通无阻。因此，他认为美国应该以其人之道还治其人之身，在美国市场对中资公司设置类似障碍。比如，可以将中共国股票在美国退市，将中共国企业从美国法院系统排除等措施等。
+RT News 4月2日报道，某社交媒体上周五出现了一段视频，视频中一名骑马的警察踩踏了一名在布鲁塞尔参加集会的上身赤裸的女子。
 
-在这个问题上，美国前总统川普（Donald Trump）则施行了正确的政策，因为中共国清楚他们所面临的威胁。在形势最严峻的时候，美国可以将中共股票从美交所摘牌，同时阻止中共国公司在美国法院进行诉讼，因为美国公司在中共国也不能到法院打官司。今年以来，已有多家中共国企业被纽约证券交易所除名，但作为世界上最大的经济体，美国还不必为此过于担心。
 
-近年来，中美在贸易和科技方面的竞争日益激烈。拜登（Joe Biden）总统曾表示，美国及盟友必须让中共国为其滥用权力和胁迫削弱国际经济体系基础的行为付出代价。但奥利里分析认为，欧洲国家并不会对中共国采取强硬措施，因为他们仍要依赖中共国，目前还承担不起失去中共国业务的打击。
 
-&gt;&gt;原报道链接&gt;&gt; [Kevin O’Leary calls for ‘extremely aggressive’ steps to level the playing field with China](https://www.cnbc.com/2021/04/05/kevin-oleary-says-us-must-level-economic-playing-field-with-china.html)
+> Mounted police in Brussels knocked a woman to the ground yesterday when they were trying to clear out thousands at a gathering at the Bois de la Cambre park. Social gatherings are currently banned in Belgium due to COVID-19 restrictions. [pic.twitter.com/yG3YgURyQM](https://t.co/yG3YgURyQM)
+> — Andy Ngô (@MrAndyNgo) [April 2, 2021](https://twitter.com/MrAndyNgo/status/1377972575763070976?ref_src=twsrc%5Etfw)
 
-0
+
+
+视频显示，大量骑警来到公园驱散反对封城的示威人群，其中一名警察骑着马直接撞向站在那里的一名上身裸露的女子，并将她完全撞倒在地。
+
+那位女士躺在地上一动不动，人们目睹了这一切，感到十分惊恐。警察一走，人们就冲到女人身边。
+
+布鲁塞尔的执法部门告诉美联社，事件中3名警察受伤，警察逮捕了四名示威者。
+
+曝出视频的媒体说，聚集在一起的人们向警察投掷瓶子和其他东西，以回应警察对他们使用催泪瓦斯和水来驱散人群。
+
+布鲁塞尔的人们受够了政府长时间的封城，到公园聚集示威，抗议政府无视法律，限制人们的自由，这无可厚非。但警察骑着马直接将裸体女人撞倒，并扬长而去。这种情景与中共国的警察肆意凌虐中国人是何等的相似！难道共产主义已经蔓延到西方到如此的严重的程度？
+
+中共病毒可怕，共产主义这个病毒更可怕。希望全世界人能认识到这一点，联合起来消灭中共，铲除共产主义。
+
+[新闻来源](https://dailycaller.com/2021/04/02/cop-horse-tramples-topless-woman-brussels/?utm_medium=referral&amp;utm_source=mixi&amp;utm_campaign=dailycaller)
+
+* * *
+
+*编辑、发稿 文锦*
+
++1
