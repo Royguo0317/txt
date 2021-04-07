@@ -1,66 +1,55 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 赶紧打疫苗吧-自鸣得意的专制主义与微笑
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1059955/)
+## 中共航母编队到冲绳岛附近向美日传递信息
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1060004/)
 
-内容：
+翻译：康州盘古农场 —郭班之樱
+校对：康州盘古农场 —TrueSky
+编辑：康州盘古农场 —心照
 
-It is clear to them that the vaccine is the ticket back to pre-pandemic life.
+据《日本时报》作者： 杰西·约翰逊（Jesse Johnson），2021年4月5日报道：
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/1-14-8.jpg)
+航拍照片为冲绳北部 （美国海军陆战队下士帕特里夏·洛克哈特（Patricia D. Lockhart）拍摄）
 
-他们很清楚，疫苗是回到大流行前生活的门票
+上周末，中共国派出一艘航空母舰和五艘军舰（其中包括三艘驱逐舰、一艘护卫舰和补给舰）穿过宫古海峡到达冲绳附近，表明该国增长的能力可以在其沿海地区反击美国和日本的军事力量。
 
-And the window to do that is real narrowly
+日本国防部星期天（4月4日）晚上宣布，辽宁号航母和另外五艘军舰星期六被发现在冲绳主岛和宫古岛分开的狭窄通道中，通过国际水域向南航行。 船只没有进入日本水域或其毗连区域。
 
-而做到这一点的时间窗口真正的非常狭窄
+中（共）国第一艘航空母舰辽宁号的这次航行，是自去年4月穿过该区域以来第一次被发现袭击组出现。
 
-You were mentioning help all these states are re opening
+在这六艘船中，有中共国海军强势的于去年1月首次部署的055型“仁海”级导弹巡洋舰。 该驱逐舰配备了垂直发射导弹，观察家说它能够发射远程巡航导弹以及反舰武器。
 
-你提到帮助所有这些州重新开放
+国防部联合参谋部发表的一份声明说，这六艘船首先在周六上午8点左右在长崎县丹佐岛西南约470公里处被发现，然后才穿过宫古海峡。
 
-They are opening 100% and we have a very narrow window to
+联合参谋部在另一份声明中说，中（共）国的一架Y-9军用运输机也在周日在海峡上空往返飞行，促使日本遣派战斗机对此作出反应。
 
-他们将100%开放，我们只有一个非常狭窄的时间窗口
+自从（辽宁）航母于2012年投入运营以来，中共国派遣这艘航母通过此战略瓶颈仅有5次。
 
-tie re-opening policy to vaccination status
+专家们说，此举突显了中共国军方有能力冲破所谓的第一岛链，该岛链是从千岛群岛和琉球群岛延伸到台湾、菲律宾和印度尼西亚的一系列太平洋岛屿。
 
-来将重新开放政策与疫苗接种状况联系起来
+这种延伸加上所谓的第二岛链，包括日本的本国岛屿，延伸到关岛和密克罗尼西亚诸岛，在北京被一些人视为限制该国及其军事的自然屏障。
 
-Because otherwise everything is re opened what is carry going to being
+中（共）国在这两个链条之间区域的军事训练有效地规范化。专家们说，北京正在采取周末航行式的举动来证明中共国的海事进展不会包围在链条中。
 
-因为不然的话，一切都会被重新翻转
+但是更重要的或许是，此举对于中共国在该地区的任何冲突中，对抗美国和日本的不断发展的战略具有重大意义。该地区包括台湾和有争议的南中国海，这也是日本经济福祉至关重要的海上通道所在地。
 
-How we are going to satisfy the people actually to get the vaccine
+中共国声称台湾为自己的领土，最近几个月来，增进了台湾附近的军事活动，包括上个月底在该国附近派遣了20架战机。
 
-我们如何才能真正满足人们接种疫苗的要求呢？
+周日，首相菅义伟强调了日本和美国为缓解台湾紧张局势而进行密切合作的重要性，预计下周与美国总统拜登会面时，这一问题将成为首要议题。
 
-So that’s why the CDC and bottom administration need to come out a lot of
+新加坡拉惹勒南国际研究学院（S. Rajaratnam）研究员和海上安全专家科林·柯（Collin Koh）说；“尤其是与美国在菲律宾海进行军事干预的能力，被视为对于镇守北京在南中国海或台湾第一岛链内的目标至关重要”。
 
-因此，这就是为什么疾控中心和基层政府需要制定
+柯说到，虽然北京现在可能对其近海的军事能力更有信心，但在第一条岛链以东的情况则不同，因为那里从大陆获得的陆地支持机会大大减少。
 
-border and say
+柯说：“因此，中共正在努力获得在这一地区执行航母袭击小组的行动能力，以充分应对美国海军力量，况且海军本身就是围绕航母能力而展开的。此次辽宁号通过宫古海峡，明显被看作是航母袭击组列，它不会只是通过而已”。
 
-很多条条框框，比如
+本文由《日本时报》的杰西*·*约翰逊（*Jesse Johnson*）撰写，并由论坛事务代理商通过行业潜水发布，已获得网络合法许可。[请将所有许可问题直接发送到\[email protected\]](/cdn-cgi/l/email-protection#0a2f4f322f4b4c2f483d2f4f3f2f483a2f323c2f4f3c2f32332f323a2f4f3c2f33492f32332f4f322f4b4f2f48322f4f3f2f324c2f4b4c2f4f332f333d2f4b4f2f4f332f4b382f33322f4f3d2f33482f483e2f4f3c2f324f2f4b3f2f4f3f2f324c2f333b2f4f332f323a2f323b2f4f3f2f32322f483a666f6d6b664a63646e7f797e78736e637c6f24696567)
 
-If you are vaccinated you can do all the things, here is all the freedom that you have
-
-如果你接种了疫苗，你就可以做所有的事情，这就是你所拥有的所有自由
-
-Because otherwise, people are going to out to enjoy freedoms anyway
-
-因为不然的话，人们无论如何都会走出去享受自由
-
-* * *
-
-英听校:康州盘古农场-WZ
-翻译: 康州盘古农场-WZ
-翻译终校: 康州盘古农场-Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片:康州盘古农场-银龙
-发文编辑：康州盘古农场-轰炸机
+原文链接：[https://www.military.com/daily-news/2021/04/05/china-sends-aircraft-carrier-strike-group-near-okinawa-message-us-and-japan.html](https://www.military.com/daily-news/2021/04/05/china-sends-aircraft-carrier-strike-group-near-okinawa-message-us-and-japan.html)
 [!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
 康州盘古农场欢迎您加入:(或点击上方图片）
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
-+1
+0

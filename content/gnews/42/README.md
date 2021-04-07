@@ -1,71 +1,56 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 阳光使中共病毒失活的速度是先前预测的8倍
-` 温哥华圆成农场🇨🇦` [轉載自GNews](https://gnews.org/zh-hans/1059418/)
+## [疫情下的西班牙]西班牙ICU面临越来越大的压力
+` 西班牙巴塞罗那喜悦农场` [轉載自GNews](https://gnews.org/zh-hans/1059548/)
 
-**作者：**Virgilio Marin 2021-04-05
-
-**翻译：**加拿大温哥华圆成农场 卢卡斯
-![]()![](https://gnews.org/wp-content/uploads/2021/04/000.png)图片来源：Virgilio Marin原文
-《自然新闻》研究人员发现，阳光使中共病毒失活的速度是预测的八倍多。加州大学圣巴巴拉分校的机械工程学教授保罗·卢扎托-费吉兹和他的同事回顾了最近的研究，这些研究探讨了紫外线（UV）光的不同波段（即UVA、UVB和UVC辐射）对中共病毒的影响。
-
-UVA是三个波段中最弱的，而UVC是最有活力的，并已被证明能灭活病毒，例如中共病毒。几乎所有到达地表的紫外线辐射都是 UVA，因为所有的 UVC 和大多数UVB紫外线都被地球的臭氧层所吸收。
-
-阳光灭活病毒的能力通常归因于UVB，它可以杀死微生物。例如，研究人员分析的一项研究表明，中共病毒由于UVB损害病毒的RNA而失去其活性。
-
-这项研究表明，紫外线UVB灯照可以在大约20分钟内在模拟唾液中使病毒灭活。但在上一个月晚些时候发表的一项研究表明，阳光本身就能在同样的时间内使病毒灭活。这导致研究人员怀疑UVB引起的RNA灭活结论”是片面的”。
-
-阳光也许能预防感染
-
-第二个实验室研究表明，唾液中的病毒在暴露于阳光中10到20分钟内便失去活性，这就像暴露于UVB中一样。保罗·卢扎托-费吉兹和他的团队指出，这个时间范围的上限比第一个研究的理论模型所预测的要快八倍以上。同时，在生长介质中培养的病毒的灭活速度比预测的要快三倍以上。
-
-另外，研究人员暗示，除了UVB之外，可能还有另一种紫外线。例如，UVA可能扮演比最初想象的更积极的杀灭病毒的角色。
-
-保罗·卢扎托-费吉兹和他的团队指出，如果中共病毒对较弱的光波长很敏感，那么阳光也许比先前所认为的更能减轻病毒在更广阔的纬度范围和白天时间的户外传播。远离赤道的地区往往受到少量的太阳辐射，而在黄昏和黎明时分的阳光照射会减少。
-
-UVA辐射还可以提供更方便、更安全的紫外线消毒方法。虽然 UVC 辐射可以人工制造，但它是最具破坏性的紫外线形式，会引起了安全问题，这限制了其实际应用。
-
-UVC非常适合医院，俄勒冈州立大学环境和分子毒理学教授、本文合著者朱莉·麦克默里说。但在其他环境中（例如厨房或地铁），UVC 会与颗粒物质相互作用，产生有害的臭氧。
-
-加州大学圣巴巴拉分校机械工程学教授、本文的另一位合著者朱阳英指出，现在广泛使用的LED灯泡比阳光强很多倍。这些灯泡可用于加速病毒灭活，而 UVA 射线则可用于增强空气过滤系统的功能，因为其对人体的危险度很低。
-
-总的来说，研究人员建议进行额外的实验，以完全确定不同波长的紫外线对存在于不同介质中的病毒的影响。
-
-**评：**美国国土安全部的科技顾问威廉布莱恩说，自然阳光含有的紫外线很容易摧毁病毒； 迄今为止最引人注目的观察就是太阳光似乎对杀死病毒具有强大影响，无论是在表面还是在空气中；仅仅在阳光下晒太阳有助于降低中共病毒的感染和传播的风险，因为病毒根本无法与自然阳光共存;然而中共的走狗世界卫生组织，就像比尔盖茨那样只支持药物和疫苗对中共病毒起作用疾病，警告UVC可以烧伤皮肤，造成眼睛损伤[1]。另外，维生素 D 可以预防 COVID，尤其是在黑人患者中[2][3]。维生素D缺乏是中共病毒感染者住院和死亡的主要原因，而且医院临床表明维生素D帮助中共病毒感染者恢复健康作用巨大，但是维生素D的作用往往被忽视，因为疫苗制造公司需要从中获利，因此任何其他对身体更有帮助的东西都会被压制和审查，以迫使他们服从一个带有自己风险的虚假救世主—疫苗[4]。如果我们每周2~3次每次30~60分钟沐浴在阳光下，阳光照射在我们的皮肤上提供给我们维生素D[5]。因此晒太阳不但能使中共病毒失去活性，而且让我们体内产生帮助我们对抗中国病毒的维生素D，是一举两得的事情。
-
-常识告诉我们，足够自然光照射对我们的健康非常重要！特别是在当前中共病毒全球大流行时刻，接种中共病毒疫苗不但不能保护我们避免中共病毒的感染，反而等于一个植入我们人体的定时生物炸弹。中共病毒疫苗是全球主义者用来全球人口灭绝计划的一个手段。为了保护自己，我们必须拒绝接种任何中共病毒疫苗，同时需要通过其他途径譬如说服用硫酸羟氯喹，锻炼身体，晒太阳等办法来保护自己免受中共病毒的感染。然而我们要想最好地保护自己免遭中共病毒的致命伤害，还得回到解决中共病毒的终极解决办法，那就是消灭邪恶的CCP，拯救整个人类。
-
-#### **原文：**Virgilio Marin, “GET OUTSIDE: Sunlight inactivates Wuhan coronavirus 8 times faster than previously predicted, researchers found”.《 Natural News》, April 5, 2021.** **[https://www.naturalnews.com/2021-04-05-sunlight-inactivates-coronavirus-8-times-faster.html](https://www.naturalnews.com/2021-04-05-sunlight-inactivates-coronavirus-8-times-faster.html)
-
-####  
-
-#### [1] [Ethan Huff](https://www.naturalnews.com/author/ethanh), “Homeland security scientist confirms that natural sunlight kills coronavirus”. 《 Natural News》, May 1, 2020. [https://www.naturalnews.com/2020-05-01-homeland-security-scientist-natural-sunlight-kills-coronavirus.html](https://www.naturalnews.com/2020-05-01-homeland-security-scientist-natural-sunlight-kills-coronavirus.html)
-
-####  
-
-#### [2] [Jeremiah Rodriguez](https://www.ctvnews.ca/more/ctvnews-ca-team/jeremiah-rodriguez-1.4199667), “High vitamin D levels may protect against COVID-19, especially for Black people: study”. 《CTVNews》，March 21, 2021.** **[https://www.ctvnews.ca/health/coronavirus/high-vitamin-d-levels-may-protect-against-covid-19-especially-for-black-people-study-1.5356165](https://www.ctvnews.ca/health/coronavirus/high-vitamin-d-levels-may-protect-against-covid-19-especially-for-black-people-study-1.5356165)
-
-####  
-
-#### [3] Mary Van Beusekom, “Vitamin D may prevent COVID, especially in Black patients”. [《CIDRAP News](%20《CIDRAP%20News)》, March 22, 2021. [https://www.cidrap.umn.edu/news-perspective/2021/03/vitamin-d-may-prevent-covid-especially-black-patients](https://www.cidrap.umn.edu/news-perspective/2021/03/vitamin-d-may-prevent-covid-especially-black-patients)
-
-####  
-
-#### [4] [Lance D Johnson](https://www.naturalnews.com/author/ljdevon), “Vitamin D deficiency is the primary cause of covid hospitalizations and deaths”.** **March 31, 2021.** **[https://www.naturalnews.com/2021-03-31-vitamin-d-deficiency-cause-covid-hospitalizations-deaths.html](https://www.naturalnews.com/2021-03-31-vitamin-d-deficiency-cause-covid-hospitalizations-deaths.html)
-
-####  
-
-#### [5] Mike Adams, “Every person needs sunlight exposure to create vitamin D, obesity impairs vitamin D absorption”.  《 Natural News》, January 01, 2005.** **[https://www.naturalnews.com/003838.html](https://www.naturalnews.com/003838.html)
-
-免责声明：文章观点仅代表作者本人，与GNEWS平台无关！
-
-编辑/发布：比卡丘
-
-20210406
-![]()![](https://gnews.org/wp-content/uploads/2021/03/WhatsApp-Image-2021-03-19-at-8.52.30-PM.jpeg)
-#  
+- 作者：gokuabuela
 
 
+***更多真相，请关注 [Gtv](https://gtv.org/)、[Gnews](https://gnews.org/)！***
+
+**西班牙2021年4月6日电/西喜社——**
+
+据国家报4月6日，疫情的持续，给西班牙的重症监护室（ICU）带来压力。第三波疫情的影响仍然存在，每五张ICU的病床中就有一张被中共病毒患者占用，可能的第四波疫情的威胁，使医院始终处于戒备状态。在这种情况下，任何感染率上升都将使该国的卫生系统再次陷入危险之中。
+
+“每一波之间，都没有足够的时间进行缓和”巴塞罗那瓦勒德希伯伦(Vall d’Hebron)医院ICU负责人、西班牙重症医学会主席理查德- 费德雷（Ricard Ferrer）抱怨道。
+
+不管是马德里，还是加泰罗尼亚，或是拉里奥哈，或是梅利利亚，目前都有30%以上的重症监护室病床被中共病毒患者占用。卫生部的警报系统认为的低风险则为5%-10%。
+
+疫情迫使医院加强ICU床位的基础设施建设，目前全国有1万个床位，是疫情发生前的两倍多。医院目前的工作就像一种手风琴，根据需求提供或取消床位。”根据卫生部的数据，西班牙ICU中有1925名中共病毒患者。
+
+连日来，新感染的发病率一直在增长，周一的14天每10万居民感染率为163例。这也促使ICU的病床占用率增长了4.45%。”病人在ICU的时间非常长，”马德里格雷戈里奥·马拉尼翁（GregorioMarañón）医院ICU主任何塞·尤金尼奥·格雷罗（JoséEugenio Guerrero）解释道。”虽然看起来感染率在下降，但在ICU中，我们从来没有能够轻松过。”
+
+目前，进入ICU的患者年龄较小，总体恢复情况良好，但进度并不快。而且发病曲线的进展速度要比ICU的恢复速度快。”世界卫生组织（WHO）前主任丹尼尔-洛佩斯-阿古涅（Daniel López-Acuña）警告说。”如果有第四波，即使它的规模较小，我们也会产生累积效应。”
+
+拉里奥哈卫生系统的经理阿尔贝托-拉富恩特（Alberto Lafuente）同意这一观点。”情况非常令人担忧，因为第三波的病人仍处在缓慢的恢复状态，我们已经看到系统的压力如何开始再次上升，”他说。
+
+西班牙目前35.8%的ICU床位被中共病毒患者占用，拉里奥哈是这方面受影响最严重的地区之一。在第三波ICU入院高峰期，即2月1日，西班牙45.3%的ICU床位被中共病毒患者占用，接近4900人。但在拉里奥哈，这个数字高达71%。”我们的医疗系统规模较小，我们没有其他地区的灵活性，所以我们不得不随机应变。”拉富恩特解释说。在马德里，目前中共病毒患者对ICU的占用率为37%，而在加泰罗尼亚地区为35%，在北非城市梅利利亚则为41%。
+
+西班牙的ICU总是在高占用率的情况下工作，但他们的资源是有限的，第一波患者的涌入让系统不堪重负–医院不得不停止所有其他活动，比如暂停手术和其他医疗活动，并将大部分ICU床位分配给最严重的中共病毒患者。
+
+在第二波和第三波期间，医院不得不想办法将中共病毒治疗和正常医疗活动结合起来，但也不得不经常暂停后者。拉富恩特坚持认为，这次的挑战将是 “尽量不要让系统停下来”。他继续说道。”如果重症监护室再次爆满，我们将不得不求助于其他地区的专业人士，而例如咨询、测试和其他手术等将被搁置。”
+
+专家们预测，与前几次相比，第四波疫情可能将 “平淡一些”，但他们预测ICU将再次遭受痛苦，并警告说，工作人员已经 “筋疲力尽”。”我认为，最好不要有第四波，”费德雷说。”我们知道如何阻止它，所以让我们不要急于解除限制令。”
+
+**简评：**
+
+**首先，我要向战斗在第一线的西班牙医护人员致以崇高的敬意！我为你们骄傲！**
+
+**自疫情爆发以来，西班牙ICU的工作人员忘我的工作，都非常的辛苦，不仅是身体上的疲惫，更多的是心理上的疲惫。没有尽头的工作，很多患者的死去，不知道何时能结束的疫情，和整个西班牙社会一样，也正如中共的超限战希望达到的效果一样，整个社会的心理遭到疫情重创。**
+
+**很多次，很多人，都在问，疫情什么时候能结束？疫情要怎样才能结束？政府和主流媒体都在推疫苗，告诉人们要执行限制令，要打疫苗。**
+
+**传递的概念是完全错误的，这是中共希望达到的效果。通过限制令摧毁你正常的社会活动，折磨你的心理，让你暴躁、沮丧，最好让你上街去抗议，去反对政府，并让那些以为呆在家里就可以结束疫情的人去憎恨你！让社会产生隔阂，产生分裂，动摇你的社会根基。**
+
+**而无能的政府除了利用疫情作为武器攻击政敌，就只会叫人打疫苗，一切的希望和一切的责任都可以让疫苗承担。**
+
+**但是民众们并不傻，许许多多的民众开始疑问，质问病毒的来源，质问疫苗的作用，他们缺乏的只是完整的信息，让他们可以连成一个完整的逻辑链。这在我们平时对西班牙人的信息推广中，就能感觉到，对我们推广的接受程度越来越高了。**
+
+**随着闫博士第三篇病毒报告的推出，随着美国政府和世界上其他正义力量认识到，自己已经到了生死存亡之时，会有越来越多的民众开始认识到，只有追查病毒来源，消灭中共，才是结束疫情的唯一方式。**
+
+编辑：Victor Torres；校对: 阿伯塔；组稿：神奇四侠；发稿：信心的选择
+
+**新闻来源：**[国家报](https://english.elpais.com/society/2021-04-06/spains-icus-under-mounting-pressure-as-coronavirus-cases-rise-the-situation-is-very-worrying.html)
 
 0

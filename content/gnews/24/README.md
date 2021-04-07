@@ -1,19 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 分析显示年轻的新西兰人是因为新冠疫情而失业的重灾区
-` 喜马拉雅农场新西兰站` [轉載自GNews](https://gnews.org/zh-hans/1059720/)
+## 别忘了中共和北朝鲜的同一个目标：社会主义共产世界
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1059896/)
 
-翻译再创作：明心见性
+内容：
 
-很多新西兰年轻人在这个新冠经济衰退期要有更高的技能或者重新再培训才能找到工作。据话新西兰新闻媒体节目报道，，30岁以下，有带薪的工作的年轻人，较去年来说大约减少了近2万人。
+朱利安尼先生（Giuliani）：
 
-据社会发展和就业部长Carme Sepuloni表示政府正在出台新的措施来面临的挑战，比如学徒制方案和Mana in Mahi（政府推出的带薪实习 ，为找到正式工作做准备的方案）。严峻的现实被提前预见到了。在收紧的人才市场中，年轻人明显处于劣势。她还表示对于年轻人来讲，大部分人很少有过硬的技术和经验，他们工作的一些领域大多是新冠疫情中被打击的重灾区。
+Then Kim, Jong-un, kind of，put a finishing touch on it.
 
-对于30岁以上的人来说是一个乐观的前景，今年30岁以上被雇佣的人数比去年多了1万8千人。
+然后，金正恩画了最后一笔
 
-高级经济学家Brad Olsen表示年轻人总是被先裁员的。现在国家很多人都没有工作，或者很难找到工作，如果变成长期依赖就很危险。（政府给予学生辅助；正在找工作的人也可以拿到找工作津贴）
+When he and Xi, Jing-Ping,
 
-评论：最近奥克兰一位亚裔女孩发起的反对仇视亚洲人的大游行示威，奥克兰很多亚裔和当地人都积极参与了。自从新冠疫情暴发以来新西兰各个城市的种族歧视针对亚裔尤其是中国人的暴力事件上升很多。当地政府只注重CCP带来的贸易好处，对CCP病毒几乎没有过多的提及。广大媒体也是集体沉默。所以新西兰的年轻人又在疫情中丢失工作，进而产生抵触亚裔的情绪病迁怒于在纽华人所以导致种族事件上升，进入恶性循环。希望我们新西兰的战友们踊跃的传播病毒真相，让洋人把中国人和CCP分开。灭共没你不行，灭共从我做起！
+他和习近平
+
+just the other day, put out a joint statement
+
+就在前几天，发表了一份联合声明。
+
+The joint statement is a kind of Duvet an opera
+
+联合声明就像唱双簧的
+
+They are on the same side that they reform the unity as communist countries
+
+他们站在共产主义国家改革团结的立场上
+
+Working together to cop with hostile forces United State
+
+与敌对势力联手迫使美国
+
+into advanced costs of socialism
+
+进入“先进的昂贵的”社会主义
+
+Please don’t forget that they have a goal
+
+请不要忘记，他们有一个目标
+
+that is to make the world socialist and communist
+
+那就是使世界成为社会主义和共产主义
+
+No god, the state owns your property and owns you
+
+没有上帝，国家拥有你的财产，拥有你
+
+That is for communism and socialism are in real life
+
+那是因为共产主义和社会主义就在在现实生活中的体现
+
+A lot of our children don’t know that because we don’t teach them any more
+
+我们很多孩子都不知道这一点，因为我们不再教他们了
+
+* * *
+
+英听校:康州盘古农场-WZ
+
+翻译: 康州盘古农场-WZ
+
+翻译终校: 康州盘古农场-Mike Li
+
+字幕+视频制作:康州盘古农场-天涯行
+
+审片：康州盘古农场-银龙
+
+发文编辑：康州盘古农场-轰炸机
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盤古農場歡迎您加入:(或點擊上方圖片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

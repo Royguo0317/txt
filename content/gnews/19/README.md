@@ -1,76 +1,97 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 别忘了中共和北朝鲜的同一个目标：社会主义共产世界
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1059896/)
+## 人权是美国外交政策的核心
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1059943/)
 
 内容：
 
-朱利安尼先生（Giuliani）：
+President Biden is committed to putting human rights
 
-Then Kim, Jong-un, kind of，put a finishing touch on it.
+拜登总统致力于将人权
 
-然后，金正恩画了最后一笔
+back at the centre of American foreign policy, and that’s a commitment that I and the entire
 
-When he and Xi, Jing-Ping,
+放回到美国外交政策的中心，这是我个人和
 
-他和习近平
+Department of State take very seriously.
 
-just the other day, put out a joint statement
+国务院所有人非常认真的承诺
 
-就在前几天，发表了一份联合声明。
+We will bring to bear all the tools of our diplomacy to defend human rights and
 
-The joint statement is a kind of Duvet an opera
+我们将动用所有外交手段捍卫人权
 
-联合声明就像唱双簧的
+hold accountable perpetrators of abuse.
 
-They are on the same side that they reform the unity as communist countries
+追究施暴者的责任
 
-他们站在共产主义国家改革团结的立场上
+The reports we’re releasing today are just one way to do that.
 
-Working together to cop with hostile forces United State
+我们今天发布的报告只是实现这一目标的一种方式
 
-与敌对势力联手迫使美国
+One of the core principles of human rights is that they are universal.
 
-into advanced costs of socialism
+人权的核心原则之一是它们是放之四海而皆准的普世原则。
 
-进入“先进的昂贵的”社会主义
+All people are entitled to these rights, no matter where they’re born,
 
-Please don’t forget that they have a goal
+所有人都有权享有这些权利，无论他们出生在哪里，
 
-请不要忘记，他们有一个目标
+What they believe, whom they love, or any other characteristic.
 
-that is to make the world socialist and communist
+无论他们的信仰，他们爱的人，或任何其他性格
 
-那就是使世界成为社会主义和共产主义
+Human rights are also co-equal;
 
-No god, the state owns your property and owns you
+人权亦是平等的；
 
-没有上帝，国家拥有你的财产，拥有你
+there is no hierarchy that makes some rights more important than others.
 
-That is for communism and socialism are in real life
+没有等级制度使某些权利比其他权利更重要。
 
-那是因为共产主义和社会主义就在在现实生活中的体现
+Past unbalanced statements that suggest such a hierarchy,
 
-A lot of our children don’t know that because we don’t teach them any more
+过去不平衡的声明暗示了这样的等级制度，
 
-我们很多孩子都不知道这一点，因为我们不再教他们了
+including those offered by a recently disbanded
+
+包括最进撤销的一个声明
+
+State Department advisory committee,
+
+国务院顾问委员会，
+
+do not represent a guiding document for this administration.
+
+不代表本届政府的指导性文件
+
+At my confirmation hearing,
+
+在我的提名确认听证会上，
+
+I promised the Biden-Harris Administration
+
+我向拜登-哈里斯政府承诺
+
+would repudiate those unbalanced views.
+
+会否定那些不平衡的观点
+
+We do so decisively today.
+
+今天我们非常果断地这样做了
 
 * * *
 
 英听校:康州盘古农场-WZ
-
 翻译: 康州盘古农场-WZ
-
 翻译终校: 康州盘古农场-Mike Li
-
-字幕+视频制作:康州盘古农场-天涯行
-
-审片：康州盘古农场-银龙
-
+字幕+视频制作:康州盘古农场-
+审片:康州盘古农场-银龙
 发文编辑：康州盘古农场-轰炸机
 [!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盤古農場歡迎您加入:(或點擊上方圖片）
+康州盘古农场欢迎您加入:(或点击上方图片）
 
 [https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 

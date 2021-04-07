@@ -1,140 +1,41 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彼得·纳瓦罗（Peter Navarro）称安东尼·福奇（Anthony Fauci）为“病毒之父”
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1059980/)
+## 中共加强海洋行动，日本罕见直批
+` JPHIMALAYA` [轉載自GNews](https://gnews.org/zh-hans/1060168/)
 
-内容
+【日本东京方舟农场】 搜集/编撰：丸子  校对：miumiu law
 
-Dr. Fauci
+据大纪元2021年04月05日讯，周一（4月5日），日本外相茂木敏充给王毅打电话90分钟，表达了罕见的“强烈担忧”，他要求中共停止入侵争议海域，呼吁中共改善维吾尔人的人权条件，并停止对香港的镇压。
 
-福奇博士
+3日，以“辽宁号”为首的航舰编队从东海通过冲绳本岛与宫古岛间的宫古海峡，穿越“第一岛链”进入西太平洋。日本防卫省研判，中共此次航行是北京在东海加强海洋行动的一环。
 
-It became very clear
+对于中共此次行动的解释，国际评估与数据战略重心高级研究员Richard Fisher称这些部署旨在威胁日本，恐吓日本不要支持台湾，中共想要攻占台湾，接管台湾，消灭台湾的民主文化。此举引发日本的强烈反应。
 
-它变得非常清楚
+日本首相菅义伟日前在出席电视节目时表示，希望在美日合作维持的情况下，创造可以使中国大陆及台湾和平解决的环境，他强调，有关台湾的情势对日本十分重要。
 
-that decision we made on January the 10th
+此外，菅义伟还表示，若被界定为“有事”时，日本可能有限地行使集体自卫权，即在与本国关系密切的国家卷入他国武力纷争时，无论自身是否受到攻击，都会出兵海外，参与多方军事集团，以武力主动介入他国战争事务以打击某一方。
 
-在1月10日我们做出的决定
+日本首相菅义伟将在4月16日亲赴美国，与美国总统拜登举行首次首脑会谈，外界预测应对中共崛起，“台湾安全问题”等将成为重要议题。日本在这次会谈前释放出罕见的强硬信号，引发国际关注。
 
-to go all out and develop a vaccine
+![]()![](https://gnews.org/wp-content/uploads/2021/04/C5944FC8-3365-49F8-868F-D3D2F98C7BF8.jpeg)
 
-来全力以赴开发一款疫苗
+战友观点：
 
-We have a number of vaccine candidates
+由此可见，中共对有争议海域的入侵，就是针对美日台结盟和统一对抗中共的事实而来。台湾作为美国遏制中共国太平洋威慑计划的首位，美国驻军台湾很可能会公开化和正式化。而这一切都是由于近期中共对台海、南海及东海的威胁加剧造成的，带来日本和美国等诸多结盟国的加速行动。
 
-我们有许多候选疫苗
+路德社节目曾说过，习总加速师面临内忧外患，中共内部政治的稳固性岌岌可危，武统台湾是实现其民族主义的复兴之路，还有台湾有先进的晶片工艺等重要原因，武统台湾可以转移国内矛盾，维稳其统治地位。虽然中共面临世界各国的加速结盟，但也无路可退，总加速师毕竟只能且只会无限加速度下去，这样与世界为敌，与正义为敌，也必然走向加速灭亡。
 
-May have been the best decision that I’ve ever made
+注：本文仅代表作者观点
 
-可能这是我关于作为研究所负责人
+参考链接：
 
-with regard to intervention as the director of the institution
+1. [https://www.epochtimes.com/gb/21/4/5/n12859457.htm](https://www.epochtimes.com/gb/21/4/5/n12859457.htm)
+2. [https://telegra.ph/soundofhope-04-06-8](https://telegra.ph/soundofhope-04-06-8)
+3. [https://twitter.com/yulin18494807/status/1379242944138342401](https://twitter.com/yulin18494807/status/1379242944138342401)
+4. [https://cn.nytimes.com/opinion/20201223/china-armed-reunification-taiwan/zh-hant/](https://cn.nytimes.com/opinion/20201223/china-armed-reunification-taiwan/zh-hant/)
+5. [https://www.soundofhope.org/post/491978](https://www.soundofhope.org/post/491978)
+6. [https://twitter.com/BoDiplo/status/1379234259001610243](https://twitter.com/BoDiplo/status/1379234259001610243)
 
-做过的最好的决定
-
-0:21
-
-Rachel Campos-Duffy (Fox News)
-
-瑞秋·坎波斯·达菲(福克斯新闻）
-
-All right a quick reaction to that
-
-好吧, 对此的快速反应
-
-I know that’s got to be steaming you Peter
-
-我知道那一定要让你烦，彼得
-
-0:28
-
-Dr. peter navarro
-
-彼得·纳瓦罗博士
-
-Fauci is a sociopath and a liar
-
-福奇是一个社交变态者和骗子
-
-He had nothing to do with the vaccine
-
-他与疫苗无关
-
-The father of the vaccine is Donald J Trump
-
-疫苗之父是唐纳德·J·川普
-
-What is Fauci the father of,
-
-福奇是什么的父亲
-
-Fauci is the father of the actual virus
-
-福奇其实是病毒之父
-
-Fauci is the guy
-
-福奇是这样的家伙
-
-this virus according to Bob Redfield at the centers for disease control
-
-这个病毒按照疾病控制中心的鲍勃·雷德菲尔德（Bob Redfield） 的意见
-
-Came from the Wuhan lab
-
-是来自武汉实验室
-
-and basically we had Fauci not funding that lab with American tax payer dollars
-
-并且基本上，福奇不止用美国纳税人的钱资助了那个实验室
-
-He authorized this thing called gain-of-function research
-
-他授权了这个叫做功能增强研究的东西
-
-He allowed the Chinese Communist Party,
-
-他允许中国共产党
-
-the people’s liberation Army to genetically engineer a virus using gain-of-function
-
-人民解放军使用功能增强来制造基因病毒
-
-I call it the Fauci virus now
-
-我现在叫它福奇病毒
-
-If he wants to be the father of something
-
-如果他想成为某事之父
-
-He’s the father of the virus that’s killed over half a million Americans
-
-他是那个杀死了超过50几万美国人的病毒之父
-
-1:12
-
-Rachel
-
-瑞秋
-
-Well, Peter, we’re still trying to get to the bottom of that
-
-好，彼得，我们对那个仍然尝试着深挖到底
-
-* * *
-
-英听校：康州盘古农场 – Layka
-翻译：康州盘古农场 – Layka
-翻译终校：康州盘古农场 -Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片:康州盘古农场-银龙
-发文编辑：康州盘古农场-轰炸机
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

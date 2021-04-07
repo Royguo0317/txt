@@ -1,22 +1,66 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 美国打响对中共的资本战
-` 丁过` [轉載自GNews](https://gnews.org/zh-hans/1059869/)
+## 赶紧打疫苗吧-自鸣得意的专制主义与微笑
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1059955/)
 
-![中美贸易战可能的四个结局_风闻](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcT5_s3aEdhjV6fhKWZ6CCy5aXw1ioUxxeS04Q&amp;usqp=CAU)图片来源：user.guancha.cn
-#### 加拿大枫叶农场 丁过
+内容：
 
-中共于**2018**年**3**月取消了国家主席任期限制，并在宪法中增加向习近平表示敬意的内容，完全把习近平定为“一尊”，本质上是为中共的非法统治提供“宪法”支持，为习近平与毛泽东相似的胡作非为提供“法律”保障。习近平于**2019**年底故意放毒，就是继承中共毛式恶政的必然结果。
+It is clear to them that the vaccine is the ticket back to pre-pandemic life.
 
-中共自故意放毒的那一天开始，实际上已经做好了和西方决裂的准备，因为放毒本身已经是不可饶恕的战争行为。一年多过去了，被中共深度腐蚀的西方反应缓慢，竟然病毒来源还无法认定。但是近来出现了令人振奋的亮点**——**美国对中共展开了资本反击战。
+他们很清楚，疫苗是回到大流行前生活的门票
 
-中共搞乱、搞跨、搞死美国是从文化、政治、经济、科技及三权系统全方位进行腐蚀和攻击的。中共对俄罗斯、伊朗等产油国推动去美元的石油交易，在非洲推行人民币。最近在国际上加速推进人民币数字化试点，出台全球数字化货币标准等，都是为了挤压甚至取代美元，是对美国发起的资本战争。昨天郭文贵先生披露中共蓄谋已久的“以钱灭美”计划已经实施，包括鼓动各国检查或运走存放在美国的黄金，然后存放到中共国，条件是中共承诺也存放等额的黄金，并给予各国随时查看的权利，同时中共给予等额的零息贷款。这个阴谋实际上是要取代美元霸权，当美国失去美元霸权时，世界霸主就是中共的了，但到目前为止，这仅仅是中共的如意算盘，而美国的资本反击战开始了。
+And the window to do that is real narrowly
 
-棉纺及服装行业是低附加值及劳动密集型产业，为中共国提供上亿人的就业。中共国**2020**年纺织服装类出口达到2912亿美元，是其年度贸易顺差5350亿美元的最大贡献产业。可想而知，美国对中共国棉花及其制品进行全面制裁，对中共的打击是致命的。由此可以看出，为什么美国在新疆及香港人权问题上缺乏行动，对棉花问题却雷霆万钧。在主权国家中，只有美国政府采取了正式的官方制裁措施，美国商务部、美国海关与边境保护局均发布了对中共国棉花及其制品的进口禁令，无疑这是美国“以钱灭共”的招数。
+而做到这一点的时间窗口真正的非常狭窄
 
-拜登政府为了整固因**CCP**病毒破坏而极度空虚的财政，挽救濒临信用崩溃的美元，阻止正在狂挖美国墙脚的中共，必将祭出更多的资本大杀器以图置中共于死地，但中共为了续命决不会轻易束手就擒，必定联合一切邪恶力量和动用所有资源进行疯狂反扑，可以预见，世界将陷入激烈的动荡，由于中共是逆天道的，最后的胜利不可能属于中共。
+You were mentioning help all these states are re opening
 
-链接： https://www.mg21.com/rusong/?p=1663
+你提到帮助所有这些州重新开放
+
+They are opening 100% and we have a very narrow window to
+
+他们将100%开放，我们只有一个非常狭窄的时间窗口
+
+tie re-opening policy to vaccination status
+
+来将重新开放政策与疫苗接种状况联系起来
+
+Because otherwise everything is re opened what is carry going to being
+
+因为不然的话，一切都会被重新翻转
+
+How we are going to satisfy the people actually to get the vaccine
+
+我们如何才能真正满足人们接种疫苗的要求呢？
+
+So that’s why the CDC and bottom administration need to come out a lot of
+
+因此，这就是为什么疾控中心和基层政府需要制定
+
+border and say
+
+很多条条框框，比如
+
+If you are vaccinated you can do all the things, here is all the freedom that you have
+
+如果你接种了疫苗，你就可以做所有的事情，这就是你所拥有的所有自由
+
+Because otherwise, people are going to out to enjoy freedoms anyway
+
+因为不然的话，人们无论如何都会走出去享受自由
+
+* * *
+
+英听校:康州盘古农场-WZ
+翻译: 康州盘古农场-WZ
+翻译终校: 康州盘古农场-Mike Li
+字幕+视频制作:康州盘古农场-天涯行
+审片:康州盘古农场-银龙
+发文编辑：康州盘古农场-轰炸机
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盘古农场欢迎您加入:(或点击上方图片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 +1
