@@ -1,33 +1,60 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【香港要闻】 清明节港人没有 忘记抗争的孤魂港共政府派警驻 守
-` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1059799/)
+## 川普总统抨击《纽约时报》贬低草根筹款
+` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1060040/)
 
-搜集/编撰：心听见
-![]()![](https://gnews.org/wp-content/uploads/2021/04/aaaaazzz.png)图片来源立场新闻：「守护孩子」成员陈基裘先生（陈伯）
-**据（独媒报导）时值清明节翌日，清明节一整天阴雨连绵，暮雨生寒，今日凉风飒飒。在沙岭坟场，继昨日后，今日续有零星市民到场悼念。连续第三天在场的「守护孩子」成员陈基裘（陈伯）指，现时政治气氛严峻，故只好「做得多少就多少」，亦盼望勉励前来拜祭的同路人，「希望大家都不要放弃。」**
+俄罗斯莫斯科喀秋莎农场   仰望七星
 
-**在早上十时许，从罗湖道入口步行，沿途已有数架警车停泊，亦不有军装警员巡逻。初时市民人数颇多，包括一家大细和老人家。沿着斜路和楼梯蜿蜒而上，经过一座座刻有名字的石墓，人渐变得疏落。再顺着金塔斜坡段步行，歪过小路，便到达近七年的土葬山坡段。**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/cxcxxxx.png)图片来源看中国：港共便衣警员截查登记前来拜祭人士的身份证号码
-而警方自早上起便于沙岭坟场驻守，并要求市民和记者在进入T2019年段与T2020年段时，均需要登记身分证。今日亦不例外，记者欲进入公墓范围时，在正门守候的便衣警员立刻作截查。从楼梯拾级而上，只见石碑东歪西倒的竖立在两侧；碑上没有名字，没有相片，仅得死亡年份和号码，碑下埋葬着一具具无名尸体。现场稍显冷清，杂草丛生，惟不少墓碑前摆放着水果、糖果和奶油蛋糕，是市民前来纪念先人的凭证。每当有其他市民到场遭警员截查时，陈伯必会箭步在旁监察，又不忙向市民提供蚊怕水和矿泉水。
+编辑上传  水星
+![]()![](https://www.gnews.org/wp-content/uploads/2021/04/G.jpg)commondreams.org
+川普总统在回击《纽约时报》时，继续揭露民主党人如何窃取了2020大选。
 
-身穿黑衣的陈小姐于十一时半抵场，在T2020段的墓区放置近百束白花，其中部分由自己和朋友自制而成。她指自己原本不懂得折纸，惟希望多行一步，遂与友人据网上影片自学，花近三天时间，以丝带折成一束束花朵。她表示因为是初学者，每朵花接近花费逾半个钟才完成，但希望以此机会向无名手足传意。
+声明全文如下：
 
-**战友点评：**
+2021年4月5日
 
-「**清明时节雨纷纷路上行人欲断魂。」这是描写清明时节的一句诗词，也描述了多少人的心情，然而我们的心情随着清明的到来，也变得有少许沉重，因为让我们想起无论是在中共国内地、香港被中共极权迫害而死亡的人，甚至因为中共的邪恶制造中共病毒肆虐全球感染至死的几百万人，整个世界因为邪恶的暴政在哭泣，多少家庭因为中共的邪恶而失去了亲人。我们也看到邪恶的中共极权暴政不会给世界带来安宁，只给世界带来了秩序的混乱及死亡的威胁和伤悲。**
+美利坚合众国第45任总统唐纳德·川普的声明
 
-在中共极权统治的国度，因政见不同而或者因暴政人为的死亡者，到了年的清明时节他们的墓地都会被中共派打手监视。而在暴政统治下的香港，已经没有了自由也是这样，拜祭也被极权监控，中共真的无耻到人死了都不放过，真不知道港共政府惧怕什么？坏事做绝，是怕天网恢恢 ？
-![]()![](https://gnews.org/wp-content/uploads/2021/04/fedes111.png)图片来源：网络图片
-**派打手黑警自早上起便于沙岭坟场驻守，进入T2019年段与T2020年段时，警员不但监视，亦截查，是不是已经说明了这些碑上没有名字，没有相片，仅得死亡年份和号码，碑下埋葬着一具具无名尸体与政治有关？令人心痛，难道这里埋葬了就是暴政之下因政治原因各种「死无可疑」的人士？虽然无名石碑之下的人是一个迷，但是港共政府派出警力戒备，如此夸张的手法已经告诉我们。不但被黑警监视骚扰，仍有市民不畏强权暴政，前来悼念因抗争而去世的无名手足。**
+在另一个高度党派化的报道中，失败的《纽约时报》本周末写了一篇完全误导人的、片面的攻击文章，试图贬低我们创纪录的、草根筹款行动在2020年竞选中的地位。若不是大规模的选举舞弊，这场竞选很容易就被你们喜欢的共和党总统，我，胜出！
 
-**而中共以为滥用权力就可以掩盖，抹去曾经伤害香港人的罪行，无论中共怎样的动用权力恶法来阻止，但是他们的初心都会不变，而我相信这个世界是有公义的，中共极权暴政对世界人民所作的恶魔行为，总有一天会被审判，还因中共暴政而死去的人一个公道和早日安息。**
-![]()![](https://gnews.org/wp-content/uploads/2021/04/ghyujuu.png)图片来源：网络图片
-【以上观点仅代表笔者本人】
+我们在2020年获得了前所未有的巨大支持（迄今为止，获得的选票超过了历史上任何一位在任总统），这已经成为民主党的主要威胁，这也解释了为什么《纽约时报》立即匆忙捍卫其激进的左翼盟友。
 
-新闻来源：[独立媒体](https://www.inmediahk.net/node/1081853)
+在我们两次大选之前，2016年和2020年的共和党人总是会损失少量的捐款，现在我们赢了，或者说做得很好，因为我们是美国的劳动党，我们在自己的竞赛中打败了民主党，我们从自由派的“蓝色行动”（Actblue）中学到了东西——现在我们比他们做得更好！事实上，很多人都很热心，一次又一次地捐款，在某些情况下，如果捐款过多，我们会及时退还他们的捐款。我们的整体纠纷率不到网上捐款总额的1%，这是一个非常低的数字。这也是民主党（DEM）做的。
 
-审稿：卡西欧   /   上传：彩虹（ Rainbow )
+《纽约时报》知道这一点，但将这些细节隐藏起来不谈论，他们不谈作弊的民主党人如何绕过摇摆州的州立法机构（美国宪法要求批准）操纵2020年总统选举，或者民主党人如何在许多城市中心搞有偿投票，施展那些被称作“绕钱走”的小花招，也不谈民主党人如何威胁工会成员，如果他们不投票给民主党人，他们将失去工作，大量的假邮寄选票，非法移民和死人投票给民主党人等等。我们的筹款工作，与共和党合作，都是合法的，都是为了确保我的政府能够继续让美国再次伟大起来，另一方面，选举被大量操纵和窃取，现在看看我们国家，特别是我们南部边界发生了什么。
 
-+1
+如果你是创纪录的7500万美国人中的一员，那些投票支持我，捐款或志愿服务的，谢谢你，最好的还没来呐！（声明完）
+
+大选舞弊的揭露涉及宪政危机，川普总统正在全力推进这项议程，而民主党也会竭尽全力掩盖阻止，一条贼船上的左媒自然会选边，不过，真相不会永远被掩盖，7500万人众不能受欺太久，背后的恶魔终究会暴露，邪恶必将受到惩治！
+
+声明原文链接：
+
+
+
+> President Trump responds to NYT hit piece:
+> 
+> “Our support in 2020 was so big—never before seen (received more votes than any sitting President in history, by far), that it has become a major threat to the Democrat Party…”
+> 
+> FULL STATEMENT: [pic.twitter.com/IaCQMYThRs](https://t.co/IaCQMYThRs)
+> — Natalie Harp (@NatalieJHarp) [April 5, 2021](https://twitter.com/NatalieJHarp/status/1379151646177980416?ref_src=twsrc%5Etfw)
+
+
+
+声明文字整理：
+
+Apnl5, 2021
+
+Statement by Donald J. Trump, 45th President of the United States of America
+
+In yet another highly partisan story, the failing New York Times wrote a completely misleading, one-sided attack piece this weekend that tried to disparage our record-setting grassroots fundraising operation during the 2020 campaign. Except for massive voter fraud this was a campaign that was easily won by your favorite Republican President, me!
+
+Our support in 2020 was so big-never before seen (received more votes than any sitting President in history, by far), that it has become a major threat to the Democrat Party, which explains why the New York Times immediately rushed to defend their Radical Left allies.
+
+Before our two campaigns, 2016 and 2020 Republicans would always lose small dollar donations. Now we win, or do very well, because we are the Party of Working Americans and we beat the Democrats at their own game. We learned from liberal Actblue–and now were better than they are! In fact, many people were so enthusiastic that they gave over and over, and in certain cases where they would give too much, we would promptly refund their contributions. Our overall dispute rate was less than 1% of total online donations, a very low number. This is done by Dems also.
+
+The New York Times knew this but buried these details in their story-they didn’t talk about, however, how the CHEATING Democrats circumvented State Legislatures (approval is required by the U.S.  Constitution) in Swing States to rig the 2020 Presidential Election, or how Democrats paid for votes in many Urban Centers, in a little thing called walking around money, how Democrats threatened Union Members with the loss of their jobs if they didn’t vote Democrat, massive Fake Mail-In Ballots, illegal immigrants and dead people who voted (for Dems) and much more. Our fundraising efforts, working together with the Republican party, were all done legally, and all with the goal of ensuring that my Administration could continue to Make America Great Again. The Election on the other hand, was massively rigged and stolen-and now look what is happening to our Country, and in particular at our southern border.
+
+If you are one of the record-setting 75 million Americans who voted for me, donated or volunteered, THANK YOUI The best is yet to come!
+
+0

@@ -1,140 +1,53 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 彼得·纳瓦罗（Peter Navarro）称安东尼·福奇（Anthony Fauci）为“病毒之父”
-` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1059980/)
+## 【国际众声】疫苗“金钟罩” 给你护照，乖乖戴上“镣铐”
+` 喜馬拉雅-粵語組` [轉載自GNews](https://gnews.org/zh-hans/1060151/)
 
-内容
+搜集\编撰：之之
+![]()![](https://gnews.org/wp-content/uploads/2021/04/2q2we333-2.jpg)图片来源：网络
+**据【4月4日联合报消息】整理：**
 
-Dr. Fauci
+**名为疫苗接种凭证计画（VCI）的「疫苗护照」全球标准规格,计划于4月将公布。制定此标准的组织包含微软、甲骨文等多家科技巨擘和医疗照护业者等超过200个成员。**
 
-福奇博士
+**「疫苗护照」规格标准，将整合经数位验证的诊疗资讯、用户的姓名、生日和疫苗接种纪录，以及新冠病毒筛检状态，并且以机器可读取的QR码呈现即便于操作的应用程式（ App）。未来可望整合入航空公司App等平台，为后疫情时期的旅游通关做准备。**
 
-It became very clear
+目前已有多个研发团队正如火如荼测试几款疫苗护照App。例如生物辨识扫描技术公司Clear正与夏威夷州政府合作，推出受信任旅客计画（TTP），帮助旅客下载App并加速通过机场安检。此外，Clear的健康护照App已被多个体育联盟和博物馆采用，能验证购票者的疫苗接种状态。
 
-它变得非常清楚
+另外，非营利组织Commons Project基金会和国际航空运输协会（IATA）等组织也正各自推出App，方便乘客证明他们的新冠病毒筛检或疫苗接种资讯，以便快速通关。这类App能解决乘客的问题，旅客不必到每个入境国的移民网站上传健康资料文件。人们也能藉由秀出这类疫苗护照，获准进入办公室、餐厅、酒吧等公共场所。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/lolkvf5.jpg)图片来源：网络
+**战友观点：**
 
-that decision we made on January the 10th
+“金钟罩”乃一传说神功，练者刀枪不入。人是凡夫肉体难敌刀枪是孩童都知的常识，可叹对神功深信不疑者仍执迷不悟。
 
-在1月10日我们做出的决定
+迷信之人会丧失分辨真假之能力，曾经人类迷信宗教陷入黑暗，原以为事过境迁进入了更文明的科技时代，却不知“科学”被包装为宗教，以新形式迷惑众生。如今人类又将被“科学”宗教带入新劫难，这就是“中共病毒”催生的“疫苗魔咒”。
 
-to go all out and develop a vaccine
+疫苗为人类所用已有上百年历史，时至今日种类繁多，几乎人人都接种过。众所周知疫苗从研发到应用已有严格流程，最短的也在五年以上，可中共病毒疫苗从病毒爆发到全球大面积接种匆匆忙忙，连一贯做事严谨的欧美也手忙脚乱，何故？事有蹊跷，且寻踪问迹探个究竟。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/yhyhyh655566.jpg)图片来源：网络
+**一切从阎丽梦博士曝光中共病毒开始，中共原想悄无声息进行的“病毒超限战”，一年多来在目睽睽之下无所遁形。对国内中共封锁信息（掩盖死亡、传染真相），销毁、造假病毒数据，对世界则蓄意播毒，在各国恐吓、收买、抹黑无所不用其极。中共的种种卑劣行径令人愤怒，但众多所谓民主国家的表现，真正颠覆乾坤，世人不禁为之愕然。**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/rtrtrtgr587.jpg)图片来源：网络
+其一、权力、利益至上。病毒已至200多万人死亡，竟无一国政府揭穿中共恶行，各国感染、死亡的国民成为政客和利益者们的牺牲品。可以保命、救人的羟氯喹被刻意忽视，制药公司只盘算疫苗生意的利益，并不稳定的疫苗被大量接种，让民众面临病毒、疫苗双重伤害。政客则一边帮疫苗背书捞政治资本，一边跟中共勾兑用国家利益换取好处。
 
-来全力以赴开发一款疫苗
+其二、民主、法制的脆弱。中共多年的蓝金黄和渗透，原本应为人民服务的西方政府沦为贪利忘义之地，美国大选就是血淋淋的现实。中共更玩弄意识形态多年，掌控报纸、电视等媒体，把控网络话语权，民主、法制的基石被破坏。美国、法国、德国、加拿大等更时有遵纪守法者被伤害，破坏者反被纵容的消息。
 
-We have a number of vaccine candidates
+其三、神性迷失，人性堕落。中共善利用人性作恶，曾经西方国家认为自己的宗教信仰能抵御中共之恶。事实是新疆、香港、缅甸一个个堕入中共操控的地狱，连美国也摇摇欲坠，人们才不得不相信，如今罗马教廷都已迷失。新兴的科技巨头俨然已将自己凌驾于众生之上，控制言论、封锁真相，隐约显现出共产邪灵的分身。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/gyhyt5544.jpg)图片来源：网络
+现在明白“疫苗护照”是何物了吗？是否有似曾相识之感，稍作回忆，2020年疫情一开始中共借口防疫就在国内推出的“健康码”，2021年以同样手段在香港换装上市的“安心出行”。初始假意宣传“自愿安装”，再以恢复经济、生活为由强推接种疫苗，最终结合为“疫苗证”，如无将禁入任何场所、禁用任何交通工具，加上中共国早已无处不在的监控摄像、人脸识别、车辆跟踪等等，让你寸步难行，犹如监狱。此即以“为人民服务”的名义来管控人民，也称中共国奴隶证。
 
-我们有许多候选疫苗
+如此“疫苗护照”一成，西方民众将同中共国人民一起享受“没有民主、法制、自由”的新生活。多年来西方利益者们以中共为师，步步为营，新兴科技巨头更想借此开创新型权力“监控资本主义”，借科技打造“牢笼”控制世界。病毒、疫苗不过是早编好的剧本，最终人人获送“疫苗镣铐”，世界大同，“现代奴隶制”时代来临！
+![]()![](https://gnews.org/wp-content/uploads/2021/04/mkmkbg.jpg)图片来源：网络
+【以上观点仅代表笔者个人】
 
-May have been the best decision that I’ve ever made
+资料来源：
 
-可能这是我关于作为研究所负责人
+[打造疫苗护照 全球新标准出炉](https://udn.com/news/story/120944/5364441)
 
-with regard to intervention as the director of the institution
+[为了武汉肺炎，中国推出超强黑科技！人人都逃不掉的「健康码」](https://www.storm.mg/lifestyle/2464218)
 
-做过的最好的决定
+[防疫为名 监控为实：健康码如何导致全民监控？](https://www.hkctu.org.hk/zh-hant/content/%E9%98%B2%E7%96%AB%E7%82%BA%E5%90%8D-%E7%9B%A3%25%20E6%8E%A7%E7%82%BA%E5%AF%A6%EF%BC%9A%E5%81%A5%E5%BA%B7%E7%A2%BC%E5%A6%82%E4%25%20BD%95%E5%B0%8E%E8%87%B4%E5%85%A8%E6%B0%91%E7%9B%A3%E6%8E%A7%EF%BC%9F)
 
-0:21
+[纽约州发表采用IBM区块链平台的疫苗护照](https://www.ithome.com.tw/news/143515)
 
-Rachel Campos-Duffy (Fox News)
-
-瑞秋·坎波斯·达菲(福克斯新闻）
-
-All right a quick reaction to that
-
-好吧, 对此的快速反应
-
-I know that’s got to be steaming you Peter
-
-我知道那一定要让你烦，彼得
-
-0:28
-
-Dr. peter navarro
-
-彼得·纳瓦罗博士
-
-Fauci is a sociopath and a liar
-
-福奇是一个社交变态者和骗子
-
-He had nothing to do with the vaccine
-
-他与疫苗无关
-
-The father of the vaccine is Donald J Trump
-
-疫苗之父是唐纳德·J·川普
-
-What is Fauci the father of,
-
-福奇是什么的父亲
-
-Fauci is the father of the actual virus
-
-福奇其实是病毒之父
-
-Fauci is the guy
-
-福奇是这样的家伙
-
-this virus according to Bob Redfield at the centers for disease control
-
-这个病毒按照疾病控制中心的鲍勃·雷德菲尔德（Bob Redfield） 的意见
-
-Came from the Wuhan lab
-
-是来自武汉实验室
-
-and basically we had Fauci not funding that lab with American tax payer dollars
-
-并且基本上，福奇不止用美国纳税人的钱资助了那个实验室
-
-He authorized this thing called gain-of-function research
-
-他授权了这个叫做功能增强研究的东西
-
-He allowed the Chinese Communist Party,
-
-他允许中国共产党
-
-the people’s liberation Army to genetically engineer a virus using gain-of-function
-
-人民解放军使用功能增强来制造基因病毒
-
-I call it the Fauci virus now
-
-我现在叫它福奇病毒
-
-If he wants to be the father of something
-
-如果他想成为某事之父
-
-He’s the father of the virus that’s killed over half a million Americans
-
-他是那个杀死了超过50几万美国人的病毒之父
-
-1:12
-
-Rachel
-
-瑞秋
-
-Well, Peter, we’re still trying to get to the bottom of that
-
-好，彼得，我们对那个仍然尝试着深挖到底
-
-* * *
-
-英听校：康州盘古农场 – Layka
-翻译：康州盘古农场 – Layka
-翻译终校：康州盘古农场 -Mike Li
-字幕+视频制作:康州盘古农场-天涯行
-审片:康州盘古农场-银龙
-发文编辑：康州盘古农场-轰炸机
-[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
-康州盘古农场欢迎您加入:(或点击上方图片）
-
-[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
+审核：卡西欧 /  上传：彩虹（ Rainbow )
 
 0

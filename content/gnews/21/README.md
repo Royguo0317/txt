@@ -1,60 +1,37 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统抨击《纽约时报》贬低草根筹款
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1060040/)
+## 民主家常谈：立约的社会
+` 澳喜农场` [轉載自GNews](https://gnews.org/zh-hans/1060261/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+撰稿：文娜
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/G.jpg)commondreams.org
-川普总统在回击《纽约时报》时，继续揭露民主党人如何窃取了2020大选。
+最早的立约记载，要追溯到【圣经】的创世记，伊甸园中上帝与亚当和夏娃的立约、大洪水之后上帝以彩虹为证与诺亚子孙的立约，而最典型的是上帝与以色列人的祖先亚伯拉罕的立约。新约和旧约是一个整体，行为之约和恩典之约共同构成一个完整的神人之约。这些以后有机会再详谈。【圣经】启示了立约是人类社会各种共同体存在和发展的根本。
 
-声明全文如下：
+上一讲，讲到【圣经】是民主国家美国的开国之本，是民主自由的根基。这次就藉讲讲国富民强的美国的立约由来，看见他们的三权分立，可以让国家相对民主。
 
-2021年4月5日
+“法律面前人人平等”的思想，最早显现在十三世纪英国的《大宪法》里，这些制度条文的形成，开始象征着人性的觉醒，是削弱专制君权的过程，使得绝对权力终于有了对立面，它象征着绝对专制的动摇。这一人类制度史上的深远成就，其实就是法治从无到有的过程，它们无疑昭示着人类举足轻重的进步。英国历史学家、政治家布莱斯（Viscount Bryce）曾说过：“《大宪章》是英格兰民族宪政历史的起点，它将自由政府的理念不仅与英格兰联系起来，还与英格兰民族所到之处以及这个世界上讲英文的地域连接了起来。”
+![]()![](https://gnews.org/wp-content/uploads/2021/03/16171769061.png)网络截图
+在1606年4月10日，英国国王詹姆斯一世指定两个独立的公司合并组成弗吉尼亚公司，授权其沿着美洲海岸组建种植园和定居点，授权的法律表现形式是国王批准《弗吉尼亚第一章程》（The First Charter of Virginia）的生效。在1607年5月12日，有104名获得在新大陆开辟殖民地的授权的商人，就从遥远的英国登陆了北美弗吉尼亚的海岸，他们在这里建立了第一个永久性的英属殖民地——詹姆斯镇，以纪念国王詹姆斯一世。在这里，以英国移植过来的制度为基础，建立了议会政治的雏形，同时还训练出了一批最优秀的政治家，其中包括美国的第一任总统华盛顿、第三任总统托马斯·杰斐逊、第四任总统詹姆斯·麦迪逊。美国建国初期的很多政治家，或多或少都与威廉斯堡这个小城镇有着一些联系。前面提到的《弗吉尼亚第一章程》（The First Charter of Virginia）。 “Charter”一词有多重含义，该词从皇家层面上看，有特许状的含义；在商业组织层面，可以视为“公司章程”，但是如果上升到国家治理层面，则可以视为“宪章”。“Charter”一词的含义如何多重，但是它的基本法律含义则包含着一个共同的指向：契约精神。这就是北美大陆现代国家治理结构的前身。
 
-美利坚合众国第45任总统唐纳德·川普的声明
+十多年后的1620年，“五月花号”他们当时登陆的地方，并不是英国当局管理的弗吉尼亚，而是一个荒凉陌生的地方。“他们之所以离开舒适的家园，是出于开拓一个新的世界；他们甘愿尝尽流亡生活的种种苦难，去使一种理想获致胜利。”  在上岸之前，41名清教徒“在上帝和众人面前立约，自愿结为民众自治团体，并不时据此而制定、形成或设立对于殖民地普遍利益而言最适合也最便利的公正而平等的法律、规章、条例、宪章和公职”，由此签订了《五月花号约定》并建立了普利茅斯镇。 《五月花号约定》可以说是美国历史上第一份政治性契约。给人与人之间除基于暴力的杀戮、征服和奴役之外，又多了一个选择——基于契约的合作。契约，让人类摆脱了弱肉强食的丛林世界，成为文明与野蛮的分界点。签约人对契约的信任和遵守，从而实现了政治的文明。《五月花号公约》在内容上否定了在欧洲大陆由来已久的君权神授思想，否认了统治权无须平民认可的传统，它所呈现出的依法管理、民众自治理念成为其他北美殖民地竞相效仿的模式。
 
-在另一个高度党派化的报道中，失败的《纽约时报》本周末写了一篇完全误导人的、片面的攻击文章，试图贬低我们创纪录的、草根筹款行动在2020年竞选中的地位。若不是大规模的选举舞弊，这场竞选很容易就被你们喜欢的共和党总统，我，胜出！
+1776年7月4号，北美十三个英属殖民地发表独立宣言，正式宣告从英国独立， 美国诞生。美国最重要的立国文件之一：《独立宣言 》正文中有如下几句话：我们认为下述真理不证自明：“凡人生而平等，造物者赋予他们若干不可剥夺的权利，其中包括生命权、自由权和追求幸福的权利。”  明显地，它与宗教信仰有关，虽然它并没有直接引用宗教词汇。《独立宣言》就是宗教、哲学、政治理念和社会现实奇妙地整合，它是宗教与文化融合的一个典型例子。
 
-我们在2020年获得了前所未有的巨大支持（迄今为止，获得的选票超过了历史上任何一位在任总统），这已经成为民主党的主要威胁，这也解释了为什么《纽约时报》立即匆忙捍卫其激进的左翼盟友。
+1787年宪法使得北美十三州殖民地在形式上成为一个统一的国家。这十三个统治构造（包括领主制、庄园制、宗教信仰制、军事专制等），历史、文化各不相同的州所建立的联邦，它们虽然都不约而同且大同小异地移植了英国的体制，但还是有很多全新的和赤裸裸的本土法律。殖民地时期不同的定位、独立后迥异的生产模式、面对奴隶制的不同立场和联邦政府的薄弱权力使得美国更像是“十三个国家的联合体”而非一个统一的国家。
 
-在我们两次大选之前，2016年和2020年的共和党人总是会损失少量的捐款，现在我们赢了，或者说做得很好，因为我们是美国的劳动党，我们在自己的竞赛中打败了民主党，我们从自由派的“蓝色行动”（Actblue）中学到了东西——现在我们比他们做得更好！事实上，很多人都很热心，一次又一次地捐款，在某些情况下，如果捐款过多，我们会及时退还他们的捐款。我们的整体纠纷率不到网上捐款总额的1%，这是一个非常低的数字。这也是民主党（DEM）做的。
+1789年，美国宪法生效。这一天，美国国会的第一届会议在纽约市召开。这是北美十三州殖民地共同的牺牲行动决定了独立战争造就的是一个统一的国家，而各州在独立战争中选择共同斗争而不是各自为营，这就决定了各州只能作为国家的一部分而不享有作为独立主权国家的神圣性。内战重建了美国，并使得美国通过新的修正案（第十四条修正案）获得新的生命。各州承认《联邦宪法》也就是默认放弃主权国家的地位而成为美利坚合众国的一部分。
 
-《纽约时报》知道这一点，但将这些细节隐藏起来不谈论，他们不谈作弊的民主党人如何绕过摇摆州的州立法机构（美国宪法要求批准）操纵2020年总统选举，或者民主党人如何在许多城市中心搞有偿投票，施展那些被称作“绕钱走”的小花招，也不谈民主党人如何威胁工会成员，如果他们不投票给民主党人，他们将失去工作，大量的假邮寄选票，非法移民和死人投票给民主党人等等。我们的筹款工作，与共和党合作，都是合法的，都是为了确保我的政府能够继续让美国再次伟大起来，另一方面，选举被大量操纵和窃取，现在看看我们国家，特别是我们南部边界发生了什么。
+二百多年后，美国宪法仍然定义和限制着美国政府的权力，并保障美国人民的权利。美国联邦立宪就是契约立国的一个模范过程。它第一次让全世界认识到，“打江山、坐江山”是专制逻辑，国家原来是可以通过和平立约的方式建立起来的。立约就是要谈，而不能打；既要为自己抗争，也要向对方妥协。美国宪法或许算不上一部契约，但它是建立在这个不言自明的契约思维基础上的，美国宪法的不断完善，就是体现契约思维的不断完善的文本，它本身是利益妥协的产物，并为通过利益妥协解决社会冲突的民主治理模式奠定了制度基础。
 
-如果你是创纪录的7500万美国人中的一员，那些投票支持我，捐款或志愿服务的，谢谢你，最好的还没来呐！（声明完）
+好，今次先讲这些。我们的民主家常谈，就是要宣传分享，让国人了解更多的民主知识。本人献上我学习的总结，与朋友们分享。共同学习和为新中国联邦国的建设多思考和寻出路！谢谢大家！
 
-大选舞弊的揭露涉及宪政危机，川普总统正在全力推进这项议程，而民主党也会竭尽全力掩盖阻止，一条贼船上的左媒自然会选边，不过，真相不会永远被掩盖，7500万人众不能受欺太久，背后的恶魔终究会暴露，邪恶必将受到惩治！
+我爱你们！耶稣爱你们！神爱世人！
 
-声明原文链接：
+下周见！
 
+(文章内容仅代表作者观点)
 
-
-> President Trump responds to NYT hit piece:
-> 
-> “Our support in 2020 was so big—never before seen (received more votes than any sitting President in history, by far), that it has become a major threat to the Democrat Party…”
-> 
-> FULL STATEMENT: [pic.twitter.com/IaCQMYThRs](https://t.co/IaCQMYThRs)
-> — Natalie Harp (@NatalieJHarp) [April 5, 2021](https://twitter.com/NatalieJHarp/status/1379151646177980416?ref_src=twsrc%5Etfw)
-
-
-
-声明文字整理：
-
-Apnl5, 2021
-
-Statement by Donald J. Trump, 45th President of the United States of America
-
-In yet another highly partisan story, the failing New York Times wrote a completely misleading, one-sided attack piece this weekend that tried to disparage our record-setting grassroots fundraising operation during the 2020 campaign. Except for massive voter fraud this was a campaign that was easily won by your favorite Republican President, me!
-
-Our support in 2020 was so big-never before seen (received more votes than any sitting President in history, by far), that it has become a major threat to the Democrat Party, which explains why the New York Times immediately rushed to defend their Radical Left allies.
-
-Before our two campaigns, 2016 and 2020 Republicans would always lose small dollar donations. Now we win, or do very well, because we are the Party of Working Americans and we beat the Democrats at their own game. We learned from liberal Actblue–and now were better than they are! In fact, many people were so enthusiastic that they gave over and over, and in certain cases where they would give too much, we would promptly refund their contributions. Our overall dispute rate was less than 1% of total online donations, a very low number. This is done by Dems also.
-
-The New York Times knew this but buried these details in their story-they didn’t talk about, however, how the CHEATING Democrats circumvented State Legislatures (approval is required by the U.S.  Constitution) in Swing States to rig the 2020 Presidential Election, or how Democrats paid for votes in many Urban Centers, in a little thing called walking around money, how Democrats threatened Union Members with the loss of their jobs if they didn’t vote Democrat, massive Fake Mail-In Ballots, illegal immigrants and dead people who voted (for Dems) and much more. Our fundraising efforts, working together with the Republican party, were all done legally, and all with the goal of ensuring that my Administration could continue to Make America Great Again. The Election on the other hand, was massively rigged and stolen-and now look what is happening to our Country, and in particular at our southern border.
-
-If you are one of the record-setting 75 million Americans who voted for me, donated or volunteered, THANK YOUI The best is yet to come!
-
+审稿：文筝 编辑：五饼二鱼
+![]()![](https://gnews.org/wp-content/uploads/2021/04/澳喜图标2.jpg)
 0

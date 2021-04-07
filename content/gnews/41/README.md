@@ -1,33 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 欧美缩小跨大西洋认识差距联合抗共
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1059662/)
+## 别忘了中共和北朝鲜的同一个目标：社会主义共产世界
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1059896/)
 
-译者： CPA Jim
-![]()![](https://gnews.org/wp-content/uploads/2021/04/image-53.png)图片来源：365解密
-据《外交官杂志》2021年4月6日报道，在《跨太平洋视野见解系列》第266期，郭梅茨访谈了萨拉·基希伯格博士（Dr. Sarah Kirchberger）（以下简称萨拉），认为需要制定与中共进行战略竞争的跨大西洋蓝图。萨拉是斯科夫克罗夫特战略与安全中心（Scowcroft Center for Strategy and Security）的外籍高级研究员，基尔大学安全政策研究所的亚太战略与安全部（Asia-Pacific Strategy and Security at the Institute for Security Policy at Kiel University）主任、德国海军学院（German Maritime Institute）副院长。
+内容：
 
-去年，大西洋理事会（Atlantic Council）派给汉斯·本嫩迪克（Hans Binnendijk）和萨拉，制作跨大西洋中共国报告的任务，以强化盟友合作应对中共国挑战。
+朱利安尼先生（Giuliani）：
 
-开始的时候，他们发现盟友间对中共国挑战的性质存在认知差距。中共很狡猾地对世界不同地区给不同的脸色，对一些国家展现为一个需要的投资来源或必需的商业伙伴，对另一些国家就是一个国家性的欺凌或重大的安全挑战。为了有效应对这个挑战，需要将这些局部认知整理成一个整体性认知并缩小这些认知之间的差异。
+Then Kim, Jong-un, kind of，put a finishing touch on it.
 
-他们的报告识别出了两个领域-人权和胁迫性外交-已经存在差距，两个领域-经济风险和技术风险-存在部分差距，一个领域-军事领域-多数情况下没有差距。
+然后，金正恩画了最后一笔
 
-他们的主要发现和关键建议是需要更紧密更系统性的跨大西洋合作与情报分享，需要将涉及中共国全球活动的不同的点连接起来，以便正确解释其不受欢迎的行为模式及其对我们“核心利益”（借用一下中共的词汇）的影响。另一个关键的必需是联盟需要搞清楚面对中共国时的优先选项。需要制度化，例如本报告的贡献者富兰克林·克拉默（Franklin D. Kramer）以前所建议的-创建一个“跨大西洋合作应对中共国委员会”。一个任务是清晰定义所有盟友达成共识的优先事项，然后设计解决这些优先事项的共同方法。在缺乏共识的领域，就要有机制缩小认知差距并管理分歧。
+When he and Xi, Jing-Ping,
 
-美国和欧盟在对付中共国上的一个关键区别是他们对中国作为安全挑战的不同看法。 美国捍卫西太平洋各国的安全，直接或间接参与了中共国的大部分领土争端，无论涉及台湾，钓鱼岛还是南中国海。 迄今为止，包括北约在内的欧洲国家一直将欧洲战场上的俄罗斯作为主要安全问题，并已或多或少从对中共国的假想敌推算中排除了军事风险。 欧洲内部当然不是统一的，例如法国或英国（即使不再是欧盟）之类的国家，其总是比德国更有全球和战略眼光。
+他和习近平
 
-在前川普政府的上半任期，欧洲国家似乎是在对冲他们的赌注，因为他们发现他们自己夹在了一边的美国贸易制裁和不再友好的论调和另一边中共国增大压力之间。中共国努力试图增加这些跨大西洋之间的差异并加以利用。
+just the other day, put out a joint statement
 
-中俄之间加强战略协助迫使欧洲人放弃了原来的观念，即中共国的军事崛起对他们而言无关紧要。疫情，中共胁迫外交，美国重回与盟友之间的伙伴关系，让欧洲发生了转变。当欧洲整体上仍然非常希望避免冷战或更糟糕的会强迫他们卷入的中美热战时，现在在这里许多人已经意识到，欧洲人确实在塑造当前紧张局势的结果中可以起积极作用，而仅仅袖手旁观将无济于事。
+就在前几天，发表了一份联合声明。
 
-列出的问题领域是互相关联的。在分析过去与中共国打交道的错误时，需要特别将产业考虑进去，以便得到一个真实的画面展示现存的依赖关系和需要处理的漏洞，理解我们自身的影响能力。应该启动跨国和跨行业的学习过程，例如可以对有害技术转让的重大案例进行事后调查，以此作为更有效反制措施的基础。单个企业不仅需要遵守清晰的法规，而且在面对中共国的多重挑战情况下，需要可靠的情报和更好的指引来开展经营活动。当下欧洲国家政府、欧盟和北约需要就西太平洋地区军事升级的风险紧急开展应急计划，以避免他们自己站错了地方，并联合行动避免这样的结果。
+The joint statement is a kind of Duvet an opera
 
-译评：大西洋理事会的研究报告表明欧美已经发现了中共采取的是离间计，采取各种方法离间欧美，也不排除英国脱欧协议一波三折也是中共离间计的一部分。法中基金会成员、中共与瑞士签订的秘密安全协议、先正达董事会成员对跨大西洋地区安全的伤害和分歧的贡献应该不小，欧美需要共同抵御法中基金会、中共瑞士秘密协议、先正达董事会成员等中共蓝金黄势力和行动的影响。
+联合声明就像唱双簧的
 
-原文链接：[https://thediplomat.com/2021/04/the-china-plan-transatlantic-blueprint-for-strategic-competition/](https://thediplomat.com/2021/04/the-china-plan-transatlantic-blueprint-for-strategic-competition/)
+They are on the same side that they reform the unity as communist countries
 
-发布：GLC
+他们站在共产主义国家改革团结的立场上
+
+Working together to cop with hostile forces United State
+
+与敌对势力联手迫使美国
+
+into advanced costs of socialism
+
+进入“先进的昂贵的”社会主义
+
+Please don’t forget that they have a goal
+
+请不要忘记，他们有一个目标
+
+that is to make the world socialist and communist
+
+那就是使世界成为社会主义和共产主义
+
+No god, the state owns your property and owns you
+
+没有上帝，国家拥有你的财产，拥有你
+
+That is for communism and socialism are in real life
+
+那是因为共产主义和社会主义就在在现实生活中的体现
+
+A lot of our children don’t know that because we don’t teach them any more
+
+我们很多孩子都不知道这一点，因为我们不再教他们了
+
+* * *
+
+英听校:康州盘古农场-WZ
+
+翻译: 康州盘古农场-WZ
+
+翻译终校: 康州盘古农场-Mike Li
+
+字幕+视频制作:康州盘古农场-天涯行
+
+审片：康州盘古农场-银龙
+
+发文编辑：康州盘古农场-轰炸机
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盤古農場歡迎您加入:(或點擊上方圖片）
+
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0

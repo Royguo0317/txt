@@ -1,39 +1,141 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【三票专栏】旧文重发：邮件显示科学界帮助中共掩盖COVID-19来源真相
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1059556/)
+## 【班农战斗室】849-850-851期简讯
+` 墨尔本雅典娜农场` [轉載自GNews](https://gnews.org/zh-hans/1059663/)
 
-三票先生Mr.3rights
-![]()![](https://gnews.org/wp-content/uploads/2021/04/三票-e1617751866704.png)
-重发说明：本人去年11月20日在GNEWS上发此文，根据爆料革命获得的邮件资料，揭露Peter Daszak 2020年2月6日就串通26名美国知名公共卫生专家联名签署声明，说中共病毒非自然起源是阴谋论，误导美国科学界进而误导美国政府对中共病毒起源的判断。这就是闫丽梦博士说的**超限科学误导**。4个多月后的今天美国各界逐步知道了真相。事实证明只要我们坚持不懈爆料，真相终会大白于天下。文中的英文为邮件中英文的原话，以便读者准确理解。原文如下：
+#### **翻译：七彩光**
 
-On November 18, emails obtained by U.S. Right to Know show that a [statement in *The Lancet*](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736%2820%2930418-9/fulltext) authored by 27 prominent public health scientists condemning “conspiracy theories suggesting that COVID-19 does not have a natural origin” was organized by  EcoHealth Alliance, a non-profit group. The scientists’ letter appeared in*The Lancet* on February 18, just one week after the World Health Organization announced that the disease caused by the novel coronavirus would be named COVID-19.
+#### **校对/编辑：文泓**
+![]()![](https://gnews.org/wp-content/uploads/2021/04/849-850-851_.png)
+**图片来源：墨尔本雅典娜农场设计组（精灵蓝）**
 
-这份声明是由Dr**. Peter Daszak**, President of EcoHealth Alliance,于2月6日发起的，邀请了其余26位知名公共卫生科学家联名签署，目的是针对the recent spreading of rumors, misinformation and conspiracy theories on the virus origins，签署a statement in support of the scientists, public health and medical professionals of China，这些中国专家已经和他们合作多年。此前的1月19日，**闫丽梦**博士，香港大学公共卫生学院传染病研究中心的病毒和免疫学研究员，匿名通过**路德社**向全世界公开揭露了COVID-19是由中共控制的武汉病毒研究所等机构制造并故意投放的。这就是他们所说的 rumors, misinformation and conspiracy theories。公开的邮件显示，他们并没有从科学角度探讨病毒的来源，而是由Dr. **Peter Daszak**直接起草了一个draft邀请其他人签名，但在声明中他们强调COVID-19是来源于自然而不是人造，这和CCP的观点是完全一致的。声明发表后不久，一个不愿意透露名字的机构向EcoHealth Alliance捐赠了50万美元。
+**主持人：史蒂夫****.班农**
 
-Dr. **Peter Daszak**在邮件中说，这份声明将coincide with a letter from the Presidents of the US National Academies of Science, Engineering, and Medicine, which will likely be released a few days later。共同签名的Dr. **Rita Colwell** is former Director of US National Science Foundation。Dr. Peter Daszak is now a member of that gives answers to scientific questions at short notice from the White House Coronavirus Task Force。他们和**福奇**博士，美国国家过敏和传染病研究所所长，一起对川普总统制定和实施anti-COVID-19的政策有巨大影响。
+**嘉宾：****Dr. Peter Navarro, Maureen Bannon, Jason Jones, Darren Beattie, Tudor Dixon, Brent Beechman, Boris Epshteyn, Bianca Gracia, Dan Schultz**
 
-闫丽梦博士在爆料革命的帮助下于今年4月底逃离香港来到美国，今年7月以来公开发表了两篇科学论文，揭露中共制造和投放COVID-19的真相。爆料革命和闫丽梦博士将继续揭露科学界帮助中共掩盖COVID-19来源，以及since this LANCET letter published, scientific world and top journals turned out to blame Trump government in anti-COVID-19 , and got involved into US election 的真相。敬请留意。
+#### **1、班农和纳瓦罗对“病毒之父”福奇进行了史无前例的抨击**
 
-原文链接：[【热点播报】邮件显示科学界帮助中共掩盖COVID-19来源真相 – GNEWS](https://gnews.org/zh-hans/576066/)
+史蒂夫.班农和彼得•纳瓦罗博士（Dr. Peter Navarro）戳穿了托尼•福奇（Tony Fauci）博士在最近一次接受采访中的谎言，因为福奇试图逃避他在（中共）病毒（疫情）中的责任。
 
-（本文仅代表作者个人观点）
+纳瓦罗对福奇在福克斯新闻上的言论进行了逐项核查，他说，福奇将美国纳税人的钱送到武汉研究如何将冠状病毒武器化，有的人却尊称他为“病毒之父”，这是“极不寻常的”。
 
-阅读本人文章请搜索“三票先生”
+“我们知道，安东尼•福奇博士是（尊贵的）圣福奇，他授权资助武汉病毒学实验室”，纳瓦罗说：“众所周知，第二个事实是，福奇博士授权进行病毒功能性增强研究，这种研究可以用来对病毒进行基因工程，使其变得和我们现在经历的新冠病毒一样危险。这两个事实是毫无争议的。”
 
-本人其他文章导读：
+纳瓦罗继续说道：“第三个事实，疾控中心主任罗伯特•雷德菲尔德（Robert Redfield）说，他认为该病毒最有可能的来源是武汉病毒学实验室。”
 
-[从历史的高度看《新中国联邦宣言》 – GNEWS](https://gnews.org/zh-hans/224002/)
+“如果这三个事实是正确的，那么安东尼•福奇博士就是中共的病毒之父。”他说。
 
-[中共为什么那么有钱搞全球渗透与扩张 – GNEWS](https://gnews.org/zh-hans/169646/)
+班农批驳了福奇关于他对开放边境造成的“（病毒）超级传播者”没有控制权的荒谬说法。福奇称自己“与边境（疫情）无关”。
 
-[十权一统：看中共的极权统治 – GNEWS](https://gnews.org/zh-hans/193423/)
+“因为边境病毒传播而你们去关闭教堂 ，民众进入教堂，因为其摘下了口罩（舒缓呼吸），（警察）就将一个带着婴儿并怀有身孕正在做弥撒的年轻母亲拖出去”，班农说：“而福奇却说，(这些)都与边境（疫情）无关？”
 
-[正道主义论 – GNEWS](https://gnews.org/zh-hans/231288/)
+“这家伙真是个骗子”，班农说：“你向乔•拜登建议了什么（政策）？为你当前效力的政府造成（边境）超级传播者事件？”
 
-[【三票专栏】 《商君书》选读（3）超限战的鼻祖 – GNEWS](https://gnews.org/zh-hans/892639/)
+#### 2、在美国职业棒球联盟反对佐治亚州常识性的选民诚信法案后，纳瓦罗对MLB失去了兴趣
 
-发布：GLC
+彼得•纳瓦罗博士说，美国职业棒球联盟（MLB）站出来反对一项常识性的《选民诚信法案》，是在纵容窃取大选的行为。
+
+美国职业棒球联盟（MLB）在比赛中也需要出示身份证明才能领取门票和购买酒水。在佐治亚州通过一项法律要求用身份证明邮寄投票后，美国职业棒球联盟（MLB）却决定全明星赛（All Star game）不再在佐治亚州举办。
+
+纳瓦罗周一告诉《战斗室》，该项法律甚至还不能解决导致佐治亚州在川普总统大选中选举结果被偷走的一半问题。
+
+“在佐治亚州发生的事情，我有确凿证据”，纳瓦罗说：“特别是佐治亚州正是这次总统选举结果被偷窃的地区。”
+
+“通过相关法令，他们创建了一个系统，以大幅增加邮寄和缺席选票，同时他们强力压制和阻止任何验证这些选票是否合法的努力，”他说。
+
+“大选在佐治亚州是被偷走的”，纳瓦罗说：“而对于‘大选结果被偷窃’，[共和党]立法议员过去做的一切，仅仅是修复其中一半的错误”，“这就是佐治亚州正在发生的事情。”
+
+“而对于美国职业棒球大联盟来说，他们高高在上地宣称他们自己所做的是正确的，（但实际上）他们所做的是纵容大选偷窃行为，”纳瓦罗补充道。
+
+纳瓦罗说，真正让他“不爽”的是，没有人读过（这项）法案，但他们都谎称这项法律是“吉姆·克劳法（Jim Crow laws）”。
+
+【备注**：**吉姆·克劳法（Jim Crow laws） 1876年至1965年间美国南部各州以及边境各州对有色人种（主要针对非洲裔美国人，但同时也包含其他族群）实行种族隔离制度的法律。1865年至1876年的重建时期，联邦法律为南方的自由黑人提供一定程度的民权保护。重建时期结束后，南方各州政府、立法机构及法院重新被南方白人所掌控，一系列吉姆·克劳法被通过，扩大用来隔离其他非白人种族。】
+
+纳瓦罗还说，他不再看NBA了，因为他们的政治化，以及将自身出卖给了共产中国。
+
+“我再也不看NBA的比赛了，因为它作为一个体育联盟的组织，可以批评美国是一个不完美但伟大的民主国家，但对共产中国却闭嘴示弱，因为它要在共产中国赚钱。”他说。
+
+#### 3、所谓“唤醒”公司相对政府给自由带来更大的威胁
+
+《左轮新闻》创始人达伦•比提（Darren Beattie）警告说，美国“唤醒”公司比大政府对自由的威胁更危险。
+
+（备注：唤醒公司是指一些公司具有近乎垄断的地位，不必“担心与任何人竞争”或疏远客户的公司，而这些公司越来越热衷于屈从于政治正确性的意识形态倾向。）
+
+“美国公司是这种文化毒药的载体，我们都深受其害，比政府带来的任何危害都要多，”比提周一告诉《战斗室》。
+
+“在某些情况下，例如大科技公司，在这方面甚至比政府本身（带来的危害）更糟糕，”他说。
+
+比提说，必须反对所有对个人自由的侵犯，无论它来自私人组织还是公共机构。
+
+“不管是它带有公司标志还是政府标志”，比提说：“所有套在人们脖子上的锁链都是一样的本质。”
+
+比提说，共和党人必须对奉行“唤醒”路线的大企业采取强硬态度，他以共和党人最近在佐治亚州对达美航空（Delta）的退让为例。
+
+在该公司虚伪地站在赞成该州《选民诚信法案》的立场上后，共和党人便放弃了剥夺达美航空特殊税收优惠的努力。
+
+“这些天有很多关于选民欺诈的讨论，关于你选出来的人最终没有上任”，比提说：“但我认为还存在一种更为严重和深刻的选民欺诈根源。”
+
+他说，“那就是据称是代表你的人上任后，连人民的意志都无法贯彻的观念。”
+
+比提说，在面对这些反对像佐治亚州《选民诚信法案》这样的“完全合理的法律”的公司时，共和党是“无能为力的”，“无法让这些敌对的美国公司服从”。
+
+#### 4、“你们将很快看到中共国接管”：拜登出卖美国制造业
+
+《真实美国之声》主持人图德•迪克森（Tudor Dixon）揭露了中国窃取美国制造业基地的长期计划，以及乔•拜登是如何帮助他们的。
+
+迪克森在《底特律新闻》的一篇社论中揭露了中共国如何窃取美国的制造业，之后加入了《战斗室》。
+
+“他们会把我们的技术从密歇根州带走，他们会把技术带回中国，然后我们将被控制”，迪克森说：“很快，你就能看到中国最终是如何接管这些的。”
+
+迪克森的家族曾在密歇根州的钢铁行业工作，他说拜登所谓的基础设施计划将进一步出卖制造业，并将用高税率摧毁美国工业。
+
+迪克森和彼得•纳瓦罗博士还指出了拜登政府在2035年之前力推电动汽车存在的深层次问题。
+
+“你如何在2035年之前……把每一个停车场都拆掉，并建立一个充电站？” 迪克森说：“对密歇根的人们来说，这在经济上有多划算？我们将不得不支付大量的税收……但是这对我们的电网会造成什么影响？”
+
+“从来没有人把两个事实联系起来：如果你有了电动汽车，你就必须要发电（企业），”纳瓦罗说。
+
+#### 5、纳瓦罗戳穿了已经“焦头烂额”的亨特拜登的谎言
+
+彼得•纳瓦罗博士在回应亨特•拜登最近在CBS的采访时，并没有回避任何东西。
+
+纳瓦罗将亨特在采访中的部分总结为：“我没有做（吸毒）药物测试，但我看起来（指标）不高。买我的（新）书吧。”
+
+当然，这次采访不可能没有冲突。CBS集团拥有西蒙与舒斯特（Simon & Schuster）, 西蒙与舒斯特为人不齿地付给亨特•拜登（Hunter Biden）两百万美元 购买他所谓的“救赎故事”。亨特终于承认那台“来自地狱的”笔记本电脑是他的，不过他声称那是“被偷走的”。
+
+**【备注：**西蒙与舒斯特（Simon & Schuster）是CBS集团旗下的公司，于1924年由理查德·西蒙和麦斯·林肯·舒斯特在纽约创立，是美国的六大出版商之一，与兰登书屋、企鹅出版集团等齐名。】
+
+“它不是被偷的，因为是你自己把它带到了一家商店”，纳瓦罗周一在《战斗室》说：“然后你焦头烂额，你忘了去取。最后那人看了看（里面的内容），这就是故事的后续部分了。”
+
+Navarro noted Hunter’s $2 million book deal came as Simon & Schuster cancelled Sen. Josh Hawley’s book on censorship.
+
+纳瓦罗指出，亨特的200万美元的书籍合约是在西蒙和舒斯特公司取消了参议员乔希•霍利（Josh Hawley）关于审查制度书合约的时候签订的。
+
+【备注**：**乔希·大卫·霍利（Josh David Hawley），美国律师及共和党籍政治家。他自2019年1月3日起担任密苏里州联邦参议员一职。 2017至2019年曾任密苏里州总检察长一职。2018年11月，霍利以38岁之龄击败时任美国参议员克莱尔·麦卡斯基尔。】
+
+纳瓦罗还抨击亨特是一个没有任何技能的“中间人”。
+
+“亨特•拜登是一个没有技能的人，他没有任何技能”，他说：“他唯一能利用的就是他爸爸的权势声望，拜登犯罪家族的主事人，詹姆斯。”
+
+“亨特•拜登就是个中间人，”纳瓦罗说。
+
+纳瓦罗批评了新闻媒体对他的柔性采访，该采访推崇亨特有关救赎的谬论，他称亨特是个“堕落”的人。
+
+纳瓦罗说：“这是一个道德败坏的人。”
+
+**参考资料：**[**维基百科**](https://www.wikipedia.org/)
+
+**原文链接：**
+
+1.  [Bannon and Navarro Go on Epic Rant Against ‘Father of the Virus’ Dr. Fauci](https://pandemic.warroom.org/2021/04/05/bannon-and-navarro-go-on-epic-rant-against-father-of-the-virus-dr-fauci/)
+
+2.  [Navarro Loses it on MLB After its Attack on Common Sense Voter ID Law in Georgia](https://pandemic.warroom.org/2021/04/05/navarro-loses-it-on-mlb-after-its-attack-on-common-sense-voter-id-law-in-georgia/)
+
+3.  [‘Woke’ Corporations Greater Threat to Freedom Than Big Government](https://pandemic.warroom.org/2021/04/05/woke-corporations-greater-threat-to-freedom-than-big-government/)
+
+4.  [‘Very Quickly You Can See China Taking Over’: Biden Sells Out American Manufacturing](https://pandemic.warroom.org/2021/04/05/very-quickly-you-can-see-china-taking-over-biden-sells-out-american-manufacturing/)
+
+5.  [Navarro Destroys ‘Coked Out’ Hunter Biden](https://pandemic.warroom.org/2021/04/05/navarro-destroys-coked-out-hunter-biden/)
 
 +1
