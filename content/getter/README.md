@@ -17,6 +17,11 @@
 **郭文贵MILES** `2021-02-21T15:56:09`
 ##
 
+[国务卿布林肯：这是一个关键时刻，美国将直面挑战！  Secretary of State Blinken: This is a pivotal moment, ...](/content/getter/content/2021/04/606d9d5bdbc8001854a63299.md)
+
+**郭文贵MILES** `2021-04-07T11:54:03`
+##
+
 [文贵的警告再次应验：苏伊士运河或霍尔木兹海峡迟早会再出事  Miles Guo’s warning came true again: A matter of t...](/content/getter/content/2021/04/606d7f5fdbc8001854a62dd5.md)
 
 **郭文贵MILES** `2021-04-07T09:46:07`
@@ -155,10 +160,5 @@
 [327：想想儿时没有材火．没有粮食做饭吃的生活……和今天的世界相比，我们真是太幸福了，这是没有在西方世界生活过的人……无法懂得的……没有对比就没有真相……锅里煮...](/content/getter/content/2021/03/605f599349339063d0608dde.md)
 
 **郭文贵MILES** `2021-03-27T16:13:07`
-##
-
-[3月26：尊敬的战友们好！应很多战友的要求，明天3月27号上午9:30文贵乱聊直播！一切都已经开始！￼￼](/content/getter/content/2021/03/605e6ba449339063d0606184.md)
-
-**郭文贵MILES** `2021-03-26T23:17:56`
 ##
 

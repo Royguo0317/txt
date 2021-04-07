@@ -1,55 +1,48 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 【热点播报】“⾎棉花”——国际奥委会与⽀持新疆棉的中国企业签订奥运会制服合同，引发质疑
-` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1060817/)
+## “爱国主义”被滥用，国货球鞋遭“爆炒”
+` 喜联盟编辑部 Himalaya Alliance Editorial Team` [轉載自GNews](https://gnews.org/zh-hans/1060908/)
 
-作者：纽约⾹草⼭写作组 ⻘岛⼩嫚
+#### 作者：纽约香草山农场 鹰(文言)
 
-![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
+![]()![](https://gnews.org/wp-content/uploads/2021/04/111.jpg)
 
+新浪网4月6日转载中新经纬APP消息，近期随著新疆棉被国外知名厂商的“禁购”，国产球鞋的价格暴涨。
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片43.png)图片来源: Aïda Amer/Axios
-据Axios 报道，国际奥委会（IOC）与⼀家⽀持并使⽤新疆“⾎棉花”的中共国纺织品恒源祥（HYX）公司签订了东京2021年夏季奥运会和北京2022年冬季奥运会制服合同。
+前有安踏499元的球鞋炒至4599元，后有李宁1499元的球鞋价格飙至48000元，暴涨31倍，众多知名国产品牌一度断货难供，电商平台更是“一鞋难求”。中共种族灭绝罪行接连被各国认定，连带H&M等国际知名品牌和各大相关棉花协会纷纷抵制新疆出产的棉花，于是才有了近期被墙内媒体炒作的“对等制裁热”，演变成如今的“天价球鞋”乱相。
 
-国际奥委会于2019年9⽉宣布，恒源祥（HYX）集团将为国际奥委会成员和⼯作⼈员提供正式的制服，例如⽤于仪式的制服。HYX集团与中国奥委会有着⻓期合作关系，并且是2008年北京奥运会的赞助商。HYX宣传和销售多种新疆棉的产品，并且在新疆有多家供货⼯⼚。
+因中共的邪恶行径和反人类罪行被西方文明国家所不容而联合声讨，才有了各种社会组织和品牌自发的对新疆棉花抵制行动，不仅符合国际法更完全契合生而为人、众生平等的基本道德观念。反观中共，不仅颠倒是非，妄图利用文字游戏掩盖其罪行以实施“完美犯罪”，更挟持14亿市场恫吓西方资本家，以“爱国”的名义洗脑墙内民众为其罪行买单。
 
-国际棉花可持续性组织“更好的棉花倡议”（Better Cotton Initiative-BCI）于2020年10⽉宣布，在确定⽆法从道德上参与新疆棉的制作后，BCI正式退出新疆。之后H&M、ZARA、 NIKE等众多国际品牌做出了不会使⽤新疆棉的声明。
-![]()![](https://gnews.org/wp-content/uploads/2021/04/图片45.png)图片来源：Eniola Odetunde / Axios
-劳动权利组织（Worker Rights Consortium）的战略研究总监Penelope Kyritsis,在查看了有关HYX Group的信息之后表示：**“**奥运会不应该与维吾尔地区的公司联系在⼀起。奥委会与⼀家从维吾尔地区采购资源，⽽且在产品⼴告中以使⽤新疆棉引以为傲的公司合作，在道义上是应受谴责的。”她强调：“当全世界都意识到维吾尔地区发⽣的恐怖事件时，国际奥委会似乎视⽽不⻅。”
+根据中共媒体的说法，炒鞋是个别鞋贩子的个人行为，差价和利润也均被鞋贩子收入囊中，但纵观中共国内层出不穷的“天价”黄牛挂号费、黄牛电影票，还有2019年至今热度只增不减的黑市换外汇，诸多现象都揭示著黄牛等各种贩子的背后是利益输送的官商勾结。而今的“天价鞋”事件更反映了中共政府以“爱国”名义对墙内民意的鼓动和操纵，而“爱国主义”的背后更羁绊著民族主义和民粹主义的险恶用心。
 
-根据英国⼴播公司（BBC）12⽉的调查，在过去的三年中，中国政府已迫使成千上万的维吾尔族和新疆其他穆斯林少数⺠族在该地区的棉⽥从事季节性劳动。
+![]()![](https://gnews.org/wp-content/uploads/2021/04/222.png)
 
-国际奥委会发⾔⼈告诉Axios，HYX集团向国际奥委会提供了⽤于⽣产国际奥委会制服的棉花的原产地证书，并且该证书表明该棉花来⾃中国境外。发⾔⼈没有说是哪个机构签发了证书，也没有应Axios的要求提供证书的副本。国际奥委会在提供给Axios的⼀份声明中说：“鉴于奥运会的多样化参与，国际奥委会必须在所有全球政治问题上保持中⽴。”并声明，尽管国际奥委会致⼒于维护⼈权，但它“既⽆职权，也⽆能⼒改变主权国家的法律或政治制度。
+2020年至今，因为新冠疫情导致实体经济严重受挫，在此现状下球鞋却能动辄翻8倍、31倍。炒鞋除了政府的“爱国”洗脑以及各大品牌的市场营销配合外，当今的球鞋期货制存在漏洞似乎是更现实的因素。现售的球鞋基本半年前就定好了，原材料和成本以及品牌效应都相差不大。再结合中共政府把控经济的本质和公私合营的愈演愈烈，这一堆高售价和疯狂炒作都可视作政府在背后有意引导，而“虚假”的天价却最终由消费者即墙内“韭菜”买单。中共阴险的将外国对其违约行径和违法罪行的制裁，恶意转嫁到底层民众身上，赚取民意的同时，还要利用捏造的假擀面杖子经济坚挺假象继续盘剥民众和收割社会财富。
 
-在奥委会⽆视中共严重侵犯⼈权和种族灭绝的同时，据AXIOS报道，美国国务院发⾔⼈内德·普莱斯（Ned Price）在4⽉6⽇的记者发布会上说，美国将与其盟国和伙伴讨论联合抵制2022年冬季奥运会的内容。⼈权律师Djaouida Siac告诉Axios的记者Bethany Allen- Ebrahimian，美国及其盟国抵制中共国承办奥林匹克运动可能有助于说服国际法律机构展开与新疆种族灭绝指控有关的调查。
+（文章仅代表作者本人观点，与GNews无关）
 
-Axios的肯德尔·⻉克（Kendall Baker）和戴夫·劳勒（Dave Lawler）报告称，2022年冬季奥运会的赞助商将⾯临撤出或表达反对中共侵犯⼈权⾏为两个选择。
-
-去年9⽉，超过160⼈权组织，呼吁国际奥委会从中国撤回2022年冬季奥运会。
-
-未来美国联合国际社会共同施压中共，抵制2022冬奥会在中共国举⾏，是对中共种族灭绝罪⾏追责⽽掀起的全球灭共运动的⼀部分。国际奥委会声称致⼒于维护⼈权，但在中共的蓝⾦⻩之下，奥委会的“中⽴”表态，将使其失去国际信⽤和领导⼒。
-
-（⽂章仅代表作者本⼈观点，不代表GNews⽴场）
+* * *
 
 新闻来源：
+炒鞋大军转战国货市场 “捡黄金”还是“割韭菜
 
-1.Olympic committee gave uniform contract to Chinese company with Xinjiang ties. https://www.axios.com/olympic-committee-gave-uniform-contract-to-chinese-company-withxinjiang-ties-7ef4000e-2d39-49c8-8134-2e871be6837f.html
+[https://news.sina.com.cn/c/2021-04-06/doc-ikmyaawa7581958.shtml](https://news.sina.com.cn/c/2021-04-06/doc-ikmyaawa7581958.shtml)
 
-2.The scope of forced labor in Xinjiang is bigger than we knew. https://www.axios.com/xinjiang-forced-labor-uyghurs-a3b58b6e-c98f-4ce4-ae52-7b4a37fa61f5.html
+暴涨31倍，李宁球鞋遭热炒！炒鞋大军转战国货，有人几天赚一辆车
 
-3.U.S. could consider boycotting 2022 Beijing Olympics with allies. https://www.axios.com/us-boycott-2022-beijing-winter-olympics-9a6349f5-41db-4067-a2c8-53ed004f54ac.html
+[https://new.qq.com/omn/20210404/20210404A06C1W00.html](https://new.qq.com/omn/20210404/20210404A06C1W00.html)
 
-校对/发稿：飞虹
+律师表示炒鞋可能涉嫌多项违法 新华社评借机哄抬“国货”
 
-![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+[https://www.sohu.com/a/459131526\_161623](https://www.sohu.com/a/459131526_161623)
 
+暴涨31倍！炒鞋大军转战国货：爱国主义怎容投机倒把！
 
+[https://news.sina.com.cn/c/2021-04-06/doc-ikmyaawa7581958.shtml](https://news.sina.com.cn/c/2021-04-06/doc-ikmyaawa7581958.shtml)
 
-更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
-
-更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
-
-更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+*责任编辑：美国纽约香草山农场 七哩香*
+*编辑/校对：日本东京方舟农场 老蚂蚁666*
+*发布：喜马拉雅工作站 文知*
 
 0
