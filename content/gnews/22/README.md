@@ -1,15 +1,33 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 2021年4月6日 文贵先生盖特 2
-` 喜联盟七哥盖特组 Miles Guo’s Getter` [轉載自GNews](https://gnews.org/zh-hans/1060829/)
+## 【战友心声】新中国人不再沉默
+` 纽约香草山MOS01` [轉載自GNews](https://gnews.org/zh-hans/1060755/)
 
-编辑整理： **西班牙巴塞罗那喜悦农场** （文惜）
+作者：纽约香草山佛教部  GForever(文紫)
 
-4月6号：谁会相信北京的冬奥会能成功举行，谁就是脑子有问题！ [https://twitter.com/CNBCnow/status/1379516671447203850?s=20](https://twitter.com/CNBCnow/status/1379516671447203850?s=20)
-![]()![](https://gnews.org/wp-content/uploads/2021/04/e88e42bac6c8a81dcb3f2a6de2776693.jpg)
-[【2021年4月6日】文贵先生盖特原文](https://gtv.org/getter/606ce44ddbc8001854a60cca)
+![]()![](https://gnews.org/wp-content/uploads/2020/12/logo-3.jpg)
 
-**喜联盟Gnews编辑部**
 
-0
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/image0-13-6-scaled.jpg)
+
+4月5日GTV的投资者们来到位于华盛顿的美国证监会（以下简称SEC）楼下进行抗议，他们为了自己的利益勇敢地团结在一起，自信地喊出心中的愤怒，大胆地表达着自己的诉求。整齐划一的队形、得体靓丽的着装、意气风发的面貌成为华盛顿街头一道靓丽的风景线，GTV的投资者们用自己的实际行动告诉全世界——中国人不再沉默。
+
+众所周知，GTV成立以来，一直秉承着唯真不破、是假就灭的发展宗旨，成为全世界唯一一个追求正义、给你真相的媒体平台，而GTV本身的发展也创造了媒体界的一个奇迹。因此，GTV被中共视为眼中钉肉中刺，投入巨资、不择手段地全面打压。在没有任何证据的情况下，勾结SEC共同合谋构陷GTV，并在没有任何正当理由的情况下长时间冻结了所有投资人的投资款，在严重阻碍GTV发展的同时，直接导致投资人在安全上受到威胁、在经济上受到巨损。
+
+面对如此沆瀣一气的行为，GTV投资者们毫不犹豫地团结在一起走上街头，用自己的行动质问SEC，你究竟是属于美国还是属于中共？！你把美国的法治、自由、民主置于何地？！你是否应归还GTV和所有投资人一个正义和公正？！
+
+据悉，本次示威活动还在持续进行中，并得到了世界各地GTV投资者的拥护和支持，不能到场的投资者在向抗议前线战友表达敬意的同时，也纷纷到SEC和美国相关部门网站去进行投诉，线上线下共同维护自己的合法权益。这次史无前例的抗议活动不仅让我们强烈地感受到不再沉默的新中国人的勇气与自信，而且也让我们坚信这些优秀的投资人会和GTV一起共同树立一个新世界的新媒体的典范。
+
+校对/审核/发稿：369文驹，飞虹
+
+![]()![](https://gnews.org/wp-content/uploads/2021/04/4_April.jpg)
+
+更多资讯，欢迎订阅[美东香草山农场官方推特账号](https://twitter.com/HIMALAYA_MOS)！
+
+更多文稿，欢迎浏览[美东香草山GNEWS官方链接](https://gnews.org/zh-hans/author/changdao/)！
+
+更多香草山节目资讯，欢迎登陆[G|TV](https://gtv.org/) — [MOS Talk香草山访谈](https://gtv.org/user/5ede774cade8071feda9dc7d) & [香草山之声](https://gtv.org/user/5ffbdcd7f579a75e0bd123e6)！
+
++2
