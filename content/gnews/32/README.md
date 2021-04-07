@@ -1,60 +1,58 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 川普总统抨击《纽约时报》贬低草根筹款
-` HimalayaRussia` [轉載自GNews](https://gnews.org/zh-hans/1060040/)
+## 郭先生0405VII英王室内部矛盾重重，女王把一切做到最高境界
+` 喜联盟七哥直播组 Miles Guo’s Live Broadcast` [轉載自GNews](https://gnews.org/zh-hans/1060356/)
 
-俄罗斯莫斯科喀秋莎农场   仰望七星
+![]()![](https://gnews.org/wp-content/uploads/2021/04/封面-25.jpg)
+编辑整理：
 
-编辑上传  水星
-![]()![](https://www.gnews.org/wp-content/uploads/2021/04/G.jpg)commondreams.org
-川普总统在回击《纽约时报》时，继续揭露民主党人如何窃取了2020大选。
+华盛顿DC农场：YIMING（文鸣）；纽约香草山农场：贝贝；日本东京方舟农场：山川异域
 
-声明全文如下：
+郭文贵先生在[2021年4月5号 文贵直播：共产党的清明经济，清明政治，清明关系，挣死人钱，回老家搞关系，升官发财； 共产党实施的以钱灭美计划，美元经济崩溃，黄金一定大涨](https://gtv.org/video/id=606b0c896e11a756edd89042)中谈到了无神论的共产党利用清明节搞清明经济、清明政治、清明关系和以钱灭美等话题，本系列将根据郭先生在直播中涉及的不同侧重点逐一上传，以下为本系列第七部分——英王室内部矛盾重重，女王把一切做到最高境界
 
-2021年4月5日
+据[2021年4月5号 文贵直播：共产党的清明经济，清明政治，清明关系，挣死人钱，回老家搞关系，升官发财； 共产党实施的以钱灭美计划，美元经济崩溃，黄金一定大涨](https://gtv.org/video/id=606b0c896e11a756edd89042)时间点1：18：38——
 
-美利坚合众国第45任总统唐纳德·川普的声明
+当时女王和撒切尔她俩人关系搞得特别特别不好，特别特别不好。撒切尔夫人被炒掉鱿鱼的时候她干了十一年的首相，叫铁娘子。但是这个女人是非常的自恋，我跟她很熟啊，很熟，我亲自问过她很多。大家你谁能知道在她离开之后女王是怎么对待她的吗？大家谁能说出来，谁能？
 
-在另一个高度党派化的报道中，失败的《纽约时报》本周末写了一篇完全误导人的、片面的攻击文章，试图贬低我们创纪录的、草根筹款行动在2020年竞选中的地位。若不是大规模的选举舞弊，这场竞选很容易就被你们喜欢的共和党总统，我，胜出！
+（郭先生与战友们互动）［马诺基诺比利，沼泽地醒来了开始动手，阿拉斯加勾兑。谁知道女王当时给这撒切尔一个什么样的礼物，震惊了世界，女王这人真的了不得，非常尊重她。背后好多小蛤蟆（郭先生的背景柜子上陈列的蛤蟆），谁知道？真没人知道还！女王给了她什么？赦免，没有，她，人家不需要赦免。你们没有接触这些人啊，上议院，什么众议院。］。
 
-我们在2020年获得了前所未有的巨大支持（迄今为止，获得的选票超过了历史上任何一位在任总统），这已经成为民主党的主要威胁，这也解释了为什么《纽约时报》立即匆忙捍卫其激进的左翼盟友。
+英国历史上当时不超过二十个人叫国家勋章，女王亲自，她最难过的时候，她被踢出去，被她的首相吉恩斯（注：也许是郭先生的口误，不是吉恩斯，应该是副首相杰弗里·豪）当众在下议院把她给Fire掉的时候，她痛苦死啦，她就给她戴了个国家勋章。
 
-在我们两次大选之前，2016年和2020年的共和党人总是会损失少量的捐款，现在我们赢了，或者说做得很好，因为我们是美国的劳动党，我们在自己的竞赛中打败了民主党，我们从自由派的“蓝色行动”（Actblue）中学到了东西——现在我们比他们做得更好！事实上，很多人都很热心，一次又一次地捐款，在某些情况下，如果捐款过多，我们会及时退还他们的捐款。我们的整体纠纷率不到网上捐款总额的1%，这是一个非常低的数字。这也是民主党（DEM）做的。
+你知道她和女王之间的争执是为啥发生争执的吗？大家猜一猜，谁能猜，谁能猜出来？嘉德勋章，就是国家勋章叫嘉德勋章，她和女王之间，终身奖就是国家勋章，严格讲就是最高的荣誉。女王和撒切尔最大的矛盾是什么知道吧？（郭先生与战友们互动）［共产党，不对。没有人说对。皇室继承问题。都是错的，那都是小事儿］。
 
-《纽约时报》知道这一点，但将这些细节隐藏起来不谈论，他们不谈作弊的民主党人如何绕过摇摆州的州立法机构（美国宪法要求批准）操纵2020年总统选举，或者民主党人如何在许多城市中心搞有偿投票，施展那些被称作“绕钱走”的小花招，也不谈民主党人如何威胁工会成员，如果他们不投票给民主党人，他们将失去工作，大量的假邮寄选票，非法移民和死人投票给民主党人等等。我们的筹款工作，与共和党合作，都是合法的，都是为了确保我的政府能够继续让美国再次伟大起来，另一方面，选举被大量操纵和窃取，现在看看我们国家，特别是我们南部边界发生了什么。
+最大的问题是南非的问题，南非当时曼德拉被抓，整个英联邦四十九个国家联合要制裁南非，撒切尔不让制裁，她这个问题上跟女王之间发生了大的矛盾，女王第一次公开站出来要叫她必须你要发表政治观点，要她开始要制裁南非，大家知道。（郭先生与战友们互动）［欸，一叶一追寻，欸，这个厉害啦，哎呀，这个战友厉害，我最喜欢这种战友］。因为她儿子叫马克，马克在南非经商，而且还在南非结了婚生了孩子，有大量的土地。但女王了不得呀，当时非洲解放绝对是有民主化是女王的远见。
 
-如果你是创纪录的7500万美国人中的一员，那些投票支持我，捐款或志愿服务的，谢谢你，最好的还没来呐！（声明完）
+所以我亲自问过撒切尔，我说你怎么看女王，她说女王有三件事儿是我终生让我佩服的，她最后佩服到女王五体投地啊撒切尔。她说第一个，女王给我勋章；第二个，女王明知我儿子的事情，从不点透；第三个，她说英女王在处理戴安娜的事情上太厉害了。戴安娜什么人大家知道吗？哪天我给你聊聊这一段儿，你们，都是我亲身经历。大家知道戴安娜什么人知道吧？啊，大家知道吧？戴安娜，戴安娜王妃知道吧？哪天我给你们讲戴安娜能把你们讲疯喽，我给你们说战友们，我给你们讲戴安娜、讲女王、讲查尔斯、讲安德鲁、讲安妮公主、讲玛格丽特、讲丘吉尔。
 
-大选舞弊的揭露涉及宪政危机，川普总统正在全力推进这项议程，而民主党也会竭尽全力掩盖阻止，一条贼船上的左媒自然会选边，不过，真相不会永远被掩盖，7500万人众不能受欺太久，背后的恶魔终究会暴露，邪恶必将受到惩治！
+特别要记住啊，撒切尔夫人一生当中一个办公室主任叫杰纳森.马克一生，杰纳森.马克的弟弟叫杰纳森.鲍威尔，鲍威尔是托尼布莱尔一生的幕僚长，他的哥哥就杰纳森.马克是撒切尔一生的幕僚长，这哥俩都是我的好朋友，他哥哥（查尔斯·鲍威尔）跟薄熙来关系超级好，薄瓜瓜的那个教父。然后乔纳森·鲍威尔跟现在的中南坑某个人特别好，你看我都太熟了这些人啊，你看安德鲁王子、安德鲁的家人、玛格丽特公主，他所有的人我都熟，包括卡米拉实际上很多人啊。
 
-声明原文链接：
+戴安娜绝对不是被暗杀的，100%不是暗杀的，100%不是。戴安娜说实在话人很漂亮。她去香港我朋友家和我朋友出去旅游，到瑞士住我朋友家，所有的包括到美国来。戴安娜生活是极为开放的，所以她外号在白金汉宫叫旋转门嘛，然后还有一个叫做“不用换的被子”，“不用换的被子”你就一直可以穿啊。她是很开放的，她真正到最后她太多男朋友了。
 
+实际上拉法耶那个是胡扯的事，她是最终爱的是印度的一个人，印度的医生。但是那个人很懦弱不敢爱她，她结果就跟拉法耶，她就搞这个事。她一生都在赌。戴安娜一生最大的两个错误，她没有认识到查尔斯这个人，实际上英王室很夸张，出了一个温莎公爵，这绝对是个人渣，这绝对是个人渣，绝对是人渣。
 
+你看看，她的公主玛格丽特也是个有问题的，非常非常，安妮公主还是很成功的，也很随便啊。查尔斯是唯一一个一生忠于一个女人，爱一个女人，叫卡米拉。虽然这个人你看他有时候窝囊、懦弱、不够勇气，但是绝对是。
 
-> President Trump responds to NYT hit piece:
-> 
-> “Our support in 2020 was so big—never before seen (received more votes than any sitting President in history, by far), that it has become a major threat to the Democrat Party…”
-> 
-> FULL STATEMENT: [pic.twitter.com/IaCQMYThRs](https://t.co/IaCQMYThRs)
-> — Natalie Harp (@NatalieJHarp) [April 5, 2021](https://twitter.com/NatalieJHarp/status/1379151646177980416?ref_src=twsrc%5Etfw)
+他的儿子安德鲁，那就是完全乱逑来了。但愿他别听到跟我很好。现在共产党拉安德鲁，拉的一塌糊涂。**安德鲁天天跟老共搞在一起。查尔斯绝对是灭共反共的，绝对是骨子里面反共产党，坚决反。**就是我跟他一起吃饭，就是一说共产党，“哎”就那种鸡皮，就那种“啊”受不了啦。安德鲁一说共产党“有钱！来呀！来呀！”就那种完全不一样。
 
+所以女王这人有多了不起，娶了个漂亮儿媳妇。女王在撒切尔夫人、十几个首相、丘吉尔、托尼.布莱尔还有梅杰，你看女王的处理。女王真是不一般，太牛了女王！但是你看她有这么几个儿子、这几个妹妹、几个公主。你看女王这个人，还有她的爱情。**菲利浦那也是在外边花过一段时间，搞演员、搞舞蹈演员，而且跟银行家的妻子那都乱搞的，最后女王就当作看不见的。女王这种人境界是到了，如果人类修行的话，女王真是把国家、荣誉、职务、责任、人与人的关系搞到了最高境界。**哪天我要给你们讲这个绝对把你们给讲疯了，哪天我给你们讲讲啊。
 
+绝对是，曼德拉最后是对南非绝对是个罪人啊。这是战友说得非常非常对。已经一个多小时了，天呐天呐，行了行了，不说了不说了。今天我的直播本来就要一个小时，没想一个半小时，没想一个半小时。越是黑暗的时候，越不能熄灭了生命的灯盏，越要点亮人生的光芒。这光芒是什么呢？这光芒就是理想、信念和希望。
 
-声明文字整理：
+（郭先生看手机）太可怕了，哇噻，我在这块儿直播，中东的给我发信息“哎，老郭不要讲我们这个黄金的事情”。看来七哥的直播太多人看了啊。当然不说了！是吧？咱不说。所以说这个是我介绍去中东的皇室的翻译，原来是医生现在当翻译去了，现在天天在这块儿扎七哥小针儿，你这个小王八蛋啊背叛吧，你背叛吧你啊，我都知道是你干的。
 
-Apnl5, 2021
+接上文——
 
-Statement by Donald J. Trump, 45th President of the United States of America
+[郭先生0405I中国历史上关于清明节的故事很多但未必可信](https://gnews.org/zh-hans/1058342/)
 
-In yet another highly partisan story, the failing New York Times wrote a completely misleading, one-sided attack piece this weekend that tried to disparage our record-setting grassroots fundraising operation during the 2020 campaign. Except for massive voter fraud this was a campaign that was easily won by your favorite Republican President, me!
+[郭先生0405II共产党利用清明搞政治、赚死人钱、拉关系搞生殖器](https://gnews.org/zh-hans/1058590/)
 
-Our support in 2020 was so big-never before seen (received more votes than any sitting President in history, by far), that it has become a major threat to the Democrat Party, which explains why the New York Times immediately rushed to defend their Radical Left allies.
+[郭先生0405III清明节里最可悲的是生不如死的苛活的同胞](https://gnews.org/zh-hans/1058680/)
 
-Before our two campaigns, 2016 and 2020 Republicans would always lose small dollar donations. Now we win, or do very well, because we are the Party of Working Americans and we beat the Democrats at their own game. We learned from liberal Actblue–and now were better than they are! In fact, many people were so enthusiastic that they gave over and over, and in certain cases where they would give too much, we would promptly refund their contributions. Our overall dispute rate was less than 1% of total online donations, a very low number. This is done by Dems also.
+[郭先生0405IV我们要真正的行动干掉魔鬼为死去的人而奋斗](https://gnews.org/zh-hans/1058741/)
 
-The New York Times knew this but buried these details in their story-they didn’t talk about, however, how the CHEATING Democrats circumvented State Legislatures (approval is required by the U.S.  Constitution) in Swing States to rig the 2020 Presidential Election, or how Democrats paid for votes in many Urban Centers, in a little thing called walking around money, how Democrats threatened Union Members with the loss of their jobs if they didn’t vote Democrat, massive Fake Mail-In Ballots, illegal immigrants and dead people who voted (for Dems) and much more. Our fundraising efforts, working together with the Republican party, were all done legally, and all with the goal of ensuring that my Administration could continue to Make America Great Again. The Election on the other hand, was massively rigged and stolen-and now look what is happening to our Country, and in particular at our southern border.
+[郭先生0405V过去的一周共产党开始全面实施以钱灭美行动](https://gnews.org/zh-hans/1060164/)
 
-If you are one of the record-setting 75 million Americans who voted for me, donated or volunteered, THANK YOUI The best is yet to come!
+[郭先生0405VI今天美国人对共产党的威胁和觉醒远远不够](https://gnews.org/zh-hans/1060270/)
 
 0

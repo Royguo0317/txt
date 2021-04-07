@@ -1,98 +1,77 @@
 ###  [:house:返回首頁](https://github.com/ourhimalayas/txt)
 ---
 
-## 最快四个月——中共国就可以实现14亿人口全部接种新冠疫苗，战友该怎么办？
-` 喜马拉雅-华盛顿DC农场` [轉載自GNews](https://gnews.org/zh-hans/1059643/)
+## 别忘了中共和北朝鲜的同一个目标：社会主义共产世界
+` 康州盘古喜马拉雅农场` [轉載自GNews](https://gnews.org/zh-hans/1059896/)
 
-作者：keikei
+内容：
 
+朱利安尼先生（Giuliani）：
 
+Then Kim, Jong-un, kind of，put a finishing touch on it.
 
-## **最快四个月，****14****亿人全部接种**
+然后，金正恩画了最后一笔
 
-搜集了中共在82天内的全国疫苗接种数据[1]，中共国平均每天接种的人数为300万，根据中共专家的估计，中共国每天最多可接种1千万人口，目前一天的接种速度是三到六百万。**如果按照目前的平均每天450万计算，中共国9个月就可以为14亿人口全部接种，如果按照专家估计的最快速度的话，中共国就可以在4个月左右就可以为14亿人口全部接种。**
-![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/Snipaste_2021-04-07_00-17-52-1024x794.png)
-中共国使出全社会政治动员的方式（见附图），加快新冠疫苗的接种速度。
+When he and Xi, Jing-Ping,
 
-- 从一开始的疫苗收费，变成了疫苗免费，还送鸡蛋送纸巾，甚至花钱找拖儿[2]；
-- 从一开始的重点人群接种，变成了18-59岁接种，最近有开始了60岁以上接种[3]；
-- 从一开始的自愿接种，变成了到社区摸底，有些地方演变成变相强制[4]。
+他和习近平
 
+just the other day, put out a joint statement
 
-从三月底到四月初，中共国疫苗的日平均接种人数已经呈现指数级增（见上图）。最快今年夏天就可以实现疫苗全国覆盖。
+就在前几天，发表了一份联合声明。
 
-## **墙内战友该怎么办？**
+The joint statement is a kind of Duvet an opera
 
-墙内战友还是有很多策略的。
+联合声明就像唱双簧的
 
-1，尽可能劝说身边的人，不要打疫苗。
-他们信不信是一回事，你说不说是另一回事。
+They are on the same side that they reform the unity as communist countries
 
-2，以身体不适为由，尽量推脱。
-据中共国官方的疫苗指南中不建议以下人群接种新冠疫苗：哺乳期妇女、发热、慢性病以及急性病发作期患者、接种过其他疫苗14天以内的；
+他们站在共产主义国家改革团结的立场上
 
-3，找到能证明自己已经接种过疫苗的证明。（你懂的）
+Working together to cop with hostile forces United State
 
-（本文仅代表作者个人观点）
+与敌对势力联手迫使美国
 
-参考：
-![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image-7.png)![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image-1-1.png)![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image-3-1.png)![]()![](http://www.himalayawashingtondc.org/wp-content/uploads/2021/04/image-2-1-493x1024.png)
-中共国疫苗接种相关报道（按时间线整理）：
+into advanced costs of socialism
 
-[3月4日：朝阳首批机动疫苗接种点进写字楼](https://www.sohu.com/a/453882516_161623)
+进入“先进的昂贵的”社会主义
 
-[12月30日：我国新冠疫苗紧急接种人数已突破50万人](https://baijiahao.baidu.com/s?id=1687465240491557889&amp;wfr=spider&amp;for=pc)
+Please don’t forget that they have a goal
 
-[1月19日：全国统筹设置25392个新冠疫苗接种点 接种人数超900万](https://www.163.com/dy/article/FVT6QUOD055061FK.html)
+请不要忘记，他们有一个目标
 
-[1月12日 \[今日环球\]北京新冠疫苗接种人数超百万](http://tv.cctv.com/v/v2/VIDEHS2bJzvQlNqPVkQPurn4210112.html)
+that is to make the world socialist and communist
 
-[3月3日：北京新冠疫苗累计接种超500万人](http://news.cctv.com/2021/03/03/ARTI7Ds5uaZScFaQbmesOHD6210303.shtml)
-央视网消息：北京自1月1日开展新冠疫苗接种工作以来，截至3月2日下午，已累计接种新冠疫苗765万剂次，接种人数累计超过500万人。北京市疾控中心在3月2日介绍，已为部分有接种需求、且身体基础状况较好的60岁及以上老年人接种新冠疫苗，下一步，将适时全面开展老年人接种以及全市18岁以下人群接种工作。
+那就是使世界成为社会主义和共产主义
 
-[3月10日：（北京）全市近600万人接种新冠疫苗 接种达标楼宇张贴安全标识](http://www.bj.chinanews.com/news/2021/0310/81150.html)
+No god, the state owns your property and owns you
 
-[1月19日 全国统筹设置25392个新冠疫苗接种点 接种人数超900万](https://www.163.com/dy/article/FVT6QUOD055061FK.html)
+没有上帝，国家拥有你的财产，拥有你
 
-[1月21日：关注｜中国新冠疫苗接种量已超1500万人次](https://baijiahao.baidu.com/s?id=1689455617538268147&amp;wfr=spider&amp;for=pc)
+That is for communism and socialism are in real life
 
-[1月26日：中国已接种新冠疫苗2276.7万剂次 各地接种人数在不断增加](http://www.mnw.cn/news/china/2355206.html)
+那是因为共产主义和社会主义就在在现实生活中的体现
 
-[2月11日 全国新冠疫苗接种超4000万剂次！](https://www.thepaper.cn/newsDetail_forward_11315913)
+A lot of our children don’t know that because we don’t teach them any more
 
-[12月19日：中国新冠疫苗接种首批预计接种5000万人次，2月15日前完成](http://news.hnr.cn/shxw/article/1/1341188446840033280)
-据12月19日国务院联防联控机制举行新闻发布会消息，将在全国范围内对重点人群进行新冠疫苗接种。12月20日晚，原上海疾控中心免疫规划科疫苗医师陶黎纳告诉健康时报记者，据业内消息，我国首批新冠疫苗预计接种5000万人次，首针将于1月15日接种完成，第二针于2月15日完成。具体仍待官方发布为准。
+我们很多孩子都不知道这一点，因为我们不再教他们了
 
-[2月15日：全球新冠疫苗接种量近1.8亿，中国疫苗在这些国家开打](https://baijiahao.baidu.com/s?id=1691998069140445188&amp;wfr=spider&amp;for=pc)
-据约翰斯·霍普金斯大学最新数据，截至美国东部时间2月15日6时45分，全球疫苗接种总量已达到约1.75亿剂。其中，美国接种量最高，达到约5288万剂。中国紧随其后，约4052万剂。
+* * *
 
-[全球新冠疫苗接种量达1.94亿剂次，我国累计接种4052万剂次](https://baijiahao.baidu.com/s?id=1692212252778071423&amp;wfr=spider&amp;for=pc)
-而截至当地时间2月19日，约翰斯·霍普金斯大学官网数据显示，接种剂次前10名国家除中国外，依次为美国（59585043） 、英国（16996806）、印度（10188007）、以色列（7078074） 巴西（6206680）、土耳其（5895295）、阿拉伯酋长国（5373730）、 德国（4719900） 俄罗斯（3900000），俄罗斯首次进入前十序列。
+英听校:康州盘古农场-WZ
 
-[3月21日：国务院联防联控机制2021年3月21日新闻发布会文字实录](http://www.nhc.gov.cn/xcs/yqfkdt/202103/b3b8103da9104fc58d7ce8f5189e9be2.shtml)
+翻译: 康州盘古农场-WZ
 
-[3月20日：截至3月20日中国新冠疫苗累计接种7495．6万剂次](https://baijiahao.baidu.com/s?id=1694889161224644830&amp;wfr=spider&amp;for=pc)
+翻译终校: 康州盘古农场-Mike Li
 
-[3月22日：2.54亿老龄人口有望接种新冠疫苗，产量完全可满足接种需求](http://news.cctv.com/2021/03/22/ARTIagMhoqiOC6PkXJwdLdEp210322.shtml?spm=C94212.P4YnMod9m2uD.ENPMkWvfnaiV.60)
+字幕+视频制作:康州盘古农场-天涯行
 
-[3月22日：截至2021年3月22日24时，我国累计接种新冠病毒疫苗8046.3万剂次，接种人数稳步增长。](https://baijiahao.baidu.com/s?id=1694889161224644830&amp;wfr=spider&amp;for=pc)
+审片：康州盘古农场-银龙
 
+发文编辑：康州盘古农场-轰炸机
+[!\[\]()!\[\](https://gnews.org/wp-content/uploads/2021/03/横幅-3.gif)](https://discord.gg/2vuvRm7z6U)
+康州盤古農場歡迎您加入:(或點擊上方圖片）
 
-
-[3月23日 权威发布！上海启动60岁及以上人群新冠疫苗预约接种](http://wsjkw.sh.gov.cn/xwfb/20210323/cbd3025a140e4e0c9678c0e4e549c353.html)
-
-
-
-[广东累计接种新冠疫苗达332万人，将开展18-59岁人群接种工作](https://baijiahao.baidu.com/s?id=1694967430114744799&amp;wfr=spider&amp;for=pc)
-截至3月21日，全省累计接种了332万人，接种人数每日均在稳步增长，群众接种意愿也在逐步增加。据介绍，在总体安排上，广东按照国家统一部署，分阶段逐步推进新冠肺炎疫苗的接种工作，主要按顺序分三步来推动。第一步就包括职业暴露风险较高的人群、有境外感染风险的人群，维持社会基本运行关键岗位的人员，“在前一阶段的已经基本完成以上人员的接种工作。”第二步是其他18-59岁人群，第三步是60岁及以上老年人、基础性疾病患者和其他有接种意愿的人员。
-“今年以来，我们一方面对职业暴露风险较高的人群、有境外感染风险的人群，维持社会基本运行关键岗位的人员开展查漏补种，另一方面逐步加快全省各地各类人群的接种工作，这也是第二步的重点安排。”黄飞介绍，全省各地各类人群的接种工作根据风险防控的情况分为口岸所在地和非口岸所在地两 类地区：在口岸所在地，以口岸所在的县区为单位来完成辖区内18岁到59岁的整个人群的疫苗接种；在非口岸地区，在18~59岁的人群范围内，重点完成服务业、劳动密集型行业、高等院校在校学生、各类学校教师职工等疾病传播风险比较高的人群的接种工作
-
-[4月1日专家：中国达到一天1000万人新冠疫苗接种数量没有问题](https://finance.sina.com.cn/china/gncj/2021-04-01/doc-ikmyaawa3279929.shtml)
-
-[4月2日：北京市新冠疫苗接种突破1000万人](https://world.huanqiu.com/article/42YbpabPFWO)
-
-
-
-发布：GLC
+[https://discord.gg/2vuvRm7z6U](https://discord.gg/2vuvRm7z6U)
 
 0
